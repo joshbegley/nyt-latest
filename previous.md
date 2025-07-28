@@ -1,3 +1,7 @@
+**Lucy Bronze, the Euro 2025 winner who played with a fractured leg: “Was it worth it? Absolutely!”**\
+`'Tough' by name, tough by nature - England defender Bronze put in a superhuman effort as England were crowned European champions again`\
+https://nytimes.com/athletic/6519486/2025/07/28/lucy-bronze-fractured-leg-euro-2025/
+
 **​North Korea Rejects New South Korean Leader’s Peace Overtures**\
 `In its first comment on President Lee Jae Myung of South Korea, North Korea dismissed a call for dialogue, dampening hopes of a new chapter in relations.`\
 https://nytimes.com/2025/07/28/world/asia/north-korea-rejects-peace-gestures.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/28/briefing/ukraine-protests-europe-us-trade-deal.ht
 **How do Manchester United's summer signings so far change Amorim's tactics?**\
 `Cunha and Mbeumo have been signed, sealed and delivered to Ruben Amorim. Now begins a head-scratching tactical conundrum...`\
 https://nytimes.com/athletic/6510886/2025/07/28/how-do-manchester-uniteds-summer-signings-change-ruben-amorims-tactics/
-
-**Why are Aston Villa making so many €5m to €9m signings?**\
-`The club's recruitment in the past 18 months can be put in two clear categories - 'potential players' are important to their business model`\
-https://nytimes.com/athletic/6501861/2025/07/28/aston-villa-transfers-signings-psr/
 
