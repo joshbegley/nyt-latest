@@ -1,5 +1,13 @@
+**Thomas Sayers Ellis, Poet of ‘Percussive Prosody,’ Dies at 61**\
+`A verbal gymnast on and off the page (as well as a musician and photographer), he was a founder of the Dark Room Collective, a community of writers, and fostered a boom in Black poetry.`\
+https://nytimes.com/2025/07/28/books/thomas-sayers-ellis-dead.html
+
+**Deion Sanders says he had cancerous tumor, bladder removed this offseason**\
+`Sanders was away from campus for three months this offseason.`\
+https://nytimes.com/athletic/6520082/2025/07/28/deion-sanders-cancer-health-update-colorado/
+
 **Wallis Annenberg, Arts and Wildlife Philanthropist, Dies at 86**\
-`She put millions from her foundation into projects in Southern California, like a performing arts center in Beverly Hills and a wildlife crossing over the busy 101 freeway.`\
+`She put millions from her foundation into projects in California, like a performing arts center in Beverly Hills and a wildlife crossing over the busy 101 freeway.`\
 https://nytimes.com/2025/07/28/us/wallis-annenberg-dead.html
 
 **Judge Indefinitely Blocks Withholding of Medicaid Funds to Planned Parenthood**\
@@ -29,12 +37,4 @@ https://nytimes.com/2025/07/28/books/review/wendy-cope-collected-poems.html
 **If Spurs aren't signing Morgan Gibbs-White, who are the closest alternatives?**\
 `Tottenham's move for the Forest midfielder appears to have failed - so which players are near to matching his fairly unusual skill set?`\
 https://nytimes.com/athletic/6520255/2025/07/28/gibbs-white-alternatives-tottenham/
-
-**Morecambe facing National League expulsion amid financial woes**\
-`The Lancashire-based club are already under a transfer embargo and have now had its first three league fixtures postponed.`\
-https://nytimes.com/athletic/6520356/2025/07/28/morecambe-national-league-expelled/
-
-**Tour de France Femmes: Lorena Wiebes claims sprint stage win, Demi Vollering crashes, Vos back in yellow**\
-`See the results from Stage 3 here as The Athletic covers the Tour de France Femmes. `\
-https://nytimes.com/athletic/6519734/2025/07/28/tour-de-france-femmes-lorena-wiebes-sprint-win-crash-demi-vollering/
 

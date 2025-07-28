@@ -1,3 +1,23 @@
+**Wallis Annenberg, Arts and Wildlife Philanthropist, Dies at 86**\
+`She put millions from her foundation into projects in Southern California, like a performing arts center in Beverly Hills and a wildlife crossing over the busy 101 freeway.`\
+https://nytimes.com/2025/07/28/us/wallis-annenberg-dead.html
+
+**Judge Indefinitely Blocks Withholding of Medicaid Funds to Planned Parenthood**\
+`A federal judge in Boston ruled that a provision in President Trump’s policy bill targeting the organization most likely amounted to retaliation.`\
+https://nytimes.com/2025/07/28/us/politics/planned-parenthood-medicaid-trump.html
+
+**Several People Injured in Shooting at Reno Casino Resort**\
+`The police said that the gunman was in custody after the attack at the Grand Sierra Resort and Casino.`\
+https://nytimes.com/2025/07/28/us/reno-shooting-casino.html
+
+**Scoop City: What's happening with Cam Ward?**\
+`The latest on the Titans No. 1 pick, plus insights on training camp competitions and injuries to stars like Justin Jefferson`\
+https://nytimes.com/athletic/6520476/2025/07/28/nfl-training-camp-cam-ward-titans-scoop-city/
+
+**If Spurs aren't signing Morgan Gibbs-White, who are the closest alternatives?**\
+`Tottenham's move for the Forest midfielder appears to have failed - so which players are near to matching his fairly unusual skill set?`\
+https://nytimes.com/athletic/6520255/2025/07/28/gibbs-white-alternatives-tottenham/
+
 **Guardians' Clase placed on leave as part of sports betting investigation**\
 `MLB announced that the reliever will be on leave through August 31. `\
 https://nytimes.com/athletic/6520488/2025/07/28/emmanuel-clase-cleveland-guardians-leave-betting/
