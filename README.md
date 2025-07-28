@@ -1,3 +1,7 @@
+**Passengers Evacuate Burning Plane in Denver**\
+`Passengers rushed out of an American Airlines plane after the pilot ordered them to evacuate because of a fire. The flight was headed to Miami from Denver International Airport.`\
+https://nytimes.com/video/us/100000010308392/american-airlines-denver-flight.html
+
 **Seth Lugo, Royals finalize multiyear extension, taking trade deadline target off board: Source**\
 `The 35-year-old finished second in AL Cy Young Award voting in 2024 after starting a league-leading 33 games. `\
 https://nytimes.com/athletic/6519358/2025/07/27/royals-seth-lugo-extension/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/27/obituaries/michael-ochs-dead.html
 **Joe Ryan 'would like to stay' with Twins; Derek Falvey talks trade deadline plans**\
 `Nearly everything points to the Twins being sellers at the trade deadline, but will they stop at dealing impending free agents?`\
 https://nytimes.com/athletic/6517707/2025/07/27/twins-joe-ryan-derek-falvey-trade-deadline/
-
-**Our 5 favorite lessons from Ichiro, CC Sabathia and the 2025 Baseball Hall of Fame inductees**\
-`On Sunday, five greats were inducted into the Baseball Hall of Fame. These are five favorite lessons from their speeches.`\
-https://nytimes.com/athletic/6519170/2025/07/27/hall-of-fame-lessons-baseball-cooperstown-ichiro/
 
