@@ -1,3 +1,7 @@
+**In a First, Leading Israeli Rights Groups Accuse Israel of Gaza Genocide**\
+`Israel says it is fighting against Hamas, not Palestinians as a group. But two of Israel’s best-known rights groups — long critical of Israeli policy — now say they disagree.`\
+https://nytimes.com/2025/07/28/world/middleeast/israel-genocide-gaza-rights-groups.html
+
 **Despite Bombing, Some Remain at Thailand-Cambodia Border**\
 `Hundreds of thousands of civilians have fled the Thailand-Cambodia border area where violence has erupted. However, a few have chosen to not evacuate.`\
 https://nytimes.com/video/world/asia/100000010308433/thailand-cambodia-border-civilians.html
