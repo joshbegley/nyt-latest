@@ -1,3 +1,7 @@
+**Five key Yankees trade deadline questions: How could they upgrade the bullpen?**\
+`The Yankees have turned their attention to the pitching staff, in particular the bullpen, as Thursday's trade deadline draws near. `\
+https://nytimes.com/athletic/6520343/2025/07/28/yankees-mlb-trade-deadline-questions-targets/
+
 **Faculty Support of George Mason’s President Draws Federal Investigation**\
 `The Faculty Senate at George Mason University in Virginia adopted a resolution supporting the school’s president and his work related to diversity. The Justice Department says it will investigate.`\
 https://nytimes.com/2025/07/28/us/justice-department-george-mason-faculty-senate-investigation.html
@@ -36,8 +40,4 @@ https://nytimes.com/2025/07/28/books/thomas-sayers-ellis-dead.html
 **Deion Sanders says he had cancerous tumor, bladder removed this offseason**\
 `Sanders was away from campus for three months this offseason.`\
 https://nytimes.com/athletic/6520082/2025/07/28/deion-sanders-cancer-health-update-colorado/
-
-**Wallis Annenberg, Arts and Wildlife Philanthropist, Dies at 86**\
-`She put millions from her foundation into projects in California, like a performing arts center in Beverly Hills and a wildlife crossing over the busy 101 freeway.`\
-https://nytimes.com/2025/07/28/us/wallis-annenberg-dead.html
 
