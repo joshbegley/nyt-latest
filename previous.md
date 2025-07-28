@@ -1,3 +1,15 @@
+**Tariffs on Medicines From Europe Stand to Cost Drugmakers Billions**\
+`Many pharmaceutical products made in Europe will face a 15 percent tariff, pinching manufacturers and potentially leading to higher drug prices.`\
+https://nytimes.com/2025/07/28/health/trump-drug-tariffs-europe.html
+
+**Cameron Brink expected to play for Sparks on Tuesday after 13-month layoff**\
+`No. 2 pick in the 2024 WNBA Draft, who injured her knee last June, is expected to make her season debut vs. Las Vegas.`\
+https://nytimes.com/athletic/6521198/2025/07/28/cameron-brink-sparks-return-wnba/
+
+**Colts camp takeaways: After lackluster start, QB battle finally heating up**\
+`Neither QB had asserted himself so far in camp, but both Richardson and Jones delivered their best practices yet on Monday. `\
+https://nytimes.com/athletic/6520975/2025/07/28/colts-anthony-richardson-daniel-jones-qb-battle/
+
 **Harvard Is Said to Be Open to Spending Up To $500 Million to Resolve Trump Dispute**\
 `The sum sought by the government is more than twice as much as the $200 million fine that Columbia University said it would pay when it settled its clash with the White House last week.`\
 https://nytimes.com/2025/07/28/us/politics/trump-harvard-payment.html
@@ -25,16 +37,4 @@ https://nytimes.com/video/business/100000010304170/why-we-almost-got-a-maga-bran
 **Titans waive injured 2022 first-round pick Treylon Burks**\
 `The Titans selected the former Arkansas standout with a first-round pick in the 2022 NFL Draft.`\
 https://nytimes.com/athletic/6521109/2025/07/28/titans-waive-treylon-burks/
-
-**Tracking Tropical Storm Keli**\
-`See the likely path and wind arrival times for Keli`\
-https://nytimes.com/interactive/2025/07/28/weather/keli-storm-map-path-tracker.html
-
-**Tuesday Briefing: Trump Said There’s ‘Real Starvation’ in Gaza**\
-`Also, Thailand and Cambodia agreed to stop fighting.`\
-https://nytimes.com/2025/07/28/briefing/trump-gaza-starvation-trade-thailand-cambodia.html
-
-**Division lead on the line, Miz on the mound: How to watch the Cubs-Brewers series**\
-`With first place up for grabs and a stellar mound matchup Monday, the NL Central rivals get after it with a three-game series in Milwaukee.`\
-https://nytimes.com/athletic/6520525/2025/07/28/cubs-brewers-misiorowski-boyd-how-to-watch/
 

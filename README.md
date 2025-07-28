@@ -1,3 +1,11 @@
+**In Messi vs. MLS, pettiness gets in the way of sensibility**\
+`Everyone involved could have handled the MLS All-Star snafu better, instead of letting things develop as they did.`\
+https://nytimes.com/athletic/6520300/2025/07/28/messi-mls-all-star-suspension-inter-miami/
+
+**Buccaneers, QB Baker Mayfield agree to restructured contract: Source**\
+`Mayfield’s current deal did not contain any guaranteed money following the 2025 season.`\
+https://nytimes.com/athletic/6520907/2025/07/28/buccaneers-qb-baker-mayfield-restructure-contract/
+
 **Tariffs on Medicines From Europe Stand to Cost Drugmakers Billions**\
 `Many pharmaceutical products made in Europe will face a 15 percent tariff, pinching manufacturers and potentially leading to higher drug prices.`\
 https://nytimes.com/2025/07/28/health/trump-drug-tariffs-europe.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6521025/2025/07/28/astros-mlb-trade-deadline-questi
 **John Saladino, ‘Sensualist’ Designer With a Love of Ruins, Dies at 86**\
 `A renowned interior designer, he created instantly recognizable rooms using lush fabrics, oversize antiques and imperfectly plastered walls that convey a sense of age.`\
 https://nytimes.com/2025/07/28/arts/design/john-saladino-dead.html
-
-**Why We Almost Got a MAGA-Branded Instant Pot**\
-`Instant Brands announced a new line of pots emblazoned with the slogan “Make America Great Again.” David Fahrenthold explains what’s behind this decision and explores the link between this brand and others that have created Trump-related products.`\
-https://nytimes.com/video/business/100000010304170/why-we-almost-got-a-maga-branded-instant-pot.html
-
-**Titans waive injured 2022 first-round pick Treylon Burks**\
-`The Titans selected the former Arkansas standout with a first-round pick in the 2022 NFL Draft.`\
-https://nytimes.com/athletic/6521109/2025/07/28/titans-waive-treylon-burks/
 
