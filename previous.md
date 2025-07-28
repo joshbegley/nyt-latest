@@ -1,3 +1,11 @@
+**Should the Giants buy or sell at the trade deadline?**\
+`The Giants are in position to push for the postseason. They've also been awful the past few weeks. Should they go for it or punt?`\
+https://nytimes.com/athletic/6519531/2025/07/28/sf-giants-buyers-sellers-trade-deadline/
+
+**Veteran C.I.A. Official to Retire After Losing Out on London Job**\
+`Tom Sylvester had been set to be the agency’s top liaison to Britain, America’s most important intelligence partner and the agency’s most prestigious overseas posting.`\
+https://nytimes.com/2025/07/28/us/politics/cia-official-to-retire-london-job.html
+
 **Eve Jobs’s Wedding in the Cotswolds is Peak Quiet Luxury**\
 `Eve Jobs, the youngest daughter of Steve Jobs and Laurene Powell Jobs, is rumored to have married in the English countryside, further cementing the Cotswolds as a hot spot for lavish weddings.`\
 https://nytimes.com/2025/07/28/style/eve-jobss-wedding-the-cotswolds.html
@@ -18,7 +26,7 @@ https://nytimes.com/athletic/6520677/2025/07/28/cal-raleigh-al-mvp-favorite-aaro
 `The progressive left has often struggled to win over older Black voters. There are ways to fix this.`\
 https://nytimes.com/2025/07/28/opinion/zohran-mamdani-progressives-left-black-voters.html
 
-**Jed Hoyer, Cubs agree to multi-year extension: Source**\
+**Jed Hoyer, Cubs agree to multi-year extension**\
 `Hoyer joined the Cubs as general manager in 2011 and took over as president of baseball operations in 2020.`\
 https://nytimes.com/athletic/6520972/2025/07/28/jed-hoyer-cubs-extension/
 
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6520785/2025/07/28/panthers-training-camp-tetairoa-
 **Wiegman says Lionesses’ Downing Street reception 'very special' after Euro 2025 title**\
 `England defeated Spain in Sunday's final and upon returning to the UK on Monday, the Lionesses travelled to Downing Street.`\
 https://nytimes.com/athletic/6520861/2025/07/28/lionesses-downing-street-england-football/
-
-**Giants training camp takeaways: Arrow pointing up on Jaxson Dart, offensive line**\
-`Dart looks much more comfortable than he did in the first three practices, when the rookie QB held the ball excessively in the pocket.`\
-https://nytimes.com/athletic/6520766/2025/07/28/ny-giants-jaxson-dart-training-camp/
-
-**How Real Madrid's forgotten €30m Brazilian wonderkid ended up training with the reserves**\
-`The Athletic has reported Reinier will train with Real Madrid Castilla, a far cry from the hype when he arrived`\
-https://nytimes.com/athletic/5739701/2025/07/28/reinier-jesus-real-madrid-brazil/
 

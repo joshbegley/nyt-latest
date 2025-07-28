@@ -1,3 +1,15 @@
+**Should the Giants buy or sell at the trade deadline?**\
+`The Giants are in position to push for the postseason. They've also been awful the past few weeks. Should they go for it or punt?`\
+https://nytimes.com/athletic/6519531/2025/07/28/sf-giants-buyers-sellers-trade-deadline/
+
+**Veteran C.I.A. Official to Retire After Losing Out on London Job**\
+`Tom Sylvester had been set to be the agency’s top liaison to Britain, America’s most important intelligence partner and the agency’s most prestigious overseas posting.`\
+https://nytimes.com/2025/07/28/us/politics/cia-official-to-retire-london-job.html
+
+**Jed Hoyer, Cubs agree to multi-year extension**\
+`Hoyer joined the Cubs as general manager in 2011 and took over as president of baseball operations in 2020.`\
+https://nytimes.com/athletic/6520972/2025/07/28/jed-hoyer-cubs-extension/
+
 **Eve Jobs’s Wedding in the Cotswolds is Peak Quiet Luxury**\
 `Eve Jobs, the youngest daughter of Steve Jobs and Laurene Powell Jobs, is rumored to have married in the English countryside, further cementing the Cotswolds as a hot spot for lavish weddings.`\
 https://nytimes.com/2025/07/28/style/eve-jobss-wedding-the-cotswolds.html
