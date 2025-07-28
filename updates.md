@@ -1,3 +1,7 @@
+**Monday Briefing: Ukraine’s Other War**\
+`Plus, a U.S.-E.U. trade deal.`\
+https://nytimes.com/2025/07/28/briefing/ukraine-protests-europe-us-trade-deal.html
+
 **How do Manchester United's summer signings so far change Amorim's tactics?**\
 `Cunha and Mbeumo have been signed, sealed and delivered to Ruben Amorim. Now begins a head-scratching tactical conundrum...`\
 https://nytimes.com/athletic/6510886/2025/07/28/how-do-manchester-uniteds-summer-signings-change-ruben-amorims-tactics/
