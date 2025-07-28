@@ -1,3 +1,7 @@
+**UEFA Women's Euro 2025: Best player, favourite moments, biggest disappointments and more**\
+`Our team of writers reflect on the 2025 UEFA Women's Euros and pick their favourite moments, quotes and lessons learned`\
+https://nytimes.com/athletic/6519181/2025/07/28/uefa-womens-euro-2025-best-player-favourite-moments-biggest-disappointments-and-more/
+
 **How the Big Ten rallied around a CFP plan no one else is sold on**\
 `Coaches and ADs were in lockstep with Tony Petitti’s vision for an access-based CFP field rather than one dependent upon a committee.`\
 https://nytimes.com/athletic/6518162/2025/07/28/big-ten-college-football-playoff-format/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6519642/2025/07/28/arsenal-william-saliba-contract-
 **Trump and the E.U. Have a Blueprint for a Giant Trade Deal. Is it Good for Europe?**\
 `Both sides hailed the agreement as the biggest ever. But it will come at a cost to the European Union, and many details have yet to be nailed down.`\
 https://nytimes.com/2025/07/28/world/europe/eu-trade-deal-trump-tariffs.html
-
-**TAFC: Kelly and Hampton, England's Euros stars. Plus: How Gibbs-White shocked Spurs**\
-`Sarina Wiegman's team battle to retain their crown, Nottingham Forest's flex, and the fallout from Lionel Messi's ban`\
-https://nytimes.com/athletic/6519690/2025/07/28/england-euros-gibbs-white-spurs-tafc/
 
