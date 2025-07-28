@@ -1,3 +1,11 @@
+**Forest eyeing Traore move alongside Ndoye**\
+`Nuno Espirito Santo is aiming to bolster his wide options this summer as Forest prepare for a return to Europe.`\
+https://nytimes.com/athletic/6506073/2025/07/28/nottingham-forest-transfers-dan-ndoye-adama-traore/
+
+**France Assails E.U.’s Trade Deal With Trump**\
+`Some French cabinet members have aired their sharp disapproval of the deal, including the country’s prime minister who called it “a dark day.”`\
+https://nytimes.com/2025/07/28/us/politics/trump-eu-trade-deal-france.html
+
 **Cowboys offensive line depth takes hit as guard Robert Jones suffers neck injury**\
 `Jones, who was getting first-team reps at right guard in front of rookie first-round pick Tyler Booker, will be out 2-3 months.`\
 https://nytimes.com/athletic/6519982/2025/07/28/cowboys-robert-jones-neck-injury/

@@ -1,3 +1,11 @@
+**Churlish England proved there is no such thing as the 'Spirit of Cricket'**\
+`The spikiness at the end of the fourth Test with India showed why cricket is no more morally pure than any other sport`\
+https://nytimes.com/athletic/6519978/2025/07/28/england-india-row-spirit-cricket/
+
+**The Windup: Deadline week already moving**\
+`The Windup is The Athletic's baseball newsletter.`\
+https://nytimes.com/athletic/6520035/2025/07/28/mlb-trade-deadline-week-the-windup/
+
 **Cowboys offensive line depth takes hit as guard Robert Jones suffers neck injury**\
 `Jones, who was getting first-team reps at right guard in front of rookie first-round pick Tyler Booker, will be out 2-3 months.`\
 https://nytimes.com/athletic/6519982/2025/07/28/cowboys-robert-jones-neck-injury/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6519751/2025/07/28/denver-broncos-defense-training-
 **European Carmakers Welcome, and Worry About, U.S. Tariff Deal**\
 `German auto companies embraced greater clarity but warned that even the lower rate of tariffs agreed between Brussels and Washington would still hurt.`\
 https://nytimes.com/2025/07/28/us/politics/tariffs-eu-deal-cars.html
-
-**Newcastle working on deal for Southampton's Ramsdale**\
-`Newcastle have made an offer for an initial loan with an option to buy. Talks are ongoing between clubs but there is no agreement as yet.`\
-https://nytimes.com/athletic/6516925/2025/07/28/aaron-ramsdale-newcastle-southampton-transfer/
-
-**Making Sense of the E.U. Trade Deal**\
-`Questions, critiques and discrepancies are hanging over the framework agreement, but investors seem to view it as a win all the same.`\
-https://nytimes.com/2025/07/28/business/dealbook/trump-eu-trade-deal.html
 
