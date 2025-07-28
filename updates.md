@@ -1,3 +1,7 @@
+**Seth Lugo, Royals finalize multiyear extension, taking trade deadline target off board: Source**\
+`The 35-year-old finished second in AL Cy Young Award voting in 2024 after starting a league-leading 33 games. `\
+https://nytimes.com/athletic/6519358/2025/07/27/royals-seth-lugo-extension/
+
 **Royals, Seth Lugo finalize multiyear extension, taking trade deadline target off board: Source**\
 `The 35-year-old finished second in AL Cy Young Award voting in 2024 after starting a league-leading 33 games. `\
 https://nytimes.com/athletic/6519358/2025/07/27/royals-seth-lugo-extension/
