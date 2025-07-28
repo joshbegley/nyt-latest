@@ -1,3 +1,19 @@
+**The Quintessential Urban Design of Sesame Street**\
+`Over its several decades, the show’s setting has always been both realistic and idealistic. And it has evolved, much like the New York City streets that inspired it.`\
+https://nytimes.com/2025/07/28/realestate/sesame-street-design-over-the-years.html
+
+**Live Q&A: Blue Jays trade deadline talk with Mitch Bannon at 11:30 a.m. ET Tuesday**\
+`The Blue Jays are surging. How will they improve by the trade deadline?`\
+https://nytimes.com/athletic/6519274/2025/07/28/live-qa-blue-jays-trade-deadline/
+
+**Churlish England proved there is no such thing as the 'Spirit of Cricket'**\
+`The spikiness at the end of the fourth Test with India showed why cricket is no more morally pure than any other sport`\
+https://nytimes.com/athletic/6519978/2025/07/28/england-india-row-spirit-cricket/
+
+**The Windup: Deadline week already moving**\
+`The Windup is The Athletic's baseball newsletter.`\
+https://nytimes.com/athletic/6520035/2025/07/28/mlb-trade-deadline-week-the-windup/
+
 **Forest eyeing Traore move alongside Ndoye**\
 `Nuno Espirito Santo is aiming to bolster his wide options this summer as Forest prepare for a return to Europe.`\
 https://nytimes.com/athletic/6506073/2025/07/28/nottingham-forest-transfers-dan-ndoye-adama-traore/

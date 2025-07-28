@@ -1,3 +1,7 @@
+**gws-dolly-parton-musical-nashville**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/dolly-parton-musical-nashville
+
 **The Quintessential Urban Design of Sesame Street**\
 `Over its several decades, the show’s setting has always been both realistic and idealistic. And it has evolved, much like the New York City streets that inspired it.`\
 https://nytimes.com/2025/07/28/realestate/sesame-street-design-over-the-years.html
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2025/07/28/weather/iona-storm-tracker.html
 **France Assails E.U.’s Trade Deal With Trump**\
 `Some French cabinet members have aired their sharp disapproval of the deal, including the country’s prime minister who called it “a dark day.”`\
 https://nytimes.com/2025/07/28/us/politics/trump-eu-trade-deal-france.html
-
-**Citizen Scientists Are Accelerating Ecology Research, Study Suggests**\
-`Thousands of scientific papers have used data collected by users of the platform iNaturalist, according to new research.`\
-https://nytimes.com/2025/07/28/science/citizen-science-ecology-inaturalist.html
 
