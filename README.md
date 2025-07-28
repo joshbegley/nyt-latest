@@ -1,4 +1,4 @@
-**Over 16 million watched England win Euros final, BBC and ITV figures say**\
+**Euro 2025 final peaked at more than 16 million viewers in UK**\
 `England beat Spain on penalties in the final on Sunday to win the tournament for the second time in a row. `\
 https://nytimes.com/athletic/6519812/2025/07/28/2025-euros-viewing-figures-bbc-itv/
 

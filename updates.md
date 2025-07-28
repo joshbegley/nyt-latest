@@ -1,3 +1,7 @@
+**Where Is the Economy Going? A ‘Monster Week’ of News Could Help Decide.**\
+`This week will bring a flood of economic data, as well as major policy decisions on trade and interest rates.`\
+https://nytimes.com/2025/07/28/business/economy-tariffs-fed-jobs.html
+
 **Over 16 million watched England win Euros final, BBC and ITV figures say**\
 `England beat Spain on penalties in the final on Sunday to win the tournament for the second time in a row. `\
 https://nytimes.com/athletic/6519812/2025/07/28/2025-euros-viewing-figures-bbc-itv/
