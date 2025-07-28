@@ -1,3 +1,7 @@
+**Adrian Morejon's long-awaited ascension has come just in time for Padres**\
+`"Watching him now get to this point in his career, the guy that we knew we had signed years ago, is very gratifying," Ruben Niebla said.`\
+https://nytimes.com/athletic/6514460/2025/07/27/adrian-morejon-ascension-padres/
+
 **For Trump, E.U. Trade Deal was Badly Needed**\
 `After a lot of big talk on trade, the Trump administration needed a big win. It appears to have just gotten one.`\
 https://nytimes.com/2025/07/27/us/politics/trump-europe-trade-deal.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6519081/2025/07/27/astros-mlb-trade-deadline-eugeni
 **Matt Shaw's recent surge won't end the Cubs' pursuit of Eugenio Suárez at the trade deadline**\
 `Since the All-Star break, Shaw has hit four of his six home runs while posting a .444 batting average.`\
 https://nytimes.com/athletic/6519056/2025/07/27/chicago-cubs-eugenio-suarez-trade-deadline-pursuit/
-
-**Steelers camp: Juan Thornhill looks to prove Browns wrong, Broderick Jones injured**\
-`The Minkah Fitzpatrick trade bumped Thornhill up the depth chart. Can he handle starter reps after a middling season in Cleveland?`\
-https://nytimes.com/athletic/6518929/2025/07/27/steelers-training-camp-juan-thornhill-broderick-jones/
 
