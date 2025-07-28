@@ -1,3 +1,7 @@
+**Should the Giants trade Camilo Doval? Rival execs think it's a disservice not to consider it**\
+`Doval, 28, is under club control through the 2027 season, making him all the more valuable.`\
+https://nytimes.com/athletic/6519455/2025/07/27/san-francisco-giants-camilo-doval-trade-potential-trade/
+
 **Passengers Evacuate Burning Plane in Denver**\
 `Passengers rushed out of an American Airlines plane after the pilot ordered them to evacuate because of a fire. The flight was headed to Miami from Denver International Airport.`\
 https://nytimes.com/video/us/100000010308392/american-airlines-denver-flight.html

@@ -1,3 +1,7 @@
+**Should the Giants trade Camilo Doval? Rival execs think it's a disservice not to consider it**\
+`Doval, 28, is under club control through the 2027 season, making him all the more valuable.`\
+https://nytimes.com/athletic/6519455/2025/07/27/san-francisco-giants-camilo-doval-trade-potential-trade/
+
 **Passengers Evacuate Burning Plane in Denver**\
 `Passengers rushed out of an American Airlines plane after the pilot ordered them to evacuate because of a fire. The flight was headed to Miami from Denver International Airport.`\
 https://nytimes.com/video/us/100000010308392/american-airlines-denver-flight.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/27/podcasts/allure-of-the-mean-friend.html
 **Michael Ochs, Top Collector of Rock ’n’ Roll Photos, Dies at 82**\
 `He surveyed the trash of record companies, haggled with aging photographers and scoured estate sales, building an archive widely seen as unmatched.`\
 https://nytimes.com/2025/07/27/obituaries/michael-ochs-dead.html
-
-**Joe Ryan 'would like to stay' with Twins; Derek Falvey talks trade deadline plans**\
-`Nearly everything points to the Twins being sellers at the trade deadline, but will they stop at dealing impending free agents?`\
-https://nytimes.com/athletic/6517707/2025/07/27/twins-joe-ryan-derek-falvey-trade-deadline/
 
