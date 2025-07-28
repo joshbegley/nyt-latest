@@ -1,3 +1,11 @@
+**Giants training camp takeaways: Arrow pointing up on Jaxson Dart, offensive line**\
+`Dart looks much more comfortable than he did in the first three practices, when the rookie QB held the ball excessively in the pocket.`\
+https://nytimes.com/athletic/6520766/2025/07/28/ny-giants-jaxson-dart-training-camp/
+
+**After Bryce Harper-Rob Manfred clubhouse spat, Mark DeRosa warned Phillies of commish's power**\
+`DeRosa insisted he was joking with his comments, but players present said they didn't take it that way. `\
+https://nytimes.com/athletic/6520855/2025/07/28/bryce-harper-rob-manfred-mark-derosa-mlb-clubhouse-confrontation/
+
 **Who Pays for U.S. Tariffs, and Where Does the Money Go?**\
 `President Trump is seeking to raise federal revenue by imposing levies on goods from foreign nations. Here’s how the process works.`\
 https://nytimes.com/2025/07/28/business/economy/trump-tariffs-payment.html

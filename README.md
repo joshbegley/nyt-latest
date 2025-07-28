@@ -1,3 +1,11 @@
+**Panthers observations: Rookie WR gets tested and continues evolving, Dabo visits**\
+`The Clemson coach said the Panthers "got a lot to be excited about" after visiting practice and catching up with Hunter Renfrow.`\
+https://nytimes.com/athletic/6520785/2025/07/28/panthers-training-camp-tetairoa-mcmillan-dabo/
+
+**Wiegman says Lionesses’ Downing Street reception 'very special' after Euro 2025 title**\
+`England defeated Spain in Sunday's final and upon returning to the UK on Monday, the Lionesses travelled to Downing Street.`\
+https://nytimes.com/athletic/6520861/2025/07/28/lionesses-downing-street-england-football/
+
 **Giants training camp takeaways: Arrow pointing up on Jaxson Dart, offensive line**\
 `Dart looks much more comfortable than he did in the first three practices, when the rookie QB held the ball excessively in the pocket.`\
 https://nytimes.com/athletic/6520766/2025/07/28/ny-giants-jaxson-dart-training-camp/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/07/28/health/kennedy-vaccine-injury-court.html
 **Scouting Travis Bazzana, Braylon Doughty and other Guardians, Orioles prospects**\
 `Angel Genao has the athleticism for shortstop. Will he outgrow the position? Plus notes on Cooper Ingle, Chase Allsup and Andy Fabian.`\
 https://nytimes.com/athletic/6520595/2025/07/28/travis-bazzana-braylon-doughty-guardians-orioles-scouting/
-
-**Bills training camp observations, Day 5: Benford shines, Kincaid sits out Day 1 in pads**\
-`Dalton Kincaid is battling soreness in the same knee he injured in 2024, while Tyrell Shavers expects to return soon from an ankle injury.`\
-https://nytimes.com/athletic/6520581/2025/07/28/bills-training-camp-christian-benford-dalton-kincaid/
-
-**Key Twins trade deadline questions: Who's pulling strings and what direction can they take?**\
-`The fourth-place Twins have no time to show that they can make a playoff run before this week's trade deadline.`\
-https://nytimes.com/athletic/6520646/2025/07/28/twins-mlb-trade-deadline-questions/
 

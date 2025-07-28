@@ -1,3 +1,11 @@
+**Giants training camp takeaways: Arrow pointing up on Jaxson Dart, offensive line**\
+`Dart looks much more comfortable than he did in the first three practices, when the rookie QB held the ball excessively in the pocket.`\
+https://nytimes.com/athletic/6520766/2025/07/28/ny-giants-jaxson-dart-training-camp/
+
+**After Bryce Harper-Rob Manfred clubhouse spat, Mark DeRosa warned Phillies of commish's power**\
+`DeRosa insisted he was joking with his comments, but players present said they didn't take it that way. `\
+https://nytimes.com/athletic/6520855/2025/07/28/bryce-harper-rob-manfred-mark-derosa-mlb-clubhouse-confrontation/
+
 **Who Pays for U.S. Tariffs, and Where Does the Money Go?**\
 `President Trump is seeking to raise federal revenue by imposing levies on goods from foreign nations. Here’s how the process works.`\
 https://nytimes.com/2025/07/28/business/economy/trump-tariffs-payment.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6520581/2025/07/28/bills-training-camp-christian-be
 **Key Twins trade deadline questions: Who's pulling strings and what direction can they take?**\
 `The fourth-place Twins have no time to show that they can make a playoff run before this week's trade deadline.`\
 https://nytimes.com/athletic/6520646/2025/07/28/twins-mlb-trade-deadline-questions/
-
-**The Short-Lived Plan to Produce a Trump-Themed Instant Pot**\
-`As its private-equity owner fought antitrust allegations, the countertop cooker suddenly embraced the president’s politics, trying the new playbook of lobbying through flattery.`\
-https://nytimes.com/2025/07/28/us/politics/trump-maga-instant-pot.html
-
-**She’s Known for Eccentric Baby Names. Meet Aquaman.**\
-`The internet personality Trisha Paytas has her followers clinging to every baby name reveal. Is it just another form of viral clickbait?`\
-https://nytimes.com/2025/07/28/style/trisha-paytas-aquaman-baby-names.html
 
