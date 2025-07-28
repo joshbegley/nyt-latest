@@ -1,3 +1,19 @@
+**Trump and Starmer to Meet in Scotland to Discuss Trade and Gaza**\
+`President Trump and Prime Minister Keir Starmer of Britain were set to visit two Trump golf courses, the day after a U.S.-E.U. trade deal.`\
+https://nytimes.com/2025/07/28/us/politics/trump-starmer-uk-scotland.html
+
+**Trump Administration Live Updates: President to Host Starmer at His Golf Courses in Scotland**\
+`The leaders were expected to discuss a dispute over U.S. tariffs on British metals, as well as the crisis in Gaza. President Trump is fresh off a win after reaching a preliminary trade deal with the European Union.`\
+https://nytimes.com/live/2025/07/28/us/trump-news
+
+**Shooting at Popular Bangkok Market Leaves Several People Dead**\
+`The assailant killed five people at Or Tor Kor market, which is popular with tourists, before dying by suicide, the authorities said.`\
+https://nytimes.com/2025/07/28/world/asia/bangkok-shooting-market.html
+
+**Lucy Bronze, the Euro 2025 winner who played with a leg fracture: “Was it worth it? Absolutely!”**\
+`'Tough' by name, tough by nature - England defender Bronze put in a superhuman effort as England were crowned European champions again`\
+https://nytimes.com/athletic/6519486/2025/07/28/lucy-bronze-fractured-leg-euro-2025/
+
 **Europe Cuts a Trade Deal With Trump, Worried About Other Global Issues**\
 `The framework agreement will likely not do much for economic growth on either side. But it avoids new fissures on other foreign policy issues, particularly the war in Ukraine.`\
 https://nytimes.com/2025/07/28/world/europe/europe-trade-deal-trump.html
