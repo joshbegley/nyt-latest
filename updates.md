@@ -1,3 +1,11 @@
+**Chelsea closing in on Hato deal**\
+`An agreement between the clubs has yet to be reached but is nearing, with a compromise expected on a price worth more than €40million.`\
+https://nytimes.com/athletic/6512846/2025/07/28/jorrel-hato-chelsea-transfer/
+
+**Reinier to train with Madrid's reserve team amidst uncertainty over future**\
+`Reinier joined Madrid in 2020 for €30million but has never made an appearance for the first team and has had four separate loan spells.`\
+https://nytimes.com/athletic/6519652/2025/07/28/reinier-jesus-real-madrid-future/
+
 **Trump and Starmer to Meet in Scotland to Discuss Trade and Gaza**\
 `President Trump and Prime Minister Keir Starmer of Britain were set to visit two Trump golf courses, the day after a U.S.-E.U. trade deal.`\
 https://nytimes.com/2025/07/28/us/politics/trump-starmer-uk-scotland.html
