@@ -1,3 +1,19 @@
+**For Trump, E.U. Trade Deal was Badly Needed**\
+`After a lot of big talk on trade, the Trump administration needed a big win. It appears to have just gotten one.`\
+https://nytimes.com/2025/07/27/us/politics/trump-europe-trade-deal.html
+
+**Allure of the Mean Friend**\
+`Popular bullies exist in business, politics, everywhere. How do they stay so popular?`\
+https://nytimes.com/2025/07/27/podcasts/allure-of-the-mean-friend.html
+
+**Michael Ochs, Top Collector of Rock ’n’ Roll Photos, Dies at 82**\
+`He surveyed the trash of record companies, haggled with aging photographers and scoured estate sales, building an archive widely seen as unmatched.`\
+https://nytimes.com/2025/07/27/obituaries/michael-ochs-dead.html
+
+**Joe Ryan 'would like to stay' with Twins; Derek Falvey talks trade deadline plans**\
+`Nearly everything points to the Twins being sellers at the trade deadline, but will they stop at dealing impending free agents?`\
+https://nytimes.com/athletic/6517707/2025/07/27/twins-joe-ryan-derek-falvey-trade-deadline/
+
 **Joe Ryan 'would like to stay' with Twins; Derek Falvey talks trade deadline plans**\
 `Nearly everything points to the Twins' being sellers at the trade deadline, but will they stop at dealing impending free agents?`\
 https://nytimes.com/athletic/6517707/2025/07/27/twins-joe-ryan-derek-falvey-trade-deadline/
