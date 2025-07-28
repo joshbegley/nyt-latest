@@ -1,3 +1,7 @@
+**Heavy Rain Likely Caused Deadly German Train Derailment, Investigators Say**\
+`Television news footage showed bent tracks and piles of mud at the scene of the accident near the town of Riedlingen in southern Germany. Three people were killed and 41 injured.`\
+https://nytimes.com/2025/07/28/world/europe/germany-train-derails.html
+
 **Nevada Democrats Spot an Opportunity in a Vulnerable G.O.P. Governor**\
 `The state attorney general, Aaron Ford, is seen as Democrats’ best bet to oust Gov. Joe Lombardo. Mr. Lombardo doesn’t plan on going down easy.`\
 https://nytimes.com/2025/07/28/us/politics/nevada-governor-ford.html
