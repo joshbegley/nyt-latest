@@ -22,8 +22,8 @@ https://nytimes.com/2025/07/28/nyregion/doj-ny-presbyterian-heatlh.html
 `Feeling stuck on today’s puzzle? We can help.`\
 https://nytimes.com/2025/07/28/crosswords/spelling-bee-forum.html
 
-**Shooting at Bangkok Market Leaves 3 Dead, News Outlets Report**\
-`The shooting occurred at Or Tor Kor market, which is popular with tourists, several Thai news outlets reported.`\
+**Shooting at Popular Bangkok Market Leaves Several People Dead**\
+`The assailant killed five people at Or Tor Kor market, which is popular with tourists, before dying by suicide, the authorities said.`\
 https://nytimes.com/2025/07/28/world/asia/bangkok-shooting-market.html
 
 **What’s Going On With Trump’s Tariffs?**\
