@@ -1,3 +1,11 @@
+**Patriots 53-man roster projection: Where things stand after the first week of camp**\
+`With concerns about the offensive line and a glut of receivers fighting for roster spots, the Pats have plenty of tough decisions to make.`\
+https://nytimes.com/athletic/6517133/2025/07/28/patriots-53-man-roster-projection-training-camp/
+
+**How the Falcons are trying to tap into Bijan Robinson's 'home run' potential**\
+`The Falcons drafted Robinson as "a home run hitter." They believe this will be the year he finally shows it.`\
+https://nytimes.com/athletic/6497837/2025/07/28/falcons-bijan-robinson-home-run-potential/
+
 **C.D.C. Ties 85 Cases of THC-Related Symptoms to Wisconsin Restaurant**\
 `The restaurant mistakenly used oil infused with THC, a psychoactive ingredient found in many cannabis products, in food preparation last year, the C.D.C. said.`\
 https://nytimes.com/2025/07/28/well/wisconsin-restaurant-thc-poisoning.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/07/28/arts/television/chief-of-war-and-7-more-shows-to-
 **$2.6 Million Homes in California**\
 `A midcentury modern in Los Angeles, a house with ocean views in Bolinas and a split-level in Santa Cruz`\
 https://nytimes.com/2025/07/28/realestate/2-6-million-homes-in-california.html
-
-**Florida’s New Attorney General, a DeSantis Appointee, Is Making Waves**\
-`James Uthmeier has followed an aggressive playbook similar to that of Gov. Ron DeSantis, for whom he used to work behind the scenes as chief of staff.`\
-https://nytimes.com/2025/07/28/us/floridas-new-attorney-general-a-desantis-appointee-is-making-waves.html
-
-**Avian Flu Wiped Out Poultry. Now the Screwworm Is Coming for Beef.**\
-`The parasitic fly that attacks warm-blooded animals was eliminated from the United States in the 1960s, but it’s creeping toward the Texas-Mexico border.`\
-https://nytimes.com/2025/07/28/us/politics/screwworm-beef-prices.html
 
