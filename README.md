@@ -1,3 +1,10 @@
+**Submit a question for Stewart Mandel's College Football Mailbag**\
+`<p>It&#8217;s been an eventful week for college sports, from presidential orders to media days to Deion Sanders&#8217; news.</p>
+<p>Also, training camps open Friday.</p>
+<p>Leave your questions here. Please include your city.</p>
+`\
+https://nytimes.com/athletic/6520593/2025/07/28/submit-a-question-for-stewart-mandels-college-football-mailbag-308/
+
 **Brother of Oasis Frontmen Is Charged With Rape in Britain**\
 `Paul Gallagher, the older brother of Liam and Noel Gallagher, was also accused of making death threats, the authorities said.`\
 https://nytimes.com/2025/07/28/world/europe/paul-gallagher-oasis-rape-charge.html
@@ -33,8 +40,4 @@ https://nytimes.com/athletic/6520476/2025/07/28/nfl-training-camp-cam-ward-titan
 **Guardians' Emmanuel Clase placed on leave amid sports betting investigation**\
 `MLB announced that the reliever will be on leave through August 31. `\
 https://nytimes.com/athletic/6520488/2025/07/28/emmanuel-clase-cleveland-guardians-leave-betting/
-
-**In Break With Israel, Trump Says Children in Gaza ‘Look Very Hungry’**\
-`During talks in Scotland with Prime Minister Keir Starmer of Britain, President Trump disagreed with Israel’s claim that there is no starvation in Gaza.`\
-https://nytimes.com/video/us/politics/100000010309256/trump-starmer-gaza-russia.html
 
