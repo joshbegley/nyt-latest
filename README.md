@@ -22,6 +22,10 @@ https://nytimes.com/2025/07/28/us/politics/trump-starvation-gaza-america-first.h
 `The sailboat was struck near Hibiscus Island in Biscayne Bay, the authorities said.`\
 https://nytimes.com/2025/07/28/us/sailboat-sinks-biscayne-bay-miami-rescue.html
 
+**Have Allen, Jackson bested Mahomes as top NFL QB? Here's the new Madden 99 club**\
+`One distinction for this year’s initial class is that there is no carryover from the previous year's initial class.`\
+https://nytimes.com/athletic/6520550/2025/07/28/madden-26-ratings-josh-allen-saquon-barkley-99-club/
+
 **A Healthy Lifestyle Can Help Your Brain, Large Study Finds**\
 `The study found that a combination of exercise, healthy diet and other behaviors led to cognitive benefits. How much intense guidance is required was unclear, experts said.`\
 https://nytimes.com/2025/07/28/health/alzheimers-dementia-healthy-lifestyle.html
@@ -36,8 +40,4 @@ https://nytimes.com/athletic/6520593/2025/07/28/submit-a-question-for-stewart-ma
 **Brother of Oasis Frontmen Is Charged With Rape in Britain**\
 `Paul Gallagher, the older brother of Liam and Noel Gallagher, was also accused of making death threats, the authorities said.`\
 https://nytimes.com/2025/07/28/world/europe/paul-gallagher-oasis-rape-charge.html
-
-**Trump Says Rupert Murdoch Should Be Deposed Within 15 Days in Suit Over Epstein Article**\
-`The president’s legal team argued in a legal filing that discovery process for the media mogul should be expedited because of his age and health.`\
-https://nytimes.com/2025/07/28/business/media/trump-rupert-murdoch-libel-epstein.html
 
