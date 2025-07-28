@@ -1,3 +1,7 @@
+**For Trump, Mass Starvation in Gaza Tests His Foreign Policy Approach**\
+`President Trump will have to decide whether America intends to take a leading role in confronting one of the biggest humanitarian catastrophes of the 21st century.`\
+https://nytimes.com/2025/07/28/us/politics/trump-starvation-gaza-america-first.html
+
 **4 Children Injured After Barge Strikes Sailboat off Miami Beach**\
 `Three of the children were in critical condition. The sailboat was struck near Hibiscus Island in Biscayne Bay, the authorities said.`\
 https://nytimes.com/2025/07/28/us/sailboat-sinks-biscayne-bay-miami-rescue.html
@@ -17,7 +21,7 @@ https://nytimes.com/athletic/6520593/2025/07/28/submit-a-question-for-stewart-ma
 `Paul Gallagher, the older brother of Liam and Noel Gallagher, was also accused of making death threats, the authorities said.`\
 https://nytimes.com/2025/07/28/world/europe/paul-gallagher-oasis-rape-charge.html
 
-**Trump Says Rupert Murdoch Should be Deposed Within 15 Days in Suit Over Epstein Article**\
+**Trump Says Rupert Murdoch Should Be Deposed Within 15 Days in Suit Over Epstein Article**\
 `The president’s legal team argued in a legal filing that discovery process for the media mogul should be expedited because of his age and health.`\
 https://nytimes.com/2025/07/28/business/media/trump-rupert-murdoch-libel-epstein.html
 
@@ -36,8 +40,4 @@ https://nytimes.com/2025/07/28/us/wallis-annenberg-dead.html
 **Judge Indefinitely Blocks Withholding of Medicaid Funds to Planned Parenthood**\
 `A federal judge in Boston ruled that a provision in President Trump’s policy bill targeting the organization most likely amounted to retaliation.`\
 https://nytimes.com/2025/07/28/us/politics/planned-parenthood-medicaid-trump.html
-
-**Several People Injured in Shooting at Reno Casino Resort**\
-`The police said that the gunman was in custody after the attack at the Grand Sierra Resort and Casino.`\
-https://nytimes.com/2025/07/28/us/reno-shooting-casino.html
 
