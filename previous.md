@@ -1,3 +1,7 @@
+**Making Sense of the E.U. Trade Deal**\
+`Questions, critiques and discrepancies are hanging over the framework agreement, but investors seem to view it as a win all the same.`\
+https://nytimes.com/2025/07/28/business/dealbook/trump-eu-trade-deal.html
+
 **In a First, Leading Israeli Rights Groups Accuse Israel of Gaza Genocide**\
 `Israel says it is fighting against Hamas, not Palestinians as a group. But two of Israel’s best-known rights groups — long critical of Israeli policy — now say they disagree.`\
 https://nytimes.com/2025/07/28/world/middleeast/israel-genocide-gaza-rights-groups.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6498164/2025/07/28/granit-xhaka-sunderland-transfer
 **Gretchen Walsh gives illness-slowed Americans their first gold at swimming worlds**\
 `On Day 2 of the world championships, Walsh delivered the first U.S. gold, while Canadian star Summer McIntosh will go for her second.`\
 https://nytimes.com/athletic/6519391/2025/07/28/gretchen-walsh-summer-mcintosh-swimming-world-championships-butterfly-im/
-
-**Viktor Gyokeres to Arsenal: Everything you need to know - TLDR**\
-`Arsenal have finally signed the No 9 they have been after - here, we break down the deal`\
-https://nytimes.com/athletic/6478302/2025/07/28/viktor-gyokeres-arsenal-transfer-analysis/
 

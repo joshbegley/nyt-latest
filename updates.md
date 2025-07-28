@@ -1,3 +1,7 @@
+**Making Sense of the E.U. Trade Deal**\
+`Questions, critiques and discrepancies are hanging over the framework agreement, but investors seem to view it as a win all the same.`\
+https://nytimes.com/2025/07/28/business/dealbook/trump-eu-trade-deal.html
+
 **In a First, Leading Israeli Rights Groups Accuse Israel of Gaza Genocide**\
 `Israel says it is fighting against Hamas, not Palestinians as a group. But two of Israel’s best-known rights groups — long critical of Israeli policy — now say they disagree.`\
 https://nytimes.com/2025/07/28/world/middleeast/israel-genocide-gaza-rights-groups.html
