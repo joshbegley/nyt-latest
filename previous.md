@@ -1,4 +1,12 @@
-**Sources: Thomas Muller, Vancouver Whitecaps in talks over summer signing**\
+**Tigers to acquire Chris Paddack from Twins: Sources**\
+`Paddack has been fully healthy after suffering elbow inflammation in 2024. He is one of several Twins expected to be moved this week.`\
+https://nytimes.com/athletic/6520597/2025/07/28/chris-paddack-tigers-twins-trade-analysis/
+
+**Raiders training camp: Competition ramps up as Dont’e Thornton continues to impress**\
+`The Raiders put on pads for the first time Monday, and what resulted was the most intense and competitive session of the summer.`\
+https://nytimes.com/athletic/6520662/2025/07/28/raiders-training-camp-pads-donte-thornton/
+
+**Sources: Thomas Müller, Vancouver Whitecaps in talks over summer signing**\
 `The German great teased that he was headed "across the pond" from Europe, and Canada appears to be his next destination`\
 https://nytimes.com/athletic/6520006/2025/07/28/thomas-muller-vancouver-whitecaps-signing-fc-cincinnati-mls-bayern-munich/
 
@@ -29,12 +37,4 @@ https://nytimes.com/2025/07/28/style/trisha-paytas-aquaman-baby-names.html
 **After Brickyard 400 win, Bubba Wallace wants to know: What will they say now?**\
 `Bubba Wallace scores a win to throw back at the critics, Ty Gibbs wins an underwhelming $1 million and more from Indianapolis.`\
 https://nytimes.com/athletic/6519838/2025/07/28/bubba-wallace-brickyard-400-win-23xi/
-
-**Broncos extend Courtland Sutton in 4-year, $92 million deal: Sources**\
-`Sutton is coming off arguably the best season of his career.`\
-https://nytimes.com/athletic/6520724/2025/07/28/broncos-extend-cortland-sutton/
-
-**Bears camp observations: Caleb Williams under center, Jaquan Brisker's enhanced role**\
-`The pads came on for the first time this summer as the Bears continued to get Williams experience from under center.`\
-https://nytimes.com/athletic/6520624/2025/07/28/bears-camp-observations-caleb-williams-jaquan-brisker/
 

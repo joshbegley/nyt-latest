@@ -1,3 +1,15 @@
+**Tigers to acquire Chris Paddack from Twins: Sources**\
+`Paddack has been fully healthy after suffering elbow inflammation in 2024. He is one of several Twins expected to be moved this week.`\
+https://nytimes.com/athletic/6520597/2025/07/28/chris-paddack-tigers-twins-trade-analysis/
+
+**Raiders training camp: Competition ramps up as Dont’e Thornton continues to impress**\
+`The Raiders put on pads for the first time Monday, and what resulted was the most intense and competitive session of the summer.`\
+https://nytimes.com/athletic/6520662/2025/07/28/raiders-training-camp-pads-donte-thornton/
+
+**Sources: Thomas Müller, Vancouver Whitecaps in talks over summer signing**\
+`The German great teased that he was headed "across the pond" from Europe, and Canada appears to be his next destination`\
+https://nytimes.com/athletic/6520006/2025/07/28/thomas-muller-vancouver-whitecaps-signing-fc-cincinnati-mls-bayern-munich/
+
 **Sources: Thomas Muller, Vancouver Whitecaps in talks over summer signing**\
 `The German great teased that he was headed "across the pond" from Europe, and Canada appears to be his next destination`\
 https://nytimes.com/athletic/6520006/2025/07/28/thomas-muller-vancouver-whitecaps-signing-fc-cincinnati-mls-bayern-munich/
