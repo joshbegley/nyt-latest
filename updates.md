@@ -1,3 +1,7 @@
+**Nottingham Forest eyeing double swoop for wingers Traore and Ndoye**\
+`Nuno Espirito Santo is aiming to bolster his wide options this summer as Forest prepare for a return to Europe.`\
+https://nytimes.com/athletic/6506073/2025/07/28/nottingham-forest-transfers-dan-ndoye-adama-traore/
+
 **Tracking Tropical Storm Iona**\
 `See the likely path and wind arrival times for Iona`\
 https://nytimes.com/interactive/2025/07/28/weather/iona-storm-tracker.html

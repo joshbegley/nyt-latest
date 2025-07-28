@@ -1,3 +1,7 @@
+**Nottingham Forest eyeing double swoop for wingers Traore and Ndoye**\
+`Nuno Espirito Santo is aiming to bolster his wide options this summer as Forest prepare for a return to Europe.`\
+https://nytimes.com/athletic/6506073/2025/07/28/nottingham-forest-transfers-dan-ndoye-adama-traore/
+
 **Tracking Tropical Storm Iona**\
 `See the likely path and wind arrival times for Iona`\
 https://nytimes.com/interactive/2025/07/28/weather/iona-storm-tracker.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/28/world/middleeast/israel-genocide-gaza-rights-grou
 **Despite Bombing, Some Remain at Thailand-Cambodia Border**\
 `Hundreds of thousands of civilians have fled the Thailand-Cambodia border area where violence has erupted. However, a few have chosen to not evacuate.`\
 https://nytimes.com/video/world/asia/100000010308433/thailand-cambodia-border-civilians.html
-
-**Meet Hato, the Ajax teenager on cusp of Chelsea move: 'I want to achieve big things'**\
-`Jorrel Hato might be young, but the Dutch centre-back is used to taking responsibility in Amsterdam, as The Athletic found out last year`\
-https://nytimes.com/athletic/6519740/2025/07/28/jorrel-hato-chelsea-transfer-interview/
 
