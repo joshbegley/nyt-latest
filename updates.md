@@ -1,3 +1,11 @@
+**Where Is the Economy Going? A ‘Monster Week’ of News Could Help Decide.**\
+`This week will bring a flood of economic data, as well as major policy decisions on trade and interest rates.`\
+https://nytimes.com/2025/07/28/business/where-is-the-economy-going-a-monster-week-of-news-could-help-decide.html
+
+**Lowetide: Projecting Oilers’ opening-night defence pairings, goalies for 2025-26**\
+`Entering the period leading up to training camp, Edmonton's defensive pairings and goaltending depth charts appear more settled.`\
+https://nytimes.com/athletic/6518350/2025/07/28/edmonton-oilers-defence-goalies-2025-26/
+
 **gws-tiny-house-championship-skillsusa-teamworks**\
 `(No description)`\
 https://nytimes.com/newsgraphics/card-story/tiny-house-championship-skillsusa-teamworks

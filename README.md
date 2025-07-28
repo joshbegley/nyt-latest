@@ -1,3 +1,7 @@
+**What I'm hearing about Mario Lemieux's Penguins ownership comeback attempt**\
+`Lemieux's interest in buying the Penguins again is very real. Plus: the latest on Bryan Rust and Rickard Rakell and more.`\
+https://nytimes.com/athletic/6516119/2025/07/28/penguins-mario-lemieux-ownership-nhl/
+
 **Where Is the Economy Going? A ‘Monster Week’ of News Could Help Decide.**\
 `This week will bring a flood of economic data, as well as major policy decisions on trade and interest rates.`\
 https://nytimes.com/2025/07/28/business/where-is-the-economy-going-a-monster-week-of-news-could-help-decide.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6519274/2025/07/28/live-qa-blue-jays-trade-deadline
 **Churlish England proved there is no such thing as the 'Spirit of Cricket'**\
 `The spikiness at the end of the fourth Test with India showed why cricket is no more morally pure than any other sport`\
 https://nytimes.com/athletic/6519978/2025/07/28/england-india-row-spirit-cricket/
-
-**The Windup: Deadline week already moving**\
-`The Windup is The Athletic's baseball newsletter.`\
-https://nytimes.com/athletic/6520035/2025/07/28/mlb-trade-deadline-week-the-windup/
 
