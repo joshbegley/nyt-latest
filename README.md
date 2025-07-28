@@ -1,3 +1,7 @@
+**Over 16 million watched England win Euros final, BBC and ITV figures say**\
+`England beat Spain on penalties in the final on Sunday to win the tournament for the second time in a row. `\
+https://nytimes.com/athletic/6519812/2025/07/28/2025-euros-viewing-figures-bbc-itv/
+
 **What I'm hearing about Mario Lemieux's Penguins ownership comeback attempt**\
 `Lemieux's interest in buying the Penguins again is very real. Plus: the latest on Bryan Rust and Rickard Rakell and more.`\
 https://nytimes.com/athletic/6516119/2025/07/28/penguins-mario-lemieux-ownership-nhl/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/28/realestate/sesame-street-design-over-the-years.ht
 **Live Q&A: Blue Jays trade deadline talk with Mitch Bannon at 11:30 a.m. ET Tuesday**\
 `The Blue Jays are surging. How will they improve by the trade deadline?`\
 https://nytimes.com/athletic/6519274/2025/07/28/live-qa-blue-jays-trade-deadline/
-
-**Churlish England proved there is no such thing as the 'Spirit of Cricket'**\
-`The spikiness at the end of the fourth Test with India showed why cricket is no more morally pure than any other sport`\
-https://nytimes.com/athletic/6519978/2025/07/28/england-india-row-spirit-cricket/
 
