@@ -1,3 +1,11 @@
+**How do Manchester United's summer signings so far change Amorim's tactics?**\
+`Cunha and Mbeumo have been signed, sealed and delivered to Ruben Amorim. Now begins a head-scratching tactical conundrum...`\
+https://nytimes.com/athletic/6510886/2025/07/28/how-do-manchester-uniteds-summer-signings-change-ruben-amorims-tactics/
+
+**Why are Aston Villa making so many €5m to €9m signings?**\
+`The club's recruitment in the past 18 months can be put in two clear categories - 'potential players' are important to their business model`\
+https://nytimes.com/athletic/6501861/2025/07/28/aston-villa-transfers-signings-psr/
+
 **Would Sesko be a suitable replacement for Isak for Newcastle?**\
 `Alexander Isak wants to leave Newcastle. They would go all-in on Benjamin Sesko to replace him. Would it work?`\
 https://nytimes.com/athletic/6516756/2025/07/28/benjamin-sesko-newcastle-alexander-isak-analysis/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6518337/2025/07/28/spain-euro-2025-how-things-have-
 **What could Palace argue at CAS as they try to win back Europa League spot?**\
 `Analysing the points last season's FA Cup winners might put forward in seeking to salvage the place since stripped from them by UEFA`\
 https://nytimes.com/athletic/6506470/2025/07/28/crystal-palace-at-cas-what-could-club-argue-as-they-try-to-win-back-europa-league-spot/
-
-**Quote of the Day: One Man’s Reading List of 3,599 Books Can Now Be Seen by All**\
-`Quote of the Day for Monday, July 28, 2025`\
-https://nytimes.com/2025/07/28/pageoneplus/quote-of-the-day-one-mans-reading-list-of-3599-books-can-now-be-seen-by-all.html
-
-**Corrections: July 28, 2025**\
-`No corrections appeared in print on Monday, July 28, 2025.`\
-https://nytimes.com/2025/07/28/pageoneplus/corrections-july-28-2025.html
 

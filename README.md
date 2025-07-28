@@ -1,3 +1,7 @@
+**Monday Briefing: Ukraine’s Other War**\
+`Plus, a U.S.-E.U. trade deal.`\
+https://nytimes.com/2025/07/28/briefing/ukraine-protests-europe-us-trade-deal.html
+
 **How do Manchester United's summer signings so far change Amorim's tactics?**\
 `Cunha and Mbeumo have been signed, sealed and delivered to Ruben Amorim. Now begins a head-scratching tactical conundrum...`\
 https://nytimes.com/athletic/6510886/2025/07/28/how-do-manchester-uniteds-summer-signings-change-ruben-amorims-tactics/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6518167/2025/07/28/david-moyes-interview-everton-tr
 **Spain may not have won - but at least this tournament shows how much has changed**\
 `For years, Spain's players were hampered by a lack of off-field support. But Euro 2025 showed their fight for elite conditions has paid off`\
 https://nytimes.com/athletic/6518337/2025/07/28/spain-euro-2025-how-things-have-changed/
-
-**What could Palace argue at CAS as they try to win back Europa League spot?**\
-`Analysing the points last season's FA Cup winners might put forward in seeking to salvage the place since stripped from them by UEFA`\
-https://nytimes.com/athletic/6506470/2025/07/28/crystal-palace-at-cas-what-could-club-argue-as-they-try-to-win-back-europa-league-spot/
 

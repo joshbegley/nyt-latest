@@ -1,3 +1,11 @@
+**How do Manchester United's summer signings so far change Amorim's tactics?**\
+`Cunha and Mbeumo have been signed, sealed and delivered to Ruben Amorim. Now begins a head-scratching tactical conundrum...`\
+https://nytimes.com/athletic/6510886/2025/07/28/how-do-manchester-uniteds-summer-signings-change-ruben-amorims-tactics/
+
+**Why are Aston Villa making so many €5m to €9m signings?**\
+`The club's recruitment in the past 18 months can be put in two clear categories - 'potential players' are important to their business model`\
+https://nytimes.com/athletic/6501861/2025/07/28/aston-villa-transfers-signings-psr/
+
 **Would Sesko be a suitable replacement for Isak for Newcastle?**\
 `Alexander Isak wants to leave Newcastle. They would go all-in on Benjamin Sesko to replace him. Would it work?`\
 https://nytimes.com/athletic/6516756/2025/07/28/benjamin-sesko-newcastle-alexander-isak-analysis/
