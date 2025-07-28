@@ -1,3 +1,7 @@
+**gws-dolly-parton-musical-nashville**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/dolly-parton-musical-nashville
+
 **The Quintessential Urban Design of Sesame Street**\
 `Over its several decades, the show’s setting has always been both realistic and idealistic. And it has evolved, much like the New York City streets that inspired it.`\
 https://nytimes.com/2025/07/28/realestate/sesame-street-design-over-the-years.html
