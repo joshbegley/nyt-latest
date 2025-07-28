@@ -1,3 +1,11 @@
+**Chelsea closing in on Hato deal**\
+`An agreement between the clubs has yet to be reached but is nearing, with a compromise expected on a price worth more than €40million.`\
+https://nytimes.com/athletic/6512846/2025/07/28/jorrel-hato-chelsea-transfer/
+
+**Reinier to train with Madrid's reserve team amidst uncertainty over future**\
+`Reinier joined Madrid in 2020 for €30million but has never made an appearance for the first team and has had four separate loan spells.`\
+https://nytimes.com/athletic/6519652/2025/07/28/reinier-jesus-real-madrid-future/
+
 **Trump and Starmer to Meet in Scotland to Discuss Trade and Gaza**\
 `President Trump and Prime Minister Keir Starmer of Britain were set to visit two Trump golf courses, the day after a U.S.-E.U. trade deal.`\
 https://nytimes.com/2025/07/28/us/politics/trump-starmer-uk-scotland.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/07/28/world/asia/bangkok-shooting-market.html
 **What’s Going On With Trump’s Tariffs?**\
 `The president is set to raise taxes on imports arriving from many countries, including Canada and Mexico. That’s on top of the tariffs that the White House has already announced on specific products, including foreign cars.`\
 https://nytimes.com/interactive/2025/07/28/business/economy/trump-tariff-tracker.html
-
-**Lucy Bronze, the Euro 2025 winner who played with a leg fracture: “Was it worth it? Absolutely!”**\
-`'Tough' by name, tough by nature - England defender Bronze put in a superhuman effort as England were crowned European champions again`\
-https://nytimes.com/athletic/6519486/2025/07/28/lucy-bronze-fractured-leg-euro-2025/
-
-**​North Korea Rejects New South Korean Leader’s Peace Overtures**\
-`In its first comment on President Lee Jae Myung of South Korea, North Korea dismissed a call for dialogue, dampening hopes of a new chapter in relations.`\
-https://nytimes.com/2025/07/28/world/asia/north-korea-rejects-peace-gestures.html
 
