@@ -1,3 +1,7 @@
+**Gunfire Breaks Out at Investment Bank Headquarters on Park Avenue**\
+`At least one person was shot, and the building that houses the investment company Blackstone was in lockdown in Manhattan.`\
+https://nytimes.com/2025/07/28/nyregion/gunfire-park-avenue-building-nyc.html
+
 **N.J. Criminal Cases Screech to a Halt as Habba’s Authority Is Challenged**\
 `Federal court hearings, grand jury proceedings and plea deals were abruptly canceled in New Jersey over questions about whether Alina Habba, the acting U.S. attorney, was legally appointed.`\
 https://nytimes.com/2025/07/28/nyregion/alina-habba-new-jersey-us-attorney-battle.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6521281/2025/07/28/danny-jansen-brewers-rays-trade/
 **Vance Embraces Role of Loyal Trump Warrior, Shifting Away From Past Stances**\
 `The vice president has defended the administration’s handling of U.S. military engagement abroad and the Epstein files, even when those positions put him at odds with the right wing.`\
 https://nytimes.com/2025/07/28/us/politics/vance-trump-ukraine-epstein.html
-
-**Nationals top pitching prospect Travis Sykora to have Tommy John surgery**\
-`Sykora was the No. 51 prospect in baseball and a third-round pick in 2023. "He'd gotten off to a tremendous start."`\
-https://nytimes.com/athletic/6521269/2025/07/28/washington-nationals-travis-sykora-tommy-john/
 
