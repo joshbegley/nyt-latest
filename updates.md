@@ -1,3 +1,15 @@
+**Giro winner Longo Borghini drops out of Tour de France Femmes after stomach infection**\
+`The 33-year-old is the second GC competitor to drop out of the 2025 Tour de France Femmes with stomach issues after Marlen Reusser. `\
+https://nytimes.com/athletic/6519705/2025/07/28/tour-de-france-femmes-elisa-longo-borghini-abandons/
+
+**Chelsea's Penders joins Strasbourg on loan**\
+`Defender Mamadou Sarr is also set to join Strasbourg on loan from Chelsea.`\
+https://nytimes.com/athletic/6508994/2025/07/28/mike-penders-strasbourg-chelsea/
+
+**MLB trade deadline primer: Everything you need to know heading into Thursday**\
+`If last year is anything to judge by, Wednesday and Thursday are going to be chaotic, so buckle up. `\
+https://nytimes.com/athletic/6518988/2025/07/28/mlb-2025-trade-deadline-primer/
+
 **Eric Allen's late-career run with Raiders cemented Hall of Fame credentials**\
 `The former Eagles, Saints and Raiders defensive back will be enshrined Aug. 2 in Canton with Jared Allen, Antonio Gates and Sterling Sharpe.`\
 https://nytimes.com/athletic/6507139/2025/07/28/eric-allen-pro-football-hall-of-fame-raiders-eagles-saints/
