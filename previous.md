@@ -1,4 +1,16 @@
-**Cardinals pitching prospect Tekoah Roby undergoes Tommy John, will likely miss 2026 season**\
+**Review: At 93, John Williams Unveils His First Piano Concerto**\
+`Williams is best known for his grandly symphonic, Oscar-winning film scores. But his latest concert work is quieter, and more haunting.`\
+https://nytimes.com/2025/07/28/arts/music/john-williams-piano-concerto-tanglewood-review.html
+
+**Durbin Demands Tapes of Ghislaine Maxwell Interviews**\
+`The top Democrat on the Senate Judiciary Committee also pressed the Justice Department for a promise that Ms. Maxwell will not be pardoned for her cooperation in matters related to the Jeffrey Epstein files.`\
+https://nytimes.com/2025/07/28/us/politics/ghislaine-maxwell-epstein-interview-durbin.html
+
+**Tottenham's Moore closing in on Rangers loan**\
+`The 17-year-old signed his first pro terms at Tottenham last summer, with that deal running until 2027.`\
+https://nytimes.com/athletic/6515695/2025/07/28/mikey-moore-rangers-tottenham/
+
+**Cardinals prospect Tekoah Roby undergoes Tommy John surgery, will likely miss 2026 season**\
 `Losing Roby is another significant blow for an organization already lacking viable rotation options.`\
 https://nytimes.com/athletic/6520112/2025/07/28/cardinals-tekoah-roby-tommy-john-prospect/
 
@@ -25,16 +37,4 @@ https://nytimes.com/2025/07/28/dining/melissa-clark-skillet-meatballs-with-peach
 **Do You Know These Books That Predicted Current Technology?**\
 `Try this short quiz to test your knowledge of once-futuristic literary creations have become everyday reality now in 2025.`\
 https://nytimes.com/interactive/2025/07/28/books/review/visionary-tech-books.html
-
-**Trump Gives Russia Less Than Two Weeks to End Its War in Ukraine**\
-`President Trump said he had decided to shorten a 50-day deadline he had given Russia to end the conflict or face punishing new sanctions.`\
-https://nytimes.com/2025/07/28/us/politics/trump-ukraine-russia-deadline-sanctions.html
-
-**Euro 2025 final peaked at more than 16 million viewers in UK**\
-`England beat Spain on penalties in the final on Sunday to win the tournament for the second time in a row. `\
-https://nytimes.com/athletic/6519812/2025/07/28/2025-euros-viewing-figures-bbc-itv/
-
-**What I'm hearing about Mario Lemieux's Penguins ownership comeback attempt**\
-`Lemieux's interest in buying the Penguins again is very real. Plus: the latest on Bryan Rust and Rickard Rakell and more.`\
-https://nytimes.com/athletic/6516119/2025/07/28/penguins-mario-lemieux-ownership-nhl/
 

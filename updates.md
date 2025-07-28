@@ -1,3 +1,19 @@
+**Review: At 93, John Williams Unveils His First Piano Concerto**\
+`Williams is best known for his grandly symphonic, Oscar-winning film scores. But his latest concert work is quieter, and more haunting.`\
+https://nytimes.com/2025/07/28/arts/music/john-williams-piano-concerto-tanglewood-review.html
+
+**Durbin Demands Tapes of Ghislaine Maxwell Interviews**\
+`The top Democrat on the Senate Judiciary Committee also pressed the Justice Department for a promise that Ms. Maxwell will not be pardoned for her cooperation in matters related to the Jeffrey Epstein files.`\
+https://nytimes.com/2025/07/28/us/politics/ghislaine-maxwell-epstein-interview-durbin.html
+
+**Tottenham's Moore closing in on Rangers loan**\
+`The 17-year-old signed his first pro terms at Tottenham last summer, with that deal running until 2027.`\
+https://nytimes.com/athletic/6515695/2025/07/28/mikey-moore-rangers-tottenham/
+
+**Cardinals prospect Tekoah Roby undergoes Tommy John surgery, will likely miss 2026 season**\
+`Losing Roby is another significant blow for an organization already lacking viable rotation options.`\
+https://nytimes.com/athletic/6520112/2025/07/28/cardinals-tekoah-roby-tommy-john-prospect/
+
 **Cardinals pitching prospect Tekoah Roby undergoes Tommy John, will likely miss 2026 season**\
 `Losing Roby is another significant blow for an organization already lacking viable rotation options.`\
 https://nytimes.com/athletic/6520112/2025/07/28/cardinals-tekoah-roby-tommy-john-prospect/
