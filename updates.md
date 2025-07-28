@@ -1,3 +1,11 @@
+**Phillies takeaways: Zack Wheeler's off day, Otto Kemp powers up, trade deadline nears**\
+`Plus more on J.T. Realmuto's sensational jump-tag and what's setting up to be a tight divisional race against the Mets. `\
+https://nytimes.com/athletic/6519089/2025/07/27/phillies-zack-wheeler-otto-kemp-yankees/
+
+**Yankees trade deadline: Rockies' Jake Bird on radar as relief search continues**\
+`Sunday's win over the Phillies showed how the Yankees' bullpen should work, but is that just wishful thinking?`\
+https://nytimes.com/athletic/6519208/2025/07/27/yankees-trade-deadline-relief-rockies-jake-bird/
+
 **Adrian Morejon's long-awaited ascension has come just in time for Padres**\
 `"Watching him now get to this point in his career, the guy that we knew we had signed years ago, is very gratifying," Ruben Niebla said.`\
 https://nytimes.com/athletic/6514460/2025/07/27/adrian-morejon-ascension-padres/

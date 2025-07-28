@@ -1,3 +1,11 @@
+**Phillies takeaways: Zack Wheeler's off day, Otto Kemp powers up, trade deadline nears**\
+`Plus more on J.T. Realmuto's sensational jump-tag and what's setting up to be a tight divisional race against the Mets. `\
+https://nytimes.com/athletic/6519089/2025/07/27/phillies-zack-wheeler-otto-kemp-yankees/
+
+**Yankees trade deadline: Rockies' Jake Bird on radar as relief search continues**\
+`Sunday's win over the Phillies showed how the Yankees' bullpen should work, but is that just wishful thinking?`\
+https://nytimes.com/athletic/6519208/2025/07/27/yankees-trade-deadline-relief-rockies-jake-bird/
+
 **Adrian Morejon's long-awaited ascension has come just in time for Padres**\
 `"Watching him now get to this point in his career, the guy that we knew we had signed years ago, is very gratifying," Ruben Niebla said.`\
 https://nytimes.com/athletic/6514460/2025/07/27/adrian-morejon-ascension-padres/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6518997/2025/07/27/cc-sabathia-hall-of-fame-yankees
 **Dustin May's uneven season continues in key start ahead of trade deadline**\
 `May had a lead when the fifth inning began and a chance to rewrite the story of his season. Instead, it was more of the same.`\
 https://nytimes.com/athletic/6519019/2025/07/27/dustin-may-dodgers-trade-deadline/
-
-**What I'm hearing on MLB trade deadline: Astros have shown interest in Eugenio Suárez**\
-`A Twins utilityman might make more sense than Arizona's third baseman, plus notes on other deadline options and Cam Smith's recent slide.`\
-https://nytimes.com/athletic/6519081/2025/07/27/astros-mlb-trade-deadline-eugenio-suarez-willi-castro/
-
-**Matt Shaw's recent surge won't end the Cubs' pursuit of Eugenio Suárez at the trade deadline**\
-`Since the All-Star break, Shaw has hit four of his six home runs while posting a .444 batting average.`\
-https://nytimes.com/athletic/6519056/2025/07/27/chicago-cubs-eugenio-suarez-trade-deadline-pursuit/
 
