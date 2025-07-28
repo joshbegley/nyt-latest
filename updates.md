@@ -1,3 +1,7 @@
+**Royals, Seth Lugo finalize multiyear extension, taking trade deadline target off board: Source**\
+`The 35-year-old finished second in AL Cy Young Award voting in 2024 after starting a league-leading 33 games. `\
+https://nytimes.com/athletic/6519358/2025/07/27/royals-seth-lugo-extension/
+
 **Kepner: In the vintage village of Cooperstown, it's still how you play the game that counts**\
 `The Baseball Hall of Fame's idealized vision was on full display as the institution welcomed its five newest members on Sunday. `\
 https://nytimes.com/athletic/6519286/2025/07/27/baseball-hall-of-fame-ichiro-sandberg-wagner-sabathia-parker-allen/
