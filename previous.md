@@ -1,3 +1,19 @@
+**How Parenting Changed After Etan Patz**\
+`Did the shocking disappearance of a 6-year-old in 1979 forever alter how Americans raised children? Or were there other reasons for parents to be anxious?`\
+https://nytimes.com/2025/07/28/nyregion/parenting-etan-patz.html
+
+**U.S. Opens Antitrust Investigation Into NewYork-Presbyterian**\
+`The Justice Department scrutiny of one of New York’s leading health systems could lead to more spirited competition among hospitals — and slow rising prices.`\
+https://nytimes.com/2025/07/28/nyregion/doj-ny-presbyterian-heatlh.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/07/28/crosswords/spelling-bee-forum.html
+
+**Shooting at Bangkok Market Leaves 3 Dead, News Outlets Report**\
+`The shooting occurred at Or Tor Kor market, which is popular with tourists, several Thai news outlets reported.`\
+https://nytimes.com/2025/07/28/world/asia/bangkok-shooting-market.html
+
 **What’s Going On With Trump’s Tariffs?**\
 `The president is set to raise taxes on imports arriving from many countries, including Canada and Mexico. That’s on top of the tariffs that the White House has already announced on specific products, including foreign cars.`\
 https://nytimes.com/interactive/2025/07/28/business/economy/trump-tariff-tracker.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6519367/2025/07/28/luis-diaz-liverpool-bayern-trans
 **Giants to promote pitching prospect Carson Whisenhunt for debut Monday vs. Pirates**\
 `"With what's gone on here … there's a need for it," Bob Melvin said. "It'll be exciting to see him pitch."`\
 https://nytimes.com/athletic/6519526/2025/07/28/giants-to-promote-carson-whisenhunt/
-
-**What We Talk About When We Talk About the Right of Return**\
-`My Palestinian mother-in-law has been displaced since 1948`\
-https://nytimes.com/2025/07/28/opinion/palestinians-right-of-return.html
-
-**The New York Times in Print for Monday, July 28, 2025**\
-``\
-https://nytimes.com/issue/todayspaper/2025/07/28/todays-new-york-times
-
-**U.S. Diplomats Will Join Thailand-Cambodia Cease-Fire Talks, Rubio Says**\
-`Negotiations to end the border conflict, which has killed dozens of people since it began last week, are scheduled for Monday in Malaysia’s capital.`\
-https://nytimes.com/2025/07/28/world/asia/thailand-cambodia-ceasefire-talks.html
-
-**Monday Briefing: Ukraine’s Other War**\
-`Plus, a U.S.-E.U. trade deal.`\
-https://nytimes.com/2025/07/28/briefing/ukraine-protests-europe-us-trade-deal.html
 

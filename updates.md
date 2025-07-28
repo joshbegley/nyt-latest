@@ -1,3 +1,19 @@
+**How Parenting Changed After Etan Patz**\
+`Did the shocking disappearance of a 6-year-old in 1979 forever alter how Americans raised children? Or were there other reasons for parents to be anxious?`\
+https://nytimes.com/2025/07/28/nyregion/parenting-etan-patz.html
+
+**U.S. Opens Antitrust Investigation Into NewYork-Presbyterian**\
+`The Justice Department scrutiny of one of New York’s leading health systems could lead to more spirited competition among hospitals — and slow rising prices.`\
+https://nytimes.com/2025/07/28/nyregion/doj-ny-presbyterian-heatlh.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/07/28/crosswords/spelling-bee-forum.html
+
+**Shooting at Bangkok Market Leaves 3 Dead, News Outlets Report**\
+`The shooting occurred at Or Tor Kor market, which is popular with tourists, several Thai news outlets reported.`\
+https://nytimes.com/2025/07/28/world/asia/bangkok-shooting-market.html
+
 **What’s Going On With Trump’s Tariffs?**\
 `The president is set to raise taxes on imports arriving from many countries, including Canada and Mexico. That’s on top of the tariffs that the White House has already announced on specific products, including foreign cars.`\
 https://nytimes.com/interactive/2025/07/28/business/economy/trump-tariff-tracker.html
