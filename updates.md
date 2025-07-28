@@ -1,3 +1,19 @@
+**Why Lions OC John Morton spent his summer in the lab: Training camp news and notes**\
+`It looks like the center competition between Tate Ratledge and Graham Glasgow may be winding down.`\
+https://nytimes.com/athletic/6520538/2025/07/28/lions-training-camp-john-morton-graham-glasgow/
+
+**Project 2025 Architect Is Challenging Lindsey Graham for Senate**\
+`Paul Dans will run in the South Carolina primary highlighting the work of Project 2025, a conservative blueprint that President Trump has employed during his second term.`\
+https://nytimes.com/2025/07/28/us/politics/paul-dans-project-2025-lindsey-graham.html
+
+**How Aaron Judge's injury affected AL MVP odds**\
+`The AL MVP odds flipped in Cal Raleigh's favor after Aaron Judge landed on the injured list.`\
+https://nytimes.com/athletic/6520677/2025/07/28/cal-raleigh-al-mvp-favorite-aaron-judge-injury/
+
+**After Bryce Harper-Rob Manfred clubhouse spat, Mark DeRosa warned Phillies of commish's power**\
+`DeRosa insisted he was joking with his comments, but players present didn't take it that way. `\
+https://nytimes.com/athletic/6520855/2025/07/28/bryce-harper-rob-manfred-mark-derosa-mlb-clubhouse-confrontation/
+
 **Mamdani Has Done Something Special. Progressives Need Black Voters to Make It Last.**\
 `The progressive left has often struggled to win over older Black voters. There are ways to fix this.`\
 https://nytimes.com/2025/07/28/opinion/zohran-mamdani-progressives-left-black-voters.html
