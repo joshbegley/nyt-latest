@@ -1,3 +1,7 @@
+**Severe Storms, and a Possible Derecho, Threaten the Northern U.S. Plains**\
+`The most intense storms, with wind gusts potentially exceeding 75 m.p.h., were forecast for central and eastern South Dakota and southwestern Minnesota.`\
+https://nytimes.com/2025/07/28/weather/storms-derecho-winds-tornado-south-dakota-minnesota.html
+
 **Ravens determined to right their wrongs of the past by prioritizing the little things**\
 `OWINGS MILLS, Md.`\
 https://nytimes.com/athletic/6519341/2025/07/28/baltimore-ravens-training-camp-super-bowl/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6519310/2025/07/28/live-qa-red-sox-trade-deadline/
 **Where the 2024 blue-chip quarterback recruits stand**\
 `Year 2 has become a well-established inflection point for most college quarterbacks. That’s when business decisions are made. On both sides.`\
 https://nytimes.com/athletic/6518095/2025/07/28/quarterback-recruiting-2024-sayin-carr-lagway/
-
-**Sovereignty Is Having a Moment**\
-`We explain why leaders are talking so much about independence.`\
-https://nytimes.com/2025/07/28/briefing/sovereignty-is-having-a-moment.html
 
