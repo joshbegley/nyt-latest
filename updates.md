@@ -1,3 +1,15 @@
+**Severe Storms, and a Possible Derecho, Threaten the Northern U.S. Plains**\
+`The most intense storms, with wind gusts potentially exceeding 75 m.p.h., were forecast for central and eastern South Dakota and southwestern Minnesota.`\
+https://nytimes.com/2025/07/28/weather/storms-derecho-winds-tornado-south-dakota-minnesota.html
+
+**Ravens determined to right their wrongs of the past by prioritizing the little things**\
+`OWINGS MILLS, Md.`\
+https://nytimes.com/athletic/6519341/2025/07/28/baltimore-ravens-training-camp-super-bowl/
+
+**The Pulse: Women’s soccer summer returns stateside**\
+`Welcome to The Pulse, The Athletic's daily newsletter.`\
+https://nytimes.com/athletic/6519574/2025/07/28/nwsl-second-half-euros-the-pulse/
+
 **UEFA Women's Euro 2025: Best player, favourite moments, biggest disappointments and more**\
 `Our team of writers reflect on the 2025 UEFA Women's Euros and pick their favourite moments, quotes and lessons learned`\
 https://nytimes.com/athletic/6519181/2025/07/28/uefa-womens-euro-2025-best-player-favourite-moments-biggest-disappointments-and-more/
