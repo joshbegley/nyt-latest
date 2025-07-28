@@ -1,3 +1,15 @@
+**Gwyneth Paltrow Helps Turn Astronomer’s Infamy on Its Head**\
+`The technology company that was at the center of a scandal last week released a tongue-in-cheek response. It landed.`\
+https://nytimes.com/2025/07/28/style/gwyneth-paltrow-astronomer-spokesperson-coldplay-scandal.html
+
+**Five key Astros trade deadline questions: Do they have enough to make a deal?**\
+`How can the Astros maintain their lead in the AL West with injuries mounting, and do the injuries indicate a larger organizational problem?`\
+https://nytimes.com/athletic/6521025/2025/07/28/astros-mlb-trade-deadline-questions-targets/
+
+**John Saladino, ‘Sensualist’ Designer With a Love of Ruins, Dies at 86**\
+`A renowned interior designer, he created instantly recognizable rooms using lush fabrics, oversize antiques and imperfectly plastered walls that convey a sense of age.`\
+https://nytimes.com/2025/07/28/arts/design/john-saladino-dead.html
+
 **Why We Almost Got a MAGA-Branded Instant Pot**\
 `Instant Brands announced a new line of pots emblazoned with the slogan “Make America Great Again.” David Fahrenthold explains what’s behind this decision and explores the link between this brand and others that have created Trump-related products.`\
 https://nytimes.com/video/business/100000010304170/why-we-almost-got-a-maga-branded-instant-pot.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6519531/2025/07/28/sf-giants-buyers-sellers-trade-d
 **Veteran C.I.A. Official to Retire After Losing Out on London Job**\
 `Tom Sylvester had been set to be the agency’s top liaison to Britain, America’s most important intelligence partner and the agency’s most prestigious overseas posting.`\
 https://nytimes.com/2025/07/28/us/politics/cia-official-to-retire-london-job.html
-
-**Eve Jobs’s Wedding in the Cotswolds Is Peak Quiet Luxury**\
-`Eve Jobs, the youngest daughter of Steve Jobs and Laurene Powell Jobs, is rumored to have married in the English countryside, further cementing the Cotswolds as a hot spot for lavish weddings.`\
-https://nytimes.com/2025/07/28/style/eve-jobss-wedding-the-cotswolds.html
-
-**Why Lions OC John Morton spent his summer in the lab: Training camp news and notes**\
-`It looks like the center competition between Tate Ratledge and Graham Glasgow may be winding down.`\
-https://nytimes.com/athletic/6520538/2025/07/28/lions-training-camp-john-morton-graham-glasgow/
-
-**Project 2025 Architect Is Challenging Lindsey Graham for Senate**\
-`Paul Dans will run in the South Carolina primary highlighting the work of Project 2025, a conservative blueprint that President Trump has employed during his second term.`\
-https://nytimes.com/2025/07/28/us/politics/paul-dans-project-2025-lindsey-graham.html
 
