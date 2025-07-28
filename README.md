@@ -1,5 +1,9 @@
-**Broncos defense "can be as good as we want to be," but climb requires patience**\
-`The first week of camp revealed the impact new additions — and the continued development of young talent — could have for Denver's defense`\
+**Citizen Scientists Are Accelerating Ecology Research, Study Suggests**\
+`Thousands of scientific papers have used data collected by users of the platform iNaturalist, according to new research.`\
+https://nytimes.com/2025/07/28/science/citizen-science-ecology-inaturalist.html
+
+**Broncos defense 'can be as good as we want to be,' but climb requires patience**\
+`The first week of camp revealed the impact new additions — and the continued development of young talent — could have for Denver's defense.`\
 https://nytimes.com/athletic/6519751/2025/07/28/denver-broncos-defense-training-camp-dre-greenlaw/
 
 **European Carmakers Welcome, and Worry, About U.S. Tariff Deal**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6518123/2025/07/28/notre-dame-preseason-practice-ke
 **Mavericks depth chart: Can a double-big lineup help Dallas return to the NBA postseason?**\
 `Dallas is counting on its sheer size and potential to be a dominant defensive team. `\
 https://nytimes.com/athletic/6511666/2025/07/28/mavericks-depth-chart-cooper-flagg-anthony-davis/
-
-**4 burning questions for the Wild as the Kaprizov, Rossi contract situations remain unresolved**\
-`What if Kaprizov doesn't want to re-sign? What if he wants $18 million? How does it impact Rossi's situation, and vice versa?`\
-https://nytimes.com/athletic/6515489/2025/07/28/wild-burning-questions-kaprizov-rossi/
 

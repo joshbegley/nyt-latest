@@ -1,3 +1,7 @@
+**Broncos defense "can be as good as we want to be," but climb requires patience**\
+`The first week of camp revealed the impact new additions — and the continued development of young talent — could have for Denver's defense`\
+https://nytimes.com/athletic/6519751/2025/07/28/denver-broncos-defense-training-camp-dre-greenlaw/
+
 **European Carmakers Welcome, and Worry, About U.S. Tariff Deal**\
 `German auto companies embraced greater clarity but warned that even the lower rate of tariffs agreed between Brussels and Washington would still hurt.`\
 https://nytimes.com/2025/07/28/us/politics/tariffs-eu-deal-cars.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6511666/2025/07/28/mavericks-depth-chart-cooper-fla
 **4 burning questions for the Wild as the Kaprizov, Rossi contract situations remain unresolved**\
 `What if Kaprizov doesn't want to re-sign? What if he wants $18 million? How does it impact Rossi's situation, and vice versa?`\
 https://nytimes.com/athletic/6515489/2025/07/28/wild-burning-questions-kaprizov-rossi/
-
-**Evaluating 21 MLB deadline trade proposals from readers: Who says no?**\
-`Our resident general manager, Jim Bowden, evaluated 21 trade scenarios from both sides and answered "Who says no?" Let's make a deal!`\
-https://nytimes.com/athletic/6518481/2025/07/28/mlb-trade-deadline-scenarios-teams-targets/
 
