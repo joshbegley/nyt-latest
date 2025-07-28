@@ -1,3 +1,11 @@
+**Cardinals pitching prospect Tekoah Roby undergoes Tommy John, will likely miss 2026 season**\
+`Losing Roby is another significant blow for an organization already lacking viable rotation options.`\
+https://nytimes.com/athletic/6520112/2025/07/28/cardinals-tekoah-roby-tommy-john-prospect/
+
+**Fantasy baseball cheat sheet: Add Rasmussen, Agustín Ramírez and more THE BAT X insights**\
+`The Athletic and THE BAT X teamed up for a fantasy baseball cheat sheet to help you with daily and weekly fantasy baseball lineups. `\
+https://nytimes.com/athletic/6519927/2025/07/28/fantasy-baseball-the-bat-x-rasmussen-ramirez/
+
 **Scottie Scheffler or the S&P 500: Which has been more profitable over the last 4 years?**\
 `There's a good case to be made that Scheffler himself is the greatest growth stock in sports. Neil Paine digs into the data.`\
 https://nytimes.com/athletic/6518816/2025/07/28/scottie-scheffler-stock-market-profit-comparison-odds/
