@@ -1,40 +1,40 @@
-**Chelsea closing in on Hato deal**\
-`An agreement between the clubs has yet to be reached but is nearing, with a compromise expected on a price worth more than €40million.`\
-https://nytimes.com/athletic/6512846/2025/07/28/jorrel-hato-chelsea-transfer/
+**C.D.C. Ties 85 Cases of THC-Related Symptoms to Wisconsin Restaurant**\
+`The restaurant mistakenly used oil infused with THC, a psychoactive ingredient found in many cannabis products, in food preparation last year, the C.D.C. said.`\
+https://nytimes.com/2025/07/28/well/wisconsin-restaurant-thc-poisoning.html
 
-**Reinier to train with Madrid's reserve team amidst uncertainty over future**\
-`Reinier joined Madrid in 2020 for €30million but has never made an appearance for the first team and has had four separate loan spells.`\
-https://nytimes.com/athletic/6519652/2025/07/28/reinier-jesus-real-madrid-future/
+**Democrats Plan $20 Million Fund to Target Texas Republicans for Redistricting**\
+`At President Trump’s urging, Texas is trying to squeeze up to five Democrats out of office to pad Republicans’ slim majority in the House.`\
+https://nytimes.com/2025/07/28/us/politics/democrats-texas-redistricting.html
 
-**Trump and Starmer to Meet in Scotland to Discuss Trade and Gaza**\
-`President Trump and Prime Minister Keir Starmer of Britain were set to visit two Trump golf courses, the day after a U.S.-E.U. trade deal.`\
-https://nytimes.com/2025/07/28/us/politics/trump-starmer-uk-scotland.html
+**November 2026 Is Everything**\
+`For America to survive Trump, Democrats must prevail in the midterms.`\
+https://nytimes.com/2025/07/28/opinion/november-2026-democrats-midterms.html
 
-**Trump Administration Live Updates: President to Host Starmer at His Golf Courses in Scotland**\
-`The leaders were expected to discuss a dispute over U.S. tariffs on British metals, as well as the crisis in Gaza. President Trump is fresh off a win after reaching a preliminary trade deal with the European Union.`\
-https://nytimes.com/live/2025/07/28/us/trump-news
+**Seattle Couple Adds a Slice of Argentina to Their Backyard**\
+`The homeowners bought adjacent land to build an outdoor dining space detached from their home for hosting barbecues for friends and neighbors`\
+https://nytimes.com/2025/07/28/realestate/quincho-argentina-barbecue-backyard.html
 
-**Europe Cuts a Trade Deal With Trump, Worried About Other Global Issues**\
-`The framework agreement will likely not do much for economic growth on either side. But it avoids new fissures on other foreign policy issues, particularly the war in Ukraine.`\
-https://nytimes.com/2025/07/28/world/europe/europe-trade-deal-trump.html
+**The Economy Still Isn’t What These 11 Latino Trump Voters Had in Mind**\
+`The group discusses the president’s second term so far, focusing on issues such as the economy and immigration.`\
+https://nytimes.com/interactive/2025/07/28/opinion/focus-group-latino-trump-voters.html
 
-**How Parenting Changed After Etan Patz**\
-`Did the shocking disappearance of a 6-year-old in 1979 forever alter how Americans raised children? Or were there other reasons for parents to be anxious?`\
-https://nytimes.com/2025/07/28/nyregion/parenting-etan-patz.html
+**How Can I Be Sure My Clothes Aren’t Made in a Sweatshop?**\
+`As more luxury brands are exposed for manufacturing pipelines involving exploitative labor conditions, our critic offers tips for finding ethically made clothes.`\
+https://nytimes.com/2025/07/28/fashion/sweatshop-ethical-clothes.html
 
-**U.S. Opens Antitrust Investigation Into NewYork-Presbyterian**\
-`The Justice Department scrutiny of one of New York’s leading health systems could lead to more spirited competition among hospitals — and slow rising prices.`\
-https://nytimes.com/2025/07/28/nyregion/doj-ny-presbyterian-heatlh.html
+**‘Chief of War,’ and 7 More Shows to Watch on TV This Week**\
+`This new series starring Jason Momoa comes to Apple TV+ along with several documentary features.`\
+https://nytimes.com/2025/07/28/arts/television/chief-of-war-and-7-more-shows-to-watch-on-tv-this-week.html
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2025/07/28/crosswords/spelling-bee-forum.html
+**$2.6 Million Homes in California**\
+`A midcentury modern in Los Angeles, a house with ocean views in Bolinas and a split-level in Santa Cruz`\
+https://nytimes.com/2025/07/28/realestate/2-6-million-homes-in-california.html
 
-**Shooting at Popular Bangkok Market Leaves Several People Dead**\
-`The assailant killed five people at Or Tor Kor market, which is popular with tourists, before dying by suicide, the authorities said.`\
-https://nytimes.com/2025/07/28/world/asia/bangkok-shooting-market.html
+**Florida’s New Attorney General, a DeSantis Appointee, Is Making Waves**\
+`James Uthmeier has followed an aggressive playbook similar to that of Gov. Ron DeSantis, for whom he used to work behind the scenes as chief of staff.`\
+https://nytimes.com/2025/07/28/us/floridas-new-attorney-general-a-desantis-appointee-is-making-waves.html
 
-**What’s Going On With Trump’s Tariffs?**\
-`The president is set to raise taxes on imports arriving from many countries, including Canada and Mexico. That’s on top of the tariffs that the White House has already announced on specific products, including foreign cars.`\
-https://nytimes.com/interactive/2025/07/28/business/economy/trump-tariff-tracker.html
+**Avian Flu Wiped Out Poultry. Now the Screwworm Is Coming for Beef.**\
+`The parasitic fly that attacks warm-blooded animals was eliminated from the United States in the 1960s, but it’s creeping toward the Texas-Mexico border.`\
+https://nytimes.com/2025/07/28/us/politics/screwworm-beef-prices.html
 
