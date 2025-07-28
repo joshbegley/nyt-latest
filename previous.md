@@ -1,3 +1,11 @@
+**Nevada Democrats Spot an Opportunity in a Vulnerable G.O.P. Governor**\
+`The state attorney general, Aaron Ford, is seen as Democrats’ best bet to oust Gov. Joe Lombardo. Mr. Lombardo doesn’t plan on going down easy.`\
+https://nytimes.com/2025/07/28/us/politics/nevada-governor-ford.html
+
+**The New York Times International Edition in Print for Tuesday, July 29, 2025**\
+``\
+https://nytimes.com/issue/todaysinyt/2025/07/28/todays-new-york-times-international-edition
+
 **Patriots 53-man roster projection: Where things stand after the first week of camp**\
 `With concerns about the offensive line and a glut of receivers fighting for roster spots, the Pats have plenty of tough decisions to make.`\
 https://nytimes.com/athletic/6517133/2025/07/28/patriots-53-man-roster-projection-training-camp/
@@ -29,12 +37,4 @@ https://nytimes.com/interactive/2025/07/28/opinion/focus-group-latino-trump-vote
 **How Can I Be Sure My Clothes Aren’t Made in a Sweatshop?**\
 `As more luxury brands are exposed for manufacturing pipelines involving exploitative labor conditions, our critic offers tips for finding ethically made clothes.`\
 https://nytimes.com/2025/07/28/fashion/sweatshop-ethical-clothes.html
-
-**‘Chief of War,’ and 7 More Shows to Watch on TV This Week**\
-`This new series starring Jason Momoa comes to Apple TV+ along with several documentary features.`\
-https://nytimes.com/2025/07/28/arts/television/chief-of-war-and-7-more-shows-to-watch-on-tv-this-week.html
-
-**$2.6 Million Homes in California**\
-`A midcentury modern in Los Angeles, a house with ocean views in Bolinas and a split-level in Santa Cruz`\
-https://nytimes.com/2025/07/28/realestate/2-6-million-homes-in-california.html
 

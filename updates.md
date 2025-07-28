@@ -1,3 +1,11 @@
+**Nevada Democrats Spot an Opportunity in a Vulnerable G.O.P. Governor**\
+`The state attorney general, Aaron Ford, is seen as Democrats’ best bet to oust Gov. Joe Lombardo. Mr. Lombardo doesn’t plan on going down easy.`\
+https://nytimes.com/2025/07/28/us/politics/nevada-governor-ford.html
+
+**The New York Times International Edition in Print for Tuesday, July 29, 2025**\
+``\
+https://nytimes.com/issue/todaysinyt/2025/07/28/todays-new-york-times-international-edition
+
 **Patriots 53-man roster projection: Where things stand after the first week of camp**\
 `With concerns about the offensive line and a glut of receivers fighting for roster spots, the Pats have plenty of tough decisions to make.`\
 https://nytimes.com/athletic/6517133/2025/07/28/patriots-53-man-roster-projection-training-camp/
