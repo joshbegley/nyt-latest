@@ -3,7 +3,7 @@
 https://nytimes.com/2025/07/28/world/europe/aeroflot-hackers-ukraine.html
 
 **Aaron Glenn just conducted the most physical Jets practice in years. Here's how — and why**\
-`FLORHAM PARK, N.`\
+`Plus, Justin Fields is all the way back, O-line vs. D-line highlights, and much more.`\
 https://nytimes.com/athletic/6520560/2025/07/28/aaron-glenn-jets-first-padded-training-camp-practice/
 
 **Five key Yankees trade deadline questions: How could they upgrade the bullpen?**\

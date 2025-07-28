@@ -1,3 +1,11 @@
+**Pro-Ukrainian Hackers Claim Cyberattack as Aeroflot Grounds Flights**\
+`The hack may have been part of a campaign to disrupt the sense of normalcy Russians have mostly enjoyed since the start of the war.`\
+https://nytimes.com/2025/07/28/world/europe/aeroflot-hackers-ukraine.html
+
+**Have Allen, Jackson bested Mahomes as top NFL QB? Here's the new Madden 99 club**\
+`One distinction for this year’s initial class is that there is no carryover from the previous year's initial class.`\
+https://nytimes.com/athletic/6520550/2025/07/28/madden-26-ratings-josh-allen-saquon-barkley-99-club/
+
 **Aaron Glenn just conducted the most physical Jets practice in years. Here's how — and why**\
 `FLORHAM PARK, N.`\
 https://nytimes.com/athletic/6520560/2025/07/28/aaron-glenn-jets-first-padded-training-camp-practice/
