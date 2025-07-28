@@ -1,3 +1,7 @@
+**Sources: Thomas Muller, Vancouver Whitecaps in talks over summer signing**\
+`The German great teased that he was headed "across the pond" from Europe, and Canada appears to be his next destination`\
+https://nytimes.com/athletic/6520006/2025/07/28/thomas-muller-vancouver-whitecaps-signing-fc-cincinnati-mls-bayern-munich/
+
 **Kennedy Intends to Overhaul Federal Compensation for Vaccine Injuries**\
 `The program, created by Congress, allows people who believe they were injured by vaccines to apply for financial compensation.`\
 https://nytimes.com/2025/07/28/health/kennedy-vaccine-injury-court.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6520724/2025/07/28/broncos-extend-cortland-sutton/
 **Bears camp observations: Caleb Williams under center, Jaquan Brisker's enhanced role**\
 `The pads came on for the first time this summer as the Bears continued to get Williams experience from under center.`\
 https://nytimes.com/athletic/6520624/2025/07/28/bears-camp-observations-caleb-williams-jaquan-brisker/
-
-**Pro-Ukrainian Hackers Claim Cyberattack as Aeroflot Grounds Flights**\
-`The hack may have been part of a campaign to disrupt the sense of normalcy Russians have mostly enjoyed since the start of the war.`\
-https://nytimes.com/2025/07/28/world/europe/aeroflot-hackers-ukraine.html
 
