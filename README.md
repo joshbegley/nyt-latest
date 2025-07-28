@@ -1,3 +1,7 @@
+**Scoop City: What's happening with Cam Ward?**\
+`The latest on the Titans No. 1 pick, plus insights on training camp competitions and injuries to stars like Justin Jefferson`\
+https://nytimes.com/athletic/6520476/2025/07/28/nfl-training-camp-cam-ward-titans-scoop-city/
+
 **Guardians' Clase placed on leave as part of sports betting investigation**\
 `MLB announced that the reliever will be on leave through August 31. `\
 https://nytimes.com/athletic/6520488/2025/07/28/emmanuel-clase-cleveland-guardians-leave-betting/
@@ -11,7 +15,7 @@ https://nytimes.com/video/us/politics/100000010309256/trump-starmer-gaza-russia.
 https://nytimes.com/2025/07/28/books/review/wendy-cope-collected-poems.html
 
 **If Spurs aren't signing Morgan Gibbs-White, who are the closest alternatives?**\
-`Tottenham's move for Gibbs-White appears to have failed - which other players come closest to matching his fairly unusual skill set?`\
+`Tottenham's move for the Forest midfielder appears to have failed - so which players are near to matching his fairly unusual skill set?`\
 https://nytimes.com/athletic/6520255/2025/07/28/gibbs-white-alternatives-tottenham/
 
 **Morecambe facing National League expulsion amid financial woes**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6520223/2025/07/28/offseason-celtics-mailbag-jayson
 **Erasing History in Our National Parks**\
 `Readers object to an executive order sanitizing troubling aspects of U.S. history. Also: “Dangerously irresponsible” policies; a home-schooling lag.`\
 https://nytimes.com/2025/07/28/opinion/us-history-national-parks.html
-
-**Dangerous Heat Grips Much of the Southeastern U.S.**\
-`Tampa, Fla., recorded 100 degrees for the first time this weekend as extreme heat settled across much of the region.`\
-https://nytimes.com/2025/07/28/weather/heat-wave-georgia-florida-carolina-us-forecast.html
 

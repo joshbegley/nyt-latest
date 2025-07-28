@@ -1,3 +1,11 @@
+**Guardians' Clase placed on leave as part of sports betting investigation**\
+`MLB announced that the reliever will be on leave through August 31. `\
+https://nytimes.com/athletic/6520488/2025/07/28/emmanuel-clase-cleveland-guardians-leave-betting/
+
+**In Break With Israel, Trump Says Children in Gaza ‘Look Very Hungry’**\
+`During talks in Scotland with Prime Minister Keir Starmer of Britain, President Trump disagreed with Israel’s claim that there is no starvation in Gaza.`\
+https://nytimes.com/video/us/politics/100000010309256/trump-starmer-gaza-russia.html
+
 **Think Rhymed British Verse Is Old-Fashioned? Try Wendy Cope.**\
 `An English national treasure collects a career’s worth of poems in a new book.`\
 https://nytimes.com/2025/07/28/books/review/wendy-cope-collected-poems.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/07/28/opinion/us-history-national-parks.html
 **Dangerous Heat Grips Much of the Southeastern U.S.**\
 `Tampa, Fla., recorded 100 degrees for the first time this weekend as extreme heat settled across much of the region.`\
 https://nytimes.com/2025/07/28/weather/heat-wave-georgia-florida-carolina-us-forecast.html
-
-**Delta Pilot Is Arrested in Cockpit After Flight Lands in San Francisco**\
-`A senior Homeland Security official said that the pilot was arrested on charges involving child sexual abuse materials.`\
-https://nytimes.com/2025/07/28/business/delta-pilot-arrested-san-francisco-federal-agents.html
-
-**Review: At 93, John Williams Unveils His First Piano Concerto**\
-`Williams is best known for his grandly symphonic, Oscar-winning film scores. But his latest concert work is quieter, and more haunting.`\
-https://nytimes.com/2025/07/28/arts/music/john-williams-piano-concerto-tanglewood-review.html
 

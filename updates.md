@@ -1,3 +1,11 @@
+**Guardians' Clase placed on leave as part of sports betting investigation**\
+`MLB announced that the reliever will be on leave through August 31. `\
+https://nytimes.com/athletic/6520488/2025/07/28/emmanuel-clase-cleveland-guardians-leave-betting/
+
+**In Break With Israel, Trump Says Children in Gaza ‘Look Very Hungry’**\
+`During talks in Scotland with Prime Minister Keir Starmer of Britain, President Trump disagreed with Israel’s claim that there is no starvation in Gaza.`\
+https://nytimes.com/video/us/politics/100000010309256/trump-starmer-gaza-russia.html
+
 **Think Rhymed British Verse Is Old-Fashioned? Try Wendy Cope.**\
 `An English national treasure collects a career’s worth of poems in a new book.`\
 https://nytimes.com/2025/07/28/books/review/wendy-cope-collected-poems.html
