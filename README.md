@@ -1,8 +1,16 @@
+**The Upside of Suing Trump**\
+`After Big Law backed off from challenging the government, smaller firms have stepped up their efforts.`\
+https://nytimes.com/2025/07/28/us/politics/law-firms-trump-administration.html
+
+**Live Q&A: Braves trade deadline talk with David O'Brien at noon ET Tuesday**\
+`The Braves are struggling. What will they do at the trade deadline? `\
+https://nytimes.com/athletic/6521297/2025/07/28/braves-live-deadline-questions/
+
 **Caitlin Clark stalker sentenced to 2 years in prison for threatening star**\
 `Michael Lewis admitted to sending Clark more than 800 threatening social media messages between Dec. 12, 2024, and Jan. 11, 2025.`\
 https://nytimes.com/athletic/6521317/2025/07/28/caitlin-clark-stalker-michael-lewis-sentenced/
 
-**Trade grade: Brewers add catching help in Danny Jansen deal with Rays**\
+**Trade grade: Brewers add catching help, pick up Danny Jansen from Rays**\
 `Jansen, 30, will go to the Brewers in exchange for High-A infielder Jadher Areinamo.`\
 https://nytimes.com/athletic/6521281/2025/07/28/danny-jansen-brewers-rays-trade/
 
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6521112/2025/07/28/packers-training-camp-elgton-jen
 **Paige Bueckers is back to face the reigning champs. Here's how to watch Liberty-Wings**\
 `The WNBA's top rookie goes against the league's defending champions, as Paige Bueckers gets another primetime broadcast on Monday night.`\
 https://nytimes.com/athletic/6520694/2025/07/28/paige-bueckers-injury-breanna-stewart-liberty-wings-how-to-watch/
-
-**In Fight for House, New York May Follow Texas in Redrawing Maps**\
-`Democrats in three states are now considering moves to counter a push by Texas Republicans to redraw their state’s maps.`\
-https://nytimes.com/2025/07/28/nyregion/new-york-redistricting-texas.html
-
-**Trump Said ‘We Have to Get the Kids Fed’ in Gaza**\
-`Also, screwworm emerges as a threat to U.S. cows. Here’s the latest at the end of Monday.`\
-https://nytimes.com/2025/07/28/briefing/trump-scotland-gaza-hunger-economy-week.html
 
