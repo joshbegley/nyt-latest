@@ -1,3 +1,7 @@
+**What’s Going On With Trump’s Tariffs?**\
+`The president is set to raise taxes on imports arriving from many countries, including Canada and Mexico. That’s on top of the tariffs that the White House has already announced on specific products, including foreign cars.`\
+https://nytimes.com/interactive/2025/07/28/business/economy/trump-tariff-tracker.html
+
 **Lucy Bronze, the Euro 2025 winner who played with a fractured leg: “Was it worth it? Absolutely!”**\
 `'Tough' by name, tough by nature - England defender Bronze put in a superhuman effort as England were crowned European champions again`\
 https://nytimes.com/athletic/6519486/2025/07/28/lucy-bronze-fractured-leg-euro-2025/
