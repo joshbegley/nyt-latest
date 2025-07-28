@@ -1,5 +1,5 @@
 **New Trump Administration Guidelines Stress Workplace Religious Freedoms**\
-`The Clinton White House issued similar guidelines in 1997, though at greater length and with more detailed examples and caveats.`\
+`The guidance covers employees and supervisors seeking to recruit fellow federal workers to their religion. The Clinton White House issued similar guidelines in 1997, though with more detailed examples and caveats.`\
 https://nytimes.com/2025/07/28/us/politics/trump-religion-work.html
 
 **Packers training camp: Elgton Jenkins returns and doesn't care about the money**\
