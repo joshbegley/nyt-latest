@@ -1,3 +1,15 @@
+**Would Sesko be a suitable replacement for Isak for Newcastle?**\
+`Alexander Isak wants to leave Newcastle. They would go all-in on Benjamin Sesko to replace him. Would it work?`\
+https://nytimes.com/athletic/6516756/2025/07/28/benjamin-sesko-newcastle-alexander-isak-analysis/
+
+**Morgan Gibbs-White's decision is the kind of 'win' Nottingham Forest deserve to revel in**\
+`Having star players spirited away is something Forest have experienced in the past. But not this time — and it feels good`\
+https://nytimes.com/athletic/6518567/2025/07/28/morgan-gibbs-white-contract-marinakis-nottingham-forest/
+
+**Inside Leeds' Germany training camp: Full-blooded challenges, paintball, and singing**\
+`Here, The Athletic takes you behind the scenes of what has played out over the past eight days in Germany`\
+https://nytimes.com/athletic/6518076/2025/07/28/inside-leeds-germany-training-camp/
+
 **So, Viktor Gyokeres hasn't joined your club. Which other strikers could they target?**\
 `There are plenty of teams still looking for help up front in the summer transfer window - who are the best options out there?`\
 https://nytimes.com/athletic/6515904/2025/07/28/strikers-transfer-premier-league-viktor-gyokeres/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/07/28/pageoneplus/quote-of-the-day-one-mans-reading-lis
 **Corrections: July 28, 2025**\
 `No corrections appeared in print on Monday, July 28, 2025.`\
 https://nytimes.com/2025/07/28/pageoneplus/corrections-july-28-2025.html
-
-**Last Soldiers of an Imperial Army Have a Warning for Young Generations**\
-`As the 80th anniversary of the end of World War II approaches, only a few veterans of Japan’s brutal war remain. “Never die for Emperor or country,” one advised.`\
-https://nytimes.com/2025/07/28/world/asia/last-soldiers-of-an-imperial-army-have-a-warning-for-young-generations.html
-
-**Thai-Cambodian Conflict Tears at Remnants of a Once-Proud Empire**\
-`People on both sides of the border share a cultural heritage much older than modern nation-states, dating back to the ancient Khmer civilization.`\
-https://nytimes.com/2025/07/28/world/asia/thailand-cambodia-khmer-empire.html
-
-**U.S. and China Meet as Trade Truce Nears Expiration**\
-`Top American and Chinese officials are meeting for two days of talks in Stockholm as the Trump administration tries to complete trade deals.`\
-https://nytimes.com/2025/07/28/business/us-and-china-meet-as-trade-truce-nears-expiration.html
 
