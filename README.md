@@ -1,3 +1,11 @@
+**Scottie Scheffler or the S&P 500: Which has been more profitable over the last 4 years?**\
+`There's a good case to be made that Scheffler himself is the greatest growth stock in sports. Neil Paine digs into the data.`\
+https://nytimes.com/athletic/6518816/2025/07/28/scottie-scheffler-stock-market-profit-comparison-odds/
+
+**USWNT to face Portugal in October doubleheader; games to honor Morgan, Naeher**\
+`The USWNT will also play a still to be determined opponent for their first ever game at Kansas City Current’s soccer-specific CPKC Stadium.`\
+https://nytimes.com/athletic/6520103/2025/07/28/uswnt-october-portugal-fixtures/
+
 **gws-timeless-torches-ny-liberty-dance-team**\
 `(No description)`\
 https://nytimes.com/newsgraphics/card-story/timeless-torches-ny-liberty-dance-team
@@ -29,12 +37,4 @@ https://nytimes.com/2025/07/28/business/economy-tariffs-fed-jobs.html
 **Lowetide: Projecting Oilers’ opening-night defence pairings, goalies for 2025-26**\
 `Entering the period leading up to training camp, Edmonton's defensive pairings and goaltending depth charts appear more settled.`\
 https://nytimes.com/athletic/6518350/2025/07/28/edmonton-oilers-defence-goalies-2025-26/
-
-**gws-tiny-house-championship-skillsusa-teamworks**\
-`(No description)`\
-https://nytimes.com/newsgraphics/card-story/tiny-house-championship-skillsusa-teamworks
-
-**gws-kpop-demon-hunters-directors**\
-`(No description)`\
-https://nytimes.com/newsgraphics/card-story/kpop-demon-hunters-directors
 
