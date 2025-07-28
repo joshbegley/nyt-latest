@@ -1,3 +1,19 @@
+**‘Total Failure’: Israel’s Return to War Heaped Ruin on Gaza and Did Little for Israelis**\
+`Israel ended a truce in Gaza in March, hoping to break Hamas. The move has heightened suffering for Palestinians but achieved few, if any, Israeli goals.`\
+https://nytimes.com/2025/07/28/world/israel-gaza-hamas-all-out-war-failure.html
+
+**Submit a question for Jay King’s offseason Celtics mailbag**\
+`The Celtics have 14 players on standard contracts after waiving JD Davison last week.`\
+https://nytimes.com/athletic/6520223/2025/07/28/offseason-celtics-mailbag-jayson-tatum/
+
+**Erasing History in Our National Parks**\
+`Readers object to an executive order sanitizing troubling aspects of U.S. history. Also: “Dangerously irresponsible” policies; a home-schooling lag.`\
+https://nytimes.com/2025/07/28/opinion/us-history-national-parks.html
+
+**Dangerous Heat Grips Much of the Southeastern U.S.**\
+`Tampa, Fla., recorded 100 degrees for the first time this weekend as extreme heat settles across much of the region.`\
+https://nytimes.com/2025/07/28/weather/heat-wave-georgia-florida-carolina-us-forecast.html
+
 **Delta Pilot Is Arrested in Cockpit After Flight Lands in San Francisco**\
 `A senior Homeland Security official said that the pilot was arrested on charges involving child sexual abuse materials.`\
 https://nytimes.com/2025/07/28/business/delta-pilot-arrested-san-francisco-federal-agents.html

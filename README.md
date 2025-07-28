@@ -1,3 +1,11 @@
+**Morecambe facing National League expulsion amid financial woes**\
+`The Lancashire-based club are already under a transfer embargo and have now had its first three league fixtures postponed.`\
+https://nytimes.com/athletic/6520356/2025/07/28/morecambe-national-league-expelled/
+
+**Tour de France Femmes: Lorena Wiebes claims sprint stage win, Demi Vollering crashes, Vos back in yellow**\
+`See the results from Stage 3 here as The Athletic covers the Tour de France Femmes. `\
+https://nytimes.com/athletic/6519734/2025/07/28/tour-de-france-femmes-lorena-wiebes-sprint-win-crash-demi-vollering/
+
 **‘Total Failure’: Israel’s Return to War Heaped Ruin on Gaza and Did Little for Israelis**\
 `Israel ended a truce in Gaza in March, hoping to break Hamas. The move has heightened suffering for Palestinians but achieved few, if any, Israeli goals.`\
 https://nytimes.com/2025/07/28/world/israel-gaza-hamas-all-out-war-failure.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/07/28/us/politics/ghislaine-maxwell-epstein-interview-d
 **Tottenham's Moore closing in on Rangers loan**\
 `The 17-year-old signed his first pro terms at Tottenham last summer, with that deal running until 2027.`\
 https://nytimes.com/athletic/6515695/2025/07/28/mikey-moore-rangers-tottenham/
-
-**Cardinals prospect Tekoah Roby undergoes Tommy John surgery, will likely miss 2026 season**\
-`Losing Roby is another significant blow for an organization already lacking viable rotation options.`\
-https://nytimes.com/athletic/6520112/2025/07/28/cardinals-tekoah-roby-tommy-john-prospect/
-
-**Fantasy baseball cheat sheet: Add Rasmussen, Agustín Ramírez and more THE BAT X insights**\
-`The Athletic and THE BAT X teamed up for a fantasy baseball cheat sheet to help you with daily and weekly fantasy baseball lineups. `\
-https://nytimes.com/athletic/6519927/2025/07/28/fantasy-baseball-the-bat-x-rasmussen-ramirez/
 
