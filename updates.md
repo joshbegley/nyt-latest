@@ -1,3 +1,15 @@
+**Aaron Glenn just conducted the most physical Jets practice in years. Here's how — and why**\
+`FLORHAM PARK, N.`\
+https://nytimes.com/athletic/6520560/2025/07/28/aaron-glenn-jets-first-padded-training-camp-practice/
+
+**Five key Yankees trade deadline questions: How could they upgrade the bullpen?**\
+`The Yankees have turned their attention to the pitching staff, in particular the bullpen, as Thursday's trade deadline draws near. `\
+https://nytimes.com/athletic/6520343/2025/07/28/yankees-mlb-trade-deadline-questions-targets/
+
+**2 Die After Barge Hits Sailboat Off Miami Beach, Throwing Children Overboard**\
+`The sailboat was struck near Hibiscus Island in Biscayne Bay, the authorities said.`\
+https://nytimes.com/2025/07/28/us/sailboat-sinks-biscayne-bay-miami-rescue.html
+
 **Faculty Support of George Mason’s President Draws Federal Investigation**\
 `The Faculty Senate at George Mason University in Virginia adopted a resolution supporting the school’s president and his work related to diversity. The Justice Department says it will investigate.`\
 https://nytimes.com/2025/07/28/us/justice-department-george-mason-faculty-senate-investigation.html

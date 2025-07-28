@@ -1,3 +1,7 @@
+**Pro-Ukrainian Hackers Claim Cyberattack as Aeroflot Grounds Flights**\
+`The hack may have been part of a campaign to disrupt the sense of normalcy Russians have mostly enjoyed since the start of the war.`\
+https://nytimes.com/2025/07/28/world/europe/aeroflot-hackers-ukraine.html
+
 **Aaron Glenn just conducted the most physical Jets practice in years. Here's how — and why**\
 `FLORHAM PARK, N.`\
 https://nytimes.com/athletic/6520560/2025/07/28/aaron-glenn-jets-first-padded-training-camp-practice/
@@ -36,8 +40,4 @@ https://nytimes.com/2025/07/28/world/europe/paul-gallagher-oasis-rape-charge.htm
 **Trump Says Rupert Murdoch Should Be Deposed Within 15 Days in Suit Over Epstein Article**\
 `The president’s legal team argued in a legal filing that discovery process for the media mogul should be expedited because of his age and health.`\
 https://nytimes.com/2025/07/28/business/media/trump-rupert-murdoch-libel-epstein.html
-
-**Thomas Sayers Ellis, Poet of ‘Percussive Prosody,’ Dies at 61**\
-`A verbal gymnast on and off the page (as well as a musician and photographer), he was a founder of the Dark Room Collective, a community of writers, and fostered a boom in Black poetry.`\
-https://nytimes.com/2025/07/28/books/thomas-sayers-ellis-dead.html
 
