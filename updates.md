@@ -1,3 +1,7 @@
+**Adrian Morejon's long-awaited ascension has come just in time for Padres**\
+`"Watching him now get to this point in his career, the guy that we knew we had signed years ago, is very gratifying," Ruben Niebla said.`\
+https://nytimes.com/athletic/6514460/2025/07/27/adrian-morejon-ascension-padres/
+
 **For Trump, E.U. Trade Deal was Badly Needed**\
 `After a lot of big talk on trade, the Trump administration needed a big win. It appears to have just gotten one.`\
 https://nytimes.com/2025/07/27/us/politics/trump-europe-trade-deal.html
