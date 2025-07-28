@@ -1,3 +1,11 @@
+**Think Rhymed British Verse Is Old-Fashioned? Try Wendy Cope.**\
+`An English national treasure collects a career’s worth of poems in a new book.`\
+https://nytimes.com/2025/07/28/books/review/wendy-cope-collected-poems.html
+
+**Dangerous Heat Grips Much of the Southeastern U.S.**\
+`Tampa, Fla., recorded 100 degrees for the first time this weekend as extreme heat settled across much of the region.`\
+https://nytimes.com/2025/07/28/weather/heat-wave-georgia-florida-carolina-us-forecast.html
+
 **If Spurs aren't signing Morgan Gibbs-White, who are the closest alternatives?**\
 `Tottenham's move for Gibbs-White appears to have failed - which other players come closest to matching his fairly unusual skill set?`\
 https://nytimes.com/athletic/6520255/2025/07/28/gibbs-white-alternatives-tottenham/

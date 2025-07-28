@@ -1,3 +1,7 @@
+**Think Rhymed British Verse Is Old-Fashioned? Try Wendy Cope.**\
+`An English national treasure collects a career’s worth of poems in a new book.`\
+https://nytimes.com/2025/07/28/books/review/wendy-cope-collected-poems.html
+
 **If Spurs aren't signing Morgan Gibbs-White, who are the closest alternatives?**\
 `Tottenham's move for Gibbs-White appears to have failed - which other players come closest to matching his fairly unusual skill set?`\
 https://nytimes.com/athletic/6520255/2025/07/28/gibbs-white-alternatives-tottenham/
@@ -23,7 +27,7 @@ https://nytimes.com/athletic/6520223/2025/07/28/offseason-celtics-mailbag-jayson
 https://nytimes.com/2025/07/28/opinion/us-history-national-parks.html
 
 **Dangerous Heat Grips Much of the Southeastern U.S.**\
-`Tampa, Fla., recorded 100 degrees for the first time this weekend as extreme heat settles across much of the region.`\
+`Tampa, Fla., recorded 100 degrees for the first time this weekend as extreme heat settled across much of the region.`\
 https://nytimes.com/2025/07/28/weather/heat-wave-georgia-florida-carolina-us-forecast.html
 
 **Delta Pilot Is Arrested in Cockpit After Flight Lands in San Francisco**\
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/28/business/delta-pilot-arrested-san-francisco-feder
 **Review: At 93, John Williams Unveils His First Piano Concerto**\
 `Williams is best known for his grandly symphonic, Oscar-winning film scores. But his latest concert work is quieter, and more haunting.`\
 https://nytimes.com/2025/07/28/arts/music/john-williams-piano-concerto-tanglewood-review.html
-
-**Durbin Demands Tapes of Ghislaine Maxwell Interviews**\
-`The top Democrat on the Senate Judiciary Committee also pressed the Justice Department for a promise that Ms. Maxwell will not be pardoned for her cooperation in matters related to the Jeffrey Epstein files.`\
-https://nytimes.com/2025/07/28/us/politics/ghislaine-maxwell-epstein-interview-durbin.html
 
