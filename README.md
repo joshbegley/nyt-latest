@@ -2,8 +2,8 @@
 `Michael Lewis admitted to sending Clark more than 800 threatening social media messages between Dec. 12, 2024, and Jan. 11, 2025.`\
 https://nytimes.com/athletic/6521317/2025/07/28/caitlin-clark-stalker-michael-lewis-sentenced/
 
-**Brewers close to acquiring catcher Danny Jansen from Rays: Source**\
-`Jansen, 30, will go to the Brewers in exchange for Class-A prospect Jadher Areinamo.`\
+**Trade grade: Brewers add catching help in Danny Jansen deal with Rays**\
+`Jansen, 30, will go to the Brewers in exchange for High-A infielder Jadher Areinamo.`\
 https://nytimes.com/athletic/6521281/2025/07/28/danny-jansen-brewers-rays-trade/
 
 **Vance Embraces Role of Loyal Trump Warrior, Shifting Away From Past Stances**\

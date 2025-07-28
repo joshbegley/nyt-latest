@@ -1,3 +1,23 @@
+**Caitlin Clark stalker sentenced to 2 years in prison for threatening star**\
+`Michael Lewis admitted to sending Clark more than 800 threatening social media messages between Dec. 12, 2024, and Jan. 11, 2025.`\
+https://nytimes.com/athletic/6521317/2025/07/28/caitlin-clark-stalker-michael-lewis-sentenced/
+
+**Brewers close to acquiring catcher Danny Jansen from Rays: Source**\
+`Jansen, 30, will go to the Brewers in exchange for Class-A prospect Jadher Areinamo.`\
+https://nytimes.com/athletic/6521281/2025/07/28/danny-jansen-brewers-rays-trade/
+
+**Vance Embraces Role of Loyal Trump Warrior, Shifting Away From Past Stances**\
+`The vice president has defended the administration’s handling of U.S. military engagement abroad and the Epstein files, even when those positions put him at odds with the right wing.`\
+https://nytimes.com/2025/07/28/us/politics/vance-trump-ukraine-epstein.html
+
+**Nationals top pitching prospect Travis Sykora to have Tommy John surgery**\
+`Sykora was the No. 51 prospect in baseball, and the Nationals' top pitching prospect.`\
+https://nytimes.com/athletic/6521269/2025/07/28/washington-nationals-travis-sykora-tommy-john/
+
+**3 Out of 5 Liver Cancer Cases Are Preventable, Study Finds**\
+`Without efforts to address some causes, including alcohol use and metabolic issues, the researchers warn that cases could nearly double by 2050.`\
+https://nytimes.com/2025/07/28/well/liver-cancer-prevention.html
+
 **New Trump Administration Guidelines Stress Workplace Religious Freedoms**\
 `The guidance covers employees and supervisors seeking to recruit fellow federal workers to their religion. The Clinton White House issued similar guidelines in 1997, though with more detailed examples and caveats.`\
 https://nytimes.com/2025/07/28/us/politics/trump-religion-work.html
@@ -17,24 +37,4 @@ https://nytimes.com/2025/07/28/nyregion/new-york-redistricting-texas.html
 **Trump Said ‘We Have to Get the Kids Fed’ in Gaza**\
 `Also, screwworm emerges as a threat to U.S. cows. Here’s the latest at the end of Monday.`\
 https://nytimes.com/2025/07/28/briefing/trump-scotland-gaza-hunger-economy-week.html
-
-**What to know about Broncos camp, Day 3: Courtland Sutton turns page with new deal**\
-`Evan Engram is starting to look comfortable as a new go-to target in Denver's offense`\
-https://nytimes.com/athletic/6520808/2025/07/28/broncos-training-camp-courtland-sutton-new-deal/
-
-**In Messi vs. MLS, pettiness gets in the way of sensibility**\
-`Everyone involved could have handled the MLS All-Star snafu better, instead of letting things develop as they did.`\
-https://nytimes.com/athletic/6520300/2025/07/28/messi-mls-all-star-suspension-inter-miami/
-
-**Buccaneers, QB Baker Mayfield agree to restructured contract: Source**\
-`Mayfield’s current deal did not contain any guaranteed money following the 2025 season.`\
-https://nytimes.com/athletic/6520907/2025/07/28/buccaneers-qb-baker-mayfield-restructure-contract/
-
-**Tariffs on Medicines From Europe Stand to Cost Drugmakers Billions**\
-`Many pharmaceutical products made in Europe will face a 15 percent tariff, pinching manufacturers and potentially leading to higher drug prices.`\
-https://nytimes.com/2025/07/28/health/trump-drug-tariffs-europe.html
-
-**Cameron Brink expected to play for Sparks on Tuesday after 13-month layoff**\
-`No. 2 pick in the 2024 WNBA Draft, who injured her knee last June, is expected to make her season debut vs. Las Vegas.`\
-https://nytimes.com/athletic/6521198/2025/07/28/cameron-brink-sparks-return-wnba/
 
