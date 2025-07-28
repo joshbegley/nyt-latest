@@ -1,3 +1,7 @@
+**Delta Pilot Is Arrested in Cockpit After Flight Lands in San Francisco**\
+`A senior Homeland Security official said that the pilot was arrested on charges involving child sexual abuse materials.`\
+https://nytimes.com/2025/07/28/business/delta-pilot-arrested-san-francisco-federal-agents.html
+
 **Review: At 93, John Williams Unveils His First Piano Concerto**\
 `Williams is best known for his grandly symphonic, Oscar-winning film scores. But his latest concert work is quieter, and more haunting.`\
 https://nytimes.com/2025/07/28/arts/music/john-williams-piano-concerto-tanglewood-review.html
