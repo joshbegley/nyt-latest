@@ -1,3 +1,15 @@
+**In Fight for House, New York May Follow Texas in Redrawing Maps**\
+`Democrats in three states are now considering moves to counter a push by Texas Republicans to redraw their state’s maps.`\
+https://nytimes.com/2025/07/28/nyregion/new-york-redistricting-texas.html
+
+**Trump Said ‘We Have to Get the Kids Fed’ in Gaza**\
+`Also, screwworm emerges as a threat to U.S. cows. Here’s the latest at the end of Monday.`\
+https://nytimes.com/2025/07/28/briefing/trump-scotland-gaza-hunger-economy-week.html
+
+**What to know about Broncos camp, Day 3: Courtland Sutton turns page with new deal**\
+`Evan Engram is starting to look comfortable as a new go-to target in Denver's offense`\
+https://nytimes.com/athletic/6520808/2025/07/28/broncos-training-camp-courtland-sutton-new-deal/
+
 **In Messi vs. MLS, pettiness gets in the way of sensibility**\
 `Everyone involved could have handled the MLS All-Star snafu better, instead of letting things develop as they did.`\
 https://nytimes.com/athletic/6520300/2025/07/28/messi-mls-all-star-suspension-inter-miami/

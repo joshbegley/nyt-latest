@@ -1,3 +1,15 @@
+**In Fight for House, New York May Follow Texas in Redrawing Maps**\
+`Democrats in three states are now considering moves to counter a push by Texas Republicans to redraw their state’s maps.`\
+https://nytimes.com/2025/07/28/nyregion/new-york-redistricting-texas.html
+
+**Trump Said ‘We Have to Get the Kids Fed’ in Gaza**\
+`Also, screwworm emerges as a threat to U.S. cows. Here’s the latest at the end of Monday.`\
+https://nytimes.com/2025/07/28/briefing/trump-scotland-gaza-hunger-economy-week.html
+
+**What to know about Broncos camp, Day 3: Courtland Sutton turns page with new deal**\
+`Evan Engram is starting to look comfortable as a new go-to target in Denver's offense`\
+https://nytimes.com/athletic/6520808/2025/07/28/broncos-training-camp-courtland-sutton-new-deal/
+
 **In Messi vs. MLS, pettiness gets in the way of sensibility**\
 `Everyone involved could have handled the MLS All-Star snafu better, instead of letting things develop as they did.`\
 https://nytimes.com/athletic/6520300/2025/07/28/messi-mls-all-star-suspension-inter-miami/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/07/28/us/politics/trump-harvard-payment.html
 **Eagles camp: Saquon Barkley on his 2025 workload, Drew Mukuba's injury status**\
 `Also, the Eagles QB had a tough day and Quinyon Mitchell rotated sides at cornerback in practice. `\
 https://nytimes.com/athletic/6520472/2025/07/28/philadelphia-eagles-training-camp-saquon-barkley-drew-mukuba/
-
-**Gwyneth Paltrow Helps Turn Astronomer’s Infamy on Its Head**\
-`The technology company that was at the center of a scandal last week released a tongue-in-cheek response. It landed.`\
-https://nytimes.com/2025/07/28/style/gwyneth-paltrow-astronomer-spokesperson-coldplay-scandal.html
-
-**Five key Astros trade deadline questions: Do they have enough to make a deal?**\
-`How can the Astros maintain their lead in the AL West with injuries mounting, and do the injuries indicate a larger organizational problem?`\
-https://nytimes.com/athletic/6521025/2025/07/28/astros-mlb-trade-deadline-questions-targets/
-
-**John Saladino, ‘Sensualist’ Designer With a Love of Ruins, Dies at 86**\
-`A renowned interior designer, he created instantly recognizable rooms using lush fabrics, oversize antiques and imperfectly plastered walls that convey a sense of age.`\
-https://nytimes.com/2025/07/28/arts/design/john-saladino-dead.html
 

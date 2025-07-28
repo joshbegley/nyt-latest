@@ -1,3 +1,7 @@
+**Paige Bueckers is back to face the reigning champs. Here's how to watch Liberty-Wings**\
+`The WNBA's top rookie goes against the league's defending champions, as Paige Bueckers gets another primetime broadcast on Monday night.`\
+https://nytimes.com/athletic/6520694/2025/07/28/paige-bueckers-injury-breanna-stewart-liberty-wings-how-to-watch/
+
 **In Fight for House, New York May Follow Texas in Redrawing Maps**\
 `Democrats in three states are now considering moves to counter a push by Texas Republicans to redraw their state’s maps.`\
 https://nytimes.com/2025/07/28/nyregion/new-york-redistricting-texas.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6520975/2025/07/28/colts-anthony-richardson-daniel-
 **Harvard Is Said to Be Open to Spending Up To $500 Million to Resolve Trump Dispute**\
 `The sum sought by the government is more than twice as much as the $200 million fine that Columbia University said it would pay when it settled its clash with the White House last week.`\
 https://nytimes.com/2025/07/28/us/politics/trump-harvard-payment.html
-
-**Eagles camp: Saquon Barkley on his 2025 workload, Drew Mukuba's injury status**\
-`Also, the Eagles QB had a tough day and Quinyon Mitchell rotated sides at cornerback in practice. `\
-https://nytimes.com/athletic/6520472/2025/07/28/philadelphia-eagles-training-camp-saquon-barkley-drew-mukuba/
 
