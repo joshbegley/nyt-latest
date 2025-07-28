@@ -1,3 +1,7 @@
+**gws-timeless-torches-ny-liberty-dance-team**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/timeless-torches-ny-liberty-dance-team
+
 **Sunny With a Chance of Meatballs**\
 `My skillet meatballs with peaches, lime and basil are speedy, satisfying and so summery.`\
 https://nytimes.com/2025/07/28/dining/melissa-clark-skillet-meatballs-with-peaches-lime-and-basil-recipe.html
@@ -33,8 +37,4 @@ https://nytimes.com/newsgraphics/card-story/tiny-house-championship-skillsusa-te
 **gws-kpop-demon-hunters-directors**\
 `(No description)`\
 https://nytimes.com/newsgraphics/card-story/kpop-demon-hunters-directors
-
-**gws-indigo-de-souza-precipice**\
-`(No description)`\
-https://nytimes.com/newsgraphics/card-story/indigo-de-souza-precipice
 

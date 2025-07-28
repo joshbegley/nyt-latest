@@ -1,3 +1,15 @@
+**Sunny With a Chance of Meatballs**\
+`My skillet meatballs with peaches, lime and basil are speedy, satisfying and so summery.`\
+https://nytimes.com/2025/07/28/dining/melissa-clark-skillet-meatballs-with-peaches-lime-and-basil-recipe.html
+
+**Do You Know These Books That Predicted Current Technology?**\
+`Try this short quiz to test your knowledge of once-futuristic literary creations have become everyday reality now in 2025.`\
+https://nytimes.com/interactive/2025/07/28/books/review/visionary-tech-books.html
+
+**Trump Gives Russia Less Than Two Weeks to End Its War in Ukraine**\
+`President Trump said he had decided to shorten a 50-day deadline he had given Russia to end the conflict or face punishing new sanctions.`\
+https://nytimes.com/2025/07/28/us/politics/trump-ukraine-russia-deadline-sanctions.html
+
 **Euro 2025 final peaked at more than 16 million viewers in UK**\
 `England beat Spain on penalties in the final on Sunday to win the tournament for the second time in a row. `\
 https://nytimes.com/athletic/6519812/2025/07/28/2025-euros-viewing-figures-bbc-itv/

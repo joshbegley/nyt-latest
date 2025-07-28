@@ -1,3 +1,15 @@
+**Sunny With a Chance of Meatballs**\
+`My skillet meatballs with peaches, lime and basil are speedy, satisfying and so summery.`\
+https://nytimes.com/2025/07/28/dining/melissa-clark-skillet-meatballs-with-peaches-lime-and-basil-recipe.html
+
+**Do You Know These Books That Predicted Current Technology?**\
+`Try this short quiz to test your knowledge of once-futuristic literary creations have become everyday reality now in 2025.`\
+https://nytimes.com/interactive/2025/07/28/books/review/visionary-tech-books.html
+
+**Trump Gives Russia Less Than Two Weeks to End Its War in Ukraine**\
+`President Trump said he had decided to shorten a 50-day deadline he had given Russia to end the conflict or face punishing new sanctions.`\
+https://nytimes.com/2025/07/28/us/politics/trump-ukraine-russia-deadline-sanctions.html
+
 **Euro 2025 final peaked at more than 16 million viewers in UK**\
 `England beat Spain on penalties in the final on Sunday to win the tournament for the second time in a row. `\
 https://nytimes.com/athletic/6519812/2025/07/28/2025-euros-viewing-figures-bbc-itv/
@@ -25,16 +37,4 @@ https://nytimes.com/newsgraphics/card-story/kpop-demon-hunters-directors
 **gws-indigo-de-souza-precipice**\
 `(No description)`\
 https://nytimes.com/newsgraphics/card-story/indigo-de-souza-precipice
-
-**gws-dolly-parton-musical-nashville**\
-`(No description)`\
-https://nytimes.com/newsgraphics/card-story/dolly-parton-musical-nashville
-
-**The Quintessential Urban Design of Sesame Street**\
-`Over its several decades, the show’s setting has always been both realistic and idealistic. And it has evolved, much like the New York City streets that inspired it.`\
-https://nytimes.com/2025/07/28/realestate/sesame-street-design-over-the-years.html
-
-**Live Q&A: Blue Jays trade deadline talk with Mitch Bannon at 11:30 a.m. ET Tuesday**\
-`The Blue Jays are surging. How will they improve by the trade deadline?`\
-https://nytimes.com/athletic/6519274/2025/07/28/live-qa-blue-jays-trade-deadline/
 
