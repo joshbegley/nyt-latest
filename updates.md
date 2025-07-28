@@ -1,3 +1,7 @@
+**Who Pays for U.S. Tariffs, and Where Does the Money Go?**\
+`President Trump is seeking to raise federal revenue by imposing levies on goods from foreign nations. Here’s how the process works.`\
+https://nytimes.com/2025/07/28/business/economy/trump-tariffs-payment.html
+
 **Tigers to acquire Chris Paddack from Twins: Sources**\
 `Paddack has been fully healthy after suffering elbow inflammation in 2024. He is one of several Twins expected to be moved this week.`\
 https://nytimes.com/athletic/6520597/2025/07/28/chris-paddack-tigers-twins-trade-analysis/
