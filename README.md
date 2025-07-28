@@ -1,3 +1,7 @@
+**New Trump Administration Guidelines Stress Workplace Religious Freedoms**\
+`The Clinton White House issued similar guidelines in 1997, though at greater length and with more detailed examples and caveats.`\
+https://nytimes.com/2025/07/28/us/politics/trump-religion-work.html
+
 **Packers training camp: Elgton Jenkins returns and doesn't care about the money**\
 `There are financial implications of switching from left guard to center, but Jenkins said he's not thinking about them anymore.`\
 https://nytimes.com/athletic/6521112/2025/07/28/packers-training-camp-elgton-jenkins/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/28/health/trump-drug-tariffs-europe.html
 **Cameron Brink expected to play for Sparks on Tuesday after 13-month layoff**\
 `No. 2 pick in the 2024 WNBA Draft, who injured her knee last June, is expected to make her season debut vs. Las Vegas.`\
 https://nytimes.com/athletic/6521198/2025/07/28/cameron-brink-sparks-return-wnba/
-
-**Colts camp takeaways: After lackluster start, QB battle finally heating up**\
-`Neither QB had asserted himself so far in camp, but both Richardson and Jones delivered their best practices yet on Monday. `\
-https://nytimes.com/athletic/6520975/2025/07/28/colts-anthony-richardson-daniel-jones-qb-battle/
 

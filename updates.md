@@ -1,3 +1,7 @@
+**Packers training camp: Elgton Jenkins returns and doesn't care about the money**\
+`There are financial implications of switching from left guard to center, but Jenkins said he's not thinking about them anymore.`\
+https://nytimes.com/athletic/6521112/2025/07/28/packers-training-camp-elgton-jenkins/
+
 **Paige Bueckers is back to face the reigning champs. Here's how to watch Liberty-Wings**\
 `The WNBA's top rookie goes against the league's defending champions, as Paige Bueckers gets another primetime broadcast on Monday night.`\
 https://nytimes.com/athletic/6520694/2025/07/28/paige-bueckers-injury-breanna-stewart-liberty-wings-how-to-watch/
