@@ -1,3 +1,15 @@
+**gws-tiny-house-championship-skillsusa-teamworks**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/tiny-house-championship-skillsusa-teamworks
+
+**gws-kpop-demon-hunters-directors**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/kpop-demon-hunters-directors
+
+**gws-indigo-de-souza-precipice**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/indigo-de-souza-precipice
+
 **gws-dolly-parton-musical-nashville**\
 `(No description)`\
 https://nytimes.com/newsgraphics/card-story/dolly-parton-musical-nashville
