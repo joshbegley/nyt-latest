@@ -1,3 +1,19 @@
+**France Rebukes E.U.’s Trade Deal With Trump**\
+`Some French cabinet members have aired their sharp disapproval of the deal, including the country’s prime minister who called it “a dark day.”`\
+https://nytimes.com/2025/07/28/us/politics/trump-eu-trade-deal-france.html
+
+**Citizen Scientists Are Accelerating Ecology Research, Study Suggests**\
+`Thousands of scientific papers have used data collected by users of the platform iNaturalist, according to new research.`\
+https://nytimes.com/2025/07/28/science/citizen-science-ecology-inaturalist.html
+
+**Broncos defense 'can be as good as we want to be,' but climb requires patience**\
+`The first week of camp revealed the impact new additions — and the continued development of young talent — could have for Denver's defense.`\
+https://nytimes.com/athletic/6519751/2025/07/28/denver-broncos-defense-training-camp-dre-greenlaw/
+
+**European Carmakers Welcome, and Worry About, U.S. Tariff Deal**\
+`German auto companies embraced greater clarity but warned that even the lower rate of tariffs agreed between Brussels and Washington would still hurt.`\
+https://nytimes.com/2025/07/28/us/politics/tariffs-eu-deal-cars.html
+
 **Broncos defense "can be as good as we want to be," but climb requires patience**\
 `The first week of camp revealed the impact new additions — and the continued development of young talent — could have for Denver's defense`\
 https://nytimes.com/athletic/6519751/2025/07/28/denver-broncos-defense-training-camp-dre-greenlaw/
