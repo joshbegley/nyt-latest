@@ -8,7 +8,7 @@ https://nytimes.com/athletic/6516119/2025/07/28/penguins-mario-lemieux-ownership
 
 **Where Is the Economy Going? A ‘Monster Week’ of News Could Help Decide.**\
 `This week will bring a flood of economic data, as well as major policy decisions on trade and interest rates.`\
-https://nytimes.com/2025/07/28/business/where-is-the-economy-going-a-monster-week-of-news-could-help-decide.html
+https://nytimes.com/2025/07/28/business/economy-tariffs-fed-jobs.html
 
 **Lowetide: Projecting Oilers’ opening-night defence pairings, goalies for 2025-26**\
 `Entering the period leading up to training camp, Edmonton's defensive pairings and goaltending depth charts appear more settled.`\
