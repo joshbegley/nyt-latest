@@ -1,3 +1,11 @@
+**Cardinals pitching prospect Tekoah Roby undergoes Tommy John, will likely miss 2026 season**\
+`Losing Roby is another significant blow for an organization already lacking viable rotation options.`\
+https://nytimes.com/athletic/6520112/2025/07/28/cardinals-tekoah-roby-tommy-john-prospect/
+
+**Fantasy baseball cheat sheet: Add Rasmussen, Agustín Ramírez and more THE BAT X insights**\
+`The Athletic and THE BAT X teamed up for a fantasy baseball cheat sheet to help you with daily and weekly fantasy baseball lineups. `\
+https://nytimes.com/athletic/6519927/2025/07/28/fantasy-baseball-the-bat-x-rasmussen-ramirez/
+
 **Scottie Scheffler or the S&P 500: Which has been more profitable over the last 4 years?**\
 `There's a good case to be made that Scheffler himself is the greatest growth stock in sports. Neil Paine digs into the data.`\
 https://nytimes.com/athletic/6518816/2025/07/28/scottie-scheffler-stock-market-profit-comparison-odds/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6519812/2025/07/28/2025-euros-viewing-figures-bbc-i
 **What I'm hearing about Mario Lemieux's Penguins ownership comeback attempt**\
 `Lemieux's interest in buying the Penguins again is very real. Plus: the latest on Bryan Rust and Rickard Rakell and more.`\
 https://nytimes.com/athletic/6516119/2025/07/28/penguins-mario-lemieux-ownership-nhl/
-
-**Where Is the Economy Going? A ‘Monster Week’ of News Could Help Decide.**\
-`This week will bring a flood of economic data, as well as major policy decisions on trade and interest rates.`\
-https://nytimes.com/2025/07/28/business/economy-tariffs-fed-jobs.html
-
-**Lowetide: Projecting Oilers’ opening-night defence pairings, goalies for 2025-26**\
-`Entering the period leading up to training camp, Edmonton's defensive pairings and goaltending depth charts appear more settled.`\
-https://nytimes.com/athletic/6518350/2025/07/28/edmonton-oilers-defence-goalies-2025-26/
 
