@@ -1,3 +1,7 @@
+**Kepner: In the vintage village of Cooperstown, it's still how you play the game that counts**\
+`The Baseball Hall of Fame's idealized vision was on full display as the institution welcomed its five newest members on Sunday. `\
+https://nytimes.com/athletic/6519286/2025/07/27/baseball-hall-of-fame-ichiro-sandberg-wagner-sabathia-parker-allen/
+
 **Phillies takeaways: Zack Wheeler's off day, Otto Kemp powers up, trade deadline nears**\
 `Plus more on J.T. Realmuto's sensational jump-tag and what's setting up to be a tight divisional race against the Mets. `\
 https://nytimes.com/athletic/6519089/2025/07/27/phillies-zack-wheeler-otto-kemp-yankees/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6519170/2025/07/27/hall-of-fame-lessons-baseball-co
 **O'Connor: CC Sabathia’s biggest Yankees win was healing Derek Jeter-Alex Rodriguez divide**\
 `On the day of Sabathia's Hall fo Fame induction, it's worth remembering the most valuable personality on Yankees' 2009 championship team.`\
 https://nytimes.com/athletic/6518997/2025/07/27/cc-sabathia-hall-of-fame-yankees-derek-jeter-alex-rodriguez/
-
-**Dustin May's uneven season continues in key start ahead of trade deadline**\
-`May had a lead when the fifth inning began and a chance to rewrite the story of his season. Instead, it was more of the same.`\
-https://nytimes.com/athletic/6519019/2025/07/27/dustin-may-dodgers-trade-deadline/
 

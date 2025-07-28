@@ -1,3 +1,7 @@
+**Kepner: In the vintage village of Cooperstown, it's still how you play the game that counts**\
+`The Baseball Hall of Fame's idealized vision was on full display as the institution welcomed its five newest members on Sunday. `\
+https://nytimes.com/athletic/6519286/2025/07/27/baseball-hall-of-fame-ichiro-sandberg-wagner-sabathia-parker-allen/
+
 **Phillies takeaways: Zack Wheeler's off day, Otto Kemp powers up, trade deadline nears**\
 `Plus more on J.T. Realmuto's sensational jump-tag and what's setting up to be a tight divisional race against the Mets. `\
 https://nytimes.com/athletic/6519089/2025/07/27/phillies-zack-wheeler-otto-kemp-yankees/
