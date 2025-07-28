@@ -1,3 +1,7 @@
+**Cowboys offensive line depth takes hit as guard Robert Jones suffers neck injury**\
+`Jones, who was getting first-team reps at right guard in front of rookie first-round pick Tyler Booker, will be out 2-3 months.`\
+https://nytimes.com/athletic/6519982/2025/07/28/cowboys-robert-jones-neck-injury/
+
 **Manhunt Underway in Arkansas After Couple Is Killed in State Park**\
 `The couple were hiking with their two daughters on Saturday when they were attacked, according to the police, who asked for help in searching for a suspect.`\
 https://nytimes.com/2025/07/28/us/arkansas-murder-devils-den-state-park.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6516925/2025/07/28/aaron-ramsdale-newcastle-southam
 **Making Sense of the E.U. Trade Deal**\
 `Questions, critiques and discrepancies are hanging over the framework agreement, but investors seem to view it as a win all the same.`\
 https://nytimes.com/2025/07/28/business/dealbook/trump-eu-trade-deal.html
-
-**In a First, Leading Israeli Rights Groups Accuse Israel of Gaza Genocide**\
-`Israel says it is fighting against Hamas, not Palestinians as a group. But two of Israel’s best-known rights groups — long critical of Israeli policy — now say they disagree.`\
-https://nytimes.com/2025/07/28/world/middleeast/israel-genocide-gaza-rights-groups.html
 
