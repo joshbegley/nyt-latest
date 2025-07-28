@@ -1,3 +1,7 @@
+**Study May Undercut Idea That Cash Payments to Poor Families Help Child Development**\
+`Rigorous new research appears to show that monthly checks intended to help disadvantaged children did little for their well-being, adding a new element to a dispute over expanded government aid.`\
+https://nytimes.com/2025/07/28/us/politics/cash-payments-poor-families-child-development.html
+
 **Gunfire Breaks Out at Investment Bank Headquarters on Park Avenue**\
 `At least one person was shot, and the building that houses the investment company Blackstone was in lockdown in Manhattan.`\
 https://nytimes.com/2025/07/28/nyregion/gunfire-park-avenue-building-nyc.html
