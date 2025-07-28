@@ -1,3 +1,11 @@
+**Why We Almost Got a MAGA-Branded Instant Pot**\
+`Instant Brands announced a new line of pots emblazoned with the slogan “Make America Great Again.” David Fahrenthold explains what’s behind this decision and explores the link between this brand and others that have created Trump-related products.`\
+https://nytimes.com/video/business/100000010304170/why-we-almost-got-a-maga-branded-instant-pot.html
+
+**Titans waive injured 2022 first-round pick Treylon Burks**\
+`The Titans selected the former Arkansas standout with a first-round pick in the 2022 NFL Draft.`\
+https://nytimes.com/athletic/6521109/2025/07/28/titans-waive-treylon-burks/
+
 **Tracking Tropical Storm Keli**\
 `See the likely path and wind arrival times for Keli`\
 https://nytimes.com/interactive/2025/07/28/weather/keli-storm-map-path-tracker.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6520538/2025/07/28/lions-training-camp-john-morton-
 **Project 2025 Architect Is Challenging Lindsey Graham for Senate**\
 `Paul Dans will run in the South Carolina primary highlighting the work of Project 2025, a conservative blueprint that President Trump has employed during his second term.`\
 https://nytimes.com/2025/07/28/us/politics/paul-dans-project-2025-lindsey-graham.html
-
-**How Aaron Judge's injury affected AL MVP odds**\
-`The AL MVP odds flipped in Cal Raleigh's favor after Aaron Judge landed on the injured list.`\
-https://nytimes.com/athletic/6520677/2025/07/28/cal-raleigh-al-mvp-favorite-aaron-judge-injury/
-
-**Mamdani Has Done Something Special. Progressives Need Black Voters to Make It Last.**\
-`The progressive left has often struggled to win over older Black voters. There are ways to fix this.`\
-https://nytimes.com/2025/07/28/opinion/zohran-mamdani-progressives-left-black-voters.html
 
