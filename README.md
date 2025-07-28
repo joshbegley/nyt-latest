@@ -1,3 +1,7 @@
+**U.S. Diplomats Will Join Thailand-Cambodia Cease-Fire Talks, Rubio Says**\
+`Negotiations to end the border conflict, which has killed dozens of people since it began last week, are scheduled for Monday in Malaysia’s capital.`\
+https://nytimes.com/2025/07/28/world/asia/thailand-cambodia-ceasefire-talks.html
+
 **Monday Briefing: Ukraine’s Other War**\
 `Plus, a U.S.-E.U. trade deal.`\
 https://nytimes.com/2025/07/28/briefing/ukraine-protests-europe-us-trade-deal.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6506577/2025/07/28/viktor-gyokeres-arsenal-past-tea
 **David Moyes interview: Everton ambitions, transfer troubles and pre-season differences**\
 `The Everton manager has seen it all in his long career but has lost none of his passion - as The Athletic finds out in New Jersey`\
 https://nytimes.com/athletic/6518167/2025/07/28/david-moyes-interview-everton-transfers-ambition/
-
-**Spain may not have won - but at least this tournament shows how much has changed**\
-`For years, Spain's players were hampered by a lack of off-field support. But Euro 2025 showed their fight for elite conditions has paid off`\
-https://nytimes.com/athletic/6518337/2025/07/28/spain-euro-2025-how-things-have-changed/
 
