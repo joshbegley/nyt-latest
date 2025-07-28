@@ -1,3 +1,7 @@
+**Passengers Evacuate Burning Plane in Denver**\
+`Passengers rushed out of an American Airlines plane after the pilot ordered them to evacuate because of a fire. The flight was headed to Miami from Denver International Airport.`\
+https://nytimes.com/video/us/100000010308392/american-airlines-denver-flight.html
+
 **Seth Lugo, Royals finalize multiyear extension, taking trade deadline target off board: Source**\
 `The 35-year-old finished second in AL Cy Young Award voting in 2024 after starting a league-leading 33 games. `\
 https://nytimes.com/athletic/6519358/2025/07/27/royals-seth-lugo-extension/
