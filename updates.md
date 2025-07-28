@@ -1,3 +1,15 @@
+**Evaluating 21 MLB deadline trade proposals from readers: Who says no?**\
+`Our resident general manager, Jim Bowden, evaluated 21 trade scenarios from both sides and answered "Who says no?" Let's make a deal!`\
+https://nytimes.com/athletic/6518481/2025/07/28/mlb-trade-deadline-scenarios-teams-targets/
+
+**Sunderland agree €20m deal with Leverkusen for Xhaka**\
+`The newly-promoted Premier League club are set to pay Leverkusen €15m up front with a further €5m in potential add-ons.`\
+https://nytimes.com/athletic/6498164/2025/07/28/granit-xhaka-sunderland-transfer/
+
+**Gretchen Walsh gives illness-slowed Americans their first gold at swimming worlds**\
+`On Day 2 of the world championships, Walsh delivered the first U.S. gold, while Canadian star Summer McIntosh will go for her second.`\
+https://nytimes.com/athletic/6519391/2025/07/28/gretchen-walsh-summer-mcintosh-swimming-world-championships-butterfly-im/
+
 **Viktor Gyokeres to Arsenal: Everything you need to know - TLDR**\
 `Arsenal have finally signed the No 9 they have been after - here, we break down the deal`\
 https://nytimes.com/athletic/6478302/2025/07/28/viktor-gyokeres-arsenal-transfer-analysis/

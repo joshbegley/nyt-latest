@@ -1,3 +1,23 @@
+**Despite Bombing, Some Remain at Thailand-Cambodia Border**\
+`Hundreds of thousands of civilians have fled the Thailand-Cambodia border area where violence has erupted. However, a few have chosen to not evacuate.`\
+https://nytimes.com/video/world/asia/100000010308433/thailand-cambodia-border-civilians.html
+
+**Meet Hato, the Ajax teenager on cusp of Chelsea move: 'I want to achieve big things'**\
+`Jorrel Hato might be young, but the Dutch centre-back is used to taking responsibility in Amsterdam, as The Athletic found out last year`\
+https://nytimes.com/athletic/6519740/2025/07/28/jorrel-hato-chelsea-transfer-interview/
+
+**Notre Dame's 10 most interesting players to watch in preseason camp**\
+`There might only be a few starters from this group, but this collection of players may be key to rounding out the roster.`\
+https://nytimes.com/athletic/6518123/2025/07/28/notre-dame-preseason-practice-kenny-minchey/
+
+**Mavericks depth chart: Can a double-big lineup help Dallas return to the NBA postseason?**\
+`Dallas is counting on its sheer size and potential to be a dominant defensive team. `\
+https://nytimes.com/athletic/6511666/2025/07/28/mavericks-depth-chart-cooper-flagg-anthony-davis/
+
+**4 burning questions for the Wild as the Kaprizov, Rossi contract situations remain unresolved**\
+`What if Kaprizov doesn't want to re-sign? What if he wants $18 million? How does it impact Rossi's situation, and vice versa?`\
+https://nytimes.com/athletic/6515489/2025/07/28/wild-burning-questions-kaprizov-rossi/
+
 **Evaluating 21 MLB deadline trade proposals from readers: Who says no?**\
 `Our resident general manager, Jim Bowden, evaluated 21 trade scenarios from both sides and answered "Who says no?" Let's make a deal!`\
 https://nytimes.com/athletic/6518481/2025/07/28/mlb-trade-deadline-scenarios-teams-targets/
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/6478302/2025/07/28/viktor-gyokeres-arsenal-transfer
 **Shaolin ‘C.E.O. Monk’ Is Accused of Embezzlement and Affairs With Women**\
 `China’s famed Shaolin Temple said its celebrity abbot, Shi Yongxin, was under investigation over misuse of funds and “improper relations” with women.`\
 https://nytimes.com/2025/07/28/world/asia/shaolin-monk-embezzlement-women.html
-
-**Severe Storms, and a Possible Derecho, Threaten the Northern U.S. Plains**\
-`The most intense storms, with wind gusts potentially exceeding 75 m.p.h., were forecast for central and eastern South Dakota and southwestern Minnesota.`\
-https://nytimes.com/2025/07/28/weather/storms-derecho-winds-tornado-south-dakota-minnesota.html
-
-**Ravens determined to right their wrongs of the past by prioritizing the little things**\
-`Baltimore's players are holding themselves accountable this season in hopes of answering the one big question that looms over them. `\
-https://nytimes.com/athletic/6519341/2025/07/28/baltimore-ravens-training-camp-super-bowl/
-
-**The Pulse: Women’s soccer summer returns stateside**\
-`Welcome to The Pulse, The Athletic's daily newsletter.`\
-https://nytimes.com/athletic/6519574/2025/07/28/nwsl-second-half-euros-the-pulse/
-
-**UEFA Women's Euro 2025: Best player, favourite moments, biggest disappointments and more**\
-`Our team of writers reflect on the 2025 UEFA Women's Euros and pick their favourite moments, quotes and lessons learned`\
-https://nytimes.com/athletic/6519181/2025/07/28/uefa-womens-euro-2025-best-player-favourite-moments-biggest-disappointments-and-more/
-
-**How the Big Ten rallied around a CFP plan no one else is sold on**\
-`Coaches and ADs were in lockstep with Tony Petitti’s vision for an access-based CFP field rather than one dependent upon a committee.`\
-https://nytimes.com/athletic/6518162/2025/07/28/big-ten-college-football-playoff-format/
 
