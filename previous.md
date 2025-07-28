@@ -1,9 +1,5 @@
-**Michael Ochs, Top Collector of Rock ’n’ Roll Photos, Dies at 82**\
-`He surveyed the trash of record companies, haggled with aging photographers and scoured estate sales, building an archive widely seen as unmatched.`\
-https://nytimes.com/2025/07/27/obituaries/michael-ochs-dead.html
-
 **Joe Ryan 'would like to stay' with Twins; Derek Falvey talks trade deadline plans**\
-`Nearly everything points to the Twins being sellers at the trade deadline, but will they stop at dealing impending free agents?`\
+`Nearly everything points to the Twins' being sellers at the trade deadline, but will they stop at dealing impending free agents?`\
 https://nytimes.com/athletic/6517707/2025/07/27/twins-joe-ryan-derek-falvey-trade-deadline/
 
 **Our 5 favorite lessons from Ichiro, CC Sabathia and the 2025 Baseball Hall of Fame inductees**\
@@ -37,4 +33,8 @@ https://nytimes.com/2025/07/27/world/middleeast/gaza-starvation-reporters-israel
 **Nick Bosa has always set an example, but now he's letting 49ers' young DL hear it**\
 `The 49ers are hoping first-round pick Mykel Williams benefits from the leadership and experience Nick Bosa is bringing to camp.`\
 https://nytimes.com/athletic/6518962/2025/07/27/49ers-training-camp-nick-bosa-mykel-williams/
+
+**Bubba Wallace crowned Brickyard 400 winner, snaps 100-race winless streak**\
+`It was the first win for Wallace since 2022 and launched him into NASCAR’s playoffs after he failed to make the field last season.`\
+https://nytimes.com/athletic/6519033/2025/07/27/bubba-wallace-brickyard-400-23-xi-nascar/
 
