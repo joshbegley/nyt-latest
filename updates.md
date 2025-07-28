@@ -1,3 +1,11 @@
+**European Carmakers Welcome, and Worry, About U.S. Tariff Deal**\
+`German auto companies embraced greater clarity but warned that even the lower rate of tariffs agreed between Brussels and Washington would still hurt.`\
+https://nytimes.com/2025/07/28/us/politics/tariffs-eu-deal-cars.html
+
+**Newcastle working on deal for Southampton's Ramsdale**\
+`Newcastle have made an offer for an initial loan with an option to buy. Talks are ongoing between clubs but there is no agreement as yet.`\
+https://nytimes.com/athletic/6516925/2025/07/28/aaron-ramsdale-newcastle-southampton-transfer/
+
 **Making Sense of the E.U. Trade Deal**\
 `Questions, critiques and discrepancies are hanging over the framework agreement, but investors seem to view it as a win all the same.`\
 https://nytimes.com/2025/07/28/business/dealbook/trump-eu-trade-deal.html
