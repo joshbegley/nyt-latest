@@ -1,3 +1,7 @@
+**Eve Jobs’s Wedding in the Cotswolds is Peak Quiet Luxury**\
+`Eve Jobs, the youngest daughter of Steve Jobs and Laurene Powell Jobs, is rumored to have married in the English countryside, further cementing the Cotswolds as a hot spot for lavish weddings.`\
+https://nytimes.com/2025/07/28/style/eve-jobss-wedding-the-cotswolds.html
+
 **Why Lions OC John Morton spent his summer in the lab: Training camp news and notes**\
 `It looks like the center competition between Tate Ratledge and Graham Glasgow may be winding down.`\
 https://nytimes.com/athletic/6520538/2025/07/28/lions-training-camp-john-morton-graham-glasgow/
