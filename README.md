@@ -1,3 +1,7 @@
+**Dodgers slated to call up infield prospect Alex Freeland: Source**\
+`The club has been in need of another versatile option of late due to injuries.`\
+https://nytimes.com/athletic/6521432/2025/07/28/los-angeles-dodgers-alex-freeland-call-up/
+
 **Live Q&A: Mets trade deadline talk with Tim Britton and Will Sammon at 11 a.m. ET Tuesday**\
 `The Mets have a chance to bolster their roster for the stretch drive. What will they do at the trade deadline?`\
 https://nytimes.com/athletic/6521445/2025/07/28/mets-live-deadline-questions/
@@ -12,7 +16,7 @@ https://nytimes.com/athletic/6521431/2025/07/28/cubs-mlb-trade-deadline-live-cha
 
 **Officer and 2 Others Are Shot at Investment Giant’s Park Avenue Tower**\
 `A police officer and two other people were wounded, and the building that houses the finance firm Blackstone was in lockdown Monday evening.`\
-https://nytimes.com/2025/07/28/nyregion/gunfire-park-avenue-building-nyc.html
+https://nytimes.com/2025/07/28/nyregion/nyc-shooting-blackstone-midtown.html
 
 **N.J. Criminal Cases Screech to a Halt as Habba’s Authority Is Challenged**\
 `Federal court hearings, grand jury proceedings and plea deals were abruptly canceled in New Jersey over questions about whether Alina Habba, the acting U.S. attorney, was legally appointed.`\
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/28/us/politics/cash-payments-poor-families-child-dev
 **The Upside of Suing Trump**\
 `After Big Law backed off from challenging the government, smaller firms have stepped up their efforts.`\
 https://nytimes.com/2025/07/28/us/politics/law-firms-trump-administration.html
-
-**Live Q&A: Braves trade deadline talk with David O'Brien at noon ET Tuesday**\
-`The Braves are struggling. What will they do at the trade deadline? `\
-https://nytimes.com/athletic/6521297/2025/07/28/braves-live-deadline-questions/
 

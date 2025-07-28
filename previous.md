@@ -1,5 +1,17 @@
-**Gunfire Breaks Out at Investment Bank Headquarters on Park Avenue**\
-`At least one person was shot, and the building that houses the investment company Blackstone was in lockdown in Manhattan.`\
+**Live Q&A: Mets trade deadline talk with Tim Britton and Will Sammon at 11 a.m. ET Tuesday**\
+`The Mets have a chance to bolster their roster for the stretch drive. What will they do at the trade deadline?`\
+https://nytimes.com/athletic/6521445/2025/07/28/mets-live-deadline-questions/
+
+**Trump Says He Declined Epstein’s Invitation to Visit His Island: ‘I Never Had the Privilege of Going’**\
+`The comments came as part of the president’s efforts to distract, deny and deflect from his long-running relationship with Jeffrey Epstein.`\
+https://nytimes.com/2025/07/28/us/politics/trump-epstein-files-island.html
+
+**Live trade deadline Q&A with Cubs writer Patrick Mooney on Tuesday at 10 a.m. CT**\
+`Submit your questions about what Chicago might do at the deadline in a live chat.`\
+https://nytimes.com/athletic/6521431/2025/07/28/cubs-mlb-trade-deadline-live-chat-patrick-mooney/
+
+**Officer and 2 Others Are Shot at Investment Giant’s Park Avenue Tower**\
+`A police officer and two other people were wounded, and the building that houses the finance firm Blackstone was in lockdown Monday evening.`\
 https://nytimes.com/2025/07/28/nyregion/gunfire-park-avenue-building-nyc.html
 
 **N.J. Criminal Cases Screech to a Halt as Habba’s Authority Is Challenged**\
@@ -25,16 +37,4 @@ https://nytimes.com/2025/07/28/us/politics/law-firms-trump-administration.html
 **Live Q&A: Braves trade deadline talk with David O'Brien at noon ET Tuesday**\
 `The Braves are struggling. What will they do at the trade deadline? `\
 https://nytimes.com/athletic/6521297/2025/07/28/braves-live-deadline-questions/
-
-**Caitlin Clark stalker sentenced to 2 years in prison for threatening star**\
-`Michael Lewis admitted to sending Clark more than 800 threatening social media messages between Dec. 12, 2024, and Jan. 11, 2025.`\
-https://nytimes.com/athletic/6521317/2025/07/28/caitlin-clark-stalker-michael-lewis-sentenced/
-
-**Trade grade: Brewers add catching help, pick up Danny Jansen from Rays**\
-`Jansen, 30, will go to the Brewers in exchange for High-A infielder Jadher Areinamo.`\
-https://nytimes.com/athletic/6521281/2025/07/28/danny-jansen-brewers-rays-trade/
-
-**Vance Embraces Role of Loyal Trump Warrior, Shifting Away From Past Stances**\
-`The vice president has defended the administration’s handling of U.S. military engagement abroad and the Epstein files, even when those positions put him at odds with the right wing.`\
-https://nytimes.com/2025/07/28/us/politics/vance-trump-ukraine-epstein.html
 
