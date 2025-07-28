@@ -1,3 +1,7 @@
+**Europe Cuts a Trade Deal With Trump, Worried About Other Global Issues**\
+`The framework agreement will likely not do much for economic growth on either side. But it avoids new fissures on other foreign policy issues, particularly the war in Ukraine.`\
+https://nytimes.com/2025/07/28/world/europe/europe-trade-deal-trump.html
+
 **How Parenting Changed After Etan Patz**\
 `Did the shocking disappearance of a 6-year-old in 1979 forever alter how Americans raised children? Or were there other reasons for parents to be anxious?`\
 https://nytimes.com/2025/07/28/nyregion/parenting-etan-patz.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/28/learning/word-of-the-day-lagniappe.html
 **Luis Diaz heads for Anfield exit: What it means for his legacy and Liverpool's transfer plans**\
 `Diaz made an instant impact at Anfield, but his departure now makes sense for both Liverpool and the player`\
 https://nytimes.com/athletic/6519367/2025/07/28/luis-diaz-liverpool-bayern-transfer/
-
-**Giants to promote pitching prospect Carson Whisenhunt for debut Monday vs. Pirates**\
-`"With what's gone on here … there's a need for it," Bob Melvin said. "It'll be exciting to see him pitch."`\
-https://nytimes.com/athletic/6519526/2025/07/28/giants-to-promote-carson-whisenhunt/
 
