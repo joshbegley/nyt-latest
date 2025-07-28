@@ -1,3 +1,7 @@
+**Royals, Seth Lugo finalize multiyear extension, taking trade deadline target off board: Source**\
+`The 35-year-old finished second in AL Cy Young Award voting in 2024 after starting a league-leading 33 games. `\
+https://nytimes.com/athletic/6519358/2025/07/27/royals-seth-lugo-extension/
+
 **Kepner: In the vintage village of Cooperstown, it's still how you play the game that counts**\
 `The Baseball Hall of Fame's idealized vision was on full display as the institution welcomed its five newest members on Sunday. `\
 https://nytimes.com/athletic/6519286/2025/07/27/baseball-hall-of-fame-ichiro-sandberg-wagner-sabathia-parker-allen/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6517707/2025/07/27/twins-joe-ryan-derek-falvey-trad
 **Our 5 favorite lessons from Ichiro, CC Sabathia and the 2025 Baseball Hall of Fame inductees**\
 `On Sunday, five greats were inducted into the Baseball Hall of Fame. These are five favorite lessons from their speeches.`\
 https://nytimes.com/athletic/6519170/2025/07/27/hall-of-fame-lessons-baseball-cooperstown-ichiro/
-
-**O'Connor: CC Sabathia’s biggest Yankees win was healing Derek Jeter-Alex Rodriguez divide**\
-`On the day of Sabathia's Hall fo Fame induction, it's worth remembering the most valuable personality on Yankees' 2009 championship team.`\
-https://nytimes.com/athletic/6518997/2025/07/27/cc-sabathia-hall-of-fame-yankees-derek-jeter-alex-rodriguez/
 
