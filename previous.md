@@ -1,3 +1,7 @@
+**Tracking Tropical Storm Iona**\
+`See the likely path and wind arrival times for Iona`\
+https://nytimes.com/interactive/2025/07/28/weather/iona-storm-tracker.html
+
 **France Rebukes E.U.’s Trade Deal With Trump**\
 `Some French cabinet members have aired their sharp disapproval of the deal, including the country’s prime minister who called it “a dark day.”`\
 https://nytimes.com/2025/07/28/us/politics/trump-eu-trade-deal-france.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/world/asia/100000010308433/thailand-cambodia-border-ci
 **Meet Hato, the Ajax teenager on cusp of Chelsea move: 'I want to achieve big things'**\
 `Jorrel Hato might be young, but the Dutch centre-back is used to taking responsibility in Amsterdam, as The Athletic found out last year`\
 https://nytimes.com/athletic/6519740/2025/07/28/jorrel-hato-chelsea-transfer-interview/
-
-**Notre Dame's 10 most interesting players to watch in preseason camp**\
-`There might only be a few starters from this group, but this collection of players may be key to rounding out the roster.`\
-https://nytimes.com/athletic/6518123/2025/07/28/notre-dame-preseason-practice-kenny-minchey/
 

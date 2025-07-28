@@ -1,3 +1,7 @@
+**Tracking Tropical Storm Iona**\
+`See the likely path and wind arrival times for Iona`\
+https://nytimes.com/interactive/2025/07/28/weather/iona-storm-tracker.html
+
 **France Rebukes E.U.’s Trade Deal With Trump**\
 `Some French cabinet members have aired their sharp disapproval of the deal, including the country’s prime minister who called it “a dark day.”`\
 https://nytimes.com/2025/07/28/us/politics/trump-eu-trade-deal-france.html
