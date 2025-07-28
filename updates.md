@@ -1,3 +1,15 @@
+**The Upside of Suing Trump**\
+`After Big Law backed off from challenging the government, smaller firms have stepped up their efforts.`\
+https://nytimes.com/2025/07/28/us/politics/law-firms-trump-administration.html
+
+**Live Q&A: Braves trade deadline talk with David O'Brien at noon ET Tuesday**\
+`The Braves are struggling. What will they do at the trade deadline? `\
+https://nytimes.com/athletic/6521297/2025/07/28/braves-live-deadline-questions/
+
+**Trade grade: Brewers add catching help, pick up Danny Jansen from Rays**\
+`Jansen, 30, will go to the Brewers in exchange for High-A infielder Jadher Areinamo.`\
+https://nytimes.com/athletic/6521281/2025/07/28/danny-jansen-brewers-rays-trade/
+
 **Trade grade: Brewers add catching help in Danny Jansen deal with Rays**\
 `Jansen, 30, will go to the Brewers in exchange for High-A infielder Jadher Areinamo.`\
 https://nytimes.com/athletic/6521281/2025/07/28/danny-jansen-brewers-rays-trade/
