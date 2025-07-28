@@ -1,3 +1,15 @@
+**Evaluating 21 MLB deadline trade proposals from readers: Who says no?**\
+`Our resident general manager, Jim Bowden, evaluated 21 trade scenarios from both sides and answered "Who says no?" Let's make a deal!`\
+https://nytimes.com/athletic/6518481/2025/07/28/mlb-trade-deadline-scenarios-teams-targets/
+
+**Sunderland agree €20m deal with Leverkusen for Xhaka**\
+`The newly-promoted Premier League club are set to pay Leverkusen €15m up front with a further €5m in potential add-ons.`\
+https://nytimes.com/athletic/6498164/2025/07/28/granit-xhaka-sunderland-transfer/
+
+**Gretchen Walsh gives illness-slowed Americans their first gold at swimming worlds**\
+`On Day 2 of the world championships, Walsh delivered the first U.S. gold, while Canadian star Summer McIntosh will go for her second.`\
+https://nytimes.com/athletic/6519391/2025/07/28/gretchen-walsh-summer-mcintosh-swimming-world-championships-butterfly-im/
+
 **Viktor Gyokeres to Arsenal: Everything you need to know - TLDR**\
 `Arsenal have finally signed the No 9 they have been after - here, we break down the deal`\
 https://nytimes.com/athletic/6478302/2025/07/28/viktor-gyokeres-arsenal-transfer-analysis/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6519181/2025/07/28/uefa-womens-euro-2025-best-playe
 **How the Big Ten rallied around a CFP plan no one else is sold on**\
 `Coaches and ADs were in lockstep with Tony Petitti’s vision for an access-based CFP field rather than one dependent upon a committee.`\
 https://nytimes.com/athletic/6518162/2025/07/28/big-ten-college-football-playoff-format/
-
-**Diego Luna is shooting for the moon**\
-`Real Salt Lake's star has seized his moments with the USMNT. So how does he ensure this past summer isn't his international peak?`\
-https://nytimes.com/athletic/6515671/2025/07/28/diego-luna-usmnt-real-salt-lake-mls/
-
-**This Week in Mets: What does New York really need at the trade deadline?**\
-`President of baseball operations David Stearns has singled out center field as the logical area for an offensive upgrade.`\
-https://nytimes.com/athletic/6519442/2025/07/28/this-week-in-mets-trade-deadline-needs-center-field/
-
-**C. Notes: Reds find themselves in thick of the race at trade deadline**\
-`The Reds are a season-best six games over .500, just one game behind the Padres for the third spot in the NL wild-card race.`\
-https://nytimes.com/athletic/6519219/2025/07/28/reds-rays-notes-trade-deadline-tj-friedl/
 

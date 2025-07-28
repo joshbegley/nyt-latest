@@ -1,3 +1,15 @@
+**Viktor Gyokeres to Arsenal: Everything you need to know - TLDR**\
+`Arsenal have finally signed the No 9 they have been after - here, we break down the deal`\
+https://nytimes.com/athletic/6478302/2025/07/28/viktor-gyokeres-arsenal-transfer-analysis/
+
+**Shaolin ‘C.E.O. Monk’ Is Accused of Embezzlement and Affairs With Women**\
+`China’s famed Shaolin Temple said its celebrity abbot, Shi Yongxin, was under investigation over misuse of funds and “improper relations” with women.`\
+https://nytimes.com/2025/07/28/world/asia/shaolin-monk-embezzlement-women.html
+
+**Ravens determined to right their wrongs of the past by prioritizing the little things**\
+`Baltimore's players are holding themselves accountable this season in hopes of answering the one big question that looms over them. `\
+https://nytimes.com/athletic/6519341/2025/07/28/baltimore-ravens-training-camp-super-bowl/
+
 **Severe Storms, and a Possible Derecho, Threaten the Northern U.S. Plains**\
 `The most intense storms, with wind gusts potentially exceeding 75 m.p.h., were forecast for central and eastern South Dakota and southwestern Minnesota.`\
 https://nytimes.com/2025/07/28/weather/storms-derecho-winds-tornado-south-dakota-minnesota.html

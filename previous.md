@@ -1,9 +1,17 @@
+**Viktor Gyokeres to Arsenal: Everything you need to know - TLDR**\
+`Arsenal have finally signed the No 9 they have been after - here, we break down the deal`\
+https://nytimes.com/athletic/6478302/2025/07/28/viktor-gyokeres-arsenal-transfer-analysis/
+
+**Shaolin ‘C.E.O. Monk’ Is Accused of Embezzlement and Affairs With Women**\
+`China’s famed Shaolin Temple said its celebrity abbot, Shi Yongxin, was under investigation over misuse of funds and “improper relations” with women.`\
+https://nytimes.com/2025/07/28/world/asia/shaolin-monk-embezzlement-women.html
+
 **Severe Storms, and a Possible Derecho, Threaten the Northern U.S. Plains**\
 `The most intense storms, with wind gusts potentially exceeding 75 m.p.h., were forecast for central and eastern South Dakota and southwestern Minnesota.`\
 https://nytimes.com/2025/07/28/weather/storms-derecho-winds-tornado-south-dakota-minnesota.html
 
 **Ravens determined to right their wrongs of the past by prioritizing the little things**\
-`OWINGS MILLS, Md.`\
+`Baltimore's players are holding themselves accountable this season in hopes of answering the one big question that looms over them. `\
 https://nytimes.com/athletic/6519341/2025/07/28/baltimore-ravens-training-camp-super-bowl/
 
 **The Pulse: Women’s soccer summer returns stateside**\
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6519442/2025/07/28/this-week-in-mets-trade-deadline
 **C. Notes: Reds find themselves in thick of the race at trade deadline**\
 `The Reds are a season-best six games over .500, just one game behind the Padres for the third spot in the NL wild-card race.`\
 https://nytimes.com/athletic/6519219/2025/07/28/reds-rays-notes-trade-deadline-tj-friedl/
-
-**Live Q&A: Red Sox trade deadline talk with Jen McCaffrey at 2 p.m. ET Tuesday**\
-`The Red Sox are fighting for a playoff spot. Will Craig Breslow make good on his goal of fortifying the team?`\
-https://nytimes.com/athletic/6519310/2025/07/28/live-qa-red-sox-trade-deadline/
-
-**Where the 2024 blue-chip quarterback recruits stand**\
-`Year 2 has become a well-established inflection point for most college quarterbacks. That’s when business decisions are made. On both sides.`\
-https://nytimes.com/athletic/6518095/2025/07/28/quarterback-recruiting-2024-sayin-carr-lagway/
 
