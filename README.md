@@ -1,3 +1,11 @@
+**Where Is the Economy Going? A ‘Monster Week’ of News Could Help Decide.**\
+`This week will bring a flood of economic data, as well as major policy decisions on trade and interest rates.`\
+https://nytimes.com/2025/07/28/business/where-is-the-economy-going-a-monster-week-of-news-could-help-decide.html
+
+**Lowetide: Projecting Oilers’ opening-night defence pairings, goalies for 2025-26**\
+`Entering the period leading up to training camp, Edmonton's defensive pairings and goaltending depth charts appear more settled.`\
+https://nytimes.com/athletic/6518350/2025/07/28/edmonton-oilers-defence-goalies-2025-26/
+
 **gws-tiny-house-championship-skillsusa-teamworks**\
 `(No description)`\
 https://nytimes.com/newsgraphics/card-story/tiny-house-championship-skillsusa-teamworks
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6519978/2025/07/28/england-india-row-spirit-cricket
 **The Windup: Deadline week already moving**\
 `The Windup is The Athletic's baseball newsletter.`\
 https://nytimes.com/athletic/6520035/2025/07/28/mlb-trade-deadline-week-the-windup/
-
-**Cowboys offensive line depth takes hit as guard Robert Jones suffers neck injury**\
-`Jones, who was getting first-team reps at right guard in front of rookie first-round pick Tyler Booker, will be out 2-3 months.`\
-https://nytimes.com/athletic/6519982/2025/07/28/cowboys-robert-jones-neck-injury/
-
-**Manhunt Underway in Arkansas After Couple Is Killed in State Park**\
-`The couple were hiking with their two daughters on Saturday when they were attacked, according to the police, who asked for help in searching for a suspect.`\
-https://nytimes.com/2025/07/28/us/arkansas-murder-devils-den-state-park.html
 
