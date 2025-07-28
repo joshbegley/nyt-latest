@@ -1,3 +1,11 @@
+**Morecambe facing National League expulsion amid financial woes**\
+`The Lancashire-based club are already under a transfer embargo and have now had its first three league fixtures postponed.`\
+https://nytimes.com/athletic/6520356/2025/07/28/morecambe-national-league-expelled/
+
+**Tour de France Femmes: Lorena Wiebes claims sprint stage win, Demi Vollering crashes, Vos back in yellow**\
+`See the results from Stage 3 here as The Athletic covers the Tour de France Femmes. `\
+https://nytimes.com/athletic/6519734/2025/07/28/tour-de-france-femmes-lorena-wiebes-sprint-win-crash-demi-vollering/
+
 **‘Total Failure’: Israel’s Return to War Heaped Ruin on Gaza and Did Little for Israelis**\
 `Israel ended a truce in Gaza in March, hoping to break Hamas. The move has heightened suffering for Palestinians but achieved few, if any, Israeli goals.`\
 https://nytimes.com/2025/07/28/world/israel-gaza-hamas-all-out-war-failure.html
