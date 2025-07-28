@@ -1,3 +1,7 @@
+**Why Lions OC John Morton spent his summer in the lab: Training camp news and notes**\
+`It looks like the center competition between Tate Ratledge and Graham Glasgow may be winding down.`\
+https://nytimes.com/athletic/6520538/2025/07/28/lions-training-camp-john-morton-graham-glasgow/
+
 **Project 2025 Architect Is Challenging Lindsey Graham for Senate**\
 `Paul Dans will run in the South Carolina primary highlighting the work of Project 2025, a conservative blueprint that President Trump has employed during his second term.`\
 https://nytimes.com/2025/07/28/us/politics/paul-dans-project-2025-lindsey-graham.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5739701/2025/07/28/reinier-jesus-real-madrid-brazil
 **After Bryce Harper-Rob Manfred clubhouse spat, Mark DeRosa warned Phillies of commish's power**\
 `DeRosa insisted he was joking with his comments, but players present didn't take it that way. `\
 https://nytimes.com/athletic/6520855/2025/07/28/bryce-harper-rob-manfred-mark-derosa-mlb-clubhouse-confrontation/
-
-**Who Pays for U.S. Tariffs, and Where Does the Money Go?**\
-`President Trump is seeking to raise federal revenue by imposing levies on goods from foreign nations. Here’s how the process works.`\
-https://nytimes.com/2025/07/28/business/economy/trump-tariffs-payment.html
 
