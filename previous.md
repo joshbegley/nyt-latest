@@ -1,3 +1,7 @@
+**Study Undercuts Idea That Cash Payments to Poor Families Help Child Development**\
+`Rigorous new research appears to show that monthly checks intended to help disadvantaged children did little for their well-being, adding a new element to a dispute over expanded government aid.`\
+https://nytimes.com/2025/07/28/us/politics/cash-payments-poor-families-child-development.html
+
 **The Upside of Suing Trump**\
 `After Big Law backed off from challenging the government, smaller firms have stepped up their efforts.`\
 https://nytimes.com/2025/07/28/us/politics/law-firms-trump-administration.html
@@ -19,7 +23,7 @@ https://nytimes.com/athletic/6521281/2025/07/28/danny-jansen-brewers-rays-trade/
 https://nytimes.com/2025/07/28/us/politics/vance-trump-ukraine-epstein.html
 
 **Nationals top pitching prospect Travis Sykora to have Tommy John surgery**\
-`Sykora was the No. 51 prospect in baseball, and the Nationals' top pitching prospect.`\
+`Sykora was the No. 51 prospect in baseball and a third-round pick in 2023. "He'd gotten off to a tremendous start."`\
 https://nytimes.com/athletic/6521269/2025/07/28/washington-nationals-travis-sykora-tommy-john/
 
 **3 Out of 5 Liver Cancer Cases Are Preventable, Study Finds**\
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/28/us/politics/trump-religion-work.html
 **Packers training camp: Elgton Jenkins returns and doesn't care about the money**\
 `There are financial implications of switching from left guard to center, but Jenkins said he's not thinking about them anymore.`\
 https://nytimes.com/athletic/6521112/2025/07/28/packers-training-camp-elgton-jenkins/
-
-**Paige Bueckers is back to face the reigning champs. Here's how to watch Liberty-Wings**\
-`The WNBA's top rookie goes against the league's defending champions, as Paige Bueckers gets another primetime broadcast on Monday night.`\
-https://nytimes.com/athletic/6520694/2025/07/28/paige-bueckers-injury-breanna-stewart-liberty-wings-how-to-watch/
 

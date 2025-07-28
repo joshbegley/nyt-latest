@@ -1,3 +1,11 @@
+**Study Undercuts Idea That Cash Payments to Poor Families Help Child Development**\
+`Rigorous new research appears to show that monthly checks intended to help disadvantaged children did little for their well-being, adding a new element to a dispute over expanded government aid.`\
+https://nytimes.com/2025/07/28/us/politics/cash-payments-poor-families-child-development.html
+
+**Nationals top pitching prospect Travis Sykora to have Tommy John surgery**\
+`Sykora was the No. 51 prospect in baseball and a third-round pick in 2023. "He'd gotten off to a tremendous start."`\
+https://nytimes.com/athletic/6521269/2025/07/28/washington-nationals-travis-sykora-tommy-john/
+
 **The Upside of Suing Trump**\
 `After Big Law backed off from challenging the government, smaller firms have stepped up their efforts.`\
 https://nytimes.com/2025/07/28/us/politics/law-firms-trump-administration.html
