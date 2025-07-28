@@ -1,3 +1,15 @@
+**What We Talk About When We Talk About the Right of Return**\
+`My Palestinian mother-in-law has been displaced since 1948`\
+https://nytimes.com/2025/07/28/opinion/palestinians-right-of-return.html
+
+**The New York Times in Print for Monday, July 28, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/07/28/todays-new-york-times
+
+**U.S. Diplomats Will Join Thailand-Cambodia Cease-Fire Talks, Rubio Says**\
+`Negotiations to end the border conflict, which has killed dozens of people since it began last week, are scheduled for Monday in Malaysia’s capital.`\
+https://nytimes.com/2025/07/28/world/asia/thailand-cambodia-ceasefire-talks.html
+
 **Monday Briefing: Ukraine’s Other War**\
 `Plus, a U.S.-E.U. trade deal.`\
 https://nytimes.com/2025/07/28/briefing/ukraine-protests-europe-us-trade-deal.html

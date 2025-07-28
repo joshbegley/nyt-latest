@@ -1,3 +1,15 @@
+**What We Talk About When We Talk About the Right of Return**\
+`My Palestinian mother-in-law has been displaced since 1948`\
+https://nytimes.com/2025/07/28/opinion/palestinians-right-of-return.html
+
+**The New York Times in Print for Monday, July 28, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/07/28/todays-new-york-times
+
+**U.S. Diplomats Will Join Thailand-Cambodia Cease-Fire Talks, Rubio Says**\
+`Negotiations to end the border conflict, which has killed dozens of people since it began last week, are scheduled for Monday in Malaysia’s capital.`\
+https://nytimes.com/2025/07/28/world/asia/thailand-cambodia-ceasefire-talks.html
+
 **Monday Briefing: Ukraine’s Other War**\
 `Plus, a U.S.-E.U. trade deal.`\
 https://nytimes.com/2025/07/28/briefing/ukraine-protests-europe-us-trade-deal.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6518076/2025/07/28/inside-leeds-germany-training-ca
 **So, Viktor Gyokeres hasn't joined your club. Which other strikers could they target?**\
 `There are plenty of teams still looking for help up front in the summer transfer window - who are the best options out there?`\
 https://nytimes.com/athletic/6515904/2025/07/28/strikers-transfer-premier-league-viktor-gyokeres/
-
-**Viktor Gyokeres, as told by his team-mates and coaches**\
-`After modest beginnings and dropping down a level, ex-colleagues tell how the rise of Arsenal's new striker was based on grit and mindset`\
-https://nytimes.com/athletic/6506577/2025/07/28/viktor-gyokeres-arsenal-past-team-mates/
-
-**David Moyes interview: Everton ambitions, transfer troubles and pre-season differences**\
-`The Everton manager has seen it all in his long career but has lost none of his passion - as The Athletic finds out in New Jersey`\
-https://nytimes.com/athletic/6518167/2025/07/28/david-moyes-interview-everton-transfers-ambition/
-
-**Spain may not have won - but at least this tournament shows how much has changed**\
-`For years, Spain's players were hampered by a lack of off-field support. But Euro 2025 showed their fight for elite conditions has paid off`\
-https://nytimes.com/athletic/6518337/2025/07/28/spain-euro-2025-how-things-have-changed/
 
