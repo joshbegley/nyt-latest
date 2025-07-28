@@ -1,3 +1,15 @@
+**Would Sesko be a suitable replacement for Isak for Newcastle?**\
+`Alexander Isak wants to leave Newcastle. They would go all-in on Benjamin Sesko to replace him. Would it work?`\
+https://nytimes.com/athletic/6516756/2025/07/28/benjamin-sesko-newcastle-alexander-isak-analysis/
+
+**Morgan Gibbs-White's decision is the kind of 'win' Nottingham Forest deserve to revel in**\
+`Having star players spirited away is something Forest have experienced in the past. But not this time — and it feels good`\
+https://nytimes.com/athletic/6518567/2025/07/28/morgan-gibbs-white-contract-marinakis-nottingham-forest/
+
+**Inside Leeds' Germany training camp: Full-blooded challenges, paintball, and singing**\
+`Here, The Athletic takes you behind the scenes of what has played out over the past eight days in Germany`\
+https://nytimes.com/athletic/6518076/2025/07/28/inside-leeds-germany-training-camp/
+
 **So, Viktor Gyokeres hasn't joined your club. Which other strikers could they target?**\
 `There are plenty of teams still looking for help up front in the summer transfer window - who are the best options out there?`\
 https://nytimes.com/athletic/6515904/2025/07/28/strikers-transfer-premier-league-viktor-gyokeres/
