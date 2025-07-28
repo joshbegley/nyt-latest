@@ -1,3 +1,15 @@
+**Wallis Annenberg, Arts and Wildlife Philanthropist, Dies at 86**\
+`She put millions from her foundation into projects in Southern California, like a performing arts center in Beverly Hills and a wildlife crossing over the busy 101 freeway.`\
+https://nytimes.com/2025/07/28/us/wallis-annenberg-dead.html
+
+**Judge Indefinitely Blocks Withholding of Medicaid Funds to Planned Parenthood**\
+`A federal judge in Boston ruled that a provision in President Trump’s policy bill targeting the organization most likely amounted to retaliation.`\
+https://nytimes.com/2025/07/28/us/politics/planned-parenthood-medicaid-trump.html
+
+**Several People Injured in Shooting at Reno Casino Resort**\
+`The police said that the gunman was in custody after the attack at the Grand Sierra Resort and Casino.`\
+https://nytimes.com/2025/07/28/us/reno-shooting-casino.html
+
 **Scoop City: What's happening with Cam Ward?**\
 `The latest on the Titans No. 1 pick, plus insights on training camp competitions and injuries to stars like Justin Jefferson`\
 https://nytimes.com/athletic/6520476/2025/07/28/nfl-training-camp-cam-ward-titans-scoop-city/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6520356/2025/07/28/morecambe-national-league-expell
 **Tour de France Femmes: Lorena Wiebes claims sprint stage win, Demi Vollering crashes, Vos back in yellow**\
 `See the results from Stage 3 here as The Athletic covers the Tour de France Femmes. `\
 https://nytimes.com/athletic/6519734/2025/07/28/tour-de-france-femmes-lorena-wiebes-sprint-win-crash-demi-vollering/
-
-**‘Total Failure’: Israel’s Return to War Heaped Ruin on Gaza and Did Little for Israelis**\
-`Israel ended a truce in Gaza in March, hoping to break Hamas. The move has heightened suffering for Palestinians but achieved few, if any, Israeli goals.`\
-https://nytimes.com/2025/07/28/world/israel-gaza-hamas-all-out-war-failure.html
-
-**Submit a question for Jay King’s offseason Celtics mailbag**\
-`The Celtics have 14 players on standard contracts after waiving JD Davison last week.`\
-https://nytimes.com/athletic/6520223/2025/07/28/offseason-celtics-mailbag-jayson-tatum/
-
-**Erasing History in Our National Parks**\
-`Readers object to an executive order sanitizing troubling aspects of U.S. history. Also: “Dangerously irresponsible” policies; a home-schooling lag.`\
-https://nytimes.com/2025/07/28/opinion/us-history-national-parks.html
 
