@@ -1,3 +1,7 @@
+**What I'm hearing about Quentin Grimes' restricted free agency with the Sixers**\
+`The Athletic polled 16 people in NBA front offices, asking what they would deem a “fair” contract for Philadelphia's restricted free agent.`\
+https://nytimes.com/athletic/6522453/2025/07/29/quentin-grimes-nba-free-agency-76ers/
+
 **Tracy McGrady joining NBC Sports as NBA studio analyst**\
 `McGrady is a seven-time NBA All-Star and a member of the Naismith Memorial Hall of Fame Class of 2017.`\
 https://nytimes.com/athletic/6522485/2025/07/29/tracy-mcgrady-nbc-sports-studio-analyst/

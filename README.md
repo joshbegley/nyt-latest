@@ -1,3 +1,7 @@
+**Tour de France winner Pogacar to skip Vuelta: 'The body is telling me to rest'**\
+`Pogacar's absence means Joao Almeida and Juan Ayuso will co-lead UAE Team Emirates in Spain.`\
+https://nytimes.com/athletic/6522489/2025/07/29/tadej-pogacar-vuelta-almeida-ayuso/
+
 **What I'm hearing about Quentin Grimes' restricted free agency with the Sixers**\
 `The Athletic polled 16 people in NBA front offices, asking what they would deem a “fair” contract for Philadelphia's restricted free agent.`\
 https://nytimes.com/athletic/6522453/2025/07/29/quentin-grimes-nba-free-agency-76ers/
@@ -18,7 +22,7 @@ https://nytimes.com/2025/07/29/learning/i-was-a-small-sticky-god-of-summer-the-w
 `This year's Women’s Euros tournament averaged 458,000 viewers across Fox's networks, making it the most watched in English-language history.`\
 https://nytimes.com/athletic/6522326/2025/07/29/womens-euro-final-draw-2025-viewers/
 
-**Mavs hire new team president while preparing to build new arena**\
+**Mavs hire former Timberwolves CEO as team president**\
 `Ethan Casson, formerly of the Timberwolves, will run Dallas' day-to-day business operations.`\
 https://nytimes.com/athletic/6522479/2025/07/29/mavericks-arena-ethan-casson-nba-president/
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6522098/2025/07/29/arsenal-thomas-partey-topps-trad
 **Israeli Far-Right Minister Promotes Plan for Jewish Resettlement in Gaza**\
 `Bezalel Smotrich described Gaza as an ‘inseparable part’ of Israel, even as the Netherlands announced a ban on him and another hard line Israeli minister.`\
 https://nytimes.com/2025/07/29/world/middleeast/israel-gaza-jewish-resettlement.html
-
-**Marjorie Taylor Greene Is First Republican Lawmaker to Call Gaza Crisis a ‘Genocide’**\
-`Ms. Greene is the first Republican in Congress to use the term to describe the dire humanitarian situation in Gaza, two years after she led the push to censure a Democrat for speaking out against conditions there.`\
-https://nytimes.com/2025/07/29/us/politics/marjorie-taylor-greene-gaza-genocide.html
 
