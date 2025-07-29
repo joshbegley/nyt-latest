@@ -1,3 +1,7 @@
+**New York Has Strict Gun Laws. A Mass Shooting Showed Their Limits.**\
+`Shootings are down this year in New York City, which has some of the toughest gun laws in the nation. But Monday’s mass shooting was nearly impossible to prevent, security experts said.`\
+https://nytimes.com/2025/07/29/nyregion/new-york-gun-laws-shooting.html
+
 **Arkansas Police Release Photo of ‘Person of Interest’ in Killing of Couple**\
 `A picture and a sketch show a person that the state police are seeking to question in the deaths of Clinton David Brink, 43, and Cristen Amanda Brink, 41, in Devil’s Den State Park. Their daughters, 7 and 9, were not physically harmed.`\
 https://nytimes.com/2025/07/29/us/person-of-interest-killing-devils-den-arkansas.html

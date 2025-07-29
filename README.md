@@ -2,6 +2,10 @@
 `Our experts have spent hundreds of hours testing tools and supplies to help you survive earthquakes, wildfires, floods, hurricanes, and much more.`\
 https://nytimes.com/wirecutter/reviews/emergency-preparedness-kit-builder/
 
+**Harvard Will Share Employee Forms With Federal Government**\
+`The government can request the employment eligibility verification forms related to citizenship and immigration status as a matter of course, but Harvard was surprised to receive such a voluminous demand.`\
+https://nytimes.com/2025/07/29/us/politics/harvard-employee-forms-trump-administration.html
+
 **New York Has Strict Gun Laws. A Mass Shooting Showed Their Limits.**\
 `Shootings are down this year in New York City, which has some of the toughest gun laws in the nation. But Monday’s mass shooting was nearly impossible to prevent, security experts said.`\
 https://nytimes.com/2025/07/29/nyregion/new-york-gun-laws-shooting.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/29/us/nfl-cte-suicides-violence.html
 **N.C. Republicans Push Through Contested Agenda on ‘Veto Override Day’**\
 `The divided state’s new Democratic governor vetoed 14 bills this session, on guns, immigration, trans rights and more. Republicans are trying to enact them all anyway.`\
 https://nytimes.com/2025/07/29/us/politics/veto-overrides-north-carolina.html
-
-**The Giants had questions leading into the trade deadline. Here are the answers**\
-`Three weeks ago, we posed questions the Giants needed to answer before the deadline. Here's where we stand on those questions.`\
-https://nytimes.com/athletic/6523118/2025/07/29/sf-giants-trade-deadline-questions-answers/
 

@@ -2,6 +2,10 @@
 `Our experts have spent hundreds of hours testing tools and supplies to help you survive earthquakes, wildfires, floods, hurricanes, and much more.`\
 https://nytimes.com/wirecutter/reviews/emergency-preparedness-kit-builder/
 
+**New York Has Strict Gun Laws. A Mass Shooting Showed Their Limits.**\
+`Shootings are down this year in New York City, which has some of the toughest gun laws in the nation. But Monday’s mass shooting was nearly impossible to prevent, security experts said.`\
+https://nytimes.com/2025/07/29/nyregion/new-york-gun-laws-shooting.html
+
 **Arkansas Police Release Photo of ‘Person of Interest’ in Killing of Couple**\
 `A picture and a sketch show a person that the state police are seeking to question in the deaths of Clinton David Brink, 43, and Cristen Amanda Brink, 41, in Devil’s Den State Park. Their daughters, 7 and 9, were not physically harmed.`\
 https://nytimes.com/2025/07/29/us/person-of-interest-killing-devils-den-arkansas.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/29/us/politics/veto-overrides-north-carolina.html
 **The Giants had questions leading into the trade deadline. Here are the answers**\
 `Three weeks ago, we posed questions the Giants needed to answer before the deadline. Here's where we stand on those questions.`\
 https://nytimes.com/athletic/6523118/2025/07/29/sf-giants-trade-deadline-questions-answers/
-
-**Rookie RJ Harvey's growth on display in Broncos' padded workouts**\
-`The rookie running back had a run in Tuesday's practice "that was something," coach Sean Payton said`\
-https://nytimes.com/athletic/6523445/2025/07/29/broncos-rj-harvey-growth-training-camp/
 
