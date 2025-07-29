@@ -1,3 +1,7 @@
+**Ozzy Osbourne Funeral Procession to Be Held in His Hometown on Wednesday, City Says**\
+`Fans will be able to pay their respects as a hearse carrying the heavy metal star’s body travels through Birmingham, England, ahead of a private funeral.`\
+https://nytimes.com/2025/07/29/arts/music/ozzy-osbourne-funeral-procession.html
+
 **Phillies trade deadline live Q&A with Matt Gelb on Monday at noon ET**\
 `Phillies writer Matt Gelb will answer subscribers' questions about the trade deadline during a live Q&A on Monday from noon-12:45 p.m. ET. `\
 https://nytimes.com/athletic/6522042/2025/07/29/phillies-trade-deadline-live-qa-with-matt-gelb-on-monday-at-noon-et/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6519720/2025/07/29/manchester-united-transfer-lates
 **Gunman Opens Fire in New York Skyscraper**\
 `Police and paramedics rushed to 345 Park Avenue in Midtown Manhattan, where the gunman, armed with an M4 rifle, fatally shot four people and critically wounded another.`\
 https://nytimes.com/video/nyregion/100000010310748/nyc-shooting-park-avenue.html
-
-**Manchester United explore Watkins and Sesko after narrowing striker search**\
-`Manchester United believe a deal for Watkins could be done for £40m to £45m, while Sesko is likely to be around £69m to £78m`\
-https://nytimes.com/athletic/6521471/2025/07/29/manchester-united-watkins-sesko-transfer/
 
