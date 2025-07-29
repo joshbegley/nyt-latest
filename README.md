@@ -18,7 +18,7 @@ https://nytimes.com/athletic/6521440/2025/07/28/cowboys-ot-tyler-guyton-knee-inj
 `The Seahawks' new-look offense struggled to run the ball, or escape the shadow of its own goal posts, as the physicality ramped up.`\
 https://nytimes.com/athletic/6521496/2025/07/28/seahawks-training-camp-pads-defense/
 
-**Officer Killed and 2 Others Are Shot at Park Avenue Office Tower**\
+**Officer Killed and Others Are Shot at Park Avenue Office Tower**\
 `The gunman was dead, the police said, and the building was in lockdown Monday evening.`\
 https://nytimes.com/live/2025/07/28/nyregion/nyc-shooting
 
