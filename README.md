@@ -1,3 +1,7 @@
+**Liverpool agree deal to sign Arsenal target Wright**\
+`The Athletic previously reported that Arsenal agreed a deal to sign the 17-year-old in a deal worth around £200k plus add-ons.`\
+https://nytimes.com/athletic/6522324/2025/07/29/liverpool-transfer-news-will-wright-arsenal/
+
 **Are Cracks Appearing in Trump’s Antitrust Approach?**\
 `Two top officials are reportedly out of a job, amid reported disagreements within the Justice Department over how it regulates deals.`\
 https://nytimes.com/2025/07/29/business/dealbook/justice-dept-antitrust-slater-loomer.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6478755/2025/07/29/carter-yakemchuk-senators-prospe
 **Caris LeVert's Michigan homecoming could unlock potential for Pistons**\
 `"Michigan has a great place in my heart," said Caris LeVert about his return to the state where he played his college ball. `\
 https://nytimes.com/athletic/6521789/2025/07/29/caris-levert-pistons-michigan-jb-bickerstaff/
-
-**Giants keep coming up short, lose to Pirates in pitcher Carson Whisenhunt's debut**\
-`Whisenhunt showed something in his major-league debut Monday night but there was nothing festive about a 10th loss in 12 games.`\
-https://nytimes.com/athletic/6522039/2025/07/29/giants-pirates-carson-whisenhunt-debut/
 
