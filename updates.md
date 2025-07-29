@@ -1,3 +1,11 @@
+**Russia Launches Deadly Strike on Ukrainian Prison**\
+`The attack was part of a wave of strikes directed at 73 Ukrainian cities and villages, President Zelensky said. It came only hours after President Trump gave the Kremlin a new deadline to work toward ending the war.`\
+https://nytimes.com/video/world/europe/100000010310891/russia-launches-deadly-strike-on-ukrainian-prison.html
+
+**Former Football Players With C.T.E. Have Turned to Violence**\
+`The gunman in the Manhattan office shooting said in a note that he believed he had C.T.E., a degenerative disease linked by studies to repeated hits to the head.`\
+https://nytimes.com/2025/07/29/business/nyc-shooting-note-cte-explained.html
+
 **Former Football Players With C.T.E. Have Turned to Violence**\
 `The gunman in the Manhattan office shooting said in a note that he believed he had C.T.E., a degenerative disease linked by studies to repeated hits to the head.`\
 https://nytimes.com/2025/07/29/sports/football/nyc-shooting-note-cte-explained.html
