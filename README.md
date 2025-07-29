@@ -1,3 +1,7 @@
+**Phillies notes: A close encounter with a potential trade target, plus OF, bullpen thoughts**\
+`It's easy to identify the flaws: a missing swing-and-miss reliever and a righty power bat. Securing them will require sacrifices.`\
+https://nytimes.com/athletic/6521790/2025/07/29/phillies-notes-potential-trade-target-outfield-bullpen/
+
 **"This new league would create confusion": EuroLeague CEO on NBA, expansion, NCAA and more**\
 `"Why not sit down and see how we go and make decisions together, rather than just creating a new league and for them to start over?"`\
 https://nytimes.com/athletic/6520070/2025/07/29/euroleague-nba-paulius-motiejunas-dubai/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6521028/2025/07/29/trade-deadline-players-price-tag
 **4 simple rules for navigating the MLB trade deadline without irking your peers**\
 `There are a number of unwritten rules when it comes to making a baseball trade. Ignore them at your peril. `\
 https://nytimes.com/athletic/6481412/2025/07/29/mlb-trade-deadline-executive-rules/
-
-**Europe Caves to Trump on Tariffs**\
-`Both sides hailed a new trade agreement as the biggest ever. But it will come at a cost to the European Union.`\
-https://nytimes.com/2025/07/29/podcasts/the-daily/us-eu-trade-deal.html
 
