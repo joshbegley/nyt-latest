@@ -1,3 +1,7 @@
+**Cease-Fire in Deadly Thailand-Cambodia Conflict Gets Armies’ Backing**\
+`The talks between commanders on both sides were seen as a crucial test of whether the cease-fire deal reached on Monday would result in a lasting peace.`\
+https://nytimes.com/2025/07/29/world/asia/thailand-cambodia-cease-fire-generals.html
+
 **India and Trump Still Don’t Have a Tariff Deal: Here’s Why That Matters**\
 `The stakes are high, with the United States and India counting on one another as indispensable partners in their competition with China.`\
 https://nytimes.com/2025/07/29/business/trump-tariffs-india-trade.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6521471/2025/07/29/manchester-united-watkins-sesko-
 **When Coke and Pepsi Fought for Soft Drink Supremacy in Space**\
 `In the summer of 1985, NASA, the Reagan White House and seven talented astronauts got wrangled into an orbital chapter of the cola wars.`\
 https://nytimes.com/2025/07/29/science/coke-pepsi-nasa-space-shuttle.html
-
-**Gunman Fatally Shoots Officer and 3 Others in Midtown Office Tower**\
-`The gunman, armed with an assault rifle, walked into the lobby and killed a police officer and two others. He killed another person on the 33rd floor before turning his gun on himself.`\
-https://nytimes.com/2025/07/29/nyregion/officer-killing-midtown-shooting.html
 

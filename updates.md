@@ -1,3 +1,7 @@
+**Cease-Fire in Deadly Thailand-Cambodia Conflict Gets Armies’ Backing**\
+`The talks between commanders on both sides were seen as a crucial test of whether the cease-fire deal reached on Monday would result in a lasting peace.`\
+https://nytimes.com/2025/07/29/world/asia/thailand-cambodia-cease-fire-generals.html
+
 **India and Trump Still Don’t Have a Tariff Deal: Here’s Why That Matters**\
 `The stakes are high, with the United States and India counting on one another as indispensable partners in their competition with China.`\
 https://nytimes.com/2025/07/29/business/trump-tariffs-india-trade.html
