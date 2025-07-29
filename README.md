@@ -1,3 +1,7 @@
+**Heavy Rainfall in Beijing Leaves at Least 30 Dead, Officials Say**\
+`More than 21 inches of rain fell on the mountainous district where most of the deaths occurred, China’s state broadcaster said on Tuesday.`\
+https://nytimes.com/2025/07/28/world/asia/china-rain-beijing-deaths.html
+
 **Chargers training camp: Jamaree Salyer working with first team after weight-loss 'journey'**\
 `Salyer lost 35 pounds over the offseason and his newfound conditioning could get him a chance to earn a starting job.`\
 https://nytimes.com/athletic/6521495/2025/07/28/chargers-training-camp-jamaree-salyer-weight/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6517574/2025/07/28/sf-giants-mlb-trade-deadline-liv
 **Live Q&A: Dodgers trade deadline talk with Fabian Ardaya at 9 a.m. PT Tuesday**\
 `The Dodgers have a chance to bolster their roster for the stretch drive. What will they do at the trade deadline?`\
 https://nytimes.com/athletic/6521461/2025/07/28/dodgers-deadline-questions-live/
-
-**Dodgers slated to call up infield prospect Alex Freeland: Source**\
-`The club has been in need of another versatile option of late due to injuries.`\
-https://nytimes.com/athletic/6521432/2025/07/28/los-angeles-dodgers-alex-freeland-call-up/
 

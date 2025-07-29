@@ -1,3 +1,11 @@
+**Chargers training camp: Jamaree Salyer working with first team after weight-loss 'journey'**\
+`Salyer lost 35 pounds over the offseason and his newfound conditioning could get him a chance to earn a starting job.`\
+https://nytimes.com/athletic/6521495/2025/07/28/chargers-training-camp-jamaree-salyer-weight/
+
+**Cowboys OT Tyler Guyton suffers knee sprain at practice: Sources**\
+`Second-year tackle is expected to be sidelined four to six weeks, meaning he could miss Dallas' season-opener Sept. 4 at Philadelphia.`\
+https://nytimes.com/athletic/6521440/2025/07/28/cowboys-ot-tyler-guyton-knee-injury/
+
 **Seahawks training camp: Defense dominates on Day 1 in pads, highlighted by pick 6**\
 `The Seahawks' new-look offense struggled to run the ball, or escape the shadow of its own goal posts, as the physicality ramped up.`\
 https://nytimes.com/athletic/6521496/2025/07/28/seahawks-training-camp-pads-defense/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6521461/2025/07/28/dodgers-deadline-questions-live/
 **Dodgers slated to call up infield prospect Alex Freeland: Source**\
 `The club has been in need of another versatile option of late due to injuries.`\
 https://nytimes.com/athletic/6521432/2025/07/28/los-angeles-dodgers-alex-freeland-call-up/
-
-**Live Q&A: Mets trade deadline talk with Tim Britton and Will Sammon at 11 a.m. ET Tuesday**\
-`The Mets have a chance to bolster their roster for the stretch drive. What will they do at the trade deadline?`\
-https://nytimes.com/athletic/6521445/2025/07/28/mets-live-deadline-questions/
-
-**Trump Says He Declined Epstein’s Invitation to Visit His Island: ‘I Never Had the Privilege of Going’**\
-`The comments came as part of the president’s efforts to distract, deny and deflect from his long-running relationship with Jeffrey Epstein.`\
-https://nytimes.com/2025/07/28/us/politics/trump-epstein-files-island.html
 
