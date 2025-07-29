@@ -1,3 +1,7 @@
+**Your Questions About Education**\
+`Our reporters address reader submissions.`\
+https://nytimes.com/2025/07/29/briefing/your-questions-about-education.html
+
 **Flyers fan survey: What do you think of Briere, Tocchet, Michkov and more?**\
 `After an eventful offseason, let us know what you think about where the Flyers are headed.`\
 https://nytimes.com/athletic/6521324/2025/07/29/flyers-briere-tocchet-michkov/

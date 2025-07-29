@@ -1,3 +1,7 @@
+**India Says It Killed 3 Militants Behind Spring Terrorist Attack in Kashmir**\
+`The government has faced criticism for being slow to catch the shooters who slaughtered 26 civilians and started clashes between India and Pakistan.`\
+https://nytimes.com/2025/07/29/world/asia/india-killed-militants-kashmir.html
+
 **Your Questions About Education**\
 `Our reporters address reader submissions.`\
 https://nytimes.com/2025/07/29/briefing/your-questions-about-education.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6514677/2025/07/29/tiffany-hayes-golden-state-valky
 **Who are the most important transfer portal additions for every Power 4 team?**\
 `Recruiting is still vitally important, but every team (yes, even Clemson!) needs to plug some holes via the transfer portal each offseason.`\
 https://nytimes.com/athletic/6508606/2025/07/29/power-4-transfer-portal-additions-2025/
-
-**Colts' Charvarius Ward opens up on 49ers exit: 'Mentally, I was somewhere off the grid'**\
-`Beyond the heartbreak of losing his daughter, Ward entered his last season in San Francisco bitter about not getting a contract extension.`\
-https://nytimes.com/athletic/6519458/2025/07/29/colts-49ers-charvarius-ward-training-camp/
 
