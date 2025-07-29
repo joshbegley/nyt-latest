@@ -1,3 +1,11 @@
+**A Podcast for the Questions Rarely Asked**\
+`Wesley Morris seeks to talk with writers, critics and others about their personal passions that are not necessarily related to their day jobs.`\
+https://nytimes.com/2025/07/29/insider/wesley-morris-cannonball.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/07/29/crosswords/spelling-bee-forum.html
+
 **The Transfer DealSheet: The latest on your club and their plans this summer window**\
 `Welcome to the ninth edition of The Athletic’s Transfer DealSheet for the summer 2025 transfer window`\
 https://nytimes.com/athletic/6519720/2025/07/29/manchester-united-transfer-latest-arsenal-liverpool-real-madrid-analysis/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/07/29/business/apple-china-dalian-store.html
 **Yankees aren’t proving worthy of major trade deadline splash right now**\
 `It’s hard to look at the stumbling Yankees and think they’re trending up.`\
 https://nytimes.com/athletic/6521902/2025/07/29/new-york-yankees-trade-deadline-strategy/
-
-**At Slain Officer’s Home, His Bangladeshi Community Mourns Into the Night**\
-`Didarul Islam had a hard-won house, a job that brought respect and the esteem of his neighbors. “He said serve the community and you’ll do fine,” a friend said.`\
-https://nytimes.com/2025/07/29/nyregion/nyc-shooting-police-officer-killed-didarul-islam.html
-
-**A look at the prospects the Boston Red Sox might trade**\
-`The Red Sox system is viewed by many evaluators as one of the league's strongest.`\
-https://nytimes.com/athletic/6521768/2025/07/29/craig-breslow-boston-red-sox-trade-deadline/
 
