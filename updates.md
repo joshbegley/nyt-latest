@@ -1,3 +1,7 @@
+**After a fifth consecutive loss, Astros' Framber Valdez questions defensive positioning**\
+`Common sense, in Valdez’s words, is that left-handed hitters do not hit fly balls against him. `\
+https://nytimes.com/athletic/6521819/2025/07/29/houston-astros-framber-valdez-defensive-positioning/
+
 **Tuesday Briefing: Trump Said There’s ‘Real Starvation’ in Gaza**\
 `Also, a deadly shooting in Midtown Manhattan.`\
 https://nytimes.com/2025/07/29/briefing/gaza-starvation-europe-trade-deal-midtown-manhattan-shooting.html
