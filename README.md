@@ -1,3 +1,15 @@
+**Women's Euro 2025 final draws 1.35 million viewers, breaks U.S. audience record**\
+`This year's Women’s Euros tournament averaged 458,000 viewers across Fox's networks, making it the most watched in English-language history.`\
+https://nytimes.com/athletic/6522326/2025/07/29/womens-euro-final-draw-2025-viewers/
+
+**Mavs hire new team president while preparing to build new arena**\
+`Ethan Casson, formerly of the Timberwolves, will run Dallas' day-to-day business operations.`\
+https://nytimes.com/athletic/6522479/2025/07/29/mavericks-arena-ethan-casson-nba-president/
+
+**Canada's Buchanan joins Villarreal in permanent move from Inter**\
+`The 26-year-old has signed a five-year contract at the Spanish club after spending the second half of 2024-25 on loan from Inter.`\
+https://nytimes.com/athletic/6477748/2025/07/29/canada-tajon-buchanan-transfer-villarreal/
+
 **Partey to feature on Premier League trading cards after Arsenal green light**\
 `Partey was charged with five counts of rape and one count of sexual assault earlier this month. He denies the allegations.`\
 https://nytimes.com/athletic/6522098/2025/07/29/arsenal-thomas-partey-topps-trading-cards/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/07/29/business/boeing-sales-profit-tariffs.html
 **Former Football Players With C.T.E. Have Turned to Violence**\
 `The gunman in the Manhattan office shooting said in a note that he believed he had C.T.E., a degenerative disease linked by studies to repeated hits to the head.`\
 https://nytimes.com/2025/07/29/business/nyc-shooting-note-cte-explained.html
-
-**I.M.F. Raises Global Growth Outlook as U.S. Looks to Avert Trade Wars**\
-`The International Monetary Fund warned that trade tension continued to be a risk for the global economy.`\
-https://nytimes.com/2025/07/29/business/economy/imf-world-economic-outlook-trade-wars.html
-
-**Booker Prize Nominees Include Novels by Kiran Desai, Katie Kitamura and Susan Choi**\
-`The 13 titles nominated for the prestigious British literary award also include books by David Szalay, Maria Reva and Claire Adam.`\
-https://nytimes.com/2025/07/29/arts/booker-prize-nominees.html
-
-**Suited for Summer in Crisp Linen**\
-`A smartly dressed golf instructor said that the sport has influenced his style.`\
-https://nytimes.com/2025/07/29/style/street-style-look-linen-suit.html
 
