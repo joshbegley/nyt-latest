@@ -1,3 +1,7 @@
+**E.P.A. Plans to Revoke the Legal Basis for Tackling Climate Change**\
+`The agency’s administrator said in a podcast that the move would be “the largest deregulatory action in the history of America.”`\
+https://nytimes.com/2025/07/29/climate/epa-endangerment-finding-repeal-proposal.html
+
 **China Sees Gaps in U.S. Defenses, Ousted National Security Official Says**\
 `Gen. Timothy Haugh, the former head of both the National Security Agency and Cyber Command, gave his first interview since he was fired.`\
 https://nytimes.com/2025/07/29/us/politics/timothy-haugh-nsa-cyber.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/29/world/middleeast/israeli-settler-killing-palestin
 **Justice Dept. Seeks Censure of Judge, Widening Fight With Judiciary**\
 `A complaint said Judge James E. Boasberg, who has clashed with the Trump administration over deportation plans, made “improper public comments” about President Trump in a closed-door judicial conference.`\
 https://nytimes.com/2025/07/29/us/politics/judge-boasberg-misconduct-complaint-bondi.html
-
-**Hypergamy? David Geffen’s Divorce Gives New Meaning to an Old Term**\
-`A lawsuit against David Geffen mentions a website where hypergamy — dating above your station — is celebrated. But the word carries darker intonations.`\
-https://nytimes.com/2025/07/29/style/hypergamy-david-geffen-divorce.html
 
