@@ -1,3 +1,7 @@
+**Are Cracks Appearing in Trump’s Antitrust Approach?**\
+`Two top officials are reportedly out of a job, amid reported disagreements within the Justice Department over how it regulates deals.`\
+https://nytimes.com/2025/07/29/business/dealbook/justice-dept-antitrust-slater-loomer.html
+
 **Park Avenue Gunman’s Note Referred to the N.F.L. and Brain Disease**\
 `The police said the man accused of the killings referred to chronic traumatic encephalopathy, which is caused by physical trauma, and asked that his brain be studied.`\
 https://nytimes.com/2025/07/29/nyregion/nyc-shooting-gunman-suicide-note-cte-nfl.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6521789/2025/07/29/caris-levert-pistons-michigan-jb
 **Giants keep coming up short, lose to Pirates in pitcher Carson Whisenhunt's debut**\
 `Whisenhunt showed something in his major-league debut Monday night but there was nothing festive about a 10th loss in 12 games.`\
 https://nytimes.com/athletic/6522039/2025/07/29/giants-pirates-carson-whisenhunt-debut/
-
-**Blackhawks fan survey: Your thoughts on rebuild, direction, CHSN, more**\
-`A record 3,126 Blackhawks fans chimed in to offer their thoughts on the rebuild, the organizational leaders and the players on the ice.`\
-https://nytimes.com/athletic/6515772/2025/07/29/blackhawks-fan-survey-2025-nhl/
 

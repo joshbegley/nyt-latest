@@ -1,3 +1,7 @@
+**Park Avenue Gunman’s Note Referred to the N.F.L. and Brain Disease**\
+`The police said the man accused of the killings referred to chronic traumatic encephalopathy, which is caused by physical trauma, and asked that his brain be studied.`\
+https://nytimes.com/2025/07/29/nyregion/nyc-shooting-gunman-suicide-note-cte-nfl.html
+
 **Felix completes permanent Al Nassr move from Chelsea**\
 `The Portugal international spent the second half of 2024-25 on loan at Milan after a permanent Chelsea move last summer.`\
 https://nytimes.com/athletic/6518288/2025/07/29/chelsea-transfers-joao-felix-al-nassr/
