@@ -1,3 +1,7 @@
+**Former Football Players With C.T.E. Have Turned to Violence**\
+`The gunman in the Manhattan office shooting said in a note that he had C.T.E., a degenerative disease associated with repeated hits to the head.`\
+https://nytimes.com/2025/07/29/sports/football/nyc-shooting-note-cte-explained.html
+
 **I.M.F. Raises Global Growth Outlook as U.S. Looks to Avert Trade Wars**\
 `The International Monetary Fund warned that trade tension continued to be a risk for the global economy.`\
 https://nytimes.com/2025/07/29/business/economy/imf-world-economic-outlook-trade-wars.html
