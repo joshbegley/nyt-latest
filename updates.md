@@ -1,3 +1,7 @@
+**The gunman’s claim that he had C.T.E. could take months to verify.**\
+`By Juliet Macur`\
+https://nytimes.com/live/2025/07/29/nyregion/nyc-shooting-manhattan/the-gunmans-claim-that-he-had-cte-could-take-months-to-verify
+
 **Five key Dodgers trade deadline questions: Can they land a reliever and a bat?**\
 `With trade chatter heating up, readers asked about Steven Kwan, "prospect hugging" and Farhan Zaidi's role.`\
 https://nytimes.com/athletic/6522699/2025/07/29/dodgers-mlb-trade-deadline-questions/
