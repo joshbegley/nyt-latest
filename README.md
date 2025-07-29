@@ -34,7 +34,7 @@ https://nytimes.com/2025/07/28/us/politics/trump-epstein-files-island.html
 `Submit your questions about what Chicago might do at the deadline in a live chat.`\
 https://nytimes.com/athletic/6521431/2025/07/28/cubs-mlb-trade-deadline-live-chat-patrick-mooney/
 
-**Officer and 2 Others Are Shot at Park Avenue Office Tower**\
+**Officer Killed and 2 Others Are Shot at Park Avenue Office Tower**\
 `The gunman was dead, the police said, and the building was in lockdown Monday evening.`\
 https://nytimes.com/2025/07/28/nyregion/nyc-shooting-blackstone-midtown.html
 
