@@ -1,3 +1,11 @@
+**Aznou has long been on Everton's radar. He is a modern full-back with plenty of potential**\
+`Moyes needed a left-back to provide competition for Mykolenko - the 19-year-old can do that having completed a move from Bayern Munich`\
+https://nytimes.com/athletic/6520185/2025/07/29/everton-adam-aznou-transfer-bayern-munich/
+
+**What you'll find at the 2025 National Sports Collectors Convention**\
+`Some museum-worthy items will be up for sale at what could be the biggest National yet `\
+https://nytimes.com/athletic/6521621/2025/07/29/logoman-willie-mays-collection-the-national/
+
 **E.P.A. Plans to Revoke the Legal Basis for Tackling Climate Change**\
 `The agency’s administrator said in a podcast that the move would be “the largest deregulatory action in the history of America.”`\
 https://nytimes.com/2025/07/29/climate/epa-endangerment-finding-repeal-proposal.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/07/29/nyregion/nypd-officer-nyc-shooting.html
 **Got Bulls questions? Submit to Joel Lorenzi for the latest mailbag**\
 `The Chicago Bulls’ summer has hardly been eventful.`\
 https://nytimes.com/athletic/6522740/2025/07/29/bulls-mailbag-nikola-vucevic-josh-giddey-matas-buzelis/
-
-**Israeli Settler Arrested Over Killing of Palestinian Activist in West Bank**\
-`Awdah Hathaleen, whose work was featured in the Oscar-winning documentary “No Other Land,” was shot dead. The suspect had been subject to U.S. sanctions, but President Trump lifted them.`\
-https://nytimes.com/2025/07/29/world/middleeast/israeli-settler-killing-palestinian-activist-west-bank-awdah-hathaleen.html
-
-**Justice Dept. Seeks Censure of Judge, Widening Fight With Judiciary**\
-`A complaint said Judge James E. Boasberg, who has clashed with the Trump administration over deportation plans, made “improper public comments” about President Trump in a closed-door judicial conference.`\
-https://nytimes.com/2025/07/29/us/politics/judge-boasberg-misconduct-complaint-bondi.html
 
