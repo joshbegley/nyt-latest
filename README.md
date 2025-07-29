@@ -10,8 +10,8 @@ https://nytimes.com/athletic/6521724/2025/07/28/new-york-shooting-nfl-headquarte
 `Bader is prepared to be traded, and he didn’t seem fazed. “There’s a long way to go, regardless of uniform,” he said.`\
 https://nytimes.com/athletic/6521654/2025/07/28/harrison-bader-twins-chris-paddack-trade/
 
-**Facing deadline uncertainty, Eugenio Suárez is focused on the one thing he can control — hitting**\
-`After taking a pitch to the hand on Monday night, everyone wants to know if his finger is OK.`\
+**Facing deadline uncertainty, Eugenio Suárez focused on the one thing he can control — hitting**\
+`After taking a pitch to the hand Monday night, everyone wants to know if his finger is OK.`\
 https://nytimes.com/athletic/6521657/2025/07/28/eugenio-suarez-trade-deadline-uncertainty/
 
 **States Sue Trump Administration Over Efforts to Get Food Stamp Data**\

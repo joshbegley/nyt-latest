@@ -1,3 +1,11 @@
+**Full Time: Soccer goes and soccer returns**\
+`Welcome to Full Time, The Athletic's women's soccer newsletter.`\
+https://nytimes.com/athletic/6521738/2025/07/28/womens-euros-wafcon-uswnt-full-time/
+
+**4 killed in shooting at building housing NFL HQ; no clear league connection**\
+`Victims of the shooting included a New York City police officer. Any potential motive remains unclear.`\
+https://nytimes.com/athletic/6521724/2025/07/28/new-york-shooting-nfl-headquarters-office-building/
+
 **Harrison Bader, Twins react to Chris Paddack trade as more rumors swirl**\
 `Bader is prepared to be traded, and he didn’t seem fazed. “There’s a long way to go, regardless of uniform,” he said.`\
 https://nytimes.com/athletic/6521654/2025/07/28/harrison-bader-twins-chris-paddack-trade/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6521641/2025/07/28/eugenie-bouchard-extends-career-
 **Colts, LT Bernhard Raimann agree to 4-year, $100 million extension: Source**\
 `Raimann receives a massive raise four days after the Colts and his agent weren't "on the same page" regarding a potential extension.`\
 https://nytimes.com/athletic/6521650/2025/07/28/colts-bernhard-raimann-extension/
-
-**Site of Midtown Shooting Is Owned by Rudin Management and Houses N.F.L. and Blackstone**\
-`The building occupies an entire block and has its own ZIP code. It’s owned by Rudin, one of the oldest real estate firms in New York City.`\
-https://nytimes.com/2025/07/28/nyregion/midtown-shooting-nyc-blackstone-nfl-rudin.html
-
-**Chris Paul returns to familiar place with Clippers but in different role**\
-`While the 40-year-old Paul could choose to end his career after this season, it is not something he is committing to now.`\
-https://nytimes.com/athletic/6521312/2025/07/28/chris-paul-clippers-introduction-return/
 
