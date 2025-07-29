@@ -1,3 +1,15 @@
+**The Transfer DealSheet: The latest on your club and their plans this summer window**\
+`Welcome to the ninth edition of The Athletic’s Transfer DealSheet for the summer 2025 transfer window`\
+https://nytimes.com/athletic/6519720/2025/07/29/manchester-united-transfer-latest-arsenal-liverpool-real-madrid-analysis/
+
+**Gunman Opens Fire in New York Skyscraper**\
+`Police and paramedics rushed to 345 Park Avenue in Midtown Manhattan, where the gunman, armed with an M4 rifle, fatally shot four people and critically wounded another.`\
+https://nytimes.com/video/nyregion/100000010310748/nyc-shooting-park-avenue.html
+
+**Manchester United explore Watkins and Sesko after narrowing striker search**\
+`Manchester United believe a deal for Watkins could be done for £40m to £45m, while Sesko is likely to be around £69m to £78m`\
+https://nytimes.com/athletic/6521471/2025/07/29/manchester-united-watkins-sesko-transfer/
+
 **When Coke and Pepsi Fought for Soft Drink Supremacy in Space**\
 `In the summer of 1985, NASA, the Reagan White House and seven talented astronauts got wrangled into an orbital chapter of the cola wars.`\
 https://nytimes.com/2025/07/29/science/coke-pepsi-nasa-space-shuttle.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/07/29/nyregion/nyc-shooting-police-officer-killed-didar
 **A look at the prospects the Boston Red Sox might trade**\
 `The Red Sox system is viewed by many evaluators as one of the league's strongest.`\
 https://nytimes.com/athletic/6521768/2025/07/29/craig-breslow-boston-red-sox-trade-deadline/
-
-**What We Know About the Shooting in Midtown Manhattan**\
-`Four people were killed, including an off-duty New York City police officer, when a gunman opened fire in an office tower before fatally shooting himself, officials said.`\
-https://nytimes.com/2025/07/29/nyregion/nyc-shooting-midtown-gunman-victims.html
-
-**Craig Counsell and the Cubs honor Ryne Sandberg in solemn postgame clubhouse**\
-`"We're grateful that he was willing to spend time with us when things weren't going great for him. It's a sad day for the Chicago Cubs."`\
-https://nytimes.com/athletic/6521804/2025/07/29/cubs-honor-ryne-sandberg-craig-counsell/
-
-**Putin Wants Something He Can’t Get**\
-`The legitimacy he seeks is impossible without recognition from the West.`\
-https://nytimes.com/2025/07/29/opinion/putin-russia-negotiations-ukraine.html
 
