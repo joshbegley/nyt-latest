@@ -1,3 +1,11 @@
+**Facing deadline uncertainty, Eugenio Suárez is focused on the one thing he can control — hitting**\
+`After taking a pitch to the hand on Monday night, everyone wants to know if his finger is OK.`\
+https://nytimes.com/athletic/6521657/2025/07/28/eugenio-suarez-trade-deadline-uncertainty/
+
+**States Sue Trump Administration Over Efforts to Get Food Stamp Data**\
+`The lawsuit argues that the federal government’s demand was an attempt to obtain sensitive personal information for use outside the food stamp program.`\
+https://nytimes.com/2025/07/28/nyregion/states-sue-trump-administration-over-food-stamp-data.html
+
 **Live Q&A: Angels trade deadline talk with Sam Blum at 11 a.m. PT Tuesday**\
 `Angels writer Sam Blum will hold a live Q&A Tuesday at 11 a.m. PT. `\
 https://nytimes.com/athletic/6521703/2025/07/28/live-qa-angels-trade-deadline-sam-blum/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6521312/2025/07/28/chris-paul-clippers-introduction
 **Think Out Loud**\
 `Peter Gorman’s Tuesday puzzle takes us on an adventure.`\
 https://nytimes.com/2025/07/28/crosswords/daily-puzzle-2025-07-29.html
-
-**Ryne Sandberg, Hall of Fame Second Baseman for the Cubs, Dies at 65**\
-`Both a skilled fielder and a fearsome power hitter, he entered the national sports spotlight with two memorable home runs in a nationally televised 1984 game.`\
-https://nytimes.com/2025/07/28/sports/baseball/ryne-sandberg-dead.html
-
-**Eugenio Suárez, one of trade deadline's top bats, day-to-day after pitch to hand**\
-`Suárez, the Diamondbacks’ 34-year-old third baseman, is perhaps the most coveted bat ahead of Thursday’s trade deadline.`\
-https://nytimes.com/athletic/6521614/2025/07/28/eugenio-suarez-hit-by-pitch/
 
