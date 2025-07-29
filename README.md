@@ -24,7 +24,7 @@ https://nytimes.com/athletic/6522820/2025/07/29/eagles-training-camp-jeff-stoutl
 
 **In the Bronx, an officer is remembered for his devotion to his family and his mosque.**\
 `By Wesley Parnell and Maia Coleman`\
-https://nytimes.com/live/2025/07/29/nyregion/nyc-shooting-manhattan/in-the-bronx-an-officer-is-remembered-for-his-devotion-to-his-family-and-his-mosque
+https://nytimes.com/2025/07/29/nyregion/in-the-bronx-an-officer-is-remembered-for-his-devotion-to-his-family-and-his-mosque.html
 
 **The gunman’s claim that he had C.T.E. could take months to verify.**\
 `By Juliet Macur`\

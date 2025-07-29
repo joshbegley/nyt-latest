@@ -1,3 +1,19 @@
+**Five key Braves trade deadline questions: Is there complacency in the clubhouse?**\
+`Sean Murphy has re-established himself as one of the top catchers in the game, but would the Braves trade him?`\
+https://nytimes.com/athletic/6522610/2025/07/29/braves-mlb-trade-deadline-questions/
+
+**What does Courtland Sutton's new deal mean for Terry McLaurin?**\
+`Denver's receiver accepted a four-year, $92 million contract, but Washington's two-time Pro Bowler is looking for an even bigger deal.`\
+https://nytimes.com/athletic/6522932/2025/07/29/commanders-terry-mclaurin-contract-courtland-sutton/
+
+**Five key Phillies trade deadline questions: What will it cost to land what they need?**\
+`To get good players, you have to trade good players. It might hurt.`\
+https://nytimes.com/athletic/6523114/2025/07/29/phillies-trade-deadline-prospects-targets/
+
+**Browns owner Jimmy Haslam says there's no panic following disappointing 2024 season**\
+`Haslam added that he'd "absolutely" like to see at least one of the two rookie QBs get a chance to play this season.`\
+https://nytimes.com/athletic/6523164/2025/07/29/cleveland-browns-owner-jimmy-haslam/
+
 **U.K. Could Recognize Palestinian Statehood in September**\
 `Prime Minister Keir Starmer announced that he would recognize the state of Palestine in September if Israel does not agree to a cease-fire with Hamas.`\
 https://nytimes.com/video/world/middleeast/100000010311709/uk-could-recognize-palestinian-statehood-in-september.html
