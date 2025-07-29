@@ -1,3 +1,7 @@
+**St. Paul Hobbled by Cyberattack, Prompting National Guard Response**\
+`Gov. Tim Walz of Minnesota activated the National Guard to help the city of St. Paul address a cyberattack that was detected last Friday.`\
+https://nytimes.com/2025/07/29/us/st-paul-cyberattack-walz.html
+
 **Five key Braves trade deadline questions: Is there complacency in the clubhouse?**\
 `Sean Murphy has re-established himself as one of the top catchers in the game, but would the Braves trade him?`\
 https://nytimes.com/athletic/6522610/2025/07/29/braves-mlb-trade-deadline-questions/
@@ -22,8 +26,8 @@ https://nytimes.com/athletic/6522837/2025/07/29/red-sox-mlb-trade-deadline-quest
 `Stoutland broke down the Eagles' new class of offensive linemen and how will Cooper DeJean get more safety reps?`\
 https://nytimes.com/athletic/6522820/2025/07/29/eagles-training-camp-jeff-stoutland-offensive-line/
 
-**In the Bronx, an officer is remembered for his devotion to his family and his mosque.**\
-`By Wesley Parnell and Maia Coleman`\
+**Slain Officer is Remembered for Devotion to His Family and Mosque**\
+`Officer Islam donated thousands of dollars to help establish a local mosque in his largely Bangladeshi neighborhood in the Bronx, according to a friend of his.`\
 https://nytimes.com/2025/07/29/nyregion/in-the-bronx-an-officer-is-remembered-for-his-devotion-to-his-family-and-his-mosque.html
 
 **The gunman’s claim that he had C.T.E. could take months to verify.**\
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/07/29/nyregion/nyc-shooting-manhattan/the-gunmans-
 **Five key Dodgers trade deadline questions: Can they land a reliever and a bat?**\
 `With trade chatter heating up, readers asked about Steven Kwan, "prospect hugging" and Farhan Zaidi's role.`\
 https://nytimes.com/athletic/6522699/2025/07/29/dodgers-mlb-trade-deadline-questions/
-
-**Browns owner Jimmy Haslam says there's no panic following disappointing 2024 season**\
-`Haslam added that he'd "absolutely" like to see at least one of the two rookie QBs get a chance to play this season.`\
-https://nytimes.com/athletic/6523164/2025/07/29/cleveland-browns-owner-jimmy-haslam/
 
