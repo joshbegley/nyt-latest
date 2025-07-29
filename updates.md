@@ -1,3 +1,7 @@
+**New York’s mayoral candidates share concern and condolences.**\
+`By Dana Rubinstein`\
+https://nytimes.com/live/2025/07/29/nyregion/nyc-shooting-manhattan/new-yorks-mayoral-candidates-shared-concern-and-condolences
+
 **U.S. Open announces mixed doubles direct entries, wild cards include Alcaraz and Raducanu**\
 `The new tournament's first 14 pairs are set, with wild cards for a suite of singles stars — and the defending doubles champions.`\
 https://nytimes.com/athletic/6520048/2025/07/29/tennis-us-open-mixed-doubles-teams-direct-entry/
