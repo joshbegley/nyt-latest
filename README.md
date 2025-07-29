@@ -1,3 +1,23 @@
+**Quote of the Day: France Assails Trade Bargain as ‘Dark Day’**\
+`Quotation of the Day for Tuesday, July 29, 2025.`\
+https://nytimes.com/2025/07/29/pageoneplus/quote-of-the-day-france-assails-trade-bargain-as-dark-day.html
+
+**Finland’s Short, Precious Summers Are Plagued by Goose Poop**\
+`Finns trying to enjoy beaches and parks during their all-too-brief summers have been vexed by legions of geese — and their droppings. The smelly mess has resisted even the most innovative solutions.`\
+https://nytimes.com/2025/07/29/world/europe/helsinki-finland-goose-droppings.html
+
+**Starmer Is Edging Closer to Recognizing Palestinian Statehood, U.K. Officials Say**\
+`Two government officials said Britain was actively weighing the recognition of a Palestinian state, in a shift driven by public pressure over starvation in Gaza.`\
+https://nytimes.com/2025/07/29/world/europe/uk-starmer-palestine-state.html
+
+**Connections: Sports Edition Coach: Hints for July 29, 2025**\
+`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
+https://nytimes.com/athletic/6520169/2025/07/29/connections-sports-edition-hints-for-july-29-2025/
+
+**Liverpool GK Alisson Becker leaves preseason tour for personal matter**\
+`Becker was given permission by Liverpool to leave Japan and won't feature in Wednesday's final match of the tour against Yokohama F Marinos.`\
+https://nytimes.com/athletic/6521760/2025/07/28/liverpool-fc-alisson-becker-preseason-tour/
+
 **Rosenthal: What I'm hearing about Guardians' revamped trade plans, plus more deadline notes**\
 `Steven Kwan is one Guardians player whose trade availability could be impacted by Emmanuel Clase's non-disciplinary leave.`\
 https://nytimes.com/athletic/6521551/2025/07/28/mlb-trade-deadline-guardians-clase-brewers/
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/6521724/2025/07/28/new-york-shooting-nfl-headquarte
 **Harrison Bader, Twins react to Chris Paddack trade as more rumors swirl**\
 `Bader is prepared to be traded, and he didn’t seem fazed. “There’s a long way to go, regardless of uniform,” he said.`\
 https://nytimes.com/athletic/6521654/2025/07/28/harrison-bader-twins-chris-paddack-trade/
-
-**Facing deadline uncertainty, Eugenio Suárez focused on the one thing he can control — hitting**\
-`After taking a pitch to the hand Monday night, everyone wants to know if his finger is OK.`\
-https://nytimes.com/athletic/6521657/2025/07/28/eugenio-suarez-trade-deadline-uncertainty/
-
-**States Sue Trump Administration Over Efforts to Get Food Stamp Data**\
-`The lawsuit argues that the federal government’s demand was an attempt to obtain sensitive personal information for use outside the food stamp program.`\
-https://nytimes.com/2025/07/28/nyregion/states-sue-trump-administration-over-food-stamp-data.html
-
-**Live Q&A: Angels trade deadline talk with Sam Blum at 11 a.m. PT Tuesday**\
-`Angels writer Sam Blum will hold a live Q&A Tuesday at 11 a.m. PT. `\
-https://nytimes.com/athletic/6521703/2025/07/28/live-qa-angels-trade-deadline-sam-blum/
-
-**Live Q&A: Guardians trade deadline talk with Zack Meisel at 12:30 p.m. ET Tuesday**\
-`Guardians writer Zack Meisel will hold a live Q&A on Tuesday at 12:30 p.m. ET. `\
-https://nytimes.com/athletic/6521692/2025/07/28/live-qa-guardians-trade-deadline-zack-meisel/
-
-**Dozens of Licensed Weed Shops Were Placed Too Close to Schools**\
-`State regulators said that a misreading of the law that legalized cannabis in New York allowed some shops to open in unsuitable locations. Those businesses may be uprooted now.`\
-https://nytimes.com/2025/07/28/nyregion/weed-shops-schools.html
 
