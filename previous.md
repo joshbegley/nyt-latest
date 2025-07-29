@@ -1,4 +1,8 @@
-**Kremlin ‘Took Note’ of Trump’s Shortened Deadline for Peace in Ukraine**\
+**India head coach Gambhir involved in confrontation with Oval curator**\
+`Lee Fortis was heard saying that he would "report" Gambhir after their interaction ahead of the fifth Test between England and India.`\
+https://nytimes.com/athletic/6522257/2025/07/29/india-england-gautam-gambhir-oval-pitch/
+
+**Kremlin Offers Little Reaction to Trump’s Shorter Deadline for Peace in Ukraine**\
 `Mr. Trump said on Monday that he would give Russia about 10 to 12 days to end the war before implementing a new round of penalties against Moscow. The Kremlin offered little reaction.`\
 https://nytimes.com/2025/07/29/us/politics/kremlin-trump-deadline-peace-ukraine.html
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6522212/2025/07/29/katie-ledecky-1500-meter-freesty
 **UnitedHealth’s Profits Fall as Costs of Care Continue to Rise**\
 `In the latest quarter, higher costs were felt across the company’s vast health insurance operations.`\
 https://nytimes.com/2025/07/29/health/unitedhealth-earnings-profits.html
-
-**Union Pacific to Buy Norfolk Southern in $85 Billion Railroad Deal**\
-`The merger would create the United States’ first coast-to-coast rail network, spanning 50,000 miles and 43 states.`\
-https://nytimes.com/2025/07/29/business/union-pacific-norfolk-southern-merger.html
 
