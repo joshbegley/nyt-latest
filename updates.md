@@ -1,3 +1,15 @@
+**Craig Counsell and the Cubs honor Ryne Sandberg in solemn postgame clubhouse**\
+`"We're grateful that he was willing to spend time with us when things weren't going great for him. It's a sad day for the Chicago Cubs."`\
+https://nytimes.com/athletic/6521804/2025/07/29/cubs-honor-ryne-sandberg-craig-counsell/
+
+**Putin Wants Something He Can’t Get**\
+`The legitimacy he seeks is impossible without recognition from the West.`\
+https://nytimes.com/2025/07/29/opinion/putin-russia-negotiations-ukraine.html
+
+**The New York Times in Print for Tuesday, July 29, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/07/29/todays-new-york-times
+
 **After a fifth consecutive loss, Astros' Framber Valdez questions defensive positioning**\
 `Common sense, in Valdez’s words, is that left-handed hitters do not hit fly balls against him. `\
 https://nytimes.com/athletic/6521819/2025/07/29/houston-astros-framber-valdez-defensive-positioning/
