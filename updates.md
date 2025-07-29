@@ -1,3 +1,7 @@
+**Trump’s E.U. Trade Deal Comes With Impossible Energy Promises**\
+`The European Union pledged to buy billions of dollars’ worth of energy resources from the United States. Experts say that’s unrealistic and could hurt Europe’s climate goals.`\
+https://nytimes.com/2025/07/29/climate/trump-trade-deal-europe-energy.html
+
 **Has A.I. Become Part of Your Life?**\
 `Tell us about how you’re using artificial intelligence.`\
 https://nytimes.com/2025/07/29/opinion/ai-uses-concerns.html
