@@ -1,3 +1,7 @@
+**Colts, LT Bernhard Raimann agree to 4-year, $100 million extension: Source**\
+`Raimann receives a massive raise four days after the Colts and his agent weren't "on the same page" regarding a potential extension.`\
+https://nytimes.com/athletic/6521650/2025/07/28/colts-bernhard-raimann-extension/
+
 **Site of Midtown Shooting Is Owned by Rudin Management and Houses N.F.L. and Blackstone**\
 `The building occupies an entire block and has its own ZIP code. It’s owned by Rudin, one of the oldest real estate firms in New York City.`\
 https://nytimes.com/2025/07/28/nyregion/midtown-shooting-nyc-blackstone-nfl-rudin.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6008303/2025/07/28/ryne-sandberg-obituary-cubs/
 **Corrections: July 29, 2025**\
 `Corrections that appeared in print on Tuesday, July 29, 2025.`\
 https://nytimes.com/2025/07/28/pageoneplus/corrections-july-29-2025.html
-
-**A Dinner Run Is Punctuated by a Fusillade**\
-`Darin Laing was heading to dinner when gunfire broke out and smoke poured from the lobby of 345 Park Avenue.`\
-https://nytimes.com/2025/07/28/nyregion/midtown-manhattan-shooting.html
 
