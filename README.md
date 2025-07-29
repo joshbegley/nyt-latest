@@ -1,6 +1,10 @@
+**Five key Red Sox trade deadline questions: Jaren Duran, Yandy Diaz and more**\
+`Craig Breslow has maintained that the Red Sox will add at the deadline. How would that look? `\
+https://nytimes.com/athletic/6522837/2025/07/29/red-sox-mlb-trade-deadline-questions-targets/
+
 **Eagles training camp: Jeff Stoutland receives lifetime achievement award, talks OL depth**\
 `Stoutland broke down the Eagles' new class of offensive linemen and how will Cooper DeJean get more safety reps?`\
-https://nytimes.com/athletic/6522820/2025/07/29/eagles-training-camp-jeff-stoutland-receives-offensive-line/
+https://nytimes.com/athletic/6522820/2025/07/29/eagles-training-camp-jeff-stoutland-offensive-line/
 
 **In the Bronx, an officer is remembered for his devotion to his family and his mosque.**\
 `By Wesley Parnell and Maia Coleman`\
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/29/dining/where-to-eat-dc.html
 **How the E.U. Wooed Trump With Flashy but Flimsy Numbers**\
 `The Trump administration has been talking up provisions of its deal with the European Union that would secure hundreds of billions of dollars in investments.`\
 https://nytimes.com/2025/07/29/world/europe/europe-us-trade-deal-investments.html
-
-**Bears rookie Colston Loveland making an impact for up-and-down offense**\
-`DJ Moore gets some handoffs out of the backfield and Rome Odunze continues to impress Ben Johnson. Our training camp observations.`\
-https://nytimes.com/athletic/6523103/2025/07/29/bears-colston-loveland-impact-offense/
 
