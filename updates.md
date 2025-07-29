@@ -1,3 +1,5 @@
+
+
 **Ghislaine Maxwell Lawyer Says She Will Only Testify for Immunity or Clemency**\
 `In letter to Congress, the lawyer for Jeffrey Epstein’s convicted co-conspirator says clemency would allow her to talk to lawmakers.`\
 https://nytimes.com/2025/07/29/us/politics/ghislaine-maxwell-epstein-testimony.html
