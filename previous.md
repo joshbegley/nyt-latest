@@ -1,3 +1,7 @@
+**Harrison Bader, Twins react to Chris Paddack trade as more rumors swirl**\
+`Bader is prepared to be traded, and he didn’t seem fazed. “There’s a long way to go, regardless of uniform,” he said.`\
+https://nytimes.com/athletic/6521654/2025/07/28/harrison-bader-twins-chris-paddack-trade/
+
 **Facing deadline uncertainty, Eugenio Suárez is focused on the one thing he can control — hitting**\
 `After taking a pitch to the hand on Monday night, everyone wants to know if his finger is OK.`\
 https://nytimes.com/athletic/6521657/2025/07/28/eugenio-suarez-trade-deadline-uncertainty/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/28/nyregion/midtown-shooting-nyc-blackstone-nfl-rudi
 **Chris Paul returns to familiar place with Clippers but in different role**\
 `While the 40-year-old Paul could choose to end his career after this season, it is not something he is committing to now.`\
 https://nytimes.com/athletic/6521312/2025/07/28/chris-paul-clippers-introduction-return/
-
-**Think Out Loud**\
-`Peter Gorman’s Tuesday puzzle takes us on an adventure.`\
-https://nytimes.com/2025/07/28/crosswords/daily-puzzle-2025-07-29.html
 
