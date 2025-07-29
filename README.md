@@ -1,9 +1,13 @@
+**Live Q&A: Guardians trade deadline talk with Zack Meisel at 12:30 p.m. ET Tuesday**\
+`Guardians writer Zack Meisel will hold a live Q&A on Tuesday at 12:30 p.m. ET. `\
+https://nytimes.com/athletic/6521692/2025/07/28/live-qa-guardians-trade-deadline-zack-meisel/
+
 **Dozens of Licensed Weed Shops Were Placed Too Close to Schools**\
 `State regulators said that a misreading of the law that legalized cannabis in New York allowed some shops to open in unsuitable locations. Those businesses may be uprooted now.`\
 https://nytimes.com/2025/07/28/nyregion/weed-shops-schools.html
 
 **Eugenie Bouchard extends career, wins thrilling opener at Canadian Open**\
-`Former Wimbledon finalist defeats No. 82 Emiliana Arango in the first round of the Canadian Open.`\
+`The former Wimbledon finalist defeats No. 82 Emiliana Arango in the first round of the Canadian Open.`\
 https://nytimes.com/athletic/6521641/2025/07/28/eugenie-bouchard-extends-career-canadian-open/
 
 **Colts, LT Bernhard Raimann agree to 4-year, $100 million extension: Source**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6521614/2025/07/28/eugenio-suarez-hit-by-pitch/
 **What we're hearing about the Mets' infield, including Mark Vientos' trade value**\
 `One league source said the slumping Vientos must hit for power the way he did in 2024 to overcome his defensive shortcomings.`\
 https://nytimes.com/athletic/6521534/2025/07/28/mets-mark-vientos-trade-value/
-
-**Chaos Overtakes a Midtown Block as the Work Day Comes to a Close**\
-`An area where New Yorkers come to do business is spooked by a burst of violence.`\
-https://nytimes.com/2025/07/28/nyregion/park-avenue-shooting-nyc.html
 
