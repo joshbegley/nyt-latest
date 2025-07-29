@@ -2,6 +2,10 @@
 `Our experts have spent hundreds of hours testing tools and supplies to help you survive earthquakes, wildfires, floods, hurricanes, and much more.`\
 https://nytimes.com/wirecutter/reviews/emergency-preparedness-kit-builder/
 
+**Powerful Quake Prompts Tsunami Alerts in the North Pacific Ocean**\
+`Monitor warnings and predicted arrival times for the ocean wave.`\
+https://nytimes.com/interactive/2025/07/29/world/asia/tsunami-tracker-alaska-russia.html
+
 **David Moyes on Everton transfers - Time is 'running out' to build fans a 'team to be proud of'**\
 `Moyes wants as many as ten signings this summer for Everton`\
 https://nytimes.com/athletic/6523875/2025/07/29/moyes-everton-transfers-time/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/29/nyregion/julia-hyman-cornell-nyc-shooting-victim.
 **Did the 49ers find another late-round gem at running back? Jordan James continues to impress**\
 `The fifth-round pick out of Oregon "hits the holes hard," according to 49ers coach Kyle Shanahan.`\
 https://nytimes.com/athletic/6521007/2025/07/29/49ers-training-camp-jordan-james/
-
-**Britain and France Talk of Recognizing a Palestinian State. What Would It Mean?**\
-`The announcements reflect deep frustrations with Israel’s conduct in Gaza and in the occupied West Bank, experts say.`\
-https://nytimes.com/2025/07/29/world/middleeast/palestinian-statehood-israel.html
 
