@@ -1,3 +1,7 @@
+**India and Trump Still Don’t Have a Tariff Deal: Here’s Why That Matters**\
+`The stakes are high, with the United States and India counting on one another as indispensable partners in their competition with China.`\
+https://nytimes.com/2025/07/29/business/trump-tariffs-india-trade.html
+
 **Isak's Newcastle future 'not in my full control' - Howe**\
 `The Sweden international has made clear he wants to leave the club this summer.`\
 https://nytimes.com/athletic/6522000/2025/07/29/alexander-isak-newcastle-eddie-howe/
