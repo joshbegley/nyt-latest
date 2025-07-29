@@ -1,3 +1,11 @@
+**Word of the Day: mystify**\
+`This word has appeared in six articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2025/07/29/learning/word-of-the-day-mystify.html
+
+**Apple Is Shutting a Store in China, Its First Closure in the Country**\
+`The move speaks to slowing spending by consumers and Apple’s continuing struggles in China, its second-largest market.`\
+https://nytimes.com/2025/07/29/business/apple-china-dalian-store.html
+
 **Yankees aren’t proving worthy of major trade deadline splash right now**\
 `It’s hard to look at the stumbling Yankees and think they’re trending up.`\
 https://nytimes.com/athletic/6521902/2025/07/29/new-york-yankees-trade-deadline-strategy/
@@ -29,12 +37,4 @@ https://nytimes.com/issue/todayspaper/2025/07/29/todays-new-york-times
 **After a fifth consecutive loss, Astros' Framber Valdez questions defensive positioning**\
 `Common sense, in Valdez’s words, is that left-handed hitters do not hit fly balls against him. `\
 https://nytimes.com/athletic/6521819/2025/07/29/houston-astros-framber-valdez-defensive-positioning/
-
-**Tuesday Briefing: Trump Said There’s ‘Real Starvation’ in Gaza**\
-`Also, a deadly shooting in Midtown Manhattan.`\
-https://nytimes.com/2025/07/29/briefing/gaza-starvation-europe-trade-deal-midtown-manhattan-shooting.html
-
-**Liam Plunkett: The England World Cup winner taking cricket to the U.S.**\
-`Liam Plunkett was one of the unsung heroes of England's 2019 World Cup win - now he's hoping to help cricket grow in the United States`\
-https://nytimes.com/athletic/6468772/2025/07/29/england-world-cup-winner-cricket-united-states-liam-plunkett/
 

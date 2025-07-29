@@ -1,3 +1,7 @@
+**Yankees aren’t proving worthy of major trade deadline splash right now**\
+`It’s hard to look at the stumbling Yankees and think they’re trending up.`\
+https://nytimes.com/athletic/6521902/2025/07/29/new-york-yankees-trade-deadline-strategy/
+
 **At Slain Officer’s Home, His Bangladeshi Community Mourns Into the Night**\
 `Didarul Islam had a hard-won house, a job that brought respect and the esteem of his neighbors. “He said serve the community and you’ll do fine,” a friend said.`\
 https://nytimes.com/2025/07/29/nyregion/nyc-shooting-police-officer-killed-didarul-islam.html
