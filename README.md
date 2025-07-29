@@ -23,7 +23,7 @@ https://nytimes.com/2025/07/29/nyregion/blackstone-executive-wesley-lepatner-kil
 https://nytimes.com/2025/07/29/books/morton-mintz-dead.html
 
 **Shooting in Midtown Was New York’s Deadliest in 25 Years**\
-`Gun laws in the city have largely prevented the sort of mass slaughter common in the rest of America. The last killing of this scale in the city was at a fast-food restaurant in Queens in 2000.`\
+`The last killing of such a scale in the city was during a fast-food restaurant robbery in Queens in 2000. Mass murders of strangers are rare.`\
 https://nytimes.com/2025/07/29/nyregion/mass-shooting-midtown-death-toll.html
 
 **Two Psychiatrists: A Closer Look at Empathy**\
