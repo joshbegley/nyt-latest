@@ -1,3 +1,7 @@
+**Isak's Newcastle future 'not in my full control' - Howe**\
+`The Sweden international has made clear he wants to leave the club this summer.`\
+https://nytimes.com/athletic/6522000/2025/07/29/alexander-isak-newcastle-eddie-howe/
+
 **Jimmy Fallon Ridicules Trump’s Choice Words About Epstein Island**\
 `The president said he “never had the privilege” of visiting Jeffrey Epstein’s island. Fallon’s take: “Trump’s staff was like, ‘A simple no would’ve been fine.’ ”`\
 https://nytimes.com/2025/07/29/arts/television/jimmy-fallon-trump-epstein.html
