@@ -1,3 +1,15 @@
+**With Reese Olson injured, here's why the Tigers traded for Chris Paddack**\
+`The Tigers traded with the Minnesota Twins for right-handed pitchers Chris Paddack and Randy Dobnak on Monday. `\
+https://nytimes.com/athletic/6521308/2025/07/28/tigers-traded-for-chris-paddack/
+
+**Live trade deadline Q&A with Giants writer Andrew Baggarly on Tuesday at 1 p.m. PT**\
+`Submit your questions about what the Giants might do leading up to the MLB trade deadline.`\
+https://nytimes.com/athletic/6517574/2025/07/28/sf-giants-mlb-trade-deadline-live-chat-andrew-baggarly/
+
+**Officer and 2 Others Are Shot at Investment Giant’s Park Avenue Tower**\
+`The gunman was dead, the police said, and the building that houses the finance firm Blackstone was in lockdown Monday evening.`\
+https://nytimes.com/2025/07/28/nyregion/nyc-shooting-blackstone-midtown.html
+
 **Live Q&A: Dodgers trade deadline talk with Fabian Ardaya at 9 a.m. PT Tuesday**\
 `The Dodgers have a chance to bolster their roster for the stretch drive. What will they do at the trade deadline?`\
 https://nytimes.com/athletic/6521461/2025/07/28/dodgers-deadline-questions-live/

@@ -1,3 +1,11 @@
+**With Reese Olson injured, here's why the Tigers traded for Chris Paddack**\
+`The Tigers traded with the Minnesota Twins for right-handed pitchers Chris Paddack and Randy Dobnak on Monday. `\
+https://nytimes.com/athletic/6521308/2025/07/28/tigers-traded-for-chris-paddack/
+
+**Live trade deadline Q&A with Giants writer Andrew Baggarly on Tuesday at 1 p.m. PT**\
+`Submit your questions about what the Giants might do leading up to the MLB trade deadline.`\
+https://nytimes.com/athletic/6517574/2025/07/28/sf-giants-mlb-trade-deadline-live-chat-andrew-baggarly/
+
 **Live Q&A: Dodgers trade deadline talk with Fabian Ardaya at 9 a.m. PT Tuesday**\
 `The Dodgers have a chance to bolster their roster for the stretch drive. What will they do at the trade deadline?`\
 https://nytimes.com/athletic/6521461/2025/07/28/dodgers-deadline-questions-live/
@@ -19,7 +27,7 @@ https://nytimes.com/2025/07/28/us/politics/trump-epstein-files-island.html
 https://nytimes.com/athletic/6521431/2025/07/28/cubs-mlb-trade-deadline-live-chat-patrick-mooney/
 
 **Officer and 2 Others Are Shot at Investment Giant’s Park Avenue Tower**\
-`A police officer and two other people were wounded, and the building that houses the finance firm Blackstone was in lockdown Monday evening.`\
+`The gunman was dead, the police said, and the building that houses the finance firm Blackstone was in lockdown Monday evening.`\
 https://nytimes.com/2025/07/28/nyregion/nyc-shooting-blackstone-midtown.html
 
 **N.J. Criminal Cases Screech to a Halt as Habba’s Authority Is Challenged**\
@@ -29,12 +37,4 @@ https://nytimes.com/2025/07/28/nyregion/alina-habba-new-jersey-us-attorney-battl
 **What we know about Emmanuel Clase and MLB's gambling investigation**\
 `The development delivers a crushing blow to a Guardians team that was hanging around the periphery of the Wild Card race.`\
 https://nytimes.com/athletic/6521125/2025/07/28/cleveland-guardians-emmanuel-clase-investigation/
-
-**Live Q&A: Cardinals trade deadline talk with Katie Woo at 11 a.m. CT Tuesday**\
-`The Cardinals are struggling. What will they do at the trade deadline? `\
-https://nytimes.com/athletic/6521377/2025/07/28/cardinals-live-questions-deadline/
-
-**Study May Undercut Idea That Cash Payments to Poor Families Help Child Development**\
-`Rigorous new research appears to show that monthly checks intended to help disadvantaged children did little for their well-being, adding a new element to a dispute over expanded government aid.`\
-https://nytimes.com/2025/07/28/us/politics/cash-payments-poor-families-child-development.html
 
