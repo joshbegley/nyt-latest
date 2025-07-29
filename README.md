@@ -1,3 +1,27 @@
+**Why are football's player unions so powerless compared with U.S. sports?**\
+`Collective bargaining is a key part of American sports, yet in football, the fragmented nature of the sport makes it hard to unionise.`\
+https://nytimes.com/athletic/6512013/2025/07/29/football-unions-influence-fifpro/
+
+**Why Ter Stegen posting the words 'three months' has Barcelona board members questioning his captaincy**\
+`The goalkeeper predicted the timeframe of his recovery from back surgery and it has not gone down well with some executives at the club`\
+https://nytimes.com/athletic/6520501/2025/07/29/ter-stegen-injury-statement-barcelona-register-garcia/
+
+**Will Sean Longstaff keep playing cricket after joining Leeds? He already has one offer**\
+`There was a time when footballers played cricket – and vice-versa. Will Longstaff be allowed to do the same having signed for Leeds?`\
+https://nytimes.com/athletic/6516879/2025/07/29/sean-longstaff-leeds-newcastle-cricket/
+
+**Five tactical themes that defined Women's Euro 2025: More systemised, less individualistic**\
+`It was impossible to watch this Euros and not marvel at how far the women’s game has come - it’s exactly what top-level football should be`\
+https://nytimes.com/athletic/6519809/2025/07/29/euro-2025-england-spain-final-bonmati/
+
+**Park Avenue Gunman Drove Cross Country Before Committing the Attack, Police Said**\
+`The police said that he had a history of mental illness documented in Nevada and that it was unclear why he targeted the building.`\
+https://nytimes.com/2025/07/29/nyregion/nyc-gunman-midtown-shooting.html
+
+**Tying down Morgan Gibbs-White is Forest's best business of the summer: He's the ultimate all-rounder**\
+`It's no surprise that Spurs tried to sign the attacking midfielder, whose positioning and vision make him a standout in the Premier League`\
+https://nytimes.com/athletic/6494710/2025/07/29/morgan-gibbs-white-nottingham-forest-analysis/
+
 **Quote of the Day: France Assails Trade Bargain as ‘Dark Day’**\
 `Quotation of the Day for Tuesday, July 29, 2025.`\
 https://nytimes.com/2025/07/29/pageoneplus/quote-of-the-day-france-assails-trade-bargain-as-dark-day.html
@@ -13,28 +37,4 @@ https://nytimes.com/2025/07/29/world/europe/uk-starmer-palestine-state.html
 **Connections: Sports Edition Coach: Hints for July 29, 2025**\
 `Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
 https://nytimes.com/athletic/6520169/2025/07/29/connections-sports-edition-hints-for-july-29-2025/
-
-**Liverpool GK Alisson Becker leaves preseason tour for personal matter**\
-`Becker was given permission by Liverpool to leave Japan and won't feature in Wednesday's final match of the tour against Yokohama F Marinos.`\
-https://nytimes.com/athletic/6521760/2025/07/28/liverpool-fc-alisson-becker-preseason-tour/
-
-**Rosenthal: What I'm hearing about Guardians' revamped trade plans, plus more deadline notes**\
-`Steven Kwan is one Guardians player whose trade availability could be impacted by Emmanuel Clase's non-disciplinary leave.`\
-https://nytimes.com/athletic/6521551/2025/07/28/mlb-trade-deadline-guardians-clase-brewers/
-
-**Greenberg: Ryne Sandberg, the MVP of the '84 Cubs, will live forever at Wrigley Field**\
-`Sandberg, who made 10 straight All-Star Games, never went out of style in Chicago, where he thrilled fans and reminded them of glory days.`\
-https://nytimes.com/athletic/6517678/2025/07/28/ryne-sandberg-dies-chicago-cubs/
-
-**Full Time: Soccer goes and soccer returns**\
-`Welcome to Full Time, The Athletic's women's soccer newsletter.`\
-https://nytimes.com/athletic/6521738/2025/07/28/womens-euros-wafcon-uswnt-full-time/
-
-**Four shot, killed at building housing NFL HQ; no clear league connection**\
-`Victims of the shooting included a New York City police officer. Any potential motive remains unclear.`\
-https://nytimes.com/athletic/6521724/2025/07/28/new-york-shooting-nfl-headquarters-office-building/
-
-**Harrison Bader, Twins react to Chris Paddack trade as more rumors swirl**\
-`Bader is prepared to be traded, and he didn’t seem fazed. “There’s a long way to go, regardless of uniform,” he said.`\
-https://nytimes.com/athletic/6521654/2025/07/28/harrison-bader-twins-chris-paddack-trade/
 
