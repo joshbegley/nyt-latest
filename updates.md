@@ -1,3 +1,7 @@
+**The Windup: Bryce Harper cussed out the commissioner**\
+`Welcome to The Windup, The Athletic's MLB newsletter.`\
+https://nytimes.com/athletic/6523113/2025/07/29/bryce-harper-rob-manfred-the-windup/
+
 **Five key Mets trade deadline questions: Where can they make biggest upgrade?**\
 `Readers wondered about deals for Luis Robert Jr., Shane Bieber or any move that would qualify as a blockbuster.`\
 https://nytimes.com/athletic/6522712/2025/07/29/mets-mlb-trade-deadline-questions/
