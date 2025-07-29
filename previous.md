@@ -1,3 +1,15 @@
+**The Pulse: College football’s talking season goes quiet**\
+`Welcome to The Pulse, The Athletic's daily newsletter.`\
+https://nytimes.com/athletic/6521891/2025/07/29/college-football-media-days-the-pulse/
+
+**Newcastle's Cordero set to join Westerlo on loan deal**\
+`The 19-year-old joined Newcastle on a permanent deal earlier this summer when his contract at Spanish second tier side Malaga expired.`\
+https://nytimes.com/athletic/6522148/2025/07/29/newcastle-transfers-antonio-cordero-loan/
+
+**India Says It Killed 3 Militants Behind Spring Terrorist Attack in Kashmir**\
+`The government has faced criticism for being slow to catch the shooters who slaughtered 26 civilians and started clashes between India and Pakistan.`\
+https://nytimes.com/2025/07/29/world/asia/india-killed-militants-kashmir.html
+
 **Your Questions About Education**\
 `Our reporters address reader submissions.`\
 https://nytimes.com/2025/07/29/briefing/your-questions-about-education.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6521745/2025/07/29/rangers-win-streak-trade-deadlin
 **Blue Jays’ trade deadline needs: Obvious targets, overlooked gems**\
 `The easiest place for a splashy addition is the back of the bullpen. Leverage relief options are plentiful, and Toronto is in need.`\
 https://nytimes.com/athletic/6521691/2025/07/29/blue-jays-trade-deadline-needs-obvious-targets-overlooked-gems/
-
-**How masked veteran Tiffany Hayes has breathed life into the Valkyries' inaugural season**\
-`Mask on, motor humming. The WNBA veteran isn't slowing down as she guides Golden State. `\
-https://nytimes.com/athletic/6514677/2025/07/29/tiffany-hayes-golden-state-valkyries-wnba/
-
-**Who are the most important transfer portal additions for every Power 4 team?**\
-`Recruiting is still vitally important, but every team (yes, even Clemson!) needs to plug some holes via the transfer portal each offseason.`\
-https://nytimes.com/athletic/6508606/2025/07/29/power-4-transfer-portal-additions-2025/
-
-**Colts' Charvarius Ward opens up on 49ers exit: 'Mentally, I was somewhere off the grid'**\
-`Beyond the heartbreak of losing his daughter, Ward entered his last season in San Francisco bitter about not getting a contract extension.`\
-https://nytimes.com/athletic/6519458/2025/07/29/colts-49ers-charvarius-ward-training-camp/
 

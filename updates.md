@@ -1,3 +1,15 @@
+**The Pulse: College football’s talking season goes quiet**\
+`Welcome to The Pulse, The Athletic's daily newsletter.`\
+https://nytimes.com/athletic/6521891/2025/07/29/college-football-media-days-the-pulse/
+
+**Newcastle's Cordero set to join Westerlo on loan deal**\
+`The 19-year-old joined Newcastle on a permanent deal earlier this summer when his contract at Spanish second tier side Malaga expired.`\
+https://nytimes.com/athletic/6522148/2025/07/29/newcastle-transfers-antonio-cordero-loan/
+
+**India Says It Killed 3 Militants Behind Spring Terrorist Attack in Kashmir**\
+`The government has faced criticism for being slow to catch the shooters who slaughtered 26 civilians and started clashes between India and Pakistan.`\
+https://nytimes.com/2025/07/29/world/asia/india-killed-militants-kashmir.html
+
 **Your Questions About Education**\
 `Our reporters address reader submissions.`\
 https://nytimes.com/2025/07/29/briefing/your-questions-about-education.html
