@@ -1,3 +1,15 @@
+**Take a Ride On New York City’s Future Train Line**\
+`The Interborough Express, a new rail line that would link Brooklyn and Queens, could change the face of the city.`\
+https://nytimes.com/interactive/2025/07/28/nyregion/interborough-express-tour-brooklyn-queens.html
+
+**Cowboys OT Tyler Guyton expected to miss 4-6 weeks with knee injury: Sources**\
+`Second-year tackle's injury timeline means he could miss Dallas' season-opener Sept. 4 at Philadelphia.`\
+https://nytimes.com/athletic/6521440/2025/07/28/cowboys-ot-tyler-guyton-knee-injury/
+
+**Officer Killed and Others Are Shot at Park Avenue Office Tower**\
+`The gunman was dead, the police said, and the building was in lockdown Monday evening.`\
+https://nytimes.com/live/2025/07/28/nyregion/nyc-shooting
+
 **Heavy Rainfall in Beijing Leaves at Least 30 Dead, Officials Say**\
 `More than 21 inches of rain fell on the mountainous district where most of the deaths occurred, China’s state broadcaster said on Tuesday.`\
 https://nytimes.com/2025/07/28/world/asia/china-rain-beijing-deaths.html
