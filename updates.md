@@ -1,3 +1,7 @@
+**A look at the prospects the Boston Red Sox might trade**\
+`The Red Sox system is viewed by many evaluators as one of the league's strongest.`\
+https://nytimes.com/athletic/6521768/2025/07/29/craig-breslow-boston-red-sox-trade-deadline/
+
 **What We Know About the Shooting in Midtown Manhattan**\
 `Four people were killed, including a New York police officer, after a gunman opened fire in an office tower before fatally shooting himself, officials said.`\
 https://nytimes.com/2025/07/29/nyregion/nyc-shooting-midtown-gunman-victims.html

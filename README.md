@@ -1,3 +1,7 @@
+**At Slain Officer’s Home, His Bangladeshi Community Mourns Into the Night**\
+`Didarul Islam had a hard-won house, a job that brought respect and the esteem of his neighbors. “He said serve the community and you’ll do fine,” a friend said.`\
+https://nytimes.com/2025/07/29/nyregion/nyc-shooting-police-officer-killed-didarul-islam.html
+
 **A look at the prospects the Boston Red Sox might trade**\
 `The Red Sox system is viewed by many evaluators as one of the league's strongest.`\
 https://nytimes.com/athletic/6521768/2025/07/29/craig-breslow-boston-red-sox-trade-deadline/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6468772/2025/07/29/england-world-cup-winner-cricket
 **Tour de France key takeaways: Impact of Pogacar's dominance, the majesty of Ventoux, hopes for 2026 edition**\
 `The Athletic's writers discuss Visma Lease-A-Bike's tactics, unsung heroes, biggest disappointments and more `\
 https://nytimes.com/athletic/6519706/2025/07/29/tour-de-france-2025-takeways-pogacar-route/
-
-**Arsenal players seized the big moments at Euro 2025 - now they must do so in the WSL**\
-`Sarina Wiegman's Emirates Stadium contingent made the difference for the Lionesses this summer. Their next mission is to chase down Chelsea`\
-https://nytimes.com/athletic/6519660/2025/07/29/england-euro-2025-win-arsenal-players/
 
