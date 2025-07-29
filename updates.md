@@ -1,3 +1,19 @@
+**Ghislaine Maxwell Lawyer Says She Will Only Testify for Immunity or Clemency**\
+`In letter to Congress, the lawyer for Jeffrey Epstein’s convicted co-conspirator says clemency would allow her to talk to lawmakers.`\
+https://nytimes.com/2025/07/29/us/politics/ghislaine-maxwell-epstein-testimony.html
+
+**Carter on missing Euros celebrations: It was my decision to return to club side Gotham**\
+`The 27-year-old defender was part of Sarina Wiegman's England side that won a second consecutive Euros title in Switzerland this month.`\
+https://nytimes.com/athletic/6523303/2025/07/29/jess-carter-england-euros-gotham/
+
+**Pete Carroll offers 'no comment' on Christian Wilkins' alleged kiss of Raiders teammate**\
+`Carroll declined to comment when asked if an alleged incident involving Wilkins played a part in the player's shocking release last week.`\
+https://nytimes.com/athletic/6523359/2025/07/29/christian-wilkins-raiders-kiss-pete-carroll/
+
+**Browns' Martin Emerson carted off in practice with Achilles injury**\
+`Emerson, who is in the final year of his contract, has started 33 games and grabbed four interceptions in his career. `\
+https://nytimes.com/athletic/6523499/2025/07/29/browns-martin-emerson-achilles-injury/
+
 **Build Your Own Disaster-Prep Kit**\
 `Our experts have spent hundreds of hours testing tools and supplies to help you survive earthquakes, wildfires, floods, hurricanes, and much more.`\
 https://nytimes.com/wirecutter/reviews/emergency-preparedness-kit-builder/
