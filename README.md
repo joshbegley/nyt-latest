@@ -18,7 +18,7 @@ https://nytimes.com/athletic/6523114/2025/07/29/phillies-trade-deadline-prospect
 `Prime Minister Keir Starmer announced that he would recognize the state of Palestine in September if Israel does not agree to a cease-fire with Hamas.`\
 https://nytimes.com/video/world/middleeast/100000010311709/uk-could-recognize-palestinian-statehood-in-september.html
 
-**Five key Red Sox trade deadline questions: Jaren Duran, Yandy Diaz and more**\
+**Five key Red Sox trade deadline questions: Jarren Duran, Yandy Diaz and more**\
 `Craig Breslow has maintained that the Red Sox will add at the deadline. How would that look? `\
 https://nytimes.com/athletic/6522837/2025/07/29/red-sox-mlb-trade-deadline-questions-targets/
 

@@ -1,3 +1,11 @@
+**St. Paul Hobbled by Cyberattack, Prompting National Guard Response**\
+`Gov. Tim Walz of Minnesota activated the National Guard to help the city of St. Paul address a cyberattack that was detected last Friday.`\
+https://nytimes.com/2025/07/29/us/st-paul-cyberattack-walz.html
+
+**Slain Officer is Remembered for Devotion to His Family and Mosque**\
+`Officer Islam donated thousands of dollars to help establish a local mosque in his largely Bangladeshi neighborhood in the Bronx, according to a friend of his.`\
+https://nytimes.com/2025/07/29/nyregion/in-the-bronx-an-officer-is-remembered-for-his-devotion-to-his-family-and-his-mosque.html
+
 **Five key Braves trade deadline questions: Is there complacency in the clubhouse?**\
 `Sean Murphy has re-established himself as one of the top catchers in the game, but would the Braves trade him?`\
 https://nytimes.com/athletic/6522610/2025/07/29/braves-mlb-trade-deadline-questions/
