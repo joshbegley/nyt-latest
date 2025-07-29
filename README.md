@@ -1,3 +1,11 @@
+**Bills' Maxwell Hairston suffers non-contact knee injury at training camp**\
+`Hairston's injury occurred during a pass-rush drill Tuesday morning at training camp.`\
+https://nytimes.com/athletic/6523120/2025/07/29/bills-maxwell-hairston-suffers-injury-training-camp/
+
+**We Just Updated Our Washington, D.C. Dining Guide**\
+`Inventive spots for Mexican and Japanese American cuisine join the list, and we bid a fond farewell to a D.C. favorite closing at the end of year.`\
+https://nytimes.com/2025/07/29/dining/where-to-eat-dc.html
+
 **How the E.U. Wooed Trump With Flashy but Flimsy Numbers**\
 `The Trump administration has been talking up provisions of its deal with the European Union that would secure hundreds of billions of dollars in investments.`\
 https://nytimes.com/2025/07/29/world/europe/europe-us-trade-deal-investments.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6522641/2025/07/29/nfl-new-york-shooting-cte/
 **Five Under-the-Radar European Beach Hotels**\
 `The usual hot spots are teeming with tourists this summer. Here are some unexpected alternatives — in Spain, Greece, France, Italy and England — where you can pair some serenity with your sea views.`\
 https://nytimes.com/2025/07/29/t-magazine/spain-greece-italy-france-beach-hotels.html
-
-**Five key Cardinals trade deadline questions: What's a realistic expectation?**\
-`What’s the mood of the clubhouse heading into the trade deadline? Cardinals relievers can sense the trade winds blowing.`\
-https://nytimes.com/athletic/6522645/2025/07/29/cardinals-mlb-trade-deadline-questions/
-
-**Trump Urges the U.K. to Drill More Oil, Criticizing Its Energy Policy**\
-`President Trump said the North Sea was a “treasure chest,” but its high taxes were driving away oil producers.`\
-https://nytimes.com/2025/07/29/business/energy-environment/trump-oil-drilling-uk-north-sea.html
 
