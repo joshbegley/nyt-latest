@@ -1,3 +1,19 @@
+**Gary Karr, Virtuoso Who Elevated the Double-Bass, Dies at 83**\
+`He made the cumbersome bass soar, sing and leap, and became one of few bassists in history to successfully pursue a career outside an orchestra.`\
+https://nytimes.com/2025/07/29/arts/music/gary-karr-dead.html
+
+**Flatter, Defer, Nudge: Europe’s Playbook for Trump Yields Some Results**\
+`A tactic of deference and praise, along with a studied attempt to avoid any public blowups, coaxed President Trump into changes on key issues like Gaza and Ukraine.`\
+https://nytimes.com/2025/07/29/world/europe/trump-europe-ukraine-gaza.html
+
+**The Libertine Team Goes Full Francophile at Chateau Royale**\
+`Bartolo channels Madrid, Hōp pops up in Red Hook with Cambodian food and more restaurant news.`\
+https://nytimes.com/2025/07/29/dining/nyc-restaurant-news.html
+
+**Tour de France Femmes: Lorena Wiebes sprints to second stage win, Marianne Vos stays in yellow**\
+`Wiebes claims 109th win of career on Stage 4 at the Tour de France Femmes. `\
+https://nytimes.com/athletic/6520463/2025/07/29/tour-de-france-femmes-stage-4-lorena-wiebes-win-marianne-vos-yellow/
+
 **Trump’s E.U. Trade Deal Comes With Impossible Energy Promises**\
 `The European Union pledged to buy billions of dollars’ worth of energy resources from the United States. Experts say that’s unrealistic and could hurt Europe’s climate goals.`\
 https://nytimes.com/2025/07/29/climate/trump-trade-deal-europe-energy.html
@@ -21,20 +37,4 @@ https://nytimes.com/2025/07/29/nyregion/nyc-subway-power-outage.html
 **Aznou has long been on Everton's radar. He is a modern full-back with plenty of potential**\
 `Moyes needed a left-back to provide competition for Mykolenko - the 19-year-old can do that having completed a move from Bayern Munich`\
 https://nytimes.com/athletic/6520185/2025/07/29/everton-adam-aznou-transfer-bayern-munich/
-
-**What you'll find at the 2025 National Sports Collectors Convention**\
-`Some museum-worthy items will be up for sale at what could be the biggest National yet `\
-https://nytimes.com/athletic/6521621/2025/07/29/logoman-willie-mays-collection-the-national/
-
-**E.P.A. Plans to Revoke the Legal Basis for Tackling Climate Change**\
-`The agency’s administrator said in a podcast that the move would be “the largest deregulatory action in the history of America.”`\
-https://nytimes.com/2025/07/29/climate/epa-endangerment-finding-repeal-proposal.html
-
-**China Sees Gaps in U.S. Defenses, Ousted National Security Official Says**\
-`Gen. Timothy Haugh, the former head of both the National Security Agency and Cyber Command, gave his first interview since he was fired.`\
-https://nytimes.com/2025/07/29/us/politics/timothy-haugh-nsa-cyber.html
-
-**Everton sign Aznou from Bayern on four-year deal**\
-`Aznou was born in Spain and represented the country up to under-17 level but opted to play for Morocco and has been capped six times.`\
-https://nytimes.com/athletic/6517383/2025/07/29/adam-aznou-everton-transfer/
 
