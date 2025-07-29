@@ -1,3 +1,11 @@
+**Aznou has long been on Everton's radar. He is a modern full-back with plenty of potential**\
+`Moyes needed a left-back to provide competition for Mykolenko - the 19-year-old can do that having completed a move from Bayern Munich`\
+https://nytimes.com/athletic/6520185/2025/07/29/everton-adam-aznou-transfer-bayern-munich/
+
+**What you'll find at the 2025 National Sports Collectors Convention**\
+`Some museum-worthy items will be up for sale at what could be the biggest National yet `\
+https://nytimes.com/athletic/6521621/2025/07/29/logoman-willie-mays-collection-the-national/
+
 **E.P.A. Plans to Revoke the Legal Basis for Tackling Climate Change**\
 `The agency’s administrator said in a podcast that the move would be “the largest deregulatory action in the history of America.”`\
 https://nytimes.com/2025/07/29/climate/epa-endangerment-finding-repeal-proposal.html

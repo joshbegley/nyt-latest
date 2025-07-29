@@ -1,3 +1,15 @@
+**MLB trade deadline: All of our 2025 deals and grades in one place**\
+`We'll be updating this file from now through the end of the trade deadline to keep you up on the latest deals.`\
+https://nytimes.com/athletic/6520153/2025/07/29/mlb-trade-deadline-deals-grades-2025/
+
+**Kennedy Announces Plan to Restrict Some Kratom Products**\
+`Federal officials said a psychoactive ingredient in kratom had been refined and added to supplements that could quickly become addictive.`\
+https://nytimes.com/2025/07/29/health/kennedy-kratom-ban.html
+
+**Power Loss Snarls Subway Traffic in New York City**\
+`The electrical outage at West 4th Street led to numerous subway delays and cancellations on a sweltering hot day.`\
+https://nytimes.com/2025/07/29/nyregion/nyc-subway-power-outage.html
+
 **Aznou has long been on Everton's radar. He is a modern full-back with plenty of potential**\
 `Moyes needed a left-back to provide competition for Mykolenko - the 19-year-old can do that having completed a move from Bayern Munich`\
 https://nytimes.com/athletic/6520185/2025/07/29/everton-adam-aznou-transfer-bayern-munich/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/07/29/nyregion/police-investigators-dissect-recent-move
 **U.K. Will Recognize Palestinian Statehood in September, Barring Israel-Hamas Cease-Fire**\
 `Prime Minister Keir Starmer of Britain said his country would make the move unless Israel agrees to a cease-fire with Hamas.`\
 https://nytimes.com/2025/07/29/world/europe/uk-palestinian-statehood.html
-
-**‘Come With Me, Chuck E.’: Mouse Arrested for Credit Card Fraud**\
-`At a Tallahassee, Fla., Chuck E. Cheese location, a police officer told children: “Chuck E.’s busy right now.”`\
-https://nytimes.com/2025/07/29/us/chuck-e-cheese-costume-arrest-fraud.html
-
-**Slain Police Officer Was Working in Uniform While Off Duty**\
-`The Paid Detail Unit allows businesses that can afford it to pay for extra police protection.`\
-https://nytimes.com/2025/07/29/nyregion/nypd-officer-nyc-shooting.html
-
-**Got Bulls questions? Submit to Joel Lorenzi for the latest mailbag**\
-`The Chicago Bulls’ summer has hardly been eventful.`\
-https://nytimes.com/athletic/6522740/2025/07/29/bulls-mailbag-nikola-vucevic-josh-giddey-matas-buzelis/
 
