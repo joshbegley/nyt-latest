@@ -1,3 +1,19 @@
+**Gary Karr, Virtuoso Who Elevated the Double-Bass, Dies at 83**\
+`He made the cumbersome bass soar, sing and leap, and became one of few bassists in history to successfully pursue a career outside an orchestra.`\
+https://nytimes.com/2025/07/29/arts/music/gary-karr-dead.html
+
+**Flatter, Defer, Nudge: Europe’s Playbook for Trump Yields Some Results**\
+`A tactic of deference and praise, along with a studied attempt to avoid any public blowups, coaxed President Trump into changes on key issues like Gaza and Ukraine.`\
+https://nytimes.com/2025/07/29/world/europe/trump-europe-ukraine-gaza.html
+
+**The Libertine Team Goes Full Francophile at Chateau Royale**\
+`Bartolo channels Madrid, Hōp pops up in Red Hook with Cambodian food and more restaurant news.`\
+https://nytimes.com/2025/07/29/dining/nyc-restaurant-news.html
+
+**Tour de France Femmes: Lorena Wiebes sprints to second stage win, Marianne Vos stays in yellow**\
+`Wiebes claims 109th win of career on Stage 4 at the Tour de France Femmes. `\
+https://nytimes.com/athletic/6520463/2025/07/29/tour-de-france-femmes-stage-4-lorena-wiebes-win-marianne-vos-yellow/
+
 **Trump’s E.U. Trade Deal Comes With Impossible Energy Promises**\
 `The European Union pledged to buy billions of dollars’ worth of energy resources from the United States. Experts say that’s unrealistic and could hurt Europe’s climate goals.`\
 https://nytimes.com/2025/07/29/climate/trump-trade-deal-europe-energy.html
