@@ -1,3 +1,7 @@
+**U.S. Open announces mixed doubles direct entries, wild cards include Alcaraz and Raducanu**\
+`The new tournament's first 14 pairs are set, with wild cards for a suite of singles stars — and the defending doubles champions.`\
+https://nytimes.com/athletic/6520048/2025/07/29/tennis-us-open-mixed-doubles-teams-direct-entry/
+
 **Emmanuel Clase probe to have lasting effects for Guardians, starting with trade deadline**\
 `Any legitimate chance the Guardians had at contending this season walked out the door with Clase. Shane Bieber and Steven Kwan could follow.`\
 https://nytimes.com/athletic/6521777/2025/07/29/emmanuel-clase-guardians-mlb-gambling-probe-shane-bieber-trade-deadline/

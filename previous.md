@@ -1,3 +1,7 @@
+**U.S. Open announces mixed doubles direct entries, wild cards include Alcaraz and Raducanu**\
+`The new tournament's first 14 pairs are set, with wild cards for a suite of singles stars — and the defending doubles champions.`\
+https://nytimes.com/athletic/6520048/2025/07/29/tennis-us-open-mixed-doubles-teams-direct-entry/
+
 **Emmanuel Clase probe to have lasting effects for Guardians, starting with trade deadline**\
 `Any legitimate chance the Guardians had at contending this season walked out the door with Clase. Shane Bieber and Steven Kwan could follow.`\
 https://nytimes.com/athletic/6521777/2025/07/29/emmanuel-clase-guardians-mlb-gambling-probe-shane-bieber-trade-deadline/
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/07/29/nyregion/nyc-shooting-manhattan/new-yorks-ma
 **‘I Was a Small, Sticky God of Summer’: The Week 6 Winner of Our Summer Reading Contest**\
 `Joel Raj, 17, writes about a messy peach dessert by Yotam Ottolenghi that called him back to the “chin-dribbling freedom” of his childhood.`\
 https://nytimes.com/2025/07/29/learning/i-was-a-small-sticky-god-of-summer-the-week-6-winner-of-our-summer-reading-contest.html
-
-**Women's Euro 2025 final draws 1.35 million viewers, breaks U.S. audience record**\
-`This year's Women’s Euros tournament averaged 458,000 viewers across Fox's networks, making it the most watched in English-language history.`\
-https://nytimes.com/athletic/6522326/2025/07/29/womens-euro-final-draw-2025-viewers/
 
