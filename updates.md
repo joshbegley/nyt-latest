@@ -1,3 +1,7 @@
+**Kaylee McKeown tops rival Regan Smith for another major title at swimming worlds**\
+`In the fastest-ever edition of their rivalry, McKeown once again bested Smith on a major stage Tuesday in Singapore.`\
+https://nytimes.com/athletic/6522297/2025/07/29/kaylee-mckeown-regan-smith-100-meter-backstroke-world-championships/
+
 **Liverpool agree deal to sign Arsenal target Wright**\
 `The Athletic previously reported that Arsenal agreed a deal to sign the 17-year-old in a deal worth around £200k plus add-ons.`\
 https://nytimes.com/athletic/6522324/2025/07/29/liverpool-transfer-news-will-wright-arsenal/

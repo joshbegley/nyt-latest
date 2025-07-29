@@ -1,3 +1,7 @@
+**Kaylee McKeown tops rival Regan Smith for another major title at swimming worlds**\
+`In the fastest-ever edition of their rivalry, McKeown once again bested Smith on a major stage Tuesday in Singapore.`\
+https://nytimes.com/athletic/6522297/2025/07/29/kaylee-mckeown-regan-smith-100-meter-backstroke-world-championships/
+
 **Liverpool agree deal to sign Arsenal target Wright**\
 `The Athletic previously reported that Arsenal agreed a deal to sign the 17-year-old in a deal worth around £200k plus add-ons.`\
 https://nytimes.com/athletic/6522324/2025/07/29/liverpool-transfer-news-will-wright-arsenal/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6521295/2025/07/29/nebraska-football-preseason-camp
 **Looking at Carter Yakemchuk's path to making the Senators — and the hurdles ahead**\
 `Carter Yakemchuk is working towards his goal of making the Senators' roster in October. But what are his chances of making the team?`\
 https://nytimes.com/athletic/6478755/2025/07/29/carter-yakemchuk-senators-prospects-nhl-roster/
-
-**Caris LeVert's Michigan homecoming could unlock potential for Pistons**\
-`"Michigan has a great place in my heart," said Caris LeVert about his return to the state where he played his college ball. `\
-https://nytimes.com/athletic/6521789/2025/07/29/caris-levert-pistons-michigan-jb-bickerstaff/
 
