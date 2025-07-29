@@ -1,3 +1,23 @@
+**Chaos Overtakes a Midtown Block as the Work Day Comes to a Close**\
+`An area where New Yorkers come to do business is spooked by a burst of violence.`\
+https://nytimes.com/2025/07/28/nyregion/park-avenue-shooting-nyc.html
+
+**Cubs icon, Hall of Fame second baseman Ryne Sandberg dies at 65 years old**\
+`Sandberg's consistency and production resonated in Chicago, where he made 10 consecutive All-Star teams.`\
+https://nytimes.com/athletic/6008303/2025/07/28/ryne-sandberg-obituary-cubs/
+
+**Corrections: July 29, 2025**\
+`Corrections that appeared in print on Tuesday, July 29, 2025.`\
+https://nytimes.com/2025/07/28/pageoneplus/corrections-july-29-2025.html
+
+**A Dinner Run Is Punctuated by a Fusillade**\
+`Darin Laing was heading to dinner when gunfire broke out and smoke poured from the lobby of 345 Park Avenue.`\
+https://nytimes.com/2025/07/28/nyregion/midtown-manhattan-shooting.html
+
+**Chargers training camp: Jamaree Salyer working with first team after weight-loss 'journey'**\
+`Salyer lost 35 pounds over the offseason, and his newfound conditioning could get him a chance to earn a starting job.`\
+https://nytimes.com/athletic/6521495/2025/07/28/chargers-training-camp-jamaree-salyer-weight/
+
 **A Dinner Run Is Punctuated by a Fusillade**\
 `Darin Laing was heading to dinner when gunfire broke out and smoke poured from the lobby of 345 Park Avenue.`\
 https://nytimes.com/2025/07/28/nyregion/a-dinner-run-is-punctuated-by-a-fusillade.html
