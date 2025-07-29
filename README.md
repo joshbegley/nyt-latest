@@ -1,5 +1,9 @@
+**Deadly Flooding Inundates Beijing**\
+`Severe rains caused flooding and landslides in Beijing and surrounding areas, leaving homes destroyed as mass evacuations were underway.`\
+https://nytimes.com/video/world/asia/100000010310810/beijing-china-floods.html
+
 **Sheffield Wednesday head coach Rohl to leave the club**\
-`An agreement has been reached for the 35-year-old to depart for free and Rohl has informed players and staff of the situation.`\
+`An agreement has been reached for the 36-year-old to depart for free and Rohl has informed players and staff of the situation.`\
 https://nytimes.com/athletic/6522073/2025/07/29/danny-rohl-leave-sheffield-wednesday/
 
 **Fantasy football rankings: Bijan Robinson, Ja'Marr Chase lead off the top 100**\
@@ -18,13 +22,13 @@ https://nytimes.com/2025/07/29/opinion/trump-crypto-genius-act-memcoin.html
 `Build strength with this classic core exercise.`\
 https://nytimes.com/interactive/2025/07/29/well/move/plank-exercise-technique.html
 
-**Designing ‘The Fantastic Four: First Steps’**\
-`A Manhattan with a retrofuturist sensibility is among the intriguing visual aspects of the film. We talk with its designers to get the details.`\
-https://nytimes.com/2025/07/29/movies/the-fantastic-four-first-steps-design.html
-
 **Trump Is Winning His Trade War. What Will That Mean for the Economy?**\
 `The president’s vision for reshaping global trade is falling into place, but he is embarking on an experiment that economists say could still produce damaging results.`\
 https://nytimes.com/2025/07/29/business/economy/trump-tariffs-economy.html
+
+**Designing ‘The Fantastic Four: First Steps’**\
+`A Manhattan with a retrofuturist sensibility is among the intriguing visual aspects of the film. We talk with its designers to get the details.`\
+https://nytimes.com/2025/07/29/movies/the-fantastic-four-first-steps-design.html
 
 **Why Is a Mid-Tier Restaurant Chain Selling Cowboy Boots?**\
 `As casual dining faces major headwinds, Chili’s is tapping into a Texas boot maker’s fashion credibility, hoping viral marketing can help it find a new audience.`\
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/29/style/chilis-tecovas-cowboy-boots.html
 **Powell Under Siege as Fed Plans to Stand Pat on Rate Cuts**\
 `Jerome H. Powell, the Federal Reserve chair, is facing relentless attacks from the president, a lively campaign to replace him and divisions in his own ranks over when to cut interest rates.`\
 https://nytimes.com/2025/07/29/business/powell-trump-fed-rate-cuts.html
-
-**Trump Is Discovering the Downside of a Justice Department With No Credibility**\
-`The president’s problem is that he needs to draw from the same well he has poisoned.`\
-https://nytimes.com/2025/07/29/opinion/trump-is-discovering-the-downside-of-a-justice-department-with-no-credibility.html
 
