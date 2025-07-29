@@ -2,6 +2,22 @@
 `Our experts have spent hundreds of hours testing tools and supplies to help you survive earthquakes, wildfires, floods, hurricanes, and much more.`\
 https://nytimes.com/wirecutter/reviews/emergency-preparedness-kit-builder/
 
+**Ghislaine Maxwell Lawyer Says She Will Only Testify for Immunity or Clemency**\
+`In letter to Congress, the lawyer for Jeffrey Epstein’s convicted co-conspirator says clemency would allow her to talk to lawmakers.`\
+https://nytimes.com/2025/07/29/us/politics/ghislaine-maxwell-epstein-testimony.html
+
+**Carter on missing Euros celebrations: It was my decision to return to club side Gotham**\
+`The 27-year-old defender was part of Sarina Wiegman's England side that won a second consecutive Euros title in Switzerland this month.`\
+https://nytimes.com/athletic/6523303/2025/07/29/jess-carter-england-euros-gotham/
+
+**Pete Carroll offers 'no comment' on Christian Wilkins' alleged kiss of Raiders teammate**\
+`Carroll declined to comment when asked if an alleged incident involving Wilkins played a part in the player's shocking release last week.`\
+https://nytimes.com/athletic/6523359/2025/07/29/christian-wilkins-raiders-kiss-pete-carroll/
+
+**Browns' Martin Emerson carted off in practice with Achilles injury**\
+`Emerson, who is in the final year of his contract, has started 33 games and grabbed four interceptions in his career. `\
+https://nytimes.com/athletic/6523499/2025/07/29/browns-martin-emerson-achilles-injury/
+
 **T’s Aug. 17 Women’s Fashion Issue**\
 ``\
 https://nytimes.com/issue/t-magazine/2025/07/29/ts-aug-17-womens-fashion-issue-2025
@@ -21,16 +37,4 @@ https://nytimes.com/athletic/6520047/2025/07/29/newcastle-aaron-ramsdale-transfe
 **Why Airdrops in Gaza Are Seen as a Risky Last Resort**\
 `Parachuting aid is expensive and inefficient, experts say, noting that at least five people in Gaza were killed in airdrop accidents last year.`\
 https://nytimes.com/2025/07/29/world/middleeast/gaza-airdrops.html
-
-**Padres' Dylan Cease has become a prime trade target for Astros**\
-`Cease, who is eligible for free agency at the end of the season, would be a rental for the current AL West leaders.`\
-https://nytimes.com/athletic/6523442/2025/07/29/dylan-cease-padres-astros-trade-target/
-
-**Panthers looking for big things from O-line that returns intact: 'They believe in us'**\
-`The Panthers bring back all five OL starters plus their backups. "That’s the first time I’ve seen that in my career," Robert Hunt said.`\
-https://nytimes.com/athletic/6523335/2025/07/29/panthers-offensive-line-strength/
-
-**Top Generals Nominated for New Positions Must Now Meet With Trump**\
-`The move is a departure from past practice and has raised worries that it could lead to the politicization of the military’s top ranks.`\
-https://nytimes.com/2025/07/29/us/politics/generals-trump.html
 
