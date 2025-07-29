@@ -1,3 +1,7 @@
+**Ryne Sandberg, Hall of Fame Second Baseman for the Cubs, Dies at 65**\
+`Both a skilled fielder and a fearsome power hitter, he entered the national sports spotlight with two memorable home runs in a nationally televised 1984 game.`\
+https://nytimes.com/2025/07/28/sports/baseball/ryne-sandberg-dead.html
+
 **Eugenio Suárez, one of trade deadline's top bats, day-to-day after pitch to hand**\
 `Suárez, the Diamondbacks’ 34-year-old third baseman, is perhaps the most coveted bat ahead of Thursday’s trade deadline.`\
 https://nytimes.com/athletic/6521614/2025/07/28/eugenio-suarez-hit-by-pitch/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/28/world/asia/china-rain-beijing-deaths.html
 **Chargers training camp: Jamaree Salyer working with first team after weight-loss 'journey'**\
 `Salyer lost 35 pounds over the offseason, and his newfound conditioning could get him a chance to earn a starting job.`\
 https://nytimes.com/athletic/6521495/2025/07/28/chargers-training-camp-jamaree-salyer-weight/
-
-**Cowboys OT Tyler Guyton expected to miss 4-6 weeks with knee injury: Sources**\
-`Second-year tackle's injury timeline means he could miss Dallas' season-opener Sept. 4 at Philadelphia.`\
-https://nytimes.com/athletic/6521440/2025/07/28/cowboys-ot-tyler-guyton-knee-injury/
 

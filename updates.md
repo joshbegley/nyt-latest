@@ -1,3 +1,7 @@
+**Eugenio Suárez, one of trade deadline's top bats, day-to-day after pitch to hand**\
+`Suárez, the Diamondbacks’ 34-year-old third baseman, is perhaps the most coveted bat ahead of Thursday’s trade deadline.`\
+https://nytimes.com/athletic/6521614/2025/07/28/eugenio-suarez-hit-by-pitch/
+
 **What we're hearing about the Mets' infield, including Mark Vientos' trade value**\
 `One league source said the slumping Vientos must hit for power the way he did in 2024 to overcome his defensive shortcomings.`\
 https://nytimes.com/athletic/6521534/2025/07/28/mets-mark-vientos-trade-value/
