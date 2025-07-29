@@ -1,3 +1,7 @@
+**TAFC: Newcastle's transfer headache – what now? Plus: Why Sesko is stuck at Leipzig**\
+`Isak's future is in doubt, targets are picking other clubs and uncertainty hangs over the stadium. Eddie Howe's side need a boost`\
+https://nytimes.com/athletic/6522161/2025/07/29/newcastle-isak-sesko-tafc-2/
+
 **Russian Strike on Prison Kills 16, Ukraine Says**\
 `The attack, which came just hours after President Trump gave the Kremlin a new deadline to work toward ending the war, was part of a wave across the country, the authorities said.`\
 https://nytimes.com/2025/07/29/world/europe/ukraine-russia-trump.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6521587/2025/07/29/reds-trade-deadline-bullpen-pitc
 **As Ravens work on cadence, they'll live with some penalties now to avoid them later**\
 `Limiting pre-snap penalties has been deemed a priority this season for Baltimore and its offense. `\
 https://nytimes.com/athletic/6521304/2025/07/29/baltimore-ravens-training-camp-penalties/
-
-**MLB trade deadline: Using history to put a price tag on players about to move**\
-`Does your team want to make a deal for Joe Ryan, Eugenio Suarez or Steven Kwan? Here's an idea of what it would cost.`\
-https://nytimes.com/athletic/6521028/2025/07/29/trade-deadline-players-price-tag/
 

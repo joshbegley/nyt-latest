@@ -1,3 +1,7 @@
+**TAFC: Newcastle's transfer headache – what now? Plus: Why Sesko is stuck at Leipzig**\
+`Isak's future is in doubt, targets are picking other clubs and uncertainty hangs over the stadium. Eddie Howe's side need a boost`\
+https://nytimes.com/athletic/6522161/2025/07/29/newcastle-isak-sesko-tafc-2/
+
 **Russian Strike on Prison Kills 16, Ukraine Says**\
 `The attack, which came just hours after President Trump gave the Kremlin a new deadline to work toward ending the war, was part of a wave across the country, the authorities said.`\
 https://nytimes.com/2025/07/29/world/europe/ukraine-russia-trump.html
