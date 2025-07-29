@@ -1,3 +1,7 @@
+**What We Know About the Shooting in Midtown Manhattan**\
+`Four people were killed, including an off-duty New York City police officer, when a gunman opened fire in an office tower before fatally shooting himself, officials said.`\
+https://nytimes.com/2025/07/29/nyregion/nyc-shooting-midtown-gunman-victims.html
+
 **When Coke and Pepsi Fought for Soft Drink Supremacy in Space**\
 `In the summer of 1985, NASA, the Reagan White House and seven talented astronauts got wrangled into an orbital chapter of the cola wars.`\
 https://nytimes.com/2025/07/29/science/coke-pepsi-nasa-space-shuttle.html

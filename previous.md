@@ -27,7 +27,7 @@ https://nytimes.com/2025/07/29/nyregion/nyc-shooting-police-officer-killed-didar
 https://nytimes.com/athletic/6521768/2025/07/29/craig-breslow-boston-red-sox-trade-deadline/
 
 **What We Know About the Shooting in Midtown Manhattan**\
-`Four people were killed, including a New York police officer, after a gunman opened fire in an office tower before fatally shooting himself, officials said.`\
+`Four people were killed, including an off-duty New York City police officer, when a gunman opened fire in an office tower before fatally shooting himself, officials said.`\
 https://nytimes.com/2025/07/29/nyregion/nyc-shooting-midtown-gunman-victims.html
 
 **Craig Counsell and the Cubs honor Ryne Sandberg in solemn postgame clubhouse**\
