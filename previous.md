@@ -1,3 +1,15 @@
+**Panthers looking for big things from O-line that returns intact: 'They believe in us'**\
+`The Panthers bring back all five OL starters plus their backups. "That’s the first time I’ve seen that in my career," Robert Hunt said.`\
+https://nytimes.com/athletic/6523335/2025/07/29/panthers-offensive-line-strength/
+
+**Top Generals Nominated for New Positions Must Now Meet With Trump**\
+`The move is a departure from past practice and has raised worries that it could lead to the politicization of the military’s top ranks.`\
+https://nytimes.com/2025/07/29/us/politics/generals-trump.html
+
+**Liverpool owner FSG in talks with Getafe president about staged takeover**\
+`FSG has been looking to build a multi-club group around Liverpool since it appointed Michael Edwards as its chief executive of football.`\
+https://nytimes.com/athletic/6523321/2025/07/29/fsg-liverpool-getafe-multi-club/
+
 **A World of Misery, From 200 Miles Up**\
 `Amid warnings of famine in Gaza, a satellite captures an image of hundreds Palestinians converging on an aid convoy.`\
 https://nytimes.com/2025/07/29/world/middleeast/gaza-satellite-aid-truck-famine.html
@@ -21,20 +33,4 @@ https://nytimes.com/athletic/6523114/2025/07/29/phillies-trade-deadline-prospect
 **U.K. Could Recognize Palestinian Statehood in September**\
 `Prime Minister Keir Starmer announced that he would recognize the state of Palestine in September if Israel does not agree to a cease-fire with Hamas.`\
 https://nytimes.com/video/world/middleeast/100000010311709/uk-could-recognize-palestinian-statehood-in-september.html
-
-**Five key Red Sox trade deadline questions: Jarren Duran, Yandy Diaz and more**\
-`Craig Breslow has maintained that the Red Sox will add at the deadline. How would that look? `\
-https://nytimes.com/athletic/6522837/2025/07/29/red-sox-mlb-trade-deadline-questions-targets/
-
-**Eagles training camp: Jeff Stoutland receives lifetime achievement award, talks OL depth**\
-`Stoutland broke down the Eagles' new class of offensive linemen and how will Cooper DeJean get more safety reps?`\
-https://nytimes.com/athletic/6522820/2025/07/29/eagles-training-camp-jeff-stoutland-offensive-line/
-
-**Slain Officer is Remembered for Devotion to His Family and Mosque**\
-`Officer Islam donated thousands of dollars to help establish a local mosque in his largely Bangladeshi neighborhood in the Bronx, according to a friend of his.`\
-https://nytimes.com/2025/07/29/nyregion/officer-islam-nyc-shooting-family-friends.html
-
-**The gunman’s claim that he had C.T.E. could take months to verify.**\
-`By Juliet Macur`\
-https://nytimes.com/live/2025/07/29/nyregion/nyc-shooting-manhattan/the-gunmans-claim-that-he-had-cte-could-take-months-to-verify
 
