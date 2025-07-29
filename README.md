@@ -1,3 +1,15 @@
+**Sheffield Wednesday head coach Danny Rohl to leave the club**\
+`An agreement has been reached for the 35-year-old to depart for free and Rohl has informed players and staff of the situation.`\
+https://nytimes.com/athletic/6522073/2025/07/29/danny-rohl-leave-sheffield-wednesday/
+
+**Fantasy football rankings: Bijan Robinson, Ja'Marr Chase lead off the top 100**\
+`Brandon Funston shares his thoughts on his preseason list of the Top 100 fantasy football players for the 2025 NFL campaign.`\
+https://nytimes.com/athletic/6514334/2025/07/29/fantasy-football-2025-top-100-rankings-bijan-chase/
+
+**Blindfolded hikes and falling into pools: Inside Robert Spillane's unorthodox training**\
+`Spillane's eyes-closed training is far from ordinary, but it has helped the new Patriot become one of the NFL's most reliable tacklers.`\
+https://nytimes.com/athletic/6515813/2025/07/29/robert-spillane-patriots-training-blindfolded-hikes-pool/
+
 **Crypto’s Man in the White House**\
 `The president’s family stands to make hundreds of millions of dollars from its cryptocurrency ventures.`\
 https://nytimes.com/2025/07/29/opinion/trump-crypto-genius-act-memcoin.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/07/29/business/powell-trump-fed-rate-cuts.html
 **Trump Is Discovering the Downside of a Justice Department With No Credibility**\
 `The president’s problem is that he needs to draw from the same well he has poisoned.`\
 https://nytimes.com/2025/07/29/opinion/trump-is-discovering-the-downside-of-a-justice-department-with-no-credibility.html
-
-**Class and Identity in Hilton Head: The Gullah v. Wealthy Landowners**\
-`A legal fight over access to burial grounds has pitted the Gullah Geechee against wealthy landowners around Hilton Head Island.`\
-https://nytimes.com/2025/07/29/us/south-carolina-gullah.html
-
-**Watch Twin Meteor Showers Reach Their Simultaneous Peak in Summer Skies**\
-`The Southern Delta Aquarids and Alpha Capricornids are not the best showers of the summer, but they reach their peak on the same night.`\
-https://nytimes.com/2025/07/29/science/meteor-shower-july-august-2025.html
-
-**‘African American’ Is Awkward. It’s Time to Use ‘Black.’**\
-`The linguist John McWhorter on how language around racial identity is evolving.`\
-https://nytimes.com/2025/07/29/opinion/african-american-black-white-mcwhorter.html
 
