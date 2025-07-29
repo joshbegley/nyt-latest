@@ -1,3 +1,7 @@
+**When Coke and Pepsi Fought for Soft Drink Supremacy in Space**\
+`In the summer of 1985, NASA, the Reagan White House and seven talented astronauts got wrangled into an orbital chapter of the cola wars.`\
+https://nytimes.com/2025/07/29/science/coke-pepsi-nasa-space-shuttle.html
+
 **Gunman Fatally Shoots Officer and 3 Others in Midtown Office Tower**\
 `The gunman, armed with an assault rifle, walked into the lobby and killed a police officer and two others. He killed another person on the 33rd floor before turning his gun on himself.`\
 https://nytimes.com/2025/07/29/nyregion/officer-killing-midtown-shooting.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6521804/2025/07/29/cubs-honor-ryne-sandberg-craig-c
 **Putin Wants Something He Can’t Get**\
 `The legitimacy he seeks is impossible without recognition from the West.`\
 https://nytimes.com/2025/07/29/opinion/putin-russia-negotiations-ukraine.html
-
-**The New York Times in Print for Tuesday, July 29, 2025**\
-``\
-https://nytimes.com/issue/todayspaper/2025/07/29/todays-new-york-times
 

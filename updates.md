@@ -1,3 +1,15 @@
+**Gunman Fatally Shoots Officer and 3 Others in Midtown Office Tower**\
+`The gunman, armed with an assault rifle, walked into the lobby and killed a police officer and two others. He killed another person on the 33rd floor before turning his gun on himself.`\
+https://nytimes.com/2025/07/29/nyregion/officer-killing-midtown-shooting.html
+
+**Word of the Day: mystify**\
+`This word has appeared in six articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2025/07/29/learning/word-of-the-day-mystify.html
+
+**Apple Is Shutting a Store in China, Its First Closure in the Country**\
+`The move speaks to slowing spending by consumers and Apple’s continuing struggles in China, its second-largest market.`\
+https://nytimes.com/2025/07/29/business/apple-china-dalian-store.html
+
 **Yankees aren’t proving worthy of major trade deadline splash right now**\
 `It’s hard to look at the stumbling Yankees and think they’re trending up.`\
 https://nytimes.com/athletic/6521902/2025/07/29/new-york-yankees-trade-deadline-strategy/
