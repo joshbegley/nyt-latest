@@ -1,3 +1,7 @@
+**Mayoral Candidates Navigate a Mass Shooting That Has Rattled New York**\
+`Zohran Mamdani, the Democratic nominee for mayor, was in Uganda when the shooting took place, while the incumbent mayor, Eric Adams, sought to project an image of crisis manager.`\
+https://nytimes.com/2025/07/29/nyregion/mamdani-uganda-shooting-park-avenue.html
+
 **The Bounce: Luka Dončić's revenge muscles**\
 `The Bounce is The Athletic's free NBA newsletter.`\
 https://nytimes.com/athletic/6523074/2025/07/29/luka-doncic-magazine-cover-the-bounce/

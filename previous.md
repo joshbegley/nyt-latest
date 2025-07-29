@@ -1,3 +1,7 @@
+**Mayoral Candidates Navigate a Mass Shooting That Has Rattled New York**\
+`Zohran Mamdani, the Democratic nominee for mayor, was in Uganda when the shooting took place, while the incumbent mayor, Eric Adams, sought to project an image of crisis manager.`\
+https://nytimes.com/2025/07/29/nyregion/mamdani-uganda-shooting-park-avenue.html
+
 **The Bounce: Luka Dončić's revenge muscles**\
 `The Bounce is The Athletic's free NBA newsletter.`\
 https://nytimes.com/athletic/6523074/2025/07/29/luka-doncic-magazine-cover-the-bounce/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/29/opinion/empathy-psychiatry.html
 **Do You Work With ICE? We Want to Hear From You.**\
 `To help us report upcoming stories about immigration enforcement under the Trump administration, we’d like to hear about the experiences of employees of ICE and other agencies.`\
 https://nytimes.com/2025/07/29/us/politics/ice-immigration-enforcement.html
-
-**San Diego Wave sign 21-year-old midfielder Laurina Fazer through 2027**\
-`Fazer joins the Wave from Paris Saint-Germain, where she began her professional career at age 16.`\
-https://nytimes.com/athletic/6522857/2025/07/29/laurina-fazer-san-diego-wave-signing-contract/
 
