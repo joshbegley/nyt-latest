@@ -1,3 +1,7 @@
+**MLB trade deadline cheat sheet: Top storylines, bold predictions, best-available players**\
+`To set the stage for the sprint to the deadline, here's a primer based on what I'm hearing from front office executives across the league. `\
+https://nytimes.com/athletic/6522061/2025/07/29/mlb-trade-deadline-storylines-predictions-rumors-players/
+
 **New York’s mayoral candidates share concern and condolences.**\
 `By Dana Rubinstein`\
 https://nytimes.com/live/2025/07/29/nyregion/nyc-shooting-manhattan/new-yorks-mayoral-candidates-shared-concern-and-condolences

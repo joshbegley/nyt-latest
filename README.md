@@ -1,3 +1,11 @@
+**Justice Dept. Seeks Censure of Judge, Widening Fight With Judiciary**\
+`A complaint said Judge James E. Boasberg, who has clashed with the Trump administration over deportation plans, made “improper public comments” about President Trump in a closed-door judicial conference.`\
+https://nytimes.com/2025/07/29/us/politics/judge-boasberg-misconduct-complaint-bondi.html
+
+**Hypergamy? David Geffen’s Divorce Gives New Meaning to an Old Term**\
+`A lawsuit against David Geffen mentions a website where hypergamy — dating above your station — is celebrated. But the word carries darker intonations.`\
+https://nytimes.com/2025/07/29/style/hypergamy-david-geffen-divorce.html
+
 **MLB trade deadline cheat sheet: Top storylines, bold predictions, best-available players**\
 `To set the stage for the sprint to the deadline, here's a primer based on what I'm hearing from front office executives across the league. `\
 https://nytimes.com/athletic/6522061/2025/07/29/mlb-trade-deadline-storylines-predictions-rumors-players/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6522489/2025/07/29/tadej-pogacar-vuelta-almeida-ayu
 **What I'm hearing about Quentin Grimes' restricted free agency with the Sixers**\
 `The Athletic polled 16 people in NBA front offices, asking what they would deem a “fair” contract for Philadelphia's restricted free agent.`\
 https://nytimes.com/athletic/6522453/2025/07/29/quentin-grimes-nba-free-agency-76ers/
-
-**Tracy McGrady joining NBC Sports as NBA studio analyst**\
-`McGrady is a seven-time NBA All-Star and a member of the Naismith Memorial Hall of Fame Class of 2017.`\
-https://nytimes.com/athletic/6522485/2025/07/29/tracy-mcgrady-nbc-sports-studio-analyst/
-
-**New York’s mayoral candidates share concern and condolences.**\
-`By Dana Rubinstein`\
-https://nytimes.com/live/2025/07/29/nyregion/nyc-shooting-manhattan/new-yorks-mayoral-candidates-shared-concern-and-condolences
 
