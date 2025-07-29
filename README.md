@@ -2,7 +2,7 @@
 `Welcome to Full Time, The Athletic's women's soccer newsletter.`\
 https://nytimes.com/athletic/6521738/2025/07/28/womens-euros-wafcon-uswnt-full-time/
 
-**4 killed in shooting at building housing NFL HQ; no clear league connection**\
+**Four shot, killed at building housing NFL HQ; no clear league connection**\
 `Victims of the shooting included a New York City police officer. Any potential motive remains unclear.`\
 https://nytimes.com/athletic/6521724/2025/07/28/new-york-shooting-nfl-headquarters-office-building/
 
