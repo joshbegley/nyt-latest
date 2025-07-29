@@ -2,6 +2,18 @@
 `Our experts have spent hundreds of hours testing tools and supplies to help you survive earthquakes, wildfires, floods, hurricanes, and much more.`\
 https://nytimes.com/wirecutter/reviews/emergency-preparedness-kit-builder/
 
+**Every Vote Counts in Brooklyn. Even Those Cast by Dead People.**\
+`The New York Times found several questionable absentee ballots that were tallied in a Republican City Council primary, including one from a dead woman.`\
+https://nytimes.com/2025/07/29/nyregion/council-dead-voter-fraud.html
+
+**The Familiar Suicide and Final Wish of the N.Y.C. Gunman**\
+`Shane Tamura is not the first former football player to shoot himself in the chest and request that his brain be examined.`\
+https://nytimes.com/2025/07/29/us/nfl-cte-suicides-violence.html
+
+**N.C. Republicans Push Through Contested Agenda on ‘Veto Override Day’**\
+`The divided state’s new Democratic governor vetoed 14 bills this session, on guns, immigration, trans rights and more. Republicans are trying to enact them all anyway.`\
+https://nytimes.com/2025/07/29/us/politics/veto-overrides-north-carolina.html
+
 **The Giants had questions leading into the trade deadline. Here are the answers**\
 `Three weeks ago, we posed questions the Giants needed to answer before the deadline. Here's where we stand on those questions.`\
 https://nytimes.com/athletic/6523118/2025/07/29/sf-giants-trade-deadline-questions-answers/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/07/29/opinion/sydney-sweeney-american-eagle-ad.html
 **Dwight Muhammad Qawi, 72, Dies; Boxing Champ Got His Start in Prison**\
 `After joining a boxing program while incarcerated, he emerged a contender in the pro ranks, winning championships in two weight classes in the 1980s.`\
 https://nytimes.com/2025/07/29/obituaries/dwight-muhammad-qawi-dead.html
-
-**Chelsea agree deal to sell defender Samuels-Smith to Strasbourg**\
-`The 19-year-old was signed from Everton in 2023 for £4million but despite being highly rated, did not make an appearance for the senior side`\
-https://nytimes.com/athletic/6523605/2025/07/29/chelsea-ishe-samuels-smith-strasbourg/
-
-**Trump Says Epstein ‘Stole’ Underage Victim from Mar-a-Lago Spa**\
-`President Trump acknowledged that Jeffrey Epstein recruited one of his victims, Virginia Giuffre, from Mar-a-Lago, and distanced himself from the allegations: “By the way, she had no complaints about us.”`\
-https://nytimes.com/2025/07/29/us/politics/trump-epstein-virginia-giuffre-mar-a-lago.html
-
-**Trump Says Gaza Will Get More Aid, but Israel Will Distribute It**\
-`The president has in recent days acknowledged there is “starvation” in Gaza, a break with Israeli officials who have faced deep criticism over the humanitarian crisis there.`\
-https://nytimes.com/2025/07/29/us/politics/trump-says-gaza-will-get-more-aid-but-israel-will-distribute-it.html
 

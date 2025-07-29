@@ -1,3 +1,15 @@
+**The Giants had questions leading into the trade deadline. Here are the answers**\
+`Three weeks ago, we posed questions the Giants needed to answer before the deadline. Here's where we stand on those questions.`\
+https://nytimes.com/athletic/6523118/2025/07/29/sf-giants-trade-deadline-questions-answers/
+
+**Rookie RJ Harvey's growth on display in Broncos' padded workouts**\
+`The rookie running back had a run in Tuesday's practice "that was something," coach Sean Payton said`\
+https://nytimes.com/athletic/6523445/2025/07/29/broncos-rj-harvey-growth-training-camp/
+
+**Is Raiders LB Devin White 'back' to being a difference-maker? Raiders camp takeaways**\
+`"He's back,” Carroll said of White, a former Pro Bowler with the Buccaneers who had his best day of practice with the Silver and Black.`\
+https://nytimes.com/athletic/6523526/2025/07/29/devin-white-raiders-nfl-training-camp/
+
 **After Park Avenue Shooting, Anti-Muslim Disinformation Spread Rapidly**\
 `Once it became clear that the only Muslim involved in the attack was one of the victims, right-wing commentators sought to shift the focus to Zohran Mamdani.`\
 https://nytimes.com/2025/07/29/nyregion/nyc-shooting-anti-muslim-disinformation.html
