@@ -1,3 +1,7 @@
+**Former Football Players With C.T.E. Have Turned to Violence**\
+`The gunman in the Manhattan office shooting said in a note that he had C.T.E., a degenerative disease associated with repeated hits to the head.`\
+https://nytimes.com/2025/07/29/sports/football/nyc-shooting-note-cte-explained.html
+
 **I.M.F. Raises Global Growth Outlook as U.S. Looks to Avert Trade Wars**\
 `The International Monetary Fund warned that trade tension continued to be a risk for the global economy.`\
 https://nytimes.com/2025/07/29/business/economy/imf-world-economic-outlook-trade-wars.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/29/nyregion/nyc-shooting-gunman-suicide-note-cte-nfl
 **Felix completes permanent Al Nassr move from Chelsea**\
 `The Portugal international spent the second half of 2024-25 on loan at Milan after a permanent Chelsea move last summer.`\
 https://nytimes.com/athletic/6518288/2025/07/29/chelsea-transfers-joao-felix-al-nassr/
-
-**India head coach Gambhir involved in confrontation with Oval curator**\
-`Lee Fortis was heard saying that he would "report" Gambhir after their interaction ahead of the fifth Test between England and India.`\
-https://nytimes.com/athletic/6522257/2025/07/29/india-england-gautam-gambhir-oval-pitch/
 
