@@ -1,3 +1,15 @@
+**Every Vote Counts in Brooklyn. Even Those Cast by Dead People.**\
+`The New York Times found several questionable absentee ballots that were tallied in a Republican City Council primary, including one from a dead woman.`\
+https://nytimes.com/2025/07/29/nyregion/council-dead-voter-fraud.html
+
+**The Familiar Suicide and Final Wish of the N.Y.C. Gunman**\
+`Shane Tamura is not the first former football player to shoot himself in the chest and request that his brain be examined.`\
+https://nytimes.com/2025/07/29/us/nfl-cte-suicides-violence.html
+
+**N.C. Republicans Push Through Contested Agenda on ‘Veto Override Day’**\
+`The divided state’s new Democratic governor vetoed 14 bills this session, on guns, immigration, trans rights and more. Republicans are trying to enact them all anyway.`\
+https://nytimes.com/2025/07/29/us/politics/veto-overrides-north-carolina.html
+
 **The Giants had questions leading into the trade deadline. Here are the answers**\
 `Three weeks ago, we posed questions the Giants needed to answer before the deadline. Here's where we stand on those questions.`\
 https://nytimes.com/athletic/6523118/2025/07/29/sf-giants-trade-deadline-questions-answers/
