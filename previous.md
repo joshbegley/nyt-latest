@@ -1,3 +1,19 @@
+**Until Saturday: The sneakiest favorite**\
+`Until Saturday is The Athletic's free CFB newsletter.`\
+https://nytimes.com/athletic/6523059/2025/07/29/big-12-favorite-kansas-state-until-saturday/
+
+**Prime Tire: Oscar Piastri is chasing a Lewis Hamilton record. Plus: F1 rain debates**\
+`Welcome to Prime Tire, The Athletic's Formula 1 newsletter`\
+https://nytimes.com/athletic/6522954/2025/07/29/oscar-piastri-f1-record-lewis-hamilton-belgian-gp-prime-tire/
+
+**Slain Blackstone Executive Was a Mentor to Women and a Leader at Work**\
+`Wesley LePatner, a senior executive at Blackstone, was among the four victims of a gunman who opened fire on Monday in a Park Avenue office tower.`\
+https://nytimes.com/2025/07/29/nyregion/blackstone-executive-wesley-lepatner-killed-nyc-shooting.html
+
+**Morton Mintz, Muckraking Crusader for Consumers, Dies at 103**\
+`As a longtime Washington Post reporter and an author of 10 books, he held corporate America accountable for safe pharmaceuticals and cars.`\
+https://nytimes.com/2025/07/29/books/morton-mintz-dead.html
+
 **Shooting in Midtown Was New York’s Deadliest in 25 Years**\
 `Gun laws in the city have largely prevented the sort of mass slaughter common in the rest of America. The last killing of this scale in the city was at a fast-food restaurant in Queens in 2000.`\
 https://nytimes.com/2025/07/29/nyregion/mass-shooting-midtown-death-toll.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6522959/2025/07/29/mlb-trade-deadline-rays-giants-a
 **Lyon make contact with Liverpool over Morton**\
 `Morton was part of England's under-21 squad which made it back-to-back European Championship wins in Slovakia this summer.`\
 https://nytimes.com/athletic/6493326/2025/07/29/tyler-morton-liverpool-transfer-future/
-
-**Ozempic Maker’s Stock Plunges 20% After Profit Warning**\
-`Novo Nordisk slashed its financial forecasts as it struggled to fight off competition in the United States. It also named a new chief executive, who highlighted the “urgency” of the moment.`\
-https://nytimes.com/2025/07/29/business/ozempic-novo-nordisk-stock-plunge.html
-
-**Pottery Finds a New Audience Among Fashionable Men**\
-`Men's wear stores around the country have cleared shelf space for teacups and handmade ceramics so image-conscious men can invest in their home space.`\
-https://nytimes.com/2025/07/29/realestate/ceramics-fashion-men-stores.html
-
-**Scottish Leader Talks Gaza, Tariffs and Ukraine in Meeting With Trump**\
-`After opening a new golf course at his Aberdeenshire resort, President Trump was scheduled to fly back to the United States.`\
-https://nytimes.com/2025/07/29/us/politics/trump-scotland-tariffs-ukraine-gaza.html
-
-**Kurt Warner to be lead NFL game analyst for YouTube's Christmas Day Game**\
-`YouTube is still in search of a play-by-play caller for the broadcast, according to sources briefed on the discussions.`\
-https://nytimes.com/athletic/6522879/2025/07/29/kurt-warner-youtube-christmas-nfl-game/
 

@@ -1,3 +1,19 @@
+**Until Saturday: The sneakiest favorite**\
+`Until Saturday is The Athletic's free CFB newsletter.`\
+https://nytimes.com/athletic/6523059/2025/07/29/big-12-favorite-kansas-state-until-saturday/
+
+**Prime Tire: Oscar Piastri is chasing a Lewis Hamilton record. Plus: F1 rain debates**\
+`Welcome to Prime Tire, The Athletic's Formula 1 newsletter`\
+https://nytimes.com/athletic/6522954/2025/07/29/oscar-piastri-f1-record-lewis-hamilton-belgian-gp-prime-tire/
+
+**Slain Blackstone Executive Was a Mentor to Women and a Leader at Work**\
+`Wesley LePatner, a senior executive at Blackstone, was among the four victims of a gunman who opened fire on Monday in a Park Avenue office tower.`\
+https://nytimes.com/2025/07/29/nyregion/blackstone-executive-wesley-lepatner-killed-nyc-shooting.html
+
+**Morton Mintz, Muckraking Crusader for Consumers, Dies at 103**\
+`As a longtime Washington Post reporter and an author of 10 books, he held corporate America accountable for safe pharmaceuticals and cars.`\
+https://nytimes.com/2025/07/29/books/morton-mintz-dead.html
+
 **Scottish Leader Talks Gaza, Tariffs and Ukraine in Meeting With Trump**\
 `After opening a new golf course at his Aberdeenshire resort, President Trump was scheduled to fly back to the United States.`\
 https://nytimes.com/2025/07/29/us/politics/trump-scotland-tariffs-ukraine-gaza.html
