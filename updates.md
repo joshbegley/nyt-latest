@@ -1,3 +1,11 @@
+**Felix completes permanent Al Nassr move from Chelsea**\
+`The Portugal international spent the second half of 2024-25 on loan at Milan after a permanent Chelsea move last summer.`\
+https://nytimes.com/athletic/6518288/2025/07/29/chelsea-transfers-joao-felix-al-nassr/
+
+**Giants keep coming up short, lose to Pirates in pitcher Carson Whisenhunt's debut**\
+`Whisenhunt showed something in his major-league debut Monday night but there was nothing festive about a 10th loss in 12 games.`\
+https://nytimes.com/athletic/6522039/2025/07/29/giants-pirates-carson-whisenhunt-debut/
+
 **India head coach Gambhir involved in confrontation with Oval curator**\
 `Lee Fortis was heard saying that he would "report" Gambhir after their interaction ahead of the fifth Test between England and India.`\
 https://nytimes.com/athletic/6522257/2025/07/29/india-england-gautam-gambhir-oval-pitch/

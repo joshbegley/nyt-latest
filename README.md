@@ -1,3 +1,7 @@
+**Park Avenue Gunman’s Note Referred to the N.F.L. and Brain Disease**\
+`The police said the man accused of the killings referred to chronic traumatic encephalopathy, which is caused by physical trauma, and asked that his brain be studied.`\
+https://nytimes.com/2025/07/29/nyregion/nyc-shooting-gunman-suicide-note-cte.html
+
 **Felix completes permanent Al Nassr move from Chelsea**\
 `The Portugal international spent the second half of 2024-25 on loan at Milan after a permanent Chelsea move last summer.`\
 https://nytimes.com/athletic/6518288/2025/07/29/chelsea-transfers-joao-felix-al-nassr/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6522039/2025/07/29/giants-pirates-carson-whisenhunt
 **Blackhawks fan survey: Your thoughts on rebuild, direction, CHSN, more**\
 `A record 3,126 Blackhawks fans chimed in to offer their thoughts on the rebuild, the organizational leaders and the players on the ice.`\
 https://nytimes.com/athletic/6515772/2025/07/29/blackhawks-fan-survey-2025-nhl/
-
-**Katie Ledecky, unmatchable in 1,500 freestyle, wins her 22nd swimming worlds gold**\
-`The American swimming star cruised to a win Tuesday in her signature event. Only Michael Phelps now has more world championship medals.`\
-https://nytimes.com/athletic/6522212/2025/07/29/katie-ledecky-1500-meter-freestyle-gold-world-championships/
 

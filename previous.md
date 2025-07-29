@@ -1,3 +1,7 @@
+**Felix completes permanent Al Nassr move from Chelsea**\
+`The Portugal international spent the second half of 2024-25 on loan at Milan after a permanent Chelsea move last summer.`\
+https://nytimes.com/athletic/6518288/2025/07/29/chelsea-transfers-joao-felix-al-nassr/
+
 **India head coach Gambhir involved in confrontation with Oval curator**\
 `Lee Fortis was heard saying that he would "report" Gambhir after their interaction ahead of the fifth Test between England and India.`\
 https://nytimes.com/athletic/6522257/2025/07/29/india-england-gautam-gambhir-oval-pitch/
@@ -23,7 +27,7 @@ https://nytimes.com/athletic/6478755/2025/07/29/carter-yakemchuk-senators-prospe
 https://nytimes.com/athletic/6521789/2025/07/29/caris-levert-pistons-michigan-jb-bickerstaff/
 
 **Giants keep coming up short, lose to Pirates in pitcher Carson Whisenhunt's debut**\
-`Whisenhunt showed something in his major league debut Monday night but there was nothing festive about a 10th loss in 12 games.`\
+`Whisenhunt showed something in his major-league debut Monday night but there was nothing festive about a 10th loss in 12 games.`\
 https://nytimes.com/athletic/6522039/2025/07/29/giants-pirates-carson-whisenhunt-debut/
 
 **Blackhawks fan survey: Your thoughts on rebuild, direction, CHSN, more**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6515772/2025/07/29/blackhawks-fan-survey-2025-nhl/
 **Katie Ledecky, unmatchable in 1,500 freestyle, wins her 22nd swimming worlds gold**\
 `The American swimming star cruised to a win Tuesday in her signature event. Only Michael Phelps now has more world championship medals.`\
 https://nytimes.com/athletic/6522212/2025/07/29/katie-ledecky-1500-meter-freestyle-gold-world-championships/
-
-**UnitedHealth’s Profits Fall as Costs of Care Continue to Rise**\
-`In the latest quarter, higher costs were felt across the company’s vast health insurance operations.`\
-https://nytimes.com/2025/07/29/health/unitedhealth-earnings-profits.html
 
