@@ -1,3 +1,7 @@
+**A look at the prospects the Boston Red Sox might trade**\
+`The Red Sox system is viewed by many evaluators as one of the league's strongest.`\
+https://nytimes.com/athletic/6521768/2025/07/29/craig-breslow-boston-red-sox-trade-deadline/
+
 **What We Know About the Shooting in Midtown Manhattan**\
 `Four people were killed, including a New York police officer, after a gunman opened fire in an office tower before fatally shooting himself, officials said.`\
 https://nytimes.com/2025/07/29/nyregion/nyc-shooting-midtown-gunman-victims.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6519706/2025/07/29/tour-de-france-2025-takeways-pog
 **Arsenal players seized the big moments at Euro 2025 - now they must do so in the WSL**\
 `Sarina Wiegman's Emirates Stadium contingent made the difference for the Lionesses this summer. Their next mission is to chase down Chelsea`\
 https://nytimes.com/athletic/6519660/2025/07/29/england-euro-2025-win-arsenal-players/
-
-**How Liverpool can afford to buy Isak even after committing over £500m in two months**\
-`Liverpool's sales have covered their huge expenditure this summer in accounting terms meaning a big Isak deal is doable`\
-https://nytimes.com/athletic/6520277/2025/07/29/liverpool-afford-alexander-isak-transfer/
 
