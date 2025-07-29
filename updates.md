@@ -1,3 +1,15 @@
+**The Bounce: Luka Dončić's revenge muscles**\
+`The Bounce is The Athletic's free NBA newsletter.`\
+https://nytimes.com/athletic/6523074/2025/07/29/luka-doncic-magazine-cover-the-bounce/
+
+**Whitecaps clear to do Muller deal after 'discovery rights' agreement with Cincinnati**\
+`Muller is expected to sign a deal that will not require a designated player (DP) spot in 2025, but would jump to a DP deal in 2026.`\
+https://nytimes.com/athletic/6269224/2025/07/29/thomas-muller-vancouver-whitecaps-mls/
+
+**Shooting in Midtown Was New York’s Deadliest in 25 Years**\
+`The last killing of such a scale in the city was during a fast-food restaurant robbery in Queens in 2000. Mass murders of strangers are rare.`\
+https://nytimes.com/2025/07/29/nyregion/mass-shooting-midtown-death-toll.html
+
 **Until Saturday: The sneakiest favorite**\
 `Until Saturday is The Athletic's free CFB newsletter.`\
 https://nytimes.com/athletic/6523059/2025/07/29/big-12-favorite-kansas-state-until-saturday/
