@@ -2,18 +2,6 @@
 `Our experts have spent hundreds of hours testing tools and supplies to help you survive earthquakes, wildfires, floods, hurricanes, and much more.`\
 https://nytimes.com/wirecutter/reviews/emergency-preparedness-kit-builder/
 
-**Grassley, a Champion of Whistle-Blowers, Spurns Them in Fight Over Bove**\
-`The senator’s treatment of whistle-blowers detailing allegations against Emil Bove, the Trump loyalist and appeals court nominee, has had a chilling effect, critics say.`\
-https://nytimes.com/2025/07/29/us/politics/grassley-whistle-blowers-emil-bove.html
-
-**Democrats Clash on Senate Floor Over Policing Bills and How to Take On Trump**\
-`When a pair of Democrats sought to win quick approval of a bipartisan package of policing legislation, a third rose to object, saying the party must take every opportunity to challenge President Trump.`\
-https://nytimes.com/2025/07/29/us/politics/cory-booker-democrats-trump-senate.html
-
-**Trade analysis: Orioles fare well in adding Juaron Watts-Brown for Seranthony Domínguez**\
-`The Orioles weren't going to miss Domínguez, who is a free agent after the season, so acquiring a real prospect for him is a win.`\
-https://nytimes.com/athletic/6523774/2025/07/29/orioles-blue-jays-juaron-watts-brown-seranthony-dominguez-trade-analysis/
-
 **University of California Settles With Jewish Students Over U.C.L.A. Protests**\
 `Jewish students and a professor said the university had allowed a hostile protest. After the settlement was announced, the Department of Justice separately said it had found the university violated civil rights laws.`\
 https://nytimes.com/2025/07/29/us/ucla-jewish-students-settlement.html
@@ -26,8 +14,8 @@ https://nytimes.com/video/world/middleeast/100000010302627/gaza-mother-toddler-b
 `The government can request the employment eligibility verification forms related to citizenship and immigration status as a matter of course, but Harvard was surprised to receive such a voluminous demand.`\
 https://nytimes.com/2025/07/29/us/politics/harvard-employee-forms-trump-administration.html
 
-**N.Y.C. Mass Shooting Was Nearly Impossible to Prevent, Experts Say**\
-`New York City has some of the toughest gun laws in the nation. But Monday’s mass shooting showed their limits, security experts said.`\
+**New York Has Strict Gun Laws. A Mass Shooting Showed Their Limits.**\
+`Shootings are down this year in New York City, which has some of the toughest gun laws in the nation. But Monday’s mass shooting was nearly impossible to prevent, security experts said.`\
 https://nytimes.com/2025/07/29/nyregion/new-york-gun-laws-shooting.html
 
 **Arkansas Police Release Photo of ‘Person of Interest’ in Killing of Couple**\
@@ -37,4 +25,16 @@ https://nytimes.com/2025/07/29/us/person-of-interest-killing-devils-den-arkansas
 **Manhattan Gunman Appeared to Target N.F.L. in Deadly Shooting**\
 `Also, the E.P.A. called for an end to its climate regulations. Here’s the latest at the end of Tuesday.`\
 https://nytimes.com/2025/07/29/briefing/manattan-shooting-epa-climate-regulations.html
+
+**Countries Scramble to Strike Trade Deals With Trump as Deadline Nears**\
+`It’s a race against time for some of America’s top trading partners who are negotiating furiously to reach agreements by Aug. 1.`\
+https://nytimes.com/2025/07/29/us/politics/trump-tariffs-trade-deals.html
+
+**People Line Up for Hours for These Pancakes. Now You Don’t Have To.**\
+`Golden Diner’s lush pancakes draw crowds, but the chef has never shared the recipe. Until now.`\
+https://nytimes.com/2025/07/29/dining/homemade-golden-diner-pancakes.html
+
+**Every Vote Counts in Brooklyn. Even Those Cast by Dead People.**\
+`The New York Times found several questionable absentee ballots that were tallied in a Republican City Council primary, including one from a dead woman.`\
+https://nytimes.com/2025/07/29/nyregion/council-dead-voter-fraud.html
 

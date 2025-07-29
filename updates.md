@@ -1,3 +1,19 @@
+**New York Has Strict Gun Laws. A Mass Shooting Showed Their Limits.**\
+`Shootings are down this year in New York City, which has some of the toughest gun laws in the nation. But Monday’s mass shooting was nearly impossible to prevent, security experts said.`\
+https://nytimes.com/2025/07/29/nyregion/new-york-gun-laws-shooting.html
+
+**Countries Scramble to Strike Trade Deals With Trump as Deadline Nears**\
+`It’s a race against time for some of America’s top trading partners who are negotiating furiously to reach agreements by Aug. 1.`\
+https://nytimes.com/2025/07/29/us/politics/trump-tariffs-trade-deals.html
+
+**People Line Up for Hours for These Pancakes. Now You Don’t Have To.**\
+`Golden Diner’s lush pancakes draw crowds, but the chef has never shared the recipe. Until now.`\
+https://nytimes.com/2025/07/29/dining/homemade-golden-diner-pancakes.html
+
+**Every Vote Counts in Brooklyn. Even Those Cast by Dead People.**\
+`The New York Times found several questionable absentee ballots that were tallied in a Republican City Council primary, including one from a dead woman.`\
+https://nytimes.com/2025/07/29/nyregion/council-dead-voter-fraud.html
+
 **Grassley, a Champion of Whistle-Blowers, Spurns Them in Fight Over Bove**\
 `The senator’s treatment of whistle-blowers detailing allegations against Emil Bove, the Trump loyalist and appeals court nominee, has had a chilling effect, critics say.`\
 https://nytimes.com/2025/07/29/us/politics/grassley-whistle-blowers-emil-bove.html
