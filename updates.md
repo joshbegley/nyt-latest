@@ -1,3 +1,7 @@
+**Former Football Players With C.T.E. Have Turned to Violence**\
+`The gunman in the Manhattan office shooting said in a note that he believed he had C.T.E., a degenerative disease linked by studies to repeated hits to the head.`\
+https://nytimes.com/2025/07/29/sports/football/nyc-shooting-note-cte-explained.html
+
 **Gyokeres shirt sales break Arsenal record**\
 `While data is still being analysed, it is already clear that demand for Gyokeres’ No 14 shirt exceeds that of any player in recent history.`\
 https://nytimes.com/athletic/6522378/2025/07/29/viktor-gyokeres-arsenal-shirt-record/

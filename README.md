@@ -1,3 +1,7 @@
+**Russia Launches Deadly Strike on Ukrainian Prison**\
+`The attack was part of a wave of strikes directed at 73 Ukrainian cities and villages, President Zelensky said. It came only hours after President Trump gave the Kremlin a new deadline to work toward ending the war.`\
+https://nytimes.com/video/world/europe/100000010310891/russia-launches-deadly-strike-on-ukrainian-prison.html
+
 **Gyokeres shirt sales break Arsenal record**\
 `While data is still being analysed, it is already clear that demand for Gyokeres’ No 14 shirt exceeds that of any player in recent history.`\
 https://nytimes.com/athletic/6522378/2025/07/29/viktor-gyokeres-arsenal-shirt-record/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6522297/2025/07/29/kaylee-mckeown-regan-smith-100-m
 **Liverpool agree deal to sign Arsenal target Wright**\
 `The Athletic previously reported that Arsenal agreed a deal to sign the 17-year-old in a deal worth around £200k plus add-ons.`\
 https://nytimes.com/athletic/6522324/2025/07/29/liverpool-transfer-news-will-wright-arsenal/
-
-**Are Cracks Appearing in Trump’s Antitrust Approach?**\
-`Two top officials are reportedly out of a job, amid reported disagreements within the Justice Department over how it regulates deals.`\
-https://nytimes.com/2025/07/29/business/dealbook/justice-dept-antitrust-slater-loomer.html
 
