@@ -1,3 +1,7 @@
+**Live Q&A: Angels trade deadline talk with Sam Blum at 11 a.m. PT Tuesday**\
+`Angels writer Sam Blum will hold a live Q&A Tuesday at 11 a.m. PT. `\
+https://nytimes.com/athletic/6521703/2025/07/28/live-qa-angels-trade-deadline-sam-blum/
+
 **Live Q&A: Guardians trade deadline talk with Zack Meisel at 12:30 p.m. ET Tuesday**\
 `Guardians writer Zack Meisel will hold a live Q&A on Tuesday at 12:30 p.m. ET. `\
 https://nytimes.com/athletic/6521692/2025/07/28/live-qa-guardians-trade-deadline-zack-meisel/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/28/sports/baseball/ryne-sandberg-dead.html
 **Eugenio Suárez, one of trade deadline's top bats, day-to-day after pitch to hand**\
 `Suárez, the Diamondbacks’ 34-year-old third baseman, is perhaps the most coveted bat ahead of Thursday’s trade deadline.`\
 https://nytimes.com/athletic/6521614/2025/07/28/eugenio-suarez-hit-by-pitch/
-
-**What we're hearing about the Mets' infield, including Mark Vientos' trade value**\
-`One league source said the slumping Vientos must hit for power the way he did in 2024 to overcome his defensive shortcomings.`\
-https://nytimes.com/athletic/6521534/2025/07/28/mets-mark-vientos-trade-value/
 
