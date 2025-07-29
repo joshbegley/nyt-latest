@@ -1,40 +1,40 @@
-**Ozzy Osbourne Funeral Procession to Be Held in His Hometown on Wednesday, City Says**\
-`Fans will be able to pay their respects as a hearse carrying the heavy metal star’s body travels through Birmingham, England, ahead of a private funeral.`\
-https://nytimes.com/2025/07/29/arts/music/ozzy-osbourne-funeral-procession.html
+**Crypto’s Man in the White House**\
+`The president’s family stands to make hundreds of millions of dollars from its cryptocurrency ventures.`\
+https://nytimes.com/2025/07/29/opinion/trump-crypto-genius-act-memcoin.html
 
-**Phillies trade deadline live Q&A with Matt Gelb on Monday at noon ET**\
-`Phillies writer Matt Gelb will answer subscribers' questions about the trade deadline during a live Q&A on Monday from noon-12:45 p.m. ET. `\
-https://nytimes.com/athletic/6522042/2025/07/29/phillies-trade-deadline-live-qa-with-matt-gelb-on-monday-at-noon-et/
+**How to Do a Perfect Plank**\
+`Build strength with this classic core exercise.`\
+https://nytimes.com/interactive/2025/07/29/well/move/plank-exercise-technique.html
 
-**Cease-Fire in Deadly Thailand-Cambodia Conflict Gets Armies’ Backing**\
-`The talks between commanders on both sides were seen as a crucial test of whether the cease-fire deal reached on Monday would result in a lasting peace.`\
-https://nytimes.com/2025/07/29/world/asia/thailand-cambodia-cease-fire-generals.html
+**Designing ‘The Fantastic Four: First Steps’**\
+`A Manhattan with a retrofuturist sensibility is among the intriguing visual aspects of the film. We talk with its designers to get the details.`\
+https://nytimes.com/2025/07/29/movies/the-fantastic-four-first-steps-design.html
 
-**India and Trump Still Don’t Have a Tariff Deal: Here’s Why That Matters**\
-`The stakes are high, with the United States and India counting on one another as indispensable partners in their competition with China.`\
-https://nytimes.com/2025/07/29/business/trump-tariffs-india-trade.html
+**Trump Is Winning His Trade War. What Will That Mean for the Economy?**\
+`The president’s vision for reshaping global trade is falling into place, but he is embarking on an experiment that economists say could still produce damaging results.`\
+https://nytimes.com/2025/07/29/business/economy/trump-tariffs-economy.html
 
-**Isak's Newcastle future 'not in my full control' - Howe**\
-`The Sweden international has made clear he wants to leave the club this summer.`\
-https://nytimes.com/athletic/6522000/2025/07/29/alexander-isak-newcastle-eddie-howe/
+**Why Is a Mid-Tier Restaurant Chain Selling Cowboy Boots?**\
+`As casual dining faces major headwinds, Chili’s is tapping into a Texas boot maker’s fashion credibility, hoping viral marketing can help it find a new audience.`\
+https://nytimes.com/2025/07/29/style/chilis-tecovas-cowboy-boots.html
 
-**Jimmy Fallon Ridicules Trump’s Choice Words About Epstein Island**\
-`The president said he “never had the privilege” of visiting Jeffrey Epstein’s island. Fallon’s take: “Trump’s staff was like, ‘A simple no would’ve been fine.’ ”`\
-https://nytimes.com/2025/07/29/arts/television/jimmy-fallon-trump-epstein.html
+**Powell Under Siege as Fed Plans to Stand Pat on Rate Cuts**\
+`Jerome H. Powell, the Federal Reserve chair, is facing relentless attacks from the president, a lively campaign to replace him and divisions in his own ranks over when to cut interest rates.`\
+https://nytimes.com/2025/07/29/business/powell-trump-fed-rate-cuts.html
 
-**A Podcast for the Questions Rarely Asked**\
-`Wesley Morris seeks to talk with writers, critics and others about their personal passions that are not necessarily related to their day jobs.`\
-https://nytimes.com/2025/07/29/insider/wesley-morris-cannonball.html
+**Trump Is Discovering the Downside of a Justice Department With No Credibility**\
+`The president’s problem is that he needs to draw from the same well he has poisoned.`\
+https://nytimes.com/2025/07/29/opinion/trump-is-discovering-the-downside-of-a-justice-department-with-no-credibility.html
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2025/07/29/crosswords/spelling-bee-forum.html
+**Class and Identity in Hilton Head: The Gullah v. Wealthy Landowners**\
+`A legal fight over access to burial grounds has pitted the Gullah Geechee against wealthy landowners around Hilton Head Island.`\
+https://nytimes.com/2025/07/29/us/south-carolina-gullah.html
 
-**The Transfer DealSheet: The latest on your club and their plans this summer window**\
-`Welcome to the ninth edition of The Athletic’s Transfer DealSheet for the summer 2025 transfer window`\
-https://nytimes.com/athletic/6519720/2025/07/29/manchester-united-transfer-latest-arsenal-liverpool-real-madrid-analysis/
+**Watch Twin Meteor Showers Reach Their Simultaneous Peak in Summer Skies**\
+`The Southern Delta Aquarids and Alpha Capricornids are not the best showers of the summer, but they reach their peak on the same night.`\
+https://nytimes.com/2025/07/29/science/meteor-shower-july-august-2025.html
 
-**Gunman Opens Fire in New York Skyscraper**\
-`Police and paramedics rushed to 345 Park Avenue in Midtown Manhattan, where the gunman, armed with an M4 rifle, fatally shot four people and critically wounded another.`\
-https://nytimes.com/video/nyregion/100000010310748/nyc-shooting-park-avenue.html
+**‘African American’ Is Awkward. It’s Time to Use ‘Black.’**\
+`The linguist John McWhorter on how language around racial identity is evolving.`\
+https://nytimes.com/2025/07/29/opinion/african-american-black-white-mcwhorter.html
 
