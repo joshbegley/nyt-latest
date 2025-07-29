@@ -1,4 +1,4 @@
-**Katie Ledecky, unmatchable in 1,500 freestyle, wins 22nd swimming worlds gold**\
+**Katie Ledecky, unmatchable in 1,500 freestyle, wins her 22nd swimming worlds gold**\
 `The American swimming star cruised to a win Tuesday in her signature event. Only Michael Phelps now has more world championship medals.`\
 https://nytimes.com/athletic/6522212/2025/07/29/katie-ledecky-1500-meter-freestyle-gold-world-championships/
 
