@@ -1,3 +1,15 @@
+**Colts, LT Bernhard Raimann agree to 4-year, $100 million extension: Source**\
+`Raimann receives a massive raise four days after the Colts and his agent weren't "on the same page" regarding a potential extension.`\
+https://nytimes.com/athletic/6521650/2025/07/28/colts-bernhard-raimann-extension/
+
+**Site of Midtown Shooting Is Owned by Rudin Management and Houses N.F.L. and Blackstone**\
+`The building occupies an entire block and has its own ZIP code. It’s owned by Rudin, one of the oldest real estate firms in New York City.`\
+https://nytimes.com/2025/07/28/nyregion/midtown-shooting-nyc-blackstone-nfl-rudin.html
+
+**Chris Paul returns to familiar place with Clippers but in different role**\
+`While the 40-year-old Paul could choose to end his career after this season, it is not something he is committing to now.`\
+https://nytimes.com/athletic/6521312/2025/07/28/chris-paul-clippers-introduction-return/
+
 **Think Out Loud**\
 `Peter Gorman’s Tuesday puzzle takes us on an adventure.`\
 https://nytimes.com/2025/07/28/crosswords/daily-puzzle-2025-07-29.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6008303/2025/07/28/ryne-sandberg-obituary-cubs/
 **Corrections: July 29, 2025**\
 `Corrections that appeared in print on Tuesday, July 29, 2025.`\
 https://nytimes.com/2025/07/28/pageoneplus/corrections-july-29-2025.html
-
-**A Dinner Run Is Punctuated by a Fusillade**\
-`Darin Laing was heading to dinner when gunfire broke out and smoke poured from the lobby of 345 Park Avenue.`\
-https://nytimes.com/2025/07/28/nyregion/midtown-manhattan-shooting.html
-
-**Take a Ride On New York City’s Future Train Line**\
-`The Interborough Express, a new rail line that would link Brooklyn and Queens, could change the face of the city.`\
-https://nytimes.com/interactive/2025/07/28/nyregion/interborough-express-tour-brooklyn-queens.html
-
-**Heavy Rainfall in Beijing Leaves at Least 30 Dead, Officials Say**\
-`More than 21 inches of rain fell on the mountainous district where most of the deaths occurred, China’s state broadcaster said on Tuesday.`\
-https://nytimes.com/2025/07/28/world/asia/china-rain-beijing-deaths.html
 
