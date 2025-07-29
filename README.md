@@ -1,3 +1,19 @@
+**Five key Mets trade deadline questions: Where can they make biggest upgrade?**\
+`Readers wondered about deals for Luis Robert Jr., Shane Bieber or any move that would qualify as a blockbuster.`\
+https://nytimes.com/athletic/6522712/2025/07/29/mets-mlb-trade-deadline-questions/
+
+**Five key Blue Jays trade deadline questions: Who are the pitching targets?**\
+`Which prospects are off the table in talks? What to do with Bo Bichette? `\
+https://nytimes.com/athletic/6522823/2025/07/29/blue-jays-mlb-trade-deadline-questions-targets/
+
+**Man City sign goalkeeper Trafford from Burnley**\
+`The England Under-21 international joins after City matched an offer made by Newcastle United.`\
+https://nytimes.com/athletic/6515313/2025/07/29/man-city-james-trafford-burnley/
+
+**Space Out With 11 Far-Out Songs**\
+`Muse about the universe to a playlist stocked with Björk, Sufjan Stevens, Frank Sinatra and more.`\
+https://nytimes.com/2025/07/29/arts/music/amplifier-newsletter-space-songs.html
+
 **How Netanyahu Played Trump for a Fool in Gaza**\
 `This is the first Israeli-Palestinian war where the worst leaders on both sides are calling all the shots.`\
 https://nytimes.com/2025/07/29/opinion/gaza-netanyahu-trump-israel-starvation.html
@@ -21,20 +37,4 @@ https://nytimes.com/2025/07/29/nyregion/mamdani-uganda-shooting-park-avenue.html
 **The Bounce: Luka Dončić's revenge muscles**\
 `The Bounce is The Athletic's free NBA newsletter.`\
 https://nytimes.com/athletic/6523074/2025/07/29/luka-doncic-magazine-cover-the-bounce/
-
-**Whitecaps clear to do Muller deal after 'discovery rights' agreement with Cincinnati**\
-`Muller is expected to sign a deal that will not require a designated player (DP) spot in 2025, but would jump to a DP deal in 2026.`\
-https://nytimes.com/athletic/6269224/2025/07/29/thomas-muller-vancouver-whitecaps-mls/
-
-**Until Saturday: The sneakiest favorite**\
-`Until Saturday is The Athletic's free CFB newsletter.`\
-https://nytimes.com/athletic/6523059/2025/07/29/big-12-favorite-kansas-state-until-saturday/
-
-**Prime Tire: Oscar Piastri is chasing a Lewis Hamilton record. Plus: F1 rain debates**\
-`Welcome to Prime Tire, The Athletic's Formula 1 newsletter`\
-https://nytimes.com/athletic/6522954/2025/07/29/oscar-piastri-f1-record-lewis-hamilton-belgian-gp-prime-tire/
-
-**Slain Blackstone Executive Was a Mentor to Women and a Leader at Work**\
-`Wesley LePatner, a senior executive at Blackstone, was among the four victims of a gunman who opened fire on Monday in a Park Avenue office tower.`\
-https://nytimes.com/2025/07/29/nyregion/blackstone-executive-wesley-lepatner-killed-nyc-shooting.html
 
