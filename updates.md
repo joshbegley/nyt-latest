@@ -1,3 +1,7 @@
+**Rosenthal: What I'm hearing about Guardians' revamped trade plans, plus more deadline notes**\
+`Steven Kwan is one Guardians player whose trade availability could be impacted by Emmanuel Clase's non-disciplinary leave.`\
+https://nytimes.com/athletic/6521551/2025/07/28/mlb-trade-deadline-guardians-clase-brewers/
+
 **Greenberg: Ryne Sandberg, the MVP of the '84 Cubs, will live forever at Wrigley Field**\
 `Sandberg, who made 10 straight All-Star Games, never went out of style in Chicago, where he thrilled fans and reminded them of glory days.`\
 https://nytimes.com/athletic/6517678/2025/07/28/ryne-sandberg-dies-chicago-cubs/
