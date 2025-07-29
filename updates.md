@@ -1,3 +1,7 @@
+**Padres' Dylan Cease has become a prime trade target for Astros**\
+`Cease, who is eligible for free agency at the end of the season, would be a rental for the current AL West leaders.`\
+https://nytimes.com/athletic/6523442/2025/07/29/dylan-cease-padres-astros-trade-target/
+
 **Panthers looking for big things from O-line that returns intact: 'They believe in us'**\
 `The Panthers bring back all five OL starters plus their backups. "That’s the first time I’ve seen that in my career," Robert Hunt said.`\
 https://nytimes.com/athletic/6523335/2025/07/29/panthers-offensive-line-strength/

@@ -1,3 +1,7 @@
+**Padres' Dylan Cease has become a prime trade target for Astros**\
+`Cease, who is eligible for free agency at the end of the season, would be a rental for the current AL West leaders.`\
+https://nytimes.com/athletic/6523442/2025/07/29/dylan-cease-padres-astros-trade-target/
+
 **Panthers looking for big things from O-line that returns intact: 'They believe in us'**\
 `The Panthers bring back all five OL starters plus their backups. "That’s the first time I’ve seen that in my career," Robert Hunt said.`\
 https://nytimes.com/athletic/6523335/2025/07/29/panthers-offensive-line-strength/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6522932/2025/07/29/commanders-terry-mclaurin-contra
 **Five key Phillies trade deadline questions: What will it cost to land what they need?**\
 `To get good players, you have to trade good players. It might hurt.`\
 https://nytimes.com/athletic/6523114/2025/07/29/phillies-trade-deadline-prospects-targets/
-
-**U.K. Could Recognize Palestinian Statehood in September**\
-`Prime Minister Keir Starmer announced that he would recognize the state of Palestine in September if Israel does not agree to a cease-fire with Hamas.`\
-https://nytimes.com/video/world/middleeast/100000010311709/uk-could-recognize-palestinian-statehood-in-september.html
 
