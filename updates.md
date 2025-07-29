@@ -1,3 +1,7 @@
+**Katie Ledecky, unmatchable in 1,500 freestyle, wins her 22nd swimming worlds gold**\
+`The American swimming star cruised to a win Tuesday in her signature event. Only Michael Phelps now has more world championship medals.`\
+https://nytimes.com/athletic/6522212/2025/07/29/katie-ledecky-1500-meter-freestyle-gold-world-championships/
+
 **UnitedHealth’s Profits Fall as Costs of Care Continue to Rise**\
 `In the latest quarter, higher costs were felt across the company’s vast health insurance operations.`\
 https://nytimes.com/2025/07/29/health/unitedhealth-earnings-profits.html

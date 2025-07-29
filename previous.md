@@ -1,3 +1,7 @@
+**Katie Ledecky, unmatchable in 1,500 freestyle, wins her 22nd swimming worlds gold**\
+`The American swimming star cruised to a win Tuesday in her signature event. Only Michael Phelps now has more world championship medals.`\
+https://nytimes.com/athletic/6522212/2025/07/29/katie-ledecky-1500-meter-freestyle-gold-world-championships/
+
 **UnitedHealth’s Profits Fall as Costs of Care Continue to Rise**\
 `In the latest quarter, higher costs were felt across the company’s vast health insurance operations.`\
 https://nytimes.com/2025/07/29/health/unitedhealth-earnings-profits.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6517345/2025/07/29/ryker-lee-usa-michigan-state-pre
 **A key piece in Cardinals bullpen, Phil Maton is prepared to be traded at deadline**\
 `The Cardinals clubhouse has lauded Maton all year, with veterans admiring his demeanor on the mound.`\
 https://nytimes.com/athletic/6521415/2025/07/29/cardinals-bullpen-phil-maton-trade-deadline/
-
-**What we learned at Big Ten media days: SEC barbs, Penn State hype and more**\
-`It was an eventful three days in Las Vegas for the league, as coaches made headlines and the CFP discourse loomed.`\
-https://nytimes.com/athletic/6520580/2025/07/29/big-ten-media-days-highlights/
 
