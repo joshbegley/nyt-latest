@@ -1,3 +1,23 @@
+**Emmanuel Clase probe to have lasting effects for Guardians, starting with trade deadline**\
+`Any legitimate chance the Guardians had at contending this season walked out the door with Clase. Shane Bieber and Steven Kwan could follow.`\
+https://nytimes.com/athletic/6521777/2025/07/29/emmanuel-clase-guardians-mlb-gambling-probe-shane-bieber-trade-deadline/
+
+**These Companies Avoided Clean-Air Rules. It Took a Single Email.**\
+`Sites including at least 15 coal plants sought exemptions from environmental rules using a new Trump administration system to fast-track requests, documents show.`\
+https://nytimes.com/2025/07/29/climate/epa-air-pollution-exemptions-emails.html
+
+**Bryan Mbeumo on how Ruben Amorim persuaded him to join Man Utd: 'There is a very good project here'**\
+`United's new forward explains the draw of Old Trafford and how chess influences him in football`\
+https://nytimes.com/athletic/6522467/2025/07/29/bryan-mbeumo-ruben-amorim-manchester-united/
+
+**The Best Way to Have Peaches for Dinner**\
+`Melissa Clark pairs the sweet summer fruit with roasted chicken thighs, basil and ginger for an unforgettable weeknight meal.`\
+https://nytimes.com/2025/07/29/dining/the-best-way-to-have-peaches-for-dinner.html
+
+**Tour de France winner Pogacar to skip Vuelta: 'The body is telling me to rest'**\
+`Pogacar's absence means Joao Almeida and Juan Ayuso will co-lead UAE Team Emirates in Spain.`\
+https://nytimes.com/athletic/6522489/2025/07/29/tadej-pogacar-vuelta-almeida-ayuso/
+
 **What I'm hearing about Quentin Grimes' restricted free agency with the Sixers**\
 `The Athletic polled 16 people in NBA front offices, asking what they would deem a “fair” contract for Philadelphia's restricted free agent.`\
 https://nytimes.com/athletic/6522453/2025/07/29/quentin-grimes-nba-free-agency-76ers/
