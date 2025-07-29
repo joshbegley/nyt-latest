@@ -1,3 +1,7 @@
+**After a fifth consecutive loss, Astros' Framber Valdez questions defensive positioning**\
+`Common sense, in Valdez’s words, is that left-handed hitters do not hit fly balls against him. `\
+https://nytimes.com/athletic/6521819/2025/07/29/houston-astros-framber-valdez-defensive-positioning/
+
 **Tuesday Briefing: Trump Said There’s ‘Real Starvation’ in Gaza**\
 `Also, a deadly shooting in Midtown Manhattan.`\
 https://nytimes.com/2025/07/29/briefing/gaza-starvation-europe-trade-deal-midtown-manhattan-shooting.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6516879/2025/07/29/sean-longstaff-leeds-newcastle-c
 **Five tactical themes that defined Women's Euro 2025: More systemised, less individualistic**\
 `It was impossible to watch this Euros and not marvel at how far the women’s game has come - it’s exactly what top-level football should be`\
 https://nytimes.com/athletic/6519809/2025/07/29/euro-2025-england-spain-final-bonmati/
-
-**Park Avenue Gunman Drove Cross Country Before Committing the Attack, Police Said**\
-`The police said that he had a history of mental illness documented in Nevada and that it was unclear why he targeted the building.`\
-https://nytimes.com/2025/07/29/nyregion/nyc-gunman-midtown-shooting.html
 

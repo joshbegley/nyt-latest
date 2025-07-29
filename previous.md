@@ -1,3 +1,15 @@
+**Tuesday Briefing: Trump Said There’s ‘Real Starvation’ in Gaza**\
+`Also, a deadly shooting in Midtown Manhattan.`\
+https://nytimes.com/2025/07/29/briefing/gaza-starvation-europe-trade-deal-midtown-manhattan-shooting.html
+
+**Liam Plunkett: The England World Cup winner taking cricket to the U.S.**\
+`Liam Plunkett was one of the unsung heroes of England's 2019 World Cup win - now he's hoping to help cricket grow in the United States`\
+https://nytimes.com/athletic/6468772/2025/07/29/england-world-cup-winner-cricket-united-states-liam-plunkett/
+
+**Tour de France key takeaways: Impact of Pogacar's dominance, the majesty of Ventoux, hopes for 2026 edition**\
+`The Athletic's writers discuss Visma Lease-A-Bike's tactics, unsung heroes, biggest disappointments and more `\
+https://nytimes.com/athletic/6519706/2025/07/29/tour-de-france-2025-takeways-pogacar-route/
+
 **Arsenal players seized the big moments at Euro 2025 - now they must do so in the WSL**\
 `Sarina Wiegman's Emirates Stadium contingent made the difference for the Lionesses this summer. Their next mission is to chase down Chelsea`\
 https://nytimes.com/athletic/6519660/2025/07/29/england-euro-2025-win-arsenal-players/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6519809/2025/07/29/euro-2025-england-spain-final-bo
 **Park Avenue Gunman Drove Cross Country Before Committing the Attack, Police Said**\
 `The police said that he had a history of mental illness documented in Nevada and that it was unclear why he targeted the building.`\
 https://nytimes.com/2025/07/29/nyregion/nyc-gunman-midtown-shooting.html
-
-**Tying down Morgan Gibbs-White is Forest's best business of the summer: He's the ultimate all-rounder**\
-`It's no surprise that Spurs tried to sign the attacking midfielder, whose positioning and vision make him a standout in the Premier League`\
-https://nytimes.com/athletic/6494710/2025/07/29/morgan-gibbs-white-nottingham-forest-analysis/
-
-**Quote of the Day: France Assails Trade Bargain as ‘Dark Day’**\
-`Quotation of the Day for Tuesday, July 29, 2025.`\
-https://nytimes.com/2025/07/29/pageoneplus/quote-of-the-day-france-assails-trade-bargain-as-dark-day.html
-
-**Finland’s Short, Precious Summers Are Plagued by Goose Poop**\
-`Finns trying to enjoy beaches and parks during their all-too-brief summers have been vexed by legions of geese — and their droppings. The smelly mess has resisted even the most innovative solutions.`\
-https://nytimes.com/2025/07/29/world/europe/helsinki-finland-goose-droppings.html
 

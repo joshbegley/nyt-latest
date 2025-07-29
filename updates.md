@@ -1,3 +1,15 @@
+**Tuesday Briefing: Trump Said There’s ‘Real Starvation’ in Gaza**\
+`Also, a deadly shooting in Midtown Manhattan.`\
+https://nytimes.com/2025/07/29/briefing/gaza-starvation-europe-trade-deal-midtown-manhattan-shooting.html
+
+**Liam Plunkett: The England World Cup winner taking cricket to the U.S.**\
+`Liam Plunkett was one of the unsung heroes of England's 2019 World Cup win - now he's hoping to help cricket grow in the United States`\
+https://nytimes.com/athletic/6468772/2025/07/29/england-world-cup-winner-cricket-united-states-liam-plunkett/
+
+**Tour de France key takeaways: Impact of Pogacar's dominance, the majesty of Ventoux, hopes for 2026 edition**\
+`The Athletic's writers discuss Visma Lease-A-Bike's tactics, unsung heroes, biggest disappointments and more `\
+https://nytimes.com/athletic/6519706/2025/07/29/tour-de-france-2025-takeways-pogacar-route/
+
 **Arsenal players seized the big moments at Euro 2025 - now they must do so in the WSL**\
 `Sarina Wiegman's Emirates Stadium contingent made the difference for the Lionesses this summer. Their next mission is to chase down Chelsea`\
 https://nytimes.com/athletic/6519660/2025/07/29/england-euro-2025-win-arsenal-players/
