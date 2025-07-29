@@ -1,3 +1,7 @@
+**UnitedHealth’s Profits Fall as Costs of Care Continue to Rise**\
+`In the latest quarter, higher costs were felt across the company’s vast health insurance operations.`\
+https://nytimes.com/2025/07/29/health/unitedhealth-earnings-profits.html
+
 **Union Pacific to Buy Norfolk Southern in $85 Billion Railroad Deal**\
 `The merger would create the United States’ first coast-to-coast rail network, spanning 50,000 miles and 43 states.`\
 https://nytimes.com/2025/07/29/business/union-pacific-norfolk-southern-merger.html
