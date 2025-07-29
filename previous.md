@@ -1,3 +1,7 @@
+**Union Pacific to Buy Norfolk Southern in $85 Billion Railroad Deal**\
+`The merger would create the United States’ first coast-to-coast rail network, spanning 50,000 miles and 43 states.`\
+https://nytimes.com/2025/07/29/business/union-pacific-norfolk-southern-merger.html
+
 **The Pulse: College football’s talking season goes quiet**\
 `Welcome to The Pulse, The Athletic's daily newsletter.`\
 https://nytimes.com/athletic/6521891/2025/07/29/college-football-media-days-the-pulse/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6520580/2025/07/29/big-ten-media-days-highlights/
 **Rangers' long-awaited win streak has arrived, just when they needed it**\
 `Just when it looked like Texas might be tempted to break up a roster that won a title in 2023, the Rangers turned things around.`\
 https://nytimes.com/athletic/6521745/2025/07/29/rangers-win-streak-trade-deadline/
-
-**Blue Jays’ trade deadline needs: Obvious targets, overlooked gems**\
-`The easiest place for a splashy addition is the back of the bullpen. Leverage relief options are plentiful, and Toronto is in need.`\
-https://nytimes.com/athletic/6521691/2025/07/29/blue-jays-trade-deadline-needs-obvious-targets-overlooked-gems/
 

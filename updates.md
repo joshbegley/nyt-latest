@@ -1,3 +1,7 @@
+**Union Pacific to Buy Norfolk Southern in $85 Billion Railroad Deal**\
+`The merger would create the United States’ first coast-to-coast rail network, spanning 50,000 miles and 43 states.`\
+https://nytimes.com/2025/07/29/business/union-pacific-norfolk-southern-merger.html
+
 **The Pulse: College football’s talking season goes quiet**\
 `Welcome to The Pulse, The Athletic's daily newsletter.`\
 https://nytimes.com/athletic/6521891/2025/07/29/college-football-media-days-the-pulse/

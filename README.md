@@ -1,3 +1,7 @@
+**UnitedHealth’s Profits Fall as Costs of Care Continue to Rise**\
+`In the latest quarter, higher costs were felt across the company’s vast health insurance operations.`\
+https://nytimes.com/2025/07/29/health/unitedhealth-earnings-profits.html
+
 **Union Pacific to Buy Norfolk Southern in $85 Billion Railroad Deal**\
 `The merger would create the United States’ first coast-to-coast rail network, spanning 50,000 miles and 43 states.`\
 https://nytimes.com/2025/07/29/business/union-pacific-norfolk-southern-merger.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6521415/2025/07/29/cardinals-bullpen-phil-maton-tra
 **What we learned at Big Ten media days: SEC barbs, Penn State hype and more**\
 `It was an eventful three days in Las Vegas for the league, as coaches made headlines and the CFP discourse loomed.`\
 https://nytimes.com/athletic/6520580/2025/07/29/big-ten-media-days-highlights/
-
-**Rangers' long-awaited win streak has arrived, just when they needed it**\
-`Just when it looked like Texas might be tempted to break up a roster that won a title in 2023, the Rangers turned things around.`\
-https://nytimes.com/athletic/6521745/2025/07/29/rangers-win-streak-trade-deadline/
 
