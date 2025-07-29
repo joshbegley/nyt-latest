@@ -1,3 +1,11 @@
+**North Korea Says Kim’s Relations With Trump ‘Not Bad,’ but Stands Firm on Nukes**\
+`The country appeared to signal an openness to talks, but said it must be recognized as a nuclear power and would not discuss abandoning its arsenal.`\
+https://nytimes.com/2025/07/29/world/asia/north-korea-kim-trump.html
+
+**The New York Times International Edition in Print for Wednesday, July 30, 2025**\
+``\
+https://nytimes.com/issue/todaysinyt/2025/07/29/todays-new-york-times-international-edition
+
 **Deadly Flooding Inundates Beijing**\
 `Severe rains caused flooding and landslides in Beijing and surrounding areas, leaving homes destroyed as mass evacuations were underway.`\
 https://nytimes.com/video/world/asia/100000010310810/beijing-china-floods.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/07/29/business/economy/trump-tariffs-economy.html
 **Designing ‘The Fantastic Four: First Steps’**\
 `A Manhattan with a retrofuturist sensibility is among the intriguing visual aspects of the film. We talk with its designers to get the details.`\
 https://nytimes.com/2025/07/29/movies/the-fantastic-four-first-steps-design.html
-
-**Why Is a Mid-Tier Restaurant Chain Selling Cowboy Boots?**\
-`As casual dining faces major headwinds, Chili’s is tapping into a Texas boot maker’s fashion credibility, hoping viral marketing can help it find a new audience.`\
-https://nytimes.com/2025/07/29/style/chilis-tecovas-cowboy-boots.html
-
-**Powell Under Siege as Fed Plans to Stand Pat on Rate Cuts**\
-`Jerome H. Powell, the Federal Reserve chair, is facing relentless attacks from the president, a lively campaign to replace him and divisions in his own ranks over when to cut interest rates.`\
-https://nytimes.com/2025/07/29/business/powell-trump-fed-rate-cuts.html
 

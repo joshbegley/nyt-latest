@@ -1,3 +1,11 @@
+**Deadly Flooding Inundates Beijing**\
+`Severe rains caused flooding and landslides in Beijing and surrounding areas, leaving homes destroyed as mass evacuations were underway.`\
+https://nytimes.com/video/world/asia/100000010310810/beijing-china-floods.html
+
+**Sheffield Wednesday head coach Rohl to leave the club**\
+`An agreement has been reached for the 36-year-old to depart for free and Rohl has informed players and staff of the situation.`\
+https://nytimes.com/athletic/6522073/2025/07/29/danny-rohl-leave-sheffield-wednesday/
+
 **Sheffield Wednesday head coach Rohl to leave the club**\
 `An agreement has been reached for the 35-year-old to depart for free and Rohl has informed players and staff of the situation.`\
 https://nytimes.com/athletic/6522073/2025/07/29/danny-rohl-leave-sheffield-wednesday/
