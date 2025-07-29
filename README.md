@@ -1,3 +1,7 @@
+**Has A.I. Become Part of Your Life?**\
+`Tell us about how you’re using artificial intelligence.`\
+https://nytimes.com/2025/07/29/opinion/ai-uses-concerns.html
+
 **MLB trade deadline: All of our 2025 deals and grades in one place**\
 `We'll be updating this file from now through the end of the trade deadline to keep you up on the latest deals.`\
 https://nytimes.com/athletic/6520153/2025/07/29/mlb-trade-deadline-deals-grades-2025/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6517383/2025/07/29/adam-aznou-everton-transfer/
 **Police Investigators Dissect Recent Movements of Manhattan Gunman**\
 `The New York Police Department tracked his travel from Nevada to Manhattan as well as his spending in recent years.`\
 https://nytimes.com/2025/07/29/nyregion/police-investigators-dissect-recent-movements-of-manhattan-gunman.html
-
-**U.K. Will Recognize Palestinian Statehood in September, Barring Israel-Hamas Cease-Fire**\
-`Prime Minister Keir Starmer of Britain said his country would make the move unless Israel agrees to a cease-fire with Hamas.`\
-https://nytimes.com/2025/07/29/world/europe/uk-palestinian-statehood.html
 
