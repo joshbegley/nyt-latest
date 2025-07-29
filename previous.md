@@ -1,8 +1,12 @@
+**What we're hearing about the Mets' infield, including Mark Vientos' trade value**\
+`One league source said the slumping Vientos must hit for power the way he did in 2024 to overcome his defensive shortcomings.`\
+https://nytimes.com/athletic/6521534/2025/07/28/mets-mark-vientos-trade-value/
+
 **Chaos Overtakes a Midtown Block as the Work Day Comes to a Close**\
 `An area where New Yorkers come to do business is spooked by a burst of violence.`\
 https://nytimes.com/2025/07/28/nyregion/park-avenue-shooting-nyc.html
 
-**Cubs icon, Hall of Fame second baseman Ryne Sandberg dies at 65 years old**\
+**Ryne Sandberg, Cubs icon and Hall of Fame second baseman, dies at 65**\
 `Sandberg's consistency and production resonated in Chicago, where he made 10 consecutive All-Star teams.`\
 https://nytimes.com/athletic/6008303/2025/07/28/ryne-sandberg-obituary-cubs/
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6521440/2025/07/28/cowboys-ot-tyler-guyton-knee-inj
 **Seahawks training camp: Defense dominates on Day 1 in pads, highlighted by pick 6**\
 `The Seahawks' new-look offense struggled to run the ball, or escape the shadow of its own goal posts, as the physicality ramped up.`\
 https://nytimes.com/athletic/6521496/2025/07/28/seahawks-training-camp-pads-defense/
-
-**Officer Killed and Others Are Shot at Park Avenue Office Tower**\
-`The gunman was dead, the police said, and the building was in lockdown Monday evening.`\
-https://nytimes.com/live/2025/07/28/nyregion/nyc-shooting
 

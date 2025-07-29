@@ -1,3 +1,7 @@
+**Eugenio Suárez, one of trade deadline's top bats, day-to-day after pitch to hand**\
+`Suárez, the Diamondbacks’ 34-year-old third baseman, is perhaps the most coveted bat ahead of Thursday’s trade deadline.`\
+https://nytimes.com/athletic/6521614/2025/07/28/eugenio-suarez-hit-by-pitch/
+
 **What we're hearing about the Mets' infield, including Mark Vientos' trade value**\
 `One league source said the slumping Vientos must hit for power the way he did in 2024 to overcome his defensive shortcomings.`\
 https://nytimes.com/athletic/6521534/2025/07/28/mets-mark-vientos-trade-value/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6521495/2025/07/28/chargers-training-camp-jamaree-s
 **Cowboys OT Tyler Guyton expected to miss 4-6 weeks with knee injury: Sources**\
 `Second-year tackle's injury timeline means he could miss Dallas' season-opener Sept. 4 at Philadelphia.`\
 https://nytimes.com/athletic/6521440/2025/07/28/cowboys-ot-tyler-guyton-knee-injury/
-
-**Seahawks training camp: Defense dominates on Day 1 in pads, highlighted by pick 6**\
-`The Seahawks' new-look offense struggled to run the ball, or escape the shadow of its own goal posts, as the physicality ramped up.`\
-https://nytimes.com/athletic/6521496/2025/07/28/seahawks-training-camp-pads-defense/
 

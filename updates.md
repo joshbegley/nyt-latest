@@ -1,3 +1,11 @@
+**What we're hearing about the Mets' infield, including Mark Vientos' trade value**\
+`One league source said the slumping Vientos must hit for power the way he did in 2024 to overcome his defensive shortcomings.`\
+https://nytimes.com/athletic/6521534/2025/07/28/mets-mark-vientos-trade-value/
+
+**Ryne Sandberg, Cubs icon and Hall of Fame second baseman, dies at 65**\
+`Sandberg's consistency and production resonated in Chicago, where he made 10 consecutive All-Star teams.`\
+https://nytimes.com/athletic/6008303/2025/07/28/ryne-sandberg-obituary-cubs/
+
 **Chaos Overtakes a Midtown Block as the Work Day Comes to a Close**\
 `An area where New Yorkers come to do business is spooked by a burst of violence.`\
 https://nytimes.com/2025/07/28/nyregion/park-avenue-shooting-nyc.html
