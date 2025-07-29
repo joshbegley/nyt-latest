@@ -1,3 +1,19 @@
+**How the E.U. Wooed Trump With Flashy but Flimsy Numbers**\
+`The Trump administration has been talking up provisions of its deal with the European Union that would secure hundreds of billions of dollars in investments.`\
+https://nytimes.com/2025/07/29/world/europe/europe-us-trade-deal-investments.html
+
+**Bears rookie Colston Loveland making an impact for up-and-down offense**\
+`DJ Moore gets some handoffs out of the backfield and Rome Odunze continues to impress Ben Johnson. Our training camp observations.`\
+https://nytimes.com/athletic/6523103/2025/07/29/bears-colston-loveland-impact-offense/
+
+**WNBA mailbag: Submit your questions**\
+`Our expert will answer later this week.`\
+https://nytimes.com/athletic/6523246/2025/07/29/wnba-mailbag-questions-2/
+
+**Top Lawyer for National Security Agency Is Fired**\
+`A far-right conspiracy theorist had amplified criticism of the lawyer and her previous work.`\
+https://nytimes.com/2025/07/29/us/politics/nsa-lawyer-fired.html
+
 **NASA’s Next Mission Will Launch From India. Here’s How to Watch.**\
 `A new Earth-observing satellite, built by NASA and India’s space agency, will be sent into orbit on Wednesday.`\
 https://nytimes.com/2025/07/29/science/nisar-nasa-india.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6522645/2025/07/29/cardinals-mlb-trade-deadline-que
 **Trump Urges the U.K. to Drill More Oil, Criticizing Its Energy Policy**\
 `President Trump said the North Sea was a “treasure chest,” but its high taxes were driving away oil producers.`\
 https://nytimes.com/2025/07/29/business/energy-environment/trump-oil-drilling-uk-north-sea.html
-
-**Do Certain Tattoos Constitute ‘Stolen Valor’?**\
-`A ruling on a dispute over a potentially misleading tattoo.`\
-https://nytimes.com/interactive/2025/07/29/magazine/olympic-tattoo-hodgman-quiz.html
-
-**Houthis in Yemen Confirm in Video They Are Holding 11 Mariners Hostage**\
-`The video was the first confirmation of the number of hostages, who had been sailing through the Red Sea on a ship attacked by the Houthis on July 7.`\
-https://nytimes.com/2025/07/29/world/middleeast/houthis-hostages-video-yemen.html
-
-**The Windup: Bryce Harper cussed out the commissioner**\
-`Welcome to The Windup, The Athletic's MLB newsletter.`\
-https://nytimes.com/athletic/6523113/2025/07/29/bryce-harper-rob-manfred-the-windup/
-
-**Five key Mets trade deadline questions: Where can they make biggest upgrade?**\
-`Readers wondered about deals for Luis Robert Jr., Shane Bieber or any move that would qualify as a blockbuster.`\
-https://nytimes.com/athletic/6522712/2025/07/29/mets-mlb-trade-deadline-questions/
 

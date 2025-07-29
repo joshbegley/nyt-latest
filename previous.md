@@ -1,3 +1,11 @@
+**NASA’s Next Mission Will Launch From India. Here’s How to Watch.**\
+`A new Earth-observing satellite, built by NASA and India’s space agency, will be sent into orbit on Wednesday.`\
+https://nytimes.com/2025/07/29/science/nisar-nasa-india.html
+
+**Lions scrimmage notes: Aidan Hutchinson impresses, Brian Branch excels**\
+`What and who else stood out from Tuesday's Lions scrimmage?`\
+https://nytimes.com/athletic/6522815/2025/07/29/detroit-lions-training-camp-scrimmage-aidan-hutchinson/
+
 **What is CTE? Explaining the disease referenced by New York gunman at NFL HQ building**\
 `The brain disease has most commonly been found in athletes in contact sports and others with a history of repeated brain trauma.`\
 https://nytimes.com/athletic/6522641/2025/07/29/nfl-new-york-shooting-cte/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6523113/2025/07/29/bryce-harper-rob-manfred-the-win
 **Five key Mets trade deadline questions: Where can they make biggest upgrade?**\
 `Readers wondered about deals for Luis Robert Jr., Shane Bieber or any move that would qualify as a blockbuster.`\
 https://nytimes.com/athletic/6522712/2025/07/29/mets-mlb-trade-deadline-questions/
-
-**Five key Blue Jays trade deadline questions: Who are the pitching targets?**\
-`Which prospects are off the table in talks? What to do with Bo Bichette? `\
-https://nytimes.com/athletic/6522823/2025/07/29/blue-jays-mlb-trade-deadline-questions-targets/
-
-**Man City sign goalkeeper Trafford from Burnley**\
-`The England Under-21 international joins after City matched an offer made by Newcastle United.`\
-https://nytimes.com/athletic/6515313/2025/07/29/man-city-james-trafford-burnley/
 
