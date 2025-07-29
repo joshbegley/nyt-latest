@@ -1,3 +1,7 @@
+**Britain and France Talk of Recognizing a Palestinian State. What Would It Mean?**\
+`The announcements reflect deep frustrations with Israel’s conduct in Gaza and in the occupied West Bank, experts say.`\
+https://nytimes.com/2025/07/29/world/middleeast/palestinian-statehood-israel.html
+
 **States Sue to Block Trump Law Defunding Planned Parenthood**\
 `A federal judge recently ruled that a Republican effort to withhold Medicaid funds from the organization’s clinics was likely unconstitutional.`\
 https://nytimes.com/2025/07/29/us/politics/abortion-lawsuit-trump-planned-parenthood.html
