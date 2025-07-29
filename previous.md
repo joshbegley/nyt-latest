@@ -1,3 +1,7 @@
+**What We Know About the Shooting in Midtown Manhattan**\
+`Four people were killed, including a New York police officer, after a gunman opened fire in an office tower before fatally shooting himself, officials said.`\
+https://nytimes.com/2025/07/29/nyregion/nyc-shooting-midtown-gunman-victims.html
+
 **Craig Counsell and the Cubs honor Ryne Sandberg in solemn postgame clubhouse**\
 `"We're grateful that he was willing to spend time with us when things weren't going great for him. It's a sad day for the Chicago Cubs."`\
 https://nytimes.com/athletic/6521804/2025/07/29/cubs-honor-ryne-sandberg-craig-counsell/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6519660/2025/07/29/england-euro-2025-win-arsenal-pl
 **How Liverpool can afford to buy Isak even after committing over £500m in two months**\
 `Liverpool's sales have covered their huge expenditure this summer in accounting terms meaning a big Isak deal is doable`\
 https://nytimes.com/athletic/6520277/2025/07/29/liverpool-afford-alexander-isak-transfer/
-
-**Why are football's player unions so powerless compared with U.S. sports?**\
-`Collective bargaining is a key part of American sports, yet in football, the fragmented nature of the sport makes it hard to unionise.`\
-https://nytimes.com/athletic/6512013/2025/07/29/football-unions-influence-fifpro/
 

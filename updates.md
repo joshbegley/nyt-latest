@@ -1,3 +1,7 @@
+**What We Know About the Shooting in Midtown Manhattan**\
+`Four people were killed, including a New York police officer, after a gunman opened fire in an office tower before fatally shooting himself, officials said.`\
+https://nytimes.com/2025/07/29/nyregion/nyc-shooting-midtown-gunman-victims.html
+
 **Craig Counsell and the Cubs honor Ryne Sandberg in solemn postgame clubhouse**\
 `"We're grateful that he was willing to spend time with us when things weren't going great for him. It's a sad day for the Chicago Cubs."`\
 https://nytimes.com/athletic/6521804/2025/07/29/cubs-honor-ryne-sandberg-craig-counsell/
