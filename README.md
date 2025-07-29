@@ -1,3 +1,7 @@
+**Officer Killed and 2 Others Are Shot at Park Avenue Office Tower**\
+`The gunman was dead, the police said, and the building was in lockdown Monday evening.`\
+https://nytimes.com/live/2025/07/28/nyregion/nyc-shooting
+
 **Ex-President Álvaro Uribe of Colombia Is Convicted of Bribery**\
 `Mr. Uribe, a towering figure in Colombian politics, was accused of trying to bribe a former paramilitary to retract testimony damaging to him.`\
 https://nytimes.com/2025/07/28/world/americas/colombia-uribe-trial-bribery-verdict.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/28/us/politics/trump-epstein-files-island.html
 **Live trade deadline Q&A with Cubs writer Patrick Mooney on Tuesday at 10 a.m. CT**\
 `Submit your questions about what Chicago might do at the deadline in a live chat.`\
 https://nytimes.com/athletic/6521431/2025/07/28/cubs-mlb-trade-deadline-live-chat-patrick-mooney/
-
-**Officer Killed and 2 Others Are Shot at Park Avenue Office Tower**\
-`The gunman was dead, the police said, and the building was in lockdown Monday evening.`\
-https://nytimes.com/2025/07/28/nyregion/nyc-shooting-blackstone-midtown.html
 
