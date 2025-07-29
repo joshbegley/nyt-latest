@@ -1,3 +1,11 @@
+**A Podcast for the Questions Rarely Asked**\
+`Wesley Morris seeks to talk with writers, critics and others about their personal passions that are not necessarily related to their day jobs.`\
+https://nytimes.com/2025/07/29/insider/wesley-morris-cannonball.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/07/29/crosswords/spelling-bee-forum.html
+
 **The Transfer DealSheet: The latest on your club and their plans this summer window**\
 `Welcome to the ninth edition of The Athletic’s Transfer DealSheet for the summer 2025 transfer window`\
 https://nytimes.com/athletic/6519720/2025/07/29/manchester-united-transfer-latest-arsenal-liverpool-real-madrid-analysis/
