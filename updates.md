@@ -1,3 +1,11 @@
+**Ex-President Álvaro Uribe of Colombia Is Convicted of Bribery**\
+`Mr. Uribe, a towering figure in Colombian politics, was accused of trying to bribe a former paramilitary to retract testimony damaging to him.`\
+https://nytimes.com/2025/07/28/world/americas/colombia-uribe-trial-bribery-verdict.html
+
+**Thuds and duds: C.J. West, Nick Bosa, Mac Jones shine in 49ers' padded practice**\
+`One of the 49ers' defensive line rookies excelled in one-on-one drills Monday. Some of the backup blockers, however, did not.`\
+https://nytimes.com/athletic/6521410/2025/07/28/49ers-training-camp-mac-jones-pads/
+
 **With Reese Olson injured, here's why the Tigers traded for Chris Paddack**\
 `The Tigers traded with the Minnesota Twins for right-handed pitchers Chris Paddack and Randy Dobnak on Monday. `\
 https://nytimes.com/athletic/6521308/2025/07/28/tigers-traded-for-chris-paddack/
