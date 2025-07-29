@@ -1,3 +1,7 @@
+**Israeli Settler Arrested Over Killing of Palestinian Activist in West Bank**\
+`Awdah Hathaleen, whose work was featured in the Oscar-winning documentary “No Other Land,” was shot dead. The suspect had been subject to U.S. sanctions, but President Trump lifted them.`\
+https://nytimes.com/2025/07/29/world/middleeast/israeli-settler-killing-palestinian-activist-west-bank-awdah-hathaleen.html
+
 **Justice Dept. Seeks Censure of Judge, Widening Fight With Judiciary**\
 `A complaint said Judge James E. Boasberg, who has clashed with the Trump administration over deportation plans, made “improper public comments” about President Trump in a closed-door judicial conference.`\
 https://nytimes.com/2025/07/29/us/politics/judge-boasberg-misconduct-complaint-bondi.html

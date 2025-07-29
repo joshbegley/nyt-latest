@@ -1,3 +1,7 @@
+**Israeli Settler Arrested Over Killing of Palestinian Activist in West Bank**\
+`Awdah Hathaleen, whose work was featured in the Oscar-winning documentary “No Other Land,” was shot dead. The suspect had been subject to U.S. sanctions, but President Trump lifted them.`\
+https://nytimes.com/2025/07/29/world/middleeast/israeli-settler-killing-palestinian-activist-west-bank-awdah-hathaleen.html
+
 **Justice Dept. Seeks Censure of Judge, Widening Fight With Judiciary**\
 `A complaint said Judge James E. Boasberg, who has clashed with the Trump administration over deportation plans, made “improper public comments” about President Trump in a closed-door judicial conference.`\
 https://nytimes.com/2025/07/29/us/politics/judge-boasberg-misconduct-complaint-bondi.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/29/dining/the-best-way-to-have-peaches-for-dinner.ht
 **Tour de France winner Pogacar to skip Vuelta: 'The body is telling me to rest'**\
 `Pogacar's absence means Joao Almeida and Juan Ayuso will co-lead UAE Team Emirates in Spain.`\
 https://nytimes.com/athletic/6522489/2025/07/29/tadej-pogacar-vuelta-almeida-ayuso/
-
-**What I'm hearing about Quentin Grimes' restricted free agency with the Sixers**\
-`The Athletic polled 16 people in NBA front offices, asking what they would deem a “fair” contract for Philadelphia's restricted free agent.`\
-https://nytimes.com/athletic/6522453/2025/07/29/quentin-grimes-nba-free-agency-76ers/
 

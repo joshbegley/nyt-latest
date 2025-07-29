@@ -1,3 +1,15 @@
+**‘Come With Me, Chuck E.’: Mouse Arrested for Credit Card Fraud**\
+`At a Tallahassee, Fla., Chuck E. Cheese location, a police officer told children: “Chuck E.’s busy right now.”`\
+https://nytimes.com/2025/07/29/us/chuck-e-cheese-costume-arrest-fraud.html
+
+**Slain Police Officer Was Working in Uniform While Off Duty**\
+`The Paid Detail Unit allows businesses that can afford it to pay for extra police protection.`\
+https://nytimes.com/2025/07/29/nyregion/nypd-officer-nyc-shooting.html
+
+**Got Bulls questions? Submit to Joel Lorenzi for the latest mailbag**\
+`The Chicago Bulls’ summer has hardly been eventful.`\
+https://nytimes.com/athletic/6522740/2025/07/29/bulls-mailbag-nikola-vucevic-josh-giddey-matas-buzelis/
+
 **Israeli Settler Arrested Over Killing of Palestinian Activist in West Bank**\
 `Awdah Hathaleen, whose work was featured in the Oscar-winning documentary “No Other Land,” was shot dead. The suspect had been subject to U.S. sanctions, but President Trump lifted them.`\
 https://nytimes.com/2025/07/29/world/middleeast/israeli-settler-killing-palestinian-activist-west-bank-awdah-hathaleen.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6521777/2025/07/29/emmanuel-clase-guardians-mlb-gam
 **These Companies Avoided Clean-Air Rules. It Took a Single Email.**\
 `Sites including at least 15 coal plants sought exemptions from environmental rules using a new Trump administration system to fast-track requests, documents show.`\
 https://nytimes.com/2025/07/29/climate/epa-air-pollution-exemptions-emails.html
-
-**Bryan Mbeumo on how Ruben Amorim persuaded him to join Man Utd: 'There is a very good project here'**\
-`United's new forward explains the draw of Old Trafford and how chess influences him in football`\
-https://nytimes.com/athletic/6522467/2025/07/29/bryan-mbeumo-ruben-amorim-manchester-united/
-
-**The Best Way to Have Peaches for Dinner**\
-`Melissa Clark pairs the sweet summer fruit with roasted chicken thighs, basil and ginger for an unforgettable weeknight meal.`\
-https://nytimes.com/2025/07/29/dining/the-best-way-to-have-peaches-for-dinner.html
-
-**Tour de France winner Pogacar to skip Vuelta: 'The body is telling me to rest'**\
-`Pogacar's absence means Joao Almeida and Juan Ayuso will co-lead UAE Team Emirates in Spain.`\
-https://nytimes.com/athletic/6522489/2025/07/29/tadej-pogacar-vuelta-almeida-ayuso/
 
