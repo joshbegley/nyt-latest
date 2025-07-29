@@ -1,3 +1,11 @@
+**Israeli Far-Right Minister Promotes Plan for Jewish Resettlement in Gaza**\
+`Bezalel Smotrich described Gaza as an ‘inseparable part’ of Israel, even as the Netherlands announced a ban on him and another hard line Israeli minister.`\
+https://nytimes.com/2025/07/29/world/middleeast/israel-gaza-jewish-resettlement.html
+
+**Marjorie Taylor Greene Is First Republican Lawmaker to Call Gaza Crisis a ‘Genocide’**\
+`Ms. Greene is the first Republican in Congress to use the term to describe the dire humanitarian situation in Gaza, two years after she led the push to censure a Democrat for speaking out against conditions there.`\
+https://nytimes.com/2025/07/29/us/politics/marjorie-taylor-greene-gaza-genocide.html
+
 **Russia Launches Deadly Strike on Ukrainian Prison**\
 `The attack was part of a wave of strikes directed at 73 Ukrainian cities and villages, President Zelensky said. It came only hours after President Trump gave the Kremlin a new deadline to work toward ending the war.`\
 https://nytimes.com/video/world/europe/100000010310891/russia-launches-deadly-strike-on-ukrainian-prison.html

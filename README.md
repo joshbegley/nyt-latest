@@ -1,3 +1,7 @@
+**Partey to feature on Premier League trading cards after Arsenal green light**\
+`Partey was charged with five counts of rape and one count of sexual assault earlier this month. He denies the allegations.`\
+https://nytimes.com/athletic/6522098/2025/07/29/arsenal-thomas-partey-topps-trading-cards/
+
 **Israeli Far-Right Minister Promotes Plan for Jewish Resettlement in Gaza**\
 `Bezalel Smotrich described Gaza as an ‘inseparable part’ of Israel, even as the Netherlands announced a ban on him and another hard line Israeli minister.`\
 https://nytimes.com/2025/07/29/world/middleeast/israel-gaza-jewish-resettlement.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/29/arts/booker-prize-nominees.html
 **Suited for Summer in Crisp Linen**\
 `A smartly dressed golf instructor said that the sport has influenced his style.`\
 https://nytimes.com/2025/07/29/style/street-style-look-linen-suit.html
-
-**Sean Combs, Awaiting Sentencing, Asks Judge to Release Him From Jail**\
-`Lawyers for the music mogul, who is to be sentenced in October on prostitution charges, filed court papers saying he would sign a $50 million bond.`\
-https://nytimes.com/2025/07/29/arts/music/sean-combs-diddy-bail-bond.html
 

@@ -1,3 +1,11 @@
+**Israeli Far-Right Minister Promotes Plan for Jewish Resettlement in Gaza**\
+`Bezalel Smotrich described Gaza as an ‘inseparable part’ of Israel, even as the Netherlands announced a ban on him and another hard line Israeli minister.`\
+https://nytimes.com/2025/07/29/world/middleeast/israel-gaza-jewish-resettlement.html
+
+**Marjorie Taylor Greene Is First Republican Lawmaker to Call Gaza Crisis a ‘Genocide’**\
+`Ms. Greene is the first Republican in Congress to use the term to describe the dire humanitarian situation in Gaza, two years after she led the push to censure a Democrat for speaking out against conditions there.`\
+https://nytimes.com/2025/07/29/us/politics/marjorie-taylor-greene-gaza-genocide.html
+
 **Russia Launches Deadly Strike on Ukrainian Prison**\
 `The attack was part of a wave of strikes directed at 73 Ukrainian cities and villages, President Zelensky said. It came only hours after President Trump gave the Kremlin a new deadline to work toward ending the war.`\
 https://nytimes.com/video/world/europe/100000010310891/russia-launches-deadly-strike-on-ukrainian-prison.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/07/29/style/street-style-look-linen-suit.html
 **Sean Combs, Awaiting Sentencing, Asks Judge to Release Him From Jail**\
 `Lawyers for the music mogul, who is to be sentenced in October on prostitution charges, filed court papers saying he would sign a $50 million bond.`\
 https://nytimes.com/2025/07/29/arts/music/sean-combs-diddy-bail-bond.html
-
-**Kaylee McKeown tops rival Regan Smith for another major title at swimming worlds**\
-`In the fastest-ever edition of their rivalry, McKeown once again bested Smith on a major stage Tuesday in Singapore.`\
-https://nytimes.com/athletic/6522297/2025/07/29/kaylee-mckeown-regan-smith-100-meter-backstroke-world-championships/
-
-**Liverpool agree deal to sign Arsenal target Wright**\
-`The Athletic previously reported that Arsenal agreed a deal to sign the 17-year-old in a deal worth around £200k plus add-ons.`\
-https://nytimes.com/athletic/6522324/2025/07/29/liverpool-transfer-news-will-wright-arsenal/
 
