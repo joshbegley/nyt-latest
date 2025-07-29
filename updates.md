@@ -1,3 +1,19 @@
+**Five key Mets trade deadline questions: Where can they make biggest upgrade?**\
+`Readers wondered about deals for Luis Robert Jr., Shane Bieber or any move that would qualify as a blockbuster.`\
+https://nytimes.com/athletic/6522712/2025/07/29/mets-mlb-trade-deadline-questions/
+
+**Five key Blue Jays trade deadline questions: Who are the pitching targets?**\
+`Which prospects are off the table in talks? What to do with Bo Bichette? `\
+https://nytimes.com/athletic/6522823/2025/07/29/blue-jays-mlb-trade-deadline-questions-targets/
+
+**Man City sign goalkeeper Trafford from Burnley**\
+`The England Under-21 international joins after City matched an offer made by Newcastle United.`\
+https://nytimes.com/athletic/6515313/2025/07/29/man-city-james-trafford-burnley/
+
+**Space Out With 11 Far-Out Songs**\
+`Muse about the universe to a playlist stocked with Björk, Sufjan Stevens, Frank Sinatra and more.`\
+https://nytimes.com/2025/07/29/arts/music/amplifier-newsletter-space-songs.html
+
 **How Netanyahu Played Trump for a Fool in Gaza**\
 `This is the first Israeli-Palestinian war where the worst leaders on both sides are calling all the shots.`\
 https://nytimes.com/2025/07/29/opinion/gaza-netanyahu-trump-israel-starvation.html
