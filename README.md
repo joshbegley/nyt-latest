@@ -2,6 +2,10 @@
 `Our experts have spent hundreds of hours testing tools and supplies to help you survive earthquakes, wildfires, floods, hurricanes, and much more.`\
 https://nytimes.com/wirecutter/reviews/emergency-preparedness-kit-builder/
 
+**Britain and France Talk of Recognizing a Palestinian State. What Would It Mean?**\
+`The announcements reflect deep frustrations with Israel’s conduct in Gaza and in the occupied West Bank, experts say.`\
+https://nytimes.com/2025/07/29/world/middleeast/palestinian-statehood-israel.html
+
 **States Sue to Block Trump Law Defunding Planned Parenthood**\
 `A federal judge recently ruled that a Republican effort to withhold Medicaid funds from the organization’s clinics was likely unconstitutional.`\
 https://nytimes.com/2025/07/29/us/politics/abortion-lawsuit-trump-planned-parenthood.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6523724/2025/07/29/nascar-suspends-austin-hill/
 **Grassley, a Champion of Whistle-Blowers, Spurns Them in Fight Over Bove**\
 `The senator’s treatment of whistle-blowers detailing allegations against Emil Bove, the Trump loyalist and appeals court nominee, has had a chilling effect, critics say.`\
 https://nytimes.com/2025/07/29/us/politics/grassley-whistle-blowers-emil-bove.html
-
-**Democrats Clash on Senate Floor Over Policing Bills and How to Take On Trump**\
-`When a pair of Democrats sought to win quick approval of a bipartisan package of policing legislation, a third rose to object, saying the party must take every opportunity to challenge President Trump.`\
-https://nytimes.com/2025/07/29/us/politics/cory-booker-democrats-trump-senate.html
 
