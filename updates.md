@@ -1,3 +1,11 @@
+**Justice Dept. Seeks Censure of Judge, Widening Fight With Judiciary**\
+`A complaint said Judge James E. Boasberg, who has clashed with the Trump administration over deportation plans, made “improper public comments” about President Trump in a closed-door judicial conference.`\
+https://nytimes.com/2025/07/29/us/politics/judge-boasberg-misconduct-complaint-bondi.html
+
+**Hypergamy? David Geffen’s Divorce Gives New Meaning to an Old Term**\
+`A lawsuit against David Geffen mentions a website where hypergamy — dating above your station — is celebrated. But the word carries darker intonations.`\
+https://nytimes.com/2025/07/29/style/hypergamy-david-geffen-divorce.html
+
 **MLB trade deadline cheat sheet: Top storylines, bold predictions, best-available players**\
 `To set the stage for the sprint to the deadline, here's a primer based on what I'm hearing from front office executives across the league. `\
 https://nytimes.com/athletic/6522061/2025/07/29/mlb-trade-deadline-storylines-predictions-rumors-players/
