@@ -1,3 +1,19 @@
+**How Netanyahu Played Trump for a Fool in Gaza**\
+`This is the first Israeli-Palestinian war where the worst leaders on both sides are calling all the shots.`\
+https://nytimes.com/2025/07/29/opinion/gaza-netanyahu-trump-israel-starvation.html
+
+**Aland Etienne Was a Devoted Father and ‘Beloved’ Security Officer**\
+`Mr. Etienne, 46, whose family is from Haiti, was working a shift in the building at 345 Park Avenue when a gunman burst into the lobby.`\
+https://nytimes.com/2025/07/29/nyregion/nyc-shooting-victim-security-guard-aland-etienne.html
+
+**UNICEF Employees Held Hostage for 3 Weeks in Haiti**\
+`Haitian gangs are increasingly abducting people and holding them for ransom to raise funds for other criminal activity, experts say.`\
+https://nytimes.com/2025/07/29/us/haiti-unicef-hostages-gangs.html
+
+**U.S. and China Fail to Reach Immediate Deal to Prolong Trade Truce**\
+`After a “constructive” round of talks ahead of an Aug. 12 deadline, Treasury Secretary Scott Bessent said “nothing is agreed until we speak with President Trump.”`\
+https://nytimes.com/2025/07/29/world/europe/us-china-trade-deal-talks-tariffs.html
+
 **Mayoral Candidates Navigate a Mass Shooting That Has Rattled New York**\
 `Zohran Mamdani, the Democratic nominee for mayor, was in Uganda when the shooting took place, while the incumbent mayor, Eric Adams, sought to project an image of crisis manager.`\
 https://nytimes.com/2025/07/29/nyregion/mamdani-uganda-shooting-park-avenue.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6522954/2025/07/29/oscar-piastri-f1-record-lewis-ha
 **Slain Blackstone Executive Was a Mentor to Women and a Leader at Work**\
 `Wesley LePatner, a senior executive at Blackstone, was among the four victims of a gunman who opened fire on Monday in a Park Avenue office tower.`\
 https://nytimes.com/2025/07/29/nyregion/blackstone-executive-wesley-lepatner-killed-nyc-shooting.html
-
-**Morton Mintz, Muckraking Crusader for Consumers, Dies at 103**\
-`As a longtime Washington Post reporter and an author of 10 books, he held corporate America accountable for safe pharmaceuticals and cars.`\
-https://nytimes.com/2025/07/29/books/morton-mintz-dead.html
-
-**Shooting in Midtown Was New York’s Deadliest in 25 Years**\
-`The last killing of such a scale in the city was during a fast-food restaurant robbery in Queens in 2000. Mass murders of strangers are rare.`\
-https://nytimes.com/2025/07/29/nyregion/mass-shooting-midtown-death-toll.html
-
-**Two Psychiatrists: A Closer Look at Empathy**\
-`Readers respond to a Critic’s Notebook about the debate over empathy. Also: The notion that President Trump’s image could be added to Mount Rushmore.`\
-https://nytimes.com/2025/07/29/opinion/empathy-psychiatry.html
-
-**Do You Work With ICE? We Want to Hear From You.**\
-`To help us report upcoming stories about immigration enforcement under the Trump administration, we’d like to hear about the experiences of employees of ICE and other agencies.`\
-https://nytimes.com/2025/07/29/us/politics/ice-immigration-enforcement.html
 

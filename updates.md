@@ -1,3 +1,19 @@
+**How Netanyahu Played Trump for a Fool in Gaza**\
+`This is the first Israeli-Palestinian war where the worst leaders on both sides are calling all the shots.`\
+https://nytimes.com/2025/07/29/opinion/gaza-netanyahu-trump-israel-starvation.html
+
+**Aland Etienne Was a Devoted Father and ‘Beloved’ Security Officer**\
+`Mr. Etienne, 46, whose family is from Haiti, was working a shift in the building at 345 Park Avenue when a gunman burst into the lobby.`\
+https://nytimes.com/2025/07/29/nyregion/nyc-shooting-victim-security-guard-aland-etienne.html
+
+**UNICEF Employees Held Hostage for 3 Weeks in Haiti**\
+`Haitian gangs are increasingly abducting people and holding them for ransom to raise funds for other criminal activity, experts say.`\
+https://nytimes.com/2025/07/29/us/haiti-unicef-hostages-gangs.html
+
+**U.S. and China Fail to Reach Immediate Deal to Prolong Trade Truce**\
+`After a “constructive” round of talks ahead of an Aug. 12 deadline, Treasury Secretary Scott Bessent said “nothing is agreed until we speak with President Trump.”`\
+https://nytimes.com/2025/07/29/world/europe/us-china-trade-deal-talks-tariffs.html
+
 **Mayoral Candidates Navigate a Mass Shooting That Has Rattled New York**\
 `Zohran Mamdani, the Democratic nominee for mayor, was in Uganda when the shooting took place, while the incumbent mayor, Eric Adams, sought to project an image of crisis manager.`\
 https://nytimes.com/2025/07/29/nyregion/mamdani-uganda-shooting-park-avenue.html
