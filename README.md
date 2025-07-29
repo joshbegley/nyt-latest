@@ -1,3 +1,7 @@
+**Rosenthal: What I'm hearing about the Guardians' revamped trade plans, plus more deadline notes**\
+`Steven Kwan is one Guardians player whose trade availability could be impacted by Emmanuel Clase's non-disciplinary leave.`\
+https://nytimes.com/athletic/6521551/2025/07/28/mlb-trade-deadline-guardians-clase-brewers/
+
 **Greenberg: Ryne Sandberg, the MVP of the '84 Cubs, will live forever at Wrigley Field**\
 `Sandberg, who made 10 straight All-Star Games, never went out of style in Chicago, where he thrilled fans and reminded them of glory days.`\
 https://nytimes.com/athletic/6517678/2025/07/28/ryne-sandberg-dies-chicago-cubs/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6521692/2025/07/28/live-qa-guardians-trade-deadline
 **Dozens of Licensed Weed Shops Were Placed Too Close to Schools**\
 `State regulators said that a misreading of the law that legalized cannabis in New York allowed some shops to open in unsuitable locations. Those businesses may be uprooted now.`\
 https://nytimes.com/2025/07/28/nyregion/weed-shops-schools.html
-
-**Eugenie Bouchard extends career, wins thrilling opener at Canadian Open**\
-`The former Wimbledon finalist defeats No. 82 Emiliana Arango in the first round of the Canadian Open.`\
-https://nytimes.com/athletic/6521641/2025/07/28/eugenie-bouchard-extends-career-canadian-open/
 

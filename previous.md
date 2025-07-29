@@ -1,3 +1,7 @@
+**Greenberg: Ryne Sandberg, the MVP of the '84 Cubs, will live forever at Wrigley Field**\
+`Sandberg, who made 10 straight All-Star Games, never went out of style in Chicago, where he thrilled fans and reminded them of glory days.`\
+https://nytimes.com/athletic/6517678/2025/07/28/ryne-sandberg-dies-chicago-cubs/
+
 **Full Time: Soccer goes and soccer returns**\
 `Welcome to Full Time, The Athletic's women's soccer newsletter.`\
 https://nytimes.com/athletic/6521738/2025/07/28/womens-euros-wafcon-uswnt-full-time/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/28/nyregion/weed-shops-schools.html
 **Eugenie Bouchard extends career, wins thrilling opener at Canadian Open**\
 `The former Wimbledon finalist defeats No. 82 Emiliana Arango in the first round of the Canadian Open.`\
 https://nytimes.com/athletic/6521641/2025/07/28/eugenie-bouchard-extends-career-canadian-open/
-
-**Colts, LT Bernhard Raimann agree to 4-year, $100 million extension: Source**\
-`Raimann receives a massive raise four days after the Colts and his agent weren't "on the same page" regarding a potential extension.`\
-https://nytimes.com/athletic/6521650/2025/07/28/colts-bernhard-raimann-extension/
 

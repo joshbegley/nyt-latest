@@ -1,3 +1,7 @@
+**Greenberg: Ryne Sandberg, the MVP of the '84 Cubs, will live forever at Wrigley Field**\
+`Sandberg, who made 10 straight All-Star Games, never went out of style in Chicago, where he thrilled fans and reminded them of glory days.`\
+https://nytimes.com/athletic/6517678/2025/07/28/ryne-sandberg-dies-chicago-cubs/
+
 **Four shot, killed at building housing NFL HQ; no clear league connection**\
 `Victims of the shooting included a New York City police officer. Any potential motive remains unclear.`\
 https://nytimes.com/athletic/6521724/2025/07/28/new-york-shooting-nfl-headquarters-office-building/
