@@ -1,3 +1,11 @@
+**Think Out Loud**\
+`Peter Gorman’s Tuesday puzzle takes us on an adventure.`\
+https://nytimes.com/2025/07/28/crosswords/daily-puzzle-2025-07-29.html
+
+**Ryne Sandberg, Hall of Fame Second Baseman for the Cubs, Dies at 65**\
+`Both a skilled fielder and a fearsome power hitter, he entered the national sports spotlight with two memorable home runs in a nationally televised 1984 game.`\
+https://nytimes.com/2025/07/28/sports/baseball/ryne-sandberg-dead.html
+
 **Eugenio Suárez, one of trade deadline's top bats, day-to-day after pitch to hand**\
 `Suárez, the Diamondbacks’ 34-year-old third baseman, is perhaps the most coveted bat ahead of Thursday’s trade deadline.`\
 https://nytimes.com/athletic/6521614/2025/07/28/eugenio-suarez-hit-by-pitch/
