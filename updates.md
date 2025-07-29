@@ -1,3 +1,11 @@
+**North Korea Says Kim’s Relations With Trump ‘Not Bad,’ but Stands Firm on Nukes**\
+`The country appeared to signal an openness to talks, but said it must be recognized as a nuclear power and would not discuss abandoning its arsenal.`\
+https://nytimes.com/2025/07/29/world/asia/north-korea-kim-trump.html
+
+**The New York Times International Edition in Print for Wednesday, July 30, 2025**\
+``\
+https://nytimes.com/issue/todaysinyt/2025/07/29/todays-new-york-times-international-edition
+
 **Deadly Flooding Inundates Beijing**\
 `Severe rains caused flooding and landslides in Beijing and surrounding areas, leaving homes destroyed as mass evacuations were underway.`\
 https://nytimes.com/video/world/asia/100000010310810/beijing-china-floods.html
