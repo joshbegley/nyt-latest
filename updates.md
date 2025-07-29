@@ -1,3 +1,7 @@
+**A Dinner Run Is Punctuated by a Fusillade**\
+`Darin Laing was heading to dinner when gunfire broke out and smoke poured from the lobby of 345 Park Avenue.`\
+https://nytimes.com/2025/07/28/nyregion/a-dinner-run-is-punctuated-by-a-fusillade.html
+
 **Take a Ride On New York City’s Future Train Line**\
 `The Interborough Express, a new rail line that would link Brooklyn and Queens, could change the face of the city.`\
 https://nytimes.com/interactive/2025/07/28/nyregion/interborough-express-tour-brooklyn-queens.html
