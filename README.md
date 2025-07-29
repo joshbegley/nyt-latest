@@ -1,3 +1,7 @@
+**Your Questions About Education**\
+`Our reporters address reader submissions.`\
+https://nytimes.com/2025/07/29/briefing/your-questions-about-education.html
+
 **Flyers fan survey: What do you think of Briere, Tocchet, Michkov and more?**\
 `After an eventful offseason, let us know what you think about where the Flyers are headed.`\
 https://nytimes.com/athletic/6521324/2025/07/29/flyers-briere-tocchet-michkov/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6508606/2025/07/29/power-4-transfer-portal-addition
 **Colts' Charvarius Ward opens up on 49ers exit: 'Mentally, I was somewhere off the grid'**\
 `Beyond the heartbreak of losing his daughter, Ward entered his last season in San Francisco bitter about not getting a contract extension.`\
 https://nytimes.com/athletic/6519458/2025/07/29/colts-49ers-charvarius-ward-training-camp/
-
-**NHL’s 10 best contracts, 2025 edition: Jack Hughes, Brandon Hagel and more**\
-`According to each player’s projected value over the remainder of their deals, these are the league’s 10 best contracts.`\
-https://nytimes.com/athletic/6513956/2025/07/29/nhl-best-contracts-2025-jack-hughes-brandon-hagel/
 
