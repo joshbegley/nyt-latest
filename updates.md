@@ -1,3 +1,7 @@
+**Blue Jays acquire Seranthony Domínguez from Orioles to bolster beleaguered bullpen**\
+`Domînguez switches dugouts in between the Jays-O's doubleheader, boosts a bullpen that has been hit hard lately.`\
+https://nytimes.com/athletic/6523574/2025/07/29/mlb-seranthony-dominguez-blue-jays-orioles-trade/
+
 **Dwight Muhammad Qawi, 72, Dies; Boxing Champ Got His Start in Prison**\
 `After joining a boxing program while incarcerated, he emerged a contender in the pro ranks, winning championships in two weight classes in the 1980s.`\
 https://nytimes.com/2025/07/29/obituaries/dwight-muhammad-qawi-dead.html

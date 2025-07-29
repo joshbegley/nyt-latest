@@ -2,6 +2,14 @@
 `Our experts have spent hundreds of hours testing tools and supplies to help you survive earthquakes, wildfires, floods, hurricanes, and much more.`\
 https://nytimes.com/wirecutter/reviews/emergency-preparedness-kit-builder/
 
+**After Park Avenue Shooting, Anti-Muslim Disinformation Spread Rapidly**\
+`Once it became clear that the only Muslim involved in the attack was one of the victims, right-wing commentators sought to shift the focus to Zohran Mamdani.`\
+https://nytimes.com/2025/07/29/nyregion/nyc-shooting-anti-muslim-disinformation.html
+
+**Do These Jeans Make My Ad Look Racist?**\
+`Fashions change. So do words.`\
+https://nytimes.com/2025/07/29/opinion/sydney-sweeney-american-eagle-ad.html
+
 **Dwight Muhammad Qawi, 72, Dies; Boxing Champ Got His Start in Prison**\
 `After joining a boxing program while incarcerated, he emerged a contender in the pro ranks, winning championships in two weight classes in the 1980s.`\
 https://nytimes.com/2025/07/29/obituaries/dwight-muhammad-qawi-dead.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/07/29/world/canada/canada-automobile-tariffs-trump-trad
 **Wednesday Briefing: The U.K. May Recognize a Palestinian State**\
 `Plus, the Booker Prize nominees.`\
 https://nytimes.com/2025/07/29/briefing/britain-palestinian-state-china-us-trade.html
-
-**Blue Jays acquire Seranthony Domínguez from Orioles to bolster beleaguered bullpen**\
-`Domînguez switches dugouts in between the Jays-O's doubleheader, boosts a bullpen that has been hit hard lately.`\
-https://nytimes.com/athletic/6523574/2025/07/29/mlb-seranthony-dominguez-blue-jays-orioles-trade/
-
-**‘Critical’ Is a Powerful and Unflinching Hospital Docuseries**\
-`The six-part British documentary is gory, unsparing and captures beautifully the fragility and vulnerability of life.`\
-https://nytimes.com/2025/07/29/arts/television/critical-between-life-and-death-netflix.html
 

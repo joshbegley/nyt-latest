@@ -30,8 +30,8 @@ https://nytimes.com/2025/07/29/world/canada/canada-automobile-tariffs-trump-trad
 `Plus, the Booker Prize nominees.`\
 https://nytimes.com/2025/07/29/briefing/britain-palestinian-state-china-us-trade.html
 
-**Blue Jays acquire Seranthony Domíngez from Orioles to bolster beleaguered bullpen**\
-`Domîngez switches dugouts in between the Jays-O's doubleheader, boosts a bullpen that has been hit hard lately.`\
+**Blue Jays acquire Seranthony Domínguez from Orioles to bolster beleaguered bullpen**\
+`Domînguez switches dugouts in between the Jays-O's doubleheader, boosts a bullpen that has been hit hard lately.`\
 https://nytimes.com/athletic/6523574/2025/07/29/mlb-seranthony-dominguez-blue-jays-orioles-trade/
 
 **‘Critical’ Is a Powerful and Unflinching Hospital Docuseries**\
