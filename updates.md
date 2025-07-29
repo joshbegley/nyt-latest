@@ -1,3 +1,15 @@
+**Real Estate Associate Killed in Park Avenue Shooting Recalled for Her ‘Light’**\
+`Julia Hyman, 27, was working late when the gunman fired into the office where she worked, which, it appears, was not his intended target.`\
+https://nytimes.com/2025/07/29/nyregion/julia-hyman-cornell-nyc-shooting-victim.html
+
+**Did the 49ers find another late-round gem at running back? Jordan James continues to impress**\
+`The fifth-round pick out of Oregon "hits the holes hard," according to 49ers coach Kyle Shanahan.`\
+https://nytimes.com/athletic/6521007/2025/07/29/49ers-training-camp-jordan-james/
+
+**Katy Perry and Justin Trudeau Get a Table for 2, Inviting a Serving of Speculation**\
+`The former Canadian prime minister had dinner on Monday night with the newly single American pop star in Montreal, spurring intrigue over how they ended up meeting.`\
+https://nytimes.com/2025/07/29/world/canada/katy-perry-justin-trudeau-dinner.html
+
 **Britain and France Talk of Recognizing a Palestinian State. What Would It Mean?**\
 `The announcements reflect deep frustrations with Israel’s conduct in Gaza and in the occupied West Bank, experts say.`\
 https://nytimes.com/2025/07/29/world/middleeast/palestinian-statehood-israel.html

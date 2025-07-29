@@ -2,6 +2,14 @@
 `Our experts have spent hundreds of hours testing tools and supplies to help you survive earthquakes, wildfires, floods, hurricanes, and much more.`\
 https://nytimes.com/wirecutter/reviews/emergency-preparedness-kit-builder/
 
+**Real Estate Associate Killed in Park Avenue Shooting Recalled for Her ‘Light’**\
+`Julia Hyman, 27, was working late when the gunman fired into the office where she worked, which, it appears, was not his intended target.`\
+https://nytimes.com/2025/07/29/nyregion/julia-hyman-cornell-nyc-shooting-victim.html
+
+**Did the 49ers find another late-round gem at running back? Jordan James continues to impress**\
+`The fifth-round pick out of Oregon "hits the holes hard," according to 49ers coach Kyle Shanahan.`\
+https://nytimes.com/athletic/6521007/2025/07/29/49ers-training-camp-jordan-james/
+
 **Britain and France Talk of Recognizing a Palestinian State. What Would It Mean?**\
 `The announcements reflect deep frustrations with Israel’s conduct in Gaza and in the occupied West Bank, experts say.`\
 https://nytimes.com/2025/07/29/world/middleeast/palestinian-statehood-israel.html
@@ -19,7 +27,7 @@ https://nytimes.com/athletic/6523693/2025/07/29/jacob-wilson-athletics-broken-fo
 https://nytimes.com/athletic/6523800/2025/07/29/notre-dame-usc-football-series-pete-bevacqua/
 
 **Katy Perry and Justin Trudeau Get a Table for 2, Inviting a Serving of Speculation**\
-`The former Canadian prime minister had dinner on Monday night with the newly-single American pop star in Montreal, spurring intrigue over how they ended up meeting.`\
+`The former Canadian prime minister had dinner on Monday night with the newly single American pop star in Montreal, spurring intrigue over how they ended up meeting.`\
 https://nytimes.com/2025/07/29/world/canada/katy-perry-justin-trudeau-dinner.html
 
 **Trinity Rodman details the pain that kept her out of action as return nears**\
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6523779/2025/07/29/uswnt-trinity-rodman-speaks-spir
 **A Fallen Officer’s Flag-Wrapped Body Makes a Somber Journey to a Mosque**\
 `The “dignified transfer” is a New York Police Department rite. Its choreography honors those who died for their fellow citizens.`\
 https://nytimes.com/2025/07/29/nyregion/police-department-transfer-didarul-islam.html
-
-**NASCAR suspends Austin Hill, strips playoff points for intentional wreck**\
-`Hill, tied for second in the series with three wins and considered a championship favorite, will miss Saturday's race at Iowa Speedway.`\
-https://nytimes.com/athletic/6523724/2025/07/29/nascar-suspends-austin-hill/
-
-**Grassley, a Champion of Whistle-Blowers, Spurns Them in Fight Over Bove**\
-`The senator’s treatment of whistle-blowers detailing allegations against Emil Bove, the Trump loyalist and appeals court nominee, has had a chilling effect, critics say.`\
-https://nytimes.com/2025/07/29/us/politics/grassley-whistle-blowers-emil-bove.html
 
