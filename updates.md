@@ -1,3 +1,15 @@
+**I.M.F. Raises Global Growth Outlook as U.S. Looks to Avert Trade Wars**\
+`The International Monetary Fund warned that trade tension continued to be a risk for the global economy.`\
+https://nytimes.com/2025/07/29/business/economy/imf-world-economic-outlook-trade-wars.html
+
+**Booker Prize Nominees Include Novels by Kiran Desai, Katie Kitamura and Susan Choi**\
+`The 13 titles nominated for the prestigious British literary award also include books by David Szalay, Maria Reva and Claire Adam.`\
+https://nytimes.com/2025/07/29/arts/booker-prize-nominees.html
+
+**Suited for Summer in Crisp Linen**\
+`A smartly dressed golf instructor said that the sport has influenced his style.`\
+https://nytimes.com/2025/07/29/style/street-style-look-linen-suit.html
+
 **Sean Combs, Awaiting Sentencing, Asks Judge to Release Him From Jail**\
 `Lawyers for the music mogul, who is to be sentenced in October on prostitution charges, filed court papers saying he would sign a $50 million bond.`\
 https://nytimes.com/2025/07/29/arts/music/sean-combs-diddy-bail-bond.html

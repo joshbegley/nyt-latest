@@ -1,3 +1,15 @@
+**I.M.F. Raises Global Growth Outlook as U.S. Looks to Avert Trade Wars**\
+`The International Monetary Fund warned that trade tension continued to be a risk for the global economy.`\
+https://nytimes.com/2025/07/29/business/economy/imf-world-economic-outlook-trade-wars.html
+
+**Booker Prize Nominees Include Novels by Kiran Desai, Katie Kitamura and Susan Choi**\
+`The 13 titles nominated for the prestigious British literary award also include books by David Szalay, Maria Reva and Claire Adam.`\
+https://nytimes.com/2025/07/29/arts/booker-prize-nominees.html
+
+**Suited for Summer in Crisp Linen**\
+`A smartly dressed golf instructor said that the sport has influenced his style.`\
+https://nytimes.com/2025/07/29/style/street-style-look-linen-suit.html
+
 **Sean Combs, Awaiting Sentencing, Asks Judge to Release Him From Jail**\
 `Lawyers for the music mogul, who is to be sentenced in October on prostitution charges, filed court papers saying he would sign a $50 million bond.`\
 https://nytimes.com/2025/07/29/arts/music/sean-combs-diddy-bail-bond.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6518288/2025/07/29/chelsea-transfers-joao-felix-al-
 **India head coach Gambhir involved in confrontation with Oval curator**\
 `Lee Fortis was heard saying that he would "report" Gambhir after their interaction ahead of the fifth Test between England and India.`\
 https://nytimes.com/athletic/6522257/2025/07/29/india-england-gautam-gambhir-oval-pitch/
-
-**Kremlin Offers Little Reaction to Trump’s Shorter Deadline for Peace in Ukraine**\
-`Mr. Trump said on Monday that he would give Russia about 10 to 12 days to end the war before implementing a new round of penalties against Moscow. The Kremlin offered little reaction.`\
-https://nytimes.com/2025/07/29/us/politics/kremlin-trump-deadline-peace-ukraine.html
-
-**Trump Administration Live Updates: President Meets Scottish Leader on Last Day of Visit**\
-``\
-https://nytimes.com/live/2025/07/29/us/trump-news
-
-**Five things to know about Nebraska as Huskers open camp**\
-`Does this group possess the ability to jump similarly to Matt Rhule’s former teams in this spot at Temple and Baylor in 2015 and 2019?`\
-https://nytimes.com/athletic/6521295/2025/07/29/nebraska-football-preseason-camp-2025/
 
