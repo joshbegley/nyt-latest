@@ -1,3 +1,7 @@
+**Ozzy Osbourne Funeral Procession to Be Held in His Hometown on Wednesday, City Says**\
+`Fans will be able to pay their respects as a hearse carrying the heavy metal star’s body travels through Birmingham, England, ahead of a private funeral.`\
+https://nytimes.com/2025/07/29/arts/music/ozzy-osbourne-funeral-procession.html
+
 **Phillies trade deadline live Q&A with Matt Gelb on Monday at noon ET**\
 `Phillies writer Matt Gelb will answer subscribers' questions about the trade deadline during a live Q&A on Monday from noon-12:45 p.m. ET. `\
 https://nytimes.com/athletic/6522042/2025/07/29/phillies-trade-deadline-live-qa-with-matt-gelb-on-monday-at-noon-et/
