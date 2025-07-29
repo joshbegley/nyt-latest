@@ -30,7 +30,7 @@ https://nytimes.com/athletic/6522453/2025/07/29/quentin-grimes-nba-free-agency-7
 `McGrady is a seven-time NBA All-Star and a member of the Naismith Memorial Hall of Fame Class of 2017.`\
 https://nytimes.com/athletic/6522485/2025/07/29/tracy-mcgrady-nbc-sports-studio-analyst/
 
-**New York’s mayoral candidates shared concern and condolences.**\
+**New York’s mayoral candidates share concern and condolences.**\
 `By Dana Rubinstein`\
 https://nytimes.com/live/2025/07/29/nyregion/nyc-shooting-manhattan/new-yorks-mayoral-candidates-shared-concern-and-condolences
 
