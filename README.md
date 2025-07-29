@@ -1,3 +1,7 @@
+**Russian Strike on Prison Kills 16, Ukraine Says**\
+`The attack, which came just hours after President Trump gave the Kremlin a new deadline to work toward ending the war, was part of a wave across the country, the authorities said.`\
+https://nytimes.com/2025/07/29/world/europe/ukraine-russia-trump.html
+
 **Phillies notes: A close encounter with a potential trade target, plus OF, bullpen thoughts**\
 `It's easy to identify the flaws: a missing swing-and-miss reliever and a righty power bat. Securing them will require sacrifices.`\
 https://nytimes.com/athletic/6521790/2025/07/29/phillies-notes-potential-trade-target-outfield-bullpen/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6521304/2025/07/29/baltimore-ravens-training-camp-p
 **MLB trade deadline: Using history to put a price tag on players about to move**\
 `Does your team want to make a deal for Joe Ryan, Eugenio Suarez or Steven Kwan? Here's an idea of what it would cost.`\
 https://nytimes.com/athletic/6521028/2025/07/29/trade-deadline-players-price-tag/
-
-**4 simple rules for navigating the MLB trade deadline without irking your peers**\
-`There are a number of unwritten rules when it comes to making a baseball trade. Ignore them at your peril. `\
-https://nytimes.com/athletic/6481412/2025/07/29/mlb-trade-deadline-executive-rules/
 
