@@ -1,3 +1,15 @@
+**Women's Euro 2025 final draws 1.35 million viewers, breaks U.S. audience record**\
+`This year's Women’s Euros tournament averaged 458,000 viewers across Fox's networks, making it the most watched in English-language history.`\
+https://nytimes.com/athletic/6522326/2025/07/29/womens-euro-final-draw-2025-viewers/
+
+**Mavs hire new team president while preparing to build new arena**\
+`Ethan Casson, formerly of the Timberwolves, will run Dallas' day-to-day business operations.`\
+https://nytimes.com/athletic/6522479/2025/07/29/mavericks-arena-ethan-casson-nba-president/
+
+**Canada's Buchanan joins Villarreal in permanent move from Inter**\
+`The 26-year-old has signed a five-year contract at the Spanish club after spending the second half of 2024-25 on loan from Inter.`\
+https://nytimes.com/athletic/6477748/2025/07/29/canada-tajon-buchanan-transfer-villarreal/
+
 **Partey to feature on Premier League trading cards after Arsenal green light**\
 `Partey was charged with five counts of rape and one count of sexual assault earlier this month. He denies the allegations.`\
 https://nytimes.com/athletic/6522098/2025/07/29/arsenal-thomas-partey-topps-trading-cards/
