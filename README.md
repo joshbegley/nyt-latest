@@ -1,3 +1,19 @@
+**Five Under-the-Radar European Beach Hotels**\
+`The usual hot spots are teeming with tourists this summer. Here are some unexpected alternatives — in Spain, Greece, France, Italy and England — where you can pair some serenity with your sea views.`\
+https://nytimes.com/2025/07/29/t-magazine/spain-greece-italy-france-beach-hotels.html
+
+**Five key Cardinals trade deadline questions: What's a realistic expectation?**\
+`What’s the mood of the clubhouse heading into the trade deadline? Cardinals relievers can sense the trade winds blowing.`\
+https://nytimes.com/athletic/6522645/2025/07/29/cardinals-mlb-trade-deadline-questions/
+
+**Trump Urges the U.K. to Drill More Oil, Criticizing Its Energy Policy**\
+`President Trump said the North Sea was a “treasure chest,” but its high taxes were driving away oil producers.`\
+https://nytimes.com/2025/07/29/business/energy-environment/trump-oil-drilling-uk-north-sea.html
+
+**Do Certain Tattoos Constitute ‘Stolen Valor’?**\
+`A ruling on a dispute over a potentially misleading tattoo.`\
+https://nytimes.com/interactive/2025/07/29/magazine/olympic-tattoo-hodgman-quiz.html
+
 **Houthis in Yemen Confirm in Video They Are Holding 11 Mariners Hostage**\
 `The video was the first confirmation of the number of hostages, who had been sailing through the Red Sea on a ship attacked by the Houthis on July 7.`\
 https://nytimes.com/2025/07/29/world/middleeast/houthis-hostages-video-yemen.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6515313/2025/07/29/man-city-james-trafford-burnley/
 **Space Out With 11 Far-Out Songs**\
 `Muse about the universe to a playlist stocked with Björk, Sufjan Stevens, Frank Sinatra and more.`\
 https://nytimes.com/2025/07/29/arts/music/amplifier-newsletter-space-songs.html
-
-**How Netanyahu Played Trump for a Fool in Gaza**\
-`This is the first Israeli-Palestinian war where the worst leaders on both sides are calling all the shots.`\
-https://nytimes.com/2025/07/29/opinion/gaza-netanyahu-trump-israel-starvation.html
-
-**Aland Etienne Was a Devoted Father and ‘Beloved’ Security Officer**\
-`Mr. Etienne, 46, whose family is from Haiti, was working a shift in the building at 345 Park Avenue when a gunman burst into the lobby.`\
-https://nytimes.com/2025/07/29/nyregion/nyc-shooting-victim-security-guard-aland-etienne.html
-
-**UNICEF Employees Held Hostage for 3 Weeks in Haiti**\
-`Haitian gangs are increasingly abducting people and holding them for ransom to raise funds for other criminal activity, experts say.`\
-https://nytimes.com/2025/07/29/us/haiti-unicef-hostages-gangs.html
-
-**U.S. and China Fail to Reach Immediate Deal to Prolong Trade Truce**\
-`After a “constructive” round of talks ahead of an Aug. 12 deadline, Treasury Secretary Scott Bessent said “nothing is agreed until we speak with President Trump.”`\
-https://nytimes.com/2025/07/29/world/europe/us-china-trade-deal-talks-tariffs.html
 
