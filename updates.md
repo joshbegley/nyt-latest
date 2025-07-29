@@ -1,3 +1,7 @@
+**Jimmy Fallon Ridicules Trump’s Choice Words About Epstein Island**\
+`The president said he “never had the privilege” of visiting Jeffrey Epstein’s island. Fallon’s take: “Trump’s staff was like, ‘A simple no would’ve been fine.’ ”`\
+https://nytimes.com/2025/07/29/arts/television/jimmy-fallon-trump-epstein.html
+
 **A Podcast for the Questions Rarely Asked**\
 `Wesley Morris seeks to talk with writers, critics and others about their personal passions that are not necessarily related to their day jobs.`\
 https://nytimes.com/2025/07/29/insider/wesley-morris-cannonball.html

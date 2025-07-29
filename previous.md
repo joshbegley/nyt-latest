@@ -1,3 +1,7 @@
+**Jimmy Fallon Ridicules Trump’s Choice Words About Epstein Island**\
+`The president said he “never had the privilege” of visiting Jeffrey Epstein’s island. Fallon’s take: “Trump’s staff was like, ‘A simple no would’ve been fine.’ ”`\
+https://nytimes.com/2025/07/29/arts/television/jimmy-fallon-trump-epstein.html
+
 **A Podcast for the Questions Rarely Asked**\
 `Wesley Morris seeks to talk with writers, critics and others about their personal passions that are not necessarily related to their day jobs.`\
 https://nytimes.com/2025/07/29/insider/wesley-morris-cannonball.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/29/learning/word-of-the-day-mystify.html
 **Apple Is Shutting a Store in China, Its First Closure in the Country**\
 `The move speaks to slowing spending by consumers and Apple’s continuing struggles in China, its second-largest market.`\
 https://nytimes.com/2025/07/29/business/apple-china-dalian-store.html
-
-**Yankees aren’t proving worthy of major trade deadline splash right now**\
-`It’s hard to look at the stumbling Yankees and think they’re trending up.`\
-https://nytimes.com/athletic/6521902/2025/07/29/new-york-yankees-trade-deadline-strategy/
 
