@@ -1,3 +1,15 @@
+**Europe Made Major Trade Concessions to Trump. How Did That Happen?**\
+`Some European politicians are dismayed that the European Union did not drive a harder bargain, but facing the threat of a damaging trade war, officials say they had little choice.`\
+https://nytimes.com/2025/07/29/world/europe/europe-trump-trade-concessions-analysis.html
+
+**Here’s the latest.**\
+`By Francesca Regalado, Ed Shanahan, Chelsia Rose Marcius and Maria Cramer`\
+https://nytimes.com/live/2025/07/29/nyregion/nyc-shooting-manhattan/heres-the-latest
+
+**Live Updates: Investigators Seek Answers After Gunman Kills 4 in Midtown Manhattan**\
+`The gunman opened fire Monday in a Park Avenue tower that has offices of the National Football League and the investment firm Blackstone, before killing himself. The N.F.L.’s president said an employee was “seriously injured” in the shooting.`\
+https://nytimes.com/live/2025/07/29/nyregion/nyc-shooting-manhattan
+
 **North Korea Says Kim’s Relations With Trump ‘Not Bad,’ but Stands Firm on Nukes**\
 `The country appeared to signal an openness to talks, but said it must be recognized as a nuclear power and would not discuss abandoning its arsenal.`\
 https://nytimes.com/2025/07/29/world/asia/north-korea-kim-trump.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6515813/2025/07/29/robert-spillane-patriots-trainin
 **Crypto’s Man in the White House**\
 `The president’s family stands to make hundreds of millions of dollars from its cryptocurrency ventures.`\
 https://nytimes.com/2025/07/29/opinion/trump-crypto-genius-act-memcoin.html
-
-**How to Do a Perfect Plank**\
-`Build strength with this classic core exercise.`\
-https://nytimes.com/interactive/2025/07/29/well/move/plank-exercise-technique.html
-
-**Trump Is Winning His Trade War. What Will That Mean for the Economy?**\
-`The president’s vision for reshaping global trade is falling into place, but he is embarking on an experiment that economists say could still produce damaging results.`\
-https://nytimes.com/2025/07/29/business/economy/trump-tariffs-economy.html
-
-**Designing ‘The Fantastic Four: First Steps’**\
-`A Manhattan with a retrofuturist sensibility is among the intriguing visual aspects of the film. We talk with its designers to get the details.`\
-https://nytimes.com/2025/07/29/movies/the-fantastic-four-first-steps-design.html
 
