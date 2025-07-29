@@ -1,3 +1,15 @@
+**Sheffield Wednesday head coach Danny Rohl to leave the club**\
+`An agreement has been reached for the 35-year-old to depart for free and Rohl has informed players and staff of the situation.`\
+https://nytimes.com/athletic/6522073/2025/07/29/danny-rohl-leave-sheffield-wednesday/
+
+**Fantasy football rankings: Bijan Robinson, Ja'Marr Chase lead off the top 100**\
+`Brandon Funston shares his thoughts on his preseason list of the Top 100 fantasy football players for the 2025 NFL campaign.`\
+https://nytimes.com/athletic/6514334/2025/07/29/fantasy-football-2025-top-100-rankings-bijan-chase/
+
+**Blindfolded hikes and falling into pools: Inside Robert Spillane's unorthodox training**\
+`Spillane's eyes-closed training is far from ordinary, but it has helped the new Patriot become one of the NFL's most reliable tacklers.`\
+https://nytimes.com/athletic/6515813/2025/07/29/robert-spillane-patriots-training-blindfolded-hikes-pool/
+
 **Crypto’s Man in the White House**\
 `The president’s family stands to make hundreds of millions of dollars from its cryptocurrency ventures.`\
 https://nytimes.com/2025/07/29/opinion/trump-crypto-genius-act-memcoin.html
