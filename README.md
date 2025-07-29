@@ -1,3 +1,7 @@
+**Think Out Loud**\
+`Peter Gorman’s Tuesday puzzle takes us on an adventure.`\
+https://nytimes.com/2025/07/28/crosswords/daily-puzzle-2025-07-29.html
+
 **Ryne Sandberg, Hall of Fame Second Baseman for the Cubs, Dies at 65**\
 `Both a skilled fielder and a fearsome power hitter, he entered the national sports spotlight with two memorable home runs in a nationally televised 1984 game.`\
 https://nytimes.com/2025/07/28/sports/baseball/ryne-sandberg-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2025/07/28/nyregion/interborough-express-tour-br
 **Heavy Rainfall in Beijing Leaves at Least 30 Dead, Officials Say**\
 `More than 21 inches of rain fell on the mountainous district where most of the deaths occurred, China’s state broadcaster said on Tuesday.`\
 https://nytimes.com/2025/07/28/world/asia/china-rain-beijing-deaths.html
-
-**Chargers training camp: Jamaree Salyer working with first team after weight-loss 'journey'**\
-`Salyer lost 35 pounds over the offseason, and his newfound conditioning could get him a chance to earn a starting job.`\
-https://nytimes.com/athletic/6521495/2025/07/28/chargers-training-camp-jamaree-salyer-weight/
 
