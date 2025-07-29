@@ -2,6 +2,18 @@
 `Our experts have spent hundreds of hours testing tools and supplies to help you survive earthquakes, wildfires, floods, hurricanes, and much more.`\
 https://nytimes.com/wirecutter/reviews/emergency-preparedness-kit-builder/
 
+**University of California Settles With Jewish Students Over U.C.L.A. Protests**\
+`Jewish students and a professor said the university had allowed a hostile protest. After the settlement was announced, the Department of Justice separately said it had found the university violated civil rights laws.`\
+https://nytimes.com/2025/07/29/us/ucla-jewish-students-settlement.html
+
+**With No Food, Gazan Mother Feeds Toddler Mixture of Salt and Water**\
+`Aml Jamal Nassar, a mother of three with another child on the way, struggles to feed her family every day. When she can’t get food, Mrs. Nassar mixes salt or cornstarch with water for her 18-month-old.`\
+https://nytimes.com/video/world/middleeast/100000010302627/gaza-mother-toddler-baby-malnourished.html
+
+**Harvard Will Share Employee Forms With Federal Government**\
+`The government can request the employment eligibility verification forms related to citizenship and immigration status as a matter of course, but Harvard was surprised to receive such a voluminous demand.`\
+https://nytimes.com/2025/07/29/us/politics/harvard-employee-forms-trump-administration.html
+
 **New York Has Strict Gun Laws. A Mass Shooting Showed Their Limits.**\
 `Shootings are down this year in New York City, which has some of the toughest gun laws in the nation. But Monday’s mass shooting was nearly impossible to prevent, security experts said.`\
 https://nytimes.com/2025/07/29/nyregion/new-york-gun-laws-shooting.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/07/29/dining/homemade-golden-diner-pancakes.html
 **Every Vote Counts in Brooklyn. Even Those Cast by Dead People.**\
 `The New York Times found several questionable absentee ballots that were tallied in a Republican City Council primary, including one from a dead woman.`\
 https://nytimes.com/2025/07/29/nyregion/council-dead-voter-fraud.html
-
-**The Familiar Suicide and Final Wish of the N.Y.C. Gunman**\
-`Shane Tamura is not the first former football player to shoot himself in the chest and request that his brain be examined.`\
-https://nytimes.com/2025/07/29/us/nfl-cte-suicides-violence.html
-
-**N.C. Republicans Push Through Contested Agenda on ‘Veto Override Day’**\
-`The divided state’s new Democratic governor vetoed 14 bills this session, on guns, immigration, trans rights and more. Republicans are trying to enact them all anyway.`\
-https://nytimes.com/2025/07/29/us/politics/veto-overrides-north-carolina.html
-
-**The Giants had questions leading into the trade deadline. Here are the answers**\
-`Three weeks ago, we posed questions the Giants needed to answer before the deadline. Here's where we stand on those questions.`\
-https://nytimes.com/athletic/6523118/2025/07/29/sf-giants-trade-deadline-questions-answers/
 

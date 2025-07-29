@@ -1,3 +1,15 @@
+**University of California Settles With Jewish Students Over U.C.L.A. Protests**\
+`Jewish students and a professor said the university had allowed a hostile protest. After the settlement was announced, the Department of Justice separately said it had found the university violated civil rights laws.`\
+https://nytimes.com/2025/07/29/us/ucla-jewish-students-settlement.html
+
+**With No Food, Gazan Mother Feeds Toddler Mixture of Salt and Water**\
+`Aml Jamal Nassar, a mother of three with another child on the way, struggles to feed her family every day. When she can’t get food, Mrs. Nassar mixes salt or cornstarch with water for her 18-month-old.`\
+https://nytimes.com/video/world/middleeast/100000010302627/gaza-mother-toddler-baby-malnourished.html
+
+**Harvard Will Share Employee Forms With Federal Government**\
+`The government can request the employment eligibility verification forms related to citizenship and immigration status as a matter of course, but Harvard was surprised to receive such a voluminous demand.`\
+https://nytimes.com/2025/07/29/us/politics/harvard-employee-forms-trump-administration.html
+
 **New York Has Strict Gun Laws. A Mass Shooting Showed Their Limits.**\
 `Shootings are down this year in New York City, which has some of the toughest gun laws in the nation. But Monday’s mass shooting was nearly impossible to prevent, security experts said.`\
 https://nytimes.com/2025/07/29/nyregion/new-york-gun-laws-shooting.html
