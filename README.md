@@ -1,3 +1,7 @@
+**"This new league would create confusion": EuroLeague CEO on NBA, expansion, NCAA and more**\
+`"Why not sit down and see how we go and make decisions together, rather than just creating a new league and for them to start over?"`\
+https://nytimes.com/athletic/6520070/2025/07/29/euroleague-nba-paulius-motiejunas-dubai/
+
 **Ex-Viking Jared Allen's Hall of Fame nod punctuates a career defined by maturation**\
 `Previously a wild man both on and off the field, the Canton-bound Allen flourished with the Vikings when he grew up emotionally. `\
 https://nytimes.com/athletic/6520018/2025/07/29/jared-allen-pro-football-hall-of-fame-vikings/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6481412/2025/07/29/mlb-trade-deadline-executive-rul
 **Europe Caves to Trump on Tariffs**\
 `Both sides hailed a new trade agreement as the biggest ever. But it will come at a cost to the European Union.`\
 https://nytimes.com/2025/07/29/podcasts/the-daily/us-eu-trade-deal.html
-
-**Wordle Review No. 1,502**\
-`Scroll down for hints and conversation about the puzzle for Wednesday, July 30, 2025.`\
-https://nytimes.com/2025/07/29/crosswords/wordle-review-1502.html
 
