@@ -1,3 +1,11 @@
+**Arsenal players seized the big moments at Euro 2025 - now they must do so in the WSL**\
+`Sarina Wiegman's Emirates Stadium contingent made the difference for the Lionesses this summer. Their next mission is to chase down Chelsea`\
+https://nytimes.com/athletic/6519660/2025/07/29/england-euro-2025-win-arsenal-players/
+
+**How Liverpool can afford to buy Isak even after committing over £500m in two months**\
+`Liverpool's sales have covered their huge expenditure this summer in accounting terms meaning a big Isak deal is doable`\
+https://nytimes.com/athletic/6520277/2025/07/29/liverpool-afford-alexander-isak-transfer/
+
 **Why are football's player unions so powerless compared with U.S. sports?**\
 `Collective bargaining is a key part of American sports, yet in football, the fragmented nature of the sport makes it hard to unionise.`\
 https://nytimes.com/athletic/6512013/2025/07/29/football-unions-influence-fifpro/

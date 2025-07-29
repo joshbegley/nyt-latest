@@ -1,3 +1,11 @@
+**Arsenal players seized the big moments at Euro 2025 - now they must do so in the WSL**\
+`Sarina Wiegman's Emirates Stadium contingent made the difference for the Lionesses this summer. Their next mission is to chase down Chelsea`\
+https://nytimes.com/athletic/6519660/2025/07/29/england-euro-2025-win-arsenal-players/
+
+**How Liverpool can afford to buy Isak even after committing over £500m in two months**\
+`Liverpool's sales have covered their huge expenditure this summer in accounting terms meaning a big Isak deal is doable`\
+https://nytimes.com/athletic/6520277/2025/07/29/liverpool-afford-alexander-isak-transfer/
+
 **Why are football's player unions so powerless compared with U.S. sports?**\
 `Collective bargaining is a key part of American sports, yet in football, the fragmented nature of the sport makes it hard to unionise.`\
 https://nytimes.com/athletic/6512013/2025/07/29/football-unions-influence-fifpro/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/07/29/pageoneplus/quote-of-the-day-france-assails-trade
 **Finland’s Short, Precious Summers Are Plagued by Goose Poop**\
 `Finns trying to enjoy beaches and parks during their all-too-brief summers have been vexed by legions of geese — and their droppings. The smelly mess has resisted even the most innovative solutions.`\
 https://nytimes.com/2025/07/29/world/europe/helsinki-finland-goose-droppings.html
-
-**Starmer Is Edging Closer to Recognizing Palestinian Statehood, U.K. Officials Say**\
-`Two government officials said Britain was actively weighing the recognition of a Palestinian state, in a shift driven by public pressure over starvation in Gaza.`\
-https://nytimes.com/2025/07/29/world/europe/uk-starmer-palestine-state.html
-
-**Connections: Sports Edition Coach: Hints for July 29, 2025**\
-`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
-https://nytimes.com/athletic/6520169/2025/07/29/connections-sports-edition-hints-for-july-29-2025/
 
