@@ -1,3 +1,7 @@
+**Seahawks training camp: Defense dominates on Day 1 in pads, highlighted by pick 6**\
+`The Seahawks' new-look offense struggled to run the ball, or escape the shadow of its own goal posts, as the physicality ramped up.`\
+https://nytimes.com/athletic/6521496/2025/07/28/seahawks-training-camp-pads-defense/
+
 **Officer Killed and 2 Others Are Shot at Park Avenue Office Tower**\
 `The gunman was dead, the police said, and the building was in lockdown Monday evening.`\
 https://nytimes.com/live/2025/07/28/nyregion/nyc-shooting
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6521445/2025/07/28/mets-live-deadline-questions/
 **Trump Says He Declined Epstein’s Invitation to Visit His Island: ‘I Never Had the Privilege of Going’**\
 `The comments came as part of the president’s efforts to distract, deny and deflect from his long-running relationship with Jeffrey Epstein.`\
 https://nytimes.com/2025/07/28/us/politics/trump-epstein-files-island.html
-
-**Live trade deadline Q&A with Cubs writer Patrick Mooney on Tuesday at 10 a.m. CT**\
-`Submit your questions about what Chicago might do at the deadline in a live chat.`\
-https://nytimes.com/athletic/6521431/2025/07/28/cubs-mlb-trade-deadline-live-chat-patrick-mooney/
 
