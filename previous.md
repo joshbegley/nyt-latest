@@ -1,3 +1,11 @@
+**Gyokeres shirt sales break Arsenal record**\
+`While data is still being analysed, it is already clear that demand for Gyokeres’ No 14 shirt exceeds that of any player in recent history.`\
+https://nytimes.com/athletic/6522378/2025/07/29/viktor-gyokeres-arsenal-shirt-record/
+
+**Boeing Reports Strongest Revenue in Six Years**\
+`Although the aerospace company lost money in the second quarter, it built and sold more planes as it recovered from quality crises and a workers strike.`\
+https://nytimes.com/2025/07/29/business/boeing-sales-profit-tariffs.html
+
 **Former Football Players With C.T.E. Have Turned to Violence**\
 `The gunman in the Manhattan office shooting said in a note that he had C.T.E., a degenerative disease associated with repeated hits to the head.`\
 https://nytimes.com/2025/07/29/sports/football/nyc-shooting-note-cte-explained.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6522324/2025/07/29/liverpool-transfer-news-will-wri
 **Are Cracks Appearing in Trump’s Antitrust Approach?**\
 `Two top officials are reportedly out of a job, amid reported disagreements within the Justice Department over how it regulates deals.`\
 https://nytimes.com/2025/07/29/business/dealbook/justice-dept-antitrust-slater-loomer.html
-
-**Park Avenue Gunman’s Note Referred to the N.F.L. and Brain Disease**\
-`The police said the man accused of the killings referred to chronic traumatic encephalopathy, which is caused by physical trauma, and asked that his brain be studied.`\
-https://nytimes.com/2025/07/29/nyregion/nyc-shooting-gunman-suicide-note-cte-nfl.html
-
-**Felix completes permanent Al Nassr move from Chelsea**\
-`The Portugal international spent the second half of 2024-25 on loan at Milan after a permanent Chelsea move last summer.`\
-https://nytimes.com/athletic/6518288/2025/07/29/chelsea-transfers-joao-felix-al-nassr/
 

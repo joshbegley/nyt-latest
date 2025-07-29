@@ -1,3 +1,11 @@
+**Gyokeres shirt sales break Arsenal record**\
+`While data is still being analysed, it is already clear that demand for Gyokeres’ No 14 shirt exceeds that of any player in recent history.`\
+https://nytimes.com/athletic/6522378/2025/07/29/viktor-gyokeres-arsenal-shirt-record/
+
+**Boeing Reports Strongest Revenue in Six Years**\
+`Although the aerospace company lost money in the second quarter, it built and sold more planes as it recovered from quality crises and a workers strike.`\
+https://nytimes.com/2025/07/29/business/boeing-sales-profit-tariffs.html
+
 **Former Football Players With C.T.E. Have Turned to Violence**\
 `The gunman in the Manhattan office shooting said in a note that he had C.T.E., a degenerative disease associated with repeated hits to the head.`\
 https://nytimes.com/2025/07/29/sports/football/nyc-shooting-note-cte-explained.html
