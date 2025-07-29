@@ -2,39 +2,39 @@
 `Our experts have spent hundreds of hours testing tools and supplies to help you survive earthquakes, wildfires, floods, hurricanes, and much more.`\
 https://nytimes.com/wirecutter/reviews/emergency-preparedness-kit-builder/
 
-**Every Vote Counts in Brooklyn. Even Those Cast by Dead People.**\
-`The New York Times found several questionable absentee ballots that were tallied in a Republican City Council primary, including one from a dead woman.`\
-https://nytimes.com/2025/07/29/nyregion/council-dead-voter-fraud.html
+**Grassley, a Champion of Whistle-Blowers, Spurns Them in Fight Over Bove**\
+`The senator’s treatment of whistle-blowers detailing allegations against Emil Bove, the Trump loyalist and appeals court nominee, has had a chilling effect, critics say.`\
+https://nytimes.com/2025/07/29/us/politics/grassley-whistle-blowers-emil-bove.html
 
-**The Familiar Suicide and Final Wish of the N.Y.C. Gunman**\
-`Shane Tamura is not the first former football player to shoot himself in the chest and request that his brain be examined.`\
-https://nytimes.com/2025/07/29/us/nfl-cte-suicides-violence.html
+**Democrats Clash on Senate Floor Over Policing Bills and How to Take On Trump**\
+`When a pair of Democrats sought to win quick approval of a bipartisan package of policing legislation, a third rose to object, saying the party must take every opportunity to challenge President Trump.`\
+https://nytimes.com/2025/07/29/us/politics/cory-booker-democrats-trump-senate.html
 
-**N.C. Republicans Push Through Contested Agenda on ‘Veto Override Day’**\
-`The divided state’s new Democratic governor vetoed 14 bills this session, on guns, immigration, trans rights and more. Republicans are trying to enact them all anyway.`\
-https://nytimes.com/2025/07/29/us/politics/veto-overrides-north-carolina.html
+**Trade analysis: Orioles fare well in adding Juaron Watts-Brown for Seranthony Domínguez**\
+`The Orioles weren't going to miss Domínguez, who is a free agent after the season, so acquiring a real prospect for him is a win.`\
+https://nytimes.com/athletic/6523774/2025/07/29/orioles-blue-jays-juaron-watts-brown-seranthony-dominguez-trade-analysis/
 
-**The Giants had questions leading into the trade deadline. Here are the answers**\
-`Three weeks ago, we posed questions the Giants needed to answer before the deadline. Here's where we stand on those questions.`\
-https://nytimes.com/athletic/6523118/2025/07/29/sf-giants-trade-deadline-questions-answers/
+**University of California Settles With Jewish Students Over U.C.L.A. Protests**\
+`Jewish students and a professor said the university had allowed a hostile protest. After the settlement was announced, the Department of Justice separately said it had found the university violated civil rights laws.`\
+https://nytimes.com/2025/07/29/us/ucla-jewish-students-settlement.html
 
-**Rookie RJ Harvey's growth on display in Broncos' padded workouts**\
-`The rookie running back had a run in Tuesday's practice "that was something," coach Sean Payton said`\
-https://nytimes.com/athletic/6523445/2025/07/29/broncos-rj-harvey-growth-training-camp/
+**With No Food, Gazan Mother Feeds Toddler Mixture of Salt and Water**\
+`Aml Jamal Nassar, a mother of three with another child on the way, struggles to feed her family every day. When she can’t get food, Mrs. Nassar mixes salt or cornstarch with water for her 18-month-old.`\
+https://nytimes.com/video/world/middleeast/100000010302627/gaza-mother-toddler-baby-malnourished.html
 
-**Is Raiders LB Devin White 'back' to being a difference-maker? Raiders camp takeaways**\
-`"He's back,” Carroll said of White, a former Pro Bowler with the Buccaneers who had his best day of practice with the Silver and Black.`\
-https://nytimes.com/athletic/6523526/2025/07/29/devin-white-raiders-nfl-training-camp/
+**Harvard Will Share Employee Forms With Federal Government**\
+`The government can request the employment eligibility verification forms related to citizenship and immigration status as a matter of course, but Harvard was surprised to receive such a voluminous demand.`\
+https://nytimes.com/2025/07/29/us/politics/harvard-employee-forms-trump-administration.html
 
-**After Park Avenue Shooting, Anti-Muslim Disinformation Spread Rapidly**\
-`Once it became clear that the only Muslim involved in the attack was one of the victims, right-wing commentators sought to shift the focus to Zohran Mamdani.`\
-https://nytimes.com/2025/07/29/nyregion/nyc-shooting-anti-muslim-disinformation.html
+**N.Y.C. Mass Shooting Was Nearly Impossible to Prevent, Experts Say**\
+`New York City has some of the toughest gun laws in the nation. But Monday’s mass shooting showed their limits, security experts said.`\
+https://nytimes.com/2025/07/29/nyregion/new-york-gun-laws-shooting.html
 
-**Do These Jeans Make My Ad Look Racist?**\
-`Fashions change. So do words.`\
-https://nytimes.com/2025/07/29/opinion/sydney-sweeney-american-eagle-ad.html
+**Arkansas Police Release Photo of ‘Person of Interest’ in Killing of Couple**\
+`A picture and a sketch show a person that the state police are seeking to question in the deaths of Clinton David Brink, 43, and Cristen Amanda Brink, 41, in Devil’s Den State Park. Their daughters, 7 and 9, were not physically harmed.`\
+https://nytimes.com/2025/07/29/us/person-of-interest-killing-devils-den-arkansas.html
 
-**Dwight Muhammad Qawi, 72, Dies; Boxing Champ Got His Start in Prison**\
-`After joining a boxing program while incarcerated, he emerged a contender in the pro ranks, winning championships in two weight classes in the 1980s.`\
-https://nytimes.com/2025/07/29/obituaries/dwight-muhammad-qawi-dead.html
+**Manhattan Gunman Appeared to Target N.F.L. in Deadly Shooting**\
+`Also, the E.P.A. called for an end to its climate regulations. Here’s the latest at the end of Tuesday.`\
+https://nytimes.com/2025/07/29/briefing/manattan-shooting-epa-climate-regulations.html
 
