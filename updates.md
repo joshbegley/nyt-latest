@@ -1,3 +1,11 @@
+**Trump Admits Financial Penalties on Russia ‘May or May Not’ Work**\
+`President Trump’s threats have raised questions about how much leverage the United States has left with Moscow.`\
+https://nytimes.com/2025/07/29/us/politics/trump-sanctions-ukraine-russia.html
+
+**Bengals' Trey Hendrickson to join training camp amid ongoing contract negotiations**\
+`Hendrickson is traveling from Jacksonville to Cincinnati to join the Bengals and continue contract negotiations on a long-term deal.`\
+https://nytimes.com/athletic/6523843/2025/07/29/bengals-trey-hendrickson-to-join-training-camp-amid-ongoing-contract-negotiations/
+
 **Real Estate Associate Killed in Park Avenue Shooting Recalled for Her ‘Light’**\
 `Julia Hyman, 27, was working late when the gunman fired into the office where she worked, which, it appears, was not his intended target.`\
 https://nytimes.com/2025/07/29/nyregion/julia-hyman-cornell-nyc-shooting-victim.html
