@@ -2,6 +2,10 @@
 `Our experts have spent hundreds of hours testing tools and supplies to help you survive earthquakes, wildfires, floods, hurricanes, and much more.`\
 https://nytimes.com/wirecutter/reviews/emergency-preparedness-kit-builder/
 
+**Is Raiders LB Devin White 'back' to being a difference-maker? Raiders camp takeaways**\
+`"He's back,” Carroll said of White, a former Pro Bowler with the Buccaneers who had his best day of practice with the Silver and Black.`\
+https://nytimes.com/athletic/6523526/2025/07/29/devin-white-raiders-nfl-training-camp/
+
 **After Park Avenue Shooting, Anti-Muslim Disinformation Spread Rapidly**\
 `Once it became clear that the only Muslim involved in the attack was one of the victims, right-wing commentators sought to shift the focus to Zohran Mamdani.`\
 https://nytimes.com/2025/07/29/nyregion/nyc-shooting-anti-muslim-disinformation.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/29/us/politics/aviation-safety-bill-dca-crash-hearin
 **Trump Trade Deals Threaten Canada’s Vital Auto Industry**\
 `Recent pacts with Britain, Europe and Japan mean that autos exported from those countries and regions face lower U.S. tariffs than Canadian vehicles do.`\
 https://nytimes.com/2025/07/29/world/canada/canada-automobile-tariffs-trump-trade.html
-
-**Wednesday Briefing: The U.K. May Recognize a Palestinian State**\
-`Plus, the Booker Prize nominees.`\
-https://nytimes.com/2025/07/29/briefing/britain-palestinian-state-china-us-trade.html
 

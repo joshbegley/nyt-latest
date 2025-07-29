@@ -1,3 +1,11 @@
+**After Park Avenue Shooting, Anti-Muslim Disinformation Spread Rapidly**\
+`Once it became clear that the only Muslim involved in the attack was one of the victims, right-wing commentators sought to shift the focus to Zohran Mamdani.`\
+https://nytimes.com/2025/07/29/nyregion/nyc-shooting-anti-muslim-disinformation.html
+
+**Do These Jeans Make My Ad Look Racist?**\
+`Fashions change. So do words.`\
+https://nytimes.com/2025/07/29/opinion/sydney-sweeney-american-eagle-ad.html
+
 **Blue Jays acquire Seranthony Domínguez from Orioles to bolster beleaguered bullpen**\
 `Domînguez switches dugouts in between the Jays-O's doubleheader, boosts a bullpen that has been hit hard lately.`\
 https://nytimes.com/athletic/6523574/2025/07/29/mlb-seranthony-dominguez-blue-jays-orioles-trade/
