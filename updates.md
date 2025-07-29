@@ -1,3 +1,19 @@
+**U.K. Will Recognize Palestinian Statehood in September, Barring Cease-Fire**\
+`Prime Minister Keir Starmer of Britain said his country would make the move unless Israel agrees to a cease-fire with Hamas.`\
+https://nytimes.com/2025/07/29/world/europe/uk-palestinian-statehood.html
+
+**‘Come With Me, Chuck E.’: Mouse Arrested for Credit Card Fraud**\
+`At a Tallahassee, Fla., Chuck E. Cheese location, a police officer told children: “Chuck E.’s busy right now.”`\
+https://nytimes.com/2025/07/29/us/chuck-e-cheese-costume-arrest-fraud.html
+
+**Slain Police Officer Was Working in Uniform While Off Duty**\
+`The Paid Detail Unit allows businesses that can afford it to pay for extra police protection.`\
+https://nytimes.com/2025/07/29/nyregion/nypd-officer-nyc-shooting.html
+
+**Got Bulls questions? Submit to Joel Lorenzi for the latest mailbag**\
+`The Chicago Bulls’ summer has hardly been eventful.`\
+https://nytimes.com/athletic/6522740/2025/07/29/bulls-mailbag-nikola-vucevic-josh-giddey-matas-buzelis/
+
 **Israeli Settler Arrested Over Killing of Palestinian Activist in West Bank**\
 `Awdah Hathaleen, whose work was featured in the Oscar-winning documentary “No Other Land,” was shot dead. The suspect had been subject to U.S. sanctions, but President Trump lifted them.`\
 https://nytimes.com/2025/07/29/world/middleeast/israeli-settler-killing-palestinian-activist-west-bank-awdah-hathaleen.html
