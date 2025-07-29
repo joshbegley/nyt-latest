@@ -1,3 +1,7 @@
+**Sean Combs, Awaiting Sentencing, Asks Judge to Release Him From Jail**\
+`Lawyers for the music mogul, who is to be sentenced in October on prostitution charges, filed court papers saying he would sign a $50 million bond.`\
+https://nytimes.com/2025/07/29/arts/music/sean-combs-diddy-bail-bond.html
+
 **Kaylee McKeown tops rival Regan Smith for another major title at swimming worlds**\
 `In the fastest-ever edition of their rivalry, McKeown once again bested Smith on a major stage Tuesday in Singapore.`\
 https://nytimes.com/athletic/6522297/2025/07/29/kaylee-mckeown-regan-smith-100-meter-backstroke-world-championships/
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/07/29/us/trump-news
 **Five things to know about Nebraska as Huskers open camp**\
 `Does this group possess the ability to jump similarly to Matt Rhule’s former teams in this spot at Temple and Baylor in 2015 and 2019?`\
 https://nytimes.com/athletic/6521295/2025/07/29/nebraska-football-preseason-camp-2025/
-
-**Looking at Carter Yakemchuk's path to making the Senators — and the hurdles ahead**\
-`Carter Yakemchuk is working towards his goal of making the Senators' roster in October. But what are his chances of making the team?`\
-https://nytimes.com/athletic/6478755/2025/07/29/carter-yakemchuk-senators-prospects-nhl-roster/
 
