@@ -1,3 +1,7 @@
+**At Slain Officer’s Home, His Bangladeshi Community Mourns Into the Night**\
+`Didarul Islam had a hard-won house, a job that brought respect and the esteem of his neighbors. “He said serve the community and you’ll do fine,” a friend said.`\
+https://nytimes.com/2025/07/29/nyregion/nyc-shooting-police-officer-killed-didarul-islam.html
+
 **A look at the prospects the Boston Red Sox might trade**\
 `The Red Sox system is viewed by many evaluators as one of the league's strongest.`\
 https://nytimes.com/athletic/6521768/2025/07/29/craig-breslow-boston-red-sox-trade-deadline/
