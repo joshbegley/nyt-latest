@@ -1,3 +1,7 @@
+**U.K. Will Recognize Palestinian Statehood in September, Barring Cease-Fire**\
+`Prime Minister Keir Starmer of Britain said his country would make the move unless Israel agrees to a cease-fire with Hamas.`\
+https://nytimes.com/2025/07/29/world/europe/uk-palestinian-statehood.html
+
 **‘Come With Me, Chuck E.’: Mouse Arrested for Credit Card Fraud**\
 `At a Tallahassee, Fla., Chuck E. Cheese location, a police officer told children: “Chuck E.’s busy right now.”`\
 https://nytimes.com/2025/07/29/us/chuck-e-cheese-costume-arrest-fraud.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6520048/2025/07/29/tennis-us-open-mixed-doubles-tea
 **Emmanuel Clase probe to have lasting effects for Guardians, starting with trade deadline**\
 `Any legitimate chance the Guardians had at contending this season walked out the door with Clase. Shane Bieber and Steven Kwan could follow.`\
 https://nytimes.com/athletic/6521777/2025/07/29/emmanuel-clase-guardians-mlb-gambling-probe-shane-bieber-trade-deadline/
-
-**These Companies Avoided Clean-Air Rules. It Took a Single Email.**\
-`Sites including at least 15 coal plants sought exemptions from environmental rules using a new Trump administration system to fast-track requests, documents show.`\
-https://nytimes.com/2025/07/29/climate/epa-air-pollution-exemptions-emails.html
 
