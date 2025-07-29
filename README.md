@@ -1,3 +1,7 @@
+**A World of Misery, From 200 Miles Up**\
+`Amid warnings of famine in Gaza, a satellite captures an image of hundreds Palestinians converging on an aid convoy.`\
+https://nytimes.com/2025/07/29/world/middleeast/gaza-satellite-aid-truck-famine.html
+
 **St. Paul Hobbled by Cyberattack, Prompting National Guard Response**\
 `Gov. Tim Walz of Minnesota activated the National Guard to help the city of St. Paul address a cyberattack that was detected last Friday.`\
 https://nytimes.com/2025/07/29/us/st-paul-cyberattack-walz.html
@@ -28,13 +32,9 @@ https://nytimes.com/athletic/6522820/2025/07/29/eagles-training-camp-jeff-stoutl
 
 **Slain Officer is Remembered for Devotion to His Family and Mosque**\
 `Officer Islam donated thousands of dollars to help establish a local mosque in his largely Bangladeshi neighborhood in the Bronx, according to a friend of his.`\
-https://nytimes.com/2025/07/29/nyregion/in-the-bronx-an-officer-is-remembered-for-his-devotion-to-his-family-and-his-mosque.html
+https://nytimes.com/2025/07/29/nyregion/officer-islam-nyc-shooting-family-friends.html
 
 **The gunman’s claim that he had C.T.E. could take months to verify.**\
 `By Juliet Macur`\
 https://nytimes.com/live/2025/07/29/nyregion/nyc-shooting-manhattan/the-gunmans-claim-that-he-had-cte-could-take-months-to-verify
-
-**Five key Dodgers trade deadline questions: Can they land a reliever and a bat?**\
-`With trade chatter heating up, readers asked about Steven Kwan, "prospect hugging" and Farhan Zaidi's role.`\
-https://nytimes.com/athletic/6522699/2025/07/29/dodgers-mlb-trade-deadline-questions/
 
