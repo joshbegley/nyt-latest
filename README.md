@@ -1,3 +1,11 @@
+**The Bounce: Luka Dončić's revenge muscles**\
+`The Bounce is The Athletic's free NBA newsletter.`\
+https://nytimes.com/athletic/6523074/2025/07/29/luka-doncic-magazine-cover-the-bounce/
+
+**Whitecaps clear to do Muller deal after 'discovery rights' agreement with Cincinnati**\
+`Muller is expected to sign a deal that will not require a designated player (DP) spot in 2025, but would jump to a DP deal in 2026.`\
+https://nytimes.com/athletic/6269224/2025/07/29/thomas-muller-vancouver-whitecaps-mls/
+
 **Until Saturday: The sneakiest favorite**\
 `Until Saturday is The Athletic's free CFB newsletter.`\
 https://nytimes.com/athletic/6523059/2025/07/29/big-12-favorite-kansas-state-until-saturday/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/07/29/us/politics/ice-immigration-enforcement.html
 **San Diego Wave sign 21-year-old midfielder Laurina Fazer through 2027**\
 `Fazer joins the Wave from Paris Saint-Germain, where she began her professional career at age 16.`\
 https://nytimes.com/athletic/6522857/2025/07/29/laurina-fazer-san-diego-wave-signing-contract/
-
-**Rosenthal: The 4 MLB teams still not entirely sure of their trade deadline direction**\
-`The Giants are one of four clubs whose approach over the next two days is still up in the air. `\
-https://nytimes.com/athletic/6522959/2025/07/29/mlb-trade-deadline-rays-giants-angels-rangers/
-
-**Lyon make contact with Liverpool over Morton**\
-`Morton was part of England's under-21 squad which made it back-to-back European Championship wins in Slovakia this summer.`\
-https://nytimes.com/athletic/6493326/2025/07/29/tyler-morton-liverpool-transfer-future/
 
