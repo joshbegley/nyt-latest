@@ -1,40 +1,40 @@
-**Europe Made Major Trade Concessions to Trump. How Did That Happen?**\
-`Some European politicians are dismayed that the European Union did not drive a harder bargain, but facing the threat of a damaging trade war, officials say they had little choice.`\
-https://nytimes.com/2025/07/29/world/europe/europe-trump-trade-concessions-analysis.html
+**"This new league would create confusion": EuroLeague CEO on NBA, expansion, NCAA and more**\
+`"Why not sit down and see how we go and make decisions together, rather than just creating a new league and for them to start over?"`\
+https://nytimes.com/athletic/6520070/2025/07/29/euroleague-nba-paulius-motiejunas-dubai/
 
-**Here’s the latest.**\
-`By Francesca Regalado, Ed Shanahan, Chelsia Rose Marcius and Maria Cramer`\
-https://nytimes.com/live/2025/07/29/nyregion/nyc-shooting-manhattan/heres-the-latest
+**Ex-Viking Jared Allen's Hall of Fame nod punctuates a career defined by maturation**\
+`Previously a wild man both on and off the field, the Canton-bound Allen flourished with the Vikings when he grew up emotionally. `\
+https://nytimes.com/athletic/6520018/2025/07/29/jared-allen-pro-football-hall-of-fame-vikings/
 
-**Live Updates: Investigators Seek Answers After Gunman Kills 4 in Midtown Manhattan**\
-`The gunman opened fire Monday in a Park Avenue tower that has offices of the National Football League and the investment firm Blackstone, before killing himself. The N.F.L.’s president said an employee was “seriously injured” in the shooting.`\
-https://nytimes.com/live/2025/07/29/nyregion/nyc-shooting-manhattan
+**What will become of MAC upsets in college football's revenue-sharing era?**\
+`With so many advantages, Power 4 programs have no excuses for losing to a team from the MAC. That will be truer than ever this year.`\
+https://nytimes.com/athletic/6520982/2025/07/29/college-football-mac-conference-upsets/
 
-**North Korea Says Kim’s Relations With Trump ‘Not Bad,’ but Stands Firm on Nukes**\
-`The country appeared to signal an openness to talks, but said it must be recognized as a nuclear power and would not discuss abandoning its arsenal.`\
-https://nytimes.com/2025/07/29/world/asia/north-korea-kim-trump.html
+**Kaleb Johnson and 10 others to watch as the Steelers put on pads**\
+`We should learn a lot more about Johnson, the offensive line and first-round rookie Derrick Harmon when the pads come on Tuesday.`\
+https://nytimes.com/athletic/6521229/2025/07/29/steelers-training-camp-pads-kaleb-johnson/
 
-**The New York Times International Edition in Print for Wednesday, July 30, 2025**\
-``\
-https://nytimes.com/issue/todaysinyt/2025/07/29/todays-new-york-times-international-edition
+**The Lakers are about to get the best version of Luka Dončić. But first he's committed to himself**\
+`The body, the publicity, the determined look in his eyes, the sweat reflecting the spotlights, it’s all part of Dončić’'s bigger plan.`\
+https://nytimes.com/athletic/6521715/2025/07/29/luka-doncic-lakers-commitment-nba/
 
-**Deadly Flooding Inundates Beijing**\
-`Severe rains caused flooding and landslides in Beijing and surrounding areas, leaving homes destroyed as mass evacuations were underway.`\
-https://nytimes.com/video/world/asia/100000010310810/beijing-china-floods.html
+**Could the Reds add to their bullpen by adding to their rotation?**\
+`If the Reds add to the back of their rotation, Nick Martinez or Chase Burns could help fortify the bullpen.`\
+https://nytimes.com/athletic/6521587/2025/07/29/reds-trade-deadline-bullpen-pitching-rotation/
 
-**Sheffield Wednesday head coach Rohl to leave the club**\
-`An agreement has been reached for the 36-year-old to depart for free and Rohl has informed players and staff of the situation.`\
-https://nytimes.com/athletic/6522073/2025/07/29/danny-rohl-leave-sheffield-wednesday/
+**As Ravens work on cadence, they'll live with some penalties now to avoid them later**\
+`Limiting pre-snap penalties has been deemed a priority this season for Baltimore and its offense. `\
+https://nytimes.com/athletic/6521304/2025/07/29/baltimore-ravens-training-camp-penalties/
 
-**Fantasy football rankings: Bijan Robinson, Ja'Marr Chase lead off the top 100**\
-`Brandon Funston shares his thoughts on his preseason list of the Top 100 fantasy football players for the 2025 NFL campaign.`\
-https://nytimes.com/athletic/6514334/2025/07/29/fantasy-football-2025-top-100-rankings-bijan-chase/
+**MLB trade deadline: Using history to put a price tag on players about to move**\
+`Does your team want to make a deal for Joe Ryan, Eugenio Suarez or Steven Kwan? Here's an idea of what it would cost.`\
+https://nytimes.com/athletic/6521028/2025/07/29/trade-deadline-players-price-tag/
 
-**Blindfolded hikes and falling into pools: Inside Robert Spillane's unorthodox training**\
-`Spillane's eyes-closed training is far from ordinary, but it has helped the new Patriot become one of the NFL's most reliable tacklers.`\
-https://nytimes.com/athletic/6515813/2025/07/29/robert-spillane-patriots-training-blindfolded-hikes-pool/
+**4 simple rules for navigating the MLB trade deadline without irking your peers**\
+`There are a number of unwritten rules when it comes to making a baseball trade. Ignore them at your peril. `\
+https://nytimes.com/athletic/6481412/2025/07/29/mlb-trade-deadline-executive-rules/
 
-**Crypto’s Man in the White House**\
-`The president’s family stands to make hundreds of millions of dollars from its cryptocurrency ventures.`\
-https://nytimes.com/2025/07/29/opinion/trump-crypto-genius-act-memcoin.html
+**Europe Caves to Trump on Tariffs**\
+`Both sides hailed a new trade agreement as the biggest ever. But it will come at a cost to the European Union.`\
+https://nytimes.com/2025/07/29/podcasts/the-daily/us-eu-trade-deal.html
 
