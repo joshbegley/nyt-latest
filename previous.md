@@ -1,3 +1,15 @@
+**Tracy McGrady joining NBC Sports as NBA studio analyst**\
+`McGrady is a seven-time NBA All-Star and a member of the Naismith Memorial Hall of Fame Class of 2017.`\
+https://nytimes.com/athletic/6522485/2025/07/29/tracy-mcgrady-nbc-sports-studio-analyst/
+
+**New York’s mayoral candidates shared concern and condolences.**\
+`By Dana Rubinstein`\
+https://nytimes.com/live/2025/07/29/nyregion/nyc-shooting-manhattan/new-yorks-mayoral-candidates-shared-concern-and-condolences
+
+**‘I Was a Small, Sticky God of Summer’: The Week 6 Winner of Our Summer Reading Contest**\
+`Joel Raj, 17, writes about a messy peach dessert by Yotam Ottolenghi that called him back to the “chin-dribbling freedom” of his childhood.`\
+https://nytimes.com/2025/07/29/learning/i-was-a-small-sticky-god-of-summer-the-week-6-winner-of-our-summer-reading-contest.html
+
 **Women's Euro 2025 final draws 1.35 million viewers, breaks U.S. audience record**\
 `This year's Women’s Euros tournament averaged 458,000 viewers across Fox's networks, making it the most watched in English-language history.`\
 https://nytimes.com/athletic/6522326/2025/07/29/womens-euro-final-draw-2025-viewers/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/07/29/us/politics/marjorie-taylor-greene-gaza-genocide.
 **Russia Launches Deadly Strike on Ukrainian Prison**\
 `The attack was part of a wave of strikes directed at 73 Ukrainian cities and villages, President Zelensky said. It came only hours after President Trump gave the Kremlin a new deadline to work toward ending the war.`\
 https://nytimes.com/video/world/europe/100000010310891/russia-launches-deadly-strike-on-ukrainian-prison.html
-
-**Gyokeres shirt sales break Arsenal record**\
-`While data is still being analysed, it is already clear that demand for Gyokeres’ No 14 shirt exceeds that of any player in recent history.`\
-https://nytimes.com/athletic/6522378/2025/07/29/viktor-gyokeres-arsenal-shirt-record/
-
-**Boeing Reports Strongest Revenue in Six Years**\
-`Although the aerospace company lost money in the second quarter, it built and sold more planes as it recovered from quality crises and a workers strike.`\
-https://nytimes.com/2025/07/29/business/boeing-sales-profit-tariffs.html
-
-**Former Football Players With C.T.E. Have Turned to Violence**\
-`The gunman in the Manhattan office shooting said in a note that he believed he had C.T.E., a degenerative disease linked by studies to repeated hits to the head.`\
-https://nytimes.com/2025/07/29/business/nyc-shooting-note-cte-explained.html
 

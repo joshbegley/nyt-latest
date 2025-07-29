@@ -1,3 +1,15 @@
+**Tracy McGrady joining NBC Sports as NBA studio analyst**\
+`McGrady is a seven-time NBA All-Star and a member of the Naismith Memorial Hall of Fame Class of 2017.`\
+https://nytimes.com/athletic/6522485/2025/07/29/tracy-mcgrady-nbc-sports-studio-analyst/
+
+**New York’s mayoral candidates shared concern and condolences.**\
+`By Dana Rubinstein`\
+https://nytimes.com/live/2025/07/29/nyregion/nyc-shooting-manhattan/new-yorks-mayoral-candidates-shared-concern-and-condolences
+
+**‘I Was a Small, Sticky God of Summer’: The Week 6 Winner of Our Summer Reading Contest**\
+`Joel Raj, 17, writes about a messy peach dessert by Yotam Ottolenghi that called him back to the “chin-dribbling freedom” of his childhood.`\
+https://nytimes.com/2025/07/29/learning/i-was-a-small-sticky-god-of-summer-the-week-6-winner-of-our-summer-reading-contest.html
+
 **Women's Euro 2025 final draws 1.35 million viewers, breaks U.S. audience record**\
 `This year's Women’s Euros tournament averaged 458,000 viewers across Fox's networks, making it the most watched in English-language history.`\
 https://nytimes.com/athletic/6522326/2025/07/29/womens-euro-final-draw-2025-viewers/
