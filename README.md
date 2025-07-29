@@ -2,6 +2,14 @@
 `Our experts have spent hundreds of hours testing tools and supplies to help you survive earthquakes, wildfires, floods, hurricanes, and much more.`\
 https://nytimes.com/wirecutter/reviews/emergency-preparedness-kit-builder/
 
+**The Giants had questions leading into the trade deadline. Here are the answers**\
+`Three weeks ago, we posed questions the Giants needed to answer before the deadline. Here's where we stand on those questions.`\
+https://nytimes.com/athletic/6523118/2025/07/29/sf-giants-trade-deadline-questions-answers/
+
+**Rookie RJ Harvey's growth on display in Broncos' padded workouts**\
+`The rookie running back had a run in Tuesday's practice "that was something," coach Sean Payton said`\
+https://nytimes.com/athletic/6523445/2025/07/29/broncos-rj-harvey-growth-training-camp/
+
 **Is Raiders LB Devin White 'back' to being a difference-maker? Raiders camp takeaways**\
 `"He's back,” Carroll said of White, a former Pro Bowler with the Buccaneers who had his best day of practice with the Silver and Black.`\
 https://nytimes.com/athletic/6523526/2025/07/29/devin-white-raiders-nfl-training-camp/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/07/29/us/politics/trump-epstein-virginia-giuffre-mar-a-
 **Trump Says Gaza Will Get More Aid, but Israel Will Distribute It**\
 `The president has in recent days acknowledged there is “starvation” in Gaza, a break with Israeli officials who have faced deep criticism over the humanitarian crisis there.`\
 https://nytimes.com/2025/07/29/us/politics/trump-says-gaza-will-get-more-aid-but-israel-will-distribute-it.html
-
-**Republicans Unveil Aviation Safety Bill Before D.C. Crash Hearings**\
-`The legislation, led by Senator Ted Cruz, the Republican chairman of a panel that oversees air travel, has a number of high-profile supporters — but no Democrats, yet.`\
-https://nytimes.com/2025/07/29/us/politics/aviation-safety-bill-dca-crash-hearings.html
-
-**Trump Trade Deals Threaten Canada’s Vital Auto Industry**\
-`Recent pacts with Britain, Europe and Japan mean that autos exported from those countries and regions face lower U.S. tariffs than Canadian vehicles do.`\
-https://nytimes.com/2025/07/29/world/canada/canada-automobile-tariffs-trump-trade.html
 
