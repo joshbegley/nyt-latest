@@ -1,3 +1,7 @@
+**What is CTE? Explaining the disease referenced by New York gunman at NFL HQ building**\
+`The brain disease has most commonly been found in athletes in contact sports and others with a history of repeated brain trauma.`\
+https://nytimes.com/athletic/6522641/2025/07/29/nfl-new-york-shooting-cte/
+
 **Five Under-the-Radar European Beach Hotels**\
 `The usual hot spots are teeming with tourists this summer. Here are some unexpected alternatives — in Spain, Greece, France, Italy and England — where you can pair some serenity with your sea views.`\
 https://nytimes.com/2025/07/29/t-magazine/spain-greece-italy-france-beach-hotels.html
