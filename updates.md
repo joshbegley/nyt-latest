@@ -1,3 +1,7 @@
+**Partey to feature on Premier League trading cards after Arsenal green light**\
+`Partey was charged with five counts of rape and one count of sexual assault earlier this month. He denies the allegations.`\
+https://nytimes.com/athletic/6522098/2025/07/29/arsenal-thomas-partey-topps-trading-cards/
+
 **Israeli Far-Right Minister Promotes Plan for Jewish Resettlement in Gaza**\
 `Bezalel Smotrich described Gaza as an ‘inseparable part’ of Israel, even as the Netherlands announced a ban on him and another hard line Israeli minister.`\
 https://nytimes.com/2025/07/29/world/middleeast/israel-gaza-jewish-resettlement.html
