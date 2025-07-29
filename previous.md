@@ -1,40 +1,40 @@
-**Gary Karr, Virtuoso Who Elevated the Double-Bass, Dies at 83**\
-`He made the cumbersome bass soar, sing and leap, and became one of few bassists in history to successfully pursue a career outside an orchestra.`\
-https://nytimes.com/2025/07/29/arts/music/gary-karr-dead.html
+**Shooting in Midtown Was New York’s Deadliest in 25 Years**\
+`Gun laws in the city have largely prevented the sort of mass slaughter common in the rest of America. The last killing of this scale in the city was at a fast-food restaurant in Queens in 2000.`\
+https://nytimes.com/2025/07/29/nyregion/mass-shooting-midtown-death-toll.html
 
-**Flatter, Defer, Nudge: Europe’s Playbook for Trump Yields Some Results**\
-`A tactic of deference and praise, along with a studied attempt to avoid any public blowups, coaxed President Trump into changes on key issues like Gaza and Ukraine.`\
-https://nytimes.com/2025/07/29/world/europe/trump-europe-ukraine-gaza.html
+**Two Psychiatrists: A Closer Look at Empathy**\
+`Readers respond to a Critic’s Notebook about the debate over empathy. Also: The notion that President Trump’s image could be added to Mount Rushmore.`\
+https://nytimes.com/2025/07/29/opinion/empathy-psychiatry.html
 
-**The Libertine Team Goes Full Francophile at Chateau Royale**\
-`Bartolo channels Madrid, Hōp pops up in Red Hook with Cambodian food and more restaurant news.`\
-https://nytimes.com/2025/07/29/dining/nyc-restaurant-news.html
+**Do You Work With ICE? We Want to Hear From You.**\
+`To help us report upcoming stories about immigration enforcement under the Trump administration, we’d like to hear about the experiences of employees of ICE and other agencies.`\
+https://nytimes.com/2025/07/29/us/politics/ice-immigration-enforcement.html
 
-**Tour de France Femmes: Lorena Wiebes sprints to second stage win, Marianne Vos stays in yellow**\
-`Wiebes claims 109th win of career on Stage 4 at the Tour de France Femmes. `\
-https://nytimes.com/athletic/6520463/2025/07/29/tour-de-france-femmes-stage-4-lorena-wiebes-win-marianne-vos-yellow/
+**San Diego Wave sign 21-year-old midfielder Laurina Fazer through 2027**\
+`Fazer joins the Wave from Paris Saint-Germain, where she began her professional career at age 16.`\
+https://nytimes.com/athletic/6522857/2025/07/29/laurina-fazer-san-diego-wave-signing-contract/
 
-**Trump’s E.U. Trade Deal Comes With Impossible Energy Promises**\
-`The European Union pledged to buy billions of dollars’ worth of energy resources from the United States. Experts say that’s unrealistic and could hurt Europe’s climate goals.`\
-https://nytimes.com/2025/07/29/climate/trump-trade-deal-europe-energy.html
+**Rosenthal: The 4 MLB teams still not entirely sure of their trade deadline direction**\
+`The Giants are one of four clubs whose approach over the next two days is still up in the air. `\
+https://nytimes.com/athletic/6522959/2025/07/29/mlb-trade-deadline-rays-giants-angels-rangers/
 
-**Has A.I. Become Part of Your Life?**\
-`Tell us about how you’re using artificial intelligence.`\
-https://nytimes.com/2025/07/29/opinion/ai-uses-concerns.html
+**Lyon make contact with Liverpool over Morton**\
+`Morton was part of England's under-21 squad which made it back-to-back European Championship wins in Slovakia this summer.`\
+https://nytimes.com/athletic/6493326/2025/07/29/tyler-morton-liverpool-transfer-future/
 
-**MLB trade deadline: All of our 2025 deals and grades in one place**\
-`We'll be updating this file from now through the end of the trade deadline to keep you up on the latest deals.`\
-https://nytimes.com/athletic/6520153/2025/07/29/mlb-trade-deadline-deals-grades-2025/
+**Ozempic Maker’s Stock Plunges 20% After Profit Warning**\
+`Novo Nordisk slashed its financial forecasts as it struggled to fight off competition in the United States. It also named a new chief executive, who highlighted the “urgency” of the moment.`\
+https://nytimes.com/2025/07/29/business/ozempic-novo-nordisk-stock-plunge.html
 
-**Kennedy Announces Plan to Restrict Some Kratom Products**\
-`Federal officials said a psychoactive ingredient in kratom had been refined and added to supplements that could quickly become addictive.`\
-https://nytimes.com/2025/07/29/health/kennedy-kratom-ban.html
+**Pottery Finds a New Audience Among Fashionable Men**\
+`Men's wear stores around the country have cleared shelf space for teacups and handmade ceramics so image-conscious men can invest in their home space.`\
+https://nytimes.com/2025/07/29/realestate/ceramics-fashion-men-stores.html
 
-**Power Loss Snarls Subway Traffic in New York City**\
-`The electrical outage at West 4th Street led to numerous subway delays and cancellations on a sweltering hot day.`\
-https://nytimes.com/2025/07/29/nyregion/nyc-subway-power-outage.html
+**Scottish Leader Talks Gaza, Tariffs and Ukraine in Meeting With Trump**\
+`After opening a new golf course at his Aberdeenshire resort, President Trump was scheduled to fly back to the United States.`\
+https://nytimes.com/2025/07/29/us/politics/scottish-leader-talks-gaza-tariffs-and-ukraine-in-meeting-with-trump.html
 
-**Aznou has long been on Everton's radar. He is a modern full-back with plenty of potential**\
-`Moyes needed a left-back to provide competition for Mykolenko - the 19-year-old can do that having completed a move from Bayern Munich`\
-https://nytimes.com/athletic/6520185/2025/07/29/everton-adam-aznou-transfer-bayern-munich/
+**Kurt Warner to be lead NFL game analyst for YouTube's Christmas Day Game**\
+`YouTube is still in search of a play-by-play caller for the broadcast, according to sources briefed on the discussions.`\
+https://nytimes.com/athletic/6522879/2025/07/29/kurt-warner-youtube-christmas-nfl-game/
 
