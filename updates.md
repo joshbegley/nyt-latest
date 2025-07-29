@@ -1,3 +1,11 @@
+**Four shot, killed at building housing NFL HQ; no clear league connection**\
+`Victims of the shooting included a New York City police officer. Any potential motive remains unclear.`\
+https://nytimes.com/athletic/6521724/2025/07/28/new-york-shooting-nfl-headquarters-office-building/
+
+**Facing deadline uncertainty, Eugenio Suárez focused on the one thing he can control — hitting**\
+`After taking a pitch to the hand Monday night, everyone wants to know if his finger is OK.`\
+https://nytimes.com/athletic/6521657/2025/07/28/eugenio-suarez-trade-deadline-uncertainty/
+
 **Full Time: Soccer goes and soccer returns**\
 `Welcome to Full Time, The Athletic's women's soccer newsletter.`\
 https://nytimes.com/athletic/6521738/2025/07/28/womens-euros-wafcon-uswnt-full-time/
