@@ -1,3 +1,7 @@
+**Scottish Leader Talks Gaza, Tariffs and Ukraine in Meeting With Trump**\
+`After opening a new golf course at his Aberdeenshire resort, President Trump was scheduled to fly back to the United States.`\
+https://nytimes.com/2025/07/29/us/politics/trump-scotland-tariffs-ukraine-gaza.html
+
 **Shooting in Midtown Was New York’s Deadliest in 25 Years**\
 `Gun laws in the city have largely prevented the sort of mass slaughter common in the rest of America. The last killing of this scale in the city was at a fast-food restaurant in Queens in 2000.`\
 https://nytimes.com/2025/07/29/nyregion/mass-shooting-midtown-death-toll.html

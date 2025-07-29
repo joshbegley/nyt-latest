@@ -32,7 +32,7 @@ https://nytimes.com/2025/07/29/realestate/ceramics-fashion-men-stores.html
 
 **Scottish Leader Talks Gaza, Tariffs and Ukraine in Meeting With Trump**\
 `After opening a new golf course at his Aberdeenshire resort, President Trump was scheduled to fly back to the United States.`\
-https://nytimes.com/2025/07/29/us/politics/scottish-leader-talks-gaza-tariffs-and-ukraine-in-meeting-with-trump.html
+https://nytimes.com/2025/07/29/us/politics/trump-scotland-tariffs-ukraine-gaza.html
 
 **Kurt Warner to be lead NFL game analyst for YouTube's Christmas Day Game**\
 `YouTube is still in search of a play-by-play caller for the broadcast, according to sources briefed on the discussions.`\
