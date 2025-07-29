@@ -1,3 +1,11 @@
+**Facing deadline uncertainty, Eugenio Suárez is focused on the one thing he can control — hitting**\
+`After taking a pitch to the hand on Monday night, everyone wants to know if his finger is OK.`\
+https://nytimes.com/athletic/6521657/2025/07/28/eugenio-suarez-trade-deadline-uncertainty/
+
+**States Sue Trump Administration Over Efforts to Get Food Stamp Data**\
+`The lawsuit argues that the federal government’s demand was an attempt to obtain sensitive personal information for use outside the food stamp program.`\
+https://nytimes.com/2025/07/28/nyregion/states-sue-trump-administration-over-food-stamp-data.html
+
 **Live Q&A: Angels trade deadline talk with Sam Blum at 11 a.m. PT Tuesday**\
 `Angels writer Sam Blum will hold a live Q&A Tuesday at 11 a.m. PT. `\
 https://nytimes.com/athletic/6521703/2025/07/28/live-qa-angels-trade-deadline-sam-blum/
