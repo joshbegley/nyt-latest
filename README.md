@@ -1,3 +1,7 @@
+**Trump’s E.U. Trade Deal Comes With Impossible Energy Promises**\
+`The European Union pledged to buy billions of dollars’ worth of energy resources from the United States. Experts say that’s unrealistic and could hurt Europe’s climate goals.`\
+https://nytimes.com/2025/07/29/climate/trump-trade-deal-europe-energy.html
+
 **Has A.I. Become Part of Your Life?**\
 `Tell us about how you’re using artificial intelligence.`\
 https://nytimes.com/2025/07/29/opinion/ai-uses-concerns.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/29/us/politics/timothy-haugh-nsa-cyber.html
 **Everton sign Aznou from Bayern on four-year deal**\
 `Aznou was born in Spain and represented the country up to under-17 level but opted to play for Morocco and has been capped six times.`\
 https://nytimes.com/athletic/6517383/2025/07/29/adam-aznou-everton-transfer/
-
-**Police Investigators Dissect Recent Movements of Manhattan Gunman**\
-`The New York Police Department tracked his travel from Nevada to Manhattan as well as his spending in recent years.`\
-https://nytimes.com/2025/07/29/nyregion/police-investigators-dissect-recent-movements-of-manhattan-gunman.html
 
