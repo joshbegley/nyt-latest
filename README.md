@@ -1,3 +1,7 @@
+**The gunman’s claim that he had C.T.E. could take months to verify.**\
+`By Juliet Macur`\
+https://nytimes.com/live/2025/07/29/nyregion/nyc-shooting-manhattan/the-gunmans-claim-that-he-had-cte-could-take-months-to-verify
+
 **Five key Dodgers trade deadline questions: Can they land a reliever and a bat?**\
 `With trade chatter heating up, readers asked about Steven Kwan, "prospect hugging" and Farhan Zaidi's role.`\
 https://nytimes.com/athletic/6522699/2025/07/29/dodgers-mlb-trade-deadline-questions/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6523246/2025/07/29/wnba-mailbag-questions-2/
 **Top Lawyer for National Security Agency Is Fired**\
 `A far-right conspiracy theorist had amplified criticism of the lawyer and her previous work.`\
 https://nytimes.com/2025/07/29/us/politics/nsa-lawyer-fired.html
-
-**NASA’s Next Mission Will Launch From India. Here’s How to Watch.**\
-`A new Earth-observing satellite, built by NASA and India’s space agency, will be sent into orbit on Wednesday.`\
-https://nytimes.com/2025/07/29/science/nisar-nasa-india.html
 

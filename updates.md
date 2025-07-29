@@ -1,3 +1,7 @@
+**Five key Dodgers trade deadline questions: Can they land a reliever and a bat?**\
+`With trade chatter heating up, readers asked about Steven Kwan, "prospect hugging" and Farhan Zaidi's role.`\
+https://nytimes.com/athletic/6522699/2025/07/29/dodgers-mlb-trade-deadline-questions/
+
 **Browns owner Jimmy Haslam says there's no panic following disappointing 2024 season**\
 `In his annual late-July meeting with reporters on Tuesday, Cleveland Browns owner Jimmy Haslam was clear that he expects better than the 3-14 season produced in 2024.`\
 https://nytimes.com/athletic/6523164/2025/07/29/cleveland-browns-owner-jimmy-haslam/
