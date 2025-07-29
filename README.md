@@ -1,3 +1,7 @@
+**MLB trade deadline cheat sheet: Top storylines, bold predictions, best-available players**\
+`To set the stage for the sprint to the deadline, here's a primer based on what I'm hearing from front office executives across the league. `\
+https://nytimes.com/athletic/6522061/2025/07/29/mlb-trade-deadline-storylines-predictions-rumors-players/
+
 **U.S. Open announces mixed doubles direct entries, wild cards include Alcaraz and Raducanu**\
 `The new tournament's first 14 pairs are set, with wild cards for a suite of singles stars — and the defending doubles champions.`\
 https://nytimes.com/athletic/6520048/2025/07/29/tennis-us-open-mixed-doubles-teams-direct-entry/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6522485/2025/07/29/tracy-mcgrady-nbc-sports-studio-
 **New York’s mayoral candidates share concern and condolences.**\
 `By Dana Rubinstein`\
 https://nytimes.com/live/2025/07/29/nyregion/nyc-shooting-manhattan/new-yorks-mayoral-candidates-shared-concern-and-condolences
-
-**‘I Was a Small, Sticky God of Summer’: The Week 6 Winner of Our Summer Reading Contest**\
-`Joel Raj, 17, writes about a messy peach dessert by Yotam Ottolenghi that called him back to the “chin-dribbling freedom” of his childhood.`\
-https://nytimes.com/2025/07/29/learning/i-was-a-small-sticky-god-of-summer-the-week-6-winner-of-our-summer-reading-contest.html
 
