@@ -1,3 +1,7 @@
+**Seahawks training camp: Defense dominates on Day 1 in pads, highlighted by pick 6**\
+`The Seahawks' new-look offense struggled to run the ball, or escape the shadow of its own goal posts, as the physicality ramped up.`\
+https://nytimes.com/athletic/6521496/2025/07/28/seahawks-training-camp-pads-defense/
+
 **Officer Killed and 2 Others Are Shot at Park Avenue Office Tower**\
 `The gunman was dead, the police said, and the building was in lockdown Monday evening.`\
 https://nytimes.com/live/2025/07/28/nyregion/nyc-shooting
