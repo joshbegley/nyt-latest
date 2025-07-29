@@ -1,3 +1,7 @@
+**Take a Ride On New York City’s Future Train Line**\
+`The Interborough Express, a new rail line that would link Brooklyn and Queens, could change the face of the city.`\
+https://nytimes.com/interactive/2025/07/28/nyregion/interborough-express-tour-brooklyn-queens.html
+
 **Heavy Rainfall in Beijing Leaves at Least 30 Dead, Officials Say**\
 `More than 21 inches of rain fell on the mountainous district where most of the deaths occurred, China’s state broadcaster said on Tuesday.`\
 https://nytimes.com/2025/07/28/world/asia/china-rain-beijing-deaths.html
@@ -6,8 +10,8 @@ https://nytimes.com/2025/07/28/world/asia/china-rain-beijing-deaths.html
 `Salyer lost 35 pounds over the offseason and his newfound conditioning could get him a chance to earn a starting job.`\
 https://nytimes.com/athletic/6521495/2025/07/28/chargers-training-camp-jamaree-salyer-weight/
 
-**Cowboys OT Tyler Guyton suffers knee sprain at practice: Sources**\
-`Second-year tackle is expected to be sidelined four to six weeks, meaning he could miss Dallas' season-opener Sept. 4 at Philadelphia.`\
+**Cowboys OT Tyler Guyton expected to miss 4-6 weeks with knee injury: Sources**\
+`Second-year tackle's injury timeline means he could miss Dallas' season-opener Sept. 4 at Philadelphia.`\
 https://nytimes.com/athletic/6521440/2025/07/28/cowboys-ot-tyler-guyton-knee-injury/
 
 **Seahawks training camp: Defense dominates on Day 1 in pads, highlighted by pick 6**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6521308/2025/07/28/tigers-traded-for-chris-paddack/
 **Live trade deadline Q&A with Giants writer Andrew Baggarly on Tuesday at 1 p.m. PT**\
 `Submit your questions about what the Giants might do leading up to the MLB trade deadline.`\
 https://nytimes.com/athletic/6517574/2025/07/28/sf-giants-mlb-trade-deadline-live-chat-andrew-baggarly/
-
-**Live Q&A: Dodgers trade deadline talk with Fabian Ardaya at 9 a.m. PT Tuesday**\
-`The Dodgers have a chance to bolster their roster for the stretch drive. What will they do at the trade deadline?`\
-https://nytimes.com/athletic/6521461/2025/07/28/dodgers-deadline-questions-live/
 

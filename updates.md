@@ -1,3 +1,7 @@
+**Heavy Rainfall in Beijing Leaves at Least 30 Dead, Officials Say**\
+`More than 21 inches of rain fell on the mountainous district where most of the deaths occurred, China’s state broadcaster said on Tuesday.`\
+https://nytimes.com/2025/07/28/world/asia/china-rain-beijing-deaths.html
+
 **Chargers training camp: Jamaree Salyer working with first team after weight-loss 'journey'**\
 `Salyer lost 35 pounds over the offseason and his newfound conditioning could get him a chance to earn a starting job.`\
 https://nytimes.com/athletic/6521495/2025/07/28/chargers-training-camp-jamaree-salyer-weight/
