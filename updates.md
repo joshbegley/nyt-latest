@@ -1,3 +1,23 @@
+**Quote of the Day: France Assails Trade Bargain as ‘Dark Day’**\
+`Quotation of the Day for Tuesday, July 29, 2025.`\
+https://nytimes.com/2025/07/29/pageoneplus/quote-of-the-day-france-assails-trade-bargain-as-dark-day.html
+
+**Finland’s Short, Precious Summers Are Plagued by Goose Poop**\
+`Finns trying to enjoy beaches and parks during their all-too-brief summers have been vexed by legions of geese — and their droppings. The smelly mess has resisted even the most innovative solutions.`\
+https://nytimes.com/2025/07/29/world/europe/helsinki-finland-goose-droppings.html
+
+**Starmer Is Edging Closer to Recognizing Palestinian Statehood, U.K. Officials Say**\
+`Two government officials said Britain was actively weighing the recognition of a Palestinian state, in a shift driven by public pressure over starvation in Gaza.`\
+https://nytimes.com/2025/07/29/world/europe/uk-starmer-palestine-state.html
+
+**Connections: Sports Edition Coach: Hints for July 29, 2025**\
+`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
+https://nytimes.com/athletic/6520169/2025/07/29/connections-sports-edition-hints-for-july-29-2025/
+
+**Liverpool GK Alisson Becker leaves preseason tour for personal matter**\
+`Becker was given permission by Liverpool to leave Japan and won't feature in Wednesday's final match of the tour against Yokohama F Marinos.`\
+https://nytimes.com/athletic/6521760/2025/07/28/liverpool-fc-alisson-becker-preseason-tour/
+
 **Rosenthal: What I'm hearing about Guardians' revamped trade plans, plus more deadline notes**\
 `Steven Kwan is one Guardians player whose trade availability could be impacted by Emmanuel Clase's non-disciplinary leave.`\
 https://nytimes.com/athletic/6521551/2025/07/28/mlb-trade-deadline-guardians-clase-brewers/
