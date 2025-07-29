@@ -1,3 +1,15 @@
+**A World of Misery, From 200 Miles Up**\
+`Amid warnings of famine in Gaza, a satellite captures an image of hundreds Palestinians converging on an aid convoy.`\
+https://nytimes.com/2025/07/29/world/middleeast/gaza-satellite-aid-truck-famine.html
+
+**Five key Red Sox trade deadline questions: Jarren Duran, Yandy Diaz and more**\
+`Craig Breslow has maintained that the Red Sox will add at the deadline. How would that look? `\
+https://nytimes.com/athletic/6522837/2025/07/29/red-sox-mlb-trade-deadline-questions-targets/
+
+**Slain Officer is Remembered for Devotion to His Family and Mosque**\
+`Officer Islam donated thousands of dollars to help establish a local mosque in his largely Bangladeshi neighborhood in the Bronx, according to a friend of his.`\
+https://nytimes.com/2025/07/29/nyregion/officer-islam-nyc-shooting-family-friends.html
+
 **St. Paul Hobbled by Cyberattack, Prompting National Guard Response**\
 `Gov. Tim Walz of Minnesota activated the National Guard to help the city of St. Paul address a cyberattack that was detected last Friday.`\
 https://nytimes.com/2025/07/29/us/st-paul-cyberattack-walz.html
