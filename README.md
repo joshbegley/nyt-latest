@@ -2,12 +2,20 @@
 `Our experts have spent hundreds of hours testing tools and supplies to help you survive earthquakes, wildfires, floods, hurricanes, and much more.`\
 https://nytimes.com/wirecutter/reviews/emergency-preparedness-kit-builder/
 
+**David Moyes on Everton transfers - Time is 'running out' to build fans a 'team to be proud of'**\
+`Moyes wants as many as ten signings this summer for Everton`\
+https://nytimes.com/athletic/6523875/2025/07/29/moyes-everton-transfers-time/
+
+**This May Be the Future of Mexican Music**\
+`Our critic’s new Song of the Week is a telling collaboration between two of the biggest Mexican American bands working.`\
+https://nytimes.com/video/podcasts/100000010309063/this-may-be-the-future-of-mexican-music.html
+
 **Packers training camp: Matt LaFleur snaps, Matthew Golden shines and 8 more observations**\
 `LaFleur made his starting left tackle take a lap at the end of practice and six teammates joined Walker for his punishment.`\
 https://nytimes.com/athletic/6523725/2025/07/29/packers-training-camp-matt-lafleur-matthew-golden/
 
 **NFL temporarily closes NYC office after high-rise shooting injures employee**\
-`New York Mayor Eric Adams said there's “reason to believe” the gunman targetted the NFL, which he accused of hiding football's health risks.`\
+`New York Mayor Eric Adams said there's “reason to believe” the gunman targeted the NFL, which he accused of hiding football's health risks.`\
 https://nytimes.com/athletic/6523873/2025/07/29/nfl-closing-nyc-headquarters-shooting-aftermath/
 
 **Trump Admits Financial Penalties on Russia ‘May or May Not’ Work**\
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6521007/2025/07/29/49ers-training-camp-jordan-james
 **Britain and France Talk of Recognizing a Palestinian State. What Would It Mean?**\
 `The announcements reflect deep frustrations with Israel’s conduct in Gaza and in the occupied West Bank, experts say.`\
 https://nytimes.com/2025/07/29/world/middleeast/palestinian-statehood-israel.html
-
-**States Sue to Block Trump Law Defunding Planned Parenthood**\
-`A federal judge recently ruled that a Republican effort to withhold Medicaid funds from the organization’s clinics was likely unconstitutional.`\
-https://nytimes.com/2025/07/29/us/politics/abortion-lawsuit-trump-planned-parenthood.html
-
-**All-Star Jacob Wilson, an AL Rookie of the Year candidate, lands on IL**\
-`Wilson was hit in the left arm with a pitch on July 8 and had only four hits in 38 at-bats since then.`\
-https://nytimes.com/athletic/6523693/2025/07/29/jacob-wilson-athletics-broken-forearm-rookie-of-the-year/
 

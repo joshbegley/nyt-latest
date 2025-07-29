@@ -1,3 +1,11 @@
+**Packers training camp: Matt LaFleur snaps, Matthew Golden shines and 8 more observations**\
+`LaFleur made his starting left tackle take a lap at the end of practice and six teammates joined Walker for his punishment.`\
+https://nytimes.com/athletic/6523725/2025/07/29/packers-training-camp-matt-lafleur-matthew-golden/
+
+**NFL temporarily closes NYC office after high-rise shooting injures employee**\
+`New York Mayor Eric Adams said there's “reason to believe” the gunman targetted the NFL, which he accused of hiding football's health risks.`\
+https://nytimes.com/athletic/6523873/2025/07/29/nfl-closing-nyc-headquarters-shooting-aftermath/
+
 **Trump Admits Financial Penalties on Russia ‘May or May Not’ Work**\
 `President Trump’s threats have raised questions about how much leverage the United States has left with Moscow.`\
 https://nytimes.com/2025/07/29/us/politics/trump-sanctions-ukraine-russia.html

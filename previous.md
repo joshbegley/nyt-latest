@@ -2,6 +2,14 @@
 `Our experts have spent hundreds of hours testing tools and supplies to help you survive earthquakes, wildfires, floods, hurricanes, and much more.`\
 https://nytimes.com/wirecutter/reviews/emergency-preparedness-kit-builder/
 
+**Packers training camp: Matt LaFleur snaps, Matthew Golden shines and 8 more observations**\
+`LaFleur made his starting left tackle take a lap at the end of practice and six teammates joined Walker for his punishment.`\
+https://nytimes.com/athletic/6523725/2025/07/29/packers-training-camp-matt-lafleur-matthew-golden/
+
+**NFL temporarily closes NYC office after high-rise shooting injures employee**\
+`New York Mayor Eric Adams said there's “reason to believe” the gunman targetted the NFL, which he accused of hiding football's health risks.`\
+https://nytimes.com/athletic/6523873/2025/07/29/nfl-closing-nyc-headquarters-shooting-aftermath/
+
 **Trump Admits Financial Penalties on Russia ‘May or May Not’ Work**\
 `President Trump’s threats have raised questions about how much leverage the United States has left with Moscow.`\
 https://nytimes.com/2025/07/29/us/politics/trump-sanctions-ukraine-russia.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/07/29/us/politics/abortion-lawsuit-trump-planned-parent
 **All-Star Jacob Wilson, an AL Rookie of the Year candidate, lands on IL**\
 `Wilson was hit in the left arm with a pitch on July 8 and had only four hits in 38 at-bats since then.`\
 https://nytimes.com/athletic/6523693/2025/07/29/jacob-wilson-athletics-broken-forearm-rookie-of-the-year/
-
-**Notre Dame AD '100 percent committed' to USC series, favors '5+11' CFP model**\
-`Pete Bevacqua's stance put him in line with the ACC and Big 12, along with the movement within the SEC for a 5+11 model.`\
-https://nytimes.com/athletic/6523800/2025/07/29/notre-dame-usc-football-series-pete-bevacqua/
-
-**Katy Perry and Justin Trudeau Get a Table for 2, Inviting a Serving of Speculation**\
-`The former Canadian prime minister had dinner on Monday night with the newly single American pop star in Montreal, spurring intrigue over how they ended up meeting.`\
-https://nytimes.com/2025/07/29/world/canada/katy-perry-justin-trudeau-dinner.html
 
