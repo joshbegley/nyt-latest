@@ -1,40 +1,40 @@
-**TAFC: Newcastle's transfer headache – what now? Plus: Why Sesko is stuck at Leipzig**\
-`Isak's future is in doubt, targets are picking other clubs and uncertainty hangs over the stadium. Eddie Howe's side need a boost`\
-https://nytimes.com/athletic/6522161/2025/07/29/newcastle-isak-sesko-tafc-2/
+**Flyers fan survey: What do you think of Briere, Tocchet, Michkov and more?**\
+`After an eventful offseason, let us know what you think about where the Flyers are headed.`\
+https://nytimes.com/athletic/6521324/2025/07/29/flyers-briere-tocchet-michkov/
 
-**Russian Strike on Prison Kills 16, Ukraine Says**\
-`The attack, which came just hours after President Trump gave the Kremlin a new deadline to work toward ending the war, was part of a wave across the country, the authorities said.`\
-https://nytimes.com/2025/07/29/world/europe/ukraine-russia-trump.html
+**How a 'metamorphosis' turned Ryker Lee into one of the NHL's most gifted prospects**\
+`Lee, who was taken 26th in the 2025 NHL Draft by Nashville, now has the height to pair with his elite hands.`\
+https://nytimes.com/athletic/6517345/2025/07/29/ryker-lee-usa-michigan-state-predators/
 
-**Phillies notes: A close encounter with a potential trade target, plus OF, bullpen thoughts**\
-`It's easy to identify the flaws: a missing swing-and-miss reliever and a righty power bat. Securing them will require sacrifices.`\
-https://nytimes.com/athletic/6521790/2025/07/29/phillies-notes-potential-trade-target-outfield-bullpen/
+**A key piece in Cardinals bullpen, Phil Maton is prepared to be traded at deadline**\
+`The Cardinals clubhouse has lauded Maton all year, with veterans admiring his demeanor on the mound.`\
+https://nytimes.com/athletic/6521415/2025/07/29/cardinals-bullpen-phil-maton-trade-deadline/
 
-**"This new league would create confusion": EuroLeague CEO on NBA, expansion, NCAA and more**\
-`"Why not sit down and see how we go and make decisions together, rather than just creating a new league and for them to start over?"`\
-https://nytimes.com/athletic/6520070/2025/07/29/euroleague-nba-paulius-motiejunas-dubai/
+**What we learned at Big Ten media days: SEC barbs, Penn State hype and more**\
+`It was an eventful three days in Las Vegas for the league, as coaches made headlines and the CFP discourse loomed.`\
+https://nytimes.com/athletic/6520580/2025/07/29/big-ten-media-days-highlights/
 
-**Ex-Viking Jared Allen's Hall of Fame nod punctuates a career defined by maturation**\
-`Previously a wild man both on and off the field, the Canton-bound Allen flourished with the Vikings when he grew up emotionally. `\
-https://nytimes.com/athletic/6520018/2025/07/29/jared-allen-pro-football-hall-of-fame-vikings/
+**Rangers' long-awaited win streak has arrived, just when they needed it**\
+`Just when it looked like Texas might be tempted to break up a roster that won a title in 2023, the Rangers turned things around.`\
+https://nytimes.com/athletic/6521745/2025/07/29/rangers-win-streak-trade-deadline/
 
-**What will become of MAC upsets in college football's revenue-sharing era?**\
-`With so many advantages, Power 4 programs have no excuses for losing to a team from the MAC. That will be truer than ever this year.`\
-https://nytimes.com/athletic/6520982/2025/07/29/college-football-mac-conference-upsets/
+**Blue Jays’ trade deadline needs: Obvious targets, overlooked gems**\
+`The easiest place for a splashy addition is the back of the bullpen. Leverage relief options are plentiful, and Toronto is in need.`\
+https://nytimes.com/athletic/6521691/2025/07/29/blue-jays-trade-deadline-needs-obvious-targets-overlooked-gems/
 
-**Kaleb Johnson and 10 others to watch as the Steelers put on pads**\
-`We should learn a lot more about Johnson, the offensive line and first-round rookie Derrick Harmon when the pads come on Tuesday.`\
-https://nytimes.com/athletic/6521229/2025/07/29/steelers-training-camp-pads-kaleb-johnson/
+**How masked veteran Tiffany Hayes has breathed life into the Valkyries' inaugural season**\
+`Mask on, motor humming. The WNBA veteran isn't slowing down as she guides Golden State. `\
+https://nytimes.com/athletic/6514677/2025/07/29/tiffany-hayes-golden-state-valkyries-wnba/
 
-**The Lakers are about to get the best version of Luka Dončić. But first he's committed to himself**\
-`The body, the publicity, the determined look in his eyes, the sweat reflecting the spotlights, it’s all part of Dončić’'s bigger plan.`\
-https://nytimes.com/athletic/6521715/2025/07/29/luka-doncic-lakers-commitment-nba/
+**Who are the most important transfer portal additions for every Power 4 team?**\
+`Recruiting is still vitally important, but every team (yes, even Clemson!) needs to plug some holes via the transfer portal each offseason.`\
+https://nytimes.com/athletic/6508606/2025/07/29/power-4-transfer-portal-additions-2025/
 
-**Could the Reds add to their bullpen by adding to their rotation?**\
-`If the Reds add to the back of their rotation, Nick Martinez or Chase Burns could help fortify the bullpen.`\
-https://nytimes.com/athletic/6521587/2025/07/29/reds-trade-deadline-bullpen-pitching-rotation/
+**Colts' Charvarius Ward opens up on 49ers exit: 'Mentally, I was somewhere off the grid'**\
+`Beyond the heartbreak of losing his daughter, Ward entered his last season in San Francisco bitter about not getting a contract extension.`\
+https://nytimes.com/athletic/6519458/2025/07/29/colts-49ers-charvarius-ward-training-camp/
 
-**As Ravens work on cadence, they'll live with some penalties now to avoid them later**\
-`Limiting pre-snap penalties has been deemed a priority this season for Baltimore and its offense. `\
-https://nytimes.com/athletic/6521304/2025/07/29/baltimore-ravens-training-camp-penalties/
+**NHL’s 10 best contracts, 2025 edition: Jack Hughes, Brandon Hagel and more**\
+`According to each player’s projected value over the remainder of their deals, these are the league’s 10 best contracts.`\
+https://nytimes.com/athletic/6513956/2025/07/29/nhl-best-contracts-2025-jack-hughes-brandon-hagel/
 
