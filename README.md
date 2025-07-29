@@ -1,4 +1,4 @@
-**Rosenthal: What I'm hearing about the Guardians' revamped trade plans, plus more deadline notes**\
+**Rosenthal: What I'm hearing about Guardians' revamped trade plans, plus more deadline notes**\
 `Steven Kwan is one Guardians player whose trade availability could be impacted by Emmanuel Clase's non-disciplinary leave.`\
 https://nytimes.com/athletic/6521551/2025/07/28/mlb-trade-deadline-guardians-clase-brewers/
 
