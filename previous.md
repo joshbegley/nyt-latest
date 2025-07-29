@@ -1,3 +1,7 @@
+**U.K. Could Recognize Palestinian Statehood in September**\
+`Prime Minister Keir Starmer announced that he would recognize the state of Palestine in September if Israel does not agree to a cease-fire with Hamas.`\
+https://nytimes.com/video/world/middleeast/100000010311709/uk-could-recognize-palestinian-statehood-in-september.html
+
 **Five key Red Sox trade deadline questions: Jaren Duran, Yandy Diaz and more**\
 `Craig Breslow has maintained that the Red Sox will add at the deadline. How would that look? `\
 https://nytimes.com/athletic/6522837/2025/07/29/red-sox-mlb-trade-deadline-questions-targets/
@@ -19,7 +23,7 @@ https://nytimes.com/live/2025/07/29/nyregion/nyc-shooting-manhattan/the-gunmans-
 https://nytimes.com/athletic/6522699/2025/07/29/dodgers-mlb-trade-deadline-questions/
 
 **Browns owner Jimmy Haslam says there's no panic following disappointing 2024 season**\
-`In his annual late-July meeting with the media on Tuesday, Cleveland Browns owner Jimmy Haslam was clear that he expects better than the 3-14 season produced in 2024.`\
+`"We've got to do better," Haslam said. "I think we will know what better looks like."`\
 https://nytimes.com/athletic/6523164/2025/07/29/cleveland-browns-owner-jimmy-haslam/
 
 **In Violent Attack, Gunman Brings Issue of C.T.E. to N.F.L.’s Door**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6523120/2025/07/29/bills-maxwell-hairston-suffers-i
 **We Just Updated Our Washington, D.C. Dining Guide**\
 `Inventive spots for Mexican and Japanese American cuisine join the list, and we bid a fond farewell to a D.C. favorite closing at the end of year.`\
 https://nytimes.com/2025/07/29/dining/where-to-eat-dc.html
-
-**How the E.U. Wooed Trump With Flashy but Flimsy Numbers**\
-`The Trump administration has been talking up provisions of its deal with the European Union that would secure hundreds of billions of dollars in investments.`\
-https://nytimes.com/2025/07/29/world/europe/europe-us-trade-deal-investments.html
 
