@@ -1,5 +1,9 @@
 **Officer Killed and 2 Others Are Shot at Park Avenue Office Tower**\
 `The gunman was dead, the police said, and the building was in lockdown Monday evening.`\
+https://nytimes.com/live/2025/07/28/nyregion/nyc-shooting
+
+**Officer Killed and 2 Others Are Shot at Park Avenue Office Tower**\
+`The gunman was dead, the police said, and the building was in lockdown Monday evening.`\
 https://nytimes.com/2025/07/28/nyregion/nyc-shooting-blackstone-midtown.html
 
 **Ex-President Álvaro Uribe of Colombia Is Convicted of Bribery**\
