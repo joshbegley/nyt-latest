@@ -1,3 +1,7 @@
+**Gunman Fatally Shoots Officer and 3 Others in Midtown Office Tower**\
+`The gunman, armed with an assault rifle, walked into the lobby and killed a police officer and two others. He killed another person on the 33rd floor before turning his gun on himself.`\
+https://nytimes.com/2025/07/29/nyregion/officer-killing-midtown-shooting.html
+
 **Word of the Day: mystify**\
 `This word has appeared in six articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2025/07/29/learning/word-of-the-day-mystify.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/29/opinion/putin-russia-negotiations-ukraine.html
 **The New York Times in Print for Tuesday, July 29, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/07/29/todays-new-york-times
-
-**After a fifth consecutive loss, Astros' Framber Valdez questions defensive positioning**\
-`Common sense, in Valdez’s words, is that left-handed hitters do not hit fly balls against him. `\
-https://nytimes.com/athletic/6521819/2025/07/29/houston-astros-framber-valdez-defensive-positioning/
 
