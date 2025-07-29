@@ -2,6 +2,14 @@
 `Our experts have spent hundreds of hours testing tools and supplies to help you survive earthquakes, wildfires, floods, hurricanes, and much more.`\
 https://nytimes.com/wirecutter/reviews/emergency-preparedness-kit-builder/
 
+**Trump Admits Financial Penalties on Russia ‘May or May Not’ Work**\
+`President Trump’s threats have raised questions about how much leverage the United States has left with Moscow.`\
+https://nytimes.com/2025/07/29/us/politics/trump-sanctions-ukraine-russia.html
+
+**Bengals' Trey Hendrickson to join training camp amid ongoing contract negotiations**\
+`Hendrickson is traveling from Jacksonville to Cincinnati to join the Bengals and continue contract negotiations on a long-term deal.`\
+https://nytimes.com/athletic/6523843/2025/07/29/bengals-trey-hendrickson-to-join-training-camp-amid-ongoing-contract-negotiations/
+
 **Real Estate Associate Killed in Park Avenue Shooting Recalled for Her ‘Light’**\
 `Julia Hyman, 27, was working late when the gunman fired into the office where she worked, which, it appears, was not his intended target.`\
 https://nytimes.com/2025/07/29/nyregion/julia-hyman-cornell-nyc-shooting-victim.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6523800/2025/07/29/notre-dame-usc-football-series-p
 **Katy Perry and Justin Trudeau Get a Table for 2, Inviting a Serving of Speculation**\
 `The former Canadian prime minister had dinner on Monday night with the newly single American pop star in Montreal, spurring intrigue over how they ended up meeting.`\
 https://nytimes.com/2025/07/29/world/canada/katy-perry-justin-trudeau-dinner.html
-
-**Trinity Rodman details the pain that kept her out of action as return nears**\
-`Rodman, 23, who stepped away from the Spirit in April, resumed training with the team earlier this month and could play this weekend.`\
-https://nytimes.com/athletic/6523779/2025/07/29/uswnt-trinity-rodman-speaks-spirit-return/
-
-**A Fallen Officer’s Flag-Wrapped Body Makes a Somber Journey to a Mosque**\
-`The “dignified transfer” is a New York Police Department rite. Its choreography honors those who died for their fellow citizens.`\
-https://nytimes.com/2025/07/29/nyregion/police-department-transfer-didarul-islam.html
 
