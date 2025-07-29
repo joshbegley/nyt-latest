@@ -1,3 +1,15 @@
+**Craig Counsell and the Cubs honor Ryne Sandberg in solemn postgame clubhouse**\
+`"We're grateful that he was willing to spend time with us when things weren't going great for him. It's a sad day for the Chicago Cubs."`\
+https://nytimes.com/athletic/6521804/2025/07/29/cubs-honor-ryne-sandberg-craig-counsell/
+
+**Putin Wants Something He Can’t Get**\
+`The legitimacy he seeks is impossible without recognition from the West.`\
+https://nytimes.com/2025/07/29/opinion/putin-russia-negotiations-ukraine.html
+
+**The New York Times in Print for Tuesday, July 29, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/07/29/todays-new-york-times
+
 **After a fifth consecutive loss, Astros' Framber Valdez questions defensive positioning**\
 `Common sense, in Valdez’s words, is that left-handed hitters do not hit fly balls against him. `\
 https://nytimes.com/athletic/6521819/2025/07/29/houston-astros-framber-valdez-defensive-positioning/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6520277/2025/07/29/liverpool-afford-alexander-isak-
 **Why are football's player unions so powerless compared with U.S. sports?**\
 `Collective bargaining is a key part of American sports, yet in football, the fragmented nature of the sport makes it hard to unionise.`\
 https://nytimes.com/athletic/6512013/2025/07/29/football-unions-influence-fifpro/
-
-**Why Ter Stegen posting the words 'three months' has Barcelona board members questioning his captaincy**\
-`The goalkeeper predicted the timeframe of his recovery from back surgery and it has not gone down well with some executives at the club`\
-https://nytimes.com/athletic/6520501/2025/07/29/ter-stegen-injury-statement-barcelona-register-garcia/
-
-**Will Sean Longstaff keep playing cricket after joining Leeds? He already has one offer**\
-`There was a time when footballers played cricket – and vice-versa. Will Longstaff be allowed to do the same having signed for Leeds?`\
-https://nytimes.com/athletic/6516879/2025/07/29/sean-longstaff-leeds-newcastle-cricket/
-
-**Five tactical themes that defined Women's Euro 2025: More systemised, less individualistic**\
-`It was impossible to watch this Euros and not marvel at how far the women’s game has come - it’s exactly what top-level football should be`\
-https://nytimes.com/athletic/6519809/2025/07/29/euro-2025-england-spain-final-bonmati/
 
