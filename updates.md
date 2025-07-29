@@ -1,3 +1,15 @@
+**The Transfer DealSheet: The latest on your club and their plans this summer window**\
+`Welcome to the ninth edition of The Athletic’s Transfer DealSheet for the summer 2025 transfer window`\
+https://nytimes.com/athletic/6519720/2025/07/29/manchester-united-transfer-latest-arsenal-liverpool-real-madrid-analysis/
+
+**Gunman Opens Fire in New York Skyscraper**\
+`Police and paramedics rushed to 345 Park Avenue in Midtown Manhattan, where the gunman, armed with an M4 rifle, fatally shot four people and critically wounded another.`\
+https://nytimes.com/video/nyregion/100000010310748/nyc-shooting-park-avenue.html
+
+**Manchester United explore Watkins and Sesko after narrowing striker search**\
+`Manchester United believe a deal for Watkins could be done for £40m to £45m, while Sesko is likely to be around £69m to £78m`\
+https://nytimes.com/athletic/6521471/2025/07/29/manchester-united-watkins-sesko-transfer/
+
 **What We Know About the Shooting in Midtown Manhattan**\
 `Four people were killed, including an off-duty New York City police officer, when a gunman opened fire in an office tower before fatally shooting himself, officials said.`\
 https://nytimes.com/2025/07/29/nyregion/nyc-shooting-midtown-gunman-victims.html
