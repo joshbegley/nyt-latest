@@ -1,3 +1,7 @@
+**Five key Dodgers trade deadline questions: Can they land a reliever and a bat?**\
+`With trade chatter heating up, readers asked about Steven Kwan, "prospect hugging" and Farhan Zaidi's role.`\
+https://nytimes.com/athletic/6522699/2025/07/29/dodgers-mlb-trade-deadline-questions/
+
 **Browns owner Jimmy Haslam says there's no panic following disappointing 2024 season**\
 `In his annual late-July meeting with reporters on Tuesday, Cleveland Browns owner Jimmy Haslam was clear that he expects better than the 3-14 season produced in 2024.`\
 https://nytimes.com/athletic/6523164/2025/07/29/cleveland-browns-owner-jimmy-haslam/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/29/us/politics/nsa-lawyer-fired.html
 **NASA’s Next Mission Will Launch From India. Here’s How to Watch.**\
 `A new Earth-observing satellite, built by NASA and India’s space agency, will be sent into orbit on Wednesday.`\
 https://nytimes.com/2025/07/29/science/nisar-nasa-india.html
-
-**Lions scrimmage notes: Aidan Hutchinson impresses, Brian Branch excels**\
-`What and who else stood out from Tuesday's Lions scrimmage?`\
-https://nytimes.com/athletic/6522815/2025/07/29/detroit-lions-training-camp-scrimmage-aidan-hutchinson/
 

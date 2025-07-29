@@ -1,3 +1,11 @@
+**Browns owner Jimmy Haslam says there's no panic following disappointing 2024 season**\
+`In his annual late-July meeting with reporters on Tuesday, Cleveland Browns owner Jimmy Haslam was clear that he expects better than the 3-14 season produced in 2024.`\
+https://nytimes.com/athletic/6523164/2025/07/29/cleveland-browns-owner-jimmy-haslam/
+
+**In Violent Attack, Gunman Brings Issue of C.T.E. to N.F.L.’s Door**\
+`Shane Tamura never played in the league, but the police believe he was seeking vengeance over the handling of head injuries in football.`\
+https://nytimes.com/2025/07/29/us/nyc-shooting-gunman-nfl-cte.html
+
 **Bills' Maxwell Hairston suffers non-contact knee injury at training camp**\
 `Hairston's injury occurred during a pass-rush drill Tuesday morning at training camp.`\
 https://nytimes.com/athletic/6523120/2025/07/29/bills-maxwell-hairston-suffers-injury-training-camp/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/07/29/science/nisar-nasa-india.html
 **Lions scrimmage notes: Aidan Hutchinson impresses, Brian Branch excels**\
 `What and who else stood out from Tuesday's Lions scrimmage?`\
 https://nytimes.com/athletic/6522815/2025/07/29/detroit-lions-training-camp-scrimmage-aidan-hutchinson/
-
-**What is CTE? Explaining the disease referenced by New York gunman at NFL HQ building**\
-`The brain disease has most commonly been found in athletes in contact sports and others with a history of repeated brain trauma.`\
-https://nytimes.com/athletic/6522641/2025/07/29/nfl-new-york-shooting-cte/
-
-**Five Under-the-Radar European Beach Hotels**\
-`The usual hot spots are teeming with tourists this summer. Here are some unexpected alternatives — in Spain, Greece, France, Italy and England — where you can pair some serenity with your sea views.`\
-https://nytimes.com/2025/07/29/t-magazine/spain-greece-italy-france-beach-hotels.html
 

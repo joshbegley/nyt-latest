@@ -1,3 +1,11 @@
+**Browns owner Jimmy Haslam says there's no panic following disappointing 2024 season**\
+`In his annual late-July meeting with reporters on Tuesday, Cleveland Browns owner Jimmy Haslam was clear that he expects better than the 3-14 season produced in 2024.`\
+https://nytimes.com/athletic/6523164/2025/07/29/cleveland-browns-owner-jimmy-haslam/
+
+**In Violent Attack, Gunman Brings Issue of C.T.E. to N.F.L.’s Door**\
+`Shane Tamura never played in the league, but the police believe he was seeking vengeance over the handling of head injuries in football.`\
+https://nytimes.com/2025/07/29/us/nyc-shooting-gunman-nfl-cte.html
+
 **Bills' Maxwell Hairston suffers non-contact knee injury at training camp**\
 `Hairston's injury occurred during a pass-rush drill Tuesday morning at training camp.`\
 https://nytimes.com/athletic/6523120/2025/07/29/bills-maxwell-hairston-suffers-injury-training-camp/
