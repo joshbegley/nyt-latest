@@ -1,3 +1,19 @@
+**Grassley, a Champion of Whistle-Blowers, Spurns Them in Fight Over Bove**\
+`The senator’s treatment of whistle-blowers detailing allegations against Emil Bove, the Trump loyalist and appeals court nominee, has had a chilling effect, critics say.`\
+https://nytimes.com/2025/07/29/us/politics/grassley-whistle-blowers-emil-bove.html
+
+**Democrats Clash on Senate Floor Over Policing Bills and How to Take On Trump**\
+`When a pair of Democrats sought to win quick approval of a bipartisan package of policing legislation, a third rose to object, saying the party must take every opportunity to challenge President Trump.`\
+https://nytimes.com/2025/07/29/us/politics/cory-booker-democrats-trump-senate.html
+
+**Trade analysis: Orioles fare well in adding Juaron Watts-Brown for Seranthony Domínguez**\
+`The Orioles weren't going to miss Domínguez, who is a free agent after the season, so acquiring a real prospect for him is a win.`\
+https://nytimes.com/athletic/6523774/2025/07/29/orioles-blue-jays-juaron-watts-brown-seranthony-dominguez-trade-analysis/
+
+**N.Y.C. Mass Shooting Was Nearly Impossible to Prevent, Experts Say**\
+`New York City has some of the toughest gun laws in the nation. But Monday’s mass shooting showed their limits, security experts said.`\
+https://nytimes.com/2025/07/29/nyregion/new-york-gun-laws-shooting.html
+
 **University of California Settles With Jewish Students Over U.C.L.A. Protests**\
 `Jewish students and a professor said the university had allowed a hostile protest. After the settlement was announced, the Department of Justice separately said it had found the university violated civil rights laws.`\
 https://nytimes.com/2025/07/29/us/ucla-jewish-students-settlement.html
