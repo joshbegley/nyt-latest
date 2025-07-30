@@ -1,3 +1,15 @@
+**Brennan and Clapper: Let’s Set the Record Straight on Russia and 2016**\
+`We want to set the record straight and also sound a warning.`\
+https://nytimes.com/2025/07/30/opinion/trump-obama-treason-russia-miller.html
+
+**Texas Republicans Unveil Gerrymandered House Map, Trying to Please Trump**\
+`The proposed map would give Republicans a chance to gain five U.S. House seats, including in Houston, Dallas and along the U.S.-Mexican border.`\
+https://nytimes.com/2025/07/30/us/politics/texas-republican-redistricting.html
+
+**A Carlos Correa return to Houston via trade with Twins seems unlikely — for now: Sources**\
+`The Twins are enamored with Correa but the team’s financial picture has changed drastically. `\
+https://nytimes.com/athletic/6525312/2025/07/30/carlos-correa-astros-twin-trade-potential/
+
 **Canada’s Measles Outbreak Exceeds Cases in the U.S.**\
 `Some doctors in Alberta have criticized officials for not declaring a health emergency in the western province where measles infections are surging.`\
 https://nytimes.com/2025/07/30/world/canada/canada-alberta-measles-outbreak.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6525298/2025/07/30/max-scherzer-manfred-bryce-harpe
 **Did We Miss the Happy Ending in ‘Hamlet’?**\
 `Responding to a guest essay, readers offer different ways to view “Hamlet.”`\
 https://nytimes.com/2025/07/30/opinion/hamlet-william-shakespeare.html
-
-**Who Pays in Trump’s Trade War?**\
-`Whether tariffs drive up prices could have significant implications for the Federal Reserve.`\
-https://nytimes.com/2025/07/30/business/trade-tariffs-who-pays.html
-
-**Mamdani Returns From Uganda and Visits Slain Officer’s Family**\
-`Zohran Mamdani, the Democratic candidate for mayor of New York City, visited the home of a police officer who was killed in a mass shooting in Midtown Manhattan on Monday.`\
-https://nytimes.com/2025/07/30/nyregion/mamdani-uganda-return-officer.html
-
-**Are Manchester United right to pick Benjamin Sesko as their main striker target?**\
-`Exploring why Manchester United have identified Benjamin Sesko as their No 1 striker target`\
-https://nytimes.com/athletic/6521070/2025/07/30/manchester-united-sesko-watkins/
 
