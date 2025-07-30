@@ -10,7 +10,7 @@ https://nytimes.com/2025/07/30/opinion/autism-adhd-diagnosis-creep.html
 `Kamala Harris, the former vice president, announced that she has decided not to run for California’s top office.`\
 https://nytimes.com/2025/07/30/us/politics/harris-california-governor-race.html
 
-**Reds to acquire Ke'Bryan Hayes from Pirates to improve infield for prospect Stafura, Rogers**\
+**Reds to acquire Ke'Bryan Hayes from Pirates to improve infield for prospect Stafura, Rogers: Source**\
 `Adding Hayes allows Noelvi Marte to go the outfield while also boosting the team’s infield defense.`\
 https://nytimes.com/athletic/6502298/2025/07/30/mlb-cincinnati-reds-kebryan-hayes-trade/
 
