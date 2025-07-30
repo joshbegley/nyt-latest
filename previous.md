@@ -1,5 +1,5 @@
 **Russia’s Far East Suffers Damage From Earthquake and Tsunami**\
-`Regional authorities in Sakhalin Oblast declared an emergency after a tsunami hit the Kuril Islands, and Kamchatka Oblast was watching for volcanic activity.`\
+`Regional authorities in Sakhalin Oblast declared an emergency after a tsunami hit the Kuril Islands, and Kamchatka Krai was watching for volcanic activity.`\
 https://nytimes.com/2025/07/30/world/asia/russias-far-east-suffers-damage-from-earthquake-and-tsunami.html
 
 **What Is the Pacific ‘Ring of Fire’?**\
