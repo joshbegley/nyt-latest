@@ -1,3 +1,7 @@
+**Powerful Quake Rattles Russia’s Far East but Causes Little Damage**\
+`A 8.8-magnitude earthquake shook the remote, sparsely populated Kamchatka region and set off tsunami waves. No serious injuries were reported, officials said.`\
+https://nytimes.com/2025/07/30/world/europe/russia-earthquake-kamchatka.html
+
 **Think You Know Sunscreen? Take Our Quiz.**\
 `Find out if you’re an S.P.F. savant.`\
 https://nytimes.com/2025/07/30/well/sunscreen-quiz.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6524874/2025/07/30/nba-international-game-schedule-
 **How Churches May Be Able to Endorse Political Candidates**\
 `The I.R.S. said that churches could endorse candidates from the pulpit, a change in a longstanding interpretation of American nonprofit law. Elizabeth Dias, the national religion correspondent for The New York Times, describes how and why it happened.`\
 https://nytimes.com/video/us/politics/100000010298662/how-churches-may-be-able-to-endorse-political-candidates.html
-
-**Your Zucchini Wants to Be This Lemony Bundt Cake**\
-`The thing I love about Yossy Arefi’s recipe is the double lemon glaze, which gives it a little sparkly crunch.`\
-https://nytimes.com/2025/07/30/dining/easy-zucchini-bundt-cake-with-lemon-recipe.html
 
