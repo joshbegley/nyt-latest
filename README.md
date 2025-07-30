@@ -1,3 +1,31 @@
+**Why Chelsea want Jorrel Hato - the teenager with experience beyond his years**\
+`Chelsea are on the verge of agreeing a deal with Ajax for Jorrel Hato worth in excess of €40million (£34.8m; $46.7m)`\
+https://nytimes.com/athletic/6522286/2025/07/30/chelsea-jorrel-hato-analysis/
+
+**Reno Shooting Shatters Lives at a Bachelor Party**\
+`The police said that a gunman had shot randomly at a group that was preparing to head home to California after a bachelor party weekend. Three people died in the shooting, and three others were injured.`\
+https://nytimes.com/2025/07/30/us/reno-casino-shooting-bachelor-party.html
+
+**The 10 players to keep an eye on over the rest of the transfer window**\
+`Over halfway to deadline day on September 1, several more high-profile moves are still on the cards this summer`\
+https://nytimes.com/athletic/6522769/2025/07/30/transfers-to-watch-players-transfer-window/
+
+**Quote of the Day: Fear of ICE Jolts a Beach Town Reliant on Foreign Labor**\
+`Quotation of the Day for Wednesday, July 30, 2025.`\
+https://nytimes.com/2025/07/30/pageoneplus/quote-of-the-day-fear-of-ice-jolts-a-beach-town-reliant-on-foreign-labor.html
+
+**Connections: Sports Edition Coach: Hints for July 30, 2025**\
+`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
+https://nytimes.com/athletic/6521369/2025/07/30/connections-sports-edition-hints-for-july-30-2025/
+
+**How a Chinese Brand Reshaped Hong Kong’s Food Delivery Scene**\
+`Meituan, the Chinese food delivery giant, tested its global expansion in Hong Kong, where its Keeta service displaced a rival before moving to other markets.`\
+https://nytimes.com/2025/07/30/business/meituan-keeta-deliveroo-hong-kong.html
+
+**Editors’ Note: July 30, 2025**\
+`The following Editors’ Note and corrections appeared in print on Wednesday, July 30, 2025.`\
+https://nytimes.com/2025/07/30/pageoneplus/editors-note-july-30-2025.html
+
 **The Dodgers need to trade for a reliever. One they already acquired is showing promise**\
 `The Dodgers acquired Alexis Díaz in May and have already seem some tweaks to his delivery pay off.`\
 https://nytimes.com/athletic/6524254/2025/07/29/dodgers-trade-reliever-alexis-diaz/
@@ -9,32 +37,4 @@ https://nytimes.com/2025/07/29/us/politics/trump-prosecutor-wiederhorn-kirk.html
 **Wednesday’s Earthquake Could Be One of the Largest on Record**\
 `It is the most powerful quake since the 2011 earthquake off the coast of Japan that triggered a 50-foot tsunami and the nuclear disaster at Fukushima.`\
 https://nytimes.com/2025/07/29/world/asia/earthquake-russia-record.html
-
-**What we're hearing about the Mets' pitching plans**\
-`The New York Mets are said to be actively shopping starting pitcher Paul Blackburn ahead of Thursday's trade deadline.`\
-https://nytimes.com/athletic/6524170/2025/07/29/mets-pitching-plans-trade-deadline-paul-blackburn/
-
-**Hawaii Declares Emergency After Massive Quake Off Russia Causes Tsunami**\
-`Gov. Josh Green urged people in coastal areas to seek higher ground, with waves expected to reach the state within hours. “Do not wait,” he said.`\
-https://nytimes.com/2025/07/29/us/hawaii-tsunami-emergency-earthquake.html
-
-**Mets star Juan Soto leaves game after fouling ball off foot**\
-`Soto completed his at-bat but did not come out to play defense and was replaced by Tyrone Taylor.`\
-https://nytimes.com/athletic/6524211/2025/07/29/mets-juan-soto-leaves-game-foot/
-
-**Coco Gauff overcomes serve struggles to win first match since French Open**\
-`Gauff beat Danielle Collins in the first round of the Canadian Open despite 23 double faults.`\
-https://nytimes.com/athletic/6524178/2025/07/29/coco-gauff-wins-first-match-since-french-open/
-
-**Top F.D.A. Official Resigns Under Pressure**\
-`After turning down several new drugs and restricting use of another, Dr. Vinay Prasad drew the ire of the right-wing influencer Laura Loomer and others.`\
-https://nytimes.com/2025/07/29/health/vinay-prasad-fda-resigns-loomer.html
-
-**What I'm hearing about the Cardinals' trade deadline with less than 48 hours to go**\
-`Steven Matz has thrived as a late-inning reliever for St. Louis, but opposing clubs eye him as a swingman option.`\
-https://nytimes.com/athletic/6523845/2025/07/29/cardinals-mlb-trade-deadline-relievers/
-
-**Gently Apply**\
-`Thomas Byrne and Daniel Bodily make their collaboration debut in The New York Times.`\
-https://nytimes.com/2025/07/29/crosswords/daily-puzzle-2025-07-30.html
 
