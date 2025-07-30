@@ -1,3 +1,7 @@
+**Candidate Trump Promised Oil Executives a Windfall. Now, They’re Getting It.**\
+`New tallies of the administration’s tax breaks and other incentives add up to tens of billions of dollars of benefits to the fossil fuel industry.`\
+https://nytimes.com/2025/07/30/climate/trumnp-campaign-funding-oil-industry-tax-breaks.html
+
 **Tiny Love Stories: ‘He Watched My Father’s Feet’**\
 `Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
 https://nytimes.com/2025/07/30/style/tiny-modern-love-stories-he-watched-my-fathers-feet.html
