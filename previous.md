@@ -1,3 +1,7 @@
+**Hawaii Declares Emergency After Massive Quake Off Russia Causes Tsunami**\
+`Gov. Josh Green urged people in coastal areas to seek higher ground, with waves expected to reach the state within hours. “Do not wait,” he said.`\
+https://nytimes.com/2025/07/29/us/hawaii-tsunami-emergency-earthquake.html
+
 **Mets star Juan Soto leaves game after fouling ball off foot**\
 `Soto completed his at-bat but did not come out to play defense and was replaced by Tyrone Taylor.`\
 https://nytimes.com/athletic/6524211/2025/07/29/mets-juan-soto-leaves-game-foot/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6523974/2025/07/29/sf-giants-mlb-trade-deadline-que
 **Hug watch heard 'round the world: Jhoan Duran remains a Twin despite internet panic**\
 `Multiple Twins sources confirmed that Duran had not been traded, as many fans suspected: "He hugged Frank — like he always does."`\
 https://nytimes.com/athletic/6524059/2025/07/29/twins-fake-hugs-mlb-trade-deadline/
-
-**Colorado RB Charlie Offerdahl retires from football due to concussions**\
-`Offerdahl said he's applying to dental schools, joking that he looks forward to making his teammates' grilles and veneers in the future.`\
-https://nytimes.com/athletic/6524058/2025/07/29/colorado-rb-charlie-offerdahl-retires-concussions/
 

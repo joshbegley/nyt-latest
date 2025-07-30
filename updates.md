@@ -1,3 +1,7 @@
+**Hawaii Declares Emergency After Massive Quake Off Russia Causes Tsunami**\
+`Gov. Josh Green urged people in coastal areas to seek higher ground, with waves expected to reach the state within hours. “Do not wait,” he said.`\
+https://nytimes.com/2025/07/29/us/hawaii-tsunami-emergency-earthquake.html
+
 **Mets star Juan Soto leaves game after fouling ball off foot**\
 `Soto completed his at-bat but did not come out to play defense and was replaced by Tyrone Taylor.`\
 https://nytimes.com/athletic/6524211/2025/07/29/mets-juan-soto-leaves-game-foot/
