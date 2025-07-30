@@ -1,3 +1,7 @@
+**Gunman’s Mental Health History Did Not Prohibit Gun Purchase**\
+`The man who shot and killed four people in Manhattan had legally purchased a firearm in Nevada, where he lived, despite a record of mental health problems.`\
+https://nytimes.com/2025/07/29/nyregion/park-avenue-gunman-mental-health-history.html
+
 **Senate, Rejecting Whistle-Blower Alarms, Confirms Bove to Appeals Court**\
 `The Trump loyalist was narrowly approved as Republicans brushed aside concerns about his conduct as a senior Justice Department official.`\
 https://nytimes.com/2025/07/29/us/politics/emil-bove-confirmed-appeals-judge.html
@@ -7,8 +11,8 @@ https://nytimes.com/2025/07/29/us/politics/emil-bove-confirmed-appeals-judge.htm
 https://nytimes.com/2025/07/29/us/politics/trump-us-attorneys-california-nevada.html
 
 **Tsunami Alerts Issued for U.S. and Japan After Huge Pacific Quake**\
-`The 8.7-magnitude earthquake off Russia’s coast led to warnings and advisories for parts of Japan and Alaska. Russian officials were checking on schools and hospitals.`\
-https://nytimes.com/2025/07/29/us/japan-earthquake-tsunami-north-pacific-ocean.html
+`The 8.7-magnitude earthquake off Russia’s coast led to warnings and advisories for parts of Japan and Alaska. Officials in Hawaii told people to expect destructive waves.`\
+https://nytimes.com/2025/07/29/world/japan-earthquake-tsunami-north-pacific-ocean.html
 
 **Chargers offense looks sloppy in final practice before Hall of Fame Game**\
 `Trey Lance will start at quarterback and play into the third quarter of Thursday's Hall of Fame Game against the Lions. `\
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/29/us/politics/susan-monarez-cdc-director.html
 **Build Your Own Disaster-Prep Kit**\
 `Our experts have spent hundreds of hours testing tools and supplies to help you survive earthquakes, wildfires, floods, hurricanes, and much more.`\
 https://nytimes.com/wirecutter/reviews/emergency-preparedness-kit-builder/
-
-**Powerful 8.7-Magnitude Earthquake Off Russia’s Coast Prompts Tsunami Alerts**\
-`Monitor warnings and predicted arrival times for the ocean wave.`\
-https://nytimes.com/interactive/2025/07/29/world/asia/tsunami-tracker-alaska-russia.html
 

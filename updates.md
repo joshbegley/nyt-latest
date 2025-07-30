@@ -1,3 +1,11 @@
+**Gunman’s Mental Health History Did Not Prohibit Gun Purchase**\
+`The man who shot and killed four people in Manhattan had legally purchased a firearm in Nevada, where he lived, despite a record of mental health problems.`\
+https://nytimes.com/2025/07/29/nyregion/park-avenue-gunman-mental-health-history.html
+
+**Tsunami Alerts Issued for U.S. and Japan After Huge Pacific Quake**\
+`The 8.7-magnitude earthquake off Russia’s coast led to warnings and advisories for parts of Japan and Alaska. Officials in Hawaii told people to expect destructive waves.`\
+https://nytimes.com/2025/07/29/world/japan-earthquake-tsunami-north-pacific-ocean.html
+
 **Tsunami Alerts Issued for U.S. and Japan After Huge Pacific Quake**\
 `The 8.7-magnitude earthquake off Russia’s coast led to warnings and advisories for parts of Japan and Alaska. Russian officials were checking on schools and hospitals.`\
 https://nytimes.com/2025/07/29/us/japan-earthquake-tsunami-north-pacific-ocean.html
