@@ -1,3 +1,7 @@
+**Mexico City is out for NASCAR's 2026 schedule; Chicagoland likely in: Sources**\
+`NASCAR will go without an international race in 2026, as the logistics proved difficult. Chicagoland is poised to take Mexico City's spot.`\
+https://nytimes.com/athletic/6523588/2025/07/30/nascar-2026-schedule-mexico-city-chicagoland/
+
 **O'Connor: In honor of Curt Flood's legacy, MLB players should never allow a salary cap**\
 `Juan Soto's contract "would have blown my father's mind," said Shelly Flood, whose dad paved the way to free agency at great sacrifice.`\
 https://nytimes.com/athletic/6523710/2025/07/30/mlb-salary-cap-curt-flood-legacy-rob-manfred/
