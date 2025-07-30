@@ -1,3 +1,7 @@
+**Review: A Flamenco Powerhouse Is Still the Star but Not the Whole Show**\
+`Noche Flamenca’s new production was less focused than usual on its standout, Soledad Barrio, making room for talented soloists.`\
+https://nytimes.com/2025/07/30/arts/dance/review-soledad-barrio-noche-flamenca.html
+
 **Trump’s Mideast Envoy Heads to Israel Amid Global Fury Over Gaza Hunger**\
 `It will be the first known visit in months for Steve Witkoff, President Trump’s lead on the cease-fire and hostage talks. Since his last trip, conditions in the enclave have worsened.`\
 https://nytimes.com/2025/07/30/world/middleeast/trump-envoy-israel-gaza.html
@@ -33,8 +37,4 @@ https://nytimes.com/newsgraphics/card-story/aja-wilson-wnba-las-vegas
 **Team K League 1 Newcastle 0: Woe for Willock, another defeat, Park impresses**\
 `Newcastle's pre-season continues to be dominated by Alexander Isak speculation - and defeats. The latest coming in Suwon`\
 https://nytimes.com/athletic/6524960/2025/07/30/newcastle-defeat-tour-howe-willock-park/
-
-**Kounde says he has agreed Barcelona contract renewal until 2030**\
-`The deal would represent a three-year contract extension for the France international, whose current contract at Barca expires in 2027.`\
-https://nytimes.com/athletic/6524794/2025/07/30/jules-kounde-barcelona-contract/
 
