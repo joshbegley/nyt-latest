@@ -1,3 +1,11 @@
+**Gilbert Arenas arrested, charged with running illegal gambling business**\
+`Arenas ran an illegal gambling ring and hosted high-level poker games in his home, according to an indictment filed by federal prosecutors.`\
+https://nytimes.com/athletic/6525606/2025/07/30/gilbert-arenas-nba-arrest-illegal-gambling-business/
+
+**Cuts to Data Collection May Erode Reliability of Economic Statistics**\
+`The Bureau of Labor Statistics is reducing or ending the collection of data that is used to calculate the Consumer Price Index.`\
+https://nytimes.com/2025/07/30/business/cuts-to-data-collection-may-erode-reliability-of-economic-statistics.html
+
 **White House Urges ‘Pro-Innovation Mind-Set’ to Crypto in New Report**\
 `In a 168-page report, the White House called on banking regulators, tax officials and U.S. lawmakers to implement policies that would advance the crypto industry’s agenda.`\
 https://nytimes.com/2025/07/30/technology/white-house-crypto.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6502298/2025/07/30/mlb-cincinnati-reds-kebryan-haye
 **Bill Barring Stock Trading for Congress Advances With Trump Carveout**\
 `The bill passed the committee with the support of every Democrat and only one Republican, its sponsor, who modified it to shield President Trump from a divestment requirement.`\
 https://nytimes.com/2025/07/30/us/politics/senate-stock-trading-bill-congress-trump-carveout.html
-
-**Chelsea and Ajax reach agreement over signing of Jorrel Hato on seven-year deal**\
-`The Netherlands defender, 19, is set to move to Stamford Bridge after supervisory board approval.`\
-https://nytimes.com/athletic/6519667/2025/07/30/jorrel-hato-chelsea-transfer-news/
-
-**Brandt Tilis discusses Bryce Young's contract situation: It 'will get figured out'**\
-`Tilis worked on Patrick Mahomes' extension in KC. He's not making any promises at this point about how Young's situation plays out.`\
-https://nytimes.com/athletic/6525351/2025/07/30/panthers-bryce-young-contract-situation/
 
