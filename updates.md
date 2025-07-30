@@ -1,3 +1,19 @@
+**O'Connor: In honor of Curt Flood's legacy, MLB players should never allow a salary cap**\
+`Juan Soto's contract "would have blown my father's mind," said Shelly Flood, whose dad paved the way to free agency at great sacrifice.`\
+https://nytimes.com/athletic/6523710/2025/07/30/mlb-salary-cap-curt-flood-legacy-rob-manfred/
+
+**Rangers schedule analysis: Big matchups, reunions, travel tips for 2025-26**\
+`When will the Rangers face their toughest tests of the coming season? Where should you eat on the road? We break it all down.`\
+https://nytimes.com/athletic/6522747/2025/07/30/new-york-rangers-nhl-schedule-season-analysis/
+
+**What to Know About the Pacific Tsunami**\
+`Vast stretches of the Pacific coastline were likely to see many hours of surging waves and tidal swells.`\
+https://nytimes.com/2025/07/30/us/tsunami-what-where-damage.html
+
+**What Does It Cost to Keep Workers Safe?**\
+`The deadly shooting in Midtown Manhattan raises questions about what’s needed now to adequately secure office buildings.`\
+https://nytimes.com/2025/07/30/business/dealbook/park-avenue-shooting-workplace-safety.html
+
 **Company That Owns Apartments.com Sues Zillow Over Rental Listing Photos**\
 `The chief executive of CoStar Group, which owns Apartments.com, said Zillow has ‘stolen’ thousands of images to bolster its business.`\
 https://nytimes.com/2025/07/30/realestate/costar-zillow-listings-photographs-lawsuit.html
