@@ -1,3 +1,7 @@
+**Who are the witnesses at Wednesday’s crash hearing?**\
+`By Karoun Demirjian`\
+https://nytimes.com/live/2025/07/30/us/dc-plane-crash-hearing/who-are-the-witnesses-at-wednesdays-crash-hearing
+
 **Pro-Palestinian Protest Group Can Appeal U.K. Ban, Judge Rules**\
 `A High Court judge in London said that Palestine Action had the right to challenge the British government’s decision to ban it as a terrorist group.`\
 https://nytimes.com/2025/07/30/world/europe/palestine-action-uk-ban-terrorist-court.html
