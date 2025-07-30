@@ -1,5 +1,5 @@
-**Phillies call their shot and get their closer, acquiring Jhoan Durán from Twins**\
-`Twins get young starter Mick Abel and teenage catching prospect Eduardo Tait.`\
+**Phillies call their shot and get their closer, acquiring Jhoan Duran from Twins**\
+`The prospect cost was substantial, with starter Mick Abel, 23, and catching prospect Eduardo Tait, 18, going to the Twins.`\
 https://nytimes.com/athletic/6526053/2025/07/30/phillies-jhoan-duran-trade-twins/
 
 **Colorado Dentist Gets Life Without Parole in Wife’s Poisoning Murder**\
@@ -7,7 +7,7 @@ https://nytimes.com/athletic/6526053/2025/07/30/phillies-jhoan-duran-trade-twins
 https://nytimes.com/2025/07/30/us/colorado-dentist-james-craig-poisoned-wife.html
 
 **Red Sox at trade deadline: San Diego still after Jarren Duran, Garrett Crochet pushed back**\
-`MINNEAPOLIS — As the trade deadline enters its final 24 hours, Jarren Duran&#8217;s name is still squarely in the mix, with the San Diego Padres continuing to pursue the outfielder.`\
+`The Padres believe they might be one of the only teams that can still get Duran at the deadline.`\
 https://nytimes.com/athletic/6525988/2025/07/30/red-sox-trade-deadline-jarren-duran-garrett-crochet/
 
 **Canada Is Set to Recognize Palestinian Statehood at U.N.**\
