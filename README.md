@@ -1,3 +1,7 @@
+**Pilots for Army Black Hawk Discussed Changing Course Before Crash**\
+`The maneuver might have taken the helicopter out of the direct path of a passenger jet as it was trying to land at Reagan Airport on Jan. 29.`\
+https://nytimes.com/2025/07/30/us/politics/black-hawk-reagan-crash-transcripts.html
+
 **gws-happy-gilmore-shooter-mcgavin-christopher-mcdonald**\
 `(No description)`\
 https://nytimes.com/newsgraphics/card-story/happy-gilmore-shooter-mcgavin-christopher-mcdonald
@@ -30,11 +34,7 @@ https://nytimes.com/athletic/6524896/2025/07/30/joe-willock-newcastle-injury-upd
 `The 19-year-old scored six goals in 16 Chelsea appearances, of which seven were starts, last season.`\
 https://nytimes.com/athletic/6513327/2025/07/30/sunderland-transfers-marc-guiu-chelsea/
 
-**Man Utd prioritising Sesko move**\
+**Manchester United prioritising Benjamin Sesko move**\
 `Ollie Watkins also has admirers at Old Trafford but Aston Villa told United early in the window that the 29-year-old is not for sale.`\
 https://nytimes.com/athletic/6519737/2025/07/30/benjamin-sesko-manchester-united-transfers/
-
-**Six The Hundred franchises sold ahead of 2025 competition**\
-`A mix of American sports investors and Indian cricket magnates have bought stakes in the teams.`\
-https://nytimes.com/athletic/6524826/2025/07/30/the-hundred-cricket-franchises-sold/
 
