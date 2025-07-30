@@ -1,3 +1,7 @@
+**Brown University Makes a Deal With the White House to Restore Funding**\
+`The deal comes after Columbia University negotiated with the Trump administration to restore millions in research dollars.`\
+https://nytimes.com/2025/07/30/us/brown-university-makes-a-deal-with-the-white-house-to-restore-funding.html
+
 **Former Barcelona forward Carles Perez injured after being bitten by dog in genital area**\
 `The former Spain youth international was attacked and injured by a dog after his move to Greece this summer.`\
 https://nytimes.com/athletic/6525456/2025/07/30/carles-perez-dog-bite-injury-celta-vigo-aris-thessaloniki/
@@ -11,7 +15,7 @@ https://nytimes.com/2025/07/30/technology/meta-earnings-ai-spending.html
 https://nytimes.com/2025/07/30/style/skims-shapewear-face-kardashian.html
 
 **Mets add Tyler Rogers, right-handed specialist, to bullpen in trade with Giants**\
-`The Mets are adding a submarine right-hander in Rogers to their bullpen while parting with two former top prospects.`\
+`The Mets part with two former top prospects and reliever José Buttó for Rogers, who'll be a free agent this offseason.`\
 https://nytimes.com/athletic/6525793/2025/07/30/mlb-tyler-rogers-mets-giants-trade/
 
 **Microsoft Backs Up A.I. Spending With $27.2 Billion Quarterly Profit**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6525718/2025/07/30/buffalo-sabres-arena-upgrades-ti
 **Trey Hendrickson follows the Ja’Marr Chase playbook, with more inevitable endgame: Dehner Jr. **\
 `The Bengals' star pass rusher switched from holdout to hold-in by attending training camp Wednesday.`\
 https://nytimes.com/athletic/6525619/2025/07/30/cincinnati-bengals-trey-hendrickson-training-camp-contract/
-
-**Trade grades: With Ke'Bryan Hayes add, Reds bank on the glove and hope for the bat**\
-`The move immediately makes the Reds deeper, and offers upside. For the Pirates, it's a hope for hitting down the road. `\
-https://nytimes.com/athletic/6525713/2025/07/30/kebryan-hayes-reds-pirates-mlb-trade-grades/
 

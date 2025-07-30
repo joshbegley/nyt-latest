@@ -1,3 +1,11 @@
+**Investigators Home in on Altitude Discrepancy in Army Helicopter Before Potomac Crash**\
+`Flight instruments probably led the Black Hawk crew to believe the helicopter was lower than it actually was before the collision with a commercial airplane on Jan. 29.`\
+https://nytimes.com/2025/07/30/us/politics/army-helicopter-potomac-crash.html
+
+**Rose Leiman Goldemberg, 97, Dies; Her ‘Burning Bed’ Was a TV Benchmark**\
+`A playwright and screenwriter, she adapted a book about domestic abuse for NBC, bringing a taboo subject into the national conversation.`\
+https://nytimes.com/2025/07/30/arts/television/rose-leiman-goldemberg-dead.html
+
 **Brown University Makes a Deal With the White House to Restore Funding**\
 `The deal comes after Columbia University negotiated with the Trump administration to restore millions in research dollars.`\
 https://nytimes.com/2025/07/30/us/brown-university-makes-a-deal-with-the-white-house-to-restore-funding.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/07/30/us/politics/trump-tariffs-de-minimis-exemption.ht
 **Ford Is Latest Carmaker to Blame Tariffs for Profit Slump**\
 `The company estimated that duties on imported cars and car parts would cost it $2 billion this year.`\
 https://nytimes.com/2025/07/30/business/ford-profit-tariffs.html
-
-**What's the latest on Sabres' arena lease, upgrades and season tickets?**\
-`Erie County executive Mark Poloncarz and Sabres COO Pete Guelli spoke to reporters Wednesday at KeyBank Center.`\
-https://nytimes.com/athletic/6525718/2025/07/30/buffalo-sabres-arena-upgrades-tickets/
-
-**Trey Hendrickson follows the Ja’Marr Chase playbook, with more inevitable endgame: Dehner Jr. **\
-`The Bengals' star pass rusher switched from holdout to hold-in by attending training camp Wednesday.`\
-https://nytimes.com/athletic/6525619/2025/07/30/cincinnati-bengals-trey-hendrickson-training-camp-contract/
 

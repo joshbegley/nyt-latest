@@ -1,3 +1,11 @@
+**Brown University Makes a Deal With the White House to Restore Funding**\
+`The deal comes after Columbia University negotiated with the Trump administration to restore millions in research dollars.`\
+https://nytimes.com/2025/07/30/us/brown-university-makes-a-deal-with-the-white-house-to-restore-funding.html
+
+**Mets add Tyler Rogers, right-handed specialist, to bullpen in trade with Giants**\
+`The Mets part with two former top prospects and reliever José Buttó for Rogers, who'll be a free agent this offseason.`\
+https://nytimes.com/athletic/6525793/2025/07/30/mlb-tyler-rogers-mets-giants-trade/
+
 **Former Barcelona forward Carles Perez injured after being bitten by dog in genital area**\
 `The former Spain youth international was attacked and injured by a dog after his move to Greece this summer.`\
 https://nytimes.com/athletic/6525456/2025/07/30/carles-perez-dog-bite-injury-celta-vigo-aris-thessaloniki/
