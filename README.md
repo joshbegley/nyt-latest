@@ -1,3 +1,7 @@
+**Mike Trout on Angels manager's benches-clearing defense after HBPs: 'The boys love it'**\
+`Trout was one of four Angels hit by a pitch Tuesday. Manager Ray Montgomery yelled at Bruce Bochy about throwing pitches over the plate.`\
+https://nytimes.com/athletic/6524435/2025/07/30/angels-hit-by-pitch-montgomery-trout/
+
 **Mexico City is out for NASCAR's 2026 schedule; Chicagoland likely in: Sources**\
 `NASCAR will go without an international race in 2026, as the logistics proved difficult. Chicagoland is poised to take Mexico City's spot.`\
 https://nytimes.com/athletic/6523588/2025/07/30/nascar-2026-schedule-mexico-city-chicagoland/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6524666/2025/07/30/jets-sign-defenceman-dylan-sambe
 **Stokes out of fifth India Test: What his absence means for England**\
 `Liam Dawson, Brydon Carse and Jofra Archer have also been left out, while Jacob Bethell is among four additions for the Oval Test.`\
 https://nytimes.com/athletic/6524630/2025/07/30/england-india-fifth-test-stokes-bethell/
-
-**The Pulse: MLB trade deadline on the fence**\
-`Welcome to The Pulse, The Athletic's daily newsletter.`\
-https://nytimes.com/athletic/6524445/2025/07/30/mlb-trade-deadline-preview-the-pulse/
 
