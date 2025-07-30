@@ -1,3 +1,11 @@
+**The NBA bubble, 5 years later: 'The most exclusive basketball camp in world history’**\
+`Mike Breen, Adam Silver and others share memories and reflect on the good, the bad and the one-of-a-kind from Florida.`\
+https://nytimes.com/athletic/6523879/2025/07/30/nba-bubble-season-five-years-disney/
+
+**Trump Administration Told Taiwan’s President to Avoid New York Stopover**\
+`The Taiwanese leader canceled U.S. transit visits after being urged to change his plans, two officials said. Washington has been in talks with Beijing over trade and a possible summit.`\
+https://nytimes.com/2025/07/30/world/asia/trump-taiwan-china.html
+
 **Xhaka completes €20m Sunderland transfer**\
 `Sunderland have paid €15m up front with a further €5m in potential add-ons for the 32-year-old midfielder.`\
 https://nytimes.com/athletic/6519872/2025/07/30/granit-xhaka-sunderland-transfer-fee/
