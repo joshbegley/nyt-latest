@@ -1,3 +1,11 @@
+**Chris Nowinski, named in Manhattan gunman’s letter, reflects on CTE**\
+`"In some aspects, we've made a lot of progress. But there's still so far to go, and I’ve got to figure out a way to get there faster."`\
+https://nytimes.com/athletic/6525685/2025/07/30/nyc-shooting-nfl-headquarters-cte-note-chris-nowinski/
+
+**Thursday Briefing: Trump’s Steep Tariffs on Brazil**\
+`Plus, the future of Mexican music.`\
+https://nytimes.com/2025/07/30/briefing/trump-tariffs-brazil-india-palestine.html
+
 **Butter, but Even Better**\
 `Plus: a new farm hotel in Sweden, a group exhibition in Jaipur and more recommendations from T Magazine.`\
 https://nytimes.com/2025/07/30/t-magazine/seasoned-butter-restaurants.html

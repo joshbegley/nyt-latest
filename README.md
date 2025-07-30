@@ -1,3 +1,7 @@
+**Susan Monarez Faces Daunting Challenges as C.D.C. Director**\
+`The agency’s new leader must contend with reduced budgets, mass layoffs, political tumult and a boss determined to reshape public health.`\
+https://nytimes.com/2025/07/30/health/monarez-cdc-kennedy.html
+
 **Chris Nowinski, named in Manhattan gunman’s letter, reflects on CTE**\
 `"In some aspects, we've made a lot of progress. But there's still so far to go, and I’ve got to figure out a way to get there faster."`\
 https://nytimes.com/athletic/6525685/2025/07/30/nyc-shooting-nfl-headquarters-cte-note-chris-nowinski/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/30/technology/meta-earnings-ai-spending.html
 **Skims Releases New Shapewear. For Your Face.**\
 `The latest product from Kim Kardashian’s company promises to sculpt the cheeks, neck and chin.`\
 https://nytimes.com/2025/07/30/style/skims-shapewear-face-kardashian.html
-
-**Mets add Tyler Rogers, right-handed specialist, to bullpen in trade with Giants**\
-`The Mets part with two former top prospects and reliever José Buttó for Rogers, who'll be a free agent this offseason.`\
-https://nytimes.com/athletic/6525793/2025/07/30/mlb-tyler-rogers-mets-giants-trade/
 

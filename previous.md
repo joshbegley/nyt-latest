@@ -1,3 +1,11 @@
+**Chris Nowinski, named in Manhattan gunman’s letter, reflects on CTE**\
+`"In some aspects, we've made a lot of progress. But there's still so far to go, and I’ve got to figure out a way to get there faster."`\
+https://nytimes.com/athletic/6525685/2025/07/30/nyc-shooting-nfl-headquarters-cte-note-chris-nowinski/
+
+**Thursday Briefing: Trump’s Steep Tariffs on Brazil**\
+`Plus, the future of Mexican music.`\
+https://nytimes.com/2025/07/30/briefing/trump-tariffs-brazil-india-palestine.html
+
 **Butter, but Even Better**\
 `Plus: a new farm hotel in Sweden, a group exhibition in Jaipur and more recommendations from T Magazine.`\
 https://nytimes.com/2025/07/30/t-magazine/seasoned-butter-restaurants.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/07/30/style/skims-shapewear-face-kardashian.html
 **Mets add Tyler Rogers, right-handed specialist, to bullpen in trade with Giants**\
 `The Mets part with two former top prospects and reliever José Buttó for Rogers, who'll be a free agent this offseason.`\
 https://nytimes.com/athletic/6525793/2025/07/30/mlb-tyler-rogers-mets-giants-trade/
-
-**Microsoft Backs Up A.I. Spending With $27.2 Billion Quarterly Profit**\
-`The company’s results are likely to ease investors’ worries that big investments in artificial intelligence aren’t paying off.`\
-https://nytimes.com/2025/07/30/technology/microsoft-earnings-ai-data-centers.html
-
-**Trump Executive Order Ends Tariff Exemption on Imports Less Than $800**\
-`The low-cost shipments were previously excluded from tariffs; President Trump said the loophole has allowed countries to avoid taxes and smuggle drugs into the U.S.`\
-https://nytimes.com/2025/07/30/us/politics/trump-tariffs-de-minimis-exemption.html
 
