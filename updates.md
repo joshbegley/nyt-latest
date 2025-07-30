@@ -1,3 +1,23 @@
+**Think You Know Sunscreen? Take Our Quiz.**\
+`Find out if you’re an S.P.F. savant.`\
+https://nytimes.com/2025/07/30/well/sunscreen-quiz.html
+
+**Departing Flights Are Grounded at London’s Heathrow Airport**\
+`The disruption comes months after the airport, one of the world’s busiest, shut down for more than 16 hours because of a fire at an electricity substation.`\
+https://nytimes.com/2025/07/30/world/europe/uk-flights-london-heathrow-airport-grounded.html
+
+**Our Best Cucumber Salad Recipes**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/cucumber-salad-recipes
+
+**gws-argentina-chile-summer-skiing**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/argentina-chile-summer-skiing
+
+**gws-aja-wilson-wnba-las-vegas**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/aja-wilson-wnba-las-vegas
+
 **Team K League 1 Newcastle 0: Woe for Willock, another defeat, Park impresses**\
 `Newcastle's pre-season continues to be dominated by Alexander Isak speculation - and defeats. The latest coming in Suwon`\
 https://nytimes.com/athletic/6524960/2025/07/30/newcastle-defeat-tour-howe-willock-park/
