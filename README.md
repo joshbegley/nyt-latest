@@ -1,3 +1,11 @@
+**Skims Releases New Shapewear. For Your Face.**\
+`The latest product from Kim Kardashian’s company promises to sculpt the cheeks, neck and chin.`\
+https://nytimes.com/2025/07/30/style/skims-shapewear-face-kardashian.html
+
+**Mets add Tyler Rogers, right-handed specialist, to bullpen in trade with Giants**\
+`The Mets are adding a submarine right-hander in Rogers to their bullpen while parting with two former top prospects.`\
+https://nytimes.com/athletic/6525793/2025/07/30/mlb-tyler-rogers-mets-giants-trade/
+
 **Microsoft Backs Up A.I. Spending With $27.2 Billion Quarterly Profit**\
 `The company’s results are likely to ease investors’ worries that big investments in artificial intelligence aren’t paying off.`\
 https://nytimes.com/2025/07/30/technology/microsoft-earnings-ai-data-centers.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6525621/2025/07/30/rich-eisen-youtube-chiefs-charge
 **Takeaways from the Fed meeting.**\
 `By Colby Smith`\
 https://nytimes.com/live/2025/07/30/business/federal-reserve-interest-rates/takeaways-from-the-fed-meeting
-
-**Gilbert Arenas arrested, charged with running illegal gambling business**\
-`Arenas ran an illegal gambling ring and hosted high-level poker games in his home, according to an indictment filed by federal prosecutors.`\
-https://nytimes.com/athletic/6525606/2025/07/30/gilbert-arenas-nba-arrest-illegal-gambling-business/
-
-**Cuts to Data Collection May Erode Reliability of Economic Statistics**\
-`The Bureau of Labor Statistics is reducing or ending the collection of data that is used to calculate the Consumer Price Index.`\
-https://nytimes.com/2025/07/30/business/bls-data-collection-cuts-cpi.html
 
