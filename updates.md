@@ -1,3 +1,7 @@
+**Who Pays in Trump’s Trade War?**\
+`Whether tariffs drive up prices could have significant implications for the Federal Reserve.`\
+https://nytimes.com/2025/07/30/business/trade-tariffs-who-pays.html
+
 **Mamdani Returns From Uganda and Visits Slain Officer’s Family**\
 `Zohran Mamdani, the Democratic candidate for mayor of New York City, visited the home of a police officer who was killed in a mass shooting in Midtown Manhattan on Monday.`\
 https://nytimes.com/2025/07/30/nyregion/mamdani-uganda-return-officer.html

@@ -1,3 +1,7 @@
+**Who Pays in Trump’s Trade War?**\
+`Whether tariffs drive up prices could have significant implications for the Federal Reserve.`\
+https://nytimes.com/2025/07/30/business/trade-tariffs-who-pays.html
+
 **Mamdani Returns From Uganda and Visits Slain Officer’s Family**\
 `Zohran Mamdani, the Democratic candidate for mayor of New York City, visited the home of a police officer who was killed in a mass shooting in Midtown Manhattan on Monday.`\
 https://nytimes.com/2025/07/30/nyregion/mamdani-uganda-return-officer.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/30/climate/hurricane-monitoring-data-defense-departm
 **Laura Dahlmeier, Gold Medal-Winning German Biathlete, Dies in Rockfall**\
 `Ms. Dahlmeier, 31, an experienced mountaineer, was climbing in Pakistan when she was hit by falling rocks, officials said.`\
 https://nytimes.com/2025/07/30/world/asia/laura-dahlmeier-olympian-died-accident-pakistan.html
-
-**Tensions Between Trump and Powell at Tipping Point Ahead of Fed Meeting**\
-`President Trump wants lower interest rates, but Jerome H. Powell, the chair of the Federal Reserve, is not yet ready to deliver them.`\
-https://nytimes.com/2025/07/30/business/trump-powell-fed-tensions.html
 

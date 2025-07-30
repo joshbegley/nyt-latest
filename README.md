@@ -1,3 +1,7 @@
+**Did We Miss the Happy Ending in ‘Hamlet’?**\
+`Responding to a guest essay, readers offer different ways to view “Hamlet.”`\
+https://nytimes.com/2025/07/30/opinion/hamlet-william-shakespeare.html
+
 **Who Pays in Trump’s Trade War?**\
 `Whether tariffs drive up prices could have significant implications for the Federal Reserve.`\
 https://nytimes.com/2025/07/30/business/trade-tariffs-who-pays.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6525108/2025/07/30/fantasy-football-tyreek-hill-reb
 **In a Reversal, Key Hurricane-Monitoring Data Will Stay Online**\
 `The Department of Defense said it no longer planned to shut down a program that makes satellite data publicly available to researchers and forecasters.`\
 https://nytimes.com/2025/07/30/climate/hurricane-monitoring-data-defense-department.html
-
-**Laura Dahlmeier, Gold Medal-Winning German Biathlete, Dies in Rockfall**\
-`Ms. Dahlmeier, 31, an experienced mountaineer, was climbing in Pakistan when she was hit by falling rocks, officials said.`\
-https://nytimes.com/2025/07/30/world/asia/laura-dahlmeier-olympian-died-accident-pakistan.html
 
