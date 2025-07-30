@@ -1,40 +1,40 @@
-**Trump Administration Live Updates: Top Vaccine Official Leaves F.D.A. After Right-Wing Pressure**\
-``\
-https://nytimes.com/live/2025/07/30/us/trump-news
+**Football’s Brain Injuries**\
+`We explain what we know about the disease after the shooting in Manhattan.`\
+https://nytimes.com/2025/07/30/briefing/footballs-brain-injuries.html
 
-**In Conversation with Brazil’s President Lula**\
-`In an interview with Jack Nicas of The New York Times, President Luiz Inácio Lula da Silva rejected President Trump’s demands for Brazil. Here’s how the United States and Brazil reached this point.`\
-https://nytimes.com/video/world/americas/100000010309751/in-conversation-with-brazils-president-lula.html
+**A Royal Send-off for Ozzy Osbourne, Prince of Darkness**\
+`On Wednesday, a cortege will take the singer’s coffin through the streets of his hometown, Birmingham, England.`\
+https://nytimes.com/2025/07/30/arts/music/ozzy-osbourne-funeral-procession-birmingham.html
 
-**Mercedes and Porsche Squeezed by U.S. Tariffs and Slowdown in China**\
-`Germany’s leading luxury automakers are sharply scaling back expectations for the rest of the year.`\
-https://nytimes.com/2025/07/30/business/mercedes-porsche-tariffs.html
+**The Tigers, fueled by mustachioed magic, get their groove back before the trade deadline**\
+`The Tigers have won three in a row, with help either from a new superstition or the corrective ebbs of a long season.`\
+https://nytimes.com/athletic/6524234/2025/07/30/tigers-get-their-groove-back-riley-greene/
 
-**In Kamchatka, Epicenter of the Russian Earthquake, Seismic Activity Is Common**\
-`Tremors are regularly reported in this remote Russian peninsula dotted with volcanoes, some of which erupt every year.`\
-https://nytimes.com/2025/07/30/world/asia/kamchatka-earthquake.html
+**Blue Jays bolster bullpen, acquire Seranthony Domínguez in doubleheader-day trade**\
+`The Blue Jays acquired Seranthony Domínguez mid-series to shore up a bullpen running out of gas.`\
+https://nytimes.com/athletic/6524202/2025/07/30/blue-jays-acquire-seranthony-dominguez/
 
-**TAFC: Barcelona, Ter Stegen and a new form of injury crisis. Plus: Wiegman's Burna Boy surprise**\
-`How the goalkeeper's social media post has led to chaos behind the scenes`\
-https://nytimes.com/athletic/6524589/2025/07/30/barca-ter-stegen-injury-wiegman-burna-boy-tafc/
+**A brief history of the Thornton Award, a fake trophy for best debut with a new team**\
+`Looking back and handing out the Joe Thornton Award, given to the NHL player who has the best debut with a new team.`\
+https://nytimes.com/athletic/6520926/2025/07/30/nhl-joe-thornton-award-trophy-history-debut-team/
 
-**Shohei Ohtani is on double-duty Wednesday. Here's how to watch his start in Cincinnati**\
-`Shohei Ohtani is at the plate and on the mound once again. Perhaps your coffee spot's barista will also become your bartender today.`\
-https://nytimes.com/athletic/6523242/2025/07/30/shohei-ohtani-pitching-dodgers-reds-how-to-watch/
+**Mandel’s Mailbag: Big Ten’s Playoff power grab and bold calls for 2025 season**\
+`Which top contender could tumble, why Washington is being overlooked, and who might clinch bowl eligibility first in 2025?`\
+https://nytimes.com/athletic/6523829/2025/07/30/mandels-mailbag-big-tens-playoff-power-grab-and-bold-calls-for-2025-season/
 
-**2025 fantasy football overall, positional, PPR rankings and more: Training camp update**\
-`With his always-updated player rankings, Jake Ciely has you covered for the impending fantasy football draft season.`\
-https://nytimes.com/athletic/6523411/2025/07/30/fantasy-football-2025-rankings-overall-positional-ppr/
+**Why Blackhawks prospect Marek Vanacker has 'a lot of untapped potential'**\
+`After his summer of training, Vanacker is eager to show his progress and prove himself at main camp with the Blackhawks.`\
+https://nytimes.com/athletic/6517331/2025/07/30/blackhawks-prospect-marek-vanacker-world-juniors/
 
-**How NWSL teams plan to beat the annual mid-summer miasma**\
-`NWSL teams build strategies, tailored for the sweltering dog days of August, to reignite buzz, refill seats and restore the early momentum.`\
-https://nytimes.com/athletic/6522594/2025/07/30/nwsl-summer-rivalry-weekend-down-to-business/
+**Where can the Reds find a bat at the trade deadline? Their roster flexibility could help**\
+`Players will be moved, but the difference-makers seem to be few and far between, driving up demand around the league.`\
+https://nytimes.com/athletic/6524102/2025/07/30/reds-trade-deadline-roster-flexibility/
 
-**Bev Priestman 'didn't feel safe' in Canada after spying scandal**\
-`The head coach's ban from football-related activities came after a scandal at last year's Olympics.`\
-https://nytimes.com/athletic/6524522/2025/07/30/bev-priestman-manager-canada-wellington-phoenix/
+**Antonio Gates' prowess in crucial situations vaulted Chargers star into Hall of Fame**\
+`Gates' 116 touchdown catches are the most in NFL history by a tight end, but his work in the red zone — 92 scores — truly separated him.`\
+https://nytimes.com/athletic/6523698/2025/07/30/antonio-gates-pro-football-hall-of-fame-chargers/
 
-**Vikings 53-man roster projection: Where do things stand after the first week of camp?**\
-`Who has stood out? What are the Vikings' plans at quarterback, running back, cornerback and elsewhere? Let's dive into our projection.`\
-https://nytimes.com/athletic/6522480/2025/07/30/minnesota-vikings-53-man-roster-projection/
+**As Phillies navigate trade deadline market, Brandon Marsh and Jesús Luzardo deliver**\
+`As the Phillies consider a potential outfield upgrade before Thursday's trading deadline, the blame is not all on Marsh. `\
+https://nytimes.com/athletic/6524285/2025/07/30/brandon-marsh-phillies-trade-deadline/
 
