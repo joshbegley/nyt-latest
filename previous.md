@@ -1,3 +1,15 @@
+**Mamdani Returns From Uganda and Visits Slain Officer’s Family**\
+`Zohran Mamdani, the Democratic candidate for mayor of New York City, visited the home of a police officer who was killed in a mass shooting in Midtown Manhattan on Monday.`\
+https://nytimes.com/2025/07/30/nyregion/mamdani-uganda-return-officer.html
+
+**Are Manchester United right to pick Benjamin Sesko as their main striker target?**\
+`Exploring why Manchester United have identified Benjamin Sesko as their No 1 striker target`\
+https://nytimes.com/athletic/6521070/2025/07/30/manchester-united-sesko-watkins/
+
+**Trump has reshaped global trade. What does that mean for the U.S. economy?**\
+`By Ana Swanson`\
+https://nytimes.com/live/2025/07/30/business/federal-reserve-interest-rates/trump-has-reshaped-global-trade-what-does-that-mean-for-the-us-economy
+
 **Tour de France Femmes: Kim Le Court becomes first African to win a stage - and takes yellow**\
 `History is made on Stage 5 of the Tour de France Femmes and United States champion Kristen Faulkner abandons.`\
 https://nytimes.com/athletic/6525040/2025/07/30/tour-de-france-femmes-kim-le-court/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/07/30/world/asia/laura-dahlmeier-olympian-died-accident
 **Tensions Between Trump and Powell at Tipping Point Ahead of Fed Meeting**\
 `President Trump wants lower interest rates, but Jerome H. Powell, the chair of the Federal Reserve, is not yet ready to deliver them.`\
 https://nytimes.com/2025/07/30/business/trump-powell-fed-tensions.html
-
-**What the Fed’s Rate Decision Means for Your Finances**\
-`Here’s how the central bank’s interest rate stance influences car loans, credit cards, mortgages, savings and student loans.`\
-https://nytimes.com/2025/07/30/business/fed-interest-rate-loans-mortgages.html
-
-**Live Updates: Fed to Set Rates as Tensions With Trump Run High**\
-`The U.S. central bank is widely expected to hold interest rates steady for a fifth-straight meeting despite badgering from President Trump to lower borrowing costs.`\
-https://nytimes.com/live/2025/07/30/business/federal-reserve-interest-rates
-
-**Shaw says he felt like he was letting Man Utd down with injury troubles**\
-`"I couldn’t have got any lower," Shaw, 30, said about his injury issues last term.`\
-https://nytimes.com/athletic/6525157/2025/07/30/luke-shaw-man-utd-injuries/
 

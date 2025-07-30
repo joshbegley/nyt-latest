@@ -1,3 +1,15 @@
+**Mamdani Returns From Uganda and Visits Slain Officer’s Family**\
+`Zohran Mamdani, the Democratic candidate for mayor of New York City, visited the home of a police officer who was killed in a mass shooting in Midtown Manhattan on Monday.`\
+https://nytimes.com/2025/07/30/nyregion/mamdani-uganda-return-officer.html
+
+**Are Manchester United right to pick Benjamin Sesko as their main striker target?**\
+`Exploring why Manchester United have identified Benjamin Sesko as their No 1 striker target`\
+https://nytimes.com/athletic/6521070/2025/07/30/manchester-united-sesko-watkins/
+
+**Trump has reshaped global trade. What does that mean for the U.S. economy?**\
+`By Ana Swanson`\
+https://nytimes.com/live/2025/07/30/business/federal-reserve-interest-rates/trump-has-reshaped-global-trade-what-does-that-mean-for-the-us-economy
+
 **Tour de France Femmes: Kim Le Court becomes first African to win a stage - and takes yellow**\
 `History is made on Stage 5 of the Tour de France Femmes and United States champion Kristen Faulkner abandons.`\
 https://nytimes.com/athletic/6525040/2025/07/30/tour-de-france-femmes-kim-le-court/
