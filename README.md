@@ -30,7 +30,7 @@ https://nytimes.com/2025/07/29/us/politics/susan-monarez-cdc-director.html
 `Our experts have spent hundreds of hours testing tools and supplies to help you survive earthquakes, wildfires, floods, hurricanes, and much more.`\
 https://nytimes.com/wirecutter/reviews/emergency-preparedness-kit-builder/
 
-**Powerful 8.0-Magnitude Earthquake Off Russia’s Coast Prompts Tsunami Alerts**\
+**Powerful 8.7-Magnitude Earthquake Off Russia’s Coast Prompts Tsunami Alerts**\
 `Monitor warnings and predicted arrival times for the ocean wave.`\
 https://nytimes.com/interactive/2025/07/29/world/asia/tsunami-tracker-alaska-russia.html
 
