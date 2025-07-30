@@ -1,3 +1,15 @@
+**The Pulse: MLB trade deadline on the fence**\
+`Welcome to The Pulse, The Athletic's daily newsletter.`\
+https://nytimes.com/athletic/6524445/2025/07/30/mlb-trade-deadline-preview-the-pulse/
+
+**Five key questions Ohio State must answer before Texas arrives**\
+`Breaking down the quarterback battle, defensive line questions and more Ohio State storylines as preseason camp begins.`\
+https://nytimes.com/athletic/6523460/2025/07/30/ohio-state-football-2025-camp-questions/
+
+**Abdul Carter practice diary: Giants rookie all business as he makes routine of wreaking havoc**\
+`There are times when Carter already looks like he could consistently dominate on an NFL field.`\
+https://nytimes.com/athletic/6523634/2025/07/30/ny-giants-abdul-carter-practice-diary/
+
 **Football’s Brain Injuries**\
 `We explain what we know about the disease after the shooting in Manhattan.`\
 https://nytimes.com/2025/07/30/briefing/footballs-brain-injuries.html

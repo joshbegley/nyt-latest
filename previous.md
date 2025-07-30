@@ -1,3 +1,15 @@
+**The Pulse: MLB trade deadline on the fence**\
+`Welcome to The Pulse, The Athletic's daily newsletter.`\
+https://nytimes.com/athletic/6524445/2025/07/30/mlb-trade-deadline-preview-the-pulse/
+
+**Five key questions Ohio State must answer before Texas arrives**\
+`Breaking down the quarterback battle, defensive line questions and more Ohio State storylines as preseason camp begins.`\
+https://nytimes.com/athletic/6523460/2025/07/30/ohio-state-football-2025-camp-questions/
+
+**Abdul Carter practice diary: Giants rookie all business as he makes routine of wreaking havoc**\
+`There are times when Carter already looks like he could consistently dominate on an NFL field.`\
+https://nytimes.com/athletic/6523634/2025/07/30/ny-giants-abdul-carter-practice-diary/
+
 **Football’s Brain Injuries**\
 `We explain what we know about the disease after the shooting in Manhattan.`\
 https://nytimes.com/2025/07/30/briefing/footballs-brain-injuries.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6523829/2025/07/30/mandels-mailbag-big-tens-playoff
 **Why Blackhawks prospect Marek Vanacker has 'a lot of untapped potential'**\
 `After his summer of training, Vanacker is eager to show his progress and prove himself at main camp with the Blackhawks.`\
 https://nytimes.com/athletic/6517331/2025/07/30/blackhawks-prospect-marek-vanacker-world-juniors/
-
-**Where can the Reds find a bat at the trade deadline? Their roster flexibility could help**\
-`Players will be moved, but the difference-makers seem to be few and far between, driving up demand around the league.`\
-https://nytimes.com/athletic/6524102/2025/07/30/reds-trade-deadline-roster-flexibility/
-
-**Antonio Gates' prowess in crucial situations vaulted Chargers star into Hall of Fame**\
-`Gates' 116 touchdown catches are the most in NFL history by a tight end, but his work in the red zone — 92 scores — truly separated him.`\
-https://nytimes.com/athletic/6523698/2025/07/30/antonio-gates-pro-football-hall-of-fame-chargers/
-
-**As Phillies navigate trade deadline market, Brandon Marsh and Jesús Luzardo deliver**\
-`As the Phillies consider a potential outfield upgrade before Thursday's trading deadline, the blame is not all on Marsh. `\
-https://nytimes.com/athletic/6524285/2025/07/30/brandon-marsh-phillies-trade-deadline/
 
