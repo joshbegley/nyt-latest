@@ -1,3 +1,7 @@
+**As MLB trade deadline approaches, Guardians ponder plans for Steven Kwan, Shane Bieber**\
+`"I would love to," Kwan said about working out an extension with Cleveland. "I love it here. I love everything about this place."`\
+https://nytimes.com/athletic/6525944/2025/07/30/guardians-mlb-trade-deadline-steven-kwan-shane-bieber/
+
 **How Trump Is Attacking the Legal System, via the Legal System**\
 `The president has an outside-inside strategy to fight the judiciary.`\
 https://nytimes.com/2025/07/30/us/politics/trump-legal-system.html
