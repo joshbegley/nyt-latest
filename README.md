@@ -1,3 +1,11 @@
+**Delta Pilot Is Charged With 24 Felonies in Child Sex Abuse Case**\
+`The pilot was removed from the cockpit of a plane after it landed in San Francisco on Saturday night. A woman was also charged in a related felony complaint.`\
+https://nytimes.com/2025/07/30/us/delta-pilot-child-sex-abuse-charges.html
+
+**John Fetterman to Publish an ‘Unapologetic’ Memoir This Fall**\
+`The Pennsylvania senator will recount political battles and physical and mental health challenges in “Unfettered.”`\
+https://nytimes.com/2025/07/30/books/john-fetterman-memoir.html
+
 **With trade deadline looming, Cubs call up Moisés Ballesteros over Owen Caissie**\
 `The Cubs are likely to deal from their position player depth to acquire pitching. That they are showcasing Ballesteros adds intrigue.`\
 https://nytimes.com/athletic/6525131/2025/07/30/cubs-moises-ballesteros-owen-caissie-trade-deadline/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/07/30/world/europe/uk-flights-london-heathrow-airport-g
 **Our Best Cucumber Salad Recipes**\
 `(No description)`\
 https://nytimes.com/newsgraphics/card-story/cucumber-salad-recipes
-
-**gws-argentina-chile-summer-skiing**\
-`(No description)`\
-https://nytimes.com/newsgraphics/card-story/argentina-chile-summer-skiing
-
-**gws-aja-wilson-wnba-las-vegas**\
-`(No description)`\
-https://nytimes.com/newsgraphics/card-story/aja-wilson-wnba-las-vegas
 
