@@ -7,7 +7,7 @@ https://nytimes.com/athletic/6520449/2025/07/30/luis-diaz-bayern-munich-liverpoo
 https://nytimes.com/athletic/6518278/2025/07/30/luis-diaz-bayern-transfer-confirmed/
 
 **Shaw backs Amorim's hardline approach: 'He demands 100 per cent'**\
-`Amorim has shown his ruthless streak since joining the club, making high demands on his players and `\
+`"I think whatever the manager wants, us as players we have to be delivering. So, yes, we're fully behind that," Shaw said.`\
 https://nytimes.com/athletic/6524478/2025/07/30/man-united-news-shaw-amorim-squad/
 
 **Sunderland reach €10.5m agreement to sign goalkeeper Roefs from NEC Nijmegen**\
