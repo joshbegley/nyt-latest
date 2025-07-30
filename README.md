@@ -1,6 +1,14 @@
+**Criss-crossing routes in D.C. airspace leave little room for error.**\
+`By Elena Shao, Leanne Abraham, Eli Murray and Lazaro Gamio`\
+https://nytimes.com/live/2025/07/30/us/dc-plane-crash-hearing/criss-crossing-routes-in-dc-airspace-leave-little-room-for-error
+
+**Grand Jury Witnesses Against Epstein and Maxwell Were All Investigators**\
+`No victims or associates testified in the proceedings that led to indictments in the cases, which have been the subject of conspiracy theories pushed by President Trump’s supporters.`\
+https://nytimes.com/2025/07/30/nyregion/epstein-maxwell-grand-jury-witnesses.html
+
 **See How Often Fed Governors Have Broken Ranks**\
 `Two top Fed officials voted against the central bank’s decision to leave rates unchanged, the first dual dissent in more than 30 years.`\
-https://nytimes.com/2025/07/30/business/economy/see-how-often-fed-governors-have-broken-ranks.html
+https://nytimes.com/2025/07/30/business/economy/fed-rate-dissent-powell.html
 
 **SNAP Food Program Linked to Slower Cognitive Decline in Older Adults**\
 `A new study suggests the benefit, which is facing federal funding cuts, may be good for brain health.`\
@@ -21,12 +29,4 @@ https://nytimes.com/card/2025/07/30/arts/editors-recommendations-loveislanduk
 **Senators grill Agriculture Dept. deputy over the agency’s reorganization plan.**\
 `By Linda Qiu`\
 https://nytimes.com/live/2025/07/30/us/trump-news/senators-grill-agriculture-dept-deputy-over-the-agencys-reorganization-plan
-
-**I Have Always Wondered if My Husband Is Bisexual. Is It OK to Ask Him?**\
-`Have I been in a lavender marriage all this time?`\
-https://nytimes.com/2025/07/30/magazine/husband-bisexual-ask-ethics.html
-
-**Brennan and Clapper: Let’s Set the Record Straight on Russia and 2016**\
-`We want to set the record straight and also sound a warning.`\
-https://nytimes.com/2025/07/30/opinion/trump-obama-treason-russia-miller.html
 
