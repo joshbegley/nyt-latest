@@ -1,3 +1,7 @@
+**Senate, Rejecting Whistle-Blower Alarms, Confirms Bove to Appeals Court**\
+`The Trump loyalist was narrowly approved as Republicans brushed aside concerns about his conduct as a senior Justice Department official.`\
+https://nytimes.com/2025/07/29/us/politics/emil-bove-confirmed-appeals-judge.html
+
 **Trump Bypasses Congress to Keep Interim Prosecutors in California and Nevada**\
 `A similar approach in New Jersey has led to cancellations of court proceedings, as judges question whether the president’s designee for U.S. Attorney has any authority.`\
 https://nytimes.com/2025/07/29/us/politics/trump-us-attorneys-california-nevada.html
@@ -33,8 +37,4 @@ https://nytimes.com/wirecutter/reviews/emergency-preparedness-kit-builder/
 **Powerful 8.7-Magnitude Earthquake Off Russia’s Coast Prompts Tsunami Alerts**\
 `Monitor warnings and predicted arrival times for the ocean wave.`\
 https://nytimes.com/interactive/2025/07/29/world/asia/tsunami-tracker-alaska-russia.html
-
-**David Moyes on Everton transfers - Time is 'running out' to build fans a 'team to be proud of'**\
-`Moyes wants as many as ten signings this summer for Everton`\
-https://nytimes.com/athletic/6523875/2025/07/29/moyes-everton-transfers-time/
 

@@ -1,3 +1,7 @@
+**Senate, Rejecting Whistle-Blower Alarms, Confirms Bove to Appeals Court**\
+`The Trump loyalist was narrowly approved as Republicans brushed aside concerns about his conduct as a senior Justice Department official.`\
+https://nytimes.com/2025/07/29/us/politics/emil-bove-confirmed-appeals-judge.html
+
 **Chargers offense looks sloppy in final practice before Hall of Fame Game**\
 `Trey Lance will start at quarterback and play into the third quarter of Thursday's Hall of Fame Game against the Lions. `\
 https://nytimes.com/athletic/6523969/2025/07/29/chargers-training-camp-offense-sloppy/
