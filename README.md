@@ -1,3 +1,7 @@
+**Mets star Juan Soto leaves game after fouling ball off foot**\
+`Soto completed his at-bat, but did not come out to play defense and was replaced by Tyrone Taylor.`\
+https://nytimes.com/athletic/6524211/2025/07/29/mets-juan-soto-leaves-game-foot/
+
 **Coco Gauff overcomes serve struggles to win first match since French Open**\
 `Gauff beat Danielle Collins in the first round of the Canadian Open despite 23 double faults.`\
 https://nytimes.com/athletic/6524178/2025/07/29/coco-gauff-wins-first-match-since-french-open/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6524059/2025/07/29/twins-fake-hugs-mlb-trade-deadli
 **Colorado RB Charlie Offerdahl retires from football due to concussions**\
 `Offerdahl said he's applying to dental schools, joking that he looks forward to making his teammates' grilles and veneers in the future.`\
 https://nytimes.com/athletic/6524058/2025/07/29/colorado-rb-charlie-offerdahl-retires-concussions/
-
-**Trump Administration Freezes $108 Million in Funds to Duke University**\
-`The university was accused of racial discrimination in its health care system, the latest high-profile school targeted and stripped of federal funding.`\
-https://nytimes.com/2025/07/29/us/politics/trump-duke-university-frozen-funding-discrimination.html
 
