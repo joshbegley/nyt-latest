@@ -1,5 +1,9 @@
+**Hug watch heard 'round the world: Jhoan Duran remains a Twin despite internet panic**\
+`Multiple Twins sources confirmed that Duran had not been traded, as many fans suspected: "He hugged Frank — like he always does."`\
+https://nytimes.com/athletic/6524059/2025/07/29/twins-fake-hugs-mlb-trade-deadline/
+
 **Colorado RB Charlie Offerdahl retires from football due to concussions**\
-`Offerdahl said he's applying to dental schools, joking that he looked forward to making his teammates' grilles and vaneers in the future.`\
+`Offerdahl said he's applying to dental schools, joking that he looks forward to making his teammates' grilles and veneers in the future.`\
 https://nytimes.com/athletic/6524058/2025/07/29/colorado-rb-charlie-offerdahl-retires-concussions/
 
 **Trump Administration Freezes $108 Million in Funds to Duke University**\
@@ -23,7 +27,7 @@ https://nytimes.com/2025/07/29/us/politics/emil-bove-confirmed-appeals-judge.htm
 https://nytimes.com/2025/07/29/us/politics/trump-us-attorneys-california-nevada.html
 
 **Tsunami Alerts Issued for U.S. and Japan After Huge Pacific Quake**\
-`The 8.7-magnitude earthquake off Russia’s coast led to warnings and advisories for parts of Japan and Alaska. Officials in Hawaii told people to expect destructive waves.`\
+`The 8.8-magnitude earthquake off Russia’s coast led to warnings and advisories across a broad region. Officials in Hawaii told people to expect destructive waves.`\
 https://nytimes.com/2025/07/29/world/japan-earthquake-tsunami-north-pacific-ocean.html
 
 **Chargers offense looks sloppy in final practice before Hall of Fame Game**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6523969/2025/07/29/chargers-training-camp-offense-s
 **Cory Booker Accuses Democrats of Being ‘Complicit’ with Trump**\
 `A heated exchange erupted after Senator Catherine Cortez Masto, Democrat of Nevada, asked for unanimous approval to pass a bipartisan policing legislation. Senator Cory Booker, Democrat of New Jersey, objected and said that Democrats must challenge President Trump’s agenda at every opportunity.`\
 https://nytimes.com/video/us/politics/100000010312754/booker-cortez-masto-trump-exchange.html
-
-**Stanton won't return to outfield until he's ready, and the plan is to go slow**\
-`The Yankees are preparing Stanton for outfield duty to keep his bat in the lineup when Aaron Judge returns initially as a designated hitter.`\
-https://nytimes.com/athletic/6523884/2025/07/29/yankees-giancarlo-stanton-outfield-plan/
 

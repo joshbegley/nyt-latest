@@ -1,3 +1,15 @@
+**Hug watch heard 'round the world: Jhoan Duran remains a Twin despite internet panic**\
+`Multiple Twins sources confirmed that Duran had not been traded, as many fans suspected: "He hugged Frank — like he always does."`\
+https://nytimes.com/athletic/6524059/2025/07/29/twins-fake-hugs-mlb-trade-deadline/
+
+**Colorado RB Charlie Offerdahl retires from football due to concussions**\
+`Offerdahl said he's applying to dental schools, joking that he looks forward to making his teammates' grilles and veneers in the future.`\
+https://nytimes.com/athletic/6524058/2025/07/29/colorado-rb-charlie-offerdahl-retires-concussions/
+
+**Tsunami Alerts Issued for U.S. and Japan After Huge Pacific Quake**\
+`The 8.8-magnitude earthquake off Russia’s coast led to warnings and advisories across a broad region. Officials in Hawaii told people to expect destructive waves.`\
+https://nytimes.com/2025/07/29/world/japan-earthquake-tsunami-north-pacific-ocean.html
+
 **Colorado RB Charlie Offerdahl retires from football due to concussions**\
 `Offerdahl said he's applying to dental schools, joking that he looked forward to making his teammates' grilles and vaneers in the future.`\
 https://nytimes.com/athletic/6524058/2025/07/29/colorado-rb-charlie-offerdahl-retires-concussions/
