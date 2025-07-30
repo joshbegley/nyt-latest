@@ -28,7 +28,7 @@ https://nytimes.com/athletic/6522565/2025/07/30/england-cricket-crawley-duckett/
 
 **Russia’s Far East Suffers Damage From Earthquake and Tsunami**\
 `Regional authorities in Sakhalin Oblast declared an emergency after a tsunami hit the Kuril Islands, and Kamchatka region was watching for volcanic activity.`\
-https://nytimes.com/2025/07/30/world/asia/russias-far-east-suffers-damage-from-earthquake-and-tsunami.html
+https://nytimes.com/2025/07/30/world/asia/russia-far-east-earthquake.html
 
 **What Is the Pacific ‘Ring of Fire’?**\
 `Many of the world’s biggest earthquakes, volcanic eruptions and tsunamis occur along a chain of seismologically active regions that encircle the Pacific Ocean.`\

@@ -1,3 +1,7 @@
+**Russia’s Far East Suffers Damage From Earthquake and Tsunami**\
+`Regional authorities in Sakhalin Oblast declared an emergency after a tsunami hit the Kuril Islands, and Kamchatka region was watching for volcanic activity.`\
+https://nytimes.com/2025/07/30/world/asia/russia-far-east-earthquake.html
+
 **Sunderland reach €10.5m agreement to sign goalkeeper Roefs from NEC Nijmegen**\
 `The Dutch goalkeeper will undergo his Sunderland medical later today before signing a five-year deal with the newly-promoted side.`\
 https://nytimes.com/athletic/6524440/2025/07/30/sunderland-transfer-news-robin-roefs/
