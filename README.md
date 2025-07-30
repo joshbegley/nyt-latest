@@ -1,3 +1,7 @@
+**Gaza’s Hunger Is a Moral Crisis**\
+`Israel and the world can do much more to alleviate the emergency.`\
+https://nytimes.com/2025/07/30/opinion/gaza-hunger-war-israel-famine.html
+
 **Park Avenue Killer Bought Rifle for $1,400 From His Casino Boss**\
 `The man who gunned down four people at a Park Avenue office building left anti-psychotic medication in his Las Vegas apartment, and a note.`\
 https://nytimes.com/2025/07/30/nyregion/park-avenue-killer-rifle.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/30/us/lee-vogler-fire-attack-showcase-magazine-virgi
 **Criss-crossing routes in D.C. airspace leave little room for error.**\
 `By Elena Shao, Leanne Abraham, Eli Murray and Lazaro Gamio`\
 https://nytimes.com/live/2025/07/30/us/dc-plane-crash-hearing/criss-crossing-routes-in-dc-airspace-leave-little-room-for-error
-
-**Grand Jury Witnesses Against Epstein and Maxwell Were All Investigators**\
-`No victims or associates testified in the proceedings that led to indictments in the cases, which have been the subject of conspiracy theories pushed by President Trump’s supporters.`\
-https://nytimes.com/2025/07/30/nyregion/epstein-maxwell-grand-jury-witnesses.html
 

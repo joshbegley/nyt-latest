@@ -1,3 +1,7 @@
+**Park Avenue Killer Bought Rifle for $1,400 From His Casino Boss**\
+`The man who gunned down four people at a Park Avenue office building left anti-psychotic medication in his Las Vegas apartment, and a note.`\
+https://nytimes.com/2025/07/30/nyregion/park-avenue-killer-rifle.html
+
 **Candidate Trump Promised Oil Executives a Windfall. Now, They’re Getting It.**\
 `New tallies of the administration’s tax breaks and other incentives add up to tens of billions of dollars of benefits to the fossil fuel industry.`\
 https://nytimes.com/2025/07/30/climate/trumnp-campaign-funding-oil-industry-tax-breaks.html
