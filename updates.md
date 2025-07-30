@@ -1,3 +1,15 @@
+**Stanton won't return to outfield until he's ready, and the plan is to go slow**\
+`The Yankees are preparing Stanton for outfield duty to keep his bat in the lineup when Aaron Judge returns initially as a designated hitter.`\
+https://nytimes.com/athletic/6523884/2025/07/29/yankees-giancarlo-stanton-outfield-plan/
+
+**Ravens' Isaiah Likely goes down with ankle injury, marring spirited practice**\
+`Plus, rookie pass rusher Mike Green continues to impress and second-year WR Devontez Walker has looked like the team's most improved player.`\
+https://nytimes.com/athletic/6523837/2025/07/29/baltimore-ravens-isaiah-likely-injury/
+
+**Senate Confirms Susan Monarez as C.D.C. Director**\
+`Dr. Monarez, who has been the acting head of the Centers for Disease Control and Prevention since President Trump took office, was the president’s second pick for the job.`\
+https://nytimes.com/2025/07/29/us/politics/senate-confirms-susan-monarez-as-cdc-director.html
+
 **Powerful 8.0-Magnitude Earthquake Off Russia’s Coast Prompts Tsunami Alerts**\
 `Monitor warnings and predicted arrival times for the ocean wave.`\
 https://nytimes.com/interactive/2025/07/29/world/asia/tsunami-tracker-alaska-russia.html
