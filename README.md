@@ -1,3 +1,7 @@
+**Coco Gauff overcomes serve struggles to win first match since French Open**\
+`Gauff beats Danielle Collins in first round at Canadian Open despite 23 double faults.`\
+https://nytimes.com/athletic/6524178/2025/07/29/coco-gauff-wins-first-match-since-french-open/
+
 **Top F.D.A. Official Resigns Under Pressure**\
 `After turning down several new drugs and restricting use of another, Dr. Vinay Prasad drew the ire of the right-wing influencer Laura Loomer and others.`\
 https://nytimes.com/2025/07/29/health/vinay-prasad-fda-resigns-loomer.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6524058/2025/07/29/colorado-rb-charlie-offerdahl-re
 **Trump Administration Freezes $108 Million in Funds to Duke University**\
 `The university was accused of racial discrimination in its health care system, the latest high-profile school targeted and stripped of federal funding.`\
 https://nytimes.com/2025/07/29/us/politics/trump-duke-university-frozen-funding-discrimination.html
-
-**Seahawks offense bounces back, highlighted by run game, explosive plays**\
-`Sam Darnold hit Jaxon Smith-Njigba deep, and the offensive line rebounded after struggling Monday during the first day in pads.`\
-https://nytimes.com/athletic/6523968/2025/07/29/seahawks-training-camp-sam-darnold-run-game/
 
