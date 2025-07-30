@@ -1,3 +1,7 @@
+**Shohei Ohtani is on double-duty Wednesday. Here's how to watch his start in Cincinnati**\
+`Shohei Ohtani is at the plate and on the mound once again. Perhaps your coffee spot's barista will also become your bartender today.`\
+https://nytimes.com/athletic/6523242/2025/07/30/shohei-ohtani-pitching-dodgers-reds-how-to-watch/
+
 **2025 fantasy football overall, positional, PPR rankings and more: Training camp update**\
 `With his always-updated player rankings, Jake Ciely has you covered for the impending fantasy football draft season.`\
 https://nytimes.com/athletic/6523411/2025/07/30/fantasy-football-2025-rankings-overall-positional-ppr/
