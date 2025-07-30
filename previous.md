@@ -1,3 +1,7 @@
+**Chargers offense looks sloppy in final practice before Hall of Fame Game**\
+`Trey Lance will start at quarterback for the Chargers and play into the third quarter in Thursday’s Hall of Fame Game against the Lions. `\
+https://nytimes.com/athletic/6523969/2025/07/29/chargers-training-camp-offense-sloppy/
+
 **Cory Booker Accuses Democrats of Being ‘Complicit’ with Trump**\
 `A heated exchange erupted after Senator Catherine Cortez Masto, Democrat of Nevada, asked for unanimous approval to pass a bipartisan policing legislation. Senator Cory Booker, Democrat of New Jersey, objected and said that Democrats must challenge President Trump’s agenda at every opportunity.`\
 https://nytimes.com/video/us/politics/100000010312754/booker-cortez-masto-trump-exchange.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/podcasts/100000010309063/this-may-be-the-future-of-mex
 **Packers training camp: Matt LaFleur snaps, Matthew Golden shines and 8 more observations**\
 `LaFleur made his starting left tackle take a lap at the end of practice and six teammates joined Walker for his punishment.`\
 https://nytimes.com/athletic/6523725/2025/07/29/packers-training-camp-matt-lafleur-matthew-golden/
-
-**NFL temporarily closes NYC office after high-rise shooting injures employee**\
-`New York Mayor Eric Adams said there's “reason to believe” the gunman targeted the NFL, which he accused of hiding football's health risks.`\
-https://nytimes.com/athletic/6523873/2025/07/29/nfl-closing-nyc-headquarters-shooting-aftermath/
 
