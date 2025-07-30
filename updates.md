@@ -1,3 +1,7 @@
+**Did We Miss the Happy Ending in ‘Hamlet’?**\
+`Responding to a guest essay, readers offer different ways to view “Hamlet.”`\
+https://nytimes.com/2025/07/30/opinion/hamlet-william-shakespeare.html
+
 **Who Pays in Trump’s Trade War?**\
 `Whether tariffs drive up prices could have significant implications for the Federal Reserve.`\
 https://nytimes.com/2025/07/30/business/trade-tariffs-who-pays.html

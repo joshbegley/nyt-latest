@@ -1,3 +1,11 @@
+**Why the Fed’s renovations have drawn such ire from President Trump.**\
+`By Colby Smith`\
+https://nytimes.com/live/2025/07/30/business/federal-reserve-interest-rates/why-the-feds-renovations-have-drawn-such-ire-from-president-trump
+
+**Max Scherzer on Rob Manfred after Bryce Harper standoff: ‘I have a lot of questions'**\
+`Said Scherzer: “I'm just glad to hear guys are willing to stick up and stand up for each other."`\
+https://nytimes.com/athletic/6525298/2025/07/30/max-scherzer-manfred-bryce-harper/
+
 **Did We Miss the Happy Ending in ‘Hamlet’?**\
 `Responding to a guest essay, readers offer different ways to view “Hamlet.”`\
 https://nytimes.com/2025/07/30/opinion/hamlet-william-shakespeare.html
@@ -29,12 +37,4 @@ https://nytimes.com/video/world/middleeast/100000010313586/gaza-aid-airdrop-hung
 **Confirmation Slowdown Forces a Senate Showdown**\
 `Under pressure to show they are resisting President Trump, Democrats have insisted on recorded votes on every nominee, creating a bottleneck ahead of the August recess.`\
 https://nytimes.com/2025/07/30/us/senate-confirmation-slowdown.html
-
-**Is Tyreek Hill a top fantasy football rebound candidate, or has age caught up with him?**\
-`Michael Salfino takes a closer look at Tyreek Hill to determine if his 2024 slide was anomalous or a sign of age-based decline.`\
-https://nytimes.com/athletic/6525108/2025/07/30/fantasy-football-tyreek-hill-rebound-cabdidate-age/
-
-**In a Reversal, Key Hurricane-Monitoring Data Will Stay Online**\
-`The Department of Defense said it no longer planned to shut down a program that makes satellite data publicly available to researchers and forecasters.`\
-https://nytimes.com/2025/07/30/climate/hurricane-monitoring-data-defense-department.html
 
