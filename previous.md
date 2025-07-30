@@ -1,3 +1,7 @@
+**Inside Liverpool's commercial juggernaut: New Adidas deal, 1.7bn engagements and why Asia matters**\
+`The Anfield club's off-field growth has been exponential in recent seasons - this is how it's happened`\
+https://nytimes.com/athletic/6519560/2025/07/30/liverpool-kit-sponsor-deal-commercial/
+
 **Jack Hinshelwood 'happy to play anywhere, I just really want to be out on the pitch'**\
 `The versatile Brighton youngster talks his various positions, playing for England, and his idols at the club`\
 https://nytimes.com/athletic/6471368/2025/07/30/jack-hinshelwood-interview/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6522286/2025/07/30/chelsea-jorrel-hato-analysis/
 **Reno Shooting Shatters Lives at a Bachelor Party**\
 `The police said that a gunman had shot randomly at a group that was preparing to head home to California after a bachelor party weekend. Three people died in the shooting, and three others were injured.`\
 https://nytimes.com/2025/07/30/us/reno-casino-shooting-bachelor-party.html
-
-**The 10 players to keep an eye on over the rest of the transfer window**\
-`Over halfway to deadline day on September 1, several more high-profile moves are still on the cards this summer`\
-https://nytimes.com/athletic/6522769/2025/07/30/transfers-to-watch-players-transfer-window/
 

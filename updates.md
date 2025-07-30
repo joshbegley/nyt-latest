@@ -1,3 +1,7 @@
+**Inside Liverpool's commercial juggernaut: New Adidas deal, 1.7bn engagements and why Asia matters**\
+`The Anfield club's off-field growth has been exponential in recent seasons - this is how it's happened`\
+https://nytimes.com/athletic/6519560/2025/07/30/liverpool-kit-sponsor-deal-commercial/
+
 **Jack Hinshelwood 'happy to play anywhere, I just really want to be out on the pitch'**\
 `The versatile Brighton youngster talks his various positions, playing for England, and his idols at the club`\
 https://nytimes.com/athletic/6471368/2025/07/30/jack-hinshelwood-interview/
