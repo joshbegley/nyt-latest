@@ -1,3 +1,7 @@
+**Cory Booker Accuses Democrats of Being ‘Complicit’ with Trump**\
+`A heated exchange erupted after Senator Catherine Cortez Masto, Democrat of Nevada, asked for unanimous approval to pass a bipartisan policing legislation. Senator Cory Booker, Democrat of New Jersey, objected and said that Democrats must challenge President Trump’s agenda at every opportunity.`\
+https://nytimes.com/video/us/politics/100000010312754/booker-cortez-masto-trump-exchange.html
+
 **Stanton won't return to outfield until he's ready, and the plan is to go slow**\
 `The Yankees are preparing Stanton for outfield duty to keep his bat in the lineup when Aaron Judge returns initially as a designated hitter.`\
 https://nytimes.com/athletic/6523884/2025/07/29/yankees-giancarlo-stanton-outfield-plan/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6523725/2025/07/29/packers-training-camp-matt-lafle
 **NFL temporarily closes NYC office after high-rise shooting injures employee**\
 `New York Mayor Eric Adams said there's “reason to believe” the gunman targeted the NFL, which he accused of hiding football's health risks.`\
 https://nytimes.com/athletic/6523873/2025/07/29/nfl-closing-nyc-headquarters-shooting-aftermath/
-
-**Trump Admits Financial Penalties on Russia ‘May or May Not’ Work**\
-`President Trump’s threats have raised questions about how much leverage the United States has left with Moscow.`\
-https://nytimes.com/2025/07/29/us/politics/trump-sanctions-ukraine-russia.html
 

@@ -1,3 +1,7 @@
+**Cory Booker Accuses Democrats of Being ‘Complicit’ with Trump**\
+`A heated exchange erupted after Senator Catherine Cortez Masto, Democrat of Nevada, asked for unanimous approval to pass a bipartisan policing legislation. Senator Cory Booker, Democrat of New Jersey, objected and said that Democrats must challenge President Trump’s agenda at every opportunity.`\
+https://nytimes.com/video/us/politics/100000010312754/booker-cortez-masto-trump-exchange.html
+
 **Senate Confirms Susan Monarez as C.D.C. Director**\
 `Dr. Monarez, who has been the acting head of the Centers for Disease Control and Prevention since President Trump took office, was the president’s second pick for the job.`\
 https://nytimes.com/2025/07/29/us/politics/susan-monarez-cdc-director.html
