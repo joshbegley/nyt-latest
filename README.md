@@ -1,3 +1,11 @@
+**Former Barcelona forward Carles Perez injured after being bitten by dog in genital area**\
+`The former Spain youth international was attacked and injured by a dog after his move to Greece this summer.`\
+https://nytimes.com/athletic/6525456/2025/07/30/carles-perez-dog-bite-injury-celta-vigo-aris-thessaloniki/
+
+**Meta Forecasts Continued Spending as It Races to Build ‘Superintelligence’**\
+`The Silicon Valley giant, which has been on a spending spree to hire A.I. researchers, also posted a 36 percent quarterly increase in profit and a 22 percent jump in revenue.`\
+https://nytimes.com/2025/07/30/technology/meta-earnings-ai-spending.html
+
 **Skims Releases New Shapewear. For Your Face.**\
 `The latest product from Kim Kardashian’s company promises to sculpt the cheeks, neck and chin.`\
 https://nytimes.com/2025/07/30/style/skims-shapewear-face-kardashian.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6525619/2025/07/30/cincinnati-bengals-trey-hendrick
 **Trade grades: With Ke'Bryan Hayes add, Reds bank on the glove and hope for the bat**\
 `The move immediately makes the Reds deeper, and offers upside. For the Pirates, it's a hope for hitting down the road. `\
 https://nytimes.com/athletic/6525713/2025/07/30/kebryan-hayes-reds-pirates-mlb-trade-grades/
-
-**Rich Eisen is YouTube's leading play-by-play candidate for Chiefs-Chargers game: Sources**\
-`Eisen is the leading candidate to join Kurt Warner on YouTube’s first regular-season NFL game.`\
-https://nytimes.com/athletic/6525621/2025/07/30/rich-eisen-youtube-chiefs-chargers-game-nfl/
-
-**Takeaways from the Fed meeting.**\
-`By Colby Smith`\
-https://nytimes.com/live/2025/07/30/business/federal-reserve-interest-rates/takeaways-from-the-fed-meeting
 
