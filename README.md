@@ -1,3 +1,15 @@
+**O'Connor: In honor of Curt Flood's legacy, MLB players should never allow a salary cap**\
+`Juan Soto's contract "would have blown my father's mind," said Shelly Flood, whose dad paved the way to free agency at great sacrifice.`\
+https://nytimes.com/athletic/6523710/2025/07/30/mlb-salary-cap-curt-flood-legacy-rob-manfred/
+
+**Rangers schedule analysis: Big matchups, reunions, travel tips for 2025-26**\
+`When will the Rangers face their toughest tests of the coming season? Where should you eat on the road? We break it all down.`\
+https://nytimes.com/athletic/6522747/2025/07/30/new-york-rangers-nhl-schedule-season-analysis/
+
+**What to Know About the Pacific Tsunami**\
+`Vast stretches of the Pacific coastline were likely to see many hours of surging waves and tidal swells.`\
+https://nytimes.com/2025/07/30/us/tsunami-what-where-damage.html
+
 **What Does It Cost to Keep Workers Safe?**\
 `The deadly shooting in Midtown Manhattan raises questions about what’s needed now to adequately secure office buildings.`\
 https://nytimes.com/2025/07/30/business/dealbook/park-avenue-shooting-workplace-safety.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6524445/2025/07/30/mlb-trade-deadline-preview-the-p
 **Five key questions Ohio State must answer before Texas arrives**\
 `Breaking down the quarterback battle, defensive line questions and more Ohio State storylines as preseason camp begins.`\
 https://nytimes.com/athletic/6523460/2025/07/30/ohio-state-football-2025-camp-questions/
-
-**Abdul Carter practice diary: Giants rookie all business as he makes routine of wreaking havoc**\
-`There are times when Carter already looks like he could consistently dominate on an NFL field.`\
-https://nytimes.com/athletic/6523634/2025/07/30/ny-giants-abdul-carter-practice-diary/
-
-**Football’s Brain Injuries**\
-`We explain what we know about the disease after the shooting in Manhattan.`\
-https://nytimes.com/2025/07/30/briefing/footballs-brain-injuries.html
-
-**A Royal Send-off for Ozzy Osbourne, Prince of Darkness**\
-`On Wednesday, a cortege will take the singer’s coffin through the streets of his hometown, Birmingham, England.`\
-https://nytimes.com/2025/07/30/arts/music/ozzy-osbourne-funeral-procession-birmingham.html
 
