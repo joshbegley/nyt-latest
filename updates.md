@@ -1,3 +1,7 @@
+**Trump Administration Live Updates: Top Vaccine Official Leaves F.D.A. After Right-Wing Pressure**\
+``\
+https://nytimes.com/live/2025/07/30/us/trump-news
+
 **In Conversation with Brazil’s President Lula**\
 `In an interview with Jack Nicas of The New York Times, President Luiz Inácio Lula da Silva rejected President Trump’s demands for Brazil. Here’s how the United States and Brazil reached this point.`\
 https://nytimes.com/video/world/americas/100000010309751/in-conversation-with-brazils-president-lula.html

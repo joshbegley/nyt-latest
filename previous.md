@@ -1,3 +1,7 @@
+**Trump Administration Live Updates: Top Vaccine Official Leaves F.D.A. After Right-Wing Pressure**\
+``\
+https://nytimes.com/live/2025/07/30/us/trump-news
+
 **In Conversation with Brazil’s President Lula**\
 `In an interview with Jack Nicas of The New York Times, President Luiz Inácio Lula da Silva rejected President Trump’s demands for Brazil. Here’s how the United States and Brazil reached this point.`\
 https://nytimes.com/video/world/americas/100000010309751/in-conversation-with-brazils-president-lula.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6524522/2025/07/30/bev-priestman-manager-canada-wel
 **Vikings 53-man roster projection: Where do things stand after the first week of camp?**\
 `Who has stood out? What are the Vikings' plans at quarterback, running back, cornerback and elsewhere? Let's dive into our projection.`\
 https://nytimes.com/athletic/6522480/2025/07/30/minnesota-vikings-53-man-roster-projection/
-
-**History says Cowboys will get Micah Parsons deal done — but when?**\
-`Jerry Jones doesn't seem to be in a hurry to get a deal completed and is OK if Parsons doesn't practice so he stays healthy.`\
-https://nytimes.com/athletic/6521418/2025/07/30/micah-parsons-cowboys-contract-history-jerry-jones/
 
