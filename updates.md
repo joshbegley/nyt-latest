@@ -1,3 +1,19 @@
+**Trump Targets Copper With Tariffs, Though Not as Aggressively as Expected**\
+`The president stopped short of putting a 50 percent tariff on refined copper, as he had threatened earlier this year. The market reaction was swift anyway and prices tumbled.`\
+https://nytimes.com/2025/07/30/us/politics/trump-tariffs-copper.html
+
+**Canada to Recognize Palestinian State at the U.N. General Assembly**\
+`Canada joins France in making such a declaration, after months of increasing criticism of Israel by Prime Minister Mark Carney.`\
+https://nytimes.com/2025/07/30/world/canada/canada-palestinian-state-recognition.html
+
+**Oops, There May Be Vodka in That Energy Drink**\
+`A mix-up with a packaging supplier resulted in some cans of Celsius, an energy drink containing no alcohol, being filled with vodka seltzer.`\
+https://nytimes.com/2025/07/30/style/celsius-high-noon-recall-fda.html
+
+**What Tom Brady has taught Birmingham City... and what he thought of Wayne Rooney**\
+`New Amazon documentary 'Built in Birmingham: Brady & the Blues' charts the impact the legendary NFL quarterback has had on the English club`\
+https://nytimes.com/athletic/6524567/2025/07/30/tom-brady-birmingham-documentary-rooney/
+
 **Susan Monarez Faces Daunting Challenges as C.D.C. Director**\
 `The agency’s new leader must contend with reduced budgets, mass layoffs, political tumult and a boss determined to reshape public health.`\
 https://nytimes.com/2025/07/30/health/monarez-cdc-kennedy.html
