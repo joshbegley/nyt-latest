@@ -1,3 +1,11 @@
+**How Trump Is Attacking the Legal System, via the Legal System**\
+`The president has an outside-inside strategy to fight the judiciary.`\
+https://nytimes.com/2025/07/30/us/politics/trump-legal-system.html
+
+**The Changing Map of Palestinian Recognition**\
+`In the past week alone, three new countries have said they are ready to bestow recognition on a Palestinian state.`\
+https://nytimes.com/2025/07/30/world/middleeast/palestinian-state-recognition-maps.html
+
 **Judge Excoriates Trump Officials for Violations of Laws on Voice of America**\
 `The judge had ruled that the administration must restore news programming at Voice of America and has brought back only a fraction of the coverage it provided.`\
 https://nytimes.com/2025/07/30/us/politics/judge-excoriates-trump-officials-for-violations-of-laws-on-voice-of-america.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6525988/2025/07/30/red-sox-trade-deadline-jarren-du
 **Canada Is Set to Recognize Palestinian Statehood at U.N.**\
 `Prime Minister Mark Carney said Wednesday that Canada would join Britain in recognizing Palestinian statehood at the U.N. in September if the Palestinian Authority met certain conditions.`\
 https://nytimes.com/video/world/middleeast/100000010315205/canada-palestine-state-united-nations.html
-
-**South Korea Reaches Trade Deal With Trump**\
-`The agreement comes after other American allies, like Japan, clinched their own deals to partly moderate President Trump’s tariff threats.`\
-https://nytimes.com/2025/07/30/business/economy/trump-tariffs-south-korea.html
-
-**How Texas Republicans Want to Flip These Democratic Urban Districts**\
-`Texas Republicans unveiled a redrawn congressional map that they hope will result in a gain of five seats in the U.S. House after the 2026 midterm elections.`\
-https://nytimes.com/interactive/2025/07/30/us/politics/texas-gerrymandering-map-redistricting.html
 
