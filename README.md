@@ -30,7 +30,7 @@ https://nytimes.com/2025/07/30/world/africa/uganda-south-sudan-skirmish.html
 `NISAR, built jointly by NASA and India’s space agency and launched on Wednesday, will use radar to monitor tiny changes across our planet’s land and icy regions.`\
 https://nytimes.com/2025/07/30/science/space-nisar-nasa-india.html
 
-**We’re More Likely Than Ever to See Ourselves as Sick. Why?**\
+**Why Rising Rates of Autism and ADHD Might Be a Good Sign**\
 `There might be a kind of optimism in diagnosis creep.`\
 https://nytimes.com/2025/07/30/opinion/autism-adhd-diagnosis-creep.html
 
