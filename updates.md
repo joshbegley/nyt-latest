@@ -1,3 +1,11 @@
+**The Dodgers need to trade for a reliever. One they already acquired is showing promise**\
+`The Dodgers acquired Alexis Díaz in May and have already seem some tweaks to his delivery pay off.`\
+https://nytimes.com/athletic/6524254/2025/07/29/dodgers-trade-reliever-alexis-diaz/
+
+**Trump Prosecutor in L.A. Seeks to Drop Two High-Profile Criminal Cases**\
+`The new administration had already courted controversy in both cases. Now the Justice Department seeks to end them entirely.`\
+https://nytimes.com/2025/07/29/us/politics/trump-prosecutor-wiederhorn-kirk.html
+
 **Wednesday’s Earthquake Could Be One of the Largest on Record**\
 `It is the most powerful quake since the 2011 earthquake off the coast of Japan that triggered a 50-foot tsunami and the nuclear disaster at Fukushima.`\
 https://nytimes.com/2025/07/29/world/asia/earthquake-russia-record.html
