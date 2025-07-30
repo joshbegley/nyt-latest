@@ -1,3 +1,15 @@
+**Yankees add another righty bat, landing Austin Slater in trade with White Sox**\
+`Even after acquiring right-handed infielder Amed Rosario, the Yankees were still searching for a RHH outfielder to bolster their depth.`\
+https://nytimes.com/athletic/6525105/2025/07/30/mlb-yankees-white-sox-austin-slater-trade/
+
+**Powerful Quake Rattles Russia’s Far East but Causes Little Damage**\
+`A 8.8-magnitude earthquake shook the remote, sparsely populated Kamchatka region and set off tsunami waves. No serious injuries were reported, officials said.`\
+https://nytimes.com/2025/07/30/world/europe/russia-earthquake-kamchatka.html
+
+**Departing Flights Are Grounded at London Airports**\
+`The disruptions came after a company that provides air traffic control services in Britain said it had experienced a “technical issue.”`\
+https://nytimes.com/2025/07/30/world/europe/uk-flights-london-heathrow-airport-grounded.html
+
 **Think You Know Sunscreen? Take Our Quiz.**\
 `Find out if you’re an S.P.F. savant.`\
 https://nytimes.com/2025/07/30/well/sunscreen-quiz.html
