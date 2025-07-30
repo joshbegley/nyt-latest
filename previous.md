@@ -1,3 +1,11 @@
+**Senators grill Agriculture Dept. deputy over the agency’s reorganization plan.**\
+`By Linda Qiu`\
+https://nytimes.com/live/2025/07/30/us/trump-news/senators-grill-agriculture-dept-deputy-over-the-agencys-reorganization-plan
+
+**I Have Always Wondered if My Husband Is Bisexual. Is It OK to Ask Him?**\
+`Have I been in a lavender marriage all this time?`\
+https://nytimes.com/2025/07/30/magazine/husband-bisexual-ask-ethics.html
+
 **Brennan and Clapper: Let’s Set the Record Straight on Russia and 2016**\
 `We want to set the record straight and also sound a warning.`\
 https://nytimes.com/2025/07/30/opinion/trump-obama-treason-russia-miller.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/07/30/world/americas/trump-sanctions-brazil-judge-bolso
 **Why the Fed’s renovations have drawn such ire from President Trump.**\
 `By Colby Smith`\
 https://nytimes.com/live/2025/07/30/business/federal-reserve-interest-rates/why-the-feds-renovations-have-drawn-such-ire-from-president-trump
-
-**Max Scherzer on Rob Manfred after Bryce Harper standoff: ‘I have a lot of questions'**\
-`Said Scherzer: “I'm just glad to hear guys are willing to stick up and stand up for each other."`\
-https://nytimes.com/athletic/6525298/2025/07/30/max-scherzer-manfred-bryce-harper/
-
-**Did We Miss the Happy Ending in ‘Hamlet’?**\
-`Responding to a guest essay, readers offer different ways to view “Hamlet.”`\
-https://nytimes.com/2025/07/30/opinion/hamlet-william-shakespeare.html
 

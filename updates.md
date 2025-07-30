@@ -1,3 +1,11 @@
+**Senators grill Agriculture Dept. deputy over the agency’s reorganization plan.**\
+`By Linda Qiu`\
+https://nytimes.com/live/2025/07/30/us/trump-news/senators-grill-agriculture-dept-deputy-over-the-agencys-reorganization-plan
+
+**I Have Always Wondered if My Husband Is Bisexual. Is It OK to Ask Him?**\
+`Have I been in a lavender marriage all this time?`\
+https://nytimes.com/2025/07/30/magazine/husband-bisexual-ask-ethics.html
+
 **Brennan and Clapper: Let’s Set the Record Straight on Russia and 2016**\
 `We want to set the record straight and also sound a warning.`\
 https://nytimes.com/2025/07/30/opinion/trump-obama-treason-russia-miller.html
