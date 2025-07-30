@@ -8,7 +8,7 @@ https://nytimes.com/athletic/6523837/2025/07/29/baltimore-ravens-isaiah-likely-i
 
 **Senate Confirms Susan Monarez as C.D.C. Director**\
 `Dr. Monarez, who has been the acting head of the Centers for Disease Control and Prevention since President Trump took office, was the president’s second pick for the job.`\
-https://nytimes.com/2025/07/29/us/politics/senate-confirms-susan-monarez-as-cdc-director.html
+https://nytimes.com/2025/07/29/us/politics/susan-monarez-cdc-director.html
 
 **Build Your Own Disaster-Prep Kit**\
 `Our experts have spent hundreds of hours testing tools and supplies to help you survive earthquakes, wildfires, floods, hurricanes, and much more.`\

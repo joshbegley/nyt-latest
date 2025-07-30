@@ -1,3 +1,7 @@
+**Senate Confirms Susan Monarez as C.D.C. Director**\
+`Dr. Monarez, who has been the acting head of the Centers for Disease Control and Prevention since President Trump took office, was the president’s second pick for the job.`\
+https://nytimes.com/2025/07/29/us/politics/susan-monarez-cdc-director.html
+
 **Stanton won't return to outfield until he's ready, and the plan is to go slow**\
 `The Yankees are preparing Stanton for outfield duty to keep his bat in the lineup when Aaron Judge returns initially as a designated hitter.`\
 https://nytimes.com/athletic/6523884/2025/07/29/yankees-giancarlo-stanton-outfield-plan/
