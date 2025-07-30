@@ -1,3 +1,7 @@
+**Wednesday’s Earthquake Could Be One of the Largest on Record**\
+`It is the most powerful quake since the 2011 earthquake off the coast of Japan that triggered a 50-foot tsunami and the nuclear disaster at Fukushima.`\
+https://nytimes.com/2025/07/29/world/asia/earthquake-russia-record.html
+
 **What we're hearing about the Mets' pitching plans**\
 `The New York Mets are said to be actively shopping starting pitcher Paul Blackburn ahead of Thursday's trade deadline.`\
 https://nytimes.com/athletic/6524170/2025/07/29/mets-pitching-plans-trade-deadline-paul-blackburn/

@@ -1,3 +1,7 @@
+**Wednesday’s Earthquake Could Be One of the Largest on Record**\
+`It is the most powerful quake since the 2011 earthquake off the coast of Japan that triggered a 50-foot tsunami and the nuclear disaster at Fukushima.`\
+https://nytimes.com/2025/07/29/world/asia/earthquake-russia-record.html
+
 **What we're hearing about the Mets' pitching plans**\
 `The New York Mets are said to be actively shopping starting pitcher Paul Blackburn ahead of Thursday's trade deadline.`\
 https://nytimes.com/athletic/6524170/2025/07/29/mets-pitching-plans-trade-deadline-paul-blackburn/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6524101/2025/07/29/mlb-trade-deadline-market-slow/
 **Live Updates: Tsunami Alerts in U.S. and Japan After One of Largest Quakes on Record**\
 `The 8.8-magnitude earthquake off Russia’s coast led to widespread warnings of potentially destructive waves. Officials in Hawaii told people to seek higher ground.`\
 https://nytimes.com/live/2025/07/29/world/earthquake-tsunami-russia-japan-hawaii
-
-**Five key Giants trade deadline questions: Should Buster Posey prioritize the future?**\
-`With the Giants sinking in the standings, some are ready to give up on this season and sell at the deadline. Is Posey among them?`\
-https://nytimes.com/athletic/6523974/2025/07/29/sf-giants-mlb-trade-deadline-questions-targets/
 
