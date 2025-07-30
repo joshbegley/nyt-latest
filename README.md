@@ -1,3 +1,7 @@
+**What’s on Cupid’s Mind at Versailles? AI Can Tell You.**\
+`An AI-powered feature in the historic site’s app allows visitors to chat with 20 outdoor statues throughout the famous Baroque gardens.`\
+https://nytimes.com/2025/07/30/arts/design/versailles-ai-app.html
+
 **At swimming worlds, Luca Urlando and Jack Alexy make loud statements for U.S.**\
 `Luca Urlando, Jack Alexy and Claire Weinstein all showed why they're swimmers to watch leading to the L.A. Olympics.`\
 https://nytimes.com/athletic/6524644/2025/07/30/luca-urlando-jack-alexy-swimming-world-championships/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6523588/2025/07/30/nascar-2026-schedule-mexico-city
 **MLB players should never allow a salary cap. It would be an insult to Curt Flood's legacy**\
 `Juan Soto's contract "would have blown my father's mind," said Shelly Flood, whose dad paved the way to free agency at great sacrifice.`\
 https://nytimes.com/athletic/6523710/2025/07/30/mlb-salary-cap-curt-flood-legacy-rob-manfred/
-
-**Rangers schedule analysis: Big matchups, reunions, travel tips for 2025-26**\
-`When will the Rangers face their toughest tests of the coming season? Where should you eat on the road? We break it all down.`\
-https://nytimes.com/athletic/6522747/2025/07/30/new-york-rangers-nhl-schedule-season-analysis/
 
