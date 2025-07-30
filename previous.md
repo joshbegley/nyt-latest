@@ -1,40 +1,40 @@
-**The NBA bubble, 5 years later: 'The most exclusive basketball camp in world history’**\
-`Mike Breen, Adam Silver and others share memories and reflect on the good, the bad and the one-of-a-kind from Florida.`\
-https://nytimes.com/athletic/6523879/2025/07/30/nba-bubble-season-five-years-disney/
+**2025 fantasy football overall, positional, PPR rankings and more: Training camp update**\
+`With his always-updated player rankings, Jake Ciely has you covered for the impending fantasy football draft season.`\
+https://nytimes.com/athletic/6523411/2025/07/30/fantasy-football-2025-rankings-overall-positional-ppr/
 
-**Trump Administration Told Taiwan’s President to Avoid New York Stopover**\
-`The Taiwanese leader canceled U.S. transit visits after being urged to change his plans, two officials said. Washington has been in talks with Beijing over trade and a possible summit.`\
-https://nytimes.com/2025/07/30/world/asia/trump-taiwan-china.html
+**How NWSL teams plan to beat the annual mid-summer miasma**\
+`NWSL teams build strategies, tailored for the sweltering dog days of August, to reignite buzz, refill seats and restore the early momentum.`\
+https://nytimes.com/athletic/6522594/2025/07/30/nwsl-summer-rivalry-weekend-down-to-business/
 
-**Xhaka completes €20m Sunderland transfer**\
-`Sunderland have paid €15m up front with a further €5m in potential add-ons for the 32-year-old midfielder.`\
-https://nytimes.com/athletic/6519872/2025/07/30/granit-xhaka-sunderland-transfer-fee/
+**Bev Priestman 'didn't feel safe' in Canada after spying scandal**\
+`The head coach's ban from football-related activities came after a scandal at last year's Olympics.`\
+https://nytimes.com/athletic/6524522/2025/07/30/bev-priestman-manager-canada-wellington-phoenix/
 
-**The Wyndham Championship closes out the PGA Tour's regular season. Here's how to watch**\
-`Wyndham is the last stop before the FedEx Cup trims the field to 70 for the St. Jude Championship, making every birdie a playoff lifeline. `\
-https://nytimes.com/athletic/6523596/2025/07/30/pga-tour-golf-wyndham-championship-2025-how-to-watch-odds/
+**Vikings 53-man roster projection: Where do things stand after the first week of camp?**\
+`Who has stood out? What are the Vikings' plans at quarterback, running back, cornerback and elsewhere? Let's dive into our projection.`\
+https://nytimes.com/athletic/6522480/2025/07/30/minnesota-vikings-53-man-roster-projection/
 
-**The New York Times International Edition in Print for Thursday, July 31, 2025**\
-``\
-https://nytimes.com/issue/todaysinyt/2025/07/30/todays-new-york-times-international-edition
+**History says Cowboys will get Micah Parsons deal done — but when?**\
+`Jerry Jones doesn't seem to be in a hurry to get a deal completed and is OK if Parsons doesn't practice so he stays healthy.`\
+https://nytimes.com/athletic/6521418/2025/07/30/micah-parsons-cowboys-contract-history-jerry-jones/
 
-**Sprinter Fred Kerley pulls out of USATF Championships, will miss Worlds**\
-`Kerley, 30, won silver at the 2020 Olympics in Tokyo and bronze in Paris last year, and won the world 100m title in Eugene in 2022.`\
-https://nytimes.com/athletic/6524495/2025/07/30/fred-kerley-100m-world-championships/
+**Why Cam Thomas is 'the hardest one' of the four major restricted free agents to assess**\
+`No NBA team is more desperate for shot creation than the Brooklyn Nets. So what's the hold up?`\
+https://nytimes.com/athletic/6523626/2025/07/30/cam-thomas-nba-free-agency-brooklyn-nets/
 
-**The NFL is back (kinda). Here's how to watch Lions vs. Chargers in the Hall of Fame Game**\
-`This year's Hall of Fame Game in Canton features the Detroit Lions and Los Angeles Chargers. Here's how to tune in.`\
-https://nytimes.com/athletic/6523099/2025/07/30/hall-of-fame-game-chargers-lions-how-to-watch-odds/
+**Anthony Volpe's 'defensive slump' can't continue past the trade deadline**\
+`"I know the standard that I have for myself," Volpe said, "and I'm just going to keep pushing until I just prove it to myself every day."`\
+https://nytimes.com/athletic/6524344/2025/07/30/yankees-anthony-volpe-defensive-slump-cant-continue-trade-deadline/
 
-**A Corner of ‘Fake Peace’ in Gaza, Torn Apart by an Israeli Strike**\
-`The Israeli military said it killed at least three Hamas operatives at Al-Baqa Cafe. It also killed a journalist, an artist and two best friends reconciling after a fight.`\
-https://nytimes.com/2025/07/30/world/middleeast/gaza-cafe-strike.html
+**Cliques and rivalries: Which MLB teams are trading pals, and which ones trading foes?**\
+`Building a matrix to determine which teams always trade with one another, and which ones wouldn't dream of it. `\
+https://nytimes.com/athletic/6521187/2025/07/30/mlb-trade-deadline-matrix-cliques-rivals-executives/
 
-**What we've learned about the Patriots through 6 training camp practices**\
-`Drake Maye and the offense have been just so-so, and K'Lavon Chaisson has stood out on D. But is Demario Douglas set to break out?`\
-https://nytimes.com/athletic/6523075/2025/07/30/patriots-training-camp-drake-maye-douglas/
+**Close Calls and Skipped Lines: The Fraught State of Organ Donation**\
+`People across the United States have endured rushed or premature attempts to remove their organs.`\
+https://nytimes.com/2025/07/30/podcasts/the-daily/organ-transplants-donors-alive.html
 
-**2025 dynasty and rookie-only fantasy football rankings: Training camp update**\
-`Now that training camp is underway, Jake Ciely offers his updated dynasty and rookie-only fantasy football rankings. `\
-https://nytimes.com/athletic/6523444/2025/07/30/fantasy-football-2025-dynasty-rookie-rankings-training-camp-preseason/
+**Titans QB Cam Ward isn't finished proving doubters wrong: 'There's a target on my back'**\
+`“I don’t care about the hype. I don’t care about social media. All I care about is this 100-yard field."`\
+https://nytimes.com/athletic/6522784/2025/07/30/titans-cam-ward-training-camp/
 
