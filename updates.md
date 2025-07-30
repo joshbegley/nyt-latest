@@ -1,3 +1,11 @@
+**Little and large batting combinations can be devastating in cricket - here's why**\
+`Zak Crawley and Ben Duckett may be a contrast in style and appearance but their partnership for England works`\
+https://nytimes.com/athletic/6522565/2025/07/30/england-cricket-crawley-duckett/
+
+**Russia’s Far East Suffers Damage From Earthquake and Tsunami**\
+`Regional authorities in Sakhalin Oblast declared an emergency after a tsunami hit the Kuril Islands, and Kamchatka region was watching for volcanic activity.`\
+https://nytimes.com/2025/07/30/world/asia/russias-far-east-suffers-damage-from-earthquake-and-tsunami.html
+
 **Russia’s Far East Suffers Damage From Earthquake and Tsunami**\
 `Regional authorities in Sakhalin Oblast declared an emergency after a tsunami hit the Kuril Islands, and Kamchatka Krai was watching for volcanic activity.`\
 https://nytimes.com/2025/07/30/world/asia/russias-far-east-suffers-damage-from-earthquake-and-tsunami.html
