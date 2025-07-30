@@ -1,3 +1,19 @@
+**House Democrats Sue ICE for Barring Them From Detention Facilities**\
+`The 12 Democrats accused the Trump administration of violating the law when it turned them away from immigrant detention sites and imposed a new policy limiting congressional access.`\
+https://nytimes.com/2025/07/30/us/politics/house-democrats-ice-lawsuit.html
+
+**Why Did Such a Powerful Earthquake Produce Such a Weak Tsunami?**\
+`The quake in Russia on Wednesday was among the strongest ever recorded — but perhaps not strong enough.`\
+https://nytimes.com/2025/07/30/science/russia-earthquake-tsunami-physics.html
+
+**U.S. Imposes Sanctions on Brazilian Judge Overseeing Bolsonaro Coup Case**\
+`Justice Alexandre de Moraes, who has been in the cross-hairs of the Trump administration, will face sanctions in a significant escalation of pressure on Brazil.`\
+https://nytimes.com/2025/07/30/world/americas/trump-sanctions-brazil-judge-bolsonaro.html
+
+**Why the Fed’s renovations have drawn such ire from President Trump.**\
+`By Colby Smith`\
+https://nytimes.com/live/2025/07/30/business/federal-reserve-interest-rates/why-the-feds-renovations-have-drawn-such-ire-from-president-trump
+
 **Seahawks expected to extend GM John Schneider for 4 years**\
 `Schneider is entering his 16th season with the Seahawks.`\
 https://nytimes.com/athletic/6525319/2025/07/30/seahawks-gm-contract-extension-john-schneider/

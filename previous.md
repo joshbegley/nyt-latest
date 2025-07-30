@@ -1,15 +1,3 @@
-**Seahawks expected to extend GM John Schneider for 4 years**\
-`Schneider is entering his 16th season with the Seahawks.`\
-https://nytimes.com/athletic/6525319/2025/07/30/seahawks-gm-contract-extension-john-schneider/
-
-**Angels add relievers Andrew Chafin, Luis Garcia in hopes of playoff push**\
-`The Los Angeles Angels are officially buyers.`\
-https://nytimes.com/athletic/6525404/2025/07/30/angels-andrew-chafin-mlb-trade/
-
-**What’s in Our Queue? ‘Love Island’ and More**\
-`Text by Nia Decaille`\
-https://nytimes.com/card/2025/07/30/arts/editors-recommendations-loveislanduk
-
 **Senators grill Agriculture Dept. deputy over the agency’s reorganization plan.**\
 `By Linda Qiu`\
 https://nytimes.com/live/2025/07/30/us/trump-news/senators-grill-agriculture-dept-deputy-over-the-agencys-reorganization-plan
@@ -33,4 +21,20 @@ https://nytimes.com/athletic/6525312/2025/07/30/carlos-correa-astros-twin-trade-
 **Canada’s Measles Outbreak Exceeds Cases in the U.S.**\
 `Some doctors in Alberta have criticized officials for not declaring a health emergency in the western province where measles infections are surging.`\
 https://nytimes.com/2025/07/30/world/canada/canada-alberta-measles-outbreak.html
+
+**House Democrats Sue ICE for Barring Them From Detention Facilities**\
+`The 12 Democrats accused the Trump administration of violating the law when it turned them away from immigrant detention sites and imposed a new policy limiting congressional access.`\
+https://nytimes.com/2025/07/30/us/politics/house-democrats-ice-lawsuit.html
+
+**Why Did Such a Powerful Earthquake Produce Such a Weak Tsunami?**\
+`The quake in Russia on Wednesday was among the strongest ever recorded — but perhaps not strong enough.`\
+https://nytimes.com/2025/07/30/science/russia-earthquake-tsunami-physics.html
+
+**U.S. Imposes Sanctions on Brazilian Judge Overseeing Bolsonaro Coup Case**\
+`Justice Alexandre de Moraes, who has been in the cross-hairs of the Trump administration, will face sanctions in a significant escalation of pressure on Brazil.`\
+https://nytimes.com/2025/07/30/world/americas/trump-sanctions-brazil-judge-bolsonaro.html
+
+**Why the Fed’s renovations have drawn such ire from President Trump.**\
+`By Colby Smith`\
+https://nytimes.com/live/2025/07/30/business/federal-reserve-interest-rates/why-the-feds-renovations-have-drawn-such-ire-from-president-trump
 
