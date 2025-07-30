@@ -1,3 +1,7 @@
+**Russia’s Far East Suffers Damage From Earthquake and Tsunami**\
+`Regional authorities in Sakhalin Oblast declared an emergency after a tsunami hit the Kuril Islands, and Kamchatka Oblast was watching for volcanic activity.`\
+https://nytimes.com/2025/07/30/world/asia/russias-far-east-suffers-damage-from-earthquake-and-tsunami.html
+
 **What is the Pacific ‘Ring of Fire’?**\
 `Many of the world’s biggest earthquakes, volcanic eruptions and tsunamis occur along a chain of seismologically active regions that encircle the Pacific Ocean.`\
 https://nytimes.com/article/ring-of-fire-earthquake-tsunami-volcano.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/30/world/asia/tsunami-warning-california.html
 **Wednesday Briefing: U.K. May Recognize a Palestinian State**\
 `Plus, the Booker Prize nominees`\
 https://nytimes.com/2025/07/30/briefing/britain-palestinian-state-gaza-us-tsunami-warning-ukraine-russia-trump.html
-
-**With first trade complete, Twins wait to see how far 'down the rabbit hole' front office goes**\
-`With Thursday's 5 p.m. CT trade deadline arriving fast, the Twins promise to be one of baseball's most intriguing teams.`\
-https://nytimes.com/athletic/6524299/2025/07/30/twins-first-trade-complete-front-office-rabbit-hole/
 
