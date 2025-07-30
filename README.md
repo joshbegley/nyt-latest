@@ -1,3 +1,7 @@
+**Newcastle's Willock taken off on stretcher in pre-season friendly**\
+`Willock went down after a challenge in the final minute, seemingly in agony clutching the back of his leg around the ankle area.`\
+https://nytimes.com/athletic/6524896/2025/07/30/joe-willock-newcastle-injury-update/
+
 **Sunderland hold talks over Marc Guiu loan dal**\
 `The 19-year-old scored six goals in 16 Chelsea appearances, of which seven were starts, last season.`\
 https://nytimes.com/athletic/6513327/2025/07/30/sunderland-transfers-marc-guiu-chelsea/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/30/us/politics/india-tariffs-trump-russia.html
 **Lowetide: Why the Oilers should sign Mattias Ekholm to an extension**\
 `Ekholm is the second most important name for the Oilers to re-sign after Connor McDavid.`\
 https://nytimes.com/athletic/6521716/2025/07/30/edmonton-oilers-mattias-ekholm-contract-extension-why/
-
-**Who are the witnesses at Wednesday’s crash hearing?**\
-`By Karoun Demirjian`\
-https://nytimes.com/live/2025/07/30/us/dc-plane-crash-hearing/who-are-the-witnesses-at-wednesdays-crash-hearing
 
