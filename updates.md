@@ -1,3 +1,7 @@
+**The New York Times in Print for Wednesday, July 30, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/07/30/todays-new-york-times
+
 **Russia’s Far East Suffers Damage From Earthquake and Tsunami**\
 `Regional authorities in Sakhalin Oblast declared an emergency after a tsunami hit the Kuril Islands, and Kamchatka region was watching for volcanic activity.`\
 https://nytimes.com/2025/07/30/world/asia/russia-far-east-earthquake.html
