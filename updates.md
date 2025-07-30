@@ -1,3 +1,15 @@
+**Sprinter Fred Kerley pulls out of USATF Championships, will miss Worlds**\
+`Kerley, 30, won silver at the 2020 Olympics in Tokyo and bronze in Paris last year, and won the world 100m title in Eugene in 2022.`\
+https://nytimes.com/athletic/6524495/2025/07/30/fred-kerley-100m-world-championships/
+
+**The NFL is back (kinda). Here's how to watch Lions vs. Chargers in the Hall of Fame Game**\
+`This year's Hall of Fame Game in Canton features the Detroit Lions and Los Angeles Chargers. Here's how to tune in.`\
+https://nytimes.com/athletic/6523099/2025/07/30/hall-of-fame-game-chargers-lions-how-to-watch-odds/
+
+**A Corner of ‘Fake Peace’ in Gaza, Torn Apart by an Israeli Strike**\
+`The Israeli military said it killed at least three Hamas operatives at Al-Baqa Cafe. It also killed a journalist, an artist and two best friends reconciling after a fight.`\
+https://nytimes.com/2025/07/30/world/middleeast/gaza-cafe-strike.html
+
 **What we've learned about the Patriots through 6 training camp practices**\
 `Drake Maye and the offense have been just so-so, and K'Lavon Chaisson has stood out on D. But is Demario Douglas set to break out?`\
 https://nytimes.com/athletic/6523075/2025/07/30/patriots-training-camp-drake-maye-douglas/
