@@ -1,3 +1,7 @@
+**Mexico City is out for NASCAR's 2026 schedule; Chicagoland likely in: Sources**\
+`NASCAR will go without an international race in 2026, as the logistics proved difficult. Chicagoland is poised to take Mexico City's spot.`\
+https://nytimes.com/athletic/6523588/2025/07/30/nascar-2026-schedule-mexico-city-chicagoland/
+
 **O'Connor: In honor of Curt Flood's legacy, MLB players should never allow a salary cap**\
 `Juan Soto's contract "would have blown my father's mind," said Shelly Flood, whose dad paved the way to free agency at great sacrifice.`\
 https://nytimes.com/athletic/6523710/2025/07/30/mlb-salary-cap-curt-flood-legacy-rob-manfred/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6524630/2025/07/30/england-india-fifth-test-stokes-
 **The Pulse: MLB trade deadline on the fence**\
 `Welcome to The Pulse, The Athletic's daily newsletter.`\
 https://nytimes.com/athletic/6524445/2025/07/30/mlb-trade-deadline-preview-the-pulse/
-
-**Five key questions Ohio State must answer before Texas arrives**\
-`Breaking down the quarterback battle, defensive line questions and more Ohio State storylines as preseason camp begins.`\
-https://nytimes.com/athletic/6523460/2025/07/30/ohio-state-football-2025-camp-questions/
 
