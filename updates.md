@@ -1,3 +1,19 @@
+**How Trump Is Attacking the Legal System, via the Legal System**\
+`The president has an outside-inside strategy to fight the judiciary.`\
+https://nytimes.com/2025/07/30/us/politics/trump-legal-system.html
+
+**The Changing Map of Palestinian Recognition**\
+`In the past week alone, three new countries have said they are ready to bestow recognition on a Palestinian state.`\
+https://nytimes.com/2025/07/30/world/middleeast/palestinian-state-recognition-maps.html
+
+**Judge Excoriates Trump Officials for Violations of Laws on Voice of America**\
+`The judge had ruled that the administration must restore news programming at Voice of America and has brought back only a fraction of the coverage it provided.`\
+https://nytimes.com/2025/07/30/us/politics/judge-excoriates-trump-officials-for-violations-of-laws-on-voice-of-america.html
+
+**Mets acquire closer Ryan Helsley from Cardinals for prospects: Sources**\
+`The Mets send three prospects back to St. Louis for Helsley, who is a free agent at the end of the season.`\
+https://nytimes.com/athletic/6519507/2025/07/30/mlb-mets-ryan-helsley-trade/
+
 **Cubs’ clubhouse waiting to see what the front office has in store for trade deadline**\
 `Will Cubs president of baseball operations Jed Hoyer feel emboldened to maximize the club’s World Series odds this year?`\
 https://nytimes.com/athletic/6526054/2025/07/30/cubs-trade-deadline-milwaukee-brewers/

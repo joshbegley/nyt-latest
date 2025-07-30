@@ -1,3 +1,7 @@
+**As MLB trade deadline approaches, Guardians ponder plans for Steven Kwan, Shane Bieber**\
+`"I would love to," Kwan said about working out an extension with Cleveland. "I love it here. I love everything about this place."`\
+https://nytimes.com/athletic/6525944/2025/07/30/guardians-mlb-trade-deadline-steven-kwan-shane-bieber/
+
 **How Trump Is Attacking the Legal System, via the Legal System**\
 `The president has an outside-inside strategy to fight the judiciary.`\
 https://nytimes.com/2025/07/30/us/politics/trump-legal-system.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/30/us/colorado-dentist-james-craig-poisoned-wife.htm
 **Red Sox at trade deadline: San Diego still after Jarren Duran, Garrett Crochet pushed back**\
 `The Padres believe they might be one of the only teams that can still get Duran at the deadline.`\
 https://nytimes.com/athletic/6525988/2025/07/30/red-sox-trade-deadline-jarren-duran-garrett-crochet/
-
-**Canada Is Set to Recognize Palestinian Statehood at U.N.**\
-`Prime Minister Mark Carney said Wednesday that Canada would join Britain in recognizing Palestinian statehood at the U.N. in September if the Palestinian Authority met certain conditions.`\
-https://nytimes.com/video/world/middleeast/100000010315205/canada-palestine-state-united-nations.html
 
