@@ -1,3 +1,7 @@
+**What we're hearing about the Mets' pitching plans**\
+`The New York Mets are said to be actively shopping starting pitcher Paul Blackburn ahead of Thursday's trade deadline.`\
+https://nytimes.com/athletic/6524170/2025/07/29/mets-pitching-plans-trade-deadline-paul-blackburn/
+
 **Hawaii Declares Emergency After Massive Quake Off Russia Causes Tsunami**\
 `Gov. Josh Green urged people in coastal areas to seek higher ground, with waves expected to reach the state within hours. “Do not wait,” he said.`\
 https://nytimes.com/2025/07/29/us/hawaii-tsunami-emergency-earthquake.html

@@ -1,3 +1,7 @@
+**What we're hearing about the Mets' pitching plans**\
+`The New York Mets are said to be actively shopping starting pitcher Paul Blackburn ahead of Thursday's trade deadline.`\
+https://nytimes.com/athletic/6524170/2025/07/29/mets-pitching-plans-trade-deadline-paul-blackburn/
+
 **Hawaii Declares Emergency After Massive Quake Off Russia Causes Tsunami**\
 `Gov. Josh Green urged people in coastal areas to seek higher ground, with waves expected to reach the state within hours. “Do not wait,” he said.`\
 https://nytimes.com/2025/07/29/us/hawaii-tsunami-emergency-earthquake.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/07/29/world/earthquake-tsunami-russia-japan-hawaii
 **Five key Giants trade deadline questions: Should Buster Posey prioritize the future?**\
 `With the Giants sinking in the standings, some are ready to give up on this season and sell at the deadline. Is Posey among them?`\
 https://nytimes.com/athletic/6523974/2025/07/29/sf-giants-mlb-trade-deadline-questions-targets/
-
-**Hug watch heard 'round the world: Jhoan Duran remains a Twin despite internet panic**\
-`Multiple Twins sources confirmed that Duran had not been traded, as many fans suspected: "He hugged Frank — like he always does."`\
-https://nytimes.com/athletic/6524059/2025/07/29/twins-fake-hugs-mlb-trade-deadline/
 
