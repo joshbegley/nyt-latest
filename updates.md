@@ -1,3 +1,11 @@
+**Review: A Flamenco Powerhouse Is Still the Star but Not the Whole Show**\
+`Noche Flamenca’s new production was less focused than usual on its standout, Soledad Barrio, making room for talented soloists.`\
+https://nytimes.com/2025/07/30/arts/dance/review-soledad-barrio-noche-flamenca.html
+
+**Trump’s Mideast Envoy Heads to Israel Amid Global Fury Over Gaza Hunger**\
+`It will be the first known visit in months for Steve Witkoff, President Trump’s lead on the cease-fire and hostage talks. Since his last trip, conditions in the enclave have worsened.`\
+https://nytimes.com/2025/07/30/world/middleeast/trump-envoy-israel-gaza.html
+
 **Yankees add another righty bat, landing Austin Slater in trade with White Sox**\
 `Even after acquiring right-handed infielder Amed Rosario, the Yankees were still searching for a RHH outfielder to bolster their depth.`\
 https://nytimes.com/athletic/6525105/2025/07/30/mlb-yankees-white-sox-austin-slater-trade/

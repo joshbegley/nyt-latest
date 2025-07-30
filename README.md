@@ -1,3 +1,7 @@
+**With trade deadline looming, Cubs call up Moisés Ballesteros over Owen Caissie**\
+`The Cubs are likely to deal from their position player depth to acquire pitching. That they are showcasing Ballesteros adds intrigue.`\
+https://nytimes.com/athletic/6525131/2025/07/30/cubs-moises-ballesteros-owen-caissie-trade-deadline/
+
 **Review: A Flamenco Powerhouse Is Still the Star but Not the Whole Show**\
 `Noche Flamenca’s new production was less focused than usual on its standout, Soledad Barrio, making room for talented soloists.`\
 https://nytimes.com/2025/07/30/arts/dance/review-soledad-barrio-noche-flamenca.html
@@ -33,8 +37,4 @@ https://nytimes.com/newsgraphics/card-story/argentina-chile-summer-skiing
 **gws-aja-wilson-wnba-las-vegas**\
 `(No description)`\
 https://nytimes.com/newsgraphics/card-story/aja-wilson-wnba-las-vegas
-
-**Team K League 1 Newcastle 0: Woe for Willock, another defeat, Park impresses**\
-`Newcastle's pre-season continues to be dominated by Alexander Isak speculation - and defeats. The latest coming in Suwon`\
-https://nytimes.com/athletic/6524960/2025/07/30/newcastle-defeat-tour-howe-willock-park/
 
