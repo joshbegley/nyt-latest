@@ -1,3 +1,7 @@
+**Adams Revives Bally’s Casino Bid by Vetoing Council’s Vote to Block It**\
+`Mayor Eric Adams said the move was not an endorsement of the $4 billion casino project in the Bronx, which, if built, would result in a $115 million payout to the Trump Organization.`\
+https://nytimes.com/2025/07/30/nyregion/adams-veto-ballys-casino-trump.html
+
 **Trump Targets Copper With Tariffs, Though Not as Aggressively as Expected**\
 `The president stopped short of putting a 50 percent tariff on refined copper, as he had threatened earlier this year. The market reaction was swift anyway and prices tumbled.`\
 https://nytimes.com/2025/07/30/us/politics/trump-tariffs-copper.html

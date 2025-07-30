@@ -1,3 +1,15 @@
+**Cruise Ships Sailed to Safety Amid Tsunami Warnings, Leaving Some Passengers Behind**\
+`In Hawaii, ships were directed out to sea by officials, but some guests who were on shore excursions couldn’t make it back in time to get aboard.`\
+https://nytimes.com/2025/07/30/travel/tsunami-hawaii-cruise-ships-passengers.html
+
+**Trump Donor Pleads Guilty to Bilking People Who Wanted Access and Visas**\
+`Sherry Xue Li and a partner took in more than $30 million from unwitting foreign investors as part of a nearly decadelong scheme.`\
+https://nytimes.com/2025/07/30/nyregion/campaign-finance-plea.html
+
+**Mariners add bullpen help, acquire lefty Caleb Ferguson from Pirates: Source**\
+`Ferguson gives Seattle a good weapon vs. lefty hitters, holding them to a .172 batting average and .451 OPS this season.`\
+https://nytimes.com/athletic/6525913/2025/07/30/mariners-caleb-ferguson-trade-pirates/
+
 **Adams Revives Bally’s Casino Bid by Vetoing Council’s Vote to Block It**\
 `Mayor Eric Adams said the move was not an endorsement of the $4 billion casino project in the Bronx, which, if built, would result in a $115 million payout to the Trump Organization.`\
 https://nytimes.com/2025/07/30/nyregion/adams-veto-ballys-casino-trump.html
@@ -7,7 +19,7 @@ https://nytimes.com/2025/07/30/nyregion/adams-veto-ballys-casino-trump.html
 https://nytimes.com/2025/07/30/us/politics/trump-tariffs-copper.html
 
 **Canada to Recognize Palestinian State at the U.N. General Assembly**\
-`Canada joins France in making such a declaration, after months of increasing criticism of Israel by Prime Minister Mark Carney.`\
+`Canada joins France and Britain in taking similar steps, after months of increasing criticism of Israel by Prime Minister Mark Carney.`\
 https://nytimes.com/2025/07/30/world/canada/canada-palestinian-state-recognition.html
 
 **Oops, There May Be Vodka in That Energy Drink**\
@@ -25,16 +37,4 @@ https://nytimes.com/2025/07/30/health/monarez-cdc-kennedy.html
 **Chris Nowinski, named in Manhattan gunman’s letter, reflects on CTE**\
 `"In some aspects, we've made a lot of progress. But there's still so far to go, and I’ve got to figure out a way to get there faster."`\
 https://nytimes.com/athletic/6525685/2025/07/30/nyc-shooting-nfl-headquarters-cte-note-chris-nowinski/
-
-**Thursday Briefing: Trump’s Steep Tariffs on Brazil**\
-`Plus, the future of Mexican music.`\
-https://nytimes.com/2025/07/30/briefing/trump-tariffs-brazil-india-palestine.html
-
-**Butter, but Even Better**\
-`Plus: a new farm hotel in Sweden, a group exhibition in Jaipur and more recommendations from T Magazine.`\
-https://nytimes.com/2025/07/30/t-magazine/seasoned-butter-restaurants.html
-
-**Investigators Home in on Altitude Discrepancy in Army Helicopter Before Potomac Crash**\
-`Flight instruments probably led the Black Hawk crew to believe the helicopter was lower than it actually was before the collision with a commercial airplane on Jan. 29.`\
-https://nytimes.com/2025/07/30/us/politics/army-helicopter-potomac-crash.html
 
