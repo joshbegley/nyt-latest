@@ -7,7 +7,7 @@ https://nytimes.com/2025/07/29/us/politics/trump-us-attorneys-california-nevada.
 https://nytimes.com/2025/07/29/us/japan-earthquake-tsunami-north-pacific-ocean.html
 
 **Chargers offense looks sloppy in final practice before Hall of Fame Game**\
-`Trey Lance will start at quarterback for the Chargers and play into the third quarter in Thursday’s Hall of Fame Game against the Lions. `\
+`Trey Lance will start at quarterback and play into the third quarter of Thursday's Hall of Fame Game against the Lions. `\
 https://nytimes.com/athletic/6523969/2025/07/29/chargers-training-camp-offense-sloppy/
 
 **Cory Booker Accuses Democrats of Being ‘Complicit’ with Trump**\

@@ -1,3 +1,7 @@
+**Chargers offense looks sloppy in final practice before Hall of Fame Game**\
+`Trey Lance will start at quarterback and play into the third quarter of Thursday's Hall of Fame Game against the Lions. `\
+https://nytimes.com/athletic/6523969/2025/07/29/chargers-training-camp-offense-sloppy/
+
 **Trump Bypasses Congress to Keep Interim Prosecutors in California and Nevada**\
 `A similar approach in New Jersey has led to cancellations of court proceedings, as judges question whether the president’s designee for U.S. Attorney has any authority.`\
 https://nytimes.com/2025/07/29/us/politics/trump-us-attorneys-california-nevada.html
