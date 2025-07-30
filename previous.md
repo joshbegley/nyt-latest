@@ -1,3 +1,15 @@
+**Colorado RB Charlie Offerdahl retires from football due to concussions**\
+`Offerdahl said he's applying to dental schools, joking that he looked forward to making his teammates' grilles and vaneers in the future.`\
+https://nytimes.com/athletic/6524058/2025/07/29/colorado-rb-charlie-offerdahl-retires-concussions/
+
+**Trump Administration Freezes $108 Million in Funds to Duke University**\
+`The university was accused of racial discrimination in its health care system, the latest high-profile school targeted and stripped of federal funding.`\
+https://nytimes.com/2025/07/29/us/politics/trump-duke-university-frozen-funding-discrimination.html
+
+**Seahawks offense bounces back, highlighted by run game, explosive plays**\
+`Sam Darnold hit Jaxon Smith-Njigba deep, and the offensive line rebounded after struggling Monday during the first day in pads.`\
+https://nytimes.com/athletic/6523968/2025/07/29/seahawks-training-camp-sam-darnold-run-game/
+
 **Gunman’s Mental Health History Did Not Prohibit Gun Purchase**\
 `The man who shot and killed four people in Manhattan had legally purchased a firearm in Nevada, where he lived, despite a record of mental health problems.`\
 https://nytimes.com/2025/07/29/nyregion/park-avenue-gunman-mental-health-history.html
@@ -25,16 +37,4 @@ https://nytimes.com/video/us/politics/100000010312754/booker-cortez-masto-trump-
 **Stanton won't return to outfield until he's ready, and the plan is to go slow**\
 `The Yankees are preparing Stanton for outfield duty to keep his bat in the lineup when Aaron Judge returns initially as a designated hitter.`\
 https://nytimes.com/athletic/6523884/2025/07/29/yankees-giancarlo-stanton-outfield-plan/
-
-**Ravens' Isaiah Likely goes down with ankle injury, marring spirited practice**\
-`Plus, rookie pass rusher Mike Green continues to impress and second-year WR Devontez Walker has looked like the team's most improved player.`\
-https://nytimes.com/athletic/6523837/2025/07/29/baltimore-ravens-isaiah-likely-injury/
-
-**Senate Confirms Susan Monarez as C.D.C. Director**\
-`Dr. Monarez, who has been the acting head of the Centers for Disease Control and Prevention since President Trump took office, was the president’s second pick for the job.`\
-https://nytimes.com/2025/07/29/us/politics/susan-monarez-cdc-director.html
-
-**Build Your Own Disaster-Prep Kit**\
-`Our experts have spent hundreds of hours testing tools and supplies to help you survive earthquakes, wildfires, floods, hurricanes, and much more.`\
-https://nytimes.com/wirecutter/reviews/emergency-preparedness-kit-builder/
 

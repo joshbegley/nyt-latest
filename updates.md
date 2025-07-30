@@ -1,3 +1,15 @@
+**Colorado RB Charlie Offerdahl retires from football due to concussions**\
+`Offerdahl said he's applying to dental schools, joking that he looked forward to making his teammates' grilles and vaneers in the future.`\
+https://nytimes.com/athletic/6524058/2025/07/29/colorado-rb-charlie-offerdahl-retires-concussions/
+
+**Trump Administration Freezes $108 Million in Funds to Duke University**\
+`The university was accused of racial discrimination in its health care system, the latest high-profile school targeted and stripped of federal funding.`\
+https://nytimes.com/2025/07/29/us/politics/trump-duke-university-frozen-funding-discrimination.html
+
+**Seahawks offense bounces back, highlighted by run game, explosive plays**\
+`Sam Darnold hit Jaxon Smith-Njigba deep, and the offensive line rebounded after struggling Monday during the first day in pads.`\
+https://nytimes.com/athletic/6523968/2025/07/29/seahawks-training-camp-sam-darnold-run-game/
+
 **Gunman’s Mental Health History Did Not Prohibit Gun Purchase**\
 `The man who shot and killed four people in Manhattan had legally purchased a firearm in Nevada, where he lived, despite a record of mental health problems.`\
 https://nytimes.com/2025/07/29/nyregion/park-avenue-gunman-mental-health-history.html
