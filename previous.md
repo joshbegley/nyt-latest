@@ -1,3 +1,19 @@
+**Aaron Ramsdale to Newcastle United is a move rooted in ambition - on both sides**\
+`Ramsdale's arrival is not one Newcastle United supporters craved but the analysis shows he could evolve the way Eddie Howe's side play`\
+https://nytimes.com/athletic/6523174/2025/07/30/aaron-ramsdale-newcastle-united-transfer/
+
+**What it's like filming Welcome to Wrexham: 'Parkinson and the players have had to trust us'**\
+`A departing Welcome to Wrexham producer tells The Athletic how he made 'friends for life' chronicling Wrexham's transformation `\
+https://nytimes.com/athletic/6497225/2025/07/30/welcome-to-wrexham-producer-documentary/
+
+**Arsenal have spent £187m: Do they need to sell? What is their PSR position? Who could go?**\
+`Arsenal have been busy in the transfer window. But if they are to continue, do they need to sell first? `\
+https://nytimes.com/athletic/6510412/2025/07/30/arsenal-transfers-psr-sales/
+
+**United? Yanited? Man U? What to call Manchester United - and what it says about you**\
+`Manchester United are one of the most famous sports teams on the planet but people call them all different things`\
+https://nytimes.com/athletic/6078314/2025/07/30/what-call-manchester-united/
+
 **Why Chelsea want Jorrel Hato - the teenager with experience beyond his years**\
 `Chelsea are on the verge of agreeing a deal with Ajax for Jorrel Hato worth in excess of €40million (£34.8m; $46.7m)`\
 https://nytimes.com/athletic/6522286/2025/07/30/chelsea-jorrel-hato-analysis/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6521369/2025/07/30/connections-sports-edition-hints
 **How a Chinese Brand Reshaped Hong Kong’s Food Delivery Scene**\
 `Meituan, the Chinese food delivery giant, tested its global expansion in Hong Kong, where its Keeta service displaced a rival before moving to other markets.`\
 https://nytimes.com/2025/07/30/business/meituan-keeta-deliveroo-hong-kong.html
-
-**Editors’ Note: July 30, 2025**\
-`The following Editors’ Note and corrections appeared in print on Wednesday, July 30, 2025.`\
-https://nytimes.com/2025/07/30/pageoneplus/editors-note-july-30-2025.html
-
-**The Dodgers need to trade for a reliever. One they already acquired is showing promise**\
-`The Dodgers acquired Alexis Díaz in May and have already seem some tweaks to his delivery pay off.`\
-https://nytimes.com/athletic/6524254/2025/07/29/dodgers-trade-reliever-alexis-diaz/
-
-**Trump Prosecutor in L.A. Seeks to Drop Two High-Profile Criminal Cases**\
-`The new administration had already courted controversy in both cases. Now the Justice Department seeks to end them entirely.`\
-https://nytimes.com/2025/07/29/us/politics/trump-prosecutor-wiederhorn-kirk.html
-
-**Wednesday’s Earthquake Could Be One of the Largest on Record**\
-`It is the most powerful quake since the 2011 earthquake off the coast of Japan that triggered a 50-foot tsunami and the nuclear disaster at Fukushima.`\
-https://nytimes.com/2025/07/29/world/asia/earthquake-russia-record.html
 
