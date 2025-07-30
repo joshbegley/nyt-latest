@@ -1,3 +1,15 @@
+**Trump Bypasses Congress to Keep Interim Prosecutors in California and Nevada**\
+`A similar approach in New Jersey has led to cancellations of court proceedings, as judges question whether the president’s designee for U.S. Attorney has any authority.`\
+https://nytimes.com/2025/07/29/us/politics/trump-us-attorneys-california-nevada.html
+
+**Tsunami Alerts Issued for U.S. and Japan After Huge Pacific Quake**\
+`The 8.7-magnitude earthquake off Russia’s coast led to warnings and advisories for parts of Japan, Hawaii and Alaska.`\
+https://nytimes.com/2025/07/29/us/japan-earthquake-tsunami-north-pacific-ocean.html
+
+**Powerful 8.7-Magnitude Earthquake Off Russia’s Coast Prompts Tsunami Alerts**\
+`Monitor warnings and predicted arrival times for the ocean wave.`\
+https://nytimes.com/interactive/2025/07/29/world/asia/tsunami-tracker-alaska-russia.html
+
 **Chargers offense looks sloppy in final practice before Hall of Fame Game**\
 `Trey Lance will start at quarterback for the Chargers and play into the third quarter in Thursday’s Hall of Fame Game against the Lions. `\
 https://nytimes.com/athletic/6523969/2025/07/29/chargers-training-camp-offense-sloppy/
