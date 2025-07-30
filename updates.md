@@ -1,3 +1,7 @@
+**Jack Hinshelwood 'happy to play anywhere, I just really want to be out on the pitch'**\
+`The versatile Brighton youngster talks his various positions, playing for England, and his idols at the club`\
+https://nytimes.com/athletic/6471368/2025/07/30/jack-hinshelwood-interview/
+
 **The Scheffler paradox: How sportspeople cope when winning is not enough**\
 `The new Open champion's admission that winning can leave you unfulfilled was surprising but his words resonated with other elite athletes`\
 https://nytimes.com/athletic/6519928/2025/07/30/scott-scheffler-open-winning/
