@@ -1,4 +1,8 @@
 **Mets star Juan Soto leaves game after fouling ball off foot**\
+`Soto completed his at-bat but did not come out to play defense and was replaced by Tyrone Taylor.`\
+https://nytimes.com/athletic/6524211/2025/07/29/mets-juan-soto-leaves-game-foot/
+
+**Mets star Juan Soto leaves game after fouling ball off foot**\
 `Soto completed his at-bat, but did not come out to play defense and was replaced by Tyrone Taylor.`\
 https://nytimes.com/athletic/6524211/2025/07/29/mets-juan-soto-leaves-game-foot/
 
