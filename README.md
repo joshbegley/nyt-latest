@@ -1,3 +1,11 @@
+**N.Y.C. Subway and Bus Fares Are Likely to Increase to $3 in January 2026**\
+`The proposed 10-cent increase, the first since 2023, has been long in the works and would come after the mothballing of the MetroCard.`\
+https://nytimes.com/2025/07/30/nyregion/nyc-subway-bus-fares-2026-mta.html
+
+**Broncos' Marvin Mims eager to add to playmaking menu after breakout second season**\
+`The receiver has been targeted with a heavy diet of screens and deep balls early in his career, but his route tree should blossom this fall.`\
+https://nytimes.com/athletic/6525716/2025/07/30/marvin-mims-broncos-training-camp/
+
 **Federal Reserve Keeps Interest Rates Steady for Fifth Meeting in a Row**\
 `The Federal Reserve kept interest rates steady despite rare dissenting views from two members of the board.`\
 https://nytimes.com/video/us/politics/100000010314769/powell-steady-interest-rates.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/07/30/briefing/trump-feud-brazil-fed-rate-pause.html
 **What Kamala Harris’s Decision Not to Run for Governor Means for 2028**\
 `A Harris ally says “all options are on the table” but cautions against reading too much into the former vice president’s choice to skip the California governor race.`\
 https://nytimes.com/2025/07/30/us/politics/kamala-harris-2028-democrats.html
-
-**Cruise Ships Sailed to Safety Amid Tsunami Warnings, Leaving Some Passengers Behind**\
-`In Hawaii, ships were directed out to sea by officials, but some guests who were on shore excursions couldn’t make it back in time to get aboard.`\
-https://nytimes.com/2025/07/30/travel/tsunami-hawaii-cruise-ships-passengers.html
-
-**Trump Donor Pleads Guilty to Bilking People Who Wanted Access and Visas**\
-`Sherry Xue Li and a partner took in more than $30 million from unwitting foreign investors as part of a nearly decadelong scheme.`\
-https://nytimes.com/2025/07/30/nyregion/campaign-finance-plea.html
 
