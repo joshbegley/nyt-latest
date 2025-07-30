@@ -1,3 +1,15 @@
+**Top F.D.A. Official Resigns Under Pressure**\
+`After turning down several new drugs and restricting use of another, Dr. Vinay Prasad drew the ire of the right-wing influencer Laura Loomer and others.`\
+https://nytimes.com/2025/07/29/health/vinay-prasad-fda-resigns-loomer.html
+
+**What I'm hearing about the Cardinals' trade deadline with less than 48 hours to go**\
+`Steven Matz has thrived as a late-inning reliever for St. Louis, but opposing clubs eye him as a swingman option`\
+https://nytimes.com/athletic/6523845/2025/07/29/cardinals-mlb-trade-deadline-relievers/
+
+**Gently Apply**\
+`Thomas Byrne and Daniel Bodily make their collaboration debut in The New York Times.`\
+https://nytimes.com/2025/07/29/crosswords/daily-puzzle-2025-07-30.html
+
 **Four reasons for MLB’s glacial trade market — and why it’s likely to change soon**\
 `Teams, players and odd circumstances have led to a methodical pace during trade deadline season; history says it's the calm before the storm`\
 https://nytimes.com/athletic/6524101/2025/07/29/mlb-trade-deadline-market-slow/
@@ -7,7 +19,7 @@ https://nytimes.com/athletic/6524101/2025/07/29/mlb-trade-deadline-market-slow/
 https://nytimes.com/live/2025/07/29/world/earthquake-tsunami-russia-japan-hawaii
 
 **Five key Giants trade deadline questions: Should Buster Posey prioritize the future?**\
-`With the Giants sinking in the standings, some are ready to give up on this season and sell at the deadline. Is Buster Posey among them?`\
+`With the Giants sinking in the standings, some are ready to give up on this season and sell at the deadline. Is Posey among them?`\
 https://nytimes.com/athletic/6523974/2025/07/29/sf-giants-mlb-trade-deadline-questions-targets/
 
 **Hug watch heard 'round the world: Jhoan Duran remains a Twin despite internet panic**\
@@ -25,16 +37,4 @@ https://nytimes.com/2025/07/29/us/politics/trump-duke-university-frozen-funding-
 **Seahawks offense bounces back, highlighted by run game, explosive plays**\
 `Sam Darnold hit Jaxon Smith-Njigba deep, and the offensive line rebounded after struggling Monday during the first day in pads.`\
 https://nytimes.com/athletic/6523968/2025/07/29/seahawks-training-camp-sam-darnold-run-game/
-
-**Gunman’s Mental Health History Did Not Prohibit Gun Purchase**\
-`The man who shot and killed four people in Manhattan had legally purchased a firearm in Nevada, where he lived, despite a record of mental health problems.`\
-https://nytimes.com/2025/07/29/nyregion/park-avenue-gunman-mental-health-history.html
-
-**Senate, Rejecting Whistle-Blower Alarms, Confirms Bove to Appeals Court**\
-`The Trump loyalist was narrowly approved as Republicans brushed aside concerns about his conduct as a senior Justice Department official.`\
-https://nytimes.com/2025/07/29/us/politics/emil-bove-confirmed-appeals-judge.html
-
-**Trump Bypasses Congress to Keep Interim Prosecutors in California and Nevada**\
-`A similar approach in New Jersey has led to cancellations of court proceedings, as judges question whether the president’s designee for U.S. Attorney has any authority.`\
-https://nytimes.com/2025/07/29/us/politics/trump-us-attorneys-california-nevada.html
 
