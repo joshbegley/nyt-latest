@@ -1,3 +1,11 @@
+**Pilots for Army Black Hawk Discussed Changing Course Before Crash**\
+`The maneuver might have taken the helicopter out of the direct path of a passenger jet as it was trying to land at Reagan Airport on Jan. 29.`\
+https://nytimes.com/2025/07/30/us/politics/black-hawk-reagan-crash-transcripts.html
+
+**Manchester United prioritising Benjamin Sesko move**\
+`Ollie Watkins also has admirers at Old Trafford but Aston Villa told United early in the window that the 29-year-old is not for sale.`\
+https://nytimes.com/athletic/6519737/2025/07/30/benjamin-sesko-manchester-united-transfers/
+
 **gws-happy-gilmore-shooter-mcgavin-christopher-mcdonald**\
 `(No description)`\
 https://nytimes.com/newsgraphics/card-story/happy-gilmore-shooter-mcgavin-christopher-mcdonald
