@@ -34,7 +34,7 @@ https://nytimes.com/2025/07/30/world/asia/russia-far-east-earthquake.html
 `Many of the world’s biggest earthquakes, volcanic eruptions and tsunamis occur along a chain of seismologically active regions that encircle the Pacific Ocean.`\
 https://nytimes.com/article/ring-of-fire-earthquake-tsunami-volcano.html
 
-**Israel Destroyed Gaza’s Health System. Palestinians Will Die for Years to Come.**\
-`Many in Gaza will not survive, not because of their injuries alone but because of the lack of a health care system to treat them.`\
-https://nytimes.com/2025/07/30/opinion/gaza-genocide-hospitals-health-system-israel.html
+**The New York Times in Print for Wednesday, July 30, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/07/30/todays-new-york-times
 
