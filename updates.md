@@ -1,3 +1,7 @@
+**Barcelona agree €44m sponsorship deal with DR Congo**\
+`The sponsorship ensures the central African nation's logo of "DRC, coeur de l'Afrique" will appear on the back of all Barca training kits.`\
+https://nytimes.com/athletic/6497789/2025/07/30/barcelona-kit-sponsor-dr-congo/
+
 **Newcastle's Willock taken off on stretcher in pre-season friendly**\
 `Willock went down after a challenge in the final minute, seemingly in agony clutching the back of his leg around the ankle area.`\
 https://nytimes.com/athletic/6524896/2025/07/30/joe-willock-newcastle-injury-update/
