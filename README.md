@@ -1,5 +1,17 @@
+**Rick Venturi unfiltered: Colts analyst breaks down practice, Indy's all-or-nothing season**\
+`Venturi wants to see a more confident Anthony Richardson, a more mature AD Mitchell and a lot more from this year's Colts. `\
+https://nytimes.com/athletic/6524035/2025/07/30/colts-rick-venturi-anthony-richardson-training-camp/
+
+**The F.D.A.’s Panel on Antidepressants During Pregnancy Was Alarmingly Biased**\
+`It went against a medical consensus and may scare women who need help.`\
+https://nytimes.com/2025/07/30/opinion/fda-pregnancy-antidepressants-prozac.html
+
+**Are Tight Jeans and Cologne Reason Enough to Stop Dating a Nice Man?**\
+`A reader is having trouble overlooking certain aspects of the personal presentation of a man whom she otherwise likes quite a lot.`\
+https://nytimes.com/2025/07/30/style/relationship-deal-breakers.html
+
 **Olympic star Léon Marchand crushes 200-meter IM world record at swimming worlds**\
-`Léon Marchand, who won four golds in Paris, lowered Ryan Lochte's 14-year-old mark by more than 1.3 seconds in Wednesday's semifinals.`\
+`Marchand, who won four golds in Paris, lowered Ryan Lochte's 14-year-old mark by more than 1.3 seconds in Wednesday's semifinals.`\
 https://nytimes.com/athletic/6524775/2025/07/30/leon-marchand-200-meter-im-world-record-swimming-olympics/
 
 **Gyokeres could feature in Spurs friendly; Gabriel, Calafiori out**\
@@ -25,16 +37,4 @@ https://nytimes.com/2025/07/30/business/us-economy-grew-in-second-quarter-as-tar
 **Oprah Opens Maui Road to Help Residents Flee After Tsunami Warning**\
 `The billionaire media mogul opened a road on her property, giving people a route to evacuate from coastal areas to higher ground.`\
 https://nytimes.com/2025/07/30/us/oprah-winfrey-road-hawaii-tsunami-maui.html
-
-**'If you don't know who Lottie Woad is, you don't follow golf'**\
-`The Englishwoman missed out on $600,000 recently as she was still an amateur - only to win on her pro debut. Next up: The Women's Open...`\
-https://nytimes.com/athletic/6522729/2025/07/30/lottie-woad-golf-amateur-professional/
-
-**Live Updates: Federal Investigators Set to Begin Hearings On D.C. Plane Crash**\
-`The National Transportation Safety Board is also expected to release a trove of documents related to the fatal midair collision in January between an Army helicopter and a regional jet at Reagan Airport.`\
-https://nytimes.com/live/2025/07/30/us/dc-plane-crash-hearing
-
-**Mike Trout on Angels manager's benches-clearing defense after HBPs: 'The boys love it'**\
-`Trout was one of four Angels hit by a pitch Tuesday. Manager Ray Montgomery yelled at Bruce Bochy about throwing pitches over the plate.`\
-https://nytimes.com/athletic/6524435/2025/07/30/angels-hit-by-pitch-montgomery-trout/
 
