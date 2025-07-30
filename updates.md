@@ -1,3 +1,15 @@
+**Bill Barring Stock Trading for Congress Advances With Trump Carveout**\
+`The bill passed the committee with the support of every Democrat and only one Republican, its sponsor, who modified it to shield President Trump from a divestment requirement.`\
+https://nytimes.com/2025/07/30/us/politics/senate-stock-trading-bill-congress-trump-carveout.html
+
+**Chelsea reach Hato agreement with Ajax with defender to join on seven-year deal**\
+`The Netherlands defender, 19, is set to move to Stamford Bridge after supervisory board approval.`\
+https://nytimes.com/athletic/6519667/2025/07/30/jorrel-hato-chelsea-transfer-news/
+
+**Brandt Tilis discusses Bryce Young's contract situation: It 'will get figured out'**\
+`Tilis worked on Patrick Mahomes' extension in KC. He's not making any promises at this point about how Young's situation plays out.`\
+https://nytimes.com/athletic/6525351/2025/07/30/panthers-bryce-young-contract-situation/
+
 **Gaza’s Hunger Is a Moral Crisis**\
 `Israel and the world can do much more to alleviate the emergency.`\
 https://nytimes.com/2025/07/30/opinion/gaza-hunger-war-israel-famine.html
