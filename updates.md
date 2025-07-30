@@ -1,3 +1,7 @@
+**Gaza’s Hunger Is a Moral Crisis**\
+`Israel and the world can do much more to alleviate the emergency.`\
+https://nytimes.com/2025/07/30/opinion/gaza-hunger-war-israel-famine.html
+
 **Park Avenue Killer Bought Rifle for $1,400 From His Casino Boss**\
 `The man who gunned down four people at a Park Avenue office building left anti-psychotic medication in his Las Vegas apartment, and a note.`\
 https://nytimes.com/2025/07/30/nyregion/park-avenue-killer-rifle.html
