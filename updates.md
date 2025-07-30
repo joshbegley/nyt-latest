@@ -1,3 +1,15 @@
+**Trump Escalated His Feud With Brazil**\
+`Also, Kamala Harris will not run for California governor. Here’s the latest at the end of Wednesday.`\
+https://nytimes.com/2025/07/30/briefing/trump-feud-brazil-fed-rate-pause.html
+
+**What Kamala Harris’s Decision Not to Run for Governor Means for 2028**\
+`A Harris ally says “all options are on the table” but cautions against reading too much into the former vice president’s choice to skip the California governor race.`\
+https://nytimes.com/2025/07/30/us/politics/kamala-harris-2028-democrats.html
+
+**Trade grade: Mariners add lefty bullpen help they need in Caleb Ferguson deal with Pirates**\
+`Ferguson gives Seattle a good weapon vs. lefty hitters, holding them to a .172 batting average and .451 OPS this season.`\
+https://nytimes.com/athletic/6525913/2025/07/30/mariners-caleb-ferguson-trade-grade-pirates/
+
 **Cruise Ships Sailed to Safety Amid Tsunami Warnings, Leaving Some Passengers Behind**\
 `In Hawaii, ships were directed out to sea by officials, but some guests who were on shore excursions couldn’t make it back in time to get aboard.`\
 https://nytimes.com/2025/07/30/travel/tsunami-hawaii-cruise-ships-passengers.html
