@@ -7,7 +7,7 @@ https://nytimes.com/2025/07/29/us/politics/emil-bove-confirmed-appeals-judge.htm
 https://nytimes.com/2025/07/29/us/politics/trump-us-attorneys-california-nevada.html
 
 **Tsunami Alerts Issued for U.S. and Japan After Huge Pacific Quake**\
-`The 8.7-magnitude earthquake off Russia’s coast led to warnings and advisories for parts of Japan, Hawaii and Alaska.`\
+`The 8.7-magnitude earthquake off Russia’s coast led to warnings and advisories for parts of Japan and Alaska. Russian officials were checking on schools and hospitals.`\
 https://nytimes.com/2025/07/29/us/japan-earthquake-tsunami-north-pacific-ocean.html
 
 **Chargers offense looks sloppy in final practice before Hall of Fame Game**\

@@ -1,3 +1,7 @@
+**Tsunami Alerts Issued for U.S. and Japan After Huge Pacific Quake**\
+`The 8.7-magnitude earthquake off Russia’s coast led to warnings and advisories for parts of Japan and Alaska. Russian officials were checking on schools and hospitals.`\
+https://nytimes.com/2025/07/29/us/japan-earthquake-tsunami-north-pacific-ocean.html
+
 **Senate, Rejecting Whistle-Blower Alarms, Confirms Bove to Appeals Court**\
 `The Trump loyalist was narrowly approved as Republicans brushed aside concerns about his conduct as a senior Justice Department official.`\
 https://nytimes.com/2025/07/29/us/politics/emil-bove-confirmed-appeals-judge.html
