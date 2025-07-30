@@ -1,3 +1,15 @@
+**Is Tyreek Hill a top fantasy football rebound candidate, or has age caught up with him?**\
+`Michael Salfino takes a closer look at Tyreek Hill to determine if his 2024 slide was anomalous or a sign of age-based decline.`\
+https://nytimes.com/athletic/6525108/2025/07/30/fantasy-football-tyreek-hill-rebound-cabdidate-age/
+
+**In a Reversal, Key Hurricane-Monitoring Data Will Stay Online**\
+`The Department of Defense said it no longer planned to shut down a program that makes satellite data publicly available to researchers and forecasters.`\
+https://nytimes.com/2025/07/30/climate/hurricane-monitoring-data-defense-department.html
+
+**Laura Dahlmeier, Gold Medal-Winning German Biathlete, Dies in Rockfall**\
+`Ms. Dahlmeier, 31, an experienced mountaineer, was climbing in Pakistan when she was hit by falling rocks, officials said.`\
+https://nytimes.com/2025/07/30/world/asia/laura-dahlmeier-olympian-died-accident-pakistan.html
+
 **Tensions Between Trump and Powell at Tipping Point Ahead of Fed Meeting**\
 `President Trump wants lower interest rates, but Jerome H. Powell, the chair of the Federal Reserve, is not yet ready to deliver them.`\
 https://nytimes.com/2025/07/30/business/trump-powell-fed-tensions.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6524441/2025/07/30/arsenal-viktor-gyokeres-intervie
 **Delta Pilot Is Charged With 24 Felonies in Child Sex Abuse Case**\
 `The pilot was removed from the cockpit of a plane after it landed in San Francisco on Saturday night. A woman was also charged in a related felony complaint.`\
 https://nytimes.com/2025/07/30/us/delta-pilot-child-sex-abuse-charges.html
-
-**John Fetterman to Publish an ‘Unapologetic’ Memoir This Fall**\
-`The Pennsylvania senator will recount political battles and physical and mental health challenges in “Unfettered.”`\
-https://nytimes.com/2025/07/30/books/john-fetterman-memoir.html
-
-**With trade deadline looming, Cubs call up Moisés Ballesteros over Owen Caissie**\
-`The Cubs are likely to deal from their position player depth to acquire pitching. That they are showcasing Ballesteros adds intrigue.`\
-https://nytimes.com/athletic/6525131/2025/07/30/cubs-moises-ballesteros-owen-caissie-trade-deadline/
-
-**Review: A Flamenco Powerhouse Is Still the Star but Not the Whole Show**\
-`Noche Flamenca’s new production was less focused than usual on its standout, Soledad Barrio, making room for talented soloists.`\
-https://nytimes.com/2025/07/30/arts/dance/review-soledad-barrio-noche-flamenca.html
 

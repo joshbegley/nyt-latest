@@ -1,3 +1,15 @@
+**Is Tyreek Hill a top fantasy football rebound candidate, or has age caught up with him?**\
+`Michael Salfino takes a closer look at Tyreek Hill to determine if his 2024 slide was anomalous or a sign of age-based decline.`\
+https://nytimes.com/athletic/6525108/2025/07/30/fantasy-football-tyreek-hill-rebound-cabdidate-age/
+
+**In a Reversal, Key Hurricane-Monitoring Data Will Stay Online**\
+`The Department of Defense said it no longer planned to shut down a program that makes satellite data publicly available to researchers and forecasters.`\
+https://nytimes.com/2025/07/30/climate/hurricane-monitoring-data-defense-department.html
+
+**Laura Dahlmeier, Gold Medal-Winning German Biathlete, Dies in Rockfall**\
+`Ms. Dahlmeier, 31, an experienced mountaineer, was climbing in Pakistan when she was hit by falling rocks, officials said.`\
+https://nytimes.com/2025/07/30/world/asia/laura-dahlmeier-olympian-died-accident-pakistan.html
+
 **Tensions Between Trump and Powell at Tipping Point Ahead of Fed Meeting**\
 `President Trump wants lower interest rates, but Jerome H. Powell, the chair of the Federal Reserve, is not yet ready to deliver them.`\
 https://nytimes.com/2025/07/30/business/trump-powell-fed-tensions.html
