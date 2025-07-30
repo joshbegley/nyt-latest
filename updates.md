@@ -1,3 +1,7 @@
+**Why Rising Rates of Autism and ADHD Might Be a Good Sign**\
+`There might be a kind of optimism in diagnosis creep.`\
+https://nytimes.com/2025/07/30/opinion/autism-adhd-diagnosis-creep.html
+
 **Rich Eisen is YouTube's leading play-by-play candidate for Chiefs-Chargers game: Sources**\
 `Eisen is the leading candidate to join Kurt Warner on YouTube’s first regular-season NFL game.`\
 https://nytimes.com/athletic/6525621/2025/07/30/rich-eisen-youtube-chiefs-chargers-game-nfl/
