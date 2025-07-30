@@ -1,3 +1,11 @@
+**Trade grades: Phillies find what they need in Jhoan Durán, Twins 'win,' too**\
+`To quote one of our trade graders: This is what a deadline deal is supposed to look like.`\
+https://nytimes.com/athletic/6526120/2025/07/30/phillies-jhoan-duran-trade-grade/
+
+**Commanders await D.C. Council's stadium vote after sometimes heated hearing**\
+`Over two days, the D.C. Council contemplated and debated its Friday vote on a proposed 65,000-seat stadium for the Washington Commanders.`\
+https://nytimes.com/athletic/6525999/2025/07/30/commanders-stadium-d-c-council-hearing/
+
 **As MLB trade deadline approaches, Guardians ponder plans for Steven Kwan, Shane Bieber**\
 `"I would love to," Kwan said about working out an extension with Cleveland. "I love it here. I love everything about this place."`\
 https://nytimes.com/athletic/6525944/2025/07/30/guardians-mlb-trade-deadline-steven-kwan-shane-bieber/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6519507/2025/07/30/mlb-mets-ryan-helsley-trade/
 **Phillies call their shot and get their closer, acquiring Jhoan Duran from Twins**\
 `The prospect cost was substantial, with starter Mick Abel, 23, and catching prospect Eduardo Tait, 18, going to the Twins.`\
 https://nytimes.com/athletic/6526053/2025/07/30/phillies-jhoan-duran-trade-twins/
-
-**Colorado Dentist Gets Life Without Parole in Wife’s Poisoning Murder**\
-`James Craig was convicted of first-degree murder in the 2023 death of his wife, Angela Craig. Prosecutors say he served her protein shakes laced with arsenic and later poisoned her with cyanide at a hospital.`\
-https://nytimes.com/2025/07/30/us/colorado-dentist-james-craig-poisoned-wife.html
-
-**Red Sox at trade deadline: San Diego still after Jarren Duran, Garrett Crochet pushed back**\
-`The Padres believe they might be one of the only teams that can still get Duran at the deadline.`\
-https://nytimes.com/athletic/6525988/2025/07/30/red-sox-trade-deadline-jarren-duran-garrett-crochet/
 

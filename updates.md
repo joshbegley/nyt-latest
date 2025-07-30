@@ -1,3 +1,11 @@
+**Trade grades: Phillies find what they need in Jhoan Durán, Twins 'win,' too**\
+`To quote one of our trade graders: This is what a deadline deal is supposed to look like.`\
+https://nytimes.com/athletic/6526120/2025/07/30/phillies-jhoan-duran-trade-grade/
+
+**Commanders await D.C. Council's stadium vote after sometimes heated hearing**\
+`Over two days, the D.C. Council contemplated and debated its Friday vote on a proposed 65,000-seat stadium for the Washington Commanders.`\
+https://nytimes.com/athletic/6525999/2025/07/30/commanders-stadium-d-c-council-hearing/
+
 **As MLB trade deadline approaches, Guardians ponder plans for Steven Kwan, Shane Bieber**\
 `"I would love to," Kwan said about working out an extension with Cleveland. "I love it here. I love everything about this place."`\
 https://nytimes.com/athletic/6525944/2025/07/30/guardians-mlb-trade-deadline-steven-kwan-shane-bieber/
