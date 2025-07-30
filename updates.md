@@ -1,3 +1,7 @@
+**Tsunami Warning Issued for 100-Mile Stretch of Northern California**\
+`The area includes Crescent City, which is particularly vulnerable because of its low elevation. The rest of the state was under a lesser tsunami advisory.`\
+https://nytimes.com/2025/07/30/world/asia/tsunami-warning-california.html
+
 **The New York Times in Print for Wednesday, July 30, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/07/30/todays-new-york-times

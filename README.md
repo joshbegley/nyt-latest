@@ -1,3 +1,7 @@
+**What is the Pacific ‘Ring of Fire’?**\
+`Many of the world’s biggest earthquakes, volcanic eruptions and tsunamis occur along a chain of seismologically active regions that encircle the Pacific Ocean.`\
+https://nytimes.com/article/ring-of-fire-earthquake-tsunami-volcano.html
+
 **The New York Times in Print for Wednesday, July 30, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/07/30/todays-new-york-times
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/30/briefing/britain-palestinian-state-gaza-us-tsunam
 **With first trade complete, Twins wait to see how far 'down the rabbit hole' front office goes**\
 `With Thursday's 5 p.m. CT trade deadline arriving fast, the Twins promise to be one of baseball's most intriguing teams.`\
 https://nytimes.com/athletic/6524299/2025/07/30/twins-first-trade-complete-front-office-rabbit-hole/
-
-**Braves star Ronald Acuña Jr. leaves game with Achilles injury**\
-`Acuña left Tuesday's game with Achilles soreness, another blow in a season full of injuries for the battered Braves star.`\
-https://nytimes.com/athletic/6524217/2025/07/30/ronald-acuna-jr-achilles-injury/
 
