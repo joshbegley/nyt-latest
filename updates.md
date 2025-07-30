@@ -1,3 +1,19 @@
+**In Conversation with Brazil’s President Lula**\
+`In an interview with Jack Nicas of The New York Times, President Luiz Inácio Lula da Silva rejected President Trump’s demands for Brazil. Here’s how the United States and Brazil reached this point.`\
+https://nytimes.com/video/world/americas/100000010309751/in-conversation-with-brazils-president-lula.html
+
+**Mercedes and Porsche Squeezed by U.S. Tariffs and Slowdown in China**\
+`Germany’s leading luxury automakers are sharply scaling back expectations for the rest of the year.`\
+https://nytimes.com/2025/07/30/business/mercedes-porsche-tariffs.html
+
+**In Kamchatka, Epicenter of the Russian Earthquake, Seismic Activity Is Common**\
+`Tremors are regularly reported in this remote Russian peninsula dotted with volcanoes, some of which erupt every year.`\
+https://nytimes.com/2025/07/30/world/asia/kamchatka-earthquake.html
+
+**TAFC: Barcelona, Ter Stegen and a new form of injury crisis. Plus: Wiegman's Burna Boy surprise**\
+`How the goalkeeper's social media post has led to chaos behind the scenes`\
+https://nytimes.com/athletic/6524589/2025/07/30/barca-ter-stegen-injury-wiegman-burna-boy-tafc/
+
 **Shohei Ohtani is on double-duty Wednesday. Here's how to watch his start in Cincinnati**\
 `Shohei Ohtani is at the plate and on the mound once again. Perhaps your coffee spot's barista will also become your bartender today.`\
 https://nytimes.com/athletic/6523242/2025/07/30/shohei-ohtani-pitching-dodgers-reds-how-to-watch/

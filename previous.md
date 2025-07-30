@@ -1,3 +1,19 @@
+**In Conversation with Brazil’s President Lula**\
+`In an interview with Jack Nicas of The New York Times, President Luiz Inácio Lula da Silva rejected President Trump’s demands for Brazil. Here’s how the United States and Brazil reached this point.`\
+https://nytimes.com/video/world/americas/100000010309751/in-conversation-with-brazils-president-lula.html
+
+**Mercedes and Porsche Squeezed by U.S. Tariffs and Slowdown in China**\
+`Germany’s leading luxury automakers are sharply scaling back expectations for the rest of the year.`\
+https://nytimes.com/2025/07/30/business/mercedes-porsche-tariffs.html
+
+**In Kamchatka, Epicenter of the Russian Earthquake, Seismic Activity Is Common**\
+`Tremors are regularly reported in this remote Russian peninsula dotted with volcanoes, some of which erupt every year.`\
+https://nytimes.com/2025/07/30/world/asia/kamchatka-earthquake.html
+
+**TAFC: Barcelona, Ter Stegen and a new form of injury crisis. Plus: Wiegman's Burna Boy surprise**\
+`How the goalkeeper's social media post has led to chaos behind the scenes`\
+https://nytimes.com/athletic/6524589/2025/07/30/barca-ter-stegen-injury-wiegman-burna-boy-tafc/
+
 **Shohei Ohtani is on double-duty Wednesday. Here's how to watch his start in Cincinnati**\
 `Shohei Ohtani is at the plate and on the mound once again. Perhaps your coffee spot's barista will also become your bartender today.`\
 https://nytimes.com/athletic/6523242/2025/07/30/shohei-ohtani-pitching-dodgers-reds-how-to-watch/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6522480/2025/07/30/minnesota-vikings-53-man-roster-
 **History says Cowboys will get Micah Parsons deal done — but when?**\
 `Jerry Jones doesn't seem to be in a hurry to get a deal completed and is OK if Parsons doesn't practice so he stays healthy.`\
 https://nytimes.com/athletic/6521418/2025/07/30/micah-parsons-cowboys-contract-history-jerry-jones/
-
-**Why Cam Thomas is 'the hardest one' of the four major restricted free agents to assess**\
-`No NBA team is more desperate for shot creation than the Brooklyn Nets. So what's the hold up?`\
-https://nytimes.com/athletic/6523626/2025/07/30/cam-thomas-nba-free-agency-brooklyn-nets/
-
-**Anthony Volpe's 'defensive slump' can't continue past the trade deadline**\
-`"I know the standard that I have for myself," Volpe said, "and I'm just going to keep pushing until I just prove it to myself every day."`\
-https://nytimes.com/athletic/6524344/2025/07/30/yankees-anthony-volpe-defensive-slump-cant-continue-trade-deadline/
-
-**Cliques and rivalries: Which MLB teams are trading pals, and which ones trading foes?**\
-`Building a matrix to determine which teams always trade with one another, and which ones wouldn't dream of it. `\
-https://nytimes.com/athletic/6521187/2025/07/30/mlb-trade-deadline-matrix-cliques-rivals-executives/
-
-**Close Calls and Skipped Lines: The Fraught State of Organ Donation**\
-`People across the United States have endured rushed or premature attempts to remove their organs.`\
-https://nytimes.com/2025/07/30/podcasts/the-daily/organ-transplants-donors-alive.html
 
