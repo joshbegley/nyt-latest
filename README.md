@@ -1,3 +1,7 @@
+**Liverpool 3 Yokohama 1: Nugomha and Nyoni shine but defensive issues remain**\
+`The main talking points dissected as Liverpool round off their Asian pre-season tour with a win in Tokyo`\
+https://nytimes.com/athletic/6524599/2025/07/30/liverpool-yokohama-result-analysis-rio-ngumoha/
+
 **Referee body camera trials extended worldwide after Club World Cup test**\
 `The implementation of the technology in the Premier League for the 2025-26 season is under consideration.`\
 https://nytimes.com/athletic/6524760/2025/07/30/referee-body-camera-trials-extended/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/30/style/relationship-deal-breakers.html
 **Olympic star Léon Marchand crushes 200-meter IM world record at swimming worlds**\
 `Marchand, who won four golds in Paris, lowered Ryan Lochte's 14-year-old mark by more than 1.3 seconds in Wednesday's semifinals.`\
 https://nytimes.com/athletic/6524775/2025/07/30/leon-marchand-200-meter-im-world-record-swimming-olympics/
-
-**Gyokeres could feature in Spurs friendly; Gabriel, Calafiori out**\
-`Arsenal fans have yet to see Gabriel in pre-season after the defender picked up an injury earlier this month.`\
-https://nytimes.com/athletic/6524746/2025/07/30/arsenal-tottenham-gyokeres-gabriel-calafiori/
 
