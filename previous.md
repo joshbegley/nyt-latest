@@ -3,7 +3,7 @@
 https://nytimes.com/2025/07/29/health/vinay-prasad-fda-resigns-loomer.html
 
 **What I'm hearing about the Cardinals' trade deadline with less than 48 hours to go**\
-`Steven Matz has thrived as a late-inning reliever for St. Louis, but opposing clubs eye him as a swingman option`\
+`Steven Matz has thrived as a late-inning reliever for St. Louis, but opposing clubs eye him as a swingman option.`\
 https://nytimes.com/athletic/6523845/2025/07/29/cardinals-mlb-trade-deadline-relievers/
 
 **Gently Apply**\

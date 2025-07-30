@@ -1,3 +1,7 @@
+**What I'm hearing about the Cardinals' trade deadline with less than 48 hours to go**\
+`Steven Matz has thrived as a late-inning reliever for St. Louis, but opposing clubs eye him as a swingman option.`\
+https://nytimes.com/athletic/6523845/2025/07/29/cardinals-mlb-trade-deadline-relievers/
+
 **Top F.D.A. Official Resigns Under Pressure**\
 `After turning down several new drugs and restricting use of another, Dr. Vinay Prasad drew the ire of the right-wing influencer Laura Loomer and others.`\
 https://nytimes.com/2025/07/29/health/vinay-prasad-fda-resigns-loomer.html
