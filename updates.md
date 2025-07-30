@@ -1,3 +1,7 @@
+**Shaw backs Amorim's hardline approach: 'He demands 100 per cent'**\
+`"I think whatever the manager wants, us as players we have to be delivering. So, yes, we're fully behind that," Shaw said.`\
+https://nytimes.com/athletic/6524478/2025/07/30/man-united-news-shaw-amorim-squad/
+
 **How Bayern signed Diaz, what he offers and what now for Liverpool?**\
 `Revealing how the Germans finally made an offer Anfield chiefs could not refuse and the impact of this transfer for both clubs`\
 https://nytimes.com/athletic/6520449/2025/07/30/luis-diaz-bayern-munich-liverpool-transfer-inside-deal/
