@@ -1,3 +1,11 @@
+**The NBA bubble, 5 years later: 'The most exclusive basketball camp in world history’**\
+`Mike Breen, Adam Silver and others share memories and reflect on the good, the bad and the one-of-a-kind from Florida.`\
+https://nytimes.com/athletic/6523879/2025/07/30/nba-bubble-season-five-years-disney/
+
+**Trump Administration Told Taiwan’s President to Avoid New York Stopover**\
+`The Taiwanese leader canceled U.S. transit visits after being urged to change his plans, two officials said. Washington has been in talks with Beijing over trade and a possible summit.`\
+https://nytimes.com/2025/07/30/world/asia/trump-taiwan-china.html
+
 **Xhaka completes €20m Sunderland transfer**\
 `Sunderland have paid €15m up front with a further €5m in potential add-ons for the 32-year-old midfielder.`\
 https://nytimes.com/athletic/6519872/2025/07/30/granit-xhaka-sunderland-transfer-fee/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6523075/2025/07/30/patriots-training-camp-drake-may
 **2025 dynasty and rookie-only fantasy football rankings: Training camp update**\
 `Now that training camp is underway, Jake Ciely offers his updated dynasty and rookie-only fantasy football rankings. `\
 https://nytimes.com/athletic/6523444/2025/07/30/fantasy-football-2025-dynasty-rookie-rankings-training-camp-preseason/
-
-**How Falcons rookie James Pearce Jr. is helping spark an attitude adjustment in Atlanta**\
-`The Falcons overhauled their defense in the offseason. They're hoping players with "a natural edge" lead to a change on the field, too.`\
-https://nytimes.com/athletic/6523345/2025/07/30/falcons-james-pearce-jr-attitude-adjustment/
-
-**Alexander Isak's desire to leave Newcastle United - how we got here and what happens now**\
-`Why the striker wants a transfer, when the club started new-contract talks and why they stopped - and what's next`\
-https://nytimes.com/athletic/6522319/2025/07/30/alexander-isak-newcastle-transfer-contract/
 

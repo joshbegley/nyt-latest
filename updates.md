@@ -1,3 +1,15 @@
+**Xhaka completes €20m Sunderland transfer**\
+`Sunderland have paid €15m up front with a further €5m in potential add-ons for the 32-year-old midfielder.`\
+https://nytimes.com/athletic/6519872/2025/07/30/granit-xhaka-sunderland-transfer-fee/
+
+**The Wyndham Championship closes out the PGA Tour's regular season. Here's how to watch**\
+`Wyndham is the last stop before the FedEx Cup trims the field to 70 for the St. Jude Championship, making every birdie a playoff lifeline. `\
+https://nytimes.com/athletic/6523596/2025/07/30/pga-tour-golf-wyndham-championship-2025-how-to-watch-odds/
+
+**The New York Times International Edition in Print for Thursday, July 31, 2025**\
+``\
+https://nytimes.com/issue/todaysinyt/2025/07/30/todays-new-york-times-international-edition
+
 **Alexander Isak's desire to leave Newcastle United - how we got here and what happens now**\
 `Why the striker wants a transfer, when the club started new-contract talks and why they stopped - and what's next`\
 https://nytimes.com/athletic/6522319/2025/07/30/alexander-isak-newcastle-transfer-contract/
