@@ -1,3 +1,15 @@
+**Seahawks expected to extend GM John Schneider for 4 years**\
+`Schneider is entering his 16th season with the Seahawks.`\
+https://nytimes.com/athletic/6525319/2025/07/30/seahawks-gm-contract-extension-john-schneider/
+
+**Angels add relievers Andrew Chafin, Luis Garcia in hopes of playoff push**\
+`The Los Angeles Angels are officially buyers.`\
+https://nytimes.com/athletic/6525404/2025/07/30/angels-andrew-chafin-mlb-trade/
+
+**What’s in Our Queue? ‘Love Island’ and More**\
+`Text by Nia Decaille`\
+https://nytimes.com/card/2025/07/30/arts/editors-recommendations-loveislanduk
+
 **Senators grill Agriculture Dept. deputy over the agency’s reorganization plan.**\
 `By Linda Qiu`\
 https://nytimes.com/live/2025/07/30/us/trump-news/senators-grill-agriculture-dept-deputy-over-the-agencys-reorganization-plan
