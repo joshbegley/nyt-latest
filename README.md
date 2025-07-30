@@ -1,3 +1,7 @@
+**House Democrats Sue ICE for Barring Them From Detention Facilities**\
+`The 12 Democrats accused the Trump administration of violating the law when it turned them away from immigrant detention sites and imposed a new policy limiting congressional access.`\
+https://nytimes.com/2025/07/30/us/politics/house-democrats-ice-lawsuit.html
+
 **Why Did Such a Powerful Earthquake Produce Such a Weak Tsunami?**\
 `The quake in Russia on Wednesday was among the strongest ever recorded — but perhaps not strong enough.`\
 https://nytimes.com/2025/07/30/science/russia-earthquake-tsunami-physics.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6521070/2025/07/30/manchester-united-sesko-watkins/
 **Trump has reshaped global trade. What does that mean for the U.S. economy?**\
 `By Ana Swanson`\
 https://nytimes.com/live/2025/07/30/business/federal-reserve-interest-rates/trump-has-reshaped-global-trade-what-does-that-mean-for-the-us-economy
-
-**Tour de France Femmes: Kim Le Court becomes first African to win a stage - and takes yellow**\
-`History is made on Stage 5 of the Tour de France Femmes and United States champion Kristen Faulkner abandons.`\
-https://nytimes.com/athletic/6525040/2025/07/30/tour-de-france-femmes-kim-le-court/
 
