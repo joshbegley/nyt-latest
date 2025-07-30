@@ -1,3 +1,19 @@
+**Rich Eisen is YouTube's leading play-by-play candidate for Chiefs-Chargers game: Sources**\
+`Eisen is the leading candidate to join Kurt Warner on YouTube’s first regular-season NFL game.`\
+https://nytimes.com/athletic/6525621/2025/07/30/rich-eisen-youtube-chiefs-chargers-game-nfl/
+
+**Takeaways from the Fed meeting.**\
+`By Colby Smith`\
+https://nytimes.com/live/2025/07/30/business/federal-reserve-interest-rates/takeaways-from-the-fed-meeting
+
+**Cuts to Data Collection May Erode Reliability of Economic Statistics**\
+`The Bureau of Labor Statistics is reducing or ending the collection of data that is used to calculate the Consumer Price Index.`\
+https://nytimes.com/2025/07/30/business/bls-data-collection-cuts-cpi.html
+
+**Caleb Williams' camp goal? All 11 guys moving as one on Bears offense**\
+`Gervon Dexter explains which defensive line position is his favorite, and Dennis Allen declares the No. 2 cornerback battle "wide open."`\
+https://nytimes.com/athletic/6525490/2025/07/30/bears-caleb-williams-smoother-offense/
+
 **Gilbert Arenas arrested, charged with running illegal gambling business**\
 `Arenas ran an illegal gambling ring and hosted high-level poker games in his home, according to an indictment filed by federal prosecutors.`\
 https://nytimes.com/athletic/6525606/2025/07/30/gilbert-arenas-nba-arrest-illegal-gambling-business/
