@@ -1,3 +1,7 @@
+**Jack Hinshelwood 'happy to play anywhere, I just really want to be out on the pitch'**\
+`The versatile Brighton youngster talks his various positions, playing for England, and his idols at the club`\
+https://nytimes.com/athletic/6471368/2025/07/30/jack-hinshelwood-interview/
+
 **The Scheffler paradox: How sportspeople cope when winning is not enough**\
 `The new Open champion's admission that winning can leave you unfulfilled was surprising but his words resonated with other elite athletes`\
 https://nytimes.com/athletic/6519928/2025/07/30/scott-scheffler-open-winning/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/30/us/reno-casino-shooting-bachelor-party.html
 **The 10 players to keep an eye on over the rest of the transfer window**\
 `Over halfway to deadline day on September 1, several more high-profile moves are still on the cards this summer`\
 https://nytimes.com/athletic/6522769/2025/07/30/transfers-to-watch-players-transfer-window/
-
-**Quote of the Day: Fear of ICE Jolts a Beach Town Reliant on Foreign Labor**\
-`Quotation of the Day for Wednesday, July 30, 2025.`\
-https://nytimes.com/2025/07/30/pageoneplus/quote-of-the-day-fear-of-ice-jolts-a-beach-town-reliant-on-foreign-labor.html
 

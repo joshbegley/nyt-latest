@@ -1,3 +1,11 @@
+**The Scheffler paradox: How sportspeople cope when winning is not enough**\
+`The new Open champion's admission that winning can leave you unfulfilled was surprising but his words resonated with other elite athletes`\
+https://nytimes.com/athletic/6519928/2025/07/30/scott-scheffler-open-winning/
+
+**Wiegman, Burna Boy and how England celebrated becoming proper football royalty (again)**\
+`The story of how the Lionesses celebrated winning the Euros - ending with a huge party outside Buckingham Palace`\
+https://nytimes.com/athletic/6523478/2025/07/30/sarina-wiegman-burna-boy-england-celebrations/
+
 **Aaron Ramsdale to Newcastle United is a move rooted in ambition - on both sides**\
 `Ramsdale's arrival is not one Newcastle United supporters craved but the analysis shows he could evolve the way Eddie Howe's side play`\
 https://nytimes.com/athletic/6523174/2025/07/30/aaron-ramsdale-newcastle-united-transfer/

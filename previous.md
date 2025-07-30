@@ -1,3 +1,11 @@
+**The Scheffler paradox: How sportspeople cope when winning is not enough**\
+`The new Open champion's admission that winning can leave you unfulfilled was surprising but his words resonated with other elite athletes`\
+https://nytimes.com/athletic/6519928/2025/07/30/scott-scheffler-open-winning/
+
+**Wiegman, Burna Boy and how England celebrated becoming proper football royalty (again)**\
+`The story of how the Lionesses celebrated winning the Euros - ending with a huge party outside Buckingham Palace`\
+https://nytimes.com/athletic/6523478/2025/07/30/sarina-wiegman-burna-boy-england-celebrations/
+
 **Aaron Ramsdale to Newcastle United is a move rooted in ambition - on both sides**\
 `Ramsdale's arrival is not one Newcastle United supporters craved but the analysis shows he could evolve the way Eddie Howe's side play`\
 https://nytimes.com/athletic/6523174/2025/07/30/aaron-ramsdale-newcastle-united-transfer/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6522769/2025/07/30/transfers-to-watch-players-trans
 **Quote of the Day: Fear of ICE Jolts a Beach Town Reliant on Foreign Labor**\
 `Quotation of the Day for Wednesday, July 30, 2025.`\
 https://nytimes.com/2025/07/30/pageoneplus/quote-of-the-day-fear-of-ice-jolts-a-beach-town-reliant-on-foreign-labor.html
-
-**Connections: Sports Edition Coach: Hints for July 30, 2025**\
-`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
-https://nytimes.com/athletic/6521369/2025/07/30/connections-sports-edition-hints-for-july-30-2025/
-
-**How a Chinese Brand Reshaped Hong Kong’s Food Delivery Scene**\
-`Meituan, the Chinese food delivery giant, tested its global expansion in Hong Kong, where its Keeta service displaced a rival before moving to other markets.`\
-https://nytimes.com/2025/07/30/business/meituan-keeta-deliveroo-hong-kong.html
 
