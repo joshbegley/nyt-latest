@@ -1,3 +1,7 @@
+**Trade grades: With Ke'Bryan Hayes add, Reds bank on the glove and hope for the bat**\
+`The move immediately makes the Reds deeper, and offers upside. For the Pirates, it's a hope for hitting down the road. `\
+https://nytimes.com/athletic/6525713/2025/07/30/kebryan-hayes-reds-pirates-mlb-trade-grades/
+
 **Rich Eisen is YouTube's leading play-by-play candidate for Chiefs-Chargers game: Sources**\
 `Eisen is the leading candidate to join Kurt Warner on YouTube’s first regular-season NFL game.`\
 https://nytimes.com/athletic/6525621/2025/07/30/rich-eisen-youtube-chiefs-chargers-game-nfl/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/30/science/space-nisar-nasa-india.html
 **Why Rising Rates of Autism and ADHD Might Be a Good Sign**\
 `There might be a kind of optimism in diagnosis creep.`\
 https://nytimes.com/2025/07/30/opinion/autism-adhd-diagnosis-creep.html
-
-**Harris Will Not Run for California Governor**\
-`Kamala Harris, the former vice president, announced that she has decided not to run for California’s top office.`\
-https://nytimes.com/2025/07/30/us/politics/harris-california-governor-race.html
 
