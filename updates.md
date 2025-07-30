@@ -1,3 +1,15 @@
+**The New York Times in Print for Wednesday, July 30, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/07/30/todays-new-york-times
+
+**Israel Destroyed Gaza’s Health System. Palestinians Will Die for Years to Come.**\
+`Many in Gaza will not survive, not because of their injuries alone but because of the lack of a health care system to treat them.`\
+https://nytimes.com/2025/07/30/opinion/gaza-genocide-hospitals-health-system-israel.html
+
+**Greenberg: Ask anyone what Ryne Sandberg meant to the Cubs and Chicago**\
+`Shawon Dunston and Andre Dawson were devastated after realizing Sandberg was saying goodbye to them. They are devastated still.`\
+https://nytimes.com/athletic/6524263/2025/07/30/ryne-sandberg-chicago-cubs-teammates-shawon-dunston/
+
 **Thailand and Cambodia Stepped Back From War, but Their Temple Fight Remains**\
 `Intense nationalism and disputed history — and maps — stoke the neighbors’ hostilities. Even a surge of international diplomacy has brought little hope of a lasting peace.`\
 https://nytimes.com/2025/07/30/world/asia/thailand-cambodia-temples.html
