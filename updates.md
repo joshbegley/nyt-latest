@@ -1,3 +1,19 @@
+**gws-happy-gilmore-shooter-mcgavin-christopher-mcdonald**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/happy-gilmore-shooter-mcgavin-christopher-mcdonald
+
+**Teach Writing With The New York Times: Our 2025-26 Curriculum**\
+`Our eight writing units are based on real-world features like reviews, opinion essays, narratives, podcasts, photo essays and more.`\
+https://nytimes.com/2025/07/30/learning/teach-writing-with-the-new-york-times-our-2025-26-curriculum.html
+
+**Family and Fans Pay Tribute to Ozzy Osbourne at Funeral Procession**\
+`A cortege took the singer’s coffin through the streets of his hometown, Birmingham, England. His family stepped out to look at tributes at Black Sabbath Bench, an attraction that has become a place of pilgrimage.`\
+https://nytimes.com/video/world/europe/100000010313652/family-and-fans-pay-tribute-to-ozzy-osbourne-at-funeral-procession.html
+
+**Explaining Barcelona’s €44m DR Congo sponsorship and why it could be controversial**\
+`The sponsorship ensures the central African nation's logo of "DRC, coeur de l'Afrique" will appear on the back of all Barca training kits.`\
+https://nytimes.com/athletic/6497789/2025/07/30/barcelona-kit-sponsor-dr-congo/
+
 **The Windup: Traded from one dugout to the other**\
 `The Windup Newsletter ⚾ | This is The Athletic’s MLB newsletter.`\
 https://nytimes.com/athletic/6525025/2025/07/30/seranthony-dominguez-trade-the-windup/

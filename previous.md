@@ -1,3 +1,15 @@
+**gws-happy-gilmore-shooter-mcgavin-christopher-mcdonald**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/happy-gilmore-shooter-mcgavin-christopher-mcdonald
+
+**Teach Writing With The New York Times: Our 2025-26 Curriculum**\
+`Our eight writing units are based on real-world features like reviews, opinion essays, narratives, podcasts, photo essays and more.`\
+https://nytimes.com/2025/07/30/learning/teach-writing-with-the-new-york-times-our-2025-26-curriculum.html
+
+**Family and Fans Pay Tribute to Ozzy Osbourne at Funeral Procession**\
+`A cortege took the singer’s coffin through the streets of his hometown, Birmingham, England. His family stepped out to look at tributes at Black Sabbath Bench, an attraction that has become a place of pilgrimage.`\
+https://nytimes.com/video/world/europe/100000010313652/family-and-fans-pay-tribute-to-ozzy-osbourne-at-funeral-procession.html
+
 **The Windup: Traded from one dugout to the other**\
 `The Windup Newsletter ⚾ | This is The Athletic’s MLB newsletter.`\
 https://nytimes.com/athletic/6525025/2025/07/30/seranthony-dominguez-trade-the-windup/
@@ -6,7 +18,7 @@ https://nytimes.com/athletic/6525025/2025/07/30/seranthony-dominguez-trade-the-w
 `More in The Athletic's weekly sports-business cheat sheet: Svelte Luka, Deion Sanders, Brian Rolapp, NWSL summer lull, RIP Ryno and more.`\
 https://nytimes.com/athletic/6524801/2025/07/30/mlb-bristol-motor-speedway-classic-eventized-moneycall/
 
-**Barcelona agree €44m sponsorship deal with DR Congo**\
+**Explaining Barcelona’s €44m DR Congo sponsorship and why it could be controversial**\
 `The sponsorship ensures the central African nation's logo of "DRC, coeur de l'Afrique" will appear on the back of all Barca training kits.`\
 https://nytimes.com/athletic/6497789/2025/07/30/barcelona-kit-sponsor-dr-congo/
 
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6519737/2025/07/30/benjamin-sesko-manchester-united
 **Six The Hundred franchises sold ahead of 2025 competition**\
 `A mix of American sports investors and Indian cricket magnates have bought stakes in the teams.`\
 https://nytimes.com/athletic/6524826/2025/07/30/the-hundred-cricket-franchises-sold/
-
-**Why I Joined: A life in soccer, an opportunity I could never have dreamed of**\
-`Former USMNT star Charlie Davies reflects on his excitement at joining The Athletic, the latest step in his remarkable journey`\
-https://nytimes.com/athletic/6524210/2025/07/30/charlie-davies-joined-the-athletic-usmnt/
-
-**Why I joined: Passion, curiosity and soccer storytelling with a human touch**\
-`The Athletic's new senior soccer writer tells how the evolving nature of the sport and its issues led him toward this new role.`\
-https://nytimes.com/athletic/6523760/2025/07/30/henry-bushnell-why-i-joined-soccer-athletic/
-
-**Liverpool 3 Yokohama 1: Ngumoha and Nyoni shine but defensive issues remain**\
-`The main talking points dissected as Liverpool round off their Asian pre-season tour with a win in Tokyo`\
-https://nytimes.com/athletic/6524599/2025/07/30/liverpool-yokohama-result-analysis-rio-ngumoha/
 
