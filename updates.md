@@ -1,3 +1,23 @@
+**Here is what the different tsunami alerts mean.**\
+`Tsunami alerts, advisor`\
+https://nytimes.com/2025/07/30/world/asia/tsunami-alerts-meaning.html
+
+**Tsunami Warning Issued for 100-Mile Stretch of Northern California**\
+`The area includes Crescent City, which is particularly vulnerable because of its low elevation.  The rest of the state was under a lesser tsunami advisory.`\
+https://nytimes.com/2025/07/30/world/asia/tsunami-warning-california.html
+
+**Wednesday Briefing: U.K. May Recognize a Palestinian State**\
+`Plus, the Booker Prize nominees`\
+https://nytimes.com/2025/07/30/briefing/britain-palestinian-state-gaza-us-tsunami-warning-ukraine-russia-trump.html
+
+**With first trade complete, Twins wait to see how far 'down the rabbit hole' front office goes**\
+`With Thursday's 5 p.m. CT trade deadline arriving fast, the Twins promise to be one of baseball's most intriguing teams.`\
+https://nytimes.com/athletic/6524299/2025/07/30/twins-first-trade-complete-front-office-rabbit-hole/
+
+**Braves star Ronald Acuña Jr. leaves game with Achilles injury**\
+`Acuña left Tuesday's game with Achilles soreness, another blow in a season full of injuries for the battered Braves star.`\
+https://nytimes.com/athletic/6524217/2025/07/30/ronald-acuna-jr-achilles-injury/
+
 **Inside Liverpool's commercial juggernaut: New Adidas deal, 1.7bn engagements and why Asia matters**\
 `The Anfield club's off-field growth has been exponential in recent seasons - this is how it's happened`\
 https://nytimes.com/athletic/6519560/2025/07/30/liverpool-kit-sponsor-deal-commercial/
