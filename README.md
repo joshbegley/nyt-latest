@@ -1,3 +1,7 @@
+**Federal Reserve Keeps Interest Rates Steady for Fifth Meeting in a Row**\
+`The Federal Reserve kept interest rates steady despite rare dissenting views from two members of the board.`\
+https://nytimes.com/video/us/politics/100000010314769/powell-steady-interest-rates.html
+
 **Transcripts Reveal Confusion and Frustration in Black Hawk Cockpit Before Deadly Crash**\
 `New documents from investigators reveal muffled communications during the final minutes before the helicopter collided with a passenger jet over the Potomac River on Jan. 29.`\
 https://nytimes.com/2025/07/30/us/politics/black-hawk-cockpit-transcripts.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/30/travel/tsunami-hawaii-cruise-ships-passengers.htm
 **Trump Donor Pleads Guilty to Bilking People Who Wanted Access and Visas**\
 `Sherry Xue Li and a partner took in more than $30 million from unwitting foreign investors as part of a nearly decadelong scheme.`\
 https://nytimes.com/2025/07/30/nyregion/campaign-finance-plea.html
-
-**Trade grade: Mariners add lefty bullpen help they need in Caleb Ferguson deal with Pirates**\
-`Ferguson gives Seattle a good weapon vs. lefty hitters, holding them to a .172 batting average and .451 OPS this season.`\
-https://nytimes.com/athletic/6525913/2025/07/30/mariners-caleb-ferguson-trade-grade-pirates/
 

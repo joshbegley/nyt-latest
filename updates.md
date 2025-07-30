@@ -1,3 +1,11 @@
+**Transcripts Reveal Confusion and Frustration in Black Hawk Cockpit Before Deadly Crash**\
+`New documents from investigators reveal muffled communications during the final minutes before the helicopter collided with a passenger jet over the Potomac River on Jan. 29.`\
+https://nytimes.com/2025/07/30/us/politics/black-hawk-cockpit-transcripts.html
+
+**Traded on the same day, Rogers twins add another brotherly baseball oddity**\
+`Tyler Rogers goes from the Giants to the Mets while his brother Taylor heads to the Pirates from the Reds.`\
+https://nytimes.com/athletic/6525996/2025/07/30/tyler-taylor-rogers-twins-traded-same-day/
+
 **Army Secretary Orders West Point to Pull Appointment of Former Biden Official**\
 `The military academy’s appointment of Jen Easterly, who had been director of the Cybersecurity and Infrastructure Agency, was canceled after complaints from the far-right agitator Laura Loomer.`\
 https://nytimes.com/2025/07/30/us/politics/army-secretary-west-point-trump-loomer.html
