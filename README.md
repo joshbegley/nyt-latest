@@ -1,3 +1,7 @@
+**Earthquake Shakes Russia and Sends Tsunamis to U.S.**\
+`The 8.8-magnitude quake damaged and flooded buildings in Russia as people in Japan and the U.S. west coast braced for tsunami waves.`\
+https://nytimes.com/video/world/100000010313436/earthquake-tsunami-russia-japan-hawaii.html
+
 **How Bayern signed Diaz, what he offers and what now for Liverpool?**\
 `Revealing how the Germans finally made an offer Anfield chiefs could not refuse and the impact of this transfer for both clubs`\
 https://nytimes.com/athletic/6520449/2025/07/30/luis-diaz-bayern-munich-liverpool-transfer-inside-deal/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/30/crosswords/spelling-bee-forum.html
 **Late Night Doesn’t Recommend Trying to Convert Your Co-Workers**\
 `Despite the Trump administration’s support for proselytizing at the office, Stephen Colbert doesn’t think it’s a good idea.`\
 https://nytimes.com/2025/07/30/arts/television/colbert-trump-memo-religion-workplace.html
-
-**Little and large batting combinations can be devastating in cricket - here's why**\
-`Zak Crawley and Ben Duckett may be a contrast in style and appearance but their partnership for England works`\
-https://nytimes.com/athletic/6522565/2025/07/30/england-cricket-crawley-duckett/
 
