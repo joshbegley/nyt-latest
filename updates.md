@@ -1,3 +1,11 @@
+**Bayern sign Diaz from Liverpool**\
+`Diaz had a contract with Liverpool until June 2027 but made it clear to the Anfield club that he wanted to leave.`\
+https://nytimes.com/athletic/6518278/2025/07/30/luis-diaz-bayern-transfer-confirmed/
+
+**Shaw backs Amorim's hardline approach: 'He demands 100 per cent'**\
+`Amorim has shown his ruthless streak since joining the club, making high demands on his players and `\
+https://nytimes.com/athletic/6524478/2025/07/30/man-united-news-shaw-amorim-squad/
+
 **The New York Times in Print for Wednesday, July 30, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/07/30/todays-new-york-times
