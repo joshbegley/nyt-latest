@@ -1,3 +1,11 @@
+**Countries Airdrop Aid Into Gaza Amid Gripping Hunger**\
+`The Israeli military agency responsible for humanitarian affairs in Gaza said that Egypt, Jordan and the United Arab Emirates had airdropped packages in recent days. Prime Minister Keir Starmer of Britain confirmed that it had also airdropped supplies into Gaza this week.`\
+https://nytimes.com/video/world/middleeast/100000010313586/gaza-aid-airdrop-hunger.html
+
+**Confirmation Slowdown Forces a Senate Showdown**\
+`Under pressure to show they are resisting President Trump, Democrats have insisted on recorded votes on every nominee, creating a bottleneck ahead of the August recess.`\
+https://nytimes.com/2025/07/30/us/senate-confirmation-slowdown.html
+
 **Is Tyreek Hill a top fantasy football rebound candidate, or has age caught up with him?**\
 `Michael Salfino takes a closer look at Tyreek Hill to determine if his 2024 slide was anomalous or a sign of age-based decline.`\
 https://nytimes.com/athletic/6525108/2025/07/30/fantasy-football-tyreek-hill-rebound-cabdidate-age/

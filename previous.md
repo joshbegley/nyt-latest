@@ -1,3 +1,11 @@
+**Countries Airdrop Aid Into Gaza Amid Gripping Hunger**\
+`The Israeli military agency responsible for humanitarian affairs in Gaza said that Egypt, Jordan and the United Arab Emirates had airdropped packages in recent days. Prime Minister Keir Starmer of Britain confirmed that it had also airdropped supplies into Gaza this week.`\
+https://nytimes.com/video/world/middleeast/100000010313586/gaza-aid-airdrop-hunger.html
+
+**Confirmation Slowdown Forces a Senate Showdown**\
+`Under pressure to show they are resisting President Trump, Democrats have insisted on recorded votes on every nominee, creating a bottleneck ahead of the August recess.`\
+https://nytimes.com/2025/07/30/us/senate-confirmation-slowdown.html
+
 **Is Tyreek Hill a top fantasy football rebound candidate, or has age caught up with him?**\
 `Michael Salfino takes a closer look at Tyreek Hill to determine if his 2024 slide was anomalous or a sign of age-based decline.`\
 https://nytimes.com/athletic/6525108/2025/07/30/fantasy-football-tyreek-hill-rebound-cabdidate-age/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6525157/2025/07/30/luke-shaw-man-utd-injuries/
 **Two Titans of the Gilded Age, Entwined in Art and Life**\
 `In “Stan and Gus,” Henry Wiencek explores the creative highs and private peccadilloes of the architect Stanford White and the sculptor Augustus Saint-Gaudens.`\
 https://nytimes.com/2025/07/30/books/review/stan-and-gus-henry-wiencek.html
-
-**Viktor Gyokeres interview: Why he joined Arsenal, 'amazing' Thierry Henry and writing his own story**\
-`The Emirates' new No 14 speaks to the media for the first time since his £55m move back to the Premier League`\
-https://nytimes.com/athletic/6524441/2025/07/30/arsenal-viktor-gyokeres-interview-henry/
-
-**Delta Pilot Is Charged With 24 Felonies in Child Sex Abuse Case**\
-`The pilot was removed from the cockpit of a plane after it landed in San Francisco on Saturday night. A woman was also charged in a related felony complaint.`\
-https://nytimes.com/2025/07/30/us/delta-pilot-child-sex-abuse-charges.html
 

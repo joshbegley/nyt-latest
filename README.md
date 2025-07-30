@@ -1,3 +1,7 @@
+**Tour de France Femmes: Kim Le Court becomes first African to win a stage - and takes yellow**\
+`History is made on Stage 5 of the Tour de France Femmes and United States champion Kristen Faulkner abandons.`\
+https://nytimes.com/athletic/6525040/2025/07/30/tour-de-france-femmes-kim-le-court/
+
 **Countries Airdrop Aid Into Gaza Amid Gripping Hunger**\
 `The Israeli military agency responsible for humanitarian affairs in Gaza said that Egypt, Jordan and the United Arab Emirates had airdropped packages in recent days. Prime Minister Keir Starmer of Britain confirmed that it had also airdropped supplies into Gaza this week.`\
 https://nytimes.com/video/world/middleeast/100000010313586/gaza-aid-airdrop-hunger.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/07/30/business/federal-reserve-interest-rates
 **Shaw says he felt like he was letting Man Utd down with injury troubles**\
 `"I couldn’t have got any lower," Shaw, 30, said about his injury issues last term.`\
 https://nytimes.com/athletic/6525157/2025/07/30/luke-shaw-man-utd-injuries/
-
-**Two Titans of the Gilded Age, Entwined in Art and Life**\
-`In “Stan and Gus,” Henry Wiencek explores the creative highs and private peccadilloes of the architect Stanford White and the sculptor Augustus Saint-Gaudens.`\
-https://nytimes.com/2025/07/30/books/review/stan-and-gus-henry-wiencek.html
 
