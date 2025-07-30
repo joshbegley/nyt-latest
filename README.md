@@ -1,3 +1,15 @@
+**Phillies call their shot and get their closer, acquiring Jhoan Durán from Twins**\
+`Twins get young starter Mick Abel and teenage catching prospect Eduardo Tait.`\
+https://nytimes.com/athletic/6526053/2025/07/30/phillies-jhoan-duran-trade-twins/
+
+**Colorado Dentist Gets Life Without Parole in Wife’s Poisoning Murder**\
+`James Craig was convicted of first-degree murder in the 2023 death of his wife, Angela Craig. Prosecutors say he served her protein shakes laced with arsenic and later poisoned her with cyanide at a hospital.`\
+https://nytimes.com/2025/07/30/us/colorado-dentist-james-craig-poisoned-wife.html
+
+**Red Sox at trade deadline: San Diego still after Jarren Duran, Garrett Crochet pushed back**\
+`MINNEAPOLIS — As the trade deadline enters its final 24 hours, Jarren Duran&#8217;s name is still squarely in the mix, with the San Diego Padres continuing to pursue the outfielder.`\
+https://nytimes.com/athletic/6525988/2025/07/30/red-sox-trade-deadline-jarren-duran-garrett-crochet/
+
 **Canada Is Set to Recognize Palestinian Statehood at U.N.**\
 `Prime Minister Mark Carney said Wednesday that Canada would join Britain in recognizing Palestinian statehood at the U.N. in September if the Palestinian Authority met certain conditions.`\
 https://nytimes.com/video/world/middleeast/100000010315205/canada-palestine-state-united-nations.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/07/30/nyregion/nyc-subway-bus-fares-2026-mta.html
 **Broncos' Marvin Mims eager to add to playmaking menu after breakout second season**\
 `The receiver has been targeted with a heavy diet of screens and deep balls early in his career, but his route tree should blossom this fall.`\
 https://nytimes.com/athletic/6525716/2025/07/30/marvin-mims-broncos-training-camp/
-
-**Federal Reserve Keeps Interest Rates Steady for Fifth Meeting in a Row**\
-`The Federal Reserve kept interest rates steady despite rare dissenting views from two members of the board.`\
-https://nytimes.com/video/us/politics/100000010314769/powell-steady-interest-rates.html
-
-**Transcripts Reveal Confusion and Frustration in Black Hawk Cockpit Before Deadly Crash**\
-`New documents from investigators reveal muffled communications during the final minutes before the helicopter collided with a passenger jet over the Potomac River on Jan. 29.`\
-https://nytimes.com/2025/07/30/us/politics/black-hawk-cockpit-transcripts.html
-
-**Traded on the same day, Rogers twins add another brotherly baseball oddity**\
-`Tyler Rogers goes from the Giants to the Mets while his brother Taylor heads to the Pirates from the Reds.`\
-https://nytimes.com/athletic/6525996/2025/07/30/tyler-taylor-rogers-twins-traded-same-day/
 
