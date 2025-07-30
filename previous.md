@@ -1,3 +1,19 @@
+**When Earth’s Surface Shifts, a New Satellite Will See It**\
+`NISAR, built jointly by NASA and India’s space agency and launched on Wednesday, will use radar to monitor tiny changes across our planet’s land and icy regions.`\
+https://nytimes.com/2025/07/30/science/space-nisar-nasa-india.html
+
+**We’re More Likely Than Ever to See Ourselves as Sick. Why?**\
+`There might be a kind of optimism in diagnosis creep.`\
+https://nytimes.com/2025/07/30/opinion/autism-adhd-diagnosis-creep.html
+
+**Harris Will Not Run for California Governor**\
+`Kamala Harris, the former vice president, announced that she has decided not to run for California’s top office.`\
+https://nytimes.com/2025/07/30/us/politics/harris-california-governor-race.html
+
+**Reds to acquire Ke'Bryan Hayes from Pirates to improve infield for prospect Stafura, Rogers: Source**\
+`Adding Hayes allows Noelvi Marte to go the outfield while also boosting the team’s infield defense.`\
+https://nytimes.com/athletic/6502298/2025/07/30/mlb-cincinnati-reds-kebryan-hayes-trade/
+
 **Bill Barring Stock Trading for Congress Advances With Trump Carveout**\
 `The bill passed the committee with the support of every Democrat and only one Republican, its sponsor, who modified it to shield President Trump from a divestment requirement.`\
 https://nytimes.com/2025/07/30/us/politics/senate-stock-trading-bill-congress-trump-carveout.html
@@ -21,20 +37,4 @@ https://nytimes.com/2025/07/30/nyregion/park-avenue-killer-rifle.html
 **Candidate Trump Promised Oil Executives a Windfall. Now, They’re Getting It.**\
 `New tallies of the administration’s tax breaks and other incentives add up to tens of billions of dollars of benefits to the fossil fuel industry.`\
 https://nytimes.com/2025/07/30/climate/trumnp-campaign-funding-oil-industry-tax-breaks.html
-
-**Tiny Love Stories: ‘He Watched My Father’s Feet’**\
-`Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
-https://nytimes.com/2025/07/30/style/tiny-modern-love-stories-he-watched-my-fathers-feet.html
-
-**ESPN parts ways with Shannon Sharpe following settlement of rape lawsuit: Sources**\
-`Sharpe has not been on ESPN since late April, when the suit was first filed.`\
-https://nytimes.com/athletic/6525499/2025/07/30/shannon-sharpe-lawsuit-settlement-espn-first-take/
-
-**Horst Mahler, 89, Dies; Voice of the German Far Left, Then the Far Right**\
-`As a young lawyer and a Communist revolutionary, he helped start the violent Red Army Faction. Later, he went to prison as a Nazi apologist and Holocaust denier.`\
-https://nytimes.com/2025/07/30/world/europe/horst-mahler-dead.html
-
-**Rajah Caruth on his post-victory injury at Nashville, pressure and more: 12 Questions**\
-`Rajah Caruth explains why he was bleeding after his Nashville win, dealing with pressure as a Black driver, and more in a new 12 Questions.`\
-https://nytimes.com/athletic/6525256/2025/07/30/rajah-caruth-nascar-trucks-injury-12-questions/
 
