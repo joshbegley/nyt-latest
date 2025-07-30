@@ -1,3 +1,19 @@
+**Trump Targets Copper With Tariffs, Though Not as Aggressively as Expected**\
+`The president stopped short of putting a 50 percent tariff on refined copper, as he had threatened earlier this year. The market reaction was swift anyway and prices tumbled.`\
+https://nytimes.com/2025/07/30/us/politics/trump-tariffs-copper.html
+
+**Canada to Recognize Palestinian State at the U.N. General Assembly**\
+`Canada joins France in making such a declaration, after months of increasing criticism of Israel by Prime Minister Mark Carney.`\
+https://nytimes.com/2025/07/30/world/canada/canada-palestinian-state-recognition.html
+
+**Oops, There May Be Vodka in That Energy Drink**\
+`A mix-up with a packaging supplier resulted in some cans of Celsius, an energy drink containing no alcohol, being filled with vodka seltzer.`\
+https://nytimes.com/2025/07/30/style/celsius-high-noon-recall-fda.html
+
+**What Tom Brady has taught Birmingham City... and what he thought of Wayne Rooney**\
+`New Amazon documentary 'Built in Birmingham: Brady & the Blues' charts the impact the legendary NFL quarterback has had on the English club`\
+https://nytimes.com/athletic/6524567/2025/07/30/tom-brady-birmingham-documentary-rooney/
+
 **Susan Monarez Faces Daunting Challenges as C.D.C. Director**\
 `The agency’s new leader must contend with reduced budgets, mass layoffs, political tumult and a boss determined to reshape public health.`\
 https://nytimes.com/2025/07/30/health/monarez-cdc-kennedy.html
@@ -21,20 +37,4 @@ https://nytimes.com/2025/07/30/us/politics/army-helicopter-potomac-crash.html
 **Rose Leiman Goldemberg, 97, Dies; Her ‘Burning Bed’ Was a TV Benchmark**\
 `A playwright and screenwriter, she adapted a book about domestic abuse for NBC, bringing a taboo subject into the national conversation.`\
 https://nytimes.com/2025/07/30/arts/television/rose-leiman-goldemberg-dead.html
-
-**Brown University Makes a Deal With the White House to Restore Funding**\
-`The deal comes after Columbia University negotiated with the Trump administration to restore millions in research dollars.`\
-https://nytimes.com/2025/07/30/us/brown-university-makes-a-deal-with-the-white-house-to-restore-funding.html
-
-**Former Barcelona forward Carles Perez injured after being bitten by dog in genital area**\
-`The former Spain youth international was attacked and injured by a dog after his move to Greece this summer.`\
-https://nytimes.com/athletic/6525456/2025/07/30/carles-perez-dog-bite-injury-celta-vigo-aris-thessaloniki/
-
-**Meta Forecasts Continued Spending as It Races to Build ‘Superintelligence’**\
-`The Silicon Valley giant, which has been on a spending spree to hire A.I. researchers, also posted a 36 percent quarterly increase in profit and a 22 percent jump in revenue.`\
-https://nytimes.com/2025/07/30/technology/meta-earnings-ai-spending.html
-
-**Skims Releases New Shapewear. For Your Face.**\
-`The latest product from Kim Kardashian’s company promises to sculpt the cheeks, neck and chin.`\
-https://nytimes.com/2025/07/30/style/skims-shapewear-face-kardashian.html
 

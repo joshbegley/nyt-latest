@@ -1,3 +1,7 @@
+**Susan Monarez Faces Daunting Challenges as C.D.C. Director**\
+`The agency’s new leader must contend with reduced budgets, mass layoffs, political tumult and a boss determined to reshape public health.`\
+https://nytimes.com/2025/07/30/health/monarez-cdc-kennedy.html
+
 **Chris Nowinski, named in Manhattan gunman’s letter, reflects on CTE**\
 `"In some aspects, we've made a lot of progress. But there's still so far to go, and I’ve got to figure out a way to get there faster."`\
 https://nytimes.com/athletic/6525685/2025/07/30/nyc-shooting-nfl-headquarters-cte-note-chris-nowinski/
