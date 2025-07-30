@@ -1,3 +1,11 @@
+**Ford Is Latest Carmaker to Blame Tariffs for Profit Slump**\
+`The company estimated that duties on imported cars and car parts would cost it $2 billion this year.`\
+https://nytimes.com/2025/07/30/business/ford-profit-tariffs.html
+
+**What's the latest on Sabres' arena lease, upgrades and season tickets?**\
+`Erie County executive Mark Poloncarz and Sabres COO Pete Guelli spoke to reporters on Wednesday at KeyBank Center.`\
+https://nytimes.com/athletic/6525718/2025/07/30/buffalo-sabres-arena-upgrades-tickets/
+
 **Trey Hendrickson follows the Ja’Marr Chase playbook, with more inevitable endgame: Dehner Jr. **\
 `The Bengals' star pass rusher switched from holdout to hold-in by attending training camp Wednesday.`\
 https://nytimes.com/athletic/6525619/2025/07/30/cincinnati-bengals-trey-hendrickson-training-camp-contract/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/07/30/technology/white-house-crypto.html
 **Caleb Williams' camp goal? All 11 guys moving as one on Bears offense**\
 `Gervon Dexter explains which defensive line position is his favorite, and Dennis Allen declares the No. 2 cornerback battle "wide open."`\
 https://nytimes.com/athletic/6525490/2025/07/30/bears-caleb-williams-smoother-offense/
-
-**A Surprise Attack Pits Ally Against Ally in East Africa**\
-`Eight people were reported dead after Ugandan soldiers crossed the border into South Sudan and skirmished with troops there.`\
-https://nytimes.com/2025/07/30/world/africa/uganda-south-sudan-skirmish.html
-
-**When Earth’s Surface Shifts, a New Satellite Will See It**\
-`NISAR, built jointly by NASA and India’s space agency and launched on Wednesday, will use radar to monitor tiny changes across our planet’s land and icy regions.`\
-https://nytimes.com/2025/07/30/science/space-nisar-nasa-india.html
 

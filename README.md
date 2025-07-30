@@ -1,9 +1,17 @@
+**Microsoft Backs Up A.I. Spending With $27.2 Billion Quarterly Profit**\
+`The company’s results are likely to ease investors’ worries that big investments in artificial intelligence aren’t paying off.`\
+https://nytimes.com/2025/07/30/technology/microsoft-earnings-ai-data-centers.html
+
+**Trump Executive Order Ends Tariff Exemption on Imports Less Than $800**\
+`The low-cost shipments were previously excluded from tariffs; President Trump said the loophole has allowed countries to avoid taxes and smuggle drugs into the U.S.`\
+https://nytimes.com/2025/07/30/us/politics/trump-tariffs-de-minimis-exemption.html
+
 **Ford Is Latest Carmaker to Blame Tariffs for Profit Slump**\
 `The company estimated that duties on imported cars and car parts would cost it $2 billion this year.`\
 https://nytimes.com/2025/07/30/business/ford-profit-tariffs.html
 
 **What's the latest on Sabres' arena lease, upgrades and season tickets?**\
-`Erie County executive Mark Poloncarz and Sabres COO Pete Guelli spoke to reporters on Wednesday at KeyBank Center.`\
+`Erie County executive Mark Poloncarz and Sabres COO Pete Guelli spoke to reporters Wednesday at KeyBank Center.`\
 https://nytimes.com/athletic/6525718/2025/07/30/buffalo-sabres-arena-upgrades-tickets/
 
 **Trey Hendrickson follows the Ja’Marr Chase playbook, with more inevitable endgame: Dehner Jr. **\
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6525606/2025/07/30/gilbert-arenas-nba-arrest-illega
 **Cuts to Data Collection May Erode Reliability of Economic Statistics**\
 `The Bureau of Labor Statistics is reducing or ending the collection of data that is used to calculate the Consumer Price Index.`\
 https://nytimes.com/2025/07/30/business/bls-data-collection-cuts-cpi.html
-
-**White House Urges ‘Pro-Innovation Mind-Set’ to Crypto in New Report**\
-`In a 168-page report, the White House called on banking regulators, tax officials and U.S. lawmakers to implement policies that would advance the crypto industry’s agenda.`\
-https://nytimes.com/2025/07/30/technology/white-house-crypto.html
-
-**Caleb Williams' camp goal? All 11 guys moving as one on Bears offense**\
-`Gervon Dexter explains which defensive line position is his favorite, and Dennis Allen declares the No. 2 cornerback battle "wide open."`\
-https://nytimes.com/athletic/6525490/2025/07/30/bears-caleb-williams-smoother-offense/
 
