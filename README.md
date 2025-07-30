@@ -1,3 +1,7 @@
+**Yankees add another righty bat, landing Austin Slater in trade with White Sox**\
+`Even after acquiring right-handed infielder Amed Rosario, the Yankees were still searching for a RHH outfielder to bolster their depth.`\
+https://nytimes.com/athletic/6525105/2025/07/30/mlb-yankees-white-sox-austin-slater-trade/
+
 **Powerful Quake Rattles Russia’s Far East but Causes Little Damage**\
 `A 8.8-magnitude earthquake shook the remote, sparsely populated Kamchatka region and set off tsunami waves. No serious injuries were reported, officials said.`\
 https://nytimes.com/2025/07/30/world/europe/russia-earthquake-kamchatka.html
@@ -6,8 +10,8 @@ https://nytimes.com/2025/07/30/world/europe/russia-earthquake-kamchatka.html
 `Find out if you’re an S.P.F. savant.`\
 https://nytimes.com/2025/07/30/well/sunscreen-quiz.html
 
-**Departing Flights Are Grounded at London’s Heathrow Airport**\
-`The disruption comes months after the airport, one of the world’s busiest, shut down for more than 16 hours because of a fire at an electricity substation.`\
+**Departing Flights Are Grounded at London Airports**\
+`The disruptions came after a company that provides air traffic control services in Britain said it had experienced a “technical issue.”`\
 https://nytimes.com/2025/07/30/world/europe/uk-flights-london-heathrow-airport-grounded.html
 
 **Our Best Cucumber Salad Recipes**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6524794/2025/07/30/jules-kounde-barcelona-contract/
 **NBA to play 6 games in Europe over 3 years, starting in Berlin and London**\
 `The Magic and Grizzlies play in two games overseas next season, including one in Berlin, where brothers Franz and Moritz Wagner grew up.`\
 https://nytimes.com/athletic/6524874/2025/07/30/nba-international-game-schedule-berlin-london/
-
-**How Churches May Be Able to Endorse Political Candidates**\
-`The I.R.S. said that churches could endorse candidates from the pulpit, a change in a longstanding interpretation of American nonprofit law. Elizabeth Dias, the national religion correspondent for The New York Times, describes how and why it happened.`\
-https://nytimes.com/video/us/politics/100000010298662/how-churches-may-be-able-to-endorse-political-candidates.html
 
