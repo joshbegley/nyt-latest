@@ -1,3 +1,7 @@
+**Park Avenue Killer Bought Rifle for $1,400 From His Casino Boss**\
+`The man who gunned down four people at a Park Avenue office building left anti-psychotic medication in his Las Vegas apartment, and a note.`\
+https://nytimes.com/2025/07/30/nyregion/park-avenue-killer-rifle.html
+
 **Candidate Trump Promised Oil Executives a Windfall. Now, They’re Getting It.**\
 `New tallies of the administration’s tax breaks and other incentives add up to tens of billions of dollars of benefits to the fossil fuel industry.`\
 https://nytimes.com/2025/07/30/climate/trumnp-campaign-funding-oil-industry-tax-breaks.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/07/30/us/dc-plane-crash-hearing/criss-crossing-rou
 **Grand Jury Witnesses Against Epstein and Maxwell Were All Investigators**\
 `No victims or associates testified in the proceedings that led to indictments in the cases, which have been the subject of conspiracy theories pushed by President Trump’s supporters.`\
 https://nytimes.com/2025/07/30/nyregion/epstein-maxwell-grand-jury-witnesses.html
-
-**See How Often Fed Governors Have Broken Ranks**\
-`Two top Fed officials voted against the central bank’s decision to leave rates unchanged, the first dual dissent in more than 30 years.`\
-https://nytimes.com/2025/07/30/business/economy/fed-rate-dissent-powell.html
 
