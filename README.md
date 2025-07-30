@@ -1,3 +1,11 @@
+**Bayern sign Diaz from Liverpool**\
+`Diaz had a contract with Liverpool until June 2027 but made it clear to the Anfield club that he wanted to leave.`\
+https://nytimes.com/athletic/6518278/2025/07/30/luis-diaz-bayern-transfer-confirmed/
+
+**Shaw backs Amorim's hardline approach: 'He demands 100 per cent'**\
+`Amorim has shown his ruthless streak since joining the club, making high demands on his players and `\
+https://nytimes.com/athletic/6524478/2025/07/30/man-united-news-shaw-amorim-squad/
+
 **Sunderland reach €10.5m agreement to sign goalkeeper Roefs from NEC Nijmegen**\
 `The Dutch goalkeeper will undergo his Sunderland medical later today before signing a five-year deal with the newly-promoted side.`\
 https://nytimes.com/athletic/6524440/2025/07/30/sunderland-transfer-news-robin-roefs/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6522565/2025/07/30/england-cricket-crawley-duckett/
 **Russia’s Far East Suffers Damage From Earthquake and Tsunami**\
 `Regional authorities in Sakhalin Oblast declared an emergency after a tsunami hit the Kuril Islands, and Kamchatka region was watching for volcanic activity.`\
 https://nytimes.com/2025/07/30/world/asia/russia-far-east-earthquake.html
-
-**What Is the Pacific ‘Ring of Fire’?**\
-`Many of the world’s biggest earthquakes, volcanic eruptions and tsunamis occur along a chain of seismologically active regions that encircle the Pacific Ocean.`\
-https://nytimes.com/article/ring-of-fire-earthquake-tsunami-volcano.html
-
-**The New York Times in Print for Wednesday, July 30, 2025**\
-``\
-https://nytimes.com/issue/todayspaper/2025/07/30/todays-new-york-times
 
