@@ -1,3 +1,15 @@
+**What we've learned about the Patriots through 6 training camp practices**\
+`Drake Maye and the offense have been just so-so, and K'Lavon Chaisson has stood out on D. But is Demario Douglas set to break out?`\
+https://nytimes.com/athletic/6523075/2025/07/30/patriots-training-camp-drake-maye-douglas/
+
+**2025 dynasty and rookie-only fantasy football rankings: Training camp update**\
+`Now that training camp is underway, Jake Ciely offers his updated dynasty and rookie-only fantasy football rankings. `\
+https://nytimes.com/athletic/6523444/2025/07/30/fantasy-football-2025-dynasty-rookie-rankings-training-camp-preseason/
+
+**How Falcons rookie James Pearce Jr. is helping spark an attitude adjustment in Atlanta**\
+`The Falcons overhauled their defense in the offseason. They're hoping players with "a natural edge" lead to a change on the field, too.`\
+https://nytimes.com/athletic/6523345/2025/07/30/falcons-james-pearce-jr-attitude-adjustment/
+
 **Alexander Isak's desire to leave Newcastle United - how we got here and what happens next**\
 `Why Alexander Isak wants to leave Newcastle, when the club started contract talks and why they stopped - and what happens next`\
 https://nytimes.com/athletic/6522319/2025/07/30/alexander-isak-newcastle-transfer-contract/

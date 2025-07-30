@@ -1,3 +1,15 @@
+**What we've learned about the Patriots through 6 training camp practices**\
+`Drake Maye and the offense have been just so-so, and K'Lavon Chaisson has stood out on D. But is Demario Douglas set to break out?`\
+https://nytimes.com/athletic/6523075/2025/07/30/patriots-training-camp-drake-maye-douglas/
+
+**2025 dynasty and rookie-only fantasy football rankings: Training camp update**\
+`Now that training camp is underway, Jake Ciely offers his updated dynasty and rookie-only fantasy football rankings. `\
+https://nytimes.com/athletic/6523444/2025/07/30/fantasy-football-2025-dynasty-rookie-rankings-training-camp-preseason/
+
+**How Falcons rookie James Pearce Jr. is helping spark an attitude adjustment in Atlanta**\
+`The Falcons overhauled their defense in the offseason. They're hoping players with "a natural edge" lead to a change on the field, too.`\
+https://nytimes.com/athletic/6523345/2025/07/30/falcons-james-pearce-jr-attitude-adjustment/
+
 **Alexander Isak's desire to leave Newcastle United - how we got here and what happens next**\
 `Why Alexander Isak wants to leave Newcastle, when the club started contract talks and why they stopped - and what happens next`\
 https://nytimes.com/athletic/6522319/2025/07/30/alexander-isak-newcastle-transfer-contract/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/07/30/us/politics/ntsb-hearings-dc-plane-crash.html
 **How to watch Liberty at Lynx: Long-awaited WNBA Finals rematch arrives**\
 `The New York Liberty and Minnesota Lynx went the distance in the 2024 WNBA Finals. Almost a year later, we'll get our first rematch.`\
 https://nytimes.com/athletic/6523960/2025/07/30/liberty-vs-lynx-2025-wnba-finals-preview-how-to-watch/
-
-**What to Watch at the Federal Reserve’s July Meeting**\
-`The U.S. central bank is widely expected to hold interest rates steady for a fifth straight meeting despite badgering from President Trump to lower borrowing costs.`\
-https://nytimes.com/2025/07/30/business/what-to-watch-at-the-federal-reserves-july-meeting.html
-
-**We Study Climate Change. It Endangers You and Your Children.**\
-`A Trump administration proposal runs counter to both basic logic and a growing mountain of science documenting direct harms from climate change.`\
-https://nytimes.com/2025/07/30/opinion/climate-change-regulations-epa.html
-
-**Democrats, This Is Our Moment to Lead. We Can’t Blow It.**\
-`This is the moment Democrats have been talking about for years.`\
-https://nytimes.com/2025/07/30/opinion/antonio-delgado-kathy-hochul-democrats.html
 
