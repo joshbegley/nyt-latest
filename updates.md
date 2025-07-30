@@ -1,3 +1,11 @@
+**Gilbert Arenas arrested, charged with running illegal gambling business**\
+`Arenas ran an illegal gambling ring and hosted high-level poker games in his home, according to an indictment filed by federal prosecutors.`\
+https://nytimes.com/athletic/6525606/2025/07/30/gilbert-arenas-nba-arrest-illegal-gambling-business/
+
+**Cuts to Data Collection May Erode Reliability of Economic Statistics**\
+`The Bureau of Labor Statistics is reducing or ending the collection of data that is used to calculate the Consumer Price Index.`\
+https://nytimes.com/2025/07/30/business/cuts-to-data-collection-may-erode-reliability-of-economic-statistics.html
+
 **White House Urges ‘Pro-Innovation Mind-Set’ to Crypto in New Report**\
 `In a 168-page report, the White House called on banking regulators, tax officials and U.S. lawmakers to implement policies that would advance the crypto industry’s agenda.`\
 https://nytimes.com/2025/07/30/technology/white-house-crypto.html
