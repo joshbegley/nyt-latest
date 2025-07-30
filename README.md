@@ -1,3 +1,7 @@
+**Mamdani Returns From Uganda and Visits Slain Officer’s Family**\
+`Zohran Mamdani, the Democratic candidate for mayor of New York City, visited the home of a police officer who was killed in a mass shooting in Midtown Manhattan on Monday.`\
+https://nytimes.com/2025/07/30/nyregion/mamdani-uganda-return-officer.html
+
 **Are Manchester United right to pick Benjamin Sesko as their main striker target?**\
 `Exploring why Manchester United have identified Benjamin Sesko as their No 1 striker target`\
 https://nytimes.com/athletic/6521070/2025/07/30/manchester-united-sesko-watkins/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/30/world/asia/laura-dahlmeier-olympian-died-accident
 **Tensions Between Trump and Powell at Tipping Point Ahead of Fed Meeting**\
 `President Trump wants lower interest rates, but Jerome H. Powell, the chair of the Federal Reserve, is not yet ready to deliver them.`\
 https://nytimes.com/2025/07/30/business/trump-powell-fed-tensions.html
-
-**What the Fed’s Rate Decision Means for Your Finances**\
-`Here’s how the central bank’s interest rate stance influences car loans, credit cards, mortgages, savings and student loans.`\
-https://nytimes.com/2025/07/30/business/fed-interest-rate-loans-mortgages.html
 
