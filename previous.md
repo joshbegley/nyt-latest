@@ -1,5 +1,17 @@
-**Phillies call their shot and get their closer, acquiring Jhoan Durán from Twins**\
-`Twins get young starter Mick Abel and teenage catching prospect Eduardo Tait.`\
+**Cubs’ clubhouse waiting to see what the front office has in store for trade deadline**\
+`Will Cubs president of baseball operations Jed Hoyer feel emboldened to maximize the club’s World Series odds this year?`\
+https://nytimes.com/athletic/6526054/2025/07/30/cubs-trade-deadline-milwaukee-brewers/
+
+**Giants trade Tyler Rogers, and the sell-off is on**\
+`The Giants shouldn't be in a position to sell given where they were three weeks ago. But they are sellers, alas, and this is a solid return.`\
+https://nytimes.com/athletic/6525855/2025/07/30/sf-giants-tyler-rogers-trade-analysis/
+
+**Mets acquire closer Ryan Helsley from Cardinals: Sources**\
+`Helsley is owed $2.6 million for the remainder of the season, his last before hitting free agency for the first time.`\
+https://nytimes.com/athletic/6519507/2025/07/30/mlb-mets-ryan-helsley-trade/
+
+**Phillies call their shot and get their closer, acquiring Jhoan Duran from Twins**\
+`The prospect cost was substantial, with starter Mick Abel, 23, and catching prospect Eduardo Tait, 18, going to the Twins.`\
 https://nytimes.com/athletic/6526053/2025/07/30/phillies-jhoan-duran-trade-twins/
 
 **Colorado Dentist Gets Life Without Parole in Wife’s Poisoning Murder**\
@@ -7,7 +19,7 @@ https://nytimes.com/athletic/6526053/2025/07/30/phillies-jhoan-duran-trade-twins
 https://nytimes.com/2025/07/30/us/colorado-dentist-james-craig-poisoned-wife.html
 
 **Red Sox at trade deadline: San Diego still after Jarren Duran, Garrett Crochet pushed back**\
-`MINNEAPOLIS — As the trade deadline enters its final 24 hours, Jarren Duran&#8217;s name is still squarely in the mix, with the San Diego Padres continuing to pursue the outfielder.`\
+`The Padres believe they might be one of the only teams that can still get Duran at the deadline.`\
 https://nytimes.com/athletic/6525988/2025/07/30/red-sox-trade-deadline-jarren-duran-garrett-crochet/
 
 **Canada Is Set to Recognize Palestinian Statehood at U.N.**\
@@ -25,16 +37,4 @@ https://nytimes.com/interactive/2025/07/30/us/politics/texas-gerrymandering-map-
 **‘Loyalty Enforcer’ Laura Loomer Targets Additional Officials**\
 `The far-right activist is continuing to use her close association with President Trump to go after those she deems insufficiently loyal.`\
 https://nytimes.com/2025/07/30/us/politics/laura-loomer-trump.html
-
-**Gaza Hunger Presents Trump With Moral Test Familiar to Past Presidents**\
-`The crisis has echoes of past humanitarian crises that left presidents wringing their hands over how to respond.`\
-https://nytimes.com/2025/07/30/us/politics/trump-gaza-foreign-policy.html
-
-**N.Y.C. Subway and Bus Fares Are Likely to Increase to $3 in January 2026**\
-`The proposed 10-cent increase, the first since 2023, has been long in the works and would come after the mothballing of the MetroCard.`\
-https://nytimes.com/2025/07/30/nyregion/nyc-subway-bus-fares-2026-mta.html
-
-**Broncos' Marvin Mims eager to add to playmaking menu after breakout second season**\
-`The receiver has been targeted with a heavy diet of screens and deep balls early in his career, but his route tree should blossom this fall.`\
-https://nytimes.com/athletic/6525716/2025/07/30/marvin-mims-broncos-training-camp/
 

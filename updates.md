@@ -1,3 +1,23 @@
+**Cubs’ clubhouse waiting to see what the front office has in store for trade deadline**\
+`Will Cubs president of baseball operations Jed Hoyer feel emboldened to maximize the club’s World Series odds this year?`\
+https://nytimes.com/athletic/6526054/2025/07/30/cubs-trade-deadline-milwaukee-brewers/
+
+**Giants trade Tyler Rogers, and the sell-off is on**\
+`The Giants shouldn't be in a position to sell given where they were three weeks ago. But they are sellers, alas, and this is a solid return.`\
+https://nytimes.com/athletic/6525855/2025/07/30/sf-giants-tyler-rogers-trade-analysis/
+
+**Mets acquire closer Ryan Helsley from Cardinals: Sources**\
+`Helsley is owed $2.6 million for the remainder of the season, his last before hitting free agency for the first time.`\
+https://nytimes.com/athletic/6519507/2025/07/30/mlb-mets-ryan-helsley-trade/
+
+**Phillies call their shot and get their closer, acquiring Jhoan Duran from Twins**\
+`The prospect cost was substantial, with starter Mick Abel, 23, and catching prospect Eduardo Tait, 18, going to the Twins.`\
+https://nytimes.com/athletic/6526053/2025/07/30/phillies-jhoan-duran-trade-twins/
+
+**Red Sox at trade deadline: San Diego still after Jarren Duran, Garrett Crochet pushed back**\
+`The Padres believe they might be one of the only teams that can still get Duran at the deadline.`\
+https://nytimes.com/athletic/6525988/2025/07/30/red-sox-trade-deadline-jarren-duran-garrett-crochet/
+
 **Phillies call their shot and get their closer, acquiring Jhoan Durán from Twins**\
 `Twins get young starter Mick Abel and teenage catching prospect Eduardo Tait.`\
 https://nytimes.com/athletic/6526053/2025/07/30/phillies-jhoan-duran-trade-twins/
