@@ -23,7 +23,7 @@ https://nytimes.com/athletic/6524350/2025/07/30/wnba-players-react-sex-toy-valky
 https://nytimes.com/2025/07/30/world/asia/tsunami-alerts-meaning.html
 
 **Tsunami Warning Issued for 100-Mile Stretch of Northern California**\
-`The area includes Crescent City, which is particularly vulnerable because of its low elevation.  The rest of the state was under a lesser tsunami advisory.`\
+`The area includes Crescent City, which is particularly vulnerable because of its low elevation. The rest of the state was under a lesser tsunami advisory.`\
 https://nytimes.com/2025/07/30/world/asia/tsunami-warning-california.html
 
 **Wednesday Briefing: U.K. May Recognize a Palestinian State**\
