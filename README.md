@@ -1,3 +1,7 @@
+**Trump Escalated His Feud With Brazil**\
+`Also, Kamala Harris will not run for California governor. Here’s the latest at the end of Wednesday.`\
+https://nytimes.com/2025/07/30/briefing/trump-feud-brazil-fed-rate-pause.html
+
 **What Kamala Harris’s Decision Not to Run for Governor Means for 2028**\
 `A Harris ally says “all options are on the table” but cautions against reading too much into the former vice president’s choice to skip the California governor race.`\
 https://nytimes.com/2025/07/30/us/politics/kamala-harris-2028-democrats.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/30/style/celsius-high-noon-recall-fda.html
 **What Tom Brady has taught Birmingham City... and what he thought of Wayne Rooney**\
 `New Amazon documentary 'Built in Birmingham: Brady & the Blues' charts the impact the legendary NFL quarterback has had on the English club`\
 https://nytimes.com/athletic/6524567/2025/07/30/tom-brady-birmingham-documentary-rooney/
-
-**Susan Monarez Faces Daunting Challenges as C.D.C. Director**\
-`The agency’s new leader must contend with reduced budgets, mass layoffs, political tumult and a boss determined to reshape public health.`\
-https://nytimes.com/2025/07/30/health/monarez-cdc-kennedy.html
 
