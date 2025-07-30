@@ -1,3 +1,19 @@
+**White House Urges ‘Pro-Innovation Mind-Set’ to Crypto in New Report**\
+`In a 168-page report, the White House called on banking regulators, tax officials and U.S. lawmakers to implement policies that would advance the crypto industry’s agenda.`\
+https://nytimes.com/2025/07/30/technology/white-house-crypto.html
+
+**Caleb Williams' camp goal? All 11 guys moving as one on Bears offense**\
+`Gervon Dexter explains which defensive line position is his favorite and Dennis Allen declares the No. 2 cornerback battle "wide open."`\
+https://nytimes.com/athletic/6525490/2025/07/30/bears-caleb-williams-smoother-offense/
+
+**A Surprise Attack Pits Ally Against Ally in East Africa**\
+`Eight people were reported dead after Ugandan soldiers crossed the border into South Sudan and skirmished with troops there.`\
+https://nytimes.com/2025/07/30/world/africa/uganda-south-sudan-skirmish.html
+
+**Chelsea and Ajax reach agreement over signing of Jorrel Hato on seven-year deal**\
+`The Netherlands defender, 19, is set to move to Stamford Bridge after supervisory board approval.`\
+https://nytimes.com/athletic/6519667/2025/07/30/jorrel-hato-chelsea-transfer-news/
+
 **When Earth’s Surface Shifts, a New Satellite Will See It**\
 `NISAR, built jointly by NASA and India’s space agency and launched on Wednesday, will use radar to monitor tiny changes across our planet’s land and icy regions.`\
 https://nytimes.com/2025/07/30/science/space-nisar-nasa-india.html
