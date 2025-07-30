@@ -1,3 +1,7 @@
+**Think You Know Sunscreen? Take Our Quiz.**\
+`Find out if you’re an S.P.F. savant.`\
+https://nytimes.com/2025/07/30/well/sunscreen-quiz.html
+
 **Departing Flights Are Grounded at London’s Heathrow Airport**\
 `The disruption comes months after the airport, one of the world’s busiest, shut down for more than 16 hours because of a fire at an electricity substation.`\
 https://nytimes.com/2025/07/30/world/europe/uk-flights-london-heathrow-airport-grounded.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/us/politics/100000010298662/how-churches-may-be-able-t
 **Your Zucchini Wants to Be This Lemony Bundt Cake**\
 `The thing I love about Yossy Arefi’s recipe is the double lemon glaze, which gives it a little sparkly crunch.`\
 https://nytimes.com/2025/07/30/dining/easy-zucchini-bundt-cake-with-lemon-recipe.html
-
-**This Strength Workout Will Make You a Better Runner**\
-`To help prevent injury, add these moves to your routine.`\
-https://nytimes.com/2025/07/30/well/move/runners-strength-training-workout.html
 
