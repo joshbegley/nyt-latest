@@ -1,3 +1,11 @@
+**Why Did Such a Powerful Earthquake Produce Such a Weak Tsunami?**\
+`The quake in Russia on Wednesday was among the strongest ever recorded — but perhaps not strong enough.`\
+https://nytimes.com/2025/07/30/science/russia-earthquake-tsunami-physics.html
+
+**U.S. Imposes Sanctions on Brazilian Judge Overseeing Bolsonaro Coup Case**\
+`Justice Alexandre de Moraes, who has been in the cross-hairs of the Trump administration, will face sanctions in a significant escalation of pressure on Brazil.`\
+https://nytimes.com/2025/07/30/world/americas/trump-sanctions-brazil-judge-bolsonaro.html
+
 **Why the Fed’s renovations have drawn such ire from President Trump.**\
 `By Colby Smith`\
 https://nytimes.com/live/2025/07/30/business/federal-reserve-interest-rates/why-the-feds-renovations-have-drawn-such-ire-from-president-trump
@@ -29,12 +37,4 @@ https://nytimes.com/live/2025/07/30/business/federal-reserve-interest-rates/trum
 **Tour de France Femmes: Kim Le Court becomes first African to win a stage - and takes yellow**\
 `History is made on Stage 5 of the Tour de France Femmes and United States champion Kristen Faulkner abandons.`\
 https://nytimes.com/athletic/6525040/2025/07/30/tour-de-france-femmes-kim-le-court/
-
-**Countries Airdrop Aid Into Gaza Amid Gripping Hunger**\
-`The Israeli military agency responsible for humanitarian affairs in Gaza said that Egypt, Jordan and the United Arab Emirates had airdropped packages in recent days. Prime Minister Keir Starmer of Britain confirmed that it had also airdropped supplies into Gaza this week.`\
-https://nytimes.com/video/world/middleeast/100000010313586/gaza-aid-airdrop-hunger.html
-
-**Confirmation Slowdown Forces a Senate Showdown**\
-`Under pressure to show they are resisting President Trump, Democrats have insisted on recorded votes on every nominee, creating a bottleneck ahead of the August recess.`\
-https://nytimes.com/2025/07/30/us/senate-confirmation-slowdown.html
 
