@@ -22,8 +22,8 @@ https://nytimes.com/athletic/6523444/2025/07/30/fantasy-football-2025-dynasty-ro
 `The Falcons overhauled their defense in the offseason. They're hoping players with "a natural edge" lead to a change on the field, too.`\
 https://nytimes.com/athletic/6523345/2025/07/30/falcons-james-pearce-jr-attitude-adjustment/
 
-**Alexander Isak's desire to leave Newcastle United - how we got here and what happens next**\
-`Why Alexander Isak wants to leave Newcastle, when the club started contract talks and why they stopped - and what happens next`\
+**Alexander Isak's desire to leave Newcastle United - how we got here and what happens now**\
+`Why the striker wants a transfer, when the club started new-contract talks and why they stopped - and what's next`\
 https://nytimes.com/athletic/6522319/2025/07/30/alexander-isak-newcastle-transfer-contract/
 
 **Read the Brazilian President’s Comments on His Feud with Trump**\

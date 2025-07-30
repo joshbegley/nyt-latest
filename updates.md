@@ -1,3 +1,7 @@
+**Alexander Isak's desire to leave Newcastle United - how we got here and what happens now**\
+`Why the striker wants a transfer, when the club started new-contract talks and why they stopped - and what's next`\
+https://nytimes.com/athletic/6522319/2025/07/30/alexander-isak-newcastle-transfer-contract/
+
 **Sprinter Fred Kerley pulls out of USATF Championships, will miss Worlds**\
 `Kerley, 30, won silver at the 2020 Olympics in Tokyo and bronze in Paris last year, and won the world 100m title in Eugene in 2022.`\
 https://nytimes.com/athletic/6524495/2025/07/30/fred-kerley-100m-world-championships/
