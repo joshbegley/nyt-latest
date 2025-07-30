@@ -1,3 +1,11 @@
+**Thailand and Cambodia Stepped Back From War, but Their Temple Fight Remains**\
+`Intense nationalism and disputed history — and maps — stoke the neighbors’ hostilities. Even a surge of international diplomacy has brought little hope of a lasting peace.`\
+https://nytimes.com/2025/07/30/world/asia/thailand-cambodia-temples.html
+
+**WNBA players react to sex toy thrown on court during Valkyries-Dream game**\
+`The incident occurred during the fourth quarter, with less than a minute left on the clock.`\
+https://nytimes.com/athletic/6524350/2025/07/30/wnba-players-react-sex-toy-valkyries-dream/
+
 **Here is what the different tsunami alerts mean.**\
 `Tsunami alerts, advisor`\
 https://nytimes.com/2025/07/30/world/asia/tsunami-alerts-meaning.html

@@ -1,3 +1,11 @@
+**Thailand and Cambodia Stepped Back From War, but Their Temple Fight Remains**\
+`Intense nationalism and disputed history — and maps — stoke the neighbors’ hostilities. Even a surge of international diplomacy has brought little hope of a lasting peace.`\
+https://nytimes.com/2025/07/30/world/asia/thailand-cambodia-temples.html
+
+**WNBA players react to sex toy thrown on court during Valkyries-Dream game**\
+`The incident occurred during the fourth quarter, with less than a minute left on the clock.`\
+https://nytimes.com/athletic/6524350/2025/07/30/wnba-players-react-sex-toy-valkyries-dream/
+
 **Here is what the different tsunami alerts mean.**\
 `Tsunami alerts, advisor`\
 https://nytimes.com/2025/07/30/world/asia/tsunami-alerts-meaning.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6471368/2025/07/30/jack-hinshelwood-interview/
 **The Scheffler paradox: How sportspeople cope when winning is not enough**\
 `The new Open champion's admission that winning can leave you unfulfilled was surprising but his words resonated with other elite athletes`\
 https://nytimes.com/athletic/6519928/2025/07/30/scott-scheffler-open-winning/
-
-**Wiegman, Burna Boy and how England celebrated becoming proper football royalty (again)**\
-`The story of how the Lionesses celebrated winning the Euros - ending with a huge party outside Buckingham Palace`\
-https://nytimes.com/athletic/6523478/2025/07/30/sarina-wiegman-burna-boy-england-celebrations/
-
-**Aaron Ramsdale to Newcastle United is a move rooted in ambition - on both sides**\
-`Ramsdale's arrival is not one Newcastle United supporters craved but the analysis shows he could evolve the way Eddie Howe's side play`\
-https://nytimes.com/athletic/6523174/2025/07/30/aaron-ramsdale-newcastle-united-transfer/
 
