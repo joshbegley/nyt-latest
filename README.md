@@ -1,9 +1,13 @@
+**Olympic star Léon Marchand crushes 200-meter IM world record at swimming worlds**\
+`Léon Marchand, who won four golds in Paris, lowered Ryan Lochte's 14-year-old mark by more than 1.3 seconds in Wednesday's semifinals.`\
+https://nytimes.com/athletic/6524775/2025/07/30/leon-marchand-200-meter-im-world-record-swimming-olympics/
+
 **Gyokeres could feature in Spurs friendly; Gabriel, Calafiori out**\
 `Arsenal fans have yet to see Gabriel in pre-season after the defender picked up an injury earlier this month.`\
 https://nytimes.com/athletic/6524746/2025/07/30/arsenal-tottenham-gyokeres-gabriel-calafiori/
 
-**What’s on Cupid’s Mind at Versailles? AI Can Tell You.**\
-`An AI-powered feature in the historic site’s app allows visitors to chat with 20 outdoor statues throughout the famous Baroque gardens.`\
+**What’s on Cupid’s Mind at Versailles? A.I. Can Tell You.**\
+`An A.I.-powered feature in the historic site’s app allows visitors to chat with 20 outdoor statues throughout the famous Baroque gardens.`\
 https://nytimes.com/2025/07/30/arts/design/versailles-ai-app.html
 
 **At swimming worlds, Luca Urlando and Jack Alexy make loud statements for U.S.**\
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/07/30/us/dc-plane-crash-hearing
 **Mike Trout on Angels manager's benches-clearing defense after HBPs: 'The boys love it'**\
 `Trout was one of four Angels hit by a pitch Tuesday. Manager Ray Montgomery yelled at Bruce Bochy about throwing pitches over the plate.`\
 https://nytimes.com/athletic/6524435/2025/07/30/angels-hit-by-pitch-montgomery-trout/
-
-**Mexico City is out for NASCAR's 2026 schedule; Chicagoland likely in: Sources**\
-`NASCAR will go without an international race in 2026, as the logistics proved difficult. Chicagoland is poised to take Mexico City's spot.`\
-https://nytimes.com/athletic/6523588/2025/07/30/nascar-2026-schedule-mexico-city-chicagoland/
 

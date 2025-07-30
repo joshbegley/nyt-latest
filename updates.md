@@ -1,3 +1,7 @@
+**Gyokeres could feature in Spurs friendly; Gabriel, Calafiori out**\
+`Arsenal fans have yet to see Gabriel in pre-season after the defender picked up an injury earlier this month.`\
+https://nytimes.com/athletic/6524746/2025/07/30/arsenal-tottenham-gyokeres-gabriel-calafiori/
+
 **What’s on Cupid’s Mind at Versailles? AI Can Tell You.**\
 `An AI-powered feature in the historic site’s app allows visitors to chat with 20 outdoor statues throughout the famous Baroque gardens.`\
 https://nytimes.com/2025/07/30/arts/design/versailles-ai-app.html
