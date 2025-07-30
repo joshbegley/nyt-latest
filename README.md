@@ -1,3 +1,7 @@
+**Who are the witnesses at Wednesday’s crash hearing?**\
+`By Karoun Demirjian`\
+https://nytimes.com/live/2025/07/30/us/dc-plane-crash-hearing/who-are-the-witnesses-at-wednesdays-crash-hearing
+
 **Pro-Palestinian Protest Group Can Appeal U.K. Ban, Judge Rules**\
 `A High Court judge in London said that Palestine Action had the right to challenge the British government’s decision to ban it as a terrorist group.`\
 https://nytimes.com/2025/07/30/world/europe/palestine-action-uk-ban-terrorist-court.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6524644/2025/07/30/luca-urlando-jack-alexy-swimming
 **The Biggest Unanswered Questions About the Reagan Airport Crash**\
 `Six months after a midair collision killed 67 people outside Washington, transportation safety officials will hear testimony from the key players whose pilots were involved in the accident.`\
 https://nytimes.com/2025/07/30/us/politics/reagan-airport-crash-questions.html
-
-**U.S. Economy Grew in Second Quarter as Tariffs Scrambled Data**\
-`Gross domestic product rebounded in the spring after contracting at the start of the year, but consumer spending remained weak.`\
-https://nytimes.com/2025/07/30/business/us-economy-grew-in-second-quarter-as-tariffs-scrambled-data.html
 
