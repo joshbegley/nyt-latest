@@ -1,3 +1,7 @@
+**Football’s Brain Injuries**\
+`We explain what we know about the disease after the shooting in Manhattan.`\
+https://nytimes.com/2025/07/30/briefing/footballs-brain-injuries.html
+
 **A Royal Send-off for Ozzy Osbourne, Prince of Darkness**\
 `On Wednesday, a cortege will take the singer’s coffin through the streets of his hometown, Birmingham, England.`\
 https://nytimes.com/2025/07/30/arts/music/ozzy-osbourne-funeral-procession-birmingham.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6523698/2025/07/30/antonio-gates-pro-football-hall-
 **As Phillies navigate trade deadline market, Brandon Marsh and Jesús Luzardo deliver**\
 `As the Phillies consider a potential outfield upgrade before Thursday's trading deadline, the blame is not all on Marsh. `\
 https://nytimes.com/athletic/6524285/2025/07/30/brandon-marsh-phillies-trade-deadline/
-
-**Red Sox players brace for deadline after Rafael Devers trade shock**\
-`There’s still uncertainty about what the Boston Red Sox will – or won’t – do before Thursday’s 6 p.m. ET trade deadline.`\
-https://nytimes.com/athletic/6524329/2025/07/30/rafael-devers-trade-red-sox-deadline/
 
