@@ -1,3 +1,23 @@
+**Sunderland reach €10.5m agreement to sign goalkeeper Roefs from NEC Nijmegen**\
+`The Dutch goalkeeper will undergo his Sunderland medical later today before signing a five-year deal with the newly-promoted side.`\
+https://nytimes.com/athletic/6524440/2025/07/30/sunderland-transfer-news-robin-roefs/
+
+**An Evening at the Office, and Four Lives Ended by Gunfire**\
+`A police officer. A security guard. An executive. An associate. They were remembered for their “light,” for their passion and commitment.`\
+https://nytimes.com/2025/07/30/nyregion/park-avenue-shooting-victims.html
+
+**Midtown Manhattan Becomes America’s Stage for Acts of Violence**\
+`A small part of the nation’s largest city has drawn people bent on killing to draw attention to their causes. The man who shot four people at a Park Avenue office tower was the latest.`\
+https://nytimes.com/2025/07/30/nyregion/midtown-manhattan-violence.html
+
+**‘Anybody but Mamdani’: 5 Groups Emerge to Raise Millions in Attack Funds**\
+`Real estate titans and financiers are forming super PACs to try to defeat Zohran Mamdani. Some organizers say that they won’t succeed unless Mayor Eric Adams or former Gov. Andrew Cuomo drops out.`\
+https://nytimes.com/2025/07/30/nyregion/mamdani-opposition-donors-mayor.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/07/30/crosswords/spelling-bee-forum.html
+
 **Late Night Doesn’t Recommend Trying to Convert Your Co-Workers**\
 `Despite the Trump administration’s support for proselytizing at the office, Stephen Colbert doesn’t think it’s a good idea.`\
 https://nytimes.com/2025/07/30/arts/television/colbert-trump-memo-religion-workplace.html
@@ -14,27 +34,7 @@ https://nytimes.com/2025/07/30/world/asia/russias-far-east-suffers-damage-from-e
 `Many of the world’s biggest earthquakes, volcanic eruptions and tsunamis occur along a chain of seismologically active regions that encircle the Pacific Ocean.`\
 https://nytimes.com/article/ring-of-fire-earthquake-tsunami-volcano.html
 
-**The New York Times in Print for Wednesday, July 30, 2025**\
-``\
-https://nytimes.com/issue/todayspaper/2025/07/30/todays-new-york-times
-
 **Israel Destroyed Gaza’s Health System. Palestinians Will Die for Years to Come.**\
 `Many in Gaza will not survive, not because of their injuries alone but because of the lack of a health care system to treat them.`\
 https://nytimes.com/2025/07/30/opinion/gaza-genocide-hospitals-health-system-israel.html
-
-**Greenberg: Ask anyone what Ryne Sandberg meant to the Cubs and Chicago**\
-`Shawon Dunston and Andre Dawson were devastated after realizing Sandberg was saying goodbye to them. They are devastated still.`\
-https://nytimes.com/athletic/6524263/2025/07/30/ryne-sandberg-chicago-cubs-teammates-shawon-dunston/
-
-**Thailand and Cambodia Stepped Back From War, but Their Temple Fight Remains**\
-`Intense nationalism and disputed history — and maps — stoke the neighbors’ hostilities. Even a surge of international diplomacy has brought little hope of a lasting peace.`\
-https://nytimes.com/2025/07/30/world/asia/thailand-cambodia-temples.html
-
-**WNBA players react to sex toy thrown on court during Valkyries-Dream game**\
-`The incident occurred during the fourth quarter, with less than a minute left on the clock.`\
-https://nytimes.com/athletic/6524350/2025/07/30/wnba-players-react-sex-toy-valkyries-dream/
-
-**Here is what the different tsunami alerts mean.**\
-`Tsunami alerts, advisor`\
-https://nytimes.com/2025/07/30/world/asia/tsunami-alerts-meaning.html
 
