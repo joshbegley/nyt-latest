@@ -1,3 +1,7 @@
+**Trade grades: With Ke'Bryan Hayes add, Reds bank on the glove and hope for the bat**\
+`The move immediately makes the Reds deeper, and offers upside. For the Pirates, it's a hope for hitting down the road. `\
+https://nytimes.com/athletic/6525713/2025/07/30/kebryan-hayes-reds-pirates-mlb-trade-grades/
+
 **Why Rising Rates of Autism and ADHD Might Be a Good Sign**\
 `There might be a kind of optimism in diagnosis creep.`\
 https://nytimes.com/2025/07/30/opinion/autism-adhd-diagnosis-creep.html

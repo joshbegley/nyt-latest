@@ -1,3 +1,7 @@
+**Trey Hendrickson follows the Ja’Marr Chase playbook, with more inevitable endgame: Dehner Jr. **\
+`The Bengals' star pass rusher switched from holdout to hold-in by attending training camp Wednesday.`\
+https://nytimes.com/athletic/6525619/2025/07/30/cincinnati-bengals-trey-hendrickson-training-camp-contract/
+
 **Trade grades: With Ke'Bryan Hayes add, Reds bank on the glove and hope for the bat**\
 `The move immediately makes the Reds deeper, and offers upside. For the Pirates, it's a hope for hitting down the road. `\
 https://nytimes.com/athletic/6525713/2025/07/30/kebryan-hayes-reds-pirates-mlb-trade-grades/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/30/world/africa/uganda-south-sudan-skirmish.html
 **When Earth’s Surface Shifts, a New Satellite Will See It**\
 `NISAR, built jointly by NASA and India’s space agency and launched on Wednesday, will use radar to monitor tiny changes across our planet’s land and icy regions.`\
 https://nytimes.com/2025/07/30/science/space-nisar-nasa-india.html
-
-**Why Rising Rates of Autism and ADHD Might Be a Good Sign**\
-`There might be a kind of optimism in diagnosis creep.`\
-https://nytimes.com/2025/07/30/opinion/autism-adhd-diagnosis-creep.html
 
