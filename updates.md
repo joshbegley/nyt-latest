@@ -1,3 +1,15 @@
+**How Texas Republicans Want to Flip These Democratic Urban Districts**\
+`Texas Republicans unveiled a redrawn congressional map that they hope will result in a gain of five seats in the U.S. House after the 2026 midterm elections.`\
+https://nytimes.com/interactive/2025/07/30/us/politics/texas-gerrymandering-map-redistricting.html
+
+**‘Loyalty Enforcer’ Laura Loomer Targets Additional Officials**\
+`The far-right activist is continuing to use her close association with President Trump to go after those she deems insufficiently loyal.`\
+https://nytimes.com/2025/07/30/us/politics/laura-loomer-trump.html
+
+**Gaza Hunger Presents Trump With Moral Test Familiar to Past Presidents**\
+`The crisis has echoes of past humanitarian crises that left presidents wringing their hands over how to respond.`\
+https://nytimes.com/2025/07/30/us/politics/trump-gaza-foreign-policy.html
+
 **N.Y.C. Subway and Bus Fares Are Likely to Increase to $3 in January 2026**\
 `The proposed 10-cent increase, the first since 2023, has been long in the works and would come after the mothballing of the MetroCard.`\
 https://nytimes.com/2025/07/30/nyregion/nyc-subway-bus-fares-2026-mta.html

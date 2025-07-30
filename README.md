@@ -1,3 +1,11 @@
+**Canada Is Set to Recognize Palestinian Statehood at U.N.**\
+`Prime Minister Mark Carney said Wednesday that Canada would join Britain in recognizing Palestinian statehood at the U.N. in September if the Palestinian Authority met certain conditions.`\
+https://nytimes.com/video/world/middleeast/100000010315205/canada-palestine-state-united-nations.html
+
+**South Korea Reaches Trade Deal With Trump**\
+`The agreement comes after other American allies, like Japan, clinched their own deals to partly moderate President Trump’s tariff threats.`\
+https://nytimes.com/2025/07/30/business/economy/trump-tariffs-south-korea.html
+
 **How Texas Republicans Want to Flip These Democratic Urban Districts**\
 `Texas Republicans unveiled a redrawn congressional map that they hope will result in a gain of five seats in the U.S. House after the 2026 midterm elections.`\
 https://nytimes.com/interactive/2025/07/30/us/politics/texas-gerrymandering-map-redistricting.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/07/30/us/politics/black-hawk-cockpit-transcripts.html
 **Traded on the same day, Rogers twins add another brotherly baseball oddity**\
 `Tyler Rogers goes from the Giants to the Mets while his brother Taylor heads to the Pirates from the Reds.`\
 https://nytimes.com/athletic/6525996/2025/07/30/tyler-taylor-rogers-twins-traded-same-day/
-
-**Army Secretary Orders West Point to Pull Appointment of Former Biden Official**\
-`The military academy’s appointment of Jen Easterly, who had been director of the Cybersecurity and Infrastructure Agency, was canceled after complaints from the far-right agitator Laura Loomer.`\
-https://nytimes.com/2025/07/30/us/politics/army-secretary-west-point-trump-loomer.html
-
-**Trump Administration Authorizes Deployment of National Guard at ICE Facilities**\
-`An Immigration and Customs Enforcement memo said that National Guard troops would assist in the deportation process for migrants in their custody.`\
-https://nytimes.com/2025/07/30/us/politics/trump-national-guard-ice.html
 
