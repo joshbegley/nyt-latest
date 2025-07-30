@@ -1,3 +1,11 @@
+**Leagues Cup's place in a Club World Cup world**\
+`Where does MLS and Liga MX's annual competition sit in an increasingly saturated landscape?`\
+https://nytimes.com/athletic/6525209/2025/07/30/leagues-cup-mls-liga-mx-value-club-world-cup/
+
+**Virginia City Councilman Is Set on Fire in Attack, Police Say**\
+`A man burst into an office in Danville, Va., where the councilman, Lee Vogler, was working, doused him with a flammable liquid and set him on fire, the authorities said.`\
+https://nytimes.com/2025/07/30/us/lee-vogler-fire-attack-showcase-magazine-virginia.html
+
 **Criss-crossing routes in D.C. airspace leave little room for error.**\
 `By Elena Shao, Leanne Abraham, Eli Murray and Lazaro Gamio`\
 https://nytimes.com/live/2025/07/30/us/dc-plane-crash-hearing/criss-crossing-routes-in-dc-airspace-leave-little-room-for-error
@@ -21,12 +29,4 @@ https://nytimes.com/athletic/6525319/2025/07/30/seahawks-gm-contract-extension-j
 **Angels add relievers Andrew Chafin, Luis Garcia from Nats in hopes of playoff push**\
 `The Angels send pitcher Jake Eder and minor-league first baseman Sam Brown back to Washington in the deal. `\
 https://nytimes.com/athletic/6525404/2025/07/30/angels-andrew-chafin-mlb-trade/
-
-**What’s in Our Queue? ‘Love Island’ and More**\
-`Text by Nia Decaille`\
-https://nytimes.com/card/2025/07/30/arts/editors-recommendations-loveislanduk
-
-**Senators grill Agriculture Dept. deputy over the agency’s reorganization plan.**\
-`By Linda Qiu`\
-https://nytimes.com/live/2025/07/30/us/trump-news/senators-grill-agriculture-dept-deputy-over-the-agencys-reorganization-plan
 

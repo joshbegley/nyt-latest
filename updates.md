@@ -1,3 +1,15 @@
+**Criss-crossing routes in D.C. airspace leave little room for error.**\
+`By Elena Shao, Leanne Abraham, Eli Murray and Lazaro Gamio`\
+https://nytimes.com/live/2025/07/30/us/dc-plane-crash-hearing/criss-crossing-routes-in-dc-airspace-leave-little-room-for-error
+
+**Grand Jury Witnesses Against Epstein and Maxwell Were All Investigators**\
+`No victims or associates testified in the proceedings that led to indictments in the cases, which have been the subject of conspiracy theories pushed by President Trump’s supporters.`\
+https://nytimes.com/2025/07/30/nyregion/epstein-maxwell-grand-jury-witnesses.html
+
+**See How Often Fed Governors Have Broken Ranks**\
+`Two top Fed officials voted against the central bank’s decision to leave rates unchanged, the first dual dissent in more than 30 years.`\
+https://nytimes.com/2025/07/30/business/economy/fed-rate-dissent-powell.html
+
 **See How Often Fed Governors Have Broken Ranks**\
 `Two top Fed officials voted against the central bank’s decision to leave rates unchanged, the first dual dissent in more than 30 years.`\
 https://nytimes.com/2025/07/30/business/economy/see-how-often-fed-governors-have-broken-ranks.html
