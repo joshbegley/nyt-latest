@@ -1,3 +1,11 @@
+**Trump Threatens India With Steep Tariffs, Including ‘Penalty’ Over Russian Oil**\
+`The president said Wednesday morning that imports from India would be subject to a 25 percent tariff as of Friday, as trade talks between the countries hit a stumbling block.`\
+https://nytimes.com/2025/07/30/us/politics/india-tariffs-trump-russia.html
+
+**Lowetide: Why the Oilers should sign Mattias Ekholm to an extension**\
+`Ekholm is the second most important name for the Oilers to re-sign after Connor McDavid.`\
+https://nytimes.com/athletic/6521716/2025/07/30/edmonton-oilers-mattias-ekholm-contract-extension-why/
+
 **Who are the witnesses at Wednesday’s crash hearing?**\
 `By Karoun Demirjian`\
 https://nytimes.com/live/2025/07/30/us/dc-plane-crash-hearing/who-are-the-witnesses-at-wednesdays-crash-hearing
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6524746/2025/07/30/arsenal-tottenham-gyokeres-gabri
 **What’s on Cupid’s Mind at Versailles? A.I. Can Tell You.**\
 `An A.I.-powered feature in the historic site’s app allows visitors to chat with 20 outdoor statues throughout the famous Baroque gardens.`\
 https://nytimes.com/2025/07/30/arts/design/versailles-ai-app.html
-
-**At swimming worlds, Luca Urlando and Jack Alexy make loud statements for U.S.**\
-`Luca Urlando, Jack Alexy and Claire Weinstein all showed why they're swimmers to watch leading to the L.A. Olympics.`\
-https://nytimes.com/athletic/6524644/2025/07/30/luca-urlando-jack-alexy-swimming-world-championships/
-
-**The Biggest Unanswered Questions About the Reagan Airport Crash**\
-`Six months after a midair collision killed 67 people outside Washington, transportation safety officials will hear testimony from the key players whose pilots were involved in the accident.`\
-https://nytimes.com/2025/07/30/us/politics/reagan-airport-crash-questions.html
 

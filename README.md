@@ -1,4 +1,8 @@
-**Trump Threatens India With Steep Tariffs, Including ‘Penalty’ Over Russian Oil**\
+**Referee body camera trials extended worldwide after Club World Cup test**\
+`The implementation of the technology in the Premier League for the 2025-26 season is under consideration.`\
+https://nytimes.com/athletic/6524760/2025/07/30/referee-body-camera-trials-extended/
+
+**Trump Threatens India With Steep Tariffs, Including Penalty Over Russian Oil**\
 `The president said Wednesday morning that imports from India would be subject to a 25 percent tariff as of Friday, as trade talks between the countries hit a stumbling block.`\
 https://nytimes.com/2025/07/30/us/politics/india-tariffs-trump-russia.html
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6524775/2025/07/30/leon-marchand-200-meter-im-world
 **Gyokeres could feature in Spurs friendly; Gabriel, Calafiori out**\
 `Arsenal fans have yet to see Gabriel in pre-season after the defender picked up an injury earlier this month.`\
 https://nytimes.com/athletic/6524746/2025/07/30/arsenal-tottenham-gyokeres-gabriel-calafiori/
-
-**What’s on Cupid’s Mind at Versailles? A.I. Can Tell You.**\
-`An A.I.-powered feature in the historic site’s app allows visitors to chat with 20 outdoor statues throughout the famous Baroque gardens.`\
-https://nytimes.com/2025/07/30/arts/design/versailles-ai-app.html
 

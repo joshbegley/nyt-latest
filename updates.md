@@ -1,3 +1,11 @@
+**Trump Threatens India With Steep Tariffs, Including ‘Penalty’ Over Russian Oil**\
+`The president said Wednesday morning that imports from India would be subject to a 25 percent tariff as of Friday, as trade talks between the countries hit a stumbling block.`\
+https://nytimes.com/2025/07/30/us/politics/india-tariffs-trump-russia.html
+
+**Lowetide: Why the Oilers should sign Mattias Ekholm to an extension**\
+`Ekholm is the second most important name for the Oilers to re-sign after Connor McDavid.`\
+https://nytimes.com/athletic/6521716/2025/07/30/edmonton-oilers-mattias-ekholm-contract-extension-why/
+
 **Who are the witnesses at Wednesday’s crash hearing?**\
 `By Karoun Demirjian`\
 https://nytimes.com/live/2025/07/30/us/dc-plane-crash-hearing/who-are-the-witnesses-at-wednesdays-crash-hearing
