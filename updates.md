@@ -1,3 +1,15 @@
+**Newcastle's Willock taken off on stretcher in pre-season friendly**\
+`Willock went down after a challenge in the final minute, seemingly in agony clutching the back of his leg around the ankle area.`\
+https://nytimes.com/athletic/6524896/2025/07/30/joe-willock-newcastle-injury-update/
+
+**Sunderland hold talks over Marc Guiu loan dal**\
+`The 19-year-old scored six goals in 16 Chelsea appearances, of which seven were starts, last season.`\
+https://nytimes.com/athletic/6513327/2025/07/30/sunderland-transfers-marc-guiu-chelsea/
+
+**Man Utd prioritising Sesko move**\
+`Ollie Watkins also has admirers at Old Trafford but Aston Villa told United early in the window that the 29-year-old is not for sale.`\
+https://nytimes.com/athletic/6519737/2025/07/30/benjamin-sesko-manchester-united-transfers/
+
 **Six The Hundred franchises sold ahead of 2025 competition**\
 `A mix of American sports investors and Indian cricket magnates have bought stakes in the teams.`\
 https://nytimes.com/athletic/6524826/2025/07/30/the-hundred-cricket-franchises-sold/

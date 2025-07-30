@@ -1,3 +1,7 @@
+**Barcelona agree €44m sponsorship deal with DR Congo**\
+`The sponsorship ensures the central African nation's logo of "DRC, coeur de l'Afrique" will appear on the back of all Barca training kits.`\
+https://nytimes.com/athletic/6497789/2025/07/30/barcelona-kit-sponsor-dr-congo/
+
 **Newcastle's Willock taken off on stretcher in pre-season friendly**\
 `Willock went down after a challenge in the final minute, seemingly in agony clutching the back of his leg around the ankle area.`\
 https://nytimes.com/athletic/6524896/2025/07/30/joe-willock-newcastle-injury-update/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6524760/2025/07/30/referee-body-camera-trials-exten
 **Trump Threatens India With Steep Tariffs, Including Penalty Over Russian Oil**\
 `The president said Wednesday morning that imports from India would be subject to a 25 percent tariff as of Friday, as trade talks between the countries hit a stumbling block.`\
 https://nytimes.com/2025/07/30/us/politics/india-tariffs-trump-russia.html
-
-**Lowetide: Why the Oilers should sign Mattias Ekholm to an extension**\
-`Ekholm is the second most important name for the Oilers to re-sign after Connor McDavid.`\
-https://nytimes.com/athletic/6521716/2025/07/30/edmonton-oilers-mattias-ekholm-contract-extension-why/
 

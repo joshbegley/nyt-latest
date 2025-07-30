@@ -1,3 +1,15 @@
+**Newcastle's Willock taken off on stretcher in pre-season friendly**\
+`Willock went down after a challenge in the final minute, seemingly in agony clutching the back of his leg around the ankle area.`\
+https://nytimes.com/athletic/6524896/2025/07/30/joe-willock-newcastle-injury-update/
+
+**Sunderland hold talks over Marc Guiu loan dal**\
+`The 19-year-old scored six goals in 16 Chelsea appearances, of which seven were starts, last season.`\
+https://nytimes.com/athletic/6513327/2025/07/30/sunderland-transfers-marc-guiu-chelsea/
+
+**Man Utd prioritising Sesko move**\
+`Ollie Watkins also has admirers at Old Trafford but Aston Villa told United early in the window that the 29-year-old is not for sale.`\
+https://nytimes.com/athletic/6519737/2025/07/30/benjamin-sesko-manchester-united-transfers/
+
 **Six The Hundred franchises sold ahead of 2025 competition**\
 `A mix of American sports investors and Indian cricket magnates have bought stakes in the teams.`\
 https://nytimes.com/athletic/6524826/2025/07/30/the-hundred-cricket-franchises-sold/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/07/30/us/politics/india-tariffs-trump-russia.html
 **Lowetide: Why the Oilers should sign Mattias Ekholm to an extension**\
 `Ekholm is the second most important name for the Oilers to re-sign after Connor McDavid.`\
 https://nytimes.com/athletic/6521716/2025/07/30/edmonton-oilers-mattias-ekholm-contract-extension-why/
-
-**Who are the witnesses at Wednesday’s crash hearing?**\
-`By Karoun Demirjian`\
-https://nytimes.com/live/2025/07/30/us/dc-plane-crash-hearing/who-are-the-witnesses-at-wednesdays-crash-hearing
-
-**Pro-Palestinian Protest Group Can Appeal U.K. Ban, Judge Rules**\
-`A High Court judge in London said that Palestine Action had the right to challenge the British government’s decision to ban it as a terrorist group.`\
-https://nytimes.com/2025/07/30/world/europe/palestine-action-uk-ban-terrorist-court.html
-
-**Rick Venturi unfiltered: Colts analyst breaks down practice, Indy's all-or-nothing season**\
-`Venturi wants to see a more confident Anthony Richardson, a more mature AD Mitchell and a lot more from this year's Colts. `\
-https://nytimes.com/athletic/6524035/2025/07/30/colts-rick-venturi-anthony-richardson-training-camp/
 
