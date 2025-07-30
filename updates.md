@@ -1,3 +1,7 @@
+**House Democrats Sue ICE for Barring Them From Detention Facilities**\
+`The 12 Democrats accused the Trump administration of violating the law when it turned them away from immigrant detention sites and imposed a new policy limiting congressional access.`\
+https://nytimes.com/2025/07/30/us/politics/house-democrats-ice-lawsuit.html
+
 **Why Did Such a Powerful Earthquake Produce Such a Weak Tsunami?**\
 `The quake in Russia on Wednesday was among the strongest ever recorded — but perhaps not strong enough.`\
 https://nytimes.com/2025/07/30/science/russia-earthquake-tsunami-physics.html

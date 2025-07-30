@@ -1,3 +1,7 @@
+**Canada’s Measles Outbreak Exceeds Cases in the U.S.**\
+`Some doctors in Alberta have criticized officials for not declaring a health emergency in the western province where measles infections are surging.`\
+https://nytimes.com/2025/07/30/world/canada/canada-alberta-measles-outbreak.html
+
 **House Democrats Sue ICE for Barring Them From Detention Facilities**\
 `The 12 Democrats accused the Trump administration of violating the law when it turned them away from immigrant detention sites and imposed a new policy limiting congressional access.`\
 https://nytimes.com/2025/07/30/us/politics/house-democrats-ice-lawsuit.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/30/nyregion/mamdani-uganda-return-officer.html
 **Are Manchester United right to pick Benjamin Sesko as their main striker target?**\
 `Exploring why Manchester United have identified Benjamin Sesko as their No 1 striker target`\
 https://nytimes.com/athletic/6521070/2025/07/30/manchester-united-sesko-watkins/
-
-**Trump has reshaped global trade. What does that mean for the U.S. economy?**\
-`By Ana Swanson`\
-https://nytimes.com/live/2025/07/30/business/federal-reserve-interest-rates/trump-has-reshaped-global-trade-what-does-that-mean-for-the-us-economy
 
