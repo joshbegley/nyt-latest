@@ -1,4 +1,12 @@
 **Coco Gauff overcomes serve struggles to win first match since French Open**\
+`Gauff beat Danielle Collins in the first round of the Canadian Open despite 23 double faults.`\
+https://nytimes.com/athletic/6524178/2025/07/29/coco-gauff-wins-first-match-since-french-open/
+
+**Live Updates: Tsunami Alerts in U.S. and Japan After One of Largest Quakes on Record**\
+`The 8.8-magnitude earthquake off Russia’s coast led to widespread warnings of potentially destructive waves. Officials in Hawaii told people to seek higher ground.`\
+https://nytimes.com/live/2025/07/29/world/earthquake-tsunami-russia-japan-hawaii
+
+**Coco Gauff overcomes serve struggles to win first match since French Open**\
 `Gauff beats Danielle Collins in first round at Canadian Open despite 23 double faults.`\
 https://nytimes.com/athletic/6524178/2025/07/29/coco-gauff-wins-first-match-since-french-open/
 
