@@ -7,7 +7,7 @@ https://nytimes.com/athletic/6524101/2025/07/29/mlb-trade-deadline-market-slow/
 https://nytimes.com/live/2025/07/29/world/earthquake-tsunami-russia-japan-hawaii
 
 **Five key Giants trade deadline questions: Should Buster Posey prioritize the future?**\
-`With the Giants sinking in the standings, some are ready to give up on this season and sell at the deadline. Is Buster Posey among them?`\
+`With the Giants sinking in the standings, some are ready to give up on this season and sell at the deadline. Is Posey among them?`\
 https://nytimes.com/athletic/6523974/2025/07/29/sf-giants-mlb-trade-deadline-questions-targets/
 
 **Hug watch heard 'round the world: Jhoan Duran remains a Twin despite internet panic**\

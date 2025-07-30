@@ -1,3 +1,15 @@
+**Four reasons for MLB’s glacial trade market — and why it’s likely to change soon**\
+`Teams, players and odd circumstances have led to a methodical pace during trade deadline season; history says it's the calm before the storm`\
+https://nytimes.com/athletic/6524101/2025/07/29/mlb-trade-deadline-market-slow/
+
+**Live Updates: Tsunami Alerts Issued for U.S. and Japan After Huge Pacific Quake**\
+`The 8.8-magnitude earthquake off Russia’s coast led to warnings and advisories for parts of Japan and Alaska. Officials in Hawaii told people to expect destructive waves.`\
+https://nytimes.com/live/2025/07/29/world/earthquake-tsunami-russia-japan-hawaii
+
+**Five key Giants trade deadline questions: Should Buster Posey prioritize the future?**\
+`With the Giants sinking in the standings, some are ready to give up on this season and sell at the deadline. Is Buster Posey among them?`\
+https://nytimes.com/athletic/6523974/2025/07/29/sf-giants-mlb-trade-deadline-questions-targets/
+
 **Hug watch heard 'round the world: Jhoan Duran remains a Twin despite internet panic**\
 `Multiple Twins sources confirmed that Duran had not been traded, as many fans suspected: "He hugged Frank — like he always does."`\
 https://nytimes.com/athletic/6524059/2025/07/29/twins-fake-hugs-mlb-trade-deadline/

@@ -1,3 +1,15 @@
+**Four reasons for MLB’s glacial trade market — and why it’s likely to change soon**\
+`Teams, players and odd circumstances have led to a methodical pace during trade deadline season; history says it's the calm before the storm`\
+https://nytimes.com/athletic/6524101/2025/07/29/mlb-trade-deadline-market-slow/
+
+**Live Updates: Tsunami Alerts Issued for U.S. and Japan After Huge Pacific Quake**\
+`The 8.8-magnitude earthquake off Russia’s coast led to warnings and advisories for parts of Japan and Alaska. Officials in Hawaii told people to expect destructive waves.`\
+https://nytimes.com/live/2025/07/29/world/earthquake-tsunami-russia-japan-hawaii
+
+**Five key Giants trade deadline questions: Should Buster Posey prioritize the future?**\
+`With the Giants sinking in the standings, some are ready to give up on this season and sell at the deadline. Is Buster Posey among them?`\
+https://nytimes.com/athletic/6523974/2025/07/29/sf-giants-mlb-trade-deadline-questions-targets/
+
 **Hug watch heard 'round the world: Jhoan Duran remains a Twin despite internet panic**\
 `Multiple Twins sources confirmed that Duran had not been traded, as many fans suspected: "He hugged Frank — like he always does."`\
 https://nytimes.com/athletic/6524059/2025/07/29/twins-fake-hugs-mlb-trade-deadline/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/07/29/us/politics/emil-bove-confirmed-appeals-judge.htm
 **Trump Bypasses Congress to Keep Interim Prosecutors in California and Nevada**\
 `A similar approach in New Jersey has led to cancellations of court proceedings, as judges question whether the president’s designee for U.S. Attorney has any authority.`\
 https://nytimes.com/2025/07/29/us/politics/trump-us-attorneys-california-nevada.html
-
-**Tsunami Alerts Issued for U.S. and Japan After Huge Pacific Quake**\
-`The 8.8-magnitude earthquake off Russia’s coast led to warnings and advisories across a broad region. Officials in Hawaii told people to expect destructive waves.`\
-https://nytimes.com/2025/07/29/world/japan-earthquake-tsunami-north-pacific-ocean.html
-
-**Chargers offense looks sloppy in final practice before Hall of Fame Game**\
-`Trey Lance will start at quarterback and play into the third quarter of Thursday's Hall of Fame Game against the Lions. `\
-https://nytimes.com/athletic/6523969/2025/07/29/chargers-training-camp-offense-sloppy/
-
-**Cory Booker Accuses Democrats of Being ‘Complicit’ with Trump**\
-`A heated exchange erupted after Senator Catherine Cortez Masto, Democrat of Nevada, asked for unanimous approval to pass a bipartisan policing legislation. Senator Cory Booker, Democrat of New Jersey, objected and said that Democrats must challenge President Trump’s agenda at every opportunity.`\
-https://nytimes.com/video/us/politics/100000010312754/booker-cortez-masto-trump-exchange.html
 
