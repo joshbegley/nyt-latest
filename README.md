@@ -1,3 +1,7 @@
+**Butter, but Even Better**\
+`Plus: a new farm hotel in Sweden, a group exhibition in Jaipur and more recommendations from T Magazine.`\
+https://nytimes.com/2025/07/30/t-magazine/seasoned-butter-restaurants.html
+
 **Investigators Home in on Altitude Discrepancy in Army Helicopter Before Potomac Crash**\
 `Flight instruments probably led the Black Hawk crew to believe the helicopter was lower than it actually was before the collision with a commercial airplane on Jan. 29.`\
 https://nytimes.com/2025/07/30/us/politics/army-helicopter-potomac-crash.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/30/technology/microsoft-earnings-ai-data-centers.htm
 **Trump Executive Order Ends Tariff Exemption on Imports Less Than $800**\
 `The low-cost shipments were previously excluded from tariffs; President Trump said the loophole has allowed countries to avoid taxes and smuggle drugs into the U.S.`\
 https://nytimes.com/2025/07/30/us/politics/trump-tariffs-de-minimis-exemption.html
-
-**Ford Is Latest Carmaker to Blame Tariffs for Profit Slump**\
-`The company estimated that duties on imported cars and car parts would cost it $2 billion this year.`\
-https://nytimes.com/2025/07/30/business/ford-profit-tariffs.html
 
