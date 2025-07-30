@@ -1,3 +1,7 @@
+**Coco Gauff overcomes serve struggles to win first match since French Open**\
+`Gauff beats Danielle Collins in first round at Canadian Open despite 23 double faults.`\
+https://nytimes.com/athletic/6524178/2025/07/29/coco-gauff-wins-first-match-since-french-open/
+
 **What I'm hearing about the Cardinals' trade deadline with less than 48 hours to go**\
 `Steven Matz has thrived as a late-inning reliever for St. Louis, but opposing clubs eye him as a swingman option.`\
 https://nytimes.com/athletic/6523845/2025/07/29/cardinals-mlb-trade-deadline-relievers/
