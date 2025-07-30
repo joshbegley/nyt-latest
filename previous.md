@@ -1,3 +1,15 @@
+**Army Secretary Orders West Point to Pull Appointment of Former Biden Official**\
+`The military academy’s appointment of Jen Easterly, who had been director of the Cybersecurity and Infrastructure Agency, was canceled after complaints from the far-right agitator Laura Loomer.`\
+https://nytimes.com/2025/07/30/us/politics/army-secretary-west-point-trump-loomer.html
+
+**Trump Administration Authorizes Deployment of National Guard at ICE Facilities**\
+`An Immigration and Customs Enforcement memo said that National Guard troops would assist in the deportation process for migrants in their custody.`\
+https://nytimes.com/2025/07/30/us/politics/trump-national-guard-ice.html
+
+**Treasury Secretary Says Trump Accounts Could Pave Way to Privatizing Social Security**\
+`Treasury Secretary Scott Bessent’s comments about the safety net program ventured into the so-called third rail of American politics.`\
+https://nytimes.com/2025/07/30/business/bessent-trump-social-security.html
+
 **Trump Escalated His Feud With Brazil**\
 `Also, Kamala Harris will not run for California governor. Here’s the latest at the end of Wednesday.`\
 https://nytimes.com/2025/07/30/briefing/trump-feud-brazil-fed-rate-pause.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/07/30/nyregion/adams-veto-ballys-casino-trump.html
 **Trump Targets Copper With Tariffs, Though Not as Aggressively as Expected**\
 `The president stopped short of putting a 50 percent tariff on refined copper, as he had threatened earlier this year. The market reaction was swift anyway and prices tumbled.`\
 https://nytimes.com/2025/07/30/us/politics/trump-tariffs-copper.html
-
-**Canada to Recognize Palestinian State at the U.N. General Assembly**\
-`Canada joins France and Britain in taking similar steps, after months of increasing criticism of Israel by Prime Minister Mark Carney.`\
-https://nytimes.com/2025/07/30/world/canada/canada-palestinian-state-recognition.html
-
-**Oops, There May Be Vodka in That Energy Drink**\
-`A mix-up with a packaging supplier resulted in some cans of Celsius, an energy drink containing no alcohol, being filled with vodka seltzer.`\
-https://nytimes.com/2025/07/30/style/celsius-high-noon-recall-fda.html
-
-**What Tom Brady has taught Birmingham City... and what he thought of Wayne Rooney**\
-`New Amazon documentary 'Built in Birmingham: Brady & the Blues' charts the impact the legendary NFL quarterback has had on the English club`\
-https://nytimes.com/athletic/6524567/2025/07/30/tom-brady-birmingham-documentary-rooney/
 

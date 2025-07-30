@@ -1,3 +1,15 @@
+**Army Secretary Orders West Point to Pull Appointment of Former Biden Official**\
+`The military academy’s appointment of Jen Easterly, who had been director of the Cybersecurity and Infrastructure Agency, was canceled after complaints from the far-right agitator Laura Loomer.`\
+https://nytimes.com/2025/07/30/us/politics/army-secretary-west-point-trump-loomer.html
+
+**Trump Administration Authorizes Deployment of National Guard at ICE Facilities**\
+`An Immigration and Customs Enforcement memo said that National Guard troops would assist in the deportation process for migrants in their custody.`\
+https://nytimes.com/2025/07/30/us/politics/trump-national-guard-ice.html
+
+**Treasury Secretary Says Trump Accounts Could Pave Way to Privatizing Social Security**\
+`Treasury Secretary Scott Bessent’s comments about the safety net program ventured into the so-called third rail of American politics.`\
+https://nytimes.com/2025/07/30/business/bessent-trump-social-security.html
+
 **Trump Escalated His Feud With Brazil**\
 `Also, Kamala Harris will not run for California governor. Here’s the latest at the end of Wednesday.`\
 https://nytimes.com/2025/07/30/briefing/trump-feud-brazil-fed-rate-pause.html
