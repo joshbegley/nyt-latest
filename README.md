@@ -1,3 +1,19 @@
+**Departing Flights Are Grounded at London’s Heathrow Airport**\
+`The disruption comes months after the airport, one of the world’s busiest, shut down for more than 16 hours because of a fire at an electricity substation.`\
+https://nytimes.com/2025/07/30/world/europe/uk-flights-london-heathrow-airport-grounded.html
+
+**Our Best Cucumber Salad Recipes**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/cucumber-salad-recipes
+
+**gws-argentina-chile-summer-skiing**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/argentina-chile-summer-skiing
+
+**gws-aja-wilson-wnba-las-vegas**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/aja-wilson-wnba-las-vegas
+
 **Team K League 1 Newcastle 0: Woe for Willock, another defeat, Park impresses**\
 `Newcastle's pre-season continues to be dominated by Alexander Isak speculation - and defeats. The latest coming in Suwon`\
 https://nytimes.com/athletic/6524960/2025/07/30/newcastle-defeat-tour-howe-willock-park/
@@ -21,20 +37,4 @@ https://nytimes.com/2025/07/30/dining/easy-zucchini-bundt-cake-with-lemon-recipe
 **This Strength Workout Will Make You a Better Runner**\
 `To help prevent injury, add these moves to your routine.`\
 https://nytimes.com/2025/07/30/well/move/runners-strength-training-workout.html
-
-**Ethel Cain, Pop’s Experimental Problem Child, Will Never Be the Same**\
-`One of music’s least likely breakout stars returns to the spotlight following a successful debut, an indulgent ambient detour and some recent controversy.`\
-https://nytimes.com/2025/07/30/arts/music/ethel-cain-willoughby-tucker-interview-popcast.html
-
-**Pilots for Army Black Hawk Discussed Changing Course Before Crash**\
-`The maneuver might have taken the helicopter out of the direct path of a passenger jet as it was trying to land at Reagan Airport on Jan. 29.`\
-https://nytimes.com/2025/07/30/us/politics/black-hawk-reagan-crash-transcripts.html
-
-**gws-happy-gilmore-shooter-mcgavin-christopher-mcdonald**\
-`(No description)`\
-https://nytimes.com/newsgraphics/card-story/happy-gilmore-shooter-mcgavin-christopher-mcdonald
-
-**Teach Writing With The New York Times: Our 2025-26 Curriculum**\
-`Our eight writing units are based on real-world features like reviews, opinion essays, narratives, podcasts, photo essays and more.`\
-https://nytimes.com/2025/07/30/learning/teach-writing-with-the-new-york-times-our-2025-26-curriculum.html
 
