@@ -1,3 +1,7 @@
+**What Does It Cost to Keep Workers Safe?**\
+`The deadly shooting in Midtown Manhattan raises questions about what’s needed now to adequately secure office buildings.`\
+https://nytimes.com/2025/07/30/business/dealbook/park-avenue-shooting-workplace-safety.html
+
 **Company That Owns Apartments.com Sues Zillow Over Rental Listing Photos**\
 `The chief executive of CoStar Group, which owns Apartments.com, said Zillow has ‘stolen’ thousands of images to bolster its business.`\
 https://nytimes.com/2025/07/30/realestate/costar-zillow-listings-photographs-lawsuit.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/30/briefing/footballs-brain-injuries.html
 **A Royal Send-off for Ozzy Osbourne, Prince of Darkness**\
 `On Wednesday, a cortege will take the singer’s coffin through the streets of his hometown, Birmingham, England.`\
 https://nytimes.com/2025/07/30/arts/music/ozzy-osbourne-funeral-procession-birmingham.html
-
-**The Tigers, fueled by mustachioed magic, get their groove back before the trade deadline**\
-`The Tigers have won three in a row, with help either from a new superstition or the corrective ebbs of a long season.`\
-https://nytimes.com/athletic/6524234/2025/07/30/tigers-get-their-groove-back-riley-greene/
 

@@ -1,3 +1,19 @@
+**Company That Owns Apartments.com Sues Zillow Over Rental Listing Photos**\
+`The chief executive of CoStar Group, which owns Apartments.com, said Zillow has ‘stolen’ thousands of images to bolster its business.`\
+https://nytimes.com/2025/07/30/realestate/costar-zillow-listings-photographs-lawsuit.html
+
+**Word of the Day: manga**\
+`This word has appeared in 71 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2025/07/30/learning/word-of-the-day-manga.html
+
+**Jets sign D Dylan Samberg to 3-year deal, avoiding arbitration: Source**\
+`Samberg's $5.75 million AAV buys two UFA years; it would have cost Winnipeg much more to sign him to a seven or eight-year pact.`\
+https://nytimes.com/athletic/6524666/2025/07/30/jets-sign-defenceman-dylan-samberg-to-3-year-deal-avoiding-arbitration-source/
+
+**Stokes out of fifth India Test: What his absence means for England**\
+`Liam Dawson, Brydon Carse and Jofra Archer have also been left out, while Jacob Bethell is among four additions for the Oval Test.`\
+https://nytimes.com/athletic/6524630/2025/07/30/england-india-fifth-test-stokes-bethell/
+
 **The Pulse: MLB trade deadline on the fence**\
 `Welcome to The Pulse, The Athletic's daily newsletter.`\
 https://nytimes.com/athletic/6524445/2025/07/30/mlb-trade-deadline-preview-the-pulse/
@@ -21,20 +37,4 @@ https://nytimes.com/2025/07/30/arts/music/ozzy-osbourne-funeral-procession-birmi
 **The Tigers, fueled by mustachioed magic, get their groove back before the trade deadline**\
 `The Tigers have won three in a row, with help either from a new superstition or the corrective ebbs of a long season.`\
 https://nytimes.com/athletic/6524234/2025/07/30/tigers-get-their-groove-back-riley-greene/
-
-**Blue Jays bolster bullpen, acquire Seranthony Domínguez in doubleheader-day trade**\
-`The Blue Jays acquired Seranthony Domínguez mid-series to shore up a bullpen running out of gas.`\
-https://nytimes.com/athletic/6524202/2025/07/30/blue-jays-acquire-seranthony-dominguez/
-
-**A brief history of the Thornton Award, a fake trophy for best debut with a new team**\
-`Looking back and handing out the Joe Thornton Award, given to the NHL player who has the best debut with a new team.`\
-https://nytimes.com/athletic/6520926/2025/07/30/nhl-joe-thornton-award-trophy-history-debut-team/
-
-**Mandel’s Mailbag: Big Ten’s Playoff power grab and bold calls for 2025 season**\
-`Which top contender could tumble, why Washington is being overlooked, and who might clinch bowl eligibility first in 2025?`\
-https://nytimes.com/athletic/6523829/2025/07/30/mandels-mailbag-big-tens-playoff-power-grab-and-bold-calls-for-2025-season/
-
-**Why Blackhawks prospect Marek Vanacker has 'a lot of untapped potential'**\
-`After his summer of training, Vanacker is eager to show his progress and prove himself at main camp with the Blackhawks.`\
-https://nytimes.com/athletic/6517331/2025/07/30/blackhawks-prospect-marek-vanacker-world-juniors/
 

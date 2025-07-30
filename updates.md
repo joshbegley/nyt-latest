@@ -1,3 +1,19 @@
+**Company That Owns Apartments.com Sues Zillow Over Rental Listing Photos**\
+`The chief executive of CoStar Group, which owns Apartments.com, said Zillow has ‘stolen’ thousands of images to bolster its business.`\
+https://nytimes.com/2025/07/30/realestate/costar-zillow-listings-photographs-lawsuit.html
+
+**Word of the Day: manga**\
+`This word has appeared in 71 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2025/07/30/learning/word-of-the-day-manga.html
+
+**Jets sign D Dylan Samberg to 3-year deal, avoiding arbitration: Source**\
+`Samberg's $5.75 million AAV buys two UFA years; it would have cost Winnipeg much more to sign him to a seven or eight-year pact.`\
+https://nytimes.com/athletic/6524666/2025/07/30/jets-sign-defenceman-dylan-samberg-to-3-year-deal-avoiding-arbitration-source/
+
+**Stokes out of fifth India Test: What his absence means for England**\
+`Liam Dawson, Brydon Carse and Jofra Archer have also been left out, while Jacob Bethell is among four additions for the Oval Test.`\
+https://nytimes.com/athletic/6524630/2025/07/30/england-india-fifth-test-stokes-bethell/
+
 **The Pulse: MLB trade deadline on the fence**\
 `Welcome to The Pulse, The Athletic's daily newsletter.`\
 https://nytimes.com/athletic/6524445/2025/07/30/mlb-trade-deadline-preview-the-pulse/
