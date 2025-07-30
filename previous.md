@@ -1,3 +1,11 @@
+**The Windup: Traded from one dugout to the other**\
+`The Windup Newsletter ⚾ | This is The Athletic’s MLB newsletter.`\
+https://nytimes.com/athletic/6525025/2025/07/30/seranthony-dominguez-trade-the-windup/
+
+**How MLB at Bristol Motor Speedway explains the state of sports leagues in 2025: Moneycall**\
+`More in The Athletic's weekly sports-business cheat sheet: Svelte Luka, Deion Sanders, Brian Rolapp, NWSL summer lull, RIP Ryno and more.`\
+https://nytimes.com/athletic/6524801/2025/07/30/mlb-bristol-motor-speedway-classic-eventized-moneycall/
+
 **Barcelona agree €44m sponsorship deal with DR Congo**\
 `The sponsorship ensures the central African nation's logo of "DRC, coeur de l'Afrique" will appear on the back of all Barca training kits.`\
 https://nytimes.com/athletic/6497789/2025/07/30/barcelona-kit-sponsor-dr-congo/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6523760/2025/07/30/henry-bushnell-why-i-joined-socc
 **Liverpool 3 Yokohama 1: Ngumoha and Nyoni shine but defensive issues remain**\
 `The main talking points dissected as Liverpool round off their Asian pre-season tour with a win in Tokyo`\
 https://nytimes.com/athletic/6524599/2025/07/30/liverpool-yokohama-result-analysis-rio-ngumoha/
-
-**Referee body camera trials extended worldwide after Club World Cup test**\
-`The implementation of the technology in the Premier League for the 2025-26 season is under consideration.`\
-https://nytimes.com/athletic/6524760/2025/07/30/referee-body-camera-trials-extended/
-
-**Trump Threatens India With Steep Tariffs, Including Penalty Over Russian Oil**\
-`The president said Wednesday morning that imports from India would be subject to a 25 percent tariff as of Friday, as trade talks between the countries hit a stumbling block.`\
-https://nytimes.com/2025/07/30/us/politics/india-tariffs-trump-russia.html
 
