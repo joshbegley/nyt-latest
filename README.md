@@ -1,3 +1,7 @@
+**Bill Barring Stock Trading for Congress Advances With Trump Carveout**\
+`The bill passed the committee with the support of every Democrat and only one Republican, its sponsor, who modified it to shield President Trump from a divestment requirement.`\
+https://nytimes.com/2025/07/30/us/politics/senate-stock-trading-bill-congress-trump-carveout.html
+
 **Chelsea reach Hato agreement with Ajax with defender to join on seven-year deal**\
 `The Netherlands defender, 19, is set to move to Stamford Bridge after supervisory board approval.`\
 https://nytimes.com/athletic/6519667/2025/07/30/jorrel-hato-chelsea-transfer-news/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/30/world/europe/horst-mahler-dead.html
 **Rajah Caruth on his post-victory injury at Nashville, pressure and more: 12 Questions**\
 `Rajah Caruth explains why he was bleeding after his Nashville win, dealing with pressure as a Black driver, and more in a new 12 Questions.`\
 https://nytimes.com/athletic/6525256/2025/07/30/rajah-caruth-nascar-trucks-injury-12-questions/
-
-**Leagues Cup's place in a Club World Cup world**\
-`Where does MLS and Liga MX's annual competition sit in an increasingly saturated landscape?`\
-https://nytimes.com/athletic/6525209/2025/07/30/leagues-cup-mls-liga-mx-value-club-world-cup/
 
