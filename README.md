@@ -1,3 +1,7 @@
+**Judge Excoriates Trump Officials for Violations of Laws on Voice of America**\
+`The judge had ruled that the administration must restore news programming at Voice of America and has brought back only a fraction of the coverage it provided.`\
+https://nytimes.com/2025/07/30/us/politics/judge-excoriates-trump-officials-for-violations-of-laws-on-voice-of-america.html
+
 **Cubs’ clubhouse waiting to see what the front office has in store for trade deadline**\
 `Will Cubs president of baseball operations Jed Hoyer feel emboldened to maximize the club’s World Series odds this year?`\
 https://nytimes.com/athletic/6526054/2025/07/30/cubs-trade-deadline-milwaukee-brewers/
@@ -6,8 +10,8 @@ https://nytimes.com/athletic/6526054/2025/07/30/cubs-trade-deadline-milwaukee-br
 `The Giants shouldn't be in a position to sell given where they were three weeks ago. But they are sellers, alas, and this is a solid return.`\
 https://nytimes.com/athletic/6525855/2025/07/30/sf-giants-tyler-rogers-trade-analysis/
 
-**Mets acquire closer Ryan Helsley from Cardinals: Sources**\
-`Helsley is owed $2.6 million for the remainder of the season, his last before hitting free agency for the first time.`\
+**Mets acquire closer Ryan Helsley from Cardinals for prospects: Sources**\
+`The Mets send three prospects back to St. Louis for Helsley, who is a free agent at the end of the season.`\
 https://nytimes.com/athletic/6519507/2025/07/30/mlb-mets-ryan-helsley-trade/
 
 **Phillies call their shot and get their closer, acquiring Jhoan Duran from Twins**\
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/30/business/economy/trump-tariffs-south-korea.html
 **How Texas Republicans Want to Flip These Democratic Urban Districts**\
 `Texas Republicans unveiled a redrawn congressional map that they hope will result in a gain of five seats in the U.S. House after the 2026 midterm elections.`\
 https://nytimes.com/interactive/2025/07/30/us/politics/texas-gerrymandering-map-redistricting.html
-
-**‘Loyalty Enforcer’ Laura Loomer Targets Additional Officials**\
-`The far-right activist is continuing to use her close association with President Trump to go after those she deems insufficiently loyal.`\
-https://nytimes.com/2025/07/30/us/politics/laura-loomer-trump.html
 
