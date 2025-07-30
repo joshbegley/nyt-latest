@@ -1,3 +1,7 @@
+**Mets star Juan Soto leaves game after fouling ball off foot**\
+`Soto completed his at-bat, but did not come out to play defense and was replaced by Tyrone Taylor.`\
+https://nytimes.com/athletic/6524211/2025/07/29/mets-juan-soto-leaves-game-foot/
+
 **Coco Gauff overcomes serve struggles to win first match since French Open**\
 `Gauff beat Danielle Collins in the first round of the Canadian Open despite 23 double faults.`\
 https://nytimes.com/athletic/6524178/2025/07/29/coco-gauff-wins-first-match-since-french-open/
