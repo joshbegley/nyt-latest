@@ -1,3 +1,7 @@
+**Late Night Doesn’t Recommend Trying to Convert Your Co-Workers**\
+`Despite the Trump administration’s support for proselytizing at the office, Stephen Colbert doesn’t think it’s a good idea.`\
+https://nytimes.com/2025/07/30/arts/television/colbert-trump-memo-religion-workplace.html
+
 **Little and large batting combinations can be devastating in cricket - here's why**\
 `Zak Crawley and Ben Duckett may be a contrast in style and appearance but their partnership for England works`\
 https://nytimes.com/athletic/6522565/2025/07/30/england-cricket-crawley-duckett/
