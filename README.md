@@ -1,3 +1,7 @@
+**How Bayern signed Diaz, what he offers and what now for Liverpool?**\
+`Revealing how the Germans finally made an offer Anfield chiefs could not refuse and the impact of this transfer for both clubs`\
+https://nytimes.com/athletic/6520449/2025/07/30/luis-diaz-bayern-munich-liverpool-transfer-inside-deal/
+
 **Bayern sign Diaz from Liverpool**\
 `Diaz had a contract with Liverpool until June 2027 but made it clear to the Anfield club that he wanted to leave.`\
 https://nytimes.com/athletic/6518278/2025/07/30/luis-diaz-bayern-transfer-confirmed/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/30/arts/television/colbert-trump-memo-religion-workp
 **Little and large batting combinations can be devastating in cricket - here's why**\
 `Zak Crawley and Ben Duckett may be a contrast in style and appearance but their partnership for England works`\
 https://nytimes.com/athletic/6522565/2025/07/30/england-cricket-crawley-duckett/
-
-**Russia’s Far East Suffers Damage From Earthquake and Tsunami**\
-`Regional authorities in Sakhalin Oblast declared an emergency after a tsunami hit the Kuril Islands, and Kamchatka region was watching for volcanic activity.`\
-https://nytimes.com/2025/07/30/world/asia/russia-far-east-earthquake.html
 
