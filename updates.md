@@ -1,3 +1,11 @@
+**Senate Approves Trump’s Pick for Top Counterterrorism Post**\
+`Joe Kent, a former Army Green Beret, had attracted scrutiny over his associations with extremist groups and his promotion of conspiracy theories.`\
+https://nytimes.com/2025/07/30/us/politics/joe-kent-counterterrorism-center.html
+
+**Phillies get an answer to closer woes in Jhoan Duran; Twins nab 2 upside prospects**\
+`Duran helps stop what has been a revolving door at closer for the Phillies, and the Twins get a potential All-Star in Eduardo Tait.`\
+https://nytimes.com/athletic/6526233/2025/07/30/phillies-twins-jhoan-duran-trade-analysis/
+
 **Dodgers' Shohei Ohtani exits start early, remains in game at DH**\
 `He was making his seventh pitching appearance in his return from a second major elbow surgery. `\
 https://nytimes.com/athletic/6526256/2025/07/30/los-angeles-dodgers-shohei-ohtani-exits/
