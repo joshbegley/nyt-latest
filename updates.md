@@ -1,3 +1,7 @@
+**Trade grades: Yankees to address top need by landing reliever David Bednar from Pirates**\
+`Bednar immediately becomes the Yankees’ top reliever in terms of average fastball velocity.`\
+https://nytimes.com/athletic/6498441/2025/07/31/mlb-yankees-david-bednar-trade-grades/
+
 **Juventus general manager: Weah ‘can’t choose a team’ amid Marseille talks**\
 `Weah’s agent, Badou Sambague, had expressed his frustration that a move to Marseille has so far failed to materialize.`\
 https://nytimes.com/athletic/6528091/2025/07/31/timothy-weah-juventus-marseille-comolli/
