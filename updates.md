@@ -1,3 +1,11 @@
+**What I saw at Ohio State's first practice: A key injury question, early standouts and more**\
+`Plenty of positives for Ohio State on the first day of preseason camp were overshadowed by Eddrick Houston leaving with an injury.`\
+https://nytimes.com/athletic/6527811/2025/07/31/ohio-state-takeaways-from-day-1-of-camp-eddrick-houston-injury-early-standouts-and-more/
+
+**County Emergency Official Says He Was Ill and Sleeping as Texas Floods Hit**\
+`At a hearing in hard-hit Kerr County, an emergency management coordinator for the first time explained his whereabouts when the Guadalupe River burst its banks.`\
+https://nytimes.com/2025/07/31/us/politics/texas-floods-hearing.html
+
 **ISIS Militant Sentenced to Life for Role in Burning Pilot Alive**\
 `Osama Krayem, a Swedish citizen, was found guilty in Stockholm of a war crime. He had already been convicted of terrorist attacks in Paris and Brussels.`\
 https://nytimes.com/2025/07/31/world/europe/isis-pilot-burning-sentenced-stockholm.html

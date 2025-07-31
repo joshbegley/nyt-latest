@@ -1,3 +1,7 @@
+**Legionnaires’ Disease Sickens 22 in New York. Here’s What to Know.**\
+`The cases are most likely linked to a cooling tower in central Harlem, health officials said.`\
+https://nytimes.com/2025/07/31/well/legionnaires-disease-new-york-city-cases.html
+
 **What I saw at Ohio State's first practice: A key injury question, early standouts and more**\
 `Plenty of positives for Ohio State on the first day of preseason camp were overshadowed by Eddrick Houston leaving with an injury.`\
 https://nytimes.com/athletic/6527811/2025/07/31/ohio-state-takeaways-from-day-1-of-camp-eddrick-houston-injury-early-standouts-and-more/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/31/world/europe/uk-us-leader-gifts.html
 **Robbery of U.K. Royal Family’s Items Leads to $4 Million Insurance Payment**\
 `Two centuries-old snuff boxes adorned with diamonds and gold were among several artifacts stolen in a violent museum heist in Paris last year.`\
 https://nytimes.com/2025/07/31/arts/design/uk-royal-family-robbery-insurance-payment.html
-
-**She Came Face to Face With the Park Avenue Gunman and Survived**\
-`Sebije Nelovic, who has cleaned the Manhattan office building that was the site of the shooting for 27 years, was dusting a table that Monday evening. Then she heard gunfire.`\
-https://nytimes.com/2025/07/31/nyregion/park-avenue-shooting-sebije-nelovic.html
 
