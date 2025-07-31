@@ -1,40 +1,40 @@
-**How ‘Sinners’ Stunned Hollywood**\
-`Ryan Coogler’s film stands out for so many reasons — including the unprecedented deal he negotiated. Wesley Morris explains why on “Cannonball.”`\
-https://nytimes.com/video/podcasts/100000010314521/how-sinners-stunned-hollywood.html
+**Russian Drones and Missiles Strike Kyiv**\
+`Russia launched a barrage of drones and missiles on the Ukrainian capital early Thursday, killing several people and injuring dozens.`\
+https://nytimes.com/video/world/europe/100000010315797/russia-ukraine-kyiv-strikes-drones-.html
 
-**The New York Times International Edition in Print for Friday, Aug. 1, 2025**\
-``\
-https://nytimes.com/issue/todaysinyt/2025/07/31/todays-new-york-times-international-edition
+**World Athletics confirm gene testing for female eligibility ahead of World Championships**\
+`The new eligibility test will come into effect on September 1, in time for the World Championships. `\
+https://nytimes.com/athletic/6526861/2025/07/31/world-athletics-gene-testing-female-eligibility-world-championships/
 
-**Royal Porthcawl, the 'painter's paradise' which caught out Tiger Woods**\
-`The rugged beauty of Royal Porthcawl is home to the Women's Open this week - could a men's Open follow?`\
-https://nytimes.com/athletic/6524964/2025/07/31/open-golf-tiger-woods-royal-porthcawl/
+**Latest practice another example of why CeeDee Lamb has been Cowboys' best at training camp**\
+`The rapport between CeeDee Lamb and Dak Prescott looks ready for Week 1.`\
+https://nytimes.com/athletic/6526366/2025/07/31/cowboys-ceedee-lamb-training-camp/
 
-**Edinburgh Fringe Can Bring Artists Fame, but Money’s Another Matter**\
-`The venue that hosted “Baby Reindeer” is back from the financial brink, but many performers still say the risk of taking part in the festival is too high.`\
-https://nytimes.com/2025/07/31/theater/edinburgh-fringe-summerhall.html
+**Smith: Why staying at Red Bull was always Max Verstappen’s best bet for F1 2026**\
+`Max Verstappen seems set to stay with Red Bull for F1 2026. He gave major thought to leaving, but staying put for now makes the most sense`\
+https://nytimes.com/athletic/6525274/2025/07/31/max-verstappen-red-bull-2026-contract/
 
-**The players I can't stop drafting in 2025 fantasy football... so far**\
-`Jake Ciely shares the most-commonly found players on his fantasy rosters, including potential Seattle bell cow Kenneth Walker.`\
-https://nytimes.com/athletic/6523703/2025/07/31/fantasy-football-2025-most-drafted-players-jake-ciely/
+**Isak training at former club Real Sociedad while future uncertain**\
+`Liverpool have expressed their interest in buying Isak, who did not travel with Newcastle on their pre-season tour of Asia.`\
+https://nytimes.com/athletic/6512963/2025/07/31/alexander-isak-real-sociedad-newcastle/
 
-**Myanmar Lifts State of Emergency, Paving the Way for Disputed Vote**\
-`The military government hopes elections can bring more international legitimacy. But the generals will still rule, and opposition groups are boycotting.`\
-https://nytimes.com/2025/07/31/world/asia/myanmar-emergency-election.html
+**Ravens have time and talent on their side in overcoming Isaiah Likely's absence**\
+`Likely’s injury shouldn’t cast a pall over training camp or force anyone to adjust their high expectations for this Baltimore team. `\
+https://nytimes.com/athletic/6526168/2025/07/31/ravens-training-camp-lamar-jackson-isaiah-likely/
 
-**The NFL's most efficient pass rusher is a player you've probably never heard of**\
-`Falcons linebacker Kaden Elliss enters his seventh NFL season still on the rise at an age when many players are declining quickly.`\
-https://nytimes.com/athletic/6525480/2025/07/31/falcons-kaden-elliss-pass-rusher/
+**What I'm seeing at Giants camp: The only thing that can stop Malik Nabers is bad luck**\
+`Nabers looks more indispensable to this Giants offense than ever. When he's not on the field, NY's offense is devoid of firepower. `\
+https://nytimes.com/athletic/6526013/2025/07/31/ny-giants-malik-nabers-training-camp/
 
-**The DOGE Alum Asking if Foreign Aid Is America’s Problem**\
-`“We were suckers of the global system for so long.”`\
-https://nytimes.com/2025/07/31/opinion/doge-foreign-aid-jeremy-lewin.html
+**Why Barcelona are wearing Kobe Bryant-branded shirts**\
+`Barca's new away kit is a collaboration with the late NBA icon's personal sportswear brand after a long association with him`\
+https://nytimes.com/athletic/6524737/2025/07/31/barcelona-kobe-bryant-shirt-collaboration-soccer/
 
-**Trump’s Fight With the Fed Won’t End With Rate Cuts**\
-`President Trump wants the Fed to slash borrowing costs, but the central bank is unlikely to take such aggressive steps even once it begins to lower interest rates.`\
-https://nytimes.com/2025/07/31/business/trump-fed-interest-rate-cuts.html
+**How Cardinals star TE Trey McBride has become one of the NFL's best young players**\
+`McBride, 25, is coming off his first Pro Bowl appearance and 1,000-yard season and is one of the NFL's top paid tight ends.`\
+https://nytimes.com/athletic/6521525/2025/07/31/cardinals-tight-end-trey-mcbride/
 
-**The Boy Who Cried Hoax**\
-`Alternative facts have become alternative realities.`\
-https://nytimes.com/2025/07/31/opinion/trump-gabbard-russia-hoax.html
+**Does restricted free agency still work for the NBA and its players? Did it ever?**\
+`Two of our writers discuss the pros and cons of restricted free agency, and whether it should be changed. `\
+https://nytimes.com/athletic/6523492/2025/07/31/restricted-free-agency-jonathan-kuminga-offseason-nba/
 

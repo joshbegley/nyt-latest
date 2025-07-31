@@ -1,8 +1,12 @@
+**How to watch the 2025 F1 Hungarian Grand Prix, the final race before summer break**\
+`Precision isn't a luxury at Hungaroring; it's the cost of admission. One mistimed downshift and the summer shutdown starts early.`\
+https://nytimes.com/athletic/6525879/2025/07/31/f1-hungarian-grand-prix-odds-2025-how-to-watch/
+
 **Russian Drones and Missiles Strike Kyiv**\
 `Russia launched a barrage of drones and missiles on the Ukrainian capital early Thursday, killing several people and injuring dozens.`\
 https://nytimes.com/video/world/europe/100000010315797/russia-ukraine-kyiv-strikes-drones-.html
 
-**World Athletics confirm gene testing for female eligibility ahead of World Championships**\
+**World Athletics confirms gene testing for female eligibility ahead of World Championships**\
 `The new eligibility test will come into effect on September 1, in time for the World Championships. `\
 https://nytimes.com/athletic/6526861/2025/07/31/world-athletics-gene-testing-female-eligibility-world-championships/
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6524737/2025/07/31/barcelona-kobe-bryant-shirt-coll
 **How Cardinals star TE Trey McBride has become one of the NFL's best young players**\
 `McBride, 25, is coming off his first Pro Bowl appearance and 1,000-yard season and is one of the NFL's top paid tight ends.`\
 https://nytimes.com/athletic/6521525/2025/07/31/cardinals-tight-end-trey-mcbride/
-
-**Does restricted free agency still work for the NBA and its players? Did it ever?**\
-`Two of our writers discuss the pros and cons of restricted free agency, and whether it should be changed. `\
-https://nytimes.com/athletic/6523492/2025/07/31/restricted-free-agency-jonathan-kuminga-offseason-nba/
 
