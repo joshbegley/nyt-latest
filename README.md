@@ -1,3 +1,23 @@
+**Emergency Official Explains His Absence as Texas Floods Hit**\
+`The Kerr County official testified at a hearing held by state lawmakers in the city of Kerrville. Hundreds of residents attended, many of them hoping to testify.`\
+https://nytimes.com/video/us/100000010317633/texas-floods-hearing.html
+
+**Elite New York High School Admits 8 Black Students in a Class of 781**\
+`The city’s eight specialized high schools are regarded as crown jewels but also symbols of segregation. The number of Black and Hispanic students admitted to them dipped slightly from last year.`\
+https://nytimes.com/2025/07/31/nyregion/specialized-high-schools-black-students-stuyvesant.html
+
+**Childhood Vaccination Rates Have Dropped Again, C.D.C. Data Shows**\
+`The new report paints a sobering picture of immunizations as infectious diseases like measles surge across the United States.`\
+https://nytimes.com/2025/07/31/health/child-vaccinations-decline-cdc.html
+
+**Five under-the-radar Bills players who could surprise in training camp**\
+`Plus, several Bills returned to practice after missing time with injuries.`\
+https://nytimes.com/athletic/6528076/2025/07/31/bills-training-camp-players-injury-update/
+
+**Cubs to add Willi Castro to bench, taking advantage of Twins' sell-off: Sources**\
+`Castro, who gives Cubs versatility on their bench, is the fifth player traded by the Twins in the hours before the deadline.`\
+https://nytimes.com/athletic/6520202/2025/07/31/mlb-cubs-willi-castro-trade/
+
 **Here Is What to Know About Trump’s 50% Tariffs on Brazil**\
 `Latin America’s biggest economy can weather the shock of a high tariff rate. But American coffee lovers and Brazilian ranchers are likely to feel the pain.`\
 https://nytimes.com/2025/07/31/world/americas/trump-brazil-tariffs-lula.html
@@ -17,24 +37,4 @@ https://nytimes.com/2025/07/31/briefing/trump-tariff-deadline-louisiana-deportat
 **President Trump signs executive order to bring back Presidential Fitness Test**\
 `Thursday's executive order was the latest example of Trump's focus on sports during his second term.`\
 https://nytimes.com/athletic/6528412/2025/07/31/trump-executive-order-presidential-fitness-test/
-
-**Apple Surprises Investors Worried That It Had Lost Its Touch**\
-`Despite recent criticism about its product outlook, the company reported strong sales of iPhones, Macs, iPads and services.`\
-https://nytimes.com/2025/07/31/business/apple-earning-iphone-sales.html
-
-**Friday Briefing: Trump’s Tariff Day**\
-`Plus, our critic’s favorite art places in Rome.`\
-https://nytimes.com/2025/07/31/briefing/trump-tariffs-gaza-hunger-kyiv-attack.html
-
-**‘Summertide’ Is a Human-Scale Beachy Drama**\
-`The series follows a widower and marine biologist who moves back to his hometown in South Africa. But it doesn’t begin with a dead body.`\
-https://nytimes.com/2025/07/31/arts/television/summertide-acorn-tv.html
-
-**The Crucial Issue of the 21st Century**\
-`If Democrats can come up with an alternative vision of how to repair the social and moral order, they might be relevant in the years ahead.`\
-https://nytimes.com/2025/07/31/opinion/democratic-republican-parties.html
-
-**Amazon Reports $18.2 Billion in Profit Amid Strong Retail Demand**\
-`Consumers spent more than expected on the e-commerce giant’s site, while margins tightened at the company’s all-important cloud computing division.`\
-https://nytimes.com/2025/07/31/business/amazon-earnings-second-quarter.html
 
