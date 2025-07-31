@@ -1,3 +1,7 @@
+**Legal Watchdog Files Bar Complaints Against Career Justice Dept. Lawyers**\
+`The move represented a rare attempt to seek accountability for rank-and-file lawyers who have represented the Trump administration in court.`\
+https://nytimes.com/2025/07/31/us/politics/justice-department-lawyers-complaint.html
+
 **Where Blue Jays’ options stand entering trade deadline day**\
 `The Blue Jays can still find back-end bullpen pieces in trades, or cash in on the slowly-developing hitters market.`\
 https://nytimes.com/athletic/6527117/2025/07/31/blue-jays-trade-deadline-day-approach/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/31/theater/bess-wohl-liberation-broadway.html
 **Key Inflation Measure Rose in June, Adding to Pressure on Fed**\
 `The price index was the latest indication that President Trump’s tariffs are beginning to show up in consumer prices.`\
 https://nytimes.com/2025/07/31/business/pce-inflation-fed.html
-
-**In landing Andrew Kittredge, Cubs set to reinforce bullpen: Source**\
-`After picking up Michael Soroka earlier Wednesday to lengthen their rotation, the Cubs added to their bullpen later in the night.`\
-https://nytimes.com/athletic/6526668/2025/07/31/mlb-cubs-andrew-kittredge-trade/
 

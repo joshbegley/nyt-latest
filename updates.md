@@ -1,3 +1,7 @@
+**Legal Watchdog Files Bar Complaints Against Career Justice Dept. Lawyers**\
+`The move represented a rare attempt to seek accountability for rank-and-file lawyers who have represented the Trump administration in court.`\
+https://nytimes.com/2025/07/31/us/politics/justice-department-lawyers-complaint.html
+
 **Law: Mariners upgrade with Eugenio Suárez, Diamondbacks get 3 prospects**\
 `The Suárez deal brought the D-Backs Tyler Locklear, Hunter Cranton and Juan Burgos and could eventually give them runway for Jordan Lawlar.`\
 https://nytimes.com/athletic/6527118/2025/07/31/keith-law-eugenio-suarez-mariners-dbacks-trade-analysis/
