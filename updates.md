@@ -1,3 +1,15 @@
+**Why Ricky Pearsall, finally back from injury, is so key to 49ers' passing attack**\
+`The 49ers' QBs only threw one incompletion Thursday. Of course, the defense was missing cornerbacks Renardo Green and Deommodore Lenoir.`\
+https://nytimes.com/athletic/6528661/2025/07/31/49ers-ricky-pearsall-training-camp/
+
+**Hopefully Twins' trade deadline fire sale is followed by the team sale: takeaways**\
+`The Twins are eating $33 million of the $104 million left on Carlos Correa's contract in a shocking roster dismantling.`\
+https://nytimes.com/athletic/6528334/2025/07/31/twins-trade-deadline-takeaways-team-sale/
+
+**6 takeaways from the MLB trade deadline: Twins blow it up, A.J. Preller stays on brand**\
+`We’re still wrapping out heads around it, but here are some initial takeaways after a wild 24 hours.`\
+https://nytimes.com/athletic/6528989/2025/07/31/mlb-trade-deadline-takeaways/
+
 **Tigers trade deadline takeaways: Was bullpen improved enough?**\
 `The Tigers made a series of moves to strengthen their bullpen, but they missed out on high-end arms. Will that come back to haunt them?`\
 https://nytimes.com/athletic/6528431/2025/07/31/tigers-trade-deadline-takeaways/

@@ -1,3 +1,7 @@
+**Yankees stockpile bullpen bullets, add Camilo Doval for not much**\
+`Were the Giants just trying to move Doval at any cost? The Giants didn't get a great return for their hard-throwing closer.`\
+https://nytimes.com/athletic/6529049/2025/07/31/yankees-camilo-doval-trade-giants-return/
+
 **Why Ricky Pearsall, finally back from injury, is so key to 49ers' passing attack**\
 `The 49ers' QBs only threw one incompletion Thursday. Of course, the defense was missing cornerbacks Renardo Green and Deommodore Lenoir.`\
 https://nytimes.com/athletic/6528661/2025/07/31/49ers-ricky-pearsall-training-camp/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6528833/2025/07/31/angels-mlb-trade-deadline-takeaw
 **Padres takeaways from A.J. Preller's wildest trade deadline**\
 `By strip-mining San Diego's farm system, Preller made it clear that the Padres are aiming for the World Series again this season.`\
 https://nytimes.com/athletic/6528800/2025/07/31/padres-takeaways-aj-preller-trade-deadline/
-
-**Giants trade deadline takeaways: Selling in the wake of Rafael Devers deal**\
-`San Francisco has struggled since its big deal with Boston in June, making its inactivity at the deadline far from surprising.`\
-https://nytimes.com/athletic/6528418/2025/07/31/giants-trade-deadline-takeaways-selling-in-the-wake-of-rafael-devers-deal/
 
