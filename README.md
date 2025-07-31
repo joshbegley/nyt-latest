@@ -1,3 +1,7 @@
+**The Mets' trade deadline moves show the value of prospect development**\
+`This is the type of complete organization the Mets have longed to be since Steve Cohen bought them in the fall of 2020.`\
+https://nytimes.com/athletic/6526408/2025/07/30/mets-trade-deadline-moves-development-value/
+
 **Eugenie Bouchard's final match: 'A full circle moment' at Canadian Open**\
 `Bouchard eliminated by Belinda Bencic in second round in Montreal, the city where her tennis dreams began.`\
 https://nytimes.com/athletic/6526421/2025/07/30/eugenie-bouchard-canadian-open-loss-retires/
@@ -14,9 +18,9 @@ https://nytimes.com/2025/07/30/us/politics/trump-icc-lawyers.html
 `The manner of Tuesday night's loss represented a breaking point for Buster Posey and the front office heading into Wednesday.`\
 https://nytimes.com/athletic/6526344/2025/07/30/free-falling-giants-react-tyler-rogers-trade/
 
-**In first move to bolster rotation, Cubs to add Michael Soroka from Nationals: Sources**\
+**Trade grade: In first move to bolster rotation, Cubs add Michael Soroka from Nationals**\
 `Soroka was once considered one of the best young pitchers in baseball, finishing sixth in NL Cy Young Award balloting in 2019.`\
-https://nytimes.com/athletic/6526407/2025/07/30/cubs-michael-soroka-nationals-trade/
+https://nytimes.com/athletic/6526407/2025/07/30/cubs-michael-soroka-nationals-trade-grade/
 
 **Reds are better with Ke'Bryan Hayes, but how much better?**\
 `The 28-year-old Ke’Bryan Hayes, son of former big-leaguer Charlie Hayes, won a Gold Glove in 2023.`\
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/30/us/explosion-at-nebraska-biofuel-plant-kills-3-in
 **Mets boost their bullpen, add Ryan Helsley, Tyler Rogers without trading elite prospects**\
 `The Mets acquired two relievers for the late innings and didn't give up any of their elite prospects in the process.`\
 https://nytimes.com/athletic/6526358/2025/07/30/mets-bullpen-additions-tyler-rogers-ryan-helsley-trades/
-
-**Former Stanford football coach Troy Taylor sues ESPN for defamation**\
-`Taylor, who was Stanford's coach for two seasons, was fired by general manager Andrew Luck six days after ESPN's March 19 report.`\
-https://nytimes.com/athletic/6526282/2025/07/30/stanford-troy-taylor-espn-defamation-lawsuit/
 
