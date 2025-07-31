@@ -1,3 +1,7 @@
+**China Summons Nvidia Over ‘Backdoor Security’ Risks of A.I. Chips**\
+`The move came two weeks after the Trump administration reversed course to allow Nvidia to sell the coveted artificial intelligence chips in China.`\
+https://nytimes.com/2025/07/31/business/china-nvidia-h20-chips.html
+
 **How Forest will go again — the irreplaceable Gibbs-White, Anderson's evolution, and more signings to come?**\
 `Forest finished the season poorly and missed out on Champions League. But Nuno is determined to surprise the Premier League all over again`\
 https://nytimes.com/athletic/6524798/2025/07/31/how-forest-will-go-again-the-irreplaceable-gibbs-white-andersons-evolution-and-more-signings-to-come/
