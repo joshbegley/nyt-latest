@@ -1,3 +1,15 @@
+**Remembering the four lives lost in the shooting.**\
+`By Sarah Maslin Nir, Michael Wilson, Wesley Parnell, Maureen Farrell and Dionne Searcey`\
+https://nytimes.com/live/2025/07/31/nyregion/nyc-shooting-didarul-islam-funeral/remembering-the-four-lives-lost-in-the-shooting
+
+**Sean Combs’s Lawyers Ask Judge to Vacate Jury’s Verdict or Retry Him**\
+`In a 62-page motion, the music mogul’s legal team argued that his conviction under the Mann Act — which bars interstate commerce related to prostitution — should be overturned.`\
+https://nytimes.com/2025/07/31/arts/music/sean-combs-diddy-mann-act-prostitution-new-trial.html
+
+**Legal Watchdog Files Bar Complaints Against Justice Dept. Lawyers**\
+`The move represented a rare attempt to seek accountability for rank-and-file lawyers who have represented the Trump administration in court.`\
+https://nytimes.com/2025/07/31/us/politics/justice-department-lawyers-complaint.html
+
 **Legal Watchdog Files Bar Complaints Against Career Justice Dept. Lawyers**\
 `The move represented a rare attempt to seek accountability for rank-and-file lawyers who have represented the Trump administration in court.`\
 https://nytimes.com/2025/07/31/us/politics/justice-department-lawyers-complaint.html
