@@ -1,3 +1,15 @@
+**Candace Parker criticizes WNBA players' efforts in All-Star Game**\
+`"Y'all cannot come out there with those shirts of 'Pay Us What You Owe Us,' and then do that in the All-Star Game," Parker said.`\
+https://nytimes.com/athletic/6527975/2025/07/31/candace-parker-wnba-all-star-game-shirts/
+
+**Padres add catcher Freddy Fermin from Royals in exchange for Ryan Bergert: Sources**\
+`The addition bolsters a positional weakness that has plagued the Padres for much of the season.`\
+https://nytimes.com/athletic/6528022/2025/07/31/mlb-padres-freddy-fermin-trade/
+
+**Bipartisan Pair of Senators Seeks $54.6 Billion in New Aid for Ukraine**\
+`The measure faces long odds given past Republican opposition to sending additional assistance to Kyiv, but it comes as President Trump has signaled a new openness to finding ways to back the nation.`\
+https://nytimes.com/2025/07/31/us/politics/senators-new-aid-ukraine.html
+
 **Cricket is eating itself**\
 `A jam-packed schedule means the final England-India Test is being staged without some of its best players `\
 https://nytimes.com/athletic/6528032/2025/07/31/england-india-test-cricket-schedule/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/07/31/us/politics/deadline-trump-tariffs.html
 **The Bumpiness of the Celebrity-Politician Romance**\
 `Long before Katy Perry dined with Justin Trudeau, Linda Ronstadt, Barbra Streisand and Elizabeth Taylor had challenging relationships with men in public office.`\
 https://nytimes.com/2025/07/31/style/justin-trudeau-katy-perry-dating.html
-
-**Adam Silver meets with Real Madrid to discuss NBA’s Europe league venture**\
-`Membership from the soccer and basketball juggernaut would mark a significant step in launching the NBA’s overseas venture.`\
-https://nytimes.com/athletic/6527966/2025/07/31/adam-silver-nba-euroleague-real-madrid/
-
-**This Start-Up’s $20 Billion Sale Died. It Came Fighting Back.**\
-`Figma, which makes a design platform, was on the verge of a big payday before regulators quashed the sale. On Thursday, it went public, with its stock opening up 158 percent.`\
-https://nytimes.com/2025/07/31/technology/figma-ipo.html
-
-**Robert Wilson, Provocative Playwright and Director, Is Dead at 83**\
-`He upended theatrical norms with his own stunningly visualized works and his collaborations with a wide range of artists, from Philip Glass (“Einstein on the Beach”) to Lady Gaga.`\
-https://nytimes.com/2025/07/31/theater/robert-wilson-dead.html
 

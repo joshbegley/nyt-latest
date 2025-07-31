@@ -1,3 +1,11 @@
+**Cricket is eating itself**\
+`A jam-packed schedule means the final England-India Test is being staged without some of its best players `\
+https://nytimes.com/athletic/6528032/2025/07/31/england-india-test-cricket-schedule/
+
+**Yankees close to acquiring reliever David Bednar from Pirates to address top need: Sources**\
+`Bednar immediately becomes the Yankees’ top reliever in terms of average fastball velocity.`\
+https://nytimes.com/athletic/6498441/2025/07/31/mlb-yankees-david-bednar-trade/
+
 **Yankees close to acquiring David Bednar from Pirates to address top need: Sources**\
 `Bednar immediately becomes the Yankees’ top reliever in terms of average fastball velocity.`\
 https://nytimes.com/athletic/6498441/2025/07/31/mlb-yankees-david-bednar-trade/
