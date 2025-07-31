@@ -1,3 +1,11 @@
+**Terry McLaurin requests trade amid contract hold-in with Commanders: Source**\
+`The move comes while McLaurin, 29, has been "holding in" as he seeks a contract extension.`\
+https://nytimes.com/athletic/6528859/2025/07/31/terry-mclaurin-trade-request-commanders-nfl-news/
+
+**Angels let the MLB trade deadline pass them by, again: takeaways**\
+`The Angels decided to do what they always do. Cross their fingers and hope it all works out.`\
+https://nytimes.com/athletic/6528833/2025/07/31/angels-mlb-trade-deadline-takeaways/
+
 **Padres takeaways from A.J. Preller's wildest trade deadline**\
 `By strip-mining San Diego's farm system, Preller made it clear that the Padres are aiming for the World Series this season.`\
 https://nytimes.com/athletic/6528800/2025/07/31/padres-takeaways-aj-preller-trade-deadline/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6528752/2025/07/31/padres-ryan-ohearn-ramon-laurean
 **Braves trade deadline takeaways: Sellers not buyers, practical moves not sexy ones**\
 `The Braves mostly sought to dump expiring contracts and add prospects who could help win down the road.`\
 https://nytimes.com/athletic/6528567/2025/07/31/braves-mlb-trade-deadline-takeaways/
-
-**Yankees trade deadline takeaways: Relief is on the way after strong mix of moves**\
-`The new relievers should prove to be the Yankees' most consequential additions. The bullpen should go from a weakness to a major strength. `\
-https://nytimes.com/athletic/6527791/2025/07/31/yankees-trade-deadline-takeaways/
-
-**Three Red Sox takeaways at the trade deadline: Meager additions only**\
-`Despite rumors for weeks that the Red Sox may trade Jarren Duran, in the end they held onto the outfielder`\
-https://nytimes.com/athletic/6526759/2025/07/31/ed-sox-takeaways-mlb-trade-deadline/
 

@@ -1,3 +1,11 @@
+**Terry McLaurin requests trade amid contract hold-in with Commanders: Source**\
+`The move comes while McLaurin, 29, has been "holding in" as he seeks a contract extension.`\
+https://nytimes.com/athletic/6528859/2025/07/31/terry-mclaurin-trade-request-commanders-nfl-news/
+
+**Angels let the MLB trade deadline pass them by, again: takeaways**\
+`The Angels decided to do what they always do. Cross their fingers and hope it all works out.`\
+https://nytimes.com/athletic/6528833/2025/07/31/angels-mlb-trade-deadline-takeaways/
+
 **Padres takeaways from A.J. Preller's wildest trade deadline**\
 `By strip-mining San Diego's farm system, Preller made it clear that the Padres are aiming for the World Series this season.`\
 https://nytimes.com/athletic/6528800/2025/07/31/padres-takeaways-aj-preller-trade-deadline/

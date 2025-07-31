@@ -1,3 +1,7 @@
+**The Packers' 'Ball King': How coach involves a siren, WWE belt and fun in camp**\
+`Defensive quality control coach Wendel Davis, in his sixth year with the Packers, doesn't go by his real name at Lambeau Field.`\
+https://nytimes.com/athletic/6528616/2025/07/31/packers-defense-turnovers-wendel-davis/
+
 **Terry McLaurin requests trade amid contract hold-in with Commanders: Source**\
 `The move comes while McLaurin, 29, has been "holding in" as he seeks a contract extension.`\
 https://nytimes.com/athletic/6528859/2025/07/31/terry-mclaurin-trade-request-commanders-nfl-news/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/31/well/move/trump-presidential-fitness-test.html
 **Padres fix their offense with Ryan O'Hearn, Ramón Laureano at reasonable prospect cost**\
 `The Padres did a better job of addressing their biggest need in their second big trade of the day, adding two legitimate bats to the lineup.`\
 https://nytimes.com/athletic/6528752/2025/07/31/padres-ryan-ohearn-ramon-laureano-orioles-trade-analysis/
-
-**Braves trade deadline takeaways: Sellers not buyers, practical moves not sexy ones**\
-`The Braves mostly sought to dump expiring contracts and add prospects who could help win down the road.`\
-https://nytimes.com/athletic/6528567/2025/07/31/braves-mlb-trade-deadline-takeaways/
 
