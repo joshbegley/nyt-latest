@@ -15,7 +15,7 @@ https://nytimes.com/2025/07/31/style/justin-trudeau-katy-perry-dating.html
 https://nytimes.com/athletic/6527966/2025/07/31/adam-silver-nba-euroleague-real-madrid/
 
 **This Start-Up’s $20 Billion Sale Died. It Came Fighting Back.**\
-`Figma, which makes a design platform, had been on the verge of a $20 billion sale before regulators quashed the deal. On Thursday, it went public, with the stock soaring 158 percent on its first trade.`\
+`Figma, which makes a design platform, was on the verge of a big payday before regulators quashed the sale. On Thursday, it went public, with its stock opening up 158 percent.`\
 https://nytimes.com/2025/07/31/technology/figma-ipo.html
 
 **Robert Wilson, Provocative Playwright and Director, Is Dead at 83**\

@@ -1,3 +1,15 @@
+**Unnoticed Whistle-Blower Document Alarms Justice Department Veterans**\
+`A complaint concerning a top Justice Department official, Emil Bove III, went unnoticed for more than two months, raising worries that an internal watchdog has gone dormant.`\
+https://nytimes.com/2025/07/31/us/politics/emil-bove-whistle-blower.html
+
+**Clock Ticks Down Toward Higher Tariffs With Little Clarity**\
+`The Trump administration is still debating the significantly higher tariff rates that American companies and foreign firms are expected to be subject to within a matter of hours.`\
+https://nytimes.com/2025/07/31/us/politics/deadline-trump-tariffs.html
+
+**The Bumpiness of the Celebrity-Politician Romance**\
+`Long before Katy Perry dined with Justin Trudeau, Linda Ronstadt, Barbra Streisand and Elizabeth Taylor had challenging relationships with men in public office.`\
+https://nytimes.com/2025/07/31/style/justin-trudeau-katy-perry-dating.html
+
 **The Bumpiness of the Celebrity-Politician Romance**\
 `Long before Katy Perry dined with Justin Trudeau, Linda Ronstadt, Barbra Streisand and Elizabeth Taylor had challenging relationships with men in public office.`\
 https://nytimes.com/2025/07/31/style/the-bumpiness-of-the-celebrity-politician-romance.html
