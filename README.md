@@ -1,3 +1,7 @@
+**The Pulse: Our NFL offseason champions**\
+`Welcome to The Pulse, The Athletic's daily newsletter. `\
+https://nytimes.com/athletic/6526678/2025/07/31/nfl-offseason-highlights-preseason-the-pulse/
+
 **Anger Over Starvation in Gaza Leaves Israel at Risk of Isolation**\
 `Global outrage at the Netanyahu government’s actions has grown since the war began, and the suffering of children in the enclave has accelerated the disdain.`\
 https://nytimes.com/2025/07/31/world/middleeast/gaza-starvation-aid-israel-netanyahu.html
@@ -6,7 +10,7 @@ https://nytimes.com/2025/07/31/world/middleeast/gaza-starvation-aid-israel-netan
 `Palhinha, 30, only signed for Bayern from Fulham in a deal worth €51m last summer, but started just 10 matches in 2024-25.`\
 https://nytimes.com/athletic/6508273/2025/07/31/joao-palhinha-tottenham-loan-bayern/
 
-**Summer McIntosh sets world championship record, wins third gold in three tries**\
+**Summer McIntosh wins third gold of swimming worlds; Léon Marchand wins 200 IM**\
 `The Canadian star challenged the all-time mark in the women's 200-meter butterfly and continued her perfect string of races in Singapore.`\
 https://nytimes.com/athletic/6526914/2025/07/31/summer-mcintosh-leon-marchand-200-butterfly-medley-world-championships/
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6526169/2025/07/31/detroit-tigers-deadline-day-bull
 **Marchand? Draisaitl? Revisiting our Hockey Hall of Fame tiers of active NHL players**\
 `From legends on the cusp of enshrinement to league mainstays with outside shots, we rank players by likelihood of future induction.`\
 https://nytimes.com/athletic/6525427/2025/07/31/hockey-hall-of-fame-tiers-nhl-inductees/
-
-**Why won't Wizards attempt to reacquire their protected 2026 first-rounder from Knicks?**\
-`Such an effort would be nowhere near as straightforward, or as sensible, as it might seem.`\
-https://nytimes.com/athletic/6526077/2025/07/31/wizards-2026-first-round-pick-knicks-suns/
 

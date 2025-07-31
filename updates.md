@@ -1,3 +1,7 @@
+**Anger Over Starvation in Gaza Leaves Israel at Risk of Isolation**\
+`Global outrage at the Netanyahu government’s actions has grown since the war began, and the suffering of children in the enclave has accelerated the disdain.`\
+https://nytimes.com/2025/07/31/world/middleeast/gaza-starvation-aid-israel-netanyahu.html
+
 **Tottenham in Palhinha loan talks with Bayern**\
 `Palhinha, 30, only signed for Bayern from Fulham in a deal worth €51m last summer, but started just 10 matches in 2024-25.`\
 https://nytimes.com/athletic/6508273/2025/07/31/joao-palhinha-tottenham-loan-bayern/
