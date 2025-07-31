@@ -1,3 +1,7 @@
+**Dodgers' Shohei Ohtani exits start with cramps, remains in game at DH**\
+`He was making his seventh pitching appearance in his return from a second major elbow surgery. `\
+https://nytimes.com/athletic/6526256/2025/07/30/los-angeles-dodgers-shohei-ohtani-exits/
+
 **Padres, still pursuing Jarren Duran and Steven Kwan, also pushing for Mason Miller: Sources**\
 `Miller, who started six games as a rookie in 2023, appeals to San Diego as a pitcher who could be stretched out next season.`\
 https://nytimes.com/athletic/6526296/2025/07/30/san-diego-padres-mason-miller-pursuit/

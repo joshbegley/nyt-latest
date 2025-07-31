@@ -1,3 +1,11 @@
+**A challenge to the suspension of a refugee program established by Congress receives class-action status.**\
+`The ruling`\
+https://nytimes.com/live/2025/07/30/us/trump-news/a-challenge-to-the-suspension-of-a-refugee-program-established-by-congress-receives-class-action-status
+
+**Trump Announces Health Care Records System for Consumers**\
+`The administration is working with tech companies to make sharing information with various providers easier. Experts raised concerns about privacy and security.`\
+https://nytimes.com/2025/07/30/us/politics/trump-health-records-system.html
+
 **Padres, still pursuing Jarren Duran and Steven Kwan, also pushing for Mason Miller: Sources**\
 `Miller, who started six games as a rookie in 2023, appeals to San Diego as a pitcher who could be stretched out next season.`\
 https://nytimes.com/athletic/6526296/2025/07/30/san-diego-padres-mason-miller-pursuit/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/07/30/books/best-road-trip-books.html
 **Trade grades: Phillies find what they need in Jhoan Duran, Twins 'win,' too**\
 `To quote one of our trade graders: This is what a deadline deal is supposed to look like.`\
 https://nytimes.com/athletic/6526120/2025/07/30/phillies-jhoan-duran-trade-grade/
-
-**Commanders await D.C. Council's stadium vote after sometimes heated hearing**\
-`Over two days, the D.C. Council contemplated and debated its Friday vote on a proposed 65,000-seat stadium for the Washington Commanders.`\
-https://nytimes.com/athletic/6525999/2025/07/30/commanders-stadium-d-c-council-hearing/
-
-**As MLB trade deadline approaches, Guardians ponder plans for Steven Kwan, Shane Bieber**\
-`"I would love to," Kwan said about working out an extension with Cleveland. "I love it here. I love everything about this place."`\
-https://nytimes.com/athletic/6525944/2025/07/30/guardians-mlb-trade-deadline-steven-kwan-shane-bieber/
 

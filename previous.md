@@ -6,7 +6,7 @@ https://nytimes.com/athletic/6526296/2025/07/30/san-diego-padres-mason-miller-pu
 `Joe Kent, a former Army Green Beret, had attracted scrutiny over his associations with extremist groups and his promotion of conspiracy theories.`\
 https://nytimes.com/2025/07/30/us/politics/joe-kent-counterterrorism-center.html
 
-**Dodgers' Shohei Ohtani exits start early, remains in game at DH**\
+**Dodgers' Shohei Ohtani exits start with cramps, remains in game at DH**\
 `He was making his seventh pitching appearance in his return from a second major elbow surgery. `\
 https://nytimes.com/athletic/6526256/2025/07/30/los-angeles-dodgers-shohei-ohtani-exits/
 
