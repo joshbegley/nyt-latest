@@ -1,3 +1,7 @@
+**Thursday Briefing: Trump’s Steep Tariffs on Brazil**\
+`Plus, U.S.-India trade tensions.`\
+https://nytimes.com/2025/07/31/briefing/brazil-trump-india-trade-us-canada-gaza-palestinian-state.html
+
 **Biofuel Plant in Nebraska Explodes**\
 `Recovery efforts were underway after a deadly explosion at a biofuel plant in Fremont, Neb.`\
 https://nytimes.com/video/us/100000010315649/nebraska-explosion-biofuel-plant.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6522445/2025/07/31/lucy-bronze-broken-tibia-euro-20
 **"The Premier League is a lot of people's goals. But mine's not - I just want to play well"**\
 `The 27-year-old striker has packed plenty into his career since Villa signed him from non-League - he's now enjoying life in Italy`\
 https://nytimes.com/athletic/6519681/2025/07/31/keinan-davis-interview-udinese-aston-villa-forest/
-
-**More Than 1,000 Troops Are Withdrawn From L.A.**\
-`The move continues a scaling back of President Trump’s military deployment in Southern California that began on June 7.`\
-https://nytimes.com/2025/07/31/us/troop-withdrawal-los-angeles.html
 
