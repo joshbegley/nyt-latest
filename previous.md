@@ -1,3 +1,7 @@
+**Tampa Bay Rays get Adrian Houser from Chicago White Sox: Sources**\
+`Houser has gone 6-2 with a 2.10 ERA in 11 starts with the White Sox.`\
+https://nytimes.com/athletic/6525737/2025/07/31/mlb-rays-adrian-houser-trade/
+
 **Padres' whirlwind deadline day continues with addition of Nestor Cortes: Source**\
 `The Padres' busy day continued with the addition of a lefty starter who's close to a return from injury.`\
 https://nytimes.com/athletic/6528654/2025/07/31/mlb-padres-nestor-cortes-trade/
@@ -18,8 +22,8 @@ https://nytimes.com/athletic/6528677/2025/07/31/mlb-camilo-doval-yankees-trade/
 `The streets of a Bronx neighborhood filled with mourners who had gathered for the funeral of Didarul Islam, one of the victims of this week’s mass shooting in Manhattan.`\
 https://nytimes.com/2025/07/31/nyregion/officer-funeral-new-york-shooting.html
 
-**Red Sox to deepen rotation by acquiring Dustin May from Dodgers: Sources**\
-`May is enjoying both the healthiest and least productive season of his major league career.`\
+**Red Sox to deepen rotation with Dustin May from Dodgers by trading James Tibbs III: Sources**\
+`May is enjoying both the healthiest and least productive season of his major league career. Tibbs was part of the Rafael Devers trade.`\
 https://nytimes.com/athletic/6523921/2025/07/31/mlb-red-sox-dustin-may-trade/
 
 **Yankees expend minimal cost to upgrade bullpen with David Bednar, Jake Bird**\
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/31/world/middleeast/hamas-arab-states-palestinians.h
 **Knicks, Mikal Bridges agree to 4-year, $150 million extension: Source**\
 `Bridges took $6 million less than the maximum available to him to help New York attempt to stay under the second apron.`\
 https://nytimes.com/athletic/6498832/2025/07/31/mikal-bridges-contract-knicks-extension-signs/
-
-**Emergency Official Explains His Absence as Texas Floods Hit**\
-`The Kerr County official testified at a hearing held by state lawmakers in the city of Kerrville. Hundreds of residents attended, many of them hoping to testify.`\
-https://nytimes.com/video/us/100000010317633/texas-floods-hearing.html
 

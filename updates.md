@@ -1,3 +1,11 @@
+**Tampa Bay Rays get Adrian Houser from Chicago White Sox: Sources**\
+`Houser has gone 6-2 with a 2.10 ERA in 11 starts with the White Sox.`\
+https://nytimes.com/athletic/6525737/2025/07/31/mlb-rays-adrian-houser-trade/
+
+**Red Sox to deepen rotation with Dustin May from Dodgers by trading James Tibbs III: Sources**\
+`May is enjoying both the healthiest and least productive season of his major league career. Tibbs was part of the Rafael Devers trade.`\
+https://nytimes.com/athletic/6523921/2025/07/31/mlb-red-sox-dustin-may-trade/
+
 **Padres' whirlwind deadline day continues with addition of Nestor Cortes: Source**\
 `The Padres' busy day continued with the addition of a lefty starter who's close to a return from injury.`\
 https://nytimes.com/athletic/6528654/2025/07/31/mlb-padres-nestor-cortes-trade/

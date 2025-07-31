@@ -1,3 +1,19 @@
+**Mets trade deadline takeaways: Strengthening the bullpen at a reasonable cost**\
+`The Mets reeled in Ryan Helsley, Tyler Rogers and Gregory Soto — arguably the three best rental relievers dealt at the deadline.`\
+https://nytimes.com/athletic/6528486/2025/07/31/mets-trade-deadline-takeaways/
+
+**The Steelers are getting weird with tight ends, to Arthur Smith's delight: Takeaways**\
+`Reunited with Jonnu Smith, the Steelers' offensive coordinator is deploying tight ends everywhere, even at running back.`\
+https://nytimes.com/athletic/6528433/2025/07/31/jonnu-smith-arthur-smith-steelers-training-camp/
+
+**Tigers swing deal hoping Charlie Morton, 41, still has more in the tank: Sources**\
+`Morton gives the Tigers what could prove to be needed rotation depth.`\
+https://nytimes.com/athletic/6528684/2025/07/31/mlb-tigers-charlie-morton-trade/
+
+**Rays acquire reliever Griffin Jax from Twins: Source**\
+`The Twins will receive starting pitcher Taj Bradley in the deal.`\
+https://nytimes.com/athletic/6520288/2025/07/31/mlb-rays-griffin-jax-trade/
+
 **Tampa Bay Rays get Adrian Houser from Chicago White Sox: Sources**\
 `Houser has gone 6-2 with a 2.10 ERA in 11 starts with the White Sox.`\
 https://nytimes.com/athletic/6525737/2025/07/31/mlb-rays-adrian-houser-trade/
@@ -14,27 +30,11 @@ https://nytimes.com/2025/07/31/nyregion/nyc-staged-car-accidents-arrest-tiktok.h
 `Here's a further look at the Phillies' deadline dealings and what they could mean moving forward.`\
 https://nytimes.com/athletic/6527778/2025/07/31/mlb-phillies-trade-deadline-takeaways/
 
-**Yankees continue to amass late-inning firepower, add Giants closer Camilo Doval: Sources**\
+**Yankees add Giants closer Camilo Doval to cap reliever trading spree: Sources**\
 `Doval was sent down to Triple A last season amidst struggles but had rebounded this year to regain the Giants' closer role.`\
 https://nytimes.com/athletic/6528677/2025/07/31/mlb-camilo-doval-yankees-trade/
 
 **Final Salute to a Fallen Officer: Images of Loss and Remembrance**\
 `The streets of a Bronx neighborhood filled with mourners who had gathered for the funeral of Didarul Islam, one of the victims of this week’s mass shooting in Manhattan.`\
 https://nytimes.com/2025/07/31/nyregion/officer-funeral-new-york-shooting.html
-
-**Red Sox to deepen rotation with Dustin May from Dodgers by trading James Tibbs III: Sources**\
-`May is enjoying both the healthiest and least productive season of his major league career. Tibbs was part of the Rafael Devers trade.`\
-https://nytimes.com/athletic/6523921/2025/07/31/mlb-red-sox-dustin-may-trade/
-
-**Yankees expend minimal cost to upgrade bullpen with David Bednar, Jake Bird**\
-`The Yankees added two right-handed reinforcements to the backend of their bullpen without dealing away any of their major prospects.`\
-https://nytimes.com/athletic/6528541/2025/07/31/yankees-bullpen-additions-david-bednar-jake-bird-rafael-flores/
-
-**Arab States Call for Hamas to Disarm Amid Push for a Palestinian State**\
-`“Hamas must end its rule in Gaza,” reads a declaration endorsed by the 22 member nations of the Arab League.`\
-https://nytimes.com/2025/07/31/world/middleeast/hamas-arab-states-palestinians.html
-
-**Knicks, Mikal Bridges agree to 4-year, $150 million extension: Source**\
-`Bridges took $6 million less than the maximum available to him to help New York attempt to stay under the second apron.`\
-https://nytimes.com/athletic/6498832/2025/07/31/mikal-bridges-contract-knicks-extension-signs/
 
