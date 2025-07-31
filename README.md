@@ -1,5 +1,5 @@
 **Mariners finalizing deal for slugger Eugenio Suárez from Diamondbacks: Source**\
-`All-Star third baseman returns to Seattle, where he hit 53 home runs across the 2022 and 2023 seasons.`\
+`All-Star third baseman is set to return to Seattle, where he hit 53 home runs across the 2022 and 2023 seasons.`\
 https://nytimes.com/athletic/6518466/2025/07/31/mlb-mariners-eugenio-suarez-trade/
 
 **Thursday Briefing: Trump’s Steep Tariffs on Brazil**\

@@ -1,3 +1,7 @@
+**Mariners finalizing deal for slugger Eugenio Suárez from Diamondbacks: Source**\
+`All-Star third baseman returns to Seattle, where he hit 53 home runs across the 2022 and 2023 seasons.`\
+https://nytimes.com/athletic/6518466/2025/07/31/mlb-mariners-eugenio-suarez-trade/
+
 **Thursday Briefing: Trump’s Steep Tariffs on Brazil**\
 `Plus, U.S.-India trade tensions.`\
 https://nytimes.com/2025/07/31/briefing/brazil-trump-india-trade-us-canada-gaza-palestinian-state.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6462239/2025/07/31/football-architects-the-england-
 **Lucy Bronze playing on with a fractured tibia: The pain, the preparation, the risk**\
 `How was the defender able to help England win Euro 2025 starting all their six matches with a broken bone in her left leg?`\
 https://nytimes.com/athletic/6522445/2025/07/31/lucy-bronze-broken-tibia-euro-2025/
-
-**"The Premier League is a lot of people's goals. But mine's not - I just want to play well"**\
-`The 27-year-old striker has packed plenty into his career since Villa signed him from non-League - he's now enjoying life in Italy`\
-https://nytimes.com/athletic/6519681/2025/07/31/keinan-davis-interview-udinese-aston-villa-forest/
 
