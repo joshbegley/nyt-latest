@@ -1,3 +1,7 @@
+**Murky Pledges of Investment Cast Shadow on Trump’s Trade Deals**\
+`Recent global trade deals with the United States were secured with huge, often vaguely defined investment pledges from partners like Japan.`\
+https://nytimes.com/2025/07/31/business/trump-japan-south-korea-investment.html
+
 **$30 Potatoes and $300 Flour in Gaza: Prices So High They’re ‘Meaningless’**\
 `Obtaining humanitarian aid can be difficult and dangerous, and though some essentials are available at markets, they are prohibitively expensive for many Gazans.`\
 https://nytimes.com/2025/07/31/world/middleeast/gaza-market-prices-flour.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6526168/2025/07/31/ravens-training-camp-lamar-jacks
 **What I'm seeing at Giants camp: The only thing that can stop Malik Nabers is bad luck**\
 `Nabers looks more indispensable to this Giants offense than ever. When he's not on the field, NY's offense is devoid of firepower. `\
 https://nytimes.com/athletic/6526013/2025/07/31/ny-giants-malik-nabers-training-camp/
-
-**Why Barcelona are wearing Kobe Bryant-branded shirts**\
-`Barca's new away kit is a collaboration with the late NBA icon's personal sportswear brand after a long association with him`\
-https://nytimes.com/athletic/6524737/2025/07/31/barcelona-kobe-bryant-shirt-collaboration-soccer/
 

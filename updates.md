@@ -1,3 +1,7 @@
+**Murky Pledges of Investment Cast Shadow on Trump’s Trade Deals**\
+`Recent global trade deals with the United States were secured with huge, often vaguely defined investment pledges from partners like Japan.`\
+https://nytimes.com/2025/07/31/business/trump-japan-south-korea-investment.html
+
 **$30 Potatoes and $300 Flour in Gaza: Prices So High They’re ‘Meaningless’**\
 `Obtaining humanitarian aid can be difficult and dangerous, and though some essentials are available at markets, they are prohibitively expensive for many Gazans.`\
 https://nytimes.com/2025/07/31/world/middleeast/gaza-market-prices-flour.html
