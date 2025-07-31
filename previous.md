@@ -1,3 +1,15 @@
+**In Yosemite, Falling Tree Branches Kill a Young Hiker in ‘Freak Accident’**\
+`Angela Lin, 29, was a software engineer at Google who loved to spend time outdoors.`\
+https://nytimes.com/2025/07/31/us/yosemite-tuolumne-grove-hiker-killed.html
+
+**‘Maybe Happy Ending’ Casting Change Ignites Debate About Representation**\
+`When the show said Andrew Barth Feldman, a white actor, would replace Darren Criss, who is of Filipino descent, alarms were sounded by some Asian American actors.`\
+https://nytimes.com/2025/07/31/theater/maybe-happy-ending-casting-controversy.html
+
+**Legionnaires’ Disease Sickens 22 in New York. Here’s What to Know.**\
+`The cases are most likely linked to a cooling tower in central Harlem, health officials said.`\
+https://nytimes.com/2025/07/31/well/legionnaires-disease-new-york-city-cases.html
+
 **What I saw at Ohio State's first practice: A key injury question, early standouts and more**\
 `Plenty of positives for Ohio State on the first day of preseason camp were overshadowed by Eddrick Houston leaving with an injury.`\
 https://nytimes.com/athletic/6527811/2025/07/31/ohio-state-takeaways-from-day-1-of-camp-eddrick-houston-injury-early-standouts-and-more/
@@ -25,16 +37,4 @@ https://nytimes.com/interactive/2025/07/31/espanol/sur-de-california-terremoto-l
 **One-man, first-round PPR fantasy football 2025 mock draft: Who to prioritize?**\
 `The 2025 fantasy football season is odd, with no consensus top pick or first-round path. Gary Davenport mocks his first round to help. `\
 https://nytimes.com/athletic/6527551/2025/07/31/fantasy-football-2025-ppr-mock-draft-first-round/
-
-**A Short History of Awkward Gift Giving Between U.S. and U.K. Leaders**\
-`For foreign leaders seeking to woo President Trump, a thoughtful gift is a time-honored diplomatic tactic. But there are pitfalls.`\
-https://nytimes.com/2025/07/31/world/europe/uk-us-leader-gifts.html
-
-**Robbery of U.K. Royal Family’s Items Leads to $4 Million Insurance Payment**\
-`Two centuries-old snuff boxes adorned with diamonds and gold were among several artifacts stolen in a violent museum heist in Paris last year.`\
-https://nytimes.com/2025/07/31/arts/design/uk-royal-family-robbery-insurance-payment.html
-
-**She Came Face to Face With the Park Avenue Gunman and Survived**\
-`Sebije Nelovic, who has cleaned the Manhattan office building that was the site of the shooting for 27 years, was dusting a table that Monday evening. Then she heard gunfire.`\
-https://nytimes.com/2025/07/31/nyregion/park-avenue-shooting-sebije-nelovic.html
 
