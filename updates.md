@@ -1,3 +1,7 @@
+**Blue Jays to bolster rotation with former Cy Young winner Shane Bieber in trade with Guardians: Source**\
+`Adding the rehabbing Bieber injects the Blue Jays' starting group with proven depth and real upside.`\
+https://nytimes.com/athletic/6522629/2025/07/31/mlb-blue-jays-shane-bieber-trade/
+
 **Remembering the four lives lost in the shooting.**\
 `By Sarah Maslin Nir, Michael Wilson, Wesley Parnell, Maureen Farrell and Dionne Searcey`\
 https://nytimes.com/live/2025/07/31/nyregion/nyc-shooting-didarul-islam-funeral/remembering-the-four-lives-lost-in-the-shooting

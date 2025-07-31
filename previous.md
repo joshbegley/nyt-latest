@@ -1,3 +1,7 @@
+**Blue Jays to bolster rotation with former Cy Young winner Shane Bieber in trade with Guardians: Source**\
+`Adding the rehabbing Bieber injects the Blue Jays' starting group with proven depth and real upside.`\
+https://nytimes.com/athletic/6522629/2025/07/31/mlb-blue-jays-shane-bieber-trade/
+
 **Remembering the four lives lost in the shooting.**\
 `By Sarah Maslin Nir, Michael Wilson, Wesley Parnell, Maureen Farrell and Dionne Searcey`\
 https://nytimes.com/live/2025/07/31/nyregion/nyc-shooting-didarul-islam-funeral/remembering-the-four-lives-lost-in-the-shooting
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/31/world/europe/trump-medvedev-russia.html
 **Here’s the latest.**\
 `By Maia Coleman`\
 https://nytimes.com/live/2025/07/31/nyregion/nyc-shooting-didarul-islam-funeral/heres-the-latest
-
-**Live Updates: Crowds Expected for Funeral of Officer Slain in Manhattan**\
-`Mayoral candidates and police officials will be among those attending the ceremony for Police Officer Didarul Islam, who was killed on Monday at an office building in Midtown Manhattan.`\
-https://nytimes.com/live/2025/07/31/nyregion/nyc-shooting-didarul-islam-funeral
 
