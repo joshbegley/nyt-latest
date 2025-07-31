@@ -1,3 +1,19 @@
+**Carlos Correa to rejoin Astros in stunning trade with Twins: Sources**\
+`HOUSTON — The Houston Astros are closing in on a reunion with franchise icon Carlos Correa.`\
+https://nytimes.com/athletic/6528266/2025/07/31/mlb-astros-carlos-correa-trade/
+
+**What I saw during Notre Dame's first preseason practice, minute by minute**\
+`Notre Dame QBs threw four picks on Day 1, but there are more than a half-dozen starting jobs open, beyond who replaces Riley Leonard.`\
+https://nytimes.com/athletic/6528019/2025/07/31/notre-dame-practice-kenny-minchey-cj-carr/
+
+**Are These Celebrity Sandwich Shops Any Good?**\
+`Influencers and Oscar nominees are getting into the sandwich game. Our columnist gave their cheesesteaks, French dips and deli subs a try.`\
+https://nytimes.com/2025/07/31/dining/celebrity-sandwiches-nyc.html
+
+**Yankees keep stockpiling relievers by adding Jake Bird from Rockies: Source**\
+`Colorado gets two minor leaguers: second baseman Roc Riggio and left-hander Ben Shields.`\
+https://nytimes.com/athletic/6528208/2025/07/31/mlb-yankees-jake-bird-trade/
+
 **Osimhen makes Galatasaray move permanent**\
 `The Nigeria international striker scored 37 goals across 41 appearances for the Istanbul-based club on a loan deal from Napoli last season.`\
 https://nytimes.com/athletic/6259289/2025/07/31/victor-osimhen-galatasaray-transfer/
