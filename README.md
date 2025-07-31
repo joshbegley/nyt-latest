@@ -1,3 +1,7 @@
+**Aftershocks From 8.8-Magnitude Quake Rattle North Pacific**\
+`Dozens of small earthquakes were recorded, most off the coast of Russia’s Far East. Five of them have been above magnitude 6.`\
+https://nytimes.com/2025/07/31/world/asia/aftershocks-russia-earthquake.html
+
 **After Backlash, Ukraine Is Set to Vote on Restoring Watchdogs’ Powers**\
 `President Volodymyr Zelensky’s move last week to neuter two anticorruption agencies drew the country’s first street protests since Russia’s invasion.`\
 https://nytimes.com/2025/07/31/world/europe/ukraine-corruption-agencies-parliament.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/31/arts/television/seth-meyers-trump-epstein.html
 **Russian Missile and Drone Attack Pummels Kyiv, Killing at Least 6**\
 `The assault came soon after President Trump threatened new sanctions against Moscow if the bloodshed didn’t let up.`\
 https://nytimes.com/2025/07/31/world/europe/ukraine-russia-attack-kyiv.html
-
-**Word of the Day: hirsute**\
-`This word has appeared in five articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2025/07/31/learning/word-of-the-day-hirsute.html
 

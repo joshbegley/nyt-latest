@@ -1,3 +1,7 @@
+**After Backlash, Ukraine Is Set to Vote on Restoring Watchdogs’ Powers**\
+`President Volodymyr Zelensky’s move last week to neuter two anticorruption agencies drew the country’s first street protests since Russia’s invasion.`\
+https://nytimes.com/2025/07/31/world/europe/ukraine-corruption-agencies-parliament.html
+
 **China Summons Nvidia Over ‘Backdoor Security’ Risks of A.I. Chips**\
 `The move came two weeks after the Trump administration reversed course to allow Nvidia to sell the coveted artificial intelligence chips in China.`\
 https://nytimes.com/2025/07/31/business/china-nvidia-h20-chips.html

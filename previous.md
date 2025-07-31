@@ -1,3 +1,7 @@
+**After Backlash, Ukraine Is Set to Vote on Restoring Watchdogs’ Powers**\
+`President Volodymyr Zelensky’s move last week to neuter two anticorruption agencies drew the country’s first street protests since Russia’s invasion.`\
+https://nytimes.com/2025/07/31/world/europe/ukraine-corruption-agencies-parliament.html
+
 **China Summons Nvidia Over ‘Backdoor Security’ Risks of A.I. Chips**\
 `The move came two weeks after the Trump administration reversed course to allow Nvidia to sell the coveted artificial intelligence chips in China.`\
 https://nytimes.com/2025/07/31/business/china-nvidia-h20-chips.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/31/world/europe/ukraine-russia-attack-kyiv.html
 **Word of the Day: hirsute**\
 `This word has appeared in five articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2025/07/31/learning/word-of-the-day-hirsute.html
-
-**Thailand and Cambodia Reach Trump Trade Deals, U.S. Official Says**\
-`Senior officials from both countries say they were still waiting to hear final details on the deals after comments by the U.S. commerce secretary, Howard Lutnick.`\
-https://nytimes.com/2025/07/31/business/thailand-cambodia-trump-tariffs.html
 
