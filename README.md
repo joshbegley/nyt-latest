@@ -1,3 +1,7 @@
+**Tigers trade deadline takeaways: Was bullpen improved enough?**\
+`The Tigers made a series of moves to strengthen their bullpen, but they missed out on high-end arms. Will that come back to haunt them?`\
+https://nytimes.com/athletic/6528431/2025/07/31/tigers-trade-deadline-takeaways/
+
 **Ranking the winners, losers and snoozers of the 2025 MLB trade deadline**\
 `The Padres ruled the deadline, the Yankees, Mets and Phillies built ever-greater bullpens, and the Cardinals, Dodgers and Reds underwhelmed.`\
 https://nytimes.com/athletic/6528840/2025/07/31/mlb-trade-deadline-takeaways-2025-winners-losers-snoozers/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6528747/2025/07/31/astros-deadline-takeaways-jim-cr
 **Cubs come up empty on big-time starter, add depth to bullpen and rotation**\
 `The Cubs added three pitchers, but that big name starter or reliever eluded them as the trade deadline came to a close.`\
 https://nytimes.com/athletic/6528750/2025/07/31/cubs-mlb-trade-deadline-takeaways/
-
-**Trump Is Bringing Back the Presidential Fitness Test**\
-`The president signed an executive order on Thursday that would reinstate the test for schoolchildren.`\
-https://nytimes.com/2025/07/31/well/move/trump-presidential-fitness-test.html
 
