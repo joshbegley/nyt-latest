@@ -1,3 +1,11 @@
+**Tottenham in Palhinha loan talks with Bayern**\
+`Palhinha, 30, only signed for Bayern from Fulham in a deal worth €51m last summer, but started just 10 matches in 2024-25.`\
+https://nytimes.com/athletic/6508273/2025/07/31/joao-palhinha-tottenham-loan-bayern/
+
+**The 8 biggest storylines to watch for on MLB trade deadline day**\
+`The Cubs, Padres, Red Sox, Mets and Phillies are among the key teams whose moves (or lack of them) will likely shape deadline day.`\
+https://nytimes.com/athletic/6526906/2025/07/31/mlb-trade-deadline-storylines-pitchers/
+
 **Summer McIntosh sets world championship record, wins third gold in three tries**\
 `The Canadian star challenged the all-time mark in the women's 200-meter butterfly and continued her perfect string of races in Singapore.`\
 https://nytimes.com/athletic/6526914/2025/07/31/summer-mcintosh-leon-marchand-200-butterfly-medley-world-championships/

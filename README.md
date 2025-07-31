@@ -1,3 +1,7 @@
+**Anger Over Starvation in Gaza Leaves Israel at Risk of Isolation**\
+`Global outrage at the Netanyahu government’s actions has grown since the war began, and the suffering of children in the enclave has accelerated the disdain.`\
+https://nytimes.com/2025/07/31/world/middleeast/gaza-starvation-aid-israel-netanyahu.html
+
 **Tottenham in Palhinha loan talks with Bayern**\
 `Palhinha, 30, only signed for Bayern from Fulham in a deal worth €51m last summer, but started just 10 matches in 2024-25.`\
 https://nytimes.com/athletic/6508273/2025/07/31/joao-palhinha-tottenham-loan-bayern/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6525427/2025/07/31/hockey-hall-of-fame-tiers-nhl-in
 **Why won't Wizards attempt to reacquire their protected 2026 first-rounder from Knicks?**\
 `Such an effort would be nowhere near as straightforward, or as sensible, as it might seem.`\
 https://nytimes.com/athletic/6526077/2025/07/31/wizards-2026-first-round-pick-knicks-suns/
-
-**How Blue Jackets second-rounder Evan Gardner emerged as a top goalie prospect**\
-`Gardner's path to the World Junior Summer Showcase for Team Canada was not a straightforward one.`\
-https://nytimes.com/athletic/6518952/2025/07/31/blue-jackets-evan-gardner-prospect/
 
