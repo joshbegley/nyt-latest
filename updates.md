@@ -1,3 +1,11 @@
+**Kaleb Johnson, Steelers' offense underwhelm as defense dominates Day 1 in pads: Takeaways**\
+`Meanwhile, Troy Fautanu impressed, Joey Porter Jr. got feisty and the Aaron Rodgers-DK Metcalf connection continued to build.`\
+https://nytimes.com/athletic/6526110/2025/07/30/steelers-training-camp-kaleb-johnson-pads/
+
+**18 Great Road Trip Books That Aren’t ‘On the Road’**\
+`Come along for the ride as our three critics back-seat drive their way through America. (Rest stops provided.)`\
+https://nytimes.com/2025/07/30/books/best-road-trip-books.html
+
 **Phillies call their shot and get their closer, acquiring Jhoan Duran from Twins: Sources**\
 `The prospect cost was substantial, with starter Mick Abel, 23, and catching prospect Eduardo Tait, 18, going to the Twins.`\
 https://nytimes.com/athletic/6526053/2025/07/30/phillies-jhoan-duran-trade-twins/

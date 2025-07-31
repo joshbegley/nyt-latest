@@ -1,3 +1,11 @@
+**Kaleb Johnson, Steelers' offense underwhelm as defense dominates Day 1 in pads: Takeaways**\
+`Meanwhile, Troy Fautanu impressed, Joey Porter Jr. got feisty and the Aaron Rodgers-DK Metcalf connection continued to build.`\
+https://nytimes.com/athletic/6526110/2025/07/30/steelers-training-camp-kaleb-johnson-pads/
+
+**18 Great Road Trip Books That Aren’t ‘On the Road’**\
+`Come along for the ride as our three critics back-seat drive their way through America. (Rest stops provided.)`\
+https://nytimes.com/2025/07/30/books/best-road-trip-books.html
+
 **Trade grades: Phillies find what they need in Jhoan Durán, Twins 'win,' too**\
 `To quote one of our trade graders: This is what a deadline deal is supposed to look like.`\
 https://nytimes.com/athletic/6526120/2025/07/30/phillies-jhoan-duran-trade-grade/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6526054/2025/07/30/cubs-trade-deadline-milwaukee-br
 **Giants trade Tyler Rogers, and the sell-off is on**\
 `The Giants shouldn't be in a position to sell given where they were three weeks ago. But they are sellers, alas, and this is a solid return.`\
 https://nytimes.com/athletic/6525855/2025/07/30/sf-giants-tyler-rogers-trade-analysis/
-
-**Mets acquire closer Ryan Helsley from Cardinals for prospects: Sources**\
-`The Mets send three prospects back to St. Louis for Helsley, who is a free agent at the end of the season.`\
-https://nytimes.com/athletic/6519507/2025/07/30/mlb-mets-ryan-helsley-trade/
-
-**Phillies call their shot and get their closer, acquiring Jhoan Duran from Twins: Sources**\
-`The prospect cost was substantial, with starter Mick Abel, 23, and catching prospect Eduardo Tait, 18, going to the Twins.`\
-https://nytimes.com/athletic/6526053/2025/07/30/phillies-jhoan-duran-trade-twins/
 
