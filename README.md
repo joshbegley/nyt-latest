@@ -30,9 +30,9 @@ https://nytimes.com/2025/07/31/us/politics/senators-new-aid-ukraine.html
 `A jam-packed schedule means the final England-India Test is being staged without some of its best players `\
 https://nytimes.com/athletic/6528032/2025/07/31/england-india-test-cricket-schedule/
 
-**Yankees close to acquiring reliever David Bednar from Pirates to address top need: Sources**\
+**Trade grades: Yankees to address top need by landing reliever David Bednar from Pirates**\
 `Bednar immediately becomes the Yankees’ top reliever in terms of average fastball velocity.`\
-https://nytimes.com/athletic/6498441/2025/07/31/mlb-yankees-david-bednar-trade/
+https://nytimes.com/athletic/6498441/2025/07/31/mlb-yankees-david-bednar-trade-grades/
 
 **In Funeral Remarks, Adams Praises Police Unit Mamdani Vowed to Disband**\
 `Mayor Eric Adams thanked the Strategic Response Group for its actions during a shooting in Midtown Manhattan. Zohran Mamdani has criticized the unit for its policing of protests and aims to replace it.`\

@@ -1,3 +1,11 @@
+**Juventus general manager: Weah ‘can’t choose a team’ amid Marseille talks**\
+`Weah’s agent, Badou Sambague, had expressed his frustration that a move to Marseille has so far failed to materialize.`\
+https://nytimes.com/athletic/6528091/2025/07/31/timothy-weah-juventus-marseille-comolli/
+
+**Padres deal 2 arms to bolster weakness by adding catcher Freddy Fermin from Royals: Sources**\
+`The addition bolsters a positional weakness that has plagued the Padres for much of the season.`\
+https://nytimes.com/athletic/6528022/2025/07/31/mlb-padres-freddy-fermin-trade/
+
 **Mary K. Gaillard, Physicist Who Probed the Subatomic Universe, Dies at 86**\
 `Although she faced discrimination from her mostly male colleagues, she did groundbreaking work that showed experimentalist physicists where and how to look for new particles.`\
 https://nytimes.com/2025/07/31/science/mary-k-gaillard-dead.html
