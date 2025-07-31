@@ -1,3 +1,7 @@
+**Padres add catcher Freddy Fermin from Royals in exchange for pitchers: Sources**\
+`The addition bolsters a positional weakness that has plagued the Padres for much of the season.`\
+https://nytimes.com/athletic/6528022/2025/07/31/mlb-padres-freddy-fermin-trade/
+
 **David Nabarro, U.N. Health Expert During Ebola and Covid, Dies at 75**\
 `He took on some of the world’s most challenging health crises in troubled areas, skillfully coordinating global efforts to reduce the spread of disease.`\
 https://nytimes.com/2025/07/31/us/politics/david-nabarro-dead.html

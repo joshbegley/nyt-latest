@@ -6,7 +6,7 @@ https://nytimes.com/2025/07/31/us/politics/david-nabarro-dead.html
 `"Y'all cannot come out there with those shirts of 'Pay Us What You Owe Us,' and then do that in the All-Star Game," Parker said.`\
 https://nytimes.com/athletic/6527975/2025/07/31/candace-parker-wnba-all-star-game-shirts/
 
-**Padres add catcher Freddy Fermin from Royals in exchange for Ryan Bergert: Sources**\
+**Padres add catcher Freddy Fermin from Royals in exchange for pitchers: Sources**\
 `The addition bolsters a positional weakness that has plagued the Padres for much of the season.`\
 https://nytimes.com/athletic/6528022/2025/07/31/mlb-padres-freddy-fermin-trade/
 
