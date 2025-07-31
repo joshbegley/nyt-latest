@@ -1,3 +1,11 @@
+**My 5 Favorite Places for Art in Rome**\
+`Our critic Jason Farago shares what you shouldn’t miss in a city crowded with both the seamy and stately.`\
+https://nytimes.com/2025/07/31/arts/design/art-rome-museums-tomb.html
+
+**Coco Gauff's 23-double-fault win and what it says about tennis' relationship with 'quality'**\
+`Gauff's serve changes are still embedding into her tennis. But she has other ways to win when the double faults start.`\
+https://nytimes.com/athletic/6525324/2025/07/31/tennis-coco-gauff-double-faults-serve-win/
+
 **Murky Pledges of Investment Cast Shadow on Trump’s Trade Deals**\
 `Recent global trade deals with the United States were secured with huge, often vaguely defined investment pledges from partners like Japan.`\
 https://nytimes.com/2025/07/31/business/trump-japan-south-korea-investment.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6525274/2025/07/31/max-verstappen-red-bull-2026-con
 **Isak training at former club Real Sociedad while future uncertain**\
 `Liverpool have expressed their interest in buying Isak, who did not travel with Newcastle on their pre-season tour of Asia.`\
 https://nytimes.com/athletic/6512963/2025/07/31/alexander-isak-real-sociedad-newcastle/
-
-**Ravens have time and talent on their side in overcoming Isaiah Likely's absence**\
-`Likely’s injury shouldn’t cast a pall over training camp or force anyone to adjust their high expectations for this Baltimore team. `\
-https://nytimes.com/athletic/6526168/2025/07/31/ravens-training-camp-lamar-jackson-isaiah-likely/
-
-**What I'm seeing at Giants camp: The only thing that can stop Malik Nabers is bad luck**\
-`Nabers looks more indispensable to this Giants offense than ever. When he's not on the field, NY's offense is devoid of firepower. `\
-https://nytimes.com/athletic/6526013/2025/07/31/ny-giants-malik-nabers-training-camp/
 

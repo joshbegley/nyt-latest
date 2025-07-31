@@ -1,3 +1,11 @@
+**My 5 Favorite Places for Art in Rome**\
+`Our critic Jason Farago shares what you shouldn’t miss in a city crowded with both the seamy and stately.`\
+https://nytimes.com/2025/07/31/arts/design/art-rome-museums-tomb.html
+
+**Coco Gauff's 23-double-fault win and what it says about tennis' relationship with 'quality'**\
+`Gauff's serve changes are still embedding into her tennis. But she has other ways to win when the double faults start.`\
+https://nytimes.com/athletic/6525324/2025/07/31/tennis-coco-gauff-double-faults-serve-win/
+
 **Murky Pledges of Investment Cast Shadow on Trump’s Trade Deals**\
 `Recent global trade deals with the United States were secured with huge, often vaguely defined investment pledges from partners like Japan.`\
 https://nytimes.com/2025/07/31/business/trump-japan-south-korea-investment.html
