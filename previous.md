@@ -1,3 +1,7 @@
+**"The Premier League is a lot of people's goals. But mine's not - I just want to play well"**\
+`The 27-year-old striker has packed plenty into his career since Villa signed him from non-League - he's now enjoying life in Italy`\
+https://nytimes.com/athletic/6519681/2025/07/31/keinan-davis-interview-udinese-aston-villa-forest/
+
 **More Than 1,000 Troops Are Withdrawn From L.A.**\
 `The move continues a scaling back of President Trump’s military deployment in Southern California that began on June 7.`\
 https://nytimes.com/2025/07/31/us/troop-withdrawal-los-angeles.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/31/business/guangzhou-china-factories-tariffs.html
 **Countries Promise Trump to Buy U.S. Gas, and Leave the Details for Later**\
 `U.S. trading partners are committing to buy more gas than they need or than the U.S. can produce, at least in the short term.`\
 https://nytimes.com/2025/07/31/business/economy/trump-trade-deals-lng.html
-
-**Red Sox acquire Steven Matz as Cardinals' deadline sell-off continues: Source**\
-`More than half of Matz's relief appearances this year spanned multiple innings.`\
-https://nytimes.com/athletic/6524189/2025/07/30/cardinals-steven-matz-mlb-trade/
 
