@@ -1,3 +1,11 @@
+**Chelsea to sign teenager Jesse Derry after Crystal Palace exit**\
+`Derry, 18, refused to sign a professional deal at Palace, who are now expected to be awarded a significant fee in compensation.`\
+https://nytimes.com/athletic/6527251/2025/07/31/chelsea-tranfer-jesse-derry-crystal-palace/
+
+**CSC revises guidance to clear way for collectives to continue NIL deals**\
+`The new guidance allows collective deals as long as the athlete is promoting 'for profit' goods or services to the public.`\
+https://nytimes.com/athletic/6527068/2025/07/31/college-sports-commission-collectives-nil/
+
 **Blue Jays to bolster rotation with former Cy Young winner Shane Bieber in trade with Guardians: Source**\
 `Adding the rehabbing Bieber injects the Blue Jays' starting group with proven depth and real upside.`\
 https://nytimes.com/athletic/6522629/2025/07/31/mlb-blue-jays-shane-bieber-trade/

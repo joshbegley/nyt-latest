@@ -1,3 +1,11 @@
+**Chelsea to sign teenager Jesse Derry after Crystal Palace exit**\
+`Derry, 18, refused to sign a professional deal at Palace, who are now expected to be awarded a significant fee in compensation.`\
+https://nytimes.com/athletic/6527251/2025/07/31/chelsea-tranfer-jesse-derry-crystal-palace/
+
+**CSC revises guidance to clear way for collectives to continue NIL deals**\
+`The new guidance allows collective deals as long as the athlete is promoting 'for profit' goods or services to the public.`\
+https://nytimes.com/athletic/6527068/2025/07/31/college-sports-commission-collectives-nil/
+
 **Blue Jays to bolster rotation with former Cy Young winner Shane Bieber in trade with Guardians: Source**\
 `Adding the rehabbing Bieber injects the Blue Jays' starting group with proven depth and real upside.`\
 https://nytimes.com/athletic/6522629/2025/07/31/mlb-blue-jays-shane-bieber-trade/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6527118/2025/07/31/keith-law-eugenio-suarez-mariner
 **Ancient Gems Linked to Buddha Are Returned to India**\
 `Sotheby’s had canceled an auction of the Piprahwa Gems after pressure from the Indian government. India said the relics were back in their “rightful home.”`\
 https://nytimes.com/2025/07/31/arts/buddha-jewels-piprahwa-india-return.html
-
-**Trump Tells Russian Official to ‘Watch His Words,’ but He Bites Back Instead**\
-`The former Russian president Dmitri Medvedev offers President Trump a useful foil to criticize without rebuking Vladimir Putin, one analyst said.`\
-https://nytimes.com/2025/07/31/world/europe/trump-medvedev-russia.html
-
-**Here’s the latest.**\
-`By Maia Coleman`\
-https://nytimes.com/live/2025/07/31/nyregion/nyc-shooting-didarul-islam-funeral/heres-the-latest
 

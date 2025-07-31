@@ -1,3 +1,7 @@
+**NHL's best and worst contracts. Plus: The Hockey Hall of Fame debate I dread**\
+`Good morning to everyone except the guy who threw a live chicken on the ice during a Kings game in 1988.`\
+https://nytimes.com/athletic/6527209/2025/07/31/nhl-contract-ranking-red-light-newsletter/
+
 **Chelsea to sign teenager Jesse Derry after Crystal Palace exit**\
 `Derry, 18, refused to sign a professional deal at Palace, who are now expected to be awarded a significant fee in compensation.`\
 https://nytimes.com/athletic/6527251/2025/07/31/chelsea-tranfer-jesse-derry-crystal-palace/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/31/us/politics/ice-marine-wife-senator-kennedy.html
 **Law: Mariners upgrade with Eugenio Suárez, Diamondbacks get 3 prospects**\
 `The Suárez deal brought the D-Backs Tyler Locklear, Hunter Cranton and Juan Burgos and could eventually give them runway for Jordan Lawlar.`\
 https://nytimes.com/athletic/6527118/2025/07/31/keith-law-eugenio-suarez-mariners-dbacks-trade-analysis/
-
-**Ancient Gems Linked to Buddha Are Returned to India**\
-`Sotheby’s had canceled an auction of the Piprahwa Gems after pressure from the Indian government. India said the relics were back in their “rightful home.”`\
-https://nytimes.com/2025/07/31/arts/buddha-jewels-piprahwa-india-return.html
 
