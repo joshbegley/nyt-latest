@@ -1,3 +1,7 @@
+**Reds are better with Ke'Bryan Hayes, but how much better?**\
+`The 28-year-old Hayes, son of former big-leaguer Charlie Hayes, won a Gold Glove in 2023.`\
+https://nytimes.com/athletic/6526338/2025/07/30/cincinnati-reds-kebryan-hayes-trade-analysis/
+
 **The Mets' trade deadline moves show the value of prospect development**\
 `This is the type of complete organization the Mets have longed to be since Steve Cohen bought them in the fall of 2020.`\
 https://nytimes.com/athletic/6526408/2025/07/30/mets-trade-deadline-moves-development-value/
