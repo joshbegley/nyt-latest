@@ -1,3 +1,7 @@
+**Royal Porthcawl, the 'painter's paradise' which caught out Tiger Woods**\
+`The rugged beauty of Royal Porthcawl is home to the Women's Open this week - could a men's Open follow?`\
+https://nytimes.com/athletic/6524964/2025/07/31/open-golf-tiger-woods-royal-porthcawl/
+
 **Edinburgh Fringe Can Bring Artists Fame, but Money’s Another Matter**\
 `The venue that hosted “Baby Reindeer” is back from the financial brink, but many performers still say the risk of taking part in the festival is too high.`\
 https://nytimes.com/2025/07/31/theater/edinburgh-fringe-summerhall.html
