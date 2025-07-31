@@ -1,3 +1,15 @@
+**Bears WR Luther Burden III impresses; left tackle battle reaches critical weekend**\
+`Burden had his best day as the Bears offense bounced back from a disappointing practice ahead of an off day.`\
+https://nytimes.com/athletic/6528044/2025/07/31/bears-luther-burden-left-tackle-battle/
+
+**Are These Celebrity Sandwich Shops Any Good?**\
+`Influencers and Oscar nominees are getting into the sandwich game. Our columnist gave their cheesesteaks, French dips and deli subs a try.`\
+https://nytimes.com/2025/07/31/dining/are-these-celebrity-sandwich-shops-any-good.html
+
+**Yankees keep stockpiling relievers by adding Jake Bird from Rockies: Source**\
+`Colorado gets second baseman Roc Riggio and left-hander Ben Shields.`\
+https://nytimes.com/athletic/6528208/2025/07/31/mlb-yankees-jake-bird-trade/
+
 **Fossil Fuel Companies’ Profitable Bet on Trump**\
 `Three big numbers that show how President Trump has directed tens of billions of dollars in incentives to fossil fuel companies.`\
 https://nytimes.com/2025/07/31/climate/trump-oil-and-gas-companies.html

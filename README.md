@@ -1,3 +1,15 @@
+**Osimhen makes Galatasaray move permanent**\
+`The Nigeria international striker scored 37 goals across 41 appearances for the Istanbul-based club on a loan deal from Napoli last season.`\
+https://nytimes.com/athletic/6259289/2025/07/31/victor-osimhen-galatasaray-transfer/
+
+**White House Unveils Plan for Enormous Ballroom Long Sought by Trump**\
+`Officials said a 90,000-square-foot addition to the East Wing would cost $200 million and be paid for by President Trump and other donors.`\
+https://nytimes.com/2025/07/31/us/politics/white-house-ballroom-trump.html
+
+**Nashville Is a ‘Tough Place to Tunnel.’ Musk Is Digging Anyway.**\
+`State leaders fast-tracked plans by Elon Musk’s company for a tunnel to Nashville’s airport, ignoring the city’s concerns.`\
+https://nytimes.com/2025/07/31/us/politics/nashville-tunnel-musk.html
+
 **Bears WR Luther Burden III impresses; left tackle battle reaches critical weekend**\
 `Burden had his best day as the Bears offense bounced back from a disappointing practice ahead of an off day.`\
 https://nytimes.com/athletic/6528044/2025/07/31/bears-luther-burden-left-tackle-battle/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6519541/2025/07/31/mlb-mets-cedric-mullins-trade/
 **Juventus general manager: Weah ‘can’t choose a team’ amid Marseille talks**\
 `Weah’s agent, Badou Sambague, had expressed his frustration that a move to Marseille has so far failed to materialize.`\
 https://nytimes.com/athletic/6528091/2025/07/31/timothy-weah-juventus-marseille-comolli/
-
-**Mary K. Gaillard, 86, Physicist Who Probed the Subatomic Universe, Dies**\
-`Although she faced discrimination from her mostly male colleagues, she did groundbreaking work that showed experimentalist physicists where and how to look for new particles.`\
-https://nytimes.com/2025/07/31/science/mary-k-gaillard-dead.html
-
-**In Shift, Hochul Says Starvation of Children in Gaza Is ‘Unconscionable’**\
-`Gov. Kathy Hochul of New York joined other staunch supporters of Israel who have recently condemned its role in creating the humanitarian crisis in Gaza.`\
-https://nytimes.com/2025/07/31/nyregion/hochul-israel-gaza.html
-
-**David Nabarro, U.N. Health Expert During Ebola and Covid, Dies at 75**\
-`He took on some of the world’s most challenging health crises in troubled areas, skillfully coordinating global efforts to reduce the spread of disease.`\
-https://nytimes.com/2025/07/31/us/politics/david-nabarro-dead.html
 
