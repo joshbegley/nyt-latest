@@ -1,3 +1,15 @@
+**What Are the Solutions?**\
+`Dr. Heather Nixon has answers.`\
+https://nytimes.com/2025/07/31/podcasts/serial-newsletter-retrievals-c-sections.html
+
+**Heavy Rain and Flash Flooding Threaten Mid-Atlantic and Northeast**\
+`A cold front and high rainfall were moving across the region, meeting warm, humid and unstable air that is uncommon this time of year.`\
+https://nytimes.com/2025/07/31/weather/rain-flash-flooding-warning-northeast-mid-atlantic.html
+
+**In trading Ryan Helsley and Steven Matz, Cardinals begin second sell-off in three years**\
+`A July free fall, spurred by the rotation's collapse forced president of baseball operations John Mozeliak to market his rental relievers.`\
+https://nytimes.com/athletic/6526760/2025/07/31/stl-cardinals-trade-deadline-selling-helsley-matz/
+
 **Trump Administration Live Updates: President Criticizes Key Trade Partners as Tariff Deadline Looms**\
 ``\
 https://nytimes.com/live/2025/07/31/us/trump-news
