@@ -1,3 +1,11 @@
+**Padres pay a steep prospect price in landing Mason Miller, JP Sears from A's**\
+`It's a really strong return for the Athletics, especially if you believe, as I do, that Miller's value could evaporate at any minute.`\
+https://nytimes.com/athletic/6527799/2025/07/31/padres-athletics-mason-miller-trade-leo-de-vries/
+
+**Mapa: un terremoto de magnitud 4,3 sacude el sur de California**\
+`Mira la localización del epicentro del sismo y el área de movimiento.`\
+https://nytimes.com/interactive/2025/07/31/espanol/sur-de-california-terremoto-la-muscoy.html
+
 **One-man, first-round PPR fantasy football 2025 mock draft: Who to prioritize?**\
 `The 2025 fantasy football season is odd, with no consensus top pick or first-round path. Gary Davenport mocks his first round to help. `\
 https://nytimes.com/athletic/6527551/2025/07/31/fantasy-football-2025-ppr-mock-draft-first-round/
