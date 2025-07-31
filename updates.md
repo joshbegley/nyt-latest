@@ -1,3 +1,7 @@
+**Trade grades: The all-in Mariners land the big bat they coveted in Eugenio Suarez**\
+`The Mariners are finally pushing in all their chips, and their recent additions have given their lineup prodigious power. `\
+https://nytimes.com/athletic/6526608/2025/07/31/eugenio-suarez-trade-grades-mariners-diamondbacks/
+
 **The New York Times in Print for Thursday, July 31, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/07/31/todays-new-york-times

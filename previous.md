@@ -1,3 +1,7 @@
+**Trade grades: The all-in Mariners land the big bat they coveted in Eugenio Suarez**\
+`The Mariners are finally pushing in all their chips, and their recent additions have given their lineup prodigious power. `\
+https://nytimes.com/athletic/6526608/2025/07/31/eugenio-suarez-trade-grades-mariners-diamondbacks/
+
 **The New York Times in Print for Thursday, July 31, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/07/31/todays-new-york-times
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/31/us/arkansas-murder-arrest.html
 **An audience with Billy Beane: Moneyball, sport's data revolution, and his role as a 'Trojan horse'**\
 `Beane and one of 'the really smart' people around him, Luke Bornn, discuss soccer recruitment, baseball, Sir Alex Ferguson and Mohamed Salah`\
 https://nytimes.com/athletic/6510562/2025/07/31/billy-beane-analytics-interview-soccer-baseball-salah-tactics/
-
-**Football Architects: The England DNA behind the pursuit of tournament-winning teams**\
-`In December 2014, The FA laid out its vision for future internationals to be exceptional across four “corners” - this is what happened next`\
-https://nytimes.com/athletic/6462239/2025/07/31/football-architects-the-england-dna-behind-the-push-for-tournament-winning-teams/
 
