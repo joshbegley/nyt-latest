@@ -1,3 +1,7 @@
+**Kavanaugh Defends Supreme Court’s Terse Emergency Orders**\
+`Speaking at a judicial conference, the justice said that saying too much risked premature judgments, adding that the court had been trying various approaches.`\
+https://nytimes.com/2025/07/31/us/politics/kavanaugh-supreme-court-emergency.html
+
 **Unnoticed Whistle-Blower Document Alarms Justice Department Veterans**\
 `A complaint concerning a top Justice Department official, Emil Bove III, went unnoticed for more than two months, raising worries that an internal watchdog has gone dormant.`\
 https://nytimes.com/2025/07/31/us/politics/emil-bove-whistle-blower.html
@@ -15,7 +19,7 @@ https://nytimes.com/2025/07/31/style/justin-trudeau-katy-perry-dating.html
 https://nytimes.com/athletic/6527966/2025/07/31/adam-silver-nba-euroleague-real-madrid/
 
 **This Start-Up’s $20 Billion Sale Died. It Came Fighting Back.**\
-`Figma, which makes a design platform, had been on the verge of a $20 billion sale before regulators quashed the deal. On Thursday, it went public, with the stock soaring 158 percent on its first trade.`\
+`Figma, which makes a design platform, was on the verge of a big payday before regulators quashed the sale. On Thursday, it went public, with its stock opening up 158 percent.`\
 https://nytimes.com/2025/07/31/technology/figma-ipo.html
 
 **Robert Wilson, Provocative Playwright and Director, Is Dead at 83**\
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/31/science/dna-genetics-engineering-microbes.html
 **Tottenham 1-0 Arsenal: Sarr's wondergoal, skills from Kudus and what it all means**\
 `It was only a friendly but Thomas Frank can take plenty of encouragement from a solid, resilient display`\
 https://nytimes.com/athletic/6527864/2025/07/31/tottenham-sarr-kudus-arsenal-analysis/
-
-**In Yosemite, Falling Tree Branches Kill a Young Hiker in ‘Freak Accident’**\
-`Angela Lin, 29, was a software engineer at Google who loved to spend time outdoors.`\
-https://nytimes.com/2025/07/31/us/yosemite-tuolumne-grove-hiker-killed.html
 
