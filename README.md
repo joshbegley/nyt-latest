@@ -34,7 +34,3 @@ https://nytimes.com/athletic/6527524/2025/07/31/arsenal-injuries-gabriel-calafio
 `President Trump upended trade negotiations with India by making the purchase of crude oil a sticking point.`\
 https://nytimes.com/2025/07/31/business/india-russia-oil-trump.html
 
-**On Canada’s Top Stage, Macbeth and Annie Are Talking to Americans**\
-`At this year’s Stratford Festival, kings, orphans and even a coffee shop have a message for their neighbors to the south.`\
-https://nytimes.com/2025/07/31/theater/canada-stratford-theater-festival.html
-
