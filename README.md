@@ -1,3 +1,19 @@
+**Scoop City: NFL's 2025 All-Hype Offense**\
+`Inside: Our first Offseason All-Hype Team (offense only) and how the NFL Top 100 gets made`\
+https://nytimes.com/athletic/6527785/2025/07/31/nfl-offseason-hype-standouts-scoop-city/
+
+**Map: 4.3-Magnitude Earthquake Strikes Southern California**\
+`View the location of the quake’s epicenter and shake area.`\
+https://nytimes.com/interactive/2025/07/31/world/southern-california-earthquake-LA-muscoy.html
+
+**7 New Books We Love This Week**\
+`Reading recommendations from critics and editors at The New York Times.`\
+https://nytimes.com/2025/07/31/books/review/new-book-recommendations.html
+
+**Peach Bingo!**\
+`Everyone’s a winner with no-cook cold tofu salad with peaches, peaches and cucumbers with gochujang vinaigrette and peach tea.`\
+https://nytimes.com/2025/07/31/dining/vegetarian-peach-recipes-for-summer.html
+
 **Feeding the Limitless Maine Lobster Roll Boom, Seafloor to Summer Table**\
 `At one of the most renowned lobster shacks — and across the country — the star dish just keeps getting more popular.`\
 https://nytimes.com/2025/07/31/dining/maine-lobster-roll-shacks.html
@@ -21,20 +37,4 @@ https://nytimes.com/2025/07/31/world/europe/lithuania-prime-minister-steps-down.
 **Massachusetts Governor Proposes $400 Million for Colleges, Citing Federal ‘Uncertainty’**\
 `The plan would help support research projects and jobs connected with colleges and universities in the state, which have faced funding cuts by the Trump administration.`\
 https://nytimes.com/2025/07/31/us/politics/massachusetts-healey-trump-funding.html
-
-**Arsenal fans delight in first foreign NLD: 'Hong Kong flooded red and white – words cannot describe that feeling'**\
-`The first north London derby staged in Hong Kong shows Asian fans can display the same fervour as those back home`\
-https://nytimes.com/athletic/6527466/2025/07/31/arsenal-fans-tottenham-hong-kong/
-
-**‘Chief of War’ Review: Battleground Hawaii**\
-`Jason Momoa stars in an Apple TV+ series that turns Hawaiian history into bloody spectacle.`\
-https://nytimes.com/2025/07/31/arts/television/chief-of-war-review.html
-
-**The U.S. imposed visa bans on Palestinian officials.**\
-`By Michael Crowley`\
-https://nytimes.com/live/2025/07/31/us/trump-news/palestinian-visa-bans
-
-**Major Study on Transgender Youth Health Care to Begin in U.K.**\
-`Researchers at King’s College London will track the experiences of up to 3,000 children and teenagers who are being treated by Britain’s health service.`\
-https://nytimes.com/2025/07/31/world/europe/transgender-children-health-study-uk-nhs.html
 
