@@ -1,4 +1,4 @@
-**Cubs bolster back of rotation with Michael Soroka, give Nats 2 solid prospects**\
+**Cubs bolster back of their rotation with Michael Soroka, give Nats 2 solid prospects**\
 `The Cubs needed rotation help, and while Soroka isn't a top-end starter, he's an upgrade for the backend of their rotation.`\
 https://nytimes.com/athletic/6526522/2025/07/30/michael-soroka-cubs-nationals-trade-ronny-cruz-christian-franklin/
 
