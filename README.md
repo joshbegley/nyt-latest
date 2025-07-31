@@ -1,3 +1,7 @@
+**David Nabarro, U.N. Health Expert During Ebola and Covid, Dies at 75**\
+`He took on some of the world’s most challenging health crises in troubled areas, skillfully coordinating global efforts to reduce the spread of disease.`\
+https://nytimes.com/2025/07/31/us/politics/david-nabarro-dead.html
+
 **Candace Parker criticizes WNBA players' efforts in All-Star Game**\
 `"Y'all cannot come out there with those shirts of 'Pay Us What You Owe Us,' and then do that in the All-Star Game," Parker said.`\
 https://nytimes.com/athletic/6527975/2025/07/31/candace-parker-wnba-all-star-game-shirts/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/31/us/politics/emil-bove-whistle-blower.html
 **Clock Ticks Toward Higher Tariffs With Little Clarity**\
 `The Trump administration is still debating the significantly higher tariff rates that American companies and foreign firms are expected to be subject to within a matter of hours.`\
 https://nytimes.com/2025/07/31/us/politics/deadline-trump-tariffs.html
-
-**The Bumpiness of the Celebrity-Politician Romance**\
-`Long before Katy Perry dined with Justin Trudeau, Linda Ronstadt, Barbra Streisand and Elizabeth Taylor had challenging relationships with men in public office.`\
-https://nytimes.com/2025/07/31/style/justin-trudeau-katy-perry-dating.html
 
