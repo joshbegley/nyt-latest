@@ -1,3 +1,15 @@
+**Final Salute to a Fallen Officer: Images of Loss and Remembrance**\
+`The streets of a Bronx neighborhood filled with mourners who had gathered for the funeral of Didarul Islam, one of the victims of this week’s mass shooting in Manhattan.`\
+https://nytimes.com/2025/07/31/nyregion/officer-funeral-new-york-shooting.html
+
+**Red Sox to deepen rotation by acquiring Dustin May from Dodgers: Sources**\
+`May is enjoying both the healthiest and least productive season of his major league career.`\
+https://nytimes.com/athletic/6523921/2025/07/31/mlb-red-sox-dustin-may-trade/
+
+**Yankees expend minimal cost to upgrade bullpen with David Bednar, Jake Bird**\
+`The Yankees added two right-handed reinforcements to the backend of their bullpen without dealing away any of their major prospects.`\
+https://nytimes.com/athletic/6528541/2025/07/31/yankees-bullpen-additions-david-bednar-jake-bird-rafael-flores/
+
 **Arab States Call for Hamas to Disarm Amid Push for a Palestinian State**\
 `“Hamas must end its rule in Gaza,” reads a declaration endorsed by the 22 member nations of the Arab League.`\
 https://nytimes.com/2025/07/31/world/middleeast/hamas-arab-states-palestinians.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6528076/2025/07/31/bills-training-camp-players-inju
 **Cubs to add Willi Castro to bench, taking advantage of Twins' sell-off: Sources**\
 `Castro, who gives Cubs versatility on their bench, is the fifth player traded by the Twins in the hours before the deadline.`\
 https://nytimes.com/athletic/6520202/2025/07/31/mlb-cubs-willi-castro-trade/
-
-**Here Is What to Know About Trump’s 50% Tariffs on Brazil**\
-`Latin America’s biggest economy can weather the shock of a high tariff rate. But American coffee lovers and Brazilian ranchers are likely to feel the pain.`\
-https://nytimes.com/2025/07/31/world/americas/trump-brazil-tariffs-lula.html
-
-**Broncos believe Dre Greenlaw "will be fine" after he becomes latest LB to exit practice**\
-`The veteran free-agent addition suffered a quad injury during the offseason and was on a snaps restriction to being camp.`\
-https://nytimes.com/athletic/6528314/2025/07/31/denver-broncos-training-camp-dre-greenlaw/
-
-**Rangers to add to league-best rotation with Merrill Kelly acquisition: Sources**\
-`For Rangers fans, Kelly is not an unknown name, as he faced them in the 2023 World Series. `\
-https://nytimes.com/athletic/6519478/2025/07/31/mlb-rangers-merrill-kelly-trade/
 

@@ -1,3 +1,11 @@
+**Arab States Call for Hamas to Disarm Amid Push for a Palestinian State**\
+`“Hamas must end its rule in Gaza,” reads a declaration endorsed by the 22 member nations of the Arab League.`\
+https://nytimes.com/2025/07/31/world/middleeast/hamas-arab-states-palestinians.html
+
+**Knicks, Mikal Bridges agree to 4-year, $150 million extension: Source**\
+`Bridges took less than the max to help New York attempt to stay under the second apron.`\
+https://nytimes.com/athletic/6498832/2025/07/31/mikal-bridges-contract-knicks-extension-signs/
+
 **Emergency Official Explains His Absence as Texas Floods Hit**\
 `The Kerr County official testified at a hearing held by state lawmakers in the city of Kerrville. Hundreds of residents attended, many of them hoping to testify.`\
 https://nytimes.com/video/us/100000010317633/texas-floods-hearing.html
