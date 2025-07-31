@@ -1,3 +1,7 @@
+**Phillies get an answer to closer woes in Jhoan Durán; Twins nab 2 upside prospects**\
+`Durán helps stop what has been a revolving door at closer for the Phillies, while the Twins get a potential All-Star in Eduardo Tait.`\
+https://nytimes.com/athletic/6526233/2025/07/30/phillies-twins-jhoan-duran-trade-analysis/
+
 **Ronald Acuña Jr. injury update a relief to Braves; Joey Wentz impresses again**\
 `The star right fielder has only a Grade 1 lower-right calf strain, not an Achilles injury.`\
 https://nytimes.com/athletic/6526118/2025/07/30/braves-ronald-acuna-jr-injury-update-joey-wentz/
@@ -10,7 +14,7 @@ https://nytimes.com/athletic/6526110/2025/07/30/steelers-training-camp-kaleb-joh
 `Come along for the ride as our three critics back-seat drive their way through America. (Rest stops provided.)`\
 https://nytimes.com/2025/07/30/books/best-road-trip-books.html
 
-**Trade grades: Phillies find what they need in Jhoan Durán, Twins 'win,' too**\
+**Trade grades: Phillies find what they need in Jhoan Duran, Twins 'win,' too**\
 `To quote one of our trade graders: This is what a deadline deal is supposed to look like.`\
 https://nytimes.com/athletic/6526120/2025/07/30/phillies-jhoan-duran-trade-grade/
 
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/30/world/middleeast/palestinian-state-recognition-ma
 **Judge Excoriates Trump Officials for Violations of Laws on Voice of America**\
 `The judge had ruled that the administration must restore news programming at Voice of America and has brought back only a fraction of the coverage it provided.`\
 https://nytimes.com/2025/07/30/us/politics/judge-excoriates-trump-officials-for-violations-of-laws-on-voice-of-america.html
-
-**Cubs’ clubhouse waiting to see what the front office has in store for trade deadline**\
-`Will Cubs president of baseball operations Jed Hoyer feel emboldened to maximize the club’s World Series odds this year?`\
-https://nytimes.com/athletic/6526054/2025/07/30/cubs-trade-deadline-milwaukee-brewers/
 

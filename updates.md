@@ -1,3 +1,11 @@
+**Phillies get an answer to closer woes in Jhoan Durán; Twins nab 2 upside prospects**\
+`Durán helps stop what has been a revolving door at closer for the Phillies, while the Twins get a potential All-Star in Eduardo Tait.`\
+https://nytimes.com/athletic/6526233/2025/07/30/phillies-twins-jhoan-duran-trade-analysis/
+
+**Trade grades: Phillies find what they need in Jhoan Duran, Twins 'win,' too**\
+`To quote one of our trade graders: This is what a deadline deal is supposed to look like.`\
+https://nytimes.com/athletic/6526120/2025/07/30/phillies-jhoan-duran-trade-grade/
+
 **Ronald Acuña Jr. injury update a relief to Braves; Joey Wentz impresses again**\
 `The star right fielder has only a Grade 1 lower-right calf strain, not an Achilles injury.`\
 https://nytimes.com/athletic/6526118/2025/07/30/braves-ronald-acuna-jr-injury-update-joey-wentz/
