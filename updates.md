@@ -1,3 +1,7 @@
+**Scientists Are Learning to Rewrite the Code of Life**\
+`In a giant feat of genetic engineering, scientists have created bacteria that make proteins in a radically different way than all natural species do.`\
+https://nytimes.com/2025/07/31/science/dna-genetics-engineering-microbes.html
+
 **Tottenham 1-0 Arsenal: Sarr's wondergoal, skills from Kudus and what it all means**\
 `It was only a friendly but Thomas Frank can take plenty of encouragement from a solid, resilient display`\
 https://nytimes.com/athletic/6527864/2025/07/31/tottenham-sarr-kudus-arsenal-analysis/

@@ -1,3 +1,7 @@
+**Scientists Are Learning to Rewrite the Code of Life**\
+`In a giant feat of genetic engineering, scientists have created bacteria that make proteins in a radically different way than all natural species do.`\
+https://nytimes.com/2025/07/31/science/dna-genetics-engineering-microbes.html
+
 **Tottenham 1-0 Arsenal: Sarr's wondergoal, skills from Kudus and what it all means**\
 `It was only a friendly but Thomas Frank can take plenty of encouragement from a solid, resilient display`\
 https://nytimes.com/athletic/6527864/2025/07/31/tottenham-sarr-kudus-arsenal-analysis/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/31/opinion/epa-climate.html
 **Padres pay a steep prospect price in landing Mason Miller, JP Sears from A's**\
 `It's a really strong return for the Athletics, especially if you believe, as I do, that Miller's value could evaporate at any minute.`\
 https://nytimes.com/athletic/6527799/2025/07/31/padres-athletics-mason-miller-trade-leo-de-vries/
-
-**Mapa: un terremoto de magnitud 4,3 sacude el sur de California**\
-`Mira la localización del epicentro del sismo y el área de movimiento.`\
-https://nytimes.com/interactive/2025/07/31/espanol/sur-de-california-terremoto-la-muscoy.html
 
