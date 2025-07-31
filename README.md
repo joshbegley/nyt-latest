@@ -1,3 +1,11 @@
+**Trump Demands That Drugmakers Lower Some of Their U.S. Prices by September**\
+`The administration has not put forward a clear legal authority to compel drugmakers to reduce their prices.`\
+https://nytimes.com/2025/07/31/health/drug-prices-trump.html
+
+**Padres double dip, adding Ryan O’Hearn, Ramón Laureano in trade with Orioles**\
+`Hours after making a blockbuster deal for pitching, the San Diego Padres made another big move Thursday, this time to boost their lineup. `\
+https://nytimes.com/athletic/6518379/2025/07/31/mlb-padres-orioles-ryan-ohearn-ramon-laureano-trade/
+
 **Observations from Commanders camp: The rookie everyone is watching**\
 `The seventh-round running back with three names has shined for the Commanders. But why does he go by Bill?`\
 https://nytimes.com/athletic/6527712/2025/07/31/commanders-observations-everyone-is-watching-rb-jacory-croskey-merritt/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6528315/2025/07/31/mlb-jesus-sanchez-trade-astros/
 **Why the cornerback battle may be spelling trouble for Eagles in training camp**\
 `Plus, how the Eagles could address injuries to their secondary.`\
 https://nytimes.com/athletic/6527742/2025/07/31/eagles-training-camp-cornerback-battle-quinyon-mitchell/
-
-**Carlos Correa to rejoin Astros in stunning trade with Twins: Sources**\
-`Correa left the Astros in free agency after the 2021 season.`\
-https://nytimes.com/athletic/6528266/2025/07/31/mlb-astros-carlos-correa-trade/
-
-**What I saw during Notre Dame's first preseason practice, minute by minute**\
-`Notre Dame QBs threw four picks on Day 1, but there are more than a half-dozen starting jobs open, beyond who replaces Riley Leonard.`\
-https://nytimes.com/athletic/6528019/2025/07/31/notre-dame-practice-kenny-minchey-cj-carr/
 
