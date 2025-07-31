@@ -1,3 +1,7 @@
+**Amazon Reports $18.2 Billion in Profit Amid Strong Retail Demand**\
+`Consumers spent more than expected on the e-commerce giant’s site, while margins tightened at the company’s all-important cloud computing division.`\
+https://nytimes.com/2025/07/31/business/amazon-earnings-second-quarter.html
+
 **Padres double dip, adding Ryan O’Hearn, Ramón Laureano in trade with Orioles: Sources**\
 `Hours after making a blockbuster deal for pitching, the San Diego Padres made another big move Thursday, this time to boost their lineup. `\
 https://nytimes.com/athletic/6518379/2025/07/31/mlb-padres-orioles-ryan-ohearn-ramon-laureano-trade/
