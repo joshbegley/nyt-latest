@@ -1,3 +1,11 @@
+**Mary K. Gaillard, Physicist Who Probed the Subatomic Universe, Dies at 86**\
+`Although she faced discrimination from her mostly male colleagues, she did groundbreaking work that showed experimentalist physicists where and how to look for new particles.`\
+https://nytimes.com/2025/07/31/science/mary-k-gaillard-dead.html
+
+**In Shift, Hochul Says Starvation of Children in Gaza Is ‘Unconscionable’**\
+`Gov. Kathy Hochul of New York joined other staunch supporters of Israel who have recently condemned its role in creating the humanitarian crisis in Gaza.`\
+https://nytimes.com/2025/07/31/nyregion/hochul-israel-gaza.html
+
 **Padres add catcher Freddy Fermin from Royals in exchange for pitchers: Sources**\
 `The addition bolsters a positional weakness that has plagued the Padres for much of the season.`\
 https://nytimes.com/athletic/6528022/2025/07/31/mlb-padres-freddy-fermin-trade/

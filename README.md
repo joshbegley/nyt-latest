@@ -1,3 +1,7 @@
+**Juventus general manager: Weah ‘can’t choose a team’ amid Marseille talks**\
+`Weah’s agent, Badou Sambague, had expressed his frustration that a move to Marseille has so far failed to materialize.`\
+https://nytimes.com/athletic/6528091/2025/07/31/timothy-weah-juventus-marseille-comolli/
+
 **Mary K. Gaillard, Physicist Who Probed the Subatomic Universe, Dies at 86**\
 `Although she faced discrimination from her mostly male colleagues, she did groundbreaking work that showed experimentalist physicists where and how to look for new particles.`\
 https://nytimes.com/2025/07/31/science/mary-k-gaillard-dead.html
@@ -14,7 +18,7 @@ https://nytimes.com/2025/07/31/us/politics/david-nabarro-dead.html
 `"Y'all cannot come out there with those shirts of 'Pay Us What You Owe Us,' and then do that in the All-Star Game," Parker said.`\
 https://nytimes.com/athletic/6527975/2025/07/31/candace-parker-wnba-all-star-game-shirts/
 
-**Padres add catcher Freddy Fermin from Royals in exchange for pitchers: Sources**\
+**Padres deal 2 arms to bolster weakness by adding catcher Freddy Fermin from Royals: Sources**\
 `The addition bolsters a positional weakness that has plagued the Padres for much of the season.`\
 https://nytimes.com/athletic/6528022/2025/07/31/mlb-padres-freddy-fermin-trade/
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6498441/2025/07/31/mlb-yankees-david-bednar-trade/
 **In Funeral Remarks, Adams Praises Police Unit Mamdani Vowed to Disband**\
 `Mayor Eric Adams thanked the Strategic Response Group for its actions during a shooting in Midtown Manhattan. Zohran Mamdani has criticized the unit for its policing of protests and aims to replace it.`\
 https://nytimes.com/2025/07/31/nyregion/adams-nypd-officer-islam-funeral.html
-
-**Kavanaugh Defends Supreme Court’s Terse Emergency Orders**\
-`Speaking at a judicial conference, the justice said that saying too much risked premature judgments, adding that the court had been trying various approaches.`\
-https://nytimes.com/2025/07/31/us/politics/kavanaugh-supreme-court-emergency.html
 
