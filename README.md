@@ -7,7 +7,7 @@ https://nytimes.com/athletic/6527966/2025/07/31/adam-silver-nba-euroleague-real-
 https://nytimes.com/2025/07/31/technology/figma-ipo.html
 
 **Robert Wilson, Provocative Playwright and Director, Is Dead at 83**\
-`He shattered theatrical norms with his own stunningly visualized works and his collaborations with a diverse range of artists, from Philip Glass (“Einstein on the Beach”) to Lady Gaga.`\
+`He upended theatrical norms with his own stunningly visualized works and his collaborations with a wide range of artists, from Philip Glass (“Einstein on the Beach”) to Lady Gaga.`\
 https://nytimes.com/2025/07/31/obituaries/robert-wilson-dead.html
 
 **One question for every team in the National League, 4 hours until the deadline**\

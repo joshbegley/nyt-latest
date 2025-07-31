@@ -1,3 +1,19 @@
+**Adam Silver meets with Real Madrid to discuss NBA’s Europe league venture**\
+`Membership from the soccer and basketball juggernaut would mark a significant step in launching the NBA’s overseas venture.`\
+https://nytimes.com/athletic/6527966/2025/07/31/adam-silver-nba-euroleague-real-madrid/
+
+**This Start-Up’s $20 Billion Sale Died. It Came Fighting Back.**\
+`Figma, which makes a design platform, had been on the verge of a $20 billion sale before regulators quashed the deal. On Thursday, it went public, with the stock soaring 158 percent on its first trade.`\
+https://nytimes.com/2025/07/31/technology/figma-ipo.html
+
+**Robert Wilson, Provocative Playwright and Director, Is Dead at 83**\
+`He shattered theatrical norms with his own stunningly visualized works and his collaborations with a diverse range of artists, from Philip Glass (“Einstein on the Beach”) to Lady Gaga.`\
+https://nytimes.com/2025/07/31/obituaries/robert-wilson-dead.html
+
+**One question for every team in the National League, 4 hours until the deadline**\
+`How much is Sandy Alcantara worth? Do the Dodgers have another surprise up their sleeve? Time is running out for big moves.`\
+https://nytimes.com/athletic/6527925/2025/07/31/mlb-trade-deadline-questions-nl/
+
 **Scientists Are Learning to Rewrite the Code of Life**\
 `In a giant feat of genetic engineering, scientists have created bacteria that make proteins in a radically different way than all natural species do.`\
 https://nytimes.com/2025/07/31/science/dna-genetics-engineering-microbes.html

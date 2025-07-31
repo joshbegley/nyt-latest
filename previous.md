@@ -1,3 +1,19 @@
+**Adam Silver meets with Real Madrid to discuss NBA’s Europe league venture**\
+`Membership from the soccer and basketball juggernaut would mark a significant step in launching the NBA’s overseas venture.`\
+https://nytimes.com/athletic/6527966/2025/07/31/adam-silver-nba-euroleague-real-madrid/
+
+**This Start-Up’s $20 Billion Sale Died. It Came Fighting Back.**\
+`Figma, which makes a design platform, had been on the verge of a $20 billion sale before regulators quashed the deal. On Thursday, it went public, with the stock soaring 158 percent on its first trade.`\
+https://nytimes.com/2025/07/31/technology/figma-ipo.html
+
+**Robert Wilson, Provocative Playwright and Director, Is Dead at 83**\
+`He shattered theatrical norms with his own stunningly visualized works and his collaborations with a diverse range of artists, from Philip Glass (“Einstein on the Beach”) to Lady Gaga.`\
+https://nytimes.com/2025/07/31/obituaries/robert-wilson-dead.html
+
+**One question for every team in the National League, 4 hours until the deadline**\
+`How much is Sandy Alcantara worth? Do the Dodgers have another surprise up their sleeve? Time is running out for big moves.`\
+https://nytimes.com/athletic/6527925/2025/07/31/mlb-trade-deadline-questions-nl/
+
 **Scientists Are Learning to Rewrite the Code of Life**\
 `In a giant feat of genetic engineering, scientists have created bacteria that make proteins in a radically different way than all natural species do.`\
 https://nytimes.com/2025/07/31/science/dna-genetics-engineering-microbes.html
@@ -21,20 +37,4 @@ https://nytimes.com/2025/07/31/well/legionnaires-disease-new-york-city-cases.htm
 **What I saw at Ohio State's first practice: A key injury question, early standouts and more**\
 `Plenty of positives for Ohio State on the first day of preseason camp were overshadowed by Eddrick Houston leaving with an injury.`\
 https://nytimes.com/athletic/6527811/2025/07/31/ohio-state-takeaways-from-day-1-of-camp-eddrick-houston-injury-early-standouts-and-more/
-
-**County Emergency Official Says He Was Ill and Sleeping as Texas Floods Hit**\
-`At a hearing in hard-hit Kerr County, an emergency management coordinator for the first time explained his whereabouts when the Guadalupe River burst its banks.`\
-https://nytimes.com/2025/07/31/us/politics/texas-floods-hearing.html
-
-**ISIS Militant Sentenced to Life for Role in Burning Pilot Alive**\
-`Osama Krayem, a Swedish citizen, was found guilty in Stockholm of a war crime. He had already been convicted of terrorist attacks in Paris and Brussels.`\
-https://nytimes.com/2025/07/31/world/europe/isis-pilot-burning-sentenced-stockholm.html
-
-**Setbacks in the Fight Against Climate Change**\
-`Readers object to Trump administration actions on climate change. Also: The Israel-Gaza war; a defense of home-schooling.`\
-https://nytimes.com/2025/07/31/opinion/epa-climate.html
-
-**Padres pay a steep prospect price in landing Mason Miller, JP Sears from A's**\
-`It's a really strong return for the Athletics, especially if you believe, as I do, that Miller's value could evaporate at any minute.`\
-https://nytimes.com/athletic/6527799/2025/07/31/padres-athletics-mason-miller-trade-leo-de-vries/
 
