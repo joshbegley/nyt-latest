@@ -1,3 +1,7 @@
+**Mary K. Gaillard, 86, Physicist Who Probed the Subatomic Universe, Dies**\
+`Although she faced discrimination from her mostly male colleagues, she did groundbreaking work that showed experimentalist physicists where and how to look for new particles.`\
+https://nytimes.com/2025/07/31/science/mary-k-gaillard-dead.html
+
 **Trade grades: Yankees to address top need by landing reliever David Bednar from Pirates**\
 `Bednar immediately becomes the Yankees’ top reliever in terms of average fastball velocity.`\
 https://nytimes.com/athletic/6498441/2025/07/31/mlb-yankees-david-bednar-trade-grades/
