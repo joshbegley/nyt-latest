@@ -1,3 +1,7 @@
+**The Bumpiness of the Celebrity-Politician Romance**\
+`Long before Katy Perry dined with Justin Trudeau, Linda Ronstadt, Barbra Streisand and Elizabeth Taylor had challenging relationships with men in public office.`\
+https://nytimes.com/2025/07/31/style/the-bumpiness-of-the-celebrity-politician-romance.html
+
 **Adam Silver meets with Real Madrid to discuss NBA’s Europe league venture**\
 `Membership from the soccer and basketball juggernaut would mark a significant step in launching the NBA’s overseas venture.`\
 https://nytimes.com/athletic/6527966/2025/07/31/adam-silver-nba-euroleague-real-madrid/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/31/theater/maybe-happy-ending-casting-controversy.ht
 **Legionnaires’ Disease Sickens 22 in New York. Here’s What to Know.**\
 `The cases are most likely linked to a cooling tower in central Harlem, health officials said.`\
 https://nytimes.com/2025/07/31/well/legionnaires-disease-new-york-city-cases.html
-
-**What I saw at Ohio State's first practice: A key injury question, early standouts and more**\
-`Plenty of positives for Ohio State on the first day of preseason camp were overshadowed by Eddrick Houston leaving with an injury.`\
-https://nytimes.com/athletic/6527811/2025/07/31/ohio-state-takeaways-from-day-1-of-camp-eddrick-houston-injury-early-standouts-and-more/
 
