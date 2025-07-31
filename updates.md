@@ -1,3 +1,19 @@
+**Barcelona have a new La Masia star shining on tour. Introducing... Pedro Fernandez**\
+`Barcelona's latest youth academy sensation scored a stunning goal on Sunday. Here's what to know about his story so far`\
+https://nytimes.com/athletic/6524918/2025/07/31/barcelona-dro-pedro-fernandez-la-masia/
+
+**Inside Leeds United's Igor Paixao pain and where they go next**\
+`Leeds cannot afford for next May’s reflections to be focused on the star player they needed but didn’t get this summer.`\
+https://nytimes.com/athletic/6525340/2025/07/31/leeds-igor-paixao-transfer-what-next/
+
+**Arsenal fans across continents: 3am kick-offs, church services, and Bergkamp DVDs**\
+`What is it like to be an international fan? The Athletic has spoken to five people, across five continents, to find out`\
+https://nytimes.com/athletic/6512697/2025/07/31/arsenal-fans-across-continents-3am-kick-offs-church-services-and-bergkamp-dvds/
+
+**Man Arrested in Killing of Arkansas Couple**\
+`The man, James Andrew McGann, was charged with two counts of capital murder. The couple was killed while hiking with their young daughters on Saturday.`\
+https://nytimes.com/2025/07/31/us/arkansas-murder-arrest.html
+
 **Thailand and Cambodia Reach Trump Trade Deals, U.S. Official Says**\
 `Senior officials from both countries say they were still waiting to hear final details on the deals after comments by the U.S. commerce secretary, Howard Lutnick.`\
 https://nytimes.com/2025/07/31/business/thailand-cambodia-trump-tariffs.html
