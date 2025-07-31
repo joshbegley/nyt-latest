@@ -1,3 +1,11 @@
+**Three Blue Jays takeaways at the MLB trade deadline: Arms for a playoff run**\
+`Former Cy Young Award winner Shane Bieber raises the rotation's ceiling`\
+https://nytimes.com/athletic/6526771/2025/07/31/blue-jays-takeaways-mlb-trade-deadline/
+
+**Rangers add more rotation help, acquire Phil Maton from Cardinals**\
+`After trading for the D-Backs' Merrill Kelly, Texas added another starter from a National League seller.`\
+https://nytimes.com/athletic/6527686/2025/07/31/mlb-rangers-phil-maton-trade/
+
 **Mets trade deadline takeaways: Strengthening the bullpen at a reasonable cost**\
 `The Mets reeled in Ryan Helsley, Tyler Rogers and Gregory Soto — arguably the three best rental relievers dealt at the deadline.`\
 https://nytimes.com/athletic/6528486/2025/07/31/mets-trade-deadline-takeaways/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/07/31/nyregion/nyc-staged-car-accidents-arrest-tiktok.h
 **Phillies trade deadline takeaways: Closing time, outfield upgrade, prospects pay off**\
 `Here's a further look at the Phillies' deadline dealings and what they could mean moving forward.`\
 https://nytimes.com/athletic/6527778/2025/07/31/mlb-phillies-trade-deadline-takeaways/
-
-**Yankees add Giants closer Camilo Doval to cap reliever trading spree: Sources**\
-`Doval was sent down to Triple A last season amidst struggles but had rebounded this year to regain the Giants' closer role.`\
-https://nytimes.com/athletic/6528677/2025/07/31/mlb-camilo-doval-yankees-trade/
-
-**Final Salute to a Fallen Officer: Images of Loss and Remembrance**\
-`The streets of a Bronx neighborhood filled with mourners who had gathered for the funeral of Didarul Islam, one of the victims of this week’s mass shooting in Manhattan.`\
-https://nytimes.com/2025/07/31/nyregion/officer-funeral-new-york-shooting.html
 
