@@ -1,40 +1,40 @@
-**Cubs bolster back of their rotation with Michael Soroka, give Nats 2 solid prospects**\
-`The Cubs needed rotation help, and while Soroka isn't a top-end starter, he's an upgrade for the backend of their rotation.`\
-https://nytimes.com/athletic/6526522/2025/07/30/michael-soroka-cubs-nationals-trade-ronny-cruz-christian-franklin/
+**More Than 1,000 Troops Are Withdrawn From L.A.**\
+`The move continues a scaling back of President Trump’s military deployment in Southern California that began on June 7.`\
+https://nytimes.com/2025/07/31/us/troop-withdrawal-los-angeles.html
 
-**Astros to shore up infield with addition of utilityman Ramón Urías: Source**\
-`Urías is making just $3.15 million this season and has one more year of arbitration eligibility.`\
-https://nytimes.com/athletic/6526548/2025/07/30/houston-astros-ramon-urias-trade/
+**Colwill interview: 'I grew up underprivileged. I want to help as many kids as possible'**\
+`Levi Colwill spoke to The Athletic about his involvement at Sholing FC and his hopes for Chelsea this season`\
+https://nytimes.com/athletic/6522164/2025/07/31/levi-colwill-interview-chelsea-club-world-cup/
 
-**Reds get a defensive upgrade in Ke'Bryan Hayes, but can they get more out of the bat?**\
-`The Pirates receive prospect Sammy Stafura as the main return, a true shortstop with some juice in the bat.`\
-https://nytimes.com/athletic/6526493/2025/07/30/kebryan-hayes-sammy-stafura-pirates-reds-trade-analysis/
+**Sneaking Into the Spy Museum’s New Vault**\
+`For years, the more than 10,000 items in the International Spy Museum’s collection were stored at a location outside Washington. That changed this summer.`\
+https://nytimes.com/2025/07/31/arts/international-spy-museum-vault-washington.html
 
-**Messi assists twice, Miami wins dramatic Leagues Cup opener at the death**\
-`Miami marked Rodrigo De Paul's debut with a last-gasp win over Liga MX's Atlas – with an assist to VAR`\
-https://nytimes.com/athletic/6526488/2025/07/30/inter-miami-atlas-leagues-cup-messi-weigandt-video-highlights/
+**FIFPro playing sports politics, not interested in solving problems – FIFA chief Garcia**\
+`García criticized FIFPro president Sergio Marchi for making personal attacks against FIFA president Gianni Infantino.`\
+https://nytimes.com/athletic/6525749/2025/07/31/fifpro-fifa-infantino-garcia-marchi/
 
-**Key Takeaways From the D.C. Plane Crash Hearing**\
-`After hours of testimony and thousands of pages of new documents, here’s what emerged in the first day of a marathon National Transportation Safety Board hearing.`\
-https://nytimes.com/2025/07/30/us/politics/takeaways-dc-plane-crash-investigation-ntsb.html
+**Quote of the Day: Earthquake Rattles Russia’s East but Causes Little Damage**\
+`Quotation of the Day for Thursday, July 31, 2025.`\
+https://nytimes.com/2025/07/31/pageoneplus/quote-of-the-day-earthquake-rattles-russias-east-but-causes-little-damage.html
 
-**Why the Phillies took their biggest trade deadline swing under Dave Dombrowski**\
-`This deadline called for a bigger swing, and Jhoan Duran was the target. Now, he's the closer on a team with championship expectations.`\
-https://nytimes.com/athletic/6526456/2025/07/30/phillies-jhoan-duran-dombrowski-trade-deadline/
+**Second Time’s a Charm for Zena Cardman as She Heads to the Space Station**\
+`Cardman, who leads a crew of astronauts to the station on Thursday, was bumped from a similar mission last year.`\
+https://nytimes.com/2025/07/31/science/nasa-astronauts-spacex.html
 
-**In acquiring Zack Littell, Reds to bolster bullpen from within: Sources**\
-`A journeyman reliever through his mid-20s, Littell became a reliable starter with the Rays beginning in 2023.`\
-https://nytimes.com/athletic/6526484/2025/07/30/reds-trade-zack-littell-rays/
+**Connections: Sports Edition Coach: Hints for July 31, 2025**\
+`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
+https://nytimes.com/athletic/6524710/2025/07/31/connections-sports-edition-hints-for-july-31-2025/
 
-**The Mets' trade deadline moves show the value of prospect development**\
-`This is the type of complete organization the Mets have longed to be since Steve Cohen bought them in the fall of 2020.`\
-https://nytimes.com/athletic/6526408/2025/07/30/mets-trade-deadline-moves-development-value/
+**China’s Small Workshops Are Hurting. Trump’s Tariffs Are Only One Reason.**\
+`The U.S.-Chinese cease-fire left exporters with crippling tariffs, worsening a slowdown for light-industry factories caused by China’s shift to advanced manufacturing.`\
+https://nytimes.com/2025/07/31/business/guangzhou-china-factories-tariffs.html
 
-**Eugenie Bouchard's final match: 'A full circle moment' at Canadian Open**\
-`Bouchard eliminated by Belinda Bencic in second round in Montreal, the city where her tennis dreams began.`\
-https://nytimes.com/athletic/6526421/2025/07/30/eugenie-bouchard-canadian-open-loss-retires/
+**Countries Promise Trump to Buy U.S. Gas, and Leave the Details for Later**\
+`U.S. trading partners are committing to buy more gas than they need or than the U.S. can produce, at least in the short term.`\
+https://nytimes.com/2025/07/31/business/economy/trump-trade-deals-lng.html
 
-**Raiders sign LT Kolton Miller to reported three-year, $66 million extension**\
-`The left tackle, 29, signed a new three-year deal worth a reported $66 million, $42.5 million of which is guaranteed.`\
-https://nytimes.com/athletic/6526423/2025/07/30/kolton-miller-raiders-contract-extension/
+**Red Sox acquire Steven Matz as Cardinals' deadline sell-off continues: Source**\
+`More than half of Matz's relief appearances this year spanned multiple innings.`\
+https://nytimes.com/athletic/6524189/2025/07/30/cardinals-steven-matz-mlb-trade/
 
