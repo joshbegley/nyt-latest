@@ -1,3 +1,7 @@
+**Key Inflation Measure Rose in June, Adding to Pressure on Fed**\
+`The price index was the latest indication that President Trump’s tariffs are beginning to show up in consumer prices.`\
+https://nytimes.com/2025/07/31/business/pce-inflation-fed.html
+
 **In landing Andrew Kittredge, Cubs set to reinforce bullpen: Source**\
 `After picking up Michael Soroka from the Washigton Nationals to lengthen the back end of their rotation, the Chicago Cubs were set up to address the bullpen Thursday, trading for Andrew Kittredge of the Baltimore Orioles.`\
 https://nytimes.com/athletic/6526668/2025/07/31/mlb-cubs-andrew-kittredge-trade/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6516136/2025/07/31/penguins-evgeni-malkin-legacy-nh
 **Forest confirm signing of winger Ndoye in club-record deal**\
 `The 24-year-old scored nine goals last season including the winning goal in the Coppa Italia final against Milan.`\
 https://nytimes.com/athletic/6520358/2025/07/31/nottingham-forest-confirm-signing-of-bologna-winger-dan-ndoye-in-club-record-deal/
-
-**Flyers fan survey results: Solid support for Briere, Tocchet; Michkov will be a star**\
-`Most fans seem pleased with the Flyers' offseason work.`\
-https://nytimes.com/athletic/6525503/2025/07/31/flyers-survey-briere-tocchet/
 
