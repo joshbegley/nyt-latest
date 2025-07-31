@@ -1,3 +1,7 @@
+**Thailand and Cambodia Reach Trump Trade Deals, U.S. Official Says**\
+`Senior officials from both countries say they were still waiting to hear final details on the deals after comments by the U.S. commerce secretary, Howard Lutnick.`\
+https://nytimes.com/2025/07/31/business/thailand-cambodia-trump-tariffs.html
+
 **Trump Threatens Canada Ahead of Trade Deadline for Backing Palestinian State**\
 `Canada faces a 35 percent tariff on its exports to the United States if it does not reach a trade deal with the Trump administration by Friday.`\
 https://nytimes.com/2025/07/31/us/politics/trump-canada-trade-palestine.html

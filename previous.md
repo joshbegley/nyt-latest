@@ -1,3 +1,7 @@
+**Thailand and Cambodia Reach Trump Trade Deals, U.S. Official Says**\
+`Senior officials from both countries say they were still waiting to hear final details on the deals after comments by the U.S. commerce secretary, Howard Lutnick.`\
+https://nytimes.com/2025/07/31/business/thailand-cambodia-trump-tariffs.html
+
 **Trump Threatens Canada Ahead of Trade Deadline for Backing Palestinian State**\
 `Canada faces a 35 percent tariff on its exports to the United States if it does not reach a trade deal with the Trump administration by Friday.`\
 https://nytimes.com/2025/07/31/us/politics/trump-canada-trade-palestine.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/31/briefing/brazil-trump-india-trade-us-canada-gaza-
 **Biofuel Plant in Nebraska Explodes**\
 `Recovery efforts were underway after a deadly explosion at a biofuel plant in Fremont, Neb.`\
 https://nytimes.com/video/us/100000010315649/nebraska-explosion-biofuel-plant.html
-
-**Barcelona have a new La Masia star shining on tour. Introducing... Pedro Fernandez**\
-`Barcelona's latest youth academy sensation scored a stunning goal on Sunday. Here's what to know about his story so far`\
-https://nytimes.com/athletic/6524918/2025/07/31/barcelona-dro-pedro-fernandez-la-masia/
 
