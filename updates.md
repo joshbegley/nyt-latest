@@ -1,3 +1,5 @@
+
+
 **The Pulse: Our NFL offseason champions**\
 `Welcome to The Pulse, The Athletic's daily newsletter. `\
 https://nytimes.com/athletic/6526678/2025/07/31/nfl-offseason-highlights-preseason-the-pulse/
