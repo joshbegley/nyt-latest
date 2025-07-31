@@ -1,3 +1,11 @@
+**Reds get a defensive upgrade in Ke'Bryan Hayes, but can they get more out of the bat?**\
+`The Pirates receive prospect Sammy Stafura as the main return, a true shortstop with some juice in the bat.`\
+https://nytimes.com/athletic/6526493/2025/07/30/kebryan-hayes-sammy-stafura-pirates-reds-trade-analysis/
+
+**Messi assists twice, Miami wins dramatic Leagues Cup opener at the death**\
+`Miami marked Rodrigo De Paul's debut with a last-gasp win over Liga MX's Atlas – with an assist to VAR`\
+https://nytimes.com/athletic/6526488/2025/07/30/inter-miami-atlas-leagues-cup-messi-weigandt-video-highlights/
+
 **Key Takeaways from the D.C. Plane Crash Hearing**\
 `After hours of testimony and thousands of pages of new documents, here’s what emerged in the first day of a marathon National Transportation Safety Board hearing.`\
 https://nytimes.com/2025/07/30/us/politics/takeaways-dc-plane-crash-investigation-ntsb.html
