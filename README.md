@@ -1,3 +1,7 @@
+**County Emergency Official Says He Was Ill and Sleeping as Texas Floods Hit**\
+`At a hearing in hard-hit Kerr County, an emergency management coordinator for the first time explained his whereabouts when the Guadalupe River burst its banks.`\
+https://nytimes.com/2025/07/31/us/politics/texas-floods-hearing.html
+
 **ISIS Militant Sentenced to Life for Role in Burning Pilot Alive**\
 `Osama Krayem, a Swedish citizen, was found guilty in Stockholm of a war crime. He had already been convicted of terrorist attacks in Paris and Brussels.`\
 https://nytimes.com/2025/07/31/world/europe/isis-pilot-burning-sentenced-stockholm.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/31/nyregion/park-avenue-shooting-sebije-nelovic.html
 **Phillies acquire defensive wizard Harrison Bader from Twins**\
 `The 2021 Gold Glove winner has produced five outs above average this season.`\
 https://nytimes.com/athletic/6524953/2025/07/31/mlb-phillies-harrison-bader-trade/
-
-**One big question for each American League team, 5 hours before the trade deadlineThe**\
-`What would it take to move Steven Kwan? Could the Astros bring back Carlos Correa? Time is ticking on the deadline.`\
-https://nytimes.com/athletic/6527796/2025/07/31/mlb-trade-deadline-questions-2/
 
