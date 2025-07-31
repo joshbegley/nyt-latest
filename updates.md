@@ -1,3 +1,11 @@
+**The Pulse: Our NFL offseason champions**\
+`Welcome to The Pulse, The Athletic's daily newsletter. `\
+https://nytimes.com/athletic/6526678/2025/07/31/nfl-offseason-highlights-preseason-the-pulse/
+
+**Summer McIntosh wins third gold of swimming worlds; Léon Marchand wins 200 IM**\
+`The Canadian star challenged the all-time mark in the women's 200-meter butterfly and continued her perfect string of races in Singapore.`\
+https://nytimes.com/athletic/6526914/2025/07/31/summer-mcintosh-leon-marchand-200-butterfly-medley-world-championships/
+
 **Anger Over Starvation in Gaza Leaves Israel at Risk of Isolation**\
 `Global outrage at the Netanyahu government’s actions has grown since the war began, and the suffering of children in the enclave has accelerated the disdain.`\
 https://nytimes.com/2025/07/31/world/middleeast/gaza-starvation-aid-israel-netanyahu.html
