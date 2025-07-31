@@ -1,3 +1,11 @@
+**Astros add balance to lineup by acquiring Jesús Sánchez from Marlins: Source**\
+`The 27-year-old has hit double-digit home runs in each of the past four seasons and gives Houston a much-needed left-handed hitter.`\
+https://nytimes.com/athletic/6528315/2025/07/31/mlb-jesus-sanchez-trade-astros/
+
+**Why the cornerback battle may be spelling trouble for Eagles in training camp**\
+`Plus, how the Eagles could address injuries to their secondary.`\
+https://nytimes.com/athletic/6527742/2025/07/31/eagles-training-camp-cornerback-battle-quinyon-mitchell/
+
 **Carlos Correa to rejoin Astros in stunning trade with Twins: Sources**\
 `Correa left the Astros in free agency after the 2021 season.`\
 https://nytimes.com/athletic/6528266/2025/07/31/mlb-astros-carlos-correa-trade/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/07/31/dining/celebrity-sandwiches-nyc.html
 **Fossil Fuel Companies’ Profitable Bet on Trump**\
 `Three big numbers that show how President Trump has directed tens of billions of dollars in incentives to fossil fuel companies.`\
 https://nytimes.com/2025/07/31/climate/trump-oil-and-gas-companies.html
-
-**Yankees keep stockpiling relievers by adding Jake Bird from Rockies: Source**\
-`Colorado gets two minor leaguers: second baseman Roc Riggio and left-hander Ben Shields.`\
-https://nytimes.com/athletic/6528208/2025/07/31/mlb-yankees-jake-bird-trade/
-
-**Canadian Wildfire Smoke Prompts Air Quality Alerts Across the Great Lakes Region**\
-`The smoke is expected to remain over the northern and central Plains of the United States for the next couple of days, according to meteorologists.`\
-https://nytimes.com/2025/07/31/weather/canada-wildfire-air-quality-smoke-midwest.html
 

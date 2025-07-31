@@ -1,3 +1,11 @@
+**Astros add balance to lineup by acquiring Jesús Sánchez from Marlins: Source**\
+`The 27-year-old has hit double-digit home runs in each of the past four seasons and gives Houston a much-needed left-handed hitter.`\
+https://nytimes.com/athletic/6528315/2025/07/31/mlb-jesus-sanchez-trade-astros/
+
+**Why the cornerback battle may be spelling trouble for Eagles in training camp**\
+`Plus, how the Eagles could address injuries to their secondary.`\
+https://nytimes.com/athletic/6527742/2025/07/31/eagles-training-camp-cornerback-battle-quinyon-mitchell/
+
 **Carlos Correa to rejoin Astros in stunning trade with Twins: Sources**\
 `Correa left the Astros in free agency after the 2021 season.`\
 https://nytimes.com/athletic/6528266/2025/07/31/mlb-astros-carlos-correa-trade/
