@@ -1,8 +1,16 @@
-**Cubs acquiring RHP Michael Soroka from Nationals: Sources**\
+**Judge Bars Trump Administration From Punishing 2 Law Professors for I.C.C. Work**\
+`A federal judge in New York permanently blocked the government from pursuing penalties against the professors over their assistance to the International Criminal Court.`\
+https://nytimes.com/2025/07/30/us/politics/trump-icc-lawyers.html
+
+**Free-falling Giants react to the Tyler Rogers trade: "It kind of shows where we're headed"**\
+`The manner of Tuesday night's loss represented a breaking point for Buster Posey and the front office heading into Wednesday.`\
+https://nytimes.com/athletic/6526344/2025/07/30/free-falling-giants-react-tyler-rogers-trade/
+
+**In first move to bolster rotation, Cubs to add Michael Soroka from Nationals: Sources**\
 `Soroka was once considered one of the best young pitchers in baseball, finishing sixth in NL Cy Young Award balloting in 2019.`\
 https://nytimes.com/athletic/6526407/2025/07/30/cubs-michael-soroka-nationals-trade/
 
-**The Reds are better with Ke’Bryan Hayes, but how much better?**\
+**Reds are better with Ke'Bryan Hayes, but how much better?**\
 `The 28-year-old Ke’Bryan Hayes, son of former big-leaguer Charlie Hayes, won a Gold Glove in 2023.`\
 https://nytimes.com/athletic/6526338/2025/07/30/cincinnati-reds-kebryan-hayes-trade-analysis/
 
@@ -29,12 +37,4 @@ https://nytimes.com/live/2025/07/30/us/trump-news/a-challenge-to-the-suspension-
 **Trump Announces Health Care Records System for Consumers**\
 `The administration is working with tech companies to make sharing information with various providers easier. Experts raised concerns about privacy and security.`\
 https://nytimes.com/2025/07/30/us/politics/trump-health-records-system.html
-
-**Padres, still pursuing Jarren Duran and Steven Kwan, also pushing for Mason Miller: Sources**\
-`Miller, who started six games as a rookie in 2023, appeals to San Diego as a pitcher who could be stretched out next season.`\
-https://nytimes.com/athletic/6526296/2025/07/30/san-diego-padres-mason-miller-pursuit/
-
-**Senate Approves Trump’s Pick for Top Counterterrorism Post**\
-`Joe Kent, a former Army Green Beret, had attracted scrutiny over his associations with extremist groups and his promotion of conspiracy theories.`\
-https://nytimes.com/2025/07/30/us/politics/joe-kent-counterterrorism-center.html
 
