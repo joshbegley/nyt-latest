@@ -1,3 +1,11 @@
+**How ‘Sinners’ Stunned Hollywood**\
+`Ryan Coogler’s film stands out for so many reasons — including the unprecedented deal he negotiated. Wesley Morris explains why on “Cannonball.”`\
+https://nytimes.com/video/podcasts/100000010314521/how-sinners-stunned-hollywood.html
+
+**The New York Times International Edition in Print for Friday, Aug. 1, 2025**\
+``\
+https://nytimes.com/issue/todaysinyt/2025/07/31/todays-new-york-times-international-edition
+
 **Royal Porthcawl, the 'painter's paradise' which caught out Tiger Woods**\
 `The rugged beauty of Royal Porthcawl is home to the Women's Open this week - could a men's Open follow?`\
 https://nytimes.com/athletic/6524964/2025/07/31/open-golf-tiger-woods-royal-porthcawl/
