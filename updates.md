@@ -1,3 +1,19 @@
+**Inside the mosque, a hushed procession of women pays homage.**\
+`By Fahima Haque`\
+https://nytimes.com/live/2025/07/31/nyregion/nyc-shooting-didarul-islam-funeral/inside-the-mosque-a-hushed-procession-of-women-pays-homage
+
+**Trump Wants a New Border Wall. It Would Block a Key Wildlife Corridor.**\
+`The barrier, in a remote part of Arizona, would threaten one of the most important remaining animal migration routes on the state’s southern border, according to a new report.`\
+https://nytimes.com/2025/07/31/climate/arizona-border-wall-wildlife-migration-jaguars.html
+
+**Marseille complete signing of Aubameyang**\
+`The 36-year-old former Arsenal forward terminated his Al Qadsiah contract earlier this month.`\
+https://nytimes.com/athletic/6500165/2025/07/31/marseille-pierre-emerick-aubameyang-transfer/
+
+**Padres add Mason Miller in blockbuster deal, ship top prospect Leo De Vries to A's: Sources**\
+`JP Sears is also headed to San Diego while De Vries, fellow top prospect Braden Nett and two others go to the A's.`\
+https://nytimes.com/athletic/6526693/2025/07/31/mlb-padres-mason-miller-leodalis-devries-trade/
+
 **Marseille complete signing of Aubameyang**\
 `The 36-year-old former Arsenal forward terminated his Al Qadsiah contract earlier this month`\
 https://nytimes.com/athletic/6500165/2025/07/31/marseille-pierre-emerick-aubameyang/
