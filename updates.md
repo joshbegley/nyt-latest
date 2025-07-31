@@ -1,3 +1,11 @@
+**Trump Demands That Drugmakers Lower Some of Their U.S. Prices by September**\
+`The administration has not put forward a clear legal authority to compel drugmakers to reduce their prices.`\
+https://nytimes.com/2025/07/31/health/drug-prices-trump.html
+
+**Padres double dip, adding Ryan O’Hearn, Ramón Laureano in trade with Orioles**\
+`Hours after making a blockbuster deal for pitching, the San Diego Padres made another big move Thursday, this time to boost their lineup. `\
+https://nytimes.com/athletic/6518379/2025/07/31/mlb-padres-orioles-ryan-ohearn-ramon-laureano-trade/
+
 **Observations from Commanders camp: The rookie everyone is watching**\
 `The seventh-round running back with three names has shined for the Commanders. But why does he go by Bill?`\
 https://nytimes.com/athletic/6527712/2025/07/31/commanders-observations-everyone-is-watching-rb-jacory-croskey-merritt/
