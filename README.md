@@ -1,3 +1,11 @@
+**The U.S. imposed visa bans on Palestinian officials.**\
+`By Michael Crowley`\
+https://nytimes.com/live/2025/07/31/us/trump-news/palestinian-visa-bans
+
+**Major Study on Transgender Youth Health Care to Begin in U.K.**\
+`Researchers at King’s College London will track the experiences of up to 3,000 children and teenagers who are being treated by Britain’s health service.`\
+https://nytimes.com/2025/07/31/world/europe/transgender-children-health-study-uk-nhs.html
+
 **How Shane Bieber reshapes the Blue Jays’ starting rotation**\
 `The former Cy Young winner comes with obvious risk, but it’s a gamble the Jays were willing to make.`\
 https://nytimes.com/athletic/6527525/2025/07/31/shane-bieber-blue-jays-starting-rotation/
@@ -8,7 +16,7 @@ https://nytimes.com/athletic/6527513/2025/07/31/mason-miller-trade-grades-padres
 
 **Trump Announces 90-Day Extension for Mexico in Trade Talks**\
 `The extension gives Mexico more time to reach a trade deal with the United States and avert, for now, heavier tariffs President Trump has threatened to impose on Friday.`\
-https://nytimes.com/2025/07/31/us/politics/trump-announces-90-day-extension-for-mexico-in-trade-talks.html
+https://nytimes.com/2025/07/31/us/politics/trump-tariffs-mexico-extension.html
 
 **3 Book Critics Recommend Road Trip Novels**\
 `Dwight Garner, Alexandra Jacobs and Jennifer Szalai, book critics at The New York Times, recommend three road trip books.`\
@@ -25,12 +33,4 @@ https://nytimes.com/2025/07/31/us/politics/firings-federal-workers-trump-adminis
 **Tracking Tropical Storm Gil**\
 `See the likely path and wind arrival times for Gil`\
 https://nytimes.com/interactive/2025/07/31/weather/gil-map-path-tracker.html
-
-**Inside the mosque, a hushed procession of women pays homage.**\
-`By Fahima Haque`\
-https://nytimes.com/live/2025/07/31/nyregion/nyc-shooting-didarul-islam-funeral/inside-the-mosque-a-hushed-procession-of-women-pays-homage
-
-**Trump Wants a New Border Wall. It Would Block a Key Wildlife Corridor.**\
-`The barrier, in a remote part of Arizona, would threaten one of the most important remaining animal migration routes on the state’s southern border, according to a new report.`\
-https://nytimes.com/2025/07/31/climate/arizona-border-wall-wildlife-migration-jaguars.html
 

@@ -1,3 +1,11 @@
+**How Shane Bieber reshapes the Blue Jays’ starting rotation**\
+`The former Cy Young winner comes with obvious risk, but it’s a gamble the Jays were willing to make.`\
+https://nytimes.com/athletic/6527525/2025/07/31/shane-bieber-blue-jays-starting-rotation/
+
+**Trade Grades: With Mason Miller deal, Padres GM A.J. Preller did what he does best**\
+`The Padres were bold. The Athletics were smart. Sometimes, a trade really does look great for both sides.  `\
+https://nytimes.com/athletic/6527513/2025/07/31/mason-miller-trade-grades-padres-athletics-preller/
+
 **Trump Announces 90-Day Extension for Mexico in Trade Talks**\
 `The extension gives Mexico more time to reach a trade deal with the United States and avert, for now, heavier tariffs President Trump has threatened to impose on Friday.`\
 https://nytimes.com/2025/07/31/us/politics/trump-announces-90-day-extension-for-mexico-in-trade-talks.html
