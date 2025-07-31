@@ -1,3 +1,7 @@
+**Inside the mosque, a hushed procession of women pays homage.**\
+`By Fahima Haque`\
+https://nytimes.com/live/2025/07/31/nyregion/nyc-shooting-didarul-islam-funeral/inside-the-mosque-a-hushed-procession-of-women-pays-homage
+
 **Trump Wants a New Border Wall. It Would Block a Key Wildlife Corridor.**\
 `The barrier, in a remote part of Arizona, would threaten one of the most important remaining animal migration routes on the state’s southern border, according to a new report.`\
 https://nytimes.com/2025/07/31/climate/arizona-border-wall-wildlife-migration-jaguars.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/31/nyregion/man-dies-whitney-museum-nyc.html
 **What’s a Potato? A Nine-Million-Year-Old Tomato.**\
 `An ancient hybrid of tomatoes and potato-like plants may have given rise to the modern spud, a new study suggests.`\
 https://nytimes.com/2025/07/31/science/evolution-agriculture-tomatoes-potatoes.html
-
-**The California Governor’s Race Was in Limbo. Now It’s Wide Open.**\
-`Until she decided not to run, former Vice President Kamala Harris had loomed over the race as a likely favorite. Now, a host of hopefuls are jockeying for advantage.`\
-https://nytimes.com/2025/07/31/us/harris-california-governors-race.html
 
