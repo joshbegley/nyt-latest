@@ -1,3 +1,7 @@
+**Observations from Commanders camp: The rookie everyone is watching**\
+`The seventh-round running back with three names has shined for the Commanders. But why does he go by Bill?`\
+https://nytimes.com/athletic/6527712/2025/07/31/commanders-jacory-croskey-merritt-observations/
+
 **Apple Surprises Investors Worried That It Had Lost Its Touch**\
 `Despite recent criticism about its product outlook, the company reported strong sales of iPhones, Macs, iPads and services.`\
 https://nytimes.com/2025/07/31/business/apple-earning-iphone-sales.html

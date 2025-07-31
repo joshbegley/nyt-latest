@@ -28,7 +28,7 @@ https://nytimes.com/athletic/6518379/2025/07/31/mlb-padres-orioles-ryan-ohearn-r
 
 **Observations from Commanders camp: The rookie everyone is watching**\
 `The seventh-round running back with three names has shined for the Commanders. But why does he go by Bill?`\
-https://nytimes.com/athletic/6527712/2025/07/31/commanders-observations-everyone-is-watching-rb-jacory-croskey-merritt/
+https://nytimes.com/athletic/6527712/2025/07/31/commanders-jacory-croskey-merritt-observations/
 
 **Neighbors Recall a Grim Day as a Mother Is Charged With Killing Her Sons**\
 `Stephanie Castillo was arraigned on Thursday on charges of killing her twin sons in 2020. Residents of the Bronx building where she lived remember the day the bodies were found.`\
