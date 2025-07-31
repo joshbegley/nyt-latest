@@ -1,3 +1,7 @@
+**Where Blue Jays’ options stand entering trade deadline day**\
+`The Blue Jays can still find back-end bullpen pieces in trades, or cash in on the slowly-developing hitters market.`\
+https://nytimes.com/athletic/6527117/2025/07/31/blue-jays-trade-deadline-day-approach/
+
 **A Trump Ally Pressed for a Mexican Citizen’s Release from ICE Custody**\
 `The office of Senator John Kennedy of Louisiana asked the Department of Homeland Security to release the detainee, who is married to a U.S. Marine Corps veteran.`\
 https://nytimes.com/2025/07/31/us/politics/ice-marine-wife-senator-kennedy.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/31/business/pce-inflation-fed.html
 **In landing Andrew Kittredge, Cubs set to reinforce bullpen: Source**\
 `After picking up Michael Soroka from the Washigton Nationals to lengthen the back end of their rotation, the Chicago Cubs were set up to address the bullpen Thursday, trading for Andrew Kittredge of the Baltimore Orioles.`\
 https://nytimes.com/athletic/6526668/2025/07/31/mlb-cubs-andrew-kittredge-trade/
-
-**Chelsea’s Kendry Paez joins Strasbourg on loan**\
-`Paez only joined Chelsea earlier this summer after an initial transfer agreement with Independiente del Valle in 2023.`\
-https://nytimes.com/athletic/6527049/2025/07/31/chelsea-transfers-strasbourg-kendry-paez/
 
