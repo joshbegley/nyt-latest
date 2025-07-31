@@ -1,3 +1,19 @@
+**Padres' whirlwind deadline day continues with addition of Nestor Cortes: Source**\
+`The Padres' busy day continued with the addition of a lefty starter who's close to a return from injury.`\
+https://nytimes.com/athletic/6528654/2025/07/31/mlb-padres-nestor-cortes-trade/
+
+**Two Men Charged With Staging Car Crashes in Scheme to Defraud Drivers**\
+`The men orchestrated collisions on New York City highways last year in exchange for payouts from insurance companies, prosecutors said. Video of one of the accidents went viral on TikTok.`\
+https://nytimes.com/2025/07/31/nyregion/nyc-staged-car-accidents-arrest-tiktok.html
+
+**Phillies trade deadline takeaways: Closing time, outfield upgrade, prospects pay off**\
+`Here's a further look at the Phillies' deadline dealings and what they could mean moving forward.`\
+https://nytimes.com/athletic/6527778/2025/07/31/mlb-phillies-trade-deadline-takeaways/
+
+**Yankees continue to amass late-inning firepower, add Giants closer Camilo Doval: Sources**\
+`Doval was sent down to Triple A last season amidst struggles but had rebounded this year to regain the Giants' closer role.`\
+https://nytimes.com/athletic/6528677/2025/07/31/mlb-camilo-doval-yankees-trade/
+
 **Final Salute to a Fallen Officer: Images of Loss and Remembrance**\
 `The streets of a Bronx neighborhood filled with mourners who had gathered for the funeral of Didarul Islam, one of the victims of this week’s mass shooting in Manhattan.`\
 https://nytimes.com/2025/07/31/nyregion/officer-funeral-new-york-shooting.html
@@ -15,26 +31,10 @@ https://nytimes.com/athletic/6528541/2025/07/31/yankees-bullpen-additions-david-
 https://nytimes.com/2025/07/31/world/middleeast/hamas-arab-states-palestinians.html
 
 **Knicks, Mikal Bridges agree to 4-year, $150 million extension: Source**\
-`Bridges took less than the max to help New York attempt to stay under the second apron.`\
+`Bridges took $6 million less than the maximum available to him to help New York attempt to stay under the second apron.`\
 https://nytimes.com/athletic/6498832/2025/07/31/mikal-bridges-contract-knicks-extension-signs/
 
 **Emergency Official Explains His Absence as Texas Floods Hit**\
 `The Kerr County official testified at a hearing held by state lawmakers in the city of Kerrville. Hundreds of residents attended, many of them hoping to testify.`\
 https://nytimes.com/video/us/100000010317633/texas-floods-hearing.html
-
-**Elite New York High School Admits 8 Black Students in a Class of 781**\
-`The city’s eight specialized high schools are regarded as crown jewels but also symbols of segregation. The number of Black and Hispanic students admitted to them dipped slightly from last year.`\
-https://nytimes.com/2025/07/31/nyregion/specialized-high-schools-black-students-stuyvesant.html
-
-**Childhood Vaccination Rates Have Dropped Again, C.D.C. Data Shows**\
-`The new report paints a sobering picture of immunizations as infectious diseases like measles surge across the United States.`\
-https://nytimes.com/2025/07/31/health/child-vaccinations-decline-cdc.html
-
-**Five under-the-radar Bills players who could surprise in training camp**\
-`Plus, several Bills returned to practice after missing time with injuries.`\
-https://nytimes.com/athletic/6528076/2025/07/31/bills-training-camp-players-injury-update/
-
-**Cubs to add Willi Castro to bench, taking advantage of Twins' sell-off: Sources**\
-`Castro, who gives Cubs versatility on their bench, is the fifth player traded by the Twins in the hours before the deadline.`\
-https://nytimes.com/athletic/6520202/2025/07/31/mlb-cubs-willi-castro-trade/
 
