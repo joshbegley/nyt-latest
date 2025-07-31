@@ -1,3 +1,7 @@
+**Tottenham 1-0 Arsenal: Sarr's wondergoal, skills from Kudus and what it all means**\
+`It was only a friendly but Thomas Frank can take plenty of encouragement from a solid, resilient display`\
+https://nytimes.com/athletic/6527864/2025/07/31/tottenham-sarr-kudus-arsenal-analysis/
+
 **In Yosemite, Falling Tree Branches Kill a Young Hiker in ‘Freak Accident’**\
 `Angela Lin, 29, was a software engineer at Google who loved to spend time outdoors.`\
 https://nytimes.com/2025/07/31/us/yosemite-tuolumne-grove-hiker-killed.html
