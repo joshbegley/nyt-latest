@@ -1,3 +1,7 @@
+**Cubs bolster back of their rotation with Michael Soroka, give Nats 2 solid prospects**\
+`The Cubs needed rotation help, and while Soroka isn't a top-end starter, he's an upgrade for the backend of their rotation.`\
+https://nytimes.com/athletic/6526522/2025/07/30/michael-soroka-cubs-nationals-trade-ronny-cruz-christian-franklin/
+
 **Astros to shore up infield with addition of utilityman Ramón Urías: Source**\
 `Urías is making just $3.15 million this season and has one more year of arbitration eligibility.`\
 https://nytimes.com/athletic/6526548/2025/07/30/houston-astros-ramon-urias-trade/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6526421/2025/07/30/eugenie-bouchard-canadian-open-l
 **Raiders sign LT Kolton Miller to reported three-year, $66 million extension**\
 `The left tackle, 29, signed a new three-year deal worth a reported $66 million, $42.5 million of which is guaranteed.`\
 https://nytimes.com/athletic/6526423/2025/07/30/kolton-miller-raiders-contract-extension/
-
-**Judge Bars Trump Administration From Punishing 2 Law Professors for I.C.C. Work**\
-`A federal judge in New York permanently blocked the government from pursuing penalties against the professors over their assistance to the International Criminal Court.`\
-https://nytimes.com/2025/07/30/us/politics/trump-icc-lawyers.html
 
