@@ -1,3 +1,15 @@
+**Law: Mariners upgrade with Eugenio Suárez, D-Backs get 3 prospects**\
+`The Suárez deal brought the D-Backs Tyler Locklear, Hunter Cranton and Juan Burgos and could eventually give them runway for Jordan Lawlar.`\
+https://nytimes.com/athletic/6527118/2025/07/31/keith-law-eugenio-suarez-mariners-dbacks-trade-analysis/
+
+**Ancient Gems Linked to Buddha Are Returned to India**\
+`Sotheby’s had canceled an auction of the Piprahwa Gems after pressure from the Indian government. India said the relics were back in their “rightful home.”`\
+https://nytimes.com/2025/07/31/arts/buddha-jewels-piprahwa-india-return.html
+
+**Trump Tells Russian Official to ‘Watch His Words,’ but He Bites Back Instead**\
+`The former Russian president Dmitri Medvedev offers President Trump a useful foil to criticize without rebuking Vladimir Putin, one analyst said.`\
+https://nytimes.com/2025/07/31/world/europe/trump-medvedev-russia.html
+
 **Here’s the latest.**\
 `By Maia Coleman`\
 https://nytimes.com/live/2025/07/31/nyregion/nyc-shooting-didarul-islam-funeral/heres-the-latest
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6527049/2025/07/31/chelsea-transfers-strasbourg-ken
 **What Are the Solutions?**\
 `Dr. Heather Nixon has answers.`\
 https://nytimes.com/2025/07/31/podcasts/serial-newsletter-retrievals-c-sections.html
-
-**Heavy Rain and Flash Flooding Threaten Mid-Atlantic and Northeast**\
-`A cold front and high rainfall were moving across the region, meeting warm, humid and unstable air that is uncommon this time of year.`\
-https://nytimes.com/2025/07/31/weather/rain-flash-flooding-warning-northeast-mid-atlantic.html
-
-**In trading Ryan Helsley and Steven Matz, Cardinals begin second sell-off in three years**\
-`A July free fall, spurred by the rotation's collapse forced president of baseball operations John Mozeliak to market his rental relievers.`\
-https://nytimes.com/athletic/6526760/2025/07/31/stl-cardinals-trade-deadline-selling-helsley-matz/
-
-**Trump Administration Live Updates: President Criticizes Key Trade Partners as Tariff Deadline Looms**\
-``\
-https://nytimes.com/live/2025/07/31/us/trump-news
 
