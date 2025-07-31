@@ -1,3 +1,15 @@
+**Here Is What to Know About Trump’s 50% Tariffs on Brazil**\
+`Latin America’s biggest economy can weather the shock of a high tariff rate. But American coffee lovers and Brazilian ranchers are likely to feel the pain.`\
+https://nytimes.com/2025/07/31/world/americas/trump-brazil-tariffs-lula.html
+
+**Broncos believe Dre Greenlaw "will be fine" after he becomes latest LB to exit practice**\
+`The veteran free-agent addition suffered a quad injury during the offseason and was on a snaps restriction to being camp.`\
+https://nytimes.com/athletic/6528314/2025/07/31/denver-broncos-training-camp-dre-greenlaw/
+
+**Rangers to add to league-best rotation with Merrill Kelly acquisition: Sources**\
+`For Rangers fans, Kelly is not an unknown name, as he faced them in the 2023 World Series. `\
+https://nytimes.com/athletic/6519478/2025/07/31/mlb-rangers-merrill-kelly-trade/
+
 **Just Hours Remain Before Trump’s Tariff Deadline**\
 `Also, the U.S. is paying more than 150,000 people not to work. Here’s the latest at the end of Thursday.`\
 https://nytimes.com/2025/07/31/briefing/trump-tariff-deadline-louisiana-deportations.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/07/31/opinion/democratic-republican-parties.html
 **Amazon Reports $18.2 Billion in Profit Amid Strong Retail Demand**\
 `Consumers spent more than expected on the e-commerce giant’s site, while margins tightened at the company’s all-important cloud computing division.`\
 https://nytimes.com/2025/07/31/business/amazon-earnings-second-quarter.html
-
-**Trump Demands That Drugmakers Lower Some of Their U.S. Prices by September**\
-`The administration has not put forward a clear legal authority to compel drugmakers to reduce their prices.`\
-https://nytimes.com/2025/07/31/health/drug-prices-trump.html
-
-**Padres double dip, adding Ryan O’Hearn, Ramón Laureano in trade with Orioles: Sources**\
-`Hours after making a blockbuster deal for pitching, the San Diego Padres made another big move Thursday, this time to boost their lineup. `\
-https://nytimes.com/athletic/6518379/2025/07/31/mlb-padres-orioles-ryan-ohearn-ramon-laureano-trade/
-
-**Observations from Commanders camp: The rookie everyone is watching**\
-`The seventh-round running back with three names has shined for the Commanders. But why does he go by Bill?`\
-https://nytimes.com/athletic/6527712/2025/07/31/commanders-jacory-croskey-merritt-observations/
 
