@@ -1,3 +1,19 @@
+**Apple Surprises Investors Worried That It Had Lost Its Touch**\
+`Despite recent criticism about its product outlook, the company reported strong sales of iPhones, Macs, iPads and services.`\
+https://nytimes.com/2025/07/31/business/apple-earning-iphone-sales.html
+
+**Friday Briefing: Trump’s Tariff Day**\
+`Plus, our critic’s favorite art places in Rome.`\
+https://nytimes.com/2025/07/31/briefing/trump-tariffs-gaza-hunger-kyiv-attack.html
+
+**‘Summertide’ Is a Human-Scale Beachy Drama**\
+`The series follows a widower and marine biologist who moves back to his hometown in South Africa. But it doesn’t begin with a dead body.`\
+https://nytimes.com/2025/07/31/arts/television/summertide-acorn-tv.html
+
+**The Crucial Issue of the 21st Century**\
+`If Democrats can come up with an alternative vision of how to repair the social and moral order, they might be relevant in the years ahead.`\
+https://nytimes.com/2025/07/31/opinion/democratic-republican-parties.html
+
 **Amazon Reports $18.2 Billion in Profit Amid Strong Retail Demand**\
 `Consumers spent more than expected on the e-commerce giant’s site, while margins tightened at the company’s all-important cloud computing division.`\
 https://nytimes.com/2025/07/31/business/amazon-earnings-second-quarter.html
