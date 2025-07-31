@@ -1,3 +1,11 @@
+**Cubs acquiring RHP Michael Soroka from Nationals: Sources**\
+`Soroka was once considered one of the best young pitchers in baseball, finishing sixth in NL Cy Young Award balloting in 2019.`\
+https://nytimes.com/athletic/6526407/2025/07/30/cubs-michael-soroka-nationals-trade/
+
+**The Reds are better with Ke’Bryan Hayes, but how much better?**\
+`The 28-year-old Ke’Bryan Hayes, son of former big-leaguer Charlie Hayes, won a Gold Glove in 2023.`\
+https://nytimes.com/athletic/6526338/2025/07/30/cincinnati-reds-kebryan-hayes-trade-analysis/
+
 **Where Things Might Get Heated**\
 `Alexander Liebeskind’s puzzle bugs me, but in a good way.`\
 https://nytimes.com/2025/07/30/crosswords/daily-puzzle-2025-07-31.html
