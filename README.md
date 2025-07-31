@@ -1,3 +1,7 @@
+**Reds get a defensive upgrade in Ke'Bryan Hayes, but can they get more out of the bat?**\
+`The Pirates receive prospect Sammy Stafura as the main return, a true shortstop with some juice in the bat.`\
+https://nytimes.com/athletic/6526493/2025/07/30/kebryan-hayes-sammy-stafura-pirates-reds-trade-analysis/
+
 **Messi assists twice, Miami wins dramatic Leagues Cup opener at the death**\
 `Miami marked Rodrigo De Paul's debut with a last-gasp win over Liga MX's Atlas – with an assist to VAR`\
 https://nytimes.com/athletic/6526488/2025/07/30/inter-miami-atlas-leagues-cup-messi-weigandt-video-highlights/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/30/us/politics/trump-icc-lawyers.html
 **Free-falling Giants react to the Tyler Rogers trade: 'It kind of shows where we're headed'**\
 `The manner of Tuesday night's loss represented a breaking point for Buster Posey and the front office heading into Wednesday.`\
 https://nytimes.com/athletic/6526344/2025/07/30/free-falling-giants-react-tyler-rogers-trade/
-
-**Trade grade: In first move to bolster rotation, Cubs add Michael Soroka from Nationals**\
-`Soroka was once considered one of the best young pitchers in baseball, finishing sixth in NL Cy Young Award balloting in 2019.`\
-https://nytimes.com/athletic/6526407/2025/07/30/cubs-michael-soroka-nationals-trade-grade/
 
