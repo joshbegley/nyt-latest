@@ -1,5 +1,5 @@
 **Carlos Correa to rejoin Astros in stunning trade with Twins: Sources**\
-`HOUSTON — The Houston Astros are closing in on a reunion with franchise icon Carlos Correa.`\
+`Correa left the Astros in free agency after the 2021 season.`\
 https://nytimes.com/athletic/6528266/2025/07/31/mlb-astros-carlos-correa-trade/
 
 **What I saw during Notre Dame's first preseason practice, minute by minute**\
