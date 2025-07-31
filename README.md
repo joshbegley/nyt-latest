@@ -34,7 +34,7 @@ https://nytimes.com/athletic/6526755/2025/07/31/ferrari-team-principal-vasseur-c
 `Cutting ties with Jeffrey Epstein because he hired away your spa staff is like taking Charles Manson off your guest list “because he wouldn’t use a coaster,” Meyers said.`\
 https://nytimes.com/2025/07/31/arts/television/seth-meyers-trump-epstein.html
 
-**Russian Missile and Drone Attack Pummels Kyiv, Killing at Least 6**\
+**Russian Missile and Drone Attack Pummels Kyiv, Killing at Least 7**\
 `The assault came soon after President Trump threatened new sanctions against Moscow if the bloodshed didn’t let up.`\
 https://nytimes.com/2025/07/31/world/europe/ukraine-russia-attack-kyiv.html
 
