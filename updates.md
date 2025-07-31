@@ -1,3 +1,7 @@
+**Will Lankshear: 'I was at Arsenal for nine years but would like nothing more than to score against them'**\
+`The striker, whose idol is Harry Kane, was released by Arsenal at 15 and joined Tottenham after a spell with Sheffield United in 2022`\
+https://nytimes.com/athletic/6526272/2025/07/31/will-lankshear-tottenham-arsenal-interview/
+
 **Seth Meyers Says Trump Isn’t Doing Himself Any Favors**\
 `Cutting ties with Jeffrey Epstein because he hired away your spa staff is like taking Charles Manson off your guest list “because he wouldn’t use a coaster,” Meyers said.`\
 https://nytimes.com/2025/07/31/arts/television/seth-meyers-trump-epstein.html
