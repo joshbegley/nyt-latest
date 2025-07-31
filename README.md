@@ -1,4 +1,8 @@
-**Yankees close to acquiring David Bednar from Pirates to address top need: Sources**\
+**Cricket is eating itself**\
+`A jam-packed schedule means the final England-India Test is being staged without some of its best players `\
+https://nytimes.com/athletic/6528032/2025/07/31/england-india-test-cricket-schedule/
+
+**Yankees close to acquiring reliever David Bednar from Pirates to address top need: Sources**\
 `Bednar immediately becomes the Yankees’ top reliever in terms of average fastball velocity.`\
 https://nytimes.com/athletic/6498441/2025/07/31/mlb-yankees-david-bednar-trade/
 
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/31/technology/figma-ipo.html
 **Robert Wilson, Provocative Playwright and Director, Is Dead at 83**\
 `He upended theatrical norms with his own stunningly visualized works and his collaborations with a wide range of artists, from Philip Glass (“Einstein on the Beach”) to Lady Gaga.`\
 https://nytimes.com/2025/07/31/theater/robert-wilson-dead.html
-
-**One question for every team in the National League, 4 hours until the deadline**\
-`How much is Sandy Alcantara worth? Do the Dodgers have another surprise up their sleeve? Time is running out for big moves.`\
-https://nytimes.com/athletic/6527925/2025/07/31/mlb-trade-deadline-questions-nl/
 

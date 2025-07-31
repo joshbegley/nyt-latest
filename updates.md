@@ -1,3 +1,19 @@
+**Yankees close to acquiring David Bednar from Pirates to address top need: Sources**\
+`Bednar immediately becomes the Yankees’ top reliever in terms of average fastball velocity.`\
+https://nytimes.com/athletic/6498441/2025/07/31/mlb-yankees-david-bednar-trade/
+
+**In Funeral Remarks, Adams Praises Police Unit Mamdani Vowed to Disband**\
+`Mayor Eric Adams thanked the Strategic Response Group for its actions during a shooting in Midtown Manhattan. Zohran Mamdani has criticized the unit for its policing of protests and aims to replace it.`\
+https://nytimes.com/2025/07/31/nyregion/adams-nypd-officer-islam-funeral.html
+
+**Clock Ticks Toward Higher Tariffs With Little Clarity**\
+`The Trump administration is still debating the significantly higher tariff rates that American companies and foreign firms are expected to be subject to within a matter of hours.`\
+https://nytimes.com/2025/07/31/us/politics/deadline-trump-tariffs.html
+
+**Robert Wilson, Provocative Playwright and Director, Is Dead at 83**\
+`He upended theatrical norms with his own stunningly visualized works and his collaborations with a wide range of artists, from Philip Glass (“Einstein on the Beach”) to Lady Gaga.`\
+https://nytimes.com/2025/07/31/theater/robert-wilson-dead.html
+
 **Kavanaugh Defends Supreme Court’s Terse Emergency Orders**\
 `Speaking at a judicial conference, the justice said that saying too much risked premature judgments, adding that the court had been trying various approaches.`\
 https://nytimes.com/2025/07/31/us/politics/kavanaugh-supreme-court-emergency.html
