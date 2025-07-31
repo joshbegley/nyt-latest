@@ -1,3 +1,7 @@
+**China Summons Nvidia Over ‘Backdoor Security’ Risks of A.I. Chips**\
+`The move came two weeks after the Trump administration reversed course to allow Nvidia to sell the coveted artificial intelligence chips in China.`\
+https://nytimes.com/2025/07/31/business/china-nvidia-h20-chips.html
+
 **Will Lankshear: 'I was at Arsenal for nine years but would like nothing more than to score against them'**\
 `The striker, whose idol is Harry Kane, was released by Arsenal at 15 and joined Tottenham after a spell with Sheffield United in 2022`\
 https://nytimes.com/athletic/6526272/2025/07/31/will-lankshear-tottenham-arsenal-interview/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/31/learning/word-of-the-day-hirsute.html
 **Thailand and Cambodia Reach Trump Trade Deals, U.S. Official Says**\
 `Senior officials from both countries say they were still waiting to hear final details on the deals after comments by the U.S. commerce secretary, Howard Lutnick.`\
 https://nytimes.com/2025/07/31/business/thailand-cambodia-trump-tariffs.html
-
-**Trump Threatens Canada Ahead of Trade Deadline for Backing Palestinian State**\
-`Canada faces a 35 percent tariff on its exports to the United States if it does not reach a trade deal with the Trump administration by Friday.`\
-https://nytimes.com/2025/07/31/us/politics/trump-canada-trade-palestine.html
 

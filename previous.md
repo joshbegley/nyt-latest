@@ -2,6 +2,22 @@
 `The striker, whose idol is Harry Kane, was released by Arsenal at 15 and joined Tottenham after a spell with Sheffield United in 2022`\
 https://nytimes.com/athletic/6526272/2025/07/31/will-lankshear-tottenham-arsenal-interview/
 
+**How Forest will go again — the irreplaceable Gibbs-White, Anderson's evolution, and more signings to come?**\
+`Forest finished the season poorly and missed out on Champions League. But Nuno is determined to surprise the Premier League all over again`\
+https://nytimes.com/athletic/6524798/2025/07/31/how-forest-will-go-again-the-irreplaceable-gibbs-white-andersons-evolution-and-more-signings-to-come/
+
+**The Philanthropy Fighting Trump’s Budget Cuts Without Blaming Trump**\
+`The Robin Hood Foundation, one of New York City’s biggest charities, is navigating tensions between its wealthy donors and the nonprofits it funds.`\
+https://nytimes.com/2025/07/31/nyregion/robin-hood-foundation-trump-budget-cuts.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/07/31/crosswords/spelling-bee-forum.html
+
+**Ferrari F1 team principal Vasseur signs multi-year contract extension**\
+`Vasseur, 57, took charge of Ferrari at the start of the 2023 season, having previously led Sauber’s F1 team.`\
+https://nytimes.com/athletic/6526755/2025/07/31/ferrari-team-principal-vasseur-contract/
+
 **Seth Meyers Says Trump Isn’t Doing Himself Any Favors**\
 `Cutting ties with Jeffrey Epstein because he hired away your spa staff is like taking Charles Manson off your guest list “because he wouldn’t use a coaster,” Meyers said.`\
 https://nytimes.com/2025/07/31/arts/television/seth-meyers-trump-epstein.html
@@ -21,20 +37,4 @@ https://nytimes.com/2025/07/31/business/thailand-cambodia-trump-tariffs.html
 **Trump Threatens Canada Ahead of Trade Deadline for Backing Palestinian State**\
 `Canada faces a 35 percent tariff on its exports to the United States if it does not reach a trade deal with the Trump administration by Friday.`\
 https://nytimes.com/2025/07/31/us/politics/trump-canada-trade-palestine.html
-
-**25 Hospitalized After Delta Flight Is Hit by Strong Turbulence**\
-`The flight, which was taking 275 passengers from Salt Lake City to Amsterdam, made an emergency landing in Minneapolis on Wednesday evening, the airline said.`\
-https://nytimes.com/2025/07/31/us/delta-flight-turbulence-emergency-landing.html
-
-**Yankees to be busy as trade deadline nears; Austin Wells explains blunder as 'being an idiot'**\
-`After trading for three bats, the Yankees' focus is on adding to the bullpen and perhaps acquiring a starting pitcher.`\
-https://nytimes.com/athletic/6526616/2025/07/31/yankees-mlb-trade-deadline-austin-wells-error/
-
-**Trade grades: The all-in Mariners land the big bat they coveted in Eugenio Suarez**\
-`The Mariners are finally pushing in all their chips, and their recent additions have given their lineup prodigious power. `\
-https://nytimes.com/athletic/6526608/2025/07/31/eugenio-suarez-trade-grades-mariners-diamondbacks/
-
-**Where Manchester United's pursuit of Benjamin Sesko leaves Rasmus Hojlund**\
-`With United prioritising Sesko if they sign a striker this summer, Hojlund's position at the club has been thrown into doubt`\
-https://nytimes.com/athletic/6526639/2025/07/31/hojlund-manchester-united-future-sesko/
 
