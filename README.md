@@ -1,6 +1,10 @@
+**Trump Wants a New Border Wall. It Would Block a Key Wildlife Corridor.**\
+`The barrier, in a remote part of Arizona, would threaten one of the most important remaining animal migration routes on the state’s southern border, according to a new report.`\
+https://nytimes.com/2025/07/31/climate/arizona-border-wall-wildlife-migration-jaguars.html
+
 **Marseille complete signing of Aubameyang**\
-`The 36-year-old former Arsenal forward terminated his Al Qadsiah contract earlier this month`\
-https://nytimes.com/athletic/6500165/2025/07/31/marseille-pierre-emerick-aubameyang/
+`The 36-year-old former Arsenal forward terminated his Al Qadsiah contract earlier this month.`\
+https://nytimes.com/athletic/6500165/2025/07/31/marseille-pierre-emerick-aubameyang-transfer/
 
 **Corrections: July 31, 2025**\
 `Corrections that appeared in print on Thursday, July 31, 2025.`\
@@ -19,7 +23,7 @@ https://nytimes.com/2025/07/31/business/india-russia-oil-trump.html
 https://nytimes.com/2025/07/31/theater/canada-stratford-theater-festival.html
 
 **Padres add Mason Miller in blockbuster deal, ship top prospect Leo De Vries to A's: Sources**\
-`Miller is under team control through 2029. De Vries, 18, is The Athletic's No. 13 overall prospect.`\
+`JP Sears is also headed to San Diego while De Vries, fellow top prospect Braden Nett and two others go to the A's.`\
 https://nytimes.com/athletic/6526693/2025/07/31/mlb-padres-mason-miller-leodalis-devries-trade/
 
 **Man Dies After Apparent Fall From Whitney Museum**\
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/31/science/evolution-agriculture-tomatoes-potatoes.h
 **The California Governor’s Race Was in Limbo. Now It’s Wide Open.**\
 `Until she decided not to run, former Vice President Kamala Harris had loomed over the race as a likely favorite. Now, a host of hopefuls are jockeying for advantage.`\
 https://nytimes.com/2025/07/31/us/harris-california-governors-race.html
-
-**Nvidia Chips Are Front and Center in China at Crucial Moment in the A.I. Race**\
-`Chinese companies showcased A.I. gains in Shanghai this week. More chips will only help them improve faster, industry insiders say.`\
-https://nytimes.com/2025/07/31/technology/china-ai-nvidia-chips.html
 

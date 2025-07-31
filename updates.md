@@ -1,3 +1,23 @@
+**Marseille complete signing of Aubameyang**\
+`The 36-year-old former Arsenal forward terminated his Al Qadsiah contract earlier this month`\
+https://nytimes.com/athletic/6500165/2025/07/31/marseille-pierre-emerick-aubameyang/
+
+**Corrections: July 31, 2025**\
+`Corrections that appeared in print on Thursday, July 31, 2025.`\
+https://nytimes.com/2025/07/31/pageoneplus/corrections-july-31-2025.html
+
+**Arteta confident Gabriel, Calafiori, Timber will be fit for start of season**\
+`“If they evolve like they've evolved in the last few days, the three of them will be available,” Arteta said after Arsenal's defeat by Spurs`\
+https://nytimes.com/athletic/6527524/2025/07/31/arsenal-injuries-gabriel-calafiori-timber/
+
+**How India Became One of the Biggest Buyers of Russian Oil**\
+`President Trump upended trade negotiations with India by making the purchase of crude oil a sticking point.`\
+https://nytimes.com/2025/07/31/business/india-russia-oil-trump.html
+
+**Padres add Mason Miller in blockbuster deal, ship top prospect Leo De Vries to A's: Sources**\
+`Miller is under team control through 2029. De Vries, 18, is The Athletic's No. 13 overall prospect.`\
+https://nytimes.com/athletic/6526693/2025/07/31/mlb-padres-mason-miller-leodalis-devries-trade/
+
 **On Canada’s Top Stage, Macbeth and Annie Are Talking to Americans**\
 `At this year’s Stratford Festival, kings, orphans and even a coffee shop have a message for their neighbors to the south.`\
 https://nytimes.com/2025/07/31/theater/canada-stratford-theater-festival.html
