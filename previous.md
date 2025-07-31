@@ -1,3 +1,7 @@
+**Ronald Acuña Jr. injury update a relief to Braves; Joey Wentz impresses again**\
+`The star right fielder has only a Grade 1 lower-right calf strain, not an Achilles injury.`\
+https://nytimes.com/athletic/6526118/2025/07/30/braves-ronald-acuna-jr-injury-update-joey-wentz/
+
 **Kaleb Johnson, Steelers' offense underwhelm as defense dominates Day 1 in pads: Takeaways**\
 `Meanwhile, Troy Fautanu impressed, Joey Porter Jr. got feisty and the Aaron Rodgers-DK Metcalf connection continued to build.`\
 https://nytimes.com/athletic/6526110/2025/07/30/steelers-training-camp-kaleb-johnson-pads/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/30/us/politics/judge-excoriates-trump-officials-for-
 **Cubs’ clubhouse waiting to see what the front office has in store for trade deadline**\
 `Will Cubs president of baseball operations Jed Hoyer feel emboldened to maximize the club’s World Series odds this year?`\
 https://nytimes.com/athletic/6526054/2025/07/30/cubs-trade-deadline-milwaukee-brewers/
-
-**Giants trade Tyler Rogers, and the sell-off is on**\
-`The Giants shouldn't be in a position to sell given where they were three weeks ago. But they are sellers, alas, and this is a solid return.`\
-https://nytimes.com/athletic/6525855/2025/07/30/sf-giants-tyler-rogers-trade-analysis/
 

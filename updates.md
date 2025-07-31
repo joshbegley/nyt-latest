@@ -1,3 +1,7 @@
+**Ronald Acuña Jr. injury update a relief to Braves; Joey Wentz impresses again**\
+`The star right fielder has only a Grade 1 lower-right calf strain, not an Achilles injury.`\
+https://nytimes.com/athletic/6526118/2025/07/30/braves-ronald-acuna-jr-injury-update-joey-wentz/
+
 **Kaleb Johnson, Steelers' offense underwhelm as defense dominates Day 1 in pads: Takeaways**\
 `Meanwhile, Troy Fautanu impressed, Joey Porter Jr. got feisty and the Aaron Rodgers-DK Metcalf connection continued to build.`\
 https://nytimes.com/athletic/6526110/2025/07/30/steelers-training-camp-kaleb-johnson-pads/
