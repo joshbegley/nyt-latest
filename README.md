@@ -1,3 +1,7 @@
+**Amazon Reports $18.2 Billion in Profit Amid Strong Retail Demand**\
+`Consumers spent more than expected on the e-commerce giant’s site, while margins tightened at the company’s all-important cloud computing division.`\
+https://nytimes.com/2025/07/31/business/amazon-earnings-second-quarter.html
+
 **Trump Demands That Drugmakers Lower Some of Their U.S. Prices by September**\
 `The administration has not put forward a clear legal authority to compel drugmakers to reduce their prices.`\
 https://nytimes.com/2025/07/31/health/drug-prices-trump.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/31/arts/justin-timberlake-lyme-disease.html
 **Astros add balance to lineup by acquiring Jesús Sánchez from Marlins: Source**\
 `The 27-year-old has hit double-digit home runs in each of the past four seasons and gives Houston a much-needed left-handed hitter.`\
 https://nytimes.com/athletic/6528315/2025/07/31/mlb-jesus-sanchez-trade-astros/
-
-**Why the cornerback battle may spell trouble for Eagles in training camp**\
-`Plus, how the Eagles could address injuries to their secondary.`\
-https://nytimes.com/athletic/6527742/2025/07/31/eagles-training-camp-cornerback-battle-quinyon-mitchell/
 

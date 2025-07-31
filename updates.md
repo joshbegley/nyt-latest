@@ -1,3 +1,11 @@
+**Padres double dip, adding Ryan O’Hearn, Ramón Laureano in trade with Orioles: Sources**\
+`Hours after making a blockbuster deal for pitching, the San Diego Padres made another big move Thursday, this time to boost their lineup. `\
+https://nytimes.com/athletic/6518379/2025/07/31/mlb-padres-orioles-ryan-ohearn-ramon-laureano-trade/
+
+**Why the cornerback battle may spell trouble for Eagles in training camp**\
+`Plus, how the Eagles could address injuries to their secondary.`\
+https://nytimes.com/athletic/6527742/2025/07/31/eagles-training-camp-cornerback-battle-quinyon-mitchell/
+
 **Trump Demands That Drugmakers Lower Some of Their U.S. Prices by September**\
 `The administration has not put forward a clear legal authority to compel drugmakers to reduce their prices.`\
 https://nytimes.com/2025/07/31/health/drug-prices-trump.html
