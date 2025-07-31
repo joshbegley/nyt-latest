@@ -1,3 +1,15 @@
+**England team received 3,000 'hostile' posts during Euro 2025 final, report finds**\
+`A report by Moonshot found that the majority of the social media posts remained up several days after the final, despite being reported.`\
+https://nytimes.com/athletic/6527679/2025/07/31/england-euro-2025-social-media-abuse/
+
+**Lithuania’s Prime Minister Steps Down Amid Pressure**\
+`Prime Minister Gintautas Paluckas’s business dealings are under investigation by Lithuanian authorities.`\
+https://nytimes.com/2025/07/31/world/europe/lithuania-prime-minister-steps-down.html
+
+**Massachusetts governor proposes $400 million for colleges, citing federal ‘uncertainty.’**\
+`By Chris Hippensteel`\
+https://nytimes.com/live/2025/07/31/us/trump-news/massachusetts-healey-trump-funding
+
 **Massachusetts governor proposes $400 million for colleges, citing federal ‘uncertainty.’**\
 `By Chris Hippensteel`\
 https://nytimes.com/live/2025/07/31/us/trump-news/massachusetts-governor-proposes-400-million-for-colleges-citing-federal-uncertainty
