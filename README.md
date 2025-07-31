@@ -1,3 +1,23 @@
+**Edinburgh Fringe Can Bring Artists Fame, but Money’s Another Matter**\
+`The venue that hosted “Baby Reindeer” is back from the financial brink, but many performers still say the risk of taking part in the festival is too high.`\
+https://nytimes.com/2025/07/31/theater/edinburgh-fringe-summerhill.html
+
+**The players I can't stop drafting in 2025 fantasy football... so far**\
+`Jake Ciely shares the most-commonly found players on his fantasy rosters, including potential Seattle bell cow Kenneth Walker.`\
+https://nytimes.com/athletic/6523703/2025/07/31/fantasy-football-2025-most-drafted-players-jake-ciely/
+
+**Myanmar Lifts State of Emergency, Paving the Way for Disputed Vote**\
+`The military government hopes elections can bring more international legitimacy. But the generals will still rule, and opposition groups are boycotting.`\
+https://nytimes.com/2025/07/31/world/asia/myanmar-emergency-election.html
+
+**The NFL's most efficient pass rusher is a player you've probably never heard of**\
+`Falcons linebacker Kaden Elliss enters his seventh NFL season still on the rise at an age when many players are declining quickly.`\
+https://nytimes.com/athletic/6525480/2025/07/31/falcons-kaden-elliss-pass-rusher/
+
+**The DOGE Alum Asking if Foreign Aid Is America’s Problem**\
+`“We were suckers of the global system for so long.”`\
+https://nytimes.com/2025/07/31/opinion/doge-foreign-aid-jeremy-lewin.html
+
 **Trump’s Fight With the Fed Won’t End With Rate Cuts**\
 `President Trump wants the Fed to slash borrowing costs, but the central bank is unlikely to take such aggressive steps even once it begins to lower interest rates.`\
 https://nytimes.com/2025/07/31/business/trump-fed-interest-rate-cuts.html
@@ -17,24 +37,4 @@ https://nytimes.com/interactive/2025/07/31/realestate/manhattan-east-side-apartm
 **‘Not a Damned Penny.’ Texas Flood Survivors Look for Help**\
 `Texas state legislators will be in Kerrville on Thursday for a hearing on the July 4 floods. They may get an earful.`\
 https://nytimes.com/2025/07/31/us/politics/texas-floods.html
-
-**The Tariffs Kicked In. The Sky Didn’t Fall. Were the Economists Wrong?**\
-`Well, it’s complicated.`\
-https://nytimes.com/2025/07/31/opinion/tariffs-economy-inflation-recession.html
-
-**Surveying the Style in an Elite Summer Retreat**\
-`It’s a place where blue blazers, printed pants and Belgian Shoes are plentiful.`\
-https://nytimes.com/2025/07/31/style/southampton-long-island-summer-fashion.html
-
-**On Eve of Tariff Deadline, Trump’s Trade War Faces Key Court Test**\
-`A federal appeals panel will hear arguments from states and businesses that seek to invalidate the president’s tariffs.`\
-https://nytimes.com/2025/07/31/business/on-eve-of-tariff-deadline-trumps-trade-war-faces-key-court-test.html
-
-**Don’t Let the Vampires In**\
-`Wesley Morris wants to be sure you heard the warning in Ryan Coogler’s “Sinners.”`\
-https://nytimes.com/2025/07/31/podcasts/dont-let-the-vampires-in.html
-
-**36 Hours in Nantucket**\
-`The island off Cape Cod has a windswept beauty and plenty of history to explore.`\
-https://nytimes.com/interactive/2025/07/31/travel/things-to-do-nantucket.html
 
