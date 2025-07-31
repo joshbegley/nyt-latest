@@ -23,7 +23,7 @@ https://nytimes.com/2025/07/31/dining/are-these-celebrity-sandwich-shops-any-goo
 https://nytimes.com/2025/07/31/climate/trump-oil-and-gas-companies.html
 
 **Yankees keep stockpiling relievers by adding Jake Bird from Rockies: Source**\
-`Colorado gets second baseman Roc Riggio and left-hander Ben Shields.`\
+`Colorado gets two minor leaguers: second baseman Roc Riggio and left-hander Ben Shields.`\
 https://nytimes.com/athletic/6528208/2025/07/31/mlb-yankees-jake-bird-trade/
 
 **Canadian Wildfire Smoke Prompts Air Quality Alerts Across the Great Lakes Region**\

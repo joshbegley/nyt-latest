@@ -1,3 +1,15 @@
+**Osimhen makes Galatasaray move permanent**\
+`The Nigeria international striker scored 37 goals across 41 appearances for the Istanbul-based club on a loan deal from Napoli last season.`\
+https://nytimes.com/athletic/6259289/2025/07/31/victor-osimhen-galatasaray-transfer/
+
+**White House Unveils Plan for Enormous Ballroom Long Sought by Trump**\
+`Officials said a 90,000-square-foot addition to the East Wing would cost $200 million and be paid for by President Trump and other donors.`\
+https://nytimes.com/2025/07/31/us/politics/white-house-ballroom-trump.html
+
+**Nashville Is a ‘Tough Place to Tunnel.’ Musk Is Digging Anyway.**\
+`State leaders fast-tracked plans by Elon Musk’s company for a tunnel to Nashville’s airport, ignoring the city’s concerns.`\
+https://nytimes.com/2025/07/31/us/politics/nashville-tunnel-musk.html
+
 **Bears WR Luther Burden III impresses; left tackle battle reaches critical weekend**\
 `Burden had his best day as the Bears offense bounced back from a disappointing practice ahead of an off day.`\
 https://nytimes.com/athletic/6528044/2025/07/31/bears-luther-burden-left-tackle-battle/
