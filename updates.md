@@ -1,3 +1,7 @@
+**Chelsea sign teenager Derry signing after Palace exit**\
+`The 18-year-old refused to sign a professional deal at Palace, who are now expected to be awarded a significant fee in compensation.`\
+https://nytimes.com/athletic/6527251/2025/07/31/chelsea-tranfer-jesse-derry-crystal-palace/
+
 **Meet Lou Ayeni, the coach developing the Broncos' new backfield at "the speed of trust"**\
 `The assistant who once helped develop David Montgomery and Kareem Hunt into stardom is now tasked with nurturing Broncos rookie RJ Harvey`\
 https://nytimes.com/athletic/6524694/2025/07/31/denver-broncos-lou-ayeni-training-camp-rj-harvey/

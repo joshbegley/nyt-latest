@@ -34,7 +34,7 @@ https://nytimes.com/athletic/6515053/2025/07/31/lucas-paqueta-betting-case-west-
 `Good morning to everyone except the guy who threw a live chicken on the ice during a Kings game in 1988.`\
 https://nytimes.com/athletic/6527209/2025/07/31/nhl-contract-ranking-red-light-newsletter/
 
-**Chelsea confirm teenager Derry signing after Palace exit**\
+**Chelsea sign teenager Derry signing after Palace exit**\
 `The 18-year-old refused to sign a professional deal at Palace, who are now expected to be awarded a significant fee in compensation.`\
 https://nytimes.com/athletic/6527251/2025/07/31/chelsea-tranfer-jesse-derry-crystal-palace/
 
