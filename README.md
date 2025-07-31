@@ -1,5 +1,5 @@
 **Former Stanford football coach Troy Taylor sues ESPN for defamation**\
-`Taylor, who was Stanford’s coach for two seasons, was fired by General Manager Andrew Luck six days after ESPN’s March 19 report.`\
+`Taylor, who was Stanford's coach for two seasons, was fired by general manager Andrew Luck six days after ESPN's March 19 report.`\
 https://nytimes.com/athletic/6526282/2025/07/30/stanford-troy-taylor-espn-defamation-lawsuit/
 
 **A challenge to the suspension of a refugee program established by Congress receives class-action status.**\

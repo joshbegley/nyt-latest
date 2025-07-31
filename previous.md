@@ -1,3 +1,7 @@
+**Former Stanford football coach Troy Taylor sues ESPN for defamation**\
+`Taylor, who was Stanford’s coach for two seasons, was fired by General Manager Andrew Luck six days after ESPN’s March 19 report.`\
+https://nytimes.com/athletic/6526282/2025/07/30/stanford-troy-taylor-espn-defamation-lawsuit/
+
 **A challenge to the suspension of a refugee program established by Congress receives class-action status.**\
 `The ruling`\
 https://nytimes.com/live/2025/07/30/us/trump-news/a-challenge-to-the-suspension-of-a-refugee-program-established-by-congress-receives-class-action-status
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6526110/2025/07/30/steelers-training-camp-kaleb-joh
 **18 Great Road Trip Books That Aren’t ‘On the Road’**\
 `Come along for the ride as our three critics back-seat drive their way through America. (Rest stops provided.)`\
 https://nytimes.com/2025/07/30/books/best-road-trip-books.html
-
-**Trade grades: Phillies find what they need in Jhoan Duran, Twins 'win,' too**\
-`To quote one of our trade graders: This is what a deadline deal is supposed to look like.`\
-https://nytimes.com/athletic/6526120/2025/07/30/phillies-jhoan-duran-trade-grade/
 
