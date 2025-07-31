@@ -1,3 +1,7 @@
+**Raiders sign LT Kolton Miller to three-year, $66 million extension**\
+`The left tackle, 29, signed a new three-year deal worth a reported $66 million, $42.5 million of which is guaranteed.`\
+https://nytimes.com/athletic/6526423/2025/07/30/kolton-miller-raiders-contract-extension/
+
 **Judge Bars Trump Administration From Punishing 2 Law Professors for I.C.C. Work**\
 `A federal judge in New York permanently blocked the government from pursuing penalties against the professors over their assistance to the International Criminal Court.`\
 https://nytimes.com/2025/07/30/us/politics/trump-icc-lawyers.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6526282/2025/07/30/stanford-troy-taylor-espn-defama
 **A challenge to the suspension of a refugee program established by Congress receives class-action status.**\
 `The ruling`\
 https://nytimes.com/live/2025/07/30/us/trump-news/a-challenge-to-the-suspension-of-a-refugee-program-established-by-congress-receives-class-action-status
-
-**Trump Announces Health Care Records System for Consumers**\
-`The administration is working with tech companies to make sharing information with various providers easier. Experts raised concerns about privacy and security.`\
-https://nytimes.com/2025/07/30/us/politics/trump-health-records-system.html
 
