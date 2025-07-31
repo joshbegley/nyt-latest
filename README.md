@@ -1,6 +1,18 @@
+**One-man, first-round PPR fantasy football 2025 mock draft: Who to prioritize?**\
+`The 2025 fantasy football season is odd, with no consensus top pick or first-round path. Gary Davenport mocks his first round to help. `\
+https://nytimes.com/athletic/6527551/2025/07/31/fantasy-football-2025-ppr-mock-draft-first-round/
+
+**A Short History of Awkward Gift Giving Between U.S. and U.K. Leaders**\
+`For foreign leaders seeking to woo President Trump, a thoughtful gift is a time-honored diplomatic tactic. But there are pitfalls.`\
+https://nytimes.com/2025/07/31/world/europe/uk-us-leader-gifts.html
+
+**Robbery of U.K. Royal Family’s Items Leads to $4 Million Insurance Payment**\
+`Two centuries-old snuff boxes adorned with diamonds and gold were among several artifacts stolen in a violent museum heist in Paris last year.`\
+https://nytimes.com/2025/07/31/arts/design/uk-royal-family-robbery-insurance-payment.html
+
 **She Came Face to Face With the Park Avenue Gunman and Survived**\
 `Sebije Nelovic, who has cleaned the Manhattan office building that was the site of the shooting for 27 years, was dusting a table that Monday evening. Then she heard gunfire.`\
-https://nytimes.com/2025/07/31/nyregion/park-avenue-killing-witness.html
+https://nytimes.com/2025/07/31/nyregion/park-avenue-shooting-sebije-nelovic.html
 
 **Phillies acquire defensive wizard Harrison Bader from Twins**\
 `The 2021 Gold Glove winner has produced five outs above average this season.`\
@@ -25,16 +37,4 @@ https://nytimes.com/2025/07/31/books/review/new-book-recommendations.html
 **Peach Bingo!**\
 `Everyone’s a winner with no-cook cold tofu salad with peaches, peaches and cucumbers with gochujang vinaigrette and peach tea.`\
 https://nytimes.com/2025/07/31/dining/vegetarian-peach-recipes-for-summer.html
-
-**Feeding the Limitless Maine Lobster Roll Boom, Seafloor to Summer Table**\
-`At one of the most renowned lobster shacks — and across the country — the star dish just keeps getting more popular.`\
-https://nytimes.com/2025/07/31/dining/maine-lobster-roll-shacks.html
-
-**Tour de France Femmes: Squiban wins Stage 6, Le Court keeps yellow**\
-`See the results from Stage 6 here as The Athletic covers the Tour de France Femmes. `\
-https://nytimes.com/athletic/6526915/2025/07/31/tour-de-france-femmes-maeva-squiban-stage-six/
-
-**Tigers add to bullpen, acquire Kyle Finnegan from Nationals: Source**\
-`Finnegan has closing experience and Detroit could use him in a high-leverage relief role. `\
-https://nytimes.com/athletic/6527763/2025/07/31/mlb-tigers-kyle-finnegan-trade/
 
