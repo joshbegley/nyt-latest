@@ -1,9 +1,13 @@
+**How India Became One of the Biggest Buyers of Russian Oil**\
+`President Trump upended trade negotiations with India by making the purchase of crude oil a sticking point.`\
+https://nytimes.com/2025/07/31/business/india-russia-oil-trump.html
+
 **On Canada’s Top Stage, Macbeth and Annie Are Talking to Americans**\
 `At this year’s Stratford Festival, kings, orphans and even a coffee shop have a message for their neighbors to the south.`\
 https://nytimes.com/2025/07/31/theater/canada-stratford-theater-festival.html
 
-**Padres to pad loaded bullpen with Mason Miller, ship top prospect Leodalis DeVries to A's**\
-`A year ago, Athletics closer Mason Miller was considered untouchable.`\
+**Padres to pad loaded bullpen with Mason Miller, ship top prospect Leo De Vries to A's: Sources**\
+`Miller is under team control through 2029. De Vries, 18, is The Athletic's No. 13 overall prospect.`\
 https://nytimes.com/athletic/6526693/2025/07/31/mlb-padres-mason-miller-leodalis-devries-trade/
 
 **Man Dies After Apparent Fall From Whitney Museum**\
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/31/technology/ai-researchers-nba-stars.html
 **Verstappen: Time to stop all the rumors, I’ll be racing for Red Bull in 2026**\
 `Verstappen is under contract at Red Bull until 2028, but his future was under scrutiny in recent months amid continued links to Mercedes.`\
 https://nytimes.com/athletic/6527458/2025/07/31/max-verstappen-red-bull-2026/
-
-**‘Japanese Walking’ Is a Fitness Trend Worth Trying**\
-`The workout is simple, and its health benefits are backed by nearly 20 years of research.`\
-https://nytimes.com/2025/07/31/well/move/japanese-walking-fitness-trend.html
 
