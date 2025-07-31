@@ -1,4 +1,12 @@
-**Legal Watchdog Files Bar Complaints Against Career Justice Dept. Lawyers**\
+**Remembering the four lives lost in the shooting.**\
+`By Sarah Maslin Nir, Michael Wilson, Wesley Parnell, Maureen Farrell and Dionne Searcey`\
+https://nytimes.com/live/2025/07/31/nyregion/nyc-shooting-didarul-islam-funeral/remembering-the-four-lives-lost-in-the-shooting
+
+**Sean Combs’s Lawyers Ask Judge to Vacate Jury’s Verdict or Retry Him**\
+`In a 62-page motion, the music mogul’s legal team argued that his conviction under the Mann Act — which bars interstate commerce related to prostitution — should be overturned.`\
+https://nytimes.com/2025/07/31/arts/music/sean-combs-diddy-mann-act-prostitution-new-trial.html
+
+**Legal Watchdog Files Bar Complaints Against Justice Dept. Lawyers**\
 `The move represented a rare attempt to seek accountability for rank-and-file lawyers who have represented the Trump administration in court.`\
 https://nytimes.com/2025/07/31/us/politics/justice-department-lawyers-complaint.html
 
@@ -29,12 +37,4 @@ https://nytimes.com/live/2025/07/31/nyregion/nyc-shooting-didarul-islam-funeral/
 **Live Updates: Crowds Expected for Funeral of Officer Slain in Manhattan**\
 `Mayoral candidates and police officials will be among those attending the ceremony for Police Officer Didarul Islam, who was killed on Monday at an office building in Midtown Manhattan.`\
 https://nytimes.com/live/2025/07/31/nyregion/nyc-shooting-didarul-islam-funeral
-
-**Bess Wohl’s ‘Liberation’ Is Heading to Broadway This Fall**\
-`The play, which explores the women’s movement of the 1970s and its reverberations in the present, was first staged last winter by Roundabout Theater Company.`\
-https://nytimes.com/2025/07/31/theater/bess-wohl-liberation-broadway.html
-
-**Key Inflation Measure Rose in June, Adding to Pressure on Fed**\
-`The price index was the latest indication that President Trump’s tariffs are beginning to show up in consumer prices.`\
-https://nytimes.com/2025/07/31/business/pce-inflation-fed.html
 
