@@ -1,3 +1,7 @@
+**Fed Up With Netanyahu and Handling of Gaza War, Democrats Rebuke Israel**\
+`Votes in the Senate made clear that the longtime bipartisan consensus in support of Israel is, at least for the moment, in tatters.`\
+https://nytimes.com/2025/07/31/us/politics/democrats-israel-gaza-netanyahu.html
+
 **3 Charged With Abusing Toddlers at Manhattan Branch of Child Care Giant**\
 `The Bright Horizons employees sprayed children in the face with bleach, hit them on the head with metal bottles and, in one instance, covered a girl’s mouth with packing tape, prosecutors said.`\
 https://nytimes.com/2025/07/31/nyregion/bright-horizons-day-care-abuse-manhattan.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6525737/2025/07/31/mlb-rays-adrian-houser-trade/
 **Padres' whirlwind deadline day continues with addition of Nestor Cortes: Source**\
 `The Padres' busy day continued with the addition of a lefty starter who's close to a return from injury.`\
 https://nytimes.com/athletic/6528654/2025/07/31/mlb-padres-nestor-cortes-trade/
-
-**Two Men Charged With Staging Car Crashes in Scheme to Defraud Drivers**\
-`The men orchestrated collisions on New York City highways last year in exchange for payouts from insurance companies, prosecutors said. Video of one of the accidents went viral on TikTok.`\
-https://nytimes.com/2025/07/31/nyregion/nyc-staged-car-accidents-arrest-tiktok.html
 
