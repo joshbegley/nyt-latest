@@ -1,3 +1,7 @@
+**President Trump signs executive order to bring back Presidential Fitness Test**\
+`Thursday's executive order was the latest example of Trump's focus on sports during his second term.`\
+https://nytimes.com/athletic/6528412/2025/07/31/trump-executive-order-presidential-fitness-test/
+
 **Observations from Commanders camp: The rookie everyone is watching**\
 `The seventh-round running back with three names has shined for the Commanders. But why does he go by Bill?`\
 https://nytimes.com/athletic/6527712/2025/07/31/commanders-jacory-croskey-merritt-observations/

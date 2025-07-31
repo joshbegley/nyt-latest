@@ -1,3 +1,7 @@
+**Just Hours Remain Before Trump’s Tariff Deadline**\
+`Also, the U.S. is paying more than 150,000 people not to work. Here’s the latest at the end of Thursday.`\
+https://nytimes.com/2025/07/31/briefing/trump-tariff-deadline-louisiana-deportations.html
+
 **President Trump signs executive order to bring back Presidential Fitness Test**\
 `Thursday's executive order was the latest example of Trump's focus on sports during his second term.`\
 https://nytimes.com/athletic/6528412/2025/07/31/trump-executive-order-presidential-fitness-test/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6518379/2025/07/31/mlb-padres-orioles-ryan-ohearn-r
 **Observations from Commanders camp: The rookie everyone is watching**\
 `The seventh-round running back with three names has shined for the Commanders. But why does he go by Bill?`\
 https://nytimes.com/athletic/6527712/2025/07/31/commanders-jacory-croskey-merritt-observations/
-
-**Neighbors Recall a Grim Day as a Mother Is Charged With Killing Her Sons**\
-`Stephanie Castillo was arraigned on Thursday on charges of killing her twin sons in 2020. Residents of the Bronx building where she lived remember the day the bodies were found.`\
-https://nytimes.com/2025/07/31/nyregion/stephanie-castillo-twins-murder.html
 

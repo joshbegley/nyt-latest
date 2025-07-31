@@ -1,3 +1,7 @@
+**President Trump signs executive order to bring back Presidential Fitness Test**\
+`Thursday's executive order was the latest example of Trump's focus on sports during his second term.`\
+https://nytimes.com/athletic/6528412/2025/07/31/trump-executive-order-presidential-fitness-test/
+
 **Apple Surprises Investors Worried That It Had Lost Its Touch**\
 `Despite recent criticism about its product outlook, the company reported strong sales of iPhones, Macs, iPads and services.`\
 https://nytimes.com/2025/07/31/business/apple-earning-iphone-sales.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6527712/2025/07/31/commanders-jacory-croskey-merrit
 **Neighbors Recall a Grim Day as a Mother Is Charged With Killing Her Sons**\
 `Stephanie Castillo was arraigned on Thursday on charges of killing her twin sons in 2020. Residents of the Bronx building where she lived remember the day the bodies were found.`\
 https://nytimes.com/2025/07/31/nyregion/stephanie-castillo-twins-murder.html
-
-**Women's Open 2025 Round 1: What to know as Japan dominates the leaderboard**\
-`Eri Okayama and Rio Takeda are the co-leaders at 5-under-par through the first round at Royal Porthcawl.`\
-https://nytimes.com/athletic/6528178/2025/07/31/womens-open-2025-round-1-what-to-know-japan-leaderboard/
 
