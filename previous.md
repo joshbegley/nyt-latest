@@ -1,40 +1,40 @@
-**Inside NASCAR's playoff committee: A desire for change, but likely not in 2026**\
-`NASCAR has taken a major step toward shaking up its playoff format. But what will come of it — and when — is still unclear.`\
-https://nytimes.com/athletic/6523713/2025/07/31/nascar-playoff-committee-format-change-2026/
+**What’s a Potato? A Nine-Million-Year-Old Tomato.**\
+`An ancient hybrid of tomatoes and potato-like plants may have given rise to the modern spud, a new study suggests.`\
+https://nytimes.com/2025/07/31/science/evolution-agriculture-tomatoes-potatoes.html
 
-**The Windup: Catch up on a frantic Deadline Eve**\
-`The Windup is The Athletic's free baseball newsletter.`\
-https://nytimes.com/athletic/6527424/2025/07/31/mlb-trade-deadline-the-windup-2/
+**The California Governor’s Race Was in Limbo. Now It’s Wide Open.**\
+`Until she decided not to run, former Vice President Kamala Harris had loomed over the race as a likely favorite. Now, a host of hopefuls are jockeying for advantage.`\
+https://nytimes.com/2025/07/31/us/harris-california-governors-race.html
 
-**Meet Lou Ayeni, the coach developing the Broncos' new backfield at "the speed of trust"**\
-`The assistant who once helped develop David Montgomery and Kareem Hunt into stardom is now tasked with nurturing Broncos rookie RJ Harvey`\
-https://nytimes.com/athletic/6524694/2025/07/31/denver-broncos-lou-ayeni-training-camp-rj-harvey/
+**Nvidia Chips Are Front and Center in China at Crucial Moment in the A.I. Race**\
+`Chinese companies showcased A.I. gains in Shanghai this week. More chips will only help them improve faster, industry insiders say.`\
+https://nytimes.com/2025/07/31/technology/china-ai-nvidia-chips.html
 
-**Arsenal 0-1 Tottenham: First look at Gyokeres, Mosquera, going direct and defensive set-piece issues**\
-`Arsenal's tour ended in defeat to their north London rivals - with two friendlies left before the season starts, how are they looking?`\
-https://nytimes.com/athletic/6526997/2025/07/31/arsenal-gyokeres-spurs-lewis-skelly/
+**Fox corporation purchases one-third of IndyCar company Penske Entertainment**\
+`As part of the arrangement, Fox Sports also extended its media rights deal with IndyCar for several years.`\
+https://nytimes.com/athletic/6527283/2025/07/31/fox-corporation-indycar-purchase-penske-entertainment/
 
-**USMNT's Turner in talks over New England return**\
-`The hope is for the deal for Turner to be completed by the end of the week, sources said.`\
-https://nytimes.com/athletic/6511294/2025/07/31/matt-turner-new-england-revolution/
+**A.I. Researchers Are Negotiating $250 Million Pay Packages. Just Like NBA Stars.**\
+`A.I. technologists are approaching the job market as if they are Steph Curry or LeBron James, seeking advice from their entourages and playing hardball with the highest bidders.`\
+https://nytimes.com/2025/07/31/technology/ai-researchers-nba-stars.html
 
-**Kamala Harris Will Publish a Campaign Memoir This Fall**\
-`The former vice president has written a book about her run for president in 2024. It will come out next month.`\
-https://nytimes.com/2025/07/31/books/kamala-harris-campaign-memoir-107-days.html
+**Verstappen: Time to stop all the rumors, I’ll be racing for Red Bull in 2026**\
+`Verstappen is under contract at Red Bull until 2028, but his future was under scrutiny in recent months amid continued links to Mercedes.`\
+https://nytimes.com/athletic/6527458/2025/07/31/max-verstappen-red-bull-2026/
 
-**Who is Lucas Paqueta? The Premier League player who won his case against betting charges**\
-`The charges for betting breaches against Lucas Paqueta have not been proven. This is his story`\
-https://nytimes.com/athletic/6515216/2025/07/31/lucas-paqueta-betting-west-ham-premier-league/
+**‘Japanese Walking’ Is a Fitness Trend Worth Trying**\
+`The workout is simple, and its health benefits are backed by nearly 20 years of research.`\
+https://nytimes.com/2025/07/31/well/move/japanese-walking-fitness-trend.html
 
-**Lions players to keep an eye on during Hall of Fame Game against Chargers**\
-`The Lions won't have any starters playing in the preseason game, but there are other players worth watching.`\
-https://nytimes.com/athletic/6527166/2025/07/31/lions-game-hall-of-fame-players-to-watch/
+**Virginia Giuffre’s Family Responds to Trump’s Claim That Epstein ‘Stole’ Her**\
+`President Trump’s remarks raised questions about his knowledge of the crimes committed by Jeffrey Epstein and his associate Ghislaine Maxwell, the family said in a statement.`\
+https://nytimes.com/2025/07/31/us/politics/virginia-giuffre-family-trump-epstein.html
 
-**New Implant Offers Hope for Easing Rheumatoid Arthritis**\
-`The device stimulates the vagus nerve, signaling the body to tamp down the inflammation that contributes to the disease.`\
-https://nytimes.com/2025/07/31/health/arthritis-implant-vagus-setpoint.html
+**As Cubs add at trade deadline, Pete Crow-Armstrong is confident in Jed Hoyer**\
+`"I got all the faith in our front office to go do what they feel is right," Armstrong said.`\
+https://nytimes.com/athletic/6527315/2025/07/31/cubs-pete-crow-armstrong-jed-hoyer-trade-deadline/
 
-**Lucas Paqueta betting charges 'found to be not proven', commission says**\
-`The Brazil international, who denied all charges against him, was facing a potential lifetime ban from football if found guilty.`\
-https://nytimes.com/athletic/6515053/2025/07/31/lucas-paqueta-betting-case-west-ham/
+**Museums Lobby Against Strengthening a Holocaust Art Recovery Law**\
+`Museums want Congress to simply renew a law meant to help Holocaust victims and their heirs retrieve works stolen by the Nazis, but a bipartisan group of lawmakers wants to toughen it.`\
+https://nytimes.com/2025/07/31/arts/design/holocaust-art-recovery-law.html
 
