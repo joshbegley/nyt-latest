@@ -1,3 +1,15 @@
+**Law: Mariners upgrade with Eugenio Suárez, D-Backs get 3 prospects**\
+`The Suárez deal brought the D-Backs Tyler Locklear, Hunter Cranton and Juan Burgos and could eventually give them runway for Jordan Lawlar.`\
+https://nytimes.com/athletic/6527118/2025/07/31/keith-law-eugenio-suarez-mariners-dbacks-trade-analysis/
+
+**Ancient Gems Linked to Buddha Are Returned to India**\
+`Sotheby’s had canceled an auction of the Piprahwa Gems after pressure from the Indian government. India said the relics were back in their “rightful home.”`\
+https://nytimes.com/2025/07/31/arts/buddha-jewels-piprahwa-india-return.html
+
+**Trump Tells Russian Official to ‘Watch His Words,’ but He Bites Back Instead**\
+`The former Russian president Dmitri Medvedev offers President Trump a useful foil to criticize without rebuking Vladimir Putin, one analyst said.`\
+https://nytimes.com/2025/07/31/world/europe/trump-medvedev-russia.html
+
 **Here’s the latest.**\
 `By Maia Coleman`\
 https://nytimes.com/live/2025/07/31/nyregion/nyc-shooting-didarul-islam-funeral/heres-the-latest

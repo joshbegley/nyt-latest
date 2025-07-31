@@ -1,3 +1,7 @@
+**A Trump Ally Pressed for a Mexican Citizen’s Release from ICE Custody**\
+`The office of Senator John Kennedy of Louisiana asked the Department of Homeland Security to release the detainee, who is married to a U.S. Marine Corps veteran.`\
+https://nytimes.com/2025/07/31/us/politics/ice-marine-wife-senator-kennedy.html
+
 **Law: Mariners upgrade with Eugenio Suárez, D-Backs get 3 prospects**\
 `The Suárez deal brought the D-Backs Tyler Locklear, Hunter Cranton and Juan Burgos and could eventually give them runway for Jordan Lawlar.`\
 https://nytimes.com/athletic/6527118/2025/07/31/keith-law-eugenio-suarez-mariners-dbacks-trade-analysis/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6526668/2025/07/31/mlb-cubs-andrew-kittredge-trade/
 **Chelsea’s Kendry Paez joins Strasbourg on loan**\
 `Paez only joined Chelsea earlier this summer after an initial transfer agreement with Independiente del Valle in 2023.`\
 https://nytimes.com/athletic/6527049/2025/07/31/chelsea-transfers-strasbourg-kendry-paez/
-
-**What Are the Solutions?**\
-`Dr. Heather Nixon has answers.`\
-https://nytimes.com/2025/07/31/podcasts/serial-newsletter-retrievals-c-sections.html
 
