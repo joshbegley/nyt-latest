@@ -1,3 +1,7 @@
+**Thursday Briefing: Trump’s Steep Tariffs on Brazil**\
+`Plus, U.S.-India trade tensions.`\
+https://nytimes.com/2025/07/31/briefing/brazil-trump-india-trade-us-canada-gaza-palestinian-state.html
+
 **Biofuel Plant in Nebraska Explodes**\
 `Recovery efforts were underway after a deadly explosion at a biofuel plant in Fremont, Neb.`\
 https://nytimes.com/video/us/100000010315649/nebraska-explosion-biofuel-plant.html
