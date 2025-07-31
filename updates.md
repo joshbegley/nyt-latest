@@ -1,3 +1,11 @@
+**A challenge to the suspension of a refugee program established by Congress receives class-action status.**\
+`The ruling`\
+https://nytimes.com/live/2025/07/30/us/trump-news/a-challenge-to-the-suspension-of-a-refugee-program-established-by-congress-receives-class-action-status
+
+**Trump Announces Health Care Records System for Consumers**\
+`The administration is working with tech companies to make sharing information with various providers easier. Experts raised concerns about privacy and security.`\
+https://nytimes.com/2025/07/30/us/politics/trump-health-records-system.html
+
 **Dodgers' Shohei Ohtani exits start with cramps, remains in game at DH**\
 `He was making his seventh pitching appearance in his return from a second major elbow surgery. `\
 https://nytimes.com/athletic/6526256/2025/07/30/los-angeles-dodgers-shohei-ohtani-exits/
