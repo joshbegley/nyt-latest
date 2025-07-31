@@ -1,3 +1,11 @@
+**Law: Mariners upgrade with Eugenio Suárez, Diamondbacks get 3 prospects**\
+`The Suárez deal brought the D-Backs Tyler Locklear, Hunter Cranton and Juan Burgos and could eventually give them runway for Jordan Lawlar.`\
+https://nytimes.com/athletic/6527118/2025/07/31/keith-law-eugenio-suarez-mariners-dbacks-trade-analysis/
+
+**In landing Andrew Kittredge, Cubs set to reinforce bullpen: Source**\
+`After picking up Michael Soroka earlier Wednesday to lengthen their rotation, the Cubs added to their bullpen later in the night.`\
+https://nytimes.com/athletic/6526668/2025/07/31/mlb-cubs-andrew-kittredge-trade/
+
 **Where Blue Jays’ options stand entering trade deadline day**\
 `The Blue Jays can still find back-end bullpen pieces in trades, or cash in on the slowly-developing hitters market.`\
 https://nytimes.com/athletic/6527117/2025/07/31/blue-jays-trade-deadline-day-approach/

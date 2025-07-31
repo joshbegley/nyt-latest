@@ -6,7 +6,7 @@ https://nytimes.com/athletic/6527117/2025/07/31/blue-jays-trade-deadline-day-app
 `The office of Senator John Kennedy of Louisiana asked the Department of Homeland Security to release the detainee, who is married to a U.S. Marine Corps veteran.`\
 https://nytimes.com/2025/07/31/us/politics/ice-marine-wife-senator-kennedy.html
 
-**Law: Mariners upgrade with Eugenio Suárez, D-Backs get 3 prospects**\
+**Law: Mariners upgrade with Eugenio Suárez, Diamondbacks get 3 prospects**\
 `The Suárez deal brought the D-Backs Tyler Locklear, Hunter Cranton and Juan Burgos and could eventually give them runway for Jordan Lawlar.`\
 https://nytimes.com/athletic/6527118/2025/07/31/keith-law-eugenio-suarez-mariners-dbacks-trade-analysis/
 
@@ -35,6 +35,6 @@ https://nytimes.com/2025/07/31/theater/bess-wohl-liberation-broadway.html
 https://nytimes.com/2025/07/31/business/pce-inflation-fed.html
 
 **In landing Andrew Kittredge, Cubs set to reinforce bullpen: Source**\
-`After picking up Michael Soroka from the Washigton Nationals to lengthen the back end of their rotation, the Chicago Cubs were set up to address the bullpen Thursday, trading for Andrew Kittredge of the Baltimore Orioles.`\
+`After picking up Michael Soroka earlier Wednesday to lengthen their rotation, the Cubs added to their bullpen later in the night.`\
 https://nytimes.com/athletic/6526668/2025/07/31/mlb-cubs-andrew-kittredge-trade/
 
