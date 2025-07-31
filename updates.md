@@ -1,3 +1,11 @@
+**Astros to shore up infield with addition of utilityman Ramón Urías: Source**\
+`Urías is making just $3.15 million this season and has one more year of arbitration eligibility.`\
+https://nytimes.com/athletic/6526548/2025/07/30/houston-astros-ramon-urias-trade/
+
+**Key Takeaways From the D.C. Plane Crash Hearing**\
+`After hours of testimony and thousands of pages of new documents, here’s what emerged in the first day of a marathon National Transportation Safety Board hearing.`\
+https://nytimes.com/2025/07/30/us/politics/takeaways-dc-plane-crash-investigation-ntsb.html
+
 **Reds get a defensive upgrade in Ke'Bryan Hayes, but can they get more out of the bat?**\
 `The Pirates receive prospect Sammy Stafura as the main return, a true shortstop with some juice in the bat.`\
 https://nytimes.com/athletic/6526493/2025/07/30/kebryan-hayes-sammy-stafura-pirates-reds-trade-analysis/
