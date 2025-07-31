@@ -1,3 +1,7 @@
+**The New York Times in Print for Thursday, July 31, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/07/31/todays-new-york-times
+
 **Mariners finalizing deal for slugger Eugenio Suárez from Diamondbacks: Source**\
 `All-Star third baseman is set to return to Seattle, where he hit 53 home runs across the 2022 and 2023 seasons.`\
 https://nytimes.com/athletic/6518466/2025/07/31/mlb-mariners-eugenio-suarez-trade/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6510562/2025/07/31/billy-beane-analytics-interview-
 **Football Architects: The England DNA behind the pursuit of tournament-winning teams**\
 `In December 2014, The FA laid out its vision for future internationals to be exceptional across four “corners” - this is what happened next`\
 https://nytimes.com/athletic/6462239/2025/07/31/football-architects-the-england-dna-behind-the-push-for-tournament-winning-teams/
-
-**Lucy Bronze playing on with a fractured tibia: The pain, the preparation, the risk**\
-`How was the defender able to help England win Euro 2025 starting all their six matches with a broken bone in her left leg?`\
-https://nytimes.com/athletic/6522445/2025/07/31/lucy-bronze-broken-tibia-euro-2025/
 
