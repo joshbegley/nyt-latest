@@ -1,3 +1,7 @@
+**Russian Missile and Drone Attack Pummels Kyiv, Killing at Least 6**\
+`The assault came soon after President Trump threatened new sanctions against Moscow if the bloodshed didn’t let up.`\
+https://nytimes.com/2025/07/31/world/europe/ukraine-russia-attack-kyiv.html
+
 **Word of the Day: hirsute**\
 `This word has appeared in five articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2025/07/31/learning/word-of-the-day-hirsute.html
@@ -33,8 +37,4 @@ https://nytimes.com/issue/todayspaper/2025/07/31/todays-new-york-times
 **Mariners finalizing deal for slugger Eugenio Suárez from Diamondbacks: Source**\
 `All-Star third baseman is set to return to Seattle, where he hit 53 home runs across the 2022 and 2023 seasons.`\
 https://nytimes.com/athletic/6518466/2025/07/31/mlb-mariners-eugenio-suarez-trade/
-
-**Thursday Briefing: Trump’s Steep Tariffs on Brazil**\
-`Plus, U.S.-India trade tensions.`\
-https://nytimes.com/2025/07/31/briefing/brazil-trump-india-trade-us-canada-gaza-palestinian-state.html
 
