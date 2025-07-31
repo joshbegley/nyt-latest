@@ -1,3 +1,23 @@
+**Cardinals trade deadline takeaways: 3 reliever trades cap St. Louis sell-off**\
+`The real push for the future begins now with no timetable as to how long it will be before the franchise contends again.`\
+https://nytimes.com/athletic/6527866/2025/07/31/mlb-cardinals-trade-deadline-takeaways/
+
+**Astros deadline takeaways: Jim Crane cements his title as baseball's most aggressive owner**\
+`In almost every case, Crane gets what he desires. Thursday turned out no different.`\
+https://nytimes.com/athletic/6528747/2025/07/31/astros-deadline-takeaways-jim-crane-cements-his-title-as-baseballs-most-aggressive-owner/
+
+**Cubs come up empty on big-time starter, add depth to bullpen and rotation**\
+`The Cubs added three pitchers, but that big name starter or reliever eluded them as the trade deadline came to a close.`\
+https://nytimes.com/athletic/6528750/2025/07/31/cubs-mlb-trade-deadline-takeaways/
+
+**Trump Is Bringing Back the Presidential Fitness Test**\
+`The president signed an executive order on Thursday that would reinstate the test for schoolchildren.`\
+https://nytimes.com/2025/07/31/well/move/trump-presidential-fitness-test.html
+
+**Yankees trade deadline takeaways: Relief is on the way, statement of intent, more versatility**\
+`The new relievers should prove to be the Yankees' most consequential additions. The bullpen should go from a weakness to a major strength. `\
+https://nytimes.com/athletic/6527791/2025/07/31/yankees-trade-deadline-takeaways/
+
 **Padres fix their offense with Ryan O'Hearn, Ramón Laureano at reasonable prospect cost**\
 `The Padres did a better job of addressing their biggest need in their second big trade of the day, adding two legitimate bats to the lineup.`\
 https://nytimes.com/athletic/6528752/2025/07/31/padres-ryan-ohearn-ramon-laureano-orioles-trade-analysis/
