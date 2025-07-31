@@ -1,3 +1,7 @@
+**Padres, still pursuing Jarren Duran and Steven Kwan, also pushing for Mason Miller: Sources**\
+`Miller, who started six games as a rookie in 2023, appeals to San Diego as a pitcher who could be stretched out next season.`\
+https://nytimes.com/athletic/6526296/2025/07/30/san-diego-padres-mason-miller-pursuit/
+
 **Senate Approves Trump’s Pick for Top Counterterrorism Post**\
 `Joe Kent, a former Army Green Beret, had attracted scrutiny over his associations with extremist groups and his promotion of conspiracy theories.`\
 https://nytimes.com/2025/07/30/us/politics/joe-kent-counterterrorism-center.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6525999/2025/07/30/commanders-stadium-d-c-council-h
 **As MLB trade deadline approaches, Guardians ponder plans for Steven Kwan, Shane Bieber**\
 `"I would love to," Kwan said about working out an extension with Cleveland. "I love it here. I love everything about this place."`\
 https://nytimes.com/athletic/6525944/2025/07/30/guardians-mlb-trade-deadline-steven-kwan-shane-bieber/
-
-**How Trump Is Attacking the Legal System, via the Legal System**\
-`The president has an outside-inside strategy to fight the judiciary.`\
-https://nytimes.com/2025/07/30/us/politics/trump-legal-system.html
 

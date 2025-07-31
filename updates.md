@@ -1,3 +1,7 @@
+**Padres, still pursuing Jarren Duran and Steven Kwan, also pushing for Mason Miller: Sources**\
+`Miller, who started six games as a rookie in 2023, appeals to San Diego as a pitcher who could be stretched out next season.`\
+https://nytimes.com/athletic/6526296/2025/07/30/san-diego-padres-mason-miller-pursuit/
+
 **Senate Approves Trump’s Pick for Top Counterterrorism Post**\
 `Joe Kent, a former Army Green Beret, had attracted scrutiny over his associations with extremist groups and his promotion of conspiracy theories.`\
 https://nytimes.com/2025/07/30/us/politics/joe-kent-counterterrorism-center.html
