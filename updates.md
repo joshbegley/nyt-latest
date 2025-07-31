@@ -1,3 +1,7 @@
+**Where Things Might Get Heated**\
+`Alexander Liebeskind’s puzzle bugs me, but in a good way.`\
+https://nytimes.com/2025/07/30/crosswords/daily-puzzle-2025-07-31.html
+
 **Explosion at Nebraska Biofuel Plant Kills 3, Including 2 Girls**\
 `The girls, believed to be under 12 years old, were waiting for a relative who was also killed in the blast, the authorities said.`\
 https://nytimes.com/2025/07/30/us/explosion-at-nebraska-biofuel-plant-kills-3-including-2-girls.html

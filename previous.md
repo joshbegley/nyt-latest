@@ -1,3 +1,7 @@
+**Where Things Might Get Heated**\
+`Alexander Liebeskind’s puzzle bugs me, but in a good way.`\
+https://nytimes.com/2025/07/30/crosswords/daily-puzzle-2025-07-31.html
+
 **Explosion at Nebraska Biofuel Plant Kills 3, Including 2 Girls**\
 `The girls, believed to be under 12 years old, were waiting for a relative who was also killed in the blast, the authorities said.`\
 https://nytimes.com/2025/07/30/us/explosion-at-nebraska-biofuel-plant-kills-3-including-2-girls.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6526256/2025/07/30/los-angeles-dodgers-shohei-ohtan
 **Phillies get an answer to closer woes in Jhoan Duran; Twins nab 2 upside prospects**\
 `Duran helps stop what has been a revolving door at closer for the Phillies, and the Twins get a potential All-Star in Eduardo Tait.`\
 https://nytimes.com/athletic/6526233/2025/07/30/phillies-twins-jhoan-duran-trade-analysis/
-
-**Ronald Acuña Jr. injury update a relief to Braves; Joey Wentz impresses again**\
-`The star right fielder has only a Grade 1 lower-right calf strain, not an Achilles injury.`\
-https://nytimes.com/athletic/6526118/2025/07/30/braves-ronald-acuna-jr-injury-update-joey-wentz/
 
