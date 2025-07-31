@@ -1,3 +1,15 @@
+**$30 Potatoes and $300 Flour in Gaza: Prices So High They’re ‘Meaningless’**\
+`Obtaining humanitarian aid can be difficult and dangerous, and though some essentials are available at markets, they are prohibitively expensive for many Gazans.`\
+https://nytimes.com/2025/07/31/world/middleeast/gaza-market-prices-flour.html
+
+**How to watch the 2025 F1 Hungarian Grand Prix, the final race before summer break**\
+`Precision isn't a luxury at Hungaroring; it's the cost of admission. One mistimed downshift and the summer shutdown starts early.`\
+https://nytimes.com/athletic/6525879/2025/07/31/f1-hungarian-grand-prix-odds-2025-how-to-watch/
+
+**World Athletics confirms gene testing for female eligibility ahead of World Championships**\
+`The new eligibility test will come into effect on September 1, in time for the World Championships. `\
+https://nytimes.com/athletic/6526861/2025/07/31/world-athletics-gene-testing-female-eligibility-world-championships/
+
 **Russian Drones and Missiles Strike Kyiv**\
 `Russia launched a barrage of drones and missiles on the Ukrainian capital early Thursday, killing several people and injuring dozens.`\
 https://nytimes.com/video/world/europe/100000010315797/russia-ukraine-kyiv-strikes-drones-.html
