@@ -1,3 +1,15 @@
+**Padres takeaways from A.J. Preller's wildest trade deadline**\
+`By strip-mining San Diego's farm system, Preller made it clear that the Padres are aiming for the World Series this season.`\
+https://nytimes.com/athletic/6528800/2025/07/31/padres-takeaways-aj-preller-trade-deadline/
+
+**Giants trade deadline takeaways: Selling in the wake of Rafael Devers deal**\
+`San Francisco has struggled since its big deal with Boston in June, making its inactivity at the deadline far from surprising.`\
+https://nytimes.com/athletic/6528418/2025/07/31/giants-trade-deadline-takeaways-selling-in-the-wake-of-rafael-devers-deal/
+
+**Yankees trade deadline takeaways: Relief is on the way after strong mix of moves**\
+`The new relievers should prove to be the Yankees' most consequential additions. The bullpen should go from a weakness to a major strength. `\
+https://nytimes.com/athletic/6527791/2025/07/31/yankees-trade-deadline-takeaways/
+
 **Cardinals trade deadline takeaways: 3 reliever trades cap St. Louis sell-off**\
 `The real push for the future begins now with no timetable as to how long it will be before the franchise contends again.`\
 https://nytimes.com/athletic/6527866/2025/07/31/mlb-cardinals-trade-deadline-takeaways/
