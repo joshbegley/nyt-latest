@@ -23,7 +23,7 @@ https://nytimes.com/athletic/6526344/2025/07/30/free-falling-giants-react-tyler-
 https://nytimes.com/athletic/6526407/2025/07/30/cubs-michael-soroka-nationals-trade-grade/
 
 **Reds are better with Ke'Bryan Hayes, but how much better?**\
-`The 28-year-old Ke’Bryan Hayes, son of former big-leaguer Charlie Hayes, won a Gold Glove in 2023.`\
+`The 28-year-old Hayes, son of former big-leaguer Charlie Hayes, won a Gold Glove in 2023.`\
 https://nytimes.com/athletic/6526338/2025/07/30/cincinnati-reds-kebryan-hayes-trade-analysis/
 
 **Where Things Might Get Heated**\
