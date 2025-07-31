@@ -1,3 +1,15 @@
+**Here’s the latest.**\
+`By Maia Coleman`\
+https://nytimes.com/live/2025/07/31/nyregion/nyc-shooting-didarul-islam-funeral/heres-the-latest
+
+**Live Updates: Crowds Expected for Funeral of Officer Slain in Manhattan**\
+`Mayoral candidates and police officials will be among those attending the ceremony for Police Officer Didarul Islam, who was killed on Monday at an office building in Midtown Manhattan.`\
+https://nytimes.com/live/2025/07/31/nyregion/nyc-shooting-didarul-islam-funeral
+
+**Bess Wohl’s ‘Liberation’ Is Heading to Broadway This Fall**\
+`The play, which explores the women’s movement of the 1970s and its reverberations in the present, was first staged last winter by Roundabout Theater Company.`\
+https://nytimes.com/2025/07/31/theater/bess-wohl-liberation-broadway.html
+
 **Key Inflation Measure Rose in June, Adding to Pressure on Fed**\
 `The price index was the latest indication that President Trump’s tariffs are beginning to show up in consumer prices.`\
 https://nytimes.com/2025/07/31/business/pce-inflation-fed.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6526760/2025/07/31/stl-cardinals-trade-deadline-sel
 **Trump Administration Live Updates: President Criticizes Key Trade Partners as Tariff Deadline Looms**\
 ``\
 https://nytimes.com/live/2025/07/31/us/trump-news
-
-**Chargers preseason preview: 7 things to watch in the Hall of Fame Game**\
-`Can Trey Lance make a case for QB2? How will Zion Johnson look at center? What else is on tap for Thursday's game?`\
-https://nytimes.com/athletic/6525764/2025/07/31/los-angeles-chargers-detroit-lions-preseason-hall-of-fame-game/
-
-**Evgeni Malkin, now 39, is a Penguins legend beyond compare**\
-`Malkin’s skill, emotional play and connection with Pittsburgh are unlikely to be replicated anytime soon.`\
-https://nytimes.com/athletic/6516136/2025/07/31/penguins-evgeni-malkin-legacy-nhl/
-
-**Forest confirm signing of winger Ndoye in club-record deal**\
-`The 24-year-old scored nine goals last season including the winning goal in the Coppa Italia final against Milan.`\
-https://nytimes.com/athletic/6520358/2025/07/31/nottingham-forest-confirm-signing-of-bologna-winger-dan-ndoye-in-club-record-deal/
 

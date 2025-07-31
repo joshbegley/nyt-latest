@@ -1,3 +1,15 @@
+**Here’s the latest.**\
+`By Maia Coleman`\
+https://nytimes.com/live/2025/07/31/nyregion/nyc-shooting-didarul-islam-funeral/heres-the-latest
+
+**Live Updates: Crowds Expected for Funeral of Officer Slain in Manhattan**\
+`Mayoral candidates and police officials will be among those attending the ceremony for Police Officer Didarul Islam, who was killed on Monday at an office building in Midtown Manhattan.`\
+https://nytimes.com/live/2025/07/31/nyregion/nyc-shooting-didarul-islam-funeral
+
+**Bess Wohl’s ‘Liberation’ Is Heading to Broadway This Fall**\
+`The play, which explores the women’s movement of the 1970s and its reverberations in the present, was first staged last winter by Roundabout Theater Company.`\
+https://nytimes.com/2025/07/31/theater/bess-wohl-liberation-broadway.html
+
 **Key Inflation Measure Rose in June, Adding to Pressure on Fed**\
 `The price index was the latest indication that President Trump’s tariffs are beginning to show up in consumer prices.`\
 https://nytimes.com/2025/07/31/business/pce-inflation-fed.html
