@@ -1,9 +1,13 @@
+**Senate Approves Trump’s Pick for Top Counterterrorism Post**\
+`Joe Kent, a former Army Green Beret, had attracted scrutiny over his associations with extremist groups and his promotion of conspiracy theories.`\
+https://nytimes.com/2025/07/30/us/politics/joe-kent-counterterrorism-center.html
+
 **Dodgers' Shohei Ohtani exits start early, remains in game at DH**\
 `He was making his seventh pitching appearance in his return from a second major elbow surgery. `\
 https://nytimes.com/athletic/6526256/2025/07/30/los-angeles-dodgers-shohei-ohtani-exits/
 
 **Phillies get an answer to closer woes in Jhoan Duran; Twins nab 2 upside prospects**\
-`Duran helps stop what has been a revolving door at closer for the Phillies, while the Twins get a potential All-Star in Eduardo Tait.`\
+`Duran helps stop what has been a revolving door at closer for the Phillies, and the Twins get a potential All-Star in Eduardo Tait.`\
 https://nytimes.com/athletic/6526233/2025/07/30/phillies-twins-jhoan-duran-trade-analysis/
 
 **Ronald Acuña Jr. injury update a relief to Braves; Joey Wentz impresses again**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6525944/2025/07/30/guardians-mlb-trade-deadline-ste
 **How Trump Is Attacking the Legal System, via the Legal System**\
 `The president has an outside-inside strategy to fight the judiciary.`\
 https://nytimes.com/2025/07/30/us/politics/trump-legal-system.html
-
-**The Changing Map of Palestinian Recognition**\
-`In the past week alone, three new countries have said they are ready to bestow recognition on a Palestinian state.`\
-https://nytimes.com/2025/07/30/world/middleeast/palestinian-state-recognition-maps.html
 

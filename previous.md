@@ -1,5 +1,9 @@
-**Phillies get an answer to closer woes in Jhoan Durán; Twins nab 2 upside prospects**\
-`Durán helps stop what has been a revolving door at closer for the Phillies, while the Twins get a potential All-Star in Eduardo Tait.`\
+**Dodgers' Shohei Ohtani exits start early, remains in game at DH**\
+`He was making his seventh pitching appearance in his return from a second major elbow surgery. `\
+https://nytimes.com/athletic/6526256/2025/07/30/los-angeles-dodgers-shohei-ohtani-exits/
+
+**Phillies get an answer to closer woes in Jhoan Duran; Twins nab 2 upside prospects**\
+`Duran helps stop what has been a revolving door at closer for the Phillies, while the Twins get a potential All-Star in Eduardo Tait.`\
 https://nytimes.com/athletic/6526233/2025/07/30/phillies-twins-jhoan-duran-trade-analysis/
 
 **Ronald Acuña Jr. injury update a relief to Braves; Joey Wentz impresses again**\
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/30/us/politics/trump-legal-system.html
 **The Changing Map of Palestinian Recognition**\
 `In the past week alone, three new countries have said they are ready to bestow recognition on a Palestinian state.`\
 https://nytimes.com/2025/07/30/world/middleeast/palestinian-state-recognition-maps.html
-
-**Judge Excoriates Trump Officials for Violations of Laws on Voice of America**\
-`The judge had ruled that the administration must restore news programming at Voice of America and has brought back only a fraction of the coverage it provided.`\
-https://nytimes.com/2025/07/30/us/politics/judge-excoriates-trump-officials-for-violations-of-laws-on-voice-of-america.html
 

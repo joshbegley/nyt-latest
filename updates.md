@@ -1,3 +1,11 @@
+**Dodgers' Shohei Ohtani exits start early, remains in game at DH**\
+`He was making his seventh pitching appearance in his return from a second major elbow surgery. `\
+https://nytimes.com/athletic/6526256/2025/07/30/los-angeles-dodgers-shohei-ohtani-exits/
+
+**Phillies get an answer to closer woes in Jhoan Duran; Twins nab 2 upside prospects**\
+`Duran helps stop what has been a revolving door at closer for the Phillies, while the Twins get a potential All-Star in Eduardo Tait.`\
+https://nytimes.com/athletic/6526233/2025/07/30/phillies-twins-jhoan-duran-trade-analysis/
+
 **Phillies get an answer to closer woes in Jhoan Durán; Twins nab 2 upside prospects**\
 `Durán helps stop what has been a revolving door at closer for the Phillies, while the Twins get a potential All-Star in Eduardo Tait.`\
 https://nytimes.com/athletic/6526233/2025/07/30/phillies-twins-jhoan-duran-trade-analysis/
