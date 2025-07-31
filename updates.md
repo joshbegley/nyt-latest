@@ -1,3 +1,11 @@
+**Inside NASCAR's playoff committee: A desire for change, but likely not in 2026**\
+`NASCAR has taken a major step toward shaking up its playoff format. But what will come of it — and when — is still unclear.`\
+https://nytimes.com/athletic/6523713/2025/07/31/nascar-playoff-committee-format-change-2026/
+
+**The Windup: Catch up on a frantic Deadline Eve**\
+`The Windup is The Athletic's free baseball newsletter.`\
+https://nytimes.com/athletic/6527424/2025/07/31/mlb-trade-deadline-the-windup-2/
+
 **Chelsea sign teenager Derry signing after Palace exit**\
 `The 18-year-old refused to sign a professional deal at Palace, who are now expected to be awarded a significant fee in compensation.`\
 https://nytimes.com/athletic/6527251/2025/07/31/chelsea-tranfer-jesse-derry-crystal-palace/

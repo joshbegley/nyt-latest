@@ -1,3 +1,11 @@
+**Inside NASCAR's playoff committee: A desire for change, but likely not in 2026**\
+`NASCAR has taken a major step toward shaking up its playoff format. But what will come of it — and when — is still unclear.`\
+https://nytimes.com/athletic/6523713/2025/07/31/nascar-playoff-committee-format-change-2026/
+
+**The Windup: Catch up on a frantic Deadline Eve**\
+`The Windup is The Athletic's free baseball newsletter.`\
+https://nytimes.com/athletic/6527424/2025/07/31/mlb-trade-deadline-the-windup-2/
+
 **Meet Lou Ayeni, the coach developing the Broncos' new backfield at "the speed of trust"**\
 `The assistant who once helped develop David Montgomery and Kareem Hunt into stardom is now tasked with nurturing Broncos rookie RJ Harvey`\
 https://nytimes.com/athletic/6524694/2025/07/31/denver-broncos-lou-ayeni-training-camp-rj-harvey/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/07/31/health/arthritis-implant-vagus-setpoint.html
 **Lucas Paqueta betting charges 'found to be not proven', commission says**\
 `The Brazil international, who denied all charges against him, was facing a potential lifetime ban from football if found guilty.`\
 https://nytimes.com/athletic/6515053/2025/07/31/lucas-paqueta-betting-case-west-ham/
-
-**NHL's best and worst contracts. Plus: The Hockey Hall of Fame debate I dread**\
-`Good morning to everyone except the guy who threw a live chicken on the ice during a Kings game in 1988.`\
-https://nytimes.com/athletic/6527209/2025/07/31/nhl-contract-ranking-red-light-newsletter/
-
-**Chelsea sign teenager Derry signing after Palace exit**\
-`The 18-year-old refused to sign a professional deal at Palace, who are now expected to be awarded a significant fee in compensation.`\
-https://nytimes.com/athletic/6527251/2025/07/31/chelsea-tranfer-jesse-derry-crystal-palace/
 
