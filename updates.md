@@ -1,3 +1,7 @@
+**Summer McIntosh sets world championship record, wins third gold in three tries**\
+`The Canadian star challenged the all-time mark in the women's 200-meter butterfly and continued her perfect string of races in Singapore.`\
+https://nytimes.com/athletic/6526914/2025/07/31/summer-mcintosh-leon-marchand-200-butterfly-medley-world-championships/
+
 **The 8 biggest storylines to watch for on MLB trade deadline day**\
 `The Cubs, Padres, Red Sox, Mets and Phillies are among the key teams whose moves (or lack of them) will likely shape tdeadline day.`\
 https://nytimes.com/athletic/6526906/2025/07/31/mlb-trade-deadline-storylines-pitchers/
