@@ -1,3 +1,27 @@
+**One-man, first-round PPR fantasy football 2025 mock draft: Who to prioritize?**\
+`The 2025 fantasy football season is odd, with no consensus top pick or first-round path. Gary Davenport mocks his first round to help. `\
+https://nytimes.com/athletic/6527551/2025/07/31/fantasy-football-2025-ppr-mock-draft-first-round/
+
+**A Short History of Awkward Gift Giving Between U.S. and U.K. Leaders**\
+`For foreign leaders seeking to woo President Trump, a thoughtful gift is a time-honored diplomatic tactic. But there are pitfalls.`\
+https://nytimes.com/2025/07/31/world/europe/uk-us-leader-gifts.html
+
+**Robbery of U.K. Royal Family’s Items Leads to $4 Million Insurance Payment**\
+`Two centuries-old snuff boxes adorned with diamonds and gold were among several artifacts stolen in a violent museum heist in Paris last year.`\
+https://nytimes.com/2025/07/31/arts/design/uk-royal-family-robbery-insurance-payment.html
+
+**She Came Face to Face With the Park Avenue Gunman and Survived**\
+`Sebije Nelovic, who has cleaned the Manhattan office building that was the site of the shooting for 27 years, was dusting a table that Monday evening. Then she heard gunfire.`\
+https://nytimes.com/2025/07/31/nyregion/park-avenue-shooting-sebije-nelovic.html
+
+**Phillies acquire defensive wizard Harrison Bader from Twins**\
+`The 2021 Gold Glove winner has produced five outs above average this season.`\
+https://nytimes.com/athletic/6524953/2025/07/31/mlb-phillies-harrison-bader-trade/
+
+**One big question for each American League team, 5 hours before the trade deadlineThe**\
+`What would it take to move Steven Kwan? Could the Astros bring back Carlos Correa? Time is ticking on the deadline.`\
+https://nytimes.com/athletic/6527796/2025/07/31/mlb-trade-deadline-questions-2/
+
 **Scoop City: NFL's 2025 All-Hype Offense**\
 `Inside: Our first Offseason All-Hype Team (offense only) and how the NFL Top 100 gets made`\
 https://nytimes.com/athletic/6527785/2025/07/31/nfl-offseason-hype-standouts-scoop-city/
@@ -13,28 +37,4 @@ https://nytimes.com/2025/07/31/books/review/new-book-recommendations.html
 **Peach Bingo!**\
 `Everyone’s a winner with no-cook cold tofu salad with peaches, peaches and cucumbers with gochujang vinaigrette and peach tea.`\
 https://nytimes.com/2025/07/31/dining/vegetarian-peach-recipes-for-summer.html
-
-**Feeding the Limitless Maine Lobster Roll Boom, Seafloor to Summer Table**\
-`At one of the most renowned lobster shacks — and across the country — the star dish just keeps getting more popular.`\
-https://nytimes.com/2025/07/31/dining/maine-lobster-roll-shacks.html
-
-**Tour de France Femmes: Squiban wins Stage 6, Le Court keeps yellow**\
-`See the results from Stage 6 here as The Athletic covers the Tour de France Femmes. `\
-https://nytimes.com/athletic/6526915/2025/07/31/tour-de-france-femmes-maeva-squiban-stage-six/
-
-**Tigers add to bullpen, acquire Kyle Finnegan from Nationals: Source**\
-`Finnegan has closing experience and Detroit could use him in a high-leverage relief role. `\
-https://nytimes.com/athletic/6527763/2025/07/31/mlb-tigers-kyle-finnegan-trade/
-
-**England team received 3,000 'hostile' posts during Euro 2025 final, report finds**\
-`A report by Moonshot found that the majority of the social media posts remained up several days after the final, despite being reported.`\
-https://nytimes.com/athletic/6527679/2025/07/31/england-euro-2025-social-media-abuse/
-
-**Lithuania’s Prime Minister Steps Down Amid Pressure**\
-`Prime Minister Gintautas Paluckas’s business dealings are under investigation by Lithuanian authorities.`\
-https://nytimes.com/2025/07/31/world/europe/lithuania-prime-minister-steps-down.html
-
-**Massachusetts Governor Proposes $400 Million for Colleges, Citing Federal ‘Uncertainty’**\
-`The plan would help support research projects and jobs connected with colleges and universities in the state, which have faced funding cuts by the Trump administration.`\
-https://nytimes.com/2025/07/31/us/politics/massachusetts-healey-trump-funding.html
 
