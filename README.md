@@ -1,3 +1,31 @@
+**Biofuel Plant in Nebraska Explodes**\
+`Recovery efforts were underway after a deadly explosion at a biofuel plant in Fremont, Neb.`\
+https://nytimes.com/video/us/100000010315649/nebraska-explosion-biofuel-plant.html
+
+**Barcelona have a new La Masia star shining on tour. Introducing... Pedro Fernandez**\
+`Barcelona's latest youth academy sensation scored a stunning goal on Sunday. Here's what to know about his story so far`\
+https://nytimes.com/athletic/6524918/2025/07/31/barcelona-dro-pedro-fernandez-la-masia/
+
+**Inside Leeds United's Igor Paixao pain and where they go next**\
+`Leeds cannot afford for next May’s reflections to be focused on the star player they needed but didn’t get this summer.`\
+https://nytimes.com/athletic/6525340/2025/07/31/leeds-igor-paixao-transfer-what-next/
+
+**Arsenal fans across continents: 3am kick-offs, church services, and Bergkamp DVDs**\
+`What is it like to be an international fan? The Athletic has spoken to five people, across five continents, to find out`\
+https://nytimes.com/athletic/6512697/2025/07/31/arsenal-fans-across-continents-3am-kick-offs-church-services-and-bergkamp-dvds/
+
+**Man Arrested in Killing of Arkansas Couple**\
+`The man, James Andrew McGann, was charged with two counts of capital murder. The couple was killed while hiking with their young daughters on Saturday.`\
+https://nytimes.com/2025/07/31/us/arkansas-murder-arrest.html
+
+**An audience with Billy Beane: Moneyball, sport's data revolution, and his role as a 'Trojan horse'**\
+`Beane and one of 'the really smart' people around him, Luke Bornn, discuss soccer recruitment, baseball, Sir Alex Ferguson and Mohamed Salah`\
+https://nytimes.com/athletic/6510562/2025/07/31/billy-beane-analytics-interview-soccer-baseball-salah-tactics/
+
+**Football Architects: The England DNA behind the pursuit of tournament-winning teams**\
+`In December 2014, The FA laid out its vision for future internationals to be exceptional across four “corners” - this is what happened next`\
+https://nytimes.com/athletic/6462239/2025/07/31/football-architects-the-england-dna-behind-the-push-for-tournament-winning-teams/
+
 **Lucy Bronze playing on with a fractured tibia: The pain, the preparation, the risk**\
 `How was the defender able to help England win Euro 2025 starting all their six matches with a broken bone in her left leg?`\
 https://nytimes.com/athletic/6522445/2025/07/31/lucy-bronze-broken-tibia-euro-2025/
@@ -9,32 +37,4 @@ https://nytimes.com/athletic/6519681/2025/07/31/keinan-davis-interview-udinese-a
 **More Than 1,000 Troops Are Withdrawn From L.A.**\
 `The move continues a scaling back of President Trump’s military deployment in Southern California that began on June 7.`\
 https://nytimes.com/2025/07/31/us/troop-withdrawal-los-angeles.html
-
-**Colwill interview: 'I grew up underprivileged. I want to help as many kids as possible'**\
-`Levi Colwill spoke to The Athletic about his involvement at Sholing FC and his hopes for Chelsea this season`\
-https://nytimes.com/athletic/6522164/2025/07/31/levi-colwill-interview-chelsea-club-world-cup/
-
-**Sneaking Into the Spy Museum’s New Vault**\
-`For years, the more than 10,000 items in the International Spy Museum’s collection were stored at a location outside Washington. That changed this summer.`\
-https://nytimes.com/2025/07/31/arts/international-spy-museum-vault-washington.html
-
-**FIFPro playing sports politics, not interested in solving problems – FIFA chief Garcia**\
-`García criticized FIFPro president Sergio Marchi for making personal attacks against FIFA president Gianni Infantino.`\
-https://nytimes.com/athletic/6525749/2025/07/31/fifpro-fifa-infantino-garcia-marchi/
-
-**Quote of the Day: Earthquake Rattles Russia’s East but Causes Little Damage**\
-`Quotation of the Day for Thursday, July 31, 2025.`\
-https://nytimes.com/2025/07/31/pageoneplus/quote-of-the-day-earthquake-rattles-russias-east-but-causes-little-damage.html
-
-**Second Time’s a Charm for Zena Cardman as She Heads to the Space Station**\
-`Cardman, who leads a crew of astronauts to the station on Thursday, was bumped from a similar mission last year.`\
-https://nytimes.com/2025/07/31/science/nasa-astronauts-spacex.html
-
-**Connections: Sports Edition Coach: Hints for July 31, 2025**\
-`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
-https://nytimes.com/athletic/6524710/2025/07/31/connections-sports-edition-hints-for-july-31-2025/
-
-**China’s Small Workshops Are Hurting. Trump’s Tariffs Are Only One Reason.**\
-`The U.S.-Chinese cease-fire left exporters with crippling tariffs, worsening a slowdown for light-industry factories caused by China’s shift to advanced manufacturing.`\
-https://nytimes.com/2025/07/31/business/guangzhou-china-factories-tariffs.html
 

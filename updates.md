@@ -1,3 +1,7 @@
+**Lucy Bronze playing on with a fractured tibia: The pain, the preparation, the risk**\
+`How was the defender able to help England win Euro 2025 starting all their six matches with a broken bone in her left leg?`\
+https://nytimes.com/athletic/6522445/2025/07/31/lucy-bronze-broken-tibia-euro-2025/
+
 **"The Premier League is a lot of people's goals. But mine's not - I just want to play well"**\
 `The 27-year-old striker has packed plenty into his career since Villa signed him from non-League - he's now enjoying life in Italy`\
 https://nytimes.com/athletic/6519681/2025/07/31/keinan-davis-interview-udinese-aston-villa-forest/
