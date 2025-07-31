@@ -1,3 +1,15 @@
+**Massachusetts governor proposes $400 million for colleges, citing federal ‘uncertainty.’**\
+`By Chris Hippensteel`\
+https://nytimes.com/live/2025/07/31/us/trump-news/massachusetts-governor-proposes-400-million-for-colleges-citing-federal-uncertainty
+
+**Arsenal fans delight in first foreign NLD: 'Hong Kong flooded red and white – words cannot describe that feeling'**\
+`The first north London derby staged in Hong Kong shows Asian fans can display the same fervour as those back home`\
+https://nytimes.com/athletic/6527466/2025/07/31/arsenal-fans-tottenham-hong-kong/
+
+**‘Chief of War’ Review: Battleground Hawaii**\
+`Jason Momoa stars in an Apple TV+ series that turns Hawaiian history into bloody spectacle.`\
+https://nytimes.com/2025/07/31/arts/television/chief-of-war-review.html
+
 **The U.S. imposed visa bans on Palestinian officials.**\
 `By Michael Crowley`\
 https://nytimes.com/live/2025/07/31/us/trump-news/palestinian-visa-bans
@@ -21,16 +33,4 @@ https://nytimes.com/2025/07/31/us/politics/trump-tariffs-mexico-extension.html
 **3 Book Critics Recommend Road Trip Novels**\
 `Dwight Garner, Alexandra Jacobs and Jennifer Szalai, book critics at The New York Times, recommend three road trip books.`\
 https://nytimes.com/video/books/100000010302176/3-book-critics-recommend-road-trip-novels.html
-
-**Energy Dept. Attacks Climate Science in Contentious Report**\
-`The agency asked five climate skeptics to write a report criticizing the consensus on global warming. Scientists are pointing out its errors.`\
-https://nytimes.com/2025/07/31/climate/trump-climate-skeptics-science-report.html
-
-**More Than 150,000 Federal Workers Accepted Trump’s Resignation Incentives**\
-`A new government estimate, along with a study by the nonprofit Partnership for Public Service, provides a long-awaited window into the scale of the departures.`\
-https://nytimes.com/2025/07/31/us/politics/firings-federal-workers-trump-administration.html
-
-**Tracking Tropical Storm Gil**\
-`See the likely path and wind arrival times for Gil`\
-https://nytimes.com/interactive/2025/07/31/weather/gil-map-path-tracker.html
 

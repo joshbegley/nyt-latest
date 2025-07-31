@@ -1,6 +1,14 @@
+**England team received 3,000 'hostile' posts during Euro 2025 final, report finds**\
+`A report by Moonshot found that the majority of the social media posts remained up several days after the final, despite being reported.`\
+https://nytimes.com/athletic/6527679/2025/07/31/england-euro-2025-social-media-abuse/
+
+**Lithuania’s Prime Minister Steps Down Amid Pressure**\
+`Prime Minister Gintautas Paluckas’s business dealings are under investigation by Lithuanian authorities.`\
+https://nytimes.com/2025/07/31/world/europe/lithuania-prime-minister-steps-down.html
+
 **Massachusetts governor proposes $400 million for colleges, citing federal ‘uncertainty.’**\
 `By Chris Hippensteel`\
-https://nytimes.com/live/2025/07/31/us/trump-news/massachusetts-governor-proposes-400-million-for-colleges-citing-federal-uncertainty
+https://nytimes.com/live/2025/07/31/us/trump-news/massachusetts-healey-trump-funding
 
 **Arsenal fans delight in first foreign NLD: 'Hong Kong flooded red and white – words cannot describe that feeling'**\
 `The first north London derby staged in Hong Kong shows Asian fans can display the same fervour as those back home`\
@@ -29,8 +37,4 @@ https://nytimes.com/athletic/6527513/2025/07/31/mason-miller-trade-grades-padres
 **Trump Announces 90-Day Extension for Mexico in Trade Talks**\
 `The extension gives Mexico more time to reach a trade deal with the United States and avert, for now, heavier tariffs President Trump has threatened to impose on Friday.`\
 https://nytimes.com/2025/07/31/us/politics/trump-tariffs-mexico-extension.html
-
-**3 Book Critics Recommend Road Trip Novels**\
-`Dwight Garner, Alexandra Jacobs and Jennifer Szalai, book critics at The New York Times, recommend three road trip books.`\
-https://nytimes.com/video/books/100000010302176/3-book-critics-recommend-road-trip-novels.html
 

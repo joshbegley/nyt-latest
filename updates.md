@@ -1,3 +1,15 @@
+**Massachusetts governor proposes $400 million for colleges, citing federal ‘uncertainty.’**\
+`By Chris Hippensteel`\
+https://nytimes.com/live/2025/07/31/us/trump-news/massachusetts-governor-proposes-400-million-for-colleges-citing-federal-uncertainty
+
+**Arsenal fans delight in first foreign NLD: 'Hong Kong flooded red and white – words cannot describe that feeling'**\
+`The first north London derby staged in Hong Kong shows Asian fans can display the same fervour as those back home`\
+https://nytimes.com/athletic/6527466/2025/07/31/arsenal-fans-tottenham-hong-kong/
+
+**‘Chief of War’ Review: Battleground Hawaii**\
+`Jason Momoa stars in an Apple TV+ series that turns Hawaiian history into bloody spectacle.`\
+https://nytimes.com/2025/07/31/arts/television/chief-of-war-review.html
+
 **The U.S. imposed visa bans on Palestinian officials.**\
 `By Michael Crowley`\
 https://nytimes.com/live/2025/07/31/us/trump-news/palestinian-visa-bans
