@@ -1,3 +1,11 @@
+**In landing Andrew Kittredge, Cubs set to reinforce bullpen: Source**\
+`After picking up Michael Soroka from the Washigton Nationals to lengthen the back end of their rotation, the Chicago Cubs were set up to address the bullpen Thursday, trading for Andrew Kittredge of the Baltimore Orioles.`\
+https://nytimes.com/athletic/6526668/2025/07/31/mlb-cubs-andrew-kittredge-trade/
+
+**Chelsea’s Kendry Paez joins Strasbourg on loan**\
+`Paez only joined Chelsea earlier this summer after an initial transfer agreement with Independiente del Valle in 2023.`\
+https://nytimes.com/athletic/6527049/2025/07/31/chelsea-transfers-strasbourg-kendry-paez/
+
 **What Are the Solutions?**\
 `Dr. Heather Nixon has answers.`\
 https://nytimes.com/2025/07/31/podcasts/serial-newsletter-retrievals-c-sections.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6520358/2025/07/31/nottingham-forest-confirm-signin
 **Flyers fan survey results: Solid support for Briere, Tocchet; Michkov will be a star**\
 `Most fans seem pleased with the Flyers' offseason work.`\
 https://nytimes.com/athletic/6525503/2025/07/31/flyers-survey-briere-tocchet/
-
-**Wild fan survey results: Faith in Guerin holds, but a lot rides on what comes next**\
-`With the Parise-Suter buyout penalties ending and Kaprizov's and Rossi's futures in flux, the Wild are at a crossroads — and fans feel it.`\
-https://nytimes.com/athletic/6523111/2025/07/31/wild-fan-survey-guerin-kaprizov-rossi/
-
-**Modi’s ‘True Friend’ Trump Deals India Another Blow With Tariff Threats**\
-`India’s prime minister has made a big effort to build closer ties using his rapport with the U.S. president, but critics say he is getting little in return.`\
-https://nytimes.com/2025/07/31/world/asia/modi-trump-india-tariffs.html
 

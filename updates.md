@@ -1,3 +1,11 @@
+**In landing Andrew Kittredge, Cubs set to reinforce bullpen: Source**\
+`After picking up Michael Soroka from the Washigton Nationals to lengthen the back end of their rotation, the Chicago Cubs were set up to address the bullpen Thursday, trading for Andrew Kittredge of the Baltimore Orioles.`\
+https://nytimes.com/athletic/6526668/2025/07/31/mlb-cubs-andrew-kittredge-trade/
+
+**Chelsea’s Kendry Paez joins Strasbourg on loan**\
+`Paez only joined Chelsea earlier this summer after an initial transfer agreement with Independiente del Valle in 2023.`\
+https://nytimes.com/athletic/6527049/2025/07/31/chelsea-transfers-strasbourg-kendry-paez/
+
 **What Are the Solutions?**\
 `Dr. Heather Nixon has answers.`\
 https://nytimes.com/2025/07/31/podcasts/serial-newsletter-retrievals-c-sections.html
