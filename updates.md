@@ -1,3 +1,23 @@
+**Fossil Fuel Companies’ Profitable Bet on Trump**\
+`Three big numbers that show how President Trump has directed tens of billions of dollars in incentives to fossil fuel companies.`\
+https://nytimes.com/2025/07/31/climate/trump-oil-and-gas-companies.html
+
+**Yankees keep stockpiling relievers by adding Jake Bird from Rockies: Sources**\
+`Colorado gets second baseman Roc Riggio and left-hander Ben Shields.`\
+https://nytimes.com/athletic/6528208/2025/07/31/mlb-yankees-jake-bird-trade/
+
+**Canadian Wildfire Smoke Prompts Air Quality Alerts Across the Great Lakes Region**\
+`The smoke is expected to remain over the northern and central Plains of the United States for the next couple of days, according to meteorologists.`\
+https://nytimes.com/2025/07/31/weather/canada-wildfire-air-quality-smoke-midwest.html
+
+**Mets try to boost OF production with trade for Cedric Mullins from Orioles: Sources**\
+`He’s not the All-Star he was earlier in his career, but he remains a good base runner, a league-average hitter, and a decent defender.`\
+https://nytimes.com/athletic/6519541/2025/07/31/mlb-mets-cedric-mullins-trade/
+
+**Trade grade: Padres deal 2 arms to bolster weakness by adding catcher Freddy Fermin from Royals**\
+`The addition bolsters a positional weakness that has plagued the Padres for much of the season.`\
+https://nytimes.com/athletic/6528022/2025/07/31/mlb-padres-freddy-fermin-trade/
+
 **Mary K. Gaillard, 86, Physicist Who Probed the Subatomic Universe, Dies**\
 `Although she faced discrimination from her mostly male colleagues, she did groundbreaking work that showed experimentalist physicists where and how to look for new particles.`\
 https://nytimes.com/2025/07/31/science/mary-k-gaillard-dead.html
