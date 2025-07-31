@@ -18,8 +18,8 @@ https://nytimes.com/athletic/6527679/2025/07/31/england-euro-2025-social-media-a
 `Prime Minister Gintautas Paluckas’s business dealings are under investigation by Lithuanian authorities.`\
 https://nytimes.com/2025/07/31/world/europe/lithuania-prime-minister-steps-down.html
 
-**Massachusetts governor proposes $400 million for colleges, citing federal ‘uncertainty.’**\
-`The plan would help support research projects and jobs connected with schools, which have faced funding cuts by the Trump administration.`\
+**Massachusetts Governor Proposes $400 Million for Colleges, Citing Federal ‘Uncertainty’**\
+`The plan would help support research projects and jobs connected with colleges and universities in the state, which have faced funding cuts by the Trump administration.`\
 https://nytimes.com/2025/07/31/us/politics/massachusetts-healey-trump-funding.html
 
 **Arsenal fans delight in first foreign NLD: 'Hong Kong flooded red and white – words cannot describe that feeling'**\

@@ -1,3 +1,15 @@
+**Feeding the Limitless Maine Lobster Roll Boom, Seafloor to Summer Table**\
+`At one of the most renowned lobster shacks — and across the country — the star dish just keeps getting more popular.`\
+https://nytimes.com/2025/07/31/dining/maine-lobster-roll-shacks.html
+
+**Tour de France Femmes: Squiban wins Stage 6, Le Court keeps yellow**\
+`See the results from Stage 6 here as The Athletic covers the Tour de France Femmes. `\
+https://nytimes.com/athletic/6526915/2025/07/31/tour-de-france-femmes-maeva-squiban-stage-six/
+
+**Tigers add to bullpen, acquire Kyle Finnegan from Nationals: Source**\
+`Finnegan has closing experience and Detroit could use him in a high-leverage relief role. `\
+https://nytimes.com/athletic/6527763/2025/07/31/mlb-tigers-kyle-finnegan-trade/
+
 **England team received 3,000 'hostile' posts during Euro 2025 final, report finds**\
 `A report by Moonshot found that the majority of the social media posts remained up several days after the final, despite being reported.`\
 https://nytimes.com/athletic/6527679/2025/07/31/england-euro-2025-social-media-abuse/
@@ -7,8 +19,8 @@ https://nytimes.com/athletic/6527679/2025/07/31/england-euro-2025-social-media-a
 https://nytimes.com/2025/07/31/world/europe/lithuania-prime-minister-steps-down.html
 
 **Massachusetts governor proposes $400 million for colleges, citing federal ‘uncertainty.’**\
-`By Chris Hippensteel`\
-https://nytimes.com/live/2025/07/31/us/trump-news/massachusetts-healey-trump-funding
+`The plan would help support research projects and jobs connected with schools, which have faced funding cuts by the Trump administration.`\
+https://nytimes.com/2025/07/31/us/politics/massachusetts-healey-trump-funding.html
 
 **Arsenal fans delight in first foreign NLD: 'Hong Kong flooded red and white – words cannot describe that feeling'**\
 `The first north London derby staged in Hong Kong shows Asian fans can display the same fervour as those back home`\
@@ -25,16 +37,4 @@ https://nytimes.com/live/2025/07/31/us/trump-news/palestinian-visa-bans
 **Major Study on Transgender Youth Health Care to Begin in U.K.**\
 `Researchers at King’s College London will track the experiences of up to 3,000 children and teenagers who are being treated by Britain’s health service.`\
 https://nytimes.com/2025/07/31/world/europe/transgender-children-health-study-uk-nhs.html
-
-**How Shane Bieber reshapes the Blue Jays’ starting rotation**\
-`The former Cy Young winner comes with obvious risk, but it’s a gamble the Jays were willing to make.`\
-https://nytimes.com/athletic/6527525/2025/07/31/shane-bieber-blue-jays-starting-rotation/
-
-**Trade Grades: With Mason Miller deal, Padres GM A.J. Preller did what he does best**\
-`The Padres were bold. The Athletics were smart. Sometimes, a trade really does look great for both sides.  `\
-https://nytimes.com/athletic/6527513/2025/07/31/mason-miller-trade-grades-padres-athletics-preller/
-
-**Trump Announces 90-Day Extension for Mexico in Trade Talks**\
-`The extension gives Mexico more time to reach a trade deal with the United States and avert, for now, heavier tariffs President Trump has threatened to impose on Friday.`\
-https://nytimes.com/2025/07/31/us/politics/trump-tariffs-mexico-extension.html
 
