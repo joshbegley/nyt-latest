@@ -1,3 +1,15 @@
+**On Canada’s Top Stage, Macbeth and Annie Are Talking to Americans**\
+`At this year’s Stratford Festival, kings, orphans and even a coffee shop have a message for their neighbors to the south.`\
+https://nytimes.com/2025/07/31/theater/canada-stratford-theater-festival.html
+
+**Padres to pad loaded bullpen with Mason Miller, ship top prospect Leodalis DeVries to A's**\
+`A year ago, Athletics closer Mason Miller was considered untouchable.`\
+https://nytimes.com/athletic/6526693/2025/07/31/mlb-padres-mason-miller-leodalis-devries-trade/
+
+**Man Dies After Apparent Fall From Whitney Museum**\
+`The 34-year-old was pronounced dead at the scene on Wednesday afternoon, the police said.`\
+https://nytimes.com/2025/07/31/nyregion/man-dies-whitney-museum-nyc.html
+
 **What’s a Potato? A Nine-Million-Year-Old Tomato.**\
 `An ancient hybrid of tomatoes and potato-like plants may have given rise to the modern spud, a new study suggests.`\
 https://nytimes.com/2025/07/31/science/evolution-agriculture-tomatoes-potatoes.html
