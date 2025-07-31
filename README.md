@@ -1,3 +1,7 @@
+**Massachusetts governor proposes $400 million for colleges, citing federal ‘uncertainty.’**\
+`By Chris Hippensteel`\
+https://nytimes.com/live/2025/07/31/us/trump-news/massachusetts-governor-proposes-400-million-for-colleges-citing-federal-uncertainty
+
 **Arsenal fans delight in first foreign NLD: 'Hong Kong flooded red and white – words cannot describe that feeling'**\
 `The first north London derby staged in Hong Kong shows Asian fans can display the same fervour as those back home`\
 https://nytimes.com/athletic/6527466/2025/07/31/arsenal-fans-tottenham-hong-kong/
@@ -29,8 +33,4 @@ https://nytimes.com/2025/07/31/us/politics/trump-tariffs-mexico-extension.html
 **3 Book Critics Recommend Road Trip Novels**\
 `Dwight Garner, Alexandra Jacobs and Jennifer Szalai, book critics at The New York Times, recommend three road trip books.`\
 https://nytimes.com/video/books/100000010302176/3-book-critics-recommend-road-trip-novels.html
-
-**Energy Dept. Attacks Climate Science in Contentious Report**\
-`The agency asked five climate skeptics to write a report criticizing the consensus on global warming. Scientists are pointing out its errors.`\
-https://nytimes.com/2025/07/31/climate/trump-climate-skeptics-science-report.html
 
