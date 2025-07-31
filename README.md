@@ -1,3 +1,11 @@
+**Heavy Rain and Flash Flooding Threaten Mid-Atlantic and Northeast**\
+`A cold front and high rainfall were moving across the region, meeting warm, humid and unstable air that is uncommon this time of year.`\
+https://nytimes.com/2025/07/31/weather/rain-flash-flooding-warning-northeast-mid-atlantic.html
+
+**In trading Ryan Helsley and Steven Matz, Cardinals begin second sell-off in three years**\
+`A July free fall, spurred by the rotation's collapse forced president of baseball operations John Mozeliak to market his rental relievers.`\
+https://nytimes.com/athletic/6526760/2025/07/31/stl-cardinals-trade-deadline-selling-helsley-matz/
+
 **Trump Administration Live Updates: President Criticizes Key Trade Partners as Tariff Deadline Looms**\
 ``\
 https://nytimes.com/live/2025/07/31/us/trump-news
@@ -29,12 +37,4 @@ https://nytimes.com/2025/07/31/world/asia/modi-trump-india-tariffs.html
 **Investors Cheer an A.I. Spending Bonanza**\
 `Shares in Microsoft and Meta soared to new highs on Thursday after the tech giants committed to invest billions more on artificial intelligence.`\
 https://nytimes.com/2025/07/31/business/dealbook/meta-microsoft-ai-spending-shares.html
-
-**White House Envoy Set to Land in Israel for Talks Amid Gaza Hunger Crisis**\
-`Steve Witkoff, President Trump’s Middle East envoy, is expected to visit an aid-distribution site in the enclave, with international pressure to agree on a new cease-fire growing.`\
-https://nytimes.com/2025/07/31/world/middleeast/witkoff-israel-gaza-trump.html
-
-**The Pulse: Our NFL offseason champions**\
-`Welcome to The Pulse, The Athletic's daily newsletter. `\
-https://nytimes.com/athletic/6526678/2025/07/31/nfl-offseason-highlights-preseason-the-pulse/
 
