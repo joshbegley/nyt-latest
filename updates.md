@@ -1,3 +1,11 @@
+**Trump Threatens Canada Ahead of Trade Deadline for Backing Palestinian State**\
+`Canada faces a 35 percent tariff on its exports to the United States if it does not reach a trade deal with the Trump administration by Friday.`\
+https://nytimes.com/2025/07/31/us/politics/trump-canada-trade-palestine.html
+
+**Where Manchester United's pursuit of Benjamin Sesko leaves Rasmus Hojlund**\
+`With United prioritising Sesko if they sign a striker this summer, Hojlund's position at the club has been thrown into doubt`\
+https://nytimes.com/athletic/6526639/2025/07/31/hojlund-manchester-united-future-sesko/
+
 **25 Hospitalized After Delta Flight Is Hit by Strong Turbulence**\
 `The flight, which was taking 275 passengers from Salt Lake City to Amsterdam, made an emergency landing in Minneapolis on Wednesday evening, the airline said.`\
 https://nytimes.com/2025/07/31/us/delta-flight-turbulence-emergency-landing.html
