@@ -1,4 +1,4 @@
-**Mariners land slugger Eugenio Suárez in trade with Diamondbacks: Source**\
+**Mariners finalizing deal for slugger Eugenio Suárez from Diamondbacks: Source**\
 `All-Star third baseman returns to Seattle, where he hit 53 home runs across the 2022 and 2023 seasons.`\
 https://nytimes.com/athletic/6518466/2025/07/31/mlb-mariners-eugenio-suarez-trade/
 
