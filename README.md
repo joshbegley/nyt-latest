@@ -1,9 +1,13 @@
+**Tottenham in Palhinha loan talks with Bayern**\
+`Palhinha, 30, only signed for Bayern from Fulham in a deal worth €51m last summer, but started just 10 matches in 2024-25.`\
+https://nytimes.com/athletic/6508273/2025/07/31/joao-palhinha-tottenham-loan-bayern/
+
 **Summer McIntosh sets world championship record, wins third gold in three tries**\
 `The Canadian star challenged the all-time mark in the women's 200-meter butterfly and continued her perfect string of races in Singapore.`\
 https://nytimes.com/athletic/6526914/2025/07/31/summer-mcintosh-leon-marchand-200-butterfly-medley-world-championships/
 
 **The 8 biggest storylines to watch for on MLB trade deadline day**\
-`The Cubs, Padres, Red Sox, Mets and Phillies are among the key teams whose moves (or lack of them) will likely shape tdeadline day.`\
+`The Cubs, Padres, Red Sox, Mets and Phillies are among the key teams whose moves (or lack of them) will likely shape deadline day.`\
 https://nytimes.com/athletic/6526906/2025/07/31/mlb-trade-deadline-storylines-pitchers/
 
 **Georgia Tech, Buster Faulkner and the rebranding of an offense**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6526077/2025/07/31/wizards-2026-first-round-pick-kn
 **How Blue Jackets second-rounder Evan Gardner emerged as a top goalie prospect**\
 `Gardner's path to the World Junior Summer Showcase for Team Canada was not a straightforward one.`\
 https://nytimes.com/athletic/6518952/2025/07/31/blue-jackets-evan-gardner-prospect/
-
-**Ranking Miami's top 30 players as Mario Cristobal embarks on Year 4**\
-`Miami is set to embark on its fourth season under Mario Cristobal with fall camp opening Thursday on Greentree Practice Field.`\
-https://nytimes.com/athletic/6525831/2025/07/31/miami-hurricanes-top-30-players-mario-cristobal/
 
