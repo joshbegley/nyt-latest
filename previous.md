@@ -1,3 +1,7 @@
+**25 Hospitalized After Delta Flight Is Hit by Strong Turbulence**\
+`The flight, which was taking 275 passengers from Salt Lake City to Amsterdam, made an emergency landing in Minneapolis on Wednesday evening, the airline said.`\
+https://nytimes.com/2025/07/31/us/delta-flight-turbulence-emergency-landing.html
+
 **Yankees to be busy as trade deadline nears; Austin Wells explains blunder as 'being an idiot'**\
 `After trading for three bats, the Yankees' focus is on adding to the bullpen and perhaps acquiring a starting pitcher.`\
 https://nytimes.com/athletic/6526616/2025/07/31/yankees-mlb-trade-deadline-austin-wells-error/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6525340/2025/07/31/leeds-igor-paixao-transfer-what-
 **Arsenal fans across continents: 3am kick-offs, church services, and Bergkamp DVDs**\
 `What is it like to be an international fan? The Athletic has spoken to five people, across five continents, to find out`\
 https://nytimes.com/athletic/6512697/2025/07/31/arsenal-fans-across-continents-3am-kick-offs-church-services-and-bergkamp-dvds/
-
-**Man Arrested in Killing of Arkansas Couple**\
-`The man, James Andrew McGann, was charged with two counts of capital murder. The couple was killed while hiking with their young daughters on Saturday.`\
-https://nytimes.com/2025/07/31/us/arkansas-murder-arrest.html
 

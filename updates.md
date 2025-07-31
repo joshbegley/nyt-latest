@@ -1,3 +1,7 @@
+**25 Hospitalized After Delta Flight Is Hit by Strong Turbulence**\
+`The flight, which was taking 275 passengers from Salt Lake City to Amsterdam, made an emergency landing in Minneapolis on Wednesday evening, the airline said.`\
+https://nytimes.com/2025/07/31/us/delta-flight-turbulence-emergency-landing.html
+
 **Yankees to be busy as trade deadline nears; Austin Wells explains blunder as 'being an idiot'**\
 `After trading for three bats, the Yankees' focus is on adding to the bullpen and perhaps acquiring a starting pitcher.`\
 https://nytimes.com/athletic/6526616/2025/07/31/yankees-mlb-trade-deadline-austin-wells-error/
