@@ -1,3 +1,11 @@
+**Explosion at Nebraska Biofuel Plant Kills 3, Including 2 Girls**\
+`The girls, believed to be under 12 years old, were waiting for a relative who was also killed in the blast, the authorities said.`\
+https://nytimes.com/2025/07/30/us/explosion-at-nebraska-biofuel-plant-kills-3-including-2-girls.html
+
+**Mets boost their bullpen, add Ryan Helsley, Tyler Rogers without trading elite prospects**\
+`The Mets acquired two relievers for the late innings and didn't give up any of their elite prospects in the process.`\
+https://nytimes.com/athletic/6526358/2025/07/30/mets-bullpen-additions-tyler-rogers-ryan-helsley-trades/
+
 **Former Stanford football coach Troy Taylor sues ESPN for defamation**\
 `Taylor, who was Stanford's coach for two seasons, was fired by general manager Andrew Luck six days after ESPN's March 19 report.`\
 https://nytimes.com/athletic/6526282/2025/07/30/stanford-troy-taylor-espn-defamation-lawsuit/

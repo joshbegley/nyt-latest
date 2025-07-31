@@ -1,3 +1,11 @@
+**Explosion at Nebraska Biofuel Plant Kills 3, Including 2 Girls**\
+`The girls, believed to be under 12 years old, were waiting for a relative who was also killed in the blast, the authorities said.`\
+https://nytimes.com/2025/07/30/us/explosion-at-nebraska-biofuel-plant-kills-3-including-2-girls.html
+
+**Mets boost their bullpen, add Ryan Helsley, Tyler Rogers without trading elite prospects**\
+`The Mets acquired two relievers for the late innings and didn't give up any of their elite prospects in the process.`\
+https://nytimes.com/athletic/6526358/2025/07/30/mets-bullpen-additions-tyler-rogers-ryan-helsley-trades/
+
 **Former Stanford football coach Troy Taylor sues ESPN for defamation**\
 `Taylor, who was Stanford's coach for two seasons, was fired by general manager Andrew Luck six days after ESPN's March 19 report.`\
 https://nytimes.com/athletic/6526282/2025/07/30/stanford-troy-taylor-espn-defamation-lawsuit/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6526233/2025/07/30/phillies-twins-jhoan-duran-trade
 **Ronald Acuña Jr. injury update a relief to Braves; Joey Wentz impresses again**\
 `The star right fielder has only a Grade 1 lower-right calf strain, not an Achilles injury.`\
 https://nytimes.com/athletic/6526118/2025/07/30/braves-ronald-acuna-jr-injury-update-joey-wentz/
-
-**Kaleb Johnson, Steelers' offense underwhelm as defense dominates Day 1 in pads: Takeaways**\
-`Meanwhile, Troy Fautanu impressed, Joey Porter Jr. got feisty and the Aaron Rodgers-DK Metcalf connection continued to build.`\
-https://nytimes.com/athletic/6526110/2025/07/30/steelers-training-camp-kaleb-johnson-pads/
-
-**18 Great Road Trip Books That Aren’t ‘On the Road’**\
-`Come along for the ride as our three critics back-seat drive their way through America. (Rest stops provided.)`\
-https://nytimes.com/2025/07/30/books/best-road-trip-books.html
 
