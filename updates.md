@@ -1,3 +1,7 @@
+**The New York Times in Print for Thursday, July 31, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/07/31/todays-new-york-times
+
 **Mariners finalizing deal for slugger Eugenio Suárez from Diamondbacks: Source**\
 `All-Star third baseman is set to return to Seattle, where he hit 53 home runs across the 2022 and 2023 seasons.`\
 https://nytimes.com/athletic/6518466/2025/07/31/mlb-mariners-eugenio-suarez-trade/
