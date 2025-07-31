@@ -1,3 +1,7 @@
+**Messi assists twice, Miami wins dramatic Leagues Cup opener at the death**\
+`Miami marked Rodrigo De Paul's debut with a last-gasp win over Liga MX's Atlas – with an assist to VAR`\
+https://nytimes.com/athletic/6526488/2025/07/30/inter-miami-atlas-leagues-cup-messi-weigandt-video-highlights/
+
 **Key Takeaways from the D.C. Plane Crash Hearing**\
 `After hours of testimony and thousands of pages of new documents, here’s what emerged in the first day of a marathon National Transportation Safety Board hearing.`\
 https://nytimes.com/2025/07/30/us/politics/takeaways-dc-plane-crash-investigation-ntsb.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6526344/2025/07/30/free-falling-giants-react-tyler-
 **Trade grade: In first move to bolster rotation, Cubs add Michael Soroka from Nationals**\
 `Soroka was once considered one of the best young pitchers in baseball, finishing sixth in NL Cy Young Award balloting in 2019.`\
 https://nytimes.com/athletic/6526407/2025/07/30/cubs-michael-soroka-nationals-trade-grade/
-
-**Reds are better with Ke'Bryan Hayes, but how much better?**\
-`The 28-year-old Hayes, son of former big-leaguer Charlie Hayes, won a Gold Glove in 2023.`\
-https://nytimes.com/athletic/6526338/2025/07/30/cincinnati-reds-kebryan-hayes-trade-analysis/
 

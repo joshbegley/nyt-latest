@@ -1,3 +1,19 @@
+**Key Takeaways from the D.C. Plane Crash Hearing**\
+`After hours of testimony and thousands of pages of new documents, here’s what emerged in the first day of a marathon National Transportation Safety Board hearing.`\
+https://nytimes.com/2025/07/30/us/politics/takeaways-dc-plane-crash-investigation-ntsb.html
+
+**Why the Phillies took their biggest trade deadline swing under Dave Dombrowski**\
+`This deadline called for a bigger swing, and Jhoan Duran was the target. Now, he's the closer on a team with championship expectations.`\
+https://nytimes.com/athletic/6526456/2025/07/30/phillies-jhoan-duran-dombrowski-trade-deadline/
+
+**In acquiring Zack Littell, Reds to bolster bullpen from within: Sources**\
+`A journeyman reliever through his mid-20s, Littell became a reliable starter with the Rays beginning in 2023.`\
+https://nytimes.com/athletic/6526484/2025/07/30/reds-trade-zack-littell-rays/
+
+**Free-falling Giants react to the Tyler Rogers trade: 'It kind of shows where we're headed'**\
+`The manner of Tuesday night's loss represented a breaking point for Buster Posey and the front office heading into Wednesday.`\
+https://nytimes.com/athletic/6526344/2025/07/30/free-falling-giants-react-tyler-rogers-trade/
+
 **Reds are better with Ke'Bryan Hayes, but how much better?**\
 `The 28-year-old Hayes, son of former big-leaguer Charlie Hayes, won a Gold Glove in 2023.`\
 https://nytimes.com/athletic/6526338/2025/07/30/cincinnati-reds-kebryan-hayes-trade-analysis/
