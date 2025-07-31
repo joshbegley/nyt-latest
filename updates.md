@@ -1,3 +1,7 @@
+**Yankees to be busy as trade deadline nears; Austin Wells explains blunder as 'being an idiot'**\
+`After trading for three bats, the Yankees' focus is on adding to the bullpen and perhaps acquiring a starting pitcher.`\
+https://nytimes.com/athletic/6526616/2025/07/31/yankees-mlb-trade-deadline-austin-wells-error/
+
 **Trade grades: The all-in Mariners land the big bat they coveted in Eugenio Suarez**\
 `The Mariners are finally pushing in all their chips, and their recent additions have given their lineup prodigious power. `\
 https://nytimes.com/athletic/6526608/2025/07/31/eugenio-suarez-trade-grades-mariners-diamondbacks/
