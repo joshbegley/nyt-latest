@@ -1,3 +1,11 @@
+**Arab States Call for Hamas to Disarm Amid Push for a Palestinian State**\
+`“Hamas must end its rule in Gaza,” reads a declaration endorsed by the 22 member nations of the Arab League.`\
+https://nytimes.com/2025/07/31/world/middleeast/hamas-arab-states-palestinians.html
+
+**Knicks, Mikal Bridges agree to 4-year, $150 million extension: Source**\
+`Bridges took less than the max to help New York attempt to stay under the second apron.`\
+https://nytimes.com/athletic/6498832/2025/07/31/mikal-bridges-contract-knicks-extension-signs/
+
 **Emergency Official Explains His Absence as Texas Floods Hit**\
 `The Kerr County official testified at a hearing held by state lawmakers in the city of Kerrville. Hundreds of residents attended, many of them hoping to testify.`\
 https://nytimes.com/video/us/100000010317633/texas-floods-hearing.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6528314/2025/07/31/denver-broncos-training-camp-dre
 **Rangers to add to league-best rotation with Merrill Kelly acquisition: Sources**\
 `For Rangers fans, Kelly is not an unknown name, as he faced them in the 2023 World Series. `\
 https://nytimes.com/athletic/6519478/2025/07/31/mlb-rangers-merrill-kelly-trade/
-
-**Just Hours Remain Before Trump’s Tariff Deadline**\
-`Also, the U.S. is paying more than 150,000 people not to work. Here’s the latest at the end of Thursday.`\
-https://nytimes.com/2025/07/31/briefing/trump-tariff-deadline-louisiana-deportations.html
-
-**President Trump signs executive order to bring back Presidential Fitness Test**\
-`Thursday's executive order was the latest example of Trump's focus on sports during his second term.`\
-https://nytimes.com/athletic/6528412/2025/07/31/trump-executive-order-presidential-fitness-test/
 
