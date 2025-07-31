@@ -1,9 +1,17 @@
+**Fed Up With Netanyahu and Handling of Gaza War, Democrats Rebuke Israel**\
+`Votes in the Senate made clear that the longtime bipartisan consensus in support of Israel is, at least for the moment, in tatters.`\
+https://nytimes.com/2025/07/31/us/politics/democrats-israel-gaza-netanyahu.html
+
+**3 Charged With Abusing Toddlers at Manhattan Branch of Child Care Giant**\
+`The Bright Horizons employees sprayed children in the face with bleach, hit them on the head with metal bottles and, in one instance, covered a girl’s mouth with packing tape, prosecutors said.`\
+https://nytimes.com/2025/07/31/nyregion/bright-horizons-day-care-abuse-manhattan.html
+
 **Three Blue Jays takeaways at the MLB trade deadline: Arms for a playoff run**\
 `Former Cy Young Award winner Shane Bieber raises the rotation's ceiling`\
 https://nytimes.com/athletic/6526771/2025/07/31/blue-jays-takeaways-mlb-trade-deadline/
 
-**Rangers add more rotation help, acquire Phil Maton from Cardinals**\
-`After trading for the D-Backs' Merrill Kelly, Texas added another starter from a National League seller.`\
+**Rangers add bullpen help, acquire Phil Maton from Cardinals**\
+`After trading for the D-Backs' Merrill Kelly, Texas added another pitcher from a National League seller.`\
 https://nytimes.com/athletic/6527686/2025/07/31/mlb-rangers-phil-maton-trade/
 
 **Mets trade deadline takeaways: Strengthening the bullpen at a reasonable cost**\
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6525737/2025/07/31/mlb-rays-adrian-houser-trade/
 **Padres' whirlwind deadline day continues with addition of Nestor Cortes: Source**\
 `The Padres' busy day continued with the addition of a lefty starter who's close to a return from injury.`\
 https://nytimes.com/athletic/6528654/2025/07/31/mlb-padres-nestor-cortes-trade/
-
-**Two Men Charged With Staging Car Crashes in Scheme to Defraud Drivers**\
-`The men orchestrated collisions on New York City highways last year in exchange for payouts from insurance companies, prosecutors said. Video of one of the accidents went viral on TikTok.`\
-https://nytimes.com/2025/07/31/nyregion/nyc-staged-car-accidents-arrest-tiktok.html
-
-**Phillies trade deadline takeaways: Closing time, outfield upgrade, prospects pay off**\
-`Here's a further look at the Phillies' deadline dealings and what they could mean moving forward.`\
-https://nytimes.com/athletic/6527778/2025/07/31/mlb-phillies-trade-deadline-takeaways/
 
