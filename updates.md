@@ -1,3 +1,11 @@
+**The Bumpiness of the Celebrity-Politician Romance**\
+`Long before Katy Perry dined with Justin Trudeau, Linda Ronstadt, Barbra Streisand and Elizabeth Taylor had challenging relationships with men in public office.`\
+https://nytimes.com/2025/07/31/style/the-bumpiness-of-the-celebrity-politician-romance.html
+
+**Robert Wilson, Provocative Playwright and Director, Is Dead at 83**\
+`He upended theatrical norms with his own stunningly visualized works and his collaborations with a wide range of artists, from Philip Glass (“Einstein on the Beach”) to Lady Gaga.`\
+https://nytimes.com/2025/07/31/obituaries/robert-wilson-dead.html
+
 **Adam Silver meets with Real Madrid to discuss NBA’s Europe league venture**\
 `Membership from the soccer and basketball juggernaut would mark a significant step in launching the NBA’s overseas venture.`\
 https://nytimes.com/athletic/6527966/2025/07/31/adam-silver-nba-euroleague-real-madrid/

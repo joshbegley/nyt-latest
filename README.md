@@ -1,3 +1,7 @@
+**Clock Ticks Down Toward Higher Tariffs With Little Clarity**\
+`The Trump administration is still debating the significantly higher tariff rates that American companies and foreign firms are expected to be subject to within a matter of hours.`\
+https://nytimes.com/2025/07/31/us/politics/deadline-trump-tariffs.html
+
 **The Bumpiness of the Celebrity-Politician Romance**\
 `Long before Katy Perry dined with Justin Trudeau, Linda Ronstadt, Barbra Streisand and Elizabeth Taylor had challenging relationships with men in public office.`\
 https://nytimes.com/2025/07/31/style/the-bumpiness-of-the-celebrity-politician-romance.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/31/us/yosemite-tuolumne-grove-hiker-killed.html
 **‘Maybe Happy Ending’ Casting Change Ignites Debate About Representation**\
 `When the show said Andrew Barth Feldman, a white actor, would replace Darren Criss, who is of Filipino descent, alarms were sounded by some Asian American actors.`\
 https://nytimes.com/2025/07/31/theater/maybe-happy-ending-casting-controversy.html
-
-**Legionnaires’ Disease Sickens 22 in New York. Here’s What to Know.**\
-`The cases are most likely linked to a cooling tower in central Harlem, health officials said.`\
-https://nytimes.com/2025/07/31/well/legionnaires-disease-new-york-city-cases.html
 
