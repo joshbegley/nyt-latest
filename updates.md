@@ -1,3 +1,19 @@
+**The Mets' trade deadline moves show the value of prospect development**\
+`This is the type of complete organization the Mets have longed to be since Steve Cohen bought them in the fall of 2020.`\
+https://nytimes.com/athletic/6526408/2025/07/30/mets-trade-deadline-moves-development-value/
+
+**Eugenie Bouchard's final match: 'A full circle moment' at Canadian Open**\
+`Bouchard eliminated by Belinda Bencic in second round in Montreal, the city where her tennis dreams began.`\
+https://nytimes.com/athletic/6526421/2025/07/30/eugenie-bouchard-canadian-open-loss-retires/
+
+**Raiders sign LT Kolton Miller to reported three-year, $66 million extension**\
+`The left tackle, 29, signed a new three-year deal worth a reported $66 million, $42.5 million of which is guaranteed.`\
+https://nytimes.com/athletic/6526423/2025/07/30/kolton-miller-raiders-contract-extension/
+
+**Trade grade: In first move to bolster rotation, Cubs add Michael Soroka from Nationals**\
+`Soroka was once considered one of the best young pitchers in baseball, finishing sixth in NL Cy Young Award balloting in 2019.`\
+https://nytimes.com/athletic/6526407/2025/07/30/cubs-michael-soroka-nationals-trade-grade/
+
 **Raiders sign LT Kolton Miller to three-year, $66 million extension**\
 `The left tackle, 29, signed a new three-year deal worth a reported $66 million, $42.5 million of which is guaranteed.`\
 https://nytimes.com/athletic/6526423/2025/07/30/kolton-miller-raiders-contract-extension/
