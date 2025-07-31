@@ -1,3 +1,7 @@
+**Raiders sign LT Kolton Miller to three-year, $66 million extension**\
+`The left tackle, 29, signed a new three-year deal worth a reported $66 million, $42.5 million of which is guaranteed.`\
+https://nytimes.com/athletic/6526423/2025/07/30/kolton-miller-raiders-contract-extension/
+
 **Judge Bars Trump Administration From Punishing 2 Law Professors for I.C.C. Work**\
 `A federal judge in New York permanently blocked the government from pursuing penalties against the professors over their assistance to the International Criminal Court.`\
 https://nytimes.com/2025/07/30/us/politics/trump-icc-lawyers.html

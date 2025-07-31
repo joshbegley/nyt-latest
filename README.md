@@ -1,4 +1,8 @@
-**Raiders sign LT Kolton Miller to three-year, $66 million extension**\
+**Eugenie Bouchard's final match: 'A full circle moment' at Canadian Open**\
+`Bouchard eliminated by Belinda Bencic in second round in Montreal, the city where her tennis dreams began.`\
+https://nytimes.com/athletic/6526421/2025/07/30/eugenie-bouchard-canadian-open-loss-retires/
+
+**Raiders sign LT Kolton Miller to reported three-year, $66 million extension**\
 `The left tackle, 29, signed a new three-year deal worth a reported $66 million, $42.5 million of which is guaranteed.`\
 https://nytimes.com/athletic/6526423/2025/07/30/kolton-miller-raiders-contract-extension/
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6526358/2025/07/30/mets-bullpen-additions-tyler-rog
 **Former Stanford football coach Troy Taylor sues ESPN for defamation**\
 `Taylor, who was Stanford's coach for two seasons, was fired by general manager Andrew Luck six days after ESPN's March 19 report.`\
 https://nytimes.com/athletic/6526282/2025/07/30/stanford-troy-taylor-espn-defamation-lawsuit/
-
-**A challenge to the suspension of a refugee program established by Congress receives class-action status.**\
-`The ruling`\
-https://nytimes.com/live/2025/07/30/us/trump-news/a-challenge-to-the-suspension-of-a-refugee-program-established-by-congress-receives-class-action-status
 
