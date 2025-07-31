@@ -1,3 +1,11 @@
+**Yankees close to acquiring David Bednar from Pirates to address top need: Sources**\
+`Bednar immediately becomes the Yankees’ top reliever in terms of average fastball velocity.`\
+https://nytimes.com/athletic/6498441/2025/07/31/mlb-yankees-david-bednar-trade/
+
+**In Funeral Remarks, Adams Praises Police Unit Mamdani Vowed to Disband**\
+`Mayor Eric Adams thanked the Strategic Response Group for its actions during a shooting in Midtown Manhattan. Zohran Mamdani has criticized the unit for its policing of protests and aims to replace it.`\
+https://nytimes.com/2025/07/31/nyregion/adams-nypd-officer-islam-funeral.html
+
 **Kavanaugh Defends Supreme Court’s Terse Emergency Orders**\
 `Speaking at a judicial conference, the justice said that saying too much risked premature judgments, adding that the court had been trying various approaches.`\
 https://nytimes.com/2025/07/31/us/politics/kavanaugh-supreme-court-emergency.html
@@ -6,7 +14,7 @@ https://nytimes.com/2025/07/31/us/politics/kavanaugh-supreme-court-emergency.htm
 `A complaint concerning a top Justice Department official, Emil Bove III, went unnoticed for more than two months, raising worries that an internal watchdog has gone dormant.`\
 https://nytimes.com/2025/07/31/us/politics/emil-bove-whistle-blower.html
 
-**Clock Ticks Down Toward Higher Tariffs With Little Clarity**\
+**Clock Ticks Toward Higher Tariffs With Little Clarity**\
 `The Trump administration is still debating the significantly higher tariff rates that American companies and foreign firms are expected to be subject to within a matter of hours.`\
 https://nytimes.com/2025/07/31/us/politics/deadline-trump-tariffs.html
 
@@ -24,17 +32,9 @@ https://nytimes.com/2025/07/31/technology/figma-ipo.html
 
 **Robert Wilson, Provocative Playwright and Director, Is Dead at 83**\
 `He upended theatrical norms with his own stunningly visualized works and his collaborations with a wide range of artists, from Philip Glass (“Einstein on the Beach”) to Lady Gaga.`\
-https://nytimes.com/2025/07/31/obituaries/robert-wilson-dead.html
+https://nytimes.com/2025/07/31/theater/robert-wilson-dead.html
 
 **One question for every team in the National League, 4 hours until the deadline**\
 `How much is Sandy Alcantara worth? Do the Dodgers have another surprise up their sleeve? Time is running out for big moves.`\
 https://nytimes.com/athletic/6527925/2025/07/31/mlb-trade-deadline-questions-nl/
-
-**Scientists Are Learning to Rewrite the Code of Life**\
-`In a giant feat of genetic engineering, scientists have created bacteria that make proteins in a radically different way than all natural species do.`\
-https://nytimes.com/2025/07/31/science/dna-genetics-engineering-microbes.html
-
-**Tottenham 1-0 Arsenal: Sarr's wondergoal, skills from Kudus and what it all means**\
-`It was only a friendly but Thomas Frank can take plenty of encouragement from a solid, resilient display`\
-https://nytimes.com/athletic/6527864/2025/07/31/tottenham-sarr-kudus-arsenal-analysis/
 
