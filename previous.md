@@ -34,7 +34,7 @@ https://nytimes.com/athletic/6525855/2025/07/30/sf-giants-tyler-rogers-trade-ana
 `The Mets send three prospects back to St. Louis for Helsley, who is a free agent at the end of the season.`\
 https://nytimes.com/athletic/6519507/2025/07/30/mlb-mets-ryan-helsley-trade/
 
-**Phillies call their shot and get their closer, acquiring Jhoan Duran from Twins**\
+**Phillies call their shot and get their closer, acquiring Jhoan Duran from Twins: Sources**\
 `The prospect cost was substantial, with starter Mick Abel, 23, and catching prospect Eduardo Tait, 18, going to the Twins.`\
 https://nytimes.com/athletic/6526053/2025/07/30/phillies-jhoan-duran-trade-twins/
 

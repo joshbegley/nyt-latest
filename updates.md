@@ -1,3 +1,7 @@
+**Phillies call their shot and get their closer, acquiring Jhoan Duran from Twins: Sources**\
+`The prospect cost was substantial, with starter Mick Abel, 23, and catching prospect Eduardo Tait, 18, going to the Twins.`\
+https://nytimes.com/athletic/6526053/2025/07/30/phillies-jhoan-duran-trade-twins/
+
 **Trade grades: Phillies find what they need in Jhoan Durán, Twins 'win,' too**\
 `To quote one of our trade graders: This is what a deadline deal is supposed to look like.`\
 https://nytimes.com/athletic/6526120/2025/07/30/phillies-jhoan-duran-trade-grade/
