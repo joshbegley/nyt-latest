@@ -1,3 +1,7 @@
+**New Implant Offers Hope for Easing Rheumatoid Arthritis**\
+`The device stimulates the vagus nerve, signaling the body to tamp down the inflammation that contributes to the disease.`\
+https://nytimes.com/2025/07/31/health/arthritis-implant-vagus-setpoint.html
+
 **West Ham's Lucas Paqueta cleared of spot fixing charges by independent commission**\
 `The Brazil international, who denied all charges against him, was facing a potential lifetime ban from football if found guilty.`\
 https://nytimes.com/athletic/6515053/2025/07/31/lucas-paqueta-betting-case-west-ham/

@@ -1,3 +1,19 @@
+**USMNT's Turner in talks over New England return**\
+`The hope is for the deal for Turner to be completed by the end of the week, sources said.`\
+https://nytimes.com/athletic/6511294/2025/07/31/matt-turner-new-england-revolution/
+
+**Kamala Harris Will Publish a Campaign Memoir This Fall**\
+`The former vice president has written a book about her run for president in 2024. It will be published next month.`\
+https://nytimes.com/2025/07/31/books/kamala-harris-campaign-memoir-107-days.html
+
+**Who is Lucas Paqueta? The Premier League player who won his case against betting charges**\
+`The charges for betting breaches against Lucas Paqueta have not been proven. This is his story`\
+https://nytimes.com/athletic/6515216/2025/07/31/lucas-paqueta-betting-west-ham-premier-league/
+
+**Lions players to keep an eye on during Hall of Fame Game against Chargers**\
+`The Lions won't have any starters playing in the preseason game, but there are other players worth watching.`\
+https://nytimes.com/athletic/6527166/2025/07/31/lions-game-hall-of-fame-players-to-watch/
+
 **New Implant Offers Hope for Easing Rheumatoid Arthritis**\
 `The device stimulates the vagus nerve, signaling the body to tamp down the inflammation that contributes to the disease.`\
 https://nytimes.com/2025/07/31/health/arthritis-implant-vagus-setpoint.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6527068/2025/07/31/college-sports-commission-collec
 **Blue Jays bolster rotation with former Cy Young winner Shane Bieber in trade with Guardians**\
 `Adding the rehabbing Bieber injects the Blue Jays' starting group with proven depth and real upside.`\
 https://nytimes.com/athletic/6522629/2025/07/31/mlb-blue-jays-shane-bieber-trade/
-
-**Remembering the four lives lost in the shooting.**\
-`By Sarah Maslin Nir, Michael Wilson, Wesley Parnell, Maureen Farrell and Dionne Searcey`\
-https://nytimes.com/live/2025/07/31/nyregion/nyc-shooting-didarul-islam-funeral/remembering-the-four-lives-lost-in-the-shooting
-
-**Sean Combs’s Lawyers Ask Judge to Vacate Jury’s Verdict or Retry Him**\
-`In a 62-page motion, the music mogul’s legal team argued that his conviction under the Mann Act — which bars interstate commerce related to prostitution — should be overturned.`\
-https://nytimes.com/2025/07/31/arts/music/sean-combs-diddy-mann-act-prostitution-new-trial.html
-
-**Legal Watchdog Files Bar Complaints Against Justice Dept. Lawyers**\
-`The move represented a rare attempt to seek accountability for rank-and-file lawyers who have represented the Trump administration in court.`\
-https://nytimes.com/2025/07/31/us/politics/justice-department-lawyers-complaint.html
-
-**Where Blue Jays’ options stand entering trade deadline day**\
-`The Blue Jays can still find back-end bullpen pieces in trades, or cash in on the slowly-developing hitters market.`\
-https://nytimes.com/athletic/6527117/2025/07/31/blue-jays-trade-deadline-day-approach/
 

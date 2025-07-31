@@ -1,3 +1,7 @@
+**New Implant Offers Hope for Easing Rheumatoid Arthritis**\
+`The device stimulates the vagus nerve, signaling the body to tamp down the inflammation that contributes to the disease.`\
+https://nytimes.com/2025/07/31/health/arthritis-implant-vagus-setpoint.html
+
 **West Ham's Lucas Paqueta cleared of spot fixing charges by independent commission**\
 `The Brazil international, who denied all charges against him, was facing a potential lifetime ban from football if found guilty.`\
 https://nytimes.com/athletic/6515053/2025/07/31/lucas-paqueta-betting-case-west-ham/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/31/us/politics/justice-department-lawyers-complaint.
 **Where Blue Jays’ options stand entering trade deadline day**\
 `The Blue Jays can still find back-end bullpen pieces in trades, or cash in on the slowly-developing hitters market.`\
 https://nytimes.com/athletic/6527117/2025/07/31/blue-jays-trade-deadline-day-approach/
-
-**A Trump Ally Pressed for a Mexican Citizen’s Release from ICE Custody**\
-`The office of Senator John Kennedy of Louisiana asked the Department of Homeland Security to release the detainee, who is married to a U.S. Marine Corps veteran.`\
-https://nytimes.com/2025/07/31/us/politics/ice-marine-wife-senator-kennedy.html
 
