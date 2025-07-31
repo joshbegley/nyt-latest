@@ -1,3 +1,7 @@
+**What I saw at Ohio State's first practice: A key injury question, early standouts and more**\
+`Plenty of positives for Ohio State on the first day of preseason camp were overshadowed by Eddrick Houston leaving with an injury.`\
+https://nytimes.com/athletic/6527811/2025/07/31/ohio-state-takeaways-from-day-1-of-camp-eddrick-houston-injury-early-standouts-and-more/
+
 **County Emergency Official Says He Was Ill and Sleeping as Texas Floods Hit**\
 `At a hearing in hard-hit Kerr County, an emergency management coordinator for the first time explained his whereabouts when the Guadalupe River burst its banks.`\
 https://nytimes.com/2025/07/31/us/politics/texas-floods-hearing.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/31/arts/design/uk-royal-family-robbery-insurance-pay
 **She Came Face to Face With the Park Avenue Gunman and Survived**\
 `Sebije Nelovic, who has cleaned the Manhattan office building that was the site of the shooting for 27 years, was dusting a table that Monday evening. Then she heard gunfire.`\
 https://nytimes.com/2025/07/31/nyregion/park-avenue-shooting-sebije-nelovic.html
-
-**Phillies acquire defensive wizard Harrison Bader from Twins**\
-`The 2021 Gold Glove winner has produced five outs above average this season.`\
-https://nytimes.com/athletic/6524953/2025/07/31/mlb-phillies-harrison-bader-trade/
 
