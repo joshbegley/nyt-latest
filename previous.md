@@ -1,3 +1,11 @@
+**Trump Announces 90-Day Extension for Mexico in Trade Talks**\
+`The extension gives Mexico more time to reach a trade deal with the United States and avert, for now, heavier tariffs President Trump has threatened to impose on Friday.`\
+https://nytimes.com/2025/07/31/us/politics/trump-announces-90-day-extension-for-mexico-in-trade-talks.html
+
+**3 Book Critics Recommend Road Trip Novels**\
+`Dwight Garner, Alexandra Jacobs and Jennifer Szalai, book critics at The New York Times, recommend three road trip books.`\
+https://nytimes.com/video/books/100000010302176/3-book-critics-recommend-road-trip-novels.html
+
 **Energy Dept. Attacks Climate Science in Contentious Report**\
 `The agency asked five climate skeptics to write a report criticizing the consensus on global warming. Scientists are pointing out its errors.`\
 https://nytimes.com/2025/07/31/climate/trump-climate-skeptics-science-report.html
@@ -25,12 +33,4 @@ https://nytimes.com/athletic/6500165/2025/07/31/marseille-pierre-emerick-aubamey
 **Corrections: July 31, 2025**\
 `Corrections that appeared in print on Thursday, July 31, 2025.`\
 https://nytimes.com/2025/07/31/pageoneplus/corrections-july-31-2025.html
-
-**Arteta confident Gabriel, Calafiori, Timber will be fit for start of season**\
-`“If they evolve like they've evolved in the last few days, the three of them will be available,” Arteta said after Arsenal's defeat by Spurs`\
-https://nytimes.com/athletic/6527524/2025/07/31/arsenal-injuries-gabriel-calafiori-timber/
-
-**How India Became One of the Biggest Buyers of Russian Oil**\
-`President Trump upended trade negotiations with India by making the purchase of crude oil a sticking point.`\
-https://nytimes.com/2025/07/31/business/india-russia-oil-trump.html
 

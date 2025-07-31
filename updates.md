@@ -1,3 +1,11 @@
+**Trump Announces 90-Day Extension for Mexico in Trade Talks**\
+`The extension gives Mexico more time to reach a trade deal with the United States and avert, for now, heavier tariffs President Trump has threatened to impose on Friday.`\
+https://nytimes.com/2025/07/31/us/politics/trump-announces-90-day-extension-for-mexico-in-trade-talks.html
+
+**3 Book Critics Recommend Road Trip Novels**\
+`Dwight Garner, Alexandra Jacobs and Jennifer Szalai, book critics at The New York Times, recommend three road trip books.`\
+https://nytimes.com/video/books/100000010302176/3-book-critics-recommend-road-trip-novels.html
+
 **Energy Dept. Attacks Climate Science in Contentious Report**\
 `The agency asked five climate skeptics to write a report criticizing the consensus on global warming. Scientists are pointing out its errors.`\
 https://nytimes.com/2025/07/31/climate/trump-climate-skeptics-science-report.html
