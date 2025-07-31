@@ -1,3 +1,19 @@
+**Here Is What to Know About Trump’s 50% Tariffs on Brazil**\
+`Latin America’s biggest economy can weather the shock of a high tariff rate. But American coffee lovers and Brazilian ranchers are likely to feel the pain.`\
+https://nytimes.com/2025/07/31/world/americas/trump-brazil-tariffs-lula.html
+
+**Broncos believe Dre Greenlaw "will be fine" after he becomes latest LB to exit practice**\
+`The veteran free-agent addition suffered a quad injury during the offseason and was on a snaps restriction to being camp.`\
+https://nytimes.com/athletic/6528314/2025/07/31/denver-broncos-training-camp-dre-greenlaw/
+
+**Rangers to add to league-best rotation with Merrill Kelly acquisition: Sources**\
+`For Rangers fans, Kelly is not an unknown name, as he faced them in the 2023 World Series. `\
+https://nytimes.com/athletic/6519478/2025/07/31/mlb-rangers-merrill-kelly-trade/
+
+**Just Hours Remain Before Trump’s Tariff Deadline**\
+`Also, the U.S. is paying more than 150,000 people not to work. Here’s the latest at the end of Thursday.`\
+https://nytimes.com/2025/07/31/briefing/trump-tariff-deadline-louisiana-deportations.html
+
 **President Trump signs executive order to bring back Presidential Fitness Test**\
 `Thursday's executive order was the latest example of Trump's focus on sports during his second term.`\
 https://nytimes.com/athletic/6528412/2025/07/31/trump-executive-order-presidential-fitness-test/
