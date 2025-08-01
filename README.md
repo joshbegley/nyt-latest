@@ -10,7 +10,7 @@ https://nytimes.com/athletic/6529368/2025/07/31/carlos-correa-astros-trade-third
 `The money is meant to beat Democrats, but some Republicans worry it could be used to beat Republicans, too.`\
 https://nytimes.com/2025/07/31/us/politics/maga-inc-trump-fundraising.html
 
-**With best deadline in a decade, Mets keep pace in competitive National League**\
+**With best deadline in a decade, Mets keep pace in competitive NL**\
 `Not since 2015 had the Mets acted this aggressively to acquire outside talent and improve the big-league roster.`\
 https://nytimes.com/athletic/6529190/2025/07/31/mets-trade-deadline-ryan-helsley-cedric-mullins/
 

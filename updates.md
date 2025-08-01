@@ -1,5 +1,13 @@
 **Greenberg: Cubs miss opportunity on a trade deadline day that called for action**\
 `The Cubs played it safe, and the White Sox tried to muster enthusiasm for another season of Luis Robert Jr.  Chicago fans shook their heads.`\
+https://nytimes.com/athletic/6529250/2025/07/31/cubs-white-sox-trade-deadline-missed-opportunities/
+
+**In John Mozeliak's final trade deadline with Cardinals, 'long-term view' was the priority**\
+`The Cardinals have been sellers in two of the last three trade deadlines. This year's version looked a little bit different.`\
+https://nytimes.com/athletic/6529158/2025/07/31/john-mozeliak-cardinals-trade-react/
+
+**Greenberg: Cubs miss opportunity on a trade deadline day that called for action**\
+`The Cubs played it safe, and the White Sox tried to muster enthusiasm for another season of Luis Robert Jr.  Chicago fans shook their heads.`\
 https://nytimes.com/athletic/6529250/2025/07/31/cubs-trade-deadline-day-that-called-for-action-cubs-hugged-their-prospects-tight/
 
 **Carlos Correa had many reasons to approve trade back to Houston, including a position change**\
