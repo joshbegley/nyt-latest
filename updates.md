@@ -1,3 +1,11 @@
+**After deadline additions, Yankees release Marcus Stroman**\
+`Stroman, still owed $18.5 million, had a 6.23 ERA in nine starts this season and a 4.69 ERA in 193 2/3 innings as a Yankee.`\
+https://nytimes.com/athletic/6530716/2025/08/01/yankees-marcus-stroman-release/
+
+**Massa, Magnussen, Djokovic invest in Ligue 2 club Le Mans**\
+`Le Mans' president hopes the Ligue 2 club can become "a permanent presence in French professional football".`\
+https://nytimes.com/athletic/6530510/2025/08/01/felipe-massa-kevin-magnussen-novak-djokovic-le-mans-invesment/
+
 **Jury Says Tesla Was Partly to Blame for Fatal Crash**\
 `Lawyers for the family of a woman struck and killed by a Tesla sedan in 2019 argued that the company’s Autopilot software should have avoided the crash.`\
 https://nytimes.com/2025/08/01/business/tesla-autopilot-federal-trial-verdict.html

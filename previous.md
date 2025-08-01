@@ -1,3 +1,11 @@
+**After deadline additions, Yankees release Marcus Stroman**\
+`Stroman, still owed $18.5 million, had a 6.23 ERA in nine starts this season and a 4.69 ERA in 193 2/3 innings as a Yankee.`\
+https://nytimes.com/athletic/6530716/2025/08/01/yankees-marcus-stroman-release/
+
+**Massa, Magnussen, Djokovic invest in Ligue 2 club Le Mans**\
+`Le Mans' president hopes the Ligue 2 club can become "a permanent presence in French professional football".`\
+https://nytimes.com/athletic/6530510/2025/08/01/felipe-massa-kevin-magnussen-novak-djokovic-le-mans-invesment/
+
 **Jury Says Tesla Was Partly to Blame for Fatal Crash**\
 `Lawyers for the family of a woman struck and killed by a Tesla sedan in 2019 argued that the company’s Autopilot software should have avoided the crash.`\
 https://nytimes.com/2025/08/01/business/tesla-autopilot-federal-trial-verdict.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6530543/2025/08/01/torbjorn-heggem-west-brom-bologn
 **‘Hot Wasps’ Found at Nuclear Facility in South Carolina**\
 `Four radioactive wasp nests may indicate previously undetected environmental contamination at the decades-old Savannah River Site. Here’s what to know.`\
 https://nytimes.com/2025/08/01/science/radioactive-wasps-nuclear-savannah-river.html
-
-**States Sue Over Trump Efforts to End Pediatric Transgender Medical Care**\
-`The lawsuit comes amid escalating efforts by the U.S. government to restrict the availability of certain services for transgender adolescents.`\
-https://nytimes.com/2025/08/01/nyregion/transgender-care-lawsuit-trump.html
-
-**A Catalog of Losses Under Trump**\
-`Readers discuss a series of setbacks under the Trump administration. Also: Sugary drinks and SNAP.`\
-https://nytimes.com/2025/08/01/opinion/trump-losses.html
 
