@@ -1,3 +1,7 @@
+**Greenberg: Cubs miss opportunity on a trade deadline day that called for action**\
+`The Cubs played it safe, and the White Sox tried to muster enthusiasm for another season of Luis Robert Jr.  Chicago fans shook their heads.`\
+https://nytimes.com/athletic/6529250/2025/07/31/cubs-trade-deadline-day-that-called-for-action-cubs-hugged-their-prospects-tight/
+
 **Carlos Correa had many reasons to approve trade back to Houston, including a position change**\
 `Rejoining the Astros was enticing for the team's former shortstop, who bonded with the current shortstop, Jeremy Peña, this past offseason.`\
 https://nytimes.com/athletic/6529368/2025/07/31/carlos-correa-astros-trade-third-base-jeremy-pena/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6529191/2025/07/31/los-angeles-dodgers-deadline-tra
 **Trade deadline Q&A with Braves GM Alex Anthopoulos: What happened to selling?**\
 `Despite anticipation, the Braves stayed mostly quiet: "Our goal at this deadline was to focus on guys that could help us in '26."`\
 https://nytimes.com/athletic/6529253/2025/07/31/braves-alex-anthopolous-mlb-trade/
-
-**UFL adds new billionaire co-owner Mike Repole, who promises big changes**\
-`Repole said the UFL plans to move at least two teams this year, and that he sees the number of teams doubling over the next decade.`\
-https://nytimes.com/athletic/6529260/2025/07/31/ufl-new-owner-mike-repole-changes/
 
