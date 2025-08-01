@@ -1,3 +1,7 @@
+**Cubs DFA Ryan Pressly as Chicago reshapes its bullpen for playoff race**\
+`The Cubs once hoped that Pressly would be pitching at Wrigley Field in October.`\
+https://nytimes.com/athletic/6529195/2025/07/31/chicago-cubs-ryan-pressly-dfa/
+
 **Why the Mets didn’t add to starting rotation at trade deadline**\
 `If the Mets were going to acquire a starter, it was likely going to have to be someone they viewed as part of their playoff rotation.`\
 https://nytimes.com/athletic/6529079/2025/07/31/new-york-mets-rotation-trade-deadline/
@@ -22,7 +26,7 @@ https://nytimes.com/athletic/6528661/2025/07/31/49ers-ricky-pearsall-training-ca
 `The Twins are eating $33 million of the $104 million left on Carlos Correa's contract in a shocking roster dismantling.`\
 https://nytimes.com/athletic/6528334/2025/07/31/twins-trade-deadline-takeaways-team-sale/
 
-**6 takeaways from the MLB trade deadline: Twins blow it up, A.J. Preller stays on brand**\
+**Six takeaways from the MLB trade deadline: Twins blow it up, A.J. Preller stays on brand**\
 `We’re still wrapping out heads around it, but here are some initial takeaways after a wild 24 hours.`\
 https://nytimes.com/athletic/6528989/2025/07/31/mlb-trade-deadline-takeaways/
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6528431/2025/07/31/tigers-trade-deadline-takeaways/
 **Ranking the winners, losers and snoozers of the 2025 MLB trade deadline**\
 `The Padres ruled the deadline, the Yankees, Mets and Phillies built ever-greater bullpens, and the Cardinals, Dodgers and Reds underwhelmed.`\
 https://nytimes.com/athletic/6528840/2025/07/31/mlb-trade-deadline-takeaways-2025-winners-losers-snoozers/
-
-**The Packers' 'Ball King': How coach involves a siren, WWE belt and fun in camp**\
-`Defensive quality control coach Wendel Davis, in his sixth year with the Packers, doesn't go by his real name at Lambeau Field.`\
-https://nytimes.com/athletic/6528616/2025/07/31/packers-defense-turnovers-wendel-davis/
 
