@@ -1,3 +1,7 @@
+**Trade deadline Q&A with Braves GM Alex Anthopoulos: What happened to selling?**\
+`Despite anticipation, the Braves stayed mostly quiet: "Our goal at this deadline was to focus on guys that could help us in '26."`\
+https://nytimes.com/athletic/6529253/2025/07/31/braves-alex-anthopolous-mlb-trade/
+
 **UFL adds new billionaire co-owner Mike Repole, who promises big changes**\
 `Repole said the UFL plans to move at least two teams this year, and that he sees the number of teams doubling over the next decade.`\
 https://nytimes.com/athletic/6529260/2025/07/31/ufl-new-owner-mike-repole-changes/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6529195/2025/07/31/chicago-cubs-ryan-pressly-dfa/
 **Why the Mets didn’t add to starting rotation at trade deadline**\
 `If the Mets were going to acquire a starter, it was likely going to have to be someone they viewed as part of their playoff rotation.`\
 https://nytimes.com/athletic/6529079/2025/07/31/new-york-mets-rotation-trade-deadline/
-
-**Andrea Lucas Confirmed to Equal Employment Opportunity Commission**\
-`Ms. Lucas, who has led efforts to attack diversity, equity and inclusion initiatives, was confirmed by the Senate for a second term.`\
-https://nytimes.com/2025/07/31/us/politics/andrea-lucas-equal-employment-opportunity-commission.html
 
