@@ -1,3 +1,15 @@
+**Astronauts Head to Space Station as Clouds Stay Just Far Enough Away**\
+`After a scrubbed launch on Thursday, four astronauts lifted off from Florida and will dock at the International Space Station on Saturday.`\
+https://nytimes.com/2025/08/01/science/nasa-astronauts-space-station-cardman.html
+
+**Gaza War Protesters Arrested at Offices of Schumer and Gillibrand**\
+`Dozens of demonstrators, calling for a flood of humanitarian aid into the Gaza Strip, were arrested at the Manhattan offices of New York’s two senators.`\
+https://nytimes.com/2025/08/01/nyregion/gaza-war-protesters-schumer-gillibrand.html
+
+**Police Seek Gunman After Bar Shooting in Montana**\
+`The police in Anaconda, Mont., said there was a manhunt underway. It was not immediately clear if anyone had been killed.`\
+https://nytimes.com/2025/08/01/us/montana-anaconda-shooting.html
+
 **Gaza War Protesters Arrested at Offices of Schumer and Gillibrand**\
 `Dozens of demonstrators were arrested at the Manhattan offices of New York’s two senators, after calling for a flood of humanitarian aid into the Gaza Strip.`\
 https://nytimes.com/2025/08/01/nyregion/gaza-war-protesters-schumer-gillibrand.html

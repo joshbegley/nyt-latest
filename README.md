@@ -20,7 +20,7 @@ https://nytimes.com/athletic/6530969/2025/08/01/micah-parsons-cowboys-trade-requ
 
 **Stock Market Posts Worst Week in Months on Renewed Economic Fears**\
 `Data showing cracks in the U.S. labor market and President Trump’s newest barrage of tariffs shook investors around the world, weighing on stocks, the dollar and more.`\
-https://nytimes.com/live/2025/07/31/business/tariffs-trump-trade/trump-tariffs-stock-markets-trade
+https://nytimes.com/2025/08/01/business/economy/trump-tariffs-stock-markets-trade-dollar.html
 
 **Rob Manfred downplays confrontation with Phillies superstar Bryce Harper**\
 `Manfred: “It was an individual picking a particular way to express himself. And I don’t think you need to make more out of that than that."`\
