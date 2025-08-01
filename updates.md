@@ -1,3 +1,19 @@
+**Trump Sharpens Sanctions Threat on Russia, While Admitting It May Not Work**\
+`“We’re going to put sanctions,” the president said, even before a deadline he had given Russia this week to engage in cease-fire negotiations had passed.`\
+https://nytimes.com/2025/07/31/us/politics/trump-russia-putin-sanctions.html
+
+**Here is the latest.**\
+`By River Akira Davis and Lydia DePillis`\
+https://nytimes.com/live/2025/07/31/business/tariffs-trump-trade/here-is-the-latest
+
+**Live Updates: White House Announces Sweeping New Tariffs for Much of the World**\
+`An executive order explaining the new rates is the latest move by President Trump to remake the global trading system.`\
+https://nytimes.com/live/2025/07/31/business/tariffs-trump-trade
+
+**Chargers, Trey Lance dominate Hall of Fame Game; NFL debuts virtual measurement system**\
+`Lance completed 13 of 20 passes for 120 yards and two touchdowns and looked as good as he has at any point in his NFL career.`\
+https://nytimes.com/athletic/6529462/2025/07/31/hall-of-fame-game-chargers-lions/
+
 **The good, the bad and the ugly of the Giants' 2025 trade deadline**\
 `What went right, wrong and what just stings about a Giants deadline where they suddenly became sellers after looking like buyers in June.`\
 https://nytimes.com/athletic/6528872/2025/07/31/sf-giants-trade-deadline-assessment/
