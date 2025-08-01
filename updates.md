@@ -1,3 +1,19 @@
+**Summer Reading Contest, Week 9: What Got Your Attention in The Times This Week?**\
+`To participate, submit your response here by Aug. 8 at 9 a.m. Eastern. This week’s winners will be announced by Aug. 19.`\
+https://nytimes.com/2025/08/01/learning/summer-reading-contest-week-9-what-got-your-attention-in-the-times-this-week.html
+
+**It’s Time for That Often-Dreaded Task: Buying Back-to-School Supplies**\
+`Parents of children in kindergarten through high school are spending an average of $144, and that’s coming as families are feeling financial stress.`\
+https://nytimes.com/2025/08/01/your-money/back-to-school-supplies-parents.html
+
+**The Stock Market Is Good, Bad and Ugly, Often in Quick Succession**\
+`The market’s best days frequently occur in the midst of misery, our columnist says, so don’t bother trying to figure out where stocks are heading.`\
+https://nytimes.com/2025/08/01/business/stock-market-best-worst-days-investing.html
+
+**Kate Douglass breaks U.S. record, gives Americans another gold at swimming worlds**\
+`Kate Douglass lowered her own U.S. record Friday to win gold in the women's 200-meter breaststroke, the Americans' fifth title of the week.`\
+https://nytimes.com/athletic/6529902/2025/08/01/kate-douglass-american-record-breaststroke-gold-swimming-world-championships/
+
 **Employers Pulled Back on Hiring, Adding 73,000 Jobs**\
 `The labor market showed signs of weakening, as job gains for the previous two months were also revised lower.`\
 https://nytimes.com/2025/08/01/us/politics/jobs-report-us-economy.html
