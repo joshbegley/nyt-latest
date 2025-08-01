@@ -1,3 +1,7 @@
+**The good, the bad and the ugly of the Giants' 2025 trade deadline**\
+`What went right, wrong and what just stings about a Giants deadline where they suddenly became sellers after looking like buyers in June.`\
+https://nytimes.com/athletic/6528872/2025/07/31/sf-giants-trade-deadline-assessment/
+
 **Air Traffic Controllers Urged Safety Changes Years Before D.C. Crash**\
 `Air traffic control managers told the National Transportation Safety Board that F.A.A. leaders rebuffed efforts over the years to address hazardous conditions that played a role in the Jan. 29 crash.`\
 https://nytimes.com/2025/07/31/us/politics/ntsb-dc-airport-crash-air-traffic.html
@@ -7,7 +11,7 @@ https://nytimes.com/2025/07/31/us/politics/ntsb-dc-airport-crash-air-traffic.htm
 https://nytimes.com/2025/07/31/us/tennessee-abandoned-baby-suspect.html
 
 **Greenberg: Cubs miss opportunity on a trade deadline day that called for action**\
-`The Cubs played it safe, and the White Sox tried to muster enthusiasm for another season of Luis Robert Jr.  Chicago fans shook their heads.`\
+`The Cubs played it safe, and the White Sox tried to muster enthusiasm for another season of Luis Robert Jr. Chicago fans shook their heads.`\
 https://nytimes.com/athletic/6529250/2025/07/31/cubs-white-sox-trade-deadline-missed-opportunities/
 
 **Carlos Correa had many reasons to approve trade back to Houston, including a position change**\
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/31/crosswords/daily-puzzle-2025-08-01.html
 **In John Mozeliak's final trade deadline with Cardinals, 'long-term view' was the priority**\
 `The Cardinals have been sellers in two of the last three trade deadlines. This year's version looked a little bit different.`\
 https://nytimes.com/athletic/6529158/2025/07/31/john-mozeliak-cardinals-trade-react/
-
-**‘And Just Like That …’ Season 3, Episode 10 Recap: Moving On**\
-`This week the flirtation between Carrie and Duncan escalated to a whole lot more than just a “laugh” and “sip of Scotch.”`\
-https://nytimes.com/2025/07/31/arts/television/and-just-like-that-recap-season-3-episode-10.html
 

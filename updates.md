@@ -1,3 +1,11 @@
+**The good, the bad and the ugly of the Giants' 2025 trade deadline**\
+`What went right, wrong and what just stings about a Giants deadline where they suddenly became sellers after looking like buyers in June.`\
+https://nytimes.com/athletic/6528872/2025/07/31/sf-giants-trade-deadline-assessment/
+
+**Greenberg: Cubs miss opportunity on a trade deadline day that called for action**\
+`The Cubs played it safe, and the White Sox tried to muster enthusiasm for another season of Luis Robert Jr. Chicago fans shook their heads.`\
+https://nytimes.com/athletic/6529250/2025/07/31/cubs-white-sox-trade-deadline-missed-opportunities/
+
 **Air Traffic Controllers Urged Safety Changes Years Before D.C. Crash**\
 `Air traffic control managers told the National Transportation Safety Board that F.A.A. leaders rebuffed efforts over the years to address hazardous conditions that played a role in the Jan. 29 crash.`\
 https://nytimes.com/2025/07/31/us/politics/ntsb-dc-airport-crash-air-traffic.html
