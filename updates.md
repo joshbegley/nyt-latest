@@ -1,3 +1,15 @@
+**The Politics of Masks**\
+`How masking is a source of both power and protection.`\
+https://nytimes.com/2025/08/01/briefing/the-politics-of-masks.html
+
+**Exxon Chief Says Demand for Oil Remains ‘Very, Very Strong.’**\
+`The largest U.S. energy companies reported their lowest second-quarter profits in years, as tariffs have weighed on oil prices.`\
+https://nytimes.com/2025/08/01/business/energy-environment/exxon-profit-oil-price.html
+
+**Trump Envoy Is Expected to See Gaza Aid Efforts Firsthand**\
+`Steve Witkoff is set to visit the enclave on Friday amid growing pressure on Israel to ease the hunger crisis. Hamas said the trip would be a “propaganda show.”`\
+https://nytimes.com/2025/08/01/world/middleeast/witkoff-gaza-aid-trump-us.html
+
 **Liverpool's new kit: How Adidas launched 10-year deal - and what's our verdict?**\
 `Kit sponsor reveal their new designs for the 2025-26 season with a nod to the club's past`\
 https://nytimes.com/athletic/6529793/2025/08/01/liverpools-new-kit-adidas-review/
