@@ -1,3 +1,7 @@
+**Rangers reach agreement to sign Tottenham winger Moore on loan**\
+`Rangers have reached an agreement with Tottenham Hotspur to sign winger Mikey Moore.`\
+https://nytimes.com/athletic/6520289/2025/08/01/tottenham-transfer-news-moore-rangers-loan/
+
 **Ben Davies on his future, Son Heung-min 'pride', and 'relief' at ending trophy drought**\
 `The veteran Spurs defender speaks to The Athletic about Brennan Johnson, Son Heung-min and what has changed under Thomas Frank`\
 https://nytimes.com/athletic/6529666/2025/08/01/ben-davies-interview-tottenham-hotspur/
