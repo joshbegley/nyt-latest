@@ -1,3 +1,7 @@
+**NFL sells RedZone, NFL Media assets to Disney for stake in ESPN in blockbuster trade: Sources**\
+`An official announcement is expected next week.`\
+https://nytimes.com/athletic/6530655/2025/08/01/nfl-espn-media-deal-tv-broadcast/
+
 **Fantasy baseball bullpen report: How the MLB trade deadline reshaped leverage pathways**\
 `Following MLB's trade deadline, Greg Jewett looks at bullpens and relievers around the league, now that the dust has settled. `\
 https://nytimes.com/athletic/6530402/2025/08/01/fantasy-bullpen-report-mlb-trade-deadline-leverage-pathways/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/01/dining/cola-cane-sugar-taste-test.html
 **Conversations and insights about the moment.**\
 ``\
 https://nytimes.com/live/2025/08/01/opinion/thepoint
-
-**Federal Government Shed 12,000 Jobs in July**\
-`The U.S. government has lost 84,000 jobs since January as the Trump administration aggressively reduces the work force.`\
-https://nytimes.com/2025/08/01/business/economy/federal-jobs-report-july.html
 

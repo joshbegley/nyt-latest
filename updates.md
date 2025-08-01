@@ -1,3 +1,7 @@
+**Fantasy baseball bullpen report: How the MLB trade deadline reshaped leverage pathways**\
+`Following MLB's trade deadline, Greg Jewett looks at bullpens and relievers around the league, now that the dust has settled. `\
+https://nytimes.com/athletic/6530402/2025/08/01/fantasy-bullpen-report-mlb-trade-deadline-leverage-pathways/
+
 **Dodgers are betting on their superstars to figure it out**\
 `"We're in a position where we're in first place, and I don't even think we've played our best baseball yet,” Dodgers GM Brandon Gomes said.`\
 https://nytimes.com/athletic/6530567/2025/08/01/dodgers-mlb-trade-deadline-stars/

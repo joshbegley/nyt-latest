@@ -1,3 +1,7 @@
+**Fantasy baseball bullpen report: How the MLB trade deadline reshaped leverage pathways**\
+`Following MLB's trade deadline, Greg Jewett looks at bullpens and relievers around the league, now that the dust has settled. `\
+https://nytimes.com/athletic/6530402/2025/08/01/fantasy-bullpen-report-mlb-trade-deadline-leverage-pathways/
+
 **Dodgers are betting on their superstars to figure it out**\
 `"We're in a position where we're in first place, and I don't even think we've played our best baseball yet,” Dodgers GM Brandon Gomes said.`\
 https://nytimes.com/athletic/6530567/2025/08/01/dodgers-mlb-trade-deadline-stars/
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/08/01/opinion/thepoint
 **Federal Government Shed 12,000 Jobs in July**\
 `The U.S. government has lost 84,000 jobs since January as the Trump administration aggressively reduces the work force.`\
 https://nytimes.com/2025/08/01/business/economy/federal-jobs-report-july.html
-
-**Putin Blames Frustration Over Ukraine Talks on ‘Inflated Expectations’**\
-`The Russian president didn’t directly respond to President Trump’s ultimatum that Moscow halt its offensive by the end of next week or face financial penalties.`\
-https://nytimes.com/2025/08/01/world/europe/trump-putin-ukraine-russia-talks.html
 
