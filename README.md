@@ -1,3 +1,7 @@
+**Kamala Harris’s Post-Election TV Diet: ‘Lots of Cooking Shows’**\
+`The former vice president told Stephen Colbert that she didn’t watch the news for months after losing to Donald Trump. “I’m just not into self-mutilation,” she said.`\
+https://nytimes.com/2025/08/01/arts/television/kamala-harris-stephen-colbert-late-show.html
+
 **How the Threat of Trump’s Highest Tariff Derailed an African Nation**\
 `The president backed off his call for a 50 percent tariff on Lesotho, imposing 15 percent instead. But in a country where most people live hand-to-mouth, the damage was already done.`\
 https://nytimes.com/2025/08/01/world/africa/lesotho-tariffs-textile-industry.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/01/learning/word-of-the-day-solarium.html
 **Judge Extends Protections for Migrants From Nepal, Honduras and Nicaragua**\
 `In blocking the end of deportation protections for more than 60,000 migrants, the judge said the Trump administration’s language surrounding the program had strayed into racist conspiracy theories.`\
 https://nytimes.com/2025/08/01/us/politics/tps-immigrants-nepal-honduras-venezuela.html
-
-**The New York Times in Print for Friday, Aug. 1, 2025**\
-``\
-https://nytimes.com/issue/todayspaper/2025/08/01/todays-new-york-times
 
