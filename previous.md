@@ -1,3 +1,7 @@
+**Ben Davies on his future, Son Heung-min 'pride', and 'relief' at ending trophy drought**\
+`The veteran Spurs defender speaks to The Athletic about Brennan Johnson, Son Heung-min and what has changed under Thomas Frank`\
+https://nytimes.com/athletic/6529666/2025/08/01/ben-davies-interview-tottenham-hotspur/
+
 **Kamala Harris’s Post-Election TV Diet: ‘Lots of Cooking Shows’**\
 `The former vice president told Stephen Colbert that she didn’t watch the news for months after losing to Donald Trump. “I’m just not into self-mutilation,” she said.`\
 https://nytimes.com/2025/08/01/arts/television/kamala-harris-stephen-colbert-late-show.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/01/world/americas/chile-mine-collapse.html
 **Word of the Day: solarium**\
 `This word has appeared in 16 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2025/08/01/learning/word-of-the-day-solarium.html
-
-**Judge Extends Protections for Migrants From Nepal, Honduras and Nicaragua**\
-`In blocking the end of deportation protections for more than 60,000 migrants, the judge said the Trump administration’s language surrounding the program had strayed into racist conspiracy theories.`\
-https://nytimes.com/2025/08/01/us/politics/tps-immigrants-nepal-honduras-venezuela.html
 

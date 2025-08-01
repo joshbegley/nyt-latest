@@ -1,3 +1,7 @@
+**Ben Davies on his future, Son Heung-min 'pride', and 'relief' at ending trophy drought**\
+`The veteran Spurs defender speaks to The Athletic about Brennan Johnson, Son Heung-min and what has changed under Thomas Frank`\
+https://nytimes.com/athletic/6529666/2025/08/01/ben-davies-interview-tottenham-hotspur/
+
 **Kamala Harris’s Post-Election TV Diet: ‘Lots of Cooking Shows’**\
 `The former vice president told Stephen Colbert that she didn’t watch the news for months after losing to Donald Trump. “I’m just not into self-mutilation,” she said.`\
 https://nytimes.com/2025/08/01/arts/television/kamala-harris-stephen-colbert-late-show.html
