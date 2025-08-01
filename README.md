@@ -1,3 +1,7 @@
+**Dodgers fix an outfield hole but give up talent to do so; add prospects for Dustin May**\
+`It was an unusually quiet deadline for the Dodgers, though they did make two deals on Thursday, adding and subtracting two prospects.`\
+https://nytimes.com/athletic/6529191/2025/07/31/los-angeles-dodgers-deadline-trades-analysis/
+
 **Trade deadline Q&A with Braves GM Alex Anthopoulos: What happened to selling?**\
 `Despite anticipation, the Braves stayed mostly quiet: "Our goal at this deadline was to focus on guys that could help us in '26."`\
 https://nytimes.com/athletic/6529253/2025/07/31/braves-alex-anthopolous-mlb-trade/
@@ -10,8 +14,8 @@ https://nytimes.com/athletic/6529260/2025/07/31/ufl-new-owner-mike-repole-change
 `President Trump’s impeachments were mentioned in an exhibit on the American presidency that museum officials said was outdated. A Smithsonian spokeswoman said a future exhibit would include “all impeachments.”`\
 https://nytimes.com/2025/07/31/us/politics/smithsonian-trump-impeachments-exhibit.html
 
-**‘Clinton Plan’ Emails Were Likely Made by Russian Spies, New Documents Show**\
-`The Trump administration has been releasing previously secret material related to the Russia investigation as it seeks to change the subject from its broken promise to release the Jeffrey Epstein files.`\
+**‘Clinton Plan’ Emails Were Likely Made by Russian Spies, Declassified Report Shows**\
+`An annex to a report by the special counsel John H. Durham was the latest in a series of disclosures about the Russia inquiry, as the Trump team seeks to distract from the Jeffrey Epstein files.`\
 https://nytimes.com/2025/07/31/us/politics/trump-clinton-emails-russia-investigation.html
 
 **Brian Cashman admits Yankees struck out on starting pitchers at trade deadline**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6528164/2025/07/31/mlb-trade-deadline-playing-time-
 **Cubs DFA Ryan Pressly as Chicago reshapes its bullpen for playoff race**\
 `The Cubs once hoped that Pressly would be pitching at Wrigley Field in October.`\
 https://nytimes.com/athletic/6529195/2025/07/31/chicago-cubs-ryan-pressly-dfa/
-
-**Why the Mets didn’t add to starting rotation at trade deadline**\
-`If the Mets were going to acquire a starter, it was likely going to have to be someone they viewed as part of their playoff rotation.`\
-https://nytimes.com/athletic/6529079/2025/07/31/new-york-mets-rotation-trade-deadline/
 
