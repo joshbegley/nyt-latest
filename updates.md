@@ -1,3 +1,7 @@
+**Chinese swimmer Yu Zidi, 12, becomes youngest World Aquatics Championships medalist**\
+`China won bronze in the 4x200m freestyle relay at the Championships in Singapore.`\
+https://nytimes.com/athletic/6529744/2025/08/01/yu-zidi-swimming-medal-age-12/
+
 **Savannah Bananas unpeel comic relief at Camden Yards this weekend. Here's how to watch**\
 `Guess who's back, back again? Stop guessing, it's obviously the Savannah Bananas. They're in Baltimore for two weekend scrimmages.`\
 https://nytimes.com/athletic/6526701/2025/08/01/savannah-bananas-baltimore-camden-yards-how-to-watch/

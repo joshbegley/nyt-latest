@@ -1,3 +1,7 @@
+**The 5 Moments That Made Simone Biles**\
+`The world’s most decorated gymnast reflects on her career-defining moments.`\
+https://nytimes.com/paidpost/ubs/the-5-moments-that-made-simone-biles.html
+
 **Chinese swimmer Yu Zidi, 12, becomes youngest World Aquatics Championships medalist**\
 `China won bronze in the 4x200m freestyle relay at the Championships in Singapore.`\
 https://nytimes.com/athletic/6529744/2025/08/01/yu-zidi-swimming-medal-age-12/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6527935/2025/08/01/college-football-transfer-portal
 **What if men's college basketball ran conference realignment?**\
 `Let us imagine a world where football is no longer the bullying juggernaut dictating every move in college sports.`\
 https://nytimes.com/athletic/6521319/2025/08/01/college-basketball-conference-realignment/
-
-**What Many Israelis Don’t Want to See**\
-`In the face of global outrage over starvation in Gaza, how is Israeli society responding?`\
-https://nytimes.com/2025/08/01/podcasts/the-daily/israel-society-gaza-starvation.html
 

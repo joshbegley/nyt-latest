@@ -1,3 +1,7 @@
+**Chinese swimmer Yu Zidi, 12, becomes youngest World Aquatics Championships medalist**\
+`China won bronze in the 4x200m freestyle relay at the Championships in Singapore.`\
+https://nytimes.com/athletic/6529744/2025/08/01/yu-zidi-swimming-medal-age-12/
+
 **Savannah Bananas unpeel comic relief at Camden Yards this weekend. Here's how to watch**\
 `Guess who's back, back again? Stop guessing, it's obviously the Savannah Bananas. They're in Baltimore for two weekend scrimmages.`\
 https://nytimes.com/athletic/6526701/2025/08/01/savannah-bananas-baltimore-camden-yards-how-to-watch/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6521319/2025/08/01/college-basketball-conference-re
 **What Many Israelis Don’t Want to See**\
 `In the face of global outrage over starvation in Gaza, how is Israeli society responding?`\
 https://nytimes.com/2025/08/01/podcasts/the-daily/israel-society-gaza-starvation.html
-
-**Kimi Antonelli’s rookie rise has stalled. Can Mercedes help him find his form?**\
-`With Mercedes sliding backward and its upgrades in flux, rookie phenom Kimi Antonelli is grappling with wavering confidence`\
-https://nytimes.com/athletic/6528107/2025/08/01/mercedes-kimi-antonelli-struggles-f1/
 
