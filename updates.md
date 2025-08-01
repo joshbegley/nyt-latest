@@ -1,3 +1,7 @@
+**MLB trade grades: Griffin Jax, Charlie Morton and other at-the-buzzer deadline deals**\
+`The Brewers, Royals, Giants, Cubs and others were active in the deadline's final moments.`\
+https://nytimes.com/athletic/6529240/2025/07/31/mlb-trade-grades-last-minute-deadline-deals/
+
 **Cecile Dionne, Who Found Fame and Despair as a Quintuplet, Dies at 91**\
 `The Dionnes, the first quints known to have survived infancy, became a global sensation and prey for the greedy. And Cecile came to resent it all. Only one of the five now survives.`\
 https://nytimes.com/2025/07/31/world/canada/cecile-dionne-dead.html
