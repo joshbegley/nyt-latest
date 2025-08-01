@@ -1,9 +1,21 @@
+**Marc Maron’s Podcast Made Him a Better Comic, Just One Part of a Rich Legacy**\
+`Online he uses an examination of his own mind to illuminate other people. This double focus is a key element of specials like his new “Panicked.”`\
+https://nytimes.com/2025/08/01/arts/television/marc-maron-panicked-wtf-podcast-comedy.html
+
+**Corporation for Public Broadcasting Will Shut Down**\
+`The company is among the first casualties of a vote to strip roughly $500 million in federal funding from NPR, PBS and local stations across the country.`\
+https://nytimes.com/2025/08/01/business/media/corporation-for-public-broadcasting-shut-down.html
+
+**Judge Bars Expedited Deportations of Migrants Paroled Into U.S.**\
+`The ruling halted the Trump administration from pursuing the deportation of hundreds of thousands of migrants accepted into the United States, who now retain only minimal legal safeguards.`\
+https://nytimes.com/2025/08/01/us/politics/trump-deportation-migrants-parole-blocked.html
+
 **‘And Just Like That…’ Will End After Season 3**\
 `The series, starring Sarah Jessica Parker as Carrie Bradshaw, will wrap things up with a two-part finale.`\
 https://nytimes.com/2025/08/01/arts/television/and-just-like-that-ending-season-3.html
 
-**Ross E. Rowland Jr., a Driver of Steam-Train Preservation, Dies at 85**\
-`He made a fortune on Wall Street, then used his wealth to back the American Freedom Train and other high-profile vintage excursions.`\
+**Ross Rowland, 85, Dies; a Railroad Preservationist by Way of Wall St.**\
+`He made a fortune as a commodities broker, then used his wealth to back the American Freedom Train and other high-profile vintage excursions.`\
 https://nytimes.com/2025/08/01/travel/ross-e-rowland-jr-dead.html
 
 **Is Trump’s Economy Starting to Crack?**\
@@ -15,7 +27,7 @@ https://nytimes.com/2025/08/01/opinion/tariffs-jobs-report-manufacturing-trump.h
 https://nytimes.com/2025/08/01/travel/yellowstone-geyser-old-faithful-boy-burned.html
 
 **After deadline additions, Yankees release Marcus Stroman**\
-`Stroman, still owed $18.5 million, had a 6.23 ERA in nine starts this season and a 4.69 ERA in 193 2/3 innings as a Yankee.`\
+`Stroman, still owed $18.5 million, had a 6.23 ERA in nine starts this season and a 4.69 ERA in 193 2/3 innings with the Yankees.`\
 https://nytimes.com/athletic/6530716/2025/08/01/yankees-marcus-stroman-release/
 
 **Massa, Magnussen, Djokovic invest in Ligue 2 club Le Mans**\
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6530510/2025/08/01/felipe-massa-kevin-magnussen-nov
 **Jury Says Tesla Was Partly to Blame for Fatal Crash**\
 `Lawyers for the family of a woman struck and killed by a Tesla sedan in 2019 argued that the company’s Autopilot software should have avoided the crash.`\
 https://nytimes.com/2025/08/01/business/tesla-autopilot-federal-trial-verdict.html
-
-**Trump Orders Subs Closer to Russia in Rare Nuclear Threat**\
-`In a social media post, the president described the move as a deterrent prompted by threats by a former Russian leader. It is unclear if any submarines did actually change position.`\
-https://nytimes.com/2025/08/01/us/politics/trump-nuclear-submarines-russia.html
-
-**Verstappen hits 200 (and more?) at Red Bull. Plus, Norris leads early in Hungary**\
-`Max Verstappen will reach 200 F1 races for Red Bull at the 2025 Hungarian GP, where McLaren is again dominating the on-track action `\
-https://nytimes.com/athletic/6530604/2025/08/01/verstappen-hits-200-and-more-at-red-bull-plus-norris-leads-early-in-hungary/
-
-**How 3 Lives Intersected in the Final Moments of the D.C. Crash**\
-`Documents released in the inquiry into the deadly collision of a military helicopter and a passenger jet reveal a smart but shaky pilot, a wary instructor and an overwhelmed air traffic controller.`\
-https://nytimes.com/2025/08/01/us/politics/dc-plane-helicopter-crash.html
 

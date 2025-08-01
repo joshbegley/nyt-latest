@@ -1,4 +1,8 @@
-**Ross E. Rowland Jr., Driver of Steam-Train Preservation, Dies at 85**\
+**‘And Just Like That…’ Will End After Season 3**\
+`The series, starring Sarah Jessica Parker as Carrie Bradshaw, will wrap things up with a two-part finale.`\
+https://nytimes.com/2025/08/01/arts/television/and-just-like-that-ending-season-3.html
+
+**Ross E. Rowland Jr., a Driver of Steam-Train Preservation, Dies at 85**\
 `He made a fortune on Wall Street, then used his wealth to back the American Freedom Train and other high-profile vintage excursions.`\
 https://nytimes.com/2025/08/01/travel/ross-e-rowland-jr-dead.html
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6530604/2025/08/01/verstappen-hits-200-and-more-at-
 **How 3 Lives Intersected in the Final Moments of the D.C. Crash**\
 `Documents released in the inquiry into the deadly collision of a military helicopter and a passenger jet reveal a smart but shaky pilot, a wary instructor and an overwhelmed air traffic controller.`\
 https://nytimes.com/2025/08/01/us/politics/dc-plane-helicopter-crash.html
-
-**Recent global trade deals with the U.S. were secured with murky investments.**\
-`were secured with huge, often vaguely defined investment pledges from partners like Japan.`\
-https://nytimes.com/live/2025/07/31/business/tariffs-trump-trade/recent-global-trade-deals-with-the-us-were-secured-with-murky-investments
 

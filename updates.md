@@ -1,3 +1,11 @@
+**‘And Just Like That…’ Will End After Season 3**\
+`The series, starring Sarah Jessica Parker as Carrie Bradshaw, will wrap things up with a two-part finale.`\
+https://nytimes.com/2025/08/01/arts/television/and-just-like-that-ending-season-3.html
+
+**Ross E. Rowland Jr., a Driver of Steam-Train Preservation, Dies at 85**\
+`He made a fortune on Wall Street, then used his wealth to back the American Freedom Train and other high-profile vintage excursions.`\
+https://nytimes.com/2025/08/01/travel/ross-e-rowland-jr-dead.html
+
 **Ross E. Rowland Jr., Driver of Steam-Train Preservation, Dies at 85**\
 `He made a fortune on Wall Street, then used his wealth to back the American Freedom Train and other high-profile vintage excursions.`\
 https://nytimes.com/2025/08/01/travel/ross-e-rowland-jr-dead.html
