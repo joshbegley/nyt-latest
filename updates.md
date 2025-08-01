@@ -1,3 +1,15 @@
+**Trump Administration Cuts Funds to U.C.L.A., Chancellor Says**\
+`The university is the latest to be targeted by the federal government over accusations that it has not done enough to fight antisemitism on campus.`\
+https://nytimes.com/2025/08/01/us/politics/trump-cuts-ucla-funding-federal-research.html
+
+**Alexander Isak: Newcastle reject formal Liverpool bid for striker**\
+`Isak wants to leave Newcastle this summer and has been training alone at his former club, Real Sociedad.`\
+https://nytimes.com/athletic/6526892/2025/08/01/liveroool-bid-transfer-newcastle-alexander-isak-future/
+
+**TAFC: Premier League star's betting case nightmare is over. Plus: Some hard truths over fan hypocrisy**\
+`In today's Athletic FC newsletter: Lucas Paqueta avoids a lifetime ban from the FA while two Manchester United academy graduates reunite`\
+https://nytimes.com/athletic/6529823/2025/08/01/lucas-paqueta-newsletter-osimhen-barcelona/
+
 **How to watch the Little League Softball World Series this week**\
 `Cue the organ, warm the confetti cannon and watch a dozen communities cram a lifetime of softball joy into eight delirious days.`\
 https://nytimes.com/athletic/6528437/2025/08/01/little-league-softball-world-series-2025-how-to-watch/
