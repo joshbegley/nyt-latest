@@ -1,3 +1,11 @@
+**Why the Mets didn’t add to starting rotation at trade deadline**\
+`If the Mets were going to acquire a starter, it was likely going to have to be someone they viewed as part of their playoff rotation.`\
+https://nytimes.com/athletic/6529079/2025/07/31/new-york-mets-rotation-trade-deadline/
+
+**Andrea Lucas Confirmed to Equal Employment Opportunity Commission**\
+`Ms. Lucas, who has led efforts to attack diversity, equity and inclusion initiatives, was confirmed by the Senate for a second term.`\
+https://nytimes.com/2025/07/31/us/politics/andrea-lucas-equal-employment-opportunity-commission.html
+
 **Coco Gauff advances at Canadian Open despite continuing struggles**\
 `Gauff overcomes 14 double faults and 53 unforced errors to beat Veronika Kudermetova.`\
 https://nytimes.com/athletic/6528867/2025/07/31/coco-gauff-win-canadian-open/
