@@ -1,3 +1,7 @@
+**Gaza War Protesters Arrested at Offices of Schumer and Gillibrand**\
+`Dozens of demonstrators were arrested at the Manhattan offices of New York’s two senators, after calling for a flood of humanitarian aid into the Gaza Strip.`\
+https://nytimes.com/2025/08/01/nyregion/gaza-war-protesters-schumer-gillibrand.html
+
 **192,000 Play Kitchens Are Recalled After Child Dies of Strangulation**\
 `Children playing with the set can get caught on a hook of the toy kitchen and asphyxiate themselves, the U.S. Consumer Product Safety Commission said.`\
 https://nytimes.com/2025/08/01/business/kids-play-kitchen-recall-toddler-death.html
