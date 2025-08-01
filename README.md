@@ -1,3 +1,23 @@
+**UFL adds new billionaire co-owner Mike Repole, who promises big changes**\
+`Repole said the UFL plans to move at least two teams this year, and that he sees the number of teams doubling over the next decade.`\
+https://nytimes.com/athletic/6529260/2025/07/31/ufl-new-owner-mike-repole-changes/
+
+**Smithsonian Removes Reference to Trump’s Impeachments, but Says It Will Return**\
+`President Trump’s impeachments were mentioned in an exhibit on the American presidency that museum officials said was outdated. A Smithsonian spokeswoman said a future exhibit would include “all impeachments.”`\
+https://nytimes.com/2025/07/31/us/politics/smithsonian-trump-impeachments-exhibit.html
+
+**‘Clinton Plan’ Emails Were Likely Made by Russian Spies, New Documents Show**\
+`The Trump administration has been releasing previously secret material related to the Russia investigation as it seeks to change the subject from its broken promise to release the Jeffrey Epstein files.`\
+https://nytimes.com/2025/07/31/us/politics/trump-clinton-emails-russia-investigation.html
+
+**Brian Cashman admits Yankees struck out on starting pitchers at trade deadline**\
+`“We are better today than we were yesterday,” Cashman said.`\
+https://nytimes.com/athletic/6529038/2025/07/31/brian-cashman-yankees-starting-pitchers/
+
+**Surprise contenders, the Blue Jays go all-in with deadline deals**\
+`The Jays got what they needed but also deserve credit for actually being willing to trade some real prospects at the deadline.`\
+https://nytimes.com/athletic/6529152/2025/07/31/blue-jays-trade-deadline-deals-analysis/
+
 **After Harrison Bader trade, Phillies outfield plan still undetermined**\
 `The newcomer won the 2021 NL Gold Glove in center field and is among the sport's top defenders in recent seasons.`\
 https://nytimes.com/athletic/6528975/2025/07/31/after-harrison-bader-trade-phillies-outfield-plan-still-undetermined/
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/6529079/2025/07/31/new-york-mets-rotation-trade-dea
 **Andrea Lucas Confirmed to Equal Employment Opportunity Commission**\
 `Ms. Lucas, who has led efforts to attack diversity, equity and inclusion initiatives, was confirmed by the Senate for a second term.`\
 https://nytimes.com/2025/07/31/us/politics/andrea-lucas-equal-employment-opportunity-commission.html
-
-**Coco Gauff advances at Canadian Open despite continuing struggles**\
-`Gauff overcomes 14 double faults and 53 unforced errors to beat Veronika Kudermetova.`\
-https://nytimes.com/athletic/6528867/2025/07/31/coco-gauff-win-canadian-open/
-
-**Yankees stockpile bullpen arms, add Camilo Doval for not much**\
-`Were the Giants just trying to move Doval at any cost? The Giants didn't get a great return for their hard-throwing closer.`\
-https://nytimes.com/athletic/6529049/2025/07/31/yankees-camilo-doval-trade-giants-return/
-
-**Why Ricky Pearsall, finally back from injury, is so key to 49ers' passing attack**\
-`The 49ers' QBs only threw one incompletion Thursday. Of course, the defense was missing cornerbacks Renardo Green and Deommodore Lenoir.`\
-https://nytimes.com/athletic/6528661/2025/07/31/49ers-ricky-pearsall-training-camp/
-
-**Hopefully Twins' trade deadline fire sale is followed by the team sale: takeaways**\
-`The Twins are eating $33 million of the $104 million left on Carlos Correa's contract in a shocking roster dismantling.`\
-https://nytimes.com/athletic/6528334/2025/07/31/twins-trade-deadline-takeaways-team-sale/
-
-**Six takeaways from the MLB trade deadline: Twins blow it up, A.J. Preller stays on brand**\
-`We’re still wrapping out heads around it, but here are some initial takeaways after a wild 24 hours.`\
-https://nytimes.com/athletic/6528989/2025/07/31/mlb-trade-deadline-takeaways/
 
