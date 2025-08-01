@@ -1,3 +1,7 @@
+**After Harrison Bader trade, Phillies outfield plan still undetermined**\
+`The newcomer won the 2021 NL Gold Glove in center field and is among the sport's top defenders in recent seasons.`\
+https://nytimes.com/athletic/6528975/2025/07/31/after-harrison-bader-trade-phillies-outfield-plan-still-undetermined/
+
 **Coby Mayo, Brooks Lee and others with better playing time opportunities after MLB trade deadline**\
 `When the dust settles for sellers after the deadline, players still with those teams get new opportunities to prove their worth.`\
 https://nytimes.com/athletic/6528164/2025/07/31/mlb-trade-deadline-playing-time-coby-mayo-brooks-lee/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6528334/2025/07/31/twins-trade-deadline-takeaways-t
 **Six takeaways from the MLB trade deadline: Twins blow it up, A.J. Preller stays on brand**\
 `We’re still wrapping out heads around it, but here are some initial takeaways after a wild 24 hours.`\
 https://nytimes.com/athletic/6528989/2025/07/31/mlb-trade-deadline-takeaways/
-
-**Tigers trade deadline takeaways: Was bullpen improved enough?**\
-`The Tigers made a series of moves to strengthen their bullpen, but they missed out on high-end arms. Will that come back to haunt them?`\
-https://nytimes.com/athletic/6528431/2025/07/31/tigers-trade-deadline-takeaways/
 
