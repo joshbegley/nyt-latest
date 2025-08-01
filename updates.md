@@ -1,3 +1,7 @@
+**Tariffs Land on Taiwan Amid Tension With Washington**\
+`The Trump administration is weighing yet more tariffs on chips, Taiwan’s main exports.`\
+https://nytimes.com/2025/08/01/business/taiwan-tariffs-trump-us-chips.html
+
 **The Book That Explains JD Vance’s Worldview**\
 `Yoram Hazony, the author of “The Virtue of Nationalism,” discusses the principles of national conservatism.`\
 https://nytimes.com/2025/08/01/opinion/ezra-klein-podcast-yoram-hazony.html
