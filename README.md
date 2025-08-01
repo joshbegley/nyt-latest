@@ -1,3 +1,7 @@
+**Derk Sauer, Champion of Free Press in a New Russia, Dies at 72**\
+`He was a socialist reporter turned magnate who earned a fortune in the 1990s. He defended press freedoms even after the industry became beleaguered and unprofitable.`\
+https://nytimes.com/2025/08/01/world/europe/derk-sauer-dead.html
+
 **Wolves hopeful of closing deal to sign Wolfe from AZ**\
 `A move for Wolfe would see him replace Rayan Ait-Nouri in the Wolves squad after the Algeria international joined Manchester City in June.`\
 https://nytimes.com/athletic/6528349/2025/08/01/david-moller-wolfe-wolves-transfer/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6529622/2025/08/01/mlb-trade-deadline-2025-the-puls
 **Stocks Tumble as Investors Grapple With the Rising Cost of Trade**\
 `President Trump’s newest barrage of tariffs, major corporate earnings reports and an imminent reading on the U.S. labor market weighed on markets.`\
 https://nytimes.com/2025/08/01/business/economy/trump-tariffs-stock-markets-trade.html
-
-**Trump Administration Cuts Funds to U.C.L.A., Chancellor Says**\
-`The university is the latest to be targeted by the federal government over accusations that it has not done enough to fight antisemitism on campus.`\
-https://nytimes.com/2025/08/01/us/politics/trump-cuts-ucla-funding-federal-research.html
 
