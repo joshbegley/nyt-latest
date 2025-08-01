@@ -1,3 +1,7 @@
+**192,000 Play Kitchens Are Recalled After Child Dies of Strangulation**\
+`Children playing with the set can get caught on a hook of the toy kitchen and asphyxiate themselves, the U.S. Consumer Product Safety Commission said.`\
+https://nytimes.com/2025/08/01/business/kids-play-kitchen-recall-toddler-death.html
+
 **Panthers WR Tetairoa McMillan's first camp — some good, some bad, still confident**\
 `McMillan has fought through a few rough patches at training camp to prove why the Panthers selected him No. 8 overall in April's draft.`\
 https://nytimes.com/athletic/6530900/2025/08/01/carolina-panthers-tetairoa-mcmillan-training-camp/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6530196/2025/08/01/womens-open-2025-nelly-korda/
 **An arm around the shoulder broke cricket's unwritten code. It risked an England-India flashpoint**\
 `It might have been the most provocative moment of a series that has been full of grumbles and spice`\
 https://nytimes.com/athletic/6530875/2025/08/01/england-india-akash-deep-ben-duckett-cricket-arm/
-
-**Commanders stadium deal all but certain after initial D.C. City Council approval**\
-`The vote keeps alive the Commanders' hopes of moving into a new stadium in Washington, D.C. in time for the 2030 season.`\
-https://nytimes.com/athletic/6530563/2025/08/01/commanders-stadium-deal-vote-approved/
 
