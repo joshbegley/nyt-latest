@@ -1,3 +1,11 @@
+**Joao Palhinha to have Tottenham medical ahead of loan move from Bayern Munich**\
+`The deal includes the option to make the transfer permanent for €30million at the end of the season.`\
+https://nytimes.com/athletic/6527051/2025/08/01/joao-palhinha-tottenham-transfers-bayern/
+
+**Rangers reach agreement to sign Tottenham winger Moore on loan**\
+`The two sides have announced the transfer, with the 17-year-old being set to wear the number 47 shirt.`\
+https://nytimes.com/athletic/6520289/2025/08/01/tottenham-transfer-news-moore-rangers-loan/
+
 **Kamala Harris Tells Colbert She Wants a Break From Public Office**\
 `The former Democratic nominee for president explained why she did not run for California governor in her first interview since leaving office as vice president.`\
 https://nytimes.com/2025/08/01/us/politics/kamala-harris-stephen-colbert-interview.html
