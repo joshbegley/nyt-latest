@@ -1,3 +1,7 @@
+**Dodgers are betting on their superstars to figure it out**\
+`"We're in a position where we're in first place, and I don't even think we've played our best baseball yet,” Dodgers GM Brandon Gomes said.`\
+https://nytimes.com/athletic/6530567/2025/08/01/dodgers-mlb-trade-deadline-stars/
+
 **How Tariffs Raise Costs for Farmers, Making Food More Expensive**\
 `The latest round of tariffs is likely to make agricultural production even more expensive and, potentially, limit access to goods not produced in the United States.`\
 https://nytimes.com/2025/08/01/business/economy/tariffs-agriculture-costs-farmers-consumers.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/01/business/economy/federal-jobs-report-july.html
 **Putin Blames Frustration Over Ukraine Talks on ‘Inflated Expectations’**\
 `The Russian president didn’t directly respond to President Trump’s ultimatum that Moscow halt its offensive by the end of next week or face financial penalties.`\
 https://nytimes.com/2025/08/01/world/europe/trump-putin-ukraine-russia-talks.html
-
-**Until Saturday: Hot-seat season in the SEC**\
-`Until Saturday is The Athletic's free CFB newsletter.`\
-https://nytimes.com/athletic/6530501/2025/08/01/sec-hot-seat-coaches-until-saturday/
 
