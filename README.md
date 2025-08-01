@@ -1,3 +1,7 @@
+**Ahead of Trade Deadline, Firms Rushed Goods Out of Duty-Free Warehouses**\
+`By keeping inventory in bonded warehouses or foreign trade zones, importers were able to hedge the tariff rate they ultimately paid.`\
+https://nytimes.com/2025/08/01/business/tariffs-foreign-trade-zone-warehouses.html
+
 **Why Is California So Chilly This Summer?**\
 `It’s been so cold in San Francisco, painters on the Golden Gate Bridge had to break out heaters.`\
 https://nytimes.com/2025/08/01/weather/san-francisco-summer-temperatures-cold-california.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6530900/2025/08/01/carolina-panthers-tetairoa-mcmil
 **Dallas Cowboys players show support for Micah Parsons amid star's trade request**\
 `Parsons has had 12 or more sacks in each of his first four seasons.`\
 https://nytimes.com/athletic/6530969/2025/08/01/micah-parsons-cowboys-trade-request-teammates-reactions/
-
-**Stock Market Posts Worst Week in Months on Renewed Economic Fears**\
-`Data showing cracks in the U.S. labor market and President Trump’s newest barrage of tariffs shook investors around the world, weighing on stocks, the dollar and more.`\
-https://nytimes.com/2025/08/01/business/economy/trump-tariffs-stock-markets-trade-dollar.html
 
