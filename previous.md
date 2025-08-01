@@ -1,6 +1,18 @@
+**Five Science Fiction Movies to Stream Now**\
+`In this month’s picks, expect mutating zombies, hostile planets and teleportation.`\
+https://nytimes.com/2025/08/01/movies/science-fiction-movies-to-stream.html
+
+**It’s Time for My Tomato and Watermelon Salad**\
+`Use one of those creamy feta cheeses that break down in the juices of the fruits to create a kind of ambrosia between the crisp and soft.`\
+https://nytimes.com/2025/08/01/dining/easy-tomato-and-watermelon-salad-recipe.html
+
+**Cubs to host 2027 MLB All-Star Game, first time at Wrigley since 1990**\
+`The Cubs' persistent lobbying efforts to land the All-Star Game lined up with the $1 billion Wrigleyville project.`\
+https://nytimes.com/athletic/6530245/2025/08/01/2027-mlb-all-star-game-wrigley-cubs/
+
 **What J.M.W. Turner Saw, and What We Still Can See**\
 `In the 250 years since the artist was born, the natural world he loved so much has changed. But he still reminds us to look with truth, clarity, and feeling.`\
-https://nytimes.com/2025/08/01/arts/jmw-turner-anniversary-uk.html
+https://nytimes.com/2025/08/01/arts/design/jmw-turner-anniversary-uk.html
 
 **EU court rules CAS decisions can be reviewed by national courts**\
 `CAS, an institution independent of any sports organisation, handles significant legal sporting cases such as doping and contract disputes.`\
@@ -25,16 +37,4 @@ https://nytimes.com/2025/08/01/arts/music/robert-wilson-theater.html
 **States Have More Data About You Than the Feds Do. Trump Wants to See It.**\
 `Critics fear that personal data might be used to monitor immigrants and political foes, and to spread false tales of fraud.`\
 https://nytimes.com/2025/08/01/upshot/trump-states-data-privacy.html
-
-**The Publicist on Call for Controversy**\
-`Mitchell Jackson was fired from a high-profile journalism job at 25. Now he represents some of the most divisive figures in America, including the right-wing podcaster Candace Owens.`\
-https://nytimes.com/2025/08/01/style/mitchell-jackson-publicist.html
-
-**India Reels From the Shock of Trump’s Onslaught**\
-`Russian oil poses just one problem. Business groups are flummoxed by the variety and vagueness of the American president’s complaints.`\
-https://nytimes.com/2025/08/01/business/economy/india-reels-from-the-shock-of-trumps-onslaught.html
-
-**The National 2025 diary: Observations and insights from the show floor**\
-`What's happening at the country's biggest sports collectors' show`\
-https://nytimes.com/athletic/6527161/2025/08/01/the-national-2025-sports-card-memorabilia-show/
 
