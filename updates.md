@@ -1,3 +1,7 @@
+**What did Cubs chairman Tom Ricketts think of Jed Hoyer’s trade deadline?**\
+`“We had a good trade deadline,” Ricketts said. “We have a really good team, and we added to it."`\
+https://nytimes.com/athletic/6531190/2025/08/01/cubs-jed-hoyer-tom-ricketts-trade-deadline-evaluation/
+
 **Kirby Yates hits the IL with back injury as Dodgers' bullpen depth tested again**\
 `Kirby has had a disappointing season and now is dealing with a lower back injury.`\
 https://nytimes.com/athletic/6531214/2025/08/01/kirby-yates-dodgers-bullpen-injuries/
