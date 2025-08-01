@@ -1,3 +1,7 @@
+**States Sue Over Trump Efforts to End Pediatric Transgender Medical Care**\
+`The lawsuit comes amid escalating efforts by the U.S. government to restrict the availability of certain services for transgender adolescents.`\
+https://nytimes.com/2025/08/01/nyregion/transgender-care-lawsuit-trump.html
+
 **A Catalog of Losses Under Trump**\
 `Readers discuss a series of setbacks under the Trump administration. Also: Sugary drinks and SNAP.`\
 https://nytimes.com/2025/08/01/opinion/trump-losses.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6530566/2025/08/01/nolan-arenado-shoulder-injury-ca
 **World Series odds: How the contenders stack up after the trade deadline**\
 `The trade deadline didn't feature many big trades, but there were plenty of deals. Here's how the World Series odds were affected.`\
 https://nytimes.com/athletic/6530327/2025/08/01/world-series-winner-odds-dodgers-mets-yankees-phillies/
-
-**Does Soda Made Without High-Fructose Corn Syrup Actually Taste Better? We Did a Taste Test.**\
-`When it comes to beloved sodas, the taste buds want what the taste buds want.`\
-https://nytimes.com/2025/08/01/dining/cola-cane-sugar-taste-test.html
 

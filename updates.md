@@ -1,3 +1,15 @@
+**A Catalog of Losses Under Trump**\
+`Readers discuss a series of setbacks under the Trump administration. Also: Sugary drinks and SNAP.`\
+https://nytimes.com/2025/08/01/opinion/trump-losses.html
+
+**NFL deals Red Zone, NFL Media assets to ESPN in blockbuster billion-dollar agreement: Sources**\
+`ESPN is expected to have access to RedZone, NFL Network and seven more regular-season games, among other assets.`\
+https://nytimes.com/athletic/6530655/2025/08/01/nfl-espn-media-deal-tv-broadcast/
+
+**Does Soda Made Without High-Fructose Corn Syrup Actually Taste Better? We Did a Taste Test.**\
+`When it comes to beloved sodas, the taste buds want what the taste buds want.`\
+https://nytimes.com/2025/08/01/dining/cola-cane-sugar-taste-test.html
+
 **NFL sells RedZone, NFL Media assets to Disney for stake in ESPN in blockbuster trade: Sources**\
 `An official announcement is expected next week.`\
 https://nytimes.com/athletic/6530655/2025/08/01/nfl-espn-media-deal-tv-broadcast/
