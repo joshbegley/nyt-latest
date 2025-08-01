@@ -1,3 +1,7 @@
+**Trump Sharpens Sanctions Threat on Russia, While Admitting It May Not Work**\
+`“We’re going to put sanctions,” the president said, even before a deadline he had given Russia this week to engage in cease-fire negotiations had passed.`\
+https://nytimes.com/2025/07/31/us/politics/trump-russia-putin-sanctions.html
+
 **Here is the latest.**\
 `By River Akira Davis and Lydia DePillis`\
 https://nytimes.com/live/2025/07/31/business/tariffs-trump-trade/here-is-the-latest
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6529368/2025/07/31/carlos-correa-astros-trade-third
 **Trump, Term-Limited, Amasses $200 Million War Chest for Political Ambitions**\
 `The money is meant to beat Democrats, but some Republicans worry it could be used to beat Republicans, too.`\
 https://nytimes.com/2025/07/31/us/politics/maga-inc-trump-fundraising.html
-
-**With best deadline in a decade, Mets keep pace in competitive NL**\
-`Not since 2015 had the Mets acted this aggressively to acquire outside talent and improve the big-league roster.`\
-https://nytimes.com/athletic/6529190/2025/07/31/mets-trade-deadline-ryan-helsley-cedric-mullins/
 
