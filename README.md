@@ -26,7 +26,7 @@ https://nytimes.com/2025/08/01/world/canada/canada-tariffs-trump.html
 `The San Diego Padres general manager evoked strong opinions from various corners of the industry.`\
 https://nytimes.com/athletic/6529525/2025/08/01/padres-trade-deadline-day-reactions/
 
-**Stanford expected to hire former Nike CEO John Donahoe as AD: Sources**\
+**Stanford expected to hire former Nike CEO John Donahoe as AD**\
 `The school has been without a permanent AD since February, when Bernard Muir was forced out after 13 years on the job.`\
 https://nytimes.com/athletic/6529522/2025/08/01/john-donahoe-stanford-athletic-director-hire-nike/
 
