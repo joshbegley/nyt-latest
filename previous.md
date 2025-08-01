@@ -1,3 +1,7 @@
+**Burnley on verge of completing deal for Chelsea forward Broja**\
+`Burnley are hoping to add to their goalscoring options this summer as they return to the Premier League.`\
+https://nytimes.com/athletic/6383421/2025/08/01/armando-broja-burnley-talks-chelsea-permanent-transfer/
+
 **Harrison Bader arrives, but sits as Phillies delay major outfield decisions**\
 `There are legitimate questions about how the Phillies will construct their outfield in the immediate and further down the road.`\
 https://nytimes.com/athletic/6531200/2025/08/01/harrison-bader-phillies-outfield-decisions/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6531053/2025/08/01/broncos-talanoa-hufanga-defensiv
 **In Tense Hearing, Texas Republicans Defend Redrawn Political Map**\
 `The legislative hearing was part of a rapidly moving redistricting process, pushed by President Trump, that could see the map approved next week.`\
 https://nytimes.com/2025/08/01/us/politics/texas-redistricting.html
-
-**For Some, Return of Presidential Fitness Test Revives Painful Memories**\
-`Generations of Americans who struggled to complete a pull-up in front of their classmates winced as President Trump announced that he was reinstating the annual assessment.`\
-https://nytimes.com/2025/08/01/well/trump-presidential-fitness-test.html
 

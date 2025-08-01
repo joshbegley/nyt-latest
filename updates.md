@@ -1,3 +1,7 @@
+**Burnley on verge of completing deal for Chelsea forward Broja**\
+`Burnley are hoping to add to their goalscoring options this summer as they return to the Premier League.`\
+https://nytimes.com/athletic/6383421/2025/08/01/armando-broja-burnley-talks-chelsea-permanent-transfer/
+
 **Harrison Bader arrives, but sits as Phillies delay major outfield decisions**\
 `There are legitimate questions about how the Phillies will construct their outfield in the immediate and further down the road.`\
 https://nytimes.com/athletic/6531200/2025/08/01/harrison-bader-phillies-outfield-decisions/
