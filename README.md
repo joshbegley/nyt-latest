@@ -1,3 +1,23 @@
+**‘My Oxford Year’ Review: Finding Love Abroad**\
+`She’s a working-class romantic. He’s a prep school playboy. A Netflix romance film aims to be this generation’s “About Time,” but doesn’t hit the mark.`\
+https://nytimes.com/2025/08/01/movies/my-oxford-year-review.html
+
+**A Funeral Shines a Light on the Bangladeshis Thriving in the N.Y.P.D.**\
+`At least 1,000 of the department’s 34,000 officers belong to the Bangladeshi American Police Association. They are members of the latest immigrant group to join the force.`\
+https://nytimes.com/2025/08/01/nyregion/nypd-didarul-islam-bangladesh.html
+
+**They Served Their Time for Sex Crimes. The State Won’t Let Them Go.**\
+`New Jersey’s secure treatment center for detaining sex offenders is supposed to keep the public safe. Critics say it violates civil liberties.`\
+https://nytimes.com/2025/08/01/nyregion/nj-sex-offenders-civil-commitment.html
+
+**How a Letter to the Editor Can Forge a Friendship**\
+`The New York Times’s Letters to the Editor column invites a wide range of voices to share their thoughts. Sometimes it fosters real-life connections.`\
+https://nytimes.com/2025/08/01/insider/letters-to-the-editor.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/08/01/crosswords/spelling-bee-forum.html
+
 **5 Missing After Deadly Mine Collapse in Chile**\
 `Chile’s state-owned copper company halted operations at its El Teniente mine after an earthquake. At least one person was killed in the accident.`\
 https://nytimes.com/2025/08/01/world/americas/chile-mine-collapse.html
@@ -17,24 +37,4 @@ https://nytimes.com/issue/todayspaper/2025/08/01/todays-new-york-times
 **Netanyahu Is Choosing to Starve Gaza**\
 `To end starvation — and stave off social collapse — in Gaza, Israel must allow humanitarian-aid professionals to do their jobs.`\
 https://nytimes.com/2025/08/01/opinion/gaza-israel-famine-starvation.html
-
-**El Salvador Changes Constitution, Ending Term Limits for Nayib Bukele**\
-`The president, a Trump ally, will now be able to seek re-election indefinitely. The National Assembly also extended the presidential term to six years.`\
-https://nytimes.com/2025/08/01/world/americas/el-salvador-bukele-term-limits.html
-
-**Heavy Rain Floods Subways and Roads Along East Coast**\
-`Water poured down into metro stations and shot up from the roads like geysers as the Northeast saw major flooding on Thursday.`\
-https://nytimes.com/video/weather/100000010318190/rain-flash-flooding-warning-northeast-mid-atlantic.html
-
-**Trump Gives Mexico a Reprieve but Slams Canada With Higher Tariffs**\
-`The imbalance in President Trump’s treatment of America’s closest trading partners may come from his desire to make Canada the 51st state, some Canadians believe.`\
-https://nytimes.com/2025/08/01/world/canada/canada-tariffs-trump.html
-
-**A.J. Preller’s busiest deadline day was a sight to behold: ‘Something out of a video game’**\
-`The San Diego Padres general manager evoked strong opinions from various corners of the industry.`\
-https://nytimes.com/athletic/6529525/2025/08/01/padres-trade-deadline-day-reactions/
-
-**Stanford expected to hire former Nike CEO John Donahoe as AD**\
-`The school has been without a permanent AD since February, when Bernard Muir was forced out after 13 years on the job.`\
-https://nytimes.com/athletic/6529522/2025/08/01/john-donahoe-stanford-athletic-director-hire-nike/
 
