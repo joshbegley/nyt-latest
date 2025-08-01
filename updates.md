@@ -1,3 +1,11 @@
+**Flaco Jiménez, Grammy-Winning Master of the Tex-Mex Accordion, Dies at 86**\
+`Fusing traditional Tejano sounds with blues, rock and country, he recorded with Bob Dylan, the Rolling Stones and Ry Cooder.`\
+https://nytimes.com/2025/08/01/arts/music/flaco-jimenez-dead.html
+
+**Sha'Carri Richardson arrested on domestic assault charge in Seattle**\
+`The incident landed Richardson in custody for just shy of 19 hours at the SCORE South Correctional Entity.`\
+https://nytimes.com/athletic/6531174/2025/08/01/shacarri-richardson-arrest-seattle-airport-usatf-championships/
+
 **Burnley on verge of completing deal for Chelsea forward Broja**\
 `Burnley are hoping to add to their goalscoring options this summer as they return to the Premier League.`\
 https://nytimes.com/athletic/6383421/2025/08/01/armando-broja-burnley-talks-chelsea-permanent-transfer/
