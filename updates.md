@@ -1,3 +1,7 @@
+**With best deadline in a decade, Mets keep pace in competitive NL**\
+`Not since 2015 had the Mets acted this aggressively to acquire outside talent and improve the big-league roster.`\
+https://nytimes.com/athletic/6529190/2025/07/31/mets-trade-deadline-ryan-helsley-cedric-mullins/
+
 **Greenberg: Cubs miss opportunity on a trade deadline day that called for action**\
 `The Cubs played it safe, and the White Sox tried to muster enthusiasm for another season of Luis Robert Jr.  Chicago fans shook their heads.`\
 https://nytimes.com/athletic/6529250/2025/07/31/cubs-white-sox-trade-deadline-missed-opportunities/
