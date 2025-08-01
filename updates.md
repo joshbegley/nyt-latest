@@ -1,3 +1,11 @@
+**Rob Manfred downplays confrontation with Phillies superstar Bryce Harper**\
+`“It was an individual picking a particular way to express himself. And I don’t think you need to make more out of that than that."`\
+https://nytimes.com/athletic/6530982/2025/08/01/mlb-rob-manfred-bryce-harper-salary-cap/
+
+**Police Seek Gunman After Shooting in Montana**\
+`The sheriff’s office in a neighboring county said there was a manhunt underway. It was not immediately clear if anyone had been killed.`\
+https://nytimes.com/2025/08/01/us/montana-anaconda-shooting.html
+
 **Eagles training camp: Drew Mukuba returns with limitations, highlights from quasi-scrimmage**\
 `Plus, Cooper DeJean gets more time at safety, just as Vic Fangio wanted.`\
 https://nytimes.com/athletic/6530590/2025/08/01/eagles-training-camp-drew-mukuba-scrimmage/

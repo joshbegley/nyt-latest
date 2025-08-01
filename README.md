@@ -1,9 +1,21 @@
+**Panthers WR Tetairoa McMillan's first camp — some good, some bad, still confident**\
+`McMillan has fought through a few rough patches at training camp to prove why the Panthers selected him No. 8 overall in April's draft.`\
+https://nytimes.com/athletic/6530900/2025/08/01/carolina-panthers-tetairoa-mcmillan-training-camp/
+
+**Dallas Cowboys players show support for Micah Parsons amid star's trade request**\
+`Parsons has had 12 or more sacks in each of his first four seasons.`\
+https://nytimes.com/athletic/6530969/2025/08/01/micah-parsons-cowboys-trade-request-teammates-reactions/
+
+**Stock Market Posts Worst Week in Months on Renewed Economic Fears**\
+`Data showing cracks in the U.S. labor market and President Trump’s newest barrage of tariffs shook investors around the world, weighing on stocks, the dollar and more.`\
+https://nytimes.com/live/2025/07/31/business/tariffs-trump-trade/trump-tariffs-stock-markets-trade
+
 **Rob Manfred downplays confrontation with Phillies superstar Bryce Harper**\
-`“It was an individual picking a particular way to express himself. And I don’t think you need to make more out of that than that."`\
+`Manfred: “It was an individual picking a particular way to express himself. And I don’t think you need to make more out of that than that."`\
 https://nytimes.com/athletic/6530982/2025/08/01/mlb-rob-manfred-bryce-harper-salary-cap/
 
 **Police Seek Gunman After Shooting in Montana**\
-`The sheriff’s office in a neighboring county said there was a manhunt underway. It was not immediately clear if anyone had been killed.`\
+`The police in Anaconda, Mont., said there was a manhunt underway. It was not immediately clear if anyone had been killed.`\
 https://nytimes.com/2025/08/01/us/montana-anaconda-shooting.html
 
 **Eagles training camp: Drew Mukuba returns with limitations, highlights from quasi-scrimmage**\
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6530875/2025/08/01/england-india-akash-deep-ben-duc
 **Commanders stadium deal all but certain after initial D.C. City Council approval**\
 `The vote keeps alive the Commanders' hopes of moving into a new stadium in Washington, D.C. in time for the 2030 season.`\
 https://nytimes.com/athletic/6530563/2025/08/01/commanders-stadium-deal-vote-approved/
-
-**Flashback: Your Weekly History Quiz, Aug. 2, 2025**\
-`Can you sort 8 historical events?`\
-https://nytimes.com/interactive/2025/08/01/upshot/flashback.html
-
-**Liverpool's Morton close to Lyon deal worth around £15 million**\
-`The 22-year-old has made 14 senior appearances for Liverpool and would be interested in a permanent move.`\
-https://nytimes.com/athletic/6524675/2025/08/01/tyler-morton-liverpool-lyon-transfer-close/
-
-**The 8.3.25 Issue**\
-``\
-https://nytimes.com/issue/magazine/2025/08/01/the-8325-issue
 
