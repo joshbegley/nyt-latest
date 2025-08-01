@@ -1,3 +1,11 @@
+**The New York Times International Edition in Print for Saturday, Aug. 2, 2025**\
+``\
+https://nytimes.com/issue/todaysinyt/2025/08/01/todays-new-york-times-international-edition
+
+**Switzerland Is Stunned by 39% U.S. Tariff, Among the Highest in the World**\
+`Swiss officials plan to negotiate furiously for a lower rate in the coming days, before the punishing levy takes effect.`\
+https://nytimes.com/2025/08/01/business/economy/switzerland-trump-tariffs.html
+
 **Tariffs Land on Taiwan Amid Tension With Washington**\
 `The Trump administration is weighing yet more tariffs on chips, Taiwan’s main exports.`\
 https://nytimes.com/2025/08/01/business/taiwan-tariffs-trump-us-chips.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/08/01/style/sydney-sweeney-jeans-american-eagle-ad.html
 **The Book That Explains JD Vance’s Worldview**\
 `Yoram Hazony, the author of “The Virtue of Nationalism,” discusses the principles of national conservatism.`\
 https://nytimes.com/video/opinion/100000010315240/the-book-that-explains-jd-vances-worldview.html
-
-**With Epstein, Trump Betrays His Brand. His Supporters Notice.**\
-`Trump’s handling of the Epstein issue runs counter to the sense that he is an outsider fighting against a hostile class of insiders.`\
-https://nytimes.com/2025/08/01/opinion/epstein-trump-polls.html
-
-**Virginia Education Board Could Oust George Mason’s President**\
-`Republicans have attacked the president, Gregory Washington, over his support for diversity efforts at the university, Virginia’s largest public institution.`\
-https://nytimes.com/2025/08/01/us/george-masons-president-gregory-washington-republicans-diversity.html
 

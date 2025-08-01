@@ -1,3 +1,11 @@
+**The New York Times International Edition in Print for Saturday, Aug. 2, 2025**\
+``\
+https://nytimes.com/issue/todaysinyt/2025/08/01/todays-new-york-times-international-edition
+
+**Switzerland Is Stunned by 39% U.S. Tariff, Among the Highest in the World**\
+`Swiss officials plan to negotiate furiously for a lower rate in the coming days, before the punishing levy takes effect.`\
+https://nytimes.com/2025/08/01/business/economy/switzerland-trump-tariffs.html
+
 **Tariffs Land on Taiwan Amid Tension With Washington**\
 `The Trump administration is weighing yet more tariffs on chips, Taiwan’s main exports.`\
 https://nytimes.com/2025/08/01/business/taiwan-tariffs-trump-us-chips.html
