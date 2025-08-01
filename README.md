@@ -1,3 +1,11 @@
+**Federal Government Shed 12,000 Jobs in July**\
+`The U.S. government has lost 84,000 jobs since January as the Trump administration aggressively reduces the work force.`\
+https://nytimes.com/2025/08/01/business/economy/federal-jobs-report-july.html
+
+**Putin Blames Frustration Over Ukraine Talks on ‘Inflated Expectations’**\
+`The Russian president didn’t directly respond to President Trump’s ultimatum that Moscow halt its offensive by the end of next week or face financial penalties.`\
+https://nytimes.com/2025/08/01/world/europe/trump-putin-ukraine-russia-talks.html
+
 **Until Saturday: Hot-seat season in the SEC**\
 `Until Saturday is The Athletic's free CFB newsletter.`\
 https://nytimes.com/athletic/6530501/2025/08/01/sec-hot-seat-coaches-until-saturday/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/08/01/us/politics/triple-murderer-release-trump-venezue
 **Chappell Roan Guts Out a Breakup, and 10 More New Songs**\
 `Hear tracks by Hayley Williams, Kehlani, Tame Impala and others.`\
 https://nytimes.com/2025/08/01/arts/music/playlist-chappell-roan-tame-impala.html
-
-**Trey Lance shines and other takeaways from Chargers' Hall of Fame Game win over Lions**\
-`If Lance continues his trajectory after Thursday's performance, he has a very good chance to be the Chargers' backup QB. `\
-https://nytimes.com/athletic/6530317/2025/08/01/chargers-trey-lance-hall-of-game-game/
-
-**Who is Gilbert Arenas? Former NBA guard with unserious persona now in serious scenario**\
-`Arenas' nature has been to turn the most earnest moments into something that can make for content creation.`\
-https://nytimes.com/athletic/6528928/2025/08/01/gilbert-arenas-nba-arrest-gambling/
 
