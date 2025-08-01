@@ -1,3 +1,7 @@
+**Cubs to host 2027 MLB All-Star Game, first time at Wrigley since 1990**\
+`The Cubs' persistent lobbying efforts to land the All-Star Game lined up with the $1 billion Wrigleyville project.`\
+https://nytimes.com/athletic/6530245/2025/08/01/2027-mlb-all-star-game-wrigley-cubs/
+
 **What J.M.W. Turner Saw, and What We Still Can See**\
 `In the 250 years since the artist was born, the natural world he loved so much has changed. But he still reminds us to look with truth, clarity, and feeling.`\
 https://nytimes.com/2025/08/01/arts/jmw-turner-anniversary-uk.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/01/style/mitchell-jackson-publicist.html
 **India Reels From the Shock of Trump’s Onslaught**\
 `Russian oil poses just one problem. Business groups are flummoxed by the variety and vagueness of the American president’s complaints.`\
 https://nytimes.com/2025/08/01/business/economy/india-reels-from-the-shock-of-trumps-onslaught.html
-
-**The National 2025 diary: Observations and insights from the show floor**\
-`What's happening at the country's biggest sports collectors' show`\
-https://nytimes.com/athletic/6527161/2025/08/01/the-national-2025-sports-card-memorabilia-show/
 

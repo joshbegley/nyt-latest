@@ -1,3 +1,11 @@
+**What J.M.W. Turner Saw, and What We Still Can See**\
+`In the 250 years since the artist was born, the natural world he loved so much has changed. But he still reminds us to look with truth, clarity, and feeling.`\
+https://nytimes.com/2025/08/01/arts/jmw-turner-anniversary-uk.html
+
+**EU court rules CAS decisions can be reviewed by national courts**\
+`CAS, an institution independent of any sports organisation, handles significant legal sporting cases such as doping and contract disputes.`\
+https://nytimes.com/athletic/6529939/2025/08/01/eu-court-rules-cas-decisions-can-be-reviewed-by-national-courts/
+
 **Micah Parsons-Cowboys relationship deteriorating amid contract standoff: Sources**\
 `Parsons, who is in the final year of his rookie deal, is attending practices but not participating in on-field work amid escalating tension.`\
 https://nytimes.com/athletic/6530081/2025/08/01/micah-parsons-jerry-jones-contract-negotiation/
