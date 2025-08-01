@@ -1,3 +1,7 @@
+**Chappell Roan Guts Out a Breakup, and 10 More New Songs**\
+`Hear tracks by Hayley Williams, Kehlani, Tame Impala and others.`\
+https://nytimes.com/2025/08/01/arts/music/playlist-chappell-roan-tame-impala.html
+
 **Trey Lance shines and other takeaways from Chargers' Hall of Fame Game win over Lions**\
 `If Lance continues his trajectory after Thursday's performance, he has a very good chance to be the Chargers' backup QB. `\
 https://nytimes.com/athletic/6530317/2025/08/01/chargers-trey-lance-hall-of-game-game/
