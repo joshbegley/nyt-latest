@@ -1,3 +1,15 @@
+**Michael Cardozo, 84, New York City’s Longest-Serving Chief Lawyer, Dies**\
+`As the city’s corporation counsel under Mayor Michael Bloomberg, he defended stop-and-frisk policing and a ban on smoking in bars and restaurants.`\
+https://nytimes.com/2025/08/01/nyregion/michael-a-cardozo-dead.html
+
+**After a Weak Jobs Report, Trump Fired the Agency’s Leader**\
+`Also, radioactive wasp nests were found in South Carolina. Here’s the latest at the end of Friday.`\
+https://nytimes.com/2025/08/01/briefing/trump-jobs-report-radioactive-wasp-nests.html
+
+**Talanoa Hufanga's 'sick' play fuels dominant day for new-look Broncos secondary**\
+`Hufanga's interception early in Friday's practice was the first turnover by quarterback Bo Nix in training camp `\
+https://nytimes.com/athletic/6531053/2025/08/01/broncos-talanoa-hufanga-defensive-backs/
+
 **In Tense Hearing, Texas Republicans Defend Redrawn Political Map**\
 `The legislative hearing was part of a rapidly moving redistricting process, pushed by President Trump, that could see the map approved next week.`\
 https://nytimes.com/2025/08/01/us/politics/texas-redistricting.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6425978/2025/08/01/raul-asencio-prosecutors-ask-for
 **Would You Wear the Dimes Square T-Shirt?**\
 `A canny bit of marketing? A fast-fashion boondoggle? A must-have souvenir from the end of civilization? Or maybe just another meaningless T-shirt.`\
 https://nytimes.com/2025/08/01/style/dimes-square-t-shirt-hm.html
-
-**Astronauts Head to Space Station as Clouds Stay Just Far Enough Away**\
-`After a scrubbed launch on Thursday, four astronauts lifted off from Florida and will dock at the International Space Station on Saturday.`\
-https://nytimes.com/2025/08/01/science/nasa-astronauts-space-station-cardman.html
-
-**Gaza War Protesters Arrested at Offices of Schumer and Gillibrand**\
-`Dozens of demonstrators, calling for a flood of humanitarian aid into the Gaza Strip, were arrested at the Manhattan offices of New York’s two senators.`\
-https://nytimes.com/2025/08/01/nyregion/gaza-war-protesters-schumer-gillibrand.html
-
-**192,000 Play Kitchens Are Recalled After Child Dies of Strangulation**\
-`Children playing with the set can get caught on a hook of the toy kitchen and asphyxiate themselves, the U.S. Consumer Product Safety Commission said.`\
-https://nytimes.com/2025/08/01/business/kids-play-kitchen-recall-toddler-death.html
 
