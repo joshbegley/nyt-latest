@@ -1,3 +1,11 @@
+**Savannah Bananas unpeel comic relief at Camden Yards this weekend. Here's how to watch**\
+`Guess who's back, back again? Stop guessing, it's obviously the Savannah Bananas. They're in Baltimore for two weekend scrimmages.`\
+https://nytimes.com/athletic/6526701/2025/08/01/savannah-bananas-baltimore-camden-yards-how-to-watch/
+
+**J.J. McCarthy’s secret weapon for 2025? The man snapping him the football**\
+`Former Colts center Ryan Kelly should play a vital role in mitigating the mental pressure on McCarthy before the snap.`\
+https://nytimes.com/athletic/6527922/2025/08/01/ryan-kelly-vikings-jj-mccarthy-secret-weapon/
+
 **How Aaron Rodgers' connection with Mike Tomlin led him to the Steelers**\
 `Rodgers on the long-time Steelers coach: “It felt like I was talking to a friend, not a coach. ... He's a big part of this whole thing.”`\
 https://nytimes.com/athletic/6528454/2025/08/01/aaron-rodgers-mike-tomlin-steelers-nfl/
