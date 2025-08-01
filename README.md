@@ -1,3 +1,7 @@
+**Tariffs Land on Taiwan Amid Tension With Washington**\
+`The Trump administration is weighing yet more tariffs on chips, Taiwan’s main exports.`\
+https://nytimes.com/2025/08/01/business/taiwan-tariffs-trump-us-chips.html
+
 **The Book That Explains JD Vance’s Worldview**\
 `Yoram Hazony, the author of “The Virtue of Nationalism,” discusses the principles of national conservatism.`\
 https://nytimes.com/2025/08/01/opinion/ezra-klein-podcast-yoram-hazony.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/01/opinion/epstein-trump-polls.html
 **Virginia Education Board Could Oust George Mason’s President**\
 `Republicans have attacked the president, Gregory Washington, over his support for diversity efforts at the university, Virginia’s largest public institution.`\
 https://nytimes.com/2025/08/01/us/george-masons-president-gregory-washington-republicans-diversity.html
-
-**Corruption Scandal Puts Mexico’s President on Defense Against Trump**\
-`Mexico’s president, battling U.S. accusations that the cartels have gripped her government, is facing a scandal in which two former officials are on the run and their old boss is now a top senator.`\
-https://nytimes.com/2025/08/01/world/americas/mexico-corruption-trump.html
 
