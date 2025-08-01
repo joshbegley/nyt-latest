@@ -1,3 +1,7 @@
+**With New 40% Tariff, Trump Takes Aim at U.S. Dependence on China’s Factories**\
+`President Trump’s executive order carved out a special tariff on goods shipped indirectly to the United States by way of other countries.`\
+https://nytimes.com/2025/08/01/business/trump-tariffs-china-transshipment.html
+
 **How Did Hunger Get So Much Worse in Gaza?**\
 `Less food is going into Gaza now than during most other times in the war. Hundreds of Palestinians have been killed while heading toward aid sites. Many others are suffering from serious malnutrition, and Gazan health officials say scores have died from it.`\
 https://nytimes.com/interactive/2025/08/01/world/middleeast/gaza-hunger-aid-sites-deaths-israel.html

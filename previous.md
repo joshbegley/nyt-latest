@@ -1,3 +1,7 @@
+**With New 40% Tariff, Trump Takes Aim at U.S. Dependence on China’s Factories**\
+`President Trump’s executive order carved out a special tariff on goods shipped indirectly to the United States by way of other countries.`\
+https://nytimes.com/2025/08/01/business/trump-tariffs-china-transshipment.html
+
 **How Did Hunger Get So Much Worse in Gaza?**\
 `Less food is going into Gaza now than during most other times in the war. Hundreds of Palestinians have been killed while heading toward aid sites. Many others are suffering from serious malnutrition, and Gazan health officials say scores have died from it.`\
 https://nytimes.com/interactive/2025/08/01/world/middleeast/gaza-hunger-aid-sites-deaths-israel.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/01/business/manhattan-shooting-building-security.htm
 **Bowen Yang and Matt Rogers Like Awards With Low Stakes**\
 `With titles like Best Batman Woman and Worst Sticky Feeling, their Las Culturistas Culture Awards are more serious about fun than prestige.`\
 https://nytimes.com/2025/08/01/arts/television/bowen-yang-matt-rogers-las-culturistas-bravo.html
-
-**The Inescapable Sydney Sweeney**\
-`The actress seems to be everywhere, fronting dozens of ad campaigns, and has lately become a beacon for thorny public discourse.`\
-https://nytimes.com/2025/08/01/style/sydney-sweeney-jeans-american-eagle-ad.html
 
