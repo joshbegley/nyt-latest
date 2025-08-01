@@ -1,3 +1,7 @@
+**Judge Extends Protections for Migrants From Nepal, Honduras and Nicaragua**\
+`In blocking the end of deportation protections for more than 60,000 migrants, the judge said the Trump administration’s language surrounding the program had strayed into racist conspiracy theories.`\
+https://nytimes.com/2025/08/01/us/politics/tps-immigrants-nepal-honduras-venezuela.html
+
 **The New York Times in Print for Friday, Aug. 1, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/08/01/todays-new-york-times
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/01/briefing/trump-tariff-day-arab-league-hamas-disar
 **Mateo Joseph: So what now?**\
 `The 21-year-old Spain U21 international has asked to leave Elland Road. How's it likely to play out?`\
 https://nytimes.com/athletic/6527168/2025/08/01/mateo-joseph-what-next/
-
-**'It's time to go' takes on new meaning for Buster Posey, Giants at trade deadline**\
-`It might surprise you that Posey would take such a clear selling posture, but the warnings have been there for months.`\
-https://nytimes.com/athletic/6529510/2025/08/01/giants-buster-posey-trade-deadline/
 
