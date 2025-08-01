@@ -1,3 +1,7 @@
+**How Did Hunger Get So Much Worse in Gaza?**\
+`Less food is going into Gaza now than during most other times in the war. Hundreds of Palestinians have been killed while heading toward aid sites. Many others are suffering from serious malnutrition, and Gazan health officials say scores have died from it.`\
+https://nytimes.com/interactive/2025/08/01/world/middleeast/gaza-hunger-aid-sites-deaths-israel.html
+
 **The New York Times International Edition in Print for Saturday, Aug. 2, 2025**\
 ``\
 https://nytimes.com/issue/todaysinyt/2025/08/01/todays-new-york-times-international-edition
