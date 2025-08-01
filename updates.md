@@ -1,3 +1,7 @@
+**Stanford expected to hire former Nike CEO John Donahoe as AD**\
+`The school has been without a permanent AD since February, when Bernard Muir was forced out after 13 years on the job.`\
+https://nytimes.com/athletic/6529522/2025/08/01/john-donahoe-stanford-athletic-director-hire-nike/
+
 **Judge Extends Protections for Migrants From Nepal, Honduras and Nicaragua**\
 `In blocking the end of deportation protections for more than 60,000 migrants, the judge said the Trump administration’s language surrounding the program had strayed into racist conspiracy theories.`\
 https://nytimes.com/2025/08/01/us/politics/tps-immigrants-nepal-honduras-venezuela.html
