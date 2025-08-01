@@ -1,3 +1,15 @@
+**Big Downward Jobs Revisions Could Be a Warning Sign for the Economy**\
+`Employers added far fewer jobs in May and June than previously reported. Such downgrades have historically meant trouble for the labor market.`\
+https://nytimes.com/2025/08/01/business/economy/big-downward-jobs-revisions-could-be-a-warning-sign-for-the-economy.html
+
+**Robert Wilson Expanded Our Sense of Theatrical Possibility**\
+`Wilson, who died this week at 83, created works of otherworldly dreaminess that were also very human.`\
+https://nytimes.com/2025/08/01/arts/music/robert-wilson-theater.html
+
+**Colts takeaways: How Anthony Richardson has dialed in; Tyler Warren looks 'special'**\
+`Richardson is keeping things simple, while Warren is making jaw-dropping catches that even his teammates can't believe. `\
+https://nytimes.com/athletic/6529628/2025/08/01/colts-anthony-richardson-tyler-warren-training-camp/
+
 **States Have More Data About You Than the Feds Do. Trump Wants to See It.**\
 `Critics fear that personal data might be used to monitor immigrants and political foes, and to spread false tales of fraud.`\
 https://nytimes.com/2025/08/01/upshot/trump-states-data-privacy.html

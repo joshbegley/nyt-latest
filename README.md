@@ -1,3 +1,7 @@
+**Wrexham sign Conor Coady from Leicester City**\
+`Coady, 32, departs Leicester after two years at the club, making 43 appearances in that time.`\
+https://nytimes.com/athletic/6526931/2025/08/01/conor-coady-wrexham-transfer/
+
 **Big Downward Jobs Revisions Could Be a Warning Sign for the Economy**\
 `Employers added far fewer jobs in May and June than previously reported. Such downgrades have historically meant trouble for the labor market.`\
 https://nytimes.com/2025/08/01/business/economy/big-downward-jobs-revisions-could-be-a-warning-sign-for-the-economy.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6529718/2025/08/01/nwsl-euros-finfa-carter-rest/
 **Weak Jobs Report Raises Chances of a September Interest Rate Cut**\
 `The Federal Reserve held rates steady in July but two governors dissented, saying they had concerns about labor market fragility.`\
 https://nytimes.com/2025/08/01/business/economy/jobs-report-fed-rate-cut.html
-
-**Prosecutors Oppose Sean Combs’s Bid for Release From Jail**\
-`Earlier this week, the mogul’s lawyers renewed their efforts to secure his release ahead of his October sentencing on prostitution-related convictions.`\
-https://nytimes.com/2025/08/01/arts/music/sean-combs-diddy-prosecutors-bail.html
 
