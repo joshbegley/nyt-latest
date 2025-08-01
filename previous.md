@@ -1,3 +1,7 @@
+**Inside the tumultuous final hours of the Carlos Correa era — and the start of a rebuild for the Twins**\
+`Correa's exit from Minnesota began with a candid conversation with Twins president Derek Falvey about the team's future direction.`\
+https://nytimes.com/athletic/6529725/2025/08/01/minnesota-twins-trade-carlos-correa-astros/
+
 **The Pulse: Key moves from MLB's trade deadline**\
 `Welcome to The Pulse, The Athletic's daily newsletter.`\
 https://nytimes.com/athletic/6529622/2025/08/01/mlb-trade-deadline-2025-the-pulse/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6528304/2025/08/01/ny-giants-jaxson-dart-cam-skatte
 **O'Connor: Now the Yankees don't have an excuse to not win the World Series**\
 `Every roster has flaws. However, if Aaron Judge is healthy in this parity season, the Yankees have enough to end their championship drought.`\
 https://nytimes.com/athletic/6528920/2025/08/01/yankees-trade-deadline-moves-opinion/
-
-**Lowetide: How will Oilers deploy new-look winger depth charts in 2025-26?**\
-`The Oilers' winger group marbles youth, experience and the unknown in hopes of adding speed and goals.`\
-https://nytimes.com/athletic/6527594/2025/08/01/oilers-depth-charts-wingers-2025/
 

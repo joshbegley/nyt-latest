@@ -1,3 +1,11 @@
+**Trump Administration Live Updates: U.C.L.A. Is Latest University to Face Federal Funding Cuts**\
+``\
+https://nytimes.com/live/2025/08/01/us/trump-news
+
+**MLB trade deadline grades for all 30 teams: 5 A's, 15 B's, 7 C's and 3 D's**\
+`After another trade deadline featuring plenty of twists and turns, it's time to hand out grades. How did your team fare? `\
+https://nytimes.com/athletic/6527576/2025/08/01/mlb-trade-deadline-grades-2025/
+
 **Inside the tumultuous final hours of the Carlos Correa era — and the start of a rebuild for the Twins**\
 `Correa's exit from Minnesota began with a candid conversation with Twins president Derek Falvey about the team's future direction.`\
 https://nytimes.com/athletic/6529725/2025/08/01/minnesota-twins-trade-carlos-correa-astros/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6514291/2025/08/01/spencer-jones-yankees-future-tra
 **Meet Irishman Adam Gibbs, Penn State's punter commit and college football's newest 'superfan'**\
 `A year ago, Gibbs had no interest in American football. Now, he's committed to Penn State as part of the Class of 2026. `\
 https://nytimes.com/athletic/6527259/2025/08/01/penn-state-recruiting-ireland-adam-gibbs/
-
-**Giants rookie roundup: Jaxson Dart a quick study; Cam Skattebo boasts 'elite awareness'**\
-`Abdul Carter isn't the only Giants rookie flashing promise in training camp. `\
-https://nytimes.com/athletic/6528304/2025/08/01/ny-giants-jaxson-dart-cam-skattebo-abdul-carter/
-
-**O'Connor: Now the Yankees don't have an excuse to not win the World Series**\
-`Every roster has flaws. However, if Aaron Judge is healthy in this parity season, the Yankees have enough to end their championship drought.`\
-https://nytimes.com/athletic/6528920/2025/08/01/yankees-trade-deadline-moves-opinion/
 

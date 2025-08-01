@@ -1,3 +1,7 @@
+**Inside the tumultuous final hours of the Carlos Correa era — and the start of a rebuild for the Twins**\
+`Correa's exit from Minnesota began with a candid conversation with Twins president Derek Falvey about the team's future direction.`\
+https://nytimes.com/athletic/6529725/2025/08/01/minnesota-twins-trade-carlos-correa-astros/
+
 **The Pulse: Key moves from MLB's trade deadline**\
 `Welcome to The Pulse, The Athletic's daily newsletter.`\
 https://nytimes.com/athletic/6529622/2025/08/01/mlb-trade-deadline-2025-the-pulse/
