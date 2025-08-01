@@ -1,3 +1,7 @@
+**Derk Sauer, Champion of Free Press in a New Russia, Dies at 72**\
+`He was a socialist reporter turned magnate who earned a fortune in the 1990s. He defended press freedoms even after the industry became beleaguered and unprofitable.`\
+https://nytimes.com/2025/08/01/world/europe/derk-sauer-dead.html
+
 **Wolves hopeful of closing deal to sign Wolfe from AZ**\
 `A move for Wolfe would see him replace Rayan Ait-Nouri in the Wolves squad after the Algeria international joined Manchester City in June.`\
 https://nytimes.com/athletic/6528349/2025/08/01/david-moller-wolfe-wolves-transfer/
