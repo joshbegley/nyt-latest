@@ -10,7 +10,7 @@ https://nytimes.com/2025/08/01/us/politics/tps-immigrants-nepal-honduras-venezue
 ``\
 https://nytimes.com/issue/todayspaper/2025/08/01/todays-new-york-times
 
-**Gaza’s Children May Never Recover From This**\
+**Netanyahu Is Choosing to Starve Gaza**\
 `To end starvation — and stave off social collapse — in Gaza, Israel must allow humanitarian-aid professionals to do their jobs.`\
 https://nytimes.com/2025/08/01/opinion/gaza-israel-famine-starvation.html
 
