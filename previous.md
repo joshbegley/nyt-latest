@@ -1,6 +1,14 @@
+**Wolves hopeful of closing deal to sign Wolfe from AZ**\
+`A move for Wolfe would see him replace Rayan Ait-Nouri in the Wolves squad after the Algeria international joined Manchester City in June.`\
+https://nytimes.com/athletic/6528349/2025/08/01/david-moller-wolfe-wolves-transfer/
+
+**Exclusive: OpenAI Secures Another Giant Funding Deal**\
+`The venture capital round values the ChatGPT maker at $300 billion, and underscores the fierceness of the A.I. money race.`\
+https://nytimes.com/2025/08/01/business/dealbook/openai-ai-mega-funding-deal.html
+
 **Fed Dissenters Defend Call for July Rate Cut as Trump Intensifies Attacks**\
 `The central bank this week kept interest rates steady for a fifth-straight meeting, prompting the first double dissent from members of the powerful Board of Governors since 1993.`\
-https://nytimes.com/2025/08/01/business/fed-dissenters-defend-call-for-july-rate-cut-as-trump-intensifies-attacks.html
+https://nytimes.com/2025/08/01/business/fed-dissent-interest-rate-trump-powell.html
 
 **Why Nate Thomas was Cowboys' choice to fill in for injured LT Tyler Guyton**\
 `Coaches saw something in Nate Thomas early this offseason and moved him to tackle. Brian Schottenheimer is eager to "see what he can do."`\
@@ -29,12 +37,4 @@ https://nytimes.com/2025/08/01/business/economy/trump-tariffs-stock-markets-trad
 **Trump Administration Cuts Funds to U.C.L.A., Chancellor Says**\
 `The university is the latest to be targeted by the federal government over accusations that it has not done enough to fight antisemitism on campus.`\
 https://nytimes.com/2025/08/01/us/politics/trump-cuts-ucla-funding-federal-research.html
-
-**Alexander Isak: Newcastle reject formal Liverpool bid for striker**\
-`Isak wants to leave Newcastle this summer and has been training alone at his former club, Real Sociedad.`\
-https://nytimes.com/athletic/6526892/2025/08/01/liveroool-bid-transfer-newcastle-alexander-isak-future/
-
-**How to watch the Little League Softball World Series this week**\
-`Cue the organ, warm the confetti cannon and watch a dozen communities cram a lifetime of softball joy into eight delirious days.`\
-https://nytimes.com/athletic/6528437/2025/08/01/little-league-softball-world-series-2025-how-to-watch/
 
