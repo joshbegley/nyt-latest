@@ -1,3 +1,7 @@
+**Jury Says Tesla Was Partly to Blame for Fatal Crash**\
+`Lawyers for the family of a woman struck and killed by a Tesla sedan in 2019 argued that the company’s Autopilot software should have avoided the crash.`\
+https://nytimes.com/2025/08/01/business/tesla-autopilot-federal-trial-verdict.html
+
 **Trump Orders Subs Closer to Russia in Rare Nuclear Threat**\
 `In a social media post, the president described the move as a deterrent prompted by threats by a former Russian leader. It is unclear if any submarines did actually change position.`\
 https://nytimes.com/2025/08/01/us/politics/trump-nuclear-submarines-russia.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/01/nyregion/transgender-care-lawsuit-trump.html
 **A Catalog of Losses Under Trump**\
 `Readers discuss a series of setbacks under the Trump administration. Also: Sugary drinks and SNAP.`\
 https://nytimes.com/2025/08/01/opinion/trump-losses.html
-
-**NFL deals Red Zone, NFL Media assets to ESPN in blockbuster billion-dollar agreement: Sources**\
-`ESPN is expected to have access to RedZone, NFL Network and seven more regular-season games, among other assets.`\
-https://nytimes.com/athletic/6530655/2025/08/01/nfl-espn-media-deal-tv-broadcast/
 
