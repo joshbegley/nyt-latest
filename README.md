@@ -1,3 +1,7 @@
+**Who is Gilbert Arenas? Former NBA guard with unserious persona now in serious scenario**\
+`Arenas' nature has been to turn the most earnest moments into something that can make for content creation.`\
+https://nytimes.com/athletic/6528928/2025/08/01/gilbert-arenas-nba-arrest-gambling/
+
 **Why Trump’s Tariffs Are Closing Factories in Lesotho**\
 `The closure of a factory in the small southern African nation of Lesotho is an early effect of the global disruption caused by President Trump’s tariffs. John Eligon, the Johannesburg bureau chief for The New York Times, talks with Katrin Bennhold, a senior writer, about what he has seen there.`\
 https://nytimes.com/video/world/africa/100000010311227/why-trumps-tariffs-are-closing-factories-in-lesotho.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/01/arts/design/jmw-turner-anniversary-uk.html
 **EU court rules CAS decisions can be reviewed by national courts**\
 `CAS, an institution independent of any sports organisation, handles significant legal sporting cases such as doping and contract disputes.`\
 https://nytimes.com/athletic/6529939/2025/08/01/eu-court-rules-cas-decisions-can-be-reviewed-by-national-courts/
-
-**Micah Parsons-Cowboys relationship deteriorating amid contract standoff: Sources**\
-`Parsons, who is in the final year of his rookie deal, is attending practices but not participating in on-field work amid escalating tension.`\
-https://nytimes.com/athletic/6530081/2025/08/01/micah-parsons-jerry-jones-contract-negotiation/
 
