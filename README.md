@@ -1,3 +1,7 @@
+**5 Missing After Deadly Mine Collapse in Chile**\
+`Chile’s state-owned copper company halted operations at its El Teniente mine after an earthquake. At least one person was killed in the accident.`\
+https://nytimes.com/2025/08/01/world/americas/chile-mine-collapse.html
+
 **Word of the Day: solarium**\
 `This word has appeared in 16 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2025/08/01/learning/word-of-the-day-solarium.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6529525/2025/08/01/padres-trade-deadline-day-reacti
 **Stanford expected to hire former Nike CEO John Donahoe as AD**\
 `The school has been without a permanent AD since February, when Bernard Muir was forced out after 13 years on the job.`\
 https://nytimes.com/athletic/6529522/2025/08/01/john-donahoe-stanford-athletic-director-hire-nike/
-
-**Friday Briefing: Trump’s Tariff Day**\
-`Plus, our art critic shares his favorite places in Rome.`\
-https://nytimes.com/2025/08/01/briefing/trump-tariff-day-arab-league-hamas-disarm-ukraine-russia.html
 
