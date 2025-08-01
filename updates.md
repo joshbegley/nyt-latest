@@ -1,3 +1,11 @@
+**Brainwaves**\
+`Tips, tricks, and scientific insights to help you take care of your brain.`\
+https://nytimes.com/spotlight/brainwaves
+
+**Trump, Claiming Weak Jobs Numbers Were ‘Manipulated,’ Moves to Fire Labor Official**\
+`Economists said ousting the head of the Bureau of Labor Statistics could undermine confidence in government economic data.`\
+https://nytimes.com/live/2025/07/31/business/tariffs-trump-trade/trump-jobs-numbers-fires-labor-official
+
 **USMNT's Turner returns to Revolution, MLS on loan**\
 `Turner returns to the club where his career took off, and he'll have an opportunity to reclaim a starting role leading into the World Cup`\
 https://nytimes.com/athletic/6511294/2025/08/01/matt-turner-new-england-revolution/
