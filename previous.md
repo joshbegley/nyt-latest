@@ -1,3 +1,11 @@
+**Guardians All-Star Steven Kwan stays in Cleveland after wild day of wondering**\
+`Kwan spent the day searching for distractions, anything, to get him to 6 p.m. ET.`\
+https://nytimes.com/athletic/6531191/2025/08/01/guardians-steven-kwan-trade-deadline-cleveland/
+
+**Trump’s Damaging Decision to Fire the Labor Statistics Commissioner**\
+`The way the Bureau of Labor Statistics produces data is widely trusted. Firing the commissioner is damaging to that trust.`\
+https://nytimes.com/live/2025/08/01/opinion/thepoint/bls-commissioner-trump-fire-erika-mcentarfer
+
 **The Great Political Money Gap**\
 `When it comes to attracting mega-donors, Republicans are crushing Democrats.`\
 https://nytimes.com/2025/08/01/us/politics/maga-inc-future-forward.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6531214/2025/08/01/kirby-yates-dodgers-bullpen-inju
 **Durham’s Debunking of the ‘Clinton Plan’ Emails, Explained**\
 `Trump allies have fixated on a purported message about Hillary Clinton and Russia. John H. Durham, the special counsel, found evidence that it was likely a fake assembled by Russian spies.`\
 https://nytimes.com/2025/08/01/us/politics/trump-russia-durham-explainer.html
-
-**Newsom Wants to Gerrymander California. Schwarzenegger May Disagree.**\
-`As governor, Arnold Schwarzenegger championed the state’s nonpartisan redistricting system. Now, Gov. Gavin Newsom wants to pause it to help Democrats.`\
-https://nytimes.com/2025/08/01/us/schwarzenegger-newsom-gerrymandering-california.html
-
-**Michael Cardozo, 84, New York City’s Longest-Serving Chief Lawyer, Dies**\
-`As the city’s corporation counsel under Mayor Michael Bloomberg, he defended stop-and-frisk policing and a ban on smoking in bars and restaurants.`\
-https://nytimes.com/2025/08/01/nyregion/michael-a-cardozo-dead.html
 

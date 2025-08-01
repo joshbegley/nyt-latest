@@ -1,3 +1,11 @@
+**Guardians All-Star Steven Kwan stays in Cleveland after wild day of wondering**\
+`Kwan spent the day searching for distractions, anything, to get him to 6 p.m. ET.`\
+https://nytimes.com/athletic/6531191/2025/08/01/guardians-steven-kwan-trade-deadline-cleveland/
+
+**Trump’s Damaging Decision to Fire the Labor Statistics Commissioner**\
+`The way the Bureau of Labor Statistics produces data is widely trusted. Firing the commissioner is damaging to that trust.`\
+https://nytimes.com/live/2025/08/01/opinion/thepoint/bls-commissioner-trump-fire-erika-mcentarfer
+
 **The Great Political Money Gap**\
 `When it comes to attracting mega-donors, Republicans are crushing Democrats.`\
 https://nytimes.com/2025/08/01/us/politics/maga-inc-future-forward.html
