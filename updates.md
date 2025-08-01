@@ -1,3 +1,11 @@
+**Cubs DFA Ryan Pressly as Chicago reshapes its bullpen for playoff race**\
+`The Cubs once hoped that Pressly would be pitching at Wrigley Field in October.`\
+https://nytimes.com/athletic/6529195/2025/07/31/chicago-cubs-ryan-pressly-dfa/
+
+**Six takeaways from the MLB trade deadline: Twins blow it up, A.J. Preller stays on brand**\
+`We’re still wrapping out heads around it, but here are some initial takeaways after a wild 24 hours.`\
+https://nytimes.com/athletic/6528989/2025/07/31/mlb-trade-deadline-takeaways/
+
 **Yankees stockpile bullpen arms, add Camilo Doval for not much**\
 `Were the Giants just trying to move Doval at any cost? The Giants didn't get a great return for their hard-throwing closer.`\
 https://nytimes.com/athletic/6529049/2025/07/31/yankees-camilo-doval-trade-giants-return/
