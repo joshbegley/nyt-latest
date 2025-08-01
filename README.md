@@ -1,3 +1,7 @@
+**Mateo Joseph: So what now?**\
+`The 21-year-old Spain U21 international has asked to leave Elland Road. How's it likely to play out?`\
+https://nytimes.com/athletic/6527168/2025/08/01/mateo-joseph-what-next/
+
 **'It's time to go' takes on new meaning for Buster Posey, Giants at trade deadline**\
 `It might surprise you that Posey would take such a clear selling posture, but the warnings have been there for months.`\
 https://nytimes.com/athletic/6529510/2025/08/01/giants-buster-posey-trade-deadline/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6527024/2025/08/01/isak-wissa-trent-alexander-arnol
 **Why young players like 15-year-old Dowman can compete with adults earlier and earlier**\
 `Arsenal's pre-season tour has highlighted a trend of players developing younger - here's why`\
 https://nytimes.com/athletic/6527362/2025/08/01/young-players-developing-early-max-dowman-marli-salmon-arsenal/
-
-**Read the document**\
-`A response from the European Commission to a request made by the New York Times in 2022.`\
-https://nytimes.com/interactive/2025/08/01/world/europe/eu-response-doc.html
 
