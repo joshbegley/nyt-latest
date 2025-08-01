@@ -1,3 +1,7 @@
+**Stock Market Posts Worst Week in Months on Renewed Economic Fears**\
+`Data showing cracks in the U.S. labor market and President Trump’s newest barrage of tariffs shook investors around the world, weighing on stocks, the dollar and more.`\
+https://nytimes.com/2025/08/01/business/economy/trump-tariffs-stock-markets-trade-dollar.html
+
 **Astronauts Head to Space Station as Clouds Stay Just Far Enough Away**\
 `After a scrubbed launch on Thursday, four astronauts lifted off from Florida and will dock at the International Space Station on Saturday.`\
 https://nytimes.com/2025/08/01/science/nasa-astronauts-space-station-cardman.html
