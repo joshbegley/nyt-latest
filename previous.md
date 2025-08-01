@@ -1,3 +1,7 @@
+**Employers Pulled Back on Hiring, Adding 73,000 Jobs**\
+`The labor market showed signs of weakening, as job gains for the previous two months were also revised lower.`\
+https://nytimes.com/2025/08/01/us/politics/jobs-report-us-economy.html
+
 **Derk Sauer, Champion of Free Press in a New Russia, Dies at 72**\
 `He was a socialist reporter turned magnate who earned a fortune in the 1990s. He defended press freedoms even after the industry became beleaguered and unprofitable.`\
 https://nytimes.com/2025/08/01/world/europe/derk-sauer-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6529725/2025/08/01/minnesota-twins-trade-carlos-cor
 **The Pulse: Key moves from MLB's trade deadline**\
 `Welcome to The Pulse, The Athletic's daily newsletter.`\
 https://nytimes.com/athletic/6529622/2025/08/01/mlb-trade-deadline-2025-the-pulse/
-
-**Stocks Tumble as Investors Grapple With the Rising Cost of Trade**\
-`President Trump’s newest barrage of tariffs, major corporate earnings reports and an imminent reading on the U.S. labor market weighed on markets.`\
-https://nytimes.com/2025/08/01/business/economy/trump-tariffs-stock-markets-trade.html
 

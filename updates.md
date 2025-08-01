@@ -1,3 +1,7 @@
+**Employers Pulled Back on Hiring, Adding 73,000 Jobs**\
+`The labor market showed signs of weakening, as job gains for the previous two months were also revised lower.`\
+https://nytimes.com/2025/08/01/us/politics/jobs-report-us-economy.html
+
 **Derk Sauer, Champion of Free Press in a New Russia, Dies at 72**\
 `He was a socialist reporter turned magnate who earned a fortune in the 1990s. He defended press freedoms even after the industry became beleaguered and unprofitable.`\
 https://nytimes.com/2025/08/01/world/europe/derk-sauer-dead.html
