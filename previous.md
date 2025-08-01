@@ -1,3 +1,19 @@
+**It’s Still Summer. Let’s Talk Road Trip Books.**\
+`Our critics Dwight Garner, Alexandra Jacobs and Jennifer Szalai discuss some of their favorite books that take place on the road (and that aren’t “On the Road”).`\
+https://nytimes.com/2025/08/01/books/review/podcast-road-trip-books.html
+
+**Cardinals to place Nolan Arenado on 10-day IL with shoulder injury: Sources**\
+`Arenado has been placed on the IL three previous times throughout his 13-year career.`\
+https://nytimes.com/athletic/6530566/2025/08/01/nolan-arenado-shoulder-injury-cardinals/
+
+**World Series odds: How the contenders stack up after the trade deadline**\
+`The trade deadline didn't feature many big trades, but there were plenty of deals. Here's how the World Series odds were affected.`\
+https://nytimes.com/athletic/6530327/2025/08/01/world-series-winner-odds-dodgers-mets-yankees-phillies/
+
+**Does Ultraprocessed Cola Actually Taste Better? We Did an Expert Taste Test.**\
+`When it comes to beloved sodas, the taste buds want what the taste buds want.`\
+https://nytimes.com/2025/08/01/dining/cola-cane-sugar-taste-test.html
+
 **Conversations and insights about the moment.**\
 ``\
 https://nytimes.com/live/2025/08/01/opinion/thepoint
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6530143/2025/08/01/tour-de-france-femmes-maeva-squi
 **Top Biden Aide Had $4 Million Incentive to Secure a 2024 Win**\
 `Mike Donilon was promised a bonus that would have doubled his payment for work on the campaign if the former president had been re-elected.`\
 https://nytimes.com/2025/08/01/us/politics/mike-donilon-biden-2024-bonus.html
-
-**Live Q&A: Talking baseball with Eno Sarris on Friday 8/1 at 2 p.m. ET**\
-`Chat with Eno about the trade deadline at 2 p.m. ET!`\
-https://nytimes.com/athletic/6530473/2025/08/01/eno-sarris-post-deadline-live-q-and-a/
-
-**French cyclist Biannic rode cobbled classic Paris-Roubaix unknowingly pregnant**\
-`Biannic eventually stepped away from cycling in August last year and gave birth to a son in November, before returning to competition in May`\
-https://nytimes.com/athletic/6530202/2025/08/01/aude-biannic-cycling-pregnancy/
-
-**Ghislaine Maxwell Moved to Minimum-Security Women’s Prison in Texas**\
-`The longtime Epstein associate, now serving a 20-year sentence, was relocated from a federal prison in Florida about a week after being interviewed by a Justice Department official.`\
-https://nytimes.com/2025/08/01/us/politics/ghislaine-maxwell-prison-texas.html
-
-**‘Can We Extradite Him?’ How U.S. Officials Grappled With the Release of a Triple Murderer**\
-`The decision to free an American convicted of murder in a prisoner swap with Venezuela threatened to undercut President Trump’s claims of keeping the worst of the worst out of the United States.`\
-https://nytimes.com/2025/08/01/us/politics/triple-murderer-release-trump-venezuela.html
 
