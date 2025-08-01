@@ -1,3 +1,19 @@
+**Summer Reading Contest, Week 9: What Got Your Attention in The Times This Week?**\
+`To participate, submit your response here by Aug. 8 at 9 a.m. Eastern. This week’s winners will be announced by Aug. 19.`\
+https://nytimes.com/2025/08/01/learning/summer-reading-contest-week-9-what-got-your-attention-in-the-times-this-week.html
+
+**It’s Time for That Often-Dreaded Task: Buying Back-to-School Supplies**\
+`Parents of children in kindergarten through high school are spending an average of $144, and that’s coming as families are feeling financial stress.`\
+https://nytimes.com/2025/08/01/your-money/back-to-school-supplies-parents.html
+
+**The Stock Market Is Good, Bad and Ugly, Often in Quick Succession**\
+`The market’s best days frequently occur in the midst of misery, our columnist says, so don’t bother trying to figure out where stocks are heading.`\
+https://nytimes.com/2025/08/01/business/stock-market-best-worst-days-investing.html
+
+**Kate Douglass breaks U.S. record, gives Americans another gold at swimming worlds**\
+`Kate Douglass lowered her own U.S. record Friday to win gold in the women's 200-meter breaststroke, the Americans' fifth title of the week.`\
+https://nytimes.com/athletic/6529902/2025/08/01/kate-douglass-american-record-breaststroke-gold-swimming-world-championships/
+
 **Employers Pulled Back on Hiring, Adding 73,000 Jobs**\
 `The labor market showed signs of weakening, as job gains for the previous two months were also revised lower.`\
 https://nytimes.com/2025/08/01/us/politics/jobs-report-us-economy.html
@@ -21,20 +37,4 @@ https://nytimes.com/2025/08/01/business/fed-dissent-interest-rate-trump-powell.h
 **Why Nate Thomas was Cowboys' choice to fill in for injured LT Tyler Guyton**\
 `Coaches saw something in Nate Thomas early this offseason and moved him to tackle. Brian Schottenheimer is eager to "see what he can do."`\
 https://nytimes.com/athletic/6529753/2025/08/01/cowboys-left-tackle-nate-thomas/
-
-**Trump Administration Live Updates: U.C.L.A. Is Latest University to Face Federal Funding Cuts**\
-``\
-https://nytimes.com/live/2025/08/01/us/trump-news
-
-**MLB trade deadline grades for all 30 teams: 5 A's, 15 B's, 7 C's and 3 D's**\
-`After another trade deadline featuring plenty of twists and turns, it's time to hand out grades. How did your team fare? `\
-https://nytimes.com/athletic/6527576/2025/08/01/mlb-trade-deadline-grades-2025/
-
-**Inside the tumultuous final hours of the Carlos Correa era — and the start of a rebuild for the Twins**\
-`Correa's exit from Minnesota began with a candid conversation with Twins president Derek Falvey about the team's future direction.`\
-https://nytimes.com/athletic/6529725/2025/08/01/minnesota-twins-trade-carlos-correa-astros/
-
-**The Pulse: Key moves from MLB's trade deadline**\
-`Welcome to The Pulse, The Athletic's daily newsletter.`\
-https://nytimes.com/athletic/6529622/2025/08/01/mlb-trade-deadline-2025-the-pulse/
 
