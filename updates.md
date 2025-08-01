@@ -1,3 +1,7 @@
+**USMNT's Turner returns to Revolution, MLS on loan**\
+`Turner returns to the club where his career took off, and he'll have an opportunity to reclaim a starting role leading into the World Cup`\
+https://nytimes.com/athletic/6511294/2025/08/01/matt-turner-new-england-revolution/
+
 **Kansas City Current acquire Ally Sentnor from Utah Royals: Sources**\
 `Sentnor's career hit a rapid ascent last summer, playing in the FIFA U-20 Women's World Cup before making her full USWNT debut in November.`\
 https://nytimes.com/athletic/6530726/2025/08/01/ally-sentnor-trade-current-royals/
