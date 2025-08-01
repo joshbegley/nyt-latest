@@ -1,3 +1,15 @@
+**French cyclist Biannic rode cobbled classic Paris-Roubaix unknowingly pregnant**\
+`Biannic eventually stepped away from cycling in August last year and gave birth to a son in November, before returning to competition in May`\
+https://nytimes.com/athletic/6530202/2025/08/01/aude-biannic-cycling-pregnancy/
+
+**Ghislaine Maxwell Moved to Minimum-Security Women’s Prison in Texas**\
+`The longtime Epstein associate, now serving a 20-year sentence, was relocated from a federal prison in Florida about a week after being interviewed by a Justice Department official.`\
+https://nytimes.com/2025/08/01/us/politics/ghislaine-maxwell-prison-texas.html
+
+**‘Can We Extradite Him?’ How U.S. Officials Grappled With the Release of a Triple Murderer**\
+`The decision to free an American convicted of murder in a prisoner swap with Venezuela threatened to undercut President Trump’s claims of keeping the worst of the worst out of the United States.`\
+https://nytimes.com/2025/08/01/us/politics/triple-murderer-release-trump-venezuela.html
+
 **Chappell Roan Guts Out a Breakup, and 10 More New Songs**\
 `Hear tracks by Hayley Williams, Kehlani, Tame Impala and others.`\
 https://nytimes.com/2025/08/01/arts/music/playlist-chappell-roan-tame-impala.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6530314/2025/08/01/liverpool-appoint-simon-wiles-co
 **The Windup: What to know about 36-trade deadline**\
 `The Windup Newsletter ⚾ | This is The Athletic’s MLB newsletter.`\
 https://nytimes.com/athletic/6530281/2025/08/01/mlb-trade-deadline-day-the-windup/
-
-**Five Science Fiction Movies to Stream Now**\
-`In this month’s picks, expect mutating zombies, hostile planets and teleportation.`\
-https://nytimes.com/2025/08/01/movies/science-fiction-movies-to-stream.html
-
-**It’s Time for My Tomato and Watermelon Salad**\
-`Use one of those creamy feta cheeses that break down in the juices of the fruits to create a kind of ambrosia between the crisp and soft.`\
-https://nytimes.com/2025/08/01/dining/easy-tomato-and-watermelon-salad-recipe.html
-
-**Cubs to host 2027 MLB All-Star Game, first time at Wrigley since 1990**\
-`The Cubs' persistent lobbying efforts to land the All-Star Game lined up with the $1 billion Wrigleyville project.`\
-https://nytimes.com/athletic/6530245/2025/08/01/2027-mlb-all-star-game-wrigley-cubs/
 
