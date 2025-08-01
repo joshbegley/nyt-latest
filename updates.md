@@ -1,3 +1,5 @@
+
+
 **Newsom Wants to Gerrymander California. Schwarzenegger May Disagree.**\
 `As governor, Arnold Schwarzenegger championed the state’s nonpartisan redistricting system. Now, Gov. Gavin Newsom wants to pause it to help Democrats.`\
 https://nytimes.com/2025/08/01/us/schwarzenegger-newsom-gerrymandering-california.html
