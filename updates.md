@@ -1,3 +1,7 @@
+**Kirby Yates hits the IL with back injury as Dodgers' bullpen depth tested again**\
+`Kirby has had a disappointing season and now is dealing with a lower back injury.`\
+https://nytimes.com/athletic/6531214/2025/08/01/kirby-yates-dodgers-bullpen-injuries/
+
 **Durham’s Debunking of the ‘Clinton Plan’ Emails, Explained**\
 `Trump allies have fixated on a purported message about Hillary Clinton and Russia. John H. Durham, the special counsel, found evidence that it was likely a fake assembled by Russian spies.`\
 https://nytimes.com/2025/08/01/us/politics/trump-russia-durham-explainer.html
