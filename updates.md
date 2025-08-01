@@ -1,3 +1,7 @@
+**5 Missing After Deadly Mine Collapse in Chile**\
+`Chile’s state-owned copper company halted operations at its El Teniente mine after an earthquake. At least one person was killed in the accident.`\
+https://nytimes.com/2025/08/01/world/americas/chile-mine-collapse.html
+
 **Heavy Rain Floods Subways and Roads Along East Coast**\
 `Water poured down into metro stations and shot up from the roads like geysers as the Northeast saw major flooding on Thursday.`\
 https://nytimes.com/video/weather/100000010318190/rain-flash-flooding-warning-northeast-mid-atlantic.html
