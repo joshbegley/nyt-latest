@@ -1,3 +1,15 @@
+**French cyclist Biannic rode cobbled classic Paris-Roubaix unknowingly pregnant**\
+`Biannic eventually stepped away from cycling in August last year and gave birth to a son in November, before returning to competition in May`\
+https://nytimes.com/athletic/6530202/2025/08/01/aude-biannic-cycling-pregnancy/
+
+**Ghislaine Maxwell Moved to Minimum-Security Women’s Prison in Texas**\
+`The longtime Epstein associate, now serving a 20-year sentence, was relocated from a federal prison in Florida about a week after being interviewed by a Justice Department official.`\
+https://nytimes.com/2025/08/01/us/politics/ghislaine-maxwell-prison-texas.html
+
+**‘Can We Extradite Him?’ How U.S. Officials Grappled With the Release of a Triple Murderer**\
+`The decision to free an American convicted of murder in a prisoner swap with Venezuela threatened to undercut President Trump’s claims of keeping the worst of the worst out of the United States.`\
+https://nytimes.com/2025/08/01/us/politics/triple-murderer-release-trump-venezuela.html
+
 **Chappell Roan Guts Out a Breakup, and 10 More New Songs**\
 `Hear tracks by Hayley Williams, Kehlani, Tame Impala and others.`\
 https://nytimes.com/2025/08/01/arts/music/playlist-chappell-roan-tame-impala.html
