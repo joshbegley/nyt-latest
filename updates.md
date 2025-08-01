@@ -1,3 +1,11 @@
+**The 8.3.25 Issue**\
+``\
+https://nytimes.com/issue/magazine/2025/08/01/the-8325-issue
+
+**Finding Beauty in a Constellation of Spiderwebs**\
+`It was within the orange tree in our front yard that the first spider appeared, sparking my poet’s imagination.`\
+https://nytimes.com/interactive/2025/08/01/opinion/spiders-orb-weaver-beauty.html
+
 **Brainwaves**\
 `Tips, tricks, and scientific insights to help you take care of your brain.`\
 https://nytimes.com/spotlight/brainwaves
