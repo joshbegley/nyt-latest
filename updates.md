@@ -1,3 +1,7 @@
+**Fed Governor Steps Down Early, Giving Trump Opportunity to Appoint New Official**\
+`The resignation comes as President Trump has been openly pressuring the central bank to lower interest rates and calling for Jerome H. Powell, the chair, to step down.`\
+https://nytimes.com/2025/08/01/business/economy/fed-governor-kugler-resigns-trump.html
+
 **Stock Market Posts Worst Week in Months on Renewed Economic Fears**\
 `Data showing cracks in the U.S. labor market and President Trump’s newest barrage of tariffs shook investors around the world, weighing on stocks, the dollar and more.`\
 https://nytimes.com/2025/08/01/business/economy/trump-tariffs-stock-markets-trade-dollar.html
