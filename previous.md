@@ -1,3 +1,7 @@
+**Conversations and insights about the moment.**\
+``\
+https://nytimes.com/live/2025/08/01/opinion/thepoint
+
 **Federal Government Shed 12,000 Jobs in July**\
 `The U.S. government has lost 84,000 jobs since January as the Trump administration aggressively reduces the work force.`\
 https://nytimes.com/2025/08/01/business/economy/federal-jobs-report-july.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/01/us/politics/ghislaine-maxwell-prison-texas.html
 **‘Can We Extradite Him?’ How U.S. Officials Grappled With the Release of a Triple Murderer**\
 `The decision to free an American convicted of murder in a prisoner swap with Venezuela threatened to undercut President Trump’s claims of keeping the worst of the worst out of the United States.`\
 https://nytimes.com/2025/08/01/us/politics/triple-murderer-release-trump-venezuela.html
-
-**Chappell Roan Guts Out a Breakup, and 10 More New Songs**\
-`Hear tracks by Hayley Williams, Kehlani, Tame Impala and others.`\
-https://nytimes.com/2025/08/01/arts/music/playlist-chappell-roan-tame-impala.html
 

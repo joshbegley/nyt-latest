@@ -1,3 +1,7 @@
+**Conversations and insights about the moment.**\
+``\
+https://nytimes.com/live/2025/08/01/opinion/thepoint
+
 **Federal Government Shed 12,000 Jobs in July**\
 `The U.S. government has lost 84,000 jobs since January as the Trump administration aggressively reduces the work force.`\
 https://nytimes.com/2025/08/01/business/economy/federal-jobs-report-july.html
