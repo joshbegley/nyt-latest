@@ -1,3 +1,7 @@
+**Netanyahu Is Choosing to Starve Gaza**\
+`To end starvation — and stave off social collapse — in Gaza, Israel must allow humanitarian-aid professionals to do their jobs.`\
+https://nytimes.com/2025/08/01/opinion/gaza-israel-famine-starvation.html
+
 **Word of the Day: solarium**\
 `This word has appeared in 16 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2025/08/01/learning/word-of-the-day-solarium.html
