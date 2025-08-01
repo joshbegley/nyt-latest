@@ -1,3 +1,7 @@
+**Fed Governor Steps Down Early, Giving Trump Opportunity to Appoint New Official**\
+`The resignation comes as President Trump has been openly pressuring the central bank to lower interest rates and calling for Jerome H. Powell, the chair, to step down.`\
+https://nytimes.com/live/2025/07/31/business/tariffs-trump-trade/fed-governor-steps-down-early-giving-trump-opportunity-to-appoint-new-official
+
 **Nelly Korda is pushing to get into contention at the Women's Open, with an army behind her**\
 `Korda says her favorite part of her more than 100 weeks at No. 1 has been the fan support she receives, including at Royal Porthcawl.`\
 https://nytimes.com/athletic/6530196/2025/08/01/womens-open-2025-nelly-korda/
