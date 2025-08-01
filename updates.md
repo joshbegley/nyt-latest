@@ -1,3 +1,15 @@
+**Fantasy baseball waiver wire options following MLB's trade deadline**\
+`Following MLB's trade deadline, Owen Poindexter gives his take on the best players available on waivers. `\
+https://nytimes.com/athletic/6529399/2025/08/01/fantasy-baseball-waiver-wire-mlb-trade-deadline/
+
+**Liverpool appoint former Man Utd academy coach Wiles lead under-18s team**\
+`Wiles also had spells as a first-team coach at Salford City and Fleetwood Town.`\
+https://nytimes.com/athletic/6530314/2025/08/01/liverpool-appoint-simon-wiles-coach/
+
+**The Windup: What to know about 36-trade deadline**\
+`The Windup Newsletter ⚾ | This is The Athletic’s MLB newsletter.`\
+https://nytimes.com/athletic/6530281/2025/08/01/mlb-trade-deadline-day-the-windup/
+
 **Five Science Fiction Movies to Stream Now**\
 `In this month’s picks, expect mutating zombies, hostile planets and teleportation.`\
 https://nytimes.com/2025/08/01/movies/science-fiction-movies-to-stream.html
