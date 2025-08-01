@@ -1,3 +1,11 @@
+**Why the Mets didn’t add to starting rotation at trade deadline**\
+`If the Mets were going to acquire a starter, it was likely going to have to be someone they viewed as part of their playoff rotation.`\
+https://nytimes.com/athletic/6529079/2025/07/31/new-york-mets-rotation-trade-deadline/
+
+**Andrea Lucas Confirmed to Equal Employment Opportunity Commission**\
+`Ms. Lucas, who has led efforts to attack diversity, equity and inclusion initiatives, was confirmed by the Senate for a second term.`\
+https://nytimes.com/2025/07/31/us/politics/andrea-lucas-equal-employment-opportunity-commission.html
+
 **Coco Gauff advances at Canadian Open despite continuing struggles**\
 `Gauff overcomes 14 double faults and 53 unforced errors to beat Veronika Kudermetova.`\
 https://nytimes.com/athletic/6528867/2025/07/31/coco-gauff-win-canadian-open/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6528840/2025/07/31/mlb-trade-deadline-takeaways-202
 **The Packers' 'Ball King': How coach involves a siren, WWE belt and fun in camp**\
 `Defensive quality control coach Wendel Davis, in his sixth year with the Packers, doesn't go by his real name at Lambeau Field.`\
 https://nytimes.com/athletic/6528616/2025/07/31/packers-defense-turnovers-wendel-davis/
-
-**Commanders' Terry McLaurin requests trade amid contract hold-in: Sources**\
-`The move comes while McLaurin, 29, has been "holding in" as he seeks a contract extension.`\
-https://nytimes.com/athletic/6528859/2025/07/31/terry-mclaurin-trade-request-commanders-nfl-news/
-
-**Angels let the MLB trade deadline pass them by, again: takeaways**\
-`The Angels decided to do what they always do. Cross their fingers and hope it all works out.`\
-https://nytimes.com/athletic/6528833/2025/07/31/angels-mlb-trade-deadline-takeaways/
 
