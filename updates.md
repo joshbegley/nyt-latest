@@ -1,3 +1,7 @@
+**After Harrison Bader trade, Phillies outfield plan still undetermined**\
+`The newcomer won the 2021 NL Gold Glove in center field and is among the sport's top defenders in recent seasons.`\
+https://nytimes.com/athletic/6528975/2025/07/31/after-harrison-bader-trade-phillies-outfield-plan-still-undetermined/
+
 **Coby Mayo, Brooks Lee and others with better playing time opportunities after MLB trade deadline**\
 `When the dust settles for sellers after the deadline, players still with those teams get new opportunities to prove their worth.`\
 https://nytimes.com/athletic/6528164/2025/07/31/mlb-trade-deadline-playing-time-coby-mayo-brooks-lee/
