@@ -1,3 +1,7 @@
+**States Have More Data About You Than the Feds Do. Trump Wants to See It.**\
+`Critics fear that personal data might be used to monitor immigrants and political foes, and to spread false tales of fraud.`\
+https://nytimes.com/2025/08/01/upshot/trump-states-data-privacy.html
+
 **The Publicist on Call for Controversy**\
 `Mitchell Jackson was fired from a high-profile journalism job at 25. Now he represents some of the most divisive figures in America, including the right-wing podcaster Candace Owens.`\
 https://nytimes.com/2025/08/01/style/the-publicist-on-call-for-controversy.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/01/learning/summer-reading-contest-week-9-what-got-y
 **It’s Time for That Often-Dreaded Task: Buying Back-to-School Supplies**\
 `Parents of children in kindergarten through high school are spending an average of $144, and that’s coming as families are feeling financial stress.`\
 https://nytimes.com/2025/08/01/your-money/back-to-school-supplies-parents.html
-
-**The Stock Market Is Good, Bad and Ugly, Often in Quick Succession**\
-`The market’s best days frequently occur in the midst of misery, our columnist says, so don’t bother trying to figure out where stocks are heading.`\
-https://nytimes.com/2025/08/01/business/stock-market-best-worst-days-investing.html
 
