@@ -1,3 +1,7 @@
+**A.J. Preller’s busiest deadline day was a sight to behold: ‘Something out of a video game’**\
+`The San Diego Padres general manager evoked strong opinions from various corners of the industry.`\
+https://nytimes.com/athletic/6529525/2025/08/01/padres-trade-deadline-day-reactions/
+
 **Stanford expected to hire former Nike CEO John Donahoe as AD: Sources**\
 `The school has been without a permanent AD since February, when Bernard Muir was forced out after 13 years on the job.`\
 https://nytimes.com/athletic/6529522/2025/08/01/john-donahoe-stanford-athletic-director-hire-nike/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6518566/2025/08/01/manchester-united-youth-record/
 **How Ngumoha, aged 16, became impossible to ignore at Liverpool**\
 `Breaking down how the teenager has shown Arne Slot he is worth a place in his first-team squad this season`\
 https://nytimes.com/athletic/6526981/2025/08/01/rio-ngumoha-liverpool-arne-slot/
-
-**Guardiola wanted a smaller squad. Instead it's grown. How can City trim it?**\
-`What needs to happen to City's bloated squad to avoid leaving players unregistered`\
-https://nytimes.com/athletic/6526978/2025/08/01/manchester-city-squad-guardiola-trim/
 
