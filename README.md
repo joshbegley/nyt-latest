@@ -1,3 +1,7 @@
+**Gaza War Protesters Arrested at Offices of Schumer and Gillibrand**\
+`Dozens of demonstrators were arrested at the Manhattan offices of New York’s two senators, after calling for a flood of humanitarian aid into the Gaza Strip.`\
+https://nytimes.com/2025/08/01/nyregion/gaza-war-protesters-schumer-gillibrand.html
+
 **192,000 Play Kitchens Are Recalled After Child Dies of Strangulation**\
 `Children playing with the set can get caught on a hook of the toy kitchen and asphyxiate themselves, the U.S. Consumer Product Safety Commission said.`\
 https://nytimes.com/2025/08/01/business/kids-play-kitchen-recall-toddler-death.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/07/31/business/tariffs-trump-trade/fed-governor-st
 **Nelly Korda is pushing to get into contention at the Women's Open, with an army behind her**\
 `Korda says her favorite part of her more than 100 weeks at No. 1 has been the fan support she receives, including at Royal Porthcawl.`\
 https://nytimes.com/athletic/6530196/2025/08/01/womens-open-2025-nelly-korda/
-
-**An arm around the shoulder broke cricket's unwritten code. It risked an England-India flashpoint**\
-`It might have been the most provocative moment of a series that has been full of grumbles and spice`\
-https://nytimes.com/athletic/6530875/2025/08/01/england-india-akash-deep-ben-duckett-cricket-arm/
 

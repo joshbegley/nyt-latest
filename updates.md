@@ -1,3 +1,7 @@
+**192,000 Play Kitchens Are Recalled After Child Dies of Strangulation**\
+`Children playing with the set can get caught on a hook of the toy kitchen and asphyxiate themselves, the U.S. Consumer Product Safety Commission said.`\
+https://nytimes.com/2025/08/01/business/kids-play-kitchen-recall-toddler-death.html
+
 **Panthers WR Tetairoa McMillan's first camp — some good, some bad, still confident**\
 `McMillan has fought through a few rough patches at training camp to prove why the Panthers selected him No. 8 overall in April's draft.`\
 https://nytimes.com/athletic/6530900/2025/08/01/carolina-panthers-tetairoa-mcmillan-training-camp/
