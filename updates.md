@@ -1,3 +1,15 @@
+**Wrexham sign Conor Coady from Leicester City**\
+`Coady, 32, departs Leicester after two years at the club, making 43 appearances in that time.`\
+https://nytimes.com/athletic/6526931/2025/08/01/conor-coady-wrexham-transfer/
+
+**Robert Wilson Expanded Our Sense of Theatrical Possibility**\
+`Wilson, who died this week at 83, created works of otherworldly dreaminess that were also deeply human.`\
+https://nytimes.com/2025/08/01/arts/music/robert-wilson-theater.html
+
+**The Publicist on Call for Controversy**\
+`Mitchell Jackson was fired from a high-profile journalism job at 25. Now he represents some of the most divisive figures in America, including the right-wing podcaster Candace Owens.`\
+https://nytimes.com/2025/08/01/style/mitchell-jackson-publicist.html
+
 **Big Downward Jobs Revisions Could Be a Warning Sign for the Economy**\
 `Employers added far fewer jobs in May and June than previously reported. Such downgrades have historically meant trouble for the labor market.`\
 https://nytimes.com/2025/08/01/business/economy/big-downward-jobs-revisions-could-be-a-warning-sign-for-the-economy.html

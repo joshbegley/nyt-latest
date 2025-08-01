@@ -1,3 +1,7 @@
+**Micah Parsons-Cowboys relationship deteriorating amid contract standoff: Sources**\
+`Parsons, who is in the final year of his rookie deal, is attending practices but not participating in on-field work amid escalating tension.`\
+https://nytimes.com/athletic/6530081/2025/08/01/micah-parsons-jerry-jones-contract-negotiation/
+
 **Wrexham sign Conor Coady from Leicester City**\
 `Coady, 32, departs Leicester after two years at the club, making 43 appearances in that time.`\
 https://nytimes.com/athletic/6526931/2025/08/01/conor-coady-wrexham-transfer/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6529628/2025/08/01/colts-anthony-richardson-tyler-w
 **The NWSL is back, six days after the Euros final. Are players getting enough rest?**\
 `With more international players in the NWSL, conversations about the soccer calendar are becoming ever more tricky.`\
 https://nytimes.com/athletic/6529718/2025/08/01/nwsl-euros-finfa-carter-rest/
-
-**Weak Jobs Report Raises Chances of a September Interest Rate Cut**\
-`The Federal Reserve held rates steady in July but two governors dissented, saying they had concerns about labor market fragility.`\
-https://nytimes.com/2025/08/01/business/economy/jobs-report-fed-rate-cut.html
 
