@@ -36,5 +36,5 @@ https://nytimes.com/athletic/6530590/2025/08/01/eagles-training-camp-drew-mukuba
 
 **Fed Governor Steps Down Early, Giving Trump Opportunity to Appoint New Official**\
 `The resignation comes as President Trump has been openly pressuring the central bank to lower interest rates and calling for Jerome H. Powell, the chair, to step down.`\
-https://nytimes.com/live/2025/07/31/business/tariffs-trump-trade/fed-governor-steps-down-early-giving-trump-opportunity-to-appoint-new-official
+https://nytimes.com/2025/08/01/business/economy/fed-governor-kugler-resigns-trump.html
 
