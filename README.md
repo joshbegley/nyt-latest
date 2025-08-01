@@ -1,3 +1,7 @@
+**How Did Hunger Get So Much Worse in Gaza?**\
+`Less food is going into Gaza now than during most other times in the war. Hundreds of Palestinians have been killed while heading toward aid sites. Many others are suffering from serious malnutrition, and Gazan health officials say scores have died from it.`\
+https://nytimes.com/interactive/2025/08/01/world/middleeast/gaza-hunger-aid-sites-deaths-israel.html
+
 **The New York Times International Edition in Print for Saturday, Aug. 2, 2025**\
 ``\
 https://nytimes.com/issue/todaysinyt/2025/08/01/todays-new-york-times-international-edition
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/01/arts/television/bowen-yang-matt-rogers-las-cultur
 **The Inescapable Sydney Sweeney**\
 `The actress seems to be everywhere, fronting dozens of ad campaigns, and has lately become a beacon for thorny public discourse.`\
 https://nytimes.com/2025/08/01/style/sydney-sweeney-jeans-american-eagle-ad.html
-
-**The Book That Explains JD Vance’s Worldview**\
-`Yoram Hazony, the author of “The Virtue of Nationalism,” discusses the principles of national conservatism.`\
-https://nytimes.com/video/opinion/100000010315240/the-book-that-explains-jd-vances-worldview.html
 
