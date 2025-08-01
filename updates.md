@@ -1,3 +1,7 @@
+**Kamala Harris Tells Colbert She Wants a Break From Public Office**\
+`The former Democratic nominee for president explained why she did not run for California governor in her first interview since leaving office as vice president.`\
+https://nytimes.com/2025/08/01/us/politics/kamala-harris-stephen-colbert-interview.html
+
 **Rangers reach agreement to sign Tottenham winger Moore on loan**\
 `Rangers have reached an agreement with Tottenham Hotspur to sign winger Mikey Moore.`\
 https://nytimes.com/athletic/6520289/2025/08/01/tottenham-transfer-news-moore-rangers-loan/

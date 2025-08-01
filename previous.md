@@ -1,3 +1,7 @@
+**Kamala Harris Tells Colbert She Wants a Break From Public Office**\
+`The former Democratic nominee for president explained why she did not run for California governor in her first interview since leaving office as vice president.`\
+https://nytimes.com/2025/08/01/us/politics/kamala-harris-stephen-colbert-interview.html
+
 **Rangers reach agreement to sign Tottenham winger Moore on loan**\
 `Rangers have reached an agreement with Tottenham Hotspur to sign winger Mikey Moore.`\
 https://nytimes.com/athletic/6520289/2025/08/01/tottenham-transfer-news-moore-rangers-loan/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/01/insider/letters-to-the-editor.html
 **Spelling Bee Forum**\
 `Feeling stuck on today’s puzzle? We can help.`\
 https://nytimes.com/2025/08/01/crosswords/spelling-bee-forum.html
-
-**5 Missing After Deadly Mine Collapse in Chile**\
-`Chile’s state-owned copper company halted operations at its El Teniente mine after an earthquake. At least one person was killed in the accident.`\
-https://nytimes.com/2025/08/01/world/americas/chile-mine-collapse.html
 
