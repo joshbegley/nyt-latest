@@ -1,3 +1,11 @@
+**Trump Administration Cuts Funds to U.C.L.A., Chancellor Says**\
+`The university is the latest to be targeted by the federal government over accusations that it has not done enough to fight antisemitism on campus.`\
+https://nytimes.com/2025/08/01/us/politics/trump-cuts-ucla-funding-federal-research.html
+
+**Alexander Isak: Newcastle reject formal Liverpool bid for striker**\
+`Isak wants to leave Newcastle this summer and has been training alone at his former club, Real Sociedad.`\
+https://nytimes.com/athletic/6526892/2025/08/01/liveroool-bid-transfer-newcastle-alexander-isak-future/
+
 **How to watch the Little League Softball World Series this week**\
 `Cue the organ, warm the confetti cannon and watch a dozen communities cram a lifetime of softball joy into eight delirious days.`\
 https://nytimes.com/athletic/6528437/2025/08/01/little-league-softball-world-series-2025-how-to-watch/
@@ -22,19 +30,11 @@ https://nytimes.com/athletic/6528920/2025/08/01/yankees-trade-deadline-moves-opi
 `The Oilers' winger group marbles youth, experience and the unknown in hopes of adding speed and goals.`\
 https://nytimes.com/athletic/6527594/2025/08/01/oilers-depth-charts-wingers-2025/
 
+**TAFC: Premier League star's betting case nightmare is over. Plus: Some hard truths over fan hypocrisy**\
+`In today's Athletic FC newsletter: Lucas Paqueta avoids a lifetime ban from the FA while two Manchester United academy graduates reunite`\
+https://nytimes.com/athletic/6529823/2025/08/01/lucas-paqueta-newsletter-osimhen-barcelona/
+
 **Age-Gating the Internet + Cloudflare Takes On A.I. Scrapers + HatGPT**\
 `“Frankly, if they’re going to behave like hackers, then we’re going to behave like trolls right back to them,” said Matthew Prince, chief executive of Cloudflare.`\
 https://nytimes.com/2025/08/01/podcasts/hardfork-age-restrictions-cloudflare.html
-
-**MLB trade deadline Weird & Wild: Eugenio Suárez, A.J. Prelller and a crazy save stat**\
-`What a day. What a week. What a deadline. Let's run through the Weirdest and Wildest trades of the week.`\
-https://nytimes.com/athletic/6529414/2025/08/01/mlb-trade-deadline-weird-wild-eugenio-suarez/
-
-**What are the odds of a WNBA lockout? Our expert answers mailbag questions**\
-`Will expansion weaken the talent level? Is a mandate on officiating coming? `\
-https://nytimes.com/athletic/6528370/2025/08/01/wnba-lockout-odds-mailbag/
-
-**Why Jonathan Kuminga and the Warriors remain locked in a stalemate, and where they go from here**\
-`The Warriors know their window of contention is closing rapidly and that botching this Kuminga situation would only hasten that.`\
-https://nytimes.com/athletic/6529661/2025/08/01/jonathan-kuminga-warriors-nba-free-agency-qualifying-offer/
 
