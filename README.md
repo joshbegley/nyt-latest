@@ -1,4 +1,4 @@
-**Trump’s Threat of the World’s Highest Tariff Imperiled an African Nation**\
+**How the Threat of Trump’s Highest Tariff Derailed an African Nation**\
 `The president backed off his call for a 50 percent tariff on Lesotho, imposing 15 percent instead. But in a country where most people live hand-to-mouth, the damage was already done.`\
 https://nytimes.com/2025/08/01/world/africa/lesotho-tariffs-textile-industry.html
 
