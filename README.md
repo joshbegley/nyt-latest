@@ -1,3 +1,7 @@
+**MLB trade grades: Griffin Jax, Charlie Morton and other at-the-buzzer deadline deals**\
+`The Brewers, Royals, Giants, Cubs and others were active in the deadline's final moments.`\
+https://nytimes.com/athletic/6529240/2025/07/31/mlb-trade-grades-last-minute-deadline-deals/
+
 **Cecile Dionne, Who Found Fame and Despair as a Quintuplet, Dies at 91**\
 `The Dionnes, the first quints known to have survived infancy, became a global sensation and prey for the greedy. And Cecile came to resent it all. Only one of the five now survives.`\
 https://nytimes.com/2025/07/31/world/canada/cecile-dionne-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/31/us/tennessee-abandoned-baby-suspect.html
 **Greenberg: Cubs miss opportunity on a trade deadline day that called for action**\
 `The Cubs played it safe, and the White Sox tried to muster enthusiasm for another season of Luis Robert Jr. Chicago fans shook their heads.`\
 https://nytimes.com/athletic/6529250/2025/07/31/cubs-white-sox-trade-deadline-missed-opportunities/
-
-**Carlos Correa had many reasons to approve trade back to Houston, including a position change**\
-`Rejoining the Astros was enticing for the team's former shortstop, who bonded with the current shortstop, Jeremy Peña, this past offseason.`\
-https://nytimes.com/athletic/6529368/2025/07/31/carlos-correa-astros-trade-third-base-jeremy-pena/
 

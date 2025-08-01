@@ -1,3 +1,11 @@
+**Cecile Dionne, Who Found Fame and Despair as a Quintuplet, Dies at 91**\
+`The Dionnes, the first quints known to have survived infancy, became a global sensation and prey for the greedy. And Cecile came to resent it all. Only one of the five now survives.`\
+https://nytimes.com/2025/07/31/world/canada/cecile-dionne-dead.html
+
+**Chargers, Trey Lance rule Hall of Fame Game; NFL debuts virtual measurement system**\
+`Lance completed 13 of 20 passes for 120 yards and two touchdowns and looked as good as he has at any point in his NFL career.`\
+https://nytimes.com/athletic/6529462/2025/07/31/hall-of-fame-game-chargers-lions/
+
 **Trump Sharpens Sanctions Threat on Russia, While Admitting It May Not Work**\
 `“We’re going to put sanctions,” the president said, even before a deadline he had given Russia this week to engage in cease-fire negotiations had passed.`\
 https://nytimes.com/2025/07/31/us/politics/trump-russia-putin-sanctions.html
