@@ -1,3 +1,7 @@
+**Word of the Day: solarium**\
+`This word has appeared in 16 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2025/08/01/learning/word-of-the-day-solarium.html
+
 **Judge Extends Protections for Migrants From Nepal, Honduras and Nicaragua**\
 `In blocking the end of deportation protections for more than 60,000 migrants, the judge said the Trump administration’s language surrounding the program had strayed into racist conspiracy theories.`\
 https://nytimes.com/2025/08/01/us/politics/tps-immigrants-nepal-honduras-venezuela.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6529522/2025/08/01/john-donahoe-stanford-athletic-d
 **Friday Briefing: Trump’s Tariff Day**\
 `Plus, our art critic shares his favorite places in Rome.`\
 https://nytimes.com/2025/08/01/briefing/trump-tariff-day-arab-league-hamas-disarm-ukraine-russia.html
-
-**Mateo Joseph: So what now?**\
-`The 21-year-old Spain U21 international has asked to leave Elland Road. How's it likely to play out?`\
-https://nytimes.com/athletic/6527168/2025/08/01/mateo-joseph-what-next/
 

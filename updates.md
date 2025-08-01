@@ -1,3 +1,7 @@
+**Word of the Day: solarium**\
+`This word has appeared in 16 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2025/08/01/learning/word-of-the-day-solarium.html
+
 **Stanford expected to hire former Nike CEO John Donahoe as AD**\
 `The school has been without a permanent AD since February, when Bernard Muir was forced out after 13 years on the job.`\
 https://nytimes.com/athletic/6529522/2025/08/01/john-donahoe-stanford-athletic-director-hire-nike/
