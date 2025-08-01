@@ -22,6 +22,10 @@ https://nytimes.com/2025/08/01/us/politics/trump-deportation-migrants-parole-blo
 `The series, starring Sarah Jessica Parker as Carrie Bradshaw, will wrap things up with a two-part finale.`\
 https://nytimes.com/2025/08/01/arts/television/and-just-like-that-ending-season-3.html
 
+**USMNT's Turner returns to Revolution, MLS on loan**\
+`Turner returns to the club where his career took off, and he'll have an opportunity to reclaim a starting role leading into the World Cup`\
+https://nytimes.com/athletic/6511294/2025/08/01/matt-turner-new-england-revolution/
+
 **Ross Rowland, 85, Dies; a Railroad Preservationist by Way of Wall St.**\
 `He made a fortune as a commodities broker, then used his wealth to back the American Freedom Train and other high-profile vintage excursions.`\
 https://nytimes.com/2025/08/01/travel/ross-e-rowland-jr-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/01/opinion/tariffs-jobs-report-manufacturing-trump.h
 **Teenager Suffers Severe Burns When Foot Sinks Near Yellowstone Geyser**\
 `The 17-year-old’s foot broke through the crust at the Lone Star Geyser area, the National Park Service said.`\
 https://nytimes.com/2025/08/01/travel/yellowstone-geyser-old-faithful-boy-burned.html
-
-**After deadline additions, Yankees release Marcus Stroman**\
-`Stroman, still owed $18.5 million, had a 6.23 ERA in nine starts this season and a 4.69 ERA in 193 2/3 innings with the Yankees.`\
-https://nytimes.com/athletic/6530716/2025/08/01/yankees-marcus-stroman-release/
 
