@@ -1,5 +1,9 @@
-**NFL sells RedZone, NFL Media assets to Disney for stake in ESPN in blockbuster trade: Sources**\
-`An official announcement is expected next week.`\
+**A Catalog of Losses Under Trump**\
+`Readers discuss a series of setbacks under the Trump administration. Also: Sugary drinks and SNAP.`\
+https://nytimes.com/2025/08/01/opinion/trump-losses.html
+
+**NFL deals Red Zone, NFL Media assets to ESPN in blockbuster billion-dollar agreement: Sources**\
+`ESPN is expected to have access to RedZone, NFL Network and seven more regular-season games, among other assets.`\
 https://nytimes.com/athletic/6530655/2025/08/01/nfl-espn-media-deal-tv-broadcast/
 
 **Fantasy baseball bullpen report: How the MLB trade deadline reshaped leverage pathways**\
@@ -30,11 +34,7 @@ https://nytimes.com/athletic/6530566/2025/08/01/nolan-arenado-shoulder-injury-ca
 `The trade deadline didn't feature many big trades, but there were plenty of deals. Here's how the World Series odds were affected.`\
 https://nytimes.com/athletic/6530327/2025/08/01/world-series-winner-odds-dodgers-mets-yankees-phillies/
 
-**Does Ultraprocessed Cola Actually Taste Better? We Did an Expert Taste Test.**\
+**Does Soda Made Without High-Fructose Corn Syrup Actually Taste Better? We Did a Taste Test.**\
 `When it comes to beloved sodas, the taste buds want what the taste buds want.`\
 https://nytimes.com/2025/08/01/dining/cola-cane-sugar-taste-test.html
-
-**Conversations and insights about the moment.**\
-``\
-https://nytimes.com/live/2025/08/01/opinion/thepoint
 
