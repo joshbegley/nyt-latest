@@ -1,6 +1,6 @@
 **Greenberg: Cubs miss opportunity on a trade deadline day that called for action**\
 `The Cubs played it safe, and the White Sox tried to muster enthusiasm for another season of Luis Robert Jr.  Chicago fans shook their heads.`\
-https://nytimes.com/athletic/6529250/2025/07/31/cubs-trade-deadline-day-that-called-for-action-cubs-hugged-their-prospects-tight/
+https://nytimes.com/athletic/6529250/2025/07/31/cubs-white-sox-trade-deadline-missed-opportunities/
 
 **Carlos Correa had many reasons to approve trade back to Houston, including a position change**\
 `Rejoining the Astros was enticing for the team's former shortstop, who bonded with the current shortstop, Jeremy Peña, this past offseason.`\
@@ -22,8 +22,8 @@ https://nytimes.com/athletic/6528172/2025/07/31/nfl-hall-of-fame-game-goodell-ny
 `Abigail Martin opens our solving weekend with her New York Times Crossword debut.`\
 https://nytimes.com/2025/07/31/crosswords/daily-puzzle-2025-08-01.html
 
-**In John Mozeliak's final trade deadline with Cardinals, "long-term view" of team was the priority**\
-`SAN DIEGO — In his final season as the St.`\
+**In John Mozeliak's final trade deadline with Cardinals, 'long-term view' was the priority**\
+`The Cardinals have been sellers in two of the last three trade deadlines. This year's version looked a little bit different.`\
 https://nytimes.com/athletic/6529158/2025/07/31/john-mozeliak-cardinals-trade-react/
 
 **‘And Just Like That …’ Season 3, Episode 10 Recap: Moving On**\
