@@ -1,3 +1,11 @@
+**Stanford expected to hire former Nike CEO John Donahoe as AD: Sources**\
+`The school has been without a permanent AD since February, when Bernard Muir was forced out after 13 years on the job.`\
+https://nytimes.com/athletic/6529522/2025/08/01/john-donahoe-stanford-athletic-director-hire-nike/
+
+**Friday Briefing: Trump’s Tariff Day**\
+`Plus, our art critic shares his favorite places in Rome.`\
+https://nytimes.com/2025/08/01/briefing/trump-tariff-day-arab-league-hamas-disarm-ukraine-russia.html
+
 **Mateo Joseph: So what now?**\
 `The 21-year-old Spain U21 international has asked to leave Elland Road. How's it likely to play out?`\
 https://nytimes.com/athletic/6527168/2025/08/01/mateo-joseph-what-next/
