@@ -1,3 +1,19 @@
+**Why Is California So Chilly This Summer?**\
+`It’s been so cold in San Francisco, painters on the Golden Gate Bridge had to break out heaters.`\
+https://nytimes.com/2025/08/01/weather/san-francisco-summer-temperatures-cold-california.html
+
+**What's next for Micah Parsons and the Cowboys after his trade request?**\
+`The Cowboys have had drama surrounding past contract extensions, but this one with Micah Parsons has gotten uglier than the others.`\
+https://nytimes.com/athletic/6531051/2025/08/01/micah-parsons-trade-request-cowboys-jerry-jones/
+
+**Prosecutors ask for 2.5-year prison sentence for Asencio over alleged sharing of minor sex tape**\
+`The Athletic first reported in May that Asencio could face criminal proceedings for the alleged sharing of the sex tape involving a minor.`\
+https://nytimes.com/athletic/6425978/2025/08/01/raul-asencio-prosecutors-ask-for-2-5-year-sentence-minor-sex-tape/
+
+**Would You Wear the Dimes Square T-Shirt?**\
+`A canny bit of marketing? A fast-fashion boondoggle? A must-have souvenir from the end of civilization? Or maybe just another meaningless T-shirt.`\
+https://nytimes.com/2025/08/01/style/dimes-square-t-shirt-hm.html
+
 **Astronauts Head to Space Station as Clouds Stay Just Far Enough Away**\
 `After a scrubbed launch on Thursday, four astronauts lifted off from Florida and will dock at the International Space Station on Saturday.`\
 https://nytimes.com/2025/08/01/science/nasa-astronauts-space-station-cardman.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6530969/2025/08/01/micah-parsons-cowboys-trade-requ
 **Stock Market Posts Worst Week in Months on Renewed Economic Fears**\
 `Data showing cracks in the U.S. labor market and President Trump’s newest barrage of tariffs shook investors around the world, weighing on stocks, the dollar and more.`\
 https://nytimes.com/2025/08/01/business/economy/trump-tariffs-stock-markets-trade-dollar.html
-
-**Rob Manfred downplays confrontation with Phillies superstar Bryce Harper**\
-`Manfred: “It was an individual picking a particular way to express himself. And I don’t think you need to make more out of that than that."`\
-https://nytimes.com/athletic/6530982/2025/08/01/mlb-rob-manfred-bryce-harper-salary-cap/
-
-**Police Seek Gunman After Bar Shooting in Montana**\
-`The police in Anaconda, Mont., said there was a manhunt underway. It was not immediately clear if anyone had been killed.`\
-https://nytimes.com/2025/08/01/us/montana-anaconda-shooting.html
-
-**Eagles training camp: Drew Mukuba returns with limitations, highlights from quasi-scrimmage**\
-`Plus, Cooper DeJean gets more time at safety, just as Vic Fangio wanted.`\
-https://nytimes.com/athletic/6530590/2025/08/01/eagles-training-camp-drew-mukuba-scrimmage/
-
-**Fed Governor Steps Down Early, Giving Trump Opportunity to Appoint New Official**\
-`The resignation comes as President Trump has been openly pressuring the central bank to lower interest rates and calling for Jerome H. Powell, the chair, to step down.`\
-https://nytimes.com/2025/08/01/business/economy/fed-governor-kugler-resigns-trump.html
 
