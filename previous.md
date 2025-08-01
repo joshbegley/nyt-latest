@@ -1,3 +1,19 @@
+**Fed Dissenters Defend Call for July Rate Cut as Trump Intensifies Attacks**\
+`The central bank this week kept interest rates steady for a fifth-straight meeting, prompting the first double dissent from members of the powerful Board of Governors since 1993.`\
+https://nytimes.com/2025/08/01/business/fed-dissenters-defend-call-for-july-rate-cut-as-trump-intensifies-attacks.html
+
+**Why Nate Thomas was Cowboys' choice to fill in for injured LT Tyler Guyton**\
+`Coaches saw something in Nate Thomas early this offseason and moved him to tackle. Brian Schottenheimer is eager to "see what he can do."`\
+https://nytimes.com/athletic/6529753/2025/08/01/cowboys-left-tackle-nate-thomas/
+
+**Trump Administration Live Updates: U.C.L.A. Is Latest University to Face Federal Funding Cuts**\
+``\
+https://nytimes.com/live/2025/08/01/us/trump-news
+
+**MLB trade deadline grades for all 30 teams: 5 A's, 15 B's, 7 C's and 3 D's**\
+`After another trade deadline featuring plenty of twists and turns, it's time to hand out grades. How did your team fare? `\
+https://nytimes.com/athletic/6527576/2025/08/01/mlb-trade-deadline-grades-2025/
+
 **Inside the tumultuous final hours of the Carlos Correa era — and the start of a rebuild for the Twins**\
 `Correa's exit from Minnesota began with a candid conversation with Twins president Derek Falvey about the team's future direction.`\
 https://nytimes.com/athletic/6529725/2025/08/01/minnesota-twins-trade-carlos-correa-astros/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6526892/2025/08/01/liveroool-bid-transfer-newcastle
 **How to watch the Little League Softball World Series this week**\
 `Cue the organ, warm the confetti cannon and watch a dozen communities cram a lifetime of softball joy into eight delirious days.`\
 https://nytimes.com/athletic/6528437/2025/08/01/little-league-softball-world-series-2025-how-to-watch/
-
-**The Yankees didn't trade Spencer Jones. What does that say about his future?**\
-`Jones isn't going anywhere. Now the question is whether the Yankees believe his lefty bat can help them in the Bronx in the second half.`\
-https://nytimes.com/athletic/6514291/2025/08/01/spencer-jones-yankees-future-trade-deadline/
-
-**Meet Irishman Adam Gibbs, Penn State's punter commit and college football's newest 'superfan'**\
-`A year ago, Gibbs had no interest in American football. Now, he's committed to Penn State as part of the Class of 2026. `\
-https://nytimes.com/athletic/6527259/2025/08/01/penn-state-recruiting-ireland-adam-gibbs/
-
-**Giants rookie roundup: Jaxson Dart a quick study; Cam Skattebo boasts 'elite awareness'**\
-`Abdul Carter isn't the only Giants rookie flashing promise in training camp. `\
-https://nytimes.com/athletic/6528304/2025/08/01/ny-giants-jaxson-dart-cam-skattebo-abdul-carter/
-
-**O'Connor: Now the Yankees don't have an excuse to not win the World Series**\
-`Every roster has flaws. However, if Aaron Judge is healthy in this parity season, the Yankees have enough to end their championship drought.`\
-https://nytimes.com/athletic/6528920/2025/08/01/yankees-trade-deadline-moves-opinion/
 
