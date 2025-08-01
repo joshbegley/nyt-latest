@@ -1,3 +1,11 @@
+**The Book That Explains JD Vance’s Worldview**\
+`Yoram Hazony, the author of “The Virtue of Nationalism,” discusses the principles of national conservatism.`\
+https://nytimes.com/2025/08/01/opinion/ezra-klein-podcast-yoram-hazony.html
+
+**4 Ways to Keep Your Joints Healthy**\
+`Orthopedists share their best tips.`\
+https://nytimes.com/2025/08/01/well/joint-health.html
+
 **So Long, ‘South Park’ Conservatives**\
 `There’s no more pretending that it’s rebellious to be reactionary.`\
 https://nytimes.com/2025/08/01/opinion/south-park-trump-conservatives.html
