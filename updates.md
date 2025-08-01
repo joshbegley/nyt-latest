@@ -1,3 +1,7 @@
+**The Pulse: Key moves from MLB's trade deadline**\
+`Welcome to The Pulse, The Athletic's daily newsletter.`\
+https://nytimes.com/athletic/6529622/2025/08/01/mlb-trade-deadline-2025-the-pulse/
+
 **Stocks Tumble as Investors Grapple With the Rising Cost of Trade**\
 `President Trump’s newest barrage of tariffs, major corporate earnings reports and an imminent reading on the U.S. labor market weighed on markets.`\
 https://nytimes.com/2025/08/01/business/economy/trump-tariffs-stock-markets-trade.html
