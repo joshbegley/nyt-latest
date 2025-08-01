@@ -1,3 +1,11 @@
+**How Tariffs Raise Costs for Farmers, Making Food More Expensive**\
+`The latest round of tariffs is likely to make agricultural production even more expensive and, potentially, limit access to goods not produced in the United States.`\
+https://nytimes.com/2025/08/01/business/economy/tariffs-agriculture-costs-farmers-consumers.html
+
+**With His Reordering of Global Trade, Trump Turns to the Untested**\
+`President Trump has long wanted to rework world trade. The tariffs set to go into effect next week will carry out that plan.`\
+https://nytimes.com/2025/08/01/business/economy/trump-tariffs.html
+
 **It’s Still Summer. Let’s Talk Road Trip Books.**\
 `Our critics Dwight Garner, Alexandra Jacobs and Jennifer Szalai discuss some of their favorite books that take place on the road (and that aren’t “On the Road”).`\
 https://nytimes.com/2025/08/01/books/review/podcast-road-trip-books.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/08/01/world/europe/trump-putin-ukraine-russia-talks.htm
 **Until Saturday: Hot-seat season in the SEC**\
 `Until Saturday is The Athletic's free CFB newsletter.`\
 https://nytimes.com/athletic/6530501/2025/08/01/sec-hot-seat-coaches-until-saturday/
-
-**Tour de France Femmes: Maeva Squiban wins second stage in a row, Le Court braves descent to avoid losing yellow**\
-`See the results from stage seven here as The Athletic covers the Tour de France Femmes. `\
-https://nytimes.com/athletic/6530143/2025/08/01/tour-de-france-femmes-maeva-squiban-stage-7-win-le-court-yellow/
-
-**Top Biden Aide Had $4 Million Incentive to Secure a 2024 Win**\
-`Mike Donilon was promised a bonus that would have doubled his payment for work on the campaign if the former president had been re-elected.`\
-https://nytimes.com/2025/08/01/us/politics/mike-donilon-biden-2024-bonus.html
 
