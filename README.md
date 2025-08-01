@@ -1,3 +1,7 @@
+**Nelly Korda is pushing to get into contention at the Women's Open, with an army behind her**\
+`Korda says her favorite part of her more than 100 weeks at No. 1 has been the fan support she receives, including at Royal Porthcawl.`\
+https://nytimes.com/athletic/6530196/2025/08/01/womens-open-2025-nelly-korda/
+
 **An arm around the shoulder broke cricket's unwritten code. It risked an England-India flashpoint**\
 `It might have been the most provocative moment of a series that has been full of grumbles and spice`\
 https://nytimes.com/athletic/6530875/2025/08/01/england-india-akash-deep-ben-duckett-cricket-arm/
@@ -8,7 +12,7 @@ https://nytimes.com/athletic/6530563/2025/08/01/commanders-stadium-deal-vote-app
 
 **Flashback: Your Weekly History Quiz, Aug. 2, 2025**\
 `Can you sort 8 historical events?`\
-https://nytimes.com/interactive/2025/08/01/upshot/flashback-2025-08-02.html
+https://nytimes.com/interactive/2025/08/01/upshot/flashback.html
 
 **Liverpool's Morton close to Lyon deal worth around £15 million**\
 `The 22-year-old has made 14 senior appearances for Liverpool and would be interested in a permanent move.`\
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/07/31/business/tariffs-trump-trade/trump-jobs-numb
 **Kansas City Current acquire Ally Sentnor from Utah Royals: Sources**\
 `Sentnor's career hit a rapid ascent last summer, playing in the FIFA U-20 Women's World Cup before making her full USWNT debut in November.`\
 https://nytimes.com/athletic/6530726/2025/08/01/ally-sentnor-trade-current-royals/
-
-**They Foraged. They Hunted. They Feasted.**\
-`To celebrate Scandinavian midsummer, the mother-daughter founders of a boutique hotel on a Finnish island hosted a meal showcasing the area’s culinary bounty.`\
-https://nytimes.com/2025/08/01/t-magazine/scandinavian-midsummer-meal.html
 
