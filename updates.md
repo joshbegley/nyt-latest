@@ -1,3 +1,7 @@
+**Coby Mayo, Brooks Lee and others with better playing time opportunities after MLB trade deadline**\
+`When the dust settles for sellers after the deadline, players still with those teams get new opportunities to prove their worth.`\
+https://nytimes.com/athletic/6528164/2025/07/31/mlb-trade-deadline-playing-time-coby-mayo-brooks-lee/
+
 **Cubs DFA Ryan Pressly as Chicago reshapes its bullpen for playoff race**\
 `The Cubs once hoped that Pressly would be pitching at Wrigley Field in October.`\
 https://nytimes.com/athletic/6529195/2025/07/31/chicago-cubs-ryan-pressly-dfa/
