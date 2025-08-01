@@ -1,3 +1,7 @@
+**Yankees stockpile bullpen arms, add Camilo Doval for not much**\
+`Were the Giants just trying to move Doval at any cost? The Giants didn't get a great return for their hard-throwing closer.`\
+https://nytimes.com/athletic/6529049/2025/07/31/yankees-camilo-doval-trade-giants-return/
+
 **Why the Mets didn’t add to starting rotation at trade deadline**\
 `If the Mets were going to acquire a starter, it was likely going to have to be someone they viewed as part of their playoff rotation.`\
 https://nytimes.com/athletic/6529079/2025/07/31/new-york-mets-rotation-trade-deadline/
