@@ -1,3 +1,7 @@
+**Kirby Yates hits the IL with back injury as Dodgers' bullpen depth tested again**\
+`Kirby has had a disappointing season and now is dealing with a lower back injury.`\
+https://nytimes.com/athletic/6531214/2025/08/01/kirby-yates-dodgers-bullpen-injuries/
+
 **Durham’s Debunking of the ‘Clinton Plan’ Emails, Explained**\
 `Trump allies have fixated on a purported message about Hillary Clinton and Russia. John H. Durham, the special counsel, found evidence that it was likely a fake assembled by Russian spies.`\
 https://nytimes.com/2025/08/01/us/politics/trump-russia-durham-explainer.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/01/business/tariffs-foreign-trade-zone-warehouses.ht
 **Why Is California So Chilly This Summer?**\
 `It’s been so cold in San Francisco, painters on the Golden Gate Bridge had to break out heaters.`\
 https://nytimes.com/2025/08/01/weather/san-francisco-summer-temperatures-cold-california.html
-
-**What's next for Micah Parsons and the Cowboys after his trade request?**\
-`The Cowboys have had drama surrounding past contract extensions, but this one with Micah Parsons has gotten uglier than the others.`\
-https://nytimes.com/athletic/6531051/2025/08/01/micah-parsons-trade-request-cowboys-jerry-jones/
 
