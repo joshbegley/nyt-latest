@@ -1,3 +1,7 @@
+**Why Trump’s Tariffs Are Closing Factories in Lesotho**\
+`The closure of a factory in the small southern African nation of Lesotho is an early effect of the global disruption caused by President Trump’s tariffs. John Eligon, the Johannesburg bureau chief for The New York Times, talks with Katrin Bennhold, a senior writer, about what he has seen there.`\
+https://nytimes.com/video/world/africa/100000010311227/why-trumps-tariffs-are-closing-factories-in-lesotho.html
+
 **Fantasy baseball waiver wire options following MLB's trade deadline**\
 `Following MLB's trade deadline, Owen Poindexter gives his take on the best players available on waivers. `\
 https://nytimes.com/athletic/6529399/2025/08/01/fantasy-baseball-waiver-wire-mlb-trade-deadline/
