@@ -1,3 +1,7 @@
+**Trump’s Threat of the World’s Highest Tariff Imperiled an African Nation**\
+`The president backed off his call for a 50 percent tariff on Lesotho, imposing 15 percent instead. But in a country where most people live hand-to-mouth, the damage was already done.`\
+https://nytimes.com/2025/08/01/world/africa/lesotho-tariffs-textile-industry.html
+
 **‘My Oxford Year’ Review: Finding Love Abroad**\
 `She’s a working-class romantic. He’s a prep school playboy. A Netflix romance film aims to be this generation’s “About Time,” but doesn’t hit the mark.`\
 https://nytimes.com/2025/08/01/movies/my-oxford-year-review.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/01/us/politics/tps-immigrants-nepal-honduras-venezue
 **The New York Times in Print for Friday, Aug. 1, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/08/01/todays-new-york-times
-
-**Netanyahu Is Choosing to Starve Gaza**\
-`To end starvation — and stave off social collapse — in Gaza, Israel must allow humanitarian-aid professionals to do their jobs.`\
-https://nytimes.com/2025/08/01/opinion/gaza-israel-famine-starvation.html
 
