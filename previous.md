@@ -1,3 +1,7 @@
+**The Great Political Money Gap**\
+`When it comes to attracting mega-donors, Republicans are crushing Democrats.`\
+https://nytimes.com/2025/08/01/us/politics/maga-inc-future-forward.html
+
 **Flaco Jiménez, Grammy-Winning Master of the Tex-Mex Accordion, Dies at 86**\
 `Fusing traditional Tejano sounds with blues, rock and country, he recorded with Bob Dylan, the Rolling Stones and Ry Cooder.`\
 https://nytimes.com/2025/08/01/arts/music/flaco-jimenez-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/01/us/schwarzenegger-newsom-gerrymandering-californi
 **Michael Cardozo, 84, New York City’s Longest-Serving Chief Lawyer, Dies**\
 `As the city’s corporation counsel under Mayor Michael Bloomberg, he defended stop-and-frisk policing and a ban on smoking in bars and restaurants.`\
 https://nytimes.com/2025/08/01/nyregion/michael-a-cardozo-dead.html
-
-**After a Weak Jobs Report, Trump Fired the Agency’s Leader**\
-`Also, radioactive wasp nests were found in South Carolina. Here’s the latest at the end of Friday.`\
-https://nytimes.com/2025/08/01/briefing/trump-jobs-report-radioactive-wasp-nests.html
 

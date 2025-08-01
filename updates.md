@@ -1,3 +1,7 @@
+**The Great Political Money Gap**\
+`When it comes to attracting mega-donors, Republicans are crushing Democrats.`\
+https://nytimes.com/2025/08/01/us/politics/maga-inc-future-forward.html
+
 **Flaco Jiménez, Grammy-Winning Master of the Tex-Mex Accordion, Dies at 86**\
 `Fusing traditional Tejano sounds with blues, rock and country, he recorded with Bob Dylan, the Rolling Stones and Ry Cooder.`\
 https://nytimes.com/2025/08/01/arts/music/flaco-jimenez-dead.html
