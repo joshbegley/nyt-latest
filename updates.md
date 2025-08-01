@@ -1,3 +1,11 @@
+**Heavy Rain Floods Subways and Roads along East Coast**\
+`Water poured down into metro stations and shot up from the roads like geysers as the Northeast saw major flooding on Thursday.`\
+https://nytimes.com/video/weather/100000010318190/rain-flash-flooding-warning-northeast-mid-atlantic.html
+
+**Trump Gives Mexico a Reprieve but Slams Canada With Higher Tariffs**\
+`The imbalance in President Trump’s treatment of America’s closest trading partners may come from his desire to make Canada the 51st state, some Canadians believe.`\
+https://nytimes.com/2025/08/01/world/canada/canada-tariffs-trump.html
+
 **A.J. Preller’s busiest deadline day was a sight to behold: ‘Something out of a video game’**\
 `The San Diego Padres general manager evoked strong opinions from various corners of the industry.`\
 https://nytimes.com/athletic/6529525/2025/08/01/padres-trade-deadline-day-reactions/

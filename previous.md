@@ -1,3 +1,11 @@
+**Heavy Rain Floods Subways and Roads along East Coast**\
+`Water poured down into metro stations and shot up from the roads like geysers as the Northeast saw major flooding on Thursday.`\
+https://nytimes.com/video/weather/100000010318190/rain-flash-flooding-warning-northeast-mid-atlantic.html
+
+**Trump Gives Mexico a Reprieve but Slams Canada With Higher Tariffs**\
+`The imbalance in President Trump’s treatment of America’s closest trading partners may come from his desire to make Canada the 51st state, some Canadians believe.`\
+https://nytimes.com/2025/08/01/world/canada/canada-tariffs-trump.html
+
 **A.J. Preller’s busiest deadline day was a sight to behold: ‘Something out of a video game’**\
 `The San Diego Padres general manager evoked strong opinions from various corners of the industry.`\
 https://nytimes.com/athletic/6529525/2025/08/01/padres-trade-deadline-day-reactions/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6525706/2025/08/01/beto-everton-interview-exclusive
 **Paqueta's two years in limbo: Missed City move, West Ham backing and a pastor's prayers**\
 `How the Brazilian coped with the spectre of a lifetime ban from football after a two-year investigation into alleged spot-fixing`\
 https://nytimes.com/athletic/6193739/2025/08/01/lucas-paqueta-investigation-cleared-analysis/
-
-**One of Man United's proudest records stands at 4,321 games – is it about to end?**\
-`United's run of naming a player who has come through their youth system in every matchday squad is at risk. Does it matter?`\
-https://nytimes.com/athletic/6518566/2025/08/01/manchester-united-youth-record/
-
-**How Ngumoha, aged 16, became impossible to ignore at Liverpool**\
-`Breaking down how the teenager has shown Arne Slot he is worth a place in his first-team squad this season`\
-https://nytimes.com/athletic/6526981/2025/08/01/rio-ngumoha-liverpool-arne-slot/
 
