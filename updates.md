@@ -1,3 +1,15 @@
+**The Publicist on Call for Controversy**\
+`Mitchell Jackson was fired from a high-profile journalism job at 25. Now he represents some of the most divisive figures in America, including the right-wing podcaster Candace Owens.`\
+https://nytimes.com/2025/08/01/style/the-publicist-on-call-for-controversy.html
+
+**India Reels From the Shock of Trump’s Onslaught**\
+`Russian oil poses just one problem. Business groups are flummoxed by the variety and vagueness of the American president’s complaints.`\
+https://nytimes.com/2025/08/01/business/economy/india-reels-from-the-shock-of-trumps-onslaught.html
+
+**The National 2025 diary: Observations and insights from the show floor**\
+`What's happening at the country's biggest sports collectors' show`\
+https://nytimes.com/athletic/6527161/2025/08/01/the-national-2025-sports-card-memorabilia-show/
+
 **The NWSL is back, six days after the Euros final. Are players getting enough rest?**\
 `With more international players in the NWSL, conversations about the soccer calendar are becoming ever more tricky.`\
 https://nytimes.com/athletic/6529718/2025/08/01/nwsl-euros-finfa-carter-rest/

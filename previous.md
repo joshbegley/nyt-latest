@@ -1,3 +1,15 @@
+**The Publicist on Call for Controversy**\
+`Mitchell Jackson was fired from a high-profile journalism job at 25. Now he represents some of the most divisive figures in America, including the right-wing podcaster Candace Owens.`\
+https://nytimes.com/2025/08/01/style/the-publicist-on-call-for-controversy.html
+
+**India Reels From the Shock of Trump’s Onslaught**\
+`Russian oil poses just one problem. Business groups are flummoxed by the variety and vagueness of the American president’s complaints.`\
+https://nytimes.com/2025/08/01/business/economy/india-reels-from-the-shock-of-trumps-onslaught.html
+
+**The National 2025 diary: Observations and insights from the show floor**\
+`What's happening at the country's biggest sports collectors' show`\
+https://nytimes.com/athletic/6527161/2025/08/01/the-national-2025-sports-card-memorabilia-show/
+
 **The NWSL is back, six days after the Euros final. Are players getting enough rest?**\
 `With more international players in the NWSL, conversations about the soccer calendar are becoming ever more tricky.`\
 https://nytimes.com/athletic/6529718/2025/08/01/nwsl-euros-finfa-carter-rest/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/08/01/your-money/back-to-school-supplies-parents.html
 **The Stock Market Is Good, Bad and Ugly, Often in Quick Succession**\
 `The market’s best days frequently occur in the midst of misery, our columnist says, so don’t bother trying to figure out where stocks are heading.`\
 https://nytimes.com/2025/08/01/business/stock-market-best-worst-days-investing.html
-
-**Kate Douglass breaks U.S. record, gives Americans another gold at swimming worlds**\
-`Kate Douglass lowered her own U.S. record Friday to win gold in the women's 200-meter breaststroke, the Americans' fifth title of the week.`\
-https://nytimes.com/athletic/6529902/2025/08/01/kate-douglass-american-record-breaststroke-gold-swimming-world-championships/
-
-**Employers Pulled Back on Hiring, Adding 73,000 Jobs**\
-`The labor market showed signs of weakening, as job gains for the previous two months were also revised lower.`\
-https://nytimes.com/2025/08/01/us/politics/jobs-report-us-economy.html
-
-**Derk Sauer, Champion of Free Press in a New Russia, Dies at 72**\
-`He was a socialist reporter turned magnate who earned a fortune in the 1990s. He defended press freedoms even after the industry became beleaguered and unprofitable.`\
-https://nytimes.com/2025/08/01/world/europe/derk-sauer-dead.html
 
