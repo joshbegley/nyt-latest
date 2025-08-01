@@ -1,3 +1,11 @@
+**Air Traffic Controllers Urged Safety Changes Years Before D.C. Crash**\
+`Air traffic control managers told the National Transportation Safety Board that F.A.A. leaders rebuffed efforts over the years to address hazardous conditions that played a role in the Jan. 29 crash.`\
+https://nytimes.com/2025/07/31/us/politics/ntsb-dc-airport-crash-air-traffic.html
+
+**Police in Tennessee Seek Man They Say Killed 4 in Case Linked to Abandoned Baby**\
+`Austin Robert Drummond, 28, faces four counts first-degree murder, one count of aggravated kidnapping and firearms charges.`\
+https://nytimes.com/2025/07/31/us/tennessee-abandoned-baby-suspect.html
+
 **With best deadline in a decade, Mets keep pace in competitive NL**\
 `Not since 2015 had the Mets acted this aggressively to acquire outside talent and improve the big-league roster.`\
 https://nytimes.com/athletic/6529190/2025/07/31/mets-trade-deadline-ryan-helsley-cedric-mullins/

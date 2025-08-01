@@ -1,3 +1,11 @@
+**Air Traffic Controllers Urged Safety Changes Years Before D.C. Crash**\
+`Air traffic control managers told the National Transportation Safety Board that F.A.A. leaders rebuffed efforts over the years to address hazardous conditions that played a role in the Jan. 29 crash.`\
+https://nytimes.com/2025/07/31/us/politics/ntsb-dc-airport-crash-air-traffic.html
+
+**Police in Tennessee Seek Man They Say Killed 4 in Case Linked to Abandoned Baby**\
+`Austin Robert Drummond, 28, faces four counts first-degree murder, one count of aggravated kidnapping and firearms charges.`\
+https://nytimes.com/2025/07/31/us/tennessee-abandoned-baby-suspect.html
+
 **Greenberg: Cubs miss opportunity on a trade deadline day that called for action**\
 `The Cubs played it safe, and the White Sox tried to muster enthusiasm for another season of Luis Robert Jr.  Chicago fans shook their heads.`\
 https://nytimes.com/athletic/6529250/2025/07/31/cubs-white-sox-trade-deadline-missed-opportunities/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6529158/2025/07/31/john-mozeliak-cardinals-trade-re
 **‘And Just Like That …’ Season 3, Episode 10 Recap: Moving On**\
 `This week the flirtation between Carrie and Duncan escalated to a whole lot more than just a “laugh” and “sip of Scotch.”`\
 https://nytimes.com/2025/07/31/arts/television/and-just-like-that-recap-season-3-episode-10.html
-
-**Dodgers fix outfield hole but give up talent to do so by adding prospects for Dustin May**\
-`It was an unusually quiet deadline for the Dodgers, though they did make two deals on Thursday, adding and subtracting two prospects.`\
-https://nytimes.com/athletic/6529191/2025/07/31/los-angeles-dodgers-deadline-trades-analysis/
-
-**Trade deadline Q&A with Braves GM Alex Anthopoulos: What happened to selling?**\
-`Despite anticipation, the Braves stayed mostly quiet: "Our goal at this deadline was to focus on guys that could help us in '26."`\
-https://nytimes.com/athletic/6529253/2025/07/31/braves-alex-anthopolous-mlb-trade/
 
