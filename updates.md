@@ -1,3 +1,15 @@
+**Dodgers fix an outfield hole but give up talent to do so; add prospects for Dustin May**\
+`It was an unusually quiet deadline for the Dodgers, though they did make two deals on Thursday, adding and subtracting two prospects.`\
+https://nytimes.com/athletic/6529191/2025/07/31/los-angeles-dodgers-deadline-trades-analysis/
+
+**Trade deadline Q&A with Braves GM Alex Anthopoulos: What happened to selling?**\
+`Despite anticipation, the Braves stayed mostly quiet: "Our goal at this deadline was to focus on guys that could help us in '26."`\
+https://nytimes.com/athletic/6529253/2025/07/31/braves-alex-anthopolous-mlb-trade/
+
+**‘Clinton Plan’ Emails Were Likely Made by Russian Spies, Declassified Report Shows**\
+`An annex to a report by the special counsel John H. Durham was the latest in a series of disclosures about the Russia inquiry, as the Trump team seeks to distract from the Jeffrey Epstein files.`\
+https://nytimes.com/2025/07/31/us/politics/trump-clinton-emails-russia-investigation.html
+
 **UFL adds new billionaire co-owner Mike Repole, who promises big changes**\
 `Repole said the UFL plans to move at least two teams this year, and that he sees the number of teams doubling over the next decade.`\
 https://nytimes.com/athletic/6529260/2025/07/31/ufl-new-owner-mike-repole-changes/
