@@ -1,3 +1,11 @@
+**Liverpool appoint former Man Utd academy coach Wiles lead under-18s team**\
+`Wiles also had spells as a first-team coach at Salford City and Fleetwood Town.`\
+https://nytimes.com/athletic/6530314/2025/08/01/liverpool-appoint-simon-wiles-coach/
+
+**The Windup: What to know about 36-trade deadline**\
+`The Windup Newsletter ⚾ | This is The Athletic’s MLB newsletter.`\
+https://nytimes.com/athletic/6530281/2025/08/01/mlb-trade-deadline-day-the-windup/
+
 **Five Science Fiction Movies to Stream Now**\
 `In this month’s picks, expect mutating zombies, hostile planets and teleportation.`\
 https://nytimes.com/2025/08/01/movies/science-fiction-movies-to-stream.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6526931/2025/08/01/conor-coady-wrexham-transfer/
 **Big Downward Jobs Revisions Could Be a Warning Sign for the Economy**\
 `Employers added far fewer jobs in May and June than previously reported. Such downgrades have historically meant trouble for the labor market.`\
 https://nytimes.com/2025/08/01/business/economy/big-downward-jobs-revisions-could-be-a-warning-sign-for-the-economy.html
-
-**Robert Wilson Expanded Our Sense of Theatrical Possibility**\
-`Wilson, who died this week at 83, created works of otherworldly dreaminess that were also deeply human.`\
-https://nytimes.com/2025/08/01/arts/music/robert-wilson-theater.html
-
-**States Have More Data About You Than the Feds Do. Trump Wants to See It.**\
-`Critics fear that personal data might be used to monitor immigrants and political foes, and to spread false tales of fraud.`\
-https://nytimes.com/2025/08/01/upshot/trump-states-data-privacy.html
 
