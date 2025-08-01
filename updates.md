@@ -1,3 +1,11 @@
+**In John Mozeliak's final trade deadline with Cardinals, "long-term view" of team was the priority**\
+`SAN DIEGO — In his final season as the St.`\
+https://nytimes.com/athletic/6529158/2025/07/31/john-mozeliak-cardinals-trade-react/
+
+**‘And Just Like That …’ Season 3, Episode 10 Recap: Moving On**\
+`This week the flirtation between Carrie and Duncan escalated to a whole lot more than just a “laugh” and “sip of Scotch.”`\
+https://nytimes.com/2025/07/31/arts/television/and-just-like-that-recap-season-3-episode-10.html
+
 **Dodgers fix an outfield hole but give up talent to do so; add prospects for Dustin May**\
 `It was an unusually quiet deadline for the Dodgers, though they did make two deals on Thursday, adding and subtracting two prospects.`\
 https://nytimes.com/athletic/6529191/2025/07/31/los-angeles-dodgers-deadline-trades-analysis/
