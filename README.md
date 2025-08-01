@@ -1,3 +1,11 @@
+**Kansas City Current acquire Ally Sentnor from Utah Royals: Sources**\
+`Sentnor's career hit a rapid ascent last summer, playing in the FIFA U-20 Women's World Cup before making her full USWNT debut in November.`\
+https://nytimes.com/athletic/6530726/2025/08/01/ally-sentnor-trade-current-royals/
+
+**They Foraged. They Hunted. They Feasted.**\
+`To celebrate Scandinavian midsummer, the mother-daughter founders of a boutique hotel on a Finnish island hosted a meal showcasing the area’s culinary bounty.`\
+https://nytimes.com/2025/08/01/t-magazine/scandinavian-midsummer-meal.html
+
 **Marc Maron’s Podcast Made Him a Better Comic, Just One Part of a Rich Legacy**\
 `Online he uses an examination of his own mind to illuminate other people. This double focus is a key element of specials like his new “Panicked.”`\
 https://nytimes.com/2025/08/01/arts/television/marc-maron-panicked-wtf-podcast-comedy.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/08/01/travel/yellowstone-geyser-old-faithful-boy-burned
 **After deadline additions, Yankees release Marcus Stroman**\
 `Stroman, still owed $18.5 million, had a 6.23 ERA in nine starts this season and a 4.69 ERA in 193 2/3 innings with the Yankees.`\
 https://nytimes.com/athletic/6530716/2025/08/01/yankees-marcus-stroman-release/
-
-**Massa, Magnussen, Djokovic invest in Ligue 2 club Le Mans**\
-`Le Mans' president hopes the Ligue 2 club can become "a permanent presence in French professional football".`\
-https://nytimes.com/athletic/6530510/2025/08/01/felipe-massa-kevin-magnussen-novak-djokovic-le-mans-invesment/
-
-**Jury Says Tesla Was Partly to Blame for Fatal Crash**\
-`Lawyers for the family of a woman struck and killed by a Tesla sedan in 2019 argued that the company’s Autopilot software should have avoided the crash.`\
-https://nytimes.com/2025/08/01/business/tesla-autopilot-federal-trial-verdict.html
 
