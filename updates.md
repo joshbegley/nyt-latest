@@ -1,3 +1,15 @@
+**Dodgers are betting on their superstars to figure it out**\
+`"We're in a position where we're in first place, and I don't even think we've played our best baseball yet,” Dodgers GM Brandon Gomes said.`\
+https://nytimes.com/athletic/6530567/2025/08/01/dodgers-mlb-trade-deadline-stars/
+
+**How Tariffs Raise Costs for Farmers, Making Food More Expensive**\
+`The latest round of tariffs is likely to make agricultural production even more expensive and, potentially, limit access to goods not produced in the United States.`\
+https://nytimes.com/2025/08/01/business/economy/tariffs-agriculture-costs-farmers-consumers.html
+
+**With His Reordering of Global Trade, Trump Turns to the Untested**\
+`President Trump has long wanted to rework world trade. The tariffs set to go into effect next week will carry out that plan.`\
+https://nytimes.com/2025/08/01/business/economy/trump-tariffs.html
+
 **It’s Still Summer. Let’s Talk Road Trip Books.**\
 `Our critics Dwight Garner, Alexandra Jacobs and Jennifer Szalai discuss some of their favorite books that take place on the road (and that aren’t “On the Road”).`\
 https://nytimes.com/2025/08/01/books/review/podcast-road-trip-books.html
