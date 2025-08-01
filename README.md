@@ -18,7 +18,7 @@ https://nytimes.com/2025/08/01/opinion/gaza-israel-famine-starvation.html
 `The president, a Trump ally, will now be able to seek re-election indefinitely. The National Assembly also extended the presidential term to six years.`\
 https://nytimes.com/2025/08/01/world/americas/el-salvador-bukele-term-limits.html
 
-**Heavy Rain Floods Subways and Roads along East Coast**\
+**Heavy Rain Floods Subways and Roads Along East Coast**\
 `Water poured down into metro stations and shot up from the roads like geysers as the Northeast saw major flooding on Thursday.`\
 https://nytimes.com/video/weather/100000010318190/rain-flash-flooding-warning-northeast-mid-atlantic.html
 
