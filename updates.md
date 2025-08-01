@@ -1,3 +1,11 @@
+**Top Biden Aide Had $4 Million Incentive to Secure a 2024 Win**\
+`Mike Donilon was promised a bonus that would have doubled his payment for work on the campaign if the former president had been re-elected.`\
+https://nytimes.com/2025/08/01/us/politics/mike-donilon-biden-2024-bonus.html
+
+**Live Q&A: Talking baseball with Eno Sarris on Friday 8/1 at 2 p.m. ET**\
+`Chat with Eno about the trade deadline at 2 p.m. ET!`\
+https://nytimes.com/athletic/6530473/2025/08/01/eno-sarris-post-deadline-live-q-and-a/
+
 **French cyclist Biannic rode cobbled classic Paris-Roubaix unknowingly pregnant**\
 `Biannic eventually stepped away from cycling in August last year and gave birth to a son in November, before returning to competition in May`\
 https://nytimes.com/athletic/6530202/2025/08/01/aude-biannic-cycling-pregnancy/
