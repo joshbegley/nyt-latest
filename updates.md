@@ -1,3 +1,5 @@
+
+
 **In John Mozeliak's final trade deadline with Cardinals, "long-term view" of team was the priority**\
 `SAN DIEGO — In his final season as the St.`\
 https://nytimes.com/athletic/6529158/2025/07/31/john-mozeliak-cardinals-trade-react/
