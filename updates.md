@@ -1,3 +1,7 @@
+**Micah Parsons-Cowboys relationship deteriorating amid contract standoff: Sources**\
+`Parsons, who is in the final year of his rookie deal, is attending practices but not participating in on-field work amid escalating tension.`\
+https://nytimes.com/athletic/6530081/2025/08/01/micah-parsons-jerry-jones-contract-negotiation/
+
 **Wrexham sign Conor Coady from Leicester City**\
 `Coady, 32, departs Leicester after two years at the club, making 43 appearances in that time.`\
 https://nytimes.com/athletic/6526931/2025/08/01/conor-coady-wrexham-transfer/

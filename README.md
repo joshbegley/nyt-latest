@@ -1,3 +1,11 @@
+**What J.M.W. Turner Saw, and What We Still Can See**\
+`In the 250 years since the artist was born, the natural world he loved so much has changed. But he still reminds us to look with truth, clarity, and feeling.`\
+https://nytimes.com/2025/08/01/arts/jmw-turner-anniversary-uk.html
+
+**EU court rules CAS decisions can be reviewed by national courts**\
+`CAS, an institution independent of any sports organisation, handles significant legal sporting cases such as doping and contract disputes.`\
+https://nytimes.com/athletic/6529939/2025/08/01/eu-court-rules-cas-decisions-can-be-reviewed-by-national-courts/
+
 **Micah Parsons-Cowboys relationship deteriorating amid contract standoff: Sources**\
 `Parsons, who is in the final year of his rookie deal, is attending practices but not participating in on-field work amid escalating tension.`\
 https://nytimes.com/athletic/6530081/2025/08/01/micah-parsons-jerry-jones-contract-negotiation/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/08/01/business/economy/india-reels-from-the-shock-of-tr
 **The National 2025 diary: Observations and insights from the show floor**\
 `What's happening at the country's biggest sports collectors' show`\
 https://nytimes.com/athletic/6527161/2025/08/01/the-national-2025-sports-card-memorabilia-show/
-
-**Colts takeaways: How Anthony Richardson has dialed in; Tyler Warren looks 'special'**\
-`Richardson is keeping things simple, while Warren is making jaw-dropping catches that even his teammates can't believe. `\
-https://nytimes.com/athletic/6529628/2025/08/01/colts-anthony-richardson-tyler-warren-training-camp/
-
-**The NWSL is back, six days after the Euros final. Are players getting enough rest?**\
-`With more international players in the NWSL, conversations about the soccer calendar are becoming ever more tricky.`\
-https://nytimes.com/athletic/6529718/2025/08/01/nwsl-euros-finfa-carter-rest/
 
