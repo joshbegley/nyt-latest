@@ -1,3 +1,7 @@
+**Evaluating Lions' roster after turnover-filled Hall of Fame Game loss to Chargers**\
+`Which Lions players helped or hurt their cause in the 34-7 loss to the Chargers?`\
+https://nytimes.com/athletic/6529616/2025/08/01/lions-roster-chargers-nfl-hall-of-fame-game/
+
 **Summer Reading Contest, Week 9: What Got Your Attention in The Times This Week?**\
 `To participate, submit your response here by Aug. 8 at 9 a.m. Eastern. This week’s winners will be announced by Aug. 19.`\
 https://nytimes.com/2025/08/01/learning/summer-reading-contest-week-9-what-got-your-attention-in-the-times-this-week.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/01/business/dealbook/openai-ai-mega-funding-deal.htm
 **Fed Dissenters Defend Call for July Rate Cut as Trump Intensifies Attacks**\
 `The central bank this week kept interest rates steady for a fifth-straight meeting, prompting the first double dissent from members of the powerful Board of Governors since 1993.`\
 https://nytimes.com/2025/08/01/business/fed-dissent-interest-rate-trump-powell.html
-
-**Why Nate Thomas was Cowboys' choice to fill in for injured LT Tyler Guyton**\
-`Coaches saw something in Nate Thomas early this offseason and moved him to tackle. Brian Schottenheimer is eager to "see what he can do."`\
-https://nytimes.com/athletic/6529753/2025/08/01/cowboys-left-tackle-nate-thomas/
 

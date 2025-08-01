@@ -1,3 +1,11 @@
+**Weak Jobs Report Raises Chances of a September Interest Rate Cut**\
+`The Federal Reserve held rates steady in July but two governors dissented, saying they had concerns about labor market fragility.`\
+https://nytimes.com/2025/08/01/business/economy/weak-jobs-report-raises-chances-of-a-september-interest-rate-cut.html
+
+**Prosecutors Oppose Sean Combs’s Bid for Release From Jail**\
+`Earlier this week, the mogul’s lawyers renewed their efforts to secure his release ahead of his October sentencing on prostitution-related convictions.`\
+https://nytimes.com/2025/08/01/arts/music/sean-combs-diddy-prosecutors-bail.html
+
 **Evaluating Lions' roster after turnover-filled Hall of Fame Game loss to Chargers**\
 `Which Lions players helped or hurt their cause in the 34-7 loss to the Chargers?`\
 https://nytimes.com/athletic/6529616/2025/08/01/lions-roster-chargers-nfl-hall-of-fame-game/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/08/01/world/europe/derk-sauer-dead.html
 **Wolves hopeful of closing deal to sign Wolfe from AZ**\
 `A move for Wolfe would see him replace Rayan Ait-Nouri in the Wolves squad after the Algeria international joined Manchester City in June.`\
 https://nytimes.com/athletic/6528349/2025/08/01/david-moller-wolfe-wolves-transfer/
-
-**Exclusive: OpenAI Secures Another Giant Funding Deal**\
-`The venture capital round values the ChatGPT maker at $300 billion, and underscores the fierceness of the A.I. money race.`\
-https://nytimes.com/2025/08/01/business/dealbook/openai-ai-mega-funding-deal.html
-
-**Fed Dissenters Defend Call for July Rate Cut as Trump Intensifies Attacks**\
-`The central bank this week kept interest rates steady for a fifth-straight meeting, prompting the first double dissent from members of the powerful Board of Governors since 1993.`\
-https://nytimes.com/2025/08/01/business/fed-dissent-interest-rate-trump-powell.html
 
