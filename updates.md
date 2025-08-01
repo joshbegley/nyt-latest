@@ -1,3 +1,7 @@
+**States Have More Data About You Than the Feds Do. Trump Wants to See It.**\
+`Critics fear that personal data might be used to monitor immigrants and political foes, and to spread false tales of fraud.`\
+https://nytimes.com/2025/08/01/upshot/trump-states-data-privacy.html
+
 **The Publicist on Call for Controversy**\
 `Mitchell Jackson was fired from a high-profile journalism job at 25. Now he represents some of the most divisive figures in America, including the right-wing podcaster Candace Owens.`\
 https://nytimes.com/2025/08/01/style/the-publicist-on-call-for-controversy.html
