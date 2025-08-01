@@ -1,3 +1,11 @@
+**In Tense Hearing, Texas Republicans Defend Redrawn Political Map**\
+`The legislative hearing was part of a rapidly moving redistricting process, pushed by President Trump, that could see the map approved next week.`\
+https://nytimes.com/2025/08/01/us/politics/texas-redistricting.html
+
+**For Some, Return of Presidential Fitness Test Revives Painful Memories**\
+`Generations of Americans who struggled to complete a pull-up in front of their classmates winced as President Trump announced that he was reinstating the annual assessment.`\
+https://nytimes.com/2025/08/01/well/trump-presidential-fitness-test.html
+
 **Ahead of Trade Deadline, Firms Rushed Goods Out of Duty-Free Warehouses**\
 `By keeping inventory in bonded warehouses or foreign trade zones, importers were able to hedge the tariff rate they ultimately paid.`\
 https://nytimes.com/2025/08/01/business/tariffs-foreign-trade-zone-warehouses.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/08/01/nyregion/gaza-war-protesters-schumer-gillibrand.h
 **192,000 Play Kitchens Are Recalled After Child Dies of Strangulation**\
 `Children playing with the set can get caught on a hook of the toy kitchen and asphyxiate themselves, the U.S. Consumer Product Safety Commission said.`\
 https://nytimes.com/2025/08/01/business/kids-play-kitchen-recall-toddler-death.html
-
-**Panthers WR Tetairoa McMillan's first camp — some good, some bad, still confident**\
-`McMillan has fought through a few rough patches at training camp to prove why the Panthers selected him No. 8 overall in April's draft.`\
-https://nytimes.com/athletic/6530900/2025/08/01/carolina-panthers-tetairoa-mcmillan-training-camp/
-
-**Dallas Cowboys players show support for Micah Parsons amid star's trade request**\
-`Parsons has had 12 or more sacks in each of his first four seasons.`\
-https://nytimes.com/athletic/6530969/2025/08/01/micah-parsons-cowboys-trade-request-teammates-reactions/
 
