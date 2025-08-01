@@ -1,3 +1,15 @@
+**The Politics of Masks**\
+`How masking is a source of both power and protection.`\
+https://nytimes.com/2025/08/01/briefing/the-politics-of-masks.html
+
+**Exxon Chief Says Demand for Oil Remains ‘Very, Very Strong.’**\
+`The largest U.S. energy companies reported their lowest second-quarter profits in years, as tariffs have weighed on oil prices.`\
+https://nytimes.com/2025/08/01/business/energy-environment/exxon-profit-oil-price.html
+
+**Trump Envoy Is Expected to See Gaza Aid Efforts Firsthand**\
+`Steve Witkoff is set to visit the enclave on Friday amid growing pressure on Israel to ease the hunger crisis. Hamas said the trip would be a “propaganda show.”`\
+https://nytimes.com/2025/08/01/world/middleeast/witkoff-gaza-aid-trump-us.html
+
 **Liverpool's new kit: How Adidas launched 10-year deal - and what's our verdict?**\
 `Kit sponsor reveal their new designs for the 2025-26 season with a nod to the club's past`\
 https://nytimes.com/athletic/6529793/2025/08/01/liverpools-new-kit-adidas-review/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6527922/2025/08/01/ryan-kelly-vikings-jj-mccarthy-s
 **How Aaron Rodgers' connection with Mike Tomlin led him to the Steelers**\
 `Rodgers on the long-time Steelers coach: “It felt like I was talking to a friend, not a coach. ... He's a big part of this whole thing.”`\
 https://nytimes.com/athletic/6528454/2025/08/01/aaron-rodgers-mike-tomlin-steelers-nfl/
-
-**Pop-A-Shot nationals: Where a Super Bowl-winning QB and tech reps aim for glory**\
-`A quarterback with a Super Bowl win is preparing for arcade-game foes, including someone who practiced with a Golden State Warriors guard.`\
-https://nytimes.com/athletic/6529125/2025/08/01/pop-a-shot-brad-johnson-super-bowl-warriors/
-
-**Fantasy football 2025 strategy mock draft: From Hoard RB to Zero RB, and all else between**\
-`The Athletic fantasy football staff reveals their mock results in which they were all tasked with carrying out a particular draft strategy. `\
-https://nytimes.com/athletic/6527564/2025/08/01/fantasy-football-mock-draft-strategy-zero-rb/
-
-**Daryl Morey says Lakers' 2020 bubble title is 'marked by an asterisk.' Our staff weighs in**\
-`Philly GM Daryl Morey said the Lakers' 2020 bubble title "doesn’t truly hold up as a genuine championship." Is he right or is he off-base?`\
-https://nytimes.com/athletic/6527398/2025/08/01/lakers-2020-championship-nba-bubble-asterisk-daryl-morey/
 
