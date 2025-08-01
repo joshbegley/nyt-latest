@@ -1,3 +1,7 @@
+**Mateo Joseph: So what now?**\
+`The 21-year-old Spain U21 international has asked to leave Elland Road. How's it likely to play out?`\
+https://nytimes.com/athletic/6527168/2025/08/01/mateo-joseph-what-next/
+
 **'It's time to go' takes on new meaning for Buster Posey, Giants at trade deadline**\
 `It might surprise you that Posey would take such a clear selling posture, but the warnings have been there for months.`\
 https://nytimes.com/athletic/6529510/2025/08/01/giants-buster-posey-trade-deadline/

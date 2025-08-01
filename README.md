@@ -1,3 +1,11 @@
+**Stanford expected to hire former Nike CEO John Donahoe as AD: Sources**\
+`The school has been without a permanent AD since February, when Bernard Muir was forced out after 13 years on the job.`\
+https://nytimes.com/athletic/6529522/2025/08/01/john-donahoe-stanford-athletic-director-hire-nike/
+
+**Friday Briefing: Trump’s Tariff Day**\
+`Plus, our art critic shares his favorite places in Rome.`\
+https://nytimes.com/2025/08/01/briefing/trump-tariff-day-arab-league-hamas-disarm-ukraine-russia.html
+
 **Mateo Joseph: So what now?**\
 `The 21-year-old Spain U21 international has asked to leave Elland Road. How's it likely to play out?`\
 https://nytimes.com/athletic/6527168/2025/08/01/mateo-joseph-what-next/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6526981/2025/08/01/rio-ngumoha-liverpool-arne-slot/
 **Guardiola wanted a smaller squad. Instead it's grown. How can City trim it?**\
 `What needs to happen to City's bloated squad to avoid leaving players unregistered`\
 https://nytimes.com/athletic/6526978/2025/08/01/manchester-city-squad-guardiola-trim/
-
-**#FreeWissa, footballers wanting out and why fans have every right to defy logic**\
-`As fans react to the rather messy situations unfolding in this transfer window, let’s not expect consistency and embrace the contradictions`\
-https://nytimes.com/athletic/6527024/2025/08/01/isak-wissa-trent-alexander-arnold-transfers/
-
-**Why young players like 15-year-old Dowman can compete with adults earlier and earlier**\
-`Arsenal's pre-season tour has highlighted a trend of players developing younger - here's why`\
-https://nytimes.com/athletic/6527362/2025/08/01/young-players-developing-early-max-dowman-marli-salmon-arsenal/
 
