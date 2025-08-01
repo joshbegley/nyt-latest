@@ -1,3 +1,7 @@
+**Red Sox engaged with Twins on Joe Ryan only to balk at the trade deadline — again**\
+`according to league sources briefed on discussions from the Twins’ side, talks fell apart when the Red Sox were unwilling to offer any of th`\
+https://nytimes.com/athletic/6529496/2025/07/31/red-sox-joe-ryan-trade-deadline/
+
 **MLB trade grades: Griffin Jax, Charlie Morton and other at-the-buzzer deadline deals**\
 `The Brewers, Royals, Giants, Cubs and others were active in the deadline's final moments.`\
 https://nytimes.com/athletic/6529240/2025/07/31/mlb-trade-grades-last-minute-deadline-deals/

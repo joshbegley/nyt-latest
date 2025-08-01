@@ -1,3 +1,7 @@
+**Red Sox engaged with Twins on Joe Ryan only to balk at the trade deadline — again**\
+`according to league sources briefed on discussions from the Twins’ side, talks fell apart when the Red Sox were unwilling to offer any of th`\
+https://nytimes.com/athletic/6529496/2025/07/31/red-sox-joe-ryan-trade-deadline/
+
 **MLB trade grades: Griffin Jax, Charlie Morton and other at-the-buzzer deadline deals**\
 `The Brewers, Royals, Giants, Cubs and others were active in the deadline's final moments.`\
 https://nytimes.com/athletic/6529240/2025/07/31/mlb-trade-grades-last-minute-deadline-deals/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/07/31/us/politics/ntsb-dc-airport-crash-air-traffic.htm
 **Police in Tennessee Seek Man They Say Killed 4 in Case Linked to Abandoned Baby**\
 `Austin Robert Drummond, 28, faces four counts first-degree murder, one count of aggravated kidnapping and firearms charges.`\
 https://nytimes.com/2025/07/31/us/tennessee-abandoned-baby-suspect.html
-
-**Greenberg: Cubs miss opportunity on a trade deadline day that called for action**\
-`The Cubs played it safe, and the White Sox tried to muster enthusiasm for another season of Luis Robert Jr. Chicago fans shook their heads.`\
-https://nytimes.com/athletic/6529250/2025/07/31/cubs-white-sox-trade-deadline-missed-opportunities/
 
