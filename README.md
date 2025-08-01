@@ -1,6 +1,10 @@
+**The NWSL is back, six days after the Euros final. Are players getting enough rest?**\
+`With more international players in the NWSL, conversations about the soccer calendar are becoming ever more tricky.`\
+https://nytimes.com/athletic/6529718/2025/08/01/nwsl-euros-finfa-carter-rest/
+
 **Weak Jobs Report Raises Chances of a September Interest Rate Cut**\
 `The Federal Reserve held rates steady in July but two governors dissented, saying they had concerns about labor market fragility.`\
-https://nytimes.com/2025/08/01/business/economy/weak-jobs-report-raises-chances-of-a-september-interest-rate-cut.html
+https://nytimes.com/2025/08/01/business/economy/jobs-report-fed-rate-cut.html
 
 **Prosecutors Oppose Sean Combs’s Bid for Release From Jail**\
 `Earlier this week, the mogul’s lawyers renewed their efforts to secure his release ahead of his October sentencing on prostitution-related convictions.`\
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/01/us/politics/jobs-report-us-economy.html
 **Derk Sauer, Champion of Free Press in a New Russia, Dies at 72**\
 `He was a socialist reporter turned magnate who earned a fortune in the 1990s. He defended press freedoms even after the industry became beleaguered and unprofitable.`\
 https://nytimes.com/2025/08/01/world/europe/derk-sauer-dead.html
-
-**Wolves hopeful of closing deal to sign Wolfe from AZ**\
-`A move for Wolfe would see him replace Rayan Ait-Nouri in the Wolves squad after the Algeria international joined Manchester City in June.`\
-https://nytimes.com/athletic/6528349/2025/08/01/david-moller-wolfe-wolves-transfer/
 
