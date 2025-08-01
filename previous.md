@@ -1,40 +1,40 @@
-**Joao Palhinha to have Tottenham medical ahead of loan move from Bayern Munich**\
-`The deal includes the option to make the transfer permanent for €30million at the end of the season.`\
-https://nytimes.com/athletic/6527051/2025/08/01/joao-palhinha-tottenham-transfers-bayern/
+**So Long, ‘South Park’ Conservatives**\
+`There’s no more pretending that it’s rebellious to be reactionary.`\
+https://nytimes.com/2025/08/01/opinion/south-park-trump-conservatives.html
 
-**Kamala Harris Tells Colbert She Wants a Break From Public Office**\
-`The former Democratic nominee for president explained why she did not run for California governor in her first interview since leaving office as vice president.`\
-https://nytimes.com/2025/08/01/us/politics/kamala-harris-stephen-colbert-interview.html
+**Manhattan Has More Secure Buildings Than Most Cities. That Wasn’t Enough.**\
+`Decades of threats have heightened security in New York City. But Monday’s attack in a Park Avenue office building shows the limits of preparedness.`\
+https://nytimes.com/2025/08/01/business/manhattan-shooting-building-security.html
 
-**Rangers reach agreement to sign Tottenham winger Moore on loan**\
-`The two sides have announced the transfer, with the 17-year-old being set to wear the number 47 shirt.`\
-https://nytimes.com/athletic/6520289/2025/08/01/tottenham-transfer-news-moore-rangers-loan/
+**Bowen Yang and Matt Rogers Like Awards With Low Stakes**\
+`With titles like Best Batman Woman and Worst Sticky Feeling, their Las Culturistas Culture Awards are more serious about fun than prestige.`\
+https://nytimes.com/2025/08/01/arts/television/bowen-yang-matt-rogers-las-culturistas-bravo.html
 
-**Ben Davies on his future, Son Heung-min 'pride', and 'relief' at ending trophy drought**\
-`The veteran Spurs defender speaks to The Athletic about Brennan Johnson, Son Heung-min and what has changed under Thomas Frank`\
-https://nytimes.com/athletic/6529666/2025/08/01/ben-davies-interview-tottenham-hotspur/
+**The Inescapable Sydney Sweeney**\
+`The actress seems to be everywhere, fronting dozens of ad campaigns, and has lately become a beacon for thorny public discourse.`\
+https://nytimes.com/2025/08/01/style/sydney-sweeney-jeans-american-eagle-ad.html
 
-**Kamala Harris’s Post-Election TV Diet: ‘Lots of Cooking Shows’**\
-`The former vice president told Stephen Colbert that she didn’t watch the news for months after losing to Donald Trump. “I’m just not into self-mutilation,” she said.`\
-https://nytimes.com/2025/08/01/arts/television/kamala-harris-stephen-colbert-late-show.html
+**The Book That Explains JD Vance’s Worldview**\
+`Yoram Hazony, the author of “The Virtue of Nationalism,” discusses the principles of national conservatism.`\
+https://nytimes.com/video/opinion/100000010315240/the-book-that-explains-jd-vances-worldview.html
 
-**How the Threat of Trump’s Highest Tariff Derailed an African Nation**\
-`The president backed off his call for a 50 percent tariff on Lesotho, imposing 15 percent instead. But in a country where most people live hand-to-mouth, the damage was already done.`\
-https://nytimes.com/2025/08/01/world/africa/lesotho-tariffs-textile-industry.html
+**With Epstein, Trump Betrays His Brand. His Supporters Notice.**\
+`Trump’s handling of the Epstein issue runs counter to the sense that he is an outsider fighting against a hostile class of insiders.`\
+https://nytimes.com/2025/08/01/opinion/epstein-trump-polls.html
 
-**‘My Oxford Year’ Review: Finding Love Abroad**\
-`She’s a working-class romantic. He’s a prep school playboy. A Netflix romance film aims to be this generation’s “About Time,” but doesn’t hit the mark.`\
-https://nytimes.com/2025/08/01/movies/my-oxford-year-review.html
+**Virginia Education Board Could Oust George Mason’s President**\
+`Republicans have attacked the president, Gregory Washington, over his support for diversity efforts at the university, Virginia’s largest public institution.`\
+https://nytimes.com/2025/08/01/us/george-masons-president-gregory-washington-republicans-diversity.html
 
-**A Funeral Shines a Light on the Bangladeshis Thriving in the N.Y.P.D.**\
-`At least 1,000 of the department’s 34,000 officers belong to the Bangladeshi American Police Association. They are members of the latest immigrant group to join the force.`\
-https://nytimes.com/2025/08/01/nyregion/nypd-didarul-islam-bangladesh.html
+**Corruption Scandal Puts Mexico’s President on Defense Against Trump**\
+`Mexico’s president, battling U.S. accusations that the cartels have gripped her government, is facing a scandal in which two former officials are on the run and their old boss is now a top senator.`\
+https://nytimes.com/2025/08/01/world/americas/mexico-corruption-trump.html
 
-**They Served Their Time for Sex Crimes. The State Won’t Let Them Go.**\
-`New Jersey’s secure treatment center for detaining sex offenders is supposed to keep the public safe. Critics say it violates civil liberties.`\
-https://nytimes.com/2025/08/01/nyregion/nj-sex-offenders-civil-commitment.html
+**7 New Movies Our Critics Are Talking About This Week**\
+`Whether you’re a casual moviegoer or an avid buff, our reviewers think these films are worth knowing about.`\
+https://nytimes.com/2025/08/01/movies/new-movies-this-week-critics.html
 
-**How a Letter to the Editor Can Forge a Friendship**\
-`The New York Times’s Letters to the Editor column invites a wide range of voices to share their thoughts. Sometimes it fosters real-life connections.`\
-https://nytimes.com/2025/08/01/insider/letters-to-the-editor.html
+**What to Watch at the Edinburgh Fringe**\
+`Some picks from the more than 500 shows in the Scottish arts extravaganza, including comedy, dance, theater and some gloriously weird spectacles.`\
+https://nytimes.com/2025/08/01/arts/edinburgh-fringe-picks.html
 
