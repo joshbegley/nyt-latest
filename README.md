@@ -1,3 +1,15 @@
+**One of Man United's proudest records stands at 4,321 games – is it about to end?**\
+`United's run of naming a player who has come through their youth system in every matchday squad is at risk. Does it matter?`\
+https://nytimes.com/athletic/6518566/2025/08/01/manchester-united-youth-record/
+
+**How Ngumoha, aged 16, became impossible to ignore at Liverpool**\
+`Breaking down how the teenager has shown Arne Slot he is worth a place in his first-team squad this season`\
+https://nytimes.com/athletic/6526981/2025/08/01/rio-ngumoha-liverpool-arne-slot/
+
+**Guardiola wanted a smaller squad. Instead it's grown. How can City trim it?**\
+`What needs to happen to City's bloated squad to avoid leaving players unregistered`\
+https://nytimes.com/athletic/6526978/2025/08/01/manchester-city-squad-guardiola-trim/
+
 **#FreeWissa, footballers wanting out and why fans have every right to defy logic**\
 `As fans react to the rather messy situations unfolding in this transfer window, let’s not expect consistency and embrace the contradictions`\
 https://nytimes.com/athletic/6527024/2025/08/01/isak-wissa-trent-alexander-arnold-transfers/
@@ -7,7 +19,7 @@ https://nytimes.com/athletic/6527024/2025/08/01/isak-wissa-trent-alexander-arnol
 https://nytimes.com/athletic/6527362/2025/08/01/young-players-developing-early-max-dowman-marli-salmon-arsenal/
 
 **Read the document**\
-`A response from the European Commission to a request made by New York Times journalist in 2022.`\
+`A response from the European Commission to a request made by the New York Times in 2022.`\
 https://nytimes.com/interactive/2025/08/01/world/europe/eu-response-doc.html
 
 **Sunderland have spent over £100m this summer. This is how they could do it - and why they need to**\
@@ -25,16 +37,4 @@ https://nytimes.com/2025/08/01/world/europe/eu-texts-covid-new-york-times.html
 **A French Beach Town’s Plea to Tourists: Keep Your Clothes On**\
 `“A little restraint, please!” wrote the mayor of Les Sables d’Olonne, who is leading an effort to stop visitors from wandering the town in just their swimwear.`\
 https://nytimes.com/2025/08/01/world/europe/france-beach-town-tourist-fines.html
-
-**My Seven-Week Marriage Compatibility Test**\
-`His visa was expiring. I liked him. Did I love him?`\
-https://nytimes.com/2025/08/01/style/modern-love-seven-week-marriage-compatibility-test.html
-
-**No Corrections: Aug. 1, 2025**\
-`No corrections appeared in print on Friday, Aug. 1, 2025.`\
-https://nytimes.com/2025/08/01/pageoneplus/no-corrections-aug-1-2025.html
-
-**Love Endured the Lockdown — and a Canceled Wedding Venue**\
-`Serious intentions were key as Keren Dillard and Tevin Taylor set up one outdoor date after another during the height of the pandemic.`\
-https://nytimes.com/2025/08/01/style/keren-dillard-tevin-taylor-wedding.html
 
