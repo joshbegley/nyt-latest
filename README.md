@@ -10,7 +10,7 @@ https://nytimes.com/2025/07/31/us/politics/andrea-lucas-equal-employment-opportu
 `Gauff overcomes 14 double faults and 53 unforced errors to beat Veronika Kudermetova.`\
 https://nytimes.com/athletic/6528867/2025/07/31/coco-gauff-win-canadian-open/
 
-**Yankees stockpile bullpen bullets, add Camilo Doval for not much**\
+**Yankees stockpile bullpen arms, add Camilo Doval for not much**\
 `Were the Giants just trying to move Doval at any cost? The Giants didn't get a great return for their hard-throwing closer.`\
 https://nytimes.com/athletic/6529049/2025/07/31/yankees-camilo-doval-trade-giants-return/
 
