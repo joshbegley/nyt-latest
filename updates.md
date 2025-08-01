@@ -1,3 +1,7 @@
+**Newsom Wants to Gerrymander California. Schwarzenegger May Disagree.**\
+`As governor, Arnold Schwarzenegger championed the state’s nonpartisan redistricting system. Now, Gov. Gavin Newsom wants to pause it to help Democrats.`\
+https://nytimes.com/2025/08/01/us/schwarzenegger-newsom-gerrymandering-california.html
+
 **Michael Cardozo, 84, New York City’s Longest-Serving Chief Lawyer, Dies**\
 `As the city’s corporation counsel under Mayor Michael Bloomberg, he defended stop-and-frisk policing and a ban on smoking in bars and restaurants.`\
 https://nytimes.com/2025/08/01/nyregion/michael-a-cardozo-dead.html
