@@ -1,3 +1,7 @@
+**Fantasy baseball waiver wire options following MLB's trade deadline**\
+`Following MLB's trade deadline, Owen Poindexter gives his take on the best players available on waivers. `\
+https://nytimes.com/athletic/6529399/2025/08/01/fantasy-baseball-waiver-wire-mlb-trade-deadline/
+
 **Liverpool appoint former Man Utd academy coach Wiles lead under-18s team**\
 `Wiles also had spells as a first-team coach at Salford City and Fleetwood Town.`\
 https://nytimes.com/athletic/6530314/2025/08/01/liverpool-appoint-simon-wiles-coach/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6530081/2025/08/01/micah-parsons-jerry-jones-contra
 **Wrexham sign Conor Coady from Leicester City**\
 `Coady, 32, departs Leicester after two years at the club, making 43 appearances in that time.`\
 https://nytimes.com/athletic/6526931/2025/08/01/conor-coady-wrexham-transfer/
-
-**Big Downward Jobs Revisions Could Be a Warning Sign for the Economy**\
-`Employers added far fewer jobs in May and June than previously reported. Such downgrades have historically meant trouble for the labor market.`\
-https://nytimes.com/2025/08/01/business/economy/big-downward-jobs-revisions-could-be-a-warning-sign-for-the-economy.html
 
