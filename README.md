@@ -1,3 +1,11 @@
+**Until Saturday: Hot-seat season in the SEC**\
+`Until Saturday is The Athletic's free CFB newsletter.`\
+https://nytimes.com/athletic/6530501/2025/08/01/sec-hot-seat-coaches-until-saturday/
+
+**Tour de France Femmes: Maeva Squiban wins second stage in a row, Le Court braves descent to avoid losing yellow**\
+`See the results from stage seven here as The Athletic covers the Tour de France Femmes. `\
+https://nytimes.com/athletic/6530143/2025/08/01/tour-de-france-femmes-maeva-squiban-stage-7-win-le-court-yellow/
+
 **Top Biden Aide Had $4 Million Incentive to Secure a 2024 Win**\
 `Mike Donilon was promised a bonus that would have doubled his payment for work on the campaign if the former president had been re-elected.`\
 https://nytimes.com/2025/08/01/us/politics/mike-donilon-biden-2024-bonus.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6530317/2025/08/01/chargers-trey-lance-hall-of-game
 **Who is Gilbert Arenas? Former NBA guard with unserious persona now in serious scenario**\
 `Arenas' nature has been to turn the most earnest moments into something that can make for content creation.`\
 https://nytimes.com/athletic/6528928/2025/08/01/gilbert-arenas-nba-arrest-gambling/
-
-**Why Trump’s Tariffs Are Closing Factories in Lesotho**\
-`The closure of a factory in the small southern African nation of Lesotho is an early effect of the global disruption caused by President Trump’s tariffs. John Eligon, the Johannesburg bureau chief for The New York Times, talks with Katrin Bennhold, a senior writer, about what he has seen there.`\
-https://nytimes.com/video/world/africa/100000010311227/why-trumps-tariffs-are-closing-factories-in-lesotho.html
-
-**Fantasy baseball waiver wire options following MLB's trade deadline**\
-`Following MLB's trade deadline, Owen Poindexter gives his take on the best players available on waivers. `\
-https://nytimes.com/athletic/6529399/2025/08/01/fantasy-baseball-waiver-wire-mlb-trade-deadline/
 
