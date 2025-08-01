@@ -1,3 +1,11 @@
+**Liverpool's new kit: How Adidas launched 10-year deal - and what's our verdict?**\
+`Kit sponsor reveal their new designs for the 2025-26 season with a nod to the club's past`\
+https://nytimes.com/athletic/6529793/2025/08/01/liverpools-new-kit-adidas-review/
+
+**As beloved Marv Levy turns 100, former players reflect on the ways he changed them**\
+`The Pro Football Hall of Fame will honor the coaching legend this weekend. `\
+https://nytimes.com/athletic/6525126/2025/08/01/marv-levy-100-birthday-buffalo-bills/
+
 **The 5 Moments That Made Simone Biles**\
 `The world’s most decorated gymnast reflects on her career-defining moments.`\
 https://nytimes.com/paidpost/ubs/the-5-moments-that-made-simone-biles.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6527564/2025/08/01/fantasy-football-mock-draft-stra
 **Daryl Morey says Lakers' 2020 bubble title is 'marked by an asterisk.' Our staff weighs in**\
 `Philly GM Daryl Morey said the Lakers' 2020 bubble title "doesn’t truly hold up as a genuine championship." Is he right or is he off-base?`\
 https://nytimes.com/athletic/6527398/2025/08/01/lakers-2020-championship-nba-bubble-asterisk-daryl-morey/
-
-**How often do college football players actually transfer?**\
-`More than 60 percent of the 600 players we examined in the Class of 2021 transferred at least once.`\
-https://nytimes.com/athletic/6527935/2025/08/01/college-football-transfer-portal-numbers/
-
-**What if men's college basketball ran conference realignment?**\
-`Let us imagine a world where football is no longer the bullying juggernaut dictating every move in college sports.`\
-https://nytimes.com/athletic/6521319/2025/08/01/college-basketball-conference-realignment/
 

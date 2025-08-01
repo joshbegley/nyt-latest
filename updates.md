@@ -1,3 +1,11 @@
+**Liverpool's new kit: How Adidas launched 10-year deal - and what's our verdict?**\
+`Kit sponsor reveal their new designs for the 2025-26 season with a nod to the club's past`\
+https://nytimes.com/athletic/6529793/2025/08/01/liverpools-new-kit-adidas-review/
+
+**As beloved Marv Levy turns 100, former players reflect on the ways he changed them**\
+`The Pro Football Hall of Fame will honor the coaching legend this weekend. `\
+https://nytimes.com/athletic/6525126/2025/08/01/marv-levy-100-birthday-buffalo-bills/
+
 **The 5 Moments That Made Simone Biles**\
 `The world’s most decorated gymnast reflects on her career-defining moments.`\
 https://nytimes.com/paidpost/ubs/the-5-moments-that-made-simone-biles.html
