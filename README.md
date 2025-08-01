@@ -1,3 +1,7 @@
+**The Pulse: Key moves from MLB's trade deadline**\
+`Welcome to The Pulse, The Athletic's daily newsletter.`\
+https://nytimes.com/athletic/6529622/2025/08/01/mlb-trade-deadline-2025-the-pulse/
+
 **Stocks Tumble as Investors Grapple With the Rising Cost of Trade**\
 `President Trump’s newest barrage of tariffs, major corporate earnings reports and an imminent reading on the U.S. labor market weighed on markets.`\
 https://nytimes.com/2025/08/01/business/economy/trump-tariffs-stock-markets-trade.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6528920/2025/08/01/yankees-trade-deadline-moves-opi
 **Lowetide: How will Oilers deploy new-look winger depth charts in 2025-26?**\
 `The Oilers' winger group marbles youth, experience and the unknown in hopes of adding speed and goals.`\
 https://nytimes.com/athletic/6527594/2025/08/01/oilers-depth-charts-wingers-2025/
-
-**TAFC: Premier League star's betting case nightmare is over. Plus: Some hard truths over fan hypocrisy**\
-`In today's Athletic FC newsletter: Lucas Paqueta avoids a lifetime ban from the FA while two Manchester United academy graduates reunite`\
-https://nytimes.com/athletic/6529823/2025/08/01/lucas-paqueta-newsletter-osimhen-barcelona/
 
