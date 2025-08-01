@@ -1,3 +1,7 @@
+**What did Cubs chairman Tom Ricketts think of Jed Hoyer’s trade deadline?**\
+`“We had a good trade deadline,” Ricketts said. “We have a really good team, and we added to it."`\
+https://nytimes.com/athletic/6531190/2025/08/01/cubs-jed-hoyer-tom-ricketts-trade-deadline-evaluation/
+
 **Kirby Yates hits the IL with back injury as Dodgers' bullpen depth tested again**\
 `Kirby has had a disappointing season and now is dealing with a lower back injury.`\
 https://nytimes.com/athletic/6531214/2025/08/01/kirby-yates-dodgers-bullpen-injuries/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/01/well/trump-presidential-fitness-test.html
 **Ahead of Trade Deadline, Firms Rushed Goods Out of Duty-Free Warehouses**\
 `By keeping inventory in bonded warehouses or foreign trade zones, importers were able to hedge the tariff rate they ultimately paid.`\
 https://nytimes.com/2025/08/01/business/tariffs-foreign-trade-zone-warehouses.html
-
-**Why Is California So Chilly This Summer?**\
-`It’s been so cold in San Francisco, painters on the Golden Gate Bridge had to break out heaters.`\
-https://nytimes.com/2025/08/01/weather/san-francisco-summer-temperatures-cold-california.html
 
