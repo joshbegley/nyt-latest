@@ -1,3 +1,15 @@
+**Ross E. Rowland Jr., Driver of Steam-Train Preservation, Dies at 85**\
+`He made a fortune on Wall Street, then used his wealth to back the American Freedom Train and other high-profile vintage excursions.`\
+https://nytimes.com/2025/08/01/travel/ross-e-rowland-jr-dead.html
+
+**Is Trump’s Economy Starting to Crack?**\
+`So far, Americans are experiencing costs but not the purported benefits of his attempt to remake the global economy.`\
+https://nytimes.com/2025/08/01/opinion/tariffs-jobs-report-manufacturing-trump.html
+
+**Teenager Suffers Severe Burns When Foot Sinks Near Yellowstone Geyser**\
+`The 17-year-old’s foot broke through the crust at the Lone Star Geyser area, the National Park Service said.`\
+https://nytimes.com/2025/08/01/travel/yellowstone-geyser-old-faithful-boy-burned.html
+
 **After deadline additions, Yankees release Marcus Stroman**\
 `Stroman, still owed $18.5 million, had a 6.23 ERA in nine starts this season and a 4.69 ERA in 193 2/3 innings as a Yankee.`\
 https://nytimes.com/athletic/6530716/2025/08/01/yankees-marcus-stroman-release/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/08/01/us/politics/dc-plane-helicopter-crash.html
 **Recent global trade deals with the U.S. were secured with murky investments.**\
 `were secured with huge, often vaguely defined investment pledges from partners like Japan.`\
 https://nytimes.com/live/2025/07/31/business/tariffs-trump-trade/recent-global-trade-deals-with-the-us-were-secured-with-murky-investments
-
-**Florida Is Buying Plane Tickets for Unauthorized Immigrants to Self-Deport**\
-`Immigrants in custody, with no felony convictions, may be offered direct commercial flights home — and avoid “Alligator Alcatraz.”`\
-https://nytimes.com/2025/08/01/us/florida-immigration-self-deport-flights.html
-
-**Bologna submit bid for West Bromwich Albion defender Torbjorn Heggem**\
-`Heggem signed for West Brom last summer on a three-year deal.`\
-https://nytimes.com/athletic/6530543/2025/08/01/torbjorn-heggem-west-brom-bologna-bid/
-
-**‘Hot Wasps’ Found at Nuclear Facility in South Carolina**\
-`Four radioactive wasp nests may indicate previously undetected environmental contamination at the decades-old Savannah River Site. Here’s what to know.`\
-https://nytimes.com/2025/08/01/science/radioactive-wasps-nuclear-savannah-river.html
 
