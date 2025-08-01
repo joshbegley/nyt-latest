@@ -1,3 +1,7 @@
+**Carlos Correa had many reasons to approve trade back to Houston, including a position change**\
+`Rejoining the Astros was enticing for the team's former shortstop, who bonded with the current shortstop, Jeremy Peña, this past offseason.`\
+https://nytimes.com/athletic/6529368/2025/07/31/carlos-correa-astros-trade-third-base-jeremy-pena/
+
 **Trump, Term-Limited, Amasses $200 Million War Chest for Political Ambitions**\
 `The money is meant to beat Democrats, but some Republicans worry it could be used to beat Republicans, too.`\
 https://nytimes.com/2025/07/31/us/politics/maga-inc-trump-fundraising.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6529253/2025/07/31/braves-alex-anthopolous-mlb-trad
 **UFL adds new billionaire co-owner Mike Repole, who promises big changes**\
 `Repole said the UFL plans to move at least two teams this year, and that he sees the number of teams doubling over the next decade.`\
 https://nytimes.com/athletic/6529260/2025/07/31/ufl-new-owner-mike-repole-changes/
-
-**Smithsonian Removes Reference to Trump’s Impeachments, but Says It Will Return**\
-`President Trump’s impeachments were mentioned in an exhibit on the American presidency that museum officials said was outdated. A Smithsonian spokeswoman said a future exhibit would include “all impeachments.”`\
-https://nytimes.com/2025/07/31/us/politics/smithsonian-trump-impeachments-exhibit.html
 
