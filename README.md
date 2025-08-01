@@ -1,3 +1,7 @@
+**Newsom Wants to Gerrymander California. Schwarzenegger May Disagree.**\
+`As governor, Arnold Schwarzenegger championed the state’s nonpartisan redistricting system. Now, Gov. Gavin Newsom wants to pause it to help Democrats.`\
+https://nytimes.com/2025/08/01/us/schwarzenegger-newsom-gerrymandering-california.html
+
 **Michael Cardozo, 84, New York City’s Longest-Serving Chief Lawyer, Dies**\
 `As the city’s corporation counsel under Mayor Michael Bloomberg, he defended stop-and-frisk policing and a ban on smoking in bars and restaurants.`\
 https://nytimes.com/2025/08/01/nyregion/michael-a-cardozo-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6531051/2025/08/01/micah-parsons-trade-request-cowb
 **Prosecutors ask for 2.5-year prison sentence for Asencio over alleged sharing of minor sex tape**\
 `The Athletic first reported in May that Asencio could face criminal proceedings for the alleged sharing of the sex tape involving a minor.`\
 https://nytimes.com/athletic/6425978/2025/08/01/raul-asencio-prosecutors-ask-for-2-5-year-sentence-minor-sex-tape/
-
-**Would You Wear the Dimes Square T-Shirt?**\
-`A canny bit of marketing? A fast-fashion boondoggle? A must-have souvenir from the end of civilization? Or maybe just another meaningless T-shirt.`\
-https://nytimes.com/2025/08/01/style/dimes-square-t-shirt-hm.html
 
