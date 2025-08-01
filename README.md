@@ -1,3 +1,19 @@
+**'It's time to go' takes on new meaning for Buster Posey, Giants at trade deadline**\
+`It might surprise you that Posey would take such a clear selling posture, but the warnings have been there for months.`\
+https://nytimes.com/athletic/6529510/2025/08/01/giants-buster-posey-trade-deadline/
+
+**Cambodia Agrees to a Reduced Tariff and Breathes a Sigh of Relief**\
+`Initially 49%, it was lowered to 19%, easing worries of a damaging hit to the country’s garment and footwear production industries.`\
+https://nytimes.com/2025/08/01/business/economy/cambodia-tariffs-trump.html
+
+**Beto interview: From playing in car parks and working at KFC to idolising Eto'o and Lukaku**\
+`The 27-year-old talks about his upbringing, being let go by Benfica, and reading online criticism about his early Everton days`\
+https://nytimes.com/athletic/6525706/2025/08/01/beto-everton-interview-exclusive/
+
+**Paqueta's two years in limbo: Missed City move, West Ham backing and a pastor's prayers**\
+`How the Brazilian coped with the spectre of a lifetime ban from football after a two-year investigation into alleged spot-fixing`\
+https://nytimes.com/athletic/6193739/2025/08/01/lucas-paqueta-investigation-cleared-analysis/
+
 **One of Man United's proudest records stands at 4,321 games – is it about to end?**\
 `United's run of naming a player who has come through their youth system in every matchday squad is at risk. Does it matter?`\
 https://nytimes.com/athletic/6518566/2025/08/01/manchester-united-youth-record/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6527362/2025/08/01/young-players-developing-early-m
 **Read the document**\
 `A response from the European Commission to a request made by the New York Times in 2022.`\
 https://nytimes.com/interactive/2025/08/01/world/europe/eu-response-doc.html
-
-**Sunderland have spent over £100m this summer. This is how they could do it - and why they need to**\
-`Sunderland have been the seventh highest spenders in the Premier League this summer. And yet, it might just be necessary`\
-https://nytimes.com/athletic/6456258/2025/08/01/sunderland-transfer-spending-explained-analysis/
-
-**Quote of the Day: What Food Costs in Gaza, if You Can Find It**\
-`Quotation of the Day for Friday, August 1, 2025.`\
-https://nytimes.com/2025/08/01/pageoneplus/quote-of-the-day-what-food-costs-in-gaza-if-you-can-find-it.html
-
-**E.U. Did Not Retain Texts Sought by Journalists on Covid Vaccine Deal**\
-`The European Union acknowledged for the first time that a top official reviewed the messages, but said it had no duty to keep them, despite intense interest.`\
-https://nytimes.com/2025/08/01/world/europe/eu-texts-covid-new-york-times.html
-
-**A French Beach Town’s Plea to Tourists: Keep Your Clothes On**\
-`“A little restraint, please!” wrote the mayor of Les Sables d’Olonne, who is leading an effort to stop visitors from wandering the town in just their swimwear.`\
-https://nytimes.com/2025/08/01/world/europe/france-beach-town-tourist-fines.html
 
