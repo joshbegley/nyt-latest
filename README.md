@@ -1,3 +1,11 @@
+**Brainwaves**\
+`Tips, tricks, and scientific insights to help you take care of your brain.`\
+https://nytimes.com/spotlight/brainwaves
+
+**Trump, Claiming Weak Jobs Numbers Were ‘Manipulated,’ Moves to Fire Labor Official**\
+`Economists said ousting the head of the Bureau of Labor Statistics could undermine confidence in government economic data.`\
+https://nytimes.com/live/2025/07/31/business/tariffs-trump-trade/trump-jobs-numbers-fires-labor-official
+
 **Kansas City Current acquire Ally Sentnor from Utah Royals: Sources**\
 `Sentnor's career hit a rapid ascent last summer, playing in the FIFA U-20 Women's World Cup before making her full USWNT debut in November.`\
 https://nytimes.com/athletic/6530726/2025/08/01/ally-sentnor-trade-current-royals/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6511294/2025/08/01/matt-turner-new-england-revoluti
 **Ross Rowland, 85, Dies; a Railroad Preservationist by Way of Wall St.**\
 `He made a fortune as a commodities broker, then used his wealth to back the American Freedom Train and other high-profile vintage excursions.`\
 https://nytimes.com/2025/08/01/travel/ross-e-rowland-jr-dead.html
-
-**Is Trump’s Economy Starting to Crack?**\
-`So far, Americans are experiencing costs but not the purported benefits of his attempt to remake the global economy.`\
-https://nytimes.com/2025/08/01/opinion/tariffs-jobs-report-manufacturing-trump.html
-
-**Teenager Suffers Severe Burns When Foot Sinks Near Yellowstone Geyser**\
-`The 17-year-old’s foot broke through the crust at the Lone Star Geyser area, the National Park Service said.`\
-https://nytimes.com/2025/08/01/travel/yellowstone-geyser-old-faithful-boy-burned.html
 
