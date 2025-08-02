@@ -1,3 +1,11 @@
+**New addition Willi Castro has strong debut in Cubs loss to Orioles**\
+`Along with making multiple nice defensive plays, Castro had two hits, including a triple, and scored two run in his Cubs debut.`\
+https://nytimes.com/athletic/6532633/2025/08/02/cubs-willi-castro-debut-value/
+
+**An unexpected shuffle on the O-line: Five things we learned this week at Raiders training camp**\
+`The cornerback and linebacker groups also continue to take shape at Pete Carroll's first training camp in Vegas.`\
+https://nytimes.com/athletic/6532595/2025/08/02/raiders-training-camp-practice-report/
+
 **Lynx star Napheesa Collier to undergo testing after injuring ankle vs. Aces**\
 `Collier’s injury occurred with just under 30 seconds left in the third quarter as she attempted to bring in an offensive rebound.`\
 https://nytimes.com/athletic/6532627/2025/08/02/napheesa-collier-lynx-ankle-injury-aces/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6532571/2025/08/02/jazz-chisholm-yankees-popup-doub
 **Production Manager at Jacob’s Pillow Is Killed in ‘Tragic Accident,’ Center Says**\
 `Jacob’s Pillow canceled weekend programming as staff members grieved the death of Kat Sirico, who was moving staging platforms that toppled, the authorities said.`\
 https://nytimes.com/2025/08/02/us/jacobs-pillow-manager-death-massachusetts.html
-
-**Luka Dončić embracing 'fresh' start after signing extension with Lakers**\
-`In 28 games with the Lakers, Dončić averaged 28.2 points, 8.1 rebounds and 7.2 assists after a blockbuster trade from the Mavericks.`\
-https://nytimes.com/athletic/6530744/2025/08/02/lakers-luka-doncic-contract-extension-supermax-nba/
-
-**Broncos' Bo Nix sharpening himself in training camp battles with Pat Surtain II**\
-`Zach Allen said "it hasn't fully hit me yet" that he signed a contract making him one of NFL's highest-paid defensive linemen`\
-https://nytimes.com/athletic/6532523/2025/08/02/broncos-bo-nix-pat-surtain-training-camp/
 
