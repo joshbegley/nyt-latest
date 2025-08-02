@@ -1,3 +1,7 @@
+**David Rendall, Tenor Who Suffered 2 Operatic Mishaps, Dies at 76**\
+`He appeared regularly at the Metropolitan Opera and sang in major European opera houses, but a stage accident in 2005 nearly ended his career.`\
+https://nytimes.com/2025/08/02/obituaries/david-rendall-dead.html
+
 **Map: 5.8-Magnitude Earthquake Strikes Mexico**\
 `View the location of the quake’s epicenter and shake area.`\
 https://nytimes.com/interactive/2025/08/02/world/americas/mexico-earthquake.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6532159/2025/08/02/shedeur-sanders-injury-browns-tr
 **Tour de France Femmes: Ferrand-Prevot dominates queen stage to take yellow before final day**\
 `See the results from stage eight here as The Athletic covers the Tour de France Femmes. `\
 https://nytimes.com/athletic/6531866/2025/08/02/tour-de-france-femmes-pauline-ferrand-prevot-yellow-jersey/
-
-**Luka Dončić signs 3-year, $165 million contract extension with Lakers**\
-`In 28 games with the Lakers, Dončić averaged 28.2 points, 8.1 rebounds and 7.2 assists after a blockbuster trade from the Mavericks.`\
-https://nytimes.com/athletic/6530744/2025/08/02/lakers-luka-doncic-contract-extension-supermax-nba/
 
