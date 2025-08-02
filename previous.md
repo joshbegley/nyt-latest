@@ -1,3 +1,7 @@
+**Sex toy thrown onto WNBA court for second time in 3 days, stopping game**\
+`Officials stopped play immediately after the toy flew onto the court along the baseline underneath the Sky's basket`\
+https://nytimes.com/athletic/6531364/2025/08/01/wnba-sex-toy-incident-sky-valkyries-game/
+
 **Son Heung-min is leaving Spurs as LAFC, MLS circle: How did it all come to this?**\
 `Tottenham Hotspur fans have been rocked by the news that their captain is departing after 10 years.`\
 https://nytimes.com/athletic/6530106/2025/08/01/son-heung-min-spurs-lafc-transfer-analysis/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/01/nyregion/nsf-trump-stem-research-cuts.html
 **Contractor Arrested in Connection With Death of Alabama 3-Year-Old in Hot Car**\
 `The child, who was in foster care, died on July 22 after being left in a vehicle. A contractor for the state’s Human Resources Department was charged with a felony on Friday.`\
 https://nytimes.com/2025/08/01/us/alabama-boy-death-hot-car-arrest.html
-
-**Spurs captain Son Heung-min asks to leave amid talks with LAFC**\
-`Son informed the club and new manager Thomas Frank earlier this summer that he wants to head elsewhere – and MLS may be next`\
-https://nytimes.com/athletic/6529894/2025/08/01/son-heung-min-tottenham-lafc-transfer/
 

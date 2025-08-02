@@ -1,3 +1,7 @@
+**Sex toy thrown onto WNBA court for second time in 3 days, stopping game**\
+`Officials stopped play immediately after the toy flew onto the court along the baseline underneath the Sky's basket`\
+https://nytimes.com/athletic/6531364/2025/08/01/wnba-sex-toy-incident-sky-valkyries-game/
+
 **Son Heung-min is leaving Spurs as LAFC, MLS circle: How did it all come to this?**\
 `Tottenham Hotspur fans have been rocked by the news that their captain is departing after 10 years.`\
 https://nytimes.com/athletic/6530106/2025/08/01/son-heung-min-spurs-lafc-transfer-analysis/

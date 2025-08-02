@@ -1,3 +1,7 @@
+**Consider the Canned Cocktail **\
+`Text by Antara Sinha`\
+https://nytimes.com/card/2025/08/02/smarter-living/wirecutter/
+
 **Sex toy thrown onto WNBA court for second time in 3 days, stopping game**\
 `Officials stopped play immediately after the toy flew onto the court along the baseline underneath the Sky's basket`\
 https://nytimes.com/athletic/6531364/2025/08/01/wnba-sex-toy-incident-sky-valkyries-game/
@@ -15,7 +19,7 @@ https://nytimes.com/athletic/6531333/2025/08/01/red-sox-houston-astros-trade-dea
 https://nytimes.com/2025/08/01/crosswords/daily-puzzle-2025-08-02.html
 
 **Jeannie Seely, Who Pushed Boundaries and Broke Hearts at the Grand Ole Opry, Dies at 85**\
-`She blazed a trail for women in country music with the candor of her songs and her bold fashion sense. She was also the first woman to host a segment on the Opry.`\
+`She blazed a trail for women in country music with the candor of her songs and her bold fashion sense. She was the first woman to host a segment on the Opry.`\
 https://nytimes.com/2025/08/01/arts/music/jeannie-seely-dead.html
 
 **Luis Robert Jr. 'happy' to stay with White Sox after surprise decision to not trade him**\
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/01/nyregion/gary-busey-monster-mania-con-guilty.html
 **Judge Declines to Order Trump Administration to Restore Research Cuts**\
 `A group of 16 states sued after the National Science Foundation terminated hundreds of millions of dollars in funding that had previously been awarded to research institutions.`\
 https://nytimes.com/2025/08/01/nyregion/nsf-trump-stem-research-cuts.html
-
-**Contractor Arrested in Connection With Death of Alabama 3-Year-Old in Hot Car**\
-`The child, who was in foster care, died on July 22 after being left in a vehicle. A contractor for the state’s Human Resources Department was charged with a felony on Friday.`\
-https://nytimes.com/2025/08/01/us/alabama-boy-death-hot-car-arrest.html
 
