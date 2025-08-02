@@ -1,3 +1,11 @@
+**Women's Open: Charley Hull, Megan Khang join the chase after leader Miyu Yamashita**\
+`Yamashita shot a 74 on Saturday, giving new life to those who did go low at Royal Porthcawl.`\
+https://nytimes.com/athletic/6532423/2025/08/02/womens-open-hull-khang-yamashita/
+
+**Heavenly Voices**\
+`Jeremy Newton’s latest construction will leave you beaming.`\
+https://nytimes.com/2025/08/02/crosswords/daily-puzzle-2025-08-03.html
+
 **Jazz Chisholm Jr. doubled up on popup in latest Yankees base-running gaffe**\
 `It's almost an everyday occurrence for the Yankees. Their latest inexcusable play happened in the second inning Saturday versus the Marlins.`\
 https://nytimes.com/athletic/6532571/2025/08/02/jazz-chisholm-yankees-popup-double-play/
