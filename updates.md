@@ -1,3 +1,7 @@
+**Giants' reduced roster wins a tight one post-deadline: 'We've not given up on you guys'**\
+`There is still a chance for the Giants to make something positive out of a frustrating season.`\
+https://nytimes.com/athletic/6531575/2025/08/02/sf-giants-win-after-trade-deadline-moves/
+
 **Katie Ledecky continues her reign in 800-meter freestyle in thrilling race at worlds**\
 `Ledecky held off Lani Pallister and Summer McIntosh in a tight race Saturday to win gold and extend her reign in the 800-meter freestyle.`\
 https://nytimes.com/athletic/6530203/2025/08/02/katie-ledecky-summer-mcintosh-lani-pallister-800-freestyle-world-championships/
