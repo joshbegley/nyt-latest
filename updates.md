@@ -1,3 +1,7 @@
+**The Pulse: The best gear for peak sports season**\
+`Welcome to The Pulse, The Athletic's daily sports newsletter.`\
+https://nytimes.com/athletic/6531479/2025/08/02/wirecutter-sports-fan-gear-the-pulse/
+
 **American Gretchen Walsh wins 50-meter butterfly, her second gold at world championships**\
 `Walsh kicked off a busy Saturday at the world championships with her second gold medal of the meet, winning the butterfly sprint.`\
 https://nytimes.com/athletic/6530382/2025/08/02/gretchen-walsh-jack-alexy-kaylee-mckeown-world-championships/
