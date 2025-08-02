@@ -1,40 +1,40 @@
-**India Will Buy Russian Oil Despite Trump’s Threats, Officials Say**\
-`President Trump said last week that he would punish India if it did not cut off Russian oil imports, but he did not specify what the penalty might be.`\
-https://nytimes.com/2025/08/02/world/asia/india-russia-oil-trump-threats.html
+**The Braves and Reds are playing an MLB game at a NASCAR track. Here's how to tune in**\
+`Engines are revved up for baseball's inaugural Speedway Classic, which pits the Braves and Reds against each other at the Bristol racetrack.`\
+https://nytimes.com/athletic/6530610/2025/08/02/braves-reds-bristol-motor-speedway-classic-how-to-watch/
 
-**How a Veteran Lifeguard Spends His Fridays**\
-`Javier Rodriguez, 64, opens up the beach, tests out new lifeguards — and always squeezes in a morning swim before work.`\
-https://nytimes.com/2025/08/02/nyregion/how-a-veteran-lifeguard-spends-his-fridays.html
+**Lashing Out Over Russia and Jobs Data, Trump Displays His Volatile Side**\
+`The president had been on something of a winning streak. But when faced with facts and foes that wouldn’t bend to his will, he responded with impatience and disproportionate intensity.`\
+https://nytimes.com/2025/08/02/us/politics/trump-russia-jobs.html
 
-**Her Dispensary Was Set to Open. Then New York Got in the Way.**\
-`State cannabis regulators suddenly changed a rule governing how close dispensaries can be to schools, upending dozens of owners’ plans.`\
-https://nytimes.com/2025/08/02/nyregion/weed-cannabis-dispensary-nyc.html
+**Why Cortez Masto Tangled With Cory Booker on the Senate Floor**\
+`The Democrat from Nevada said she refused to be lectured about how to challenge President Trump, and she argues that her party needs to do more to gain voters’ trust.`\
+https://nytimes.com/2025/08/02/us/politics/cortez-masto-cory-booker-senate-trump.html
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2025/08/02/crosswords/spelling-bee-forum.html
+**Texas Pushes Redistricting Into an Era of ‘Maximum Warfare’**\
+`Republicans are pursuing every possible advantage, essentially trying to win elections long before people vote. In response, even some once-squeamish Democrats are talking about fighting ‘fire with fire.’`\
+https://nytimes.com/2025/08/02/us/politics/texas-redistricting-democrats-republicans-midterms.html
 
-**Isak situation is 'complex' and 'far from ideal' - Newcastle boss Howe**\
-`Newcastle United head coach Eddie Howe has described the situation with Alexander Isak as “complex” and “far from ideal.`\
-https://nytimes.com/athletic/6531593/2025/08/02/alexander-isak-liverpool-eddie-howe-transfer-latest/
+**American Victims of Hamas and Hezbollah Attacks Sue U.N. Agency**\
+`Relatives of people killed in terrorist attacks accuse the agency that aids Palestinians of providing support to the armed groups.`\
+https://nytimes.com/2025/08/02/world/middleeast/unrwa-hamas-hezbollah-lawsuit.html
 
-**Sparks outlast Storm 108-106 in double overtime offensive thriller**\
-`The Sparks ended the game with four players scoring at least 20 points, a first in franchise history.`\
-https://nytimes.com/athletic/6531534/2025/08/02/sparks-storm-wnba-game-double-ot-analysis/
+**Eric Holder on Why He Reversed Course on Gerrymandering**\
+`Mr. Holder, the attorney general in the Obama administration, has long fought to end gerrymandered legislative maps. But a Republican effort in Texas threatens democracy, he said in an interview.`\
+https://nytimes.com/2025/08/02/us/politics/eric-holder-democrats-gerrymandering.html
 
-**Judges Keep Restrictions on L.A. Immigration Arrests, in Setback for Trump Agenda**\
-`An appellate panel upheld a finding that federal agents appeared to rely exclusively on race and other factors, such as speaking Spanish, in making arrests.`\
-https://nytimes.com/2025/08/02/us/los-angeles-immigration-raids-ruling.html
+**How the New Texas Map Changes the Outlook for Control of the House**\
+`Democrats’ chances would be hurt if the map were approved, but they would still be favored.`\
+https://nytimes.com/2025/08/02/upshot/texas-map-redistricting-republicans-house.html
 
-**Kenny Bednarek, Melissa Jefferson-Wooden win 100 gold at U.S. Track and Field Championships**\
-`"Amazing," Jefferson-Wooden said. "I’ve been dreaming of days like this. And it's finally starting to come true."`\
-https://nytimes.com/athletic/6531501/2025/08/02/kenny-bednarek-melissa-jefferson-wooden-gold-track-and-field-championships/
+**Donor List Suggests Scale of Trump’s Pay-for-Access Operation**\
+`A new disclosure shows how corporations and individuals, including many in the crypto business, wrote big checks while seeking favor from the president.`\
+https://nytimes.com/2025/08/02/us/politics/donor-list-suggests-scale-of-trumps-pay-for-access-operation.html
 
-**Phillies new closer Jhoan Duran meets the moment in lights-out Citizens Bank Park debut**\
-`An electric entrance and a shutdown Citizens Bank Park debut, and Duran fever is already spreading.`\
-https://nytimes.com/athletic/6531469/2025/08/02/jhoan-duran-phillies-debut-entrance/
+**After a Lag, Consumers Begin to Feel the Pinch of Tariffs**\
+`There are growing signs that President Trump’s levies are filtering through to consumer prices, as companies exhaust options for keeping them stable.`\
+https://nytimes.com/2025/08/02/business/trump-tariffs-consumer-prices.html
 
-**The New York Times in Print for Saturday, Aug. 2, 2025**\
-``\
-https://nytimes.com/issue/todayspaper/2025/08/02/todays-new-york-times
+**Everyone Wants to Be a Rock Star. Including These Comedians.**\
+`The members of Middle Aged Dad Jam Band are known for making people laugh. But they take their music seriously.`\
+https://nytimes.com/2025/08/02/style/middle-age-dad-jam-band.html
 
