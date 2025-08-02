@@ -1,3 +1,7 @@
+**Kenny Bednarek, Melissa Jefferson-Wooden win 100 gold at U.S. Track and Field Championships**\
+`"Amazing," Jefferson-Wooden said. "I’ve been dreaming of days like this. And it's finally starting to come true."`\
+https://nytimes.com/athletic/6531501/2025/08/02/kenny-bednarek-melissa-jefferson-wooden-gold-track-and-field-championships/
+
 **Phillies new closer Jhoan Duran meets the moment in lights-out Citizens Bank Park debut**\
 `An electric entrance and a shutdown Citizens Bank Park debut, and Duran fever is already spreading.`\
 https://nytimes.com/athletic/6531469/2025/08/02/jhoan-duran-phillies-debut-entrance/
