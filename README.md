@@ -2,6 +2,10 @@
 `It is early in the Indian opener's career, while Root is much closer to Tendulkar's daunting record - but will either top it?`\
 https://nytimes.com/athletic/6532371/2025/08/02/yashasvi-jaiswal-india-england-cricket-records/
 
+**Ohio State Day 3 camp takeaways: QB battle update, Eddrick Houston's rehab and more**\
+`Julian Sayin had his best day in preseason camp Saturday amid his quarterback battle with Lincoln Kienholz.`\
+https://nytimes.com/athletic/6532377/2025/08/02/ohio-state-preseason-camp-julian-sayin/
+
 **Newcastle bid for Sesko falls short of RB Leipzig valuation**\
 `Newcastle have gained interest in the 22-year-old as Alexander Isak expressed a desire to leave.`\
 https://nytimes.com/athletic/6532009/2025/08/02/benjamin-sesko-newcastle-transfer-news-leipzig/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6532284/2025/08/02/ruben-amorim-bryan-mbeumo-manche
 **Hungarian Grand Prix: Hamilton calls himself 'useless' after F1 qualifying exit**\
 `The seven-time champion is sixth in the drivers' standings, with the gap to teammate Leclerc in fifth set to grow at Hungaroring.`\
 https://nytimes.com/athletic/6532203/2025/08/02/f1-hamilton-useless-comments-hungarian-grand-prix/
-
-**How Charles Leclerc snared shock Ferrari Hungary pole: ‘Today, I don’t understand F1’**\
-`Leclerc even surprised himself in toppling the McLarens to take pole position for Sunday's race`\
-https://nytimes.com/athletic/6532103/2025/08/02/charles-leclerc-pole-f1-hungarian-grand-prix-2025/
 
