@@ -1,3 +1,7 @@
+**Hungarian Grand Prix qualifying results: Leclerc stuns McLaren duo to claim pole**\
+`Charles Leclerc claimed Ferrari's first pole of the 2025 Formula 1 season with a stunning lap in Hungarian GP qualifying`\
+https://nytimes.com/athletic/6531891/2025/08/02/hungarian-grand-prix-qualifying-results-2/
+
 **Thais Rally in Bangkok to Denounce Prime Minister Paetongtarn**\
 `The protesters say Prime Minister Paetongtarn Shinawatra sold out Thailand and betrayed its army in a leaked phone conversation with Cambodia’s de facto leader.`\
 https://nytimes.com/video/world/asia/100000010320578/bangkok-thailand-protests.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6531575/2025/08/02/sf-giants-win-after-trade-deadli
 **Katie Ledecky continues her reign in 800-meter freestyle in thrilling race at worlds**\
 `Ledecky held off Lani Pallister and Summer McIntosh in a tight race Saturday to win gold and extend her reign in the 800-meter freestyle.`\
 https://nytimes.com/athletic/6530203/2025/08/02/katie-ledecky-summer-mcintosh-lani-pallister-800-freestyle-world-championships/
-
-**Asencio and the sex-tape allegations which prosecutors claim warrant a prison sentence - key questions answered**\
-`On Friday, the Public Prosecutor’s Office in Spain called for a two-and-a-half-year prison sentence for the central defender`\
-https://nytimes.com/athletic/6531605/2025/08/02/real-madrid-raul-asencio-jail-explained/
 

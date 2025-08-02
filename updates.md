@@ -1,3 +1,7 @@
+**Thais Rally in Bangkok to Denounce Prime Minister Paetongtarn**\
+`The protesters say Prime Minister Paetongtarn Shinawatra sold out Thailand and betrayed its army in a leaked phone conversation with Cambodia’s de facto leader.`\
+https://nytimes.com/video/world/asia/100000010320578/bangkok-thailand-protests.html
+
 **Oh Hello, Corn Risotto**\
 `Five stars, over 2,000 reviews and so, so corny.`\
 https://nytimes.com/2025/08/02/dining/corn-risotto-and-more-corn-recipes.html
