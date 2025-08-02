@@ -1,3 +1,11 @@
+**Dan Quinn says Terry McLaurin's trade request has not been a distraction**\
+`The star receiver requested a trade on Thursday.`\
+https://nytimes.com/athletic/6531718/2025/08/02/dan-quinn-comments-mclaurin-trade-request/
+
+**Broncos, Zach Allen agree to 4-year deal worth $102 million: Source**\
+`The deal makes Allen one of the NFL’s highest-paid defensive ends.`\
+https://nytimes.com/athletic/6531833/2025/08/02/broncos-zach-allen-contract-terms/
+
 **Newcastle complete Aaron Ramsdale loan signing from Southampton**\
 `The deal includes a sizeable loan fee and option to buy at the end of the season.`\
 https://nytimes.com/athletic/6524622/2025/08/02/aaron-ramsdale-newcastle-transfer/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5771041/2025/08/02/callum-wilson-transfer-west-ham/
 **49ers' Brock Purdy likes the 'real' looks he's getting as Nick Bosa keeps wreaking havoc**\
 `"If you’re at practice and dropping back and not getting touched and going through your progressions all perfectly, to me, it can be scary."`\
 https://nytimes.com/athletic/6531297/2025/08/02/49ers-brock-purdy-nick-bosa-training-camp/
-
-**Why Even Basic Airline Seats Keep Getting More ‘Premium’**\
-`As travel demand sinks, both legacy airlines and budget brands have turned to a strategy of ever-expanding upgrades.`\
-https://nytimes.com/2025/08/02/business/dealbook/premium-airfare.html
-
-**The Pulse: The best gear for peak sports season**\
-`Welcome to The Pulse, The Athletic's daily sports newsletter.`\
-https://nytimes.com/athletic/6531479/2025/08/02/wirecutter-sports-fan-gear-the-pulse/
 
