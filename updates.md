@@ -1,3 +1,11 @@
+**Yashasvi Jaiswal, Joe Root and the chances of breaking an unbreakable record**\
+`It is early in the Indian opener's career, while Root is much closer to Tendulkar's daunting record - but will either top it?`\
+https://nytimes.com/athletic/6532371/2025/08/02/yashasvi-jaiswal-india-england-cricket-records/
+
+**Ohio State Day 3 camp takeaways: QB battle update, Eddrick Houston's rehab and more**\
+`Julian Sayin had his best day in preseason camp Saturday amid his quarterback battle with Lincoln Kienholz.`\
+https://nytimes.com/athletic/6532377/2025/08/02/ohio-state-preseason-camp-julian-sayin/
+
 **Newcastle bid for Sesko falls short of RB Leipzig valuation**\
 `Newcastle have gained interest in the 22-year-old as Alexander Isak expressed a desire to leave.`\
 https://nytimes.com/athletic/6532009/2025/08/02/benjamin-sesko-newcastle-transfer-news-leipzig/
