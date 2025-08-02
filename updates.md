@@ -1,3 +1,7 @@
+**Kepner: The Astros — bold, decisive, interesting — are the team the Red Sox used to be**\
+`Once upon a time, the Boston Red Sox were interesting. But these days, it sure seems like a lot more fun to follow a team like the Astros.`\
+https://nytimes.com/athletic/6531333/2025/08/01/red-sox-houston-astros-trade-deadline/
+
 **The Astros — bold, decisive, interesting — are the team the Red Sox used to be: Kepner**\
 `Once upon a time, the Boston Red Sox were interesting. But these days, it sure seems like a lot more fun to follow a team like the Astros.`\
 https://nytimes.com/athletic/6531333/2025/08/01/red-sox-houston-astros-trade-deadline/
