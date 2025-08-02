@@ -1,3 +1,7 @@
+**Starvation in Gaza Has Reached a Tipping Point**\
+`And what it could mean for the future of the conflict in the Middle East.`\
+https://nytimes.com/video/opinion/100000010319047/starvation-in-gaza-has-reached-a-tipping-point.html
+
 **A Letter to the Future**\
 `Writing yourself a letter is a good way to identify the things in your life that matter — as well as those things that you can let go.`\
 https://nytimes.com/2025/08/02/briefing/a-letter-to-the-future.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/02/crosswords/strands-sidekick-518.html
 **Connections Companion No. 784**\
 `Scroll down for hints and conversation about the puzzle for Sunday, Aug. 3, 2025.`\
 https://nytimes.com/2025/08/02/crosswords/connections-companion-784.html
-
-**Micah Parsons trade proposals: Analyzing 3 potential offers for the Cowboys**\
-`What could the Jets, Bears and Packers offer the Cowboys in a trade for Micah Parsons? We analyzed three potential offers.`\
-https://nytimes.com/athletic/6531591/2025/08/02/micah-parsons-trade-proposals-jets-bears-packers/
 
