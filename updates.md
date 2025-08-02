@@ -1,3 +1,27 @@
+**Farewell, Joao Felix: Twice a Blue but Chelsea rarely saw the best of you**\
+`Joao Felix has left Chelsea to join Al Nassr, ending his second spell at the club`\
+https://nytimes.com/athletic/6527136/2025/08/02/joao-felix-chelsea-goodbye-al-nassr/
+
+**Quote of the Day: Bangladeshis in N.Y.P.D. Grieve for a Colleague**\
+`Quotation of the Day for Saturday, August 2, 2025.`\
+https://nytimes.com/2025/08/02/pageoneplus/quote-of-the-day-bangladeshis-in-nypd-grieve-for-a-colleague.html
+
+**A Bid to Undo a Colonial-Era Wrong Touches a People’s Old Wounds**\
+`An Oxford museum’s collection of objects taken from the Naga people includes human remains. What to do with them now is not a simple matter.`\
+https://nytimes.com/2025/08/02/world/asia/india-naga-repatriation-remains-museum.html
+
+**A Desperate Measure for a Desperate Land**\
+`A photographer accompanied a Jordanian aircrew as it dropped aid to Gaza, where starvation is rising.`\
+https://nytimes.com/2025/08/02/world/middleeast/gaza-aiddrop-jordan.html
+
+**Connections: Sports Edition Coach: Hints for Aug. 2, 2025**\
+`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
+https://nytimes.com/athletic/6530160/2025/08/02/connections-sports-edition-hints-for-aug-2-2025/
+
+**Corrections: Aug. 2, 2025**\
+`Corrections that appeared in print on Saturday, Aug. 2, 2025.`\
+https://nytimes.com/2025/08/02/pageoneplus/corrections-aug-2-2025.html
+
 **Consider the Canned Cocktail **\
 `Text by Antara Sinha`\
 https://nytimes.com/card/2025/08/02/smarter-living/wirecutter/
