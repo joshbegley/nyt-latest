@@ -1,3 +1,7 @@
+**Son Heung-min is leaving Spurs as LAFC, MLS circle: How did it all come to this?**\
+`Tottenham Hotspur fans have been rocked by the news that their captain is departing after 10 years.`\
+https://nytimes.com/athletic/6530106/2025/08/01/son-heung-min-spurs-lafc-transfer-analysis/
+
 **Kepner: The Astros — bold, decisive, interesting — are the team the Red Sox used to be**\
 `Once upon a time, the Boston Red Sox were interesting. But these days, it sure seems like a lot more fun to follow a team like the Astros.`\
 https://nytimes.com/athletic/6531333/2025/08/01/red-sox-houston-astros-trade-deadline/
