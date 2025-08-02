@@ -1,3 +1,7 @@
+**Tennessee Man Charged in Attempt to Detonate Bombs During Arrest**\
+`The authorities said Kevin O’Neal tried to set off explosives as Polk County, Tenn., deputies entered his home. More than a dozen devices were later found.`\
+https://nytimes.com/2025/08/02/us/tennessee-man-arrested-explosives.html
+
 **Sun sold to group led by Celtics minority owner Steve Pagliuca, intends to move team to Boston**\
 `Celtics minority owner Steve Pagliuca is buying the Sun for $325 million, putting another $100 million towards a team facility in Boston.`\
 https://nytimes.com/athletic/6532352/2025/08/02/connecticut-sun-wnba-sale-boston-celtics-minority-owner/

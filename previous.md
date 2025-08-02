@@ -1,3 +1,7 @@
+**Tennessee Man Charged in Attempt to Detonate Bombs During Arrest**\
+`The authorities said Kevin O’Neal tried to set off explosives as Polk County, Tenn., deputies entered his home. More than a dozen devices were later found.`\
+https://nytimes.com/2025/08/02/us/tennessee-man-arrested-explosives.html
+
 **Sun sold to group led by Celtics minority owner Steve Pagliuca, intends to move team to Boston**\
 `Celtics minority owner Steve Pagliuca is buying the Sun for $325 million, putting another $100 million towards a team facility in Boston.`\
 https://nytimes.com/athletic/6532352/2025/08/02/connecticut-sun-wnba-sale-boston-celtics-minority-owner/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6531875/2025/08/02/real-madrid-overhaul-of-medical-
 **Farke 'concerned' over Bogle injury as defender among four injured**\
 `Bogle, 25, has been struggling with a hip flexor injury was left out of the squad for the visit of Villarreal.`\
 https://nytimes.com/athletic/6532309/2025/08/02/daniel-farke-concerned-jayden-bogle-hip-injury-update/
-
-**Ruben Amorim: Bryan Mbeumo will make Man United debut against Everton**\
-`Amorim did not rule out another signing this summer when speaking before United's Everton game in Atlanta.`\
-https://nytimes.com/athletic/6532284/2025/08/02/ruben-amorim-bryan-mbeumo-manchester-united-debut-transfers/
 
