@@ -1,11 +1,3 @@
-**Women's Open: Charley Hull, Megan Khang join the chase after leader Miyu Yamashita**\
-`Yamashita shot a 74 on Saturday, giving new life to those who did go low at Royal Porthcawl.`\
-https://nytimes.com/athletic/6532423/2025/08/02/womens-open-hull-khang-yamashita/
-
-**Heavenly Voices**\
-`Jeremy Newton’s latest construction will leave you beaming.`\
-https://nytimes.com/2025/08/02/crosswords/daily-puzzle-2025-08-03.html
-
 **Jazz Chisholm Jr. doubled up on popup in latest Yankees base-running gaffe**\
 `It's almost an everyday occurrence for the Yankees. Their latest inexcusable play happened in the second inning Saturday versus the Marlins.`\
 https://nytimes.com/athletic/6532571/2025/08/02/jazz-chisholm-yankees-popup-double-play/
@@ -37,4 +29,12 @@ https://nytimes.com/athletic/6532488/2025/08/02/micah-parsons-trade-cowboys-jerr
 **Hundreds Protest in Tel Aviv After Hostage Videos Surface From Gaza**\
 `The circulation of videos created by Hamas showing Israeli hostages living in dire conditions incited families to protest in Tel Aviv on Saturday to demand a ceasefire and the return of their loved ones.`\
 https://nytimes.com/video/world/middleeast/100000010320633/tel-aviv-protest-following-hamas-hostage-videos.html
+
+**Supporter takes over when official injured in League Two match**\
+`The game finished in a goalless draw after the League Two game was stopped for nearly 20 minutes.`\
+https://nytimes.com/athletic/6532396/2025/08/02/shrewsbury-fan-assistant-referee-injured/
+
+**Our 5 favorite lessons from Antonio Gates, Jared Allen and the NFL Hall of Fame inductees**\
+`Four NFL legends were inducted into the NFL Hall of Fame on Saturday. These are our favorite lessons anyone can learn from them.`\
+https://nytimes.com/athletic/6532538/2025/08/02/antonio-gates-jared-allen-nfl-hall-of-fame-speeches/
 
