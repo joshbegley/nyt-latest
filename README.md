@@ -1,3 +1,7 @@
+**A day after 8 players were traded, Joe Ryan and Twins take stock: 'It's just sobering'**\
+`Said Ryan Jeffers of deadline madness: "Maybe this is the harsh reality of what was needed for this club. It’s a hard pill to swallow."`\
+https://nytimes.com/athletic/6531549/2025/08/02/twins-joe-ryan-trade-deadline-reaction/
+
 **West Ham to sign free agent Callum Wilson after Newcastle exit**\
 `Wilson has completed a medical ahead of signing a one-year deal with the east London club, which is heavily incentive-based.`\
 https://nytimes.com/athletic/5771041/2025/08/02/callum-wilson-transfer-west-ham/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6531144/2025/08/02/notre-dames-quarterback-competit
 **Aaron Rodgers' mobility impresses as offense shows early growing pains at training camp**\
 `If Steelers running back is going to become a three-down back, he knows improving in pass protection is important.`\
 https://nytimes.com/athletic/6531427/2025/08/02/steelers-observations-kaleb-johnson-aaron-rodgers/
-
-**Tearful Son Heung-min prepares for emotional Tottenham goodbye**\
-`The long-serving Spurs star was clearly moved as he announced his intention to leave the club after 10 years`\
-https://nytimes.com/athletic/6531461/2025/08/02/son-heung-min-tottenham-south-korea-emotional/
 
