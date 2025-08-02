@@ -1,3 +1,7 @@
+**The rise of Forest's Zach Abbott: Pestering Milenkovic, facing City and a valuable parking spot**\
+`Zach Abbott came through the Forest academy and is now on the brink of a first-team place, despite intense competition...`\
+https://nytimes.com/athletic/6500149/2025/08/02/nottingham-forest-zach-abbott-interview/
+
 **Could an attack of Isak, Ekitike, Salah and Wirtz really work?**\
 `Analysing how a 'Fantastic Four' could work together if Alexander Isak does end up moving to Anfield `\
 https://nytimes.com/athletic/6529932/2025/08/02/liverpool-isak-ekitike-salah-wirtz-attack/

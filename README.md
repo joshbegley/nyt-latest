@@ -1,3 +1,7 @@
+**Mets continue to need more from their offensive stars**\
+`The top four of Brandon Nimmo, Francisco Lindor, Juan Soto and Pete Alonso went just 3-for-15 in the Mets' loss Friday.`\
+https://nytimes.com/athletic/6531497/2025/08/02/mets-need-more-offensive-stars-giants/
+
 **The rise of Forest's Zach Abbott: Pestering Milenkovic, facing City and a valuable parking spot**\
 `Zach Abbott came through the Forest academy and is now on the brink of a first-team place, despite intense competition...`\
 https://nytimes.com/athletic/6500149/2025/08/02/nottingham-forest-zach-abbott-interview/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/02/world/middleeast/gaza-aiddrop-jordan.html
 **Connections: Sports Edition Coach: Hints for Aug. 2, 2025**\
 `Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
 https://nytimes.com/athletic/6530160/2025/08/02/connections-sports-edition-hints-for-aug-2-2025/
-
-**Corrections: Aug. 2, 2025**\
-`Corrections that appeared in print on Saturday, Aug. 2, 2025.`\
-https://nytimes.com/2025/08/02/pageoneplus/corrections-aug-2-2025.html
 
