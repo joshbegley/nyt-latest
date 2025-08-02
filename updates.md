@@ -1,3 +1,11 @@
+**Gifford Fire Burns More Than 23,000 Acres at Los Padres Forest in California**\
+`The Gifford fire, which has been fueled by dry conditions and warm weather, has spread to two counties, officials said.`\
+https://nytimes.com/2025/08/02/us/los-padres-forest-wildfire-california.html
+
+**The Law in West Texas Breaks the Law to Protest Weed’s Prohibition**\
+`Sarah Stogner, a Republican district attorney in Texas oil country, recorded herself smoking a joint that she bought legally in New Mexico.`\
+https://nytimes.com/2025/08/02/us/politics/marijuana-texas.html
+
 **Women's Open: Charley Hull, Megan Khang join the chase after leader Miyu Yamashita**\
 `Yamashita shot a 74 on Saturday, giving new life to those who did go low at Royal Porthcawl.`\
 https://nytimes.com/athletic/6532423/2025/08/02/womens-open-hull-khang-yamashita/
