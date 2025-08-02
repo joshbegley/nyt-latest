@@ -1,3 +1,15 @@
+**West Ham to sign free agent Callum Wilson after Newcastle exit**\
+`Wilson has completed a medical ahead of signing a one-year deal with the east London club, which is heavily incentive-based.`\
+https://nytimes.com/athletic/5771041/2025/08/02/callum-wilson-transfer-west-ham/
+
+**49ers' Brock Purdy likes the 'real' looks he's getting as Nick Bosa keeps wreaking havoc**\
+`"If you’re at practice and dropping back and not getting touched and going through your progressions all perfectly, to me, it can be scary."`\
+https://nytimes.com/athletic/6531297/2025/08/02/49ers-brock-purdy-nick-bosa-training-camp/
+
+**Why Even Basic Airline Seats Keep Getting More ‘Premium’**\
+`As travel demand sinks, both legacy airlines and budget brands have turned to a strategy of ever-expanding upgrades.`\
+https://nytimes.com/2025/08/02/business/dealbook/premium-airfare.html
+
 **The Pulse: The best gear for peak sports season**\
 `Welcome to The Pulse, The Athletic's daily sports newsletter.`\
 https://nytimes.com/athletic/6531479/2025/08/02/wirecutter-sports-fan-gear-the-pulse/
