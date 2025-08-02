@@ -1,3 +1,7 @@
+**Oh Hello, Corn Risotto**\
+`Five stars, over 2,000 reviews and so, so corny.`\
+https://nytimes.com/2025/08/02/dining/corn-risotto-and-more-corn-recipes.html
+
 **Search for Suspect in Fatal Montana Bar Shooting Stretches Into Second Day**\
 `Authorities were focusing on brushy terrain near the town of Anaconda, where they said the suspect killed four people.`\
 https://nytimes.com/2025/08/02/us/montana-search-suspect-anaconda-bar-shooting.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6531605/2025/08/02/real-madrid-raul-asencio-jail-ex
 **Alexander Isak to return to training with Newcastle United**\
 `The Athletic reported on Friday that Newcastle had rejected an official bid from Liverpool for the Sweden international.`\
 https://nytimes.com/athletic/6529869/2025/08/02/alexander-isak-training-newcastle-united-transfer-liverpool/
-
-**A day after 8 players were traded, Joe Ryan and Twins take stock: 'It's just sobering'**\
-`Said Ryan Jeffers of deadline madness: "Maybe this is the harsh reality of what was needed for this club. It’s a hard pill to swallow."`\
-https://nytimes.com/athletic/6531549/2025/08/02/twins-joe-ryan-trade-deadline-reaction/
 
