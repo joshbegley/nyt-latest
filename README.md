@@ -1,3 +1,7 @@
+**Agency Scrutinizes Jack Smith After Republican Complaint**\
+`The former special counsel is being investigated for possible violations of the Hatch Act, which restricts partisan activities by federal employees. A G.O.P. senator had requested an inquiry over Mr. Smith’s prosecution of Donald Trump.`\
+https://nytimes.com/2025/08/02/us/politics/jack-smith-osc-trump.html
+
 **Real Madrid carry out a thorough overhaul of medical services**\
 `The La Liga side suffered a spate of injuries last season, at one point missing their entire back four.`\
 https://nytimes.com/athletic/6531875/2025/08/02/real-madrid-overhaul-of-medical-services-injuries/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6530744/2025/08/02/lakers-luka-doncic-contract-exte
 **New Hostage Videos Sow Fear and Horror in Israel**\
 `A “living skeleton, buried alive” in Gaza’s tunnels, was how the family of one hostage described him after seeing a video circulated by Hamas this week.`\
 https://nytimes.com/2025/08/02/world/europe/new-hostage-videos-sow-fear-and-horror-in-israel.html
-
-**Chargers' Perryman found with assault-style rifles, arrested on weapons charges**\
-`The arrest occurred after deputies conducted a traffic stop of Perryman's vehicle for code violations.`\
-https://nytimes.com/athletic/6532042/2025/08/02/chargers-denzel-perryman-arrest-gun-charges/
 
