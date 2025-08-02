@@ -1,3 +1,7 @@
+**India Will Buy Russian Oil Despite Trump’s Threats, Officials Say**\
+`President Trump said last week that he would punish India if it did not cut off Russian oil imports, but he did not specify what the penalty might be.`\
+https://nytimes.com/2025/08/02/world/asia/india-russia-oil-trump-threats.html
+
 **How a Veteran Lifeguard Spends His Fridays**\
 `Javier Rodriguez, 64, opens up the beach, tests out new lifeguards — and always squeezes in a morning swim before work.`\
 https://nytimes.com/2025/08/02/nyregion/how-a-veteran-lifeguard-spends-his-fridays.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6531469/2025/08/02/jhoan-duran-phillies-debut-entra
 **The New York Times in Print for Saturday, Aug. 2, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/08/02/todays-new-york-times
-
-**Yankees' new bullpen acquisitions implode against Marlins in wild loss**\
-`Jake Bird, David Bednar and Camilo Doval combined to allow nine runs in 2 1/3 innings in arguably the Yankees' worst loss of the season.`\
-https://nytimes.com/athletic/6531473/2025/08/02/yankees-new-bullpen-acquisitions-implode-marlins/
 

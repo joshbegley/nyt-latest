@@ -1,3 +1,7 @@
+**India Will Buy Russian Oil Despite Trump’s Threats, Officials Say**\
+`President Trump said last week that he would punish India if it did not cut off Russian oil imports, but he did not specify what the penalty might be.`\
+https://nytimes.com/2025/08/02/world/asia/india-russia-oil-trump-threats.html
+
 **How a Veteran Lifeguard Spends His Fridays**\
 `Javier Rodriguez, 64, opens up the beach, tests out new lifeguards — and always squeezes in a morning swim before work.`\
 https://nytimes.com/2025/08/02/nyregion/how-a-veteran-lifeguard-spends-his-fridays.html
