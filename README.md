@@ -1,3 +1,7 @@
+**Thais Angered by Clash With Cambodia Mount 2nd Protest Against Leader**\
+`Prime Minister Paetongtarn Shinawatra of Thailand had already been suspended after a leaked phone call that many say showed her selling out her country.`\
+https://nytimes.com/2025/08/02/world/asia/thailand-protest-leader-cambodia-shinawatra.html
+
 **With the trade deadline over, Tigers prepare to reshape their pitching staff**\
 `The Tigers added a flurry of new arms to their organization. It could make for another creative approach to pitching down the stretch. `\
 https://nytimes.com/athletic/6531301/2025/08/02/detroit-tigers-trade-deadline-pitching-staff/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/02/opinion/parenting-smart-phones.html
 **Why Starvation in Gaza Has Reached a Tipping Point**\
 `And what it could mean for the future of the conflict in the Middle East.`\
 https://nytimes.com/2025/08/02/opinion/gaza-famine-trump-maga-israel.html
-
-**Wrinkled, Flabby, Buoyant**\
-`In water, you have achieved the impossible. You’re young and old simultaneously.`\
-https://nytimes.com/2025/08/02/opinion/old-age-swimming.html
 
