@@ -1,3 +1,11 @@
+**Carlos Correa returns to the Astros, where the dynamic 'is completely different'**\
+`"I never thought this would happen or there was a chance for this to happen," Correa said before hitting cleanup Friday at Fenway Park.`\
+https://nytimes.com/athletic/6531315/2025/08/01/astros-carlos-correa-return/
+
+**Senate Passes Its First Spending Bills, but Battles Lie Ahead**\
+`Overwhelming bipartisan passage of $488 billion in federal funding masked a bigger fight ahead over funding the rest of the government before a Sept. 30 shutdown deadline.`\
+https://nytimes.com/2025/08/01/us/politics/senate-bills-shutdown-trump.html
+
 **Gary Busey Pleads Guilty to Sex Crime Charge Tied to Horror Movie Event**\
 `The actor, who had faced several charges, pleaded guilty to one stemming from his behavior at Monster-Mania Con in New Jersey three years ago.`\
 https://nytimes.com/2025/08/01/nyregion/gary-busey-monster-mania-con-guilty.html

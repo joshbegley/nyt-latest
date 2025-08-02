@@ -1,3 +1,7 @@
+**Luis Robert Jr. 'happy' to stay with White Sox after surprise decision to not trade him**\
+`“You feel like a weight is lifted off your shoulders,” Robert said before Chicago's game against the Angels. `\
+https://nytimes.com/athletic/6531325/2025/08/01/luis-robert-jr-white-sox-trade-deadline/
+
 **Carlos Correa returns to the Astros, where the dynamic 'is completely different'**\
 `"I never thought this would happen or there was a chance for this to happen," Correa said before hitting cleanup Friday at Fenway Park.`\
 https://nytimes.com/athletic/6531315/2025/08/01/astros-carlos-correa-return/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/01/us/politics/dc-plane-crash-atc-alcohol-drugs.html
 **Army Pilots Might Have Struggled to See Passenger Jet Before D.C. Crash**\
 `Light pollution from Washington, and even the passenger jet’s dim lights, might have contributed to difficulties spotting American Airlines Flight 5342 before the two aircraft collided on Jan. 29, Army experts said.`\
 https://nytimes.com/2025/08/01/us/politics/army-pilots-jet-crash.html
-
-**Guardians All-Star Steven Kwan stays in Cleveland after wild day of wondering**\
-`Kwan spent the day searching for distractions, anything, to get him to 6 p.m. ET.`\
-https://nytimes.com/athletic/6531191/2025/08/01/guardians-steven-kwan-trade-deadline-cleveland/
 
