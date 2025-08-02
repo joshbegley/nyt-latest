@@ -1,3 +1,7 @@
+**Giants' reduced roster wins a tight one post-deadline: 'We've not given up on you guys'**\
+`There is still a chance for the Giants to make something positive out of a frustrating season.`\
+https://nytimes.com/athletic/6531575/2025/08/02/sf-giants-win-after-trade-deadline-moves/
+
 **Katie Ledecky continues her reign in 800-meter freestyle in thrilling race at worlds**\
 `Ledecky held off Lani Pallister and Summer McIntosh in a tight race Saturday to win gold and extend her reign in the 800-meter freestyle.`\
 https://nytimes.com/athletic/6530203/2025/08/02/katie-ledecky-summer-mcintosh-lani-pallister-800-freestyle-world-championships/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6531479/2025/08/02/wirecutter-sports-fan-gear-the-p
 **American Gretchen Walsh wins 50-meter butterfly, her second gold at world championships**\
 `Walsh kicked off a busy Saturday at the world championships with her second gold medal of the meet, winning the butterfly sprint.`\
 https://nytimes.com/athletic/6530382/2025/08/02/gretchen-walsh-jack-alexy-kaylee-mckeown-world-championships/
-
-**Thais Angered by Clash With Cambodia Mount 2nd Protest Against Leader**\
-`Prime Minister Paetongtarn Shinawatra of Thailand had already been suspended after a leaked phone call that many say showed her selling out her country.`\
-https://nytimes.com/2025/08/02/world/asia/thailand-protest-leader-cambodia-shinawatra.html
 
