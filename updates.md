@@ -1,3 +1,7 @@
+**Newcastle bid for Sesko falls short of RB Leipzig valuation**\
+`Newcastle have gained interest in the 22-year-old as Alexander Isak expressed a desire to leave.`\
+https://nytimes.com/athletic/6532009/2025/08/02/benjamin-sesko-newcastle-transfer-news-leipzig/
+
 **David Rendall, Tenor Who Suffered 2 Operatic Mishaps, Dies at 76**\
 `He appeared regularly at the Metropolitan Opera and sang in major European opera houses, but a stage accident in 2005 nearly ended his career.`\
 https://nytimes.com/2025/08/02/obituaries/david-rendall-dead.html
