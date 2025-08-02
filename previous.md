@@ -1,4 +1,12 @@
-**Luka Dončić signs 3-year, $165 million max extension with Lakers: Source**\
+**Shedeur Sanders sits out Saturday’s Browns practice due to ‘arm soreness’**\
+`The rookie is part of a four-man competition for the starting job in Cleveland.`\
+https://nytimes.com/athletic/6532159/2025/08/02/shedeur-sanders-injury-browns-training-camp/
+
+**Tour de France Femmes: Ferrand-Prevot dominates queen stage to take yellow before final day**\
+`See the results from stage eight here as The Athletic covers the Tour de France Femmes. `\
+https://nytimes.com/athletic/6531866/2025/08/02/tour-de-france-femmes-pauline-ferrand-prevot-yellow-jersey/
+
+**Luka Dončić signs 3-year, $165 million contract extension with Lakers**\
 `In 28 games with the Lakers, Dončić averaged 28.2 points, 8.1 rebounds and 7.2 assists after a blockbuster trade from the Mavericks.`\
 https://nytimes.com/athletic/6530744/2025/08/02/lakers-luka-doncic-contract-extension-supermax-nba/
 
@@ -27,14 +35,6 @@ https://nytimes.com/athletic/6510996/2025/08/02/maple-leafs-nick-robertson-contr
 https://nytimes.com/2025/08/02/world/canada/brush-fire-bc-interior-fish-power-lines.html
 
 **Charles Leclerc stuns McLaren duo for Hungarian GP pole, Hamilton exits early**\
-`Charles Leclerc claimed Ferrari's first pole of the 2025 Formula 1 season with a stunning lap in Hungarian GP qualifying`\
+`The 27-year-old claimed his team's first pole of the 2025 Formula 1 season with a stunning lap in Budapest`\
 https://nytimes.com/athletic/6531891/2025/08/02/hungarian-grand-prix-qualifying-results-2025/
-
-**Thais Rally in Bangkok to Denounce Prime Minister Paetongtarn**\
-`The protesters say Prime Minister Paetongtarn Shinawatra sold out Thailand and betrayed its army in a leaked phone conversation with Cambodia’s de facto leader.`\
-https://nytimes.com/video/world/asia/100000010320578/bangkok-thailand-protests.html
-
-**Oh Hello, Corn Risotto**\
-`Five stars, over 2,000 reviews and so, so corny.`\
-https://nytimes.com/2025/08/02/dining/corn-risotto-and-more-corn-recipes.html
 

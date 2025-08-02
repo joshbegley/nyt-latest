@@ -1,3 +1,19 @@
+**Shedeur Sanders sits out Saturday’s Browns practice due to ‘arm soreness’**\
+`The rookie is part of a four-man competition for the starting job in Cleveland.`\
+https://nytimes.com/athletic/6532159/2025/08/02/shedeur-sanders-injury-browns-training-camp/
+
+**Tour de France Femmes: Ferrand-Prevot dominates queen stage to take yellow before final day**\
+`See the results from stage eight here as The Athletic covers the Tour de France Femmes. `\
+https://nytimes.com/athletic/6531866/2025/08/02/tour-de-france-femmes-pauline-ferrand-prevot-yellow-jersey/
+
+**Luka Dončić signs 3-year, $165 million contract extension with Lakers**\
+`In 28 games with the Lakers, Dončić averaged 28.2 points, 8.1 rebounds and 7.2 assists after a blockbuster trade from the Mavericks.`\
+https://nytimes.com/athletic/6530744/2025/08/02/lakers-luka-doncic-contract-extension-supermax-nba/
+
+**Charles Leclerc stuns McLaren duo for Hungarian GP pole, Hamilton exits early**\
+`The 27-year-old claimed his team's first pole of the 2025 Formula 1 season with a stunning lap in Budapest`\
+https://nytimes.com/athletic/6531891/2025/08/02/hungarian-grand-prix-qualifying-results-2025/
+
 **Luka Dončić signs 3-year, $165 million max extension with Lakers: Source**\
 `In 28 games with the Lakers, Dončić averaged 28.2 points, 8.1 rebounds and 7.2 assists after a blockbuster trade from the Mavericks.`\
 https://nytimes.com/athletic/6530744/2025/08/02/lakers-luka-doncic-contract-extension-supermax-nba/
