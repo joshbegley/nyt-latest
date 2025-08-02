@@ -1,4 +1,12 @@
-**Yankees' new bullpen acquisitions implode against Marlins in wild game**\
+**Phillies new closer Jhoan Duran meets the moment in lights-out Citizens Bank Park debut**\
+`An electric entrance and a shutdown Citizens Bank Park debut, and Duran fever is already spreading.`\
+https://nytimes.com/athletic/6531469/2025/08/02/jhoan-duran-phillies-debut-entrance/
+
+**The New York Times in Print for Saturday, Aug. 2, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/08/02/todays-new-york-times
+
+**Yankees' new bullpen acquisitions implode against Marlins in wild loss**\
 `Jake Bird, David Bednar and Camilo Doval combined to allow nine runs in 2 1/3 innings in arguably the Yankees' worst loss of the season.`\
 https://nytimes.com/athletic/6531473/2025/08/02/yankees-new-bullpen-acquisitions-implode-marlins/
 
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6527136/2025/08/02/joao-felix-chelsea-goodbye-al-na
 **Quote of the Day: Bangladeshis in N.Y.P.D. Grieve for a Colleague**\
 `Quotation of the Day for Saturday, August 2, 2025.`\
 https://nytimes.com/2025/08/02/pageoneplus/quote-of-the-day-bangladeshis-in-nypd-grieve-for-a-colleague.html
-
-**A Bid to Undo a Colonial-Era Wrong Touches a People’s Old Wounds**\
-`An Oxford museum’s collection of objects taken from the Naga people includes human remains. What to do with them now is not a simple matter.`\
-https://nytimes.com/2025/08/02/world/asia/india-naga-repatriation-remains-museum.html
-
-**A Desperate Measure for a Desperate Land**\
-`A photographer accompanied a Jordanian aircrew as it dropped aid to Gaza, where starvation is rising.`\
-https://nytimes.com/2025/08/02/world/middleeast/gaza-aiddrop-jordan.html
 
