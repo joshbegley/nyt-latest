@@ -1,3 +1,7 @@
+**How to watch MVP favorite Napheesa Collier and the Lynx vs. A'ja Wilson's Aces**\
+`Can Napheesa Collier and Minnesota earn another lopsided victory over the Aces, this time in Las Vegas?`\
+https://nytimes.com/athletic/6531223/2025/08/02/lynx-aces-wnba-collier-aja-wilson-mvp-how-to-watch/
+
 **The Braves and Reds are playing an MLB game at a NASCAR track. Here's how to tune in**\
 `Engines are revved up for baseball's inaugural Speedway Classic, which pits the Braves and Reds against each other at the Bristol racetrack.`\
 https://nytimes.com/athletic/6530610/2025/08/02/braves-reds-bristol-motor-speedway-classic-how-to-watch/
