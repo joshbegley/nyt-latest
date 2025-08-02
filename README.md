@@ -1,3 +1,7 @@
+**Son Heung-min is leaving Spurs as LAFC, MLS circle: How did it all come to this?**\
+`Tottenham Hotspur fans have been rocked by the news that their captain is departing after 10 years.`\
+https://nytimes.com/athletic/6530106/2025/08/01/son-heung-min-spurs-lafc-transfer-analysis/
+
 **Kepner: The Astros — bold, decisive, interesting — are the team the Red Sox used to be**\
 `Once upon a time, the Boston Red Sox were interesting. But these days, it sure seems like a lot more fun to follow a team like the Astros.`\
 https://nytimes.com/athletic/6531333/2025/08/01/red-sox-houston-astros-trade-deadline/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/01/us/alabama-boy-death-hot-car-arrest.html
 **Spurs captain Son Heung-min asks to leave amid talks with LAFC**\
 `Son informed the club and new manager Thomas Frank earlier this summer that he wants to head elsewhere – and MLS may be next`\
 https://nytimes.com/athletic/6529894/2025/08/01/son-heung-min-tottenham-lafc-transfer/
-
-**Appeals Court Allows Trump Order That Ends Union Protections for Federal Workers**\
-`A famously liberal circuit court ruled in President Trump’s favor, authorizing a component of his sweeping effort to assert more control over the federal bureaucracy.`\
-https://nytimes.com/2025/08/01/us/politics/collective-bargaining-ninth-circuit.html
 
