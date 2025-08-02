@@ -1,3 +1,7 @@
+**Newcastle bid for Sesko falls short of RB Leipzig valuation**\
+`Newcastle have gained interest in the 22-year-old as Alexander Isak expressed a desire to leave.`\
+https://nytimes.com/athletic/6532009/2025/08/02/benjamin-sesko-newcastle-transfer-news-leipzig/
+
 **David Rendall, Tenor Who Suffered 2 Operatic Mishaps, Dies at 76**\
 `He appeared regularly at the Metropolitan Opera and sang in major European opera houses, but a stage accident in 2005 nearly ended his career.`\
 https://nytimes.com/2025/08/02/obituaries/david-rendall-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6532103/2025/08/02/charles-leclerc-pole-f1-hungaria
 **Shedeur Sanders sits out Saturday’s Browns practice due to ‘arm soreness’**\
 `The rookie is part of a four-man competition for the starting job in Cleveland.`\
 https://nytimes.com/athletic/6532159/2025/08/02/shedeur-sanders-injury-browns-training-camp/
-
-**Tour de France Femmes: Ferrand-Prevot dominates queen stage to take yellow before final day**\
-`See the results from stage eight here as The Athletic covers the Tour de France Femmes. `\
-https://nytimes.com/athletic/6531866/2025/08/02/tour-de-france-femmes-pauline-ferrand-prevot-yellow-jersey/
 
