@@ -1,3 +1,11 @@
+**Katie Ledecky continues her reign in 800-meter freestyle in thrilling race at worlds**\
+`Ledecky held off Lani Pallister and Summer McIntosh in a tight race Saturday to win gold and extend her reign in the 800-meter freestyle.`\
+https://nytimes.com/athletic/6530203/2025/08/02/katie-ledecky-summer-mcintosh-lani-pallister-800-freestyle-world-championships/
+
+**Asencio and the sex-tape allegations which prosecutors claim warrant a prison sentence - key questions answered**\
+`On Friday, the Public Prosecutor’s Office in Spain called for a two-and-a-half-year prison sentence for the central defender`\
+https://nytimes.com/athletic/6531605/2025/08/02/real-madrid-raul-asencio-jail-explained/
+
 **Alexander Isak to return to training with Newcastle United**\
 `The Athletic reported on Friday that Newcastle had rejected an official bid from Liverpool for the Sweden international.`\
 https://nytimes.com/athletic/6529869/2025/08/02/alexander-isak-training-newcastle-united-transfer-liverpool/

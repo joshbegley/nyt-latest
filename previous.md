@@ -1,3 +1,11 @@
+**Katie Ledecky continues her reign in 800-meter freestyle in thrilling race at worlds**\
+`Ledecky held off Lani Pallister and Summer McIntosh in a tight race Saturday to win gold and extend her reign in the 800-meter freestyle.`\
+https://nytimes.com/athletic/6530203/2025/08/02/katie-ledecky-summer-mcintosh-lani-pallister-800-freestyle-world-championships/
+
+**Asencio and the sex-tape allegations which prosecutors claim warrant a prison sentence - key questions answered**\
+`On Friday, the Public Prosecutor’s Office in Spain called for a two-and-a-half-year prison sentence for the central defender`\
+https://nytimes.com/athletic/6531605/2025/08/02/real-madrid-raul-asencio-jail-explained/
+
 **Alexander Isak to return to training with Newcastle United**\
 `The Athletic reported on Friday that Newcastle had rejected an official bid from Liverpool for the Sweden international.`\
 https://nytimes.com/athletic/6529869/2025/08/02/alexander-isak-training-newcastle-united-transfer-liverpool/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6530382/2025/08/02/gretchen-walsh-jack-alexy-kaylee
 **Thais Angered by Clash With Cambodia Mount 2nd Protest Against Leader**\
 `Prime Minister Paetongtarn Shinawatra of Thailand had already been suspended after a leaked phone call that many say showed her selling out her country.`\
 https://nytimes.com/2025/08/02/world/asia/thailand-protest-leader-cambodia-shinawatra.html
-
-**With the trade deadline over, Tigers prepare to reshape their pitching staff**\
-`The Tigers added a flurry of new arms to their organization. It could make for another creative approach to pitching down the stretch. `\
-https://nytimes.com/athletic/6531301/2025/08/02/detroit-tigers-trade-deadline-pitching-staff/
-
-**How is Notre Dame's quarterback competition going to work?**\
-`How Carr and Minchey perform during the next two weeks will both determine QB1 and set the course for Notre Dame's season.`\
-https://nytimes.com/athletic/6531144/2025/08/02/notre-dames-quarterback-competition-cj-carr-kenny-minchey/
 
