@@ -1,3 +1,15 @@
+**Could an attack of Isak, Ekitike, Salah and Wirtz really work?**\
+`Analysing how a 'Fantastic Four' could work together if Alexander Isak does end up moving to Anfield `\
+https://nytimes.com/athletic/6529932/2025/08/02/liverpool-isak-ekitike-salah-wirtz-attack/
+
+**Alex Laferriere agrees to to 3-year contract with Kings**\
+`Laferriere, a restricted free agent, totaled 19 goals and 23 assists in 77 games last season.`\
+https://nytimes.com/athletic/6531417/2025/08/02/kings-laferriere-contract/
+
+**Business of Football: John Textor's new grand plan, and Premier League made to fork out for lawyers**\
+`John Textor in Iconic battle, Premier League coughing up for lawyers, and FA loses Accrington agent case in this column's latest instalment`\
+https://nytimes.com/athletic/6482580/2025/08/02/business-of-football-textor-lyon-fa-premier-league/
+
 **Farewell, Joao Felix: Twice a Blue but Chelsea rarely saw the best of you**\
 `Joao Felix has left Chelsea to join Al Nassr, ending his second spell at the club`\
 https://nytimes.com/athletic/6527136/2025/08/02/joao-felix-chelsea-goodbye-al-nassr/

@@ -1,3 +1,15 @@
+**Could an attack of Isak, Ekitike, Salah and Wirtz really work?**\
+`Analysing how a 'Fantastic Four' could work together if Alexander Isak does end up moving to Anfield `\
+https://nytimes.com/athletic/6529932/2025/08/02/liverpool-isak-ekitike-salah-wirtz-attack/
+
+**Alex Laferriere agrees to to 3-year contract with Kings**\
+`Laferriere, a restricted free agent, totaled 19 goals and 23 assists in 77 games last season.`\
+https://nytimes.com/athletic/6531417/2025/08/02/kings-laferriere-contract/
+
+**Business of Football: John Textor's new grand plan, and Premier League made to fork out for lawyers**\
+`John Textor in Iconic battle, Premier League coughing up for lawyers, and FA loses Accrington agent case in this column's latest instalment`\
+https://nytimes.com/athletic/6482580/2025/08/02/business-of-football-textor-lyon-fa-premier-league/
+
 **Farewell, Joao Felix: Twice a Blue but Chelsea rarely saw the best of you**\
 `Joao Felix has left Chelsea to join Al Nassr, ending his second spell at the club`\
 https://nytimes.com/athletic/6527136/2025/08/02/joao-felix-chelsea-goodbye-al-nassr/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/08/02/pageoneplus/corrections-aug-2-2025.html
 **Consider the Canned Cocktail **\
 `Text by Antara Sinha`\
 https://nytimes.com/card/2025/08/02/smarter-living/wirecutter/
-
-**Sex toy thrown onto WNBA court for second time in 3 days, stopping game**\
-`Officials stopped play immediately after the toy flew onto the court along the baseline underneath the Sky's basket`\
-https://nytimes.com/athletic/6531364/2025/08/01/wnba-sex-toy-incident-sky-valkyries-game/
-
-**Son Heung-min is leaving Spurs as LAFC, MLS circle: How did it all come to this?**\
-`Tottenham Hotspur fans have been rocked by the news that their captain is departing after 10 years.`\
-https://nytimes.com/athletic/6530106/2025/08/01/son-heung-min-spurs-lafc-transfer-analysis/
-
-**Kepner: The Astros — bold, decisive, interesting — are the team the Red Sox used to be**\
-`Once upon a time, the Boston Red Sox were interesting. But these days, it sure seems like a lot more fun to follow a team like the Astros.`\
-https://nytimes.com/athletic/6531333/2025/08/01/red-sox-houston-astros-trade-deadline/
 
