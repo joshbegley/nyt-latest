@@ -1,3 +1,11 @@
+**Dan Quinn says Terry McLaurin's trade request has not been a distraction**\
+`The star receiver requested a trade on Thursday.`\
+https://nytimes.com/athletic/6531718/2025/08/02/dan-quinn-comments-mclaurin-trade-request/
+
+**Broncos, Zach Allen agree to 4-year deal worth $102 million: Source**\
+`The deal makes Allen one of the NFL’s highest-paid defensive ends.`\
+https://nytimes.com/athletic/6531833/2025/08/02/broncos-zach-allen-contract-terms/
+
 **Newcastle complete Aaron Ramsdale loan signing from Southampton**\
 `The deal includes a sizeable loan fee and option to buy at the end of the season.`\
 https://nytimes.com/athletic/6524622/2025/08/02/aaron-ramsdale-newcastle-transfer/
