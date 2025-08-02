@@ -1,3 +1,7 @@
+**How Charles Leclerc snared shock Ferrari Hungary pole: ‘Today I don’t understand F1’**\
+`Charles Leclerc even surprised himself in toppling the McLaren cars to take pole position for Formula One's 2025 Hungarian GP`\
+https://nytimes.com/athletic/6532103/2025/08/02/charles-leclerc-pole-f1-hungarian-grand-prix-2025/
+
 **Shedeur Sanders sits out Saturday’s Browns practice due to ‘arm soreness’**\
 `The rookie is part of a four-man competition for the starting job in Cleveland.`\
 https://nytimes.com/athletic/6532159/2025/08/02/shedeur-sanders-injury-browns-training-camp/
