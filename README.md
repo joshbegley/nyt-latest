@@ -1,3 +1,11 @@
+**Broncos' Bo Nix sharpening himself in training camp battles with Pat Surtain II**\
+`Zach Allen said "it hasn't fully hit me yet" that he signed a contract making him one of NFL's highest-paid defensive linemen`\
+https://nytimes.com/athletic/6532523/2025/08/02/broncos-bo-nix-pat-surtain-training-camp/
+
+**Until Trump Fired Her, She Was an Economist With Bipartisan Support**\
+`Erika McEntarfer led the agency that produced key data on jobs and inflation. Then July’s report showed a weakening economy, and President Trump accused her of “rigging” the numbers.`\
+https://nytimes.com/2025/08/02/us/politics/until-trump-fired-her-she-was-an-economist-with-bipartisan-support.html
+
 **Dragon Bravo Fire Grows to Largest Wildfire in the Continental U.S.**\
 `The fire in Grand Canyon National Park has grown to more than 100,000 acres amid dry weather and a weak monsoon season in Arizona.`\
 https://nytimes.com/2025/08/02/weather/dragon-bravo-fire-grand-canyon-update.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6532352/2025/08/02/connecticut-sun-wnba-sale-boston
 **Yashasvi Jaiswal, Joe Root and the chances of breaking an unbreakable record**\
 `It is early in the Indian opener's career, while Root is much closer to Tendulkar's daunting record - but will either top it?`\
 https://nytimes.com/athletic/6532371/2025/08/02/yashasvi-jaiswal-india-england-cricket-records/
-
-**Ohio State Day 3 camp takeaways: QB battle update, Eddrick Houston's rehab and more**\
-`Julian Sayin had his best day in preseason camp Saturday amid his quarterback battle with Lincoln Kienholz.`\
-https://nytimes.com/athletic/6532377/2025/08/02/ohio-state-preseason-camp-julian-sayin/
-
-**Newcastle bid for Sesko falls short of RB Leipzig valuation**\
-`Newcastle have gained interest in the 22-year-old as Alexander Isak expressed a desire to leave.`\
-https://nytimes.com/athletic/6532009/2025/08/02/benjamin-sesko-newcastle-transfer-news-leipzig/
 
