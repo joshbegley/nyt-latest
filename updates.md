@@ -1,3 +1,15 @@
+**How a Veteran Lifeguard Spends His Fridays**\
+`Javier Rodriguez, 64, opens up the beach, tests out new lifeguards — and always squeezes in a morning swim before work.`\
+https://nytimes.com/2025/08/02/nyregion/how-a-veteran-lifeguard-spends-his-fridays.html
+
+**Her Dispensary Was Set to Open. Then New York Got in the Way.**\
+`State cannabis regulators suddenly changed a rule governing how close dispensaries can be to schools, upending dozens of owners’ plans.`\
+https://nytimes.com/2025/08/02/nyregion/weed-cannabis-dispensary-nyc.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/08/02/crosswords/spelling-bee-forum.html
+
 **Isak situation is 'complex' and 'far from ideal' - Newcastle boss Howe**\
 `Newcastle United head coach Eddie Howe has described the situation with Alexander Isak as “complex” and “far from ideal.`\
 https://nytimes.com/athletic/6531593/2025/08/02/alexander-isak-liverpool-eddie-howe-transfer-latest/

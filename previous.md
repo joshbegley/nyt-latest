@@ -1,3 +1,15 @@
+**How a Veteran Lifeguard Spends His Fridays**\
+`Javier Rodriguez, 64, opens up the beach, tests out new lifeguards — and always squeezes in a morning swim before work.`\
+https://nytimes.com/2025/08/02/nyregion/how-a-veteran-lifeguard-spends-his-fridays.html
+
+**Her Dispensary Was Set to Open. Then New York Got in the Way.**\
+`State cannabis regulators suddenly changed a rule governing how close dispensaries can be to schools, upending dozens of owners’ plans.`\
+https://nytimes.com/2025/08/02/nyregion/weed-cannabis-dispensary-nyc.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/08/02/crosswords/spelling-bee-forum.html
+
 **Isak situation is 'complex' and 'far from ideal' - Newcastle boss Howe**\
 `Newcastle United head coach Eddie Howe has described the situation with Alexander Isak as “complex” and “far from ideal.`\
 https://nytimes.com/athletic/6531593/2025/08/02/alexander-isak-liverpool-eddie-howe-transfer-latest/
@@ -25,16 +37,4 @@ https://nytimes.com/issue/todayspaper/2025/08/02/todays-new-york-times
 **Yankees' new bullpen acquisitions implode against Marlins in wild loss**\
 `Jake Bird, David Bednar and Camilo Doval combined to allow nine runs in 2 1/3 innings in arguably the Yankees' worst loss of the season.`\
 https://nytimes.com/athletic/6531473/2025/08/02/yankees-new-bullpen-acquisitions-implode-marlins/
-
-**Mets continue to need more from their offensive stars**\
-`The top four of Brandon Nimmo, Francisco Lindor, Juan Soto and Pete Alonso went just 3-for-15 in the Mets' loss Friday.`\
-https://nytimes.com/athletic/6531497/2025/08/02/mets-need-more-offensive-stars-giants/
-
-**The rise of Forest's Zach Abbott: Pestering Milenkovic, facing City and a valuable parking spot**\
-`Zach Abbott came through the Forest academy and is now on the brink of a first-team place, despite intense competition...`\
-https://nytimes.com/athletic/6500149/2025/08/02/nottingham-forest-zach-abbott-interview/
-
-**Could an attack of Isak, Ekitike, Salah and Wirtz really work?**\
-`Analysing how a 'Fantastic Four' could work together if Alexander Isak does end up moving to Anfield `\
-https://nytimes.com/athletic/6529932/2025/08/02/liverpool-isak-ekitike-salah-wirtz-attack/
 
