@@ -1,3 +1,7 @@
+**Luis Robert Jr. 'happy' to stay with White Sox after surprise decision to not trade him**\
+`“You feel like a weight is lifted off your shoulders,” Robert said before Chicago's game against the Angels. `\
+https://nytimes.com/athletic/6531325/2025/08/01/luis-robert-jr-white-sox-trade-deadline/
+
 **Carlos Correa returns to the Astros, where the dynamic 'is completely different'**\
 `"I never thought this would happen or there was a chance for this to happen," Correa said before hitting cleanup Friday at Fenway Park.`\
 https://nytimes.com/athletic/6531315/2025/08/01/astros-carlos-correa-return/
