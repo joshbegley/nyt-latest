@@ -1,3 +1,7 @@
+**Until Trump Fired Her, She Was an Economist With Bipartisan Support**\
+`Erika McEntarfer led the agency that produced key data on jobs and inflation. Then July’s report showed a weakening economy, and President Trump accused her of “rigging” the numbers.`\
+https://nytimes.com/2025/08/02/us/politics/until-trump-fired-her-she-was-an-economist-with-bipartisan-support.html
+
 **Lynx star Napheesa Collier to undergo testing after injuring ankle vs. Aces**\
 `Collier’s injury occurred with just under 30 seconds left in the third quarter as she attempted to bring in an offensive rebound.`\
 https://nytimes.com/athletic/6532627/2025/08/02/napheesa-collier-lynx-ankle-injury-aces/
