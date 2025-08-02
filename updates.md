@@ -1,3 +1,11 @@
+**A Letter to the Future**\
+`Writing yourself a letter is a good way to identify the things in your life that matter — as well as those things that you can let go.`\
+https://nytimes.com/2025/08/02/briefing/a-letter-to-the-future.html
+
+**Aston Villa summer arrival Yasin Ozcan joins Anderlecht on loan**\
+`Ozcan joined up with Unai Emery's squad on July 1 after signing a pre-contract agreement in February.`\
+https://nytimes.com/athletic/6531646/2025/08/02/yasin-ozcan-aston-villa-loan-anderlecht/
+
 **Red Sox kept core intact at trade deadline, ready to prove it was right move**\
 `The Red Sox are maintaining a defiant stance that the players they have — the ones who have gotten them this far — are good enough.`\
 https://nytimes.com/athletic/6531408/2025/08/02/red-sox-trade-deadline-jarren-duran-roman-anthony/
