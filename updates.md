@@ -1,3 +1,11 @@
+**The Astros — bold, decisive, interesting — are the team the Red Sox used to be: Kepner**\
+`Once upon a time, the Boston Red Sox were interesting. But these days, it sure seems like a lot more fun to follow a team like the Astros.`\
+https://nytimes.com/athletic/6531333/2025/08/01/red-sox-houston-astros-trade-deadline/
+
+**Way In**\
+`Robert Logan presents a mesmerizing themeless puzzle.`\
+https://nytimes.com/2025/08/01/crosswords/daily-puzzle-2025-08-02.html
+
 **Jeannie Seely, Who Pushed Boundaries and Broke Hearts at the Grand Ole Opry, Dies at 85**\
 `She blazed a trail for women in country music with the candor of her songs and her bold fashion sense. She was also the first woman to host a segment on the Opry.`\
 https://nytimes.com/2025/08/01/arts/music/jeannie-seely-dead.html
