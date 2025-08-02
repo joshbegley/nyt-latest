@@ -1,3 +1,7 @@
+**Lynx star Napheesa Collier to undergo testing after injuring ankle vs. Aces**\
+`Collier’s injury occurred with just under 30 seconds left in the third quarter as she attempted to bring in an offensive rebound.`\
+https://nytimes.com/athletic/6532627/2025/08/02/napheesa-collier-lynx-ankle-injury-aces/
+
 **Lakers general manager says it would be 'great' if LeBron retires with team**\
 `James is entering the final year of his contract with the Lakers, a deal he opted into at the end of June.`\
 https://nytimes.com/athletic/6532605/2025/08/02/lakers-lebron-james-rob-pelinka-career-nba/
