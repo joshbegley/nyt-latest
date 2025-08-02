@@ -1,3 +1,7 @@
+**Supporter takes over when official injured in League Two match**\
+`The game finished in a goalless draw after the League Two game was stopped for nearly 20 minutes.`\
+https://nytimes.com/athletic/6532396/2025/08/02/shrewsbury-fan-assistant-referee-injured/
+
 **Our 5 favorite lessons from Antonio Gates, Jared Allen and the NFL Hall of Fame inductees**\
 `Four NFL legends were inducted into the NFL Hall of Fame on Saturday. These are our favorite lessons anyone can learn from them.`\
 https://nytimes.com/athletic/6532538/2025/08/02/antonio-gates-jared-allen-nfl-hall-of-fame-speeches/
