@@ -1,3 +1,7 @@
+**Isak situation is 'complex' and 'far from ideal' - Newcastle boss Howe**\
+`Newcastle United head coach Eddie Howe has described the situation with Alexander Isak as “complex” and “far from ideal.`\
+https://nytimes.com/athletic/6531593/2025/08/02/alexander-isak-liverpool-eddie-howe-transfer-latest/
+
 **Sparks outlast Storm 108-106 in double overtime offensive thriller**\
 `The Sparks ended the game with four players scoring at least 20 points, a first in franchise history.`\
 https://nytimes.com/athletic/6531534/2025/08/02/sparks-storm-wnba-game-double-ot-analysis/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6500149/2025/08/02/nottingham-forest-zach-abbott-in
 **Could an attack of Isak, Ekitike, Salah and Wirtz really work?**\
 `Analysing how a 'Fantastic Four' could work together if Alexander Isak does end up moving to Anfield `\
 https://nytimes.com/athletic/6529932/2025/08/02/liverpool-isak-ekitike-salah-wirtz-attack/
-
-**Alex Laferriere agrees to to 3-year contract with Kings**\
-`Laferriere, a restricted free agent, totaled 19 goals and 23 assists in 77 games last season.`\
-https://nytimes.com/athletic/6531417/2025/08/02/kings-laferriere-contract/
 
