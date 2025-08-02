@@ -1,3 +1,7 @@
+**With a Joyous Festival, the Vatican Aims to Draw In the Digital Generation**\
+`In a mass gathering that has been called the “Catholic Woodstock,” the church has embraced influencers on social media as a way to engage young people.`\
+https://nytimes.com/2025/08/02/world/europe/rome-youth-catholics-pope.html
+
 **Leeds 1-1 Villarreal: Piroe's Premier League role? 4-3-3? Squad depth?**\
 `Daniel Farke's promoted side faced La Liga opposition at Elland Road on Saturday in their penultimate game of pre-season`\
 https://nytimes.com/athletic/6531927/2025/08/02/leeds-united-villarreal-score-result-report-analysis/
