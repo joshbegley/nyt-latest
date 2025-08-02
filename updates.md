@@ -1,3 +1,7 @@
+**Dragon Bravo Fire Grows to Largest Wildfire in the Continental U.S.**\
+`The fire in Grand Canyon National Park has grown to more than 100,000 acres amid dry weather and a weak monsoon season in Arizona.`\
+https://nytimes.com/2025/08/02/weather/dragon-bravo-fire-grand-canyon-update.html
+
 **Cowboys' Jerry Jones on Micah Parsons trade request: 'Don't lose any sleep over it'**\
 `“We’re in good shape. This is negotiation," Jones said Saturday at Cowboys training camp. "I think the world of Micah."`\
 https://nytimes.com/athletic/6532488/2025/08/02/micah-parsons-trade-cowboys-jerry-jones/
