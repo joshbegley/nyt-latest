@@ -1,3 +1,11 @@
+**The Astros — bold, decisive, interesting — are the team the Red Sox used to be: Kepner**\
+`Once upon a time, the Boston Red Sox were interesting. But these days, it sure seems like a lot more fun to follow a team like the Astros.`\
+https://nytimes.com/athletic/6531333/2025/08/01/red-sox-houston-astros-trade-deadline/
+
+**Way In**\
+`Robert Logan presents a mesmerizing themeless puzzle.`\
+https://nytimes.com/2025/08/01/crosswords/daily-puzzle-2025-08-02.html
+
 **Jeannie Seely, Who Pushed Boundaries and Broke Hearts at the Grand Ole Opry, Dies at 85**\
 `She blazed a trail for women in country music with the candor of her songs and her bold fashion sense. She was also the first woman to host a segment on the Opry.`\
 https://nytimes.com/2025/08/01/arts/music/jeannie-seely-dead.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6529894/2025/08/01/son-heung-min-tottenham-lafc-tra
 **Appeals Court Allows Trump Order That Ends Union Protections for Federal Workers**\
 `A famously liberal circuit court ruled in President Trump’s favor, authorizing a component of his sweeping effort to assert more control over the federal bureaucracy.`\
 https://nytimes.com/2025/08/01/us/politics/collective-bargaining-ninth-circuit.html
-
-**Senate Passes Its First Spending Bills, but Battles Lie Ahead**\
-`Overwhelming bipartisan passage of $488 billion in federal funding masked a bigger fight ahead over funding the rest of the government before a Sept. 30 shutdown deadline.`\
-https://nytimes.com/2025/08/01/us/politics/senate-bills-shutdown-trump.html
-
-**Air Traffic Controllers Were Not Tested for Alcohol After Reagan National Airport Crash**\
-`The F.A.A. has since been training on-call specialists to be snappier about administering alcohol and drug tests after a serious incident, an official said.`\
-https://nytimes.com/2025/08/01/us/politics/dc-plane-crash-atc-alcohol-drugs.html
 

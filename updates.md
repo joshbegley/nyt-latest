@@ -1,3 +1,11 @@
+**Jeannie Seely, Who Pushed Boundaries and Broke Hearts at the Grand Ole Opry, Dies at 85**\
+`She blazed a trail for women in country music with the candor of her songs and her bold fashion sense. She was also the first woman to host a segment on the Opry.`\
+https://nytimes.com/2025/08/01/arts/music/jeannie-seely-dead.html
+
+**Luis Robert Jr. 'happy' to stay with White Sox after surprise decision to not trade him**\
+`"You feel like a weight is lifted off your shoulders," Robert said before Chicago's game against the Angels. `\
+https://nytimes.com/athletic/6531325/2025/08/01/luis-robert-jr-white-sox-trade-deadline/
+
 **Luis Robert Jr. 'happy' to stay with White Sox after surprise decision to not trade him**\
 `“You feel like a weight is lifted off your shoulders,” Robert said before Chicago's game against the Angels. `\
 https://nytimes.com/athletic/6531325/2025/08/01/luis-robert-jr-white-sox-trade-deadline/

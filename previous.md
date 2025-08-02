@@ -1,5 +1,9 @@
+**Jeannie Seely, Who Pushed Boundaries and Broke Hearts at the Grand Ole Opry, Dies at 85**\
+`She blazed a trail for women in country music with the candor of her songs and her bold fashion sense. She was also the first woman to host a segment on the Opry.`\
+https://nytimes.com/2025/08/01/arts/music/jeannie-seely-dead.html
+
 **Luis Robert Jr. 'happy' to stay with White Sox after surprise decision to not trade him**\
-`“You feel like a weight is lifted off your shoulders,” Robert said before Chicago's game against the Angels. `\
+`"You feel like a weight is lifted off your shoulders," Robert said before Chicago's game against the Angels. `\
 https://nytimes.com/athletic/6531325/2025/08/01/luis-robert-jr-white-sox-trade-deadline/
 
 **Carlos Correa returns to the Astros, where the dynamic 'is completely different'**\
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/01/us/politics/senate-bills-shutdown-trump.html
 **Air Traffic Controllers Were Not Tested for Alcohol After Reagan National Airport Crash**\
 `The F.A.A. has since been training on-call specialists to be snappier about administering alcohol and drug tests after a serious incident, an official said.`\
 https://nytimes.com/2025/08/01/us/politics/dc-plane-crash-atc-alcohol-drugs.html
-
-**Army Pilots Might Have Struggled to See Passenger Jet Before D.C. Crash**\
-`Light pollution from Washington, and even the passenger jet’s dim lights, might have contributed to difficulties spotting American Airlines Flight 5342 before the two aircraft collided on Jan. 29, Army experts said.`\
-https://nytimes.com/2025/08/01/us/politics/army-pilots-jet-crash.html
 
