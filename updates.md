@@ -1,3 +1,15 @@
+**Leeds United 1-1 Villarreal: Piroe's Premier League role? 4-3-3? Squad depth?**\
+`Leeds faced Villarreal in their penultimate pre-season game at Elland Road on Saturday afternoon.`\
+https://nytimes.com/athletic/6531927/2025/08/02/leeds-united-villarreal-score-result-report-analysis/
+
+**Leafs, Nick Robertson reach 1-year, $1.8 million deal to avoid arbitration hearing**\
+`The Leafs and Robertson were scheduled to go before an arbitrator on Aug. 3 after the player elected salary arbitration earlier this month.`\
+https://nytimes.com/athletic/6510996/2025/08/02/maple-leafs-nick-robertson-contract-extension/
+
+**Charles Leclerc stuns McLaren duo for Hungarian GP pole, Hamilton exits early**\
+`Charles Leclerc claimed Ferrari's first pole of the 2025 Formula 1 season with a stunning lap in Hungarian GP qualifying`\
+https://nytimes.com/athletic/6531891/2025/08/02/hungarian-grand-prix-qualifying-results-2025/
+
 **A Fish Falls From the Sky and Sparks a Brush Fire in British Columbia**\
 `Officials say a flying osprey dropped its catch, which then struck power lines, causing sparks that ignited dry grass.`\
 https://nytimes.com/2025/08/02/world/canada/brush-fire-bc-interior-fish-power-lines.html
