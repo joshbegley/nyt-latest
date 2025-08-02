@@ -1,3 +1,7 @@
+**Oh Hello, Corn Risotto**\
+`Five stars, over 2,000 reviews and so, so corny.`\
+https://nytimes.com/2025/08/02/dining/corn-risotto-and-more-corn-recipes.html
+
 **Search for Suspect in Fatal Montana Bar Shooting Stretches Into Second Day**\
 `Authorities were focusing on brushy terrain near the town of Anaconda, where they said the suspect killed four people.`\
 https://nytimes.com/2025/08/02/us/montana-search-suspect-anaconda-bar-shooting.html
