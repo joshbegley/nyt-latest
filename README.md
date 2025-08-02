@@ -1,3 +1,7 @@
+**Thais Rally in Bangkok to Denounce Prime Minister Paetongtarn**\
+`The protesters say Prime Minister Paetongtarn Shinawatra sold out Thailand and betrayed its army in a leaked phone conversation with Cambodia’s de facto leader.`\
+https://nytimes.com/video/world/asia/100000010320578/bangkok-thailand-protests.html
+
 **Oh Hello, Corn Risotto**\
 `Five stars, over 2,000 reviews and so, so corny.`\
 https://nytimes.com/2025/08/02/dining/corn-risotto-and-more-corn-recipes.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6530203/2025/08/02/katie-ledecky-summer-mcintosh-la
 **Asencio and the sex-tape allegations which prosecutors claim warrant a prison sentence - key questions answered**\
 `On Friday, the Public Prosecutor’s Office in Spain called for a two-and-a-half-year prison sentence for the central defender`\
 https://nytimes.com/athletic/6531605/2025/08/02/real-madrid-raul-asencio-jail-explained/
-
-**Alexander Isak to return to training with Newcastle United**\
-`The Athletic reported on Friday that Newcastle had rejected an official bid from Liverpool for the Sweden international.`\
-https://nytimes.com/athletic/6529869/2025/08/02/alexander-isak-training-newcastle-united-transfer-liverpool/
 
