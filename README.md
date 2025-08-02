@@ -1,3 +1,7 @@
+**American Gretchen Walsh wins 50-meter butterfly, her second gold at world championships**\
+`Walsh kicked off a busy Saturday at the world championships with her second gold medal of the meet, winning the butterfly sprint.`\
+https://nytimes.com/athletic/6530382/2025/08/02/gretchen-walsh-jack-alexy-kaylee-mckeown-world-championships/
+
 **Thais Angered by Clash With Cambodia Mount 2nd Protest Against Leader**\
 `Prime Minister Paetongtarn Shinawatra of Thailand had already been suspended after a leaked phone call that many say showed her selling out her country.`\
 https://nytimes.com/2025/08/02/world/asia/thailand-protest-leader-cambodia-shinawatra.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/02/opinion/gwyneth-paltrow-astronomer-goop.html
 **The Gift of Making Yourself Disappear**\
 `When I constantly check in with my teenage son, am I really trying to protect him or just calming my own nerves?`\
 https://nytimes.com/2025/08/02/opinion/parenting-smart-phones.html
-
-**Why Starvation in Gaza Has Reached a Tipping Point**\
-`And what it could mean for the future of the conflict in the Middle East.`\
-https://nytimes.com/2025/08/02/opinion/gaza-famine-trump-maga-israel.html
 
