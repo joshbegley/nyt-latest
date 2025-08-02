@@ -19,7 +19,7 @@ https://nytimes.com/athletic/6529894/2025/08/01/son-heung-min-tottenham-lafc-tra
 https://nytimes.com/2025/08/01/us/politics/collective-bargaining-ninth-circuit.html
 
 **Senate Passes Its First Spending Bills, but Battles Lie Ahead**\
-`Overwhelming bipartisan passage of $506 billion in federal funding masked a bigger fight ahead over funding the rest of the government before a Sept. 30 shutdown deadline.`\
+`Overwhelming bipartisan passage of $488 billion in federal funding masked a bigger fight ahead over funding the rest of the government before a Sept. 30 shutdown deadline.`\
 https://nytimes.com/2025/08/01/us/politics/senate-bills-shutdown-trump.html
 
 **Air Traffic Controllers Were Not Tested for Alcohol After Reagan National Airport Crash**\
