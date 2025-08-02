@@ -1,40 +1,40 @@
+**Red Sox kept core intact at trade deadline, ready to prove it was right move**\
+`The Red Sox are maintaining a defiant stance that the players they have — the ones who have gotten them this far — are good enough.`\
+https://nytimes.com/athletic/6531408/2025/08/02/red-sox-trade-deadline-jarren-duran-roman-anthony/
+
+**What should the Mets expect from Cedric Mullins? Scouts, evaluators weigh in**\
+`Mullins arrived Friday about 2 1/2 hours before first pitch and was activated on the roster but not inserted into the starting lineup.`\
+https://nytimes.com/athletic/6531411/2025/08/02/mets-cedric-mullins-expectations-trade/
+
+**Do I Have to Let My Brother Crash With Me Forever?**\
+`Am I helping him get on his feet or enabling him to avoid getting the help he needs?`\
+https://nytimes.com/2025/08/02/magazine/brother-crash-forever-ethics.html
+
+**Wordle Review No. 1,506**\
+`Scroll down for hints and conversation about the puzzle for Sunday, Aug. 3, 2025.`\
+https://nytimes.com/2025/08/02/crosswords/wordle-review-1506.html
+
+**What Do Trump’s Tariff Hikes Mean for Canada’s Trade-Dependent Economy?**\
+`After Canada failed to strike a trade deal with Washington, the president raised tariffs on some Canadian exports this week.`\
+https://nytimes.com/2025/08/02/world/canada/what-do-trumps-tariff-hikes-mean-for-canadas-trade-dependent-economy.html
+
+**Strands Sidekick No. 518**\
+`Scroll down for hints and conversation about the puzzle for Sunday, Aug. 3, 2025.`\
+https://nytimes.com/2025/08/02/crosswords/strands-sidekick-518.html
+
+**Connections Companion No. 784**\
+`Scroll down for hints and conversation about the puzzle for Sunday, Aug. 3, 2025.`\
+https://nytimes.com/2025/08/02/crosswords/connections-companion-784.html
+
+**Micah Parsons trade proposals: Analyzing 3 potential offers for the Cowboys**\
+`What could the Jets, Bears and Packers offer the Cowboys in a trade for Micah Parsons? We analyzed three potential offers.`\
+https://nytimes.com/athletic/6531591/2025/08/02/micah-parsons-trade-proposals-jets-bears-packers/
+
+**How to watch UFC Fight Night: Full card, streaming for Taira vs. Park**\
+`Mixed martial arts action heads back to the UFC Apex this Saturday in Las Vegas for UFC Fight Night, featuring Taira vs. Park. `\
+https://nytimes.com/athletic/6528708/2025/08/02/ufc-fight-night-taira-park-how-to-watch/
+
 **Benjamin Sesko: Newcastle make €80m bid for RB Leipzig striker**\
 `The bid is comprised of €75m up front with a further €5m in potential add-ons, and was tabled by Newcastle in the past 24 hours.`\
 https://nytimes.com/athletic/6513448/2025/08/02/benjamin-sesko-transfer-newcastle-bid/
-
-**How to watch MVP favorite Napheesa Collier and the Lynx vs. A'ja Wilson's Aces**\
-`Can Napheesa Collier and Minnesota earn another lopsided victory over the Aces, this time in Las Vegas?`\
-https://nytimes.com/athletic/6531223/2025/08/02/lynx-aces-wnba-collier-aja-wilson-mvp-how-to-watch/
-
-**The Braves and Reds are playing an MLB game at a NASCAR track. Here's how to tune in**\
-`Engines are revved up for baseball's inaugural Speedway Classic, which pits the Braves and Reds against each other at the Bristol racetrack.`\
-https://nytimes.com/athletic/6530610/2025/08/02/braves-reds-bristol-motor-speedway-classic-how-to-watch/
-
-**Lashing Out Over Russia and Jobs Data, Trump Displays His Volatile Side**\
-`The president had been on something of a winning streak. But when faced with facts and foes that wouldn’t bend to his will, he responded with impatience and disproportionate intensity.`\
-https://nytimes.com/2025/08/02/us/politics/trump-russia-jobs.html
-
-**Why Cortez Masto Tangled With Cory Booker on the Senate Floor**\
-`The Democrat from Nevada said she refused to be lectured about how to challenge President Trump, and she argues that her party needs to do more to gain voters’ trust.`\
-https://nytimes.com/2025/08/02/us/politics/cortez-masto-cory-booker-senate-trump.html
-
-**Texas Pushes Redistricting Into an Era of ‘Maximum Warfare’**\
-`Republicans are pursuing every possible advantage, essentially trying to win elections long before people vote. In response, even some once-squeamish Democrats are talking about fighting ‘fire with fire.’`\
-https://nytimes.com/2025/08/02/us/politics/texas-redistricting-democrats-republicans-midterms.html
-
-**American Victims of Hamas and Hezbollah Attacks Sue U.N. Agency**\
-`Relatives of people killed in terrorist attacks accuse the agency that aids Palestinians of providing support to the armed groups.`\
-https://nytimes.com/2025/08/02/world/middleeast/unrwa-hamas-hezbollah-lawsuit.html
-
-**Eric Holder on Why He Reversed Course on Gerrymandering**\
-`Mr. Holder, the attorney general in the Obama administration, has long fought to end gerrymandered legislative maps. But a Republican effort in Texas threatens democracy, he said in an interview.`\
-https://nytimes.com/2025/08/02/us/politics/eric-holder-democrats-gerrymandering.html
-
-**How the New Texas Map Changes the Outlook for Control of the House**\
-`Democrats’ chances would be hurt if the map were approved, but they would still be favored.`\
-https://nytimes.com/2025/08/02/upshot/texas-map-redistricting-republicans-house.html
-
-**Donor List Suggests Scale of Trump’s Pay-for-Access Operation**\
-`A new disclosure shows how corporations and individuals, including many in the crypto business, wrote big checks while seeking favor from the president.`\
-https://nytimes.com/2025/08/02/us/politics/donor-list-suggests-scale-of-trumps-pay-for-access-operation.html
 
