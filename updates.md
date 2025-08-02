@@ -1,3 +1,7 @@
+**Our 5 favorite lessons from Antonio Gates, Jared Allen and the NFL Hall of Fame inductees**\
+`Four NFL legends were inducted into the NFL Hall of Fame on Saturday. These are our favorite lessons anyone can learn from them.`\
+https://nytimes.com/athletic/6532538/2025/08/02/antonio-gates-jared-allen-nfl-hall-of-fame-speeches/
+
 **Tennessee Man Charged in Attempt to Detonate Bombs During Arrest**\
 `The authorities said Kevin O’Neal tried to set off explosives as Polk County, Tenn., deputies entered his home. More than a dozen devices were later found.`\
 https://nytimes.com/2025/08/02/us/tennessee-man-arrested-explosives.html

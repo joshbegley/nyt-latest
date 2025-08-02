@@ -1,3 +1,7 @@
+**Supporter takes over when official injured in League Two match**\
+`The game finished in a goalless draw after the League Two game was stopped for nearly 20 minutes.`\
+https://nytimes.com/athletic/6532396/2025/08/02/shrewsbury-fan-assistant-referee-injured/
+
 **Our 5 favorite lessons from Antonio Gates, Jared Allen and the NFL Hall of Fame inductees**\
 `Four NFL legends were inducted into the NFL Hall of Fame on Saturday. These are our favorite lessons anyone can learn from them.`\
 https://nytimes.com/athletic/6532538/2025/08/02/antonio-gates-jared-allen-nfl-hall-of-fame-speeches/
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2025/08/02/world/americas/mexico-earthquake.html
 **Agency Scrutinizes Jack Smith After Republican Complaint**\
 `The former special counsel is being investigated for possible violations of the Hatch Act, which restricts partisan activities by federal employees. A G.O.P. senator had requested an inquiry over Mr. Smith’s prosecution of Donald Trump.`\
 https://nytimes.com/2025/08/02/us/politics/jack-smith-osc-trump.html
-
-**Real Madrid carry out a thorough overhaul of medical services**\
-`The La Liga side suffered a spate of injuries last season, at one point missing their entire back four.`\
-https://nytimes.com/athletic/6531875/2025/08/02/real-madrid-overhaul-of-medical-services-injuries/
 
