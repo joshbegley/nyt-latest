@@ -1,3 +1,7 @@
+**Air Traffic Controllers Were Not Tested for Alcohol After Reagan National Airport Crash**\
+`The F.A.A. has since been training on-call specialists to be snappier about administering alcohol and drug tests after a serious incident, an official said.`\
+https://nytimes.com/2025/08/01/us/politics/dc-plane-crash-atc-alcohol-drugs.html
+
 **Army Pilots Might Have Struggled to See Passenger Jet Before D.C. Crash**\
 `Light pollution from Washington, and even the passenger jet’s dim lights, might have contributed to difficulties spotting American Airlines Flight 5342 before the two aircraft collided on Jan. 29, Army experts said.`\
 https://nytimes.com/2025/08/01/us/politics/army-pilots-jet-crash.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6531200/2025/08/01/harrison-bader-phillies-outfield
 **What did Cubs chairman Tom Ricketts think of Jed Hoyer’s trade deadline?**\
 `“We had a good trade deadline,” Ricketts said. “We have a really good team, and we added to it."`\
 https://nytimes.com/athletic/6531190/2025/08/01/cubs-jed-hoyer-tom-ricketts-trade-deadline-evaluation/
-
-**Kirby Yates hits the IL with back injury as Dodgers' bullpen depth tested again**\
-`Kirby has had a disappointing season and now is dealing with a lower back injury.`\
-https://nytimes.com/athletic/6531214/2025/08/01/kirby-yates-dodgers-bullpen-injuries/
 
