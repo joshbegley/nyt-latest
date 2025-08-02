@@ -1,3 +1,11 @@
+**New addition Willi Castro has strong debut in Cubs loss to Orioles**\
+`Along with making multiple nice defensive plays, Castro had two hits, including a triple, and scored two run in his Cubs debut.`\
+https://nytimes.com/athletic/6532633/2025/08/02/cubs-willi-castro-debut-value/
+
+**An unexpected shuffle on the O-line: Five things we learned this week at Raiders training camp**\
+`The cornerback and linebacker groups also continue to take shape at Pete Carroll's first training camp in Vegas.`\
+https://nytimes.com/athletic/6532595/2025/08/02/raiders-training-camp-practice-report/
+
 **Lynx star Napheesa Collier to undergo testing after injuring ankle vs. Aces**\
 `Collier’s injury occurred with just under 30 seconds left in the third quarter as she attempted to bring in an offensive rebound.`\
 https://nytimes.com/athletic/6532627/2025/08/02/napheesa-collier-lynx-ankle-injury-aces/
