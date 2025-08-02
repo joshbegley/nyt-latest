@@ -1,3 +1,7 @@
+**How Charles Leclerc snared shock Ferrari Hungary pole: ‘Today I don’t understand F1’**\
+`Charles Leclerc even surprised himself in toppling the McLaren cars to take pole position for Formula One's 2025 Hungarian GP`\
+https://nytimes.com/athletic/6532103/2025/08/02/charles-leclerc-pole-f1-hungarian-grand-prix-2025/
+
 **Shedeur Sanders sits out Saturday’s Browns practice due to ‘arm soreness’**\
 `The rookie is part of a four-man competition for the starting job in Cleveland.`\
 https://nytimes.com/athletic/6532159/2025/08/02/shedeur-sanders-injury-browns-training-camp/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6510996/2025/08/02/maple-leafs-nick-robertson-contr
 **A Fish Falls From the Sky and Sparks a Brush Fire in British Columbia**\
 `Officials say a flying osprey dropped its catch, which then struck power lines, causing sparks that ignited dry grass.`\
 https://nytimes.com/2025/08/02/world/canada/brush-fire-bc-interior-fish-power-lines.html
-
-**Charles Leclerc stuns McLaren duo for Hungarian GP pole, Hamilton exits early**\
-`The 27-year-old claimed his team's first pole of the 2025 Formula 1 season with a stunning lap in Budapest`\
-https://nytimes.com/athletic/6531891/2025/08/02/hungarian-grand-prix-qualifying-results-2025/
 
