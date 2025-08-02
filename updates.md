@@ -1,3 +1,7 @@
+**Benjamin Sesko: Newcastle make €80m bid for RB Leipzig striker**\
+`The bid is comprised of €75m up front with a further €5m in potential add-ons, and was tabled by Newcastle in the past 24 hours.`\
+https://nytimes.com/athletic/6513448/2025/08/02/benjamin-sesko-transfer-newcastle-bid/
+
 **How to watch MVP favorite Napheesa Collier and the Lynx vs. A'ja Wilson's Aces**\
 `Can Napheesa Collier and Minnesota earn another lopsided victory over the Aces, this time in Las Vegas?`\
 https://nytimes.com/athletic/6531223/2025/08/02/lynx-aces-wnba-collier-aja-wilson-mvp-how-to-watch/
