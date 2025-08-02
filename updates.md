@@ -1,3 +1,7 @@
+**How Charles Leclerc snared shock Ferrari Hungary pole: ‘Today, I don’t understand F1’**\
+`Leclerc even surprised himself in toppling the McLarens to take pole position for Sunday's race`\
+https://nytimes.com/athletic/6532103/2025/08/02/charles-leclerc-pole-f1-hungarian-grand-prix-2025/
+
 **Chargers' Perryman found with assault-style rifles, arrested on weapons charges**\
 `The arrest occurred after deputies conducted a traffic stop of Perryman's vehicle for code violations.`\
 https://nytimes.com/athletic/6532042/2025/08/02/chargers-denzel-perryman-arrest-gun-charges/
