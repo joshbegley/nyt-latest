@@ -1,3 +1,43 @@
+**With the trade deadline over, Tigers prepare to reshape their pitching staff**\
+`The Tigers added a flurry of new arms to their organization. It could make for another creative approach to pitching down the stretch. `\
+https://nytimes.com/athletic/6531301/2025/08/02/detroit-tigers-trade-deadline-pitching-staff/
+
+**How is Notre Dame's quarterback competition going to work?**\
+`How Carr and Minchey perform during the next two weeks will both determine QB1 and set the course for Notre Dame's season.`\
+https://nytimes.com/athletic/6531144/2025/08/02/notre-dames-quarterback-competition-cj-carr-kenny-minchey/
+
+**Aaron Rodgers' mobility impresses as offense shows early growing pains at training camp**\
+`If Steelers running back is going to become a three-down back, he knows improving in pass protection is important.`\
+https://nytimes.com/athletic/6531427/2025/08/02/steelers-observations-kaleb-johnson-aaron-rodgers/
+
+**Tearful Son Heung-min prepares for emotional Tottenham goodbye**\
+`The long-serving Spurs star was clearly moved as he announced his intention to leave the club after 10 years`\
+https://nytimes.com/athletic/6531461/2025/08/02/son-heung-min-tottenham-south-korea-emotional/
+
+**Attention, Men: Books Are Sexy!**\
+`Nobody likes a dumb guy.`\
+https://nytimes.com/2025/08/02/opinion/reading-men-fiction-sexy.html
+
+**Bills Blue & Red takeaways: Keon Coleman rebounds in big way, Dalton Kincaid moving well**\
+`The backup QB battle continued and T.J. Sanders had some promising moments.`\
+https://nytimes.com/athletic/6531360/2025/08/02/bills-blue-red-practice-keon-coleman-dalton-kincaid/
+
+**Gwyneth Paltrow Is Serious. Seriously.**\
+`Why do we buy whatever it is that she is selling?`\
+https://nytimes.com/2025/08/02/opinion/gwyneth-paltrow-astronomer-goop.html
+
+**The Gift of Making Yourself Disappear**\
+`When I constantly check in with my teenage son, am I really trying to protect him or just calming my own nerves?`\
+https://nytimes.com/2025/08/02/opinion/parenting-smart-phones.html
+
+**Why Starvation in Gaza Has Reached a Tipping Point**\
+`And what it could mean for the future of the conflict in the Middle East.`\
+https://nytimes.com/2025/08/02/opinion/gaza-famine-trump-maga-israel.html
+
+**Wrinkled, Flabby, Buoyant**\
+`In water, you have achieved the impossible. You’re young and old simultaneously.`\
+https://nytimes.com/2025/08/02/opinion/old-age-swimming.html
+
 **A Letter to the Future**\
 `Writing yourself a letter is a good way to identify the things in your life that matter — as well as those things that you can let go.`\
 https://nytimes.com/2025/08/02/briefing/a-letter-to-the-future.html
