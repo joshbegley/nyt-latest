@@ -1,3 +1,7 @@
+**David Rendall, Tenor Who Suffered 2 Operatic Mishaps, Dies at 76**\
+`He appeared regularly at the Metropolitan Opera and sang in major European opera houses, but a stage accident in 2005 nearly ended his career.`\
+https://nytimes.com/2025/08/02/obituaries/david-rendall-dead.html
+
 **Map: 5.8-Magnitude Earthquake Strikes Mexico**\
 `View the location of the quake’s epicenter and shake area.`\
 https://nytimes.com/interactive/2025/08/02/world/americas/mexico-earthquake.html
