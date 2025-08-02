@@ -1,3 +1,7 @@
+**Sparks outlast Storm 108-106 in double overtime offensive thriller**\
+`The Sparks ended the game with four players scoring at least 20 points, a first in franchise history.`\
+https://nytimes.com/athletic/6531534/2025/08/02/sparks-storm-wnba-game-double-ot-analysis/
+
 **Judges Keep Restrictions on L.A. Immigration Arrests, in Setback for Trump Agenda**\
 `An appellate panel upheld a finding that federal agents appeared to rely exclusively on race and other factors, such as speaking Spanish, in making arrests.`\
 https://nytimes.com/2025/08/02/us/los-angeles-immigration-raids-ruling.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6529932/2025/08/02/liverpool-isak-ekitike-salah-wir
 **Alex Laferriere agrees to to 3-year contract with Kings**\
 `Laferriere, a restricted free agent, totaled 19 goals and 23 assists in 77 games last season.`\
 https://nytimes.com/athletic/6531417/2025/08/02/kings-laferriere-contract/
-
-**Business of Football: John Textor's new grand plan, and Premier League made to fork out for lawyers**\
-`John Textor in Iconic battle, Premier League coughing up for lawyers, and FA loses Accrington agent case in this column's latest instalment`\
-https://nytimes.com/athletic/6482580/2025/08/02/business-of-football-textor-lyon-fa-premier-league/
 

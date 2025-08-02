@@ -1,3 +1,7 @@
+**Judges Keep Restrictions on L.A. Immigration Arrests, in Setback for Trump Agenda**\
+`An appellate panel upheld a finding that federal agents appeared to rely exclusively on race and other factors, such as speaking Spanish, in making arrests.`\
+https://nytimes.com/2025/08/02/us/los-angeles-immigration-raids-ruling.html
+
 **Kenny Bednarek, Melissa Jefferson-Wooden win 100 gold at U.S. Track and Field Championships**\
 `"Amazing," Jefferson-Wooden said. "I’ve been dreaming of days like this. And it's finally starting to come true."`\
 https://nytimes.com/athletic/6531501/2025/08/02/kenny-bednarek-melissa-jefferson-wooden-gold-track-and-field-championships/
