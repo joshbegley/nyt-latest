@@ -1,3 +1,7 @@
+**A day after 8 players were traded, Joe Ryan and Twins take stock: 'It's just sobering'**\
+`Said Ryan Jeffers of deadline madness: "Maybe this is the harsh reality of what was needed for this club. It’s a hard pill to swallow."`\
+https://nytimes.com/athletic/6531549/2025/08/02/twins-joe-ryan-trade-deadline-reaction/
+
 **West Ham to sign free agent Callum Wilson after Newcastle exit**\
 `Wilson has completed a medical ahead of signing a one-year deal with the east London club, which is heavily incentive-based.`\
 https://nytimes.com/athletic/5771041/2025/08/02/callum-wilson-transfer-west-ham/
