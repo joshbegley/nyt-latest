@@ -1,3 +1,11 @@
+**Search for Suspect in Fatal Montana Bar Shooting Stretches Into Second Day**\
+`Authorities were focusing on brushy terrain near the town of Anaconda, where they said the suspect killed four people.`\
+https://nytimes.com/2025/08/02/us/montana-search-suspect-anaconda-bar-shooting.html
+
+**Texas State House Panel Advances Gerrymandered Congressional Map**\
+`The full Texas House will now vote next week on a map drawn to flip five House districts to the G.O.P., but Democrats might walk out to deny Republicans a quorum.`\
+https://nytimes.com/2025/08/02/us/politics/texas-redistricting.html
+
 **Dan Quinn says Terry McLaurin's trade request has not been a distraction**\
 `The star receiver requested a trade on Thursday.`\
 https://nytimes.com/athletic/6531718/2025/08/02/dan-quinn-comments-mclaurin-trade-request/
