@@ -1,3 +1,15 @@
+**Jazz Chisholm Jr. doubled up on popup in latest Yankees base-running gaffe**\
+`It's almost an everyday occurrence for the Yankees. Their latest inexcusable play happened in the second inning Saturday versus the Marlins.`\
+https://nytimes.com/athletic/6532571/2025/08/02/jazz-chisholm-yankees-popup-double-play/
+
+**Production Manager at Jacob’s Pillow Is Killed in ‘Tragic Accident,’ Center Says**\
+`Jacob’s Pillow canceled weekend programming as staff members grieved the death of Kat Sirico, who was moving staging platforms that toppled, the authorities said.`\
+https://nytimes.com/2025/08/02/us/jacobs-pillow-manager-death-massachusetts.html
+
+**Luka Dončić embracing 'fresh' start after signing extension with Lakers**\
+`In 28 games with the Lakers, Dončić averaged 28.2 points, 8.1 rebounds and 7.2 assists after a blockbuster trade from the Mavericks.`\
+https://nytimes.com/athletic/6530744/2025/08/02/lakers-luka-doncic-contract-extension-supermax-nba/
+
 **Broncos' Bo Nix sharpening himself in training camp battles with Pat Surtain II**\
 `Zach Allen said "it hasn't fully hit me yet" that he signed a contract making him one of NFL's highest-paid defensive linemen`\
 https://nytimes.com/athletic/6532523/2025/08/02/broncos-bo-nix-pat-surtain-training-camp/
