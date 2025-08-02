@@ -1,3 +1,15 @@
+**West Ham to sign free agent Callum Wilson after Newcastle exit**\
+`Wilson has completed a medical ahead of signing a one-year deal with the east London club, which is heavily incentive-based.`\
+https://nytimes.com/athletic/5771041/2025/08/02/callum-wilson-transfer-west-ham/
+
+**49ers' Brock Purdy likes the 'real' looks he's getting as Nick Bosa keeps wreaking havoc**\
+`"If you’re at practice and dropping back and not getting touched and going through your progressions all perfectly, to me, it can be scary."`\
+https://nytimes.com/athletic/6531297/2025/08/02/49ers-brock-purdy-nick-bosa-training-camp/
+
+**Why Even Basic Airline Seats Keep Getting More ‘Premium’**\
+`As travel demand sinks, both legacy airlines and budget brands have turned to a strategy of ever-expanding upgrades.`\
+https://nytimes.com/2025/08/02/business/dealbook/premium-airfare.html
+
 **The Pulse: The best gear for peak sports season**\
 `Welcome to The Pulse, The Athletic's daily sports newsletter.`\
 https://nytimes.com/athletic/6531479/2025/08/02/wirecutter-sports-fan-gear-the-pulse/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6531427/2025/08/02/steelers-observations-kaleb-john
 **Tearful Son Heung-min prepares for emotional Tottenham goodbye**\
 `The long-serving Spurs star was clearly moved as he announced his intention to leave the club after 10 years`\
 https://nytimes.com/athletic/6531461/2025/08/02/son-heung-min-tottenham-south-korea-emotional/
-
-**Attention, Men: Books Are Sexy!**\
-`Nobody likes a dumb guy.`\
-https://nytimes.com/2025/08/02/opinion/reading-men-fiction-sexy.html
-
-**Bills Blue & Red takeaways: Keon Coleman rebounds in big way, Dalton Kincaid moving well**\
-`The backup QB battle continued and T.J. Sanders had some promising moments.`\
-https://nytimes.com/athletic/6531360/2025/08/02/bills-blue-red-practice-keon-coleman-dalton-kincaid/
-
-**Gwyneth Paltrow Is Serious. Seriously.**\
-`Why do we buy whatever it is that she is selling?`\
-https://nytimes.com/2025/08/02/opinion/gwyneth-paltrow-astronomer-goop.html
 
