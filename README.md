@@ -1,3 +1,7 @@
+**Appeals Court Allows Trump Order That Ends Union Protections for Federal Workers**\
+`A famously liberal circuit court ruled in President Trump’s favor, authorizing a component of his sweeping effort to assert more control over the federal bureaucracy.`\
+https://nytimes.com/2025/08/01/us/politics/collective-bargaining-ninth-circuit.html
+
 **Senate Passes Its First Spending Bills, but Battles Lie Ahead**\
 `Overwhelming bipartisan passage of $506 billion in federal funding masked a bigger fight ahead over funding the rest of the government before a Sept. 30 shutdown deadline.`\
 https://nytimes.com/2025/08/01/us/politics/senate-bills-shutdown-trump.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6531174/2025/08/01/shacarri-richardson-arrest-seatt
 **Burnley on verge of completing deal for Chelsea forward Broja**\
 `Burnley are hoping to add to their goalscoring options this summer as they return to the Premier League.`\
 https://nytimes.com/athletic/6383421/2025/08/01/armando-broja-burnley-talks-chelsea-permanent-transfer/
-
-**Harrison Bader arrives, but sits as Phillies delay major outfield decisions**\
-`There are legitimate questions about how the Phillies will construct their outfield in the immediate and further down the road.`\
-https://nytimes.com/athletic/6531200/2025/08/01/harrison-bader-phillies-outfield-decisions/
 
