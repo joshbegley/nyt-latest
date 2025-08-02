@@ -1,3 +1,7 @@
+**Sun sold to group led by Celtics minority owner Steve Pagliuca, intends to move team to Boston**\
+`Celtics minority owner Steve Pagliuca is buying the Sun for $325 million, putting another $100 million towards a team facility in Boston.`\
+https://nytimes.com/athletic/6532352/2025/08/02/connecticut-sun-wnba-sale-boston-celtics-minority-owner/
+
 **Yashasvi Jaiswal, Joe Root and the chances of breaking an unbreakable record**\
 `It is early in the Indian opener's career, while Root is much closer to Tendulkar's daunting record - but will either top it?`\
 https://nytimes.com/athletic/6532371/2025/08/02/yashasvi-jaiswal-india-england-cricket-records/
