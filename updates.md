@@ -1,3 +1,11 @@
+**Cowboys' Jerry Jones on Micah Parsons trade request: 'Don't lose any sleep over it'**\
+`“We’re in good shape. This is negotiation," Jones said Saturday at Cowboys training camp. "I think the world of Micah."`\
+https://nytimes.com/athletic/6532488/2025/08/02/micah-parsons-trade-cowboys-jerry-jones/
+
+**Hundreds Protest in Tel Aviv After Hostage Videos Surface From Gaza**\
+`The circulation of videos created by Hamas showing Israeli hostages living in dire conditions incited families to protest in Tel Aviv on Saturday to demand a ceasefire and the return of their loved ones.`\
+https://nytimes.com/video/world/middleeast/100000010320633/tel-aviv-protest-following-hamas-hostage-videos.html
+
 **Supporter takes over when official injured in League Two match**\
 `The game finished in a goalless draw after the League Two game was stopped for nearly 20 minutes.`\
 https://nytimes.com/athletic/6532396/2025/08/02/shrewsbury-fan-assistant-referee-injured/

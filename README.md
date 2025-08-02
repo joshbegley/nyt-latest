@@ -1,3 +1,7 @@
+**Dragon Bravo Fire Grows to Largest Wildfire in the Continental U.S.**\
+`The fire in Grand Canyon National Park has grown to more than 100,000 acres amid dry weather and a weak monsoon season in Arizona.`\
+https://nytimes.com/2025/08/02/weather/dragon-bravo-fire-grand-canyon-update.html
+
 **Cowboys' Jerry Jones on Micah Parsons trade request: 'Don't lose any sleep over it'**\
 `“We’re in good shape. This is negotiation," Jones said Saturday at Cowboys training camp. "I think the world of Micah."`\
 https://nytimes.com/athletic/6532488/2025/08/02/micah-parsons-trade-cowboys-jerry-jones/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6532377/2025/08/02/ohio-state-preseason-camp-julian
 **Newcastle bid for Sesko falls short of RB Leipzig valuation**\
 `Newcastle have gained interest in the 22-year-old as Alexander Isak expressed a desire to leave.`\
 https://nytimes.com/athletic/6532009/2025/08/02/benjamin-sesko-newcastle-transfer-news-leipzig/
-
-**David Rendall, Tenor Who Suffered 2 Operatic Mishaps, Dies at 76**\
-`He appeared regularly at the Metropolitan Opera and sang in major European opera houses, but a stage accident in 2005 nearly ended his career.`\
-https://nytimes.com/2025/08/02/obituaries/david-rendall-dead.html
 
