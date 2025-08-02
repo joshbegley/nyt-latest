@@ -1,3 +1,7 @@
+**Mets continue to need more from their offensive stars**\
+`The top four of Brandon Nimmo, Francisco Lindor, Juan Soto and Pete Alonso went just 3-for-15 in the Mets' loss Friday.`\
+https://nytimes.com/athletic/6531497/2025/08/02/mets-need-more-offensive-stars-giants/
+
 **The rise of Forest's Zach Abbott: Pestering Milenkovic, facing City and a valuable parking spot**\
 `Zach Abbott came through the Forest academy and is now on the brink of a first-team place, despite intense competition...`\
 https://nytimes.com/athletic/6500149/2025/08/02/nottingham-forest-zach-abbott-interview/
