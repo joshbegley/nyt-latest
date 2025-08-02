@@ -1,3 +1,11 @@
+**A Fish Falls From the Sky and Sparks a Brush Fire in British Columbia**\
+`Officials say a flying osprey dropped its catch, which then struck power lines, causing sparks that ignited dry grass.`\
+https://nytimes.com/2025/08/02/world/canada/brush-fire-bc-interior-fish-power-lines.html
+
+**Hungarian Grand Prix qualifying results: Leclerc stuns McLaren duo to claim pole**\
+`Charles Leclerc claimed Ferrari's first pole of the 2025 Formula 1 season with a stunning lap in Hungarian GP qualifying`\
+https://nytimes.com/athletic/6531891/2025/08/02/hungarian-grand-prix-qualifying-results-2/
+
 **Thais Rally in Bangkok to Denounce Prime Minister Paetongtarn**\
 `The protesters say Prime Minister Paetongtarn Shinawatra sold out Thailand and betrayed its army in a leaked phone conversation with Cambodia’s de facto leader.`\
 https://nytimes.com/video/world/asia/100000010320578/bangkok-thailand-protests.html
