@@ -1,3 +1,11 @@
+**Gifford Fire Burns More Than 23,000 Acres at Los Padres Forest in California**\
+`The Gifford fire, which has been fueled by dry conditions and warm weather, has spread to two counties, officials said.`\
+https://nytimes.com/2025/08/02/us/los-padres-forest-wildfire-california.html
+
+**The Law in West Texas Breaks the Law to Protest Weed’s Prohibition**\
+`Sarah Stogner, a Republican district attorney in Texas oil country, recorded herself smoking a joint that she bought legally in New Mexico.`\
+https://nytimes.com/2025/08/02/us/politics/marijuana-texas.html
+
 **Women's Open: Charley Hull, Megan Khang join the chase after leader Miyu Yamashita**\
 `Yamashita shot a 74 on Saturday, giving new life to those who did go low at Royal Porthcawl.`\
 https://nytimes.com/athletic/6532423/2025/08/02/womens-open-hull-khang-yamashita/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/08/02/us/politics/until-trump-fired-her-she-was-an-econ
 **Dragon Bravo Fire Grows to Largest Wildfire in the Continental U.S.**\
 `The fire in Grand Canyon National Park has grown to more than 100,000 acres amid dry weather and a weak monsoon season in Arizona.`\
 https://nytimes.com/2025/08/02/weather/dragon-bravo-fire-grand-canyon-update.html
-
-**Cowboys' Jerry Jones on Micah Parsons trade request: 'Don't lose any sleep over it'**\
-`“We’re in good shape. This is negotiation," Jones said Saturday at Cowboys training camp. "I think the world of Micah."`\
-https://nytimes.com/athletic/6532488/2025/08/02/micah-parsons-trade-cowboys-jerry-jones/
-
-**Hundreds Protest in Tel Aviv After Hostage Videos Surface From Gaza**\
-`The circulation of videos created by Hamas showing Israeli hostages living in dire conditions incited families to protest in Tel Aviv on Saturday to demand a ceasefire and the return of their loved ones.`\
-https://nytimes.com/video/world/middleeast/100000010320633/tel-aviv-protest-following-hamas-hostage-videos.html
 
