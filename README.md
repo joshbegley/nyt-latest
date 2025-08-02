@@ -1,4 +1,12 @@
-**Chargers' Denzel Perryman arrested for multiple weapons violations**\
+**Luka Dončić signs 3-year, $165 million max extension with Lakers: Source**\
+`In 28 games with the Lakers, Dončić averaged 28.2 points, 8.1 rebounds and 7.2 assists after a blockbuster trade from the Mavericks.`\
+https://nytimes.com/athletic/6530744/2025/08/02/lakers-luka-doncic-contract-extension-supermax-nba/
+
+**New Hostage Videos Sow Fear and Horror in Israel**\
+`A “living skeleton, buried alive” in Gaza’s tunnels, was how the family of one hostage described him after seeing a video circulated by Hamas this week.`\
+https://nytimes.com/2025/08/02/world/europe/new-hostage-videos-sow-fear-and-horror-in-israel.html
+
+**Chargers' Denzel Perryman arrested on multiple weapons violations**\
 `The arrest occurred after deputies conducted a traffic stop of Perryman's vehicle for code violations.`\
 https://nytimes.com/athletic/6532042/2025/08/02/chargers-denzel-perryman-arrest-gun-charges/
 
@@ -29,12 +37,4 @@ https://nytimes.com/video/world/asia/100000010320578/bangkok-thailand-protests.h
 **Oh Hello, Corn Risotto**\
 `Five stars, over 2,000 reviews and so, so corny.`\
 https://nytimes.com/2025/08/02/dining/corn-risotto-and-more-corn-recipes.html
-
-**Search for Suspect in Fatal Montana Bar Shooting Stretches Into Second Day**\
-`Authorities were focusing on brushy terrain near the town of Anaconda, where they said the suspect killed four people.`\
-https://nytimes.com/2025/08/02/us/montana-search-suspect-anaconda-bar-shooting.html
-
-**Texas State House Panel Advances Gerrymandered Congressional Map**\
-`The full Texas House will now vote next week on a map drawn to flip five House districts to the G.O.P., but Democrats might walk out to deny Republicans a quorum.`\
-https://nytimes.com/2025/08/02/us/politics/texas-redistricting.html
 

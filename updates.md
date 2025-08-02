@@ -1,3 +1,7 @@
+**Chargers' Denzel Perryman arrested for multiple weapons violations**\
+`The arrest occurred after deputies conducted a traffic stop of Perryman's vehicle for code violations.`\
+https://nytimes.com/athletic/6532042/2025/08/02/chargers-denzel-perryman-arrest-gun-charges/
+
 **With a Joyous Festival, the Vatican Aims to Draw In the Digital Generation**\
 `In a mass gathering that has been called the “Catholic Woodstock,” the church has embraced influencers on social media as a way to engage young people.`\
 https://nytimes.com/2025/08/02/world/europe/rome-youth-catholics-pope.html
