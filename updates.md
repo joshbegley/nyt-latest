@@ -1,3 +1,7 @@
+**Leeds 1-1 Villarreal: Piroe's Premier League role? 4-3-3? Squad depth?**\
+`Daniel Farke's promoted side faced La Liga opposition at Elland Road on Saturday in their penultimate game of pre-season`\
+https://nytimes.com/athletic/6531927/2025/08/02/leeds-united-villarreal-score-result-report-analysis/
+
 **Leeds United 1-1 Villarreal: Piroe's Premier League role? 4-3-3? Squad depth?**\
 `Leeds faced Villarreal in their penultimate pre-season game at Elland Road on Saturday afternoon.`\
 https://nytimes.com/athletic/6531927/2025/08/02/leeds-united-villarreal-score-result-report-analysis/
