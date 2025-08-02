@@ -1,3 +1,7 @@
+**Isak situation is 'complex' and 'far from ideal' - Newcastle boss Howe**\
+`Newcastle United head coach Eddie Howe has described the situation with Alexander Isak as “complex” and “far from ideal.`\
+https://nytimes.com/athletic/6531593/2025/08/02/alexander-isak-liverpool-eddie-howe-transfer-latest/
+
 **Sparks outlast Storm 108-106 in double overtime offensive thriller**\
 `The Sparks ended the game with four players scoring at least 20 points, a first in franchise history.`\
 https://nytimes.com/athletic/6531534/2025/08/02/sparks-storm-wnba-game-double-ot-analysis/
