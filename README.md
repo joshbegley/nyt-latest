@@ -1,3 +1,7 @@
+**Yashasvi Jaiswal, Joe Root and the chances of breaking an unbreakable record**\
+`It is early in the Indian opener's career, while Root is much closer to Tendulkar's daunting record - but will either top it?`\
+https://nytimes.com/athletic/6532371/2025/08/02/yashasvi-jaiswal-india-england-cricket-records/
+
 **Newcastle bid for Sesko falls short of RB Leipzig valuation**\
 `Newcastle have gained interest in the 22-year-old as Alexander Isak expressed a desire to leave.`\
 https://nytimes.com/athletic/6532009/2025/08/02/benjamin-sesko-newcastle-transfer-news-leipzig/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6532203/2025/08/02/f1-hamilton-useless-comments-hun
 **How Charles Leclerc snared shock Ferrari Hungary pole: ‘Today, I don’t understand F1’**\
 `Leclerc even surprised himself in toppling the McLarens to take pole position for Sunday's race`\
 https://nytimes.com/athletic/6532103/2025/08/02/charles-leclerc-pole-f1-hungarian-grand-prix-2025/
-
-**Shedeur Sanders sits out Saturday’s Browns practice due to ‘arm soreness’**\
-`The rookie is part of a four-man competition for the starting job in Cleveland.`\
-https://nytimes.com/athletic/6532159/2025/08/02/shedeur-sanders-injury-browns-training-camp/
 
