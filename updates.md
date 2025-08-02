@@ -1,3 +1,11 @@
+**Consider the Canned Cocktail **\
+`Text by Antara Sinha`\
+https://nytimes.com/card/2025/08/02/smarter-living/wirecutter/
+
+**Jeannie Seely, Who Pushed Boundaries and Broke Hearts at the Grand Ole Opry, Dies at 85**\
+`She blazed a trail for women in country music with the candor of her songs and her bold fashion sense. She was the first woman to host a segment on the Opry.`\
+https://nytimes.com/2025/08/01/arts/music/jeannie-seely-dead.html
+
 **Sex toy thrown onto WNBA court for second time in 3 days, stopping game**\
 `Officials stopped play immediately after the toy flew onto the court along the baseline underneath the Sky's basket`\
 https://nytimes.com/athletic/6531364/2025/08/01/wnba-sex-toy-incident-sky-valkyries-game/
