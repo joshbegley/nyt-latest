@@ -1,3 +1,7 @@
+**Chargers' Perryman found with assault-style rifles, arrested on weapons charges**\
+`The arrest occurred after deputies conducted a traffic stop of Perryman's vehicle for code violations.`\
+https://nytimes.com/athletic/6532042/2025/08/02/chargers-denzel-perryman-arrest-gun-charges/
+
 **Hungarian Grand Prix: Hamilton calls himself 'useless' after F1 qualifying exit**\
 `Hamilton currently sits sixth in the drivers' standings, with that gap set to grow at Hungaroring.`\
 https://nytimes.com/athletic/6532203/2025/08/02/f1-hamilton-useless-comments-hungarian-grand-prix/
