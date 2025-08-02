@@ -1,3 +1,7 @@
+**Air Traffic Controllers Were Not Tested for Alcohol After Reagan National Airport Crash**\
+`The F.A.A. has since been training on-call specialists to be snappier about administering alcohol and drug tests after a serious incident, an official said.`\
+https://nytimes.com/2025/08/01/us/politics/dc-plane-crash-atc-alcohol-drugs.html
+
 **Army Pilots Might Have Struggled to See Passenger Jet Before D.C. Crash**\
 `Light pollution from Washington, and even the passenger jet’s dim lights, might have contributed to difficulties spotting American Airlines Flight 5342 before the two aircraft collided on Jan. 29, Army experts said.`\
 https://nytimes.com/2025/08/01/us/politics/army-pilots-jet-crash.html
