@@ -1,3 +1,15 @@
+**Jazz Chisholm Jr. doubled up on popup in latest Yankees base-running gaffe**\
+`It's almost an everyday occurrence for the Yankees. Their latest inexcusable play happened in the second inning Saturday versus the Marlins.`\
+https://nytimes.com/athletic/6532571/2025/08/02/jazz-chisholm-yankees-popup-double-play/
+
+**Production Manager at Jacob’s Pillow Is Killed in ‘Tragic Accident,’ Center Says**\
+`Jacob’s Pillow canceled weekend programming as staff members grieved the death of Kat Sirico, who was moving staging platforms that toppled, the authorities said.`\
+https://nytimes.com/2025/08/02/us/jacobs-pillow-manager-death-massachusetts.html
+
+**Luka Dončić embracing 'fresh' start after signing extension with Lakers**\
+`In 28 games with the Lakers, Dončić averaged 28.2 points, 8.1 rebounds and 7.2 assists after a blockbuster trade from the Mavericks.`\
+https://nytimes.com/athletic/6530744/2025/08/02/lakers-luka-doncic-contract-extension-supermax-nba/
+
 **Broncos' Bo Nix sharpening himself in training camp battles with Pat Surtain II**\
 `Zach Allen said "it hasn't fully hit me yet" that he signed a contract making him one of NFL's highest-paid defensive linemen`\
 https://nytimes.com/athletic/6532523/2025/08/02/broncos-bo-nix-pat-surtain-training-camp/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6532396/2025/08/02/shrewsbury-fan-assistant-referee
 **Our 5 favorite lessons from Antonio Gates, Jared Allen and the NFL Hall of Fame inductees**\
 `Four NFL legends were inducted into the NFL Hall of Fame on Saturday. These are our favorite lessons anyone can learn from them.`\
 https://nytimes.com/athletic/6532538/2025/08/02/antonio-gates-jared-allen-nfl-hall-of-fame-speeches/
-
-**Tennessee Man Charged in Attempt to Detonate Bombs During Arrest**\
-`The authorities said Kevin O’Neal tried to set off explosives as Polk County, Tenn., deputies entered his home. More than a dozen devices were later found.`\
-https://nytimes.com/2025/08/02/us/tennessee-man-arrested-explosives.html
-
-**Sun sold to group led by Celtics minority owner Steve Pagliuca, intends to move team to Boston**\
-`Celtics minority owner Steve Pagliuca is buying the Sun for $325 million, putting another $100 million towards a team facility in Boston.`\
-https://nytimes.com/athletic/6532352/2025/08/02/connecticut-sun-wnba-sale-boston-celtics-minority-owner/
-
-**Yashasvi Jaiswal, Joe Root and the chances of breaking an unbreakable record**\
-`It is early in the Indian opener's career, while Root is much closer to Tendulkar's daunting record - but will either top it?`\
-https://nytimes.com/athletic/6532371/2025/08/02/yashasvi-jaiswal-india-england-cricket-records/
 
