@@ -1,3 +1,7 @@
+**Map: 5.8-Magnitude Earthquake Strikes Mexico**\
+`View the location of the quake’s epicenter and shake area.`\
+https://nytimes.com/interactive/2025/08/02/world/americas/02wea-quake-tracker-mexico-nytaz1vu.html
+
 **Agency Scrutinizes Jack Smith After Republican Complaint**\
 `The former special counsel is being investigated for possible violations of the Hatch Act, which restricts partisan activities by federal employees. A G.O.P. senator had requested an inquiry over Mr. Smith’s prosecution of Donald Trump.`\
 https://nytimes.com/2025/08/02/us/politics/jack-smith-osc-trump.html

@@ -1,3 +1,7 @@
+**Map: 5.8-Magnitude Earthquake Strikes Mexico**\
+`View the location of the quake’s epicenter and shake area.`\
+https://nytimes.com/interactive/2025/08/02/world/americas/02wea-quake-tracker-mexico-nytaz1vu.html
+
 **Agency Scrutinizes Jack Smith After Republican Complaint**\
 `The former special counsel is being investigated for possible violations of the Hatch Act, which restricts partisan activities by federal employees. A G.O.P. senator had requested an inquiry over Mr. Smith’s prosecution of Donald Trump.`\
 https://nytimes.com/2025/08/02/us/politics/jack-smith-osc-trump.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6531866/2025/08/02/tour-de-france-femmes-pauline-fe
 **Luka Dončić signs 3-year, $165 million contract extension with Lakers**\
 `In 28 games with the Lakers, Dončić averaged 28.2 points, 8.1 rebounds and 7.2 assists after a blockbuster trade from the Mavericks.`\
 https://nytimes.com/athletic/6530744/2025/08/02/lakers-luka-doncic-contract-extension-supermax-nba/
-
-**New Hostage Videos Sow Fear and Horror in Israel**\
-`A “living skeleton, buried alive” in Gaza’s tunnels, was how the family of one hostage described him after seeing a video circulated by Hamas this week.`\
-https://nytimes.com/2025/08/02/world/europe/new-hostage-videos-sow-fear-and-horror-in-israel.html
 
