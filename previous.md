@@ -1,3 +1,7 @@
+**Hungarian Grand Prix: Hamilton calls himself 'useless' after F1 qualifying exit**\
+`Hamilton currently sits sixth in the drivers' standings, with that gap set to grow at Hungaroring.`\
+https://nytimes.com/athletic/6532203/2025/08/02/f1-hamilton-useless-comments-hungarian-grand-prix/
+
 **How Charles Leclerc snared shock Ferrari Hungary pole: ‘Today I don’t understand F1’**\
 `Charles Leclerc even surprised himself in toppling the McLaren cars to take pole position for Formula One's 2025 Hungarian GP`\
 https://nytimes.com/athletic/6532103/2025/08/02/charles-leclerc-pole-f1-hungarian-grand-prix-2025/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6531927/2025/08/02/leeds-united-villarreal-score-re
 **Leafs, Nick Robertson reach 1-year, $1.8 million deal to avoid arbitration hearing**\
 `The Leafs and Robertson were scheduled to go before an arbitrator on Aug. 3 after the player elected salary arbitration earlier this month.`\
 https://nytimes.com/athletic/6510996/2025/08/02/maple-leafs-nick-robertson-contract-extension/
-
-**A Fish Falls From the Sky and Sparks a Brush Fire in British Columbia**\
-`Officials say a flying osprey dropped its catch, which then struck power lines, causing sparks that ignited dry grass.`\
-https://nytimes.com/2025/08/02/world/canada/brush-fire-bc-interior-fish-power-lines.html
 
