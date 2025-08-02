@@ -1,3 +1,7 @@
+**Agency Scrutinizes Jack Smith After Republican Complaint**\
+`The former special counsel is being investigated for possible violations of the Hatch Act, which restricts partisan activities by federal employees. A G.O.P. senator had requested an inquiry over Mr. Smith’s prosecution of Donald Trump.`\
+https://nytimes.com/2025/08/02/us/politics/jack-smith-osc-trump.html
+
 **Real Madrid carry out a thorough overhaul of medical services**\
 `The La Liga side suffered a spate of injuries last season, at one point missing their entire back four.`\
 https://nytimes.com/athletic/6531875/2025/08/02/real-madrid-overhaul-of-medical-services-injuries/
