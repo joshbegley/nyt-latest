@@ -1,7 +1,3 @@
-**Lynx star Napheesa Collier to undergo testing after injuring ankle vs. Aces**\
-`Collier’s injury occurred with just under 30 seconds left in the third quarter as she attempted to bring in an offensive rebound.`\
-https://nytimes.com/athletic/6532627/2025/08/02/napheesa-collier-lynx-ankle-injury-aces/
-
 **Lakers general manager says it would be 'great' if LeBron retires with team**\
 `James is entering the final year of his contract with the Lakers, a deal he opted into at the end of June.`\
 https://nytimes.com/athletic/6532605/2025/08/02/lakers-lebron-james-rob-pelinka-career-nba/
@@ -37,4 +33,8 @@ https://nytimes.com/athletic/6530744/2025/08/02/lakers-luka-doncic-contract-exte
 **Broncos' Bo Nix sharpening himself in training camp battles with Pat Surtain II**\
 `Zach Allen said "it hasn't fully hit me yet" that he signed a contract making him one of NFL's highest-paid defensive linemen`\
 https://nytimes.com/athletic/6532523/2025/08/02/broncos-bo-nix-pat-surtain-training-camp/
+
+**Until Trump Fired Her, She Was an Economist With Bipartisan Support**\
+`Erika McEntarfer led the agency that produced key data on jobs and inflation. Then July’s report showed a weakening economy, and President Trump accused her of “rigging” the numbers.`\
+https://nytimes.com/2025/08/02/us/politics/until-trump-fired-her-she-was-an-economist-with-bipartisan-support.html
 
