@@ -1,3 +1,7 @@
+**Carlos Correa returns to the Astros, where the dynamic 'is completely different'**\
+`"I never thought this would happen or there was a chance for this to happen," Correa said before hitting cleanup Friday at Fenway Park.`\
+https://nytimes.com/athletic/6531315/2025/08/01/astros-carlos-correa-return/
+
 **Gary Busey Pleads Guilty to Sex Crime Charge Tied to Horror Movie Event**\
 `The actor, who had faced several charges, pleaded guilty to one stemming from his behavior at Monster-Mania Con in New Jersey three years ago.`\
 https://nytimes.com/2025/08/01/nyregion/gary-busey-monster-mania-con-guilty.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/01/us/politics/army-pilots-jet-crash.html
 **Guardians All-Star Steven Kwan stays in Cleveland after wild day of wondering**\
 `Kwan spent the day searching for distractions, anything, to get him to 6 p.m. ET.`\
 https://nytimes.com/athletic/6531191/2025/08/01/guardians-steven-kwan-trade-deadline-cleveland/
-
-**Why Trump’s Firing of the B.L.S. Commissioner Is So Damaging**\
-`The way the Bureau of Labor Statistics produces data is widely trusted. Firing the commissioner is damaging to that trust.`\
-https://nytimes.com/live/2025/08/01/opinion/thepoint/bls-commissioner-trump-fire-erika-mcentarfer
 
