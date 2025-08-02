@@ -1,3 +1,7 @@
+**Alexander Isak to return to training with Newcastle United**\
+`The Athletic reported on Friday that Newcastle had rejected an official bid from Liverpool for the Sweden international.`\
+https://nytimes.com/athletic/6529869/2025/08/02/alexander-isak-training-newcastle-united-transfer-liverpool/
+
 **A day after 8 players were traded, Joe Ryan and Twins take stock: 'It's just sobering'**\
 `Said Ryan Jeffers of deadline madness: "Maybe this is the harsh reality of what was needed for this club. It’s a hard pill to swallow."`\
 https://nytimes.com/athletic/6531549/2025/08/02/twins-joe-ryan-trade-deadline-reaction/
