@@ -1,5 +1,9 @@
 **Map: 5.8-Magnitude Earthquake Strikes Mexico**\
 `View the location of the quake’s epicenter and shake area.`\
+https://nytimes.com/interactive/2025/08/02/world/americas/mexico-earthquake.html
+
+**Map: 5.8-Magnitude Earthquake Strikes Mexico**\
+`View the location of the quake’s epicenter and shake area.`\
 https://nytimes.com/interactive/2025/08/02/world/americas/02wea-quake-tracker-mexico-nytaz1vu.html
 
 **Agency Scrutinizes Jack Smith After Republican Complaint**\
