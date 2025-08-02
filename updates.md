@@ -1,3 +1,7 @@
+**Sparks outlast Storm 108-106 in double overtime offensive thriller**\
+`The Sparks ended the game with four players scoring at least 20 points, a first in franchise history.`\
+https://nytimes.com/athletic/6531534/2025/08/02/sparks-storm-wnba-game-double-ot-analysis/
+
 **Judges Keep Restrictions on L.A. Immigration Arrests, in Setback for Trump Agenda**\
 `An appellate panel upheld a finding that federal agents appeared to rely exclusively on race and other factors, such as speaking Spanish, in making arrests.`\
 https://nytimes.com/2025/08/02/us/los-angeles-immigration-raids-ruling.html
