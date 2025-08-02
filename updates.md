@@ -1,3 +1,15 @@
+**Luka Dončić signs 3-year, $165 million max extension with Lakers: Source**\
+`In 28 games with the Lakers, Dončić averaged 28.2 points, 8.1 rebounds and 7.2 assists after a blockbuster trade from the Mavericks.`\
+https://nytimes.com/athletic/6530744/2025/08/02/lakers-luka-doncic-contract-extension-supermax-nba/
+
+**New Hostage Videos Sow Fear and Horror in Israel**\
+`A “living skeleton, buried alive” in Gaza’s tunnels, was how the family of one hostage described him after seeing a video circulated by Hamas this week.`\
+https://nytimes.com/2025/08/02/world/europe/new-hostage-videos-sow-fear-and-horror-in-israel.html
+
+**Chargers' Denzel Perryman arrested on multiple weapons violations**\
+`The arrest occurred after deputies conducted a traffic stop of Perryman's vehicle for code violations.`\
+https://nytimes.com/athletic/6532042/2025/08/02/chargers-denzel-perryman-arrest-gun-charges/
+
 **Chargers' Denzel Perryman arrested for multiple weapons violations**\
 `The arrest occurred after deputies conducted a traffic stop of Perryman's vehicle for code violations.`\
 https://nytimes.com/athletic/6532042/2025/08/02/chargers-denzel-perryman-arrest-gun-charges/
