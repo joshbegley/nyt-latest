@@ -1,3 +1,15 @@
+**Phillies new closer Jhoan Duran meets the moment in lights-out Citizens Bank Park debut**\
+`An electric entrance and a shutdown Citizens Bank Park debut, and Duran fever is already spreading.`\
+https://nytimes.com/athletic/6531469/2025/08/02/jhoan-duran-phillies-debut-entrance/
+
+**The New York Times in Print for Saturday, Aug. 2, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/08/02/todays-new-york-times
+
+**Yankees' new bullpen acquisitions implode against Marlins in wild loss**\
+`Jake Bird, David Bednar and Camilo Doval combined to allow nine runs in 2 1/3 innings in arguably the Yankees' worst loss of the season.`\
+https://nytimes.com/athletic/6531473/2025/08/02/yankees-new-bullpen-acquisitions-implode-marlins/
+
 **Mets continue to need more from their offensive stars**\
 `The top four of Brandon Nimmo, Francisco Lindor, Juan Soto and Pete Alonso went just 3-for-15 in the Mets' loss Friday.`\
 https://nytimes.com/athletic/6531497/2025/08/02/mets-need-more-offensive-stars-giants/
