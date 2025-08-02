@@ -1,3 +1,7 @@
+**Yankees' new bullpen acquisitions implode against Marlins in wild game**\
+`Jake Bird, David Bednar and Camilo Doval combined to allow nine runs in 2 1/3 innings in arguably the Yankees' worst loss of the season.`\
+https://nytimes.com/athletic/6531473/2025/08/02/yankees-new-bullpen-acquisitions-implode-marlins/
+
 **Mets continue to need more from their offensive stars**\
 `The top four of Brandon Nimmo, Francisco Lindor, Juan Soto and Pete Alonso went just 3-for-15 in the Mets' loss Friday.`\
 https://nytimes.com/athletic/6531497/2025/08/02/mets-need-more-offensive-stars-giants/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/02/world/asia/india-naga-repatriation-remains-museum
 **A Desperate Measure for a Desperate Land**\
 `A photographer accompanied a Jordanian aircrew as it dropped aid to Gaza, where starvation is rising.`\
 https://nytimes.com/2025/08/02/world/middleeast/gaza-aiddrop-jordan.html
-
-**Connections: Sports Edition Coach: Hints for Aug. 2, 2025**\
-`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
-https://nytimes.com/athletic/6530160/2025/08/02/connections-sports-edition-hints-for-aug-2-2025/
 
