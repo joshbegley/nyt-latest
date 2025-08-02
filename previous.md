@@ -1,3 +1,7 @@
+**Sydney McLaughlin-Levrone is all-in on the 400 meters. Look out, everyone else**\
+`The American star is focused on the 400 flat for this year's world championships. And she'll head to Tokyo as a gold-medal contender.`\
+https://nytimes.com/athletic/6532664/2025/08/02/sydney-mclaughlin-levrone-400-meters-us-track-field-championships/
+
 **New addition Willi Castro has strong debut in Cubs loss to Orioles**\
 `Along with making multiple nice defensive plays, Castro had two hits, including a triple, and scored two run in his Cubs debut.`\
 https://nytimes.com/athletic/6532633/2025/08/02/cubs-willi-castro-debut-value/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/02/crosswords/daily-puzzle-2025-08-03.html
 **Jazz Chisholm Jr. doubled up on popup in latest Yankees base-running gaffe**\
 `It's almost an everyday occurrence for the Yankees. Their latest inexcusable play happened in the second inning Saturday versus the Marlins.`\
 https://nytimes.com/athletic/6532571/2025/08/02/jazz-chisholm-yankees-popup-double-play/
-
-**Production Manager at Jacob’s Pillow Is Killed in ‘Tragic Accident,’ Center Says**\
-`Jacob’s Pillow canceled weekend programming as staff members grieved the death of Kat Sirico, who was moving staging platforms that toppled, the authorities said.`\
-https://nytimes.com/2025/08/02/us/jacobs-pillow-manager-death-massachusetts.html
 

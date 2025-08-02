@@ -1,3 +1,7 @@
+**Sydney McLaughlin-Levrone is all-in on the 400 meters. Look out, everyone else**\
+`The American star is focused on the 400 flat for this year's world championships. And she'll head to Tokyo as a gold-medal contender.`\
+https://nytimes.com/athletic/6532664/2025/08/02/sydney-mclaughlin-levrone-400-meters-us-track-field-championships/
+
 **New addition Willi Castro has strong debut in Cubs loss to Orioles**\
 `Along with making multiple nice defensive plays, Castro had two hits, including a triple, and scored two run in his Cubs debut.`\
 https://nytimes.com/athletic/6532633/2025/08/02/cubs-willi-castro-debut-value/
