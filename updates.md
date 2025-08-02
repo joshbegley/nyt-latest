@@ -1,3 +1,7 @@
+**Newcastle complete Aaron Ramsdale loan signing from Southampton**\
+`The deal includes a sizeable loan fee and option to buy at the end of the season.`\
+https://nytimes.com/athletic/6524622/2025/08/02/aaron-ramsdale-newcastle-transfer/
+
 **Giants' reduced roster wins a tight one post-deadline: 'We've not given up on you guys'**\
 `There is still a chance for the Giants to make something positive out of a frustrating season.`\
 https://nytimes.com/athletic/6531575/2025/08/02/sf-giants-win-after-trade-deadline-moves/

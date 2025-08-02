@@ -1,3 +1,7 @@
+**Newcastle complete Aaron Ramsdale loan signing from Southampton**\
+`The deal includes a sizeable loan fee and option to buy at the end of the season.`\
+https://nytimes.com/athletic/6524622/2025/08/02/aaron-ramsdale-newcastle-transfer/
+
 **Giants' reduced roster wins a tight one post-deadline: 'We've not given up on you guys'**\
 `There is still a chance for the Giants to make something positive out of a frustrating season.`\
 https://nytimes.com/athletic/6531575/2025/08/02/sf-giants-win-after-trade-deadline-moves/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/02/business/dealbook/premium-airfare.html
 **The Pulse: The best gear for peak sports season**\
 `Welcome to The Pulse, The Athletic's daily sports newsletter.`\
 https://nytimes.com/athletic/6531479/2025/08/02/wirecutter-sports-fan-gear-the-pulse/
-
-**American Gretchen Walsh wins 50-meter butterfly, her second gold at world championships**\
-`Walsh kicked off a busy Saturday at the world championships with her second gold medal of the meet, winning the butterfly sprint.`\
-https://nytimes.com/athletic/6530382/2025/08/02/gretchen-walsh-jack-alexy-kaylee-mckeown-world-championships/
 
