@@ -1,3 +1,7 @@
+**Senate Passes Its First Spending Bills, but Battles Lie Ahead**\
+`Overwhelming bipartisan passage of $506 billion in federal funding masked a bigger fight ahead over funding the rest of the government before a Sept. 30 shutdown deadline.`\
+https://nytimes.com/2025/08/01/us/politics/senate-bills-shutdown-trump.html
+
 **Air Traffic Controllers Were Not Tested for Alcohol After Reagan National Airport Crash**\
 `The F.A.A. has since been training on-call specialists to be snappier about administering alcohol and drug tests after a serious incident, an official said.`\
 https://nytimes.com/2025/08/01/us/politics/dc-plane-crash-atc-alcohol-drugs.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6383421/2025/08/01/armando-broja-burnley-talks-chel
 **Harrison Bader arrives, but sits as Phillies delay major outfield decisions**\
 `There are legitimate questions about how the Phillies will construct their outfield in the immediate and further down the road.`\
 https://nytimes.com/athletic/6531200/2025/08/01/harrison-bader-phillies-outfield-decisions/
-
-**What did Cubs chairman Tom Ricketts think of Jed Hoyer’s trade deadline?**\
-`“We had a good trade deadline,” Ricketts said. “We have a really good team, and we added to it."`\
-https://nytimes.com/athletic/6531190/2025/08/01/cubs-jed-hoyer-tom-ricketts-trade-deadline-evaluation/
 
