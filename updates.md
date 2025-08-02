@@ -1,3 +1,11 @@
+**Appeals Court Allows Trump Order That Ends Union Protections for Federal Workers**\
+`A famously liberal circuit court ruled in President Trump’s favor, authorizing a component of his sweeping effort to assert more control over the federal bureaucracy.`\
+https://nytimes.com/2025/08/01/us/politics/collective-bargaining-ninth-circuit.html
+
+**Senate Passes Its First Spending Bills, but Battles Lie Ahead**\
+`Overwhelming bipartisan passage of $506 billion in federal funding masked a bigger fight ahead over funding the rest of the government before a Sept. 30 shutdown deadline.`\
+https://nytimes.com/2025/08/01/us/politics/senate-bills-shutdown-trump.html
+
 **Air Traffic Controllers Were Not Tested for Alcohol After Reagan National Airport Crash**\
 `The F.A.A. has since been training on-call specialists to be snappier about administering alcohol and drug tests after a serious incident, an official said.`\
 https://nytimes.com/2025/08/01/us/politics/dc-plane-crash-atc-alcohol-drugs.html
