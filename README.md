@@ -1,3 +1,7 @@
+**Ann Harris, Who Edited a Stack of Best Sellers, Dies at 99**\
+`Her hits included “The Exorcist” and “The Thorn Birds,” as well as autobiographies of Betty Ford and Warren Buffett.`\
+https://nytimes.com/2025/08/03/obituaries/ann-harris-dead.html
+
 **The story of the 2025 swimming world championships in 15 photos**\
 `The 2025 swimming world championships concluded Sunday. Here's what we saw and learned, with an eye toward the 2028 Los Angeles Olympics.`\
 https://nytimes.com/athletic/6533196/2025/08/03/swimming-world-championships-summer-mcintosh-katie-ledecky-leon-marchand/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/03/us/denali-national-park-crash-moose-alaska.html
 **Victims Named in Montana Bar Shooting as Manhunt Stretches On**\
 `Those killed on Friday were a bartender and three patrons, ranging in age from 59 to 74, the authorities said. The suspect fled into the nearby foothills.`\
 https://nytimes.com/2025/08/03/us/montana-owl-bar-shooting-victims-manhunt.html
-
-**OPEC Plus Will Increase Oil Output**\
-`Eight producers, led by Saudi Arabia, will continue boosting production despite forecasts that supply will soon exceed demand.`\
-https://nytimes.com/2025/08/03/business/opec-plus-oil-output.html
 

@@ -1,3 +1,7 @@
+**The story of the 2025 swimming world championships in 15 photos**\
+`The 2025 swimming world championships concluded Sunday. Here's what we saw and learned, with an eye toward the 2028 Los Angeles Olympics.`\
+https://nytimes.com/athletic/6533196/2025/08/03/swimming-world-championships-summer-mcintosh-katie-ledecky-leon-marchand/
+
 **Russian Volcano Erupts for the First Time in Centuries**\
 `Staff members have been evacuated from the area, a statement from the local nature reserve said, adding that the volcano was too far from towns to pose a danger to people.`\
 https://nytimes.com/video/world/asia/100000010321173/russia-volcano-eruption.html
