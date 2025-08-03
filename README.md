@@ -1,3 +1,15 @@
+**Sandra Grimes, Who Helped Unmask a C.I.A. Traitor, Dies at 79**\
+`She became suspicious when she discovered large deposits in the bank account of Aldrich Ames, whose betrayal cost the lives of at least eight double agents.`\
+https://nytimes.com/2025/08/03/us/politics/sandra-grimes-dead.html
+
+**Trump Lashes Out at Charlamagne Tha God Over Epstein Comments**\
+`President Trump railed against the radio host after he said the administration’s handling of the Jeffrey Epstein case had created an opportunity for “traditional conservatives” to take back the Republican Party.`\
+https://nytimes.com/2025/08/03/us/politics/trump-charlamagne-tha-god-epstein-republicans.html
+
+**Lowetide: Oilers' AHL roster for 2025-26 coming into view**\
+`Finding a play driver will be key for Bakersfield Condors coach Colin Chaulk and his staff this fall.`\
+https://nytimes.com/athletic/6531257/2025/08/03/edmonton-oilers-ahl-roster-2025/
+
 **The Briefing: Newcastle 1 Spurs 1 - Barnes goal and Gordon's role bring positivity, but feeling of uncertainty remains**\
 `After three defeats in succession, Newcastle United brought a flicker of positivity back to their pre-season`\
 https://nytimes.com/athletic/6531816/2025/08/03/newcastle-tottenham-barnes-isak-uncertainty/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6490861/2025/08/03/thomas-partey-villarreal-transfe
 **U.S. women's medley relay, in final race of worlds, sets record to win gold-medal battle**\
 `Kate Douglass, Regan Smith, Gretchen Walsh and Torri Huske put a satisfying cap on a difficult week for the Americans in Singapore.`\
 https://nytimes.com/athletic/6533138/2025/08/03/us-womens-medley-relay-world-record-gold-championships/
-
-**Storm Floris Is Set to Hit Britain With Powerful Winds and Heavy Rain**\
-`Wind gusts of more than 80 miles per hour are possible on Monday, especially in Scotland, as officials warned residents to stay inside.`\
-https://nytimes.com/2025/08/03/weather/storm-floris-britain-powerful-winds-heavy-rain.html
-
-**Trump Administration Live Updates: Hassett Defends Firing of Top Labor Official Over Weak Jobs Numbers**\
-``\
-https://nytimes.com/live/2025/08/03/us/trump-news
-
-**A Tie-Dye Version of Jerry Garcia’s Legacy?**\
-`Readers differ on the meaning of Jerry Garcia’s politics. Also: Where students debate; more trees in cities; lawyers vs. President Trump.`\
-https://nytimes.com/2025/08/03/opinion/jerry-garcia-grateful-dead.html
 
