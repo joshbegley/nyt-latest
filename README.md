@@ -1,3 +1,7 @@
+**The New York Times International Edition in Print for Monday, Aug. 4, 2025**\
+``\
+https://nytimes.com/issue/todaysinyt/2025/08/03/todays-new-york-times-international-edition
+
 **Senate Confirms Jeanine Pirro as U.S. Attorney for D.C.**\
 `The former Fox News host, whose false statements about the 2020 election were part of a lawsuit against the network, had been serving in the role on a temporary basis.`\
 https://nytimes.com/2025/08/03/us/politics/senate-confirmation-jeanine-pirro-us-attorney.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/03/us/politics/west-point-easterly-trump-loomer.html
 **The 109-Year-Old Pact That Looms Over European Moves to Recognize a Palestinian State**\
 `The Sykes-Picot Agreement was a secret treaty Britain and France signed more than a century ago. Many consider it to have seeded a legacy of strife in the Middle East.`\
 https://nytimes.com/2025/08/03/world/middleeast/britan-france-palestine-sykes-picot-agreement.html
-
-**Inside the ‘Radical Transformation’ of America’s Environmental Role**\
-`The E.P.A. said this week it would revoke its own ability to fight climate change. It’s the latest move in an extraordinary pivot away from science-based protections.`\
-https://nytimes.com/2025/08/03/climate/trump-epa-endangerment-finding-climate-change.html
 
