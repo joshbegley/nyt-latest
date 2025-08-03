@@ -1,3 +1,11 @@
+**Boeing’s Machinists Union in St. Louis Is Set to Strike**\
+`About 3,200 workers who build Boeing fighter jets are poised to walk off the job after failing to reach an agreement on wages and retirement benefits.`\
+https://nytimes.com/2025/08/03/business/boeing-machinists-st-louis-strike.html
+
+**Shane Bieber knows his path to aiding Blue Jays in October. Now he’s one step closer**\
+`Bieber completed a fifth rehab outing on Sunday, three days after his trade to Toronto. “I'm close now,” he said ahead of the outing.`\
+https://nytimes.com/athletic/6533584/2025/08/03/shane-bieber-blue-jays/
+
 **Cricket's infuriating 6.42pm rule that meant a day of epic sport ended in farce**\
 `It was set up for an epic finish at The Oval in south London on Sunday evening - until the rules came in and spoiled it all`\
 https://nytimes.com/athletic/6533469/2025/08/03/england-india-rules-weather-cricket/
