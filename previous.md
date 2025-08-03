@@ -1,3 +1,7 @@
+**Reds' Tyler Stephenson sports Ricky Bobby-inspired gear at Speedway Classic**\
+`In honor of NASCAR and one-time Cincinnati Red Will Ferrell, Stephenson contacted his reps at Evoshield to create his custom catching gear.`\
+https://nytimes.com/athletic/6532720/2025/08/02/reds-tyler-stephenson-ricky-bobby-talladega-nights-speedway-classic/
+
 **Inter Miami star Lionel Messi leaves game vs. Necaxa with right leg injury**\
 `Trainers tended to the underside of Messi’s right leg before he exited the field, suggesting an injury to his right hamstring`\
 https://nytimes.com/athletic/6532701/2025/08/02/lionel-messi-injury-leg-necaxa-inter-miami/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6532605/2025/08/02/lakers-lebron-james-rob-pelinka-
 **Gifford Fire Burns More Than 23,000 Acres at Los Padres Forest in California**\
 `The Gifford fire, which has been fueled by dry conditions and warm weather, has spread to two counties, officials said.`\
 https://nytimes.com/2025/08/02/us/los-padres-forest-wildfire-california.html
-
-**The Law in West Texas Breaks the Law to Protest Weed’s Prohibition**\
-`Sarah Stogner, a Republican district attorney in Texas oil country, recorded herself smoking a joint that she bought legally in New Mexico.`\
-https://nytimes.com/2025/08/02/us/politics/marijuana-texas.html
 

@@ -1,3 +1,7 @@
+**Reds' Tyler Stephenson sports Ricky Bobby-inspired gear at Speedway Classic**\
+`In honor of NASCAR and one-time Cincinnati Red Will Ferrell, Stephenson contacted his reps at Evoshield to create his custom catching gear.`\
+https://nytimes.com/athletic/6532720/2025/08/02/reds-tyler-stephenson-ricky-bobby-talladega-nights-speedway-classic/
+
 **Inter Miami star Lionel Messi leaves game vs. Necaxa with right leg injury**\
 `Trainers tended to the underside of Messi’s right leg before he exited the field, suggesting an injury to his right hamstring`\
 https://nytimes.com/athletic/6532701/2025/08/02/lionel-messi-injury-leg-necaxa-inter-miami/
