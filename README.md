@@ -1,3 +1,7 @@
+**Experts Raise Concerns Over Trump’s White House Ballroom Renovation Plans**\
+`President Trump plans to build a $200 million ballroom off the East Wing “long before” the end of his term in 2029.`\
+https://nytimes.com/2025/08/03/us/politics/trump-white-house-ballroom-renovations-concerns.html
+
 **Some Chinese Weigh Painful Question: Stay or Flee Under Trump?**\
 `Over the past two years, Chinese immigrants have comprised one of the largest groups entering the United States. Some fear fines or even imprisonment if they are sent home.`\
 https://nytimes.com/2025/08/03/us/politics/chinese-stay-flee-united-states-trump.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/03/world/europe/russia-putin-internet.html
 **How to watch Fever vs. Storm: Indiana riding a winning streak without Caitlin Clark**\
 `Seattle’s hardwood hosts a marquee matinee Sunday when the red-hot Fever visit the Storm.`\
 https://nytimes.com/athletic/6531170/2025/08/03/wnba-fever-vs-storm-record-caitlin-clark-how-to-watch/
-
-**A Fight Over a West Point Job Reveals Two Visions of America Under Trump**\
-`Jen Easterly, who had served in Republican and Democratic administrations, was headed to the academy. Then a right-wing activist stepped in.`\
-https://nytimes.com/2025/08/03/us/politics/west-point-easterly-trump-loomer.html
 
