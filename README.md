@@ -1,3 +1,7 @@
+**Driver Dies After Hitting a Moose Near Denali National Park in Alaska**\
+`The crash, near the park’s only vehicular entrance at about 1 a.m. on Friday, also injured a passenger.`\
+https://nytimes.com/2025/08/03/us/denali-national-park-crash-moose-alaska.html
+
 **Victims Named in Montana Bar Shooting as Manhunt Stretches On**\
 `Those killed on Friday were a bartender and three patrons, ranging in age from 59 to 74, the authorities said. The suspect fled into the nearby foothills.`\
 https://nytimes.com/2025/08/03/us/montana-owl-bar-shooting-victims-manhunt.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/03/business/media/the-naked-gun-box-office.html
 **Sandra Grimes, Who Helped Unmask a C.I.A. Traitor, Dies at 79**\
 `She became suspicious when she discovered large deposits in the bank account of Aldrich Ames, whose betrayal cost the lives of at least eight double agents.`\
 https://nytimes.com/2025/08/03/us/politics/sandra-grimes-dead.html
-
-**Trump Lashes Out at Charlamagne Tha God Over Epstein Comments**\
-`President Trump railed against the radio host after he said the administration’s handling of the Jeffrey Epstein case had created an opportunity for “traditional conservatives” to take back the Republican Party.`\
-https://nytimes.com/2025/08/03/us/politics/trump-charlamagne-tha-god-epstein-republicans.html
 
