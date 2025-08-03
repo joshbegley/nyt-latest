@@ -1,3 +1,19 @@
+**The Briefing: Newcastle 1 Spurs 1 - Barnes goal and Gordon's role bring positivity, but feeling of uncertainty remains**\
+`After three defeats in succession, Newcastle United brought a flicker of positivity back to their pre-season`\
+https://nytimes.com/athletic/6531816/2025/08/03/newcastle-tottenham-barnes-isak-uncertainty/
+
+**Lookman hands in Atalanta transfer request, alleges 'broken promises, poor treatment'**\
+`Lookman claimed Atalanta's hierarchy have gone back on promises and are blocking a potential move away.`\
+https://nytimes.com/athletic/6533060/2025/08/03/ademola-lookman-atalanta-transfer-request/
+
+**Tottenham midfielder Maddison has suffered a 'bad knee injury' - Frank**\
+`Maddison, who left the pitch on a stretcher, was in visible pain while doctors treated him on the pitch.`\
+https://nytimes.com/athletic/6533203/2025/08/03/tottenham-maddison-injury-news-knee/
+
+**U.S. and Israeli Officials Float Idea of ‘All or Nothing’ Gaza Deal**\
+`The apparent shift in tone comes as cease-fire negotiations have hit a wall and pressure is mounting on Israel over the hunger crisis in Gaza. But Israel and Hamas remain far apart on the terms of any deal.`\
+https://nytimes.com/2025/08/03/world/middleeast/israel-gaza-hamas-ceasefire.html
+
 **Trump Administration Live Updates: Hassett Defends Firing of Top Labor Official Over Weak Jobs Numbers**\
 ``\
 https://nytimes.com/live/2025/08/03/us/trump-news

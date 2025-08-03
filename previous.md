@@ -1,3 +1,19 @@
+**The Briefing: Newcastle 1 Spurs 1 - Barnes goal and Gordon's role bring positivity, but feeling of uncertainty remains**\
+`After three defeats in succession, Newcastle United brought a flicker of positivity back to their pre-season`\
+https://nytimes.com/athletic/6531816/2025/08/03/newcastle-tottenham-barnes-isak-uncertainty/
+
+**Lookman hands in Atalanta transfer request, alleges 'broken promises, poor treatment'**\
+`Lookman claimed Atalanta's hierarchy have gone back on promises and are blocking a potential move away.`\
+https://nytimes.com/athletic/6533060/2025/08/03/ademola-lookman-atalanta-transfer-request/
+
+**Tottenham midfielder Maddison has suffered a 'bad knee injury' - Frank**\
+`Maddison, who left the pitch on a stretcher, was in visible pain while doctors treated him on the pitch.`\
+https://nytimes.com/athletic/6533203/2025/08/03/tottenham-maddison-injury-news-knee/
+
+**U.S. and Israeli Officials Float Idea of ‘All or Nothing’ Gaza Deal**\
+`The apparent shift in tone comes as cease-fire negotiations have hit a wall and pressure is mounting on Israel over the hunger crisis in Gaza. But Israel and Hamas remain far apart on the terms of any deal.`\
+https://nytimes.com/2025/08/03/world/middleeast/israel-gaza-hamas-ceasefire.html
+
 **Ukraine Announces Arrests Targeting Corruption in Military Procurement**\
 `The arrests came days after President Volodymyr Zelensky’s U-turn on an effort to neuter anticorruption agencies.`\
 https://nytimes.com/2025/08/03/world/europe/ukraine-corruption-zelensky.html
@@ -21,20 +37,4 @@ https://nytimes.com/live/2025/08/03/us/trump-news
 **A Tie-Dye Version of Jerry Garcia’s Legacy?**\
 `Readers differ on the meaning of Jerry Garcia’s politics. Also: Where students debate; more trees in cities; lawyers vs. President Trump.`\
 https://nytimes.com/2025/08/03/opinion/jerry-garcia-grateful-dead.html
-
-**Summer McIntosh caps superb world championships with record swim and fourth gold**\
-`McIntosh became just the fifth swimmer to ever win four individual golds at a single world championships.`\
-https://nytimes.com/athletic/6533048/2025/08/03/summer-mcintosh-400-im-gold-world-championships-record/
-
-**Influencer Missionaries**\
-`Christianity has a branding problem — but influencers are helping, one vertical video at a time.`\
-https://nytimes.com/2025/08/03/briefing/christian-influencers.html
-
-**Lilly King, U.S. star who finger-wagged to Olympic gold in Rio, says farewell to swimming**\
-`King, whose rivalry with a Russian swimmer was one of the highlights of the 2016 Games, says the world championships will be her final meet.`\
-https://nytimes.com/athletic/6533045/2025/08/03/lilly-king-swimming-retirement-world-championships/
-
-**Brown: F1’s political battles will be ‘healthier’ after Horner’s Red Bull exit**\
-`Brown and Horner have been at odds in recent years. Laurent Mekies is now in charge of Red Bull.`\
-https://nytimes.com/athletic/6533055/2025/08/03/zak-brown-christian-horner-f1/
 
