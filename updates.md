@@ -1,3 +1,11 @@
+**Inter Miami star Lionel Messi leaves game vs. Necaxa with right leg injury**\
+`Trainers tended to the underside of Messi’s right leg before he exited the field, suggesting an injury to his right hamstring`\
+https://nytimes.com/athletic/6532701/2025/08/02/lionel-messi-injury-leg-necaxa-inter-miami/
+
+**Vicky Mboko dominates Coco Gauff in straight sets at Canadian Open**\
+`This time last year, Mboko was ranked outside the top 300. Now, the 18-year-old Canadian is into the quarterfinals of her home tournament.`\
+https://nytimes.com/athletic/6532727/2025/08/02/vicky-mboko-coco-gauff-match-canadian-open/
+
 **Behind Aaron Rodgers, Rudolph perfects the art of staying ready: Steelers training camp observations**\
 `Plus, James Pierre reels in two interceptions during Saturday's light practice.`\
 https://nytimes.com/athletic/6532684/2025/08/02/mason-rudolph-aaron-rodgers-backup-steelers-training-camp/

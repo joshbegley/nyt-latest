@@ -1,3 +1,11 @@
+**Inter Miami star Lionel Messi leaves game vs. Necaxa with right leg injury**\
+`Trainers tended to the underside of Messi’s right leg before he exited the field, suggesting an injury to his right hamstring`\
+https://nytimes.com/athletic/6532701/2025/08/02/lionel-messi-injury-leg-necaxa-inter-miami/
+
+**Vicky Mboko dominates Coco Gauff in straight sets at Canadian Open**\
+`This time last year, Mboko was ranked outside the top 300. Now, the 18-year-old Canadian is into the quarterfinals of her home tournament.`\
+https://nytimes.com/athletic/6532727/2025/08/02/vicky-mboko-coco-gauff-match-canadian-open/
+
 **Behind Aaron Rodgers, Rudolph perfects the art of staying ready: Steelers training camp observations**\
 `Plus, James Pierre reels in two interceptions during Saturday's light practice.`\
 https://nytimes.com/athletic/6532684/2025/08/02/mason-rudolph-aaron-rodgers-backup-steelers-training-camp/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/08/02/us/los-padres-forest-wildfire-california.html
 **The Law in West Texas Breaks the Law to Protest Weed’s Prohibition**\
 `Sarah Stogner, a Republican district attorney in Texas oil country, recorded herself smoking a joint that she bought legally in New Mexico.`\
 https://nytimes.com/2025/08/02/us/politics/marijuana-texas.html
-
-**Women's Open: Charley Hull, Megan Khang join the chase after leader Miyu Yamashita**\
-`Yamashita shot a 74 on Saturday, giving new life to those who did go low at Royal Porthcawl.`\
-https://nytimes.com/athletic/6532423/2025/08/02/womens-open-hull-khang-yamashita/
-
-**Heavenly Voices**\
-`Jeremy Newton’s latest construction will leave you beaming.`\
-https://nytimes.com/2025/08/02/crosswords/daily-puzzle-2025-08-03.html
 
