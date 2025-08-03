@@ -1,3 +1,7 @@
+**A Lighter Take on a Slow-Cooker Classic**\
+`Kia Damon’s Mississippi chicken swaps the packaged seasoning for garlic and fresh herbs, but keeps the pepperoncini and butter for plenty of oomph.`\
+https://nytimes.com/2025/08/03/dining/easy-slow-cooker-mississippi-chicken-recipe.html
+
 **Hungarian Grand Prix: Norris wins a thriller over Piastri, Leclerc's victory evaporates**\
 `A Ferrari turnaround win disappeared as the McLarens put on a show. The drivers' title gap is now under 10 points `\
 https://nytimes.com/athletic/6533166/2025/08/03/hungarian-grand-prix-2025-result-lando-norris-mclaren-charles-leclerc/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6533060/2025/08/03/ademola-lookman-atalanta-transfe
 **Tottenham midfielder Maddison has suffered a 'bad knee injury' - Frank**\
 `Maddison, who left the pitch on a stretcher, was in visible pain while doctors treated him on the pitch.`\
 https://nytimes.com/athletic/6533203/2025/08/03/tottenham-maddison-injury-news-knee/
-
-**U.S. and Israeli Officials Float Idea of ‘All or Nothing’ Gaza Deal**\
-`The apparent shift in tone comes as cease-fire negotiations have hit a wall and pressure is mounting on Israel over the hunger crisis in Gaza. But Israel and Hamas remain far apart on the terms of any deal.`\
-https://nytimes.com/2025/08/03/world/middleeast/israel-gaza-hamas-ceasefire.html
 

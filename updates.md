@@ -1,3 +1,7 @@
+**A Lighter Take on a Slow-Cooker Classic**\
+`Kia Damon’s Mississippi chicken swaps the packaged seasoning for garlic and fresh herbs, but keeps the pepperoncini and butter for plenty of oomph.`\
+https://nytimes.com/2025/08/03/dining/easy-slow-cooker-mississippi-chicken-recipe.html
+
 **Hungarian Grand Prix: Norris wins a thriller over Piastri, Leclerc's victory evaporates**\
 `A Ferrari turnaround win disappeared as the McLarens put on a show. The drivers' title gap is now under 10 points `\
 https://nytimes.com/athletic/6533166/2025/08/03/hungarian-grand-prix-2025-result-lando-norris-mclaren-charles-leclerc/
