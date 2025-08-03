@@ -1,3 +1,12 @@
+**How Pauline Ferrand-Prevot became the first French winner of the Tour de France Femmes**\
+`This year's race was always likely to come down to the final weekend in the mountains, and so it proved on Sunday...
+`\
+https://nytimes.com/athletic/6533527/2025/08/03/tour-de-france-femmes-ferrand-prevot/
+
+**Boeing Workers Who Make Fighter Jets Are Set to Strike**\
+`About 3,200 machinists in St. Louis are poised to walk off the job after failing to reach an agreement on wages and retirement benefits.`\
+https://nytimes.com/2025/08/03/business/boeing-machinists-st-louis-strike.html
+
 **A sobering sweep, the future of two top prospects and Cam Smith's slump: Astros takeaways**\
 `On a disappointing post-deadline series in Boston, Brice Matthews' and Jacob Melton's futures and Smith's bad month.`\
 https://nytimes.com/athletic/6533629/2025/08/03/astros-swept-red-sox-cam-smith/

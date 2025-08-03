@@ -1,3 +1,7 @@
+**More Than 60 Migrants Dead After Boat Capsizes Off the Coast of Yemen**\
+`The trip across the Gulf of Aden is the first leg of one of the world’s riskiest — and busiest — migration and smuggling routes.`\
+https://nytimes.com/2025/08/03/world/middleeast/yemen-migration-saudi.html
+
 **How Pauline Ferrand-Prevot became the first French winner of the Tour de France Femmes**\
 `This year's race was always likely to come down to the final weekend in the mountains, and so it proved on Sunday...
 `\
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/6533570/2025/08/03/usmnt-sergino-dest-psv-goal-supe
 **'A beautiful ending to a beautiful story' - Son Heung-min's final game for Spurs**\
 `Tottenham's much-loved captain played his final game for the club, as Spurs drew 1-1 with Newcastle on an emotionally-charged night in Seoul`\
 https://nytimes.com/athletic/6533450/2025/08/03/son-last-game-tottenham-newcastle-korea/
-
-**Cricket's infuriating 6.42pm rule that meant a day of epic sport ended in farce**\
-`It was set up for an epic finish at The Oval in south London on Sunday evening - until the rules came in and spoiled it all`\
-https://nytimes.com/athletic/6533469/2025/08/03/england-india-rules-weather-cricket/
 

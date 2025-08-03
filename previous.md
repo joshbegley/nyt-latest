@@ -1,9 +1,14 @@
+**How Pauline Ferrand-Prevot became the first French winner of the Tour de France Femmes**\
+`This year's race was always likely to come down to the final weekend in the mountains, and so it proved on Sunday...
+`\
+https://nytimes.com/athletic/6533527/2025/08/03/tour-de-france-femmes-ferrand-prevot/
+
 **A sobering sweep, the future of two top prospects and Cam Smith's slump: Astros takeaways**\
 `On a disappointing post-deadline series in Boston, Brice Matthews' and Jacob Melton's futures and Smith's bad month.`\
 https://nytimes.com/athletic/6533629/2025/08/03/astros-swept-red-sox-cam-smith/
 
-**Boeing’s Machinists Union in St. Louis Is Set to Strike**\
-`About 3,200 workers who build Boeing fighter jets are poised to walk off the job after failing to reach an agreement on wages and retirement benefits.`\
+**Boeing Workers Who Make Fighter Jets Are Set to Strike**\
+`About 3,200 machinists in St. Louis are poised to walk off the job after failing to reach an agreement on wages and retirement benefits.`\
 https://nytimes.com/2025/08/03/business/boeing-machinists-st-louis-strike.html
 
 **Shane Bieber knows his path to aiding Blue Jays in October. Now he’s one step closer**\
@@ -33,8 +38,4 @@ https://nytimes.com/athletic/6533450/2025/08/03/son-last-game-tottenham-newcastl
 **Cricket's infuriating 6.42pm rule that meant a day of epic sport ended in farce**\
 `It was set up for an epic finish at The Oval in south London on Sunday evening - until the rules came in and spoiled it all`\
 https://nytimes.com/athletic/6533469/2025/08/03/england-india-rules-weather-cricket/
-
-**Did McLaren favor Norris over Piastri in Hungary? Why the team says no**\
-`A bold strategy, worn tires and rising tension — Norris’s win showed just how fine the margin is in McLaren’s title fight`\
-https://nytimes.com/athletic/6533320/2025/08/03/lando-norris-hungarian-gp-strategy-oscar-piastri/
 
