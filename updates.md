@@ -1,3 +1,7 @@
+**A sobering sweep, the future of two top prospects and Cam Smith's slump: Astros takeaways**\
+`On a disappointing post-deadline series in Boston, Brice Matthews' and Jacob Melton's futures and Smith's bad month.`\
+https://nytimes.com/athletic/6533629/2025/08/03/astros-swept-red-sox-cam-smith/
+
 **Boeing’s Machinists Union in St. Louis Is Set to Strike**\
 `About 3,200 workers who build Boeing fighter jets are poised to walk off the job after failing to reach an agreement on wages and retirement benefits.`\
 https://nytimes.com/2025/08/03/business/boeing-machinists-st-louis-strike.html

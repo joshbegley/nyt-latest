@@ -1,3 +1,7 @@
+**A sobering sweep, the future of two top prospects and Cam Smith's slump: Astros takeaways**\
+`On a disappointing post-deadline series in Boston, Brice Matthews' and Jacob Melton's futures and Smith's bad month.`\
+https://nytimes.com/athletic/6533629/2025/08/03/astros-swept-red-sox-cam-smith/
+
 **Boeing’s Machinists Union in St. Louis Is Set to Strike**\
 `About 3,200 workers who build Boeing fighter jets are poised to walk off the job after failing to reach an agreement on wages and retirement benefits.`\
 https://nytimes.com/2025/08/03/business/boeing-machinists-st-louis-strike.html
@@ -22,6 +26,10 @@ https://nytimes.com/athletic/6533546/2025/08/03/colts-salvon-ahmed-leg-injury-hi
 `The 24-year-old’s goal helped the PSV win their 15th Dutch Super Cup (Johan Cruijff Shield).`\
 https://nytimes.com/athletic/6533570/2025/08/03/usmnt-sergino-dest-psv-goal-super-cup/
 
+**'A beautiful ending to a beautiful story' - Son Heung-min's final game for Spurs**\
+`Tottenham's much-loved captain played his final game for the club, as Spurs drew 1-1 with Newcastle on an emotionally-charged night in Seoul`\
+https://nytimes.com/athletic/6533450/2025/08/03/son-last-game-tottenham-newcastle-korea/
+
 **Cricket's infuriating 6.42pm rule that meant a day of epic sport ended in farce**\
 `It was set up for an epic finish at The Oval in south London on Sunday evening - until the rules came in and spoiled it all`\
 https://nytimes.com/athletic/6533469/2025/08/03/england-india-rules-weather-cricket/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6533469/2025/08/03/england-india-rules-weather-cric
 **Did McLaren favor Norris over Piastri in Hungary? Why the team says no**\
 `A bold strategy, worn tires and rising tension — Norris’s win showed just how fine the margin is in McLaren’s title fight`\
 https://nytimes.com/athletic/6533320/2025/08/03/lando-norris-hungarian-gp-strategy-oscar-piastri/
-
-**Tottenham complete loan signing of Palhinha from Bayern Munich**\
-`The deal includes an option to make the transfer permanent for €30million (£25.9m, $34.2m) at the end of the season.`\
-https://nytimes.com/athletic/6529806/2025/08/03/tottenham-palhinha-transfer-signing-news/
-
-**'A beautiful ending to a beautiful story' - Son Heung-min's final game for Spurs**\
-`Tottenham's much-loved captain played his final game for the club, as Spurs drew 1-1 with Newcastle on an emotionally-charged night in Seoul`\
-https://nytimes.com/athletic/6533450/2025/08/03/son-last-game-tottenham-newcastle-korea/
 
