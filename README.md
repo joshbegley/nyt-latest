@@ -1,3 +1,19 @@
+**No Passports, No Study Abroad: China Limits Public Employees’ Travel**\
+`Even low-level government employees like elementary school teachers and nurses have been ordered to hand in their passports, to enforce “discipline.”`\
+https://nytimes.com/2025/08/03/world/asia/china-passports-civil-servants.html
+
+**Quote of the Day: Texas Pushes Redistricting Into an Era of ‘Maximum Warfare’**\
+`Quote of the Day for Sunday, August 3, 2025`\
+https://nytimes.com/2025/08/03/pageoneplus/quote-of-the-day-texas-pushes-redistricting-into-an-era-of-maximum-warfare.html
+
+**Connections: Sports Edition Coach: Hints for Aug. 3, 2025**\
+`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
+https://nytimes.com/athletic/6531163/2025/08/03/connections-sports-edition-hints-for-aug-3-2025-puzzle-no-314/
+
+**No Corrections: Aug. 3, 2025**\
+`No corrections appeared in print on Sunday, Aug. 3, 2025.`\
+https://nytimes.com/2025/08/03/pageoneplus/no-corrections-aug-3-2025.html
+
 **Damian Lillard to serve in general manager role at alma mater Weber State**\
 `Lillard's move to become general manager follows in the footsteps of other NBA players who have stepped into similar roles.`\
 https://nytimes.com/athletic/6532875/2025/08/02/damian-lillard-general-manager-weber-state/
@@ -21,20 +37,4 @@ https://nytimes.com/interactive/2025/08/02/nyregion/new-jersey-earthquake.html
 **A decade after crying on the field amid trade rumors, Wilmer Flores glad he's still a Giant**\
 `Flores has been conditioned to understand the business side of baseball. A decade ago? Not so much.`\
 https://nytimes.com/athletic/6532794/2025/08/02/decade-after-crying-on-the-field-wilmer-flores-trade-deadline/
-
-**Despite dismal season, Braves faithful flock to Speedway Classic**\
-`Tens of thousands of Braves fans turned out for the Speedway Classic game Saturday night in Bristol.`\
-https://nytimes.com/athletic/6532778/2025/08/02/loyal-braves-fans-speedway-classic/
-
-**Brazil tops Colombia to capture historic 9th Copa América title in shootout**\
-`After a campaign that saw scant crowds in the stands across Ecuador, the cinematic final drew the biggest attendance of the tournament. `\
-https://nytimes.com/athletic/6532662/2025/08/02/copa-america-femenina-brazil-colombia-penalty-shootout-results/
-
-**In a battle of aces, Zack Wheeler's command remained elusive in Phillies loss**\
-`The Phillies’ ace has allowed three or more runs in just six of 22 starts this year, but three of those starts have come in the past month.`\
-https://nytimes.com/athletic/6532671/2025/08/02/phillies-zack-wheeler-command-problems/
-
-**Carlos Correa brings spark to Astros, but production questions linger**\
-`Vibes are important, but production wins pennants. How much of it Correa can contribute is a legitimate question.`\
-https://nytimes.com/athletic/6532705/2025/08/02/carlos-correas-astros-spark-production/
 

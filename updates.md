@@ -1,3 +1,7 @@
+**Damian Lillard to serve in general manager role at alma mater Weber State**\
+`Lillard's move to become general manager follows in the footsteps of other NBA players who have stepped into similar roles.`\
+https://nytimes.com/athletic/6532875/2025/08/02/damian-lillard-general-manager-weber-state/
+
 **MLB suspends first Speedway Classic due to rain**\
 `The Atlanta Braves and Cincinnati Reds played less than a full inning Saturday night after a 2 1/2 hour rain delay.`\
 https://nytimes.com/athletic/6532872/2025/08/02/mlb-suspends-speedway-classic-reds-braves/
