@@ -14,7 +14,7 @@ https://nytimes.com/athletic/6533138/2025/08/03/us-womens-medley-relay-world-rec
 `Wind gusts of more than 80 miles per hour are possible on Monday, especially in Scotland, as officials warned residents to stay inside.`\
 https://nytimes.com/2025/08/03/weather/storm-floris-britain-powerful-winds-heavy-rain.html
 
-**Trump Administration Live Updates: Senate Confirms Jeanine Pirro as U.S. Attorney for D.C.**\
+**Trump Administration Live Updates: Hassett Defends Firing of Top Labor Official Over Weak Jobs Numbers**\
 ``\
 https://nytimes.com/live/2025/08/03/us/trump-news
 

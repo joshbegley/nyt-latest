@@ -1,3 +1,7 @@
+**Ukraine Announces Arrests Targeting Corruption in Military Procurement**\
+`The arrests came days after President Volodymyr Zelensky’s U-turn on an effort to neuter anticorruption agencies.`\
+https://nytimes.com/2025/08/03/world/europe/ukraine-corruption-zelensky.html
+
 **Former Arsenal midfielder Partey set to join Villarreal**\
 `Partey, 32, has undergone a medical and is expected to sign a two-year deal with the Spanish club through to 2027.`\
 https://nytimes.com/athletic/6490861/2025/08/03/thomas-partey-villarreal-transfer/

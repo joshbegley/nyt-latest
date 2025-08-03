@@ -1,3 +1,7 @@
+**Ukraine Announces Arrests Targeting Corruption in Military Procurement**\
+`The arrests came days after President Volodymyr Zelensky’s U-turn on an effort to neuter anticorruption agencies.`\
+https://nytimes.com/2025/08/03/world/europe/ukraine-corruption-zelensky.html
+
 **Former Arsenal midfielder Partey set to join Villarreal**\
 `Partey, 32, has undergone a medical and is expected to sign a two-year deal with the Spanish club through to 2027.`\
 https://nytimes.com/athletic/6490861/2025/08/03/thomas-partey-villarreal-transfer/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6533045/2025/08/03/lilly-king-swimming-retirement-w
 **Brown: F1’s political battles will be ‘healthier’ after Horner’s Red Bull exit**\
 `Brown and Horner have been at odds in recent years. Laurent Mekies is now in charge of Red Bull.`\
 https://nytimes.com/athletic/6533055/2025/08/03/zak-brown-christian-horner-f1/
-
-**Re-ranking the 49ers’ rookie class: 3 undrafted players make the top 10**\
-`Mykel Williams might have been the 49ers' top draft pick, but he's not No. 1 on our 1-18 ranking of rookie performers.`\
-https://nytimes.com/athletic/6532569/2025/08/03/49ers-training-camp-rookie-rankings/
 
