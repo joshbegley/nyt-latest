@@ -1,3 +1,11 @@
+**Wings trade DiJonai Carrington to Lynx for Miller, Samuelson, draft pick**\
+`Carrington appeared in 20 games with the Wings this season, averaging 10.4 points, a career-high 5.1 rebounds and 1.8 assists.`\
+https://nytimes.com/athletic/6533194/2025/08/03/dijonai-carrington-trade-wings-lynx/
+
+**A Solid Debut for ‘The Naked Gun’**\
+`The film, one of the few comedies getting a theatrical release this year, generated about $17 million at the box office.`\
+https://nytimes.com/2025/08/03/business/media/the-naked-gun-box-office.html
+
 **Sandra Grimes, Who Helped Unmask a C.I.A. Traitor, Dies at 79**\
 `She became suspicious when she discovered large deposits in the bank account of Aldrich Ames, whose betrayal cost the lives of at least eight double agents.`\
 https://nytimes.com/2025/08/03/us/politics/sandra-grimes-dead.html
