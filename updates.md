@@ -1,3 +1,7 @@
+**MLB suspends first Speedway Classic due to rain**\
+`The Atlanta Braves and Cincinnati Reds played less than a full inning Saturday night after a 2 1/2 hour rain delay.`\
+https://nytimes.com/athletic/6532872/2025/08/02/mlb-suspends-speedway-classic-reds-braves/
+
 **Earthquake Jolts New Jersey and New York City**\
 `The epicenter of the 3.0-magnitude quake, which struck around 10:20 p.m. on Saturday, was near Teterboro Airport in New Jersey.`\
 https://nytimes.com/2025/08/02/nyregion/earthquake-new-york-new-jersey.html
