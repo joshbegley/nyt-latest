@@ -1,3 +1,7 @@
+**Are the Premier League’s traditional 'Big Six' buying more from the rest of the league?**\
+`Are there more PL to PL transfers overall? Is the 'Big Six' singing more domestic players? And why is this happening?`\
+https://nytimes.com/athletic/6524728/2025/08/03/why-the-premier-leagues-traditional-big-six-are-buying-more-from-the-rest-of-the-league/
+
 **Liverpool and Newcastle have made Isak and Sesko bids. Will either of them get their striker?**\
 `Over the course of Friday and Saturday, there were developments in Liverpool's pursuit of Isak and Newcastle's push for Sesko`\
 https://nytimes.com/athletic/6531791/2025/08/03/liverpool-newcastle-alexander-isak-benjamin-sesko-transfer-latest/
