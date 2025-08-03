@@ -1,3 +1,19 @@
+**No Passports, No Study Abroad: China Limits Public Employees’ Travel**\
+`Even low-level government employees like elementary school teachers and nurses have been ordered to hand in their passports, to enforce “discipline.”`\
+https://nytimes.com/2025/08/03/world/asia/china-passports-civil-servants.html
+
+**Quote of the Day: Texas Pushes Redistricting Into an Era of ‘Maximum Warfare’**\
+`Quote of the Day for Sunday, August 3, 2025`\
+https://nytimes.com/2025/08/03/pageoneplus/quote-of-the-day-texas-pushes-redistricting-into-an-era-of-maximum-warfare.html
+
+**Connections: Sports Edition Coach: Hints for Aug. 3, 2025**\
+`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
+https://nytimes.com/athletic/6531163/2025/08/03/connections-sports-edition-hints-for-aug-3-2025-puzzle-no-314/
+
+**No Corrections: Aug. 3, 2025**\
+`No corrections appeared in print on Sunday, Aug. 3, 2025.`\
+https://nytimes.com/2025/08/03/pageoneplus/no-corrections-aug-3-2025.html
+
 **Damian Lillard to serve in general manager role at alma mater Weber State**\
 `Lillard's move to become general manager follows in the footsteps of other NBA players who have stepped into similar roles.`\
 https://nytimes.com/athletic/6532875/2025/08/02/damian-lillard-general-manager-weber-state/
