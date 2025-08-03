@@ -1,3 +1,11 @@
+**Texas Democrats to Leave State to Block G.O.P. From Redrawing Political Map**\
+`The move would be a sharp escalation in the bitterly partisan clash over a congressional redistricting requested by President Trump.`\
+https://nytimes.com/2025/08/03/us/texas-democrats-walkout-redistricting-map-gop.html
+
+**James Cook sits out Bills practice, calls it 'business'**\
+`Cook has openly wanted a new contract. When asked for a reason why the running back did not participate, the team issued a "no comment."`\
+https://nytimes.com/athletic/6533534/2025/08/03/bills-james-cook-practice-contract/
+
 **More Than 60 Migrants Dead After Boat Capsizes Off the Coast of Yemen**\
 `The trip across the Gulf of Aden is the first leg of one of the world’s riskiest — and busiest — migration and smuggling routes.`\
 https://nytimes.com/2025/08/03/world/middleeast/yemen-migration-saudi.html
@@ -30,12 +38,4 @@ https://nytimes.com/athletic/6533409/2025/08/03/yankees-derek-jeter-alex-rodrigu
 **Colts RB Salvon Ahmed suffers ‘severe leg injury’ after hip-drop tackle in training camp**\
 `Ahmed has played in 38 games rushing for 593 yards and five touchdowns.`\
 https://nytimes.com/athletic/6533546/2025/08/03/colts-salvon-ahmed-leg-injury-hip-drop-tackle-training-camp/
-
-**USMNT's Dest scores winner for PSV in Dutch Super Cup victory**\
-`The 24-year-old’s goal helped the PSV win their 15th Dutch Super Cup (Johan Cruijff Shield).`\
-https://nytimes.com/athletic/6533570/2025/08/03/usmnt-sergino-dest-psv-goal-super-cup/
-
-**'A beautiful ending to a beautiful story' - Son Heung-min's final game for Spurs**\
-`Tottenham's much-loved captain played his final game for the club, as Spurs drew 1-1 with Newcastle on an emotionally-charged night in Seoul`\
-https://nytimes.com/athletic/6533450/2025/08/03/son-last-game-tottenham-newcastle-korea/
 
