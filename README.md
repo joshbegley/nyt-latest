@@ -1,3 +1,7 @@
+**U.S. women's medley relay, in final race of worlds, sets record to win gold-medal battle**\
+`Kate Douglass, Regan Smith, Gretchen Walsh and Torri Huske put a satisfying cap on a difficult week for the Americans in Singapore.`\
+https://nytimes.com/athletic/6533138/2025/08/03/us-womens-medley-relay-world-record-gold-championships/
+
 **Storm Floris Is Set to Hit Britain With Powerful Winds and Heavy Rain**\
 `Wind gusts of more than 80 miles per hour are possible on Monday, especially in Scotland, as officials warned residents to stay inside.`\
 https://nytimes.com/2025/08/03/weather/storm-floris-britain-powerful-winds-heavy-rain.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6532569/2025/08/03/49ers-training-camp-rookie-ranki
 **Long-Dormant Russian Volcano Erupts for the First Time in Centuries**\
 `The eruption of the Krasheninnikov volcano on Sunday in Russia’s Far East came after a series of seismic events this past week on the Kamchatka peninsula.`\
 https://nytimes.com/2025/08/03/world/europe/russia-volcano-eruption.html
-
-**The trade within the trade: How Jhoan Duran's electric entrance accompanied him from Twins to Phillies**\
-`Duran thought his electric entrance was too good to leave behind. The Twins agreed. After trading him, they helped the Phillies recreate it.`\
-https://nytimes.com/athletic/6532697/2025/08/03/jhoan-duran-entrance-phillies-twins-trade/
 
