@@ -1,3 +1,7 @@
+**Earthquake Jolts New Jersey and New York City**\
+`The epicenter of the 3.0-magnitude quake, which struck around 10:20 p.m. on Saturday, was near Teterboro Airport in New Jersey.`\
+https://nytimes.com/2025/08/02/nyregion/earthquake-new-york-new-jersey.html
+
 **A decade after crying on the field amid trade rumors, Wilmer Flores glad he's still a Giant**\
 `Flores has been conditioned to understand the business side of baseball. A decade ago? Not so much.`\
 https://nytimes.com/athletic/6532794/2025/08/02/decade-after-crying-on-the-field-wilmer-flores-trade-deadline/
