@@ -1,3 +1,7 @@
+**Re-ranking the 49ers’ rookie class: 3 undrafted players make the top 10**\
+`Mykel Williams might have been the 49ers' top draft pick, but he's not No. 1 on our 1-18 ranking of rookie performers.`\
+https://nytimes.com/athletic/6532569/2025/08/03/49ers-training-camp-rookie-rankings/
+
 **Long-Dormant Russian Volcano Erupts for the First Time in Centuries**\
 `The eruption of the Krasheninnikov volcano on Sunday in Russia’s Far East came after a series of seismic events this past week on the Kamchatka peninsula.`\
 https://nytimes.com/2025/08/03/world/europe/russia-volcano-eruption.html
@@ -6,7 +10,7 @@ https://nytimes.com/2025/08/03/world/europe/russia-volcano-eruption.html
 `Duran thought his electric entrance was too good to leave behind. The Twins agreed. After trading him, they helped the Phillies recreate it.`\
 https://nytimes.com/athletic/6532697/2025/08/03/jhoan-duran-entrance-phillies-twins-trade/
 
-**Ruben Amorim interview: Man Utd head coach on walking away, code of conduct and exiled players**\
+**Ruben Amorim interview: United's head coach on walking away, code of conduct and exiled players**\
 `Ruben Amorim sat down with reporters during Manchester United's pre-season preparations for the Premier League season`\
 https://nytimes.com/athletic/6532711/2025/08/03/ruben-amorim-manchester-united-interview-exit/
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6532640/2025/08/03/bengals-defense-training-camp-pe
 **What to Do When the President Acts Like a Five-Year-Old?**\
 `Most children learn at some point that flipping the board doesn’t make them the winner.`\
 https://nytimes.com/2025/08/03/opinion/trump-bls-fired-labor-jobs-data.html
-
-**Bad Bunny Just Wants to Stay Home. So Do I.**\
-`Puerto Rico’s struggles run deep, but a concert series hints at what might be possible.`\
-https://nytimes.com/2025/08/03/opinion/bad-bunny-puerto-rico-concert.html
 
