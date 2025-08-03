@@ -1,3 +1,7 @@
+**Hungarian Grand Prix: Norris wins a thriller over Piastri, Leclerc's victory evaporates**\
+`A Ferrari turnaround win disappeared as the McLarens put on a show. The drivers' title gap is now under 10 points `\
+https://nytimes.com/athletic/6533166/2025/08/03/hungarian-grand-prix-2025-result-lando-norris-mclaren-charles-leclerc/
+
 **Wings trade DiJonai Carrington to Lynx for Miller, Samuelson, draft pick**\
 `Carrington appeared in 20 games with the Wings this season, averaging 10.4 points, a career-high 5.1 rebounds and 1.8 assists.`\
 https://nytimes.com/athletic/6533194/2025/08/03/dijonai-carrington-trade-wings-lynx/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6533203/2025/08/03/tottenham-maddison-injury-news-k
 **U.S. and Israeli Officials Float Idea of ‘All or Nothing’ Gaza Deal**\
 `The apparent shift in tone comes as cease-fire negotiations have hit a wall and pressure is mounting on Israel over the hunger crisis in Gaza. But Israel and Hamas remain far apart on the terms of any deal.`\
 https://nytimes.com/2025/08/03/world/middleeast/israel-gaza-hamas-ceasefire.html
-
-**Ukraine Announces Arrests Targeting Corruption in Military Procurement**\
-`The arrests came days after President Volodymyr Zelensky’s U-turn on an effort to neuter anticorruption agencies.`\
-https://nytimes.com/2025/08/03/world/europe/ukraine-corruption-zelensky.html
 

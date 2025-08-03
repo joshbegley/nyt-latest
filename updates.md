@@ -1,3 +1,7 @@
+**Hungarian Grand Prix: Norris wins a thriller over Piastri, Leclerc's victory evaporates**\
+`A Ferrari turnaround win disappeared as the McLarens put on a show. The drivers' title gap is now under 10 points `\
+https://nytimes.com/athletic/6533166/2025/08/03/hungarian-grand-prix-2025-result-lando-norris-mclaren-charles-leclerc/
+
 **Wings trade DiJonai Carrington to Lynx for Miller, Samuelson, draft pick**\
 `Carrington appeared in 20 games with the Wings this season, averaging 10.4 points, a career-high 5.1 rebounds and 1.8 assists.`\
 https://nytimes.com/athletic/6533194/2025/08/03/dijonai-carrington-trade-wings-lynx/
