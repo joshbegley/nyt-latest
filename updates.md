@@ -1,3 +1,7 @@
+**The Briefing: Manchester United 2 Everton 2 - Mbeumo's debut, defensive errors and Berrada talks transfers**\
+`Laurie Whitwell breaks down the main talking points from Manchester United's 2-2 draw with Everton in Atlanta, Georgia`\
+https://nytimes.com/athletic/6531817/2025/08/03/manchester-united-2-everton-2-mbeumo-mount-transfers-berrada/
+
 **Loni Anderson, Star of ‘WKRP in Cincinnati,’ Dies at 79**\
 `Known for her platinum blond hair, she earned Golden Globe and Emmy nominations for her role. Her divorce from Burt Reynolds landed her in the tabloids for years.`\
 https://nytimes.com/2025/08/03/arts/television/loni-anderson-dead.html

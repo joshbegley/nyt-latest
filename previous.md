@@ -1,3 +1,7 @@
+**The Briefing: Manchester United 2 Everton 2 - Mbeumo's debut, defensive errors and Berrada talks transfers**\
+`Laurie Whitwell breaks down the main talking points from Manchester United's 2-2 draw with Everton in Atlanta, Georgia`\
+https://nytimes.com/athletic/6531817/2025/08/03/manchester-united-2-everton-2-mbeumo-mount-transfers-berrada/
+
 **Loni Anderson, Star of ‘WKRP in Cincinnati,’ Dies at 79**\
 `Known for her platinum blond hair, she earned Golden Globe and Emmy nominations for her role. Her divorce from Burt Reynolds landed her in the tabloids for years.`\
 https://nytimes.com/2025/08/03/arts/television/loni-anderson-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6533826/2025/08/03/trinity-rodman-washington-spirit
 **Rahaman Ali, Boxer Whose Brother Was ‘the Greatest,’ Dies at 82**\
 `Some said he had shown nearly as much promise in the ring as Muhammad Ali. But he gave up his own career to join the champ’s entourage.`\
 https://nytimes.com/2025/08/03/obituaries/rahaman-ali-dead.html
-
-**Oasis Says It’s ‘Shocked’ by Death of Fan at London Concert**\
-`A concertgoer apparently fell from the upper tiers at Wembley Stadium as the band’s reunion tour show was winding down.`\
-https://nytimes.com/2025/08/03/world/europe/oasis-comcert-death.html
 
