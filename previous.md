@@ -1,3 +1,19 @@
+**Long-Dormant Russian Volcano Erupts for the First Time in Centuries**\
+`The eruption of the Krasheninnikov volcano on Sunday in Russia’s Far East came after a series of seismic events this past week on the Kamchatka peninsula.`\
+https://nytimes.com/2025/08/03/world/europe/russia-volcano-eruption.html
+
+**The trade within the trade: How Jhoan Duran's electric entrance accompanied him from Twins to Phillies**\
+`Duran thought his electric entrance was too good to leave behind. The Twins agreed. After trading him, they helped the Phillies recreate it.`\
+https://nytimes.com/athletic/6532697/2025/08/03/jhoan-duran-entrance-phillies-twins-trade/
+
+**Ruben Amorim interview: Man Utd head coach on walking away, code of conduct and exiled players**\
+`Ruben Amorim sat down with reporters during Manchester United's pre-season preparations for the Premier League season`\
+https://nytimes.com/athletic/6532711/2025/08/03/ruben-amorim-manchester-united-interview-exit/
+
+**Browns' dud of a QB competition among 9 thoughts through 9 days of training camp**\
+`Joe Flacco is now likely the strong favorite as Kenny Pickett has battled a hamstring injury and Shedeur Sanders has shoulder soreness.`\
+https://nytimes.com/athletic/6532498/2025/08/03/browns-training-camp-qb-competition/
+
 **Three More Workers Found Dead in Collapsed Chilean Mine**\
 `Rescuers have recovered the bodies of four miners and are searching for two more after an earthquake caused a partial collapse at El Teniente mine last week.`\
 https://nytimes.com/2025/08/03/us/three-more-dead-collapsed-mine-chile-el-teniente.html
@@ -21,20 +37,4 @@ https://nytimes.com/2025/08/03/opinion/trump-bls-fired-labor-jobs-data.html
 **Bad Bunny Just Wants to Stay Home. So Do I.**\
 `Puerto Rico’s struggles run deep, but a concert series hints at what might be possible.`\
 https://nytimes.com/2025/08/03/opinion/bad-bunny-puerto-rico-concert.html
-
-**Wordle Review No. 1,507**\
-`Scroll down for hints and conversation about the puzzle for Monday, Aug. 4, 2025.`\
-https://nytimes.com/2025/08/03/crosswords/wordle-review-1507.html
-
-**Connections Companion No. 785**\
-`Scroll down for hints and conversation about the puzzle for Monday, Aug. 4, 2025.`\
-https://nytimes.com/2025/08/03/crosswords/connections-companion-785.html
-
-**America’s Love Affair With Crowded, Crummy Airport Lounges**\
-`Airport lounges have never been more popular — and not worth the hassle.`\
-https://nytimes.com/2025/08/03/opinion/airport-lounge-travel-credit-card.html
-
-**Strands Sidekick No. 519**\
-`Scroll down for hints and conversation about the puzzle for Monday, Aug. 4, 2025.`\
-https://nytimes.com/2025/08/03/crosswords/strands-sidekick-519.html
 
