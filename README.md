@@ -1,3 +1,7 @@
+**MLB suspends first Speedway Classic due to rain**\
+`The Atlanta Braves and Cincinnati Reds played less than a full inning Saturday night after a 2 1/2 hour rain delay.`\
+https://nytimes.com/athletic/6532872/2025/08/02/mlb-suspends-speedway-classic-reds-braves/
+
 **Earthquake Jolts New Jersey and New York City**\
 `The epicenter of the 3.0-magnitude quake, which struck around 10:20 p.m. on Saturday, was near Teterboro Airport in New Jersey.`\
 https://nytimes.com/2025/08/02/nyregion/earthquake-new-york-new-jersey.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6532705/2025/08/02/carlos-correas-astros-spark-prod
 **Reds' Tyler Stephenson sports Ricky Bobby-inspired gear at Speedway Classic**\
 `In honor of NASCAR and one-time Cincinnati Red Will Ferrell, Stephenson contacted his reps at Evoshield to create his custom catching gear.`\
 https://nytimes.com/athletic/6532720/2025/08/02/reds-tyler-stephenson-ricky-bobby-talladega-nights-speedway-classic/
-
-**Inter Miami star Lionel Messi leaves game vs. Necaxa with right leg injury**\
-`Trainers tended to the underside of Messi’s right leg before he exited the field, suggesting an injury to his right hamstring`\
-https://nytimes.com/athletic/6532701/2025/08/02/lionel-messi-injury-leg-necaxa-inter-miami/
 
