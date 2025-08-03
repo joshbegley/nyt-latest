@@ -6,7 +6,7 @@ https://nytimes.com/athletic/6533829/2025/08/03/cameron-young-pga-tour-win-wyndh
 `In a social media back-and-forth, Gov. Kathy Hochul of New York replied to Senator Ted Cruz of Texas that “anyone with basic decency” would respect the officer’s Muslim faith.`\
 https://nytimes.com/2025/08/03/nyregion/cruz-hochul-head-scarf-officer-funeral.html
 
-**Frankie Montas struggles highlight Mets' rotation woes in series loss to Giants**\
+**Frankie Montas' struggles highlight Mets' rotation woes in series loss to Giants**\
 `"He's got to be better. He knows that," manager Carlos Mendoza said when asked if Montas' role going forward was up for discussion.`\
 https://nytimes.com/athletic/6533804/2025/08/03/mets-takeaways-frankie-montas-struggles/
 

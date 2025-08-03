@@ -1,3 +1,7 @@
+**Trinity Rodman nets a game winner for the Washington Spirit in her first match since April**\
+`Rodman has been rehabilitating a back injury. The Spirit won 2-1 at home over the Portland Thorns.`\
+https://nytimes.com/athletic/6533826/2025/08/03/trinity-rodman-washington-spirit-return/
+
 **Cameron Young secures first PGA Tour victory with Wyndham Championship win**\
 `Before this week, Young’s second-place finish count of seven was the most by any player on tour without a win since 1983.`\
 https://nytimes.com/athletic/6533829/2025/08/03/cameron-young-pga-tour-win-wyndham-championship/
