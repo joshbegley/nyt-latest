@@ -1,3 +1,7 @@
+**Russian Volcano Erupts for the First Time in Centuries**\
+`Staff members have been evacuated from the area, a statement from the local nature reserve said, adding that the volcano was too far from towns to pose a danger to people.`\
+https://nytimes.com/video/world/asia/100000010321173/russia-volcano-eruption.html
+
 **Al Hilal identify Liverpool's Nunez as priority target**\
 `Al Hilal pursued Victor Osimhen, with Alexander Isak and Benjamin Sesko also among the options considered.`\
 https://nytimes.com/athletic/6533140/2025/08/03/darwin-nunez-al-hilal-liverpool-transfer/
