@@ -19,7 +19,7 @@ https://nytimes.com/athletic/6533679/2025/08/03/red-sox-sweep-astros-tanner-houc
 https://nytimes.com/athletic/6533404/2025/08/03/womens-open-miyu-yamashita-charley-hull/
 
 **Trinity Rodman nets a game winner for the Washington Spirit in her first match since April**\
-`Rodman has been rehabilitating a back injury.`\
+`Rodman has been rehabilitating a back injury. The Spirit won 2-1 at home over the Portland Thorns.`\
 https://nytimes.com/athletic/6533826/2025/08/03/trinity-rodman-washington-spirit-return/
 
 **Rahaman Ali, Boxer Whose Brother Was ‘the Greatest,’ Dies at 82**\
