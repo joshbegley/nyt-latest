@@ -1,3 +1,7 @@
+**Long-Dormant Russian Volcano Erupts for the First Time in Centuries**\
+`The eruption of the Krasheninnikov volcano on Sunday in Russia’s Far East came after a series of seismic events this past week on the Kamchatka peninsula.`\
+https://nytimes.com/2025/08/03/world/europe/russia-volcano-eruption.html
+
 **The trade within the trade: How Jhoan Duran's electric entrance accompanied him from Twins to Phillies**\
 `Duran thought his electric entrance was too good to leave behind. The Twins agreed. After trading him, they helped the Phillies recreate it.`\
 https://nytimes.com/athletic/6532697/2025/08/03/jhoan-duran-entrance-phillies-twins-trade/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/03/opinion/trump-bls-fired-labor-jobs-data.html
 **Bad Bunny Just Wants to Stay Home. So Do I.**\
 `Puerto Rico’s struggles run deep, but a concert series hints at what might be possible.`\
 https://nytimes.com/2025/08/03/opinion/bad-bunny-puerto-rico-concert.html
-
-**Wordle Review No. 1,507**\
-`Scroll down for hints and conversation about the puzzle for Monday, Aug. 4, 2025.`\
-https://nytimes.com/2025/08/03/crosswords/wordle-review-1507.html
 
