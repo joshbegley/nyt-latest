@@ -1,3 +1,7 @@
+**Ann Harris, Who Edited a Stack of Best Sellers, Dies at 99**\
+`Her hits included “The Exorcist” and “The Thorn Birds,” as well as autobiographies of Betty Ford and Warren Buffett.`\
+https://nytimes.com/2025/08/03/obituaries/ann-harris-dead.html
+
 **The story of the 2025 swimming world championships in 15 photos**\
 `The 2025 swimming world championships concluded Sunday. Here's what we saw and learned, with an eye toward the 2028 Los Angeles Olympics.`\
 https://nytimes.com/athletic/6533196/2025/08/03/swimming-world-championships-summer-mcintosh-katie-ledecky-leon-marchand/
