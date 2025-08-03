@@ -1,3 +1,7 @@
+**A sobering sweep, the future of two top prospects and Cam Smith's slump: Astros takeaways**\
+`On a disappointing post-deadline series in Boston, Brice Matthews' and Jacob Melton's futures and Smith's bad month.`\
+https://nytimes.com/athletic/6533629/2025/08/03/astros-swept-red-sox-cam-smith/
+
 **Boeing’s Machinists Union in St. Louis Is Set to Strike**\
 `About 3,200 workers who build Boeing fighter jets are poised to walk off the job after failing to reach an agreement on wages and retirement benefits.`\
 https://nytimes.com/2025/08/03/business/boeing-machinists-st-louis-strike.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6533469/2025/08/03/england-india-rules-weather-cric
 **Did McLaren favor Norris over Piastri in Hungary? Why the team says no**\
 `A bold strategy, worn tires and rising tension — Norris’s win showed just how fine the margin is in McLaren’s title fight`\
 https://nytimes.com/athletic/6533320/2025/08/03/lando-norris-hungarian-gp-strategy-oscar-piastri/
-
-**Tottenham complete loan signing of Palhinha from Bayern Munich**\
-`The deal includes an option to make the transfer permanent for €30million (£25.9m, $34.2m) at the end of the season.`\
-https://nytimes.com/athletic/6529806/2025/08/03/tottenham-palhinha-transfer-signing-news/
 
