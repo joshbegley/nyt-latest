@@ -1,3 +1,11 @@
+**Oasis Says It’s ‘Shocked’ by Death of Fan at London Concert**\
+`A concertgoer apparently fell from the upper tiers at Wembley Stadium as the band’s reunion tour show was winding down.`\
+https://nytimes.com/2025/08/03/world/europe/oasis-comcert-death.html
+
+**Seed Covering**\
+`Patti Varol runs a tight crossword puzzle.`\
+https://nytimes.com/2025/08/03/crosswords/daily-puzzle-2025-08-04.html
+
 **Marlins sweep Yankees for first time in franchise history, claw back to .500**\
 `Since June 13, the club has gone 30-14, tying the Milwaukee Brewers for most wins in MLB during that span. `\
 https://nytimes.com/athletic/6533738/2025/08/03/miami-marlins-sweep-ny-yankees/
@@ -29,13 +37,4 @@ https://nytimes.com/athletic/6533534/2025/08/03/bills-james-cook-practice-contra
 **More Than 60 Migrants Dead After Boat Capsizes Off the Coast of Yemen**\
 `The trip across the Gulf of Aden is the first leg of one of the world’s riskiest — and busiest — migration and smuggling routes.`\
 https://nytimes.com/2025/08/03/world/middleeast/yemen-migration-saudi.html
-
-**How Pauline Ferrand-Prevot became the first French winner of the Tour de France Femmes**\
-`This year's race was always likely to come down to the final weekend in the mountains, and so it proved on Sunday...
-`\
-https://nytimes.com/athletic/6533527/2025/08/03/tour-de-france-femmes-ferrand-prevot/
-
-**A sobering sweep, the future of two top prospects and Cam Smith's slump: Astros takeaways**\
-`On a disappointing post-deadline series in Boston, Brice Matthews' and Jacob Melton's futures and Smith's bad month.`\
-https://nytimes.com/athletic/6533629/2025/08/03/astros-swept-red-sox-cam-smith/
 
