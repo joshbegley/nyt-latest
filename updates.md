@@ -1,3 +1,7 @@
+**Trump Administration Live Updates: Hassett Defends Firing of Top Labor Official Over Weak Jobs Numbers**\
+``\
+https://nytimes.com/live/2025/08/03/us/trump-news
+
 **Ukraine Announces Arrests Targeting Corruption in Military Procurement**\
 `The arrests came days after President Volodymyr Zelensky’s U-turn on an effort to neuter anticorruption agencies.`\
 https://nytimes.com/2025/08/03/world/europe/ukraine-corruption-zelensky.html
