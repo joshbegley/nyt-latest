@@ -1,3 +1,7 @@
+**Behind Aaron Rodgers, Rudolph perfects the art of staying ready: Steelers training camp observations**\
+`Plus, James Pierre reels in two interceptions during Saturday's light practice.`\
+https://nytimes.com/athletic/6532684/2025/08/02/mason-rudolph-aaron-rodgers-backup-steelers-training-camp/
+
 **Sydney McLaughlin-Levrone is all-in on the 400 meters. Look out, everyone else**\
 `The American star is focused on the 400 flat for this year's world championships, and she'll head to Tokyo as a gold-medal contender.`\
 https://nytimes.com/athletic/6532664/2025/08/02/sydney-mclaughlin-levrone-400-meters-us-track-field-championships/
