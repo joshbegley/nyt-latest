@@ -1,3 +1,11 @@
+**Cameron Young secures first PGA Tour victory with Wyndham Championship win**\
+`Before this week, Young’s second-place finish count of seven was the most by any player on tour without a win since 1983.`\
+https://nytimes.com/athletic/6533829/2025/08/03/cameron-young-pga-tour-win-wyndham-championship/
+
+**Trinity Rodman nets a game winner for the Washington Spirit in her first match since April**\
+`Rodman has been rehabilitating a back injury.`\
+https://nytimes.com/athletic/6533826/2025/08/03/trinity-rodman-washington-spirit-return/
+
 **Cruz Criticizes Hochul for Wearing Head Scarf at Slain Officer’s Funeral**\
 `In a social media back-and-forth, Gov. Kathy Hochul of New York replied to Senator Ted Cruz of Texas that “anyone with basic decency” would respect the officer’s Muslim faith.`\
 https://nytimes.com/2025/08/03/nyregion/cruz-hochul-head-scarf-officer-funeral.html

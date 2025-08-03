@@ -1,3 +1,7 @@
+**Cameron Young secures first PGA Tour victory with Wyndham Championship win**\
+`Before this week, Young’s second-place finish count of seven was the most by any player on tour without a win since 1983.`\
+https://nytimes.com/athletic/6533829/2025/08/03/cameron-young-pga-tour-win-wyndham-championship/
+
 **Cruz Criticizes Hochul for Wearing Head Scarf at Slain Officer’s Funeral**\
 `In a social media back-and-forth, Gov. Kathy Hochul of New York replied to Senator Ted Cruz of Texas that “anyone with basic decency” would respect the officer’s Muslim faith.`\
 https://nytimes.com/2025/08/03/nyregion/cruz-hochul-head-scarf-officer-funeral.html
@@ -14,8 +18,8 @@ https://nytimes.com/athletic/6533679/2025/08/03/red-sox-sweep-astros-tanner-houc
 `With Welsh dragons as golf club covers, Hull breathed fire and life into the tournament.`\
 https://nytimes.com/athletic/6533404/2025/08/03/womens-open-miyu-yamashita-charley-hull/
 
-**Trinity Rodman nets a game-winner for the Washington Spirit in her first match since April**\
-`Rodman has been rehabilitating a back injury`\
+**Trinity Rodman nets a game winner for the Washington Spirit in her first match since April**\
+`Rodman has been rehabilitating a back injury.`\
 https://nytimes.com/athletic/6533826/2025/08/03/trinity-rodman-washington-spirit-return/
 
 **Rahaman Ali, Boxer Whose Brother Was ‘the Greatest,’ Dies at 82**\
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/03/crosswords/daily-puzzle-2025-08-04.html
 **Marlins sweep Yankees for first time in franchise history, claw back to .500**\
 `Since June 13, the club has gone 30-14, tying the Milwaukee Brewers for most wins in MLB during that span. `\
 https://nytimes.com/athletic/6533738/2025/08/03/miami-marlins-sweep-ny-yankees/
-
-**Tim Weah move to Marseille from Juventus nears completion: Source**\
-`Weah appears headed back to Ligue 1, where he previously played for PSG and Lille.`\
-https://nytimes.com/athletic/6533751/2025/08/03/tim-weah-marseille-transfer-juventus-usmnt/
 
