@@ -1,3 +1,11 @@
+**Wings trade DiJonai Carrington to Lynx for Miller, Samuelson, draft pick**\
+`Carrington appeared in 20 games with the Wings this season, averaging 10.4 points, a career-high 5.1 rebounds and 1.8 assists.`\
+https://nytimes.com/athletic/6533194/2025/08/03/dijonai-carrington-trade-wings-lynx/
+
+**A Solid Debut for ‘The Naked Gun’**\
+`The film, one of the few comedies getting a theatrical release this year, generated about $17 million at the box office.`\
+https://nytimes.com/2025/08/03/business/media/the-naked-gun-box-office.html
+
 **Sandra Grimes, Who Helped Unmask a C.I.A. Traitor, Dies at 79**\
 `She became suspicious when she discovered large deposits in the bank account of Aldrich Ames, whose betrayal cost the lives of at least eight double agents.`\
 https://nytimes.com/2025/08/03/us/politics/sandra-grimes-dead.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/08/03/world/middleeast/israel-gaza-hamas-ceasefire.html
 **Ukraine Announces Arrests Targeting Corruption in Military Procurement**\
 `The arrests came days after President Volodymyr Zelensky’s U-turn on an effort to neuter anticorruption agencies.`\
 https://nytimes.com/2025/08/03/world/europe/ukraine-corruption-zelensky.html
-
-**Former Arsenal midfielder Partey set to join Villarreal**\
-`Partey, 32, has undergone a medical and is expected to sign a two-year deal with the Spanish club through to 2027.`\
-https://nytimes.com/athletic/6490861/2025/08/03/thomas-partey-villarreal-transfer/
-
-**U.S. women's medley relay, in final race of worlds, sets record to win gold-medal battle**\
-`Kate Douglass, Regan Smith, Gretchen Walsh and Torri Huske put a satisfying cap on a difficult week for the Americans in Singapore.`\
-https://nytimes.com/athletic/6533138/2025/08/03/us-womens-medley-relay-world-record-gold-championships/
 

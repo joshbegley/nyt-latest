@@ -1,3 +1,15 @@
+**Sandra Grimes, Who Helped Unmask a C.I.A. Traitor, Dies at 79**\
+`She became suspicious when she discovered large deposits in the bank account of Aldrich Ames, whose betrayal cost the lives of at least eight double agents.`\
+https://nytimes.com/2025/08/03/us/politics/sandra-grimes-dead.html
+
+**Trump Lashes Out at Charlamagne Tha God Over Epstein Comments**\
+`President Trump railed against the radio host after he said the administration’s handling of the Jeffrey Epstein case had created an opportunity for “traditional conservatives” to take back the Republican Party.`\
+https://nytimes.com/2025/08/03/us/politics/trump-charlamagne-tha-god-epstein-republicans.html
+
+**Lowetide: Oilers' AHL roster for 2025-26 coming into view**\
+`Finding a play driver will be key for Bakersfield Condors coach Colin Chaulk and his staff this fall.`\
+https://nytimes.com/athletic/6531257/2025/08/03/edmonton-oilers-ahl-roster-2025/
+
 **The Briefing: Newcastle 1 Spurs 1 - Barnes goal and Gordon's role bring positivity, but feeling of uncertainty remains**\
 `After three defeats in succession, Newcastle United brought a flicker of positivity back to their pre-season`\
 https://nytimes.com/athletic/6531816/2025/08/03/newcastle-tottenham-barnes-isak-uncertainty/
