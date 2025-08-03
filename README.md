@@ -1,5 +1,9 @@
+**Cricket's infuriating 6.42pm rule that meant a day of epic sport ended in farce**\
+`It was all set up for an epic finish at the Oval in south London - until the rules came in and spoiled it all.`\
+https://nytimes.com/athletic/6533469/2025/08/03/england-india-rules-weather-cricket/
+
 **Did McLaren favor Norris over Piastri in Hungary? Why the team says no**\
-`A bold strategy, worn tires and rising tension — Norris’ win showed just how fine the margin is in McLaren’s title fight`\
+`A bold strategy, worn tires and rising tension — Norris’s win showed just how fine the margin is in McLaren’s title fight`\
 https://nytimes.com/athletic/6533320/2025/08/03/lando-norris-hungarian-gp-strategy-oscar-piastri/
 
 **Tottenham complete loan signing of Palhinha from Bayern Munich**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6526988/2025/08/03/jorrel-hato-chelsea-transfer-ana
 **Hungarian Grand Prix: Submit your questions for our F1 mailbag**\
 `What questions do you have for our F1 writers after the 2025 Hungarian Grand Prix?`\
 https://nytimes.com/athletic/6533430/2025/08/03/hungarian-grand-prix-f1-mailbag/
-
-**‘Dalibor’ Review: A Gently Ravishing Score, an Awkward Plot**\
-`The director Jean-Romain Vesperini cleverly tied together the loose strands of Bedrich Smetana’s opera at Bard’s SummerScape festival.`\
-https://nytimes.com/2025/08/03/arts/music/dalibor-review-bard.html
 
