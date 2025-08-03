@@ -1,3 +1,7 @@
+**Rahaman Ali, Boxer Whose Brother Was ‘the Greatest,’ Dies at 82**\
+`Some said he had shown nearly as much promise in the ring as Muhammad Ali. But he gave up his own career to join the champ’s entourage.`\
+https://nytimes.com/2025/08/03/obituaries/rahaman-ali-dead.html
+
 **Oasis Says It’s ‘Shocked’ by Death of Fan at London Concert**\
 `A concertgoer apparently fell from the upper tiers at Wembley Stadium as the band’s reunion tour show was winding down.`\
 https://nytimes.com/2025/08/03/world/europe/oasis-comcert-death.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/03/us/texas-democrats-walkout-redistricting-map-gop.
 **James Cook sits out Bills practice, calls it 'business'**\
 `Cook has openly wanted a new contract. When asked for a reason why the running back did not participate, the team issued a "no comment."`\
 https://nytimes.com/athletic/6533534/2025/08/03/bills-james-cook-practice-contract/
-
-**More Than 60 Migrants Dead After Boat Capsizes Off the Coast of Yemen**\
-`The trip across the Gulf of Aden is the first leg of one of the world’s riskiest — and busiest — migration and smuggling routes.`\
-https://nytimes.com/2025/08/03/world/middleeast/yemen-migration-saudi.html
 

@@ -1,3 +1,11 @@
+**Oasis Says It’s ‘Shocked’ by Death of Fan at London Concert**\
+`A concertgoer apparently fell from the upper tiers at Wembley Stadium as the band’s reunion tour show was winding down.`\
+https://nytimes.com/2025/08/03/world/europe/oasis-comcert-death.html
+
+**Seed Covering**\
+`Patti Varol runs a tight crossword puzzle.`\
+https://nytimes.com/2025/08/03/crosswords/daily-puzzle-2025-08-04.html
+
 **How Pauline Ferrand-Prevot became the first French winner of the Tour de France Femmes**\
 `This year's race was always likely to come down to the final weekend in the mountains, and so it proved on Sunday...
 `\
