@@ -1,3 +1,7 @@
+**Lionel Messi suffers 'minor muscle injury' during Miami win over Necaxa**\
+`It is unclear how long Messi will be out of action.`\
+https://nytimes.com/athletic/6533979/2025/08/03/lionel-messi-muscle-injury-miami-necaxa-leagues-cup/
+
 **Even after a wild trade deadline, Yankees still lack sense of urgency**\
 `The Yankees were sloppy, again; they made Little League mistakes; and their bats were quieted in the final two games against Miami.`\
 https://nytimes.com/athletic/6533791/2025/08/03/ny-yankees-urgency-priority/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6533804/2025/08/03/mets-takeaways-frankie-montas-st
 **Red Sox takeaways: Astros sweep, Tanner Houck surgery, Marcelo Mayer limbo**\
 `Lucas Giolito held Houston to one run over eight innings Sunday in the Red Sox 6-1 win Sunday.`\
 https://nytimes.com/athletic/6533679/2025/08/03/red-sox-sweep-astros-tanner-houck-marcelo-mayer/
-
-**Miyu Yamashita won the Women's Open, but Charley Hull stole the show**\
-`With Welsh dragons as golf club covers, Hull breathed fire and life into the tournament.`\
-https://nytimes.com/athletic/6533404/2025/08/03/womens-open-miyu-yamashita-charley-hull/
 
