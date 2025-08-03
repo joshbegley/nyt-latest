@@ -30,7 +30,7 @@ https://nytimes.com/athletic/6532756/2025/08/03/byron-buxton-twins-commitment-tr
 `Plus, more concern about O-line depth, and promising signs from Shemar Stewart's first practices.`\
 https://nytimes.com/athletic/6532640/2025/08/03/bengals-defense-training-camp-performance/
 
-**When Trump Fires the Ref, What Game Are We Playing?**\
+**What to Do When the President Acts Like a Five-Year-Old?**\
 `Most children learn at some point that flipping the board doesn’t make them the winner.`\
 https://nytimes.com/2025/08/03/opinion/trump-bls-fired-labor-jobs-data.html
 

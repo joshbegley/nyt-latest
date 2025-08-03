@@ -1,3 +1,7 @@
+**What to Do When the President Acts Like a Five-Year-Old?**\
+`Most children learn at some point that flipping the board doesn’t make them the winner.`\
+https://nytimes.com/2025/08/03/opinion/trump-bls-fired-labor-jobs-data.html
+
 **Long-Dormant Russian Volcano Erupts for the First Time in Centuries**\
 `The eruption of the Krasheninnikov volcano on Sunday in Russia’s Far East came after a series of seismic events this past week on the Kamchatka peninsula.`\
 https://nytimes.com/2025/08/03/world/europe/russia-volcano-eruption.html
