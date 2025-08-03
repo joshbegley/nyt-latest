@@ -1,3 +1,7 @@
+**Behind Aaron Rodgers, Rudolph perfects the art of staying ready: Steelers training camp observations**\
+`Plus, James Pierre reels in two interceptions during Saturday's light practice.`\
+https://nytimes.com/athletic/6532684/2025/08/02/mason-rudolph-aaron-rodgers-backup-steelers-training-camp/
+
 **Sydney McLaughlin-Levrone is all-in on the 400 meters. Look out, everyone else**\
 `The American star is focused on the 400 flat for this year's world championships, and she'll head to Tokyo as a gold-medal contender.`\
 https://nytimes.com/athletic/6532664/2025/08/02/sydney-mclaughlin-levrone-400-meters-us-track-field-championships/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6532423/2025/08/02/womens-open-hull-khang-yamashita
 **Heavenly Voices**\
 `Jeremy Newton’s latest construction will leave you beaming.`\
 https://nytimes.com/2025/08/02/crosswords/daily-puzzle-2025-08-03.html
-
-**Jazz Chisholm Jr. doubled up on popup in latest Yankees base-running gaffe**\
-`It's almost an everyday occurrence for the Yankees. Their latest inexcusable play happened in the second inning Saturday versus the Marlins.`\
-https://nytimes.com/athletic/6532571/2025/08/02/jazz-chisholm-yankees-popup-double-play/
 
