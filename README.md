@@ -1,3 +1,7 @@
+**Derek Jeter and Alex Rodriguez criticized Yankees' mistakes. Aaron Boone says that's fair**\
+`"We're the Yankees," Boone said. "When we lose games, if it's in and around a mistake, that criticism is fair game."`\
+https://nytimes.com/athletic/6533409/2025/08/03/yankees-derek-jeter-alex-rodriguez-criticize-yankees-mistakes-aaron-boone/
+
 **Colts RB Salvon Ahmed suffers ‘severe leg injury’ after hip-drop tackle in training camp**\
 `Ahmed has played in 38 games rushing for 593 yards and five touchdowns.`\
 https://nytimes.com/athletic/6533546/2025/08/03/colts-salvon-ahmed-leg-injury-hip-drop-tackle-training-camp/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6533196/2025/08/03/swimming-world-championships-sum
 **Russian Volcano Erupts for the First Time in Centuries**\
 `Staff members have been evacuated from the area, a statement from the local nature reserve said, adding that the volcano was too far from towns to pose a danger to people.`\
 https://nytimes.com/video/world/asia/100000010321173/russia-volcano-eruption.html
-
-**Al Hilal identify Liverpool's Nunez as priority target**\
-`Al Hilal pursued Victor Osimhen, with Alexander Isak and Benjamin Sesko also among the options considered.`\
-https://nytimes.com/athletic/6533140/2025/08/03/darwin-nunez-al-hilal-liverpool-transfer/
 
