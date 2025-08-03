@@ -1,3 +1,7 @@
+**Experts Raise Concerns Over Trump’s White House Ballroom Renovation Plans**\
+`President Trump plans to build a $200 million ballroom off the East Wing “long before” the end of his term in 2029.`\
+https://nytimes.com/2025/08/03/us/politics/trump-white-house-ballroom-renovations-concerns.html
+
 **Some Chinese Weigh Painful Question: Stay or Flee Under Trump?**\
 `Over the past two years, Chinese immigrants have comprised one of the largest groups entering the United States. Some fear fines or even imprisonment if they are sent home.`\
 https://nytimes.com/2025/08/03/us/politics/chinese-stay-flee-united-states-trump.html
