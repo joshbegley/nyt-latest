@@ -1,3 +1,7 @@
+**Three More Workers Found Dead in Collapsed Chilean Mine**\
+`Rescuers have recovered the bodies of four miners and are searching for two more after an earthquake caused a partial collapse at El Teniente mine last week.`\
+https://nytimes.com/2025/08/03/us/three-more-dead-collapsed-mine-chile-el-teniente.html
+
 **Antonio to not be offered new West Ham contract**\
 `Antonio can carry on training with the club's under-21 side as he continues his recovery.`\
 https://nytimes.com/athletic/6439922/2025/08/03/michail-antonio-west-ham-contract/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/03/opinion/airport-lounge-travel-credit-card.html
 **Strands Sidekick No. 519**\
 `Scroll down for hints and conversation about the puzzle for Monday, Aug. 4, 2025.`\
 https://nytimes.com/2025/08/03/crosswords/strands-sidekick-519.html
-
-**Experts Raise Concerns Over Trump’s White House Ballroom Renovation Plans**\
-`President Trump plans to build a $200 million ballroom off the East Wing “long before” the end of his term in 2029.`\
-https://nytimes.com/2025/08/03/us/politics/trump-white-house-ballroom-renovations-concerns.html
 

@@ -1,3 +1,7 @@
+**Three More Workers Found Dead in Collapsed Chilean Mine**\
+`Rescuers have recovered the bodies of four miners and are searching for two more after an earthquake caused a partial collapse at El Teniente mine last week.`\
+https://nytimes.com/2025/08/03/us/three-more-dead-collapsed-mine-chile-el-teniente.html
+
 **Antonio to not be offered new West Ham contract**\
 `Antonio can carry on training with the club's under-21 side as he continues his recovery.`\
 https://nytimes.com/athletic/6439922/2025/08/03/michail-antonio-west-ham-contract/
