@@ -1,3 +1,7 @@
+**Bayern Munich's Pavlovic undergoes surgery after fracturing eye socket**\
+`Pavlovic, 21, suffered the injury in training on Friday.`\
+https://nytimes.com/athletic/6532985/2025/08/03/aleksandar-pavlovic-injury-update/
+
 **When Bloodshed and Chaos Arrived at 345 Park Avenue**\
 `On a steamy Monday evening, no one inside the Manhattan office building noticed the dark BMW pull up outside. The driver entered the lobby with a rifle in his hand.`\
 https://nytimes.com/2025/08/03/nyregion/park-avenue-shooting-manhattan.html

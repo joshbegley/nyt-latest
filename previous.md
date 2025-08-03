@@ -1,3 +1,7 @@
+**Bayern Munich's Pavlovic undergoes surgery after fracturing eye socket**\
+`Pavlovic, 21, suffered the injury in training on Friday.`\
+https://nytimes.com/athletic/6532985/2025/08/03/aleksandar-pavlovic-injury-update/
+
 **When Bloodshed and Chaos Arrived at 345 Park Avenue**\
 `On a steamy Monday evening, no one inside the Manhattan office building noticed the dark BMW pull up outside. The driver entered the lobby with a rifle in his hand.`\
 https://nytimes.com/2025/08/03/nyregion/park-avenue-shooting-manhattan.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/03/science/norway-lighthouse-fresnel.html
 **A Former American Soldier Finds a Home in Mexican Wrestling**\
 `Flip Gordon was uneasy about being a lucha libre wrestler dressed in a U.S. military uniform. Booed at first, he is now a fan favorite.`\
 https://nytimes.com/2025/08/03/world/americas/mexico-lucha-libre-flip-gordon.html
-
-**The New York Times in Print for Sunday, Aug. 3, 2025**\
-``\
-https://nytimes.com/issue/todayspaper/2025/08/03/todays-new-york-times
 
