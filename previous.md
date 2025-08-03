@@ -1,3 +1,11 @@
+**Trump ‘wants his own people’ in the Bureau of Labor Statistics, the White House says.**\
+`By Tony Romm`\
+https://nytimes.com/live/2025/08/03/us/trump-news/trump-wants-his-own-people-in-the-bureau-of-labor-statistics-the-white-house-says
+
+**The Pulse: Happy Giomore's most telling cameo**\
+`Welcome to The Pulse, The Athletic's daily sports newsletter.`\
+https://nytimes.com/athletic/6532888/2025/08/03/a-weird-year-for-happy-gilmores-funniest-cameo-star/
+
 **A Lighter Take on a Slow-Cooker Classic**\
 `Kia Damon’s Mississippi chicken swaps the packaged seasoning for garlic and fresh herbs, but keeps the pepperoncini and butter for plenty of oomph.`\
 https://nytimes.com/2025/08/03/dining/easy-slow-cooker-mississippi-chicken-recipe.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6531257/2025/08/03/edmonton-oilers-ahl-roster-2025/
 **The Briefing: Newcastle 1 Spurs 1 - Barnes goal and Gordon's role bring positivity, but feeling of uncertainty remains**\
 `After three defeats in succession, Newcastle United brought a flicker of positivity back to their pre-season`\
 https://nytimes.com/athletic/6531816/2025/08/03/newcastle-tottenham-barnes-isak-uncertainty/
-
-**Lookman hands in Atalanta transfer request, alleges 'broken promises, poor treatment'**\
-`Lookman claimed Atalanta's hierarchy have gone back on promises and are blocking a potential move away.`\
-https://nytimes.com/athletic/6533060/2025/08/03/ademola-lookman-atalanta-transfer-request/
-
-**Tottenham midfielder Maddison has suffered a 'bad knee injury' - Frank**\
-`Maddison, who left the pitch on a stretcher, was in visible pain while doctors treated him on the pitch.`\
-https://nytimes.com/athletic/6533203/2025/08/03/tottenham-maddison-injury-news-knee/
 

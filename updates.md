@@ -1,3 +1,11 @@
+**Trump ‘wants his own people’ in the Bureau of Labor Statistics, the White House says.**\
+`By Tony Romm`\
+https://nytimes.com/live/2025/08/03/us/trump-news/trump-wants-his-own-people-in-the-bureau-of-labor-statistics-the-white-house-says
+
+**The Pulse: Happy Giomore's most telling cameo**\
+`Welcome to The Pulse, The Athletic's daily sports newsletter.`\
+https://nytimes.com/athletic/6532888/2025/08/03/a-weird-year-for-happy-gilmores-funniest-cameo-star/
+
 **A Lighter Take on a Slow-Cooker Classic**\
 `Kia Damon’s Mississippi chicken swaps the packaged seasoning for garlic and fresh herbs, but keeps the pepperoncini and butter for plenty of oomph.`\
 https://nytimes.com/2025/08/03/dining/easy-slow-cooker-mississippi-chicken-recipe.html
