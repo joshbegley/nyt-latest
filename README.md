@@ -1,3 +1,7 @@
+**USMNT's Dest scores winner for PSV in Dutch Super Cup victory**\
+`The 24-year-old’s goal helped the PSV win their 15th Dutch Super Cup (Johan Cruijff Shield).`\
+https://nytimes.com/athletic/6533570/2025/08/03/usmnt-sergino-dest-psv-goal-super-cup/
+
 **Cricket's infuriating 6.42pm rule that meant a day of epic sport ended in farce**\
 `It was all set up for an epic finish at the Oval in south London - until the rules came in and spoiled it all.`\
 https://nytimes.com/athletic/6533469/2025/08/03/england-india-rules-weather-cricket/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6533140/2025/08/03/darwin-nunez-al-hilal-liverpool-
 **Jorrel Hato to Chelsea: Everything you need to know – TLDR**\
 `Chelsea have added to their defensive options with the signing of Jorrel Hato from Ajax – here we break down the deal`\
 https://nytimes.com/athletic/6526988/2025/08/03/jorrel-hato-chelsea-transfer-analysis/
-
-**Hungarian Grand Prix: Submit your questions for our F1 mailbag**\
-`What questions do you have for our F1 writers after the 2025 Hungarian Grand Prix?`\
-https://nytimes.com/athletic/6533430/2025/08/03/hungarian-grand-prix-f1-mailbag/
 
