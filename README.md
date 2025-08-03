@@ -1,3 +1,7 @@
+**Despite dismal season, Braves faithful flock to Speedway Classic**\
+`Tens of thousands of Braves fans turned out for the Speedway Classic game Saturday night in Bristol.`\
+https://nytimes.com/athletic/6532778/2025/08/02/loyal-braves-fans-speedway-classic/
+
 **Brazil tops Colombia to capture historic 9th Copa América title in shootout**\
 `After a campaign that saw scant crowds in the stands across Ecuador, the cinematic final drew the biggest attendance of the tournament. `\
 https://nytimes.com/athletic/6532662/2025/08/02/copa-america-femenina-brazil-colombia-penalty-shootout-results/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6532664/2025/08/02/sydney-mclaughlin-levrone-400-me
 **New addition Willi Castro has strong debut in Cubs loss to Orioles**\
 `Along with making multiple nice defensive plays, Castro had two hits, including a triple, and scored two run in his Cubs debut.`\
 https://nytimes.com/athletic/6532633/2025/08/02/cubs-willi-castro-debut-value/
-
-**An unexpected shuffle on the O-line: Five things we learned this week at Raiders training camp**\
-`The cornerback and linebacker groups also continue to take shape at Pete Carroll's first training camp in Vegas.`\
-https://nytimes.com/athletic/6532595/2025/08/02/raiders-training-camp-practice-report/
 
