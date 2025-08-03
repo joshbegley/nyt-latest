@@ -1,3 +1,7 @@
+**A decade after crying on the field amid trade rumors, Wilmer Flores glad he's still a Giant**\
+`Flores has been conditioned to understand the business side of baseball. A decade ago? Not so much.`\
+https://nytimes.com/athletic/6532794/2025/08/02/decade-after-crying-on-the-field-wilmer-flores-trade-deadline/
+
 **Fan arrested for hurling sex toy during WNBA game between Valkyries, Dream**\
 `Some WNBA players have laughed about the incident while also acknowledging it as a potential safety hazard.`\
 https://nytimes.com/athletic/6532751/2025/08/02/sex-toy-fan-arrested-wnba-valkyries-dream/

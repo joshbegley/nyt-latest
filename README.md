@@ -1,3 +1,7 @@
+**Earthquake Jolts New Jersey and New York City**\
+`The epicenter of the 3.0-magnitude quake, which struck around 10:20 p.m. on Saturday, was near Teterboro Airport in New Jersey.`\
+https://nytimes.com/2025/08/02/nyregion/earthquake-new-york-new-jersey.html
+
 **Fan arrested for hurling sex toy during WNBA game between Valkyries, Dream**\
 `Some WNBA players have laughed about the incident while also acknowledging it as a potential safety hazard.`\
 https://nytimes.com/athletic/6532751/2025/08/02/sex-toy-fan-arrested-wnba-valkyries-dream/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6532720/2025/08/02/reds-tyler-stephenson-ricky-bobb
 **Inter Miami star Lionel Messi leaves game vs. Necaxa with right leg injury**\
 `Trainers tended to the underside of Messi’s right leg before he exited the field, suggesting an injury to his right hamstring`\
 https://nytimes.com/athletic/6532701/2025/08/02/lionel-messi-injury-leg-necaxa-inter-miami/
-
-**Vicky Mboko dominates Coco Gauff in straight sets at Canadian Open**\
-`This time last year, Mboko was ranked outside the top 300. Now, the 18-year-old Canadian is into the quarterfinals of her home tournament.`\
-https://nytimes.com/athletic/6532727/2025/08/02/vicky-mboko-coco-gauff-match-canadian-open/
 
