@@ -1,3 +1,7 @@
+**Cricket's infuriating 6.42pm rule that meant a day of epic sport ended in farce**\
+`It was set up for an epic finish at The Oval in south London on Sunday evening - until the rules came in and spoiled it all`\
+https://nytimes.com/athletic/6533469/2025/08/03/england-india-rules-weather-cricket/
+
 **Third Child in Sailing Camp Dies After Barge Hit Boat Off Miami Beach**\
 `Six people, including a camp counselor, aboard a sailboat were thrown into the water after the collision on Monday, the authorities said.`\
 https://nytimes.com/2025/08/03/us/miami-beach-sailboat-crash-child-dead.html
