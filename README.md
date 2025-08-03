@@ -1,3 +1,7 @@
+**Damian Lillard to serve in general manager role at alma mater Weber State**\
+`Lillard's move to become general manager follows in the footsteps of other NBA players who have stepped into similar roles.`\
+https://nytimes.com/athletic/6532875/2025/08/02/damian-lillard-general-manager-weber-state/
+
 **MLB suspends first Speedway Classic due to rain**\
 `The Atlanta Braves and Cincinnati Reds played less than a full inning Saturday night after a 2 1/2 hour rain delay.`\
 https://nytimes.com/athletic/6532872/2025/08/02/mlb-suspends-speedway-classic-reds-braves/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6532671/2025/08/02/phillies-zack-wheeler-command-pr
 **Carlos Correa brings spark to Astros, but production questions linger**\
 `Vibes are important, but production wins pennants. How much of it Correa can contribute is a legitimate question.`\
 https://nytimes.com/athletic/6532705/2025/08/02/carlos-correas-astros-spark-production/
-
-**Reds' Tyler Stephenson sports Ricky Bobby-inspired gear at Speedway Classic**\
-`In honor of NASCAR and one-time Cincinnati Red Will Ferrell, Stephenson contacted his reps at Evoshield to create his custom catching gear.`\
-https://nytimes.com/athletic/6532720/2025/08/02/reds-tyler-stephenson-ricky-bobby-talladega-nights-speedway-classic/
 
