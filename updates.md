@@ -1,3 +1,11 @@
+**Summer McIntosh caps superb world championships with record swim and fourth gold**\
+`McIntosh became just the fifth swimmer to ever win four individual golds at a single world championships.`\
+https://nytimes.com/athletic/6533048/2025/08/03/summer-mcintosh-400-im-gold-world-championships-record/
+
+**Ruben Amorim interview: United's head coach on walking away, code of conduct and exiled players**\
+`Head coach Amorim sat down with reporters in Chicago during United's pre-season preparations for the 2025-26 Premier League`\
+https://nytimes.com/athletic/6532711/2025/08/03/ruben-amorim-manchester-united-interview-exit/
+
 **Influencer Missionaries**\
 `Christianity has a branding problem — but influencers are helping, one vertical video at a time.`\
 https://nytimes.com/2025/08/03/briefing/christian-influencers.html

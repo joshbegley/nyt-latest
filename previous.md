@@ -1,3 +1,7 @@
+**Summer McIntosh caps superb world championships with record swim and fourth gold**\
+`McIntosh became just the fifth swimmer to ever win four individual golds at a single world championships.`\
+https://nytimes.com/athletic/6533048/2025/08/03/summer-mcintosh-400-im-gold-world-championships-record/
+
 **Influencer Missionaries**\
 `Christianity has a branding problem — but influencers are helping, one vertical video at a time.`\
 https://nytimes.com/2025/08/03/briefing/christian-influencers.html
@@ -23,7 +27,7 @@ https://nytimes.com/2025/08/03/world/europe/russia-volcano-eruption.html
 https://nytimes.com/athletic/6532697/2025/08/03/jhoan-duran-entrance-phillies-twins-trade/
 
 **Ruben Amorim interview: United's head coach on walking away, code of conduct and exiled players**\
-`Ruben Amorim sat down with reporters during Manchester United's pre-season preparations for the Premier League season`\
+`Head coach Amorim sat down with reporters in Chicago during United's pre-season preparations for the 2025-26 Premier League`\
 https://nytimes.com/athletic/6532711/2025/08/03/ruben-amorim-manchester-united-interview-exit/
 
 **Browns' dud of a QB competition among 9 thoughts through 9 days of training camp**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6532498/2025/08/03/browns-training-camp-qb-competit
 **Three More Workers Found Dead in Collapsed Chilean Mine**\
 `Rescuers have recovered the bodies of four miners and are searching for two more after an earthquake caused a partial collapse at El Teniente mine last week.`\
 https://nytimes.com/2025/08/03/us/three-more-dead-collapsed-mine-chile-el-teniente.html
-
-**Antonio to not be offered new West Ham contract**\
-`Antonio can carry on training with the club's under-21 side as he continues his recovery.`\
-https://nytimes.com/athletic/6439922/2025/08/03/michail-antonio-west-ham-contract/
 
