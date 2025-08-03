@@ -1,3 +1,7 @@
+**Victims Named in Montana Bar Shooting as Manhunt Stretches On**\
+`Those killed on Friday were a bartender and three patrons, ranging in age from 59 to 74, the authorities said. The suspect fled into the nearby foothills.`\
+https://nytimes.com/2025/08/03/us/montana-owl-bar-shooting-victims-manhunt.html
+
 **OPEC Plus Will Increase Oil Output**\
 `Eight producers, led by Saudi Arabia, will continue boosting production despite forecasts that supply will soon exceed demand.`\
 https://nytimes.com/2025/08/03/business/opec-plus-oil-output.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/03/us/politics/sandra-grimes-dead.html
 **Trump Lashes Out at Charlamagne Tha God Over Epstein Comments**\
 `President Trump railed against the radio host after he said the administration’s handling of the Jeffrey Epstein case had created an opportunity for “traditional conservatives” to take back the Republican Party.`\
 https://nytimes.com/2025/08/03/us/politics/trump-charlamagne-tha-god-epstein-republicans.html
-
-**Lowetide: Oilers' AHL roster for 2025-26 coming into view**\
-`Finding a play driver will be key for Bakersfield Condors coach Colin Chaulk and his staff this fall.`\
-https://nytimes.com/athletic/6531257/2025/08/03/edmonton-oilers-ahl-roster-2025/
 
