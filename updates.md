@@ -1,3 +1,11 @@
+**Influencer Missionaries**\
+`Christianity has a branding problem — but influencers are helping, one vertical video at a time.`\
+https://nytimes.com/2025/08/03/briefing/christian-influencers.html
+
+**Lilly King, U.S. star who finger-wagged to Olympic gold in Rio, says farewell to swimming**\
+`King, whose rivalry with a Russian swimmer was one of the highlights of the 2016 Games, says the world championships will be her final meet.`\
+https://nytimes.com/athletic/6533045/2025/08/03/lilly-king-swimming-retirement-world-championships/
+
 **Brown: F1’s political battles will be ‘healthier’ after Horner’s Red Bull exit**\
 `Brown and Horner have been at odds in recent years. Laurent Mekies is now in charge of Red Bull.`\
 https://nytimes.com/athletic/6533055/2025/08/03/zak-brown-christian-horner-f1/

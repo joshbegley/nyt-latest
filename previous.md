@@ -1,3 +1,11 @@
+**Influencer Missionaries**\
+`Christianity has a branding problem — but influencers are helping, one vertical video at a time.`\
+https://nytimes.com/2025/08/03/briefing/christian-influencers.html
+
+**Lilly King, U.S. star who finger-wagged to Olympic gold in Rio, says farewell to swimming**\
+`King, whose rivalry with a Russian swimmer was one of the highlights of the 2016 Games, says the world championships will be her final meet.`\
+https://nytimes.com/athletic/6533045/2025/08/03/lilly-king-swimming-retirement-world-championships/
+
 **Brown: F1’s political battles will be ‘healthier’ after Horner’s Red Bull exit**\
 `Brown and Horner have been at odds in recent years. Laurent Mekies is now in charge of Red Bull.`\
 https://nytimes.com/athletic/6533055/2025/08/03/zak-brown-christian-horner-f1/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/08/03/us/three-more-dead-collapsed-mine-chile-el-tenien
 **Antonio to not be offered new West Ham contract**\
 `Antonio can carry on training with the club's under-21 side as he continues his recovery.`\
 https://nytimes.com/athletic/6439922/2025/08/03/michail-antonio-west-ham-contract/
-
-**Byron Buxton doubles down on desire to stay with Twins after deadline: 'Nothing's changed'**\
-`Buxton is certain of one thing: He wants to spend the rest of his career with the Twins and would invoke his no-trade clause if necessary.`\
-https://nytimes.com/athletic/6532756/2025/08/03/byron-buxton-twins-commitment-trade-deadline/
-
-**Is this Bengals defense actually... good? Four things we learned in Week 2 of Bengals training camp**\
-`Plus, more concern about O-line depth, and promising signs from Shemar Stewart's first practices.`\
-https://nytimes.com/athletic/6532640/2025/08/03/bengals-defense-training-camp-performance/
 
