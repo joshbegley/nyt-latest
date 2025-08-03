@@ -1,3 +1,16 @@
+**Texas Democrats to Leave State to Block G.O.P. From Redrawing Political Map**\
+`The move would be a sharp escalation in the bitterly partisan clash over a congressional redistricting requested by President Trump.`\
+https://nytimes.com/2025/08/03/us/texas-democrats-walkout-redistricting-map-gop.html
+
+**James Cook sits out Bills practice, calls it 'business'**\
+`Cook has openly wanted a new contract. When asked for a reason why the running back did not participate, the team issued a "no comment."`\
+https://nytimes.com/athletic/6533534/2025/08/03/bills-james-cook-practice-contract/
+
+**How Pauline Ferrand-Prevot became the first French winner of the Tour de France Femmes**\
+`This year's race was always likely to come down to the final weekend in the mountains, and so it proved on Sunday...
+`\
+https://nytimes.com/athletic/6533527/2025/08/03/tour-de-france-femmes-ferrand-prevot/
+
 **How Pauline Ferrand-Prevot became the first French winner of the Tour de France Femmes**\
 `This year's race was always likely to come down to the final weekend in the mountains, and so it proved on Sunday...
 `\
