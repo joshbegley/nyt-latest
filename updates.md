@@ -1,3 +1,7 @@
+**Driver Dies After Hitting a Moose Near Denali National Park in Alaska**\
+`The crash, near the park’s only vehicular entrance at about 1 a.m. on Friday, also injured a passenger.`\
+https://nytimes.com/2025/08/03/us/denali-national-park-crash-moose-alaska.html
+
 **Victims Named in Montana Bar Shooting as Manhunt Stretches On**\
 `Those killed on Friday were a bartender and three patrons, ranging in age from 59 to 74, the authorities said. The suspect fled into the nearby foothills.`\
 https://nytimes.com/2025/08/03/us/montana-owl-bar-shooting-victims-manhunt.html
