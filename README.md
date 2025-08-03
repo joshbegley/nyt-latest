@@ -1,3 +1,7 @@
+**Packers safety Omar Brown steals show with 3 picks at Family Night**\
+`Second-year safety Omar Brown now has five interceptions in camp as he fights for a spot on the 53-man roster.`\
+https://nytimes.com/athletic/6532933/2025/08/03/packers-omar-brown-training-camp-interceptions/
+
 **Are the Premier League’s traditional 'Big Six' buying more from the rest of the league?**\
 `Are there more PL to PL transfers overall? Is the 'Big Six' singing more domestic players? And why is this happening?`\
 https://nytimes.com/athletic/6524728/2025/08/03/why-the-premier-leagues-traditional-big-six-are-buying-more-from-the-rest-of-the-league/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6531163/2025/08/03/connections-sports-edition-hints
 **No Corrections: Aug. 3, 2025**\
 `No corrections appeared in print on Sunday, Aug. 3, 2025.`\
 https://nytimes.com/2025/08/03/pageoneplus/no-corrections-aug-3-2025.html
-
-**Damian Lillard to serve in general manager role at alma mater Weber State**\
-`Lillard's move to become general manager follows in the footsteps of other NBA players who have stepped into similar roles.`\
-https://nytimes.com/athletic/6532875/2025/08/02/damian-lillard-general-manager-weber-state/
 
