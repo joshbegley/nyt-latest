@@ -1,3 +1,7 @@
+**U.S. women's medley relay, in final race of worlds, sets record to win gold-medal battle**\
+`Kate Douglass, Regan Smith, Gretchen Walsh and Torri Huske put a satisfying cap on a difficult week for the Americans in Singapore.`\
+https://nytimes.com/athletic/6533138/2025/08/03/us-womens-medley-relay-world-record-gold-championships/
+
 **Storm Floris Is Set to Hit Britain With Powerful Winds and Heavy Rain**\
 `Wind gusts of more than 80 miles per hour are possible on Monday, especially in Scotland, as officials warned residents to stay inside.`\
 https://nytimes.com/2025/08/03/weather/storm-floris-britain-powerful-winds-heavy-rain.html
