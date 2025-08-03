@@ -1,3 +1,7 @@
+**Brown: F1’s political battles will be ‘healthier’ after Horner’s Red Bull exit**\
+`Brown and Horner have been at odds in recent years. Laurent Mekies is now in charge of Red Bull.`\
+https://nytimes.com/athletic/6533055/2025/08/03/zak-brown-christian-horner-f1/
+
 **Re-ranking the 49ers’ rookie class: 3 undrafted players make the top 10**\
 `Mykel Williams might have been the 49ers' top draft pick, but he's not No. 1 on our 1-18 ranking of rookie performers.`\
 https://nytimes.com/athletic/6532569/2025/08/03/49ers-training-camp-rookie-rankings/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6532756/2025/08/03/byron-buxton-twins-commitment-tr
 **Is this Bengals defense actually... good? Four things we learned in Week 2 of Bengals training camp**\
 `Plus, more concern about O-line depth, and promising signs from Shemar Stewart's first practices.`\
 https://nytimes.com/athletic/6532640/2025/08/03/bengals-defense-training-camp-performance/
-
-**What to Do When the President Acts Like a Five-Year-Old?**\
-`Most children learn at some point that flipping the board doesn’t make them the winner.`\
-https://nytimes.com/2025/08/03/opinion/trump-bls-fired-labor-jobs-data.html
 
