@@ -1,40 +1,40 @@
+**When Bloodshed and Chaos Arrived at 345 Park Avenue**\
+`On a steamy Monday evening, no one inside the Manhattan office building noticed the dark BMW pull up outside. The driver entered the lobby with a rifle in his hand.`\
+https://nytimes.com/2025/08/03/nyregion/park-avenue-shooting-manhattan.html
+
+**Curtis Sliwa Wants to Be Mayor. He’s Taking Off His Beret to Prove It.**\
+`The Guardian Angels founder and Republican nominee for mayor has long been a New York curiosity. Can he become a serious contender?`\
+https://nytimes.com/2025/08/03/nyregion/sliwa-beret-mayor-republican.html
+
+**A Cultural Sign of The Times**\
+`An intersection in Midtown Manhattan was briefly renamed after the photographer Bill Cunningham, who scoured the streets in search of standout fashion.`\
+https://nytimes.com/2025/08/03/insider/bill-cunningham.html
+
+**The Turmoil of an ICE Courthouse Arrest**\
+`Migrants show up for hearings or scheduled check-ins. In growing numbers, they end up in handcuffs as President Trump’s immigration crackdown shifts tactics.`\
+https://nytimes.com/2025/08/03/nyregion/immigrant-arrests-courthouse.html
+
+**‘I Asked Her Name So I Could Thank Her for the Lovely Conversation’**\
+`A pleasant wait for the bus on a hot day, a good find on the street and more reader tales of New York City in this week’s Metropolitan Diary.`\
+https://nytimes.com/2025/08/03/nyregion/metropolitan-diary.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/08/03/crosswords/spelling-bee-forum.html
+
+**Noel Gallagher Wouldn’t Buy His Music Zine. Now, He’s an Arts Reporter.**\
+`Alex Marshall, a European culture reporter for The New York Times, has turned a music obsession into an arts journalism career.`\
+https://nytimes.com/2025/08/03/insider/alex-marshall-new-york-times.html
+
+**A Voyage to Bring Norway’s Lighthouses Into the 21st Century**\
+`More than 2,000 navigational beacons, big and small, oversee the nation’s 60,000-mile-long coast. Now they need an upgrade.`\
+https://nytimes.com/2025/08/03/science/norway-lighthouse-fresnel.html
+
+**A Former American Soldier Finds a Home in Mexican Wrestling**\
+`Flip Gordon was uneasy about being a lucha libre wrestler dressed in a U.S. military uniform. Booed at first, he is now a fan favorite.`\
+https://nytimes.com/2025/08/03/world/americas/mexico-lucha-libre-flip-gordon.html
+
 **The New York Times in Print for Sunday, Aug. 3, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/08/03/todays-new-york-times
-
-**Israel Must Open Its Eyes**\
-`Defeating Hamas does not require starving a single child.`\
-https://nytimes.com/2025/08/03/opinion/israel-famine-hamas-netanyahu-trump.html
-
-**Packers safety Omar Brown steals show with 3 picks at Family Night**\
-`Second-year safety Omar Brown has five interceptions in camp as he fights for a spot on the 53-man roster.`\
-https://nytimes.com/athletic/6532933/2025/08/03/packers-omar-brown-training-camp-interceptions/
-
-**Are the Premier League’s traditional 'Big Six' buying more from the rest of the league?**\
-`Are there more PL to PL transfers overall? Is the 'Big Six' singing more domestic players? And why is this happening?`\
-https://nytimes.com/athletic/6524728/2025/08/03/why-the-premier-leagues-traditional-big-six-are-buying-more-from-the-rest-of-the-league/
-
-**Liverpool and Newcastle have made Isak and Sesko bids. Will either of them get their striker?**\
-`Over the course of Friday and Saturday, there were developments in Liverpool's pursuit of Isak and Newcastle's push for Sesko`\
-https://nytimes.com/athletic/6531791/2025/08/03/liverpool-newcastle-alexander-isak-benjamin-sesko-transfer-latest/
-
-**Harvey Elliott needs a move. The Bundesliga may be the perfect option**\
-`Elliott says that he wants to 'review his situation' at Liverpool. A move to Germany might provide the perfect platform for his talent `\
-https://nytimes.com/athletic/6468459/2025/08/03/harvey-elliott-liverpool-future-bundesliga/
-
-**How England won the 1966 World Cup: A proper manager, no wingers, and Bobby Charlton in his pomp**\
-`It took a home tournament for England to finally become World Champions – but they were almost certainly the best side at the tournament`\
-https://nytimes.com/athletic/6530311/2025/08/03/how-england-won-1966-world-cup/
-
-**Jonathan Klinsmann: 'There's pressure being dad's son. I need to be good'**\
-`USMNT hopeful explains why his father's legacy is no burden and why he has his sights set on the World Cup`\
-https://nytimes.com/athletic/6527711/2025/08/03/jonathan-klinsmann-jurgen-father-goalkeeper/
-
-**No Passports, No Study Abroad: China Limits Public Employees’ Travel**\
-`Even low-level government employees like elementary school teachers and nurses have been ordered to hand in their passports, to enforce “discipline.”`\
-https://nytimes.com/2025/08/03/world/asia/china-passports-civil-servants.html
-
-**Quote of the Day: Texas Pushes Redistricting Into an Era of ‘Maximum Warfare’**\
-`Quote of the Day for Sunday, August 3, 2025`\
-https://nytimes.com/2025/08/03/pageoneplus/quote-of-the-day-texas-pushes-redistricting-into-an-era-of-maximum-warfare.html
 
