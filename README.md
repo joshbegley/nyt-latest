@@ -1,3 +1,7 @@
+**OPEC Plus Will Increase Oil Output**\
+`Eight producers, led by Saudi Arabia, will continue boosting production despite forecasts that supply will soon exceed demand.`\
+https://nytimes.com/2025/08/03/business/opec-plus-oil-output.html
+
 **Trump ‘wants his own people’ in the Bureau of Labor Statistics, the White House says.**\
 `By Tony Romm`\
 https://nytimes.com/live/2025/08/03/us/trump-news/trump-wants-his-own-people-in-the-bureau-of-labor-statistics-the-white-house-says
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/03/us/politics/trump-charlamagne-tha-god-epstein-rep
 **Lowetide: Oilers' AHL roster for 2025-26 coming into view**\
 `Finding a play driver will be key for Bakersfield Condors coach Colin Chaulk and his staff this fall.`\
 https://nytimes.com/athletic/6531257/2025/08/03/edmonton-oilers-ahl-roster-2025/
-
-**The Briefing: Newcastle 1 Spurs 1 - Barnes goal and Gordon's role bring positivity, but feeling of uncertainty remains**\
-`After three defeats in succession, Newcastle United brought a flicker of positivity back to their pre-season`\
-https://nytimes.com/athletic/6531816/2025/08/03/newcastle-tottenham-barnes-isak-uncertainty/
 
