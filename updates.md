@@ -1,3 +1,11 @@
+**Derek Jeter and Alex Rodriguez criticized Yankees' mistakes. Aaron Boone says that's fair**\
+`"We're the Yankees," Boone said. "When we lose games, if it's in and around a mistake, that criticism is fair game."`\
+https://nytimes.com/athletic/6533409/2025/08/03/yankees-derek-jeter-alex-rodriguez-criticize-yankees-mistakes-aaron-boone/
+
+**Colts RB Salvon Ahmed suffers ‘severe leg injury’ after hip-drop tackle in training camp**\
+`Ahmed has played in 38 games rushing for 593 yards and five touchdowns.`\
+https://nytimes.com/athletic/6533546/2025/08/03/colts-salvon-ahmed-leg-injury-hip-drop-tackle-training-camp/
+
 **USMNT's Dest scores winner for PSV in Dutch Super Cup victory**\
 `The 24-year-old’s goal helped the PSV win their 15th Dutch Super Cup (Johan Cruijff Shield).`\
 https://nytimes.com/athletic/6533570/2025/08/03/usmnt-sergino-dest-psv-goal-super-cup/
