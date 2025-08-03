@@ -1,3 +1,7 @@
+**A decade after crying on the field amid trade rumors, Wilmer Flores is glad he's still a Giant**\
+`Flores has been conditioned to understand the business side of baseball. A decade ago? Not so much.`\
+https://nytimes.com/athletic/6532794/2025/08/02/decade-after-crying-on-the-field-wilmer-flores-trade-deadline/
+
 **Despite dismal season, Braves faithful flock to Speedway Classic**\
 `Tens of thousands of Braves fans turned out for the Speedway Classic game Saturday night in Bristol.`\
 https://nytimes.com/athletic/6532778/2025/08/02/loyal-braves-fans-speedway-classic/
