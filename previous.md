@@ -1,3 +1,11 @@
+**Hungarian Grand Prix: Submit your questions for our F1 mailbag**\
+`What questions do you have for our F1 writers after the 2025 Hungarian Grand Prix?`\
+https://nytimes.com/athletic/6533430/2025/08/03/hungarian-grand-prix-f1-mailbag/
+
+**‘Dalibor’ Review: A Gently Ravishing Score, an Awkward Plot**\
+`The director Jean-Romain Vesperini cleverly tied together the loose strands of Bedrich Smetana’s opera at Bard’s SummerScape festival.`\
+https://nytimes.com/2025/08/03/arts/music/dalibor-review-bard.html
+
 **Chelsea complete Hato transfer on seven-year deal**\
 `The Dutch international's move comes after the two clubs reached an agreement over a fee in excess of €40million plus a sell-on clause.`\
 https://nytimes.com/athletic/6526881/2025/08/03/hato-chelsea-transfer-news/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/08/03/dining/easy-slow-cooker-mississippi-chicken-recip
 **Hungarian Grand Prix: Norris wins a thriller over Piastri, Leclerc's victory evaporates**\
 `A Ferrari turnaround win disappeared as the McLarens put on a show. The drivers' title gap is now under 10 points `\
 https://nytimes.com/athletic/6533166/2025/08/03/hungarian-grand-prix-2025-result-lando-norris-mclaren-charles-leclerc/
-
-**Wings trade DiJonai Carrington to Lynx for Miller, Samuelson, draft pick**\
-`Carrington appeared in 20 games with the Wings this season, averaging 10.4 points, a career-high 5.1 rebounds and 1.8 assists.`\
-https://nytimes.com/athletic/6533194/2025/08/03/dijonai-carrington-trade-wings-lynx/
-
-**A Solid Debut for ‘The Naked Gun’**\
-`The film, one of the few comedies getting a theatrical release this year, generated about $17 million at the box office.`\
-https://nytimes.com/2025/08/03/business/media/the-naked-gun-box-office.html
 

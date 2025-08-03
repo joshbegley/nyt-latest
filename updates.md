@@ -1,3 +1,11 @@
+**Hungarian Grand Prix: Submit your questions for our F1 mailbag**\
+`What questions do you have for our F1 writers after the 2025 Hungarian Grand Prix?`\
+https://nytimes.com/athletic/6533430/2025/08/03/hungarian-grand-prix-f1-mailbag/
+
+**‘Dalibor’ Review: A Gently Ravishing Score, an Awkward Plot**\
+`The director Jean-Romain Vesperini cleverly tied together the loose strands of Bedrich Smetana’s opera at Bard’s SummerScape festival.`\
+https://nytimes.com/2025/08/03/arts/music/dalibor-review-bard.html
+
 **Chelsea complete Hato transfer on seven-year deal**\
 `The Dutch international's move comes after the two clubs reached an agreement over a fee in excess of €40million plus a sell-on clause.`\
 https://nytimes.com/athletic/6526881/2025/08/03/hato-chelsea-transfer-news/
