@@ -1,3 +1,11 @@
+**Even after a wild trade deadline, Yankees still lack sense of urgency**\
+`The Yankees were sloppy, again; they made Little League mistakes; and their bats were quieted in the final two games against Miami.`\
+https://nytimes.com/athletic/6533791/2025/08/03/ny-yankees-urgency-priority/
+
+**10-Minute Challenge: Bosch’s ‘Garden of Earthly Delights’**\
+`We’d like you to look at one piece of art for 10 minutes, uninterrupted.`\
+https://nytimes.com/interactive/2025/08/03/upshot/garden-of-earthly-delights.html
+
 **The Briefing: Manchester United 2 Everton 2 - Mbeumo's debut, defensive errors and Berrada talks transfers**\
 `Laurie Whitwell breaks down the main talking points from Manchester United's 2-2 draw with Everton in Atlanta, Georgia`\
 https://nytimes.com/athletic/6531817/2025/08/03/manchester-united-2-everton-2-mbeumo-mount-transfers-berrada/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6533679/2025/08/03/red-sox-sweep-astros-tanner-houc
 **Miyu Yamashita won the Women's Open, but Charley Hull stole the show**\
 `With Welsh dragons as golf club covers, Hull breathed fire and life into the tournament.`\
 https://nytimes.com/athletic/6533404/2025/08/03/womens-open-miyu-yamashita-charley-hull/
-
-**Trinity Rodman nets a game winner for the Washington Spirit in her first match since April**\
-`Rodman has been rehabilitating a back injury. The Spirit won 2-1 at home over the Portland Thorns.`\
-https://nytimes.com/athletic/6533826/2025/08/03/trinity-rodman-washington-spirit-return/
-
-**Rahaman Ali, Boxer Whose Brother Was ‘the Greatest,’ Dies at 82**\
-`Some said he had shown nearly as much promise in the ring as Muhammad Ali. But he gave up his own career to join the champ’s entourage.`\
-https://nytimes.com/2025/08/03/obituaries/rahaman-ali-dead.html
 

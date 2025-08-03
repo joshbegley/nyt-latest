@@ -1,3 +1,11 @@
+**Even after a wild trade deadline, Yankees still lack sense of urgency**\
+`The Yankees were sloppy, again; they made Little League mistakes; and their bats were quieted in the final two games against Miami.`\
+https://nytimes.com/athletic/6533791/2025/08/03/ny-yankees-urgency-priority/
+
+**10-Minute Challenge: Bosch’s ‘Garden of Earthly Delights’**\
+`We’d like you to look at one piece of art for 10 minutes, uninterrupted.`\
+https://nytimes.com/interactive/2025/08/03/upshot/garden-of-earthly-delights.html
+
 **The Briefing: Manchester United 2 Everton 2 - Mbeumo's debut, defensive errors and Berrada talks transfers**\
 `Laurie Whitwell breaks down the main talking points from Manchester United's 2-2 draw with Everton in Atlanta, Georgia`\
 https://nytimes.com/athletic/6531817/2025/08/03/manchester-united-2-everton-2-mbeumo-mount-transfers-berrada/
