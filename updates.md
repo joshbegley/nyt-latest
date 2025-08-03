@@ -1,3 +1,7 @@
+**Chelsea complete Hato transfer on seven-year deal**\
+`The Dutch international's move comes after the two clubs reached an agreement over a fee in excess of €40million plus a sell-on clause.`\
+https://nytimes.com/athletic/6526881/2025/08/03/hato-chelsea-transfer-news/
+
 **Driver Dies After Hitting a Moose Near Denali National Park in Alaska**\
 `The crash, near the park’s only vehicular entrance at about 1 a.m. on Friday, also injured a passenger.`\
 https://nytimes.com/2025/08/03/us/denali-national-park-crash-moose-alaska.html

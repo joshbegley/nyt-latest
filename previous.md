@@ -1,3 +1,7 @@
+**Chelsea complete Hato transfer on seven-year deal**\
+`The Dutch international's move comes after the two clubs reached an agreement over a fee in excess of €40million plus a sell-on clause.`\
+https://nytimes.com/athletic/6526881/2025/08/03/hato-chelsea-transfer-news/
+
 **Driver Dies After Hitting a Moose Near Denali National Park in Alaska**\
 `The crash, near the park’s only vehicular entrance at about 1 a.m. on Friday, also injured a passenger.`\
 https://nytimes.com/2025/08/03/us/denali-national-park-crash-moose-alaska.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6533194/2025/08/03/dijonai-carrington-trade-wings-l
 **A Solid Debut for ‘The Naked Gun’**\
 `The film, one of the few comedies getting a theatrical release this year, generated about $17 million at the box office.`\
 https://nytimes.com/2025/08/03/business/media/the-naked-gun-box-office.html
-
-**Sandra Grimes, Who Helped Unmask a C.I.A. Traitor, Dies at 79**\
-`She became suspicious when she discovered large deposits in the bank account of Aldrich Ames, whose betrayal cost the lives of at least eight double agents.`\
-https://nytimes.com/2025/08/03/us/politics/sandra-grimes-dead.html
 
