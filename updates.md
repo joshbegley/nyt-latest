@@ -1,3 +1,15 @@
+**Storm Floris Is Set to Hit Britain With Powerful Winds and Heavy Rain**\
+`Wind gusts of more than 80 miles per hour are possible on Monday, especially in Scotland, as officials warned residents to stay inside.`\
+https://nytimes.com/2025/08/03/weather/storm-floris-britain-powerful-winds-heavy-rain.html
+
+**Trump Administration Live Updates: Senate Confirms Jeanine Pirro as U.S. Attorney for D.C.**\
+``\
+https://nytimes.com/live/2025/08/03/us/trump-news
+
+**A Tie-Dye Version of Jerry Garcia’s Legacy?**\
+`Readers differ on the meaning of Jerry Garcia’s politics. Also: Where students debate; more trees in cities; lawyers vs. President Trump.`\
+https://nytimes.com/2025/08/03/opinion/jerry-garcia-grateful-dead.html
+
 **Summer McIntosh caps superb world championships with record swim and fourth gold**\
 `McIntosh became just the fifth swimmer to ever win four individual golds at a single world championships.`\
 https://nytimes.com/athletic/6533048/2025/08/03/summer-mcintosh-400-im-gold-world-championships-record/

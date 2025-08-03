@@ -1,3 +1,15 @@
+**Storm Floris Is Set to Hit Britain With Powerful Winds and Heavy Rain**\
+`Wind gusts of more than 80 miles per hour are possible on Monday, especially in Scotland, as officials warned residents to stay inside.`\
+https://nytimes.com/2025/08/03/weather/storm-floris-britain-powerful-winds-heavy-rain.html
+
+**Trump Administration Live Updates: Senate Confirms Jeanine Pirro as U.S. Attorney for D.C.**\
+``\
+https://nytimes.com/live/2025/08/03/us/trump-news
+
+**A Tie-Dye Version of Jerry Garcia’s Legacy?**\
+`Readers differ on the meaning of Jerry Garcia’s politics. Also: Where students debate; more trees in cities; lawyers vs. President Trump.`\
+https://nytimes.com/2025/08/03/opinion/jerry-garcia-grateful-dead.html
+
 **Summer McIntosh caps superb world championships with record swim and fourth gold**\
 `McIntosh became just the fifth swimmer to ever win four individual golds at a single world championships.`\
 https://nytimes.com/athletic/6533048/2025/08/03/summer-mcintosh-400-im-gold-world-championships-record/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/08/03/world/europe/russia-volcano-eruption.html
 **The trade within the trade: How Jhoan Duran's electric entrance accompanied him from Twins to Phillies**\
 `Duran thought his electric entrance was too good to leave behind. The Twins agreed. After trading him, they helped the Phillies recreate it.`\
 https://nytimes.com/athletic/6532697/2025/08/03/jhoan-duran-entrance-phillies-twins-trade/
-
-**Ruben Amorim interview: United's head coach on walking away, code of conduct and exiled players**\
-`Head coach Amorim sat down with reporters in Chicago during United's pre-season preparations for the 2025-26 Premier League`\
-https://nytimes.com/athletic/6532711/2025/08/03/ruben-amorim-manchester-united-interview-exit/
-
-**Browns' dud of a QB competition among 9 thoughts through 9 days of training camp**\
-`Joe Flacco is now likely the strong favorite as Kenny Pickett has battled a hamstring injury and Shedeur Sanders has shoulder soreness.`\
-https://nytimes.com/athletic/6532498/2025/08/03/browns-training-camp-qb-competition/
-
-**Three More Workers Found Dead in Collapsed Chilean Mine**\
-`Rescuers have recovered the bodies of four miners and are searching for two more after an earthquake caused a partial collapse at El Teniente mine last week.`\
-https://nytimes.com/2025/08/03/us/three-more-dead-collapsed-mine-chile-el-teniente.html
 
