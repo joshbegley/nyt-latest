@@ -1,3 +1,7 @@
+**OPEC Plus Will Increase Oil Output**\
+`Eight producers, led by Saudi Arabia, will continue boosting production despite forecasts that supply will soon exceed demand.`\
+https://nytimes.com/2025/08/03/business/opec-plus-oil-output.html
+
 **Trump ‘wants his own people’ in the Bureau of Labor Statistics, the White House says.**\
 `By Tony Romm`\
 https://nytimes.com/live/2025/08/03/us/trump-news/trump-wants-his-own-people-in-the-bureau-of-labor-statistics-the-white-house-says
