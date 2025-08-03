@@ -1,3 +1,7 @@
+**Carlos Correa brings spark to Astros, but production questions remain**\
+`Vibes are appreciated, but production wins pennants. How much of it Correa can contribute is a legitimate question.`\
+https://nytimes.com/athletic/6532705/2025/08/02/carlos-correas-astros-spark-production/
+
 **Reds' Tyler Stephenson sports Ricky Bobby-inspired gear at Speedway Classic**\
 `In honor of NASCAR and one-time Cincinnati Red Will Ferrell, Stephenson contacted his reps at Evoshield to create his custom catching gear.`\
 https://nytimes.com/athletic/6532720/2025/08/02/reds-tyler-stephenson-ricky-bobby-talladega-nights-speedway-classic/
