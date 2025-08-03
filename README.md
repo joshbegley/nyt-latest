@@ -1,3 +1,23 @@
+**Cruz Criticizes Hochul for Wearing Head Scarf at Slain Officer’s Funeral**\
+`In a social media back-and-forth, Gov. Kathy Hochul of New York replied to Senator Ted Cruz of Texas that “anyone with basic decency” would respect the officer’s Muslim faith.`\
+https://nytimes.com/2025/08/03/nyregion/cruz-hochul-head-scarf-officer-funeral.html
+
+**Frankie Montas struggles highlight Mets' rotation woes in series loss to Giants**\
+`"He's got to be better. He knows that," manager Carlos Mendoza said when asked if Montas' role going forward was up for discussion.`\
+https://nytimes.com/athletic/6533804/2025/08/03/mets-takeaways-frankie-montas-struggles/
+
+**Red Sox takeaways: Astros sweep, Tanner Houck surgery, Marcelo Mayer limbo**\
+`Lucas Giolito held Houston to one run over eight innings Sunday in the Red Sox 6-1 win Sunday.`\
+https://nytimes.com/athletic/6533679/2025/08/03/red-sox-sweep-astros-tanner-houck-marcelo-mayer/
+
+**Miyu Yamashita won the Women's Open, but Charley Hull stole the show**\
+`With Welsh dragons as golf club covers, Hull breathed fire and life into the tournament.`\
+https://nytimes.com/athletic/6533404/2025/08/03/womens-open-miyu-yamashita-charley-hull/
+
+**Trinity Rodman nets a game-winner for the Washington Spirit in her first match since April**\
+`Rodman has been rehabilitating a back injury`\
+https://nytimes.com/athletic/6533826/2025/08/03/trinity-rodman-washington-spirit-return/
+
 **Rahaman Ali, Boxer Whose Brother Was ‘the Greatest,’ Dies at 82**\
 `Some said he had shown nearly as much promise in the ring as Muhammad Ali. But he gave up his own career to join the champ’s entourage.`\
 https://nytimes.com/2025/08/03/obituaries/rahaman-ali-dead.html
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/6533738/2025/08/03/miami-marlins-sweep-ny-yankees/
 **Tim Weah move to Marseille from Juventus nears completion: Source**\
 `Weah appears headed back to Ligue 1, where he previously played for PSG and Lille.`\
 https://nytimes.com/athletic/6533751/2025/08/03/tim-weah-marseille-transfer-juventus-usmnt/
-
-**Bears offense 'sloppier than we were hoping' before Williams and Loveland close with TD**\
-`At Soldier Field, the Bears' offense had a couple delay-of-game penalties, but Caleb Williams finished the two-minute drill with a score.`\
-https://nytimes.com/athletic/6533702/2025/08/03/bears-offense-caleb-williams-colston-loveland/
-
-**State Trooper Is Said to Be a Suspect in 2 Fatal Shootings**\
-`A New Jersey state trooper who had guarded the governor is believed to have fatally shot a man and a woman before killing himself, people familiar with the investigation said.`\
-https://nytimes.com/2025/08/03/nyregion/new-jersey-state-trooper-shootings-suspect.html
-
-**Monday Briefing: An ‘All or Nothing’ Gaza Deal**\
-`Plus, influencers feted by the Vatican.`\
-https://nytimes.com/2025/08/03/briefing/gaza-hostage-deal-tariff-russia-vatican.html
-
-**Texas Democrats to Leave State to Block G.O.P. From Redrawing Political Map**\
-`The move would be a sharp escalation in the bitterly partisan clash over a congressional redistricting requested by President Trump.`\
-https://nytimes.com/2025/08/03/us/texas-democrats-walkout-redistricting-map-gop.html
-
-**James Cook sits out Bills practice, calls it 'business'**\
-`Cook has openly wanted a new contract. When asked for a reason why the running back did not participate, the team issued a "no comment."`\
-https://nytimes.com/athletic/6533534/2025/08/03/bills-james-cook-practice-contract/
 
