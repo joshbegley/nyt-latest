@@ -1,3 +1,11 @@
+**Loni Anderson, Star of ‘WKRP in Cincinnati,’ Dies at 79**\
+`Known for her platinum blond hair, she earned Golden Globe and Emmy nominations for her role. Her divorce from Burt Reynolds landed her in the tabloids for years.`\
+https://nytimes.com/2025/08/03/arts/television/loni-anderson-dead.html
+
+**Noah Lyles' taunting stare sparks beef with Kenny Bednarek at U.S. track championships**\
+`Lyles passed Bednarek down the stretch Sunday to win the 200-meter title at the U.S. championships, punctuating it with a staredown.`\
+https://nytimes.com/athletic/6533875/2025/08/03/noah-lyles-kenny-bednarek-stare-200-us-track-championships/
+
 **Frankie Montas' struggles highlight Mets' rotation woes in series loss to Giants**\
 `"He's got to be better. He knows that," manager Carlos Mendoza said when asked if Montas' role going forward was up for discussion.`\
 https://nytimes.com/athletic/6533804/2025/08/03/mets-takeaways-frankie-montas-struggles/

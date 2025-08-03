@@ -1,3 +1,11 @@
+**Loni Anderson, Star of ‘WKRP in Cincinnati,’ Dies at 79**\
+`Known for her platinum blond hair, she earned Golden Globe and Emmy nominations for her role. Her divorce from Burt Reynolds landed her in the tabloids for years.`\
+https://nytimes.com/2025/08/03/arts/television/loni-anderson-dead.html
+
+**Noah Lyles' taunting stare sparks beef with Kenny Bednarek at U.S. track championships**\
+`Lyles passed Bednarek down the stretch Sunday to win the 200-meter title at the U.S. championships, punctuating it with a staredown.`\
+https://nytimes.com/athletic/6533875/2025/08/03/noah-lyles-kenny-bednarek-stare-200-us-track-championships/
+
 **Cameron Young secures first PGA Tour victory with Wyndham Championship win**\
 `Before this week, Young’s second-place finish count of seven was the most by any player on tour without a win since 1983.`\
 https://nytimes.com/athletic/6533829/2025/08/03/cameron-young-pga-tour-win-wyndham-championship/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/08/03/obituaries/rahaman-ali-dead.html
 **Oasis Says It’s ‘Shocked’ by Death of Fan at London Concert**\
 `A concertgoer apparently fell from the upper tiers at Wembley Stadium as the band’s reunion tour show was winding down.`\
 https://nytimes.com/2025/08/03/world/europe/oasis-comcert-death.html
-
-**Seed Covering**\
-`Patti Varol runs a tight crossword puzzle.`\
-https://nytimes.com/2025/08/03/crosswords/daily-puzzle-2025-08-04.html
-
-**Marlins sweep Yankees for first time in franchise history, claw back to .500**\
-`Since June 13, the club has gone 30-14, tying the Milwaukee Brewers for most wins in MLB during that span. `\
-https://nytimes.com/athletic/6533738/2025/08/03/miami-marlins-sweep-ny-yankees/
 
