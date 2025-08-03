@@ -1,3 +1,7 @@
+**Carlos Correa brings spark to Astros, but production questions remain**\
+`Vibes are appreciated, but production wins pennants. How much of it Correa can contribute is a legitimate question.`\
+https://nytimes.com/athletic/6532705/2025/08/02/carlos-correas-astros-spark-production/
+
 **Reds' Tyler Stephenson sports Ricky Bobby-inspired gear at Speedway Classic**\
 `In honor of NASCAR and one-time Cincinnati Red Will Ferrell, Stephenson contacted his reps at Evoshield to create his custom catching gear.`\
 https://nytimes.com/athletic/6532720/2025/08/02/reds-tyler-stephenson-ricky-bobby-talladega-nights-speedway-classic/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6532627/2025/08/02/napheesa-collier-lynx-ankle-inju
 **Lakers general manager says it would be 'great' if LeBron retires with team**\
 `James is entering the final year of his contract with the Lakers, a deal he opted into at the end of June.`\
 https://nytimes.com/athletic/6532605/2025/08/02/lakers-lebron-james-rob-pelinka-career-nba/
-
-**Gifford Fire Burns More Than 23,000 Acres at Los Padres Forest in California**\
-`The Gifford fire, which has been fueled by dry conditions and warm weather, has spread to two counties, officials said.`\
-https://nytimes.com/2025/08/02/us/los-padres-forest-wildfire-california.html
 
