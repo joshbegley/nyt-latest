@@ -1,3 +1,7 @@
+**Third Child in Sailing Camp Dies After Barge Hit Boat Off Miami Beach**\
+`Six people, including a camp counselor, aboard a sailboat were thrown into the water after the collision on Monday, the authorities said.`\
+https://nytimes.com/2025/08/03/us/miami-beach-sailboat-crash-child-dead.html
+
 **Derek Jeter and Alex Rodriguez criticized Yankees' mistakes. Aaron Boone says that's fair**\
 `"We're the Yankees," Boone said. "When we lose games, if it's in and around a mistake, that criticism is fair game."`\
 https://nytimes.com/athletic/6533409/2025/08/03/yankees-derek-jeter-alex-rodriguez-criticize-yankees-mistakes-aaron-boone/
