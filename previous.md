@@ -1,40 +1,40 @@
-**Bayern Munich's Pavlovic undergoes surgery after fracturing eye socket**\
-`Pavlovic, 21, suffered the injury in training on Friday.`\
-https://nytimes.com/athletic/6532985/2025/08/03/aleksandar-pavlovic-injury-update/
+**Senate Confirms Jeanine Pirro as U.S. Attorney for D.C.**\
+`The former Fox News host, whose false statements about the 2020 election were part of a lawsuit against the network, had been serving in the role on a temporary basis.`\
+https://nytimes.com/2025/08/03/us/politics/senate-confirmation-jeanine-pirro-us-attorney.html
 
-**When Bloodshed and Chaos Arrived at 345 Park Avenue**\
-`On a steamy Monday evening, no one inside the Manhattan office building noticed the dark BMW pull up outside. The driver entered the lobby with a rifle in his hand.`\
-https://nytimes.com/2025/08/03/nyregion/park-avenue-shooting-manhattan.html
+**What We Know About the Montana Bar Shooting**\
+`Four people were killed in the attack inside the Owl Bar in Anaconda, Mont. The authorities are still searching for the suspect, an Army veteran who lived nearby.`\
+https://nytimes.com/2025/08/03/us/montana-search-anaconda-bar-shooting.html
 
-**Curtis Sliwa Wants to Be Mayor. He’s Taking Off His Beret to Prove It.**\
-`The Guardian Angels founder and Republican nominee for mayor has long been a New York curiosity. Can he become a serious contender?`\
-https://nytimes.com/2025/08/03/nyregion/sliwa-beret-mayor-republican.html
+**Trump’s Efforts to Control Information Echo an Authoritarian Playbook**\
+`In firing the head of the agency that collects employment statistics, the president underscored his tendency to suppress facts he doesn’t like and promote his own version of reality.`\
+https://nytimes.com/2025/08/03/us/politics/trump-bls-jobs-facts.html
 
-**A Cultural Sign of The Times**\
-`An intersection in Midtown Manhattan was briefly renamed after the photographer Bill Cunningham, who scoured the streets in search of standout fashion.`\
-https://nytimes.com/2025/08/03/insider/bill-cunningham.html
+**Trump Fired America’s Economic Data Collector. History Shows the Perils.**\
+`Economists say unbiased data is essential for policymaking, and for democracy.`\
+https://nytimes.com/2025/08/03/business/trump-bls-firing-economic-reports.html
 
-**The Turmoil of an ICE Courthouse Arrest**\
-`Migrants show up for hearings or scheduled check-ins. In growing numbers, they end up in handcuffs as President Trump’s immigration crackdown shifts tactics.`\
-https://nytimes.com/2025/08/03/nyregion/immigrant-arrests-courthouse.html
+**The Billionaire Behind Mysterious Immigration Ads Targeting Miami Republicans**\
+`“Deporting immigrants is cruel,” some of the ads against Cuban Americans in Congress read. Michael B. Fernández wanted to “wake up” Miami’s conscience.`\
+https://nytimes.com/2025/08/03/us/immigration-ads-florida-michael-b-fernandez.html
 
-**‘I Asked Her Name So I Could Thank Her for the Lovely Conversation’**\
-`A pleasant wait for the bus on a hot day, a good find on the street and more reader tales of New York City in this week’s Metropolitan Diary.`\
-https://nytimes.com/2025/08/03/nyregion/metropolitan-diary.html
+**Putin Widens Effort to Control Russia’s Internet**\
+`The introduction of a state-approved messaging app has raised fears that Russia could be preparing to block WhatsApp and Telegram.`\
+https://nytimes.com/2025/08/03/world/europe/russia-putin-internet.html
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2025/08/03/crosswords/spelling-bee-forum.html
+**How to watch Fever vs. Storm: Indiana riding a winning streak without Caitlin Clark**\
+`Seattle’s hardwood hosts a marquee matinee Sunday when the red-hot Fever visit the Storm.`\
+https://nytimes.com/athletic/6531170/2025/08/03/wnba-fever-vs-storm-record-caitlin-clark-how-to-watch/
 
-**Noel Gallagher Wouldn’t Buy His Music Zine. Now, He’s an Arts Reporter.**\
-`Alex Marshall, a European culture reporter for The New York Times, has turned a music obsession into an arts journalism career.`\
-https://nytimes.com/2025/08/03/insider/alex-marshall-new-york-times.html
+**A Fight Over a West Point Job Reveals Two Visions of America Under Trump**\
+`Jen Easterly, who had served in Republican and Democratic administrations, was headed to the academy. Then a right-wing activist stepped in.`\
+https://nytimes.com/2025/08/03/us/politics/west-point-easterly-trump-loomer.html
 
-**A Voyage to Bring Norway’s Lighthouses Into the 21st Century**\
-`More than 2,000 navigational beacons, big and small, oversee the nation’s 60,000-mile-long coast. Now they need an upgrade.`\
-https://nytimes.com/2025/08/03/science/norway-lighthouse-fresnel.html
+**The 109-Year-Old Pact That Looms Over European Moves to Recognize a Palestinian State**\
+`The Sykes-Picot Agreement was a secret treaty Britain and France signed more than a century ago. Many consider it to have seeded a legacy of strife in the Middle East.`\
+https://nytimes.com/2025/08/03/world/middleeast/britan-france-palestine-sykes-picot-agreement.html
 
-**A Former American Soldier Finds a Home in Mexican Wrestling**\
-`Flip Gordon was uneasy about being a lucha libre wrestler dressed in a U.S. military uniform. Booed at first, he is now a fan favorite.`\
-https://nytimes.com/2025/08/03/world/americas/mexico-lucha-libre-flip-gordon.html
+**Inside the ‘Radical Transformation’ of America’s Environmental Role**\
+`The E.P.A. said this week it would revoke its own ability to fight climate change. It’s the latest move in an extraordinary pivot away from science-based protections.`\
+https://nytimes.com/2025/08/03/climate/trump-epa-endangerment-finding-climate-change.html
 

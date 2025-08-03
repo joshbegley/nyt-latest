@@ -1,3 +1,43 @@
+**Senate Confirms Jeanine Pirro as U.S. Attorney for D.C.**\
+`The former Fox News host, whose false statements about the 2020 election were part of a lawsuit against the network, had been serving in the role on a temporary basis.`\
+https://nytimes.com/2025/08/03/us/politics/senate-confirmation-jeanine-pirro-us-attorney.html
+
+**What We Know About the Montana Bar Shooting**\
+`Four people were killed in the attack inside the Owl Bar in Anaconda, Mont. The authorities are still searching for the suspect, an Army veteran who lived nearby.`\
+https://nytimes.com/2025/08/03/us/montana-search-anaconda-bar-shooting.html
+
+**Trump’s Efforts to Control Information Echo an Authoritarian Playbook**\
+`In firing the head of the agency that collects employment statistics, the president underscored his tendency to suppress facts he doesn’t like and promote his own version of reality.`\
+https://nytimes.com/2025/08/03/us/politics/trump-bls-jobs-facts.html
+
+**Trump Fired America’s Economic Data Collector. History Shows the Perils.**\
+`Economists say unbiased data is essential for policymaking, and for democracy.`\
+https://nytimes.com/2025/08/03/business/trump-bls-firing-economic-reports.html
+
+**The Billionaire Behind Mysterious Immigration Ads Targeting Miami Republicans**\
+`“Deporting immigrants is cruel,” some of the ads against Cuban Americans in Congress read. Michael B. Fernández wanted to “wake up” Miami’s conscience.`\
+https://nytimes.com/2025/08/03/us/immigration-ads-florida-michael-b-fernandez.html
+
+**Putin Widens Effort to Control Russia’s Internet**\
+`The introduction of a state-approved messaging app has raised fears that Russia could be preparing to block WhatsApp and Telegram.`\
+https://nytimes.com/2025/08/03/world/europe/russia-putin-internet.html
+
+**How to watch Fever vs. Storm: Indiana riding a winning streak without Caitlin Clark**\
+`Seattle’s hardwood hosts a marquee matinee Sunday when the red-hot Fever visit the Storm.`\
+https://nytimes.com/athletic/6531170/2025/08/03/wnba-fever-vs-storm-record-caitlin-clark-how-to-watch/
+
+**A Fight Over a West Point Job Reveals Two Visions of America Under Trump**\
+`Jen Easterly, who had served in Republican and Democratic administrations, was headed to the academy. Then a right-wing activist stepped in.`\
+https://nytimes.com/2025/08/03/us/politics/west-point-easterly-trump-loomer.html
+
+**The 109-Year-Old Pact That Looms Over European Moves to Recognize a Palestinian State**\
+`The Sykes-Picot Agreement was a secret treaty Britain and France signed more than a century ago. Many consider it to have seeded a legacy of strife in the Middle East.`\
+https://nytimes.com/2025/08/03/world/middleeast/britan-france-palestine-sykes-picot-agreement.html
+
+**Inside the ‘Radical Transformation’ of America’s Environmental Role**\
+`The E.P.A. said this week it would revoke its own ability to fight climate change. It’s the latest move in an extraordinary pivot away from science-based protections.`\
+https://nytimes.com/2025/08/03/climate/trump-epa-endangerment-finding-climate-change.html
+
 **Bayern Munich's Pavlovic undergoes surgery after fracturing eye socket**\
 `Pavlovic, 21, suffered the injury in training on Friday.`\
 https://nytimes.com/athletic/6532985/2025/08/03/aleksandar-pavlovic-injury-update/
