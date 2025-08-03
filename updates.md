@@ -13,6 +13,11 @@ https://nytimes.com/athletic/6533527/2025/08/03/tour-de-france-femmes-ferrand-pr
 `\
 https://nytimes.com/athletic/6533527/2025/08/03/tour-de-france-femmes-ferrand-prevot/
 
+**How Pauline Ferrand-Prevot became the first French winner of the Tour de France Femmes**\
+`This year's race was always likely to come down to the final weekend in the mountains, and so it proved on Sunday...
+`\
+https://nytimes.com/athletic/6533527/2025/08/03/tour-de-france-femmes-ferrand-prevot/
+
 **Marlins sweep Yankees for first time in franchise history, claw back to .500**\
 `Since June 13, the club has gone 30-14, tying the Milwaukee Brewers for most wins in MLB during that span. `\
 https://nytimes.com/athletic/6533738/2025/08/03/miami-marlins-sweep-ny-yankees/
