@@ -1,3 +1,7 @@
+**The New York Times International Edition in Print for Monday, Aug. 4, 2025**\
+``\
+https://nytimes.com/issue/todaysinyt/2025/08/03/todays-new-york-times-international-edition
+
 **Senate Confirms Jeanine Pirro as U.S. Attorney for D.C.**\
 `The former Fox News host, whose false statements about the 2020 election were part of a lawsuit against the network, had been serving in the role on a temporary basis.`\
 https://nytimes.com/2025/08/03/us/politics/senate-confirmation-jeanine-pirro-us-attorney.html
