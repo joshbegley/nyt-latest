@@ -1,3 +1,7 @@
+**In a battle of aces, Zack Wheeler's command remained elusive in Phillies loss**\
+`The Phillies’ ace has allowed three or more runs in just six of 22 starts this year — but three of those starts have come in the past month.`\
+https://nytimes.com/athletic/6532671/2025/08/02/battle-of-aces-zack-wheelers-command-elusive-phillies-loss/
+
 **Carlos Correa brings spark to Astros, but production questions remain**\
 `Vibes are appreciated, but production wins pennants. How much of it Correa can contribute is a legitimate question.`\
 https://nytimes.com/athletic/6532705/2025/08/02/carlos-correas-astros-spark-production/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6532595/2025/08/02/raiders-training-camp-practice-r
 **Lynx star Napheesa Collier to undergo testing after injuring ankle vs. Aces**\
 `Collier’s injury occurred with just under 30 seconds left in the third quarter as she attempted to bring in an offensive rebound.`\
 https://nytimes.com/athletic/6532627/2025/08/02/napheesa-collier-lynx-ankle-injury-aces/
-
-**Lakers general manager says it would be 'great' if LeBron retires with team**\
-`James is entering the final year of his contract with the Lakers, a deal he opted into at the end of June.`\
-https://nytimes.com/athletic/6532605/2025/08/02/lakers-lebron-james-rob-pelinka-career-nba/
 
