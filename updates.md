@@ -1,3 +1,11 @@
+**Despite dismal season, Braves faithful flock to Speedway Classic**\
+`Tens of thousands of Braves fans turned out for the Speedway Classic game Saturday night in Bristol.`\
+https://nytimes.com/athletic/6532778/2025/08/02/loyal-braves-fans-speedway-classic/
+
+**Brazil tops Colombia to capture historic 9th Copa América title in shootout**\
+`After a campaign that saw scant crowds in the stands across Ecuador, the cinematic final drew the biggest attendance of the tournament. `\
+https://nytimes.com/athletic/6532662/2025/08/02/copa-america-femenina-brazil-colombia-penalty-shootout-results/
+
 **In a battle of aces, Zack Wheeler's command remained elusive in Phillies loss**\
 `The Phillies’ ace has allowed three or more runs in just six of 22 starts this year, but three of those starts have come in the past month.`\
 https://nytimes.com/athletic/6532671/2025/08/02/phillies-zack-wheeler-command-problems/
