@@ -1,3 +1,7 @@
+**Antonio to not be offered new West Ham contract**\
+`Antonio can carry on training with the club's under-21 side as he continues his recovery.`\
+https://nytimes.com/athletic/6439922/2025/08/03/michail-antonio-west-ham-contract/
+
 **Byron Buxton doubles down on desire to stay with Twins after deadline: 'Nothing's changed'**\
 `Buxton is certain of one thing: He wants to spend the rest of his career with the Twins and would invoke his no-trade clause if necessary.`\
 https://nytimes.com/athletic/6532756/2025/08/03/byron-buxton-twins-commitment-trade-deadline/
