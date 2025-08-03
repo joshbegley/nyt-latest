@@ -1,3 +1,11 @@
+**Al Hilal identify Liverpool's Nunez as priority target**\
+`Al Hilal pursued Victor Osimhen, with Alexander Isak and Benjamin Sesko also among the options considered.`\
+https://nytimes.com/athletic/6533140/2025/08/03/darwin-nunez-al-hilal-liverpool-transfer/
+
+**Jorrel Hato to Chelsea: Everything you need to know – TLDR**\
+`Chelsea have added to their defensive options with the signing of Jorrel Hato from Ajax – here we break down the deal`\
+https://nytimes.com/athletic/6526988/2025/08/03/jorrel-hato-chelsea-transfer-analysis/
+
 **Hungarian Grand Prix: Submit your questions for our F1 mailbag**\
 `What questions do you have for our F1 writers after the 2025 Hungarian Grand Prix?`\
 https://nytimes.com/athletic/6533430/2025/08/03/hungarian-grand-prix-f1-mailbag/
