@@ -1,3 +1,11 @@
+**Fan arrested for hurling sex toy during WNBA game between Valkyries, Dream**\
+`Some WNBA players have laughed about the incident while also acknowledging it as a potential safety hazard.`\
+https://nytimes.com/athletic/6532751/2025/08/02/sex-toy-fan-arrested-wnba-valkyries-dream/
+
+**Map: 3.0-Magnitude Earthquake Strikes New Jersey**\
+`View the location of the quake’s epicenter and shake area.`\
+https://nytimes.com/interactive/2025/08/02/nyregion/new-jersey-earthquake.html
+
 **A decade after crying on the field amid trade rumors, Wilmer Flores is glad he's still a Giant**\
 `Flores has been conditioned to understand the business side of baseball. A decade ago? Not so much.`\
 https://nytimes.com/athletic/6532794/2025/08/02/decade-after-crying-on-the-field-wilmer-flores-trade-deadline/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6532701/2025/08/02/lionel-messi-injury-leg-necaxa-i
 **Vicky Mboko dominates Coco Gauff in straight sets at Canadian Open**\
 `This time last year, Mboko was ranked outside the top 300. Now, the 18-year-old Canadian is into the quarterfinals of her home tournament.`\
 https://nytimes.com/athletic/6532727/2025/08/02/vicky-mboko-coco-gauff-match-canadian-open/
-
-**Behind Aaron Rodgers, Rudolph perfects the art of staying ready: Steelers training camp observations**\
-`Plus, James Pierre reels in two interceptions during Saturday's light practice.`\
-https://nytimes.com/athletic/6532684/2025/08/02/mason-rudolph-aaron-rodgers-backup-steelers-training-camp/
-
-**Sydney McLaughlin-Levrone is all-in on the 400 meters. Look out, everyone else**\
-`The American star is focused on the 400 flat for this year's world championships, and she'll head to Tokyo as a gold-medal contender.`\
-https://nytimes.com/athletic/6532664/2025/08/02/sydney-mclaughlin-levrone-400-meters-us-track-field-championships/
 
