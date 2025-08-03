@@ -1,5 +1,5 @@
 **Packers safety Omar Brown steals show with 3 picks at Family Night**\
-`Second-year safety Omar Brown now has five interceptions in camp as he fights for a spot on the 53-man roster.`\
+`Second-year safety Omar Brown has five interceptions in camp as he fights for a spot on the 53-man roster.`\
 https://nytimes.com/athletic/6532933/2025/08/03/packers-omar-brown-training-camp-interceptions/
 
 **Are the Premier League’s traditional 'Big Six' buying more from the rest of the league?**\
