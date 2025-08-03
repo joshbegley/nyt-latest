@@ -8,6 +8,11 @@ https://nytimes.com/athletic/6533527/2025/08/03/tour-de-france-femmes-ferrand-pr
 `\
 https://nytimes.com/athletic/6533527/2025/08/03/tour-de-france-femmes-ferrand-prevot/
 
+**How Pauline Ferrand-Prevot became the first French winner of the Tour de France Femmes**\
+`This year's race was always likely to come down to the final weekend in the mountains, and so it proved on Sunday...
+`\
+https://nytimes.com/athletic/6533527/2025/08/03/tour-de-france-femmes-ferrand-prevot/
+
 **More Than 60 Migrants Dead After Boat Capsizes Off the Coast of Yemen**\
 `The trip across the Gulf of Aden is the first leg of one of the world’s riskiest — and busiest — migration and smuggling routes.`\
 https://nytimes.com/2025/08/03/world/middleeast/yemen-migration-saudi.html
