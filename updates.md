@@ -1,3 +1,15 @@
+**Brown: F1’s political battles will be ‘healthier’ after Horner’s Red Bull exit**\
+`Brown and Horner have been at odds in recent years. Laurent Mekies is now in charge of Red Bull.`\
+https://nytimes.com/athletic/6533055/2025/08/03/zak-brown-christian-horner-f1/
+
+**Re-ranking the 49ers’ rookie class: 3 undrafted players make the top 10**\
+`Mykel Williams might have been the 49ers' top draft pick, but he's not No. 1 on our 1-18 ranking of rookie performers.`\
+https://nytimes.com/athletic/6532569/2025/08/03/49ers-training-camp-rookie-rankings/
+
+**Ruben Amorim interview: United's head coach on walking away, code of conduct and exiled players**\
+`Ruben Amorim sat down with reporters during Manchester United's pre-season preparations for the Premier League season`\
+https://nytimes.com/athletic/6532711/2025/08/03/ruben-amorim-manchester-united-interview-exit/
+
 **What to Do When the President Acts Like a Five-Year-Old?**\
 `Most children learn at some point that flipping the board doesn’t make them the winner.`\
 https://nytimes.com/2025/08/03/opinion/trump-bls-fired-labor-jobs-data.html
