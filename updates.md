@@ -1,3 +1,7 @@
+**Former Arsenal midfielder Partey set to join Villarreal**\
+`Partey, 32, has undergone a medical and is expected to sign a two-year deal with the Spanish club through to 2027.`\
+https://nytimes.com/athletic/6490861/2025/08/03/thomas-partey-villarreal-transfer/
+
 **U.S. women's medley relay, in final race of worlds, sets record to win gold-medal battle**\
 `Kate Douglass, Regan Smith, Gretchen Walsh and Torri Huske put a satisfying cap on a difficult week for the Americans in Singapore.`\
 https://nytimes.com/athletic/6533138/2025/08/03/us-womens-medley-relay-world-record-gold-championships/

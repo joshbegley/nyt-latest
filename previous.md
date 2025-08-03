@@ -1,3 +1,7 @@
+**Former Arsenal midfielder Partey set to join Villarreal**\
+`Partey, 32, has undergone a medical and is expected to sign a two-year deal with the Spanish club through to 2027.`\
+https://nytimes.com/athletic/6490861/2025/08/03/thomas-partey-villarreal-transfer/
+
 **U.S. women's medley relay, in final race of worlds, sets record to win gold-medal battle**\
 `Kate Douglass, Regan Smith, Gretchen Walsh and Torri Huske put a satisfying cap on a difficult week for the Americans in Singapore.`\
 https://nytimes.com/athletic/6533138/2025/08/03/us-womens-medley-relay-world-record-gold-championships/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6533055/2025/08/03/zak-brown-christian-horner-f1/
 **Re-ranking the 49ers’ rookie class: 3 undrafted players make the top 10**\
 `Mykel Williams might have been the 49ers' top draft pick, but he's not No. 1 on our 1-18 ranking of rookie performers.`\
 https://nytimes.com/athletic/6532569/2025/08/03/49ers-training-camp-rookie-rankings/
-
-**Long-Dormant Russian Volcano Erupts for the First Time in Centuries**\
-`The eruption of the Krasheninnikov volcano on Sunday in Russia’s Far East came after a series of seismic events this past week on the Kamchatka peninsula.`\
-https://nytimes.com/2025/08/03/world/europe/russia-volcano-eruption.html
 
