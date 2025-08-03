@@ -1,3 +1,11 @@
+**The New York Times in Print for Sunday, Aug. 3, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/08/03/todays-new-york-times
+
+**Israel Must Open Its Eyes**\
+`Defeating Hamas does not require starving a single child.`\
+https://nytimes.com/2025/08/03/opinion/israel-famine-hamas-netanyahu-trump.html
+
 **Packers safety Omar Brown steals show with 3 picks at Family Night**\
 `Second-year safety Omar Brown has five interceptions in camp as he fights for a spot on the 53-man roster.`\
 https://nytimes.com/athletic/6532933/2025/08/03/packers-omar-brown-training-camp-interceptions/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/08/03/world/asia/china-passports-civil-servants.html
 **Quote of the Day: Texas Pushes Redistricting Into an Era of ‘Maximum Warfare’**\
 `Quote of the Day for Sunday, August 3, 2025`\
 https://nytimes.com/2025/08/03/pageoneplus/quote-of-the-day-texas-pushes-redistricting-into-an-era-of-maximum-warfare.html
-
-**Connections: Sports Edition Coach: Hints for Aug. 3, 2025**\
-`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
-https://nytimes.com/athletic/6531163/2025/08/03/connections-sports-edition-hints-for-aug-3-2025-puzzle-no-314/
-
-**No Corrections: Aug. 3, 2025**\
-`No corrections appeared in print on Sunday, Aug. 3, 2025.`\
-https://nytimes.com/2025/08/03/pageoneplus/no-corrections-aug-3-2025.html
 
