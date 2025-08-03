@@ -1,3 +1,7 @@
+**Colts RB Salvon Ahmed suffers ‘severe leg injury’ after hip-drop tackle in training camp**\
+`Ahmed has played in 38 games rushing for 593 yards and five touchdowns.`\
+https://nytimes.com/athletic/6533546/2025/08/03/colts-salvon-ahmed-leg-injury-hip-drop-tackle-training-camp/
+
 **USMNT's Dest scores winner for PSV in Dutch Super Cup victory**\
 `The 24-year-old’s goal helped the PSV win their 15th Dutch Super Cup (Johan Cruijff Shield).`\
 https://nytimes.com/athletic/6533570/2025/08/03/usmnt-sergino-dest-psv-goal-super-cup/
@@ -33,8 +37,4 @@ https://nytimes.com/video/world/asia/100000010321173/russia-volcano-eruption.htm
 **Al Hilal identify Liverpool's Nunez as priority target**\
 `Al Hilal pursued Victor Osimhen, with Alexander Isak and Benjamin Sesko also among the options considered.`\
 https://nytimes.com/athletic/6533140/2025/08/03/darwin-nunez-al-hilal-liverpool-transfer/
-
-**Jorrel Hato to Chelsea: Everything you need to know – TLDR**\
-`Chelsea have added to their defensive options with the signing of Jorrel Hato from Ajax – here we break down the deal`\
-https://nytimes.com/athletic/6526988/2025/08/03/jorrel-hato-chelsea-transfer-analysis/
 
