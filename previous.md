@@ -1,3 +1,19 @@
+**Liverpool and Newcastle have made Isak and Sesko bids. Will either of them get their striker?**\
+`Over the course of Friday and Saturday, there were developments in Liverpool's pursuit of Isak and Newcastle's push for Sesko`\
+https://nytimes.com/athletic/6531791/2025/08/03/liverpool-newcastle-alexander-isak-benjamin-sesko-transfer-latest/
+
+**Harvey Elliott needs a move. The Bundesliga may be the perfect option**\
+`Elliott says that he wants to 'review his situation' at Liverpool. A move to Germany might provide the perfect platform for his talent `\
+https://nytimes.com/athletic/6468459/2025/08/03/harvey-elliott-liverpool-future-bundesliga/
+
+**How England won the 1966 World Cup: A proper manager, no wingers, and Bobby Charlton in his pomp**\
+`It took a home tournament for England to finally become World Champions – but they were almost certainly the best side at the tournament`\
+https://nytimes.com/athletic/6530311/2025/08/03/how-england-won-1966-world-cup/
+
+**Jonathan Klinsmann: 'There's pressure being dad's son. I need to be good'**\
+`USMNT hopeful explains why his father's legacy is no burden and why he has his sights set on the World Cup`\
+https://nytimes.com/athletic/6527711/2025/08/03/jonathan-klinsmann-jurgen-father-goalkeeper/
+
 **No Passports, No Study Abroad: China Limits Public Employees’ Travel**\
 `Even low-level government employees like elementary school teachers and nurses have been ordered to hand in their passports, to enforce “discipline.”`\
 https://nytimes.com/2025/08/03/world/asia/china-passports-civil-servants.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6532875/2025/08/02/damian-lillard-general-manager-w
 **MLB suspends first Speedway Classic due to rain**\
 `The Atlanta Braves and Cincinnati Reds played less than a full inning Saturday night after a 2 1/2 hour rain delay.`\
 https://nytimes.com/athletic/6532872/2025/08/02/mlb-suspends-speedway-classic-reds-braves/
-
-**Earthquake Jolts New Jersey and New York City**\
-`The epicenter of the 3.0-magnitude quake, which struck around 10:20 p.m. on Saturday, was near Teterboro Airport in New Jersey.`\
-https://nytimes.com/2025/08/02/nyregion/earthquake-new-york-new-jersey.html
-
-**Fan arrested for hurling sex toy during WNBA game between Valkyries, Dream**\
-`Some WNBA players have laughed about the incident while also acknowledging it as a potential safety hazard.`\
-https://nytimes.com/athletic/6532751/2025/08/02/sex-toy-fan-arrested-wnba-valkyries-dream/
-
-**Map: 3.0-Magnitude Earthquake Strikes New Jersey**\
-`View the location of the quake’s epicenter and shake area.`\
-https://nytimes.com/interactive/2025/08/02/nyregion/new-jersey-earthquake.html
-
-**A decade after crying on the field amid trade rumors, Wilmer Flores glad he's still a Giant**\
-`Flores has been conditioned to understand the business side of baseball. A decade ago? Not so much.`\
-https://nytimes.com/athletic/6532794/2025/08/02/decade-after-crying-on-the-field-wilmer-flores-trade-deadline/
 
