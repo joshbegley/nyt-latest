@@ -1,3 +1,7 @@
+**Bears offense 'sloppier than we were hoping' before Williams and Loveland close with TD**\
+`At Soldier Field, the Bears' offense had a couple delay-of-game penalties, but Caleb Williams finished the two-minute drill with a score.`\
+https://nytimes.com/athletic/6533702/2025/08/03/bears-offense-caleb-williams-colston-loveland/
+
 **State Trooper Is Said to Be a Suspect in 2 Fatal Shootings**\
 `A New Jersey state trooper who had guarded the governor is believed to have fatally shot a man and a woman before killing himself, people familiar with the investigation said.`\
 https://nytimes.com/2025/08/03/nyregion/new-jersey-state-trooper-shootings-suspect.html
@@ -34,8 +38,4 @@ https://nytimes.com/2025/08/03/business/boeing-machinists-st-louis-strike.html
 **Shane Bieber knows his path to aiding Blue Jays in October. Now he’s one step closer**\
 `Bieber completed a fifth rehab outing on Sunday, three days after his trade to Toronto. “I'm close now,” he said ahead of the outing.`\
 https://nytimes.com/athletic/6533584/2025/08/03/shane-bieber-blue-jays/
-
-**Third Child in Sailing Camp Dies After Barge Hit Boat Off Miami Beach**\
-`Six people, including a camp counselor, aboard a sailboat were thrown into the water after the collision on Monday, the authorities said.`\
-https://nytimes.com/2025/08/03/us/miami-beach-sailboat-crash-child-dead.html
 

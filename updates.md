@@ -1,3 +1,12 @@
+**Bears offense 'sloppier than we were hoping' before Williams and Loveland close with TD**\
+`At Soldier Field, the Bears' offense had a couple delay-of-game penalties, but Caleb Williams finished the two-minute drill with a score.`\
+https://nytimes.com/athletic/6533702/2025/08/03/bears-offense-caleb-williams-colston-loveland/
+
+**How Pauline Ferrand-Prevot became the first French winner of the Tour de France Femmes**\
+`This year's race was always likely to come down to the final weekend in the mountains, and so it proved on Sunday...
+`\
+https://nytimes.com/athletic/6533527/2025/08/03/tour-de-france-femmes-ferrand-prevot/
+
 **State Trooper Is Said to Be a Suspect in 2 Fatal Shootings**\
 `A New Jersey state trooper who had guarded the governor is believed to have fatally shot a man and a woman before killing himself, people familiar with the investigation said.`\
 https://nytimes.com/2025/08/03/nyregion/new-jersey-state-trooper-shootings-suspect.html
