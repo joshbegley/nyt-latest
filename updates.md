@@ -1,3 +1,7 @@
+**In a battle of aces, Zack Wheeler's command remained elusive in Phillies loss**\
+`The Phillies’ ace has allowed three or more runs in just six of 22 starts this year — but three of those starts have come in the past month.`\
+https://nytimes.com/athletic/6532671/2025/08/02/battle-of-aces-zack-wheelers-command-elusive-phillies-loss/
+
 **Carlos Correa brings spark to Astros, but production questions remain**\
 `Vibes are appreciated, but production wins pennants. How much of it Correa can contribute is a legitimate question.`\
 https://nytimes.com/athletic/6532705/2025/08/02/carlos-correas-astros-spark-production/
