@@ -1,3 +1,11 @@
+**Marlins sweep Yankees for first time in franchise history, claw back to .500**\
+`Since June 13, the club has gone 30-14, tying the Milwaukee Brewers for most wins in MLB during that span. `\
+https://nytimes.com/athletic/6533738/2025/08/03/miami-marlins-sweep-ny-yankees/
+
+**Tim Weah move to Marseille from Juventus nears completion: Source**\
+`Weah appears headed back to Ligue 1, where he previously played for PSG and Lille.`\
+https://nytimes.com/athletic/6533751/2025/08/03/tim-weah-marseille-transfer-juventus-usmnt/
+
 **Bears offense 'sloppier than we were hoping' before Williams and Loveland close with TD**\
 `At Soldier Field, the Bears' offense had a couple delay-of-game penalties, but Caleb Williams finished the two-minute drill with a score.`\
 https://nytimes.com/athletic/6533702/2025/08/03/bears-offense-caleb-williams-colston-loveland/
@@ -30,12 +38,4 @@ https://nytimes.com/athletic/6533527/2025/08/03/tour-de-france-femmes-ferrand-pr
 **A sobering sweep, the future of two top prospects and Cam Smith's slump: Astros takeaways**\
 `On a disappointing post-deadline series in Boston, Brice Matthews' and Jacob Melton's futures and Smith's bad month.`\
 https://nytimes.com/athletic/6533629/2025/08/03/astros-swept-red-sox-cam-smith/
-
-**Boeing Workers Who Make Fighter Jets Are Set to Strike**\
-`About 3,200 machinists in St. Louis are poised to walk off the job after failing to reach an agreement on wages and retirement benefits.`\
-https://nytimes.com/2025/08/03/business/boeing-machinists-st-louis-strike.html
-
-**Shane Bieber knows his path to aiding Blue Jays in October. Now he’s one step closer**\
-`Bieber completed a fifth rehab outing on Sunday, three days after his trade to Toronto. “I'm close now,” he said ahead of the outing.`\
-https://nytimes.com/athletic/6533584/2025/08/03/shane-bieber-blue-jays/
 
