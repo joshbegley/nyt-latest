@@ -15,7 +15,7 @@ https://nytimes.com/athletic/6533546/2025/08/03/colts-salvon-ahmed-leg-injury-hi
 https://nytimes.com/athletic/6533570/2025/08/03/usmnt-sergino-dest-psv-goal-super-cup/
 
 **Cricket's infuriating 6.42pm rule that meant a day of epic sport ended in farce**\
-`It was all set up for an epic finish at the Oval in south London - until the rules came in and spoiled it all.`\
+`It was set up for an epic finish at The Oval in south London on Sunday evening - until the rules came in and spoiled it all`\
 https://nytimes.com/athletic/6533469/2025/08/03/england-india-rules-weather-cricket/
 
 **Did McLaren favor Norris over Piastri in Hungary? Why the team says no**\
