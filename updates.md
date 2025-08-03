@@ -1,3 +1,7 @@
+**Some Chinese Weigh Painful Question: Stay or Flee Under Trump?**\
+`Over the past two years, Chinese immigrants have comprised one of the largest groups entering the United States. Some fear fines or even imprisonment if they are sent home.`\
+https://nytimes.com/2025/08/03/us/politics/chinese-stay-flee-united-states-trump.html
+
 **The New York Times International Edition in Print for Monday, Aug. 4, 2025**\
 ``\
 https://nytimes.com/issue/todaysinyt/2025/08/03/todays-new-york-times-international-edition
