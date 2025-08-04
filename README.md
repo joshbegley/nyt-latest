@@ -1,3 +1,7 @@
+**Tre' Harris, Justin Herbert chemistry takes big step in Chargers rookie's breakout practice**\
+`With Ladd McConkey sitting out, Harris was quarterback Herbert's go-to target on multiple third-down snaps for the starting offense.`\
+https://nytimes.com/athletic/6534055/2025/08/03/chargers-practice-tre-harris-justin-herbert/
+
 **No Corrections: Aug. 4, 2025**\
 `No corrections appeared in print on Monday, Aug. 4, 2025.`\
 https://nytimes.com/2025/08/03/pageoneplus/no-corrections-aug-4-2025.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/03/podcasts/meet-me-at-the-iowa-state-fair-this-amer
 **Lionel Messi suffers 'minor muscle injury' during Miami win over Necaxa**\
 `It is unclear how long Messi will be out of action.`\
 https://nytimes.com/athletic/6533979/2025/08/03/lionel-messi-muscle-injury-miami-necaxa-leagues-cup/
-
-**Even after a wild trade deadline, Yankees still lack sense of urgency**\
-`The Yankees were sloppy, again; they made Little League mistakes; and their bats were quieted in the final two games against Miami.`\
-https://nytimes.com/athletic/6533791/2025/08/03/ny-yankees-urgency-priority/
 
