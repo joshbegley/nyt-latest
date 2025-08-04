@@ -1,3 +1,19 @@
+**49ers Q&A: Chris Foerster talks Ben Bartch, Connor Colby, swing tackle situation**\
+`Who's winning the competition at left guard? Why is Spencer Burford only getting snaps at left tackle? Foerster addresses it all.`\
+https://nytimes.com/athletic/6533753/2025/08/04/49ers-offensive-line-chris-foerster/
+
+**Pick your all-time Wild team ahead of the franchise's 25th anniversary season**\
+`Who's on your all-time Wild team? Pick the top four players at each forward slot, eight defensemen and four goalies here.`\
+https://nytimes.com/athletic/6530587/2025/08/04/wild-all-time-team-25th-anniversary/
+
+**Senators offseason mailbag: Submit your questions for Julian McKenzie**\
+`Got a question about the Ottawa Senators heading into the 2025-26 season? Submit it here.`\
+https://nytimes.com/athletic/6520753/2025/08/04/ottawa-senators-mailbag-nhl-offseason-julian-mckenzie/
+
+**Trump Administration Live Updates: President Says He’ll Name New Labor Statistics Official Within Days**\
+``\
+https://nytimes.com/live/2025/08/04/us/trump-news
+
 **Nancy Mace Announces Run for Governor of South Carolina**\
 `The Charleston-area congresswoman was once a moderate Republican, but has more recently presented herself as a loyal supporter of President Trump.`\
 https://nytimes.com/2025/08/04/us/politics/nancy-mace-south-carolina-governor.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6077722/2025/08/04/kiernan-dewsbury-hall-chelsea-tr
 **Tesla Awards ‘Good Faith’ Shares to Musk Worth $29 Billion**\
 `The “interim” package announced on Monday was intended to help retain Elon Musk, whose previous pay plan was invalidated by a judge. The car maker’s chief has hinted that he needed a larger stake in the company.`\
 https://nytimes.com/2025/08/04/business/tesla-elon-musk-29-billion.html
-
-**TAFC: Son's emotional goodbye; Isak, Sesko and a striker logjam; Puskas award contender**\
-`Today in TAFC: Son's emotional farewell, the Premier League striker logjam involving Isak and Sesko, a Puskas contender from MLS.`\
-https://nytimes.com/athletic/6534331/2025/08/04/sons-emotional-goodbye-isak-sesko-and-a-striker-logjam-puskas-award-contender/
-
-**Burnley reach agreement over Ugochukwu transfer from Chelsea**\
-`The France youth international, 21, has been granted permission to travel for medical tests and complete a permanent move to Turf Moor.`\
-https://nytimes.com/athletic/6399614/2025/08/04/burnley-transfers-ugochukwu-chelsea/
-
-**System Upgrade**\
-`We explore the new vibe in Silicon Valley.`\
-https://nytimes.com/2025/08/04/briefing/silicon-valley-culture.html
-
-**Blue Jays takeaways: A skid, a potential Max Scherzer playoff start and deadline additions**\
-`With a 7-4 extra-innings loss Sunday, the Blue Jays lost their sixth game in the last eight contests.`\
-https://nytimes.com/athletic/6533767/2025/08/04/blue-jays-max-scherzer-trade-deadline-additions/
 
