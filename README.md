@@ -1,3 +1,7 @@
+**David White named NFLPA’s interim executive director**\
+`The announcement comes after Lloyd Howell Jr. stepped down on July 17 following controversies surrounding his leadership.`\
+https://nytimes.com/athletic/6502847/2025/08/03/david-white-nflpa-interim-executive-director/
+
 **Tracking Tropical Storm Dexter**\
 `See the likely path and wind arrival times for Dexter`\
 https://nytimes.com/interactive/2025/08/03/weather/dexter-map-path-tracker.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6533983/2025/08/03/shacarri-richardson-arrest-chris
 **Clara Tauson upsets Wimbledon champion Iga Świątek at Canadian Open**\
 `The upset came one day after world No. 2 and top seed Coco Gauff fell in straight sets to Canadian wild card Victoria Mboko.`\
 https://nytimes.com/athletic/6533947/2025/08/03/clara-tauson-iga-swiatek-upset-canadian-open/
-
-**Meet Me at the Fair**\
-`“This American Life” follows carnival workers, gunslingers, rabbit raisers and biscuit sellers at the Iowa State Fair.`\
-https://nytimes.com/2025/08/03/podcasts/meet-me-at-the-iowa-state-fair-this-american-life-nyt-audio.html
 
