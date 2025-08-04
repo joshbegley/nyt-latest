@@ -1,3 +1,11 @@
+**FIFA condemns death threats against Mexican referee Katia Itzel Garcia**\
+`The official spoke out strongly after being targeted on social media.`\
+https://nytimes.com/athletic/6535676/2025/08/04/katia-itzel-garcia-leagues-cup-death-threats/
+
+**Chargers LB Denzel Perryman released from police custody following gun charges**\
+`Authorities arrested Perryman, a sixth-year veteran, on Friday for multiple weapons violations.`\
+https://nytimes.com/athletic/6535685/2025/08/04/chargers-denzel-perryman-gun-charges/
+
 **How Is the Montana Shooting Suspect Still at Large? Check Out the Terrain.**\
 `Many manhunts end quickly, but the man accused of killing four people in rural Montana appears to have disappeared into the kind of wilderness that helps elude pursuers.`\
 https://nytimes.com/2025/08/04/us/montana-manhunt-terrain.html
