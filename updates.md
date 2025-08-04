@@ -1,3 +1,7 @@
+**At Edinburgh Fringe, the Streets Are Alive**\
+`Thousands of performers were hawking their shows on the first weekend of the Scottish arts extravaganza.`\
+https://nytimes.com/2025/08/04/theater/edinburgh-fringe-photos.html
+
 **The 5 most pressing issues awaiting interim NFLPA executive director David White**\
 `White takes over on an interim basis after a summer of turmoil for the NFLPA and must quickly gain the trust of the player body. `\
 https://nytimes.com/athletic/6534218/2025/08/04/nflpa-david-white-pressing-issues/
