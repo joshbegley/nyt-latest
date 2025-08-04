@@ -1,3 +1,15 @@
+**Lyft Will Use Chinese Driverless Cars in Britain and Germany**\
+`Lyft and Baidu plan to start service early next year, joining Uber and Momenta in using electric cars from China, which are the least expensive even with tariffs.`\
+https://nytimes.com/2025/08/04/business/lyft-baidu-driverless-cars-europe.html
+
+**Fire Breaks Out Beneath PATH Train in Jersey City**\
+`Thirteen people were treated for smoke inhalation after the fire ignited early Monday morning. Service was suspended on two lines.`\
+https://nytimes.com/2025/08/04/nyregion/nj-path-train-fire.html
+
+**Three things to watch for during the final 2 months of the Giants' season**\
+`The Giants are likely out of the postseason hunt but there are still plenty of reasons to keep close tabs on the rest of their season.`\
+https://nytimes.com/athletic/6533515/2025/08/04/sf-giants-post-trade-deadline-goals/
+
 **‘Victim-3’ in Sean Combs Indictment Argues for His Release From Jail**\
 `Once part of the government’s case against the music mogul, a former girlfriend wrote to a judge in support of Mr. Combs’s request for bail ahead of sentencing.`\
 https://nytimes.com/2025/08/04/arts/music/sean-combs-diddy-victim-3-virginia-huynh-bail.html
