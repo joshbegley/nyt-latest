@@ -1,3 +1,11 @@
+**India signals no intention of pulling back on Russian oil despite U.S. pressure.**\
+`By Mujib Mashal`\
+https://nytimes.com/live/2025/08/04/us/trump-news/india-signals-no-intention-of-pulling-back-on-russian-oil-despite-us-pressure
+
+**Submit your Notre Dame football questions for Pete Sampson’s mailbag**\
+`What’s on your mind as Notre Dame moves closer to Week 1?`\
+https://nytimes.com/athletic/6535020/2025/08/04/submit-your-notre-dame-football-questions-for-pete-sampsons-mailbag-3/
+
 **Russian Nuclear Submarine Base Was Damaged in Quake, Satellite Images Show**\
 `The Rybachiy base, which hosts nuclear-powered submarines from Russia’s Pacific Fleet, lies in a cove about 80 miles from the powerful earthquake that struck near the Kamchatka peninsula last week.`\
 https://nytimes.com/2025/08/04/world/europe/russia-earthquake-nuclear-submarine-damage.html

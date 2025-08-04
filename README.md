@@ -1,3 +1,7 @@
+**Sunderland head coach Regis Le Bris signs new contract**\
+`Le Bris was appointed in late June 2024 and guided Sunderland back to the Premier League via the Championship play-offs last term.`\
+https://nytimes.com/athletic/6534974/2025/08/04/sunderland-regis-le-bris-new-contract/
+
 **India signals no intention of pulling back on Russian oil despite U.S. pressure.**\
 `By Mujib Mashal`\
 https://nytimes.com/live/2025/08/04/us/trump-news/india-signals-no-intention-of-pulling-back-on-russian-oil-despite-us-pressure
@@ -33,8 +37,4 @@ https://nytimes.com/newsgraphics/card-story/homemade-salad-dressing
 **gws-hellbenders-giant-salamanders-north-carolina-rivers**\
 `(No description)`\
 https://nytimes.com/newsgraphics/card-story/hellbenders-giant-salamanders-north-carolina-rivers
-
-**Joao Palhinha to Tottenham: Everything you need to know – TLDR**\
-`Spurs have brought former Fulham midfielder Joao Palhinha back to the Premier League on loan from Bayern. We break down the deal`\
-https://nytimes.com/athletic/6534415/2025/08/04/joao-palhinha-tottenham-loan/
 
