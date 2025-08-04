@@ -1,3 +1,35 @@
+**System Upgrade**\
+`We explore the new vibe in Silicon Valley.`\
+https://nytimes.com/2025/08/04/briefing/silicon-valley-culture.html
+
+**Blue Jays takeaways: A skid, a potential Max Scherzer playoff start and deadline additions**\
+`With a 7-4 extra-innings loss Sunday, the Blue Jays lost their sixth game in the last eight contests.`\
+https://nytimes.com/athletic/6533767/2025/08/04/blue-jays-max-scherzer-trade-deadline-additions/
+
+**With uncertainty in 49ers' receiver room, Ricky Pearsall could hold fantasy value**\
+`Pearsall had 14 catches — on 18 targets — for 210 yards and two touchdowns over San Francisco's final two games last season.`\
+https://nytimes.com/athletic/6528731/2025/08/04/49ers-ricky-pearsall-fantasy-football/
+
+**This Week in Mets: Resetting a wild playoff race in the National League**\
+`With the trade deadline in the past, it’s time to refocus on what's happening on the field.`\
+https://nytimes.com/athletic/6534111/2025/08/04/mets-resetting-playoff-race-national-league/
+
+**Buffalo's 'dull' training camp is exactly what the Bills want**\
+`The Bills' most challenging issues are relatively boring compared with other NFL teams dealing with major drama and distractions. `\
+https://nytimes.com/athletic/6534141/2025/08/04/buffalo-bills-dull-training-camp-james-cook/
+
+**Twins' Griffin Jax requested a trade, and what I learned about the club's fire sale, Part 1**\
+`Initially, the Twins didn’t know if they’d find the right return for their elite setup man because of a slow-developing market.`\
+https://nytimes.com/athletic/6533904/2025/08/04/minnesota-twins-griffin-jax-trade-request/
+
+**Why Jordan Smith, the No. 2 player in 2026, isn't the typical 5-star guard**\
+`Smith is "the Class of 2026 player college coaches would most like to coach, a winner" in a recent poll of 35 coaches at Peach Jam. `\
+https://nytimes.com/athletic/6530461/2025/08/04/jordan-smith-college-basketball-2026/
+
+**Electric Air Taxi Company Plans to Acquire a Helicopter Business**\
+`Joby Aviation, which is developing electric aircraft, will acquire the passenger business of Blade, a New York helicopter operator, for $125 million.`\
+https://nytimes.com/2025/08/04/business/joby-blade-electric-air-taxi.html
+
 **Burnley in talks over move for Newcastle goalkeeper Dubravka**\
 `Newcastle have completed the loan signing of Aaron Ramsdale this window, while Burnley lost James Trafford to Manchester City.`\
 https://nytimes.com/athletic/6522328/2025/08/04/martin-dubravka-burnley-newcastle-transfers/
@@ -5,36 +37,4 @@ https://nytimes.com/athletic/6522328/2025/08/04/martin-dubravka-burnley-newcastl
 **Ranking Twins' trade deadline pickups: 13 new players, from top prospects to toss ins**\
 `Assessing what the Twins' fire sale got back in trades for Carlos Correa, Jhoan Duran, Griffin Jax, Louis Varland, Willi Castro and more.`\
 https://nytimes.com/athletic/6530101/2025/08/04/twins-trade-deadline-player-rankings/
-
-**Why Real Madrid's forgotten €30m Brazilian wonderkid is set to leave for free**\
-`The Athletic has reported that Reinier is set to join Atletico Mineiro in his homeland after failing to break through at the Bernabeu`\
-https://nytimes.com/athletic/5739701/2025/08/04/reinier-jesus-real-madrid-brazil/
-
-**Real Madrid's €30m midfielder Reinier set to join Atletico Mineiro for free**\
-`The 23-year-old joined Madrid for €30million in 2020 but hasn't made a first-team appearance.`\
-https://nytimes.com/athletic/6534320/2025/08/04/real-madrid-reinier-jesus-atletico-mineiro-transfer/
-
-**The Pulse: Let's trade Micah Parsons to ... the Bears?**\
-`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
-https://nytimes.com/athletic/6533531/2025/08/04/micah-parsons-trade-noah-lyles-the-pulse/
-
-**From Drake Maye to Stefon Diggs, one thought on every Patriots player on offense**\
-`As camp kicks into high gear, let’s take stock of all 91 players on the roster by offering one thought on each. Up first: the Pats offense.`\
-https://nytimes.com/athletic/6528372/2025/08/04/patriots-offense-drake-maye-stefon-diggs/
-
-**What we've learned about the Falcons through 6 training camp practices**\
-`Assessing what we've seen from Michael Penix Jr., the rookie pass rushers, the receiver competition and an under-the-radar defender.`\
-https://nytimes.com/athletic/6530723/2025/08/04/falcons-training-camp-james-pearce-jalon-walker/
-
-**Jhoan Duran is a ninth-inning luxury for Phillies and already a game-changer**\
-`Duran could not have made a better first impression. He's faced six batters with the Phillies and retired all six.`\
-https://nytimes.com/athletic/6534145/2025/08/04/jhoan-duran-phillies-closer-tigers/
-
-**Naomi Osaka's Canadian Open run and the tennis version of the new manager bounce**\
-`Osaka's run at the Canadian Open is a promising sign for the hard-court season, but sustaining it is the real challenge.`\
-https://nytimes.com/athletic/6531820/2025/08/04/tennis-naomi-osaka-new-coach-canadian-open/
-
-**Vikings training camp takeaways: J.J. McCarthy's recent performance and more observations**\
-`The young quarterback has had his ups and downs in training camp, but coach Kevin O'Connell seems more excited than concerned.`\
-https://nytimes.com/athletic/6533483/2025/08/04/vikings-training-camp-jj-mccarthy/
 
