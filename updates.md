@@ -1,3 +1,7 @@
+**Switzerland Rushes to Give Trump ‘More Attractive’ Offer to Cut Tariffs**\
+`The Swiss government said it had “no indication” the country would be hit with a 39 percent tariff, which is set to take effect this week.`\
+https://nytimes.com/2025/08/04/business/switzerland-tariffs-trump.html
+
 **Nottingham Forest close to signing former Norwich goalkeeper Gunn**\
 `The Scotland international is a free agent after seeing his contract expire at Carrow Road this summer.`\
 https://nytimes.com/athletic/6535293/2025/08/04/nottingham-forest-transfer-angus-gunn/
