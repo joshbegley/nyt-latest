@@ -1,3 +1,11 @@
+**When Trump Changes His Mind, Republicans Find a Way to Fall in Line**\
+`President Trump’s decision to fire the head of the Bureau of Labor Statistics forced his allies into the awkward spot of criticizing an agency they had freely cited in the past.`\
+https://nytimes.com/2025/08/04/us/politics/when-trump-changes-his-mind-republicans-find-a-way-to-fall-in-line.html
+
+**Islanders sign Matthew Schaefer to 3-year, entry-level contract**\
+`Schaefer was the No. 1 overall pick of the Islanders in this year's draft.`\
+https://nytimes.com/athletic/6535696/2025/08/04/islanders-matthew-schaefer-contract-rookie/
+
 **FIFA condemns death threats against Mexican referee Katia Itzel Garcia**\
 `The official spoke out strongly after being targeted on social media.`\
 https://nytimes.com/athletic/6535676/2025/08/04/katia-itzel-garcia-leagues-cup-death-threats/
