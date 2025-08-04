@@ -1,3 +1,7 @@
+**The Windup: Deadline fallout colors wild MLB weekend**\
+`Welcome to The Windup, The Athletic's MLB newsletter.`\
+https://nytimes.com/athletic/6534257/2025/08/04/yankees-marlins-trade-deadline-the-windup/
+
 **Lyft Will Use Chinese Driverless Cars in Britain and Germany**\
 `Lyft and Baidu plan to start service early next year, joining Uber and Momenta in using electric cars from China, which are the least expensive even with tariffs.`\
 https://nytimes.com/2025/08/04/business/lyft-baidu-driverless-cars-europe.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6531130/2025/08/04/anton-frondell-blackhawks-prospe
 **El Salvador’s Leader Is Autocrat to Some, Godsend to Others**\
 `Lawmakers approved constitutional changes abolishing term limits and allowing President Nayib Bukele to stay in power indefinitely. Why now?`\
 https://nytimes.com/2025/08/04/world/americas/el-salvador-president-bukele-term-limits.html
-
-**Crystal Palace to play Fredrikstad or Midtjylland in Conference League play-off**\
-`The first leg is scheduled to take place at Selhurst Park on August 21.`\
-https://nytimes.com/athletic/6534412/2025/08/04/crystal-palace-set-to-play-fredrikstad-or-midtjylland-in-conference-league-play-off/
 
