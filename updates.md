@@ -1,3 +1,7 @@
+**Burnley in talks over move for Newcastle goalkeeper Dubravka**\
+`Newcastle have completed the loan signing of Aaron Ramsdale this window, while Burnley lost James Trafford to Manchester City.`\
+https://nytimes.com/athletic/6522328/2025/08/04/martin-dubravka-burnley-newcastle-transfers/
+
 **Ranking Twins' trade deadline pickups: 13 new players, from top prospects to toss ins**\
 `Assessing what the Twins' fire sale got back in trades for Carlos Correa, Jhoan Duran, Griffin Jax, Louis Varland, Willi Castro and more.`\
 https://nytimes.com/athletic/6530101/2025/08/04/twins-trade-deadline-player-rankings/
