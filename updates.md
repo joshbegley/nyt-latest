@@ -1,3 +1,11 @@
+**gws-home-schooling-movemen**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/home-schooling-movement
+
+**Man City reach agreement in principle with Dias over new contract**\
+`The 28-year-old’s current deal expires in 2027 but an agreement has now been reached over a new deal for the Portugal international.`\
+https://nytimes.com/athletic/6083381/2025/08/04/ruben-dias-manchester-city-contract/
+
 **Man City reach agreement in principle with Dias over new contract**\
 `The 28-year-old’s current deal expires in 2027 but an agreement has now been reached over an extension for the Portugal international.`\
 https://nytimes.com/athletic/6083381/2025/08/04/ruben-dias-manchester-city-contract/
