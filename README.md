@@ -1,5 +1,9 @@
+**gws-home-schooling-movemen**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/home-schooling-movement
+
 **Man City reach agreement in principle with Dias over new contract**\
-`The 28-year-old’s current deal expires in 2027 but an agreement has now been reached over an extension for the Portugal international.`\
+`The 28-year-old’s current deal expires in 2027 but an agreement has now been reached over a new deal for the Portugal international.`\
 https://nytimes.com/athletic/6083381/2025/08/04/ruben-dias-manchester-city-contract/
 
 **Ranking the 10 greatest goals of Sidney Crosby's career**\
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/04/arts/music/heather-cox-richardson-lincoln-portrai
 **At Edinburgh Fringe, the Streets Are Alive**\
 `Thousands of performers were hawking their shows on the first weekend of the Scottish arts extravaganza.`\
 https://nytimes.com/2025/08/04/theater/edinburgh-fringe-photos.html
-
-**The 5 most pressing issues awaiting interim NFLPA executive director David White**\
-`White takes over on an interim basis after a summer of turmoil for the NFLPA and must quickly gain the trust of the player body. `\
-https://nytimes.com/athletic/6534218/2025/08/04/nflpa-david-white-pressing-issues/
 
