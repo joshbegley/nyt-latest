@@ -1,3 +1,7 @@
+**'You’ve got to put yourself out there' - Why former England cricketer Tymal Mills is on OnlyFans**\
+`OnlyFans says it has many professional athletes as porn stars on the platform, Mills is just the latest`\
+https://nytimes.com/athletic/6531734/2025/08/04/cricketer-tymal-mills-onlyfans/
+
 **Bruno Fernandes says Manchester United side were 'lazy', calls for signings to increase competition**\
 `Fernandes scored the opening goal as United drew with Everton to win the preseason PL Summer Series. `\
 https://nytimes.com/athletic/6534261/2025/08/04/manchester-united-bruno-fernandes-lazy-transfers/
