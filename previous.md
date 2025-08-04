@@ -1,3 +1,11 @@
+**The 5 most pressing issues awaiting interim NFLPA executive director David White**\
+`White takes over on an interim basis after a summer of turmoil for the NFLPA and must quickly gain the trust of the player body. `\
+https://nytimes.com/athletic/6534218/2025/08/04/nflpa-david-white-pressing-issues/
+
+**Why Blackhawks first-rounder Anton Frondell plans to stay in Sweden this season**\
+`Originally the Blackhawks hadn't ruled out seeing how Frondell stacked up to NHL competition during preseason camp.`\
+https://nytimes.com/athletic/6531130/2025/08/04/anton-frondell-blackhawks-prospect-development/
+
 **El Salvador’s Leader Is Autocrat to Some, Godsend to Others**\
 `Lawmakers approved constitutional changes abolishing term limits and allowing President Nayib Bukele to stay in power indefinitely. Why now?`\
 https://nytimes.com/2025/08/04/world/americas/el-salvador-president-bukele-term-limits.html
@@ -29,12 +37,4 @@ https://nytimes.com/video/us/politics/100000010321830/texas-democrats-leave-stat
 **49ers Q&A: Chris Foerster talks Ben Bartch, Connor Colby, swing tackle situation**\
 `Who's winning the competition at left guard? Why is Spencer Burford only getting snaps at left tackle? Foerster addresses it all.`\
 https://nytimes.com/athletic/6533753/2025/08/04/49ers-offensive-line-chris-foerster/
-
-**Pick your all-time Wild team ahead of the franchise's 25th anniversary season**\
-`Who's on your all-time Wild team? Pick the top four players at each forward slot, eight defensemen and four goalies here.`\
-https://nytimes.com/athletic/6530587/2025/08/04/wild-all-time-team-25th-anniversary/
-
-**Senators offseason mailbag: Submit your questions for Julian McKenzie**\
-`Got a question about the Ottawa Senators heading into the 2025-26 season? Submit it here.`\
-https://nytimes.com/athletic/6520753/2025/08/04/ottawa-senators-mailbag-nhl-offseason-julian-mckenzie/
 

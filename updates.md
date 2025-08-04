@@ -1,3 +1,11 @@
+**The 5 most pressing issues awaiting interim NFLPA executive director David White**\
+`White takes over on an interim basis after a summer of turmoil for the NFLPA and must quickly gain the trust of the player body. `\
+https://nytimes.com/athletic/6534218/2025/08/04/nflpa-david-white-pressing-issues/
+
+**Why Blackhawks first-rounder Anton Frondell plans to stay in Sweden this season**\
+`Originally the Blackhawks hadn't ruled out seeing how Frondell stacked up to NHL competition during preseason camp.`\
+https://nytimes.com/athletic/6531130/2025/08/04/anton-frondell-blackhawks-prospect-development/
+
 **El Salvador’s Leader Is Autocrat to Some, Godsend to Others**\
 `Lawmakers approved constitutional changes abolishing term limits and allowing President Nayib Bukele to stay in power indefinitely. Why now?`\
 https://nytimes.com/2025/08/04/world/americas/el-salvador-president-bukele-term-limits.html
