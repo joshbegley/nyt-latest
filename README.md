@@ -1,3 +1,7 @@
+**With Texans in Tow, Hochul Vows to Redraw New York’s House Maps**\
+`New York’s governor welcomed state legislators who fled Texas to thwart a Republican gerrymander but said she would try to draft one of her own to bolster Democrats.`\
+https://nytimes.com/2025/08/04/us/hochul-new-york-texas-redistricting.html
+
 **Unwanted Facts: The Labor Dept. Firing**\
 `Readers respond to President Trump’s firing of the commissioner of the Bureau of Labor Statistics, Erika McEntarfer. Also: Family rifts over politics.`\
 https://nytimes.com/2025/08/04/opinion/trump-labor-dept-firing.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6534974/2025/08/04/sunderland-regis-le-bris-new-con
 **India says additional U.S. tariffs over Russian oil purchases are ‘unjustified and unreasonable.’**\
 `By Mujib Mashal`\
 https://nytimes.com/live/2025/08/04/us/trump-news/india-signals-no-intention-of-pulling-back-on-russian-oil-despite-us-pressure
-
-**Submit your Notre Dame football questions for Pete Sampson’s mailbag**\
-`What’s on your mind as Notre Dame moves closer to Week 1?`\
-https://nytimes.com/athletic/6535020/2025/08/04/submit-your-notre-dame-football-questions-for-pete-sampsons-mailbag-3/
 
