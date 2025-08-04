@@ -1,3 +1,7 @@
+**The New York Times International Edition in Print for Tuesday, Aug. 5, 2025**\
+``\
+https://nytimes.com/issue/todaysinyt/2025/08/04/todays-new-york-times-international-edition
+
 **A Weakened Hezbollah Resists Pressure to Give Up Its Weapons**\
 `The Lebanese militant group has lost much of its power since the recent war with Israel. But it is balking at demands to surrender whatever is left of its once formidable arsenal.`\
 https://nytimes.com/2025/08/04/world/middleeast/hezbollah-weapons-lebanon.html
