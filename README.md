@@ -1,3 +1,7 @@
+**Elon Musk’s Huge Payday**\
+`Tesla has awarded its chief executive a “first step payment worth roughly $29 billion to replace a plan blocked by a Delaware judge..`\
+https://nytimes.com/2025/08/04/business/dealbook/musk-tesla-compensation-billion.html
+
 **Tyler Dibling: Everton table improved bid for Southampton winger**\
 `Southampton are yet to respond to the offer but they are seeking a higher fee for the teenager.`\
 https://nytimes.com/athletic/6528169/2025/08/04/tyler-dibling-everton-bid-transfer-southampton/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/04/us/politics/nancy-mace-south-carolina-governor.ht
 **Driver Dies in Crash During Racing Event at Bonneville Salt Flats**\
 `Chris Raschke, 60, lost control of his vehicle while trying to set a speed record on Sunday, the event’s organizers said.`\
 https://nytimes.com/2025/08/04/us/speedweek-bonneville-salt-flats-death.html
-
-**Real Sociedad set to complete €4m Guedes transfer from Wolves**\
-`Guedes signed a five-year contract at Molineux in 2022 after a £27.5million transfer from Valencia.`\
-https://nytimes.com/athletic/6533250/2025/08/04/wolves-transfers-guedes-real-sociedad/
 
