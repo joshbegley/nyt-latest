@@ -1,3 +1,15 @@
+**3 Salad Dressings You Should Memorize**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/homemade-salad-dressing
+
+**gws-hellbenders-giant-salamanders-north-carolina-rivers**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/hellbenders-giant-salamanders-north-carolina-rivers
+
+**Joao Palhinha to Tottenham: Everything you need to know – TLDR**\
+`Spurs have brought former Fulham midfielder Joao Palhinha back to the Premier League on loan from Bayern. We break down the deal`\
+https://nytimes.com/athletic/6534415/2025/08/04/joao-palhinha-tottenham-loan/
+
 **gws-outdoor-workout-activities-list**\
 `(No description)`\
 https://nytimes.com/newsgraphics/card-story/outdoor-workout-activities-list
@@ -25,16 +37,4 @@ https://nytimes.com/2025/08/04/us/la-hard-summer-music-festival-shooting.html
 **Breaking down England’s draw with India: Was this the greatest Test series since the Ashes in 2005?**\
 `A thrilling series enjoyed a suitably dramatic finale on its last day with Chris Woakes batting one-handed and Mohammed Siraj a match winner`\
 https://nytimes.com/athletic/6534624/2025/08/04/england-india-gill-stokes-woakes-siraj/
-
-**Stuttgart working on permanent deal for Arsenal's Fabio Vieira**\
-`An agreement has yet to be reached but talks are ongoing, with Arsenal likely to seek a respectable price for the Portuguese midfielder.`\
-https://nytimes.com/athletic/6522200/2025/08/04/fabio-vieira-arsenal-transfer-stuttgart/
-
-**Gifford Fire Burns More Than 65,000 Acres in California**\
-`The fire burned in a rural area of Los Padres National Forest and has put hundreds of people under evacuation orders, according to officials.`\
-https://nytimes.com/video/us/100000010322170/gifford-fire-california-los-padres-forest.html
-
-**gws-dave-jorgenson-video-washington-post**\
-`(No description)`\
-https://nytimes.com/newsgraphics/card-story/dave-jorgenson-video-washington-post
 
