@@ -1,3 +1,11 @@
+**49ers abruptly pull plug on kicker competition as injuries hit RB, D-line**\
+`The two standouts on Monday: Receiver Ricky Pearsall and cornerback Upton Stout, who is pulling away in the nickel cornerback competition.`\
+https://nytimes.com/athletic/6535583/2025/08/04/49ers-kicker-competition-injuries-training-camp/
+
+**The Origins of the Political Power Grab in Texas**\
+`President Trump seized a moment ripe for another redistricting war.`\
+https://nytimes.com/2025/08/04/us/politics/texas-redistricting-politics.html
+
 **Bronx Man Charged With Dealing Drugs That Caused Deadly Overdose**\
 `Estherlyn Frias sold narcotics out of his home, near where his children slept, U.S. prosecutors said. A Connecticut man bought fentanyl and cocaine from him and died 12 hours later.`\
 https://nytimes.com/2025/08/04/nyregion/bronx-drug-overdose-fentanyl-charges.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6535337/2025/08/04/bournemouth-neto-transfer-news-b
 **Amazon Shifts Its Podcast Strategy, Eliminating 100 Wondery Jobs**\
 `The tech giant is leaning more into video and the creator world.`\
 https://nytimes.com/2025/08/04/business/media/amazon-wondery-podcasts-layoffs.html
-
-**Isaac Paredes opts for rehab over surgery; return this season still unlikely**\
-`Paredes has been out since July 19. The Astros added Carlos Correa and Ramón Urías at the deadline in anticipation of a prolonged absence.`\
-https://nytimes.com/athletic/6535350/2025/08/04/isaac-paredes-astros-hamstring-injury/
-
-**Texas Democrats Fled the State to Fight Redistricting**\
-`Also, Tesla offered Musk nearly $30 billion in stock. Here’s the latest at the end of Monday.`\
-https://nytimes.com/2025/08/04/briefing/texas-democrats-fled-the-state-to-fight-redistricting.html
 
