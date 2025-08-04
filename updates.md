@@ -1,3 +1,7 @@
+**Tracking Tropical Storm Dexter**\
+`See the likely path and wind arrival times for Dexter`\
+https://nytimes.com/interactive/2025/08/03/weather/dexter-map-path-tracker.html
+
 **Tre' Harris, Justin Herbert chemistry takes big step in Chargers rookie's breakout practice**\
 `With Ladd McConkey sitting out, Harris was quarterback Herbert's go-to target on multiple third-down snaps for the starting offense.`\
 https://nytimes.com/athletic/6534055/2025/08/03/chargers-practice-tre-harris-justin-herbert/
