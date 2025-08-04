@@ -1,3 +1,7 @@
+**Tre' Harris, Justin Herbert chemistry takes big step in Chargers rookie's breakout practice**\
+`With Ladd McConkey sitting out, Harris was quarterback Herbert's go-to target on multiple third-down snaps for the starting offense.`\
+https://nytimes.com/athletic/6534055/2025/08/03/chargers-practice-tre-harris-justin-herbert/
+
 **No Corrections: Aug. 4, 2025**\
 `No corrections appeared in print on Monday, Aug. 4, 2025.`\
 https://nytimes.com/2025/08/03/pageoneplus/no-corrections-aug-4-2025.html
