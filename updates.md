@@ -1,3 +1,15 @@
+**El Salvador’s Leader Is Autocrat to Some, Godsend to Others**\
+`Lawmakers approved constitutional changes abolishing term limits and allowing President Nayib Bukele to stay in power indefinitely. Why now?`\
+https://nytimes.com/2025/08/04/world/americas/el-salvador-president-bukele-term-limits.html
+
+**Crystal Palace to play Fredrikstad or Midtjylland in Conference League play-off**\
+`The first leg is scheduled to take place at Selhurst Park on August 21.`\
+https://nytimes.com/athletic/6534412/2025/08/04/crystal-palace-set-to-play-fredrikstad-or-midtjylland-in-conference-league-play-off/
+
+**Giannis shares which young NBA star's memorabilia he wants to collect**\
+`Giannis Antetokounmpo has high expectations for Victor Wembanyama`\
+https://nytimes.com/athletic/6533193/2025/08/04/giannis-victor-wembanyama-collect/
+
 **Elon Musk’s Huge Payday**\
 `Tesla has awarded its chief executive a “first step payment worth roughly $29 billion to replace a plan blocked by a Delaware judge..`\
 https://nytimes.com/2025/08/04/business/dealbook/musk-tesla-compensation-billion.html

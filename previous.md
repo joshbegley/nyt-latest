@@ -1,3 +1,15 @@
+**El Salvador’s Leader Is Autocrat to Some, Godsend to Others**\
+`Lawmakers approved constitutional changes abolishing term limits and allowing President Nayib Bukele to stay in power indefinitely. Why now?`\
+https://nytimes.com/2025/08/04/world/americas/el-salvador-president-bukele-term-limits.html
+
+**Crystal Palace to play Fredrikstad or Midtjylland in Conference League play-off**\
+`The first leg is scheduled to take place at Selhurst Park on August 21.`\
+https://nytimes.com/athletic/6534412/2025/08/04/crystal-palace-set-to-play-fredrikstad-or-midtjylland-in-conference-league-play-off/
+
+**Giannis shares which young NBA star's memorabilia he wants to collect**\
+`Giannis Antetokounmpo has high expectations for Victor Wembanyama`\
+https://nytimes.com/athletic/6533193/2025/08/04/giannis-victor-wembanyama-collect/
+
 **Elon Musk’s Huge Payday**\
 `Tesla has awarded its chief executive a “first step payment worth roughly $29 billion to replace a plan blocked by a Delaware judge..`\
 https://nytimes.com/2025/08/04/business/dealbook/musk-tesla-compensation-billion.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6530587/2025/08/04/wild-all-time-team-25th-annivers
 **Senators offseason mailbag: Submit your questions for Julian McKenzie**\
 `Got a question about the Ottawa Senators heading into the 2025-26 season? Submit it here.`\
 https://nytimes.com/athletic/6520753/2025/08/04/ottawa-senators-mailbag-nhl-offseason-julian-mckenzie/
-
-**Trump Administration Live Updates: President Says He’ll Name New Labor Statistics Official Within Days**\
-``\
-https://nytimes.com/live/2025/08/04/us/trump-news
-
-**Nancy Mace Announces Run for Governor of South Carolina**\
-`The Charleston-area congresswoman was once a moderate Republican, but has more recently presented herself as a loyal supporter of President Trump.`\
-https://nytimes.com/2025/08/04/us/politics/nancy-mace-south-carolina-governor.html
-
-**Driver Dies in Crash During Racing Event at Bonneville Salt Flats**\
-`Chris Raschke, 60, lost control of his vehicle while trying to set a speed record on Sunday, the event’s organizers said.`\
-https://nytimes.com/2025/08/04/us/speedweek-bonneville-salt-flats-death.html
 
