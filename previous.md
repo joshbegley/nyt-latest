@@ -1,40 +1,40 @@
-**'You’ve got to put yourself out there' - Why former England cricketer Tymal Mills is on OnlyFans**\
-`OnlyFans says it has many professional athletes as porn stars on the platform, Mills is just the latest`\
-https://nytimes.com/athletic/6531734/2025/08/04/cricketer-tymal-mills-onlyfans/
+**An Oval Office Replica Opens, Without Trump’s Gilded Flourishes**\
+`The White House Historical Association recently unveiled its replica of President Trump’s Oval Office, but it mirrors the office from his first term, before he festooned it with gold.`\
+https://nytimes.com/2025/08/04/us/politics/trump-oval-office-gold-replica.html
 
-**Bruno Fernandes says Manchester United side were 'lazy', calls for signings to increase competition**\
-`Fernandes scored the opening goal as United drew with Everton to win the preseason PL Summer Series. `\
-https://nytimes.com/athletic/6534261/2025/08/04/manchester-united-bruno-fernandes-lazy-transfers/
+**As the Supreme Court Focuses on the Past, Historians Turn to Advocacy**\
+`Spikes in the number and influence of briefs filed by historians have prompted questions about the role scholars should play in litigation.`\
+https://nytimes.com/2025/08/04/us/politics/supreme-court-historians-advocacy.html
 
-**Trump’s Immigrant Crackdown in New York: More Arrests, Longer Detention**\
-`More than half of the immigrants arrested in the New York City area since Jan. 20 do not have criminal convictions or charges, new data shows.`\
-https://nytimes.com/2025/08/04/nyregion/new-york-immigrant-arrests-trump.html
+**Democratic Group Calls on Blue States to Draw New House Maps**\
+`The Democratic Legislative Campaign Committee is pressing legislatures to counter Republicans’ redistricting efforts in Texas and elsewhere.`\
+https://nytimes.com/2025/08/04/us/politics/democrats-redistricting.html
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2025/08/04/crosswords/spelling-bee-forum.html
+**This Attack on a Federal Judge Is Preposterous**\
+`Once again, it looks like Pam Bondi’s Justice Department is attempting to undermine the rule of law.`\
+https://nytimes.com/2025/08/04/opinion/trump-bondi-judge-boasberg.html
 
-**Many Jewish Voters Back Mamdani. And Many Agree With Him on Gaza.**\
-`Zohran Mamdani won over Jewish voters in New York City who were energized by his economic agenda and unbothered by — or sympathetic to — his views on Israel and Gaza.`\
-https://nytimes.com/2025/08/04/nyregion/zohran-mamdani-jewish-voters-gaza.html
+**Is My Wardrobe Stuck in the Past?**\
+`It can be hard to know when to let go of a beloved piece of clothing — like a go-to jumpsuit. Our critic offers tips for giving old clothing new life.`\
+https://nytimes.com/2025/08/04/fashion/clothes-old-refresh.html
 
-**Cody Gakpo: 'We'll all miss Diogo for the rest of our lives. We will never forget him'**\
-`Liverpool's Dutch forward opens up on team-mate Jota's and why he thinks the Anfield side should dream of winning it all next season`\
-https://nytimes.com/athletic/6531171/2025/08/04/cody-gakpo-interview-liverpool-diogo-jota/
+**The Meaning of Trump’s Gilded Age Rumpus Room**\
+`While President Trump is right to try to reclaim meaning in American architecture, Gilded Age neoclassicism is not the answer.`\
+https://nytimes.com/2025/08/04/opinion/trump-gilded-age-ballroom.html
 
-**Woman Arrested After Toddler Found Stowed in Suitcase in New Zealand**\
-`The 2-year-old girl was discovered Sunday in the luggage compartment of a bus after the driver noticed the suitcase moving, the police said.`\
-https://nytimes.com/2025/08/04/world/new-zealand-suitcase-toddler-bus.html
+**The Heart-Lifting Magic of a Pop-up Concert**\
+`This summer, joy might look like dancing beside a fake dinosaur and remembering how good it feels to sing with strangers.`\
+https://nytimes.com/2025/08/04/opinion/tyler-childers.html
 
-**The New York Times in Print for Monday, Aug. 4, 2025**\
-``\
-https://nytimes.com/issue/todayspaper/2025/08/04/todays-new-york-times
+**Democrats Disagree (Again). This Time, It’s About School Vouchers.**\
+`A moderate group that has tried to rally Democrats around school choice faces divisions over private-school vouchers.`\
+https://nytimes.com/2025/08/04/us/democrats-for-education-reform-school-vouchers.html
 
-**I Was Banished by My Country’s Dictator. What Happened to Me Is a Warning.**\
-`Thousands of dissidents have fled Daniel Ortega’s Nicaragua — and now, even those of us in exile no longer feel safe.`\
-https://nytimes.com/2025/08/04/opinion/nicaragua-ortega-dictatorship-exile.html
+**You Are Contaminated**\
+`The toxic byproducts of human civilization are everywhere. Even in our bodies.`\
+https://nytimes.com/2025/08/04/opinion/contamination-exposome.html
 
-**Las Culturistas Culture Awards, Plus 5 Things to Watch on TV This Week**\
-`Bravo airs the ceremony hosted by Bowen Yang and Matt Rogers. And Apple TV+ releases the second season of “Platonic.”`\
-https://nytimes.com/2025/08/04/arts/television/las-culturistas-awards-shows-platonic.html
+**One Easy Rule: If You Admire It, It’s Worth Collecting**\
+`An Australian businessman built a house so he could enjoy his eclectic range of furniture, accessories and art every day.`\
+https://nytimes.com/2025/08/04/realestate/victoria-australia-insect-armor-collections.html
 
