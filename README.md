@@ -1,3 +1,15 @@
+**The Pulse: Let's trade Micah Parsons to ... the Bears?**\
+`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/6533531/2025/08/04/micah-parsons-trade-noah-lyles-the-pulse/
+
+**From Drake Maye to Stefon Diggs, one thought on every Patriots player on offense**\
+`As camp kicks into high gear, let’s take stock of all 91 players on the roster by offering one thought on each. Up first: the Pats offense.`\
+https://nytimes.com/athletic/6528372/2025/08/04/patriots-offense-drake-maye-stefon-diggs/
+
+**What we've learned about the Falcons through 6 training camp practices**\
+`Assessing what we've seen from Michael Penix Jr., the rookie pass rushers, the receiver competition and an under-the-radar defender.`\
+https://nytimes.com/athletic/6530723/2025/08/04/falcons-training-camp-james-pearce-jalon-walker/
+
 **Jhoan Duran is a ninth-inning luxury for Phillies and already a game-changer**\
 `Duran could not have made a better first impression. He's faced six batters with the Phillies and retired all six.`\
 https://nytimes.com/athletic/6534145/2025/08/04/jhoan-duran-phillies-closer-tigers/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6533796/2025/08/04/steelers-aaron-rodgers-offense/
 **Receiving corps deeper and faster: 7 things we've learned about the Panthers in camp**\
 `Bryce Young looks to be in a much better place this year and the added playmakers on offense helps.`\
 https://nytimes.com/athletic/6533724/2025/08/04/carolina-panthers-training-camp/
-
-**Ravens are showing faith in Tyler Loop, and the rookie kicker is delivering**\
-`Plus, cornerback Jaire Alexander continues to look right at home in Baltimore. `\
-https://nytimes.com/athletic/6533892/2025/08/04/ravens-training-camp-tyler-loop/
-
-**Lewis Hamilton is frustrated and struggling in F1 2025. How concerned should Ferrari be?**\
-`Lewis Hamilton called himself "useless" after a poor showing in the 2025 Hungarian GP. Now he has F1's summer break to find improvements`\
-https://nytimes.com/athletic/6534204/2025/08/04/lewis-hamilton-ferrari-frustration-f1/
-
-**UDFAs know the odds, and they don't care. Get to know 2 Colts determined to defy expectations**\
-`Every NFL training camp has an underdog story or two you can root for. These are the Colts’.`\
-https://nytimes.com/athletic/6533757/2025/08/04/colts-udfa-tyler-kahmann-devonta-davis/
 
