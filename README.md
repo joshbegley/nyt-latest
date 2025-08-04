@@ -1,3 +1,11 @@
+**Texas Democrats Fled the State to Fight Redistricting**\
+`Also, Tesla offered Musk nearly $30 billion in stock. Here’s the latest at the end of Monday.`\
+https://nytimes.com/2025/08/04/briefing/texas-democrats-fled-the-state-to-fight-redistricting.html
+
+**Bird Flu May Be Airborne on Dairy Farms, Scientists Report**\
+`In unpublished research, researchers found live virus on equipment, in wastewater and in the air in so-called milking parlors.`\
+https://nytimes.com/2025/08/04/health/bird-flu-airborne.html
+
 **Sean Combs Is Denied Bail, and Will Remain Jailed Until Sentencing**\
 `The music mogul, who was convicted on two counts of transportation to engage in prostitution in July, had asked to be released before his sentencing on Oct. 3.`\
 https://nytimes.com/2025/08/04/arts/music/sean-combs-diddy-bail-denied.html
@@ -31,12 +39,4 @@ https://nytimes.com/athletic/6535357/2025/08/04/commanders-depth-chart-preseason
 **Tuesday Briefing: Trump’s Tariff Leverage**\
 `Also, a hit musical at the Edinburgh Festival Fringe.`\
 https://nytimes.com/2025/08/04/briefing/trump-tariffs-elon-musk-yemen-capsize.html
-
-**The America We Knew Is Rapidly Slipping Away**\
-`When Trump fired the top labor statistics official, the aides responsible for running our economy went along for the ride.`\
-https://nytimes.com/2025/08/04/opinion/columnists/friedman-trump-labor-firing.html
-
-**RB Leipzig receive improved offer from Newcastle for Sesko**\
-`Newcastle are in a strong position as things stand after a day of positive talks held by their co-owner Jamie Reuben with Leipzig and Sesko.`\
-https://nytimes.com/athletic/6531675/2025/08/04/newcastle-sesko-leipzig-transfer-news-update/
 
