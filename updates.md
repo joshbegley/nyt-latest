@@ -1,3 +1,11 @@
+**‘Victim-3’ in Sean Combs Indictment Argues for His Release From Jail**\
+`Once part of the government’s case against the music mogul, a former girlfriend wrote to a judge in support of Mr. Combs’s request for bail ahead of sentencing.`\
+https://nytimes.com/2025/08/04/arts/music/sean-combs-diddy-victim-3-virginia-huynh-bail.html
+
+**Heather Cox Richardson Enters the History of ‘Lincoln Portrait’**\
+`Cox Richardson, the historian behind the newsletter Letters From an American, discusses preparing for the narrator role in Aaron Copland’s piece.`\
+https://nytimes.com/2025/08/04/arts/music/heather-cox-richardson-lincoln-portrait.html
+
 **At Edinburgh Fringe, the Streets Are Alive**\
 `Thousands of performers were hawking their shows on the first weekend of the Scottish arts extravaganza.`\
 https://nytimes.com/2025/08/04/theater/edinburgh-fringe-photos.html
