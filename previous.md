@@ -1,3 +1,7 @@
+**From Triumph in Iran to Starvation in Gaza: Netanyahu Squanders His Moment to Halt the War**\
+`Six weeks after Benjamin Netanyahu scored a victory over Iran, the Israeli leader is now pushing for an “all or nothing” deal with Hamas. But he has not made the compromises needed to make it happen.`\
+https://nytimes.com/2025/08/04/world/middleeast/israel-gaza-netanyahu.html
+
 **The New York Times International Edition in Print for Tuesday, Aug. 5, 2025**\
 ``\
 https://nytimes.com/issue/todaysinyt/2025/08/04/todays-new-york-times-international-edition
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/04/opinion/trump-bondi-judge-boasberg.html
 **Is My Wardrobe Stuck in the Past?**\
 `It can be hard to know when to let go of a beloved piece of clothing — like a go-to jumpsuit. Our critic offers tips for giving old clothing new life.`\
 https://nytimes.com/2025/08/04/fashion/clothes-old-refresh.html
-
-**The Meaning of Trump’s Gilded Age Rumpus Room**\
-`While President Trump is right to try to reclaim meaning in American architecture, Gilded Age neoclassicism is not the answer.`\
-https://nytimes.com/2025/08/04/opinion/trump-gilded-age-ballroom.html
 

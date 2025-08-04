@@ -1,3 +1,7 @@
+**From Triumph in Iran to Starvation in Gaza: Netanyahu Squanders His Moment to Halt the War**\
+`Six weeks after Benjamin Netanyahu scored a victory over Iran, the Israeli leader is now pushing for an “all or nothing” deal with Hamas. But he has not made the compromises needed to make it happen.`\
+https://nytimes.com/2025/08/04/world/middleeast/israel-gaza-netanyahu.html
+
 **The New York Times International Edition in Print for Tuesday, Aug. 5, 2025**\
 ``\
 https://nytimes.com/issue/todaysinyt/2025/08/04/todays-new-york-times-international-edition
