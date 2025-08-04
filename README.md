@@ -1,3 +1,7 @@
+**The New York Times International Edition in Print for Tuesday, Aug. 5, 2025**\
+``\
+https://nytimes.com/issue/todaysinyt/2025/08/04/todays-new-york-times-international-edition
+
 **A Weakened Hezbollah Resists Pressure to Give Up Its Weapons**\
 `The Lebanese militant group has lost much of its power since the recent war with Israel. But it is balking at demands to surrender whatever is left of its once formidable arsenal.`\
 https://nytimes.com/2025/08/04/world/middleeast/hezbollah-weapons-lebanon.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/04/fashion/clothes-old-refresh.html
 **The Meaning of Trump’s Gilded Age Rumpus Room**\
 `While President Trump is right to try to reclaim meaning in American architecture, Gilded Age neoclassicism is not the answer.`\
 https://nytimes.com/2025/08/04/opinion/trump-gilded-age-ballroom.html
-
-**The Heart-Lifting Magic of a Pop-up Concert**\
-`This summer, joy might look like dancing beside a fake dinosaur and remembering how good it feels to sing with strangers.`\
-https://nytimes.com/2025/08/04/opinion/tyler-childers.html
 

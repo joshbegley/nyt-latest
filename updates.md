@@ -1,3 +1,7 @@
+**A Weakened Hezbollah Resists Pressure to Give Up Its Weapons**\
+`The Lebanese militant group has lost much of its power since the recent war with Israel. But it is balking at demands to surrender whatever is left of its once formidable arsenal.`\
+https://nytimes.com/2025/08/04/world/middleeast/hezbollah-weapons-lebanon.html
+
 **Gifford Fire Burns Nearly 50,000 Acres in California’s Los Padres Forest**\
 `The blaze injured three people, put hundreds under evacuation orders and threatened 460 structures, officials said.`\
 https://nytimes.com/2025/08/04/us/gifford-fire-california-los-padres-forest.html
