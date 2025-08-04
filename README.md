@@ -1,3 +1,11 @@
+**Gifford Fire Burns More Than 65,000 Acres in California**\
+`The fire burned in a rural area of Los Padres National Forest and has put hundreds of people under evacuation orders, according to officials.`\
+https://nytimes.com/video/us/100000010322170/gifford-fire-california-los-padres-forest.html
+
+**gws-dave-jorgenson-video-washington-post**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/dave-jorgenson-video-washington-post
+
 **gws-mormon-tabernacle-choir**\
 `(No description)`\
 https://nytimes.com/newsgraphics/card-story/mormon-tabernacle-choir
@@ -29,12 +37,4 @@ https://nytimes.com/2025/08/04/well/cardiac-amyloidosis.html
 **gws-country-hotels-getaways**\
 `(No description)`\
 https://nytimes.com/newsgraphics/card-story/country-hotels-getaways
-
-**‘Game, Set, Matchmaker’? The U.S. Open Gets Into the Dating Game.**\
-`The series is scheduled to stream on YouTube during this year’s tournament.`\
-https://nytimes.com/2025/08/04/style/us-open-matchmaker-dating-show.html
-
-**Scientists Finally Identify Killer Microbe Behind ‘Terrifying’ Sea Star Disease**\
-`A mysterious epidemic has wiped out billions of sea stars in recent years. A new study finally identifies the bacterium responsible.`\
-https://nytimes.com/2025/08/04/science/sea-stars-disease-vibrio-pectenicida.html
 
