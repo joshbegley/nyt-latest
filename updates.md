@@ -1,3 +1,11 @@
+**Elon Musk’s Huge Payday**\
+`Tesla has awarded its chief executive a “first step payment worth roughly $29 billion to replace a plan blocked by a Delaware judge..`\
+https://nytimes.com/2025/08/04/business/dealbook/musk-tesla-compensation-billion.html
+
+**Tyler Dibling: Everton table improved bid for Southampton winger**\
+`Southampton are yet to respond to the offer but they are seeking a higher fee for the teenager.`\
+https://nytimes.com/athletic/6528169/2025/08/04/tyler-dibling-everton-bid-transfer-southampton/
+
 **Thomas Partey and Villarreal: Can he play after rape charges? Does he have to attend court date?**\
 `The former Arsenal midfielder is set to join the Spanish club while facing charges for rape, which he denies`\
 https://nytimes.com/athletic/6533286/2025/08/04/thomas-partey-villarreal-arsenal-court-charges/
