@@ -1,3 +1,7 @@
+**Passengers Flee as Fire Breaks Out on New Jersey PATH Train**\
+`Port Authority officials said they are investigating the cause of a fire that broke out beneath a PATH commuter train in Jersey City, N.J., on Monday morning.`\
+https://nytimes.com/video/us/100000010322127/new-jersey-path-train-fire.html
+
 **Should Forgetful People Be Allowed to Keep Their Phone Silenced?**\
 `A ruling on yet another domestic phone-notification dispute.`\
 https://nytimes.com/interactive/2025/08/04/magazine/phone-silent-hodgman-quiz.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6534608/2025/08/04/aaron-ramsdale-newcastle-transfe
 **A Breaking Musical Is a Fringe Hit. Just Don’t Mention Raygun.**\
 `The Australian breaker tried to shut down a musical about her. Now, it’s attracting dancing crowds at the Edinburgh Festival Fringe.`\
 https://nytimes.com/2025/08/04/arts/dance/raygun-musical-edinburgh-fringe.html
-
-**Kemp Ally Enters Senate Race Seeking to Challenge Jon Ossoff in Georgia**\
-`Derek Dooley, a former football coach, cast himself as an outsider candidate as the Republican primary field for a marquee midterm contest takes shape.`\
-https://nytimes.com/2025/08/04/us/politics/derek-dooley-jon-ossoff-georgia-senate.html
 

@@ -1,3 +1,7 @@
+**Passengers Flee as Fire Breaks Out on New Jersey PATH Train**\
+`Port Authority officials said they are investigating the cause of a fire that broke out beneath a PATH commuter train in Jersey City, N.J., on Monday morning.`\
+https://nytimes.com/video/us/100000010322127/new-jersey-path-train-fire.html
+
 **Should Forgetful People Be Allowed to Keep Their Phone Silenced?**\
 `A ruling on yet another domestic phone-notification dispute.`\
 https://nytimes.com/interactive/2025/08/04/magazine/phone-silent-hodgman-quiz.html
