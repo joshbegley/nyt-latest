@@ -1,3 +1,7 @@
+**Real Madrid's €30m midfielder Reinier set to join Atletico Mineiro for free**\
+`The 23-year-old joined Madrid for €30million in 2020 but hasn't made a first-team appearance.`\
+https://nytimes.com/athletic/6534320/2025/08/04/real-madrid-reinier-jesus-altetico-mineiro-transfer/
+
 **The Pulse: Let's trade Micah Parsons to ... the Bears?**\
 `The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
 https://nytimes.com/athletic/6533531/2025/08/04/micah-parsons-trade-noah-lyles-the-pulse/
