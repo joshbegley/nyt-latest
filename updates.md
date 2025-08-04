@@ -1,3 +1,7 @@
+**Justin Turner earns his big Cubs moment as the team leader delivers a walk-off homer**\
+`"He's so engaged in other people's success. So when that player has success, it just means a little bit more," manager Craig Counsell said.`\
+https://nytimes.com/athletic/6533931/2025/08/03/cubs-justin-turner-walk-off-homer/
+
 **Steve Pagliuca confirms interest in purchasing Connecticut Sun, but says no deal in place**\
 `Pagliuca said that their offer is subject to obtaining the required league approvals.`\
 https://nytimes.com/athletic/6534007/2025/08/03/steve-pagliuca-connecticut-sun-sale/
