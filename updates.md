@@ -1,3 +1,7 @@
+**U.S. to Require Some Foreign Visitors to Pay Bonds of Up to $15,000 for Entry**\
+`A State Department pilot program will tie the cash deposits to tourist and business visas for people from countries with high visa overstay rates.`\
+https://nytimes.com/2025/08/04/us/politics/state-department-bonds-visas.html
+
 **NASCAR Iowa takeaways: Fuel savings for the win, William Byron reclaims points lead**\
 `Another oval, another fuel-mileage race. William Byron reminds us why he's a contender. And more from the Cup Series race in Iowa.`\
 https://nytimes.com/athletic/6534662/2025/08/04/nascar-iowa-takeaways-fuel-savings-mileage-william-byron/

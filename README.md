@@ -1,3 +1,7 @@
+**A Zoo in Denmark Wants to Feed Your Pets to Its Predators**\
+`A Danish zoo is asking owners of companion animals nearing life’s end to instead donate them as food for captive lynxes, lions and other carnivores.`\
+https://nytimes.com/2025/08/04/science/zoos-denmark-food-pets.html
+
 **U.S. to Require Some Foreign Visitors to Pay Bonds of Up to $15,000 for Entry**\
 `A State Department pilot program will tie the cash deposits to tourist and business visas for people from countries with high visa overstay rates.`\
 https://nytimes.com/2025/08/04/us/politics/state-department-bonds-visas.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6535257/2025/08/04/fifa-lawsuit-players-transfer-ru
 **Razia Jan, 81, Who Built an Enduring Girls’ School in Afghanistan, Dies**\
 `Before 9/11, she ran a dry cleaning business in Massachusetts; in the aftermath, she returned home after decades away to educate young girls.`\
 https://nytimes.com/2025/08/04/world/razia-jan-dead.html
-
-**The Price May Be Right for That Last-Minute Summer Trip**\
-`Late summer has steep airfare savings and smaller crowds. Experts say there are more flight deals than usual and great prices for international trips.`\
-https://nytimes.com/2025/08/04/travel/summer-flight-deals.html
 
