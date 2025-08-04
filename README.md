@@ -1,3 +1,7 @@
+**'You’ve got to put yourself out there' - Why former England cricketer Tymal Mills is on OnlyFans**\
+`OnlyFans says it has many professional athletes as porn stars on the platform, Mills is just the latest`\
+https://nytimes.com/athletic/6531734/2025/08/04/cricketer-tymal-mills-onlyfans/
+
 **Bruno Fernandes says Manchester United side were 'lazy', calls for signings to increase competition**\
 `Fernandes scored the opening goal as United drew with Everton to win the preseason PL Summer Series. `\
 https://nytimes.com/athletic/6534261/2025/08/04/manchester-united-bruno-fernandes-lazy-transfers/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/04/opinion/nicaragua-ortega-dictatorship-exile.html
 **Las Culturistas Culture Awards, Plus 5 Things to Watch on TV This Week**\
 `Bravo airs the ceremony hosted by Bowen Yang and Matt Rogers. And Apple TV+ releases the second season of “Platonic.”`\
 https://nytimes.com/2025/08/04/arts/television/las-culturistas-awards-shows-platonic.html
-
-**Monday Briefing: An ‘All or Nothing’ Gaza Deal**\
-`Also, Catholic influencers.`\
-https://nytimes.com/2025/08/04/briefing/gaza-trump-tariffs-lesotho-putin-russia-censorship.html
 
