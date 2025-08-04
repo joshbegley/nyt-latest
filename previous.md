@@ -1,4 +1,8 @@
-**Falcons sign Kaleb McGary to two-year extension worth reported $30 million**\
+**NASCAR Iowa takeaways: Fuel savings for the win, William Byron reclaims points lead**\
+`Another oval, another fuel-mileage race. William Byron reminds us why he's a contender. And more from the Cup Series race in Iowa.`\
+https://nytimes.com/athletic/6534662/2025/08/04/nascar-iowa-takeaways-fuel-savings-mileage-william-byron/
+
+**Falcons sign Kaleb McGary to two-year extension worth $30 million**\
 `Two weeks ago, Raheem Morris said he has “so much confidence” in RT Kaleb McGary. On Monday, the franchise backed that up with an extension.`\
 https://nytimes.com/athletic/6535353/2025/08/04/kaleb-mcgary-falcons-extension/
 
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/04/travel/summer-flight-deals.html
 **De'Aaron Fox, Spurs agree to 4-year contract extension**\
 `The Spurs acquired the 28-year-old former All-Star in February to be a key running mate for Victor Wembanyama.`\
 https://nytimes.com/athletic/6533164/2025/08/04/deaaron-fox-spurs-contract-extension-max/
-
-**Texas Democrats Leave State to Block Vote on Gerrymandered Map**\
-`The legislators’ departure was a last-ditch effort to stop Republicans from adopting a redrawn congressional map that would flip five Democratic congressional districts to favor Republicans.`\
-https://nytimes.com/video/us/politics/100000010322337/texas-map-redistricting-democrats-trump.html
 

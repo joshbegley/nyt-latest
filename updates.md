@@ -1,3 +1,11 @@
+**NASCAR Iowa takeaways: Fuel savings for the win, William Byron reclaims points lead**\
+`Another oval, another fuel-mileage race. William Byron reminds us why he's a contender. And more from the Cup Series race in Iowa.`\
+https://nytimes.com/athletic/6534662/2025/08/04/nascar-iowa-takeaways-fuel-savings-mileage-william-byron/
+
+**Falcons sign Kaleb McGary to two-year extension worth $30 million**\
+`Two weeks ago, Raheem Morris said he has “so much confidence” in RT Kaleb McGary. On Monday, the franchise backed that up with an extension.`\
+https://nytimes.com/athletic/6535353/2025/08/04/kaleb-mcgary-falcons-extension/
+
 **Falcons sign Kaleb McGary to two-year extension worth reported $30 million**\
 `Two weeks ago, Raheem Morris said he has “so much confidence” in RT Kaleb McGary. On Monday, the franchise backed that up with an extension.`\
 https://nytimes.com/athletic/6535353/2025/08/04/kaleb-mcgary-falcons-extension/
