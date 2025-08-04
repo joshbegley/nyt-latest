@@ -1,3 +1,7 @@
+**Cody Gakpo: 'We'll all miss Diogo for the rest of our lives. We will never forget him'**\
+`Liverpool's Dutch forward opens up on team-mate Jota's and why he thinks the Anfield side should dream of winning it all next season`\
+https://nytimes.com/athletic/6531171/2025/08/04/cody-gakpo-interview-liverpool-diogo-jota/
+
 **Woman Arrested After Toddler Found Stowed in Suitcase in New Zealand**\
 `The 2-year-old girl was discovered Sunday in the luggage compartment of a bus after the driver noticed the suitcase moving, the police said.`\
 https://nytimes.com/2025/08/04/world/new-zealand-suitcase-toddler-bus.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6527502/2025/08/04/gjert-ingebrigtsen-interview-jak
 **Son Heung-min is Tottenham. Tottenham is Son Heung-min.**\
 `Son’s 10-year Spurs career ended in Seoul this week, but it was in Bilbao in May that his embodiment of the club became complete`\
 https://nytimes.com/athletic/6522100/2025/08/04/son-heung-min-is-tottenham-tottenham-is-son-heung-min/
-
-**The challenges facing U.S. owners of Premier League clubs: 'You cannot bastardise the beautiful game'**\
-`A leading executive at Bournemouth on the complex challenges that come with being a U.S. custodian of an English top-flight club`\
-https://nytimes.com/athletic/6532615/2025/08/04/premier-league-american-ownership-bournemouth/
 

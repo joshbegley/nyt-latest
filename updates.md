@@ -1,3 +1,7 @@
+**Cody Gakpo: 'We'll all miss Diogo for the rest of our lives. We will never forget him'**\
+`Liverpool's Dutch forward opens up on team-mate Jota's and why he thinks the Anfield side should dream of winning it all next season`\
+https://nytimes.com/athletic/6531171/2025/08/04/cody-gakpo-interview-liverpool-diogo-jota/
+
 **Woman Arrested After Toddler Found Stowed in Suitcase in New Zealand**\
 `The 2-year-old girl was discovered Sunday in the luggage compartment of a bus after the driver noticed the suitcase moving, the police said.`\
 https://nytimes.com/2025/08/04/world/new-zealand-suitcase-toddler-bus.html
