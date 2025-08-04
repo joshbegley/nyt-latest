@@ -1,3 +1,11 @@
+**‘Victim-3’ in Sean Combs Indictment Argues for His Release From Jail**\
+`Once part of the government’s case against the music mogul, a former girlfriend wrote to a judge in support of Mr. Combs’s request for bail ahead of sentencing.`\
+https://nytimes.com/2025/08/04/arts/music/sean-combs-diddy-victim-3-virginia-huynh-bail.html
+
+**Heather Cox Richardson Enters the History of ‘Lincoln Portrait’**\
+`Cox Richardson, the historian behind the newsletter Letters From an American, discusses preparing for the narrator role in Aaron Copland’s piece.`\
+https://nytimes.com/2025/08/04/arts/music/heather-cox-richardson-lincoln-portrait.html
+
 **At Edinburgh Fringe, the Streets Are Alive**\
 `Thousands of performers were hawking their shows on the first weekend of the Scottish arts extravaganza.`\
 https://nytimes.com/2025/08/04/theater/edinburgh-fringe-photos.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/08/04/business/dealbook/musk-tesla-compensation-billion
 **Tyler Dibling: Everton table improved bid for Southampton winger**\
 `Southampton are yet to respond to the offer but they are seeking a higher fee for the teenager.`\
 https://nytimes.com/athletic/6528169/2025/08/04/tyler-dibling-everton-bid-transfer-southampton/
-
-**Thomas Partey and Villarreal: Can he play after rape charges? Does he have to attend court date?**\
-`The former Arsenal midfielder is set to join the Spanish club while facing charges for rape, which he denies`\
-https://nytimes.com/athletic/6533286/2025/08/04/thomas-partey-villarreal-arsenal-court-charges/
-
-**Texas Democrats Leave State to Block Vote on Redrawn Political Map**\
-`The departure was a last-ditch attempt to stop Republicans from adopting an aggressively redrawn congressional map, which would flip five Democratic congressional districts to favor Republicans.`\
-https://nytimes.com/video/us/politics/100000010321830/texas-democrats-leave-state-to-block-vote-on-redrawn-political-map.html
 
