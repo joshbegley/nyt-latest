@@ -1,3 +1,19 @@
+**Fantasy Premier League: The best budget enablers for the 2025-26 season**\
+`Picking cheap assets that play plenty of minutes is one of the most crucial elements of building an FPL squad - so who fits the bill?`\
+https://nytimes.com/athletic/6517226/2025/08/04/fantasy-premier-league-budget-enablers/
+
+**Gjert Ingebrigtsen interview: 'Of course there is a winner when it comes to the verdict'**\
+`Gjert Ingebrigtsen speaks after a harrowing trial in which his double Olympic champion son Jakob and daughter Ingrid accused him of abuse`\
+https://nytimes.com/athletic/6527502/2025/08/04/gjert-ingebrigtsen-interview-jakob-trial/
+
+**Son Heung-min is Tottenham. Tottenham is Son Heung-min.**\
+`Son’s 10-year Spurs career ended in Seoul this week, but it was in Bilbao in May that his embodiment of the club became complete`\
+https://nytimes.com/athletic/6522100/2025/08/04/son-heung-min-is-tottenham-tottenham-is-son-heung-min/
+
+**The challenges facing U.S. owners of Premier League clubs: 'You cannot bastardise the beautiful game'**\
+`A leading executive at Bournemouth on the complex challenges that come with being a U.S. custodian of an English top-flight club`\
+https://nytimes.com/athletic/6532615/2025/08/04/premier-league-american-ownership-bournemouth/
+
 **Charlie Patino’s new home from home – and his advice for Arsenal youngsters**\
 `The 21-year-old left north London last summer in a £1m move to Deportivo La Coruna`\
 https://nytimes.com/athletic/6529907/2025/08/04/charlie-patino-arsenal-deportivo-interview/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6478126/2025/08/04/fa-cup-fisher-canary-wharfe-mayf
 **Quote of the Day: 10,000 Steps? A Nice, Round Number, but Not the Magic One.**\
 `Quotation of the Day for Monday, August 4, 2025.`\
 https://nytimes.com/2025/08/04/pageoneplus/quote-of-the-day-10000-steps-a-nice-round-number-but-not-the-magic-one.html
-
-**Connections: Sports Edition Coach: Hints for Aug. 4, 2025**\
-`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
-https://nytimes.com/athletic/6533697/2025/08/04/connections-sports-edition-hints-for-aug-4-2025-puzzle-no-315/
-
-**He Survived the Khmer Rouge and Built a Musical Legacy**\
-`Kong Nay, a blind lute player who endured the horrors of a totalitarian regime, exposed a new generation of Cambodians to their country’s traditional music.`\
-https://nytimes.com/2025/08/04/arts/music/kong-nay-cambodia-khmer-rouge.html
-
-**What’s It Like to Deal With Brutal U.S. Tariffs? Ask Malaysia.**\
-`Once a cog in the Malaysian economy, the solar industry profited from Chinese investment. Now it’s becoming a case study of what happens when the United States closes its markets.`\
-https://nytimes.com/2025/08/04/business/malaysia-solar-china.html
-
-**David White named NFLPA’s interim executive director**\
-`The announcement comes after Lloyd Howell Jr. stepped down on July 17 following controversies surrounding his leadership.`\
-https://nytimes.com/athletic/6502847/2025/08/03/david-white-nflpa-interim-executive-director/
 
