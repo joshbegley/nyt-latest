@@ -1,3 +1,7 @@
+**Justin Turner earns his big Cubs moment as the team leader delivers a walk-off homer**\
+`"He's so engaged in other people's success. So when that player has success, it just means a little bit more," manager Craig Counsell said.`\
+https://nytimes.com/athletic/6533931/2025/08/03/cubs-justin-turner-walk-off-homer/
+
 **Steve Pagliuca confirms interest in purchasing Connecticut Sun, but says no deal in place**\
 `Pagliuca said that their offer is subject to obtaining the required league approvals.`\
 https://nytimes.com/athletic/6534007/2025/08/03/steve-pagliuca-connecticut-sun-sale/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6531817/2025/08/03/manchester-united-2-everton-2-mb
 **Loni Anderson, Star of ‘WKRP in Cincinnati,’ Dies at 79**\
 `Known for her platinum blond hair, she earned Golden Globe and Emmy nominations for her role. Her divorce from Burt Reynolds landed her in the tabloids for years.`\
 https://nytimes.com/2025/08/03/arts/television/loni-anderson-dead.html
-
-**Noah Lyles' taunting stare sparks beef with Kenny Bednarek at U.S. track championships**\
-`Lyles passed Bednarek down the stretch Sunday to win the 200-meter title at the U.S. championships, punctuating it with a staredown.`\
-https://nytimes.com/athletic/6533875/2025/08/03/noah-lyles-kenny-bednarek-stare-200-us-track-championships/
 
