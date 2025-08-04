@@ -1,3 +1,11 @@
+**FIFA condemns death threats against Mexican referee Katia Itzel Garcia**\
+`The official spoke out strongly after being targeted on social media.`\
+https://nytimes.com/athletic/6535676/2025/08/04/katia-itzel-garcia-leagues-cup-death-threats/
+
+**Chargers LB Denzel Perryman released from police custody following gun charges**\
+`Authorities arrested Perryman, a sixth-year veteran, on Friday for multiple weapons violations.`\
+https://nytimes.com/athletic/6535685/2025/08/04/chargers-denzel-perryman-gun-charges/
+
 **How Is the Montana Shooting Suspect Still at Large? Check Out the Terrain.**\
 `Many manhunts end quickly, but the man accused of killing four people in rural Montana appears to have disappeared into the kind of wilderness that helps elude pursuers.`\
 https://nytimes.com/2025/08/04/us/montana-manhunt-terrain.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/08/04/us/travis-posey-sentenced-arkansas-grocery-store-
 **Jaguars' initial depth chart lists Travis Hunter as starting WR, second-team CB**\
 `Hunter has spent more time early in training camp at wide receiver as he works to get in sync with quarterback Trevor Lawrence.`\
 https://nytimes.com/athletic/6535540/2025/08/04/travis-hunter-jaguars-depth-chart/
-
-**Brazil’s Supreme Court Places Bolsonaro Under House Arrest**\
-`Former President Jair Bolsonaro, whose case has partly motivated President Trump’s tariffs on Brazil, was ordered to remain under house arrest as he awaited trial.`\
-https://nytimes.com/2025/08/04/world/americas/brazil-bolsonaro-house-arrest.html
-
-**Elizabeth Warren, Campaigning for Mamdani, Scorns Cuomo and Billionaires**\
-`Zohran Mamdani, the Democratic candidate for mayor of New York City, appeared with Senator Elizabeth Warren to highlight his plan for free universal child care.`\
-https://nytimes.com/2025/08/04/nyregion/mamdani-elizabeth-warren-cuomo.html
 
