@@ -1,3 +1,11 @@
+**Tesla Awards ‘Good Faith’ Shares to Musk Worth $29 Billion**\
+`The “interim” package announced on Monday was intended to help retain Elon Musk, whose previous pay plan was invalidated by a judge. The car maker’s chief has hinted that he needed a larger stake in the company.`\
+https://nytimes.com/2025/08/04/business/tesla-elon-musk-29-billion.html
+
+**TAFC: Son's emotional goodbye; Isak, Sesko and a striker logjam; Puskas award contender**\
+`Today in TAFC: Son's emotional farewell, the Premier League striker logjam involving Isak and Sesko, a Puskas contender from MLS.`\
+https://nytimes.com/athletic/6534331/2025/08/04/sons-emotional-goodbye-isak-sesko-and-a-striker-logjam-puskas-award-contender/
+
 **Burnley reach agreement over Ugochukwu transfer from Chelsea**\
 `The France youth international, 21, has been granted permission to travel for medical tests and complete a permanent move to Turf Moor.`\
 https://nytimes.com/athletic/6399614/2025/08/04/burnley-transfers-ugochukwu-chelsea/

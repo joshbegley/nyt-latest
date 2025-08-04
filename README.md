@@ -1,3 +1,7 @@
+**Everton in talks over transfer for Chelsea's Dewsbury-Hall**\
+`Chelsea will only consider a permanent sale and will demand a fee of around £30million for the former Leicester midfielder.`\
+https://nytimes.com/athletic/6077722/2025/08/04/kiernan-dewsbury-hall-chelsea-transfer/
+
 **Tesla Awards ‘Good Faith’ Shares to Musk Worth $29 Billion**\
 `The “interim” package announced on Monday was intended to help retain Elon Musk, whose previous pay plan was invalidated by a judge. The car maker’s chief has hinted that he needed a larger stake in the company.`\
 https://nytimes.com/2025/08/04/business/tesla-elon-musk-29-billion.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6534141/2025/08/04/buffalo-bills-dull-training-camp
 **Twins' Griffin Jax requested a trade, and what I learned about the club's fire sale, Part 1**\
 `Initially, the Twins didn’t know if they’d find the right return for their elite setup man because of a slow-developing market.`\
 https://nytimes.com/athletic/6533904/2025/08/04/minnesota-twins-griffin-jax-trade-request/
-
-**Why Jordan Smith, the No. 2 player in 2026, isn't the typical 5-star guard**\
-`Smith is "the Class of 2026 player college coaches would most like to coach, a winner" in a recent poll of 35 coaches at Peach Jam. `\
-https://nytimes.com/athletic/6530461/2025/08/04/jordan-smith-college-basketball-2026/
 

@@ -1,3 +1,11 @@
+**Tesla Awards ‘Good Faith’ Shares to Musk Worth $29 Billion**\
+`The “interim” package announced on Monday was intended to help retain Elon Musk, whose previous pay plan was invalidated by a judge. The car maker’s chief has hinted that he needed a larger stake in the company.`\
+https://nytimes.com/2025/08/04/business/tesla-elon-musk-29-billion.html
+
+**TAFC: Son's emotional goodbye; Isak, Sesko and a striker logjam; Puskas award contender**\
+`Today in TAFC: Son's emotional farewell, the Premier League striker logjam involving Isak and Sesko, a Puskas contender from MLS.`\
+https://nytimes.com/athletic/6534331/2025/08/04/sons-emotional-goodbye-isak-sesko-and-a-striker-logjam-puskas-award-contender/
+
 **Burnley reach agreement over Ugochukwu transfer from Chelsea**\
 `The France youth international, 21, has been granted permission to travel for medical tests and complete a permanent move to Turf Moor.`\
 https://nytimes.com/athletic/6399614/2025/08/04/burnley-transfers-ugochukwu-chelsea/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6533904/2025/08/04/minnesota-twins-griffin-jax-trad
 **Why Jordan Smith, the No. 2 player in 2026, isn't the typical 5-star guard**\
 `Smith is "the Class of 2026 player college coaches would most like to coach, a winner" in a recent poll of 35 coaches at Peach Jam. `\
 https://nytimes.com/athletic/6530461/2025/08/04/jordan-smith-college-basketball-2026/
-
-**Electric Air Taxi Company Plans to Acquire a Helicopter Business**\
-`Joby Aviation, which is developing electric aircraft, will acquire the passenger business of Blade, a New York helicopter operator, for $125 million.`\
-https://nytimes.com/2025/08/04/business/joby-blade-electric-air-taxi.html
-
-**Burnley in talks over move for Newcastle goalkeeper Dubravka**\
-`Newcastle have completed the loan signing of Aaron Ramsdale this window, while Burnley lost James Trafford to Manchester City.`\
-https://nytimes.com/athletic/6522328/2025/08/04/martin-dubravka-burnley-newcastle-transfers/
 
