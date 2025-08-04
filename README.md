@@ -1,3 +1,7 @@
+**Padres’ Mason Miller blockbuster reflects soaring cost of MLB bullpen arms race**\
+`As teams loaded up for another October with an expanded postseason, relievers ruled the deadline like never before. `\
+https://nytimes.com/athletic/6532953/2025/08/03/padres-mason-miller-bullpen-arms-race/
+
 **Carson Whisenhunt earns his first win as Giants take a road series from Mets**\
 `Coming off their first 0-6 homestand since 1896, the Giants took two of three on the road from the NL East leaders.`\
 https://nytimes.com/athletic/6534035/2025/08/03/giants-carson-whisenhunt-win-mets/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6533791/2025/08/03/ny-yankees-urgency-priority/
 **10-Minute Challenge: Bosch’s ‘Garden of Earthly Delights’**\
 `We’d like you to look at one piece of art for 10 minutes, uninterrupted.`\
 https://nytimes.com/interactive/2025/08/03/upshot/garden-of-earthly-delights.html
-
-**The Briefing: Manchester United 2 Everton 2 - Mbeumo's debut, defensive errors and Berrada talks transfers**\
-`Laurie Whitwell breaks down the main talking points from Manchester United's 2-2 draw with Everton in Atlanta, Georgia`\
-https://nytimes.com/athletic/6531817/2025/08/03/manchester-united-2-everton-2-mbeumo-mount-transfers-berrada/
 
