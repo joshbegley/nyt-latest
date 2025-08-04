@@ -1,3 +1,11 @@
+**Botafogo reach agreement to sign Bournemouth goalkeeper Neto**\
+`The 36-year-old Brazilian goalkeeper is scheduled to fly to Rio de Janeiro on Monday night and undergo a medical`\
+https://nytimes.com/athletic/6535337/2025/08/04/bournemouth-neto-transfer-news-botafogo/
+
+**Amazon Shifts Its Podcast Strategy, Eliminating 100 Wondery Jobs**\
+`The tech giant is leaning more into video and the creator world.`\
+https://nytimes.com/2025/08/04/business/media/amazon-wondery-podcasts-layoffs.html
+
 **Isaac Paredes opts for rehab over surgery; return this season still unlikely**\
 `Paredes has been out since July 19. The Astros added Carlos Correa and Ramón Urías at the deadline in anticipation of a prolonged absence.`\
 https://nytimes.com/athletic/6535350/2025/08/04/isaac-paredes-astros-hamstring-injury/
@@ -31,12 +39,4 @@ https://nytimes.com/athletic/6535477/2025/08/04/submit-a-question-for-stewart-ma
 **Emma Raducanu hires Francis Roig, longtime Rafael Nadal coach, through 2025**\
 `Roig, who was on Nadal's team for all 22 of his Grand Slam titles, is Raducanu's first formal coach since January this year.`\
 https://nytimes.com/athletic/6535509/2025/08/04/tennis-emma-raducanu-coach-francis-roig-rafael-nadal/
-
-**Russia Says It Will Stop Abiding by Missile Treaty**\
-`The United States has accused Russia of violating the pact, which expired in 2019, for more than a decade.`\
-https://nytimes.com/2025/08/04/world/europe/russia-missile-treaty.html
-
-**Commanders' first depth chart: Competition abounds; receiving corps needs more**\
-`The Commanders released their first unofficial depth chart on Monday, and there are some notable takeaways.`\
-https://nytimes.com/athletic/6535357/2025/08/04/commanders-depth-chart-preseason/
 
