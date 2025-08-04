@@ -1,3 +1,11 @@
+**Isaac Paredes opts for rehab over surgery; return this season still unlikely**\
+`Paredes has been out since July 19. The Astros added Carlos Correa and Ramón Urías at the deadline in anticipation of a prolonged absence.`\
+https://nytimes.com/athletic/6535350/2025/08/04/isaac-paredes-astros-hamstring-injury/
+
+**Commanders' first depth chart: Competition abounds; receiving corps needs more**\
+`The Commanders released their first unofficial depth chart on Monday, and there are some notable takeaways.`\
+https://nytimes.com/athletic/6535357/2025/08/04/commanders-depth-chart-preseason/
+
 **Texas Democrats Fled the State to Fight Redistricting**\
 `Also, Tesla offered Musk nearly $30 billion in stock. Here’s the latest at the end of Monday.`\
 https://nytimes.com/2025/08/04/briefing/texas-democrats-fled-the-state-to-fight-redistricting.html

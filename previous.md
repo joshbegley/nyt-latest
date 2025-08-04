@@ -1,3 +1,7 @@
+**Isaac Paredes opts for rehab over surgery; return this season still unlikely**\
+`Paredes has been out since July 19. The Astros added Carlos Correa and Ramón Urías at the deadline in anticipation of a prolonged absence.`\
+https://nytimes.com/athletic/6535350/2025/08/04/isaac-paredes-astros-hamstring-injury/
+
 **Texas Democrats Fled the State to Fight Redistricting**\
 `Also, Tesla offered Musk nearly $30 billion in stock. Here’s the latest at the end of Monday.`\
 https://nytimes.com/2025/08/04/briefing/texas-democrats-fled-the-state-to-fight-redistricting.html
@@ -32,11 +36,7 @@ https://nytimes.com/athletic/6535509/2025/08/04/tennis-emma-raducanu-coach-franc
 `The United States has accused Russia of violating the pact, which expired in 2019, for more than a decade.`\
 https://nytimes.com/2025/08/04/world/europe/russia-missile-treaty.html
 
-**What we can learn from the Commanders' first depth chart**\
+**Commanders' first depth chart: Competition abounds; receiving corps needs more**\
 `The Commanders released their first unofficial depth chart on Monday, and there are some notable takeaways.`\
 https://nytimes.com/athletic/6535357/2025/08/04/commanders-depth-chart-preseason/
-
-**Tuesday Briefing: Trump’s Tariff Leverage**\
-`Also, a hit musical at the Edinburgh Festival Fringe.`\
-https://nytimes.com/2025/08/04/briefing/trump-tariffs-elon-musk-yemen-capsize.html
 

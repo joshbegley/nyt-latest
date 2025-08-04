@@ -11,11 +11,11 @@ https://nytimes.com/2025/08/04/briefing/texas-democrats-fled-the-state-to-fight-
 https://nytimes.com/2025/08/04/health/bird-flu-airborne.html
 
 **Sean Combs Is Denied Bail, and Will Remain Jailed Until Sentencing**\
-`The music mogul, who was convicted on two counts of transportation to engage in prostitution in July, had asked to be released before his sentencing on Oct. 3.`\
+`The music mogul, who was convicted in July of two counts of transportation to engage in prostitution, had asked to be released before his sentencing on Oct. 3.`\
 https://nytimes.com/2025/08/04/arts/music/sean-combs-diddy-bail-denied.html
 
 **Broncos' Riley Moss eager for tests that come with playing opposite of 'DPOY'**\
-`Broncos coach Sean Payton said quarterback Bo Nix is "light years" ahead of where he was last year in terms of conveying messages in huddle.`\
+`Broncos coach Sean Payton said quarterback Bo Nix is "light-years" ahead of where he was last year in terms of conveying messages in huddle.`\
 https://nytimes.com/athletic/6535302/2025/08/04/broncos-riley-moss-cornerback-pat-surtain/
 
 **7 Adults and 3-Year-Old Are Kidnapped From Haiti Orphanage**\
