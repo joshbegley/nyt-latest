@@ -1,3 +1,11 @@
+**Sean Combs Is Denied Bail, and Will Remain Jailed Until Sentencing**\
+`The music mogul, who was convicted on two counts of transportation to engage in prostitution in July, had asked to be released before his sentencing on Oct. 3.`\
+https://nytimes.com/2025/08/04/arts/music/sean-combs-diddy-bail-denied.html
+
+**Broncos' Riley Moss eager for tests that come with playing opposite of 'DPOY'**\
+`Broncos coach Sean Payton said quarterback Bo Nix is "light years" ahead of where he was last year in terms of conveying messages in huddle.`\
+https://nytimes.com/athletic/6535302/2025/08/04/broncos-riley-moss-cornerback-pat-surtain/
+
 **7 Adults and 3-Year-Old Are Kidnapped From Haiti Orphanage**\
 `The abductees, including an Irish missionary who directs care for children with special needs, were taken from an orphanage serving about 270 children.`\
 https://nytimes.com/2025/08/04/world/americas/haiti-orphanage-kidnapping.html
@@ -31,12 +39,4 @@ https://nytimes.com/2025/08/04/opinion/columnists/friedman-trump-labor-firing.ht
 **RB Leipzig receive improved offer from Newcastle for Sesko**\
 `Newcastle are in a strong position as things stand after a day of positive talks held by their co-owner Jamie Reuben with Leipzig and Sesko.`\
 https://nytimes.com/athletic/6531675/2025/08/04/newcastle-sesko-leipzig-transfer-news-update/
-
-**Browns QB Shedeur Sanders focuses on his job in wake of dad's cancer fight**\
-`Sanders said he was "thankful" to be back at practice and healthy enough to participate Monday after experiencing arm soreness on Saturday.`\
-https://nytimes.com/athletic/6535440/2025/08/04/browns-shedeur-sanders-deion-sanders-cancer/
-
-**15 Ways to Break Free of Your Phone**\
-`We asked screen-time experts how to avoid the relentless pull of our devices.`\
-https://nytimes.com/interactive/2025/08/04/well/phone-screen-time-scrolling.html
 

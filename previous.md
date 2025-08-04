@@ -1,3 +1,13 @@
+**7 Adults and 3-Year-Old Are Kidnapped From Haiti Orphanage**\
+`The abductees, including an Irish missionary who directs care for children with special needs, were taken from an orphanage serving about 270 children.`\
+https://nytimes.com/2025/08/04/world/americas/haiti-orphanage-kidnapping.html
+
+**Submit a question for Stewart Mandel's College Football Mailbag**\
+`<p>What&#8217;s on your mind this week?</p>
+<p>Please include your city.</p>
+`\
+https://nytimes.com/athletic/6535477/2025/08/04/submit-a-question-for-stewart-mandels-college-football-mailbag-309/
+
 **Emma Raducanu hires Francis Roig, longtime Rafael Nadal coach, through 2025**\
 `Roig, who was on Nadal's team for all 22 of his Grand Slam titles, is Raducanu's first formal coach since January this year.`\
 https://nytimes.com/athletic/6535509/2025/08/04/tennis-emma-raducanu-coach-francis-roig-rafael-nadal/
@@ -29,12 +39,4 @@ https://nytimes.com/athletic/6535440/2025/08/04/browns-shedeur-sanders-deion-san
 **15 Ways to Break Free of Your Phone**\
 `We asked screen-time experts how to avoid the relentless pull of our devices.`\
 https://nytimes.com/interactive/2025/08/04/well/phone-screen-time-scrolling.html
-
-**What we learned from Liverpool's games against Athletic Club: Ngumoha, Nunez, Wirtz and more**\
-`Andy Jones and Gregg Evans analyse the key talking points from Liverpool's double-header against Athletic Club`\
-https://nytimes.com/athletic/6535110/2025/08/04/liverpool-athletic-club-nunez-ngumoha/
-
-**A Zoo in Denmark Wants to Feed Your Pets to Its Predators**\
-`A Danish zoo is asking owners of companion animals nearing life’s end to instead donate them as food for captive lynxes, lions and other carnivores.`\
-https://nytimes.com/2025/08/04/science/zoos-denmark-food-pets.html
 

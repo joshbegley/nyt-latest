@@ -1,3 +1,13 @@
+**7 Adults and 3-Year-Old Are Kidnapped From Haiti Orphanage**\
+`The abductees, including an Irish missionary who directs care for children with special needs, were taken from an orphanage serving about 270 children.`\
+https://nytimes.com/2025/08/04/world/americas/haiti-orphanage-kidnapping.html
+
+**Submit a question for Stewart Mandel's College Football Mailbag**\
+`<p>What&#8217;s on your mind this week?</p>
+<p>Please include your city.</p>
+`\
+https://nytimes.com/athletic/6535477/2025/08/04/submit-a-question-for-stewart-mandels-college-football-mailbag-309/
+
 **Emma Raducanu hires Francis Roig, longtime Rafael Nadal coach, through 2025**\
 `Roig, who was on Nadal's team for all 22 of his Grand Slam titles, is Raducanu's first formal coach since January this year.`\
 https://nytimes.com/athletic/6535509/2025/08/04/tennis-emma-raducanu-coach-francis-roig-rafael-nadal/
