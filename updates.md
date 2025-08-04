@@ -1,3 +1,7 @@
+**Burnley reach agreement over Ugochukwu transfer from Chelsea**\
+`The France youth international, 21, has been granted permission to travel for medical tests and complete a permanent move to Turf Moor.`\
+https://nytimes.com/athletic/6399614/2025/08/04/burnley-transfers-ugochukwu-chelsea/
+
 **System Upgrade**\
 `We explore the new vibe in Silicon Valley.`\
 https://nytimes.com/2025/08/04/briefing/silicon-valley-culture.html
