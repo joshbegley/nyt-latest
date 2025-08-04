@@ -1,3 +1,7 @@
+**A Love Story Cut Short Two Weeks After ‘I Do’**\
+`David Roach, the singer for the rock band Junkyard, died not long after marrying Jennifer Michael at the Buffett Cancer Center, where he was being treated for advanced metastatic cancer.`\
+https://nytimes.com/2025/08/04/style/david-roach-wedding-death-junkyard.html
+
 **House Democrats Renew Effort Calling for Palestinian Statehood**\
 `More than a dozen progressive lawmakers had signed onto a draft letter, but a lack of Republican support meant it was unlikely to affect policy decisions by the Trump administration.`\
 https://nytimes.com/2025/08/04/us/politics/house-democrats-palestinian-statehood.html
@@ -10,8 +14,8 @@ https://nytimes.com/2025/08/04/business/clash-of-trades-manufacturing.html
 `The conversation about whether to expand the tournaments to 72 or 76 teams has been ongoing and will continue into the fall.`\
 https://nytimes.com/athletic/6535176/2025/08/04/ncaa-tournament-no-expansion-2026/
 
-**FEMA will deny funding grants to states and cities that boycott Israeli firms.**\
-`By Maxine Joselow`\
+**FEMA to Deny Grants to States and Cities That Boycott Israeli Companies**\
+`The move by the Trump administration may be largely symbolic.`\
 https://nytimes.com/2025/08/04/us/politics/fema-will-deny-disaster-funding-to-states-and-cities-that-boycott-israeli-firms-under-new-grant-rules.html
 
 **With Texans in Tow, Hochul Vows to Redraw New York’s House Maps**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6534848/2025/08/04/micah-parsons-jerry-jones-dez-br
 **Fantasy baseball cheat sheet: Stream Soriano, add Vesia and other THE BAT X insights**\
 `The Athletic and THE BAT X have teamed up to bring readers a fantasy baseball cheat sheet to begin the week. `\
 https://nytimes.com/athletic/6534595/2025/08/04/fantasy-baseball-the-bat-x-soriano-vesia/
-
-**A Dozen Off Broadway Shows to Energize Your August**\
-`Elizabeth McGovern channels Ava Gardner, a starry “Twelfth Night” reopens the Delacorte and Luke Newton of “Bridgerton” plays Alexander McQueen.`\
-https://nytimes.com/2025/08/04/theater/off-broadway-shows-nyc-august.html
 
