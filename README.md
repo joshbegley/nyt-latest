@@ -1,3 +1,7 @@
+**7 Adults and 3-Year-Old Are Kidnapped From Haiti Orphanage**\
+`The abductees, including an Irish missionary who directs care for children with special needs, were taken from an orphanage serving about 270 children.`\
+https://nytimes.com/2025/08/04/world/americas/haiti-orphanage-kidnapping.html
+
 **Submit a question for Stewart Mandel's College Football Mailbag**\
 `<p>What&#8217;s on your mind this week?</p>
 <p>Please include your city.</p>
@@ -35,8 +39,4 @@ https://nytimes.com/athletic/6535440/2025/08/04/browns-shedeur-sanders-deion-san
 **15 Ways to Break Free of Your Phone**\
 `We asked screen-time experts how to avoid the relentless pull of our devices.`\
 https://nytimes.com/interactive/2025/08/04/well/phone-screen-time-scrolling.html
-
-**What we learned from Liverpool's games against Athletic Club: Ngumoha, Nunez, Wirtz and more**\
-`Andy Jones and Gregg Evans analyse the key talking points from Liverpool's double-header against Athletic Club`\
-https://nytimes.com/athletic/6535110/2025/08/04/liverpool-athletic-club-nunez-ngumoha/
 
