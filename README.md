@@ -1,3 +1,7 @@
+**At Edinburgh Fringe, the Streets Are Alive**\
+`Thousands of performers were hawking their shows on the first weekend of the Scottish arts extravaganza.`\
+https://nytimes.com/2025/08/04/theater/edinburgh-fringe-photos.html
+
 **The 5 most pressing issues awaiting interim NFLPA executive director David White**\
 `White takes over on an interim basis after a summer of turmoil for the NFLPA and must quickly gain the trust of the player body. `\
 https://nytimes.com/athletic/6534218/2025/08/04/nflpa-david-white-pressing-issues/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6533286/2025/08/04/thomas-partey-villarreal-arsenal
 **Texas Democrats Leave State to Block Vote on Redrawn Political Map**\
 `The departure was a last-ditch attempt to stop Republicans from adopting an aggressively redrawn congressional map, which would flip five Democratic congressional districts to favor Republicans.`\
 https://nytimes.com/video/us/politics/100000010321830/texas-democrats-leave-state-to-block-vote-on-redrawn-political-map.html
-
-**49ers Q&A: Chris Foerster talks Ben Bartch, Connor Colby, swing tackle situation**\
-`Who's winning the competition at left guard? Why is Spencer Burford only getting snaps at left tackle? Foerster addresses it all.`\
-https://nytimes.com/athletic/6533753/2025/08/04/49ers-offensive-line-chris-foerster/
 
