@@ -1,3 +1,11 @@
+**Monday Briefing: An ‘All or Nothing’ Gaza Deal**\
+`Also, Catholic influencers.`\
+https://nytimes.com/2025/08/04/briefing/gaza-trump-tariffs-lesotho-putin-russia-censorship.html
+
+**Villa's summer of uncertainty is not ideal preparation for a new season**\
+`The Emery era has tended to be adept in managing turbulence — how his side start the season proper will be another test of such resolve`\
+https://nytimes.com/athletic/6529677/2025/08/04/aston-villas-summer-of-uncertainty-is-not-ideal-preparation-for-a-new-premier-league-season/
+
 **Fantasy Premier League: The best budget enablers for the 2025-26 season**\
 `Picking cheap assets that play plenty of minutes is one of the most crucial elements of building an FPL squad - so who fits the bill?`\
 https://nytimes.com/athletic/6517226/2025/08/04/fantasy-premier-league-budget-enablers/
