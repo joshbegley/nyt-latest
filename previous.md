@@ -1,3 +1,11 @@
+**Man Who Killed 4 at Arkansas Grocery Store Gets Life Without Parole**\
+`The man, Travis Eugene Posey, also injured 11 people in the shooting at the Mad Butcher in Fordyce, Ark., in June 2024. He received four consecutive life terms.`\
+https://nytimes.com/2025/08/04/us/travis-posey-sentenced-arkansas-grocery-store-shooting.html
+
+**Jaguars' initial depth chart lists Travis Hunter as starting WR, second-team CB**\
+`Hunter has spent more time early in training camp at wide receiver as he works to get in sync with quarterback Trevor Lawrence.`\
+https://nytimes.com/athletic/6535540/2025/08/04/travis-hunter-jaguars-depth-chart/
+
 **Brazil’s Supreme Court Places Bolsonaro Under House Arrest**\
 `Former President Jair Bolsonaro, whose case has partly motivated President Trump’s tariffs on Brazil, was ordered to remain under house arrest as he awaited trial.`\
 https://nytimes.com/2025/08/04/world/americas/brazil-bolsonaro-house-arrest.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/08/04/health/bird-flu-airborne.html
 **Sean Combs Is Denied Bail, and Will Remain Jailed Until Sentencing**\
 `The music mogul, who was convicted in July of two counts of transportation to engage in prostitution, had asked to be released before his sentencing on Oct. 3.`\
 https://nytimes.com/2025/08/04/arts/music/sean-combs-diddy-bail-denied.html
-
-**Broncos' Riley Moss eager for tests that come with playing opposite of 'DPOY'**\
-`Broncos coach Sean Payton said quarterback Bo Nix is "light-years" ahead of where he was last year in terms of conveying messages in huddle.`\
-https://nytimes.com/athletic/6535302/2025/08/04/broncos-riley-moss-cornerback-pat-surtain/
-
-**7 Adults and 3-Year-Old Are Kidnapped From Haiti Orphanage**\
-`The abductees, including an Irish missionary who directs care for children with special needs, were taken from an orphanage serving about 270 children.`\
-https://nytimes.com/2025/08/04/world/americas/haiti-orphanage-kidnapping.html
 

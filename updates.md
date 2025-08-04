@@ -1,3 +1,11 @@
+**Man Who Killed 4 at Arkansas Grocery Store Gets Life Without Parole**\
+`The man, Travis Eugene Posey, also injured 11 people in the shooting at the Mad Butcher in Fordyce, Ark., in June 2024. He received four consecutive life terms.`\
+https://nytimes.com/2025/08/04/us/travis-posey-sentenced-arkansas-grocery-store-shooting.html
+
+**Jaguars' initial depth chart lists Travis Hunter as starting WR, second-team CB**\
+`Hunter has spent more time early in training camp at wide receiver as he works to get in sync with quarterback Trevor Lawrence.`\
+https://nytimes.com/athletic/6535540/2025/08/04/travis-hunter-jaguars-depth-chart/
+
 **Brazil’s Supreme Court Places Bolsonaro Under House Arrest**\
 `Former President Jair Bolsonaro, whose case has partly motivated President Trump’s tariffs on Brazil, was ordered to remain under house arrest as he awaited trial.`\
 https://nytimes.com/2025/08/04/world/americas/brazil-bolsonaro-house-arrest.html
