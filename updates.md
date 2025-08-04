@@ -1,3 +1,7 @@
+**Everton in talks over transfer for Chelsea's Dewsbury-Hall**\
+`Chelsea will only consider a permanent sale and will demand a fee of around £30million for the former Leicester midfielder.`\
+https://nytimes.com/athletic/6077722/2025/08/04/kiernan-dewsbury-hall-chelsea-transfer/
+
 **Tesla Awards ‘Good Faith’ Shares to Musk Worth $29 Billion**\
 `The “interim” package announced on Monday was intended to help retain Elon Musk, whose previous pay plan was invalidated by a judge. The car maker’s chief has hinted that he needed a larger stake in the company.`\
 https://nytimes.com/2025/08/04/business/tesla-elon-musk-29-billion.html

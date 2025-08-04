@@ -1,3 +1,11 @@
+**Real Sociedad set to complete €4m Guedes transfer from Wolves**\
+`Guedes signed a five-year contract at Molineux in 2022 after a £27.5million transfer from Valencia.`\
+https://nytimes.com/athletic/6533250/2025/08/04/wolves-transfers-guedes-real-sociedad/
+
+**U.S. Envoy Is Expected to Visit Russia as Trump’s Ukraine Deadline Nears**\
+`President Trump has given an ultimatum to President Vladimir V. Putin of Russia to end the war in Ukraine or face U.S. sanctions.`\
+https://nytimes.com/2025/08/04/us/politics/witkoff-putin-russia-trump-ukraine.html
+
 **Everton in talks over transfer for Chelsea's Dewsbury-Hall**\
 `Chelsea will only consider a permanent sale and will demand a fee of around £30million for the former Leicester midfielder.`\
 https://nytimes.com/athletic/6077722/2025/08/04/kiernan-dewsbury-hall-chelsea-transfer/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6528731/2025/08/04/49ers-ricky-pearsall-fantasy-foo
 **This Week in Mets: Resetting a wild playoff race in the National League**\
 `With the trade deadline in the past, it’s time to refocus on what's happening on the field.`\
 https://nytimes.com/athletic/6534111/2025/08/04/mets-resetting-playoff-race-national-league/
-
-**Buffalo's 'dull' training camp is exactly what the Bills want**\
-`The Bills' most challenging issues are relatively boring compared with other NFL teams dealing with major drama and distractions. `\
-https://nytimes.com/athletic/6534141/2025/08/04/buffalo-bills-dull-training-camp-james-cook/
-
-**Twins' Griffin Jax requested a trade, and what I learned about the club's fire sale, Part 1**\
-`Initially, the Twins didn’t know if they’d find the right return for their elite setup man because of a slow-developing market.`\
-https://nytimes.com/athletic/6533904/2025/08/04/minnesota-twins-griffin-jax-trade-request/
 
