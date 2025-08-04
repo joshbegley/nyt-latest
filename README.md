@@ -1,3 +1,7 @@
+**Fantasy baseball cheat sheet: Stream Soriano, add Vesia and other THE BAT X insights**\
+`The Athletic and THE BAT X have teamed up to bring readers a fantasy baseball cheat sheet to begin the week. `\
+https://nytimes.com/athletic/6534595/2025/08/04/fantasy-baseball-the-bat-x-soriano-vesia/
+
 **A Dozen Off Broadway Shows to Energize Your August**\
 `Elizabeth McGovern channels Ava Gardner, a starry “Twelfth Night” reopens the Delacorte and Luke Newton of “Bridgerton” plays Alexander McQueen.`\
 https://nytimes.com/2025/08/04/theater/off-broadway-shows-nyc-august.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/04/weather/wildfire-smoke-air-quality-toronto-new-yo
 **Callum Wilson to West Ham: Everything you need to know - TLDR**\
 `West Ham have signed the striker on a free transfer after he left Newcastle - here, we break down the deal`\
 https://nytimes.com/athletic/6534791/2025/08/04/callum-wilson-west-ham-newcastle/
-
-**The New York Post Announces a California Newspaper**\
-`The long-running New York City tabloid will launch a new version with headquarters in Los Angeles in early 2026.`\
-https://nytimes.com/2025/08/04/business/media/new-york-post-california.html
 
