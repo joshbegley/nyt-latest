@@ -1,3 +1,11 @@
+**Unwanted Facts: The Labor Dept. Firing**\
+`Readers respond to President Trump’s firing of the commissioner of the Bureau of Labor Statistics, Erika McEntarfer. Also: Family rifts over politics.`\
+https://nytimes.com/2025/08/04/opinion/trump-labor-dept-firing.html
+
+**Our President Is Economically Illiterate**\
+`The latest round of tariffs offers further evidence that Trump doesn’t understand how economies work.`\
+https://nytimes.com/2025/08/04/opinion/donald-trump-tariff-powell-economics.html
+
 **How an NFL contract dispute embroiled Jay-Z, Dez Bryant, and Nicki Minaj**\
 `The Micah Parsons contract dispute led to a wild back-and-forth involving a host of bold-faced names. `\
 https://nytimes.com/athletic/6534848/2025/08/04/micah-parsons-jerry-jones-dez-bryant-jay-z-nicki-minaj/
@@ -22,19 +30,11 @@ https://nytimes.com/athletic/6535045/2025/08/04/tennis-novak-djokovic-cincinnati
 `Le Bris was appointed in late June 2024 and guided Sunderland back to the Premier League via the Championship play-offs last term.`\
 https://nytimes.com/athletic/6534974/2025/08/04/sunderland-regis-le-bris-new-contract/
 
-**India signals no intention of pulling back on Russian oil despite U.S. pressure.**\
+**India says additional U.S. tariffs over Russian oil purchases are ‘unjustified and unreasonable.’**\
 `By Mujib Mashal`\
 https://nytimes.com/live/2025/08/04/us/trump-news/india-signals-no-intention-of-pulling-back-on-russian-oil-despite-us-pressure
 
 **Submit your Notre Dame football questions for Pete Sampson’s mailbag**\
 `What’s on your mind as Notre Dame moves closer to Week 1?`\
 https://nytimes.com/athletic/6535020/2025/08/04/submit-your-notre-dame-football-questions-for-pete-sampsons-mailbag-3/
-
-**Russian Nuclear Submarine Base Was Damaged in Quake, Satellite Images Show**\
-`The Rybachiy base, which hosts nuclear-powered submarines from Russia’s Pacific Fleet, lies in a cove about 80 miles from the powerful earthquake that struck near the Kamchatka peninsula last week.`\
-https://nytimes.com/2025/08/04/world/europe/russia-earthquake-nuclear-submarine-damage.html
-
-**Smoke Causes Poor Air Quality Across Canada, the Great Lakes and Northeastern U.S.**\
-`Wildfires burning in Canada were causing unhealthy air quality across parts of North America on Monday.`\
-https://nytimes.com/2025/08/04/weather/wildfire-smoke-air-quality-toronto-new-york.html
 

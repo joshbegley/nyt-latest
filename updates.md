@@ -1,3 +1,15 @@
+**Unwanted Facts: The Labor Dept. Firing**\
+`Readers respond to President Trump’s firing of the commissioner of the Bureau of Labor Statistics, Erika McEntarfer. Also: Family rifts over politics.`\
+https://nytimes.com/2025/08/04/opinion/trump-labor-dept-firing.html
+
+**Our President Is Economically Illiterate**\
+`The latest round of tariffs offers further evidence that Trump doesn’t understand how economies work.`\
+https://nytimes.com/2025/08/04/opinion/donald-trump-tariff-powell-economics.html
+
+**India says additional U.S. tariffs over Russian oil purchases are ‘unjustified and unreasonable.’**\
+`By Mujib Mashal`\
+https://nytimes.com/live/2025/08/04/us/trump-news/india-signals-no-intention-of-pulling-back-on-russian-oil-despite-us-pressure
+
 **How an NFL contract dispute embroiled Jay-Z, Dez Bryant, and Nicki Minaj**\
 `The Micah Parsons contract dispute led to a wild back-and-forth involving a host of bold-faced names. `\
 https://nytimes.com/athletic/6534848/2025/08/04/micah-parsons-jerry-jones-dez-bryant-jay-z-nicki-minaj/
