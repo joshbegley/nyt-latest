@@ -1,3 +1,7 @@
+**gws-mormon-tabernacle-choir**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/mormon-tabernacle-choir
+
 **The Texas Redistricting Fight, Explained**\
 `Here is why Democrats in the Texas House left the state, why Republicans in the Legislature want to redraw political maps and why other states are involved.`\
 https://nytimes.com/2025/08/04/us/texas-redistricting.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/04/style/us-open-matchmaker-dating-show.html
 **Scientists Finally Identify Killer Microbe Behind ‘Terrifying’ Sea Star Disease**\
 `A mysterious epidemic has wiped out billions of sea stars in recent years. A new study finally identifies the bacterium responsible.`\
 https://nytimes.com/2025/08/04/science/sea-stars-disease-vibrio-pectenicida.html
-
-**Can You Match These Quotes to Their Classic Picture Books?**\
-`Lines from popular storybooks can stay with you long after you’ve read them. See how many you recognize in this short quiz.`\
-https://nytimes.com/interactive/2025/08/04/books/review/picture-book-quotes.html
 
