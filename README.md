@@ -1,3 +1,15 @@
+**A Breaking Musical Is a Fringe Hit. Just Don’t Mention Raygun.**\
+`The Australian breaker tried to shut down a musical about her. Now, it’s attracting dancing crowds at the Edinburgh Festival Fringe.`\
+https://nytimes.com/2025/08/04/arts/dance/raygun-musical-edinburgh-fringe.html
+
+**‘Game, Set, Matchmaker’? The U.S. Open Gets Into the Dating Game.**\
+`The series is scheduled to stream on YouTube during this year’s tournament.`\
+https://nytimes.com/2025/08/04/style/us-open-matchmaker-dating-show.html
+
+**Kemp Ally Enters Senate Race Seeking to Challenge Jon Ossoff in Georgia**\
+`Derek Dooley, a former football coach, cast himself as an outsider candidate as the Republican primary field for a marquee midterm contest takes shape.`\
+https://nytimes.com/2025/08/04/us/politics/derek-dooley-jon-ossoff-georgia-senate.html
+
 **Speedway Classic, despite logistical issues, broke attendance mark that stood since '54**\
 `The previous MLB milestone for most regular-season game tickets sold was from a Yankees visit to Cleveland`\
 https://nytimes.com/athletic/6534672/2025/08/04/speedway-classic-attendance-record-mlb/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6083381/2025/08/04/ruben-dias-manchester-city-contr
 **Ranking the 10 greatest goals of Sidney Crosby's career**\
 `In a career full of awe-inspiring goals, these are Crosby's 10 finest.`\
 https://nytimes.com/athletic/6523413/2025/08/04/penguins-sidney-crosby-best-goals-nhl/
-
-**The Windup: Deadline fallout colors wild MLB weekend**\
-`Welcome to The Windup, The Athletic's MLB newsletter.`\
-https://nytimes.com/athletic/6534257/2025/08/04/yankees-marlins-trade-deadline-the-windup/
-
-**Lyft Will Use Chinese Driverless Cars in Britain and Germany**\
-`Lyft and Baidu plan to start service early next year, joining Uber and Momenta in using electric cars from China, which are the least expensive even with tariffs.`\
-https://nytimes.com/2025/08/04/business/lyft-baidu-driverless-cars-europe.html
-
-**Fire Breaks Out Beneath PATH Train in Jersey City**\
-`Thirteen people were treated for smoke inhalation after the fire ignited early Monday morning. Service was suspended on two lines.`\
-https://nytimes.com/2025/08/04/nyregion/nj-path-train-fire.html
 
