@@ -1,3 +1,19 @@
+**49ers Q&A: Chris Foerster talks Ben Bartch, Connor Colby, swing tackle situation**\
+`Who's winning the competition at left guard? Why is Spencer Burford only getting snaps at left tackle? Foerster addresses it all.`\
+https://nytimes.com/athletic/6533753/2025/08/04/49ers-offensive-line-chris-foerster/
+
+**Pick your all-time Wild team ahead of the franchise's 25th anniversary season**\
+`Who's on your all-time Wild team? Pick the top four players at each forward slot, eight defensemen and four goalies here.`\
+https://nytimes.com/athletic/6530587/2025/08/04/wild-all-time-team-25th-anniversary/
+
+**Senators offseason mailbag: Submit your questions for Julian McKenzie**\
+`Got a question about the Ottawa Senators heading into the 2025-26 season? Submit it here.`\
+https://nytimes.com/athletic/6520753/2025/08/04/ottawa-senators-mailbag-nhl-offseason-julian-mckenzie/
+
+**Trump Administration Live Updates: President Says He’ll Name New Labor Statistics Official Within Days**\
+``\
+https://nytimes.com/live/2025/08/04/us/trump-news
+
 **Nancy Mace Announces Run for Governor of South Carolina**\
 `The Charleston-area congresswoman was once a moderate Republican, but has more recently presented herself as a loyal supporter of President Trump.`\
 https://nytimes.com/2025/08/04/us/politics/nancy-mace-south-carolina-governor.html
