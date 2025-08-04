@@ -1,3 +1,7 @@
+**Burnley in talks over move for Newcastle goalkeeper Dubravka**\
+`Newcastle have completed the loan signing of Aaron Ramsdale this window, while Burnley lost James Trafford to Manchester City.`\
+https://nytimes.com/athletic/6522328/2025/08/04/martin-dubravka-burnley-newcastle-transfers/
+
 **Ranking Twins' trade deadline pickups: 13 new players, from top prospects to toss ins**\
 `Assessing what the Twins' fire sale got back in trades for Carlos Correa, Jhoan Duran, Griffin Jax, Louis Varland, Willi Castro and more.`\
 https://nytimes.com/athletic/6530101/2025/08/04/twins-trade-deadline-player-rankings/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6531820/2025/08/04/tennis-naomi-osaka-new-coach-can
 **Vikings training camp takeaways: J.J. McCarthy's recent performance and more observations**\
 `The young quarterback has had his ups and downs in training camp, but coach Kevin O'Connell seems more excited than concerned.`\
 https://nytimes.com/athletic/6533483/2025/08/04/vikings-training-camp-jj-mccarthy/
-
-**Cowboys standouts: 10 players making strong impressions through first half of camp**\
-`Some of the Cowboys' offensive playmakers — CeeDee Lamb, George Pickens, KaVontae Turpin and rookie Jaydon Blue — look ready for Week 1.`\
-https://nytimes.com/athletic/6533887/2025/08/04/dallas-cowboys-training-camp-ceedee-lamb/
 
