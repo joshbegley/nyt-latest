@@ -1,3 +1,15 @@
+**Bronx Man Charged With Dealing Drugs That Caused Deadly Overdose**\
+`Estherlyn Frias sold narcotics out of his home, near where his children slept, U.S. prosecutors said. A Connecticut man bought fentanyl and cocaine from him and died 12 hours later.`\
+https://nytimes.com/2025/08/04/nyregion/bronx-drug-overdose-fentanyl-charges.html
+
+**Drunken Boater Hits Swimmers in N. Carolina Lake, Killing Girl, 10, Police Say**\
+`A woman was also critically injured in the collision, which happened on Shearon Harris Reservoir, about 25 miles southwest of Raleigh, N.C., the authorities said.`\
+https://nytimes.com/2025/08/04/us/north-carolina-boat-swimmer-killed.html
+
+**Man Who Killed 4 in Arkansas Grocery Store Shooting Gets Life Without Parole**\
+`The man, Travis Eugene Posey, also injured 11 people in the shooting at the Mad Butcher in Fordyce, Ark., in June 2024. He received four consecutive life terms.`\
+https://nytimes.com/2025/08/04/us/travis-posey-sentenced-arkansas-grocery-store-shooting.html
+
 **Man Who Killed 4 at Arkansas Grocery Store Gets Life Without Parole**\
 `The man, Travis Eugene Posey, also injured 11 people in the shooting at the Mad Butcher in Fordyce, Ark., in June 2024. He received four consecutive life terms.`\
 https://nytimes.com/2025/08/04/us/travis-posey-sentenced-arkansas-grocery-store-shooting.html
