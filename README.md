@@ -1,3 +1,31 @@
+**India signals no intention of pulling back on Russian oil despite U.S. pressure.**\
+`By Mujib Mashal`\
+https://nytimes.com/live/2025/08/04/us/trump-news/india-signals-no-intention-of-pulling-back-on-russian-oil-despite-us-pressure
+
+**Submit your Notre Dame football questions for Pete Sampson’s mailbag**\
+`What’s on your mind as Notre Dame moves closer to Week 1?`\
+https://nytimes.com/athletic/6535020/2025/08/04/submit-your-notre-dame-football-questions-for-pete-sampsons-mailbag-3/
+
+**Russian Nuclear Submarine Base Was Damaged in Quake, Satellite Images Show**\
+`The Rybachiy base, which hosts nuclear-powered submarines from Russia’s Pacific Fleet, lies in a cove about 80 miles from the powerful earthquake that struck near the Kamchatka peninsula last week.`\
+https://nytimes.com/2025/08/04/world/europe/russia-earthquake-nuclear-submarine-damage.html
+
+**Smoke Causes Poor Air Quality Across Canada, the Great Lakes and Northeastern U.S.**\
+`Wildfires burning in Canada were causing unhealthy air quality across parts of North America on Monday.`\
+https://nytimes.com/2025/08/04/weather/wildfire-smoke-air-quality-toronto-new-york.html
+
+**Callum Wilson to West Ham: Everything you need to know - TLDR**\
+`West Ham have signed the striker on a free transfer after he left Newcastle - here, we break down the deal`\
+https://nytimes.com/athletic/6534791/2025/08/04/callum-wilson-west-ham-newcastle/
+
+**The New York Post Announces a California Newspaper**\
+`The long-running New York City tabloid will launch a new version with headquarters in Los Angeles in early 2026.`\
+https://nytimes.com/2025/08/04/business/media/new-york-post-california.html
+
+**Texas opens at No. 1 in Coaches Poll, with OSU, Penn State, Georgia chasing**\
+`Last year, only 12 of the preseason top 25 finished ranked in the postseason Coaches Poll.`\
+https://nytimes.com/athletic/6534866/2025/08/04/college-football-coaches-poll-texas-top-25/
+
 **3 Salad Dressings You Should Memorize**\
 `(No description)`\
 https://nytimes.com/newsgraphics/card-story/homemade-salad-dressing
@@ -9,32 +37,4 @@ https://nytimes.com/newsgraphics/card-story/hellbenders-giant-salamanders-north-
 **Joao Palhinha to Tottenham: Everything you need to know – TLDR**\
 `Spurs have brought former Fulham midfielder Joao Palhinha back to the Premier League on loan from Bayern. We break down the deal`\
 https://nytimes.com/athletic/6534415/2025/08/04/joao-palhinha-tottenham-loan/
-
-**gws-outdoor-workout-activities-list**\
-`(No description)`\
-https://nytimes.com/newsgraphics/card-story/outdoor-workout-activities-list
-
-**University of Virginia Appoints Interim President After Ouster**\
-`The university is turning to a former law school dean to lead the school as it faces pressure from Republicans in both Virginia and Washington, D.C.`\
-https://nytimes.com/2025/08/04/us/politics/university-virginia-appoints-interim-president.html
-
-**At ‘Alligator Alcatraz,’ the Biggest Risk Isn’t Alligators.**\
-`The area around the immigrant detention center, deep in the Everglades, is threatened by hurricanes, extreme heat and even wildfires.`\
-https://nytimes.com/interactive/2025/08/04/climate/alligator-alcatraz-hurricanes-storms.html
-
-**Minimum Wage in L.A. Could Rise to $30 an Hour. Just Enough or Too Much?**\
-`A union-backed effort would boost wages for hotel and airport workers. But with tourism down, and the city in a slump, hotel owners fear for their survival.`\
-https://nytimes.com/2025/08/04/business/minimum-wage-olympics-losangeles.html
-
-**Avoiding Ultraprocessed Foods Might Double Weight Loss**\
-`In a new trial, people consumed more calories and had more cravings when they ate ultraprocessed foods.`\
-https://nytimes.com/2025/08/04/well/eat/avoiding-ultraprocessed-foods-might-double-weight-loss.html
-
-**Shooting in Downtown Los Angeles Leaves 2 Dead and 6 Wounded, Police Say**\
-`The shooting happened at an unsanctioned after-party following the Hard Summer Music Festival, which featured electronic dance music.`\
-https://nytimes.com/2025/08/04/us/la-hard-summer-music-festival-shooting.html
-
-**Breaking down England’s draw with India: Was this the greatest Test series since the Ashes in 2005?**\
-`A thrilling series enjoyed a suitably dramatic finale on its last day with Chris Woakes batting one-handed and Mohammed Siraj a match winner`\
-https://nytimes.com/athletic/6534624/2025/08/04/england-india-gill-stokes-woakes-siraj/
 
