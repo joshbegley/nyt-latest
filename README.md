@@ -1,3 +1,7 @@
+**Monday Briefing: An ‘All or Nothing’ Gaza Deal**\
+`Also, Catholic influencers.`\
+https://nytimes.com/2025/08/04/briefing/gaza-trump-tariffs-lesotho-putin-russia-censorship.html
+
 **Villa's summer of uncertainty is not ideal preparation for a new season**\
 `The Emery era has tended to be adept in managing turbulence — how his side start the season proper will be another test of such resolve`\
 https://nytimes.com/athletic/6529677/2025/08/04/aston-villas-summer-of-uncertainty-is-not-ideal-preparation-for-a-new-premier-league-season/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6531734/2025/08/04/cricketer-tymal-mills-onlyfans/
 **Arsenal Wenger, James Trafford and the players and managers destined for clubs... because of their names**\
 `Nominative determinism. It's a thing — and might also be a thing in football`\
 https://nytimes.com/athletic/6524643/2025/08/04/football-names-clubs-managers-arsenal-wenger/
-
-**The Premier League is two weeks from starting, but the FA Cup has already begun**\
-`The FA Cup might conclude in May next year but the extra preliminary round began over the weekend`\
-https://nytimes.com/athletic/6478126/2025/08/04/fa-cup-fisher-canary-wharfe-mayflower/
 
