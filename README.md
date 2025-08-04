@@ -1,3 +1,7 @@
+**Burnley reach agreement over Ugochukwu transfer from Chelsea**\
+`The France youth international, 21, has been granted permission to travel for medical tests and complete a permanent move to Turf Moor.`\
+https://nytimes.com/athletic/6399614/2025/08/04/burnley-transfers-ugochukwu-chelsea/
+
 **System Upgrade**\
 `We explore the new vibe in Silicon Valley.`\
 https://nytimes.com/2025/08/04/briefing/silicon-valley-culture.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/04/business/joby-blade-electric-air-taxi.html
 **Burnley in talks over move for Newcastle goalkeeper Dubravka**\
 `Newcastle have completed the loan signing of Aaron Ramsdale this window, while Burnley lost James Trafford to Manchester City.`\
 https://nytimes.com/athletic/6522328/2025/08/04/martin-dubravka-burnley-newcastle-transfers/
-
-**Ranking Twins' trade deadline pickups: 13 new players, from top prospects to toss ins**\
-`Assessing what the Twins' fire sale got back in trades for Carlos Correa, Jhoan Duran, Griffin Jax, Louis Varland, Willi Castro and more.`\
-https://nytimes.com/athletic/6530101/2025/08/04/twins-trade-deadline-player-rankings/
 
