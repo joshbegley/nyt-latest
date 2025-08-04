@@ -1,3 +1,15 @@
+**gws-mormon-tabernacle-choir**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/mormon-tabernacle-choir
+
+**The Texas Redistricting Fight, Explained**\
+`Here is why Democrats in the Texas House left the state, why Republicans in the Legislature want to redraw political maps and why other states are involved.`\
+https://nytimes.com/2025/08/04/us/texas-redistricting.html
+
+**Scoop City: Risers, fallers and contract struggles as preseason begins**\
+`Two young Giants lead our early preseason risers, plus what's next for Micah Parsons and the curious case of Terry McLaurin's contract`\
+https://nytimes.com/athletic/6534799/2025/08/04/nfl-preseason-risers-fallers-terry-mclaurin-giants-scoop-city/
+
 **Trump Lures Foreign Investment With a Familiar Pitch: Show Me the Money**\
 `President Trump is using an “Art of the Deal” approach to get trading partners to hand over cash to lower their tariffs.`\
 https://nytimes.com/2025/08/04/us/politics/trump-tariffs-foreign-investment.html
