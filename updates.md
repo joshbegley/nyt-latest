@@ -1,3 +1,5 @@
+
+
 **A Zoo in Denmark Wants to Feed Your Pets to Its Predators**\
 `A Danish zoo is asking owners of companion animals nearing life’s end to instead donate them as food for captive lynxes, lions and other carnivores.`\
 https://nytimes.com/2025/08/04/science/zoos-denmark-food-pets.html
