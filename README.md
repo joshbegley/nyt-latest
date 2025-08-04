@@ -1,3 +1,7 @@
+**Should Forgetful People Be Allowed to Keep Their Phone Silenced?**\
+`A ruling on yet another domestic phone-notification dispute.`\
+https://nytimes.com/interactive/2025/08/04/magazine/phone-silent-hodgman-quiz.html
+
 **Once a Death Sentence, This Heart Condition Is Finally Treatable**\
 `A quiet revolution in care is helping patients with cardiac amyloidosis, a form of heart failure that long stumped doctors.`\
 https://nytimes.com/2025/08/04/well/cardiac-amyloidosis.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/04/arts/dance/raygun-musical-edinburgh-fringe.html
 **Kemp Ally Enters Senate Race Seeking to Challenge Jon Ossoff in Georgia**\
 `Derek Dooley, a former football coach, cast himself as an outsider candidate as the Republican primary field for a marquee midterm contest takes shape.`\
 https://nytimes.com/2025/08/04/us/politics/derek-dooley-jon-ossoff-georgia-senate.html
-
-**Speedway Classic, despite logistical issues, broke attendance mark that stood since '54**\
-`The previous MLB milestone for most regular-season game tickets sold was from a Yankees visit to Cleveland`\
-https://nytimes.com/athletic/6534672/2025/08/04/speedway-classic-attendance-record-mlb/
 

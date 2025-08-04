@@ -1,3 +1,11 @@
+**Once a Death Sentence, This Heart Condition Is Finally Treatable**\
+`A quiet revolution in care is helping patients with cardiac amyloidosis, a form of heart failure that long stumped doctors.`\
+https://nytimes.com/2025/08/04/well/cardiac-amyloidosis.html
+
+**gws-country-hotels-getaways**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/country-hotels-getaways
+
 **Scientists Finally Identify Killer Microbe Behind ‘Terrifying’ Sea Star Disease**\
 `A mysterious epidemic has wiped out billions of sea stars in recent years. A new study finally identifies the bacterium responsible.`\
 https://nytimes.com/2025/08/04/science/sea-stars-disease-vibrio-pectenicida.html
