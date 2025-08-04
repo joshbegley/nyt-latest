@@ -1,3 +1,7 @@
+**Falcons sign Kaleb McGary to two-year extension worth reported $30 million**\
+`Two weeks ago, Raheem Morris said he has “so much confidence” in RT Kaleb McGary. On Monday, the franchise backed that up with an extension.`\
+https://nytimes.com/athletic/6535353/2025/08/04/kaleb-mcgary-falcons-extension/
+
 **Switzerland Rushes to Give Trump ‘More Attractive’ Offer to Cut Tariffs**\
 `The Swiss government said it had “no indication” the country would be hit with a 39 percent tariff, which is set to take effect this week.`\
 https://nytimes.com/2025/08/04/business/switzerland-tariffs-trump.html
