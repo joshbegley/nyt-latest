@@ -1,3 +1,11 @@
+**Emma Raducanu hires Francis Roig, longtime Rafael Nadal coach, through 2025**\
+`Roig, who was on Nadal's team for all 22 of his Grand Slam titles, is Raducanu's first formal coach since January this year.`\
+https://nytimes.com/athletic/6535509/2025/08/04/tennis-emma-raducanu-coach-francis-roig-rafael-nadal/
+
+**Russia Says It Will Stop Abiding by Missile Treaty**\
+`The United States has accused Russia of violating the pact, which expired in 2019, for more than a decade.`\
+https://nytimes.com/2025/08/04/world/europe/russia-missile-treaty.html
+
 **What we can learn from the Commanders' first depth chart**\
 `The Commanders released their first unofficial depth chart on Monday, and there are some notable takeaways.`\
 https://nytimes.com/athletic/6535357/2025/08/04/commanders-depth-chart-preseason/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6535110/2025/08/04/liverpool-athletic-club-nunez-ng
 **A Zoo in Denmark Wants to Feed Your Pets to Its Predators**\
 `A Danish zoo is asking owners of companion animals nearing life’s end to instead donate them as food for captive lynxes, lions and other carnivores.`\
 https://nytimes.com/2025/08/04/science/zoos-denmark-food-pets.html
-
-**U.S. to Require Some Foreign Visitors to Pay Bonds of Up to $15,000 for Entry**\
-`A State Department pilot program will tie the cash deposits to tourist and business visas for people from countries with high visa overstay rates.`\
-https://nytimes.com/2025/08/04/us/politics/state-department-bonds-visas.html
-
-**NASCAR Iowa takeaways: Fuel savings for the win, William Byron reclaims points lead**\
-`Another oval, another fuel-mileage race. William Byron reminds us why he's a contender. And more from the Cup Series race in Iowa.`\
-https://nytimes.com/athletic/6534662/2025/08/04/nascar-iowa-takeaways-fuel-savings-mileage-william-byron/
 
