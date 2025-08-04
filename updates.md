@@ -1,3 +1,7 @@
+**Should Forgetful People Be Allowed to Keep Their Phone Silenced?**\
+`A ruling on yet another domestic phone-notification dispute.`\
+https://nytimes.com/interactive/2025/08/04/magazine/phone-silent-hodgman-quiz.html
+
 **Once a Death Sentence, This Heart Condition Is Finally Treatable**\
 `A quiet revolution in care is helping patients with cardiac amyloidosis, a form of heart failure that long stumped doctors.`\
 https://nytimes.com/2025/08/04/well/cardiac-amyloidosis.html
