@@ -1,3 +1,11 @@
+**No Corrections: Aug. 4, 2025**\
+`No corrections appeared in print on Monday, Aug. 4, 2025.`\
+https://nytimes.com/2025/08/03/pageoneplus/no-corrections-aug-4-2025.html
+
+**Carson Whisenhunt earns his first win as Giants take road series from Mets**\
+`Coming off their first 0-6 homestand since 1896, the Giants took two of three on the road from the NL East leaders.`\
+https://nytimes.com/athletic/6534035/2025/08/03/giants-carson-whisenhunt-win-mets/
+
 **Padres’ Mason Miller blockbuster reflects soaring cost of MLB bullpen arms race**\
 `As teams loaded up for another October with an expanded postseason, relievers ruled the deadline like never before. `\
 https://nytimes.com/athletic/6532953/2025/08/03/padres-mason-miller-bullpen-arms-race/

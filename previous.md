@@ -1,8 +1,12 @@
+**No Corrections: Aug. 4, 2025**\
+`No corrections appeared in print on Monday, Aug. 4, 2025.`\
+https://nytimes.com/2025/08/03/pageoneplus/no-corrections-aug-4-2025.html
+
 **Padres’ Mason Miller blockbuster reflects soaring cost of MLB bullpen arms race**\
 `As teams loaded up for another October with an expanded postseason, relievers ruled the deadline like never before. `\
 https://nytimes.com/athletic/6532953/2025/08/03/padres-mason-miller-bullpen-arms-race/
 
-**Carson Whisenhunt earns his first win as Giants take a road series from Mets**\
+**Carson Whisenhunt earns his first win as Giants take road series from Mets**\
 `Coming off their first 0-6 homestand since 1896, the Giants took two of three on the road from the NL East leaders.`\
 https://nytimes.com/athletic/6534035/2025/08/03/giants-carson-whisenhunt-win-mets/
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6533979/2025/08/03/lionel-messi-muscle-injury-miami
 **Even after a wild trade deadline, Yankees still lack sense of urgency**\
 `The Yankees were sloppy, again; they made Little League mistakes; and their bats were quieted in the final two games against Miami.`\
 https://nytimes.com/athletic/6533791/2025/08/03/ny-yankees-urgency-priority/
-
-**10-Minute Challenge: Bosch’s ‘Garden of Earthly Delights’**\
-`We’d like you to look at one piece of art for 10 minutes, uninterrupted.`\
-https://nytimes.com/interactive/2025/08/03/upshot/garden-of-earthly-delights.html
 
