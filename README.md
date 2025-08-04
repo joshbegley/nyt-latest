@@ -1,3 +1,7 @@
+**Real Madrid's €30m midfielder Reinier set to join Atletico Mineiro for free**\
+`The 23-year-old joined Madrid for €30million in 2020 but hasn't made a first-team appearance.`\
+https://nytimes.com/athletic/6534320/2025/08/04/real-madrid-reinier-jesus-altetico-mineiro-transfer/
+
 **The Pulse: Let's trade Micah Parsons to ... the Bears?**\
 `The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
 https://nytimes.com/athletic/6533531/2025/08/04/micah-parsons-trade-noah-lyles-the-pulse/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/04/podcasts/the-headlines/trump-jobs-data-us-attorne
 **Steelers camp observations: 4 concerns emerging for Aaron Rodgers and offense**\
 `What's wrong with the offense? The run game is struggling, there are gaps in the passing game and offensive line concerns.`\
 https://nytimes.com/athletic/6533796/2025/08/04/steelers-aaron-rodgers-offense/
-
-**Receiving corps deeper and faster: 7 things we've learned about the Panthers in camp**\
-`Bryce Young looks to be in a much better place this year and the added playmakers on offense helps.`\
-https://nytimes.com/athletic/6533724/2025/08/04/carolina-panthers-training-camp/
 
