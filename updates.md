@@ -1,3 +1,7 @@
+**Woman Arrested After Toddler Found Stowed in Suitcase in New Zealand**\
+`The 2-year-old girl was discovered Sunday in the luggage compartment of a bus after the driver noticed the suitcase moving, the police said.`\
+https://nytimes.com/2025/08/04/world/new-zealand-suitcase-toddler-bus.html
+
 **The New York Times in Print for Monday, Aug. 4, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/08/04/todays-new-york-times
