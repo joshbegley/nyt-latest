@@ -1,3 +1,27 @@
+**The Premier League is two weeks from starting, but the FA Cup has already begun**\
+`The FA Cup might conclude in May next year but the extra preliminary round began over the weekend`\
+https://nytimes.com/athletic/6478126/2025/08/04/fa-cup-fisher-canary-wharfe-mayflower/
+
+**Quote of the Day: 10,000 Steps? A Nice, Round Number, but Not the Magic One.**\
+`Quotation of the Day for Monday, August 4, 2025.`\
+https://nytimes.com/2025/08/04/pageoneplus/quote-of-the-day-10000-steps-a-nice-round-number-but-not-the-magic-one.html
+
+**Connections: Sports Edition Coach: Hints for Aug. 4, 2025**\
+`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
+https://nytimes.com/athletic/6533697/2025/08/04/connections-sports-edition-hints-for-aug-4-2025-puzzle-no-315/
+
+**He Survived the Khmer Rouge and Built a Musical Legacy**\
+`Kong Nay, a blind lute player who endured the horrors of a totalitarian regime, exposed a new generation of Cambodians to their country’s traditional music.`\
+https://nytimes.com/2025/08/04/arts/music/kong-nay-cambodia-khmer-rouge.html
+
+**What’s It Like to Deal With Brutal U.S. Tariffs? Ask Malaysia.**\
+`Once a cog in the Malaysian economy, the solar industry profited from Chinese investment. Now it’s becoming a case study of what happens when the United States closes its markets.`\
+https://nytimes.com/2025/08/04/business/malaysia-solar-china.html
+
+**David White named NFLPA’s interim executive director**\
+`The announcement comes after Lloyd Howell Jr. stepped down on July 17 following controversies surrounding his leadership.`\
+https://nytimes.com/athletic/6502847/2025/08/03/david-white-nflpa-interim-executive-director/
+
 **Tracking Tropical Storm Dexter**\
 `See the likely path and wind arrival times for Dexter`\
 https://nytimes.com/interactive/2025/08/03/weather/dexter-map-path-tracker.html
@@ -13,28 +37,4 @@ https://nytimes.com/2025/08/03/pageoneplus/no-corrections-aug-4-2025.html
 **Padres’ Mason Miller blockbuster reflects soaring cost of MLB bullpen arms race**\
 `As teams loaded up for another October with an expanded postseason, relievers ruled the deadline like never before. `\
 https://nytimes.com/athletic/6532953/2025/08/03/padres-mason-miller-bullpen-arms-race/
-
-**Carson Whisenhunt earns his first win as Giants take road series from Mets**\
-`Coming off their first 0-6 homestand since 1896, the Giants took two of three on the road from the NL East leaders.`\
-https://nytimes.com/athletic/6534035/2025/08/03/giants-carson-whisenhunt-win-mets/
-
-**Justin Turner earns his big Cubs moment as the team leader delivers a walk-off homer**\
-`"He's so engaged in other people's success. So when that player has success, it just means a little bit more," manager Craig Counsell said.`\
-https://nytimes.com/athletic/6533931/2025/08/03/cubs-justin-turner-walk-off-homer/
-
-**Steve Pagliuca confirms interest in purchasing Connecticut Sun, but says no deal in place**\
-`Pagliuca said that their offer is subject to obtaining the required league approvals.`\
-https://nytimes.com/athletic/6534007/2025/08/03/steve-pagliuca-connecticut-sun-sale/
-
-**U.S. sprinter Christian Coleman defends Sha'Carri Richardson after her airport arrest**\
-`After Richardson was arrested recently, Coleman, her boyfriend, said, "She's going to be good. I'm going to be good, too."`\
-https://nytimes.com/athletic/6533983/2025/08/03/shacarri-richardson-arrest-christian-coleman-comments/
-
-**Clara Tauson upsets Wimbledon champion Iga Świątek at Canadian Open**\
-`The upset came one day after world No. 2 and top seed Coco Gauff fell in straight sets to Canadian wild card Victoria Mboko.`\
-https://nytimes.com/athletic/6533947/2025/08/03/clara-tauson-iga-swiatek-upset-canadian-open/
-
-**Meet Me at the Fair**\
-`“This American Life” follows carnival workers, gunslingers, rabbit raisers and biscuit sellers at the Iowa State Fair.`\
-https://nytimes.com/2025/08/03/podcasts/meet-me-at-the-iowa-state-fair-this-american-life-nyt-audio.html
 
