@@ -1,3 +1,15 @@
+**Novak Djokovic withdraws from Cincinnati Open for second consecutive year**\
+`Djokovic will arrive at the U.S. Open having not played since Wimbledon.`\
+https://nytimes.com/athletic/6535045/2025/08/04/tennis-novak-djokovic-cincinnati-open-out/
+
+**Sunderland head coach Regis Le Bris signs new contract**\
+`Le Bris was appointed in late June 2024 and guided Sunderland back to the Premier League via the Championship play-offs last term.`\
+https://nytimes.com/athletic/6534974/2025/08/04/sunderland-regis-le-bris-new-contract/
+
+**Texas opens at No. 1 in Coaches Poll: Who's over- and underrated entering 2025?**\
+`Last year, only 12 of the preseason top 25 finished ranked in the postseason Coaches Poll.`\
+https://nytimes.com/athletic/6534866/2025/08/04/college-football-coaches-poll-texas-top-25/
+
 **India signals no intention of pulling back on Russian oil despite U.S. pressure.**\
 `By Mujib Mashal`\
 https://nytimes.com/live/2025/08/04/us/trump-news/india-signals-no-intention-of-pulling-back-on-russian-oil-despite-us-pressure
