@@ -1,3 +1,7 @@
+**Clara Tauson upsets Wimbledon champion Iga Świątek at Canadian Open**\
+`The upset came one day after world No. 2 and top seed Coco Gauff fell in straight sets to Canadian wild card Victoria Mboko.`\
+https://nytimes.com/athletic/6533947/2025/08/03/clara-tauson-iga-swiatek-upset-canadian-open/
+
 **Meet Me at the Fair**\
 `“This American Life” follows carnival workers, gunslingers, rabbit raisers and biscuit sellers at the Iowa State Fair.`\
 https://nytimes.com/2025/08/03/podcasts/meet-me-at-the-iowa-state-fair-this-american-life-nyt-audio.html

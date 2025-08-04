@@ -1,3 +1,7 @@
+**Clara Tauson upsets Wimbledon champion Iga Świątek at Canadian Open**\
+`The upset came one day after world No. 2 and top seed Coco Gauff fell in straight sets to Canadian wild card Victoria Mboko.`\
+https://nytimes.com/athletic/6533947/2025/08/03/clara-tauson-iga-swiatek-upset-canadian-open/
+
 **Meet Me at the Fair**\
 `“This American Life” follows carnival workers, gunslingers, rabbit raisers and biscuit sellers at the Iowa State Fair.`\
 https://nytimes.com/2025/08/03/podcasts/meet-me-at-the-iowa-state-fair-this-american-life-nyt-audio.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6533829/2025/08/03/cameron-young-pga-tour-win-wyndh
 **Cruz Criticizes Hochul for Wearing Head Scarf at Slain Officer’s Funeral**\
 `In a social media back-and-forth, Gov. Kathy Hochul of New York replied to Senator Ted Cruz of Texas that “anyone with basic decency” would respect the officer’s Muslim faith.`\
 https://nytimes.com/2025/08/03/nyregion/cruz-hochul-head-scarf-officer-funeral.html
-
-**Frankie Montas' struggles highlight Mets' rotation woes in series loss to Giants**\
-`"He's got to be better. He knows that," manager Carlos Mendoza said when asked if Montas' role going forward was up for discussion.`\
-https://nytimes.com/athletic/6533804/2025/08/03/mets-takeaways-frankie-montas-struggles/
 
