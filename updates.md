@@ -1,3 +1,11 @@
+**Padres’ Mason Miller blockbuster reflects soaring cost of MLB bullpen arms race**\
+`As teams loaded up for another October with an expanded postseason, relievers ruled the deadline like never before. `\
+https://nytimes.com/athletic/6532953/2025/08/03/padres-mason-miller-bullpen-arms-race/
+
+**Carson Whisenhunt earns his first win as Giants take a road series from Mets**\
+`Coming off their first 0-6 homestand since 1896, the Giants took two of three on the road from the NL East leaders.`\
+https://nytimes.com/athletic/6534035/2025/08/03/giants-carson-whisenhunt-win-mets/
+
 **Justin Turner earns his big Cubs moment as the team leader delivers a walk-off homer**\
 `"He's so engaged in other people's success. So when that player has success, it just means a little bit more," manager Craig Counsell said.`\
 https://nytimes.com/athletic/6533931/2025/08/03/cubs-justin-turner-walk-off-homer/
