@@ -1,3 +1,11 @@
+**When Trump Changes His Mind, Republicans Find a Way to Fall in Line**\
+`President Trump’s decision to fire the head of the Bureau of Labor Statistics forced his allies into the awkward spot of criticizing an agency they had freely cited in the past.`\
+https://nytimes.com/2025/08/04/us/politics/when-trump-changes-his-mind-republicans-find-a-way-to-fall-in-line.html
+
+**Islanders sign Matthew Schaefer to 3-year, entry-level contract**\
+`Schaefer was the No. 1 overall pick of the Islanders in this year's draft.`\
+https://nytimes.com/athletic/6535696/2025/08/04/islanders-matthew-schaefer-contract-rookie/
+
 **FIFA condemns death threats against Mexican referee Katia Itzel Garcia**\
 `The official spoke out strongly after being targeted on social media.`\
 https://nytimes.com/athletic/6535676/2025/08/04/katia-itzel-garcia-leagues-cup-death-threats/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/08/04/nyregion/bronx-drug-overdose-fentanyl-charges.htm
 **Drunken Boater Hits Swimmers in N. Carolina Lake, Killing Girl, 10, Police Say**\
 `A woman was also critically injured in the collision, which happened on Shearon Harris Reservoir, about 25 miles southwest of Raleigh, N.C., the authorities said.`\
 https://nytimes.com/2025/08/04/us/north-carolina-boat-swimmer-killed.html
-
-**Man Who Killed 4 in Arkansas Grocery Store Shooting Gets Life Without Parole**\
-`The man, Travis Eugene Posey, also injured 11 people in the shooting at the Mad Butcher in Fordyce, Ark., in June 2024. He received four consecutive life terms.`\
-https://nytimes.com/2025/08/04/us/travis-posey-sentenced-arkansas-grocery-store-shooting.html
-
-**Jaguars' initial depth chart lists Travis Hunter as starting WR, second-team CB**\
-`Hunter has spent more time early in training camp at wide receiver as he works to get in sync with quarterback Trevor Lawrence.`\
-https://nytimes.com/athletic/6535540/2025/08/04/travis-hunter-jaguars-depth-chart/
 
