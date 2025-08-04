@@ -1,3 +1,11 @@
+**Nancy Mace Announces Run for Governor of South Carolina**\
+`The Charleston-area congresswoman was once a moderate Republican, but has more recently presented herself as a loyal supporter of President Trump.`\
+https://nytimes.com/2025/08/04/us/politics/nancy-mace-south-carolina-governor.html
+
+**Driver Dies in Crash During Racing Event at Bonneville Salt Flats**\
+`Chris Raschke, 60, lost control of his vehicle while trying to set a speed record on Sunday, the event’s organizers said.`\
+https://nytimes.com/2025/08/04/us/speedweek-bonneville-salt-flats-death.html
+
 **Real Sociedad set to complete €4m Guedes transfer from Wolves**\
 `Guedes signed a five-year contract at Molineux in 2022 after a £27.5million transfer from Valencia.`\
 https://nytimes.com/athletic/6533250/2025/08/04/wolves-transfers-guedes-real-sociedad/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/08/04/briefing/silicon-valley-culture.html
 **Blue Jays takeaways: A skid, a potential Max Scherzer playoff start and deadline additions**\
 `With a 7-4 extra-innings loss Sunday, the Blue Jays lost their sixth game in the last eight contests.`\
 https://nytimes.com/athletic/6533767/2025/08/04/blue-jays-max-scherzer-trade-deadline-additions/
-
-**With uncertainty in 49ers' receiver room, Ricky Pearsall could hold fantasy value**\
-`Pearsall had 14 catches — on 18 targets — for 210 yards and two touchdowns over San Francisco's final two games last season.`\
-https://nytimes.com/athletic/6528731/2025/08/04/49ers-ricky-pearsall-fantasy-football/
-
-**This Week in Mets: Resetting a wild playoff race in the National League**\
-`With the trade deadline in the past, it’s time to refocus on what's happening on the field.`\
-https://nytimes.com/athletic/6534111/2025/08/04/mets-resetting-playoff-race-national-league/
 
