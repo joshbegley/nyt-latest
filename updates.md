@@ -1,3 +1,7 @@
+**A Zoo in Denmark Wants to Feed Your Pets to Its Predators**\
+`A Danish zoo is asking owners of companion animals nearing life’s end to instead donate them as food for captive lynxes, lions and other carnivores.`\
+https://nytimes.com/2025/08/04/science/zoos-denmark-food-pets.html
+
 **U.S. to Require Some Foreign Visitors to Pay Bonds of Up to $15,000 for Entry**\
 `A State Department pilot program will tie the cash deposits to tourist and business visas for people from countries with high visa overstay rates.`\
 https://nytimes.com/2025/08/04/us/politics/state-department-bonds-visas.html
