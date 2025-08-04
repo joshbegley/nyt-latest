@@ -1,3 +1,11 @@
+**Gifford Fire Burns More Than 65,000 Acres in California**\
+`The fire burned in a rural area of Los Padres National Forest and has put hundreds of people under evacuation orders, according to officials.`\
+https://nytimes.com/video/us/100000010322170/gifford-fire-california-los-padres-forest.html
+
+**gws-dave-jorgenson-video-washington-post**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/dave-jorgenson-video-washington-post
+
 **gws-mormon-tabernacle-choir**\
 `(No description)`\
 https://nytimes.com/newsgraphics/card-story/mormon-tabernacle-choir

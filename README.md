@@ -1,3 +1,11 @@
+**Breaking down England’s draw with India: Was this the greatest Test series since the Ashes in 2005?**\
+`A thrilling series enjoyed a suitably dramatic finale on its last day with Chris Woakes batting one-handed and Mohammed Siraj a match winner`\
+https://nytimes.com/athletic/6534624/2025/08/04/england-india-gill-stokes-woakes-siraj/
+
+**Stuttgart working on permanent deal for Arsenal's Fabio Vieira**\
+`An agreement has yet to be reached but talks are ongoing, with Arsenal likely to seek a respectable price for the Portuguese midfielder.`\
+https://nytimes.com/athletic/6522200/2025/08/04/fabio-vieira-arsenal-transfer-stuttgart/
+
 **Gifford Fire Burns More Than 65,000 Acres in California**\
 `The fire burned in a rural area of Los Padres National Forest and has put hundreds of people under evacuation orders, according to officials.`\
 https://nytimes.com/video/us/100000010322170/gifford-fire-california-los-padres-forest.html
@@ -29,12 +37,4 @@ https://nytimes.com/video/us/100000010322127/new-jersey-path-train-fire.html
 **Should Forgetful People Be Allowed to Keep Their Phone Silenced?**\
 `A ruling on yet another domestic phone-notification dispute.`\
 https://nytimes.com/interactive/2025/08/04/magazine/phone-silent-hodgman-quiz.html
-
-**Once a Death Sentence, This Heart Condition Is Finally Treatable**\
-`A quiet revolution in care is helping patients with cardiac amyloidosis, a form of heart failure that long stumped doctors.`\
-https://nytimes.com/2025/08/04/well/cardiac-amyloidosis.html
-
-**gws-country-hotels-getaways**\
-`(No description)`\
-https://nytimes.com/newsgraphics/card-story/country-hotels-getaways
 
