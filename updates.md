@@ -1,3 +1,7 @@
+**Meet Me at the Fair**\
+`“This American Life” follows carnival workers, gunslingers, rabbit raisers and biscuit sellers at the Iowa State Fair.`\
+https://nytimes.com/2025/08/03/podcasts/meet-me-at-the-iowa-state-fair-this-american-life-nyt-audio.html
+
 **Lionel Messi suffers 'minor muscle injury' during Miami win over Necaxa**\
 `It is unclear how long Messi will be out of action.`\
 https://nytimes.com/athletic/6533979/2025/08/03/lionel-messi-muscle-injury-miami-necaxa-leagues-cup/
