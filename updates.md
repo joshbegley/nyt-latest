@@ -1,3 +1,15 @@
+**Nottingham Forest close to signing former Norwich goalkeeper Gunn**\
+`The Scotland international is a free agent after seeing his contract expire at Carrow Road this summer.`\
+https://nytimes.com/athletic/6535293/2025/08/04/nottingham-forest-transfer-angus-gunn/
+
+**Judges Openly Doubt Government as Justice Dept. Misleads and Dodges Orders**\
+`Legal experts say such concern from the bench could have a more systemic effect, eroding the healthy functioning of the courts.`\
+https://nytimes.com/2025/08/04/us/politics/trump-justice-department-judges-courts.html
+
+**A Rare Copy of ‘The Hobbit’ Is Found on an Unassuming Shelf**\
+`Bidding for the Tolkien classic, which was discovered in a home in Bristol, England, has already exceeded $25,000.`\
+https://nytimes.com/2025/08/04/world/europe/the-hobbit-first-edition-bristol-auction.html
+
 **FIFA facing lawsuit from Justice for Players group over transfer rules**\
 `The Amsterdam-based Justice for Players (JfP) is the first group to attempt legal action against world football’s governing body.`\
 https://nytimes.com/athletic/6535257/2025/08/04/fifa-lawsuit-players-transfer-rules/

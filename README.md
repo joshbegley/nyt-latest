@@ -1,3 +1,7 @@
+**Switzerland Rushes to Give Trump ‘More Attractive’ Offer to Cut Tariffs**\
+`The Swiss government said it had “no indication” the country would be hit with a 39 percent tariff, which is set to take effect this week.`\
+https://nytimes.com/2025/08/04/business/switzerland-tariffs-trump.html
+
 **Nottingham Forest close to signing former Norwich goalkeeper Gunn**\
 `The Scotland international is a free agent after seeing his contract expire at Carrow Road this summer.`\
 https://nytimes.com/athletic/6535293/2025/08/04/nottingham-forest-transfer-angus-gunn/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6533164/2025/08/04/deaaron-fox-spurs-contract-exten
 **Texas Democrats Leave State to Block Vote on Gerrymandered Map**\
 `The legislators’ departure was a last-ditch effort to stop Republicans from adopting a redrawn congressional map that would flip five Democratic congressional districts to favor Republicans.`\
 https://nytimes.com/video/us/politics/100000010322337/texas-map-redistricting-democrats-trump.html
-
-**Fraudulent Scientific Papers Are Rapidly Increasing, Study Finds**\
-`A statistical analysis found that the number of fake journal articles being churned out by “paper mills” is doubling every year and a half.`\
-https://nytimes.com/2025/08/04/science/04hs-science-papers-fraud-research-paper-mills.html
 
