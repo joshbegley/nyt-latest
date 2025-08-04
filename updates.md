@@ -1,3 +1,11 @@
+**A Love Story Cut Short Two Weeks After ‘I Do’**\
+`David Roach, the singer for the rock band Junkyard, died not long after marrying Jennifer Michael at the Buffett Cancer Center, where he was being treated for advanced metastatic cancer.`\
+https://nytimes.com/2025/08/04/style/david-roach-wedding-death-junkyard.html
+
+**FEMA to Deny Grants to States and Cities That Boycott Israeli Companies**\
+`The move by the Trump administration may be largely symbolic.`\
+https://nytimes.com/2025/08/04/us/politics/fema-will-deny-disaster-funding-to-states-and-cities-that-boycott-israeli-firms-under-new-grant-rules.html
+
 **House Democrats Renew Effort Calling for Palestinian Statehood**\
 `More than a dozen progressive lawmakers had signed onto a draft letter, but a lack of Republican support meant it was unlikely to affect policy decisions by the Trump administration.`\
 https://nytimes.com/2025/08/04/us/politics/house-democrats-palestinian-statehood.html
