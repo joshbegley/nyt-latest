@@ -1,3 +1,15 @@
+**Trump’s Immigrant Crackdown in New York: More Arrests, Longer Detention**\
+`More than half of the immigrants arrested in the New York City area since Jan. 20 do not have criminal convictions or charges, new data shows.`\
+https://nytimes.com/2025/08/04/nyregion/new-york-immigrant-arrests-trump.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/08/04/crosswords/spelling-bee-forum.html
+
+**Many Jewish Voters Back Mamdani. And Many Agree With Him on Gaza.**\
+`Zohran Mamdani won over Jewish voters in New York City who were energized by his economic agenda and unbothered by — or sympathetic to — his views on Israel and Gaza.`\
+https://nytimes.com/2025/08/04/nyregion/zohran-mamdani-jewish-voters-gaza.html
+
 **Cody Gakpo: 'We'll all miss Diogo for the rest of our lives. We will never forget him'**\
 `Liverpool's Dutch forward opens up on team-mate Jota's and why he thinks the Anfield side should dream of winning it all next season`\
 https://nytimes.com/athletic/6531171/2025/08/04/cody-gakpo-interview-liverpool-diogo-jota/
