@@ -1,3 +1,11 @@
+**Man City reach agreement in principle with Dias over new contract**\
+`The 28-year-old’s current deal expires in 2027 but an agreement has now been reached over an extension for the Portugal international.`\
+https://nytimes.com/athletic/6083381/2025/08/04/ruben-dias-manchester-city-contract/
+
+**Ranking the 10 greatest goals of Sidney Crosby's career**\
+`In a career full of awe-inspiring goals, these are Crosby's 10 finest.`\
+https://nytimes.com/athletic/6523413/2025/08/04/penguins-sidney-crosby-best-goals-nhl/
+
 **The Windup: Deadline fallout colors wild MLB weekend**\
 `Welcome to The Windup, The Athletic's MLB newsletter.`\
 https://nytimes.com/athletic/6534257/2025/08/04/yankees-marlins-trade-deadline-the-windup/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/08/04/theater/edinburgh-fringe-photos.html
 **The 5 most pressing issues awaiting interim NFLPA executive director David White**\
 `White takes over on an interim basis after a summer of turmoil for the NFLPA and must quickly gain the trust of the player body. `\
 https://nytimes.com/athletic/6534218/2025/08/04/nflpa-david-white-pressing-issues/
-
-**Why Blackhawks first-rounder Anton Frondell plans to stay in Sweden this season**\
-`Originally the Blackhawks hadn't ruled out seeing how Frondell stacked up to NHL competition during preseason camp.`\
-https://nytimes.com/athletic/6531130/2025/08/04/anton-frondell-blackhawks-prospect-development/
-
-**El Salvador’s Leader Is Autocrat to Some, Godsend to Others**\
-`Lawmakers approved constitutional changes abolishing term limits and allowing President Nayib Bukele to stay in power indefinitely. Why now?`\
-https://nytimes.com/2025/08/04/world/americas/el-salvador-president-bukele-term-limits.html
 
