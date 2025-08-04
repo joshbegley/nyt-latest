@@ -1,3 +1,7 @@
+**Aaron Ramsdale to Newcastle: Everything you need to know - TLDR**\
+`Newcastle have brought in Southampton goalkeeper Aaron Ramsdale on loan, reuniting the player with Eddie Howe. Here we break down the deal`\
+https://nytimes.com/athletic/6534608/2025/08/04/aaron-ramsdale-newcastle-transfer-loan/
+
 **A Breaking Musical Is a Fringe Hit. Just Don’t Mention Raygun.**\
 `The Australian breaker tried to shut down a musical about her. Now, it’s attracting dancing crowds at the Edinburgh Festival Fringe.`\
 https://nytimes.com/2025/08/04/arts/dance/raygun-musical-edinburgh-fringe.html
@@ -33,8 +37,4 @@ https://nytimes.com/newsgraphics/card-story/home-schooling-movement
 **Man City reach agreement in principle with Dias over new contract**\
 `The 28-year-old’s current deal expires in 2027 but an agreement has now been reached over a new deal for the Portugal international.`\
 https://nytimes.com/athletic/6083381/2025/08/04/ruben-dias-manchester-city-contract/
-
-**Ranking the 10 greatest goals of Sidney Crosby's career**\
-`In a career full of awe-inspiring goals, these are Crosby's 10 finest.`\
-https://nytimes.com/athletic/6523413/2025/08/04/penguins-sidney-crosby-best-goals-nhl/
 
