@@ -1,6 +1,14 @@
+**Ranking Twins' trade deadline pickups: 13 new players, from top prospects to toss ins**\
+`Assessing what the Twins' fire sale got back in trades for Carlos Correa, Jhoan Duran, Griffin Jax, Louis Varland, Willi Castro and more.`\
+https://nytimes.com/athletic/6530101/2025/08/04/twins-trade-deadline-player-rankings/
+
+**Why Real Madrid's forgotten €30m Brazilian wonderkid is set to leave for free**\
+`The Athletic has reported that Reinier is set to join Atletico Mineiro in his homeland after failing to break through at the Bernabeu`\
+https://nytimes.com/athletic/5739701/2025/08/04/reinier-jesus-real-madrid-brazil/
+
 **Real Madrid's €30m midfielder Reinier set to join Atletico Mineiro for free**\
 `The 23-year-old joined Madrid for €30million in 2020 but hasn't made a first-team appearance.`\
-https://nytimes.com/athletic/6534320/2025/08/04/real-madrid-reinier-jesus-altetico-mineiro-transfer/
+https://nytimes.com/athletic/6534320/2025/08/04/real-madrid-reinier-jesus-atletico-mineiro-transfer/
 
 **The Pulse: Let's trade Micah Parsons to ... the Bears?**\
 `The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6533483/2025/08/04/vikings-training-camp-jj-mccarth
 **Cowboys standouts: 10 players making strong impressions through first half of camp**\
 `Some of the Cowboys' offensive playmakers — CeeDee Lamb, George Pickens, KaVontae Turpin and rookie Jaydon Blue — look ready for Week 1.`\
 https://nytimes.com/athletic/6533887/2025/08/04/dallas-cowboys-training-camp-ceedee-lamb/
-
-**Trump ‘Wants His Own People’ in Charge of Jobs Data, and the Ex-Fox Host Turned U.S. Attorney**\
-`Plus, why airlines are making everything “premium.”`\
-https://nytimes.com/2025/08/04/podcasts/the-headlines/trump-jobs-data-us-attorney-dc.html
-
-**Steelers camp observations: 4 concerns emerging for Aaron Rodgers and offense**\
-`What's wrong with the offense? The run game is struggling, there are gaps in the passing game and offensive line concerns.`\
-https://nytimes.com/athletic/6533796/2025/08/04/steelers-aaron-rodgers-offense/
 

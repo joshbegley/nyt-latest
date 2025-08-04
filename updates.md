@@ -1,3 +1,15 @@
+**Ranking Twins' trade deadline pickups: 13 new players, from top prospects to toss ins**\
+`Assessing what the Twins' fire sale got back in trades for Carlos Correa, Jhoan Duran, Griffin Jax, Louis Varland, Willi Castro and more.`\
+https://nytimes.com/athletic/6530101/2025/08/04/twins-trade-deadline-player-rankings/
+
+**Why Real Madrid's forgotten €30m Brazilian wonderkid is set to leave for free**\
+`The Athletic has reported that Reinier is set to join Atletico Mineiro in his homeland after failing to break through at the Bernabeu`\
+https://nytimes.com/athletic/5739701/2025/08/04/reinier-jesus-real-madrid-brazil/
+
+**Real Madrid's €30m midfielder Reinier set to join Atletico Mineiro for free**\
+`The 23-year-old joined Madrid for €30million in 2020 but hasn't made a first-team appearance.`\
+https://nytimes.com/athletic/6534320/2025/08/04/real-madrid-reinier-jesus-atletico-mineiro-transfer/
+
 **Real Madrid's €30m midfielder Reinier set to join Atletico Mineiro for free**\
 `The 23-year-old joined Madrid for €30million in 2020 but hasn't made a first-team appearance.`\
 https://nytimes.com/athletic/6534320/2025/08/04/real-madrid-reinier-jesus-altetico-mineiro-transfer/
