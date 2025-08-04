@@ -1,3 +1,7 @@
+**Meet Me at the Fair**\
+`“This American Life” follows carnival workers, gunslingers, rabbit raisers and biscuit sellers at the Iowa State Fair.`\
+https://nytimes.com/2025/08/03/podcasts/meet-me-at-the-iowa-state-fair-this-american-life-nyt-audio.html
+
 **Lionel Messi suffers 'minor muscle injury' during Miami win over Necaxa**\
 `It is unclear how long Messi will be out of action.`\
 https://nytimes.com/athletic/6533979/2025/08/03/lionel-messi-muscle-injury-miami-necaxa-leagues-cup/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/03/nyregion/cruz-hochul-head-scarf-officer-funeral.h
 **Frankie Montas' struggles highlight Mets' rotation woes in series loss to Giants**\
 `"He's got to be better. He knows that," manager Carlos Mendoza said when asked if Montas' role going forward was up for discussion.`\
 https://nytimes.com/athletic/6533804/2025/08/03/mets-takeaways-frankie-montas-struggles/
-
-**Red Sox takeaways: Astros sweep, Tanner Houck surgery, Marcelo Mayer limbo**\
-`Lucas Giolito held Houston to one run over eight innings Sunday in the Red Sox 6-1 win Sunday.`\
-https://nytimes.com/athletic/6533679/2025/08/03/red-sox-sweep-astros-tanner-houck-marcelo-mayer/
 
