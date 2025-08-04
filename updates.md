@@ -1,3 +1,7 @@
+**Trump Lures Foreign Investment With a Familiar Pitch: Show Me the Money**\
+`President Trump is using an “Art of the Deal” approach to get trading partners to hand over cash to lower their tariffs.`\
+https://nytimes.com/2025/08/04/us/politics/trump-tariffs-foreign-investment.html
+
 **Passengers Flee as Fire Breaks Out on New Jersey PATH Train**\
 `Port Authority officials said they are investigating the cause of a fire that broke out beneath a PATH commuter train in Jersey City, N.J., on Monday morning.`\
 https://nytimes.com/video/us/100000010322127/new-jersey-path-train-fire.html

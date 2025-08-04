@@ -1,3 +1,7 @@
+**Trump Lures Foreign Investment With a Familiar Pitch: Show Me the Money**\
+`President Trump is using an “Art of the Deal” approach to get trading partners to hand over cash to lower their tariffs.`\
+https://nytimes.com/2025/08/04/us/politics/trump-tariffs-foreign-investment.html
+
 **Passengers Flee as Fire Breaks Out on New Jersey PATH Train**\
 `Port Authority officials said they are investigating the cause of a fire that broke out beneath a PATH commuter train in Jersey City, N.J., on Monday morning.`\
 https://nytimes.com/video/us/100000010322127/new-jersey-path-train-fire.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/04/dining/dumpling-tomato-salad-and-more-easy-summer
 **Aaron Ramsdale to Newcastle: Everything you need to know - TLDR**\
 `Newcastle have brought in Southampton goalkeeper Aaron Ramsdale on loan, reuniting the player with Eddie Howe. Here we break down the deal`\
 https://nytimes.com/athletic/6534608/2025/08/04/aaron-ramsdale-newcastle-transfer-loan/
-
-**A Breaking Musical Is a Fringe Hit. Just Don’t Mention Raygun.**\
-`The Australian breaker tried to shut down a musical about her. Now, it’s attracting dancing crowds at the Edinburgh Festival Fringe.`\
-https://nytimes.com/2025/08/04/arts/dance/raygun-musical-edinburgh-fringe.html
 
