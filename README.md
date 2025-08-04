@@ -1,3 +1,7 @@
+**Fraudulent Scientific Papers Are Rapidly Increasing, Study Finds**\
+`A statistical analysis found that the number of fake journal articles being churned out by “paper mills” is doubling every year and a half.`\
+https://nytimes.com/2025/08/04/science/04hs-science-papers-fraud-research-paper-mills.html
+
 **A Love Story Cut Short Two Weeks After ‘I Do’**\
 `David Roach, the singer for the rock band Junkyard, died not long after marrying Jennifer Michael at the Buffett Cancer Center, where he was being treated for advanced metastatic cancer.`\
 https://nytimes.com/2025/08/04/style/david-roach-wedding-death-junkyard.html
@@ -29,12 +33,4 @@ https://nytimes.com/2025/08/04/opinion/trump-labor-dept-firing.html
 **Our President Is Economically Illiterate**\
 `The latest round of tariffs offers further evidence that Trump doesn’t understand how economies work.`\
 https://nytimes.com/2025/08/04/opinion/donald-trump-tariff-powell-economics.html
-
-**How an NFL contract dispute embroiled Jay-Z, Dez Bryant, and Nicki Minaj**\
-`The Micah Parsons contract dispute led to a wild back-and-forth involving a host of bold-faced names. `\
-https://nytimes.com/athletic/6534848/2025/08/04/micah-parsons-jerry-jones-dez-bryant-jay-z-nicki-minaj/
-
-**Fantasy baseball cheat sheet: Stream Soriano, add Vesia and other THE BAT X insights**\
-`The Athletic and THE BAT X have teamed up to bring readers a fantasy baseball cheat sheet to begin the week. `\
-https://nytimes.com/athletic/6534595/2025/08/04/fantasy-baseball-the-bat-x-soriano-vesia/
 
