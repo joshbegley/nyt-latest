@@ -1,3 +1,7 @@
+**Fraudulent Scientific Papers Are Rapidly Increasing, Study Finds**\
+`A statistical analysis found that the number of fake journal articles being churned out by “paper mills” is doubling every year and a half.`\
+https://nytimes.com/2025/08/04/science/04hs-science-papers-fraud-research-paper-mills.html
+
 **A Love Story Cut Short Two Weeks After ‘I Do’**\
 `David Roach, the singer for the rock band Junkyard, died not long after marrying Jennifer Michael at the Buffett Cancer Center, where he was being treated for advanced metastatic cancer.`\
 https://nytimes.com/2025/08/04/style/david-roach-wedding-death-junkyard.html
