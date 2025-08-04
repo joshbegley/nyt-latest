@@ -1,3 +1,19 @@
+**Texas Democrats Fled the State to Fight Redistricting**\
+`Also, Tesla offered Musk nearly $30 billion in stock. Here’s the latest at the end of Monday.`\
+https://nytimes.com/2025/08/04/briefing/texas-democrats-fled-the-state-to-fight-redistricting.html
+
+**Bird Flu May Be Airborne on Dairy Farms, Scientists Report**\
+`In unpublished research, researchers found live virus on equipment, in wastewater and in the air in so-called milking parlors.`\
+https://nytimes.com/2025/08/04/health/bird-flu-airborne.html
+
+**Sean Combs Is Denied Bail, and Will Remain Jailed Until Sentencing**\
+`The music mogul, who was convicted on two counts of transportation to engage in prostitution in July, had asked to be released before his sentencing on Oct. 3.`\
+https://nytimes.com/2025/08/04/arts/music/sean-combs-diddy-bail-denied.html
+
+**Broncos' Riley Moss eager for tests that come with playing opposite of 'DPOY'**\
+`Broncos coach Sean Payton said quarterback Bo Nix is "light years" ahead of where he was last year in terms of conveying messages in huddle.`\
+https://nytimes.com/athletic/6535302/2025/08/04/broncos-riley-moss-cornerback-pat-surtain/
+
 **7 Adults and 3-Year-Old Are Kidnapped From Haiti Orphanage**\
 `The abductees, including an Irish missionary who directs care for children with special needs, were taken from an orphanage serving about 270 children.`\
 https://nytimes.com/2025/08/04/world/americas/haiti-orphanage-kidnapping.html
