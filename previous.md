@@ -1,3 +1,11 @@
+**Brazil’s Supreme Court Places Bolsonaro Under House Arrest**\
+`Former President Jair Bolsonaro, whose case has partly motivated President Trump’s tariffs on Brazil, was ordered to remain under house arrest as he awaited trial.`\
+https://nytimes.com/2025/08/04/world/americas/brazil-bolsonaro-house-arrest.html
+
+**Elizabeth Warren, Campaigning for Mamdani, Scorns Cuomo and Billionaires**\
+`Zohran Mamdani, the Democratic candidate for mayor of New York City, appeared with Senator Elizabeth Warren to highlight his plan for free universal child care.`\
+https://nytimes.com/2025/08/04/nyregion/mamdani-elizabeth-warren-cuomo.html
+
 **Botafogo reach agreement to sign Bournemouth goalkeeper Neto**\
 `The 36-year-old Brazilian goalkeeper is scheduled to fly to Rio de Janeiro on Monday night and undergo a medical`\
 https://nytimes.com/athletic/6535337/2025/08/04/bournemouth-neto-transfer-news-botafogo/
@@ -29,14 +37,4 @@ https://nytimes.com/athletic/6535302/2025/08/04/broncos-riley-moss-cornerback-pa
 **7 Adults and 3-Year-Old Are Kidnapped From Haiti Orphanage**\
 `The abductees, including an Irish missionary who directs care for children with special needs, were taken from an orphanage serving about 270 children.`\
 https://nytimes.com/2025/08/04/world/americas/haiti-orphanage-kidnapping.html
-
-**Submit a question for Stewart Mandel's College Football Mailbag**\
-`<p>What&#8217;s on your mind this week?</p>
-<p>Please include your city.</p>
-`\
-https://nytimes.com/athletic/6535477/2025/08/04/submit-a-question-for-stewart-mandels-college-football-mailbag-309/
-
-**Emma Raducanu hires Francis Roig, longtime Rafael Nadal coach, through 2025**\
-`Roig, who was on Nadal's team for all 22 of his Grand Slam titles, is Raducanu's first formal coach since January this year.`\
-https://nytimes.com/athletic/6535509/2025/08/04/tennis-emma-raducanu-coach-francis-roig-rafael-nadal/
 
