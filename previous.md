@@ -1,3 +1,11 @@
+**How Is the Montana Shooting Suspect Still at Large? Check Out the Terrain.**\
+`Many manhunts end quickly, but the man accused of killing four people in rural Montana appears to have disappeared into the kind of wilderness that helps elude pursuers.`\
+https://nytimes.com/2025/08/04/us/montana-manhunt-terrain.html
+
+**Trump’s Deal-Making With Other Elite Schools Scrambles Harvard Negotiations**\
+`The university was open to spending $500 million, but a $50 million settlement with Brown has prompted new debates in Cambridge.`\
+https://nytimes.com/2025/08/04/us/politics/harvard-trump-brown.html
+
 **49ers abruptly pull plug on kicker competition as injuries hit RB, D-line**\
 `The two standouts on Monday: Receiver Ricky Pearsall and cornerback Upton Stout, who is pulling away in the nickel cornerback competition.`\
 https://nytimes.com/athletic/6535583/2025/08/04/49ers-kicker-competition-injuries-training-camp/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/08/04/world/americas/brazil-bolsonaro-house-arrest.html
 **Elizabeth Warren, Campaigning for Mamdani, Scorns Cuomo and Billionaires**\
 `Zohran Mamdani, the Democratic candidate for mayor of New York City, appeared with Senator Elizabeth Warren to highlight his plan for free universal child care.`\
 https://nytimes.com/2025/08/04/nyregion/mamdani-elizabeth-warren-cuomo.html
-
-**Botafogo reach agreement to sign Bournemouth goalkeeper Neto**\
-`The 36-year-old Brazilian goalkeeper is scheduled to fly to Rio de Janeiro on Monday night and undergo a medical`\
-https://nytimes.com/athletic/6535337/2025/08/04/bournemouth-neto-transfer-news-botafogo/
-
-**Amazon Shifts Its Podcast Strategy, Eliminating 100 Wondery Jobs**\
-`The tech giant is leaning more into video and the creator world.`\
-https://nytimes.com/2025/08/04/business/media/amazon-wondery-podcasts-layoffs.html
 
