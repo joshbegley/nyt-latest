@@ -1,3 +1,11 @@
+**Sean Combs Is Denied Bail, and Will Remain Jailed Until Sentencing**\
+`The music mogul, who was convicted in July of two counts of transportation to engage in prostitution, had asked to be released before his sentencing on Oct. 3.`\
+https://nytimes.com/2025/08/04/arts/music/sean-combs-diddy-bail-denied.html
+
+**Broncos' Riley Moss eager for tests that come with playing opposite of 'DPOY'**\
+`Broncos coach Sean Payton said quarterback Bo Nix is "light-years" ahead of where he was last year in terms of conveying messages in huddle.`\
+https://nytimes.com/athletic/6535302/2025/08/04/broncos-riley-moss-cornerback-pat-surtain/
+
 **Isaac Paredes opts for rehab over surgery; return this season still unlikely**\
 `Paredes has been out since July 19. The Astros added Carlos Correa and Ramón Urías at the deadline in anticipation of a prolonged absence.`\
 https://nytimes.com/athletic/6535350/2025/08/04/isaac-paredes-astros-hamstring-injury/
