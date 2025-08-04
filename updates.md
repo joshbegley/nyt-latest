@@ -1,3 +1,15 @@
+**Going Head to Head on YouTube to Elevate Manufacturing**\
+`This reality show is short on scandal, betrayal and tears. But for those competing for a $100,000 prize, the stakes are still high.`\
+https://nytimes.com/2025/08/04/business/clash-of-trades-manufacturing.html
+
+**NCAA Tournament won't expand in 2026, but discussions to continue for 2027**\
+`The conversation about whether to expand the tournaments to 72 or 76 teams has been ongoing and will continue into the fall.`\
+https://nytimes.com/athletic/6535176/2025/08/04/ncaa-tournament-no-expansion-2026/
+
+**FEMA will deny disaster funding to states and cities that boycott Israeli firms under new grant rules.**\
+`By Maxine Joselow`\
+https://nytimes.com/live/2025/08/04/us/trump-news/fema-will-deny-disaster-funding-to-states-and-cities-that-boycott-israeli-firms-under-new-grant-rules
+
 **With Texans in Tow, Hochul Vows to Redraw New York’s House Maps**\
 `New York’s governor welcomed state legislators who fled Texas to thwart a Republican gerrymander but said she would try to draft one of her own to bolster Democrats.`\
 https://nytimes.com/2025/08/04/us/hochul-new-york-texas-redistricting.html
