@@ -1,3 +1,7 @@
+**Russian Nuclear Submarine Base Was Damaged in Quake, Satellite Images Show**\
+`The Rybachiy base, which hosts nuclear-powered submarines from Russia’s Pacific Fleet, lies in a cove about 80 miles from the powerful earthquake that struck near the Kamchatka peninsula last week.`\
+https://nytimes.com/2025/08/04/world/europe/russia-earthquake-nuclear-submarine-damage.html
+
 **Smoke Causes Poor Air Quality Across Canada, the Great Lakes and Northeastern U.S.**\
 `Wildfires burning in Canada were causing unhealthy air quality across parts of North America on Monday.`\
 https://nytimes.com/2025/08/04/weather/wildfire-smoke-air-quality-toronto-new-york.html
@@ -11,7 +15,7 @@ https://nytimes.com/athletic/6534791/2025/08/04/callum-wilson-west-ham-newcastle
 https://nytimes.com/2025/08/04/business/media/new-york-post-california.html
 
 **Texas opens at No. 1 in Coaches Poll, with OSU, Penn State, Georgia chasing**\
-`Last year, only 12 of the preseason top 25 finished in the final Coaches Poll.`\
+`Last year, only 12 of the preseason top 25 finished ranked in the postseason Coaches Poll.`\
 https://nytimes.com/athletic/6534866/2025/08/04/college-football-coaches-poll-texas-top-25/
 
 **3 Salad Dressings You Should Memorize**\
@@ -33,8 +37,4 @@ https://nytimes.com/newsgraphics/card-story/outdoor-workout-activities-list
 **University of Virginia Appoints Interim President After Ouster**\
 `The university is turning to a former law school dean to lead the school as it faces pressure from Republicans in both Virginia and Washington, D.C.`\
 https://nytimes.com/2025/08/04/us/politics/university-virginia-appoints-interim-president.html
-
-**At ‘Alligator Alcatraz,’ the Biggest Risk Isn’t Alligators.**\
-`The area around the immigrant detention center, deep in the Everglades, is threatened by hurricanes, extreme heat and even wildfires.`\
-https://nytimes.com/interactive/2025/08/04/climate/alligator-alcatraz-hurricanes-storms.html
 
