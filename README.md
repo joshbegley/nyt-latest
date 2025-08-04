@@ -1,3 +1,7 @@
+**How an NFL contract dispute embroiled Jay-Z, Dez Bryant, and Nicki Minaj**\
+`The Micah Parsons contract dispute led to a wild back-and-forth involving a host of bold-faced names. `\
+https://nytimes.com/athletic/6534848/2025/08/04/micah-parsons-jerry-jones-dez-bryant-jay-z-nicki-minaj/
+
 **Fantasy baseball cheat sheet: Stream Soriano, add Vesia and other THE BAT X insights**\
 `The Athletic and THE BAT X have teamed up to bring readers a fantasy baseball cheat sheet to begin the week. `\
 https://nytimes.com/athletic/6534595/2025/08/04/fantasy-baseball-the-bat-x-soriano-vesia/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/04/world/europe/russia-earthquake-nuclear-submarine-
 **Smoke Causes Poor Air Quality Across Canada, the Great Lakes and Northeastern U.S.**\
 `Wildfires burning in Canada were causing unhealthy air quality across parts of North America on Monday.`\
 https://nytimes.com/2025/08/04/weather/wildfire-smoke-air-quality-toronto-new-york.html
-
-**Callum Wilson to West Ham: Everything you need to know - TLDR**\
-`West Ham have signed the striker on a free transfer after he left Newcastle - here, we break down the deal`\
-https://nytimes.com/athletic/6534791/2025/08/04/callum-wilson-west-ham-newcastle/
 
