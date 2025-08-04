@@ -1,3 +1,11 @@
+**Minimum Wage in L.A. Could Rise to $30 an Hour. Just Enough or Too Much?**\
+`A union-backed effort would boost wages for hotel and airport workers. But with tourism down, and the city in a slump, hotel owners fear for their survival.`\
+https://nytimes.com/2025/08/04/business/minimum-wage-olympics-losangeles.html
+
+**Avoiding Ultraprocessed Foods Might Double Weight Loss**\
+`In a new trial, people consumed more calories and had more cravings when they ate ultraprocessed foods.`\
+https://nytimes.com/2025/08/04/well/eat/avoiding-ultraprocessed-foods-might-double-weight-loss.html
+
 **Shooting in Downtown Los Angeles Leaves 2 Dead and 6 Wounded, Police Say**\
 `The shooting happened at an unsanctioned after-party following the Hard Summer Music Festival, which featured electronic dance music.`\
 https://nytimes.com/2025/08/04/us/la-hard-summer-music-festival-shooting.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/08/04/us/texas-redistricting.html
 **Scoop City: Risers, fallers and contract struggles as preseason begins**\
 `Two young Giants lead our early preseason risers, plus what's next for Micah Parsons and the curious case of Terry McLaurin's contract`\
 https://nytimes.com/athletic/6534799/2025/08/04/nfl-preseason-risers-fallers-terry-mclaurin-giants-scoop-city/
-
-**Trump Lures Foreign Investment With a Familiar Pitch: Show Me the Money**\
-`President Trump is using an “Art of the Deal” approach to get trading partners to hand over cash to lower their tariffs.`\
-https://nytimes.com/2025/08/04/us/politics/trump-tariffs-foreign-investment.html
-
-**Passengers Flee as Fire Breaks Out on New Jersey PATH Train**\
-`Port Authority officials said they are investigating the cause of a fire that broke out beneath a PATH commuter train in Jersey City, N.J., on Monday morning.`\
-https://nytimes.com/video/us/100000010322127/new-jersey-path-train-fire.html
 

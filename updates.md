@@ -1,3 +1,11 @@
+**Minimum Wage in L.A. Could Rise to $30 an Hour. Just Enough or Too Much?**\
+`A union-backed effort would boost wages for hotel and airport workers. But with tourism down, and the city in a slump, hotel owners fear for their survival.`\
+https://nytimes.com/2025/08/04/business/minimum-wage-olympics-losangeles.html
+
+**Avoiding Ultraprocessed Foods Might Double Weight Loss**\
+`In a new trial, people consumed more calories and had more cravings when they ate ultraprocessed foods.`\
+https://nytimes.com/2025/08/04/well/eat/avoiding-ultraprocessed-foods-might-double-weight-loss.html
+
 **Shooting in Downtown Los Angeles Leaves 2 Dead and 6 Wounded, Police Say**\
 `The shooting happened at an unsanctioned after-party following the Hard Summer Music Festival, which featured electronic dance music.`\
 https://nytimes.com/2025/08/04/us/la-hard-summer-music-festival-shooting.html
