@@ -1,3 +1,7 @@
+**With Texans in Tow, Hochul Vows to Redraw New York’s House Maps**\
+`New York’s governor welcomed state legislators who fled Texas to thwart a Republican gerrymander but said she would try to draft one of her own to bolster Democrats.`\
+https://nytimes.com/2025/08/04/us/hochul-new-york-texas-redistricting.html
+
 **Unwanted Facts: The Labor Dept. Firing**\
 `Readers respond to President Trump’s firing of the commissioner of the Bureau of Labor Statistics, Erika McEntarfer. Also: Family rifts over politics.`\
 https://nytimes.com/2025/08/04/opinion/trump-labor-dept-firing.html
