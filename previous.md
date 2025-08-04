@@ -1,3 +1,11 @@
+**Gifford Fire Burns Nearly 50,000 Acres in California’s Los Padres Forest**\
+`The blaze injured three people, put hundreds under evacuation orders and threatened 460 structures, officials said.`\
+https://nytimes.com/2025/08/04/us/gifford-fire-california-los-padres-forest.html
+
+**Fantasy football 2025 backup running back rankings, from David Montgomery to Nick Chubb**\
+`KC Joyner gives his takes on the best backup running backs ahead of the 2025 fantasy football season. `\
+https://nytimes.com/athletic/6527143/2025/08/04/fantasy-football-2025-backup-running-back-rankings-david-montgomery/
+
 **An Oval Office Replica Opens, Without Trump’s Gilded Flourishes**\
 `The White House Historical Association recently unveiled its replica of President Trump’s Oval Office, but it mirrors the office from his first term, before he festooned it with gold.`\
 https://nytimes.com/2025/08/04/us/politics/trump-oval-office-gold-replica.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/08/04/opinion/tyler-childers.html
 **Democrats Disagree (Again). This Time, It’s About School Vouchers.**\
 `A moderate group that has tried to rally Democrats around school choice faces divisions over private-school vouchers.`\
 https://nytimes.com/2025/08/04/us/democrats-for-education-reform-school-vouchers.html
-
-**You Are Contaminated**\
-`The toxic byproducts of human civilization are everywhere. Even in our bodies.`\
-https://nytimes.com/2025/08/04/opinion/contamination-exposome.html
-
-**One Easy Rule: If You Admire It, It’s Worth Collecting**\
-`An Australian businessman built a house so he could enjoy his eclectic range of furniture, accessories and art every day.`\
-https://nytimes.com/2025/08/04/realestate/victoria-australia-insect-armor-collections.html
 
