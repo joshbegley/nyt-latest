@@ -1,3 +1,7 @@
+**FIFA facing lawsuit from Justice for Players group over transfer rules**\
+`The Amsterdam-based Justice for Players (JfP) is the first group to attempt legal action against world football’s governing body.`\
+https://nytimes.com/athletic/6535257/2025/08/04/fifa-lawsuit-players-transfer-rules/
+
 **Razia Jan, 81, Who Built an Enduring Girls’ School in Afghanistan, Dies**\
 `Before 9/11, she ran a dry cleaning business in Massachusetts; in the aftermath, she returned home after decades away to educate young girls.`\
 https://nytimes.com/2025/08/04/world/razia-jan-dead.html
