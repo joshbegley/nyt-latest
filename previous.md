@@ -1,3 +1,31 @@
+**A Breaking Musical Is a Fringe Hit. Just Don’t Mention Raygun.**\
+`The Australian breaker tried to shut down a musical about her. Now, it’s attracting dancing crowds at the Edinburgh Festival Fringe.`\
+https://nytimes.com/2025/08/04/arts/dance/raygun-musical-edinburgh-fringe.html
+
+**‘Game, Set, Matchmaker’? The U.S. Open Gets Into the Dating Game.**\
+`The series is scheduled to stream on YouTube during this year’s tournament.`\
+https://nytimes.com/2025/08/04/style/us-open-matchmaker-dating-show.html
+
+**Kemp Ally Enters Senate Race Seeking to Challenge Jon Ossoff in Georgia**\
+`Derek Dooley, a former football coach, cast himself as an outsider candidate as the Republican primary field for a marquee midterm contest takes shape.`\
+https://nytimes.com/2025/08/04/us/politics/derek-dooley-jon-ossoff-georgia-senate.html
+
+**Speedway Classic, despite logistical issues, broke attendance mark that stood since '54**\
+`The previous MLB milestone for most regular-season game tickets sold was from a Yankees visit to Cleveland`\
+https://nytimes.com/athletic/6534672/2025/08/04/speedway-classic-attendance-record-mlb/
+
+**gws-health-effects-bread-europe-united-states**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/health-effects-bread-europe-united-states
+
+**More than 140 Migrants Feared Dead in Boat Disaster Near Yemen**\
+`The vessel capsized along a heavily traveled but treacherous route for Africans transiting the war-torn country to find work in the rich Gulf states.`\
+https://nytimes.com/2025/08/04/world/middleeast/yemen-migrant-boat-capsized.html
+
+**gws-chinese-food-urbana-champaign-student-visa**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/chinese-food-urbana-champaign-student-visa
+
 **gws-home-schooling-movemen**\
 `(No description)`\
 https://nytimes.com/newsgraphics/card-story/home-schooling-movement
@@ -9,32 +37,4 @@ https://nytimes.com/athletic/6083381/2025/08/04/ruben-dias-manchester-city-contr
 **Ranking the 10 greatest goals of Sidney Crosby's career**\
 `In a career full of awe-inspiring goals, these are Crosby's 10 finest.`\
 https://nytimes.com/athletic/6523413/2025/08/04/penguins-sidney-crosby-best-goals-nhl/
-
-**The Windup: Deadline fallout colors wild MLB weekend**\
-`Welcome to The Windup, The Athletic's MLB newsletter.`\
-https://nytimes.com/athletic/6534257/2025/08/04/yankees-marlins-trade-deadline-the-windup/
-
-**Lyft Will Use Chinese Driverless Cars in Britain and Germany**\
-`Lyft and Baidu plan to start service early next year, joining Uber and Momenta in using electric cars from China, which are the least expensive even with tariffs.`\
-https://nytimes.com/2025/08/04/business/lyft-baidu-driverless-cars-europe.html
-
-**Fire Breaks Out Beneath PATH Train in Jersey City**\
-`Thirteen people were treated for smoke inhalation after the fire ignited early Monday morning. Service was suspended on two lines.`\
-https://nytimes.com/2025/08/04/nyregion/nj-path-train-fire.html
-
-**Three things to watch for during the final 2 months of the Giants' season**\
-`The Giants are likely out of the postseason hunt but there are still plenty of reasons to keep close tabs on the rest of their season.`\
-https://nytimes.com/athletic/6533515/2025/08/04/sf-giants-post-trade-deadline-goals/
-
-**‘Victim-3’ in Sean Combs Indictment Argues for His Release From Jail**\
-`Once part of the government’s case against the music mogul, a former girlfriend wrote to a judge in support of Mr. Combs’s request for bail ahead of sentencing.`\
-https://nytimes.com/2025/08/04/arts/music/sean-combs-diddy-victim-3-virginia-huynh-bail.html
-
-**Heather Cox Richardson Enters the History of ‘Lincoln Portrait’**\
-`Cox Richardson, the historian behind the newsletter Letters From an American, discusses preparing for the narrator role in Aaron Copland’s piece.`\
-https://nytimes.com/2025/08/04/arts/music/heather-cox-richardson-lincoln-portrait.html
-
-**At Edinburgh Fringe, the Streets Are Alive**\
-`Thousands of performers were hawking their shows on the first weekend of the Scottish arts extravaganza.`\
-https://nytimes.com/2025/08/04/theater/edinburgh-fringe-photos.html
 
