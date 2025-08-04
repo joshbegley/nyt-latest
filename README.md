@@ -1,3 +1,11 @@
+**Jhoan Duran is a ninth-inning luxury for Phillies and already a game-changer**\
+`Duran could not have made a better first impression. He's faced six batters with the Phillies and retired all six.`\
+https://nytimes.com/athletic/6534145/2025/08/04/jhoan-duran-phillies-closer-tigers/
+
+**Naomi Osaka's Canadian Open run and the tennis version of the new manager bounce**\
+`Osaka's run at the Canadian Open is a promising sign for the hard-court season, but sustaining it is the real challenge.`\
+https://nytimes.com/athletic/6531820/2025/08/04/tennis-naomi-osaka-new-coach-canadian-open/
+
 **Vikings training camp takeaways: J.J. McCarthy's recent performance and more observations**\
 `The young quarterback has had his ups and downs in training camp, but coach Kevin O'Connell seems more excited than concerned.`\
 https://nytimes.com/athletic/6533483/2025/08/04/vikings-training-camp-jj-mccarthy/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6534204/2025/08/04/lewis-hamilton-ferrari-frustrati
 **UDFAs know the odds, and they don't care. Get to know 2 Colts determined to defy expectations**\
 `Every NFL training camp has an underdog story or two you can root for. These are the Colts’.`\
 https://nytimes.com/athletic/6533757/2025/08/04/colts-udfa-tyler-kahmann-devonta-davis/
-
-**WNBA power rankings: Are the Indiana Fever contenders again?**\
-`Sabreena Merchant breaks down the league: What's led to Naz Hillmon's improved 3-point shooting? What's Emma Meesseman bring to the Liberty?`\
-https://nytimes.com/athletic/6534200/2025/08/04/wnba-power-rankings-indiana-fever-contenders/
-
-**Trump’s Texas Power Grab**\
-`Why dozens of Democratic politicians just fled their own state.`\
-https://nytimes.com/2025/08/04/podcasts/the-daily/trump-texas-democrats-gerrymandering.html
 

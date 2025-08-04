@@ -1,40 +1,40 @@
-**From Triumph in Iran to Starvation in Gaza: Netanyahu Squanders His Moment to Halt the War**\
-`Six weeks after Benjamin Netanyahu scored a victory over Iran, the Israeli leader is now pushing for an “all or nothing” deal with Hamas. But he has not made the compromises needed to make it happen.`\
-https://nytimes.com/2025/08/04/world/middleeast/israel-gaza-netanyahu.html
+**Vikings training camp takeaways: J.J. McCarthy's recent performance and more observations**\
+`The young quarterback has had his ups and downs in training camp, but coach Kevin O'Connell seems more excited than concerned.`\
+https://nytimes.com/athletic/6533483/2025/08/04/vikings-training-camp-jj-mccarthy/
 
-**The New York Times International Edition in Print for Tuesday, Aug. 5, 2025**\
-``\
-https://nytimes.com/issue/todaysinyt/2025/08/04/todays-new-york-times-international-edition
+**Cowboys standouts: 10 players making strong impressions through first half of camp**\
+`Some of the Cowboys' offensive playmakers — CeeDee Lamb, George Pickens, KaVontae Turpin and rookie Jaydon Blue — look ready for Week 1.`\
+https://nytimes.com/athletic/6533887/2025/08/04/dallas-cowboys-training-camp-ceedee-lamb/
 
-**A Weakened Hezbollah Resists Pressure to Give Up Its Weapons**\
-`The Lebanese militant group has lost much of its power since the recent war with Israel. But it is balking at demands to surrender whatever is left of its once formidable arsenal.`\
-https://nytimes.com/2025/08/04/world/middleeast/hezbollah-weapons-lebanon.html
+**Trump ‘Wants His Own People’ in Charge of Jobs Data, and the Ex-Fox Host Turned U.S. Attorney**\
+`Plus, why airlines are making everything “premium.”`\
+https://nytimes.com/2025/08/04/podcasts/the-headlines/trump-jobs-data-us-attorney-dc.html
 
-**Gifford Fire Burns Nearly 50,000 Acres in California’s Los Padres Forest**\
-`The blaze injured three people, put hundreds under evacuation orders and threatened 460 structures, officials said.`\
-https://nytimes.com/2025/08/04/us/gifford-fire-california-los-padres-forest.html
+**Steelers camp observations: 4 concerns emerging for Aaron Rodgers and offense**\
+`What's wrong with the offense? The run game is struggling, there are gaps in the passing game and offensive line concerns.`\
+https://nytimes.com/athletic/6533796/2025/08/04/steelers-aaron-rodgers-offense/
 
-**Fantasy football 2025 backup running back rankings, from David Montgomery to Nick Chubb**\
-`KC Joyner gives his takes on the best backup running backs ahead of the 2025 fantasy football season. `\
-https://nytimes.com/athletic/6527143/2025/08/04/fantasy-football-2025-backup-running-back-rankings-david-montgomery/
+**Receiving corps deeper and faster: 7 things we've learned about the Panthers in camp**\
+`Bryce Young looks to be in a much better place this year and the added playmakers on offense helps.`\
+https://nytimes.com/athletic/6533724/2025/08/04/carolina-panthers-training-camp/
 
-**An Oval Office Replica Opens, Without Trump’s Gilded Flourishes**\
-`The White House Historical Association recently unveiled its replica of President Trump’s Oval Office, but it mirrors the office from his first term, before he festooned it with gold.`\
-https://nytimes.com/2025/08/04/us/politics/trump-oval-office-gold-replica.html
+**Ravens are showing faith in Tyler Loop, and the rookie kicker is delivering**\
+`Plus, cornerback Jaire Alexander continues to look right at home in Baltimore. `\
+https://nytimes.com/athletic/6533892/2025/08/04/ravens-training-camp-tyler-loop/
 
-**As the Supreme Court Focuses on the Past, Historians Turn to Advocacy**\
-`Spikes in the number and influence of briefs filed by historians have prompted questions about the role scholars should play in litigation.`\
-https://nytimes.com/2025/08/04/us/politics/supreme-court-historians-advocacy.html
+**Lewis Hamilton is frustrated and struggling in F1 2025. How concerned should Ferrari be?**\
+`Lewis Hamilton called himself "useless" after a poor showing in the 2025 Hungarian GP. Now he has F1's summer break to find improvements`\
+https://nytimes.com/athletic/6534204/2025/08/04/lewis-hamilton-ferrari-frustration-f1/
 
-**Democratic Group Calls on Blue States to Draw New House Maps**\
-`The Democratic Legislative Campaign Committee is pressing legislatures to counter Republicans’ redistricting efforts in Texas and elsewhere.`\
-https://nytimes.com/2025/08/04/us/politics/democrats-redistricting.html
+**UDFAs know the odds, and they don't care. Get to know 2 Colts determined to defy expectations**\
+`Every NFL training camp has an underdog story or two you can root for. These are the Colts’.`\
+https://nytimes.com/athletic/6533757/2025/08/04/colts-udfa-tyler-kahmann-devonta-davis/
 
-**This Attack on a Federal Judge Is Preposterous**\
-`Once again, it looks like Pam Bondi’s Justice Department is attempting to undermine the rule of law.`\
-https://nytimes.com/2025/08/04/opinion/trump-bondi-judge-boasberg.html
+**WNBA power rankings: Are the Indiana Fever contenders again?**\
+`Sabreena Merchant breaks down the league: What's led to Naz Hillmon's improved 3-point shooting? What's Emma Meesseman bring to the Liberty?`\
+https://nytimes.com/athletic/6534200/2025/08/04/wnba-power-rankings-indiana-fever-contenders/
 
-**Is My Wardrobe Stuck in the Past?**\
-`It can be hard to know when to let go of a beloved piece of clothing — like a go-to jumpsuit. Our critic offers tips for giving old clothing new life.`\
-https://nytimes.com/2025/08/04/fashion/clothes-old-refresh.html
+**Trump’s Texas Power Grab**\
+`Why dozens of Democratic politicians just fled their own state.`\
+https://nytimes.com/2025/08/04/podcasts/the-daily/trump-texas-democrats-gerrymandering.html
 
