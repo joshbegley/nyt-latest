@@ -1,3 +1,7 @@
+**Texas Democrats Leave State to Block Vote on Redrawn Political Map**\
+`The departure was a last-ditch attempt to stop Republicans from adopting an aggressively redrawn congressional map, which would flip five Democratic congressional districts to favor Republicans.`\
+https://nytimes.com/video/us/politics/100000010321830/texas-democrats-leave-state-to-block-vote-on-redrawn-political-map.html
+
 **49ers Q&A: Chris Foerster talks Ben Bartch, Connor Colby, swing tackle situation**\
 `Who's winning the competition at left guard? Why is Spencer Burford only getting snaps at left tackle? Foerster addresses it all.`\
 https://nytimes.com/athletic/6533753/2025/08/04/49ers-offensive-line-chris-foerster/
