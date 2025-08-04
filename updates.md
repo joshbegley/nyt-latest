@@ -1,3 +1,11 @@
+**Botafogo reach agreement to sign Bournemouth goalkeeper Neto**\
+`The 36-year-old Brazilian goalkeeper is scheduled to fly to Rio de Janeiro on Monday night and undergo a medical`\
+https://nytimes.com/athletic/6535337/2025/08/04/bournemouth-neto-transfer-news-botafogo/
+
+**Amazon Shifts Its Podcast Strategy, Eliminating 100 Wondery Jobs**\
+`The tech giant is leaning more into video and the creator world.`\
+https://nytimes.com/2025/08/04/business/media/amazon-wondery-podcasts-layoffs.html
+
 **Sean Combs Is Denied Bail, and Will Remain Jailed Until Sentencing**\
 `The music mogul, who was convicted in July of two counts of transportation to engage in prostitution, had asked to be released before his sentencing on Oct. 3.`\
 https://nytimes.com/2025/08/04/arts/music/sean-combs-diddy-bail-denied.html
