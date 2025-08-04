@@ -1,3 +1,11 @@
+**Russian Nuclear Submarine Base Was Damaged in Quake, Satellite Images Show**\
+`The Rybachiy base, which hosts nuclear-powered submarines from Russia’s Pacific Fleet, lies in a cove about 80 miles from the powerful earthquake that struck near the Kamchatka peninsula last week.`\
+https://nytimes.com/2025/08/04/world/europe/russia-earthquake-nuclear-submarine-damage.html
+
+**Texas opens at No. 1 in Coaches Poll, with OSU, Penn State, Georgia chasing**\
+`Last year, only 12 of the preseason top 25 finished ranked in the postseason Coaches Poll.`\
+https://nytimes.com/athletic/6534866/2025/08/04/college-football-coaches-poll-texas-top-25/
+
 **Smoke Causes Poor Air Quality Across Canada, the Great Lakes and Northeastern U.S.**\
 `Wildfires burning in Canada were causing unhealthy air quality across parts of North America on Monday.`\
 https://nytimes.com/2025/08/04/weather/wildfire-smoke-air-quality-toronto-new-york.html
