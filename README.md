@@ -1,3 +1,7 @@
+**Texas Democrats Leave State to Block Vote on Redrawn Political Map**\
+`The departure was a last-ditch attempt to stop Republicans from adopting an aggressively redrawn congressional map, which would flip five Democratic congressional districts to favor Republicans.`\
+https://nytimes.com/video/us/politics/100000010321830/texas-democrats-leave-state-to-block-vote-on-redrawn-political-map.html
+
 **49ers Q&A: Chris Foerster talks Ben Bartch, Connor Colby, swing tackle situation**\
 `Who's winning the competition at left guard? Why is Spencer Burford only getting snaps at left tackle? Foerster addresses it all.`\
 https://nytimes.com/athletic/6533753/2025/08/04/49ers-offensive-line-chris-foerster/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/04/us/politics/witkoff-putin-russia-trump-ukraine.ht
 **Everton in talks over transfer for Chelsea's Dewsbury-Hall**\
 `Chelsea will only consider a permanent sale and will demand a fee of around £30million for the former Leicester midfielder.`\
 https://nytimes.com/athletic/6077722/2025/08/04/kiernan-dewsbury-hall-chelsea-transfer/
-
-**Tesla Awards ‘Good Faith’ Shares to Musk Worth $29 Billion**\
-`The “interim” package announced on Monday was intended to help retain Elon Musk, whose previous pay plan was invalidated by a judge. The car maker’s chief has hinted that he needed a larger stake in the company.`\
-https://nytimes.com/2025/08/04/business/tesla-elon-musk-29-billion.html
 
