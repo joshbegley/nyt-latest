@@ -1,3 +1,15 @@
+**Nottingham Forest close to signing former Norwich goalkeeper Gunn**\
+`The Scotland international is a free agent after seeing his contract expire at Carrow Road this summer.`\
+https://nytimes.com/athletic/6535293/2025/08/04/nottingham-forest-transfer-angus-gunn/
+
+**Judges Openly Doubt Government as Justice Dept. Misleads and Dodges Orders**\
+`Legal experts say such concern from the bench could have a more systemic effect, eroding the healthy functioning of the courts.`\
+https://nytimes.com/2025/08/04/us/politics/trump-justice-department-judges-courts.html
+
+**A Rare Copy of ‘The Hobbit’ Is Found on an Unassuming Shelf**\
+`Bidding for the Tolkien classic, which was discovered in a home in Bristol, England, has already exceeded $25,000.`\
+https://nytimes.com/2025/08/04/world/europe/the-hobbit-first-edition-bristol-auction.html
+
 **FIFA facing lawsuit from Justice for Players group over transfer rules**\
 `The Amsterdam-based Justice for Players (JfP) is the first group to attempt legal action against world football’s governing body.`\
 https://nytimes.com/athletic/6535257/2025/08/04/fifa-lawsuit-players-transfer-rules/
@@ -21,16 +33,4 @@ https://nytimes.com/video/us/politics/100000010322337/texas-map-redistricting-de
 **Fraudulent Scientific Papers Are Rapidly Increasing, Study Finds**\
 `A statistical analysis found that the number of fake journal articles being churned out by “paper mills” is doubling every year and a half.`\
 https://nytimes.com/2025/08/04/science/04hs-science-papers-fraud-research-paper-mills.html
-
-**A Love Story Cut Short Two Weeks After ‘I Do’**\
-`David Roach, the singer for the rock band Junkyard, died not long after marrying Jennifer Michael at the Buffett Cancer Center, where he was being treated for advanced metastatic cancer.`\
-https://nytimes.com/2025/08/04/style/david-roach-wedding-death-junkyard.html
-
-**House Democrats Renew Effort Calling for Palestinian Statehood**\
-`More than a dozen progressive lawmakers had signed onto a draft letter, but a lack of Republican support meant it was unlikely to affect policy decisions by the Trump administration.`\
-https://nytimes.com/2025/08/04/us/politics/house-democrats-palestinian-statehood.html
-
-**On a YouTube Show, Making Machine Parts for Glory and $100,000**\
-`This reality show is short on scandal, betrayal and tears, and has an unusual aim: Elevating U.S. manufacturing.`\
-https://nytimes.com/2025/08/04/business/clash-of-trades-manufacturing.html
 
