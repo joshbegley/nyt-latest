@@ -1,3 +1,7 @@
+**Villa's summer of uncertainty is not ideal preparation for a new season**\
+`The Emery era has tended to be adept in managing turbulence — how his side start the season proper will be another test of such resolve`\
+https://nytimes.com/athletic/6529677/2025/08/04/aston-villas-summer-of-uncertainty-is-not-ideal-preparation-for-a-new-premier-league-season/
+
 **Fantasy Premier League: The best budget enablers for the 2025-26 season**\
 `Picking cheap assets that play plenty of minutes is one of the most crucial elements of building an FPL squad - so who fits the bill?`\
 https://nytimes.com/athletic/6517226/2025/08/04/fantasy-premier-league-budget-enablers/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6524643/2025/08/04/football-names-clubs-managers-ar
 **The Premier League is two weeks from starting, but the FA Cup has already begun**\
 `The FA Cup might conclude in May next year but the extra preliminary round began over the weekend`\
 https://nytimes.com/athletic/6478126/2025/08/04/fa-cup-fisher-canary-wharfe-mayflower/
-
-**Quote of the Day: 10,000 Steps? A Nice, Round Number, but Not the Magic One.**\
-`Quotation of the Day for Monday, August 4, 2025.`\
-https://nytimes.com/2025/08/04/pageoneplus/quote-of-the-day-10000-steps-a-nice-round-number-but-not-the-magic-one.html
 
