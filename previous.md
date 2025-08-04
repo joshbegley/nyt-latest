@@ -1,3 +1,15 @@
+**The New York Times in Print for Monday, Aug. 4, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/08/04/todays-new-york-times
+
+**I Was Banished by My Country’s Dictator. What Happened to Me Is a Warning.**\
+`Thousands of dissidents have fled Daniel Ortega’s Nicaragua — and now, even those of us in exile no longer feel safe.`\
+https://nytimes.com/2025/08/04/opinion/nicaragua-ortega-dictatorship-exile.html
+
+**Las Culturistas Culture Awards, Plus 5 Things to Watch on TV This Week**\
+`Bravo airs the ceremony hosted by Bowen Yang and Matt Rogers. And Apple TV+ releases the second season of “Platonic.”`\
+https://nytimes.com/2025/08/04/arts/television/las-culturistas-awards-shows-platonic.html
+
 **Monday Briefing: An ‘All or Nothing’ Gaza Deal**\
 `Also, Catholic influencers.`\
 https://nytimes.com/2025/08/04/briefing/gaza-trump-tariffs-lesotho-putin-russia-censorship.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6532615/2025/08/04/premier-league-american-ownershi
 **Charlie Patino’s new home from home – and his advice for Arsenal youngsters**\
 `The 21-year-old left north London last summer in a £1m move to Deportivo La Coruna`\
 https://nytimes.com/athletic/6529907/2025/08/04/charlie-patino-arsenal-deportivo-interview/
-
-**Copa America Femenina: The players delivered, will those in charge now do the same?**\
-`The tournament’s fairytale ending came in stark contrast to its low points - namely a series of questionable decisions by the organizers`\
-https://nytimes.com/athletic/6533009/2025/08/04/copa-america-femenina-2025/
-
-**'You’ve got to put yourself out there' - Why former England cricketer Tymal Mills is on OnlyFans**\
-`OnlyFans says it has many professional athletes as porn stars on the platform, Mills is just the latest`\
-https://nytimes.com/athletic/6531734/2025/08/04/cricketer-tymal-mills-onlyfans/
-
-**Arsenal Wenger, James Trafford and the players and managers destined for clubs... because of their names**\
-`Nominative determinism. It's a thing — and might also be a thing in football`\
-https://nytimes.com/athletic/6524643/2025/08/04/football-names-clubs-managers-arsenal-wenger/
 

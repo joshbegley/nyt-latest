@@ -1,3 +1,7 @@
+**Woman Arrested After Toddler Found Stowed in Suitcase in New Zealand**\
+`The 2-year-old girl was discovered Sunday in the luggage compartment of a bus after the driver noticed the suitcase moving, the police said.`\
+https://nytimes.com/2025/08/04/world/new-zealand-suitcase-toddler-bus.html
+
 **The New York Times in Print for Monday, Aug. 4, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/08/04/todays-new-york-times
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6522100/2025/08/04/son-heung-min-is-tottenham-totte
 **The challenges facing U.S. owners of Premier League clubs: 'You cannot bastardise the beautiful game'**\
 `A leading executive at Bournemouth on the complex challenges that come with being a U.S. custodian of an English top-flight club`\
 https://nytimes.com/athletic/6532615/2025/08/04/premier-league-american-ownership-bournemouth/
-
-**Charlie Patino’s new home from home – and his advice for Arsenal youngsters**\
-`The 21-year-old left north London last summer in a £1m move to Deportivo La Coruna`\
-https://nytimes.com/athletic/6529907/2025/08/04/charlie-patino-arsenal-deportivo-interview/
 

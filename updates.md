@@ -1,3 +1,15 @@
+**The New York Times in Print for Monday, Aug. 4, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/08/04/todays-new-york-times
+
+**I Was Banished by My Country’s Dictator. What Happened to Me Is a Warning.**\
+`Thousands of dissidents have fled Daniel Ortega’s Nicaragua — and now, even those of us in exile no longer feel safe.`\
+https://nytimes.com/2025/08/04/opinion/nicaragua-ortega-dictatorship-exile.html
+
+**Las Culturistas Culture Awards, Plus 5 Things to Watch on TV This Week**\
+`Bravo airs the ceremony hosted by Bowen Yang and Matt Rogers. And Apple TV+ releases the second season of “Platonic.”`\
+https://nytimes.com/2025/08/04/arts/television/las-culturistas-awards-shows-platonic.html
+
 **Monday Briefing: An ‘All or Nothing’ Gaza Deal**\
 `Also, Catholic influencers.`\
 https://nytimes.com/2025/08/04/briefing/gaza-trump-tariffs-lesotho-putin-russia-censorship.html
