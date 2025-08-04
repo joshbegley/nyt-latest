@@ -1,3 +1,7 @@
+**Tyler Dibling: Everton table improved bid for Southampton winger**\
+`Southampton are yet to respond to the offer but they are seeking a higher fee for the teenager.`\
+https://nytimes.com/athletic/6528169/2025/08/04/tyler-dibling-everton-bid-transfer-southampton/
+
 **Thomas Partey and Villarreal: Can he play after rape charges? Does he have to attend court date?**\
 `The former Arsenal midfielder is set to join the Spanish club while facing charges for rape, which he denies`\
 https://nytimes.com/athletic/6533286/2025/08/04/thomas-partey-villarreal-arsenal-court-charges/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/04/us/speedweek-bonneville-salt-flats-death.html
 **Real Sociedad set to complete €4m Guedes transfer from Wolves**\
 `Guedes signed a five-year contract at Molineux in 2022 after a £27.5million transfer from Valencia.`\
 https://nytimes.com/athletic/6533250/2025/08/04/wolves-transfers-guedes-real-sociedad/
-
-**U.S. Envoy Is Expected to Visit Russia as Trump’s Ukraine Deadline Nears**\
-`President Trump has given an ultimatum to President Vladimir V. Putin of Russia to end the war in Ukraine or face U.S. sanctions.`\
-https://nytimes.com/2025/08/04/us/politics/witkoff-putin-russia-trump-ukraine.html
 

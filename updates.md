@@ -1,3 +1,7 @@
+**Thomas Partey and Villarreal: Can he play after rape charges? Does he have to attend court date?**\
+`The former Arsenal midfielder is set to join the Spanish club while facing charges for rape, which he denies`\
+https://nytimes.com/athletic/6533286/2025/08/04/thomas-partey-villarreal-arsenal-court-charges/
+
 **Texas Democrats Leave State to Block Vote on Redrawn Political Map**\
 `The departure was a last-ditch attempt to stop Republicans from adopting an aggressively redrawn congressional map, which would flip five Democratic congressional districts to favor Republicans.`\
 https://nytimes.com/video/us/politics/100000010321830/texas-democrats-leave-state-to-block-vote-on-redrawn-political-map.html
