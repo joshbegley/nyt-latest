@@ -1,3 +1,7 @@
+**House Democrats Renew Effort Calling for Palestinian Statehood**\
+`More than a dozen progressive lawmakers had signed onto a draft letter, but a lack of Republican support meant it was unlikely to affect policy decisions by the Trump administration.`\
+https://nytimes.com/2025/08/04/us/politics/house-democrats-palestinian-statehood.html
+
 **Going Head to Head on YouTube to Elevate Manufacturing**\
 `This reality show is short on scandal, betrayal and tears. But for those competing for a $100,000 prize, the stakes are still high.`\
 https://nytimes.com/2025/08/04/business/clash-of-trades-manufacturing.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6534595/2025/08/04/fantasy-baseball-the-bat-x-soria
 **A Dozen Off Broadway Shows to Energize Your August**\
 `Elizabeth McGovern channels Ava Gardner, a starry “Twelfth Night” reopens the Delacorte and Luke Newton of “Bridgerton” plays Alexander McQueen.`\
 https://nytimes.com/2025/08/04/theater/off-broadway-shows-nyc-august.html
-
-**Lions 53-man roster projection: Taking a close look at battles for final spots**\
-`Depth decisions still to be determined at offensive line, wide receiver and safety as Lions prepare for second preseason game.`\
-https://nytimes.com/athletic/6534801/2025/08/04/lions-53-man-roster-projection-2/
 
