@@ -1,3 +1,7 @@
+**Bruno Fernandes says Manchester United side were 'lazy', calls for signings to increase competition**\
+`Fernandes scored the opening goal as United drew with Everton to win the preseason PL Summer Series. `\
+https://nytimes.com/athletic/6534261/2025/08/04/manchester-united-bruno-fernandes-lazy-transfers/
+
 **Trump’s Immigrant Crackdown in New York: More Arrests, Longer Detention**\
 `More than half of the immigrants arrested in the New York City area since Jan. 20 do not have criminal convictions or charges, new data shows.`\
 https://nytimes.com/2025/08/04/nyregion/new-york-immigrant-arrests-trump.html

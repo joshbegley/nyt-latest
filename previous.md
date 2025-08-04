@@ -1,3 +1,7 @@
+**Bruno Fernandes says Manchester United side were 'lazy', calls for signings to increase competition**\
+`Fernandes scored the opening goal as United drew with Everton to win the preseason PL Summer Series. `\
+https://nytimes.com/athletic/6534261/2025/08/04/manchester-united-bruno-fernandes-lazy-transfers/
+
 **Trump’s Immigrant Crackdown in New York: More Arrests, Longer Detention**\
 `More than half of the immigrants arrested in the New York City area since Jan. 20 do not have criminal convictions or charges, new data shows.`\
 https://nytimes.com/2025/08/04/nyregion/new-york-immigrant-arrests-trump.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/04/arts/television/las-culturistas-awards-shows-plat
 **Monday Briefing: An ‘All or Nothing’ Gaza Deal**\
 `Also, Catholic influencers.`\
 https://nytimes.com/2025/08/04/briefing/gaza-trump-tariffs-lesotho-putin-russia-censorship.html
-
-**Villa's summer of uncertainty is not ideal preparation for a new season**\
-`The Emery era has tended to be adept in managing turbulence — how his side start the season proper will be another test of such resolve`\
-https://nytimes.com/athletic/6529677/2025/08/04/aston-villas-summer-of-uncertainty-is-not-ideal-preparation-for-a-new-premier-league-season/
 
