@@ -1,3 +1,19 @@
+**Razia Jan, 81, Who Built an Enduring Girls’ School in Afghanistan, Dies**\
+`Before 9/11, she ran a dry cleaning business in Massachusetts; in the aftermath, she returned home after decades away to educate young girls.`\
+https://nytimes.com/2025/08/04/world/razia-jan-dead.html
+
+**The Price May Be Right for That Last-Minute Summer Trip**\
+`Late summer has steep airfare savings and smaller crowds. Experts say there are more flight deals than usual and great prices for international trips.`\
+https://nytimes.com/2025/08/04/travel/summer-flight-deals.html
+
+**De'Aaron Fox, Spurs agree to 4-year contract extension**\
+`The Spurs acquired the 28-year-old former All-Star in February to be a key running mate for Victor Wembanyama.`\
+https://nytimes.com/athletic/6533164/2025/08/04/deaaron-fox-spurs-contract-extension-max/
+
+**Texas Democrats Leave State to Block Vote on Gerrymandered Map**\
+`The legislators’ departure was a last-ditch effort to stop Republicans from adopting a redrawn congressional map that would flip five Democratic congressional districts to favor Republicans.`\
+https://nytimes.com/video/us/politics/100000010322337/texas-map-redistricting-democrats-trump.html
+
 **Fraudulent Scientific Papers Are Rapidly Increasing, Study Finds**\
 `A statistical analysis found that the number of fake journal articles being churned out by “paper mills” is doubling every year and a half.`\
 https://nytimes.com/2025/08/04/science/04hs-science-papers-fraud-research-paper-mills.html
@@ -10,27 +26,11 @@ https://nytimes.com/2025/08/04/style/david-roach-wedding-death-junkyard.html
 `More than a dozen progressive lawmakers had signed onto a draft letter, but a lack of Republican support meant it was unlikely to affect policy decisions by the Trump administration.`\
 https://nytimes.com/2025/08/04/us/politics/house-democrats-palestinian-statehood.html
 
-**Going Head to Head on YouTube to Elevate Manufacturing**\
-`This reality show is short on scandal, betrayal and tears. But for those competing for a $100,000 prize, the stakes are still high.`\
+**On a YouTube Show, Making Machine Parts for Glory and $100,000**\
+`This reality show is short on scandal, betrayal and tears, and has an unusual aim: Elevating U.S. manufacturing.`\
 https://nytimes.com/2025/08/04/business/clash-of-trades-manufacturing.html
 
 **NCAA Tournament won't expand in 2026, but discussions to continue for 2027**\
 `The conversation about whether to expand the tournaments to 72 or 76 teams has been ongoing and will continue into the fall.`\
 https://nytimes.com/athletic/6535176/2025/08/04/ncaa-tournament-no-expansion-2026/
-
-**FEMA to Deny Grants to States and Cities That Boycott Israeli Companies**\
-`The move by the Trump administration may be largely symbolic.`\
-https://nytimes.com/2025/08/04/us/politics/fema-will-deny-disaster-funding-to-states-and-cities-that-boycott-israeli-firms-under-new-grant-rules.html
-
-**With Texans in Tow, Hochul Vows to Redraw New York’s House Maps**\
-`New York’s governor welcomed state legislators who fled Texas to thwart a Republican gerrymander but said she would try to draft one of her own to bolster Democrats.`\
-https://nytimes.com/2025/08/04/us/hochul-new-york-texas-redistricting.html
-
-**Unwanted Facts: The Labor Dept. Firing**\
-`Readers respond to President Trump’s firing of the commissioner of the Bureau of Labor Statistics, Erika McEntarfer. Also: Family rifts over politics.`\
-https://nytimes.com/2025/08/04/opinion/trump-labor-dept-firing.html
-
-**Our President Is Economically Illiterate**\
-`The latest round of tariffs offers further evidence that Trump doesn’t understand how economies work.`\
-https://nytimes.com/2025/08/04/opinion/donald-trump-tariff-powell-economics.html
 

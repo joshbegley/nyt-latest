@@ -1,3 +1,7 @@
+**FIFA facing lawsuit from Justice for Players group over transfer rules**\
+`The Amsterdam-based Justice for Players (JfP) is the first group to attempt legal action against world football’s governing body.`\
+https://nytimes.com/athletic/6535257/2025/08/04/fifa-lawsuit-players-transfer-rules/
+
 **Razia Jan, 81, Who Built an Enduring Girls’ School in Afghanistan, Dies**\
 `Before 9/11, she ran a dry cleaning business in Massachusetts; in the aftermath, she returned home after decades away to educate young girls.`\
 https://nytimes.com/2025/08/04/world/razia-jan-dead.html
@@ -29,8 +33,4 @@ https://nytimes.com/2025/08/04/us/politics/house-democrats-palestinian-statehood
 **On a YouTube Show, Making Machine Parts for Glory and $100,000**\
 `This reality show is short on scandal, betrayal and tears, and has an unusual aim: Elevating U.S. manufacturing.`\
 https://nytimes.com/2025/08/04/business/clash-of-trades-manufacturing.html
-
-**NCAA Tournament won't expand in 2026, but discussions to continue for 2027**\
-`The conversation about whether to expand the tournaments to 72 or 76 teams has been ongoing and will continue into the fall.`\
-https://nytimes.com/athletic/6535176/2025/08/04/ncaa-tournament-no-expansion-2026/
 
