@@ -1,3 +1,11 @@
+**Steve Pagliuca confirms interest in purchasing Connecticut Sun, but says no deal in place**\
+`Pagliuca said that their offer is subject to obtaining the required league approvals.`\
+https://nytimes.com/athletic/6534007/2025/08/03/steve-pagliuca-connecticut-sun-sale/
+
+**U.S. sprinter Christian Coleman defends Sha'Carri Richardson after her airport arrest**\
+`After Richardson was arrested recently, Coleman, her boyfriend, said, "She's going to be good. I'm going to be good, too."`\
+https://nytimes.com/athletic/6533983/2025/08/03/shacarri-richardson-arrest-christian-coleman-comments/
+
 **Clara Tauson upsets Wimbledon champion Iga Świątek at Canadian Open**\
 `The upset came one day after world No. 2 and top seed Coco Gauff fell in straight sets to Canadian wild card Victoria Mboko.`\
 https://nytimes.com/athletic/6533947/2025/08/03/clara-tauson-iga-swiatek-upset-canadian-open/
