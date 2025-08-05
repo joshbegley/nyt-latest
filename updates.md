@@ -1,3 +1,7 @@
+**Inside Manchester United's summer tour: Meticulous preparation and crucial team bonding**\
+`Ruben Amorim used Manchester United's pre-season tour to get granular with his team about his tactics...`\
+https://nytimes.com/athletic/6535605/2025/08/05/manchester-united-tour-2025/
+
 **Word of the Day: estuary**\
 `This word has appeared in 25 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2025/08/05/learning/word-of-the-day-estuary.html
