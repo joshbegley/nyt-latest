@@ -1,3 +1,11 @@
+**Far-Right Activist in U.K. Is Arrested Over Assault at Train Station**\
+`Tommy Robinson was taken into custody for questioning on Monday after an assault that seriously injured a man last month at St. Pancras train station.`\
+https://nytimes.com/2025/08/05/world/europe/tommy-robinson-arrested-uk.html
+
+**Trump Praised a Sydney Sweeney Ad, and American Eagle’s Stock Soared**\
+`The president called her much-debated jeans campaign the “HOTTEST” ad out there, which seemed to start a stock rally.`\
+https://nytimes.com/2025/08/05/style/american-eagle-stock-trump-sydney-sweeney.html
+
 **Rwanda Agrees to Accept 250 Migrants as Part of Trump Deportation Plan**\
 `The country is the latest African nation to agree to take in migrants from the United States.`\
 https://nytimes.com/2025/08/05/world/africa/rwanda-trump-deportees.html

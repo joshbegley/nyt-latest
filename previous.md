@@ -1,3 +1,11 @@
+**Far-Right Activist in U.K. Is Arrested Over Assault at Train Station**\
+`Tommy Robinson was taken into custody for questioning on Monday after an assault that seriously injured a man last month at St. Pancras train station.`\
+https://nytimes.com/2025/08/05/world/europe/tommy-robinson-arrested-uk.html
+
+**Trump Praised a Sydney Sweeney Ad, and American Eagle’s Stock Soared**\
+`The president called her much-debated jeans campaign the “HOTTEST” ad out there, which seemed to start a stock rally.`\
+https://nytimes.com/2025/08/05/style/american-eagle-stock-trump-sydney-sweeney.html
+
 **Rwanda Agrees to Accept 250 Migrants as Part of Trump Deportation Plan**\
 `The country is the latest African nation to agree to take in migrants from the United States.`\
 https://nytimes.com/2025/08/05/world/africa/rwanda-trump-deportees.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6536021/2025/08/05/kyle-schwarber-mlb-playoffs-the-
 **What to Know About India’s Trade in Oil With Russia**\
 `President Trump accused India of aiding Moscow’s war on Ukraine by purchasing Russian energy, derailing trade talks between India and the United States.`\
 https://nytimes.com/2025/08/05/business/india-russia-oil.html
-
-**Stella Rimington, First Woman to Lead British Intelligence Agency, Dies at 90**\
-`Widely regarded as the inspiration for the recast of the James Bond character “M,” she was the first British spy chief to be publicly named and photographed.`\
-https://nytimes.com/2025/08/05/world/europe/stella-rimington-dies.html
-
-**Where do Suter, Bjugstad fit in the Blues lineup? We asked Jim Montgomery**\
-`Pius Suter and Nick Bjugstad signed with the Blues as free agents this summer, bringing some much-needed depth at the center position.`\
-https://nytimes.com/athletic/6497767/2025/08/05/blues-suter-bjugstad-lineup-montgomery/
 
