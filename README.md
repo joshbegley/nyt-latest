@@ -1,3 +1,15 @@
+**Fox gets into direct-to-consumer game, featuring NFL, MLB, college football**\
+`"Fox One" subscriptions will cost $19.99 per month and include all programming running on Fox’s broadcast network, including sports.`\
+https://nytimes.com/athletic/6536643/2025/08/05/fox-sports-streaming-service-nfl-mlb/
+
+**E.P.A. Moves to Cancel $7 Billion in Grants for Solar Energy**\
+`If finalized, the move would escalate the Trump administration’s efforts to claw back billions of dollars in climate grants awarded under President Biden.`\
+https://nytimes.com/2025/08/05/climate/epa-cancels-solar-energy-grants.html
+
+**UK Athletics upholds coach ban for sexual abuse of an athlete**\
+`The former coach was found to have approached the "most serious form of abuse a senior coach could subject a young athlete to".`\
+https://nytimes.com/athletic/6536238/2025/08/05/uk-athletics-sexual-abuse-coach-ban-safeguarding/
+
 **Porto's UCL-winning captain Costa dies at 53**\
 `The former central defender, who was working as Porto's football director, passed away on Tuesday.`\
 https://nytimes.com/athletic/6536604/2025/08/05/jorge-costa-dead-porto-champions-league/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6533431/2025/08/05/oilers-isaac-howard-prospect-com
 **Salpicón de Pescado, Chicken-Zucchini Meatballs and No-Chop White Bean Salad**\
 `I simply love summer cooking.`\
 https://nytimes.com/2025/08/05/dining/salpicon-de-pescado-chicken-zucchini-meatballs-and-no-chop-white-bean-salad.html
-
-**Yankees demote Jake Bird, reliever they just acquired, in another sign things are off track**\
-`The Yankees have slowly been losing their grip on a playoff position.`\
-https://nytimes.com/athletic/6536563/2025/08/05/yankees-jake-bird-demotion-after-trade/
-
-**Rupert Murdoch and Trump Agree to Postpone Deposition**\
-`The president sued Mr. Murdoch and The Wall Street Journal for an article last month. The president’s lawyers had asked for Mr. Murdoch to be deposed within 15 days.`\
-https://nytimes.com/2025/08/05/business/media/trump-murdoch-deposition-postponed.html
-
-**Titan Sub Disaster Caused by Series of Mistakes, Coast Guard Report Says**\
-`The 2023 disaster killed five people on a dive to the wreckage of the Titanic, prompting a sprawling search of the north Atlantic Ocean.`\
-https://nytimes.com/2025/08/05/us/titan-sub-implosion-coast-guard-report.html
 
