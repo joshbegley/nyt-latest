@@ -1,3 +1,23 @@
+**4-Day Manhunt Yields No Confirmed Sighting of Montana Suspect**\
+`The man accused of fatally shooting four people in a bar disappeared into a rugged forest. An official said the search for him was law enforcement’s “top focus.”`\
+https://nytimes.com/2025/08/05/us/montana-manhunt-brown-anaconda-shooting.html
+
+**Man City's Vitor Reis set to join CFG-owned Girona on loan**\
+`The Brazilian defender has made four appearances for Pep Guardiola's side since his arrival from Palmeiras in the January transfer window.`\
+https://nytimes.com/athletic/6527983/2025/08/05/manchester-city-transfers-vitor-reis-girona/
+
+**8 Early Rap Songs From a New York City in Turmoil**\
+`Inspired by a new book tracing four pivotal years in the city’s history, hear a playlist of songs from the dawn of hip-hop that were swirling at the time.`\
+https://nytimes.com/2025/08/05/arts/music/amplifier-newsletter-early-new-york-rap.html
+
+**Scoop City: Six strategies to find football breakouts in 2025, 2026 and beyond**\
+`Six timeless principles to help you find league-winning picks this season. And next season. The season after that, too.`\
+https://nytimes.com/athletic/6536810/2025/08/05/fantasy-football-sleepers-breakouts-2025-targets-jake-ciely-scoop-city-nfl/
+
+**Brighton appoint new set-piece coach to Hurzeler's staff**\
+`The former right-back will be responsible for defensive and attacking set plays in Fabian Hurzeler's coaching staff.`\
+https://nytimes.com/athletic/6536977/2025/08/05/brighton-set-piece-coach/
+
 **How will Brittney Sykes impact Seattle Storm after trade from Washington Mystics?**\
 `In the deal, the Mystics receive veteran forward Alysha Clark, the Storm’s 2026 first-round pick, and third-year player Zia Cooke.`\
 https://nytimes.com/athletic/6537102/2025/08/05/washington-mystics-trade-brittney-sykes-seattle-storm/
