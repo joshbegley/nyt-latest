@@ -1,3 +1,7 @@
+**Braves' Grant Holmes opts for non-surgical route, Chris Sale progressing and more**\
+`Holmes, understandably, doesn’t want to miss a full season after working so long to make it to the major leagues.`\
+https://nytimes.com/athletic/6535789/2025/08/04/braves-grant-holmes-chris-sale/
+
 **Chemical Makers to Pay N.J. $875 Million to Settle ‘Forever Chemicals’ Claims**\
 `New Jersey officials called it the largest environmental settlement ever achieved by a single state.`\
 https://nytimes.com/2025/08/04/climate/new-jersey-pfas-settlement.html
