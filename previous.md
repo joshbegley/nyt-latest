@@ -1,3 +1,11 @@
+**China’s Mosquito Crackdown Tests a City’s Post-Covid Patience**\
+`The authorities are inspecting homes, tracking purchases of fever medicines and deploying drones as they urge people to join an eradication campaign that echoes Covid measures.`\
+https://nytimes.com/2025/08/05/world/asia/china-chikungunya-virus-mosquitoes-covid.html
+
+**Manchester United betting season preview: What are the odds Red Devils make top 4?**\
+`Manchester United is in a rebuilding phase after finishing 15th last season. Will not playing in Europe help them move up the table?`\
+https://nytimes.com/athletic/6535078/2025/08/05/manchester-united-betting-season-preview-odds/
+
 **The Bounce: What Luka's $165 means**\
 `The Bounce is The Athletic's free NBA newsletter.`\
 https://nytimes.com/athletic/6536514/2025/08/05/luka-doncic-extension-lakers-the-bounce/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6536479/2025/08/05/wrexham-kieffer-moore-sheffield-
 **Veteran QB Teddy Bridgewater to sign with Buccaneers: Source**\
 `With No. 3 QB Michael Pratt injured and starter Baker Mayfield banged up, Teddy Bridgewater gives the Bucs another option, if needed.`\
 https://nytimes.com/athletic/6536404/2025/08/05/teddy-bridgewater-signs-with-buccaneers/
-
-**Flash Floods in Indian Himalayas Kill 4, and Dozens Are Missing**\
-`The Indian Army and other forces were helping with the rescue, officials said. With so many missing, the flood’s true death toll was feared to be higher.`\
-https://nytimes.com/2025/08/05/world/asia/flash-floods-india-himalayas-uttarakhand.html
-
-**U.S. Imports Slid in June on Higher Tariffs**\
-`Imports from other countries fell around 4 percent from the previous month as President Trump’s steep tariffs discouraged businesses from ordering goods.`\
-https://nytimes.com/2025/08/05/business/economy/imports-data-trump-tariffs.html
 

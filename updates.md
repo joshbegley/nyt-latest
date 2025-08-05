@@ -1,3 +1,11 @@
+**China’s Mosquito Crackdown Tests a City’s Post-Covid Patience**\
+`The authorities are inspecting homes, tracking purchases of fever medicines and deploying drones as they urge people to join an eradication campaign that echoes Covid measures.`\
+https://nytimes.com/2025/08/05/world/asia/china-chikungunya-virus-mosquitoes-covid.html
+
+**Manchester United betting season preview: What are the odds Red Devils make top 4?**\
+`Manchester United is in a rebuilding phase after finishing 15th last season. Will not playing in Europe help them move up the table?`\
+https://nytimes.com/athletic/6535078/2025/08/05/manchester-united-betting-season-preview-odds/
+
 **The Bounce: What Luka's $165 means**\
 `The Bounce is The Athletic's free NBA newsletter.`\
 https://nytimes.com/athletic/6536514/2025/08/05/luka-doncic-extension-lakers-the-bounce/

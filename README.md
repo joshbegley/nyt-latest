@@ -1,3 +1,15 @@
+**Yankees demote Jake Bird, reliever they just acquired, in another sign things are off track**\
+`The Yankees have slowly been losing their grip on a playoff position.`\
+https://nytimes.com/athletic/6536563/2025/08/05/yankees-jake-bird-demotion-after-trade/
+
+**Rupert Murdoch and Trump Agree to Postpone Deposition**\
+`The president sued Mr. Murdoch and The Wall Street Journal for an article last month. The president’s lawyers had asked for Mr. Murdoch to be deposed within 15 days.`\
+https://nytimes.com/2025/08/05/business/media/trump-murdoch-deposition-postponed.html
+
+**Titan Sub Disaster Caused by Series of Mistakes, Coast Guard Report Says**\
+`The 2023 disaster killed five people on a dive to the wreckage of the Titanic, prompting a sprawling search of the north Atlantic Ocean.`\
+https://nytimes.com/2025/08/05/us/titan-sub-implosion-coast-guard-report.html
+
 **China’s Mosquito Crackdown Tests a City’s Post-Covid Patience**\
 `The authorities are inspecting homes, tracking purchases of fever medicines and deploying drones as they urge people to join an eradication campaign that echoes Covid measures.`\
 https://nytimes.com/2025/08/05/world/asia/china-chikungunya-virus-mosquitoes-covid.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/08/05/style/american-eagle-stock-trump-sydney-sweeney.h
 **Rwanda Agrees to Accept 250 Migrants as Part of Trump Deportation Plan**\
 `The country is the latest African nation to agree to take in migrants from the United States.`\
 https://nytimes.com/2025/08/05/world/africa/rwanda-trump-deportees.html
-
-**American Journalist Is Missing in Norwegian National Park**\
-`A search was underway Tuesday for Alec Luhn, 38, who was last heard from five days ago at the start of a solo hike.`\
-https://nytimes.com/2025/08/05/world/europe/alec-luhn-missing-norway.html
-
-**Wrexham confirm striker Moore signing from Sheffield United**\
-`The 32-year-old has previously won promotion from the Championship with Bournemouth and Ipswich Town.`\
-https://nytimes.com/athletic/6536479/2025/08/05/wrexham-kieffer-moore-sheffield-united-transfer/
-
-**Veteran QB Teddy Bridgewater to sign with Buccaneers: Source**\
-`With No. 3 QB Michael Pratt injured and starter Baker Mayfield banged up, Teddy Bridgewater gives the Bucs another option, if needed.`\
-https://nytimes.com/athletic/6536404/2025/08/05/teddy-bridgewater-signs-with-buccaneers/
 
