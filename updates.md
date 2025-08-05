@@ -1,3 +1,7 @@
+**A judge blocks FEMA from repurposing disaster mitigation funding.**\
+`A federal judge in Massachusetts said the Trump administration’s move to redirect $4 billion left states exposed to damage from natural disasters.`\
+https://nytimes.com/live/2025/08/05/us/trump-news/trump-blocked-fema-disaster-prep-funds
+
 **Phillies' José Alvarado returns to team albeit with caveats after PED suspension**\
 `Alvarado apologized to his teammates, coaches, and staff members in a brief meeting Tuesday afternoon.`\
 https://nytimes.com/athletic/6537486/2025/08/05/philadelphia-phillies-jose-alvarado-return/
