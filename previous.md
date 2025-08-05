@@ -1,5 +1,5 @@
 **Torrential Rain Batters Hong Kong, Flooding the Waterlogged City**\
-`Record-setting rain has brought chaos to parts of Hong Kong, with submerged streets, stranded buses and landslides, as officials warn residents to avoid going out.`\
+`Record-setting rain has brought chaos to parts of Hong Kong, with submerged streets, stranded buses and landslides. Residents were advised to avoid going out.`\
 https://nytimes.com/2025/08/05/world/asia/hong-kong-floods.html
 
 **How a Soggy Spring and Hot Summer Nights Made 2025 an ‘Exceptional’ Year for Fireflies**\

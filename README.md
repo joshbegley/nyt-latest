@@ -1,6 +1,18 @@
+**The Pulse: College football’s Freakiest players**\
+`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/6534768/2025/08/05/college-football-freaks-list-the-pulse/
+
+**Southampton make counter-offer to Everton in Dibling deal**\
+`Southampton have come back with a proposal of £45m plus £5m in easily achievable bonuses and a 25 per cent sell-on clause.`\
+https://nytimes.com/athletic/6534587/2025/08/05/tyler-dibling-southampton-everton-transfer/
+
 **Torrential Rain Batters Hong Kong, Flooding the Waterlogged City**\
 `Record-setting rain has brought chaos to parts of Hong Kong, with submerged streets, stranded buses and landslides. Residents were advised to avoid going out.`\
 https://nytimes.com/2025/08/05/world/asia/hong-kong-floods.html
+
+**After winning more matches than most in 2025, Victoria Mboko takes her next step**\
+`Mboko has won 49 matches in 2025, two of those at a Grand Slam and four on her Canadian Open run. But she's here for the long haul.`\
+https://nytimes.com/athletic/6381379/2025/08/05/tennis-victoria-mboko-results-record/
 
 **How a Soggy Spring and Hot Summer Nights Made 2025 an ‘Exceptional’ Year for Fireflies**\
 `If you think you’ve spotted more than the usual number of blinking bugs this year, you’re not alone. But experts say many firefly species are at risk of extinction.`\
@@ -25,16 +37,4 @@ https://nytimes.com/2025/08/05/world/europe/germany-gaza-israel-hunger-merz.html
 **One thought on Milton Williams and every player on the Patriots defense**\
 `Ahead of the team's preseason opener Friday, we examine every player on the defensive side of the ball for the Patriots.`\
 https://nytimes.com/athletic/6535207/2025/08/05/patriots-defense-milton-williams-christian-gonzalez/
-
-**How Bears left tackle Ozzy Trapilo got his start in football, and the legacy he follows**\
-`Trapilo, who is competing for the Bears' starting left tackle job, continues to walk in his late father's footsteps.`\
-https://nytimes.com/athletic/6535252/2025/08/05/bears-ozzy-trapilo-boston-college-legacy/
-
-**Mahmoud Khalil Tells His Story**\
-`The Palestinian activist discusses the Columbia protests, ICE detention and free speech in America.`\
-https://nytimes.com/2025/08/05/opinion/ezra-klein-podcast-mahmoud-khalil.html
-
-**The Supreme Court Has Finally Found a President It Likes**\
-`Its six-member conservative majority has become a key enabler of Trump’s agenda.`\
-https://nytimes.com/2025/08/05/opinion/supreme-court-trump-administration.html
 
