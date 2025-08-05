@@ -1,3 +1,7 @@
+**Celtics shake up frontcourt by trading Georges Niang to Jazz, adding Chris Boucher**\
+`With the moves, Boston saved enough money to move about $8 million under the second-apron payroll threshold.`\
+https://nytimes.com/athletic/6537343/2025/08/05/georges-niang-jazz-celtics-chris-boucher/
+
 **Broncos DC Vance Joseph: Unit must phase out 'awkward' plays to become dominant**\
 `Broncos offensive coordinator said new tight end Evan Engram has "met or exceeded" all of team's expectations during first camp in Denver.`\
 https://nytimes.com/athletic/6537143/2025/08/05/broncos-vance-joseph-training-camp/
