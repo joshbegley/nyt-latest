@@ -1,3 +1,19 @@
+**Humanities Endowment Funds Trump’s Priorities After Ending Old Grants**\
+`The $34.8 million allocated by the National Endowment for the Humanities leans toward presidents, statesmen and the Declaration of Independence’s 250th anniversary.`\
+https://nytimes.com/2025/08/05/arts/national-endowment-for-the-humanities-trump-grants.html
+
+**Vikings WR Jordan Addison suspended for first 3 games of season**\
+`The 23-year-old receiver will miss the Vikings' first three games against the Bears, Falcons and Bengals.`\
+https://nytimes.com/athletic/6537224/2025/08/05/jordan-addison-suspension-vikings/
+
+**A tribute to Yastrzemski, Doval and Rogers: Giants heroes of the Farhan Zaidi era**\
+`Yastrzemski, Camilo Doval and Tyler Rogers didn't win titles with the Giants. But they made the team more fun and that is to be appreciated.`\
+https://nytimes.com/athletic/6535202/2025/08/05/sf-giants-mike-yastrzemski-camilo-doval-tyler-rogers-tribute/
+
+**ICE Offers, Then Quickly Withdraws, Cash Bonuses for Swiftly Deporting Immigrants**\
+`The short-lived effort underscored the mounting pressure on ICE to meet President Trump’s aggressive deportation targets.`\
+https://nytimes.com/2025/08/05/us/politics/ice-bonuses-immigrants-deportations.html
+
 **LeShon Johnson, Ex-N.F.L. Player, Is Convicted in Major Dogfighting Case**\
 `Federal investigators said that they had seized 190 pit-bull-type dogs from the former running back, who previously pleaded guilty to state dogfighting charges in 2004.`\
 https://nytimes.com/2025/08/05/us/leshon-johnson-nfl-dogfighting.html

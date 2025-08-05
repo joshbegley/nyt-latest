@@ -1,3 +1,15 @@
+**Humanities Endowment Funds Trump’s Priorities After Ending Old Grants**\
+`The $34.8 million allocated by the National Endowment for the Humanities leans toward presidents, statesmen and the Declaration of Independence’s 250th anniversary.`\
+https://nytimes.com/2025/08/05/arts/national-endowment-for-the-humanities-trump-grants.html
+
+**Vikings WR Jordan Addison suspended for first 3 games of season**\
+`The 23-year-old receiver will miss the Vikings' first three games against the Bears, Falcons and Bengals.`\
+https://nytimes.com/athletic/6537224/2025/08/05/jordan-addison-suspension-vikings/
+
+**A tribute to Yastrzemski, Doval and Rogers: Giants heroes of the Farhan Zaidi era**\
+`Yastrzemski, Camilo Doval and Tyler Rogers didn't win titles with the Giants. But they made the team more fun and that is to be appreciated.`\
+https://nytimes.com/athletic/6535202/2025/08/05/sf-giants-mike-yastrzemski-camilo-doval-tyler-rogers-tribute/
+
 **LeShon Johnson, Ex-N.F.L. Player, Is Convicted in Major Dogfighting Case**\
 `Federal investigators said that they had seized 190 pit-bull-type dogs from the former running back, who previously pleaded guilty to state dogfighting charges in 2004.`\
 https://nytimes.com/2025/08/05/us/leshon-johnson-nfl-dogfighting.html
@@ -23,18 +35,6 @@ https://nytimes.com/2025/08/05/opinion/joan-arc-miracles-god.html
 https://nytimes.com/2025/08/05/weather/dragon-bravo-wildfire-grand-canyon.html
 
 **ICE Offers, Then Quickly Withdraws, Cash Bonuses for Swiftly Deporting Immigrants**\
-`The short-lived effort underscores the mounting pressure on ICE to meet President Trump’s aggressive deportation targets.`\
+`The short-lived effort underscored the mounting pressure on ICE to meet President Trump’s aggressive deportation targets.`\
 https://nytimes.com/2025/08/05/us/politics/ice-bonuses-immigrants-deportations.html
-
-**Allan Ahlberg, Whose Children’s Books Were Best Sellers, Dies at 87**\
-`Over five decades, he produced some 150 books, many of them illustrated by his wife, Janet Ahlberg, including classics like “Each Peach Pear Plum.”`\
-https://nytimes.com/2025/08/05/books/allan-ahlberg-dead.html
-
-**Until Saturday: This season's 101 most absurd athletes**\
-`Until Saturday is The Athletic's free CFB newsletter.`\
-https://nytimes.com/athletic/6537204/2025/08/05/kadyn-proctor-alabama-until-saturday/
-
-**RB Leipzig contact Liverpool over Harvey Elliott transfer**\
-`The central midfielder said in June he was wary of 'wasting years of my career' due to his lack of game-time at Anfield.`\
-https://nytimes.com/athletic/6413115/2025/08/05/liverpool-transfers-harvey-elliott-rb-leipzig/
 
