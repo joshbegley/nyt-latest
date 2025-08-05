@@ -1,3 +1,11 @@
+**Voters Boo Nebraska Republican Congressman at Town Hall**\
+`An angry crowd of more than 700 people in Nebraska heckled and booed Representative Mike Flood over the Republican congressman’s support of President Trump’s sweeping domestic policy bill.`\
+https://nytimes.com/video/us/politics/100000010324416/nebraska-townhall-mike-flood-trump.html
+
+**At the Tesla Diner, the Future Looks Mid**\
+`The new Los Angeles restaurant from the electric car giant is a smash burger and content machine, drawing Elon Musk’s fans and protesters.`\
+https://nytimes.com/2025/08/05/dining/tesla-diner-elon-musk.html
+
 **Topps 'stands by' authenticity of Lionel Messi autographs rejected by PSA**\
 `Fanatics Collectibles CEO Mike Mahan spoke about the Messi autographs situation for the first time at The National`\
 https://nytimes.com/athletic/6535831/2025/08/05/lionel-messi-topps-autographs-psa/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6536238/2025/08/05/uk-athletics-sexual-abuse-coach-
 **Porto's UCL-winning captain Costa dies at 53**\
 `The former central defender, who was working as Porto's football director, passed away on Tuesday.`\
 https://nytimes.com/athletic/6536604/2025/08/05/jorge-costa-dead-porto-champions-league/
-
-**Evenepoel signs for Red Bull–BORA–hansgrohe from 2026**\
-`The 25-year-old is the World and Olympic time-trial champion but dropped out of the 2025 Tour de France on Stage 14.`\
-https://nytimes.com/athletic/6536530/2025/08/05/remco-evenepoel-soudal-quickstep-red-bull-transfer/
-
-**A G.O.P. Congressman Faced His Voters. It Wasn’t Pretty.**\
-`Most Republican lawmakers are avoiding town hall meetings, reluctant to confront energized Democrats and answer tough questions. When Representative Mike Flood of Nebraska gave it a try, the booing started in seconds.`\
-https://nytimes.com/2025/08/05/us/politics/mike-flood-town-hall.html
 
