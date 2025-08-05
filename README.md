@@ -1,40 +1,40 @@
-**The Pulse: College football’s Freakiest players**\
-`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
-https://nytimes.com/athletic/6534768/2025/08/05/college-football-freaks-list-the-pulse/
+**Why 2020 No. 3 pick Jeff Okudah and the Vikings are the perfect fit for each other**\
+`Okudah was considering retirement after a quiet 2024. The Vikings hope that teaming up with Brian Flores will help him reach his potential.`\
+https://nytimes.com/athletic/6535406/2025/08/05/jeff-okudah-vikings-training-camp/
 
-**Southampton make counter-offer to Everton in Dibling deal**\
-`Southampton have come back with a proposal of £45m plus £5m in easily achievable bonuses and a 25 per cent sell-on clause.`\
-https://nytimes.com/athletic/6534587/2025/08/05/tyler-dibling-southampton-everton-transfer/
+**Surging Red Sox trying to recapture 2018 mojo with new version of ‘win wall’**\
+`With fewer than 50 games to play and the Red Sox on a roll, there’s no telling what the wall will look like in two months.`\
+https://nytimes.com/athletic/6535673/2025/08/05/red-sox-mlb-win-wall-photos/
 
-**Torrential Rain Batters Hong Kong, Flooding the Waterlogged City**\
-`Record-setting rain has brought chaos to parts of Hong Kong, with submerged streets, stranded buses and landslides. Residents were advised to avoid going out.`\
-https://nytimes.com/2025/08/05/world/asia/hong-kong-floods.html
+**What we learned from Netflix's SEC football documentary, 'Any Given Saturday'**\
+`The show, which documents the 2024 season through the eyes of multiple SEC programs, contains authentic moments throughout.`\
+https://nytimes.com/athletic/6534996/2025/08/05/netflix-sec-documentary-any-given-saturday/
 
-**After winning more matches than most in 2025, Victoria Mboko takes her next step**\
-`Mboko has won 49 matches in 2025, two of those at a Grand Slam and four on her Canadian Open run. But she's here for the long haul.`\
-https://nytimes.com/athletic/6381379/2025/08/05/tennis-victoria-mboko-results-record/
+**The Most Closely Watched Trump Firing in Washington**\
+`Why the president’s abrupt move at the Bureau of Labor Statistics is raising questions about the future of U.S. economic data.`\
+https://nytimes.com/2025/08/05/podcasts/the-daily/trump-fires-bls-head-economic-data.html
 
-**How a Soggy Spring and Hot Summer Nights Made 2025 an ‘Exceptional’ Year for Fireflies**\
-`If you think you’ve spotted more than the usual number of blinking bugs this year, you’re not alone. But experts say many firefly species are at risk of extinction.`\
-https://nytimes.com/2025/08/05/weather/more-fireflies-this-year-why.html
+**Kalinauckas: Alonso and Hamilton are contrasting characters — but neither will fade quietly**\
+`Fernando Alonso had his best 2025 weekend at the Hungarian GP, while Lewis Hamilton endured his worst. But their legends continue`\
+https://nytimes.com/athletic/6535098/2025/08/05/fernando-alonso-lewis-hamilton-hungary-gp-f1/
 
-**The New York Times International Edition in Print for Wednesday, Aug. 6, 2025**\
-``\
-https://nytimes.com/issue/todaysinyt/2025/08/05/todays-new-york-times-international-edition
+**A Public School Enrollment Crisis, and a Nuclear Reactor on the Moon**\
+`Plus, remembering “the Willy Wonka of cheese.”`\
+https://nytimes.com/2025/08/05/podcasts/the-headlines/school-enrollment-nuclear-reactor-moon.html
 
-**Record-Breaking Rain Pounds Hong Kong**\
-`Stairways have turned into waterfalls as torrential rain has battered the island for more than a week.`\
-https://nytimes.com/video/world/asia/100000010323946/hong-kong-flood-rain.html
+**Wordle Review No. 1,509**\
+`Scroll down for hints and conversation about the puzzle for Wednesday, Aug. 6, 2025.`\
+https://nytimes.com/2025/08/05/crosswords/wordle-review-1509.html
 
-**U.N. Security Council to Discuss Gaza War and Hostages**\
-`Israel called for the meeting to debate the plight of captives still held by Hamas. The discussion will take place as the humanitarian crisis in the territory continues and as truce talks have stalled.`\
-https://nytimes.com/2025/08/05/world/middleeast/un-israel-gaza-war-hostages.html
+**Strands Sidekick No. 521**\
+`Scroll down for hints and conversation about the puzzle for Wednesday, Aug. 6, 2025.`\
+https://nytimes.com/2025/08/05/crosswords/strands-sidekick-521.html
 
-**On Gaza, Germany’s Government Faces Pressure from All Sides**\
-`Germany, after the Holocaust, has a special bond with Israel. But a hunger crisis in Gaza is creating a demand for Berlin to take bolder action.`\
-https://nytimes.com/2025/08/05/world/europe/germany-gaza-israel-hunger-merz.html
+**Connections Companion No. 787**\
+`Scroll down for hints and conversation about the puzzle for Wednesday, Aug. 6, 2025.`\
+https://nytimes.com/2025/08/05/crosswords/connections-companion-787.html
 
-**One thought on Milton Williams and every player on the Patriots defense**\
-`Ahead of the team's preseason opener Friday, we examine every player on the defensive side of the ball for the Patriots.`\
-https://nytimes.com/athletic/6535207/2025/08/05/patriots-defense-milton-williams-christian-gonzalez/
+**Inside Luka's U.S. tour: From Lakers extension to a surprise Backsteet Boys concert**\
+`After a week full of interviews, appearances and commercial shoots, it was obvious Dončić can’t wait to get back on the court.`\
+https://nytimes.com/athletic/6535653/2025/08/05/luka-doncic-lakers-contract-extension-nba/
 
