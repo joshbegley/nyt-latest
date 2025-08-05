@@ -1,3 +1,19 @@
+**U.S. Says It Will Not Seek Death Penalty Against 3 Drug Cartel Bosses**\
+`Foreign defendants are rarely sent to the United States if they might face death, and America’s use of capital punishment has been a significant point of friction with Mexico’s government.`\
+https://nytimes.com/2025/08/05/nyregion/cartel-bosses-death-penalty.html
+
+**Officials Move to Open Inquiry on Trump’s ‘Russia Hoax’ Grievance**\
+`Such an investigation would have to overcome a number of legal and practical hurdles, but an order by Attorney General Pam Bondi asking for a grand jury inquiry accomplishes political objectives.`\
+https://nytimes.com/2025/08/05/us/politics/trump-russia-grand-jury-investigation.html
+
+**Luke uses the Force: How new TE Farrell is boosting the 49ers' offense**\
+`Farrell won't light up the box score, but he's brought exactly what the Niners were hoping for when they signed him.`\
+https://nytimes.com/athletic/6537350/2025/08/05/49ers-training-camp-luke-farrell/
+
+**Forest considering move for Juve's Douglas Luiz**\
+`The midfielder joined the Turin club last summer in a €50million (£42.3m; $53.6m) plus add-ons move from Aston Villa.`\
+https://nytimes.com/athletic/6533022/2025/08/05/douglas-luiz-nottingham-forest-transfer/
+
 **What the Bears gained in their most physical practice in over a decade**\
 `The Bears had their most physical practice in years, featuring multiple dust-ups. What difference can that make during the regular season?`\
 https://nytimes.com/athletic/6537369/2025/08/05/bears-training-camp-physical-practice/
@@ -21,20 +37,4 @@ https://nytimes.com/2025/08/05/world/americas/brazil-bolsonaro-us-trade-talks.ht
 **Packers training camp: Quay Walker doesn't care about proving doubters wrong**\
 `The 2022 first-round pick is in a contract year after the Packers didn't exercise his fifth-year option this offseason.`\
 https://nytimes.com/athletic/6537328/2025/08/05/quay-walker-packers-training-camp/
-
-**House Committee Issued a Subpoena for the Epstein Files**\
-`Also, Tennessee executed a prisoner despite ethical health concerns. Here’s the latest at the end of Tuesday.`\
-https://nytimes.com/2025/08/05/briefing/house-subpoena-epstein-tennessee-execution.html
-
-**Celtics shake up frontcourt by trading Georges Niang to Jazz, adding Chris Boucher**\
-`With the moves, Boston saved enough money to move about $8 million under the second-apron payroll threshold.`\
-https://nytimes.com/athletic/6537343/2025/08/05/georges-niang-jazz-celtics-chris-boucher/
-
-**Broncos DC Vance Joseph: Unit must phase out 'awkward' plays to become dominant**\
-`Broncos offensive coordinator said new tight end Evan Engram has "met or exceeded" all of team's expectations during first camp in Denver.`\
-https://nytimes.com/athletic/6537143/2025/08/05/broncos-vance-joseph-training-camp/
-
-**Humanities Endowment Funds Trump’s Priorities After Ending Old Grants**\
-`The $34.8 million allocated by the National Endowment for the Humanities leans toward presidents, statesmen and the Declaration of Independence’s 250th anniversary.`\
-https://nytimes.com/2025/08/05/arts/national-endowment-for-the-humanities-trump-grants.html
 
