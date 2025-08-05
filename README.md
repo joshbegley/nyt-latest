@@ -1,3 +1,7 @@
+**Allan Ahlberg, Whose Children’s Books Were Best Sellers, Dies at 87**\
+`Over five decades, he produced some 150 books, many of them illustrated by his wife, Janet Ahlberg, including classics like “Each Peach Pear Plum.”`\
+https://nytimes.com/2025/08/05/books/allan-ahlberg-dead.html
+
 **Until Saturday: This season's 101 most absurd athletes**\
 `Until Saturday is The Athletic's free CFB newsletter.`\
 https://nytimes.com/athletic/6537204/2025/08/05/kadyn-proctor-alabama-until-saturday/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/05/nyregion/eric-adams-nyc-mayor-religious-leaders.h
 **Federal workers are told they can dispense with memos listing their weekly accomplishments.**\
 `By Eileen Sullivan`\
 https://nytimes.com/live/2025/08/05/us/trump-news/musk-5-things-email-doge-trump
-
-**In Brooklyn, a Former Tailor Shop Is a Perfect Fit**\
-`Drawn back to New York after years in Europe, Donelle Kosch gravitated toward Boerum Hill, transforming 450 square feet into a place she could live and entertain guests.`\
-https://nytimes.com/2025/08/05/realestate/tailor-shop-tiny-house-brooklyn.html
 
