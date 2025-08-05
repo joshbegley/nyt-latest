@@ -1,3 +1,15 @@
+**TAFC: Why 'Big Six' are buying up EPL talent, challenges facing U.S. owners in England**\
+`Today in TAFC: Why the 'Big Six' in the Premier League are shopping in the top division. Plus Trying not to 'bastardise' football.`\
+https://nytimes.com/athletic/6536168/2025/08/05/transfers-nicolas-jackson-chelsea-u-s-premier-league-owners/
+
+**The Seahawks' offensive line feels the pressure ... but also feels ready to meet it**\
+`How can the Seahawks' weakest link from 2024 become a strength? "Run the damn ball," first-round rookie Gray Zabel said.`\
+https://nytimes.com/athletic/6531601/2025/08/05/seahawks-training-camp-offensive-line/
+
+**As Cardinals transition to 2026, prioritizing playing time continues to be a roster problem**\
+`"Our objective overall, our goals as a staff, remain the same," manager Oli Marmol said.`\
+https://nytimes.com/athletic/6535825/2025/08/05/stl-cardinals-roster-playing-time-development/
+
 **Trump Administration Live Updates: President to Create Task Force for 2028 L.A. Olympics**\
 ``\
 https://nytimes.com/live/2025/08/05/us/trump-news
