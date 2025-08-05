@@ -1,3 +1,15 @@
+**Meet Dan Ndoye: Forest forward with gifts for fans, a family focus, and who 'took stairs' to top**\
+`Dan Ndoye's career has not been straightforward. But his move to Nottingham Forest is the next step in an exciting journey...`\
+https://nytimes.com/athletic/6534831/2025/08/05/dan-ndoye-profile-bologna-nottingham-forest-bologna/
+
+**After Bale, Kane and Son, Spurs now lack a 'franchise player'. Who will be next?**\
+`For the first time in over a decade, Tottenham Hotspur are about to be bereft of global superstars - how much does this matter...?`\
+https://nytimes.com/athletic/6534887/2025/08/05/spurs-son-star-player/
+
+**Marcus Rashford has done his part in pre-season. Now Barca need to do theirs**\
+`The Manchester United loanee has impressed his new team-mates, but he still needs to be registered with La Liga`\
+https://nytimes.com/athletic/6534884/2025/08/05/marcus-rashford-barcelona-la-liga-pre-season-registration/
+
 **Fantasy Premier League: The players to avoid selecting for FPL Gameweek One**\
 `From Isak to Mbeumo to Ait-Nouri, Holly Shand looks at the FPL assets who are potential busts for the very start of the new season`\
 https://nytimes.com/athletic/6525026/2025/08/05/fantasy-premier-league-players-avoid-gw1/

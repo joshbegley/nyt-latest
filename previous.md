@@ -1,3 +1,15 @@
+**Meet Dan Ndoye: Forest forward with gifts for fans, a family focus, and who 'took stairs' to top**\
+`Dan Ndoye's career has not been straightforward. But his move to Nottingham Forest is the next step in an exciting journey...`\
+https://nytimes.com/athletic/6534831/2025/08/05/dan-ndoye-profile-bologna-nottingham-forest-bologna/
+
+**After Bale, Kane and Son, Spurs now lack a 'franchise player'. Who will be next?**\
+`For the first time in over a decade, Tottenham Hotspur are about to be bereft of global superstars - how much does this matter...?`\
+https://nytimes.com/athletic/6534887/2025/08/05/spurs-son-star-player/
+
+**Marcus Rashford has done his part in pre-season. Now Barca need to do theirs**\
+`The Manchester United loanee has impressed his new team-mates, but he still needs to be registered with La Liga`\
+https://nytimes.com/athletic/6534884/2025/08/05/marcus-rashford-barcelona-la-liga-pre-season-registration/
+
 **Fantasy Premier League: The players to avoid selecting for FPL Gameweek One**\
 `From Isak to Mbeumo to Ait-Nouri, Holly Shand looks at the FPL assets who are potential busts for the very start of the new season`\
 https://nytimes.com/athletic/6525026/2025/08/05/fantasy-premier-league-players-avoid-gw1/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6535864/2025/08/05/connections-sports-edition-hints
 **Norway’s Hedged Bet on Europe’s Energy Future: A Garbage Disposal for Emissions**\
 `A business called Northern Lights is seen as a model for efforts to pump carbon dioxide deep into wells, but high costs remain an obstacle.`\
 https://nytimes.com/2025/08/05/business/norway-cabon-capture-northern-lights.html
-
-**Corrections: Aug. 5, 2025**\
-`Corrections that appeared in print on Tuesday, Aug. 5, 2025.`\
-https://nytimes.com/2025/08/05/pageoneplus/corrections-aug-5-2025.html
-
-**Quote of the Day: The Last Living Memories of Japan at War**\
-`Quotation of the Day for Tuesday, August 5, 2025.`\
-https://nytimes.com/2025/08/04/pageoneplus/quote-of-the-day-the-last-living-memories-of-japan-at-war.html
-
-**For one night, Jesús Sánchez is the face of the Astros' trade deadline**\
-`His ringing double during the fourth inning catalyzed a five-run frame from a lineup that sorely needed it.`\
-https://nytimes.com/athletic/6535919/2025/08/04/houston-astros-jesus-sanchez-trade-deadline/
 
