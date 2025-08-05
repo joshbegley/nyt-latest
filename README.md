@@ -1,3 +1,7 @@
+**Villa advancing in talks to sign Nice forward Guessand**\
+`Villa are working on a deal to sign Guessand but face competition for his signature and while it is not close, discussions are ongoing.`\
+https://nytimes.com/athletic/6536795/2025/08/05/aston-villa-transfers-guessand-nice/
+
 **A Thai Diner Chef Honors Her Mother at Mommy Pai’s**\
 `Kebabishq serves up Indian kebabs, Mykonian Garden brings Mykonos to Sutton Place and more restaurant news.`\
 https://nytimes.com/2025/08/05/dining/nyc-restaurant-news.html
@@ -34,8 +38,4 @@ https://nytimes.com/2025/08/05/us/politics/epstein-files-subpoenas.html
 **The Raging Gifford Fire, Like Many, Began Near a Highway**\
 `The wildfire in the Los Padres National Forest grew to 82,000 acres on Tuesday. Officials are still trying to determine the cause.`\
 https://nytimes.com/2025/08/05/us/california-gifford-fire-evacuation-orders.html
-
-**Kyren Williams reaches 3-year, $33 million extension with Rams**\
-`Coaches and teammates expressed admiration for how Williams handled the process during negotiations. `\
-https://nytimes.com/athletic/6510298/2025/08/05/kyren-williams-contract-extension-rams-nfl/
 

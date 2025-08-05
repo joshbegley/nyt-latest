@@ -1,3 +1,19 @@
+**A Thai Diner Chef Honors Her Mother at Mommy Pai’s**\
+`Kebabishq serves up Indian kebabs, Mykonian Garden brings Mykonos to Sutton Place and more restaurant news.`\
+https://nytimes.com/2025/08/05/dining/nyc-restaurant-news.html
+
+**Owner of Funeral Home With Nearly 200 Decaying Bodies Admits to Fraud**\
+`Prosecutors say the couple who ran the funeral home cheated customers of cremation services and spent the money on vacations and jewelry.`\
+https://nytimes.com/2025/08/05/us/colorado-funeral-home-decaying-bodies-fraud.html
+
+**Saquon Barkley declines President Trump's invitation to serve on sports council**\
+`The Philadelphia Eagles running back said he was too busy to participate. `\
+https://nytimes.com/athletic/6536700/2025/08/05/trump-saquon-barkley-eagles-sports-council-invitation/
+
+**Detroit Mayoral Primary Election Results**\
+`Get live results and maps from the 2025 Detroit primary election.`\
+https://nytimes.com/interactive/2025/08/05/us/elections/results-michigan-mayor-detroit-primary.html
+
 **Venezuela is going to Little League World Series. It took a senator and the secretary of state**\
 `Willson Contreras, one of baseball’s most prominent Venezuelan players, lamented being "treated like we are criminals here"
 `\
@@ -22,20 +38,4 @@ https://nytimes.com/2025/08/05/us/california-gifford-fire-evacuation-orders.html
 **Kyren Williams reaches 3-year, $33 million extension with Rams**\
 `Coaches and teammates expressed admiration for how Williams handled the process during negotiations. `\
 https://nytimes.com/athletic/6510298/2025/08/05/kyren-williams-contract-extension-rams-nfl/
-
-**Columbia and Brown to Disclose Admissions and Race Data in Trump Deal**\
-`A widely overlooked part of a settlement with the two universities could profoundly alter how elite schools determine who gets accepted.`\
-https://nytimes.com/2025/08/05/nyregion/columbia-brown-admissions-trump.html
-
-**Read All About It: True Tales of Men and Fiction**\
-`Readers respond to a column by Maureen Dowd about men and books. Also: President Trump’s tariff games; relationships outside romance.`\
-https://nytimes.com/2025/08/05/opinion/men-books-fiction.html
-
-**Trump Rules Out Bessent as Replacement for Powell at Fed**\
-`With Treasury Secretary Scott Bessent not in the running, President Trump said that he has narrowed his list of replacements to four people.`\
-https://nytimes.com/2025/08/05/us/politics/trump-bessent-fed-chair-powell.html
-
-**They Are 16 and 17 Years Old, and They Want to Vote. Like, Now.**\
-`After Britain announced plans to lower the voting age, some American teenagers wondered: When will it be their turn?`\
-https://nytimes.com/2025/08/05/style/lower-voting-age-britain-us.html
 
