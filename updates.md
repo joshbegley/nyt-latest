@@ -1,3 +1,20 @@
+**Villa advancing in talks to sign Nice forward Guessand**\
+`Villa are working on a deal to sign Guessand but face competition for his signature and while it is not close, discussions are ongoing.`\
+https://nytimes.com/athletic/6536795/2025/08/05/aston-villa-transfers-guessand-nice/
+
+**Venezuela is going to Little League World Series. It took a senator and the secretary of state**\
+`Willson Contreras, one of baseball’s most prominent Venezuelan players, lamented being "treated like we are criminals here"
+`\
+https://nytimes.com/athletic/6536059/2025/08/05/venezuela-little-league-world-series-travel-ban/
+
+**Map: 2.7-Magnitude Earthquake Strikes New Jersey**\
+`View the location of the quake’s epicenter and shake area.`\
+https://nytimes.com/interactive/2025/08/05/nyregion/new-jersey-quake-tracker.html
+
+**House Oversight Committee Issues Subpoenas for Epstein Files**\
+`The committee’s Republican chairman requested that the documents from the Justice Department and former government officials be delivered by Aug. 19.`\
+https://nytimes.com/2025/08/05/us/politics/epstein-files-subpoenas.html
+
 **Venezuela is going to Little League World Series. It took a senator and the secretary of state**\
 `Willson Contreras, one of baseball’s most prominent Venezuelan players, lamented being "treated like we are criminals here"
 `\
