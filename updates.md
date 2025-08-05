@@ -1,3 +1,7 @@
+**What the Bears gained in their most physical practice in over a decade**\
+`The Bears had their most physical practice in years, featuring multiple dust-ups. What difference can that make during the regular season?`\
+https://nytimes.com/athletic/6537369/2025/08/05/bears-training-camp-physical-practice/
+
 **Up on the Roof, Trump Surveys the Home He’s Making His Own**\
 `White House reporters looked up from the driveway to see a familiar figure in a most unfamiliar location.`\
 https://nytimes.com/2025/08/05/us/politics/trump-white-house-stroll.html
