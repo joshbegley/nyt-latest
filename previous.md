@@ -1,3 +1,7 @@
+**Torrential Rain Batters Hong Kong, Flooding the Waterlogged City**\
+`Record-setting rain has brought chaos to parts of Hong Kong, with submerged streets, stranded buses and landslides, as officials warn residents to avoid going out.`\
+https://nytimes.com/2025/08/05/world/asia/hong-kong-floods.html
+
 **How a Soggy Spring and Hot Summer Nights Made 2025 an ‘Exceptional’ Year for Fireflies**\
 `If you think you’ve spotted more than the usual number of blinking bugs this year, you’re not alone. But experts say many firefly species are at risk of extinction.`\
 https://nytimes.com/2025/08/05/weather/more-fireflies-this-year-why.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/05/opinion/ezra-klein-podcast-mahmoud-khalil.html
 **The Supreme Court Has Finally Found a President It Likes**\
 `Its six-member conservative majority has become a key enabler of Trump’s agenda.`\
 https://nytimes.com/2025/08/05/opinion/supreme-court-trump-administration.html
-
-**Tennessee Inmate to Be Executed Despite Ethical Health Concerns**\
-`Lawyers for Byron Black, found guilty of three murders, have argued that an execution may be more painful because of his heart implant.`\
-https://nytimes.com/2025/08/05/us/politics/tennessee-execution-heart-implant.html
 
