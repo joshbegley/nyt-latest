@@ -1,3 +1,7 @@
+**RB Leipzig contact Liverpool over Harvey Elliott transfer**\
+`The central midfielder said in June he was wary of 'wasting years of my career' due to his lack of game-time at Anfield.`\
+https://nytimes.com/athletic/6413115/2025/08/05/liverpool-transfers-harvey-elliott-rb-leipzig/
+
 **British Opera Company Cancels ‘Tosca’ Collaboration in Israel After Criticism**\
 `The Royal Ballet and Opera said it was scrapping performances in Tel Aviv next year, after nearly 200 staff members signed an open letter criticizing its stance on the war in Gaza.`\
 https://nytimes.com/2025/08/05/arts/music/british-opera-royal-tosca-israel-letter.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/05/realestate/tailor-shop-tiny-house-brooklyn.html
 **Trump Administration Illegally Withheld N.I.H. Funding, Watchdog Finds**\
 `Lawmakers from both parties have criticized the White House for halting money for cancer research and other cures.`\
 https://nytimes.com/2025/08/05/us/politics/trump-gao-nih-funding.html
-
-**Big Tech’s Net-Zero Goals Are Looking Shaky**\
-`Emissions are “going through the roof” because of A.I., according to new sustainability reports.`\
-https://nytimes.com/2025/08/05/climate/tech-companies-climate-goals.html
 
