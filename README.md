@@ -1,3 +1,15 @@
+**Spirit Airlines Pilot Is Charged With Stalking Two Children**\
+`The pilot, Dominic Cipolla, was arrested in July while on duty at New Orleans International Airport, the airline said.`\
+https://nytimes.com/2025/08/05/business/spirit-pilot-kansas-new-orleans-stalking-children.html
+
+**NFL has banned smelling salts, 'distraught' George Kittle reveals**\
+`The NFL cited a lack of evidence supporting the safety or efficacy of smelling salts, and the potential to mask signs of concussion.`\
+https://nytimes.com/athletic/6537405/2025/08/05/nfl-smelling-salts-banned-george-kittle/
+
+**Bolsonaro House Arrest Casts Shadow Over Brazil-U.S. Trade Talks**\
+`The Brazilian Supreme Court justice’s order could complicate efforts to negotiate over President Trump’s punishing tariffs, set to go into effect this week.`\
+https://nytimes.com/2025/08/05/world/americas/brazil-bolsonaro-us-trade-talks.html
+
 **Packers training camp: Quay Walker doesn't care about proving doubters wrong**\
 `The 2022 first-round pick is in a contract year after the Packers didn't exercise his fifth-year option this offseason.`\
 https://nytimes.com/athletic/6537328/2025/08/05/quay-walker-packers-training-camp/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6537224/2025/08/05/jordan-addison-suspension-viking
 **A tribute to Yastrzemski, Doval and Rogers: Giants heroes of the Farhan Zaidi era**\
 `Yastrzemski, Camilo Doval and Tyler Rogers didn't win titles with the Giants. But they made the team more fun and that is to be appreciated.`\
 https://nytimes.com/athletic/6535202/2025/08/05/sf-giants-mike-yastrzemski-camilo-doval-tyler-rogers-tribute/
-
-**LeShon Johnson, Ex-N.F.L. Player, Is Convicted in Major Dogfighting Case**\
-`Federal investigators said that they had seized 190 pit-bull-type dogs from the former running back, who previously pleaded guilty to state dogfighting charges in 2004.`\
-https://nytimes.com/2025/08/05/us/leshon-johnson-nfl-dogfighting.html
-
-**Wednesday Briefing: Netanyahu’s Next Steps in Gaza**\
-`Plus, how to break free from your phone.`\
-https://nytimes.com/2025/08/05/briefing/netanyahu-gaza-jeju-air-hiroshima.html
-
-**Browns rookie QB Shedeur Sanders expected to start preseason opener vs. Panthers**\
-`Sanders will go from the clear fourth QB throughout the first two weeks of training camp to first on the field in the preseason.`\
-https://nytimes.com/athletic/6537264/2025/08/05/browns-shedeur-sanders-start-preseason-panthers/
 
