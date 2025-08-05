@@ -3,7 +3,7 @@
 https://nytimes.com/athletic/6535991/2025/08/05/sf-giants-justin-verlander-seeking-wins/
 
 **Manchester United submit offer for RB Leipzig striker Benjamin Sesko**\
-`Manchester United have submitted a bid of €75million plus €10m in add-ons for RB Leipzig striker Benjamin Sesko.`\
+`Leipzig are yet to respond to the Premier League club's proposal.`\
 https://nytimes.com/athletic/6525259/2025/08/05/benjamin-sesko-manchester-united-rb-leipzig-transfer-update/
 
 **TAFC: Why 'Big Six' are buying up EPL talent, challenges facing U.S. owners in England**\
