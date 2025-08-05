@@ -1,3 +1,11 @@
+**Cruel universe: Giants blow another victory for Justin Verlander**\
+`With minimal exception, on Verlander's day, the Giants have been neither super nor natural all season.`\
+https://nytimes.com/athletic/6535991/2025/08/05/sf-giants-justin-verlander-seeking-wins/
+
+**Manchester United submit offer for RB Leipzig striker Benjamin Sesko**\
+`Manchester United have submitted a bid of €75million plus €10m in add-ons for RB Leipzig striker Benjamin Sesko.`\
+https://nytimes.com/athletic/6525259/2025/08/05/benjamin-sesko-manchester-united-rb-leipzig-transfer-update/
+
 **TAFC: Why 'Big Six' are buying up EPL talent, challenges facing U.S. owners in England**\
 `Today in TAFC: Why the 'Big Six' in the Premier League are shopping in the top division. Plus Trying not to 'bastardise' football.`\
 https://nytimes.com/athletic/6536168/2025/08/05/transfers-nicolas-jackson-chelsea-u-s-premier-league-owners/

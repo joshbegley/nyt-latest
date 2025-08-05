@@ -1,3 +1,11 @@
+**Cruel universe: Giants blow another victory for Justin Verlander**\
+`With minimal exception, on Verlander's day, the Giants have been neither super nor natural all season.`\
+https://nytimes.com/athletic/6535991/2025/08/05/sf-giants-justin-verlander-seeking-wins/
+
+**Manchester United submit offer for RB Leipzig striker Benjamin Sesko**\
+`Manchester United have submitted a bid of €75million plus €10m in add-ons for RB Leipzig striker Benjamin Sesko.`\
+https://nytimes.com/athletic/6525259/2025/08/05/benjamin-sesko-manchester-united-rb-leipzig-transfer-update/
+
 **TAFC: Why 'Big Six' are buying up EPL talent, challenges facing U.S. owners in England**\
 `Today in TAFC: Why the 'Big Six' in the Premier League are shopping in the top division. Plus Trying not to 'bastardise' football.`\
 https://nytimes.com/athletic/6536168/2025/08/05/transfers-nicolas-jackson-chelsea-u-s-premier-league-owners/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/08/05/briefing/texas-house-democrats.html
 **Cubs' newest acquisition, Michael Soroka, exits with shoulder injury, will go on IL**\
 `The 28-year-old has a long injury history, with multiple Achilles tears that waylaid his career after a breakout 2019 season.`\
 https://nytimes.com/athletic/6535957/2025/08/05/chicago-cubs-michael-soroka-injury/
-
-**Taiwan Investigates TSMC Employees Over Possible Trade Secret Theft**\
-`Taiwan government says it has detained three employees on suspicion they obtained the Taiwanese chip giant’s “core technology trade secrets.”`\
-https://nytimes.com/2025/08/05/business/taiwan-tsmc-chips-leak-trade-secrets.html
-
-**Who will win the Heisman in 2025? We drafted 32 picks**\
-`We arranged writers in a randomized snake draft order and gave them four rounds to take their pick of this season’s Heisman candidates.`\
-https://nytimes.com/athletic/6531202/2025/08/05/heisman-trophy-odds-picks-college-football-2025/
 
