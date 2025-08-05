@@ -1,3 +1,7 @@
+**Man City's Vitor Reis set to join CFG-owned Girona on loan**\
+`The Brazilian defender has made four appearances for Pep Guardiola's side since his arrival from Palmeiras in the January transfer window.`\
+https://nytimes.com/athletic/6527983/2025/08/05/manchester-city-transfers-vitor-reis-girona/
+
 **8 Early Rap Songs From a New York City in Turmoil**\
 `Inspired by a new book tracing four pivotal years in the city’s history, hear a playlist of songs from the dawn of hip-hop that were swirling at the time.`\
 https://nytimes.com/2025/08/05/arts/music/amplifier-newsletter-early-new-york-rap.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6536795/2025/08/05/aston-villa-transfers-guessand-n
 **A Thai Diner Chef Honors Her Mother at Mommy Pai’s**\
 `Kebabishq serves up Indian kebabs, Mykonian Garden brings Mykonos to Sutton Place and more restaurant news.`\
 https://nytimes.com/2025/08/05/dining/nyc-restaurant-news.html
-
-**Owner of Funeral Home With Nearly 200 Decaying Bodies Admits to Fraud**\
-`Prosecutors say the couple who ran the funeral home cheated customers of cremation services and spent the money on vacations and jewelry.`\
-https://nytimes.com/2025/08/05/us/colorado-funeral-home-decaying-bodies-fraud.html
 
