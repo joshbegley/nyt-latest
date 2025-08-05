@@ -1,3 +1,7 @@
+**Ion Iliescu, Who Steered Romania After Revolution, Dies at 95**\
+`As a three-term as president, he guided the country toward democracy, but he was called an authoritarian at heart and accused of brutality during the revolt that put him in power.`\
+https://nytimes.com/2025/08/05/world/europe/ion-iliescu-dead.html
+
 **F.B.I. Is Asked to Arrest Texas Democrats in Battle Over House Seats**\
 `It was unclear how the agency would respond. Democratic lawmakers left the state to stop Republicans from redrawing district maps to their advantage.`\
 https://nytimes.com/2025/08/05/us/politics/fbi-texas-democrats.html
@@ -34,8 +38,4 @@ https://nytimes.com/interactive/2025/08/05/us/elections/results-michigan-mayor-d
 `Willson Contreras, one of baseball’s most prominent Venezuelan players, lamented being "treated like we are criminals here"
 `\
 https://nytimes.com/athletic/6536059/2025/08/05/venezuela-little-league-world-series-travel-ban/
-
-**OpenAI to Give Away Some of the Technology That Powers ChatGPT**\
-`In a major shift, the company is “open sourcing” two A.I. systems, freely sharing the technology with outside researchers and businesses.`\
-https://nytimes.com/2025/08/05/technology/openai-artificial-intelligence-chatgpt.html
 
