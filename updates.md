@@ -1,3 +1,11 @@
+**The New York Times in Print for Tuesday, Aug. 5, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/08/05/todays-new-york-times
+
+**Trump Has Soured on Putin. Putin Couldn’t Care Less.**\
+`Russia’s president has lost faith in the very idea of reaching agreements with the United States.`\
+https://nytimes.com/2025/08/05/opinion/putin-trump-deadline-ukraine.html
+
 **Chargers’ Zion Johnson experiment at center is over as he returns to left guard**\
 `Johnson will still get some cross-training work at center but is expected to focus primarily on playing left guard.`\
 https://nytimes.com/athletic/6535836/2025/08/05/chargers-zion-johnson-center-guard/
