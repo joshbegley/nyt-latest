@@ -1,3 +1,7 @@
+**Braves' Grant Holmes opts for non-surgical route, Chris Sale progressing and more**\
+`Holmes, understandably, doesn’t want to miss a full season after working so long to make it to the major leagues.`\
+https://nytimes.com/athletic/6535789/2025/08/04/braves-grant-holmes-chris-sale/
+
 **Chemical Makers to Pay N.J. $875 Million to Settle ‘Forever Chemicals’ Claims**\
 `New Jersey officials called it the largest environmental settlement ever achieved by a single state.`\
 https://nytimes.com/2025/08/04/climate/new-jersey-pfas-settlement.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6535685/2025/08/04/chargers-denzel-perryman-gun-cha
 **How Is the Montana Shooting Suspect Still at Large? Check Out the Terrain.**\
 `Many manhunts end quickly, but the man accused of killing four people in rural Montana appears to have disappeared into the kind of wilderness that helps elude pursuers.`\
 https://nytimes.com/2025/08/04/us/montana-manhunt-terrain.html
-
-**Trump’s Deal-Making With Other Elite Schools Scrambles Harvard Negotiations**\
-`The university was open to spending $500 million, but a $50 million settlement with Brown has prompted new debates in Cambridge.`\
-https://nytimes.com/2025/08/04/us/politics/harvard-trump-brown.html
 
