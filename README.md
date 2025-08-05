@@ -1,3 +1,11 @@
+**TAFC: Why 'Big Six' are buying up EPL talent, challenges facing U.S. owners in England**\
+`Today in TAFC: Why the 'Big Six' in the Premier League are shopping in the top division. Plus Trying not to 'bastardise' football.`\
+https://nytimes.com/athletic/6536168/2025/08/05/transfers-nicolas-jackson-chelsea-u-s-premier-league-owners/
+
+**The Seahawks' offensive line feels the pressure ... but also feels ready to meet it**\
+`How can the Seahawks' weakest link from 2024 become a strength? "Run the damn ball," first-round rookie Gray Zabel said.`\
+https://nytimes.com/athletic/6531601/2025/08/05/seahawks-training-camp-offensive-line/
+
 **As Cardinals transition to 2026, prioritizing playing time continues to be a roster problem**\
 `"Our objective overall, our goals as a staff, remain the same," manager Oli Marmol said.`\
 https://nytimes.com/athletic/6535825/2025/08/05/stl-cardinals-roster-playing-time-development/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/08/05/business/taiwan-tsmc-chips-leak-trade-secrets.htm
 **Who will win the Heisman in 2025? We drafted 32 picks**\
 `We arranged writers in a randomized snake draft order and gave them four rounds to take their pick of this season’s Heisman candidates.`\
 https://nytimes.com/athletic/6531202/2025/08/05/heisman-trophy-odds-picks-college-football-2025/
-
-**Byron Buxton told inquiring teams 'No,' and what else I learned about the Twins, Part 2**\
-`Elsewhere, the Twins thought their prep work paid big dividends in the final hour when multiple moves were made.`\
-https://nytimes.com/athletic/6535781/2025/08/05/minnesota-twins-byron-buxton-deadline/
-
-**Can the Seattle Storm contend for a WNBA title? Mailbag answers from our expert**\
-`Trade ideas, the Aces' future and Minnesota's addition of DiJonai Carrington. Sabreena Merchant answers your WNBA questions.`\
-https://nytimes.com/athletic/6535929/2025/08/05/seattle-storm-contender-wnba-mailbag/
 
