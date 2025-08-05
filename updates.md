@@ -1,3 +1,11 @@
+**Chargers’ Zion Johnson experiment at center is over as he returns to left guard**\
+`Johnson will still get some cross-training work at center but is expected to focus primarily on playing left guard.`\
+https://nytimes.com/athletic/6535836/2025/08/05/chargers-zion-johnson-center-guard/
+
+**Tuesday Briefing: Trump’s Tariff Leverage**\
+`Also, a hit musical at the Edinburgh Festival Fringe.`\
+https://nytimes.com/2025/08/05/briefing/trump-tariff-yemen-migrant-africa-musk.html
+
 **Meet Dan Ndoye: Forest forward with gifts for fans, a family focus, and who 'took stairs' to top**\
 `Dan Ndoye's career has not been straightforward. But his move to Nottingham Forest is the next step in an exciting journey...`\
 https://nytimes.com/athletic/6534831/2025/08/05/dan-ndoye-profile-bologna-nottingham-forest-bologna/

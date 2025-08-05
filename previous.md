@@ -1,3 +1,11 @@
+**Chargers’ Zion Johnson experiment at center is over as he returns to left guard**\
+`Johnson will still get some cross-training work at center but is expected to focus primarily on playing left guard.`\
+https://nytimes.com/athletic/6535836/2025/08/05/chargers-zion-johnson-center-guard/
+
+**Tuesday Briefing: Trump’s Tariff Leverage**\
+`Also, a hit musical at the Edinburgh Festival Fringe.`\
+https://nytimes.com/2025/08/05/briefing/trump-tariff-yemen-migrant-africa-musk.html
+
 **Meet Dan Ndoye: Forest forward with gifts for fans, a family focus, and who 'took stairs' to top**\
 `Dan Ndoye's career has not been straightforward. But his move to Nottingham Forest is the next step in an exciting journey...`\
 https://nytimes.com/athletic/6534831/2025/08/05/dan-ndoye-profile-bologna-nottingham-forest-bologna/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/08/05/world/asia/jeju-air-crash-south-korea-investigati
 **Takeaways From the Times Investigation Into the Jeju Air Crash**\
 `Original designs for a structure at the end of the runway stipulated that it should break apart easily on impact. It ended up being made of concrete.`\
 https://nytimes.com/2025/08/05/world/asia/jeju-air-plane-crash-investigation-takeaways.html
-
-**Connections: Sports Edition Coach: Hints for Aug. 5, 2025**\
-`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
-https://nytimes.com/athletic/6535864/2025/08/05/connections-sports-edition-hints-for-aug-5-2025/
-
-**Norway’s Hedged Bet on Europe’s Energy Future: A Garbage Disposal for Emissions**\
-`A business called Northern Lights is seen as a model for efforts to pump carbon dioxide deep into wells, but high costs remain an obstacle.`\
-https://nytimes.com/2025/08/05/business/norway-cabon-capture-northern-lights.html
 
