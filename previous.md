@@ -1,3 +1,11 @@
+**U.S. Imports Slid in June on Higher Tariffs**\
+`Imports from other countries fell around 4 percent from the previous month as President Trump’s steep tariffs discouraged businesses from ordering goods.`\
+https://nytimes.com/2025/08/05/business/economy/imports-data-trump-tariffs.html
+
+**The Windup: Schwarber can’t stop launching dingers**\
+`Welcome to The Windup, The Athletic's MLB newsletter.`\
+https://nytimes.com/athletic/6536021/2025/08/05/kyle-schwarber-mlb-playoffs-the-windup/
+
 **What to Know About India’s Trade in Oil With Russia**\
 `President Trump accused India of aiding Moscow’s war on Ukraine by purchasing Russian energy, derailing trade talks between India and the United States.`\
 https://nytimes.com/2025/08/05/business/india-russia-oil.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/08/05/learning/the-wackiest-ways-we-remember-those-weve
 **What Talks With India and Switzerland Say About Trump’s Trade War**\
 `One country is clashing with the U.S., the other racing to appease Washington. Both approaches are being tested ahead of a looming deadline for trade deals.`\
 https://nytimes.com/2025/08/05/business/dealbook/trump-india-switzerland-tariffs.html
-
-**Clay, a Sales Tool for the A.I. Era, Raises $100 Million**\
-`Investors valued the company, which describes its core user as a kind of marketing engineer, at $3.1 billion.`\
-https://nytimes.com/2025/08/05/business/dealbook/clay-ai-marketing-fundraise.html
-
-**Man Utd supporters' group to protest against Sir Jim Ratcliffe ahead of season opener**\
-`The protest will be the first against Sir Jim Ratcliffe after his implementation of redundancies and ticket price rises.`\
-https://nytimes.com/athletic/6536278/2025/08/05/manchester-united-protest-ratcliffe-season-opener-arsenal/
 
