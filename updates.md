@@ -1,3 +1,7 @@
+**Inside Manchester United's summer tour: Meticulous preparation, crucial bonding, new players catching up**\
+`Ruben Amorim used the club's pre-season tour to get granular about his tactics`\
+https://nytimes.com/athletic/6535605/2025/08/05/manchester-united-tour-2025/
+
 **80 Years Ago, Nuclear Annihilation Came to Japan**\
 `What the world’s only atomic bombings, carried out by Americans, did to Hiroshima and Nagasaki.`\
 https://nytimes.com/2025/08/05/world/asia/hiroshima-nagasaki-japan-nuclear-photos.html

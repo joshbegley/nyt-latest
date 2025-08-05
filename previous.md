@@ -23,7 +23,7 @@ https://nytimes.com/2025/08/05/arts/television/stephen-colbert-trump-job-report.
 https://nytimes.com/athletic/6534353/2025/08/05/manchester-united-arsenal-liverpool-transfer-latest-real-madrid-window-updates/
 
 **Inside Manchester United's summer tour: Meticulous preparation, crucial bonding, new players catching up**\
-`Ruben Amorim used Manchester United's pre-season tour to get granular with his team about his tactics...`\
+`Ruben Amorim used the club's pre-season tour to get granular about his tactics`\
 https://nytimes.com/athletic/6535605/2025/08/05/manchester-united-tour-2025/
 
 **Word of the Day: estuary**\
