@@ -1,3 +1,7 @@
+**Inside Manchester United's summer tour: Meticulous preparation and crucial team bonding**\
+`Ruben Amorim used Manchester United's pre-season tour to get granular with his team about his tactics...`\
+https://nytimes.com/athletic/6535605/2025/08/05/manchester-united-tour-2025/
+
 **Word of the Day: estuary**\
 `This word has appeared in 25 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2025/08/05/learning/word-of-the-day-estuary.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6534884/2025/08/05/marcus-rashford-barcelona-la-lig
 **Fantasy Premier League: The players to avoid selecting for FPL Gameweek One**\
 `From Isak to Mbeumo to Ait-Nouri, Holly Shand looks at the FPL assets who are potential busts for the very start of the new season`\
 https://nytimes.com/athletic/6525026/2025/08/05/fantasy-premier-league-players-avoid-gw1/
-
-**Kyle Schwarber hears MVP chants, hits slam to reach 40 homers: 'The guy is unbelievable'**\
-`Schwarber remains hot for a Phillies team that leads the league with 33 homers since the All-Star break.`\
-https://nytimes.com/athletic/6535935/2025/08/05/phillies-kyle-schwarber-mvp-slam/
 
