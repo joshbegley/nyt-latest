@@ -1,3 +1,7 @@
+**Ranked-Choice Voting Helped Mamdani Score a Decisive Primary Win**\
+`The primary results show that voters and campaigns are becoming more sophisticated in how they use ranked-choice voting.`\
+https://nytimes.com/interactive/2025/08/04/nyregion/nyc-mayoral-primary-mamdani-ballots.html
+
 **Eagles, Raiders agree to trade of young defensive pieces: Sources**\
 `The Eagles add to their cornerback competition, while the Raiders acquire more depth at defensive tackle.`\
 https://nytimes.com/athletic/6535858/2025/08/04/eagles-raiders-trade-jakorian-bennett-thomas-booker-iv/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/04/us/politics/trump-republicans-bls-jobs-analysis.h
 **Islanders sign Matthew Schaefer to 3-year, entry-level contract**\
 `Schaefer was the No. 1 overall pick of the Islanders in this year's draft.`\
 https://nytimes.com/athletic/6535696/2025/08/04/islanders-matthew-schaefer-contract-rookie/
-
-**FIFA condemns death threats against Mexican referee Katia Itzel Garcia**\
-`The official spoke out strongly after being targeted on social media.`\
-https://nytimes.com/athletic/6535676/2025/08/04/katia-itzel-garcia-leagues-cup-death-threats/
 
