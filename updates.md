@@ -1,3 +1,7 @@
+**Packers training camp: Quay Walker doesn't care about proving doubters wrong**\
+`The 2022 first-round pick is in a contract year after the Packers didn't exercise his fifth-year option this offseason.`\
+https://nytimes.com/athletic/6537328/2025/08/05/quay-walker-packers-training-camp/
+
 **House Committee Issued a Subpoena for the Epstein Files**\
 `Also, Tennessee executed a prisoner despite ethical health concerns. Here’s the latest at the end of Tuesday.`\
 https://nytimes.com/2025/08/05/briefing/house-subpoena-epstein-tennessee-execution.html
