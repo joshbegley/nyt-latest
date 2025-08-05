@@ -1,3 +1,7 @@
+**ICE Offers, Then Quickly Withdraws, Cash Bonuses for Swiftly Deporting Immigrants**\
+`The short-lived effort underscores the mounting pressure on ICE to meet President Trump’s aggressive deportation targets.`\
+https://nytimes.com/2025/08/05/us/politics/ice-bonuses-immigrants-deportations.html
+
 **Allan Ahlberg, Whose Children’s Books Were Best Sellers, Dies at 87**\
 `Over five decades, he produced some 150 books, many of them illustrated by his wife, Janet Ahlberg, including classics like “Each Peach Pear Plum.”`\
 https://nytimes.com/2025/08/05/books/allan-ahlberg-dead.html
