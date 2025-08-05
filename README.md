@@ -1,3 +1,11 @@
+**Eagles, Raiders agree to trade of young defensive pieces: Sources**\
+`The Eagles add to their cornerback competition, while the Raiders acquire more depth at defensive tackle.`\
+https://nytimes.com/athletic/6535858/2025/08/04/eagles-raiders-trade-jakorian-bennett-thomas-booker-iv/
+
+**Let Develop Over Time**\
+`Gary Larson and Amy Ensz must find us amusing.`\
+https://nytimes.com/2025/08/04/crosswords/daily-puzzle-2025-08-05.html
+
 **Braves' Grant Holmes opts for non-surgical route, Chris Sale progressing and more**\
 `Holmes, understandably, doesn’t want to miss a full season after working so long to make it to the major leagues.`\
 https://nytimes.com/athletic/6535789/2025/08/04/braves-grant-holmes-chris-sale/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6535696/2025/08/04/islanders-matthew-schaefer-contr
 **FIFA condemns death threats against Mexican referee Katia Itzel Garcia**\
 `The official spoke out strongly after being targeted on social media.`\
 https://nytimes.com/athletic/6535676/2025/08/04/katia-itzel-garcia-leagues-cup-death-threats/
-
-**Chargers LB Denzel Perryman released from police custody following gun charges**\
-`Authorities arrested Perryman, a sixth-year veteran, on Friday for multiple weapons violations.`\
-https://nytimes.com/athletic/6535685/2025/08/04/chargers-denzel-perryman-gun-charges/
-
-**How Is the Montana Shooting Suspect Still at Large? Check Out the Terrain.**\
-`Many manhunts end quickly, but the man accused of killing four people in rural Montana appears to have disappeared into the kind of wilderness that helps elude pursuers.`\
-https://nytimes.com/2025/08/04/us/montana-manhunt-terrain.html
 
