@@ -1,3 +1,7 @@
+**House Committee Issued a Subpoena for the Epstein Files**\
+`Also, Tennessee executed a prisoner despite ethical health concerns. Here’s the latest at the end of Tuesday.`\
+https://nytimes.com/2025/08/05/briefing/house-subpoena-epstein-tennessee-execution.html
+
 **Celtics shake up frontcourt by trading Georges Niang to Jazz, adding Chris Boucher**\
 `With the moves, Boston saved enough money to move about $8 million under the second-apron payroll threshold.`\
 https://nytimes.com/athletic/6537343/2025/08/05/georges-niang-jazz-celtics-chris-boucher/

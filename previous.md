@@ -1,3 +1,7 @@
+**House Committee Issued a Subpoena for the Epstein Files**\
+`Also, Tennessee executed a prisoner despite ethical health concerns. Here’s the latest at the end of Tuesday.`\
+https://nytimes.com/2025/08/05/briefing/house-subpoena-epstein-tennessee-execution.html
+
 **Celtics shake up frontcourt by trading Georges Niang to Jazz, adding Chris Boucher**\
 `With the moves, Boston saved enough money to move about $8 million under the second-apron payroll threshold.`\
 https://nytimes.com/athletic/6537343/2025/08/05/georges-niang-jazz-celtics-chris-boucher/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6537264/2025/08/05/browns-shedeur-sanders-start-pre
 **Where Can Gaza Go From Here?**\
 `No thoughtful person can be pro-Palestinian without also being anti-Hamas.`\
 https://nytimes.com/2025/08/05/opinion/gaza-war-israel-netanyahu.html
-
-**Why Did God Favor France?**\
-`Five theories about Joan of Arc’s miraculous-seeming career.`\
-https://nytimes.com/2025/08/05/opinion/joan-arc-miracles-god.html
 
