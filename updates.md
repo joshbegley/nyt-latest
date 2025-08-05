@@ -1,3 +1,7 @@
+**LeShon Johnson, Ex-N.F.L. Player, Is Convicted in Major Dogfighting Case**\
+`Federal investigators said that they had seized 190 pit-bull-type dogs from the former running back, who previously pleaded guilty to state dogfighting charges in 2004.`\
+https://nytimes.com/2025/08/05/us/leshon-johnson-nfl-dogfighting.html
+
 **Wednesday Briefing: Netanyahu’s Next Steps in Gaza**\
 `Plus, how to break free from your phone.`\
 https://nytimes.com/2025/08/05/briefing/netanyahu-gaza-jeju-air-hiroshima.html
