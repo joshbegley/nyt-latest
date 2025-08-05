@@ -1,3 +1,27 @@
+**Evenepoel signs for Red Bull–BORA–hansgrohe from 2026**\
+`The 25-year-old is the World and Olympic time-trial champion but dropped out of the 2025 Tour de France on Stage 14.`\
+https://nytimes.com/athletic/6536530/2025/08/05/remco-evenepoel-soudal-quickstep-red-bull-transfer/
+
+**A G.O.P. Congressman Faced His Voters. It Wasn’t Pretty.**\
+`Most Republican lawmakers are avoiding town hall meetings, reluctant to confront energized Democrats and answer tough questions. When Representative Mike Flood of Nebraska gave it a try, the booing started in seconds.`\
+https://nytimes.com/2025/08/05/us/politics/mike-flood-town-hall.html
+
+**Ozzy Osbourne Died of a Heart Attack, Death Certificate Shows**\
+`The document also notes that he suffered from Parkinson’s disease.`\
+https://nytimes.com/2025/08/05/arts/music/ozzy-osbourne-cause-of-death.html
+
+**Should Benjamin Sesko choose Manchester United or Newcastle United?**\
+`Manchester United and Newcastle United have made substantial offers for Benjamin Sesko - our writers explain what he should consider`\
+https://nytimes.com/athletic/6536456/2025/08/05/benjamin-sesko-manchester-united-newcastle-transfer-choice/
+
+**Lowetide: Comparables for Oilers' Ike Howard offer encouragement for the future**\
+`If Howard delivers a strong rookie season, chances are it will be in a complementary role with an impact centre leading the way.`\
+https://nytimes.com/athletic/6533431/2025/08/05/oilers-isaac-howard-prospect-comparables/
+
+**Salpicón de Pescado, Chicken-Zucchini Meatballs and No-Chop White Bean Salad**\
+`I simply love summer cooking.`\
+https://nytimes.com/2025/08/05/dining/salpicon-de-pescado-chicken-zucchini-meatballs-and-no-chop-white-bean-salad.html
+
 **Yankees demote Jake Bird, reliever they just acquired, in another sign things are off track**\
 `The Yankees have slowly been losing their grip on a playoff position.`\
 https://nytimes.com/athletic/6536563/2025/08/05/yankees-jake-bird-demotion-after-trade/
@@ -13,28 +37,4 @@ https://nytimes.com/2025/08/05/us/titan-sub-implosion-coast-guard-report.html
 **China’s Mosquito Crackdown Tests a City’s Post-Covid Patience**\
 `The authorities are inspecting homes, tracking purchases of fever medicines and deploying drones as they urge people to join an eradication campaign that echoes Covid measures.`\
 https://nytimes.com/2025/08/05/world/asia/china-chikungunya-virus-mosquitoes-covid.html
-
-**Manchester United betting season preview: What are the odds Red Devils make top 4?**\
-`Manchester United is in a rebuilding phase after finishing 15th last season. Will not playing in Europe help them move up the table?`\
-https://nytimes.com/athletic/6535078/2025/08/05/manchester-united-betting-season-preview-odds/
-
-**The Bounce: What Luka's $165 means**\
-`The Bounce is The Athletic's free NBA newsletter.`\
-https://nytimes.com/athletic/6536514/2025/08/05/luka-doncic-extension-lakers-the-bounce/
-
-**Trump Airs Personal Financial Grievances Ahead of ‘Debanking’ Crackdown**\
-`JPMorgan and Bank of America rejected Trump Organization deposits, the president said, fueling his displeasure with Wall Street.`\
-https://nytimes.com/2025/08/05/business/trump-debanking-jpmorgan.html
-
-**Far-Right Activist in U.K. Is Arrested Over Assault at Train Station**\
-`Tommy Robinson was taken into custody for questioning on Monday after an assault that seriously injured a man last month at St. Pancras train station.`\
-https://nytimes.com/2025/08/05/world/europe/tommy-robinson-arrested-uk.html
-
-**Trump Praised a Sydney Sweeney Ad, and American Eagle’s Stock Soared**\
-`The president called her much-debated jeans campaign the “HOTTEST” ad out there, which seemed to start a stock rally.`\
-https://nytimes.com/2025/08/05/style/american-eagle-stock-trump-sydney-sweeney.html
-
-**Rwanda Agrees to Accept 250 Migrants as Part of Trump Deportation Plan**\
-`The country is the latest African nation to agree to take in migrants from the United States.`\
-https://nytimes.com/2025/08/05/world/africa/rwanda-trump-deportees.html
 
