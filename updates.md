@@ -1,3 +1,7 @@
+**Up on the Roof, Trump Surveys the Home He’s Making His Own**\
+`White House reporters looked up from the driveway to see a familiar figure in a most unfamiliar location.`\
+https://nytimes.com/2025/08/05/us/politics/trump-white-house-stroll.html
+
 **Spirit Airlines Pilot Is Charged With Stalking Two Children**\
 `The pilot, Dominic Cipolla, was arrested in July while on duty at New Orleans International Airport, the airline said.`\
 https://nytimes.com/2025/08/05/business/spirit-pilot-kansas-new-orleans-stalking-children.html

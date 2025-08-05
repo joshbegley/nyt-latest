@@ -1,3 +1,7 @@
+**What the Bears gained in their most physical practice in over a decade**\
+`The Bears had their most physical practice in years, featuring multiple dust-ups. What difference can that make during the regular season?`\
+https://nytimes.com/athletic/6537369/2025/08/05/bears-training-camp-physical-practice/
+
 **Up on the Roof, Trump Surveys the Home He’s Making His Own**\
 `White House reporters looked up from the driveway to see a familiar figure in a most unfamiliar location.`\
 https://nytimes.com/2025/08/05/us/politics/trump-white-house-stroll.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6537143/2025/08/05/broncos-vance-joseph-training-ca
 **Humanities Endowment Funds Trump’s Priorities After Ending Old Grants**\
 `The $34.8 million allocated by the National Endowment for the Humanities leans toward presidents, statesmen and the Declaration of Independence’s 250th anniversary.`\
 https://nytimes.com/2025/08/05/arts/national-endowment-for-the-humanities-trump-grants.html
-
-**Vikings WR Jordan Addison suspended for first 3 games of season**\
-`The 23-year-old receiver will miss the Vikings' first three games against the Bears, Falcons and Bengals.`\
-https://nytimes.com/athletic/6537224/2025/08/05/jordan-addison-suspension-vikings/
 
