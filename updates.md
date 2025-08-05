@@ -1,3 +1,7 @@
+**Tensions Flare Between Two Federal Agencies Charged With Aviation Safety**\
+`A marathon of recent public hearings highlighted a rift over the investigation into the fatal midair crash in January between an Army helicopter and a passenger jet.`\
+https://nytimes.com/2025/08/04/us/politics/faa-ntsb-dc-crash.html
+
 **Following sweep against Marlins, Yankees open Monday with infield workout**\
 `Entering Monday, New York was 4 1/2 games back in the AL East and was in the hunt for a postseason berth.`\
 https://nytimes.com/athletic/6535767/2025/08/04/ny-yankees-infield-practice/
