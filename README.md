@@ -1,3 +1,7 @@
+**Stella Rimington, First Woman to Lead British Intelligence Agency, Dies at 90**\
+`Widely regarded as the inspiration for the recast of the James Bond character “M,” she was the first British spy chief to be publicly named and photographed.`\
+https://nytimes.com/2025/08/05/world/europe/stella-rimington-dies.html
+
 **Where do Suter, Bjugstad fit in the Blues lineup? We asked Jim Montgomery**\
 `Pius Suter and Nick Bjugstad signed with the Blues as free agents this summer, bringing some much-needed depth at the center position.`\
 https://nytimes.com/athletic/6497767/2025/08/05/blues-suter-bjugstad-lineup-montgomery/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6536278/2025/08/05/manchester-united-protest-ratcli
 **Cruel universe: Giants blow another victory for Justin Verlander**\
 `With minimal exception, on Verlander's day, the Giants have been neither super nor natural all season.`\
 https://nytimes.com/athletic/6535991/2025/08/05/sf-giants-justin-verlander-seeking-wins/
-
-**Manchester United submit offer for RB Leipzig striker Benjamin Sesko**\
-`Leipzig are yet to respond to the Premier League club's proposal.`\
-https://nytimes.com/athletic/6525259/2025/08/05/benjamin-sesko-manchester-united-rb-leipzig-transfer-update/
 
