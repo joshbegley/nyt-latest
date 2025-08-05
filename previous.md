@@ -1,3 +1,7 @@
+**‘The Wackiest Ways We Remember Those We’ve “Lost”’: The Week 7 Winner of Our Summer Reading Contest**\
+`Grady Zheng, 16, writes about a “grieving ritual” that “involved a chaotic, joyful and utterly ridiculous food fight in the middle school cafeteria.”`\
+https://nytimes.com/2025/08/05/learning/the-wackiest-ways-we-remember-those-weve-lost-the-week-7-winner-of-our-summer-reading-contest.html
+
 **What Talks With India and Switzerland Say About Trump’s Trade War**\
 `One country is clashing with the U.S., the other racing to appease Washington. Both approaches are being tested ahead of a looming deadline for trade deals.`\
 https://nytimes.com/2025/08/05/business/dealbook/trump-india-switzerland-tariffs.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6535825/2025/08/05/stl-cardinals-roster-playing-tim
 **Trump Administration Live Updates: President to Create Task Force for 2028 L.A. Olympics**\
 ``\
 https://nytimes.com/live/2025/08/05/us/trump-news
-
-**Borussia Dortmund and Wolves in talks over Silva transfer**\
-`Negotiations between the clubs are ongoing, with Wolves aiming to secure a fee in the region of €20m-€25m for their former record signing.`\
-https://nytimes.com/athletic/6536229/2025/08/05/fabio-silva-wolves-dortmund-transfer/
 
