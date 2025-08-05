@@ -1,3 +1,7 @@
+**Flash Floods in Indian Himalayas Kill 4, and Dozens Are Missing**\
+`The Indian Army and other forces were helping with the rescue, officials said. With so many missing, the flood’s true death toll was feared to be higher.`\
+https://nytimes.com/2025/08/05/world/asia/flash-floods-india-himalayas-uttarakhand.html
+
 **U.S. Imports Slid in June on Higher Tariffs**\
 `Imports from other countries fell around 4 percent from the previous month as President Trump’s steep tariffs discouraged businesses from ordering goods.`\
 https://nytimes.com/2025/08/05/business/economy/imports-data-trump-tariffs.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6536198/2025/08/05/england-india-images-gill-pant-a
 **‘The Wackiest Ways We Remember Those We’ve “Lost”’: The Week 7 Winner of Our Summer Reading Contest**\
 `Grady Zheng, 16, writes about a “grieving ritual” that “involved a chaotic, joyful and utterly ridiculous food fight in the middle school cafeteria.”`\
 https://nytimes.com/2025/08/05/learning/the-wackiest-ways-we-remember-those-weve-lost-the-week-7-winner-of-our-summer-reading-contest.html
-
-**What Talks With India and Switzerland Say About Trump’s Trade War**\
-`One country is clashing with the U.S., the other racing to appease Washington. Both approaches are being tested ahead of a looming deadline for trade deals.`\
-https://nytimes.com/2025/08/05/business/dealbook/trump-india-switzerland-tariffs.html
 

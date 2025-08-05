@@ -1,3 +1,7 @@
+**Flash Floods in Indian Himalayas Kill 4, and Dozens Are Missing**\
+`The Indian Army and other forces were helping with the rescue, officials said. With so many missing, the flood’s true death toll was feared to be higher.`\
+https://nytimes.com/2025/08/05/world/asia/flash-floods-india-himalayas-uttarakhand.html
+
 **U.S. Imports Slid in June on Higher Tariffs**\
 `Imports from other countries fell around 4 percent from the previous month as President Trump’s steep tariffs discouraged businesses from ordering goods.`\
 https://nytimes.com/2025/08/05/business/economy/imports-data-trump-tariffs.html

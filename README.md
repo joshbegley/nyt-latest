@@ -1,3 +1,19 @@
+**Rwanda Agrees to Accept 250 Migrants as Part of Trump Deportation Plan**\
+`The country is the latest African nation to agree to take in migrants from the United States.`\
+https://nytimes.com/2025/08/05/world/africa/rwanda-trump-deportees.html
+
+**American Journalist Is Missing in Norwegian National Park**\
+`A search was underway Tuesday for Alec Luhn, 38, who was last heard from five days ago at the start of a solo hike.`\
+https://nytimes.com/2025/08/05/world/europe/alec-luhn-missing-norway.html
+
+**Wrexham confirm striker Moore signing from Sheffield United**\
+`The 32-year-old has previously won promotion from the Championship with Bournemouth and Ipswich Town.`\
+https://nytimes.com/athletic/6536479/2025/08/05/wrexham-kieffer-moore-sheffield-united-transfer/
+
+**Veteran QB Teddy Bridgewater to sign with Buccaneers: Source**\
+`With No. 3 QB Michael Pratt injured and starter Baker Mayfield banged up, Teddy Bridgewater gives the Bucs another option, if needed.`\
+https://nytimes.com/athletic/6536404/2025/08/05/teddy-bridgewater-signs-with-buccaneers/
+
 **Flash Floods in Indian Himalayas Kill 4, and Dozens Are Missing**\
 `The Indian Army and other forces were helping with the rescue, officials said. With so many missing, the flood’s true death toll was feared to be higher.`\
 https://nytimes.com/2025/08/05/world/asia/flash-floods-india-himalayas-uttarakhand.html
@@ -21,20 +37,4 @@ https://nytimes.com/2025/08/05/world/europe/stella-rimington-dies.html
 **Where do Suter, Bjugstad fit in the Blues lineup? We asked Jim Montgomery**\
 `Pius Suter and Nick Bjugstad signed with the Blues as free agents this summer, bringing some much-needed depth at the center position.`\
 https://nytimes.com/athletic/6497767/2025/08/05/blues-suter-bjugstad-lineup-montgomery/
-
-**Welcome to the show! Though gossip is the name of our game, it's all rooted in reporting**\
-`From athlete relationships to midnight trades, our show keeps you informed on the juicy happenings surrounding sports.`\
-https://nytimes.com/athletic/6527698/2025/08/05/sports-gossip-show-the-athletic-debut-madeline-hill-charlotte-wilder/
-
-**Bubble Gum Brought to Life**\
-`Candy-colored clothing made for a sweet sight on a summer day.`\
-https://nytimes.com/2025/08/05/style/street-style-look-bubble-gum-pink-color.html
-
-**England against India: The story of a breathtaking Test series in 10 pictures**\
-`An epic series was crammed with centuries, controversy, brilliant bowling, magnificent batting and ended with a one-handed cameo`\
-https://nytimes.com/athletic/6536198/2025/08/05/england-india-images-gill-pant-archer-stokes/
-
-**‘The Wackiest Ways We Remember Those We’ve “Lost”’: The Week 7 Winner of Our Summer Reading Contest**\
-`Grady Zheng, 16, writes about a “grieving ritual” that “involved a chaotic, joyful and utterly ridiculous food fight in the middle school cafeteria.”`\
-https://nytimes.com/2025/08/05/learning/the-wackiest-ways-we-remember-those-weve-lost-the-week-7-winner-of-our-summer-reading-contest.html
 
