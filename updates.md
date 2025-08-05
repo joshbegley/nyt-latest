@@ -1,3 +1,11 @@
+**Allan Ahlberg, Whose Children’s Books Were Best Sellers, Dies at 87**\
+`Over five decades, he produced some 150 books, many of them illustrated by his wife, Janet Ahlberg, including classics like “Each Peach Pear Plum.”`\
+https://nytimes.com/2025/08/05/books/allan-ahlberg-dead.html
+
+**Until Saturday: This season's 101 most absurd athletes**\
+`Until Saturday is The Athletic's free CFB newsletter.`\
+https://nytimes.com/athletic/6537204/2025/08/05/kadyn-proctor-alabama-until-saturday/
+
 **RB Leipzig contact Liverpool over Harvey Elliott transfer**\
 `The central midfielder said in June he was wary of 'wasting years of my career' due to his lack of game-time at Anfield.`\
 https://nytimes.com/athletic/6413115/2025/08/05/liverpool-transfers-harvey-elliott-rb-leipzig/
