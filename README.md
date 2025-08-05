@@ -1,3 +1,11 @@
+**For one night, Jesús Sánchez is the face of the Astros' trade deadline**\
+`His ringing double during the fourth inning catalyzed a five-run frame from a lineup that sorely needed it.`\
+https://nytimes.com/athletic/6535919/2025/08/04/houston-astros-jesus-sanchez-trade-deadline/
+
+**Trump to Create Task Force for L.A. Olympics on Security**\
+`The group would likely work with Los Angeles officials, who have a strained relationship with President Trump, ahead of the 2028 Olympics.`\
+https://nytimes.com/2025/08/04/us/politics/la-olympics-2028-security-trump.html
+
 **Yankees continue recent slide, get walked off by Rangers in extra innings**\
 `The Yankees are 0-4 since Thursday's trade deadline. `\
 https://nytimes.com/athletic/6535931/2025/08/04/texas-rangers-ny-yankees-walk-off-win/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6535858/2025/08/04/eagles-raiders-trade-jakorian-be
 **Let Develop Over Time**\
 `Gary Larson and Amy Ensz must find us amusing.`\
 https://nytimes.com/2025/08/04/crosswords/daily-puzzle-2025-08-05.html
-
-**Braves' Grant Holmes opts for non-surgical route, Chris Sale progressing and more**\
-`Holmes, understandably, doesn’t want to miss a full season after working so long to make it to the major leagues.`\
-https://nytimes.com/athletic/6535789/2025/08/04/braves-grant-holmes-chris-sale/
-
-**Chemical Makers to Pay N.J. $875 Million to Settle ‘Forever Chemicals’ Claims**\
-`New Jersey officials called it the largest environmental settlement ever achieved by a single state.`\
-https://nytimes.com/2025/08/04/climate/new-jersey-pfas-settlement.html
 
