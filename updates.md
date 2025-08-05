@@ -1,3 +1,11 @@
+**U.N. Security Council to Discuss Gaza War and Hostages**\
+`Israel called for the meeting to debate the plight of hostages still held by Hamas. The discussion will be held as the humanitarian crisis in the territory grows and truce talks have stalled.`\
+https://nytimes.com/2025/08/05/world/middleeast/security-council-gaza-war-hostages.html
+
+**On Gaza, Germany’s Government Faces Pressure from All Sides**\
+`Germany, after the Holocaust, has a special bond with Israel. But a hunger crisis in Gaza is creating a demand for Berlin to take bolder action.`\
+https://nytimes.com/2025/08/05/world/europe/germany-gaza-israel-hunger-merz.html
+
 **One thought on Milton Williams and every player on the Patriots defense**\
 `Ahead of the team's preseason opener Friday, we examine every player on the defensive side of the ball for the Patriots.`\
 https://nytimes.com/athletic/6535207/2025/08/05/patriots-defense-milton-williams-christian-gonzalez/

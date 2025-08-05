@@ -1,3 +1,11 @@
+**U.N. Security Council to Discuss Gaza War and Hostages**\
+`Israel called for the meeting to debate the plight of hostages still held by Hamas. The discussion will be held as the humanitarian crisis in the territory grows and truce talks have stalled.`\
+https://nytimes.com/2025/08/05/world/middleeast/security-council-gaza-war-hostages.html
+
+**On Gaza, Germany’s Government Faces Pressure from All Sides**\
+`Germany, after the Holocaust, has a special bond with Israel. But a hunger crisis in Gaza is creating a demand for Berlin to take bolder action.`\
+https://nytimes.com/2025/08/05/world/europe/germany-gaza-israel-hunger-merz.html
+
 **One thought on Milton Williams and every player on the Patriots defense**\
 `Ahead of the team's preseason opener Friday, we examine every player on the defensive side of the ball for the Patriots.`\
 https://nytimes.com/athletic/6535207/2025/08/05/patriots-defense-milton-williams-christian-gonzalez/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/08/05/us/politics/republican-redistricting-latinos.html
 **‘Wednesday’ Is Back. Here’s What to Remember Ahead of Season 2**\
 `It has been nearly three years since Season 1 of this Addams Family spinoff became a global phenomenon. Here’s a look back at where things left off.`\
 https://nytimes.com/2025/08/05/arts/television/wednesday-season-1-recap.html
-
-**The Studio Museum in Harlem Sets an Opening Date**\
-`After construction delays and a large capital campaign, the museum is preparing to welcome audiences back and introduce itself to a new generation of visitors.`\
-https://nytimes.com/2025/08/05/arts/design/the-studio-museum-in-harlem-opening-date.html
-
-**What Travelers Need to Know About the Fire Raging at the Grand Canyon**\
-`While the Dragon Bravo Fire has burned more than 123,000 acres, much of the surrounding national park remains open. Here’s the latest.`\
-https://nytimes.com/2025/08/05/travel/dragon-bravo-fire-grand-canyon-closures.html
 
