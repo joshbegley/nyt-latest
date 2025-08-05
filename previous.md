@@ -1,5 +1,9 @@
+**Record-Breaking Rain Pounds Hong Kong**\
+`Stairways have turned into waterfalls as torrential rain has battered the island for more than a week.`\
+https://nytimes.com/video/world/asia/100000010323946/hong-kong-flood-rain.html
+
 **U.N. Security Council to Discuss Gaza War and Hostages**\
-`Israel called for the meeting to debate the plight of hostages still held by Hamas. The discussion will be held as the humanitarian crisis in the territory grows and truce talks have stalled.`\
+`Israel called for the meeting to debate the plight of captives still held by Hamas. The discussion will take place as the humanitarian crisis in the territory continues and as truce talks have stalled.`\
 https://nytimes.com/2025/08/05/world/middleeast/security-council-gaza-war-hostages.html
 
 **On Gaza, Germany’s Government Faces Pressure from All Sides**\
@@ -33,8 +37,4 @@ https://nytimes.com/video/opinion/100000010322312/mahmoud-khalil-tells-his-story
 **G.O.P. Bets Big on Hispanic Voters With New Texas Map**\
 `In order to flip five U.S. House seats, Republicans are gambling that they can retain President Trump’s 2024 gains with Latinos and that voters won’t mind their hardball tactics.`\
 https://nytimes.com/2025/08/05/us/politics/republican-redistricting-latinos.html
-
-**‘Wednesday’ Is Back. Here’s What to Remember Ahead of Season 2**\
-`It has been nearly three years since Season 1 of this Addams Family spinoff became a global phenomenon. Here’s a look back at where things left off.`\
-https://nytimes.com/2025/08/05/arts/television/wednesday-season-1-recap.html
 

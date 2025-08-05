@@ -1,3 +1,11 @@
+**Record-Breaking Rain Pounds Hong Kong**\
+`Stairways have turned into waterfalls as torrential rain has battered the island for more than a week.`\
+https://nytimes.com/video/world/asia/100000010323946/hong-kong-flood-rain.html
+
+**U.N. Security Council to Discuss Gaza War and Hostages**\
+`Israel called for the meeting to debate the plight of captives still held by Hamas. The discussion will take place as the humanitarian crisis in the territory continues and as truce talks have stalled.`\
+https://nytimes.com/2025/08/05/world/middleeast/security-council-gaza-war-hostages.html
+
 **U.N. Security Council to Discuss Gaza War and Hostages**\
 `Israel called for the meeting to debate the plight of hostages still held by Hamas. The discussion will be held as the humanitarian crisis in the territory grows and truce talks have stalled.`\
 https://nytimes.com/2025/08/05/world/middleeast/security-council-gaza-war-hostages.html
