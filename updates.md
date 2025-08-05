@@ -1,3 +1,11 @@
+**Yankees continue recent slide, get walked off by Rangers in extra innings**\
+`The Yankees are 0-4 since Thursday's trade deadline. `\
+https://nytimes.com/athletic/6535931/2025/08/04/texas-rangers-ny-yankees-walk-off-win/
+
+**Full Time: A poignant reminder in Trinity Rodman’s return**\
+`Welcome to Full Time, The Athletic's women's soccer newsletter.`\
+https://nytimes.com/athletic/6535433/2025/08/04/trinity-rodman-return-sentnor-full-time/
+
 **Trump Administration Will Reinstall Confederate Statue in Washington**\
 `Albert Pike was a Confederate general and diplomat who negotiated alliances with slave-owning Native American tribes during the Civil War.`\
 https://nytimes.com/2025/08/04/us/politics/pike-confederate-statue-trump-dc.html
