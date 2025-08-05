@@ -1,3 +1,7 @@
+**Bills training camp rookie report: T.J. Sanders showing flashes of being an impact player**\
+`So far, T.J. Sanders has shown the highest potential to have an impact this season.`\
+https://nytimes.com/athletic/6535214/2025/08/05/bills-training-camp-rookie-tj-sanders/
+
 **A Tussle in Texas**\
 `We take a look at the political fight over a redrawn map.`\
 https://nytimes.com/2025/08/05/briefing/texas-house-democrats.html
