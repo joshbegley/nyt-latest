@@ -1,3 +1,7 @@
+**What to Know About India’s Trade in Oil With Russia**\
+`President Trump accused India of aiding Moscow’s war on Ukraine by purchasing Russian energy, derailing trade talks between India and the United States.`\
+https://nytimes.com/2025/08/05/business/india-russia-oil.html
+
 **Stella Rimington, First Woman to Lead British Intelligence Agency, Dies at 90**\
 `Widely regarded as the inspiration for the recast of the James Bond character “M,” she was the first British spy chief to be publicly named and photographed.`\
 https://nytimes.com/2025/08/05/world/europe/stella-rimington-dies.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/05/business/dealbook/clay-ai-marketing-fundraise.htm
 **Man Utd supporters' group to protest against Sir Jim Ratcliffe ahead of season opener**\
 `The protest will be the first against Sir Jim Ratcliffe after his implementation of redundancies and ticket price rises.`\
 https://nytimes.com/athletic/6536278/2025/08/05/manchester-united-protest-ratcliffe-season-opener-arsenal/
-
-**Cruel universe: Giants blow another victory for Justin Verlander**\
-`With minimal exception, on Verlander's day, the Giants have been neither super nor natural all season.`\
-https://nytimes.com/athletic/6535991/2025/08/05/sf-giants-justin-verlander-seeking-wins/
 

@@ -1,3 +1,7 @@
+**Stella Rimington, First Woman to Lead British Intelligence Agency, Dies at 90**\
+`Widely regarded as the inspiration for the recast of the James Bond character “M,” she was the first British spy chief to be publicly named and photographed.`\
+https://nytimes.com/2025/08/05/world/europe/stella-rimington-dies.html
+
 **Where do Suter, Bjugstad fit in the Blues lineup? We asked Jim Montgomery**\
 `Pius Suter and Nick Bjugstad signed with the Blues as free agents this summer, bringing some much-needed depth at the center position.`\
 https://nytimes.com/athletic/6497767/2025/08/05/blues-suter-bjugstad-lineup-montgomery/
