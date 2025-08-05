@@ -1,3 +1,11 @@
+**Eric Adams Assembles Religious Leaders to Bless His Candidacy**\
+`New Yorkers of various faiths heaped praise on the incumbent mayor, whose path to re-election appears steep, and compared him to biblical figures.`\
+https://nytimes.com/2025/08/05/nyregion/eric-adams-nyc-mayor-religious-leaders.html
+
+**Federal workers are told they can dispense with memos listing their weekly accomplishments.**\
+`By Eileen Sullivan`\
+https://nytimes.com/live/2025/08/05/us/trump-news/musk-5-things-email-doge-trump
+
 **In Brooklyn, a Former Tailor Shop Is a Perfect Fit**\
 `Drawn back to New York after years in Europe, Donelle Kosch gravitated toward Boerum Hill, transforming 450 square feet into a place she could live and entertain guests.`\
 https://nytimes.com/2025/08/05/realestate/tailor-shop-tiny-house-brooklyn.html

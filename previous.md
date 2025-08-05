@@ -1,3 +1,11 @@
+**Eric Adams Assembles Religious Leaders to Bless His Candidacy**\
+`New Yorkers of various faiths heaped praise on the incumbent mayor, whose path to re-election appears steep, and compared him to biblical figures.`\
+https://nytimes.com/2025/08/05/nyregion/eric-adams-nyc-mayor-religious-leaders.html
+
+**Federal workers are told they can dispense with memos listing their weekly accomplishments.**\
+`By Eileen Sullivan`\
+https://nytimes.com/live/2025/08/05/us/trump-news/musk-5-things-email-doge-trump
+
 **In Brooklyn, a Former Tailor Shop Is a Perfect Fit**\
 `Drawn back to New York after years in Europe, Donelle Kosch gravitated toward Boerum Hill, transforming 450 square feet into a place she could live and entertain guests.`\
 https://nytimes.com/2025/08/05/realestate/tailor-shop-tiny-house-brooklyn.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/08/05/us/montana-manhunt-brown-anaconda-shooting.html
 **Man City's Vitor Reis set to join CFG-owned Girona on loan**\
 `The Brazilian defender has made four appearances for Pep Guardiola's side since his arrival from Palmeiras in the January transfer window.`\
 https://nytimes.com/athletic/6527983/2025/08/05/manchester-city-transfers-vitor-reis-girona/
-
-**8 Early Rap Songs From a New York City in Turmoil**\
-`Inspired by a new book tracing four pivotal years in the city’s history, hear a playlist of songs from the dawn of hip-hop that were swirling at the time.`\
-https://nytimes.com/2025/08/05/arts/music/amplifier-newsletter-early-new-york-rap.html
-
-**Scoop City: Six strategies to find football breakouts in 2025, 2026 and beyond**\
-`Six timeless principles to help you find league-winning picks this season. And next season. The season after that, too.`\
-https://nytimes.com/athletic/6536810/2025/08/05/fantasy-football-sleepers-breakouts-2025-targets-jake-ciely-scoop-city-nfl/
 
