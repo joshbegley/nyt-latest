@@ -1,3 +1,11 @@
+**A Tussle in Texas**\
+`We take a look at the political fight over a redrawn map.`\
+https://nytimes.com/2025/08/05/briefing/texas-house-democrats.html
+
+**Cubs' newest acquisition, Michael Soroka, exits with shoulder injury, will go on IL**\
+`The 28-year-old has a long injury history, with multiple Achilles tears that waylaid his career after a breakout 2019 season.`\
+https://nytimes.com/athletic/6535957/2025/08/05/chicago-cubs-michael-soroka-injury/
+
 **Taiwan Investigates TSMC Employees Over Possible Trade Secret Theft**\
 `Taiwan government says it has detained three employees on suspicion they obtained the Taiwanese chip giant’s “core technology trade secrets.”`\
 https://nytimes.com/2025/08/05/business/taiwan-tsmc-chips-leak-trade-secrets.html

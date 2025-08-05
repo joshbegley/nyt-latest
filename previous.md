@@ -1,3 +1,11 @@
+**A Tussle in Texas**\
+`We take a look at the political fight over a redrawn map.`\
+https://nytimes.com/2025/08/05/briefing/texas-house-democrats.html
+
+**Cubs' newest acquisition, Michael Soroka, exits with shoulder injury, will go on IL**\
+`The 28-year-old has a long injury history, with multiple Achilles tears that waylaid his career after a breakout 2019 season.`\
+https://nytimes.com/athletic/6535957/2025/08/05/chicago-cubs-michael-soroka-injury/
+
 **Taiwan Investigates TSMC Employees Over Possible Trade Secret Theft**\
 `Taiwan government says it has detained three employees on suspicion they obtained the Taiwanese chip giant’s “core technology trade secrets.”`\
 https://nytimes.com/2025/08/05/business/taiwan-tsmc-chips-leak-trade-secrets.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6536112/2025/08/05/florian-wirtz-liverpool-price-ex
 **Will Michigan have a true QB competition? 5 preseason camp questions**\
 `Michigan started preseason camp with an "open" QB competition, questions at receiver and a potential breakout star. `\
 https://nytimes.com/athletic/6535617/2025/08/05/michigan-preseason-practice-questions-bryce-underwood/
-
-**Blue Jays demolish Rockies to buck their trend against bottom feeders**\
-`The Blue Jays cruised 15-1 behind 25 hits, but it hasn't always been easy for them against the league's worst teams.`\
-https://nytimes.com/athletic/6535989/2025/08/05/blue-jays-mlb-rout-rockies/
-
-**Inside Texas Tech's 'open checkbook' and the school's quest to rule the Big 12**\
-`Tech hasn't won an outright conference championship since 1955 but will head into the 2025 season with a Big 12-title-or-bust mentality.`\
-https://nytimes.com/athletic/6534615/2025/08/05/texas-tech-football-2025-spending-transfers-big-12/
 
