@@ -1,6 +1,10 @@
+**Could Aaron Judge return to Yankees' lineup on Tuesday? Signs are pointing to it**\
+`Judge is expected to DH when he returns until he goes through a throwing program and is symptom-free.`\
+https://nytimes.com/athletic/6535698/2025/08/04/ny-yankees-aaron-judge-return/
+
 **When Trump Changes His Mind, Republicans Find a Way to Fall in Line**\
 `President Trump’s decision to fire the head of the Bureau of Labor Statistics forced his allies into the awkward spot of criticizing an agency they had freely cited in the past.`\
-https://nytimes.com/2025/08/04/us/politics/when-trump-changes-his-mind-republicans-find-a-way-to-fall-in-line.html
+https://nytimes.com/2025/08/04/us/politics/trump-republicans-bls-jobs-analysis.html
 
 **Islanders sign Matthew Schaefer to 3-year, entry-level contract**\
 `Schaefer was the No. 1 overall pick of the Islanders in this year's draft.`\
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/04/us/politics/texas-redistricting-politics.html
 **Bronx Man Charged With Dealing Drugs That Caused Deadly Overdose**\
 `Estherlyn Frias sold narcotics out of his home, near where his children slept, U.S. prosecutors said. A Connecticut man bought fentanyl and cocaine from him and died 12 hours later.`\
 https://nytimes.com/2025/08/04/nyregion/bronx-drug-overdose-fentanyl-charges.html
-
-**Drunken Boater Hits Swimmers in N. Carolina Lake, Killing Girl, 10, Police Say**\
-`A woman was also critically injured in the collision, which happened on Shearon Harris Reservoir, about 25 miles southwest of Raleigh, N.C., the authorities said.`\
-https://nytimes.com/2025/08/04/us/north-carolina-boat-swimmer-killed.html
 
