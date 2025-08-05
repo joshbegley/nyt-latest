@@ -1,3 +1,7 @@
+**Map: 2.7-Magnitude Earthquake Strikes New Jersey**\
+`View the location of the quake’s epicenter and shake area.`\
+https://nytimes.com/interactive/2025/08/05/nyregion/new-jersey-quake-tracker.html
+
 **House Oversight Committee Issues Subpoenas for Epstein Files**\
 `The committee’s Republican chairman requested that the documents from the Justice Department and former government officials be delivered by Aug. 19.`\
 https://nytimes.com/2025/08/05/us/politics/epstein-files-subpoenas.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6535294/2025/08/05/san-diego-finding-futbol-modelo-
 **Voters Boo Nebraska Republican Congressman at Town Hall**\
 `An angry crowd of more than 700 people in Nebraska heckled and booed Representative Mike Flood over the Republican congressman’s support of President Trump’s sweeping domestic policy bill.`\
 https://nytimes.com/video/us/politics/100000010324416/nebraska-townhall-mike-flood-trump.html
-
-**At the Tesla Diner, the Future Looks Mid**\
-`The new Los Angeles restaurant from the electric car giant is a smash burger and content machine, drawing Elon Musk’s fans and protesters.`\
-https://nytimes.com/2025/08/05/dining/tesla-diner-elon-musk.html
 
