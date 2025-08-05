@@ -1,3 +1,15 @@
+**Spirit Airlines Pilot Is Charged With Stalking Two Children**\
+`The pilot, Dominic Cipolla, was arrested in July while on duty at New Orleans International Airport, the airline said.`\
+https://nytimes.com/2025/08/05/business/spirit-pilot-kansas-new-orleans-stalking-children.html
+
+**NFL has banned smelling salts, 'distraught' George Kittle reveals**\
+`The NFL cited a lack of evidence supporting the safety or efficacy of smelling salts, and the potential to mask signs of concussion.`\
+https://nytimes.com/athletic/6537405/2025/08/05/nfl-smelling-salts-banned-george-kittle/
+
+**Bolsonaro House Arrest Casts Shadow Over Brazil-U.S. Trade Talks**\
+`The Brazilian Supreme Court justice’s order could complicate efforts to negotiate over President Trump’s punishing tariffs, set to go into effect this week.`\
+https://nytimes.com/2025/08/05/world/americas/brazil-bolsonaro-us-trade-talks.html
+
 **Packers training camp: Quay Walker doesn't care about proving doubters wrong**\
 `The 2022 first-round pick is in a contract year after the Packers didn't exercise his fifth-year option this offseason.`\
 https://nytimes.com/athletic/6537328/2025/08/05/quay-walker-packers-training-camp/
