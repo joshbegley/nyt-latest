@@ -1,3 +1,11 @@
+**Marjorie Taylor Greene Asks for George Santos’s Sentence to Be Commuted**\
+`Ms. Greene, the hard-right House Republican from Georgia, called her former colleague’s seven-year sentence “excessive” in a letter to the U.S. pardon attorney.`\
+https://nytimes.com/2025/08/04/us/politics/george-santos-pardon-marjorie-taylor-greene.html
+
+**A Nuclear Reactor on the Moon? Come Again?**\
+`The acceleration of nuclear development is part of the Trump administration’s efforts to focus NASA on human spaceflight. A reactor would be useful for long-term stays on the moon.`\
+https://nytimes.com/2025/08/04/science/nasa-moon-nuclear-reactor.html
+
 **A Nuclear Reactor on the Moon? Come Again?**\
 `The acceleration of nuclear development is part of the Trump administration’s efforts to focus NASA on human spaceflight. A reactor would be useful for long-term stays on the moon.`\
 https://nytimes.com/2025/08/04/science/a-nuclear-reactor-on-the-moon-come-again.html

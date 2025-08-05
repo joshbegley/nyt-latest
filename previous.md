@@ -1,6 +1,10 @@
+**Marjorie Taylor Greene Asks for George Santos’s Sentence to Be Commuted**\
+`Ms. Greene, the hard-right House Republican from Georgia, called her former colleague’s seven-year sentence “excessive” in a letter to the U.S. pardon attorney.`\
+https://nytimes.com/2025/08/04/us/politics/george-santos-pardon-marjorie-taylor-greene.html
+
 **A Nuclear Reactor on the Moon? Come Again?**\
 `The acceleration of nuclear development is part of the Trump administration’s efforts to focus NASA on human spaceflight. A reactor would be useful for long-term stays on the moon.`\
-https://nytimes.com/2025/08/04/science/a-nuclear-reactor-on-the-moon-come-again.html
+https://nytimes.com/2025/08/04/science/nasa-moon-nuclear-reactor.html
 
 **Ranked-Choice Voting Helped Mamdani Score a Decisive Primary Win**\
 `The primary results show that voters and campaigns are becoming more sophisticated in how they use ranked-choice voting.`\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6535767/2025/08/04/ny-yankees-infield-practice/
 **Could Aaron Judge return to Yankees' lineup on Tuesday? Signs point to it**\
 `Judge is expected to DH when he returns until he goes through a throwing program and is symptom-free.`\
 https://nytimes.com/athletic/6535698/2025/08/04/ny-yankees-aaron-judge-return/
-
-**When Trump Changes His Mind, Republicans Find a Way to Fall in Line**\
-`President Trump’s decision to fire the head of the Bureau of Labor Statistics forced his allies into the awkward spot of criticizing an agency they had freely cited in the past.`\
-https://nytimes.com/2025/08/04/us/politics/trump-republicans-bls-jobs-analysis.html
 
