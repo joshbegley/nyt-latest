@@ -1,3 +1,19 @@
+**Tigers' Alex Cobb still fighting for one last run in the major leagues**\
+`The Tigers signed Alex Cobb on a one-year, $15 million deal this winter. He has yet to pitch in the major leagues this season.`\
+https://nytimes.com/athletic/6535570/2025/08/05/alex-cobb-tigers-hip-rehab/
+
+**Could these unranked teams make the College Football Playoff? 11 sleepers to watch**\
+`Four teams started last season unranked in the coaches poll and made the College Football Playoff. Who could pull off the same this fall?`\
+https://nytimes.com/athletic/6535380/2025/08/05/college-football-playoff-sleepers-coaches-poll/
+
+**Mets' prolonged stretch of mediocrity raises a big question: How good are they?**\
+`Because of shaky starting pitching, the Mets are 1-3 since the trade deadline and have lost six of their past seven.`\
+https://nytimes.com/athletic/6536011/2025/08/05/mets-sean-manaea-rotation-woes/
+
+**Jalen Ramsey, Metcalf slants and other Steelers stocks on the move after 10 training camp practices**\
+`Plus, how the new offense is faring, and a recent Day 2 pick on the roster bubble.`\
+https://nytimes.com/athletic/6535272/2025/08/05/steelers-training-camp-stock-report/
+
 **Partey granted conditional bail after appearing in court on rape charges**\
 `Partey, 32, was charged with five counts of rape and one count of sexual assault on July 4.`\
 https://nytimes.com/athletic/6534714/2025/08/05/thomas-partey-court-hearing/
