@@ -1,3 +1,7 @@
+**Phillies' José Alvarado returns to team albeit with caveats after PED suspension**\
+`Alvarado apologized to his teammates, coaches, and staff members in a brief meeting Tuesday afternoon.`\
+https://nytimes.com/athletic/6537486/2025/08/05/philadelphia-phillies-jose-alvarado-return/
+
 **Gaza’s Hunger Crisis: ‘If We Don’t Fight, We Don’t Get Anything.’**\
 `After facing international criticism for its hand in Gaza’s food shortage, Israel has allowed nations to parachute in aid. However, international aid officials say it’s still not enough.`\
 https://nytimes.com/video/world/middleeast/100000010324273/gaza-hunger-crisis-air-drop.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/05/business/spirit-pilot-kansas-new-orleans-stalking
 **NFL has banned smelling salts, 'distraught' George Kittle reveals**\
 `The NFL cited a lack of evidence supporting the safety or efficacy of smelling salts, and the potential to mask signs of concussion.`\
 https://nytimes.com/athletic/6537405/2025/08/05/nfl-smelling-salts-banned-george-kittle/
-
-**Bolsonaro House Arrest Casts Shadow Over Brazil-U.S. Trade Talks**\
-`The Brazilian Supreme Court justice’s order could complicate efforts to negotiate over President Trump’s punishing tariffs, set to go into effect this week.`\
-https://nytimes.com/2025/08/05/world/americas/brazil-bolsonaro-us-trade-talks.html
 
