@@ -1,3 +1,19 @@
+**Rwanda Agrees to Accept 250 Migrants as Part of Trump Deportation Plan**\
+`The country is the latest African nation to agree to take in migrants from the United States.`\
+https://nytimes.com/2025/08/05/world/africa/rwanda-trump-deportees.html
+
+**American Journalist Is Missing in Norwegian National Park**\
+`A search was underway Tuesday for Alec Luhn, 38, who was last heard from five days ago at the start of a solo hike.`\
+https://nytimes.com/2025/08/05/world/europe/alec-luhn-missing-norway.html
+
+**Wrexham confirm striker Moore signing from Sheffield United**\
+`The 32-year-old has previously won promotion from the Championship with Bournemouth and Ipswich Town.`\
+https://nytimes.com/athletic/6536479/2025/08/05/wrexham-kieffer-moore-sheffield-united-transfer/
+
+**Veteran QB Teddy Bridgewater to sign with Buccaneers: Source**\
+`With No. 3 QB Michael Pratt injured and starter Baker Mayfield banged up, Teddy Bridgewater gives the Bucs another option, if needed.`\
+https://nytimes.com/athletic/6536404/2025/08/05/teddy-bridgewater-signs-with-buccaneers/
+
 **Flash Floods in Indian Himalayas Kill 4, and Dozens Are Missing**\
 `The Indian Army and other forces were helping with the rescue, officials said. With so many missing, the flood’s true death toll was feared to be higher.`\
 https://nytimes.com/2025/08/05/world/asia/flash-floods-india-himalayas-uttarakhand.html
