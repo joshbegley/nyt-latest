@@ -1,3 +1,7 @@
+**Read All About It: True Tales of Men and Fiction**\
+`Readers respond to a column by Maureen Dowd about men and books. Also: President Trump’s tariff games; relationships outside romance.`\
+https://nytimes.com/2025/08/05/opinion/men-books-fiction.html
+
 **Trump Rules Out Bessent as Replacement for Powell at Fed**\
 `With Treasury Secretary Scott Bessent not in the running, President Trump said that he has narrowed his list of replacements to four people.`\
 https://nytimes.com/2025/08/05/us/politics/trump-bessent-fed-chair-powell.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/05/us/tennessee-quadruple-homicide-arrest.html
 **The Human Urge to Corrupt These Wholesome Critters**\
 `A lawsuit involving videos of Calico Critters in scandalous situations lays bare the allure of seeing the twee toys go wild.`\
 https://nytimes.com/2025/08/05/style/calico-critters-lawsuit-sylvanian-drama.html
-
-**Fox gets into direct-to-consumer streaming game, featuring NFL, MLB, college football**\
-`"Fox One" subscriptions will cost $19.99 per month and include all programming running on Fox’s broadcast network, including sports.`\
-https://nytimes.com/athletic/6536643/2025/08/05/fox-sports-streaming-service-nfl-mlb/
 
