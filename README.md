@@ -1,3 +1,7 @@
+**A judge blocks FEMA from repurposing disaster mitigation funding.**\
+`A federal judge in Massachusetts said the Trump administration’s move to redirect $4 billion left states exposed to damage from natural disasters.`\
+https://nytimes.com/live/2025/08/05/us/trump-news/trump-blocked-fema-disaster-prep-funds
+
 **Phillies' José Alvarado returns to team albeit with caveats after PED suspension**\
 `Alvarado apologized to his teammates, coaches, and staff members in a brief meeting Tuesday afternoon.`\
 https://nytimes.com/athletic/6537486/2025/08/05/philadelphia-phillies-jose-alvarado-return/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/05/us/politics/trump-white-house-stroll.html
 **Spirit Airlines Pilot Is Charged With Stalking Two Children**\
 `The pilot, Dominic Cipolla, was arrested in July while on duty at New Orleans International Airport, the airline said.`\
 https://nytimes.com/2025/08/05/business/spirit-pilot-kansas-new-orleans-stalking-children.html
-
-**NFL has banned smelling salts, 'distraught' George Kittle reveals**\
-`The NFL cited a lack of evidence supporting the safety or efficacy of smelling salts, and the potential to mask signs of concussion.`\
-https://nytimes.com/athletic/6537405/2025/08/05/nfl-smelling-salts-banned-george-kittle/
 
