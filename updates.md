@@ -1,3 +1,7 @@
+**Map: 2.7-Magnitude Earthquake Strikes New Jersey**\
+`View the location of the quake’s epicenter and shake area.`\
+https://nytimes.com/interactive/2025/08/05/nyregion/new-jersey-quake-tracker.html
+
 **House Oversight Committee Issues Subpoenas for Epstein Files**\
 `The committee’s Republican chairman requested that the documents from the Justice Department and former government officials be delivered by Aug. 19.`\
 https://nytimes.com/2025/08/05/us/politics/epstein-files-subpoenas.html
