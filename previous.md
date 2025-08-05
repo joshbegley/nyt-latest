@@ -1,3 +1,19 @@
+**Topps 'stands by' authenticity of Lionel Messi autographs rejected by PSA**\
+`Fanatics Collectibles CEO Mike Mahan spoke about the Messi autographs situation for the first time at The National`\
+https://nytimes.com/athletic/6535831/2025/08/05/lionel-messi-topps-autographs-psa/
+
+**Does Japan Want American Cars? Trump’s Push to Open Foreign Markets Faces Test.**\
+`President Trump is celebrating deals that lower trade barriers on American staples like cars. Experts question how much of an effect this will have.`\
+https://nytimes.com/2025/08/05/business/trump-tariffs-japan.html
+
+**Man Wanted for Tennessee Quadruple Homicide Is Arrested**\
+`The authorities had been searching for Austin Drummond in connection with the killing of four people and the abandonment of a baby in a yard.`\
+https://nytimes.com/2025/08/05/us/tennessee-quadruple-homicide-arrest.html
+
+**The Human Urge to Corrupt These Wholesome Critters**\
+`A lawsuit involving videos of Calico Critters in scandalous situations lays bare the allure of seeing the twee toys go wild.`\
+https://nytimes.com/2025/08/05/style/calico-critters-lawsuit-sylvanian-drama.html
+
 **Fox gets into direct-to-consumer streaming game, featuring NFL, MLB, college football**\
 `"Fox One" subscriptions will cost $19.99 per month and include all programming running on Fox’s broadcast network, including sports.`\
 https://nytimes.com/athletic/6536643/2025/08/05/fox-sports-streaming-service-nfl-mlb/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6536530/2025/08/05/remco-evenepoel-soudal-quickstep
 **A G.O.P. Congressman Faced His Voters. It Wasn’t Pretty.**\
 `Most Republican lawmakers are avoiding town hall meetings, reluctant to confront energized Democrats and answer tough questions. When Representative Mike Flood of Nebraska gave it a try, the booing started in seconds.`\
 https://nytimes.com/2025/08/05/us/politics/mike-flood-town-hall.html
-
-**Ozzy Osbourne Died of a Heart Attack, Death Certificate Shows**\
-`The document also notes that he suffered from Parkinson’s disease.`\
-https://nytimes.com/2025/08/05/arts/music/ozzy-osbourne-cause-of-death.html
-
-**Should Benjamin Sesko choose Manchester United or Newcastle?**\
-`Manchester United and Newcastle United have made substantial offers for Benjamin Sesko - our writers explain what he should consider`\
-https://nytimes.com/athletic/6536456/2025/08/05/benjamin-sesko-manchester-united-newcastle-transfer-choice/
-
-**Lowetide: Comparables for Oilers' Ike Howard offer encouragement for the future**\
-`If Howard delivers a strong rookie season, chances are it will be in a complementary role with an impact centre leading the way.`\
-https://nytimes.com/athletic/6533431/2025/08/05/oilers-isaac-howard-prospect-comparables/
-
-**Salpicón de Pescado, Chicken-Zucchini Meatballs and No-Chop White Bean Salad**\
-`I simply love summer cooking.`\
-https://nytimes.com/2025/08/05/dining/salpicon-de-pescado-chicken-zucchini-meatballs-and-no-chop-white-bean-salad.html
 
