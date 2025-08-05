@@ -1,3 +1,19 @@
+**Where do Suter, Bjugstad fit in the Blues lineup? We asked Jim Montgomery**\
+`Pius Suter and Nick Bjugstad signed with the Blues as free agents this summer, bringing some much-needed depth at the center position.`\
+https://nytimes.com/athletic/6497767/2025/08/05/blues-suter-bjugstad-lineup-montgomery/
+
+**Welcome to the show! Though gossip is the name of our game, it's all rooted in reporting**\
+`From athlete relationships to midnight trades, our show keeps you informed on the juicy happenings surrounding sports.`\
+https://nytimes.com/athletic/6527698/2025/08/05/sports-gossip-show-the-athletic-debut-madeline-hill-charlotte-wilder/
+
+**Bubble Gum Brought to Life**\
+`Candy-colored clothing made for a sweet sight on a summer day.`\
+https://nytimes.com/2025/08/05/style/street-style-look-bubble-gum-pink-color.html
+
+**England against India: The story of a breathtaking Test series in 10 pictures**\
+`An epic series was crammed with centuries, controversy, brilliant bowling, magnificent batting and ended with a one-handed cameo`\
+https://nytimes.com/athletic/6536198/2025/08/05/england-india-images-gill-pant-archer-stokes/
+
 **‘The Wackiest Ways We Remember Those We’ve “Lost”’: The Week 7 Winner of Our Summer Reading Contest**\
 `Grady Zheng, 16, writes about a “grieving ritual” that “involved a chaotic, joyful and utterly ridiculous food fight in the middle school cafeteria.”`\
 https://nytimes.com/2025/08/05/learning/the-wackiest-ways-we-remember-those-weve-lost-the-week-7-winner-of-our-summer-reading-contest.html
