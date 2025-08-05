@@ -1,3 +1,7 @@
+**Fantasy Premier League: The players to avoid selecting for FPL Gameweek One**\
+`From Isak to Mbeumo to Ait-Nouri, Holly Shand looks at the FPL assets who are potential busts for the very start of the new season`\
+https://nytimes.com/athletic/6525026/2025/08/05/fantasy-premier-league-players-avoid-gw1/
+
 **Kyle Schwarber hears MVP chants, hits slam to reach 40 homers: 'The guy is unbelievable'**\
 `Schwarber remains hot for a Phillies team that leads the league with 33 homers since the All-Star break.`\
 https://nytimes.com/athletic/6535935/2025/08/05/phillies-kyle-schwarber-mvp-slam/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/04/pageoneplus/quote-of-the-day-the-last-living-memo
 **For one night, Jesús Sánchez is the face of the Astros' trade deadline**\
 `His ringing double during the fourth inning catalyzed a five-run frame from a lineup that sorely needed it.`\
 https://nytimes.com/athletic/6535919/2025/08/04/houston-astros-jesus-sanchez-trade-deadline/
-
-**Trump to Create Task Force for L.A. Olympics on Security**\
-`The group would likely work with Los Angeles officials, who have a strained relationship with President Trump, ahead of the 2028 Olympics.`\
-https://nytimes.com/2025/08/04/us/politics/la-olympics-2028-security-trump.html
 
