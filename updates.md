@@ -1,3 +1,15 @@
+**How a Soggy Spring and Hot Summer Nights Made 2025 an ‘Exceptional’ Year for Fireflies**\
+`If you think you’ve spotted more than the usual number of blinking bugs this year, you’re not alone. But experts say many firefly species are at risk of extinction.`\
+https://nytimes.com/2025/08/05/weather/more-fireflies-this-year-why.html
+
+**The New York Times International Edition in Print for Wednesday, Aug. 6, 2025**\
+``\
+https://nytimes.com/issue/todaysinyt/2025/08/05/todays-new-york-times-international-edition
+
+**U.N. Security Council to Discuss Gaza War and Hostages**\
+`Israel called for the meeting to debate the plight of captives still held by Hamas. The discussion will take place as the humanitarian crisis in the territory continues and as truce talks have stalled.`\
+https://nytimes.com/2025/08/05/world/middleeast/un-israel-gaza-war-hostages.html
+
 **Record-Breaking Rain Pounds Hong Kong**\
 `Stairways have turned into waterfalls as torrential rain has battered the island for more than a week.`\
 https://nytimes.com/video/world/asia/100000010323946/hong-kong-flood-rain.html
