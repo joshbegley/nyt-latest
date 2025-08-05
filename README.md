@@ -1,3 +1,15 @@
+**The Raging Gifford Fire, Like Many, Began Near a Highway**\
+`The wildfire in the Los Padres National Forest grew to 82,000 acres on Tuesday. Officials are still trying to determine the cause.`\
+https://nytimes.com/2025/08/05/us/california-gifford-fire-evacuation-orders.html
+
+**Kyren Williams reaches 3-year, $33 million extension with Rams**\
+`Coaches and teammates expressed admiration for how Williams handled the process during negotiations. `\
+https://nytimes.com/athletic/6510298/2025/08/05/kyren-williams-contract-extension-rams-nfl/
+
+**Columbia and Brown to Disclose Admissions and Race Data in Trump Deal**\
+`A widely overlooked part of a settlement with the two universities could profoundly alter how elite schools determine who gets accepted.`\
+https://nytimes.com/2025/08/05/nyregion/columbia-brown-admissions-trump.html
+
 **Read All About It: True Tales of Men and Fiction**\
 `Readers respond to a column by Maureen Dowd about men and books. Also: President Trump’s tariff games; relationships outside romance.`\
 https://nytimes.com/2025/08/05/opinion/men-books-fiction.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/08/05/dining/tesla-diner-elon-musk.html
 **Topps 'stands by' authenticity of Lionel Messi autographs rejected by PSA**\
 `Fanatics Collectibles CEO Mike Mahan spoke about the Messi autographs situation for the first time at The National`\
 https://nytimes.com/athletic/6535831/2025/08/05/lionel-messi-topps-autographs-psa/
-
-**Does Japan Want American Cars? Trump’s Push to Open Foreign Markets Faces Test.**\
-`President Trump is celebrating deals that lower trade barriers on American staples like cars. Experts question how much of an effect this will have.`\
-https://nytimes.com/2025/08/05/business/trump-tariffs-japan.html
-
-**Man Wanted for Tennessee Quadruple Homicide Is Arrested**\
-`The authorities had been searching for Austin Drummond in connection with the killing of four people and the abandonment of a baby in a yard.`\
-https://nytimes.com/2025/08/05/us/tennessee-quadruple-homicide-arrest.html
-
-**The Human Urge to Corrupt These Wholesome Critters**\
-`A lawsuit involving videos of Calico Critters in scandalous situations lays bare the allure of seeing the twee toys go wild.`\
-https://nytimes.com/2025/08/05/style/calico-critters-lawsuit-sylvanian-drama.html
 
