@@ -1,3 +1,7 @@
+**Trump Administration Will Reinstall Confederate Statue in Washington**\
+`Albert Pike was a Confederate general and diplomat who negotiated alliances with slave-owning Native American tribes during the Civil War.`\
+https://nytimes.com/2025/08/04/us/politics/pike-confederate-statue-trump-dc.html
+
 **Marjorie Taylor Greene Asks for George Santos’s Sentence to Be Commuted**\
 `Ms. Greene, the hard-right House Republican from Georgia, called her former colleague’s seven-year sentence “excessive” in a letter to the U.S. pardon attorney.`\
 https://nytimes.com/2025/08/04/us/politics/george-santos-pardon-marjorie-taylor-greene.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/04/us/politics/faa-ntsb-dc-crash.html
 **Following sweep against Marlins, Yankees open Monday with infield workout**\
 `Entering Monday, New York was 4 1/2 games back in the AL East and was in the hunt for a postseason berth.`\
 https://nytimes.com/athletic/6535767/2025/08/04/ny-yankees-infield-practice/
-
-**Could Aaron Judge return to Yankees' lineup on Tuesday? Signs point to it**\
-`Judge is expected to DH when he returns until he goes through a throwing program and is symptom-free.`\
-https://nytimes.com/athletic/6535698/2025/08/04/ny-yankees-aaron-judge-return/
 
