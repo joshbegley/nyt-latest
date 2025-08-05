@@ -1,3 +1,7 @@
+**What Talks With India and Switzerland Say About Trump’s Trade War**\
+`One country is clashing with the U.S., the other racing to appease Washington. Both approaches are being tested ahead of a looming deadline for trade deals.`\
+https://nytimes.com/2025/08/05/business/dealbook/trump-india-switzerland-tariffs.html
+
 **Clay, a Sales Tool for the A.I. Era, Raises $100 Million**\
 `Investors valued the company, which describes its core user as a kind of marketing engineer, at $3.1 billion.`\
 https://nytimes.com/2025/08/05/business/dealbook/clay-ai-marketing-fundraise.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/08/05/us/trump-news
 **Borussia Dortmund and Wolves in talks over Silva transfer**\
 `Negotiations between the clubs are ongoing, with Wolves aiming to secure a fee in the region of €20m-€25m for their former record signing.`\
 https://nytimes.com/athletic/6536229/2025/08/05/fabio-silva-wolves-dortmund-transfer/
-
-**Bills training camp rookie report: T.J. Sanders showing flashes of being an impact player**\
-`So far, T.J. Sanders has shown the highest potential to have an impact this season.`\
-https://nytimes.com/athletic/6535214/2025/08/05/bills-training-camp-rookie-tj-sanders/
 
