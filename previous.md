@@ -26,7 +26,7 @@ https://nytimes.com/2025/08/05/nyregion/epstein-maxwell-grand-jury-unsealing.htm
 `The booing started in seconds at Representative Mike Flood’s town hall in Lincoln, Neb.`\
 https://nytimes.com/video/us/politics/100000010324588/why-the-gop-isnt-doing-many-town-halls.html
 
-**Villa advancing in talks to sign €35m Nice forward Guessand**\
+**Villa reach €35m agreement to sign Nice forward Guessand**\
 `Villa are working on a deal to sign Guessand but face competition for his signature and while it is not close, discussions are ongoing.`\
 https://nytimes.com/athletic/6536795/2025/08/05/aston-villa-transfers-guessand-nice/
 

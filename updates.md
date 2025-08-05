@@ -1,3 +1,7 @@
+**Villa reach €35m agreement to sign Nice forward Guessand**\
+`Villa are working on a deal to sign Guessand but face competition for his signature and while it is not close, discussions are ongoing.`\
+https://nytimes.com/athletic/6536795/2025/08/05/aston-villa-transfers-guessand-nice/
+
 **8 Early Rap Songs From a New York City in Turmoil**\
 `Inspired by a new book tracing four pivotal years in the city’s history, hear a playlist of songs from the dawn of hip-hop that were swirling at the time.`\
 https://nytimes.com/2025/08/05/arts/music/amplifier-newsletter-early-new-york-rap.html
