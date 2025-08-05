@@ -1,3 +1,12 @@
+**Venezuela is going to Little League World Series. It took a senator and the secretary of state**\
+`Willson Contreras, one of baseball’s most prominent Venezuelan players, lamented being "treated like we are criminals here"
+`\
+https://nytimes.com/athletic/6536059/2025/08/05/venezuela-little-league-world-series-travel-ban/
+
+**OpenAI to Give Away Some of the Technology That Powers ChatGPT**\
+`In a major shift, the company is “open sourcing” two A.I. systems, freely sharing the technology with outside researchers and businesses.`\
+https://nytimes.com/2025/08/05/technology/openai-artificial-intelligence-chatgpt.html
+
 **Map: 2.7-Magnitude Earthquake Strikes New Jersey**\
 `View the location of the quake’s epicenter and shake area.`\
 https://nytimes.com/interactive/2025/08/05/nyregion/new-jersey-quake-tracker.html

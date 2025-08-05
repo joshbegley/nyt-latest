@@ -1,3 +1,12 @@
+**Venezuela is going to Little League World Series. It took a senator and the secretary of state**\
+`Willson Contreras, one of baseball’s most prominent Venezuelan players, lamented being "treated like we are criminals here"
+`\
+https://nytimes.com/athletic/6536059/2025/08/05/venezuela-little-league-world-series-travel-ban/
+
+**OpenAI to Give Away Some of the Technology That Powers ChatGPT**\
+`In a major shift, the company is “open sourcing” two A.I. systems, freely sharing the technology with outside researchers and businesses.`\
+https://nytimes.com/2025/08/05/technology/openai-artificial-intelligence-chatgpt.html
+
 **Map: 2.7-Magnitude Earthquake Strikes New Jersey**\
 `View the location of the quake’s epicenter and shake area.`\
 https://nytimes.com/interactive/2025/08/05/nyregion/new-jersey-quake-tracker.html
@@ -29,12 +38,4 @@ https://nytimes.com/2025/08/05/us/politics/trump-bessent-fed-chair-powell.html
 **They Are 16 and 17 Years Old, and They Want to Vote. Like, Now.**\
 `After Britain announced plans to lower the voting age, some American teenagers wondered: When will it be their turn?`\
 https://nytimes.com/2025/08/05/style/lower-voting-age-britain-us.html
-
-**The cross-border passion fueling San Diego’s soccer scene**\
-`San Diego's diverse population and proximity to Mexico allows for a rich soccer culture.`\
-https://nytimes.com/athletic/6535294/2025/08/05/san-diego-finding-futbol-modelo-passion/
-
-**Voters Boo Nebraska Republican Congressman at Town Hall**\
-`An angry crowd of more than 700 people in Nebraska heckled and booed Representative Mike Flood over the Republican congressman’s support of President Trump’s sweeping domestic policy bill.`\
-https://nytimes.com/video/us/politics/100000010324416/nebraska-townhall-mike-flood-trump.html
 
