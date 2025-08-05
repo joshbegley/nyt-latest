@@ -1,3 +1,7 @@
+**Grand Canyon Wildfire Spreads to More Than 126,000 Acres**\
+`The Dragon Bravo fire has been burning for more than a month, fueled by record-low humidity that has hampered containment efforts.`\
+https://nytimes.com/2025/08/05/weather/dragon-bravo-wildfire-grand-canyon.html
+
 **ICE Offers, Then Quickly Withdraws, Cash Bonuses for Swiftly Deporting Immigrants**\
 `The short-lived effort underscores the mounting pressure on ICE to meet President Trump’s aggressive deportation targets.`\
 https://nytimes.com/2025/08/05/us/politics/ice-bonuses-immigrants-deportations.html
