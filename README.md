@@ -1,3 +1,7 @@
+**As Cardinals transition to 2026, prioritizing playing time continues to be a roster problem**\
+`"Our objective overall, our goals as a staff, remain the same," manager Oli Marmol said.`\
+https://nytimes.com/athletic/6535825/2025/08/05/stl-cardinals-roster-playing-time-development/
+
 **Trump Administration Live Updates: President to Create Task Force for 2028 L.A. Olympics**\
 ``\
 https://nytimes.com/live/2025/08/05/us/trump-news
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6535781/2025/08/05/minnesota-twins-byron-buxton-dea
 **Can the Seattle Storm contend for a WNBA title? Mailbag answers from our expert**\
 `Trade ideas, the Aces' future and Minnesota's addition of DiJonai Carrington. Sabreena Merchant answers your WNBA questions.`\
 https://nytimes.com/athletic/6535929/2025/08/05/seattle-storm-contender-wnba-mailbag/
-
-**‘Now or nothing’ for Bengals' Myles Murphy, which will it be? Depends on who you ask**\
-`The 2023 first-round pick failed to notch a sack last year and the Bengals need him to make a major jump this season.`\
-https://nytimes.com/athletic/6535581/2025/08/05/myles-murphy-bengals-edge-al-golden/
 
