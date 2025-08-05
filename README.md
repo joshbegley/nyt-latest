@@ -1,3 +1,7 @@
+**Grand Canyon Wildfire Spreads to More Than 126,000 Acres**\
+`The Dragon Bravo fire has been burning for more than a month, fueled by record-low humidity that has hampered containment efforts.`\
+https://nytimes.com/2025/08/05/weather/dragon-bravo-wildfire-grand-canyon.html
+
 **ICE Offers, Then Quickly Withdraws, Cash Bonuses for Swiftly Deporting Immigrants**\
 `The short-lived effort underscores the mounting pressure on ICE to meet President Trump’s aggressive deportation targets.`\
 https://nytimes.com/2025/08/05/us/politics/ice-bonuses-immigrants-deportations.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6537102/2025/08/05/washington-mystics-trade-brittne
 **Ravens CB Nate Wiggins removed from joint practice with Colts after fight breaks out**\
 `Baltimore and Indianapolis will face off in each team's preseason opener on Thursday. `\
 https://nytimes.com/athletic/6537081/2025/08/05/ravens-colts-fight-nate-wiggins/
-
-**Eric Adams Assembles Religious Leaders to Bless His Candidacy**\
-`New Yorkers of various faiths heaped praise on the incumbent mayor, whose path to re-election appears steep, and compared him to biblical figures.`\
-https://nytimes.com/2025/08/05/nyregion/eric-adams-nyc-mayor-religious-leaders.html
 
