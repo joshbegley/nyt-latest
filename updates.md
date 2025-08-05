@@ -1,3 +1,19 @@
+**The Raging Gifford Fire, Like Many, Began Near a Highway**\
+`The wildfire in the Los Padres National Forest grew to 82,000 acres on Tuesday. Officials are still trying to determine the cause.`\
+https://nytimes.com/2025/08/05/us/california-gifford-fire-evacuation-orders.html
+
+**Kyren Williams reaches 3-year, $33 million extension with Rams**\
+`Coaches and teammates expressed admiration for how Williams handled the process during negotiations. `\
+https://nytimes.com/athletic/6510298/2025/08/05/kyren-williams-contract-extension-rams-nfl/
+
+**Columbia and Brown to Disclose Admissions and Race Data in Trump Deal**\
+`A widely overlooked part of a settlement with the two universities could profoundly alter how elite schools determine who gets accepted.`\
+https://nytimes.com/2025/08/05/nyregion/columbia-brown-admissions-trump.html
+
+**Read All About It: True Tales of Men and Fiction**\
+`Readers respond to a column by Maureen Dowd about men and books. Also: President Trump’s tariff games; relationships outside romance.`\
+https://nytimes.com/2025/08/05/opinion/men-books-fiction.html
+
 **Trump Rules Out Bessent as Replacement for Powell at Fed**\
 `With Treasury Secretary Scott Bessent not in the running, President Trump said that he has narrowed his list of replacements to four people.`\
 https://nytimes.com/2025/08/05/us/politics/trump-bessent-fed-chair-powell.html

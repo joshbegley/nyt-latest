@@ -1,3 +1,7 @@
+**House Oversight Committee Issues Subpoenas for Epstein Files**\
+`The committee’s Republican chairman requested that the documents from the Justice Department and former government officials be delivered by Aug. 19.`\
+https://nytimes.com/2025/08/05/us/politics/epstein-files-subpoenas.html
+
 **The Raging Gifford Fire, Like Many, Began Near a Highway**\
 `The wildfire in the Los Padres National Forest grew to 82,000 acres on Tuesday. Officials are still trying to determine the cause.`\
 https://nytimes.com/2025/08/05/us/california-gifford-fire-evacuation-orders.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/us/politics/100000010324416/nebraska-townhall-mike-flo
 **At the Tesla Diner, the Future Looks Mid**\
 `The new Los Angeles restaurant from the electric car giant is a smash burger and content machine, drawing Elon Musk’s fans and protesters.`\
 https://nytimes.com/2025/08/05/dining/tesla-diner-elon-musk.html
-
-**Topps 'stands by' authenticity of Lionel Messi autographs rejected by PSA**\
-`Fanatics Collectibles CEO Mike Mahan spoke about the Messi autographs situation for the first time at The National`\
-https://nytimes.com/athletic/6535831/2025/08/05/lionel-messi-topps-autographs-psa/
 
