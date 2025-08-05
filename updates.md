@@ -1,3 +1,19 @@
+**Partey granted conditional bail after appearing in court on rape charges**\
+`Partey, 32, was charged with five counts of rape and one count of sexual assault on July 4.`\
+https://nytimes.com/athletic/6534714/2025/08/05/thomas-partey-court-hearing/
+
+**Knicks mailbag: Monitoring the Giannis situation and could Ben Simmons be a serious option?**\
+`The Knicks still have room to sign a veteran's minimum player and a player on a rookie deal this offseason.`\
+https://nytimes.com/athletic/6534635/2025/08/05/knicks-giannis-antetokounmpo-ben-simmons/
+
+**Untold stories of Sidney Crosby: Small moments that speak volumes**\
+`Josh Yohe unlocks the vault on some untold Crosby stories from years on the Penguins beat.`\
+https://nytimes.com/athletic/6535258/2025/08/05/penguins-sidney-crosby-memories-nhl/
+
+**Joe Flacco's message to the Browns: 'I can still do it'**\
+`Back with the Browns after a season in Indianapolis, Flacco wants the reps to prove he can deliver again.`\
+https://nytimes.com/athletic/6532900/2025/08/05/browns-joe-flacco-quarterback-training-camp/
+
 **Why 2020 No. 3 pick Jeff Okudah and the Vikings are the perfect fit for each other**\
 `Okudah was considering retirement after a quiet 2024. The Vikings hope that teaming up with Brian Flores will help him reach his potential.`\
 https://nytimes.com/athletic/6535406/2025/08/05/jeff-okudah-vikings-training-camp/
