@@ -1,3 +1,7 @@
+**Porto's UCL-winning captain Costa dies at 53**\
+`The former central defender, who was working as Porto's football director, passed away on Tuesday.`\
+https://nytimes.com/athletic/6536604/2025/08/05/jorge-costa-dead-porto-champions-league/
+
 **Evenepoel signs for Red Bull–BORA–hansgrohe from 2026**\
 `The 25-year-old is the World and Olympic time-trial champion but dropped out of the 2025 Tour de France on Stage 14.`\
 https://nytimes.com/athletic/6536530/2025/08/05/remco-evenepoel-soudal-quickstep-red-bull-transfer/
@@ -10,7 +14,7 @@ https://nytimes.com/2025/08/05/us/politics/mike-flood-town-hall.html
 `The document also notes that he suffered from Parkinson’s disease.`\
 https://nytimes.com/2025/08/05/arts/music/ozzy-osbourne-cause-of-death.html
 
-**Should Benjamin Sesko choose Manchester United or Newcastle United?**\
+**Should Benjamin Sesko choose Manchester United or Newcastle?**\
 `Manchester United and Newcastle United have made substantial offers for Benjamin Sesko - our writers explain what he should consider`\
 https://nytimes.com/athletic/6536456/2025/08/05/benjamin-sesko-manchester-united-newcastle-transfer-choice/
 
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/05/business/media/trump-murdoch-deposition-postponed
 **Titan Sub Disaster Caused by Series of Mistakes, Coast Guard Report Says**\
 `The 2023 disaster killed five people on a dive to the wreckage of the Titanic, prompting a sprawling search of the north Atlantic Ocean.`\
 https://nytimes.com/2025/08/05/us/titan-sub-implosion-coast-guard-report.html
-
-**China’s Mosquito Crackdown Tests a City’s Post-Covid Patience**\
-`The authorities are inspecting homes, tracking purchases of fever medicines and deploying drones as they urge people to join an eradication campaign that echoes Covid measures.`\
-https://nytimes.com/2025/08/05/world/asia/china-chikungunya-virus-mosquitoes-covid.html
 
