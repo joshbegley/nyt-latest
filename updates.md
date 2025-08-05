@@ -1,3 +1,11 @@
+**How will Brittney Sykes impact Seattle Storm after trade from Washington Mystics?**\
+`In the deal, the Mystics receive veteran forward Alysha Clark, the Storm’s 2026 first-round pick, and third-year player Zia Cooke.`\
+https://nytimes.com/athletic/6537102/2025/08/05/washington-mystics-trade-brittney-sykes-seattle-storm/
+
+**Ravens CB Nate Wiggins removed from joint practice with Colts after fight breaks out**\
+`Baltimore and Indianapolis will face off in each team's preseason opener on Thursday. `\
+https://nytimes.com/athletic/6537081/2025/08/05/ravens-colts-fight-nate-wiggins/
+
 **Eric Adams Assembles Religious Leaders to Bless His Candidacy**\
 `New Yorkers of various faiths heaped praise on the incumbent mayor, whose path to re-election appears steep, and compared him to biblical figures.`\
 https://nytimes.com/2025/08/05/nyregion/eric-adams-nyc-mayor-religious-leaders.html

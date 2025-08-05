@@ -1,3 +1,11 @@
+**How will Brittney Sykes impact Seattle Storm after trade from Washington Mystics?**\
+`In the deal, the Mystics receive veteran forward Alysha Clark, the Storm’s 2026 first-round pick, and third-year player Zia Cooke.`\
+https://nytimes.com/athletic/6537102/2025/08/05/washington-mystics-trade-brittney-sykes-seattle-storm/
+
+**Ravens CB Nate Wiggins removed from joint practice with Colts after fight breaks out**\
+`Baltimore and Indianapolis will face off in each team's preseason opener on Thursday. `\
+https://nytimes.com/athletic/6537081/2025/08/05/ravens-colts-fight-nate-wiggins/
+
 **Eric Adams Assembles Religious Leaders to Bless His Candidacy**\
 `New Yorkers of various faiths heaped praise on the incumbent mayor, whose path to re-election appears steep, and compared him to biblical figures.`\
 https://nytimes.com/2025/08/05/nyregion/eric-adams-nyc-mayor-religious-leaders.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/08/05/opinion/trump-bls-head-fired-truth.html
 **LAFC to sign Son Heung-min for MLS-record transfer fee, announce in coming days**\
 `Sources say the move for the Tottenham legend is headed to the finish line, with his arrival in MLS imminent`\
 https://nytimes.com/athletic/6536835/2025/08/05/son-heung-min-tottenham-lafc-transfer-mls-record-fee/
-
-**4-Day Manhunt Yields No Confirmed Sighting of Montana Suspect**\
-`The man accused of fatally shooting four people in a bar disappeared into a rugged forest. An official said the search for him was law enforcement’s “top focus.”`\
-https://nytimes.com/2025/08/05/us/montana-manhunt-brown-anaconda-shooting.html
-
-**Man City's Vitor Reis set to join CFG-owned Girona on loan**\
-`The Brazilian defender has made four appearances for Pep Guardiola's side since his arrival from Palmeiras in the January transfer window.`\
-https://nytimes.com/athletic/6527983/2025/08/05/manchester-city-transfers-vitor-reis-girona/
 
