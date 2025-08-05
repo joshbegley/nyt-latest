@@ -1,3 +1,7 @@
+**What to Know About India’s Trade in Oil With Russia**\
+`President Trump accused India of aiding Moscow’s war on Ukraine by purchasing Russian energy, derailing trade talks between India and the United States.`\
+https://nytimes.com/2025/08/05/business/india-russia-oil.html
+
 **Stella Rimington, First Woman to Lead British Intelligence Agency, Dies at 90**\
 `Widely regarded as the inspiration for the recast of the James Bond character “M,” she was the first British spy chief to be publicly named and photographed.`\
 https://nytimes.com/2025/08/05/world/europe/stella-rimington-dies.html
