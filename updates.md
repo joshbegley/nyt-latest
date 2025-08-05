@@ -1,3 +1,15 @@
+**Yankees demote Jake Bird, reliever they just acquired, in another sign things are off track**\
+`The Yankees have slowly been losing their grip on a playoff position.`\
+https://nytimes.com/athletic/6536563/2025/08/05/yankees-jake-bird-demotion-after-trade/
+
+**Rupert Murdoch and Trump Agree to Postpone Deposition**\
+`The president sued Mr. Murdoch and The Wall Street Journal for an article last month. The president’s lawyers had asked for Mr. Murdoch to be deposed within 15 days.`\
+https://nytimes.com/2025/08/05/business/media/trump-murdoch-deposition-postponed.html
+
+**Titan Sub Disaster Caused by Series of Mistakes, Coast Guard Report Says**\
+`The 2023 disaster killed five people on a dive to the wreckage of the Titanic, prompting a sprawling search of the north Atlantic Ocean.`\
+https://nytimes.com/2025/08/05/us/titan-sub-implosion-coast-guard-report.html
+
 **China’s Mosquito Crackdown Tests a City’s Post-Covid Patience**\
 `The authorities are inspecting homes, tracking purchases of fever medicines and deploying drones as they urge people to join an eradication campaign that echoes Covid measures.`\
 https://nytimes.com/2025/08/05/world/asia/china-chikungunya-virus-mosquitoes-covid.html
