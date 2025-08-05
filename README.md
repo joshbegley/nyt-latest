@@ -1,3 +1,7 @@
+**How the Eagles are preparing Quinyon Mitchell, Cooper DeJean for graduate-level roles**\
+`The two young players have been impactful since they arrived in Philadelphia last season.`\
+https://nytimes.com/athletic/6535067/2025/08/05/eagles-quinyon-mitchell-cooper-dejean/
+
 **Tigers' Alex Cobb still fighting for one last run in the major leagues**\
 `The Tigers signed Alex Cobb on a one-year, $15 million deal this winter. He has yet to pitch in the major leagues this season.`\
 https://nytimes.com/athletic/6535570/2025/08/05/alex-cobb-tigers-hip-rehab/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6532900/2025/08/05/browns-joe-flacco-quarterback-tr
 **Why 2020 No. 3 pick Jeff Okudah and the Vikings are the perfect fit for each other**\
 `Okudah was considering retirement after a quiet 2024. The Vikings hope that teaming up with Brian Flores will help him reach his potential.`\
 https://nytimes.com/athletic/6535406/2025/08/05/jeff-okudah-vikings-training-camp/
-
-**Surging Red Sox trying to recapture 2018 mojo with new version of ‘win wall’**\
-`With fewer than 50 games to play and the Red Sox on a roll, there’s no telling what the wall will look like in two months.`\
-https://nytimes.com/athletic/6535673/2025/08/05/red-sox-mlb-win-wall-photos/
 
