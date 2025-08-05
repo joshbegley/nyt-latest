@@ -1,3 +1,8 @@
+**Venezuela is going to Little League World Series. It took a senator and the secretary of state**\
+`Willson Contreras, one of baseball’s most prominent Venezuelan players, lamented being "treated like we are criminals here"
+`\
+https://nytimes.com/athletic/6536059/2025/08/05/venezuela-little-league-world-series-travel-ban/
+
 **F.B.I. Is Asked to Arrest Texas Democrats in Battle Over House Seats**\
 `It was unclear how the agency would respond. Democratic lawmakers left the state to stop Republicans from redrawing district maps to their advantage.`\
 https://nytimes.com/2025/08/05/us/politics/fbi-texas-democrats.html
