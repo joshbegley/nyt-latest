@@ -1,3 +1,7 @@
+**80 Years Ago, Nuclear Annihilation Came to Japan**\
+`What the world’s only atomic bombings, carried out by Americans, did to Hiroshima and Nagasaki.`\
+https://nytimes.com/2025/08/05/world/asia/hiroshima-nagasaki-japan-nuclear-photos.html
+
 **A Summertime Haven for Homeless Children**\
 `For a few weeks at sleep-away camp, the challenges of difficult lives in New York City are a world away.`\
 https://nytimes.com/card/2025/08/05/nyregion/summer-camp-homeless-children-homeward-bound
@@ -33,8 +37,4 @@ https://nytimes.com/issue/todayspaper/2025/08/05/todays-new-york-times
 **Russia’s Rulers Are in for a Nasty Shock**\
 `Russia’s president has lost faith in the very idea of reaching agreements with the United States.`\
 https://nytimes.com/2025/08/05/opinion/putin-trump-deadline-ukraine.html
-
-**Chargers’ Zion Johnson experiment at center is over as he returns to left guard**\
-`Johnson will still get some cross-training work at center but is expected to focus primarily on playing left guard.`\
-https://nytimes.com/athletic/6535836/2025/08/05/chargers-zion-johnson-center-guard/
 
