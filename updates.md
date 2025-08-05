@@ -1,3 +1,11 @@
+**Following sweep against Marlins, Yankees open Monday with infield workout**\
+`Entering Monday, New York was 4 1/2 games back in the AL East and was in the hunt for a postseason berth.`\
+https://nytimes.com/athletic/6535767/2025/08/04/ny-yankees-infield-practice/
+
+**Could Aaron Judge return to Yankees' lineup on Tuesday? Signs point to it**\
+`Judge is expected to DH when he returns until he goes through a throwing program and is symptom-free.`\
+https://nytimes.com/athletic/6535698/2025/08/04/ny-yankees-aaron-judge-return/
+
 **Could Aaron Judge return to Yankees' lineup on Tuesday? Signs are pointing to it**\
 `Judge is expected to DH when he returns until he goes through a throwing program and is symptom-free.`\
 https://nytimes.com/athletic/6535698/2025/08/04/ny-yankees-aaron-judge-return/

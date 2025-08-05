@@ -1,4 +1,8 @@
-**Could Aaron Judge return to Yankees' lineup on Tuesday? Signs are pointing to it**\
+**Following sweep against Marlins, Yankees open Monday with infield workout**\
+`Entering Monday, New York was 4 1/2 games back in the AL East and was in the hunt for a postseason berth.`\
+https://nytimes.com/athletic/6535767/2025/08/04/ny-yankees-infield-practice/
+
+**Could Aaron Judge return to Yankees' lineup on Tuesday? Signs point to it**\
 `Judge is expected to DH when he returns until he goes through a throwing program and is symptom-free.`\
 https://nytimes.com/athletic/6535698/2025/08/04/ny-yankees-aaron-judge-return/
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6535583/2025/08/04/49ers-kicker-competition-injurie
 **The Origins of the Political Power Grab in Texas**\
 `President Trump seized a moment ripe for another redistricting war.`\
 https://nytimes.com/2025/08/04/us/politics/texas-redistricting-politics.html
-
-**Bronx Man Charged With Dealing Drugs That Caused Deadly Overdose**\
-`Estherlyn Frias sold narcotics out of his home, near where his children slept, U.S. prosecutors said. A Connecticut man bought fentanyl and cocaine from him and died 12 hours later.`\
-https://nytimes.com/2025/08/04/nyregion/bronx-drug-overdose-fentanyl-charges.html
 
