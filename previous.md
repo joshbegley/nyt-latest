@@ -1,3 +1,19 @@
+**Wednesday Briefing: Netanyahu’s Next Steps in Gaza**\
+`Plus, how to break free from your phone.`\
+https://nytimes.com/2025/08/05/briefing/netanyahu-gaza-jeju-air-hiroshima.html
+
+**Browns rookie QB Shedeur Sanders expected to start preseason opener vs. Panthers**\
+`Sanders will go from the clear fourth QB throughout the first two weeks of training camp to first on the field in the preseason.`\
+https://nytimes.com/athletic/6537264/2025/08/05/browns-shedeur-sanders-start-preseason-panthers/
+
+**Where Can Gaza Go From Here?**\
+`No thoughtful person can be pro-Palestinian without also being anti-Hamas.`\
+https://nytimes.com/2025/08/05/opinion/gaza-war-israel-netanyahu.html
+
+**Why Did God Favor France?**\
+`Five theories about Joan of Arc’s miraculous-seeming career.`\
+https://nytimes.com/2025/08/05/opinion/joan-arc-miracles-god.html
+
 **Grand Canyon Wildfire Spreads to More Than 126,000 Acres**\
 `The Dragon Bravo fire has been burning for more than a month, fueled by record-low humidity that has hampered containment efforts.`\
 https://nytimes.com/2025/08/05/weather/dragon-bravo-wildfire-grand-canyon.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6413115/2025/08/05/liverpool-transfers-harvey-ellio
 **British Opera Company Cancels ‘Tosca’ Collaboration in Israel After Criticism**\
 `The Royal Ballet and Opera said it was scrapping performances in Tel Aviv next year, after nearly 200 staff members signed an open letter criticizing its stance on the war in Gaza.`\
 https://nytimes.com/2025/08/05/arts/music/british-opera-royal-tosca-israel-letter.html
-
-**Colts coach: Anthony Richardson will start first preseason game**\
-`Richardson is battling with Daniel Jones to be named the Colts' QB1 to start the season. `\
-https://nytimes.com/athletic/6537119/2025/08/05/colts-anthony-richardson-preseason-starter-daniel-jones/
-
-**What we've seen and heard from Ohio State's QB battle: How close is it?**\
-`Here's what we heard from Julian Sayin and Lincoln Kienholz after Day 5 of Ohio State camp — and how their coaches view their competition.`\
-https://nytimes.com/athletic/6537098/2025/08/05/ohio-state-qb-competition-sayin-kienholz-quotes/
-
-**How will Brittney Sykes impact Seattle Storm after trade from Washington Mystics?**\
-`In the deal, the Mystics receive veteran forward Alysha Clark, the Storm’s 2026 first-round pick, and third-year player Zia Cooke.`\
-https://nytimes.com/athletic/6537102/2025/08/05/washington-mystics-trade-brittney-sykes-seattle-storm/
-
-**Ravens CB Nate Wiggins removed from joint practice with Colts after fight breaks out**\
-`Baltimore and Indianapolis will face off in each team's preseason opener on Thursday. `\
-https://nytimes.com/athletic/6537081/2025/08/05/ravens-colts-fight-nate-wiggins/
 
