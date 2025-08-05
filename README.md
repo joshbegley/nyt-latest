@@ -1,3 +1,7 @@
+**Bills training camp rookie report: T.J. Sanders showing flashes of being an impact player**\
+`So far, T.J. Sanders has shown the highest potential to have an impact this season.`\
+https://nytimes.com/athletic/6535214/2025/08/05/bills-training-camp-rookie-tj-sanders/
+
 **A Tussle in Texas**\
 `We take a look at the political fight over a redrawn map.`\
 https://nytimes.com/2025/08/05/briefing/texas-house-democrats.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6525362/2025/08/05/2026-world-juniors-roster-projec
 **Wirtz says Liverpool price tag pressure 'doesn't matter': 'I just want to play football'**\
 `Wirtz joined Liverpool in a £116million transfer from Bayer Leverkusen this summer.`\
 https://nytimes.com/athletic/6536112/2025/08/05/florian-wirtz-liverpool-price-expectations/
-
-**Will Michigan have a true QB competition? 5 preseason camp questions**\
-`Michigan started preseason camp with an "open" QB competition, questions at receiver and a potential breakout star. `\
-https://nytimes.com/athletic/6535617/2025/08/05/michigan-preseason-practice-questions-bryce-underwood/
 
