@@ -1,3 +1,31 @@
+**8 Early Rap Songs From a New York City in Turmoil**\
+`Inspired by a new book tracing four pivotal years in the city’s history, hear a playlist of songs from the dawn of hip-hop that were swirling at the time.`\
+https://nytimes.com/2025/08/05/arts/music/amplifier-newsletter-early-new-york-rap.html
+
+**Scoop City: Six strategies to find football breakouts in 2025, 2026 and beyond**\
+`Six timeless principles to help you find league-winning picks this season. And next season. The season after that, too.`\
+https://nytimes.com/athletic/6536810/2025/08/05/fantasy-football-sleepers-breakouts-2025-targets-jake-ciely-scoop-city-nfl/
+
+**Brighton appoint new set-piece coach to Hurzeler's staff**\
+`The former right-back will be responsible for defensive and attacking set plays in Fabian Hurzeler's coaching staff.`\
+https://nytimes.com/athletic/6536977/2025/08/05/brighton-set-piece-coach/
+
+**Ion Iliescu, Who Steered Romania After Revolution, Dies at 95**\
+`As a three-term as president, he guided the country toward democracy, but he was called an authoritarian at heart and accused of brutality during the revolt that put him in power.`\
+https://nytimes.com/2025/08/05/world/europe/ion-iliescu-dead.html
+
+**F.B.I. Is Asked to Arrest Texas Democrats in Battle Over House Seats**\
+`It was unclear how the agency would respond. Democratic lawmakers left the state to stop Republicans from redrawing district maps to their advantage.`\
+https://nytimes.com/2025/08/05/us/politics/fbi-texas-democrats.html
+
+**Maxwell Opposes Request to Unseal Epstein Grand Jury Papers**\
+`The disgraced financier’s former companion said disclosure would harm her legal rights. “Jeffrey Epstein is dead,” her lawyers wrote. “Ghislaine Maxwell is not.”`\
+https://nytimes.com/2025/08/05/nyregion/epstein-maxwell-grand-jury-unsealing.html
+
+**Villa advancing in talks to sign €35m Nice forward Guessand**\
+`Villa are working on a deal to sign Guessand but face competition for his signature and while it is not close, discussions are ongoing.`\
+https://nytimes.com/athletic/6536795/2025/08/05/aston-villa-transfers-guessand-nice/
+
 **Venezuela is going to Little League World Series. It took a senator and the secretary of state**\
 `Willson Contreras, one of baseball’s most prominent Venezuelan players, lamented being "treated like we are criminals here"
 `\
