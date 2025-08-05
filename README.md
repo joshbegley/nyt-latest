@@ -1,3 +1,7 @@
+**Borussia Dortmund and Wolves in talks over Silva transfer**\
+`Negotiations between the clubs are ongoing, with Wolves aiming to secure a fee in the region of €20m-€25m for their former record signing.`\
+https://nytimes.com/athletic/6536229/2025/08/05/fabio-silva-wolves-dortmund-transfer/
+
 **Bills training camp rookie report: T.J. Sanders showing flashes of being an impact player**\
 `So far, T.J. Sanders has shown the highest potential to have an impact this season.`\
 https://nytimes.com/athletic/6535214/2025/08/05/bills-training-camp-rookie-tj-sanders/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6535581/2025/08/05/myles-murphy-bengals-edge-al-gol
 **Projecting 2026 World Junior lineups for Canada, USA, Sweden, Finland, Czechia**\
 `After a week of competition at the Summer Showcase in Minneapolis, we take an early crack at predicting this winter's World Juniors rosters.`\
 https://nytimes.com/athletic/6525362/2025/08/05/2026-world-juniors-roster-projections-canada-usa/
-
-**Wirtz says Liverpool price tag pressure 'doesn't matter': 'I just want to play football'**\
-`Wirtz joined Liverpool in a £116million transfer from Bayer Leverkusen this summer.`\
-https://nytimes.com/athletic/6536112/2025/08/05/florian-wirtz-liverpool-price-expectations/
 
