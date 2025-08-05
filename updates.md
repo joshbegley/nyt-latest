@@ -1,3 +1,7 @@
+**How the Eagles are preparing Quinyon Mitchell, Cooper DeJean for graduate-level roles**\
+`The two young players have been impactful since they arrived in Philadelphia last season.`\
+https://nytimes.com/athletic/6535067/2025/08/05/eagles-quinyon-mitchell-cooper-dejean/
+
 **Tigers' Alex Cobb still fighting for one last run in the major leagues**\
 `The Tigers signed Alex Cobb on a one-year, $15 million deal this winter. He has yet to pitch in the major leagues this season.`\
 https://nytimes.com/athletic/6535570/2025/08/05/alex-cobb-tigers-hip-rehab/
