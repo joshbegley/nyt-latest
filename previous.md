@@ -1,3 +1,7 @@
+**Word of the Day: estuary**\
+`This word has appeared in 25 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2025/08/05/learning/word-of-the-day-estuary.html
+
 **The New York Times in Print for Tuesday, Aug. 5, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/08/05/todays-new-york-times
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6525026/2025/08/05/fantasy-premier-league-players-a
 **Kyle Schwarber hears MVP chants, hits slam to reach 40 homers: 'The guy is unbelievable'**\
 `Schwarber remains hot for a Phillies team that leads the league with 33 homers since the All-Star break.`\
 https://nytimes.com/athletic/6535935/2025/08/05/phillies-kyle-schwarber-mvp-slam/
-
-**Maximilian Senft: The poker player turned promotion-winning football manager**\
-`Meet the Austrian whose strategic mentality is proving lucrative in football management`\
-https://nytimes.com/athletic/6524500/2025/08/05/maximilian-senft-poker-football-manager/
 

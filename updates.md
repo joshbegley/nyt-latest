@@ -1,3 +1,7 @@
+**Word of the Day: estuary**\
+`This word has appeared in 25 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2025/08/05/learning/word-of-the-day-estuary.html
+
 **The New York Times in Print for Tuesday, Aug. 5, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/08/05/todays-new-york-times
