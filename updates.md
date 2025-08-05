@@ -1,3 +1,16 @@
+**Why the G.O.P. Isn’t Doing Many Town Halls**\
+`The booing started in seconds at Representative Mike Flood’s town hall in Lincoln, Neb.`\
+https://nytimes.com/video/us/politics/100000010324588/why-the-gop-isnt-doing-many-town-halls.html
+
+**Villa advancing in talks to sign Nice forward Guessand**\
+`Villa are working on a deal to sign Guessand but face competition for his signature and while it is not close, discussions are ongoing.`\
+https://nytimes.com/athletic/6536795/2025/08/05/aston-villa-transfers-guessand-nice/
+
+**Venezuela is going to Little League World Series. It took a senator and the secretary of state**\
+`Willson Contreras, one of baseball’s most prominent Venezuelan players, lamented being "treated like we are criminals here"
+`\
+https://nytimes.com/athletic/6536059/2025/08/05/venezuela-little-league-world-series-travel-ban/
+
 **Venezuela is going to Little League World Series. It took a senator and the secretary of state**\
 `Willson Contreras, one of baseball’s most prominent Venezuelan players, lamented being "treated like we are criminals here"
 `\
