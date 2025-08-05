@@ -1,3 +1,15 @@
+**Ranked-Choice Voting Helped Mamdani Score a Decisive Primary Win**\
+`The primary results show that voters and campaigns are becoming more sophisticated in how they use ranked-choice voting.`\
+https://nytimes.com/interactive/2025/08/04/nyregion/nyc-mayoral-primary-mamdani-ballots.html
+
+**Eagles, Raiders agree to trade of young defensive pieces: Sources**\
+`The Eagles add to their cornerback competition, while the Raiders acquire more depth at defensive tackle.`\
+https://nytimes.com/athletic/6535858/2025/08/04/eagles-raiders-trade-jakorian-bennett-thomas-booker-iv/
+
+**Let Develop Over Time**\
+`Gary Larson and Amy Ensz must find us amusing.`\
+https://nytimes.com/2025/08/04/crosswords/daily-puzzle-2025-08-05.html
+
 **Braves' Grant Holmes opts for non-surgical route, Chris Sale progressing and more**\
 `Holmes, understandably, doesn’t want to miss a full season after working so long to make it to the major leagues.`\
 https://nytimes.com/athletic/6535789/2025/08/04/braves-grant-holmes-chris-sale/
