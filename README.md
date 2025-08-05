@@ -1,4 +1,4 @@
-**Fox gets into direct-to-consumer game, featuring NFL, MLB, college football**\
+**Fox gets into direct-to-consumer streaming game, featuring NFL, MLB, college football**\
 `"Fox One" subscriptions will cost $19.99 per month and include all programming running on Fox’s broadcast network, including sports.`\
 https://nytimes.com/athletic/6536643/2025/08/05/fox-sports-streaming-service-nfl-mlb/
 
