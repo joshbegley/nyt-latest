@@ -1,3 +1,19 @@
+**Where do Suter, Bjugstad fit in the Blues lineup? We asked Jim Montgomery**\
+`Pius Suter and Nick Bjugstad signed with the Blues as free agents this summer, bringing some much-needed depth at the center position.`\
+https://nytimes.com/athletic/6497767/2025/08/05/blues-suter-bjugstad-lineup-montgomery/
+
+**Welcome to the show! Though gossip is the name of our game, it's all rooted in reporting**\
+`From athlete relationships to midnight trades, our show keeps you informed on the juicy happenings surrounding sports.`\
+https://nytimes.com/athletic/6527698/2025/08/05/sports-gossip-show-the-athletic-debut-madeline-hill-charlotte-wilder/
+
+**Bubble Gum Brought to Life**\
+`Candy-colored clothing made for a sweet sight on a summer day.`\
+https://nytimes.com/2025/08/05/style/street-style-look-bubble-gum-pink-color.html
+
+**England against India: The story of a breathtaking Test series in 10 pictures**\
+`An epic series was crammed with centuries, controversy, brilliant bowling, magnificent batting and ended with a one-handed cameo`\
+https://nytimes.com/athletic/6536198/2025/08/05/england-india-images-gill-pant-archer-stokes/
+
 **‘The Wackiest Ways We Remember Those We’ve “Lost”’: The Week 7 Winner of Our Summer Reading Contest**\
 `Grady Zheng, 16, writes about a “grieving ritual” that “involved a chaotic, joyful and utterly ridiculous food fight in the middle school cafeteria.”`\
 https://nytimes.com/2025/08/05/learning/the-wackiest-ways-we-remember-those-weve-lost-the-week-7-winner-of-our-summer-reading-contest.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6535991/2025/08/05/sf-giants-justin-verlander-seeki
 **Manchester United submit offer for RB Leipzig striker Benjamin Sesko**\
 `Leipzig are yet to respond to the Premier League club's proposal.`\
 https://nytimes.com/athletic/6525259/2025/08/05/benjamin-sesko-manchester-united-rb-leipzig-transfer-update/
-
-**TAFC: Why 'Big Six' are buying up EPL talent, challenges facing U.S. owners in England**\
-`Today in TAFC: Why the 'Big Six' in the Premier League are shopping in the top division. Plus Trying not to 'bastardise' football.`\
-https://nytimes.com/athletic/6536168/2025/08/05/transfers-nicolas-jackson-chelsea-u-s-premier-league-owners/
-
-**The Seahawks' offensive line feels the pressure ... but also feels ready to meet it**\
-`How can the Seahawks' weakest link from 2024 become a strength? "Run the damn ball," first-round rookie Gray Zabel said.`\
-https://nytimes.com/athletic/6531601/2025/08/05/seahawks-training-camp-offensive-line/
-
-**As Cardinals transition to 2026, prioritizing playing time continues to be a roster problem**\
-`"Our objective overall, our goals as a staff, remain the same," manager Oli Marmol said.`\
-https://nytimes.com/athletic/6535825/2025/08/05/stl-cardinals-roster-playing-time-development/
-
-**Trump Administration Live Updates: President to Create Task Force for 2028 L.A. Olympics**\
-``\
-https://nytimes.com/live/2025/08/05/us/trump-news
 
