@@ -1,3 +1,7 @@
+**A Nuclear Reactor on the Moon? Come Again?**\
+`The acceleration of nuclear development is part of the Trump administration’s efforts to focus NASA on human spaceflight. A reactor would be useful for long-term stays on the moon.`\
+https://nytimes.com/2025/08/04/science/a-nuclear-reactor-on-the-moon-come-again.html
+
 **Ranked-Choice Voting Helped Mamdani Score a Decisive Primary Win**\
 `The primary results show that voters and campaigns are becoming more sophisticated in how they use ranked-choice voting.`\
 https://nytimes.com/interactive/2025/08/04/nyregion/nyc-mayoral-primary-mamdani-ballots.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6535698/2025/08/04/ny-yankees-aaron-judge-return/
 **When Trump Changes His Mind, Republicans Find a Way to Fall in Line**\
 `President Trump’s decision to fire the head of the Bureau of Labor Statistics forced his allies into the awkward spot of criticizing an agency they had freely cited in the past.`\
 https://nytimes.com/2025/08/04/us/politics/trump-republicans-bls-jobs-analysis.html
-
-**Islanders sign Matthew Schaefer to 3-year, entry-level contract**\
-`Schaefer was the No. 1 overall pick of the Islanders in this year's draft.`\
-https://nytimes.com/athletic/6535696/2025/08/04/islanders-matthew-schaefer-contract-rookie/
 
