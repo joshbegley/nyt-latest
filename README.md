@@ -1,3 +1,7 @@
+**Trump Administration Live Updates: President to Create Task Force for 2028 L.A. Olympics**\
+``\
+https://nytimes.com/live/2025/08/05/us/trump-news
+
 **Borussia Dortmund and Wolves in talks over Silva transfer**\
 `Negotiations between the clubs are ongoing, with Wolves aiming to secure a fee in the region of €20m-€25m for their former record signing.`\
 https://nytimes.com/athletic/6536229/2025/08/05/fabio-silva-wolves-dortmund-transfer/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6535929/2025/08/05/seattle-storm-contender-wnba-mai
 **‘Now or nothing’ for Bengals' Myles Murphy, which will it be? Depends on who you ask**\
 `The 2023 first-round pick failed to notch a sack last year and the Bengals need him to make a major jump this season.`\
 https://nytimes.com/athletic/6535581/2025/08/05/myles-murphy-bengals-edge-al-golden/
-
-**Projecting 2026 World Junior lineups for Canada, USA, Sweden, Finland, Czechia**\
-`After a week of competition at the Summer Showcase in Minneapolis, we take an early crack at predicting this winter's World Juniors rosters.`\
-https://nytimes.com/athletic/6525362/2025/08/05/2026-world-juniors-roster-projections-canada-usa/
 
