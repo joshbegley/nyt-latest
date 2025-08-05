@@ -1,3 +1,7 @@
+**In Brooklyn, a Former Tailor Shop Is a Perfect Fit**\
+`Drawn back to New York after years in Europe, Donelle Kosch gravitated toward Boerum Hill, transforming 450 square feet into a place she could live and entertain guests.`\
+https://nytimes.com/2025/08/05/realestate/tailor-shop-tiny-house-brooklyn.html
+
 **Trump Administration Illegally Withheld N.I.H. Funding, Watchdog Finds**\
 `Lawmakers from both parties have criticized the White House for halting money for cancer research and other cures.`\
 https://nytimes.com/2025/08/05/us/politics/trump-gao-nih-funding.html

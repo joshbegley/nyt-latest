@@ -1,3 +1,7 @@
+**In Brooklyn, a Former Tailor Shop Is a Perfect Fit**\
+`Drawn back to New York after years in Europe, Donelle Kosch gravitated toward Boerum Hill, transforming 450 square feet into a place she could live and entertain guests.`\
+https://nytimes.com/2025/08/05/realestate/tailor-shop-tiny-house-brooklyn.html
+
 **Trump Administration Illegally Withheld N.I.H. Funding, Watchdog Finds**\
 `Lawmakers from both parties have criticized the White House for halting money for cancer research and other cures.`\
 https://nytimes.com/2025/08/05/us/politics/trump-gao-nih-funding.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/05/arts/music/amplifier-newsletter-early-new-york-ra
 **Scoop City: Six strategies to find football breakouts in 2025, 2026 and beyond**\
 `Six timeless principles to help you find league-winning picks this season. And next season. The season after that, too.`\
 https://nytimes.com/athletic/6536810/2025/08/05/fantasy-football-sleepers-breakouts-2025-targets-jake-ciely-scoop-city-nfl/
-
-**Brighton appoint new set-piece coach to Hurzeler's staff**\
-`The former right-back will be responsible for defensive and attacking set plays in Fabian Hurzeler's coaching staff.`\
-https://nytimes.com/athletic/6536977/2025/08/05/brighton-set-piece-coach/
 
