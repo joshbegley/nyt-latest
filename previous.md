@@ -1,3 +1,7 @@
+**Broncos DC Vance Joseph: Unit must phase out 'awkward' plays to become dominant**\
+`Broncos offensive coordinator said new tight end Evan Engram has "met or exceeded" all of team's expectations during first camp in Denver.`\
+https://nytimes.com/athletic/6537143/2025/08/05/broncos-vance-joseph-training-camp/
+
 **Humanities Endowment Funds Trump’s Priorities After Ending Old Grants**\
 `The $34.8 million allocated by the National Endowment for the Humanities leans toward presidents, statesmen and the Declaration of Independence’s 250th anniversary.`\
 https://nytimes.com/2025/08/05/arts/national-endowment-for-the-humanities-trump-grants.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/05/opinion/joan-arc-miracles-god.html
 **Grand Canyon Wildfire Spreads to More Than 126,000 Acres**\
 `The Dragon Bravo fire has been burning for more than a month, fueled by record-low humidity that has hampered containment efforts.`\
 https://nytimes.com/2025/08/05/weather/dragon-bravo-wildfire-grand-canyon.html
-
-**ICE Offers, Then Quickly Withdraws, Cash Bonuses for Swiftly Deporting Immigrants**\
-`The short-lived effort underscored the mounting pressure on ICE to meet President Trump’s aggressive deportation targets.`\
-https://nytimes.com/2025/08/05/us/politics/ice-bonuses-immigrants-deportations.html
 

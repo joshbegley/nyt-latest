@@ -1,3 +1,7 @@
+**Broncos DC Vance Joseph: Unit must phase out 'awkward' plays to become dominant**\
+`Broncos offensive coordinator said new tight end Evan Engram has "met or exceeded" all of team's expectations during first camp in Denver.`\
+https://nytimes.com/athletic/6537143/2025/08/05/broncos-vance-joseph-training-camp/
+
 **Humanities Endowment Funds Trump’s Priorities After Ending Old Grants**\
 `The $34.8 million allocated by the National Endowment for the Humanities leans toward presidents, statesmen and the Declaration of Independence’s 250th anniversary.`\
 https://nytimes.com/2025/08/05/arts/national-endowment-for-the-humanities-trump-grants.html
