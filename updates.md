@@ -1,3 +1,11 @@
+**Clay, a Sales Tool for the A.I. Era, Raises $100 Million**\
+`Investors valued the company, which describes its core user as a kind of marketing engineer, at $3.1 billion.`\
+https://nytimes.com/2025/08/05/business/dealbook/clay-ai-marketing-fundraise.html
+
+**Man Utd supporters' group to protest against Sir Jim Ratcliffe ahead of season opener**\
+`The protest will be the first against Sir Jim Ratcliffe after his implementation of redundancies and ticket price rises.`\
+https://nytimes.com/athletic/6536278/2025/08/05/manchester-united-protest-ratcliffe-season-opener-arsenal/
+
 **Manchester United submit offer for RB Leipzig striker Benjamin Sesko**\
 `Leipzig are yet to respond to the Premier League club's proposal.`\
 https://nytimes.com/athletic/6525259/2025/08/05/benjamin-sesko-manchester-united-rb-leipzig-transfer-update/
