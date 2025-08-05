@@ -1,3 +1,8 @@
+**Venezuela is going to Little League World Series. It took a senator and the secretary of state**\
+`Willson Contreras, one of baseball’s most prominent Venezuelan players, lamented being "treated like we are criminals here"
+`\
+https://nytimes.com/athletic/6536059/2025/08/05/venezuela-little-league-world-series-travel-ban/
+
 **A Thai Diner Chef Honors Her Mother at Mommy Pai’s**\
 `Kebabishq serves up Indian kebabs, Mykonian Garden brings Mykonos to Sutton Place and more restaurant news.`\
 https://nytimes.com/2025/08/05/dining/nyc-restaurant-news.html

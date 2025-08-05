@@ -1,3 +1,7 @@
+**Why the G.O.P. Isn’t Doing Many Town Halls**\
+`The booing started in seconds at Representative Mike Flood’s town hall in Lincoln, Neb.`\
+https://nytimes.com/video/us/politics/100000010324588/why-the-gop-isnt-doing-many-town-halls.html
+
 **Villa advancing in talks to sign Nice forward Guessand**\
 `Villa are working on a deal to sign Guessand but face competition for his signature and while it is not close, discussions are ongoing.`\
 https://nytimes.com/athletic/6536795/2025/08/05/aston-villa-transfers-guessand-nice/
@@ -34,8 +38,4 @@ https://nytimes.com/interactive/2025/08/05/nyregion/new-jersey-quake-tracker.htm
 **House Oversight Committee Issues Subpoenas for Epstein Files**\
 `The committee’s Republican chairman requested that the documents from the Justice Department and former government officials be delivered by Aug. 19.`\
 https://nytimes.com/2025/08/05/us/politics/epstein-files-subpoenas.html
-
-**The Raging Gifford Fire, Like Many, Began Near a Highway**\
-`The wildfire in the Los Padres National Forest grew to 82,000 acres on Tuesday. Officials are still trying to determine the cause.`\
-https://nytimes.com/2025/08/05/us/california-gifford-fire-evacuation-orders.html
 
