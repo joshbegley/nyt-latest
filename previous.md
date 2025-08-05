@@ -1,3 +1,11 @@
+**The Bounce: What Luka's $165 means**\
+`The Bounce is The Athletic's free NBA newsletter.`\
+https://nytimes.com/athletic/6536514/2025/08/05/luka-doncic-extension-lakers-the-bounce/
+
+**Trump Airs Personal Financial Grievances Ahead of ‘Debanking’ Crackdown**\
+`JPMorgan and Bank of America rejected Trump Organization deposits, the president said, fueling his displeasure with Wall Street.`\
+https://nytimes.com/2025/08/05/business/trump-debanking-jpmorgan.html
+
 **Far-Right Activist in U.K. Is Arrested Over Assault at Train Station**\
 `Tommy Robinson was taken into custody for questioning on Monday after an assault that seriously injured a man last month at St. Pancras train station.`\
 https://nytimes.com/2025/08/05/world/europe/tommy-robinson-arrested-uk.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/08/05/world/asia/flash-floods-india-himalayas-uttarakha
 **U.S. Imports Slid in June on Higher Tariffs**\
 `Imports from other countries fell around 4 percent from the previous month as President Trump’s steep tariffs discouraged businesses from ordering goods.`\
 https://nytimes.com/2025/08/05/business/economy/imports-data-trump-tariffs.html
-
-**The Windup: Schwarber can’t stop launching dingers**\
-`Welcome to The Windup, The Athletic's MLB newsletter.`\
-https://nytimes.com/athletic/6536021/2025/08/05/kyle-schwarber-mlb-playoffs-the-windup/
-
-**What to Know About India’s Trade in Oil With Russia**\
-`President Trump accused India of aiding Moscow’s war on Ukraine by purchasing Russian energy, derailing trade talks between India and the United States.`\
-https://nytimes.com/2025/08/05/business/india-russia-oil.html
 

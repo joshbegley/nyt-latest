@@ -1,3 +1,11 @@
+**The Bounce: What Luka's $165 means**\
+`The Bounce is The Athletic's free NBA newsletter.`\
+https://nytimes.com/athletic/6536514/2025/08/05/luka-doncic-extension-lakers-the-bounce/
+
+**Trump Airs Personal Financial Grievances Ahead of ‘Debanking’ Crackdown**\
+`JPMorgan and Bank of America rejected Trump Organization deposits, the president said, fueling his displeasure with Wall Street.`\
+https://nytimes.com/2025/08/05/business/trump-debanking-jpmorgan.html
+
 **Far-Right Activist in U.K. Is Arrested Over Assault at Train Station**\
 `Tommy Robinson was taken into custody for questioning on Monday after an assault that seriously injured a man last month at St. Pancras train station.`\
 https://nytimes.com/2025/08/05/world/europe/tommy-robinson-arrested-uk.html
