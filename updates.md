@@ -1,3 +1,7 @@
+**Gaza’s Hunger Crisis: ‘If We Don’t Fight, We Don’t Get Anything.’**\
+`After facing international criticism for its hand in Gaza’s food shortage, Israel has allowed nations to parachute in aid. However, international aid officials say it’s still not enough.`\
+https://nytimes.com/video/world/middleeast/100000010324273/gaza-hunger-crisis-air-drop.html
+
 **U.S. Says It Will Not Seek Death Penalty Against 3 Drug Cartel Bosses**\
 `Foreign defendants are rarely sent to the United States if they might face death, and America’s use of capital punishment has been a significant point of friction with Mexico’s government.`\
 https://nytimes.com/2025/08/05/nyregion/cartel-bosses-death-penalty.html
