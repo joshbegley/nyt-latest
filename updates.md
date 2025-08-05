@@ -1,3 +1,7 @@
+**Man City's Vitor Reis set to join CFG-owned Girona on loan**\
+`The Brazilian defender has made four appearances for Pep Guardiola's side since his arrival from Palmeiras in the January transfer window.`\
+https://nytimes.com/athletic/6527983/2025/08/05/manchester-city-transfers-vitor-reis-girona/
+
 **Villa reach €35m agreement to sign Nice forward Guessand**\
 `Villa are working on a deal to sign Guessand but face competition for his signature and while it is not close, discussions are ongoing.`\
 https://nytimes.com/athletic/6536795/2025/08/05/aston-villa-transfers-guessand-nice/
