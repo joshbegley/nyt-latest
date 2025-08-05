@@ -1,3 +1,7 @@
+**Russia’s Rulers Are in for a Nasty Shock**\
+`Russia’s president has lost faith in the very idea of reaching agreements with the United States.`\
+https://nytimes.com/2025/08/05/opinion/putin-trump-deadline-ukraine.html
+
 **Stephen Colbert Chides Trump for Firing the Messenger (Again)**\
 `“No, you fool!” Colbert said after the president ousted a Labor Department official over a jobs report. “Now there’s one less job!”`\
 https://nytimes.com/2025/08/05/arts/television/stephen-colbert-trump-job-report.html

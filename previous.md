@@ -30,7 +30,7 @@ https://nytimes.com/2025/08/05/learning/word-of-the-day-estuary.html
 ``\
 https://nytimes.com/issue/todayspaper/2025/08/05/todays-new-york-times
 
-**Trump Has Soured on Putin. Putin Couldn’t Care Less.**\
+**Russia’s Rulers Are in for a Nasty Shock**\
 `Russia’s president has lost faith in the very idea of reaching agreements with the United States.`\
 https://nytimes.com/2025/08/05/opinion/putin-trump-deadline-ukraine.html
 
