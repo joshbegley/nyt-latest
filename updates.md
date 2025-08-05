@@ -1,3 +1,15 @@
+**Fox gets into direct-to-consumer streaming game, featuring NFL, MLB, college football**\
+`"Fox One" subscriptions will cost $19.99 per month and include all programming running on Fox’s broadcast network, including sports.`\
+https://nytimes.com/athletic/6536643/2025/08/05/fox-sports-streaming-service-nfl-mlb/
+
+**E.P.A. Moves to Cancel $7 Billion in Grants for Solar Energy**\
+`If finalized, the move would escalate the Trump administration’s efforts to claw back billions of dollars in climate grants awarded under President Biden.`\
+https://nytimes.com/2025/08/05/climate/epa-cancels-solar-energy-grants.html
+
+**UK Athletics upholds coach ban for sexual abuse of an athlete**\
+`The former coach was found to have approached the "most serious form of abuse a senior coach could subject a young athlete to".`\
+https://nytimes.com/athletic/6536238/2025/08/05/uk-athletics-sexual-abuse-coach-ban-safeguarding/
+
 **Porto's UCL-winning captain Costa dies at 53**\
 `The former central defender, who was working as Porto's football director, passed away on Tuesday.`\
 https://nytimes.com/athletic/6536604/2025/08/05/jorge-costa-dead-porto-champions-league/
