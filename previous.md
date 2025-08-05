@@ -1,3 +1,23 @@
+**Trump Rules Out Bessent as Replacement for Powell at Fed**\
+`With Treasury Secretary Scott Bessent not in the running, President Trump said that he has narrowed his list of replacements to four people.`\
+https://nytimes.com/2025/08/05/us/politics/trump-bessent-fed-chair-powell.html
+
+**They Are 16 and 17 Years Old, and They Want to Vote. Like, Now.**\
+`After Britain announced plans to lower the voting age, some American teenagers wondered: When will it be their turn?`\
+https://nytimes.com/2025/08/05/style/lower-voting-age-britain-us.html
+
+**The cross-border passion fueling San Diego’s soccer scene**\
+`San Diego's diverse population and proximity to Mexico allows for a rich soccer culture.`\
+https://nytimes.com/athletic/6535294/2025/08/05/san-diego-finding-futbol-modelo-passion/
+
+**Voters Boo Nebraska Republican Congressman at Town Hall**\
+`An angry crowd of more than 700 people in Nebraska heckled and booed Representative Mike Flood over the Republican congressman’s support of President Trump’s sweeping domestic policy bill.`\
+https://nytimes.com/video/us/politics/100000010324416/nebraska-townhall-mike-flood-trump.html
+
+**At the Tesla Diner, the Future Looks Mid**\
+`The new Los Angeles restaurant from the electric car giant is a smash burger and content machine, drawing Elon Musk’s fans and protesters.`\
+https://nytimes.com/2025/08/05/dining/tesla-diner-elon-musk.html
+
 **Topps 'stands by' authenticity of Lionel Messi autographs rejected by PSA**\
 `Fanatics Collectibles CEO Mike Mahan spoke about the Messi autographs situation for the first time at The National`\
 https://nytimes.com/athletic/6535831/2025/08/05/lionel-messi-topps-autographs-psa/
@@ -17,24 +37,4 @@ https://nytimes.com/2025/08/05/style/calico-critters-lawsuit-sylvanian-drama.htm
 **Fox gets into direct-to-consumer streaming game, featuring NFL, MLB, college football**\
 `"Fox One" subscriptions will cost $19.99 per month and include all programming running on Fox’s broadcast network, including sports.`\
 https://nytimes.com/athletic/6536643/2025/08/05/fox-sports-streaming-service-nfl-mlb/
-
-**E.P.A. Moves to Cancel $7 Billion in Grants for Solar Energy**\
-`If finalized, the move would escalate the Trump administration’s efforts to claw back billions of dollars in climate grants awarded under President Biden.`\
-https://nytimes.com/2025/08/05/climate/epa-cancels-solar-energy-grants.html
-
-**UK Athletics upholds coach ban for sexual abuse of an athlete**\
-`The former coach was found to have approached the "most serious form of abuse a senior coach could subject a young athlete to".`\
-https://nytimes.com/athletic/6536238/2025/08/05/uk-athletics-sexual-abuse-coach-ban-safeguarding/
-
-**Porto's UCL-winning captain Costa dies at 53**\
-`The former central defender, who was working as Porto's football director, passed away on Tuesday.`\
-https://nytimes.com/athletic/6536604/2025/08/05/jorge-costa-dead-porto-champions-league/
-
-**Evenepoel signs for Red Bull–BORA–hansgrohe from 2026**\
-`The 25-year-old is the World and Olympic time-trial champion but dropped out of the 2025 Tour de France on Stage 14.`\
-https://nytimes.com/athletic/6536530/2025/08/05/remco-evenepoel-soudal-quickstep-red-bull-transfer/
-
-**A G.O.P. Congressman Faced His Voters. It Wasn’t Pretty.**\
-`Most Republican lawmakers are avoiding town hall meetings, reluctant to confront energized Democrats and answer tough questions. When Representative Mike Flood of Nebraska gave it a try, the booing started in seconds.`\
-https://nytimes.com/2025/08/05/us/politics/mike-flood-town-hall.html
 
