@@ -1,3 +1,7 @@
+**Chemical Makers to Pay N.J. $875 Million to Settle ‘Forever Chemicals’ Claims**\
+`New Jersey officials called it the largest environmental settlement ever achieved by a single state.`\
+https://nytimes.com/2025/08/04/climate/new-jersey-pfas-settlement.html
+
 **Tensions Flare Between Two Federal Agencies Charged With Aviation Safety**\
 `A marathon of recent public hearings highlighted a rift over the investigation into the fatal midair crash in January between an Army helicopter and a passenger jet.`\
 https://nytimes.com/2025/08/04/us/politics/faa-ntsb-dc-crash.html
