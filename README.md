@@ -1,3 +1,11 @@
+**Clay, a Sales Tool for the A.I. Era, Raises $100 Million**\
+`Investors valued the company, which describes its core user as a kind of marketing engineer, at $3.1 billion.`\
+https://nytimes.com/2025/08/05/business/dealbook/clay-ai-marketing-fundraise.html
+
+**Man Utd supporters' group to protest against Sir Jim Ratcliffe ahead of season opener**\
+`The protest will be the first against Sir Jim Ratcliffe after his implementation of redundancies and ticket price rises.`\
+https://nytimes.com/athletic/6536278/2025/08/05/manchester-united-protest-ratcliffe-season-opener-arsenal/
+
 **Cruel universe: Giants blow another victory for Justin Verlander**\
 `With minimal exception, on Verlander's day, the Giants have been neither super nor natural all season.`\
 https://nytimes.com/athletic/6535991/2025/08/05/sf-giants-justin-verlander-seeking-wins/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6536229/2025/08/05/fabio-silva-wolves-dortmund-tran
 **Bills training camp rookie report: T.J. Sanders showing flashes of being an impact player**\
 `So far, T.J. Sanders has shown the highest potential to have an impact this season.`\
 https://nytimes.com/athletic/6535214/2025/08/05/bills-training-camp-rookie-tj-sanders/
-
-**A Tussle in Texas**\
-`We take a look at the political fight over a redrawn map.`\
-https://nytimes.com/2025/08/05/briefing/texas-house-democrats.html
-
-**Cubs' newest acquisition, Michael Soroka, exits with shoulder injury, will go on IL**\
-`The 28-year-old has a long injury history, with multiple Achilles tears that waylaid his career after a breakout 2019 season.`\
-https://nytimes.com/athletic/6535957/2025/08/05/chicago-cubs-michael-soroka-injury/
 
