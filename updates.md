@@ -1,3 +1,7 @@
+**Trump Sends His Envoy to Russia With Sanctions Deadline Looming**\
+`The envoy, Steve Witkoff, is making his fifth visit this year. He has managed to secure some prisoner exchanges but made no clear progress so far on ending the Ukraine war.`\
+https://nytimes.com/2025/08/06/world/europe/russia-trump-witkoff-putin-ukraine.html
+
 **Sunderland set to sign Chelsea's Guiu on season-long loan deal**\
 `Guiu made 16 appearances for the west London side last season, with the majority of them coming in the Conference League, scoring six goals.`\
 https://nytimes.com/athletic/6528636/2025/08/06/marc-guiu-sunderland-loan-transfer-chelsea/
