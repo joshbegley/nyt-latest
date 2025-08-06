@@ -1,8 +1,16 @@
+**Guardians' Gavin Williams falls just short of no-hitting the Mets, as New York's malaise continues**\
+`The Mets didn't have a hit for 17 straight innings before Juan Soto hit a solo home run off Williams with one out in the ninth.`\
+https://nytimes.com/athletic/6538928/2025/08/06/gavin-williams-guardians-mets-near-no-hitter/
+
+**Scoop City: Cowboys' costly tactics, Chargers' reunion**\
+`Why Micah Parsons might miss Week 1, Keenan Allen returns to the Chargers and NFL RedZone is safe, for now. Plus, Mike Sando joins us.`\
+https://nytimes.com/athletic/6538910/2025/08/06/cowboys-micah-parsons-keenan-allen-chargers-nfl-scoop-city/
+
 **German club pull out of transfer of Israel international over Gaza social media posts**\
 `Weissman had already travelled to Dusseldorf and underwent medical tests ahead of completing his move, but the club cancelled the deal.`\
 https://nytimes.com/athletic/6538025/2025/08/06/german-club-transfer-israel-gaza/
 
-**Trump Weighs Getting Involved in New York City Mayor Race**\
+**Trump Weighs Getting Involved in New York City Mayor’s Race**\
 `The possibility that the president will seek to intercede could inject an element of unpredictability into an already fractious contest.`\
 https://nytimes.com/2025/08/06/nyregion/trump-nyc-mayor-cuomo-adams-mamdani.html
 
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6538819/2025/08/06/liverpool-diogo-jota-trading-car
 **Oregon Man Accused of Killing 3 Women Is Now Charged With Murdering a Fourth**\
 `The killings spread fear in the area after the bodies were found over several months in early 2023.`\
 https://nytimes.com/2025/08/06/us/jesse-calhoun-indicted-murder-oregon.html
-
-**What Trump’s Immigration Crackdown Means for the 2028 Olympics**\
-`The 2028 Summer Olympic Games in Los Angeles will draw thousands of foreign visitors to the United States.`\
-https://nytimes.com/2025/08/06/us/politics/trump-visas-olympics-2028.html
-
-**Chelsea men's and women's teams celebrate trophy wins at Stamford Bridge**\
-`The club celebrated the five trophies won by their men’s and women’s teams last season.`\
-https://nytimes.com/athletic/6538799/2025/08/06/chelsea-stamford-bridge-trophy-celebration/
 
