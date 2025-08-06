@@ -1,3 +1,15 @@
+**Truce Quiets Syrian City Torn by Sectarian Clashes**\
+`The fighting has stopped in the southern city of Sweida, three weeks after a deadly eruption of violence. But the area remains tense as clashes continue beyond the city.`\
+https://nytimes.com/2025/08/06/world/middleeast/syria-truce-sweida.html
+
+**Inside Evan Neal's transition to guard: 'Nothing's ever perfect ... but I'm on the way'**\
+`Neal failed to develop into the tackle the Giants believed he could be. Now, they're hoping a move to guard will help unlock his potential.`\
+https://nytimes.com/athletic/6535649/2025/08/06/ny-giants-evan-neal-guard/
+
+**The New York Times International Edition in Print for Thursday, Aug. 7, 2025**\
+``\
+https://nytimes.com/issue/todaysinyt/2025/08/06/todays-new-york-times-international-edition
+
 **Statue of French General Accused of Torture Divides His Hometown**\
 `An effort to have a statue of Marcel Bigeard removed has reignited the debate over how the colonial past should be remembered.`\
 https://nytimes.com/2025/08/06/world/europe/france-statue-toul.html
