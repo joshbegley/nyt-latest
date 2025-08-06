@@ -1,3 +1,7 @@
+**What Trump’s Immigration Crackdown Means for the 2028 Olympics**\
+`The 2028 Summer Olympic Games in Los Angeles will draw thousands of foreign visitors to the United States.`\
+https://nytimes.com/2025/08/06/us/politics/trump-visas-olympics-2028.html
+
 **Chelsea men's and women's teams celebrate trophy wins at Stamford Bridge**\
 `The club celebrated the five trophies won by their men’s and women’s teams last season.`\
 https://nytimes.com/athletic/6538799/2025/08/06/chelsea-stamford-bridge-trophy-celebration/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/06/climate/california-earlier-fire-season.html
 **NFL employee injured in shooting 'doing incredibly well,' per commissioner Roger Goodell**\
 `"It's been a tough week, not just for the NFL, but everybody at our Park Avenue offices," Goodell said in a "SportsCenter" interview.`\
 https://nytimes.com/athletic/6538617/2025/08/06/nfl-employee-injured-in-shooting-doing-incredibly-well-per-commissioner-roger-goodell/
-
-**Ghana Helicopter Crash Kills 8, Including Defense and Environment Ministers**\
-`The helicopter had taken off from Accra, the capital, en route to a mining conference when it went “off the radar,” the armed forces said.`\
-https://nytimes.com/2025/08/06/world/africa/ghana-helicopter-crash-defense-officials.html
 
