@@ -1,3 +1,15 @@
+**MLB's first female umpire set to debut; Jen Pawol to be promoted for Saturday's Marlins-Braves games**\
+`Pawol, a veteran minor league umpire, will be the first female to umpire a regular season MLB game when she debuts on Saturday.`\
+https://nytimes.com/athletic/6538637/2025/08/06/mlb-first-female-umpire-jen-pawol/
+
+**Travis Kelce not tipping retirement decision in Chiefs training camp**\
+`Kelce is in noticeably better shape this summer as he approaches what could be his final NFL season.`\
+https://nytimes.com/athletic/6538506/2025/08/06/travis-kelce-chiefs-camp-retirement-decision/
+
+**What’s in Our Queue? ‘Love on the Spectrum’ and More**\
+`Text by Tess Felder`\
+https://nytimes.com/card/2025/08/06/arts/editors-recommendations-loveonthespectrum
+
 **Man Utd contact Brighton to explore conditions of potential Baleba deal**\
 `Baleba is emerging as one of the most highly-rated players in his position and Brighton do not intend to sanction a sale this summer.`\
 https://nytimes.com/athletic/6524982/2025/08/06/carlos-baleba-manchester-united-contact/
