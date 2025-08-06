@@ -1,3 +1,15 @@
+**Georgetown Scholar Reaches Deal to Return to Work While Fighting Deportation**\
+`In a settlement, the government agreed to reinstate Badar Khan Suri’s legal status amid litigation over the Trump administration’s efforts to deport him.`\
+https://nytimes.com/2025/08/05/us/politics/georgetown-academic-immigration.html
+
+**Ex-Miami Heat employee charged for stealing hundreds of game-used items**\
+`Hundreds of items intended for a Miami Heat museum were found in the former security officer's home`\
+https://nytimes.com/athletic/6537573/2025/08/05/miami-heat-memorabilia-theft/
+
+**Trump Threatens Federal Takeover of D.C. After Member of DOGE Assaulted**\
+`President Trump shared a photograph that appeared to show a 19-year-old software engineer shirtless and bloodied, after an attempted carjacking.`\
+https://nytimes.com/2025/08/05/us/politics/trump-doge-member-assaulted.html
+
 **Trump Threatens Federal Takeover of D.C. After Member of DOGE Assaulted**\
 `President Trump shared a photograph of a young software engineer known as “Big Balls,” shirtless and bloodied, after an attempted carjacking.`\
 https://nytimes.com/2025/08/05/us/politics/trump-doge-member-assaulted.html

@@ -2,7 +2,7 @@
 `In a settlement, the government agreed to reinstate Badar Khan Suri’s legal status amid litigation over the Trump administration’s efforts to deport him.`\
 https://nytimes.com/2025/08/05/us/politics/georgetown-academic-immigration.html
 
-**Ex-Miami Heat employee charged for stealing hundreds of game-used items**\
+**Ex-Miami Heat employee charged with stealing hundreds of game-used items**\
 `Hundreds of items intended for a Miami Heat museum were found in the former security officer's home`\
 https://nytimes.com/athletic/6537573/2025/08/05/miami-heat-memorabilia-theft/
 
