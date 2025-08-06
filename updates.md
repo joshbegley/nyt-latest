@@ -1,3 +1,7 @@
+**Another Pakistani Woman Is Killed for ‘Honor,’ but She’s Not Forgotten**\
+`Women in Pakistan die every day for supposedly dishonoring their families, and arrests are rare. But Bano Bibi’s defiant last words were caught on video.`\
+https://nytimes.com/2025/08/06/world/asia/pakistan-honor-killing-gender-violence.html
+
 **The New York Times in Print for Wednesday, Aug. 6, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/08/06/todays-new-york-times
