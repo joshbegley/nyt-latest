@@ -1,40 +1,40 @@
-**Ben Shelton reaches first career Masters 1000 semifinal, will face Taylor Fritz**\
-`The 22-year-old American beat Australia's Alex de Minaur on Tuesday to set up a showdown with his friend and compatriot.`\
-https://nytimes.com/athletic/6537680/2025/08/05/ben-shelton-taylor-fritz-canadian-open-semifinals/
+**West Ham fans: How are you feeling about the 2025-26 season?**\
+`Let us know how you are feeling about the season ahead and we'll report back with our Premier League hope-o-meter`\
+https://nytimes.com/athletic/6534895/2025/08/06/west-ham-fans-2025-26-season-hope/
 
-**Roki Sasaki is getting closer to a return. What will the Dodgers get out of him?**\
-`Sasaki is expected to face hitters for 3 simulated innings on Friday, then head out on a minor-league rehab assignment.`\
-https://nytimes.com/athletic/6537617/2025/08/05/dodgers-roki-sasaki-injury-return/
+**Nottingham Forest fans: How are you feeling about the 2025-26 season?**\
+`Let us know how you are feeling about the season ahead and we'll report back with our Premier League hope-o-meter`\
+https://nytimes.com/athletic/6534938/2025/08/06/nottingham-forest-fans-2025-26-season-hope/
 
-**Steelers rookie QB Will Howard suffers broken finger: Sources**\
-`The sixth-round pick is expected to miss at least the Steelers' preseason opener on Saturday.`\
-https://nytimes.com/athletic/6537627/2025/08/05/will-howard-injury-broken-finger/
+**Arsenal fans: How are you feeling about the 2025-26 season?**\
+`Let us know how you are feeling about the season ahead and we'll report back with our Premier League hope-o-meter`\
+https://nytimes.com/athletic/6534832/2025/08/06/arsenal-fans-2025-26-season-hope/
 
-**Biting Piece**\
-`Hanh Huynh skims the surface.`\
-https://nytimes.com/2025/08/05/crosswords/daily-puzzle-2025-08-06.html
+**Spurs fans: How are you feeling about the 2025-26 season?**\
+`Let us know how you are feeling about the season ahead and we'll report back with our Premier League hope-o-meter`\
+https://nytimes.com/athletic/6534894/2025/08/06/spurs-fans-2025-26-season-hope/
 
-**Georgetown Scholar Reaches Deal to Return to Work While Fighting Deportation**\
-`In a settlement, the government agreed to reinstate Badar Khan Suri’s legal status amid litigation over the Trump administration’s efforts to deport him.`\
-https://nytimes.com/2025/08/05/us/politics/georgetown-academic-immigration.html
+**Manchester United fans: How are you feeling about the 2025-26 season?**\
+`Let us know how you are feeling about the season ahead and we'll report back with our Premier League hope-o-meter`\
+https://nytimes.com/athletic/6534937/2025/08/06/manchester-united-fans-2025-26-season-hope/
 
-**Ex-Miami Heat employee charged with stealing hundreds of game-used items**\
-`Hundreds of items intended for a Miami Heat museum were found in the former security officer's home`\
-https://nytimes.com/athletic/6537573/2025/08/05/miami-heat-memorabilia-theft/
+**Chelsea fans: How are you feeling about the 2025-26 season?**\
+`Let us know how you are feeling about the season ahead and we'll report back with our Premier League hope-o-meter`\
+https://nytimes.com/athletic/6535005/2025/08/06/chelsea-fans-2025-26-season-hope/
 
-**Trump Threatens Federal Takeover of D.C. After Member of DOGE Assaulted**\
-`President Trump shared a photograph that appeared to show a 19-year-old software engineer shirtless and bloodied, after an attempted carjacking.`\
-https://nytimes.com/2025/08/05/us/politics/trump-doge-member-assaulted.html
+**Fulham fans: How are you feeling about the 2025-26 season?**\
+`Let us know how you are feeling about the season ahead and we'll report back with our Premier League hope-o-meter`\
+https://nytimes.com/athletic/6534986/2025/08/06/fulham-fans-2025-26-season-hope/
 
-**Blockbuster trade: ESPN swaps 10% equity to NFL for NFL Network and other media assets**\
-`NFL Network is expected to become a core programming component of ESPN's forthcoming direct-to-consumer service.`\
-https://nytimes.com/athletic/6537577/2025/08/05/espn-nfl-media-network-agreement-equity/
+**Sunderland fans: How are you feeling about the 2025-26 season?**\
+`Let us know how you are feeling about the season ahead and we'll report back with our Premier League hope-o-meter`\
+https://nytimes.com/athletic/6534892/2025/08/06/sunderland-fans-2025-26-season-hope/
 
-**Colts' breakout camp star AD Mitchell torches Ravens in joint practice**\
-`Mitchell talked a lot of trash on Tuesday ... and backed it up with his play. Meanwhile, QB Anthony Richardson continues to impress. `\
-https://nytimes.com/athletic/6537554/2025/08/05/colts-ad-mitchell-ravens-anthony-richardson/
+**Burnley fans: How are you feeling about the 2025-26 season?**\
+`Let us know how you are feeling about the season ahead and we'll report back with our Premier League hope-o-meter`\
+https://nytimes.com/athletic/6534985/2025/08/06/burnley-fans-2025-26-season-hope/
 
-**Cuomo Calls for Gaza Aid and Says ‘Some People’ Blame Israel for Crisis**\
-`Former Gov. Andrew M. Cuomo appeared to criticize Israel over the humanitarian crisis in Gaza. Hours later, he distanced himself from his remarks.`\
-https://nytimes.com/2025/08/05/nyregion/cuomo-gaza-aid-israel.html
+**Newcastle United fans: How are you feeling about the 2025-26 season?**\
+`Let us know how you are feeling about the season ahead and we'll report back with our Premier League hope-o-meter`\
+https://nytimes.com/athletic/6534936/2025/08/06/newcastle-united-fans-2025-26-season-hope/
 
