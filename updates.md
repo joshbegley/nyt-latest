@@ -1,3 +1,11 @@
+**Clara Tauson dedicates win over Madison Keys to her late grandfather, reaches Montreal Open semifinal**\
+`Tauson's second WTA 1,000 semifinal of her career will be against Naomi Osaka, the former world No. 1.`\
+https://nytimes.com/athletic/6537865/2025/08/06/tennis-canadian-open-womens-semifinals-tauson-osaka/
+
+**Stephen Colbert Says Trump’s ‘Big Beautiful Bill’ Could Cost the G.O.P. Its Popularity**\
+`“When they learned that, Republicans immediately saw the light, sprang into action, promised to tax the rich and restore people’s health care,” he joked.`\
+https://nytimes.com/2025/08/06/arts/television/stephen-colbert-trump-gop-popularity.html
+
 **Trump Sends His Envoy to Russia With Sanctions Deadline Looming**\
 `The envoy, Steve Witkoff, is making his fifth visit this year. He has managed to secure some prisoner exchanges but made no clear progress so far on ending the Ukraine war.`\
 https://nytimes.com/2025/08/06/world/europe/russia-trump-witkoff-putin-ukraine.html
