@@ -1,3 +1,7 @@
+**Word of the Day: doldrums**\
+`This word has appeared in 111 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2025/08/06/learning/word-of-the-day-doldrums.html
+
 **Another Pakistani Woman Is Killed for ‘Honor,’ but She’s Not Forgotten**\
 `Women in Pakistan die every day for supposedly dishonoring their families, and arrests are rare. But Bano Bibi’s defiant last words were caught on video.`\
 https://nytimes.com/2025/08/06/world/asia/pakistan-honor-killing-gender-violence.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/06/briefing/netanyahu-gaza-israel-hiroshima-jeju-air
 **Inside Tottenham's pre-season tour: Torrential rain, minimal downtime and a replica trophy**\
 `New Spurs head coach Thomas Frank was slightly frustrated by the crammed eight-day schedule, but some good progress was made`\
 https://nytimes.com/athletic/6536193/2025/08/06/inside-tottenhams-pre-season-tour-a-torrential-downpour-minimal-downtime-and-a-replica-trophy/
-
-**Everton state of play: More signings needed, but will Moyes end up appeased?**\
-`The club must build on an encouraging end to U.S. pre-season tour by bolstering their squad ahead of the Premier League kicking off`\
-https://nytimes.com/athletic/6536303/2025/08/06/everton-moyes-squad-signings-dewsbury-hall/
 
