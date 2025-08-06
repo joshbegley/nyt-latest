@@ -1,3 +1,7 @@
+**Lawrence A. Bossidy, Who Led a Major Corporate Turnaround, Dies at 90**\
+`He took over the reins of the troubled Allied Signal in 1991 and within a few years made it one of America’s best-run and most profitable companies.`\
+https://nytimes.com/2025/08/06/business/lawrence-a-bossidy-dead.html
+
 **Trump Threatens 100% Tariff on Chips, With a Big Caveat**\
 `The tariff would not apply to businesses that made a commitment to build and invest in the United States.`\
 https://nytimes.com/2025/08/06/technology/trump-chip-tariffs-semiconductors.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/06/climate/charleston-climate-lawsuit-oil-companies.
 **Son Heung-min says LAFC "changed my heart" after MLS unveiling**\
 `The South Korean superstar was unveiled in Los Angeles on Wednesday.`\
 https://nytimes.com/athletic/6539260/2025/08/06/son-heung-min-lafc-press-conference-south-korea-mls/
-
-**Republicans Raise the Pressure on Texas Democrats to End Their Walkout**\
-`The political and legal threats against Democrats who left Texas to protest a redrawn political map have gone further and faster than many anticipated.`\
-https://nytimes.com/2025/08/06/us/politics/texas-redistricting.html
 
