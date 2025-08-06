@@ -1,3 +1,7 @@
+**Senator Marsha Blackburn Will Run for Governor of Tennessee**\
+`A conservative Trump ally in the Senate, Ms. Blackburn will now try to become the first woman to serve as governor.`\
+https://nytimes.com/2025/08/06/us/politics/marsha-blackburn-governor-tennessee.html
+
 **Phillies prospect Andrew Painter is learning from Triple-A 'rollercoaster' post-Tommy John**\
 `Painter is working hard to figure out what’s next, what he can do to become better. Each start is an opportunity.`\
 https://nytimes.com/athletic/6537815/2025/08/06/phillies-andrew-painter-tommy-john-recovery/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6537448/2025/08/06/bengals-rookie-report-shemar-ste
 **Penguins mailbag: How much longer will Sidney Crosby play in the NHL?**\
 `Welcome to the first installment of a special two-part Crosby-themed Penguins mailbag.`\
 https://nytimes.com/athletic/6528077/2025/08/06/sidney-crosby-retirement-penguins-mailbag-nhl/
-
-**It's 'next blue-chip up' for Ohio State at receiver. Now it's Brandon Inniss' turn**\
-`Nobody hoards star wide receivers like Ohio State. Inniss is next in line alongside Jeremiah Smith and Carnell Tate after waiting his turn.`\
-https://nytimes.com/athletic/6536957/2025/08/06/brandon-inniss-ohio-state-wide-receivers/
 
