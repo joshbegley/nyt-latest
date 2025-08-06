@@ -6,8 +6,8 @@ https://nytimes.com/athletic/6538992/2025/08/06/panthers-browns-practice-bryce-y
 `LAFC's last big swing didn't go so well. So how can the MLS Cup hopeful turn its new star signing into a smash success?`\
 https://nytimes.com/athletic/6532210/2025/08/06/son-heung-min-lafc-tactics-fit-cherundolo-bouanga/
 
-**New Zealand Air Force Mounts Dangerous Rescue Mission in Antarctica**\
-`Three staff members from the National Science Foundation were evacuated from a U.S. research base after a medical emergency. The mission is one of the most challenging the air force can undertake.`\
+**New Zealand Air Force Mounts Dangerous Rescue in Antarctica**\
+`Three staff members from the National Science Foundation were evacuated from a U.S. research base after a medical emergency. The mission is one of the most challenging for the air force.`\
 https://nytimes.com/2025/08/06/world/new-zealand-us-antarctic-base-rescue.html
 
 **Commanders-Patriots observations: Skirmishes, Bon Jovi and Washington's glaring problem**\
