@@ -1,3 +1,15 @@
+**Teenager Is Stabbed to Death Near Bronx Playground**\
+`The boy, Angel Mendoza, 14, died of his injuries on Tuesday after being attacked by a group of teenagers, the police and witnesses said. A 17-year-old was wounded.`\
+https://nytimes.com/2025/08/06/nyregion/bronx-teen-stabbing-death.html
+
+**Rains and Broken Roads Complicate Flood Rescue in Indian Himalayas**\
+`About 190 people have been rescued so far, officials said, but they warned that the death toll could rise.`\
+https://nytimes.com/2025/08/06/world/asia/india-floods-disaster-recovery-complications.html
+
+**Flash Flooding Devastates Himalayan Village in India**\
+`At least four people were killed and dozens more were missing after flash flooding in the Indian Himalayas.`\
+https://nytimes.com/video/world/asia/100000010326376/india-flash-flood.html
+
 **President Trump floats military use at L.A. Olympics, says there will be gender testing**\
 `Trump will oversee a task force aimed at securing the 2028 Olympics, and also used the occasion to commend the USOPC for its recent shift.`\
 https://nytimes.com/athletic/6538232/2025/08/06/president-trump-los-angeles-olympics-transgender-policy-military/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6538506/2025/08/06/travis-kelce-chiefs-camp-retirem
 **What’s in Our Queue? ‘Love on the Spectrum’ and More**\
 `Text by Tess Felder`\
 https://nytimes.com/card/2025/08/06/arts/editors-recommendations-loveonthespectrum
-
-**Man Utd contact Brighton to explore conditions of potential Baleba deal**\
-`Baleba is emerging as one of the most highly-rated players in his position and Brighton do not intend to sanction a sale this summer.`\
-https://nytimes.com/athletic/6524982/2025/08/06/carlos-baleba-manchester-united-contact/
-
-**Whitecaps confirm Muller signing**\
-`The 35-year-old spent 17 years at Bayern Munich, winning 13 Bundesliga titles and the Champions League on two occasions.`\
-https://nytimes.com/athletic/6524720/2025/08/06/thomas-muller-vancouver-whitecaps-transfer/
-
-**India, Once America’s Counterweight to China, Is Now Facing Trump’s Wrath**\
-`With threats of tariffs up to 50 percent, President Trump seems to be scrapping America’s plan to turn India into a counterweight to China, declaring instead that it is a “dead economy.”`\
-https://nytimes.com/2025/08/06/business/india-china-trump-tariffs.html
 
