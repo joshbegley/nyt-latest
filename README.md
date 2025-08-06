@@ -1,3 +1,11 @@
+**Mandel's Mailbag: Is this college football's best Week 1 ever?**\
+`Also: A Big 12-themed amusement park, seasoned veterans vs. first-time QB and the most interesting CFP championship matchup.`\
+https://nytimes.com/athletic/6537527/2025/08/06/mandels-mailbag-week-1-rankings-college-football-playoff/
+
+**Cowboys-Rams observations: What we saw from both teams in their joint practice**\
+`The Cowboys' running game wasn't sharp against the Rams as Brian Schottenheimer kept things vanilla on offense. `\
+https://nytimes.com/athletic/6537818/2025/08/06/cowboys-rams-joint-practice-observations/
+
 **Trump Suggests Vance is MAGA Movement’s Heir Apparent**\
 `President Trump said Vice President JD Vance was “probably favorite at this point” to succeed him as leader of the hard-right political movement.`\
 https://nytimes.com/2025/08/06/us/politics/trump-suggests-vance-is-maga-movements-heir-apparent.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6537111/2025/08/06/pga-fedex-cup-golf-playoff-syste
 **Son Heung-min to LAFC a rare picture-perfect signing on all fronts**\
 `Son leaving Spurs for L.A. is "like our wildest dream," says a leader of LAFC's Korean supporters group.`\
 https://nytimes.com/athletic/6530329/2025/08/06/son-heung-min-lafc-tottenham-mls-transfer-south-korea/
-
-**NHL contract efficiency rankings: Which teams spend their money most wisely?**\
-`Every NHL team gets the same amount of cap space, but not all teams put it to good use.`\
-https://nytimes.com/athletic/6528507/2025/08/06/nhl-contract-efficiency-rankings-2025/
-
-**Red Sox march to seventh straight win behind a rested Garrett Crochet**\
-`As the Red Sox continue to prove they’re capable of securing a postseason spot, keeping Crochet healthy is paramount.`\
-https://nytimes.com/athletic/6537678/2025/08/06/red-sox-garrett-crochet-seventh-straight-win/
 
