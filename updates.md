@@ -1,3 +1,11 @@
+**Trump Suggests Vance is MAGA Movement’s Heir Apparent**\
+`President Trump said Vice President JD Vance was “probably favorite at this point” to succeed him as leader of the hard-right political movement.`\
+https://nytimes.com/2025/08/06/us/politics/trump-suggests-vance-is-maga-movements-heir-apparent.html
+
+**New York Times Revenue Jumps 9.7% From Subscriptions and Ads**\
+`The company added 230,000 digital-only subscribers in the second quarter. It now has 11.88 million total subscribers.`\
+https://nytimes.com/2025/08/06/business/media/new-york-times-earnings.html
+
 **McDonald’s Sales Return to Growth, Pushed by Promotions**\
 `Return of the McCrispy chicken strips and a Minecraft movie tie-in brought diners back to the fast-food giant, which had seen sales stall in recent quarters.`\
 https://nytimes.com/2025/08/06/business/mcdonalds-earnings-profit-sales.html
