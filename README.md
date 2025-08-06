@@ -1,3 +1,7 @@
+**Another Pakistani Woman Is Killed for ‘Honor,’ but She’s Not Forgotten**\
+`Women in Pakistan die every day for supposedly dishonoring their families, and arrests are rare. But Bano Bibi’s defiant last words were caught on video.`\
+https://nytimes.com/2025/08/06/world/asia/pakistan-honor-killing-gender-violence.html
+
 **The New York Times in Print for Wednesday, Aug. 6, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/08/06/todays-new-york-times
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6536193/2025/08/06/inside-tottenhams-pre-season-tou
 **Everton state of play: More signings needed, but will Moyes end up appeased?**\
 `The club must build on an encouraging end to U.S. pre-season tour by bolstering their squad ahead of the Premier League kicking off`\
 https://nytimes.com/athletic/6536303/2025/08/06/everton-moyes-squad-signings-dewsbury-hall/
-
-**Chelsea are back in pre-season training. What issues must Enzo Maresca address?**\
-`The FIFA Club World Cup winners had three weeks off but must now rediscover their rhythm and integrate new arrivals in double-quick time`\
-https://nytimes.com/athletic/6536395/2025/08/06/chelsea-maresca-pre-season/
 
