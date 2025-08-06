@@ -1,3 +1,7 @@
+**Al Hilal reach agreement in principle to sign Liverpool striker Nunez**\
+`A deal worth €53million plus add-ons has been struck verbally, with the 26-year-old indicating his willingness to accept the proposed move.`\
+https://nytimes.com/athletic/6275753/2025/08/06/darwin-nunez-liverpool-al-hilal-transfer/
+
 **Kelley Mack, ‘Walking Dead’ Actress, Dies at 33**\
 `Ms. Mack was diagnosed with a malignant tumor in her nervous system late last year.`\
 https://nytimes.com/2025/08/06/arts/television/kelley-mack-dead-astrocytoma-glioma.html
