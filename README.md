@@ -1,3 +1,7 @@
+**Browns excited to see Shedeur Sanders get in-game action in preseason opener**\
+`Sanders received light work in the joint practice session with the Panthers, but the competitor in him is ready for Friday night. `\
+https://nytimes.com/athletic/6538818/2025/08/06/shedeur-sanders-browns-practice-panthers/
+
 **Should you prioritize wide receivers or running backs in fantasy football?**\
 `When is a wide receiver more valuable than a running back and vice versa? Michael Salfino tells all. `\
 https://nytimes.com/athletic/6538351/2025/08/06/fantasy-football-draft-strategy-wide-receivers-running-backs/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/06/us/politics/trump-meeting-putin-zelensky.html
 **Sporting CP make Jota enquiry to Nottingham Forest**\
 `If a deal progresses, talks are expected to centre around a loan move for the 26-year-old.`\
 https://nytimes.com/athletic/6538022/2025/08/06/sporting-forest-jota-silva-enquiry/
-
-**Jota to feature on Premier League trading cards for upcoming season**\
-`Liverpool have been made aware of the unfortunate situation with the collection set to launch on Thursday.`\
-https://nytimes.com/athletic/6538819/2025/08/06/liverpool-diogo-jota-trading-cards/
 

@@ -1,3 +1,7 @@
+**Should you prioritize wide receivers or running backs in fantasy football?**\
+`When is a wide receiver more valuable than a running back and vice versa? Michael Salfino tells all. `\
+https://nytimes.com/athletic/6538351/2025/08/06/fantasy-football-draft-strategy-wide-receivers-running-backs/
+
 **Guardians' Gavin Williams falls just short of no-hitting the Mets, as New York's malaise continues**\
 `The Mets didn't have a hit for 17 straight innings before Juan Soto hit a solo home run off Williams with one out in the ninth.`\
 https://nytimes.com/athletic/6538928/2025/08/06/gavin-williams-guardians-mets-near-no-hitter/
