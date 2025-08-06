@@ -1,3 +1,7 @@
+**Italy Approves Project to Link Sicily to the Mainland by Bridge**\
+`The government says the road and rail link will create jobs and lift the economy of the region, but critics are concerned about the environmental and social impact.`\
+https://nytimes.com/2025/08/06/world/europe/italy-sicily-bridge.html
+
 **Grealish: Everton open talks with Manchester City over potential loan move**\
 `The deal is considered complicated and at this stage there are no guarantees it will happen.`\
 https://nytimes.com/athletic/6259635/2025/08/06/jack-grealish-everton-transfer-manchester-city/

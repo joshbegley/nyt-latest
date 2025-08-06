@@ -1,3 +1,7 @@
+**Italy Approves Project to Link Sicily to the Mainland by Bridge**\
+`The government says the road and rail link will create jobs and lift the economy of the region, but critics are concerned about the environmental and social impact.`\
+https://nytimes.com/2025/08/06/world/europe/italy-sicily-bridge.html
+
 **Grealish: Everton open talks with Manchester City over potential loan move**\
 `The deal is considered complicated and at this stage there are no guarantees it will happen.`\
 https://nytimes.com/athletic/6259635/2025/08/06/jack-grealish-everton-transfer-manchester-city/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6537973/2025/08/06/aston-villa-news-digne-contract/
 **Why college sports' richest conference is looking into private equity, too**\
 `Oher leagues and institutions that once were bullish on private equity have backed off, but the Big Ten is patiently assessing its options.`\
 https://nytimes.com/athletic/6536362/2025/08/06/big-ten-private-equity-tony-petitti/
-
-**Cameron Young on the Ryder Cup team? Why is Rory McIlroy skipping Memphis?**\
-`Young is so talented, an excellent course fit, and his aggressive style should be great in cup golf. But he needs to go earn it.`\
-https://nytimes.com/athletic/6537179/2025/08/06/pga-tour-cameron-young-ryder-cup-rory-mcilroy-memphis/
 
