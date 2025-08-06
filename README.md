@@ -1,3 +1,15 @@
+**Truce Quiets Syrian City Torn by Sectarian Clashes**\
+`The fighting has stopped in the southern city of Sweida, three weeks after a deadly eruption of violence. But the area remains tense as clashes continue beyond the city.`\
+https://nytimes.com/2025/08/06/world/middleeast/syria-truce-sweida.html
+
+**Inside Evan Neal's transition to guard: 'Nothing's ever perfect ... but I'm on the way'**\
+`Neal failed to develop into the tackle the Giants believed he could be. Now, they're hoping a move to guard will help unlock his potential.`\
+https://nytimes.com/athletic/6535649/2025/08/06/ny-giants-evan-neal-guard/
+
+**The New York Times International Edition in Print for Thursday, Aug. 7, 2025**\
+``\
+https://nytimes.com/issue/todaysinyt/2025/08/06/todays-new-york-times-international-edition
+
 **Statue of French General Accused of Torture Divides His Hometown**\
 `An effort to have a statue of Marcel Bigeard removed has reignited the debate over how the colonial past should be remembered.`\
 https://nytimes.com/2025/08/06/world/europe/france-statue-toul.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/08/06/movies/devil-wears-prada-2-meryl-streep-anne-hath
 **A Ranch Four Times the Size of New York City for $79.5 Million**\
 `A vast ranch in central Wyoming straddles four counties and is equipped for commercial cattle operations, with a riding arena, a church and mountain views.`\
 https://nytimes.com/2025/08/06/realestate/ranch-sale-million-acre-wyoming.html
-
-**Why the B.L.S. Regularly Revises Jobs Data**\
-`President Trump fired the head of the Bureau of Labor Statistics last week and described a jobs report that included a big downward revision as “rigged.”`\
-https://nytimes.com/2025/08/06/business/economy/trump-jobs-data-revisions-bls.html
-
-**He Always Fought for the Little Guy, and Not Just Because He’s 4-Foot-11**\
-`The former labor secretary Robert B. Reich sees “the central struggle of civilization as fighting bullies,” he says in a new memoir.`\
-https://nytimes.com/2025/08/06/books/review/coming-up-short-robert-reich.html
-
-**A Decade After It Opened, ‘Hamilton’ Feels Like a Warning**\
-`Why do we still think it’s only about Obama?`\
-https://nytimes.com/2025/08/06/opinion/hamilton-anniversary-musical-politics.html
 
