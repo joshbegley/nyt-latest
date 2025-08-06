@@ -1,3 +1,7 @@
+**Adams Is Again Denied Matching Funds as Cuomo Lobbies Executives**\
+`As New York’s mayor was dealt another setback in his long-shot campaign for re-election, Andrew Cuomo met with business leaders to argue that he’s a better choice for centrist voters.`\
+https://nytimes.com/2025/08/06/nyregion/eric-adams-public-matching-funds-denied-re-election.html
+
 **Phillies takeaways: Pitching roles in flux with Wheeler's sore shoulder, Romano's struggles**\
 `Plus: The Phillies are much improved in the infield defensively, and that's helping a staff that induces lots of groundballs.`\
 https://nytimes.com/athletic/6538989/2025/08/06/phillies-takeaways-zack-wheeler-jordan-romano/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/06/business/media/joe-lovett-dead.html
 **Teddy Bridgewater opens up about 'difficult' suspension from Florida high school**\
 `Bridgewater coached his alma mater to a state title in 2024.`\
 https://nytimes.com/athletic/6538889/2025/08/06/teddy-bridgewater-miami-high-school-football-suspension/
-
-**Trump Tells European Leaders He Intends to Meet With Putin and Zelensky**\
-`President Trump has been stymied for months in his efforts to find a peace agreement between Russia and Ukraine, after more than three years of war.`\
-https://nytimes.com/2025/08/06/us/politics/trump-meeting-putin-zelensky.html
 
