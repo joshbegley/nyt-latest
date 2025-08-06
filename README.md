@@ -1,3 +1,7 @@
+**Son Heung-min says LAFC "changed my heart" after MLS unveiling**\
+`The South Korean superstar was unveiled in Los Angeles on Wednesday.`\
+https://nytimes.com/athletic/6539260/2025/08/06/son-heung-min-lafc-press-conference-south-korea-mls/
+
 **Republicans Raise the Pressure on Texas Democrats to End Their Walkout**\
 `The political and legal threats against Democrats who left Texas to protest a redrawn political map have gone further and faster than many anticipated.`\
 https://nytimes.com/2025/08/06/us/politics/texas-redistricting.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/06/nyregion/cuomo-business-leaders-mayor-nyc.html
 **Sergeant in Custody After Shooting 5 Soldiers at Georgia Army Base**\
 `Five soldiers at Fort Stewart-Hunter Army Airfield in Georgia were injured after a sergeant in their unit opened fire with a personal handgun, the base’s commander said.`\
 https://nytimes.com/video/us/100000010327722/fort-stewart-shooter-custody.html
-
-**Mike Vrabel bloodied as Patriots put together a joint practice to inspire confidence**\
-`The coach's face was cut while he tried to break up a fight as the Patriots showed some spunk in Wednesday's practice with the Commanders.`\
-https://nytimes.com/athletic/6538816/2025/08/06/mike-vrabel-cut-patriots-commanders-joint-practice/
 
