@@ -1,3 +1,15 @@
+**Prince Harry Cleared of Bullying Accusations at Charity He Co-founded**\
+`The British regulator found no evidence to support the claims made by the charity’s chair, but it criticized all sides for letting the fight play out publicly.`\
+https://nytimes.com/2025/08/06/world/europe/prince-harry-charity-sentebale.html
+
+**Key questions about the blockbuster, billion-dollar ESPN-NFL deal: MoneyCall**\
+`Welcome back to MoneyCall, The Athletic’s weekly sports business cheat sheet.`\
+https://nytimes.com/athletic/6538183/2025/08/06/espn-nfl-redzone-dtc-streaming-moneycall/
+
+**Tracking Tropical Storm Henriette**\
+`See the likely path and wind arrival times for Henriette`\
+https://nytimes.com/interactive/2025/08/06/weather/henriette-path-tracker.html
+
 **Tracking Tropical Storm Henriette**\
 `See the likely path and wind arrival times for Henriette`\
 https://nytimes.com/interactive/2025/08/06/weather/eight-e-map-path-tracker.html

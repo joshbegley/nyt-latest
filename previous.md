@@ -1,6 +1,14 @@
+**Prince Harry Cleared of Bullying Accusations at Charity He Co-founded**\
+`The British regulator found no evidence to support the claims made by the charity’s chair, but it criticized all sides for letting the fight play out publicly.`\
+https://nytimes.com/2025/08/06/world/europe/prince-harry-charity-sentebale.html
+
+**Key questions about the blockbuster, billion-dollar ESPN-NFL deal: MoneyCall**\
+`Welcome back to MoneyCall, The Athletic’s weekly sports business cheat sheet.`\
+https://nytimes.com/athletic/6538183/2025/08/06/espn-nfl-redzone-dtc-streaming-moneycall/
+
 **Tracking Tropical Storm Henriette**\
 `See the likely path and wind arrival times for Henriette`\
-https://nytimes.com/interactive/2025/08/06/weather/eight-e-map-path-tracker.html
+https://nytimes.com/interactive/2025/08/06/weather/henriette-path-tracker.html
 
 **The Giants stumbled out of the gate the past 2 years. Can they avoid another slow start?**\
 `Should the Giants play their starters more during the preseason and hope that will be the cure for their slow starts?`\
@@ -29,12 +37,4 @@ https://nytimes.com/2025/08/06/business/claires-jewelry-bankruptcy-tariffs.html
 **Stanford Newspaper Challenges Legal Basis for Student Deportations**\
 `A new lawsuit brought by a First Amendment watchdog group argues that the use of a rarely invoked immigration law to target pro-Palestinian demonstrators is unconstitutional.`\
 https://nytimes.com/2025/08/06/us/politics/stanford-lawsuit-student-activist-deportations.html
-
-**Charlie Davies: Matt Turner's MLS move can lead him back to USMNT starting spot**\
-`The familiar crest alone won't magically make Turner reclaim his U.S. role, but there is a reason why New England is the place to do it`\
-https://nytimes.com/athletic/6537663/2025/08/06/matt-turner-new-england-revolution-usmnt-world-cup/
-
-**Reimagining the Humanities to Make Them A.I.-Proof**\
-`Technology is making the old ways of teaching ineffective. A new way is starting to emerge.`\
-https://nytimes.com/2025/08/06/opinion/humanities-college-ai.html
 
