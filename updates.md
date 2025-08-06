@@ -1,3 +1,7 @@
+**Kelley Mack, ‘Walking Dead’ Actress, Dies at 33**\
+`Ms. Mack was diagnosed with a malignant tumor in her nervous system late last year.`\
+https://nytimes.com/2025/08/06/arts/television/kelley-mack-dead-astrocytoma-glioma.html
+
 **The Pulse: The existential question of the Savannah Bananas**\
 `The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
 https://nytimes.com/athletic/6536875/2025/08/06/savannah-bananas-the-pulse/
