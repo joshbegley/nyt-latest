@@ -1,3 +1,7 @@
+**Cameron Young on the Ryder Cup team? Why is Rory McIlroy skipping Memphis?**\
+`Young is so talented, an excellent course fit, and his aggressive style should be great in cup golf. But he needs to go earn it.`\
+https://nytimes.com/athletic/6537179/2025/08/06/pga-tour-cameron-young-ryder-cup-rory-mcilroy-memphis/
+
 **Italy Approves Project to Link Sicily to the Mainland by Bridge**\
 `The government says the road and rail link will create jobs and lift the economy of the region, but critics are concerned about the environmental and social impact.`\
 https://nytimes.com/2025/08/06/world/europe/italy-sicily-bridge.html

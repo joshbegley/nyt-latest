@@ -1,40 +1,40 @@
+**Nottingham Forest's new shirt sponsor: Who is Bally's Corporation, how did the deal happen?**\
+`The agreement with Bally's Corporation will see the company's logo on the men's first-team shirts and around the City Ground during 2025-26.`\
+https://nytimes.com/athletic/6536764/2025/08/06/nottingham-forest-shirt-sponsor-who-worth/
+
+**How the Seahawks' stars are building up their teammates: 'Best vets in the league'**\
+`DeMarcus Lawrence, Leonard Williams and others are sharing their secrets, hoping to turn a few Seahawks youngsters into stars.`\
+https://nytimes.com/athletic/6531626/2025/08/06/seahawks-training-camp-mentors-veterans/
+
+**Why the Chargers signed Keenan Allen and how he fits into wide receiver room**\
+`EL SEGUNDO, Calif.`\
+https://nytimes.com/athletic/6537735/2025/08/06/chargers-keenan-allen-nfl/
+
+**Bengals rookie report: Grading Shemar Stewart, Demetrius Knight and the rest so far**\
+`Coach Zac Taylor raves about the rookie crop's football IQ as some could see starting roles in Week 1.`\
+https://nytimes.com/athletic/6537448/2025/08/06/bengals-rookie-report-shemar-stewart/
+
+**Penguins mailbag: How much longer will Sidney Crosby play in the NHL?**\
+`Welcome to the first installment of a special two-part Crosby-themed Penguins mailbag.`\
+https://nytimes.com/athletic/6528077/2025/08/06/sidney-crosby-retirement-penguins-mailbag-nhl/
+
+**It's 'next blue-chip up' for Ohio State at receiver. Now it's Brandon Inniss' turn**\
+`Nobody hoards star wide receivers like Ohio State. Inniss is next in line alongside Jeremiah Smith and Carnell Tate after waiting his turn.`\
+https://nytimes.com/athletic/6536957/2025/08/06/brandon-inniss-ohio-state-wide-receivers/
+
+**Trump Administration Live Updates: U.S. Envoy Meets Putin as Sanctions Deadline Looms**\
+``\
+https://nytimes.com/live/2025/08/06/us/trump-news
+
+**Disney, McDonald’s and the State of the U.S. Economy**\
+`The effects of President Trump’s trade war on households are expected to be a big focus in earnings calls held by major consumer-facing companies.`\
+https://nytimes.com/2025/08/06/business/dealbook/disney-mcdonalds-us-consumer.html
+
+**Italy Approves Project to Link Sicily to the Mainland by Bridge**\
+`The government says the road and rail link will create jobs and lift the economy of the region, but critics are concerned about the environmental and social impact.`\
+https://nytimes.com/2025/08/06/world/europe/italy-sicily-bridge.html
+
 **Grealish: Everton open talks with Manchester City over potential loan move**\
 `The deal is considered complicated and at this stage there are no guarantees it will happen.`\
 https://nytimes.com/athletic/6259635/2025/08/06/jack-grealish-everton-transfer-manchester-city/
-
-**TAFC: What are Wrexham's chances of promotion to PL? Plus: Man Utd close in on Sesko**\
-`Today in TAFC: Wrexham's potential to seal four successive promotions, Sesko on the cusp of a Man Utd move, what can poker teach football?`\
-https://nytimes.com/athletic/6537927/2025/08/06/wrexham-premier-league-promotion-manchester-united-sesko-transfer/
-
-**Mandel's Mailbag: Is this college football's best Week 1 ever?**\
-`Also: A Big 12-themed amusement park, seasoned veterans vs. first-time QB and the most interesting CFP championship matchup.`\
-https://nytimes.com/athletic/6537527/2025/08/06/mandels-mailbag-week-1-rankings-college-football-playoff/
-
-**Cowboys-Rams observations: What we saw from both teams in their joint practice**\
-`The Cowboys' running game wasn't sharp against the Rams and Matthew Stafford remained sidelined for the Rams. `\
-https://nytimes.com/athletic/6537818/2025/08/06/cowboys-rams-joint-practice-observations/
-
-**Trump Suggests Vance is MAGA Movement’s Heir Apparent**\
-`President Trump said Vice President JD Vance was “probably favorite at this point” to succeed him as leader of the hard-right political movement.`\
-https://nytimes.com/2025/08/06/us/politics/trump-vance-rubio-maga-2028.html
-
-**New York Times Revenue Jumps 9.7% From Subscriptions and Ads**\
-`The company added 230,000 digital-only subscribers in the second quarter. It now has 11.88 million total subscribers.`\
-https://nytimes.com/2025/08/06/business/media/new-york-times-earnings.html
-
-**McDonald’s Sales Return to Growth, Pushed by Promotions**\
-`Return of the McCrispy chicken strips and a Minecraft movie tie-in brought diners back to the fast-food giant, which had seen sales stall in recent quarters.`\
-https://nytimes.com/2025/08/06/business/mcdonalds-earnings-profit-sales.html
-
-**Villa's Digne verbally agrees new contract**\
-`Digne, who had entered the final year of his existing deal this summer, outlined his desire to remain at the club at the end of last season.`\
-https://nytimes.com/athletic/6537973/2025/08/06/aston-villa-news-digne-contract/
-
-**Why college sports' richest conference is looking into private equity, too**\
-`Oher leagues and institutions that once were bullish on private equity have backed off, but the Big Ten is patiently assessing its options.`\
-https://nytimes.com/athletic/6536362/2025/08/06/big-ten-private-equity-tony-petitti/
-
-**Cameron Young on the Ryder Cup team? Why is Rory McIlroy skipping Memphis?**\
-`Young is so talented, an excellent course fit, and his aggressive style should be great in cup golf. But he needs to go earn it.`\
-https://nytimes.com/athletic/6537179/2025/08/06/pga-tour-cameron-young-ryder-cup-rory-mcilroy-memphis/
 
