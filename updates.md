@@ -1,3 +1,19 @@
+**History lessons, house hunting and ready meals: How Liverpool help new players settle in**\
+`The process of helping new players feel at home is delicate but crucial - this is how Liverpool do it`\
+https://nytimes.com/athletic/6524568/2025/08/06/liverpool-new-signings-settle-in/
+
+**Wednesday Briefing: Netanyahu’s Next Steps in Gaza**\
+`Also, how to break free from your phone.`\
+https://nytimes.com/2025/08/06/briefing/netanyahu-gaza-israel-hiroshima-jeju-air-crash.html
+
+**Inside Tottenham's pre-season tour: Torrential rain, minimal downtime and a replica trophy**\
+`New Spurs head coach Thomas Frank was slightly frustrated by the crammed eight-day schedule, but some good progress was made`\
+https://nytimes.com/athletic/6536193/2025/08/06/inside-tottenhams-pre-season-tour-a-torrential-downpour-minimal-downtime-and-a-replica-trophy/
+
+**Everton state of play: More signings needed, but will Moyes end up appeased?**\
+`The club must build on an encouraging end to U.S. pre-season tour by bolstering their squad ahead of the Premier League kicking off`\
+https://nytimes.com/athletic/6536303/2025/08/06/everton-moyes-squad-signings-dewsbury-hall/
+
 **Chelsea are back in pre-season training. What issues must Enzo Maresca address?**\
 `The FIFA Club World Cup winners had three weeks off but must now rediscover their rhythm and integrate new arrivals in double-quick time`\
 https://nytimes.com/athletic/6536395/2025/08/06/chelsea-maresca-pre-season/
