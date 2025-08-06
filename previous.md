@@ -1,3 +1,7 @@
+**Blockbuster trade: NFL swaps NFL Network and other TV assets to ESPN for 10% of network**\
+`NFL Network is expected to become a core programming component of ESPN's forthcoming direct-to-consumer service.`\
+https://nytimes.com/athletic/6537577/2025/08/05/espn-nfl-media-network-agreement-equity/
+
 **Colts' breakout camp star AD Mitchell torches Ravens in joint practice**\
 `Mitchell talked a lot of trash on Tuesday ... and backed it up with his play. Meanwhile, QB Anthony Richardson continues to impress. `\
 https://nytimes.com/athletic/6537554/2025/08/05/colts-ad-mitchell-ravens-anthony-richardson/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/05/nyregion/earthquake-nj-nyc-new-york-why.html
 **Keenan Allen reunites with Chargers after 1 season in Chicago**\
 `Allen spent his first 11 seasons in the NFL with the Chargers before being traded to the Bears last offseason in a salary-cap cutting move. `\
 https://nytimes.com/athletic/6531001/2025/08/05/keenan-allen-chargers-bears-contract/
-
-**ESPN, Leaping to Streaming, Holds Hands With the N.F.L.**\
-`The network and sports league announced a deal that gives the N.F.L. an ownership stake in ESPN. In exchange, the network will control some of the league’s media outlets.`\
-https://nytimes.com/2025/08/05/business/media/nfl-espn-disney-deal.html
 

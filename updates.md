@@ -1,3 +1,7 @@
+**Blockbuster trade: NFL swaps NFL Network and other TV assets to ESPN for 10% of network**\
+`NFL Network is expected to become a core programming component of ESPN's forthcoming direct-to-consumer service.`\
+https://nytimes.com/athletic/6537577/2025/08/05/espn-nfl-media-network-agreement-equity/
+
 **Colts' breakout camp star AD Mitchell torches Ravens in joint practice**\
 `Mitchell talked a lot of trash on Tuesday ... and backed it up with his play. Meanwhile, QB Anthony Richardson continues to impress. `\
 https://nytimes.com/athletic/6537554/2025/08/05/colts-ad-mitchell-ravens-anthony-richardson/
