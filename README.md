@@ -1,3 +1,15 @@
+**The New York Times in Print for Wednesday, Aug. 6, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/08/06/todays-new-york-times
+
+**Eighty Years of Nuclear Weapons Is Enough**\
+`The nuclear taboo is on the verge of collapse.`\
+https://nytimes.com/2025/08/06/opinion/hiroshima-nagasaki-anniversary-nuclear-weapons.html
+
+**The Promise of Palestinian Statehood Is Ringing Hollow**\
+`Recognition will come with strings attached and little chance for holding Israel to account.`\
+https://nytimes.com/2025/08/06/opinion/israel-palestinians-un-statehood.html
+
 **City Council President and Pastor Advance in Detroit Mayoral Election**\
 `Mary Sheffield and Solomon Kinloch Jr. will face off in a November election. Mike Duggan, Detroit’s mayor for a dozen years, is not seeking re-election.`\
 https://nytimes.com/2025/08/06/us/elections/detroit-mayoral-election.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6536303/2025/08/06/everton-moyes-squad-signings-dew
 **Chelsea are back in pre-season training. What issues must Enzo Maresca address?**\
 `The FIFA Club World Cup winners had three weeks off but must now rediscover their rhythm and integrate new arrivals in double-quick time`\
 https://nytimes.com/athletic/6536395/2025/08/06/chelsea-maresca-pre-season/
-
-**James French: The set-piece obsessive Manchester City have taken from Liverpool**\
-`Meet the man tasked with establishing Pep Guardiola's side as the new set-piece kings of the Premier League`\
-https://nytimes.com/athletic/6536375/2025/08/06/james-french-manchester-city-set-pieces-liverpool/
-
-**Who is Stefanos Tzimas? Brighton’s potential breakout star this season**\
-`In transitioning from Germany's second tier to the Premier League, the Greek striker faces same challenge as Hurzeler did last season`\
-https://nytimes.com/athletic/6141783/2025/08/06/stefanos-tzimas-breakout-season-brighton/
-
-**Fantasy Premier League: New signings vs proven players, and how to strike the right balance**\
-`Big-name newcomers to the Premier League are always alluring but should you really favour them over tried-and-tested assets?`\
-https://nytimes.com/athletic/6507591/2025/08/06/fantasy-premier-league-new-signings-squad/
 
