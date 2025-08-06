@@ -1,3 +1,7 @@
+**Roki Sasaki is getting closer to a return. What will the Dodgers get out of him?**\
+`Sasaki is expected to face hitters for 3 simulated innings on Friday, then head out on a minor-league rehab assignment.`\
+https://nytimes.com/athletic/6537617/2025/08/05/dodgers-roki-sasaki-injury-return/
+
 **Steelers rookie QB Will Howard suffers broken finger: Sources**\
 `The sixth-round pick is expected to miss at least the Steelers' preseason opener on Saturday.`\
 https://nytimes.com/athletic/6537627/2025/08/05/will-howard-injury-broken-finger/

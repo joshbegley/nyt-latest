@@ -1,3 +1,7 @@
+**Roki Sasaki is getting closer to a return. What will the Dodgers get out of him?**\
+`Sasaki is expected to face hitters for 3 simulated innings on Friday, then head out on a minor-league rehab assignment.`\
+https://nytimes.com/athletic/6537617/2025/08/05/dodgers-roki-sasaki-injury-return/
+
 **Steelers rookie QB Will Howard suffers broken finger: Sources**\
 `The sixth-round pick is expected to miss at least the Steelers' preseason opener on Saturday.`\
 https://nytimes.com/athletic/6537627/2025/08/05/will-howard-injury-broken-finger/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/05/nyregion/cuomo-gaza-aid-israel.html
 **4 Dead After Medical Transport Plane Crashes in Arizona**\
 `The plane was landing at Chinle Municipal Airport in the Navajo Nation in Arizona to pick up a patient for a medical transfer. It was not immediately clear what had caused the crash.`\
 https://nytimes.com/2025/08/05/us/medical-transport-plane-crash-arizona-navajo-nation.html
-
-**3 Years Before Park Ave. Shooting, Nevada Police Had Gunman Committed**\
-`The Las Vegas police released documents and records describing the mental health breakdowns that the man who killed four people in a New York building had faced earlier.`\
-https://nytimes.com/2025/08/05/nyregion/park-avenue-gunman-mental-health.html
 
