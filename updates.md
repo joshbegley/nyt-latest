@@ -1,3 +1,7 @@
+**China Turns to A.I. in Information Warfare**\
+`Documents examined by researchers show how one company in China has collected data on members of Congress and other influential Americans.`\
+https://nytimes.com/2025/08/06/us/politics/china-artificial-intelligence-information-warfare.html
+
 **U.S. Open announces record $85m tennis Grand Slam prize money amid player unrest**\
 `The new record adds another frontier to the arms race between the Grand Slams, as players focus on how much tournament revenue they get.`\
 https://nytimes.com/athletic/6537510/2025/08/06/tennis-us-open-prize-money-2025/
