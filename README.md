@@ -1,3 +1,19 @@
+**Thursday Briefing: Trump Threatens to Double India’s Tariffs**\
+`Also, a possible Russia-Ukraine-U.S. summit.`\
+https://nytimes.com/2025/08/06/briefing/india-tariff-trump-russia-ukraine-china-ai.html
+
+**Jewelry for a Day at the Beach**\
+`Plus: a new hotel in Marseille, watercolors on unexpected canvases and more recommendations from T Magazine.`\
+https://nytimes.com/2025/08/06/t-magazine/paris-summer-jewelry.html
+
+**Trent Williams navigates going out on top, while guiding a young 49ers tackle behind him**\
+`The All-Pro Williams isn't slowing down anytime soon, but this stage of career includes helping young tackles like Spencer Burford.`\
+https://nytimes.com/athletic/6538888/2025/08/06/spencer-burford-trent-williams-49ers-training-camp-preseason/
+
+**Tell us: What do you want to know about immigration?**\
+`The On Politics newsletter hopes to hear your questions about the Trump administration’s changes to immigration.`\
+https://nytimes.com/2025/08/06/us/politics/trump-immigration.html
+
 **Panthers joint practice observations: Tetairoa McMillan bounces back, Bryce Young praised**\
 `The rookie first-round receiver missed a smart pass from Bryce Young, but found the end zone on a slant later against the Browns.`\
 https://nytimes.com/athletic/6538992/2025/08/06/panthers-browns-practice-bryce-young-tetairoa-mcmillan/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6539041/2025/08/06/arteta-havertz-calafiori-trossar
 **What we learned at the 2025 National Sports Collectors Convention in Chicago**\
 `There was a lot to take in at The National — here's what stood out the most`\
 https://nytimes.com/athletic/6534573/2025/08/06/the-national-sports-cards-collecting/
-
-**Adams Is Again Denied Matching Funds as Cuomo Lobbies Executives**\
-`As New York’s mayor was dealt another setback in his long-shot campaign for re-election, Andrew Cuomo met with business leaders to argue that he’s a better choice for centrist voters.`\
-https://nytimes.com/2025/08/06/nyregion/eric-adams-public-matching-funds-denied-re-election.html
-
-**Phillies takeaways: Pitching roles in flux with Wheeler's sore shoulder, Romano's struggles**\
-`Plus: The Phillies are much improved in the infield defensively, and that's helping a staff that induces lots of groundballs.`\
-https://nytimes.com/athletic/6538989/2025/08/06/phillies-takeaways-zack-wheeler-jordan-romano/
-
-**Browns excited to see Shedeur Sanders get in-game action in preseason opener**\
-`Sanders received light work in the joint practice session with the Panthers, but the competitor in him is ready for Friday night. `\
-https://nytimes.com/athletic/6538818/2025/08/06/shedeur-sanders-browns-practice-panthers/
-
-**Should you prioritize wide receivers or running backs in fantasy football?**\
-`When is a wide receiver more valuable than a running back and vice versa? Michael Salfino tells all. `\
-https://nytimes.com/athletic/6538351/2025/08/06/fantasy-football-draft-strategy-wide-receivers-running-backs/
 
