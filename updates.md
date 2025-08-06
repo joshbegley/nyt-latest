@@ -1,3 +1,19 @@
+**Whitecaps confirm Muller signing**\
+`The 35-year-old spent 17 years at Bayern Munich, winning 13 Bundesliga titles and the Champions League on two occasions.`\
+https://nytimes.com/athletic/6524720/2025/08/06/thomas-muller-vancouver-whitecaps-transfer/
+
+**What Happened to India Becoming the Next China?**\
+`With threats of tariffs up to 50 percent, President Trump seems to be scrapping America’s plan to turn India into a counterweight to China, declaring instead that it is a “dead economy.”`\
+https://nytimes.com/2025/08/06/business/india-china-trump-tariffs.html
+
+**Red Sox closing in on extension for Roman Anthony, locking up more of young core: Source**\
+`Anthony’s extension would be the third long-term deal for a Red Sox player this season.`\
+https://nytimes.com/athletic/6538543/2025/08/06/roman-anthony-contract-extension-red-sox/
+
+**5 Soldiers Shot at Fort Stewart in Georgia**\
+`The gunman was quickly apprehended, the authorities said and a lockdown of the base was lifted.`\
+https://nytimes.com/2025/08/06/us/fort-stewart-airfield-active-shooter.html
+
 **What Happened to India Becoming the Next China?**\
 `With threats of tariffs up to 50 percent, President Trump seems to be scrapping America’s plan to turn India into a counterweight to China, declaring instead that it was a “dead economy.”`\
 https://nytimes.com/2025/08/06/business/india-china-trump-tariffs.html

@@ -1,5 +1,9 @@
+**Whitecaps confirm Muller signing**\
+`The 35-year-old spent 17 years at Bayern Munich, winning 13 Bundesliga titles and the Champions League on two occasions.`\
+https://nytimes.com/athletic/6524720/2025/08/06/thomas-muller-vancouver-whitecaps-transfer/
+
 **What Happened to India Becoming the Next China?**\
-`With threats of tariffs up to 50 percent, President Trump seems to be scrapping America’s plan to turn India into a counterweight to China, declaring instead that it was a “dead economy.”`\
+`With threats of tariffs up to 50 percent, President Trump seems to be scrapping America’s plan to turn India into a counterweight to China, declaring instead that it is a “dead economy.”`\
 https://nytimes.com/2025/08/06/business/india-china-trump-tariffs.html
 
 **Venus Williams tells tennis world not to rule her out for 2026 season at Cincinnati Open**\
@@ -10,7 +14,7 @@ https://nytimes.com/athletic/6538533/2025/08/06/tennis-venus-williams-comeback-c
 `Facing a 50 percent tariff as a penalty for buying Russian oil, India says it is ‘unfortunate’ that it is being punished for acting in its national interest.`\
 https://nytimes.com/2025/08/06/world/asia/india-tariffs-russian-oil.html
 
-**Red Sox closing in on extension for Roman Anthony, locking up more of young core: Sources**\
+**Red Sox closing in on extension for Roman Anthony, locking up more of young core: Source**\
 `Anthony’s extension would be the third long-term deal for a Red Sox player this season.`\
 https://nytimes.com/athletic/6538543/2025/08/06/roman-anthony-contract-extension-red-sox/
 
@@ -27,14 +31,10 @@ https://nytimes.com/2025/08/06/magazine/mom-pressuring-pretend-infertile-ethics.
 https://nytimes.com/video/world/asia/100000010322352/80-years-after-hiroshima-japan-is-a-big-defense-spender.html
 
 **5 Soldiers Shot at Fort Stewart in Georgia**\
-`The gunman was quickly apprehended, the authorities said.`\
+`The gunman was quickly apprehended, the authorities said and a lockdown of the base was lifted.`\
 https://nytimes.com/2025/08/06/us/fort-stewart-airfield-active-shooter.html
 
 **Experience, versatility and progressive passes: What Kiernan Dewsbury-Hall brings to Everton**\
 `If the midfielder matches his performances with Leicester in 2023-24 or Chelsea in last season's Conference League, Everton will be stronger`\
 https://nytimes.com/athletic/6538373/2025/08/06/dewsbury-hall-everton-analysis/
-
-**The Best Movies and TV Shows Coming to Netflix in August**\
-`This month includes the return of Wednesday Addams and a new series from the creative minds behind “BoJack Horseman.”`\
-https://nytimes.com/2025/08/06/arts/television/new-netflix-august.html
 
