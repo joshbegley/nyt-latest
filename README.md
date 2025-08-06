@@ -1,3 +1,7 @@
+**The Commanders and Terry McLaurin have to end this, now, and make a deal**\
+`Entering a win-now season, the Commanders and their star receiver both need to give in a little and take a leap of faith.`\
+https://nytimes.com/athletic/6535366/2025/08/06/commanders-terry-mclaurin-negotiation-deal/
+
 **How to watch the FedEx St. Jude Championship: TV, Tee times, weather as playoffs begin**\
 `The FedEx St. Jude Championship awards 2,000 points and trims the field to 50, so every swing is about surviving the cut.`\
 https://nytimes.com/athletic/6537284/2025/08/06/fedex-st-jude-championship-golf-2025-how-to-watch/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6536996/2025/08/06/f1-mailbag-lando-norris-oscar-pi
 **The magic behind Brian Flores' Minnesota Vikings defense unlike any other**\
 `Flores' elaborate disguises keep offenses guessing and he allows his players to be a big part of the creative process.`\
 https://nytimes.com/athletic/6522020/2025/08/06/minnesota-vikings-defese-brian-flores-scheme-breakdown/
-
-**More Money Was Supposed to Help Poor Kids. So Why Didn’t It?**\
-`A new study may undercut the idea that cash payments to low-income families can end the cycle of childhood poverty.`\
-https://nytimes.com/2025/08/06/podcasts/the-daily/cash-payments-poor-kids-study.html
 
