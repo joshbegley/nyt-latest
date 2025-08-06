@@ -1,3 +1,11 @@
+**City Council President and Pastor Advance in Detroit Mayoral Election**\
+`Mary Sheffield and Solomon Kinloch Jr. will face off in a November election. Mike Duggan, Detroit’s mayor for a dozen years, is not seeking re-election.`\
+https://nytimes.com/2025/08/06/us/elections/detroit-mayoral-election.html
+
+**Jerar Encarnacion returns with a bang as Giants finally power past pesky Pirates**\
+`A fractured a finger in spring training disrupted Encarnacion's season, but he has a chance to make up for lost time. `\
+https://nytimes.com/athletic/6537724/2025/08/06/giants-jerar-encarnacion-homer-jerry/
+
 **History lessons, house hunting and ready meals: How Liverpool help new players settle in**\
 `The process of helping new players feel at home is delicate but crucial - this is how Liverpool do it`\
 https://nytimes.com/athletic/6524568/2025/08/06/liverpool-new-signings-settle-in/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6141783/2025/08/06/stefanos-tzimas-breakout-season-
 **Fantasy Premier League: New signings vs proven players, and how to strike the right balance**\
 `Big-name newcomers to the Premier League are always alluring but should you really favour them over tried-and-tested assets?`\
 https://nytimes.com/athletic/6507591/2025/08/06/fantasy-premier-league-new-signings-squad/
-
-**Gazza's chaotic 39 days at Kettering: Mid-training pizza, a fully clothed shower and a Ferrari promise**\
-`Paul Gascoigne arrived at the sixth-tier club 20 years ago as a footballing legend. Those who were there at the time relive a crazy period`\
-https://nytimes.com/athletic/6301334/2025/08/06/paul-gascoigne-ketting-town-39-days/
-
-**Rugby kick-offs, long throws and chaos: What last season's data can tell us about the 2025-26 Premier League**\
-`Outfielders taking goal kicks, long throws and rising to the rhythm – just some of the growing trends in England's top flight`\
-https://nytimes.com/athletic/6529970/2025/08/06/premier-league-data-trends-2025-26/
 
