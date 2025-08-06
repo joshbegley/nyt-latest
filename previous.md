@@ -1,8 +1,12 @@
+**Man Utd contact Brighton to explore conditions of potential Baleba deal**\
+`Baleba is emerging as one of the most highly-rated players in his position and Brighton do not intend to sanction a sale this summer.`\
+https://nytimes.com/athletic/6524982/2025/08/06/carlos-baleba-manchester-united-contact/
+
 **Whitecaps confirm Muller signing**\
 `The 35-year-old spent 17 years at Bayern Munich, winning 13 Bundesliga titles and the Champions League on two occasions.`\
 https://nytimes.com/athletic/6524720/2025/08/06/thomas-muller-vancouver-whitecaps-transfer/
 
-**What Happened to India Becoming the Next China?**\
+**India, Once America’s Counterweight to China, Is Now Facing Trump’s Wrath**\
 `With threats of tariffs up to 50 percent, President Trump seems to be scrapping America’s plan to turn India into a counterweight to China, declaring instead that it is a “dead economy.”`\
 https://nytimes.com/2025/08/06/business/india-china-trump-tariffs.html
 
@@ -33,8 +37,4 @@ https://nytimes.com/video/world/asia/100000010322352/80-years-after-hiroshima-ja
 **5 Soldiers Shot at Fort Stewart in Georgia**\
 `The gunman was quickly apprehended, the authorities said and a lockdown of the base was lifted.`\
 https://nytimes.com/2025/08/06/us/fort-stewart-airfield-active-shooter.html
-
-**Experience, versatility and progressive passes: What Kiernan Dewsbury-Hall brings to Everton**\
-`If the midfielder matches his performances with Leicester in 2023-24 or Chelsea in last season's Conference League, Everton will be stronger`\
-https://nytimes.com/athletic/6538373/2025/08/06/dewsbury-hall-everton-analysis/
 

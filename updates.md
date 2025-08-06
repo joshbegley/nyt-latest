@@ -1,3 +1,11 @@
+**Man Utd contact Brighton to explore conditions of potential Baleba deal**\
+`Baleba is emerging as one of the most highly-rated players in his position and Brighton do not intend to sanction a sale this summer.`\
+https://nytimes.com/athletic/6524982/2025/08/06/carlos-baleba-manchester-united-contact/
+
+**India, Once America’s Counterweight to China, Is Now Facing Trump’s Wrath**\
+`With threats of tariffs up to 50 percent, President Trump seems to be scrapping America’s plan to turn India into a counterweight to China, declaring instead that it is a “dead economy.”`\
+https://nytimes.com/2025/08/06/business/india-china-trump-tariffs.html
+
 **Whitecaps confirm Muller signing**\
 `The 35-year-old spent 17 years at Bayern Munich, winning 13 Bundesliga titles and the Champions League on two occasions.`\
 https://nytimes.com/athletic/6524720/2025/08/06/thomas-muller-vancouver-whitecaps-transfer/

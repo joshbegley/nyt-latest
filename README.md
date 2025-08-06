@@ -1,3 +1,11 @@
+**Travis Kelce not tipping retirement decision in Chiefs training camp**\
+`Kelce is in noticeably better shape this summer as he approaches what could be his final NFL season.`\
+https://nytimes.com/athletic/6538506/2025/08/06/travis-kelce-chiefs-camp-retirement-decision/
+
+**What’s in Our Queue? ‘Love on the Spectrum’ and More**\
+`Text by Tess Felder`\
+https://nytimes.com/card/2025/08/06/arts/editors-recommendations-loveonthespectrum
+
 **Man Utd contact Brighton to explore conditions of potential Baleba deal**\
 `Baleba is emerging as one of the most highly-rated players in his position and Brighton do not intend to sanction a sale this summer.`\
 https://nytimes.com/athletic/6524982/2025/08/06/carlos-baleba-manchester-united-contact/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/08/06/opinion/therapists-death-grief.html
 **My Mom Keeps Pressuring Me to Have Kids. Can I Pretend to Be Infertile?**\
 `Now she’s saying that she’ll cut me out of her will if I don’t have a child.`\
 https://nytimes.com/2025/08/06/magazine/mom-pressuring-pretend-infertile-ethics.html
-
-**80 Years After Hiroshima, Japan Is a Big Defense Spender**\
-`It has been 80 years since the United States dropped an atomic bomb on Hiroshima in the world’s first nuclear attack. Hannah Beech, a reporter who covers Asia for The New York Times, explains how that moment shaped Japan’s approach to peace, and how that approach is beginning to change.`\
-https://nytimes.com/video/world/asia/100000010322352/80-years-after-hiroshima-japan-is-a-big-defense-spender.html
-
-**5 Soldiers Shot at Fort Stewart in Georgia**\
-`The gunman was quickly apprehended, the authorities said and a lockdown of the base was lifted.`\
-https://nytimes.com/2025/08/06/us/fort-stewart-airfield-active-shooter.html
 
