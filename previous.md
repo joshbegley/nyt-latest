@@ -1,3 +1,11 @@
+**Arteta hopes Havertz, Calafiori and Trossard will be available for Athletic game**\
+`All three players missed Arsenal's 3-2 defeat against Villarreal on Wednesday.`\
+https://nytimes.com/athletic/6539041/2025/08/06/arteta-havertz-calafiori-trossard-arsenal-update/
+
+**What we learned at the 2025 National Sports Collectors Convention in Chicago**\
+`There was a lot to take in at The National — here's what stood out the most`\
+https://nytimes.com/athletic/6534573/2025/08/06/the-national-sports-cards-collecting/
+
 **Adams Is Again Denied Matching Funds as Cuomo Lobbies Executives**\
 `As New York’s mayor was dealt another setback in his long-shot campaign for re-election, Andrew Cuomo met with business leaders to argue that he’s a better choice for centrist voters.`\
 https://nytimes.com/2025/08/06/nyregion/eric-adams-public-matching-funds-denied-re-election.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6538025/2025/08/06/german-club-transfer-israel-gaza
 **Trump Weighs Getting Involved in New York City Mayor’s Race**\
 `The possibility that the president will seek to intercede could inject an element of unpredictability into an already fractious contest.`\
 https://nytimes.com/2025/08/06/nyregion/trump-nyc-mayor-cuomo-adams-mamdani.html
-
-**Joseph Lovett, TV Producer Who Shed an Early Light on AIDS, Dies at 80**\
-`At CBS and ABC, he pursued news segments aimed at destigmatizing gay life and drawing attention to an epidemic that at the time was largely overlooked.`\
-https://nytimes.com/2025/08/06/business/media/joe-lovett-dead.html
-
-**Teddy Bridgewater opens up about 'difficult' suspension from Florida high school**\
-`Bridgewater coached his alma mater to a state title in 2024.`\
-https://nytimes.com/athletic/6538889/2025/08/06/teddy-bridgewater-miami-high-school-football-suspension/
 
