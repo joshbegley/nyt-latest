@@ -1,3 +1,7 @@
+**Biting Piece**\
+`Hanh Huynh skims the surface.`\
+https://nytimes.com/2025/08/05/crosswords/daily-puzzle-2025-08-06.html
+
 **Ex-Miami Heat employee charged with stealing hundreds of game-used items**\
 `Hundreds of items intended for a Miami Heat museum were found in the former security officer's home`\
 https://nytimes.com/athletic/6537573/2025/08/05/miami-heat-memorabilia-theft/
