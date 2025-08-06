@@ -1,3 +1,7 @@
+**The Commanders and Terry McLaurin have to end this, now, and make a deal**\
+`Entering a win-now season, the Commanders and their star receiver both need to give in a little and take a leap of faith.`\
+https://nytimes.com/athletic/6535366/2025/08/06/commanders-terry-mclaurin-negotiation-deal/
+
 **How to watch the FedEx St. Jude Championship: TV, Tee times, weather as playoffs begin**\
 `The FedEx St. Jude Championship awards 2,000 points and trims the field to 50, so every swing is about surviving the cut.`\
 https://nytimes.com/athletic/6537284/2025/08/06/fedex-st-jude-championship-golf-2025-how-to-watch/
