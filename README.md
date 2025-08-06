@@ -1,3 +1,7 @@
+**How Much Did You Spend on Your Wedding? We’d Love to Hear.**\
+`Did you have a modest or extravagant budget? Or did you land somewhere in between? We’re interested in how much you spent, what you splurged on or how you cut costs.`\
+https://nytimes.com/2025/08/06/fashion/weddings/wedding-cost-callout.html
+
 **Thursday Briefing: Trump Threatens to Double India’s Tariffs**\
 `Also, a possible Russia-Ukraine-U.S. summit.`\
 https://nytimes.com/2025/08/06/briefing/india-tariff-trump-russia-ukraine-china-ai.html
@@ -27,14 +31,10 @@ https://nytimes.com/athletic/6532210/2025/08/06/son-heung-min-lafc-tactics-fit-c
 https://nytimes.com/2025/08/06/world/new-zealand-us-antarctic-base-rescue.html
 
 **Commanders-Patriots observations: Skirmishes, Bon Jovi and Washington's glaring problem**\
-`Washington's rebuilt defensive front had a good day, its pass defense is still a work in progress, and its receiving room needs help.`\
+`Washington's rebuilt defensive front had a good day, its pass defense remains a work in progress, and its receiving room needs help.`\
 https://nytimes.com/athletic/6538851/2025/08/06/commanders-patriots-bon-jovi-fights-receivers-mclaurin/
 
 **Arteta hopes Havertz, Calafiori and Trossard will be available for Athletic game**\
 `All three players missed Arsenal's 3-2 defeat against Villarreal on Wednesday.`\
 https://nytimes.com/athletic/6539041/2025/08/06/arteta-havertz-calafiori-trossard-arsenal-update/
-
-**What we learned at the 2025 National Sports Collectors Convention in Chicago**\
-`There was a lot to take in at The National — here's what stood out the most`\
-https://nytimes.com/athletic/6534573/2025/08/06/the-national-sports-cards-collecting/
 

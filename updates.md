@@ -1,3 +1,19 @@
+**Thursday Briefing: Trump Threatens to Double India’s Tariffs**\
+`Also, a possible Russia-Ukraine-U.S. summit.`\
+https://nytimes.com/2025/08/06/briefing/india-tariff-trump-russia-ukraine-china-ai.html
+
+**Jewelry for a Day at the Beach**\
+`Plus: a new hotel in Marseille, watercolors on unexpected canvases and more recommendations from T Magazine.`\
+https://nytimes.com/2025/08/06/t-magazine/paris-summer-jewelry.html
+
+**Trent Williams navigates going out on top, while guiding a young 49ers tackle behind him**\
+`The All-Pro Williams isn't slowing down anytime soon, but this stage of career includes helping young tackles like Spencer Burford.`\
+https://nytimes.com/athletic/6538888/2025/08/06/spencer-burford-trent-williams-49ers-training-camp-preseason/
+
+**Tell us: What do you want to know about immigration?**\
+`The On Politics newsletter hopes to hear your questions about the Trump administration’s changes to immigration.`\
+https://nytimes.com/2025/08/06/us/politics/trump-immigration.html
+
 **New Zealand Air Force Mounts Dangerous Rescue in Antarctica**\
 `Three staff members from the National Science Foundation were evacuated from a U.S. research base after a medical emergency. The mission is one of the most challenging for the air force.`\
 https://nytimes.com/2025/08/06/world/new-zealand-us-antarctic-base-rescue.html
