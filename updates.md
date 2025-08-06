@@ -1,3 +1,7 @@
+**Jacob’s Pillow Cancels Remainder of Festival After Death at Center**\
+`A production manager died at the dance center last week in what the district attorney’s office in Berkshire County, Mass., described as a workplace accident.`\
+https://nytimes.com/2025/08/06/us/jacobs-pillow-dance-festival-canceled.html
+
 **Word of the Day: doldrums**\
 `This word has appeared in 111 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2025/08/06/learning/word-of-the-day-doldrums.html

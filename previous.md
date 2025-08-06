@@ -1,3 +1,7 @@
+**Jacob’s Pillow Cancels Remainder of Festival After Death at Center**\
+`A production manager died at the dance center last week in what the district attorney’s office in Berkshire County, Mass., described as a workplace accident.`\
+https://nytimes.com/2025/08/06/us/jacobs-pillow-dance-festival-canceled.html
+
 **Word of the Day: doldrums**\
 `This word has appeared in 111 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2025/08/06/learning/word-of-the-day-doldrums.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6524568/2025/08/06/liverpool-new-signings-settle-in
 **Wednesday Briefing: Netanyahu’s Next Steps in Gaza**\
 `Also, how to break free from your phone.`\
 https://nytimes.com/2025/08/06/briefing/netanyahu-gaza-israel-hiroshima-jeju-air-crash.html
-
-**Inside Tottenham's pre-season tour: Torrential rain, minimal downtime and a replica trophy**\
-`New Spurs head coach Thomas Frank was slightly frustrated by the crammed eight-day schedule, but some good progress was made`\
-https://nytimes.com/athletic/6536193/2025/08/06/inside-tottenhams-pre-season-tour-a-torrential-downpour-minimal-downtime-and-a-replica-trophy/
 
