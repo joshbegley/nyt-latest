@@ -1,3 +1,7 @@
+**Steelers rookie QB Will Howard suffers broken finger: Sources**\
+`The sixth-round pick is expected to miss at least the Steelers' preseason opener on Saturday.`\
+https://nytimes.com/athletic/6537627/2025/08/05/will-howard-injury-broken-finger/
+
 **Biting Piece**\
 `Hanh Huynh skims the surface.`\
 https://nytimes.com/2025/08/05/crosswords/daily-puzzle-2025-08-06.html
