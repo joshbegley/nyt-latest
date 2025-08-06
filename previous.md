@@ -1,3 +1,15 @@
+**German club pull out of transfer of Israel international over Gaza social media posts**\
+`Weissman had already travelled to Dusseldorf and underwent medical tests ahead of completing his move, but the club cancelled the deal.`\
+https://nytimes.com/athletic/6538025/2025/08/06/german-club-transfer-israel-gaza/
+
+**Trump Weighs Getting Involved in New York City Mayor Race**\
+`The possibility that the president will seek to intercede could inject an element of unpredictability into an already fractious contest.`\
+https://nytimes.com/2025/08/06/nyregion/trump-nyc-mayor-cuomo-adams-mamdani.html
+
+**Joseph Lovett, TV Producer Who Shed an Early Light on AIDS, Dies at 80**\
+`At CBS and ABC, he pursued news segments aimed at destigmatizing gay life and drawing attention to an epidemic that at the time was largely overlooked.`\
+https://nytimes.com/2025/08/06/business/media/joe-lovett-dead.html
+
 **Teddy Bridgewater opens up about 'difficult' suspension from Florida high school**\
 `Bridgewater coached his alma mater to a state title in 2024.`\
 https://nytimes.com/athletic/6538889/2025/08/06/teddy-bridgewater-miami-high-school-football-suspension/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/08/06/us/politics/trump-visas-olympics-2028.html
 **Chelsea men's and women's teams celebrate trophy wins at Stamford Bridge**\
 `The club celebrated the five trophies won by their men’s and women’s teams last season.`\
 https://nytimes.com/athletic/6538799/2025/08/06/chelsea-stamford-bridge-trophy-celebration/
-
-**Tiny Love Stories: ‘Let Joy Back In’**\
-`Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
-https://nytimes.com/2025/08/06/style/tiny-modern-love-stories-let-joy-back-in.html
-
-**Ipswich reject Forest bid for Hutchinson**\
-`The 21-year-old scored three goals for Ipswich in the Premier League last season.`\
-https://nytimes.com/athletic/6493315/2025/08/06/omari-hutchinson-ipswich-town-nottingham-forest-bid/
-
-**Teenager Is Stabbed to Death Near Bronx Playground**\
-`The boy, Angel Mendoza, 14, died of his injuries on Tuesday after being attacked by a group of teenagers, the police and witnesses said. A 17-year-old was wounded.`\
-https://nytimes.com/2025/08/06/nyregion/bronx-teen-stabbing-death.html
 
