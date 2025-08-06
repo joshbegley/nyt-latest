@@ -1,3 +1,7 @@
+**Kennedy Cancels Nearly $500 Million in mRNA Vaccine Contracts**\
+`That kind of shot was first used during the Covid-19 pandemic, but the health secretary has been sharply critical of the technology.`\
+https://nytimes.com/2025/08/05/health/rfk-jr-vaccine-funding.html
+
 **Jerry Jones not confident Micah Parsons will be on the field Week 1**\
 `"We will work through it or we will not work through it,” Jones said Tuesday after the Cowboys and Rams held a joint practice.`\
 https://nytimes.com/athletic/6536650/2025/08/05/micah-parsons-cowboys-jerry-jones-contract-dispute/
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/08/05/us/trump-news/trump-blocked-fema-disaster-pr
 **Phillies' José Alvarado returns to team albeit with caveats after PED suspension**\
 `Alvarado apologized to his teammates, coaches, and staff members in a brief meeting Tuesday afternoon.`\
 https://nytimes.com/athletic/6537486/2025/08/05/philadelphia-phillies-jose-alvarado-return/
-
-**Gaza’s Hunger Crisis: ‘If We Don’t Fight, We Don’t Get Anything.’**\
-`After facing international criticism for its hand in Gaza’s food shortage, Israel has allowed nations to parachute in aid. However, international aid officials say it’s still not enough.`\
-https://nytimes.com/video/world/middleeast/100000010324273/gaza-hunger-crisis-air-drop.html
 
