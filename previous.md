@@ -1,40 +1,40 @@
-**Truce Quiets Syrian City Torn by Sectarian Clashes**\
-`The fighting has stopped in the southern city of Sweida, three weeks after a deadly eruption of violence. But the area remains tense as clashes continue beyond the city.`\
-https://nytimes.com/2025/08/06/world/middleeast/syria-truce-sweida.html
+**How to watch the FedEx St. Jude Championship: TV, Tee times, weather as playoffs begin**\
+`The FedEx St. Jude Championship awards 2,000 points and trims the field to 50, so every swing is about surviving the cut.`\
+https://nytimes.com/athletic/6537284/2025/08/06/fedex-st-jude-championship-golf-2025-how-to-watch/
 
-**Inside Evan Neal's transition to guard: 'Nothing's ever perfect ... but I'm on the way'**\
-`Neal failed to develop into the tackle the Giants believed he could be. Now, they're hoping a move to guard will help unlock his potential.`\
-https://nytimes.com/athletic/6535649/2025/08/06/ny-giants-evan-neal-guard/
+**Six things we've learned after two weeks of Chiefs training camp**\
+`Josh Simmons, Omarr Norman-Lott, Rashee Rice and Tyquan Thornton are among the standouts in Chiefs camp.`\
+https://nytimes.com/athletic/6535909/2025/08/06/chiefs-training-camp-josh-simmons-rashee-rice/
 
-**The New York Times International Edition in Print for Thursday, Aug. 7, 2025**\
-``\
-https://nytimes.com/issue/todaysinyt/2025/08/06/todays-new-york-times-international-edition
+**Jed Hoyer takes responsibility for potential bad bet on Michael Soroka**\
+`Soroka’s injury can’t come as much of a surprise. The veteran righty has battled injuries throughout his career.`\
+https://nytimes.com/athletic/6537654/2025/08/06/cubs-jed-hoyer-michael-soroka/
 
-**Statue of French General Accused of Torture Divides His Hometown**\
-`An effort to have a statue of Marcel Bigeard removed has reignited the debate over how the colonial past should be remembered.`\
-https://nytimes.com/2025/08/06/world/europe/france-statue-toul.html
+**Clayton Kershaw, Max Scherzer and the unlikely symmetry of Sept. 7, 2008**\
+`One day in September, 17 years ago, two future Hall of Famers replaced two future Hall of Famers in a unique bit of baseball lore.`\
+https://nytimes.com/athletic/6531078/2025/08/06/clayton-kershaw-max-scherzer-rookie-meeting-diamondbacks-dodgers/
 
-**Yankees’ Aaron Boone explains keeping in Devin Williams only for him to fail again in brutal loss to Rangers**\
-`The Yankees lost for their fifth consecutive game, all since the trade deadline.`\
-https://nytimes.com/athletic/6537750/2025/08/06/yankees-aaron-boone-devin-williams/
+**College football 2025 Hope-O-Meter survey: How optimistic are you about your team?**\
+`Tell us how you're feeling about your team's chances this season for our annual survey.`\
+https://nytimes.com/athletic/6536351/2025/08/06/college-football-2025-season-fan-survey/
 
-**Ohtani is back on the mound after injury scare. Here's how to watch him pitch vs. Cards**\
-`It's Shohei Ohtani double-duty day in Chavez Ravine. Here's how to tune in for his start against the St. Louis Cardinals.`\
-https://nytimes.com/athletic/6536903/2025/08/06/shohei-ohtani-pitching-injury-dodgers-cardinals-how-to-watch/
+**Why NBA rookie contract extensions are harder now and what to expect with 2022 class**\
+`A few deals are already done, but there's plenty of time for more movement between now and October.`\
+https://nytimes.com/athletic/6529620/2025/08/06/nba-offseason-rookie-contract-extensions/
 
-**Rebuilding Faces, Lives and a Sense of Self in Ukraine**\
-`Surgeons have made significant strides in tending to the war’s wounded, particularly through the use of 3-D printing, creating patient-specific implants and surgical guides.`\
-https://nytimes.com/2025/08/06/world/europe/ukraine-war-facial-reconstruction.html
+**How Mikaela Shiffrin got put back together for another run at Olympic skiing glory**\
+`A November crash upended the Alpine skiing GOAT's season. This is the story of how she recovered and got back on the mountain.`\
+https://nytimes.com/athletic/6515780/2025/08/06/mikaela-shiffrin-crash-injury-recovery-olympics-alpine-skiing/
 
-**Falcons WR Drake London is much more than the 'angry dude' he appears to be on the field**\
-`London was fourth in the NFL in receiving yards last year. Falcons quarterback Michael Penix Jr. thinks he'll be even better this year.`\
-https://nytimes.com/athletic/6534953/2025/08/06/drake-london-atlanta-falcons-angry-dude/
+**F1 mailbag: How will McLaren manage two drivers vying for the same crown?**\
+`F1 is heading into its annual August shutdown break, after a thrilling 2025 Hungarian GP. We answer your questions on that race`\
+https://nytimes.com/athletic/6536996/2025/08/06/f1-mailbag-lando-norris-oscar-piastri-hungarian-gp/
 
-**Will Watching ‘The Devil Wears Prada 2’ Be as Enjoyable as Watching the Filming?**\
-`Shooting on the streets of New York has meant a very public experience of a movie that won’t be out for months. It has also set up a clash with anti-spoiler culture.`\
-https://nytimes.com/2025/08/06/movies/devil-wears-prada-2-meryl-streep-anne-hathaway.html
+**The magic behind Brian Flores' Minnesota Vikings defense unlike any other**\
+`Flores' elaborate disguises keep offenses guessing and he allows his players to be a big part of the creative process.`\
+https://nytimes.com/athletic/6522020/2025/08/06/minnesota-vikings-defese-brian-flores-scheme-breakdown/
 
-**A Ranch Four Times the Size of New York City for $79.5 Million**\
-`A vast ranch in central Wyoming straddles four counties and is equipped for commercial cattle operations, with a riding arena, a church and mountain views.`\
-https://nytimes.com/2025/08/06/realestate/ranch-sale-million-acre-wyoming.html
+**More Money Was Supposed to Help Poor Kids. So Why Didn’t It?**\
+`A new study may undercut the idea that cash payments to low-income families can end the cycle of childhood poverty.`\
+https://nytimes.com/2025/08/06/podcasts/the-daily/cash-payments-poor-kids-study.html
 
