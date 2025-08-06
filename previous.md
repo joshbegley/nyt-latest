@@ -1,3 +1,7 @@
+**Active Shooting With Casualties Is Reported at Fort Stewart Airfield**\
+`The military base in Georgia went into lockdown just after 11 a.m., the authorities said.`\
+https://nytimes.com/2025/08/06/us/fort-stewart-airfield-active-shooter.html
+
 **The Best Movies and TV Shows Coming to Netflix in August**\
 `This month includes the return of Wednesday Addams and a new series from the creative minds behind “BoJack Horseman.”`\
 https://nytimes.com/2025/08/06/arts/television/netflix-best-new-movies-tv-shows.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/06/well/fawning-book.html
 **Trump to Double India’s Tariff as Punishment for Buying Russian Oil**\
 `Tariffs on Indian exports to the United States will surge to 50 percent by late August, as part of an effort by President Trump to pressure Russia into resolving its war in Ukraine.`\
 https://nytimes.com/2025/08/06/us/politics/trump-india-tariffs-russia-oil.html
-
-**Disney+ set to broadcast one La Liga game per week in UK and Ireland deal**\
-`Pay-per-view channel Premier Sports will continue as the main broadcaster of La Liga in the UK and Ireland.`\
-https://nytimes.com/athletic/6538290/2025/08/06/disney-la-liga-uk-ireland-broadcast-deal/
 

@@ -1,3 +1,7 @@
+**Active Shooting With Casualties Is Reported at Fort Stewart Airfield**\
+`The military base in Georgia went into lockdown just after 11 a.m., the authorities said.`\
+https://nytimes.com/2025/08/06/us/fort-stewart-airfield-active-shooter.html
+
 **Jaycee Horn involved in car accident, won't play Friday vs. Browns**\
 `Dave Canales said Jaycee Horn received stitches in his left hand. Horn later posted that he was OK after the incident.`\
 https://nytimes.com/athletic/6538372/2025/08/06/panthers-jaycee-horn-car-accident/
