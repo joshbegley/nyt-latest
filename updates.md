@@ -1,3 +1,19 @@
+**NASA Lunar Reactor Directive**\
+`A new NASA directive calls for launching a nuclear power reactor to the moon by 2030.`\
+https://nytimes.com/interactive/2025/08/06/science/nasa-nuclear-directive-sean-duffy.html
+
+**Beyoncé Isn’t Giving Up on America**\
+`The superstar’s Cowboy Carter Tour was her most political one yet, our critic Wesley Morris says on “Cannonball.” But it was, somehow, also for everyone.`\
+https://nytimes.com/video/podcasts/100000010326438/beyonce-cowboy-carter-tour.html
+
+**The Return of Family Separation**\
+`President Trump has revived his first-term policy of separating migrant children from their parents, and the more targeted version is happening far from the border.`\
+https://nytimes.com/2025/08/06/us/politics/trump-immigration-family-separation.html
+
+**SUNY Downstate Hospital Official Sentenced for Stealing $1.4 Million**\
+`Dr. Michael Lucchesi, the former chairman of emergency medicine, used hospital funds on personal vacations, concert tickets and luxury pet care.`\
+https://nytimes.com/2025/08/06/nyregion/suny-downstate-hospital-official-theft.html
+
 **Lawrence A. Bossidy, Who Led a Major Corporate Turnaround, Dies at 90**\
 `He took over the reins of the troubled Allied Signal in 1991 and within a few years made it one of America’s best-run and most profitable companies.`\
 https://nytimes.com/2025/08/06/business/lawrence-a-bossidy-dead.html

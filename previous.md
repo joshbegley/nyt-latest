@@ -1,3 +1,19 @@
+**NASA Lunar Reactor Directive**\
+`A new NASA directive calls for launching a nuclear power reactor to the moon by 2030.`\
+https://nytimes.com/interactive/2025/08/06/science/nasa-nuclear-directive-sean-duffy.html
+
+**Beyoncé Isn’t Giving Up on America**\
+`The superstar’s Cowboy Carter Tour was her most political one yet, our critic Wesley Morris says on “Cannonball.” But it was, somehow, also for everyone.`\
+https://nytimes.com/video/podcasts/100000010326438/beyonce-cowboy-carter-tour.html
+
+**The Return of Family Separation**\
+`President Trump has revived his first-term policy of separating migrant children from their parents, and the more targeted version is happening far from the border.`\
+https://nytimes.com/2025/08/06/us/politics/trump-immigration-family-separation.html
+
+**SUNY Downstate Hospital Official Sentenced for Stealing $1.4 Million**\
+`Dr. Michael Lucchesi, the former chairman of emergency medicine, used hospital funds on personal vacations, concert tickets and luxury pet care.`\
+https://nytimes.com/2025/08/06/nyregion/suny-downstate-hospital-official-theft.html
+
 **Lawrence A. Bossidy, Who Led a Major Corporate Turnaround, Dies at 90**\
 `He took over the reins of the troubled Allied Signal in 1991 and within a few years made it one of America’s best-run and most profitable companies.`\
 https://nytimes.com/2025/08/06/business/lawrence-a-bossidy-dead.html
@@ -21,20 +37,4 @@ https://nytimes.com/2025/08/06/world/asia/trump-india-tariffs.html
 **Cubs' Cade Horton rewarding club's faith in him at the trade deadline**\
 `The rookie tossed 5 2/3 shutout frames, striking out six and walking none, having allowed just two hits on 67 pitches. `\
 https://nytimes.com/athletic/6539348/2025/08/06/chicago-cubs-cade-horton-development/
-
-**On the Hunt for Spies, Iran Executes a Nuclear Scientist**\
-`After the war with Israel, Iranian authorities have swept up hundreds of people deemed suspected infiltrators. But the arrest and hanging of the nuclear scientist Roozbeh Vadi was a rare move.`\
-https://nytimes.com/2025/08/06/world/middleeast/iran-executes-nuclear-scientist-espionage.html
-
-**Man Who Vowed on TikTok to Kill Trump Will Plead Guilty, Court Records Show**\
-`Before the inauguration, Jacob Buckley, of Port Matilda, Pa., wrote “Bro we going into a literal oligarchy in 4 days and im going to kill Trump,” prosecutors said.`\
-https://nytimes.com/2025/08/06/us/pennsylvania-man-tiktok-threat-trump.html
-
-**Charleston’s Climate Lawsuit Against Oil Giants Is Dismissed**\
-`The legal claim, one of a raft of lawsuits across the country, had accused companies of a yearslong disinformation campaign about climate change.`\
-https://nytimes.com/2025/08/06/climate/charleston-climate-lawsuit-oil-companies.html
-
-**Son Heung-min says LAFC "changed my heart" after MLS unveiling**\
-`The South Korean superstar was unveiled in Los Angeles on Wednesday.`\
-https://nytimes.com/athletic/6539260/2025/08/06/son-heung-min-lafc-press-conference-south-korea-mls/
 
