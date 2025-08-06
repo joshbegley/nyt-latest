@@ -1,3 +1,11 @@
+**Republicans Raise the Pressure on Texas Democrats to End Their Walkout**\
+`The political and legal threats against Democrats who left Texas to protest a redrawn political map have gone further and faster than many anticipated.`\
+https://nytimes.com/2025/08/06/us/politics/texas-redistricting.html
+
+**Where the Redistricting Wars Might Go After Texas**\
+`Texas Democrats may have bought their party some time with their walkout, but both parties are mobilizing to redraw U.S. House maps ahead of the midterms.`\
+https://nytimes.com/2025/08/06/us/politics/redistricting-states.html
+
 **Bills, James Cook enter a staring contest over contract. How could it end?**\
 `James Cook took an unusual route by practicing and then beginning a hold-in.`\
 https://nytimes.com/athletic/6539062/2025/08/06/buffalo-bills-james-cook-contract/
@@ -29,12 +37,4 @@ https://nytimes.com/video/us/100000010327722/fort-stewart-shooter-custody.html
 **Mike Vrabel bloodied as Patriots put together a joint practice to inspire confidence**\
 `The coach's face was cut while he tried to break up a fight as the Patriots showed some spunk in Wednesday's practice with the Commanders.`\
 https://nytimes.com/athletic/6538816/2025/08/06/mike-vrabel-cut-patriots-commanders-joint-practice/
-
-**Tracking Tropical Storm Ivo**\
-`See the likely path and wind arrival times for Ivo`\
-https://nytimes.com/interactive/2025/08/06/weather/tropical-storm-ivo-hurricane-mexico.html
-
-**How Much Did You Spend on Your Wedding? We’d Love to Hear.**\
-`Did you have a modest or extravagant budget? Or did you land somewhere in between? We’re interested in how much you spent, what you splurged on or how you cut costs.`\
-https://nytimes.com/2025/08/06/fashion/weddings/wedding-cost-callout.html
 
