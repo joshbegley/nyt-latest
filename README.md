@@ -1,14 +1,18 @@
+**TAFC: What are Wrexham's chances of promotion to PL? Plus: Man Utd close in on Sesko**\
+`Today in TAFC: Wrexham's potential to seal four successive promotions, Sesko on the cusp of a Man Utd move, what can poker teach football?`\
+https://nytimes.com/athletic/6537927/2025/08/06/wrexham-premier-league-promotion-manchester-united-sesko-transfer/
+
 **Mandel's Mailbag: Is this college football's best Week 1 ever?**\
 `Also: A Big 12-themed amusement park, seasoned veterans vs. first-time QB and the most interesting CFP championship matchup.`\
 https://nytimes.com/athletic/6537527/2025/08/06/mandels-mailbag-week-1-rankings-college-football-playoff/
 
 **Cowboys-Rams observations: What we saw from both teams in their joint practice**\
-`The Cowboys' running game wasn't sharp against the Rams as Brian Schottenheimer kept things vanilla on offense. `\
+`The Cowboys' running game wasn't sharp against the Rams and Matthew Stafford remained sidelined for the Rams. `\
 https://nytimes.com/athletic/6537818/2025/08/06/cowboys-rams-joint-practice-observations/
 
 **Trump Suggests Vance is MAGA Movement’s Heir Apparent**\
 `President Trump said Vice President JD Vance was “probably favorite at this point” to succeed him as leader of the hard-right political movement.`\
-https://nytimes.com/2025/08/06/us/politics/trump-suggests-vance-is-maga-movements-heir-apparent.html
+https://nytimes.com/2025/08/06/us/politics/trump-vance-rubio-maga-2028.html
 
 **New York Times Revenue Jumps 9.7% From Subscriptions and Ads**\
 `The company added 230,000 digital-only subscribers in the second quarter. It now has 11.88 million total subscribers.`\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6537179/2025/08/06/pga-tour-cameron-young-ryder-cup
 **O'Connor: PGA Tour’s FedEx Cup is a joke of a playoff system with an easy fix**\
 `If the PGA Tour wants the postseason to be taken seriously, it will separate it from the regular season. No points carryovers.`\
 https://nytimes.com/athletic/6537111/2025/08/06/pga-fedex-cup-golf-playoff-system/
-
-**Son Heung-min to LAFC a rare picture-perfect signing on all fronts**\
-`Son leaving Spurs for L.A. is "like our wildest dream," says a leader of LAFC's Korean supporters group.`\
-https://nytimes.com/athletic/6530329/2025/08/06/son-heung-min-lafc-tottenham-mls-transfer-south-korea/
 
