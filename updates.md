@@ -1,3 +1,7 @@
+**Jaycee Horn involved in car accident, won't play Friday vs. Browns**\
+`Dave Canales said Jaycee Horn received stitches in his left hand. Horn later posted that he was OK after the incident.`\
+https://nytimes.com/athletic/6538372/2025/08/06/panthers-jaycee-horn-car-accident/
+
 **The Best Movies and TV Shows Coming to Netflix in August**\
 `This month includes the return of Wednesday Addams and a new series from the creative minds behind “BoJack Horseman.”`\
 https://nytimes.com/2025/08/06/arts/television/netflix-best-new-movies-tv-shows.html
