@@ -1,3 +1,7 @@
+**Phillies takeaways: Pitching roles in flux with Wheeler's sore shoulder, Romano's struggles**\
+`Plus: The Phillies are much improved in the infield defensively, and that's helping a staff that induces lots of groundballs.`\
+https://nytimes.com/athletic/6538989/2025/08/06/phillies-takeaways-zack-wheeler-jordan-romano/
+
 **Browns excited to see Shedeur Sanders get in-game action in preseason opener**\
 `Sanders received light work in the joint practice session with the Panthers, but the competitor in him is ready for Friday night. `\
 https://nytimes.com/athletic/6538818/2025/08/06/shedeur-sanders-browns-practice-panthers/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6538889/2025/08/06/teddy-bridgewater-miami-high-sch
 **Trump Tells European Leaders He Intends to Meet With Putin and Zelensky**\
 `President Trump has been stymied for months in his efforts to find a peace agreement between Russia and Ukraine, after more than three years of war.`\
 https://nytimes.com/2025/08/06/us/politics/trump-meeting-putin-zelensky.html
-
-**Sporting CP make Jota enquiry to Nottingham Forest**\
-`If a deal progresses, talks are expected to centre around a loan move for the 26-year-old.`\
-https://nytimes.com/athletic/6538022/2025/08/06/sporting-forest-jota-silva-enquiry/
 

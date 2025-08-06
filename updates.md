@@ -1,3 +1,7 @@
+**Phillies takeaways: Pitching roles in flux with Wheeler's sore shoulder, Romano's struggles**\
+`Plus: The Phillies are much improved in the infield defensively, and that's helping a staff that induces lots of groundballs.`\
+https://nytimes.com/athletic/6538989/2025/08/06/phillies-takeaways-zack-wheeler-jordan-romano/
+
 **Browns excited to see Shedeur Sanders get in-game action in preseason opener**\
 `Sanders received light work in the joint practice session with the Panthers, but the competitor in him is ready for Friday night. `\
 https://nytimes.com/athletic/6538818/2025/08/06/shedeur-sanders-browns-practice-panthers/
