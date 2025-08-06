@@ -1,3 +1,19 @@
+**Trump Administration Begins to Strip Federal Workers of Union Protections**\
+`The Department of Veterans Affairs appeared to be the first agency to begin terminating union contracts, affecting 320,000 of its workers.`\
+https://nytimes.com/live/2025/08/04/us/trump-news/trump-federal-workers-unions
+
+**Giants takeaways: Ryan Walker gets there inch by inch, more bad luck for Jerar Encarnacion**\
+`Walker remains in pursuit of last season's dominance, Patrick Bailey's bat is finally heating up and other post-trade deadline developments.`\
+https://nytimes.com/athletic/6539333/2025/08/06/giants-ryan-walker-jerar-encarnacion-takeaways/
+
+**Trump’s Tariff Gamble Puts America’s Ties With India at Risk**\
+`As the president pursues his goals on Russia and trade, America’s relationship with an important partner in Asia could end up as collateral damage.`\
+https://nytimes.com/2025/08/06/world/asia/trump-india-tariffs.html
+
+**Cubs' Cade Horton rewarding club's faith in him at the trade deadline**\
+`The rookie tossed 5 2/3 shutout frames, striking out six and walking none, having allowed just two hits on 67 pitches. `\
+https://nytimes.com/athletic/6539348/2025/08/06/chicago-cubs-cade-horton-development/
+
 **On the Hunt for Spies, Iran Executes a Nuclear Scientist**\
 `After the war with Israel, Iranian authorities have swept up hundreds of people deemed suspected infiltrators. But the arrest and hanging of the nuclear scientist Roozbeh Vadi was a rare move.`\
 https://nytimes.com/2025/08/06/world/middleeast/iran-executes-nuclear-scientist-espionage.html
@@ -21,20 +37,4 @@ https://nytimes.com/2025/08/06/us/politics/texas-redistricting.html
 **Where the Redistricting Wars Might Go After Texas**\
 `Texas Democrats may have bought their party some time with their walkout, but both parties are mobilizing to redraw U.S. House maps ahead of the midterms.`\
 https://nytimes.com/2025/08/06/us/politics/redistricting-states.html
-
-**Bills, James Cook enter a staring contest over contract. How could it end?**\
-`James Cook took an unusual route by practicing and then beginning a hold-in.`\
-https://nytimes.com/athletic/6539062/2025/08/06/buffalo-bills-james-cook-contract/
-
-**Trump Directed His Wrath at India**\
-`Also, the president said he intends to meet with Putin and Zelensky. Here’s the latest at the end of Wednesday.`\
-https://nytimes.com/2025/08/06/briefing/trump-india-tariffs-china-ai-information-warfare.html
-
-**Burnley complete Ugochukwu signing**\
-`The 21-year-old has signed a five-year contract at Turf Moor.`\
-https://nytimes.com/athletic/6539269/2025/08/06/lesley-ugochukwu-burnley-chelsea-transfer/
-
-**Judges Press for Answers on Federal Involvement in Florida’s ‘Alligator Alcatraz’**\
-`As environmentalists made the case on Wednesday to stop operations, what was most striking was how many significant questions remained unanswered about the immigration detention center.`\
-https://nytimes.com/2025/08/06/us/florida-alligator-alcatraz-environment-lawsuit.html
 
