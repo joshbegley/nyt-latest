@@ -1,3 +1,15 @@
+**TAFC: What are Wrexham's chances of promotion to PL? Plus: Man Utd close in on Sesko**\
+`Today in TAFC: Wrexham's potential to seal four successive promotions, Sesko on the cusp of a Man Utd move, what can poker teach football?`\
+https://nytimes.com/athletic/6537927/2025/08/06/wrexham-premier-league-promotion-manchester-united-sesko-transfer/
+
+**Cowboys-Rams observations: What we saw from both teams in their joint practice**\
+`The Cowboys' running game wasn't sharp against the Rams and Matthew Stafford remained sidelined for the Rams. `\
+https://nytimes.com/athletic/6537818/2025/08/06/cowboys-rams-joint-practice-observations/
+
+**Trump Suggests Vance is MAGA Movement’s Heir Apparent**\
+`President Trump said Vice President JD Vance was “probably favorite at this point” to succeed him as leader of the hard-right political movement.`\
+https://nytimes.com/2025/08/06/us/politics/trump-vance-rubio-maga-2028.html
+
 **Mandel's Mailbag: Is this college football's best Week 1 ever?**\
 `Also: A Big 12-themed amusement park, seasoned veterans vs. first-time QB and the most interesting CFP championship matchup.`\
 https://nytimes.com/athletic/6537527/2025/08/06/mandels-mailbag-week-1-rankings-college-football-playoff/
