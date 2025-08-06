@@ -1,3 +1,7 @@
+**Claire’s, Teen Jewelry Chain, Files for Bankruptcy a 2nd Time**\
+`Once ubiquitous for ear piercing at the mall, Claire’s faced financial volatility along with other bricks-and-mortar retailers. It last filed for bankruptcy in 2018.`\
+https://nytimes.com/2025/08/06/business/claires-jewelry-bankruptcy-tariffs.html
+
 **Stanford Newspaper Challenges Legal Basis for Student Deportations**\
 `A new lawsuit brought by a First Amendment watchdog group argues that the use of a rarely invoked immigration law to target pro-Palestinian demonstrators is unconstitutional.`\
 https://nytimes.com/2025/08/06/us/politics/stanford-lawsuit-student-activist-deportations.html

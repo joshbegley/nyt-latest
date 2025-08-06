@@ -1,3 +1,7 @@
+**Everton sign £25m Dewsbury-Hall from Chelsea**\
+`The former Leicester midfielder has signed a five-year contract at Everton.`\
+https://nytimes.com/athletic/6534510/2025/08/06/dewsbury-hall-everton-transfer-chelsea/
+
 **Claire’s, Teen Jewelry Chain, Files for Bankruptcy a 2nd Time**\
 `Once ubiquitous for ear piercing at the mall, Claire’s faced financial volatility along with other bricks-and-mortar retailers. It last filed for bankruptcy in 2018.`\
 https://nytimes.com/2025/08/06/business/claires-jewelry-bankruptcy-tariffs.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/06/world/europe/alec-luhn-norway-found.html
 **Tim Weah completes Marseille transfer from Juventus**\
 `The USMNT winger will join the Ligue 1 club on a loan agreement with an obligation to buy.`\
 https://nytimes.com/athletic/6454565/2025/08/06/usmnt-tim-weah-transfer-marseille/
-
-**Third WNBA game interrupted by a sex toy. What are players, coaches saying?**\
-`"It's dumb, it's stupid," the Sparks coach said after Tuesday's game. `\
-https://nytimes.com/athletic/6537792/2025/08/06/sophie-cunningham-sex-toy-wnba-indiana-fever/
 
