@@ -1,3 +1,7 @@
+**Adams Is Again Denied Matching Funds as Cuomo Lobbies Executives**\
+`As New York’s mayor was dealt another setback in his long-shot campaign for re-election, Andrew Cuomo met with business leaders to argue that he’s a better choice for centrist voters.`\
+https://nytimes.com/2025/08/06/nyregion/eric-adams-public-matching-funds-denied-re-election.html
+
 **Phillies takeaways: Pitching roles in flux with Wheeler's sore shoulder, Romano's struggles**\
 `Plus: The Phillies are much improved in the infield defensively, and that's helping a staff that induces lots of groundballs.`\
 https://nytimes.com/athletic/6538989/2025/08/06/phillies-takeaways-zack-wheeler-jordan-romano/
