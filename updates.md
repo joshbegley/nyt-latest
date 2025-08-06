@@ -1,3 +1,15 @@
+**Chelsea men's and women's teams celebrate trophy wins at Stamford Bridge**\
+`The club celebrated the five trophies won by their men’s and women’s teams last season.`\
+https://nytimes.com/athletic/6538799/2025/08/06/chelsea-stamford-bridge-trophy-celebration/
+
+**Tiny Love Stories: ‘Let Joy Back In’**\
+`Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
+https://nytimes.com/2025/08/06/style/tiny-modern-love-stories-let-joy-back-in.html
+
+**Ipswich Town reject Nottingham Forest bid for Omari Hutchinson**\
+`The 21-year-old scored three goals for Ipswich in the Premier League last season.`\
+https://nytimes.com/athletic/6493315/2025/08/06/omari-hutchinson-ipswich-town-nottingham-forest-bid/
+
 **Teenager Is Stabbed to Death Near Bronx Playground**\
 `The boy, Angel Mendoza, 14, died of his injuries on Tuesday after being attacked by a group of teenagers, the police and witnesses said. A 17-year-old was wounded.`\
 https://nytimes.com/2025/08/06/nyregion/bronx-teen-stabbing-death.html
