@@ -1,3 +1,11 @@
+**Statue of French General Accused of Torture Divides His Hometown**\
+`An effort to have a statue of Marcel Bigeard removed has reignited the debate over how the colonial past should be remembered.`\
+https://nytimes.com/2025/08/06/world/europe/france-statue-toul.html
+
+**Yankees’ Aaron Boone explains keeping in Devin Williams only for him to fail again in brutal loss to Rangers**\
+`The Yankees lost for their fifth consecutive game, all since the trade deadline.`\
+https://nytimes.com/athletic/6537750/2025/08/06/yankees-aaron-boone-devin-williams/
+
 **Ohtani is back on the mound after injury scare. Here's how to watch him pitch vs. Cards**\
 `It's Shohei Ohtani double-duty day in Chavez Ravine. Here's how to tune in for his start against the St. Louis Cardinals.`\
 https://nytimes.com/athletic/6536903/2025/08/06/shohei-ohtani-pitching-injury-dodgers-cardinals-how-to-watch/
