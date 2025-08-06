@@ -1,3 +1,11 @@
+**4 Dead After Medical Transport Plane Crashes in Arizona**\
+`The plane was landing at Chinle Municipal Airport in the Navajo Nation in Arizona to pick up a patient for a medical transfer. It was not immediately clear what had caused the crash.`\
+https://nytimes.com/2025/08/05/us/medical-transport-plane-crash-arizona-navajo-nation.html
+
+**Park Avenue Gunman’s Mental Health Crises Are Detailed in Police Records**\
+`The Las Vegas police released documents and records describing the mental health breakdowns that the man who killed four people in a New York building had earlier faced.`\
+https://nytimes.com/2025/08/05/nyregion/park-avenue-gunman-mental-health.html
+
 **Kennedy Cancels Nearly $500 Million in mRNA Vaccine Contracts**\
 `That kind of shot was first used during the Covid-19 pandemic, but the health secretary has been sharply critical of the technology.`\
 https://nytimes.com/2025/08/05/health/rfk-jr-vaccine-funding.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6537445/2025/08/05/ravens-colts-practice-lamar-jack
 **With Canada No Longer Able to Rely on U.S., Carney Pushes New Markets**\
 `Prime Minister Mark Carney suggested he’s unlikely to add additional retaliatory tariffs on U.S. goods, but he is trying to help affected companies develop new products and find new buyers.`\
 https://nytimes.com/2025/08/05/world/canada/canada-carney-tariffs-response.html
-
-**A judge blocks FEMA from repurposing disaster mitigation funding.**\
-`A federal judge in Massachusetts said the Trump administration’s move to redirect $4 billion left states exposed to damage from natural disasters.`\
-https://nytimes.com/live/2025/08/05/us/trump-news/trump-blocked-fema-disaster-prep-funds
-
-**Phillies' José Alvarado returns to team albeit with caveats after PED suspension**\
-`Alvarado apologized to his teammates, coaches, and staff members in a brief meeting Tuesday afternoon.`\
-https://nytimes.com/athletic/6537486/2025/08/05/philadelphia-phillies-jose-alvarado-return/
 

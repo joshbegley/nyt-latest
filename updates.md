@@ -1,3 +1,11 @@
+**4 Dead After Medical Transport Plane Crashes in Arizona**\
+`The plane was landing at Chinle Municipal Airport in the Navajo Nation in Arizona to pick up a patient for a medical transfer. It was not immediately clear what had caused the crash.`\
+https://nytimes.com/2025/08/05/us/medical-transport-plane-crash-arizona-navajo-nation.html
+
+**Park Avenue Gunman’s Mental Health Crises Are Detailed in Police Records**\
+`The Las Vegas police released documents and records describing the mental health breakdowns that the man who killed four people in a New York building had earlier faced.`\
+https://nytimes.com/2025/08/05/nyregion/park-avenue-gunman-mental-health.html
+
 **Kennedy Cancels Nearly $500 Million in mRNA Vaccine Contracts**\
 `That kind of shot was first used during the Covid-19 pandemic, but the health secretary has been sharply critical of the technology.`\
 https://nytimes.com/2025/08/05/health/rfk-jr-vaccine-funding.html
