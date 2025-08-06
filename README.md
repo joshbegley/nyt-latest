@@ -1,3 +1,27 @@
+**How ‘Fawning’ Is Ruining Your Relationships**\
+`Excessive people pleasing can trap you in a cycle of insecurity. Here’s how to break the habit.`\
+https://nytimes.com/2025/08/06/well/fawning-book.html
+
+**Trump to Double India’s Tariff as Punishment for Buying Russian Oil**\
+`Tariffs on Indian exports to the United States will surge to 50 percent by late August, as part of an effort by President Trump to pressure Russia into resolving its war in Ukraine.`\
+https://nytimes.com/2025/08/06/us/politics/trump-india-tariffs-russia-oil.html
+
+**Disney+ set to broadcast one La Liga game per week in UK and Ireland deal**\
+`Pay-per-view channel Premier Sports will continue as the main broadcaster of La Liga in the UK and Ireland.`\
+https://nytimes.com/athletic/6538290/2025/08/06/disney-la-liga-uk-ireland-broadcast-deal/
+
+**Dentists Know You Hate Flossing. Try This Instead.**\
+`You still have to clean between your teeth, but other tools might work even better.`\
+https://nytimes.com/2025/08/06/well/interdental-brushes-or-floss.html
+
+**These Golden Diner Pancakes Are Just as Good as You’ve Heard**\
+`The dreamy toppings are here, too: maple-honey syrup with a touch of soy sauce, maple-honey butter and a berry compote.`\
+https://nytimes.com/2025/08/06/dining/these-golden-diner-pancakes-are-just-as-good-as-youve-heard.html
+
+**The Windup: Two risers and a free-faller**\
+`Welcome to The Windup, The Athletic's MLB newsletter.`\
+https://nytimes.com/athletic/6537829/2025/08/06/yankees-rangers-red-sox-the-windup/
+
 **Trump to Announce Additional $100 Billion Apple Investment in U.S.**\
 `The pledge was a “significant acceleration” of the company’s plan for more production in the United States, according to a White House statement.`\
 https://nytimes.com/2025/08/06/us/politics/trump-apple-investment.html
@@ -13,28 +37,4 @@ https://nytimes.com/2025/08/06/world/europe/prince-harry-charity-sentebale.html
 **Key questions about the blockbuster, billion-dollar ESPN-NFL deal: MoneyCall**\
 `Welcome back to MoneyCall, The Athletic’s weekly sports business cheat sheet.`\
 https://nytimes.com/athletic/6538183/2025/08/06/espn-nfl-redzone-dtc-streaming-moneycall/
-
-**Tracking Tropical Storm Henriette**\
-`See the likely path and wind arrival times for Henriette`\
-https://nytimes.com/interactive/2025/08/06/weather/henriette-path-tracker.html
-
-**The Giants stumbled out of the gate the past 2 years. Can they avoid another slow start?**\
-`Should the Giants play their starters more during the preseason and hope that will be the cure for their slow starts?`\
-https://nytimes.com/athletic/6537650/2025/08/06/ny-giants-brian-daboll-preseason/
-
-**5 Memorable Moments From the Las Culturistas Culture Awards**\
-`The absurd event, created and hosted by Bowen Yang and Matt Rogers, featured countless jokes, ridiculous outfits and just a touch of sincerity.`\
-https://nytimes.com/2025/08/06/style/las-culturistas-awards-highlights.html
-
-**Man Who Lit Cigarette From Eternal Flame in Paris Is Arrested**\
-`A video showing the man casually walking across the Tomb of the Unknown Soldier beneath the Arc de Triomphe set off outrage in France.`\
-https://nytimes.com/2025/08/06/world/europe/france-cigarette-unknown-soldier-tomb.html
-
-**Despite Opposition, Netanyahu’s Cabinet to Discuss Gaza Military Push**\
-`Israeli Prime Minister Benjamin Netanyahu will meet with his cabinet on Thursday as the families of the hostages warn that moving into new areas could endanger the captives.`\
-https://nytimes.com/2025/08/06/world/middleeast/israel-gaza-occupation-netanyahu.html
-
-**Everton sign £25m Dewsbury-Hall from Chelsea**\
-`The former Leicester midfielder has signed a five-year contract at Everton.`\
-https://nytimes.com/athletic/6534510/2025/08/06/dewsbury-hall-everton-transfer-chelsea/
 
