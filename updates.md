@@ -1,3 +1,11 @@
+**City Council President and Pastor Advance in Detroit Mayoral Election**\
+`Mary Sheffield and Solomon Kinloch Jr. will face off in a November election. Mike Duggan, Detroit’s mayor for a dozen years, is not seeking re-election.`\
+https://nytimes.com/2025/08/06/us/elections/detroit-mayoral-election.html
+
+**Jerar Encarnacion returns with a bang as Giants finally power past pesky Pirates**\
+`A fractured a finger in spring training disrupted Encarnacion's season, but he has a chance to make up for lost time. `\
+https://nytimes.com/athletic/6537724/2025/08/06/giants-jerar-encarnacion-homer-jerry/
+
 **History lessons, house hunting and ready meals: How Liverpool help new players settle in**\
 `The process of helping new players feel at home is delicate but crucial - this is how Liverpool do it`\
 https://nytimes.com/athletic/6524568/2025/08/06/liverpool-new-signings-settle-in/
