@@ -1,3 +1,7 @@
+**Ipswich Town reject Nottingham Forest bid for Omari Hutchinson**\
+`The 21-year-old scored three goals for Ipswich in the Premier League last season.`\
+https://nytimes.com/athletic/6493315/2025/08/06/omari-hutchinson-ipswich-town-nottingham-forest-bid/
+
 **Teenager Is Stabbed to Death Near Bronx Playground**\
 `The boy, Angel Mendoza, 14, died of his injuries on Tuesday after being attacked by a group of teenagers, the police and witnesses said. A 17-year-old was wounded.`\
 https://nytimes.com/2025/08/06/nyregion/bronx-teen-stabbing-death.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6538637/2025/08/06/mlb-first-female-umpire-jen-pawo
 **Travis Kelce not tipping retirement decision in Chiefs training camp**\
 `Kelce is in noticeably better shape this summer as he approaches what could be his final NFL season.`\
 https://nytimes.com/athletic/6538506/2025/08/06/travis-kelce-chiefs-camp-retirement-decision/
-
-**What’s in Our Queue? ‘Love on the Spectrum’ and More**\
-`Text by Tess Felder`\
-https://nytimes.com/card/2025/08/06/arts/editors-recommendations-loveonthespectrum
 
