@@ -1,3 +1,11 @@
+**Trump Directed His Wrath at India**\
+`Also, the president said he intends to meet with Putin and Zelensky. Here’s the latest at the end of Wednesday.`\
+https://nytimes.com/2025/08/06/briefing/trump-india-tariffs-china-ai-information-warfare.html
+
+**Burnley complete Ugochukwu signing**\
+`The 21-year-old has signed a five-year contract at Turf Moor.`\
+https://nytimes.com/athletic/6539269/2025/08/06/lesley-ugochukwu-burnley-chelsea-transfer/
+
 **Judges Press for Answers on Federal Involvement in Florida’s ‘Alligator Alcatraz’**\
 `As environmentalists made the case on Wednesday to stop operations, what was most striking was how many significant questions remained unanswered about the immigration detention center.`\
 https://nytimes.com/2025/08/06/us/florida-alligator-alcatraz-environment-lawsuit.html

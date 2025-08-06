@@ -1,3 +1,11 @@
+**Trump Directed His Wrath at India**\
+`Also, the president said he intends to meet with Putin and Zelensky. Here’s the latest at the end of Wednesday.`\
+https://nytimes.com/2025/08/06/briefing/trump-india-tariffs-china-ai-information-warfare.html
+
+**Burnley complete Ugochukwu signing**\
+`The 21-year-old has signed a five-year contract at Turf Moor.`\
+https://nytimes.com/athletic/6539269/2025/08/06/lesley-ugochukwu-burnley-chelsea-transfer/
+
 **Judges Press for Answers on Federal Involvement in Florida’s ‘Alligator Alcatraz’**\
 `As environmentalists made the case on Wednesday to stop operations, what was most striking was how many significant questions remained unanswered about the immigration detention center.`\
 https://nytimes.com/2025/08/06/us/florida-alligator-alcatraz-environment-lawsuit.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/08/06/fashion/weddings/wedding-cost-callout.html
 **Thursday Briefing: Trump Threatens to Double India’s Tariffs**\
 `Also, a possible Russia-Ukraine-U.S. summit.`\
 https://nytimes.com/2025/08/06/briefing/india-tariff-trump-russia-ukraine-china-ai.html
-
-**Jewelry for a Day at the Beach**\
-`Plus: a new hotel in Marseille, watercolors on unexpected canvases and more recommendations from T Magazine.`\
-https://nytimes.com/2025/08/06/t-magazine/paris-summer-jewelry.html
-
-**Trent Williams navigates going out on top, while guiding a young 49ers tackle behind him**\
-`The All-Pro Williams isn't slowing down anytime soon, but this stage of career includes helping young tackles like Spencer Burford.`\
-https://nytimes.com/athletic/6538888/2025/08/06/spencer-burford-trent-williams-49ers-training-camp-preseason/
 
