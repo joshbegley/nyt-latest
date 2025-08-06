@@ -1,3 +1,7 @@
+**Statue of French General Accused of Torture Divides His Hometown**\
+`An effort to have a statue of Marcel Bigeard removed has reignited the debate over how the colonial past should be remembered.`\
+https://nytimes.com/2025/08/06/world/europe/france-statue-toul.html
+
 **Yankees’ Aaron Boone explains keeping in Devin Williams only for him to fail again in brutal loss to Rangers**\
 `The Yankees lost for their fifth consecutive game, all since the trade deadline.`\
 https://nytimes.com/athletic/6537750/2025/08/06/yankees-aaron-boone-devin-williams/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/06/books/review/coming-up-short-robert-reich.html
 **A Decade After It Opened, ‘Hamilton’ Feels Like a Warning**\
 `Why do we still think it’s only about Obama?`\
 https://nytimes.com/2025/08/06/opinion/hamilton-anniversary-musical-politics.html
-
-**Uber’s Sexual Assault Problem**\
-`Emily Steel, an investigative reporter for The New York Times, got access to sealed court documents revealing more than 400,000 reports of sexual assault or misconduct after Uber rides over six years.`\
-https://nytimes.com/video/business/100000010323329/ubers-sexual-assault-problem.html
 
