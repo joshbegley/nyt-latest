@@ -1,3 +1,11 @@
+**80 Years After Hiroshima, Japan Is a Big Defense Spender**\
+`It has been 80 years since the United States dropped an atomic bomb on Hiroshima in the world’s first nuclear attack. Hannah Beech, a reporter who covers Asia for The New York Times, explains how that moment shaped Japan’s approach to peace, and how that approach is beginning to change.`\
+https://nytimes.com/video/world/asia/100000010322352/80-years-after-hiroshima-japan-is-a-big-defense-spender.html
+
+**Experience, versatility and progressive passes: What Kiernan Dewsbury-Hall brings to Everton**\
+`If Dewsbury-Hall replicates his performances either with Leicester in 2023-24, or Chelsea in the Conference League, Everton will be stronger`\
+https://nytimes.com/athletic/6538373/2025/08/06/dewsbury-hall-everton-analysis/
+
 **Active Shooting With Casualties Is Reported at Fort Stewart Airfield**\
 `The military base in Georgia went into lockdown just after 11 a.m., the authorities said.`\
 https://nytimes.com/2025/08/06/us/fort-stewart-airfield-active-shooter.html

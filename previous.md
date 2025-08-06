@@ -1,6 +1,14 @@
+**80 Years After Hiroshima, Japan Is a Big Defense Spender**\
+`It has been 80 years since the United States dropped an atomic bomb on Hiroshima in the world’s first nuclear attack. Hannah Beech, a reporter who covers Asia for The New York Times, explains how that moment shaped Japan’s approach to peace, and how that approach is beginning to change.`\
+https://nytimes.com/video/world/asia/100000010322352/80-years-after-hiroshima-japan-is-a-big-defense-spender.html
+
 **Active Shooting With Casualties Is Reported at Fort Stewart Airfield**\
 `The military base in Georgia went into lockdown just after 11 a.m., the authorities said.`\
 https://nytimes.com/2025/08/06/us/fort-stewart-airfield-active-shooter.html
+
+**Experience, versatility and progressive passes: What Kiernan Dewsbury-Hall brings to Everton**\
+`If Dewsbury-Hall replicates his performances either with Leicester in 2023-24, or Chelsea in the Conference League, Everton will be stronger`\
+https://nytimes.com/athletic/6538373/2025/08/06/dewsbury-hall-everton-analysis/
 
 **The Best Movies and TV Shows Coming to Netflix in August**\
 `This month includes the return of Wednesday Addams and a new series from the creative minds behind “BoJack Horseman.”`\
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6538372/2025/08/06/panthers-jaycee-horn-car-acciden
 **China Turns to A.I. in Information Warfare**\
 `Documents examined by researchers show how one company in China has collected data on members of Congress and other influential Americans.`\
 https://nytimes.com/2025/08/06/us/politics/china-artificial-intelligence-information-warfare.html
-
-**How ‘Fawning’ Is Ruining Your Relationships**\
-`Excessive people pleasing can trap you in a cycle of insecurity. Here’s how to break the habit.`\
-https://nytimes.com/2025/08/06/well/fawning-book.html
-
-**Trump to Double India’s Tariff as Punishment for Buying Russian Oil**\
-`Tariffs on Indian exports to the United States will surge to 50 percent by late August, as part of an effort by President Trump to pressure Russia into resolving its war in Ukraine.`\
-https://nytimes.com/2025/08/06/us/politics/trump-india-tariffs-russia-oil.html
 
