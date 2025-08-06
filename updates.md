@@ -1,3 +1,7 @@
+**New Zealand Air Force Mounts Dangerous Rescue in Antarctica**\
+`Three staff members from the National Science Foundation were evacuated from a U.S. research base after a medical emergency. The mission is one of the most challenging for the air force.`\
+https://nytimes.com/2025/08/06/world/new-zealand-us-antarctic-base-rescue.html
+
 **Panthers joint practice observations: Tetairoa McMillan bounces back, Bryce Young praised**\
 `The rookie first-round receiver missed a smart pass from Bryce Young, but found the end zone on a slant later against the Browns.`\
 https://nytimes.com/athletic/6538992/2025/08/06/panthers-browns-practice-bryce-young-tetairoa-mcmillan/
