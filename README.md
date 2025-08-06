@@ -1,3 +1,7 @@
+**Tim Weah completes Marseille transfer from Juventus**\
+`The USMNT winger will join the Ligue 1 club on a loan agreement with an obligation to buy.`\
+https://nytimes.com/athletic/6454565/2025/08/06/usmnt-tim-weah-transfer-marseille/
+
 **Third WNBA game interrupted by a sex toy. What are players, coaches saying?**\
 `"It's dumb, it's stupid," the Sparks coach said after Tuesday's game. `\
 https://nytimes.com/athletic/6537792/2025/08/06/sophie-cunningham-sex-toy-wnba-indiana-fever/
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/08/06/us/trump-news
 **Disney, McDonald’s and the State of the U.S. Economy**\
 `The effects of President Trump’s trade war on households are expected to be a big focus in earnings calls held by major consumer-facing companies.`\
 https://nytimes.com/2025/08/06/business/dealbook/disney-mcdonalds-us-consumer.html
-
-**Italy Approves Project to Link Sicily to the Mainland by Bridge**\
-`The government says the road and rail link will create jobs and lift the economy of the region, but critics are concerned about the environmental and social impact.`\
-https://nytimes.com/2025/08/06/world/europe/italy-sicily-bridge.html
 
