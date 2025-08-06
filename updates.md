@@ -1,3 +1,11 @@
+**Despite Opposition, Netanyahu’s Cabinet to Discuss Gaza Military Push**\
+`Israeli Prime Minister Benjamin Netanyahu will meet with his cabinet on Thursday as the families of the hostages warn that moving into new areas could endanger the captives.`\
+https://nytimes.com/2025/08/06/world/middleeast/israel-gaza-occupation-netanyahu.html
+
+**Everton sign £25m Dewsbury-Hall from Chelsea**\
+`The former Leicester midfielder has signed a five-year contract at Everton.`\
+https://nytimes.com/athletic/6534510/2025/08/06/dewsbury-hall-everton-transfer-chelsea/
+
 **Claire’s, Teen Jewelry Chain, Files for Bankruptcy a 2nd Time**\
 `Once ubiquitous for ear piercing at the mall, Claire’s faced financial volatility along with other bricks-and-mortar retailers. It last filed for bankruptcy in 2018.`\
 https://nytimes.com/2025/08/06/business/claires-jewelry-bankruptcy-tariffs.html
