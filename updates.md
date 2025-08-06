@@ -1,3 +1,11 @@
+**Alec Luhn, Missing American Hiker, Is Found Alive in Norway**\
+`Rescue workers found Mr. Luhn, a journalist who had not been heard from for days after setting off alone in a Norwegian national park.`\
+https://nytimes.com/2025/08/06/world/europe/alec-luhn-norway-found.html
+
+**Tim Weah completes Marseille transfer from Juventus**\
+`The USMNT winger will join the Ligue 1 club on a loan agreement with an obligation to buy.`\
+https://nytimes.com/athletic/6454565/2025/08/06/usmnt-tim-weah-transfer-marseille/
+
 **Third WNBA game interrupted by a sex toy. What are players, coaches saying?**\
 `"It's dumb, it's stupid," the Sparks coach said after Tuesday's game. `\
 https://nytimes.com/athletic/6537792/2025/08/06/sophie-cunningham-sex-toy-wnba-indiana-fever/
