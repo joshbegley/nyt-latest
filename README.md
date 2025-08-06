@@ -1,3 +1,7 @@
+**Keenan Allen reunites with Chargers after 1 season in Chicago**\
+`Allen spent his first 11 seasons in the NFL with the Chargers before being traded to the Bears last offseason in a salary-cap cutting move. `\
+https://nytimes.com/athletic/6531001/2025/08/05/keenan-allen-chargers-bears-contract/
+
 **ESPN, Leaping to Streaming, Holds Hands With the N.F.L.**\
 `The network and sports league announced a deal that gives the N.F.L. an ownership stake in ESPN. In exchange, the network will control some of the league’s media outlets.`\
 https://nytimes.com/2025/08/05/business/media/nfl-espn-disney-deal.html
@@ -27,14 +31,10 @@ https://nytimes.com/video/world/middleeast/100000010324273/gaza-hunger-crisis-ai
 https://nytimes.com/2025/08/05/nyregion/cartel-bosses-death-penalty.html
 
 **Officials Move to Open Inquiry on Trump’s ‘Russia Hoax’ Grievance**\
-`Such an investigation would have to overcome a number of legal and practical hurdles, but an order by Attorney General Pam Bondi asking for a grand jury inquiry accomplishes political objectives.`\
+`Such an investigation would have to overcome a number of legal and practical hurdles, but an order by Attorney General Pam Bondi asking for a grand jury inquiry in Florida accomplishes political objectives.`\
 https://nytimes.com/2025/08/05/us/politics/trump-russia-grand-jury-investigation.html
 
 **Luke uses the Force: How new TE Farrell is boosting the 49ers' offense**\
 `Farrell won't light up the box score, but he's brought exactly what the Niners were hoping for when they signed him.`\
 https://nytimes.com/athletic/6537350/2025/08/05/49ers-training-camp-luke-farrell/
-
-**Forest considering move for Juve's Douglas Luiz**\
-`The midfielder joined the Turin club last summer in a €50million (£42.3m; $53.6m) plus add-ons move from Aston Villa.`\
-https://nytimes.com/athletic/6533022/2025/08/05/douglas-luiz-nottingham-forest-transfer/
 
