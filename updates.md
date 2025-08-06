@@ -1,3 +1,11 @@
+**Brooklyn Rider Still Has More to Say With the String Quartet**\
+`The group is celebrating its 20th-anniversary season with a series of concerts that look back, one player says, “with a lot of forward motion.”`\
+https://nytimes.com/2025/08/06/arts/music/brooklyn-rider-string-quartet.html
+
+**In One of the Country’s Poorest States, Crippling Budget Cuts Loom**\
+`Health care. Food. Outdoor recreation. Wildfire protection. The arts. President Trump’s new domestic policy law will have wide-ranging effects in New Mexico, which depends heavily on federal funding.`\
+https://nytimes.com/2025/08/06/us/new-mexico-federal-budget-cuts.html
+
 **Jaycee Horn involved in car accident, held out of practice with Browns**\
 `The Panthers star cornerback didn't participate in the team's first joint practice of training camp after a morning car accident.`\
 https://nytimes.com/athletic/6538372/2025/08/06/panthers-jaycee-horn-car-accident/
