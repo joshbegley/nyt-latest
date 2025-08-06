@@ -1,3 +1,7 @@
+**MLB's first female umpire set to debut; Jen Pawol to be promoted for Saturday's Marlins-Braves games**\
+`Pawol, a veteran minor league umpire, will be the first female to umpire a regular season MLB game when she debuts on Saturday.`\
+https://nytimes.com/athletic/6538637/2025/08/06/mlb-first-female-umpire-jen-pawol/
+
 **Travis Kelce not tipping retirement decision in Chiefs training camp**\
 `Kelce is in noticeably better shape this summer as he approaches what could be his final NFL season.`\
 https://nytimes.com/athletic/6538506/2025/08/06/travis-kelce-chiefs-camp-retirement-decision/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6538543/2025/08/06/roman-anthony-contract-extension
 **Grief and Support When a Therapist Dies**\
 `Readers respond to a Science Times article. Also: The Arab League’s call for Hamas to disarm.`\
 https://nytimes.com/2025/08/06/opinion/therapists-death-grief.html
-
-**My Mom Keeps Pressuring Me to Have Kids. Can I Pretend to Be Infertile?**\
-`Now she’s saying that she’ll cut me out of her will if I don’t have a child.`\
-https://nytimes.com/2025/08/06/magazine/mom-pressuring-pretend-infertile-ethics.html
 
