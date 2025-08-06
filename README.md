@@ -6,6 +6,10 @@ https://nytimes.com/athletic/6534895/2025/08/06/west-ham-fans-2025-26-season-hop
 `Let us know how you are feeling about the season ahead and we'll report back with our Premier League hope-o-meter`\
 https://nytimes.com/athletic/6534938/2025/08/06/nottingham-forest-fans-2025-26-season-hope/
 
+**Everton fans: How are you feeling about the 2025-26 season?**\
+`Let us know how you are feeling about the season ahead and we'll report back with our Premier League hope-o-meter`\
+https://nytimes.com/athletic/6534987/2025/08/06/everton-fans-2025-26-season-hope/
+
 **Arsenal fans: How are you feeling about the 2025-26 season?**\
 `Let us know how you are feeling about the season ahead and we'll report back with our Premier League hope-o-meter`\
 https://nytimes.com/athletic/6534832/2025/08/06/arsenal-fans-2025-26-season-hope/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6534892/2025/08/06/sunderland-fans-2025-26-season-h
 **Burnley fans: How are you feeling about the 2025-26 season?**\
 `Let us know how you are feeling about the season ahead and we'll report back with our Premier League hope-o-meter`\
 https://nytimes.com/athletic/6534985/2025/08/06/burnley-fans-2025-26-season-hope/
-
-**Newcastle United fans: How are you feeling about the 2025-26 season?**\
-`Let us know how you are feeling about the season ahead and we'll report back with our Premier League hope-o-meter`\
-https://nytimes.com/athletic/6534936/2025/08/06/newcastle-united-fans-2025-26-season-hope/
 
