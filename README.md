@@ -1,4 +1,4 @@
-**Trump Calls for Federal Takeover of D.C. After Member of DOGE Assaulted**\
+**Trump Threatens Federal Takeover of D.C. After Member of DOGE Assaulted**\
 `President Trump shared a photograph of a young software engineer known as “Big Balls,” shirtless and bloodied, after an attempted carjacking.`\
 https://nytimes.com/2025/08/05/us/politics/trump-doge-member-assaulted.html
 
@@ -18,8 +18,8 @@ https://nytimes.com/2025/08/05/nyregion/cuomo-gaza-aid-israel.html
 `The plane was landing at Chinle Municipal Airport in the Navajo Nation in Arizona to pick up a patient for a medical transfer. It was not immediately clear what had caused the crash.`\
 https://nytimes.com/2025/08/05/us/medical-transport-plane-crash-arizona-navajo-nation.html
 
-**Park Avenue Gunman’s Mental Health Crises Are Detailed in Police Records**\
-`The Las Vegas police released documents and records describing the mental health breakdowns that the man who killed four people in a New York building had earlier faced.`\
+**3 Years Before Park Ave. Shooting, Nevada Police Had Gunman Committed**\
+`The Las Vegas police released documents and records describing the mental health breakdowns that the man who killed four people in a New York building had faced earlier.`\
 https://nytimes.com/2025/08/05/nyregion/park-avenue-gunman-mental-health.html
 
 **Kennedy Cancels Nearly $500 Million in mRNA Vaccine Contracts**\
