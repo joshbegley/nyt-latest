@@ -1,3 +1,11 @@
+**Keenan Allen reunites with Chargers after 1 season in Chicago**\
+`Allen spent his first 11 seasons in the NFL with the Chargers before being traded to the Bears last offseason in a salary-cap cutting move. `\
+https://nytimes.com/athletic/6531001/2025/08/05/keenan-allen-chargers-bears-contract/
+
+**Officials Move to Open Inquiry on Trump’s ‘Russia Hoax’ Grievance**\
+`Such an investigation would have to overcome a number of legal and practical hurdles, but an order by Attorney General Pam Bondi asking for a grand jury inquiry in Florida accomplishes political objectives.`\
+https://nytimes.com/2025/08/05/us/politics/trump-russia-grand-jury-investigation.html
+
 **ESPN, Leaping to Streaming, Holds Hands With the N.F.L.**\
 `The network and sports league announced a deal that gives the N.F.L. an ownership stake in ESPN. In exchange, the network will control some of the league’s media outlets.`\
 https://nytimes.com/2025/08/05/business/media/nfl-espn-disney-deal.html
