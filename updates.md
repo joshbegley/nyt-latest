@@ -1,3 +1,19 @@
+**Stanford Newspaper Challenges Legal Basis for Student Deportations**\
+`A new lawsuit brought by a First Amendment watchdog group argues that the use of a rarely invoked immigration law to target pro-Palestinian demonstrators is unconstitutional.`\
+https://nytimes.com/2025/08/06/us/politics/stanford-lawsuit-student-activist-deportations.html
+
+**Charlie Davies: Matt Turner's MLS move can lead him back to USMNT starting spot**\
+`The familiar crest alone won't magically make Turner reclaim his U.S. role, but there is a reason why New England is the place to do it`\
+https://nytimes.com/athletic/6537663/2025/08/06/matt-turner-new-england-revolution-usmnt-world-cup/
+
+**Reimagining the Humanities to Make Them A.I.-Proof**\
+`Technology is making the old ways of teaching ineffective. A new way is starting to emerge.`\
+https://nytimes.com/2025/08/06/opinion/humanities-college-ai.html
+
+**Why Is My Family Avoiding Me After I Cut Off Contact With My Father?**\
+`A reader is eager to revive his relationships with his mother and younger brother, which have been on ice ever since he set a firm boundary with his abusive father.`\
+https://nytimes.com/2025/08/06/style/family-estrangement-silent-treatment.html
+
 **Senator Marsha Blackburn Will Run for Governor of Tennessee**\
 `A conservative Trump ally in the Senate, Ms. Blackburn will now try to become the first woman to serve as governor.`\
 https://nytimes.com/2025/08/06/us/politics/marsha-blackburn-governor-tennessee.html

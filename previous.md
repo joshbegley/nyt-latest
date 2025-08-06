@@ -1,3 +1,19 @@
+**Stanford Newspaper Challenges Legal Basis for Student Deportations**\
+`A new lawsuit brought by a First Amendment watchdog group argues that the use of a rarely invoked immigration law to target pro-Palestinian demonstrators is unconstitutional.`\
+https://nytimes.com/2025/08/06/us/politics/stanford-lawsuit-student-activist-deportations.html
+
+**Charlie Davies: Matt Turner's MLS move can lead him back to USMNT starting spot**\
+`The familiar crest alone won't magically make Turner reclaim his U.S. role, but there is a reason why New England is the place to do it`\
+https://nytimes.com/athletic/6537663/2025/08/06/matt-turner-new-england-revolution-usmnt-world-cup/
+
+**Reimagining the Humanities to Make Them A.I.-Proof**\
+`Technology is making the old ways of teaching ineffective. A new way is starting to emerge.`\
+https://nytimes.com/2025/08/06/opinion/humanities-college-ai.html
+
+**Why Is My Family Avoiding Me After I Cut Off Contact With My Father?**\
+`A reader is eager to revive his relationships with his mother and younger brother, which have been on ice ever since he set a firm boundary with his abusive father.`\
+https://nytimes.com/2025/08/06/style/family-estrangement-silent-treatment.html
+
 **Senator Marsha Blackburn Will Run for Governor of Tennessee**\
 `A conservative Trump ally in the Senate, Ms. Blackburn will now try to become the first woman to serve as governor.`\
 https://nytimes.com/2025/08/06/us/politics/marsha-blackburn-governor-tennessee.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6537792/2025/08/06/sophie-cunningham-sex-toy-wnba-i
 **Nottingham Forest's new shirt sponsor: Who is Bally's Corporation, how did the deal happen?**\
 `The agreement with Bally's Corporation will see the company's logo on the men's first-team shirts and around the City Ground during 2025-26.`\
 https://nytimes.com/athletic/6536764/2025/08/06/nottingham-forest-shirt-sponsor-who-worth/
-
-**How the Seahawks' stars are building up their teammates: 'Best vets in the league'**\
-`DeMarcus Lawrence, Leonard Williams and others are sharing their secrets, hoping to turn a few Seahawks youngsters into stars.`\
-https://nytimes.com/athletic/6531626/2025/08/06/seahawks-training-camp-mentors-veterans/
-
-**Why the Chargers signed Keenan Allen and how he fits into wide receiver room**\
-`EL SEGUNDO, Calif.`\
-https://nytimes.com/athletic/6537735/2025/08/06/chargers-keenan-allen-nfl/
-
-**Bengals rookie report: Grading Shemar Stewart, Demetrius Knight and the rest so far**\
-`Coach Zac Taylor raves about the rookie crop's football IQ as some could see starting roles in Week 1.`\
-https://nytimes.com/athletic/6537448/2025/08/06/bengals-rookie-report-shemar-stewart/
-
-**Penguins mailbag: How much longer will Sidney Crosby play in the NHL?**\
-`Welcome to the first installment of a special two-part Crosby-themed Penguins mailbag.`\
-https://nytimes.com/athletic/6528077/2025/08/06/sidney-crosby-retirement-penguins-mailbag-nhl/
 
