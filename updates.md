@@ -1,3 +1,15 @@
+**The New York Times in Print for Wednesday, Aug. 6, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/08/06/todays-new-york-times
+
+**Eighty Years of Nuclear Weapons Is Enough**\
+`The nuclear taboo is on the verge of collapse.`\
+https://nytimes.com/2025/08/06/opinion/hiroshima-nagasaki-anniversary-nuclear-weapons.html
+
+**The Promise of Palestinian Statehood Is Ringing Hollow**\
+`Recognition will come with strings attached and little chance for holding Israel to account.`\
+https://nytimes.com/2025/08/06/opinion/israel-palestinians-un-statehood.html
+
 **City Council President and Pastor Advance in Detroit Mayoral Election**\
 `Mary Sheffield and Solomon Kinloch Jr. will face off in a November election. Mike Duggan, Detroit’s mayor for a dozen years, is not seeking re-election.`\
 https://nytimes.com/2025/08/06/us/elections/detroit-mayoral-election.html
