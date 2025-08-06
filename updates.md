@@ -1,3 +1,7 @@
+**Trump Threatens 100% Tariff on Chips, With a Big Caveat**\
+`The tariff would not apply to businesses that make a commitment to build and invest in the United States.`\
+https://nytimes.com/2025/08/06/technology/trump-chip-tariffs-semiconductors.html
+
 **Trump Administration Begins to Strip Federal Workers of Union Protections**\
 `The Department of Veterans Affairs appeared to be the first agency to begin terminating union contracts, affecting 320,000 of its workers.`\
 https://nytimes.com/live/2025/08/04/us/trump-news/trump-federal-workers-unions

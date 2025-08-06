@@ -1,3 +1,7 @@
+**Trump Threatens 100% Tariff on Chips, With a Big Caveat**\
+`The tariff would not apply to businesses that make a commitment to build and invest in the United States.`\
+https://nytimes.com/2025/08/06/technology/trump-chip-tariffs-semiconductors.html
+
 **Trump Administration Begins to Strip Federal Workers of Union Protections**\
 `The Department of Veterans Affairs appeared to be the first agency to begin terminating union contracts, affecting 320,000 of its workers.`\
 https://nytimes.com/live/2025/08/04/us/trump-news/trump-federal-workers-unions
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6539260/2025/08/06/son-heung-min-lafc-press-confere
 **Republicans Raise the Pressure on Texas Democrats to End Their Walkout**\
 `The political and legal threats against Democrats who left Texas to protest a redrawn political map have gone further and faster than many anticipated.`\
 https://nytimes.com/2025/08/06/us/politics/texas-redistricting.html
-
-**Where the Redistricting Wars Might Go After Texas**\
-`Texas Democrats may have bought their party some time with their walkout, but both parties are mobilizing to redraw U.S. House maps ahead of the midterms.`\
-https://nytimes.com/2025/08/06/us/politics/redistricting-states.html
 
