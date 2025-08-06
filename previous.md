@@ -1,3 +1,7 @@
+**What Happened to India Becoming the Next China?**\
+`With threats of tariffs up to 50 percent, President Trump seems to be scrapping America’s plan to turn India into a counterweight to China, declaring instead that it was a “dead economy.”`\
+https://nytimes.com/2025/08/06/business/india-china-trump-tariffs.html
+
 **Venus Williams tells tennis world not to rule her out for 2026 season at Cincinnati Open**\
 `Williams, 45, made her tennis comeback at the Citi Open in Washington D.C., where she won her opening matches in singles and doubles.`\
 https://nytimes.com/athletic/6538533/2025/08/06/tennis-venus-williams-comeback-cincinnati-open/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6538373/2025/08/06/dewsbury-hall-everton-analysis/
 **The Best Movies and TV Shows Coming to Netflix in August**\
 `This month includes the return of Wednesday Addams and a new series from the creative minds behind “BoJack Horseman.”`\
 https://nytimes.com/2025/08/06/arts/television/new-netflix-august.html
-
-**New Denver NWSL manager Cushing: 'I want to embrace' expansion challenge**\
-`The NWSL club has made its first managerial hire, and after 15 years across City Football Group, he's out to build a club for himself`\
-https://nytimes.com/athletic/6537971/2025/08/06/nick-cushing-denver-summit-nwsl-manager/
 

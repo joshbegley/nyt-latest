@@ -1,3 +1,7 @@
+**What Happened to India Becoming the Next China?**\
+`With threats of tariffs up to 50 percent, President Trump seems to be scrapping America’s plan to turn India into a counterweight to China, declaring instead that it was a “dead economy.”`\
+https://nytimes.com/2025/08/06/business/india-china-trump-tariffs.html
+
 **Experience, versatility and progressive passes: What Kiernan Dewsbury-Hall brings to Everton**\
 `If the midfielder matches his performances with Leicester in 2023-24 or Chelsea in last season's Conference League, Everton will be stronger`\
 https://nytimes.com/athletic/6538373/2025/08/06/dewsbury-hall-everton-analysis/
