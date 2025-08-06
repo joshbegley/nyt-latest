@@ -1,3 +1,7 @@
+**Biting Piece**\
+`Hanh Huynh skims the surface.`\
+https://nytimes.com/2025/08/05/crosswords/daily-puzzle-2025-08-06.html
+
 **Georgetown Scholar Reaches Deal to Return to Work While Fighting Deportation**\
 `In a settlement, the government agreed to reinstate Badar Khan Suri’s legal status amid litigation over the Trump administration’s efforts to deport him.`\
 https://nytimes.com/2025/08/05/us/politics/georgetown-academic-immigration.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/05/nyregion/park-avenue-gunman-mental-health.html
 **Kennedy Cancels Nearly $500 Million in mRNA Vaccine Contracts**\
 `That kind of shot was first used during the Covid-19 pandemic, but the health secretary has been sharply critical of the technology.`\
 https://nytimes.com/2025/08/05/health/rfk-jr-vaccine-funding.html
-
-**Jerry Jones not confident Micah Parsons will be on the field Week 1**\
-`"We will work through it or we will not work through it,” Jones said Tuesday after the Cowboys and Rams held a joint practice.`\
-https://nytimes.com/athletic/6536650/2025/08/05/micah-parsons-cowboys-jerry-jones-contract-dispute/
 
