@@ -1,3 +1,11 @@
+**Trump Suggests Vance is MAGA Movement’s Heir Apparent**\
+`President Trump said Vice President JD Vance was “probably favorite at this point” to succeed him as leader of the hard-right political movement.`\
+https://nytimes.com/2025/08/06/us/politics/trump-suggests-vance-is-maga-movements-heir-apparent.html
+
+**New York Times Revenue Jumps 9.7% From Subscriptions and Ads**\
+`The company added 230,000 digital-only subscribers in the second quarter. It now has 11.88 million total subscribers.`\
+https://nytimes.com/2025/08/06/business/media/new-york-times-earnings.html
+
 **McDonald’s Sales Return to Growth, Pushed by Promotions**\
 `Return of the McCrispy chicken strips and a Minecraft movie tie-in brought diners back to the fast-food giant, which had seen sales stall in recent quarters.`\
 https://nytimes.com/2025/08/06/business/mcdonalds-earnings-profit-sales.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6528507/2025/08/06/nhl-contract-efficiency-rankings
 **Red Sox march to seventh straight win behind a rested Garrett Crochet**\
 `As the Red Sox continue to prove they’re capable of securing a postseason spot, keeping Crochet healthy is paramount.`\
 https://nytimes.com/athletic/6537678/2025/08/06/red-sox-garrett-crochet-seventh-straight-win/
-
-**How 2 football stars proved they can still hoop at Peach Jam**\
-`Carter Meadows and Kendre Harrison are top football recruits — but at Peach Jam, they showed their basketball dreams still matter.`\
-https://nytimes.com/athletic/6537382/2025/08/06/michigan-oregon-college-football-basketball-recruiting/
-
-**'Exciting' Luke Keaschall brings dynamic skill set to athlete-starved Twins**\
-`Playing his first game months, Keaschall delivered his first big-league homer and singled in another run.`\
-https://nytimes.com/athletic/6537664/2025/08/06/twins-luke-keaschall-first-homer/
 

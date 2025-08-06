@@ -1,40 +1,40 @@
-**Al Hilal reach agreement in principle to sign Liverpool striker Nunez**\
-`A deal worth €53million plus add-ons has been struck verbally, with the 26-year-old indicating his willingness to accept the proposed move.`\
-https://nytimes.com/athletic/6275753/2025/08/06/darwin-nunez-liverpool-al-hilal-transfer/
+**McDonald’s Sales Return to Growth, Pushed by Promotions**\
+`Return of the McCrispy chicken strips and a Minecraft movie tie-in brought diners back to the fast-food giant, which had seen sales stall in recent quarters.`\
+https://nytimes.com/2025/08/06/business/mcdonalds-earnings-profit-sales.html
 
-**Kelley Mack, ‘Walking Dead’ Actress, Dies at 33**\
-`Ms. Mack was diagnosed with a malignant tumor in her nervous system late last year.`\
-https://nytimes.com/2025/08/06/arts/television/kelley-mack-dead-astrocytoma-glioma.html
+**Villa's Digne verbally agrees new contract**\
+`Digne, who had entered the final year of his existing deal this summer, outlined his desire to remain at the club at the end of last season.`\
+https://nytimes.com/athletic/6537973/2025/08/06/aston-villa-news-digne-contract/
 
-**The Pulse: The existential question of the Savannah Bananas**\
-`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
-https://nytimes.com/athletic/6536875/2025/08/06/savannah-bananas-the-pulse/
+**Why college sports' richest conference is looking into private equity, too**\
+`Oher leagues and institutions that once were bullish on private equity have backed off, but the Big Ten is patiently assessing its options.`\
+https://nytimes.com/athletic/6536362/2025/08/06/big-ten-private-equity-tony-petitti/
 
-**Olympian Jordan Larson leads new ownership team of League One Volleyball Nebraska**\
-`The announcement follows the inaugural season of OVB's professional league, in which six franchises competed for $100,000 in prize money.`\
-https://nytimes.com/athletic/6534876/2025/08/06/jordan-larson-lovb-league-one-volleyball-nebraska/
+**Cameron Young on the Ryder Cup team? Why is Rory McIlroy skipping Memphis?**\
+`Young is so talented, an excellent course fit, and his aggressive style should be great in cup golf. But he needs to go earn it.`\
+https://nytimes.com/athletic/6537179/2025/08/06/pga-tour-cameron-young-ryder-cup-rory-mcilroy-memphis/
 
-**The Commanders and Terry McLaurin have to end this, now, and make a deal**\
-`Entering a win-now season, the Commanders and their star receiver both need to give in a little and take a leap of faith.`\
-https://nytimes.com/athletic/6535366/2025/08/06/commanders-terry-mclaurin-negotiation-deal/
+**O'Connor: PGA Tour’s FedEx Cup is a joke of a playoff system with an easy fix**\
+`If the PGA Tour wants the postseason to be taken seriously, it will separate it from the regular season. No points carryovers.`\
+https://nytimes.com/athletic/6537111/2025/08/06/pga-fedex-cup-golf-playoff-system/
 
-**How to watch the FedEx St. Jude Championship: TV, Tee times, weather as playoffs begin**\
-`The FedEx St. Jude Championship awards 2,000 points and trims the field to 50, so every swing is about surviving the cut.`\
-https://nytimes.com/athletic/6537284/2025/08/06/fedex-st-jude-championship-golf-2025-how-to-watch/
+**Son Heung-min to LAFC a rare picture-perfect signing on all fronts**\
+`Son leaving Spurs for L.A. is "like our wildest dream," says a leader of LAFC's Korean supporters group.`\
+https://nytimes.com/athletic/6530329/2025/08/06/son-heung-min-lafc-tottenham-mls-transfer-south-korea/
 
-**Six things we've learned after two weeks of Chiefs training camp**\
-`Josh Simmons, Omarr Norman-Lott, Rashee Rice and Tyquan Thornton are among the standouts in Chiefs camp.`\
-https://nytimes.com/athletic/6535909/2025/08/06/chiefs-training-camp-josh-simmons-rashee-rice/
+**NHL contract efficiency rankings: Which teams spend their money most wisely?**\
+`Every NHL team gets the same amount of cap space, but not all teams put it to good use.`\
+https://nytimes.com/athletic/6528507/2025/08/06/nhl-contract-efficiency-rankings-2025/
 
-**Jed Hoyer takes responsibility for potential bad bet on Michael Soroka**\
-`Soroka’s injury can’t come as much of a surprise. The veteran righty has battled injuries throughout his career.`\
-https://nytimes.com/athletic/6537654/2025/08/06/cubs-jed-hoyer-michael-soroka/
+**Red Sox march to seventh straight win behind a rested Garrett Crochet**\
+`As the Red Sox continue to prove they’re capable of securing a postseason spot, keeping Crochet healthy is paramount.`\
+https://nytimes.com/athletic/6537678/2025/08/06/red-sox-garrett-crochet-seventh-straight-win/
 
-**Clayton Kershaw, Max Scherzer and the unlikely symmetry of Sept. 7, 2008**\
-`One day in September, 17 years ago, two future Hall of Famers replaced two future Hall of Famers in a unique bit of baseball lore.`\
-https://nytimes.com/athletic/6531078/2025/08/06/clayton-kershaw-max-scherzer-rookie-meeting-diamondbacks-dodgers/
+**How 2 football stars proved they can still hoop at Peach Jam**\
+`Carter Meadows and Kendre Harrison are top football recruits — but at Peach Jam, they showed their basketball dreams still matter.`\
+https://nytimes.com/athletic/6537382/2025/08/06/michigan-oregon-college-football-basketball-recruiting/
 
-**College football 2025 Hope-O-Meter survey: How optimistic are you about your team?**\
-`Tell us how you're feeling about your team's chances this season for our annual survey.`\
-https://nytimes.com/athletic/6536351/2025/08/06/college-football-2025-season-fan-survey/
+**'Exciting' Luke Keaschall brings dynamic skill set to athlete-starved Twins**\
+`Playing his first game months, Keaschall delivered his first big-league homer and singled in another run.`\
+https://nytimes.com/athletic/6537664/2025/08/06/twins-luke-keaschall-first-homer/
 
