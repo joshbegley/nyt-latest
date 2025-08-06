@@ -19,7 +19,7 @@ https://nytimes.com/2025/08/06/arts/music/brooklyn-rider-string-quartet.html
 https://nytimes.com/2025/08/06/us/new-mexico-federal-budget-cuts.html
 
 **Jaycee Horn involved in car accident, won't play Friday vs. Browns**\
-`Dave Canales said Jaycee Horn received stitches in his left hand in incident near Bank of America Stadium.`\
+`Dave Canales said Jaycee Horn received stitches in his left hand. Horn later posted that he was OK after the incident.`\
 https://nytimes.com/athletic/6538372/2025/08/06/panthers-jaycee-horn-car-accident/
 
 **China Turns to A.I. in Information Warfare**\
