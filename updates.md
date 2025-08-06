@@ -1,3 +1,7 @@
+**Jaycee Horn involved in car accident, held out of practice with Browns**\
+`The Panthers star cornerback didn't participate in the team's first joint practice of training camp after a morning car accident.`\
+https://nytimes.com/athletic/6538372/2025/08/06/panthers-jaycee-horn-car-accident/
+
 **China Turns to A.I. in Information Warfare**\
 `Documents examined by researchers show how one company in China has collected data on members of Congress and other influential Americans.`\
 https://nytimes.com/2025/08/06/us/politics/china-artificial-intelligence-information-warfare.html
