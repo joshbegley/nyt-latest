@@ -1,3 +1,15 @@
+**ESPN, Leaping to Streaming, Holds Hands With the N.F.L.**\
+`The network and sports league announced a deal that gives the N.F.L. an ownership stake in ESPN. In exchange, the network will control some of the league’s media outlets.`\
+https://nytimes.com/2025/08/05/business/media/nfl-espn-disney-deal.html
+
+**Lamar Jackson feels Ravens' offense is where it needs to be following practice vs. Colts**\
+`It's been an uneven start to camp for Baltimore's offense, but Jackson and John Harbaugh felt encouraged by the session vs. Indianapolis. `\
+https://nytimes.com/athletic/6537445/2025/08/05/ravens-colts-practice-lamar-jackson/
+
+**With Canada No Longer Able to Rely on U.S., Carney Pushes New Markets**\
+`Prime Minister Mark Carney suggested he’s unlikely to add additional retaliatory tariffs on U.S. goods, but he is trying to help affected companies develop new products and find new buyers.`\
+https://nytimes.com/2025/08/05/world/canada/canada-carney-tariffs-response.html
+
 **A judge blocks FEMA from repurposing disaster mitigation funding.**\
 `A federal judge in Massachusetts said the Trump administration’s move to redirect $4 billion left states exposed to damage from natural disasters.`\
 https://nytimes.com/live/2025/08/05/us/trump-news/trump-blocked-fema-disaster-prep-funds
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6537350/2025/08/05/49ers-training-camp-luke-farrell
 **Forest considering move for Juve's Douglas Luiz**\
 `The midfielder joined the Turin club last summer in a €50million (£42.3m; $53.6m) plus add-ons move from Aston Villa.`\
 https://nytimes.com/athletic/6533022/2025/08/05/douglas-luiz-nottingham-forest-transfer/
-
-**What the Bears gained in their most physical practice in over a decade**\
-`The Bears had their most physical practice in years, featuring multiple dust-ups. What difference can that make during the regular season?`\
-https://nytimes.com/athletic/6537369/2025/08/05/bears-training-camp-physical-practice/
-
-**Up on the Roof, Trump Surveys the Home He’s Making His Own**\
-`White House reporters looked up from the driveway to see a familiar figure in a most unfamiliar location.`\
-https://nytimes.com/2025/08/05/us/politics/trump-white-house-stroll.html
-
-**Spirit Airlines Pilot Is Charged With Stalking Two Children**\
-`The pilot, Dominic Cipolla, was arrested in July while on duty at New Orleans International Airport, the airline said.`\
-https://nytimes.com/2025/08/05/business/spirit-pilot-kansas-new-orleans-stalking-children.html
 
