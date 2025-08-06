@@ -1,4 +1,8 @@
-**Blockbuster trade: NFL swaps NFL Network and other TV assets to ESPN for 10% of network**\
+**Trump Threatens Federal Takeover of D.C. After Member of DOGE Assaulted**\
+`President Trump shared a photograph of a young software engineer known as “Big Balls,” shirtless and bloodied, after an attempted carjacking.`\
+https://nytimes.com/2025/08/05/us/politics/trump-doge-member-assaulted.html
+
+**Blockbuster trade: ESPN swaps 10% equity to NFL for NFL Network and other media assets**\
 `NFL Network is expected to become a core programming component of ESPN's forthcoming direct-to-consumer service.`\
 https://nytimes.com/athletic/6537577/2025/08/05/espn-nfl-media-network-agreement-equity/
 
@@ -14,8 +18,8 @@ https://nytimes.com/2025/08/05/nyregion/cuomo-gaza-aid-israel.html
 `The plane was landing at Chinle Municipal Airport in the Navajo Nation in Arizona to pick up a patient for a medical transfer. It was not immediately clear what had caused the crash.`\
 https://nytimes.com/2025/08/05/us/medical-transport-plane-crash-arizona-navajo-nation.html
 
-**Park Avenue Gunman’s Mental Health Crises Are Detailed in Police Records**\
-`The Las Vegas police released documents and records describing the mental health breakdowns that the man who killed four people in a New York building had earlier faced.`\
+**3 Years Before Park Ave. Shooting, Nevada Police Had Gunman Committed**\
+`The Las Vegas police released documents and records describing the mental health breakdowns that the man who killed four people in a New York building had faced earlier.`\
 https://nytimes.com/2025/08/05/nyregion/park-avenue-gunman-mental-health.html
 
 **Kennedy Cancels Nearly $500 Million in mRNA Vaccine Contracts**\
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/05/nyregion/nyc-carriage-horse-dies.html
 **What to Know: Why 2 Quakes Jolted New York and New Jersey Recently**\
 `The recent temblors were classified as “weak,” and may have been connected to a bigger earthquake last year in the area.`\
 https://nytimes.com/2025/08/05/nyregion/earthquake-nj-nyc-new-york-why.html
-
-**Keenan Allen reunites with Chargers after 1 season in Chicago**\
-`Allen spent his first 11 seasons in the NFL with the Chargers before being traded to the Bears last offseason in a salary-cap cutting move. `\
-https://nytimes.com/athletic/6531001/2025/08/05/keenan-allen-chargers-bears-contract/
 
