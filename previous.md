@@ -1,3 +1,7 @@
+**Ben Shelton reaches first career Masters 1000 semifinal, will face Taylor Fritz**\
+`The 22-year-old American beat Australia's Alex de Minaur on Tuesday to set up a showdown with his friend and compatriot.`\
+https://nytimes.com/athletic/6537680/2025/08/05/ben-shelton-taylor-fritz-canadian-open-semifinals/
+
 **Roki Sasaki is getting closer to a return. What will the Dodgers get out of him?**\
 `Sasaki is expected to face hitters for 3 simulated innings on Friday, then head out on a minor-league rehab assignment.`\
 https://nytimes.com/athletic/6537617/2025/08/05/dodgers-roki-sasaki-injury-return/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6537554/2025/08/05/colts-ad-mitchell-ravens-anthony
 **Cuomo Calls for Gaza Aid and Says ‘Some People’ Blame Israel for Crisis**\
 `Former Gov. Andrew M. Cuomo appeared to criticize Israel over the humanitarian crisis in Gaza. Hours later, he distanced himself from his remarks.`\
 https://nytimes.com/2025/08/05/nyregion/cuomo-gaza-aid-israel.html
-
-**4 Dead After Medical Transport Plane Crashes in Arizona**\
-`The plane was landing at Chinle Municipal Airport in the Navajo Nation in Arizona to pick up a patient for a medical transfer. It was not immediately clear what had caused the crash.`\
-https://nytimes.com/2025/08/05/us/medical-transport-plane-crash-arizona-navajo-nation.html
 

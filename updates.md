@@ -1,3 +1,7 @@
+**Ben Shelton reaches first career Masters 1000 semifinal, will face Taylor Fritz**\
+`The 22-year-old American beat Australia's Alex de Minaur on Tuesday to set up a showdown with his friend and compatriot.`\
+https://nytimes.com/athletic/6537680/2025/08/05/ben-shelton-taylor-fritz-canadian-open-semifinals/
+
 **Roki Sasaki is getting closer to a return. What will the Dodgers get out of him?**\
 `Sasaki is expected to face hitters for 3 simulated innings on Friday, then head out on a minor-league rehab assignment.`\
 https://nytimes.com/athletic/6537617/2025/08/05/dodgers-roki-sasaki-injury-return/
