@@ -1,3 +1,7 @@
+**Alec Luhn, Missing American Hiker, Is Found Alive in Norway**\
+`Rescue workers found Mr. Luhn, a journalist who had not been heard from for days after setting off alone in a Norwegian national park.`\
+https://nytimes.com/2025/08/06/world/europe/alec-luhn-norway-found.html
+
 **Tim Weah completes Marseille transfer from Juventus**\
 `The USMNT winger will join the Ligue 1 club on a loan agreement with an obligation to buy.`\
 https://nytimes.com/athletic/6454565/2025/08/06/usmnt-tim-weah-transfer-marseille/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6536957/2025/08/06/brandon-inniss-ohio-state-wide-r
 **Trump Administration Live Updates: U.S. Envoy Meets Putin as Sanctions Deadline Looms**\
 ``\
 https://nytimes.com/live/2025/08/06/us/trump-news
-
-**Disney, McDonald’s and the State of the U.S. Economy**\
-`The effects of President Trump’s trade war on households are expected to be a big focus in earnings calls held by major consumer-facing companies.`\
-https://nytimes.com/2025/08/06/business/dealbook/disney-mcdonalds-us-consumer.html
 
