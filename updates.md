@@ -1,3 +1,7 @@
+**Word of the Day: doldrums**\
+`This word has appeared in 111 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2025/08/06/learning/word-of-the-day-doldrums.html
+
 **Another Pakistani Woman Is Killed for ‘Honor,’ but She’s Not Forgotten**\
 `Women in Pakistan die every day for supposedly dishonoring their families, and arrests are rare. But Bano Bibi’s defiant last words were caught on video.`\
 https://nytimes.com/2025/08/06/world/asia/pakistan-honor-killing-gender-violence.html
