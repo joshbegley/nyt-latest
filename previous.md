@@ -1,3 +1,7 @@
+**Chris Eubank Jr rematch against Conor Benn rescheduled for November**\
+`Eubank Jr defeated Benn by unanimous decision at Tottenham Hotspur Stadium in a highly-anticipated bout in April.`\
+https://nytimes.com/athletic/6537868/2025/08/06/eubank-benn-rematch-when/
+
 **Clara Tauson dedicates win over Madison Keys to her late grandfather, reaches Montreal Open semifinal**\
 `Tauson's second WTA 1,000 semifinal of her career will be against Naomi Osaka, the former world No. 1.`\
 https://nytimes.com/athletic/6537865/2025/08/06/tennis-canadian-open-womens-semifinals-tauson-osaka/
@@ -7,7 +11,7 @@ https://nytimes.com/athletic/6537865/2025/08/06/tennis-canadian-open-womens-semi
 https://nytimes.com/2025/08/06/arts/television/stephen-colbert-trump-gop-popularity.html
 
 **Trump Sends His Envoy to Russia With Sanctions Deadline Looming**\
-`The envoy, Steve Witkoff, is making his fifth visit this year. He has managed to secure some prisoner exchanges but made no clear progress so far on ending the Ukraine war.`\
+`The envoy, Steve Witkoff, is making his fifth visit this year. He has managed to secure some prisoner exchanges but made no clear progress so far on ending the war in Ukraine.`\
 https://nytimes.com/2025/08/06/world/europe/russia-trump-witkoff-putin-ukraine.html
 
 **Sunderland set to sign Chelsea's Guiu on season-long loan deal**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6529726/2025/08/06/manchester-united-transfer-credi
 **Jacob’s Pillow Cancels Remainder of Festival After Death at Center**\
 `A production manager died at the dance center last week in what the district attorney’s office in Berkshire County, Mass., described as a workplace accident.`\
 https://nytimes.com/2025/08/06/us/jacobs-pillow-dance-festival-canceled.html
-
-**Word of the Day: doldrums**\
-`This word has appeared in 111 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2025/08/06/learning/word-of-the-day-doldrums.html
 
