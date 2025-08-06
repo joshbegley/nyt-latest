@@ -1,3 +1,7 @@
+**How to watch the FedEx St. Jude Championship: TV, Tee times, weather as playoffs begin**\
+`The FedEx St. Jude Championship awards 2,000 points and trims the field to 50, so every swing is about surviving the cut.`\
+https://nytimes.com/athletic/6537284/2025/08/06/fedex-st-jude-championship-golf-2025-how-to-watch/
+
 **Six things we've learned after two weeks of Chiefs training camp**\
 `Josh Simmons, Omarr Norman-Lott, Rashee Rice and Tyquan Thornton are among the standouts in Chiefs camp.`\
 https://nytimes.com/athletic/6535909/2025/08/06/chiefs-training-camp-josh-simmons-rashee-rice/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6522020/2025/08/06/minnesota-vikings-defese-brian-f
 **More Money Was Supposed to Help Poor Kids. So Why Didn’t It?**\
 `A new study may undercut the idea that cash payments to low-income families can end the cycle of childhood poverty.`\
 https://nytimes.com/2025/08/06/podcasts/the-daily/cash-payments-poor-kids-study.html
-
-**When a team loses a star performer like JuJu Watkins, how should leaders react?**\
-`When USC lost its star player in the NCAA Tournament this year, coach Lindsay Gottlieb had to keep moving forward.`\
-https://nytimes.com/athletic/6536433/2025/08/06/sports-injury-leadership-juju-watkins/
 
