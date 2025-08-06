@@ -1,3 +1,7 @@
+**Bills, James Cook enter a staring contest over contract. How could it end?**\
+`James Cook took an unusual route by practicing and then beginning a hold-in.`\
+https://nytimes.com/athletic/6539062/2025/08/06/buffalo-bills-james-cook-contract/
+
 **Trump Directed His Wrath at India**\
 `Also, the president said he intends to meet with Putin and Zelensky. Here’s the latest at the end of Wednesday.`\
 https://nytimes.com/2025/08/06/briefing/trump-india-tariffs-china-ai-information-warfare.html
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2025/08/06/weather/tropical-storm-ivo-hurricane-
 **How Much Did You Spend on Your Wedding? We’d Love to Hear.**\
 `Did you have a modest or extravagant budget? Or did you land somewhere in between? We’re interested in how much you spent, what you splurged on or how you cut costs.`\
 https://nytimes.com/2025/08/06/fashion/weddings/wedding-cost-callout.html
-
-**Thursday Briefing: Trump Threatens to Double India’s Tariffs**\
-`Also, a possible Russia-Ukraine-U.S. summit.`\
-https://nytimes.com/2025/08/06/briefing/india-tariff-trump-russia-ukraine-china-ai.html
 

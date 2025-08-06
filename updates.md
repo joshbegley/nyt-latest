@@ -1,3 +1,7 @@
+**Bills, James Cook enter a staring contest over contract. How could it end?**\
+`James Cook took an unusual route by practicing and then beginning a hold-in.`\
+https://nytimes.com/athletic/6539062/2025/08/06/buffalo-bills-james-cook-contract/
+
 **Trump Directed His Wrath at India**\
 `Also, the president said he intends to meet with Putin and Zelensky. Here’s the latest at the end of Wednesday.`\
 https://nytimes.com/2025/08/06/briefing/trump-india-tariffs-china-ai-information-warfare.html
