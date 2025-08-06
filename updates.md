@@ -1,3 +1,7 @@
+**Trump to Announce Additional $100 Billion Apple Investment in U.S.**\
+`The pledge was a “significant acceleration” of the company’s plan for more production in the United States, according to a White House statement.`\
+https://nytimes.com/2025/08/06/us/politics/trump-apple-investment.html
+
 **Lowetide: What are the great Oilers training camp stories of the last decade?**\
 `There have been some outstanding surprise stories emerge during the decade's camps for the Oilers.`\
 https://nytimes.com/athletic/6536956/2025/08/06/edmonton-oilers-training-camp-stories/
