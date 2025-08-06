@@ -1,3 +1,7 @@
+**Son Heung-min says LAFC "changed my heart" after MLS unveiling**\
+`The South Korean superstar was unveiled in Los Angeles on Wednesday.`\
+https://nytimes.com/athletic/6539260/2025/08/06/son-heung-min-lafc-press-conference-south-korea-mls/
+
 **Republicans Raise the Pressure on Texas Democrats to End Their Walkout**\
 `The political and legal threats against Democrats who left Texas to protest a redrawn political map have gone further and faster than many anticipated.`\
 https://nytimes.com/2025/08/06/us/politics/texas-redistricting.html
