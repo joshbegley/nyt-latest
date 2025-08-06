@@ -1,3 +1,7 @@
+**Charleston’s Climate Lawsuit Against Oil Giants Is Dismissed**\
+`The legal claim, one of a raft of lawsuits across the country, had accused companies of a yearslong disinformation campaign about climate change.`\
+https://nytimes.com/2025/08/06/climate/charleston-climate-lawsuit-oil-companies.html
+
 **Son Heung-min says LAFC "changed my heart" after MLS unveiling**\
 `The South Korean superstar was unveiled in Los Angeles on Wednesday.`\
 https://nytimes.com/athletic/6539260/2025/08/06/son-heung-min-lafc-press-conference-south-korea-mls/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/06/style/loni-anderson-wkrp-cincinnati.html
 **Cuomo Meets With Business Leaders as He Seeks to Undermine Adams**\
 `Former Gov. Andrew M. Cuomo told New York City executives that donating to Mayor Eric Adams’s re-election campaign could be a “suicide mission,” one attendee said.`\
 https://nytimes.com/2025/08/06/nyregion/cuomo-business-leaders-mayor-nyc.html
-
-**Sergeant in Custody After Shooting 5 Soldiers at Georgia Army Base**\
-`Five soldiers at Fort Stewart-Hunter Army Airfield in Georgia were injured after a sergeant in their unit opened fire with a personal handgun, the base’s commander said.`\
-https://nytimes.com/video/us/100000010327722/fort-stewart-shooter-custody.html
 
