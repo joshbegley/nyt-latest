@@ -1,3 +1,7 @@
+**Kelley Mack, ‘Walking Dead’ Actress, Dies at 33**\
+`Ms. Mack was diagnosed with a malignant tumor in her nervous system late last year.`\
+https://nytimes.com/2025/08/06/arts/television/kelley-mack-dead-astrocytoma-glioma.html
+
 **The Pulse: The existential question of the Savannah Bananas**\
 `The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
 https://nytimes.com/athletic/6536875/2025/08/06/savannah-bananas-the-pulse/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6536351/2025/08/06/college-football-2025-season-fan
 **Why NBA rookie contract extensions are harder now and what to expect with 2022 class**\
 `A few deals are already done, but there's plenty of time for more movement between now and October.`\
 https://nytimes.com/athletic/6529620/2025/08/06/nba-offseason-rookie-contract-extensions/
-
-**How Mikaela Shiffrin got put back together for another run at Olympic skiing glory**\
-`A November crash upended the Alpine skiing GOAT's season. This is the story of how she recovered and got back on the mountain.`\
-https://nytimes.com/athletic/6515780/2025/08/06/mikaela-shiffrin-crash-injury-recovery-olympics-alpine-skiing/
 
