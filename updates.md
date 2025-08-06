@@ -1,3 +1,7 @@
+**Experience, versatility and progressive passes: What Kiernan Dewsbury-Hall brings to Everton**\
+`If the midfielder matches his performances with Leicester in 2023-24 or Chelsea in last season's Conference League, Everton will be stronger`\
+https://nytimes.com/athletic/6538373/2025/08/06/dewsbury-hall-everton-analysis/
+
 **Venus Williams tells tennis world not to rule her out for 2026 season at Cincinnati Open**\
 `Williams, 45, made her tennis comeback at the Citi Open in Washington D.C., where she won her opening matches in singles and doubles.`\
 https://nytimes.com/athletic/6538533/2025/08/06/tennis-venus-williams-comeback-cincinnati-open/

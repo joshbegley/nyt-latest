@@ -27,7 +27,7 @@ https://nytimes.com/video/world/asia/100000010322352/80-years-after-hiroshima-ja
 https://nytimes.com/2025/08/06/us/fort-stewart-airfield-active-shooter.html
 
 **Experience, versatility and progressive passes: What Kiernan Dewsbury-Hall brings to Everton**\
-`If Dewsbury-Hall replicates his performances either with Leicester in 2023-24, or Chelsea in the Conference League, Everton will be stronger`\
+`If the midfielder matches his performances with Leicester in 2023-24 or Chelsea in last season's Conference League, Everton will be stronger`\
 https://nytimes.com/athletic/6538373/2025/08/06/dewsbury-hall-everton-analysis/
 
 **The Best Movies and TV Shows Coming to Netflix in August**\
