@@ -1,3 +1,15 @@
+**Jerry Jones not confident Micah Parsons will be on the field Week 1**\
+`"We will work through it or we will not work through it,” Jones said Tuesday after the Cowboys and Rams held a joint practice.`\
+https://nytimes.com/athletic/6536650/2025/08/05/micah-parsons-cowboys-jerry-jones-contract-dispute/
+
+**New York City Carriage Horse Collapses and Dies on Manhattan Street**\
+`The death of the 15-year-old mare named Lady was being investigated by the city’s health department, officials said.`\
+https://nytimes.com/2025/08/05/nyregion/nyc-carriage-horse-dies.html
+
+**What to Know: Why 2 Quakes Jolted New York and New Jersey Recently**\
+`The recent temblors were classified as “weak,” and may have been connected to a bigger earthquake last year in the area.`\
+https://nytimes.com/2025/08/05/nyregion/earthquake-nj-nyc-new-york-why.html
+
 **Keenan Allen reunites with Chargers after 1 season in Chicago**\
 `Allen spent his first 11 seasons in the NFL with the Chargers before being traded to the Bears last offseason in a salary-cap cutting move. `\
 https://nytimes.com/athletic/6531001/2025/08/05/keenan-allen-chargers-bears-contract/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6537486/2025/08/05/philadelphia-phillies-jose-alvar
 **Gaza’s Hunger Crisis: ‘If We Don’t Fight, We Don’t Get Anything.’**\
 `After facing international criticism for its hand in Gaza’s food shortage, Israel has allowed nations to parachute in aid. However, international aid officials say it’s still not enough.`\
 https://nytimes.com/video/world/middleeast/100000010324273/gaza-hunger-crisis-air-drop.html
-
-**U.S. Says It Will Not Seek Death Penalty Against 3 Drug Cartel Bosses**\
-`Foreign defendants are rarely sent to the United States if they might face death, and America’s use of capital punishment has been a significant point of friction with Mexico’s government.`\
-https://nytimes.com/2025/08/05/nyregion/cartel-bosses-death-penalty.html
-
-**Officials Move to Open Inquiry on Trump’s ‘Russia Hoax’ Grievance**\
-`Such an investigation would have to overcome a number of legal and practical hurdles, but an order by Attorney General Pam Bondi asking for a grand jury inquiry in Florida accomplishes political objectives.`\
-https://nytimes.com/2025/08/05/us/politics/trump-russia-grand-jury-investigation.html
-
-**Luke uses the Force: How new TE Farrell is boosting the 49ers' offense**\
-`Farrell won't light up the box score, but he's brought exactly what the Niners were hoping for when they signed him.`\
-https://nytimes.com/athletic/6537350/2025/08/05/49ers-training-camp-luke-farrell/
 
