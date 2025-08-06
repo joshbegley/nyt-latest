@@ -1,3 +1,19 @@
+**Tracking Tropical Storm Henriette**\
+`See the likely path and wind arrival times for Henriette`\
+https://nytimes.com/interactive/2025/08/06/weather/eight-e-map-path-tracker.html
+
+**The Giants stumbled out of the gate the past 2 years. Can they avoid another slow start?**\
+`Should the Giants play their starters more during the preseason and hope that will be the cure for their slow starts?`\
+https://nytimes.com/athletic/6537650/2025/08/06/ny-giants-brian-daboll-preseason/
+
+**5 Memorable Moments From the Las Culturistas Culture Awards**\
+`The absurd event, created and hosted by Bowen Yang and Matt Rogers, featured countless jokes, ridiculous outfits and just a touch of sincerity.`\
+https://nytimes.com/2025/08/06/style/las-culturistas-awards-highlights.html
+
+**Man Who Lit Cigarette From Eternal Flame in Paris Is Arrested**\
+`A video showing the man casually walking across the Tomb of the Unknown Soldier beneath the Arc de Triomphe set off outrage in France.`\
+https://nytimes.com/2025/08/06/world/europe/france-cigarette-unknown-soldier-tomb.html
+
 **Despite Opposition, Netanyahu’s Cabinet to Discuss Gaza Military Push**\
 `Israeli Prime Minister Benjamin Netanyahu will meet with his cabinet on Thursday as the families of the hostages warn that moving into new areas could endanger the captives.`\
 https://nytimes.com/2025/08/06/world/middleeast/israel-gaza-occupation-netanyahu.html
