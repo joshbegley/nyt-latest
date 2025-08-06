@@ -3,7 +3,7 @@
 https://nytimes.com/2025/08/06/technology/trump-chip-tariffs-semiconductors.html
 
 **Trump Administration Begins to Strip Federal Workers of Union Protections**\
-`The Department of Veterans Affairs appeared to be the first agency to begin terminating union contracts, affecting 320,000 of its workers.`\
+`The Department of Veterans Affairs appeared to be the first agency to begin terminating union contracts, affecting more than 400,000 workers.`\
 https://nytimes.com/2025/08/04/us/politics/trump-federal-workers-unions.html
 
 **Giants takeaways: Ryan Walker gets there inch by inch, more bad luck for Jerar Encarnacion**\
