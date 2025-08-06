@@ -1,3 +1,15 @@
+**Venus Williams tells tennis world not to rule her out for 2026 season at Cincinnati Open**\
+`Williams, 45, made her tennis comeback at the Citi Open in Washington D.C., where she won her opening matches in singles and doubles.`\
+https://nytimes.com/athletic/6538533/2025/08/06/tennis-venus-williams-comeback-cincinnati-open/
+
+**India Pushes Back After Trump Doubles Tariffs**\
+`Facing a 50 percent tariff as a penalty for buying Russian oil, India says it is ‘unfortunate’ that it is being punished for acting in its national interest.`\
+https://nytimes.com/2025/08/06/world/asia/india-tariffs-russian-oil.html
+
+**Red Sox closing in on extension for Roman Anthony, locking up more of young core: Sources**\
+`Anthony’s extension would be the third long-term deal for a Red Sox player this season.`\
+https://nytimes.com/athletic/6538543/2025/08/06/roman-anthony-contract-extension-red-sox/
+
 **Grief and Support When a Therapist Dies**\
 `Readers respond to a Science Times article. Also: The Arab League’s call for Hamas to disarm.`\
 https://nytimes.com/2025/08/06/opinion/therapists-death-grief.html
@@ -11,7 +23,7 @@ https://nytimes.com/2025/08/06/magazine/mom-pressuring-pretend-infertile-ethics.
 https://nytimes.com/video/world/asia/100000010322352/80-years-after-hiroshima-japan-is-a-big-defense-spender.html
 
 **5 Soldiers Shot at Fort Stewart in Georgia**\
-`The gunman was quickly apprehended, the authorities said. None of the injuries were fatal.`\
+`The gunman was quickly apprehended, the authorities said.`\
 https://nytimes.com/2025/08/06/us/fort-stewart-airfield-active-shooter.html
 
 **Experience, versatility and progressive passes: What Kiernan Dewsbury-Hall brings to Everton**\
@@ -25,16 +37,4 @@ https://nytimes.com/2025/08/06/arts/television/new-netflix-august.html
 **New Denver NWSL manager Cushing: 'I want to embrace' expansion challenge**\
 `The NWSL club has made its first managerial hire, and after 15 years across City Football Group, he's out to build a club for himself`\
 https://nytimes.com/athletic/6537971/2025/08/06/nick-cushing-denver-summit-nwsl-manager/
-
-**Leonard Lopate, Longtime New York Radio Host, Dies at 84**\
-`He mastered the art of the interview over 32 years on public radio, at WNYC. He was fired in 2017 amid allegations of sexual harassment, which he vehemently denied.`\
-https://nytimes.com/2025/08/06/business/media/leonard-lopate-dead.html
-
-**Brooklyn Rider Still Has More to Say With the String Quartet**\
-`The group is celebrating its 20th-anniversary season with a series of concerts that look back, one player says, “with a lot of forward motion.”`\
-https://nytimes.com/2025/08/06/arts/music/brooklyn-rider-string-quartet.html
-
-**In One of the Country’s Poorest States, Crippling Budget Cuts Loom**\
-`Health care. Food. Outdoor recreation. Wildfire protection. The arts. President Trump’s new domestic policy law will have wide-ranging effects in New Mexico, which depends heavily on federal funding.`\
-https://nytimes.com/2025/08/06/us/new-mexico-federal-budget-cuts.html
 

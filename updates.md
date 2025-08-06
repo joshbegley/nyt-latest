@@ -1,3 +1,19 @@
+**Venus Williams tells tennis world not to rule her out for 2026 season at Cincinnati Open**\
+`Williams, 45, made her tennis comeback at the Citi Open in Washington D.C., where she won her opening matches in singles and doubles.`\
+https://nytimes.com/athletic/6538533/2025/08/06/tennis-venus-williams-comeback-cincinnati-open/
+
+**India Pushes Back After Trump Doubles Tariffs**\
+`Facing a 50 percent tariff as a penalty for buying Russian oil, India says it is ‘unfortunate’ that it is being punished for acting in its national interest.`\
+https://nytimes.com/2025/08/06/world/asia/india-tariffs-russian-oil.html
+
+**Red Sox closing in on extension for Roman Anthony, locking up more of young core: Sources**\
+`Anthony’s extension would be the third long-term deal for a Red Sox player this season.`\
+https://nytimes.com/athletic/6538543/2025/08/06/roman-anthony-contract-extension-red-sox/
+
+**5 Soldiers Shot at Fort Stewart in Georgia**\
+`The gunman was quickly apprehended, the authorities said.`\
+https://nytimes.com/2025/08/06/us/fort-stewart-airfield-active-shooter.html
+
 **Grief and Support When a Therapist Dies**\
 `Readers respond to a Science Times article. Also: The Arab League’s call for Hamas to disarm.`\
 https://nytimes.com/2025/08/06/opinion/therapists-death-grief.html
