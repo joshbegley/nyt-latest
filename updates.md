@@ -1,3 +1,11 @@
+**Senator Marsha Blackburn Will Run for Governor of Tennessee**\
+`A conservative Trump ally in the Senate, Ms. Blackburn will now try to become the first woman to serve as governor.`\
+https://nytimes.com/2025/08/06/us/politics/marsha-blackburn-governor-tennessee.html
+
+**Phillies prospect Andrew Painter is learning from Triple-A 'rollercoaster' post-Tommy John**\
+`Painter is working hard to figure out what’s next, what he can do to become better. Each start is an opportunity.`\
+https://nytimes.com/athletic/6537815/2025/08/06/phillies-andrew-painter-tommy-john-recovery/
+
 **Alec Luhn, Missing American Hiker, Is Found Alive in Norway**\
 `Rescue workers found Mr. Luhn, a journalist who had not been heard from for days after setting off alone in a Norwegian national park.`\
 https://nytimes.com/2025/08/06/world/europe/alec-luhn-norway-found.html
