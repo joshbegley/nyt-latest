@@ -1,3 +1,11 @@
+**Judges Press for Answers on Federal Involvement in Florida’s ‘Alligator Alcatraz’**\
+`As environmentalists made the case on Wednesday to stop operations, what was most striking was how many significant questions remained unanswered about the immigration detention center.`\
+https://nytimes.com/2025/08/06/us/florida-alligator-alcatraz-environment-lawsuit.html
+
+**When Blond Meets Ambition**\
+`Loni Anderson tapped into a “bombshell” archetype, then subverted it.`\
+https://nytimes.com/2025/08/06/style/loni-anderson-wkrp-cincinnati.html
+
 **Cuomo Meets With Business Leaders as He Seeks to Undermine Adams**\
 `Former Gov. Andrew M. Cuomo told New York City executives that donating to Mayor Eric Adams’s re-election campaign could be a “suicide mission,” one attendee said.`\
 https://nytimes.com/2025/08/06/nyregion/cuomo-business-leaders-mayor-nyc.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/08/06/t-magazine/paris-summer-jewelry.html
 **Trent Williams navigates going out on top, while guiding a young 49ers tackle behind him**\
 `The All-Pro Williams isn't slowing down anytime soon, but this stage of career includes helping young tackles like Spencer Burford.`\
 https://nytimes.com/athletic/6538888/2025/08/06/spencer-burford-trent-williams-49ers-training-camp-preseason/
-
-**Tell us: What do you want to know about immigration?**\
-`The On Politics newsletter hopes to hear your questions about the Trump administration’s changes to immigration.`\
-https://nytimes.com/2025/08/06/us/politics/trump-immigration.html
-
-**Panthers joint practice observations: Tetairoa McMillan bounces back, Bryce Young praised**\
-`The rookie first-round receiver missed a smart pass from Bryce Young, but found the end zone on a slant later against the Browns.`\
-https://nytimes.com/athletic/6538992/2025/08/06/panthers-browns-practice-bryce-young-tetairoa-mcmillan/
 
