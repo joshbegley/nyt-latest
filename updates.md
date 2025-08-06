@@ -1,3 +1,15 @@
+**Ohtani is back on the mound after injury scare. Here's how to watch him pitch vs. Cards**\
+`It's Shohei Ohtani double-duty day in Chavez Ravine. Here's how to tune in for his start against the St. Louis Cardinals.`\
+https://nytimes.com/athletic/6536903/2025/08/06/shohei-ohtani-pitching-injury-dodgers-cardinals-how-to-watch/
+
+**Rebuilding Faces, Lives and a Sense of Self in Ukraine**\
+`Surgeons have made significant strides in tending to the war’s wounded, particularly through the use of 3-D printing, creating patient-specific implants and surgical guides.`\
+https://nytimes.com/2025/08/06/world/europe/ukraine-war-facial-reconstruction.html
+
+**Falcons WR Drake London is much more than the 'angry dude' he appears to be on the field**\
+`London was fourth in the NFL in receiving yards last year. Falcons quarterback Michael Penix Jr. thinks he'll be even better this year.`\
+https://nytimes.com/athletic/6534953/2025/08/06/drake-london-atlanta-falcons-angry-dude/
+
 **Will Watching ‘The Devil Wears Prada 2’ Be as Enjoyable as Watching the Filming?**\
 `Shooting on the streets of New York has meant a very public experience of a movie that won’t be out for months. It has also set up a clash with anti-spoiler culture.`\
 https://nytimes.com/2025/08/06/movies/devil-wears-prada-2-meryl-streep-anne-hathaway.html
