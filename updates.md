@@ -1,3 +1,11 @@
+**At long last, Patriots put together the kind of joint practice that inspires confidence**\
+`Mike Vrabel was bloodied while trying to break up a fight as the Patriots showed some spunk in Wednesday's practice with the Commanders.`\
+https://nytimes.com/athletic/6538816/2025/08/06/mike-vrabel-cut-patriots-commanders-joint-practice/
+
+**Tracking Tropical Storm Ivo**\
+`See the likely path and wind arrival times for Ivo`\
+https://nytimes.com/interactive/2025/08/06/weather/tropical-storm-ivo-hurricane-mexico.html
+
 **How Much Did You Spend on Your Wedding? We’d Love to Hear.**\
 `Did you have a modest or extravagant budget? Or did you land somewhere in between? We’re interested in how much you spent, what you splurged on or how you cut costs.`\
 https://nytimes.com/2025/08/06/fashion/weddings/wedding-cost-callout.html

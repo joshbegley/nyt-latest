@@ -1,3 +1,11 @@
+**At long last, Patriots put together the kind of joint practice that inspires confidence**\
+`Mike Vrabel was bloodied while trying to break up a fight as the Patriots showed some spunk in Wednesday's practice with the Commanders.`\
+https://nytimes.com/athletic/6538816/2025/08/06/mike-vrabel-cut-patriots-commanders-joint-practice/
+
+**Tracking Tropical Storm Ivo**\
+`See the likely path and wind arrival times for Ivo`\
+https://nytimes.com/interactive/2025/08/06/weather/tropical-storm-ivo-hurricane-mexico.html
+
 **How Much Did You Spend on Your Wedding? We’d Love to Hear.**\
 `Did you have a modest or extravagant budget? Or did you land somewhere in between? We’re interested in how much you spent, what you splurged on or how you cut costs.`\
 https://nytimes.com/2025/08/06/fashion/weddings/wedding-cost-callout.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6532210/2025/08/06/son-heung-min-lafc-tactics-fit-c
 **New Zealand Air Force Mounts Dangerous Rescue in Antarctica**\
 `Three staff members from the National Science Foundation were evacuated from a U.S. research base after a medical emergency. The mission is one of the most challenging for the air force.`\
 https://nytimes.com/2025/08/06/world/new-zealand-us-antarctic-base-rescue.html
-
-**Commanders-Patriots observations: Skirmishes, Bon Jovi and Washington's glaring problem**\
-`Washington's rebuilt defensive front had a good day, its pass defense remains a work in progress, and its receiving room needs help.`\
-https://nytimes.com/athletic/6538851/2025/08/06/commanders-patriots-bon-jovi-fights-receivers-mclaurin/
-
-**Arteta hopes Havertz, Calafiori and Trossard will be available for Athletic game**\
-`All three players missed Arsenal's 3-2 defeat against Villarreal on Wednesday.`\
-https://nytimes.com/athletic/6539041/2025/08/06/arteta-havertz-calafiori-trossard-arsenal-update/
 
