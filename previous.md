@@ -1,3 +1,7 @@
+**Jota to feature on Premier League trading cards for upcoming season**\
+`Liverpool have been made aware of the unfortunate situation with the collection set to launch on Thursday.`\
+https://nytimes.com/athletic/6538819/2025/08/06/liverpool-diogo-jota-trading-cards/
+
 **Oregon Man Accused of Killing 3 Women Is Now Charged With Killing a Fourth**\
 `The killings spread fear in the area after the bodies were found over several months in early 2023.`\
 https://nytimes.com/2025/08/06/us/jesse-calhoun-indicted-murder-oregon.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/world/asia/100000010326376/india-flash-flood.html
 **President Trump floats military use at L.A. Olympics, says there will be gender testing**\
 `Trump will oversee a task force aimed at securing the 2028 Olympics, and also used the occasion to commend the USOPC for its recent shift.`\
 https://nytimes.com/athletic/6538232/2025/08/06/president-trump-los-angeles-olympics-transgender-policy-military/
-
-**As Earth Warms, California Fire Season Is Starting Earlier, Study Finds**\
-`Summertime fire activity is creeping into spring, and the balmier climate is a major driver, scientists said.`\
-https://nytimes.com/2025/08/06/climate/california-earlier-fire-season.html
 
