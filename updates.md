@@ -1,3 +1,11 @@
+**The Windup: Two risers and a free-faller**\
+`Welcome to The Windup, The Athletic's MLB newsletter.`\
+https://nytimes.com/athletic/6537829/2025/08/06/yankees-rangers-red-sox-the-windup/
+
+**Trump to Announce Additional $100 Billion Apple Investment in U.S.**\
+`The pledge was a “significant acceleration” of the company’s plan for more production in the United States, according to a White House statement.`\
+https://nytimes.com/2025/08/06/us/politics/trump-apple-investment.html
+
 **Brooklyn Rider Still Has More to Say With the String Quartet**\
 `The group is celebrating its 20th-anniversary season with a series of concerts that look back, one player says, “with a lot of forward motion.”`\
 https://nytimes.com/2025/08/06/arts/music/brooklyn-rider-string-quartet.html
