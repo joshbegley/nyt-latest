@@ -1,5 +1,13 @@
+**Georgetown Scholar Reaches Deal to Return to Work While Fighting Deportation**\
+`In a settlement, the government agreed to reinstate Badar Khan Suri’s legal status amid litigation over the Trump administration’s efforts to deport him.`\
+https://nytimes.com/2025/08/05/us/politics/georgetown-academic-immigration.html
+
+**Ex-Miami Heat employee charged for stealing hundreds of game-used items**\
+`Hundreds of items intended for a Miami Heat museum were found in the former security officer's home`\
+https://nytimes.com/athletic/6537573/2025/08/05/miami-heat-memorabilia-theft/
+
 **Trump Threatens Federal Takeover of D.C. After Member of DOGE Assaulted**\
-`President Trump shared a photograph of a young software engineer known as “Big Balls,” shirtless and bloodied, after an attempted carjacking.`\
+`President Trump shared a photograph that appeared to show a 19-year-old software engineer shirtless and bloodied, after an attempted carjacking.`\
 https://nytimes.com/2025/08/05/us/politics/trump-doge-member-assaulted.html
 
 **Blockbuster trade: ESPN swaps 10% equity to NFL for NFL Network and other media assets**\
@@ -29,12 +37,4 @@ https://nytimes.com/2025/08/05/health/rfk-jr-vaccine-funding.html
 **Jerry Jones not confident Micah Parsons will be on the field Week 1**\
 `"We will work through it or we will not work through it,” Jones said Tuesday after the Cowboys and Rams held a joint practice.`\
 https://nytimes.com/athletic/6536650/2025/08/05/micah-parsons-cowboys-jerry-jones-contract-dispute/
-
-**New York City Carriage Horse Collapses and Dies on Manhattan Street**\
-`The death of the 15-year-old mare named Lady was being investigated by the city’s health department, officials said.`\
-https://nytimes.com/2025/08/05/nyregion/nyc-carriage-horse-dies.html
-
-**What to Know: Why 2 Quakes Jolted New York and New Jersey Recently**\
-`The recent temblors were classified as “weak,” and may have been connected to a bigger earthquake last year in the area.`\
-https://nytimes.com/2025/08/05/nyregion/earthquake-nj-nyc-new-york-why.html
 
