@@ -1,3 +1,7 @@
+**Cuomo Calls for Gaza Aid and Says ‘Some People’ Blame Israel for Crisis**\
+`Former Gov. Andrew M. Cuomo appeared to criticize Israel over the humanitarian crisis in Gaza. Hours later, he distanced himself from his remarks.`\
+https://nytimes.com/2025/08/05/nyregion/cuomo-gaza-aid-israel.html
+
 **4 Dead After Medical Transport Plane Crashes in Arizona**\
 `The plane was landing at Chinle Municipal Airport in the Navajo Nation in Arizona to pick up a patient for a medical transfer. It was not immediately clear what had caused the crash.`\
 https://nytimes.com/2025/08/05/us/medical-transport-plane-crash-arizona-navajo-nation.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/05/business/media/nfl-espn-disney-deal.html
 **Lamar Jackson feels Ravens' offense is where it needs to be following practice vs. Colts**\
 `It's been an uneven start to camp for Baltimore's offense, but Jackson and John Harbaugh felt encouraged by the session vs. Indianapolis. `\
 https://nytimes.com/athletic/6537445/2025/08/05/ravens-colts-practice-lamar-jackson/
-
-**With Canada No Longer Able to Rely on U.S., Carney Pushes New Markets**\
-`Prime Minister Mark Carney suggested he’s unlikely to add additional retaliatory tariffs on U.S. goods, but he is trying to help affected companies develop new products and find new buyers.`\
-https://nytimes.com/2025/08/05/world/canada/canada-carney-tariffs-response.html
 

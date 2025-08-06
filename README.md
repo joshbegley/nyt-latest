@@ -1,3 +1,7 @@
+**Colts' breakout camp star AD Mitchell torches Ravens in joint practice**\
+`Mitchell talked a lot of trash on Tuesday ... and backed it up with his play. Meanwhile, QB Anthony Richardson continues to impress. `\
+https://nytimes.com/athletic/6537554/2025/08/05/colts-ad-mitchell-ravens-anthony-richardson/
+
 **Cuomo Calls for Gaza Aid and Says ‘Some People’ Blame Israel for Crisis**\
 `Former Gov. Andrew M. Cuomo appeared to criticize Israel over the humanitarian crisis in Gaza. Hours later, he distanced himself from his remarks.`\
 https://nytimes.com/2025/08/05/nyregion/cuomo-gaza-aid-israel.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6531001/2025/08/05/keenan-allen-chargers-bears-cont
 **ESPN, Leaping to Streaming, Holds Hands With the N.F.L.**\
 `The network and sports league announced a deal that gives the N.F.L. an ownership stake in ESPN. In exchange, the network will control some of the league’s media outlets.`\
 https://nytimes.com/2025/08/05/business/media/nfl-espn-disney-deal.html
-
-**Lamar Jackson feels Ravens' offense is where it needs to be following practice vs. Colts**\
-`It's been an uneven start to camp for Baltimore's offense, but Jackson and John Harbaugh felt encouraged by the session vs. Indianapolis. `\
-https://nytimes.com/athletic/6537445/2025/08/05/ravens-colts-practice-lamar-jackson/
 
