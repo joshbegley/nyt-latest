@@ -1,3 +1,7 @@
+**Oregon Man Accused of Killing 3 Women Is Now Charged With Killing a Fourth**\
+`The killings spread fear in the area after the bodies were found over several months in early 2023.`\
+https://nytimes.com/2025/08/06/us/jesse-calhoun-indicted-murder-oregon.html
+
 **What Trump’s Immigration Crackdown Means for the 2028 Olympics**\
 `The 2028 Summer Olympic Games in Los Angeles will draw thousands of foreign visitors to the United States.`\
 https://nytimes.com/2025/08/06/us/politics/trump-visas-olympics-2028.html

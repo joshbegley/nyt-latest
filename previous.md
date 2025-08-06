@@ -1,3 +1,7 @@
+**Oregon Man Accused of Killing 3 Women Is Now Charged With Killing a Fourth**\
+`The killings spread fear in the area after the bodies were found over several months in early 2023.`\
+https://nytimes.com/2025/08/06/us/jesse-calhoun-indicted-murder-oregon.html
+
 **What Trump’s Immigration Crackdown Means for the 2028 Olympics**\
 `The 2028 Summer Olympic Games in Los Angeles will draw thousands of foreign visitors to the United States.`\
 https://nytimes.com/2025/08/06/us/politics/trump-visas-olympics-2028.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6538232/2025/08/06/president-trump-los-angeles-olym
 **As Earth Warms, California Fire Season Is Starting Earlier, Study Finds**\
 `Summertime fire activity is creeping into spring, and the balmier climate is a major driver, scientists said.`\
 https://nytimes.com/2025/08/06/climate/california-earlier-fire-season.html
-
-**NFL employee injured in shooting 'doing incredibly well,' per commissioner Roger Goodell**\
-`"It's been a tough week, not just for the NFL, but everybody at our Park Avenue offices," Goodell said in a "SportsCenter" interview.`\
-https://nytimes.com/athletic/6538617/2025/08/06/nfl-employee-injured-in-shooting-doing-incredibly-well-per-commissioner-roger-goodell/
 
