@@ -1,3 +1,7 @@
+**Lowetide: What are the great Oilers training camp stories of the last decade?**\
+`There have been some outstanding surprise stories emerge during the decade's camps for the Oilers.`\
+https://nytimes.com/athletic/6536956/2025/08/06/edmonton-oilers-training-camp-stories/
+
 **Prince Harry Cleared of Bullying Accusations at Charity He Co-founded**\
 `The British regulator found no evidence to support the claims made by the charity’s chair, but it criticized all sides for letting the fight play out publicly.`\
 https://nytimes.com/2025/08/06/world/europe/prince-harry-charity-sentebale.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6534510/2025/08/06/dewsbury-hall-everton-transfer-c
 **Claire’s, Teen Jewelry Chain, Files for Bankruptcy a 2nd Time**\
 `Once ubiquitous for ear piercing at the mall, Claire’s faced financial volatility along with other bricks-and-mortar retailers. It last filed for bankruptcy in 2018.`\
 https://nytimes.com/2025/08/06/business/claires-jewelry-bankruptcy-tariffs.html
-
-**Stanford Newspaper Challenges Legal Basis for Student Deportations**\
-`A new lawsuit brought by a First Amendment watchdog group argues that the use of a rarely invoked immigration law to target pro-Palestinian demonstrators is unconstitutional.`\
-https://nytimes.com/2025/08/06/us/politics/stanford-lawsuit-student-activist-deportations.html
 
