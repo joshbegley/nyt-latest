@@ -1,3 +1,7 @@
+**My Mom Keeps Pressuring Me to Have Kids. Can I Pretend to Be Infertile?**\
+`Now she’s saying that she’ll cut me out of her will if I don’t have a child.`\
+https://nytimes.com/2025/08/06/magazine/mom-pressuring-pretend-infertile-ethics.html
+
 **MLB's first female umpire set to debut; Jen Pawol to be promoted for Saturday's Marlins-Braves games**\
 `Pawol, a veteran minor league umpire, will be the first female to umpire a regular season MLB game when she debuts on Saturday.`\
 https://nytimes.com/athletic/6538637/2025/08/06/mlb-first-female-umpire-jen-pawol/
