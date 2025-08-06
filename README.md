@@ -1,3 +1,7 @@
+**China Turns to A.I. in Information Warfare**\
+`Documents examined by researchers show how one company in China has collected data on members of Congress and other influential Americans.`\
+https://nytimes.com/2025/08/06/us/politics/china-artificial-intelligence-information-warfare.html
+
 **How ‘Fawning’ Is Ruining Your Relationships**\
 `Excessive people pleasing can trap you in a cycle of insecurity. Here’s how to break the habit.`\
 https://nytimes.com/2025/08/06/well/fawning-book.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/06/us/politics/trump-apple-investment.html
 **Lowetide: What are the great Oilers training camp stories of the last decade?**\
 `There have been some outstanding surprise stories emerge during the decade's camps for the Oilers.`\
 https://nytimes.com/athletic/6536956/2025/08/06/edmonton-oilers-training-camp-stories/
-
-**Prince Harry Cleared of Bullying Accusations at Charity He Co-founded**\
-`The British regulator found no evidence to support the claims made by the charity’s chair, but it criticized all sides for letting the fight play out publicly.`\
-https://nytimes.com/2025/08/06/world/europe/prince-harry-charity-sentebale.html
 

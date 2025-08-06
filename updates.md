@@ -1,3 +1,7 @@
+**U.S. Open announces record $85m tennis Grand Slam prize money amid player unrest**\
+`The new record adds another frontier to the arms race between the Grand Slams, as players focus on how much tournament revenue they get.`\
+https://nytimes.com/athletic/6537510/2025/08/06/tennis-us-open-prize-money-2025/
+
 **How ‘Fawning’ Is Ruining Your Relationships**\
 `Excessive people pleasing can trap you in a cycle of insecurity. Here’s how to break the habit.`\
 https://nytimes.com/2025/08/06/well/fawning-book.html

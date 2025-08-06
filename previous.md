@@ -10,6 +10,10 @@ https://nytimes.com/2025/08/06/us/politics/trump-india-tariffs-russia-oil.html
 `Pay-per-view channel Premier Sports will continue as the main broadcaster of La Liga in the UK and Ireland.`\
 https://nytimes.com/athletic/6538290/2025/08/06/disney-la-liga-uk-ireland-broadcast-deal/
 
+**U.S. Open announces record $85m tennis Grand Slam prize money amid player unrest**\
+`The new record adds another frontier to the arms race between the Grand Slams, as players focus on how much tournament revenue they get.`\
+https://nytimes.com/athletic/6537510/2025/08/06/tennis-us-open-prize-money-2025/
+
 **Dentists Know You Hate Flossing. Try This Instead.**\
 `You still have to clean between your teeth, but other tools might work even better.`\
 https://nytimes.com/2025/08/06/well/interdental-brushes-or-floss.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6536956/2025/08/06/edmonton-oilers-training-camp-st
 **Prince Harry Cleared of Bullying Accusations at Charity He Co-founded**\
 `The British regulator found no evidence to support the claims made by the charity’s chair, but it criticized all sides for letting the fight play out publicly.`\
 https://nytimes.com/2025/08/06/world/europe/prince-harry-charity-sentebale.html
-
-**Key questions about the blockbuster, billion-dollar ESPN-NFL deal: MoneyCall**\
-`Welcome back to MoneyCall, The Athletic’s weekly sports business cheat sheet.`\
-https://nytimes.com/athletic/6538183/2025/08/06/espn-nfl-redzone-dtc-streaming-moneycall/
 
