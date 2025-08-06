@@ -1,3 +1,15 @@
+**Man United closing on Sesko transfer from RB Leipzig**\
+`Sesko’s preference is to join Manchester United and all parties are now aware of that as talks continue.`\
+https://nytimes.com/athletic/6537293/2025/08/06/sesko-manchester-united-transfer-newcastle/
+
+**Legionnaires’ Outbreak in Harlem Kills 2 and Sickens More Than 50**\
+`The source of the illness has not been conclusively identified more than a week after people began getting sick.`\
+https://nytimes.com/2025/08/06/nyregion/legionnaires-disease-outbreak-harlem-new-york.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/08/06/crosswords/spelling-bee-forum.html
+
 **How Manchester United can afford to spend big on Benjamin Sesko and explore more signings**\
 `Accountancy rules and changes to the club's credit facilities mean they are able to spend significantly on transfers this summer`\
 https://nytimes.com/athletic/6529726/2025/08/06/manchester-united-transfer-credit-facility/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/08/06/opinion/hiroshima-nagasaki-anniversary-nuclear-we
 **The Promise of Palestinian Statehood Is Ringing Hollow**\
 `Recognition will come with strings attached and little chance for holding Israel to account.`\
 https://nytimes.com/2025/08/06/opinion/israel-palestinians-un-statehood.html
-
-**City Council President and Pastor Advance in Detroit Mayoral Election**\
-`Mary Sheffield and Solomon Kinloch Jr. will face off in a November election. Mike Duggan, Detroit’s mayor for a dozen years, is not seeking re-election.`\
-https://nytimes.com/2025/08/06/us/elections/detroit-mayoral-election.html
-
-**Jerar Encarnacion returns with a bang as Giants finally power past pesky Pirates**\
-`A fractured a finger in spring training disrupted Encarnacion's season, but he has a chance to make up for lost time. `\
-https://nytimes.com/athletic/6537724/2025/08/06/giants-jerar-encarnacion-homer-jerry/
-
-**History lessons, house hunting and ready meals: How Liverpool help new players settle in**\
-`The process of helping new players feel at home is delicate but crucial - this is how Liverpool do it`\
-https://nytimes.com/athletic/6524568/2025/08/06/liverpool-new-signings-settle-in/
 
