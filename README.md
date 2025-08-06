@@ -1,4 +1,4 @@
-**Grief and Support When Therapists Die**\
+**Grief and Support When a Therapist Dies**\
 `Readers respond to a Science Times article. Also: The Arab League’s call for Hamas to disarm.`\
 https://nytimes.com/2025/08/06/opinion/therapists-death-grief.html
 
@@ -10,8 +10,8 @@ https://nytimes.com/2025/08/06/magazine/mom-pressuring-pretend-infertile-ethics.
 `It has been 80 years since the United States dropped an atomic bomb on Hiroshima in the world’s first nuclear attack. Hannah Beech, a reporter who covers Asia for The New York Times, explains how that moment shaped Japan’s approach to peace, and how that approach is beginning to change.`\
 https://nytimes.com/video/world/asia/100000010322352/80-years-after-hiroshima-japan-is-a-big-defense-spender.html
 
-**Active Shooting With Casualties Is Reported at Fort Stewart Airfield**\
-`The military base in Georgia went into lockdown just after 11 a.m., the authorities said.`\
+**5 Soldiers Shot at Fort Stewart in Georgia**\
+`The gunman was quickly apprehended, the authorities said. None of the injuries were fatal.`\
 https://nytimes.com/2025/08/06/us/fort-stewart-airfield-active-shooter.html
 
 **Experience, versatility and progressive passes: What Kiernan Dewsbury-Hall brings to Everton**\
