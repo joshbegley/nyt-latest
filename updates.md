@@ -1,3 +1,7 @@
+**How Manchester United can afford to spend big on Benjamin Sesko and explore more signings**\
+`Accountancy rules and changes to the club's credit facilities mean they are able to spend significantly on transfers this summer`\
+https://nytimes.com/athletic/6529726/2025/08/06/manchester-united-transfer-credit-facility/
+
 **Jacob’s Pillow Cancels Remainder of Festival After Death at Center**\
 `A production manager died at the dance center last week in what the district attorney’s office in Berkshire County, Mass., described as a workplace accident.`\
 https://nytimes.com/2025/08/06/us/jacobs-pillow-dance-festival-canceled.html
