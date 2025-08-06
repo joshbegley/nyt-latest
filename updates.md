@@ -1,3 +1,11 @@
+**Republicans Raise the Pressure on Texas Democrats to End Their Walkout**\
+`The political and legal threats against Democrats who left Texas to protest a redrawn political map have gone further and faster than many anticipated.`\
+https://nytimes.com/2025/08/06/us/politics/texas-redistricting.html
+
+**Where the Redistricting Wars Might Go After Texas**\
+`Texas Democrats may have bought their party some time with their walkout, but both parties are mobilizing to redraw U.S. House maps ahead of the midterms.`\
+https://nytimes.com/2025/08/06/us/politics/redistricting-states.html
+
 **Bills, James Cook enter a staring contest over contract. How could it end?**\
 `James Cook took an unusual route by practicing and then beginning a hold-in.`\
 https://nytimes.com/athletic/6539062/2025/08/06/buffalo-bills-james-cook-contract/
