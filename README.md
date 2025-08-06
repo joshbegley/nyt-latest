@@ -1,3 +1,7 @@
+**Phillies prospect Andrew Painter is learning from Triple-A 'rollercoaster' post-Tommy John**\
+`Painter is working hard to figure out what’s next, what he can do to become better. Each start is an opportunity.`\
+https://nytimes.com/athletic/6537815/2025/08/06/phillies-andrew-painter-tommy-john-recovery/
+
 **Alec Luhn, Missing American Hiker, Is Found Alive in Norway**\
 `Rescue workers found Mr. Luhn, a journalist who had not been heard from for days after setting off alone in a Norwegian national park.`\
 https://nytimes.com/2025/08/06/world/europe/alec-luhn-norway-found.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6528077/2025/08/06/sidney-crosby-retirement-penguin
 **It's 'next blue-chip up' for Ohio State at receiver. Now it's Brandon Inniss' turn**\
 `Nobody hoards star wide receivers like Ohio State. Inniss is next in line alongside Jeremiah Smith and Carnell Tate after waiting his turn.`\
 https://nytimes.com/athletic/6536957/2025/08/06/brandon-inniss-ohio-state-wide-receivers/
-
-**Trump Administration Live Updates: U.S. Envoy Meets Putin as Sanctions Deadline Looms**\
-``\
-https://nytimes.com/live/2025/08/06/us/trump-news
 
