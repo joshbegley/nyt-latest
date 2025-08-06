@@ -1,3 +1,15 @@
+**How LAFC can get the most out of Son – and avoid another Giroud-like flop**\
+`LAFC's last big swing didn't go so well. So how can the MLS Cup hopeful turn its new star signing into a smash success?`\
+https://nytimes.com/athletic/6532210/2025/08/06/son-heung-min-lafc-tactics-fit-cherundolo-bouanga/
+
+**New Zealand Air Force Mounts Dangerous Rescue Mission in Antarctica**\
+`Three staff members from the National Science Foundation were evacuated from a U.S. research base after a medical emergency. The mission is one of the most challenging the air force can undertake.`\
+https://nytimes.com/2025/08/06/world/new-zealand-us-antarctic-base-rescue.html
+
+**Commanders-Patriots observations: Skirmishes, Bon Jovi and Washington's glaring problem**\
+`Washington's rebuilt defensive front had a good day, its pass defense is still a work in progress, and its receiving room needs help.`\
+https://nytimes.com/athletic/6538851/2025/08/06/commanders-patriots-bon-jovi-fights-receivers-mclaurin/
+
 **Arteta hopes Havertz, Calafiori and Trossard will be available for Athletic game**\
 `All three players missed Arsenal's 3-2 defeat against Villarreal on Wednesday.`\
 https://nytimes.com/athletic/6539041/2025/08/06/arteta-havertz-calafiori-trossard-arsenal-update/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6538351/2025/08/06/fantasy-football-draft-strategy-
 **Guardians' Gavin Williams falls just short of no-hitting the Mets, as New York's malaise continues**\
 `The Mets didn't have a hit for 17 straight innings before Juan Soto hit a solo home run off Williams with one out in the ninth.`\
 https://nytimes.com/athletic/6538928/2025/08/06/gavin-williams-guardians-mets-near-no-hitter/
-
-**Scoop City: Cowboys' costly tactics, Chargers' reunion**\
-`Why Micah Parsons might miss Week 1, Keenan Allen returns to the Chargers and NFL RedZone is safe, for now. Plus, Mike Sando joins us.`\
-https://nytimes.com/athletic/6538910/2025/08/06/cowboys-micah-parsons-keenan-allen-chargers-nfl-scoop-city/
-
-**German club pull out of transfer of Israel international over Gaza social media posts**\
-`Weissman had already travelled to Dusseldorf and underwent medical tests ahead of completing his move, but the club cancelled the deal.`\
-https://nytimes.com/athletic/6538025/2025/08/06/german-club-transfer-israel-gaza/
-
-**Trump Weighs Getting Involved in New York City Mayor’s Race**\
-`The possibility that the president will seek to intercede could inject an element of unpredictability into an already fractious contest.`\
-https://nytimes.com/2025/08/06/nyregion/trump-nyc-mayor-cuomo-adams-mamdani.html
 
