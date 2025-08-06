@@ -1,3 +1,23 @@
+**Teddy Bridgewater opens up about 'difficult' suspension from Florida high school**\
+`Bridgewater coached his alma mater to a state title in 2024.`\
+https://nytimes.com/athletic/6538889/2025/08/06/teddy-bridgewater-miami-high-school-football-suspension/
+
+**Trump Tells European Leaders He Intends to Meet With Putin and Zelensky**\
+`President Trump has been stymied for months in his efforts to find a peace agreement between Russia and Ukraine, after more than three years of war.`\
+https://nytimes.com/2025/08/06/us/politics/trump-meeting-putin-zelensky.html
+
+**Sporting CP make Jota enquiry to Nottingham Forest**\
+`If a deal progresses, talks are expected to centre around a loan move for the 26-year-old.`\
+https://nytimes.com/athletic/6538022/2025/08/06/sporting-forest-jota-silva-enquiry/
+
+**Oregon Man Accused of Killing 3 Women Is Now Charged With Murdering a Fourth**\
+`The killings spread fear in the area after the bodies were found over several months in early 2023.`\
+https://nytimes.com/2025/08/06/us/jesse-calhoun-indicted-murder-oregon.html
+
+**Ipswich reject Forest bid for Hutchinson**\
+`The 21-year-old scored three goals for Ipswich in the Premier League last season.`\
+https://nytimes.com/athletic/6493315/2025/08/06/omari-hutchinson-ipswich-town-nottingham-forest-bid/
+
 **Jota to feature on Premier League trading cards for upcoming season**\
 `Liverpool have been made aware of the unfortunate situation with the collection set to launch on Thursday.`\
 https://nytimes.com/athletic/6538819/2025/08/06/liverpool-diogo-jota-trading-cards/
