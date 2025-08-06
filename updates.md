@@ -1,3 +1,7 @@
+**Grealish: Everton open talks with Manchester City over potential loan move**\
+`The deal is considered complicated and at this stage there are no guarantees it will happen.`\
+https://nytimes.com/athletic/6259635/2025/08/06/jack-grealish-everton-transfer-manchester-city/
+
 **TAFC: What are Wrexham's chances of promotion to PL? Plus: Man Utd close in on Sesko**\
 `Today in TAFC: Wrexham's potential to seal four successive promotions, Sesko on the cusp of a Man Utd move, what can poker teach football?`\
 https://nytimes.com/athletic/6537927/2025/08/06/wrexham-premier-league-promotion-manchester-united-sesko-transfer/
