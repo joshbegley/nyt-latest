@@ -1,3 +1,11 @@
+**On the Hunt for Spies, Iran Executes a Nuclear Scientist**\
+`After the war with Israel, Iranian authorities have swept up hundreds of people deemed suspected infiltrators. But the arrest and hanging of the nuclear scientist Roozbeh Vadi was a rare move.`\
+https://nytimes.com/2025/08/06/world/middleeast/iran-executes-nuclear-scientist-espionage.html
+
+**Man Who Vowed on TikTok to Kill Trump Will Plead Guilty, Court Records Show**\
+`Before the inauguration, Jacob Buckley, of Port Matilda, Pa., wrote “Bro we going into a literal oligarchy in 4 days and im going to kill Trump,” prosecutors said.`\
+https://nytimes.com/2025/08/06/us/pennsylvania-man-tiktok-threat-trump.html
+
 **Charleston’s Climate Lawsuit Against Oil Giants Is Dismissed**\
 `The legal claim, one of a raft of lawsuits across the country, had accused companies of a yearslong disinformation campaign about climate change.`\
 https://nytimes.com/2025/08/06/climate/charleston-climate-lawsuit-oil-companies.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6539269/2025/08/06/lesley-ugochukwu-burnley-chelsea
 **Judges Press for Answers on Federal Involvement in Florida’s ‘Alligator Alcatraz’**\
 `As environmentalists made the case on Wednesday to stop operations, what was most striking was how many significant questions remained unanswered about the immigration detention center.`\
 https://nytimes.com/2025/08/06/us/florida-alligator-alcatraz-environment-lawsuit.html
-
-**When Blond Meets Ambition**\
-`Loni Anderson tapped into a “bombshell” archetype, then subverted it.`\
-https://nytimes.com/2025/08/06/style/loni-anderson-wkrp-cincinnati.html
-
-**Cuomo Meets With Business Leaders as He Seeks to Undermine Adams**\
-`Former Gov. Andrew M. Cuomo told New York City executives that donating to Mayor Eric Adams’s re-election campaign could be a “suicide mission,” one attendee said.`\
-https://nytimes.com/2025/08/06/nyregion/cuomo-business-leaders-mayor-nyc.html
 

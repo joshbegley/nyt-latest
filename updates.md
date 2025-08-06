@@ -1,3 +1,7 @@
+**Charleston’s Climate Lawsuit Against Oil Giants Is Dismissed**\
+`The legal claim, one of a raft of lawsuits across the country, had accused companies of a yearslong disinformation campaign about climate change.`\
+https://nytimes.com/2025/08/06/climate/charleston-climate-lawsuit-oil-companies.html
+
 **Son Heung-min says LAFC "changed my heart" after MLS unveiling**\
 `The South Korean superstar was unveiled in Los Angeles on Wednesday.`\
 https://nytimes.com/athletic/6539260/2025/08/06/son-heung-min-lafc-press-conference-south-korea-mls/
