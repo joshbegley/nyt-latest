@@ -1,3 +1,7 @@
+**Colts' breakout camp star AD Mitchell torches Ravens in joint practice**\
+`Mitchell talked a lot of trash on Tuesday ... and backed it up with his play. Meanwhile, QB Anthony Richardson continues to impress. `\
+https://nytimes.com/athletic/6537554/2025/08/05/colts-ad-mitchell-ravens-anthony-richardson/
+
 **Cuomo Calls for Gaza Aid and Says ‘Some People’ Blame Israel for Crisis**\
 `Former Gov. Andrew M. Cuomo appeared to criticize Israel over the humanitarian crisis in Gaza. Hours later, he distanced himself from his remarks.`\
 https://nytimes.com/2025/08/05/nyregion/cuomo-gaza-aid-israel.html
