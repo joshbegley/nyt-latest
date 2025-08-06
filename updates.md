@@ -1,3 +1,11 @@
+**How Much Did You Spend on Your Wedding? We’d Love to Hear.**\
+`Did you have a modest or extravagant budget? Or did you land somewhere in between? We’re interested in how much you spent, what you splurged on or how you cut costs.`\
+https://nytimes.com/2025/08/06/fashion/weddings/wedding-cost-callout.html
+
+**Commanders-Patriots observations: Skirmishes, Bon Jovi and Washington's glaring problem**\
+`Washington's rebuilt defensive front had a good day, its pass defense remains a work in progress, and its receiving room needs help.`\
+https://nytimes.com/athletic/6538851/2025/08/06/commanders-patriots-bon-jovi-fights-receivers-mclaurin/
+
 **Thursday Briefing: Trump Threatens to Double India’s Tariffs**\
 `Also, a possible Russia-Ukraine-U.S. summit.`\
 https://nytimes.com/2025/08/06/briefing/india-tariff-trump-russia-ukraine-china-ai.html
