@@ -1,3 +1,7 @@
+**Sunderland set to sign Chelsea's Guiu on season-long loan deal**\
+`Guiu made 16 appearances for the west London side last season, with the majority of them coming in the Conference League, scoring six goals.`\
+https://nytimes.com/athletic/6528636/2025/08/06/marc-guiu-sunderland-loan-transfer-chelsea/
+
 **Man United closing on Sesko transfer from RB Leipzig**\
 `Sesko’s preference is to join Manchester United and all parties are now aware of that as talks continue.`\
 https://nytimes.com/athletic/6537293/2025/08/06/sesko-manchester-united-transfer-newcastle/
@@ -33,8 +37,4 @@ https://nytimes.com/issue/todayspaper/2025/08/06/todays-new-york-times
 **Eighty Years of Nuclear Weapons Is Enough**\
 `The nuclear taboo is on the verge of collapse.`\
 https://nytimes.com/2025/08/06/opinion/hiroshima-nagasaki-anniversary-nuclear-weapons.html
-
-**The Promise of Palestinian Statehood Is Ringing Hollow**\
-`Recognition will come with strings attached and little chance for holding Israel to account.`\
-https://nytimes.com/2025/08/06/opinion/israel-palestinians-un-statehood.html
 
