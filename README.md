@@ -1,3 +1,7 @@
+**German club pull out of transfer of Israel international over Gaza social media posts**\
+`Weissman had already travelled to Dusseldorf and underwent medical tests ahead of completing his move, but the club cancelled the deal.`\
+https://nytimes.com/athletic/6538025/2025/08/06/german-club-transfer-israel-gaza/
+
 **Trump Weighs Getting Involved in New York City Mayor Race**\
 `The possibility that the president will seek to intercede could inject an element of unpredictability into an already fractious contest.`\
 https://nytimes.com/2025/08/06/nyregion/trump-nyc-mayor-cuomo-adams-mamdani.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/06/us/politics/trump-visas-olympics-2028.html
 **Chelsea men's and women's teams celebrate trophy wins at Stamford Bridge**\
 `The club celebrated the five trophies won by their men’s and women’s teams last season.`\
 https://nytimes.com/athletic/6538799/2025/08/06/chelsea-stamford-bridge-trophy-celebration/
-
-**Tiny Love Stories: ‘Let Joy Back In’**\
-`Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
-https://nytimes.com/2025/08/06/style/tiny-modern-love-stories-let-joy-back-in.html
 
