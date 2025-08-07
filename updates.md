@@ -1,3 +1,7 @@
+**Pac-12-bound schools sue Mountain West over money, handling of Grand Canyon move**\
+`The millions of dollars in dispute include CFP money earned through Boise State’s appearance in the inaugural 12-team field last season.`\
+https://nytimes.com/athletic/6541073/2025/08/07/mountain-west-lawsuits-grand-canyon/
+
 **Remains of 3 Victims of 9/11 Are Identified From Minuscule Evidence**\
 `New York’s medical examiner is working methodically through a backlog of bones. “We’re talking about people putting in overtime 24 years later, for us,” said the son of one victim.`\
 https://nytimes.com/2025/08/07/nyregion/sept-11-victims-remains-identified.html
