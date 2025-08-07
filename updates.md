@@ -1,3 +1,11 @@
+**Salah, Dembele, Yamal? Who we think should win the men's Ballon d'Or**\
+`Another star-studded Ballon d'Or nominees list has been announced. So The Athletic’s experts made their cases for who should be victorious`\
+https://nytimes.com/athletic/6540340/2025/08/07/mens-ballon-dor-salah-dembele-yamal/
+
+**Scoop City: Quarterbacks to watch in tonight's preseason action, from Burrow to Milroe**\
+`Vrabel's bloody day, plus starting quarterbacks to watch in tonight's preseason action and why the Seahawks are a dark horse.`\
+https://nytimes.com/athletic/6540480/2025/08/07/nfl-preseason-week-1-starters-quarterbacks-burrow-milroe-scoop-city/
+
 **A Famously Stable Glacier in Argentina Suddenly Looks Anything But**\
 `After holding steady for decades, the beloved Perito Moreno has thinned considerably since 2019, scientists said.`\
 https://nytimes.com/2025/08/07/climate/argentina-perito-moreno-glacier.html

@@ -1,3 +1,11 @@
+**Salah, Dembele, Yamal? Who we think should win the men's Ballon d'Or**\
+`Another star-studded Ballon d'Or nominees list has been announced. So The Athletic’s experts made their cases for who should be victorious`\
+https://nytimes.com/athletic/6540340/2025/08/07/mens-ballon-dor-salah-dembele-yamal/
+
+**Scoop City: Quarterbacks to watch in tonight's preseason action, from Burrow to Milroe**\
+`Vrabel's bloody day, plus starting quarterbacks to watch in tonight's preseason action and why the Seahawks are a dark horse.`\
+https://nytimes.com/athletic/6540480/2025/08/07/nfl-preseason-week-1-starters-quarterbacks-burrow-milroe-scoop-city/
+
 **A Famously Stable Glacier in Argentina Suddenly Looks Anything But**\
 `After holding steady for decades, the beloved Perito Moreno has thinned considerably since 2019, scientists said.`\
 https://nytimes.com/2025/08/07/climate/argentina-perito-moreno-glacier.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/08/07/health/kennedy-vaccines-mrna-trump.html
 **Eleven Women, Nine Dogs, Not Much Drama (and No Guys)**\
 `These retired women in Texas have been through infertility, illness, layoffs, addiction and disappointing marriages. Now they are trying to create a utopia just for themselves.`\
 https://nytimes.com/2025/08/07/well/eleven-women-nine-dogs-not-much-drama-and-no-guys.html
-
-**MLB bullpens impacting fantasy baseball. Finnegan gets two saves, Romero steps up**\
-`Greg Jewett tracks bullpen changes in the American and National leagues to help you locate the best relievers. `\
-https://nytimes.com/athletic/6540092/2025/08/07/fantasy-baseball-2025-bullpen-relievers-finnegan-romero/
-
-**Effect of U.S. Tariffs on British Companies Is ‘Milder Than Feared,’ Central Bank Says**\
-`Britain’s economy is driven by domestic factors more than global ones right now, the governor of the Bank of England said on Thursday, when the central bank cut interest rates.`\
-https://nytimes.com/2025/08/07/business/economy/tariffs-bank-of-england-interest-rates.html
 
