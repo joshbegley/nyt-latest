@@ -1,3 +1,7 @@
+**Disney Settles Wrongful Termination Suit Embraced by Conservatives**\
+`Gina Carano sued Disney after it dropped her from “The Mandalorian” for posting conspiracy theories and right-wing views on social media.`\
+https://nytimes.com/2025/08/07/business/media/disney-gina-carano-mandalorian-suit.html
+
 **Sliders: Jen Pawol's perseverance, support network have her ready to make MLB umpiring history**\
 `Plus: Clayton Kershaw to make more history, Nashville in pole position, Matt Strahm answers questions, and more.`\
 https://nytimes.com/athletic/6537003/2025/08/07/jen-pawol-mlb-female-umpire-ted-barrett/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/07/nyregion/new-york-deed-theft.html
 **How Your Phone Gets the Weather**\
 `The more weather observations meteorologists can rely on, the more precise their forecasts will be. Here's what goes into an accurate forecast.`\
 https://nytimes.com/interactive/2025/08/07/weather/weather-app-phone-accuracy.html
-
-**The Rams don't seem worried about Matthew Stafford's back. Should they be?**\
-`Rams coach Sean McVay said his quarterback would be playing if this were the regular season. But there are reasons for concern.`\
-https://nytimes.com/athletic/6540764/2025/08/07/matthew-stafford-back-epidural-aggravated-disc/
 
