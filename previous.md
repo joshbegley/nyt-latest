@@ -1,3 +1,7 @@
+**Eleven Women, Nine Dogs, Not Much Drama (and No Guys)**\
+`These retired women in Texas have been through infertility, illness, layoffs, addiction and disappointing marriages. Now they are trying to create a utopia just for themselves.`\
+https://nytimes.com/2025/08/07/well/eleven-women-nine-dogs-not-much-drama-and-no-guys.html
+
 **MLB bullpens impacting fantasy baseball. Finnegan gets two saves, Romero steps up**\
 `Greg Jewett tracks bullpen changes in the American and National leagues to help you locate the best relievers. `\
 https://nytimes.com/athletic/6540092/2025/08/07/fantasy-baseball-2025-bullpen-relievers-finnegan-romero/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6531724/2025/08/07/dele-alli-to-leave-como-but-plan
 **Ballon d’Or 2025 shortlist: Yamal, Raphinha, Dembele among nominees**\
 `The winners will be announced in Paris on September 22.`\
 https://nytimes.com/athletic/6539931/2025/08/07/ballon-dor-2025-shortlist/
-
-**Man Utd's new £200m attack: How Benjamin Sesko fits with Matheus Cunha and Bryan Mbeumo**\
-`United have agreed a deal for the RB Leipzig striker - this is how he'll dovetail with his fellow new forwards in Ruben Amorim's team`\
-https://nytimes.com/athletic/6539772/2025/08/07/manchester-united-sesko-cunha-mbeumo-plan/
 

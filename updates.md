@@ -1,3 +1,7 @@
+**Eleven Women, Nine Dogs, Not Much Drama (and No Guys)**\
+`These retired women in Texas have been through infertility, illness, layoffs, addiction and disappointing marriages. Now they are trying to create a utopia just for themselves.`\
+https://nytimes.com/2025/08/07/well/eleven-women-nine-dogs-not-much-drama-and-no-guys.html
+
 **MLB bullpens impacting fantasy baseball. Finnegan gets two saves, Romero steps up**\
 `Greg Jewett tracks bullpen changes in the American and National leagues to help you locate the best relievers. `\
 https://nytimes.com/athletic/6540092/2025/08/07/fantasy-baseball-2025-bullpen-relievers-finnegan-romero/
