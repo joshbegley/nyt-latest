@@ -1,3 +1,15 @@
+**Effect of U.S. Tariffs on British Companies ‘Milder Than Feared,’ Central Bank Says**\
+`Britain’s economy is driven by domestic factors more than global ones right now, the governor of the Bank of England said on Thursday, when the central bank cut interest rates.`\
+https://nytimes.com/2025/08/07/business/economy/tariffs-bank-of-england-interest-rates.html
+
+**Hail Kale Caesar Pasta Salad**\
+`Reviews are already trickling in, and they’re glowing: “Dan’s recipes are always delicious and this is no exception!”`\
+https://nytimes.com/2025/08/07/dining/kale-caesar-pasta-salad-and-more-potluck-recipes.html
+
+**Liverpool Women set to appoint Taylor as new head coach**\
+`The former Manchester City coach will be the permanent replacement for Matt Beard who was sacked in February.`\
+https://nytimes.com/athletic/6498089/2025/08/07/liverpool-women-gareth-taylor-head-coach/
+
 **Mallorca finalising loan deal with Leeds for Mateo Joseph**\
 `Mallorca have made a loan proposal, without a permanent option, to Leeds.`\
 https://nytimes.com/athletic/6540281/2025/08/07/mateo-joseph-leeds-mallorca-transfer/

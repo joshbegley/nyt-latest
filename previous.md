@@ -1,3 +1,15 @@
+**Effect of U.S. Tariffs on British Companies ‘Milder Than Feared,’ Central Bank Says**\
+`Britain’s economy is driven by domestic factors more than global ones right now, the governor of the Bank of England said on Thursday, when the central bank cut interest rates.`\
+https://nytimes.com/2025/08/07/business/economy/tariffs-bank-of-england-interest-rates.html
+
+**Hail Kale Caesar Pasta Salad**\
+`Reviews are already trickling in, and they’re glowing: “Dan’s recipes are always delicious and this is no exception!”`\
+https://nytimes.com/2025/08/07/dining/kale-caesar-pasta-salad-and-more-potluck-recipes.html
+
+**Liverpool Women set to appoint Taylor as new head coach**\
+`The former Manchester City coach will be the permanent replacement for Matt Beard who was sacked in February.`\
+https://nytimes.com/athletic/6498089/2025/08/07/liverpool-women-gareth-taylor-head-coach/
+
 **Mallorca finalising loan deal with Leeds for Mateo Joseph**\
 `Mallorca have made a loan proposal, without a permanent option, to Leeds.`\
 https://nytimes.com/athletic/6540281/2025/08/07/mateo-joseph-leeds-mallorca-transfer/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6539772/2025/08/07/manchester-united-sesko-cunha-mb
 **Tottenham interested in Como midfielder Paz**\
 `Spurs are considering a move for the 20-year-old as they try to add more creativity to their squad before the start of the season.`\
 https://nytimes.com/athletic/6540216/2025/08/07/tottenham-como-nico-paz-interest/
-
-**Cambodia Nominates Trump for Nobel Peace Prize**\
-`The gesture comes after a U.S.-brokered cease-fire with Thailand, and a trade deal with Washington that blunted a threat of heavy tariffs.`\
-https://nytimes.com/2025/08/07/us/politics/cambodia-nominates-trump-for-nobel-peace-prize.html
-
-**Trump Demands New U.S. Census That Excludes Undocumented Immigrants**\
-`The push comes as the president and his allies are pressing Republican-led states to redraw their congressional maps to benefit their party.`\
-https://nytimes.com/2025/08/07/us/politics/trump-census-undocumented-immigrants.html
-
-**Barcelona strip Ter Stegen of captaincy, open 'disciplinary proceedings'**\
-`Centre-back and vice-captain Ronald Araujo will wear the armband, though Barcelona have described the measure as "temporary."`\
-https://nytimes.com/athletic/6418272/2025/08/07/barcelona-ter-stegen-captaincy/
 
