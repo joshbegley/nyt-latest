@@ -1,3 +1,7 @@
+**How Your Phone Gets the Weather**\
+`The more weather observations meteorologists can rely on, the more precise their forecasts will be. Here's what goes into an accurate forecast.`\
+https://nytimes.com/interactive/2025/08/07/weather/weather-app-phone-accuracy.html
+
 **The Rams don't seem worried about Matthew Stafford's back. Should they be?**\
 `Rams coach Sean McVay said his quarterback would be playing if this were the regular season. But there are reasons for concern.`\
 https://nytimes.com/athletic/6540764/2025/08/07/matthew-stafford-back-epidural-aggravated-disc/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6541020/2025/08/07/thomas-frank-tottenham-injury-up
 **India Bought Russian Oil. Now It’s a Trade-War Weapon.**\
 `If Narendra Modi surrendered to President Trump, how tough would it be to wean his country from Russia’s discounted supply?`\
 https://nytimes.com/2025/08/07/business/oil-india-russia-trump.html
-
-**South Africa’s Equity Laws, Reviled by Trump, May Complicate Tariff Talks**\
-`Slapped with a steep tariff, South African officials hope for a deal, but some worry the U.S. may insist that it roll back measures that redress the damage of apartheid.`\
-https://nytimes.com/2025/08/07/world/africa/south-africa-tariffs-racial-equity-laws.html
 
