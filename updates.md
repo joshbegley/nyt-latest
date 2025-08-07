@@ -1,3 +1,7 @@
+**Sliders: Jen Pawol's perseverance, support network have her ready to make MLB umpiring history**\
+`Plus: Clayton Kershaw to make more history, Nashville in pole position, Matt Strahm answers questions, and more.`\
+https://nytimes.com/athletic/6537003/2025/08/07/jen-pawol-mlb-female-umpire-ted-barrett/
+
 **Netanyahu Said Israel Wanted to Take Military Control of Gaza**\
 `Also, Kennedy has broken with the mainstream on vaccines. Here’s the latest at the end of Thursday.`\
 https://nytimes.com/2025/08/07/briefing/israel-gaza-trump-tariff-reaction.html

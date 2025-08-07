@@ -1,3 +1,7 @@
+**Sliders: Jen Pawol's perseverance, support network have her ready to make MLB umpiring history**\
+`Plus: Clayton Kershaw to make more history, Nashville in pole position, Matt Strahm answers questions, and more.`\
+https://nytimes.com/athletic/6537003/2025/08/07/jen-pawol-mlb-female-umpire-ted-barrett/
+
 **Netanyahu Said Israel Wanted to Take Military Control of Gaza**\
 `Also, Kennedy has broken with the mainstream on vaccines. Here’s the latest at the end of Thursday.`\
 https://nytimes.com/2025/08/07/briefing/israel-gaza-trump-tariff-reaction.html
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2025/08/07/weather/weather-app-phone-accuracy.ht
 **The Rams don't seem worried about Matthew Stafford's back. Should they be?**\
 `Rams coach Sean McVay said his quarterback would be playing if this were the regular season. But there are reasons for concern.`\
 https://nytimes.com/athletic/6540764/2025/08/07/matthew-stafford-back-epidural-aggravated-disc/
-
-**Friday Briefing: Netanyahu Plans to Fully Control Gaza**\
-`Plus, the global response to Trump’s tariffs.`\
-https://nytimes.com/2025/08/07/briefing/netanyahu-gaza-tariff-trump-putin-ukraine.html
 
