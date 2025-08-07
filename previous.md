@@ -1,3 +1,19 @@
+**Sallie Bingham, Author at the Center of a Newspaper Drama, Dies at 88**\
+`A novelist and memoirist, she famously clashed with a brother, leading to the fall of a Kentucky publishing dynasty that her paternal grandfather established in 1918.`\
+https://nytimes.com/2025/08/07/business/media/sallie-bingham-dead.html
+
+**Barcelona strip Marc-Andre ter Stegen as captain: The inside story and what to know**\
+`Barca have stripped Ter Stegen as captain, shocking the dressing room with just over a week to go before the new La Liga season `\
+https://nytimes.com/athletic/6540217/2025/08/07/barcelona-marc-andre-ter-stegen-injury-dispute/
+
+**Elizabeth McGovern as a Sultry Bombshell? This Isn’t ‘Downton Abbey.’**\
+`“It’s very liberating to take off that psychological corset,” the actress said of portraying the rambunctious Hollywood star Ava Gardner onstage.`\
+https://nytimes.com/2025/08/07/theater/downton-abbey-elizabeth-mcgovern-ava-gardner.html
+
+**A Fairly Quiet Hurricane Season May Be About to Ramp Up**\
+`Experts at NOAA updated their prediction for the Atlantic on Thursday. Forecasters say there could be up to nine hurricanes before the end of November.`\
+https://nytimes.com/2025/08/07/weather/atlantic-hurricane-season-forecast-update-noaa.html
+
 **Aston Villa planning McGinn contract discussions**\
 `McGinn has attracted interest from elsewhere in the Premier League this summer, including Everton and, more recently, Newcastle United.`\
 https://nytimes.com/athletic/6540519/2025/08/07/john-mcginn-aston-villa-contract/
@@ -21,20 +37,4 @@ https://nytimes.com/2025/08/07/us/minnesota-vance-boelter-plea-not-guilty.html
 **Britain Forces Porn Sites to Get Serious on ‘Age-Gating’**\
 `The new measures have been widely embraced, but new age-verification methods have drawn some criticism because of privacy concerns.`\
 https://nytimes.com/2025/08/07/technology/uk-porn-age-verification.html
-
-**When Men Talk About Their Feelings**\
-`Readers respond to an article about men, women and “mankeeping.” Also: The Supreme Court; separating migrant families.`\
-https://nytimes.com/2025/08/07/opinion/men-women-feelings-mankeeping.html
-
-**Here’s What Could Get More Expensive Under Trump’s Tariffs**\
-`The tariffs are driving up prices on everyday goods as businesses warn they can no longer absorb costs, leaving consumers to foot the bill.`\
-https://nytimes.com/2025/08/07/business/economy/trump-tariffs-prices-consumers.html
-
-**Trump to Require Universities to Submit Data on Applicants’ Race**\
-`The administration has become increasingly focused on admissions data in its effort to bring the higher education system in line with President Trump’s political agenda.`\
-https://nytimes.com/2025/08/07/us/politics/trump-schools-race-data.html
-
-**On Vaccines, Kennedy Has Broken Sharply With the Mainstream**\
-`While many officials and scientists embrace other parts of the secretary’s agenda, his stance on vaccines is alienating allies who fear a public health crisis.`\
-https://nytimes.com/2025/08/07/health/kennedy-vaccines-mrna-trump.html
 
