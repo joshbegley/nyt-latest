@@ -1,3 +1,7 @@
+**As Trump Administration Plans to Burn Contraceptives, Europeans Are Alarmed**\
+`The U.S. government intends to incinerate $9.7 million in already-purchased birth control in Belgium after U.S.A.I.D shut down. Destruction may have already started.`\
+https://nytimes.com/2025/08/07/world/europe/usaid-contraceptives-trump.html
+
 **Inside Müller's move to Vancouver: Details behind the Bayern legend's shocker**\
 `Players of Thomas Müller's renown don't typically wind up in Vancouver. So how did the Whitecaps lure the Bayern and German great?`\
 https://nytimes.com/athletic/6539529/2025/08/07/inside-thomas-mullers-move-to-vancouver-details-behind-the-bayern-legends-shocker/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6539495/2025/08/07/micah-parsons-jerry-jones-hold-i
 **Broncos are Trent Sherfield's sixth team in six years. Here's what he's learned**\
 `Sherfield fretted for years over how to make his mark as a receiver. Then, he realized he needed to look at the bigger picture.`\
 https://nytimes.com/athletic/6538501/2025/08/07/trent-sherfield-broncos-training-camp/
-
-**Sabres summer thoughts: On Alex Tuch, the lingering cap space question and more**\
-`The Sabres’ offseason activity might be complete, but there is time for things to change before training camp.`\
-https://nytimes.com/athletic/6538866/2025/08/07/sabres-cap-space-alex-tuch-contract/
 

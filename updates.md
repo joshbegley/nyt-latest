@@ -1,3 +1,19 @@
+**Inside Müller's move to Vancouver: Details behind the Bayern legend's shocker**\
+`Players of Thomas Müller's renown don't typically wind up in Vancouver. So how did the Whitecaps lure the Bayern and German great?`\
+https://nytimes.com/athletic/6539529/2025/08/07/inside-thomas-mullers-move-to-vancouver-details-behind-the-bayern-legends-shocker/
+
+**Where New India Tariffs Could Hit? Your Kitchen Cabinet.**\
+`Many cooking spices are imported from India, and the 50 percent tariffs on the country’s imports could drive costs higher.`\
+https://nytimes.com/2025/08/07/business/india-tariffs-spices.html
+
+**Rodrigo De Paul interview: Joining Miami, teaming with Messi, idolizing Beckham**\
+`De Paul brings his unique attributes to Miami, which hopes he's the missing piece in the quest to lift MLS Cup`\
+https://nytimes.com/athletic/6537093/2025/08/07/rodrigo-de-paul-inter-miami-argentina-mls-messi/
+
+**Skydance Takes Over Paramount, and a New Era Begins**\
+`The merger catapults new power players to the top of Hollywood and ends a tortuous process that has lasted well over a year.`\
+https://nytimes.com/2025/08/07/business/media/skydance-paramount-merger.html
+
 **Ten Colts with most to gain this preseason: Can Anthony Richardson prove he should be QB1?**\
 `Just because the games don't count doesn't mean they're meaningless. Some Colts have a lot riding on how they perform in the next few weeks.`\
 https://nytimes.com/athletic/6539218/2025/08/07/colts-preseason-anthony-richardson-juju-brents/
