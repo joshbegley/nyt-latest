@@ -1,3 +1,7 @@
+**Trump Demands New U.S. Census That Excludes Undocumented Immigrants**\
+`The push comes as the president and his allies are pressing Republican-led states to redraw their congressional maps to benefit their party.`\
+https://nytimes.com/2025/08/07/us/politics/trump-census-undocumented-immigrants.html
+
 **Barcelona strip Ter Stegen of captaincy, open 'disciplinary proceedings'**\
 `Centre-back and vice-captain Ronald Araujo will wear the armband, though Barcelona have described the measure as "temporary."`\
 https://nytimes.com/athletic/6418272/2025/08/07/barcelona-ter-stegen-captaincy/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/07/us/politics/trump-fbi.html
 **Cornyn Says F.B.I. Will Help Find Texas Lawmakers Who Fled State**\
 `The senator said the federal agency had agreed to help locate Democratic state lawmakers who left the state to try to block a vote on new congressional district maps.`\
 https://nytimes.com/2025/08/07/us/politics/texas-redistricting-cornyn-fbi.html
-
-**Dean Cain, Who Played Superman, Says He Is Joining ICE**\
-`The actor told Fox News he will sign up as an immigration officer, as the Trump administration recruits more personnel to staff its deportation campaign.`\
-https://nytimes.com/2025/08/07/us/dean-cain-superman-ice.html
 
