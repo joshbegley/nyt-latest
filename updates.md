@@ -1,3 +1,19 @@
+**Friday Briefing: Netanyahu Plans to Fully Control Gaza**\
+`Plus, the global response to Trump’s tariffs.`\
+https://nytimes.com/2025/08/07/briefing/netanyahu-gaza-tariff-trump-putin-ukraine.html
+
+**Michael Lydon, Writer Who Rocked With the 1960s, Dies at 82**\
+`A founding editor of Rolling Stone and a seasoned music journalist, he spent time with the Beatles and toured with the Grateful Dead and the Rolling Stones.`\
+https://nytimes.com/2025/08/07/arts/music/michael-lydon-dead.html
+
+**Why More People in the World Are Feeling Hopeful (Except Us)**\
+`I would say the most important social trend over the past decade has been the disconnect between our nation’s economic health and its social health.`\
+https://nytimes.com/2025/08/07/opinion/happiness-community-wealth.html
+
+**South Africa’s Equity Laws, Reviled by Trump, May Complicate Tariff Talks**\
+`Slapped with a steep tariff, South African officials hope for a deal, but some worry the U.S. may insist that it roll back measures that redress the damage of apartheid.`\
+https://nytimes.com/2025/08/07/world/africa/south-africa-tariffs-racial-equity-laws.html
+
 **Cuomo Tries to Reinvent Himself Online, and Critics Say, ‘OK, Boomer’**\
 `Mr. Cuomo’s decisive loss to Zohran Mamdani in the New York City mayoral primary has led to a campaign rebranding that includes a fresh social media persona.`\
 https://nytimes.com/2025/08/07/nyregion/cuomo-social-media-x.html
