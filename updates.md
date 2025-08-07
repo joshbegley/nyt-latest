@@ -1,3 +1,7 @@
+**Braves takeaways: Why their approach to situational hitting must improve in 2026**\
+`Plus, Grant Holmes discusses his choice to avoid surgery, the latest on Chris Sale and bad news for Joe Jiménez.`\
+https://nytimes.com/athletic/6539590/2025/08/06/braves-risp-grant-holmes-chris-sale/
+
 **Astros didn't add pitching at the deadline; their latest loss underscores that risk**\
 `Failing to fortify the pitching staff with any external additions will only magnify each start Spencer Arrighetti makes.`\
 https://nytimes.com/athletic/6539521/2025/08/06/houston-astros-spencer-arrighetti-return/

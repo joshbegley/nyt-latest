@@ -1,3 +1,7 @@
+**Braves takeaways: Why their approach to situational hitting must improve in 2026**\
+`Plus, Grant Holmes discusses his choice to avoid surgery, the latest on Chris Sale and bad news for Joe Jiménez.`\
+https://nytimes.com/athletic/6539590/2025/08/06/braves-risp-grant-holmes-chris-sale/
+
 **Astros didn't add pitching at the deadline; their latest loss underscores that risk**\
 `Failing to fortify the pitching staff with any external additions will only magnify each start Spencer Arrighetti makes.`\
 https://nytimes.com/athletic/6539521/2025/08/06/houston-astros-spencer-arrighetti-return/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/06/business/united-airlines-system-outage.html
 **Victoria Mboko surges into Canadian Open final with comeback win over Elena Rybakina**\
 `Mboko came from a set down to oust the 2022 Wimbledon champion in a three-setter that ebbed and flowed to the end. `\
 https://nytimes.com/athletic/6539353/2025/08/06/tennis-victoria-mboko-canadian-open-elena-rybakina-result-analysis/
-
-**Eddie Palmieri, Latin Music’s Dynamic Innovator, Dies at 88**\
-`He roped salsa into conversation with jazz, rock, funk and even modern classical music. “A new world music,” one critic said, “is being born.”`\
-https://nytimes.com/2025/08/06/arts/music/eddie-palmieri-dead.html
 
