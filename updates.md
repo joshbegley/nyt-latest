@@ -1,3 +1,7 @@
+**Remains of 3 Victims of 9/11 Are Identified From Minuscule Evidence**\
+`New York’s medical examiner is working methodically through a backlog of bones. “We’re talking about people putting in overtime 24 years later, for us,” said the son of one victim.`\
+https://nytimes.com/2025/08/07/nyregion/sept-11-victims-remains-identified.html
+
 **Sliders: Jen Pawol's perseverance, support network have her ready to make MLB umpiring history**\
 `Plus: Clayton Kershaw to make more history, Nashville in pole position, Matt Strahm answers questions and more.`\
 https://nytimes.com/athletic/6537003/2025/08/07/jen-pawol-mlb-female-umpire-ted-barrett/
