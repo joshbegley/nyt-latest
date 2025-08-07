@@ -1,3 +1,11 @@
+**Farewell Darwin Nunez, the striker Liverpool fans really, really wanted to see succeed**\
+`Like all good showmen, he is leaving Liverpool fans wanting more – but for Nunez that was always the problem`\
+https://nytimes.com/athletic/6538116/2025/08/07/farewell-darwin-nunez-liverpool-al-hilal/
+
+**How Ozempic’s Maker Lost Its Shine After Creating a Wonder Drug**\
+`The pioneering Danish drugmaker was once the most valuable company in Europe, but analysts say a number of missteps reversed its fortunes.`\
+https://nytimes.com/2025/08/07/business/ozempic-wegovy-novo-nordisk-decline.html
+
 **The New York Times International Edition in Print for Friday, Aug. 8, 2025**\
 ``\
 https://nytimes.com/issue/todaysinyt/2025/08/07/todays-new-york-times-international-edition
