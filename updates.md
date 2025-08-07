@@ -1,3 +1,7 @@
+**What Roman Anthony's extension could mean for top prospects like Kevin McGonigle and Max Clark**\
+`Anthony’s ultimate valuation will pivot on where he finishes in this year’s American League Rookie of the Year voting.`\
+https://nytimes.com/athletic/6540535/2025/08/07/what-roman-anthonys-extension-could-mean-for-top-prospects-like-kevin-mcgonigle-and-max-clark/
+
 **Atlanta Braves, 'the model' in MLB, could have added payroll at trade deadline**\
 `Despite a disappointing season so far on the field, the Braves have seen a significant revenue increase this year.`\
 https://nytimes.com/athletic/6540621/2025/08/07/atlanta-braves-earnings-call-2025/
