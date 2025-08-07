@@ -1,3 +1,7 @@
+**Seth Meyers Won’t Be Distracted by Trump Fiddling on the Roof**\
+`Meyers said that if he saw Trump on his roof, he’d assume the president “was pulling a reverse Santa Claus. — you know, going house to house taking toys away from kids.”`\
+https://nytimes.com/2025/08/07/arts/television/seth-meyers-trump-roof.html
+
 **Watching Gyokeres: Quick bursts, direct dribbling and a tactical challenge for Arteta**\
 `The Sweden striker made his first Arsenal start on Wednesday. There were moments to excite fans but he will alter the way the team play`\
 https://nytimes.com/athletic/6539235/2025/08/07/viktor-gyokeres-arsenal-villarreal/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/07/briefing/india-trump-tariffs-russia-ukraine-china
 **Dominik Szoboszlai and the new battle for Liverpool's No 8 role**\
 `The arrival of Wirtz will see increased competition for places in midfield - could Szoboszlai be the man for the No 8 role?`\
 https://nytimes.com/athletic/6538207/2025/08/07/szoboszlai-liverpool-no-8/
-
-**Joao Palhinha doesn't cure all of Tottenham's problems, but he solves a pretty big one**\
-`Spurs conceded 65 league goals last season, and a lot of them could have been prevented with a proper defensive midfielder`\
-https://nytimes.com/athletic/6522103/2025/08/07/palhinha-tottenham-tackling/
 
