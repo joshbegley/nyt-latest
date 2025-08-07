@@ -1,3 +1,15 @@
+**Five numbers that showcase the Blue Jays’ historic dominance over the Rockies**\
+`A 20-1 barrage capped a nutty offensive series that featured the Blue Jays breaking several franchise records. `\
+https://nytimes.com/athletic/6539523/2025/08/06/blue-jays-bo-bichette-vladimir-guerrero/
+
+**Dodger Details: Shohei Ohtani's milestone two-way day, Max Muncy's impact and a tough loss**\
+`Among other feats, Ohtani threw a 100 mph pitch and smacked a home run at least 100 mph off the bat fourth time in his career.`\
+https://nytimes.com/athletic/6539464/2025/08/06/dodgers-shohei-ohtani-max-muncy-details/
+
+**NASA Is Getting Fired Up About a Nuclear Reactor on the Moon**\
+`Placing an atomic energy source on the lunar surface is “not science fiction,” experts say, but does pose technical challenges.`\
+https://nytimes.com/2025/08/06/science/nasa-nuclear-reactor-moon.html
+
 **Eddie Palmieri’s 13 Essential Songs and Albums**\
 `A native son of the Bronx, Palmieri was a crucial innovator in New York’s Afro-Caribbean music history. The pianist, composer and bandleader has died at 88.`\
 https://nytimes.com/2025/08/06/arts/music/eddie-palmieri-songs-albums.html
