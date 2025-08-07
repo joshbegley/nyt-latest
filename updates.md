@@ -1,3 +1,11 @@
+**Woman Working at Hospital Treated 4,500 Patients Without License, Police Say**\
+`The 29-year-old forged her documents to work at a Florida hospital, and the discrepancy was noticed only after she was offered a promotion, according to an investigation.`\
+https://nytimes.com/2025/08/07/us/florida-nurse-arrest.html
+
+**Swiss Businesses Fear Being ‘Annihilated’ by One of the World’s Highest Tariffs**\
+`Goods shipped from the country face a 39 percent tariff in the U.S., which companies warn will have dire consequences if President Trump cannot be quickly dissuaded.`\
+https://nytimes.com/2025/08/07/business/economy/swizterland-tariffs-trump.html
+
 **How a Carbon Tax Plan in Europe Survived (Mostly)**\
 `Austria tried a combination of taxes and rebates to reduce emissions.`\
 https://nytimes.com/2025/08/07/climate/austria-carbon-tax-klimabonus.html

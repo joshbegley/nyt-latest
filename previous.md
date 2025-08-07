@@ -1,3 +1,7 @@
+**Woman Working at Hospital Treated 4,500 Patients Without License, Police Say**\
+`The 29-year-old forged her documents to work at a Florida hospital, and the discrepancy was noticed only after she was offered a promotion, according to an investigation.`\
+https://nytimes.com/2025/08/07/us/florida-nurse-arrest.html
+
 **How a Carbon Tax Plan in Europe Survived (Mostly)**\
 `Austria tried a combination of taxes and rebates to reduce emissions.`\
 https://nytimes.com/2025/08/07/climate/austria-carbon-tax-klimabonus.html
@@ -27,14 +31,10 @@ https://nytimes.com/2025/08/07/us/pennsylvania-state-troopers-shot.html
 https://nytimes.com/athletic/6540761/2025/08/07/rashawn-slater-chargers-injury-nfl-training-camp/
 
 **Swiss Businesses Fear Being ‘Annihilated’ by One of the World’s Highest Tariffs**\
-`Goods shipped from the country face a 39% tariff in the U.S., which companies warn will have dire consequences if President Trump cannot be quickly dissuaded.`\
+`Goods shipped from the country face a 39 percent tariff in the U.S., which companies warn will have dire consequences if President Trump cannot be quickly dissuaded.`\
 https://nytimes.com/2025/08/07/business/economy/swizterland-tariffs-trump.html
 
 **Spanish Officials Condemn City’s Ban on Religious Events as ‘Racist’**\
 `A leader in the conservative party says a measure does not “single anyone out for their beliefs,” but a branch of the far-right Vox party praised it for “banning Islamic celebrations.”`\
 https://nytimes.com/2025/08/07/world/europe/spain-muslim-ban-vox-conservative-right.html
-
-**What Roman Anthony's extension could mean for top prospects like Kevin McGonigle, Max Clark**\
-`Anthony’s ultimate valuation will pivot on where he finishes in this year’s American League Rookie of the Year voting.`\
-https://nytimes.com/athletic/6540535/2025/08/07/roman-anthony-contract-comparables-red-sox-tigers-prospects/
 
