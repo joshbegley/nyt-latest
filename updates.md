@@ -1,3 +1,15 @@
+**49ers’ Brock Purdy, Ricky Pearsall hit stride after rough start vs. Broncos**\
+`The two standouts for the 49ers in Thursday's joint practice: Nick Bosa on defense and rookie receiver Jordan Watkins on offense.`\
+https://nytimes.com/athletic/6541346/2025/08/07/49ers-brock-purdy-ricky-pearsall-joint-practice/
+
+**Trump Asks Supreme Court to Lift Restrictions on L.A. Immigration Stops**\
+`A lower court had ordered agents not to make indiscriminate stops relying on factors like race or speaking Spanish.`\
+https://nytimes.com/2025/08/07/us/politics/trump-supreme-court-los-angeles-immigrants.html
+
+**Sliders: Jen Pawol's perseverance, support network have her ready to make MLB umpiring history**\
+`Plus: Clayton Kershaw to make more history, Nashville in pole position, Matt Strahm answers questions and more.`\
+https://nytimes.com/athletic/6537003/2025/08/07/jen-pawol-mlb-female-umpire-ted-barrett/
+
 **Sliders: Jen Pawol's perseverance, support network have her ready to make MLB umpiring history**\
 `Plus: Clayton Kershaw to make more history, Nashville in pole position, Matt Strahm answers questions, and more.`\
 https://nytimes.com/athletic/6537003/2025/08/07/jen-pawol-mlb-female-umpire-ted-barrett/
