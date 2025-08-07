@@ -1,3 +1,7 @@
+**Trump Administration Live Updates: President’s Plan for Putin Summit Draws Skepticism in Ukraine**\
+``\
+https://nytimes.com/live/2025/08/07/us/trump-news
+
 **Don’t assume the Micah Parsons standoff will have a happy ending**\
 `The star pass rusher and the Cowboys might eventually get a deal done and laugh off this episode, but don't rule out a far uglier ending.`\
 https://nytimes.com/athletic/6539495/2025/08/07/micah-parsons-jerry-jones-hold-in-dont-lose-sleep/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/07/us/politics/trump-putin-meeting-ukraine-reaction.
 **U Myint Swe, Acting President of Myanmar Installed by Military, Dies at 74**\
 `A figurehead leader, he had little real power but did endorse measures that allowed the country’s generals to extend their rule after a 2021 coup.`\
 https://nytimes.com/2025/08/07/world/asia/u-myint-swe-dies-myanmar-president.html
-
-**Jaxson Dart practice diary: 'As the QB, you have to set the standard'**\
-`How are the Giants bringing along their first-round pick? We watched everything he did during practice to get a closer look. `\
-https://nytimes.com/athletic/6539503/2025/08/07/ny-giants-jaxson-dart-diary/
 
