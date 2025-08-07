@@ -1,3 +1,11 @@
+**China’s Exports Surged Again in July, but Not to America**\
+`China is shipping more goods to Southeast Asia and other regions that often re-export them to the United States. China still sells three times as much to the United States as it buys.`\
+https://nytimes.com/2025/08/07/business/economy/china-tariffs-exports-imports.html
+
+**Thursday Briefing: Trump Threatens to Double India’s Tariffs**\
+`Also, a possible Russia-Ukraine-U.S. summit`\
+https://nytimes.com/2025/08/07/briefing/india-trump-tariffs-russia-ukraine-china-artificial-intelligence.html
+
 **Dominik Szoboszlai and the new battle for Liverpool's No 8 role**\
 `The arrival of Wirtz will see increased competition for places in midfield - could Szoboszlai be the man for the No 8 role?`\
 https://nytimes.com/athletic/6538207/2025/08/07/szoboszlai-liverpool-no-8/
