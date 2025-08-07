@@ -1,3 +1,15 @@
+**Mallorca finalising loan deal with Leeds for Mateo Joseph**\
+`Mallorca have made a loan proposal, without a permanent option, to Leeds.`\
+https://nytimes.com/athletic/6540281/2025/08/07/mateo-joseph-leeds-mallorca-transfer/
+
+**Ballon d’Or Feminin: Bonmati, Marta and five Lionesses among nominees**\
+`United States women's national team captain Lindsey Heaps also is on the 30-player shortlist alongside international team-mate Emily Fox.`\
+https://nytimes.com/athletic/6540070/2025/08/07/ballon-dor-feminin-2025-nominees/
+
+**Garnacho: Chelsea step up talks with Manchester United over winger**\
+`The clubs have been in touch over Garnacho for some time but talks have now advanced, and Garnacho expects to move to Stamford Bridge.`\
+https://nytimes.com/athletic/6379617/2025/08/07/alejandro-garnacho-chelsea-manchester-united-transfer/
+
 **Dele Alli to leave Como but plans to continue playing**\
 `Dele, 29, joined Como as a free agent in January after his contract at Everton expired in June 2024.`\
 https://nytimes.com/athletic/6531724/2025/08/07/dele-alli-to-leave-como-but-plans-to-continue-playing/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/08/07/us/politics/trump-census-undocumented-immigrants.
 **Barcelona strip Ter Stegen of captaincy, open 'disciplinary proceedings'**\
 `Centre-back and vice-captain Ronald Araujo will wear the armband, though Barcelona have described the measure as "temporary."`\
 https://nytimes.com/athletic/6418272/2025/08/07/barcelona-ter-stegen-captaincy/
-
-**Maddison's ACL injury will devastate him. Spurs need to react or risk damaging Frank's first season**\
-`The Spurs and England midfielder will be out of action for much of the coming campaign after knee surgery`\
-https://nytimes.com/athletic/6536388/2025/08/07/james-maddison-tottenham-injury-spurs-transfer/
-
-**Trump Delayed a Medicare Change After Health Companies’ Donations**\
-`The president posted talking points provided by one firm that donated millions, and his administration delayed a change on coverage of pricey bandages that could have hurt the company.`\
-https://nytimes.com/2025/08/07/us/politics/trump-medicare-bandages-donors.html
-
-**California Start-Up Will Buy Assets of Bankrupt Swedish Battery Maker**\
-`Lyten will acquire German and Swedish factories built by Northvolt, which declared bankruptcy in March.`\
-https://nytimes.com/2025/08/07/business/lyten-northvolt-ev-batteries.html
 
