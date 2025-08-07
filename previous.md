@@ -1,3 +1,15 @@
+**Ben Shelton beats fellow American Taylor Fritz to reach a new career milestone**\
+`Shelton, the rising 22-year-old American, made his first Masters 1000 final after beating his compatriot. Russia's Karen Khachanov is next.`\
+https://nytimes.com/athletic/6539690/2025/08/07/ben-shelton-taylor-fritz-canadian-open-semifinals-2/
+
+**The New York Times in Print for Thursday, Aug. 7, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/08/07/todays-new-york-times
+
+**I’ve Seen How Russia Is Torturing Prisoners of War**\
+`Prosecuting torture is a legal obligation, not a diplomatic nicety or something that can be negotiated.`\
+https://nytimes.com/2025/08/07/opinion/russia-ukraine-torture.html
+
 **China’s Exports Surged Again in July, but Not to America**\
 `China is shipping more goods to Southeast Asia and other regions that often re-export them to the United States. China still sells three times as much to the United States as it buys.`\
 https://nytimes.com/2025/08/07/business/economy/china-tariffs-exports-imports.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6508707/2025/08/07/fantasy-premier-league-salah-pal
 **Ranking every Premier League home kit for 2025-26: Wavy brilliance, retro styling and a nod to shepherds**\
 `Nick Miller ranks all 20 Premier League home kits for the 2025-26 season from worst to best`\
 https://nytimes.com/athletic/6538413/2025/08/07/premier-league-home-kits-2025-26-ranked/
-
-**Kaine Kesler-Hayden interview: 'Frank Lampard was a massive reason why I joined Coventry'**\
-`After proving his talent in the Championship on loan at Preston, the ex-Aston Villa defender wants to establish himself with a new team`\
-https://nytimes.com/athletic/6529675/2025/08/07/kesler-hayden-interview-lampard-coventry/
-
-**The key Premier League gaps that need to be filled before the transfer window shuts**\
-`Spending by Premier League clubs has already surpassed £1.8bn, but some are still without crucial players ahead of the new season`\
-https://nytimes.com/athletic/6538245/2025/08/07/premier-league-transfer-window-sesko-isak/
-
-**Football Architects: Tom Byer, the American coach behind Japan's technical revolution**\
-`By one metric, Tom Byer is arguably the most influential coach in the world`\
-https://nytimes.com/athletic/6445844/2025/08/07/football-architects-tom-byer-japan/
 
