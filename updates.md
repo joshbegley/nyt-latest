@@ -1,3 +1,7 @@
+**The Rams don't seem worried about Matthew Stafford's back. Should they be?**\
+`Rams coach Sean McVay said his quarterback would be playing if this were the regular season. But there are reasons for concern.`\
+https://nytimes.com/athletic/6540764/2025/08/07/matthew-stafford-back-epidural-aggravated-disc/
+
 **Friday Briefing: Netanyahu Plans to Fully Control Gaza**\
 `Plus, the global response to Trump’s tariffs.`\
 https://nytimes.com/2025/08/07/briefing/netanyahu-gaza-tariff-trump-putin-ukraine.html

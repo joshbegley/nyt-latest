@@ -1,3 +1,7 @@
+**The Rams don't seem worried about Matthew Stafford's back. Should they be?**\
+`Rams coach Sean McVay said his quarterback would be playing if this were the regular season. But there are reasons for concern.`\
+https://nytimes.com/athletic/6540764/2025/08/07/matthew-stafford-back-epidural-aggravated-disc/
+
 **Friday Briefing: Netanyahu Plans to Fully Control Gaza**\
 `Plus, the global response to Trump’s tariffs.`\
 https://nytimes.com/2025/08/07/briefing/netanyahu-gaza-tariff-trump-putin-ukraine.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/07/business/oil-india-russia-trump.html
 **South Africa’s Equity Laws, Reviled by Trump, May Complicate Tariff Talks**\
 `Slapped with a steep tariff, South African officials hope for a deal, but some worry the U.S. may insist that it roll back measures that redress the damage of apartheid.`\
 https://nytimes.com/2025/08/07/world/africa/south-africa-tariffs-racial-equity-laws.html
-
-**What to See in N.Y.C. Galleries in July**\
-`This week in Newly Reviewed, Jillian Steinhauer covers Agnieszka Kurant’s unnerving technology, a group show that nods to history, and Marian Spore Bush’s otherworldly paintings.`\
-https://nytimes.com/2025/08/07/arts/what-to-see-in-nyc-galleries-in-july.html
 
