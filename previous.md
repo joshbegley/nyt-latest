@@ -1,3 +1,11 @@
+**Trump Orders Clampdown on ‘Debanking,’ a Personal Gripe**\
+`Mostly right-leaning groups have complained of forced bank account closures. The evidence is spotty.`\
+https://nytimes.com/2025/08/07/business/trump-debanking-executive-order.html
+
+**Judge Orders Halt to Construction at Florida’s ‘Alligator Alcatraz’**\
+`A federal judge said work must stop for 14 days while she considered arguments that building and operating the immigration detention facility would harm the environment.`\
+https://nytimes.com/2025/08/07/us/alligator-alcatraz-florida-construction.html
+
 **Chelsea defender Levi Colwill undergoes surgery on torn ACL suffered in training**\
 `The 22-year-old was absent from the trophy celebrations at Stamford Bridge on Wednesday.`\
 https://nytimes.com/athletic/6540936/2025/08/07/levi-colwill-chelsea-acl-injury/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/08/07/us/florida-nurse-arrest.html
 **How a Carbon Tax Plan in Europe Survived (Mostly)**\
 `Austria tried a combination of taxes and rebates to reduce emissions.`\
 https://nytimes.com/2025/08/07/climate/austria-carbon-tax-klimabonus.html
-
-**Linda Hodes, Dancer Who Championed Martha Graham’s Vision, Dies at 94**\
-`Her connection to the great modern dancer lasted a lifetime, from studying with her as a child to leading the Martha Graham Dance Company as an artistic director.`\
-https://nytimes.com/2025/08/07/arts/dance/linda-hodes-dead.html
-
-**Barcelona defender Inigo Martinez set to go to Al Nassr on a free transfer**\
-`The 34-year-old made 28 appearances in La Liga as Barcelona won the title. `\
-https://nytimes.com/athletic/6540679/2025/08/07/inigo-martinez-al-nassr-barcelona-transfer/
 

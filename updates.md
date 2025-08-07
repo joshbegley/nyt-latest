@@ -1,3 +1,11 @@
+**Trump Orders Clampdown on ‘Debanking,’ a Personal Gripe**\
+`Mostly right-leaning groups have complained of forced bank account closures. The evidence is spotty.`\
+https://nytimes.com/2025/08/07/business/trump-debanking-executive-order.html
+
+**Judge Orders Halt to Construction at Florida’s ‘Alligator Alcatraz’**\
+`A federal judge said work must stop for 14 days while she considered arguments that building and operating the immigration detention facility would harm the environment.`\
+https://nytimes.com/2025/08/07/us/alligator-alcatraz-florida-construction.html
+
 **Chelsea defender Levi Colwill undergoes surgery on torn ACL suffered in training**\
 `The 22-year-old was absent from the trophy celebrations at Stamford Bridge on Wednesday.`\
 https://nytimes.com/athletic/6540936/2025/08/07/levi-colwill-chelsea-acl-injury/
