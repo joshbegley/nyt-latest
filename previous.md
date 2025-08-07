@@ -1,3 +1,11 @@
+**Watching Gyokeres: Quick bursts, direct dribbling and a tactical challenge for Arteta**\
+`The Sweden striker made his first Arsenal start on Wednesday. There were moments to excite fans but he will alter the way the team play`\
+https://nytimes.com/athletic/6539235/2025/08/07/viktor-gyokeres-arsenal-villarreal/
+
+**Word of the Day: emulsify**\
+`This word has appeared in six articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2025/08/07/learning/word-of-the-day-emulsify.html
+
 **Overturning the global trade system, Trump puts his ideas to the test.**\
 `By Ana Swanson`\
 https://nytimes.com/live/2025/08/06/business/tariffs-trump-trade/overturning-the-global-trade-system-trump-puts-his-ideas-to-the-test
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6538207/2025/08/07/szoboszlai-liverpool-no-8/
 **Joao Palhinha doesn't cure all of Tottenham's problems, but he solves a pretty big one**\
 `Spurs conceded 65 league goals last season, and a lot of them could have been prevented with a proper defensive midfielder`\
 https://nytimes.com/athletic/6522103/2025/08/07/palhinha-tottenham-tackling/
-
-**Real Madrid are only just back in training. Will they be ready for La Liga's return?**\
-`Xabi Alonso's side returned to training on Monday, having finally got the chance for a break after a very long 2024-25 season`\
-https://nytimes.com/athletic/6538182/2025/08/07/real-madrid-training-pre-season-la-liga-return/
-
-**Fantasy Premier League: Sizing up Salah, Palmer and the game's other premium players**\
-`You can only fit a limited number of top-priced options into your line-up, so which ones are worth spending large chunks of your £100m on?`\
-https://nytimes.com/athletic/6508707/2025/08/07/fantasy-premier-league-salah-palmer-isak-premiums/
 
