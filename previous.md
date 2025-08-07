@@ -1,3 +1,7 @@
+**U Myint Swe, Acting President of Myanmar Installed by Military, Dies at 74**\
+`A figurehead leader, he had little real power but did endorse measures that allowed the country’s generals to extend their rule after a 2021 coup.`\
+https://nytimes.com/2025/08/07/world/asia/u-myint-swe-dies-myanmar-president.html
+
 **Jaxson Dart practice diary: 'As the QB, you have to set the standard'**\
 `How are the Giants bringing along their first-round pick? We watched everything he did during practice to get a closer look. `\
 https://nytimes.com/athletic/6539503/2025/08/07/ny-giants-jaxson-dart-diary/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6539646/2025/08/07/for-the-wnba-this-is-about-more-
 **Six important Twins storylines worth watching after their trade deadline fire sale**\
 `Wins and losses have ceased meaning very much to the Twins this season, but the final two months are still crucial for 2026 and beyond.`\
 https://nytimes.com/athletic/6531837/2025/08/07/twins-post-deadline-storylines/
-
-**Why Packers QB Jordan Love is going to run more in 2025**\
-`Love ranked tied for 30th in rushing attempts among quarterbacks last season.`\
-https://nytimes.com/athletic/6539178/2025/08/07/packers-jordan-love-rushing-quarterback/
 
