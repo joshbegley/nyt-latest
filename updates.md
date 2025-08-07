@@ -1,3 +1,11 @@
+**Trump Administration Forces Out F.B.I. Officials**\
+`Brian Driscoll, who was the acting director in the early days of the administration, was among those being told to leave by Friday.`\
+https://nytimes.com/2025/08/07/us/politics/trump-fbi.html
+
+**Cornyn Says F.B.I. Will Help Find Texas Lawmakers Who Fled State**\
+`The senator said the federal agency had agreed to help locate Democratic state lawmakers who left the state to try to block a vote on new congressional district maps.`\
+https://nytimes.com/2025/08/07/us/politics/texas-redistricting-cornyn-fbi.html
+
 **Dean Cain, Who Played Superman, Says He Is Joining ICE**\
 `The actor told Fox News he will sign up as an immigration officer, as the Trump administration recruits more personnel to staff its deportation campaign.`\
 https://nytimes.com/2025/08/07/us/dean-cain-superman-ice.html
