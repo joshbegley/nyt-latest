@@ -1,6 +1,6 @@
 **Mindful of painful history, Red Sox make Roman Anthony the one who didn’t get away**\
 `Craig Breslow had high praise for Anthony’s impact on one of the more exciting Red Sox teams in the past few years.`\
-https://nytimes.com/athletic/6539635/2025/08/06/mindful-of-painful-history-red-sox-make-roman-anthony-the-one-who-didnt-get-away/
+https://nytimes.com/athletic/6539635/2025/08/06/red-sox-roman-anthony-contract/
 
 **Braves takeaways: Why their approach to situational hitting must improve in 2026**\
 `Plus, Grant Holmes discusses his choice to avoid surgery, the latest on Chris Sale and bad news for Joe Jiménez.`\
