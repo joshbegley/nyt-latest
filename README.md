@@ -1,3 +1,7 @@
+**Caleb Williams, Colston Loveland among Bears to watch in practice, game vs. Dolphins**\
+`With the Dolphins coming to town for a joint practice and preseason game, which Bears will be under the spotlight?`\
+https://nytimes.com/athletic/6541009/2025/08/07/bears-dolphins-caleb-williams-players-to-watch/
+
 **As Miles of Forests Burn and Wildfires Spread, Canada Brings In the Military**\
 `Amid thousands of evacuations and the spread of smoke to the United States, the Canadian armed forces and the Coast Guard were summoned to help battle the blazes.`\
 https://nytimes.com/2025/08/07/world/canada/wildfires-evacuations-military.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/07/nyregion/cuomo-social-media-x.html
 **Texas Tech lands Georgia native LaDamion Guyton, No. 2 player in Class of 2027**\
 `Pulling Guyton, a Savannah native, out of Georgia is another example of Texas Tech’s growing recruiting prowess.`\
 https://nytimes.com/athletic/6541026/2025/08/07/texas-tech-recruiting-ladamion-guyton-2027/
-
-**WNBA sex toy incidents may be linked to cryptocurrency group's money scheme**\
-`The group's coin was created the day before the first incident, and as of Thursday, its worth had nearly tripled in one week.`\
-https://nytimes.com/athletic/6541093/2025/08/07/wnba-sex-toy-incidents-cryptocurrency-group-scheme/
 
