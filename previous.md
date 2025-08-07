@@ -1,40 +1,40 @@
-**The Pulse: Boston's necessary gamble**\
-`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
-https://nytimes.com/athletic/6539698/2025/08/07/red-sox-roman-anthony-the-pulse/
+**Burnley sign Dubravka from Newcastle**\
+`The goalkeeper has signed a one-year deal at Turf Moor after spending seven-and-a-half years with Newcastle.`\
+https://nytimes.com/athletic/6539911/2025/08/07/burnley-newcastle-martin-dubravka-transfer/
 
-**Tottenham's James Maddison to have surgery on ACL injury**\
-`Maddison went down off the ball around 10 minutes after coming on as a substitute in Tottenham's 1-1 draw with Newcastle in Seoul.`\
-https://nytimes.com/athletic/6533384/2025/08/07/james-maddison-acl-injury-surgery-tottenham/
+**Twins takeaways: Alan Roden among many looking to take advantage of opportunity**\
+`After struggling in his first five games, Roden broke out Wednesday afternoon with two hits, including a solo home run.`\
+https://nytimes.com/athletic/6539598/2025/08/07/minnesota-twins-takeaways-alan-roden/
 
-**Pill Causes Major Weight Loss in Eli Lilly Trial’s Results**\
-`The company said it planned to seek Food and Drug Administration approval for the drug, orforglipron, before the end of the year.`\
-https://nytimes.com/2025/08/07/health/obesity-pill-eli-lilly.html
+**TAFC: Back to the future on tactics; Weah, Grealish moves; Premier League kits ranked**\
+`Today in TAFC: What we might know already about tactics next season, transfers news involving Weah, Grealish and Nunez, and PL shirts ranked`\
+https://nytimes.com/athletic/6539829/2025/08/07/premier-league-tactics-weah-grealish-transfers/
 
-**Villarreal complete signing of former Arsenal midfielder Partey**\
-`Partey, 32, has signed a two year deal at the La Liga club.`\
-https://nytimes.com/athletic/6533471/2025/08/07/thomas-partey-villarreal-arsenal-transfer/
+**For the WNBA, this is about more than just green sex toys**\
+`Misogyny in women’s sports — like in society – is often subtle. These incidents were not.`\
+https://nytimes.com/athletic/6539646/2025/08/07/for-the-wnba-this-is-about-more-than-just-green-sex-toys/
 
-**For Putin, Trump Summit Is Key to Securing Ukraine Goals**\
-`The Russian leader sees direct talks with Trump as essential to achieving his ultimate aims in Ukraine.`\
-https://nytimes.com/2025/08/07/world/europe/putin-trump-russia-ukraine-summit.html
+**Six important Twins storylines worth watching after their trade deadline fire sale**\
+`Wins and losses have ceased meaning very much to the Twins this season, but the final two months are still crucial for 2026 and beyond.`\
+https://nytimes.com/athletic/6531837/2025/08/07/twins-post-deadline-storylines/
 
-**ESPN's best week ever? Company chairman Jimmy Pitaro addresses the major NFL, WWE moves**\
-`ESPN's top leader addressed a range of topics, across NFL Network, RedZone, NFL regular-season games, the Aug. 21 app launch and WWE.`\
-https://nytimes.com/athletic/6538956/2025/08/07/espn-nfl-wwe-jimmy-pitaro-app/
+**Why Packers QB Jordan Love is going to run more in 2025**\
+`Love ranked tied for 30th in rushing attempts among quarterbacks last season.`\
+https://nytimes.com/athletic/6539178/2025/08/07/packers-jordan-love-rushing-quarterback/
 
-**Cowboys OL coach to those concerned about the group's play: 'Be patient'**\
-`Offensive line coach Conor Riley breaks down the starting offensive linemen and a couple others who could factor into the rotation.`\
-https://nytimes.com/athletic/6539375/2025/08/07/cowboys-offensive-line-running-game/
+**The potential key to Georgia's season: Running the (dang) ball**\
+`Georgia's strength in the past been playing complimentary football and a big piece of that is establishing a consistent run game.`\
+https://nytimes.com/athletic/6538907/2025/08/07/the-potential-key-to-georgias-season-running-the-dang-ball/
 
-**Coco Gauff manifested a Grand Slam title at the French Open. Or did she?**\
-`Researchers have long cautioned there is no scientific basis for manifesting. But that doesn't mean there isn't value in writing down goals.`\
-https://nytimes.com/athletic/6538309/2025/08/07/coco-gauff-grand-slam-goals-manifest-french-open/
+**Tigers takeaways: Plate discipline woes and the other issues threatening a strong season**\
+`Strikeouts, lack of walks, bullpen woes and players who need to get going. Here's an overview of some key issues plaguing the Tigers. `\
+https://nytimes.com/athletic/6539170/2025/08/07/tigers-takeaways-plate-patience-bullpen-struggles/
 
-**Are pro golfers getting angrier, or are we just always recording?**\
-`Wyndham Clark, Rory McIlroy and more have gone viral for throwing clubs, breaking signs and more. The old guys say they did the same things.`\
-https://nytimes.com/athletic/6539108/2025/08/07/golf-clark-mcilroy-tiger-club-throw-smash/
+**Notre Dame mailbag: The battle for snaps is on, and not just at QB**\
+`One week into training camp, Notre Dame has a legitimate quarterback competition on its hands.`\
+https://nytimes.com/athletic/6539052/2025/08/07/notre-dame-quarterback-competition-micah-gilbert/
 
-**How hard is it to go all out in NASCAR's Next Gen car? 'You're always on the limit'**\
-`In the Next Gen car, drivers constantly walk the line between speed and disaster, relying on feel to keep from pushing their cars too far.`\
-https://nytimes.com/athletic/6538510/2025/08/07/nascar-next-gen-car-driving-speed-difficulty/
+**‘Sketch’ Review: Creative Doldrums**\
+`The disturbing drawings of a grieving child come to life in this so-so children’s horror movie.`\
+https://nytimes.com/2025/08/07/movies/sketch-review.html
 

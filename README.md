@@ -1,3 +1,7 @@
+**Targeting a Vaccine**\
+`Robert F. Kennedy Jr. has halted funding for mRNA shots. We explore why.`\
+https://nytimes.com/2025/08/07/briefing/mrna-vaccines-robert-f-kennedy.html
+
 **Burnley sign Dubravka from Newcastle**\
 `The goalkeeper has signed a one-year deal at Turf Moor after spending seven-and-a-half years with Newcastle.`\
 https://nytimes.com/athletic/6539911/2025/08/07/burnley-newcastle-martin-dubravka-transfer/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6539170/2025/08/07/tigers-takeaways-plate-patience-
 **Notre Dame mailbag: The battle for snaps is on, and not just at QB**\
 `One week into training camp, Notre Dame has a legitimate quarterback competition on its hands.`\
 https://nytimes.com/athletic/6539052/2025/08/07/notre-dame-quarterback-competition-micah-gilbert/
-
-**‘Sketch’ Review: Creative Doldrums**\
-`The disturbing drawings of a grieving child come to life in this so-so children’s horror movie.`\
-https://nytimes.com/2025/08/07/movies/sketch-review.html
 
