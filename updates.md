@@ -1,3 +1,15 @@
+**The Pulse: Boston's necessary gamble**\
+`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/6539698/2025/08/07/red-sox-roman-anthony-the-pulse/
+
+**Tottenham's James Maddison to have surgery on ACL injury**\
+`Maddison went down off the ball around 10 minutes after coming on as a substitute in Tottenham's 1-1 draw with Newcastle in Seoul.`\
+https://nytimes.com/athletic/6533384/2025/08/07/james-maddison-acl-injury-surgery-tottenham/
+
+**Pill Causes Major Weight Loss in Eli Lilly Trial’s Results**\
+`The company said it planned to seek Food and Drug Administration approval for the drug, orforglipron, before the end of the year.`\
+https://nytimes.com/2025/08/07/health/obesity-pill-eli-lilly.html
+
 **Villarreal complete signing of former Arsenal midfielder Partey**\
 `Partey, 32, has signed a two year deal at the La Liga club.`\
 https://nytimes.com/athletic/6533471/2025/08/07/thomas-partey-villarreal-arsenal-transfer/
