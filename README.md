@@ -1,3 +1,11 @@
+**Tottenham's James Maddison to have surgery on ACL injury**\
+`Maddison went down off the ball around 10 minutes after coming on as a substitute in Tottenham's 1-1 draw with Newcastle in Seoul.`\
+https://nytimes.com/athletic/6533384/2025/08/07/james-maddison-acl-injury-surgery-tottenham/
+
+**Pill Causes Major Weight Loss in Eli Lilly Trial’s Results**\
+`The company said it planned to seek Food and Drug Administration approval for the drug, orforglipron, before the end of the year.`\
+https://nytimes.com/2025/08/07/health/obesity-pill-eli-lilly.html
+
 **Villarreal complete signing of former Arsenal midfielder Partey**\
 `Partey, 32, has signed a two year deal at the La Liga club.`\
 https://nytimes.com/athletic/6533471/2025/08/07/thomas-partey-villarreal-arsenal-transfer/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6538510/2025/08/07/nascar-next-gen-car-driving-spee
 **VIDEO: Why waiving Lillard and Beal will handcuff Bucks and Suns for rest of decade**\
 `By using a tool to waive two highly paid players, the Bucks and Suns added an unprecedented amount of "dead money" to their future.`\
 https://nytimes.com/athletic/6539226/2025/08/07/video-damian-lillard-bradley-beal-stretch-provision-nba/
-
-**Matt Freese: My game in my words**\
-`There's a method to the madness – and there's plenty of madness – that shapes the U.S.'s Gold Cup penalty-saving hero`\
-https://nytimes.com/athletic/6535438/2025/08/07/matt-freese-usmnt-nycfc-my-game-my-words/
-
-**The Athletic's Transfer Portal 100: Who are 2025's buzziest new arrivals?**\
-`We talked to dozens of FBS coaches and staffers this summer to find out which players will make the biggest mark on their new teams.`\
-https://nytimes.com/athletic/6523271/2025/08/07/college-football-transfer-portal-rankings/
 
