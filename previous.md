@@ -1,3 +1,11 @@
+**After a Lull, Agents Conduct a Big Immigration Raid in L.A.**\
+`A rented Pensketruck was used to ferry agents to the Home Depot where the raid was conducted, days after an appeals court upheld an order limiting some enforcement tactics.`\
+https://nytimes.com/2025/08/06/us/los-angeles-immigration-raid.html
+
+**NFLPA's David White to players: Rebuilding 'damaged trust' a top priority**\
+`White: "You deserve a union that operates professionally, communicates clearly and makes decisions that put your interests first."`\
+https://nytimes.com/athletic/6539475/2025/08/06/nflpa-david-white-trust-priorities/
+
 **Trump’s Redistricting Campaign Tests His Power in the States**\
 `The effort by President Trump and his allies is the latest example of them trying to rewrite the rules to squeeze out every possible political advantage.`\
 https://nytimes.com/2025/08/06/us/politics/trump-republicans-states-redistricting.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/08/06/business/lawrence-a-bossidy-dead.html
 **Trump Threatens 100% Tariff on Chips, With a Big Caveat**\
 `The tariff would not apply to businesses that made a commitment to build and invest in the United States.`\
 https://nytimes.com/2025/08/06/technology/trump-chip-tariffs-semiconductors.html
-
-**Trump Administration Begins to Strip Federal Workers of Union Protections**\
-`The Department of Veterans Affairs appeared to be the first agency to begin terminating union contracts, affecting more than 400,000 workers.`\
-https://nytimes.com/2025/08/06/us/politics/trump-federal-workers-unions.html
-
-**Giants takeaways: Ryan Walker gets there inch by inch, more bad luck for Jerar Encarnacion**\
-`Walker remains in pursuit of last season's dominance, Patrick Bailey's bat is finally heating up and other post-trade deadline developments.`\
-https://nytimes.com/athletic/6539333/2025/08/06/giants-ryan-walker-jerar-encarnacion-takeaways/
 
