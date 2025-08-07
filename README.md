@@ -1,3 +1,7 @@
+**Newcastle have missed out on Sesko. Here are the strikers they should target instead**\
+`The Athletic has taken a look at five strikers Newcastle should sign after Sesko has agreed to move to Manchester United`\
+https://nytimes.com/athletic/6540367/2025/08/07/newcastle-striker-transfer-analysis/
+
 **Archie Manning says grandson Arch will remain at Texas through 2026 season**\
 `Manning's revelation is largely unsurprising to those who have closely followed Arch’s recruitment and college career.`\
 https://nytimes.com/athletic/6540353/2025/08/07/arch-manning-archie-nfl-draft-texas/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/07/technology/openai-chatgpt-gpt-5.html
 **8 New Books We Love This Week**\
 `Reading recommendations from critics and editors at The New York Times.`\
 https://nytimes.com/2025/08/07/books/review/new-book-recommendations.html
-
-**UCI to introduce rider trackers at World Championships following Furrer death**\
-`The UCI announcement marks the first time that the governing body will have made safety trackers mandatory in one of their races.`\
-https://nytimes.com/athletic/6540555/2025/08/07/cycling-rider-tracker-world-championships-muriel-furrer-death/
 

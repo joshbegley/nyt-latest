@@ -1,3 +1,7 @@
+**Archie Manning says grandson Arch will remain at Texas through 2026 season**\
+`Manning's revelation is largely unsurprising to those who have closely followed Arch’s recruitment and college career.`\
+https://nytimes.com/athletic/6540353/2025/08/07/arch-manning-archie-nfl-draft-texas/
+
 **Cuomo Tells Business Leaders He Doesn’t ‘Personally’ Want to Fight Trump**\
 `Former Gov. Andrew M. Cuomo’s remarks about President Trump came just before The Times’s disclosure that he had spoken to Mr. Trump about the race.`\
 https://nytimes.com/2025/08/07/nyregion/cuomo-trump-mamdani-mayor.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/07/books/review/new-book-recommendations.html
 **UCI to introduce rider trackers at World Championships following Furrer death**\
 `The UCI announcement marks the first time that the governing body will have made safety trackers mandatory in one of their races.`\
 https://nytimes.com/athletic/6540555/2025/08/07/cycling-rider-tracker-world-championships-muriel-furrer-death/
-
-**‘Weapons’ Review: These Classmates Are Not All Right**\
-`The writer-director Zach Cregger (“Barbarian”) creates and maintains an ominous mood in this horror movie about missing children.`\
-https://nytimes.com/2025/08/07/movies/weapons-review.html
 
