@@ -1,3 +1,11 @@
+**Why a Teen Bullying Case in China Set Off Protests and a Crackdown**\
+`Residents in a city in southwestern China protested what they saw as official indifference in the attack on a girl. Police repression and censorship fueled the outrage.`\
+https://nytimes.com/2025/08/07/world/asia/china-bullying-protests.html
+
+**Al Hilal agree deal with Liverpool for Nunez, striker set for medical**\
+`Nunez is set to undergo a medical with the Saudi Pro League club.`\
+https://nytimes.com/athletic/6538021/2025/08/07/darwin-nunez-al-hilal-liverpool-agreement/
+
 **Apple C.E.O. Gifts Trump Gold**\
 `Tim Cook presented a glass plaque on a gold base to President Trump and pledged a $100 billion investment in the U.S. as Trump threatened a 100 percent tariff on semiconductors.`\
 https://nytimes.com/video/business/economy/100000010328133/trump-apple-investment.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/08/07/crosswords/spelling-bee-forum.html
 **Seth Meyers Won’t Be Distracted by Trump Fiddling on the Roof**\
 `Meyers said that if he saw Trump on his roof, he’d assume the president “was pulling a reverse Santa Claus. — you know, going house to house taking toys away from kids.”`\
 https://nytimes.com/2025/08/07/arts/television/seth-meyers-trump-roof.html
-
-**Watching Gyokeres: Quick bursts, direct dribbling and a tactical challenge for Arteta**\
-`The Sweden striker made his first Arsenal start on Wednesday. There were moments to excite fans but he will alter the way the team play`\
-https://nytimes.com/athletic/6539235/2025/08/07/viktor-gyokeres-arsenal-villarreal/
-
-**Word of the Day: emulsify**\
-`This word has appeared in six articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2025/08/07/learning/word-of-the-day-emulsify.html
 
