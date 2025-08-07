@@ -1,3 +1,43 @@
+**Cowboys OL coach to those concerned about the group's play: 'Be patient'**\
+`Offensive line coach Conor Riley breaks down the starting offensive linemen and a couple others who could factor into the rotation.`\
+https://nytimes.com/athletic/6539375/2025/08/07/cowboys-offensive-line-running-game/
+
+**Coco Gauff manifested a Grand Slam title at the French Open. Or did she?**\
+`Researchers have long cautioned there is no scientific basis for manifesting. But that doesn't mean there isn't value in writing down goals.`\
+https://nytimes.com/athletic/6538309/2025/08/07/coco-gauff-grand-slam-goals-manifest-french-open/
+
+**Are pro golfers getting angrier, or are we just always recording?**\
+`Wyndham Clark, Rory McIlroy and more have gone viral for throwing clubs, breaking signs and more. The old guys say they did the same things.`\
+https://nytimes.com/athletic/6539108/2025/08/07/golf-clark-mcilroy-tiger-club-throw-smash/
+
+**How hard is it to go all out in NASCAR's Next Gen car? 'You're always on the limit'**\
+`In the Next Gen car, drivers constantly walk the line between speed and disaster, relying on feel to keep from pushing their cars too far.`\
+https://nytimes.com/athletic/6538510/2025/08/07/nascar-next-gen-car-driving-speed-difficulty/
+
+**VIDEO: Why waiving Lillard and Beal will handcuff Bucks and Suns for rest of decade**\
+`By using a tool to waive two highly paid players, the Bucks and Suns added an unprecedented amount of "dead money" to their future.`\
+https://nytimes.com/athletic/6539226/2025/08/07/video-damian-lillard-bradley-beal-stretch-provision-nba/
+
+**Matt Freese: My game in my words**\
+`There's a method to the madness – and there's plenty of madness – that shapes the U.S.'s Gold Cup penalty-saving hero`\
+https://nytimes.com/athletic/6535438/2025/08/07/matt-freese-usmnt-nycfc-my-game-my-words/
+
+**The Athletic's Transfer Portal 100: Who are 2025's buzziest new arrivals?**\
+`We talked to dozens of FBS coaches and staffers this summer to find out which players will make the biggest mark on their new teams.`\
+https://nytimes.com/athletic/6523271/2025/08/07/college-football-transfer-portal-rankings/
+
+**How the Eagles' position groups shape up for their preseason opener**\
+`The reigning champions will start to see how their new pieces are fitting in during the preseason opener.`\
+https://nytimes.com/athletic/6538108/2025/08/07/philadelphia-eagles-position-groups-preseason-game/
+
+**Four Key Facts About Trump’s New Tariffs, and a Town Hall Showdown**\
+`Plus, inside the weight-loss drug wars.`\
+https://nytimes.com/2025/08/07/podcasts/the-headlines/trump-tariffs-town-hall-ozempic.html
+
+**Trump Said Family Separations Would End. They’re Happening Again.**\
+`The practice caused a global outcry in President Trump’s first term.`\
+https://nytimes.com/2025/08/07/podcasts/the-daily/trump-family-separations.html
+
 **Netanyahu Weighs Expanding Gaza Military Operation Despite Warnings**\
 `The Israeli security cabinet is to discuss the proposal on Thursday. Critics say that extending the offensive would endanger the lives of Israeli hostages and kill more Palestinian civilians.`\
 https://nytimes.com/2025/08/07/world/middleeast/israel-gaza-military-offensive.html
