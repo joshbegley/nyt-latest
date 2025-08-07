@@ -1,3 +1,19 @@
+**Netanyahu Said Israel Wanted to Take Military Control of Gaza**\
+`Also, Kennedy has broken with the mainstream on vaccines. Here’s the latest at the end of Thursday.`\
+https://nytimes.com/2025/08/07/briefing/israel-gaza-trump-tariff-reaction.html
+
+**Brandon Blackstock, Kelly Clarkson’s Ex-Husband, Dies at 48**\
+`The announcement of Mr. Blackstock’s death came one day after Ms. Clarkson said she would be postponing the remainder of her residency in Las Vegas.`\
+https://nytimes.com/2025/08/07/us/brandon-blackstock-dead-cancer-kelly-clarkson.html
+
+**Nicholas Clapp, 89, Dies; ‘Real-Life Indiana Jones’ Pursued a Lost City**\
+`A documentary filmmaker and amateur archaeologist, he was consumed by the desire to find an ancient city in the Arabian desert known as Atlantis of the Sands.`\
+https://nytimes.com/2025/08/07/science/nicholas-clapp-dead.html
+
+**Big-Game Hunter, Eying His Next Trophy, Is Killed by Buffalo During Safari**\
+`Asher Watkins, a real estate executive from Texas, was tracking a Cape buffalo in South Africa when he was attacked, a safari company said.`\
+https://nytimes.com/2025/08/07/world/africa/big-game-hunter-killed-buffalo-safari-south-africa.html
+
 **Caleb Williams, Colston Loveland among Bears to watch in practice, game vs. Dolphins**\
 `With the Dolphins coming to town for a joint practice and preseason game, which Bears will be under the spotlight?`\
 https://nytimes.com/athletic/6541009/2025/08/07/bears-dolphins-caleb-williams-players-to-watch/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6540764/2025/08/07/matthew-stafford-back-epidural-a
 **Friday Briefing: Netanyahu Plans to Fully Control Gaza**\
 `Plus, the global response to Trump’s tariffs.`\
 https://nytimes.com/2025/08/07/briefing/netanyahu-gaza-tariff-trump-putin-ukraine.html
-
-**Michael Lydon, Writer Who Rocked With the 1960s, Dies at 82**\
-`A founding editor of Rolling Stone and a seasoned music journalist, he spent time with the Beatles and toured with the Grateful Dead and the Rolling Stones.`\
-https://nytimes.com/2025/08/07/arts/music/michael-lydon-dead.html
-
-**Why More People in the World Are Feeling Hopeful (Except Us)**\
-`I would say the most important social trend over the past decade has been the disconnect between our nation’s economic health and its social health.`\
-https://nytimes.com/2025/08/07/opinion/happiness-community-wealth.html
-
-**Cuomo Tries to Reinvent Himself Online, and Critics Say, ‘OK, Boomer’**\
-`Mr. Cuomo’s decisive loss to Zohran Mamdani in the New York City mayoral primary has led to a campaign rebranding that includes a fresh social media persona.`\
-https://nytimes.com/2025/08/07/nyregion/cuomo-social-media-x.html
-
-**Texas Tech lands Georgia native LaDamion Guyton, No. 2 player in Class of 2027**\
-`Pulling Guyton, a Savannah native, out of Georgia is another example of Texas Tech’s growing recruiting prowess.`\
-https://nytimes.com/athletic/6541026/2025/08/07/texas-tech-recruiting-ladamion-guyton-2027/
 
