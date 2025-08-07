@@ -1,3 +1,7 @@
+**What Roman Anthony's extension could mean for top prospects like Kevin McGonigle and Max Clark**\
+`Anthony’s ultimate valuation will pivot on where he finishes in this year’s American League Rookie of the Year voting.`\
+https://nytimes.com/athletic/6540535/2025/08/07/what-roman-anthonys-extension-could-mean-for-top-prospects-like-kevin-mcgonigle-and-max-clark/
+
 **Atlanta Braves, 'the model' in MLB, could have added payroll at trade deadline**\
 `Despite a disappointing season so far on the field, the Braves have seen a significant revenue increase this year.`\
 https://nytimes.com/athletic/6540621/2025/08/07/atlanta-braves-earnings-call-2025/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/07/us/politics/baltimore-schools-investigation-antis
 **Oh, Do You Have Some Zucchini?**\
 `Then you’ll definitely want to play — and will easily win — Zucchini Bingo.`\
 https://nytimes.com/2025/08/07/dining/easy-vegetarian-zucchini-recipes.html
-
-**OpenAI Aims to Stay Ahead of Rivals With New GPT-5 Technology**\
-`The A.I. start-up said its new flagship technology was faster, more accurate and less likely to make stuff up.`\
-https://nytimes.com/2025/08/07/technology/openai-chatgpt-gpt-5.html
 

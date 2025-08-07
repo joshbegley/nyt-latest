@@ -1,3 +1,7 @@
+**Atlanta Braves, 'the model' in MLB, could have added payroll at trade deadline**\
+`Despite a disappointing season so far on the field, the Braves have seen a significant revenue increase this year.`\
+https://nytimes.com/athletic/6540621/2025/08/07/atlanta-braves-earnings-call-2025/
+
 **Newcastle have missed out on Sesko. Here are the strikers they should target instead**\
 `The Athletic has taken a look at five strikers Newcastle should sign after Sesko has agreed to move to Manchester United`\
 https://nytimes.com/athletic/6540367/2025/08/07/newcastle-striker-transfer-analysis/
