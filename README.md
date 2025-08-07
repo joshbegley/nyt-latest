@@ -1,3 +1,7 @@
+**The Pulse: Boston's necessary gamble**\
+`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/6539698/2025/08/07/red-sox-roman-anthony-the-pulse/
+
 **Tottenham's James Maddison to have surgery on ACL injury**\
 `Maddison went down off the ball around 10 minutes after coming on as a substitute in Tottenham's 1-1 draw with Newcastle in Seoul.`\
 https://nytimes.com/athletic/6533384/2025/08/07/james-maddison-acl-injury-surgery-tottenham/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6539108/2025/08/07/golf-clark-mcilroy-tiger-club-th
 **How hard is it to go all out in NASCAR's Next Gen car? 'You're always on the limit'**\
 `In the Next Gen car, drivers constantly walk the line between speed and disaster, relying on feel to keep from pushing their cars too far.`\
 https://nytimes.com/athletic/6538510/2025/08/07/nascar-next-gen-car-driving-speed-difficulty/
-
-**VIDEO: Why waiving Lillard and Beal will handcuff Bucks and Suns for rest of decade**\
-`By using a tool to waive two highly paid players, the Bucks and Suns added an unprecedented amount of "dead money" to their future.`\
-https://nytimes.com/athletic/6539226/2025/08/07/video-damian-lillard-bradley-beal-stretch-provision-nba/
 
