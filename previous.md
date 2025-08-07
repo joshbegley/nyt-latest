@@ -1,3 +1,11 @@
+**Some safe-haven assets have soared against the U.S. dollar.**\
+`By Christine Zhang`\
+https://nytimes.com/live/2025/08/06/business/tariffs-trump-trade/some-safe-haven-assets-have-soared-against-the-us-dollar
+
+**Antiquities Returned to Europe Include 16 Seized From the Met**\
+`New York investigators said they repatriated looted objects to Italy, Spain and Hungary.`\
+https://nytimes.com/2025/08/07/arts/design/met-antiquities-seizure-italy-krater.html
+
 **Neo-Nazi Leader Gets 20 Years in Plot to Attack Baltimore’s Power Grid**\
 `Brandon C. Russell, 30, of Orlando., Fla., plotted with a Maryland woman to attack electrical substations in what prosecutors described as a plan motivated by their white supremacist beliefs.`\
 https://nytimes.com/2025/08/07/us/neo-nazi-leader-baltimore-attack-sentence.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6540936/2025/08/07/levi-colwill-chelsea-acl-injury/
 **What's working and what needs improvement in the sports card industry, according to top leaders**\
 `We asked eight industry leaders for their current assessment of the sports card business — here's what they said`\
 https://nytimes.com/athletic/6540863/2025/08/07/sports-card-industry-trust-growth/
-
-**Cam Heyward not participating in team drills amid contract hold-in**\
-`The 36-year-old has suited up for the first 12 practices and participated in individual drills, but has not taken part in team drills.`\
-https://nytimes.com/athletic/6540832/2025/08/07/steelers-cam-heyward-contract-nfl-training-camp/
-
-**2 Dead After Helicopter Crashes Onto Barge in Mississippi River**\
-`The crash, which happened near the border of Missouri and Illinois, closed a bridge into Illinois.`\
-https://nytimes.com/2025/08/07/us/helicopter-crash-barge-missouri-mississippi.html
 

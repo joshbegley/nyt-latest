@@ -1,3 +1,11 @@
+**Some safe-haven assets have soared against the U.S. dollar.**\
+`By Christine Zhang`\
+https://nytimes.com/live/2025/08/06/business/tariffs-trump-trade/some-safe-haven-assets-have-soared-against-the-us-dollar
+
+**Antiquities Returned to Europe Include 16 Seized From the Met**\
+`New York investigators said they repatriated looted objects to Italy, Spain and Hungary.`\
+https://nytimes.com/2025/08/07/arts/design/met-antiquities-seizure-italy-krater.html
+
 **Neo-Nazi Leader Gets 20 Years in Plot to Attack Baltimore’s Power Grid**\
 `Brandon C. Russell, 30, of Orlando., Fla., plotted with a Maryland woman to attack electrical substations in what prosecutors described as a plan motivated by their white supremacist beliefs.`\
 https://nytimes.com/2025/08/07/us/neo-nazi-leader-baltimore-attack-sentence.html
