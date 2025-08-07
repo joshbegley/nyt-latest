@@ -1,3 +1,7 @@
+**Sliders: Jen Pawol's perseverance, support network have her ready to make MLB umpiring history**\
+`Plus: Clayton Kershaw to make more history, Nashville in pole position, Matt Strahm answers questions and more.`\
+https://nytimes.com/athletic/6537003/2025/08/07/jen-pawol-mlb-female-umpire-ted-barrett/
+
 **Weather Service Is Hiring Hundreds After Sweeping Cuts Earlier This Year**\
 `The federal forecasting agency plans to restore some of its losses from this year’s Trump administration cuts.`\
 https://nytimes.com/2025/08/07/weather/nws-hiring-doge-cuts.html
