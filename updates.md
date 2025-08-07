@@ -1,3 +1,15 @@
+**Dean Cain, Who Played Superman, Says He Is Joining ICE**\
+`The actor told Fox News he will sign up as an immigration officer, as the Trump administration recruits more personnel to staff its deportation campaign.`\
+https://nytimes.com/2025/08/07/us/dean-cain-superman-ice.html
+
+**Markets Rise, Taking Steeper Tariffs in Stride**\
+`Major indexes in Asia and Europe posted gains and U.S. futures climbed in premarket trading.`\
+https://nytimes.com/2025/08/07/business/economy/trump-tariffs-stock-market.html
+
+**NHL's new wisest spenders. Plus: Happy birthday to a hockey legend**\
+`Sidney Crosby turns 38 today, so let's walk down memory lane.`\
+https://nytimes.com/athletic/6540099/2025/08/07/nhl-red-light-newsletter-sidney-crosby/
+
 **As Trump Administration Plans to Burn Contraceptives, Europeans Are Alarmed**\
 `The U.S. government intends to incinerate $9.7 million in already-purchased birth control in Belgium after U.S.A.I.D shut down. Destruction may have already started.`\
 https://nytimes.com/2025/08/07/world/europe/usaid-contraceptives-trump.html
