@@ -1,3 +1,7 @@
+**Chelsea defender Levi Colwill undergoes surgery on torn ACL suffered in training**\
+`The 22-year-old was absent from the trophy celebrations at Stamford Bridge on Wednesday.`\
+https://nytimes.com/athletic/6540936/2025/08/07/levi-colwill-chelsea-acl-injury/
+
 **What's working and what needs improvement in the sports card industry, according to top leaders**\
 `We asked eight industry leaders for their current assessment of the sports card business — here's what they said`\
 https://nytimes.com/athletic/6540863/2025/08/07/sports-card-industry-trust-growth/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/07/arts/dance/linda-hodes-dead.html
 **Barcelona defender Inigo Martinez set to go to Al Nassr on a free transfer**\
 `The 34-year-old made 28 appearances in La Liga as Barcelona won the title. `\
 https://nytimes.com/athletic/6540679/2025/08/07/inigo-martinez-al-nassr-barcelona-transfer/
-
-**Rent for $1 a Month? Egypt Says No, Ending a System That Aided the Poor**\
-`Officials say a new law will rebalance a housing market long distorted by rigid rent controls, but many residents could be pushed out.`\
-https://nytimes.com/2025/08/07/world/middleeast/egypt-affordable-housing-old-rent.html
 
