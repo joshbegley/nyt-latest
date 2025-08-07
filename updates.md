@@ -1,3 +1,7 @@
+**Sliders: Jen Pawol's perseverance, support network have her ready to make MLB umpiring history**\
+`Plus: Clayton Kershaw to make more history, Nashville in pole position, Matt Strahm answers questions, and more.`\
+https://nytimes.com/athletic/6537003/2025/08/07/jen-pawol-mlb-female-umpire-ted-barrett/
+
 **Pac-12-bound schools sue Mountain West over money, handling of Grand Canyon move**\
 `The millions of dollars in dispute include CFP money earned through Boise State’s appearance in the inaugural 12-team field last season.`\
 https://nytimes.com/athletic/6541073/2025/08/07/mountain-west-lawsuits-grand-canyon/

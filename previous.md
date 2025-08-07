@@ -27,7 +27,7 @@ https://nytimes.com/2025/08/07/us/politics/secret-service-vance-boating.html
 https://nytimes.com/2025/08/07/business/media/disney-gina-carano-mandalorian-suit.html
 
 **Sliders: Jen Pawol's perseverance, support network have her ready to make MLB umpiring history**\
-`Plus: Clayton Kershaw to make more history, Nashville in pole position, Matt Strahm answers questions and more.`\
+`Plus: Clayton Kershaw to make more history, Nashville in pole position, Matt Strahm answers questions, and more.`\
 https://nytimes.com/athletic/6537003/2025/08/07/jen-pawol-mlb-female-umpire-ted-barrett/
 
 **Netanyahu Said Israel Wanted to Take Military Control of Gaza**\
