@@ -1,3 +1,11 @@
+**Here’s the latest.**\
+`By Tony Romm`\
+https://nytimes.com/live/2025/08/06/business/tariffs-trump-trade/heres-the-latest
+
+**Live Updates: U.S. Tariffs To Take Effect, a New Step in Trump’s Trade War**\
+`Few major trading partners have been spared the import taxes, which have already disrupted supply chains and are expected to drive up prices for Americans.`\
+https://nytimes.com/live/2025/08/06/business/tariffs-trump-trade
+
 **Mindful of painful history, Red Sox make Roman Anthony the one who didn’t get away**\
 `Craig Breslow had high praise for Anthony’s impact on one of the more exciting Red Sox teams in the past few years.`\
 https://nytimes.com/athletic/6539635/2025/08/06/red-sox-roman-anthony-contract/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6539464/2025/08/06/dodgers-shohei-ohtani-max-muncy-
 **NASA Is Getting Fired Up About a Nuclear Reactor on the Moon**\
 `Placing an atomic energy source on the lunar surface is “not science fiction,” experts say, but does pose technical challenges.`\
 https://nytimes.com/2025/08/06/science/nasa-nuclear-reactor-moon.html
-
-**Eddie Palmieri’s 13 Essential Songs and Albums**\
-`A native son of the Bronx, Palmieri was a crucial innovator in New York’s Afro-Caribbean music history. The pianist, composer and bandleader has died at 88.`\
-https://nytimes.com/2025/08/06/arts/music/eddie-palmieri-songs-albums.html
-
-**United Airlines Halts U.S. Flights Because of a System Outage**\
-`The airline said it expected additional flight delays through Wednesday night “as we work through the issue.”`\
-https://nytimes.com/2025/08/06/business/united-airlines-system-outage.html
 

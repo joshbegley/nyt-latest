@@ -1,3 +1,11 @@
+**Here’s the latest.**\
+`By Tony Romm`\
+https://nytimes.com/live/2025/08/06/business/tariffs-trump-trade/heres-the-latest
+
+**Live Updates: U.S. Tariffs To Take Effect, a New Step in Trump’s Trade War**\
+`Few major trading partners have been spared the import taxes, which have already disrupted supply chains and are expected to drive up prices for Americans.`\
+https://nytimes.com/live/2025/08/06/business/tariffs-trump-trade
+
 **Mindful of painful history, Red Sox make Roman Anthony the one who didn’t get away**\
 `Craig Breslow had high praise for Anthony’s impact on one of the more exciting Red Sox teams in the past few years.`\
 https://nytimes.com/athletic/6539635/2025/08/06/red-sox-roman-anthony-contract/
