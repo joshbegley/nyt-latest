@@ -1,3 +1,15 @@
+**Caleb Williams, Colston Loveland among Bears to watch in practice, game vs. Dolphins**\
+`With the Dolphins coming to town for a joint practice and preseason game, which Bears will be under the spotlight?`\
+https://nytimes.com/athletic/6541009/2025/08/07/bears-dolphins-caleb-williams-players-to-watch/
+
+**As Miles of Forests Burn and Wildfires Spread, Canada Brings In the Military**\
+`Amid thousands of evacuations and the spread of smoke to the United States, the Canadian armed forces and the Coast Guard were summoned to help battle the blazes.`\
+https://nytimes.com/2025/08/07/world/canada/wildfires-evacuations-military.html
+
+**2 Charged With Stealing Home of Dying Woman, in a First Under New Law**\
+`The New York State law seeks to make it easier to prosecute deed theft. The woman, who lived in Queens, had been in hospice care with dementia.`\
+https://nytimes.com/2025/08/07/nyregion/new-york-deed-theft.html
+
 **How Your Phone Gets the Weather**\
 `The more weather observations meteorologists can rely on, the more precise their forecasts will be. Here's what goes into an accurate forecast.`\
 https://nytimes.com/interactive/2025/08/07/weather/weather-app-phone-accuracy.html
