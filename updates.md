@@ -1,3 +1,15 @@
+**South Africa’s Equity Laws, Reviled by Trump, Complicate Tariff Talks**\
+`Slapped with a steep tariff, South African officials hope for a deal, but some worry the U.S. may insist that it roll back measures that redress the damage of apartheid.`\
+https://nytimes.com/2025/08/07/world/africa/south-africa-tariffs-racial-equity-laws.html
+
+**What to See in N.Y.C. Galleries in July**\
+`This week in Newly Reviewed, Jillian Steinhauer covers Agnieszka Kurant’s unnerving technology, a group show that nods to history, and Marian Spore Bush’s otherworldly paintings.`\
+https://nytimes.com/2025/08/07/arts/what-to-see-in-nyc-galleries-in-july.html
+
+**2 Dead After Utility Helicopter Crashes in Mississippi River**\
+`The utility helicopter was working on a power line when it became entangled, causing it to crash onto a barge below.`\
+https://nytimes.com/video/us/100000010329594/helicopter-crash-barge-missouri-mississippi-river.html
+
 **Trump Taps Top Economic Adviser to Join the Fed’s Board of Governors**\
 `If confirmed, Stephen Miran, the current chair of the Council of Economic Advisers, would temporarily fill a position left vacant by Adriana Kugler, who is stepping down early.`\
 https://nytimes.com/2025/08/07/us/politics/trump-federal-reserve-stephen-miran.html
