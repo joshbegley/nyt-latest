@@ -1,3 +1,11 @@
+**Trump Administration Forces Out F.B.I. Officials**\
+`Brian Driscoll, who was the acting director in the early days of the administration, was among those being told to leave by Friday.`\
+https://nytimes.com/2025/08/07/us/politics/trump-fbi.html
+
+**Cornyn Says F.B.I. Will Help Find Texas Lawmakers Who Fled State**\
+`The senator said the federal agency had agreed to help locate Democratic state lawmakers who left the state to try to block a vote on new congressional district maps.`\
+https://nytimes.com/2025/08/07/us/politics/texas-redistricting-cornyn-fbi.html
+
 **Dean Cain, Who Played Superman, Says He Is Joining ICE**\
 `The actor told Fox News he will sign up as an immigration officer, as the Trump administration recruits more personnel to staff its deportation campaign.`\
 https://nytimes.com/2025/08/07/us/dean-cain-superman-ice.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6537093/2025/08/07/rodrigo-de-paul-inter-miami-arge
 **Skydance Takes Over Paramount, and a New Era Begins**\
 `The merger catapults new power players to the top of Hollywood and ends a tortuous process that has lasted well over a year.`\
 https://nytimes.com/2025/08/07/business/media/skydance-paramount-merger.html
-
-**Ten Colts with most to gain this preseason: Can Anthony Richardson prove he should be QB1?**\
-`Just because the games don't count doesn't mean they're meaningless. Some Colts have a lot riding on how they perform in the next few weeks.`\
-https://nytimes.com/athletic/6539218/2025/08/07/colts-preseason-anthony-richardson-juju-brents/
-
-**Listen to All Our Episodes of ‘The Retrievals’**\
-`“A taut medical drama” that may leave your “heart racing.”`\
-https://nytimes.com/2025/08/07/podcasts/c-sections-pain-retrievals-newsletter-series.html
 
