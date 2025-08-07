@@ -1,3 +1,7 @@
+**Military Raised Water Level of River in Ohio for JD Vance’s Family Boating Trip**\
+`The Secret Service said the boats the agency uses for security are usually motorized and need deeper waters to operate.`\
+https://nytimes.com/2025/08/07/us/politics/secret-service-vance-boating.html
+
 **Disney Settles Wrongful Termination Suit Embraced by Conservatives**\
 `Gina Carano sued Disney after it dropped her from “The Mandalorian” for posting conspiracy theories and right-wing views on social media.`\
 https://nytimes.com/2025/08/07/business/media/disney-gina-carano-mandalorian-suit.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/07/world/canada/wildfires-evacuations-military.html
 **2 Charged With Stealing Home of Dying Woman, in a First Under New Law**\
 `The New York State law seeks to make it easier to prosecute deed theft. The woman, who lived in Queens, had been in hospice care with dementia.`\
 https://nytimes.com/2025/08/07/nyregion/new-york-deed-theft.html
-
-**How Your Phone Gets the Weather**\
-`The more weather observations meteorologists can rely on, the more precise their forecasts will be. Here's what goes into an accurate forecast.`\
-https://nytimes.com/interactive/2025/08/07/weather/weather-app-phone-accuracy.html
 

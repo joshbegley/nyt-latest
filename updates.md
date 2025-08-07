@@ -1,3 +1,7 @@
+**Disney Settles Wrongful Termination Suit Embraced by Conservatives**\
+`Gina Carano sued Disney after it dropped her from “The Mandalorian” for posting conspiracy theories and right-wing views on social media.`\
+https://nytimes.com/2025/08/07/business/media/disney-gina-carano-mandalorian-suit.html
+
 **Sliders: Jen Pawol's perseverance, support network have her ready to make MLB umpiring history**\
 `Plus: Clayton Kershaw to make more history, Nashville in pole position, Matt Strahm answers questions, and more.`\
 https://nytimes.com/athletic/6537003/2025/08/07/jen-pawol-mlb-female-umpire-ted-barrett/
