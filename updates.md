@@ -1,3 +1,7 @@
+**Trump’s Redistricting Campaign Tests His Power in the States**\
+`The effort by President Trump and his allies is the latest example of them trying to rewrite the rules to squeeze out every possible political advantage.`\
+https://nytimes.com/2025/08/06/us/politics/trump-republicans-states-redistricting.html
+
 **Trump Administration Begins to Strip Federal Workers of Union Protections**\
 `The Department of Veterans Affairs appeared to be the first agency to begin terminating union contracts, affecting more than 400,000 workers.`\
 https://nytimes.com/2025/08/06/us/politics/trump-federal-workers-unions.html

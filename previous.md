@@ -1,3 +1,7 @@
+**Trump’s Redistricting Campaign Tests His Power in the States**\
+`The effort by President Trump and his allies is the latest example of them trying to rewrite the rules to squeeze out every possible political advantage.`\
+https://nytimes.com/2025/08/06/us/politics/trump-republicans-states-redistricting.html
+
 **Huckabee Says U.S.-Backed Aid Sites in Gaza Will ‘Scale Up’**\
 `The Gaza Humanitarian Foundation will soon operate 16 distribution sites instead of four, said Mike Huckabee, the United States ambassador to Israel.`\
 https://nytimes.com/2025/08/06/world/middleeast/huckabee-gaza-aid-ghf.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/06/us/politics/trump-federal-workers-unions.html
 **Giants takeaways: Ryan Walker gets there inch by inch, more bad luck for Jerar Encarnacion**\
 `Walker remains in pursuit of last season's dominance, Patrick Bailey's bat is finally heating up and other post-trade deadline developments.`\
 https://nytimes.com/athletic/6539333/2025/08/06/giants-ryan-walker-jerar-encarnacion-takeaways/
-
-**Trump’s Tariff Gamble Puts America’s Ties With India at Risk**\
-`As the president pursues his goals on Russia and trade, America’s relationship with an important partner in Asia could end up as collateral damage.`\
-https://nytimes.com/2025/08/06/world/asia/trump-india-tariffs.html
 
