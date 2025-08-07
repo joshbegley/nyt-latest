@@ -1,3 +1,7 @@
+**Trump Taps Top Economic Adviser to Join the Fed’s Board of Governors**\
+`If confirmed, Stephen Miran, the current chair of the Council of Economic Advisers, would temporarily fill a position left vacant by Adriana Kugler, who is stepping down early.`\
+https://nytimes.com/2025/08/07/us/politics/trump-federal-reserve-stephen-miran.html
+
 **Some safe-haven assets have soared against the U.S. dollar.**\
 `By Christine Zhang`\
 https://nytimes.com/live/2025/08/06/business/tariffs-trump-trade/some-safe-haven-assets-have-soared-against-the-us-dollar

@@ -1,3 +1,7 @@
+**Trump Taps Top Economic Adviser to Join the Fed’s Board of Governors**\
+`If confirmed, Stephen Miran, the current chair of the Council of Economic Advisers, would temporarily fill a position left vacant by Adriana Kugler, who is stepping down early.`\
+https://nytimes.com/2025/08/07/us/politics/trump-federal-reserve-stephen-miran.html
+
 **Some safe-haven assets have soared against the U.S. dollar.**\
 `By Christine Zhang`\
 https://nytimes.com/live/2025/08/06/business/tariffs-trump-trade/some-safe-haven-assets-have-soared-against-the-us-dollar
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/07/us/alligator-alcatraz-florida-construction.html
 **Chelsea defender Levi Colwill undergoes surgery on torn ACL suffered in training**\
 `The 22-year-old was absent from the trophy celebrations at Stamford Bridge on Wednesday.`\
 https://nytimes.com/athletic/6540936/2025/08/07/levi-colwill-chelsea-acl-injury/
-
-**What's working and what needs improvement in the sports card industry, according to top leaders**\
-`We asked eight industry leaders for their current assessment of the sports card business — here's what they said`\
-https://nytimes.com/athletic/6540863/2025/08/07/sports-card-industry-trust-growth/
 
