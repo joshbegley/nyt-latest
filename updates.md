@@ -1,3 +1,11 @@
+**Frank: Spurs 'need to look into' Maddison replacement, Solanke available 'quite soon'**\
+`Tottenham lost 4-0 to Bayern Munich on Thursday amid multiple injuries to the first team.`\
+https://nytimes.com/athletic/6541020/2025/08/07/thomas-frank-tottenham-injury-update-maddison-solanke/
+
+**India Bought Russian Oil. Now It’s a Trade-War Weapon.**\
+`If Narendra Modi surrendered to President Trump, how tough would it be to wean his country from Russia’s discounted supply?`\
+https://nytimes.com/2025/08/07/business/oil-india-russia-trump.html
+
 **South Africa’s Equity Laws, Reviled by Trump, Complicate Tariff Talks**\
 `Slapped with a steep tariff, South African officials hope for a deal, but some worry the U.S. may insist that it roll back measures that redress the damage of apartheid.`\
 https://nytimes.com/2025/08/07/world/africa/south-africa-tariffs-racial-equity-laws.html

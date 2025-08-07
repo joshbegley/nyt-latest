@@ -1,3 +1,11 @@
+**Frank: Spurs 'need to look into' Maddison replacement, Solanke available 'quite soon'**\
+`Tottenham lost 4-0 to Bayern Munich on Thursday amid multiple injuries to the first team.`\
+https://nytimes.com/athletic/6541020/2025/08/07/thomas-frank-tottenham-injury-update-maddison-solanke/
+
+**India Bought Russian Oil. Now It’s a Trade-War Weapon.**\
+`If Narendra Modi surrendered to President Trump, how tough would it be to wean his country from Russia’s discounted supply?`\
+https://nytimes.com/2025/08/07/business/oil-india-russia-trump.html
+
 **South Africa’s Equity Laws, Reviled by Trump, Complicate Tariff Talks**\
 `Slapped with a steep tariff, South African officials hope for a deal, but some worry the U.S. may insist that it roll back measures that redress the damage of apartheid.`\
 https://nytimes.com/2025/08/07/world/africa/south-africa-tariffs-racial-equity-laws.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/08/07/us/neo-nazi-leader-baltimore-attack-sentence.html
 **The Triumphant Rise of the Steakbar**\
 `Think of these three New York City spots as steakhouses without all pomp.`\
 https://nytimes.com/2025/08/07/dining/the-triumphant-rise-of-the-steakbar.html
-
-**Aryna Sabalenka adds Max Mirnyi to coaching team for Cincinnati and U.S. Opens**\
-`Sabalenka has hired her compatriot on a temporary basis as she seeks to defend her Cincinnati and U.S. Open titles.`\
-https://nytimes.com/athletic/6540862/2025/08/07/tennis-aryna-sabalenka-coach-max-mirnyi/
-
-**California Supreme Court Requires New Review of Rooftop Solar Policy**\
-`The court revived a legal challenge to a 2022 regulation that significantly reduced the compensation utilities paid to owners of home solar systems for the electricity they sent to the grid.`\
-https://nytimes.com/2025/08/07/business/energy-environment/california-supreme-court-rooftop-solar.html
 

@@ -1,3 +1,15 @@
+**Cuomo Tries to Reinvent Himself Online, and Critics Say, ‘OK, Boomer’**\
+`Mr. Cuomo’s decisive loss to Zohran Mamdani in the New York City mayoral primary has led to a campaign rebranding that includes a fresh social media persona.`\
+https://nytimes.com/2025/08/07/nyregion/cuomo-social-media-x.html
+
+**Texas Tech lands Georgia native LaDamion Guyton, No. 2 player in Class of 2027**\
+`Pulling Guyton, a Savannah native, out of Georgia is another example of Texas Tech’s growing recruiting prowess.`\
+https://nytimes.com/athletic/6541026/2025/08/07/texas-tech-recruiting-ladamion-guyton-2027/
+
+**WNBA sex toy incidents may be linked to cryptocurrency group's money scheme**\
+`The group's coin was created the day before the first incident, and as of Thursday, its worth had nearly tripled in one week.`\
+https://nytimes.com/athletic/6541093/2025/08/07/wnba-sex-toy-incidents-cryptocurrency-group-scheme/
+
 **Frank: Spurs 'need to look into' Maddison replacement, Solanke available 'quite soon'**\
 `Tottenham lost 4-0 to Bayern Munich on Thursday amid multiple injuries to the first team.`\
 https://nytimes.com/athletic/6541020/2025/08/07/thomas-frank-tottenham-injury-update-maddison-solanke/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/08/07/us/politics/trump-federal-reserve-stephen-miran.h
 **Some safe-haven assets have soared against the U.S. dollar.**\
 `By Christine Zhang`\
 https://nytimes.com/live/2025/08/06/business/tariffs-trump-trade/some-safe-haven-assets-have-soared-against-the-us-dollar
-
-**Antiquities Returned to Europe Include 16 Seized From the Met**\
-`New York investigators said they repatriated looted objects to Italy, Spain and Hungary.`\
-https://nytimes.com/2025/08/07/arts/design/met-antiquities-seizure-italy-krater.html
-
-**Neo-Nazi Leader Gets 20 Years in Plot to Attack Baltimore’s Power Grid**\
-`Brandon C. Russell, 30, of Orlando., Fla., plotted with a Maryland woman to attack electrical substations in what prosecutors described as a plan motivated by their white supremacist beliefs.`\
-https://nytimes.com/2025/08/07/us/neo-nazi-leader-baltimore-attack-sentence.html
-
-**The Triumphant Rise of the Steakbar**\
-`Think of these three New York City spots as steakhouses without all pomp.`\
-https://nytimes.com/2025/08/07/dining/the-triumphant-rise-of-the-steakbar.html
 
