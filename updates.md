@@ -1,3 +1,15 @@
+**Dele Alli to leave Como but plans to continue playing**\
+`Dele, 29, joined Como as a free agent in January after his contract at Everton expired in June 2024.`\
+https://nytimes.com/athletic/6531724/2025/08/07/dele-alli-to-leave-como-but-plans-to-continue-playing/
+
+**Ballon d’Or 2025 shortlist: Yamal, Raphinha, Dembele among nominees**\
+`The winners will be announced in Paris on September 22.`\
+https://nytimes.com/athletic/6539931/2025/08/07/ballon-dor-2025-shortlist/
+
+**Trump Delayed a Medicare Change After Health Companies’ Donations**\
+`The president posted talking points provided by one firm that donated millions, and his administration delayed a change on coverage of pricey bandages that could have hurt the company.`\
+https://nytimes.com/2025/08/07/us/politics/trump-medicare-bandages-donors.html
+
 **Ballon d’Or 2025 shortlist: Bellingham, Palmer, Rice, Kane among nominees**\
 `The winners will be announced in Paris on September 22.`\
 https://nytimes.com/athletic/6539931/2025/08/07/ballon-dor-2025-shortlist/
