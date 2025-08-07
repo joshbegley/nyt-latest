@@ -1,3 +1,11 @@
+**Thousands Ordered to Flee Fast-Moving Wildfire in Ventura County**\
+`The Canyon Fire was initially reported at about 30 acres but had rapidly grown to 1,050 acres in a few hours on Thursday, officials said.`\
+https://nytimes.com/2025/08/07/us/canyon-fire-ventura-county.html
+
+**Anthony Richardson exits Colts' preseason opener with injury**\
+`The Colts QB has dealt with injury issues throughout his career. `\
+https://nytimes.com/athletic/6541429/2025/08/07/colts-anthony-richardson-injury/
+
 **49ers’ Brock Purdy, Ricky Pearsall hit stride after rough start vs. Broncos**\
 `The two standouts for the 49ers in Thursday's joint practice: Nick Bosa on defense and rookie receiver Jordan Watkins on offense.`\
 https://nytimes.com/athletic/6541346/2025/08/07/49ers-brock-purdy-ricky-pearsall-joint-practice/

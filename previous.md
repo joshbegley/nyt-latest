@@ -1,3 +1,11 @@
+**Thousands Ordered to Flee Fast-Moving Wildfire in Ventura County**\
+`The Canyon Fire was initially reported at about 30 acres but had rapidly grown to 1,050 acres in a few hours on Thursday, officials said.`\
+https://nytimes.com/2025/08/07/us/canyon-fire-ventura-county.html
+
+**Anthony Richardson exits Colts' preseason opener with injury**\
+`The Colts QB has dealt with injury issues throughout his career. `\
+https://nytimes.com/athletic/6541429/2025/08/07/colts-anthony-richardson-injury/
+
 **49ers’ Brock Purdy, Ricky Pearsall hit stride after rough start vs. Broncos**\
 `The two standouts for the 49ers in Thursday's joint practice: Nick Bosa on defense and rookie receiver Jordan Watkins on offense.`\
 https://nytimes.com/athletic/6541346/2025/08/07/49ers-brock-purdy-ricky-pearsall-joint-practice/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6541282/2025/08/07/micah-parsons-cowboys-contract-d
 **Military Raised Water Level of River in Ohio for JD Vance’s Family Boating Trip**\
 `The Secret Service said the boats the agency uses for security are usually motorized and need deeper waters to operate.`\
 https://nytimes.com/2025/08/07/us/politics/secret-service-vance-boating.html
-
-**Disney Settles Wrongful Termination Suit Embraced by Conservatives**\
-`Gina Carano sued Disney after it dropped her from “The Mandalorian” for posting conspiracy theories and right-wing views on social media.`\
-https://nytimes.com/2025/08/07/business/media/disney-gina-carano-mandalorian-suit.html
-
-**Sliders: Jen Pawol's perseverance, support network have her ready to make MLB umpiring history**\
-`Plus: Clayton Kershaw to make more history, Nashville in pole position, Matt Strahm answers questions and more.`\
-https://nytimes.com/athletic/6537003/2025/08/07/jen-pawol-mlb-female-umpire-ted-barrett/
 
