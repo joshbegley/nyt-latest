@@ -1,3 +1,15 @@
+**Arsenal season betting preview: How likely are Gunners to end title drought?**\
+`Arsenal have finished second in the Premier League for the past three seasons. Can the Gunners make the leap to top the table?`\
+https://nytimes.com/athletic/6538430/2025/08/07/arsenal-season-betting-preview-odds/
+
+**A Prosecutor Took on MS-13 and Violent Crime. Trump Fired Her Anyway.**\
+`Desiree Grace was a casualty of the struggle between the White House and district judges over who would lead the U.S. attorney’s office in New Jersey.`\
+https://nytimes.com/2025/08/07/nyregion/desiree-grace-new-jersey-us-attorney.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/08/07/crosswords/spelling-bee-forum.html
+
 **Seth Meyers Won’t Be Distracted by Trump Fiddling on the Roof**\
 `Meyers said that if he saw Trump on his roof, he’d assume the president “was pulling a reverse Santa Claus. — you know, going house to house taking toys away from kids.”`\
 https://nytimes.com/2025/08/07/arts/television/seth-meyers-trump-roof.html
@@ -25,16 +37,4 @@ https://nytimes.com/issue/todayspaper/2025/08/07/todays-new-york-times
 **I’ve Seen How Russia Is Torturing Prisoners of War**\
 `Prosecuting torture is a legal obligation, not a diplomatic nicety or something that can be negotiated.`\
 https://nytimes.com/2025/08/07/opinion/russia-ukraine-torture.html
-
-**China’s Exports Surged Again in July, but Not to America**\
-`China is shipping more goods to Southeast Asia and other regions that often re-export them to the United States. China still sells three times as much to the United States as it buys.`\
-https://nytimes.com/2025/08/07/business/economy/china-tariffs-exports-imports.html
-
-**Thursday Briefing: Trump Threatens to Double India’s Tariffs**\
-`Also, a possible Russia-Ukraine-U.S. summit`\
-https://nytimes.com/2025/08/07/briefing/india-trump-tariffs-russia-ukraine-china-artificial-intelligence.html
-
-**Dominik Szoboszlai and the new battle for Liverpool's No 8 role**\
-`The arrival of Wirtz will see increased competition for places in midfield - could Szoboszlai be the man for the No 8 role?`\
-https://nytimes.com/athletic/6538207/2025/08/07/szoboszlai-liverpool-no-8/
 

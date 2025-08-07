@@ -1,3 +1,15 @@
+**Arsenal season betting preview: How likely are Gunners to end title drought?**\
+`Arsenal have finished second in the Premier League for the past three seasons. Can the Gunners make the leap to top the table?`\
+https://nytimes.com/athletic/6538430/2025/08/07/arsenal-season-betting-preview-odds/
+
+**A Prosecutor Took on MS-13 and Violent Crime. Trump Fired Her Anyway.**\
+`Desiree Grace was a casualty of the struggle between the White House and district judges over who would lead the U.S. attorney’s office in New Jersey.`\
+https://nytimes.com/2025/08/07/nyregion/desiree-grace-new-jersey-us-attorney.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/08/07/crosswords/spelling-bee-forum.html
+
 **Seth Meyers Won’t Be Distracted by Trump Fiddling on the Roof**\
 `Meyers said that if he saw Trump on his roof, he’d assume the president “was pulling a reverse Santa Claus. — you know, going house to house taking toys away from kids.”`\
 https://nytimes.com/2025/08/07/arts/television/seth-meyers-trump-roof.html
