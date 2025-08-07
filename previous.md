@@ -1,40 +1,40 @@
-**Why a Teen Bullying Case in China Set Off Protests and a Crackdown**\
-`Residents in a city in southwestern China protested what they saw as official indifference in the attack on a girl. Police repression and censorship fueled the outrage.`\
-https://nytimes.com/2025/08/07/world/asia/china-bullying-protests.html
+**Fantasy football 2025 dynasty sleepers, from Jameson Williams to Joshua Palmer**\
+`Jeff Haverlack details why Jameson Williams, Chuba Hubbard, Roman Wilson and others are dynasty sleepers in 2025, and beyond. `\
+https://nytimes.com/athletic/6538352/2025/08/07/fantasy-football-dynasty-sleepers-jameson-williams/
 
-**Al Hilal agree deal with Liverpool for Nunez, striker set for medical**\
-`Nunez is set to undergo a medical with the Saudi Pro League club.`\
-https://nytimes.com/athletic/6538021/2025/08/07/darwin-nunez-al-hilal-liverpool-agreement/
+**The Climate of Fear Has Reached Into Unexpected Places**\
+`Judges are under threat. This is no way to run a country.`\
+https://nytimes.com/2025/08/07/opinion/judges-courts-threats-fear.html
 
-**Apple C.E.O. Gifts Trump Gold**\
-`Tim Cook presented a glass plaque on a gold base to President Trump and pledged a $100 billion investment in the U.S. as Trump threatened a 100 percent tariff on semiconductors.`\
-https://nytimes.com/video/business/economy/100000010328133/trump-apple-investment.html
+**Trump’s Trade Representative: Why We Remade the Global Order**\
+`Tariffs were an urgent necessity. They’re already working.`\
+https://nytimes.com/2025/08/07/opinion/trump-trade-tariffs.html
 
-**Philippine Senate Shelves Impeachment of Vice President Sara Duterte**\
-`The Senate set aside the trial of Sara Duterte, a rival of President Ferdinand Marcos Jr. She and her party won more seats than expected in midterm elections in May.`\
-https://nytimes.com/2025/08/07/world/asia/philippines-vice-president-impeachment.html
+**The Patriots are honoring Tom Brady with a statue. Will Belichick, Kraft get similar treatment?**\
+`The Patriots are set to unveil the QB's 12-foot statue on Friday night. But how can they also commemorate their legendary coach and owner?`\
+https://nytimes.com/athletic/6536520/2025/08/07/tom-brady-statue-patriots-bill-belichick-robert-kraft/
 
-**Firefighters in France Battle Largest Blaze in Decades**\
-`Prime Minister François Bayrou described the nearly 40,000 acre fire, which has killed one person, as a “catastrophe on an unprecedented scale.”`\
-https://nytimes.com/2025/08/07/world/europe/france-fire-aude.html
+**How a Self-Described Wallflower Came to Lead the Texas Democrats’ Walkout**\
+`State Representative Gene Wu represents a racially diverse corner of Houston when he’s not defending juveniles in court. The battle over redistricting has pushed him into the national spotlight.`\
+https://nytimes.com/2025/08/07/us/politics/texas-redistricting-gene-wu.html
 
-**Japan’s Auto Giants Are Expecting Pain Despite Trump Trade Deal**\
-`Toyota, Honda and Nissan forecast big hits to their profits despite a trade deal that cut auto levies to 15 percent. The reduced rate has yet to be implemented.`\
-https://nytimes.com/2025/08/07/business/tariffs-japan-cars.html
+**When It Was ‘Time to Get Out of Florida,’ She Went for an Appalachian Vibe in North Carolina**\
+`A mother and her son searched near Asheville, N.C., for a quiet place with nice views and an easy commute to her new job.`\
+https://nytimes.com/interactive/2025/08/07/realestate/north-carolina-asheville-homes-sale.html
 
-**Arsenal season betting preview: How likely are Gunners to end title drought?**\
-`Arsenal have finished second in the Premier League for the past three seasons. Can the Gunners make the leap to top the table?`\
-https://nytimes.com/athletic/6538430/2025/08/07/arsenal-season-betting-preview-odds/
+**Silicon Valley Wants to Optimize Your Children’s Genes**\
+`For as little as $2,500, you can choose your future baby. Should you?`\
+https://nytimes.com/2025/08/07/opinion/genetics-children-noor-siddiqui.html
 
-**A Prosecutor Took on MS-13 and Violent Crime. Trump Fired Her Anyway.**\
-`Desiree Grace was a casualty of the struggle between the White House and district judges over who would lead the U.S. attorney’s office in New Jersey.`\
-https://nytimes.com/2025/08/07/nyregion/desiree-grace-new-jersey-us-attorney.html
+**D.N.C. Pledges $1.5 Million to New Jersey Governor’s Race**\
+`The cash infusion is a rare move by the Democratic National Committee in deep-blue New Jersey, where Representative Mikie Sherrill narrowly leads her G.O.P. opponent.`\
+https://nytimes.com/2025/08/07/us/politics/new-jersey-governor-democrats.html
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2025/08/07/crosswords/spelling-bee-forum.html
+**Trump’s Deals With Top Colleges May Give Rich Applicants a Bigger Edge**\
+`The public release of data on test scores and race could wind up making wealth even more influential in admissions.`\
+https://nytimes.com/2025/08/07/upshot/trump-college-admissions-race-wealth.html
 
-**Seth Meyers Won’t Be Distracted by Trump Fiddling on the Roof**\
-`Meyers said that if he saw Trump on his roof, he’d assume the president “was pulling a reverse Santa Claus. — you know, going house to house taking toys away from kids.”`\
-https://nytimes.com/2025/08/07/arts/television/seth-meyers-trump-roof.html
+**‘Fleetwood Mac’ at 50: A Marvel of Serendipity and Perfectionism**\
+`The album that turned the band into superstars is getting an anniversary rerelease that shows why it still gleams.`\
+https://nytimes.com/2025/08/07/arts/music/fleetwood-mac-50th-anniversary.html
 
