@@ -1,3 +1,11 @@
+**Chelsea defender Levi Colwill undergoes surgery on torn ACL suffered in training**\
+`The 22-year-old was absent from the trophy celebrations at Stamford Bridge on Wednesday.`\
+https://nytimes.com/athletic/6540936/2025/08/07/levi-colwill-chelsea-acl-injury/
+
+**What's working and what needs improvement in the sports card industry, according to top leaders**\
+`We asked eight industry leaders for their current assessment of the sports card business — here's what they said`\
+https://nytimes.com/athletic/6540863/2025/08/07/sports-card-industry-trust-growth/
+
 **Cam Heyward not participating in team drills amid contract hold-in**\
 `The 36-year-old has suited up for the first 12 practices and participated in individual drills, but has not taken part in team drills.`\
 https://nytimes.com/athletic/6540832/2025/08/07/steelers-cam-heyward-contract-nfl-training-camp/
