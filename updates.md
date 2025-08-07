@@ -1,3 +1,11 @@
+**Neo-Nazi Leader Gets 20 Years in Plot to Attack Baltimore’s Power Grid**\
+`Brandon C. Russell, 30, of Orlando., Fla., plotted with a Maryland woman to attack electrical substations in what prosecutors described as a plan motivated by their white supremacist beliefs.`\
+https://nytimes.com/2025/08/07/us/neo-nazi-leader-baltimore-attack-sentence.html
+
+**The Triumphant Rise of the Steakbar**\
+`Think of these three New York City spots as steakhouses without all pomp.`\
+https://nytimes.com/2025/08/07/dining/the-triumphant-rise-of-the-steakbar.html
+
 **Aryna Sabalenka adds Max Mirnyi to coaching team for Cincinnati and U.S. Opens**\
 `Sabalenka has hired her compatriot on a temporary basis as she seeks to defend her Cincinnati and U.S. Open titles.`\
 https://nytimes.com/athletic/6540862/2025/08/07/tennis-aryna-sabalenka-coach-max-mirnyi/
