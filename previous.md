@@ -1,3 +1,15 @@
+**Ballon d’Or 2025 shortlist: Bellingham, Palmer, Rice, Kane among nominees**\
+`The winners will be announced in Paris on September 22.`\
+https://nytimes.com/athletic/6539931/2025/08/07/ballon-dor-2025-shortlist/
+
+**Man Utd's new £200m attack: How Benjamin Sesko fits with Matheus Cunha and Bryan Mbeumo**\
+`United have agreed a deal for the RB Leipzig striker - this is how he'll dovetail with his fellow new forwards in Ruben Amorim's team`\
+https://nytimes.com/athletic/6539772/2025/08/07/manchester-united-sesko-cunha-mbeumo-plan/
+
+**Tottenham interested in Como midfielder Paz**\
+`Spurs are considering a move for the 20-year-old as they try to add more creativity to their squad before the start of the season.`\
+https://nytimes.com/athletic/6540216/2025/08/07/tottenham-como-nico-paz-interest/
+
 **Cambodia Nominates Trump for Nobel Peace Prize**\
 `The gesture comes after a U.S.-brokered cease-fire with Thailand, and a trade deal with Washington that blunted a threat of heavy tariffs.`\
 https://nytimes.com/2025/08/07/us/politics/cambodia-nominates-trump-for-nobel-peace-prize.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/08/07/business/lyten-northvolt-ev-batteries.html
 **Sesko: Manchester United reach agreement with RB Leipzig for striker**\
 `A deal consisting of an initial €76.5million plus €8.5m in add-ons has been accepted.`\
 https://nytimes.com/athletic/6538359/2025/08/07/benjamin-sesko-manchester-united-transfer/
-
-**What Will Be the Next Big Media Deal?**\
-`As Skydance completes its acquisition of Paramount, the stage is set for more deal making in the crowded streaming wars.`\
-https://nytimes.com/2025/08/07/business/dealbook/skydance-paramount-media-deal.html
-
-**The Windup: A long-overdue MLB first**\
-`The Windup Newsletter ⚾ | This is The Athletic’s MLB newsletter.`\
-https://nytimes.com/athletic/6540168/2025/08/07/a-long-overdue-mlb-first-plus-red-sox-remain-aggressive/
-
-**Trump Administration Continues Purge of F.B.I. Officials**\
-`Brian Driscoll, who was the acting director in the early days of the administration, was among those being told to leave by Friday.`\
-https://nytimes.com/2025/08/07/us/politics/trump-fbi.html
 
