@@ -1,3 +1,11 @@
+**Cuomo Tells Business Leaders He Doesn’t ‘Personally’ Want to Fight Trump**\
+`Former Gov. Andrew M. Cuomo’s remarks about President Trump came just before The Times’s disclosure that he had spoken to Mr. Trump about the race.`\
+https://nytimes.com/2025/08/07/nyregion/cuomo-trump-mamdani-mayor.html
+
+**Bonmati? Russo? Kelly? – Our women's Ballon d'Or picks**\
+`The 30-woman nominee list for the Ballon d'Or is out. Who will be crowned the world's best player?`\
+https://nytimes.com/athletic/6540276/2025/08/07/womens-ballon-dor-nominations-bonmati-russo-kelly/
+
 **‘South Park’ Finds New Relevance Skewering the Trump Era**\
 `After the White House attacked the season premiere for lampooning the president, some of the Trump allies who were mocked in the second episode tried to show they could take a joke.`\
 https://nytimes.com/2025/08/07/arts/television/south-park-episode-two-ice.html
