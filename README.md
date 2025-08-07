@@ -1,3 +1,7 @@
+**Weather Service Is Hiring Hundreds After Sweeping Cuts Earlier This Year**\
+`The federal forecasting agency plans to restore some of its losses from this year’s Trump administration cuts.`\
+https://nytimes.com/2025/08/07/weather/nws-hiring-doge-cuts.html
+
 **Trump Order Clears Way for Crypto and Private Equity in 401(k)s**\
 `The executive order is intended to give investors more options, but experts say employers will tread carefully before adding alternative assets.`\
 https://nytimes.com/2025/08/07/business/trump-401k-crypto.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/07/science/nicholas-clapp-dead.html
 **Big-Game Hunter, Eying His Next Trophy, Is Killed by Buffalo During Safari**\
 `Asher Watkins, a real estate executive from Texas, was tracking a Cape buffalo in South Africa when he was attacked, a safari company said.`\
 https://nytimes.com/2025/08/07/world/africa/big-game-hunter-killed-buffalo-safari-south-africa.html
-
-**Caleb Williams, Colston Loveland among Bears to watch in practice, game vs. Dolphins**\
-`With the Dolphins coming to town for a joint practice and preseason game, which Bears will be under the spotlight?`\
-https://nytimes.com/athletic/6541009/2025/08/07/bears-dolphins-caleb-williams-players-to-watch/
 
