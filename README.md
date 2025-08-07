@@ -1,3 +1,7 @@
+**‘Weapons’ Review: These Classmates Are Not All Right**\
+`The writer-director Zach Cregger (“Barbarian”) creates and maintains an ominous mood in this horror movie about missing children.`\
+https://nytimes.com/2025/08/07/movies/weapons-review.html
+
 **Sallie Bingham, Author at the Center of a Newspaper Drama, Dies at 88**\
 `A novelist and memoirist, she famously clashed with a brother, leading to the fall of a Kentucky publishing dynasty that her paternal grandfather established in 1918.`\
 https://nytimes.com/2025/08/07/business/media/sallie-bingham-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/07/climate/argentina-perito-moreno-glacier.html
 **Minnesota Man Charged in Attack on Lawmakers Pleads Not Guilty**\
 `Vance Boelter, the man accused of shooting two state lawmakers in June, killing one, entered the plea at a brief hearing in federal court in Minneapolis.`\
 https://nytimes.com/2025/08/07/us/minnesota-vance-boelter-plea-not-guilty.html
-
-**Britain Forces Porn Sites to Get Serious on ‘Age-Gating’**\
-`The new measures have been widely embraced, but new age-verification methods have drawn some criticism because of privacy concerns.`\
-https://nytimes.com/2025/08/07/technology/uk-porn-age-verification.html
 
