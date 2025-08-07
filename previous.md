@@ -1,3 +1,7 @@
+**Villarreal complete signing of former Arsenal midfielder Partey**\
+`Partey, 32, has signed a two year deal at the La Liga club.`\
+https://nytimes.com/athletic/6533471/2025/08/07/thomas-partey-villarreal-arsenal-transfer/
+
 **For Putin, Trump Summit Is Key to Securing Ukraine Goals**\
 `The Russian leader sees direct talks with Trump as essential to achieving his ultimate aims in Ukraine.`\
 https://nytimes.com/2025/08/07/world/europe/putin-trump-russia-ukraine-summit.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6535438/2025/08/07/matt-freese-usmnt-nycfc-my-game-
 **The Athletic's Transfer Portal 100: Who are 2025's buzziest new arrivals?**\
 `We talked to dozens of FBS coaches and staffers this summer to find out which players will make the biggest mark on their new teams.`\
 https://nytimes.com/athletic/6523271/2025/08/07/college-football-transfer-portal-rankings/
-
-**How the Eagles' position groups shape up for their preseason opener**\
-`The reigning champions will start to see how their new pieces are fitting in during the preseason opener.`\
-https://nytimes.com/athletic/6538108/2025/08/07/philadelphia-eagles-position-groups-preseason-game/
 

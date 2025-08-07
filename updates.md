@@ -1,3 +1,7 @@
+**Villarreal complete signing of former Arsenal midfielder Partey**\
+`Partey, 32, has signed a two year deal at the La Liga club.`\
+https://nytimes.com/athletic/6533471/2025/08/07/thomas-partey-villarreal-arsenal-transfer/
+
 **For Putin, Trump Summit Is Key to Securing Ukraine Goals**\
 `The Russian leader sees direct talks with Trump as essential to achieving his ultimate aims in Ukraine.`\
 https://nytimes.com/2025/08/07/world/europe/putin-trump-russia-ukraine-summit.html
