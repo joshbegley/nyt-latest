@@ -1,3 +1,7 @@
+**‘South Park’ Finds New Relevance Skewering the Trump Era**\
+`After the White House attacked the season premiere for lampooning the president, some of the Trump allies who were mocked in the second episode tried to show they could take a joke.`\
+https://nytimes.com/2025/08/07/arts/television/south-park-episode-two-ice.html
+
 **Moose Whose Lingering Closed Mountain Trail for 2 Months Is Euthanized**\
 `New York environmental conservation officials had observed a sharp decline in the animal’s health that gave it “a low likelihood of survival.”`\
 https://nytimes.com/2025/08/07/nyregion/goodman-mountain-moose-dead.html
