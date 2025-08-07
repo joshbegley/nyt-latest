@@ -1,3 +1,7 @@
+**Atlanta Braves, 'the model' in MLB, could have added payroll at trade deadline**\
+`Despite a disappointing season so far on the field, the Braves have seen a significant revenue increase this year.`\
+https://nytimes.com/athletic/6540621/2025/08/07/atlanta-braves-earnings-call-2025/
+
 **Newcastle have missed out on Sesko. Here are the strikers they should target instead**\
 `The Athletic has taken a look at five strikers Newcastle should sign after Sesko has agreed to move to Manchester United`\
 https://nytimes.com/athletic/6540367/2025/08/07/newcastle-striker-transfer-analysis/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/07/dining/easy-vegetarian-zucchini-recipes.html
 **OpenAI Aims to Stay Ahead of Rivals With New GPT-5 Technology**\
 `The A.I. start-up said its new flagship technology was faster, more accurate and less likely to make stuff up.`\
 https://nytimes.com/2025/08/07/technology/openai-chatgpt-gpt-5.html
-
-**8 New Books We Love This Week**\
-`Reading recommendations from critics and editors at The New York Times.`\
-https://nytimes.com/2025/08/07/books/review/new-book-recommendations.html
 

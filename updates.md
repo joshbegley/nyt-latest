@@ -1,3 +1,7 @@
+**Newcastle have missed out on Sesko. Here are the strikers they should target instead**\
+`The Athletic has taken a look at five strikers Newcastle should sign after Sesko has agreed to move to Manchester United`\
+https://nytimes.com/athletic/6540367/2025/08/07/newcastle-striker-transfer-analysis/
+
 **Archie Manning says grandson Arch will remain at Texas through 2026 season**\
 `Manning's revelation is largely unsurprising to those who have closely followed Arch’s recruitment and college career.`\
 https://nytimes.com/athletic/6540353/2025/08/07/arch-manning-archie-nfl-draft-texas/
