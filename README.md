@@ -1,3 +1,11 @@
+**She Survived a 9-Story Fall After a Russian Missile Hit Her Building**\
+`Veronika Osintseva’s story has captivated a war-weary Ukraine.`\
+https://nytimes.com/2025/08/07/world/europe/ukraine-russia-missile-attack-survivor.html
+
+**Venus Williams is back. Here's how to watch her at the Cincinnati Open**\
+`Venus Williams' comeback continues in the first round at the Cincinnati Open. The tournament runs Aug. 7-18.`\
+https://nytimes.com/athletic/6539299/2025/08/07/venus-williams-injury-cincinnati-open-how-to-watch/
+
 **Chelsea boss Enzo Maresca refuses to rule out Nicolas Jackson exit**\
 `Chelsea are not desperate to sell the 24-year-old this summer, but recognise that he may want to go elsewhere to be a lead striker.`\
 https://nytimes.com/athletic/6539814/2025/08/07/nicolas-jackson-transfer-chelsea-maresca-exit/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/08/07/us/politics/texas-redistricting-gene-wu.html
 **When It Was ‘Time to Get Out of Florida,’ She Went for an Appalachian Vibe in North Carolina**\
 `A mother and her son searched near Asheville, N.C., for a quiet place with nice views and an easy commute to her new job.`\
 https://nytimes.com/interactive/2025/08/07/realestate/north-carolina-asheville-homes-sale.html
-
-**Silicon Valley Wants to Optimize Your Children’s Genes**\
-`For as little as $2,500, you can choose your future baby. Should you?`\
-https://nytimes.com/2025/08/07/opinion/genetics-children-noor-siddiqui.html
-
-**D.N.C. Pledges $1.5 Million to New Jersey Governor’s Race**\
-`The cash infusion is a rare move by the Democratic National Committee in deep-blue New Jersey, where Representative Mikie Sherrill narrowly leads her G.O.P. opponent.`\
-https://nytimes.com/2025/08/07/us/politics/new-jersey-governor-democrats.html
 
