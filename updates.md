@@ -1,3 +1,11 @@
+**Ten Colts with most to gain this preseason: Can Anthony Richardson prove he should be QB1?**\
+`Just because the games don't count doesn't mean they're meaningless. Some Colts have a lot riding on how they perform in the next few weeks.`\
+https://nytimes.com/athletic/6539218/2025/08/07/colts-preseason-anthony-richardson-juju-brents/
+
+**Trump Administration Live Updates: President Seeks New Census to Exclude Illegal Migration**\
+``\
+https://nytimes.com/live/2025/08/07/us/trump-news
+
 **Listen to All Our Episodes of ‘The Retrievals’**\
 `“A taut medical drama” that may leave your “heart racing.”`\
 https://nytimes.com/2025/08/07/podcasts/c-sections-pain-retrievals-newsletter-series.html
