@@ -1,3 +1,7 @@
+**Aston Villa planning McGinn contract discussions**\
+`McGinn has attracted interest from elsewhere in the Premier League this summer, including Everton and, more recently, Newcastle United.`\
+https://nytimes.com/athletic/6540519/2025/08/07/john-mcginn-aston-villa-contract/
+
 **Salah, Dembele, Yamal? Who we think should win the men's Ballon d'Or**\
 `Another star-studded Ballon d'Or nominees list has been announced. So The Athletic’s experts made their cases for who should be victorious`\
 https://nytimes.com/athletic/6540340/2025/08/07/mens-ballon-dor-salah-dembele-yamal/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/07/us/politics/trump-schools-race-data.html
 **On Vaccines, Kennedy Has Broken Sharply With the Mainstream**\
 `While many officials and scientists embrace other parts of the secretary’s agenda, his stance on vaccines is alienating allies who fear a public health crisis.`\
 https://nytimes.com/2025/08/07/health/kennedy-vaccines-mrna-trump.html
-
-**Eleven Women, Nine Dogs, Not Much Drama (and No Guys)**\
-`These retired women in Texas have been through infertility, illness, layoffs, addiction and disappointing marriages. Now they are trying to create a utopia just for themselves.`\
-https://nytimes.com/2025/08/07/well/eleven-women-nine-dogs-not-much-drama-and-no-guys.html
 

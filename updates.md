@@ -1,3 +1,7 @@
+**Aston Villa planning McGinn contract discussions**\
+`McGinn has attracted interest from elsewhere in the Premier League this summer, including Everton and, more recently, Newcastle United.`\
+https://nytimes.com/athletic/6540519/2025/08/07/john-mcginn-aston-villa-contract/
+
 **Salah, Dembele, Yamal? Who we think should win the men's Ballon d'Or**\
 `Another star-studded Ballon d'Or nominees list has been announced. So The Athletic’s experts made their cases for who should be victorious`\
 https://nytimes.com/athletic/6540340/2025/08/07/mens-ballon-dor-salah-dembele-yamal/
