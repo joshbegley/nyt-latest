@@ -1,3 +1,7 @@
+**David Bednar shows why he should be Yankees’ new closer: 'Dawg effort'**\
+`Boone trusted Bednar with the game on the line. He should do it again the next time there's a save opportunity.`\
+https://nytimes.com/athletic/6539557/2025/08/06/ny-yankees-david-bednar-closer-situation/
+
 **Investigate in Detail**\
 `Don’t think of solving Ben Zimmer’s first solo puzzle as a futile effort. You’ve got this.`\
 https://nytimes.com/2025/08/06/crosswords/daily-puzzle-2025-08-07.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/06/arts/music/eddie-palmieri-dead.html
 **Courage terminates coach Sean Nahas’ contract ‘effective immediately’**\
 `Nahas coached the Courage in NWSL action as recently as last Saturday.`\
 https://nytimes.com/athletic/6539500/2025/08/06/north-carolina-courage-nwsl-nahas/
-
-**After a Lull, Agents Conduct a Big Immigration Raid in L.A.**\
-`A rented Penske truck was used to ferry agents to the Home Depot where the raid was conducted, days after an appeals court upheld an order limiting some enforcement tactics.`\
-https://nytimes.com/2025/08/06/us/los-angeles-immigration-raid.html
 
