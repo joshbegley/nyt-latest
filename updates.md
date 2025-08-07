@@ -1,3 +1,7 @@
+**Southeast Asia Looks for Clarity From U.S. on ‘Rules of Origin’**\
+`Thailand, Vietnam and other countries in the region face much higher tariffs on exports with Chinese-made components. But questions remain on how the U.S. defines a locally made product.`\
+https://nytimes.com/2025/08/07/business/economy/southeast-asia-looks-for-clarity-from-us-on-rules-of-origin.html
+
 **The Pulse: Boston's necessary gamble**\
 `The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
 https://nytimes.com/athletic/6539698/2025/08/07/red-sox-roman-anthony-the-pulse/
