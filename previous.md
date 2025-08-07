@@ -1,5 +1,5 @@
 **Aryna Sabalenka adds Max Mirnyi to coaching team for Cincinnati and U.S. Opens**\
-`Sabalenka has added Mirnyi to her team on a temporary basis as she seeks to defend her Cincinnati and U.S. Open titles.`\
+`Sabalenka has hired her compatriot on a temporary basis as she seeks to defend her Cincinnati and U.S. Open titles.`\
 https://nytimes.com/athletic/6540862/2025/08/07/tennis-aryna-sabalenka-coach-max-mirnyi/
 
 **California Supreme Court Requires New Review of Rooftop Solar Policy**\
