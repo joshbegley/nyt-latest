@@ -1,3 +1,7 @@
+**Listen to All Our Episodes of ‘The Retrievals’**\
+`“A taut medical drama” that may leave your “heart racing.”`\
+https://nytimes.com/2025/08/07/podcasts/c-sections-pain-retrievals-newsletter-series.html
+
 **Trump Administration Live Updates: President’s Plan for Putin Summit Draws Skepticism in Ukraine**\
 ``\
 https://nytimes.com/live/2025/08/07/us/trump-news
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/07/business/dealbook/trump-tariffs-companies-earning
 **Ukrainians Greet Planned Trump-Putin Summit With Deep Skepticism**\
 `Despite longing for an end to Russia’s invasion, few believe that a meeting between President Trump and President Vladimir V. Putin is likely to deliver a peace plan they can accept.`\
 https://nytimes.com/2025/08/07/us/politics/trump-putin-meeting-ukraine-reaction.html
-
-**U Myint Swe, Acting President of Myanmar Installed by Military, Dies at 74**\
-`A figurehead leader, he had little real power but did endorse measures that allowed the country’s generals to extend their rule after a 2021 coup.`\
-https://nytimes.com/2025/08/07/world/asia/u-myint-swe-dies-myanmar-president.html
 
