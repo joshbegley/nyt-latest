@@ -1,8 +1,12 @@
+**Ten Colts with most to gain this preseason: Can Anthony Richardson prove he should be QB1?**\
+`Just because the games don't count doesn't mean they're meaningless. Some Colts have a lot riding on how they perform in the next few weeks.`\
+https://nytimes.com/athletic/6539218/2025/08/07/colts-preseason-anthony-richardson-juju-brents/
+
 **Listen to All Our Episodes of ‘The Retrievals’**\
 `“A taut medical drama” that may leave your “heart racing.”`\
 https://nytimes.com/2025/08/07/podcasts/c-sections-pain-retrievals-newsletter-series.html
 
-**Trump Administration Live Updates: President’s Plan for Putin Summit Draws Skepticism in Ukraine**\
+**Trump Administration Live Updates: President Seeks New Census to Exclude Illegal Migration**\
 ``\
 https://nytimes.com/live/2025/08/07/us/trump-news
 
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/07/arts/mafia-old-country-review.html
 **Trump’s Higher Tariffs Are Here. Now What?**\
 `The president’s trade war entered a new phase on Thursday with hefty levies on scores of countries taking effect, adding further uncertainty.`\
 https://nytimes.com/2025/08/07/business/dealbook/trump-tariffs-companies-earnings.html
-
-**Ukrainians Greet Planned Trump-Putin Summit With Deep Skepticism**\
-`Despite longing for an end to Russia’s invasion, few believe that a meeting between President Trump and President Vladimir V. Putin is likely to deliver a peace plan they can accept.`\
-https://nytimes.com/2025/08/07/us/politics/trump-putin-meeting-ukraine-reaction.html
 
