@@ -1,3 +1,7 @@
+**‘Weapons’ Review: These Classmates Are Not All Right**\
+`The writer-director Zach Cregger (“Barbarian”) creates and maintains an ominous mood in this horror movie about missing children.`\
+https://nytimes.com/2025/08/07/movies/weapons-review.html
+
 **Sallie Bingham, Author at the Center of a Newspaper Drama, Dies at 88**\
 `A novelist and memoirist, she famously clashed with a brother, leading to the fall of a Kentucky publishing dynasty that her paternal grandfather established in 1918.`\
 https://nytimes.com/2025/08/07/business/media/sallie-bingham-dead.html
