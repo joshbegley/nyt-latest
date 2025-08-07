@@ -1,3 +1,11 @@
+**What Will Be the Next Big Media Deal?**\
+`As Skydance completes its acquisition of Paramount, the stage is set for more deal making in the crowded streaming wars.`\
+https://nytimes.com/2025/08/07/business/skydance-paramount-media-deal.html
+
+**The Windup: A long-overdue MLB first**\
+`The Windup Newsletter ⚾ | This is The Athletic’s MLB newsletter.`\
+https://nytimes.com/athletic/6540168/2025/08/07/a-long-overdue-mlb-first-plus-red-sox-remain-aggressive/
+
 **Trump Administration Forces Out F.B.I. Officials**\
 `Brian Driscoll, who was the acting director in the early days of the administration, was among those being told to leave by Friday.`\
 https://nytimes.com/2025/08/07/us/politics/trump-fbi.html
