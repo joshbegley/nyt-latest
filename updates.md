@@ -1,3 +1,11 @@
+**Two Pennsylvania State Troopers Are Shot, Governor Says**\
+`The troopers were shot while responding to a call in the northeastern part of the state, the authorities said.`\
+https://nytimes.com/2025/08/07/us/pennsylvania-state-troopers-shot.html
+
+**Chargers LT Rashawn Slater carted off practice field with apparent leg injury**\
+`Slater recently signed a four-year extension making him the highest paid offensive lineman in NFL history.`\
+https://nytimes.com/athletic/6540761/2025/08/07/rashawn-slater-chargers-injury-nfl-training-camp/
+
 **Swiss Businesses Fear Being ‘Annihilated’ by One of the World’s Highest Tariffs**\
 `Goods shipped from the country face a 39% tariff in the U.S., which companies warn will have dire consequences if President Trump cannot be quickly dissuaded.`\
 https://nytimes.com/2025/08/07/business/economy/swizterland-tariffs-trump.html

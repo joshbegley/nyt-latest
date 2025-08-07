@@ -1,3 +1,11 @@
+**Two Pennsylvania State Troopers Are Shot, Governor Says**\
+`The troopers were shot while responding to a call in the northeastern part of the state, the authorities said.`\
+https://nytimes.com/2025/08/07/us/pennsylvania-state-troopers-shot.html
+
+**Chargers LT Rashawn Slater carted off practice field with apparent leg injury**\
+`Slater recently signed a four-year extension making him the highest paid offensive lineman in NFL history.`\
+https://nytimes.com/athletic/6540761/2025/08/07/rashawn-slater-chargers-injury-nfl-training-camp/
+
 **Swiss Businesses Fear Being ‘Annihilated’ by One of the World’s Highest Tariffs**\
 `Goods shipped from the country face a 39% tariff in the U.S., which companies warn will have dire consequences if President Trump cannot be quickly dissuaded.`\
 https://nytimes.com/2025/08/07/business/economy/swizterland-tariffs-trump.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/08/07/nyregion/cuomo-trump-mamdani-mayor.html
 **Bonmati? Russo? Kelly? – Our women's Ballon d'Or picks**\
 `The 30-woman nominee list for the Ballon d'Or is out. Who will be crowned the world's best player?`\
 https://nytimes.com/athletic/6540276/2025/08/07/womens-ballon-dor-nominations-bonmati-russo-kelly/
-
-**‘South Park’ Finds New Relevance Skewering the Trump Era**\
-`After the White House attacked the season premiere for lampooning the president, some of the Trump allies who were mocked in the second episode tried to show they could take a joke.`\
-https://nytimes.com/2025/08/07/arts/television/south-park-episode-two-ice.html
-
-**Moose Whose Lingering Closed Mountain Trail for 2 Months Is Euthanized**\
-`New York environmental conservation officials had observed a sharp decline in the animal’s health that gave it “a low likelihood of survival.”`\
-https://nytimes.com/2025/08/07/nyregion/goodman-mountain-moose-dead.html
 

@@ -1,8 +1,16 @@
+**Rent for $1 a Month? Egypt Says No, Ending a System That Aided the Poor**\
+`Officials say a new law will rebalance a housing market long distorted by rigid rent controls, but many residents could be pushed out.`\
+https://nytimes.com/2025/08/07/world/middleeast/egypt-affordable-housing-old-rent.html
+
+**Jaguars' Travis Hunter to play wide receiver and cornerback in preseason opener**\
+`"He’ll make plays wherever he is, but obviously as a quarterback, I hope he plays more on offense," Trevor Lawrence said of Hunter.`\
+https://nytimes.com/athletic/6540680/2025/08/07/jaguars-travis-hunter-to-play-wide-receiver-and-cornerback-in-preseason-opener/
+
 **Two Pennsylvania State Troopers Are Shot, Governor Says**\
 `The troopers were shot while responding to a call in the northeastern part of the state, the authorities said.`\
 https://nytimes.com/2025/08/07/us/pennsylvania-state-troopers-shot.html
 
-**Chargers LT Rashawn Slater carted off practice field with apparent leg injury**\
+**Chargers LT Rashawn Slater carted off field with apparent leg injury**\
 `Slater recently signed a four-year extension making him the highest paid offensive lineman in NFL history.`\
 https://nytimes.com/athletic/6540761/2025/08/07/rashawn-slater-chargers-injury-nfl-training-camp/
 
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6540367/2025/08/07/newcastle-striker-transfer-analy
 **Archie Manning says grandson Arch will remain at Texas through 2026 season**\
 `Manning's revelation is largely unsurprising to those who have closely followed Arch’s recruitment and college career.`\
 https://nytimes.com/athletic/6540353/2025/08/07/arch-manning-archie-nfl-draft-texas/
-
-**Cuomo Tells Business Leaders He Doesn’t ‘Personally’ Want to Fight Trump**\
-`Former Gov. Andrew M. Cuomo’s remarks about President Trump came just before The Times’s disclosure that he had spoken to Mr. Trump about the race.`\
-https://nytimes.com/2025/08/07/nyregion/cuomo-trump-mamdani-mayor.html
-
-**Bonmati? Russo? Kelly? – Our women's Ballon d'Or picks**\
-`The 30-woman nominee list for the Ballon d'Or is out. Who will be crowned the world's best player?`\
-https://nytimes.com/athletic/6540276/2025/08/07/womens-ballon-dor-nominations-bonmati-russo-kelly/
 
