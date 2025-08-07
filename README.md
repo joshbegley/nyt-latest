@@ -1,3 +1,7 @@
+**Trump Order Clears Way for Crypto and Private Equity in 401(k)s**\
+`The executive order is intended to give investors more options, but experts say employers will tread carefully before adding alternative assets.`\
+https://nytimes.com/2025/08/07/business/trump-401k-crypto.html
+
 **Prescott says 'Eleven is Cowboy' after Parsons doesn't attend practice**\
 `Dallas executive vice president Stephen Jones said Parsons remains with the team as he exited the field Thursday.`\
 https://nytimes.com/athletic/6541282/2025/08/07/micah-parsons-cowboys-contract-dak-prescott/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/07/world/africa/big-game-hunter-killed-buffalo-safar
 **Caleb Williams, Colston Loveland among Bears to watch in practice, game vs. Dolphins**\
 `With the Dolphins coming to town for a joint practice and preseason game, which Bears will be under the spotlight?`\
 https://nytimes.com/athletic/6541009/2025/08/07/bears-dolphins-caleb-williams-players-to-watch/
-
-**As Miles of Forests Burn and Wildfires Spread, Canada Brings In the Military**\
-`Amid thousands of evacuations and the spread of smoke to the United States, the Canadian armed forces and the Coast Guard were summoned to help battle the blazes.`\
-https://nytimes.com/2025/08/07/world/canada/wildfires-evacuations-military.html
 

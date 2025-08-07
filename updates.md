@@ -1,3 +1,11 @@
+**Prescott says 'Eleven is Cowboy' after Parsons doesn't attend practice**\
+`Dallas executive vice president Stephen Jones said Parsons remains with the team as he exited the field Thursday.`\
+https://nytimes.com/athletic/6541282/2025/08/07/micah-parsons-cowboys-contract-dak-prescott/
+
+**Military Raised Water Level of River in Ohio for JD Vance’s Family Boating Trip**\
+`The Secret Service said the boats the agency uses for security are usually motorized and need deeper waters to operate.`\
+https://nytimes.com/2025/08/07/us/politics/secret-service-vance-boating.html
+
 **Disney Settles Wrongful Termination Suit Embraced by Conservatives**\
 `Gina Carano sued Disney after it dropped her from “The Mandalorian” for posting conspiracy theories and right-wing views on social media.`\
 https://nytimes.com/2025/08/07/business/media/disney-gina-carano-mandalorian-suit.html
