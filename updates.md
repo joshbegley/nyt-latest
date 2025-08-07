@@ -1,3 +1,11 @@
+**David Bednar shows why he should be Yankees’ new closer: 'Dawg effort'**\
+`Boone trusted Bednar with the game on the line. He should do it again the next time there's a save opportunity.`\
+https://nytimes.com/athletic/6539557/2025/08/06/ny-yankees-david-bednar-closer-situation/
+
+**Investigate in Detail**\
+`Don’t think of solving Ben Zimmer’s first solo puzzle as a futile effort. You’ve got this.`\
+https://nytimes.com/2025/08/06/crosswords/daily-puzzle-2025-08-07.html
+
 **Five numbers that showcase the Blue Jays’ historic dominance over the Rockies**\
 `A 20-1 barrage capped a nutty offensive series that featured the Blue Jays breaking several franchise records. `\
 https://nytimes.com/athletic/6539523/2025/08/06/blue-jays-bo-bichette-vladimir-guerrero/

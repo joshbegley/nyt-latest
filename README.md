@@ -1,3 +1,7 @@
+**Astros didn't add pitching at the deadline; their latest loss underscores that risk**\
+`Failing to fortify the pitching staff with any external additions will only magnify each start Spencer Arrighetti makes.`\
+https://nytimes.com/athletic/6539521/2025/08/06/houston-astros-spencer-arrighetti-return/
+
 **David Bednar shows why he should be Yankees’ new closer: 'Dawg effort'**\
 `Boone trusted Bednar with the game on the line. He should do it again the next time there's a save opportunity.`\
 https://nytimes.com/athletic/6539557/2025/08/06/ny-yankees-david-bednar-closer-situation/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6539353/2025/08/06/tennis-victoria-mboko-canadian-o
 **Eddie Palmieri, Latin Music’s Dynamic Innovator, Dies at 88**\
 `He roped salsa into conversation with jazz, rock, funk and even modern classical music. “A new world music,” one critic said, “is being born.”`\
 https://nytimes.com/2025/08/06/arts/music/eddie-palmieri-dead.html
-
-**Courage terminates coach Sean Nahas’ contract ‘effective immediately’**\
-`Nahas coached the Courage in NWSL action as recently as last Saturday.`\
-https://nytimes.com/athletic/6539500/2025/08/06/north-carolina-courage-nwsl-nahas/
 
