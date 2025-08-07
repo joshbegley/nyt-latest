@@ -1,3 +1,11 @@
+**Quote of the Day: Hiroshima, Nagasaki And Images That Sear**\
+`Quotation of the Day for Thursday, August 7, 2025.`\
+https://nytimes.com/2025/08/06/pageoneplus/quote-of-the-day-hiroshima-nagasaki-and-images-that-sear.html
+
+**Naomi Osaka's comeback rolls on as she reaches first WTA 1000 final since 2022**\
+`Osaka dispatched Denmark's Clara Tauson Wednesday in Montreal to reach her first WTA 1000 final in three years.`\
+https://nytimes.com/athletic/6539653/2025/08/06/tennis-naomi-osaka-canadian-open-final-clara-tauson/
+
 **Here’s the latest.**\
 `By Tony Romm`\
 https://nytimes.com/live/2025/08/06/business/tariffs-trump-trade/heres-the-latest
@@ -29,12 +37,4 @@ https://nytimes.com/2025/08/06/crosswords/daily-puzzle-2025-08-07.html
 **Five numbers that showcase the Blue Jays’ historic dominance over the Rockies**\
 `A 20-1 barrage capped a nutty offensive series that featured the Blue Jays breaking several franchise records. `\
 https://nytimes.com/athletic/6539523/2025/08/06/blue-jays-bo-bichette-vladimir-guerrero/
-
-**Dodger Details: Shohei Ohtani's milestone two-way day, Max Muncy's impact and a tough loss**\
-`Among other feats, Ohtani threw a 100 mph pitch and smacked a home run at least 100 mph off the bat fourth time in his career.`\
-https://nytimes.com/athletic/6539464/2025/08/06/dodgers-shohei-ohtani-max-muncy-details/
-
-**NASA Is Getting Fired Up About a Nuclear Reactor on the Moon**\
-`Placing an atomic energy source on the lunar surface is “not science fiction,” experts say, but does pose technical challenges.`\
-https://nytimes.com/2025/08/06/science/nasa-nuclear-reactor-moon.html
 
