@@ -1,3 +1,7 @@
+**Dominik Szoboszlai and the new battle for Liverpool's No 8 role**\
+`The arrival of Wirtz will see increased competition for places in midfield - could Szoboszlai be the man for the No 8 role?`\
+https://nytimes.com/athletic/6538207/2025/08/07/szoboszlai-liverpool-no-8/
+
 **Joao Palhinha doesn't cure all of Tottenham's problems, but he solves a pretty big one**\
 `Spurs conceded 65 league goals last season, and a lot of them could have been prevented with a proper defensive midfielder`\
 https://nytimes.com/athletic/6522103/2025/08/07/palhinha-tottenham-tackling/

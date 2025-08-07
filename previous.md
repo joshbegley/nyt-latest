@@ -1,3 +1,7 @@
+**Dominik Szoboszlai and the new battle for Liverpool's No 8 role**\
+`The arrival of Wirtz will see increased competition for places in midfield - could Szoboszlai be the man for the No 8 role?`\
+https://nytimes.com/athletic/6538207/2025/08/07/szoboszlai-liverpool-no-8/
+
 **Joao Palhinha doesn't cure all of Tottenham's problems, but he solves a pretty big one**\
 `Spurs conceded 65 league goals last season, and a lot of them could have been prevented with a proper defensive midfielder`\
 https://nytimes.com/athletic/6522103/2025/08/07/palhinha-tottenham-tackling/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/07/business/economy/trump-tariffs-trade-war.html
 **Americans Are Eating Slightly Less Ultraprocessed Food, C.D.C. Data Shows**\
 `Despite the small decline, ultraprocessed foods still make up the majority of the calories people consume.`\
 https://nytimes.com/2025/08/07/well/eat/americans-are-eating-slightly-less-ultraprocessed-food-cdc-data-shows.html
-
-**Introducing The Athletic's new player-style pizza charts**\
-`A glossary of the metrics that go into The Athletic's new player style data visualisations `\
-https://nytimes.com/athletic/6457393/2025/08/07/player-pizza-charts-version-two-2025/
 
