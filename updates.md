@@ -1,3 +1,19 @@
+**Joao Palhinha doesn't cure all of Tottenham's problems, but he solves a pretty big one**\
+`Spurs conceded 65 league goals last season, and a lot of them could have been prevented with a proper defensive midfielder`\
+https://nytimes.com/athletic/6522103/2025/08/07/palhinha-tottenham-tackling/
+
+**Real Madrid are only just back in training. Will they be ready for La Liga's return?**\
+`Xabi Alonso's side returned to training on Monday, having finally got the chance for a break after a very long 2024-25 season`\
+https://nytimes.com/athletic/6538182/2025/08/07/real-madrid-training-pre-season-la-liga-return/
+
+**Fantasy Premier League: Sizing up Salah, Palmer and the game's other premium players**\
+`You can only fit a limited number of top-priced options into your line-up, so which ones are worth spending large chunks of your £100m on?`\
+https://nytimes.com/athletic/6508707/2025/08/07/fantasy-premier-league-salah-palmer-isak-premiums/
+
+**Ranking every Premier League home kit for 2025-26: Wavy brilliance, retro styling and a nod to shepherds**\
+`Nick Miller ranks all 20 Premier League home kits for the 2025-26 season from worst to best`\
+https://nytimes.com/athletic/6538413/2025/08/07/premier-league-home-kits-2025-26-ranked/
+
 **Kaine Kesler-Hayden interview: 'Frank Lampard was a massive reason why I joined Coventry'**\
 `After proving his talent in the Championship on loan at Preston, the ex-Aston Villa defender wants to establish himself with a new team`\
 https://nytimes.com/athletic/6529675/2025/08/07/kesler-hayden-interview-lampard-coventry/
