@@ -1,3 +1,7 @@
+**Japan’s Auto Giants Are Expecting Pain Despite Trump Trade Deal**\
+`Toyota, Honda and Nissan forecast big hits to their profits despite a trade deal that cut auto levies to 15 percent. The reduced rate has yet to be implemented.`\
+https://nytimes.com/2025/08/07/business/tariffs-japan-cars.html
+
 **Arsenal season betting preview: How likely are Gunners to end title drought?**\
 `Arsenal have finished second in the Premier League for the past three seasons. Can the Gunners make the leap to top the table?`\
 https://nytimes.com/athletic/6538430/2025/08/07/arsenal-season-betting-preview-odds/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6539690/2025/08/07/ben-shelton-taylor-fritz-canadia
 **The New York Times in Print for Thursday, Aug. 7, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/08/07/todays-new-york-times
-
-**I’ve Seen How Russia Is Torturing Prisoners of War**\
-`Prosecuting torture is a legal obligation, not a diplomatic nicety or something that can be negotiated.`\
-https://nytimes.com/2025/08/07/opinion/russia-ukraine-torture.html
 
