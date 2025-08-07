@@ -1,3 +1,27 @@
+**Moose Whose Lingering Closed Mountain Trail for 2 Months Is Euthanized**\
+`New York environmental conservation officials had observed a sharp decline in the animal’s health that gave it “a low likelihood of survival.”`\
+https://nytimes.com/2025/08/07/nyregion/goodman-mountain-moose-dead.html
+
+**Baltimore Schools Face Investigation Over Antisemitism Allegations**\
+`The Trump administration has scrutinized colleges over their handling of antisemitism. The new investigation suggested the government was widening its focus.`\
+https://nytimes.com/2025/08/07/us/politics/baltimore-schools-investigation-antisemitism-adl.html
+
+**Oh, Do You Have Some Zucchini?**\
+`Then you’ll definitely want to play — and will easily win — Zucchini Bingo.`\
+https://nytimes.com/2025/08/07/dining/easy-vegetarian-zucchini-recipes.html
+
+**OpenAI Aims to Stay Ahead of Rivals With New GPT-5 Technology**\
+`The A.I. start-up said its new flagship technology was faster, more accurate and less likely to make stuff up.`\
+https://nytimes.com/2025/08/07/technology/openai-chatgpt-gpt-5.html
+
+**8 New Books We Love This Week**\
+`Reading recommendations from critics and editors at The New York Times.`\
+https://nytimes.com/2025/08/07/books/review/new-book-recommendations.html
+
+**UCI to introduce rider trackers at World Championships following Furrer death**\
+`The UCI announcement marks the first time that the governing body will have made safety trackers mandatory in one of their races.`\
+https://nytimes.com/athletic/6540555/2025/08/07/cycling-rider-tracker-world-championships-muriel-furrer-death/
+
 **‘Weapons’ Review: These Classmates Are Not All Right**\
 `The writer-director Zach Cregger (“Barbarian”) creates and maintains an ominous mood in this horror movie about missing children.`\
 https://nytimes.com/2025/08/07/movies/weapons-review.html
@@ -13,28 +37,4 @@ https://nytimes.com/athletic/6540217/2025/08/07/barcelona-marc-andre-ter-stegen-
 **Elizabeth McGovern as a Sultry Bombshell? This Isn’t ‘Downton Abbey.’**\
 `“It’s very liberating to take off that psychological corset,” the actress said of portraying the rambunctious Hollywood star Ava Gardner onstage.`\
 https://nytimes.com/2025/08/07/theater/downton-abbey-elizabeth-mcgovern-ava-gardner.html
-
-**A Fairly Quiet Hurricane Season May Be About to Ramp Up**\
-`Experts at NOAA updated their prediction for the Atlantic on Thursday. Forecasters say there could be up to nine hurricanes before the end of November.`\
-https://nytimes.com/2025/08/07/weather/atlantic-hurricane-season-forecast-update-noaa.html
-
-**Aston Villa planning McGinn contract discussions**\
-`McGinn has attracted interest from elsewhere in the Premier League this summer, including Everton and, more recently, Newcastle United.`\
-https://nytimes.com/athletic/6540519/2025/08/07/john-mcginn-aston-villa-contract/
-
-**Salah, Dembele, Yamal? Who we think should win the men's Ballon d'Or**\
-`Another star-studded Ballon d'Or nominees list has been announced. So The Athletic’s experts made their cases for who should be victorious`\
-https://nytimes.com/athletic/6540340/2025/08/07/mens-ballon-dor-salah-dembele-yamal/
-
-**Scoop City: Quarterbacks to watch in tonight's preseason action, from Burrow to Milroe**\
-`Vrabel's bloody day, plus starting quarterbacks to watch in tonight's preseason action and why the Seahawks are a dark horse.`\
-https://nytimes.com/athletic/6540480/2025/08/07/nfl-preseason-week-1-starters-quarterbacks-burrow-milroe-scoop-city/
-
-**A Famously Stable Glacier in Argentina Suddenly Looks Anything But**\
-`After holding steady for decades, the beloved Perito Moreno has thinned considerably since 2019, scientists said.`\
-https://nytimes.com/2025/08/07/climate/argentina-perito-moreno-glacier.html
-
-**Minnesota Man Charged in Attack on Lawmakers Pleads Not Guilty**\
-`Vance Boelter, the man accused of shooting two state lawmakers in June, killing one, entered the plea at a brief hearing in federal court in Minneapolis.`\
-https://nytimes.com/2025/08/07/us/minnesota-vance-boelter-plea-not-guilty.html
 
