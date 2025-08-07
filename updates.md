@@ -1,3 +1,11 @@
+**Why a Teen Bullying Case in China Set Off Protests and a Crackdown**\
+`Residents in a city in southwestern China protested what they saw as official indifference in the attack on a girl. Police repression and censorship fueled the outrage.`\
+https://nytimes.com/2025/08/07/world/asia/china-bullying-protests.html
+
+**Al Hilal agree deal with Liverpool for Nunez, striker set for medical**\
+`Nunez is set to undergo a medical with the Saudi Pro League club.`\
+https://nytimes.com/athletic/6538021/2025/08/07/darwin-nunez-al-hilal-liverpool-agreement/
+
 **Apple C.E.O. Gifts Trump Gold**\
 `Tim Cook presented a glass plaque on a gold base to President Trump and pledged a $100 billion investment in the U.S. as Trump threatened a 100 percent tariff on semiconductors.`\
 https://nytimes.com/video/business/economy/100000010328133/trump-apple-investment.html
