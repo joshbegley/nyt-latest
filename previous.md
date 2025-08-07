@@ -1,3 +1,7 @@
+**Cambodia Nominates Trump for Nobel Peace Prize**\
+`The gesture comes after a U.S.-brokered cease-fire with Thailand, and a trade deal with Washington that blunted a threat of heavy tariffs.`\
+https://nytimes.com/2025/08/07/us/politics/cambodia-nominates-trump-for-nobel-peace-prize.html
+
 **Trump Demands New U.S. Census That Excludes Undocumented Immigrants**\
 `The push comes as the president and his allies are pressing Republican-led states to redraw their congressional maps to benefit their party.`\
 https://nytimes.com/2025/08/07/us/politics/trump-census-undocumented-immigrants.html
@@ -30,11 +34,7 @@ https://nytimes.com/2025/08/07/business/dealbook/skydance-paramount-media-deal.h
 `The Windup Newsletter ⚾ | This is The Athletic’s MLB newsletter.`\
 https://nytimes.com/athletic/6540168/2025/08/07/a-long-overdue-mlb-first-plus-red-sox-remain-aggressive/
 
-**Trump Administration Forces Out F.B.I. Officials**\
+**Trump Administration Continues Purge of F.B.I. Officials**\
 `Brian Driscoll, who was the acting director in the early days of the administration, was among those being told to leave by Friday.`\
 https://nytimes.com/2025/08/07/us/politics/trump-fbi.html
-
-**Cornyn Says F.B.I. Will Help Find Texas Lawmakers Who Fled State**\
-`The senator said the federal agency had agreed to help locate Democratic state lawmakers who left the state to try to block a vote on new congressional district maps.`\
-https://nytimes.com/2025/08/07/us/politics/texas-redistricting-cornyn-fbi.html
 

@@ -1,3 +1,11 @@
+**Cambodia Nominates Trump for Nobel Peace Prize**\
+`The gesture comes after a U.S.-brokered cease-fire with Thailand, and a trade deal with Washington that blunted a threat of heavy tariffs.`\
+https://nytimes.com/2025/08/07/us/politics/cambodia-nominates-trump-for-nobel-peace-prize.html
+
+**Trump Administration Continues Purge of F.B.I. Officials**\
+`Brian Driscoll, who was the acting director in the early days of the administration, was among those being told to leave by Friday.`\
+https://nytimes.com/2025/08/07/us/politics/trump-fbi.html
+
 **Trump Demands New U.S. Census That Excludes Undocumented Immigrants**\
 `The push comes as the president and his allies are pressing Republican-led states to redraw their congressional maps to benefit their party.`\
 https://nytimes.com/2025/08/07/us/politics/trump-census-undocumented-immigrants.html
