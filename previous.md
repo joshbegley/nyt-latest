@@ -1,3 +1,11 @@
+**Aryna Sabalenka adds Max Mirnyi to coaching team for Cincinnati and U.S. Opens**\
+`Sabalenka has added Mirnyi to her team on a temporary basis as she seeks to defend her Cincinnati and U.S. Open titles.`\
+https://nytimes.com/athletic/6540862/2025/08/07/tennis-aryna-sabalenka-coach-max-mirnyi/
+
+**California Supreme Court Requires New Review of Rooftop Solar Policy**\
+`The court revived a legal challenge to a 2022 regulation that significantly reduced the compensation utilities paid to owners of home solar systems for the electricity they sent to the grid.`\
+https://nytimes.com/2025/08/07/business/energy-environment/california-supreme-court-rooftop-solar.html
+
 **Trump Orders Clampdown on ‘Debanking,’ a Personal Gripe**\
 `Mostly right-leaning groups have complained of forced bank account closures. The evidence is spotty.`\
 https://nytimes.com/2025/08/07/business/trump-debanking-executive-order.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/08/07/opinion/bruce-springsteen-music-poetry.html
 **Hailing a Ride on Uber or Lyft? Here’s What to Know to Stay Safe.**\
 `Ride-hailing apps have built-in safety features that riders should be familiar with, experts said.`\
 https://nytimes.com/2025/08/07/travel/ride-shares-safety-tips.html
-
-**Woman Working at Hospital Treated 4,500 Patients Without License, Police Say**\
-`The 29-year-old forged her documents to work at a Florida hospital, and the discrepancy was noticed only after she was offered a promotion, according to an investigation.`\
-https://nytimes.com/2025/08/07/us/florida-nurse-arrest.html
-
-**How a Carbon Tax Plan in Europe Survived (Mostly)**\
-`Austria tried a combination of taxes and rebates to reduce emissions.`\
-https://nytimes.com/2025/08/07/climate/austria-carbon-tax-klimabonus.html
 

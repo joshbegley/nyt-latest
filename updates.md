@@ -1,3 +1,11 @@
+**Aryna Sabalenka adds Max Mirnyi to coaching team for Cincinnati and U.S. Opens**\
+`Sabalenka has added Mirnyi to her team on a temporary basis as she seeks to defend her Cincinnati and U.S. Open titles.`\
+https://nytimes.com/athletic/6540862/2025/08/07/tennis-aryna-sabalenka-coach-max-mirnyi/
+
+**California Supreme Court Requires New Review of Rooftop Solar Policy**\
+`The court revived a legal challenge to a 2022 regulation that significantly reduced the compensation utilities paid to owners of home solar systems for the electricity they sent to the grid.`\
+https://nytimes.com/2025/08/07/business/energy-environment/california-supreme-court-rooftop-solar.html
+
 **Trump Orders Clampdown on ‘Debanking,’ a Personal Gripe**\
 `Mostly right-leaning groups have complained of forced bank account closures. The evidence is spotty.`\
 https://nytimes.com/2025/08/07/business/trump-debanking-executive-order.html
