@@ -1,3 +1,15 @@
+**Jaxson Dart practice diary: 'As the QB, you have to set the standard'**\
+`How are the Giants bringing along their first-round pick? We watched everything he did during practice to get a closer look. `\
+https://nytimes.com/athletic/6539503/2025/08/07/ny-giants-jaxson-dart-diary/
+
+**Will WNBA let Steve Pagliuca steward Connecticut Sun? Or will ownership tensions get in way?**\
+`The potential relocation of the Sun to Boston might be more complicated than it seems.`\
+https://nytimes.com/athletic/6539079/2025/08/07/wnba-connecticut-sun-sale-steve-pagliuca-boston-celtics/
+
+**Trump’s Threat to Hit Chips With 100% Tariffs Raises Big Questions**\
+`The semiconductor supply chain is complex and global. And most chips come into the United States as part of electronics.`\
+https://nytimes.com/2025/08/07/business/trump-tariffs-chips.html
+
 **Targeting a Vaccine**\
 `Robert F. Kennedy Jr. has halted funding for mRNA shots. We explore why.`\
 https://nytimes.com/2025/08/07/briefing/mrna-vaccines-robert-f-kennedy.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6531837/2025/08/07/twins-post-deadline-storylines/
 **Why Packers QB Jordan Love is going to run more in 2025**\
 `Love ranked tied for 30th in rushing attempts among quarterbacks last season.`\
 https://nytimes.com/athletic/6539178/2025/08/07/packers-jordan-love-rushing-quarterback/
-
-**The potential key to Georgia's season: Running the (dang) ball**\
-`Georgia's strength in the past been playing complimentary football and a big piece of that is establishing a consistent run game.`\
-https://nytimes.com/athletic/6538907/2025/08/07/the-potential-key-to-georgias-season-running-the-dang-ball/
-
-**Tigers takeaways: Plate discipline woes and the other issues threatening a strong season**\
-`Strikeouts, lack of walks, bullpen woes and players who need to get going. Here's an overview of some key issues plaguing the Tigers. `\
-https://nytimes.com/athletic/6539170/2025/08/07/tigers-takeaways-plate-patience-bullpen-struggles/
-
-**Notre Dame mailbag: The battle for snaps is on, and not just at QB**\
-`One week into training camp, Notre Dame has a legitimate quarterback competition on its hands.`\
-https://nytimes.com/athletic/6539052/2025/08/07/notre-dame-quarterback-competition-micah-gilbert/
 
