@@ -1,3 +1,7 @@
+**United Airlines Halts U.S. Flights Because of a System Outage**\
+`The airline said it expected additional flight delays through Wednesday night “as we work through the issue.”`\
+https://nytimes.com/2025/08/06/business/united-airlines-system-outage.html
+
 **Victoria Mboko surges into Canadian Open final with comeback win over Elena Rybakina**\
 `Mboko came from a set down to oust the 2022 Wimbledon champion in a three-setter that ebbed and flowed to the end. `\
 https://nytimes.com/athletic/6539353/2025/08/06/tennis-victoria-mboko-canadian-open-elena-rybakina-result-analysis/

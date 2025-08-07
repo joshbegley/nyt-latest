@@ -1,3 +1,7 @@
+**Eddie Palmieri’s 13 Essential Songs and Albums**\
+`A native son of the Bronx, Palmieri was a crucial innovator in New York’s Afro-Caribbean music history. The pianist, composer and bandleader has died at 88.`\
+https://nytimes.com/2025/08/06/arts/music/eddie-palmieri-songs-albums.html
+
 **United Airlines Halts U.S. Flights Because of a System Outage**\
 `The airline said it expected additional flight delays through Wednesday night “as we work through the issue.”`\
 https://nytimes.com/2025/08/06/business/united-airlines-system-outage.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/06/world/middleeast/huckabee-gaza-aid-ghf.html
 **NASA Lunar Reactor Directive**\
 `A new NASA directive calls for launching a nuclear power reactor to the moon by 2030.`\
 https://nytimes.com/interactive/2025/08/06/science/nasa-nuclear-directive-sean-duffy.html
-
-**Beyoncé Isn’t Giving Up on America**\
-`The superstar’s Cowboy Carter Tour was her most political one yet, our critic Wesley Morris says on “Cannonball.” But it was, somehow, also for everyone.`\
-https://nytimes.com/video/podcasts/100000010326438/beyonce-cowboy-carter-tour.html
 
