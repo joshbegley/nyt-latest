@@ -1,3 +1,7 @@
+**Firefighters in France Battle Largest Blaze in Decades**\
+`Prime Minister François Bayrou described the nearly 40,000 acre fire, which has killed one person, as a “catastrophe on an unprecedented scale.”`\
+https://nytimes.com/2025/08/07/world/europe/france-fire-aude.html
+
 **Japan’s Auto Giants Are Expecting Pain Despite Trump Trade Deal**\
 `Toyota, Honda and Nissan forecast big hits to their profits despite a trade deal that cut auto levies to 15 percent. The reduced rate has yet to be implemented.`\
 https://nytimes.com/2025/08/07/business/tariffs-japan-cars.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/08/06/business/tariffs-trump-trade/overturning-the
 **Ben Shelton beats fellow American Taylor Fritz to reach a new career milestone**\
 `Shelton, the rising 22-year-old American, made his first Masters 1000 final after beating his compatriot. Russia's Karen Khachanov is next.`\
 https://nytimes.com/athletic/6539690/2025/08/07/ben-shelton-taylor-fritz-canadian-open-semifinals-2/
-
-**The New York Times in Print for Thursday, Aug. 7, 2025**\
-``\
-https://nytimes.com/issue/todayspaper/2025/08/07/todays-new-york-times
 

@@ -1,3 +1,7 @@
+**Firefighters in France Battle Largest Blaze in Decades**\
+`Prime Minister François Bayrou described the nearly 40,000 acre fire, which has killed one person, as a “catastrophe on an unprecedented scale.”`\
+https://nytimes.com/2025/08/07/world/europe/france-fire-aude.html
+
 **Japan’s Auto Giants Are Expecting Pain Despite Trump Trade Deal**\
 `Toyota, Honda and Nissan forecast big hits to their profits despite a trade deal that cut auto levies to 15 percent. The reduced rate has yet to be implemented.`\
 https://nytimes.com/2025/08/07/business/tariffs-japan-cars.html
