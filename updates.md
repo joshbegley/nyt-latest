@@ -1,3 +1,7 @@
+**As Trump Administration Plans to Burn Contraceptives, Europeans Are Alarmed**\
+`The U.S. government intends to incinerate $9.7 million in already-purchased birth control in Belgium after U.S.A.I.D shut down. Destruction may have already started.`\
+https://nytimes.com/2025/08/07/world/europe/usaid-contraceptives-trump.html
+
 **Inside Müller's move to Vancouver: Details behind the Bayern legend's shocker**\
 `Players of Thomas Müller's renown don't typically wind up in Vancouver. So how did the Whitecaps lure the Bayern and German great?`\
 https://nytimes.com/athletic/6539529/2025/08/07/inside-thomas-mullers-move-to-vancouver-details-behind-the-bayern-legends-shocker/

@@ -1,3 +1,15 @@
+**Dean Cain, Who Played Superman, Says He Is Joining ICE**\
+`The actor told Fox News he will sign up as an immigration officer, as the Trump administration recruits more personnel to staff its deportation campaign.`\
+https://nytimes.com/2025/08/07/us/dean-cain-superman-ice.html
+
+**Markets Rise, Taking Steeper Tariffs in Stride**\
+`Major indexes in Asia and Europe posted gains and U.S. futures climbed in premarket trading.`\
+https://nytimes.com/2025/08/07/business/economy/trump-tariffs-stock-market.html
+
+**NHL's new wisest spenders. Plus: Happy birthday to a hockey legend**\
+`Sidney Crosby turns 38 today, so let's walk down memory lane.`\
+https://nytimes.com/athletic/6540099/2025/08/07/nhl-red-light-newsletter-sidney-crosby/
+
 **As Trump Administration Plans to Burn Contraceptives, Europeans Are Alarmed**\
 `The U.S. government intends to incinerate $9.7 million in already-purchased birth control in Belgium after U.S.A.I.D shut down. Destruction may have already started.`\
 https://nytimes.com/2025/08/07/world/europe/usaid-contraceptives-trump.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6539218/2025/08/07/colts-preseason-anthony-richards
 **Listen to All Our Episodes of ‘The Retrievals’**\
 `“A taut medical drama” that may leave your “heart racing.”`\
 https://nytimes.com/2025/08/07/podcasts/c-sections-pain-retrievals-newsletter-series.html
-
-**Trump Administration Live Updates: President Seeks New Census to Exclude Illegal Migration**\
-``\
-https://nytimes.com/live/2025/08/07/us/trump-news
-
-**Don’t assume the Micah Parsons standoff will have a happy ending**\
-`The star pass rusher and the Cowboys might eventually get a deal done and laugh off this episode, but don't rule out a far uglier ending.`\
-https://nytimes.com/athletic/6539495/2025/08/07/micah-parsons-jerry-jones-hold-in-dont-lose-sleep/
-
-**Broncos are Trent Sherfield's sixth team in six years. Here's what he's learned**\
-`Sherfield fretted for years over how to make his mark as a receiver. Then, he realized he needed to look at the bigger picture.`\
-https://nytimes.com/athletic/6538501/2025/08/07/trent-sherfield-broncos-training-camp/
 
