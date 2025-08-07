@@ -1,3 +1,7 @@
+**Seth Meyers Won’t Be Distracted by Trump Fiddling on the Roof**\
+`Meyers said that if he saw Trump on his roof, he’d assume the president “was pulling a reverse Santa Claus. — you know, going house to house taking toys away from kids.”`\
+https://nytimes.com/2025/08/07/arts/television/seth-meyers-trump-roof.html
+
 **Watching Gyokeres: Quick bursts, direct dribbling and a tactical challenge for Arteta**\
 `The Sweden striker made his first Arsenal start on Wednesday. There were moments to excite fans but he will alter the way the team play`\
 https://nytimes.com/athletic/6539235/2025/08/07/viktor-gyokeres-arsenal-villarreal/
