@@ -1,3 +1,7 @@
+**Trump Administration Live Updates: President’s Plan for Putin Summit Draws Skepticism in Ukraine**\
+``\
+https://nytimes.com/live/2025/08/07/us/trump-news
+
 **Don’t assume the Micah Parsons standoff will have a happy ending**\
 `The star pass rusher and the Cowboys might eventually get a deal done and laugh off this episode, but don't rule out a far uglier ending.`\
 https://nytimes.com/athletic/6539495/2025/08/07/micah-parsons-jerry-jones-hold-in-dont-lose-sleep/
