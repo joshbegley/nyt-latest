@@ -1,3 +1,11 @@
+**Trump’s Higher Tariffs Are Here. Now What?**\
+`The president’s trade war entered a new phase on Thursday with hefty levies on scores of countries taking effect, adding further uncertainty.`\
+https://nytimes.com/2025/08/07/business/dealbook/trump-tariffs-companies-earnings.html
+
+**Ukrainians Greet Planned Trump-Putin Summit With Deep Skepticism**\
+`Despite longing for an end to Russia’s invasion, few believe that a meeting between President Trump and President Vladimir V. Putin is likely to deliver a peace plan they can accept.`\
+https://nytimes.com/2025/08/07/us/politics/trump-putin-meeting-ukraine-reaction.html
+
 **U Myint Swe, Acting President of Myanmar Installed by Military, Dies at 74**\
 `A figurehead leader, he had little real power but did endorse measures that allowed the country’s generals to extend their rule after a 2021 coup.`\
 https://nytimes.com/2025/08/07/world/asia/u-myint-swe-dies-myanmar-president.html
