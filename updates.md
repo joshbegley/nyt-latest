@@ -1,3 +1,7 @@
+**Overturning the global trade system, Trump puts his ideas to the test.**\
+`By Ana Swanson`\
+https://nytimes.com/live/2025/08/06/business/tariffs-trump-trade/overturning-the-global-trade-system-trump-puts-his-ideas-to-the-test
+
 **Ben Shelton beats fellow American Taylor Fritz to reach a new career milestone**\
 `Shelton, the rising 22-year-old American, made his first Masters 1000 final after beating his compatriot. Russia's Karen Khachanov is next.`\
 https://nytimes.com/athletic/6539690/2025/08/07/ben-shelton-taylor-fritz-canadian-open-semifinals-2/

@@ -1,3 +1,7 @@
+**Overturning the global trade system, Trump puts his ideas to the test.**\
+`By Ana Swanson`\
+https://nytimes.com/live/2025/08/06/business/tariffs-trump-trade/overturning-the-global-trade-system-trump-puts-his-ideas-to-the-test
+
 **Ben Shelton beats fellow American Taylor Fritz to reach a new career milestone**\
 `Shelton, the rising 22-year-old American, made his first Masters 1000 final after beating his compatriot. Russia's Karen Khachanov is next.`\
 https://nytimes.com/athletic/6539690/2025/08/07/ben-shelton-taylor-fritz-canadian-open-semifinals-2/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6538182/2025/08/07/real-madrid-training-pre-season-
 **Fantasy Premier League: Sizing up Salah, Palmer and the game's other premium players**\
 `You can only fit a limited number of top-priced options into your line-up, so which ones are worth spending large chunks of your £100m on?`\
 https://nytimes.com/athletic/6508707/2025/08/07/fantasy-premier-league-salah-palmer-isak-premiums/
-
-**Ranking every Premier League home kit for 2025-26: Wavy brilliance, retro styling and a nod to shepherds**\
-`Nick Miller ranks all 20 Premier League home kits for the 2025-26 season from worst to best`\
-https://nytimes.com/athletic/6538413/2025/08/07/premier-league-home-kits-2025-26-ranked/
 
