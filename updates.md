@@ -1,3 +1,11 @@
+**Weather Service Is Hiring Hundreds After Sweeping Cuts Earlier This Year**\
+`The federal forecasting agency plans to restore some of its losses from this year’s Trump administration cuts.`\
+https://nytimes.com/2025/08/07/weather/nws-hiring-doge-cuts.html
+
+**Trump Order Clears Way for Crypto and Private Equity in 401(k)s**\
+`The executive order is intended to give investors more options, but experts say employers will tread carefully before adding alternative assets.`\
+https://nytimes.com/2025/08/07/business/trump-401k-crypto.html
+
 **Prescott says 'Eleven is Cowboy' after Parsons doesn't attend practice**\
 `Dallas executive vice president Stephen Jones said Parsons remains with the team as he exited the field Thursday.`\
 https://nytimes.com/athletic/6541282/2025/08/07/micah-parsons-cowboys-contract-dak-prescott/
