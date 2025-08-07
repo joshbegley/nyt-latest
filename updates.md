@@ -1,3 +1,7 @@
+**Trump Administration Begins to Strip Federal Workers of Union Protections**\
+`The Department of Veterans Affairs appeared to be the first agency to begin terminating union contracts, affecting more than 400,000 workers.`\
+https://nytimes.com/2025/08/06/us/politics/trump-federal-workers-unions.html
+
 **Huckabee Says U.S.-Backed Aid Sites in Gaza Will ‘Scale Up’**\
 `The Gaza Humanitarian Foundation will soon operate 16 distribution sites instead of four, said Mike Huckabee, the United States ambassador to Israel.`\
 https://nytimes.com/2025/08/06/world/middleeast/huckabee-gaza-aid-ghf.html
