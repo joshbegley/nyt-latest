@@ -1,3 +1,15 @@
+**2 Dead After Helicopter Crashes Onto Barge in Mississippi River**\
+`The crash, which happened near the border of Missouri and Illinois, closed a bridge into Illinois.`\
+https://nytimes.com/2025/08/07/us/helicopter-crash-barge-missouri-mississippi.html
+
+**I Stopped Listening to Springsteen’s Music. I Heard Something More.**\
+`The experience taught me something about America, and it wasn’t what I expected.`\
+https://nytimes.com/2025/08/07/opinion/bruce-springsteen-music-poetry.html
+
+**Hailing a Ride on Uber or Lyft? Here’s What to Know to Stay Safe.**\
+`Ride-hailing apps have built-in safety features that riders should be familiar with, experts said.`\
+https://nytimes.com/2025/08/07/travel/ride-shares-safety-tips.html
+
 **Woman Working at Hospital Treated 4,500 Patients Without License, Police Say**\
 `The 29-year-old forged her documents to work at a Florida hospital, and the discrepancy was noticed only after she was offered a promotion, according to an investigation.`\
 https://nytimes.com/2025/08/07/us/florida-nurse-arrest.html
