@@ -1,3 +1,7 @@
+**For Putin, Trump Summit Is Key to Securing Ukraine Goals**\
+`The Russian leader sees direct talks with Trump as essential to achieving his ultimate aims in Ukraine.`\
+https://nytimes.com/2025/08/07/world/europe/putin-trump-russia-ukraine-summit.html
+
 **ESPN's best week ever? Company chairman Jimmy Pitaro addresses the major NFL, WWE moves**\
 `ESPN's top leader addressed a range of topics, across NFL Network, RedZone, NFL regular-season games, the Aug. 21 app launch and WWE.`\
 https://nytimes.com/athletic/6538956/2025/08/07/espn-nfl-wwe-jimmy-pitaro-app/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6523271/2025/08/07/college-football-transfer-portal
 **How the Eagles' position groups shape up for their preseason opener**\
 `The reigning champions will start to see how their new pieces are fitting in during the preseason opener.`\
 https://nytimes.com/athletic/6538108/2025/08/07/philadelphia-eagles-position-groups-preseason-game/
-
-**Four Key Facts About Trump’s New Tariffs, and a Town Hall Showdown**\
-`Plus, inside the weight-loss drug wars.`\
-https://nytimes.com/2025/08/07/podcasts/the-headlines/trump-tariffs-town-hall-ozempic.html
 
