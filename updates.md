@@ -1,3 +1,5 @@
+
+
 **Eleven Women, Nine Dogs, Not Much Drama (and No Guys)**\
 `These retired women in Texas have been through infertility, illness, layoffs, addiction and disappointing marriages. Now they are trying to create a utopia just for themselves.`\
 https://nytimes.com/2025/08/07/well/eleven-women-nine-dogs-not-much-drama-and-no-guys.html
