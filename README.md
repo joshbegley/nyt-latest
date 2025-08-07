@@ -1,3 +1,7 @@
+**Netanyahu Weighs Expanding Gaza Military Operation Despite Warnings**\
+`The Israeli security cabinet is to discuss the proposal on Thursday. Critics say that extending the offensive would endanger the lives of Israeli hostages and kill more Palestinian civilians.`\
+https://nytimes.com/2025/08/07/world/middleeast/israel-gaza-military-offensive.html
+
 **Farewell Darwin Nunez, the striker Liverpool fans really, really wanted to see succeed**\
 `Like all good showmen, he is leaving Liverpool fans wanting more – but for Nunez that was always the problem`\
 https://nytimes.com/athletic/6538116/2025/08/07/farewell-darwin-nunez-liverpool-al-hilal/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6538352/2025/08/07/fantasy-football-dynasty-sleeper
 **The Climate of Fear Has Reached Into Unexpected Places**\
 `Judges are under threat. This is no way to run a country.`\
 https://nytimes.com/2025/08/07/opinion/judges-courts-threats-fear.html
-
-**Trump’s Trade Representative: Why We Remade the Global Order**\
-`Tariffs were an urgent necessity. They’re already working.`\
-https://nytimes.com/2025/08/07/opinion/trump-trade-tariffs.html
 
