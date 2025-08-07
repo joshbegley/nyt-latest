@@ -1,3 +1,11 @@
+**Farewell Darwin Nunez, the striker Liverpool fans really, really wanted to see succeed**\
+`Like all good showmen, he is leaving Liverpool fans wanting more – but for Nunez that was always the problem`\
+https://nytimes.com/athletic/6538116/2025/08/07/farewell-darwin-nunez-the-striker-liverpool-fans-really-really-wanted-to-see-succeed/
+
+**How Ozempic’s Maker Lost Its Shine After Creating a Wonder Drug**\
+`The pioneering Danish drugmaker was once the most valuable company in Europe, but analysts say a number of missteps reversed its fortunes.`\
+https://nytimes.com/2025/08/07/business/ozempic-wegovy-novo-nordisk-decline.html
+
 **The New York Times International Edition in Print for Friday, Aug. 8, 2025**\
 ``\
 https://nytimes.com/issue/todaysinyt/2025/08/07/todays-new-york-times-international-edition
@@ -29,12 +37,4 @@ https://nytimes.com/2025/08/07/opinion/judges-courts-threats-fear.html
 **Trump’s Trade Representative: Why We Remade the Global Order**\
 `Tariffs were an urgent necessity. They’re already working.`\
 https://nytimes.com/2025/08/07/opinion/trump-trade-tariffs.html
-
-**The Patriots are honoring Tom Brady with a statue. Will Belichick, Kraft get similar treatment?**\
-`The Patriots are set to unveil the QB's 12-foot statue on Friday night. But how can they also commemorate their legendary coach and owner?`\
-https://nytimes.com/athletic/6536520/2025/08/07/tom-brady-statue-patriots-bill-belichick-robert-kraft/
-
-**How a Self-Described Wallflower Came to Lead the Texas Democrats’ Walkout**\
-`State Representative Gene Wu represents a racially diverse corner of Houston when he’s not defending juveniles in court. The battle over redistricting has pushed him into the national spotlight.`\
-https://nytimes.com/2025/08/07/us/politics/texas-redistricting-gene-wu.html
 

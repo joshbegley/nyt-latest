@@ -1,3 +1,7 @@
+**The New York Times International Edition in Print for Friday, Aug. 8, 2025**\
+``\
+https://nytimes.com/issue/todaysinyt/2025/08/07/todays-new-york-times-international-edition
+
 **She Survived a 9-Story Fall After a Russian Missile Hit Her Building**\
 `Veronika Osintseva’s story has captivated a war-weary Ukraine.`\
 https://nytimes.com/2025/08/07/world/europe/ukraine-russia-missile-attack-survivor.html

@@ -1,3 +1,7 @@
+**The New York Times International Edition in Print for Friday, Aug. 8, 2025**\
+``\
+https://nytimes.com/issue/todaysinyt/2025/08/07/todays-new-york-times-international-edition
+
 **She Survived a 9-Story Fall After a Russian Missile Hit Her Building**\
 `Veronika Osintseva’s story has captivated a war-weary Ukraine.`\
 https://nytimes.com/2025/08/07/world/europe/ukraine-russia-missile-attack-survivor.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6536520/2025/08/07/tom-brady-statue-patriots-bill-b
 **How a Self-Described Wallflower Came to Lead the Texas Democrats’ Walkout**\
 `State Representative Gene Wu represents a racially diverse corner of Houston when he’s not defending juveniles in court. The battle over redistricting has pushed him into the national spotlight.`\
 https://nytimes.com/2025/08/07/us/politics/texas-redistricting-gene-wu.html
-
-**When It Was ‘Time to Get Out of Florida,’ She Went for an Appalachian Vibe in North Carolina**\
-`A mother and her son searched near Asheville, N.C., for a quiet place with nice views and an easy commute to her new job.`\
-https://nytimes.com/interactive/2025/08/07/realestate/north-carolina-asheville-homes-sale.html
 
