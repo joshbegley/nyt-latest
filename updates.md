@@ -1,4 +1,8 @@
 **After a Lull, Agents Conduct a Big Immigration Raid in L.A.**\
+`A rented Penske truck was used to ferry agents to the Home Depot where the raid was conducted, days after an appeals court upheld an order limiting some enforcement tactics.`\
+https://nytimes.com/2025/08/06/us/los-angeles-immigration-raid.html
+
+**After a Lull, Agents Conduct a Big Immigration Raid in L.A.**\
 `A rented Pensketruck was used to ferry agents to the Home Depot where the raid was conducted, days after an appeals court upheld an order limiting some enforcement tactics.`\
 https://nytimes.com/2025/08/06/us/los-angeles-immigration-raid.html
 
