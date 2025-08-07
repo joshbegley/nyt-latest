@@ -1,3 +1,7 @@
+**ESPN's best week ever? Company chairman Jimmy Pitaro addresses the major NFL, WWE moves**\
+`ESPN's top leader addressed a range of topics, across NFL Network, RedZone, NFL regular-season games, the Aug. 21 app launch and WWE.`\
+https://nytimes.com/athletic/6538956/2025/08/07/espn-nfl-wwe-jimmy-pitaro-app/
+
 **Cowboys OL coach to those concerned about the group's play: 'Be patient'**\
 `Offensive line coach Conor Riley breaks down the starting offensive linemen and a couple others who could factor into the rotation.`\
 https://nytimes.com/athletic/6539375/2025/08/07/cowboys-offensive-line-running-game/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6538108/2025/08/07/philadelphia-eagles-position-gro
 **Four Key Facts About Trump’s New Tariffs, and a Town Hall Showdown**\
 `Plus, inside the weight-loss drug wars.`\
 https://nytimes.com/2025/08/07/podcasts/the-headlines/trump-tariffs-town-hall-ozempic.html
-
-**Trump Said Family Separations Would End. They’re Happening Again.**\
-`The practice caused a global outcry in President Trump’s first term.`\
-https://nytimes.com/2025/08/07/podcasts/the-daily/trump-family-separations.html
 
