@@ -1,3 +1,7 @@
+**Victoria Mboko surges into Canadian Open final with comeback win over Elena Rybakina**\
+`Mboko came from a set down to oust the 2022 Wimbledon champion in a three-setter that ebbed and flowed to the end. `\
+https://nytimes.com/athletic/6539353/2025/08/06/tennis-victoria-mboko-canadian-open-elena-rybakina-result-analysis/
+
 **Eddie Palmieri, Latin Music’s Dynamic Innovator, Dies at 88**\
 `He roped salsa into conversation with jazz, rock, funk and even modern classical music. “A new world music,” one critic said, “is being born.”`\
 https://nytimes.com/2025/08/06/arts/music/eddie-palmieri-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/podcasts/100000010326438/beyonce-cowboy-carter-tour.ht
 **The Return of Family Separation**\
 `President Trump has revived his first-term policy of separating migrant children from their parents, and the more targeted version is happening far from the border.`\
 https://nytimes.com/2025/08/06/us/politics/trump-immigration-family-separation.html
-
-**SUNY Downstate Hospital Official Sentenced for Stealing $1.4 Million**\
-`Dr. Michael Lucchesi, the former chairman of emergency medicine, used hospital funds on personal vacations, concert tickets and luxury pet care.`\
-https://nytimes.com/2025/08/06/nyregion/suny-downstate-hospital-official-theft.html
 
