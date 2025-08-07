@@ -27,7 +27,7 @@ https://nytimes.com/2025/08/07/us/pennsylvania-state-troopers-shot.html
 https://nytimes.com/athletic/6540761/2025/08/07/rashawn-slater-chargers-injury-nfl-training-camp/
 
 **Swiss Businesses Fear Being ‘Annihilated’ by One of the World’s Highest Tariffs**\
-`Goods shipped from the country face a 39% tariff in the U.S., which companies warn will have dire consequences if President Trump cannot be quickly dissuaded.`\
+`Goods shipped from the country face a 39 percent tariff in the U.S., which companies warn will have dire consequences if President Trump cannot be quickly dissuaded.`\
 https://nytimes.com/2025/08/07/business/economy/swizterland-tariffs-trump.html
 
 **Spanish Officials Condemn City’s Ban on Religious Events as ‘Racist’**\
