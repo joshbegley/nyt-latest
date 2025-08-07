@@ -1,3 +1,7 @@
+**Remains of 3 Victims of 9/11 Are Identified From Minuscule Evidence**\
+`New York’s medical examiner is working methodically through a backlog of bones. “We’re talking about people putting in overtime 24 years later, for us,” said the son of one victim.`\
+https://nytimes.com/2025/08/07/nyregion/sept-11-victims-remains-identified.html
+
 **Weather Service Is Hiring Hundreds After Sweeping Cuts Earlier This Year**\
 `The federal forecasting agency plans to restore some of its losses from this year’s Trump administration cuts.`\
 https://nytimes.com/2025/08/07/weather/nws-hiring-doge-cuts.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/07/us/brandon-blackstock-dead-cancer-kelly-clarkson.
 **Nicholas Clapp, 89, Dies; ‘Real-Life Indiana Jones’ Pursued a Lost City**\
 `A documentary filmmaker and amateur archaeologist, he was consumed by the desire to find an ancient city in the Arabian desert known as Atlantis of the Sands.`\
 https://nytimes.com/2025/08/07/science/nicholas-clapp-dead.html
-
-**Big-Game Hunter, Eying His Next Trophy, Is Killed by Buffalo During Safari**\
-`Asher Watkins, a real estate executive from Texas, was tracking a Cape buffalo in South Africa when he was attacked, a safari company said.`\
-https://nytimes.com/2025/08/07/world/africa/big-game-hunter-killed-buffalo-safari-south-africa.html
 
