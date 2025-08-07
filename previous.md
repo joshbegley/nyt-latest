@@ -1,3 +1,7 @@
+**Cam Heyward not participating in team drills amid contract hold-in**\
+`The 36-year-old has suited up for the first 12 practices and participated in individual drills, but has not taken part in team drills.`\
+https://nytimes.com/athletic/6540832/2025/08/07/steelers-cam-heyward-contract-nfl-training-camp/
+
 **2 Dead After Helicopter Crashes Onto Barge in Mississippi River**\
 `The crash, which happened near the border of Missouri and Illinois, closed a bridge into Illinois.`\
 https://nytimes.com/2025/08/07/us/helicopter-crash-barge-missouri-mississippi.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/07/world/middleeast/egypt-affordable-housing-old-ren
 **Jaguars' Travis Hunter to play wide receiver and cornerback in preseason opener**\
 `"He’ll make plays wherever he is, but obviously as a quarterback, I hope he plays more on offense," Trevor Lawrence said of Hunter.`\
 https://nytimes.com/athletic/6540680/2025/08/07/jaguars-travis-hunter-wide-receiver-cornerback/
-
-**Two Pennsylvania State Troopers Are Shot, Governor Says**\
-`The troopers were shot while responding to a call in the northeastern part of the state, the authorities said.`\
-https://nytimes.com/2025/08/07/us/pennsylvania-state-troopers-shot.html
 

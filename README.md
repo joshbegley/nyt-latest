@@ -1,3 +1,7 @@
+**What's working and what needs improvement in the sports card industry, according to top leaders**\
+`We asked eight industry leaders for their current assessment of the sports card business — here's what they said`\
+https://nytimes.com/athletic/6540863/2025/08/07/sports-card-industry-trust-growth/
+
 **Cam Heyward not participating in team drills amid contract hold-in**\
 `The 36-year-old has suited up for the first 12 practices and participated in individual drills, but has not taken part in team drills.`\
 https://nytimes.com/athletic/6540832/2025/08/07/steelers-cam-heyward-contract-nfl-training-camp/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6540679/2025/08/07/inigo-martinez-al-nassr-barcelon
 **Rent for $1 a Month? Egypt Says No, Ending a System That Aided the Poor**\
 `Officials say a new law will rebalance a housing market long distorted by rigid rent controls, but many residents could be pushed out.`\
 https://nytimes.com/2025/08/07/world/middleeast/egypt-affordable-housing-old-rent.html
-
-**Jaguars' Travis Hunter to play wide receiver and cornerback in preseason opener**\
-`"He’ll make plays wherever he is, but obviously as a quarterback, I hope he plays more on offense," Trevor Lawrence said of Hunter.`\
-https://nytimes.com/athletic/6540680/2025/08/07/jaguars-travis-hunter-wide-receiver-cornerback/
 
