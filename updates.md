@@ -1,3 +1,7 @@
+**How hard is it to go all out in NASCAR's Next Gen car? 'You're always on the limit'**\
+`In the Next Gen car, drivers constantly walk the line between speed and disaster, relying on feel to keep from pushing their cars too far.`\
+https://nytimes.com/athletic/6538510/2025/08/07/nascar-next-gen-car-driving-speed-difficulty/
+
 **Southeast Asia Looks for Clarity From U.S. on ‘Rules of Origin’**\
 `Thailand, Vietnam and other countries in the region face much higher tariffs on exports with Chinese-made components. But questions remain on how the U.S. defines a locally made product.`\
 https://nytimes.com/2025/08/07/business/economy/southeast-asia-looks-for-clarity-from-us-on-rules-of-origin.html
