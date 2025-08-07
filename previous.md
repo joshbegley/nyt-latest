@@ -1,3 +1,7 @@
+**MLB bullpens impacting fantasy baseball. Finnegan gets two saves, Romero steps up**\
+`Greg Jewett tracks bullpen changes in the American and National leagues to help you locate the best relievers. `\
+https://nytimes.com/athletic/6540092/2025/08/07/fantasy-baseball-2025-bullpen-relievers-finnegan-romero/
+
 **Effect of U.S. Tariffs on British Companies ‘Milder Than Feared,’ Central Bank Says**\
 `Britain’s economy is driven by domestic factors more than global ones right now, the governor of the Bank of England said on Thursday, when the central bank cut interest rates.`\
 https://nytimes.com/2025/08/07/business/economy/tariffs-bank-of-england-interest-rates.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6539931/2025/08/07/ballon-dor-2025-shortlist/
 **Man Utd's new £200m attack: How Benjamin Sesko fits with Matheus Cunha and Bryan Mbeumo**\
 `United have agreed a deal for the RB Leipzig striker - this is how he'll dovetail with his fellow new forwards in Ruben Amorim's team`\
 https://nytimes.com/athletic/6539772/2025/08/07/manchester-united-sesko-cunha-mbeumo-plan/
-
-**Tottenham interested in Como midfielder Paz**\
-`Spurs are considering a move for the 20-year-old as they try to add more creativity to their squad before the start of the season.`\
-https://nytimes.com/athletic/6540216/2025/08/07/tottenham-como-nico-paz-interest/
 

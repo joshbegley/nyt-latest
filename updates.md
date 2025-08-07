@@ -1,3 +1,7 @@
+**MLB bullpens impacting fantasy baseball. Finnegan gets two saves, Romero steps up**\
+`Greg Jewett tracks bullpen changes in the American and National leagues to help you locate the best relievers. `\
+https://nytimes.com/athletic/6540092/2025/08/07/fantasy-baseball-2025-bullpen-relievers-finnegan-romero/
+
 **Effect of U.S. Tariffs on British Companies ‘Milder Than Feared,’ Central Bank Says**\
 `Britain’s economy is driven by domestic factors more than global ones right now, the governor of the Bank of England said on Thursday, when the central bank cut interest rates.`\
 https://nytimes.com/2025/08/07/business/economy/tariffs-bank-of-england-interest-rates.html
