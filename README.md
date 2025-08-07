@@ -1,3 +1,15 @@
+**Kaine Kesler-Hayden interview: 'Frank Lampard was a massive reason why I joined Coventry'**\
+`After proving his talent in the Championship on loan at Preston, the ex-Aston Villa defender wants to establish himself with a new team`\
+https://nytimes.com/athletic/6529675/2025/08/07/kesler-hayden-interview-lampard-coventry/
+
+**The key Premier League gaps that need to be filled before the transfer window shuts**\
+`Spending by Premier League clubs has already surpassed £1.8bn, but some are still without crucial players ahead of the new season`\
+https://nytimes.com/athletic/6538245/2025/08/07/premier-league-transfer-window-sesko-isak/
+
+**Football Architects: Tom Byer, the American coach behind Japan's technical revolution**\
+`By one metric, Tom Byer is arguably the most influential coach in the world`\
+https://nytimes.com/athletic/6445844/2025/08/07/football-architects-tom-byer-japan/
+
 **Staggering U.S. Tariffs Begin as Trump Widens Trade War**\
 `The duties, which the president announced last week, took effect for about 90 countries just after midnight.`\
 https://nytimes.com/2025/08/07/business/economy/trump-tariffs-trade-war.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/08/06/pageoneplus/quote-of-the-day-hiroshima-nagasaki-a
 **Naomi Osaka's comeback rolls on as she reaches first WTA 1000 final since 2022**\
 `Osaka dispatched Denmark's Clara Tauson Wednesday in Montreal to reach her first WTA 1000 final in three years.`\
 https://nytimes.com/athletic/6539653/2025/08/06/tennis-naomi-osaka-canadian-open-final-clara-tauson/
-
-**Here’s the latest.**\
-`By Tony Romm`\
-https://nytimes.com/live/2025/08/06/business/tariffs-trump-trade/heres-the-latest
-
-**Live Updates: U.S. Tariffs Take Effect, a New Step in Trump’s Trade War**\
-`Few major trading partners have been spared the import taxes, which have already disrupted supply chains and are expected to drive up prices for Americans.`\
-https://nytimes.com/live/2025/08/06/business/tariffs-trump-trade
-
-**Mindful of painful history, Red Sox make Roman Anthony the one who didn’t get away**\
-`Craig Breslow had high praise for Anthony’s impact on one of the more exciting Red Sox teams in the past few years.`\
-https://nytimes.com/athletic/6539635/2025/08/06/red-sox-roman-anthony-contract/
 
