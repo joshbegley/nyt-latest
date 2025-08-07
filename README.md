@@ -1,3 +1,7 @@
+**Mindful of painful history, Red Sox make Roman Anthony the one who didn’t get away**\
+`Craig Breslow had high praise for Anthony’s impact on one of the more exciting Red Sox teams in the past few years.`\
+https://nytimes.com/athletic/6539635/2025/08/06/mindful-of-painful-history-red-sox-make-roman-anthony-the-one-who-didnt-get-away/
+
 **Braves takeaways: Why their approach to situational hitting must improve in 2026**\
 `Plus, Grant Holmes discusses his choice to avoid surgery, the latest on Chris Sale and bad news for Joe Jiménez.`\
 https://nytimes.com/athletic/6539590/2025/08/06/braves-risp-grant-holmes-chris-sale/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/06/arts/music/eddie-palmieri-songs-albums.html
 **United Airlines Halts U.S. Flights Because of a System Outage**\
 `The airline said it expected additional flight delays through Wednesday night “as we work through the issue.”`\
 https://nytimes.com/2025/08/06/business/united-airlines-system-outage.html
-
-**Victoria Mboko surges into Canadian Open final with comeback win over Elena Rybakina**\
-`Mboko came from a set down to oust the 2022 Wimbledon champion in a three-setter that ebbed and flowed to the end. `\
-https://nytimes.com/athletic/6539353/2025/08/06/tennis-victoria-mboko-canadian-open-elena-rybakina-result-analysis/
 
