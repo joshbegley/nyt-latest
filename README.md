@@ -1,6 +1,26 @@
+**Barcelona strip Ter Stegen of captaincy, open 'disciplinary proceedings'**\
+`Centre-back and vice-captain Ronald Araujo will wear the armband, though Barcelona have described the measure as "temporary."`\
+https://nytimes.com/athletic/6418272/2025/08/07/barcelona-ter-stegen-captaincy/
+
+**Maddison's ACL injury will devastate him. Spurs need to react or risk damaging Frank's first season**\
+`The Spurs and England midfielder will be out of action for much of the coming campaign after knee surgery`\
+https://nytimes.com/athletic/6536388/2025/08/07/james-maddison-tottenham-injury-spurs-transfer/
+
+**After Donations, Trump Sided With Health Firms on Medicare Funds for Pricey Wound Care**\
+`The president posted talking points provided by one firm that donated millions, and his administration delayed a change that could have hurt the company and others like it.`\
+https://nytimes.com/2025/08/07/us/politics/trump-medicare-bandages-donors.html
+
+**California Start-Up Will Buy Assets of Bankrupt Swedish Battery Maker**\
+`Lyten will acquire German and Swedish factories built by Northvolt, which declared bankruptcy in March.`\
+https://nytimes.com/2025/08/07/business/lyten-northvolt-ev-batteries.html
+
+**Sesko: Manchester United reach agreement with RB Leipzig for striker**\
+`A deal consisting of an initial €76.5million plus €8.5m in add-ons has been accepted.`\
+https://nytimes.com/athletic/6538359/2025/08/07/benjamin-sesko-manchester-united-transfer/
+
 **What Will Be the Next Big Media Deal?**\
 `As Skydance completes its acquisition of Paramount, the stage is set for more deal making in the crowded streaming wars.`\
-https://nytimes.com/2025/08/07/business/skydance-paramount-media-deal.html
+https://nytimes.com/2025/08/07/business/dealbook/skydance-paramount-media-deal.html
 
 **The Windup: A long-overdue MLB first**\
 `The Windup Newsletter ⚾ | This is The Athletic’s MLB newsletter.`\
@@ -17,24 +37,4 @@ https://nytimes.com/2025/08/07/us/politics/texas-redistricting-cornyn-fbi.html
 **Dean Cain, Who Played Superman, Says He Is Joining ICE**\
 `The actor told Fox News he will sign up as an immigration officer, as the Trump administration recruits more personnel to staff its deportation campaign.`\
 https://nytimes.com/2025/08/07/us/dean-cain-superman-ice.html
-
-**Markets Rise, Taking Steeper Tariffs in Stride**\
-`Major indexes in Asia and Europe posted gains and U.S. futures climbed in premarket trading.`\
-https://nytimes.com/2025/08/07/business/economy/trump-tariffs-stock-market.html
-
-**NHL's new wisest spenders. Plus: Happy birthday to a hockey legend**\
-`Sidney Crosby turns 38 today, so let's walk down memory lane.`\
-https://nytimes.com/athletic/6540099/2025/08/07/nhl-red-light-newsletter-sidney-crosby/
-
-**As Trump Administration Plans to Burn Contraceptives, Europeans Are Alarmed**\
-`The U.S. government intends to incinerate $9.7 million in already-purchased birth control in Belgium after U.S.A.I.D shut down. Destruction may have already started.`\
-https://nytimes.com/2025/08/07/world/europe/usaid-contraceptives-trump.html
-
-**Inside Müller's move to Vancouver: Details behind the Bayern legend's shocker**\
-`Players of Thomas Müller's renown don't typically wind up in Vancouver. So how did the Whitecaps lure the Bayern and German great?`\
-https://nytimes.com/athletic/6539529/2025/08/07/inside-thomas-mullers-move-to-vancouver-details-behind-the-bayern-legends-shocker/
-
-**Where New India Tariffs Could Hit? Your Kitchen Cabinet.**\
-`Many cooking spices are imported from India, and the 50 percent tariffs on the country’s imports could drive costs higher.`\
-https://nytimes.com/2025/08/07/business/india-tariffs-spices.html
 
