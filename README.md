@@ -1,3 +1,11 @@
+**Apple C.E.O. Gifts Trump Gold**\
+`Tim Cook presented a glass plaque on a gold base to President Trump and pledged a $100 billion investment in the U.S. as Trump threatened a 100 percent tariff on semiconductors.`\
+https://nytimes.com/video/business/economy/100000010328133/trump-apple-investment.html
+
+**Philippine Senate Shelves Impeachment of Vice President Sara Duterte**\
+`The Senate set aside the trial of Sara Duterte, a rival of President Ferdinand Marcos Jr. She and her party won more seats than expected in midterm elections in May.`\
+https://nytimes.com/2025/08/07/world/asia/philippines-vice-president-impeachment.html
+
 **Firefighters in France Battle Largest Blaze in Decades**\
 `Prime Minister François Bayrou described the nearly 40,000 acre fire, which has killed one person, as a “catastrophe on an unprecedented scale.”`\
 https://nytimes.com/2025/08/07/world/europe/france-fire-aude.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6539235/2025/08/07/viktor-gyokeres-arsenal-villarre
 **Word of the Day: emulsify**\
 `This word has appeared in six articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2025/08/07/learning/word-of-the-day-emulsify.html
-
-**Overturning the global trade system, Trump puts his ideas to the test.**\
-`By Ana Swanson`\
-https://nytimes.com/live/2025/08/06/business/tariffs-trump-trade/overturning-the-global-trade-system-trump-puts-his-ideas-to-the-test
-
-**Ben Shelton beats fellow American Taylor Fritz to reach a new career milestone**\
-`Shelton, the rising 22-year-old American, made his first Masters 1000 final after beating his compatriot. Russia's Karen Khachanov is next.`\
-https://nytimes.com/athletic/6539690/2025/08/07/ben-shelton-taylor-fritz-canadian-open-semifinals-2/
 
