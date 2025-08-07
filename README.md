@@ -1,4 +1,8 @@
-**Ballon d’Or 2025 shortlist: Bellingham, Palmer, Rice, Kane among nominees**\
+**Dele Alli to leave Como but plans to continue playing**\
+`Dele, 29, joined Como as a free agent in January after his contract at Everton expired in June 2024.`\
+https://nytimes.com/athletic/6531724/2025/08/07/dele-alli-to-leave-como-but-plans-to-continue-playing/
+
+**Ballon d’Or 2025 shortlist: Yamal, Raphinha, Dembele among nominees**\
 `The winners will be announced in Paris on September 22.`\
 https://nytimes.com/athletic/6539931/2025/08/07/ballon-dor-2025-shortlist/
 
@@ -26,15 +30,11 @@ https://nytimes.com/athletic/6418272/2025/08/07/barcelona-ter-stegen-captaincy/
 `The Spurs and England midfielder will be out of action for much of the coming campaign after knee surgery`\
 https://nytimes.com/athletic/6536388/2025/08/07/james-maddison-tottenham-injury-spurs-transfer/
 
-**After Donations, Trump Sided With Health Firms on Medicare Funds for Pricey Wound Care**\
-`The president posted talking points provided by one firm that donated millions, and his administration delayed a change that could have hurt the company and others like it.`\
+**Trump Delayed a Medicare Change After Health Companies’ Donations**\
+`The president posted talking points provided by one firm that donated millions, and his administration delayed a change on coverage of pricey bandages that could have hurt the company.`\
 https://nytimes.com/2025/08/07/us/politics/trump-medicare-bandages-donors.html
 
 **California Start-Up Will Buy Assets of Bankrupt Swedish Battery Maker**\
 `Lyten will acquire German and Swedish factories built by Northvolt, which declared bankruptcy in March.`\
 https://nytimes.com/2025/08/07/business/lyten-northvolt-ev-batteries.html
-
-**Sesko: Manchester United reach agreement with RB Leipzig for striker**\
-`A deal consisting of an initial €76.5million plus €8.5m in add-ons has been accepted.`\
-https://nytimes.com/athletic/6538359/2025/08/07/benjamin-sesko-manchester-united-transfer/
 
