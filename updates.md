@@ -1,3 +1,7 @@
+**Patriots unveil Tom Brady statue ahead of preseason opener**\
+`Legendary quarterback in a joking mood as 17-foot-tall statue is revealed at ceremony, saying now he can be described "as chiseled."`\
+https://nytimes.com/athletic/6543021/2025/08/08/tom-brady-patriots-statue-gillette-stadium/
+
 **Trump Officials Press Case Against Harvard, and Add a New Investigation**\
 `The administration doubled down against Harvard, asserting that rising violent crime on campus meant the school should not host international students. It will also review the school’s patents.`\
 https://nytimes.com/2025/08/08/us/trump-harvard-patent-investigation-international-students.html

@@ -1,3 +1,7 @@
+**Patriots unveil Tom Brady statue ahead of preseason opener**\
+`Legendary quarterback in a joking mood as 17-foot-tall statue is revealed at ceremony, saying now he can be described "as chiseled."`\
+https://nytimes.com/athletic/6543021/2025/08/08/tom-brady-patriots-statue-gillette-stadium/
+
 **Trump Officials Press Case Against Harvard, and Add a New Investigation**\
 `The administration doubled down against Harvard, asserting that rising violent crime on campus meant the school should not host international students. It will also review the school’s patents.`\
 https://nytimes.com/2025/08/08/us/trump-harvard-patent-investigation-international-students.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/08/us/william-h-webster-dead.html
 **Minnesota Man Is Sentenced to 28 Years in Federal Food Aid Fraud**\
 `Abdiaziz Shafii Farah, 36, played a leading role in a scheme that stole more than $47 million from a program meant to feed children during the Covid-19 pandemic, prosecutors said.`\
 https://nytimes.com/2025/08/08/us/minnesota-pandemic-child-food-fraud.html
-
-**‘Chimp Crazy’ Star Gets Nearly 4 Years in Prison for Lying About Ape’s Death**\
-`Prosecutors said that Tonia Haddix perjured herself to avoid giving up custody of Tonka, who had appeared in the movies ‘George of the Jungle’ and ‘Buddy.’`\
-https://nytimes.com/2025/08/08/us/chimp-crazy-tonia-haddix-prison-sentence.html
 
