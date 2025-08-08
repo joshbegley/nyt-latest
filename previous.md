@@ -1,3 +1,15 @@
+**Mexico’s President Denies U.S. Will Use Military in Her Country**\
+`The Mexican government thought it hard turned a corner in cooperating with the Trump administration on combating the cartels, having launched an aggressive crackdown of its own.`\
+https://nytimes.com/2025/08/08/world/americas/mexico-trump-military-cartels.html
+
+**Fantasy Premier League 2025-26 pre-season mailbag: Send in your questions now**\
+`Send in your questions for Abdul Rehman ahead of the start of the new FPL season now`\
+https://nytimes.com/athletic/6542588/2025/08/08/fantasy-premier-league-2025-26-pre-season-mailbag-send-in-your-questions-now/
+
+**Sunderland confident of completing signing of Masuaku**\
+`The 31-year-old former West Ham United defender is a free agent after leaving Besiktas in July.`\
+https://nytimes.com/athletic/6542606/2025/08/08/sunderland-masuaku-transfer-news/
+
 **'College Football RedZone': 5 reasons the idea feels like a non-starter**\
 `The qualities that make "NFL RedZone" unique and compelling are why it would struggle as a college football show.`\
 https://nytimes.com/athletic/6542477/2025/08/08/college-football-redzone-espn-nfl/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6542273/2025/08/08/fantasy-football-news-caleb-will
 **A Salmon Dish That’s Simple Perfection**\
 `Chan chan yaki: Sauté vegetables in a skillet, then top with miso-buttered salmon to steam until the fish is just cooked through. Serve with rice and a cold beer.`\
 https://nytimes.com/2025/08/08/dining/easy-chan-chan-yaki-miso-butter-salmon-recipe.html
-
-**‘The Gilded Age’ Goes to Newport. But of Course.**\
-`The Rhode Island getaway for the wealthy plays a key role in HBO’s lavish soap opera of the 1880s.`\
-https://nytimes.com/2025/08/08/style/the-gilded-age-goes-to-newport-but-of-course.html
-
-**Five Action Movies to Stream Now**\
-`This month’s picks include a vengeful ghost, a deadly lawyer, a bumbling salesman and more.`\
-https://nytimes.com/2025/08/08/movies/five-action-movies-to-stream-now.html
-
-**When a Close Relationship Becomes ‘Enmeshment’**\
-`If you’ve lost yourself in a relationship, it may be time to untangle your identities and establish clearer boundaries.`\
-https://nytimes.com/2025/08/08/well/mind/psych101-enmeshment.html
 

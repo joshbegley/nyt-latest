@@ -1,3 +1,15 @@
+**Mexico’s President Denies U.S. Will Use Military in Her Country**\
+`The Mexican government thought it hard turned a corner in cooperating with the Trump administration on combating the cartels, having launched an aggressive crackdown of its own.`\
+https://nytimes.com/2025/08/08/world/americas/mexico-trump-military-cartels.html
+
+**Fantasy Premier League 2025-26 pre-season mailbag: Send in your questions now**\
+`Send in your questions for Abdul Rehman ahead of the start of the new FPL season now`\
+https://nytimes.com/athletic/6542588/2025/08/08/fantasy-premier-league-2025-26-pre-season-mailbag-send-in-your-questions-now/
+
+**Sunderland confident of completing signing of Masuaku**\
+`The 31-year-old former West Ham United defender is a free agent after leaving Besiktas in July.`\
+https://nytimes.com/athletic/6542606/2025/08/08/sunderland-masuaku-transfer-news/
+
 **'College Football RedZone': 5 reasons the idea feels like a non-starter**\
 `The qualities that make "NFL RedZone" unique and compelling are why it would struggle as a college football show.`\
 https://nytimes.com/athletic/6542477/2025/08/08/college-football-redzone-espn-nfl/

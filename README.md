@@ -1,5 +1,9 @@
+**Joe Mazzulla reaches contract extension to remain Celtics coach**\
+`Mazzulla, who led the Celtics to their 18th championship a year ago, was entering the final year of his contract with the team.`\
+https://nytimes.com/athletic/6542611/2025/08/08/celtics-joe-mazzulla-contract-extension/
+
 **Mexico’s President Denies U.S. Will Use Military in Her Country**\
-`The Mexican government thought it hard turned a corner in cooperating with the Trump administration on combating the cartels, having launched an aggressive crackdown of its own.`\
+`The Mexican government thought it had turned a corner in cooperating with the Trump administration on combating the cartels, having launched an aggressive crackdown of its own.`\
 https://nytimes.com/2025/08/08/world/americas/mexico-trump-military-cartels.html
 
 **Fantasy Premier League 2025-26 pre-season mailbag: Send in your questions now**\
@@ -15,7 +19,7 @@ https://nytimes.com/athletic/6542606/2025/08/08/sunderland-masuaku-transfer-news
 https://nytimes.com/athletic/6542477/2025/08/08/college-football-redzone-espn-nfl/
 
 **Yadier Molina to return to Cardinals, will be in uniform as coach for Cubs series**\
-`It's Molina's first time back with the Cardinals since he retired after the 2022 season.`\
+`It's Molina's first time with the Cardinals since he retired after the 2022 season.`\
 https://nytimes.com/athletic/6541543/2025/08/08/yadier-molina-cardinals-return-cubs-series/
 
 **Fire Destroys New Jersey Synagogue**\
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/08/books/review/podcast-annie-jacobsen-nuclear-war.h
 **Caleb Williams trolls, Anthony Richardson injury and other fantasy football news**\
 `The Athletic's new columnist Andy Behrens details the latest fantasy-relevant news from around the league, including some rookie hype.`\
 https://nytimes.com/athletic/6542273/2025/08/08/fantasy-football-news-caleb-williams-anthony-richardson/
-
-**A Salmon Dish That’s Simple Perfection**\
-`Chan chan yaki: Sauté vegetables in a skillet, then top with miso-buttered salmon to steam until the fish is just cooked through. Serve with rice and a cold beer.`\
-https://nytimes.com/2025/08/08/dining/easy-chan-chan-yaki-miso-butter-salmon-recipe.html
 
