@@ -1,3 +1,7 @@
+**Bournemouth confirm goalkeeper Neto permanent transfer to Botafogo**\
+`The 36-year-old is the second goalkeeper to leave the Vitality Stadium this summer.`\
+https://nytimes.com/athletic/6542784/2025/08/08/bournemouth-goalkeeper-neto-botafogo-transfer/
+
 **Marjorie Taylor Greene Pushes Back Against Criticism From AIPAC**\
 `The American Israel Public Affairs Committee said the Georgia Republican was betraying “American values.” She says she is upholding “America First.”`\
 https://nytimes.com/2025/08/08/us/politics/gaza-genocide-aipac-marjorie-taylor-greene.html
@@ -29,8 +33,4 @@ https://nytimes.com/2025/08/08/opinion/assisted-suicide.html
 **Evann Guessand to Aston Villa: Everything you need to know – TLDR**\
 `Aston Villa have signed Evann Guessand from Nice for a fee worth €35million (£30.4m; $40.5m)`\
 https://nytimes.com/athletic/6542580/2025/08/08/evann-guessand-aston-villa-transfer-analysis/
-
-**Victoria Mboko and Naomi Osaka withdraw from Cincinnati Open after Canadian Open final**\
-`Osaka joined Mboko in pulling out of the main tuneup for the U.S. Open after their gripping contest in Montreal.`\
-https://nytimes.com/athletic/6542672/2025/08/08/tennis-mboko-osaka-withdraw-cincinnati-open/
 

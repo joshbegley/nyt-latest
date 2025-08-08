@@ -1,3 +1,7 @@
+**Robert Pursley, 97, Dies; Pentagon Aide Became Critic of Vietnam War**\
+`Defense Secretary Robert McNamara tasked him with creating an encyclopedic history of the war, which became known as the Pentagon Papers.`\
+https://nytimes.com/2025/08/08/us/politics/robert-e-pursley-dead.html
+
 **Marjorie Taylor Greene Pushes Back Against Criticism From AIPAC**\
 `The American Israel Public Affairs Committee said the Georgia Republican was betraying “American values.” She says she is upholding “America First.”`\
 https://nytimes.com/2025/08/08/us/politics/gaza-genocide-aipac-marjorie-taylor-greene.html
