@@ -14,7 +14,7 @@ https://nytimes.com/2025/08/08/world/middleeast/israel-hostages-gaza-hamas.html
 `Here's how to catch this weekend's Cubs at Cardinals series, an August brew of historic hostilities.`\
 https://nytimes.com/athletic/6542449/2025/08/08/cubs-cardinals-espn-fox-marquee-how-to-watch/
 
-**Robert Pursley, 97, Dies; Pentagon Aide Became a Critic of Vietnam War**\
+**Robert Pursley, 97, Dies; Pentagon Aide Became Critic of Vietnam War**\
 `Defense Secretary Robert McNamara tasked him with creating an encyclopedic history of the war, which became known as the Pentagon Papers.`\
 https://nytimes.com/2025/08/08/us/politics/robert-e-pursley-dead.html
 
