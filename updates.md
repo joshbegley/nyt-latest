@@ -1,3 +1,7 @@
+**Why Manchester United are interested in Carlos Baleba, Brighton's free-running, press-resistant midfielder**\
+`Manchester United have spent £200m on a new front three - now they want to rework their midfield`\
+https://nytimes.com/athletic/6540324/2025/08/08/manchester-united-carlos-baleba-transfer/
+
 **Liverpool season betting preview: Should Reds be expected to defend Premier League crown?**\
 `Fresh off a Premier League triumph, Liverpool are favoured to win the league again. Can the Reds also make a run in the Champions League?`\
 https://nytimes.com/athletic/6540645/2025/08/08/liverpool-season-betting-preview-odds/

@@ -15,7 +15,7 @@ https://nytimes.com/2025/08/08/crosswords/spelling-bee-forum.html
 https://nytimes.com/2025/08/08/nyregion/new-york-city-mayors-race-education-mamdani.html
 
 **Why Manchester United are interested in Carlos Baleba, Brighton's free-running, press-resistant midfielder**\
-`With the potential Baleba showed last season, it's hardly surprising that he is the next name to be snatched from Brighton's production line`\
+`Manchester United have spent £200m on a new front three - now they want to rework their midfield`\
 https://nytimes.com/athletic/6540324/2025/08/08/manchester-united-carlos-baleba-transfer/
 
 **Japan Says Trump to Correct ‘Extremely Regrettable’ Error in Tariff Order**\
