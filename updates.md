@@ -1,3 +1,15 @@
+**The Windup: The Pirates’ Weird & Wild month**\
+`Welcome to The Windup, The Athletic's MLB newsletter.`\
+https://nytimes.com/athletic/6541951/2025/08/08/pirates-jayson-stark-the-windup/
+
+**Judge dismisses 1983 NC State basketball players' NIL lawsuit vs. NCAA**\
+`Twelve members of 1983 team sued the NCAA last year, arguing they were illegally denied name, image and likeness compensation.`\
+https://nytimes.com/athletic/6542287/2025/08/08/nc-state-1983-basketball-lawsuit-nil-dismissed/
+
+**Justice Department Subpoenas Office of Letitia James, a Trump Nemesis**\
+`Ms. James, New York’s attorney general, won a civil fraud case against President Trump that is on appeal. One of the two subpoenas is related to that case.`\
+https://nytimes.com/2025/08/08/nyregion/letitia-james-subpoena-trump-doj.html
+
 **A Texas Cottage That Feels Like a European Artist’s Retreat**\
 `Inside their Austin bungalow, a couple has created a vibrant, salon-like atmosphere.`\
 https://nytimes.com/2025/08/08/t-magazine/rf-alvarez-austin-texas-home.html
