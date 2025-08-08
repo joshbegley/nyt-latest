@@ -1,3 +1,15 @@
+**Fire Destroys New Jersey Synagogue**\
+`The congregation’s rabbi and his family, who were sleeping in an apartment inside the synagogue when the fire broke out, escaped the building before it collapsed.`\
+https://nytimes.com/video/us/100000010330814/fire-destroys-new-jersey-synagogue.html
+
+**Canada’s Girl Guides Suspend U.S. Trips Amid Trump’s Immigration Crackdown**\
+`The organization, Canada’s equivalent of the Girl Scouts, said it was pausing the trips out of safety concerns for its members.`\
+https://nytimes.com/2025/08/08/world/canada/girl-guides-canada-us-trips-trump-border.html
+
+**This Reporter Can Tell Us What Nuclear Apocalypse Looks Like**\
+`Annie Jacobsen discusses her 2024 book “Nuclear War: A Scenario.”`\
+https://nytimes.com/2025/08/08/books/review/podcast-annie-jacobsen-nuclear-war.html
+
 **Caleb Williams trolls, Anthony Richardson injury and other fantasy football news**\
 `The Athletic's new columnist Andy Behrens details the latest fantasy-relevant news from around the league, including some rookie hype.`\
 https://nytimes.com/athletic/6542273/2025/08/08/fantasy-football-news-caleb-williams-anthony-richardson/
