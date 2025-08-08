@@ -1,3 +1,15 @@
+**F.A.A. Plans to Hire 8,900 Air Traffic Controllers but Still Expects Shortages**\
+`The Federal Aviation Administration says it plans to “supercharge” hiring and training between now and late 2028. It would not be enough to end a shortage of controllers.`\
+https://nytimes.com/2025/08/08/us/politics/faa-air-traffic-controllers.html
+
+**How the Wisden Cricketers' Almanack became the bible of cricket and a reflection of societal change**\
+`The world's longest-running sports book is a collector's favourite, its cricketing stats and stories leading readers down rabbit holes`\
+https://nytimes.com/athletic/6497417/2025/08/08/wisden-cricketers-almanack-society-collectors/
+
+**Friday Briefing: Israel Approves Full Military Takeover of Gaza**\
+`Also, world leaders react to Trump’s tariffs.`\
+https://nytimes.com/2025/08/08/briefing/gaza-military-takeover-trump-tariffs-kremlin-trump-meeting.html
+
 **Arsenal's breakthrough player to watch: Max Dowman**\
 `The 15-year-old has impressed for England youth and on tour with Arsenal, but care will be needed with his progression this season`\
 https://nytimes.com/athletic/6527590/2025/08/08/arsenal-max-dowman-breakthrough-player/
