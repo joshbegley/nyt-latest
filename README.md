@@ -1,3 +1,7 @@
+**Word of the Day: canopy**\
+`This word has appeared in 164 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2025/08/08/learning/word-of-the-day-canopy.html
+
 **The New York Times in Print for Friday, Aug. 8, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/08/08/todays-new-york-times
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6540063/2025/08/08/everton-grealish-unwelcome-throw
 **Why Brighton's ability to attract and hold on to South Americans is dwindling**\
 `Tony Bloom's club used to have an impressive stable of players from Ecuador, Colombia and Argentina but those days are fast disappearing`\
 https://nytimes.com/athletic/6534318/2025/08/08/brighton-south-american-players/
-
-**FPL: Chip strategies for the first half of the season**\
-`FPL's rule changes have given managers a set of chips to burn before the second half of the season - so when should we use them?`\
-https://nytimes.com/athletic/6521493/2025/08/08/fantasy-premier-league-chip-strategies-wildcard-triple-free/
 
