@@ -1,3 +1,7 @@
+**Bournemouth confirm goalkeeper Neto permanent transfer to Botafogo**\
+`The 36-year-old is the second goalkeeper to leave the Vitality Stadium this summer.`\
+https://nytimes.com/athletic/6542784/2025/08/08/bournemouth-goalkeeper-neto-botafogo-transfer/
+
 **Robert Pursley, 97, Dies; Pentagon Aide Became Critic of Vietnam War**\
 `Defense Secretary Robert McNamara tasked him with creating an encyclopedic history of the war, which became known as the Pentagon Papers.`\
 https://nytimes.com/2025/08/08/us/politics/robert-e-pursley-dead.html
