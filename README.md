@@ -3,7 +3,7 @@
 https://nytimes.com/athletic/6540655/2025/08/07/houston-texans-cj-gardner-johnson-injury/
 
 **Victoria Mboko tops Naomi Osaka in Canadian Open final to earn first WTA win**\
-`Mboko, the 18-year-old hometown hero, storms past Naomi Osaka, 2-6, 6-4, 6-1.`\
+`Mboko, the 18-year-old hometown hero, storms past Osaka, 2-6, 6-4, 6-1.`\
 https://nytimes.com/athletic/6541484/2025/08/07/naomi-osaka-victoria-mboko-canadian-open-final/
 
 **Still Fuming Over a Weak Jobs Report, Trump Finds Some Numbers He Likes**\
