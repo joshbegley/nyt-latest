@@ -1,3 +1,7 @@
+**Word of the Day: canopy**\
+`This word has appeared in 164 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2025/08/08/learning/word-of-the-day-canopy.html
+
 **She’s a Democratic Bellwether, and She’s Changing Her Position on Israel**\
 `Amy Klobuchar has taken a crucial step toward the view of the party’s base.`\
 https://nytimes.com/2025/08/08/opinion/democrats-gaza-klobuchar-booker.html
