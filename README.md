@@ -1,3 +1,7 @@
+**War of Words Erupts Between Colombia and Peru Over Island in Amazon**\
+`Both nations claim Santa Rosa de Yavarí, a tiny island of just 3,000 people that sits in the Amazon River, more than a thousand miles from their capitals.`\
+https://nytimes.com/2025/08/08/world/americas/colombia-peru-amazon-island.html
+
 **Gold Market Is Shaken by Unexpected U.S. Tariff Ruling**\
 `Some of the most widely used types of gold bars would be subject to U.S. tariffs, customs agency officials ruled, a particular blow to Switzerland’s large gold refining industry.`\
 https://nytimes.com/2025/08/08/business/tariffs-gold-price-switzerland.html
@@ -29,8 +33,4 @@ https://nytimes.com/2025/08/08/world/middleeast/israel-hostages-gaza-hamas.html
 **This weekend's Cubs-Cardinals series is on 3 different networks. Here's how to tune in**\
 `Here's how to catch this weekend's Cubs at Cardinals series, an August brew of historic hostilities.`\
 https://nytimes.com/athletic/6542449/2025/08/08/cubs-cardinals-espn-fox-marquee-how-to-watch/
-
-**Robert Pursley, 97, Dies; Pentagon Aide Became Critic of Vietnam War**\
-`Defense Secretary Robert McNamara tasked him with creating an encyclopedic history of the war, which became known as the Pentagon Papers.`\
-https://nytimes.com/2025/08/08/us/politics/robert-e-pursley-dead.html
 
