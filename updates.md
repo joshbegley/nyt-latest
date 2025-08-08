@@ -1,3 +1,11 @@
+**Endrick given No 9 shirt: Explaining the significance of Real Madrid shirt numbers**\
+`Reports had suggested that Gonzalo Garcia may inherit the No 9 but The Athletic can reveal that it will be handed to Endrick.`\
+https://nytimes.com/athletic/6536811/2025/08/08/real-madrid-endrick-9-shirt-news/
+
+**What to Know About the Israeli Hostages Still Held in Gaza**\
+`A group representing many of the hostages’ families has said the Israeli security cabinet’s plan to take control of Gaza City could further endanger their loved ones.`\
+https://nytimes.com/2025/08/08/world/middleeast/israel-hostages-gaza-hamas.html
+
 **This weekend's Cubs-Cardinals series is on 3 different networks. Here's how to tune in**\
 `Here's how to catch this weekend's Cubs at Cardinals series, an August brew of historic hostilities.`\
 https://nytimes.com/athletic/6542449/2025/08/08/cubs-cardinals-espn-fox-marquee-how-to-watch/
