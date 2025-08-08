@@ -1,3 +1,15 @@
+**The Windup: The Pirates’ Weird & Wild month**\
+`Welcome to The Windup, The Athletic's MLB newsletter.`\
+https://nytimes.com/athletic/6541951/2025/08/08/pirates-jayson-stark-the-windup/
+
+**Judge dismisses 1983 NC State basketball players' NIL lawsuit vs. NCAA**\
+`Twelve members of 1983 team sued the NCAA last year, arguing they were illegally denied name, image and likeness compensation.`\
+https://nytimes.com/athletic/6542287/2025/08/08/nc-state-1983-basketball-lawsuit-nil-dismissed/
+
+**Justice Department Subpoenas Office of Letitia James, a Trump Nemesis**\
+`Ms. James, New York’s attorney general, won a civil fraud case against President Trump that is on appeal. One of the two subpoenas is related to that case.`\
+https://nytimes.com/2025/08/08/nyregion/letitia-james-subpoena-trump-doj.html
+
 **A Texas Cottage That Feels Like a European Artist’s Retreat**\
 `Inside their Austin bungalow, a couple has created a vibrant, salon-like atmosphere.`\
 https://nytimes.com/2025/08/08/t-magazine/rf-alvarez-austin-texas-home.html
@@ -21,16 +33,4 @@ https://nytimes.com/2025/08/08/climate/aligator-alcatraz-everglades-airport.html
 **How Three Journalists Tracked the Deadly Aid Crisis in Gaza**\
 `Interviews, data, witness footage, satellite imagery, photography and more helped the reporters capture a deteriorating situation.`\
 https://nytimes.com/2025/08/08/insider/how-three-journalists-tracked-gaza-aid-crisis.html
-
-**Chad Michael Murray Is Trying to Make Good Choices**\
-`The former teen heartthrob is revisiting a formative role in “Freakier Friday,” but a lot has changed in 22 years, on- and offscreen.`\
-https://nytimes.com/2025/08/08/movies/chad-michael-murray-interview-freakier-friday.html
-
-**Nwaneri is a special talent who 'makes things happen' - his long-term deal is symbolic for Arsenal**\
-`The teenage midfielder was born to be Arsenal. He is adored by his manager, team-mates and supporters - and now staying long-term`\
-https://nytimes.com/athletic/6497525/2025/08/08/arsenal-ethan-nwaneri-contract-fans/
-
-**India’s Modi Left Soul-Searching After Failed Courtships of Xi and Trump**\
-`The collapse of the Indian prime minister’s high-stakes personal efforts to transform India’s ties with the world’s two superpowers has exposed the limits of India’s leverage.`\
-https://nytimes.com/2025/08/08/world/asia/modi-india-trump-china-tariffs.html
 
