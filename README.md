@@ -1,3 +1,7 @@
+**Hampton threw Coll's notes into crowd during Euro final penalty shoot-out**\
+`Hampton said she discarded Coll's water bottle with her notes on into the English fans.`\
+https://nytimes.com/athletic/6542535/2025/08/08/hannah-hampton-water-bottle-spain-goalkeeper-euro-2025-shoot-out/
+
 **Burnley sign Armando Broja from Chelsea on permanent deal**\
 `Broja spent the 2024-25 season on loan at Everton where he made 13 appearances, two of which for the under-21 team.`\
 https://nytimes.com/athletic/6531991/2025/08/08/chelsea-burnley-broja-transfer-news-complete/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6541543/2025/08/08/yadier-molina-cardinals-return-c
 **Fire Destroys New Jersey Synagogue**\
 `The congregation’s rabbi and his family, who were sleeping in an apartment inside the synagogue when the fire broke out, escaped the building before it collapsed.`\
 https://nytimes.com/video/us/100000010330814/fire-destroys-new-jersey-synagogue.html
-
-**Canada’s Girl Guides Suspend U.S. Trips Amid Trump’s Immigration Crackdown**\
-`The organization, Canada’s equivalent of the Girl Scouts, said it was pausing the trips out of safety concerns for its members.`\
-https://nytimes.com/2025/08/08/world/canada/girl-guides-canada-us-trips-trump-border.html
 

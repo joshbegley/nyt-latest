@@ -1,3 +1,11 @@
+**Burnley sign Armando Broja from Chelsea on permanent deal**\
+`Broja spent the 2024-25 season on loan at Everton where he made 13 appearances, two of which for the under-21 team.`\
+https://nytimes.com/athletic/6531991/2025/08/08/chelsea-burnley-broja-transfer-news-complete/
+
+**Thomas Frank interview: Spurs summer work, Levy relationship and partying until 5am**\
+`The move from Brentford to Tottenham represents a huge step up in the Danish coach's career, but he knows the scale of the challenge ahead`\
+https://nytimes.com/athletic/6540241/2025/08/08/thomas-frank-interview-tottenham-spurs-party/
+
 **Mexico’s President Says U.S. Forces Are Unwelcome in Her Country**\
 `The Mexican government thought it had turned a corner in cooperating with the Trump administration on combating the cartels, having launched an aggressive crackdown of its own.`\
 https://nytimes.com/2025/08/08/world/americas/mexico-trump-military-cartels.html
