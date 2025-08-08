@@ -1,3 +1,7 @@
+**Indiana Fever lose guards Sydney Colson and Aari McDonald for the season**\
+`Both were injured in a loss to Phoenix on Friday. With Caitlin Clark still out, Indiana now has zero healthy guards.`\
+https://nytimes.com/athletic/6543046/2025/08/08/indiana-fever-sydney-colson-aari-mcdonald-injured/
+
 **Firefighters Begin to Contain Growing Wildfire Northwest of L.A.**\
 `The blaze, called the Canyon fire, began early Thursday afternoon near Lake Piru, a reservoir about 60 miles northwest of downtown Los Angeles.`\
 https://nytimes.com/2025/08/08/us/canyon-fire-los-angeles.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/08/briefing/trump-drug-cartels-ucla-billion-dollar-f
 **The Lasting Appeal of John F. Kennedy Jr.**\
 `A CNN documentary and an upcoming series by Ryan Murphy delve into the nation’s most famous son, who remains fixed in the 1990s.`\
 https://nytimes.com/2025/08/08/style/jfk-jr-cnn-ryan-murphy.html
-
-**Female Rappers Are Having All the Fun**\
-`Our critic’s latest Song of the Week, the Southern rap track “Whim Whamiee,” is just the latest example of a power shift in the genre.`\
-https://nytimes.com/video/podcasts/100000010330880/whim-whammiee-sotw.html
 

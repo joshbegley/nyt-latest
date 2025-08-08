@@ -1,3 +1,7 @@
+**Indiana Fever lose guards Sydney Colson and Aari McDonald for the season**\
+`Both were injured in a loss to Phoenix on Friday. With Caitlin Clark still out, Indiana now has zero healthy guards.`\
+https://nytimes.com/athletic/6543046/2025/08/08/indiana-fever-sydney-colson-aari-mcdonald-injured/
+
 **Firefighters Begin to Contain Growing Wildfire Northwest of L.A.**\
 `The blaze, called the Canyon fire, began early Thursday afternoon near Lake Piru, a reservoir about 60 miles northwest of downtown Los Angeles.`\
 https://nytimes.com/2025/08/08/us/canyon-fire-los-angeles.html
