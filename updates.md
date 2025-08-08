@@ -1,3 +1,11 @@
+**Bengals' Joe Burrow nearly flawless in preseason opener**\
+`Cincinnati QB hopes that seeing more preseason action will solve recent early-season struggles.`\
+https://nytimes.com/athletic/6541542/2025/08/07/joe-burrow-bengals-preseason-opener/
+
+**Broncos pleased with run game, Bo Nix on the move during productive practice with 49ers**\
+`Sean Payton said the offense got good work done with the red zone, third-down and two-minute offenses.`\
+https://nytimes.com/athletic/6541508/2025/08/07/broncos-49ers-joint-practice-nix/
+
 **Broncos pleased with run game, Bo Nix on the move during productive practice with 49ers**\
 `Sean Payton said the offense got good work done with the red-zone, third-down and two-minute offenses.`\
 https://nytimes.com/athletic/6541508/2025/08/07/broncos-49ers-joint-practice-nix/
