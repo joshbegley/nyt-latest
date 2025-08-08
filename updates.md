@@ -1,3 +1,7 @@
+**Marjorie Taylor Greene Pushes Back Against Criticism From AIPAC**\
+`The American Israel Public Affairs Committee said the Georgia Republican was betraying “American values.” She says she is upholding “America First.”`\
+https://nytimes.com/2025/08/08/us/politics/gaza-genocide-aipac-marjorie-taylor-greene.html
+
 **Endrick given No 9 shirt: Explaining the significance of Real Madrid shirt numbers**\
 `Reports had suggested that Gonzalo Garcia may inherit the No 9 but The Athletic can reveal that it will be handed to Endrick.`\
 https://nytimes.com/athletic/6536811/2025/08/08/real-madrid-endrick-9-shirt-news/
