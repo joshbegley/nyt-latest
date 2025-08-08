@@ -1,3 +1,7 @@
+**Buccaneers' Shilo Sanders is comfortable with who he is — and isn't: 'I can't be my dad'**\
+`The rookie safety — son of Deion and brother of Shedeur — is forging his own NFL path with positivity and high aspirations.`\
+https://nytimes.com/athletic/6536437/2025/08/08/shilo-sanders-buccaneers-nfl-deion-shedeur/
+
 **Intel’s Chief Holds Firm After Trump Demands His Resignation**\
 `Lip-Bu Tan, Intel’s top executive, said he was committed to the company after Mr. Trump called for him to step down over reported Chinese investments.`\
 https://nytimes.com/2025/08/08/business/intel-ceo-trump.html

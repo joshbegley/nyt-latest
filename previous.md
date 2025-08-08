@@ -31,7 +31,7 @@ https://nytimes.com/athletic/6541208/2025/08/08/kyle-tucker-cubs-slump/
 https://nytimes.com/athletic/6541432/2025/08/08/custom-cleats-evan-the-artist-mlb/
 
 **Buccaneers' Shilo Sanders is comfortable with who he is — and isn't: 'I can't be my dad'**\
-`“I want to be All-Pro special teams,” Sanders says, "“You know, show the coaches I could play."`\
+`The rookie safety — son of Deion and brother of Shedeur — is forging his own NFL path with positivity and high aspirations.`\
 https://nytimes.com/athletic/6536437/2025/08/08/shilo-sanders-buccaneers-nfl-deion-shedeur/
 
 **Breaking down Eagles-Bengals, preseason game No. 1: Returns and regressions**\
