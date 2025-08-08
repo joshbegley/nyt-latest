@@ -1,9 +1,13 @@
+**The Briefing: Newcastle 2 Espanyol 2 - Howe talks transfers, Ramsdale's save and Targett is present and accounted for**\
+`George Caulkin breaks down the main talking points from Newcastle's 2-2 draw with Espanyol`\
+https://nytimes.com/athletic/6539848/2025/08/08/newcastle-2-espanyol-2-howe-targett-murphy/
+
 **Police Respond to Reports of an Active Shooter at Emory University**\
 `Several emergency units responded to Emory University after reports of an active shooter at a CVS store near the campus in Atlanta Friday afternoon.`\
 https://nytimes.com/video/us/100000010331875/atlanta-emory-shooting.html
 
-**Trump Suggests a Russia-Ukraine Peace Deal Would Include ‘Swapping of Territories’**\
-`Mr. Trump provided little additional detail about what territory could be swapped or about the broader contours of a peace deal between Russia and Ukraine.`\
+**Trump Says He Will Meet With Putin in Alaska Next Week**\
+`Mr. Trump also suggested that a peace deal between Russia and Ukraine would include “some swapping of territories,” signaling that the U.S. may join Russia in trying to compel Ukraine to cede land.`\
 https://nytimes.com/2025/08/08/us/politics/trump-russia-ukraine-deal.html
 
 **Finding Beauty Underneath Paris**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6542728/2025/08/08/slater-parsons-non-qb-impact-bet
 **Howe on Isak: 'Clear I can't involve him' but he 'has a future' at Newcastle**\
 `Isak has made it clear that he does not want to stay at Newcastle but Liverpool had a bid for him rejected last week.`\
 https://nytimes.com/athletic/6543112/2025/08/08/eddie-howe-alexander-isak-transfer-first-team/
-
-**Bears double down on Arlington Heights for new stadium plans**\
-`Bears president/CEO Kevin Warren and chairman George McCaskey maintained the team's hope to build a stadium in Arlington Heights.`\
-https://nytimes.com/athletic/6543051/2025/08/08/chicago-bears-arlington-heights-new-stadium/
 

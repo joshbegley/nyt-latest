@@ -1,3 +1,11 @@
+**The Briefing: Newcastle 2 Espanyol 2 - Howe talks transfers, Ramsdale's save and Targett is present and accounted for**\
+`George Caulkin breaks down the main talking points from Newcastle's 2-2 draw with Espanyol`\
+https://nytimes.com/athletic/6539848/2025/08/08/newcastle-2-espanyol-2-howe-targett-murphy/
+
+**Trump Says He Will Meet With Putin in Alaska Next Week**\
+`Mr. Trump also suggested that a peace deal between Russia and Ukraine would include “some swapping of territories,” signaling that the U.S. may join Russia in trying to compel Ukraine to cede land.`\
+https://nytimes.com/2025/08/08/us/politics/trump-russia-ukraine-deal.html
+
 **Police Respond to Reports of an Active Shooter at Emory University**\
 `Several emergency units responded to Emory University after reports of an active shooter at a CVS store near the campus in Atlanta Friday afternoon.`\
 https://nytimes.com/video/us/100000010331875/atlanta-emory-shooting.html
