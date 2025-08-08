@@ -1,3 +1,11 @@
+**'College Football RedZone': 5 reasons the idea feels like a non-starter**\
+`The qualities that make "NFL RedZone" unique and compelling are why it would struggle as a college football show.`\
+https://nytimes.com/athletic/6542477/2025/08/08/college-football-redzone-espn-nfl/
+
+**Yadier Molina to return to Cardinals, will be in uniform as coach for Cubs series**\
+`It's Molina's first time back with the Cardinals since he retired after the 2022 season.`\
+https://nytimes.com/athletic/6541543/2025/08/08/yadier-molina-cardinals-return-cubs-series/
+
 **Fire Destroys New Jersey Synagogue**\
 `The congregation’s rabbi and his family, who were sleeping in an apartment inside the synagogue when the fire broke out, escaped the building before it collapsed.`\
 https://nytimes.com/video/us/100000010330814/fire-destroys-new-jersey-synagogue.html

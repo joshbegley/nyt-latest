@@ -1,3 +1,11 @@
+**'College Football RedZone': 5 reasons the idea feels like a non-starter**\
+`The qualities that make "NFL RedZone" unique and compelling are why it would struggle as a college football show.`\
+https://nytimes.com/athletic/6542477/2025/08/08/college-football-redzone-espn-nfl/
+
+**Yadier Molina to return to Cardinals, will be in uniform as coach for Cubs series**\
+`It's Molina's first time back with the Cardinals since he retired after the 2022 season.`\
+https://nytimes.com/athletic/6541543/2025/08/08/yadier-molina-cardinals-return-cubs-series/
+
 **Fire Destroys New Jersey Synagogue**\
 `The congregation’s rabbi and his family, who were sleeping in an apartment inside the synagogue when the fire broke out, escaped the building before it collapsed.`\
 https://nytimes.com/video/us/100000010330814/fire-destroys-new-jersey-synagogue.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/08/08/movies/five-action-movies-to-stream-now.html
 **When a Close Relationship Becomes ‘Enmeshment’**\
 `If you’ve lost yourself in a relationship, it may be time to untangle your identities and establish clearer boundaries.`\
 https://nytimes.com/2025/08/08/well/mind/psych101-enmeshment.html
-
-**The Windup: The Pirates’ Weird & Wild month**\
-`Welcome to The Windup, The Athletic's MLB newsletter.`\
-https://nytimes.com/athletic/6541951/2025/08/08/pirates-jayson-stark-the-windup/
-
-**Judge dismisses 1983 NC State basketball players' NIL lawsuit vs. NCAA**\
-`Twelve members of 1983 team sued the NCAA last year, arguing they were illegally denied name, image and likeness compensation.`\
-https://nytimes.com/athletic/6542287/2025/08/08/nc-state-1983-basketball-lawsuit-nil-dismissed/
 
