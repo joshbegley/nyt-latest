@@ -1,3 +1,15 @@
+**Netanyahu’s Plan for Gaza Has Skeptics in Highest Levels of Israel’s Military**\
+`The military leadership has said it prefers a new cease-fire instead of renewed fighting, and the military’s chief of staff previously raised concerns about troop exhaustion.`\
+https://nytimes.com/2025/08/08/world/middleeast/israel-gaza-takeover-military-objection.html
+
+**Suspect in Deadly Montana Bar Shooting Is Captured, Official Says**\
+`An Army veteran wanted in connection with the killing four people at a bar in the town of Anaconda was taken into custody on Friday after an eight-day manhunt.`\
+https://nytimes.com/2025/08/08/us/montana-shooting-suspect-captured-manhunt.html
+
+**Chelsea 2 Bayer Leverkusen 0 – Absent Jackson, Estevao's first goal, and a defensive reshuffle**\
+`Liam Twomey and Thom Harris break down the main talking points from Chelsea's 2-0 win over Bayer Leverkusen`\
+https://nytimes.com/athletic/6542975/2025/08/08/chelsea-2-bayer-leverkusen-0-jackson-estevao-joao-pedro/
+
 **Indiana Fever lose guards Sydney Colson and Aari McDonald for the season**\
 `Both were injured in a loss to Phoenix on Friday. With Caitlin Clark still out, Indiana now has zero healthy guards.`\
 https://nytimes.com/athletic/6543046/2025/08/08/indiana-fever-sydney-colson-aari-mcdonald-injured/

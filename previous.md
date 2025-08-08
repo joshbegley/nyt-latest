@@ -1,3 +1,11 @@
+**Netanyahu’s Plan for Gaza Has Skeptics in Highest Levels of Israel’s Military**\
+`The military leadership has said it prefers a new cease-fire instead of renewed fighting, and the military’s chief of staff previously raised concerns about troop exhaustion.`\
+https://nytimes.com/2025/08/08/world/middleeast/israel-gaza-takeover-military-objection.html
+
+**Suspect in Deadly Montana Bar Shooting Is Captured, Official Says**\
+`An Army veteran wanted in connection with the killing four people at a bar in the town of Anaconda was taken into custody on Friday after an eight-day manhunt.`\
+https://nytimes.com/2025/08/08/us/montana-shooting-suspect-captured-manhunt.html
+
 **Indiana Fever lose guards Sydney Colson and Aari McDonald for the season**\
 `Both were injured in a loss to Phoenix on Friday. With Caitlin Clark still out, Indiana now has zero healthy guards.`\
 https://nytimes.com/athletic/6543046/2025/08/08/indiana-fever-sydney-colson-aari-mcdonald-injured/
@@ -22,19 +30,11 @@ https://nytimes.com/video/world/asia/100000010327404/whats-behind-the-thailand-c
 `Stanton, 35, has been coming off the bench since Aaron Judge returned as a DH earlier this week.`\
 https://nytimes.com/athletic/6542985/2025/08/08/giancarlo-stanton-yankees-outfield-return/
 
-**Chelsea 2 Bayer Leverkusen 0 - Absent Jackson, Estevao's first goal and a defensive reshuffle**\
+**Chelsea 2 Bayer Leverkusen 0 – Absent Jackson, Estevao's first goal, and a defensive reshuffle**\
 `Liam Twomey and Thom Harris break down the main talking points from Chelsea's 2-0 win over Bayer Leverkusen`\
 https://nytimes.com/athletic/6542975/2025/08/08/chelsea-2-bayer-leverkusen-0-jackson-estevao-joao-pedro/
 
 **Five surprising stats for the 2025 Giants**\
 `The Giants have seemingly disappointed offensively this season, but where do they really rank relative to the league? It may surprise you.`\
 https://nytimes.com/athletic/6542909/2025/08/08/sf-giants-2025-surprising-stats/
-
-**Trump Directed the Military to Target Foreign Drug Cartels**\
-`Also, Israel said it was preparing to take control of Gaza City. Here’s the latest at the end of Friday.`\
-https://nytimes.com/2025/08/08/briefing/trump-drug-cartels-ucla-billion-dollar-fine.html
-
-**The Lasting Appeal of John F. Kennedy Jr.**\
-`A CNN documentary and an upcoming series by Ryan Murphy delve into the nation’s most famous son, who remains fixed in the 1990s.`\
-https://nytimes.com/2025/08/08/style/jfk-jr-cnn-ryan-murphy.html
 
