@@ -1,3 +1,11 @@
+**Palace delegation arrives at CAS to fight for Europa League return**\
+`Chairman Steve Parish has described UEFA's ruling as “a terrible injustice” based on “the most ridiculous technicality you can imagine”.`\
+https://nytimes.com/athletic/6542032/2025/08/08/crystal-palace-cas-europa-league-steve-parish-uefa/
+
+**Slot: Frimpong can deputise for Salah**\
+`The £29.5million signing is expected to start at right-back in Sunday's Community Shield, with Conor Bradley a major fitness doubt.`\
+https://nytimes.com/athletic/6542016/2025/08/08/liverpool-slot-frimpong-salah/
+
 **The New York Times International Edition in Print for Saturday, Aug. 9, 2025**\
 ``\
 https://nytimes.com/issue/todaysinyt/2025/08/08/todays-new-york-times-international-edition

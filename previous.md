@@ -1,3 +1,11 @@
+**Palace delegation arrives at CAS to fight for Europa League return**\
+`Chairman Steve Parish has described UEFA's ruling as “a terrible injustice” based on “the most ridiculous technicality you can imagine”.`\
+https://nytimes.com/athletic/6542032/2025/08/08/crystal-palace-cas-europa-league-steve-parish-uefa/
+
+**Slot: Frimpong can deputise for Salah**\
+`The £29.5million signing is expected to start at right-back in Sunday's Community Shield, with Conor Bradley a major fitness doubt.`\
+https://nytimes.com/athletic/6542016/2025/08/08/liverpool-slot-frimpong-salah/
+
 **The New York Times International Edition in Print for Saturday, Aug. 9, 2025**\
 ``\
 https://nytimes.com/issue/todaysinyt/2025/08/08/todays-new-york-times-international-edition
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6538713/2025/08/08/fantasy-football-2025-all-underv
 **Cory Mills Should Be at Least as Famous as George Santos**\
 `When you’re MAGA, they let you do it.`\
 https://nytimes.com/2025/08/08/opinion/cory-mills-trump-maga.html
-
-**Before You Offer Advice, Ask This Question**\
-`It’s simple, but it isn’t easy.`\
-https://nytimes.com/2025/08/08/well/before-you-offer-advice-ask-this-question.html
-
-**Manhunt Leaves a Town in Limbo a Week After Bar Shooting**\
-`Experts on mass shootings said it’s rare for the gunmen who carry out such crimes to elude the authorities for so long.`\
-https://nytimes.com/2025/08/08/us/montana-anaconda-shooting.html
 
