@@ -1,3 +1,15 @@
+**The New York Times in Print for Friday, Aug. 8, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/08/08/todays-new-york-times
+
+**Democrats Are Finally, Slowly, Changing Their Minds on Israel**\
+`Amy Klobuchar has taken a crucial step toward the view of the party’s base.`\
+https://nytimes.com/2025/08/08/opinion/democrats-gaza-klobuchar-booker.html
+
+**Trump’s Tariff Victory Is Not What It Seems**\
+`Consumers and businesses will lose out, thanks to other Trump economic policies.`\
+https://nytimes.com/2025/08/08/opinion/trump-tariffs-trade-economy.html
+
 **F.A.A. Plans to Hire 8,900 Air Traffic Controllers but Still Expects Shortages**\
 `The Federal Aviation Administration says it plans to “supercharge” hiring and training between now and late 2028. It would not be enough to end a shortage of controllers.`\
 https://nytimes.com/2025/08/08/us/politics/faa-air-traffic-controllers.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6534318/2025/08/08/brighton-south-american-players/
 **FPL: Chip strategies for the first half of the season**\
 `FPL's rule changes have given managers a set of chips to burn before the second half of the season - so when should we use them?`\
 https://nytimes.com/athletic/6521493/2025/08/08/fantasy-premier-league-chip-strategies-wildcard-triple-free/
-
-**Isaac Hayden interview: 'The thought of going back inside St James' was too painful'**\
-`The midfielder talks to George Caulkin about his long Newcastle goodbye and why he would, finally, love to set foot inside the stadium again`\
-https://nytimes.com/athletic/6540160/2025/08/08/isaac-hayden-interview-newcastle/
-
-**Wrexham's Phil Parkinson: 'We're in with the big boys, but we are confident'**\
-`Is the Championship about to finally see the real Phil Parkinson? The Wrexham manager returns to a level he last competed in seven years ago`\
-https://nytimes.com/athletic/6480388/2025/08/08/wrexham-phil-parkinson-interview-confident-championship/
-
-**Newcastle's rivals have taken £500m in fees from PIF clubs. Is it hurting Newcastle?**\
-`PIF-owned clubs increased their Premier League spending again this week with a deal agreed for Darwin Nunez`\
-https://nytimes.com/athletic/6539880/2025/08/08/pif-newcastle-transfer-fees-analysis/
 
