@@ -1,3 +1,15 @@
+**Fire Destroys New Jersey Synagogue**\
+`The congregation’s rabbi and his family, who were sleeping in an apartment inside the synagogue when the fire broke out, escaped the building before it collapsed.`\
+https://nytimes.com/video/us/100000010330814/fire-destroys-new-jersey-synagogue.html
+
+**Canada’s Girl Guides Suspend U.S. Trips Amid Trump’s Immigration Crackdown**\
+`The organization, Canada’s equivalent of the Girl Scouts, said it was pausing the trips out of safety concerns for its members.`\
+https://nytimes.com/2025/08/08/world/canada/girl-guides-canada-us-trips-trump-border.html
+
+**This Reporter Can Tell Us What Nuclear Apocalypse Looks Like**\
+`Annie Jacobsen discusses her 2024 book “Nuclear War: A Scenario.”`\
+https://nytimes.com/2025/08/08/books/review/podcast-annie-jacobsen-nuclear-war.html
+
 **Caleb Williams trolls, Anthony Richardson injury and other fantasy football news**\
 `The Athletic's new columnist Andy Behrens details the latest fantasy-relevant news from around the league, including some rookie hype.`\
 https://nytimes.com/athletic/6542273/2025/08/08/fantasy-football-news-caleb-williams-anthony-richardson/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6541951/2025/08/08/pirates-jayson-stark-the-windup/
 **Judge dismisses 1983 NC State basketball players' NIL lawsuit vs. NCAA**\
 `Twelve members of 1983 team sued the NCAA last year, arguing they were illegally denied name, image and likeness compensation.`\
 https://nytimes.com/athletic/6542287/2025/08/08/nc-state-1983-basketball-lawsuit-nil-dismissed/
-
-**Justice Department Subpoenas Office of Letitia James, a Trump Nemesis**\
-`Ms. James, New York’s attorney general, won a civil fraud case against President Trump that is on appeal. One of the two subpoenas is related to that case.`\
-https://nytimes.com/2025/08/08/nyregion/letitia-james-subpoena-trump-doj.html
-
-**A Texas Cottage That Feels Like a European Artist’s Retreat**\
-`Inside their Austin bungalow, a couple has created a vibrant, salon-like atmosphere.`\
-https://nytimes.com/2025/08/08/t-magazine/rf-alvarez-austin-texas-home.html
-
-**Watch Julia Garner Visit a Creepy Home in ‘Weapons’**\
-`The writer-director, Zach Cregger, narrates a sequence from his twisty horror film.`\
-https://nytimes.com/2025/08/08/movies/weapons-clip-julia-garner.html
 
