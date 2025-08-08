@@ -1,3 +1,5 @@
+
+
 **Senate Heads for a ‘Nuclear’ Showdown on Trump Nominees**\
 `Republicans say they are preparing to impose rules changes to speed confirmations after Democrats thwarted them before Congress headed into recess.`\
 https://nytimes.com/2025/08/08/us/politics/senate-trump-nominees.html
