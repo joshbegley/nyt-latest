@@ -1,3 +1,7 @@
+**Robert Pursley, 97, Dies; Pentagon Aide Turned Critical of Vietnam War**\
+`Defense Secretary Robert McNamara tasked him with creating an encyclopedic history of the war, which became known as the Pentagon Papers.`\
+https://nytimes.com/2025/08/08/us/politics/robert-e-pursley-dead.html
+
 **‘Hunting Wives’ Is Raunchy, Pulpy and Netflix’s Most Popular Show**\
 `The drama has all the ingredients of a binge-watch: culture wars, murder and sex.`\
 https://nytimes.com/2025/08/08/style/hunting-wives-netflix.html

@@ -1,4 +1,4 @@
-**Robert Pursley, 97, Dies; Pentagon Aide Turned Critical of Vietnam War**\
+**Robert Pursley, 97, Dies; Pentagon Aide Became a Critic of Vietnam War**\
 `Defense Secretary Robert McNamara tasked him with creating an encyclopedic history of the war, which became known as the Pentagon Papers.`\
 https://nytimes.com/2025/08/08/us/politics/robert-e-pursley-dead.html
 

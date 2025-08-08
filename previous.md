@@ -1,3 +1,7 @@
+**Robert Pursley, 97, Dies; Pentagon Aide Turned Critical of Vietnam War**\
+`Defense Secretary Robert McNamara tasked him with creating an encyclopedic history of the war, which became known as the Pentagon Papers.`\
+https://nytimes.com/2025/08/08/us/politics/robert-e-pursley-dead.html
+
 **‘Hunting Wives’ Is Raunchy, Pulpy and Netflix’s Most Popular Show**\
 `The drama has all the ingredients of a binge-watch: culture wars, murder and sex.`\
 https://nytimes.com/2025/08/08/style/hunting-wives-netflix.html
@@ -33,8 +37,4 @@ https://nytimes.com/issue/magazine/2025/08/08/the-81025-issue
 **Putin Briefs Leaders of China and India on Talks With U.S. on Ukraine**\
 `President Vladimir V. Putin of Russia may be seeking to build support among countries that have backed Moscow or remained neutral in the conflict.`\
 https://nytimes.com/2025/08/08/world/asia/putin-trump-ukraine-china-india.html
-
-**Hampton threw Coll's notes into crowd during Euro final penalty shoot-out**\
-`Hampton said she discarded Coll's water bottle with her notes on into the English fans.`\
-https://nytimes.com/athletic/6542535/2025/08/08/hannah-hampton-water-bottle-spain-goalkeeper-euro-2025-shoot-out/
 
