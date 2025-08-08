@@ -1,3 +1,19 @@
+**A Texas Cottage That Feels Like a European Artist’s Retreat**\
+`Inside their Austin bungalow, a couple has created a vibrant, salon-like atmosphere.`\
+https://nytimes.com/2025/08/08/t-magazine/rf-alvarez-austin-texas-home.html
+
+**Watch Julia Garner Visit a Creepy Home in ‘Weapons’**\
+`The writer-director, Zach Cregger, narrates a sequence from his twisty horror film.`\
+https://nytimes.com/2025/08/08/movies/weapons-clip-julia-garner.html
+
+**Possible Planet Is Spotted Around Neighboring Sunlike Star**\
+`Astronomers found strong evidence that a gassy Jupiter-size world is orbiting Alpha Centauri A, one of three stars in the solar system closest to our own.`\
+https://nytimes.com/2025/08/08/science/alpha-centauri-planet-webb-telescope.html
+
+**India’s Modi Left Soul-Searching After Failed Courtships of Xi and Trump**\
+`The collapse of the Indian prime minister’s high-stakes personal efforts to transform India’s ties with the world’s two superpowers has exposed the limits of India’s leverage.`\
+https://nytimes.com/2025/08/08/world/asia/modi-india-trump-china-tariffs.html
+
 **‘Weapons’ | Anatomy of a Scene**\
 `The writer-director Zach Cregger narrates a sequence from his film, featuring Julia Garner.`\
 https://nytimes.com/video/movies/100000010326860/weapons-scene.html

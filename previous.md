@@ -1,3 +1,15 @@
+**A Texas Cottage That Feels Like a European Artist’s Retreat**\
+`Inside their Austin bungalow, a couple has created a vibrant, salon-like atmosphere.`\
+https://nytimes.com/2025/08/08/t-magazine/rf-alvarez-austin-texas-home.html
+
+**Watch Julia Garner Visit a Creepy Home in ‘Weapons’**\
+`The writer-director, Zach Cregger, narrates a sequence from his twisty horror film.`\
+https://nytimes.com/2025/08/08/movies/weapons-clip-julia-garner.html
+
+**Possible Planet Is Spotted Around Neighboring Sunlike Star**\
+`Astronomers found strong evidence that a gassy Jupiter-size world is orbiting Alpha Centauri A, one of three stars in the solar system closest to our own.`\
+https://nytimes.com/2025/08/08/science/alpha-centauri-planet-webb-telescope.html
+
 **‘Weapons’ | Anatomy of a Scene**\
 `The writer-director Zach Cregger narrates a sequence from his film, featuring Julia Garner.`\
 https://nytimes.com/video/movies/100000010326860/weapons-scene.html
@@ -19,22 +31,6 @@ https://nytimes.com/2025/08/08/movies/chad-michael-murray-interview-freakier-fri
 https://nytimes.com/athletic/6497525/2025/08/08/arsenal-ethan-nwaneri-contract-fans/
 
 **India’s Modi Left Soul-Searching After Failed Courtships of Xi and Trump**\
-`The collapse of the Indian prime minister’s high-stakes personal efforts to transform India’s ties the world’s two superpowers has exposed the limits of India’s leverage.`\
+`The collapse of the Indian prime minister’s high-stakes personal efforts to transform India’s ties with the world’s two superpowers has exposed the limits of India’s leverage.`\
 https://nytimes.com/2025/08/08/world/asia/modi-india-trump-china-tariffs.html
-
-**Nwaneri signs new five-year Arsenal contract**\
-`Nwaneri enjoyed a breakthrough season in 2024-25, scoring seven goals in 26 appearances after being promoted into the first-team squad.`\
-https://nytimes.com/athletic/6175624/2025/08/08/ethan-nwaneri-contract-arsenal/
-
-**Palace boss Glasner wants two more signings amid 'passive' window**\
-`Palace face Liverpool in the Community Shield on Sunday with their squad hampered by injuries and with only two summer signings.`\
-https://nytimes.com/athletic/6542448/2025/08/08/oliver-glasner-crystal-palace-transfers-signings/
-
-**Submit a question for Aaron Gleeman's post-deadline Twins mailbag**\
-`Submit your post-deadline questions about the Twins to be answered next week.`\
-https://nytimes.com/athletic/6542419/2025/08/08/submit-questions-twins-mailbag-post-trade-deadline/
-
-**Meeting the Last of Japan’s Living War Veterans**\
-`A reporter traveled to the corners of the country to meet six World War II veterans, who had a warning for generations to come.`\
-https://nytimes.com/2025/08/08/insider/japan-world-war-2.html
 
