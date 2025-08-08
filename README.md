@@ -1,3 +1,7 @@
+**Bears double down on Arlington Heights for new stadium plans**\
+`Bears president/CEO Kevin Warren and chairman George McCaskey maintained the team's hope to build a stadium in Arlington Heights.`\
+https://nytimes.com/athletic/6543051/2025/08/08/chicago-bears-arlington-heights-new-stadium/
+
 **Netanyahu’s Plan for Gaza Has Skeptics in Highest Levels of Israel’s Military**\
 `The military leadership has said it prefers a new cease-fire instead of renewed fighting, and the military’s chief of staff previously raised concerns about troop exhaustion.`\
 https://nytimes.com/2025/08/08/world/middleeast/israel-gaza-takeover-military-objection.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6542985/2025/08/08/giancarlo-stanton-yankees-outfie
 **Chelsea 2 Bayer Leverkusen 0 – Absent Jackson, Estevao's first goal, and a defensive reshuffle**\
 `Liam Twomey and Thom Harris break down the main talking points from Chelsea's 2-0 win over Bayer Leverkusen`\
 https://nytimes.com/athletic/6542975/2025/08/08/chelsea-2-bayer-leverkusen-0-jackson-estevao-joao-pedro/
-
-**Five surprising stats for the 2025 Giants**\
-`The Giants have seemingly disappointed offensively this season, but where do they really rank relative to the league? It may surprise you.`\
-https://nytimes.com/athletic/6542909/2025/08/08/sf-giants-2025-surprising-stats/
 
