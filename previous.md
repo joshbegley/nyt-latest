@@ -1,3 +1,11 @@
+**Appeals Court Ends Judge Boasberg’s Contempt Inquiry of Trump Officials**\
+`The case involves deportation flights to El Salvador and whether the administration ignored the judge’s verbal order that they return to the United States.`\
+https://nytimes.com/2025/08/08/us/politics/boasberg-trump-deportation-flights.html
+
+**Ticks From Other Continents Are Turning Up in the Northeast**\
+`Seven nonnative species reached the United States by latching on to travelers, a study by researchers in Connecticut shows, offering clues about how ticks spread in a warming world.`\
+https://nytimes.com/2025/08/08/science/ticks-invasive-species-connecticut.html
+
 **The 8.10.25 Issue**\
 ``\
 https://nytimes.com/issue/magazine/2025/08/08/the-81025-issue
@@ -29,12 +37,4 @@ https://nytimes.com/2025/08/08/world/americas/mexico-trump-military-cartels.html
 **Fantasy Premier League 2025-26 pre-season mailbag: Send in your questions now**\
 `Send in your questions for Abdul Rehman ahead of the start of the new FPL season now`\
 https://nytimes.com/athletic/6542588/2025/08/08/fantasy-premier-league-2025-26-pre-season-mailbag-send-in-your-questions-now/
-
-**Sunderland confident of completing signing of Masuaku**\
-`The 31-year-old former West Ham United defender is a free agent after leaving Besiktas in July.`\
-https://nytimes.com/athletic/6542606/2025/08/08/sunderland-masuaku-transfer-news/
-
-**'College Football RedZone': 5 reasons the idea feels like a non-starter**\
-`The qualities that make "NFL RedZone" unique and compelling are why it would struggle as a college football show.`\
-https://nytimes.com/athletic/6542477/2025/08/08/college-football-redzone-espn-nfl/
 

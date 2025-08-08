@@ -1,3 +1,11 @@
+**Appeals Court Ends Judge Boasberg’s Contempt Inquiry of Trump Officials**\
+`The case involves deportation flights to El Salvador and whether the administration ignored the judge’s verbal order that they return to the United States.`\
+https://nytimes.com/2025/08/08/us/politics/boasberg-trump-deportation-flights.html
+
+**Ticks From Other Continents Are Turning Up in the Northeast**\
+`Seven nonnative species reached the United States by latching on to travelers, a study by researchers in Connecticut shows, offering clues about how ticks spread in a warming world.`\
+https://nytimes.com/2025/08/08/science/ticks-invasive-species-connecticut.html
+
 **The 8.10.25 Issue**\
 ``\
 https://nytimes.com/issue/magazine/2025/08/08/the-81025-issue

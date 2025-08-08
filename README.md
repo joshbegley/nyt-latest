@@ -1,3 +1,7 @@
+**Traded at the deadline: Inside Mike Yastrzemski's whirlwind week**\
+`Mike Yastrzemski was playing golf the day of the trade deadline. Then the call came in that would start a multi-day saga. `\
+https://nytimes.com/athletic/6542024/2025/08/08/mike-yastrzemski-trade-giants-royals-deadline-deal/
+
 **Appeals Court Ends Judge Boasberg’s Contempt Inquiry of Trump Officials**\
 `The case involves deportation flights to El Salvador and whether the administration ignored the judge’s verbal order that they return to the United States.`\
 https://nytimes.com/2025/08/08/us/politics/boasberg-trump-deportation-flights.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6542611/2025/08/08/celtics-joe-mazzulla-contract-ex
 **Mexico’s President Says U.S. Forces Are Unwelcome in Her Country**\
 `The Mexican government thought it had turned a corner in cooperating with the Trump administration on combating the cartels, having launched an aggressive crackdown of its own.`\
 https://nytimes.com/2025/08/08/world/americas/mexico-trump-military-cartels.html
-
-**Fantasy Premier League 2025-26 pre-season mailbag: Send in your questions now**\
-`Send in your questions for Abdul Rehman ahead of the start of the new FPL season now`\
-https://nytimes.com/athletic/6542588/2025/08/08/fantasy-premier-league-2025-26-pre-season-mailbag-send-in-your-questions-now/
 
