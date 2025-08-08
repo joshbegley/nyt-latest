@@ -1,3 +1,7 @@
+**Jane Morgan, Singer Who Charmed Both Sides of the Atlantic, Dies at 101**\
+`Born in Massachusetts, she built a following in Parisian nightclubs before returning to the U.S., where she had a successful career as a torch singer.`\
+https://nytimes.com/2025/08/08/arts/music/jane-morgan-dead.html
+
 **Trump Is Replacing Billy Long as I.R.S. Commissioner**\
 `The change comes just two months into the former Republican congressman’s tenure leading the tax agency.`\
 https://nytimes.com/2025/08/08/us/politics/trump-billy-long-irs-commissioner.html
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2025/08/08/upshot/flashback.html
 **Scoop City: Early preseason takeaways**\
 `Fallout from an injury-filled Thursday, which cost the Chargers the league's highest-paid tackle. More on that, plus Brian Flores' mastery`\
 https://nytimes.com/athletic/6542780/2025/08/08/nfl-preseason-week-1-takeaways-bengals-chargers-scoop-city/
-
-**Ángel Macías, 1957 Little League World Series Star, Dies at 80**\
-`Playing for a team from Monterrey, Mexico, he pitched a perfect game in the event’s championship game, the first and only time that has happened.`\
-https://nytimes.com/2025/08/08/sports/baseball/angel-macias-dead.html
 

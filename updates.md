@@ -1,3 +1,7 @@
+**Jane Morgan, Singer Who Charmed Both Sides of the Atlantic, Dies at 101**\
+`Born in Massachusetts, she built a following in Parisian nightclubs before returning to the U.S., where she had a successful career as a torch singer.`\
+https://nytimes.com/2025/08/08/arts/music/jane-morgan-dead.html
+
 **Trump Is Replacing Billy Long as I.R.S. Commissioner**\
 `The change comes just two months into the former Republican congressman’s tenure leading the tax agency.`\
 https://nytimes.com/2025/08/08/us/politics/trump-billy-long-irs-commissioner.html
