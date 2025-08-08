@@ -1,3 +1,7 @@
+**Minnesota Man Is Sentenced to 28 Years in Federal Food Aid Fraud**\
+`Abdiaziz Shafii Farah, 36, played a leading role in a scheme that stole more than $47 million from a program meant to feed children during the Covid-19 pandemic, prosecutors said.`\
+https://nytimes.com/2025/08/08/us/minnesota-pandemic-child-food-fraud.html
+
 **‘Chimp Crazy’ Star Gets Nearly 4 Years in Prison for Lying About Ape’s Death**\
 `Prosecutors said that Tonia Haddix perjured herself to avoid giving up custody of Tonka, who had appeared in the movies ‘George of the Jungle’ and ‘Buddy.’`\
 https://nytimes.com/2025/08/08/us/chimp-crazy-tonia-haddix-prison-sentence.html

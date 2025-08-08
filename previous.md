@@ -1,3 +1,7 @@
+**Minnesota Man Is Sentenced to 28 Years in Federal Food Aid Fraud**\
+`Abdiaziz Shafii Farah, 36, played a leading role in a scheme that stole more than $47 million from a program meant to feed children during the Covid-19 pandemic, prosecutors said.`\
+https://nytimes.com/2025/08/08/us/minnesota-pandemic-child-food-fraud.html
+
 **‘Chimp Crazy’ Star Gets Nearly 4 Years in Prison for Lying About Ape’s Death**\
 `Prosecutors said that Tonia Haddix perjured herself to avoid giving up custody of Tonka, who had appeared in the movies ‘George of the Jungle’ and ‘Buddy.’`\
 https://nytimes.com/2025/08/08/us/chimp-crazy-tonia-haddix-prison-sentence.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6542802/2025/08/08/49ers-preseason-depth-chart-brea
 **Active Shooter Is Reported at Emory University in Atlanta**\
 `The Atlanta Police Department said that it was investigating and was still gathering information.`\
 https://nytimes.com/2025/08/08/us/emory-university-cdc-shooting.html
-
-**How valuable are Micah Parsons and Rashawn Slater to the spread? Less than you think**\
-`How much does a single non-quarterback player affect the point spread in betting? Here's an explainer.`\
-https://nytimes.com/athletic/6542728/2025/08/08/slater-parsons-non-qb-impact-betting-spread/
 
