@@ -1,3 +1,15 @@
+**Russian Strikes Kill 3 in Ukraine, Which May Be Left Out of Peace Talks**\
+`“Here on the ground, we don’t feel any real changes from all these high-level meetings and statements,” a soldier said.`\
+https://nytimes.com/2025/08/08/world/europe/ukraine-russia-trump-putin.html
+
+**MLB Weird & Wild What we Missed: Pirates blunder, Blue Jays rock and an all-time Orioles out**\
+`It’s time for a big What We Missed edition of the Weird and Wild column. `\
+https://nytimes.com/athletic/6541579/2025/08/08/mlb-weird-facts-pirates-blue-jays-orioles-phillies/
+
+**Season-ending injury to Ravens CB mars otherwise strong debut for rookie class**\
+`Baltimore's preseason victory over Indianapolis yielded far more positives than negatives for the reigning AFC North champs. `\
+https://nytimes.com/athletic/6541834/2025/08/08/ravens-rookies-colts-preseason-week-1/
+
 **The Pulse: Another twist in the Jordon Hudson story**\
 `The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
 https://nytimes.com/athletic/6541827/2025/08/08/jordon-hudson-bill-belichick-interview-the-pulse/
