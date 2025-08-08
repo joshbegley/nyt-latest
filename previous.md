@@ -1,3 +1,7 @@
+**Chris Sale on returning in Braves' lost season: 'I like to compete and I want to do my job'**\
+`“I think being able to get some innings under my belt this year is going to protect me for next year,” Sale said.`\
+https://nytimes.com/athletic/6541482/2025/08/07/chris-sale-return-braves-lost-season/
+
 **Bengals' Joe Burrow nearly flawless in preseason opener**\
 `Cincinnati QB hopes that seeing more preseason action will solve recent early-season struggles.`\
 https://nytimes.com/athletic/6541542/2025/08/07/joe-burrow-bengals-preseason-opener/
@@ -10,7 +14,7 @@ https://nytimes.com/athletic/6541508/2025/08/07/broncos-49ers-joint-practice-nix
 `Gardner-Johnson will miss some time, but initial tests showed that his ACL is not torn. `\
 https://nytimes.com/athletic/6540655/2025/08/07/houston-texans-cj-gardner-johnson-injury/
 
-**Victoria Mboko tops Naomi Osaka in Canadian Open final to earn first WTA win**\
+**Victoria Mboko tops Naomi Osaka, completes run to Canadian Open title**\
 `Mboko, the 18-year-old hometown hero, storms past Osaka, 2-6, 6-4, 6-1.`\
 https://nytimes.com/athletic/6541484/2025/08/07/naomi-osaka-victoria-mboko-canadian-open-final/
 
@@ -30,11 +34,7 @@ https://nytimes.com/2025/08/07/nyregion/nj-state-trooper-suspect-shootings.html
 `The Canyon Fire was initially reported at about 30 acres but had rapidly grown to 1,050 acres in a few hours on Thursday, officials said.`\
 https://nytimes.com/2025/08/07/us/canyon-fire-ventura-county.html
 
-**Anthony Richardson exits Colts' preseason opener with finger injury**\
+**Colts QB Anthony Richardson won't return to game after dislocating pinky**\
 `The Colts QB has dealt with injury issues throughout his career. `\
 https://nytimes.com/athletic/6541429/2025/08/07/colts-anthony-richardson-injury/
-
-**49ers’ Brock Purdy, Ricky Pearsall hit stride after rough start vs. Broncos**\
-`The two standouts for the 49ers in Thursday's joint practice: Nick Bosa on defense and rookie receiver Jordan Watkins on offense.`\
-https://nytimes.com/athletic/6541346/2025/08/07/49ers-brock-purdy-ricky-pearsall-joint-practice/
 

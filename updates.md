@@ -1,3 +1,15 @@
+**Chris Sale on returning in Braves' lost season: 'I like to compete and I want to do my job'**\
+`“I think being able to get some innings under my belt this year is going to protect me for next year,” Sale said.`\
+https://nytimes.com/athletic/6541482/2025/08/07/chris-sale-return-braves-lost-season/
+
+**Victoria Mboko tops Naomi Osaka, completes run to Canadian Open title**\
+`Mboko, the 18-year-old hometown hero, storms past Osaka, 2-6, 6-4, 6-1.`\
+https://nytimes.com/athletic/6541484/2025/08/07/naomi-osaka-victoria-mboko-canadian-open-final/
+
+**Colts QB Anthony Richardson won't return to game after dislocating pinky**\
+`The Colts QB has dealt with injury issues throughout his career. `\
+https://nytimes.com/athletic/6541429/2025/08/07/colts-anthony-richardson-injury/
+
 **Bengals' Joe Burrow nearly flawless in preseason opener**\
 `Cincinnati QB hopes that seeing more preseason action will solve recent early-season struggles.`\
 https://nytimes.com/athletic/6541542/2025/08/07/joe-burrow-bengals-preseason-opener/
