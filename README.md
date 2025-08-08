@@ -1,3 +1,7 @@
+**This weekend's Cubs-Cardinals series is on 3 different networks. Here's how to tune in**\
+`Here's how to catch this weekend's Cubs at Cardinals series, an August brew of historic hostilities.`\
+https://nytimes.com/athletic/6542449/2025/08/08/cubs-cardinals-espn-fox-marquee-how-to-watch/
+
 **Robert Pursley, 97, Dies; Pentagon Aide Became a Critic of Vietnam War**\
 `Defense Secretary Robert McNamara tasked him with creating an encyclopedic history of the war, which became known as the Pentagon Papers.`\
 https://nytimes.com/2025/08/08/us/politics/robert-e-pursley-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/08/science/ticks-invasive-species-connecticut.html
 **The 8.10.25 Issue**\
 ``\
 https://nytimes.com/issue/magazine/2025/08/08/the-81025-issue
-
-**Putin Briefs Leaders of China and India on Talks With U.S. on Ukraine**\
-`President Vladimir V. Putin of Russia may be seeking to build support among countries that have backed Moscow or remained neutral in the conflict.`\
-https://nytimes.com/2025/08/08/world/asia/putin-trump-ukraine-china-india.html
 
