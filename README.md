@@ -1,3 +1,11 @@
+**Why Manchester United are interested in Carlos Baleba, Brighton's free-running, press-resistant midfielder**\
+`With the potential Baleba showed last season, it's hardly surprising that he is the next name to be snatched from Brighton's production line`\
+https://nytimes.com/athletic/6540324/2025/08/08/manchester-united-carlos-baleba-transfer/
+
+**Japan Says Trump to Correct ‘Extremely Regrettable’ Error in Tariff Order**\
+`Tensions have been mounting between the United States and Japan as both sides appear to have starkly different interpretations of a trade deal finalized last month.`\
+https://nytimes.com/2025/08/08/business/japan-tariffs-us-trade-deal.html
+
 **Colbert on the Tariffs: ‘Set Your Clocks Back to “More Expensive”’**\
 `President Trump is hitting Brazilian imports particularly hard, which is “bad news for meat-based Americans,” Stephen Colbert said.`\
 https://nytimes.com/2025/08/08/arts/television/stephen-colbert-tariffs-trump.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6497417/2025/08/08/wisden-cricketers-almanack-socie
 **Friday Briefing: Israel Approves Full Military Takeover of Gaza**\
 `Also, world leaders react to Trump’s tariffs.`\
 https://nytimes.com/2025/08/08/briefing/gaza-military-takeover-trump-tariffs-kremlin-trump-meeting.html
-
-**Arsenal's breakthrough player to watch: Max Dowman**\
-`The 15-year-old has impressed for England youth and on tour with Arsenal, but care will be needed with his progression this season`\
-https://nytimes.com/athletic/6527590/2025/08/08/arsenal-max-dowman-breakthrough-player/
-
-**Would Jack Grealish to Everton be an unwelcome throwback or a signing befitting a new stadium?**\
-`The club's fans are torn on whether the England international would be a good acquisition - and it is not hard to see why`\
-https://nytimes.com/athletic/6540063/2025/08/08/everton-grealish-unwelcome-throwback-signing-befitting-new-stadium/
 

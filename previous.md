@@ -1,3 +1,7 @@
+**Colbert on the Tariffs: ‘Set Your Clocks Back to “More Expensive”’**\
+`President Trump is hitting Brazilian imports particularly hard, which is “bad news for meat-based Americans,” Stephen Colbert said.`\
+https://nytimes.com/2025/08/08/arts/television/stephen-colbert-tariffs-trump.html
+
 **Word of the Day: canopy**\
 `This word has appeared in 164 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2025/08/08/learning/word-of-the-day-canopy.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6527590/2025/08/08/arsenal-max-dowman-breakthrough-
 **Would Jack Grealish to Everton be an unwelcome throwback or a signing befitting a new stadium?**\
 `The club's fans are torn on whether the England international would be a good acquisition - and it is not hard to see why`\
 https://nytimes.com/athletic/6540063/2025/08/08/everton-grealish-unwelcome-throwback-signing-befitting-new-stadium/
-
-**Why Brighton's ability to attract and hold on to South Americans is dwindling**\
-`Tony Bloom's club used to have an impressive stable of players from Ecuador, Colombia and Argentina but those days are fast disappearing`\
-https://nytimes.com/athletic/6534318/2025/08/08/brighton-south-american-players/
 

@@ -1,3 +1,7 @@
+**Colbert on the Tariffs: ‘Set Your Clocks Back to “More Expensive”’**\
+`President Trump is hitting Brazilian imports particularly hard, which is “bad news for meat-based Americans,” Stephen Colbert said.`\
+https://nytimes.com/2025/08/08/arts/television/stephen-colbert-tariffs-trump.html
+
 **Word of the Day: canopy**\
 `This word has appeared in 164 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2025/08/08/learning/word-of-the-day-canopy.html
