@@ -1,3 +1,7 @@
+**Trump Is Replacing Billy Long as I.R.S. Commissioner**\
+`The change comes just two months into the former Republican congressman’s tenure leading the tax agency.`\
+https://nytimes.com/2025/08/08/us/politics/trump-billy-long-irs-commissioner.html
+
 **Trump to Meet With Leaders of Armenia and Azerbaijan, Seeking to End Conflict**\
 `The two countries’ leaders are expected to sign a joint declaration toward a peace deal after decades of fighting.`\
 https://nytimes.com/2025/08/08/us/politics/trump-armenia-azerbaijan-peace-deal.html
@@ -12,7 +16,7 @@ https://nytimes.com/athletic/6542645/2025/08/08/paul-skenes-pirates-mlb-career-s
 
 **Trump Wants U.C.L.A. to Pay $1 Billion to Restore Its Research Funding**\
 `The Trump administration has ended about $500 million for the Los Angeles-based university. The president said he wanted nearly double that to restart the flow of funds.`\
-https://nytimes.com/2025/08/08/us/trump-wants-ucla-to-pay-1-billion-to-restore-its-research-funding.html
+https://nytimes.com/2025/08/08/us/trump-ucla-research-funding-deal.html
 
 **Air Force Denies Early Retirement for Transgender Men and Women**\
 `The service issued a memo on Wednesday that will force at least a dozen transgender servicemen and women to lose lifetime benefits.`\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6542780/2025/08/08/nfl-preseason-week-1-takeaways-b
 **Ángel Macías, 1957 Little League World Series Star, Dies at 80**\
 `Playing for a team from Monterrey, Mexico, he pitched a perfect game in the event’s championship game, the first and only time that has happened.`\
 https://nytimes.com/2025/08/08/sports/baseball/angel-macias-dead.html
-
-**War of Words Erupts Between Colombia and Peru Over Island in Amazon**\
-`Both nations claim Santa Rosa de Yavarí, a tiny island of just 3,000 people that sits in the Amazon River, more than a thousand miles from their capitals.`\
-https://nytimes.com/2025/08/08/world/americas/colombia-peru-amazon-island.html
 
