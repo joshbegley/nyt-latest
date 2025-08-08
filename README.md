@@ -12,7 +12,7 @@ https://nytimes.com/2025/08/08/briefing/trump-drug-cartels-ucla-billion-dollar-f
 
 **The Lasting Appeal of John F. Kennedy Jr.**\
 `A CNN documentary and an upcoming series by Ryan Murphy delve into the nation’s most famous son, who remains fixed in the 1990s.`\
-https://nytimes.com/2025/08/08/style/the-lasting-appeal-of-john-f-kennedy-jr.html
+https://nytimes.com/2025/08/08/style/jfk-jr-cnn-ryan-murphy.html
 
 **Female Rappers Are Having All the Fun**\
 `Our critic’s latest Song of the Week, the Southern rap track “Whim Whamiee,” is just the latest example of a power shift in the genre.`\
