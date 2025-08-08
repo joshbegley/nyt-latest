@@ -1,3 +1,7 @@
+**In Search of a Death With Dignity**\
+`Readers respond to a guest essay about assisted suicide. Also: A setback on vaccines; politics and the pulpit.`\
+https://nytimes.com/2025/08/08/opinion/assisted-suicide.html
+
 **Evann Guessand to Aston Villa: Everything you need to know – TLDR**\
 `Aston Villa have signed Evann Guessand from Nice for a fee worth €35million (£30.4m; $40.5m)`\
 https://nytimes.com/athletic/6542580/2025/08/08/evann-guessand-aston-villa-transfer-analysis/

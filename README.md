@@ -1,3 +1,7 @@
+**‘Hunting Wives’ Is Raunchy, Pulpy and Netflix’s Most Popular Show**\
+`The drama has all the ingredients of a binge-watch: culture wars, murder and sex.`\
+https://nytimes.com/2025/08/08/style/hunting-wives-netflix.html
+
 **In Search of a Death With Dignity**\
 `Readers respond to a guest essay about assisted suicide. Also: A setback on vaccines; politics and the pulpit.`\
 https://nytimes.com/2025/08/08/opinion/assisted-suicide.html
@@ -7,7 +11,7 @@ https://nytimes.com/2025/08/08/opinion/assisted-suicide.html
 https://nytimes.com/athletic/6542580/2025/08/08/evann-guessand-aston-villa-transfer-analysis/
 
 **Victoria Mboko and Naomi Osaka withdraw from Cincinnati Open after Canadian Open final**\
-`Osaka joined Mboko in withdrawing from the main tuneup for the U.S. Open after their final in Montreal.`\
+`Osaka joined Mboko in pulling out of the main tuneup for the U.S. Open after their gripping contest in Montreal.`\
 https://nytimes.com/athletic/6542672/2025/08/08/tennis-mboko-osaka-withdraw-cincinnati-open/
 
 **Traded at the deadline: Inside Mike Yastrzemski's whirlwind week**\
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/08/world/asia/putin-trump-ukraine-china-india.html
 **Hampton threw Coll's notes into crowd during Euro final penalty shoot-out**\
 `Hampton said she discarded Coll's water bottle with her notes on into the English fans.`\
 https://nytimes.com/athletic/6542535/2025/08/08/hannah-hampton-water-bottle-spain-goalkeeper-euro-2025-shoot-out/
-
-**Burnley sign Armando Broja from Chelsea on permanent deal**\
-`Broja spent the 2024-25 season on loan at Everton where he made 13 appearances, two of which for the under-21 team.`\
-https://nytimes.com/athletic/6531991/2025/08/08/chelsea-burnley-broja-transfer-news-complete/
 
