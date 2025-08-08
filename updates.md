@@ -1,3 +1,11 @@
+**Canyon Fire Forces Evacuations North of Los Angeles**\
+`The blaze grew to nearly 5,000 acres within hours, the state’s main firefighting agency said.`\
+https://nytimes.com/video/weather/100000010330329/canyon-fire-forces-evacuations-north-of-los-angeles.html
+
+**The ESPN-NFL megadeal looks and feels like a big trade. So we’re grading the participants.**\
+`The agreements could be a year from formal approval, but here are our early grades for the biggest sports trade of the week.`\
+https://nytimes.com/athletic/6540718/2025/08/08/espn-nfl-deal-redzone-trade-grades/
+
 **Shedeur Sanders starts his first NFL preseason game. Here's how to watch Browns-Panthers**\
 `The NFL Network matchup is headlined by Shedeur Sanders, who starts against the Panthers for his first NFL sample.`\
 https://nytimes.com/athletic/6540956/2025/08/08/shedeur-sanders-browns-panthers-preseason-how-to-watch/

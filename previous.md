@@ -1,3 +1,11 @@
+**Canyon Fire Forces Evacuations North of Los Angeles**\
+`The blaze grew to nearly 5,000 acres within hours, the state’s main firefighting agency said.`\
+https://nytimes.com/video/weather/100000010330329/canyon-fire-forces-evacuations-north-of-los-angeles.html
+
+**The ESPN-NFL megadeal looks and feels like a big trade. So we’re grading the participants.**\
+`The agreements could be a year from formal approval, but here are our early grades for the biggest sports trade of the week.`\
+https://nytimes.com/athletic/6540718/2025/08/08/espn-nfl-deal-redzone-trade-grades/
+
 **Shedeur Sanders starts his first NFL preseason game. Here's how to watch Browns-Panthers**\
 `The NFL Network matchup is headlined by Shedeur Sanders, who starts against the Panthers for his first NFL sample.`\
 https://nytimes.com/athletic/6540956/2025/08/08/shedeur-sanders-browns-panthers-preseason-how-to-watch/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6527754/2025/08/08/fantasy-football-draft-2025-best
 **A Little League coach went viral for his dad joke on the mound. It taught a bigger lesson**\
 `In a tense moment, coach Jake Riordon asked his players, "Do you know why a koala bear is a marsupial and not a bear?"`\
 https://nytimes.com/athletic/6541279/2025/08/08/little-league-coach-dad-joke-viral-bigger-lesson/
-
-**A shift in tone for Yankees' Aaron Boone: 'He can't just ignore everything'**\
-`As the Yankees have dropped in the standings, so too has Boone's penchant for the sunny side.`\
-https://nytimes.com/athletic/6541263/2025/08/08/yankees-aaron-boone-tone-shift/
-
-**New era, same question: Who is really in charge of college football? **\
-`College football famously doesn't have one person in charge. Here's a look at the cast of characters who have or are vying for some control.`\
-https://nytimes.com/athletic/6538353/2025/08/08/college-football-sec-big-ten-congress/
 
