@@ -1,40 +1,40 @@
-**Netanyahu, Aiming to Capture Gaza City, Reverts to a Failed Military Strategy**\
-`Time and again, Prime Minister Benjamin Netanyahu of Israel has pledged to defeat Hamas by force. His cabinet’s decision to capture Gaza City risks ending in a familiar deadlock.`\
-https://nytimes.com/2025/08/08/world/middleeast/israel-gaza-city-capture-netanyahu-hamas.html
+**Cory Mills Should Be at Least as Famous as George Santos**\
+`When you’re MAGA, they let you do it.`\
+https://nytimes.com/2025/08/08/opinion/cory-mills-trump-maga.html
 
-**Victoria Mboko's rise looks like a Cinderella story, but tennis should have seen her coming**\
-`Mboko has won 51 matches in 2025, two of those at a Grand Slam and seven on her Canadian Open title run. But she's here for the long haul.`\
-https://nytimes.com/athletic/6381379/2025/08/08/tennis-victoria-mboko-results-record/
+**Before You Offer Advice, Ask This Question**\
+`It’s simple, but it isn’t easy.`\
+https://nytimes.com/2025/08/08/well/before-you-offer-advice-ask-this-question.html
 
-**Liverpool season betting preview: Should Reds be expected to defend Premier League crown?**\
-`Fresh off a Premier League triumph, Liverpool are favoured to win the league again. Can the Reds also make a run in the Champions League?`\
-https://nytimes.com/athletic/6540645/2025/08/08/liverpool-season-betting-preview-odds/
+**Manhunt Leaves a Town in Limbo a Week After Bar Shooting**\
+`Experts on mass shootings said it’s rare for the gunmen who carry out such crimes to elude the authorities for so long.`\
+https://nytimes.com/2025/08/08/us/montana-anaconda-shooting.html
 
-**For More Than a Century, New Yorkers Have Said the Rent Is Too Damn High**\
-`New York City’s renters have been shaping local politics since the rent strikes of the early 1900s. A new museum exhibit illustrates some of the early struggles.`\
-https://nytimes.com/2025/08/08/nyregion/new-york-city-tenant-activism-history.html
+**How to Craft a Dumb Joke That’s Actually Funny**\
+`The makers of the new “Naked Gun” said that four crucial steps were needed to land one complicated sight gag.`\
+https://nytimes.com/2025/08/08/movies/naked-gun-akiva-schaffer.html
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2025/08/08/crosswords/spelling-bee-forum.html
+**Trump Escalates a Fight Over How to Measure Merit in American Education**\
+`President Trump’s most recent executive order wades into a debate over how elite colleges should weigh grades and test scores versus the obstacles students have overcome.`\
+https://nytimes.com/2025/08/08/us/trump-merit-affirmative-action-colleges.html
 
-**What Is Mamdani’s Vision for New York City’s $40 Billion School System?**\
-`Zohran Mamdani has not released a detailed plan for public education, but his biggest proposal centers on weakening mayoral control and giving power to teachers and parents.`\
-https://nytimes.com/2025/08/08/nyregion/new-york-city-mayors-race-education-mamdani.html
+**MGK Doesn’t Want to Be Cool Anymore**\
+`The onetime rapper on making Bob Dylan a fan, the harrowing abuse that shaped him and his new, genre-agnostic pop album, “Lost Americana.”`\
+https://nytimes.com/2025/08/08/arts/music/machine-gun-kelly-interview-popcast.html
 
-**Why Manchester United are interested in Carlos Baleba, Brighton's free-running, press-resistant midfielder**\
-`Manchester United have spent £200m on a new front three - now they want to rework their midfield`\
-https://nytimes.com/athletic/6540324/2025/08/08/manchester-united-carlos-baleba-transfer/
+**The Fight to Save Hawaii’s Coconut Palms**\
+`An invasive beetle is killing coconut trees across the archipelago, and spreading fast. Researchers are racing to contain it.`\
+https://nytimes.com/2025/08/08/science/hawaii-coconut-palm-beetle.html
 
-**Japan Says Trump to Correct ‘Extremely Regrettable’ Error in Tariff Order**\
-`Tensions have been mounting between the United States and Japan as both sides appear to have starkly different interpretations of a trade deal finalized last month.`\
-https://nytimes.com/2025/08/08/business/japan-tariffs-us-trade-deal.html
+**9 New Movies Our Critics Are Talking About This Week**\
+`Whether you’re a casual moviegoer or an avid buff, our reviewers think these films are worth knowing about.`\
+https://nytimes.com/2025/08/08/movies/9-new-movies-our-critics-are-talking-about-this-week.html
 
-**Colbert on the Tariffs: ‘Set Your Clocks Back to “More Expensive”’**\
-`President Trump is hitting Brazilian imports particularly hard, which is “bad news for meat-based Americans,” Stephen Colbert said.`\
-https://nytimes.com/2025/08/08/arts/television/stephen-colbert-tariffs-trump.html
+**Trump’s Cultural Revolution Is Just Getting Started**\
+`Art can only be effective at illuminating and healing if it is unconstrained by authority.`\
+https://nytimes.com/2025/08/08/opinion/smithsonian-trump-censorship.html
 
-**Word of the Day: canopy**\
-`This word has appeared in 164 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2025/08/08/learning/word-of-the-day-canopy.html
+**Truck Companies Sour on California’s Strict Clean Air Rules**\
+`A deal designed to force compliance with tougher emissions standards is as risk after the Trump administration intervened.`\
+https://nytimes.com/2025/08/08/business/trump-california-electric-trucks-rules.html
 
