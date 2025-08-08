@@ -1,4 +1,8 @@
 **Why Manchester United are interested in Carlos Baleba, Brighton's free-running, press-resistant midfielder**\
+`With the potential Baleba showed last season, it's hardly surprising that he is the next name to be snatched from Brighton's production line`\
+https://nytimes.com/athletic/6540324/2025/08/08/manchester-united-carlos-baleba-transfer/
+
+**Why Manchester United are interested in Carlos Baleba, Brighton's free-running, press-resistant midfielder**\
 `Manchester United have spent £200m on a new front three - now they want to rework their midfield`\
 https://nytimes.com/athletic/6540324/2025/08/08/manchester-united-carlos-baleba-transfer/
 
