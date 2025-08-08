@@ -1,3 +1,7 @@
+**Trump Administration Live Updates: President Orders Law Enforcement Surge in D.C.**\
+``\
+https://nytimes.com/live/2025/08/08/us/trump-news
+
 **‘And Just Like That …’ Season 3, Episode 11: Romantic Tragedy**\
 `Carrie receives some frustrating notes on the ending of her novel. Anthony receives an interesting proposition.`\
 https://nytimes.com/2025/08/08/arts/television/and-just-like-that-recap-season-3-episode-11.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/08/business/dealbook/miran-trump-fed-markets.html
 **Why are U.S. forwards spying opportunity in the Championship?**\
 `A quintet of American strikers will ply their trade in England's second tier this season hoping to impress Mauricio Pochettino from afar`\
 https://nytimes.com/athletic/6542060/2025/08/08/usmnt-efl-championship-downs-wright-agyemang/
-
-**Five Colts who boosted their stock vs. Ravens, 4 who didn't and 1 who can't be overlooked**\
-`The Colts' top concern about Anthony Richardson is his ability to stay healthy. This summer, the QB hasn't proved he can do that.`\
-https://nytimes.com/athletic/6541717/2025/08/08/colts-anthony-richardson-daniel-jones-ravens-preseason/
 

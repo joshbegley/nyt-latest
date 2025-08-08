@@ -1,3 +1,7 @@
+**Trump Administration Live Updates: President Orders Law Enforcement Surge in D.C.**\
+``\
+https://nytimes.com/live/2025/08/08/us/trump-news
+
 **‘And Just Like That …’ Season 3, Episode 11: Romantic Tragedy**\
 `Carrie receives some frustrating notes on the ending of her novel. Anthony receives an interesting proposition.`\
 https://nytimes.com/2025/08/08/arts/television/and-just-like-that-recap-season-3-episode-11.html
