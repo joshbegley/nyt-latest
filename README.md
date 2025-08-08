@@ -1,3 +1,7 @@
+**Ben Shelton wins Canadian Open for his first ATP Masters 1000 title**\
+`The American upstart and world No. 7 outlasted world No. 16 Karen Khachanov in three sets.`\
+https://nytimes.com/athletic/6541730/2025/08/07/ben-shelton-karen-khachanov-canadian-open/
+
 **Trump Orders Surge of Law Enforcement in Washington, D.C.**\
 `The deployment follows President Trump’s effort to portray the nation’s capital as rife with violent crime, despite data showing crime rates dropping significantly.`\
 https://nytimes.com/2025/08/07/us/politics/trump-washington-dc-federal-police.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/07/us/politics/trump-new-economic-numbers.html
 **Cuomo and Trump, Two ‘Queens Boys,’ Go Way Back**\
 `President Trump has urged Andrew Cuomo to stay in the New York City mayor’s race. Here are seven moments when their paths crossed over the years.`\
 https://nytimes.com/2025/08/07/nyregion/andrew-cuomo-trump.html
-
-**Prosecutor Takes Over Local Police Force in New Jersey After 2 Killings**\
-`An investigation into the shooting deaths of two people and the apparent suicide of a suspect, a state trooper, “raised serious concerns” from the county prosecutor’s office.`\
-https://nytimes.com/2025/08/07/nyregion/nj-state-trooper-suspect-shootings.html
 
