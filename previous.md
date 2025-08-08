@@ -1,3 +1,7 @@
+**Still Fuming Over a Weak Jobs Report, Trump Finds Some Numbers He Likes**\
+`President Trump promoted his own version of reality in the Oval Office after firing the head of the agency that collects employment statistics last week.`\
+https://nytimes.com/2025/08/07/us/politics/trump-new-economic-numbers.html
+
 **Cuomo and Trump, Two ‘Queens Boys,’ Go Way Back**\
 `President Trump has urged Andrew Cuomo to stay in the New York City mayor’s race. Here are seven moments when their paths crossed over the years.`\
 https://nytimes.com/2025/08/07/nyregion/andrew-cuomo-trump.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/07/nyregion/sept-11-victims-remains-identified.html
 **Weather Service Is Hiring Hundreds After Sweeping Cuts Earlier This Year**\
 `The federal forecasting agency plans to restore some of its losses from this year’s Trump administration cuts.`\
 https://nytimes.com/2025/08/07/weather/nws-hiring-doge-cuts.html
-
-**Trump Order Clears Way for Crypto and Private Equity in 401(k)s**\
-`The executive order is intended to give investors more options, but experts say employers will tread carefully before adding alternative assets.`\
-https://nytimes.com/2025/08/07/business/trump-401k-crypto.html
 

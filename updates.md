@@ -1,3 +1,7 @@
+**Still Fuming Over a Weak Jobs Report, Trump Finds Some Numbers He Likes**\
+`President Trump promoted his own version of reality in the Oval Office after firing the head of the agency that collects employment statistics last week.`\
+https://nytimes.com/2025/08/07/us/politics/trump-new-economic-numbers.html
+
 **Cuomo and Trump, Two ‘Queens Boys,’ Go Way Back**\
 `President Trump has urged Andrew Cuomo to stay in the New York City mayor’s race. Here are seven moments when their paths crossed over the years.`\
 https://nytimes.com/2025/08/07/nyregion/andrew-cuomo-trump.html
