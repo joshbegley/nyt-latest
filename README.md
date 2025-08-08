@@ -1,3 +1,19 @@
+**Police Respond to Reports of an Active Shooter at Emory University**\
+`Several emergency units responded to Emory University after reports of an active shooter at a CVS store near the campus in Atlanta Friday afternoon.`\
+https://nytimes.com/video/us/100000010331875/atlanta-emory-shooting.html
+
+**Trump Suggests a Russia-Ukraine Peace Deal Would Include ‘Swapping of Territories’**\
+`Mr. Trump provided little additional detail about what territory could be swapped or about the broader contours of a peace deal between Russia and Ukraine.`\
+https://nytimes.com/2025/08/08/us/politics/trump-russia-ukraine-deal.html
+
+**Finding Beauty Underneath Paris**\
+`A whiff of the Paris Métro flings me back to a summer I spent in France.`\
+https://nytimes.com/interactive/2025/08/08/opinion/paris-metro-beauty.html
+
+**Kyle Karros, Rockies' No. 3 prospect, set to make his MLB debut**\
+`The son of former big leaguer Eric Karros is "exactly the kind of guy the Rockies need," a high-contact hitter who fields his position well.`\
+https://nytimes.com/athletic/6543139/2025/08/08/kyle-karros-rockies-no-3-prospect-set-to-make-his-mlb-debut/
+
 **NBA Christmas Day games include Rockets-Lakers, Cavs-Knicks: Sources**\
 `The first NBA game on NBC in 23 years will feature the champion Thunder against the Rockets.`\
 https://nytimes.com/athletic/6543145/2025/08/08/nba-christmas-day-games-schedule-lakers-knicks-warriors/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6543112/2025/08/08/eddie-howe-alexander-isak-transf
 **Bears double down on Arlington Heights for new stadium plans**\
 `Bears president/CEO Kevin Warren and chairman George McCaskey maintained the team's hope to build a stadium in Arlington Heights.`\
 https://nytimes.com/athletic/6543051/2025/08/08/chicago-bears-arlington-heights-new-stadium/
-
-**Netanyahu’s Plan for Gaza Has Skeptics in Highest Levels of Israel’s Military**\
-`The military leadership has said it prefers a new cease-fire instead of renewed fighting, and the military’s chief of staff previously raised concerns about troop exhaustion.`\
-https://nytimes.com/2025/08/08/world/middleeast/israel-gaza-takeover-military-objection.html
-
-**Suspect in Deadly Montana Bar Shooting Is Captured, Officials Say**\
-`An Army veteran wanted in connection with the killing four people at a bar in the town of Anaconda was taken into custody on Friday after an eight-day manhunt.`\
-https://nytimes.com/2025/08/08/us/montana-shooting-suspect-captured-manhunt.html
-
-**Indiana Fever lose guards Sydney Colson and Aari McDonald for the season**\
-`Both were injured in a loss to Phoenix on Friday. With Caitlin Clark still out, Indiana now has zero healthy guards.`\
-https://nytimes.com/athletic/6543046/2025/08/08/indiana-fever-sydney-colson-aari-mcdonald-injured/
-
-**Firefighters Begin to Contain Growing Wildfire Northwest of L.A.**\
-`The blaze, called the Canyon fire, began early Thursday afternoon near Lake Piru, a reservoir about 60 miles northwest of downtown Los Angeles.`\
-https://nytimes.com/2025/08/08/us/canyon-fire-los-angeles.html
 
