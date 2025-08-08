@@ -1,3 +1,15 @@
+**The New York Times in Print for Friday, Aug. 8, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/08/08/todays-new-york-times
+
+**Democrats Are Finally, Slowly, Changing Their Minds on Israel**\
+`Amy Klobuchar has taken a crucial step toward the view of the party’s base.`\
+https://nytimes.com/2025/08/08/opinion/democrats-gaza-klobuchar-booker.html
+
+**Trump’s Tariff Victory Is Not What It Seems**\
+`Consumers and businesses will lose out, thanks to other Trump economic policies.`\
+https://nytimes.com/2025/08/08/opinion/trump-tariffs-trade-economy.html
+
 **F.A.A. Plans to Hire 8,900 Air Traffic Controllers but Still Expects Shortages**\
 `The Federal Aviation Administration says it plans to “supercharge” hiring and training between now and late 2028. It would not be enough to end a shortage of controllers.`\
 https://nytimes.com/2025/08/08/us/politics/faa-air-traffic-controllers.html
