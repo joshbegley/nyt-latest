@@ -3,7 +3,7 @@
 https://nytimes.com/athletic/6542795/2025/08/08/broncos-49ers-preseason-opener-what-to-watch/
 
 **Texas Attorney General Moves to Oust Democrats From Office Over Walkout**\
-`Democratic lawmakers maintained their walkout to thwart a Republican gerrymander, promting Attorney General Ken Paxton to ask the State Supreme Court to remove 13 of them from their seats.`\
+`Democratic lawmakers maintained their walkout to thwart a Republican gerrymander, prompting Attorney General Ken Paxton to ask the State Supreme Court to remove 13 of them from their seats.`\
 https://nytimes.com/2025/08/08/us/politics/texas-redistricting-democrats.html
 
 **Elena Rybakina's barred coach Stefano Vukov has WTA Tour suspension lifted after appeal**\
