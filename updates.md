@@ -1,3 +1,15 @@
+**One Way to Retire With Friends**\
+`We go inside The Bird’s Nest, a community in Texas.`\
+https://nytimes.com/2025/08/08/briefing/one-way-to-retire-with-friends.html
+
+**The game that convinced Villa to sign Evann Guessand**\
+`Guessand chimes with the profile of versatile attacker that Unai Emery loves to work with, able to play central striker and on either flank`\
+https://nytimes.com/athletic/6537864/2025/08/08/evann-guessand-aston-villa-nice-transfer/
+
+**Trump to Host Leaders of Armenia and Azerbaijan for ‘Peace Signing’**\
+`President Trump appeared eager to project confidence that an agreement could be reached in a long-intractable conflict.`\
+https://nytimes.com/2025/08/08/world/europe/trump-armenia-azerbaijan-peace-signing.html
+
 **Russian Strikes Kill 3 in Ukraine, Which May Be Left Out of Peace Talks**\
 `“Here on the ground, we don’t feel any real changes from all these high-level meetings and statements,” a soldier said.`\
 https://nytimes.com/2025/08/08/world/europe/ukraine-russia-trump-putin.html
