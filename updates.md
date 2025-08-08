@@ -1,3 +1,15 @@
+**Texas Redistricting Fight: Is Any of This Legal?**\
+`Democrats have left the state, the Republican governor and attorney general have vowed to remove them from office, and a senator has called in the F.B.I.`\
+https://nytimes.com/2025/08/08/us/politics/texas-redistricting-legal.html
+
+**Paul Skenes' scintillating start is like nothing we've seen — and more history awaits**\
+`When a one-of-a-kind talent like Paul Skenes enters the chat, there’s only one way to put his exploits in perspective: Time travel.`\
+https://nytimes.com/athletic/6542645/2025/08/08/paul-skenes-pirates-mlb-career-start-records/
+
+**Trump Wants U.C.L.A. to Pay $1 Billion to Restore Its Research Funding**\
+`The Trump administration has ended about $500 million for the Los Angeles-based university. The president said he wanted nearly double that to restart the flow of funds.`\
+https://nytimes.com/2025/08/08/us/trump-wants-ucla-to-pay-1-billion-to-restore-its-research-funding.html
+
 **Air Force Denies Early Retirement for Transgender Men and Women**\
 `The service issued a memo on Wednesday that will force at least a dozen transgender servicemen and women to lose lifetime benefits.`\
 https://nytimes.com/2025/08/08/us/politics/air-force-transgender-service-members-early-retirement.html
