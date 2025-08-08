@@ -1,3 +1,7 @@
+**Quote of the Day: Former F.D.A. Chief, Like Kennedy, Attacks Ultraprocessed Foods**\
+`Quotation of the Day for Friday, August 8, 2025`\
+https://nytimes.com/2025/08/07/pageoneplus/quote-of-the-day-former-fda-chief-like-kennedy-attacks-ultraprocessed-foods.html
+
 **Stephen Nedoroscik, U.S. pommel horse Olympic hero, is back at it a year later**\
 `The U.S. Olympic gymnastics hero returned to competition Thursday. The rust showed, but the spirit lived on.`\
 https://nytimes.com/athletic/6540504/2025/08/07/stephen-nedoroscik-olympics-pommel-horse-gymnastics-championships/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6540655/2025/08/07/houston-texans-cj-gardner-johnso
 **Victoria Mboko tops Naomi Osaka, completes run to Canadian Open title**\
 `Mboko, the 18-year-old hometown hero, storms past Osaka, 2-6, 6-4, 6-1.`\
 https://nytimes.com/athletic/6541484/2025/08/07/naomi-osaka-victoria-mboko-canadian-open-final/
-
-**Still Fuming Over a Weak Jobs Report, Trump Finds Some Numbers He Likes**\
-`President Trump promoted his own version of reality in the Oval Office after firing the head of the agency that collects employment statistics last week.`\
-https://nytimes.com/2025/08/07/us/politics/trump-new-economic-numbers.html
 

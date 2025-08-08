@@ -1,3 +1,7 @@
+**Quote of the Day: Former F.D.A. Chief, Like Kennedy, Attacks Ultraprocessed Foods**\
+`Quotation of the Day for Friday, August 8, 2025`\
+https://nytimes.com/2025/08/07/pageoneplus/quote-of-the-day-former-fda-chief-like-kennedy-attacks-ultraprocessed-foods.html
+
 **Stephen Nedoroscik, U.S. pommel horse Olympic hero, is back at it a year later**\
 `The U.S. Olympic gymnastics hero returned to competition Thursday. The rust showed, but the spirit lived on.`\
 https://nytimes.com/athletic/6540504/2025/08/07/stephen-nedoroscik-olympics-pommel-horse-gymnastics-championships/
