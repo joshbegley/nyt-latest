@@ -1,4 +1,4 @@
-**Chris Sale on returning in Braves' lost season: 'I like to compete and I want to do my job'**\
+**Chris Sale on returning in Braves' lost season: 'I want to do my job'**\
 `“I think being able to get some innings under my belt this year is going to protect me for next year,” Sale said.`\
 https://nytimes.com/athletic/6541482/2025/08/07/chris-sale-return-braves-lost-season/
 
