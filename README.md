@@ -1,3 +1,7 @@
+**Caleb Williams trolls, Anthony Richardson injury and other fantasy football news**\
+`The Athletic's new columnist Andy Behrens details the latest fantasy-relevant news from around the league, including some rookie hype.`\
+https://nytimes.com/athletic/6542273/2025/08/08/fantasy-football-news-caleb-williams-anthony-richardson/
+
 **A Salmon Dish That’s Simple Perfection**\
 `Chan chan yaki: Sauté vegetables in a skillet, then top with miso-buttered salmon to steam until the fish is just cooked through. Serve with rice and a cold beer.`\
 https://nytimes.com/2025/08/08/dining/easy-chan-chan-yaki-miso-butter-salmon-recipe.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/08/t-magazine/rf-alvarez-austin-texas-home.html
 **Watch Julia Garner Visit a Creepy Home in ‘Weapons’**\
 `The writer-director, Zach Cregger, narrates a sequence from his twisty horror film.`\
 https://nytimes.com/2025/08/08/movies/weapons-clip-julia-garner.html
-
-**Possible Planet Is Spotted Around Neighboring Sunlike Star**\
-`Astronomers found strong evidence that a gassy Jupiter-size world is orbiting Alpha Centauri A, one of three stars in the solar system closest to our own.`\
-https://nytimes.com/2025/08/08/science/alpha-centauri-planet-webb-telescope.html
 
