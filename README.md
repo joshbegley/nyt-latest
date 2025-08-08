@@ -1,3 +1,7 @@
+**How did Micah Parsons and the Cowboys get to this point? A timeline**\
+`Parsons has been eligible for a new contract since the end of the 2023 season but the wait continues for the pass rusher and the Cowboys. `\
+https://nytimes.com/athletic/6540931/2025/08/08/micah-parsons-cowboys-contract-trade-timeline/
+
 **Trump Administration Live Updates: President Orders Law Enforcement Surge in D.C.**\
 ``\
 https://nytimes.com/live/2025/08/08/us/trump-news
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6541067/2025/08/08/packers-preseason-jets-golden-me
 **What a Trump Loyalist at the Fed May Mean for Markets**\
 `Stephen Miran, a close adviser to the president who is likely to become a governor at the central bank, has pushed for a weak dollar and lower interest rates.`\
 https://nytimes.com/2025/08/08/business/dealbook/miran-trump-fed-markets.html
-
-**Why are U.S. forwards spying opportunity in the Championship?**\
-`A quintet of American strikers will ply their trade in England's second tier this season hoping to impress Mauricio Pochettino from afar`\
-https://nytimes.com/athletic/6542060/2025/08/08/usmnt-efl-championship-downs-wright-agyemang/
 
