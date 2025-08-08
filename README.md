@@ -1,3 +1,7 @@
+**Texas Redistricting Fight: Is Any of This Legal?**\
+`Democrats have left the state, the Republican governor and attorney general have vowed to remove them from office, and a senator has called in the F.B.I.`\
+https://nytimes.com/2025/08/08/us/politics/texas-redistricting-legal.html
+
 **Paul Skenes' scintillating start is like nothing we've seen — and more history awaits**\
 `When a one-of-a-kind talent like Paul Skenes enters the chat, there’s only one way to put his exploits in perspective: Time travel.`\
 https://nytimes.com/athletic/6542645/2025/08/08/paul-skenes-pirates-mlb-career-start-records/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/08/world/americas/colombia-peru-amazon-island.html
 **Gold Market Is Shaken by Unexpected U.S. Tariff Ruling**\
 `Some of the most widely used types of gold bars would be subject to U.S. tariffs, customs agency officials ruled, a particular blow to Switzerland’s large gold refining industry.`\
 https://nytimes.com/2025/08/08/business/tariffs-gold-price-switzerland.html
-
-**‘Well, I’ll Let You Go’ Review: A Fog of Grief**\
-`Bubba Weiler’s quietly absorbing new play, directed by Jack Serio, is a showcase for a blue-chip cast that includes Quincy Tyler Bernstine and Michael Chernus.`\
-https://nytimes.com/2025/08/08/theater/cul-let-go-review.html
 
