@@ -1,3 +1,7 @@
+**Why are the Lynx playing the Liberty three times in a row? Another WNBA scheduling oddity**\
+`The teams will meet for only the second time this season on Sunday. Why didn't the W space out these rivalry games?`\
+https://nytimes.com/athletic/6541906/2025/08/08/lynx-liberty-wnba-schedule/
+
 **Germany Says It Will Suspend Military Exports to Israel for Use in Gaza**\
 `The move followed weeks of debate over reports of hunger in Gaza, but it was precipitated by Israel’s decision to expand military operations there.`\
 https://nytimes.com/2025/08/08/world/europe/germany-weapons-israel-gaza.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/08/arts/television/and-just-like-that-recap-season-3
 **Chargers' Rashawn Slater faces a long road ahead after devastating knee injury**\
 `According to orthopedic surgeon Dr. Carlos Uquillas: "A lot of people do return from this injury. Sometimes not at the same level.”`\
 https://nytimes.com/athletic/6541689/2025/08/08/chargers-rashawn-slater-injury-recovery/
-
-**Lowetide: Do the Oilers need more of a rugged edge next season?**\
-`The Oilers appear to be changing their procurement style and sending the team in a more aggressive direction`\
-https://nytimes.com/athletic/6540430/2025/08/08/oilers-2025-season-rugged-edge/
 

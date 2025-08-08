@@ -1,3 +1,7 @@
+**Why are the Lynx playing the Liberty three times in a row? Another WNBA scheduling oddity**\
+`The teams will meet for only the second time this season on Sunday. Why didn't the W space out these rivalry games?`\
+https://nytimes.com/athletic/6541906/2025/08/08/lynx-liberty-wnba-schedule/
+
 **Germany Says It Will Suspend Military Exports to Israel for Use in Gaza**\
 `The move followed weeks of debate over reports of hunger in Gaza, but it was precipitated by Israel’s decision to expand military operations there.`\
 https://nytimes.com/2025/08/08/world/europe/germany-weapons-israel-gaza.html
