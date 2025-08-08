@@ -1,3 +1,7 @@
+**Air Force Denies Early Retirement for Transgender Men and Women**\
+`The service issued a memo on Wednesday that will force at least a dozen transgender servicemen and women to lose lifetime benefits.`\
+https://nytimes.com/2025/08/08/us/politics/air-force-transgender-service-members-early-retirement.html
+
 **Ter Stegen: Keen to 'collaborate' and 'resolve' dispute with Barcelona**\
 `Ter Stegen was stripped of his Barcelona captaincy on Thursday amid a dispute over a medical document.`\
 https://nytimes.com/athletic/6542808/2025/08/08/marc-andre-ter-stegen-resolve-barcelona-dispute/

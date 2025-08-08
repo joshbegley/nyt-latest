@@ -1,3 +1,11 @@
+**Paul Skenes' scintillating start is like nothing we've seen — and more history awaits**\
+`When a one-of-a-kind talent like Paul Skenes enters the chat, there’s only one way to put his exploits in perspective: Time travel.`\
+https://nytimes.com/athletic/6542645/2025/08/08/paul-skenes-pirates-mlb-career-start-records/
+
+**Trump Wants U.C.L.A. to Pay $1 Billion to Restore Its Research Funding**\
+`The Trump administration has ended about $500 million for the Los Angeles-based university. The president said he wanted nearly double that to restart the flow of funds.`\
+https://nytimes.com/2025/08/08/us/trump-wants-ucla-to-pay-1-billion-to-restore-its-research-funding.html
+
 **Air Force Denies Early Retirement for Transgender Men and Women**\
 `The service issued a memo on Wednesday that will force at least a dozen transgender servicemen and women to lose lifetime benefits.`\
 https://nytimes.com/2025/08/08/us/politics/air-force-transgender-service-members-early-retirement.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/08/08/business/tariffs-gold-price-switzerland.html
 **‘Well, I’ll Let You Go’ Review: A Fog of Grief**\
 `Bubba Weiler’s quietly absorbing new play, directed by Jack Serio, is a showcase for a blue-chip cast that includes Quincy Tyler Bernstine and Michael Chernus.`\
 https://nytimes.com/2025/08/08/theater/cul-let-go-review.html
-
-**First Fishing, Then Foreign Policy for Vance and Lammy at a British Estate**\
-`JD Vance and his family are spending two nights at the country residence of the British foreign secretary, David Lammy, with whom he has a somewhat unlikely friendship.`\
-https://nytimes.com/2025/08/08/world/europe/jd-vance-lammy-uk-gaza.html
-
-**Bournemouth confirm goalkeeper Neto permanent transfer to Botafogo**\
-`The 36-year-old is the second goalkeeper to leave the Vitality Stadium this summer.`\
-https://nytimes.com/athletic/6542784/2025/08/08/bournemouth-goalkeeper-neto-botafogo-transfer/
 
