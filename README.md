@@ -28,7 +28,7 @@ https://nytimes.com/2025/08/08/world/europe/germany-weapons-israel-gaza.html
 
 **‘A Loyalist Inside the Building’: Trump’s Temporary Fed Pick Could Have a Lasting Effect**\
 `Stephen I. Miran may spend only a few months on the central bank’s board of governors, but in that time he can influence the discussions around interest rates and who will become the institution’s next leader.`\
-https://nytimes.com/2025/08/08/business/fed-miran-rates-powell-trump.html
+https://nytimes.com/2025/08/08/business/economy/fed-miran-rates-powell-trump.html
 
 **Newcastle considering move for Porto striker Aghehowa**\
 `The 21-year-old is high among the small number of options Newcastle are considering to bolster their attack this summer.`\
