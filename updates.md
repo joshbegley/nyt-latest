@@ -1,3 +1,7 @@
+**The U.S. Says Britain Is Chilling Free Speech. Many Britons Point the Finger Back.**\
+`To some in the U.K., the criticisms from the American right over arrests of people for hate speech seem hypocritical, given President Trump’s attacks on those who disagree with him.`\
+https://nytimes.com/2025/08/08/world/europe/uk-free-speech-vance-starmer.html
+
 **How to watch NASCAR at Watkins Glen: TV, streaming, odds for tripleheader race weekend**\
 `After three weeks on ovals, the NASCAR Cup Series pivots to a road course at Watkins Glen International, an American motorsport shrine. `\
 https://nytimes.com/athletic/6541163/2025/08/08/nascar-watkins-glen-odds-how-to-watch-2025/

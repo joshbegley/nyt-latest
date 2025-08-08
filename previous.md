@@ -1,3 +1,7 @@
+**The U.S. Says Britain Is Chilling Free Speech. Many Britons Point the Finger Back.**\
+`To some in the U.K., the criticisms from the American right over arrests of people for hate speech seem hypocritical, given President Trump’s attacks on those who disagree with him.`\
+https://nytimes.com/2025/08/08/world/europe/uk-free-speech-vance-starmer.html
+
 **How to watch NASCAR at Watkins Glen: TV, streaming, odds for tripleheader race weekend**\
 `After three weeks on ovals, the NASCAR Cup Series pivots to a road course at Watkins Glen International, an American motorsport shrine. `\
 https://nytimes.com/athletic/6541163/2025/08/08/nascar-watkins-glen-odds-how-to-watch-2025/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/08/movies/naked-gun-akiva-schaffer.html
 **Trump Escalates a Fight Over How to Measure Merit in American Education**\
 `President Trump’s most recent executive order wades into a debate over how elite colleges should weigh grades and test scores versus the obstacles students have overcome.`\
 https://nytimes.com/2025/08/08/us/trump-merit-affirmative-action-colleges.html
-
-**MGK Doesn’t Want to Be Cool Anymore**\
-`The onetime rapper on making Bob Dylan a fan, the harrowing abuse that shaped him and his new, genre-agnostic pop album, “Lost Americana.”`\
-https://nytimes.com/2025/08/08/arts/music/machine-gun-kelly-interview-popcast.html
 
