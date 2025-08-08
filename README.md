@@ -1,3 +1,7 @@
+**Season-ending injury to Ravens CB mars otherwise strong debut for rookie class**\
+`Baltimore's preseason victory over Indianapolis yielded far more positives than negatives for the reigning AFC North champs. `\
+https://nytimes.com/athletic/6541834/2025/08/08/ravens-rookies-colts-preseason-week-1/
+
 **The Pulse: Another twist in the Jordon Hudson story**\
 `The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
 https://nytimes.com/athletic/6541827/2025/08/08/jordon-hudson-bill-belichick-interview-the-pulse/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6541205/2025/08/08/lions-players-to-watch-isaac-tes
 **Seven Browns not named Shedeur Sanders to watch in preseason matchup with Panthers**\
 `These players have steadily earned more reps in training camp as Cleveland's quarterback competition continues.`\
 https://nytimes.com/athletic/6540442/2025/08/08/browns-panthers-preseason-shedeur-sanders/
-
-**Which 10 Giants players have the most to gain this preseason?**\
-`Jaxson Dart (probably) won't create a QB controversy, but he could play well enough to inject some hope into the Giants' future.`\
-https://nytimes.com/athletic/6541284/2025/08/08/ny-giants-preseason-jaxson-dart-evan-neal/
 
