@@ -1,3 +1,7 @@
+**Trump to Meet With Leaders of Armenia and Azerbaijan, Seeking to End Conflict**\
+`The two countries’ leaders are expected to sign a joint declaration toward a peace deal after decades of fighting.`\
+https://nytimes.com/2025/08/08/us/politics/trump-armenia-azerbaijan-peace-deal.html
+
 **Texas Redistricting Fight: Is Any of This Legal?**\
 `Democrats have left the state, the Republican governor and attorney general have vowed to remove them from office, and a senator has called in the F.B.I.`\
 https://nytimes.com/2025/08/08/us/politics/texas-redistricting-legal.html

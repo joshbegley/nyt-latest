@@ -1,3 +1,7 @@
+**Trump to Meet With Leaders of Armenia and Azerbaijan, Seeking to End Conflict**\
+`The two countries’ leaders are expected to sign a joint declaration toward a peace deal after decades of fighting.`\
+https://nytimes.com/2025/08/08/us/politics/trump-armenia-azerbaijan-peace-deal.html
+
 **Texas Redistricting Fight: Is Any of This Legal?**\
 `Democrats have left the state, the Republican governor and attorney general have vowed to remove them from office, and a senator has called in the F.B.I.`\
 https://nytimes.com/2025/08/08/us/politics/texas-redistricting-legal.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/08/sports/baseball/angel-macias-dead.html
 **War of Words Erupts Between Colombia and Peru Over Island in Amazon**\
 `Both nations claim Santa Rosa de Yavarí, a tiny island of just 3,000 people that sits in the Amazon River, more than a thousand miles from their capitals.`\
 https://nytimes.com/2025/08/08/world/americas/colombia-peru-amazon-island.html
-
-**Gold Market Is Shaken by Unexpected U.S. Tariff Ruling**\
-`Some of the most widely used types of gold bars would be subject to U.S. tariffs, customs agency officials ruled, a particular blow to Switzerland’s large gold refining industry.`\
-https://nytimes.com/2025/08/08/business/tariffs-gold-price-switzerland.html
 
