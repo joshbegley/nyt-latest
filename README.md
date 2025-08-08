@@ -1,3 +1,7 @@
+**Trump Orders Surge of Law Enforcement in Washington, D.C.**\
+`The deployment follows President Trump’s effort to portray the nation’s capital as rife with violent crime, despite data showing crime rates dropping significantly.`\
+https://nytimes.com/2025/08/07/us/politics/trump-washington-dc-federal-police.html
+
 **Diffracting Light Into Rainbows**\
 `Rafael Musa and Matthew Stock open our solving weekend.`\
 https://nytimes.com/2025/08/07/crosswords/daily-puzzle-2025-08-08.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/07/nyregion/andrew-cuomo-trump.html
 **Prosecutor Takes Over Local Police Force in New Jersey After 2 Killings**\
 `An investigation into the shooting deaths of two people and the apparent suicide of a suspect, a state trooper, “raised serious concerns” from the county prosecutor’s office.`\
 https://nytimes.com/2025/08/07/nyregion/nj-state-trooper-suspect-shootings.html
-
-**Thousands Ordered to Flee Fast-Moving Wildfire in Ventura County**\
-`The Canyon Fire was initially reported at about 30 acres but had rapidly grown to 1,050 acres in a few hours on Thursday, officials said.`\
-https://nytimes.com/2025/08/07/us/canyon-fire-ventura-county.html
 
