@@ -1,3 +1,19 @@
+**Liverpool season betting preview: Should Reds be expected to defend Premier League crown?**\
+`Fresh off a Premier League triumph, Liverpool are favoured to win the league again. Can the Reds also make a run in the Champions League?`\
+https://nytimes.com/athletic/6540645/2025/08/08/liverpool-season-betting-preview-odds/
+
+**For More Than a Century, New Yorkers Have Said the Rent Is Too Damn High**\
+`New York City’s renters have been shaping local politics since the rent strikes of the early 1900s. A new museum exhibit illustrates some of the early struggles.`\
+https://nytimes.com/2025/08/08/nyregion/new-york-city-tenant-activism-history.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/08/08/crosswords/spelling-bee-forum.html
+
+**What Is Mamdani’s Vision for New York City’s $40 Billion School System?**\
+`Zohran Mamdani has not released a detailed plan for public education, but his biggest proposal centers on weakening mayoral control and giving power to teachers and parents.`\
+https://nytimes.com/2025/08/08/nyregion/new-york-city-mayors-race-education-mamdani.html
+
 **Why Manchester United are interested in Carlos Baleba, Brighton's free-running, press-resistant midfielder**\
 `With the potential Baleba showed last season, it's hardly surprising that he is the next name to be snatched from Brighton's production line`\
 https://nytimes.com/athletic/6540324/2025/08/08/manchester-united-carlos-baleba-transfer/
