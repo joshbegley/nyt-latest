@@ -1,3 +1,11 @@
+**Why Manchester United are interested in Carlos Baleba, Brighton's free-running, press-resistant midfielder**\
+`With the potential Baleba showed last season, it's hardly surprising that he is the next name to be snatched from Brighton's production line`\
+https://nytimes.com/athletic/6540324/2025/08/08/manchester-united-carlos-baleba-transfer/
+
+**Japan Says Trump to Correct ‘Extremely Regrettable’ Error in Tariff Order**\
+`Tensions have been mounting between the United States and Japan as both sides appear to have starkly different interpretations of a trade deal finalized last month.`\
+https://nytimes.com/2025/08/08/business/japan-tariffs-us-trade-deal.html
+
 **Colbert on the Tariffs: ‘Set Your Clocks Back to “More Expensive”’**\
 `President Trump is hitting Brazilian imports particularly hard, which is “bad news for meat-based Americans,” Stephen Colbert said.`\
 https://nytimes.com/2025/08/08/arts/television/stephen-colbert-tariffs-trump.html
