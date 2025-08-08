@@ -1,40 +1,40 @@
-**Palace delegation arrives at CAS to fight for Europa League return**\
-`Chairman Steve Parish has described UEFA's ruling as “a terrible injustice” based on “the most ridiculous technicality you can imagine”.`\
-https://nytimes.com/athletic/6542032/2025/08/08/crystal-palace-cas-europa-league-steve-parish-uefa/
+**Shedeur Sanders starts his first NFL preseason game. Here's how to watch Browns-Panthers**\
+`The NFL Network matchup is headlined by Shedeur Sanders, who starts against the Panthers for his first NFL sample.`\
+https://nytimes.com/athletic/6540956/2025/08/08/shedeur-sanders-browns-panthers-preseason-how-to-watch/
 
-**Slot: Frimpong can deputise for Salah**\
-`The £29.5million signing is expected to start at right-back in Sunday's Community Shield, with Conor Bradley a major fitness doubt.`\
-https://nytimes.com/athletic/6542016/2025/08/08/liverpool-slot-frimpong-salah/
+**Vikings roster bubble: 12 players who need to stand out in preseason opener vs. Texans**\
+`Preseason games may not offer peak NFL football. But they're vitally important to the players striving to make the Vikings' 53-man roster.`\
+https://nytimes.com/athletic/6540754/2025/08/08/vikings-roster-preseason-texans-rondale-moore/
 
-**The New York Times International Edition in Print for Saturday, Aug. 9, 2025**\
-``\
-https://nytimes.com/issue/todaysinyt/2025/08/08/todays-new-york-times-international-edition
+**Watching Joe Milton, Donovan Ezeiruaku and others in Cowboys' preseason opener**\
+`Milton has looked sharp in camp and the Dallas coaches like what they've seen. Can he carry that over into the preseason game?`\
+https://nytimes.com/athletic/6541520/2025/08/08/cowboys-players-to-watch-preseason-game/
 
-**Can Russia’s Economy Withstand Trump’s Pressure?**\
-`The Russian economy was slowing even before President Trump’s latest threats. But the Kremlin has enough money to keep fighting in Ukraine.`\
-https://nytimes.com/2025/08/08/world/europe/russia-economy-oil-trump-us-sanctions-tariffs.html
+**Ten Lions I'm watching vs. Falcons: Can TeSlaa, Hassanein continue to impress?**\
+`Some players are looking to strengthen their spots, others are looking to find one as the Lions get ready for their second preseason game.`\
+https://nytimes.com/athletic/6541205/2025/08/08/lions-players-to-watch-isaac-teslaa/
 
-**The U.S. Says Britain Is Chilling Free Speech. Many Britons Point the Finger Back.**\
-`To some in the U.K., the criticisms from the American right over arrests of people for hate speech seem hypocritical, given President Trump’s attacks on those who disagree with him.`\
-https://nytimes.com/2025/08/08/world/europe/uk-free-speech-vance-starmer.html
+**Seven Browns not named Shedeur Sanders to watch in preseason matchup with Panthers**\
+`These players have steadily earned more reps in training camp as Cleveland's quarterback competition continues.`\
+https://nytimes.com/athletic/6540442/2025/08/08/browns-panthers-preseason-shedeur-sanders/
 
-**How to watch NASCAR at Watkins Glen: TV, streaming, odds for tripleheader race weekend**\
-`After three weeks on ovals, the NASCAR Cup Series pivots to a road course at Watkins Glen International, an American motorsport shrine. `\
-https://nytimes.com/athletic/6541163/2025/08/08/nascar-watkins-glen-odds-how-to-watch-2025/
+**Which 10 Giants players have the most to gain this preseason?**\
+`Jaxson Dart (probably) won't create a QB controversy, but he could play well enough to inject some hope into the Giants' future.`\
+https://nytimes.com/athletic/6541284/2025/08/08/ny-giants-preseason-jaxson-dart-evan-neal/
 
-**A long-shot Falcons WR with a famous football past is looking toward the future**\
-`David Sills V has impressed his teammates and coaches in Atlanta, not just with his play but with his movie recommendations.`\
-https://nytimes.com/athletic/6540427/2025/08/08/david-sills-v-falcons-lions-nfl-preseason/
+**Forget the No. 1 slot in 2025 fantasy football drafts, the sweet spot comes later**\
+`Mike Vorkunov explains why the fourth pick is the catbird seat from which to build your fantasy football roster in 2025.`\
+https://nytimes.com/athletic/6527754/2025/08/08/fantasy-football-draft-2025-best-spot-to-pick/
 
-**Jakob Marsee, Romy González and more top fantasy baseball waiver wire options**\
-`Owen Poindexter runs through the best options on this week's fantasy baseball waiver wire, including Boston breakout Romy Gonzalez.`\
-https://nytimes.com/athletic/6540720/2025/08/08/fantasy-baseball-waiver-wire-jakob-marsee-romy-gonzalez/
+**A Little League coach went viral for his dad joke on the mound. It taught a bigger lesson**\
+`In a tense moment, coach Jake Riordon asked his players, "Do you know why a koala bear is a marsupial and not a bear?"`\
+https://nytimes.com/athletic/6541279/2025/08/08/little-league-coach-dad-joke-viral-bigger-lesson/
 
-**Fantasy football 2025 All-Undervalued team featuring Dak Prescott, Chris Olave, Mike Evans**\
-`Gary Davenport reveals his 2025 fantasy football All-Undervalued team, which includes Dak Prescott, Chase Brown, Deebo Samuel and more. `\
-https://nytimes.com/athletic/6538713/2025/08/08/fantasy-football-2025-all-undervalued-team-featuring-dak-prescott-chris-olave-mike-evans/
+**A shift in tone for Yankees' Aaron Boone: 'He can't just ignore everything'**\
+`As the Yankees have dropped in the standings, so too has Boone's penchant for the sunny side.`\
+https://nytimes.com/athletic/6541263/2025/08/08/yankees-aaron-boone-tone-shift/
 
-**Cory Mills Should Be at Least as Famous as George Santos**\
-`When you’re MAGA, they let you do it.`\
-https://nytimes.com/2025/08/08/opinion/cory-mills-trump-maga.html
+**New era, same question: Who is really in charge of college football? **\
+`College football famously doesn't have one person in charge. Here's a look at the cast of characters who have or are vying for some control.`\
+https://nytimes.com/athletic/6538353/2025/08/08/college-football-sec-big-ten-congress/
 
