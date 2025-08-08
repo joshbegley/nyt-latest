@@ -1,3 +1,7 @@
+**‘Weapons’ | Anatomy of a Scene**\
+`The writer-director Zach Cregger narrates a sequence from his film, featuring Julia Garner.`\
+https://nytimes.com/video/movies/100000010326860/weapons-scene.html
+
 **The ‘Alligator Alcatraz’ Site Once Changed History. Now, It’s Testing the Law Again.**\
 `Officials building a Florida detention center appear to be skipping environmental reviews made mandatory decades ago after a fight over an airport at the very same spot.`\
 https://nytimes.com/2025/08/08/climate/aligator-alcatraz-everglades-airport.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6542419/2025/08/08/submit-questions-twins-mailbag-p
 **Meeting the Last of Japan’s Living War Veterans**\
 `A reporter traveled to the corners of the country to meet six World War II veterans, who had a warning for generations to come.`\
 https://nytimes.com/2025/08/08/insider/japan-world-war-2.html
-
-**New Jersey Synagogue Burns to Ground as Rabbi and Family Escape**\
-`Congregation Beth El in Rutherford, more than a century old, was destroyed. The mayor said there was no indication of arson so far.`\
-https://nytimes.com/2025/08/08/nyregion/rutherford-new-jersey-synagogue-fire.html
 
