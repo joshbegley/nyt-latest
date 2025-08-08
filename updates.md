@@ -1,3 +1,7 @@
+**‘Weapons’ | Anatomy of a Scene**\
+`The writer-director Zach Cregger narrates a sequence from his film, featuring Julia Garner.`\
+https://nytimes.com/video/movies/100000010326860/weapons-scene.html
+
 **The ‘Alligator Alcatraz’ Site Once Changed History. Now, It’s Testing the Law Again.**\
 `Officials building a Florida detention center appear to be skipping environmental reviews made mandatory decades ago after a fight over an airport at the very same spot.`\
 https://nytimes.com/2025/08/08/climate/aligator-alcatraz-everglades-airport.html
