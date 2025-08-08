@@ -1,3 +1,11 @@
+**Evann Guessand to Aston Villa: Everything you need to know – TLDR**\
+`Aston Villa have signed Evann Guessand from Nice for a fee worth €35million (£30.4m; $40.5m)`\
+https://nytimes.com/athletic/6542580/2025/08/08/evann-guessand-aston-villa-transfer-analysis/
+
+**Victoria Mboko and Naomi Osaka withdraw from Cincinnati Open after Canadian Open final**\
+`Osaka joined Mboko in withdrawing from the main tuneup for the U.S. Open after their final in Montreal.`\
+https://nytimes.com/athletic/6542672/2025/08/08/tennis-mboko-osaka-withdraw-cincinnati-open/
+
 **Traded at the deadline: Inside Mike Yastrzemski's whirlwind week**\
 `Mike Yastrzemski was playing golf the day of the trade deadline. Then the call came in that would start a multi-day saga. `\
 https://nytimes.com/athletic/6542024/2025/08/08/mike-yastrzemski-trade-giants-royals-deadline-deal/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6531991/2025/08/08/chelsea-burnley-broja-transfer-n
 **Thomas Frank interview: Spurs summer work, Levy relationship and partying until 5am**\
 `The move from Brentford to Tottenham represents a huge step up in the Danish coach's career, but he knows the scale of the challenge ahead`\
 https://nytimes.com/athletic/6540241/2025/08/08/thomas-frank-interview-tottenham-spurs-party/
-
-**Joe Mazzulla reaches contract extension to remain Celtics coach**\
-`Mazzulla, who led the Celtics to their 18th championship a year ago, was entering the final year of his contract with the team.`\
-https://nytimes.com/athletic/6542611/2025/08/08/celtics-joe-mazzulla-contract-extension/
-
-**Mexico’s President Says U.S. Forces Are Unwelcome in Her Country**\
-`The Mexican government thought it had turned a corner in cooperating with the Trump administration on combating the cartels, having launched an aggressive crackdown of its own.`\
-https://nytimes.com/2025/08/08/world/americas/mexico-trump-military-cartels.html
 
