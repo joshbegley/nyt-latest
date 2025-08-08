@@ -1,3 +1,7 @@
+**‘Chimp Crazy’ Star Gets Nearly 4 Years in Prison for Lying About Ape’s Death**\
+`Prosecutors said that Tonia Haddix perjured herself to avoid giving up custody of Tonka, who had appeared in the movies ‘George of the Jungle’ and ‘Buddy.’`\
+https://nytimes.com/2025/08/08/us/chimp-crazy-tonia-haddix-prison-sentence.html
+
 **The Briefing: Newcastle 2 Espanyol 2 – Howe talks transfers, Ramsdale's save, and Targett is present and accounted for**\
 `George Caulkin breaks down the main talking points from Newcastle's 2-2 draw with Espanyol`\
 https://nytimes.com/athletic/6539848/2025/08/08/newcastle-2-espanyol-2-howe-targett-murphy/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/08/us/emory-university-cdc-shooting.html
 **How valuable are Micah Parsons and Rashawn Slater to the spread? Less than you think**\
 `How much does a single non-quarterback player affect the point spread in betting? Here's an explainer.`\
 https://nytimes.com/athletic/6542728/2025/08/08/slater-parsons-non-qb-impact-betting-spread/
-
-**Howe on Isak: 'Clear I can't involve him' but he 'has a future' at Newcastle**\
-`Isak has made it clear that he does not want to stay at Newcastle but Liverpool had a bid for him rejected last week.`\
-https://nytimes.com/athletic/6543112/2025/08/08/eddie-howe-alexander-isak-transfer-first-team/
 

@@ -1,3 +1,7 @@
+**‘Chimp Crazy’ Star Gets Nearly 4 Years in Prison for Lying About Ape’s Death**\
+`Prosecutors said that Tonia Haddix perjured herself to avoid giving up custody of Tonka, who had appeared in the movies ‘George of the Jungle’ and ‘Buddy.’`\
+https://nytimes.com/2025/08/08/us/chimp-crazy-tonia-haddix-prison-sentence.html
+
 **The Briefing: Newcastle 2 Espanyol 2 – Howe talks transfers, Ramsdale's save, and Targett is present and accounted for**\
 `George Caulkin breaks down the main talking points from Newcastle's 2-2 draw with Espanyol`\
 https://nytimes.com/athletic/6539848/2025/08/08/newcastle-2-espanyol-2-howe-targett-murphy/
