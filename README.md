@@ -1,3 +1,15 @@
+**How Three Journalists Tracked the Deadly Aid Crisis in Gaza**\
+`Interviews, data, witness footage, satellite imagery, photography and more helped the reporters capture a deteriorating situation.`\
+https://nytimes.com/2025/08/08/insider/how-three-journalists-tracked-gaza-aid-crisis.html
+
+**Chad Michael Murray Is Trying to Make Good Choices**\
+`The former teen heartthrob is revisiting a formative role in “Freakier Friday,” but a lot has changed in 22 years, on- and offscreen.`\
+https://nytimes.com/2025/08/08/movies/chad-michael-murray-interview-freakier-friday.html
+
+**Nwaneri is a special talent who 'makes things happen' - his long-term deal is symbolic for Arsenal**\
+`The teenage midfielder was born to be Arsenal. He is adored by his manager, team-mates and supporters - and now staying long-term`\
+https://nytimes.com/athletic/6497525/2025/08/08/arsenal-ethan-nwaneri-contract-fans/
+
 **India’s Modi Left Soul-Searching After Failed Courtships of Xi and Trump**\
 `The collapse of the Indian prime minister’s high-stakes personal efforts to transform India’s ties the world’s two superpowers has exposed the limits of India’s leverage.`\
 https://nytimes.com/2025/08/08/world/asia/modi-india-trump-china-tariffs.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/08/08/nyregion/rutherford-new-jersey-synagogue-fire.htm
 **Longevity Fitness**\
 `Rethinking Retirement in the Age of 100-Year Lives`\
 https://nytimes.com/paidpost/tiaa/longevity-fitness.html
-
-**The Bounce: Don't get too excited about free agency, plus your thoughts on the 2020 Lakers**\
-`The Bounce is The Athletic's free NBA newsletter.`\
-https://nytimes.com/athletic/6540853/2025/08/08/nba-free-agency-2026-lakers-bubble/
-
-**New Tariff on ‘Transshipped’ Goods Mystifies Importers**\
-`The Trump administration levied a hefty tariff on goods that are moved through other countries, but it has not yet fully explained its plans.`\
-https://nytimes.com/2025/08/08/business/economy/trump-tariffs-transshipment.html
-
-**Senate Heads for a ‘Nuclear’ Showdown on Trump Nominees**\
-`Republicans say they are preparing to impose rules changes to speed confirmations after Democrats thwarted them before Congress headed into recess.`\
-https://nytimes.com/2025/08/08/us/politics/senate-trump-nominees.html
 
