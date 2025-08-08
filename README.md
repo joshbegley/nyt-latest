@@ -1,3 +1,7 @@
+**The New York Times International Edition in Print for Saturday, Aug. 9, 2025**\
+``\
+https://nytimes.com/issue/todaysinyt/2025/08/08/todays-new-york-times-international-edition
+
 **Can Russia’s Economy Withstand Trump’s Pressure?**\
 `The Russian economy was slowing even before President Trump’s latest threats. But the Kremlin has enough money to keep fighting in Ukraine.`\
 https://nytimes.com/2025/08/08/world/europe/russia-economy-oil-trump-us-sanctions-tariffs.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/08/well/before-you-offer-advice-ask-this-question.ht
 **Manhunt Leaves a Town in Limbo a Week After Bar Shooting**\
 `Experts on mass shootings said it’s rare for the gunmen who carry out such crimes to elude the authorities for so long.`\
 https://nytimes.com/2025/08/08/us/montana-anaconda-shooting.html
-
-**How to Craft a Dumb Joke That’s Actually Funny**\
-`The makers of the new “Naked Gun” said that four crucial steps were needed to land one complicated sight gag.`\
-https://nytimes.com/2025/08/08/movies/naked-gun-akiva-schaffer.html
 
