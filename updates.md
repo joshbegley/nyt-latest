@@ -1,3 +1,7 @@
+**Broncos pleased with run game, Bo Nix on the move during productive practice with 49ers**\
+`Sean Payton said the offense got good work done with the red-zone, third-down and two-minute offenses.`\
+https://nytimes.com/athletic/6541508/2025/08/07/broncos-49ers-joint-practice-nix/
+
 **C.J. Gardner-Johnson's knee injury not expected to be season-ending: Source**\
 `Gardner-Johnson will miss some time, but initial tests showed that his ACL is not torn. `\
 https://nytimes.com/athletic/6540655/2025/08/07/houston-texans-cj-gardner-johnson-injury/

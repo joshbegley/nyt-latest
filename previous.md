@@ -1,3 +1,7 @@
+**Broncos pleased with run game, Bo Nix on the move during productive practice with 49ers**\
+`Sean Payton said the offense got good work done with the red-zone, third-down and two-minute offenses.`\
+https://nytimes.com/athletic/6541508/2025/08/07/broncos-49ers-joint-practice-nix/
+
 **C.J. Gardner-Johnson's knee injury not expected to be season-ending: Source**\
 `Gardner-Johnson will miss some time, but initial tests showed that his ACL is not torn. `\
 https://nytimes.com/athletic/6540655/2025/08/07/houston-texans-cj-gardner-johnson-injury/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6541346/2025/08/07/49ers-brock-purdy-ricky-pearsall
 **Trump Asks Supreme Court to Lift Restrictions on L.A. Immigration Stops**\
 `A lower court had ordered agents not to make indiscriminate stops relying on factors like race or speaking Spanish.`\
 https://nytimes.com/2025/08/07/us/politics/trump-supreme-court-los-angeles-immigrants.html
-
-**Pac-12-bound schools sue Mountain West over money, handling of Grand Canyon move**\
-`The millions of dollars in dispute include CFP money earned through Boise State’s appearance in the inaugural 12-team field last season.`\
-https://nytimes.com/athletic/6541073/2025/08/07/mountain-west-lawsuits-grand-canyon/
 
