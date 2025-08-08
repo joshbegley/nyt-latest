@@ -1,3 +1,15 @@
+**Evann Guessand to Aston Villa: Everything you need to know – TLDR**\
+`Aston Villa have signed Evann Guessand from Nice for a fee worth €35million (£30.4m; $40.5m)`\
+https://nytimes.com/athletic/6542580/2025/08/08/evann-guessand-aston-villa-transfer-analysis/
+
+**Victoria Mboko and Naomi Osaka withdraw from Cincinnati Open after Canadian Open final**\
+`Osaka joined Mboko in withdrawing from the main tuneup for the U.S. Open after their final in Montreal.`\
+https://nytimes.com/athletic/6542672/2025/08/08/tennis-mboko-osaka-withdraw-cincinnati-open/
+
+**Traded at the deadline: Inside Mike Yastrzemski's whirlwind week**\
+`Mike Yastrzemski was playing golf the day of the trade deadline. Then the call came in that would start a multi-day saga. `\
+https://nytimes.com/athletic/6542024/2025/08/08/mike-yastrzemski-trade-giants-royals-deadline-deal/
+
 **Appeals Court Ends Judge Boasberg’s Contempt Inquiry of Trump Officials**\
 `The case involves deportation flights to El Salvador and whether the administration ignored the judge’s verbal order that they return to the United States.`\
 https://nytimes.com/2025/08/08/us/politics/boasberg-trump-deportation-flights.html

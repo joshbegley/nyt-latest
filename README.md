@@ -1,3 +1,7 @@
+**In Search of a Death With Dignity**\
+`Readers respond to a guest essay about assisted suicide. Also: A setback on vaccines; politics and the pulpit.`\
+https://nytimes.com/2025/08/08/opinion/assisted-suicide.html
+
 **Evann Guessand to Aston Villa: Everything you need to know – TLDR**\
 `Aston Villa have signed Evann Guessand from Nice for a fee worth €35million (£30.4m; $40.5m)`\
 https://nytimes.com/athletic/6542580/2025/08/08/evann-guessand-aston-villa-transfer-analysis/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6542535/2025/08/08/hannah-hampton-water-bottle-spai
 **Burnley sign Armando Broja from Chelsea on permanent deal**\
 `Broja spent the 2024-25 season on loan at Everton where he made 13 appearances, two of which for the under-21 team.`\
 https://nytimes.com/athletic/6531991/2025/08/08/chelsea-burnley-broja-transfer-news-complete/
-
-**Thomas Frank interview: Spurs summer work, Levy relationship and partying until 5am**\
-`The move from Brentford to Tottenham represents a huge step up in the Danish coach's career, but he knows the scale of the challenge ahead`\
-https://nytimes.com/athletic/6540241/2025/08/08/thomas-frank-interview-tottenham-spurs-party/
 
