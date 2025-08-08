@@ -1,3 +1,7 @@
+**Arsenal's breakthrough player to watch: Max Dowman**\
+`The 15-year-old has impressed for England youth and on tour with Arsenal, but care will be needed with his progression this season`\
+https://nytimes.com/athletic/6527590/2025/08/08/arsenal-max-dowman-breakthrough-player/
+
 **Would Jack Grealish to Everton be an unwelcome throwback or a signing befitting a new stadium?**\
 `The club's fans are torn on whether the England international would be a good acquisition - and it is not hard to see why`\
 https://nytimes.com/athletic/6540063/2025/08/08/everton-grealish-unwelcome-throwback-signing-befitting-new-stadium/

@@ -1,3 +1,7 @@
+**Arsenal's breakthrough player to watch: Max Dowman**\
+`The 15-year-old has impressed for England youth and on tour with Arsenal, but care will be needed with his progression this season`\
+https://nytimes.com/athletic/6527590/2025/08/08/arsenal-max-dowman-breakthrough-player/
+
 **Would Jack Grealish to Everton be an unwelcome throwback or a signing befitting a new stadium?**\
 `The club's fans are torn on whether the England international would be a good acquisition - and it is not hard to see why`\
 https://nytimes.com/athletic/6540063/2025/08/08/everton-grealish-unwelcome-throwback-signing-befitting-new-stadium/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6538412/2025/08/08/championship-season-predictions-
 **Trump Wasn’t the First to Deport These Men, and He Won’t Be the Last**\
 `Dozens of Bhutanese men ejected from the United States are now in refugee camps in Nepal, which doesn’t want them but has nowhere to send them.`\
 https://nytimes.com/2025/08/08/world/asia/deportations-trump-refugees-bhutan-nepal.html
-
-**Should This Soccer Star Have Held an Umbrella for a Female Interviewer?**\
-`A photo of Son Heung-min set off a heated debate online that laid bare the intense emotions surrounding South Korea’s gender divide.`\
-https://nytimes.com/2025/08/08/world/asia/son-heung-min-lafc-tottenham-umbrella.html
 
