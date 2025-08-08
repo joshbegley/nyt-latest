@@ -1,3 +1,5 @@
+
+
 **The Smithsonian Changes Its Description of Trump’s Role on Jan. 6**\
 `The National Museum of American History removed some details of the charges President Trump faced when it replaced a display about his two impeachments.`\
 https://nytimes.com/2025/08/08/arts/design/smithsonian-trump-impeachment-jan-6.html
