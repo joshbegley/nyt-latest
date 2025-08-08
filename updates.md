@@ -1,3 +1,7 @@
+**‘A Loyalist Inside the Building’: Trump’s Temporary Fed Pick Could Have a Lasting Effect**\
+`Stephen I. Miran may spend only a few months on the central bank’s board of governors, but in that time he can influence the discussions around interest rates and who will become the institution’s next leader.`\
+https://nytimes.com/2025/08/08/business/economy/fed-miran-rates-powell-trump.html
+
 **How the Canadian Open's new 12-day format played out in Toronto, with its stars absent**\
 `The first 12-day edition of the Canadian Open produced great matches, but the men's draw was Jannik Sinner, Carlos Alcaraz and more.`\
 https://nytimes.com/athletic/6542086/2025/08/08/tennis-canadian-open-masters-12-day-format-impact-players-schedule/
