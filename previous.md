@@ -1,5 +1,9 @@
+**C.J. Gardner-Johnson's knee injury not expected to be season-ending: Source**\
+`Gardner-Johnson will miss some time, but initial tests showed that his ACL is not torn. `\
+https://nytimes.com/athletic/6540655/2025/08/07/houston-texans-cj-gardner-johnson-injury/
+
 **Victoria Mboko tops Naomi Osaka in Canadian Open final to earn first WTA win**\
-`Mboko, the 18-year-old hometown hero, storms past Naomi Osaka, 2-6, 6-4, 6-1.`\
+`Mboko, the 18-year-old hometown hero, storms past Osaka, 2-6, 6-4, 6-1.`\
 https://nytimes.com/athletic/6541484/2025/08/07/naomi-osaka-victoria-mboko-canadian-open-final/
 
 **Still Fuming Over a Weak Jobs Report, Trump Finds Some Numbers He Likes**\
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/07/us/politics/trump-supreme-court-los-angeles-immig
 **Pac-12-bound schools sue Mountain West over money, handling of Grand Canyon move**\
 `The millions of dollars in dispute include CFP money earned through Boise State’s appearance in the inaugural 12-team field last season.`\
 https://nytimes.com/athletic/6541073/2025/08/07/mountain-west-lawsuits-grand-canyon/
-
-**Remains of 3 Victims of 9/11 Are Identified From Minuscule Evidence**\
-`New York’s medical examiner is working methodically through a backlog of bones. “We’re talking about people putting in overtime 24 years later, for us,” said the son of one victim.`\
-https://nytimes.com/2025/08/07/nyregion/sept-11-victims-remains-identified.html
 

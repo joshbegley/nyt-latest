@@ -1,3 +1,11 @@
+**C.J. Gardner-Johnson's knee injury not expected to be season-ending: Source**\
+`Gardner-Johnson will miss some time, but initial tests showed that his ACL is not torn. `\
+https://nytimes.com/athletic/6540655/2025/08/07/houston-texans-cj-gardner-johnson-injury/
+
+**Victoria Mboko tops Naomi Osaka in Canadian Open final to earn first WTA win**\
+`Mboko, the 18-year-old hometown hero, storms past Osaka, 2-6, 6-4, 6-1.`\
+https://nytimes.com/athletic/6541484/2025/08/07/naomi-osaka-victoria-mboko-canadian-open-final/
+
 **Victoria Mboko tops Naomi Osaka in Canadian Open final to earn first WTA win**\
 `Mboko, the 18-year-old hometown hero, storms past Naomi Osaka, 2-6, 6-4, 6-1.`\
 https://nytimes.com/athletic/6541484/2025/08/07/naomi-osaka-victoria-mboko-canadian-open-final/
