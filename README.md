@@ -1,3 +1,11 @@
+**Burnley sign Armando Broja from Chelsea on permanent deal**\
+`Broja spent the 2024-25 season on loan at Everton where he made 13 appearances, two of which for the under-21 team.`\
+https://nytimes.com/athletic/6531991/2025/08/08/chelsea-burnley-broja-transfer-news-complete/
+
+**Thomas Frank interview: Spurs summer work, Levy relationship and partying until 5am**\
+`The move from Brentford to Tottenham represents a huge step up in the Danish coach's career, but he knows the scale of the challenge ahead`\
+https://nytimes.com/athletic/6540241/2025/08/08/thomas-frank-interview-tottenham-spurs-party/
+
 **Joe Mazzulla reaches contract extension to remain Celtics coach**\
 `Mazzulla, who led the Celtics to their 18th championship a year ago, was entering the final year of his contract with the team.`\
 https://nytimes.com/athletic/6542611/2025/08/08/celtics-joe-mazzulla-contract-extension/
@@ -29,12 +37,4 @@ https://nytimes.com/video/us/100000010330814/fire-destroys-new-jersey-synagogue.
 **Canada’s Girl Guides Suspend U.S. Trips Amid Trump’s Immigration Crackdown**\
 `The organization, Canada’s equivalent of the Girl Scouts, said it was pausing the trips out of safety concerns for its members.`\
 https://nytimes.com/2025/08/08/world/canada/girl-guides-canada-us-trips-trump-border.html
-
-**This Reporter Can Tell Us What Nuclear Apocalypse Looks Like**\
-`Annie Jacobsen discusses her 2024 book “Nuclear War: A Scenario.”`\
-https://nytimes.com/2025/08/08/books/review/podcast-annie-jacobsen-nuclear-war.html
-
-**Caleb Williams trolls, Anthony Richardson injury and other fantasy football news**\
-`The Athletic's new columnist Andy Behrens details the latest fantasy-relevant news from around the league, including some rookie hype.`\
-https://nytimes.com/athletic/6542273/2025/08/08/fantasy-football-news-caleb-williams-anthony-richardson/
 

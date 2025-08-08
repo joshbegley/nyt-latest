@@ -2,7 +2,7 @@
 `Mazzulla, who led the Celtics to their 18th championship a year ago, was entering the final year of his contract with the team.`\
 https://nytimes.com/athletic/6542611/2025/08/08/celtics-joe-mazzulla-contract-extension/
 
-**Mexico’s President Denies U.S. Will Use Military in Her Country**\
+**Mexico’s President Says U.S. Forces Are Unwelcome in Her Country**\
 `The Mexican government thought it had turned a corner in cooperating with the Trump administration on combating the cartels, having launched an aggressive crackdown of its own.`\
 https://nytimes.com/2025/08/08/world/americas/mexico-trump-military-cartels.html
 
