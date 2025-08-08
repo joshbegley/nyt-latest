@@ -1,3 +1,11 @@
+**The Pulse: Another twist in the Jordon Hudson story**\
+`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/6541827/2025/08/08/jordon-hudson-bill-belichick-interview-the-pulse/
+
+**The Desperate Struggle to Squeeze Aid Into a Starving Gaza**\
+`An increasing number of Palestinians are dying from hunger-related causes. Others are weak from months of extreme deprivation and vulnerable to illnesses in a territory short on crucial medical supplies, fuel and clean water, aid workers say.`\
+https://nytimes.com/2025/08/08/world/middleeast/gaza-hunger-israel-aid.html
+
 **Canyon Fire Forces Evacuations North of Los Angeles**\
 `The blaze grew to nearly 5,000 acres within hours, the state’s main firefighting agency said.`\
 https://nytimes.com/video/weather/100000010330329/canyon-fire-forces-evacuations-north-of-los-angeles.html
