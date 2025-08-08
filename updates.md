@@ -1,3 +1,7 @@
+**The Lasting Appeal of John F. Kennedy Jr.**\
+`A CNN documentary and an upcoming series by Ryan Murphy delve into the nation’s most famous son, who remains fixed in the 1990s.`\
+https://nytimes.com/2025/08/08/style/jfk-jr-cnn-ryan-murphy.html
+
 **Chelsea 2 Bayer Leverkusen 0 - Absent Jackson, Estevao's first goal and a defensive reshuffle**\
 `Liam Twomey and Thom Harris break down the main talking points from Chelsea's 2-0 win over Bayer Leverkusen`\
 https://nytimes.com/athletic/6542975/2025/08/08/chelsea-2-bayer-leverkusen-0-jackson-estevao-joao-pedro/
