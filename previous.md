@@ -1,3 +1,7 @@
+**Netanyahu, Aiming to Capture Gaza City, Reverts to a Failed Military Strategy**\
+`Time and again, Prime Minister Benjamin Netanyahu of Israel has pledged to defeat Hamas by force. His cabinet’s decision to capture Gaza City risks ending in a familiar deadlock.`\
+https://nytimes.com/2025/08/08/world/middleeast/israel-gaza-city-capture-netanyahu-hamas.html
+
 **After winning more matches than most in 2025, Victoria Mboko takes her next step**\
 `Mboko has won 51 matches in 2025, two of those at a Grand Slam and seven on her Canadian Open title run. But she's here for the long haul.`\
 https://nytimes.com/athletic/6381379/2025/08/08/tennis-victoria-mboko-results-record/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/08/arts/television/stephen-colbert-tariffs-trump.htm
 **Word of the Day: canopy**\
 `This word has appeared in 164 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2025/08/08/learning/word-of-the-day-canopy.html
-
-**The New York Times in Print for Friday, Aug. 8, 2025**\
-``\
-https://nytimes.com/issue/todayspaper/2025/08/08/todays-new-york-times
 
