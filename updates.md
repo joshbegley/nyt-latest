@@ -1,3 +1,7 @@
+**Trump Officials Press Case Against Harvard, and Add a New Investigation**\
+`The administration doubled down against Harvard, asserting that rising violent crime on campus meant the school should not host international students. It will also review the school’s patents.`\
+https://nytimes.com/2025/08/08/us/trump-harvard-patent-investigation-international-students.html
+
 **Trump Is Building a Maximalist Government**\
 `In a series of actions this week, the president sought to expand the government’s reach.`\
 https://nytimes.com/2025/08/08/us/politics/trump-presidential-power.html
