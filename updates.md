@@ -1,3 +1,11 @@
+**The New York Times International Edition in Print for Saturday, Aug. 9, 2025**\
+``\
+https://nytimes.com/issue/todaysinyt/2025/08/08/todays-new-york-times-international-edition
+
+**Can Russia’s Economy Withstand Trump’s Pressure?**\
+`The Russian economy was slowing even before President Trump’s latest threats. But the Kremlin has enough money to keep fighting in Ukraine.`\
+https://nytimes.com/2025/08/08/world/europe/russia-economy-oil-trump-us-sanctions-tariffs.html
+
 **The U.S. Says Britain Is Chilling Free Speech. Many Britons Point the Finger Back.**\
 `To some in the U.K., the criticisms from the American right over arrests of people for hate speech seem hypocritical, given President Trump’s attacks on those who disagree with him.`\
 https://nytimes.com/2025/08/08/world/europe/uk-free-speech-vance-starmer.html

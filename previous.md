@@ -1,3 +1,11 @@
+**The New York Times International Edition in Print for Saturday, Aug. 9, 2025**\
+``\
+https://nytimes.com/issue/todaysinyt/2025/08/08/todays-new-york-times-international-edition
+
+**Can Russia’s Economy Withstand Trump’s Pressure?**\
+`The Russian economy was slowing even before President Trump’s latest threats. But the Kremlin has enough money to keep fighting in Ukraine.`\
+https://nytimes.com/2025/08/08/world/europe/russia-economy-oil-trump-us-sanctions-tariffs.html
+
 **The U.S. Says Britain Is Chilling Free Speech. Many Britons Point the Finger Back.**\
 `To some in the U.K., the criticisms from the American right over arrests of people for hate speech seem hypocritical, given President Trump’s attacks on those who disagree with him.`\
 https://nytimes.com/2025/08/08/world/europe/uk-free-speech-vance-starmer.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/08/08/well/before-you-offer-advice-ask-this-question.ht
 **Manhunt Leaves a Town in Limbo a Week After Bar Shooting**\
 `Experts on mass shootings said it’s rare for the gunmen who carry out such crimes to elude the authorities for so long.`\
 https://nytimes.com/2025/08/08/us/montana-anaconda-shooting.html
-
-**How to Craft a Dumb Joke That’s Actually Funny**\
-`The makers of the new “Naked Gun” said that four crucial steps were needed to land one complicated sight gag.`\
-https://nytimes.com/2025/08/08/movies/naked-gun-akiva-schaffer.html
-
-**Trump Escalates a Fight Over How to Measure Merit in American Education**\
-`President Trump’s most recent executive order wades into a debate over how elite colleges should weigh grades and test scores versus the obstacles students have overcome.`\
-https://nytimes.com/2025/08/08/us/trump-merit-affirmative-action-colleges.html
 
