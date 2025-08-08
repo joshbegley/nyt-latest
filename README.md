@@ -1,3 +1,7 @@
+**Marjorie Taylor Greene Pushes Back Against Criticism From AIPAC**\
+`The American Israel Public Affairs Committee said the Georgia Republican was betraying “American values.” She says she is upholding “America First.”`\
+https://nytimes.com/2025/08/08/us/politics/gaza-genocide-aipac-marjorie-taylor-greene.html
+
 **Endrick given No 9 shirt: Explaining the significance of Real Madrid shirt numbers**\
 `Reports had suggested that Gonzalo Garcia may inherit the No 9 but The Athletic can reveal that it will be handed to Endrick.`\
 https://nytimes.com/athletic/6536811/2025/08/08/real-madrid-endrick-9-shirt-news/
@@ -29,12 +33,4 @@ https://nytimes.com/athletic/6542580/2025/08/08/evann-guessand-aston-villa-trans
 **Victoria Mboko and Naomi Osaka withdraw from Cincinnati Open after Canadian Open final**\
 `Osaka joined Mboko in pulling out of the main tuneup for the U.S. Open after their gripping contest in Montreal.`\
 https://nytimes.com/athletic/6542672/2025/08/08/tennis-mboko-osaka-withdraw-cincinnati-open/
-
-**Traded at the deadline: Inside Mike Yastrzemski's whirlwind week**\
-`Mike Yastrzemski was playing golf the day of the trade deadline. Then the call came in that would start a multi-day saga. `\
-https://nytimes.com/athletic/6542024/2025/08/08/mike-yastrzemski-trade-giants-royals-deadline-deal/
-
-**Appeals Court Ends Judge Boasberg’s Contempt Inquiry of Trump Officials**\
-`The case involves deportation flights to El Salvador and whether the administration ignored the judge’s verbal order that they return to the United States.`\
-https://nytimes.com/2025/08/08/us/politics/boasberg-trump-deportation-flights.html
 
