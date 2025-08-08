@@ -1,3 +1,19 @@
+**Liverpool season betting preview: Should Reds be expected to defend Premier League crown?**\
+`Fresh off a Premier League triumph, Liverpool are favoured to win the league again. Can the Reds also make a run in the Champions League?`\
+https://nytimes.com/athletic/6540645/2025/08/08/liverpool-season-betting-preview-odds/
+
+**For More Than a Century, New Yorkers Have Said the Rent Is Too Damn High**\
+`New York City’s renters have been shaping local politics since the rent strikes of the early 1900s. A new museum exhibit illustrates some of the early struggles.`\
+https://nytimes.com/2025/08/08/nyregion/new-york-city-tenant-activism-history.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/08/08/crosswords/spelling-bee-forum.html
+
+**What Is Mamdani’s Vision for New York City’s $40 Billion School System?**\
+`Zohran Mamdani has not released a detailed plan for public education, but his biggest proposal centers on weakening mayoral control and giving power to teachers and parents.`\
+https://nytimes.com/2025/08/08/nyregion/new-york-city-mayors-race-education-mamdani.html
+
 **Why Manchester United are interested in Carlos Baleba, Brighton's free-running, press-resistant midfielder**\
 `With the potential Baleba showed last season, it's hardly surprising that he is the next name to be snatched from Brighton's production line`\
 https://nytimes.com/athletic/6540324/2025/08/08/manchester-united-carlos-baleba-transfer/
@@ -21,20 +37,4 @@ https://nytimes.com/issue/todayspaper/2025/08/08/todays-new-york-times
 **She’s a Democratic Bellwether, and She’s Changing Her Position on Israel**\
 `Amy Klobuchar has taken a crucial step toward the view of the party’s base.`\
 https://nytimes.com/2025/08/08/opinion/democrats-gaza-klobuchar-booker.html
-
-**Trump’s Tariff Victory Is Not What It Seems**\
-`Consumers and businesses will lose out, thanks to other Trump economic policies.`\
-https://nytimes.com/2025/08/08/opinion/trump-tariffs-trade-economy.html
-
-**F.A.A. Plans to Hire 8,900 Air Traffic Controllers but Still Expects Shortages**\
-`The Federal Aviation Administration says it plans to “supercharge” hiring and training between now and late 2028. It would not be enough to end a shortage of controllers.`\
-https://nytimes.com/2025/08/08/us/politics/faa-air-traffic-controllers.html
-
-**How the Wisden Cricketers' Almanack became the bible of cricket and a reflection of societal change**\
-`The world's longest-running sports book is a collector's favourite, its cricketing stats and stories leading readers down rabbit holes`\
-https://nytimes.com/athletic/6497417/2025/08/08/wisden-cricketers-almanack-society-collectors/
-
-**Friday Briefing: Israel Approves Full Military Takeover of Gaza**\
-`Also, world leaders react to Trump’s tariffs.`\
-https://nytimes.com/2025/08/08/briefing/gaza-military-takeover-trump-tariffs-kremlin-trump-meeting.html
 
