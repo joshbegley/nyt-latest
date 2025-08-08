@@ -1,3 +1,7 @@
+**What to Know About the Israeli Hostages Still Held in Gaza**\
+`A group representing many of the hostages’ families has said the Israeli security cabinet’s plan to take control of Gaza City could further endanger their loved ones.`\
+https://nytimes.com/2025/08/08/world/middleeast/israel-hostages-gaza-hamas.html
+
 **This weekend's Cubs-Cardinals series is on 3 different networks. Here's how to tune in**\
 `Here's how to catch this weekend's Cubs at Cardinals series, an August brew of historic hostilities.`\
 https://nytimes.com/athletic/6542449/2025/08/08/cubs-cardinals-espn-fox-marquee-how-to-watch/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/08/us/politics/boasberg-trump-deportation-flights.ht
 **Ticks From Other Continents Are Turning Up in the Northeast**\
 `Seven nonnative species reached the United States by latching on to travelers, a study by researchers in Connecticut shows, offering clues about how ticks spread in a warming world.`\
 https://nytimes.com/2025/08/08/science/ticks-invasive-species-connecticut.html
-
-**The 8.10.25 Issue**\
-``\
-https://nytimes.com/issue/magazine/2025/08/08/the-81025-issue
 
