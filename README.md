@@ -1,3 +1,15 @@
+**One Way to Retire With Friends**\
+`We go inside The Bird’s Nest, a community in Texas.`\
+https://nytimes.com/2025/08/08/briefing/one-way-to-retire-with-friends.html
+
+**The game that convinced Villa to sign Evann Guessand**\
+`Guessand chimes with the profile of versatile attacker that Unai Emery loves to work with, able to play central striker and on either flank`\
+https://nytimes.com/athletic/6537864/2025/08/08/evann-guessand-aston-villa-nice-transfer/
+
+**Trump to Host Leaders of Armenia and Azerbaijan for ‘Peace Signing’**\
+`President Trump appeared eager to project confidence that an agreement could be reached in a long-intractable conflict.`\
+https://nytimes.com/2025/08/08/world/europe/trump-armenia-azerbaijan-peace-signing.html
+
 **Russian Strikes Kill 3 in Ukraine, Which May Be Left Out of Peace Talks**\
 `“Here on the ground, we don’t feel any real changes from all these high-level meetings and statements,” a soldier said.`\
 https://nytimes.com/2025/08/08/world/europe/ukraine-russia-trump-putin.html
@@ -25,16 +37,4 @@ https://nytimes.com/video/weather/100000010330329/canyon-fire-forces-evacuations
 **The ESPN-NFL megadeal looks and feels like a big trade. So we’re grading the participants.**\
 `The agreements could be a year from formal approval, but here are our early grades for the biggest sports trade of the week.`\
 https://nytimes.com/athletic/6540718/2025/08/08/espn-nfl-deal-redzone-trade-grades/
-
-**Shedeur Sanders starts his first NFL preseason game. Here's how to watch Browns-Panthers**\
-`The NFL Network matchup is headlined by Shedeur Sanders, who starts against the Panthers for his first NFL sample.`\
-https://nytimes.com/athletic/6540956/2025/08/08/shedeur-sanders-browns-panthers-preseason-how-to-watch/
-
-**Vikings roster bubble: 12 players who need to stand out in preseason opener vs. Texans**\
-`Preseason games may not offer peak NFL football. But they're vitally important to the players striving to make the Vikings' 53-man roster.`\
-https://nytimes.com/athletic/6540754/2025/08/08/vikings-roster-preseason-texans-rondale-moore/
-
-**Watching Joe Milton, Donovan Ezeiruaku and others in Cowboys' preseason opener**\
-`Milton has looked sharp in camp and the Dallas coaches like what they've seen. Can he carry that over into the preseason game?`\
-https://nytimes.com/athletic/6541520/2025/08/08/cowboys-players-to-watch-preseason-game/
 
