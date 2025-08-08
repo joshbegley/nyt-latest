@@ -1,3 +1,7 @@
+**Extreme Weather Survivors Share the Tools That Helped Them Get Through Disaster **\
+`Text by Colleen Hagerty`\
+https://nytimes.com/card/2025/08/08/smarter-living/wirecutter/
+
 **Jane Morgan, Singer Who Charmed Both Sides of the Atlantic, Dies at 101**\
 `Born in Massachusetts, she built a following in Parisian nightclubs before returning to the U.S., where she had a successful career as a torch singer.`\
 https://nytimes.com/2025/08/08/arts/music/jane-morgan-dead.html

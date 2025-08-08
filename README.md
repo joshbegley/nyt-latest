@@ -1,3 +1,7 @@
+**Amaarae Blends Desire With Ambition, and 8 More New Songs**\
+`Hear tracks by Ashley Monroe, Ethel Cain, Anand Wilder and others.`\
+https://nytimes.com/2025/08/08/arts/music/playlist-amaarae-ethel-cain.html
+
 **Extreme Weather Survivors Share the Tools That Helped Them Get Through Disaster **\
 `Text by Colleen Hagerty`\
 https://nytimes.com/card/2025/08/08/smarter-living/wirecutter/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/08/us/politics/air-force-transgender-service-members
 **Ter Stegen: Keen to 'collaborate' and 'resolve' dispute with Barcelona**\
 `Ter Stegen was stripped of his Barcelona captaincy on Thursday amid a dispute over a medical document.`\
 https://nytimes.com/athletic/6542808/2025/08/08/marc-andre-ter-stegen-resolve-barcelona-dispute/
-
-**Flashback: Your Weekly History Quiz, Aug. 9, 2025**\
-`Can you sort 8 historical events?`\
-https://nytimes.com/interactive/2025/08/08/upshot/flashback.html
 
