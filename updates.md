@@ -1,3 +1,11 @@
+**Stephen Nedoroscik, U.S. pommel horse Olympic hero, is back at it a year later**\
+`The U.S. Olympic gymnastics hero returned to competition Thursday. The rust showed, but the spirit lived on.`\
+https://nytimes.com/athletic/6540504/2025/08/07/stephen-nedoroscik-olympics-pommel-horse-gymnastics-championships/
+
+**Ben Shelton wins Canadian Open for his first ATP Masters 1000 title**\
+`The American upstart and world No. 7 outlasted world No. 16 Karen Khachanov in three sets.`\
+https://nytimes.com/athletic/6541730/2025/08/07/ben-shelton-karen-khachanov-canadian-open/
+
 **Trump Orders Surge of Law Enforcement in Washington, D.C.**\
 `The deployment follows President Trump’s effort to portray the nation’s capital as rife with violent crime, despite data showing crime rates dropping significantly.`\
 https://nytimes.com/2025/08/07/us/politics/trump-washington-dc-federal-police.html
