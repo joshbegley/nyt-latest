@@ -1,3 +1,7 @@
+**Female Rappers Are Having All the Fun**\
+`Our critic’s latest Song of the Week, the Southern rap track “Whim Whamiee,” is just the latest example of a power shift in the genre.`\
+https://nytimes.com/video/podcasts/100000010330880/whim-whammiee-sotw.html
+
 **The Smithsonian Changes Its Description of Trump’s Role on Jan. 6**\
 `The National Museum of American History removed some details of the charges President Trump faced when it replaced a display about his two impeachments.`\
 https://nytimes.com/2025/08/08/arts/design/smithsonian-trump-impeachment-jan-6.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/08/science/space/james-a-lovell-jr-dead.html
 **Why Are Tariffs on Switzerland So High?**\
 `President Trump sees Switzerland as doing too little to address its trade deficit with the U.S., a gap he focused on as he imposed a 39% tariff on Swiss goods.`\
 https://nytimes.com/2025/08/08/business/tariffs-switzerland-trump.html
-
-**Garcia has signed new Real Madrid deal after breakthrough Club World Cup**\
-`Garcia, 21, caught the eye during Madrid's run to the semi-finals at the Club World Cup.`\
-https://nytimes.com/athletic/6510526/2025/08/08/gonzalo-garcia-real-madrid-contract/
 
