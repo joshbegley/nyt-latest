@@ -1,3 +1,7 @@
+**Stephen Nedoroscik, U.S. pommel horse Olympic hero, is back at it a year later**\
+`The U.S. Olympic gymnastics hero returned to competition Thursday. The rust showed, but the spirit lived on.`\
+https://nytimes.com/athletic/6540504/2025/08/07/stephen-nedoroscik-olympics-pommel-horse-gymnastics-championships/
+
 **Ben Shelton wins Canadian Open for his first ATP Masters 1000 title**\
 `The American upstart and world No. 7 outlasted world No. 16 Karen Khachanov in three sets.`\
 https://nytimes.com/athletic/6541730/2025/08/07/ben-shelton-karen-khachanov-canadian-open/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6541484/2025/08/07/naomi-osaka-victoria-mboko-canad
 **Still Fuming Over a Weak Jobs Report, Trump Finds Some Numbers He Likes**\
 `President Trump promoted his own version of reality in the Oval Office after firing the head of the agency that collects employment statistics last week.`\
 https://nytimes.com/2025/08/07/us/politics/trump-new-economic-numbers.html
-
-**Cuomo and Trump, Two ‘Queens Boys,’ Go Way Back**\
-`President Trump has urged Andrew Cuomo to stay in the New York City mayor’s race. Here are seven moments when their paths crossed over the years.`\
-https://nytimes.com/2025/08/07/nyregion/andrew-cuomo-trump.html
 
