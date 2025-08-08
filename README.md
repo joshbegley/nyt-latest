@@ -1,3 +1,11 @@
+**The 8.10.25 Issue**\
+``\
+https://nytimes.com/issue/magazine/2025/08/08/the-81025-issue
+
+**Putin Briefs Leaders of China and India on Talks With U.S. on Ukraine**\
+`President Vladimir V. Putin of Russia may be seeking to build support among countries that have backed Moscow or remained neutral in the conflict.`\
+https://nytimes.com/2025/08/08/world/asia/putin-trump-ukraine-china-india.html
+
 **Hampton threw Coll's notes into crowd during Euro final penalty shoot-out**\
 `Hampton said she discarded Coll's water bottle with her notes on into the English fans.`\
 https://nytimes.com/athletic/6542535/2025/08/08/hannah-hampton-water-bottle-spain-goalkeeper-euro-2025-shoot-out/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6542606/2025/08/08/sunderland-masuaku-transfer-news
 **'College Football RedZone': 5 reasons the idea feels like a non-starter**\
 `The qualities that make "NFL RedZone" unique and compelling are why it would struggle as a college football show.`\
 https://nytimes.com/athletic/6542477/2025/08/08/college-football-redzone-espn-nfl/
-
-**Yadier Molina to return to Cardinals, will be in uniform as coach for Cubs series**\
-`It's Molina's first time with the Cardinals since he retired after the 2022 season.`\
-https://nytimes.com/athletic/6541543/2025/08/08/yadier-molina-cardinals-return-cubs-series/
-
-**Fire Destroys New Jersey Synagogue**\
-`The congregation’s rabbi and his family, who were sleeping in an apartment inside the synagogue when the fire broke out, escaped the building before it collapsed.`\
-https://nytimes.com/video/us/100000010330814/fire-destroys-new-jersey-synagogue.html
 
