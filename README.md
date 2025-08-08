@@ -1,3 +1,11 @@
+**Why Are Tariffs on Switzerland So High?**\
+`President Trump sees Switzerland as doing too little to address its trade deficit with the U.S., a gap he focused on as he imposed a 39% tariff on Swiss goods.`\
+https://nytimes.com/2025/08/08/business/tariffs-switzerland-trump.html
+
+**Garcia has signed new Real Madrid deal after breakthrough Club World Cup**\
+`Garcia, 21, caught the eye during Madrid's run to the semi-finals at the Club World Cup.`\
+https://nytimes.com/athletic/6510526/2025/08/08/gonzalo-garcia-real-madrid-contract/
+
 **Amaarae Blends Desire With Ambition, and 8 More New Songs**\
 `Hear tracks by Ashley Monroe, Ethel Cain, Anand Wilder and others.`\
 https://nytimes.com/2025/08/08/arts/music/playlist-amaarae-ethel-cain.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6542645/2025/08/08/paul-skenes-pirates-mlb-career-s
 **Trump Wants U.C.L.A. to Pay $1 Billion to Restore Its Research Funding**\
 `The Trump administration has ended about $500 million for the Los Angeles-based university. The president said he wanted nearly double that to restart the flow of funds.`\
 https://nytimes.com/2025/08/08/us/trump-ucla-research-funding-deal.html
-
-**Air Force Denies Early Retirement for Transgender Men and Women**\
-`The service issued a memo on Wednesday that will force at least a dozen transgender servicemen and women to lose lifetime benefits.`\
-https://nytimes.com/2025/08/08/us/politics/air-force-transgender-service-members-early-retirement.html
-
-**Ter Stegen: Keen to 'collaborate' and 'resolve' dispute with Barcelona**\
-`Ter Stegen was stripped of his Barcelona captaincy on Thursday amid a dispute over a medical document.`\
-https://nytimes.com/athletic/6542808/2025/08/08/marc-andre-ter-stegen-resolve-barcelona-dispute/
 
