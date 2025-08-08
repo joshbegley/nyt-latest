@@ -1,3 +1,19 @@
+**Ter Stegen: Keen to 'collaborate' and 'resolve' dispute with Barcelona**\
+`Ter Stegen was stripped of his Barcelona captaincy on Thursday amid a dispute over a medical document.`\
+https://nytimes.com/athletic/6542808/2025/08/08/marc-andre-ter-stegen-resolve-barcelona-dispute/
+
+**Flashback: Your Weekly History Quiz, Aug. 9, 2025**\
+`Can you sort 8 historical events?`\
+https://nytimes.com/interactive/2025/08/08/upshot/flashback.html
+
+**Scoop City: Early preseason takeaways**\
+`Fallout from an injury-filled Thursday, which cost the Chargers the league's highest-paid tackle. More on that, plus Brian Flores' mastery`\
+https://nytimes.com/athletic/6542780/2025/08/08/nfl-preseason-week-1-takeaways-bengals-chargers-scoop-city/
+
+**Ángel Macías, 1957 Little League World Series Star, Dies at 80**\
+`Playing for a team from Monterrey, Mexico, he pitched a perfect game in the event’s championship game, the first and only time that has happened.`\
+https://nytimes.com/2025/08/08/sports/baseball/angel-macias-dead.html
+
 **War of Words Erupts Between Colombia and Peru Over Island in Amazon**\
 `Both nations claim Santa Rosa de Yavarí, a tiny island of just 3,000 people that sits in the Amazon River, more than a thousand miles from their capitals.`\
 https://nytimes.com/2025/08/08/world/americas/colombia-peru-amazon-island.html
@@ -17,20 +33,4 @@ https://nytimes.com/2025/08/08/world/europe/jd-vance-lammy-uk-gaza.html
 **Bournemouth confirm goalkeeper Neto permanent transfer to Botafogo**\
 `The 36-year-old is the second goalkeeper to leave the Vitality Stadium this summer.`\
 https://nytimes.com/athletic/6542784/2025/08/08/bournemouth-goalkeeper-neto-botafogo-transfer/
-
-**Marjorie Taylor Greene Pushes Back Against Criticism From AIPAC**\
-`The American Israel Public Affairs Committee said the Georgia Republican was betraying “American values.” She says she is upholding “America First.”`\
-https://nytimes.com/2025/08/08/us/politics/gaza-genocide-aipac-marjorie-taylor-greene.html
-
-**Endrick given No 9 shirt: Explaining the significance of Real Madrid shirt numbers**\
-`Reports had suggested that Gonzalo Garcia may inherit the No 9 but The Athletic can reveal that it will be handed to Endrick.`\
-https://nytimes.com/athletic/6536811/2025/08/08/real-madrid-endrick-9-shirt-news/
-
-**What to Know About the Israeli Hostages Still Held in Gaza**\
-`A group representing many of the hostages’ families has said the Israeli security cabinet’s plan to take control of Gaza City could further endanger their loved ones.`\
-https://nytimes.com/2025/08/08/world/middleeast/israel-hostages-gaza-hamas.html
-
-**This weekend's Cubs-Cardinals series is on 3 different networks. Here's how to tune in**\
-`Here's how to catch this weekend's Cubs at Cardinals series, an August brew of historic hostilities.`\
-https://nytimes.com/athletic/6542449/2025/08/08/cubs-cardinals-espn-fox-marquee-how-to-watch/
 
