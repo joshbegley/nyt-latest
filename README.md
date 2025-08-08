@@ -1,3 +1,7 @@
+**After winning more matches than most in 2025, Victoria Mboko takes her next step**\
+`Mboko has won 51 matches in 2025, two of those at a Grand Slam and seven on her Canadian Open title run. But she's here for the long haul.`\
+https://nytimes.com/athletic/6381379/2025/08/08/tennis-victoria-mboko-results-record/
+
 **Liverpool season betting preview: Should Reds be expected to defend Premier League crown?**\
 `Fresh off a Premier League triumph, Liverpool are favoured to win the league again. Can the Reds also make a run in the Champions League?`\
 https://nytimes.com/athletic/6540645/2025/08/08/liverpool-season-betting-preview-odds/
@@ -15,7 +19,7 @@ https://nytimes.com/2025/08/08/crosswords/spelling-bee-forum.html
 https://nytimes.com/2025/08/08/nyregion/new-york-city-mayors-race-education-mamdani.html
 
 **Why Manchester United are interested in Carlos Baleba, Brighton's free-running, press-resistant midfielder**\
-`With the potential Baleba showed last season, it's hardly surprising that he is the next name to be snatched from Brighton's production line`\
+`Manchester United have spent £200m on a new front three - now they want to rework their midfield`\
 https://nytimes.com/athletic/6540324/2025/08/08/manchester-united-carlos-baleba-transfer/
 
 **Japan Says Trump to Correct ‘Extremely Regrettable’ Error in Tariff Order**\
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/08/learning/word-of-the-day-canopy.html
 **The New York Times in Print for Friday, Aug. 8, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/08/08/todays-new-york-times
-
-**She’s a Democratic Bellwether, and She’s Changing Her Position on Israel**\
-`Amy Klobuchar has taken a crucial step toward the view of the party’s base.`\
-https://nytimes.com/2025/08/08/opinion/democrats-gaza-klobuchar-booker.html
 
