@@ -1,3 +1,7 @@
+**Five things to watch as Broncos open preseason vs. 49ers**\
+`The Broncos are eager to see how first-round pick Jahdae Barron handles his responsibilities in the defensive backfield.`\
+https://nytimes.com/athletic/6542795/2025/08/08/broncos-49ers-preseason-opener-what-to-watch/
+
 **Texas Attorney General Moves to Oust Democrats From Office Over Walkout**\
 `Democratic lawmakers maintained their walkout to thwart a Republican gerrymander, promting Attorney General Ken Paxton to ask the State Supreme Court to remove 13 of them from their seats.`\
 https://nytimes.com/2025/08/08/us/politics/texas-redistricting-democrats.html
