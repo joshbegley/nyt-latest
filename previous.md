@@ -1,3 +1,23 @@
+**Firefighters Begin to Contain Growing Wildfire Northwest of L.A.**\
+`The blaze, called the Canyon fire, began early Thursday afternoon near Lake Piru, a reservoir about 60 miles northwest of downtown Los Angeles.`\
+https://nytimes.com/2025/08/08/us/canyon-fire-los-angeles.html
+
+**Bragg May Ask Supreme Court to Uphold Conviction in Patz Case**\
+`Alvin L. Bragg, the Manhattan district attorney, is asking for more time to decide whether to seek a review of the overturned murder conviction of Pedro Hernandez in the Etan Patz case.`\
+https://nytimes.com/2025/08/08/nyregion/etan-patz-murder-case.html
+
+**How Caleb Williams, Chicago Bears' defense looked in joint practice vs. Dolphins**\
+`The Bears' defense set the tone early and rattled Miami's offense all day, intercepting Tua Tagovailoa three times.`\
+https://nytimes.com/athletic/6543016/2025/08/08/chicago-bears-miami-dolphins-joint-practice-training-camp/
+
+**What’s Behind the Thailand-Cambodia Conflict**\
+`A series of border skirmishes between Thailand and Cambodia escalated into a military conflict in July that killed dozens of people and rattled the region.`\
+https://nytimes.com/video/world/asia/100000010327404/whats-behind-the-thailand-cambodia-conflict.html
+
+**Giancarlo Stanton expected to play right field on Saturday, first time since 2023**\
+`Stanton, 35, has been coming off the bench since Aaron Judge returned as a DH earlier this week.`\
+https://nytimes.com/athletic/6542985/2025/08/08/giancarlo-stanton-yankees-outfield-return/
+
 **Chelsea 2 Bayer Leverkusen 0 - Absent Jackson, Estevao's first goal and a defensive reshuffle**\
 `Liam Twomey and Thom Harris break down the main talking points from Chelsea's 2-0 win over Bayer Leverkusen`\
 https://nytimes.com/athletic/6542975/2025/08/08/chelsea-2-bayer-leverkusen-0-jackson-estevao-joao-pedro/
@@ -17,24 +37,4 @@ https://nytimes.com/2025/08/08/style/jfk-jr-cnn-ryan-murphy.html
 **Female Rappers Are Having All the Fun**\
 `Our critic’s latest Song of the Week, the Southern rap track “Whim Whamiee,” is just the latest example of a power shift in the genre.`\
 https://nytimes.com/video/podcasts/100000010330880/whim-whammiee-sotw.html
-
-**The Smithsonian Changes Its Description of Trump’s Role on Jan. 6**\
-`The National Museum of American History removed some details of the charges President Trump faced when it replaced a display about his two impeachments.`\
-https://nytimes.com/2025/08/08/arts/design/smithsonian-trump-impeachment-jan-6.html
-
-**Criticism Mounts Over Netanyahu’s Plan to Control Gaza City**\
-`The announcement appeared to stop short of saying Israel would take full control of the Gaza Strip, which Prime Minister Benjamin Netanyahu said was his intention.`\
-https://nytimes.com/video/world/middleeast/100000010331461/gaza-city-israel-hamas-war.html
-
-**Raiders' Geno Smith, Maxx Crosby caught making obscene gestures toward Seahawks fans**\
-`The Raiders declined to comment and the NFL didn't immediately respond to a request for comment.`\
-https://nytimes.com/athletic/6542968/2025/08/08/geno-smith-maxx-crosby-obscene-gesture-fans/
-
-**Five things to watch as Broncos open preseason vs. 49ers**\
-`The Broncos are eager to see how first-round pick Jahdae Barron handles his responsibilities in the defensive backfield.`\
-https://nytimes.com/athletic/6542795/2025/08/08/broncos-49ers-preseason-opener-what-to-watch/
-
-**Texas Attorney General Moves to Oust Democrats From Office Over Walkout**\
-`Democratic lawmakers maintained their walkout to thwart a Republican gerrymander, prompting Ken Paxton to ask the state’s supreme court to remove 13 of them from their seats.`\
-https://nytimes.com/2025/08/08/us/politics/texas-redistricting-democrats.html
 

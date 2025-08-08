@@ -1,3 +1,23 @@
+**Firefighters Begin to Contain Growing Wildfire Northwest of L.A.**\
+`The blaze, called the Canyon fire, began early Thursday afternoon near Lake Piru, a reservoir about 60 miles northwest of downtown Los Angeles.`\
+https://nytimes.com/2025/08/08/us/canyon-fire-los-angeles.html
+
+**Bragg May Ask Supreme Court to Uphold Conviction in Patz Case**\
+`Alvin L. Bragg, the Manhattan district attorney, is asking for more time to decide whether to seek a review of the overturned murder conviction of Pedro Hernandez in the Etan Patz case.`\
+https://nytimes.com/2025/08/08/nyregion/etan-patz-murder-case.html
+
+**How Caleb Williams, Chicago Bears' defense looked in joint practice vs. Dolphins**\
+`The Bears' defense set the tone early and rattled Miami's offense all day, intercepting Tua Tagovailoa three times.`\
+https://nytimes.com/athletic/6543016/2025/08/08/chicago-bears-miami-dolphins-joint-practice-training-camp/
+
+**What’s Behind the Thailand-Cambodia Conflict**\
+`A series of border skirmishes between Thailand and Cambodia escalated into a military conflict in July that killed dozens of people and rattled the region.`\
+https://nytimes.com/video/world/asia/100000010327404/whats-behind-the-thailand-cambodia-conflict.html
+
+**Giancarlo Stanton expected to play right field on Saturday, first time since 2023**\
+`Stanton, 35, has been coming off the bench since Aaron Judge returned as a DH earlier this week.`\
+https://nytimes.com/athletic/6542985/2025/08/08/giancarlo-stanton-yankees-outfield-return/
+
 **The Lasting Appeal of John F. Kennedy Jr.**\
 `A CNN documentary and an upcoming series by Ryan Murphy delve into the nation’s most famous son, who remains fixed in the 1990s.`\
 https://nytimes.com/2025/08/08/style/jfk-jr-cnn-ryan-murphy.html
