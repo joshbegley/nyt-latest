@@ -1,3 +1,11 @@
+**‘Hunting Wives’ Is Raunchy, Pulpy and Netflix’s Most Popular Show**\
+`The drama has all the ingredients of a binge-watch: culture wars, murder and sex.`\
+https://nytimes.com/2025/08/08/style/hunting-wives-netflix.html
+
+**Victoria Mboko and Naomi Osaka withdraw from Cincinnati Open after Canadian Open final**\
+`Osaka joined Mboko in pulling out of the main tuneup for the U.S. Open after their gripping contest in Montreal.`\
+https://nytimes.com/athletic/6542672/2025/08/08/tennis-mboko-osaka-withdraw-cincinnati-open/
+
 **In Search of a Death With Dignity**\
 `Readers respond to a guest essay about assisted suicide. Also: A setback on vaccines; politics and the pulpit.`\
 https://nytimes.com/2025/08/08/opinion/assisted-suicide.html
