@@ -1,3 +1,11 @@
+**Trump Is Building a Maximalist Government**\
+`In a series of actions this week, the president sought to expand the government’s reach.`\
+https://nytimes.com/2025/08/08/us/politics/trump-presidential-power.html
+
+**Inspector General to Review F.A.A.’s Handling of D.C. Airspace After Crash**\
+`The announcement comes a week after the National Transportation Safety Board grilled aviation officials about safety gaps in the airspace near the capital.`\
+https://nytimes.com/2025/08/08/us/politics/faa-dc-plane-crash.html
+
 **Inspector General to Probe F.A.A.’s Handling of D.C. Airspace After Crash**\
 `The announcement comes a week after the National Transportation Safety Board grilled aviation officials about safety gaps in the airspace near the capital.`\
 https://nytimes.com/2025/08/08/us/politics/faa-dc-plane-crash.html

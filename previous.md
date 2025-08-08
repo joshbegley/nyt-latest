@@ -1,4 +1,8 @@
-**Inspector General to Probe F.A.A.’s Handling of D.C. Airspace After Crash**\
+**Trump Is Building a Maximalist Government**\
+`In a series of actions this week, the president sought to expand the government’s reach.`\
+https://nytimes.com/2025/08/08/us/politics/trump-presidential-power.html
+
+**Inspector General to Review F.A.A.’s Handling of D.C. Airspace After Crash**\
 `The announcement comes a week after the National Transportation Safety Board grilled aviation officials about safety gaps in the airspace near the capital.`\
 https://nytimes.com/2025/08/08/us/politics/faa-dc-plane-crash.html
 
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/08/us/chimp-crazy-tonia-haddix-prison-sentence.html
 **The Briefing: Newcastle 2 Espanyol 2 – Howe talks transfers, Ramsdale's save, and Targett is present and accounted for**\
 `George Caulkin breaks down the main talking points from Newcastle's 2-2 draw with Espanyol`\
 https://nytimes.com/athletic/6539848/2025/08/08/newcastle-2-espanyol-2-howe-targett-murphy/
-
-**Police Respond to Reports of an Active Shooter at Emory University**\
-`Several emergency units responded to Emory University after reports of an active shooter at a CVS store near the campus in Atlanta Friday afternoon.`\
-https://nytimes.com/video/us/100000010331875/atlanta-emory-shooting.html
 
