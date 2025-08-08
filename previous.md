@@ -3,7 +3,7 @@
 https://nytimes.com/2025/08/08/briefing/one-way-to-retire-with-friends.html
 
 **The game that convinced Villa to sign Evann Guessand**\
-`Guessand chimes with the profile of versatile attacker that Unai Emery loves to work with, able to play central striker and on either flank`\
+`Able to play central striker or on either flank, Guessand chimes with the profile of versatile attacker that Unai Emery loves to work with`\
 https://nytimes.com/athletic/6537864/2025/08/08/evann-guessand-aston-villa-nice-transfer/
 
 **Trump to Host Leaders of Armenia and Azerbaijan for ‘Peace Signing’**\
