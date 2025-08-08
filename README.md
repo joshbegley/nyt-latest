@@ -1,3 +1,11 @@
+**Once ‘Very Pro-Vaccine,’ Trump Shrugs Off Kennedy’s mRNA Cuts**\
+`President Trump’s laissez-faire approach is notable, given that the vaccines were seen as legacy achievement during his first term.`\
+https://nytimes.com/2025/08/08/us/politics/trump-kennedy-vaccines.html
+
+**James A. Lovell Jr., Commander of Apollo 13, Is Dead at 97**\
+`He led the three-man crew that survived a near catastrophic explosion in space in 1970, and was later immortalized by Tom Hanks in the movie “Apollo 13.”`\
+https://nytimes.com/2025/08/08/science/space/james-a-lovell-jr-dead.html
+
 **Why Are Tariffs on Switzerland So High?**\
 `President Trump sees Switzerland as doing too little to address its trade deficit with the U.S., a gap he focused on as he imposed a 39% tariff on Swiss goods.`\
 https://nytimes.com/2025/08/08/business/tariffs-switzerland-trump.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/08/08/us/politics/trump-armenia-azerbaijan-peace-deal.h
 **Texas Redistricting Fight: Is Any of This Legal?**\
 `Democrats have left the state, the Republican governor and attorney general have vowed to remove them from office, and a senator has called in the F.B.I.`\
 https://nytimes.com/2025/08/08/us/politics/texas-redistricting-legal.html
-
-**Paul Skenes' scintillating start is like nothing we've seen — and more history awaits**\
-`When a one-of-a-kind talent like Paul Skenes enters the chat, there’s only one way to put his exploits in perspective: Time travel.`\
-https://nytimes.com/athletic/6542645/2025/08/08/paul-skenes-pirates-mlb-career-start-records/
-
-**Trump Wants U.C.L.A. to Pay $1 Billion to Restore Its Research Funding**\
-`The Trump administration has ended about $500 million for the Los Angeles-based university. The president said he wanted nearly double that to restart the flow of funds.`\
-https://nytimes.com/2025/08/08/us/trump-ucla-research-funding-deal.html
 
