@@ -1,8 +1,16 @@
+**Cuomo and Trump, Two ‘Queens Boys,’ Go Way Back**\
+`President Trump has urged Andrew Cuomo to stay in the New York City mayor’s race. Here are seven moments when their paths crossed over the years.`\
+https://nytimes.com/2025/08/07/nyregion/andrew-cuomo-trump.html
+
+**Prosecutor Takes Over Local Police Force in New Jersey After 2 Killings**\
+`An investigation into the shooting deaths of two people and the apparent suicide of a suspect, a state trooper, “raised serious concerns” from the county prosecutor’s office.`\
+https://nytimes.com/2025/08/07/nyregion/nj-state-trooper-suspect-shootings.html
+
 **Thousands Ordered to Flee Fast-Moving Wildfire in Ventura County**\
 `The Canyon Fire was initially reported at about 30 acres but had rapidly grown to 1,050 acres in a few hours on Thursday, officials said.`\
 https://nytimes.com/2025/08/07/us/canyon-fire-ventura-county.html
 
-**Anthony Richardson exits Colts' preseason opener with injury**\
+**Anthony Richardson exits Colts' preseason opener with finger injury**\
 `The Colts QB has dealt with injury issues throughout his career. `\
 https://nytimes.com/athletic/6541429/2025/08/07/colts-anthony-richardson-injury/
 
@@ -29,12 +37,4 @@ https://nytimes.com/2025/08/07/weather/nws-hiring-doge-cuts.html
 **Trump Order Clears Way for Crypto and Private Equity in 401(k)s**\
 `The executive order is intended to give investors more options, but experts say employers will tread carefully before adding alternative assets.`\
 https://nytimes.com/2025/08/07/business/trump-401k-crypto.html
-
-**Prescott says 'Eleven is Cowboy' after Parsons doesn't attend practice**\
-`Dallas executive vice president Stephen Jones said Parsons remains with the team as he exited the field Thursday.`\
-https://nytimes.com/athletic/6541282/2025/08/07/micah-parsons-cowboys-contract-dak-prescott/
-
-**Military Raised Water Level of River in Ohio for JD Vance’s Family Boating Trip**\
-`The Secret Service said the boats the agency uses for security are usually motorized and need deeper waters to operate.`\
-https://nytimes.com/2025/08/07/us/politics/secret-service-vance-boating.html
 
