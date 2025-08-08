@@ -1,3 +1,7 @@
+**War of Words Erupts Between Colombia and Peru Over Island in Amazon**\
+`Both nations claim Santa Rosa de Yavarí, a tiny island of just 3,000 people that sits in the Amazon River, more than a thousand miles from their capitals.`\
+https://nytimes.com/2025/08/08/world/americas/colombia-peru-amazon-island.html
+
 **Gold Market Is Shaken by Unexpected U.S. Tariff Ruling**\
 `Some of the most widely used types of gold bars would be subject to U.S. tariffs, customs agency officials ruled, a particular blow to Switzerland’s large gold refining industry.`\
 https://nytimes.com/2025/08/08/business/tariffs-gold-price-switzerland.html
