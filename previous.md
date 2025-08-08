@@ -1,3 +1,11 @@
+**Trump Wasn’t the First to Deport These Men, and He Won’t Be the Last**\
+`Dozens of Bhutanese men ejected from the United States are now in refugee camps in Nepal, which doesn’t want them but has nowhere to send them.`\
+https://nytimes.com/2025/08/08/world/asia/deportations-trump-refugees-bhutan-nepal.html
+
+**Should This Soccer Star Have Held an Umbrella for a Female Interviewer?**\
+`A photo of Son Heung-min set off a heated debate online that laid bare the intense emotions surrounding South Korea’s gender divide.`\
+https://nytimes.com/2025/08/08/world/asia/son-heung-min-lafc-tottenham-umbrella.html
+
 **Huge new defender Jair Cunha has more to offer Forest than sheer size**\
 `With only has 46 senior games to his name, the 6ft 6in Cunha is far from the finished product - but the 20-year-old's potential is... huge`\
 https://nytimes.com/athletic/6525864/2025/08/08/jair-cunha-nottingham-forest/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/08/08/style/jessica-assaf-dean-prince-wedding.html
 **After Years of Missed Connections, a Meeting Worth the Wait**\
 `Sharif Henry and Denise Douglas both grew up in Canarsie, Brooklyn, and spent decades in each other’s orbits. Finally, the stars aligned.`\
 https://nytimes.com/2025/08/08/style/denise-douglas-sharif-henry-wedding.html
-
-**When Their Paths Finally Crossed**\
-`Dr. Ganesh Rao and Dr. Nina Shah lived parallel lives for years. After they were set up by a mutual friend, they felt an immediate bond.`\
-https://nytimes.com/2025/08/08/style/nina-shah-ganesh-rao-wedding.html
-
-**Connections: Sports Edition Coach: Hints for Aug. 8, 2025**\
-`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
-https://nytimes.com/athletic/6538536/2025/08/08/connections-sports-edition-hints-for-aug-8-2025/
 
