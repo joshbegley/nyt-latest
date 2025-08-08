@@ -1,3 +1,15 @@
+**India’s Modi Left Soul-Searching After Failed Courtships of Xi and Trump**\
+`The collapse of the Indian prime minister’s high-stakes personal efforts to transform India’s ties the world’s two superpowers has exposed the limits of India’s leverage.`\
+https://nytimes.com/2025/08/08/world/asia/modi-india-trump-china-tariffs.html
+
+**Nwaneri signs new five-year Arsenal contract**\
+`Nwaneri enjoyed a breakthrough season in 2024-25, scoring seven goals in 26 appearances after being promoted into the first-team squad.`\
+https://nytimes.com/athletic/6175624/2025/08/08/ethan-nwaneri-contract-arsenal/
+
+**Palace boss Glasner wants two more signings amid 'passive' window**\
+`Palace face Liverpool in the Community Shield on Sunday with their squad hampered by injuries and with only two summer signings.`\
+https://nytimes.com/athletic/6542448/2025/08/08/oliver-glasner-crystal-palace-transfers-signings/
+
 **Submit a question for Aaron Gleeman's post-deadline Twins mailbag**\
 `Submit your post-deadline questions about the Twins to be answered next week.`\
 https://nytimes.com/athletic/6542419/2025/08/08/submit-questions-twins-mailbag-post-trade-deadline/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/08/08/business/economy/trump-tariffs-transshipment.html
 **Senate Heads for a ‘Nuclear’ Showdown on Trump Nominees**\
 `Republicans say they are preparing to impose rules changes to speed confirmations after Democrats thwarted them before Congress headed into recess.`\
 https://nytimes.com/2025/08/08/us/politics/senate-trump-nominees.html
-
-**Trump Directs Military to Target Foreign Drug Cartels**\
-`The president has ordered the Pentagon to use the armed forces to carry out what in the past was considered law enforcement.`\
-https://nytimes.com/2025/08/08/us/trump-military-drug-cartels.html
-
-**How the Canadian Open's new 12-day format played out in Toronto, with its stars absent**\
-`The first 12-day edition of the Canadian Open produced great matches, but the men's draw was Jannik Sinner, Carlos Alcaraz and more.`\
-https://nytimes.com/athletic/6542086/2025/08/08/tennis-canadian-open-masters-12-day-format-impact-players-schedule/
-
-**Summer Reading Contest, Week 10: What Got Your Attention in The Times This Week?**\
-`To participate, submit your response here by Aug. 15 at 9 a.m. Eastern. This week’s winners will be announced by Aug. 26.`\
-https://nytimes.com/2025/08/08/learning/summer-reading-contest-week-10-what-got-your-attention-in-the-times-this-week.html
 
