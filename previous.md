@@ -1,3 +1,7 @@
+**Victoria Mboko tops Naomi Osaka in Canadian Open final to earn first WTA win**\
+`Mboko, the 18-year-old hometown hero, storms past Naomi Osaka, 2-6, 6-4, 6-1.`\
+https://nytimes.com/athletic/6541484/2025/08/07/naomi-osaka-victoria-mboko-canadian-open-final/
+
 **Still Fuming Over a Weak Jobs Report, Trump Finds Some Numbers He Likes**\
 `President Trump promoted his own version of reality in the Oval Office after firing the head of the agency that collects employment statistics last week.`\
 https://nytimes.com/2025/08/07/us/politics/trump-new-economic-numbers.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6541073/2025/08/07/mountain-west-lawsuits-grand-can
 **Remains of 3 Victims of 9/11 Are Identified From Minuscule Evidence**\
 `New York’s medical examiner is working methodically through a backlog of bones. “We’re talking about people putting in overtime 24 years later, for us,” said the son of one victim.`\
 https://nytimes.com/2025/08/07/nyregion/sept-11-victims-remains-identified.html
-
-**Weather Service Is Hiring Hundreds After Sweeping Cuts Earlier This Year**\
-`The federal forecasting agency plans to restore some of its losses from this year’s Trump administration cuts.`\
-https://nytimes.com/2025/08/07/weather/nws-hiring-doge-cuts.html
 

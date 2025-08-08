@@ -1,3 +1,7 @@
+**Victoria Mboko tops Naomi Osaka in Canadian Open final to earn first WTA win**\
+`Mboko, the 18-year-old hometown hero, storms past Naomi Osaka, 2-6, 6-4, 6-1.`\
+https://nytimes.com/athletic/6541484/2025/08/07/naomi-osaka-victoria-mboko-canadian-open-final/
+
 **Still Fuming Over a Weak Jobs Report, Trump Finds Some Numbers He Likes**\
 `President Trump promoted his own version of reality in the Oval Office after firing the head of the agency that collects employment statistics last week.`\
 https://nytimes.com/2025/08/07/us/politics/trump-new-economic-numbers.html
