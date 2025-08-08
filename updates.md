@@ -1,3 +1,11 @@
+**Germany Says It Will Suspend Military Exports to Israel for Use in Gaza**\
+`The move followed weeks of debate over reports of hunger in Gaza, but it was precipitated by Israel’s decision to expand military operations there.`\
+https://nytimes.com/2025/08/08/world/europe/germany-weapons-israel-gaza.html
+
+**‘A Loyalist Inside the Building’: Trump’s Temporary Fed Pick Could Have a Lasting Effect**\
+`Stephen I. Miran may spend only a few months on the central bank’s board of governors, but in that time he can influence the discussions around interest rates and who will become the institution’s next leader.`\
+https://nytimes.com/2025/08/08/business/fed-miran-rates-powell-trump.html
+
 **Newcastle considering move for Porto striker Aghehowa**\
 `The 21-year-old is high among the small number of options Newcastle are considering to bolster their attack this summer.`\
 https://nytimes.com/athletic/6524702/2025/08/08/newcastle-transfers-samu-aghehowa-porto/
