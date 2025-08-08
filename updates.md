@@ -1,3 +1,11 @@
+**She’s a Democratic Bellwether, and She’s Changing Her Position on Israel**\
+`Amy Klobuchar has taken a crucial step toward the view of the party’s base.`\
+https://nytimes.com/2025/08/08/opinion/democrats-gaza-klobuchar-booker.html
+
+**Why Brighton's ability to attract and hold on to South Americans is dwindling**\
+`Tony Bloom's club used to have an impressive stable of players from Ecuador, Colombia and Argentina but those days are fast disappearing`\
+https://nytimes.com/athletic/6534318/2025/08/08/brighton-south-american-players/
+
 **The New York Times in Print for Friday, Aug. 8, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/08/08/todays-new-york-times

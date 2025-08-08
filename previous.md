@@ -2,7 +2,7 @@
 ``\
 https://nytimes.com/issue/todayspaper/2025/08/08/todays-new-york-times
 
-**Democrats Are Finally, Slowly, Changing Their Minds on Israel**\
+**She’s a Democratic Bellwether, and She’s Changing Her Position on Israel**\
 `Amy Klobuchar has taken a crucial step toward the view of the party’s base.`\
 https://nytimes.com/2025/08/08/opinion/democrats-gaza-klobuchar-booker.html
 
@@ -30,7 +30,7 @@ https://nytimes.com/athletic/6527590/2025/08/08/arsenal-max-dowman-breakthrough-
 `The club's fans are torn on whether the England international would be a good acquisition - and it is not hard to see why`\
 https://nytimes.com/athletic/6540063/2025/08/08/everton-grealish-unwelcome-throwback-signing-befitting-new-stadium/
 
-**Explaining why Brighton's ability to both attract and hold on to South Americans is dwindling**\
+**Why Brighton's ability to attract and hold on to South Americans is dwindling**\
 `Tony Bloom's club used to have an impressive stable of players from Ecuador, Colombia and Argentina but those days are fast disappearing`\
 https://nytimes.com/athletic/6534318/2025/08/08/brighton-south-american-players/
 
