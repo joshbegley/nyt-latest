@@ -1,3 +1,15 @@
+**Criticism Mounts Over Netanyahu’s Plan to Control Gaza City**\
+`The announcement appeared to stop short of saying Israel would take full control of the Gaza Strip, which Prime Minister Benjamin Netanyahu said was his intention.`\
+https://nytimes.com/video/world/middleeast/100000010331461/gaza-city-israel-hamas-war.html
+
+**Raiders' Geno Smith, Maxx Crosby caught making obscene gestures toward Seahawks fans**\
+`The Raiders declined to comment and the NFL didn't immediately respond to a request for comment.`\
+https://nytimes.com/athletic/6542968/2025/08/08/geno-smith-maxx-crosby-obscene-gesture-fans/
+
+**Texas Attorney General Moves to Oust Democrats From Office Over Walkout**\
+`Democratic lawmakers maintained their walkout to thwart a Republican gerrymander, prompting Ken Paxton to ask the state’s supreme court to remove 13 of them from their seats.`\
+https://nytimes.com/2025/08/08/us/politics/texas-redistricting-democrats.html
+
 **Texas Attorney General Moves to Oust Democrats From Office Over Walkout**\
 `Democratic lawmakers maintained their walkout to thwart a Republican gerrymander, prompting Attorney General Ken Paxton to ask the State Supreme Court to remove 13 of them from their seats.`\
 https://nytimes.com/2025/08/08/us/politics/texas-redistricting-democrats.html

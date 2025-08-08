@@ -1,3 +1,7 @@
+**The Smithsonian Changes Its Description of Trump’s Role on Jan. 6**\
+`The National Museum of American History removed some details of the charges President Trump faced when it replaced a display about his two impeachments.`\
+https://nytimes.com/2025/08/08/arts/design/smithsonian-trump-impeachment-jan-6.html
+
 **Criticism Mounts Over Netanyahu’s Plan to Control Gaza City**\
 `The announcement appeared to stop short of saying Israel would take full control of the Gaza Strip, which Prime Minister Benjamin Netanyahu said was his intention.`\
 https://nytimes.com/video/world/middleeast/100000010331461/gaza-city-israel-hamas-war.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/08/business/tariffs-switzerland-trump.html
 **Garcia has signed new Real Madrid deal after breakthrough Club World Cup**\
 `Garcia, 21, caught the eye during Madrid's run to the semi-finals at the Club World Cup.`\
 https://nytimes.com/athletic/6510526/2025/08/08/gonzalo-garcia-real-madrid-contract/
-
-**Amaarae Blends Desire With Ambition, and 8 More New Songs**\
-`Hear tracks by Ashley Monroe, Ethel Cain, Anand Wilder and others.`\
-https://nytimes.com/2025/08/08/arts/music/playlist-amaarae-ethel-cain.html
 
