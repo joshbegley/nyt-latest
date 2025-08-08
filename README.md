@@ -1,9 +1,17 @@
+**Criticism Mounts Over Netanyahu’s Plan to Control Gaza City**\
+`The announcement appeared to stop short of saying Israel would take full control of the Gaza Strip, which Prime Minister Benjamin Netanyahu said was his intention.`\
+https://nytimes.com/video/world/middleeast/100000010331461/gaza-city-israel-hamas-war.html
+
+**Raiders' Geno Smith, Maxx Crosby caught making obscene gestures toward Seahawks fans**\
+`The Raiders declined to comment and the NFL didn't immediately respond to a request for comment.`\
+https://nytimes.com/athletic/6542968/2025/08/08/geno-smith-maxx-crosby-obscene-gesture-fans/
+
 **Five things to watch as Broncos open preseason vs. 49ers**\
 `The Broncos are eager to see how first-round pick Jahdae Barron handles his responsibilities in the defensive backfield.`\
 https://nytimes.com/athletic/6542795/2025/08/08/broncos-49ers-preseason-opener-what-to-watch/
 
 **Texas Attorney General Moves to Oust Democrats From Office Over Walkout**\
-`Democratic lawmakers maintained their walkout to thwart a Republican gerrymander, prompting Attorney General Ken Paxton to ask the State Supreme Court to remove 13 of them from their seats.`\
+`Democratic lawmakers maintained their walkout to thwart a Republican gerrymander, prompting Ken Paxton to ask the state’s supreme court to remove 13 of them from their seats.`\
 https://nytimes.com/2025/08/08/us/politics/texas-redistricting-democrats.html
 
 **Elena Rybakina's barred coach Stefano Vukov has WTA Tour suspension lifted after appeal**\
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6510526/2025/08/08/gonzalo-garcia-real-madrid-contr
 **Amaarae Blends Desire With Ambition, and 8 More New Songs**\
 `Hear tracks by Ashley Monroe, Ethel Cain, Anand Wilder and others.`\
 https://nytimes.com/2025/08/08/arts/music/playlist-amaarae-ethel-cain.html
-
-**Extreme Weather Survivors Share the Tools That Helped Them Get Through Disaster **\
-`Text by Colleen Hagerty`\
-https://nytimes.com/card/2025/08/08/smarter-living/wirecutter/
-
-**Jane Morgan, Singer Who Charmed Both Sides of the Atlantic, Dies at 101**\
-`Born in Massachusetts, she built a following in Parisian nightclubs before returning to the U.S., where she had a successful career as a torch singer.`\
-https://nytimes.com/2025/08/08/arts/music/jane-morgan-dead.html
 
