@@ -1,3 +1,7 @@
+**The ‘Alligator Alcatraz’ Site Once Changed History. Now, It’s Testing the Law Again.**\
+`Officials building a Florida detention center appear to be skipping environmental reviews made mandatory decades ago after a fight over an airport at the very same spot.`\
+https://nytimes.com/2025/08/08/climate/aligator-alcatraz-everglades-airport.html
+
 **How Three Journalists Tracked the Deadly Aid Crisis in Gaza**\
 `Interviews, data, witness footage, satellite imagery, photography and more helped the reporters capture a deteriorating situation.`\
 https://nytimes.com/2025/08/08/insider/how-three-journalists-tracked-gaza-aid-crisis.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/08/insider/japan-world-war-2.html
 **New Jersey Synagogue Burns to Ground as Rabbi and Family Escape**\
 `Congregation Beth El in Rutherford, more than a century old, was destroyed. The mayor said there was no indication of arson so far.`\
 https://nytimes.com/2025/08/08/nyregion/rutherford-new-jersey-synagogue-fire.html
-
-**Longevity Fitness**\
-`Rethinking Retirement in the Age of 100-Year Lives`\
-https://nytimes.com/paidpost/tiaa/longevity-fitness.html
 
