@@ -1,3 +1,15 @@
+**Texas Attorney General Moves to Oust Democrats From Office Over Walkout**\
+`Democratic lawmakers maintained their walkout to thwart a Republican gerrymander, promting Attorney General Ken Paxton to ask the State Supreme Court to remove 13 of them from their seats.`\
+https://nytimes.com/2025/08/08/us/politics/texas-redistricting-democrats.html
+
+**Elena Rybakina's barred coach Stefano Vukov has WTA Tour suspension lifted after appeal**\
+`Vukov had appealed his one-year ban for breaching the WTA Tour code of conduct ahead of this year's French Open.`\
+https://nytimes.com/athletic/6542878/2025/08/08/elena-rybakina-coach-suspension-lifted-stefano-vukov-wta/
+
+**Trump Is Removing the I.R.S. Chief 2 Months After He Was Confirmed**\
+`Billy Long, a former Republican congressman, will no longer serve as the tax agency’s head. Treasury Secretary Scott Bessent will oversee the agency as acting commissioner, according to a U.S. official.`\
+https://nytimes.com/2025/08/08/us/politics/trump-billy-long-irs-commissioner.html
+
 **Once ‘Very Pro-Vaccine,’ Trump Shrugs Off Kennedy’s mRNA Cuts**\
 `President Trump’s laissez-faire approach is notable, given that the vaccines were seen as legacy achievement during his first term.`\
 https://nytimes.com/2025/08/08/us/politics/trump-kennedy-vaccines.html
