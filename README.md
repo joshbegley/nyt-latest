@@ -1,3 +1,11 @@
+**Would Jack Grealish to Everton be an unwelcome throwback or a signing befitting a new stadium?**\
+`The club's fans are torn on whether the England international would be a good acquisition - and it is not hard to see why`\
+https://nytimes.com/athletic/6540063/2025/08/08/everton-grealish-unwelcome-throwback-signing-befitting-new-stadium/
+
+**Explaining why Brighton's ability to both attract and hold on to South Americans is dwindling**\
+`Tony Bloom's club used to have an impressive stable of players from Ecuador, Colombia and Argentina but those days are fast disappearing`\
+https://nytimes.com/athletic/6534318/2025/08/08/brighton-south-american-players/
+
 **FPL: Chip strategies for the first half of the season**\
 `FPL's rule changes have given managers a set of chips to burn before the second half of the season - so when should we use them?`\
 https://nytimes.com/athletic/6521493/2025/08/08/fantasy-premier-league-chip-strategies-wildcard-triple-free/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/08/08/world/asia/deportations-trump-refugees-bhutan-nep
 **Should This Soccer Star Have Held an Umbrella for a Female Interviewer?**\
 `A photo of Son Heung-min set off a heated debate online that laid bare the intense emotions surrounding South Korea’s gender divide.`\
 https://nytimes.com/2025/08/08/world/asia/son-heung-min-lafc-tottenham-umbrella.html
-
-**Huge new defender Jair Cunha has more to offer Forest than sheer size**\
-`With only has 46 senior games to his name, the 6ft 6in Cunha is far from the finished product - but the 20-year-old's potential is... huge`\
-https://nytimes.com/athletic/6525864/2025/08/08/jair-cunha-nottingham-forest/
-
-**Colwill is fundamental to Chelsea on many levels. They will struggle to replace him**\
-`Levi Colwill will miss a lot of the 2025-26 season after tearing his ACL`\
-https://nytimes.com/athletic/6541231/2025/08/08/levi-colwill-chelsea-injury-analysis/
 
