@@ -1,3 +1,19 @@
+**Newcastle considering move for Porto striker Aghehowa**\
+`The 21-year-old is high among the small number of options Newcastle are considering to bolster their attack this summer.`\
+https://nytimes.com/athletic/6524702/2025/08/08/newcastle-transfers-samu-aghehowa-porto/
+
+**The Law Protects Them. The Villagers Fear Them.**\
+`Romania’s growing bear population has turned conservation into confrontation for people living in the shadows of the Carpathian Mountains.`\
+https://nytimes.com/2025/08/08/realestate/bears-romania.html
+
+**At Arizona State's old training spot, all that's changed is Sun Devils themselves**\
+`The Sun Devils have a different level of confidence. At a place where nearly everything remains the same, nothing has stood out more.`\
+https://nytimes.com/athletic/6541529/2025/08/08/arizona-state-sun-devils-camp-tontozona-kenny-dillingham/
+
+**How did Micah Parsons and the Cowboys get to this point? A timeline**\
+`Parsons has been eligible for a new contract since the end of the 2023 season but the wait continues for the pass rusher and the Cowboys. `\
+https://nytimes.com/athletic/6540931/2025/08/08/micah-parsons-cowboys-contract-trade-timeline/
+
 **Trump Administration Live Updates: President Orders Law Enforcement Surge in D.C.**\
 ``\
 https://nytimes.com/live/2025/08/08/us/trump-news

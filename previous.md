@@ -1,3 +1,19 @@
+**Newcastle considering move for Porto striker Aghehowa**\
+`The 21-year-old is high among the small number of options Newcastle are considering to bolster their attack this summer.`\
+https://nytimes.com/athletic/6524702/2025/08/08/newcastle-transfers-samu-aghehowa-porto/
+
+**The Law Protects Them. The Villagers Fear Them.**\
+`Romania’s growing bear population has turned conservation into confrontation for people living in the shadows of the Carpathian Mountains.`\
+https://nytimes.com/2025/08/08/realestate/bears-romania.html
+
+**At Arizona State's old training spot, all that's changed is Sun Devils themselves**\
+`The Sun Devils have a different level of confidence. At a place where nearly everything remains the same, nothing has stood out more.`\
+https://nytimes.com/athletic/6541529/2025/08/08/arizona-state-sun-devils-camp-tontozona-kenny-dillingham/
+
+**How did Micah Parsons and the Cowboys get to this point? A timeline**\
+`Parsons has been eligible for a new contract since the end of the 2023 season but the wait continues for the pass rusher and the Cowboys. `\
+https://nytimes.com/athletic/6540931/2025/08/08/micah-parsons-cowboys-contract-trade-timeline/
+
 **Trump Administration Live Updates: President Orders Law Enforcement Surge in D.C.**\
 ``\
 https://nytimes.com/live/2025/08/08/us/trump-news
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6541363/2025/08/08/thomas-muller-vancouver-whitecap
 **Penguins mailbag: Where does Sidney Crosby rank among the all-time greats?**\
 `Plus: Could Crosby join the Penguins ownership group someday?`\
 https://nytimes.com/athletic/6528339/2025/08/08/penguins-sidney-crosby-nhl-best-players/
-
-**Seahawks’ offense shows promise, Jalen Milroe flashes upside in debut: Takeaways**\
-`"We got a lot more where that came from," receiver Jake Bobo said after Klint Kubiak's offense started hot in its first game action.`\
-https://nytimes.com/athletic/6541949/2025/08/08/seahawks-preseason-jalen-milroe-offense/
-
-**Matthew Golden, Bo Melton and 8 other players to watch in Packers' preseason opener**\
-`The Packers open their three-game preseason slate against the Jets on Saturday night at Lambeau Field.`\
-https://nytimes.com/athletic/6541067/2025/08/08/packers-preseason-jets-golden-melton/
-
-**What a Trump Loyalist at the Fed May Mean for Markets**\
-`Stephen Miran, a close adviser to the president who is likely to become a governor at the central bank, has pushed for a weak dollar and lower interest rates.`\
-https://nytimes.com/2025/08/08/business/dealbook/miran-trump-fed-markets.html
-
-**Why are U.S. forwards spying opportunity in the Championship?**\
-`A quintet of American strikers will ply their trade in England's second tier this season hoping to impress Mauricio Pochettino from afar`\
-https://nytimes.com/athletic/6542060/2025/08/08/usmnt-efl-championship-downs-wright-agyemang/
 
