@@ -1,3 +1,7 @@
+**Intel’s Chief Holds Firm After Trump Demands His Resignation**\
+`Lip-Bu Tan, Intel’s top executive, said he was committed to the company after Mr. Trump called for him to step down over reported Chinese investments.`\
+https://nytimes.com/2025/08/08/business/intel-ceo-trump.html
+
 **Bengals preseason opener: 3 who impressed, 3 who struggled, 1 who made me ask a question **\
 `Familiar trends surfaced that have killed fast starts in the past in the 34-27 loss to the Eagles.`\
 https://nytimes.com/athletic/6541884/2025/08/08/bengals-preseason-opener-eagles-burrow-chase/
