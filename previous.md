@@ -1,5 +1,5 @@
 **NBA Christmas Day games include Rockets-Lakers, Cavs-Knicks: Sources**\
-`The first NBA game on NBC in 23 years will feature the champion Thunder against the Spurs.`\
+`The first NBA game on NBC in 23 years will feature the champion Thunder against the Rockets.`\
 https://nytimes.com/athletic/6543145/2025/08/08/nba-christmas-day-games-schedule-lakers-knicks-warriors/
 
 **49ers preseason depth chart: Breaking down each position ahead of matchup vs. Broncos**\

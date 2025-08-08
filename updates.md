@@ -1,4 +1,8 @@
 **NBA Christmas Day games include Rockets-Lakers, Cavs-Knicks: Sources**\
+`The first NBA game on NBC in 23 years will feature the champion Thunder against the Rockets.`\
+https://nytimes.com/athletic/6543145/2025/08/08/nba-christmas-day-games-schedule-lakers-knicks-warriors/
+
+**NBA Christmas Day games include Rockets-Lakers, Cavs-Knicks: Sources**\
 `The first NBA game on NBC in 23 years will feature the champion Thunder against the Spurs.`\
 https://nytimes.com/athletic/6543145/2025/08/08/nba-christmas-day-games-schedule-lakers-knicks-warriors/
 
