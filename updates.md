@@ -1,3 +1,7 @@
+**After winning more matches than most in 2025, Victoria Mboko takes her next step**\
+`Mboko has won 51 matches in 2025, two of those at a Grand Slam and seven on her Canadian Open title run. But she's here for the long haul.`\
+https://nytimes.com/athletic/6381379/2025/08/08/tennis-victoria-mboko-results-record/
+
 **Why Manchester United are interested in Carlos Baleba, Brighton's free-running, press-resistant midfielder**\
 `Manchester United have spent £200m on a new front three - now they want to rework their midfield`\
 https://nytimes.com/athletic/6540324/2025/08/08/manchester-united-carlos-baleba-transfer/
