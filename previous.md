@@ -1,3 +1,11 @@
+**The Head of the A.D.L. on Antisemitism, Anti-Zionism and Free Speech**\
+`How Jonathan Greenblatt thinks about the line between legitimate protest and anti-Jewish hate.`\
+https://nytimes.com/2025/08/09/magazine/jonathan-greenblatt-interview.html
+
+**Russia Presses Ahead With Massed Forces, Drones and Saboteurs**\
+`Assaults on Ukraine have been intensifying even as President Trump has threatened new sanctions on Moscow, and now is preparing to meet with Russia’s leader.`\
+https://nytimes.com/2025/08/09/world/europe/russia-ukraine-frontline.html
+
 **How to watch UFC Fight Night: Full card, odds for Roman Dolidze vs. Anthony Hernandez**\
 `It’s another Saturday night of action at the UFC Apex in Las Vegas. Two top-10 middleweights will battle it out in the main event. `\
 https://nytimes.com/athletic/6541311/2025/08/09/ufc-fight-night-dolidze-hernandez-odds-how-to-watch/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/08/09/business/manager-performance-work-advice.html
 **After a Young Arts Patron’s Donation Did Not Clear, He Was Found Dead**\
 `Shortly before Matthew Christopher Pietras’s body was discovered, the Metropolitan Opera had been told that the $10 million he had just donated did not belong to him.`\
 https://nytimes.com/2025/08/09/arts/music/met-opera-frick-donor-death.html
-
-**Alexa Got an A.I. Brain Transplant. How Smart Is It Now?**\
-`It took Amazon several years to overcome technical hurdles as it remade its voice assistant with new artificial intelligence technology.`\
-https://nytimes.com/2025/08/09/business/alexa-artificial-intelligence-amazon.html
-
-**Can Street Vendors Set Up Right Outside My Building?**\
-`New York City has many restrictions on where and how vendors can sell their goods.`\
-https://nytimes.com/2025/08/09/realestate/street-vendor-rules.html
 
