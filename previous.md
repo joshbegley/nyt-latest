@@ -1,3 +1,11 @@
+**Manchester United 1-1 Fiorentina: Sesko unveiled, De Gea returns, and was this Amorim's starting XI for Arsenal?**\
+`Analysis of United's final pre-season friendly ahead of the 2025-26 season`\
+https://nytimes.com/athletic/6543743/2025/08/09/manchester-united-fiorentina-sesko/
+
+**The Pulse: MLB playoff update and Shedeur sighting**\
+`Welcome to The Pulse, The Athletic's daily sports newsletter.`\
+https://nytimes.com/athletic/6543568/2025/08/09/the-mlb-playoff-field-narrows-and-shedeur-sanders-shines/
+
 **Dodgers' Mookie Betts wants to forget his season, which might be turning around**\
 `The Dodgers shortstop tried to relearn the swing that turned him into an MVP and helped him slug 30 HRs in a season four different times.`\
 https://nytimes.com/athletic/6543663/2025/08/09/mookie-betts-season-dodgers/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6542727/2025/08/09/college-football-transfer-portal
 **Tom Brady's statue unveiling includes classic jab at Jets fans**\
 `The Athletic has live coverage of the 2025 NFL Preseason.`\
 https://nytimes.com/athletic/6543432/2025/08/09/tom-brady-patriots-statue-jets-roast/
-
-**Private Equity in Your 401(k). What Could Go Wrong?**\
-`Critics say an executive order that clears the way for alternative assets to enter retirement accounts poses risks to everyday investors. It could also pose some for private fund managers.`\
-https://nytimes.com/2025/08/09/business/dealbook/401k-private-equity.html
-
-**Brandon Marsh goes 4-for-5 as Phillies' outfield shuffle continues**\
-`Phillies will continue to experiment with outfield platoon situation for now.`\
-https://nytimes.com/athletic/6543640/2025/08/09/phillies-brandon-marsh-outfield-shuffle/
 
