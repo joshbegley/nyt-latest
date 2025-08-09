@@ -1,3 +1,7 @@
+**Jaxson Dart's promising debut fuels optimism, even if there's no QB controversy yet**\
+`Giants coach Brian Daboll was uncharacteristically effusive in his praise of Dart before noting that it was only one preseason game.`\
+https://nytimes.com/athletic/6544484/2025/08/09/jaxson-dart-preseason-debut-giants/
+
 **Five things we've learned about Iowa's new-look offense in mid-August**\
 `Let's take a look at the backup quarterback battle, offensive line, wide receivers and more after Saturday's scrimmage.`\
 https://nytimes.com/athletic/6544428/2025/08/09/iowa-hawkeyes-football-mark-gronowski/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/09/us/politics/cdc-shooting-staff.html
 **Anthony Richardson returns to Colts practice after preseason finger injury**\
 `X-rays on Richardson's right hand did not reveal any extensive damage to his pinkie, league sources told The Athletic.`\
 https://nytimes.com/athletic/6544250/2025/08/09/colts-anthony-richardson-injury-practice-nfl-preseason/
-
-**Graig Nettles glad to be back at Yankees' Old-Timers' Day after 14-year absence**\
-`"It seemed like the Yankees kind of lost track of me there for about 10 years," Nettles said. "I'm back. I feel good about being back." `\
-https://nytimes.com/athletic/6544062/2025/08/09/graig-nettles-yankees-old-timers-day-return/
 

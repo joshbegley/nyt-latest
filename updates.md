@@ -1,3 +1,7 @@
+**Jaxson Dart's promising debut fuels optimism, even if there's no QB controversy yet**\
+`Giants coach Brian Daboll was uncharacteristically effusive in his praise of Dart before noting that it was only one preseason game.`\
+https://nytimes.com/athletic/6544484/2025/08/09/jaxson-dart-preseason-debut-giants/
+
 **Five things we've learned about Iowa's new-look offense in mid-August**\
 `Let's take a look at the backup quarterback battle, offensive line, wide receivers and more after Saturday's scrimmage.`\
 https://nytimes.com/athletic/6544428/2025/08/09/iowa-hawkeyes-football-mark-gronowski/
