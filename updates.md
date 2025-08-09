@@ -1,3 +1,7 @@
+**Italy's Ballon d’Or nominee Sofia Cantore readies for NWSL debut with Washington Spirit**\
+`The forward speaks to The Athletic about moving to America, starring at the Euros and growing soccer back home in Italy`\
+https://nytimes.com/athletic/6543508/2025/08/09/sofia-cantore-interview-washington-spirit/
+
 **How Ali Sethi Spends His Day Getting Ready for a Music Tour**\
 `The singer meets up with bandmates to rehearse, enjoys food that reminds him of childhood and stays out late dancing.`\
 https://nytimes.com/2025/08/09/nyregion/ali-sethi-love-language.html
