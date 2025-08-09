@@ -1,3 +1,7 @@
+**Graig Nettles glad to be back at Yankees' Old-Timers' Day after 14-year absence**\
+`"It seemed like the Yankees kind of lost track of me there for about 10 years," Nettles said. "I'm back. I feel good about being back." `\
+https://nytimes.com/athletic/6544062/2025/08/09/graig-nettles-yankees-old-timers-day-return/
+
 **Al Hilal complete Darwin Nunez transfer from Liverpool**\
 `The move brings to an end Nunez's three-year stay at Anfield after he arrived from Benfica for an initial fee of €75m in 2022.`\
 https://nytimes.com/athletic/6540004/2025/08/09/darwin-nunez-transfer-saudi-liverpool/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/09/us/politics/fda-vaccine-chief-returns.html
 **Leeds 1 Milan 1: Lucas Perri the new No 1 but Jack Harrison is booed again**\
 `Daniel Farke's side secured a draw against the Italians in Dublin in their final friendly fixture before their Premier League return`\
 https://nytimes.com/athletic/6544224/2025/08/09/leeds-milan-perri-farke-harrison-schmidt-stach/
-
-**Morton Meyerson, Texas Businessman and Perot Lieutenant, Dies at 87**\
-`He helped build H. Ross Perot’s company Electronic Data Systems into a leading data processing firm. He later played a crucial role in Mr. Perot’s 1992 presidential campaign.`\
-https://nytimes.com/2025/08/09/business/morton-meyerson-dead.html
 
