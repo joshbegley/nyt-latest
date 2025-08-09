@@ -1,3 +1,5 @@
+
+
 **Newcastle close on €40m transfer of Milan's Thiaw**\
 `The 24-year-old has a contract through to 2027 at Milan, who signed the central defender from Schalke in 2022.`\
 https://nytimes.com/athletic/5653382/2025/08/09/newcastle-transfers-malick-thiaw-milan/
