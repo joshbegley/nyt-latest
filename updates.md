@@ -1,3 +1,7 @@
+**What to Know About Instagram Map, a New Feature Drawing Backlash**\
+`The service rolled out this week, prompting confusion and safety concerns. Meta, which owns Instagram, said the feature was turned off unless users activated it.`\
+https://nytimes.com/2025/08/09/us/instagram-map-location-meta.html
+
 **The Dred Scott Dissent Lincoln Loved**\
 `What if the infamous case had been decided correctly?`\
 https://nytimes.com/2025/08/09/opinion/dred-scott-taney-curtis-lincoln.html
