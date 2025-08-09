@@ -1,3 +1,7 @@
+**Guardiola does not expect Rodri to be 'really fit' until after September break**\
+`Rodri suffered a groin injury in City’s last-16 defeat to Al-Hilal in the Club World Cup.`\
+https://nytimes.com/athletic/6543734/2025/08/09/rodri-fitness-pep-guardiola-manchester-city/
+
 **Italy's Ballon d’Or nominee Sofia Cantore readies for NWSL debut with Washington Spirit**\
 `The forward speaks to The Athletic about moving to America, starring at the Euros and growing soccer back home in Italy`\
 https://nytimes.com/athletic/6543508/2025/08/09/sofia-cantore-interview-washington-spirit/

@@ -1,3 +1,7 @@
+**Guardiola does not expect Rodri to be 'really fit' until after September break**\
+`Rodri suffered a groin injury in City’s last-16 defeat to Al-Hilal in the Club World Cup.`\
+https://nytimes.com/athletic/6543734/2025/08/09/rodri-fitness-pep-guardiola-manchester-city/
+
 **Italy's Ballon d’Or nominee Sofia Cantore readies for NWSL debut with Washington Spirit**\
 `The forward speaks to The Athletic about moving to America, starring at the Euros and growing soccer back home in Italy`\
 https://nytimes.com/athletic/6543508/2025/08/09/sofia-cantore-interview-washington-spirit/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6543564/2025/08/09/cubs-shut-out-again/
 **Luke Keaschall, new-look Twins keep rolling with fourth win in five games**\
 `Plus the Twins' catching streak is ending due to Christian Vázquez's shoulder infection and Pablo López is progressing toward returning.`\
 https://nytimes.com/athletic/6543242/2025/08/09/luke-keaschall-twins-fourth-win-in-five-games/
-
-**Yankees' Devin Williams says 'I stink' after latest blow-up, but why was he out there?**\
-`Williams surely deserves blame for his performance, but so does Aaron Boone. It is inexcusable that Williams was in the game at that moment.`\
-https://nytimes.com/athletic/6543543/2025/08/09/devin-williams-yankees-bullpen-aaron-boone/
 
