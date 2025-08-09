@@ -10,6 +10,10 @@ https://nytimes.com/athletic/6543432/2025/08/09/tom-brady-patriots-statue-jets-r
 `Critics say an executive order that clears the way for alternative assets to enter retirement accounts poses risks to everyday investors. It could also pose some for private fund managers.`\
 https://nytimes.com/2025/08/09/business/dealbook/401k-private-equity.html
 
+**Phillies' Brandon Marsh goes 4-for-5 as outfield shuffle continues**\
+`Phillies will continue to experiment with outfield platoon situation for now.`\
+https://nytimes.com/athletic/6543640/2025/08/09/phillies-brandon-marsh-outfield-shuffle/
+
 **Payton Wilson and seven other Steelers to watch in the preseason opener**\
 `Pittsburgh kicks off the preseason in Jacksonville on Saturday night.`\
 https://nytimes.com/athletic/6542996/2025/08/09/steelers-jaguars-preseason-opener-players-to-watch/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/09/opinion/hollywood-entertainment-woke-progressive.
 **The New Things I See Now That I’m Losing My Vision**\
 `Surrounded by the work of Impressionists who dedicated themselves to capturing felt experience rather than reality, I sensed that I would be OK with my altered sight.`\
 https://nytimes.com/2025/08/09/opinion/vision-blindness-art.html
-
-**The New Nuclear Generation**\
-`The adults who were children at the dawn of the atomic era are nearing the end of their lives.`\
-https://nytimes.com/2025/08/09/opinion/nuclear-weapons-war-threat-generation.html
 
