@@ -1,3 +1,7 @@
+**Newcastle close on €40m transfer of Milan's Thiaw**\
+`The 24-year-old has a contract through to 2027 at Milan, who signed the central defender from Schalke in 2022.`\
+https://nytimes.com/athletic/5653382/2025/08/09/newcastle-transfers-malick-thiaw-milan/
+
 **What to Know About Instagram Map, a New Feature Drawing Backlash**\
 `The service rolled out this week, prompting confusion and safety concerns. Meta, which owns Instagram, said the feature was turned off unless users activated it.`\
 https://nytimes.com/2025/08/09/us/instagram-map-location-meta.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6543663/2025/08/09/mookie-betts-season-dodgers/
 **Pakistan cricketer Haider Ali arrested on suspicion of alleged rape**\
 `The alleged offence took place during the Pakistan Shaheens' five-match tour of England in July.`\
 https://nytimes.com/athletic/6542204/2025/08/09/haider-ali-pakistan-arrest/
-
-**West Ham sign goalkeeper Hermansen from Leicester**\
-`The 25-year-old has signed a five-year contract with a one-year option at the east London club after two seasons at Leicester.`\
-https://nytimes.com/athletic/6543841/2025/08/09/west-ham-transfers-goalkeeper-hermansen/
 
