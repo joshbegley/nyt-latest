@@ -1,4 +1,4 @@
-**Lions safety Morice Norris leaves in ambulance after frightening injury**\
+**Lions safety Morice Norris leaves in ambulance after injury vs. Falcons**\
 `Norris was injured while attempting to tackle Falcons running back Nathan Carter.`\
 https://nytimes.com/athletic/6543448/2025/08/08/lions-morice-norris-injured-ambulance-falcons/
 
