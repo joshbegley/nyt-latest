@@ -1,3 +1,7 @@
+**Trafford's route back to City: 'Rhino skin', tough loans, and England No 1 expectations**\
+`James Trafford has returned to Manchester City this summer — this is how he developed away from the club`\
+https://nytimes.com/athletic/6542396/2025/08/09/james-trafford-manchester-city-profile/
+
 **An Unusual Soccer Finale in Italy Reveals Libya’s Frailties**\
 `With two governments, and two soccer leagues, Libya is holding its soccer championship in Italy for a second year. Volatile politics and fans follow.`\
 https://nytimes.com/2025/08/09/sports/an-unusual-soccer-finale-in-italy-reveals-libyas-frailties.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/08/pageoneplus/quote-of-the-day-waking-9-stories-bel
 **At ‘Alligator Alcatraz,’ Did a Detainee Just Faint or Need CPR?**\
 `Homeland Security says a detainee fainted. But other accounts say the man was unconscious. One witness said the guards did not seem to know how to check his pulse.`\
 https://nytimes.com/2025/08/08/us/alligator-alcatraz-detainees-medical-treatment.html
-
-**Lions' Morice Norris in stable condition, will remain in hospital overnight**\
-`Preseason game halted in fourth quarter after safety taken from field in ambulance.`\
-https://nytimes.com/athletic/6543448/2025/08/08/lions-morice-norris-injured-ambulance-falcons/
 
