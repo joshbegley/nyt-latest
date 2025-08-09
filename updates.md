@@ -1,3 +1,11 @@
+**Five things we've learned about Iowa's new-look offense in mid-August**\
+`Let's take a look at the backup quarterback battle, offensive line, wide receivers and more after Saturday's scrimmage.`\
+https://nytimes.com/athletic/6544428/2025/08/09/iowa-hawkeyes-football-mark-gronowski/
+
+**Mariano Rivera tears Achilles during Yankees Old-Timers' Day game**\
+`Roger Clemens told the team's radio broadcasters that the Hall-of-Fame closer went to the hospital to get examined.`\
+https://nytimes.com/athletic/6544433/2025/08/09/mariano-rivera-achilles-injury-yankees-old-timers-day/
+
 **Passing Glances**\
 `Adam Wagner and Chandi Deitmer team up on a puzzle so great you can’t look away.`\
 https://nytimes.com/2025/08/09/crosswords/daily-puzzle-2025-08-10.html
