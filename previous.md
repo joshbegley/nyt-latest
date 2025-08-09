@@ -1,3 +1,7 @@
+**Manchester United complete signing of Benjamin Sesko from RB Leipzig**\
+`Sesko is set to be unveiled to supporters at Old Trafford during Saturday's pre-season friendly against Fiorentina.`\
+https://nytimes.com/athletic/6540431/2025/08/09/confirmed-benjamin-sesko-manchester-united/
+
 **The Head of the A.D.L. on Antisemitism, Anti-Zionism and Free Speech**\
 `How Jonathan Greenblatt thinks about the line between legitimate protest and anti-Jewish hate.`\
 https://nytimes.com/2025/08/09/magazine/jonathan-greenblatt-interview.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/09/climate/trump-bird-deaths-wind-turbines.html
 **What to Do When Your Manager Doesn’t Work. Like, at All.**\
 `Plus, more tips for bossing around your boss.`\
 https://nytimes.com/2025/08/09/business/manager-performance-work-advice.html
-
-**After a Young Arts Patron’s Donation Did Not Clear, He Was Found Dead**\
-`Shortly before Matthew Christopher Pietras’s body was discovered, the Metropolitan Opera had been told that the $10 million he had just donated did not belong to him.`\
-https://nytimes.com/2025/08/09/arts/music/met-opera-frick-donor-death.html
 

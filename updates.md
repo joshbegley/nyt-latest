@@ -1,3 +1,7 @@
+**Manchester United complete signing of Benjamin Sesko from RB Leipzig**\
+`Sesko is set to be unveiled to supporters at Old Trafford during Saturday's pre-season friendly against Fiorentina.`\
+https://nytimes.com/athletic/6540431/2025/08/09/confirmed-benjamin-sesko-manchester-united/
+
 **The Head of the A.D.L. on Antisemitism, Anti-Zionism and Free Speech**\
 `How Jonathan Greenblatt thinks about the line between legitimate protest and anti-Jewish hate.`\
 https://nytimes.com/2025/08/09/magazine/jonathan-greenblatt-interview.html
