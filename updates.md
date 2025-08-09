@@ -1,3 +1,7 @@
+**Morton Meyerson, Texas Businessman and Perot Lieutenant, Dies at 87**\
+`He helped build H. Ross Perot’s company Electronic Data Systems into a leading data processing firm. He later played a crucial role in Mr. Perot’s 1992 presidential campaign.`\
+https://nytimes.com/2025/08/09/business/morton-meyerson-dead.html
+
 **Gunman in Deadly C.D.C. Shooting Fixated on Covid Vaccine, Officials Say**\
 `The shooting in Atlanta, which killed a police officer, followed the spread of false information around Covid vaccines and animosity directed at the agency, public health workers say.`\
 https://nytimes.com/2025/08/09/us/gunman-cdc-shooting-vaccines.html
