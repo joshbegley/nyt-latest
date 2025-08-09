@@ -1,3 +1,15 @@
+**Inigo Martinez's Barcelona exit is a real blow. How will they replace him?**\
+`The 34-year-old centre-back has left to join Al Nassr. His skills and spirit will be much missed`\
+https://nytimes.com/athletic/6542233/2025/08/09/inigo-martinez-barcelona-exit-al-nassr/
+
+**Why is Vinicius Jr out of favour at Real Madrid?**\
+`From Ballon d'Or disappointment to contract complications, there's been a lot going on behind the scenes`\
+https://nytimes.com/athletic/6542208/2025/08/09/vinicius-jr-real-madrid-xabi-alonso-renewal/
+
+**Trafford's route back to City: 'Rhino skin', tough loans, and England No 1 expectations**\
+`James Trafford has returned to Manchester City this summer — this is how he developed away from the club`\
+https://nytimes.com/athletic/6542396/2025/08/09/james-trafford-manchester-city-profile/
+
 **An Unusual Soccer Finale in Italy Reveals Libya’s Frailties**\
 `With two governments, and two soccer leagues, Libya is holding its soccer championship in Italy for a second year. Volatile politics and fans follow.`\
 https://nytimes.com/2025/08/09/sports/an-unusual-soccer-finale-in-italy-reveals-libyas-frailties.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/08/09/pageoneplus/corrections-aug-9-2025.html
 **Is Kim Jong-un Preparing a Successor?**\
 `Kim Jong-un, the leader of North Korea, might be preparing his young daughter, Kim Ju-ae, to become his successor. Choe Sang-Hun, the ​Seoul bureau chief for The New York Times, analyzed North Korean state propaganda to find out.`\
 https://nytimes.com/video/world/asia/100000010324151/is-kim-jong-un-preparing-a-successor.html
-
-**Quote of the Day: Waking 9 Stories Below In Kyiv, Somehow Alive**\
-`Quotation of the Day for Saturday, August 9, 2025.`\
-https://nytimes.com/2025/08/08/pageoneplus/quote-of-the-day-waking-9-stories-below-in-kyiv-somehow-alive.html
-
-**At ‘Alligator Alcatraz,’ Did a Detainee Just Faint or Need CPR?**\
-`Homeland Security says a detainee fainted. But other accounts say the man was unconscious. One witness said the guards did not seem to know how to check his pulse.`\
-https://nytimes.com/2025/08/08/us/alligator-alcatraz-detainees-medical-treatment.html
-
-**Lions' Morice Norris in stable condition, will remain in hospital overnight**\
-`Preseason game halted in fourth quarter after safety taken from field in ambulance.`\
-https://nytimes.com/athletic/6543448/2025/08/08/lions-morice-norris-injured-ambulance-falcons/
 
