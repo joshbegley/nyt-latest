@@ -1,3 +1,7 @@
+**Al Hilal complete Darwin Nunez transfer from Liverpool**\
+`The move brings to an end Nunez's three-year stay at Anfield after he arrived from Benfica for an initial fee of €75m in 2022.`\
+https://nytimes.com/athletic/6540004/2025/08/09/darwin-nunez-transfer-saudi-liverpool/
+
 **Elijah Golden's commitment sets Notre Dame up for first top-5 class since 2013**\
 `The Irish have 27 verbal commitments in the Class of 2026, which would be the largest group of freshman signees since the Charlie Weis era.`\
 https://nytimes.com/athletic/6542755/2025/08/09/notre-dame-recruiting-elijah-golden-commitment/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6544224/2025/08/09/leeds-milan-perri-farke-harrison
 **Morton Meyerson, Texas Businessman and Perot Lieutenant, Dies at 87**\
 `He helped build H. Ross Perot’s company Electronic Data Systems into a leading data processing firm. He later played a crucial role in Mr. Perot’s 1992 presidential campaign.`\
 https://nytimes.com/2025/08/09/business/morton-meyerson-dead.html
-
-**Gunman in Deadly C.D.C. Shooting Fixated on Covid Vaccine, Officials Say**\
-`The shooting in Atlanta, which killed a police officer, followed the spread of false information around Covid vaccines and animosity directed at the agency, public health workers say.`\
-https://nytimes.com/2025/08/09/us/gunman-cdc-shooting-vaccines.html
 
