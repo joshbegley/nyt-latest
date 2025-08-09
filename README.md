@@ -1,3 +1,7 @@
+**Cuomo Opens Line of Attack Over Mamdani’s Rent-Stabilized Apartment**\
+`The former governor’s post, written on X on Friday, reflected how he has adopted a stance of more aggressive, personal jabs.`\
+https://nytimes.com/2025/08/09/nyregion/cuomo-mamdani-apartment-rent-control.html
+
 **After Fire Destroys Their Synagogue, Congregants Gather to Pray**\
 `Congregation Beth El in Rutherford, N.J., held a Sabbath service near the charred debris that remained. Members pledged to rebuild.`\
 https://nytimes.com/2025/08/09/nyregion/rutherford-new-jersey-synagogue-fire-sabbath.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6544242/2025/08/09/arsenal-athletic-club-gyokeres-r
 **Brighton 2 Wolfsburg 1: Explaining Baleba absence as De Cuyper stakes his claim**\
 `Fabian Hurzeler's side concluded an unbeaten pre-season campaign against the Bundesliga club with the head coach's options bolstered`\
 https://nytimes.com/athletic/6544032/2025/08/09/brighton-wolfsburg-baleba-cuyper-verbruggen/
-
-**Arsenal 'actively looking' at further signings with player exits likely - Arteta**\
-`Arsenal have already signed six players this summer but Arteta has said more incomings are possible ahead of the September 1 deadline.`\
-https://nytimes.com/athletic/6544339/2025/08/09/arsenal-summer-transfers-mikel-arteta/
 
