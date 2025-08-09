@@ -1,3 +1,7 @@
+**The Dred Scott Dissent Lincoln Loved**\
+`What if the infamous case had been decided correctly?`\
+https://nytimes.com/2025/08/09/opinion/dred-scott-taney-curtis-lincoln.html
+
 **Seahawks 53-man roster projection: Logjams at RB, TE and OL make for tough decisions**\
 `Could the Seahawks keep four running backs, two fullbacks and three tight ends? Which recent draft picks are on the bubble?`\
 https://nytimes.com/athletic/6543699/2025/08/09/seahawks-roster-53-man-projection-preseason/
