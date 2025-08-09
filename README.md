@@ -1,3 +1,7 @@
+**No-Bake Peaches and Cream Cake? Yes, Please.**\
+`David Tanis’s simple recipe is a summery take on tiramisù, a beautiful landing pad for all those peaches.`\
+https://nytimes.com/2025/08/09/dining/easy-no-bake-peaches-and-cream-cake-recipe.html
+
 **Manchester United 1-1 Fiorentina: Sesko unveiled, De Gea returns, and was this Amorim's starting XI for Arsenal?**\
 `Analysis of United's final pre-season friendly ahead of the 2025-26 season`\
 https://nytimes.com/athletic/6543743/2025/08/09/manchester-united-fiorentina-sesko/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/09/world/middleeast/israel-gaza-arab-forces-postwar.
 **Five ways Group of 5 coaches say they're adapting to the portal-poaching era**\
 `The fears the sport’s lower levels could serve as a farm system for larger programs have come to fruition. Coaches are trying to adjust.`\
 https://nytimes.com/athletic/6542727/2025/08/09/college-football-transfer-portal-strategies-group-of-5/
-
-**Tom Brady's statue unveiling includes classic jab at Jets fans**\
-`The Athletic has live coverage of the 2025 NFL Preseason.`\
-https://nytimes.com/athletic/6543432/2025/08/09/tom-brady-patriots-statue-jets-roast/
 
