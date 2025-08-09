@@ -1,3 +1,15 @@
+**Luke Keaschall, new-look Twins keep rolling with fourth win in five games**\
+`Plus the Twins' catching streak is ending due to Christian Vázquez's shoulder infection and Pablo López is progressing toward returning.`\
+https://nytimes.com/athletic/6543242/2025/08/09/luke-keaschall-twins-fourth-win-in-five-games/
+
+**Yankees' Devin Williams says 'I stink' after latest blow-up, but why was he out there?**\
+`Williams surely deserves blame for his performance, but so does Aaron Boone. It is inexcusable that Williams was in the game at that moment.`\
+https://nytimes.com/athletic/6543543/2025/08/09/devin-williams-yankees-bullpen-aaron-boone/
+
+**The New York Times in Print for Saturday, Aug. 9, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/08/09/todays-new-york-times
+
 **The men's Hundred: Who could be this month's white-ball breakthrough stars?**\
 `From Tawanda Muyeye to Sonny Baker, Donovan Ferreira to Matty Hurst, these are the young talents who could illuminate this year's tournament`\
 https://nytimes.com/athletic/6541898/2025/08/09/hundred-cricket-breakthrough-muyeye-baker-turner-mousley/
