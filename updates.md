@@ -1,3 +1,19 @@
+**E.P.A. Cancels Federal Union Contracts in Push to End Collective Bargaining**\
+`President Trump has faced legal challenges from unions representing federal workers for his push to strip them of labor protections.`\
+https://nytimes.com/2025/08/08/us/politics/trump-epa-union-contracts.html
+
+**ICE Is Holding Migrants in Crowded and Unsanitary Cells, Suit Claims**\
+`The Immigration and Customs Enforcement facilities in New York have been used to detain migrants for days. U.S. officials have denied that the conditions are poor.`\
+https://nytimes.com/2025/08/08/nyregion/immigration-holding-cells-lawsuit-aclu.html
+
+**Thousands of Dollars Worth of Labubus Stolen From California Store**\
+`Demand for the trendy dolls, elf-like creatures with nine-tooth grins, has people lining up for hours to buy them.`\
+https://nytimes.com/2025/08/08/us/labubu-dolls-stolen-california.html
+
+**Shedeur Sanders throws 2 first-half TDs in preseason debut vs. Panthers**\
+`Sanders impressed early, finding Kaden Davis for two touchdowns as Cleveland took a 14-7 lead into halftime. `\
+https://nytimes.com/athletic/6543273/2025/08/08/shedeur-sanders-preseason-browns-panthers/
+
 **David Stearns backs Mets' hitting coaches, points to their track record**\
 `Stearns, who has never fired a coach during a season, expressed his support for Eric Chavez and Jeremy Barnes.`\
 https://nytimes.com/athletic/6543327/2025/08/08/mets-hitting-coaches-david-stearns/
