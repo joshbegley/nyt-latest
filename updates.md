@@ -1,3 +1,7 @@
+**The men's Hundred: Who could be this month's white-ball breakthrough stars?**\
+`From Tawanda Muyeye to Sonny Baker, Donovan Ferreira to Matty Hurst, these are the young talents who could illuminate this year's tournament`\
+https://nytimes.com/athletic/6541898/2025/08/09/hundred-cricket-breakthrough-muyeye-baker-turner-mousley/
+
 **Inigo Martinez's Barcelona exit is a real blow. How will they replace him?**\
 `The 34-year-old centre-back has left to join Al Nassr. His skills and spirit will be much missed`\
 https://nytimes.com/athletic/6542233/2025/08/09/inigo-martinez-barcelona-exit-al-nassr/
