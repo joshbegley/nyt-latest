@@ -1,3 +1,7 @@
+**Wrexham end defeated but defiant on their long-awaited Championship return**\
+`The Welsh club were playing their first game at this level in 43 years but, having led for over an hour, endured a sting in the tail`\
+https://nytimes.com/athletic/6536465/2025/08/09/wrexham-southampton-moore-parkinson-championship/
+
 **No-Bake Peaches and Cream Cake? Yes, Please.**\
 `David Tanis’s simple recipe is a summery take on tiramisù, a beautiful landing pad for all those peaches.`\
 https://nytimes.com/2025/08/09/dining/easy-no-bake-peaches-and-cream-cake-recipe.html
