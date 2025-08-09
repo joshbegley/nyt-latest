@@ -1,3 +1,7 @@
+**Comics**\
+`Aidan Deshong and Akshay Seetharam build a formidable challenge together.`\
+https://nytimes.com/2025/08/08/crosswords/daily-puzzle-2025-08-09.html
+
 **After Rashawn Slater's injury, Trey Pipkins is a fulcrum in Chargers season**\
 `Pipkins has experience at right tackle and Chargers coach Jim Harbaugh says he has "all the confidence in the world" in him.`\
 https://nytimes.com/athletic/6543348/2025/08/08/chargers-trey-pipkins-rashawn-slater-injury/
