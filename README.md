@@ -1,3 +1,7 @@
+**Italy's Ballon d’Or nominee Sofia Cantore readies for NWSL debut with Washington Spirit**\
+`The forward speaks to The Athletic about moving to America, starring at the Euros and growing soccer back home in Italy`\
+https://nytimes.com/athletic/6543508/2025/08/09/sofia-cantore-interview-washington-spirit/
+
 **How Ali Sethi Spends His Day Getting Ready for a Music Tour**\
 `The singer meets up with bandmates to rehearse, enjoys food that reminds him of childhood and stays out late dancing.`\
 https://nytimes.com/2025/08/09/nyregion/ali-sethi-love-language.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6543242/2025/08/09/luke-keaschall-twins-fourth-win-
 **Yankees' Devin Williams says 'I stink' after latest blow-up, but why was he out there?**\
 `Williams surely deserves blame for his performance, but so does Aaron Boone. It is inexcusable that Williams was in the game at that moment.`\
 https://nytimes.com/athletic/6543543/2025/08/09/devin-williams-yankees-bullpen-aaron-boone/
-
-**The New York Times in Print for Saturday, Aug. 9, 2025**\
-``\
-https://nytimes.com/issue/todayspaper/2025/08/09/todays-new-york-times
 
