@@ -1,3 +1,19 @@
+**How Ali Sethi Spends His Day Getting Ready for a Music Tour**\
+`The singer meets up with bandmates to rehearse, enjoys food that reminds him of childhood and stays out late dancing.`\
+https://nytimes.com/2025/08/09/nyregion/ali-sethi-love-language.html
+
+**ICE Deported Him. His Father Heard Nothing for Months. Then, a Call.**\
+`Merwil Gutièrrez is one of many immigrants across the United States who have been taken into custody by federal authorities, their whereabouts unknown or unclear.`\
+https://nytimes.com/2025/08/09/nyregion/ice-deportation-el-salvador-venezuela.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/08/09/crosswords/spelling-bee-forum.html
+
+**Zelensky Rejects Trump’s Suggestion That Ukraine Swap Territory With Russia**\
+`The Ukrainian president’s blunt comments risk angering Mr. Trump, who has made a peace deal between Ukraine and Russia one of his signature foreign policy goals.`\
+https://nytimes.com/2025/08/09/world/europe/zelensky-trump-ukraine-russia.html
+
 **The men's Hundred: Who could be this month's white-ball breakthrough stars?**\
 `From Tawanda Muyeye to Sonny Baker, Donovan Ferreira to Matty Hurst, these are the young talents who could illuminate this year's tournament`\
 https://nytimes.com/athletic/6541898/2025/08/09/hundred-cricket-breakthrough-muyeye-baker-turner-mousley/
