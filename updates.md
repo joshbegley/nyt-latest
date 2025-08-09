@@ -1,3 +1,7 @@
+**Lions safety Morice Norris leaves in ambulance after frightening injury**\
+`Norris was injured while attempting to tackle Falcons running back Nathan Carter.`\
+https://nytimes.com/athletic/6543448/2025/08/08/lions-morice-norris-injured-ambulance-falcons/
+
 **Comics**\
 `Aidan Deshong and Akshay Seetharam build a formidable challenge together.`\
 https://nytimes.com/2025/08/08/crosswords/daily-puzzle-2025-08-09.html

@@ -1,11 +1,3 @@
-**Lions safety Morice Norris leaves in ambulance after frightening injury**\
-`Norris was injured while attempting to tackle Falcons running back Nathan Carter.`\
-https://nytimes.com/athletic/6543448/2025/08/08/lions-morice-norris-injured-ambulance-falcons/
-
-**Comics**\
-`Aidan Deshong and Akshay Seetharam build a formidable challenge together.`\
-https://nytimes.com/2025/08/08/crosswords/daily-puzzle-2025-08-09.html
-
 **NFL memo recommends new security protocols in wake of NYC shooting**\
 `Recommendations include armed officers at all team and league facilities and weapons screening for anyone seeking entry.`\
 https://nytimes.com/athletic/6543377/2025/08/08/nfl-memo-security-new-york-shooting/
@@ -37,4 +29,12 @@ https://nytimes.com/2025/08/08/business/trump-intel-ceo-ohio.html
 **Shedeur Sanders throws 2 first-half TDs in preseason debut vs. Panthers**\
 `Sanders impressed early, finding Kaden Davis for two touchdowns as Cleveland took a 14-7 lead into halftime. `\
 https://nytimes.com/athletic/6543273/2025/08/08/shedeur-sanders-preseason-browns-panthers/
+
+**Patriots unveil Tom Brady statue ahead of preseason opener**\
+`Legendary quarterback in a joking mood as 17-foot-tall statue is revealed at ceremony, saying now he can be described "as chiseled."`\
+https://nytimes.com/athletic/6543021/2025/08/08/tom-brady-patriots-statue-gillette-stadium/
+
+**Trump Officials Press Case Against Harvard, and Add a New Investigation**\
+`The administration doubled down against Harvard, asserting that rising violent crime on campus meant the school should not host international students. It will also review the school’s patents.`\
+https://nytimes.com/2025/08/08/us/trump-harvard-patent-investigation-international-students.html
 
