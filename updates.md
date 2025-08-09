@@ -1,3 +1,7 @@
+**Cubs shut out as offensive slump deepens in loss to Cardinals**\
+`Cubs go 0-for-6 with RISP in 5-0 loss, extending offensive skid.`\
+https://nytimes.com/athletic/6543564/2025/08/09/cubs-shut-out-again/
+
 **Luke Keaschall, new-look Twins keep rolling with fourth win in five games**\
 `Plus the Twins' catching streak is ending due to Christian Vázquez's shoulder infection and Pablo López is progressing toward returning.`\
 https://nytimes.com/athletic/6543242/2025/08/09/luke-keaschall-twins-fourth-win-in-five-games/
