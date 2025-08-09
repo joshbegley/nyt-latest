@@ -1,3 +1,7 @@
+**Elijah Golden's commitment sets Notre Dame up for first top-5 class since 2013**\
+`The Irish have 27 verbal commitments in the Class of 2026, which would be the largest group of freshman signees since the Charlie Weis era.`\
+https://nytimes.com/athletic/6542755/2025/08/09/notre-dame-recruiting-elijah-golden-commitment/
+
 **The Briefing: Arsenal 3 Athletic Club 0: Gyokeres' first goal and Rice-Zubimendi promise**\
 `Arsenal finished their pre-season preparations with an emphatic win over the La Liga side and there is plenty for fans to be positive about`\
 https://nytimes.com/athletic/6544242/2025/08/09/arsenal-athletic-club-gyokeres-rice-zubimendi/
