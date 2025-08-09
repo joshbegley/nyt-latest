@@ -1,3 +1,11 @@
+**Lions safety Morice Norris taken to hospital, game vs. Falcons is halted**\
+`Norris was injured while attempting to tackle Falcons running back Nathan Carter.`\
+https://nytimes.com/athletic/6543448/2025/08/08/lions-morice-norris-injured-ambulance-falcons/
+
+**Shedeur Sanders throws 2 first-half TDs in preseason debut vs. Panthers**\
+`Sanders completed 14 of 23 passes for 138 yards and two touchdowns, leading three scoring drives in Cleveland's preseason win over Carolina.`\
+https://nytimes.com/athletic/6543273/2025/08/08/shedeur-sanders-preseason-browns-panthers/
+
 **Lions safety Morice Norris leaves in ambulance after injury vs. Falcons**\
 `Norris was injured while attempting to tackle Falcons running back Nathan Carter.`\
 https://nytimes.com/athletic/6543448/2025/08/08/lions-morice-norris-injured-ambulance-falcons/
