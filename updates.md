@@ -1,3 +1,7 @@
+**Inside Benjamin Sesko's Manchester United transfer - and how they beat Newcastle to the deal**\
+`The story of the fight to sign Benjamin Sesko, the tactics both teams used and how he finally ended up at Old Trafford`\
+https://nytimes.com/athletic/6542893/2025/08/09/benjamin-sesko-manchester-united-transfer-newcastle/
+
 **Manchester United complete signing of Benjamin Sesko from RB Leipzig**\
 `Sesko is set to be unveiled to supporters at Old Trafford during Saturday's pre-season friendly against Fiorentina.`\
 https://nytimes.com/athletic/6540431/2025/08/09/confirmed-benjamin-sesko-manchester-united/
