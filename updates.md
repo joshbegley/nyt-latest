@@ -1,3 +1,15 @@
+**Timely Manner**\
+`How can we balance getting things done while allowing for serendipity? The answer may be in tinkering with our “time personalities.”`\
+https://nytimes.com/2025/08/09/briefing/timely-manner.html
+
+**How Far Will People Go to Get Into the Magic Castle? Ask These Blood Donors.**\
+`The Hollywood landmark has hosted blood drives since 2014. Donors do a good deed, but the perk is entry into the private club.`\
+https://nytimes.com/2025/08/09/style/magic-castle-la-blood-drive.html
+
+**Put a plantain in the humidor, the Savannah Bananas are at Coors Field, and you can watch**\
+`Saturday night puts the Savannah Bananas up in Rocky Mountain altitude. Here's how to tune in.`\
+https://nytimes.com/athletic/6541293/2025/08/09/savannah-bananas-denver-colorado-coors-rockies-how-to-watch/
+
 **Commanders preseason opener: Whose stock went up, and whose went down**\
 `Trey Amos and Jacory Croskey-Merritt helped themselves in Washington's preseason opener. Sam Hartman and the receivers did not.`\
 https://nytimes.com/athletic/6543720/2025/08/09/commanders-patriots-preseason-trey-amos-sam-hartman/
