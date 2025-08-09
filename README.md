@@ -1,3 +1,7 @@
+**The men's Hundred: Who could be this month's white-ball breakthrough stars?**\
+`From Tawanda Muyeye to Sonny Baker, Donovan Ferreira to Matty Hurst, these are the young talents who could illuminate this year's tournament`\
+https://nytimes.com/athletic/6541898/2025/08/09/hundred-cricket-breakthrough-muyeye-baker-turner-mousley/
+
 **Inigo Martinez's Barcelona exit is a real blow. How will they replace him?**\
 `The 34-year-old centre-back has left to join Al Nassr. His skills and spirit will be much missed`\
 https://nytimes.com/athletic/6542233/2025/08/09/inigo-martinez-barcelona-exit-al-nassr/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/09/business/india-russian-oil-ambani.html
 **Corrections: Aug. 9, 2025**\
 `Corrections that appeared in print on Saturday, Aug. 9, 2025.`\
 https://nytimes.com/2025/08/09/pageoneplus/corrections-aug-9-2025.html
-
-**Is Kim Jong-un Preparing a Successor?**\
-`Kim Jong-un, the leader of North Korea, might be preparing his young daughter, Kim Ju-ae, to become his successor. Choe Sang-Hun, the ​Seoul bureau chief for The New York Times, analyzed North Korean state propaganda to find out.`\
-https://nytimes.com/video/world/asia/100000010324151/is-kim-jong-un-preparing-a-successor.html
 
