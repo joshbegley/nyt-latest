@@ -1,3 +1,7 @@
+**Petunia Wins the Ugliest Dog Contest by Being Loved, Not by Looking Perfect**\
+`Rescued from neglect, the hairless bulldog claimed the World’s Ugliest Dog Contest title on Friday but her prize came long before the competition results were announced.`\
+https://nytimes.com/2025/08/09/us/worlds-ugliest-dog-2025-winner.html
+
 **Ousted F.D.A. Vaccine Chief Returns to Agency**\
 `Dr. Vinay Prasad’s rehiring was an unusual instance of a federal official targeted by the right-wing activist Laura Loomer being brought back into the Trump administration.`\
 https://nytimes.com/2025/08/09/us/politics/fda-vaccine-chief-returns.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/09/us/instagram-map-location-meta.html
 **What if Dred Scott Had Been Decided Correctly?**\
 `The infamous case’s dissent that Lincoln loved.`\
 https://nytimes.com/2025/08/09/opinion/dred-scott-taney-curtis-lincoln.html
-
-**Seahawks 53-man roster projection: Logjams at RB, TE and OL make for tough decisions**\
-`Could the Seahawks keep four running backs, two fullbacks and three tight ends? Which recent draft picks are on the bubble?`\
-https://nytimes.com/athletic/6543699/2025/08/09/seahawks-roster-53-man-projection-preseason/
 
