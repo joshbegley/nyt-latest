@@ -1,3 +1,7 @@
+**Gunman in Deadly C.D.C. Shooting Fixated on Covid Vaccine, Officials Say**\
+`The shooting in Atlanta, which killed a police officer, followed the spread of false information around Covid vaccines and animosity directed at the agency, public health workers say.`\
+https://nytimes.com/2025/08/09/us/gunman-cdc-shooting-vaccines.html
+
 **Don Elbaum, Audacious Boxing Promoter and Heavyweight Raconteur, Dies at 94**\
 `He briefly mentored Don King and promoted fighters both well-known (like Muhammad Ali and Sugar Ray Robinson) and obscure.`\
 https://nytimes.com/2025/08/09/sports/don-elbaum-dead.html
