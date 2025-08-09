@@ -18,8 +18,8 @@ https://nytimes.com/athletic/6543327/2025/08/08/mets-hitting-coaches-david-stear
 `The challenges in Ohio highlight the risks that federal and state officials took when they financially backed Intel, a once-powerful force in chip manufacturing.`\
 https://nytimes.com/2025/08/08/business/trump-intel-ceo-ohio.html
 
-**Shedeur Sanders throws first NFL touchdown in preseason debut vs. Panthers**\
-`Sanders put Cleveland on the board with a 7-yard touchdown pass to Kaden Davis to start the second quarter.`\
+**Shedeur Sanders throws 2 first-half TDs in preseason debut vs. Panthers**\
+`Sanders impressed early, finding Kaden Davis for two touchdowns as Cleveland took a 14-7 lead into halftime. `\
 https://nytimes.com/athletic/6543273/2025/08/08/shedeur-sanders-preseason-browns-panthers/
 
 **Patriots unveil Tom Brady statue ahead of preseason opener**\
