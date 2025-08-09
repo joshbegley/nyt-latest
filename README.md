@@ -1,3 +1,7 @@
+**Inside Benjamin Sesko's Manchester United transfer - and how they beat Newcastle to the deal**\
+`The story of the fight to sign Benjamin Sesko, the tactics both teams used and how he finally ended up at Old Trafford`\
+https://nytimes.com/athletic/6542893/2025/08/09/benjamin-sesko-manchester-united-transfer-newcastle/
+
 **Manchester United complete signing of Benjamin Sesko from RB Leipzig**\
 `Sesko is set to be unveiled to supporters at Old Trafford during Saturday's pre-season friendly against Fiorentina.`\
 https://nytimes.com/athletic/6540431/2025/08/09/confirmed-benjamin-sesko-manchester-united/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/09/us/trump-admissions-data-grades-race-education-de
 **Trump Cracks Down on Bird Deaths, but Only From Wind Turbines**\
 `Critics accused the administration of a double standard, trying to stop wind projects because of potential bald eagle deaths while easing rules for oil and gas companies.`\
 https://nytimes.com/2025/08/09/climate/trump-bird-deaths-wind-turbines.html
-
-**What to Do When Your Manager Doesn’t Work. Like, at All.**\
-`Plus, more tips for bossing around your boss.`\
-https://nytimes.com/2025/08/09/business/manager-performance-work-advice.html
 
