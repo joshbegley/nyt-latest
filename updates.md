@@ -1,3 +1,7 @@
+**Cuomo Opens Line of Attack Over Mamdani’s Rent-Stabilized Apartment**\
+`The former governor’s post, written on X on Friday, reflected how he has adopted a stance of more aggressive, personal jabs.`\
+https://nytimes.com/2025/08/09/nyregion/cuomo-mamdani-apartment-rent-control.html
+
 **After Fire Destroys Their Synagogue, Congregants Gather to Pray**\
 `Congregation Beth El in Rutherford, N.J., held a Sabbath service near the charred debris that remained. Members pledged to rebuild.`\
 https://nytimes.com/2025/08/09/nyregion/rutherford-new-jersey-synagogue-fire-sabbath.html
