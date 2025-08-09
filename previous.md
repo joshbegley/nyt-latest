@@ -1,3 +1,7 @@
+**The Briefing: Arsenal 3 Athletic Club 0: Gyokeres' first goal and Rice-Zubimendi promise**\
+`Arsenal finished their pre-season preparations with an emphatic win over the La Liga side and there is plenty for fans to be positive about`\
+https://nytimes.com/athletic/6544242/2025/08/09/arsenal-athletic-club-gyokeres-rice-zubimendi/
+
 **Brighton 2 Wolfsburg 1: Explaining Baleba absence as De Cuyper stakes his claim**\
 `Fabian Hurzeler's side concluded an unbeaten pre-season campaign against the Bundesliga club with the head coach's options bolstered`\
 https://nytimes.com/athletic/6544032/2025/08/09/brighton-wolfsburg-baleba-cuyper-verbruggen/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/09/us/gunman-cdc-shooting-vaccines.html
 **Don Elbaum, Audacious Boxing Promoter and Heavyweight Raconteur, Dies at 94**\
 `He briefly mentored Don King and promoted fighters both well-known (like Muhammad Ali and Sugar Ray Robinson) and obscure.`\
 https://nytimes.com/2025/08/09/sports/don-elbaum-dead.html
-
-**Female umpire Jen Pawol takes field, breaks MLB barrier**\
-`Pawol received a louder ovation than the other three umpires when their names were announced before the game's first pitch.`\
-https://nytimes.com/athletic/6543691/2025/08/09/mlb-first-female-umpire-debut/
 
