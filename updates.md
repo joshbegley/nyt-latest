@@ -1,3 +1,7 @@
+**After Rashawn Slater's injury, Trey Pipkins is a fulcrum in Chargers season**\
+`Pipkins has experience at right tackle and Chargers coach Jim Harbaugh says he has "all the confidence in the world" in him.`\
+https://nytimes.com/athletic/6543348/2025/08/08/chargers-trey-pipkins-rashawn-slater-injury/
+
 **NFL memo recommends new security protocols in wake of NYC shooting**\
 `Recommendations include armed officers at all team and league facilities and weapons screening for anyone seeking entry.`\
 https://nytimes.com/athletic/6543377/2025/08/08/nfl-memo-security-new-york-shooting/
