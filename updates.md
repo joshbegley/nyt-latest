@@ -1,3 +1,5 @@
+
+
 **Guardiola does not expect Rodri to be 'really fit' until after September break**\
 `Rodri suffered a groin injury in City’s last-16 defeat to Al-Hilal in the Club World Cup.`\
 https://nytimes.com/athletic/6543734/2025/08/09/rodri-fitness-pep-guardiola-manchester-city/
