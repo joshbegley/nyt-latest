@@ -1,3 +1,7 @@
+**No-Bake Peaches and Cream Cake? Yes, Please.**\
+`David Tanis’s simple recipe is a summery take on tiramisù, a beautiful landing pad for all those peaches.`\
+https://nytimes.com/2025/08/09/dining/easy-no-bake-peaches-and-cream-cake-recipe.html
+
 **Manchester United 1-1 Fiorentina: Sesko unveiled, De Gea returns, and was this Amorim's starting XI for Arsenal?**\
 `Analysis of United's final pre-season friendly ahead of the 2025-26 season`\
 https://nytimes.com/athletic/6543743/2025/08/09/manchester-united-fiorentina-sesko/
