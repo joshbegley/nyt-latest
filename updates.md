@@ -1,3 +1,7 @@
+**Anthony Richardson returns to Colts practice after preseason finger injury**\
+`X-rays on Richardson's right hand did not reveal any extensive damage to his pinkie, league sources told The Athletic.`\
+https://nytimes.com/athletic/6544250/2025/08/09/colts-anthony-richardson-injury-practice-nfl-preseason/
+
 **Graig Nettles glad to be back at Yankees' Old-Timers' Day after 14-year absence**\
 `"It seemed like the Yankees kind of lost track of me there for about 10 years," Nettles said. "I'm back. I feel good about being back." `\
 https://nytimes.com/athletic/6544062/2025/08/09/graig-nettles-yankees-old-timers-day-return/
