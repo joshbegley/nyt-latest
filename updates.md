@@ -1,3 +1,7 @@
+**Lions and Falcons come together, do the right thing after Morice Norris' injury**\
+`Along with Falcons coach Raheem Morris, Lions coach Dan Campbell said they "agreed that it just didn't feel right to finish that game."`\
+https://nytimes.com/athletic/6543690/2025/08/09/morice-norris-lions-injury-game-suspended/
+
 **Timely Manner**\
 `How can we balance getting things done while allowing for serendipity? The answer may be in tinkering with our “time personalities.”`\
 https://nytimes.com/2025/08/09/briefing/timely-manner.html

@@ -1,3 +1,7 @@
+**Lions and Falcons come together, do the right thing after Morice Norris' injury**\
+`Along with Falcons coach Raheem Morris, Lions coach Dan Campbell said they "agreed that it just didn't feel right to finish that game."`\
+https://nytimes.com/athletic/6543690/2025/08/09/morice-norris-lions-injury-game-suspended/
+
 **Timely Manner**\
 `How can we balance getting things done while allowing for serendipity? The answer may be in tinkering with our “time personalities.”`\
 https://nytimes.com/2025/08/09/briefing/timely-manner.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/09/crosswords/wordle-review-1513.html
 **Do I Tell My Brother That He’s Not Our Dad’s Son?**\
 `Despite knowing that my brother wasn’t his, my father has always treated my brother as his own. What happens to his sense of identity if he finds out?`\
 https://nytimes.com/2025/08/09/magazine/brother-paternity-ethics.html
-
-**Strands Sidekick No. 525**\
-`Scroll down for hints and conversation about the puzzle for Sunday, Aug. 10, 2025.`\
-https://nytimes.com/2025/08/09/crosswords/strands-sidekick-525.html
 
