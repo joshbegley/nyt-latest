@@ -1,3 +1,7 @@
+**Five things we've learned about Iowa's new-look offense in mid-August**\
+`Let's take a look at the backup quarterback battle, offensive line, wide receivers and more after Saturday's scrimmage.`\
+https://nytimes.com/athletic/6544428/2025/08/09/iowa-hawkeyes-football-mark-gronowski/
+
 **Passing Glances**\
 `Adam Wagner and Chandi Deitmer team up on a puzzle so great you can’t look away.`\
 https://nytimes.com/2025/08/09/crosswords/daily-puzzle-2025-08-10.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6544250/2025/08/09/colts-anthony-richardson-injury-
 **Graig Nettles glad to be back at Yankees' Old-Timers' Day after 14-year absence**\
 `"It seemed like the Yankees kind of lost track of me there for about 10 years," Nettles said. "I'm back. I feel good about being back." `\
 https://nytimes.com/athletic/6544062/2025/08/09/graig-nettles-yankees-old-timers-day-return/
-
-**Al Hilal complete Darwin Nunez transfer from Liverpool**\
-`The move brings to an end Nunez's three-year stay at Anfield after he arrived from Benfica for an initial fee of €75m in 2022.`\
-https://nytimes.com/athletic/6540004/2025/08/09/darwin-nunez-transfer-saudi-liverpool/
 
