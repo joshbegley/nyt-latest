@@ -1,3 +1,11 @@
+**Don Elbaum, Audacious Boxing Promoter and Heavyweight Raconteur, Dies at 94**\
+`He briefly mentored Don King and promoted fighters both well-known (like Muhammad Ali and Sugar Ray Robinson) and obscure.`\
+https://nytimes.com/2025/08/09/sports/don-elbaum-dead.html
+
+**Female umpire Jen Pawol takes field, breaks MLB barrier**\
+`Pawol received a louder ovation than the other three umpires when their names were announced before the game's first pitch.`\
+https://nytimes.com/athletic/6543691/2025/08/09/mlb-first-female-umpire-debut/
+
 **Newcastle close on €40m transfer of Milan's Thiaw**\
 `The 24-year-old has a contract through to 2027 at Milan, who signed the central defender from Schalke in 2022.`\
 https://nytimes.com/athletic/5653382/2025/08/09/newcastle-transfers-malick-thiaw-milan/

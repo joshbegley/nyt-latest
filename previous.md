@@ -1,3 +1,11 @@
+**Don Elbaum, Audacious Boxing Promoter and Heavyweight Raconteur, Dies at 94**\
+`He briefly mentored Don King and promoted fighters both well-known (like Muhammad Ali and Sugar Ray Robinson) and obscure.`\
+https://nytimes.com/2025/08/09/sports/don-elbaum-dead.html
+
+**Female umpire Jen Pawol takes field, breaks MLB barrier**\
+`Pawol received a louder ovation than the other three umpires when their names were announced before the game's first pitch.`\
+https://nytimes.com/athletic/6543691/2025/08/09/mlb-first-female-umpire-debut/
+
 **Newcastle close on €40m transfer of Milan's Thiaw**\
 `The 24-year-old has a contract through to 2027 at Milan, who signed the central defender from Schalke in 2022.`\
 https://nytimes.com/athletic/5653382/2025/08/09/newcastle-transfers-malick-thiaw-milan/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6543743/2025/08/09/manchester-united-fiorentina-ses
 **The Pulse: MLB playoff update and Shedeur sighting**\
 `Welcome to The Pulse, The Athletic's daily sports newsletter.`\
 https://nytimes.com/athletic/6543568/2025/08/09/the-mlb-playoff-field-narrows-and-shedeur-sanders-shines/
-
-**Dodgers' Mookie Betts wants to forget his season, which might be turning around**\
-`The Dodgers shortstop tried to relearn the swing that turned him into an MVP and helped him slug 30 HRs in a season four different times.`\
-https://nytimes.com/athletic/6543663/2025/08/09/mookie-betts-season-dodgers/
-
-**Pakistan cricketer Haider Ali arrested on suspicion of alleged rape**\
-`The alleged offence took place during the Pakistan Shaheens' five-match tour of England in July.`\
-https://nytimes.com/athletic/6542204/2025/08/09/haider-ali-pakistan-arrest/
 
