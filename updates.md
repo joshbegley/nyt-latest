@@ -1,3 +1,7 @@
+**Tom Brady's statue unveiling includes classic jab at Jets fans**\
+`The Athletic has live coverage of the 2025 NFL Preseason.`\
+https://nytimes.com/athletic/6543432/2025/08/09/tom-brady-patriots-statue-jets-roast/
+
 **Dodgers' Mookie Betts wants to forget his season, which might be turning around**\
 `The Dodgers shortstop tried to relearn the swing that turned him into an MVP and helped him slug 30 HRs in a season four different times.`\
 https://nytimes.com/athletic/6543663/2025/08/09/mookie-betts-season-dodgers/
