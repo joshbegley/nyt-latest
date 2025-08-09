@@ -1,3 +1,7 @@
+**Passing Glances**\
+`Adam Wagner and Chandi Deitmer team up on a puzzle so great you can’t look away.`\
+https://nytimes.com/2025/08/09/crosswords/daily-puzzle-2025-08-10.html
+
 **These Are Drug Cartels Designated as Terrorists by the U.S.**\
 `President Trump has signed an order telling the Pentagon to begin using military force against certain criminal gangs that the United States has named terror organizations.`\
 https://nytimes.com/2025/08/09/world/americas/drug-cartels-us-terrorist-designation.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6544062/2025/08/09/graig-nettles-yankees-old-timers
 **Al Hilal complete Darwin Nunez transfer from Liverpool**\
 `The move brings to an end Nunez's three-year stay at Anfield after he arrived from Benfica for an initial fee of €75m in 2022.`\
 https://nytimes.com/athletic/6540004/2025/08/09/darwin-nunez-transfer-saudi-liverpool/
-
-**Elijah Golden's commitment sets Notre Dame up for first top-5 class since 2013**\
-`The Irish have 27 verbal commitments in the Class of 2026, which would be the largest group of freshman signees since the Charlie Weis era.`\
-https://nytimes.com/athletic/6542755/2025/08/09/notre-dame-recruiting-elijah-golden-commitment/
 

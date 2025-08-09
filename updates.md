@@ -1,3 +1,7 @@
+**Passing Glances**\
+`Adam Wagner and Chandi Deitmer team up on a puzzle so great you can’t look away.`\
+https://nytimes.com/2025/08/09/crosswords/daily-puzzle-2025-08-10.html
+
 **These Are Drug Cartels Designated as Terrorists by the U.S.**\
 `President Trump has signed an order telling the Pentagon to begin using military force against certain criminal gangs that the United States has named terror organizations.`\
 https://nytimes.com/2025/08/09/world/americas/drug-cartels-us-terrorist-designation.html
