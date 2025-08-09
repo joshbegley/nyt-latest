@@ -1,3 +1,7 @@
+**Europe Scrambles for Details as Trump and Putin Prepare to Meet**\
+`Ukraine and its allies are concerned that President Trump and President Vladimir V. Putin will do a deal without them and then impose it on Kyiv.`\
+https://nytimes.com/2025/08/09/world/europe/europe-ukraine-russia-us.html
+
 **How Older People Are Reaping Brain Benefits From New Tech**\
 `Overuse of digital gadgets harms teenagers, research suggests. But ubiquitous technology may be helping older Americans stay sharp.`\
 https://nytimes.com/2025/08/09/health/technology-cognition-older-people.html
@@ -18,7 +22,7 @@ https://nytimes.com/athletic/6543432/2025/08/09/tom-brady-patriots-statue-jets-r
 `Critics say an executive order that clears the way for alternative assets to enter retirement accounts poses risks to everyday investors. It could also pose some for private fund managers.`\
 https://nytimes.com/2025/08/09/business/dealbook/401k-private-equity.html
 
-**Phillies' Brandon Marsh goes 4-for-5 as outfield shuffle continues**\
+**Brandon Marsh goes 4-for-5 as Phillies' outfield shuffle continues**\
 `Phillies will continue to experiment with outfield platoon situation for now.`\
 https://nytimes.com/athletic/6543640/2025/08/09/phillies-brandon-marsh-outfield-shuffle/
 
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/09/opinion/trump-design-rococo-gold.html
 **Trump Is a ‘Totem for Wealth.’ What Happens if the Economy Crashes?**\
 `Three Opinion writers on Trump’s most recent power grabs.`\
 https://nytimes.com/2025/08/09/opinion/trump-bls-texas-economy.html
-
-**The Contradiction at the Heart of Trump’s Trade Deals**\
-`That potential gusher of foreign investment is great, except for what it does to the trade deficit.`\
-https://nytimes.com/2025/08/09/opinion/trump-trade-deals-fdi-foreign-investment-deficit.html
 
