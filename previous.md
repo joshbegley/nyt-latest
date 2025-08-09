@@ -1,3 +1,7 @@
+**Leeds 1 Milan 1: Lucas Perri the new No 1 but Jack Harrison is booed again**\
+`Daniel Farke's side secured a draw against the Italians in Dublin in their final friendly fixture before their Premier League return`\
+https://nytimes.com/athletic/6544224/2025/08/09/leeds-milan-perri-farke-harrison-schmidt-stach/
+
 **Morton Meyerson, Texas Businessman and Perot Lieutenant, Dies at 87**\
 `He helped build H. Ross Perot’s company Electronic Data Systems into a leading data processing firm. He later played a crucial role in Mr. Perot’s 1992 presidential campaign.`\
 https://nytimes.com/2025/08/09/business/morton-meyerson-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6543699/2025/08/09/seahawks-roster-53-man-projectio
 **Wrexham end defeated but defiant on their long-awaited Championship return**\
 `The Welsh club were playing their first game at this level in 43 years but, having led for over an hour, endured a sting in the tail`\
 https://nytimes.com/athletic/6536465/2025/08/09/wrexham-southampton-moore-parkinson-championship/
-
-**No-Bake Peaches and Cream Cake? Yes, Please.**\
-`David Tanis’s simple recipe is a summery take on tiramisù, a beautiful landing pad for all those peaches.`\
-https://nytimes.com/2025/08/09/dining/easy-no-bake-peaches-and-cream-cake-recipe.html
 

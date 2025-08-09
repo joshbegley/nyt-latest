@@ -1,3 +1,7 @@
+**Leeds 1 Milan 1: Lucas Perri the new No 1 but Jack Harrison is booed again**\
+`Daniel Farke's side secured a draw against the Italians in Dublin in their final friendly fixture before their Premier League return`\
+https://nytimes.com/athletic/6544224/2025/08/09/leeds-milan-perri-farke-harrison-schmidt-stach/
+
 **Morton Meyerson, Texas Businessman and Perot Lieutenant, Dies at 87**\
 `He helped build H. Ross Perot’s company Electronic Data Systems into a leading data processing firm. He later played a crucial role in Mr. Perot’s 1992 presidential campaign.`\
 https://nytimes.com/2025/08/09/business/morton-meyerson-dead.html
