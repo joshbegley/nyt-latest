@@ -1,3 +1,7 @@
+**Seahawks 53-man roster projection: Logjams at RB, TE and OL make for tough decisions**\
+`Could the Seahawks keep four running backs, two fullbacks and three tight ends? Which recent draft picks are on the bubble?`\
+https://nytimes.com/athletic/6543699/2025/08/09/seahawks-roster-53-man-projection-preseason/
+
 **Wrexham end defeated but defiant on their long-awaited Championship return**\
 `The Welsh club were playing their first game at this level in 43 years but, having led for over an hour, endured a sting in the tail`\
 https://nytimes.com/athletic/6536465/2025/08/09/wrexham-southampton-moore-parkinson-championship/
