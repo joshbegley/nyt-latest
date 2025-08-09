@@ -1,3 +1,7 @@
+**Pete Alonso hits home run No. 252, tying him with Darryl Strawberry as Mets' all-time leader**\
+`After a long stretch without a homer to end July, New York's first baseman hit his fourth home run in August to match Strawberry.`\
+https://nytimes.com/athletic/6544541/2025/08/09/pete-alonso-home-run-mets-leader-darryl-strawberry/
+
 **Jaxson Dart's promising debut fuels optimism, even if there's no QB controversy yet**\
 `Giants coach Brian Daboll was uncharacteristically effusive in his praise of Dart before noting that it was only one preseason game.`\
 https://nytimes.com/athletic/6544484/2025/08/09/jaxson-dart-preseason-debut-giants/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6429365/2025/08/09/rasmus-hojlund-milan-manchester-
 **After Years of Anger Directed at C.D.C., Shooting Manifests Worst Fears**\
 `Employees expressed horror at a shooting at the agency’s headquarters, and some said they viewed it as part of a pattern of threats and assaults on health workers.`\
 https://nytimes.com/2025/08/09/us/politics/cdc-shooting-staff.html
-
-**Anthony Richardson returns to Colts practice after preseason finger injury**\
-`X-rays on Richardson's right hand did not reveal any extensive damage to his pinkie, league sources told The Athletic.`\
-https://nytimes.com/athletic/6544250/2025/08/09/colts-anthony-richardson-injury-practice-nfl-preseason/
 
