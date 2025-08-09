@@ -1,3 +1,7 @@
+**Morton Meyerson, Texas Businessman and Perot Lieutenant, Dies at 87**\
+`He helped build H. Ross Perot’s company Electronic Data Systems into a leading data processing firm. He later played a crucial role in Mr. Perot’s 1992 presidential campaign.`\
+https://nytimes.com/2025/08/09/business/morton-meyerson-dead.html
+
 **Gunman in Deadly C.D.C. Shooting Fixated on Covid Vaccine, Officials Say**\
 `The shooting in Atlanta, which killed a police officer, followed the spread of false information around Covid vaccines and animosity directed at the agency, public health workers say.`\
 https://nytimes.com/2025/08/09/us/gunman-cdc-shooting-vaccines.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6536465/2025/08/09/wrexham-southampton-moore-parkin
 **No-Bake Peaches and Cream Cake? Yes, Please.**\
 `David Tanis’s simple recipe is a summery take on tiramisù, a beautiful landing pad for all those peaches.`\
 https://nytimes.com/2025/08/09/dining/easy-no-bake-peaches-and-cream-cake-recipe.html
-
-**Manchester United 1-1 Fiorentina: Sesko unveiled, De Gea returns, and was this Amorim's starting XI for Arsenal?**\
-`Analysis of United's final pre-season friendly ahead of the 2025-26 season`\
-https://nytimes.com/athletic/6543743/2025/08/09/manchester-united-fiorentina-sesko/
 
