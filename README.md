@@ -1,3 +1,7 @@
+**Arsenal 'actively looking' at further signings with player exits likely - Arteta**\
+`Arsenal have already signed six players this summer but Arteta has said more incomings are possible ahead of the September 1 deadline.`\
+https://nytimes.com/athletic/6544339/2025/08/09/arsenal-summer-transfers-mikel-arteta/
+
 **Zelensky Rejects Trump’s Suggestion That Ukraine May Cede Land To Russia**\
 `President Trump did not clarify which territories could be swapped, and Ukrainian officials appeared uncertain about what he meant.`\
 https://nytimes.com/video/world/europe/100000010332400/trump-putin-meeting-zelensky.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6543691/2025/08/09/mlb-first-female-umpire-debut/
 **Newcastle close on €40m transfer of Milan's Thiaw**\
 `The 24-year-old has a contract through to 2027 at Milan, who signed the central defender from Schalke in 2022.`\
 https://nytimes.com/athletic/5653382/2025/08/09/newcastle-transfers-malick-thiaw-milan/
-
-**What to Know About Instagram Map, a New Feature Drawing Backlash**\
-`The service rolled out this week, prompting confusion and safety concerns. Meta, which owns Instagram, said the feature was turned off unless users activated it.`\
-https://nytimes.com/2025/08/09/us/instagram-map-location-meta.html
 

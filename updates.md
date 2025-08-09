@@ -1,3 +1,11 @@
+**Zelensky Rejects Trump’s Suggestion That Ukraine May Cede Land To Russia**\
+`President Trump did not clarify which territories could be swapped, and Ukrainian officials appeared uncertain about what he meant.`\
+https://nytimes.com/video/world/europe/100000010332400/trump-putin-meeting-zelensky.html
+
+**Petunia Wins the Ugliest Dog Contest by Being Loved, Not by Looking Perfect**\
+`Rescued from neglect, the hairless bulldog claimed the World’s Ugliest Dog Contest title on Friday but her prize came long before the competition results were announced.`\
+https://nytimes.com/2025/08/09/us/worlds-ugliest-dog-2025-winner.html
+
 **Ousted F.D.A. Vaccine Chief Returns to Agency**\
 `Dr. Vinay Prasad’s rehiring was an unusual instance of a federal official targeted by the right-wing activist Laura Loomer being brought back into the Trump administration.`\
 https://nytimes.com/2025/08/09/us/politics/fda-vaccine-chief-returns.html
