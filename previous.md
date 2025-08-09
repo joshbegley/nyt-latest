@@ -1,3 +1,7 @@
+**Mariano Rivera injures Achilles during Yankees Old-Timers' Day game**\
+`Roger Clemens told the team's radio broadcasters that the Hall-of-Fame closer went to the hospital to get examined.`\
+https://nytimes.com/athletic/6544433/2025/08/09/mariano-rivera-injury-yankees-old-timers-day/
+
 **Cuomo Opens Line of Attack Over Mamdani’s Rent-Stabilized Apartment**\
 `The former governor’s post, written on X on Friday, reflected how he has adopted a stance of more aggressive, personal jabs.`\
 https://nytimes.com/2025/08/09/nyregion/cuomo-mamdani-apartment-rent-control.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6542755/2025/08/09/notre-dame-recruiting-elijah-gol
 **The Briefing: Arsenal 3 Athletic Club 0 - Gyokeres' first goal and Rice-Zubimendi promise**\
 `Arsenal finished their pre-season preparations with an emphatic win over the La Liga side and there is plenty for fans to be positive about`\
 https://nytimes.com/athletic/6544242/2025/08/09/arsenal-athletic-club-gyokeres-rice-zubimendi/
-
-**Brighton 2 Wolfsburg 1: Explaining Baleba absence as De Cuyper stakes his claim**\
-`Fabian Hurzeler's side concluded an unbeaten pre-season campaign against the Bundesliga club with the head coach's options bolstered`\
-https://nytimes.com/athletic/6544032/2025/08/09/brighton-wolfsburg-baleba-cuyper-verbruggen/
 

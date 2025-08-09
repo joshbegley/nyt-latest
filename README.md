@@ -1,6 +1,10 @@
+**These Are Drug Cartels Designated as Terrorists by the U.S.**\
+`President Trump has signed an order telling the Pentagon to begin using military force against certain criminal gangs that the United States has named terror organizations.`\
+https://nytimes.com/2025/08/09/world/americas/drug-cartels-us-terrorist-designation.html
+
 **Mariano Rivera injures Achilles during Yankees Old-Timers' Day game**\
 `Roger Clemens told the team's radio broadcasters that the Hall-of-Fame closer went to the hospital to get examined.`\
-https://nytimes.com/athletic/6544433/2025/08/09/mariano-rivera-injury-yankees-old-timers-day/
+https://nytimes.com/athletic/6544433/2025/08/09/mariano-rivera-achilles-injury-yankees-old-timers-day/
 
 **Cuomo Opens Line of Attack Over Mamdani’s Rent-Stabilized Apartment**\
 `The former governor’s post, written on X on Friday, reflected how he has adopted a stance of more aggressive, personal jabs.`\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6540004/2025/08/09/darwin-nunez-transfer-saudi-live
 **Elijah Golden's commitment sets Notre Dame up for first top-5 class since 2013**\
 `The Irish have 27 verbal commitments in the Class of 2026, which would be the largest group of freshman signees since the Charlie Weis era.`\
 https://nytimes.com/athletic/6542755/2025/08/09/notre-dame-recruiting-elijah-golden-commitment/
-
-**The Briefing: Arsenal 3 Athletic Club 0 - Gyokeres' first goal and Rice-Zubimendi promise**\
-`Arsenal finished their pre-season preparations with an emphatic win over the La Liga side and there is plenty for fans to be positive about`\
-https://nytimes.com/athletic/6544242/2025/08/09/arsenal-athletic-club-gyokeres-rice-zubimendi/
 

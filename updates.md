@@ -1,3 +1,7 @@
+**Mariano Rivera injures Achilles during Yankees Old-Timers' Day game**\
+`Roger Clemens told the team's radio broadcasters that the Hall-of-Fame closer went to the hospital to get examined.`\
+https://nytimes.com/athletic/6544433/2025/08/09/mariano-rivera-injury-yankees-old-timers-day/
+
 **Cuomo Opens Line of Attack Over Mamdani’s Rent-Stabilized Apartment**\
 `The former governor’s post, written on X on Friday, reflected how he has adopted a stance of more aggressive, personal jabs.`\
 https://nytimes.com/2025/08/09/nyregion/cuomo-mamdani-apartment-rent-control.html
