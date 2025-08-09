@@ -1,40 +1,40 @@
+**Payton Wilson and seven other Steelers to watch in the preseason opener**\
+`Pittsburgh kicks off the preseason in Jacksonville on Saturday night.`\
+https://nytimes.com/athletic/6542996/2025/08/09/steelers-jaguars-preseason-opener-players-to-watch/
+
+**President Midas’ Terrible Touch**\
+`He never promised us a Rose Garden.`\
+https://nytimes.com/2025/08/09/opinion/trump-design-rococo-gold.html
+
+**Trump Is a ‘Totem for Wealth.’ What Happens if the Economy Crashes?**\
+`Three Opinion writers on Trump’s most recent power grabs.`\
+https://nytimes.com/2025/08/09/opinion/trump-bls-texas-economy.html
+
+**The Contradiction at the Heart of Trump’s Trade Deals**\
+`That potential gusher of foreign investment is great, except for what it does to the trade deficit.`\
+https://nytimes.com/2025/08/09/opinion/trump-trade-deals-fdi-foreign-investment-deficit.html
+
+**The End of Woke Hollywood**\
+`The entertainment industry is tired of being so progressive.`\
+https://nytimes.com/2025/08/09/opinion/hollywood-entertainment-woke-progressive.html
+
+**The New Things I See Now That I’m Losing My Vision**\
+`Surrounded by the work of Impressionists who dedicated themselves to capturing felt experience rather than reality, I sensed that I would be OK with my altered sight.`\
+https://nytimes.com/2025/08/09/opinion/vision-blindness-art.html
+
+**The New Nuclear Generation**\
+`The adults who were children at the dawn of the atomic era are nearing the end of their lives.`\
+https://nytimes.com/2025/08/09/opinion/nuclear-weapons-war-threat-generation.html
+
+**Will MAHA Change America?**\
+`The outsider critique of the medical establishment has always struggled to offer an alternative vision that’s rigorous rather than credulous.`\
+https://nytimes.com/2025/08/09/opinion/rfk-jr-maha-america.html
+
+**Matt Vierling's first homer of season sparks Tigers' needed comeback win**\
+`Matt Vierling's first home run of the season was a go-ahead, pinch-hit homer that gave the Tigers a needed return to their gritty ways.`\
+https://nytimes.com/athletic/6543544/2025/08/09/detroit-tigers-matt-vierling-home-run/
+
 **Trump Is a ‘Totem for Wealth.’ What Happens if the Economy Crashes?**\
 `Three Opinion writers on Trump’s most recent power grabs.`\
 https://nytimes.com/video/opinion/100000010329793/trump-is-a-totem-for-wealth-what-happens-if-the-economy-crashes.html
-
-**Lions and Falcons come together, do the right thing after Morice Norris' injury**\
-`Along with Falcons coach Raheem Morris, Lions coach Dan Campbell said they "agreed that it just didn't feel right to finish that game."`\
-https://nytimes.com/athletic/6543690/2025/08/09/morice-norris-lions-injury-game-suspended/
-
-**Timely Manner**\
-`How can we balance getting things done while allowing for serendipity? The answer may be in tinkering with our “time personalities.”`\
-https://nytimes.com/2025/08/09/briefing/timely-manner.html
-
-**How Far Will People Go to Get Into the Magic Castle? Ask These Blood Donors.**\
-`The Hollywood landmark has hosted blood drives since 2014. Donors do a good deed, but the perk is entry into the private club.`\
-https://nytimes.com/2025/08/09/style/magic-castle-la-blood-drive.html
-
-**Put a plantain in the humidor, the Savannah Bananas are at Coors Field, and you can watch**\
-`Saturday night puts the Savannah Bananas up in Rocky Mountain altitude. Here's how to tune in.`\
-https://nytimes.com/athletic/6541293/2025/08/09/savannah-bananas-denver-colorado-coors-rockies-how-to-watch/
-
-**Commanders preseason opener: Whose stock went up, and whose went down**\
-`Trey Amos and Jacory Croskey-Merritt helped themselves in Washington's preseason opener. Sam Hartman and the receivers did not.`\
-https://nytimes.com/athletic/6543720/2025/08/09/commanders-patriots-preseason-trey-amos-sam-hartman/
-
-**A Cash Shortage in Gaza Is Making the Hunger Crisis Much Worse**\
-`Palestinians who fear being killed or seriously injured during rushes to obtain aid are being forced to pay exorbitant fees to take out money to buy food.`\
-https://nytimes.com/2025/08/09/world/middleeast/gaza-cash-crisis.html
-
-**What makes a great teammate? One of baseball’s best clubhouse guys shares his secrets**\
-`As a player, Jeff Francoeur was a happy presence inside the clubhouse. Some of that was natural. But some of that was an intentional choice.`\
-https://nytimes.com/athletic/6540705/2025/08/09/jeff-francoeur-leadership-joy-teammate-baseball/
-
-**A Pay Raise for Canada’s Military to Boost Recruitment and Retention**\
-`Canada’s top military commander, however, says other measures will also be needed to keep people enlisted.`\
-https://nytimes.com/2025/08/09/world/canada/a-pay-raise-for-canadas-military-to-boost-recruitment-and-retention.html
-
-**Wordle Review No. 1,513**\
-`Scroll down for hints and conversation about the puzzle for Sunday, Aug. 10, 2025.`\
-https://nytimes.com/2025/08/09/crosswords/wordle-review-1513.html
 
