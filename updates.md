@@ -1,3 +1,7 @@
+**Shedeur Sanders throws first pro touchdown in preseason debut vs. panthers**\
+`Sanders put the Browns on the board with a 7-yard touchdown pass to Kaden Davis to start the second quarter.`\
+https://nytimes.com/athletic/6543273/2025/08/08/shedeur-sanders-preseason-browns-panthers/
+
 **Patriots unveil Tom Brady statue ahead of preseason opener**\
 `Legendary quarterback in a joking mood as 17-foot-tall statue is revealed at ceremony, saying now he can be described "as chiseled."`\
 https://nytimes.com/athletic/6543021/2025/08/08/tom-brady-patriots-statue-gillette-stadium/

@@ -1,3 +1,7 @@
+**Shedeur Sanders throws first pro touchdown in preseason debut vs. panthers**\
+`Sanders put the Browns on the board with a 7-yard touchdown pass to Kaden Davis to start the second quarter.`\
+https://nytimes.com/athletic/6543273/2025/08/08/shedeur-sanders-preseason-browns-panthers/
+
 **Patriots unveil Tom Brady statue ahead of preseason opener**\
 `Legendary quarterback in a joking mood as 17-foot-tall statue is revealed at ceremony, saying now he can be described "as chiseled."`\
 https://nytimes.com/athletic/6543021/2025/08/08/tom-brady-patriots-statue-gillette-stadium/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/08/business/trump-fannie-mae-freddie-mac-mortgages.h
 **William H. Webster, Who Ran Both the F.B.I. and the C.I.A., Dies at 101**\
 `A former federal judge, he first came to the F.B.I. just as two of the worst spies in American history were running rampant.`\
 https://nytimes.com/2025/08/08/us/william-h-webster-dead.html
-
-**Minnesota Man Is Sentenced to 28 Years in Federal Food Aid Fraud**\
-`Abdiaziz Shafii Farah, 36, played a leading role in a scheme that stole more than $47 million from a program meant to feed children during the Covid-19 pandemic, prosecutors said.`\
-https://nytimes.com/2025/08/08/us/minnesota-pandemic-child-food-fraud.html
 
