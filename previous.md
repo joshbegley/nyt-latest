@@ -1,3 +1,11 @@
+**NFL memo recommends new security protocols in wake of NYC shooting**\
+`Recommendations include armed officers at all team and league facilities and weapons screening for anyone seeking entry.`\
+https://nytimes.com/athletic/6543377/2025/08/08/nfl-memo-security-new-york-shooting/
+
+**After Rashawn Slater's injury, Trey Pipkins is now a fulcrum in Chargers season**\
+`Pipkins has experience at right tackle and Chargers coach Jim Harbaugh says he has "all the confidence in the world" in him.`\
+https://nytimes.com/athletic/6543348/2025/08/08/chargers-trey-pipkins-rashawn-slater-injury/
+
 **E.P.A. Cancels Federal Union Contracts in Push to End Collective Bargaining**\
 `President Trump has faced legal challenges from unions representing federal workers for his push to strip them of labor protections.`\
 https://nytimes.com/2025/08/08/us/politics/trump-epa-union-contracts.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6543021/2025/08/08/tom-brady-patriots-statue-gillet
 **Trump Officials Press Case Against Harvard, and Add a New Investigation**\
 `The administration doubled down against Harvard, asserting that rising violent crime on campus meant the school should not host international students. It will also review the school’s patents.`\
 https://nytimes.com/2025/08/08/us/trump-harvard-patent-investigation-international-students.html
-
-**Trump Is Building a Maximalist Government**\
-`In a series of actions this week, the president sought to expand the government’s reach.`\
-https://nytimes.com/2025/08/08/us/politics/trump-presidential-power.html
-
-**Inspector General to Review F.A.A.’s Handling of D.C. Airspace After Crash**\
-`The announcement comes a week after the National Transportation Safety Board grilled aviation officials about safety gaps in the airspace near the capital.`\
-https://nytimes.com/2025/08/08/us/politics/faa-dc-plane-crash.html
 
