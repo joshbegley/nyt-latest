@@ -1,3 +1,11 @@
+**These Are Drug Cartels Designated as Terrorists by the U.S.**\
+`President Trump has signed an order telling the Pentagon to begin using military force against certain criminal gangs that the United States has named terror organizations.`\
+https://nytimes.com/2025/08/09/world/americas/drug-cartels-us-terrorist-designation.html
+
+**Mariano Rivera injures Achilles during Yankees Old-Timers' Day game**\
+`Roger Clemens told the team's radio broadcasters that the Hall-of-Fame closer went to the hospital to get examined.`\
+https://nytimes.com/athletic/6544433/2025/08/09/mariano-rivera-achilles-injury-yankees-old-timers-day/
+
 **Mariano Rivera injures Achilles during Yankees Old-Timers' Day game**\
 `Roger Clemens told the team's radio broadcasters that the Hall-of-Fame closer went to the hospital to get examined.`\
 https://nytimes.com/athletic/6544433/2025/08/09/mariano-rivera-injury-yankees-old-timers-day/
