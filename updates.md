@@ -1,3 +1,11 @@
+**Europe Scrambles for Details as Trump and Putin Prepare to Meet**\
+`Ukraine and its allies are concerned that President Trump and President Vladimir V. Putin will do a deal without them and then impose it on Kyiv.`\
+https://nytimes.com/2025/08/09/world/europe/europe-ukraine-russia-us.html
+
+**Brandon Marsh goes 4-for-5 as Phillies' outfield shuffle continues**\
+`Phillies will continue to experiment with outfield platoon situation for now.`\
+https://nytimes.com/athletic/6543640/2025/08/09/phillies-brandon-marsh-outfield-shuffle/
+
 **How Older People Are Reaping Brain Benefits From New Tech**\
 `Overuse of digital gadgets harms teenagers, research suggests. But ubiquitous technology may be helping older Americans stay sharp.`\
 https://nytimes.com/2025/08/09/health/technology-cognition-older-people.html
