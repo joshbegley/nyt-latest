@@ -1,3 +1,11 @@
+**How Older People Are Reaping Brain Benefits From New Tech**\
+`Overuse of digital gadgets harms teenagers, research suggests. But ubiquitous technology may be helping older Americans stay sharp.`\
+https://nytimes.com/2025/08/09/health/technology-cognition-older-people.html
+
+**‘Arab Forces’ Running Gaza? Netanyahu’s Goal Leaves Many Questions.**\
+`The Israeli cabinet agreed to Prime Minister Benjamin Netanyahu’s military plan, but the quandary of who will eventually govern Gaza remains intractable.`\
+https://nytimes.com/2025/08/09/world/middleeast/israel-gaza-arab-forces-postwar.html
+
 **Phillies' Brandon Marsh goes 4-for-5 as outfield shuffle continues**\
 `Phillies will continue to experiment with outfield platoon situation for now.`\
 https://nytimes.com/athletic/6543640/2025/08/09/phillies-brandon-marsh-outfield-shuffle/

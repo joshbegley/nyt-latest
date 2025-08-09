@@ -1,3 +1,11 @@
+**How Older People Are Reaping Brain Benefits From New Tech**\
+`Overuse of digital gadgets harms teenagers, research suggests. But ubiquitous technology may be helping older Americans stay sharp.`\
+https://nytimes.com/2025/08/09/health/technology-cognition-older-people.html
+
+**‘Arab Forces’ Running Gaza? Netanyahu’s Goal Leaves Many Questions.**\
+`The Israeli cabinet agreed to Prime Minister Benjamin Netanyahu’s military plan, but the quandary of who will eventually govern Gaza remains intractable.`\
+https://nytimes.com/2025/08/09/world/middleeast/israel-gaza-arab-forces-postwar.html
+
 **Five ways Group of 5 coaches say they're adapting to the portal-poaching era**\
 `The fears the sport’s lower levels could serve as a farm system for larger programs have come to fruition. Coaches are trying to adjust.`\
 https://nytimes.com/athletic/6542727/2025/08/09/college-football-transfer-portal-strategies-group-of-5/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/08/09/opinion/trump-bls-texas-economy.html
 **The Contradiction at the Heart of Trump’s Trade Deals**\
 `That potential gusher of foreign investment is great, except for what it does to the trade deficit.`\
 https://nytimes.com/2025/08/09/opinion/trump-trade-deals-fdi-foreign-investment-deficit.html
-
-**The End of Woke Hollywood**\
-`The entertainment industry is tired of being so progressive.`\
-https://nytimes.com/2025/08/09/opinion/hollywood-entertainment-woke-progressive.html
-
-**The New Things I See Now That I’m Losing My Vision**\
-`Surrounded by the work of Impressionists who dedicated themselves to capturing felt experience rather than reality, I sensed that I would be OK with my altered sight.`\
-https://nytimes.com/2025/08/09/opinion/vision-blindness-art.html
 
