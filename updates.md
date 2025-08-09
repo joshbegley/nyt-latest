@@ -1,3 +1,7 @@
+**Brighton 2 Wolfsburg 1: Explaining Baleba absence as De Cuyper stakes his claim**\
+`Fabian Hurzeler's side concluded an unbeaten pre-season campaign against the Bundesliga club with the head coach's options bolstered`\
+https://nytimes.com/athletic/6544032/2025/08/09/brighton-wolfsburg-baleba-cuyper-verbruggen/
+
 **Arsenal 'actively looking' at further signings with player exits likely - Arteta**\
 `Arsenal have already signed six players this summer but Arteta has said more incomings are possible ahead of the September 1 deadline.`\
 https://nytimes.com/athletic/6544339/2025/08/09/arsenal-summer-transfers-mikel-arteta/

@@ -1,3 +1,7 @@
+**Brighton 2 Wolfsburg 1: Explaining Baleba absence as De Cuyper stakes his claim**\
+`Fabian Hurzeler's side concluded an unbeaten pre-season campaign against the Bundesliga club with the head coach's options bolstered`\
+https://nytimes.com/athletic/6544032/2025/08/09/brighton-wolfsburg-baleba-cuyper-verbruggen/
+
 **Arsenal 'actively looking' at further signings with player exits likely - Arteta**\
 `Arsenal have already signed six players this summer but Arteta has said more incomings are possible ahead of the September 1 deadline.`\
 https://nytimes.com/athletic/6544339/2025/08/09/arsenal-summer-transfers-mikel-arteta/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/09/sports/don-elbaum-dead.html
 **Female umpire Jen Pawol takes field, breaks MLB barrier**\
 `Pawol received a louder ovation than the other three umpires when their names were announced before the game's first pitch.`\
 https://nytimes.com/athletic/6543691/2025/08/09/mlb-first-female-umpire-debut/
-
-**Newcastle close on €40m transfer of Milan's Thiaw**\
-`The 24-year-old has a contract through to 2027 at Milan, who signed the central defender from Schalke in 2022.`\
-https://nytimes.com/athletic/5653382/2025/08/09/newcastle-transfers-malick-thiaw-milan/
 
