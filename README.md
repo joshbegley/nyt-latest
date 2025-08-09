@@ -1,3 +1,15 @@
+**Timely Manner**\
+`How can we balance getting things done while allowing for serendipity? The answer may be in tinkering with our “time personalities.”`\
+https://nytimes.com/2025/08/09/briefing/timely-manner.html
+
+**How Far Will People Go to Get Into the Magic Castle? Ask These Blood Donors.**\
+`The Hollywood landmark has hosted blood drives since 2014. Donors do a good deed, but the perk is entry into the private club.`\
+https://nytimes.com/2025/08/09/style/magic-castle-la-blood-drive.html
+
+**Put a plantain in the humidor, the Savannah Bananas are at Coors Field, and you can watch**\
+`Saturday night puts the Savannah Bananas up in Rocky Mountain altitude. Here's how to tune in.`\
+https://nytimes.com/athletic/6541293/2025/08/09/savannah-bananas-denver-colorado-coors-rockies-how-to-watch/
+
 **Commanders preseason opener: Whose stock went up, and whose went down**\
 `Trey Amos and Jacory Croskey-Merritt helped themselves in Washington's preseason opener. Sam Hartman and the receivers did not.`\
 https://nytimes.com/athletic/6543720/2025/08/09/commanders-patriots-preseason-trey-amos-sam-hartman/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/08/09/magazine/brother-paternity-ethics.html
 **Strands Sidekick No. 525**\
 `Scroll down for hints and conversation about the puzzle for Sunday, Aug. 10, 2025.`\
 https://nytimes.com/2025/08/09/crosswords/strands-sidekick-525.html
-
-**Connections Companion No. 791**\
-`Scroll down for hints and conversation about the puzzle for Sunday, Aug. 10, 2025.`\
-https://nytimes.com/2025/08/09/crosswords/connections-companion-791.html
-
-**Inside Benjamin Sesko's Manchester United transfer - and how they beat Newcastle to the deal**\
-`The story of the fight to sign Benjamin Sesko, the tactics both teams used and how he finally ended up at Old Trafford`\
-https://nytimes.com/athletic/6542893/2025/08/09/benjamin-sesko-manchester-united-transfer-newcastle/
-
-**Manchester United complete signing of Benjamin Sesko from RB Leipzig**\
-`Sesko is set to be unveiled to supporters at Old Trafford during Saturday's pre-season friendly against Fiorentina.`\
-https://nytimes.com/athletic/6540431/2025/08/09/confirmed-benjamin-sesko-manchester-united/
 
