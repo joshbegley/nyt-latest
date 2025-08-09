@@ -1,3 +1,7 @@
+**Five ways Group of 5 coaches say they're adapting to the portal-poaching era**\
+`The fears the sport’s lower levels could serve as a farm system for larger programs have come to fruition. Coaches are trying to adjust.`\
+https://nytimes.com/athletic/6542727/2025/08/09/college-football-transfer-portal-strategies-group-of-5/
+
 **Tom Brady's statue unveiling includes classic jab at Jets fans**\
 `FOXBORO, Mass.`\
 https://nytimes.com/athletic/6543432/2025/08/09/tom-brady-patriots-statue-jets-roast/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/09/opinion/vision-blindness-art.html
 **The New Nuclear Generation**\
 `The adults who were children at the dawn of the atomic era are nearing the end of their lives.`\
 https://nytimes.com/2025/08/09/opinion/nuclear-weapons-war-threat-generation.html
-
-**Will MAHA Change America?**\
-`The outsider critique of the medical establishment has always struggled to offer an alternative vision that’s rigorous rather than credulous.`\
-https://nytimes.com/2025/08/09/opinion/rfk-jr-maha-america.html
 

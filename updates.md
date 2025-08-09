@@ -1,3 +1,7 @@
+**Five ways Group of 5 coaches say they're adapting to the portal-poaching era**\
+`The fears the sport’s lower levels could serve as a farm system for larger programs have come to fruition. Coaches are trying to adjust.`\
+https://nytimes.com/athletic/6542727/2025/08/09/college-football-transfer-portal-strategies-group-of-5/
+
 **Tom Brady's statue unveiling includes classic jab at Jets fans**\
 `FOXBORO, Mass.`\
 https://nytimes.com/athletic/6543432/2025/08/09/tom-brady-patriots-statue-jets-roast/
