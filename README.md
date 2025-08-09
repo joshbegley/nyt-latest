@@ -1,5 +1,9 @@
+**Trump Attack on Intel’s C.E.O. Could Compound Factory Struggles**\
+`The challenges in Ohio highlight the risks that federal and state officials took when they financially backed Intel, a once-powerful force in chip manufacturing.`\
+https://nytimes.com/2025/08/08/business/trump-intel-ceo-ohio.html
+
 **Shedeur Sanders throws first NFL touchdown in preseason debut vs. Panthers**\
-`Sanders put the Browns on the board with a 7-yard touchdown pass to Kaden Davis to start the second quarter.`\
+`Sanders put Cleveland on the board with a 7-yard touchdown pass to Kaden Davis to start the second quarter.`\
 https://nytimes.com/athletic/6543273/2025/08/08/shedeur-sanders-preseason-browns-panthers/
 
 **Patriots unveil Tom Brady statue ahead of preseason opener**\
@@ -33,8 +37,4 @@ https://nytimes.com/video/obituaries/100000010331679/james-lovell-apollo-13-obit
 **Trump Seeks to Sell Fannie, Freddie Shares to Public Investors**\
 `More than a decade after the government bailed out the mortgage giants, the Trump administration is looking for a partial stock-market exit.`\
 https://nytimes.com/2025/08/08/business/trump-fannie-mae-freddie-mac-mortgages.html
-
-**William H. Webster, Who Ran Both the F.B.I. and the C.I.A., Dies at 101**\
-`A former federal judge, he first came to the F.B.I. just as two of the worst spies in American history were running rampant.`\
-https://nytimes.com/2025/08/08/us/william-h-webster-dead.html
 

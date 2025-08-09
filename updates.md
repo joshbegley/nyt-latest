@@ -1,3 +1,7 @@
+**Shedeur Sanders throws first NFL touchdown in preseason debut vs. Panthers**\
+`Sanders put the Browns on the board with a 7-yard touchdown pass to Kaden Davis to start the second quarter.`\
+https://nytimes.com/athletic/6543273/2025/08/08/shedeur-sanders-preseason-browns-panthers/
+
 **Shedeur Sanders throws first pro touchdown in preseason debut vs. panthers**\
 `Sanders put the Browns on the board with a 7-yard touchdown pass to Kaden Davis to start the second quarter.`\
 https://nytimes.com/athletic/6543273/2025/08/08/shedeur-sanders-preseason-browns-panthers/
