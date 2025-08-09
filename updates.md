@@ -1,3 +1,7 @@
+**Dodgers' Mookie Betts wants to forget his season, which might be turning around**\
+`The Dodgers shortstop tried to relearn the swing that turned him into an MVP and helped him slug 30 HRs in a season four different times.`\
+https://nytimes.com/athletic/6543663/2025/08/09/mookie-betts-season-dodgers/
+
 **Pakistan cricketer Haider Ali arrested on suspicion of alleged rape**\
 `The alleged offence took place during the Pakistan Shaheens' five-match tour of England in July.`\
 https://nytimes.com/athletic/6542204/2025/08/09/haider-ali-pakistan-arrest/
