@@ -1,3 +1,7 @@
+**West Ham sign goalkeeper Hermansen from Leicester**\
+`The 25-year-old has signed a five-year contract with a one-year option at the east London club after two seasons at Leicester.`\
+https://nytimes.com/athletic/6543841/2025/08/09/west-ham-transfers-goalkeeper-hermansen/
+
 **Europe Scrambles for Details as Trump and Putin Prepare to Meet**\
 `Ukraine and its allies are concerned that President Trump and President Vladimir V. Putin will do a deal without them and then impose it on Kyiv.`\
 https://nytimes.com/2025/08/09/world/europe/europe-ukraine-russia-us.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6542996/2025/08/09/steelers-jaguars-preseason-opene
 **President Midas’ Terrible Touch**\
 `He never promised us a Rose Garden.`\
 https://nytimes.com/2025/08/09/opinion/trump-design-rococo-gold.html
-
-**Trump Is a ‘Totem for Wealth.’ What Happens if the Economy Crashes?**\
-`Three Opinion writers on Trump’s most recent power grabs.`\
-https://nytimes.com/2025/08/09/opinion/trump-bls-texas-economy.html
 
