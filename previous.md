@@ -1,3 +1,7 @@
+**Pakistan cricketer Haider Ali arrested on suspicion of alleged rape**\
+`The alleged offence took place during the Pakistan Shaheens' five-match tour of England in July.`\
+https://nytimes.com/athletic/6542204/2025/08/09/haider-ali-pakistan-arrest/
+
 **West Ham sign goalkeeper Hermansen from Leicester**\
 `The 25-year-old has signed a five-year contract with a one-year option at the east London club after two seasons at Leicester.`\
 https://nytimes.com/athletic/6543841/2025/08/09/west-ham-transfers-goalkeeper-hermansen/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6543640/2025/08/09/phillies-brandon-marsh-outfield-
 **Payton Wilson and seven other Steelers to watch in the preseason opener**\
 `Pittsburgh kicks off the preseason in Jacksonville on Saturday night.`\
 https://nytimes.com/athletic/6542996/2025/08/09/steelers-jaguars-preseason-opener-players-to-watch/
-
-**President Midas’ Terrible Touch**\
-`He never promised us a Rose Garden.`\
-https://nytimes.com/2025/08/09/opinion/trump-design-rococo-gold.html
 

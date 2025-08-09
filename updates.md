@@ -1,3 +1,7 @@
+**Pakistan cricketer Haider Ali arrested on suspicion of alleged rape**\
+`The alleged offence took place during the Pakistan Shaheens' five-match tour of England in July.`\
+https://nytimes.com/athletic/6542204/2025/08/09/haider-ali-pakistan-arrest/
+
 **Europe Seeks Details as Trump and Putin Prepare to Meet**\
 `Ukraine and its allies are concerned that President Trump and President Vladimir V. Putin will do a deal without them and then impose it on Kyiv.`\
 https://nytimes.com/2025/08/09/world/europe/europe-ukraine-russia-us.html
