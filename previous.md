@@ -1,5 +1,13 @@
+**After Fire Destroys Their Synagogue, Congregants Gather to Pray**\
+`Congregation Beth El in Rutherford, N.J., held a Sabbath service near the charred debris that remained. Members pledged to rebuild.`\
+https://nytimes.com/2025/08/09/nyregion/rutherford-new-jersey-synagogue-fire-sabbath.html
+
+**Milan interested in Hojlund transfer, Man Utd open to loan deal**\
+`United remain willing to sell Hojlund, who is available for just over £30million, although a loan exit would be considered as an alternative`\
+https://nytimes.com/athletic/6429365/2025/08/09/rasmus-hojlund-milan-manchester-united-transfers/
+
 **After Years of Anger Directed at C.D.C., Shooting Manifests Worst Fears**\
-`Workers expressed horror at a shooting at the agency’s headquarters, and some said they viewed it as part of a pattern of threats and assaults on health workers.`\
+`Employees expressed horror at a shooting at the agency’s headquarters, and some said they viewed it as part of a pattern of threats and assaults on health workers.`\
 https://nytimes.com/2025/08/09/us/politics/cdc-shooting-staff.html
 
 **Anthony Richardson returns to Colts practice after preseason finger injury**\
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6544032/2025/08/09/brighton-wolfsburg-baleba-cuyper
 **Arsenal 'actively looking' at further signings with player exits likely - Arteta**\
 `Arsenal have already signed six players this summer but Arteta has said more incomings are possible ahead of the September 1 deadline.`\
 https://nytimes.com/athletic/6544339/2025/08/09/arsenal-summer-transfers-mikel-arteta/
-
-**Zelensky Rejects Trump’s Suggestion That Ukraine May Cede Land To Russia**\
-`President Trump did not clarify which territories could be swapped, and Ukrainian officials appeared uncertain about what he meant.`\
-https://nytimes.com/video/world/europe/100000010332400/trump-putin-meeting-zelensky.html
-
-**Petunia Wins the Ugliest Dog Contest by Being Loved, Not by Looking Perfect**\
-`Rescued from neglect, the hairless bulldog claimed the World’s Ugliest Dog Contest title on Friday but her prize came long before the competition results were announced.`\
-https://nytimes.com/2025/08/09/us/worlds-ugliest-dog-2025-winner.html
 

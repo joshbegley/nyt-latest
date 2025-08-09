@@ -1,3 +1,15 @@
+**After Fire Destroys Their Synagogue, Congregants Gather to Pray**\
+`Congregation Beth El in Rutherford, N.J., held a Sabbath service near the charred debris that remained. Members pledged to rebuild.`\
+https://nytimes.com/2025/08/09/nyregion/rutherford-new-jersey-synagogue-fire-sabbath.html
+
+**Milan interested in Hojlund transfer, Man Utd open to loan deal**\
+`United remain willing to sell Hojlund, who is available for just over £30million, although a loan exit would be considered as an alternative`\
+https://nytimes.com/athletic/6429365/2025/08/09/rasmus-hojlund-milan-manchester-united-transfers/
+
+**After Years of Anger Directed at C.D.C., Shooting Manifests Worst Fears**\
+`Employees expressed horror at a shooting at the agency’s headquarters, and some said they viewed it as part of a pattern of threats and assaults on health workers.`\
+https://nytimes.com/2025/08/09/us/politics/cdc-shooting-staff.html
+
 **After Years of Anger Directed at C.D.C., Shooting Manifests Worst Fears**\
 `Workers expressed horror at a shooting at the agency’s headquarters, and some said they viewed it as part of a pattern of threats and assaults on health workers.`\
 https://nytimes.com/2025/08/09/us/politics/cdc-shooting-staff.html
