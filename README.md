@@ -1,3 +1,7 @@
+**Wrexham end defeated but defiant on their long-awaited Championship return**\
+`The Welsh club were playing their first game at this level in 43 years but, having led for over an hour, endured a sting in the tail`\
+https://nytimes.com/athletic/6536465/2025/08/09/wrexham-southampton-moore-parkinson-championship/
+
 **No-Bake Peaches and Cream Cake? Yes, Please.**\
 `David Tanis’s simple recipe is a summery take on tiramisù, a beautiful landing pad for all those peaches.`\
 https://nytimes.com/2025/08/09/dining/easy-no-bake-peaches-and-cream-cake-recipe.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/09/health/technology-cognition-older-people.html
 **‘Arab Forces’ Running Gaza? Netanyahu’s Goal Leaves Many Questions.**\
 `The Israeli cabinet agreed to Prime Minister Benjamin Netanyahu’s military plan, but the quandary of who will eventually govern Gaza remains intractable.`\
 https://nytimes.com/2025/08/09/world/middleeast/israel-gaza-arab-forces-postwar.html
-
-**Five ways Group of 5 coaches say they're adapting to the portal-poaching era**\
-`The fears the sport’s lower levels could serve as a farm system for larger programs have come to fruition. Coaches are trying to adjust.`\
-https://nytimes.com/athletic/6542727/2025/08/09/college-football-transfer-portal-strategies-group-of-5/
 
