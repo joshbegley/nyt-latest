@@ -1,3 +1,7 @@
+**Phillies' Brandon Marsh goes 4-for-5 as outfield shuffle continues**\
+`Phillies will continue to experiment with outfield platoon situation for now.`\
+https://nytimes.com/athletic/6543640/2025/08/09/phillies-brandon-marsh-outfield-shuffle/
+
 **Cubs shut out as offensive slump deepens in loss to Cardinals**\
 `Cubs go 0-for-6 with RISP in 5-0 loss, extending offensive skid.`\
 https://nytimes.com/athletic/6543564/2025/08/09/cubs-shut-out-again/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6542396/2025/08/09/james-trafford-manchester-city-p
 **An Unusual Soccer Finale in Italy Reveals Libya’s Frailties**\
 `With two governments, and two soccer leagues, Libya is holding its soccer championship in Italy for a second year. Volatile politics and fans follow.`\
 https://nytimes.com/2025/08/09/sports/an-unusual-soccer-finale-in-italy-reveals-libyas-frailties.html
-
-**What Lobsters and Chickens Tell Us About Europe’s Trade Logic**\
-`The European Union struck a trade deal that protected political priorities, like chicken and beef standards, while allowing headline-grabbing concessions. Consider lobsters.`\
-https://nytimes.com/2025/08/09/world/europe/trump-tariffs-europe-trade-lobster-beef.html
 
