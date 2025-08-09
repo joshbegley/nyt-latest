@@ -1,3 +1,7 @@
+**After Years of Anger Directed at C.D.C., Shooting Manifests Worst Fears**\
+`Workers expressed horror at a shooting at the agency’s headquarters, and some said they viewed it as part of a pattern of threats and assaults on health workers.`\
+https://nytimes.com/2025/08/09/us/politics/cdc-shooting-staff.html
+
 **Anthony Richardson returns to Colts practice after preseason finger injury**\
 `X-rays on Richardson's right hand did not reveal any extensive damage to his pinkie, league sources told The Athletic.`\
 https://nytimes.com/athletic/6544250/2025/08/09/colts-anthony-richardson-injury-practice-nfl-preseason/
@@ -14,7 +18,7 @@ https://nytimes.com/athletic/6540004/2025/08/09/darwin-nunez-transfer-saudi-live
 `The Irish have 27 verbal commitments in the Class of 2026, which would be the largest group of freshman signees since the Charlie Weis era.`\
 https://nytimes.com/athletic/6542755/2025/08/09/notre-dame-recruiting-elijah-golden-commitment/
 
-**The Briefing: Arsenal 3 Athletic Club 0: Gyokeres' first goal and Rice-Zubimendi promise**\
+**The Briefing: Arsenal 3 Athletic Club 0 - Gyokeres' first goal and Rice-Zubimendi promise**\
 `Arsenal finished their pre-season preparations with an emphatic win over the La Liga side and there is plenty for fans to be positive about`\
 https://nytimes.com/athletic/6544242/2025/08/09/arsenal-athletic-club-gyokeres-rice-zubimendi/
 
@@ -33,8 +37,4 @@ https://nytimes.com/video/world/europe/100000010332400/trump-putin-meeting-zelen
 **Petunia Wins the Ugliest Dog Contest by Being Loved, Not by Looking Perfect**\
 `Rescued from neglect, the hairless bulldog claimed the World’s Ugliest Dog Contest title on Friday but her prize came long before the competition results were announced.`\
 https://nytimes.com/2025/08/09/us/worlds-ugliest-dog-2025-winner.html
-
-**Ousted F.D.A. Vaccine Chief Returns to Agency**\
-`Dr. Vinay Prasad’s rehiring was an unusual instance of a federal official targeted by the right-wing activist Laura Loomer being brought back into the Trump administration.`\
-https://nytimes.com/2025/08/09/us/politics/fda-vaccine-chief-returns.html
 

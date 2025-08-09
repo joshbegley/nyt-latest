@@ -1,3 +1,11 @@
+**After Years of Anger Directed at C.D.C., Shooting Manifests Worst Fears**\
+`Workers expressed horror at a shooting at the agency’s headquarters, and some said they viewed it as part of a pattern of threats and assaults on health workers.`\
+https://nytimes.com/2025/08/09/us/politics/cdc-shooting-staff.html
+
+**The Briefing: Arsenal 3 Athletic Club 0 - Gyokeres' first goal and Rice-Zubimendi promise**\
+`Arsenal finished their pre-season preparations with an emphatic win over the La Liga side and there is plenty for fans to be positive about`\
+https://nytimes.com/athletic/6544242/2025/08/09/arsenal-athletic-club-gyokeres-rice-zubimendi/
+
 **Anthony Richardson returns to Colts practice after preseason finger injury**\
 `X-rays on Richardson's right hand did not reveal any extensive damage to his pinkie, league sources told The Athletic.`\
 https://nytimes.com/athletic/6544250/2025/08/09/colts-anthony-richardson-injury-practice-nfl-preseason/
