@@ -1,3 +1,7 @@
+**Arsenal 'actively looking' at further signings with player exits likely - Arteta**\
+`Arsenal have already signed six players this summer but Arteta has said more incomings are possible ahead of the September 1 deadline.`\
+https://nytimes.com/athletic/6544339/2025/08/09/arsenal-summer-transfers-mikel-arteta/
+
 **Zelensky Rejects Trump’s Suggestion That Ukraine May Cede Land To Russia**\
 `President Trump did not clarify which territories could be swapped, and Ukrainian officials appeared uncertain about what he meant.`\
 https://nytimes.com/video/world/europe/100000010332400/trump-putin-meeting-zelensky.html
