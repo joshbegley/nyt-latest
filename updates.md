@@ -1,3 +1,7 @@
+**At ‘Alligator Alcatraz,’ Did a Detainee Just Faint or Need CPR?**\
+`Homeland Security says a detainee fainted. But other accounts say the man was unconscious. One witness said the guards did not seem to know how to check his pulse.`\
+https://nytimes.com/2025/08/08/us/alligator-alcatraz-detainees-medical-treatment.html
+
 **Lions safety Morice Norris taken to hospital, game vs. Falcons is halted**\
 `Norris was injured while attempting to tackle Falcons running back Nathan Carter.`\
 https://nytimes.com/athletic/6543448/2025/08/08/lions-morice-norris-injured-ambulance-falcons/
