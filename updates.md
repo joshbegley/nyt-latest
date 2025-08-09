@@ -1,3 +1,19 @@
+**The men's Hundred: Who could be this month's white-ball breakthrough stars?**\
+`From Tawanda Muyeye to Sonny Baker, Donovan Ferreira to Matty Hurst, these are the young talents who could illuminate this year's tournament`\
+https://nytimes.com/athletic/6541898/2025/08/09/hundred-cricket-breakthrough-muyeye-baker-turner-mousley/
+
+**Inigo Martinez's Barcelona exit is a real blow. How will they replace him?**\
+`The 34-year-old centre-back has left to join Al Nassr. His skills and spirit will be much missed`\
+https://nytimes.com/athletic/6542233/2025/08/09/inigo-martinez-barcelona-exit-al-nassr/
+
+**Why is Vinicius Jr out of favour at Real Madrid?**\
+`From Ballon d'Or disappointment to contract complications, there's been a lot going on behind the scenes`\
+https://nytimes.com/athletic/6542208/2025/08/09/vinicius-jr-real-madrid-xabi-alonso-renewal/
+
+**Trafford's route back to City: 'Rhino skin', tough loans, and England No 1 expectations**\
+`James Trafford has returned to Manchester City this summer — this is how he developed away from the club`\
+https://nytimes.com/athletic/6542396/2025/08/09/james-trafford-manchester-city-profile/
+
 **How Ali Sethi Spends His Day Getting Ready for a Music Tour**\
 `The singer meets up with bandmates to rehearse, enjoys food that reminds him of childhood and stays out late dancing.`\
 https://nytimes.com/2025/08/09/nyregion/ali-sethi-love-language.html
