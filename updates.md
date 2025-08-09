@@ -1,3 +1,7 @@
+**David Stearns backs Mets' hitting coaches, points to their track record**\
+`Stearns, who has never fired a coach during a season, expressed his support for Eric Chavez and Jeremy Barnes.`\
+https://nytimes.com/athletic/6543327/2025/08/08/mets-hitting-coaches-david-stearns/
+
 **Trump Attack on Intel’s C.E.O. Could Compound Factory Struggles**\
 `The challenges in Ohio highlight the risks that federal and state officials took when they financially backed Intel, a once-powerful force in chip manufacturing.`\
 https://nytimes.com/2025/08/08/business/trump-intel-ceo-ohio.html

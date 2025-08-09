@@ -1,3 +1,7 @@
+**David Stearns backs Mets' hitting coaches, points to their track record**\
+`Stearns, who has never fired a coach during a season, expressed his support for Eric Chavez and Jeremy Barnes.`\
+https://nytimes.com/athletic/6543327/2025/08/08/mets-hitting-coaches-david-stearns/
+
 **Trump Attack on Intel’s C.E.O. Could Compound Factory Struggles**\
 `The challenges in Ohio highlight the risks that federal and state officials took when they financially backed Intel, a once-powerful force in chip manufacturing.`\
 https://nytimes.com/2025/08/08/business/trump-intel-ceo-ohio.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/08/world/europe/putin-trump-summit-ukraine.html
 **James A. Lovell Jr., Commander of Apollo 13, Dies at 97**\
 `James A. Lovell Jr., the commander of the Apollo 13 mission, led the three man crew, narrowly surviving a near catastrophic explosion in space in 1970.`\
 https://nytimes.com/video/obituaries/100000010331679/james-lovell-apollo-13-obituary.html
-
-**Trump Seeks to Sell Fannie, Freddie Shares to Public Investors**\
-`More than a decade after the government bailed out the mortgage giants, the Trump administration is looking for a partial stock-market exit.`\
-https://nytimes.com/2025/08/08/business/trump-fannie-mae-freddie-mac-mortgages.html
 
