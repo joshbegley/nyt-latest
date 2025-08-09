@@ -27,7 +27,7 @@ https://nytimes.com/2025/08/09/world/middleeast/israel-gaza-arab-forces-postwar.
 https://nytimes.com/athletic/6542727/2025/08/09/college-football-transfer-portal-strategies-group-of-5/
 
 **Tom Brady's statue unveiling includes classic jab at Jets fans**\
-`FOXBORO, Mass.`\
+`The Athletic has live coverage of the 2025 NFL Preseason.`\
 https://nytimes.com/athletic/6543432/2025/08/09/tom-brady-patriots-statue-jets-roast/
 
 **Private Equity in Your 401(k). What Could Go Wrong?**\
