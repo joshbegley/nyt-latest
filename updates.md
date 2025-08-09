@@ -1,3 +1,11 @@
+**Trump Attack on Intel’s C.E.O. Could Compound Factory Struggles**\
+`The challenges in Ohio highlight the risks that federal and state officials took when they financially backed Intel, a once-powerful force in chip manufacturing.`\
+https://nytimes.com/2025/08/08/business/trump-intel-ceo-ohio.html
+
+**Shedeur Sanders throws first NFL touchdown in preseason debut vs. Panthers**\
+`Sanders put Cleveland on the board with a 7-yard touchdown pass to Kaden Davis to start the second quarter.`\
+https://nytimes.com/athletic/6543273/2025/08/08/shedeur-sanders-preseason-browns-panthers/
+
 **Shedeur Sanders throws first NFL touchdown in preseason debut vs. Panthers**\
 `Sanders put the Browns on the board with a 7-yard touchdown pass to Kaden Davis to start the second quarter.`\
 https://nytimes.com/athletic/6543273/2025/08/08/shedeur-sanders-preseason-browns-panthers/
