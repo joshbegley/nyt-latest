@@ -1,3 +1,7 @@
+**Mets' latest 7-game skid might be the most worrisome: 'We gotta get our starters going'**\
+`No starter other than David Peterson has pitched six innings since June 7. `\
+https://nytimes.com/athletic/6545777/2025/08/10/mets-losing-streak-starting-pitchers/
+
 **Bears preseason takeaways: Ben Johnson nails clock management; backup QBs show poise**\
 `It's just the preseason, but the way Tyson Bagent and Case Keenum played Sunday had to make Johnson feel good about his QB depth chart. `\
 https://nytimes.com/athletic/6545719/2025/08/10/chicago-bears-ben-johnson-preseason-dolphins/
