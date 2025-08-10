@@ -26,7 +26,7 @@ https://nytimes.com/2025/08/10/nyregion/metropolitan-diary.html
 `Officials have picked up people across the country, most of them Muslim, citing a national security risk. Rights groups say the raids are targeting detainees’ religion and language.`\
 https://nytimes.com/2025/08/10/world/asia/india-migrants-raids-muslims-bengalis.html
 
-**The Briefing - Palermo 0 Manchester City 3: Reijnders' double, Cherki's promise and Haaland scores with his right foot**\
+**The Briefing - Palermo 0 Manchester City 3: Reijnders double, Cherki's promise, and Haaland scores with his right foot**\
 `Anantaajith Raghuraman breaks down the main talking points from Manchester City's 3-0 win over Palermo`\
 https://nytimes.com/athletic/6544540/2025/08/10/palermo-0-3-manchester-city-briefing-reijnders-haaland-cherki/
 
