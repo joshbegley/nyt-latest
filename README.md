@@ -6,8 +6,8 @@ https://nytimes.com/athletic/6544630/2025/08/09/travis-hunter-nfl-debut-jaguars-
 `James Cook has seen several other Bills in his class get new contracts.`\
 https://nytimes.com/athletic/6544529/2025/08/09/buffalo-bills-james-cook-hold-in-contract/
 
-**Connor Zilisch taken to hospital after fall in victory lane**\
-`Zilisch had just won Saturday’s Xfinity Series race at Watkins Glen International when he appeared to lose his footing and fall off his car.`\
+**Connor Zilisch suffers broken collarbone after fall in victory lane**\
+`Trackhouse Racing confirmed it has withdrawn Zilisch's car from Sunday's Cup Series race. `\
 https://nytimes.com/athletic/6544572/2025/08/09/connor-zilisch-injury-nascar/
 
 **Bills takeaways from preseason loss to Giants: Tre'Davious White, Joey Bosa have mixed day**\
