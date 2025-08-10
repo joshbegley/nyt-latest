@@ -1,3 +1,7 @@
+**Monday Briefing: North Korea’s Heir Apparent**\
+`Also, Europe closed ranks ahead of the Alaska summit.`\
+https://nytimes.com/2025/08/10/briefing/north-korea-ukraine-us-russia-trump-putin.html
+
 **Forest hold talks on move for Milan's Musah**\
 `Club-to-club talks are taking place, while personal terms for the U.S. international are not expected to be an issue.`\
 https://nytimes.com/athletic/6545429/2025/08/10/nottingham-forest-transfers-yunus-musah-milan/

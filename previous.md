@@ -1,3 +1,7 @@
+**Monday Briefing: North Korea’s Heir Apparent**\
+`Also, Europe closed ranks ahead of the Alaska summit.`\
+https://nytimes.com/2025/08/10/briefing/north-korea-ukraine-us-russia-trump-putin.html
+
 **Forest hold talks on move for Milan's Musah**\
 `Club-to-club talks are taking place, while personal terms for the U.S. international are not expected to be an issue.`\
 https://nytimes.com/athletic/6545429/2025/08/10/nottingham-forest-transfers-yunus-musah-milan/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/10/arts/music/bard-music-festival-martinu.html
 **La Liga want to stage Villarreal-Barcelona in Miami: How likely is it to happen?**\
 `If the proposal succeeds, it would be the first time a European top-flight league fixture has taken place in the United States.`\
 https://nytimes.com/athletic/6545150/2025/08/10/barcelona-villarreal-miami-la-liga/
-
-**New York City to Close Last Major Hotel Housing Migrants**\
-`Mayor Eric Adams announced that the Row NYC, a hotel in Times Square, would stop sheltering migrants by April, as the migrant crisis continued to subside.`\
-https://nytimes.com/2025/08/10/nyregion/migrants-row-hotel-nyc.html
 
