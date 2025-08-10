@@ -1,3 +1,11 @@
+**Flash Flooding in Wisconsin Hits the Milwaukee Area**\
+`Milwaukee and its neighboring area experienced record-setting rains, leading to the early closure of the Wisconsin State Fair and flash flooding that left some residents stranded.`\
+https://nytimes.com/video/us/100000010333008/milwaukee-flood-rain-wisconsin.html
+
+**Van Dijk 'disappointed' after minute's silence for Diogo Jota disrupted**\
+`Both teams gathered before kick-off in Sunday's Community Shield to pay their respects to Jota and his brother Andre Silva.`\
+https://nytimes.com/athletic/6545490/2025/08/10/diogo-jota-minute-silence-liverpool-crystal-palace/
+
 **Bengals preseason game fallout: Safety, offensive line, receiver experience movement**\
 `Cutdown day is around the corner and three positions are under the microscope after the Bengals' first preseason game.`\
 https://nytimes.com/athletic/6545374/2025/08/10/bengals-preseason-roster-depth-chart-movement/
