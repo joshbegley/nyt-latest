@@ -1,3 +1,7 @@
+**U.S. rider McNulty wins Tour de Pologne after final stage time trial**\
+`The 27-year-old had been second entering the stage, seven seconds behind INEOS Grenadiers’ Victor Langelotti.`\
+https://nytimes.com/athletic/6545384/2025/08/10/brandon-mcnulty-tour-win-time-trial/
+
 **‘Weapons’ Gives Warner Bros. Another Outstanding No. 1 Opening**\
 `In second place with about $44.5 million in global ticket sales, Disney’s “Freakier Friday” marked a box office comeback for Lindsay Lohan.`\
 https://nytimes.com/2025/08/10/business/media/weapons-warner-bros-box-office.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6545183/2025/08/10/mohamed-salah-palestine-uefa-twe
 **Michelle Obama and Justice Ketanji Brown Jackson Draw Crowds on Martha’s Vineyard**\
 `In Oak Bluffs, film premieres, book fairs and star-studded soirees attracted fans who came for the art and stayed for the community.`\
 https://nytimes.com/2025/08/10/style/black-film-book-festival-marthas-vineyard.html
-
-**This Corn and Black Bean Salad Is Exactly What I Want to Be Eating**\
-`It is, as one reader puts it, a “perfect no-cook, no-meat August dinner.”`\
-https://nytimes.com/2025/08/10/dining/fresh-corn-and-black-bean-salad-and-more-summer-recipes.html
 

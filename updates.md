@@ -1,3 +1,7 @@
+**U.S. rider McNulty wins Tour de Pologne after final stage time trial**\
+`The 27-year-old had been second entering the stage, seven seconds behind INEOS Grenadiers’ Victor Langelotti.`\
+https://nytimes.com/athletic/6545384/2025/08/10/brandon-mcnulty-tour-win-time-trial/
+
 **‘Weapons’ Gives Warner Bros. Another Outstanding No. 1 Opening**\
 `In second place with about $44.5 million in global ticket sales, Disney’s “Freakier Friday” marked a box office comeback for Lindsay Lohan.`\
 https://nytimes.com/2025/08/10/business/media/weapons-warner-bros-box-office.html
