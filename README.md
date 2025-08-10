@@ -1,3 +1,7 @@
+**Trump Attacked California’s Congressional Maps. Republicans Want to Save Them.**\
+`The independent body that redraws the state’s political maps isn’t perfect, many Republicans say. But they prefer that to the gerrymander that Gov. Gavin Newsom seeks to offset one proposed in Texas.`\
+https://nytimes.com/2025/08/10/us/california-redistricting-independent-commission.html
+
 **JD Vance says U.S. is working for a meeting with Trump, Putin and Zelensky.**\
 `By Luke Broadwater`\
 https://nytimes.com/live/2025/08/10/us/trump-news/jd-vance-zelensky-trump-putin
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6544620/2025/08/10/david-robertson-phillies-bullpen
 **Heavy Rains Lead to Widespread Flooding in Wisconsin**\
 `Record-setting rainfall caused intense flooding in and around the Milwaukee area starting on Saturday night.`\
 https://nytimes.com/2025/08/10/us/wisconsin-flood-storms-rain.html
-
-**Salah questions UEFA tribute post for ‘Palestinian Pele’**\
-`Al-Obeid was described as “one of the brightest stars of Palestinian football” by the Palestinian Football Association.`\
-https://nytimes.com/athletic/6545183/2025/08/10/mohamed-salah-palestine-uefa-tweet/
 
