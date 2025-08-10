@@ -1,3 +1,7 @@
+**In India, Immigration Raids Detain Thousands and Create a Climate of Fear**\
+`Officials have picked up people across the country, most of them Muslim, citing a national security risk. Rights groups say the raids are targeting detainees’ religion and language.`\
+https://nytimes.com/2025/08/10/world/asia/india-migrants-raids-muslims-bengalis.html
+
 **The Briefing - Palermo 0 Manchester City 3: Reijnders' double, Cherki's promise and Haaland scores with his right foot**\
 `Anantaajith Raghuraman breaks down the main talking points from Manchester City's 3-0 win over Palermo`\
 https://nytimes.com/athletic/6544540/2025/08/10/palermo-0-3-manchester-city-briefing-reijnders-haaland-cherki/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/10/opinion/stagflation-trump-economy.html
 **Book Blacklist in Kashmir Aims to Muzzle Criticism of India**\
 `The federally appointed government in the contested region has declared 25 books off limits, part of what many see as a pattern of repression.`\
 https://nytimes.com/2025/08/10/world/asia/book-ban-india-kashmir.html
-
-**What Phillies pitcher Jesús Luzardo learned about himself during recent upswing**\
-`Luzardo is in his head, but in a positive way. It is not about making great pitches all the time, but good pitches.`\
-https://nytimes.com/athletic/6544767/2025/08/10/what-jesus-luzardo-learned-about-himself-recent-upswing-phillies/
 
