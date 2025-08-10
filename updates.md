@@ -1,3 +1,7 @@
+**Forest hold talks on move for Milan's Musah**\
+`Club-to-club talks are taking place, while personal terms for the U.S. international are not expected to be an issue.`\
+https://nytimes.com/athletic/6545429/2025/08/10/nottingham-forest-transfers-yunus-musah-milan/
+
 **His Party Reeling, a Democratic Senator Tries a Message of Hope in Iowa**\
 `Senator Ruben Gallego of Arizona won his seat last year by outperforming national Democrats among Hispanic voters and men. He wants the party to listen to his message as it regroups.`\
 https://nytimes.com/2025/08/10/us/politics/senator-gallego-democrats-iowa.html
