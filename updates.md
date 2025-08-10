@@ -1,3 +1,15 @@
+**Terry Reid, Rock Singer Known as ‘Superlungs,’ Dies at 75**\
+`He missed his chance to be Led Zeppelin’s lead vocalist, but his solo work — and his otherworldly voice — drew raves from Aretha Franklin and others.`\
+https://nytimes.com/2025/08/10/arts/music/terry-reid-dead.html
+
+**Phillies activate David Robertson as post-trade deadline bullpen takes shape**\
+`After two weeks in Triple A, Robertson begins his third tenure with the team, boosting the bullpen for the stretch run — and beyond.`\
+https://nytimes.com/athletic/6544620/2025/08/10/david-robertson-phillies-bullpen/
+
+**Heavy Rains Lead to Widespread Flooding in Wisconsin**\
+`Record-setting rainfall caused intense flooding in and around the Milwaukee area starting on Saturday night.`\
+https://nytimes.com/2025/08/10/us/wisconsin-flood-storms-rain.html
+
 **Salah questions UEFA tribute post for ‘Palestinian Pele’**\
 `Al-Obeid was described as “one of the brightest stars of Palestinian football” by the Palestinian Football Association.`\
 https://nytimes.com/athletic/6545183/2025/08/10/mohamed-salah-palestine-uefa-tweet/

@@ -1,3 +1,15 @@
+**Terry Reid, Rock Singer Known as ‘Superlungs,’ Dies at 75**\
+`He missed his chance to be Led Zeppelin’s lead vocalist, but his solo work — and his otherworldly voice — drew raves from Aretha Franklin and others.`\
+https://nytimes.com/2025/08/10/arts/music/terry-reid-dead.html
+
+**Phillies activate David Robertson as post-trade deadline bullpen takes shape**\
+`After two weeks in Triple A, Robertson begins his third tenure with the team, boosting the bullpen for the stretch run — and beyond.`\
+https://nytimes.com/athletic/6544620/2025/08/10/david-robertson-phillies-bullpen/
+
+**Heavy Rains Lead to Widespread Flooding in Wisconsin**\
+`Record-setting rainfall caused intense flooding in and around the Milwaukee area starting on Saturday night.`\
+https://nytimes.com/2025/08/10/us/wisconsin-flood-storms-rain.html
+
 **Salah questions UEFA tribute post for ‘Palestinian Pele’**\
 `Al-Obeid was described as “one of the brightest stars of Palestinian football” by the Palestinian Football Association.`\
 https://nytimes.com/athletic/6545183/2025/08/10/mohamed-salah-palestine-uefa-tweet/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6544982/2025/08/10/real-madrid-eduardo-camavinga-in
 **Jets 53-man roster projection: How much room is there for the running backs?**\
 `A look at how the roster stacks up after Saturday's impressive win over the Packers.`\
 https://nytimes.com/athletic/6544823/2025/08/10/jets-53-man-roster-projection-preseason-opener-packers/
-
-**A QB2 battle brewing? Five things we learned this week at Raiders training camp**\
-`The week started with a significant trade, and ended with mixed results in the preseason opener.`\
-https://nytimes.com/athletic/6544402/2025/08/10/raiders-training-camp-report-qb2-battle/
-
-**Padres’ Michael King, a potential top free agent, is back to pursue a collective prize**\
-`King had been sidelined since late May because of an injury to his long thoracic nerve. His return could be a season-changer.`\
-https://nytimes.com/athletic/6543660/2025/08/10/padres-michael-king-return-injury/
-
-**Thinking a Lot About Too Little Thinking**\
-`Readers respond to a guest essay about illiteracy. Also: The autocrat’s playbook.`\
-https://nytimes.com/2025/08/10/opinion/thinking-education-reading.html
 
