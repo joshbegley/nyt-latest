@@ -1,3 +1,11 @@
+**‘Fighting Fire with Fire,’ Democrats on Defense as Texas Redistricting Looms**\
+`A Republican proposal to add five Republican congressional seats in Texas imperils Democrats’ midterm prospects.`\
+https://nytimes.com/2025/08/10/us/politics/fighting-fire-with-fire-democrats-on-defense-as-texas-redistricting-looms.html
+
+**Phillies takeaways: Zack Wheeler 'not concerned,' Harrison Bader's defense, help on the way**\
+`The Phillies are nearing a level of roster strength they haven’t seen all season. They're 5 1/2 up on the Mets, with more help on the way.`\
+https://nytimes.com/athletic/6545729/2025/08/10/phillies-zack-wheeler-harrison-bader-injury-updates/
+
 **Mets' latest 7-game skid might be the most worrisome: 'We gotta get our starters going'**\
 `No starter other than David Peterson has pitched six innings since June 7. `\
 https://nytimes.com/athletic/6545777/2025/08/10/mets-losing-streak-starting-pitchers/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/08/10/world/europe/earthquake-western-turkey-sindirgi.h
 **Flash Flooding in Wisconsin Hits the Milwaukee Area**\
 `Milwaukee and its neighboring area experienced record-setting rains, leading to the early closure of the Wisconsin State Fair and flash flooding that left some residents stranded.`\
 https://nytimes.com/video/us/100000010333008/milwaukee-flood-rain-wisconsin.html
-
-**Van Dijk 'disappointed' after minute's silence for Diogo Jota disrupted**\
-`Both teams gathered before kick-off in Sunday's Community Shield to pay their respects to Jota and his brother Andre Silva.`\
-https://nytimes.com/athletic/6545490/2025/08/10/diogo-jota-minute-silence-liverpool-crystal-palace/
-
-**Bengals preseason game fallout: Safety, offensive line, receiver experience movement**\
-`Cutdown day is around the corner and three positions are under the microscope after the Bengals' first preseason game.`\
-https://nytimes.com/athletic/6545374/2025/08/10/bengals-preseason-roster-depth-chart-movement/
 

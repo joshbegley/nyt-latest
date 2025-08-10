@@ -1,3 +1,11 @@
+**‘Fighting Fire with Fire,’ Democrats on Defense as Texas Redistricting Looms**\
+`A Republican proposal to add five Republican congressional seats in Texas imperils Democrats’ midterm prospects.`\
+https://nytimes.com/2025/08/10/us/politics/fighting-fire-with-fire-democrats-on-defense-as-texas-redistricting-looms.html
+
+**Phillies takeaways: Zack Wheeler 'not concerned,' Harrison Bader's defense, help on the way**\
+`The Phillies are nearing a level of roster strength they haven’t seen all season. They're 5 1/2 up on the Mets, with more help on the way.`\
+https://nytimes.com/athletic/6545729/2025/08/10/phillies-zack-wheeler-harrison-bader-injury-updates/
+
 **Mets' latest 7-game skid might be the most worrisome: 'We gotta get our starters going'**\
 `No starter other than David Peterson has pitched six innings since June 7. `\
 https://nytimes.com/athletic/6545777/2025/08/10/mets-losing-streak-starting-pitchers/
