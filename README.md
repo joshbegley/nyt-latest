@@ -1,5 +1,17 @@
+**The New York Times in Print for Sunday, Aug. 10, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/08/10/todays-new-york-times
+
+**Trump Is Turning Us Into a Doddering Industrial Giant**\
+`Smothering electric vehicles might have been a regrettable mistake for a Republican to make 10 years ago. Today, it is economic idiocy.`\
+https://nytimes.com/2025/08/10/opinion/electric-vehicles-china-clean-energy.html
+
+**There Is a Specter Haunting Trump’s Economy: Stagflation**\
+`The president’s policies are fueling the dreaded combination of slowing growth and rising inflation.`\
+https://nytimes.com/2025/08/10/opinion/stagflation-trump-economy.html
+
 **Book Blacklist in Kashmir Aims to Muzzle Criticism of India**\
-`The federally appointed government in the contested region has declared 25 books off-limits, part of what many see as a pattern of repression.`\
+`The federally appointed government in the contested region has declared 25 books off limits, part of what many see as a pattern of repression.`\
 https://nytimes.com/2025/08/10/world/asia/book-ban-india-kashmir.html
 
 **What Phillies pitcher Jesús Luzardo learned about himself during recent upswing**\
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6544419/2025/08/10/everton-roma-dewsbury-hall/
 **Behind Europe’s Anguished Words on Gaza, a Flurry of Hard Diplomacy**\
 `Images of starving children and Israel’s planned expansion of settlements spurred Britain, France and Germany to a tougher stance. Prime Minister Benjamin Netanyahu was undeterred.`\
 https://nytimes.com/2025/08/10/world/europe/gaza-europe-peace-plan-trump-netanyahu.html
-
-**Quote of the Day: Off-the-Wall Banana Ball Offers Tips For M.L.B. on Enhancing Fan Appeal**\
-`Quotation of the Day for Sunday, August 10, 2025.`\
-https://nytimes.com/2025/08/10/pageoneplus/quote-of-the-day-off-the-wall-banana-ball-offers-tips-for-mlb-on-enhancing-fan-appeal.html
-
-**After Almost Losing Trump, Putin Gets His Ideal Summit**\
-`For President Vladimir V. Putin of Russia, it is an opportunity not just to end the Ukraine war on his terms but to split apart the Western security alliance.`\
-https://nytimes.com/2025/08/10/world/europe/ukraine-trump-putin-summit.html
-
-**Xi Looks to Tighten Grip After Scandals Shake China’s Military Elite**\
-`The Chinese leader’s crackdown on military corruption reveals how deep his concerns run, not only about battlefield readiness, but about political survival, as well.`\
-https://nytimes.com/2025/08/10/world/asia/china-military-corruption.html
 

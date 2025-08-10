@@ -1,3 +1,7 @@
+**Book Blacklist in Kashmir Aims to Muzzle Criticism of India**\
+`The federally appointed government in the contested region has declared 25 books off-limits, part of what many see as a pattern of repression.`\
+https://nytimes.com/2025/08/10/world/asia/book-ban-india-kashmir.html
+
 **What Phillies pitcher Jesús Luzardo learned about himself during recent upswing**\
 `Luzardo is in his head, but in a positive way. It is not about making great pitches all the time, but good pitches.`\
 https://nytimes.com/athletic/6544767/2025/08/10/what-jesus-luzardo-learned-about-himself-recent-upswing-phillies/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/10/world/europe/ukraine-trump-putin-summit.html
 **Xi Looks to Tighten Grip After Scandals Shake China’s Military Elite**\
 `The Chinese leader’s crackdown on military corruption reveals how deep his concerns run, not only about battlefield readiness, but about political survival, as well.`\
 https://nytimes.com/2025/08/10/world/asia/china-military-corruption.html
-
-**No Corrections: Aug. 10, 2025**\
-`No corrections appeared in print on Sunday, Aug. 10, 2025.`\
-https://nytimes.com/2025/08/10/pageoneplus/no-corrections-aug-10-2025.html
 
