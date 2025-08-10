@@ -1,3 +1,15 @@
+**Bengals preseason game fallout: Safety, offensive line, receiver experience movement**\
+`Cutdown day is around the corner and three positions are under the microscope after the Bengals' first preseason game.`\
+https://nytimes.com/athletic/6545374/2025/08/10/bengals-preseason-roster-depth-chart-movement/
+
+**His Party Reeling, a Democratic Senator Tries a Message of Hope in Iowa**\
+`Senator Ruben Gallego of Arizona won his seat last year by outperforming national Democrats among Hispanic voters and men. He wants the party to listen to listen to his message as it regroups.`\
+https://nytimes.com/2025/08/10/us/politics/senator-gallego-democrats-iowa.html
+
+**Map: 6.1-Magnitude Earthquake Strikes Turkey**\
+`View the location of the quake’s epicenter and shake area.`\
+https://nytimes.com/interactive/2025/08/10/world/europe/earthquake-turkey-maps.html
+
 **Bard Music Festival: An Innovator in Exile**\
 `Bohuslav Martinu, a Czech composer who thrived on the artistic and scientific explosions of the 20th century, is the center of this summer’s programming.`\
 https://nytimes.com/2025/08/10/arts/music/bard-music-festival-martinu.html
