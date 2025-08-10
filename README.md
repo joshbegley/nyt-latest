@@ -1,3 +1,7 @@
+**Forest hold talks on move for Milan's Musah**\
+`Club-to-club talks are taking place, while personal terms for the U.S. international are not expected to be an issue.`\
+https://nytimes.com/athletic/6545429/2025/08/10/nottingham-forest-transfers-yunus-musah-milan/
+
 **Earthquake Strikes Western Turkey**\
 `Rescue efforts were continuing as officials tried to assess damage in a region prone to disaster.`\
 https://nytimes.com/2025/08/10/world/europe/earthquake-western-turkey-sindirgi.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6545150/2025/08/10/barcelona-villarreal-miami-la-li
 **New York City to Close Last Major Hotel Housing Migrants**\
 `Mayor Eric Adams announced that the Row NYC, a hotel in Times Square, would stop sheltering migrants by April, as the migrant crisis continued to subside.`\
 https://nytimes.com/2025/08/10/nyregion/migrants-row-hotel-nyc.html
-
-**Trump Attacked California’s Congressional Maps. Republicans Want to Save Them.**\
-`The independent body that redraws the state’s political maps isn’t perfect, many Republicans say. But they prefer that to the gerrymander that Gov. Gavin Newsom seeks to offset one proposed in Texas.`\
-https://nytimes.com/2025/08/10/us/california-redistricting-independent-commission.html
 
