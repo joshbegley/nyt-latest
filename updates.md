@@ -1,3 +1,7 @@
+**Bills takeaways from preseason loss to Giants: Tre'Davious White, Joey Bosa have mixed day**\
+`The Bills got a valuable first look at some veterans and rookies on Saturday.`\
+https://nytimes.com/athletic/6544514/2025/08/09/bills-preseason-giants-tredavious-white-joey-bosa/
+
 **Pete Alonso hits home run No. 252, tying him with Darryl Strawberry as Mets' all-time leader**\
 `After a long stretch without a homer to end July, New York's first baseman hit his fourth home run in August to match Strawberry.`\
 https://nytimes.com/athletic/6544541/2025/08/09/pete-alonso-home-run-mets-leader-darryl-strawberry/

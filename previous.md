@@ -1,3 +1,7 @@
+**Bills takeaways from preseason loss to Giants: Tre'Davious White, Joey Bosa have mixed day**\
+`The Bills got a valuable first look at some veterans and rookies on Saturday.`\
+https://nytimes.com/athletic/6544514/2025/08/09/bills-preseason-giants-tredavious-white-joey-bosa/
+
 **Pete Alonso hits home run No. 252, tying him with Darryl Strawberry as Mets' all-time leader**\
 `After a long stretch without a homer to end July, New York's first baseman hit his fourth home run in August to match Strawberry.`\
 https://nytimes.com/athletic/6544541/2025/08/09/pete-alonso-home-run-mets-leader-darryl-strawberry/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/09/nyregion/rutherford-new-jersey-synagogue-fire-sab
 **Milan interested in Hojlund transfer, Man Utd open to loan deal**\
 `United remain willing to sell Hojlund, who is available for just over £30million, although a loan exit would be considered as an alternative`\
 https://nytimes.com/athletic/6429365/2025/08/09/rasmus-hojlund-milan-manchester-united-transfers/
-
-**After Years of Anger Directed at C.D.C., Shooting Manifests Worst Fears**\
-`Employees expressed horror at a shooting at the agency’s headquarters, and some said they viewed it as part of a pattern of threats and assaults on health workers.`\
-https://nytimes.com/2025/08/09/us/politics/cdc-shooting-staff.html
 
