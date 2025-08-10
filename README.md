@@ -1,15 +1,3 @@
-**Michelle Obama and Justice Ketanji Brown Jackson Draw Crowds on Martha’s Vineyard**\
-`In Oak Bluffs, film premieres, book fairs and star-studded soirees attracted fans who came for the art and stayed for the community.`\
-https://nytimes.com/2025/08/10/style/black-film-book-festival-marthas-vineyard.html
-
-**This Corn and Black Bean Salad Is Exactly What I Want to Be Eating**\
-`It is, as one reader puts it, a “perfect no-cook, no-meat August dinner.”`\
-https://nytimes.com/2025/08/10/dining/fresh-corn-and-black-bean-salad-and-more-summer-recipes.html
-
-**Two Japanese boxers die from brain injuries after fighting on same card**\
-`The Japan Boxing Commission (JBC) said earlier this month that both fighters had undergone surgery for subdural hematoma after their bouts.`\
-https://nytimes.com/athletic/6545148/2025/08/10/japan-boxers-deaths/
-
 **The Pulse: A crash course for new collectors**\
 `Welcome to The Pulse, The Athletic's daily sports newsletter.`\
 https://nytimes.com/athletic/6544807/2025/08/10/a-crash-course-for-new-collectors-and-a-70-yard-stunner/
@@ -37,4 +25,16 @@ https://nytimes.com/2025/08/10/opinion/thinking-education-reading.html
 **Trump Administration Live Updates: Ukraine and Europe Project Unity Before President Meets With Putin**\
 ``\
 https://nytimes.com/live/2025/08/10/us/trump-news
+
+**Evaluating Bo Nix's start and other observations from Broncos' preseason win vs. 49ers**\
+`The Broncos' second-year QB committed a penalty that resulted in a safety but ended night by leading a field-goal drive.`\
+https://nytimes.com/athletic/6544657/2025/08/10/bo-nix-broncos-preseason-opener/
+
+**Why the Seahawks' tight ends are the 'silent engine' of Klint Kubiak's new offense**\
+`Even after the release of Noah Fant, the Seahawks' tight ends have impressed, and they will be a key cog in the new offensive scheme.`\
+https://nytimes.com/athletic/6544593/2025/08/10/seahawks-preseason-aj-barner-elijah-arroyo/
+
+**Rookies Martin, Sigle stand out in 49ers' opener, but for different reasons: Takeaways**\
+`Kalia Davis appeared to take a big step toward a Week 1 starting spot, while Chase Lucas thrust himself into the cornerback conversation.`\
+https://nytimes.com/athletic/6544871/2025/08/10/49ers-preseason-broncos-rookies-standouts/
 
