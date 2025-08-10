@@ -1,3 +1,7 @@
+**Braves takeaways: Hurston Waldrep adjusts, thrives; Drake Baldwin, Michael Harris II stay hot**\
+`A pair of rookies gave Atlanta fans something to be excited about from the team's woeful season.`\
+https://nytimes.com/athletic/6545668/2025/08/10/braves-win-marlins-hurston-waldrep-drake-baldwin-michael-harris-ii/
+
 **Small Tower on a Castle**\
 `Rebecca Goldstein gets a nibble.`\
 https://nytimes.com/2025/08/10/crosswords/daily-puzzle-2025-08-11.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/10/us/politics/senator-gallego-democrats-iowa.html
 **Map: 6.1-Magnitude Earthquake Strikes Turkey**\
 `View the location of the quake’s epicenter and shake area.`\
 https://nytimes.com/interactive/2025/08/10/world/europe/earthquake-turkey-maps.html
-
-**Bard Music Festival: An Innovator in Exile**\
-`Bohuslav Martinu, a Czech composer who thrived on the artistic and scientific explosions of the 20th century, is the center of this summer’s programming.`\
-https://nytimes.com/2025/08/10/arts/music/bard-music-festival-martinu.html
 

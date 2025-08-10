@@ -1,3 +1,7 @@
+**Braves takeaways: Hurston Waldrep adjusts, thrives; Drake Baldwin, Michael Harris II stay hot**\
+`A pair of rookies gave Atlanta fans something to be excited about from the team's woeful season.`\
+https://nytimes.com/athletic/6545668/2025/08/10/braves-win-marlins-hurston-waldrep-drake-baldwin-michael-harris-ii/
+
 **Small Tower on a Castle**\
 `Rebecca Goldstein gets a nibble.`\
 https://nytimes.com/2025/08/10/crosswords/daily-puzzle-2025-08-11.html
