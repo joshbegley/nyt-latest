@@ -1,3 +1,7 @@
+**The Briefing - Palermo 0 Manchester City 3: Reijnders double, Cherki's promise, and Haaland scores with his right foot**\
+`Anantaajith Raghuraman breaks down the main talking points from Manchester City's 3-0 win over Palermo`\
+https://nytimes.com/athletic/6544540/2025/08/10/palermo-0-3-manchester-city-briefing-reijnders-haaland-cherki/
+
 **In a Trump-Putin Summit, Ukraine Fears Losing Say Over Its Future**\
 `Since President Trump retook office, many Ukrainians have worried a peace accord would be struck without them.`\
 https://nytimes.com/2025/08/10/us/politics/trump-putin-meeting-ukraine.html
