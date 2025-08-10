@@ -1,3 +1,11 @@
+**Far-Right Israeli Minister Condemns Plan for Gradual Military Expansion in Gaza**\
+`Bezalel Smotrich, the hard-line finance minister, said that Israel needed to move more decisively and quickly to defeat Hamas.`\
+https://nytimes.com/2025/08/10/world/middleeast/far-right-israeli-minister-condemns-plan-for-gradual-military-expansion-in-gaza.html
+
+**Bournemouth reach agreement to sign Lille centre-back Diakite**\
+`The 24-year-old is undergoing a medical in London today ahead of signing a five-year contract at the club.`\
+https://nytimes.com/athletic/6545028/2025/08/10/bournemouth-bafode-diakite-transfer/
+
 **Rangers starter Nathan Eovaldi is having his best season at age 35. Here's why**\
 `Eovaldi is putting up numbers that have him in elite company this season. The changes he's made are subtle but significant.`\
 https://nytimes.com/athletic/6542900/2025/08/10/nathan-eovaldi-texas-rangers-pitch-mix-analysis/
@@ -29,12 +37,4 @@ https://nytimes.com/video/opinion/100000010331153/private-planes-faa.html
 **‘Acute, Sustained, Profound and Abiding Rage’: Canada Finds Its Voice**\
 `America’s withdrawal from the global order is forcing former allies to rethink their identities.`\
 https://nytimes.com/2025/08/10/opinion/canada-america-allies.html
-
-**Wordle Review No. 1,514**\
-`Scroll down for hints and conversation about the puzzle for Monday, Aug. 11, 2025.`\
-https://nytimes.com/2025/08/10/crosswords/wordle-review-1514.html
-
-**Strands Sidekick No. 526**\
-`Scroll down for hints and conversation about the puzzle for Monday, Aug. 11, 2025.`\
-https://nytimes.com/2025/08/10/crosswords/strands-sidekick-526.html
 

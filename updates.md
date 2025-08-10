@@ -1,3 +1,11 @@
+**Far-Right Israeli Minister Condemns Plan for Gradual Military Expansion in Gaza**\
+`Bezalel Smotrich, the hard-line finance minister, said that Israel needed to move more decisively and quickly to defeat Hamas.`\
+https://nytimes.com/2025/08/10/world/middleeast/far-right-israeli-minister-condemns-plan-for-gradual-military-expansion-in-gaza.html
+
+**Bournemouth reach agreement to sign Lille centre-back Diakite**\
+`The 24-year-old is undergoing a medical in London today ahead of signing a five-year contract at the club.`\
+https://nytimes.com/athletic/6545028/2025/08/10/bournemouth-bafode-diakite-transfer/
+
 **Rangers starter Nathan Eovaldi is having his best season at age 35. Here's why**\
 `Eovaldi is putting up numbers that have him in elite company this season. The changes he's made are subtle but significant.`\
 https://nytimes.com/athletic/6542900/2025/08/10/nathan-eovaldi-texas-rangers-pitch-mix-analysis/

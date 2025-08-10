@@ -1,6 +1,10 @@
+**Jury Duties**\
+`Some jurors experience mental health effects years after a trial ends.`\
+https://nytimes.com/2025/08/10/briefing/jury-duty-mental-health-trauma.html
+
 **Far-Right Israeli Minister Condemns Plan for Gradual Military Expansion in Gaza**\
 `Bezalel Smotrich, the hard-line finance minister, said that Israel needed to move more decisively and quickly to defeat Hamas.`\
-https://nytimes.com/2025/08/10/world/middleeast/far-right-israeli-minister-condemns-plan-for-gradual-military-expansion-in-gaza.html
+https://nytimes.com/2025/08/10/world/middleeast/smotrich-israel-gaza-takeover-netanyahu.html
 
 **Bournemouth reach agreement to sign Lille centre-back Diakite**\
 `The 24-year-old is undergoing a medical in London today ahead of signing a five-year contract at the club.`\
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/10/opinion/gilded-age-tv-finale-trump.html
 **If You Fly Economy, You’re Paying for Someone Else to Fly Private**\
 `The Times editorial board argues that Congress must change the Federal Aviation Administration’s funding structure.`\
 https://nytimes.com/video/opinion/100000010331153/private-planes-faa.html
-
-**‘Acute, Sustained, Profound and Abiding Rage’: Canada Finds Its Voice**\
-`America’s withdrawal from the global order is forcing former allies to rethink their identities.`\
-https://nytimes.com/2025/08/10/opinion/canada-america-allies.html
 
