@@ -1,3 +1,7 @@
+**Bard Music Festival: An Innovator in Exile**\
+`Bohuslav Martinu, a Czech composer who thrived on the artistic and scientific explosions of the 20th century, is the center of this summer’s programming.`\
+https://nytimes.com/2025/08/10/arts/music/bard-music-festival-martinu.html
+
 **La Liga want to stage Villarreal-Barcelona in Miami: How likely is it to happen?**\
 `If the proposal succeeds, it would be the first time a European top-flight league fixture has taken place in the United States.`\
 https://nytimes.com/athletic/6545150/2025/08/10/barcelona-villarreal-miami-la-liga/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6545064/2025/08/10/crystal-palace-liverpool-communi
 **Trump and Putin May Get a Cold Reception From Some Alaskans**\
 `Warm relations between Alaskans and Russians began to shift with the rise of Vladimir Putin and the invasion of Ukraine. In Alaska, feelings on the two leaders’ meeting seemed mixed.`\
 https://nytimes.com/2025/08/10/us/politics/trump-putin-alaska-reaction.html
-
-**Terry Reid, Rock Singer Known as ‘Superlungs,’ Dies at 75**\
-`He missed his chance to be Led Zeppelin’s lead vocalist, but his solo work — and his otherworldly voice — drew raves from Aretha Franklin and others.`\
-https://nytimes.com/2025/08/10/arts/music/terry-reid-dead.html
 

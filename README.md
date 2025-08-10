@@ -1,3 +1,7 @@
+**Map: 6.1-Magnitude Earthquake Strikes Turkey**\
+`View the location of the quake’s epicenter and shake area.`\
+https://nytimes.com/interactive/2025/08/10/world/europe/earthquake-turkey-maps.html
+
 **Bard Music Festival: An Innovator in Exile**\
 `Bohuslav Martinu, a Czech composer who thrived on the artistic and scientific explosions of the 20th century, is the center of this summer’s programming.`\
 https://nytimes.com/2025/08/10/arts/music/bard-music-festival-martinu.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6544239/2025/08/10/edmonton-oilers-bowman-european-
 **Crystal Palace 2-2 Liverpool (3-2 pens): Henderson heroics secure Community Shield win**\
 `The Athletic's writers break down the key moments from the 2025 Community Shield `\
 https://nytimes.com/athletic/6545064/2025/08/10/crystal-palace-liverpool-community-shield-result-analysis/
-
-**Trump and Putin May Get a Cold Reception From Some Alaskans**\
-`Warm relations between Alaskans and Russians began to shift with the rise of Vladimir Putin and the invasion of Ukraine. In Alaska, feelings on the two leaders’ meeting seemed mixed.`\
-https://nytimes.com/2025/08/10/us/politics/trump-putin-alaska-reaction.html
 

@@ -1,3 +1,7 @@
+**Bard Music Festival: An Innovator in Exile**\
+`Bohuslav Martinu, a Czech composer who thrived on the artistic and scientific explosions of the 20th century, is the center of this summer’s programming.`\
+https://nytimes.com/2025/08/10/arts/music/bard-music-festival-martinu.html
+
 **La Liga want to stage Villarreal-Barcelona in Miami: How likely is it to happen?**\
 `If the proposal succeeds, it would be the first time a European top-flight league fixture has taken place in the United States.`\
 https://nytimes.com/athletic/6545150/2025/08/10/barcelona-villarreal-miami-la-liga/
