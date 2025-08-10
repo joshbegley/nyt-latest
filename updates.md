@@ -1,3 +1,7 @@
+**Matthew Stafford to start practicing Monday, per Sean McVay**\
+`Stafford has been recovering from an aggravated disk that caused back soreness for the last several weeks.`\
+https://nytimes.com/athletic/6544744/2025/08/09/rams-matthew-stafford-sean-mcvay/
+
 **J.J. McCarthy's preseason performance and other Vikings risers and fallers from win**\
 `Running back Zavier Scott was among the top performers Saturday.`\
 https://nytimes.com/athletic/6544645/2025/08/09/vikings-preaseason-j-j-mccarthy-risers-fallers/
