@@ -1,3 +1,7 @@
+**Van Dijk 'disappointed' after minute's silence for Diogo Jota disrupted**\
+`Both teams gathered before kick-off in Sunday's Community Shield to pay their respects to Jota and his brother Andre Silva.`\
+https://nytimes.com/athletic/6545490/2025/08/10/diogo-jota-minute-silence-liverpool-crystal-palace/
+
 **Bengals preseason game fallout: Safety, offensive line, receiver experience movement**\
 `Cutdown day is around the corner and three positions are under the microscope after the Bengals' first preseason game.`\
 https://nytimes.com/athletic/6545374/2025/08/10/bengals-preseason-roster-depth-chart-movement/
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/08/10/us/trump-news/jd-vance-zelensky-trump-putin
 **U.S. rider McNulty wins Tour de Pologne after final stage time trial**\
 `The 27-year-old had been second entering the stage, seven seconds behind INEOS Grenadiers’ Victor Langelotti.`\
 https://nytimes.com/athletic/6545384/2025/08/10/brandon-mcnulty-tour-win-time-trial/
-
-**‘Weapons’ Gives Warner Bros. Another Outstanding No. 1 Opening**\
-`In second place with about $44.5 million in global ticket sales, Disney’s “Freakier Friday” marked a box office comeback for Lindsay Lohan.`\
-https://nytimes.com/2025/08/10/business/media/weapons-warner-bros-box-office.html
 
