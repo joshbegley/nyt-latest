@@ -1,3 +1,7 @@
+**JD Vance says U.S. is working for a meeting with Trump, Putin and Zelensky.**\
+`By Luke Broadwater`\
+https://nytimes.com/live/2025/08/10/us/trump-news/jd-vance-zelensky-trump-putin
+
 **U.S. rider McNulty wins Tour de Pologne after final stage time trial**\
 `The 27-year-old had been second entering the stage, seven seconds behind INEOS Grenadiers’ Victor Langelotti.`\
 https://nytimes.com/athletic/6545384/2025/08/10/brandon-mcnulty-tour-win-time-trial/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/10/us/wisconsin-flood-storms-rain.html
 **Salah questions UEFA tribute post for ‘Palestinian Pele’**\
 `Al-Obeid was described as “one of the brightest stars of Palestinian football” by the Palestinian Football Association.`\
 https://nytimes.com/athletic/6545183/2025/08/10/mohamed-salah-palestine-uefa-tweet/
-
-**Michelle Obama and Justice Ketanji Brown Jackson Draw Crowds on Martha’s Vineyard**\
-`In Oak Bluffs, film premieres, book fairs and star-studded soirees attracted fans who came for the art and stayed for the community.`\
-https://nytimes.com/2025/08/10/style/black-film-book-festival-marthas-vineyard.html
 

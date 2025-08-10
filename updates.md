@@ -1,3 +1,7 @@
+**JD Vance says U.S. is working for a meeting with Trump, Putin and Zelensky.**\
+`By Luke Broadwater`\
+https://nytimes.com/live/2025/08/10/us/trump-news/jd-vance-zelensky-trump-putin
+
 **U.S. rider McNulty wins Tour de Pologne after final stage time trial**\
 `The 27-year-old had been second entering the stage, seven seconds behind INEOS Grenadiers’ Victor Langelotti.`\
 https://nytimes.com/athletic/6545384/2025/08/10/brandon-mcnulty-tour-win-time-trial/
