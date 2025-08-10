@@ -1,3 +1,7 @@
+**New York City to Close Last Major Hotel Housing Migrants**\
+`Mayor Eric Adams announced that the Row NYC, a hotel in Times Square, would stop sheltering migrants by April, as the migrant crisis continued to subside.`\
+https://nytimes.com/2025/08/10/nyregion/migrants-row-hotel-nyc.html
+
 **Trump Attacked California’s Congressional Maps. Republicans Want to Save Them.**\
 `The independent body that redraws the state’s political maps isn’t perfect, many Republicans say. But they prefer that to the gerrymander that Gov. Gavin Newsom seeks to offset one proposed in Texas.`\
 https://nytimes.com/2025/08/10/us/california-redistricting-independent-commission.html

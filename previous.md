@@ -1,3 +1,7 @@
+**New York City to Close Last Major Hotel Housing Migrants**\
+`Mayor Eric Adams announced that the Row NYC, a hotel in Times Square, would stop sheltering migrants by April, as the migrant crisis continued to subside.`\
+https://nytimes.com/2025/08/10/nyregion/migrants-row-hotel-nyc.html
+
 **Trump Attacked California’s Congressional Maps. Republicans Want to Save Them.**\
 `The independent body that redraws the state’s political maps isn’t perfect, many Republicans say. But they prefer that to the gerrymander that Gov. Gavin Newsom seeks to offset one proposed in Texas.`\
 https://nytimes.com/2025/08/10/us/california-redistricting-independent-commission.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/10/arts/music/terry-reid-dead.html
 **Phillies activate David Robertson as stretch run deadline bullpen takes shape**\
 `After two weeks in Triple A, Robertson begins his third tenure with the team, boosting the bullpen for the stretch run — and beyond.`\
 https://nytimes.com/athletic/6544620/2025/08/10/david-robertson-phillies-bullpen/
-
-**Heavy Rains Lead to Widespread Flooding in Wisconsin**\
-`Record-setting rainfall caused intense flooding in and around the Milwaukee area starting on Saturday night.`\
-https://nytimes.com/2025/08/10/us/wisconsin-flood-storms-rain.html
 
