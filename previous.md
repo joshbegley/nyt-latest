@@ -1,3 +1,31 @@
+**The Briefing: Everton 0 Roma 1 - Dewsbury-Hall impresses but are Moyes' side ready for the season?**\
+`It has been a difficult pre-season on and off the pitch but there were at least reasons for optimism for a capacity crowd on Saturday`\
+https://nytimes.com/athletic/6544419/2025/08/10/everton-roma-dewsbury-hall/
+
+**Behind Europe’s Anguished Words on Gaza, a Flurry of Hard Diplomacy**\
+`Images of starving children and Israel’s planned expansion of settlements spurred Britain, France and Germany to a tougher stance. Prime Minister Benjamin Netanyahu was undeterred.`\
+https://nytimes.com/2025/08/10/world/europe/gaza-europe-peace-plan-trump-netanyahu.html
+
+**Quote of the Day: Off-the-Wall Banana Ball Offers Tips For M.L.B. on Enhancing Fan Appeal**\
+`Quotation of the Day for Sunday, August 10, 2025.`\
+https://nytimes.com/2025/08/10/pageoneplus/quote-of-the-day-off-the-wall-banana-ball-offers-tips-for-mlb-on-enhancing-fan-appeal.html
+
+**After Almost Losing Trump, Putin Gets His Ideal Summit**\
+`For President Vladimir V. Putin of Russia, it is an opportunity not just to end the Ukraine war on his terms but to split apart the Western security alliance.`\
+https://nytimes.com/2025/08/10/world/europe/ukraine-trump-putin-summit.html
+
+**Xi Looks to Tighten Grip After Scandals Shake China’s Military Elite**\
+`The Chinese leader’s crackdown on military corruption reveals how deep his concerns run, not only about battlefield readiness, but about political survival, as well.`\
+https://nytimes.com/2025/08/10/world/asia/china-military-corruption.html
+
+**No Corrections: Aug. 10, 2025**\
+`No corrections appeared in print on Sunday, Aug. 10, 2025.`\
+https://nytimes.com/2025/08/10/pageoneplus/no-corrections-aug-10-2025.html
+
+**Connections: Sports Edition Coach: Hints for Aug. 10, 2025**\
+`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
+https://nytimes.com/athletic/6543816/2025/08/10/connections-sports-edition-hints-for-aug-10-2025/
+
 **First-place Brewers continue torrid pace, but Cubs remain focused on task at hand**\
 `Cubs fans who have caught Brewers games of late have likely been dumbfounded by their performance.`\
 https://nytimes.com/athletic/6544733/2025/08/09/brewers-continue-torrid-pace-cubs-remain-focused-on-task-at-hand/
@@ -9,32 +37,4 @@ https://nytimes.com/athletic/6544744/2025/08/09/rams-matthew-stafford-sean-mcvay
 **J.J. McCarthy's preseason performance and other Vikings risers and fallers from win**\
 `Running back Zavier Scott was among the top performers Saturday.`\
 https://nytimes.com/athletic/6544645/2025/08/09/vikings-preaseason-j-j-mccarthy-risers-fallers/
-
-**Travis Hunter plays both ways in NFL debut, Cam Little nails 70-yard field goal**\
-`Two-way rookie Hunter, expected to contribute at wide receiver and cornerback, opened the game on offense.`\
-https://nytimes.com/athletic/6544630/2025/08/09/travis-hunter-nfl-debut-jaguars-cam-little/
-
-**'We wanted him to play': James Cook dresses but refuses to take field for Bills**\
-`James Cook has seen several other Bills in his class get new contracts.`\
-https://nytimes.com/athletic/6544529/2025/08/09/buffalo-bills-james-cook-hold-in-contract/
-
-**Connor Zilisch suffers broken collarbone in fall in victory lane**\
-`Trackhouse Racing confirmed it has withdrawn Zilisch's car from Sunday's Cup Series race. `\
-https://nytimes.com/athletic/6544572/2025/08/09/connor-zilisch-injury-nascar/
-
-**Bills takeaways from preseason loss to Giants: Tre'Davious White, Joey Bosa have mixed day**\
-`The Bills got a valuable first look at some veterans and rookies on Saturday.`\
-https://nytimes.com/athletic/6544514/2025/08/09/bills-preseason-giants-tredavious-white-joey-bosa/
-
-**Pete Alonso hits home run No. 252, tying him with Darryl Strawberry as Mets' all-time leader**\
-`After a long stretch without a homer to end July, New York's first baseman hit his fourth home run in August to match Strawberry.`\
-https://nytimes.com/athletic/6544541/2025/08/09/pete-alonso-home-run-mets-leader-darryl-strawberry/
-
-**Jaxson Dart's promising debut fuels optimism, even if there's no QB controversy yet**\
-`Giants coach Brian Daboll was uncharacteristically effusive in his praise of Dart before noting that it was only one preseason game.`\
-https://nytimes.com/athletic/6544484/2025/08/09/jaxson-dart-preseason-debut-giants/
-
-**Five things we've learned about Iowa's new-look offense in mid-August**\
-`Let's take a look at the backup quarterback battle, offensive line, wide receivers and more after Saturday's scrimmage.`\
-https://nytimes.com/athletic/6544428/2025/08/09/iowa-hawkeyes-football-mark-gronowski/
 
