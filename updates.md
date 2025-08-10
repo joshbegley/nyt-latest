@@ -1,3 +1,11 @@
+**How to watch Lynx vs. Liberty: Secondary stars in the spotlight for WNBA Rivals Week**\
+`The Minnesota Lynx visit the defending champion New York Liberty in the second of four meetings between the two WNBA heavyweights.`\
+https://nytimes.com/athletic/6543090/2025/08/10/wnba-rivalry-week-lynx-liberty-injuries-how-to-watch/
+
+**The New York Times International Edition in Print for Monday, Aug. 11, 2025**\
+``\
+https://nytimes.com/issue/todaysinyt/2025/08/10/todays-new-york-times-international-edition
+
 **What We Know About the C.D.C. Shooting in Atlanta**\
 `A gunman who believed the Covid-19 vaccine had made him ill fired at the agency’s Atlanta offices, killing a police officer and rattling the public health community.`\
 https://nytimes.com/2025/08/10/us/cdc-shooting-atlanta.html

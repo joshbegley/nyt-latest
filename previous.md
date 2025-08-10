@@ -1,3 +1,11 @@
+**How to watch Lynx vs. Liberty: Secondary stars in the spotlight for WNBA Rivals Week**\
+`The Minnesota Lynx visit the defending champion New York Liberty in the second of four meetings between the two WNBA heavyweights.`\
+https://nytimes.com/athletic/6543090/2025/08/10/wnba-rivalry-week-lynx-liberty-injuries-how-to-watch/
+
+**The New York Times International Edition in Print for Monday, Aug. 11, 2025**\
+``\
+https://nytimes.com/issue/todaysinyt/2025/08/10/todays-new-york-times-international-edition
+
 **What We Know About the C.D.C. Shooting in Atlanta**\
 `A gunman who believed the Covid-19 vaccine had made him ill fired at the agency’s Atlanta offices, killing a police officer and rattling the public health community.`\
 https://nytimes.com/2025/08/10/us/cdc-shooting-atlanta.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/08/10/us/politics/mayor-bass-los-angeles-raids.html
 **Down Payment Assistance Is a Growing Tool for Home Buyers**\
 `The number of these programs, which come from a range of sources, is rising in the United States, but there are barriers to entry.`\
 https://nytimes.com/2025/08/10/realestate/downpayment-assistance-programs-home-buyers.html
-
-**Key Takeaways From The Times’s Reporting on Putin’s Powerful Aide**\
-`Showing an uncanny ability to adapt to circumstances, Sergei V. Kiriyenko has turned himself into a key engineer of President Vladimir V. Putin’s autocratic machine.`\
-https://nytimes.com/2025/08/10/world/europe/russia-putin-kiriyenko-takeaways.html
-
-**What Happened When Mark Zuckerberg Moved In Next Door**\
-`The billionaire has bought at least 11 properties in Palo Alto, Calif., creating a compound for his family, a private school for his children — and headaches for his neighbors.`\
-https://nytimes.com/2025/08/10/us/mark-zuckerberg-palo-alto.html
 
