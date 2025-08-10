@@ -1,3 +1,7 @@
+**Bears preseason takeaways: Ben Johnson nails clock management; backup QBs show poise**\
+`It's just the preseason, but the way Tyson Bagent and Case Keenum played Sunday had to make Johnson feel good about his QB depth chart. `\
+https://nytimes.com/athletic/6545719/2025/08/10/chicago-bears-ben-johnson-preseason-dolphins/
+
 **Braves takeaways: Hurston Waldrep adjusts, thrives; Drake Baldwin, Michael Harris II stay hot**\
 `A pair of rookies gave Atlanta fans something to be excited about from the team's woeful season.`\
 https://nytimes.com/athletic/6545668/2025/08/10/braves-win-marlins-hurston-waldrep-drake-baldwin-michael-harris-ii/

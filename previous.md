@@ -1,3 +1,7 @@
+**Bears preseason takeaways: Ben Johnson nails clock management; backup QBs show poise**\
+`It's just the preseason, but the way Tyson Bagent and Case Keenum played Sunday had to make Johnson feel good about his QB depth chart. `\
+https://nytimes.com/athletic/6545719/2025/08/10/chicago-bears-ben-johnson-preseason-dolphins/
+
 **Braves takeaways: Hurston Waldrep adjusts, thrives; Drake Baldwin, Michael Harris II stay hot**\
 `A pair of rookies gave Atlanta fans something to be excited about from the team's woeful season.`\
 https://nytimes.com/athletic/6545668/2025/08/10/braves-win-marlins-hurston-waldrep-drake-baldwin-michael-harris-ii/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6545374/2025/08/10/bengals-preseason-roster-depth-c
 **His Party Reeling, a Democratic Senator Tries a Message of Hope in Iowa**\
 `Senator Ruben Gallego of Arizona won his seat last year by outperforming national Democrats among Hispanic voters and men. He wants the party to listen to his message as it regroups.`\
 https://nytimes.com/2025/08/10/us/politics/senator-gallego-democrats-iowa.html
-
-**Map: 6.1-Magnitude Earthquake Strikes Turkey**\
-`View the location of the quake’s epicenter and shake area.`\
-https://nytimes.com/interactive/2025/08/10/world/europe/earthquake-turkey-maps.html
 

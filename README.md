@@ -1,3 +1,7 @@
+**Mets' latest 7-game skid might be the most worrisome: 'We gotta get our starters going'**\
+`No starter other than David Peterson has pitched six innings since June 7. `\
+https://nytimes.com/athletic/6545777/2025/08/10/mets-losing-streak-starting-pitchers/
+
 **Bears preseason takeaways: Ben Johnson nails clock management; backup QBs show poise**\
 `It's just the preseason, but the way Tyson Bagent and Case Keenum played Sunday had to make Johnson feel good about his QB depth chart. `\
 https://nytimes.com/athletic/6545719/2025/08/10/chicago-bears-ben-johnson-preseason-dolphins/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6545490/2025/08/10/diogo-jota-minute-silence-liverp
 **Bengals preseason game fallout: Safety, offensive line, receiver experience movement**\
 `Cutdown day is around the corner and three positions are under the microscope after the Bengals' first preseason game.`\
 https://nytimes.com/athletic/6545374/2025/08/10/bengals-preseason-roster-depth-chart-movement/
-
-**His Party Reeling, a Democratic Senator Tries a Message of Hope in Iowa**\
-`Senator Ruben Gallego of Arizona won his seat last year by outperforming national Democrats among Hispanic voters and men. He wants the party to listen to his message as it regroups.`\
-https://nytimes.com/2025/08/10/us/politics/senator-gallego-democrats-iowa.html
 
