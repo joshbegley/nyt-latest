@@ -1,4 +1,4 @@
-**Travis Hunter plays both ways in debut, Cam Little nails 70-yard field goal**\
+**Travis Hunter plays both ways in NFL debut, Cam Little nails 70-yard field goal**\
 `Two-way rookie Hunter, expected to contribute at wide receiver and cornerback, opened the game on offense.`\
 https://nytimes.com/athletic/6544630/2025/08/09/travis-hunter-nfl-debut-jaguars-cam-little/
 
