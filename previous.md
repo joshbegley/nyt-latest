@@ -1,3 +1,19 @@
+**Rangers starter Nathan Eovaldi is having his best season at age 35. Here's why**\
+`Eovaldi is putting up numbers that have him in elite company this season. The changes he's made are subtle but significant.`\
+https://nytimes.com/athletic/6542900/2025/08/10/nathan-eovaldi-texas-rangers-pitch-mix-analysis/
+
+**Josh Simmons passes test: 5 takeaways from Chiefs' preseason opener vs. Cardinals**\
+`It was a short night for Patrick Mahomes, whose one pass went for a TD, and a bit of a long one for guard Kingsley Suamataia.`\
+https://nytimes.com/athletic/6543819/2025/08/10/chiefs-cardinals-patrick-mahomes-josh-simmons/
+
+**Roster battles heat up at WR, LB, CB: Steelers 53-man roster projection after preseason opener**\
+`The drama over the next few weeks will come toward the bottom of the depth chart at some key positions.`\
+https://nytimes.com/athletic/6544646/2025/08/10/steelers-53-man-roster-projection-jaguars-preseason-opener/
+
+**Packers preseason opener: 3 who struggled, 3 who impressed in blowout loss to Jets**\
+`The Packers began their preseason slate flat, dropping a noncompetitive game against the Jets by 20 points. Also, news on Jayden Reed.`\
+https://nytimes.com/athletic/6544861/2025/08/10/packers-preseason-opener-golden-enagbare/
+
 **Joe Milton had too many fastballs, not enough changeups in Cowboys' preseason debut**\
 `Joe Milton hasn't played a lot of NFL football and it showed vs. the Rams. Brian Schottenheimer called it a 'great learning experience."`\
 https://nytimes.com/athletic/6544827/2025/08/10/cowboys-joe-milton-preseason-analysis/
@@ -21,20 +37,4 @@ https://nytimes.com/2025/08/10/crosswords/wordle-review-1514.html
 **Strands Sidekick No. 526**\
 `Scroll down for hints and conversation about the puzzle for Monday, Aug. 11, 2025.`\
 https://nytimes.com/2025/08/10/crosswords/strands-sidekick-526.html
-
-**The Truth About Detransitioning**\
-`I had a good experience with trans health care. I spend a lot of time talking to people who did not.`\
-https://nytimes.com/2025/08/10/opinion/trans-health-care-detransitioning.html
-
-**Connections Companion No. 792**\
-`Scroll down for hints and conversation about the puzzle for Monday, Aug. 11, 2025.`\
-https://nytimes.com/2025/08/10/crosswords/connections-companion-792.html
-
-**Nottingham Forest's pre-season unease: One goal scored and is Nuno making a point about transfers?**\
-`Forest appear to have a need for further recruits to fill gaps in their squad after a pre-season where they've had five goalless draws`\
-https://nytimes.com/athletic/6544927/2025/08/10/nottingham-forest-nuno-pre-season-goals-draws/
-
-**Ukraine and Europe Project United Front Ahead of Trump-Putin Summit**\
-`Washington’s push to negotiate an end to the war has raised concerns the Trump administration will make concessions to Moscow that Kyiv cannot accept.`\
-https://nytimes.com/2025/08/10/world/europe/ukraine-europe-zelensky-trump-putin.html
 
