@@ -15,7 +15,7 @@ https://nytimes.com/athletic/6545490/2025/08/10/diogo-jota-minute-silence-liverp
 https://nytimes.com/athletic/6545374/2025/08/10/bengals-preseason-roster-depth-chart-movement/
 
 **His Party Reeling, a Democratic Senator Tries a Message of Hope in Iowa**\
-`Senator Ruben Gallego of Arizona won his seat last year by outperforming national Democrats among Hispanic voters and men. He wants the party to listen to listen to his message as it regroups.`\
+`Senator Ruben Gallego of Arizona won his seat last year by outperforming national Democrats among Hispanic voters and men. He wants the party to listen to his message as it regroups.`\
 https://nytimes.com/2025/08/10/us/politics/senator-gallego-democrats-iowa.html
 
 **Map: 6.1-Magnitude Earthquake Strikes Turkey**\

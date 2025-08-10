@@ -1,3 +1,7 @@
+**His Party Reeling, a Democratic Senator Tries a Message of Hope in Iowa**\
+`Senator Ruben Gallego of Arizona won his seat last year by outperforming national Democrats among Hispanic voters and men. He wants the party to listen to his message as it regroups.`\
+https://nytimes.com/2025/08/10/us/politics/senator-gallego-democrats-iowa.html
+
 **Earthquake Strikes Western Turkey**\
 `Rescue efforts were continuing as officials tried to assess damage in a region prone to disaster.`\
 https://nytimes.com/2025/08/10/world/europe/earthquake-western-turkey-sindirgi.html
