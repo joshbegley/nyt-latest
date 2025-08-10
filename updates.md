@@ -1,3 +1,7 @@
+**Trump Nominates Tammy Bruce for U.N. Role**\
+`Ms. Bruce, who has been the State Department spokeswoman since January, was a longtime political commentator and contributor at Fox News.`\
+https://nytimes.com/2025/08/10/us/politics/trump-tammy-bruce-un-nomination.html
+
 **The Briefing - Palermo 0 Manchester City 3: Reijnders double, Cherki's promise, and Haaland scores with his right foot**\
 `Anantaajith Raghuraman breaks down the main talking points from Manchester City's 3-0 win over Palermo`\
 https://nytimes.com/athletic/6544540/2025/08/10/palermo-0-3-manchester-city-briefing-reijnders-haaland-cherki/
