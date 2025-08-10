@@ -1,3 +1,7 @@
+**Travis Hunter debuts, Cam Little nails 70-yard preseason field goal**\
+`Two-way rookie Hunter, expected to contribute at wide receiver and cornerback, opened the game on offense.`\
+https://nytimes.com/athletic/6544630/2025/08/09/travis-hunter-nfl-debut-jaguars-cam-little/
+
 **'We wanted him to play': James Cook dresses but refuses to take field for Bills**\
 `James Cook has seen several other Bills in his class get new contracts.`\
 https://nytimes.com/athletic/6544529/2025/08/09/buffalo-bills-james-cook-hold-in-contract/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/09/world/americas/drug-cartels-us-terrorist-designat
 **Mariano Rivera tears Achilles during Yankees Old-Timers' Day game**\
 `Roger Clemens told the team's radio broadcasters that the Hall-of-Fame closer went to the hospital to get examined.`\
 https://nytimes.com/athletic/6544433/2025/08/09/mariano-rivera-achilles-injury-yankees-old-timers-day/
-
-**Cuomo Opens Line of Attack Over Mamdani’s Rent-Stabilized Apartment**\
-`The former governor’s post, written on X on Friday, reflected how he has adopted a stance of more aggressive, personal jabs.`\
-https://nytimes.com/2025/08/09/nyregion/cuomo-mamdani-apartment-rent-control.html
 
