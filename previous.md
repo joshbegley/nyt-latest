@@ -1,8 +1,12 @@
+**Trump and Putin May Get a Cold Reception From Some Alaskans**\
+`Warm relations between Alaskans and Russians began to shift with the rise of Vladimir Putin and the invasion of Ukraine. In Alaska, feelings on the two leaders’ meeting seemed mixed.`\
+https://nytimes.com/2025/08/10/us/politics/trump-putin-alaska-reaction.html
+
 **Terry Reid, Rock Singer Known as ‘Superlungs,’ Dies at 75**\
 `He missed his chance to be Led Zeppelin’s lead vocalist, but his solo work — and his otherworldly voice — drew raves from Aretha Franklin and others.`\
 https://nytimes.com/2025/08/10/arts/music/terry-reid-dead.html
 
-**Phillies activate David Robertson as post-trade deadline bullpen takes shape**\
+**Phillies activate David Robertson as stretch run deadline bullpen takes shape**\
 `After two weeks in Triple A, Robertson begins his third tenure with the team, boosting the bullpen for the stretch run — and beyond.`\
 https://nytimes.com/athletic/6544620/2025/08/10/david-robertson-phillies-bullpen/
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6544807/2025/08/10/a-crash-course-for-new-collector
 **Camavinga sustains ankle injury, could miss start of La Liga season**\
 `Camavinga, 22, missed the final six matches of Madrid's 2024-25 season — including the Copa del Rey final — due to an abductor injury.`\
 https://nytimes.com/athletic/6544982/2025/08/10/real-madrid-eduardo-camavinga-injury-update/
-
-**Jets 53-man roster projection: How much room is there for the running backs?**\
-`A look at how the roster stacks up after Saturday's impressive win over the Packers.`\
-https://nytimes.com/athletic/6544823/2025/08/10/jets-53-man-roster-projection-preseason-opener-packers/
 

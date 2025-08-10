@@ -1,3 +1,11 @@
+**Trump and Putin May Get a Cold Reception From Some Alaskans**\
+`Warm relations between Alaskans and Russians began to shift with the rise of Vladimir Putin and the invasion of Ukraine. In Alaska, feelings on the two leaders’ meeting seemed mixed.`\
+https://nytimes.com/2025/08/10/us/politics/trump-putin-alaska-reaction.html
+
+**Phillies activate David Robertson as stretch run deadline bullpen takes shape**\
+`After two weeks in Triple A, Robertson begins his third tenure with the team, boosting the bullpen for the stretch run — and beyond.`\
+https://nytimes.com/athletic/6544620/2025/08/10/david-robertson-phillies-bullpen/
+
 **Terry Reid, Rock Singer Known as ‘Superlungs,’ Dies at 75**\
 `He missed his chance to be Led Zeppelin’s lead vocalist, but his solo work — and his otherworldly voice — drew raves from Aretha Franklin and others.`\
 https://nytimes.com/2025/08/10/arts/music/terry-reid-dead.html
