@@ -1,3 +1,11 @@
+**'We wanted him to play': James Cook dresses but refuses to take field for Bills**\
+`James Cook has seen several other Bills in his class get new contracts.`\
+https://nytimes.com/athletic/6544529/2025/08/09/buffalo-bills-james-cook-hold-in-contract/
+
+**Connor Zilisch taken to hospital after fall in victory lane**\
+`Zilisch had just won Saturday’s Xfinity Series race at Watkins Glen International when he appeared to lose his footing and fall off his car.`\
+https://nytimes.com/athletic/6544572/2025/08/09/connor-zilisch-injury-nascar/
+
 **Bills takeaways from preseason loss to Giants: Tre'Davious White, Joey Bosa have mixed day**\
 `The Bills got a valuable first look at some veterans and rookies on Saturday.`\
 https://nytimes.com/athletic/6544514/2025/08/09/bills-preseason-giants-tredavious-white-joey-bosa/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6544433/2025/08/09/mariano-rivera-achilles-injury-y
 **Cuomo Opens Line of Attack Over Mamdani’s Rent-Stabilized Apartment**\
 `The former governor’s post, written on X on Friday, reflected how he has adopted a stance of more aggressive, personal jabs.`\
 https://nytimes.com/2025/08/09/nyregion/cuomo-mamdani-apartment-rent-control.html
-
-**After Fire Destroys Their Synagogue, Congregants Gather to Pray**\
-`Congregation Beth El in Rutherford, N.J., held a Sabbath service near the charred debris that remained. Members pledged to rebuild.`\
-https://nytimes.com/2025/08/09/nyregion/rutherford-new-jersey-synagogue-fire-sabbath.html
-
-**Milan interested in Hojlund transfer, Man Utd open to loan deal**\
-`United remain willing to sell Hojlund, who is available for just over £30million, although a loan exit would be considered as an alternative`\
-https://nytimes.com/athletic/6429365/2025/08/09/rasmus-hojlund-milan-manchester-united-transfers/
 
