@@ -6,8 +6,8 @@ https://nytimes.com/2025/08/10/briefing/north-korea-ukraine-us-russia-trump-puti
 `Club-to-club talks are taking place, while personal terms for the U.S. international are not expected to be an issue.`\
 https://nytimes.com/athletic/6545429/2025/08/10/nottingham-forest-transfers-yunus-musah-milan/
 
-**Earthquake Strikes Western Turkey**\
-`Rescue efforts were continuing as officials tried to assess damage in a region prone to disaster.`\
+**Western Turkey Is Hit by Earthquake but Avoids Major Damage**\
+`Rescue efforts were continuing after the 6.1-magnitude temblor struck in a region that is crisscrossed by fault lines.`\
 https://nytimes.com/2025/08/10/world/europe/earthquake-western-turkey-sindirgi.html
 
 **Flash Flooding in Wisconsin Hits the Milwaukee Area**\

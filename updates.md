@@ -1,3 +1,7 @@
+**Western Turkey Is Hit by Earthquake but Avoids Major Damage**\
+`Rescue efforts were continuing after the 6.1-magnitude temblor struck in a region that is crisscrossed by fault lines.`\
+https://nytimes.com/2025/08/10/world/europe/earthquake-western-turkey-sindirgi.html
+
 **Monday Briefing: North Korea’s Heir Apparent**\
 `Also, Europe closed ranks ahead of the Alaska summit.`\
 https://nytimes.com/2025/08/10/briefing/north-korea-ukraine-us-russia-trump-putin.html
