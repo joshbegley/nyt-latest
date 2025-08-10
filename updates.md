@@ -1,3 +1,7 @@
+**Trump Attacked California’s Congressional Maps. Republicans Want to Save Them.**\
+`The independent body that redraws the state’s political maps isn’t perfect, many Republicans say. But they prefer that to the gerrymander that Gov. Gavin Newsom seeks to offset one proposed in Texas.`\
+https://nytimes.com/2025/08/10/us/california-redistricting-independent-commission.html
+
 **JD Vance says U.S. is working for a meeting with Trump, Putin and Zelensky.**\
 `By Luke Broadwater`\
 https://nytimes.com/live/2025/08/10/us/trump-news/jd-vance-zelensky-trump-putin
