@@ -1,7 +1,3 @@
-**Ukraine and Europe Project United Front Ahead of Trump-Putin Summit**\
-`Washington’s push to negotiate an end to the war has raised concerns the Trump administration will make concessions to Moscow that Kyiv cannot accept.`\
-https://nytimes.com/2025/08/10/world/europe/ukraine-europe-zelensky-trump-putin.html
-
 **How to watch Lynx vs. Liberty: Secondary stars in the spotlight for WNBA Rivals Week**\
 `The Minnesota Lynx visit the defending champion New York Liberty in the second of four meetings between the two WNBA heavyweights.`\
 https://nytimes.com/athletic/6543090/2025/08/10/wnba-rivalry-week-lynx-liberty-injuries-how-to-watch/
@@ -37,4 +33,8 @@ https://nytimes.com/2025/08/10/us/zuckerberg-compound-palo-alto-school.html
 **Trump Raids Help Stir a Political Reversal for Karen Bass**\
 `The mayor of Los Angeles has emerged as a leading voice of the city’s resistance to the Trump administration after facing criticism for her handling of the wildfires.`\
 https://nytimes.com/2025/08/10/us/politics/mayor-bass-los-angeles-raids.html
+
+**Down Payment Assistance Is a Growing Tool for Home Buyers**\
+`The number of these programs, which come from a range of sources, is rising in the United States, but there are barriers to entry.`\
+https://nytimes.com/2025/08/10/realestate/downpayment-assistance-programs-home-buyers.html
 
