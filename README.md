@@ -1,3 +1,7 @@
+**Crystal Palace 2-2 Liverpool (3-2 pens): FA Cup winners seal Community Shield victory after more Henderson shootout heroics**\
+`The Athletic's writers break down the key moments from the 2025 Community Shield `\
+https://nytimes.com/athletic/6545064/2025/08/10/crystal-palace-liverpool-community-shield-result-analysis/
+
 **Trump and Putin May Get a Cold Reception From Some Alaskans**\
 `Warm relations between Alaskans and Russians began to shift with the rise of Vladimir Putin and the invasion of Ukraine. In Alaska, feelings on the two leaders’ meeting seemed mixed.`\
 https://nytimes.com/2025/08/10/us/politics/trump-putin-alaska-reaction.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6545148/2025/08/10/japan-boxers-deaths/
 **The Pulse: A crash course for new collectors**\
 `Welcome to The Pulse, The Athletic's daily sports newsletter.`\
 https://nytimes.com/athletic/6544807/2025/08/10/a-crash-course-for-new-collectors-and-a-70-yard-stunner/
-
-**Camavinga sustains ankle injury, could miss start of La Liga season**\
-`Camavinga, 22, missed the final six matches of Madrid's 2024-25 season — including the Copa del Rey final — due to an abductor injury.`\
-https://nytimes.com/athletic/6544982/2025/08/10/real-madrid-eduardo-camavinga-injury-update/
 
