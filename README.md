@@ -1,3 +1,7 @@
+**Terry Reid, Rock Singer Known as ‘Superlungs,’ Dies at 75**\
+`He missed his chance to be Led Zeppelin’s lead vocalist, but his solo work — and his otherworldly voice — drew raves from Aretha Franklin and others.`\
+https://nytimes.com/2025/08/10/arts/music/terry-reid-dead.html
+
 **Phillies activate David Robertson as post-trade deadline bullpen takes shape**\
 `After two weeks in Triple A, Robertson begins his third tenure with the team, boosting the bullpen for the stretch run — and beyond.`\
 https://nytimes.com/athletic/6544620/2025/08/10/david-robertson-phillies-bullpen/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6544982/2025/08/10/real-madrid-eduardo-camavinga-in
 **Jets 53-man roster projection: How much room is there for the running backs?**\
 `A look at how the roster stacks up after Saturday's impressive win over the Packers.`\
 https://nytimes.com/athletic/6544823/2025/08/10/jets-53-man-roster-projection-preseason-opener-packers/
-
-**A QB2 battle brewing? Five things we learned this week at Raiders training camp**\
-`The week started with a significant trade, and ended with mixed results in the preseason opener.`\
-https://nytimes.com/athletic/6544402/2025/08/10/raiders-training-camp-report-qb2-battle/
 
