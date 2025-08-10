@@ -1,3 +1,7 @@
+**Far-Right Israeli Minister Calls for Quicker Military Moves in Gaza**\
+`Bezalel Smotrich, the hard-line finance minister, said that Israel needed to move more decisively and quickly to defeat Hamas.`\
+https://nytimes.com/2025/08/10/world/middleeast/smotrich-israel-gaza-takeover-netanyahu.html
+
 **Evaluating Bo Nix's start and other observations from Broncos' preseason win vs. 49ers**\
 `The Broncos' second-year QB committed a penalty that resulted in a safety but ended night by leading a field-goal drive.`\
 https://nytimes.com/athletic/6544657/2025/08/10/bo-nix-broncos-preseason-opener/

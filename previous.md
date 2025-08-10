@@ -14,7 +14,7 @@ https://nytimes.com/athletic/6544871/2025/08/10/49ers-preseason-broncos-rookies-
 `Some jurors experience mental health effects years after a trial ends.`\
 https://nytimes.com/2025/08/10/briefing/jury-duty-mental-health-trauma.html
 
-**Far-Right Israeli Minister Condemns Plan for Gradual Military Expansion in Gaza**\
+**Far-Right Israeli Minister Calls for Quicker Military Moves in Gaza**\
 `Bezalel Smotrich, the hard-line finance minister, said that Israel needed to move more decisively and quickly to defeat Hamas.`\
 https://nytimes.com/2025/08/10/world/middleeast/smotrich-israel-gaza-takeover-netanyahu.html
 
