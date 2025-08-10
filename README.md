@@ -1,3 +1,7 @@
+**Matthew Stafford to start practicing Monday, per Sean McVay**\
+`Stafford has been recovering from an aggravated disk that caused back soreness for the last several weeks.`\
+https://nytimes.com/athletic/6544744/2025/08/09/rams-matthew-stafford-sean-mcvay/
+
 **J.J. McCarthy's preseason performance and other Vikings risers and fallers from win**\
 `Running back Zavier Scott was among the top performers Saturday.`\
 https://nytimes.com/athletic/6544645/2025/08/09/vikings-preaseason-j-j-mccarthy-risers-fallers/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6544428/2025/08/09/iowa-hawkeyes-football-mark-gron
 **Passing Glances**\
 `Adam Wagner and Chandi Deitmer team up on a puzzle so great you can’t look away.`\
 https://nytimes.com/2025/08/09/crosswords/daily-puzzle-2025-08-10.html
-
-**These Are Drug Cartels Designated as Terrorists by the U.S.**\
-`President Trump has signed an order telling the Pentagon to begin using military force against certain criminal gangs that the United States has named terror organizations.`\
-https://nytimes.com/2025/08/09/world/americas/drug-cartels-us-terrorist-designation.html
 
