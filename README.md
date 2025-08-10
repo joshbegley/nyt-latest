@@ -1,3 +1,11 @@
+**Camavinga sustains ankle injury, could miss start of La Liga season**\
+`Camavinga, 22, missed the final six matches of Madrid's 2024-25 season — including the Copa del Rey final — due to an abductor injury.`\
+https://nytimes.com/athletic/6544982/2025/08/10/real-madrid-eduardo-camavinga-injury-update/
+
+**Jets 53-man roster projection: How much room is there for the running backs?**\
+`A look at how the roster stacks up after Saturday's impressive win over the Packers.`\
+https://nytimes.com/athletic/6544823/2025/08/10/jets-53-man-roster-projection-preseason-opener-packers/
+
 **A QB2 battle brewing? Five things we learned this week at Raiders training camp**\
 `The week started with a significant trade, and ended with mixed results in the preseason opener.`\
 https://nytimes.com/athletic/6544402/2025/08/10/raiders-training-camp-report-qb2-battle/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6544871/2025/08/10/49ers-preseason-broncos-rookies-
 **Jury Duties**\
 `Some jurors experience mental health effects years after a trial ends.`\
 https://nytimes.com/2025/08/10/briefing/jury-duty-mental-health-trauma.html
-
-**Far-Right Israeli Minister Calls for Quicker Military Moves in Gaza**\
-`Bezalel Smotrich, the hard-line finance minister, called a plan to gradually expand operations in Gaza “foolish,” saying that Israel should move more decisively and quickly to defeat Hamas.`\
-https://nytimes.com/2025/08/10/world/middleeast/smotrich-israel-gaza-takeover-netanyahu.html
-
-**Bournemouth reach agreement to sign Lille centre-back Diakite**\
-`The 24-year-old is undergoing a medical in London today ahead of signing a five-year contract at the club.`\
-https://nytimes.com/athletic/6545028/2025/08/10/bournemouth-bafode-diakite-transfer/
 
