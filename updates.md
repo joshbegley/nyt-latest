@@ -1,3 +1,7 @@
+**Now healthy, Blake Snell is making his impression with a suddenly strong Dodgers rotation**\
+`Snell could very well be the most important arm in getting the Dodgers where they want to be to repeat in October.`\
+https://nytimes.com/athletic/6544832/2025/08/10/blake-snell-dodgers-rotation-healthy/
+
 **Mets steeped in exasperation, error in loss to Brewers, their sixth straight**\
 `"We'll turn it around," Mets manager Carlos Mendoza said. "I know I sound like a broken record. There's too much talent there."`\
 https://nytimes.com/athletic/6544792/2025/08/10/mets-lose-brewers-francisco-lindor/
