@@ -1,3 +1,19 @@
+**The New York Times in Print for Sunday, Aug. 10, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/08/10/todays-new-york-times
+
+**Trump Is Turning Us Into a Doddering Industrial Giant**\
+`Smothering electric vehicles might have been a regrettable mistake for a Republican to make 10 years ago. Today, it is economic idiocy.`\
+https://nytimes.com/2025/08/10/opinion/electric-vehicles-china-clean-energy.html
+
+**There Is a Specter Haunting Trump’s Economy: Stagflation**\
+`The president’s policies are fueling the dreaded combination of slowing growth and rising inflation.`\
+https://nytimes.com/2025/08/10/opinion/stagflation-trump-economy.html
+
+**Book Blacklist in Kashmir Aims to Muzzle Criticism of India**\
+`The federally appointed government in the contested region has declared 25 books off limits, part of what many see as a pattern of repression.`\
+https://nytimes.com/2025/08/10/world/asia/book-ban-india-kashmir.html
+
 **Book Blacklist in Kashmir Aims to Muzzle Criticism of India**\
 `The federally appointed government in the contested region has declared 25 books off-limits, part of what many see as a pattern of repression.`\
 https://nytimes.com/2025/08/10/world/asia/book-ban-india-kashmir.html

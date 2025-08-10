@@ -1,3 +1,7 @@
+**Mets steeped in exasperation, error in loss to Brewers, their sixth straight**\
+`"We'll turn it around," Mets manager Carlos Mendoza said. "I know I sound like a broken record. There's too much talent there."`\
+https://nytimes.com/athletic/6544792/2025/08/10/mets-lose-brewers-francisco-lindor/
+
 **The New York Times in Print for Sunday, Aug. 10, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/08/10/todays-new-york-times
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6544663/2025/08/10/son-heung-min-lafc-debut-mls-chi
 **The Briefing: Everton 0 Roma 1 - Dewsbury-Hall impresses but are Moyes' side ready for the season?**\
 `It has been a difficult pre-season on and off the pitch but there were at least reasons for optimism for a capacity crowd on Saturday`\
 https://nytimes.com/athletic/6544419/2025/08/10/everton-roma-dewsbury-hall/
-
-**Behind Europe’s Anguished Words on Gaza, a Flurry of Hard Diplomacy**\
-`Images of starving children and Israel’s planned expansion of settlements spurred Britain, France and Germany to a tougher stance. Prime Minister Benjamin Netanyahu was undeterred.`\
-https://nytimes.com/2025/08/10/world/europe/gaza-europe-peace-plan-trump-netanyahu.html
 
