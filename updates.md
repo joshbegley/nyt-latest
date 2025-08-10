@@ -1,3 +1,7 @@
+**Ukraine and Europe Project United Front Ahead of Trump-Putin Summit**\
+`Washington’s push to negotiate an end to the war has raised concerns the Trump administration will make concessions to Moscow that Kyiv cannot accept.`\
+https://nytimes.com/2025/08/10/world/europe/ukraine-europe-zelensky-trump-putin.html
+
 **How to watch Lynx vs. Liberty: Secondary stars in the spotlight for WNBA Rivals Week**\
 `The Minnesota Lynx visit the defending champion New York Liberty in the second of four meetings between the two WNBA heavyweights.`\
 https://nytimes.com/athletic/6543090/2025/08/10/wnba-rivalry-week-lynx-liberty-injuries-how-to-watch/
