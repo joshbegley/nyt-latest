@@ -1,3 +1,7 @@
+**Flash Flooding in Wisconsin Hits the Milwaukee Area**\
+`Milwaukee and its neighboring area experienced record-setting rains, leading to the early closure of the Wisconsin State Fair and flash flooding that left some residents stranded.`\
+https://nytimes.com/video/us/100000010333008/milwaukee-flood-rain-wisconsin.html
+
 **Van Dijk 'disappointed' after minute's silence for Diogo Jota disrupted**\
 `Both teams gathered before kick-off in Sunday's Community Shield to pay their respects to Jota and his brother Andre Silva.`\
 https://nytimes.com/athletic/6545490/2025/08/10/diogo-jota-minute-silence-liverpool-crystal-palace/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/10/us/california-redistricting-independent-commissio
 **JD Vance says U.S. is working for a meeting with Trump, Putin and Zelensky.**\
 `By Luke Broadwater`\
 https://nytimes.com/live/2025/08/10/us/trump-news/jd-vance-zelensky-trump-putin
-
-**U.S. rider McNulty wins Tour de Pologne after final stage time trial**\
-`The 27-year-old had been second entering the stage, seven seconds behind INEOS Grenadiers’ Victor Langelotti.`\
-https://nytimes.com/athletic/6545384/2025/08/10/brandon-mcnulty-tour-win-time-trial/
 
