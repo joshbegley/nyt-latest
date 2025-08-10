@@ -1,3 +1,7 @@
+**Trump Nominates Tammy Bruce for U.N. Role**\
+`Ms. Bruce, who has been the State Department spokeswoman since January, was a longtime political commentator and contributor at Fox News.`\
+https://nytimes.com/2025/08/10/us/politics/trump-tammy-bruce-un-nomination.html
+
 **In a Trump-Putin Summit, Ukraine Fears Losing Say Over Its Future**\
 `Since President Trump retook office, many Ukrainians have worried a peace accord would be struck without them.`\
 https://nytimes.com/2025/08/10/us/politics/trump-putin-meeting-ukraine.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6544540/2025/08/10/palermo-0-3-manchester-city-brie
 **Have You Seen ‘Weapons’? We Talk About What It Might Mean**\
 `A spoiler-heavy journey through some of the movie’s mysteries.`\
 https://nytimes.com/2025/08/10/movies/weapons-spoilers.html
-
-**Inside the world of Premier League referees: New rules, fitness testing and coping with pressure**\
-`The Athletic travels to Spain to spend pre-season with top-flight referees as part of a special feature podcast episode`\
-https://nytimes.com/athletic/6536610/2025/08/10/inside-the-world-of-premier-league-referees/
 
