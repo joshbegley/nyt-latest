@@ -1,3 +1,7 @@
+**Connor Zilisch suffers broken collarbone in fall in victory lane**\
+`Trackhouse Racing confirmed it has withdrawn Zilisch's car from Sunday's Cup Series race. `\
+https://nytimes.com/athletic/6544572/2025/08/09/connor-zilisch-injury-nascar/
+
 **Connor Zilisch suffers broken collarbone after fall in victory lane**\
 `Trackhouse Racing confirmed it has withdrawn Zilisch's car from Sunday's Cup Series race. `\
 https://nytimes.com/athletic/6544572/2025/08/09/connor-zilisch-injury-nascar/

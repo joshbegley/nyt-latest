@@ -1,3 +1,7 @@
+**J.J. McCarthy’s preseason performance and other Vikings risers and fallers from win**\
+`Running back Zavier Scott was among the top performers on Saturday.`\
+https://nytimes.com/athletic/6544645/2025/08/09/vikings-preaseason-j-j-mccarthy-risers-fallers/
+
 **Travis Hunter plays both ways in NFL debut, Cam Little nails 70-yard field goal**\
 `Two-way rookie Hunter, expected to contribute at wide receiver and cornerback, opened the game on offense.`\
 https://nytimes.com/athletic/6544630/2025/08/09/travis-hunter-nfl-debut-jaguars-cam-little/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/09/crosswords/daily-puzzle-2025-08-10.html
 **These Are Drug Cartels Designated as Terrorists by the U.S.**\
 `President Trump has signed an order telling the Pentagon to begin using military force against certain criminal gangs that the United States has named terror organizations.`\
 https://nytimes.com/2025/08/09/world/americas/drug-cartels-us-terrorist-designation.html
-
-**Mariano Rivera tears Achilles during Yankees Old-Timers' Day game**\
-`Roger Clemens told the team's radio broadcasters that the Hall-of-Fame closer went to the hospital to get examined.`\
-https://nytimes.com/athletic/6544433/2025/08/09/mariano-rivera-achilles-injury-yankees-old-timers-day/
 

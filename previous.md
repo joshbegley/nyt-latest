@@ -6,7 +6,7 @@ https://nytimes.com/athletic/6544630/2025/08/09/travis-hunter-nfl-debut-jaguars-
 `James Cook has seen several other Bills in his class get new contracts.`\
 https://nytimes.com/athletic/6544529/2025/08/09/buffalo-bills-james-cook-hold-in-contract/
 
-**Connor Zilisch suffers broken collarbone after fall in victory lane**\
+**Connor Zilisch suffers broken collarbone in fall in victory lane**\
 `Trackhouse Racing confirmed it has withdrawn Zilisch's car from Sunday's Cup Series race. `\
 https://nytimes.com/athletic/6544572/2025/08/09/connor-zilisch-injury-nascar/
 
