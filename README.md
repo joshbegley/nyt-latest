@@ -31,7 +31,7 @@ https://nytimes.com/athletic/6544871/2025/08/10/49ers-preseason-broncos-rookies-
 https://nytimes.com/2025/08/10/briefing/jury-duty-mental-health-trauma.html
 
 **Far-Right Israeli Minister Calls for Quicker Military Moves in Gaza**\
-`Bezalel Smotrich, the hard-line finance minister, said that Israel needed to move more decisively and quickly to defeat Hamas.`\
+`Bezalel Smotrich, the hard-line finance minister, called a plan to gradually expand operations in Gaza “foolish,” saying that Israel should move more decisively and quickly to defeat Hamas.`\
 https://nytimes.com/2025/08/10/world/middleeast/smotrich-israel-gaza-takeover-netanyahu.html
 
 **Bournemouth reach agreement to sign Lille centre-back Diakite**\
