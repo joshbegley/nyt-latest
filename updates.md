@@ -1,3 +1,7 @@
+**J.J. McCarthy’s preseason performance and other Vikings risers and fallers from win**\
+`Running back Zavier Scott was among the top performers on Saturday.`\
+https://nytimes.com/athletic/6544645/2025/08/09/vikings-preaseason-j-j-mccarthy-risers-fallers/
+
 **Connor Zilisch suffers broken collarbone in fall in victory lane**\
 `Trackhouse Racing confirmed it has withdrawn Zilisch's car from Sunday's Cup Series race. `\
 https://nytimes.com/athletic/6544572/2025/08/09/connor-zilisch-injury-nascar/
