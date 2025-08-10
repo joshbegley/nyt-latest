@@ -1,3 +1,7 @@
+**Inside the world of Premier League referees: New rules, fitness testing and coping with pressure**\
+`The Athletic travels to Spain to spend pre-season with top-flight referees as part of a special feature podcast episode`\
+https://nytimes.com/athletic/6536610/2025/08/10/inside-the-world-of-premier-league-referees/
+
 **Now healthy, Blake Snell is making his impression with a suddenly strong Dodgers rotation**\
 `Snell could very well be the most important arm in getting the Dodgers where they want to be to repeat in October.`\
 https://nytimes.com/athletic/6544832/2025/08/10/blake-snell-dodgers-rotation-healthy/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6540876/2025/08/10/geovany-quenda-chelsea-future-an
 **Isak is the tainted club legend whose future looms large over Newcastle's season**\
 `How ready are Eddie Howe's side for the campaign ahead? They have endured a difficult pre-season but so much depends on what happens next`\
 https://nytimes.com/athletic/6544169/2025/08/10/alexander-isak-newcastle-season-eddie-howe/
-
-**Son's LAFC debut: Draws game-tying penalty and immediate praise**\
-`Son Heung-min capped a whirlwind of a week by debuting for LAFC and actively helping his new club snatch a road point`\
-https://nytimes.com/athletic/6544663/2025/08/10/son-heung-min-lafc-debut-mls-chicago-fire/
 
