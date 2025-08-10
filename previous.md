@@ -1,3 +1,11 @@
+**The Briefing - Palermo 0 Manchester City 3: Reijnders' double, Cherki's promise and Haaland scores with his right foot**\
+`Anantaajith Raghuraman breaks down the main talking points from Manchester City's 3-0 win over Palermo`\
+https://nytimes.com/athletic/6544540/2025/08/10/palermo-0-3-manchester-city-briefing-reijnders-haaland-cherki/
+
+**Have You Seen ‘Weapons’? We Talk About What It Might Mean**\
+`A spoiler-heavy journey through some of the movie’s mysteries.`\
+https://nytimes.com/2025/08/10/movies/weapons-spoilers.html
+
 **Inside the world of Premier League referees: New rules, fitness testing and coping with pressure**\
 `The Athletic travels to Spain to spend pre-season with top-flight referees as part of a special feature podcast episode`\
 https://nytimes.com/athletic/6536610/2025/08/10/inside-the-world-of-premier-league-referees/
@@ -14,11 +22,11 @@ https://nytimes.com/athletic/6544792/2025/08/10/mets-lose-brewers-francisco-lind
 ``\
 https://nytimes.com/issue/todayspaper/2025/08/10/todays-new-york-times
 
-**Trump Is Turning Us Into a Doddering Industrial Giant**\
+**Trump Is Destroying the Future of America to Own the Libs**\
 `Smothering electric vehicles might have been a regrettable mistake for a Republican to make 10 years ago. Today, it is economic idiocy.`\
 https://nytimes.com/2025/08/10/opinion/electric-vehicles-china-clean-energy.html
 
-**There Is a Specter Haunting Trump’s Economy: Stagflation**\
+**The Economy Is Starting to Pay for Trump’s Chaos**\
 `The president’s policies are fueling the dreaded combination of slowing growth and rising inflation.`\
 https://nytimes.com/2025/08/10/opinion/stagflation-trump-economy.html
 
@@ -29,12 +37,4 @@ https://nytimes.com/2025/08/10/world/asia/book-ban-india-kashmir.html
 **What Phillies pitcher Jesús Luzardo learned about himself during recent upswing**\
 `Luzardo is in his head, but in a positive way. It is not about making great pitches all the time, but good pitches.`\
 https://nytimes.com/athletic/6544767/2025/08/10/what-jesus-luzardo-learned-about-himself-recent-upswing-phillies/
-
-**Quenda is the Chelsea hot prospect who will not be at Stamford Bridge this season**\
-`Chelsea firmly believe Quenda can become one of the best wingers in the world. He will join in 2026`\
-https://nytimes.com/athletic/6540876/2025/08/10/geovany-quenda-chelsea-future-analysis/
-
-**Isak is the tainted club legend whose future looms large over Newcastle's season**\
-`How ready are Eddie Howe's side for the campaign ahead? They have endured a difficult pre-season but so much depends on what happens next`\
-https://nytimes.com/athletic/6544169/2025/08/10/alexander-isak-newcastle-season-eddie-howe/
 

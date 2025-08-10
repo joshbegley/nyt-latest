@@ -1,3 +1,19 @@
+**The Briefing - Palermo 0 Manchester City 3: Reijnders' double, Cherki's promise and Haaland scores with his right foot**\
+`Anantaajith Raghuraman breaks down the main talking points from Manchester City's 3-0 win over Palermo`\
+https://nytimes.com/athletic/6544540/2025/08/10/palermo-0-3-manchester-city-briefing-reijnders-haaland-cherki/
+
+**Have You Seen ‘Weapons’? We Talk About What It Might Mean**\
+`A spoiler-heavy journey through some of the movie’s mysteries.`\
+https://nytimes.com/2025/08/10/movies/weapons-spoilers.html
+
+**Trump Is Destroying the Future of America to Own the Libs**\
+`Smothering electric vehicles might have been a regrettable mistake for a Republican to make 10 years ago. Today, it is economic idiocy.`\
+https://nytimes.com/2025/08/10/opinion/electric-vehicles-china-clean-energy.html
+
+**The Economy Is Starting to Pay for Trump’s Chaos**\
+`The president’s policies are fueling the dreaded combination of slowing growth and rising inflation.`\
+https://nytimes.com/2025/08/10/opinion/stagflation-trump-economy.html
+
 **Inside the world of Premier League referees: New rules, fitness testing and coping with pressure**\
 `The Athletic travels to Spain to spend pre-season with top-flight referees as part of a special feature podcast episode`\
 https://nytimes.com/athletic/6536610/2025/08/10/inside-the-world-of-premier-league-referees/
