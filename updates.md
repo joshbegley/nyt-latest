@@ -1,3 +1,11 @@
+**Wordle Review No. 1,514**\
+`Scroll down for hints and conversation about the puzzle for Monday, Aug. 11, 2025.`\
+https://nytimes.com/2025/08/10/crosswords/wordle-review-1514.html
+
+**Strands Sidekick No. 526**\
+`Scroll down for hints and conversation about the puzzle for Monday, Aug. 11, 2025.`\
+https://nytimes.com/2025/08/10/crosswords/strands-sidekick-526.html
+
 **Far-Right Israeli Minister Condemns Plan for Gradual Military Expansion in Gaza**\
 `Bezalel Smotrich, the hard-line finance minister, said that Israel needed to move more decisively and quickly to defeat Hamas.`\
 https://nytimes.com/2025/08/10/world/middleeast/far-right-israeli-minister-condemns-plan-for-gradual-military-expansion-in-gaza.html
