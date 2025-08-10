@@ -1,3 +1,7 @@
+**First-place Brewers continue torrid pace, but Cubs remain focused on task at hand**\
+`Cubs fans who have caught Brewers games of late have likely been dumbfounded by their performance.`\
+https://nytimes.com/athletic/6544733/2025/08/09/brewers-continue-torrid-pace-cubs-remain-focused-on-task-at-hand/
+
 **Matthew Stafford to start practicing Monday, per Sean McVay**\
 `Stafford has been recovering from an aggravated disk that caused back soreness for the last several weeks.`\
 https://nytimes.com/athletic/6544744/2025/08/09/rams-matthew-stafford-sean-mcvay/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6544484/2025/08/09/jaxson-dart-preseason-debut-gian
 **Five things we've learned about Iowa's new-look offense in mid-August**\
 `Let's take a look at the backup quarterback battle, offensive line, wide receivers and more after Saturday's scrimmage.`\
 https://nytimes.com/athletic/6544428/2025/08/09/iowa-hawkeyes-football-mark-gronowski/
-
-**Passing Glances**\
-`Adam Wagner and Chandi Deitmer team up on a puzzle so great you can’t look away.`\
-https://nytimes.com/2025/08/09/crosswords/daily-puzzle-2025-08-10.html
 
