@@ -1,3 +1,11 @@
+**Bengals preseason game fallout: Safety, offensive line, receiver experience movement**\
+`Cutdown day is around the corner and three positions are under the microscope after the Bengals' first preseason game.`\
+https://nytimes.com/athletic/6545374/2025/08/10/bengals-preseason-roster-depth-chart-movement/
+
+**His Party Reeling, a Democratic Senator Tries a Message of Hope in Iowa**\
+`Senator Ruben Gallego of Arizona won his seat last year by outperforming national Democrats among Hispanic voters and men. He wants the party to listen to listen to his message as it regroups.`\
+https://nytimes.com/2025/08/10/us/politics/senator-gallego-democrats-iowa.html
+
 **Map: 6.1-Magnitude Earthquake Strikes Turkey**\
 `View the location of the quake’s epicenter and shake area.`\
 https://nytimes.com/interactive/2025/08/10/world/europe/earthquake-turkey-maps.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6545384/2025/08/10/brandon-mcnulty-tour-win-time-tr
 **‘Weapons’ Gives Warner Bros. Another Outstanding No. 1 Opening**\
 `In second place with about $44.5 million in global ticket sales, Disney’s “Freakier Friday” marked a box office comeback for Lindsay Lohan.`\
 https://nytimes.com/2025/08/10/business/media/weapons-warner-bros-box-office.html
-
-**Lowetide: What can Oilers fans expect from Bowman's European signing pipeline?**\
-`Oilers GM Stan Bowman has a known track record of success with signings from European leagues. Here's what the Oilers have to work with.`\
-https://nytimes.com/athletic/6544239/2025/08/10/edmonton-oilers-bowman-european-signings/
-
-**Crystal Palace 2-2 Liverpool (3-2 pens): Henderson heroics secure Community Shield win**\
-`The Athletic's writers break down the key moments from the 2025 Community Shield `\
-https://nytimes.com/athletic/6545064/2025/08/10/crystal-palace-liverpool-community-shield-result-analysis/
 
