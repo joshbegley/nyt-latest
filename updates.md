@@ -1,3 +1,7 @@
+**La Liga want to stage Villarreal-Barcelona in Miami: How likely is it to happen?**\
+`If the proposal succeeds, it would be the first time a European top-flight league fixture has taken place in the United States.`\
+https://nytimes.com/athletic/6545150/2025/08/10/barcelona-villarreal-miami-la-liga/
+
 **New York City to Close Last Major Hotel Housing Migrants**\
 `Mayor Eric Adams announced that the Row NYC, a hotel in Times Square, would stop sheltering migrants by April, as the migrant crisis continued to subside.`\
 https://nytimes.com/2025/08/10/nyregion/migrants-row-hotel-nyc.html

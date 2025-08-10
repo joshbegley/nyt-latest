@@ -1,3 +1,7 @@
+**La Liga want to stage Villarreal-Barcelona in Miami: How likely is it to happen?**\
+`If the proposal succeeds, it would be the first time a European top-flight league fixture has taken place in the United States.`\
+https://nytimes.com/athletic/6545150/2025/08/10/barcelona-villarreal-miami-la-liga/
+
 **New York City to Close Last Major Hotel Housing Migrants**\
 `Mayor Eric Adams announced that the Row NYC, a hotel in Times Square, would stop sheltering migrants by April, as the migrant crisis continued to subside.`\
 https://nytimes.com/2025/08/10/nyregion/migrants-row-hotel-nyc.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/10/us/politics/trump-putin-alaska-reaction.html
 **Terry Reid, Rock Singer Known as ‘Superlungs,’ Dies at 75**\
 `He missed his chance to be Led Zeppelin’s lead vocalist, but his solo work — and his otherworldly voice — drew raves from Aretha Franklin and others.`\
 https://nytimes.com/2025/08/10/arts/music/terry-reid-dead.html
-
-**Phillies activate David Robertson as stretch run deadline bullpen takes shape**\
-`After two weeks in Triple A, Robertson begins his third tenure with the team, boosting the bullpen for the stretch run — and beyond.`\
-https://nytimes.com/athletic/6544620/2025/08/10/david-robertson-phillies-bullpen/
 
