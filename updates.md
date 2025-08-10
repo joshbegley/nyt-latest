@@ -1,3 +1,7 @@
+**Travis Hunter debuts, Cam Little nails 70-yard preseason field goal**\
+`Two-way rookie Hunter, expected to contribute at wide receiver and cornerback, opened the game on offense.`\
+https://nytimes.com/athletic/6544630/2025/08/09/travis-hunter-nfl-debut-jaguars-cam-little/
+
 **'We wanted him to play': James Cook dresses but refuses to take field for Bills**\
 `James Cook has seen several other Bills in his class get new contracts.`\
 https://nytimes.com/athletic/6544529/2025/08/09/buffalo-bills-james-cook-hold-in-contract/
