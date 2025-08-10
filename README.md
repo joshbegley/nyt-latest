@@ -1,4 +1,4 @@
-**Crystal Palace 2-2 Liverpool (3-2 pens): FA Cup winners seal Community Shield victory after more Henderson shootout heroics**\
+**Crystal Palace 2-2 Liverpool (3-2 pens): Henderson heroics secure Community Shield win**\
 `The Athletic's writers break down the key moments from the 2025 Community Shield `\
 https://nytimes.com/athletic/6545064/2025/08/10/crystal-palace-liverpool-community-shield-result-analysis/
 
