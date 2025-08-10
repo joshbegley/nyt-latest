@@ -1,3 +1,5 @@
+
+
 **'We wanted him to play': James Cook dresses but refuses to take field for Bills**\
 `James Cook has seen several other Bills in his class get new contracts.`\
 https://nytimes.com/athletic/6544529/2025/08/09/buffalo-bills-james-cook-hold-in-contract/
