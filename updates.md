@@ -1,3 +1,5 @@
+
+
 **JD Vance says U.S. is working for a meeting with Trump, Putin and Zelensky.**\
 `By Luke Broadwater`\
 https://nytimes.com/live/2025/08/10/us/trump-news/jd-vance-zelensky-trump-putin
