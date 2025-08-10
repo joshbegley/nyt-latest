@@ -1,3 +1,7 @@
+**Inside the world of Premier League referees: New rules, fitness testing and coping with pressure**\
+`The Athletic travels to Spain to spend pre-season with top-flight referees as part of a special feature podcast episode`\
+https://nytimes.com/athletic/6536610/2025/08/10/inside-the-world-of-premier-league-referees/
+
 **Now healthy, Blake Snell is making his impression with a suddenly strong Dodgers rotation**\
 `Snell could very well be the most important arm in getting the Dodgers where they want to be to repeat in October.`\
 https://nytimes.com/athletic/6544832/2025/08/10/blake-snell-dodgers-rotation-healthy/
