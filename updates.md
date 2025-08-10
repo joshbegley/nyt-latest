@@ -1,3 +1,7 @@
+**Earthquake Strikes Western Turkey**\
+`Rescue efforts were continuing as officials tried to assess damage in a region prone to disaster.`\
+https://nytimes.com/2025/08/10/world/europe/earthquake-western-turkey-sindirgi.html
+
 **Flash Flooding in Wisconsin Hits the Milwaukee Area**\
 `Milwaukee and its neighboring area experienced record-setting rains, leading to the early closure of the Wisconsin State Fair and flash flooding that left some residents stranded.`\
 https://nytimes.com/video/us/100000010333008/milwaukee-flood-rain-wisconsin.html
