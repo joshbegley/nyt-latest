@@ -1,3 +1,23 @@
+**A QB2 battle brewing? Five things we learned this week at Raiders training camp**\
+`The week started with a significant trade, and ended with mixed results in the preseason opener.`\
+https://nytimes.com/athletic/6544402/2025/08/10/raiders-training-camp-report-qb2-battle/
+
+**Padres’ Michael King, a potential top free agent, is back to pursue a collective prize**\
+`King had been sidelined since late May because of an injury to his long thoracic nerve. His return could be a season-changer.`\
+https://nytimes.com/athletic/6543660/2025/08/10/padres-michael-king-return-injury/
+
+**Thinking a Lot About Too Little Thinking**\
+`Readers respond to a guest essay about illiteracy. Also: The autocrat’s playbook.`\
+https://nytimes.com/2025/08/10/opinion/thinking-education-reading.html
+
+**Trump Administration Live Updates: Ukraine and Europe Project Unity Before President Meets With Putin**\
+``\
+https://nytimes.com/live/2025/08/10/us/trump-news
+
+**Far-Right Israeli Minister Calls for Quicker Military Moves in Gaza**\
+`Bezalel Smotrich, the hard-line finance minister, called a plan to gradually expand operations in Gaza “foolish,” saying that Israel should move more decisively and quickly to defeat Hamas.`\
+https://nytimes.com/2025/08/10/world/middleeast/smotrich-israel-gaza-takeover-netanyahu.html
+
 **Far-Right Israeli Minister Calls for Quicker Military Moves in Gaza**\
 `Bezalel Smotrich, the hard-line finance minister, said that Israel needed to move more decisively and quickly to defeat Hamas.`\
 https://nytimes.com/2025/08/10/world/middleeast/smotrich-israel-gaza-takeover-netanyahu.html
