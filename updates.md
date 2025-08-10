@@ -1,3 +1,11 @@
+**Camavinga sustains ankle injury, could miss start of La Liga season**\
+`Camavinga, 22, missed the final six matches of Madrid's 2024-25 season — including the Copa del Rey final — due to an abductor injury.`\
+https://nytimes.com/athletic/6544982/2025/08/10/real-madrid-eduardo-camavinga-injury-update/
+
+**Jets 53-man roster projection: How much room is there for the running backs?**\
+`A look at how the roster stacks up after Saturday's impressive win over the Packers.`\
+https://nytimes.com/athletic/6544823/2025/08/10/jets-53-man-roster-projection-preseason-opener-packers/
+
 **A QB2 battle brewing? Five things we learned this week at Raiders training camp**\
 `The week started with a significant trade, and ended with mixed results in the preseason opener.`\
 https://nytimes.com/athletic/6544402/2025/08/10/raiders-training-camp-report-qb2-battle/
