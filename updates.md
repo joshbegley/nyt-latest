@@ -1,3 +1,7 @@
+**Crystal Palace 2-2 Liverpool (3-2 pens): FA Cup winners seal Community Shield victory after more Henderson shootout heroics**\
+`The Athletic's writers break down the key moments from the 2025 Community Shield `\
+https://nytimes.com/athletic/6545064/2025/08/10/crystal-palace-liverpool-community-shield-result-analysis/
+
 **Trump and Putin May Get a Cold Reception From Some Alaskans**\
 `Warm relations between Alaskans and Russians began to shift with the rise of Vladimir Putin and the invasion of Ukraine. In Alaska, feelings on the two leaders’ meeting seemed mixed.`\
 https://nytimes.com/2025/08/10/us/politics/trump-putin-alaska-reaction.html
