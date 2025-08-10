@@ -1,3 +1,7 @@
+**The Pulse: A crash course for new collectors**\
+`Welcome to The Pulse, The Athletic's daily sports newsletter.`\
+https://nytimes.com/athletic/6544807/2025/08/10/a-crash-course-for-new-collectors-and-a-70-yard-stunner/
+
 **Camavinga sustains ankle injury, could miss start of La Liga season**\
 `Camavinga, 22, missed the final six matches of Madrid's 2024-25 season — including the Copa del Rey final — due to an abductor injury.`\
 https://nytimes.com/athletic/6544982/2025/08/10/real-madrid-eduardo-camavinga-injury-update/
