@@ -1,3 +1,7 @@
+**Down Payment Assistance Is a Growing Tool for Home Buyers**\
+`The number of these programs, which come from a range of sources, is rising in the United States, but there are barriers to entry.`\
+https://nytimes.com/2025/08/10/realestate/downpayment-assistance-programs-home-buyers.html
+
 **Ukraine and Europe Project United Front Ahead of Trump-Putin Summit**\
 `Washington’s push to negotiate an end to the war has raised concerns the Trump administration will make concessions to Moscow that Kyiv cannot accept.`\
 https://nytimes.com/2025/08/10/world/europe/ukraine-europe-zelensky-trump-putin.html
