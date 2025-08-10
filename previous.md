@@ -1,3 +1,7 @@
+**What Phillies pitcher Jesús Luzardo learned about himself during recent upswing**\
+`Luzardo is in his head, but in a positive way. It is not about making great pitches all the time, but good pitches.`\
+https://nytimes.com/athletic/6544767/2025/08/10/what-jesus-luzardo-learned-about-himself-recent-upswing-phillies/
+
 **Quenda is the Chelsea hot prospect who will not be at Stamford Bridge this season**\
 `Chelsea firmly believe Quenda can become one of the best wingers in the world. He will join in 2026`\
 https://nytimes.com/athletic/6540876/2025/08/10/geovany-quenda-chelsea-future-analysis/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/10/world/asia/china-military-corruption.html
 **No Corrections: Aug. 10, 2025**\
 `No corrections appeared in print on Sunday, Aug. 10, 2025.`\
 https://nytimes.com/2025/08/10/pageoneplus/no-corrections-aug-10-2025.html
-
-**Connections: Sports Edition Coach: Hints for Aug. 10, 2025**\
-`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
-https://nytimes.com/athletic/6543816/2025/08/10/connections-sports-edition-hints-for-aug-10-2025/
 

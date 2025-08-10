@@ -1,3 +1,7 @@
+**What Phillies pitcher Jesús Luzardo learned about himself during recent upswing**\
+`Luzardo is in his head, but in a positive way. It is not about making great pitches all the time, but good pitches.`\
+https://nytimes.com/athletic/6544767/2025/08/10/what-jesus-luzardo-learned-about-himself-recent-upswing-phillies/
+
 **Quenda is the Chelsea hot prospect who will not be at Stamford Bridge this season**\
 `Chelsea firmly believe Quenda can become one of the best wingers in the world. He will join in 2026`\
 https://nytimes.com/athletic/6540876/2025/08/10/geovany-quenda-chelsea-future-analysis/
