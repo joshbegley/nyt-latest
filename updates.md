@@ -1,3 +1,7 @@
+**Mets steeped in exasperation, error in loss to Brewers, their sixth straight**\
+`"We'll turn it around," Mets manager Carlos Mendoza said. "I know I sound like a broken record. There's too much talent there."`\
+https://nytimes.com/athletic/6544792/2025/08/10/mets-lose-brewers-francisco-lindor/
+
 **The New York Times in Print for Sunday, Aug. 10, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/08/10/todays-new-york-times
