@@ -1,5 +1,5 @@
-**J.J. McCarthy’s preseason performance and other Vikings risers and fallers from win**\
-`Running back Zavier Scott was among the top performers on Saturday.`\
+**J.J. McCarthy's preseason performance and other Vikings risers and fallers from win**\
+`Running back Zavier Scott was among the top performers Saturday.`\
 https://nytimes.com/athletic/6544645/2025/08/09/vikings-preaseason-j-j-mccarthy-risers-fallers/
 
 **Travis Hunter plays both ways in NFL debut, Cam Little nails 70-yard field goal**\
