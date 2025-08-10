@@ -1,3 +1,7 @@
+**Salah questions UEFA tribute post for ‘Palestinian Pele’**\
+`Al-Obeid was described as “one of the brightest stars of Palestinian football” by the Palestinian Football Association.`\
+https://nytimes.com/athletic/6545183/2025/08/10/mohamed-salah-palestine-uefa-tweet/
+
 **Michelle Obama and Justice Ketanji Brown Jackson Draw Crowds on Martha’s Vineyard**\
 `In Oak Bluffs, film premieres, book fairs and star-studded soirees attracted fans who came for the art and stayed for the community.`\
 https://nytimes.com/2025/08/10/style/black-film-book-festival-marthas-vineyard.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6543660/2025/08/10/padres-michael-king-return-injur
 **Thinking a Lot About Too Little Thinking**\
 `Readers respond to a guest essay about illiteracy. Also: The autocrat’s playbook.`\
 https://nytimes.com/2025/08/10/opinion/thinking-education-reading.html
-
-**Trump Administration Live Updates: Ukraine and Europe Project Unity Before President Meets With Putin**\
-``\
-https://nytimes.com/live/2025/08/10/us/trump-news
 
