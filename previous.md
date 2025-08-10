@@ -1,3 +1,7 @@
+**Quenda is the Chelsea hot prospect who will not be at Stamford Bridge this season**\
+`Chelsea firmly believe Quenda can become one of the best wingers in the world. He will join in 2026`\
+https://nytimes.com/athletic/6540876/2025/08/10/geovany-quenda-chelsea-future-analysis/
+
 **Isak is the tainted club legend whose future looms large over Newcastle's season**\
 `How ready are Eddie Howe's side for the campaign ahead? They have endured a difficult pre-season but so much depends on what happens next`\
 https://nytimes.com/athletic/6544169/2025/08/10/alexander-isak-newcastle-season-eddie-howe/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/10/pageoneplus/no-corrections-aug-10-2025.html
 **Connections: Sports Edition Coach: Hints for Aug. 10, 2025**\
 `Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
 https://nytimes.com/athletic/6543816/2025/08/10/connections-sports-edition-hints-for-aug-10-2025/
-
-**First-place Brewers continue torrid pace, but Cubs remain focused on task at hand**\
-`Cubs fans who have caught Brewers games of late have likely been dumbfounded by their performance.`\
-https://nytimes.com/athletic/6544733/2025/08/09/brewers-continue-torrid-pace-cubs-remain-focused-on-task-at-hand/
 
