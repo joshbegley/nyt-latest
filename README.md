@@ -1,3 +1,7 @@
+**Fantasy baseball cheat sheet: Ezequiel Tovar's hot August and more THE BAT X insights**\
+`The Athletic and THE BAT X have teamed up to bring readers a fantasy baseball cheat sheet to begin the week. `\
+https://nytimes.com/athletic/6545284/2025/08/11/fantasy-baseball-the-bat-x-tovar-august/
+
 **The Windup: New York's two slumps**\
 `The Windup Newsletter ⚾ | This is The Athletic’s MLB newsletter.`\
 https://nytimes.com/athletic/6546706/2025/08/11/yankees-mets-the-windup/
@@ -18,7 +22,7 @@ https://nytimes.com/athletic/6546593/2025/08/11/ufc-paramount-pay-per-view-model
 `A ruling on a home-barbering dispute.`\
 https://nytimes.com/interactive/2025/08/11/magazine/haircut-hodgman-quiz.html
 
-**Dan Campbell says Morice Norris is in concussion protocol after scary injury**\
+**Lions DB Morice Norris is in concussion protocol, Dan Campbell says**\
 `Norris suffered a scary injury Friday night and was taken off the field in an ambulance.`\
 https://nytimes.com/athletic/6546644/2025/08/11/lions-morice-norris-injury-update-concussion-protocol/
 
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/11/nyregion/jeffrey-epstein-ghislaine-maxwell-transc
 **Here’s the latest.**\
 `By Eric Schmitt, Nicholas Nehamas and Campbell Robertson`\
 https://nytimes.com/live/2025/08/11/us/trump-news/heres-the-latest
-
-**Bulls mailbag: What is Josh Giddey's worth? Who starts alongside him?**\
-`Bulls fans are waiting for the franchise to make moves that will give the team a boost. One of those moves could involve Josh Giddey.`\
-https://nytimes.com/athletic/6546407/2025/08/11/bulls-josh-giddey-isaac-okoro-nba-mailbag/
 

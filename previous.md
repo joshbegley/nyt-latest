@@ -1,3 +1,11 @@
+**The Windup: New York's two slumps**\
+`The Windup Newsletter ⚾ | This is The Athletic’s MLB newsletter.`\
+https://nytimes.com/athletic/6546706/2025/08/11/yankees-mets-the-windup/
+
+**Ford Rejigs E.V. Plans After Suffering Billions in Losses**\
+`Ford, which once had a lead on other established automakers, said on Monday that it will use new materials and methods to lower the costs of electric vehicles.`\
+https://nytimes.com/2025/08/11/business/ford-electric-vehicles.html
+
 **As Trump Curbs Wind Farms, Orsted Plans $9.4 Billion Share Offering**\
 `Shares of the Danish renewable energy developer tumbled after it would issue more stock to raise funds instead of divesting a stake in a wind farm off the U.S. coast.`\
 https://nytimes.com/2025/08/11/business/trump-wind-farm-orsted.html
@@ -29,12 +37,4 @@ https://nytimes.com/live/2025/08/11/us/trump-news/heres-the-latest
 **Bulls mailbag: What is Josh Giddey's worth? Who starts alongside him?**\
 `Bulls fans are waiting for the franchise to make moves that will give the team a boost. One of those moves could involve Josh Giddey.`\
 https://nytimes.com/athletic/6546407/2025/08/11/bulls-josh-giddey-isaac-okoro-nba-mailbag/
-
-**Tracking Tropical Storm Podul**\
-`See the likely path and wind arrival times for Podul`\
-https://nytimes.com/interactive/2025/08/11/weather/tropical-storm-podul-map-path-tracker.html
-
-**Tottenham's Moore marks 18th birthday with new long-term deal**\
-`Moore, who turned 18 on Friday, is currently on a season-long loan at Scottish Premiership club Rangers`\
-https://nytimes.com/athletic/6546567/2025/08/11/tottenham-mikey-moore-new-contract/
 

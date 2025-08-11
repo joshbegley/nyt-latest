@@ -1,3 +1,11 @@
+**The Windup: New York's two slumps**\
+`The Windup Newsletter ⚾ | This is The Athletic’s MLB newsletter.`\
+https://nytimes.com/athletic/6546706/2025/08/11/yankees-mets-the-windup/
+
+**Ford Rejigs E.V. Plans After Suffering Billions in Losses**\
+`Ford, which once had a lead on other established automakers, said on Monday that it will use new materials and methods to lower the costs of electric vehicles.`\
+https://nytimes.com/2025/08/11/business/ford-electric-vehicles.html
+
 **As Trump Curbs Wind Farms, Orsted Plans $9.4 Billion Share Offering**\
 `Shares of the Danish renewable energy developer tumbled after it would issue more stock to raise funds instead of divesting a stake in a wind farm off the U.S. coast.`\
 https://nytimes.com/2025/08/11/business/trump-wind-farm-orsted.html
