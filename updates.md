@@ -1,3 +1,11 @@
+**Dodgers strand season-high 16 runners in "frustrating" loss to Blue Jays**\
+`"This was frustrating," Dodgers manager Dave Roberts said. "I just felt there's no way we should lose this game today."`\
+https://nytimes.com/athletic/6545900/2025/08/10/dodger-details-a-series-of-missed-opportunities-foil-what-couldve-been-a-statement-weekend/
+
+**MGK Tore It All Down for His Art**\
+`MGK, best known as Machine Gun Kelly, spoke with Jon Caramanica and Joe Coscarelli, the hosts of “Popcast” at The New York Times, about how his self-destructive behavior led to fresh work, including his new Bob Dylan-approved album, “Lost Americana.”`\
+https://nytimes.com/video/podcasts/100000010332842/mgk-tore-it-all-down-for-his-art.html
+
 **The Yankees ‘wholeheartedly believe’ they can turn their season around. Do you?**\
 `The Yankees continue to ignore the harsh reality that’s been staring them in the face for more than two months. `\
 https://nytimes.com/athletic/6545640/2025/08/10/yankees-season-struggles-playoffs/
