@@ -1,3 +1,7 @@
+**U.S. Military Prepares to Deploy National Guard in Washington, D.C.**\
+`The deployment is part of President Trump’s crackdown on street crime in the city.`\
+https://nytimes.com/2025/08/11/us/politics/trump-national-guard-washington-dc.html
+
 **Trump Administration Live Updates: President to Deploy National Guard in Washington, D.C.**\
 ``\
 https://nytimes.com/live/2025/08/11/us/trump-news

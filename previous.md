@@ -4,7 +4,7 @@ https://nytimes.com/live/2025/08/11/us/trump-news
 
 **U.S. Military Prepares to Deploy National Guard in Washington, D.C.**\
 `The deployment is part of President Trump’s crackdown on street crime in the city.`\
-https://nytimes.com/2025/08/11/us/politics/us-military-prepares-to-deploy-national-guard-in-washington-dc.html
+https://nytimes.com/2025/08/11/us/politics/trump-national-guard-washington-dc.html
 
 **49ers 53-man roster projection: Undrafted rookie Sebastian Valdez makes his push**\
 `Our projection: The 49ers head into the season deep along the offensive and defensive lines but light at wide receiver and quarterback.`\
