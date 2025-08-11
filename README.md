@@ -1,3 +1,11 @@
+**Xavier Legette learns a lesson, WR competition heats up: Panthers takeaways**\
+`By adding two draft picks and Hunter Renfrow at receiver, Carolina is going to have tough roster choices to make at the position.`\
+https://nytimes.com/athletic/6547272/2025/08/11/panthers-preseason-takeaways-xavier-legette-disqualified/
+
+**N.Y.C. Schools Change How Reading Is Taught, and Test Scores Rise**\
+`Mayor Adams cast the upswing as evidence of efforts to improve instruction, while rivals in the mayoral race argued that teachers need better training.`\
+https://nytimes.com/2025/08/11/nyregion/nyc-student-reading-scores-rise.html
+
 **Lloyd Williams, Who Helped Spur Harlem’s Revival, Dies at 80**\
 `As head of the area’s Chamber of Commerce, he capitalized on the community’s heritage to promote economic development.`\
 https://nytimes.com/2025/08/11/nyregion/lloyd-williams-dead.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6547165/2025/08/11/senators-lebreton-flats-arena-pu
 **D.C. Advocate in Senate Blames Trump for Crime in Capital**\
 `Ankit Jain, the shadow Senator for the District of Columbia, said President Trump should focus on adding judges, not policing.`\
 https://nytimes.com/2025/08/11/us/politics/dc-trump-judges.html
-
-**Blue Jays to promote prospect Trey Yesavage to Triple A, could be factor down the stretch: Sources**\
-`Yesavage has already moved up three levels this season and now sits on the cusp of his big-league debut.`\
-https://nytimes.com/athletic/6547138/2025/08/11/trey-yesavage-blue-jays-promotion-triple-a/
-
-**This Video Shows Medical Volunteer Executed Amid Unrest in Southern Syria**\
-`The images are the latest reflecting the wave of sectarian violence that has recently consumed the country and left more than 1,000 dead.`\
-https://nytimes.com/2025/08/11/world/middleeast/syria-volunteer-execution-sweida-hospital.html
 
