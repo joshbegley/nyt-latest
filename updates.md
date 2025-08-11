@@ -1,3 +1,7 @@
+**Tracking Tropical Storm Podul**\
+`See the likely path and wind arrival times for Podul`\
+https://nytimes.com/interactive/2025/08/11/weather/tropical-storm-podul-map-path-tracker.html
+
 **Tottenham's Moore marks 18th birthday with new long-term deal**\
 `Moore, who turned 18 on Friday, is currently on a season-long loan at Scottish Premiership club Rangers`\
 https://nytimes.com/athletic/6546567/2025/08/11/tottenham-mikey-moore-new-contract/
