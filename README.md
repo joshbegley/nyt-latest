@@ -1,3 +1,35 @@
+**Trump Administration Live Updates: President to Deploy National Guard in Washington, D.C.**\
+``\
+https://nytimes.com/live/2025/08/11/us/trump-news
+
+**U.S. Military Prepares to Deploy National Guard in Washington, D.C.**\
+`The deployment is part of President Trump’s crackdown on street crime in the city.`\
+https://nytimes.com/2025/08/11/us/politics/us-military-prepares-to-deploy-national-guard-in-washington-dc.html
+
+**49ers 53-man roster projection: Undrafted rookie Sebastian Valdez makes his push**\
+`Our projection: The 49ers head into the season deep along the offensive and defensive lines but light at wide receiver and quarterback.`\
+https://nytimes.com/athletic/6543121/2025/08/11/49ers-roster-53-man-projection-sebastian-valdez/
+
+**O'Connor: Mets are blowing their chance to own New York**\
+`With the Yankees falling apart, this should have been the Mets’ time to pounce. Instead, it's a golden opportunity squandered.`\
+https://nytimes.com/athletic/6545995/2025/08/11/mets-losing-streak-yankees-new-york/
+
+**When could the Red Wings' top prospects reach the NHL? Prospect timelines**\
+`When could 10 of Detroit's top prospects arrive in the NHL? Red Wings beat writer Max Bultman weighs in with timelines and projections.`\
+https://nytimes.com/athletic/6537280/2025/08/11/red-wings-prospects-nhl-danielson-cossa/
+
+**Knicks fan survey: Is this season championship-or-bust? Voice your opinion**\
+`Share your opinion on the state of the Knicks franchise heading into a pivotal season.`\
+https://nytimes.com/athletic/6538240/2025/08/11/knicks-fan-survey-championship/
+
+**What does a successful season look like for Dylan Cozens? Senators mailbag**\
+`This month's mailbag reviews position battles ahead of training camp, a Shane Pinto contract question and much more. `\
+https://nytimes.com/athletic/6535655/2025/08/11/senators-cozens-roster-battles-pinto/
+
+**Paramount Strikes Seven-Year Deal to Stream U.F.C. Fights**\
+`The seven-year $7.7 billion deal is an early win for the company’s new chairman, David Ellison, who took over last week. CBS will also show some marquee fights.`\
+https://nytimes.com/2025/08/11/business/paramount-ufc-fights-deal.html
+
 **Is It a Tax, or a Payoff?**\
 `A deal for Nvidia and AMD to give the Trump administration a cut of chip sales to China raises questions about national security and trade policy goals.`\
 https://nytimes.com/2025/08/11/business/dealbook/nvidia-amd-chip-payoff-trump.html
@@ -5,36 +37,4 @@ https://nytimes.com/2025/08/11/business/dealbook/nvidia-amd-chip-payoff-trump.ht
 **Bills running back Ray Davis finally gets his chance to kick, but hopes it was his last**\
 `The process of getting him ready to kick was not unlike a racing pit stop. `\
 https://nytimes.com/athletic/6546043/2025/08/11/bills-running-back-ray-davis-emergency-kicker/
-
-**Newcastle's Vlachodimos close to Sevilla loan**\
-`The goalkeeper made only one appearance for Newcastle last season after joining for £20m from Nottingham Forest.`\
-https://nytimes.com/athletic/6546317/2025/08/11/newcastle-transfers-odysseas-vlachodimos-sevilla/
-
-**North Korea’s Next Leader?**\
-`Kim Jong-un’s daughter, Kim Ju-ae, is perhaps being primed to take control of the regime one day.`\
-https://nytimes.com/2025/08/11/briefing/north-koreas-succession-kim-jong-un.html
-
-**Do preseason polls have an outsized impact on the College Football Playoff?**\
-`Some believe preseason college football rankings unfairly influence the season. We can’t find any evidence to back that up.`\
-https://nytimes.com/athletic/6542825/2025/08/11/college-football-preseason-polls-rankings-playoff/
-
-**Trevor Story, by simply staying on the field, finds first taste of success with Red Sox**\
-`At 32, with a checkered injury history, he faced questions of whether he’d be productive again. But he's quelled that talk with his results.`\
-https://nytimes.com/athletic/6545696/2025/08/11/boston-red-sox-trevor-story-health/
-
-**This Week in Mets: Is it even possible for the Mets to rebound from this?**\
-`The Mets have gone from "winners of six straight and holders of a 5-1 lead" to losing 31 of their last 49 games since June 13.`\
-https://nytimes.com/athletic/6545936/2025/08/11/mets-rebound-seven-game-losing-streak/
-
-**Tyler Adams interview: Pulisic criticism, rift with USMNT greats, World Cup prep**\
-`USMNT's 2022 World Cup captain has backed Christian Pulisic after his summer break while expressing the significance of his own involvement`\
-https://nytimes.com/athletic/6544679/2025/08/11/tyler-adams-usmnt-pulisic-pochettino-world-cup-bournemouth/
-
-**How is Carlos Correa learning to play third base? By studying the league's best**\
-`As he transitions from shortstop to the hot corner, Correa is studying how Matt Chapman, Manny Machado and Nolan Arenado play the position.`\
-https://nytimes.com/athletic/6545252/2025/08/11/carlos-correa-third-basemen-astros/
-
-**There's more to how Gerry Glasco turned Texas Tech into a softball power than NIL**\
-`Texas Tech's financial commitment to softball is significant, but the first-year coach also credits transparency for a trip to the WCWS.`\
-https://nytimes.com/athletic/6503017/2025/08/11/texas-tech-softball-gerry-glasco/
 
