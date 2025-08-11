@@ -1,3 +1,7 @@
+**A mental reset and a mechanical tweak has Matt Shaw among the hottest hitters in baseball**\
+`Shaw has a 207 wRC+ since the All-Star break. Only three players with at least 50 plate appearances had a better wRC.`\
+https://nytimes.com/athletic/6546027/2025/08/11/chicago-cubs-matt-shaw-hottest-hitters/
+
 **Monday Briefing: North Korea’s Heir Apparent**\
 `Plus, Europe closed ranks ahead of the Trump-Putin summit.`\
 https://nytimes.com/2025/08/11/briefing/monday-briefing-north-koreas-heir-apparent.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6542226/2025/08/11/premier-league-predictions-2025-
 **Benjamin Sesko is still learning: The story of Manchester United's new striker, shaped by pressure, power and ego**\
 `The forward can kick a lodged basketball free from the rim but his rise to the top of football has not been solely because of absurd talent`\
 https://nytimes.com/athletic/6540035/2025/08/11/benjamin-sesko-manchester-united-profile/
-
-**Murillo interview: 'I believe I can score a wonder goal from the halfway line'**\
-`The Nottingham Forest defender discusses his eye for a goal, futsal roots, faith and Champions League aspirations`\
-https://nytimes.com/athletic/6538584/2025/08/11/murillo-nottingham-forest-interview/
 
