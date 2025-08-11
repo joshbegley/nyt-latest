@@ -1,3 +1,11 @@
+**Harvard and White House Move Toward Potential Landmark Settlement**\
+`A potential $500 million settlement would end a monthslong battle that pitted the nation’s wealthiest school against the Trump administration’s extraordinary crackdown on higher education.`\
+https://nytimes.com/2025/08/11/us/trump-harvard-settlement-negotiations.html
+
+**Trump Takes Control of D.C. Police, Citing ‘Bloodthirsty Criminals.’ But Crime Is Down.**\
+`The president has railed against crime in urban, largely liberal cities for decades, but Monday’s announcement was an extraordinary exertion of federal power over an American city.`\
+https://nytimes.com/2025/08/11/us/politics/trump-washington-dc-police.html
+
 **Eagles guard Landon Dickerson to have 'minor procedure' on knee: Source**\
 `Team is hoping the three-time Pro Bowler will be ready for the regular season.`\
 https://nytimes.com/athletic/6547496/2025/08/11/eagles-landon-dickerson-knee-injury/
