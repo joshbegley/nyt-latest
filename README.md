@@ -1,5 +1,5 @@
 **Deadly Explosion at U.S. Steel Plant in Pennsylvania**\
-`At least one person was killed and dozens more injured after an explosion at a U.S. Steel plant in Clairton, Pa.`\
+`At least one person was killed and ten were hospitalized after an explosion at a U.S. Steel plant in Clairton, Pa.`\
 https://nytimes.com/video/us/100000010334505/us-steel-explosion-pennsylvania.html
 
 **Indian Lawmakers Detained for Protesting ‘Electoral Irregularities’**\
@@ -15,7 +15,7 @@ https://nytimes.com/2025/08/11/nyregion/revel-nyc-shutdown.html
 https://nytimes.com/2025/08/11/world/middleeast/al-jazeera-journalists-bios.html
 
 **Trump Is Blurring the Line Between the Military and Law Enforcement**\
-`Eight months into the president’s second term, the National Guard has already been deployed twice — once for protests and once for local crime concerns.`\
+`Six months into the president’s second term, the National Guard has already been deployed twice — once for protests and once for local crime concerns.`\
 https://nytimes.com/2025/08/11/opinion/trump-national-guard-washington-dc.html
 
 **Matthew Stafford doesn't participate at Rams practice despite expected return**\
