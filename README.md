@@ -1,3 +1,7 @@
+**As Trump Curbs Wind Farms, Orsted Plans $9.4 Billion Share Offering**\
+`Shares of the Danish renewable energy developer tumbled after it would issue more stock to raise funds instead of divesting a stake in a wind farm off the U.S. coast.`\
+https://nytimes.com/2025/08/11/business/trump-wind-farm-orsted.html
+
 **UFC dropping 'pay-per-view' model with move to Paramount+ in 2026**\
 `UFC and Paramount's 7-year deal ushers in a radical change to how viewers have accessed fights for years.`\
 https://nytimes.com/athletic/6546593/2025/08/11/ufc-paramount-pay-per-view-model/
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2025/08/11/weather/tropical-storm-podul-map-path
 **Tottenham's Moore marks 18th birthday with new long-term deal**\
 `Moore, who turned 18 on Friday, is currently on a season-long loan at Scottish Premiership club Rangers`\
 https://nytimes.com/athletic/6546567/2025/08/11/tottenham-mikey-moore-new-contract/
-
-**Spain Women part ways with head coach Tome**\
-`Spain's Under-23 head coach Sonia Bermudez has been confirmed as Tome's replacement.`\
-https://nytimes.com/athletic/6545255/2025/08/11/spain-women-montse-tome-exit/
 
