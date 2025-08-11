@@ -1,3 +1,15 @@
+**A'ja Wilson makes history with WNBA's first 30-20 game**\
+`Wilson leads the WNBA in single-season points, single-season rebounds and most points in a single game.`\
+https://nytimes.com/athletic/6546038/2025/08/11/aja-wilson-wnba-history-30-points-20-rebounds/
+
+**Newcastle United season preview: Hello despondency, our old friend...**\
+`George Caulkin looks ahead to what should be an exciting campaign at St James' Park, despite the gloom of a difficult summer`\
+https://nytimes.com/athletic/6542439/2025/08/11/newcastle-united-season-preview-2025-2026/
+
+**Justin Verlander hits a milestone, and Giants hit little else in embarrassing loss**\
+`"I'm frustrated that our fans come out and support us every night and we gave them literally nothing today," Giants manager Bob Melvin said.`\
+https://nytimes.com/athletic/6546022/2025/08/11/giants-loss-nationals-justin-verlander-strikeouts/
+
 **Fantasy Premier League: Analysing the early-season fixtures – does anyone have an easy start?**\
 `Holly Shand takes a deep dive into the opening three gameweeks of the season and also breaks down the bigger fixture picture `\
 https://nytimes.com/athletic/6508095/2025/08/11/fantasy-premier-league-fixtures-analysis/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6538584/2025/08/11/murillo-nottingham-forest-interv
 **Sheffield Wednesday in crisis: Protests, anger and uncertainty about what comes next**\
 `The Championship club have endured a turbulent summer and fans made their feelings clear as the season began on Sunday`\
 https://nytimes.com/athletic/6545418/2025/08/11/sheffield-wednesday-crisis-fans-leicester/
-
-**How Arsenal play: Right-sided creativity, set-piece expertise, and the Gyokeres factor**\
-`The Athletic looks at the tactical set-up of Mikel Arteta's side ahead of the 2025-26 season`\
-https://nytimes.com/athletic/6544473/2025/08/11/how-arsenal-play-right-sided-creativity-set-piece-expertise-and-the-gyokeres-factor/
-
-**AOL Will Shut Its Dial-Up Internet Service (Yes, It’s Still Operating)**\
-`The company said the service, synonymous with the early days of the internet, will be discontinued on Sept. 30.`\
-https://nytimes.com/2025/08/11/business/aol-dial-up-internet.html
-
-**Tyler Dibling has the talent but is an instant Premier League return the right move for him?**\
-`Everton have made two offers to sign the 19-year-old but Dibling might be better served developing in the Championship for a season`\
-https://nytimes.com/athletic/6545099/2025/08/11/tyler-dibling-southampton-everton-premier-league/
 
