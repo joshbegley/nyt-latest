@@ -1,3 +1,15 @@
+**Adidas Apologizes After Mexico Criticizes Oaxacan-Inspired Shoe**\
+`Willy Chavarria, the designer of the shoe, also apologized after Mexican officials leveled accusations of cultural appropriation.`\
+https://nytimes.com/2025/08/11/us/adidas-willy-chavarria-apology-oaxaca-sandal.html
+
+**Trump Says He Will Deploy National Guard to Washington**\
+`President Trump painted a dystopian picture of Washington as he announced that he would temporarily place the Capital’s police under federal control, as well as mobilize hundreds of National Guard troops in the city.`\
+https://nytimes.com/video/us/politics/100000010334817/trump-washington-national-guard.html
+
+**Trump’s homicide-rate chart has been making the rounds on right-wing social media.**\
+`By Lazaro Gamio`\
+https://nytimes.com/live/2025/08/11/us/trump-news/trumps-homicide-rate-chart-has-been-making-the-rounds-on-right-wing-social-media
+
 **Brazil Kept Tight Rein on Big Tech. Trump’s Tariffs Could Change That.**\
 `With President Trump on their side, U.S. technology companies now have more leverage in Brazil, where they seek to influence new rules policing their platforms.`\
 https://nytimes.com/2025/08/11/world/americas/brazil-big-tech-trump-tariffs.html
@@ -14,8 +26,8 @@ https://nytimes.com/2025/08/11/us/trump-harvard-settlement-negotiations.html
 `The president has railed against crime in urban, largely liberal cities for decades, but Monday’s announcement was an extraordinary exertion of federal power over an American city.`\
 https://nytimes.com/2025/08/11/us/politics/trump-washington-dc-police.html
 
-**Eagles guard Landon Dickerson to have 'minor procedure' on knee: Source**\
-`Team is hoping the three-time Pro Bowler will be ready for the regular season.`\
+**Eagles guard Landon Dickerson to have 'minor procedure' on knee: Sources**\
+`The Eagles are hoping the three-time Pro Bowler will be ready for the regular season.`\
 https://nytimes.com/athletic/6547496/2025/08/11/eagles-landon-dickerson-knee-injury/
 
 **What to Know About Al Jazeera, the Broadcaster Targeted by Israel**\
@@ -25,16 +37,4 @@ https://nytimes.com/2025/08/11/world/middleeast/al-jazeera-israel-criticism-ban.
 **Deadly Explosion at U.S. Steel Plant in Pennsylvania**\
 `At least one person was killed and ten were hospitalized after an explosion at a U.S. Steel plant in Clairton, Pa.`\
 https://nytimes.com/video/us/100000010334505/us-steel-explosion-pennsylvania.html
-
-**Indian Lawmakers Detained for Protesting ‘Electoral Irregularities’**\
-`Hundreds of opposition members were briefly detained in New Delhi on Monday after claiming that Prime Minister Narendra Modi’s ruling party and the election commission manipulated voter rolls.`\
-https://nytimes.com/video/world/asia/100000010334356/india-lawmakers-arrested-modi.html
-
-**Revel Pulls Plug on Electric Vehicle Ride-Share Business in New York**\
-`Once promising a glimpse at the possible future of transportation in New York City, Revel has since retreated to focus on building charging stations.`\
-https://nytimes.com/2025/08/11/nyregion/revel-nyc-shutdown.html
-
-**Here’s a Look at the Journalists Killed by an Israeli Strike in Gaza**\
-`Israeli officials said it was a targeted strike aimed at one of those killed,  Anas al-Sharif, whom it accused of being a Hamas fighter posing as a reporter.`\
-https://nytimes.com/2025/08/11/world/middleeast/al-jazeera-journalists-bios.html
 
