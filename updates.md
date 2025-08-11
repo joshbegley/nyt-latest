@@ -1,3 +1,7 @@
+**Here’s a Look at the Journalists Killed in an Israeli Strike in Gaza**\
+`Israeli officials said it was a targeted strike aimed at one of those killed,  Anas al-Sharif, whom it accused of being a Hamas fighter posing as a reporter.`\
+https://nytimes.com/2025/08/11/world/middleeast/jazeera-journalists-bios.html
+
 **Trump Is Blurring the Line Between the Military and Law Enforcement**\
 `Eight months into the president’s second term, the National Guard has already been deployed twice — once for protests and once for local crime concerns.`\
 https://nytimes.com/2025/08/11/opinion/trump-national-guard-washington-dc.html
