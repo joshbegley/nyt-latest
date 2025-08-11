@@ -1,3 +1,11 @@
+**Hezly Rivera wins women's all-around at U.S. Gymnastics Championships**\
+`Makes case for U.S.'s World Championship squad. Asher Hong leads U.S. men's roster for Worlds after strong weekend.`\
+https://nytimes.com/athletic/6545927/2025/08/10/us-gymnastics-championships-hezly-rivera/
+
+**Dodgers strand season-high 16 runners in 'frustrating' loss to Blue Jays**\
+`"This was frustrating," Dodgers manager Dave Roberts said. "I just felt there's no way we should lose this game today."`\
+https://nytimes.com/athletic/6545900/2025/08/10/dodgers-loss-blue-jays-miss-opportunities/
+
 **Dodgers strand season-high 16 runners in "frustrating" loss to Blue Jays**\
 `"This was frustrating," Dodgers manager Dave Roberts said. "I just felt there's no way we should lose this game today."`\
 https://nytimes.com/athletic/6545900/2025/08/10/dodger-details-a-series-of-missed-opportunities-foil-what-couldve-been-a-statement-weekend/

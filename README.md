@@ -27,7 +27,7 @@ https://nytimes.com/athletic/6545659/2025/08/10/minnesota-twins-walk-off-win-luk
 https://nytimes.com/2025/08/10/us/politics/trump-fbi-patrol-washington.html
 
 **Israeli Strike Kills 4 Al Jazeera Journalists, Network Says**\
-`Anas al-Sharif, a well-known correspondent for the network, was among those killed. Israel said it had conducted a strike targeting Mr. al-Sharif, claiming he worked for Hamas.`\
+`Anas al-Sharif, a well-known correspondent, was among those killed. Israel said it had targeted Mr. al-Sharif, claiming he worked for Hamas, which he had denied.`\
 https://nytimes.com/2025/08/10/world/middleeast/israel-gaza-journalists-killed.html
 
 **Letters! Actual Letters!**\
