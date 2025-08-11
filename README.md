@@ -1,3 +1,7 @@
+**Trump Is Blurring the Line Between the Military and Law Enforcement**\
+`Eight months into the president’s second term, the National Guard has already been deployed twice — once for protests and once for local crime concerns.`\
+https://nytimes.com/2025/08/11/opinion/trump-national-guard-washington-dc.html
+
 **Matthew Stafford doesn't participate at Rams practice despite expected return**\
 `Rams coach Sean McVay told reporters the team would take it one day at a time after Stafford was expected to practice on Monday.  `\
 https://nytimes.com/athletic/6547127/2025/08/11/matthew-stafford-injury-rams-training-camp/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/11/us/politics/national-guard-dc-protests.html
 **What does playing in Europa League mean for Nottingham Forest? Key questions answered**\
 `Forest have been promoted to the Europa League at Crystal Palace's expense. So what does the change mean for the club and fans?`\
 https://nytimes.com/athletic/6546881/2025/08/11/what-does-playing-in-europa-league-mean-for-nottingham-forest-key-questions-answered/
-
-**Senators, NCC agree to land purchase of LeBreton Flats for new arena**\
-`The site would be used to build a multipurpose entertainment venue, which would serve as the future home of the Ottawa Senators. `\
-https://nytimes.com/athletic/6547165/2025/08/11/senators-lebreton-flats-arena-purchase/
 
