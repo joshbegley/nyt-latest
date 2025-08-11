@@ -1,3 +1,19 @@
+**Newcastle's Vlachodimos close to Sevilla loan**\
+`The goalkeeper made only one appearance for Newcastle last season after joining for £20m from Nottingham Forest.`\
+https://nytimes.com/athletic/6546317/2025/08/11/newcastle-transfers-odysseas-vlachodimos-sevilla/
+
+**North Korea’s Next Leader?**\
+`Kim Jong-un’s daughter, Kim Ju-ae, is perhaps being primed to take control of the regime one day.`\
+https://nytimes.com/2025/08/11/briefing/north-koreas-succession-kim-jong-un.html
+
+**Do preseason polls have an outsized impact on the College Football Playoff?**\
+`Some believe preseason college football rankings unfairly influence the season. We can’t find any evidence to back that up.`\
+https://nytimes.com/athletic/6542825/2025/08/11/college-football-preseason-polls-rankings-playoff/
+
+**Trevor Story, by simply staying on the field, finds first taste of success with Red Sox**\
+`At 32, with a checkered injury history, he faced questions of whether he’d be productive again. But he's quelled that talk with his results.`\
+https://nytimes.com/athletic/6545696/2025/08/11/boston-red-sox-trevor-story-health/
+
 **This Week in Mets: Is it even possible for the Mets to rebound from this?**\
 `The Mets have gone from "winners of six straight and holders of a 5-1 lead" to losing 31 of their last 49 games since June 13.`\
 https://nytimes.com/athletic/6545936/2025/08/11/mets-rebound-seven-game-losing-streak/
@@ -21,20 +37,4 @@ https://nytimes.com/2025/08/11/world/europe/fire-arthurs-seat-edinburgh-scotland
 **How Blue Jays got ‘the best version’ of George Springer and reversed his decline**\
 `When most examined Springer’s 2024 season, they saw a player slowing down due to age. A Jays coach saw someone in need of a new approach.`\
 https://nytimes.com/athletic/6545095/2025/08/11/blue-jays-george-springer-decline/
-
-**Eagles training camp: Landon Dickerson's injury, Tanner McKee's role and more**\
-`Plus, newly-acquired Jakorian Bennett enters the cornerback battle.`\
-https://nytimes.com/athletic/6544078/2025/08/11/eagles-training-camp-landon-dickersons-injury-tanner-mckee-quarterback/
-
-**Patriots 53-man roster projection 2.0: Tough decision looms at wide receiver**\
-`How the roster is shaping up after a blowout win in New England's preseason opener.`\
-https://nytimes.com/athletic/6544106/2025/08/11/patriots-53-man-roster-projection-wr-depth-chart/
-
-**Which MLB contenders have the toughest road to the playoffs? Breaking down the schedules**\
-`It’s time for our first of three check-ins about the strength of each playoff contender’s remaining schedule.`\
-https://nytimes.com/athletic/6542881/2025/08/11/mlb-contenders-strength-of-schedule-august-10/
-
-**How confident are you in each NHL team's front office? Have your say in our fan survey**\
-`Each management group will be rated by readers on a scale from 1-5 in six categories.`\
-https://nytimes.com/athletic/6536547/2025/08/11/nhl-front-office-fan-survey/
 
