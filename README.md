@@ -1,6 +1,10 @@
-**Dodgers strand season-high 16 runners in "frustrating" loss to Blue Jays**\
+**Hezly Rivera wins women's all-around at U.S. Gymnastics Championships**\
+`Makes case for U.S.'s World Championship squad. Asher Hong leads U.S. men's roster for Worlds after strong weekend.`\
+https://nytimes.com/athletic/6545927/2025/08/10/us-gymnastics-championships-hezly-rivera/
+
+**Dodgers strand season-high 16 runners in 'frustrating' loss to Blue Jays**\
 `"This was frustrating," Dodgers manager Dave Roberts said. "I just felt there's no way we should lose this game today."`\
-https://nytimes.com/athletic/6545900/2025/08/10/dodger-details-a-series-of-missed-opportunities-foil-what-couldve-been-a-statement-weekend/
+https://nytimes.com/athletic/6545900/2025/08/10/dodgers-loss-blue-jays-miss-opportunities/
 
 **MGK Tore It All Down for His Art**\
 `MGK, best known as Machine Gun Kelly, spoke with Jon Caramanica and Joe Coscarelli, the hosts of “Popcast” at The New York Times, about how his self-destructive behavior led to fresh work, including his new Bob Dylan-approved album, “Lost Americana.”`\
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/10/podcasts/letters-this-american-life-nyt-audio.htm
 **Electrifying starter Jonah Tong among Mets prospects promoted to Triple A: Sources**\
 `Tong had a 1.58 ERA with 154 strikeouts in 102 Double-A innings.`\
 https://nytimes.com/athletic/6536968/2025/08/10/mets-jonah-tong-prospect-promotion/
-
-**U.S. Government to Take Cut of Nvidia and AMD A.I. Chip Sales to China**\
-`In a highly unusual arrangement with President Trump, the companies are expected to kick 15 percent of what they make in China to the U.S. government.`\
-https://nytimes.com/2025/08/10/technology/us-government-nvidia-amd-chips-china.html
 
