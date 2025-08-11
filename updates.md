@@ -1,3 +1,11 @@
+**Here is the latest on the storm.**\
+`By Judson Jones`\
+https://nytimes.com/live/2025/08/11/weather/tropical-storm-erin-hurricane/here-is-the-latest-on-the-storm
+
+**Tropical Storm Erin Forms Far Out in the Atlantic**\
+`The storm could become the first hurricane of the season, but is not currently a threat to land.`\
+https://nytimes.com/live/2025/08/11/weather/tropical-storm-erin-hurricane
+
 **Beauty**\
 ``\
 https://nytimes.com/section/t-magazine/beauty

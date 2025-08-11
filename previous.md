@@ -1,3 +1,11 @@
+**Here is the latest on the storm.**\
+`By Judson Jones`\
+https://nytimes.com/live/2025/08/11/weather/tropical-storm-erin-hurricane/here-is-the-latest-on-the-storm
+
+**Tropical Storm Erin Forms Far Out in the Atlantic**\
+`The storm could become the first hurricane of the season, but is not currently a threat to land.`\
+https://nytimes.com/live/2025/08/11/weather/tropical-storm-erin-hurricane
+
 **Beauty**\
 ``\
 https://nytimes.com/section/t-magazine/beauty
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6546720/2025/08/11/harvey-bussell-utah-royals-man-u
 **Netflix Loosens Its Ties to Harry and Meghan**\
 `The streaming giant signed a new deal with the production company for the Duke and Duchess of Sussex that is much less extensive than an earlier arrangement.`\
 https://nytimes.com/2025/08/11/business/media/netflix-prince-harry-meghan-markle-deal.html
-
-**Tracking Tropical Storm Erin**\
-`See the likely path and wind arrival times for Erin`\
-https://nytimes.com/interactive/2025/08/11/weather/tropical-storm-erin-map-path-tracker.html
-
-**Do You Know These Books and Their Television Adaptations?**\
-`Try this short quiz on the memoirs and other nonfiction titles that have inspired popular streaming and network shows.`\
-https://nytimes.com/interactive/2025/08/11/books/review/nonfiction-book-adaptations.html
 

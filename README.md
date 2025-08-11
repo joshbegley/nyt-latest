@@ -1,3 +1,7 @@
+**AP Top 25: Texas wins close vote for preseason No. 1 over Penn State**\
+`Texas is No. 1 and Penn State is No. 2 in the closest preseason AP Top 25 at the top of the poll since 1998.`\
+https://nytimes.com/athletic/6546792/2025/08/11/ap-top-25-college-football-preseason-poll-2025/
+
 **Here is the latest on the storm.**\
 `By Judson Jones`\
 https://nytimes.com/live/2025/08/11/weather/tropical-storm-erin-hurricane/here-is-the-latest-on-the-storm
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/11/world/europe/jellyfish-nuclear-power-plant-france
 **Man Utd Women head of recruitment set to join Utah Royals**\
 `Harvey Bussell is set to leave United at the end of the summer transfer window and take up the same role with the NWSL team.`\
 https://nytimes.com/athletic/6546720/2025/08/11/harvey-bussell-utah-royals-man-utd/
-
-**Netflix Loosens Its Ties to Harry and Meghan**\
-`The streaming giant signed a new deal with the production company for the Duke and Duchess of Sussex that is much less extensive than an earlier arrangement.`\
-https://nytimes.com/2025/08/11/business/media/netflix-prince-harry-meghan-markle-deal.html
 
