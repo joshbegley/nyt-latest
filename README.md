@@ -1,3 +1,7 @@
+**The Yankees ‘wholeheartedly believe’ they can turn their season around. Do you?**\
+`The Yankees continue to ignore the harsh reality that’s been staring them in the face for more than two months. `\
+https://nytimes.com/athletic/6545640/2025/08/10/yankees-season-struggles-playoffs/
+
 **Pro Bowl guard Landon Dickerson leaves Eagles practice with injury**\
 `Extent of lineman's injury is not yet known, but the potential absence of the starter would be significant.`\
 https://nytimes.com/athletic/6545879/2025/08/10/eagles-landon-dickerson-injured/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6545788/2025/08/10/justin-rose-tommy-fleetwood-st-j
 **‘Fighting Fire With Fire,’ Democrats on Defense as Texas Redistricting Looms**\
 `A Republican proposal to add five Republican congressional seats in Texas imperils Democrats’ midterm prospects.`\
 https://nytimes.com/2025/08/10/us/politics/fighting-fire-with-fire-democrats-on-defense-as-texas-redistricting-looms.html
-
-**Phillies takeaways: Zack Wheeler 'not concerned,' Harrison Bader's defense, help on the way**\
-`The Phillies are nearing a level of roster strength they haven’t seen all season. They're 5 1/2 up on the Mets, with more help on the way.`\
-https://nytimes.com/athletic/6545729/2025/08/10/phillies-zack-wheeler-harrison-bader-injury-updates/
 
