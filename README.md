@@ -1,3 +1,7 @@
+**Matthew Stafford doesn't participate at Rams practice despite expected return**\
+`Rams coach Sean McVay told reporters Stafford would likely return to practice on Monday following the team's preseason win over the Cowboys.`\
+https://nytimes.com/athletic/6547127/2025/08/11/matthew-stafford-injury-rams-training-camp/
+
 **Xavier Legette learns a lesson, WR competition heats up: Panthers takeaways**\
 `By adding two draft picks and Hunter Renfrow at receiver, Carolina is going to have tough roster choices to make at the position.`\
 https://nytimes.com/athletic/6547272/2025/08/11/panthers-preseason-takeaways-xavier-legette-disqualified/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6546881/2025/08/11/what-does-playing-in-europa-leag
 **Senators, NCC agree to land purchase of LeBreton Flats for new arena**\
 `The site would be used to build a multipurpose entertainment venue, which would serve as the future home of the Ottawa Senators. `\
 https://nytimes.com/athletic/6547165/2025/08/11/senators-lebreton-flats-arena-purchase/
-
-**D.C. Advocate in Senate Blames Trump for Crime in Capital**\
-`Ankit Jain, the shadow Senator for the District of Columbia, said President Trump should focus on adding judges, not policing.`\
-https://nytimes.com/2025/08/11/us/politics/dc-trump-judges.html
 
