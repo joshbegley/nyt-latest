@@ -1,3 +1,7 @@
+**Trevor Story, by simply staying on the field, finds first taste of success with Red Sox**\
+`At 32, with a checkered injury history, he faced questions of whether he’d be productive again. But he's quelled that talk with his results.`\
+https://nytimes.com/athletic/6545696/2025/08/11/boston-red-sox-trevor-story-health/
+
 **This Week in Mets: Is it even possible for the Mets to rebound from this?**\
 `The Mets have gone from "winners of six straight and holders of a 5-1 lead" to losing 31 of their last 49 games since June 13.`\
 https://nytimes.com/athletic/6545936/2025/08/11/mets-rebound-seven-game-losing-streak/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6544106/2025/08/11/patriots-53-man-roster-projectio
 **Which MLB contenders have the toughest road to the playoffs? Breaking down the schedules**\
 `It’s time for our first of three check-ins about the strength of each playoff contender’s remaining schedule.`\
 https://nytimes.com/athletic/6542881/2025/08/11/mlb-contenders-strength-of-schedule-august-10/
-
-**How confident are you in each NHL team's front office? Have your say in our fan survey**\
-`Each management group will be rated by readers on a scale from 1-5 in six categories.`\
-https://nytimes.com/athletic/6536547/2025/08/11/nhl-front-office-fan-survey/
 
