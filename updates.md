@@ -1,3 +1,19 @@
+**Adidas Apologizes After Mexico Criticizes Oaxacan-Inspired Shoe**\
+`Willy Chavarria, the designer of the shoe, also apologized after Mexican officials leveled accusations of cultural appropriation.`\
+https://nytimes.com/2025/08/11/us/adidas-willy-chavarria-apology-oaxaca-sandal.html
+
+**Trump Says He Will Deploy National Guard to Washington**\
+`President Trump painted a dystopian picture of Washington as he announced that he would temporarily place the Capital’s police under federal control, as well as mobilize hundreds of National Guard troops in the city.`\
+https://nytimes.com/video/us/politics/100000010334817/trump-washington-national-guard.html
+
+**Trump’s homicide-rate chart has been making the rounds on right-wing social media.**\
+`By Lazaro Gamio`\
+https://nytimes.com/live/2025/08/11/us/trump-news/trumps-homicide-rate-chart-has-been-making-the-rounds-on-right-wing-social-media
+
+**Eagles guard Landon Dickerson to have 'minor procedure' on knee: Sources**\
+`The Eagles are hoping the three-time Pro Bowler will be ready for the regular season.`\
+https://nytimes.com/athletic/6547496/2025/08/11/eagles-landon-dickerson-knee-injury/
+
 **Brazil Kept Tight Rein on Big Tech. Trump’s Tariffs Could Change That.**\
 `With President Trump on their side, U.S. technology companies now have more leverage in Brazil, where they seek to influence new rules policing their platforms.`\
 https://nytimes.com/2025/08/11/world/americas/brazil-big-tech-trump-tariffs.html
