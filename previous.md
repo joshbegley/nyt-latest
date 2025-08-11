@@ -1,4 +1,8 @@
-**Grealish set for Everton medical ahead of loan move**\
+**Nkunku open to RB Leipzig return should interest advance**\
+`Leipzig are among a number of sides interested in the forward, but have some financial reservations about the logistics of a potential deal.`\
+https://nytimes.com/athletic/6400207/2025/08/11/christopher-nkunku-rb-leipzig-chelsea-transfer/
+
+**Everton agree Grealish loan deal**\
 `The England international, 29, made only 16 starts for City last season.`\
 https://nytimes.com/athletic/6538344/2025/08/11/jack-grealish-everton-loan-man-city/
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6545106/2025/08/11/by-the-numbers-guardians-al-play
 **NFL QB Tiers 2025: Lamar Jackson cracks Tier 1, Jayden Daniels sets rookie record**\
 `See who joined Jackson in Tier 1, where Caleb Williams stacks up in the 2024 draft class, how far Aaron Rodgers fell and much, much more.`\
 https://nytimes.com/athletic/6514160/2025/08/11/nfl-qb-rankings-tiers-2025-jackson-daniels/
-
-**Before the Super Bowls, the Chiefs were at rock bottom. One blueprint changed everything**\
-`Before the Kansas City Chiefs became perennial Super Bowl contenders, Andy Reid led a textbook organizational turnaround. `\
-https://nytimes.com/athletic/6210303/2025/08/11/andy-reid-chiefs-leadership-clark-hunt/
 

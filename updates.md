@@ -1,3 +1,11 @@
+**Nkunku open to RB Leipzig return should interest advance**\
+`Leipzig are among a number of sides interested in the forward, but have some financial reservations about the logistics of a potential deal.`\
+https://nytimes.com/athletic/6400207/2025/08/11/christopher-nkunku-rb-leipzig-chelsea-transfer/
+
+**Everton agree Grealish loan deal**\
+`The England international, 29, made only 16 starts for City last season.`\
+https://nytimes.com/athletic/6538344/2025/08/11/jack-grealish-everton-loan-man-city/
+
 **Grealish set for Everton medical ahead of loan move**\
 `The England international, 29, made only 16 starts for City last season.`\
 https://nytimes.com/athletic/6538344/2025/08/11/jack-grealish-everton-loan-man-city/
