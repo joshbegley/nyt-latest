@@ -1,3 +1,7 @@
+**Pro Bowl guard Landon Dickerson injured, leaves Eagles practice on cart**\
+`Extent of lineman's injury is not yet known, but the potential absence of the starter would be significant.`\
+https://nytimes.com/athletic/6545879/2025/08/10/eagles-landon-dickerson-injured/
+
 **Israeli Strike Kills 4 Al Jazeera Journalists, Network Says**\
 `Anas al-Sharif, a well-known correspondent, was among those killed. Israel said it had targeted Mr. al-Sharif, claiming he worked for Hamas, which he had denied.`\
 https://nytimes.com/2025/08/10/world/middleeast/israel-gaza-journalists-killed.html
