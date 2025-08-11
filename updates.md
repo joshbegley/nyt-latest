@@ -1,3 +1,7 @@
+**Cincinnati Open tennis suspended after local power outage**\
+`The outage paused two singles matches and brought down broadcast streams across the tournament.`\
+https://nytimes.com/athletic/6547645/2025/08/11/cincinnati-open-tennis-suspended-after-local-power-outage/
+
 **Richest Gain Most and Poorest Face Steepest Cuts Under G.O.P. Law, Analysis Finds**\
 `Millions of people could lose access to federal food aid or Medicaid, according to the Congressional Budget Office’s latest analysis of President Trump’s marquee legislation.`\
 https://nytimes.com/2025/08/11/us/politics/trump-gop-policy-bill-rich-poor.html

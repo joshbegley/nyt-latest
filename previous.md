@@ -1,3 +1,7 @@
+**Cincinnati Open tennis suspended after local power outage**\
+`The outage paused two singles matches and brought down broadcast streams across the tournament.`\
+https://nytimes.com/athletic/6547645/2025/08/11/cincinnati-open-tennis-suspended-after-local-power-outage/
+
 **Richest Gain Most and Poorest Face Steepest Cuts Under G.O.P. Law, Analysis Finds**\
 `Millions of people could lose access to federal food aid or Medicaid, according to the Congressional Budget Office’s latest analysis of President Trump’s marquee legislation.`\
 https://nytimes.com/2025/08/11/us/politics/trump-gop-policy-bill-rich-poor.html
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2025/08/11/us/trump-letter-dc-police-letter.html
 **Aryna Sabalenka extends revealing tiebreak record to beat Emma Raducanu at Cincinnati Open**\
 `Sabalenka's staggering tiebreak record illustrates her play under pressure but also her vulnerability in matches this year.`\
 https://nytimes.com/athletic/6547344/2025/08/11/tennis-sabalenka-raducanu-cincinnati-open-result-analysis/
-
-**Trump Ordered the National Guard to Police the Nation’s Capital**\
-`Also, the killing of Al Jazeera journalists raised Israel-Qatar tensions. Here’s the latest at the end of Monday.`\
-https://nytimes.com/2025/08/11/briefing/trump-washington-police-crime-putin-russia.html
 
