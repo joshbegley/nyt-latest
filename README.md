@@ -1,3 +1,11 @@
+**Harvard and White House Move Toward Potential Landmark Settlement**\
+`A potential $500 million settlement would end a monthslong battle that pitted the nation’s wealthiest school against the Trump administration’s extraordinary crackdown on higher education.`\
+https://nytimes.com/2025/08/11/us/trump-harvard-settlement-negotiations.html
+
+**Trump Takes Control of D.C. Police, Citing ‘Bloodthirsty Criminals.’ But Crime Is Down.**\
+`The president has railed against crime in urban, largely liberal cities for decades, but Monday’s announcement was an extraordinary exertion of federal power over an American city.`\
+https://nytimes.com/2025/08/11/us/politics/trump-washington-dc-police.html
+
 **Eagles guard Landon Dickerson to have 'minor procedure' on knee: Source**\
 `Team is hoping the three-time Pro Bowler will be ready for the regular season.`\
 https://nytimes.com/athletic/6547496/2025/08/11/eagles-landon-dickerson-knee-injury/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/08/11/opinion/trump-national-guard-washington-dc.html
 **Matthew Stafford doesn't participate at Rams practice despite expected return**\
 `Rams coach Sean McVay told reporters the team would take it one day at a time after Stafford was expected to practice on Monday.  `\
 https://nytimes.com/athletic/6547127/2025/08/11/matthew-stafford-injury-rams-training-camp/
-
-**Xavier Legette learns a lesson, WR competition heats up: Panthers takeaways**\
-`By adding two draft picks and Hunter Renfrow at receiver, Carolina is going to have tough roster choices to make at the position.`\
-https://nytimes.com/athletic/6547272/2025/08/11/panthers-preseason-takeaways-xavier-legette-disqualified/
-
-**N.Y.C. Schools Change How Reading Is Taught, and Test Scores Rise**\
-`Mayor Adams cast the upswing as evidence of efforts to improve instruction, while rivals in the mayoral race argued that teachers need better training.`\
-https://nytimes.com/2025/08/11/nyregion/nyc-student-reading-scores-rise.html
 
