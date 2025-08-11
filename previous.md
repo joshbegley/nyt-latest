@@ -1,3 +1,7 @@
+**Here’s the latest.**\
+`By Eric Schmitt, Nicholas Nehamas and Campbell Robertson`\
+https://nytimes.com/live/2025/08/11/us/trump-news/heres-the-latest
+
 **Bulls mailbag: What is Josh Giddey's worth? Who starts alongside him?**\
 `Bulls fans are waiting for the franchise to make moves that will give the team a boost. One of those moves could involve Josh Giddey.`\
 https://nytimes.com/athletic/6546407/2025/08/11/bulls-josh-giddey-isaac-okoro-nba-mailbag/
@@ -26,15 +30,11 @@ https://nytimes.com/2025/08/11/business/us-china-trade-tariffs-deal.html
 `Nothing has been agreed at this stage but talks are moving in a positive direction.`\
 https://nytimes.com/athletic/6063447/2025/08/11/james-mcatee-manchester-city-nottingham-forest-transfer/
 
-**Trump Administration Live Updates: President to Deploy National Guard in Washington, D.C.**\
+**Trump Administration Live Updates: President Is Set to Deploy National Guard in Washington, D.C.**\
 ``\
 https://nytimes.com/live/2025/08/11/us/trump-news
 
 **U.S. Military Is Preparing to Deploy National Guard in D.C., Official Says**\
 `The deployment is part of President Trump’s crackdown on street crime in the city.`\
 https://nytimes.com/2025/08/11/us/politics/trump-national-guard-washington-dc.html
-
-**49ers 53-man roster projection: Undrafted rookie Sebastian Valdez makes his push**\
-`Our projection: The 49ers head into the season deep along the offensive and defensive lines but light at wide receiver and quarterback.`\
-https://nytimes.com/athletic/6543121/2025/08/11/49ers-roster-53-man-projection-sebastian-valdez/
 

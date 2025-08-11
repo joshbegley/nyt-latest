@@ -1,3 +1,11 @@
+**Lowetide: 5 players Oilers could target on waivers or in preseason trades**\
+`NHL-quality talent hits the waiver wire every fall as teams make final cuts to their rosters. The Oilers could take advantage.`\
+https://nytimes.com/athletic/6545298/2025/08/11/oilers-roster-waiver-wire-trade-targets/
+
+**Judge in Maxwell Case Will Not Unseal Grand Jury Transcripts**\
+`President Trump has tried to subdue criticism and conspiracy theories by pushing to disclose the transcripts from the cases of Jeffrey Epstein, who abused teenage girls, and Ghislaine Maxwell, who assisted him.`\
+https://nytimes.com/2025/08/11/nyregion/jeffrey-epstein-ghislaine-maxwell-transcripts.html
+
 **Here’s the latest.**\
 `By Eric Schmitt, Nicholas Nehamas and Campbell Robertson`\
 https://nytimes.com/live/2025/08/11/us/trump-news/heres-the-latest
@@ -29,12 +37,4 @@ https://nytimes.com/2025/08/11/business/us-china-trade-tariffs-deal.html
 **Nottingham Forest close to deal for Manchester City's McAtee**\
 `Nothing has been agreed at this stage but talks are moving in a positive direction.`\
 https://nytimes.com/athletic/6063447/2025/08/11/james-mcatee-manchester-city-nottingham-forest-transfer/
-
-**Trump Administration Live Updates: President Is Set to Deploy National Guard in Washington, D.C.**\
-``\
-https://nytimes.com/live/2025/08/11/us/trump-news
-
-**U.S. Military Is Preparing to Deploy National Guard in D.C., Official Says**\
-`The deployment is part of President Trump’s crackdown on street crime in the city.`\
-https://nytimes.com/2025/08/11/us/politics/trump-national-guard-washington-dc.html
 
