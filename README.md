@@ -1,40 +1,40 @@
-**Australia Joins Growing Effort to Recognize Palestinian Statehood**\
-`After similar announcements by France, Britain and Canada, Australia said it would act at the United Nations General Assembly session next month.`\
-https://nytimes.com/2025/08/11/world/australia/australia-palestine-statehood.html
+**Mamdani Will Visit 5 Boroughs on Anti-Trump Tour**\
+`Zohran Mamdani, the Democratic candidate for mayor, will seek to highlight the ways he believes President Trump’s agenda hurts New York City.`\
+https://nytimes.com/2025/08/11/nyregion/mamdani-trump-cuomo-mayor-nyc.html
 
-**Chelsea season betting preview: Was Club World Cup triumph a sign of things to come?**\
-`Chelsea hasn't contended for the Premier League title for years, but after winning the Club World Cup, should they be viewed as threats?`\
-https://nytimes.com/athletic/6538645/2025/08/11/chelsea-season-betting-preview-odds/
+**A Dangerous Escalation of the Science Wars**\
+`There’s been a dangerous escalation in the science wars.`\
+https://nytimes.com/2025/08/11/opinion/cdc-shooting-vaccine-misinformation.html
 
-**Will Judges Approve Trump’s Choice for U.S. Attorney in Manhattan?**\
-`Jay Clayton, the interim U.S. attorney for the Southern District, was named on an interim basis after Senator Chuck Schumer blocked his nomination.`\
-https://nytimes.com/2025/08/11/nyregion/jay-clayton-attorney-doj-trump.html
+**Sydney Sweeney Has a Secret**\
+`Her talent is extraordinary. But it’s eclipsed in a culture that values attention over artistry.`\
+https://nytimes.com/2025/08/11/opinion/sydney-sweeney-secret.html
 
-**To Study Viking Seafarers, He Took 26 Voyages in Traditional Boats**\
-`An archaeologist in Sweden spent three years traveling in vessels built like those from 1,000 years ago. He discovered lost sea routes, hidden trade harbors and new respect for Viking seamanship.`\
-https://nytimes.com/2025/08/11/science/archaeology-vikings-fyringer-garrett.html
+**The A.O.C. Deepfake Was Terrible. The Proposed Solution Is Delusional.**\
+`Critical thinking is not going to save us.`\
+https://nytimes.com/2025/08/11/opinion/alexandria-ocasio-cortez-deepfake-ai.html
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2025/08/11/crosswords/spelling-bee-forum.html
+**Small Businesses Brace for the Punishing Side Effects of Trump’s Tariffs**\
+`Large firms with big bank balances, workers already in jobs and households near the top of the income ladder will have an easier time navigating the economic waves.`\
+https://nytimes.com/2025/08/11/business/economy/tariffs-small-businesses.html
 
-**Al Jazeera Journalists Killed in Israeli Strike**\
-`A member of the press collapsed into the arms of people near the site of the attack on a tent for journalists near a hospital in Gaza City.`\
-https://nytimes.com/video/world/middleeast/100000010333360/israel-gaza-journalists-killed.html
+**21 Ways People Are Using A.I. at Work**\
+`Yes, it still makes plenty of mistakes, but it has become part of the job for many.`\
+https://nytimes.com/interactive/2025/08/11/upshot/ai-jobs.html
 
-**Tottenham Hotspur approach Man City over Savinho transfer**\
-`Dialogue has taken place between the clubs and a package worth in the region of €50million (£43.3m, $58.2m) is under discussion`\
-https://nytimes.com/athletic/6545821/2025/08/11/savinho-tottenham-transfers-manchester-city/
+**The Mamdani Moment Is About More Than You Realize**\
+`But he’s got some thinking to do.`\
+https://nytimes.com/2025/08/11/opinion/zohran-mamdani-new-york-1980s.html
 
-**Guglielmo Vicario interview: Super Cup hopes, missing Son and adapting to Frank**\
-`The goalkeeper returns to his home city this week as Tottenham take on Paris Saint-Germain hoping to win another European trophy`\
-https://nytimes.com/athletic/6542064/2025/08/11/guglielmo-vicario-tottenham-interview/
+**Children in State Care Were Sexually Abused. How Much Money Are They Owed?**\
+`New Hampshire is backing away from a promise to pay victims hundreds of millions of dollars. Other states are also rethinking payouts to those harmed under their care.`\
+https://nytimes.com/2025/08/11/us/politics/new-hampshire-sexual-abuse-settlements.html
 
-**Word of the Day: hackneyed**\
-`This word has appeared in 20 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2025/08/11/learning/word-of-the-day-hackneyed.html
+**A Writer With a Divine Touch Captures Life in a Christian Commune**\
+`“Ruth,” by Kate Riley, is an absorbing novel about a woman torn between curiosity and purity.`\
+https://nytimes.com/2025/08/11/books/review/ruth-kate-riley.html
 
-**Crystal Palace beat Liverpool with the same team that won the FA Cup. What if it evolved?**\
-`While his bosses cut their cloth accordingly, Oliver Glasner has nonetheless vocalised a desire for new signings to bolster the squad`\
-https://nytimes.com/athletic/6538480/2025/08/11/crystal-palace-community-shield-glasner-guehi/
+**$2.3 Million Homes in California**\
+`A hillside house in Topanga, a condo in Corona del Mar and a Tudor Revival in Sacramento.`\
+https://nytimes.com/2025/08/11/realestate/2-3-million-homes-california.html
 
