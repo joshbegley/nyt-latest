@@ -1,3 +1,19 @@
+**Murillo interview: 'I believe I can score a wonder goal from the halfway line'**\
+`The Nottingham Forest defender discusses his eye for a goal, futsal roots, faith and Champions League aspirations`\
+https://nytimes.com/athletic/6538584/2025/08/11/murillo-nottingham-forest-interview/
+
+**Sheffield Wednesday in crisis: Protests, anger and uncertainty about what comes next**\
+`The Championship club have endured a turbulent summer and fans made their feelings clear as the season began on Sunday`\
+https://nytimes.com/athletic/6545418/2025/08/11/sheffield-wednesday-crisis-fans-leicester/
+
+**How Arsenal play: Right-sided creativity, set-piece expertise, and the Gyokeres factor**\
+`The Athletic looks at the tactical set-up of Mikel Arteta's side ahead of the 2025-26 season`\
+https://nytimes.com/athletic/6544473/2025/08/11/how-arsenal-play-right-sided-creativity-set-piece-expertise-and-the-gyokeres-factor/
+
+**Tyler Dibling has the talent but is an instant Premier League return the right move for him?**\
+`Everton have made two offers to sign the 19-year-old but Dibling might be better served developing in the Championship for a season`\
+https://nytimes.com/athletic/6545099/2025/08/11/tyler-dibling-southampton-everton-premier-league/
+
 **AOL Will Shut Its Dial-Up Internet Service (Yes, It’s Still Operating)**\
 `The company said the service, synonymous with the early days of the internet, will be discontinued on Sept. 30.`\
 https://nytimes.com/2025/08/11/business/aol-dial-up-internet.html

@@ -1,6 +1,22 @@
+**Murillo interview: 'I believe I can score a wonder goal from the halfway line'**\
+`The Nottingham Forest defender discusses his eye for a goal, futsal roots, faith and Champions League aspirations`\
+https://nytimes.com/athletic/6538584/2025/08/11/murillo-nottingham-forest-interview/
+
+**Sheffield Wednesday in crisis: Protests, anger and uncertainty about what comes next**\
+`The Championship club have endured a turbulent summer and fans made their feelings clear as the season began on Sunday`\
+https://nytimes.com/athletic/6545418/2025/08/11/sheffield-wednesday-crisis-fans-leicester/
+
+**How Arsenal play: Right-sided creativity, set-piece expertise, and the Gyokeres factor**\
+`The Athletic looks at the tactical set-up of Mikel Arteta's side ahead of the 2025-26 season`\
+https://nytimes.com/athletic/6544473/2025/08/11/how-arsenal-play-right-sided-creativity-set-piece-expertise-and-the-gyokeres-factor/
+
 **AOL Will Shut Its Dial-Up Internet Service (Yes, It’s Still Operating)**\
 `The company said the service, synonymous with the early days of the internet, will be discontinued on Sept. 30.`\
 https://nytimes.com/2025/08/11/business/aol-dial-up-internet.html
+
+**Tyler Dibling has the talent but is an instant Premier League return the right move for him?**\
+`Everton have made two offers to sign the 19-year-old but Dibling might be better served developing in the Championship for a season`\
+https://nytimes.com/athletic/6545099/2025/08/11/tyler-dibling-southampton-everton-premier-league/
 
 **How Leeds United play: Transitions, narrow wingers and plenty of back-post crosses**\
 `The Athletic looks at the tactical set-up of Daniel Farke's side for the 2025-26 season`\
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6544487/2025/08/11/connections-sports-edition-hints
 **Designing for Sport**\
 `A look at the ‘rockstar’ architect designing one of the most iconic elements of sports and the fan experience - the stadium - inspired by the Range Rover Sport. `\
 https://nytimes.com/paidpost/athletic/rangerover/designingfor-sport.html
-
-**No Corrections: Aug. 11, 2025**\
-`No corrections appeared in print on Monday, Aug. 11, 2025.`\
-https://nytimes.com/2025/08/11/pageoneplus/no-corrections-aug-11-2025.html
-
-**Caleb Murphy, Rocket Sanders among the standouts in Chargers' preseason win over Saints**\
-`Murphy had two sacks — and maybe a third — in Sunday's win and has solidified his spot on Los Angeles' 53-man roster.`\
-https://nytimes.com/athletic/6545973/2025/08/10/chargers-preseason-saints-caleb-murphy/
-
-**Hezly Rivera wins women's all-around at U.S. Gymnastics Championships**\
-`Makes case for U.S.'s World Championship squad. Asher Hong leads U.S. men's roster for Worlds after strong weekend.`\
-https://nytimes.com/athletic/6545927/2025/08/10/us-gymnastics-championships-hezly-rivera/
-
-**Dodgers strand season-high 16 runners in 'frustrating' loss to Blue Jays**\
-`"This was frustrating," Dodgers manager Dave Roberts said. "I just felt there's no way we should lose this game today."`\
-https://nytimes.com/athletic/6545900/2025/08/10/dodgers-loss-blue-jays-miss-opportunities/
 
