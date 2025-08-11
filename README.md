@@ -1,6 +1,18 @@
+**Deadly Explosion at U.S. Steel Plant in Pennsylvania**\
+`At least one person was killed and dozens more injured after an explosion at a U.S. Steel plant in Clairton, Pa.`\
+https://nytimes.com/video/us/100000010334505/us-steel-explosion-pennsylvania.html
+
+**Indian Lawmakers Detained for Protesting ‘Electoral Irregularities’**\
+`Hundreds of opposition members were briefly detained in New Delhi on Monday after claiming that Prime Minister Narendra Modi’s ruling party and the election commission manipulated voter rolls.`\
+https://nytimes.com/video/world/asia/100000010334356/india-lawmakers-arrested-modi.html
+
+**Revel Pulls Plug on Electric Vehicle Ride-Share Business in New York**\
+`Once promising a glimpse at the possible future of transportation in New York City, Revel has since retreated to focus on building charging stations.`\
+https://nytimes.com/2025/08/11/nyregion/revel-nyc-shutdown.html
+
 **Here’s a Look at the Journalists Killed by an Israeli Strike in Gaza**\
 `Israeli officials said it was a targeted strike aimed at one of those killed,  Anas al-Sharif, whom it accused of being a Hamas fighter posing as a reporter.`\
-https://nytimes.com/2025/08/11/world/middleeast/jazeera-journalists-bios.html
+https://nytimes.com/2025/08/11/world/middleeast/al-jazeera-journalists-bios.html
 
 **Trump Is Blurring the Line Between the Military and Law Enforcement**\
 `Eight months into the president’s second term, the National Guard has already been deployed twice — once for protests and once for local crime concerns.`\
@@ -25,16 +37,4 @@ https://nytimes.com/2025/08/11/nyregion/lloyd-williams-dead.html
 **Trump Wields Tariffs as a Force in Diplomacy, to Questionable Effect**\
 `The president has threatened more tariffs on Russia and its trading partners and has imposed harsh ones on India and Brazil to try to sway matters of war and politics.`\
 https://nytimes.com/2025/08/11/us/politics/trump-tariffs-russia.html
-
-**Trump’s Use of National Guard in L.A. Remains Contentious**\
-`A three-day trial opened Monday in state officials’ challenge of the legality of the deployment, which followed protests over immigration raids.`\
-https://nytimes.com/2025/08/11/us/politics/trump-national-guard-los-angeles-lawsuits.html
-
-**Crystal Palace, UEFA and CAS: What now for the club, the manager and players?**\
-`The London club's first UEFA campaign will be in the Conference League after CAS cast out their appeal to be reinstated to the Europa League`\
-https://nytimes.com/athletic/6545650/2025/08/11/crystal-palace-cas-uefa-conference-glasner-parish/
-
-**Protesters Gather Near White House as Trump Unveils D.C. Plans**\
-`The demonstrators said the president’s actions were the latest blow to a city that has been among the hardest hit by his executive orders and policies.`\
-https://nytimes.com/2025/08/11/us/politics/national-guard-dc-protests.html
 
