@@ -1,6 +1,20 @@
+**Tom Brady's Fox broadcast schedule: Washington, Kansas City and likely Chicago**\
+`Brady returns for his second season as an analyst with Fox's No. 1 team, which includes Kevin Burkhardt, Erin Andrews and Tom Rinaldi.`\
+https://nytimes.com/athletic/6546890/2025/08/11/tom-bradys-fox-broadcast-schedule-washington-kansas-city-chicago/
+
+**Submit a question for Stewart Mandel's College Football Playoff**\
+`<p>Can you believe we&#8217;ll be watching actual college football games less than two weeks from now?</p>
+<p>Leave your questions here. Please include your city.</p>
+`\
+https://nytimes.com/athletic/6547062/2025/08/11/submit-a-question-for-stewart-mandels-college-football-mailbag-310/
+
+**The Ethical Boundaries of Organ Donation**\
+`Readers respond to a front-page article about organ transplants and risks to donors. Also: Burning contraceptives; photo memories.`\
+https://nytimes.com/2025/08/11/opinion/organ-donation-ethics.html
+
 **Space Rock That Punched Through Roof Almost Struck Resident**\
 `Fragments of a meteorite that fell to Earth as part of a mysterious daytime fireball in late June missed striking a man near Atlanta, a researcher has found.`\
-https://nytimes.com/2025/08/11/science/meteor-atlanta-georgia.html
+https://nytimes.com/2025/08/11/science/meteor-georgia-older-than-earth.html
 
 **Lloyd: Shedeur Sanders, Browns fans are dating, but it's not time to meet the parents**\
 `Sanders’ 138 passing yards and two touchdowns in the preseason opener made many fans swoon, but a little patience and understanding is best.`\
@@ -25,16 +39,4 @@ https://nytimes.com/live/2025/08/11/weather/tropical-storm-erin-hurricane
 **Beauty**\
 ``\
 https://nytimes.com/section/t-magazine/beauty
-
-**America’s Clean Hydrogen Dreams Are Fading, Again**\
-`The market for the clean-burning fuel remains nascent, costs are rising, and Congress just put a lucrative tax credit out of reach for many companies.`\
-https://nytimes.com/2025/08/11/business/energy-environment/hydrogen-clean-energy.html
-
-**Trump Crypto Firm Announces $1.5 Billion Digital Coin Deal**\
-`A publicly traded tech firm, ALT5 Sigma, plans to sell $1.5 billion of shares to fund the purchase of a cryptocurrency created by World Liberty Financial, which the Trumps control.`\
-https://nytimes.com/2025/08/11/business/trump-crypto-world-liberty-wlfi-alt5-sigma.html
-
-**In This Financial Crisis, Brian Cox Is Hauntingly Good**\
-`The “Succession” star, playing the ghost of the Scottish philosopher Adam Smith, is a bright spot in a new play about the 2008 banking crunch.`\
-https://nytimes.com/2025/08/11/theater/make-it-happen-brian-cox-edinburgh.html
 
