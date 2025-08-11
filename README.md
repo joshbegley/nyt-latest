@@ -1,3 +1,7 @@
+**Blown Away by Bubble Art**\
+`Performers are delighting crowds with bubble blowing at the Edinburgh Festival Fringe, using a mixture of dish soap, water and lube — and occasional acrobatics.`\
+https://nytimes.com/2025/08/11/theater/bubble-shows-edinburgh-fringe.html
+
 **The New York Times International Edition in Print for Tuesday, Aug. 12, 2025**\
 ``\
 https://nytimes.com/issue/todaysinyt/2025/08/11/todays-new-york-times-international-edition
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/11/business/economy/tariffs-small-businesses.html
 **21 Ways People Are Using A.I. at Work**\
 `Yes, it still makes plenty of mistakes, but it has become part of the job for many.`\
 https://nytimes.com/interactive/2025/08/11/upshot/ai-jobs.html
-
-**The Mamdani Moment Is About More Than You Realize**\
-`But he’s got some thinking to do.`\
-https://nytimes.com/2025/08/11/opinion/zohran-mamdani-new-york-1980s.html
 
