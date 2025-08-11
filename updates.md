@@ -1,3 +1,7 @@
+**Is It a Tax, or a Payoff?**\
+`A deal for Nvidia and AMD to give the Trump administration a cut of chip sales to China raises questions about national security and trade policy goals.`\
+https://nytimes.com/2025/08/11/business/dealbook/nvidia-amd-chip-payoff-trump.html
+
 **Bills running back Ray Davis finally gets his chance to kick, but hopes it was his last**\
 `The process of getting him ready to kick was not unlike a racing pit stop. `\
 https://nytimes.com/athletic/6546043/2025/08/11/bills-running-back-ray-davis-emergency-kicker/
