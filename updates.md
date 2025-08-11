@@ -1,3 +1,7 @@
+**Finland Charges Ship’s Crew Members in Slashing of Undersea Cables**\
+`The tanker, the Eagle S, was detained last December.`\
+https://nytimes.com/2025/08/11/world/europe/finland-cable-severing-charges-russia-shadow-fleet.html
+
 **Fantasy baseball cheat sheet: Ezequiel Tovar's hot August and more THE BAT X insights**\
 `The Athletic and THE BAT X have teamed up to bring readers a fantasy baseball cheat sheet to begin the week. `\
 https://nytimes.com/athletic/6545284/2025/08/11/fantasy-baseball-the-bat-x-tovar-august/
