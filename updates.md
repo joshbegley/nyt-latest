@@ -1,3 +1,11 @@
+**Packers preseason: Jordan Love practices with left thumb wrapped and 7 more observations**\
+`Love spoke at length after practice with Matt LaFleur and two trainers while flexing his non-throwing thumb.`\
+https://nytimes.com/athletic/6547509/2025/08/11/packers-jordan-love-thumb-injury/
+
+**Gunman Kills Three at a Target Store in Austin, Texas**\
+`Police said a fourth person was injured. The gunman was caught after stealing a succession of cars, the police said.`\
+https://nytimes.com/2025/08/11/us/austin-shooting.html
+
 **What to Know About How Bail Works in the U.S.**\
 `President Trump called revisions in bail law a “disaster.” Conservatives argue that such policies have contributed to increased lawlessness, but the data does not support their argument.`\
 https://nytimes.com/2025/08/11/nyregion/bail-explainer-trump.html

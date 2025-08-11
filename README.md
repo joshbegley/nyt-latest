@@ -1,3 +1,11 @@
+**President Trump Calls Intel C.E.O. a ‘Success’ After Meeting**\
+`Just days after calling for the resignation of Intel chief, Lip-Bu Tan, over his ties to China, Mr. Trump changed his tune.`\
+https://nytimes.com/2025/08/11/technology/president-trump-intel-ceo.html
+
+**Trump Pulls Military Into Another Political Issue**\
+`The National Guard troops who will move into Washington, D.C., will not perform law enforcement tasks but may be able to detain people temporarily, officials said.`\
+https://nytimes.com/2025/08/11/us/politics/trump-military-washington.html
+
 **Packers preseason: Jordan Love practices with left thumb wrapped and 7 more observations**\
 `Love spoke at length after practice with Matt LaFleur and two trainers while flexing his non-throwing thumb.`\
 https://nytimes.com/athletic/6547509/2025/08/11/packers-jordan-love-thumb-injury/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/08/11/arts/christophe-de-menil-dead.html
 **Adidas Apologizes After Mexico Criticizes Oaxacan-Inspired Shoe**\
 `Willy Chavarria, the designer of the shoe, also apologized after Mexican officials leveled accusations of cultural appropriation.`\
 https://nytimes.com/2025/08/11/us/adidas-willy-chavarria-apology-oaxaca-sandal.html
-
-**Trump Says He Will Deploy National Guard to Washington**\
-`President Trump painted a dystopian picture of Washington as he announced that he would temporarily place the Capital’s police under federal control, as well as mobilize hundreds of National Guard troops in the city.`\
-https://nytimes.com/video/us/politics/100000010334817/trump-washington-national-guard.html
-
-**Trump’s homicide-rate chart has been making the rounds on right-wing social media.**\
-`By Lazaro Gamio`\
-https://nytimes.com/live/2025/08/11/us/trump-news/trumps-homicide-rate-chart-has-been-making-the-rounds-on-right-wing-social-media
 
