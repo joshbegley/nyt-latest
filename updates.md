@@ -1,3 +1,11 @@
+**President Trump Calls Intel C.E.O. a ‘Success’ After Meeting**\
+`Just days after calling for the resignation of Intel chief, Lip-Bu Tan, over his ties to China, Mr. Trump changed his tune.`\
+https://nytimes.com/2025/08/11/technology/president-trump-intel-ceo.html
+
+**Trump Pulls Military Into Another Political Issue**\
+`The National Guard troops who will move into Washington, D.C., will not perform law enforcement tasks but may be able to detain people temporarily, officials said.`\
+https://nytimes.com/2025/08/11/us/politics/trump-military-washington.html
+
 **Packers preseason: Jordan Love practices with left thumb wrapped and 7 more observations**\
 `Love spoke at length after practice with Matt LaFleur and two trainers while flexing his non-throwing thumb.`\
 https://nytimes.com/athletic/6547509/2025/08/11/packers-jordan-love-thumb-injury/
