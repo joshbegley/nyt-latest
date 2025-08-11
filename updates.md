@@ -1,3 +1,7 @@
+**Israeli Strike Kills 4 Al Jazeera Journalists, Network Says**\
+`Anas al-Sharif, a well-known correspondent, was among those killed. Israel said it had targeted Mr. al-Sharif, claiming he worked for Hamas, which he had denied.`\
+https://nytimes.com/2025/08/10/world/middleeast/israel-gaza-journalists-killed.html
+
 **Hezly Rivera wins women's all-around at U.S. Gymnastics Championships**\
 `Makes case for U.S.'s World Championship squad. Asher Hong leads U.S. men's roster for Worlds after strong weekend.`\
 https://nytimes.com/athletic/6545927/2025/08/10/us-gymnastics-championships-hezly-rivera/
