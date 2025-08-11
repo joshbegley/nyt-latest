@@ -1,3 +1,15 @@
+**Guglielmo Vicario interview: Super Cup hopes, missing Son and adapting to Frank**\
+`The goalkeeper returns to his home city this week as Tottenham take on Paris Saint-Germain hoping to win another European trophy`\
+https://nytimes.com/athletic/6542064/2025/08/11/guglielmo-vicario-tottenham-interview/
+
+**Word of the Day: hackneyed**\
+`This word has appeared in 20 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2025/08/11/learning/word-of-the-day-hackneyed.html
+
+**Crystal Palace beat Liverpool with the same team that won the FA Cup. What if it evolved?**\
+`While Palace are cutting their cloth accordingly, Oliver Glasner has nonetheless vocalised a desire for new signings to bolster his squad`\
+https://nytimes.com/athletic/6538480/2025/08/11/crystal-palace-community-shield-glasner-guehi/
+
 **Palace admit Guehi sale may be necessary this summer**\
 `Guehi has one year remaining on the five-year deal he signed when joining from Chelsea in 2021 with no indication yet given on a renewal.`\
 https://nytimes.com/athletic/6545617/2025/08/11/marc-guehi-contract-crystal-palace-transfers/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/08/11/briefing/monday-briefing-north-koreas-heir-appare
 **A'ja Wilson makes history with WNBA's first 30-20 game**\
 `Wilson leads the WNBA in single-season points, single-season rebounds and most points in a single game.`\
 https://nytimes.com/athletic/6546038/2025/08/11/aja-wilson-wnba-history-30-points-20-rebounds/
-
-**Newcastle United season preview: Hello despondency, our old friend...**\
-`George Caulkin looks ahead to what should be an exciting campaign at St James' Park, despite the gloom of a difficult summer`\
-https://nytimes.com/athletic/6542439/2025/08/11/newcastle-united-season-preview-2025-2026/
-
-**Justin Verlander hits a milestone, and Giants hit little else in embarrassing loss**\
-`"I'm frustrated that our fans come out and support us every night and we gave them literally nothing today," Giants manager Bob Melvin said.`\
-https://nytimes.com/athletic/6546022/2025/08/11/giants-loss-nationals-justin-verlander-strikeouts/
-
-**Fantasy Premier League: Analysing the early-season fixtures – does anyone have an easy start?**\
-`Holly Shand takes a deep dive into the opening three gameweeks of the season and also breaks down the bigger fixture picture `\
-https://nytimes.com/athletic/6508095/2025/08/11/fantasy-premier-league-fixtures-analysis/
 
