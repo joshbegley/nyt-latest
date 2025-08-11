@@ -1,3 +1,11 @@
+**D.C. Advocate in Senate Blames Trump for Crime in Capital**\
+`Ankit Jain, the shadow Senator for the District of Columbia, said President Trump should focus on adding judges, not policing.`\
+https://nytimes.com/2025/08/11/us/politics/dc-trump-judges.html
+
+**Blue Jays to promote prospect Trey Yesavage to Triple A, could be factor down the stretch: Sources**\
+`Yesavage has already moved up three levels this season and now sits on the cusp of his big-league debut.`\
+https://nytimes.com/athletic/6547138/2025/08/11/trey-yesavage-blue-jays-promotion-triple-a/
+
 **This Video Shows Medical Volunteer Executed Amid Unrest in Southern Syria**\
 `The images are the latest reflecting the wave of sectarian violence that has recently consumed the country and left more than 1,000 dead.`\
 https://nytimes.com/2025/08/11/world/middleeast/syria-volunteer-execution-sweida-hospital.html
@@ -31,12 +39,4 @@ https://nytimes.com/athletic/6547062/2025/08/11/submit-a-question-for-stewart-ma
 **The Ethical Boundaries of Organ Donation**\
 `Readers respond to a front-page article about organ transplants and risks to donors. Also: Burning contraceptives; photo memories.`\
 https://nytimes.com/2025/08/11/opinion/organ-donation-ethics.html
-
-**Space Rock That Punched Through Roof Almost Struck Resident**\
-`Fragments of a meteorite that fell to Earth as part of a mysterious daytime fireball in late June missed striking a man near Atlanta, a researcher has found.`\
-https://nytimes.com/2025/08/11/science/meteor-georgia-older-than-earth.html
-
-**Lloyd: Shedeur Sanders, Browns fans are dating, but it's not time to meet the parents**\
-`Sanders’ 138 passing yards and two touchdowns in the preseason opener made many fans swoon, but a little patience and understanding is best.`\
-https://nytimes.com/athletic/6546137/2025/08/11/shedeur-sanders-browns-fans-relationship/
 
