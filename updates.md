@@ -1,3 +1,7 @@
+**A mental reset and a mechanical tweak has Matt Shaw among the hottest hitters in baseball**\
+`Shaw has a 207 wRC+ since the All-Star break. Only three players with at least 50 plate appearances had a better wRC.`\
+https://nytimes.com/athletic/6546027/2025/08/11/chicago-cubs-matt-shaw-hottest-hitters/
+
 **Monday Briefing: North Korea’s Heir Apparent**\
 `Plus, Europe closed ranks ahead of the Trump-Putin summit.`\
 https://nytimes.com/2025/08/11/briefing/monday-briefing-north-koreas-heir-apparent.html
