@@ -1,3 +1,31 @@
+**AOL Will Shut Its Dial-Up Internet Service (Yes, It’s Still Operating)**\
+`The company said the service, synonymous with the early days of the internet, will be discontinued on Sept. 30.`\
+https://nytimes.com/2025/08/11/business/aol-dial-up-internet.html
+
+**How Leeds United play: Transitions, narrow wingers and plenty of back-post crosses**\
+`The Athletic looks at the tactical set-up of Daniel Farke's side for the 2025-26 season`\
+https://nytimes.com/athletic/6538145/2025/08/11/leeds-united-tactics-premier-league-2025-26/
+
+**China’s Automakers Are Taking a Shortcut to European Markets**\
+`Ships carrying Chinese cars are using the Red Sea and Suez Canal even as other vessels still sail around Africa in fear of attacks by the Houthi militia.`\
+https://nytimes.com/2025/08/11/business/china-electric-vehicles-red-sea.html
+
+**Quote of the Day: Just to Play Hoops, Congo’s Youth Risk Abduction by Rebels**\
+`Quotation of the Day for Monday, August 11, 2025.`\
+https://nytimes.com/2025/08/11/pageoneplus/quote-of-the-day-just-to-play-hoops-congos-youth-risk-abduction-by-rebels.html
+
+**Connections: Sports Edition Coach: Hints for Aug. 11, 2025**\
+`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
+https://nytimes.com/athletic/6544487/2025/08/11/connections-sports-edition-hints-for-aug-11-2025/
+
+**Designing for Sport**\
+`A look at the ‘rockstar’ architect designing one of the most iconic elements of sports and the fan experience - the stadium - inspired by the Range Rover Sport. `\
+https://nytimes.com/paidpost/athletic/rangerover/designingfor-sport.html
+
+**No Corrections: Aug. 11, 2025**\
+`No corrections appeared in print on Monday, Aug. 11, 2025.`\
+https://nytimes.com/2025/08/11/pageoneplus/no-corrections-aug-11-2025.html
+
 **Caleb Murphy, Rocket Sanders among the standouts in Chargers' preseason win over Saints**\
 `Murphy had two sacks — and maybe a third — in Sunday's win and has solidified his spot on Los Angeles' 53-man roster.`\
 https://nytimes.com/athletic/6545973/2025/08/10/chargers-preseason-saints-caleb-murphy/
@@ -9,32 +37,4 @@ https://nytimes.com/athletic/6545927/2025/08/10/us-gymnastics-championships-hezl
 **Dodgers strand season-high 16 runners in 'frustrating' loss to Blue Jays**\
 `"This was frustrating," Dodgers manager Dave Roberts said. "I just felt there's no way we should lose this game today."`\
 https://nytimes.com/athletic/6545900/2025/08/10/dodgers-loss-blue-jays-miss-opportunities/
-
-**MGK Tore It All Down for His Art**\
-`MGK, best known as Machine Gun Kelly, spoke with Jon Caramanica and Joe Coscarelli, the hosts of “Popcast” at The New York Times, about how his self-destructive behavior led to fresh work, including his new Bob Dylan-approved album, “Lost Americana.”`\
-https://nytimes.com/video/podcasts/100000010332842/mgk-tore-it-all-down-for-his-art.html
-
-**The Yankees ‘wholeheartedly believe’ they can turn their season around. Do you?**\
-`The Yankees continue to ignore the harsh reality that’s been staring them in the face for more than two months. `\
-https://nytimes.com/athletic/6545640/2025/08/10/yankees-season-struggles-playoffs/
-
-**Pro Bowl guard Landon Dickerson injured, leaves Eagles practice on cart**\
-`Extent of lineman's injury is not yet known, but the potential absence of the starter would be significant.`\
-https://nytimes.com/athletic/6545879/2025/08/10/eagles-landon-dickerson-injured/
-
-**Post-fire sale Twins win again behind rookie Luke Keaschall and 'grandpa' Ryan Fitzgerald**\
-`Keaschall's first walk-off homer and Fitzgerald's first MLB homer secured the Twins' first back-to-back series wins since mid-July.`\
-https://nytimes.com/athletic/6545659/2025/08/10/minnesota-twins-walk-off-win-luke-keaschall/
-
-**Trump Administration to Put F.B.I. Agents on Night Patrol in Washington**\
-`The move is part of President Trump’s pledge to crack down on street crime in the nation’s capital.`\
-https://nytimes.com/2025/08/10/us/politics/trump-fbi-patrol-washington.html
-
-**Israeli Strike Kills 4 Al Jazeera Journalists, Network Says**\
-`Anas al-Sharif, a well-known correspondent, was among those killed. Israel said it had targeted Mr. al-Sharif, claiming he worked for Hamas, which he had denied.`\
-https://nytimes.com/2025/08/10/world/middleeast/israel-gaza-journalists-killed.html
-
-**Letters! Actual Letters!**\
-`When the best — and perhaps only — way to say something is to write it down.`\
-https://nytimes.com/2025/08/10/podcasts/letters-this-american-life-nyt-audio.html
 
