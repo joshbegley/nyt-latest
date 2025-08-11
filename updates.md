@@ -1,3 +1,7 @@
+**Trump Is Blurring the Line Between the Military and Law Enforcement**\
+`Eight months into the president’s second term, the National Guard has already been deployed twice — once for protests and once for local crime concerns.`\
+https://nytimes.com/2025/08/11/opinion/trump-national-guard-washington-dc.html
+
 **Matthew Stafford doesn't participate at Rams practice despite expected return**\
 `Rams coach Sean McVay told reporters the team would take it one day at a time after Stafford was expected to practice on Monday.  `\
 https://nytimes.com/athletic/6547127/2025/08/11/matthew-stafford-injury-rams-training-camp/

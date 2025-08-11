@@ -1,3 +1,7 @@
+**Here’s a Look at the Journalists Killed in an Israeli Strike in Gaza**\
+`Israeli officials said it was a targeted strike aimed at one of those killed,  Anas al-Sharif, whom it accused of being a Hamas fighter posing as a reporter.`\
+https://nytimes.com/2025/08/11/world/middleeast/jazeera-journalists-bios.html
+
 **Trump Is Blurring the Line Between the Military and Law Enforcement**\
 `Eight months into the president’s second term, the National Guard has already been deployed twice — once for protests and once for local crime concerns.`\
 https://nytimes.com/2025/08/11/opinion/trump-national-guard-washington-dc.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6545650/2025/08/11/crystal-palace-cas-uefa-conferen
 **Protesters Gather Near White House as Trump Unveils D.C. Plans**\
 `The demonstrators said the president’s actions were the latest blow to a city that has been among the hardest hit by his executive orders and policies.`\
 https://nytimes.com/2025/08/11/us/politics/national-guard-dc-protests.html
-
-**What does playing in Europa League mean for Nottingham Forest? Key questions answered**\
-`Forest have been promoted to the Europa League at Crystal Palace's expense. So what does the change mean for the club and fans?`\
-https://nytimes.com/athletic/6546881/2025/08/11/what-does-playing-in-europa-league-mean-for-nottingham-forest-key-questions-answered/
 
