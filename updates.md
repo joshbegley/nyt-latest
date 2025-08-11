@@ -1,3 +1,11 @@
+**Crystal Palace, UEFA and CAS: What now for the club, the manager and players?**\
+`The London club's first UEFA campaign will be in the Conference League after CAS cast out their appeal to be reinstated to the Europa League`\
+https://nytimes.com/athletic/6545650/2025/08/11/crystal-palace-cas-uefa-conference-glasner-parish/
+
+**Protesters Gather Near White House as Trump Unveils D.C. Plans**\
+`The demonstrators said the president’s actions were the latest blow to a city that has been among the hardest hit by his executive orders and policies.`\
+https://nytimes.com/2025/08/11/us/politics/national-guard-dc-protests.html
+
 **What does playing in Europa League mean for Nottingham Forest? Key questions answered**\
 `Forest have been promoted to the Europa League at Crystal Palace's expense. So what does the change mean for the club and fans?`\
 https://nytimes.com/athletic/6546881/2025/08/11/what-does-playing-in-europa-league-mean-for-nottingham-forest-key-questions-answered/
