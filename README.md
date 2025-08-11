@@ -1,3 +1,7 @@
+**Is It a Tax, or a Payoff?**\
+`A deal for Nvidia and AMD to give the Trump administration a cut of chip sales to China raises questions about national security and trade policy goals.`\
+https://nytimes.com/2025/08/11/business/dealbook/nvidia-amd-chip-payoff-trump.html
+
 **Bills running back Ray Davis finally gets his chance to kick, but hopes it was his last**\
 `The process of getting him ready to kick was not unlike a racing pit stop. `\
 https://nytimes.com/athletic/6546043/2025/08/11/bills-running-back-ray-davis-emergency-kicker/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6545252/2025/08/11/carlos-correa-third-basemen-astr
 **There's more to how Gerry Glasco turned Texas Tech into a softball power than NIL**\
 `Texas Tech's financial commitment to softball is significant, but the first-year coach also credits transparency for a trip to the WCWS.`\
 https://nytimes.com/athletic/6503017/2025/08/11/texas-tech-softball-gerry-glasco/
-
-**Wildfire at Edinburgh Landmark, Arthur’s Seat, Brought Under Control**\
-`Firefighters worked overnight to tackle the blaze on the hill overlooking the Scottish capital. There were no reports of injuries.`\
-https://nytimes.com/2025/08/11/world/europe/fire-arthurs-seat-edinburgh-scotland.html
 
