@@ -1,3 +1,7 @@
+**Seeking Friendlier Data, Trump Names New Commissioner for Statistics Bureau**\
+`The president fired the Bureau of Labor Statistics chief after a downbeat jobs report. The move has jeopardized the credibility of economic data.`\
+https://nytimes.com/2025/08/11/business/economy/trump-bls-commissioner.html
+
 **Why Erin’s path won’t become clear for several days.**\
 `By Judson Jones`\
 https://nytimes.com/live/2025/08/11/weather/tropical-storm-erin-hurricane/erin-path
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/11/briefing/trump-washington-troops-gaza-aljazeera.h
 **New York’s Democratic Governor Called in the Troops Last Year to Fight Subway Crime**\
 `President Trump is deploying the National Guard to the streets of an American city for the second time this year, but the Guard has been used by other leaders, too.`\
 https://nytimes.com/2025/08/11/us/politics/hochul-national-guard-nyc-subway.html
-
-**Wild sign defenseman Jack Johnson to professional tryout**\
-`If the 38-year-old earns a contract for the Wild or signs elsewhere as a free agent, it'll be his 20th NHL season.`\
-https://nytimes.com/athletic/6547619/2025/08/11/wild-jack-johnson-professional-tryout/
 

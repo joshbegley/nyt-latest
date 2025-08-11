@@ -1,3 +1,7 @@
+**Seeking Friendlier Data, Trump Names New Commissioner for Statistics Bureau**\
+`The president fired the Bureau of Labor Statistics chief after a downbeat jobs report. The move has jeopardized the credibility of economic data.`\
+https://nytimes.com/2025/08/11/business/economy/trump-bls-commissioner.html
+
 **Why Erin’s path won’t become clear for several days.**\
 `By Judson Jones`\
 https://nytimes.com/live/2025/08/11/weather/tropical-storm-erin-hurricane/erin-path
