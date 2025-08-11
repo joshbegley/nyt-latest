@@ -1,3 +1,19 @@
+**Palace admit Guehi sale may be necessary this summer**\
+`Guehi has one year remaining on the five-year deal he signed when joining from Chelsea in 2021 with no indication yet given on a renewal.`\
+https://nytimes.com/athletic/6545617/2025/08/11/marc-guehi-contract-crystal-palace-transfers/
+
+**The New York Times in Print for Monday, Aug. 11, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/08/11/todays-new-york-times
+
+**‘And Just Like That …’ Finale, Plus 5 Things to Watch on TV This Week**\
+`The HBO reboot of this beloved show wraps up and Chris Hemsworth’s documentary series returns for a second season.`\
+https://nytimes.com/2025/08/11/arts/television/and-just-like-that-finale-things-to-watch-on-tv.html
+
+**Spain Is Going Its Own Way**\
+`The government’s humane and pragmatic approach to immigration is an example for others to emulate.`\
+https://nytimes.com/2025/08/11/opinion/spain-immigration-sanchez-amnesty.html
+
 **A mental reset and a mechanical tweak has Matt Shaw among the hottest hitters in baseball**\
 `Shaw has a 207 wRC+ since the All-Star break. Only three players with at least 50 plate appearances had a better wRC.`\
 https://nytimes.com/athletic/6546027/2025/08/11/chicago-cubs-matt-shaw-hottest-hitters/
