@@ -1,3 +1,11 @@
+**Lowetide: 5 players Oilers could target on waivers or in preseason trades**\
+`NHL-quality talent hits the waiver wire every fall as teams make final cuts to their rosters. The Oilers could take advantage.`\
+https://nytimes.com/athletic/6545298/2025/08/11/oilers-roster-waiver-wire-trade-targets/
+
+**Judge in Maxwell Case Will Not Unseal Grand Jury Transcripts**\
+`President Trump has tried to subdue criticism and conspiracy theories by pushing to disclose the transcripts from the cases of Jeffrey Epstein, who abused teenage girls, and Ghislaine Maxwell, who assisted him.`\
+https://nytimes.com/2025/08/11/nyregion/jeffrey-epstein-ghislaine-maxwell-transcripts.html
+
 **Here’s the latest.**\
 `By Eric Schmitt, Nicholas Nehamas and Campbell Robertson`\
 https://nytimes.com/live/2025/08/11/us/trump-news/heres-the-latest
