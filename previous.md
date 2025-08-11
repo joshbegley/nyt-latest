@@ -1,3 +1,7 @@
+**Richest Gain Most and Poorest Face Steepest Cuts Under G.O.P. Law, Analysis Finds**\
+`Millions of people could lose access to federal food aid or Medicaid, according to the Congressional Budget Office’s latest analysis of President Trump’s marquee legislation.`\
+https://nytimes.com/2025/08/11/us/politics/trump-gop-policy-bill-rich-poor.html
+
 **Three People Are Killed After Shooting in Austin, Texas**\
 `The police said the gunman was arrested after he shot and killed three people outside of a Target store in Austin, Texas, on Monday afternoon.`\
 https://nytimes.com/video/us/100000010334949/austin-target-shooting.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6547344/2025/08/11/tennis-sabalenka-raducanu-cincin
 **Trump Ordered the National Guard to Police the Nation’s Capital**\
 `Also, the killing of Al Jazeera journalists raised Israel-Qatar tensions. Here’s the latest at the end of Monday.`\
 https://nytimes.com/2025/08/11/briefing/trump-washington-police-crime-putin-russia.html
-
-**President Trump Calls Intel C.E.O. a ‘Success’ After Meeting**\
-`Just days after calling for the resignation of Intel chief, Lip-Bu Tan, over his ties to China, Mr. Trump changed his tune.`\
-https://nytimes.com/2025/08/11/technology/president-trump-intel-ceo.html
 
