@@ -1,3 +1,11 @@
+**Space Rock That Punched Through Roof Almost Struck Resident**\
+`Fragments of a meteorite that fell to Earth as part of a mysterious daytime fireball in late June missed striking a man near Atlanta, a researcher has found.`\
+https://nytimes.com/2025/08/11/science/meteor-atlanta-georgia.html
+
+**Lloyd: Shedeur Sanders, Browns fans are dating, but it's not time to meet the parents**\
+`Sanders’ 138 passing yards and two touchdowns in the preseason opener made many fans swoon, but a little patience and understanding is best.`\
+https://nytimes.com/athletic/6546137/2025/08/11/shedeur-sanders-browns-fans-relationship/
+
 **Explosion at U.S. Steel Plant Injures Dozens, Authorities Say**\
 `The blast drew multiple emergency crews to a plant in Clairton, Pa., near Pittsburgh, for what officials called a mass casualty incident.`\
 https://nytimes.com/2025/08/11/us/us-steel-explosion-pennsylvania.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/08/11/business/trump-crypto-world-liberty-wlfi-alt5-sig
 **In This Financial Crisis, Brian Cox Is Hauntingly Good**\
 `The “Succession” star, playing the ghost of the Scottish philosopher Adam Smith, is a bright spot in a new play about the 2008 banking crunch.`\
 https://nytimes.com/2025/08/11/theater/make-it-happen-brian-cox-edinburgh.html
-
-**Explained: UEFA, CAS and where this leaves Crystal Palace and Nottingham Forest**\
-`The Court of Arbitration for Sport confirmed on Monday it had rejected Palace's request to be reinstated to UEFA's Europa League`\
-https://nytimes.com/athletic/6546631/2025/08/11/cas-crystal-palace-nottingham-forest-uefa-europa-conference/
-
-**Jellyfish Shut Down French Nuclear Power Plant**\
-`Four of the plant’s reactors shut down after swarms of jellyfish clogged its pumping stations. It isn’t the first time the creatures have thwarted nuclear plants.`\
-https://nytimes.com/2025/08/11/world/europe/jellyfish-nuclear-power-plant-france.html
 
