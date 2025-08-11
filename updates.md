@@ -1,3 +1,7 @@
+**Israel-Qatar Tensions Escalate After Israel Kills Al Jazeera Journalists**\
+`Israel and Qatar, which backs Al Jazeera and has hosted Hamas leaders, have long had a relationship marked by both public hostility and quiet collaboration.`\
+https://nytimes.com/2025/08/11/world/middleeast/israel-qatar-al-jazeera-killings.html
+
 **Tom Brady's Fox broadcast schedule: Washington, Kansas City and likely Chicago**\
 `Brady returns for his second season as an analyst with Fox's No. 1 team, which includes Kevin Burkhardt, Erin Andrews and Tom Rinaldi.`\
 https://nytimes.com/athletic/6546890/2025/08/11/tom-bradys-fox-broadcast-schedule-washington-kansas-city-chicago/
