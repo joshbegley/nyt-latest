@@ -1,3 +1,7 @@
+**Dan Campbell says Morice Norris is in concussion protocol after scary injury**\
+`Norris suffered a scary injury Friday night and was taken off the field in an ambulance.`\
+https://nytimes.com/athletic/6546644/2025/08/11/lions-morice-norris-injury-update-concussion-protocol/
+
 **Lowetide: 5 players Oilers could target on waivers or in preseason trades**\
 `NHL-quality talent hits the waiver wire every fall as teams make final cuts to their rosters. The Oilers could take advantage.`\
 https://nytimes.com/athletic/6545298/2025/08/11/oilers-roster-waiver-wire-trade-targets/
