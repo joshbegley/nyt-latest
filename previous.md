@@ -1,3 +1,11 @@
+**What does playing in Europa League mean for Nottingham Forest? Key questions answered**\
+`Forest have been promoted to the Europa League at Crystal Palace's expense. So what does the change mean for the club and fans?`\
+https://nytimes.com/athletic/6546881/2025/08/11/what-does-playing-in-europa-league-mean-for-nottingham-forest-key-questions-answered/
+
+**Senators, NCC agree to land purchase of LeBreton Flats for new arena**\
+`The site would be used to build a multipurpose entertainment venue, which would serve as the future home of the Ottawa Senators. `\
+https://nytimes.com/athletic/6547165/2025/08/11/senators-lebreton-flats-arena-purchase/
+
 **D.C. Advocate in Senate Blames Trump for Crime in Capital**\
 `Ankit Jain, the shadow Senator for the District of Columbia, said President Trump should focus on adding judges, not policing.`\
 https://nytimes.com/2025/08/11/us/politics/dc-trump-judges.html
@@ -29,14 +37,4 @@ https://nytimes.com/2025/08/11/world/middleeast/israel-qatar-al-jazeera-killings
 **Tom Brady's Fox broadcast schedule: Washington, Kansas City and likely Chicago**\
 `Brady returns for his second season as an analyst with Fox's No. 1 team, which includes Kevin Burkhardt, Erin Andrews and Tom Rinaldi.`\
 https://nytimes.com/athletic/6546890/2025/08/11/tom-bradys-fox-broadcast-schedule-washington-kansas-city-chicago/
-
-**Submit a question for Stewart Mandel's College Football Playoff**\
-`<p>Can you believe we&#8217;ll be watching actual college football games less than two weeks from now?</p>
-<p>Leave your questions here. Please include your city.</p>
-`\
-https://nytimes.com/athletic/6547062/2025/08/11/submit-a-question-for-stewart-mandels-college-football-mailbag-310/
-
-**The Ethical Boundaries of Organ Donation**\
-`Readers respond to a front-page article about organ transplants and risks to donors. Also: Burning contraceptives; photo memories.`\
-https://nytimes.com/2025/08/11/opinion/organ-donation-ethics.html
 

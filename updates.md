@@ -1,3 +1,11 @@
+**What does playing in Europa League mean for Nottingham Forest? Key questions answered**\
+`Forest have been promoted to the Europa League at Crystal Palace's expense. So what does the change mean for the club and fans?`\
+https://nytimes.com/athletic/6546881/2025/08/11/what-does-playing-in-europa-league-mean-for-nottingham-forest-key-questions-answered/
+
+**Senators, NCC agree to land purchase of LeBreton Flats for new arena**\
+`The site would be used to build a multipurpose entertainment venue, which would serve as the future home of the Ottawa Senators. `\
+https://nytimes.com/athletic/6547165/2025/08/11/senators-lebreton-flats-arena-purchase/
+
 **D.C. Advocate in Senate Blames Trump for Crime in Capital**\
 `Ankit Jain, the shadow Senator for the District of Columbia, said President Trump should focus on adding judges, not policing.`\
 https://nytimes.com/2025/08/11/us/politics/dc-trump-judges.html
