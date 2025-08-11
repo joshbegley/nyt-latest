@@ -1,3 +1,7 @@
+**The Yankees ‘wholeheartedly believe’ they can turn their season around. Do you?**\
+`The Yankees continue to ignore the harsh reality that’s been staring them in the face for more than two months. `\
+https://nytimes.com/athletic/6545640/2025/08/10/yankees-season-struggles-playoffs/
+
 **Pro Bowl guard Landon Dickerson leaves Eagles practice with injury**\
 `Extent of lineman's injury is not yet known, but the potential absence of the starter would be significant.`\
 https://nytimes.com/athletic/6545879/2025/08/10/eagles-landon-dickerson-injured/
