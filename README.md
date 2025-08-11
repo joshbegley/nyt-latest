@@ -1,3 +1,7 @@
+**Watkins Glen takeaways: The trouble with appreciating greatness, win-and-in drivers and more**\
+`IndyCar and NASCAR have different kinds of greatness problems, what a difference one win makes and more takeaways from Watkins Glen weekend.`\
+https://nytimes.com/athletic/6545898/2025/08/11/nascar-watkins-glen-takeaways-shane-van-gisbergen-chase-elliott/
+
 **Scoop City: Risers and fallers after preseason Week 1**\
 `Risers and fallers after the preseason's first week, Patrick Mahomes tops Sando's new QB Tiers and Dianna's sources talk Sheduer Sanders`\
 https://nytimes.com/athletic/6547001/2025/08/11/nfl-risers-fallers-trending-preseason-week-1-scoop-city-jets-giants/
@@ -32,11 +36,7 @@ https://nytimes.com/2025/08/11/science/meteor-georgia-older-than-earth.html
 `Sanders’ 138 passing yards and two touchdowns in the preseason opener made many fans swoon, but a little patience and understanding is best.`\
 https://nytimes.com/athletic/6546137/2025/08/11/shedeur-sanders-browns-fans-relationship/
 
-**Explosion at U.S. Steel Plant Injures Dozens, Authorities Say**\
-`Rescue workers on the scene Monday at a coke plant in Clairton, Pa., near Pittsburgh, said some people were trapped in rubble.`\
+**At Least One Dead in Explosion at U.S. Steel Plant, Authorities Say**\
+`Dozens of people were injured and some were trapped in rubble at a coke plant in Clairton, Pa., near Pittsburgh, rescue workers said.`\
 https://nytimes.com/2025/08/11/us/us-steel-explosion-pennsylvania.html
-
-**AP Top 25: Texas wins close vote for preseason No. 1 over Penn State**\
-`Texas is No. 1 and Penn State is No. 2 in the closest preseason AP Top 25 at the top of the poll since 1998.`\
-https://nytimes.com/athletic/6546792/2025/08/11/ap-top-25-college-football-preseason-poll-2025/
 
