@@ -1,3 +1,7 @@
+**Why Young Children May Not Get Covid Shots This Fall**\
+`Under Robert F. Kennedy Jr., federal officials may withdraw an endorsement for the vaccine in younger children.`\
+https://nytimes.com/2025/08/11/health/covid-vaccine-young-children.html
+
 **Trump Says He’s Going to Alaska to See What Putin ‘Has in Mind’**\
 `President Trump set a low bar for his summit with President Vladimir V. Putin of Russia, saying he was ready to walk away if no deal was forthcoming.`\
 https://nytimes.com/2025/08/11/us/politics/trump-putin-alaska-meeting.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/11/us/politics/trump-gop-policy-bill-rich-poor.html
 **Three People Are Killed After Shooting in Austin, Texas**\
 `The police said the gunman was arrested after he shot and killed three people outside of a Target store in Austin, Texas, on Monday afternoon.`\
 https://nytimes.com/video/us/100000010334949/austin-target-shooting.html
-
-**N.Y.P.D. ‘Quality-of-Life’ Teams Are Expanding. Not Everyone Is Happy.**\
-`The units, which respond to complaints about issues including loud music and illegal vending, will soon be in every precinct. But someworry about aggressive policing.`\
-https://nytimes.com/2025/08/11/nyregion/nypd-quality-of-life-teams.html
 
