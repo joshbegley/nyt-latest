@@ -1,3 +1,11 @@
+**Miguel Uribe, Colombian Senator Shot at Campaign Event, Dies at 39**\
+`The presidential hopeful spent nine weeks at the hospital in critical condition after he was shot at a campaign rally.`\
+https://nytimes.com/2025/08/11/world/americas/miguel-uribe-turbay-dead-colombia-assassination.html
+
+**Al Nassr reach agreement in principle for Bayern winger Coman**\
+`The 29-year-old joined Bayern in 2017 and has made 339 appearances for the German side. `\
+https://nytimes.com/athletic/6546244/2025/08/11/kingsley-coman-bayern-munich-al-nassr-transfer-agreement-in-principle/
+
 **Crystal Palace to play in Conference League after CAS appeal dismissed**\
 `The decision means Nottingham Forest will compete in the Europa League next season.`\
 https://nytimes.com/athletic/6542739/2025/08/11/crystal-palace-uefa-cas-outcome/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6538344/2025/08/11/jack-grealish-everton-loan-man-c
 **Sunderland close to signing Getafe defender Alderete**\
 `The two sides have agreed a deal worth in the region of £10million ($13.4m) with a further £1m in add-ons.`\
 https://nytimes.com/athletic/6546230/2025/08/11/sunderland-transfer-news-alderete/
-
-**A Sidelined Zelensky Warns That Russia Will Try to Deceive the U.S.**\
-`Ukraine fears that the Kremlin will try to convince President Trump at U.S.-Russian talks in Alaska that Ukraine, not Russia, is the obstacle to peace.`\
-https://nytimes.com/2025/08/11/world/europe/ukraine-russia-putin-zelensky-alaska-talks.html
-
-**Trump Prepares to Meet Putin, and Al Jazeera Says Israel Killed Its Journalists in Gaza**\
-`Plus, a Labubu heist.`\
-https://nytimes.com/2025/08/11/podcasts/the-headlines/trump-putin-israel-journalists-gaza.html
 

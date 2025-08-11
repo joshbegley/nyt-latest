@@ -1,3 +1,11 @@
+**Miguel Uribe, Colombian Senator Shot at Campaign Event, Dies at 39**\
+`The presidential hopeful spent nine weeks at the hospital in critical condition after he was shot at a campaign rally.`\
+https://nytimes.com/2025/08/11/world/americas/miguel-uribe-turbay-dead-colombia-assassination.html
+
+**Al Nassr reach agreement in principle for Bayern winger Coman**\
+`The 29-year-old joined Bayern in 2017 and has made 339 appearances for the German side. `\
+https://nytimes.com/athletic/6546244/2025/08/11/kingsley-coman-bayern-munich-al-nassr-transfer-agreement-in-principle/
+
 **Crystal Palace to play in Conference League after CAS appeal dismissed**\
 `The decision means Nottingham Forest will compete in the Europa League next season.`\
 https://nytimes.com/athletic/6542739/2025/08/11/crystal-palace-uefa-cas-outcome/
