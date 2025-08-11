@@ -1,3 +1,7 @@
+**Over 60,000 Are in Immigration Detention, a Modern High, Records Show**\
+`The numbers reflect the significant effort the Trump administration has put into its escalating immigration crackdown.`\
+https://nytimes.com/2025/08/11/us/politics/immigration-detention-numbers.html
+
 **Seeking Friendlier Data, Trump Names New Commissioner for Statistics Bureau**\
 `The president fired the Bureau of Labor Statistics chief after a downbeat jobs report. The move has jeopardized the credibility of economic data.`\
 https://nytimes.com/2025/08/11/business/economy/trump-bls-commissioner.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/11/nyregion/nypd-quality-of-life-teams.html
 **Tuesday Briefing: Trump’s Washington Crackdown**\
 `Also, Israel-Qatar tension.`\
 https://nytimes.com/2025/08/11/briefing/trump-washington-troops-gaza-aljazeera.html
-
-**New York’s Democratic Governor Called in the Troops Last Year to Fight Subway Crime**\
-`President Trump is deploying the National Guard to the streets of an American city for the second time this year, but the Guard has been used by other leaders, too.`\
-https://nytimes.com/2025/08/11/us/politics/hochul-national-guard-nyc-subway.html
 
