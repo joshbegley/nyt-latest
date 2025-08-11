@@ -1,3 +1,7 @@
+**Tottenham Hotspur in talks with Manchester City over Savinho transfer**\
+`Dialogue has taken place between the clubs and a package worth in the region of €50million (£43.3m, $58.2m) is under discussion`\
+https://nytimes.com/athletic/6545821/2025/08/11/savinho-tottenham-transfers-manchester-city/
+
 **Guglielmo Vicario interview: Super Cup hopes, missing Son and adapting to Frank**\
 `The goalkeeper returns to his home city this week as Tottenham take on Paris Saint-Germain hoping to win another European trophy`\
 https://nytimes.com/athletic/6542064/2025/08/11/guglielmo-vicario-tottenham-interview/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6546027/2025/08/11/chicago-cubs-matt-shaw-hottest-h
 **Monday Briefing: North Korea’s Heir Apparent**\
 `Plus, Europe closed ranks ahead of the Trump-Putin summit.`\
 https://nytimes.com/2025/08/11/briefing/monday-briefing-north-koreas-heir-apparent.html
-
-**A'ja Wilson makes history with WNBA's first 30-20 game**\
-`Wilson leads the WNBA in single-season points, single-season rebounds and most points in a single game.`\
-https://nytimes.com/athletic/6546038/2025/08/11/aja-wilson-wnba-history-30-points-20-rebounds/
 

@@ -1,3 +1,7 @@
+**Tottenham Hotspur in talks with Manchester City over Savinho transfer**\
+`Dialogue has taken place between the clubs and a package worth in the region of €50million (£43.3m, $58.2m) is under discussion`\
+https://nytimes.com/athletic/6545821/2025/08/11/savinho-tottenham-transfers-manchester-city/
+
 **Guglielmo Vicario interview: Super Cup hopes, missing Son and adapting to Frank**\
 `The goalkeeper returns to his home city this week as Tottenham take on Paris Saint-Germain hoping to win another European trophy`\
 https://nytimes.com/athletic/6542064/2025/08/11/guglielmo-vicario-tottenham-interview/
