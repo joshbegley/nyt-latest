@@ -1,3 +1,7 @@
+**Pro Bowl guard Landon Dickerson leaves Eagles practice with injury**\
+`Extent of lineman's injury is not yet known, but the potential absence of the starter would be significant.`\
+https://nytimes.com/athletic/6545879/2025/08/10/eagles-landon-dickerson-injured/
+
 **Post-fire sale Twins win again behind rookie Luke Keaschall and 'grandpa' Ryan Fitzgerald**\
 `Keaschall's first walk-off homer and Fitzgerald's first MLB homer secured the Twins' first back-to-back series wins since mid-July.`\
 https://nytimes.com/athletic/6545659/2025/08/10/minnesota-twins-walk-off-win-luke-keaschall/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/10/us/politics/fighting-fire-with-fire-democrats-on-
 **Phillies takeaways: Zack Wheeler 'not concerned,' Harrison Bader's defense, help on the way**\
 `The Phillies are nearing a level of roster strength they haven’t seen all season. They're 5 1/2 up on the Mets, with more help on the way.`\
 https://nytimes.com/athletic/6545729/2025/08/10/phillies-zack-wheeler-harrison-bader-injury-updates/
-
-**Mets' latest 7-game skid might be the most worrisome: 'We gotta get our starters going'**\
-`No starter other than David Peterson has pitched six innings since June 7. `\
-https://nytimes.com/athletic/6545777/2025/08/10/mets-losing-streak-starting-pitchers/
 
