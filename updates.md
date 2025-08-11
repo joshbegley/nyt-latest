@@ -1,3 +1,7 @@
+**Monday Briefing: North Korea’s Heir Apparent**\
+`Plus, Europe closed ranks ahead of the Trump-Putin summit.`\
+https://nytimes.com/2025/08/11/briefing/monday-briefing-north-koreas-heir-apparent.html
+
 **A'ja Wilson makes history with WNBA's first 30-20 game**\
 `Wilson leads the WNBA in single-season points, single-season rebounds and most points in a single game.`\
 https://nytimes.com/athletic/6546038/2025/08/11/aja-wilson-wnba-history-30-points-20-rebounds/

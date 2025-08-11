@@ -1,3 +1,7 @@
+**Monday Briefing: North Korea’s Heir Apparent**\
+`Plus, Europe closed ranks ahead of the Trump-Putin summit.`\
+https://nytimes.com/2025/08/11/briefing/monday-briefing-north-koreas-heir-apparent.html
+
 **A'ja Wilson makes history with WNBA's first 30-20 game**\
 `Wilson leads the WNBA in single-season points, single-season rebounds and most points in a single game.`\
 https://nytimes.com/athletic/6546038/2025/08/11/aja-wilson-wnba-history-30-points-20-rebounds/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6540035/2025/08/11/benjamin-sesko-manchester-united
 **Murillo interview: 'I believe I can score a wonder goal from the halfway line'**\
 `The Nottingham Forest defender discusses his eye for a goal, futsal roots, faith and Champions League aspirations`\
 https://nytimes.com/athletic/6538584/2025/08/11/murillo-nottingham-forest-interview/
-
-**Sheffield Wednesday in crisis: Protests, anger and uncertainty about what comes next**\
-`The Championship club have endured a turbulent summer and fans made their feelings clear as the season began on Sunday`\
-https://nytimes.com/athletic/6545418/2025/08/11/sheffield-wednesday-crisis-fans-leicester/
 
