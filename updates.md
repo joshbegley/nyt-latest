@@ -1,3 +1,7 @@
+**Trump’s Use of National Guard in L.A. Remains Contentious**\
+`A three-day trial opened Monday in state officials’ challenge of the legality of the deployment, which followed protests over immigration raids.`\
+https://nytimes.com/2025/08/11/us/politics/trump-national-guard-los-angeles-lawsuits.html
+
 **Crystal Palace, UEFA and CAS: What now for the club, the manager and players?**\
 `The London club's first UEFA campaign will be in the Conference League after CAS cast out their appeal to be reinstated to the Europa League`\
 https://nytimes.com/athletic/6545650/2025/08/11/crystal-palace-cas-uefa-conference-glasner-parish/

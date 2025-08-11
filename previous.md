@@ -1,3 +1,7 @@
+**Trump’s Use of National Guard in L.A. Remains Contentious**\
+`A three-day trial opened Monday in state officials’ challenge of the legality of the deployment, which followed protests over immigration raids.`\
+https://nytimes.com/2025/08/11/us/politics/trump-national-guard-los-angeles-lawsuits.html
+
 **Crystal Palace, UEFA and CAS: What now for the club, the manager and players?**\
 `The London club's first UEFA campaign will be in the Conference League after CAS cast out their appeal to be reinstated to the Europa League`\
 https://nytimes.com/athletic/6545650/2025/08/11/crystal-palace-cas-uefa-conference-glasner-parish/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6545898/2025/08/11/nascar-watkins-glen-takeaways-sh
 **Scoop City: Risers and fallers after preseason Week 1**\
 `Risers and fallers after the preseason's first week, Patrick Mahomes tops Sando's new QB Tiers and Dianna's sources talk Sheduer Sanders`\
 https://nytimes.com/athletic/6547001/2025/08/11/nfl-risers-fallers-trending-preseason-week-1-scoop-city-jets-giants/
-
-**District residents say they feel safe, but occasionally unnerved.**\
-`By Darren Sands`\
-https://nytimes.com/live/2025/08/11/us/trump-news/district-residents-say-they-feel-safe-but-occasionally-unnerved
 
