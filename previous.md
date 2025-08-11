@@ -1,3 +1,7 @@
+**Spain Women part ways with head coach Tome**\
+`Spain's Under-23 head coach Sonia Bermudez has been confirmed as Tome's replacement.`\
+https://nytimes.com/athletic/6545255/2025/08/11/spain-women-montse-tome-exit/
+
 **Hundreds of Indian Lawmakers Detained at a Protest Claiming Vote Rigging**\
 `Opposition figures were held briefly at a New Delhi demonstration after accusing Narendra Modi’s ruling party of manipulating elections.`\
 https://nytimes.com/2025/08/11/world/asia/india-election-arrests-modi.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6537280/2025/08/11/red-wings-prospects-nhl-danielso
 **Knicks fan survey: Is this season championship-or-bust? Voice your opinion**\
 `Share your opinion on the state of the Knicks franchise heading into a pivotal season.`\
 https://nytimes.com/athletic/6538240/2025/08/11/knicks-fan-survey-championship/
-
-**What does a successful season look like for Dylan Cozens? Senators mailbag**\
-`This month's mailbag reviews position battles ahead of training camp, a Shane Pinto contract question and much more. `\
-https://nytimes.com/athletic/6535655/2025/08/11/senators-cozens-roster-battles-pinto/
 

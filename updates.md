@@ -1,3 +1,7 @@
+**Spain Women part ways with head coach Tome**\
+`Spain's Under-23 head coach Sonia Bermudez has been confirmed as Tome's replacement.`\
+https://nytimes.com/athletic/6545255/2025/08/11/spain-women-montse-tome-exit/
+
 **Hundreds of Indian Lawmakers Detained at a Protest Claiming Vote Rigging**\
 `Opposition figures were held briefly at a New Delhi demonstration after accusing Narendra Modi’s ruling party of manipulating elections.`\
 https://nytimes.com/2025/08/11/world/asia/india-election-arrests-modi.html
