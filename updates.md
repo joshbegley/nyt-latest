@@ -1,3 +1,19 @@
+**Electrifying starter Jonah Tong among Mets prospects promoted to Triple A: Sources**\
+`Tong had a 1.58 ERA with 154 strikeouts in 102 Double-A innings.`\
+https://nytimes.com/athletic/6536968/2025/08/10/mets-jonah-tong-prospect-promotion/
+
+**U.S. Government to Take Cut of Nvidia and AMD A.I. Chip Sales to China**\
+`In a highly unusual arrangement with President Trump, the companies are expected to kick 15 percent of what they make in China to the U.S. government.`\
+https://nytimes.com/2025/08/10/technology/us-government-nvidia-amd-chips-china.html
+
+**More pain for Tommy Fleetwood as Justin Rose wins FedEx St. Jude Championship**\
+`Fleetwood lets chance for first PGA Tour win slip away as he surrenders two-shot lead with three holes to play.`\
+https://nytimes.com/athletic/6545788/2025/08/10/justin-rose-tommy-fleetwood-st-jude-championship/
+
+**‘Fighting Fire With Fire,’ Democrats on Defense as Texas Redistricting Looms**\
+`A Republican proposal to add five Republican congressional seats in Texas imperils Democrats’ midterm prospects.`\
+https://nytimes.com/2025/08/10/us/politics/fighting-fire-with-fire-democrats-on-defense-as-texas-redistricting-looms.html
+
 **‘Fighting Fire with Fire,’ Democrats on Defense as Texas Redistricting Looms**\
 `A Republican proposal to add five Republican congressional seats in Texas imperils Democrats’ midterm prospects.`\
 https://nytimes.com/2025/08/10/us/politics/fighting-fire-with-fire-democrats-on-defense-as-texas-redistricting-looms.html
