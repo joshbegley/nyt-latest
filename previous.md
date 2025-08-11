@@ -1,3 +1,15 @@
+**As Trump Curbs Wind Farms, Orsted Plans $9.4 Billion Share Offering**\
+`Shares of the Danish renewable energy developer tumbled after it would issue more stock to raise funds instead of divesting a stake in a wind farm off the U.S. coast.`\
+https://nytimes.com/2025/08/11/business/trump-wind-farm-orsted.html
+
+**UFC dropping 'pay-per-view' model with move to Paramount+ in 2026**\
+`UFC and Paramount's 7-year deal ushers in a radical change to how viewers have accessed fights for years.`\
+https://nytimes.com/athletic/6546593/2025/08/11/ufc-paramount-pay-per-view-model/
+
+**Should You Mock Your Partner While He Gives You a Haircut?**\
+`A ruling on a home-barbering dispute.`\
+https://nytimes.com/interactive/2025/08/11/magazine/haircut-hodgman-quiz.html
+
 **Dan Campbell says Morice Norris is in concussion protocol after scary injury**\
 `Norris suffered a scary injury Friday night and was taken off the field in an ambulance.`\
 https://nytimes.com/athletic/6546644/2025/08/11/lions-morice-norris-injury-update-concussion-protocol/
@@ -25,16 +37,4 @@ https://nytimes.com/interactive/2025/08/11/weather/tropical-storm-podul-map-path
 **Tottenham's Moore marks 18th birthday with new long-term deal**\
 `Moore, who turned 18 on Friday, is currently on a season-long loan at Scottish Premiership club Rangers`\
 https://nytimes.com/athletic/6546567/2025/08/11/tottenham-mikey-moore-new-contract/
-
-**Spain Women part ways with head coach Tome**\
-`Spain's Under-23 head coach Sonia Bermudez has been confirmed as Tome's replacement.`\
-https://nytimes.com/athletic/6545255/2025/08/11/spain-women-montse-tome-exit/
-
-**Hundreds of Indian Lawmakers Detained at a Protest Claiming Vote Rigging**\
-`Opposition figures were held briefly at a New Delhi demonstration after accusing Narendra Modi’s ruling party of manipulating elections.`\
-https://nytimes.com/2025/08/11/world/asia/india-election-arrests-modi.html
-
-**Higher Tariffs Loom as U.S.-China Trade Truce Nears Expiration**\
-`President Trump has yet to formally sign off on an agreement to extend an economic cease-fire with China, which expires on Tuesday.`\
-https://nytimes.com/2025/08/11/business/us-china-trade-tariffs-deal.html
 
