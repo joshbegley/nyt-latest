@@ -1,3 +1,15 @@
+**A'ja Wilson makes history with WNBA's first 30-20 game**\
+`Wilson leads the WNBA in single-season points, single-season rebounds and most points in a single game.`\
+https://nytimes.com/athletic/6546038/2025/08/11/aja-wilson-wnba-history-30-points-20-rebounds/
+
+**Newcastle United season preview: Hello despondency, our old friend...**\
+`George Caulkin looks ahead to what should be an exciting campaign at St James' Park, despite the gloom of a difficult summer`\
+https://nytimes.com/athletic/6542439/2025/08/11/newcastle-united-season-preview-2025-2026/
+
+**Justin Verlander hits a milestone, and Giants hit little else in embarrassing loss**\
+`"I'm frustrated that our fans come out and support us every night and we gave them literally nothing today," Giants manager Bob Melvin said.`\
+https://nytimes.com/athletic/6546022/2025/08/11/giants-loss-nationals-justin-verlander-strikeouts/
+
 **Fantasy Premier League: Analysing the early-season fixtures – does anyone have an easy start?**\
 `Holly Shand takes a deep dive into the opening three gameweeks of the season and also breaks down the bigger fixture picture `\
 https://nytimes.com/athletic/6508095/2025/08/11/fantasy-premier-league-fixtures-analysis/
