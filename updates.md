@@ -1,3 +1,11 @@
+**Man Utd Women head of recruitment set to join Utah Royals**\
+`Harvey Bussell is set to leave United at the end of the summer transfer window and take up the same role with the NWSL team.`\
+https://nytimes.com/athletic/6546720/2025/08/11/harvey-bussell-utah-royals-man-utd/
+
+**Netflix Loosens Its Ties to Harry and Meghan**\
+`The streaming giant signed a new deal with the production company for the Duke and Duchess of Sussex that is much less extensive than an earlier arrangement.`\
+https://nytimes.com/2025/08/11/business/media/netflix-prince-harry-meghan-markle-deal.html
+
 **Tracking Tropical Storm Erin**\
 `See the likely path and wind arrival times for Erin`\
 https://nytimes.com/interactive/2025/08/11/weather/tropical-storm-erin-map-path-tracker.html
