@@ -18,7 +18,7 @@ https://nytimes.com/2025/08/11/crosswords/spelling-bee-forum.html
 `A member of the press collapsed into the arms of people near the site of the attack on a tent for journalists near a hospital in Gaza City.`\
 https://nytimes.com/video/world/middleeast/100000010333360/israel-gaza-journalists-killed.html
 
-**Tottenham Hotspur hold talks with Manchester City over Savinho transfer**\
+**Tottenham Hotspur approach Man City over Savinho transfer**\
 `Dialogue has taken place between the clubs and a package worth in the region of €50million (£43.3m, $58.2m) is under discussion`\
 https://nytimes.com/athletic/6545821/2025/08/11/savinho-tottenham-transfers-manchester-city/
 
