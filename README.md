@@ -1,3 +1,7 @@
+**Dodgers strand season-high 16 runners in "frustrating" loss to Blue Jays**\
+`"This was frustrating," Dodgers manager Dave Roberts said. "I just felt there's no way we should lose this game today."`\
+https://nytimes.com/athletic/6545900/2025/08/10/dodger-details-a-series-of-missed-opportunities-foil-what-couldve-been-a-statement-weekend/
+
 **MGK Tore It All Down for His Art**\
 `MGK, best known as Machine Gun Kelly, spoke with Jon Caramanica and Joe Coscarelli, the hosts of “Popcast” at The New York Times, about how his self-destructive behavior led to fresh work, including his new Bob Dylan-approved album, “Lost Americana.”`\
 https://nytimes.com/video/podcasts/100000010332842/mgk-tore-it-all-down-for-his-art.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6536968/2025/08/10/mets-jonah-tong-prospect-promoti
 **U.S. Government to Take Cut of Nvidia and AMD A.I. Chip Sales to China**\
 `In a highly unusual arrangement with President Trump, the companies are expected to kick 15 percent of what they make in China to the U.S. government.`\
 https://nytimes.com/2025/08/10/technology/us-government-nvidia-amd-chips-china.html
-
-**More pain for Tommy Fleetwood as Justin Rose wins FedEx St. Jude Championship**\
-`Fleetwood lets chance for first PGA Tour win slip away as he surrenders two-shot lead with three holes to play.`\
-https://nytimes.com/athletic/6545788/2025/08/10/justin-rose-tommy-fleetwood-st-jude-championship/
 
