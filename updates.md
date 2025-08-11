@@ -1,3 +1,11 @@
+**Fantasy baseball cheat sheet: Ezequiel Tovar's hot August and more THE BAT X insights**\
+`The Athletic and THE BAT X have teamed up to bring readers a fantasy baseball cheat sheet to begin the week. `\
+https://nytimes.com/athletic/6545284/2025/08/11/fantasy-baseball-the-bat-x-tovar-august/
+
+**Lions DB Morice Norris is in concussion protocol, Dan Campbell says**\
+`Norris suffered a scary injury Friday night and was taken off the field in an ambulance.`\
+https://nytimes.com/athletic/6546644/2025/08/11/lions-morice-norris-injury-update-concussion-protocol/
+
 **The Windup: New York's two slumps**\
 `The Windup Newsletter ⚾ | This is The Athletic’s MLB newsletter.`\
 https://nytimes.com/athletic/6546706/2025/08/11/yankees-mets-the-windup/
