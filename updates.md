@@ -1,3 +1,11 @@
+**Hundreds of Indian Lawmakers Detained at a Protest Claiming Vote Rigging**\
+`Opposition figures were held briefly at a New Delhi demonstration after accusing Narendra Modi’s ruling party of manipulating elections.`\
+https://nytimes.com/2025/08/11/world/asia/india-election-arrests-modi.html
+
+**Higher Tariffs Loom as U.S.-China Trade Truce Nears Expiration**\
+`President Trump has yet to formally sign off on an agreement to extend an economic cease-fire with China, which expires on Tuesday.`\
+https://nytimes.com/2025/08/11/business/us-china-trade-tariffs-deal.html
+
 **Is It a Tax, or a Payoff?**\
 `A deal for Nvidia and AMD to give the Trump administration a cut of chip sales to China raises questions about national security and trade policy goals.`\
 https://nytimes.com/2025/08/11/business/dealbook/nvidia-amd-chip-payoff-trump.html
