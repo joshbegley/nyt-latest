@@ -1,3 +1,7 @@
+**Explosion at U.S. Steel Plant Injures Dozens, Authorities Say**\
+`The blast drew multiple emergency crews to a plant in Clairton, Pa., near Pittsburgh, for what officials called a mass casualty incident.`\
+https://nytimes.com/2025/08/11/us/us-steel-explosion-pennsylvania.html
+
 **AP Top 25: Texas wins close vote for preseason No. 1 over Penn State**\
 `Texas is No. 1 and Penn State is No. 2 in the closest preseason AP Top 25 at the top of the poll since 1998.`\
 https://nytimes.com/athletic/6546792/2025/08/11/ap-top-25-college-football-preseason-poll-2025/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6546631/2025/08/11/cas-crystal-palace-nottingham-fo
 **Jellyfish Shut Down French Nuclear Power Plant**\
 `Four of the plant’s reactors shut down after swarms of jellyfish clogged its pumping stations. It isn’t the first time the creatures have thwarted nuclear plants.`\
 https://nytimes.com/2025/08/11/world/europe/jellyfish-nuclear-power-plant-france.html
-
-**Man Utd Women head of recruitment set to join Utah Royals**\
-`Harvey Bussell is set to leave United at the end of the summer transfer window and take up the same role with the NWSL team.`\
-https://nytimes.com/athletic/6546720/2025/08/11/harvey-bussell-utah-royals-man-utd/
 
