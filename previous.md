@@ -1,3 +1,7 @@
+**The Pulse: QB Tiers are back**\
+`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/6545954/2025/08/11/nfl-qb-tiers-lamar-jackson-jayden-daniels-the-pulse/
+
 **Nkunku open to RB Leipzig return should interest advance**\
 `Leipzig are among a number of sides interested in the forward, but have some financial reservations about the logistics of a potential deal.`\
 https://nytimes.com/athletic/6400207/2025/08/11/christopher-nkunku-rb-leipzig-chelsea-transfer/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6530198/2025/08/11/nba-offseason-2025-lakers-lebron
 **How the Guardians have surged back into the AL playoff chase**\
 `The same offense that was blanked five times during a 10-game skid is now scoring runs in bunches.`\
 https://nytimes.com/athletic/6545106/2025/08/11/by-the-numbers-guardians-al-playoff-chase/
-
-**NFL QB Tiers 2025: Lamar Jackson cracks Tier 1, Jayden Daniels sets rookie record**\
-`See who joined Jackson in Tier 1, where Caleb Williams stacks up in the 2024 draft class, how far Aaron Rodgers fell and much, much more.`\
-https://nytimes.com/athletic/6514160/2025/08/11/nfl-qb-rankings-tiers-2025-jackson-daniels/
 

@@ -1,3 +1,7 @@
+**The Pulse: QB Tiers are back**\
+`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/6545954/2025/08/11/nfl-qb-tiers-lamar-jackson-jayden-daniels-the-pulse/
+
 **Nkunku open to RB Leipzig return should interest advance**\
 `Leipzig are among a number of sides interested in the forward, but have some financial reservations about the logistics of a potential deal.`\
 https://nytimes.com/athletic/6400207/2025/08/11/christopher-nkunku-rb-leipzig-chelsea-transfer/
