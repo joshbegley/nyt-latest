@@ -1,3 +1,7 @@
+**Eagles guard Landon Dickerson to have 'minor procedure' on knee: Source**\
+`Team is hoping the three-time Pro Bowler will be ready for the regular season.`\
+https://nytimes.com/athletic/6547496/2025/08/11/eagles-landon-dickerson-knee-injury/
+
 **What to Know About Al Jazeera, the Broadcaster Targeted by Israel**\
 `Al Jazeera, five of whose reporters the broadcaster said were killed by an Israeli strike, has angered governments across the region that claim it gives voice to terrorists. The outlet denies that.`\
 https://nytimes.com/2025/08/11/world/middleeast/al-jazeera-israel-criticism-ban.html

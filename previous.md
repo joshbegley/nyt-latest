@@ -1,3 +1,7 @@
+**Eagles guard Landon Dickerson to have 'minor procedure' on knee: Source**\
+`Team is hoping the three-time Pro Bowler will be ready for the regular season.`\
+https://nytimes.com/athletic/6547496/2025/08/11/eagles-landon-dickerson-knee-injury/
+
 **What to Know About Al Jazeera, the Broadcaster Targeted by Israel**\
 `Al Jazeera, five of whose reporters the broadcaster said were killed by an Israeli strike, has angered governments across the region that claim it gives voice to terrorists. The outlet denies that.`\
 https://nytimes.com/2025/08/11/world/middleeast/al-jazeera-israel-criticism-ban.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6547272/2025/08/11/panthers-preseason-takeaways-xav
 **N.Y.C. Schools Change How Reading Is Taught, and Test Scores Rise**\
 `Mayor Adams cast the upswing as evidence of efforts to improve instruction, while rivals in the mayoral race argued that teachers need better training.`\
 https://nytimes.com/2025/08/11/nyregion/nyc-student-reading-scores-rise.html
-
-**Lloyd Williams, Who Helped Spur Harlem’s Revival, Dies at 80**\
-`As head of the area’s Chamber of Commerce, he capitalized on the community’s heritage to promote economic development.`\
-https://nytimes.com/2025/08/11/nyregion/lloyd-williams-dead.html
 
