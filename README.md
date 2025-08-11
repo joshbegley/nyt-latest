@@ -1,3 +1,7 @@
+**Tracking Tropical Storm Podul**\
+`See the likely path and wind arrival times for Podul`\
+https://nytimes.com/interactive/2025/08/11/weather/tropical-storm-podul-map-path-tracker.html
+
 **Tottenham's Moore marks 18th birthday with new long-term deal**\
 `Moore, who turned 18 on Friday, is currently on a season-long loan at Scottish Premiership club Rangers`\
 https://nytimes.com/athletic/6546567/2025/08/11/tottenham-mikey-moore-new-contract/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6543121/2025/08/11/49ers-roster-53-man-projection-s
 **O'Connor: Mets are blowing their chance to own New York**\
 `With the Yankees falling apart, this should have been the Mets’ time to pounce. Instead, it's a golden opportunity squandered.`\
 https://nytimes.com/athletic/6545995/2025/08/11/mets-losing-streak-yankees-new-york/
-
-**When could the Red Wings' top prospects reach the NHL? Prospect timelines**\
-`When could 10 of Detroit's top prospects arrive in the NHL? Red Wings beat writer Max Bultman weighs in with timelines and projections.`\
-https://nytimes.com/athletic/6537280/2025/08/11/red-wings-prospects-nhl-danielson-cossa/
 
