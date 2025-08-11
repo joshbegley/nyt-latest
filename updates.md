@@ -1,3 +1,7 @@
+**What to Know About Al Jazeera, the Broadcaster Targeted by Israel**\
+`Al Jazeera, five of whose reporters the broadcaster said were killed by an Israeli strike, has angered governments across the region that claim it gives voice to terrorists. The outlet denies that.`\
+https://nytimes.com/2025/08/11/world/middleeast/al-jazeera-israel-criticism-ban.html
+
 **Deadly Explosion at U.S. Steel Plant in Pennsylvania**\
 `At least one person was killed and ten were hospitalized after an explosion at a U.S. Steel plant in Clairton, Pa.`\
 https://nytimes.com/video/us/100000010334505/us-steel-explosion-pennsylvania.html

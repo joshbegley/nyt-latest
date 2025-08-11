@@ -1,3 +1,7 @@
+**What to Know About Al Jazeera, the Broadcaster Targeted by Israel**\
+`Al Jazeera, five of whose reporters the broadcaster said were killed by an Israeli strike, has angered governments across the region that claim it gives voice to terrorists. The outlet denies that.`\
+https://nytimes.com/2025/08/11/world/middleeast/al-jazeera-israel-criticism-ban.html
+
 **Deadly Explosion at U.S. Steel Plant in Pennsylvania**\
 `At least one person was killed and ten were hospitalized after an explosion at a U.S. Steel plant in Clairton, Pa.`\
 https://nytimes.com/video/us/100000010334505/us-steel-explosion-pennsylvania.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/11/nyregion/nyc-student-reading-scores-rise.html
 **Lloyd Williams, Who Helped Spur Harlem’s Revival, Dies at 80**\
 `As head of the area’s Chamber of Commerce, he capitalized on the community’s heritage to promote economic development.`\
 https://nytimes.com/2025/08/11/nyregion/lloyd-williams-dead.html
-
-**Trump Wields Tariffs as a Force in Diplomacy, to Questionable Effect**\
-`The president has threatened more tariffs on Russia and its trading partners and has imposed harsh ones on India and Brazil to try to sway matters of war and politics.`\
-https://nytimes.com/2025/08/11/us/politics/trump-tariffs-russia.html
 
