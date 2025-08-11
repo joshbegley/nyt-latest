@@ -1,5 +1,9 @@
+**Crystal Palace, UEFA and CAS: What now for the club, the manager and players?**\
+`The London club's first UEFA campaign will be in the Conference League after CAS cast out their appeal to be reinstated to the Europa League`\
+https://nytimes.com/athletic/6545650/2025/08/11/crystal-palace-cas-uefa-conference-glasner-parish/
+
 **Protesters Gather Near White House as Trump Unveils D.C. Plans**\
-`The demonstrators said the president’s actions were the latest blow to a city that has been among the hardest hit by his executive orders and policies`\
+`The demonstrators said the president’s actions were the latest blow to a city that has been among the hardest hit by his executive orders and policies.`\
 https://nytimes.com/2025/08/11/us/politics/national-guard-dc-protests.html
 
 **What does playing in Europa League mean for Nottingham Forest? Key questions answered**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6547001/2025/08/11/nfl-risers-fallers-trending-pres
 **District residents say they feel safe, but occasionally unnerved.**\
 `By Darren Sands`\
 https://nytimes.com/live/2025/08/11/us/trump-news/district-residents-say-they-feel-safe-but-occasionally-unnerved
-
-**Israel-Qatar Tensions Escalate After Israel Kills Al Jazeera Journalists**\
-`Israel and Qatar, which backs Al Jazeera and has hosted Hamas leaders, have long had a relationship marked by both public hostility and quiet collaboration.`\
-https://nytimes.com/2025/08/11/world/middleeast/israel-qatar-al-jazeera-killings.html
 
