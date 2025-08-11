@@ -1,3 +1,15 @@
+**Why Erin’s path won’t become clear for several days.**\
+`By Judson Jones`\
+https://nytimes.com/live/2025/08/11/weather/tropical-storm-erin-hurricane/erin-path
+
+**49ers lose another WR to start the season: Jordan Watkins out with ankle injury**\
+`The 49ers' tricky position: They'll likely be without three top wideouts to start the season, but none is projected to be out long-term.`\
+https://nytimes.com/athletic/6547649/2025/08/11/49ers-injuries-wide-receiver-jordan-watkins/
+
+**Steelers' Cameron Heyward hasn't ruled out skipping games amid contract dispute**\
+`The four-time All-Pro defensive lineman is seeking a revised contract.`\
+https://nytimes.com/athletic/6547655/2025/08/11/steelers-cameron-heyward-hold-in-regular-season-games/
+
 **Cincinnati Open tennis suspended after local power outage**\
 `The outage paused two singles matches and brought down broadcast streams across the tournament.`\
 https://nytimes.com/athletic/6547645/2025/08/11/cincinnati-open-tennis-suspended-after-local-power-outage/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/08/11/us/politics/hochul-national-guard-nyc-subway.html
 **Wild sign defenseman Jack Johnson to professional tryout**\
 `If the 38-year-old earns a contract for the Wild or signs elsewhere as a free agent, it'll be his 20th NHL season.`\
 https://nytimes.com/athletic/6547619/2025/08/11/wild-jack-johnson-professional-tryout/
-
-**D.C. Mayor Calls Trump’s Police Takeover ‘Unsettling’ but Promises Cooperation**\
-`Muriel Bowser, the mayor of Washington, seemed resigned to President Trump’s announced takeover of local police, telling reporters that the city’s home rule charter gave him the right to do so.`\
-https://nytimes.com/2025/08/11/us/politics/dc-mayor-bowser-trump-police.html
-
-**Read Trump’s Letter to Congress About D.C. Police Department**\
-`In a letter to the House Oversight Committee, President Trump signaled his intent to temporarily take control of the Washington, D.C., police department and deploy 800 National Guard troops to the city.`\
-https://nytimes.com/interactive/2025/08/11/us/trump-letter-dc-police-letter.html
-
-**Aryna Sabalenka extends revealing tiebreak record to beat Emma Raducanu at Cincinnati Open**\
-`Sabalenka's staggering tiebreak record illustrates her play under pressure but also her vulnerability in matches this year.`\
-https://nytimes.com/athletic/6547344/2025/08/11/tennis-sabalenka-raducanu-cincinnati-open-result-analysis/
 

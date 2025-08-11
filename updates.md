@@ -1,3 +1,15 @@
+**Why Erin’s path won’t become clear for several days.**\
+`By Judson Jones`\
+https://nytimes.com/live/2025/08/11/weather/tropical-storm-erin-hurricane/erin-path
+
+**49ers lose another WR to start the season: Jordan Watkins out with ankle injury**\
+`The 49ers' tricky position: They'll likely be without three top wideouts to start the season, but none is projected to be out long-term.`\
+https://nytimes.com/athletic/6547649/2025/08/11/49ers-injuries-wide-receiver-jordan-watkins/
+
+**Steelers' Cameron Heyward hasn't ruled out skipping games amid contract dispute**\
+`The four-time All-Pro defensive lineman is seeking a revised contract.`\
+https://nytimes.com/athletic/6547655/2025/08/11/steelers-cameron-heyward-hold-in-regular-season-games/
+
 **Cincinnati Open tennis suspended after local power outage**\
 `The outage paused two singles matches and brought down broadcast streams across the tournament.`\
 https://nytimes.com/athletic/6547645/2025/08/11/cincinnati-open-tennis-suspended-after-local-power-outage/
