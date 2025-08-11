@@ -1,3 +1,11 @@
+**Nevada Supreme Court blocks arbitration in Jon Gruden's case vs. NFL**\
+`The ruling allows the former coach's lawsuit to proceed publicly in court.`\
+https://nytimes.com/athletic/6547625/2025/08/11/jon-gruden-nfl-nevada-supreme-court/
+
+**Does President Trump Want to Be Mayor, Too?**\
+`President Trump has long railed about crime in blue cities. Now he’s effectively put himself in charge of policing one of them.`\
+https://nytimes.com/2025/08/11/us/politics/trump-mayor-washington-dc-crime.html
+
 **Why Young Children May Not Get Covid Shots This Fall**\
 `Under Robert F. Kennedy Jr., federal officials may withdraw an endorsement for the vaccine in younger children.`\
 https://nytimes.com/2025/08/11/health/covid-vaccine-young-children.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6547655/2025/08/11/steelers-cameron-heyward-hold-in
 **Cincinnati Open tennis suspended after local power outage**\
 `The outage paused two singles matches and brought down broadcast streams across the tournament.`\
 https://nytimes.com/athletic/6547645/2025/08/11/cincinnati-open-tennis-suspended-after-local-power-outage/
-
-**Richest Gain Most and Poorest Face Steepest Cuts Under G.O.P. Law, Analysis Finds**\
-`Millions of people could lose access to federal food aid or Medicaid, according to the Congressional Budget Office’s latest analysis of President Trump’s marquee legislation.`\
-https://nytimes.com/2025/08/11/us/politics/trump-gop-policy-bill-rich-poor.html
-
-**Three People Are Killed After Shooting in Austin, Texas**\
-`The police said the gunman was arrested after he shot and killed three people outside of a Target store in Austin, Texas, on Monday afternoon.`\
-https://nytimes.com/video/us/100000010334949/austin-target-shooting.html
 
