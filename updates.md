@@ -1,3 +1,11 @@
+**Xavier Legette learns a lesson, WR competition heats up: Panthers takeaways**\
+`By adding two draft picks and Hunter Renfrow at receiver, Carolina is going to have tough roster choices to make at the position.`\
+https://nytimes.com/athletic/6547272/2025/08/11/panthers-preseason-takeaways-xavier-legette-disqualified/
+
+**N.Y.C. Schools Change How Reading Is Taught, and Test Scores Rise**\
+`Mayor Adams cast the upswing as evidence of efforts to improve instruction, while rivals in the mayoral race argued that teachers need better training.`\
+https://nytimes.com/2025/08/11/nyregion/nyc-student-reading-scores-rise.html
+
 **Lloyd Williams, Who Helped Spur Harlem’s Revival, Dies at 80**\
 `As head of the area’s Chamber of Commerce, he capitalized on the community’s heritage to promote economic development.`\
 https://nytimes.com/2025/08/11/nyregion/lloyd-williams-dead.html
