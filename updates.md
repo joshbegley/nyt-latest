@@ -1,3 +1,11 @@
+**Falcons defense getting more physical? 5 takeaways from preseason opener vs. Lions**\
+`Atlanta was trailing Detroit 17-10 when Friday's preseason opener was stopped after a serious injury suffered by a Lions safety. `\
+https://nytimes.com/athletic/6544651/2025/08/11/falcons-lions-preseason-demarcco-hellams/
+
+**Staff picks for fantasy football 2025 sleepers, including Tank Bigsby, Ricky Pearsall**\
+`Who will be this year's fantasy football sleepers? Jake Ciely and company give all the hot takes you can handle. `\
+https://nytimes.com/athletic/6540824/2025/08/11/fantasy-football-sleepers-2025-staff-picks/
+
 **Mamdani Will Visit 5 Boroughs on Anti-Trump Tour**\
 `Zohran Mamdani, the Democratic candidate for mayor, will seek to highlight the ways he believes President Trump’s agenda hurts New York City.`\
 https://nytimes.com/2025/08/11/nyregion/mamdani-trump-cuomo-mayor-nyc.html
