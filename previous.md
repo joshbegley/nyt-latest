@@ -1,3 +1,15 @@
+**America’s Clean Hydrogen Dreams Are Fading, Again**\
+`The market for the clean-burning fuel remains nascent, costs are rising, and Congress just put a lucrative tax credit out of reach for many companies.`\
+https://nytimes.com/2025/08/11/business/energy-environment/hydrogen-clean-energy.html
+
+**Trump Crypto Firm Announces $1.5 Billion Digital Coin Deal**\
+`A publicly traded tech firm, ALT5 Sigma, plans to sell $1.5 billion of shares to fund the purchase of a cryptocurrency created by World Liberty Financial, which the Trumps control.`\
+https://nytimes.com/2025/08/11/business/trump-crypto-world-liberty-wlfi-alt5-sigma.html
+
+**In This Financial Crisis, Brian Cox Is Hauntingly Good**\
+`The “Succession” star, playing the ghost of the Scottish philosopher Adam Smith, is a bright spot in a new play about the 2008 banking crunch.`\
+https://nytimes.com/2025/08/11/theater/make-it-happen-brian-cox-edinburgh.html
+
 **Explained: UEFA, CAS and where this leaves Crystal Palace and Nottingham Forest**\
 `The Court of Arbitration for Sport confirmed on Monday it had rejected Palace's request to be reinstated to UEFA's Europa League`\
 https://nytimes.com/athletic/6546631/2025/08/11/cas-crystal-palace-nottingham-forest-uefa-europa-conference/
@@ -25,16 +37,4 @@ https://nytimes.com/interactive/2025/08/11/books/review/nonfiction-book-adaptati
 **A Very Tomatoey Skillet Chicken Dinner**\
 `Yasmin Fahr’s one-pan Dijon chicken with tomatoes and scallions, showered with fresh herbs, is both bright and meaty.`\
 https://nytimes.com/2025/08/11/dining/healthy-dijon-chicken-with-tomatoes-and-scallions-recipe.html
-
-**Welcome to a Giants-Padres series that's way more important than it should be**\
-`The Giants are a .500 team, but they haven't played .500 baseball since April. This Padres series shouldn't be that important but it is.`\
-https://nytimes.com/athletic/6545731/2025/08/11/sf-giants-padres-series-preview-playoff-position/
-
-**Michigan QB recruiting run continues with top-100 2027 prospect**\
-`Peter Bourque, a top-10 quarterback from Tabor Academy in Marion, Mass., committed to Michigan's recruiting Class of 2027 on Monday.`\
-https://nytimes.com/athletic/6546754/2025/08/11/peter-bourque-commitment-michigan-football-recruiting/
-
-**The Long, Strange Trip of Rick Perry**\
-`The former Texas governor and Trump energy secretary has now dedicated his life to promoting the powerful psychedelic ibogaine.`\
-https://nytimes.com/2025/08/11/us/politics/rick-perry-drug-psychedelics-ibogaine.html
 
