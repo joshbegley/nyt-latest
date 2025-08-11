@@ -1,3 +1,7 @@
+**Beauty**\
+``\
+https://nytimes.com/section/t-magazine/beauty
+
 **America’s Clean Hydrogen Dreams Are Fading, Again**\
 `The market for the clean-burning fuel remains nascent, costs are rising, and Congress just put a lucrative tax credit out of reach for many companies.`\
 https://nytimes.com/2025/08/11/business/energy-environment/hydrogen-clean-energy.html

@@ -1,3 +1,7 @@
+**Beauty**\
+``\
+https://nytimes.com/section/t-magazine/beauty
+
 **America’s Clean Hydrogen Dreams Are Fading, Again**\
 `The market for the clean-burning fuel remains nascent, costs are rising, and Congress just put a lucrative tax credit out of reach for many companies.`\
 https://nytimes.com/2025/08/11/business/energy-environment/hydrogen-clean-energy.html
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2025/08/11/weather/tropical-storm-erin-map-path-
 **Do You Know These Books and Their Television Adaptations?**\
 `Try this short quiz on the memoirs and other nonfiction titles that have inspired popular streaming and network shows.`\
 https://nytimes.com/interactive/2025/08/11/books/review/nonfiction-book-adaptations.html
-
-**A Very Tomatoey Skillet Chicken Dinner**\
-`Yasmin Fahr’s one-pan Dijon chicken with tomatoes and scallions, showered with fresh herbs, is both bright and meaty.`\
-https://nytimes.com/2025/08/11/dining/healthy-dijon-chicken-with-tomatoes-and-scallions-recipe.html
 
