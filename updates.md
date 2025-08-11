@@ -1,3 +1,21 @@
+**Tom Brady's Fox broadcast schedule: Washington, Kansas City and likely Chicago**\
+`Brady returns for his second season as an analyst with Fox's No. 1 team, which includes Kevin Burkhardt, Erin Andrews and Tom Rinaldi.`\
+https://nytimes.com/athletic/6546890/2025/08/11/tom-bradys-fox-broadcast-schedule-washington-kansas-city-chicago/
+
+**Submit a question for Stewart Mandel's College Football Playoff**\
+`<p>Can you believe we&#8217;ll be watching actual college football games less than two weeks from now?</p>
+<p>Leave your questions here. Please include your city.</p>
+`\
+https://nytimes.com/athletic/6547062/2025/08/11/submit-a-question-for-stewart-mandels-college-football-mailbag-310/
+
+**The Ethical Boundaries of Organ Donation**\
+`Readers respond to a front-page article about organ transplants and risks to donors. Also: Burning contraceptives; photo memories.`\
+https://nytimes.com/2025/08/11/opinion/organ-donation-ethics.html
+
+**Space Rock That Punched Through Roof Almost Struck Resident**\
+`Fragments of a meteorite that fell to Earth as part of a mysterious daytime fireball in late June missed striking a man near Atlanta, a researcher has found.`\
+https://nytimes.com/2025/08/11/science/meteor-georgia-older-than-earth.html
+
 **Space Rock That Punched Through Roof Almost Struck Resident**\
 `Fragments of a meteorite that fell to Earth as part of a mysterious daytime fireball in late June missed striking a man near Atlanta, a researcher has found.`\
 https://nytimes.com/2025/08/11/science/meteor-atlanta-georgia.html
