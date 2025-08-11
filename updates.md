@@ -1,3 +1,19 @@
+**Post-fire sale Twins win again behind rookie Luke Keaschall and 'grandpa' Ryan Fitzgerald**\
+`Keaschall's first walk-off homer and Fitzgerald's first MLB homer secured the Twins' first back-to-back series wins since mid-July.`\
+https://nytimes.com/athletic/6545659/2025/08/10/minnesota-twins-walk-off-win-luke-keaschall/
+
+**Trump Administration to Put F.B.I. Agents on Night Patrol in Washington**\
+`The move is part of President Trump’s pledge to crack down on street crime in the nation’s capital.`\
+https://nytimes.com/2025/08/10/us/politics/trump-fbi-patrol-washington.html
+
+**Israeli Strike Kills 4 Al Jazeera Journalists, Network Says**\
+`Anas al-Sharif, a well-known correspondent for the network, was among those killed. Israel said it had conducted a strike targeting Mr. al-Sharif, claiming he worked for Hamas.`\
+https://nytimes.com/2025/08/10/world/middleeast/israel-gaza-journalists-killed.html
+
+**Letters! Actual Letters!**\
+`When the best — and perhaps only — way to say something is to write it down.`\
+https://nytimes.com/2025/08/10/podcasts/letters-this-american-life-nyt-audio.html
+
 **Electrifying starter Jonah Tong among Mets prospects promoted to Triple A: Sources**\
 `Tong had a 1.58 ERA with 154 strikeouts in 102 Double-A innings.`\
 https://nytimes.com/athletic/6536968/2025/08/10/mets-jonah-tong-prospect-promotion/
