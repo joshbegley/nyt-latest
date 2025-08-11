@@ -1,3 +1,23 @@
+**Chelsea season betting preview: Was Club World Cup triumph a sign of things to come?**\
+`Chelsea hasn't contended for the Premier League title for years, but after winning the Club World Cup, should they be viewed as threats?`\
+https://nytimes.com/athletic/6538645/2025/08/11/chelsea-season-betting-preview-odds/
+
+**Will Judges Approve Trump’s Choice for U.S. Attorney in Manhattan?**\
+`Jay Clayton, the interim U.S. attorney for the Southern District, was named on an interim basis after Senator Chuck Schumer blocked his nomination.`\
+https://nytimes.com/2025/08/11/nyregion/jay-clayton-attorney-doj-trump.html
+
+**To Study Viking Seafarers, He Took 26 Voyages in Traditional Boats**\
+`An archaeologist in Sweden spent three years traveling in vessels built like those from 1,000 years ago. He discovered lost sea routes, hidden trade harbors and new respect for Viking seamanship.`\
+https://nytimes.com/2025/08/11/science/archaeology-vikings-fyringer-garrett.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/08/11/crosswords/spelling-bee-forum.html
+
+**Al Jazeera Journalists Killed in Israeli Strike**\
+`A member of the press collapsed into the arms of people near the site of the attack on a tent for journalists near a hospital in Gaza City.`\
+https://nytimes.com/video/world/middleeast/100000010333360/israel-gaza-journalists-killed.html
+
 **Tottenham Hotspur in talks with Manchester City over Savinho transfer**\
 `Dialogue has taken place between the clubs and a package worth in the region of €50million (£43.3m, $58.2m) is under discussion`\
 https://nytimes.com/athletic/6545821/2025/08/11/savinho-tottenham-transfers-manchester-city/
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/6538480/2025/08/11/crystal-palace-community-shield-
 **Palace admit Guehi sale may be necessary this summer**\
 `Guehi has one year remaining on the five-year deal he signed when joining from Chelsea in 2021 with no indication yet given on a renewal.`\
 https://nytimes.com/athletic/6545617/2025/08/11/marc-guehi-contract-crystal-palace-transfers/
-
-**The New York Times in Print for Monday, Aug. 11, 2025**\
-``\
-https://nytimes.com/issue/todayspaper/2025/08/11/todays-new-york-times
-
-**‘And Just Like That …’ Finale, Plus 5 Things to Watch on TV This Week**\
-`The HBO reboot of this beloved show wraps up and Chris Hemsworth’s documentary series returns for a second season.`\
-https://nytimes.com/2025/08/11/arts/television/and-just-like-that-finale-things-to-watch-on-tv.html
-
-**Spain Is Going Its Own Way**\
-`The government’s humane and pragmatic approach to immigration is an example for others to emulate.`\
-https://nytimes.com/2025/08/11/opinion/spain-immigration-sanchez-amnesty.html
-
-**A mental reset and a mechanical tweak has Matt Shaw among the hottest hitters in baseball**\
-`Shaw has a 207 wRC+ since the All-Star break. Only three players with at least 50 plate appearances had a better wRC.`\
-https://nytimes.com/athletic/6546027/2025/08/11/chicago-cubs-matt-shaw-hottest-hitters/
-
-**Monday Briefing: North Korea’s Heir Apparent**\
-`Plus, Europe closed ranks ahead of the Trump-Putin summit.`\
-https://nytimes.com/2025/08/11/briefing/monday-briefing-north-koreas-heir-apparent.html
 
