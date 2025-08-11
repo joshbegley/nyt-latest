@@ -1,3 +1,11 @@
+**Explosion at U.S. Steel Plant Injures Dozens, Authorities Say**\
+`The blast drew multiple emergency crews to a plant in Clairton, Pa., near Pittsburgh, for what officials called a mass casualty incident.`\
+https://nytimes.com/2025/08/11/us/us-steel-explosion-pennsylvania.html
+
+**AP Top 25: Texas wins close vote for preseason No. 1 over Penn State**\
+`Texas is No. 1 and Penn State is No. 2 in the closest preseason AP Top 25 at the top of the poll since 1998.`\
+https://nytimes.com/athletic/6546792/2025/08/11/ap-top-25-college-football-preseason-poll-2025/
+
 **Here is the latest on the storm.**\
 `By Judson Jones`\
 https://nytimes.com/live/2025/08/11/weather/tropical-storm-erin-hurricane/here-is-the-latest-on-the-storm
