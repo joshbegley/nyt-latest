@@ -1,4 +1,12 @@
 **Deadly Explosion at U.S. Steel Plant in Pennsylvania**\
+`At least one person was killed and ten were hospitalized after an explosion at a U.S. Steel plant in Clairton, Pa.`\
+https://nytimes.com/video/us/100000010334505/us-steel-explosion-pennsylvania.html
+
+**Trump Is Blurring the Line Between the Military and Law Enforcement**\
+`Six months into the president’s second term, the National Guard has already been deployed twice — once for protests and once for local crime concerns.`\
+https://nytimes.com/2025/08/11/opinion/trump-national-guard-washington-dc.html
+
+**Deadly Explosion at U.S. Steel Plant in Pennsylvania**\
 `At least one person was killed and dozens more injured after an explosion at a U.S. Steel plant in Clairton, Pa.`\
 https://nytimes.com/video/us/100000010334505/us-steel-explosion-pennsylvania.html
 
