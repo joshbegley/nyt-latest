@@ -1,3 +1,7 @@
+**Trump Ordered the National Guard to Police the Nation’s Capital**\
+`Also, the killing of Al Jazeera journalists raised Israel-Qatar tensions. Here’s the latest at the end of Monday.`\
+https://nytimes.com/2025/08/11/briefing/trump-washington-police-crime-putin-russia.html
+
 **President Trump Calls Intel C.E.O. a ‘Success’ After Meeting**\
 `Just days after calling for the resignation of Intel chief, Lip-Bu Tan, over his ties to China, Mr. Trump changed his tune.`\
 https://nytimes.com/2025/08/11/technology/president-trump-intel-ceo.html

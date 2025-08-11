@@ -1,3 +1,7 @@
+**Trump Ordered the National Guard to Police the Nation’s Capital**\
+`Also, the killing of Al Jazeera journalists raised Israel-Qatar tensions. Here’s the latest at the end of Monday.`\
+https://nytimes.com/2025/08/11/briefing/trump-washington-police-crime-putin-russia.html
+
 **President Trump Calls Intel C.E.O. a ‘Success’ After Meeting**\
 `Just days after calling for the resignation of Intel chief, Lip-Bu Tan, over his ties to China, Mr. Trump changed his tune.`\
 https://nytimes.com/2025/08/11/technology/president-trump-intel-ceo.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/11/style/role-model-sally.html
 **Christophe de Menil, Art Patron and Designer, Is Dead at 92**\
 `A Parisian-born oil heiress, she collected art and supported major artists, designed costumes and moved in rarefied social and cultural circles.`\
 https://nytimes.com/2025/08/11/arts/christophe-de-menil-dead.html
-
-**Adidas Apologizes After Mexico Criticizes Oaxacan-Inspired Shoe**\
-`Willy Chavarria, the designer of the shoe, also apologized after Mexican officials leveled accusations of cultural appropriation.`\
-https://nytimes.com/2025/08/11/us/adidas-willy-chavarria-apology-oaxaca-sandal.html
 
