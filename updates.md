@@ -1,3 +1,7 @@
+**Bills running back Ray Davis finally gets his chance to kick, but hopes it was his last**\
+`The process of getting him ready to kick was not unlike a racing pit stop. `\
+https://nytimes.com/athletic/6546043/2025/08/11/bills-running-back-ray-davis-emergency-kicker/
+
 **Newcastle's Vlachodimos close to Sevilla loan**\
 `The goalkeeper made only one appearance for Newcastle last season after joining for £20m from Nottingham Forest.`\
 https://nytimes.com/athletic/6546317/2025/08/11/newcastle-transfers-odysseas-vlachodimos-sevilla/

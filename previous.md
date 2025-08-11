@@ -1,3 +1,7 @@
+**Bills running back Ray Davis finally gets his chance to kick, but hopes it was his last**\
+`The process of getting him ready to kick was not unlike a racing pit stop. `\
+https://nytimes.com/athletic/6546043/2025/08/11/bills-running-back-ray-davis-emergency-kicker/
+
 **Newcastle's Vlachodimos close to Sevilla loan**\
 `The goalkeeper made only one appearance for Newcastle last season after joining for £20m from Nottingham Forest.`\
 https://nytimes.com/athletic/6546317/2025/08/11/newcastle-transfers-odysseas-vlachodimos-sevilla/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6503017/2025/08/11/texas-tech-softball-gerry-glasco
 **Wildfire at Edinburgh Landmark, Arthur’s Seat, Brought Under Control**\
 `Firefighters worked overnight to tackle the blaze on the hill overlooking the Scottish capital. There were no reports of injuries.`\
 https://nytimes.com/2025/08/11/world/europe/fire-arthurs-seat-edinburgh-scotland.html
-
-**How Blue Jays got ‘the best version’ of George Springer and reversed his decline**\
-`When most examined Springer’s 2024 season, they saw a player slowing down due to age. A Jays coach saw someone in need of a new approach.`\
-https://nytimes.com/athletic/6545095/2025/08/11/blue-jays-george-springer-decline/
 
