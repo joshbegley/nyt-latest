@@ -1,3 +1,7 @@
+**The New York Times International Edition in Print for Tuesday, Aug. 12, 2025**\
+``\
+https://nytimes.com/issue/todaysinyt/2025/08/11/todays-new-york-times-international-edition
+
 **Falcons defense getting more physical? 5 takeaways from preseason opener vs. Lions**\
 `Atlanta was trailing Detroit 17-10 when Friday's preseason opener was stopped after a serious injury suffered by a Lions safety. `\
 https://nytimes.com/athletic/6544651/2025/08/11/falcons-lions-preseason-demarcco-hellams/
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2025/08/11/upshot/ai-jobs.html
 **The Mamdani Moment Is About More Than You Realize**\
 `But he’s got some thinking to do.`\
 https://nytimes.com/2025/08/11/opinion/zohran-mamdani-new-york-1980s.html
-
-**Children in State Care Were Sexually Abused. How Much Money Are They Owed?**\
-`New Hampshire is backing away from a promise to pay victims hundreds of millions of dollars. Other states are also rethinking payouts to those harmed under their care.`\
-https://nytimes.com/2025/08/11/us/politics/new-hampshire-sexual-abuse-settlements.html
 

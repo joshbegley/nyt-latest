@@ -1,3 +1,7 @@
+**The New York Times International Edition in Print for Tuesday, Aug. 12, 2025**\
+``\
+https://nytimes.com/issue/todaysinyt/2025/08/11/todays-new-york-times-international-edition
+
 **Falcons defense getting more physical? 5 takeaways from preseason opener vs. Lions**\
 `Atlanta was trailing Detroit 17-10 when Friday's preseason opener was stopped after a serious injury suffered by a Lions safety. `\
 https://nytimes.com/athletic/6544651/2025/08/11/falcons-lions-preseason-demarcco-hellams/
