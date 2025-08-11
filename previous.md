@@ -1,3 +1,11 @@
+**Explained: UEFA, CAS and where this leaves Crystal Palace and Nottingham Forest**\
+`The Court of Arbitration for Sport confirmed on Monday it had rejected Palace's request to be reinstated to UEFA's Europa League`\
+https://nytimes.com/athletic/6546631/2025/08/11/cas-crystal-palace-nottingham-forest-uefa-europa-conference/
+
+**Jellyfish Shut Down French Nuclear Power Plant**\
+`Four of the plant’s reactors shut down after swarms of jellyfish clogged its pumping stations. It isn’t the first time the creatures have thwarted nuclear plants.`\
+https://nytimes.com/2025/08/11/world/europe/jellyfish-nuclear-power-plant-france.html
+
 **Man Utd Women head of recruitment set to join Utah Royals**\
 `Harvey Bussell is set to leave United at the end of the summer transfer window and take up the same role with the NWSL team.`\
 https://nytimes.com/athletic/6546720/2025/08/11/harvey-bussell-utah-royals-man-utd/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6546754/2025/08/11/peter-bourque-commitment-michiga
 **The Long, Strange Trip of Rick Perry**\
 `The former Texas governor and Trump energy secretary has now dedicated his life to promoting the powerful psychedelic ibogaine.`\
 https://nytimes.com/2025/08/11/us/politics/rick-perry-drug-psychedelics-ibogaine.html
-
-**Finland Charges Ship’s Crew Members in Slashing of Undersea Cables**\
-`The tanker, the Eagle S, was detained last December.`\
-https://nytimes.com/2025/08/11/world/europe/finland-cable-severing-charges-russia-shadow-fleet.html
-
-**Fantasy baseball cheat sheet: Ezequiel Tovar's hot August and more THE BAT X insights**\
-`The Athletic and THE BAT X have teamed up to bring readers a fantasy baseball cheat sheet to begin the week. `\
-https://nytimes.com/athletic/6545284/2025/08/11/fantasy-baseball-the-bat-x-tovar-august/
 

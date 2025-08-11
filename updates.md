@@ -1,3 +1,11 @@
+**Explained: UEFA, CAS and where this leaves Crystal Palace and Nottingham Forest**\
+`The Court of Arbitration for Sport confirmed on Monday it had rejected Palace's request to be reinstated to UEFA's Europa League`\
+https://nytimes.com/athletic/6546631/2025/08/11/cas-crystal-palace-nottingham-forest-uefa-europa-conference/
+
+**Jellyfish Shut Down French Nuclear Power Plant**\
+`Four of the plant’s reactors shut down after swarms of jellyfish clogged its pumping stations. It isn’t the first time the creatures have thwarted nuclear plants.`\
+https://nytimes.com/2025/08/11/world/europe/jellyfish-nuclear-power-plant-france.html
+
 **Man Utd Women head of recruitment set to join Utah Royals**\
 `Harvey Bussell is set to leave United at the end of the summer transfer window and take up the same role with the NWSL team.`\
 https://nytimes.com/athletic/6546720/2025/08/11/harvey-bussell-utah-royals-man-utd/
