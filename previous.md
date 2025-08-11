@@ -1,3 +1,7 @@
+**Lloyd Williams, Who Helped Spur Harlem’s Revival, Dies at 80**\
+`As head of the area’s Chamber of Commerce, he capitalized on the community’s heritage to promote economic development.`\
+https://nytimes.com/2025/08/11/nyregion/lloyd-williams-dead.html
+
 **Trump Wields Tariffs as a Force in Diplomacy, to Questionable Effect**\
 `The president has threatened more tariffs on Russia and its trading partners and has imposed harsh ones on India and Brazil to try to sway matters of war and politics.`\
 https://nytimes.com/2025/08/11/us/politics/trump-tariffs-russia.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6547138/2025/08/11/trey-yesavage-blue-jays-promotio
 **This Video Shows Medical Volunteer Executed Amid Unrest in Southern Syria**\
 `The images are the latest reflecting the wave of sectarian violence that has recently consumed the country and left more than 1,000 dead.`\
 https://nytimes.com/2025/08/11/world/middleeast/syria-volunteer-execution-sweida-hospital.html
-
-**Watkins Glen takeaways: The trouble with appreciating greatness, win-and-in drivers and more**\
-`IndyCar and NASCAR have different kinds of greatness problems, what a difference one win makes and more takeaways from Watkins Glen weekend.`\
-https://nytimes.com/athletic/6545898/2025/08/11/nascar-watkins-glen-takeaways-shane-van-gisbergen-chase-elliott/
 

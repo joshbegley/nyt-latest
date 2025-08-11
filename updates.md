@@ -1,3 +1,7 @@
+**Lloyd Williams, Who Helped Spur Harlem’s Revival, Dies at 80**\
+`As head of the area’s Chamber of Commerce, he capitalized on the community’s heritage to promote economic development.`\
+https://nytimes.com/2025/08/11/nyregion/lloyd-williams-dead.html
+
 **Trump Wields Tariffs as a Force in Diplomacy, to Questionable Effect**\
 `The president has threatened more tariffs on Russia and its trading partners and has imposed harsh ones on India and Brazil to try to sway matters of war and politics.`\
 https://nytimes.com/2025/08/11/us/politics/trump-tariffs-russia.html
