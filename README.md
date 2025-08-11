@@ -1,3 +1,11 @@
+**The rookie 'gnat' who has been one of the Commanders' best players at training camp**\
+`After a poor preseason opener, coach Dan Quinn will hold a makeshift scrimmage on Tuesday between Team Burgundy and Team Gold.`\
+https://nytimes.com/athletic/6547500/2025/08/11/trey-amos-commanders-training-camp/
+
+**Lions 53-man roster projection: 3 QBs, Isaac TeSlaa rising and change at DT**\
+`Do the Lions have a decision to make at QB? DL Keith Cooper continues impressing — is it enough to earn a roster spot?`\
+https://nytimes.com/athletic/6547463/2025/08/11/detroit-lions-53-man-roster-projection-quarterbacks/
+
 **Kate Hudson. Natalie Portman. Bowen Yang. Who Will Play Sally Next?**\
 `A group of big-name stars have joined the singer-songwriter Role Model as he performs “Sally, When the Wine Runs Out” while on tour. It all started with a rumor.`\
 https://nytimes.com/2025/08/11/style/role-model-sally.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/08/11/technology/trump-intel-lip-bu-tan.html
 **Harvard and White House Move Toward Potential Landmark Settlement**\
 `A potential $500 million settlement would end a monthslong battle that pitted the nation’s wealthiest school against the Trump administration’s extraordinary crackdown on higher education.`\
 https://nytimes.com/2025/08/11/us/trump-harvard-settlement-negotiations.html
-
-**Trump Takes Control of D.C. Police, Citing ‘Bloodthirsty Criminals.’ But Crime Is Down.**\
-`The president has railed against crime in urban, largely liberal cities for decades, but Monday’s announcement was an extraordinary exertion of federal power over an American city.`\
-https://nytimes.com/2025/08/11/us/politics/trump-washington-dc-police.html
-
-**Eagles guard Landon Dickerson to have 'minor procedure' on knee: Sources**\
-`The Eagles are hoping the three-time Pro Bowler will be ready for the regular season.`\
-https://nytimes.com/athletic/6547496/2025/08/11/eagles-landon-dickerson-knee-injury/
 
