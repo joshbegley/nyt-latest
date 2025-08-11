@@ -1,3 +1,7 @@
+**Blown Away by Bubble Art**\
+`Performers are delighting crowds with bubble blowing at the Edinburgh Festival Fringe, using a mixture of dish soap, water and lube — and occasional acrobatics.`\
+https://nytimes.com/2025/08/11/theater/bubble-shows-edinburgh-fringe.html
+
 **The New York Times International Edition in Print for Tuesday, Aug. 12, 2025**\
 ``\
 https://nytimes.com/issue/todaysinyt/2025/08/11/todays-new-york-times-international-edition
