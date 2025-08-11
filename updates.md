@@ -1,3 +1,7 @@
+**Trump Wields Tariffs as a Force in Diplomacy, to Questionable Effect**\
+`The president has threatened more tariffs on Russia and its trading partners and has imposed harsh ones on India and Brazil to try to sway matters of war and politics.`\
+https://nytimes.com/2025/08/11/us/politics/trump-tariffs-russia.html
+
 **Trump’s Use of National Guard in L.A. Remains Contentious**\
 `A three-day trial opened Monday in state officials’ challenge of the legality of the deployment, which followed protests over immigration raids.`\
 https://nytimes.com/2025/08/11/us/politics/trump-national-guard-los-angeles-lawsuits.html
