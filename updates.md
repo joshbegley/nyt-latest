@@ -1,3 +1,7 @@
+**Is It a Tax, or a Payoff?**\
+`A deal for Nvidia and AMD to give the Trump administration a cut of chip sales to China raises questions about national security and trade policy goals.`\
+https://nytimes.com/2025/08/11/business/dealbook/nvidia-amd-chip-payoff-trump.html
+
 **Higher Tariffs Loom as U.S.-China Trade Truce Nears Expiration**\
 `President Trump has yet to formally sign off on an agreement to extend an economic cease-fire with China, which expires on Tuesday.`\
 https://nytimes.com/2025/08/11/business/us-china-trade-tariffs-deal.html

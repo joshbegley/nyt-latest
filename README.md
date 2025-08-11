@@ -1,3 +1,11 @@
+**Hundreds of Indian Lawmakers Detained at a Protest Claiming Vote Rigging**\
+`Opposition figures were held briefly at a New Delhi demonstration after accusing Narendra Modi’s ruling party of manipulating elections.`\
+https://nytimes.com/2025/08/11/world/asia/india-election-arrests-modi.html
+
+**Higher Tariffs Loom as U.S.-China Trade Truce Nears Expiration**\
+`President Trump has yet to formally sign off on an agreement to extend an economic cease-fire with China, which expires on Tuesday.`\
+https://nytimes.com/2025/08/11/business/us-china-trade-tariffs-deal.html
+
 **Nottingham Forest close to deal for Manchester City's McAtee**\
 `Nothing has been agreed at this stage but talks are moving in a positive direction.`\
 https://nytimes.com/athletic/6063447/2025/08/11/james-mcatee-manchester-city-nottingham-forest-transfer/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6538240/2025/08/11/knicks-fan-survey-championship/
 **What does a successful season look like for Dylan Cozens? Senators mailbag**\
 `This month's mailbag reviews position battles ahead of training camp, a Shane Pinto contract question and much more. `\
 https://nytimes.com/athletic/6535655/2025/08/11/senators-cozens-roster-battles-pinto/
-
-**Paramount Strikes Seven-Year Deal to Stream U.F.C. Fights**\
-`The seven-year $7.7 billion deal is an early win for the company’s new chairman, David Ellison, who took over last week. CBS will also show some marquee fights.`\
-https://nytimes.com/2025/08/11/business/paramount-ufc-fights-deal.html
-
-**Is It a Tax, or a Payoff?**\
-`A deal for Nvidia and AMD to give the Trump administration a cut of chip sales to China raises questions about national security and trade policy goals.`\
-https://nytimes.com/2025/08/11/business/dealbook/nvidia-amd-chip-payoff-trump.html
 
