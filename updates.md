@@ -1,3 +1,7 @@
+**Caleb Murphy, Rocket Sanders among the standouts in Chargers' preseason win over Saints**\
+`Murphy had two sacks — and maybe a third — in Sunday's win and has solidified his spot on Los Angeles' 53-man roster.`\
+https://nytimes.com/athletic/6545973/2025/08/10/chargers-preseason-saints-caleb-murphy/
+
 **Pro Bowl guard Landon Dickerson injured, leaves Eagles practice on cart**\
 `Extent of lineman's injury is not yet known, but the potential absence of the starter would be significant.`\
 https://nytimes.com/athletic/6545879/2025/08/10/eagles-landon-dickerson-injured/

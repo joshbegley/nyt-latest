@@ -1,3 +1,7 @@
+**Caleb Murphy, Rocket Sanders among the standouts in Chargers' preseason win over Saints**\
+`Murphy had two sacks — and maybe a third — in Sunday's win and has solidified his spot on Los Angeles' 53-man roster.`\
+https://nytimes.com/athletic/6545973/2025/08/10/chargers-preseason-saints-caleb-murphy/
+
 **Hezly Rivera wins women's all-around at U.S. Gymnastics Championships**\
 `Makes case for U.S.'s World Championship squad. Asher Hong leads U.S. men's roster for Worlds after strong weekend.`\
 https://nytimes.com/athletic/6545927/2025/08/10/us-gymnastics-championships-hezly-rivera/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/10/world/middleeast/israel-gaza-journalists-killed.h
 **Letters! Actual Letters!**\
 `When the best — and perhaps only — way to say something is to write it down.`\
 https://nytimes.com/2025/08/10/podcasts/letters-this-american-life-nyt-audio.html
-
-**Electrifying starter Jonah Tong among Mets prospects promoted to Triple A: Sources**\
-`Tong had a 1.58 ERA with 154 strikeouts in 102 Double-A innings.`\
-https://nytimes.com/athletic/6536968/2025/08/10/mets-jonah-tong-prospect-promotion/
 
