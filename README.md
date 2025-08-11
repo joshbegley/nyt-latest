@@ -1,40 +1,40 @@
-**TAFC: A La Liga match in... Miami? Plus: Liverpool need fine-tuning, Musah's Nottingham Forest talks**\
-`Today in TAFC: Why Miami could host a La Liga match around Christmas time, Liverpool need fine-tuning and Musah to Nottingham Forest?`\
-https://nytimes.com/athletic/6546281/2025/08/11/a-la-liga-match-in-miami-plus-liverpool-need-fine-tuning-musahs-nottingham-forest-talks/
+**This Week in Mets: Is it even possible for the Mets to rebound from this?**\
+`The Mets have gone from "winners of six straight and holders of a 5-1 lead" to losing 31 of their last 49 games since June 13.`\
+https://nytimes.com/athletic/6545936/2025/08/11/mets-rebound-seven-game-losing-streak/
 
-**Fire Breaks Out on Landmark Arthur’s Seat in Scotland**\
-`The fire spread through “a large area of gorse,” a yellow flowering shrub that covers the hillside, officials said. It follows months of unusually warm weather.`\
-https://nytimes.com/video/world/europe/100000010333442/fire-breaks-out-on-landmark-arthurs-seat-in-scotland.html
+**Tyler Adams interview: Pulisic criticism, rift with USMNT greats, World Cup prep**\
+`USMNT's 2022 World Cup captain has backed Christian Pulisic after his summer break while expressing the significance of his own involvement`\
+https://nytimes.com/athletic/6544679/2025/08/11/tyler-adams-usmnt-pulisic-pochettino-world-cup-bournemouth/
 
-**Miguel Uribe, Colombian Senator Shot at Campaign Event, Dies at 39**\
-`The presidential hopeful spent nine weeks at the hospital in critical condition after he was shot at a campaign rally.`\
-https://nytimes.com/2025/08/11/world/americas/miguel-uribe-turbay-dead-colombia-assassination.html
+**How is Carlos Correa learning to play third base? By studying the league's best**\
+`As he transitions from shortstop to the hot corner, Correa is studying how Matt Chapman, Manny Machado and Nolan Arenado play the position.`\
+https://nytimes.com/athletic/6545252/2025/08/11/carlos-correa-third-basemen-astros/
 
-**Al Nassr reach agreement in principle for Bayern winger Coman**\
-`The 29-year-old joined Bayern in 2017 and has made 339 appearances for the German side. `\
-https://nytimes.com/athletic/6546244/2025/08/11/kingsley-coman-bayern-munich-al-nassr-transfer-agreement-in-principle/
+**There's more to how Gerry Glasco turned Texas Tech into a softball power than NIL**\
+`Texas Tech's financial commitment to softball is significant, but the first-year coach also credits transparency for a trip to the WCWS.`\
+https://nytimes.com/athletic/6503017/2025/08/11/texas-tech-softball-gerry-glasco/
 
-**Crystal Palace to play in Conference League after CAS appeal dismissed**\
-`The decision means Nottingham Forest will compete in the Europa League next season.`\
-https://nytimes.com/athletic/6542739/2025/08/11/crystal-palace-uefa-cas-outcome/
+**Wildfire at Edinburgh Landmark, Arthur’s Seat, Brought Under Control**\
+`Firefighters worked overnight to tackle the blaze on the hill overlooking the Scottish capital. There were no reports of injuries.`\
+https://nytimes.com/2025/08/11/world/europe/fire-arthurs-seat-edinburgh-scotland.html
 
-**WNBA power rankings: Did the Minnesota Lynx win the trade deadline?**\
-`Despite being without Napheesa Collier all week, Minnesota is 3-0 since trading for DiJonai Carrington.`\
-https://nytimes.com/athletic/6546028/2025/08/11/wnba-power-rankings-minnesota-lynx-trade-deadline/
+**How Blue Jays got ‘the best version’ of George Springer and reversed his decline**\
+`When most examined Springer’s 2024 season, they saw a player slowing down due to age. A Jays coach saw someone in need of a new approach.`\
+https://nytimes.com/athletic/6545095/2025/08/11/blue-jays-george-springer-decline/
 
-**Projecting the Cowboys' roster: Corner, defensive tackle remain 2 biggest concerns**\
-`Zion Childress has placed himself in position to make the Dallas roster at cornerback, a position that still has questions.`\
-https://nytimes.com/athletic/6546150/2025/08/11/cowboys-53-man-roster-projection-preseason-opener/
+**Eagles training camp: Landon Dickerson's injury, Tanner McKee's role and more**\
+`Plus, newly-acquired Jakorian Bennett enters the cornerback battle.`\
+https://nytimes.com/athletic/6544078/2025/08/11/eagles-training-camp-landon-dickersons-injury-tanner-mckee-quarterback/
 
-**Where's the stiffest competition in the WNBA? Half-court shot contests after practices**\
-`Playing for $100 and pride, WNBA players bond and fuel their competitive fires with the contests that date to the league's early days.`\
-https://nytimes.com/athletic/6539678/2025/08/11/wnba-halfcourt-shots-practices-fever-liberty/
+**Patriots 53-man roster projection 2.0: Tough decision looms at wide receiver**\
+`How the roster is shaping up after a blowout win in New England's preseason opener.`\
+https://nytimes.com/athletic/6544106/2025/08/11/patriots-53-man-roster-projection-wr-depth-chart/
 
-**The Pulse: QB Tiers are back**\
-`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
-https://nytimes.com/athletic/6545954/2025/08/11/nfl-qb-tiers-lamar-jackson-jayden-daniels-the-pulse/
+**Which MLB contenders have the toughest road to the playoffs? Breaking down the schedules**\
+`It’s time for our first of three check-ins about the strength of each playoff contender’s remaining schedule.`\
+https://nytimes.com/athletic/6542881/2025/08/11/mlb-contenders-strength-of-schedule-august-10/
 
-**Nkunku open to RB Leipzig return should interest advance**\
-`Leipzig are among a number of sides interested in the forward, but have some financial reservations about the logistics of a potential deal.`\
-https://nytimes.com/athletic/6400207/2025/08/11/christopher-nkunku-rb-leipzig-chelsea-transfer/
+**How confident are you in each NHL team's front office? Have your say in our fan survey**\
+`Each management group will be rated by readers on a scale from 1-5 in six categories.`\
+https://nytimes.com/athletic/6536547/2025/08/11/nhl-front-office-fan-survey/
 

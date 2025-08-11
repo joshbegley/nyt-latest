@@ -1,3 +1,11 @@
+**TAFC: A La Liga match in... Miami? Plus: Liverpool need fine-tuning, Musah's Nottingham Forest talks**\
+`Today in TAFC: Why Miami could host a La Liga match around Christmas time, Liverpool need fine-tuning and Musah to Nottingham Forest?`\
+https://nytimes.com/athletic/6546281/2025/08/11/a-la-liga-match-in-miami-plus-liverpool-need-fine-tuning-musahs-nottingham-forest-talks/
+
+**Fire Breaks Out on Landmark Arthur’s Seat in Scotland**\
+`The fire spread through “a large area of gorse,” a yellow flowering shrub that covers the hillside, officials said. It follows months of unusually warm weather.`\
+https://nytimes.com/video/world/europe/100000010333442/fire-breaks-out-on-landmark-arthurs-seat-in-scotland.html
+
 **Miguel Uribe, Colombian Senator Shot at Campaign Event, Dies at 39**\
 `The presidential hopeful spent nine weeks at the hospital in critical condition after he was shot at a campaign rally.`\
 https://nytimes.com/2025/08/11/world/americas/miguel-uribe-turbay-dead-colombia-assassination.html

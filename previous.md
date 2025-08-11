@@ -1,3 +1,11 @@
+**TAFC: A La Liga match in... Miami? Plus: Liverpool need fine-tuning, Musah's Nottingham Forest talks**\
+`Today in TAFC: Why Miami could host a La Liga match around Christmas time, Liverpool need fine-tuning and Musah to Nottingham Forest?`\
+https://nytimes.com/athletic/6546281/2025/08/11/a-la-liga-match-in-miami-plus-liverpool-need-fine-tuning-musahs-nottingham-forest-talks/
+
+**Fire Breaks Out on Landmark Arthur’s Seat in Scotland**\
+`The fire spread through “a large area of gorse,” a yellow flowering shrub that covers the hillside, officials said. It follows months of unusually warm weather.`\
+https://nytimes.com/video/world/europe/100000010333442/fire-breaks-out-on-landmark-arthurs-seat-in-scotland.html
+
 **Miguel Uribe, Colombian Senator Shot at Campaign Event, Dies at 39**\
 `The presidential hopeful spent nine weeks at the hospital in critical condition after he was shot at a campaign rally.`\
 https://nytimes.com/2025/08/11/world/americas/miguel-uribe-turbay-dead-colombia-assassination.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6545954/2025/08/11/nfl-qb-tiers-lamar-jackson-jayde
 **Nkunku open to RB Leipzig return should interest advance**\
 `Leipzig are among a number of sides interested in the forward, but have some financial reservations about the logistics of a potential deal.`\
 https://nytimes.com/athletic/6400207/2025/08/11/christopher-nkunku-rb-leipzig-chelsea-transfer/
-
-**Everton agree Grealish loan deal**\
-`The England international, 29, made only 16 starts for City last season.`\
-https://nytimes.com/athletic/6538344/2025/08/11/jack-grealish-everton-loan-man-city/
-
-**Sunderland close to signing Getafe defender Alderete**\
-`The two sides have agreed a deal worth in the region of £10million ($13.4m) with a further £1m in add-ons.`\
-https://nytimes.com/athletic/6546230/2025/08/11/sunderland-transfer-news-alderete/
 
