@@ -1,3 +1,7 @@
+**This Video Shows Medical Volunteer Executed Amid Unrest in Southern Syria**\
+`The images are the latest reflecting the wave of sectarian violence that has recently consumed the country and left more than 1,000 dead.`\
+https://nytimes.com/2025/08/11/world/middleeast/syria-volunteer-execution-sweida-hospital.html
+
 **Watkins Glen takeaways: The trouble with appreciating greatness, win-and-in drivers and more**\
 `IndyCar and NASCAR have different kinds of greatness problems, what a difference one win makes and more takeaways from Watkins Glen weekend.`\
 https://nytimes.com/athletic/6545898/2025/08/11/nascar-watkins-glen-takeaways-shane-van-gisbergen-chase-elliott/
@@ -35,8 +39,4 @@ https://nytimes.com/2025/08/11/science/meteor-georgia-older-than-earth.html
 **Lloyd: Shedeur Sanders, Browns fans are dating, but it's not time to meet the parents**\
 `Sanders’ 138 passing yards and two touchdowns in the preseason opener made many fans swoon, but a little patience and understanding is best.`\
 https://nytimes.com/athletic/6546137/2025/08/11/shedeur-sanders-browns-fans-relationship/
-
-**At Least One Dead in Explosion at U.S. Steel Plant, Authorities Say**\
-`Dozens of people were injured and some were trapped in rubble at a coke plant in Clairton, Pa., near Pittsburgh, rescue workers said.`\
-https://nytimes.com/2025/08/11/us/us-steel-explosion-pennsylvania.html
 
