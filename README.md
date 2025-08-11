@@ -1,3 +1,7 @@
+**What to Know About How Bail Works in the U.S.**\
+`President Trump called revisions in bail law a “disaster.” Conservatives argue that such policies have contributed to increased lawlessness, but the data does not support their argument.`\
+https://nytimes.com/2025/08/11/nyregion/bail-explainer-trump.html
+
 **The rookie 'gnat' who has been one of the Commanders' best players at training camp**\
 `After a poor preseason opener, coach Dan Quinn will hold a makeshift scrimmage on Tuesday between Team Burgundy and Team Gold.`\
 https://nytimes.com/athletic/6547500/2025/08/11/trey-amos-commanders-training-camp/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/11/world/americas/brazil-big-tech-trump-tariffs.html
 **Meet the Intel C.E.O. in Trump’s Cross Hairs**\
 `Lip-Bu Tan took the reins of Intel in March. On Thursday, President Trump called for his resignation.`\
 https://nytimes.com/2025/08/11/technology/trump-intel-lip-bu-tan.html
-
-**Harvard and White House Move Toward Potential Landmark Settlement**\
-`A potential $500 million settlement would end a monthslong battle that pitted the nation’s wealthiest school against the Trump administration’s extraordinary crackdown on higher education.`\
-https://nytimes.com/2025/08/11/us/trump-harvard-settlement-negotiations.html
 

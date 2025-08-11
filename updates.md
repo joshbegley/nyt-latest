@@ -1,3 +1,11 @@
+**The rookie 'gnat' who has been one of the Commanders' best players at training camp**\
+`After a poor preseason opener, coach Dan Quinn will hold a makeshift scrimmage on Tuesday between Team Burgundy and Team Gold.`\
+https://nytimes.com/athletic/6547500/2025/08/11/trey-amos-commanders-training-camp/
+
+**Lions 53-man roster projection: 3 QBs, Isaac TeSlaa rising and change at DT**\
+`Do the Lions have a decision to make at QB? DL Keith Cooper continues impressing — is it enough to earn a roster spot?`\
+https://nytimes.com/athletic/6547463/2025/08/11/detroit-lions-53-man-roster-projection-quarterbacks/
+
 **Kate Hudson. Natalie Portman. Bowen Yang. Who Will Play Sally Next?**\
 `A group of big-name stars have joined the singer-songwriter Role Model as he performs “Sally, When the Wine Runs Out” while on tour. It all started with a rumor.`\
 https://nytimes.com/2025/08/11/style/role-model-sally.html
