@@ -1,8 +1,12 @@
+**Nottingham Forest close to deal for Manchester City's McAtee**\
+`Nothing has been agreed at this stage but talks are moving in a positive direction.`\
+https://nytimes.com/athletic/6063447/2025/08/11/james-mcatee-manchester-city-nottingham-forest-transfer/
+
 **Trump Administration Live Updates: President to Deploy National Guard in Washington, D.C.**\
 ``\
 https://nytimes.com/live/2025/08/11/us/trump-news
 
-**U.S. Military Prepares to Deploy National Guard in Washington, D.C.**\
+**U.S. Military Is Preparing to Deploy National Guard in D.C., Official Says**\
 `The deployment is part of President Trump’s crackdown on street crime in the city.`\
 https://nytimes.com/2025/08/11/us/politics/trump-national-guard-washington-dc.html
 
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/11/business/paramount-ufc-fights-deal.html
 **Is It a Tax, or a Payoff?**\
 `A deal for Nvidia and AMD to give the Trump administration a cut of chip sales to China raises questions about national security and trade policy goals.`\
 https://nytimes.com/2025/08/11/business/dealbook/nvidia-amd-chip-payoff-trump.html
-
-**Bills running back Ray Davis finally gets his chance to kick, but hopes it was his last**\
-`The process of getting him ready to kick was not unlike a racing pit stop. `\
-https://nytimes.com/athletic/6546043/2025/08/11/bills-running-back-ray-davis-emergency-kicker/
 

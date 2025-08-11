@@ -1,3 +1,11 @@
+**Nottingham Forest close to deal for Manchester City's McAtee**\
+`Nothing has been agreed at this stage but talks are moving in a positive direction.`\
+https://nytimes.com/athletic/6063447/2025/08/11/james-mcatee-manchester-city-nottingham-forest-transfer/
+
+**U.S. Military Is Preparing to Deploy National Guard in D.C., Official Says**\
+`The deployment is part of President Trump’s crackdown on street crime in the city.`\
+https://nytimes.com/2025/08/11/us/politics/trump-national-guard-washington-dc.html
+
 **U.S. Military Prepares to Deploy National Guard in Washington, D.C.**\
 `The deployment is part of President Trump’s crackdown on street crime in the city.`\
 https://nytimes.com/2025/08/11/us/politics/trump-national-guard-washington-dc.html
