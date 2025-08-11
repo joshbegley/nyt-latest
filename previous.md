@@ -1,3 +1,7 @@
+**Bulls mailbag: What is Josh Giddey's worth? Who starts alongside him?**\
+`Bulls fans are waiting for the franchise to make moves that will give the team a boost. One of those moves could involve Josh Giddey.`\
+https://nytimes.com/athletic/6546407/2025/08/11/bulls-josh-giddey-isaac-okoro-nba-mailbag/
+
 **Tracking Tropical Storm Podul**\
 `See the likely path and wind arrival times for Podul`\
 https://nytimes.com/interactive/2025/08/11/weather/tropical-storm-podul-map-path-tracker.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/11/us/politics/trump-national-guard-washington-dc.ht
 **49ers 53-man roster projection: Undrafted rookie Sebastian Valdez makes his push**\
 `Our projection: The 49ers head into the season deep along the offensive and defensive lines but light at wide receiver and quarterback.`\
 https://nytimes.com/athletic/6543121/2025/08/11/49ers-roster-53-man-projection-sebastian-valdez/
-
-**O'Connor: Mets are blowing their chance to own New York**\
-`With the Yankees falling apart, this should have been the Mets’ time to pounce. Instead, it's a golden opportunity squandered.`\
-https://nytimes.com/athletic/6545995/2025/08/11/mets-losing-streak-yankees-new-york/
 

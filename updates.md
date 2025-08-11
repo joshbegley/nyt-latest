@@ -1,3 +1,7 @@
+**Bulls mailbag: What is Josh Giddey's worth? Who starts alongside him?**\
+`Bulls fans are waiting for the franchise to make moves that will give the team a boost. One of those moves could involve Josh Giddey.`\
+https://nytimes.com/athletic/6546407/2025/08/11/bulls-josh-giddey-isaac-okoro-nba-mailbag/
+
 **Tracking Tropical Storm Podul**\
 `See the likely path and wind arrival times for Podul`\
 https://nytimes.com/interactive/2025/08/11/weather/tropical-storm-podul-map-path-tracker.html
