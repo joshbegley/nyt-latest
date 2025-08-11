@@ -1,3 +1,7 @@
+**Tottenham Hotspur hold talks with Manchester City over Savinho transfer**\
+`Dialogue has taken place between the clubs and a package worth in the region of €50million (£43.3m, $58.2m) is under discussion`\
+https://nytimes.com/athletic/6545821/2025/08/11/savinho-tottenham-transfers-manchester-city/
+
 **Chelsea season betting preview: Was Club World Cup triumph a sign of things to come?**\
 `Chelsea hasn't contended for the Premier League title for years, but after winning the Club World Cup, should they be viewed as threats?`\
 https://nytimes.com/athletic/6538645/2025/08/11/chelsea-season-betting-preview-odds/
