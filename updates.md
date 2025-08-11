@@ -1,3 +1,15 @@
+**Nevada Supreme Court blocks arbitration in Jon Gruden's case vs. NFL**\
+`The ruling allows the former coach's lawsuit to proceed publicly in court.`\
+https://nytimes.com/athletic/6547625/2025/08/11/jon-gruden-nfl-nevada-supreme-court/
+
+**Does President Trump Want to Be Mayor, Too?**\
+`President Trump has long railed about crime in blue cities. Now he’s effectively put himself in charge of policing one of them.`\
+https://nytimes.com/2025/08/11/us/politics/trump-mayor-washington-dc-crime.html
+
+**Why Young Children May Not Get Covid Shots This Fall**\
+`Under Robert F. Kennedy Jr., federal officials may withdraw an endorsement for the vaccine in younger children.`\
+https://nytimes.com/2025/08/11/health/covid-vaccine-young-children.html
+
 **Trump Says He’s Going to Alaska to See What Putin ‘Has in Mind’**\
 `President Trump set a low bar for his summit with President Vladimir V. Putin of Russia, saying he was ready to walk away if no deal was forthcoming.`\
 https://nytimes.com/2025/08/11/us/politics/trump-putin-alaska-meeting.html
