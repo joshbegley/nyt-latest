@@ -1,3 +1,7 @@
+**Australia Joins Growing Effort to Recognize Palestinian Statehood**\
+`After similar announcements by France, Britain and Canada, Australia said it would act at the United Nations General Assembly session next month.`\
+https://nytimes.com/2025/08/11/world/australia/australia-palestine-statehood.html
+
 **Chelsea season betting preview: Was Club World Cup triumph a sign of things to come?**\
 `Chelsea hasn't contended for the Premier League title for years, but after winning the Club World Cup, should they be viewed as threats?`\
 https://nytimes.com/athletic/6538645/2025/08/11/chelsea-season-betting-preview-odds/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/11/learning/word-of-the-day-hackneyed.html
 **Crystal Palace beat Liverpool with the same team that won the FA Cup. What if it evolved?**\
 `While his bosses cut their cloth accordingly, Oliver Glasner has nonetheless vocalised a desire for new signings to bolster the squad`\
 https://nytimes.com/athletic/6538480/2025/08/11/crystal-palace-community-shield-glasner-guehi/
-
-**Palace admit Guehi sale may be necessary this summer**\
-`Guehi has one year remaining on the five-year deal he signed when joining from Chelsea in 2021 with no indication yet given on a renewal.`\
-https://nytimes.com/athletic/6545617/2025/08/11/marc-guehi-contract-crystal-palace-transfers/
 

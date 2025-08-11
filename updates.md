@@ -1,3 +1,7 @@
+**Australia Joins Growing Effort to Recognize Palestinian Statehood**\
+`After similar announcements by France, Britain and Canada, Australia said it would act at the United Nations General Assembly session next month.`\
+https://nytimes.com/2025/08/11/world/australia/australia-palestine-statehood.html
+
 **Tottenham Hotspur approach Man City over Savinho transfer**\
 `Dialogue has taken place between the clubs and a package worth in the region of €50million (£43.3m, $58.2m) is under discussion`\
 https://nytimes.com/athletic/6545821/2025/08/11/savinho-tottenham-transfers-manchester-city/
