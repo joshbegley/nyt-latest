@@ -1,5 +1,5 @@
 **Matthew Stafford doesn't participate at Rams practice despite expected return**\
-`Rams coach Sean McVay told reporters Stafford would likely return to practice on Monday following the team's preseason win over the Cowboys.`\
+`Rams coach Sean McVay told reporters the team would take it one day at a time after Stafford was expected to practice on Monday.  `\
 https://nytimes.com/athletic/6547127/2025/08/11/matthew-stafford-injury-rams-training-camp/
 
 **Xavier Legette learns a lesson, WR competition heats up: Panthers takeaways**\
