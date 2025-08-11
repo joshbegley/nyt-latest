@@ -1,3 +1,7 @@
+**Tottenham's Moore marks 18th birthday with new long-term deal**\
+`Moore, who turned 18 on Friday, is currently on a season-long loan at Scottish Premiership club Rangers`\
+https://nytimes.com/athletic/6546567/2025/08/11/tottenham-mikey-moore-new-contract/
+
 **Spain Women part ways with head coach Tome**\
 `Spain's Under-23 head coach Sonia Bermudez has been confirmed as Tome's replacement.`\
 https://nytimes.com/athletic/6545255/2025/08/11/spain-women-montse-tome-exit/

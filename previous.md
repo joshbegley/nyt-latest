@@ -1,3 +1,7 @@
+**Tottenham's Moore marks 18th birthday with new long-term deal**\
+`Moore, who turned 18 on Friday, is currently on a season-long loan at Scottish Premiership club Rangers`\
+https://nytimes.com/athletic/6546567/2025/08/11/tottenham-mikey-moore-new-contract/
+
 **Spain Women part ways with head coach Tome**\
 `Spain's Under-23 head coach Sonia Bermudez has been confirmed as Tome's replacement.`\
 https://nytimes.com/athletic/6545255/2025/08/11/spain-women-montse-tome-exit/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6545995/2025/08/11/mets-losing-streak-yankees-new-y
 **When could the Red Wings' top prospects reach the NHL? Prospect timelines**\
 `When could 10 of Detroit's top prospects arrive in the NHL? Red Wings beat writer Max Bultman weighs in with timelines and projections.`\
 https://nytimes.com/athletic/6537280/2025/08/11/red-wings-prospects-nhl-danielson-cossa/
-
-**Knicks fan survey: Is this season championship-or-bust? Voice your opinion**\
-`Share your opinion on the state of the Knicks franchise heading into a pivotal season.`\
-https://nytimes.com/athletic/6538240/2025/08/11/knicks-fan-survey-championship/
 
