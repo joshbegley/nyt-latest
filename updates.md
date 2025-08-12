@@ -1,3 +1,19 @@
+**Tottenham close to finalising Djed Spence contract extension**\
+`The 25-year-old was one of the breakout stars of last season under Ange Postecoglou and will now be rewarded for his progress.`\
+https://nytimes.com/athletic/6525112/2025/08/12/tottenham-djed-spence-contract-new/
+
+**Lawsuit accuses Shohei Ohtani, agent of interfering with $240 million Hawaii development**\
+`“The agent was doing business on his behalf, so (Ohtani is) responsible for the agent ultimately,” the plaintiffs' lawyer told The Athletic.`\
+https://nytimes.com/athletic/6549486/2025/08/12/shohei-ohtani-nez-balelo-lawsuit-hawaii-real-estate-project/
+
+**Trump’s Pick to Lead Labor Data Agency Adds to Fears of Political Interference**\
+`Economists on the left and right criticized E.J. Antoni for misunderstanding the data he would now oversee.`\
+https://nytimes.com/2025/08/12/business/trump-bls-ej-antoni.html
+
+**Donnarumma on PSG future: 'Someone has decided that I can no longer be part of the group'**\
+`The Italian goalkeeper's comments came after Luis Enrique said PSG wanted a "different" goalkeeping profile`\
+https://nytimes.com/athletic/6549540/2025/08/12/donnarumma-psg-transfer-luis-enrique/
+
 **Elon Musk Threatens to Sue Apple Over Claims It Favors OpenAI**\
 `The billionaire said in posts on X that the consumer tech giant was violating antitrust laws by giving preferential treatment to OpenAI on the App Store.`\
 https://nytimes.com/2025/08/12/technology/elon-musk-apple-openai-xai.html
