@@ -1,3 +1,7 @@
+**Jon Gruden wins ruling from Nevada Supreme Court in lawsuit vs. NFL**\
+`The ruling allows the former coach's lawsuit to proceed publicly in court.`\
+https://nytimes.com/athletic/6547625/2025/08/11/jon-gruden-nfl-nevada-supreme-court/
+
 **Browns star Myles Garrett cited for driving 100 mph**\
 `The Browns confirmed they are aware of the incident but did not comment further. `\
 https://nytimes.com/athletic/6547804/2025/08/11/myles-garrett-browns-100-mph/
