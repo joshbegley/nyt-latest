@@ -1,3 +1,11 @@
+**Elon Musk Threatens to Sue Apple Over Claims It Favors OpenAI**\
+`The billionaire said in posts on X that the consumer tech giant was violating antitrust laws by giving preferential treatment to OpenAI on the App Store.`\
+https://nytimes.com/2025/08/12/technology/elon-musk-apple-openai-xai.html
+
+**Donnarumma on PSG future: 'Someone has decided that I can no longer be part of the group'**\
+`The Italian goalkeeper's comments came after Luis Enrique said PSG wanted a "different goalkeeping profile".`\
+https://nytimes.com/athletic/6549540/2025/08/12/donnarumma-psg-transfer-luis-enrique/
+
 **David Mazzarella, Editor Who Helped Reshape USA Today, Dies at 87**\
 `For five years, he honed the paper’s focus on hard news and enterprising journalism, distancing it from its reputation for fluffy, bite-sized stories.`\
 https://nytimes.com/2025/08/12/business/media/david-mazzarella-dead.html
@@ -29,12 +37,4 @@ https://nytimes.com/newsgraphics/card-story/better-burgers-recipe
 **gws-how-to-pick-a-good-tomato**\
 `(No description)`\
 https://nytimes.com/newsgraphics/card-story/how-to-pick-a-good-tomato
-
-**gws-catherine-princess-of-wales-fashion**\
-`(No description)`\
-https://nytimes.com/newsgraphics/card-story/catherine-princess-of-wales-fashion
-
-**Submit your questions for Jeremy Rutherford’s St. Louis Blues mailbag**\
-`Have a question about the Blues? Submit it here and The Athletic’s Jeremy Rutherford will address a selection in his upcoming mailbag.`\
-https://nytimes.com/athletic/6549487/2025/08/12/blues-mailbag-jeremy-rutherford-august-2025/
 
