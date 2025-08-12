@@ -1,40 +1,40 @@
-**PSG complete deal for Bournemouth's Zabarnyi**\
-`The Premier League club say the deal is worth €63million up front, with €3m in achievable add-ons.`\
-https://nytimes.com/athletic/6411629/2025/08/12/psg-transfers-zabarnyi-bournemouth/
+**Have your say about Villarreal-Barcelona being moved to the U.S.**\
+`A regular season European match in the U.S. is closer than ever. Should it happen?`\
+https://nytimes.com/athletic/6548153/2025/08/12/villarreal-barcelona-la-liga-us-survey/
 
-**Tottenham season betting preview: A bounce-back in the league or more struggles?**\
-`Tottenham were all the way down in 17th in the Premier League table, but managed to qualify for the Champions League. Will Spurs improve?`\
-https://nytimes.com/athletic/6539101/2025/08/12/tottenham-season-betting-preview-odds/
+**Ask The Morning: What Are Your Questions About Psychedelics?**\
+`Chief executives and politicians are promoting the drugs for therapeutic use. Do you have questions about them?`\
+https://nytimes.com/2025/08/12/briefing/ask-the-morning-what-are-your-questions-about-psychedelics.html
 
-**They Cleaned the Subway During Covid. Now They Will Earn Back Pay.**\
-`A $3 million settlement will be divided among 452 underpaid workers employed at the height of the coronavirus pandemic, the city comptroller's office said.`\
-https://nytimes.com/2025/08/12/nyregion/subway-cleaners-coronavirus-mta-settlement.html
+**The D.N.C.’s New Leader Seeks to Curb Dark Money Influence in 2028 Primaries**\
+`The move is the first significant maneuver from Ken Martin to shape the party’s next presidential nominating process, but how much bite his proposal could have remains to be seen.`\
+https://nytimes.com/2025/08/12/us/politics/the-dncs-new-leader-seeks-to-curb-dark-money-influence-in-2028-primaries.html
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2025/08/12/crosswords/spelling-bee-forum.html
+**How Liberalism Went to Die on the Texas-Arkansas Border**\
+`Democrats delivered millions to the Texarkana region. It didn’t matter a dime.`\
+https://nytimes.com/2025/08/12/opinion/liberalism-texarkana-economy-democracy.html
 
-**Zohran Mamdani’s Inner Circle**\
-`A guide to the close advisers and loyal aides who could shape his mayoralty.`\
-https://nytimes.com/interactive/2025/08/12/nyregion/zohran-mamdani-aides-family-staff.html
+**For Trump, Cities Like Washington Are Real Estate in Need of Fixing Up**\
+`“It’s a natural instinct as a real estate person,” he said in announcing his federal takeover of the capital’s police, despite falling crime.`\
+https://nytimes.com/2025/08/12/us/politics/trump-dc-crime.html
 
-**The Transfer DealSheet: The latest on your club and their plans this summer window**\
-`This week, David Ornstein gives us his One To Watch, we have news on Liverpool's interest in a young defender and the latest on Donnarumma`\
-https://nytimes.com/athletic/6546338/2025/08/12/transfer-latest-manchester-united-arsenal-real-madrid-liverpool-carlos-baleba/
+**New Inflation Data Likely to Show Deepening Impact of Trump’s Tariffs**\
+`The Consumer Price Index is expected to reflect an uptick in inflation as companies increase prices as a result of President Trump’s tariffs.`\
+https://nytimes.com/2025/08/12/business/cpi-inflation-trump-tariffs.html
 
-**Vladimir Putin’s Coming to Alaska and Late Night Is Amused**\
-`“Trump loves talking about keeping criminal foreigners out of the country, and now he’s like, ‘Vladimir Putin, come on over,’” Jimmy Fallon said on Monday.`\
-https://nytimes.com/2025/08/12/arts/television/jimmy-fallon-trump-putin-alaska.html
+**Slimmer, but Still One Big Oyster**\
+`The largest oyster found in New York Harbor in about 100 years recalls an era when oysters were everywhere in New York.`\
+https://nytimes.com/2025/08/12/nyregion/oysters-nyc-big.html
 
-**Word of the Day: inedible**\
-`This word has appeared in 22 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2025/08/12/learning/word-of-the-day-inedible.html
+**Geometry Solves Gerrymandering**\
+`A new level of partisan one-upmanship should spur urgent demands for reform.`\
+https://nytimes.com/2025/08/12/opinion/math-solution-gerrymandering.html
 
-**Dodgers' middling play has dropped their division lead to just 1 game**\
-`"This was a bad loss for us," Max Muncy said. "There's not really a way of getting around that."`\
-https://nytimes.com/athletic/6548107/2025/08/12/dodgers-lose-angels-one-game-division-lead/
+**A.I. Is Fueling a ‘Poverty of Imagination.’ Here’s How We Can Fix It.**\
+`What bots are really doing in the classroom.`\
+https://nytimes.com/2025/08/12/opinion/ai-college-classrooms-chatgpt.html
 
-**Brendan Donovan's go-ahead, pinch hit double latest spark for scrappy Cardinals**\
-`After a dismal July, the Cardinals have strung together wins despite a depleted bullpen and a limited bench.`\
-https://nytimes.com/athletic/6548004/2025/08/12/brendan-donovan-pinch-hit-double-cardinals-rockies/
+**A Slow Renovation Ends With a ‘Cozy Yet Luxe’ Basement**\
+`The designer Mandy Cheng deliberately chose pieces she could recommend to her clients for her media room and bar.`\
+https://nytimes.com/2025/08/12/realestate/interior-designer-basement-renovations-media-room-bar.html
 
