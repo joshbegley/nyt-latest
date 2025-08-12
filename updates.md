@@ -1,3 +1,7 @@
+**A closer look at the young players the Giants acquired in the Tyler Rogers trade**\
+`The Giants got high marks for their return for Rogers. Fans should get a long look at the three prospects in the final weeks of the season.`\
+https://nytimes.com/athletic/6549292/2025/08/12/sf-giants-tyler-rogers-return-drew-gilbert-blade-tidwell-jose-butto/
+
 **Court Ruling Casts Doubt on New York’s Cannabis Licensing Process**\
 `A federal appeals court said that it appeared to be unconstitutional for New York to prioritize some of its own residents for licenses to open cannabis businesses.`\
 https://nytimes.com/2025/08/12/nyregion/new-york-cannabis-licensing-unconstitutional.html
