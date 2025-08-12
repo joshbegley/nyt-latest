@@ -1,3 +1,7 @@
+**Laura Rutledge elevated to ESPN's lead 'Monday Night Football' broadcast team**\
+`ESPN&#8217;s &#8220;Monday Night Football&#8221; will have a new look on its sidelines this season — longtime NFL host and reporter Laura Rutledge will join Lisa Salters as a permanent sideline reporter for all 20 Monday Night Football games that the top team of Joe Buck, Troy Aikman and Salters will call this season.`\
+https://nytimes.com/athletic/6548706/2025/08/12/laura-rutledge-espn-nfl-monday-night-football/
+
 **This Ritzy-Hotel Thriller Focuses Less on the Tourists Than on the Staff**\
 `Cleyvis Natera’s novel “The Grand Paloma Resort” combines fast-paced suspense, class distinctions and colonial history in a breathless seven-day trip to the Dominican Republic.`\
 https://nytimes.com/2025/08/12/books/review/cleyvis-natera-the-grand-paloma-resort.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/12/style/street-style-look-mixing-and-matching-color
 **Thunder, Rockets open 2025-26 NBA season on NBC, Flagg to debut on ESPN**\
 `Here's what we know about the NBA’s opening night and Christmas Day slates, as well as marquee games on ABC and NBC.`\
 https://nytimes.com/athletic/6546568/2025/08/12/nba-schedule-release-2025-2026-season/
-
-**‘SNAP Wasn’t a Handout’: The Week 8 Winner of Our Summer Reading Contest**\
-`Viviana Thumm, 15, writes about the Trump administration’s cuts to the food aid program — changes she says are “personal.”`\
-https://nytimes.com/2025/08/12/learning/snap-wasnt-a-handout-the-week-8-winner-of-our-summer-reading-contest.html
 
