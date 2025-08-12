@@ -1,3 +1,7 @@
+**Scoop City: A simple fantasy football strategy that works**\
+`Alvin Kamara, Chris Godwin and Mike Evans look like to top buys via a simple formula to find fantasy value`\
+https://nytimes.com/athletic/6549061/2025/08/12/fantasy-football-strategy-2025-adp-discounts-nfl-scoop-city/
+
 **Madrid ask FIFA to block Villarreal vs. Barcelona from being held in Miami**\
 `On Monday, the RFEF approved La Liga’s request for the match to be played at Miami's Hard Rock Stadium in December.`\
 https://nytimes.com/athletic/6548962/2025/08/12/real-madrid-statement-barcelona-villarreal-miami/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6548986/2025/08/12/tottenham-bissouma-disciplinary-
 **Trump’s Takeover of D.C. Policing**\
 `President Trump said that he was temporarily taking control of the Washington, D.C., police department and deploying 800 National Guard troops. Campbell Robertson, a reporter for the National desk, describes what to know about the takeover.`\
 https://nytimes.com/video/us/politics/100000010334810/trumps-takeover-of-dc-policing.html
-
-**Southampton reject West Ham offer for Fernandes**\
-`The bid worth up to £30million including add-ons fell considerably short of the Championship club's valuation.`\
-https://nytimes.com/athletic/6548731/2025/08/12/west-ham-transfers-mateus-fernandes/
 
