@@ -1,3 +1,11 @@
+**Thunder, Rockets open 2025-2026 NBA season on NBC, Flagg to debut on ESPN**\
+`Here's what we know about the NBA’s opening night and Christmas Day slates, as well as marquee games on ABC and NBC.`\
+https://nytimes.com/athletic/6546568/2025/08/12/nba-schedule-release-2025-2026-season/
+
+**‘SNAP Wasn’t a Handout’: The Week 8 Winner of Our Summer Reading Contest**\
+`Viviana Thumm, 15, writes about the Trump administration’s cuts to the food aid program — changes she says are “personal.”`\
+https://nytimes.com/2025/08/12/learning/snap-wasnt-a-handout-the-week-8-winner-of-our-summer-reading-contest.html
+
 **Trump’s Fed nominee has argued that tariffs haven’t raised prices.**\
 `By Tony Romm`\
 https://nytimes.com/live/2025/08/12/business/cpi-inflation-tariffs-fed/trumps-fed-nominee-has-argued-that-tariffs-havent-raised-prices

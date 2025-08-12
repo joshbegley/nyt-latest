@@ -1,3 +1,11 @@
+**Thunder, Rockets open 2025-2026 NBA season on NBC, Flagg to debut on ESPN**\
+`Here's what we know about the NBA’s opening night and Christmas Day slates, as well as marquee games on ABC and NBC.`\
+https://nytimes.com/athletic/6546568/2025/08/12/nba-schedule-release-2025-2026-season/
+
+**‘SNAP Wasn’t a Handout’: The Week 8 Winner of Our Summer Reading Contest**\
+`Viviana Thumm, 15, writes about the Trump administration’s cuts to the food aid program — changes she says are “personal.”`\
+https://nytimes.com/2025/08/12/learning/snap-wasnt-a-handout-the-week-8-winner-of-our-summer-reading-contest.html
+
 **Trump’s Fed nominee has argued that tariffs haven’t raised prices.**\
 `By Tony Romm`\
 https://nytimes.com/live/2025/08/12/business/cpi-inflation-tariffs-fed/trumps-fed-nominee-has-argued-that-tariffs-havent-raised-prices
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6548437/2025/08/12/crystal-palace-uefa-conference-l
 **Car companies are paying the tariffs. For now.**\
 `By Jack Ewing`\
 https://nytimes.com/live/2025/08/12/business/cpi-inflation-tariffs-fed/car-companies-are-paying-the-tariffs-for-now
-
-**The ultimate 2025-26 Penguins fan roadtrip guide: Part 1**\
-`Have wanderlust and love the Penguins? We've got you covered with our annual list of best road cities — including insider tips from a pro.`\
-https://nytimes.com/athletic/6510829/2025/08/12/penguins-fan-roadtrip-guide-nhl-1/
-
-**India’s Supreme Court Tells New Delhi to Round Up Stray Dogs**\
-`In cities across the country, the feral animals are both loved and feared. The judges are forging into intensely emotional territory by going after the ones in the capital.`\
-https://nytimes.com/2025/08/12/world/asia/india-court-delhi-stray-dogs.html
 
