@@ -1,3 +1,11 @@
+**What to know about the report.**\
+`By Colby Smith`\
+https://nytimes.com/live/2025/08/12/business/cpi-inflation-tariffs-fed/what-to-know-about-the-report
+
+**Sierra Club’s Board Fires Ben Jealous, the Group’s Executive Director**\
+`Mr. Jealous oversaw a difficult tenure at the storied environmental organization, where he clashed with employees and oversaw layoffs.`\
+https://nytimes.com/2025/08/12/climate/sierra-club-ben-jealous-fired-executive-director.html
+
 **Mystery of Bank Theft Said to Be Iceland’s First Is Solved After 50 Years**\
 `Baskets of coins disappeared overnight from an Icelandic bank in 1975. Last month, someone finally owned up.`\
 https://nytimes.com/2025/08/12/world/europe/iceland-bank-theft-1975-confession.html
@@ -25,12 +33,4 @@ https://nytimes.com/athletic/6547171/2025/08/12/fantasy-football-2025-quarterbac
 **Laura Rutledge elevated to ESPN's lead 'Monday Night Football' broadcast team**\
 `The move sets up the on-air talent roster for what will be ESPN's most important live broadcast ever: Super Bowl LXI in February 2027.`\
 https://nytimes.com/athletic/6548706/2025/08/12/laura-rutledge-espn-nfl-monday-night-football/
-
-**This Ritzy-Hotel Thriller Focuses Less on the Tourists Than on the Staff**\
-`Cleyvis Natera’s novel “The Grand Paloma Resort” combines fast-paced suspense, class distinctions and colonial history in a breathless seven-day trip to the Dominican Republic.`\
-https://nytimes.com/2025/08/12/books/review/cleyvis-natera-the-grand-paloma-resort.html
-
-**Submit your questions here for Eric Stephens' Ducks mailbag**\
-`What do you want to know about the Ducks?`\
-https://nytimes.com/athletic/6547100/2025/08/12/ducks-roster-questions-offseason/
 

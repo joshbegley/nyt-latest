@@ -1,3 +1,11 @@
+**Mystery of Bank Theft Said to Be Iceland’s First Is Solved After 50 Years**\
+`Baskets of coins disappeared overnight from an Icelandic bank in 1975. Last month, someone finally owned up.`\
+https://nytimes.com/2025/08/12/world/europe/iceland-bank-theft-1975-confession.html
+
+**James Cook practices with Bills after hold-in over contract negotiations**\
+`Cook appeared in full pads and his uniform at Saturday's preseason game against the New York Giants but refused to play.`\
+https://nytimes.com/athletic/6548738/2025/08/12/james-cook-bills-practice-return-contract/
+
 **The Bounce: NBA schedule news to know**\
 `The Bounce Newsletter  | This is The Athletic’s daily NBA newsletter.`\
 https://nytimes.com/athletic/6548732/2025/08/12/nba-schedule-kevin-durant-thunder-the-bounce/

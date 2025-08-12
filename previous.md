@@ -1,3 +1,11 @@
+**Mystery of Bank Theft Said to Be Iceland’s First Is Solved After 50 Years**\
+`Baskets of coins disappeared overnight from an Icelandic bank in 1975. Last month, someone finally owned up.`\
+https://nytimes.com/2025/08/12/world/europe/iceland-bank-theft-1975-confession.html
+
+**James Cook practices with Bills after hold-in over contract negotiations**\
+`Cook appeared in full pads and his uniform at Saturday's preseason game against the New York Giants but refused to play.`\
+https://nytimes.com/athletic/6548738/2025/08/12/james-cook-bills-practice-return-contract/
+
 **The Bounce: NBA schedule news to know**\
 `The Bounce Newsletter  | This is The Athletic’s daily NBA newsletter.`\
 https://nytimes.com/athletic/6548732/2025/08/12/nba-schedule-kevin-durant-thunder-the-bounce/
@@ -25,12 +33,4 @@ https://nytimes.com/2025/08/12/books/review/cleyvis-natera-the-grand-paloma-reso
 **Submit your questions here for Eric Stephens' Ducks mailbag**\
 `What do you want to know about the Ducks?`\
 https://nytimes.com/athletic/6547100/2025/08/12/ducks-roster-questions-offseason/
-
-**Submit your questions here for Eric Stephens' Kings mailbag**\
-`What do you want to know about the Kings?`\
-https://nytimes.com/athletic/6547072/2025/08/12/kings-roster-questions-mailbag/
-
-**A Rom-Com Born in Britain and Set in New York Is Coming to Broadway**\
-`“Two Strangers (Carry a Cake Across New York)”, a musical charmer with a cast of two, will open at the Longacre in November.`\
-https://nytimes.com/2025/08/12/theater/two-strangers-broadway.html
 
