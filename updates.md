@@ -1,3 +1,7 @@
+**Brendan Donovan's go-ahead, pinch hit double latest spark for scrappy Cardinals**\
+`After a dismal July, the Cardinals have strung together wins despite a depleted bullpen and a limited bench.`\
+https://nytimes.com/athletic/6548004/2025/08/12/brendan-donovan-pinch-hit-double-cardinals-rockies/
+
 **Israel’s Pain Has Blinded It to Gaza’s Suffering**\
 `Multiple factors have caused the starvation ravaging Gaza. But Israel must accept that its actions are the main cause.`\
 https://nytimes.com/2025/08/12/opinion/israel-gaza-starvation-aid.html
