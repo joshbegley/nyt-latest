@@ -1,3 +1,7 @@
+**Wildfires Rage in Spain as Temperatures Soar**\
+`Nearly 1,000 soldiers have been deployed to battle wildfires. Spain’s meteorological agency has issued red-level “extreme risk” alerts for five regions amid rising temperatures.`\
+https://nytimes.com/video/world/middleeast/100000010335720/spain-wildfire-heatwave-evacuation-madrid-.html
+
 **Out of San Francisco, Deebo Samuel has a plan to recapture what made him great**\
 `After a season marred by pneumonia and a string of injuries, the veteran wide receiver took his training to another level.`\
 https://nytimes.com/athletic/6548081/2025/08/12/deebo-samuel-commanders-football-weight-illness/
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/08/12/us/trump-news
 **After 2024's grind, Notre Dame knows double-digit D-linemen may not be enough**\
 `In an ideal world, the Irish would go to Miami with at least 10 D-linemen ready to play. Al Washington knows 'ideal' isn't always possible.`\
 https://nytimes.com/athletic/6546440/2025/08/12/notre-dame-defensive-line-depth-chart/
-
-**Seahawks stock report: 'Baller' rookie WR Tory Horton leads 5 training camp standouts**\
-`Horton, a fifth-round pick, is pushing for a significant role. Meanwhile, several young defensive linemen have also taken big strides.`\
-https://nytimes.com/athletic/6547433/2025/08/12/seahawks-preseason-tory-horton-rookie-standouts/
 
