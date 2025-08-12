@@ -1,3 +1,11 @@
+**Elon Musk Threatens to Sue Apple Over Claims It Favors OpenAI**\
+`The billionaire said in posts on X that the consumer tech giant was violating antitrust laws by giving preferential treatment to OpenAI on the App Store.`\
+https://nytimes.com/2025/08/12/technology/elon-musk-apple-openai-xai.html
+
+**Donnarumma on PSG future: 'Someone has decided that I can no longer be part of the group'**\
+`The Italian goalkeeper's comments came after Luis Enrique said PSG wanted a "different goalkeeping profile".`\
+https://nytimes.com/athletic/6549540/2025/08/12/donnarumma-psg-transfer-luis-enrique/
+
 **3 Killed in Queens After Driver Hits Pedestrians Near Food Truck**\
 `A Toyota Corolla driven by an 84-year-old man struck two pedestrians in Queens, leaving all three of them dead, the police said.`\
 https://nytimes.com/2025/08/12/nyregion/queens-car-crash-food-truck-3-killed.html
