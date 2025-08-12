@@ -1,3 +1,15 @@
+**2025-26 Premier League winner odds: How the main contenders stack up**\
+`Liverpool snapped Manchester City's Premier League title run last season. Can the Reds start their own run or will we see a new winner?`\
+https://nytimes.com/athletic/6548828/2025/08/12/premier-league-odds-liverpool-arsenal-man-city/
+
+**Full Time: NWSL’s coaching PR problem**\
+`Welcome to Full Time, The Athletic's women's soccer newsletter.`\
+https://nytimes.com/athletic/6549045/2025/08/12/nwsl-north-carolina-courage-sean-nahas-full-time/
+
+**A Culinary Quest Through Alaska**\
+`An unforgettable journey of taste and exploration, in which every bite is a discovery and every vista a masterpiece.`\
+https://nytimes.com/paidpost/princess-cruises/a-culinary-quest-through-alaska.html
+
 **Lélé Takes a Lush Approach to Caribbean and African Fare**\
 `Nourish opens in the South Bronx, Elephant & Castle closes after more than 50 years and more restaurant news.`\
 https://nytimes.com/2025/08/12/dining/nyc-restaurant-news.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6549061/2025/08/12/fantasy-football-strategy-2025-a
 **Madrid ask FIFA to block Villarreal vs. Barcelona from being held in Miami**\
 `On Monday, the RFEF approved La Liga’s request for the match to be played at Miami's Hard Rock Stadium in December.`\
 https://nytimes.com/athletic/6548962/2025/08/12/real-madrid-statement-barcelona-villarreal-miami/
-
-**Experience the True Spirit of Kauai with Capital One**\
-`At 1 Hotel Hanalei Bay, Capital One Venture X cardholders can expect a truly elevated wellness experience.`\
-https://nytimes.com/paidpost/capital-one/experience-the-true-spirit-of-kauai-with-capital-one.html
-
-**‘Only a Stream Remains’: Minnesota Lake Is Drained After Valve Malfunction**\
-`Dead fish, puddles and weeds are all that’s left of Alice Lake after a pipe, which was unable to close, pushed all of the water into the St. Croix River.`\
-https://nytimes.com/2025/08/12/us/minnesota-alice-lake-restoration.html
-
-**DeSantis Appoints Ally to Be Lieutenant Governor**\
-`Gov. Ron DeSantis elevated a loyal ally, State Senator Jay Collins of Tampa, as Republicans jostle over who should succeed the term-limited governor.`\
-https://nytimes.com/2025/08/12/us/desantis-appoints-ally-to-be-lieutenant-governor.html
 

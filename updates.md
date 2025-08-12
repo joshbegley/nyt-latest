@@ -1,3 +1,15 @@
+**Lélé Takes a Lush Approach to Caribbean and African Fare**\
+`Nourish opens in the South Bronx, Elephant & Castle closes after more than 50 years and more restaurant news.`\
+https://nytimes.com/2025/08/12/dining/nyc-restaurant-news.html
+
+**Independent English football regulator fast-tracked for November start by UK government**\
+`The move will increase pressure on under-fire owners such as Sheffield Wednesday’s Dejphon Chansiri to sell the club before November 1.`\
+https://nytimes.com/athletic/6549139/2025/08/12/independent-football-regulator-start-when/
+
+**Scoop City: A simple fantasy football strategy that works**\
+`Alvin Kamara, Chris Godwin and Mike Evans look like top buys via a simple formula to find fantasy value`\
+https://nytimes.com/athletic/6549061/2025/08/12/fantasy-football-strategy-2025-adp-discounts-nfl-scoop-city/
+
 **Two Chinese Ships Collide While Chasing Philippine Patrol Boat**\
 `A Chinese Navy vessel collided with a Chinese Coast Guard ship while chasing a Philippine patrol boat near Scarborough Shoal, a disputed area in the South China Sea.`\
 https://nytimes.com/video/world/asia/100000010336157/south-china-sea-philippines-crash.html
