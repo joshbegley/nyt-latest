@@ -1,3 +1,7 @@
+**A Right-Wing Influencer Tried to Be a Tradwife. It Almost Broke Her.**\
+`Being an anti-feminist, it turns out, is no shield against abusive male power.`\
+https://nytimes.com/2025/08/11/opinion/lauren-southern-tradwife-maga.html
+
 **Nevada Supreme Court blocks arbitration in Jon Gruden's case vs. NFL**\
 `The ruling allows the former coach's lawsuit to proceed publicly in court.`\
 https://nytimes.com/athletic/6547625/2025/08/11/jon-gruden-nfl-nevada-supreme-court/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6547649/2025/08/11/49ers-injuries-wide-receiver-jor
 **Steelers' Cameron Heyward hasn't ruled out skipping games amid contract dispute**\
 `The four-time All-Pro defensive lineman is seeking a revised contract.`\
 https://nytimes.com/athletic/6547655/2025/08/11/steelers-cameron-heyward-hold-in-regular-season-games/
-
-**Cincinnati Open tennis suspended after local power outage**\
-`The outage paused two singles matches and brought down broadcast streams across the tournament.`\
-https://nytimes.com/athletic/6547645/2025/08/11/cincinnati-open-tennis-suspended-after-local-power-outage/
 
