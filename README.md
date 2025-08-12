@@ -1,3 +1,11 @@
+**ICE Must Improve Conditions in N.Y.C. Migrant Holding Cells, Judge Rules**\
+`The immigration agency must hold fewer detainees and provide them with medical care and regular access to lawyers, Judge Lewis A. Kaplan said.`\
+https://nytimes.com/2025/08/12/nyregion/immigrant-detention-conditions-court-order.html
+
+**Mets move Frankie Montas to the bullpen, likely to call up prospect for Saturday start**\
+`Losers of seven straight, the struggling Mets are hopeful either Nolan McLean or Brandon Sproat can provide a rotation boost.`\
+https://nytimes.com/athletic/6549660/2025/08/12/frankie-montas-mets-bullpen-rotation/
+
 **Remains of British Researcher Lost in 1959 Are Discovered Off Antarctica**\
 `Dennis “Tink” Bell was 25 years old when he fell into a crevasse on King George Island. Over the decades, a glacier receded, and a scientific team from Poland found his remains this year.`\
 https://nytimes.com/2025/08/12/world/british-researcher-frozen-remains-antarctica.html
@@ -26,15 +34,7 @@ https://nytimes.com/2025/08/12/well/rsv-vaccines-adults-children.html
 `The meeting is a bad idea, but there’s an opportunity for Trump to punish Putin’s thievery.`\
 https://nytimes.com/2025/08/12/opinion/trump-putin-alaska-summit.html
 
-**The rollout of Trump’s D.C. crackdown included Fox News stars and charts.**\
+**Rollout of Trump’s D.C. Crackdown Included Fox News Stars and Charts**\
 `Jeanine Pirro had a starring role in promoting the president’s federal takeover on TV, and Will Cain’s charts made a cameo.`\
-https://nytimes.com/live/2025/08/12/us/trump-news/trump-dc-takeover-crime-fox-news
-
-**Former Adams Aide Pleads Guilty in Corruption Investigation**\
-`Mohamed Bahi pleaded guilty to conspiracy to commit wire fraud. He is one of several people in Mayor Eric Adams’s orbit who were swept up in investigations.`\
-https://nytimes.com/2025/08/12/nyregion/adams-bahi-corruption-plea.html
-
-**Dinner Is Served, at a 200-Foot-Long Table in the Oregon Woods**\
-`The winery Antica Terra has inaugurated its new al fresco dining space, where birdsong is the only music.`\
-https://nytimes.com/2025/08/12/t-magazine/antica-terra-oregon-meal-wine.html
+https://nytimes.com/2025/08/12/us/politics/trump-dc-takeover-crime-fox-news.html
 
