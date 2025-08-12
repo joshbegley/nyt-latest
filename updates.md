@@ -1,3 +1,7 @@
+**Trump’s pick for a new statistics chief has questioned the bureau’s methods.**\
+`By Tony Romm, Ben Casselman and Lydia DePillis`\
+https://nytimes.com/live/2025/08/12/business/cpi-inflation-tariffs-fed/trumps-pick-for-a-new-statistics-chief-has-questioned-the-bureaus-methods
+
 **Russia Makes a Swift Battlefield Advance, Seeking an Edge in Trump Talks**\
 `Russian forces have moved several miles into Ukrainian-held territory in the east, threatening to outflank Ukraine’s positions.`\
 https://nytimes.com/2025/08/12/world/europe/russia-ukraine-battlefield-pokrovsk-trump.html
