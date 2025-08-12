@@ -1,3 +1,7 @@
+**Josh Hader lands on IL with shoulder strain as Astros' injury issues continue**\
+`Hader is likely to be replaced by Bryan Abreu in save situations for now, but the rest of the Astros' bullpen alignment is up in the air.`\
+https://nytimes.com/athletic/6549618/2025/08/12/josh-hader-astros-shoulder-injury/
+
 **The U.S. May Be Coming Around to Balcony Solar**\
 `Small, plug-in solar power systems have become popular in Germany and several other countries. So why haven’t they taken off in the United States?`\
 https://nytimes.com/2025/08/12/climate/balcony-solar-united-states.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6549378/2025/08/12/justin-fields-jets-giants-joint-
 **Russia Is Suspected to Be Behind Breach of Federal Court Filing System**\
 `Federal officials are scrambling to assess the damage and address flaws in a sprawling, heavily used computer system long known to have vulnerabilities.`\
 https://nytimes.com/2025/08/12/us/politics/russia-hack-federal-court-system.html
-
-**Duplantis sets 13th pole vault world record of his career, third of 2025**\
-`Duplantis accounts for 32 of the 44 competitions where an athlete has cleared at least 6.10m, and is on a winning streak of 36 meets.`\
-https://nytimes.com/athletic/6549502/2025/08/12/mondo-duplantis-pole-vault-world-records/
 
