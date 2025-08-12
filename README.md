@@ -1,3 +1,15 @@
+**As Europe’s Heat Waves Intensify, France Bickers About Air-Conditioning**\
+`As heat waves batter Europe, the need (or not) for air-conditioning has become part of the political tug of war in France between the right and the left.`\
+https://nytimes.com/2025/08/12/world/europe/heat-waves-france-air-conditioning.html
+
+**The Palestinian Who Led a Militia, a Theater and a Jailbreak**\
+`Zakaria Zubeidi inspired Palestinians and horrified Israelis. Freed from jail during a recent truce, he questions what his many lives have achieved.`\
+https://nytimes.com/2025/08/12/world/middleeast/zakaria-zubeidi-palestine-interview.html
+
+**Why Surrendering a Key Eastern Region Would Be Hard for Ukraine**\
+`As President Trump talks of land swaps, Ukrainians find it difficult to imagine giving up the Donbas, for military, humanitarian and political reasons.`\
+https://nytimes.com/2025/08/12/world/europe/russia-ukraine-donbas-land-swap.html
+
 **'Lunch pail' wide receivers with the best point-scoring floors**\
 `These low-cost pass-catchers can protect your fantasy football team from posting a goose egg. Go get 'em.`\
 https://nytimes.com/athletic/6546878/2025/08/12/fantasy-football-draft-wrs-scoring/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/08/12/opinion/liberalism-texarkana-economy-democracy.ht
 **For Trump, Cities Like Washington Are Real Estate in Need of Fixing Up**\
 `“It’s a natural instinct as a real estate person,” he said in announcing his federal takeover of the capital’s police, despite falling crime.`\
 https://nytimes.com/2025/08/12/us/politics/trump-dc-crime.html
-
-**New Inflation Data Likely to Show Deepening Impact of Trump’s Tariffs**\
-`The Consumer Price Index is expected to reflect an uptick in inflation as companies increase prices as a result of President Trump’s tariffs.`\
-https://nytimes.com/2025/08/12/business/cpi-inflation-trump-tariffs.html
-
-**Slimmer, but Still One Big Oyster**\
-`The largest oyster found in New York Harbor in about 100 years recalls an era when oysters were everywhere in New York.`\
-https://nytimes.com/2025/08/12/nyregion/oysters-nyc-big.html
-
-**Geometry Solves Gerrymandering**\
-`A new level of partisan one-upmanship should spur urgent demands for reform.`\
-https://nytimes.com/2025/08/12/opinion/math-solution-gerrymandering.html
 
