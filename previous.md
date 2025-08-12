@@ -1,3 +1,11 @@
+**Spike Lee and Denzel Washington, Together Again **\
+`Text by Alex Vadukul and Rebecca Smeyne`\
+https://nytimes.com/card/2025/08/12/style/highest-2-lowest-premiere
+
+**Italian athlete, 29, dies after collapsing during World Games orienteering race**\
+`Mattia Debertolis was competing in the orienteering event in Chengdu, China when he was found unconscious.`\
+https://nytimes.com/athletic/6549223/2025/08/12/mattia-debertolis-death-orienteering-world-games/
+
 **South Korea’s Ex-First Lady Is Arrested on Corruption Charges**\
 `Kim Keon Hee, accused of accepting Chanel bags and other items as bribes, is the only former first lady in the country to have been put behind bars. Her husband has also been jailed on insurrection charges.`\
 https://nytimes.com/2025/08/12/world/asia/south-korea-former-first-lady-arrest.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6548828/2025/08/12/premier-league-odds-liverpool-ar
 **Full Time: NWSL’s coaching PR problem**\
 `Welcome to Full Time, The Athletic's women's soccer newsletter.`\
 https://nytimes.com/athletic/6549045/2025/08/12/nwsl-north-carolina-courage-sean-nahas-full-time/
-
-**A Culinary Quest Through Alaska**\
-`An unforgettable journey of taste and exploration, in which every bite is a discovery and every vista a masterpiece.`\
-https://nytimes.com/paidpost/princess-cruises/a-culinary-quest-through-alaska.html
-
-**Lélé Takes a Lush Approach to Caribbean and African Fare**\
-`Nourish opens in the South Bronx, Elephant & Castle closes after more than 50 years and more restaurant news.`\
-https://nytimes.com/2025/08/12/dining/nyc-restaurant-news.html
 

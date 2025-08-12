@@ -1,3 +1,11 @@
+**Spike Lee and Denzel Washington, Together Again **\
+`Text by Alex Vadukul and Rebecca Smeyne`\
+https://nytimes.com/card/2025/08/12/style/highest-2-lowest-premiere
+
+**Italian athlete, 29, dies after collapsing during World Games orienteering race**\
+`Mattia Debertolis was competing in the orienteering event in Chengdu, China when he was found unconscious.`\
+https://nytimes.com/athletic/6549223/2025/08/12/mattia-debertolis-death-orienteering-world-games/
+
 **South Korea’s Ex-First Lady Is Arrested on Corruption Charges**\
 `Kim Keon Hee, accused of accepting Chanel bags and other items as bribes, is the only former first lady in the country to have been put behind bars. Her husband has also been jailed on insurrection charges.`\
 https://nytimes.com/2025/08/12/world/asia/south-korea-former-first-lady-arrest.html
