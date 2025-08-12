@@ -1,3 +1,7 @@
+**South Korea’s Ex-First Lady Is Arrested on Corruption Charges**\
+`Kim Keon Hee, accused of accepting Chanel bags and other items as bribes, is the only former first lady in the country to have been put behind bars. Her husband has also been jailed on insurrection charges.`\
+https://nytimes.com/2025/08/12/world/asia/south-korea-former-first-lady-arrest.html
+
 **Sherrod Brown Plans to Try for a Senate Comeback in Ohio**\
 `The former three-term senator is said to be running to get his old job back, delivering a recruitment coup for Democrats facing an uphill battle to win a Senate majority next year.`\
 https://nytimes.com/2025/08/12/us/politics/sherrod-brown-plans-to-try-for-a-senate-comeback-in-ohio.html
@@ -33,8 +37,4 @@ https://nytimes.com/paidpost/princess-cruises/a-culinary-quest-through-alaska.ht
 **Lélé Takes a Lush Approach to Caribbean and African Fare**\
 `Nourish opens in the South Bronx, Elephant & Castle closes after more than 50 years and more restaurant news.`\
 https://nytimes.com/2025/08/12/dining/nyc-restaurant-news.html
-
-**Independent English football regulator fast-tracked for November start by UK government**\
-`The move will increase pressure on under-fire owners such as Sheffield Wednesday’s Dejphon Chansiri to sell the club before November 1.`\
-https://nytimes.com/athletic/6549139/2025/08/12/independent-football-regulator-start-when/
 
