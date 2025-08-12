@@ -1,3 +1,11 @@
+**Rescuers Find Body of American Hiker Who Was Missing in Pyrenees**\
+`Cole Henderson, 27, was last heard from in early July. Rescue workers found his body on Aug. 8, the Spanish police said.`\
+https://nytimes.com/2025/08/12/world/europe/cole-henderson-missing-hiker-found-spain.html
+
+**'He's all about winning': Ceddanne Rafaela showcases defensive prowess for Red Sox**\
+`Boston remains squarely in contention for a postseason spot with at least one player out of his natural position on a near-nightly basis. `\
+https://nytimes.com/athletic/6548009/2025/08/12/boston-red-sox-ceddanne-rafaela-defensive-versatility/
+
 **The D.C. Takeover**\
 `We look at crime in the nation’s capital and President Trump’s legal authority to intervene.`\
 https://nytimes.com/2025/08/12/briefing/donald-trump-dc-national-guard.html
