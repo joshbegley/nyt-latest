@@ -1,41 +1,40 @@
-**Chelsea 2025-26 season preview: Live Q&A with Liam Twomey**\
-`Post your questions and our Chelsea writer will endeavour to answer as many as possible`\
-https://nytimes.com/athletic/6546618/2025/08/12/chelsea-2025-26-season-preview-live-qa-with-liam-twomey/
+**The New York Times International Edition in Print for Wednesday, Aug. 13, 2025**\
+``\
+https://nytimes.com/issue/todaysinyt/2025/08/12/todays-new-york-times-international-edition
 
-**Ravens' David Ojabo focused on playing fast, having fun after first healthy offseason**\
-`The 2022 second-round pick enters his fourth NFL season amid the perception that he’s firmly on the 53-man roster bubble.`\
-https://nytimes.com/athletic/6547756/2025/08/12/david-ojabo-ravens-training-camp/
+**As Europe’s Heat Waves Intensify, France Bickers About Air-Conditioning**\
+`As heat waves batter Europe, the need (or not) for air-conditioning has become part of the political tug of war in France between the right and the left.`\
+https://nytimes.com/2025/08/12/world/europe/heat-waves-france-air-conditioning.html
 
-**Ex-Wigan player Ronnie Stam sentenced to seven years for drug-smuggling**\
-`Stam, 41, was charged with plotting to smuggle more than two tons of cocaine into the Netherlands with a street value of €41.5m.
-`\
-https://nytimes.com/athletic/6548284/2025/08/12/ronnie-stam-prison-drugs/
+**The Palestinian Who Led a Militia, a Theater and a Jailbreak**\
+`Zakaria Zubeidi inspired Palestinians and horrified Israelis. Freed from jail during a recent truce, he questions what his many lives have achieved.`\
+https://nytimes.com/2025/08/12/world/middleeast/zakaria-zubeidi-palestine-interview.html
 
-**A Glow-Up Gone Awry**\
-`A restoration of a beloved figure of the Virgin Mary causes an uproar. “The Macarena cannot be made up!”`\
-https://nytimes.com/2025/08/12/world/europe/spain-seville-macarena-restoration.html
+**Why Surrendering a Key Eastern Region Would Be Hard for Ukraine**\
+`As President Trump talks of land swaps, Ukrainians find it difficult to imagine giving up the Donbas, for military, humanitarian and political reasons.`\
+https://nytimes.com/2025/08/12/world/europe/russia-ukraine-donbas-land-swap.html
 
-**Israeli Hostage Families Call for Nationwide Work Stoppage**\
-`Relatives of captives held by Hamas excoriated the Israeli government for what they called “an endless war without purpose.” It was unclear how many would join them.`\
-https://nytimes.com/2025/08/12/world/middleeast/israel-general-strike.html
+**'Lunch pail' wide receivers with the best point-scoring floors**\
+`These low-cost pass-catchers can protect your fantasy football team from posting a goose egg. Go get 'em.`\
+https://nytimes.com/athletic/6546878/2025/08/12/fantasy-football-draft-wrs-scoring/
 
-**A Red Sox iPad suggested Robert Suarez was tipping pitches. The Padres were already on it**\
-`For close to a decade, Major League Baseball has permitted the in-game, in-dugout use of iPads containing pre-uploaded materials.`\
-https://nytimes.com/athletic/6548050/2025/08/12/san-diego-padres-robert-suarez-tipping/
+**What we know (and don't know) about the Patriots ahead of Minnesota trip**\
+`How much better will the Patriots' O-line be? Will Drake Maye take a huge leap forward? Will TreVeyon Henderson see enough snaps?`\
+https://nytimes.com/athletic/6547301/2025/08/12/patriots-training-camp-what-we-know/
 
-**Whose Bears stock is up and down in camp? Montez Sweat, Caleb Williams and more**\
-`Whose stock is up, and who needs to pick it up for the Bears with four weeks to go until Week 1? A training camp stock report.`\
-https://nytimes.com/athletic/6547717/2025/08/12/bears-stock-report-caleb-williams-montez-sweat/
+**Have your say about Villarreal-Barcelona being moved to the U.S.**\
+`A regular season European match in the U.S. is closer than ever. Should it happen?`\
+https://nytimes.com/athletic/6548153/2025/08/12/villarreal-barcelona-la-liga-us-survey/
 
-**What we learned about Patrick Mahomes, Chiefs from ESPN documentary**\
-`The Chiefs QB was an executive producer of the documentary, which depicts him at some low and vulnerable moments.`\
-https://nytimes.com/athletic/6546830/2025/08/12/patrick-mahomes-chiefs-documentary-espn/
+**Ask The Morning: What Are Your Questions About Psychedelics?**\
+`Chief executives and politicians are promoting the drugs for therapeutic use. Do you have questions about them?`\
+https://nytimes.com/2025/08/12/briefing/ask-the-morning-what-are-your-questions-about-psychedelics.html
 
-**Is Yankees' Ben Rice proving that he should catch more games than Austin Wells?**\
-`Since July 11, no hitter in the big leagues with at least 50 plate appearances has been worse than Wells, who has a 1 wRC+ in that span.`\
-https://nytimes.com/athletic/6547987/2025/08/12/ny-yankees-ben-rice-austin-wells-catcher-situation/
+**The D.N.C.’s New Leader Seeks to Curb Dark Money Influence in 2028 Primaries**\
+`The move is the first significant maneuver from Ken Martin to shape the party’s next presidential nominating process, but how much bite his proposal could have remains to be seen.`\
+https://nytimes.com/2025/08/12/us/politics/the-dncs-new-leader-seeks-to-curb-dark-money-influence-in-2028-primaries.html
 
-**Vikings 53-man roster projection 2.0: Why does it make sense to keep three QBs?**\
-`Who needs to stand out in joint practices with the Patriots this week? Who is in the driver's seat for a spot? Here's the latest update.`\
-https://nytimes.com/athletic/6547036/2025/08/12/vikings-53-man-roster-projection-sam-howell/
+**How Liberalism Went to Die on the Texas-Arkansas Border**\
+`Democrats delivered millions to the Texarkana region. It didn’t matter a dime.`\
+https://nytimes.com/2025/08/12/opinion/liberalism-texarkana-economy-democracy.html
 
