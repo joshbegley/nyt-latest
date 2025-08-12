@@ -1,3 +1,19 @@
+**South Korea’s Ex-First Lady Is Arrested on Corruption Charges**\
+`Kim Keon Hee, accused of accepting Chanel bags and other items as bribes, is the only former first lady in the country to have been put behind bars. Her husband has also been jailed on insurrection charges.`\
+https://nytimes.com/2025/08/12/world/asia/south-korea-former-first-lady-arrest.html
+
+**Sherrod Brown Plans to Try for a Senate Comeback in Ohio**\
+`The former three-term senator is said to be running to get his old job back, delivering a recruitment coup for Democrats facing an uphill battle to win a Senate majority next year.`\
+https://nytimes.com/2025/08/12/us/politics/sherrod-brown-plans-to-try-for-a-senate-comeback-in-ohio.html
+
+**As Trump Takes Over the Police in D.C.**\
+`Readers criticize the president’s order to send in federal troops. Also: The Trump-Putin summit in Alaska; fake science papers; defining masculinity.`\
+https://nytimes.com/2025/08/12/opinion/trump-police-dc.html
+
+**A.I. Start-Up Perplexity Offers to Buy Google’s Chrome Browser for $34.5 Billion**\
+`The tiny start-up hopes to take advantage of an upcoming antitrust ruling against the tech giant.`\
+https://nytimes.com/2025/08/12/technology/perplexity-google-chrome-bid.html
+
 **Capital Officials Take a Diplomatic Approach to the Federal Policing Takeover**\
 `Mayor Muriel Bowser said city leaders were focused on how to make the most of the additional federal support.`\
 https://nytimes.com/2025/08/12/us/politics/dc-mayor-police-takeover-national-guard.html

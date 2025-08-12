@@ -1,3 +1,19 @@
+**South Korea’s Ex-First Lady Is Arrested on Corruption Charges**\
+`Kim Keon Hee, accused of accepting Chanel bags and other items as bribes, is the only former first lady in the country to have been put behind bars. Her husband has also been jailed on insurrection charges.`\
+https://nytimes.com/2025/08/12/world/asia/south-korea-former-first-lady-arrest.html
+
+**Sherrod Brown Plans to Try for a Senate Comeback in Ohio**\
+`The former three-term senator is said to be running to get his old job back, delivering a recruitment coup for Democrats facing an uphill battle to win a Senate majority next year.`\
+https://nytimes.com/2025/08/12/us/politics/sherrod-brown-plans-to-try-for-a-senate-comeback-in-ohio.html
+
+**As Trump Takes Over the Police in D.C.**\
+`Readers criticize the president’s order to send in federal troops. Also: The Trump-Putin summit in Alaska; fake science papers; defining masculinity.`\
+https://nytimes.com/2025/08/12/opinion/trump-police-dc.html
+
+**A.I. Start-Up Perplexity Offers to Buy Google’s Chrome Browser for $34.5 Billion**\
+`The tiny start-up hopes to take advantage of an upcoming antitrust ruling against the tech giant.`\
+https://nytimes.com/2025/08/12/technology/perplexity-google-chrome-bid.html
+
 **Capital Officials Take a Diplomatic Approach to the Federal Policing Takeover**\
 `Mayor Muriel Bowser said city leaders were focused on how to make the most of the additional federal support.`\
 https://nytimes.com/2025/08/12/us/politics/dc-mayor-police-takeover-national-guard.html
@@ -21,20 +37,4 @@ https://nytimes.com/paidpost/princess-cruises/a-culinary-quest-through-alaska.ht
 **Lélé Takes a Lush Approach to Caribbean and African Fare**\
 `Nourish opens in the South Bronx, Elephant & Castle closes after more than 50 years and more restaurant news.`\
 https://nytimes.com/2025/08/12/dining/nyc-restaurant-news.html
-
-**Independent English football regulator fast-tracked for November start by UK government**\
-`The move will increase pressure on under-fire owners such as Sheffield Wednesday’s Dejphon Chansiri to sell the club before November 1.`\
-https://nytimes.com/athletic/6549139/2025/08/12/independent-football-regulator-start-when/
-
-**Two Chinese Ships Collide While Chasing Philippine Patrol Boat**\
-`A Chinese Navy vessel collided with a Chinese Coast Guard ship while chasing a Philippine patrol boat near Scarborough Shoal, a disputed area in the South China Sea.`\
-https://nytimes.com/video/world/asia/100000010336157/south-china-sea-philippines-crash.html
-
-**Suit Accuses N.Y.P.D. of Continued Aggression at Protests Over Gaza**\
-`The case, brought by civil rights lawyers, asks a judge to issue an order stopping the Police Department from “violently disrupting” pro-Palestinian demonstrations in New York City.`\
-https://nytimes.com/2025/08/12/nyregion/nypd-gaza-protest-suit.html
-
-**Appeals Court Allows DOGE Access to Sensitive Data at Several Agencies**\
-`The decision cited a Supreme Court order in June granting DOGE analysts sweeping access to other data stored at the Social Security Administration.`\
-https://nytimes.com/2025/08/12/us/politics/appeals-court-doge-data.html
 
