@@ -1,3 +1,5 @@
+
+
 **Trump says he will clear out Washington’s homeless population but offers few details.**\
 `By Anushka Patil`\
 https://nytimes.com/live/2025/08/11/us/trump-news/trump-says-he-will-clear-out-washingtons-homeless-population-but-offers-few-details
