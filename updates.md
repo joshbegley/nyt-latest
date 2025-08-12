@@ -1,3 +1,8 @@
+**Byron Buxton's leadership helps Twins bond after chaotic trade deadline**\
+`Though Buxton’s ability to lead on the field has been limited, he’s played a pivotal role behind the scenes since the July 31 deadline.
+`\
+https://nytimes.com/athletic/6547980/2025/08/12/twins-byron-buxton-trade-deadline-leader/
+
 **Israeli Hostage Families Call for General Strike Amid Plans for Gaza Offensive**\
 `Relatives of captives held by Hamas excoriated the Israeli government for what they called “an endless war without purpose.” It was unclear how many would join them.`\
 https://nytimes.com/2025/08/12/world/middleeast/israel-general-strike.html
