@@ -1,3 +1,7 @@
+**A City Girl Allergic to Wearing Black**\
+`A New York City transplant dresses “like a rainbow” with help from a color wheel kept in her closet.`\
+https://nytimes.com/2025/08/12/style/street-style-look-mixing-and-matching-colors.html
+
 **Thunder, Rockets open 2025-26 NBA season on NBC, Flagg to debut on ESPN**\
 `Here's what we know about the NBA’s opening night and Christmas Day slates, as well as marquee games on ABC and NBC.`\
 https://nytimes.com/athletic/6546568/2025/08/12/nba-schedule-release-2025-2026-season/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6546818/2025/08/12/bo-nix-broncos-quarterback-rushi
 **Palace say UEFA, CAS rulings 'show sporting merit rendered meaningless'**\
 `Palace's statement comes following confirmation that their appeal to play in the Europa League next season was rejected on Monday.`\
 https://nytimes.com/athletic/6548437/2025/08/12/crystal-palace-uefa-conference-league/
-
-**Car companies are paying the tariffs. For now.**\
-`By Jack Ewing`\
-https://nytimes.com/live/2025/08/12/business/cpi-inflation-tariffs-fed/car-companies-are-paying-the-tariffs-for-now
 
