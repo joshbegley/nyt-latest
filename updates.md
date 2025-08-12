@@ -1,3 +1,8 @@
+**Ex-Wigan player Ronnie Stam sentenced to seven years for drug-smuggling**\
+`Stam, 41, was charged with plotting to smuggle more than two tons of cocaine into the Netherlands with a street value of €41.5m.
+`\
+https://nytimes.com/athletic/6548284/2025/08/12/ronnie-stam-prison-drugs/
+
 **The Pulse: The unsettling rise of athlete stalkers**\
 `The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
 https://nytimes.com/athletic/6548086/2025/08/12/the-unsettling-rise-of-athlete-stalkers-plus-an-nfl-qb-debate/
