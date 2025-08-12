@@ -1,3 +1,7 @@
+**Court Ruling Casts Doubt on New York’s Cannabis Licensing Process**\
+`A federal appeals court said that it appeared to be unconstitutional for New York to prioritize some of its own residents for licenses to open cannabis businesses.`\
+https://nytimes.com/2025/08/12/nyregion/new-york-cannabis-licensing-unconstitutional.html
+
 **ICE Must Improve Conditions in N.Y.C. Migrant Holding Cells, Judge Rules**\
 `The immigration agency must hold fewer detainees and provide them with medical care and regular access to lawyers, Judge Lewis A. Kaplan said.`\
 https://nytimes.com/2025/08/12/nyregion/immigrant-detention-conditions-court-order.html
