@@ -1,3 +1,7 @@
+**Russia Makes a Swift Battlefield Advance, Seeking an Edge in Trump Talks**\
+`Russian forces have moved several miles into Ukrainian-held territory in the east, threatening to outflank Ukraine’s positions.`\
+https://nytimes.com/2025/08/12/world/europe/russia-ukraine-battlefield-pokrovsk-trump.html
+
 **TAFC: Our Premier League predictions, Isak's hardline stance, FPL tips for new season**\
 `Today in TAFC: Who our writers think will win the Premier League, Isak's hardline stance, our FPL challenge...`\
 https://nytimes.com/athletic/6548194/2025/08/12/our-premier-league-predictions-isaks-hardline-stance-fpl-tips-for-new-season/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6547595/2025/08/12/tommy-fleetwood-pga-tour-winless
 **Kyle Schwarber looked at home at GABP, but could he return home to play for Cincinnati?**\
 `"I've always said that … if you would ask the childhood Kyle what team you'd like to play for, it would be Cincinnati," Schwarber said.`\
 https://nytimes.com/athletic/6548003/2025/08/12/reds-phillies-kyle-schwarber-return-home/
-
-**New book on NFL QBs examines Caleb Williams, Bears and the keys to greatness**\
-`Author Seth Wickersham spent three years studying what makes a QB succeed. The result is a fascinating study in both scheme and psychology.`\
-https://nytimes.com/athletic/6547830/2025/08/12/nfl-caleb-williams-seth-wickersham-bears-qb-book/
 
