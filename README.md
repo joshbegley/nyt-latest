@@ -1,9 +1,17 @@
-**Ex-Wigan defender Ronnie Stam sentenced to seven years for drug-smuggling**\
+**Chelsea 2025-26 season preview: Live Q&A with Liam Twomey**\
+`Post your questions and our Chelsea writer will endeavour to answer as many as possible`\
+https://nytimes.com/athletic/6546618/2025/08/12/chelsea-2025-26-season-preview-live-qa-with-liam-twomey/
+
+**Ravens' David Ojabo focused on playing fast, having fun after first healthy offseason**\
+`The 2022 second-round pick enters his fourth NFL season amid the perception that he’s firmly on the 53-man roster bubble.`\
+https://nytimes.com/athletic/6547756/2025/08/12/david-ojabo-ravens-training-camp/
+
+**Ex-Wigan player Ronnie Stam sentenced to seven years for drug-smuggling**\
 `Stam, 41, was charged with plotting to smuggle more than two tons of cocaine into the Netherlands with a street value of €41.5m.
 `\
 https://nytimes.com/athletic/6548284/2025/08/12/ronnie-stam-prison-drugs/
 
-**A Glow Up Gone Awry**\
+**A Glow-Up Gone Awry**\
 `A restoration of a beloved figure of the Virgin Mary causes an uproar. “The Macarena cannot be made up!”`\
 https://nytimes.com/2025/08/12/world/europe/spain-seville-macarena-restoration.html
 
@@ -30,13 +38,4 @@ https://nytimes.com/athletic/6547987/2025/08/12/ny-yankees-ben-rice-austin-wells
 **Vikings 53-man roster projection 2.0: Why does it make sense to keep three QBs?**\
 `Who needs to stand out in joint practices with the Patriots this week? Who is in the driver's seat for a spot? Here's the latest update.`\
 https://nytimes.com/athletic/6547036/2025/08/12/vikings-53-man-roster-projection-sam-howell/
-
-**Byron Buxton's leadership helps Twins bond after chaotic trade deadline**\
-`Though Buxton’s ability to lead on the field has been limited, he’s played a pivotal role behind the scenes since the July 31 deadline.
-`\
-https://nytimes.com/athletic/6547980/2025/08/12/twins-byron-buxton-trade-deadline-leader/
-
-**Paramount, ESPN deals with UFC, WWE bring out steel chairs in sports streaming cage match**\
-`When you talk about the biggest players for rights in sports, you better put Paramount/CBS on the list.`\
-https://nytimes.com/athletic/6547429/2025/08/12/paramount-espn-wwe-ufc-david-ellison-mark-shapiro/
 

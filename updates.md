@@ -1,3 +1,17 @@
+**Ex-Wigan defender Ronnie Stam sentenced to seven years for drug-smuggling**\
+`Stam, 41, was charged with plotting to smuggle more than two tons of cocaine into the Netherlands with a street value of €41.5m.
+`\
+https://nytimes.com/athletic/6548284/2025/08/12/ronnie-stam-prison-drugs/
+
+**Israeli Hostage Families Call for Nationwide Work Stoppage**\
+`Relatives of captives held by Hamas excoriated the Israeli government for what they called “an endless war without purpose.” It was unclear how many would join them.`\
+https://nytimes.com/2025/08/12/world/middleeast/israel-general-strike.html
+
+**Byron Buxton's leadership helps Twins bond after chaotic trade deadline**\
+`Though Buxton’s ability to lead on the field has been limited, he’s played a pivotal role behind the scenes since the July 31 deadline.
+`\
+https://nytimes.com/athletic/6547980/2025/08/12/twins-byron-buxton-trade-deadline-leader/
+
 **Byron Buxton's leadership helps Twins bond after chaotic trade deadline**\
 `Though Buxton’s ability to lead on the field has been limited, he’s played a pivotal role behind the scenes since the July 31 deadline.
 `\
