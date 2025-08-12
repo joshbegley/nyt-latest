@@ -1,3 +1,11 @@
+**Word of the Day: inedible**\
+`This word has appeared in 22 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2025/08/12/learning/word-of-the-day-inedible.html
+
+**The Reasons Israelis Have Closed Their Eyes to Gaza**\
+`Multiple factors have caused the starvation ravaging Gaza. But Israel must accept that its actions are the main cause.`\
+https://nytimes.com/2025/08/12/opinion/israel-gaza-starvation-aid.html
+
 **Dodgers' middling play has dropped their division lead to just 1 game**\
 `"This was a bad loss for us," Max Muncy said. "There's not really a way of getting around that."`\
 https://nytimes.com/athletic/6548107/2025/08/12/dodgers-lose-angels-one-game-division-lead/
