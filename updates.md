@@ -1,3 +1,7 @@
+**Wildfires Rage in Spain as Temperatures Soar**\
+`Nearly 1,000 soldiers have been deployed to battle wildfires. Spain’s meteorological agency has issued red-level “extreme risk” alerts for five regions amid rising temperatures.`\
+https://nytimes.com/video/world/middleeast/100000010335720/spain-wildfire-heatwave-evacuation-madrid-.html
+
 **Out of San Francisco, Deebo Samuel has a plan to recapture what made him great**\
 `After a season marred by pneumonia and a string of injuries, the veteran wide receiver took his training to another level.`\
 https://nytimes.com/athletic/6548081/2025/08/12/deebo-samuel-commanders-football-weight-illness/
