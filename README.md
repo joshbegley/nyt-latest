@@ -1,3 +1,11 @@
+**Judge Tells Trump Officials to Release Funds for Democracy Group**\
+`The Trump administration had been withholding $239 million in congressionally appropriated funding from the National Endowment for Democracy when the group sued in March.`\
+https://nytimes.com/2025/08/11/us/politics/trump-national-endowment-democracy.html
+
+**West Point and Air Force Academy Affirmative Action Lawsuits Are Dropped**\
+`A group that represents students sued the military academies over their consideration of race in admissions but dropped its case after the Trump administration rejected diversity initiatives.`\
+https://nytimes.com/2025/08/11/us/west-point-air-force-academy-affirmative-action-lawsuits.html
+
 **Alabama names Ty Simpson starting quarterback: Reports**\
 `Jalen Milroe's backup the last two seasons beats out Austin Mack, Keelon Russell for starting role.`\
 https://nytimes.com/athletic/6547864/2025/08/11/alabama-ty-simpson-starting-quarterback/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/08/11/us/politics/trump-putin-alaska-meeting.html
 **Over 60,000 Are in Immigration Detention, a Modern High, Records Show**\
 `The numbers reflect the significant effort the Trump administration has put into its escalating immigration crackdown.`\
 https://nytimes.com/2025/08/11/us/politics/immigration-detention-numbers.html
-
-**Seeking Friendlier Data, Trump Names New Commissioner for Statistics Bureau**\
-`The president fired the Bureau of Labor Statistics chief after a downbeat jobs report. The move has jeopardized the credibility of economic data.`\
-https://nytimes.com/2025/08/11/business/economy/trump-bls-commissioner.html
-
-**Why Erin’s path won’t become clear for several days.**\
-`By Judson Jones`\
-https://nytimes.com/live/2025/08/11/weather/tropical-storm-erin-hurricane/erin-path
 
