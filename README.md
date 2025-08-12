@@ -1,3 +1,11 @@
+**Capital Officials Take a Diplomatic Approach to the Federal Policing Takeover**\
+`Mayor Muriel Bowser said city leaders were focused on how to make the most of the additional federal support.`\
+https://nytimes.com/2025/08/12/us/politics/dc-mayor-police-takeover-national-guard.html
+
+**Wyc Grousbeck will not be Celtics governor after team's sale is completed: Source**\
+`Grousbeck has been the lead governor since 2002, when a group led by his father bought control of the team.`\
+https://nytimes.com/athletic/6549109/2025/08/12/wyc-grousbeck-will-not-be-celtics-governor-after-teams-sale-is-completed-source/
+
 **2025-26 Premier League winner odds: How the main contenders stack up**\
 `Liverpool snapped Manchester City's Premier League title run last season. Can the Reds start their own run or will we see a new winner?`\
 https://nytimes.com/athletic/6548828/2025/08/12/premier-league-odds-liverpool-arsenal-man-city/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/08/12/nyregion/nypd-gaza-protest-suit.html
 **Appeals Court Allows DOGE Access to Sensitive Data at Several Agencies**\
 `The decision cited a Supreme Court order in June granting DOGE analysts sweeping access to other data stored at the Social Security Administration.`\
 https://nytimes.com/2025/08/12/us/politics/appeals-court-doge-data.html
-
-**Scoop City: A simple fantasy football strategy that works**\
-`Alvin Kamara, Chris Godwin and Mike Evans look like top buys via a simple formula to find fantasy value`\
-https://nytimes.com/athletic/6549061/2025/08/12/fantasy-football-strategy-2025-adp-discounts-nfl-scoop-city/
-
-**Madrid ask FIFA to block Villarreal vs. Barcelona from being held in Miami**\
-`On Monday, the RFEF approved La Liga’s request for the match to be played at Miami's Hard Rock Stadium in December.`\
-https://nytimes.com/athletic/6548962/2025/08/12/real-madrid-statement-barcelona-villarreal-miami/
 
