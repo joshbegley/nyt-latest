@@ -1,3 +1,7 @@
+**Oklahoma's Mateer calls Venmo descriptions 'inside jokes,' denies betting on sports**\
+`Screenshots and a video of transactions for a Venmo account in Mateer's name began spreading on social media on Monday night.`\
+https://nytimes.com/athletic/6548749/2025/08/12/john-mateer-oklahoma-venmo-gambling/
+
 **USMNT prospect Paredes requires surgery on broken foot**\
 `The 22-year-old Wolfsburg winger had reported back fit for pre-season and featured in their initial summer friendly fixtures.`\
 https://nytimes.com/athletic/6549434/2025/08/12/usmnt-kevin-paredes-injury-update/
