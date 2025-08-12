@@ -1,3 +1,15 @@
+**ICE Must Improve Conditions in N.Y.C. Migrant Holding Cells, Judge Rules**\
+`The immigration agency must hold fewer detainees and provide them with medical care and regular access to lawyers, Judge Lewis A. Kaplan said.`\
+https://nytimes.com/2025/08/12/nyregion/immigrant-detention-conditions-court-order.html
+
+**Mets move Frankie Montas to the bullpen, likely to call up prospect for Saturday start**\
+`Losers of seven straight, the struggling Mets are hopeful either Nolan McLean or Brandon Sproat can provide a rotation boost.`\
+https://nytimes.com/athletic/6549660/2025/08/12/frankie-montas-mets-bullpen-rotation/
+
+**Rollout of Trump’s D.C. Crackdown Included Fox News Stars and Charts**\
+`Jeanine Pirro had a starring role in promoting the president’s federal takeover on TV, and Will Cain’s charts made a cameo.`\
+https://nytimes.com/2025/08/12/us/politics/trump-dc-takeover-crime-fox-news.html
+
 **Remains of British Researcher Lost in 1959 Are Discovered Off Antarctica**\
 `Dennis “Tink” Bell was 25 years old when he fell into a crevasse on King George Island. Over the decades, a glacier receded, and a scientific team from Poland found his remains this year.`\
 https://nytimes.com/2025/08/12/world/british-researcher-frozen-remains-antarctica.html
