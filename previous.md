@@ -1,3 +1,11 @@
+**Giants QB Jaxson Dart dials up aggression; Abdul Carter dominates in practice with Jets**\
+`Everything you need to know from the Giants' first day of joint practice with the Jets. `\
+https://nytimes.com/athletic/6549688/2025/08/12/ny-giants-jets-joint-practice-jaxson-dart/
+
+**Russia Is Suspected in the Hack of a Federal Court Filing System**\
+`Also, new data indicated that tariffs are reaching U.S. consumers. Here’s the latest at the end of Tuesday.`\
+https://nytimes.com/2025/08/12/briefing/russia-hack-inflation-report-france-heat.html
+
 **A closer look at the young players the Giants acquired in the Tyler Rogers trade**\
 `The Giants got high marks for their return for Rogers. Fans should get a long look at the three prospects in the final weeks of the season.`\
 https://nytimes.com/athletic/6549292/2025/08/12/sf-giants-tyler-rogers-return-drew-gilbert-blade-tidwell-jose-butto/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/08/12/briefing/russia-ukraine-battlefield-china-philipp
 **Eagles training camp takeaways: What WR depth means, Drew Mukuba's learning curve and more**\
 `Questions remain about how many receivers the Eagles will have on the roster this season.`\
 https://nytimes.com/athletic/6549087/2025/08/12/eagles-training-camp-wr-depth-drew-mukuba/
-
-**Malick Thiaw, a player Newcastle really wanted and who really wanted them**\
-`The signing of the Germany defender ends Eddie Howe's long pursuit of a centre-back and is a major boost in a difficult summer`\
-https://nytimes.com/athletic/6546421/2025/08/12/malick-thiaw-newcastle-milan-howe/
-
-**R.S.V. Season Is Approaching. Here’s How to Protect Yourself.**\
-`Doctors recommend that eligible people get vaccinated in late summer or early fall so antibodies can kick in before cases spread.`\
-https://nytimes.com/2025/08/12/well/rsv-vaccines-adults-children.html
 
