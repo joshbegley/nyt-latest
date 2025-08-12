@@ -1,3 +1,7 @@
+**For Putin, Who Has Swayed Trump Before, Meeting Is Chance to Reset Ties**\
+`The U.S. president is pushing to end the war in Ukraine, but analysts say the Russian leader could turn a hastily planned meeting to his advantage.`\
+https://nytimes.com/2025/08/12/us/politics/trump-putin-meeting-russia-ukraine.html
+
 **Liverpool hold talks with Palace over Guehi move**\
 `An offer is yet to be made for the England international while an agreement would also need to be reached on the player side.`\
 https://nytimes.com/athletic/6301713/2025/08/12/liverpool-transfer-news-marc-guehi/
