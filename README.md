@@ -1,3 +1,11 @@
+**I.D.F. Pilots Protest War in Gaza Outside Israeli Military Headquarters**\
+`A group of Israeli Air Force reserve and retired pilots protested outside of the military’s headquarters in Tel Aviv on Tuesday, calling for a cease-fire.`\
+https://nytimes.com/video/world/middleeast/100000010337207/israel-air-force-war-protest.html
+
+**The Little League bat flip is now a collectible pin, bat heading to auction**\
+`The moment that captured the attention of the baseball world last month will soon be featured on an exclusive piece of memorabilia.`\
+https://nytimes.com/athletic/6548133/2025/08/12/baseball-little-league-bat-flip-world-series/
+
 **The New Sound of Young Love**\
 `Our critic’s new Song of the Week is from an up-and-coming British soul singer with a fresh take on swooning.`\
 https://nytimes.com/video/podcasts/100000010337202/the-new-sound-of-young-love.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6549292/2025/08/12/sf-giants-tyler-rogers-return-dr
 **Court Ruling Casts Doubt on New York’s Cannabis Licensing Process**\
 `A federal appeals court said that it appeared to be unconstitutional for New York to prioritize some of its own residents for licenses to open cannabis businesses.`\
 https://nytimes.com/2025/08/12/nyregion/new-york-cannabis-licensing-unconstitutional.html
-
-**ICE Must Improve Conditions in N.Y.C. Migrant Holding Cells, Judge Rules**\
-`The immigration agency must hold fewer detainees and provide them with medical care and regular access to lawyers, Judge Lewis A. Kaplan said.`\
-https://nytimes.com/2025/08/12/nyregion/immigrant-detention-conditions-court-order.html
-
-**Mets move Frankie Montas to the bullpen, likely to call up prospect for Saturday start**\
-`Losers of seven straight, the struggling Mets are hopeful either Nolan McLean or Brandon Sproat can provide a rotation boost.`\
-https://nytimes.com/athletic/6549660/2025/08/12/frankie-montas-mets-bullpen-rotation/
 
