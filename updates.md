@@ -1,3 +1,8 @@
+**Ex-Wigan player Ronnie Stam sentenced to seven years for drug-smuggling**\
+`Stam, 41, was charged with plotting to smuggle more than two tons of cocaine into the Netherlands with a street value of €41.5m.
+`\
+https://nytimes.com/athletic/6548284/2025/08/12/ronnie-stam-prison-drugs/
+
 **Chelsea 2025-26 season preview: Live Q&A with Liam Twomey**\
 `Post your questions and our Chelsea writer will endeavour to answer as many as possible`\
 https://nytimes.com/athletic/6546618/2025/08/12/chelsea-2025-26-season-preview-live-qa-with-liam-twomey/
