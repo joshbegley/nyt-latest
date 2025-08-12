@@ -1,3 +1,7 @@
+**The New York Times International Edition in Print for Wednesday, Aug. 13, 2025**\
+``\
+https://nytimes.com/issue/todaysinyt/2025/08/12/todays-new-york-times-international-edition
+
 **As Europe’s Heat Waves Intensify, France Bickers About Air-Conditioning**\
 `As heat waves batter Europe, the need (or not) for air-conditioning has become part of the political tug of war in France between the right and the left.`\
 https://nytimes.com/2025/08/12/world/europe/heat-waves-france-air-conditioning.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/12/us/politics/the-dncs-new-leader-seeks-to-curb-dar
 **How Liberalism Went to Die on the Texas-Arkansas Border**\
 `Democrats delivered millions to the Texarkana region. It didn’t matter a dime.`\
 https://nytimes.com/2025/08/12/opinion/liberalism-texarkana-economy-democracy.html
-
-**For Trump, Cities Like Washington Are Real Estate in Need of Fixing Up**\
-`“It’s a natural instinct as a real estate person,” he said in announcing his federal takeover of the capital’s police, despite falling crime.`\
-https://nytimes.com/2025/08/12/us/politics/trump-dc-crime.html
 
