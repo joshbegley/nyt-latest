@@ -14,8 +14,8 @@ https://nytimes.com/athletic/6549502/2025/08/12/mondo-duplantis-pole-vault-world
 `A generational Vietnamese restaurant goes upscale and Portuguese seafood in South End. Plus a bonus for book lovers.`\
 https://nytimes.com/2025/08/12/dining/where-to-eat-boston.html
 
-**3 Killed in Queens After Car Strikes Pedestrians Near Food Truck**\
-`A Toyota Corolla driven by an 84-year-old man hit two men standing by a food truck in the Ditmars-Steinway neighborhood this morning, killing the driver and both pedestrians, the police said.`\
+**3 Killed in Queens After Driver Hits Pedestrians Near Food Truck**\
+`A Toyota Corolla driven by an 84-year-old man hit two pedestrians in Queens, leaving all three of them dead, the police said.`\
 https://nytimes.com/2025/08/12/nyregion/queens-car-crash-food-truck-3-killed.html
 
 **The Best Burger Recipes and Tips**\
