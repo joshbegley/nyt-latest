@@ -1,3 +1,7 @@
+**The Fake Heiress, the Instagram Shoot and the Abandoned Bunnies**\
+`Three rabbits used in a photo shoot featuring Anna Delvey, whose real name is Anna Sorokin, were found abandoned in Prospect Park in Brooklyn.`\
+https://nytimes.com/2025/08/11/nyregion/anna-delvey-bunnies-abandoned-prospect-park.html
+
 **Hunter Greene's return to Reds rotation might push Chase Burns to the bullpen**\
 `Regardless of the role Burns is in, the Reds are hoping he is pitching for the team the rest of the season.`\
 https://nytimes.com/athletic/6547918/2025/08/11/hunter-greene-reds-rotation-chase-burns-bullpen/
