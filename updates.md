@@ -1,3 +1,7 @@
+**Vladimir Putin’s Coming to Alaska and Late Night Is Amused**\
+`“Trump loves talking about keeping criminal foreigners out of the country, and now he’s like, ‘Vladimir Putin, come on over,’” Jimmy Fallon said on Monday.`\
+https://nytimes.com/2025/08/12/arts/television/jimmy-fallon-trump-putin-alaska.html
+
 **Word of the Day: inedible**\
 `This word has appeared in 22 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2025/08/12/learning/word-of-the-day-inedible.html
