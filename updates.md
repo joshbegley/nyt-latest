@@ -1,3 +1,7 @@
+**Liverpool hold talks with Palace over Guehi move**\
+`An offer is yet to be made for the England international while an agreement would also need to be reached on the player side.`\
+https://nytimes.com/athletic/6301713/2025/08/12/liverpool-transfer-news-marc-guehi/
+
 **AD Mitchell practice diary: A minute-by-minute look at the WR dominating Colts camp**\
 `Colts legend and wide receivers coach Reggie Wayne on Mitchell:“The arrow’s pointing up. I think it’s hitting right on time."`\
 https://nytimes.com/athletic/6548697/2025/08/12/colts-ad-mitchell-training-camp/
