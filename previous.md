@@ -1,3 +1,7 @@
+**White House Will ‘Definitely’ Host a U.F.C. Fight on July 4, U.F.C. Head Says**\
+`The event would take place on the 250th anniversary of the signing of the Declaration of Independence.`\
+https://nytimes.com/2025/08/12/us/politics/ufc-white-house-dana-white.html
+
 **I.D.F. Pilots Protest War in Gaza Outside Israeli Military Headquarters**\
 `A group of Israeli Air Force reserve and retired pilots protested outside of the military’s headquarters in Tel Aviv on Tuesday, calling for a cease-fire.`\
 https://nytimes.com/video/world/middleeast/100000010337207/israel-air-force-war-protest.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/12/briefing/russia-hack-inflation-report-france-heat
 **A closer look at the young players the Giants acquired in the Tyler Rogers trade**\
 `The Giants got high marks for their return for Rogers. Fans should get a long look at the three prospects in the final weeks of the season.`\
 https://nytimes.com/athletic/6549292/2025/08/12/sf-giants-tyler-rogers-return-drew-gilbert-blade-tidwell-jose-butto/
-
-**Court Ruling Casts Doubt on New York’s Cannabis Licensing Process**\
-`A federal appeals court said that it appeared to be unconstitutional for New York to prioritize some of its own residents for licenses to open cannabis businesses.`\
-https://nytimes.com/2025/08/12/nyregion/new-york-cannabis-licensing-unconstitutional.html
 
