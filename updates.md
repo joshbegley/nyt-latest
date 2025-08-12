@@ -1,3 +1,5 @@
+
+
 **White House Announces Comprehensive Review of Smithsonian Exhibitions**\
 `The Trump administration said it would give museums 120 days to replace “divisive or ideologically driven language with unifying, historically accurate and constructive descriptions.”`\
 https://nytimes.com/2025/08/12/arts/design/smithsonian-exhibitions-review-white-house-trump.html
