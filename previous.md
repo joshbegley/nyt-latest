@@ -1,5 +1,5 @@
 **Hunter Greene's return to Reds rotation might push Chase Burns to the bullpen**\
-`Regardless of the role Burns is in, the Reds are hoping Burns is pitching for the team the rest of the season.`\
+`Regardless of the role Burns is in, the Reds are hoping he is pitching for the team the rest of the season.`\
 https://nytimes.com/athletic/6547918/2025/08/11/hunter-greene-reds-rotation-chase-burns-bullpen/
 
 **After the Buzzer**\
