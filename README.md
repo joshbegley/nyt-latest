@@ -1,3 +1,11 @@
+**Cuomo’s Attack on Mamdani’s Apartment Struck a New York Nerve**\
+`The attacks in the New York City mayor’s race may have veered into the personal, but they also reflected a larger debate on who should benefit from government regulation of housing costs.`\
+https://nytimes.com/2025/08/12/nyregion/cuomo-mamdani-rent-stabilized.html
+
+**What's next for Packers after injury bug infiltrates their wide receivers room?**\
+`Christian Watson, Jayden Reed and Dontayvion Wicks were all sidelined already before Romeo Doubs went down during Tuesday's practice.`\
+https://nytimes.com/athletic/6549789/2025/08/12/packers-wide-receiver-injuries-doubs-reed/
+
 **What Is Rent Stabilization, and Why Is It an Issue in the Mayor’s Race?**\
 `Former Gov. Andrew M. Cuomo’s push to keep “rich” people out of less-expensive apartments is aimed at his political rival in New York, Assemblyman Zohran Mamdani.`\
 https://nytimes.com/2025/08/12/nyregion/mamdani-cuomo-rent-stabilized-apartment.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6549660/2025/08/12/frankie-montas-mets-bullpen-rota
 **Remains of British Researcher Lost in 1959 Are Discovered Off Antarctica**\
 `Dennis “Tink” Bell was 25 years old when he fell into a crevasse on King George Island. Over the decades, a glacier receded, and a scientific team from Poland found his remains this year.`\
 https://nytimes.com/2025/08/12/world/british-researcher-frozen-remains-antarctica.html
-
-**U.S. sprinter Fred Kerley provisionally suspended on whereabouts failure charge**\
-`The Athletics Integrity Unit announced the charge Tuesday. Kerley plans to contest it.`\
-https://nytimes.com/athletic/6549632/2025/08/12/fred-kerley-suspension-whereabouts-failure/
-
-**Wednesday Briefing: Russian Forces Advance in Ukraine**\
-`Also, an interview with a former Palestinian militia leader.`\
-https://nytimes.com/2025/08/12/briefing/russia-ukraine-battlefield-china-philippines-crash-ramallah.html
 
