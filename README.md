@@ -1,3 +1,11 @@
+**Rescuers Find Body of American Hiker Who Was Missing in Pyrenees**\
+`Cole Henderson, 27, was last heard from in early July. Rescue workers found his body on Aug. 8, the Spanish police said.`\
+https://nytimes.com/2025/08/12/world/europe/cole-henderson-missing-hiker-found-spain.html
+
+**'He's all about winning': Ceddanne Rafaela showcases defensive prowess for Red Sox**\
+`Boston remains squarely in contention for a postseason spot with at least one player out of his natural position on a near-nightly basis. `\
+https://nytimes.com/athletic/6548009/2025/08/12/boston-red-sox-ceddanne-rafaela-defensive-versatility/
+
 **The D.C. Takeover**\
 `We look at crime in the nation’s capital and President Trump’s legal authority to intervene.`\
 https://nytimes.com/2025/08/12/briefing/donald-trump-dc-national-guard.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6547830/2025/08/12/nfl-caleb-williams-seth-wickersh
 **Liverpool's title defence: What Arne Slot can learn from previous first-time winners**\
 `Slot has the opportunity to join an exclusive list of back-to-back title-winners - but the Dutchman knows it’s a tricky undertaking`\
 https://nytimes.com/athletic/6546403/2025/08/12/liverpool-slot-title-mourinho-defence/
-
-**How every preseason AP Top 25 team's season might go wrong**\
-`The numbers of preseason Top 25 teams to finish unranked are trending up each year as college football becomes more unpredictable.`\
-https://nytimes.com/athletic/6545333/2025/08/12/college-football-preseason-top-25-weaknesses/
-
-**Ohtani was supposed to usher in a two-way player revolution. A rule change may be preventing it**\
-`In 2020, a change to MLB's roster rules defined who could be designated a two-way player, and made it harder for players to qualify as one.`\
-https://nytimes.com/athletic/6547491/2025/08/12/mlb-two-way-players-shohei-ohtani-rule-change/
 
