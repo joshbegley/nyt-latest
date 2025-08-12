@@ -1,3 +1,7 @@
+**The Fake Heiress, the Instagram Shoot and the Abandoned Bunnies**\
+`Three rabbits used in a photo shoot featuring Anna Delvey, whose real name is Anna Sorokin, were found abandoned in Prospect Park in Brooklyn.`\
+https://nytimes.com/2025/08/11/nyregion/anna-delvey-bunnies-abandoned-prospect-park.html
+
 **Hunter Greene's return to Reds rotation might push Chase Burns to the bullpen**\
 `Regardless of the role Burns is in, the Reds are hoping he is pitching for the team the rest of the season.`\
 https://nytimes.com/athletic/6547918/2025/08/11/hunter-greene-reds-rotation-chase-burns-bullpen/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/11/us/west-point-air-force-academy-affirmative-actio
 **Alabama names Ty Simpson starting quarterback: Reports**\
 `Jalen Milroe's backup the last two seasons beats out Austin Mack, Keelon Russell for starting role.`\
 https://nytimes.com/athletic/6547864/2025/08/11/alabama-ty-simpson-starting-quarterback/
-
-**Man Sentenced to Life for Killing Maryland Woman on Hiking Trail**\
-`Republicans have seized on the case of Victor Martinez-Hernandez, an immigrant from El Salvador, to justify harsher immigration policies.`\
-https://nytimes.com/2025/08/11/us/rachel-morin-victor-martinez-hernandez-sentenced.html
 
