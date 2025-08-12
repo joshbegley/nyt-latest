@@ -1,3 +1,7 @@
+**The U.S. May Be Coming Around to Balcony Solar**\
+`Small, plug-in solar power systems have become popular in Germany and several other countries. So why haven’t they taken off in the United States?`\
+https://nytimes.com/2025/08/12/climate/balcony-solar-united-states.html
+
 **Tottenham close to finalising Djed Spence contract extension**\
 `The 25-year-old was one of the breakout stars of last season under Ange Postecoglou and will now be rewarded for his progress.`\
 https://nytimes.com/athletic/6525112/2025/08/12/tottenham-djed-spence-contract-new/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/12/us/politics/russia-hack-federal-court-system.html
 **Duplantis sets 13th pole vault world record of his career, third of 2025**\
 `Duplantis accounts for 32 of the 44 competitions where an athlete has cleared at least 6.10m, and is on a winning streak of 36 meets.`\
 https://nytimes.com/athletic/6549502/2025/08/12/mondo-duplantis-pole-vault-world-records/
-
-**We Just Updated Our Boston Dining Guide**\
-`A generational Vietnamese restaurant goes upscale and Portuguese seafood in South End. Plus a bonus for book lovers.`\
-https://nytimes.com/2025/08/12/dining/where-to-eat-boston.html
 

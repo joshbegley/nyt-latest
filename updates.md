@@ -1,3 +1,7 @@
+**The U.S. May Be Coming Around to Balcony Solar**\
+`Small, plug-in solar power systems have become popular in Germany and several other countries. So why haven’t they taken off in the United States?`\
+https://nytimes.com/2025/08/12/climate/balcony-solar-united-states.html
+
 **Tottenham close to finalising Djed Spence contract extension**\
 `The 25-year-old was one of the breakout stars of last season under Ange Postecoglou and will now be rewarded for his progress.`\
 https://nytimes.com/athletic/6525112/2025/08/12/tottenham-djed-spence-contract-new/
