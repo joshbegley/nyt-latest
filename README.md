@@ -1,3 +1,7 @@
+**Oklahoma's Mateer calls Venmo descriptions 'inside jokes,' denies betting on sports**\
+`Screenshots and a video of transactions for a Venmo account in Mateer's name began spreading on social media on Monday night.`\
+https://nytimes.com/athletic/6548749/2025/08/12/john-mateer-oklahoma-venmo-gambling/
+
 **USMNT prospect Paredes requires surgery on broken foot**\
 `The 22-year-old Wolfsburg winger had reported back fit for pre-season and featured in their initial summer friendly fixtures.`\
 https://nytimes.com/athletic/6549434/2025/08/12/usmnt-kevin-paredes-injury-update/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6549005/2025/08/12/jack-grealish-everton-transfer/
 **Spike Lee and Denzel Washington, Together Again **\
 `Text by Alex Vadukul and Rebecca Smeyne`\
 https://nytimes.com/card/2025/08/12/style/highest-2-lowest-premiere
-
-**Italian athlete, 29, dies after collapsing during World Games orienteering race**\
-`Mattia Debertolis was competing in the orienteering event in Chengdu, China when he was found unconscious.`\
-https://nytimes.com/athletic/6549223/2025/08/12/mattia-debertolis-death-orienteering-world-games/
 
