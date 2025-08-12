@@ -1,3 +1,7 @@
+**Sky Sports announces PL ‘Multiview’, allowing viewers to watch four games at once**\
+`The Multiview format will move from ground to ground and have dedicated commentary and half-time analysis.`\
+https://nytimes.com/athletic/6548388/2025/08/12/premier-league-multview-sky-sports/
+
 **Trump’s pick for a new statistics chief has questioned the bureau’s methods.**\
 `By Tony Romm, Ben Casselman and Lydia DePillis`\
 https://nytimes.com/live/2025/08/12/business/cpi-inflation-tariffs-fed/trumps-pick-for-a-new-statistics-chief-has-questioned-the-bureaus-methods

@@ -1,3 +1,7 @@
+**Sky Sports announces PL ‘Multiview’, allowing viewers to watch four games at once**\
+`The Multiview format will move from ground to ground and have dedicated commentary and half-time analysis.`\
+https://nytimes.com/athletic/6548388/2025/08/12/premier-league-multview-sky-sports/
+
 **Trump’s pick for a new statistics chief has questioned the bureau’s methods.**\
 `By Tony Romm, Ben Casselman and Lydia DePillis`\
 https://nytimes.com/live/2025/08/12/business/cpi-inflation-tariffs-fed/trumps-pick-for-a-new-statistics-chief-has-questioned-the-bureaus-methods
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6547691/2025/08/12/cubs-pete-crow-armstrongs-rough-
 **Wildfires Kill 2 as Heat Wave Hits Southern Europe**\
 `Firefighters were battling blazes in France, Spain and Portugal. Forecasters warned that temperatures would soar above 104 degrees Fahrenheit in some places.`\
 https://nytimes.com/2025/08/12/world/europe/heat-wave-europe-france-spain-fires.html
-
-**The hurdle between Tommy Fleetwood and his first PGA Tour win**\
-`“It’s not a golf swing or golf mechanics issue. It’s just a mental thing.”`\
-https://nytimes.com/athletic/6547595/2025/08/12/tommy-fleetwood-pga-tour-winless/
 
