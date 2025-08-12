@@ -1,3 +1,7 @@
+**Trump’s Fed nominee has argued that tariffs haven’t raised prices.**\
+`By Tony Romm`\
+https://nytimes.com/live/2025/08/12/business/cpi-inflation-tariffs-fed/trumps-fed-nominee-has-argued-that-tariffs-havent-raised-prices
+
 **Gaming Out the Price of a Trump Trade Deal With China**\
 `President Trump again delayed higher tariffs on Chinese goods. But his recent moves on computer chips have stoked fears he’s willing to give too much to reach an accord.`\
 https://nytimes.com/2025/08/12/business/dealbook/trump-china-trade-deal-chips.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6510829/2025/08/12/penguins-fan-roadtrip-guide-nhl-
 **India’s Supreme Court Tells New Delhi to Round Up Stray Dogs**\
 `In cities across the country, the feral animals are both loved and feared. The judges are forging into intensely emotional territory by going after the ones in the capital.`\
 https://nytimes.com/2025/08/12/world/asia/india-court-delhi-stray-dogs.html
-
-**Sky Sports announces PL ‘Multiview’, allowing viewers to watch four games at once**\
-`The Multiview format will move from ground to ground and have dedicated commentary and half-time analysis.`\
-https://nytimes.com/athletic/6548388/2025/08/12/premier-league-multview-sky-sports/
 
