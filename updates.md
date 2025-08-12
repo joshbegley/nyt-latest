@@ -1,3 +1,7 @@
+**What Is Rent Stabilization, and Why Is It an Issue in the Mayor’s Race?**\
+`Former Gov. Andrew M. Cuomo’s push to keep “rich” people out of less-expensive apartments is aimed at his political rival in New York, Assemblyman Zohran Mamdani.`\
+https://nytimes.com/2025/08/12/nyregion/mamdani-cuomo-rent-stabilized-apartment.html
+
 **Giants QB Jaxson Dart dials up aggression; Abdul Carter dominates in practice with Jets**\
 `Everything you need to know from the Giants' first day of joint practice with the Jets. `\
 https://nytimes.com/athletic/6549688/2025/08/12/ny-giants-jets-joint-practice-jaxson-dart/
