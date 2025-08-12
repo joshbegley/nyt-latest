@@ -1,3 +1,7 @@
+**A Glow Up Gone Awry**\
+`A restoration of a beloved figure of the Virgin Mary causes an uproar. “The Macarena cannot be made up!”`\
+https://nytimes.com/2025/08/12/world/europe/spain-seville-macarena-restoration.html
+
 **Israeli Hostage Families Call for General Strike Amid Plans for Gaza Offensive**\
 `Relatives of captives held by Hamas excoriated the Israeli government for what they called “an endless war without purpose.” It was unclear how many would join them.`\
 https://nytimes.com/2025/08/12/world/middleeast/israel-general-strike.html
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/6547429/2025/08/12/paramount-espn-wwe-ufc-david-ell
 **The Lions think Giovanni Manu can be the future. Taylor Decker working to make sure of it**\
 `"I just want to show them that I'm the player that they wanted me to be," Giovanni Manu said.`\
 https://nytimes.com/athletic/6539625/2025/08/12/lions-giovanni-manu-taylor-decker-offensive-tackle/
-
-**Rookie QB review: What Cam Ward, Jaxson Dart, Tyler Shough and Shedeur Sanders showed**\
-`The good, the bad and the ugly from four high-profile signal callers in their preseason debuts.`\
-https://nytimes.com/athletic/6545841/2025/08/12/rookie-qbs-dart-ward-sanders-shough/
 

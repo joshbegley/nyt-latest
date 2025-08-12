@@ -1,3 +1,12 @@
+**A Glow Up Gone Awry**\
+`A restoration of a beloved figure of the Virgin Mary causes an uproar. “The Macarena cannot be made up!”`\
+https://nytimes.com/2025/08/12/world/europe/spain-seville-macarena-restoration.html
+
+**Byron Buxton's leadership helps Twins bond after chaotic trade deadline**\
+`Though Buxton’s ability to lead on the field has been limited, he’s played a pivotal role behind the scenes since the July 31 deadline.
+`\
+https://nytimes.com/athletic/6547980/2025/08/12/twins-byron-buxton-trade-deadline-leader/
+
 **Byron Buxton's leadership helps Twins bond after chaotic trade deadline**\
 `Though Buxton’s ability to lead on the field has been limited, he’s played a pivotal role behind the scenes since the July 31 deadline.
 `\
