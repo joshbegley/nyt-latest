@@ -1,3 +1,7 @@
+**The New Sound of Young Love**\
+`Our critic’s new Song of the Week is from an up-and-coming British soul singer with a fresh take on swooning.`\
+https://nytimes.com/video/podcasts/100000010337202/the-new-sound-of-young-love.html
+
 **Cuomo’s Attack on Mamdani’s Apartment Struck a New York Nerve**\
 `The attacks in the New York City mayor’s race may have veered into the personal, but they also reflected a larger debate on who should benefit from government regulation of housing costs.`\
 https://nytimes.com/2025/08/12/nyregion/cuomo-mamdani-rent-stabilized.html

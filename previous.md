@@ -1,3 +1,7 @@
+**The New Sound of Young Love**\
+`Our critic’s new Song of the Week is from an up-and-coming British soul singer with a fresh take on swooning.`\
+https://nytimes.com/video/podcasts/100000010337202/the-new-sound-of-young-love.html
+
 **Cuomo’s Attack on Mamdani’s Apartment Struck a New York Nerve**\
 `The attacks in the New York City mayor’s race may have veered into the personal, but they also reflected a larger debate on who should benefit from government regulation of housing costs.`\
 https://nytimes.com/2025/08/12/nyregion/cuomo-mamdani-rent-stabilized.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/12/nyregion/immigrant-detention-conditions-court-ord
 **Mets move Frankie Montas to the bullpen, likely to call up prospect for Saturday start**\
 `Losers of seven straight, the struggling Mets are hopeful either Nolan McLean or Brandon Sproat can provide a rotation boost.`\
 https://nytimes.com/athletic/6549660/2025/08/12/frankie-montas-mets-bullpen-rotation/
-
-**Remains of British Researcher Lost in 1959 Are Discovered Off Antarctica**\
-`Dennis “Tink” Bell was 25 years old when he fell into a crevasse on King George Island. Over the decades, a glacier receded, and a scientific team from Poland found his remains this year.`\
-https://nytimes.com/2025/08/12/world/british-researcher-frozen-remains-antarctica.html
 
