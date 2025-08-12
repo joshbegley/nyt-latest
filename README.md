@@ -1,3 +1,7 @@
+**New Video Shows Uvalde School Chief Trying to Negotiate With Gunman**\
+`The video, part of a trove of materials that authorities had refused to release, shows the minutes in which a commander tried to talk to a gunman barricaded in a room with dozens of children.`\
+https://nytimes.com/2025/08/12/us/uvalde-documents-video-arredondo.html
+
 **White House Will ‘Definitely’ Host a U.F.C. Fight on July 4, U.F.C. Head Says**\
 `The event would take place on the 250th anniversary of the signing of the Declaration of Independence.`\
 https://nytimes.com/2025/08/12/us/politics/ufc-white-house-dana-white.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6549688/2025/08/12/ny-giants-jets-joint-practice-ja
 **Russia Is Suspected in the Hack of a Federal Court Filing System**\
 `Also, new data indicated that tariffs are reaching U.S. consumers. Here’s the latest at the end of Tuesday.`\
 https://nytimes.com/2025/08/12/briefing/russia-hack-inflation-report-france-heat.html
-
-**A closer look at the young players the Giants acquired in the Tyler Rogers trade**\
-`The Giants got high marks for their return for Rogers. Fans should get a long look at the three prospects in the final weeks of the season.`\
-https://nytimes.com/athletic/6549292/2025/08/12/sf-giants-tyler-rogers-return-drew-gilbert-blade-tidwell-jose-butto/
 
