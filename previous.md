@@ -1,5 +1,21 @@
+**Tottenham season betting preview: A bounce-back in the league or more struggles?**\
+`Tottenham were all the way down in 17th in the Premier League table, but managed to qualify for the Champions League. Will Spurs improve?`\
+https://nytimes.com/athletic/6539101/2025/08/12/tottenham-season-betting-preview-odds/
+
+**They Cleaned the Subway During Covid. Now They Will Earn Back Pay.**\
+`A $3 million settlement will be divided among 452 underpaid workers employed at the height of the coronavirus pandemic, the city comptroller's office said.`\
+https://nytimes.com/2025/08/12/nyregion/subway-cleaners-coronavirus-mta-settlement.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/08/12/crosswords/spelling-bee-forum.html
+
+**Zohran Mamdani’s Inner Circle**\
+`A guide to the close advisers and loyal aides who could shape his mayoralty.`\
+https://nytimes.com/interactive/2025/08/12/nyregion/zohran-mamdani-aides-family-staff.html
+
 **The Transfer DealSheet: The latest on your club and their plans this summer window**\
-`Welcome to the 11th edition of The Athletic’s Transfer DealSheet for the summer 2025 transfer window.`\
+`This week, David Ornstein gives us his One To Watch, we have news on Liverpool's interest in a young defender and the latest on Donnarumma`\
 https://nytimes.com/athletic/6546338/2025/08/12/transfer-latest-manchester-united-arsenal-real-madrid-liverpool-carlos-baleba/
 
 **Vladimir Putin’s Coming to Alaska and Late Night Is Amused**\
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6548004/2025/08/12/brendan-donovan-pinch-hit-double
 **The Reasons Israelis Have Closed Their Eyes to Gaza**\
 `Multiple factors have caused the starvation ravaging Gaza. But Israel must accept that its actions are the main cause.`\
 https://nytimes.com/2025/08/12/opinion/israel-gaza-starvation-aid.html
-
-**The New York Times in Print for Tuesday, Aug. 12, 2025**\
-``\
-https://nytimes.com/issue/todayspaper/2025/08/12/todays-new-york-times
-
-**Astros closer Josh Hader undergoing tests for shoulder discomfort**\
-`Losing Hader for any length of time would cripple a club that at one time this season had 18 players on the injured list.`\
-https://nytimes.com/athletic/6548055/2025/08/12/houston-astros-josh-hader-shoulder-discomfort/
-
-**Tuesday Briefing: Trump’s Washington Crackdown**\
-`Also, Israel-Qatar tension.`\
-https://nytimes.com/2025/08/12/briefing/trump-washington-national-guard-israel-killed-al-jazeera-china-trade-truce.html
-
-**Tottenham Hotspur return to the biggest stage - but have they narrowed the gap on the elite?**\
-`Spurs will play in first the UEFA Super Cup, then the Champions League this season - fans are worried they have not strengthened enough`\
-https://nytimes.com/athletic/6540093/2025/08/12/tottenham-super-cup/
 

@@ -1,3 +1,23 @@
+**Tottenham season betting preview: A bounce-back in the league or more struggles?**\
+`Tottenham were all the way down in 17th in the Premier League table, but managed to qualify for the Champions League. Will Spurs improve?`\
+https://nytimes.com/athletic/6539101/2025/08/12/tottenham-season-betting-preview-odds/
+
+**They Cleaned the Subway During Covid. Now They Will Earn Back Pay.**\
+`A $3 million settlement will be divided among 452 underpaid workers employed at the height of the coronavirus pandemic, the city comptroller's office said.`\
+https://nytimes.com/2025/08/12/nyregion/subway-cleaners-coronavirus-mta-settlement.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/08/12/crosswords/spelling-bee-forum.html
+
+**Zohran Mamdani’s Inner Circle**\
+`A guide to the close advisers and loyal aides who could shape his mayoralty.`\
+https://nytimes.com/interactive/2025/08/12/nyregion/zohran-mamdani-aides-family-staff.html
+
+**The Transfer DealSheet: The latest on your club and their plans this summer window**\
+`This week, David Ornstein gives us his One To Watch, we have news on Liverpool's interest in a young defender and the latest on Donnarumma`\
+https://nytimes.com/athletic/6546338/2025/08/12/transfer-latest-manchester-united-arsenal-real-madrid-liverpool-carlos-baleba/
+
 **The Transfer DealSheet: The latest on your club and their plans this summer window**\
 `Welcome to the 11th edition of The Athletic’s Transfer DealSheet for the summer 2025 transfer window.`\
 https://nytimes.com/athletic/6546338/2025/08/12/transfer-latest-manchester-united-arsenal-real-madrid-liverpool-carlos-baleba/
