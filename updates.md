@@ -1,3 +1,11 @@
+**Astros closer Josh Hader undergoing tests for shoulder discomfort**\
+`Losing Hader for any length of time would cripple a club that at one time this season had 18 players on the injured list.`\
+https://nytimes.com/athletic/6548055/2025/08/12/houston-astros-josh-hader-shoulder-discomfort/
+
+**Tuesday Briefing: Trump’s Washington Crackdown**\
+`Also, Israel-Qatar tension.`\
+https://nytimes.com/2025/08/12/briefing/trump-washington-national-guard-israel-killed-al-jazeera-china-trade-truce.html
+
 **Tottenham Hotspur return to the biggest stage - but have they narrowed the gap on the elite?**\
 `Spurs will play in first the UEFA Super Cup, then the Champions League this season - fans are worried they have not strengthened enough`\
 https://nytimes.com/athletic/6540093/2025/08/12/tottenham-super-cup/
