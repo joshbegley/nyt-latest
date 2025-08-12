@@ -1,5 +1,5 @@
 **Astros closer Josh Hader undergoing tests for shoulder discomfort**\
-`Losing Hader for any length of time would cripple a club that, at one time this season, had 18 players on the injured list.`\
+`Losing Hader for any length of time would cripple a club that at one time this season had 18 players on the injured list.`\
 https://nytimes.com/athletic/6548055/2025/08/12/houston-astros-josh-hader-shoulder-discomfort/
 
 **Tuesday Briefing: Trump’s Washington Crackdown**\
