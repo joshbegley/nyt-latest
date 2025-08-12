@@ -1,3 +1,15 @@
+**gws-best-tv-shows-netflix**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/best-tv-shows-netflix
+
+**Downtown Detroit Is Back**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/downtown-detroit-is-back
+
+**gws-liam-neeson-naked-gun**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/liam-neeson-naked-gun
+
 **Judge T.S. Ellis III, 85, Dies; Stirred Outcry Over Manafort Sentence**\
 `He imposed a 47-month prison term on Mr. Trump’s former campaign chairman, who was convicted of fraud. Sentencing guidelines recommended up to 24 years.`\
 https://nytimes.com/2025/08/12/us/ts-ellis-iii-dead.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/08/12/technology/do-kwon-crypto-fraud-guilty-plea.html
 **8 Songs for the Dog Days of Summer**\
 `Let songs from Lorde, boygenius, Mitski and more help push through a sticky, sludgy August.`\
 https://nytimes.com/2025/08/12/arts/music/amplifier-newsletter-dog-days-summer-songs.html
-
-**Morata joins Como on loan from Milan after Galatasaray spell cut short**\
-`The Spain international joins Como on a season-long loan arrangement with an obligation to make the move permanent next summer.`\
-https://nytimes.com/athletic/6452795/2025/08/12/alvaro-morata-transfer-como-milan-galatasaray/
-
-**India Orders Removal of Stray Dogs**\
-`Tens of thousands of stray dogs walk the streets of New Delhi. But after a recent spike in dog bites and attacks, the nation’s top court wants them gone.`\
-https://nytimes.com/video/world/asia/100000010335599/india-dogs-supreme-court.html
-
-**Mexico and Brazil Rebut Trump’s Claims About Violence in Their Cities**\
-`President Trump compared crime in Washington to violence in Latin American capitals. Mexico City’s mayor said “many parts of the world would like to have” her city’s safety.`\
-https://nytimes.com/2025/08/12/world/americas/trump-crime-mexico-brazil.html
 

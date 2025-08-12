@@ -1,3 +1,15 @@
+**gws-best-tv-shows-netflix**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/best-tv-shows-netflix
+
+**Downtown Detroit Is Back**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/downtown-detroit-is-back
+
+**gws-liam-neeson-naked-gun**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/liam-neeson-naked-gun
+
 **Judge T.S. Ellis III, 85, Dies; Stirred Outcry Over Manafort Sentence**\
 `He imposed a 47-month prison term on Mr. Trump’s former campaign chairman, who was convicted of fraud. Sentencing guidelines recommended up to 24 years.`\
 https://nytimes.com/2025/08/12/us/ts-ellis-iii-dead.html
