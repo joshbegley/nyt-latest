@@ -1,5 +1,5 @@
 **Out of San Francisco, Deebo Samuel has a plan to recapture what made him great**\
-`After a season marred by pneumonia and a string of injuries, the veteran wide receiver needed to take his training to another level.`\
+`After a season marred by pneumonia and a string of injuries, the veteran wide receiver took his training to another level.`\
 https://nytimes.com/athletic/6548081/2025/08/12/deebo-samuel-commanders-football-weight-illness/
 
 **Roig: Villarreal fans 'will fly for free' if Barca game in Miami approved**\
