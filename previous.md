@@ -1,3 +1,7 @@
+**The Bounce: NBA schedule news to know**\
+`The Bounce Newsletter  | This is The Athletic’s daily NBA newsletter.`\
+https://nytimes.com/athletic/6548732/2025/08/12/nba-schedule-kevin-durant-thunder-the-bounce/
+
 **Spanish cyclist given one-year ban for sexual harassment of female rider**\
 `Edgar Carballo Gonzalez, 36, was found guilty of “sexual and non-consensual actions”.`\
 https://nytimes.com/athletic/6548545/2025/08/12/edgar-carballo-gonzalez-ban-harassment/
@@ -11,7 +15,7 @@ https://nytimes.com/2025/08/12/world/asia/south-china-sea-chinese-navy-philippin
 https://nytimes.com/athletic/6547171/2025/08/12/fantasy-football-2025-quarterback-roundtable/
 
 **Laura Rutledge elevated to ESPN's lead 'Monday Night Football' broadcast team**\
-`ESPN&#8217;s &#8220;Monday Night Football&#8221; will have a new look on its sidelines this season — longtime NFL host and reporter Laura Rutledge will join Lisa Salters as a permanent sideline reporter for all 20 Monday Night Football games that the top team of Joe Buck, Troy Aikman and Salters will call this season.`\
+`The move sets up the on-air talent roster for what will be ESPN's most important live broadcast ever: Super Bowl LXI in February 2027.`\
 https://nytimes.com/athletic/6548706/2025/08/12/laura-rutledge-espn-nfl-monday-night-football/
 
 **This Ritzy-Hotel Thriller Focuses Less on the Tourists Than on the Staff**\
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6547072/2025/08/12/kings-roster-questions-mailbag/
 **A Rom-Com Born in Britain and Set in New York Is Coming to Broadway**\
 `“Two Strangers (Carry a Cake Across New York)”, a musical charmer with a cast of two, will open at the Longacre in November.`\
 https://nytimes.com/2025/08/12/theater/two-strangers-broadway.html
-
-**Wildfires Rage in Spain as Temperatures Soar**\
-`Nearly 1,000 soldiers have been deployed to battle wildfires. Spain’s meteorological agency has issued red-level “extreme risk” alerts for five regions amid rising temperatures.`\
-https://nytimes.com/video/world/middleeast/100000010335720/spain-wildfire-heatwave-evacuation-madrid-.html
 

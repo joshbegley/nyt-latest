@@ -1,3 +1,11 @@
+**The Bounce: NBA schedule news to know**\
+`The Bounce Newsletter  | This is The Athletic’s daily NBA newsletter.`\
+https://nytimes.com/athletic/6548732/2025/08/12/nba-schedule-kevin-durant-thunder-the-bounce/
+
+**Laura Rutledge elevated to ESPN's lead 'Monday Night Football' broadcast team**\
+`The move sets up the on-air talent roster for what will be ESPN's most important live broadcast ever: Super Bowl LXI in February 2027.`\
+https://nytimes.com/athletic/6548706/2025/08/12/laura-rutledge-espn-nfl-monday-night-football/
+
 **Spanish cyclist given one-year ban for sexual harassment of female rider**\
 `Edgar Carballo Gonzalez, 36, was found guilty of “sexual and non-consensual actions”.`\
 https://nytimes.com/athletic/6548545/2025/08/12/edgar-carballo-gonzalez-ban-harassment/
