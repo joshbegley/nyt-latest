@@ -1,3 +1,7 @@
+**The Transfer DealSheet: The latest on your club and their plans this summer window**\
+`Welcome to the 11th edition of The Athletic’s Transfer DealSheet for the summer 2025 transfer window.`\
+https://nytimes.com/athletic/6546338/2025/08/12/transfer-latest-manchester-united-arsenal-real-madrid-liverpool-carlos-baleba/
+
 **Vladimir Putin’s Coming to Alaska and Late Night Is Amused**\
 `“Trump loves talking about keeping criminal foreigners out of the country, and now he’s like, ‘Vladimir Putin, come on over,’” Jimmy Fallon said on Monday.`\
 https://nytimes.com/2025/08/12/arts/television/jimmy-fallon-trump-putin-alaska.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/12/briefing/trump-washington-national-guard-israel-k
 **Tottenham Hotspur return to the biggest stage - but have they narrowed the gap on the elite?**\
 `Spurs will play in first the UEFA Super Cup, then the Champions League this season - fans are worried they have not strengthened enough`\
 https://nytimes.com/athletic/6540093/2025/08/12/tottenham-super-cup/
-
-**Picking Leeds United's 2025-26 breakout player: Harry Gray**\
-`Harry Gray is likely to be fourth-choice striker for Leeds United this season, but he's ready to take his chance when it comes...`\
-https://nytimes.com/athletic/6542720/2025/08/12/leeds-united-breakthrough-player-harry-gray/
 

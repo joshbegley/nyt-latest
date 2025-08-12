@@ -1,3 +1,7 @@
+**The Transfer DealSheet: The latest on your club and their plans this summer window**\
+`Welcome to the 11th edition of The Athletic’s Transfer DealSheet for the summer 2025 transfer window.`\
+https://nytimes.com/athletic/6546338/2025/08/12/transfer-latest-manchester-united-arsenal-real-madrid-liverpool-carlos-baleba/
+
 **Vladimir Putin’s Coming to Alaska and Late Night Is Amused**\
 `“Trump loves talking about keeping criminal foreigners out of the country, and now he’s like, ‘Vladimir Putin, come on over,’” Jimmy Fallon said on Monday.`\
 https://nytimes.com/2025/08/12/arts/television/jimmy-fallon-trump-putin-alaska.html
