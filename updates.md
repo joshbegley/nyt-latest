@@ -1,3 +1,11 @@
+**Scoop City: A simple fantasy football strategy that works**\
+`Alvin Kamara, Chris Godwin and Mike Evans look like to top buys via a simple formula to find fantasy value`\
+https://nytimes.com/athletic/6549061/2025/08/12/fantasy-football-strategy-2025-adp-discounts-nfl-scoop-city/
+
+**Madrid ask FIFA to block Villarreal vs. Barcelona from being held in Miami**\
+`On Monday, the RFEF approved La Liga’s request for the match to be played at Miami's Hard Rock Stadium in December.`\
+https://nytimes.com/athletic/6548962/2025/08/12/real-madrid-statement-barcelona-villarreal-miami/
+
 **Experience the True Spirit of Kauai with Capital One**\
 `At 1 Hotel Hanalei Bay, Capital One Venture X cardholders can expect a truly elevated wellness experience.`\
 https://nytimes.com/paidpost/capital-one/experience-the-true-spirit-of-kauai-with-capital-one.html
