@@ -1,3 +1,7 @@
+**New Video Shows Uvalde School Chief Trying to Negotiate With Gunman**\
+`The video, part of a trove of materials that authorities had refused to release, shows the minutes in which a commander tried to talk to a gunman barricaded in a room with dozens of children.`\
+https://nytimes.com/2025/08/12/us/uvalde-documents-video-arredondo.html
+
 **White House Will ‘Definitely’ Host a U.F.C. Fight on July 4, U.F.C. Head Says**\
 `The event would take place on the 250th anniversary of the signing of the Declaration of Independence.`\
 https://nytimes.com/2025/08/12/us/politics/ufc-white-house-dana-white.html
