@@ -1,3 +1,7 @@
+**Josh Hader lands on IL with shoulder strain as Astros' injury issues continue**\
+`Hader is likely to be replaced by Bryan Abreu in save situations for now, but the rest of the Astros' bullpen alignment is up in the air.`\
+https://nytimes.com/athletic/6549618/2025/08/12/josh-hader-astros-shoulder-injury/
+
 **The U.S. May Be Coming Around to Balcony Solar**\
 `Small, plug-in solar power systems have become popular in Germany and several other countries. So why haven’t they taken off in the United States?`\
 https://nytimes.com/2025/08/12/climate/balcony-solar-united-states.html
