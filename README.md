@@ -1,9 +1,25 @@
+**White House Announces Comprehensive Review of Smithsonian Exhibitions**\
+`The Trump administration said it would give museums 120 days to replace “divisive or ideologically driven language with unifying, historically accurate and constructive descriptions.”`\
+https://nytimes.com/2025/08/12/arts/design/smithsonian-exhibitions-review-white-house-trump.html
+
+**Michael Penix crisp in joint practice with Titans, but won't play in preseason game**\
+`The Falcons are hosting the Titans for two days of joint practices. Day 1 went Atlanta's way as Penix impressed with his arm.`\
+https://nytimes.com/athletic/6549488/2025/08/12/falcons-titans-michael-penix-joint-practice/
+
+**Danielle Spencer, Child Star on ‘What’s Happening!!,’ Is Dead at 60**\
+`She played a witty teenager on one of the first American television shows that centered Black teenagers.`\
+https://nytimes.com/2025/08/12/arts/television/danielle-spencer-dead.html
+
+**Sha'Carri Richardson vows to 'hold herself accountable' after arrest**\
+`Richardson, 25, posted a message via her Instagram story Monday evening, saying she spent time in "self-reflection."`\
+https://nytimes.com/athletic/6549506/2025/08/12/shacarri-richardson-incident-arrest-christian-coleman/
+
 **Cristiano Ronaldo and Georgina Rodríguez Are Engaged — but All Eyes Are on the Ring**\
 `After years of speculation, the soccer superstar’s engagement is big news, but it’s the enormous diamond perched on Ms. Rodríguez’s finger that has everyone talking.`\
 https://nytimes.com/2025/08/12/style/georgina-rodriguez-cristiano-ronaldo-engagement-ring.html
 
 **Mexico Sends More Captured Cartel Operatives to U.S.**\
-`The debate follows news that President Trump ordered the Pentagon to begin using military force against certain Latin American drug cartels.`\
+`The transfer follows news that President Trump ordered the Pentagon to begin using military force against certain Latin American drug cartels.`\
 https://nytimes.com/2025/08/12/world/americas/mexico-cartel-united-states.html
 
 **Palmeiras in talks over transfer for Forest's Miguel**\
@@ -21,20 +37,4 @@ https://nytimes.com/2025/08/12/climate/balcony-solar-united-states.html
 **Tottenham close to finalising Djed Spence contract extension**\
 `The 25-year-old was one of the breakout stars of last season under Ange Postecoglou and will now be rewarded for his progress.`\
 https://nytimes.com/athletic/6525112/2025/08/12/tottenham-djed-spence-contract-new/
-
-**Lawsuit accuses Shohei Ohtani, agent of interfering with $240 million Hawaii development**\
-`“The agent was doing business on his behalf, so (Ohtani is) responsible for the agent ultimately,” the plaintiffs' lawyer told The Athletic.`\
-https://nytimes.com/athletic/6549486/2025/08/12/shohei-ohtani-nez-balelo-lawsuit-hawaii-real-estate-project/
-
-**Trump’s Pick to Lead Labor Data Agency Adds to Fears of Political Interference**\
-`Economists on the left and right criticized E.J. Antoni for misunderstanding the data he would now oversee.`\
-https://nytimes.com/2025/08/12/business/trump-bls-ej-antoni.html
-
-**Elon Musk Threatens to Sue Apple Over Claims It Favors OpenAI**\
-`The billionaire said in posts on X that the consumer tech giant was violating antitrust laws by giving preferential treatment to OpenAI on the App Store.`\
-https://nytimes.com/2025/08/12/technology/elon-musk-apple-openai-xai.html
-
-**Donnarumma on PSG future: 'Someone has decided that I can no longer be part of the group'**\
-`The Italian goalkeeper's comments came after Luis Enrique said PSG wanted a "different" goalkeeping profile`\
-https://nytimes.com/athletic/6549540/2025/08/12/donnarumma-psg-transfer-luis-enrique/
 

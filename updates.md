@@ -1,3 +1,15 @@
+**Cristiano Ronaldo and Georgina Rodríguez Are Engaged — but All Eyes Are on the Ring**\
+`After years of speculation, the soccer superstar’s engagement is big news, but it’s the enormous diamond perched on Ms. Rodríguez’s finger that has everyone talking.`\
+https://nytimes.com/2025/08/12/style/georgina-rodriguez-cristiano-ronaldo-engagement-ring.html
+
+**Mexico Sends More Captured Cartel Operatives to U.S.**\
+`The debate follows news that President Trump ordered the Pentagon to begin using military force against certain Latin American drug cartels.`\
+https://nytimes.com/2025/08/12/world/americas/mexico-cartel-united-states.html
+
+**Palmeiras in talks over transfer for Forest's Miguel**\
+`Carlos Miguel joined Forest in a €4million (£3.4m; $4.3m) deal from Corinthians last summer, but made just three appearances for the club.`\
+https://nytimes.com/athletic/6549598/2025/08/12/nottingham-forest-transfer-news-carlos-miguel-palmeiras/
+
 **Josh Hader lands on IL with shoulder strain as Astros' injury issues continue**\
 `Hader is likely to be replaced by Bryan Abreu in save situations for now, but the rest of the Astros' bullpen alignment is up in the air.`\
 https://nytimes.com/athletic/6549618/2025/08/12/josh-hader-astros-shoulder-injury/
