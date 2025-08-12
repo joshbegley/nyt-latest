@@ -1,3 +1,7 @@
+**Laura Rutledge elevated to ESPN's lead 'Monday Night Football' broadcast team**\
+`ESPN&#8217;s &#8220;Monday Night Football&#8221; will have a new look on its sidelines this season — longtime NFL host and reporter Laura Rutledge will join Lisa Salters as a permanent sideline reporter for all 20 Monday Night Football games that the top team of Joe Buck, Troy Aikman and Salters will call this season.`\
+https://nytimes.com/athletic/6548706/2025/08/12/laura-rutledge-espn-nfl-monday-night-football/
+
 **This Ritzy-Hotel Thriller Focuses Less on the Tourists Than on the Staff**\
 `Cleyvis Natera’s novel “The Grand Paloma Resort” combines fast-paced suspense, class distinctions and colonial history in a breathless seven-day trip to the Dominican Republic.`\
 https://nytimes.com/2025/08/12/books/review/cleyvis-natera-the-grand-paloma-resort.html
