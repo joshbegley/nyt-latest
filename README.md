@@ -26,7 +26,7 @@ https://nytimes.com/2025/08/11/us/rachel-morin-victor-martinez-hernandez-sentenc
 `Being an anti-feminist, it turns out, is no shield against abusive male power.`\
 https://nytimes.com/2025/08/11/opinion/lauren-southern-tradwife-maga.html
 
-**Nevada Supreme Court blocks arbitration in Jon Gruden's case vs. NFL**\
+**Jon Gruden wins ruling from Nevada Supreme Court in lawsuit vs. NFL**\
 `The ruling allows the former coach's lawsuit to proceed publicly in court.`\
 https://nytimes.com/athletic/6547625/2025/08/11/jon-gruden-nfl-nevada-supreme-court/
 
