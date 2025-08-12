@@ -1,3 +1,7 @@
+**Vladimir Putin’s Coming to Alaska and Late Night Is Amused**\
+`“Trump loves talking about keeping criminal foreigners out of the country, and now he’s like, ‘Vladimir Putin, come on over,’” Jimmy Fallon said on Monday.`\
+https://nytimes.com/2025/08/12/arts/television/jimmy-fallon-trump-putin-alaska.html
+
 **Word of the Day: inedible**\
 `This word has appeared in 22 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2025/08/12/learning/word-of-the-day-inedible.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6540093/2025/08/12/tottenham-super-cup/
 **Picking Leeds United's 2025-26 breakout player: Harry Gray**\
 `Harry Gray is likely to be fourth-choice striker for Leeds United this season, but he's ready to take his chance when it comes...`\
 https://nytimes.com/athletic/6542720/2025/08/12/leeds-united-breakthrough-player-harry-gray/
-
-**How Youri Tielemans proved doubters wrong (with help from Emery and Villa team-mates)**\
-`Written off by many would-be suitors after leaving previous club Leicester, the Belgian midfielder has flourished. Here's how...`\
-https://nytimes.com/athletic/6508101/2025/08/12/youri-tielemans-aston-villa-analysis/
 
