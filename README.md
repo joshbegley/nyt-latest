@@ -1,3 +1,7 @@
+**Central Park Group Wants Ban on Horse-Drawn Carriages**\
+`The Central Park Conservancy, which manages the park, had not taken a public stance on the issue as it became especially politically contentious over the past decade.`\
+https://nytimes.com/2025/08/12/nyregion/central-park-horse-carriages.html
+
 **Crypto Entrepreneur Who Caused 2022 Market Crash Pleads Guilty to Fraud**\
 `Do Kwon, who created the Luna and TerraUSD cryptocurrencies that collapsed in 2022, pleaded guilty to two counts of fraud, capping a spectacular fall from grace.`\
 https://nytimes.com/2025/08/12/technology/do-kwon-crypto-fraud-guilty-plea.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6549223/2025/08/12/mattia-debertolis-death-orientee
 **South Korea’s Ex-First Lady Is Arrested on Corruption Charges**\
 `Kim Keon Hee, accused of accepting Chanel bags and other items as bribes, is the only former first lady in the country to have been put behind bars. Her husband has also been jailed on insurrection charges.`\
 https://nytimes.com/2025/08/12/world/asia/south-korea-former-first-lady-arrest.html
-
-**Sherrod Brown Plans to Try for a Senate Comeback in Ohio**\
-`The former three-term senator is said to be running to get his old job back, delivering a recruitment coup for Democrats facing an uphill battle to win a Senate majority next year.`\
-https://nytimes.com/2025/08/12/us/politics/sherrod-brown-plans-to-try-for-a-senate-comeback-in-ohio.html
 
