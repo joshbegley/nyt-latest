@@ -1,3 +1,7 @@
+**Madrid ask FIFA to block Villarreal vs. Barcelona from being held in Miami**\
+`On Monday, the RFEF approved La Liga’s request for the match to be played at Miami's Hard Rock Stadium in December.`\
+https://nytimes.com/athletic/6548962/2025/08/12/real-madrid-statement-barcelona-villarreal-miami/
+
 **Experience the True Spirit of Kauai with Capital One**\
 `At 1 Hotel Hanalei Bay, Capital One Venture X cardholders can expect a truly elevated wellness experience.`\
 https://nytimes.com/paidpost/capital-one/experience-the-true-spirit-of-kauai-with-capital-one.html
@@ -29,8 +33,4 @@ https://nytimes.com/video/us/politics/100000010334810/trumps-takeover-of-dc-poli
 **Southampton reject West Ham offer for Fernandes**\
 `The bid worth up to £30million including add-ons fell considerably short of the Championship club's valuation.`\
 https://nytimes.com/athletic/6548731/2025/08/12/west-ham-transfers-mateus-fernandes/
-
-**For Putin, Who Has Swayed Trump Before, Meeting Is Chance to Reset Ties**\
-`The U.S. president is pushing to end the war in Ukraine, but analysts say the Russian leader could turn a hastily planned meeting to his advantage.`\
-https://nytimes.com/2025/08/12/us/politics/trump-putin-meeting-russia-ukraine.html
 
