@@ -1,3 +1,7 @@
+**Dodgers' middling play has dropped their division lead to just 1 game**\
+`"This was a bad loss for us," Max Muncy said. "There's not really a way of getting around that."`\
+https://nytimes.com/athletic/6548107/2025/08/12/dodgers-lose-angels-one-game-division-lead/
+
 **Brendan Donovan's go-ahead, pinch hit double latest spark for scrappy Cardinals**\
 `After a dismal July, the Cardinals have strung together wins despite a depleted bullpen and a limited bench.`\
 https://nytimes.com/athletic/6548004/2025/08/12/brendan-donovan-pinch-hit-double-cardinals-rockies/

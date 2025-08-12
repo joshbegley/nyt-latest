@@ -1,3 +1,7 @@
+**Dodgers' middling play has dropped their division lead to just 1 game**\
+`"This was a bad loss for us," Max Muncy said. "There's not really a way of getting around that."`\
+https://nytimes.com/athletic/6548107/2025/08/12/dodgers-lose-angels-one-game-division-lead/
+
 **Brendan Donovan's go-ahead, pinch hit double latest spark for scrappy Cardinals**\
 `After a dismal July, the Cardinals have strung together wins despite a depleted bullpen and a limited bench.`\
 https://nytimes.com/athletic/6548004/2025/08/12/brendan-donovan-pinch-hit-double-cardinals-rockies/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6508101/2025/08/12/youri-tielemans-aston-villa-anal
 **Taylor Swift Announces New Album, ‘The Life of a Showgirl’**\
 `The singer-songwriter revealed the name of her 12th original studio album in a surprise announcement, but no other details.`\
 https://nytimes.com/2025/08/12/arts/music/taylor-swift-album-the-life-of-a-showgirl.html
-
-**Fantasy Premier League: How to get off to a good start in FPL - seven rules for success**\
-`Abdul Rehman explains how to ensure your Gameweek One team sets the foundation for a strong season`\
-https://nytimes.com/athletic/6511348/2025/08/12/fantasy-premier-league-fpl-start-gameweek-one-tips/
 
