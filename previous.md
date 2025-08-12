@@ -1,3 +1,11 @@
+**Hunter Greene's return to Reds rotation might push Chase Burns to the bullpen**\
+`Regardless of the role Burns is in, the Reds are hoping Burns is pitching for the team the rest of the season.`\
+https://nytimes.com/athletic/6547918/2025/08/11/hunter-greene-reds-rotation-chase-burns-bullpen/
+
+**After the Buzzer**\
+`Erik Agard decides to wing it.`\
+https://nytimes.com/2025/08/11/crosswords/daily-puzzle-2025-08-12.html
+
 **Military officials testify at California’s suit against National Guard deployment.**\
 `Military officials testified that`\
 https://nytimes.com/live/2025/08/11/us/trump-news/trial-opens-in-californias-suit-against-national-guard-deployment
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6547864/2025/08/11/alabama-ty-simpson-starting-quar
 **Man Sentenced to Life for Killing Maryland Woman on Hiking Trail**\
 `Republicans have seized on the case of Victor Martinez-Hernandez, an immigrant from El Salvador, to justify harsher immigration policies.`\
 https://nytimes.com/2025/08/11/us/rachel-morin-victor-martinez-hernandez-sentenced.html
-
-**A Right-Wing Influencer Tried to Be a Tradwife. It Almost Broke Her.**\
-`Being an anti-feminist, it turns out, is no shield against abusive male power.`\
-https://nytimes.com/2025/08/11/opinion/lauren-southern-tradwife-maga.html
-
-**Jon Gruden wins ruling from Nevada Supreme Court in lawsuit vs. NFL**\
-`The ruling allows the former coach's lawsuit to proceed publicly in court.`\
-https://nytimes.com/athletic/6547625/2025/08/11/jon-gruden-nfl-nevada-supreme-court/
 

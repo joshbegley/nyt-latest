@@ -1,3 +1,11 @@
+**Hunter Greene's return to Reds rotation might push Chase Burns to the bullpen**\
+`Regardless of the role Burns is in, the Reds are hoping Burns is pitching for the team the rest of the season.`\
+https://nytimes.com/athletic/6547918/2025/08/11/hunter-greene-reds-rotation-chase-burns-bullpen/
+
+**After the Buzzer**\
+`Erik Agard decides to wing it.`\
+https://nytimes.com/2025/08/11/crosswords/daily-puzzle-2025-08-12.html
+
 **Military officials testify at California’s suit against National Guard deployment.**\
 `Military officials testified that`\
 https://nytimes.com/live/2025/08/11/us/trump-news/trial-opens-in-californias-suit-against-national-guard-deployment
