@@ -1,3 +1,11 @@
+**Judge T.S. Ellis III, 85, Dies; Stirred Outcry Over Manafort Sentence**\
+`He imposed a 47-month prison term on Mr. Trump’s former campaign chairman, who was convicted of fraud. Sentencing guidelines recommended up to 24 years.`\
+https://nytimes.com/2025/08/12/us/ts-ellis-iii-dead.html
+
+**The Wisconsin Woman Who Flew to Britain to Kill a Man**\
+`Aimee Betro, 45, was convicted on Tuesday of attempting to shoot a man near Birmingham, England in 2019, while disguised in an Islamic veil.`\
+https://nytimes.com/2025/08/12/world/europe/aimee-betro-assassination-attempt-conviction.html
+
 **Oklahoma's Mateer calls Venmo descriptions 'inside jokes,' denies betting on sports**\
 `Screenshots and a video of transactions for a Venmo account in Mateer's name began spreading on social media on Monday night.`\
 https://nytimes.com/athletic/6548749/2025/08/12/john-mateer-oklahoma-venmo-gambling/
