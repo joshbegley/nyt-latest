@@ -1,3 +1,7 @@
+**India Orders Removal of Stray Dogs**\
+`Tens of thousands of stray dogs walk the streets of New Delhi. But after a recent spike in dog bites and attacks, the nation’s top court wants them gone.`\
+https://nytimes.com/video/world/asia/100000010335599/india-dogs-supreme-court.html
+
 **Mexico and Brazil Rebut Trump’s Claims About Violence in Their Cities**\
 `President Trump compared crime in Washington to violence in Latin American capitals. Mexico City’s mayor said “many parts of the world would like to have” her city’s safety.`\
 https://nytimes.com/2025/08/12/world/americas/trump-crime-mexico-brazil.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/12/technology/perplexity-google-chrome-bid.html
 **Capital Officials Take a Diplomatic Approach to the Federal Policing Takeover**\
 `Mayor Muriel Bowser said city leaders were focused on how to make the most of the additional federal support.`\
 https://nytimes.com/2025/08/12/us/politics/dc-mayor-police-takeover-national-guard.html
-
-**Wyc Grousbeck will not be Celtics governor after team's sale is completed: Source**\
-`Grousbeck has been the lead governor since 2002, when a group led by his father bought control of the team.`\
-https://nytimes.com/athletic/6549109/2025/08/12/wyc-grousbeck-will-not-be-celtics-governor-after-teams-sale-is-completed-source/
 
