@@ -1,3 +1,15 @@
+**AD Mitchell practice diary: A minute-by-minute look at the WR dominating Colts camp**\
+`Colts legend and wide receivers coach Reggie Wayne on Mitchell:“The arrow’s pointing up. I think it’s hitting right on time."`\
+https://nytimes.com/athletic/6548697/2025/08/12/colts-ad-mitchell-training-camp/
+
+**The Windup: An example of a good problem**\
+`The Windup Newsletter ⚾ | This is The Athletic’s MLB newsletter.`\
+https://nytimes.com/athletic/6548852/2025/08/12/blue-jays-pitching-shane-bieber-the-windup/
+
+**These Are Some Seriously Summery Chicken Breasts**\
+`Christian Reynoso’s tomato basil chicken breasts, inspired by piccata, are tangy, buttery and bright.`\
+https://nytimes.com/2025/08/12/dining/easy-tomato-basil-chicken-breasts-recipe.html
+
 **What to know about the report.**\
 `By Colby Smith`\
 https://nytimes.com/live/2025/08/12/business/cpi-inflation-tariffs-fed/what-to-know-about-the-report
@@ -25,12 +37,4 @@ https://nytimes.com/athletic/6548545/2025/08/12/edgar-carballo-gonzalez-ban-hara
 **Philippines Condemns China After South China Sea Collision Captured on Video**\
 `Footage shows a Chinese coast guard vessel chasing a Philippine boat and then ramming a Chinese warship. It was the latest confrontation in the contested waters.`\
 https://nytimes.com/2025/08/12/world/asia/south-china-sea-chinese-navy-philippines-collision.html
-
-**Answering crucial fantasy football draft questions at quarterback**\
-`The Athletic fantasy football experts share their opinions on some of the biggest fantasy football topics at the QB position.`\
-https://nytimes.com/athletic/6547171/2025/08/12/fantasy-football-2025-quarterback-roundtable/
-
-**Laura Rutledge elevated to ESPN's lead 'Monday Night Football' broadcast team**\
-`The move sets up the on-air talent roster for what will be ESPN's most important live broadcast ever: Super Bowl LXI in February 2027.`\
-https://nytimes.com/athletic/6548706/2025/08/12/laura-rutledge-espn-nfl-monday-night-football/
 
