@@ -1,3 +1,7 @@
+**Military officials testify at California’s suit against National Guard deployment.**\
+`Military officials testified that`\
+https://nytimes.com/live/2025/08/11/us/trump-news/trial-opens-in-californias-suit-against-national-guard-deployment
+
 **For D.C., Threats of a Federal Takeover Were Familiar. Now They Are a Reality.**\
 `Federal law gives presidents the power to take over Washington’s police force after declaring an emergency, but Donald Trump is the first president to do so.`\
 https://nytimes.com/2025/08/11/us/politics/dc-federal-takeover-trump-bowser.html
