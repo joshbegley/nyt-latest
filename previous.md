@@ -1,3 +1,15 @@
+**Crypto Entrepreneur Who Caused 2022 Market Crash Pleads Guilty to Fraud**\
+`Do Kwon, who created the Luna and TerraUSD cryptocurrencies that collapsed in 2022, pleaded guilty to two counts of fraud, capping a spectacular fall from grace.`\
+https://nytimes.com/2025/08/12/technology/do-kwon-crypto-fraud-guilty-plea.html
+
+**8 Songs for the Dog Days of Summer**\
+`Let songs from Lorde, boygenius, Mitski and more help push through a sticky, sludgy August.`\
+https://nytimes.com/2025/08/12/arts/music/amplifier-newsletter-dog-days-summer-songs.html
+
+**Morata joins Como on loan from Milan after Galatasaray spell cut short**\
+`The Spain international joins Como on a season-long loan arrangement with an obligation to make the move permanent next summer.`\
+https://nytimes.com/athletic/6452795/2025/08/12/alvaro-morata-transfer-como-milan-galatasaray/
+
 **India Orders Removal of Stray Dogs**\
 `Tens of thousands of stray dogs walk the streets of New Delhi. But after a recent spike in dog bites and attacks, the nation’s top court wants them gone.`\
 https://nytimes.com/video/world/asia/100000010335599/india-dogs-supreme-court.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/08/12/world/asia/south-korea-former-first-lady-arrest.h
 **Sherrod Brown Plans to Try for a Senate Comeback in Ohio**\
 `The former three-term senator is said to be running to get his old job back, delivering a recruitment coup for Democrats facing an uphill battle to win a Senate majority next year.`\
 https://nytimes.com/2025/08/12/us/politics/sherrod-brown-plans-to-try-for-a-senate-comeback-in-ohio.html
-
-**As Trump Takes Over the Police in D.C.**\
-`Readers criticize the president’s order to send in federal troops. Also: The Trump-Putin summit in Alaska; fake science papers; defining masculinity.`\
-https://nytimes.com/2025/08/12/opinion/trump-police-dc.html
-
-**A.I. Start-Up Perplexity Offers to Buy Google’s Chrome Browser for $34.5 Billion**\
-`The tiny start-up hopes to take advantage of an upcoming antitrust ruling against the tech giant.`\
-https://nytimes.com/2025/08/12/technology/perplexity-google-chrome-bid.html
-
-**Capital Officials Take a Diplomatic Approach to the Federal Policing Takeover**\
-`Mayor Muriel Bowser said city leaders were focused on how to make the most of the additional federal support.`\
-https://nytimes.com/2025/08/12/us/politics/dc-mayor-police-takeover-national-guard.html
 
