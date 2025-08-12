@@ -1,3 +1,11 @@
+**Israel’s Pain Has Blinded It to Gaza’s Suffering**\
+`Multiple factors have caused the starvation ravaging Gaza. But Israel must accept that its actions are the main cause.`\
+https://nytimes.com/2025/08/12/opinion/israel-gaza-starvation-aid.html
+
+**The New York Times in Print for Tuesday, Aug. 12, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/08/12/todays-new-york-times
+
 **Astros closer Josh Hader undergoing tests for shoulder discomfort**\
 `Losing Hader for any length of time would cripple a club that at one time this season had 18 players on the injured list.`\
 https://nytimes.com/athletic/6548055/2025/08/12/houston-astros-josh-hader-shoulder-discomfort/
