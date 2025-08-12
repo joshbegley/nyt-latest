@@ -1,3 +1,7 @@
+**PSG complete deal for Bournemouth's Zabarnyi**\
+`The Premier League club say the deal is worth €63million up front, with €3m in achievable add-ons.`\
+https://nytimes.com/athletic/6411629/2025/08/12/psg-transfers-zabarnyi-bournemouth/
+
 **Tottenham season betting preview: A bounce-back in the league or more struggles?**\
 `Tottenham were all the way down in 17th in the Premier League table, but managed to qualify for the Champions League. Will Spurs improve?`\
 https://nytimes.com/athletic/6539101/2025/08/12/tottenham-season-betting-preview-odds/
