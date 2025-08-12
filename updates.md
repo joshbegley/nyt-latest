@@ -1,3 +1,15 @@
+**India Orders Removal of Stray Dogs**\
+`Tens of thousands of stray dogs walk the streets of New Delhi. But after a recent spike in dog bites and attacks, the nation’s top court wants them gone.`\
+https://nytimes.com/video/world/asia/100000010335599/india-dogs-supreme-court.html
+
+**Mexico and Brazil Rebut Trump’s Claims About Violence in Their Cities**\
+`President Trump compared crime in Washington to violence in Latin American capitals. Mexico City’s mayor said “many parts of the world would like to have” her city’s safety.`\
+https://nytimes.com/2025/08/12/world/americas/trump-crime-mexico-brazil.html
+
+**How David Moyes and Everton stole a march on their rivals to sign Jack Grealish**\
+`A decisive intervention from the manager helped secure the loan signing of the 29-year-old England international `\
+https://nytimes.com/athletic/6549005/2025/08/12/jack-grealish-everton-transfer/
+
 **Spike Lee and Denzel Washington, Together Again **\
 `Text by Alex Vadukul and Rebecca Smeyne`\
 https://nytimes.com/card/2025/08/12/style/highest-2-lowest-premiere
