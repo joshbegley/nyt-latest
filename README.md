@@ -1,3 +1,11 @@
+**Out of San Francisco, Deebo Samuel has a plan to recapture what made him great**\
+`After a season marred by pneumonia and a string of injuries, the veteran wide receiver needed to take his training to another level.`\
+https://nytimes.com/athletic/6548081/2025/08/12/deebo-samuel-commanders-football-weight-illness/
+
+**Roig: Villarreal fans 'will fly for free' if Barca game in Miami approved**\
+`The Spanish Football Federation (RFEF) has approved La Liga's request for Villarreal's home game against Barcelona to be played in Miami.`\
+https://nytimes.com/athletic/6548553/2025/08/12/barcelona-la-liga-game-villarreal-miami-florida/
+
 **A City Girl Allergic to Wearing Black**\
 `A New York City transplant dresses “like a rainbow” with help from a color wheel kept in her closet.`\
 https://nytimes.com/2025/08/12/style/street-style-look-mixing-and-matching-colors.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6546440/2025/08/12/notre-dame-defensive-line-depth-
 **Seahawks stock report: 'Baller' rookie WR Tory Horton leads 5 training camp standouts**\
 `Horton, a fifth-round pick, is pushing for a significant role. Meanwhile, several young defensive linemen have also taken big strides.`\
 https://nytimes.com/athletic/6547433/2025/08/12/seahawks-preseason-tory-horton-rookie-standouts/
-
-**Broncos QB Bo Nix ran frequently as a rookie, but how will that evolve in Year 2?**\
-`Sean Payton doesn't want to restrict his QB's scrambling instincts, but he is reminding Nix to be 'smart at the tail end' of his runs.`\
-https://nytimes.com/athletic/6546818/2025/08/12/bo-nix-broncos-quarterback-rushing/
-
-**Palace say UEFA, CAS rulings 'show sporting merit rendered meaningless'**\
-`Palace's statement comes following confirmation that their appeal to play in the Europa League next season was rejected on Monday.`\
-https://nytimes.com/athletic/6548437/2025/08/12/crystal-palace-uefa-conference-league/
 
