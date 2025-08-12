@@ -1,3 +1,11 @@
+**I.D.F. Pilots Protest War in Gaza Outside Israeli Military Headquarters**\
+`A group of Israeli Air Force reserve and retired pilots protested outside of the military’s headquarters in Tel Aviv on Tuesday, calling for a cease-fire.`\
+https://nytimes.com/video/world/middleeast/100000010337207/israel-air-force-war-protest.html
+
+**The Little League bat flip is now a collectible pin, bat heading to auction**\
+`The moment that captured the attention of the baseball world last month will soon be featured on an exclusive piece of memorabilia.`\
+https://nytimes.com/athletic/6548133/2025/08/12/baseball-little-league-bat-flip-world-series/
+
 **The New Sound of Young Love**\
 `Our critic’s new Song of the Week is from an up-and-coming British soul singer with a fresh take on swooning.`\
 https://nytimes.com/video/podcasts/100000010337202/the-new-sound-of-young-love.html
