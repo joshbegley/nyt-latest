@@ -1,3 +1,7 @@
+**Trump’s pick for a new statistics chief has questioned the bureau’s methods.**\
+`By Tony Romm, Ben Casselman and Lydia DePillis`\
+https://nytimes.com/live/2025/08/12/business/cpi-inflation-tariffs-fed/trumps-pick-for-a-new-statistics-chief-has-questioned-the-bureaus-methods
+
 **Russia Makes a Swift Battlefield Advance, Seeking an Edge in Trump Talks**\
 `Russian forces have moved several miles into Ukrainian-held territory in the east, threatening to outflank Ukraine’s positions.`\
 https://nytimes.com/2025/08/12/world/europe/russia-ukraine-battlefield-pokrovsk-trump.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/12/world/europe/heat-wave-europe-france-spain-fires.
 **The hurdle between Tommy Fleetwood and his first PGA Tour win**\
 `“It’s not a golf swing or golf mechanics issue. It’s just a mental thing.”`\
 https://nytimes.com/athletic/6547595/2025/08/12/tommy-fleetwood-pga-tour-winless/
-
-**Kyle Schwarber looked at home at GABP, but could he return home to play for Cincinnati?**\
-`"I've always said that … if you would ask the childhood Kyle what team you'd like to play for, it would be Cincinnati," Schwarber said.`\
-https://nytimes.com/athletic/6548003/2025/08/12/reds-phillies-kyle-schwarber-return-home/
 
