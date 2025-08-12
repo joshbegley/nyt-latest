@@ -1,3 +1,7 @@
+**Trump says he will clear out Washington’s homeless population but offers few details.**\
+`By Anushka Patil`\
+https://nytimes.com/live/2025/08/11/us/trump-news/trump-says-he-will-clear-out-washingtons-homeless-population-but-offers-few-details
+
 **Judge Tells Trump Officials to Release Funds for Democracy Group**\
 `The Trump administration had been withholding $239 million in congressionally appropriated funding from the National Endowment for Democracy when the group sued in March.`\
 https://nytimes.com/2025/08/11/us/politics/trump-national-endowment-democracy.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/11/health/covid-vaccine-young-children.html
 **Trump Says He’s Going to Alaska to See What Putin ‘Has in Mind’**\
 `President Trump set a low bar for his summit with President Vladimir V. Putin of Russia, saying he was ready to walk away if no deal was forthcoming.`\
 https://nytimes.com/2025/08/11/us/politics/trump-putin-alaska-meeting.html
-
-**Over 60,000 Are in Immigration Detention, a Modern High, Records Show**\
-`The numbers reflect the significant effort the Trump administration has put into its escalating immigration crackdown.`\
-https://nytimes.com/2025/08/11/us/politics/immigration-detention-numbers.html
 
