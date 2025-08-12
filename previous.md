@@ -1,3 +1,11 @@
+**Two Chinese Ships Collide While Chasing Philippine Patrol Boat**\
+`A Chinese Navy vessel collided with a Chinese Coast Guard ship while chasing a Philippine patrol boat near Scarborough Shoal, a disputed area in the South China Sea.`\
+https://nytimes.com/video/world/asia/100000010336157/south-china-sea-philippines-crash.html
+
+**Suit Accuses N.Y.P.D. of Continued Aggression at Protests Over Gaza**\
+`The case, brought by civil rights lawyers, asks a judge to issue an order stopping the Police Department from “violently disrupting” pro-Palestinian demonstrations in New York City.`\
+https://nytimes.com/2025/08/12/nyregion/nypd-gaza-protest-suit.html
+
 **Appeals Court Allows DOGE Access to Sensitive Data at Several Agencies**\
 `The decision cited a Supreme Court order in June granting DOGE analysts sweeping access to other data stored at the Social Security Administration.`\
 https://nytimes.com/2025/08/12/us/politics/appeals-court-doge-data.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6548934/2025/08/12/jordan-love-packers-thumb-injury
 **Trump Promised a Golden Age. Then a Montana Lumber Plant Closed Down.**\
 `Anger over well-paid manufacturing jobs giving way to lower-wage work fueled President Trump’s rise. With his movement now in power, who gets blamed as the trend continues?`\
 https://nytimes.com/2025/08/12/us/trump-plant-closure-montana.html
-
-**Tottenham's Bissouma left out of Super Cup final squad due to disciplinary reasons**\
-`This is not the first time that the Mali international has been in trouble since he joined Spurs from Brighton in June 2022.`\
-https://nytimes.com/athletic/6548986/2025/08/12/tottenham-bissouma-disciplinary-super-cup-squad/
-
-**Trump’s Takeover of D.C. Policing**\
-`President Trump said that he was temporarily taking control of the Washington, D.C., police department and deploying 800 National Guard troops. Campbell Robertson, a reporter for the National desk, describes what to know about the takeover.`\
-https://nytimes.com/video/us/politics/100000010334810/trumps-takeover-of-dc-policing.html
 

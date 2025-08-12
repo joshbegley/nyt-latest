@@ -1,3 +1,11 @@
+**Two Chinese Ships Collide While Chasing Philippine Patrol Boat**\
+`A Chinese Navy vessel collided with a Chinese Coast Guard ship while chasing a Philippine patrol boat near Scarborough Shoal, a disputed area in the South China Sea.`\
+https://nytimes.com/video/world/asia/100000010336157/south-china-sea-philippines-crash.html
+
+**Suit Accuses N.Y.P.D. of Continued Aggression at Protests Over Gaza**\
+`The case, brought by civil rights lawyers, asks a judge to issue an order stopping the Police Department from “violently disrupting” pro-Palestinian demonstrations in New York City.`\
+https://nytimes.com/2025/08/12/nyregion/nypd-gaza-protest-suit.html
+
 **Appeals Court Allows DOGE Access to Sensitive Data at Several Agencies**\
 `The decision cited a Supreme Court order in June granting DOGE analysts sweeping access to other data stored at the Social Security Administration.`\
 https://nytimes.com/2025/08/12/us/politics/appeals-court-doge-data.html
