@@ -1,3 +1,7 @@
+**Packers' Jordan Love to have thumb surgery, expected to return in 1 week**\
+`Love hit his left hand on a helmet while stepping up in the pocket during Saturday's preseason game against the Jets.`\
+https://nytimes.com/athletic/6548934/2025/08/12/jordan-love-packers-thumb-injury/
+
 **Trump Promised a Golden Age. Then a Montana Lumber Plant Closed Down.**\
 `Anger over well-paid manufacturing jobs giving way to lower-wage work fueled President Trump’s rise. With his movement now in power, who gets blamed as the trend continues?`\
 https://nytimes.com/2025/08/12/us/trump-plant-closure-montana.html
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6548697/2025/08/12/colts-ad-mitchell-training-camp/
 **The Windup: An example of a good problem**\
 `The Windup Newsletter ⚾ | This is The Athletic’s MLB newsletter.`\
 https://nytimes.com/athletic/6548852/2025/08/12/blue-jays-pitching-shane-bieber-the-windup/
-
-**These Are Some Seriously Summery Chicken Breasts**\
-`Christian Reynoso’s tomato basil chicken breasts, inspired by piccata, are tangy, buttery and bright.`\
-https://nytimes.com/2025/08/12/dining/easy-tomato-basil-chicken-breasts-recipe.html
 
