@@ -1,3 +1,7 @@
+**For D.C., Threats of a Federal Takeover Were Familiar. Now They Are a Reality.**\
+`Federal law gives presidents the power to take over Washington’s police force after declaring an emergency, but Donald Trump is the first president to do so.`\
+https://nytimes.com/2025/08/11/us/politics/dc-federal-takeover-trump-bowser.html
+
 **Jon Gruden wins ruling from Nevada Supreme Court in lawsuit vs. NFL**\
 `The ruling allows the former coach's lawsuit to proceed publicly in court.`\
 https://nytimes.com/athletic/6547625/2025/08/11/jon-gruden-nfl-nevada-supreme-court/

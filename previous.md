@@ -1,3 +1,7 @@
+**For D.C., Threats of a Federal Takeover Were Familiar. Now They Are a Reality.**\
+`Federal law gives presidents the power to take over Washington’s police force after declaring an emergency, but Donald Trump is the first president to do so.`\
+https://nytimes.com/2025/08/11/us/politics/dc-federal-takeover-trump-bowser.html
+
 **Browns star Myles Garrett cited for driving 100 mph**\
 `The Browns confirmed they are aware of the incident but did not comment further. `\
 https://nytimes.com/athletic/6547804/2025/08/11/myles-garrett-browns-100-mph/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6547625/2025/08/11/jon-gruden-nfl-nevada-supreme-co
 **Does President Trump Want to Be Mayor, Too?**\
 `President Trump has long railed about crime in blue cities. Now he’s effectively put himself in charge of policing one of them.`\
 https://nytimes.com/2025/08/11/us/politics/trump-mayor-washington-dc-crime.html
-
-**Why Young Children May Not Get Covid Shots This Fall**\
-`Under Robert F. Kennedy Jr., federal officials may withdraw an endorsement for the vaccine in younger children.`\
-https://nytimes.com/2025/08/11/health/covid-vaccine-young-children.html
 
