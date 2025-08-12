@@ -1,3 +1,11 @@
+**David Mazzarella, Editor Who Helped Reshape USA Today, Dies at 87**\
+`For five years, he honed the paper’s focus on hard news and enterprising journalism, distancing it from its reputation for fluffy, bite-sized stories.`\
+https://nytimes.com/2025/08/12/business/media/david-mazzarella-dead.html
+
+**3 Killed in Queens After Driver Hits Pedestrians Near Food Truck**\
+`A Toyota Corolla driven by an 84-year-old man hit two pedestrians in Queens, leaving all three of them dead, the police said.`\
+https://nytimes.com/2025/08/12/nyregion/queens-car-crash-food-truck-3-killed.html
+
 **Justin Fields had his moments — good and bad — at Jets-Giants joint practice**\
 `Plus, Mason Taylor shines in his return, how the O-line fared, a dominant Jets defense, and more.`\
 https://nytimes.com/athletic/6549378/2025/08/12/justin-fields-jets-giants-joint-practice-report/
