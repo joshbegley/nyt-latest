@@ -1,3 +1,7 @@
+**A closer look at the young players the Giants acquired in the Tyler Rogers trade**\
+`The Giants got high marks for their return for Rogers. Fans should get a long look at the three prospects in the final weeks of the season.`\
+https://nytimes.com/athletic/6549292/2025/08/12/sf-giants-tyler-rogers-return-drew-gilbert-blade-tidwell-jose-butto/
+
 **Court Ruling Casts Doubt on New York’s Cannabis Licensing Process**\
 `A federal appeals court said that it appeared to be unconstitutional for New York to prioritize some of its own residents for licenses to open cannabis businesses.`\
 https://nytimes.com/2025/08/12/nyregion/new-york-cannabis-licensing-unconstitutional.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6546421/2025/08/12/malick-thiaw-newcastle-milan-how
 **R.S.V. Season Is Approaching. Here’s How to Protect Yourself.**\
 `Doctors recommend that eligible people get vaccinated in late summer or early fall so antibodies can kick in before cases spread.`\
 https://nytimes.com/2025/08/12/well/rsv-vaccines-adults-children.html
-
-**A Half-Baked Alaska Summit**\
-`The meeting is a bad idea, but there’s an opportunity for Trump to punish Putin’s thievery.`\
-https://nytimes.com/2025/08/12/opinion/trump-putin-alaska-summit.html
 
