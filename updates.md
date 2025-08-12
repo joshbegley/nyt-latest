@@ -1,3 +1,19 @@
+**This Ritzy-Hotel Thriller Focuses Less on the Tourists Than on the Staff**\
+`Cleyvis Natera’s novel “The Grand Paloma Resort” combines fast-paced suspense, class distinctions and colonial history in a breathless seven-day trip to the Dominican Republic.`\
+https://nytimes.com/2025/08/12/books/review/cleyvis-natera-the-grand-paloma-resort.html
+
+**Submit your questions here for Eric Stephens' Ducks mailbag**\
+`What do you want to know about the Ducks?`\
+https://nytimes.com/athletic/6547100/2025/08/12/ducks-roster-questions-offseason/
+
+**Submit your questions here for Eric Stephens' Kings mailbag**\
+`What do you want to know about the Kings?`\
+https://nytimes.com/athletic/6547072/2025/08/12/kings-roster-questions-mailbag/
+
+**A Rom-Com Born in Britain and Set in New York Is Coming to Broadway**\
+`“Two Strangers (Carry a Cake Across New York)”, a musical charmer with a cast of two, will open at the Longacre in November.`\
+https://nytimes.com/2025/08/12/theater/two-strangers-broadway.html
+
 **Wildfires Rage in Spain as Temperatures Soar**\
 `Nearly 1,000 soldiers have been deployed to battle wildfires. Spain’s meteorological agency has issued red-level “extreme risk” alerts for five regions amid rising temperatures.`\
 https://nytimes.com/video/world/middleeast/100000010335720/spain-wildfire-heatwave-evacuation-madrid-.html
