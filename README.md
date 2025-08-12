@@ -1,3 +1,11 @@
+**'Lunch pail' wide receivers with the best point-scoring floors**\
+`These low-cost pass-catchers can protect your fantasy football team from posting a goose egg. Go get 'em.`\
+https://nytimes.com/athletic/6546878/2025/08/12/fantasy-football-draft-wrs-scoring/
+
+**What we know (and don't know) about the Patriots ahead of Minnesota trip**\
+`How much better will the Patriots' O-line be? Will Drake Maye take a huge leap forward? Will TreVeyon Henderson see enough snaps?`\
+https://nytimes.com/athletic/6547301/2025/08/12/patriots-training-camp-what-we-know/
+
 **Have your say about Villarreal-Barcelona being moved to the U.S.**\
 `A regular season European match in the U.S. is closer than ever. Should it happen?`\
 https://nytimes.com/athletic/6548153/2025/08/12/villarreal-barcelona-la-liga-us-survey/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/08/12/nyregion/oysters-nyc-big.html
 **Geometry Solves Gerrymandering**\
 `A new level of partisan one-upmanship should spur urgent demands for reform.`\
 https://nytimes.com/2025/08/12/opinion/math-solution-gerrymandering.html
-
-**A.I. Is Fueling a ‘Poverty of Imagination.’ Here’s How We Can Fix It.**\
-`What bots are really doing in the classroom.`\
-https://nytimes.com/2025/08/12/opinion/ai-college-classrooms-chatgpt.html
-
-**A Slow Renovation Ends With a ‘Cozy Yet Luxe’ Basement**\
-`The designer Mandy Cheng deliberately chose pieces she could recommend to her clients for her media room and bar.`\
-https://nytimes.com/2025/08/12/realestate/interior-designer-basement-renovations-media-room-bar.html
 
