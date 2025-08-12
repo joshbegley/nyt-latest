@@ -1,3 +1,7 @@
+**PSG complete deal for Bournemouth's Zabarnyi**\
+`The Premier League club say the deal is worth €63million up front, with €3m in achievable add-ons.`\
+https://nytimes.com/athletic/6411629/2025/08/12/psg-transfers-zabarnyi-bournemouth/
+
 **Tottenham season betting preview: A bounce-back in the league or more struggles?**\
 `Tottenham were all the way down in 17th in the Premier League table, but managed to qualify for the Champions League. Will Spurs improve?`\
 https://nytimes.com/athletic/6539101/2025/08/12/tottenham-season-betting-preview-odds/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6548107/2025/08/12/dodgers-lose-angels-one-game-div
 **Brendan Donovan's go-ahead, pinch hit double latest spark for scrappy Cardinals**\
 `After a dismal July, the Cardinals have strung together wins despite a depleted bullpen and a limited bench.`\
 https://nytimes.com/athletic/6548004/2025/08/12/brendan-donovan-pinch-hit-double-cardinals-rockies/
-
-**The Reasons Israelis Have Closed Their Eyes to Gaza**\
-`Multiple factors have caused the starvation ravaging Gaza. But Israel must accept that its actions are the main cause.`\
-https://nytimes.com/2025/08/12/opinion/israel-gaza-starvation-aid.html
 
