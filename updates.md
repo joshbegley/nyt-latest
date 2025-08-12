@@ -1,3 +1,7 @@
+**Appeals Court Allows DOGE Access to Sensitive Data at Several Agencies**\
+`The decision cited a Supreme Court order in June granting DOGE analysts sweeping access to other data stored at the Social Security Administration.`\
+https://nytimes.com/2025/08/12/us/politics/appeals-court-doge-data.html
+
 **Scoop City: A simple fantasy football strategy that works**\
 `Alvin Kamara, Chris Godwin and Mike Evans look like to top buys via a simple formula to find fantasy value`\
 https://nytimes.com/athletic/6549061/2025/08/12/fantasy-football-strategy-2025-adp-discounts-nfl-scoop-city/
