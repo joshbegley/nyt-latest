@@ -1,3 +1,7 @@
+**For Putin, Who Has Swayed Trump Before, Meeting Is Chance to Reset Ties**\
+`The U.S. president is pushing to end the war in Ukraine, but analysts say the Russian leader could turn a hastily planned meeting to his advantage.`\
+https://nytimes.com/2025/08/12/us/politics/trump-putin-meeting-russia-ukraine.html
+
 **Liverpool hold talks with Palace over Guehi move**\
 `An offer is yet to be made for the England international while an agreement would also need to be reached on the player side.`\
 https://nytimes.com/athletic/6301713/2025/08/12/liverpool-transfer-news-marc-guehi/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6548738/2025/08/12/james-cook-bills-practice-return
 **The Bounce: NBA schedule news to know**\
 `The Bounce Newsletter  | This is The Athletic’s daily NBA newsletter.`\
 https://nytimes.com/athletic/6548732/2025/08/12/nba-schedule-kevin-durant-thunder-the-bounce/
-
-**Spanish cyclist given one-year ban for sexual harassment of female rider**\
-`Edgar Carballo Gonzalez, 36, was found guilty of “sexual and non-consensual actions”.`\
-https://nytimes.com/athletic/6548545/2025/08/12/edgar-carballo-gonzalez-ban-harassment/
 
