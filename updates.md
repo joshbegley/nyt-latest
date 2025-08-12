@@ -1,3 +1,15 @@
+**Marc Bernal, Barca's breakout star for 2025-26 back from 346 days of injury hell**\
+`The 18-year-old La Masia graduate midfielder suffered an ACL injury this time last year. Now, he is back and better than ever`\
+https://nytimes.com/athletic/6546344/2025/08/12/barcelona-marc-bernal-breakout-injury/
+
+**Fabian Hurzeler interview: 'Brighton have shown we can keep our best players, too'**\
+`The Brighton manager on adapting to the Premier League, his unlikely coaching ally, and what English football can learn from American sports`\
+https://nytimes.com/athletic/6518240/2025/08/12/fabian-hurzeler-interview-brighton/
+
+**Row Z: Isak's project motivation, Wilson has bridges to build and welcome Tottenham Hotspaw**\
+`Our weekly roundup of the dafter side of the game also asks which Premier League club has an official champagne, rose and cognac partner?`\
+https://nytimes.com/athletic/6543768/2025/08/12/isak-wilson-cunha-fulham-tottenham-champagne-row-z/
+
 **Udinese and the sustainable football stadium hosting the UEFA Super Cup**\
 `The Bluenergy stadium will be entirely self-sufficient with 2,409 solar panels to produce over one million kWh of energy per year`\
 https://nytimes.com/athletic/6536102/2025/08/12/uefa-supercup-udinese-tottenham-psg-sustainable-stadium/
