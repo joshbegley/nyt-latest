@@ -1,3 +1,15 @@
+**Experience the True Spirit of Kauai with Capital One**\
+`At 1 Hotel Hanalei Bay, Capital One Venture X cardholders can expect a truly elevated wellness experience.`\
+https://nytimes.com/paidpost/capital-one/experience-the-true-spirit-of-kauai-with-capital-one.html
+
+**‘Only a Stream Remains’: Minnesota Lake Is Drained After Valve Malfunction**\
+`Dead fish, puddles and weeds are all that’s left of Alice Lake after a pipe, which was unable to close, pushed all of the water into the St. Croix River.`\
+https://nytimes.com/2025/08/12/us/minnesota-alice-lake-restoration.html
+
+**DeSantis Appoints Ally to Be Lieutenant Governor**\
+`Gov. Ron DeSantis elevated a loyal ally, State Senator Jay Collins of Tampa, as Republicans jostle over who should succeed the term-limited governor.`\
+https://nytimes.com/2025/08/12/us/desantis-appoints-ally-to-be-lieutenant-governor.html
+
 **Packers' Jordan Love to have thumb surgery, expected to return in 1 week**\
 `Love hit his left hand on a helmet while stepping up in the pocket during Saturday's preseason game against the Jets.`\
 https://nytimes.com/athletic/6548934/2025/08/12/jordan-love-packers-thumb-injury/
@@ -21,16 +33,4 @@ https://nytimes.com/athletic/6548731/2025/08/12/west-ham-transfers-mateus-fernan
 **For Putin, Who Has Swayed Trump Before, Meeting Is Chance to Reset Ties**\
 `The U.S. president is pushing to end the war in Ukraine, but analysts say the Russian leader could turn a hastily planned meeting to his advantage.`\
 https://nytimes.com/2025/08/12/us/politics/trump-putin-meeting-russia-ukraine.html
-
-**Liverpool hold talks with Palace over Guehi move**\
-`An offer is yet to be made for the England international while an agreement would also need to be reached on the player side.`\
-https://nytimes.com/athletic/6301713/2025/08/12/liverpool-transfer-news-marc-guehi/
-
-**AD Mitchell practice diary: A minute-by-minute look at the WR dominating Colts camp**\
-`Colts legend and wide receivers coach Reggie Wayne on Mitchell: “The arrow’s pointing up. I think it’s hitting right on time."`\
-https://nytimes.com/athletic/6548697/2025/08/12/colts-ad-mitchell-training-camp/
-
-**The Windup: An example of a good problem**\
-`The Windup Newsletter ⚾ | This is The Athletic’s MLB newsletter.`\
-https://nytimes.com/athletic/6548852/2025/08/12/blue-jays-pitching-shane-bieber-the-windup/
 
