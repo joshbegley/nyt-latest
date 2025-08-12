@@ -1,3 +1,7 @@
+**Trump says he will clear out Washington’s homeless population but offers few details.**\
+`By Anushka Patil`\
+https://nytimes.com/live/2025/08/11/us/trump-news/trump-says-he-will-clear-out-washingtons-homeless-population-but-offers-few-details
+
 **Judge Tells Trump Officials to Release Funds for Democracy Group**\
 `The Trump administration had been withholding $239 million in congressionally appropriated funding from the National Endowment for Democracy when the group sued in March.`\
 https://nytimes.com/2025/08/11/us/politics/trump-national-endowment-democracy.html
