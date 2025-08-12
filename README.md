@@ -1,3 +1,19 @@
+**This Ritzy-Hotel Thriller Focuses Less on the Tourists Than on the Staff**\
+`Cleyvis Natera’s novel “The Grand Paloma Resort” combines fast-paced suspense, class distinctions and colonial history in a breathless seven-day trip to the Dominican Republic.`\
+https://nytimes.com/2025/08/12/books/review/cleyvis-natera-the-grand-paloma-resort.html
+
+**Submit your questions here for Eric Stephens' Ducks mailbag**\
+`What do you want to know about the Ducks?`\
+https://nytimes.com/athletic/6547100/2025/08/12/ducks-roster-questions-offseason/
+
+**Submit your questions here for Eric Stephens' Kings mailbag**\
+`What do you want to know about the Kings?`\
+https://nytimes.com/athletic/6547072/2025/08/12/kings-roster-questions-mailbag/
+
+**A Rom-Com Born in Britain and Set in New York Is Coming to Broadway**\
+`“Two Strangers (Carry a Cake Across New York)”, a musical charmer with a cast of two, will open at the Longacre in November.`\
+https://nytimes.com/2025/08/12/theater/two-strangers-broadway.html
+
 **Wildfires Rage in Spain as Temperatures Soar**\
 `Nearly 1,000 soldiers have been deployed to battle wildfires. Spain’s meteorological agency has issued red-level “extreme risk” alerts for five regions amid rising temperatures.`\
 https://nytimes.com/video/world/middleeast/100000010335720/spain-wildfire-heatwave-evacuation-madrid-.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6546568/2025/08/12/nba-schedule-release-2025-2026-s
 **‘SNAP Wasn’t a Handout’: The Week 8 Winner of Our Summer Reading Contest**\
 `Viviana Thumm, 15, writes about the Trump administration’s cuts to the food aid program — changes she says are “personal.”`\
 https://nytimes.com/2025/08/12/learning/snap-wasnt-a-handout-the-week-8-winner-of-our-summer-reading-contest.html
-
-**Trump’s Fed nominee has argued that tariffs haven’t raised prices.**\
-`By Tony Romm`\
-https://nytimes.com/live/2025/08/12/business/cpi-inflation-tariffs-fed/trumps-fed-nominee-has-argued-that-tariffs-havent-raised-prices
-
-**Gaming Out the Price of a Trump Trade Deal With China**\
-`President Trump again delayed higher tariffs on Chinese goods. But his recent moves on computer chips have stoked fears he’s willing to give too much to reach an accord.`\
-https://nytimes.com/2025/08/12/business/dealbook/trump-china-trade-deal-chips.html
-
-**Trump Administration Live Updates: Ahead of Alaska Talks, Europe Says Ukraine Must Be Part of Peace Process**\
-``\
-https://nytimes.com/live/2025/08/12/us/trump-news
-
-**After 2024's grind, Notre Dame knows double-digit D-linemen may not be enough**\
-`In an ideal world, the Irish would go to Miami with at least 10 D-linemen ready to play. Al Washington knows 'ideal' isn't always possible.`\
-https://nytimes.com/athletic/6546440/2025/08/12/notre-dame-defensive-line-depth-chart/
 
