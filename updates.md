@@ -1,3 +1,11 @@
+**Packers' Jordan Love to have thumb surgery, expected to return in 1 week**\
+`Love hit his left hand on a helmet while stepping up in the pocket during Saturday's preseason game against the Jets.`\
+https://nytimes.com/athletic/6548934/2025/08/12/jordan-love-packers-thumb-injury/
+
+**Trump Promised a Golden Age. Then a Montana Lumber Plant Closed Down.**\
+`Anger over well-paid manufacturing jobs giving way to lower-wage work fueled President Trump’s rise. With his movement now in power, who gets blamed as the trend continues?`\
+https://nytimes.com/2025/08/12/us/trump-plant-closure-montana.html
+
 **Tottenham's Bissouma left out of Super Cup final squad due to disciplinary reasons**\
 `This is not the first time that the Mali international has been in trouble since he joined Spurs from Brighton in June 2022.`\
 https://nytimes.com/athletic/6548986/2025/08/12/tottenham-bissouma-disciplinary-super-cup-squad/
