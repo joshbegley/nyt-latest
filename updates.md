@@ -1,3 +1,7 @@
+**Thunder, Rockets open 2025-26 NBA season on NBC, Flagg to debut on ESPN**\
+`Here's what we know about the NBA’s opening night and Christmas Day slates, as well as marquee games on ABC and NBC.`\
+https://nytimes.com/athletic/6546568/2025/08/12/nba-schedule-release-2025-2026-season/
+
 **Thunder, Rockets open 2025-2026 NBA season on NBC, Flagg to debut on ESPN**\
 `Here's what we know about the NBA’s opening night and Christmas Day slates, as well as marquee games on ABC and NBC.`\
 https://nytimes.com/athletic/6546568/2025/08/12/nba-schedule-release-2025-2026-season/
