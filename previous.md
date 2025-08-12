@@ -1,3 +1,11 @@
+**Tottenham's Bissouma left out of Super Cup final squad due to disciplinary reasons**\
+`This is not the first time that the Mali international has been in trouble since he joined Spurs from Brighton in June 2022.`\
+https://nytimes.com/athletic/6548986/2025/08/12/tottenham-bissouma-disciplinary-super-cup-squad/
+
+**Trump’s Takeover of D.C. Policing**\
+`President Trump said that he was temporarily taking control of the Washington, D.C., police department and deploying 800 National Guard troops. Campbell Robertson, a reporter for the National desk, describes what to know about the takeover.`\
+https://nytimes.com/video/us/politics/100000010334810/trumps-takeover-of-dc-policing.html
+
 **Southampton reject West Ham offer for Fernandes**\
 `The bid worth up to £30million including add-ons fell considerably short of the Championship club's valuation.`\
 https://nytimes.com/athletic/6548731/2025/08/12/west-ham-transfers-mateus-fernandes/
@@ -25,16 +33,4 @@ https://nytimes.com/2025/08/12/dining/easy-tomato-basil-chicken-breasts-recipe.h
 **What to know about the report.**\
 `By Colby Smith`\
 https://nytimes.com/live/2025/08/12/business/cpi-inflation-tariffs-fed/what-to-know-about-the-report
-
-**Sierra Club’s Board Fires Ben Jealous, the Group’s Executive Director**\
-`Mr. Jealous oversaw a difficult tenure at the storied environmental organization, where he clashed with employees and oversaw layoffs.`\
-https://nytimes.com/2025/08/12/climate/sierra-club-ben-jealous-fired-executive-director.html
-
-**Mystery of Bank Theft Said to Be Iceland’s First Is Solved After 50 Years**\
-`Baskets of coins disappeared overnight from an Icelandic bank in 1975. Last month, someone finally owned up.`\
-https://nytimes.com/2025/08/12/world/europe/iceland-bank-theft-1975-confession.html
-
-**James Cook practices with Bills after hold-in over contract negotiations**\
-`Cook appeared in full pads and his uniform at Saturday's preseason game against the New York Giants but refused to play.`\
-https://nytimes.com/athletic/6548738/2025/08/12/james-cook-bills-practice-return-contract/
 

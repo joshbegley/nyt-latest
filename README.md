@@ -1,3 +1,7 @@
+**Trump Promised a Golden Age. Then a Montana Lumber Plant Closed Down.**\
+`Anger over well-paid manufacturing jobs giving way to lower-wage work fueled President Trump’s rise. With his movement now in power, who gets blamed as the trend continues?`\
+https://nytimes.com/2025/08/12/us/trump-plant-closure-montana.html
+
 **Tottenham's Bissouma left out of Super Cup final squad due to disciplinary reasons**\
 `This is not the first time that the Mali international has been in trouble since he joined Spurs from Brighton in June 2022.`\
 https://nytimes.com/athletic/6548986/2025/08/12/tottenham-bissouma-disciplinary-super-cup-squad/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6548852/2025/08/12/blue-jays-pitching-shane-bieber-
 **These Are Some Seriously Summery Chicken Breasts**\
 `Christian Reynoso’s tomato basil chicken breasts, inspired by piccata, are tangy, buttery and bright.`\
 https://nytimes.com/2025/08/12/dining/easy-tomato-basil-chicken-breasts-recipe.html
-
-**What to know about the report.**\
-`By Colby Smith`\
-https://nytimes.com/live/2025/08/12/business/cpi-inflation-tariffs-fed/what-to-know-about-the-report
 
