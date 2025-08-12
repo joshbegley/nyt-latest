@@ -1,40 +1,41 @@
-**The New York Times International Edition in Print for Wednesday, Aug. 13, 2025**\
-``\
-https://nytimes.com/issue/todaysinyt/2025/08/12/todays-new-york-times-international-edition
+**Vikings 53-man roster projection 2.0: Why does it make sense to keep three QBs?**\
+`Who needs to stand out in joint practices with the Patriots this week? Who is in the driver's seat for a spot? Here's the latest update.`\
+https://nytimes.com/athletic/6547036/2025/08/12/vikings-53-man-roster-projection-sam-howell/
 
-**As Europe’s Heat Waves Intensify, France Bickers About Air-Conditioning**\
-`As heat waves batter Europe, the need (or not) for air-conditioning has become part of the political tug of war in France between the right and the left.`\
-https://nytimes.com/2025/08/12/world/europe/heat-waves-france-air-conditioning.html
+**Byron Buxton's leadership helps Twins bond after chaotic trade deadline**\
+`Though Buxton’s ability to lead on the field has been limited, he’s played a pivotal role behind the scenes since the July 31 deadline.
+`\
+https://nytimes.com/athletic/6547980/2025/08/12/twins-byron-buxton-trade-deadline-leader/
 
-**The Palestinian Who Led a Militia, a Theater and a Jailbreak**\
-`Zakaria Zubeidi inspired Palestinians and horrified Israelis. Freed from jail during a recent truce, he questions what his many lives have achieved.`\
-https://nytimes.com/2025/08/12/world/middleeast/zakaria-zubeidi-palestine-interview.html
+**Paramount, ESPN deals with UFC, WWE bring out steel chairs in sports streaming cage match**\
+`When you talk about the biggest players for rights in sports, you better put Paramount/CBS on the list.`\
+https://nytimes.com/athletic/6547429/2025/08/12/paramount-espn-wwe-ufc-david-ellison-mark-shapiro/
 
-**Why Surrendering a Key Eastern Region Would Be Hard for Ukraine**\
-`As President Trump talks of land swaps, Ukrainians find it difficult to imagine giving up the Donbas, for military, humanitarian and political reasons.`\
-https://nytimes.com/2025/08/12/world/europe/russia-ukraine-donbas-land-swap.html
+**The Lions think Giovanni Manu can be the future. Taylor Decker working to make sure of it**\
+`"I just want to show them that I'm the player that they wanted me to be," Giovanni Manu said.`\
+https://nytimes.com/athletic/6539625/2025/08/12/lions-giovanni-manu-taylor-decker-offensive-tackle/
 
-**'Lunch pail' wide receivers with the best point-scoring floors**\
-`These low-cost pass-catchers can protect your fantasy football team from posting a goose egg. Go get 'em.`\
-https://nytimes.com/athletic/6546878/2025/08/12/fantasy-football-draft-wrs-scoring/
+**Rookie QB review: What Cam Ward, Jaxson Dart, Tyler Shough and Shedeur Sanders showed**\
+`The good, the bad and the ugly from four high-profile signal callers in their preseason debuts.`\
+https://nytimes.com/athletic/6545841/2025/08/12/rookie-qbs-dart-ward-sanders-shough/
 
-**What we know (and don't know) about the Patriots ahead of Minnesota trip**\
-`How much better will the Patriots' O-line be? Will Drake Maye take a huge leap forward? Will TreVeyon Henderson see enough snaps?`\
-https://nytimes.com/athletic/6547301/2025/08/12/patriots-training-camp-what-we-know/
+**Can Matthew and Brady Tkachuk become the NHL's Kelce brothers? 'Maybe one day'**\
+`The Tkachuk brothers, along with their father, Keith, are gracing an early release cover version of this year's EA Sports NHL 26 video game.`\
+https://nytimes.com/athletic/6542843/2025/08/12/tkachuk-matthew-brady-brothers-nhl-26-ea-sports/
 
-**Have your say about Villarreal-Barcelona being moved to the U.S.**\
-`A regular season European match in the U.S. is closer than ever. Should it happen?`\
-https://nytimes.com/athletic/6548153/2025/08/12/villarreal-barcelona-la-liga-us-survey/
+**The state of the tri-state: Are the Giants or Jets better positioned for a bright future?**\
+`Ahead of the Giants-Jets joint practices, we examined the QB situations, rosters and playoff chances for both teams. `\
+https://nytimes.com/athletic/6547004/2025/08/12/ny-giants-jets-jaxson-dart-justin-fields/
 
-**Ask The Morning: What Are Your Questions About Psychedelics?**\
-`Chief executives and politicians are promoting the drugs for therapeutic use. Do you have questions about them?`\
-https://nytimes.com/2025/08/12/briefing/ask-the-morning-what-are-your-questions-about-psychedelics.html
+**‘I’m sitting behind the bench': Inside sports' escalating stalking problem**\
+`Many stalking cases go unreported in the media and to police. But even a partial list indicates an alarming pattern.`\
+https://nytimes.com/athletic/6543019/2025/08/12/athlete-stalking-cases-wnba-tennis-nfl-college-sports/
 
-**The D.N.C.’s New Leader Seeks to Curb Dark Money Influence in 2028 Primaries**\
-`The move is the first significant maneuver from Ken Martin to shape the party’s next presidential nominating process, but how much bite his proposal could have remains to be seen.`\
-https://nytimes.com/2025/08/12/us/politics/the-dncs-new-leader-seeks-to-curb-dark-money-influence-in-2028-primaries.html
+**Trump Sends the National Guard Into Washington, D.C.**\
+`The president’s announcement was an extraordinary exertion of federal power over an American city.`\
+https://nytimes.com/2025/08/12/podcasts/the-daily/trump-national-guard-dc.html
 
-**How Liberalism Went to Die on the Texas-Arkansas Border**\
-`Democrats delivered millions to the Texarkana region. It didn’t matter a dime.`\
-https://nytimes.com/2025/08/12/opinion/liberalism-texarkana-economy-democracy.html
+**Trump’s ‘Law and Order’ Crackdown on D.C., and Silicon Valley Embraces the Pentagon**\
+`Plus, a quiet crisis for America’s jurors.`\
+https://nytimes.com/2025/08/12/podcasts/the-headlines/trump-crackdown-dc-silicon-valley-pentagon.html
 
