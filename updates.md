@@ -1,3 +1,11 @@
+**Russia Makes a Swift Battlefield Advance, Seeking an Edge in Trump Talks**\
+`Russian forces have moved several miles into Ukrainian-held territory in the east, threatening to outflank Ukraine’s positions.`\
+https://nytimes.com/2025/08/12/world/europe/russia-ukraine-battlefield-pokrovsk-trump.html
+
+**TAFC: Our Premier League predictions, Isak's hardline stance, FPL tips for new season**\
+`Today in TAFC: Who our writers think will win the Premier League, Isak's hardline stance, our FPL challenge...`\
+https://nytimes.com/athletic/6548194/2025/08/12/our-premier-league-predictions-isaks-hardline-stance-fpl-tips-for-new-season/
+
 **Rescuers Find Body of American Hiker Who Was Missing in Pyrenees**\
 `Cole Henderson, 27, was last heard from in early July. Rescue workers found his body on Aug. 8, the Spanish police said.`\
 https://nytimes.com/2025/08/12/world/europe/cole-henderson-missing-hiker-found-spain.html
