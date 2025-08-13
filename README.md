@@ -22,7 +22,7 @@ https://nytimes.com/2025/08/13/nyregion/eric-adams-paterson-endorsement.html
 `(No description)`\
 https://nytimes.com/newsgraphics/card-story/rome-neighborhoods-restaurants-food
 
-**Browns' Shedeur Sanders sustains oblique injury during joint practice with Eagles**\
+**Browns' Shedeur Sanders sustains oblique injury during practice**\
 `Sanders’ injury comes after the rookie’s impressive preseason debut against the Panthers last week.`\
 https://nytimes.com/athletic/6551369/2025/08/13/shedeur-sanders-injury-oblique-browns-nfl/
 
