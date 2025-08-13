@@ -1,40 +1,40 @@
+**Cubs' offensive malaise continues north of the border**\
+`The Cubs offense was a no-show yet again, this time in a 5-1 loss to the Toronto Blue Jays on Tuesday.`\
+https://nytimes.com/athletic/6550345/2025/08/13/cubs-offensive-malaise-continues-blue-jays/
+
+**Kabul Is Running Dry and Solutions Might Come Too Late**\
+`The six million people living in the Afghan capital could be out of water by 2030. The government is scrambling for solutions, but financial reserves are as dry as Kabul’s water basins.`\
+https://nytimes.com/2025/08/13/world/asia/kabul-water-crisis.html
+
+**Before Trump Talks to Putin, Germany and Others Want to Bend His Ear**\
+`Chancellor Friedrich Merz and several allies will host the president for a video call, the latest in a summer-long effort to hold ranks in supporting Ukraine.`\
+https://nytimes.com/2025/08/13/world/europe/trump-europe-ukraine-talks-putin.html
+
+**What to expect from The Athletic's podcast network in the 2025-26 football season**\
+`The Athletic FC Podcast, The Totally Football Show and The Athletic's club shows have all made additions ahead of the new season`\
+https://nytimes.com/athletic/6542132/2025/08/13/premier-league-podcasts-the-athletic-202526-season/
+
+**Connections: Sports Edition Coach: Hints for Aug. 13, 2025**\
+`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
+https://nytimes.com/athletic/6548522/2025/08/13/connections-sports-edition-hints-for-aug-13-2025/
+
+**Corrections: Aug. 13, 2025**\
+`Corrections that appeared in print on Wednesday, Aug. 13, 2025.`\
+https://nytimes.com/2025/08/13/pageoneplus/corrections-aug-13-2025.html
+
+**Quote of the Day: Ex-Trump Officials Warn Of Manipulation by Putin**\
+`Quotation of the Day for Wednesday, August 13, 2025.`\
+https://nytimes.com/2025/08/12/pageoneplus/quote-of-the-day-ex-trump-officials-warn-of-manipulation-by-putin.html
+
+**Heavy Rain Causes Flash Flooding in Chattanooga**\
+`The mayor of Hamilton County, Tenn., declared a state of emergency as rescue crews pulled people out of submerged cars and homes.`\
+https://nytimes.com/2025/08/12/us/flooding-chattanooga-tennessee.html
+
+**In matchup against Angels, Dodgers' Shohei Ohtani lines into triple play**\
+`It was the eighth triple play turned in Angels franchise history, and first since 2023.`\
+https://nytimes.com/athletic/6550384/2025/08/12/dodgers-angels-shohei-ohtani-triple-play/
+
 **Trump Administration Violated Order on U.C.L.A. Grant Terminations, Judge Says**\
 `Judge Rita F. Lin ordered the National Science Foundation to restore grants awarded to the university, which she said had been suspended in defiance of the court.`\
 https://nytimes.com/2025/08/12/us/politics/ucla-grant-nsf-science-trump.html
-
-**Trump to Meet Putin at U.S. Military Base in Anchorage**\
-`The American and Russian presidents will meet face to face at Joint Base Elmendorf-Richardson in Alaska on Friday, according to a White House official.`\
-https://nytimes.com/2025/08/12/us/politics/trump-putin-summit-alaska.html
-
-**Brewers rout Pirates, extend winning streak to league-leading 11 games**\
-`At 75-44, Milwaukee has quickly become far and away MLB's best team, five games better than the next-closest club.`\
-https://nytimes.com/athletic/6550203/2025/08/12/milwaukee-brewers-win-streak-extended/
-
-**Brock Stewart, the Dodgers' primary bullpen deadline addition, hits the injured list**\
-`Stewart has right shoulder inflammation after just four appearances with the team.`\
-https://nytimes.com/athletic/6550224/2025/08/12/dodgers-brock-stewart-injured-list/
-
-**Changing her tone, the mayor of Washington condemns Trump’s deployment of the National Guard.**\
-`By Ashley Ahn`\
-https://nytimes.com/live/2025/08/12/us/trump-news/dc-mayor-bowser-trump-national-guard
-
-**‘Alien: Earth’ Episodes 1 and 2 Recap: Gross Encounters**\
-`Noah Hawley’s new expansion to the “Alien” franchise introduces a host of new characters and concepts — and some disgusting new monsters.`\
-https://nytimes.com/2025/08/12/arts/television/alien-earth-recap-episodes-1-and-2.html
-
-**Floor Models**\
-`Good luck grounding yourself while solving Jared Cappel’s crossword.`\
-https://nytimes.com/2025/08/12/crosswords/daily-puzzle-2025-08-13.html
-
-**Blue Jays midseason insights: All-Star aspirations, player extensions and ballpark plans**\
-`The Blue Jays have requested to host MLB's All-Star Game, president and CEO Mark Shapiro confirmed Tuesday.`\
-https://nytimes.com/athletic/6550172/2025/08/12/blue-jays-midseason-insights/
-
-**Taking stock of Chargers' 'really competitive' cornerback competition**\
-`Najee Harris also made some progress in his return from his fireworks-related eye injury, running with a football off to the side. `\
-https://nytimes.com/athletic/6550199/2025/08/12/chargers-training-camp-cornerback-competition/
-
-**Human Rights Report Under Trump Blunts Language on Israel and El Salvador**\
-`A collection of U.S. reports on human rights offenses trimmed or omitted past language on violations in El Salvador, Hungary, Saudi Arabia, the U.A.E. and Israel, all seen as partners by President Trump.`\
-https://nytimes.com/2025/08/12/us/politics/trump-human-rights-israel-saudi-arabia-china.html
 
