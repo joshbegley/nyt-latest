@@ -1,3 +1,15 @@
+**Padres pull even with Dodgers in NL West, claiming latest share of first place since 2010**\
+`With a pair of weekend series coming up against Los Angeles, the Padres will soon have the opportunity to speed past the Dodgers.`\
+https://nytimes.com/athletic/6550438/2025/08/13/padres-dodgers-nl-west-race/
+
+**The New York Times in Print for Wednesday, Aug. 13, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/08/13/todays-new-york-times
+
+**Trump Is Doubling Down on Sanctions. Putin Is Laughing All the Way to Alaska.**\
+`There is something Putin cares about more than money.`\
+https://nytimes.com/2025/08/13/opinion/trump-putin-ukraine-alaska.html
+
 **Flash Floods Trap Cars on Tennessee Highway**\
 `A car swirled around in a muddy whirlpool as rescue teams helped people evacuate from flooded homes in Chattanooga, Tenn.`\
 https://nytimes.com/video/weather/100000010337632/flooding-chattanooga-tennessee.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6536642/2025/08/13/crystal-palace-caleb-kporha-brea
 **Wolves season preview: Pereira handed greater control and chance to prove his pedigree**\
 `The Portuguese head coach instigated last season's revival but Wolves will be anxious not to be drawn into another relegation fight`\
 https://nytimes.com/athletic/6508570/2025/08/13/wolves-pereira-season-preview/
-
-**Chelsea 2025-26 season preview: Added firepower, Colwill loss but continuity to be celebrated**\
-`Enzo Maresca's side are stepping into the unknown after playing competitive football through the bulk of the summer at the Club World Cup`\
-https://nytimes.com/athletic/6547382/2025/08/13/chelsea-colwill-maresca-pedro-season-preview/
-
-**Fantasy Premier League: The players to target for defensive-contribution points**\
-`With recognition for individual work by outfield defenders added to FPL this season, we look at how the new rule may affect team planning`\
-https://nytimes.com/athletic/6525265/2025/08/13/fantasy-premier-league-defensive-contribution-points/
-
-**Can George Hemmings become the young player to break through under Unai Emery?**\
-`Hemmings is a name known across youth football circles in the UK — the midfielder has already appeared for Villa's first team in pre-season`\
-https://nytimes.com/athletic/6501695/2025/08/13/picking-aston-villas-breakthrough-player-for-2025-26-george-hemmings/
 
