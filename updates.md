@@ -1,3 +1,7 @@
+**At the Kennedy Center, Trump Puts His Pop Culture Obsession on Display**\
+`President Trump held forth about the nature of show business and his own tortured relationship with celebrity.`\
+https://nytimes.com/2025/08/13/us/politics/trump-kennedy-center-pop-culture.html
+
 **Jerry Jones talks Micah Parsons contract; Parsons declines comment**\
 `“You don’t have deadlines when you’re playing under a contract,” Jones said Wednesday.`\
 https://nytimes.com/athletic/6552121/2025/08/13/cowboys-micah-parsons-contract-update-jerry-jones/

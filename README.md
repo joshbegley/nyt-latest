@@ -1,3 +1,7 @@
+**Republican Ex-Candidate Sentenced to 80 Years in Prison for Shooting Plot**\
+`Solomon Peña, who lost a bid for a seat in the New Mexico Legislature in 2022, was found guilty in March of orchestrating the attacks against state Democrats.`\
+https://nytimes.com/2025/08/13/us/solomon-pena-new-mexico-political-shootings-sentencing.html
+
 **At the Kennedy Center, Trump Puts His Pop Culture Obsession on Display**\
 `President Trump held forth about the nature of show business and his own tortured relationship with celebrity.`\
 https://nytimes.com/2025/08/13/us/politics/trump-kennedy-center-pop-culture.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/13/obituaries/molly-drake-overlooked.html
 **Lions joint practice takeaways: A dominating day on both sides vs. the Dolphins**\
 `Amon-Ra St. Brown and Jared Goff were sharp as the Lions got the best of the Dolphins. The two teams practice together again Thursday.`\
 https://nytimes.com/athletic/6551725/2025/08/13/lions-joint-practice-dominate-dolphins/
-
-**Trump and Europe Settled on a Strategy for Talks With Putin**\
-`Also, Kabul could soon run out of water. Here’s the latest at the end of Wednesday.`\
-https://nytimes.com/2025/08/13/briefing/trump-putin-meeting-water-kabul-bodega-ramps.html
 
