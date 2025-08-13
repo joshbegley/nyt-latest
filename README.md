@@ -2,7 +2,7 @@
 `Turns out QBs account for wins a whole lot more in certain formats and it is not currently reflected in their ADPs, making them big values. `\
 https://nytimes.com/athletic/6520747/2025/08/13/fantasy-football-2025-qbs-quarterbacks-stats-drafting/
 
-**Beijing Evacuated Thousands Before Floods, but Not the Most Vulnerable.**\
+**Beijing Evacuated Thousands Before Floods, but Not the Most Vulnerable**\
 `The recent flooding that killed 31 in a single nursing home exposed flaws in emergency planning as China braces for more extreme and unpredictable weather.`\
 https://nytimes.com/2025/08/13/world/asia/china-floods-nursing-home.html
 
