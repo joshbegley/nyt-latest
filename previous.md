@@ -1,3 +1,7 @@
+**Barca execs agree to risk €7m in personal wealth in bid to register Rashford, Garcia**\
+`With three days to go before Barca’s first match of the campaign, Hansi Flick’s major signings of the summer are still not eligible to play.`\
+https://nytimes.com/athletic/6551185/2025/08/13/barcelona-new-signings-register-rashford-garcia/
+
 **Asphalt Burns and Heatstroke: Homeless in America’s Hottest City**\
 `As the summer heat becomes increasingly extreme in Phoenix, people who can’t escape the sun are suffering heat-related ailments of all kinds.`\
 https://nytimes.com/2025/08/13/well/homeless-heat-phoenix.html
@@ -19,7 +23,7 @@ https://nytimes.com/2025/08/13/style/chopped-slang-gen-alpha.html
 https://nytimes.com/card/2025/08/13/world/europe/ukraine-war-evacuation-dobropillia
 
 **Venus Williams headlines U.S. Open wild cards with 25th appearance in singles draw**\
-`Williams is a two-time singles champion at the U.S. Open and will make her first appearance since 2023.`\
+`Williams is a two-time singles champion at Flushing Meadows and will make her first appearance since 2023.`\
 https://nytimes.com/athletic/6550579/2025/08/13/tennis-us-open-wild-cards-venus-williams/
 
 **Premier League relegation odds: Will any of the newly promoted sides stay up?**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6549836/2025/08/13/chicago-stars-martin-sjogren-hea
 **Jack Grealish to Everton: Everything you need to know - TLDR**\
 `Everton have completed the loan signing of the England international. Here, we break down the deal`\
 https://nytimes.com/athletic/6550736/2025/08/13/jack-grealish-everton-man-city/
-
-**It’s Always the Season for Lemon Spaghetti With Roasted Artichokes**\
-`This weeknight pasta comes together with ease — especially if you use an air fryer to burnish your canned or frozen artichoke hearts.`\
-https://nytimes.com/2025/08/13/dining/easy-lemon-pasta-recipe-for-canned-or-frozen-artichokes.html
 

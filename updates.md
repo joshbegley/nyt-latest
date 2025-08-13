@@ -1,3 +1,11 @@
+**Barca execs agree to risk €7m in personal wealth in bid to register Rashford, Garcia**\
+`With three days to go before Barca’s first match of the campaign, Hansi Flick’s major signings of the summer are still not eligible to play.`\
+https://nytimes.com/athletic/6551185/2025/08/13/barcelona-new-signings-register-rashford-garcia/
+
+**Venus Williams headlines U.S. Open wild cards with 25th appearance in singles draw**\
+`Williams is a two-time singles champion at Flushing Meadows and will make her first appearance since 2023.`\
+https://nytimes.com/athletic/6550579/2025/08/13/tennis-us-open-wild-cards-venus-williams/
+
 **Asphalt Burns and Heatstroke: Homeless in America’s Hottest City**\
 `As the summer heat becomes increasingly extreme in Phoenix, people who can’t escape the sun are suffering heat-related ailments of all kinds.`\
 https://nytimes.com/2025/08/13/well/homeless-heat-phoenix.html
