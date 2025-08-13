@@ -1,3 +1,7 @@
+**America's (Most Valuable) Team: Cowboys still lead annual ranking of NFL team valuations**\
+`The annual list, prepared by Sportico, illustrates the power of NFL team ownership, with ever-increasing valuations for all 32 teams.`\
+https://nytimes.com/athletic/6551573/2025/08/13/most-valuable-nfl-teams-sportico-cowboys-rams/
+
 **Beyoncé Wins First Emmy for N.F.L. Halftime Show**\
 `The pop superstar received a costume design award for her Netflix football halftime performance tied to her “Cowboy Carter” album.`\
 https://nytimes.com/2025/08/13/arts/television/beyonce-emmy-win-nfl-halftime-netflix-christmas.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/13/dining/drinks/tomato-martini.html
 **Chelsea players to get more than £10m in bonuses for winning Club World Cup**\
 `The west London club were crowned champions of FIFA's newly-expanded tournament in July.`\
 https://nytimes.com/athletic/6551403/2025/08/13/chelsea-club-world-cup-bonuses-players/
-
-**What It Takes to Find Food in Gaza**\
-`Starvation has spread in Gaza, as the prices of basic goods have skyrocketed and getting aid is difficult and often deadly. Ashley Wu, a graphics reporter for The New York Times, explains the dire choices that many Gazans face, as Israel faces growing condemnation over the crisis.`\
-https://nytimes.com/video/world/middleeast/100000010322362/what-it-takes-to-find-food-in-gaza.html
 

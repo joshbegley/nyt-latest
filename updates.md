@@ -1,3 +1,7 @@
+**America's (Most Valuable) Team: Cowboys still lead annual ranking of NFL team valuations**\
+`The annual list, prepared by Sportico, illustrates the power of NFL team ownership, with ever-increasing valuations for all 32 teams.`\
+https://nytimes.com/athletic/6551573/2025/08/13/most-valuable-nfl-teams-sportico-cowboys-rams/
+
 **Beyoncé Wins First Emmy for N.F.L. Halftime Show**\
 `The pop superstar received a costume design award for her Netflix football halftime performance tied to her “Cowboy Carter” album.`\
 https://nytimes.com/2025/08/13/arts/television/beyonce-emmy-win-nfl-halftime-netflix-christmas.html
