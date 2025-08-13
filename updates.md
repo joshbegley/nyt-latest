@@ -1,3 +1,19 @@
+**Denver Summit FC acquires Ally Watt, first signing in franchise history**\
+`The 28-year-old forward signed with the team ahead of its inaugural 2026 season.`\
+https://nytimes.com/athletic/6551476/2025/08/13/denver-summit-ally-watt-signing-nwsl-expansion-team/
+
+**Trump Warns of Economic Disaster if Court Strikes Down Tariffs**\
+`The president has crowed about the billions of dollars collected so far from tariffs. That money could be at risk if the White House loses the legal battle.`\
+https://nytimes.com/2025/08/13/us/politics/trump-tariffs-case-federal-court.html
+
+**Rory McIlroy turned down chance to be Ryder Cup playing captain**\
+`McIlroy said there's too many other demands on the captain for him to think one person can do both.`\
+https://nytimes.com/athletic/6551435/2025/08/13/rory-mcilroy-ryder-cup-captain/
+
+**Hurricanes owner Tom Dundon, other investors agree to buy Trail Blazers**\
+`Paul Allen's trust announced in May that it was selling the team and estimated that the process would go into the 2025-26 season.`\
+https://nytimes.com/athletic/6551490/2025/08/13/portland-trail-blazers-sale-tom-dundon-nba-carolina-hurricanes/
+
 **gws-great-lakes-beaches**\
 `(No description)`\
 https://nytimes.com/newsgraphics/card-story/great-lakes-beaches
