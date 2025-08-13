@@ -1,3 +1,7 @@
+**Beijing Evacuated Thousands Before Floods, but Not the Most Vulnerable.**\
+`The recent flooding that killed 31 in a single nursing home exposed flaws in emergency planning as China braces for more extreme and unpredictable weather.`\
+https://nytimes.com/2025/08/13/world/asia/china-floods-nursing-home.html
+
 **Pakistan Is in Trump’s Good Graces, but for How Long?**\
 `President Trump hosted the South Asian nation’s army chief and seeks deals on critical minerals and crypto. But Pakistan is also tightening its military partnership with China.`\
 https://nytimes.com/2025/08/13/world/africa/pakistan-trump-munir.html
