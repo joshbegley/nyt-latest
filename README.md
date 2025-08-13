@@ -1,3 +1,7 @@
+**Cabbies Who Lost Licenses After Arrests Near $140 Million Settlement**\
+`New York City could grant payouts to some 20,000 taxi drivers whose professional licenses were summarily suspended without sufficient due process.`\
+https://nytimes.com/2025/08/13/nyregion/nyc-taxi-drivers-settlement.html
+
 **Bakers on Texas-Mexican Border Are Found Guilty of Harboring Illegal Workers**\
 `Leonardo Baez and his wife were among the first employers prosecuted for taking on undocumented immigrants at their bakery in Los Fresnos, Texas. They face up to 10 years in prison.`\
 https://nytimes.com/2025/08/13/us/border-bakery-undocumented-immigrants.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/13/us/armored-truck-robberies-philadelphia.html
 **Lionel Taylor, Denver Broncos Ring of Fame WR, dies at 89**\
 `Taylor was the first player in league history to have 100 receptions in a season.`\
 https://nytimes.com/athletic/6552188/2025/08/13/lionel-taylor-denver-broncos-ring-of-fame-wr-dies-at-89/
-
-**Joe Flacco continues to get No. 1 reps in Browns' hampered QB room**\
-`The 40-year-old Flacco is the only QB to begin camp with Cleveland who hasn't been at least limited by an injury on multiple days. `\
-https://nytimes.com/athletic/6552035/2025/08/13/joe-flacco-browns-eagles-joint-practice/
 
