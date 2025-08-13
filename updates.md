@@ -1,3 +1,11 @@
+**Some Juneau Residents Evacuate as Melting Glacier Threatens to Flood Town**\
+`The Mendenhall River in Alaska was at “major flood” stage as of Wednesday morning, with additional water expected from an overflowing glacial lake.`\
+https://nytimes.com/2025/08/13/climate/alaska-juneau-flood-glacier.html
+
+**Wilshere will not make Arsenal return as Under-21s head coach**\
+`Wilshere is highly-regarded for his role in helping develop talents such as Myles Lewis-Skelly, Ethan Nwaneri and Max Dowman.`\
+https://nytimes.com/athletic/6388502/2025/08/13/jack-wilshere-arsenal-under-21s/
+
 **Catalan club cancels player transfer over anti-Catalan livestream video**\
 `A video of the defender saying "I s*** on all dead Catalans" after a 2024 match against Barcelona's B team was published on Instagram.`\
 https://nytimes.com/athletic/6550878/2025/08/13/catalan-football-transfer-cancelled/

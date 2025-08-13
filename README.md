@@ -1,3 +1,7 @@
+**Whose stock is up (or down) as the 49ers hit the home stretch of training camp?**\
+`An undrafted rookie running back caught Kyle Shanahan's eye, and Marques Sigle's ascent at safety is putting pressure on two veterans.`\
+https://nytimes.com/athletic/6549947/2025/08/13/49ers-preseason-training-camp-corey-kiner/
+
 **Some Juneau Residents Evacuate as Melting Glacier Threatens to Flood Town**\
 `The Mendenhall River in Alaska was at “major flood” stage as of Wednesday morning, with additional water expected from an overflowing glacial lake.`\
 https://nytimes.com/2025/08/13/climate/alaska-juneau-flood-glacier.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/13/style/wedding-photos-exclusion.html
 **Denny Hamlin on how much drivers impact NASCAR success and more: 12 Questions**\
 `Denny Hamlin talks about his revised career timeline, how much the car has to do with winning and more in the latest 12 Questions.`\
 https://nytimes.com/athletic/6546922/2025/08/13/denny-hamlin-nascar-drivers-career-retirement-12-questions/
-
-**Typhoon Podul Batters Southern Taiwan**\
-`The storm weakened after hitting the island’s central mountains, according to Taiwan’s Central Weather Administration.`\
-https://nytimes.com/video/world/asia/100000010338013/typhoon-podul-taiwan-storm-weather.html
 
