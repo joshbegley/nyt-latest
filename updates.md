@@ -1,3 +1,11 @@
+**After Fatal Explosion, Focus Turns to Steel Mill’s Future and Past**\
+`The mill, which is part of the recent merger between U.S. Steel and Nippon Steel, has faced scrutiny from federal and local regulators.`\
+https://nytimes.com/2025/08/12/sports/us-steel-plant-explosion.html
+
+**Mets' Pete Alonso passes Darryl Strawberry as franchise's all-time home run leader**\
+`Alonso’s 253rd career home run came in his 965th game and 4,118th plate appearance.`\
+https://nytimes.com/athletic/6550142/2025/08/12/new-york-mets-pete-alonso-hr-record/
+
 **Six Convicted in 2017 Fire That Killed 41 Girls in Guatemala Group Home**\
 `The girls were locked in a classroom in a government-run group home for at-risk youth. The officials were charged with child abuse, dereliction of duty, manslaughter and other counts.`\
 https://nytimes.com/2025/08/12/world/americas/guatemala-convictions-deadly-fire.html
