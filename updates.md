@@ -1,3 +1,5 @@
+
+
 **Florida Approves First Black Bear Hunt Since 2015**\
 `State wildlife officials say a regulated hunt is needed to manage the bear population. Opponents say the new rules will lead to trophy hunting.`\
 https://nytimes.com/2025/08/13/us/florida-approves-first-black-bear-hunt-since-2015.html
