@@ -1,3 +1,11 @@
+**'Let's play football': James Cook, with a smile and a tear, signs long-awaited extension with Bills**\
+`The running back and the team had been at an impasse before reaching a deal.`\
+https://nytimes.com/athletic/6552059/2025/08/13/james-cook-with-a-smile-and-a-tear-signs-long-awaited-extension-with-bills-lets-play-football/
+
+**3 Arrested in $2 Million Heist From Brinks Truck in Philadelphia**\
+`One of the suspects is a former Brinks employee who had recently been fired. The robbery was one of five similar crimes in the area in less than two months.`\
+https://nytimes.com/2025/08/13/us/armored-truck-robberies-philadelphia.html
+
 **Lionel Taylor, Denver Broncos Ring of Fame WR, dies at 89**\
 `Taylor was the first player in league history to have 100 receptions in a season.`\
 https://nytimes.com/athletic/6552188/2025/08/13/lionel-taylor-denver-broncos-ring-of-fame-wr-dies-at-89/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/08/13/us/politics/trump-putin-alaska-meeting-stakes.htm
 **Gleeman: In pulling Twins off the market, Pohlads crush hopes of a fan base that deserves better**\
 `After 10 months of hope, Twins fans find themselves stuck in the same place they've been for decades under the team's current ownership. `\
 https://nytimes.com/athletic/6551378/2025/08/13/minnesota-twins-pohlad-no-sale-fans/
-
-**American Pilot, 20, Stuck Off Antarctica Says It’s ‘Isolating and Lonely’**\
-`Ethan Guo, a content creator, said that he has been effectively trapped at a Chilean base since June. The authorities had said he landed there without permission.`\
-https://nytimes.com/2025/08/13/world/americas/ethan-guo-pilot-antarctica-chile.html
-
-**Giants pass rush torments Jets for second straight practice, but run defense looks shaky**\
-`Everything you need to know from the Giants' second day of joint practice with the Jets. `\
-https://nytimes.com/athletic/6552063/2025/08/13/ny-giants-jets-practice-brian-burns/
 
