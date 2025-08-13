@@ -1,3 +1,11 @@
+**A Hollywood Start-Up Targets the Micro Drama Craze**\
+`A new app will focus on super-short TV shows shot for phones, a bit like Quibi, an earlier app aimed at quick content.`\
+https://nytimes.com/2025/08/13/business/media/hollywood-micro-drama-quibi.html
+
+**May I Confront My Sister About Excluding My Fiancée From Her Wedding Album?**\
+`A reader’s suspicion that his sister doesn’t like his fiancée seems to have been confirmed by her absence from wedding photos. But how should he raise the issue?`\
+https://nytimes.com/2025/08/13/style/wedding-photos-exclusion.html
+
 **Denny Hamlin on how much drivers impact NASCAR success and more: 12 Questions**\
 `Denny Hamlin talks about his revised career timeline, how much the car has to do with winning and more in the latest 12 Questions.`\
 https://nytimes.com/athletic/6546922/2025/08/13/denny-hamlin-nascar-drivers-career-retirement-12-questions/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6549585/2025/08/13/kenneth-walker-iii-seahawks-kubi
 **Giants have MLB's worst OPS against left-handers. Was it avoidable?**\
 `The team-wide struggles against left-handed pitching has worsened from a persistent problem to an embarrassing one.`\
 https://nytimes.com/athletic/6550546/2025/08/13/giants-left-handed-pitching/
-
-**Blackhawks draft pick Václav Nestrašil brings his family’s hockey story full circle**\
-`Nestrašil's dad wanted a pianist, not another hockey player. Instead, he got his family's second NHL Draft pick 16 years after the first.`\
-https://nytimes.com/athletic/6521559/2025/08/13/blackhawks-vaclav-nestrasil-nhl-draft/
-
-**Europe Battles Deadly Wildfires as High Winds Fuel Flames**\
-`Firefighters were struggling to tame blazes in several countries in southern Europe, including Albania, Greece, Montenegro and Spain, and in Turkey.`\
-https://nytimes.com/2025/08/13/world/europe/wildfires-deadly-spain-greece-turkey-albania-montenegro.html
 
