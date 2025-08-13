@@ -1,40 +1,40 @@
-**How do you assess Jack Grealish's four season-spell at Manchester City?**\
-`Grealish won several major honours with City but only in 2022-23 did he take games by the scruff of the neck like he had at Villa   `\
-https://nytimes.com/athletic/6548221/2025/08/13/jack-grealish-manchester-city-aston-villa-everton-career/
+**Fantasy Premier League: The players to target for defensive-contribution points**\
+`With recognition for individual work by outfield defenders added to FPL this season, we look at how the new rule may affect team planning`\
+https://nytimes.com/athletic/6525265/2025/08/13/fantasy-premier-league-defensive-contribution-points/
 
-**UEFA Super Cup: PSG look to bounce back as Frank eyes Spurs trophy**\
-`Thomas Frank's Europa League winners face Luis Enrique's European champions in a chance for early season silverware`\
-https://nytimes.com/athletic/6548920/2025/08/13/uefa-super-cup-psg-spurs-roundtable/
+**Can George Hemmings become the young player to break through under Unai Emery?**\
+`Hemmings is a name known across youth football circles in the UK — the midfielder has already appeared for Villa's first team in pre-season`\
+https://nytimes.com/athletic/6501695/2025/08/13/picking-aston-villas-breakthrough-player-for-2025-26-george-hemmings/
 
-**How Sunderland play: Fast breaks, wide triangles, and lots of dribbles**\
-`The Athletic looks at the tactical set-up of Regis Le Bris' promoted outfit as they return to the Premier League in 2025-26`\
-https://nytimes.com/athletic/6534535/2025/08/13/sunderland-tactics-premier-league-2025-26/
+**From White's return to Dowman's cameos, the five players who impressed most in Arsenal's pre-season**\
+`Mikel Arteta highlighted defensive naivety in Arsenal’s pre-season defeats, but their recent wins showed signs of evolution`\
+https://nytimes.com/athletic/6546182/2025/08/13/arsenal-dorman-zubimendi-white-nwaneri-calafiori/
 
-**Cubs' offensive malaise continues north of the border**\
-`The Cubs offense was a no-show yet again, this time in a 5-1 loss to the Toronto Blue Jays on Tuesday.`\
-https://nytimes.com/athletic/6550345/2025/08/13/cubs-offensive-malaise-continues-blue-jays/
+**The Premier League hope-o-meter 2025-26: How are fans of every club feeling about the season?**\
+`We surveyed supporters of all 20 clubs and it revealed the influence a summer of spending (or otherwise) can have on a fanbase's outlook`\
+https://nytimes.com/athletic/6546873/2025/08/13/premier-league-hope-o-meter-2025-2026/
 
-**Kabul Is Running Dry and Solutions Might Come Too Late**\
-`The six million people living in the Afghan capital could be out of water by 2030. The government is scrambling for solutions, but financial reserves are as dry as Kabul’s water basins.`\
-https://nytimes.com/2025/08/13/world/asia/kabul-water-crisis.html
+**Ronnie Stam: The ex-Premier League defender turned international drug smuggler**\
+`The former Wigan defender, a title winner in the Netherlands, has been handed a seven-year prison term`\
+https://nytimes.com/athletic/6548314/2025/08/13/ronnie-stam-international-drug-smuggler-wigan/
 
-**Before Trump Talks to Putin, Germany and Others Want to Bend His Ear**\
-`Chancellor Friedrich Merz and several allies will host the president for a video call, the latest in a summer-long effort to hold ranks in supporting Ukraine.`\
-https://nytimes.com/2025/08/13/world/europe/trump-europe-ukraine-talks-putin.html
+**Hugo Ekitike has always been ready for you to notice him**\
+`Liverpool's new striker has always been powered by unflinching self-belief - just ask those that witnessed his rise to prominence in France`\
+https://nytimes.com/athletic/6506013/2025/08/13/hugo-ekitike-liverpool-reims-psg-frankfurt/
 
-**What to expect from The Athletic's podcast network in the 2025-26 football season**\
-`The Athletic FC Podcast, The Totally Football Show and The Athletic's club shows have all made additions ahead of the new season`\
-https://nytimes.com/athletic/6542132/2025/08/13/premier-league-podcasts-the-athletic-202526-season/
+**Gianluigi Donnarumma's PSG fallout - why he no longer fits and why other clubs should still want him**\
+`Donnarumma is willing to leave PSG and PSG sources are accepting of losing the goalkeeper`\
+https://nytimes.com/athletic/6549107/2025/08/13/psg-gianluigi-donnarumma-transfer-analysis/
 
-**Connections: Sports Edition Coach: Hints for Aug. 13, 2025**\
-`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
-https://nytimes.com/athletic/6548522/2025/08/13/connections-sports-edition-hints-for-aug-13-2025/
+**Real Madrid 2025-26 season preview: Can Alonso and fresh faces put them back on top?**\
+`Expectations are high after the former midfielder returned to the Bernabeu to replace Carlo Ancelotti as head coach`\
+https://nytimes.com/athletic/6548669/2025/08/13/real-madrid-xabi-alonso-season-preview/
 
-**Corrections: Aug. 13, 2025**\
-`Corrections that appeared in print on Wednesday, Aug. 13, 2025.`\
-https://nytimes.com/2025/08/13/pageoneplus/corrections-aug-13-2025.html
+**Our Premier League prediction? We'll be with you every step of the way**\
+`Thank you for reading, watching and listening with The Athletic - this is what you can expect each week from us this season`\
+https://nytimes.com/athletic/6542560/2025/08/13/the-athletic-2025-26-premier-league-coverage/
 
-**Quote of the Day: Ex-Trump Officials Warn Of Manipulation by Putin**\
-`Quotation of the Day for Wednesday, August 13, 2025.`\
-https://nytimes.com/2025/08/12/pageoneplus/quote-of-the-day-ex-trump-officials-warn-of-manipulation-by-putin.html
+**The 10 most exciting Premier League arrivals for the new season**\
+`These are the most exciting new arrivals in the Premier League going into the new season`\
+https://nytimes.com/athletic/6548461/2025/08/13/premier-league-transfers-new-season/
 
