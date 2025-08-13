@@ -1,3 +1,7 @@
+**At the Kennedy Center, Trump Puts His Pop Culture Obsession on Display**\
+`President Trump held forth about the nature of show business and his own tortured relationship with celebrity.`\
+https://nytimes.com/2025/08/13/us/politics/trump-kennedy-center-pop-culture.html
+
 **Jerry Jones talks Micah Parsons contract; Parsons declines comment**\
 `“You don’t have deadlines when you’re playing under a contract,” Jones said Wednesday.`\
 https://nytimes.com/athletic/6552121/2025/08/13/cowboys-micah-parsons-contract-update-jerry-jones/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6551725/2025/08/13/lions-joint-practice-dominate-do
 **Trump and Europe Settled on a Strategy for Talks With Putin**\
 `Also, Kabul could soon run out of water. Here’s the latest at the end of Wednesday.`\
 https://nytimes.com/2025/08/13/briefing/trump-putin-meeting-water-kabul-bodega-ramps.html
-
-**With O-line struggles in Minnesota, Patriots offense might need time to jell**\
-`The New England offense should be better in 2025, but Wednesday's joint practice with the Vikings showed it's not going to happen overnight.`\
-https://nytimes.com/athletic/6552056/2025/08/13/patriots-vikings-drake-maye-offensive-line/
 

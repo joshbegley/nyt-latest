@@ -1,3 +1,15 @@
+**Jerry Jones talks Micah Parsons contract; Parsons declines comment**\
+`“You don’t have deadlines when you’re playing under a contract,” Jones said Wednesday.`\
+https://nytimes.com/athletic/6552121/2025/08/13/cowboys-micah-parsons-contract-update-jerry-jones/
+
+**Blue Jays' Alek Manoah stumbles in first Triple A rehab outing, future uncertain**\
+`In Manoah’s first Triple A rehab outing, he lasted 1 2/3 innings, walking three batters and reaching 49 pitches.`\
+https://nytimes.com/athletic/6552220/2025/08/13/toronto-blue-jays-alek-manoah-update/
+
+**Joe Flacco continues to get No. 1 reps in Browns' hampered QB room**\
+`The 40-year-old Flacco is the only QB to begin camp with Cleveland who hasn't been at least limited by an injury on multiple days. `\
+https://nytimes.com/athletic/6552035/2025/08/13/joe-flacco-browns-eagles-joint-practice/
+
 **'Let's play football': James Cook, with a smile and a tear, signs long-awaited extension with Bills**\
 `The running back and the team had been at an impasse before reaching a deal.`\
 https://nytimes.com/athletic/6552059/2025/08/13/james-cook-with-a-smile-and-a-tear-signs-long-awaited-extension-with-bills-lets-play-football/
