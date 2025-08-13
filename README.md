@@ -1,3 +1,7 @@
+**Taking stock of Chargers' 'really competitive' cornerback competition**\
+`Najee Harris also made some progress in his return from his fireworks-related eye injury, running with a football off to the side. `\
+https://nytimes.com/athletic/6550199/2025/08/12/chargers-training-camp-cornerback-competition/
+
 **Human Rights Report Under Trump Blunts Language on Israel and El Salvador**\
 `A collection of U.S. reports on human rights offenses trimmed or omitted past language on violations in El Salvador, Hungary, Saudi Arabia, the U.A.E. and Israel, all seen as partners by President Trump.`\
 https://nytimes.com/2025/08/12/us/politics/trump-human-rights-israel-saudi-arabia-china.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/12/nyregion/rikers-mentally-ill-lawsuit-nyc.html
 **New Video Shows Uvalde School Chief Trying to Negotiate With Gunman**\
 `The video, part of a trove of materials that authorities had refused to release, shows the minutes in which a commander tried to talk to a gunman barricaded in a room with dozens of children.`\
 https://nytimes.com/2025/08/12/us/uvalde-documents-video-arredondo.html
-
-**White House Will ‘Definitely’ Host a U.F.C. Fight on July 4, U.F.C. Head Says**\
-`The event would take place on the 250th anniversary of the signing of the Declaration of Independence.`\
-https://nytimes.com/2025/08/12/us/politics/ufc-white-house-dana-white.html
 
