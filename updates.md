@@ -1,3 +1,7 @@
+**Blue Jays midseason insights: All-Star aspirations, player extensions and ballpark plans**\
+`The Blue Jays have requested to host MLB's All-Star Game, president and CEO Mark Shapiro confirmed Tuesday.`\
+https://nytimes.com/athletic/6550172/2025/08/12/blue-jays-midseason-insights/
+
 **Taking stock of Chargers' 'really competitive' cornerback competition**\
 `Najee Harris also made some progress in his return from his fireworks-related eye injury, running with a football off to the side. `\
 https://nytimes.com/athletic/6550199/2025/08/12/chargers-training-camp-cornerback-competition/
