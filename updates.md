@@ -1,3 +1,7 @@
+**The Reason Economists Are Worried About Trump’s Labor Statistics Choices**\
+`Most of us just accept that government economic data is the best possible estimate of the economy. That could change, and that would be bad for all of us.`\
+https://nytimes.com/2025/08/13/opinion/trump-bls-nominee-antoni.html
+
 **Trump Administration Can Withhold Billions in Aid, Appeals Court Rules**\
 `In a 2-to-1 vote, a federal appeals court panel ruled that foreign aid groups that sued to recover funds that President Trump froze cannot challenge the decision.`\
 https://nytimes.com/2025/08/13/us/politics/foreign-aid-trump-appeals-ruling.html

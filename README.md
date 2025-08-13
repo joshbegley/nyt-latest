@@ -1,3 +1,7 @@
+**Top Iranian Official Visits Lebanon as Hezbollah Bucks Calls to Disarm**\
+`The visit by Ali Larijani, the head of Iran’s top security body, came as the Lebanese government moves to disarm Hezbollah, the militant group that has long been Tehran’s most powerful regional ally.`\
+https://nytimes.com/2025/08/13/world/europe/iran-lebanon-hezbollah-disarm.html
+
 **The Reason Economists Are Worried About Trump’s Labor Statistics Choices**\
 `Most of us just accept that government economic data is the best possible estimate of the economy. That could change, and that would be bad for all of us.`\
 https://nytimes.com/2025/08/13/opinion/trump-bls-nominee-antoni.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/13/opinion/britain-democrats-republicans-labour.html
 **Every Pan Has a Purpose. Here’s How to Know Which One You Need.**\
 `(No description)`\
 https://nytimes.com/newsgraphics/card-story/wc-how-to-choose-a-cooking-pan
-
-**A Nebraska football punter already won over coaches. After going viral, he’s capturing fans, too**\
-`Archie Wilson went from a feel-good camp storyline into a viral sensation when he spoke about the distance from his family in Australia.`\
-https://nytimes.com/athletic/6551686/2025/08/13/nebraska-football-punter-australian-archie-wilson/
 

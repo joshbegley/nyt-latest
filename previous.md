@@ -1,3 +1,7 @@
+**The Reason Economists Are Worried About Trump’s Labor Statistics Choices**\
+`Most of us just accept that government economic data is the best possible estimate of the economy. That could change, and that would be bad for all of us.`\
+https://nytimes.com/2025/08/13/opinion/trump-bls-nominee-antoni.html
+
 **Read the document**\
 `The criminal complaint charging the man who is accused of throwing a sandwich at a federal officer.`\
 https://nytimes.com/interactive/2025/08/13/us/sandwich-complaint.html
@@ -33,8 +37,4 @@ https://nytimes.com/newsgraphics/card-story/wc-how-to-choose-a-cooking-pan
 **A Nebraska football punter already won over coaches. After going viral, he’s capturing fans, too**\
 `Archie Wilson went from a feel-good camp storyline into a viral sensation when he spoke about the distance from his family in Australia.`\
 https://nytimes.com/athletic/6551686/2025/08/13/nebraska-football-punter-australian-archie-wilson/
-
-**Leonard Tow, Cable TV Magnate and a Major Philanthropist, Dies at 97**\
-`Once on the Forbes 400 list of richest Americans, he donated substantially to the arts, higher education, hospitals and criminal justice reform.`\
-https://nytimes.com/2025/08/13/business/media/leonard-tow-dead.html
 
