@@ -1,3 +1,15 @@
+**NWSL's Chicago Stars name Martin Sjögren as new head coach**\
+`Sjögren, who is currently head coach of Hammarby in Sweden’s top women’s flight, will join the club in January.`\
+https://nytimes.com/athletic/6549836/2025/08/13/chicago-stars-martin-sjogren-head-coach/
+
+**Jack Grealish to Everton: Everything you need to know - TLDR**\
+`Everton have completed the loan signing of the England international. Here, we break down the deal`\
+https://nytimes.com/athletic/6550736/2025/08/13/jack-grealish-everton-man-city/
+
+**It’s Always the Season for Lemon Spaghetti With Roasted Artichokes**\
+`This weeknight pasta comes together with ease — especially if you use an air fryer to burnish your canned or frozen artichoke hearts.`\
+https://nytimes.com/2025/08/13/dining/easy-lemon-pasta-recipe-for-canned-or-frozen-artichokes.html
+
 **Trump’s Affinity for Putin Will Be Tested at High-Risk Summit in Alaska**\
 `President Trump has largely held back from harsh criticism of Vladimir V. Putin personally, despite recent complaints about Russian intransigence in ending the war in Ukraine.`\
 https://nytimes.com/2025/08/13/us/politics/trump-putin-meeting-russia-ukraine.html
