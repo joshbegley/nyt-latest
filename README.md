@@ -1,3 +1,7 @@
+**Vance Meets Farage, Another Right-Wing Populist, in Britain**\
+`JD Vance, the vice president, sat down with Nigel Farage, a longtime supporter of President Trump whose party, Reform U.K., is leading in British polls.`\
+https://nytimes.com/2025/08/13/world/europe/jd-vance-nigel-farage-reform-uk.html
+
 **With Deep N.I.H. Cuts, Research Into Health Disparities Falters**\
 `In its campaign against “woke” science, the Trump administration has closed down studies and programs focused on the gaps between racial and socioeconomic groups.`\
 https://nytimes.com/2025/08/13/health/nih-grant-cancellations-dei.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6550156/2025/08/13/lakers-mailbag-lebron-giannis-jo
 **Sabres depth chart projection: 6 key questions about Buffalo's forward group**\
 `Lindy Ruff has some interesting decisions to make with a slightly shuffled roster heading into training camp.`\
 https://nytimes.com/athletic/6550299/2025/08/13/sabres-depth-chart-projection-forwards/
-
-**Why Ken Walker III could be the biggest beneficiary of the Seahawks' new offense**\
-`If the Seahawks' offensive line is indeed improved, the stars could be aligning for Walker to thrive in a contract year.`\
-https://nytimes.com/athletic/6549585/2025/08/13/kenneth-walker-iii-seahawks-kubiak/
 
