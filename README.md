@@ -1,3 +1,7 @@
+**Blue Jays midseason insights: All-Star aspirations, player extensions and ballpark plans**\
+`The Blue Jays have requested to host MLB's All-Star Game, president and CEO Mark Shapiro confirmed Tuesday.`\
+https://nytimes.com/athletic/6550172/2025/08/12/blue-jays-midseason-insights/
+
 **Taking stock of Chargers' 'really competitive' cornerback competition**\
 `Najee Harris also made some progress in his return from his fireworks-related eye injury, running with a football off to the side. `\
 https://nytimes.com/athletic/6550199/2025/08/12/chargers-training-camp-cornerback-competition/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6550103/2025/08/12/johansen-flyers-contract-dispute
 **Mentally Ill Detainees Are Trapped in Legal Limbo, Lawsuit Says**\
 `A suit accuses New York State’s mental health system of delaying treatment to restore people to competency, leaving them to languish on Rikers Island.`\
 https://nytimes.com/2025/08/12/nyregion/rikers-mentally-ill-lawsuit-nyc.html
-
-**New Video Shows Uvalde School Chief Trying to Negotiate With Gunman**\
-`The video, part of a trove of materials that authorities had refused to release, shows the minutes in which a commander tried to talk to a gunman barricaded in a room with dozens of children.`\
-https://nytimes.com/2025/08/12/us/uvalde-documents-video-arredondo.html
 
