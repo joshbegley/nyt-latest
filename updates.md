@@ -1,3 +1,11 @@
+**'Let's play football': James Cook, with a smile and a tear, signs long-awaited extension with Bills**\
+`The running back and the team had been at an impasse before reaching a deal.`\
+https://nytimes.com/athletic/6552059/2025/08/13/james-cook-with-a-smile-and-a-tear-signs-long-awaited-extension-with-bills-lets-play-football/
+
+**3 Arrested in $2 Million Heist From Brinks Truck in Philadelphia**\
+`One of the suspects is a former Brinks employee who had recently been fired. The robbery was one of five similar crimes in the area in less than two months.`\
+https://nytimes.com/2025/08/13/us/armored-truck-robberies-philadelphia.html
+
 **Lionel Taylor, Denver Broncos Ring of Fame WR, dies at 89**\
 `Taylor was the first player in league history to have 100 receptions in a season.`\
 https://nytimes.com/athletic/6552188/2025/08/13/lionel-taylor-denver-broncos-ring-of-fame-wr-dies-at-89/
