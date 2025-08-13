@@ -1,3 +1,19 @@
+**Answering crucial fantasy football draft questions at running back**\
+`The Athletic fantasy football experts share their opinions on Ashton Jeanty, Christian McCaffrey and many more at the RB position.`\
+https://nytimes.com/athletic/6549327/2025/08/13/fantasy-football-2025-running-back-roundtable/
+
+**Kent Lacob is leaving the Warriors: How the owner's son came to a huge decision**\
+`"I'm incredibly grateful for it," Kent says of the opportunity to work for father Joe with the Warriors. But for him, it's time to move on.`\
+https://nytimes.com/athletic/6548292/2025/08/13/kent-lacob-warriors-vp-leaving/
+
+**Roma in talks to sign Villa winger Bailey**\
+`Bailey has made 144 appearances for Villa but was used sparingly last season and started only 14 league games. `\
+https://nytimes.com/athletic/6397085/2025/08/13/leon-bailey-roma-talks-aston-villa-transfers/
+
+**Whose stock is up (or down) as the 49ers hit the home stretch of training camp?**\
+`An undrafted rookie running back caught Kyle Shanahan's eye, and Marques Sigle's ascent at safety is putting pressure on two veterans.`\
+https://nytimes.com/athletic/6549947/2025/08/13/49ers-preseason-training-camp-corey-kiner/
+
 **Some Juneau Residents Evacuate as Melting Glacier Threatens to Flood Town**\
 `The Mendenhall River in Alaska was at “major flood” stage as of Wednesday morning, with additional water expected from an overflowing glacial lake.`\
 https://nytimes.com/2025/08/13/climate/alaska-juneau-flood-glacier.html
