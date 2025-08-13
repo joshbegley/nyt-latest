@@ -1,3 +1,7 @@
+**Europe Battles Deadly Wildfires as High Winds Fuel Flames**\
+`Firefighters were struggling to tame blazes in several countries in southern Europe, including Albania, Greece, Montenegro and Spain, and in Turkey.`\
+https://nytimes.com/2025/08/13/world/europe/wildfires-deadly-spain-greece-turkey-albania-montenegro.html
+
 **Denny Hamlin on how much drivers impact NASCAR success and more: 12 Questions**\
 `Denny Hamlin talks about his revised career timeline, how much the car has to do with winning and more in the latest 12 Questions.`\
 https://nytimes.com/athletic/6546922/2025/08/13/denny-hamlin-nascar-drivers-career-retirement-12-questions/
