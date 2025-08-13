@@ -1,3 +1,15 @@
+**American Influencer Stuck Off Antarctica for 6 Weeks Says It’s ‘Isolating and Lonely’**\
+`Ethan Guo, a 20-year-old pilot and content creator, said that he has been effectively trapped at a Chilean base since June. The authorities had said he landed there without permission.`\
+https://nytimes.com/2025/08/13/world/americas/ethan-guo-pilot-antarctica-chile.html
+
+**Giants pass rush torments Jets for second straight practice, but run defense looks shaky**\
+`Everything you need to know from the Giants' second day of joint practice with the Jets. `\
+https://nytimes.com/athletic/6552063/2025/08/13/ny-giants-jets-practice-brian-burns/
+
+**With a 12-win game streak, Brewers give their fans something else to cheer about — free burgers**\
+`The Brewers swept the Pittsburgh Pirates with a 12-5 win, setting up a chance to tie their club-record win streak on Friday in Cincinnati.`\
+https://nytimes.com/athletic/6552074/2025/08/13/mlb-brewers-burgers-win-streak/
+
 **Billy Howton, Top Green Bay Packers Receiver in the ’50s, Dies at 95**\
 `He retired as the N.F.L.’s leading career receiver but was soon surpassed. In retirement, he went to prison for bilking investors in an $8 million fraud.`\
 https://nytimes.com/2025/08/13/sports/football/billy-howton-dead.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/08/13/us/politics/trump-putin-russian-threats.html
 **Man Charged With Assaulting Federal Agent With Sandwich in D.C.**\
 `A video showed a man repeatedly calling a group of officers “fascists” before throwing a sub sandwich at one.`\
 https://nytimes.com/2025/08/13/us/politics/federal-agent-trump-sandwich-dc.html
-
-**Thursday Briefing: Air Conditioning Politics**\
-`Also, Trump spoke with European leaders ahead of his talks with Putin.`\
-https://nytimes.com/2025/08/13/briefing/thursday-briefing-air-conditioning-politics.html
-
-**Behind Wall Street’s Abrupt Flip on Crypto**\
-`The reversal risks declawing a century of consumer financial protections and replacing the backbone of bank accounts.`\
-https://nytimes.com/2025/08/13/business/wall-street-banks-crypto-stablecoins.html
-
-**Historians Alarmed by White House Plan to Oversee Smithsonian Exhibits**\
-`The Trump administration’s plan to, in effect, audit the content of Smithsonian museums drew criticism from groups that represent scholars and promote free speech.`\
-https://nytimes.com/2025/08/13/arts/design/trump-smithsonian-exhibits-review-historians-alarmed.html
 

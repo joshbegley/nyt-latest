@@ -1,3 +1,15 @@
+**Billy Howton, Top Green Bay Packers Receiver in the ’50s, Dies at 95**\
+`He retired as the N.F.L.’s leading career receiver but was soon surpassed. In retirement, he went to prison for bilking investors in an $8 million fraud.`\
+https://nytimes.com/2025/08/13/sports/football/billy-howton-dead.html
+
+**PSG 2-2 Tottenham (4-3 pens): Spurs let 2-0 lead slip in closing stages to miss out on UEFA Super Cup**\
+`The Athletic's writers analyse Wednesday's UEFA Super Cup Final `\
+https://nytimes.com/athletic/6551757/2025/08/13/psg-tottenham-super-cup-result-analysis/
+
+**Man Charged With Harassing Family of Slain UnitedHealth C.E.O.**\
+`Shane Daley of Galway, N.Y., left mocking and threatening messages for a family member of Brian Thompson, who was fatally shot in Manhattan last year, according to charges filed Wednesday.`\
+https://nytimes.com/2025/08/13/nyregion/united-health-care-harassment-charges.html
+
 **Canada Has Its Second-Worst Wildfire Season on Record**\
 `Thousands have been evacuated as quick moving wildfires burn in Eastern Canada.`\
 https://nytimes.com/2025/08/13/world/canada/canada-wildfire-season-newfoundland-saskatchewan.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/08/13/business/wall-street-banks-crypto-stablecoins.htm
 **Historians Alarmed by White House Plan to Oversee Smithsonian Exhibits**\
 `The Trump administration’s plan to, in effect, audit the content of Smithsonian museums drew criticism from groups that represent scholars and promote free speech.`\
 https://nytimes.com/2025/08/13/arts/design/trump-smithsonian-exhibits-review-historians-alarmed.html
-
-**Mr. President, Stop Coddling Putin**\
-`Ukrainians are heroes. It’s time that Trump started acting like it.`\
-https://nytimes.com/2025/08/13/opinion/trump-putin-summit-ukraine.html
-
-**U.S. Drinking Drops to New Low, Poll Finds**\
-`The results signal a shift after a recent uptick in drinking among middle-aged adults in particular.`\
-https://nytimes.com/2025/08/13/well/us-alcohol-drinking-low-poll.html
-
-**Trump Talks Honorees, National Guard in D.C. and Russia at Kennedy Center**\
-`President Donald J. Trump said that he would be hosting the Kennedy Center Honors himself in December and announced the honorees, which included Sylvester Stallone and Gloria Gaynor. Mr. Trump then focused most of his remarks on the National Guard being deployed to Washington.`\
-https://nytimes.com/video/us/politics/100000010338772/trump-ukraine-russia-national-guard.html
 
