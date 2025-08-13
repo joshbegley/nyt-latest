@@ -1,3 +1,15 @@
+**A Desperate Flight as Russia Closes In**\
+`Russian forces have been closing in on the eastern Ukrainian city of Dobropillia, prompting urgent evacuations of residents just six miles from the front line.`\
+https://nytimes.com/card/2025/08/13/world/europe/ukraine-war-evacuation-dobropillia
+
+**Venus Williams headlines U.S. Open wild cards with 25th appearance in singles draw**\
+`Williams is a two-time singles champion at the U.S. Open and will make her first appearance since 2023.`\
+https://nytimes.com/athletic/6550579/2025/08/13/tennis-us-open-wild-cards-venus-williams/
+
+**Premier League relegation odds: Will any of the newly promoted sides stay up?**\
+`The three newly-promoted sides have all gone back down the last two Premier League seasons. Will that continue this season?`\
+https://nytimes.com/athletic/6549513/2025/08/13/premier-league-relegation-odds-leads-sunderland-burnley/
+
 **NWSL's Chicago Stars name Martin Sjögren as new head coach**\
 `Sjögren, who is currently head coach of Hammarby in Sweden’s top women’s flight, will join the club in January.`\
 https://nytimes.com/athletic/6549836/2025/08/13/chicago-stars-martin-sjogren-head-coach/
