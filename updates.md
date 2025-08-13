@@ -1,3 +1,7 @@
+**Flash Floods Trap Cars on Tennessee Highway**\
+`A car swirled around in a muddy whirlpool as rescue teams helped people evacuate from flooded homes in Chattanooga, Tenn.`\
+https://nytimes.com/video/weather/100000010337632/flooding-chattanooga-tennessee.html
+
 **Barcelona 2025-26 season preview: Next-level Yamal, high-line worries and Rashford's new role**\
 `Barca get their La Liga title defence up and running on Saturday night when they visit Mallorca`\
 https://nytimes.com/athletic/6548280/2025/08/13/barcelona-la-liga-new-season-preview-yamal-rashford/
