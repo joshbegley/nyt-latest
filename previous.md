@@ -1,40 +1,40 @@
-**10 fantasy football targets who can go from trash to treasure in 2025**\
-`Jake Ciely details players tossed aside due to poor performances last season who could be fantasy gold in 2025. `\
-https://nytimes.com/athletic/6549661/2025/08/13/fantasy-football-2025-bounce-back-players/
+**The Ravens’ biggest weapon might be Derrick Henry’s empty stomach**\
+`Henry is north of 30, an age when his production should be in decline. So how is he still getting better?`\
+https://nytimes.com/athletic/6547155/2025/08/13/derrick-henry-ravens-diet-nfl/
 
-**The New York Times International Edition in Print for Thursday, Aug. 14, 2025**\
-``\
-https://nytimes.com/issue/todaysinyt/2025/08/13/todays-new-york-times-international-edition
+**Israel Hasn’t Prosecuted a Single Suspect for the Oct. 7 Attack**\
+`Israel has extensively documented the 2023 Hamas-led assault and is believed to be holding at least 200 Palestinians suspected of involvement. Not one has been charged or put on trial.`\
+https://nytimes.com/2025/08/13/world/middleeast/israel-oct-7-palestinians-trial.html
 
-**Fantasy football targets and fades: Navigating the draft's first eight rounds**\
-`Dalton Del Don helps you navigate the minefield of your fantasy football drafts by sharing his targets and fades for the first eight rounds.`\
-https://nytimes.com/athletic/6549091/2025/08/13/fantasy-football-draft-targets-fades-nabers/
+**Yankees' Giancarlo Stanton on pace for his best season yet: What's different**\
+`If he can continue this trend, don't be surprised if he finishes with the best numbers he's had in pinstripes.`\
+https://nytimes.com/athletic/6550338/2025/08/13/ny-yankees-giancarlo-stanton-swing-change/
 
-**Steve Buscemi Is Glad He Took That Leap**\
-`Born on the unluckiest of days, the 67-year-old has built an enviable roster of affable malcontents. With his debut on Season 2 of “Wednesday,” he adds to his legend.`\
-https://nytimes.com/2025/08/13/arts/television/steve-buscemi-wednesday-profile.html
+**Who will survive Chiefs' roster bubble at receiver? Where each candidate stands**\
+`Here's how Rashee Rice's status — and special teams — could shift the landscape of the Chiefs' end-of-roster battle at receiver.`\
+https://nytimes.com/athletic/6549350/2025/08/13/chiefs-wide-receiver-roster-bubble/
 
-**When Is It Genocide?**\
-`Philippe Sands discusses how to think about the tragedies in Gaza through the lens of international law.`\
-https://nytimes.com/2025/08/13/opinion/ezra-klein-podcast-philippe-sands.html
+**How to watch the BMW Championship, the second leg of the FedEx Cup playoffs**\
+`The FedEx Cup playoffs continue at a renovated Caves Valley Golf Club this weekend, and only 30 golfers will advance to the final event.`\
+https://nytimes.com/athletic/6548895/2025/08/13/bmw-championship-playoffs-golf-weather-how-to-watch-2025/
 
-**Trump Will Visit Kennedy Center to Announce New Honorees**\
-`The president has taken a strong interest in the Kennedy Center’s affairs ever since naming himself chairman in February, when he restocked its traditionally bipartisan board with loyalists.`\
-https://nytimes.com/2025/08/13/us/politics/trump-kennedy-center-nominees.html
+**'Unguardable' with 'freaky lateral quickness': Hunter Renfrow returns to where he broke out**\
+`After missing last season with a health issue, Hunter Renfrow is "unguardable" according to one teammate and working to regain his magic.`\
+https://nytimes.com/athletic/6549761/2025/08/13/panthers-hunter-renfrow-receiver-roster/
 
-**How a U.S. Senate Race Is Shaping the Fight Over Redistricting in Texas**\
-`Senator John Cornyn and Attorney General Ken Paxton are vying to be the tougher candidate on Democratic lawmakers who left Texas, as potential Democratic rivals seek their own spotlight.`\
-https://nytimes.com/2025/08/13/us/politics/texas-redistricting-senate.html
+**Miguel Andujar, acquired to crush left-handed pitching, delivering big for Reds**\
+`Since joining the Reds, Andújar has helped transform their lineup, hitting .991 OPS against lefties and sparking key wins.`\
+https://nytimes.com/athletic/6550353/2025/08/13/miguel-andujar-crush-lefties/
 
-**The Hidden Meaning of ‘And Just Like That…’**\
-`Every generation gets the “Sex and the City” version it deserves.`\
-https://nytimes.com/2025/08/13/opinion/and-just-like-that-finale.html
+**Aaron Donald was one of the NFL's toughest players. A stalker left him living in fear**\
+`Though most stalking victims are women, the issue remains deeply problematic for all athletes.`\
+https://nytimes.com/athletic/6543065/2025/08/13/aaron-donald-stalker-rams-nfl/
 
-**Why Cristiano Ronaldo’s Engagement Raised Eyebrows in Saudi Arabia**\
-`The soccer star has been living in the country with Georgina Rodríguez, the mother of his children, testing the boundaries of social change in the conservative Islamic kingdom.`\
-https://nytimes.com/2025/08/13/world/middleeast/ronaldo-engagement-saudi-arabia.html
+**Packers believe we've yet to see best version of Jordan Love: 'He can be one of the elites'**\
+`Love has all the talent, Packers coach Matt LaFleur said, but the QB still needs to do two things to prove himself: stay healthy and win. `\
+https://nytimes.com/athletic/6549007/2025/08/13/packers-jordan-love-elite-matt-lafleur/
 
-**Trump and Putin Could Decide Others’ Fates, Echoing Yalta Summit**\
-`In 1945, the map of Europe was redrawn in Yalta without input from the affected countries. Ukraine and Europe fear a repeat in Alaska.`\
-https://nytimes.com/2025/08/13/world/europe/yalta-trump-putin-meeting-alaska.html
+**Kepner: The Mets must to do right by Pete Alonso, and keep him in Queens for good**\
+`No matter the metrics, no matter the market, Alonso is different. That should be obvious by now.`\
+https://nytimes.com/athletic/6550451/2025/08/13/new-york-mets-pete-alonso-long-term-contract/
 
