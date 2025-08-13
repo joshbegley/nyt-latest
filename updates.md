@@ -1,3 +1,11 @@
+**Man Utd in 'no man's land', 'actual transition hasn't started yet', says Rashford**\
+`Rashford has made 426 appearances for Manchester United under five of Ferguson's six permanent successors. `\
+https://nytimes.com/athletic/6550558/2025/08/13/marcus-rashford-podcast-manchester-united-no-mans-land/
+
+**Spurs confirm Romero as new captain after Son exit**\
+`Romero will lead the team out for Tottenham’s first official game under Thomas Frank in the Super Cup against PSG on Wednesday.`\
+https://nytimes.com/athletic/6550560/2025/08/13/tottenham-captain-new-who/
+
 **Bournemouth confirm Diakite signing from Lille**\
 `The €35million (£30.3m) plus €5m fee represents the second biggest transfer fee Bournemouth have paid in their history.`\
 https://nytimes.com/athletic/6545238/2025/08/13/bournemouth-bafode-diakite-transfer-confirmed/
