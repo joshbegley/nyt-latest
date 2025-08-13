@@ -1,3 +1,5 @@
+
+
 **Blue Jays midseason insights: All-Star aspirations, player extensions and ballpark plans**\
 `The Blue Jays have requested to host MLB's All-Star Game, president and CEO Mark Shapiro confirmed Tuesday.`\
 https://nytimes.com/athletic/6550172/2025/08/12/blue-jays-midseason-insights/
