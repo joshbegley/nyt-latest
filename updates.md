@@ -1,3 +1,7 @@
+**Manchester United under-21 game abandoned after Sekou Kone head injury**\
+`Kone fell to the ground following a clash of heads with a Tamworth player towards the end of the first half at the Lamb Ground.`\
+https://nytimes.com/athletic/6552020/2025/08/13/man-united-news-sekou-kone-head-injury/
+
 **Trump Talks Honorees, National Guard in D.C. and Russia at Kennedy Center**\
 `President Donald J. Trump said that he would be hosting the Kennedy Center Honors himself in December and announced the honorees, which included Sylvester Stallone and Gloria Gaynor. Mr. Trump then focused most of his remarks on the National Guard being deployed to Washington.`\
 https://nytimes.com/video/us/politics/100000010338772/trump-ukraine-russia-national-guard.html
