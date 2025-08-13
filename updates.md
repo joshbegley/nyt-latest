@@ -1,3 +1,11 @@
+**Florida Approves First Black Bear Hunt Since 2015**\
+`State wildlife officials say a regulated hunt is needed to manage the bear population. Opponents say the new rules will lead to trophy hunting.`\
+https://nytimes.com/2025/08/13/us/florida-approves-first-black-bear-hunt-since-2015.html
+
+**At Least 26 Migrants Drown Off the Italian Island of Lampedusa**\
+`Sixty people survived after two boats with nearly 100 migrants capsized. The causes of the shipwrecks were not clear, Italian officials and U.N. agencies said. The death toll is likely to grow.`\
+https://nytimes.com/2025/08/13/world/europe/migrants-drown-lampedusa-italy.html
+
 **Tiny Love Stories: ‘It’s Our Secret’**\
 `Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
 https://nytimes.com/2025/08/13/style/tiny-modern-love-stories-its-our-secret.html
