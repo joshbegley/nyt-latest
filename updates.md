@@ -1,3 +1,15 @@
+**Read the document**\
+`The criminal complaint charging the man who is accused of throwing a sandwich at a federal officer.`\
+https://nytimes.com/interactive/2025/08/13/us/sandwich-complaint.html
+
+**Trump Administration Can Withhold Billions in Aid, Appeals Court Rules**\
+`In a 2-to-1 vote, a federal appeals court panel ruled that foreign aid groups who sued to recover funds that President Trump froze cannot challenge the decision.`\
+https://nytimes.com/2025/08/13/us/politics/foreign-aid-trump-appeals-ruling.html
+
+**'Everything happened pretty fast:' Penix ends up on bottom of pile in Falcons-Titans fight**\
+`The Falcons and Titans saw Wednesday's joint practice stopped for several minutes after a fight broke out between the teams.`\
+https://nytimes.com/athletic/6551717/2025/08/13/michael-penix-falcons-titans-fight-preseason/
+
 **The ‘Womanosphere’ Is Booming. No Wonder Katie Miller Hopped Aboard.**\
 `The wife of Stephen Miller, who recently worked for Elon Musk, has joined a fast-growing world of conservative podcasters offering women lifestyle advice.`\
 https://nytimes.com/2025/08/13/style/katie-miller-podcast.html
