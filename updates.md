@@ -1,3 +1,15 @@
+**Barcelona 2025-26 season preview: Next-level Yamal, high-line worries and Rashford's new role**\
+`Barca get their La Liga title defence up and running on Saturday night when they visit Mallorca`\
+https://nytimes.com/athletic/6548280/2025/08/13/barcelona-la-liga-new-season-preview-yamal-rashford/
+
+**Picking Manchester United's 2025-26 breakthrough player - Leny Yoro**\
+`Leny Yoro endured plenty of frustration during his first year at Manchester United but those who work with him have high expectations`\
+https://nytimes.com/athletic/6549723/2025/08/13/manchester-united-breakthrough-player-leny-yoro/
+
+**Wednesday Briefing: Russian Forces Advance in Ukraine**\
+`Also, interviewing a former Palestinian militia leader.`\
+https://nytimes.com/2025/08/13/briefing/ukraine-russia-zakaria-zubeidi-europe-wildfires.html
+
 **Braves are hitting now, but pitching has faltered, and Spencer Strider got rocked again**\
 `Pitching is the main culprit for Atlanta's 9-15 record since the break, including a 13-5 rout Tuesday by the New York Mets.`\
 https://nytimes.com/athletic/6550335/2025/08/13/braves-hitting-pitching-falters-spencer-strider/
