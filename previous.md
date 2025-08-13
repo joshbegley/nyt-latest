@@ -3,7 +3,7 @@
 https://nytimes.com/interactive/2025/08/13/us/sandwich-complaint.html
 
 **Trump Administration Can Withhold Billions in Aid, Appeals Court Rules**\
-`In a 2-to-1 vote, a federal appeals court panel ruled that foreign aid groups who sued to recover funds that President Trump froze cannot challenge the decision.`\
+`In a 2-to-1 vote, a federal appeals court panel ruled that foreign aid groups that sued to recover funds that President Trump froze cannot challenge the decision.`\
 https://nytimes.com/2025/08/13/us/politics/foreign-aid-trump-appeals-ruling.html
 
 **The ‘Womanosphere’ Is Booming. No Wonder Katie Miller Hopped Aboard.**\
@@ -30,7 +30,7 @@ https://nytimes.com/2025/08/13/opinion/britain-democrats-republicans-labour.html
 `(No description)`\
 https://nytimes.com/newsgraphics/card-story/wc-how-to-choose-a-cooking-pan
 
-**Nebraska football's 2-footed Australian punter has won over coaches — and hearts**\
+**A Nebraska football punter already won over coaches. After going viral, he’s capturing fans, too**\
 `Archie Wilson went from a feel-good camp storyline into a viral sensation when he spoke about the distance from his family in Australia.`\
 https://nytimes.com/athletic/6551686/2025/08/13/nebraska-football-punter-australian-archie-wilson/
 
