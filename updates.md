@@ -1,3 +1,7 @@
+**Pakistan Is in Trump’s Good Graces, but for How Long?**\
+`President Trump hosted the South Asian nation’s army chief and seeks deals on critical minerals and crypto. But Pakistan is also tightening its military partnership with China.`\
+https://nytimes.com/2025/08/13/world/africa/pakistan-trump-munir.html
+
 **Manchester City season betting preview: Can Citizens recover dynastic dominance?**\
 `No longer the defending champs, Man City have an uphill battle to reclaim dominance over Liverpool.`\
 https://nytimes.com/athletic/6547176/2025/08/13/manchester-city-season-betting-preview-odds/

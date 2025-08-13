@@ -1,3 +1,7 @@
+**Pakistan Is in Trump’s Good Graces, but for How Long?**\
+`President Trump hosted the South Asian nation’s army chief and seeks deals on critical minerals and crypto. But Pakistan is also tightening its military partnership with China.`\
+https://nytimes.com/2025/08/13/world/africa/pakistan-trump-munir.html
+
 **Manchester City season betting preview: Can Citizens recover dynastic dominance?**\
 `No longer the defending champs, Man City have an uphill battle to reclaim dominance over Liverpool.`\
 https://nytimes.com/athletic/6547176/2025/08/13/manchester-city-season-betting-preview-odds/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6546201/2025/08/13/wrexham-hull-palmer-league-cup/
 **Padres pull even with Dodgers in NL West, claiming latest share of first place since 2010**\
 `With a pair of weekend series coming up against Los Angeles, the Padres will soon have the opportunity to speed past the Dodgers.`\
 https://nytimes.com/athletic/6550438/2025/08/13/padres-dodgers-nl-west-race/
-
-**The New York Times in Print for Wednesday, Aug. 13, 2025**\
-``\
-https://nytimes.com/issue/todayspaper/2025/08/13/todays-new-york-times
 
