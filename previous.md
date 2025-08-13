@@ -1,3 +1,7 @@
+**Brock Stewart, the Dodgers' primary bullpen deadline addition, hits the injured list**\
+`Stewart has right shoulder inflammation after just four appearances with the team.`\
+https://nytimes.com/athletic/6550224/2025/08/12/dodgers-brock-stewart-injured-list/
+
 **Changing her tone, the mayor of Washington condemns Trump’s deployment of the National Guard.**\
 `By Ashley Ahn`\
 https://nytimes.com/live/2025/08/12/us/trump-news/dc-mayor-bowser-trump-national-guard
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/12/world/americas/guatemala-convictions-deadly-fire.
 **Trump Misstates Washington Crime Data to Justify Takeover**\
 `The president cited a number of false and misleading claims about homicides and youth crime in the nation’s capital.`\
 https://nytimes.com/2025/08/12/us/politics/trump-dc-crime-data-fact-check.html
-
-**Mets' Pete Alonso passes Darryl Strawberry as franchise's all-time home run leader**\
-`Alonso’s 253rd career home run came in his 965th game and 4,118th plate appearance.`\
-https://nytimes.com/athletic/6550142/2025/08/12/new-york-mets-pete-alonso-hr-record/
 

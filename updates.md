@@ -1,3 +1,7 @@
+**Brock Stewart, the Dodgers' primary bullpen deadline addition, hits the injured list**\
+`Stewart has right shoulder inflammation after just four appearances with the team.`\
+https://nytimes.com/athletic/6550224/2025/08/12/dodgers-brock-stewart-injured-list/
+
 **Changing her tone, the mayor of Washington condemns Trump’s deployment of the National Guard.**\
 `By Ashley Ahn`\
 https://nytimes.com/live/2025/08/12/us/trump-news/dc-mayor-bowser-trump-national-guard
