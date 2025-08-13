@@ -1,3 +1,7 @@
+**Why Investors Are Again Euphoric About Interest Rates**\
+`The S&P 500 is approaching a record on bets that Federal Reserve will lower borrowing costs despite uncertainty over President Trump’s trade war.`\
+https://nytimes.com/2025/08/13/business/dealbook/market-rally-interest-rates-trump.html
+
 **Meet the 49ers undrafted rookie (with a superhero nickname) pushing for a roster spot**\
 `Four years ago, Sebastian Valdez was a 235-pounder at Montana State. Now, he's turning heads in NFL games and drawing the nickname "Hulk."`\
 https://nytimes.com/athletic/6550226/2025/08/13/49ers-rookie-sebastian-valdez-hulk/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/13/world/middleeast/israel-gaza-plan-military-govern
 **Bills, James Cook agree 4-year, $48m contract extension: Source**\
 `The $12m per season average sees Cook's new deal rank sixth in average annual value for running backs.`\
 https://nytimes.com/athletic/6547384/2025/08/13/james-cook-bills-contract-extension/
-
-**Trump Administration Live Updates: President to Speak With Zelensky and European Allies on Ukraine**\
-``\
-https://nytimes.com/live/2025/08/13/us/trump-news
 
