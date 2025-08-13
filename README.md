@@ -1,3 +1,7 @@
+**Trump Administration Live Updates: President to Speak With Zelensky and European Allies on Ukraine**\
+``\
+https://nytimes.com/live/2025/08/13/us/trump-news
+
 **Three notable Ohio State camp developments: Why isn't there a starting QB yet?**\
 `As Ohio State's QB battle between Julian Sayin and Lincoln Kienholz continues, there have been breakout stars emerging on the lines.`\
 https://nytimes.com/athletic/6549546/2025/08/13/ohio-state-qb-position-battles-camp/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6549855/2025/08/13/gio-reyna-transfer-borussia-dort
 **Rockets fan survey: Are the Rockets finally a title contender? Voice your opinion**\
 `Share your opinion on the state of the Rockets heading into a big season for the franchise.`\
 https://nytimes.com/athletic/6549153/2025/08/13/rockets-fan-survey-title-contender/
-
-**MLB history watch for August — and the rest of the season**\
-`If you’re wondering what’s at stake over the next month and a half, remember that it isn’t only the last few playoff spots. It's history!`\
-https://nytimes.com/athletic/6550184/2025/08/13/mlb-history-august-2025-season/
 

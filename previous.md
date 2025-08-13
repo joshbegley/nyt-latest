@@ -1,3 +1,15 @@
+**Three notable Ohio State camp developments: Why isn't there a starting QB yet?**\
+`As Ohio State's QB battle between Julian Sayin and Lincoln Kienholz continues, there have been breakout stars emerging on the lines.`\
+https://nytimes.com/athletic/6549546/2025/08/13/ohio-state-qb-position-battles-camp/
+
+**How close is Michigan to a starting offense? Predicting the depth chart for Week 1**\
+`With a few exceptions, projecting Michigan’s starters was pretty easy. But there's still plenty to be decided on the depth chart.`\
+https://nytimes.com/athletic/6549273/2025/08/13/michigan-football-depth-chart-offense-2025/
+
+**Down to Business: How beauty brands are making up for lost time and tapping into women’s sports**\
+`Down to Business with Asli Pelit takes you through the exciting, fast-paced (and sometimes confusing) corporate side of women's soccer.`\
+https://nytimes.com/athletic/6549289/2025/08/13/beauty-brands-womens-sports-sponsors-down-to-business/
+
 **TAFC: Donnarumma - from Champions League hero to PSG exit in three months? Plus: EPL hope-o-meter**\
 `Today in TAFC: Donnarumma on cusp of PSG exit, an ex-Premier League star's drug conviction and our hope-o-meter.`\
 https://nytimes.com/athletic/6550512/2025/08/13/donnarumma-psg-champions-league/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6549153/2025/08/13/rockets-fan-survey-title-contend
 **MLB history watch for August — and the rest of the season**\
 `If you’re wondering what’s at stake over the next month and a half, remember that it isn’t only the last few playoff spots. It's history!`\
 https://nytimes.com/athletic/6550184/2025/08/13/mlb-history-august-2025-season/
-
-**Meet Phillies prospect Matthew Fisher, the big bonus pitcher with football roots**\
-`The former All-State QB's athleticism and strike-throwing impressed the Phillies, who gave him a record signing bonus for a seventh-rounder.`\
-https://nytimes.com/athletic/6549559/2025/08/13/matthew-fisher-phillies-prospect-mlb-draft/
-
-**Zinchenko on the 'worst season' of his career: 'A player who doesn’t play is nothing'**\
-`The Ukraine international started only five Premier League matches for Arsenal last season – and says he blames only himself`\
-https://nytimes.com/athletic/6548948/2025/08/13/arsenal-zinchenko-transfer-playing/
-
-**Steelers training camp is over, but focus on young OTs only intensifying**\
-`The two recent first-rounders will be charged with protecting Aaron Rodgers this season.`\
-https://nytimes.com/athletic/6549966/2025/08/13/broderick-jones-troy-fautanu-steelers-starting-ots/
 
