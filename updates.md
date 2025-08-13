@@ -1,3 +1,7 @@
+**Shohei Ohtani, the one who got away, pitches vs. the Angels. Here's how to watch**\
+`Here's how to watch Shohei Ohtani hit and pitch against his former team on Wednesday night.`\
+https://nytimes.com/athletic/6549616/2025/08/13/shohei-ohtani-dodgers-angels-hitting-pitching-how-to-watch/
+
 **Typhoon Podul Heads Toward China After Lashing Taiwan**\
 `A man was swept away while fishing and dozens of other people were injured as strong winds and rain battered the island.`\
 https://nytimes.com/2025/08/13/world/asia/typhoon-podul-taiwan-china.html
