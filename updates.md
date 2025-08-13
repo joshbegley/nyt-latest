@@ -1,3 +1,11 @@
+**Typhoon Podul Heads Toward China After Lashing Taiwan**\
+`A man was swept away while fishing and dozens of other people were injured as strong winds and rain battered the island.`\
+https://nytimes.com/2025/08/13/world/asia/typhoon-podul-taiwan-china.html
+
+**Why do Newcastle want Jacob Ramsey and what would selling mean for Aston Villa?**\
+`The midfielder is a key target for Eddie Howe and his sale would enable Unai Emery to advance his own transfer plans`\
+https://nytimes.com/athletic/6550591/2025/08/13/jacob-ramsey-newcastle-aston-villa/
+
 **The Ravens’ biggest weapon might be Derrick Henry’s empty stomach**\
 `Henry is north of 30, an age when his production should be in decline. So how is he still getting better?`\
 https://nytimes.com/athletic/6547155/2025/08/13/derrick-henry-ravens-diet-nfl/

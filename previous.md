@@ -1,3 +1,11 @@
+**Typhoon Podul Heads Toward China After Lashing Taiwan**\
+`A man was swept away while fishing and dozens of other people were injured as strong winds and rain battered the island.`\
+https://nytimes.com/2025/08/13/world/asia/typhoon-podul-taiwan-china.html
+
+**Why do Newcastle want Jacob Ramsey and what would selling mean for Aston Villa?**\
+`The midfielder is a key target for Eddie Howe and his sale would enable Unai Emery to advance his own transfer plans`\
+https://nytimes.com/athletic/6550591/2025/08/13/jacob-ramsey-newcastle-aston-villa/
+
 **The Ravens’ biggest weapon might be Derrick Henry’s empty stomach**\
 `Henry is north of 30, an age when his production should be in decline. So how is he still getting better?`\
 https://nytimes.com/athletic/6547155/2025/08/13/derrick-henry-ravens-diet-nfl/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6550353/2025/08/13/miguel-andujar-crush-lefties/
 **Aaron Donald was one of the NFL's toughest players. A stalker left him living in fear**\
 `Though most stalking victims are women, the issue remains deeply problematic for all athletes.`\
 https://nytimes.com/athletic/6543065/2025/08/13/aaron-donald-stalker-rams-nfl/
-
-**Packers believe we've yet to see best version of Jordan Love: 'He can be one of the elites'**\
-`Love has all the talent, Packers coach Matt LaFleur said, but the QB still needs to do two things to prove himself: stay healthy and win. `\
-https://nytimes.com/athletic/6549007/2025/08/13/packers-jordan-love-elite-matt-lafleur/
-
-**Kepner: The Mets must to do right by Pete Alonso, and keep him in Queens for good**\
-`No matter the metrics, no matter the market, Alonso is different. That should be obvious by now.`\
-https://nytimes.com/athletic/6550451/2025/08/13/new-york-mets-pete-alonso-long-term-contract/
 
