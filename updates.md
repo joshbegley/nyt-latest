@@ -1,3 +1,11 @@
+**Joe Flacco continues to get majority of No. 1 reps as injuries pile up in Browns' QB room**\
+`The 40-year-old Flacco is the only QB to begin camp with Cleveland who hasn't been at least limited by an injury on multiple days. `\
+https://nytimes.com/athletic/6552035/2025/08/13/joe-flacco-browns-eagles-joint-practice/
+
+**Overlooked No More: Molly Drake, a Maternal, Musical Force Behind Nick Drake’s Sound**\
+`She was a poet, singer, composer and pianist whose melancholic home recordings from the 1950s hit on universal themes of despair, heartbreak, longing and loss.`\
+https://nytimes.com/2025/08/13/obituaries/molly-drake-overlooked.html
+
 **Lions joint practice takeaways: A dominating day on both sides vs. the Dolphins**\
 `Amon-Ra St. Brown and Jared Goff were sharp as the Lions got the best of the Dolphins. The two teams practice together again Thursday.`\
 https://nytimes.com/athletic/6551725/2025/08/13/lions-joint-practice-dominate-dolphins/
