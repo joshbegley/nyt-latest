@@ -1,3 +1,7 @@
+**Jimmy Fallon Isn’t Optimistic About the Trump-Putin ‘Listening Exercise’**\
+`That’s how the White House described the upcoming Alaska talks. Fallon said “listening and exercise are Trump’s two favorite things, so this should go well.”`\
+https://nytimes.com/2025/08/13/arts/television/jimmy-fallon-trump-putin.html
+
 **Word of the Day: brouhaha**\
 `This word has appeared in 26 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2025/08/13/learning/word-of-the-day-brouhaha.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6548280/2025/08/13/barcelona-la-liga-new-season-pre
 **Picking Manchester United's 2025-26 breakthrough player - Leny Yoro**\
 `Leny Yoro endured plenty of frustration during his first year at Manchester United but those who work with him have high expectations`\
 https://nytimes.com/athletic/6549723/2025/08/13/manchester-united-breakthrough-player-leny-yoro/
-
-**Wednesday Briefing: Russian Forces Advance in Ukraine**\
-`Also, interviewing a former Palestinian militia leader.`\
-https://nytimes.com/2025/08/13/briefing/ukraine-russia-zakaria-zubeidi-europe-wildfires.html
 

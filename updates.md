@@ -1,3 +1,7 @@
+**Jimmy Fallon Isn’t Optimistic About the Trump-Putin ‘Listening Exercise’**\
+`That’s how the White House described the upcoming Alaska talks. Fallon said “listening and exercise are Trump’s two favorite things, so this should go well.”`\
+https://nytimes.com/2025/08/13/arts/television/jimmy-fallon-trump-putin.html
+
 **Word of the Day: brouhaha**\
 `This word has appeared in 26 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2025/08/13/learning/word-of-the-day-brouhaha.html
