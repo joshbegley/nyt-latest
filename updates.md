@@ -1,3 +1,11 @@
+**Asphalt Burns and Heatstroke: Homeless in America’s Hottest City**\
+`As the summer heat becomes increasingly extreme in Phoenix, people who can’t escape the sun are suffering heat-related ailments of all kinds.`\
+https://nytimes.com/2025/08/13/well/homeless-heat-phoenix.html
+
+**Wildfires Rage Across Southern Europe**\
+`Thousands of firefighters are battling blazes as the continent continues to swelter in dangerously high temperatures.`\
+https://nytimes.com/video/world/europe/100000010338011/wildfires-rage-across-southern-europe.html
+
 **Liverpool's Gomez returns to training before Premier League opener on Friday**\
 `Gomez has recovered from the Achilles injury that forced him to leave the club's pre-season tour of Asia last month.`\
 https://nytimes.com/athletic/6551195/2025/08/13/liverpool-gomez-injury-team-news-bournemouth/
