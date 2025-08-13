@@ -1,3 +1,7 @@
+**Word of the Day: brouhaha**\
+`This word has appeared in 26 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2025/08/13/learning/word-of-the-day-brouhaha.html
+
 **Astros squander a 7-game AL West lead in loss to Red Sox**\
 `"They're playing great baseball. We just have to step it up a notch," Carlos Correa said. `\
 https://nytimes.com/athletic/6550460/2025/08/13/astros-lose-red-sox-squander-al-west-lead/

@@ -1,3 +1,7 @@
+**Word of the Day: brouhaha**\
+`This word has appeared in 26 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2025/08/13/learning/word-of-the-day-brouhaha.html
+
 **Astros squander a 7-game AL West lead in loss to Red Sox**\
 `"They're playing great baseball. We just have to step it up a notch," Carlos Correa said. `\
 https://nytimes.com/athletic/6550460/2025/08/13/astros-lose-red-sox-squander-al-west-lead/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6549723/2025/08/13/manchester-united-breakthrough-p
 **Wednesday Briefing: Russian Forces Advance in Ukraine**\
 `Also, interviewing a former Palestinian militia leader.`\
 https://nytimes.com/2025/08/13/briefing/ukraine-russia-zakaria-zubeidi-europe-wildfires.html
-
-**Braves are hitting now, but pitching has faltered, and Spencer Strider got rocked again**\
-`Pitching is the main culprit for Atlanta's 9-15 record since the break, including a 13-5 rout Tuesday by the New York Mets.`\
-https://nytimes.com/athletic/6550335/2025/08/13/braves-hitting-pitching-falters-spencer-strider/
 
