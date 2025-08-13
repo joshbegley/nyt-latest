@@ -1,3 +1,11 @@
+**10 fantasy football targets who can go from trash to treasure in 2025**\
+`Jake Ciely details players tossed aside due to poor performances last season who could be fantasy gold in 2025. `\
+https://nytimes.com/athletic/6549661/2025/08/13/fantasy-football-2025-bounce-back-players/
+
+**The New York Times International Edition in Print for Thursday, Aug. 14, 2025**\
+``\
+https://nytimes.com/issue/todaysinyt/2025/08/13/todays-new-york-times-international-edition
+
 **Fantasy football targets and fades: Navigating the draft's first eight rounds**\
 `Dalton Del Don helps you navigate the minefield of your fantasy football drafts by sharing his targets and fades for the first eight rounds.`\
 https://nytimes.com/athletic/6549091/2025/08/13/fantasy-football-draft-targets-fades-nabers/
