@@ -1,3 +1,7 @@
+**With Deep N.I.H. Cuts, Research Into Health Disparities Falters**\
+`In its campaign against “woke” science, the Trump administration has closed down studies and programs focused on the gaps between racial and socioeconomic groups.`\
+https://nytimes.com/2025/08/13/health/nih-grant-cancellations-dei.html
+
 **A Hollywood Start-Up Targets the Micro Drama Craze**\
 `A new app will focus on super-short TV shows shot for phones, a bit like Quibi, an earlier app aimed at quick content.`\
 https://nytimes.com/2025/08/13/business/media/hollywood-micro-drama-quibi.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6550299/2025/08/13/sabres-depth-chart-projection-fo
 **Why Ken Walker III could be the biggest beneficiary of the Seahawks' new offense**\
 `If the Seahawks' offensive line is indeed improved, the stars could be aligning for Walker to thrive in a contract year.`\
 https://nytimes.com/athletic/6549585/2025/08/13/kenneth-walker-iii-seahawks-kubiak/
-
-**Giants have MLB's worst OPS against left-handers. Was it avoidable?**\
-`The team-wide struggles against left-handed pitching has worsened from a persistent problem to an embarrassing one.`\
-https://nytimes.com/athletic/6550546/2025/08/13/giants-left-handed-pitching/
 
