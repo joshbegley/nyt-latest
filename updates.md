@@ -1,3 +1,23 @@
+**Canada Has Its Second-Worst Wildfire Season on Record**\
+`Thousands have been evacuated as quick moving wildfires burn in Eastern Canada.`\
+https://nytimes.com/2025/08/13/world/canada/canada-wildfire-season-newfoundland-saskatchewan.html
+
+**Eagles-Browns practice takeaways: Cornerback concerns, inconsistent offense**\
+`The Browns gave the Eagles trouble in a few areas.`\
+https://nytimes.com/athletic/6551937/2025/08/13/eagles-browns-practice-takeaways-cornerback-inconsistent-offense/
+
+**Ahead of Putin Meeting, Trump Shrugs Off Russian Threats in U.S. and Abroad**\
+`President Trump struck a remarkably unconcerned tone when asked to address the horrors of war, raising questions about whether he has the leverage to convince Vladimir V. Putin to agree to end the invasion in Ukraine.`\
+https://nytimes.com/2025/08/13/us/politics/trump-putin-russian-threats.html
+
+**Man Charged With Assaulting Federal Agent With Sandwich in D.C.**\
+`A video showed a man repeatedly calling a group of officers “fascists” before throwing a sub sandwich at one.`\
+https://nytimes.com/2025/08/13/us/politics/federal-agent-trump-sandwich-dc.html
+
+**Thursday Briefing: Air Conditioning Politics**\
+`Also, Trump spoke with European leaders ahead of his talks with Putin.`\
+https://nytimes.com/2025/08/13/briefing/thursday-briefing-air-conditioning-politics.html
+
 **Behind Wall Street’s Abrupt Flip on Crypto**\
 `The reversal risks declawing a century of consumer financial protections and replacing the backbone of bank accounts.`\
 https://nytimes.com/2025/08/13/business/wall-street-banks-crypto-stablecoins.html
