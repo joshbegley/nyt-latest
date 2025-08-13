@@ -1,3 +1,15 @@
+**Barcelona 2025-26 season preview: Next-level Yamal, high-line worries and Rashford's new role**\
+`Barca get their La Liga title defence up and running on Saturday night when they visit Mallorca`\
+https://nytimes.com/athletic/6548280/2025/08/13/barcelona-la-liga-new-season-preview-yamal-rashford/
+
+**Picking Manchester United's 2025-26 breakthrough player - Leny Yoro**\
+`Leny Yoro endured plenty of frustration during his first year at Manchester United but those who work with him have high expectations`\
+https://nytimes.com/athletic/6549723/2025/08/13/manchester-united-breakthrough-player-leny-yoro/
+
+**Wednesday Briefing: Russian Forces Advance in Ukraine**\
+`Also, interviewing a former Palestinian militia leader.`\
+https://nytimes.com/2025/08/13/briefing/ukraine-russia-zakaria-zubeidi-europe-wildfires.html
+
 **Braves are hitting now, but pitching has faltered, and Spencer Strider got rocked again**\
 `Pitching is the main culprit for Atlanta's 9-15 record since the break, including a 13-5 rout Tuesday by the New York Mets.`\
 https://nytimes.com/athletic/6550335/2025/08/13/braves-hitting-pitching-falters-spencer-strider/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6501695/2025/08/13/picking-aston-villas-breakthroug
 **From White's return to Dowman's cameos, the five players who impressed most in Arsenal's pre-season**\
 `Mikel Arteta highlighted defensive naivety in Arsenal’s pre-season defeats, but their recent wins showed signs of evolution`\
 https://nytimes.com/athletic/6546182/2025/08/13/arsenal-dorman-zubimendi-white-nwaneri-calafiori/
-
-**The Premier League hope-o-meter 2025-26: How are fans of every club feeling about the season?**\
-`We surveyed supporters of all 20 clubs and it revealed the influence a summer of spending (or otherwise) can have on a fanbase's outlook`\
-https://nytimes.com/athletic/6546873/2025/08/13/premier-league-hope-o-meter-2025-2026/
-
-**Ronnie Stam: The ex-Premier League defender turned international drug smuggler**\
-`The former Wigan defender, a title winner in the Netherlands, has been handed a seven-year prison term`\
-https://nytimes.com/athletic/6548314/2025/08/13/ronnie-stam-international-drug-smuggler-wigan/
-
-**Hugo Ekitike has always been ready for you to notice him**\
-`Liverpool's new striker has always been powered by unflinching self-belief - just ask those that witnessed his rise to prominence in France`\
-https://nytimes.com/athletic/6506013/2025/08/13/hugo-ekitike-liverpool-reims-psg-frankfurt/
 
