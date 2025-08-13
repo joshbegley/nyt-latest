@@ -1,3 +1,11 @@
+**Bakers on Texas-Mexican Border Are Found Guilty of Harboring Illegal Workers**\
+`Leonardo Baez and his wife were among the first employers prosecuted for taking on undocumented immigrants at their bakery in Los Fresnos, Texas. They face up to 10 years in prison.`\
+https://nytimes.com/2025/08/13/us/border-bakery-undocumented-immigrants.html
+
+**Blue Jays' Alek Manoah stumbles in first Triple-A rehab outing, 2025 season uncertain**\
+`In Manoah's first Triple-A rehab outing, he lasted 1 2/3 innings, walking three batters and reaching 49 pitches.`\
+https://nytimes.com/athletic/6552220/2025/08/13/toronto-blue-jays-alek-manoah-update/
+
 **Taylor Swift’s ‘The Life of a Showgirl’ Will Release on Oct. 3**\
 `Swift is talking about her upcoming album on “New Heights,” a sports and pop culture podcast co-hosted by her boyfriend.`\
 https://nytimes.com/2025/08/13/arts/music/taylor-swift-travis-kelce-new-heights-podcast.html

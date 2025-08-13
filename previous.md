@@ -1,3 +1,7 @@
+**Bakers on Texas-Mexican Border Are Found Guilty of Harboring Illegal Workers**\
+`Leonardo Baez and his wife were among the first employers prosecuted for taking on undocumented immigrants at their bakery in Los Fresnos, Texas. They face up to 10 years in prison.`\
+https://nytimes.com/2025/08/13/us/border-bakery-undocumented-immigrants.html
+
 **Taylor Swift’s ‘The Life of a Showgirl’ Will Release on Oct. 3**\
 `Swift is talking about her upcoming album on “New Heights,” a sports and pop culture podcast co-hosted by her boyfriend.`\
 https://nytimes.com/2025/08/13/arts/music/taylor-swift-travis-kelce-new-heights-podcast.html
@@ -14,7 +18,7 @@ https://nytimes.com/2025/08/13/us/politics/trump-kennedy-center-pop-culture.html
 `“You don’t have deadlines when you’re playing under a contract,” Jones said Wednesday.`\
 https://nytimes.com/athletic/6552121/2025/08/13/cowboys-micah-parsons-contract-update-jerry-jones/
 
-**Blue Jays' Alek Manoah stumbles in first Triple-A rehab outing, future uncertain**\
+**Blue Jays' Alek Manoah stumbles in first Triple-A rehab outing, 2025 season uncertain**\
 `In Manoah's first Triple-A rehab outing, he lasted 1 2/3 innings, walking three batters and reaching 49 pitches.`\
 https://nytimes.com/athletic/6552220/2025/08/13/toronto-blue-jays-alek-manoah-update/
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6552188/2025/08/13/lionel-taylor-denver-broncos-rin
 **Joe Flacco continues to get No. 1 reps in Browns' hampered QB room**\
 `The 40-year-old Flacco is the only QB to begin camp with Cleveland who hasn't been at least limited by an injury on multiple days. `\
 https://nytimes.com/athletic/6552035/2025/08/13/joe-flacco-browns-eagles-joint-practice/
-
-**Overlooked No More: Molly Drake, a Maternal, Musical Force Behind Nick Drake’s Sound**\
-`She was a poet, singer, composer and pianist whose melancholic home recordings from the 1950s hit on universal themes of despair, heartbreak, longing and loss.`\
-https://nytimes.com/2025/08/13/obituaries/molly-drake-overlooked.html
 
