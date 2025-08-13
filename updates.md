@@ -1,3 +1,7 @@
+**Vance Meets Farage, Another Right-Wing Populist, in Britain**\
+`JD Vance, the vice president, sat down with Nigel Farage, a longtime supporter of President Trump whose party, Reform U.K., is leading in British polls.`\
+https://nytimes.com/2025/08/13/world/europe/jd-vance-nigel-farage-reform-uk.html
+
 **With Deep N.I.H. Cuts, Research Into Health Disparities Falters**\
 `In its campaign against “woke” science, the Trump administration has closed down studies and programs focused on the gaps between racial and socioeconomic groups.`\
 https://nytimes.com/2025/08/13/health/nih-grant-cancellations-dei.html
