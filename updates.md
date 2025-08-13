@@ -1,3 +1,11 @@
+**A Hollywood Start-Up Targets the Micro Drama Craze**\
+`A new app will focus on super-short TV shows shot for phones, a bit like Quibi, an earlier app aimed at quick content.`\
+https://nytimes.com/2025/08/13/business/media/hollywood-micro-drama-quibi.html
+
+**May I Confront My Sister About Excluding My Fiancée From Her Wedding Album?**\
+`A reader’s suspicion that his sister doesn’t like his fiancée seems to have been confirmed by her absence from wedding photos. But how should he raise the issue?`\
+https://nytimes.com/2025/08/13/style/wedding-photos-exclusion.html
+
 **Europe Battles Deadly Wildfires as High Winds Fuel Flames**\
 `Firefighters were struggling to tame blazes in several countries in southern Europe, including Albania, Greece, Montenegro and Spain, and in Turkey.`\
 https://nytimes.com/2025/08/13/world/europe/wildfires-deadly-spain-greece-turkey-albania-montenegro.html
