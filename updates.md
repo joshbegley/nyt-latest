@@ -1,3 +1,7 @@
+**Catalan club cancels player transfer over anti-Catalan livestream video**\
+`A video of the defender saying "I s*** on all dead Catalans" after a 2024 match against Barcelona's B team was published on Instagram.`\
+https://nytimes.com/athletic/6550878/2025/08/13/catalan-football-transfer-cancelled/
+
 **Lowetide: Complete reasonable expectations for the Oilers' 2025-26 season**\
 `The annual prediction returns with the Oilers set in some positions and in a transitional phase at others.`\
 https://nytimes.com/athletic/6549033/2025/08/13/edmonton-oilers-reasonable-expectations-2025/
