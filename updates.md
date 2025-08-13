@@ -1,3 +1,7 @@
+**Trump Picks Stallone and Kiss for Kennedy Center Honors**\
+`The actors Sylvester Stallone and Michael Crawford, the singers George Strait and Gloria Gaynor and the rock band Kiss will be honored later this year.`\
+https://nytimes.com/2025/08/13/us/politics/trump-stallone-kiss-kennedy-center-honors.html
+
 **gws-santa-fe-essential-art-outpost**\
 `(No description)`\
 https://nytimes.com/newsgraphics/card-story/santa-fe-essential-art-outpost

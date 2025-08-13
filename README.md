@@ -1,3 +1,19 @@
+**Ex-Governor Switches Back to Eric Adams in New York City Mayor’s Race**\
+`Former Gov. David Paterson, who had endorsed his successor, Andrew Cuomo, in the Democratic primary, said he believed Mr. Adams “would run the city the best.”`\
+https://nytimes.com/2025/08/13/nyregion/eric-adams-paterson-endorsement.html
+
+**gws-rome-neighborhoods-restaurants-food**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/rome-neighborhoods-restaurants-food
+
+**Browns' Shedeur Sanders sustains oblique injury during joint practice with Eagles**\
+`Sanders’ injury comes after the rookie’s impressive preseason debut against the Panthers last week.`\
+https://nytimes.com/athletic/6551369/2025/08/13/shedeur-sanders-injury-oblique-browns-nfl/
+
+**Cowboys' Jerry Jones reveals 2010 cancer diagnosis, overcame stage 4 melanoma**\
+`Jones is tumor-free after receiving treatments over a decade.`\
+https://nytimes.com/athletic/6551273/2025/08/13/cowboys-jerry-jones-cancer-experimental-drug/
+
 **Trump Picks Stallone and Kiss for Kennedy Center Honors**\
 `The actors Sylvester Stallone and Michael Crawford, the singers George Strait and Gloria Gaynor and the rock band Kiss will be honored later this year.`\
 https://nytimes.com/2025/08/13/us/politics/trump-stallone-kiss-kennedy-center-honors.html
@@ -21,20 +37,4 @@ https://nytimes.com/interactive/2025/08/13/learning/2025-summer-news-quiz-for-st
 **Pohlad family to remain Twins owners, add on limited partnership groups**\
 `After 10 months of exploring a sale, the Pohlad family issued a statement that it will retain ownership of the franchise.`\
 https://nytimes.com/athletic/6551264/2025/08/13/minnesota-twins-pohlad-family-sale/
-
-**Why some collectors chase Ken Griffey Jr. rookie cards in particularly bad condition**\
-`Collecting the "grading rainbow" has brought added value to cards in previously undesirable condition`\
-https://nytimes.com/athletic/6549780/2025/08/13/grading-rainbow-griffey-sanders-psa/
-
-**Barca board agree to risk €7m in personal wealth in bid to register Rashford, Garcia**\
-`With three days to go before Barca’s first match of the campaign, Hansi Flick’s major signings of the summer are still not eligible to play.`\
-https://nytimes.com/athletic/6551185/2025/08/13/barcelona-new-signings-register-rashford-garcia/
-
-**Asphalt Burns and Heatstroke: Homeless in America’s Hottest City**\
-`As the summer heat becomes increasingly extreme in Phoenix, people who can’t escape the sun are suffering heat-related ailments of all kinds.`\
-https://nytimes.com/2025/08/13/well/homeless-heat-phoenix.html
-
-**Wildfires Rage Across Southern Europe**\
-`Thousands of firefighters are battling blazes as the continent continues to swelter in dangerously high temperatures.`\
-https://nytimes.com/video/world/europe/100000010338011/wildfires-rage-across-southern-europe.html
 
