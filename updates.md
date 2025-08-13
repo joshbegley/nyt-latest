@@ -1,3 +1,11 @@
+**Bills Hard Knocks Week 2 takeaways: Damar Hamlin inspires, Buffalo Joe gets the spotlight**\
+`Elsewhere on campus, KJ Hamler's scooter adventure continued.`\
+https://nytimes.com/athletic/6550378/2025/08/13/bills-hard-knocks-episode-2-buffalo-joe-damar-hamlin/
+
+**How Netflix could've had a fairy-tale ending to its Cowboys documentary**\
+`The devastating loss to the Packers in the 2023 playoffs cut short what could have been a much better ending to the story of those Cowboys.`\
+https://nytimes.com/athletic/6550500/2025/08/13/cowboys-netflix-documentary-americas-team/
+
 **'Unguardable' with 'freaky lateral quickness': Hunter Renfrow returns to where he broke out**\
 `Hunter Renfrow's 65-yard TD reception in 2019 jumpstarted his rookie season. He's looking to regain some of that magic with the Panthers.`\
 https://nytimes.com/athletic/6549761/2025/08/13/panthers-hunter-renfrow-receiver-roster/
