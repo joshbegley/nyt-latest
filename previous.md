@@ -1,3 +1,7 @@
+**Beyoncé Wins First Emmy for N.F.L. Halftime Show**\
+`The pop superstar received a costume design award for her Netflix football halftime performance tied to her “Cowboy Carter” album.`\
+https://nytimes.com/2025/08/13/arts/television/beyonce-emmy-win-nfl-halftime-netflix-christmas.html
+
 **Climate Change, Regulation and Health**\
 `Readers respond to articles about the E.P.A.’s reversal on the dangers of climate change. Also: Hiding unfavorable jobs data.`\
 https://nytimes.com/2025/08/13/opinion/climate-change-regulation-health.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6551403/2025/08/13/chelsea-club-world-cup-bonuses-p
 **What It Takes to Find Food in Gaza**\
 `Starvation has spread in Gaza, as the prices of basic goods have skyrocketed and getting aid is difficult and often deadly. Ashley Wu, a graphics reporter for The New York Times, explains the dire choices that many Gazans face, as Israel faces growing condemnation over the crisis.`\
 https://nytimes.com/video/world/middleeast/100000010322362/what-it-takes-to-find-food-in-gaza.html
-
-**The Premier League players who tried to force a move - with varying degrees of success**\
-`The Newcastle striker is this summer's transfer saga but his is a familiar tale when a footballer wants to make a move happen`\
-https://nytimes.com/athletic/6551124/2025/08/13/premier-league-force-transfer-isak/
 

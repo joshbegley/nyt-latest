@@ -1,3 +1,7 @@
+**Beyoncé Wins First Emmy for N.F.L. Halftime Show**\
+`The pop superstar received a costume design award for her Netflix football halftime performance tied to her “Cowboy Carter” album.`\
+https://nytimes.com/2025/08/13/arts/television/beyonce-emmy-win-nfl-halftime-netflix-christmas.html
+
 **Climate Change, Regulation and Health**\
 `Readers respond to articles about the E.P.A.’s reversal on the dangers of climate change. Also: Hiding unfavorable jobs data.`\
 https://nytimes.com/2025/08/13/opinion/climate-change-regulation-health.html
