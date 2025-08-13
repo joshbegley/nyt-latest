@@ -1,3 +1,7 @@
+**Trump Administration Live Updates: President to Speak With Zelensky and European Allies on Ukraine**\
+``\
+https://nytimes.com/live/2025/08/13/us/trump-news
+
 **Three notable Ohio State camp developments: Why isn't there a starting QB yet?**\
 `As Ohio State's QB battle between Julian Sayin and Lincoln Kienholz continues, there have been breakout stars emerging on the lines.`\
 https://nytimes.com/athletic/6549546/2025/08/13/ohio-state-qb-position-battles-camp/
