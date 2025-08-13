@@ -1,3 +1,11 @@
+**Some Juneau Residents Evacuate as Melting Glacier Threatens to Flood Town**\
+`The Mendenhall River in Alaska was at “major flood” stage as of Wednesday morning, with additional water expected from an overflowing glacial lake.`\
+https://nytimes.com/2025/08/13/climate/alaska-juneau-flood-glacier.html
+
+**Wilshere will not make Arsenal return as Under-21s head coach**\
+`Wilshere is highly-regarded for his role in helping develop talents such as Myles Lewis-Skelly, Ethan Nwaneri and Max Dowman.`\
+https://nytimes.com/athletic/6388502/2025/08/13/jack-wilshere-arsenal-under-21s/
+
 **Catalan club cancels player transfer over anti-Catalan livestream video**\
 `A video of the defender saying "I s*** on all dead Catalans" after a 2024 match against Barcelona's B team was published on Instagram.`\
 https://nytimes.com/athletic/6550878/2025/08/13/catalan-football-transfer-cancelled/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6546922/2025/08/13/denny-hamlin-nascar-drivers-care
 **Typhoon Podul Batters Southern Taiwan**\
 `The storm weakened after hitting the island’s central mountains, according to Taiwan’s Central Weather Administration.`\
 https://nytimes.com/video/world/asia/100000010338013/typhoon-podul-taiwan-storm-weather.html
-
-**Why Investors Are Again Euphoric About Interest Rates**\
-`The S&P 500 is approaching a record on bets that Federal Reserve will lower borrowing costs despite uncertainty over President Trump’s trade war.`\
-https://nytimes.com/2025/08/13/business/dealbook/market-rally-interest-rates-trump.html
-
-**Meet the 49ers undrafted rookie (with a superhero nickname) pushing for a roster spot**\
-`Four years ago, Sebastian Valdez was a 235-pounder at Montana State. Now, he's turning heads in NFL games and drawing the nickname "Hulk."`\
-https://nytimes.com/athletic/6550226/2025/08/13/49ers-rookie-sebastian-valdez-hulk/
 
