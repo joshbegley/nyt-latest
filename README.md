@@ -1,3 +1,7 @@
+**Denny Hamlin on how much drivers impact NASCAR success and more: 12 Questions**\
+`Denny Hamlin talks about his revised career timeline, how much the car has to do with winning and more in the latest 12 Questions.`\
+https://nytimes.com/athletic/6546922/2025/08/13/denny-hamlin-nascar-drivers-career-retirement-12-questions/
+
 **Typhoon Podul Batters Southern Taiwan**\
 `The storm weakened after hitting the island’s central mountains, according to Taiwan’s Central Weather Administration.`\
 https://nytimes.com/video/world/asia/100000010338013/typhoon-podul-taiwan-storm-weather.html
@@ -22,7 +26,7 @@ https://nytimes.com/athletic/6550299/2025/08/13/sabres-depth-chart-projection-fo
 `If the Seahawks' offensive line is indeed improved, the stars could be aligning for Walker to thrive in a contract year.`\
 https://nytimes.com/athletic/6549585/2025/08/13/kenneth-walker-iii-seahawks-kubiak/
 
-**The Giants have MLB's worst OPS against left-handers. Was it avoidable?**\
+**Giants have MLB's worst OPS against left-handers. Was it avoidable?**\
 `The team-wide struggles against left-handed pitching has worsened from a persistent problem to an embarrassing one.`\
 https://nytimes.com/athletic/6550546/2025/08/13/giants-left-handed-pitching/
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6521559/2025/08/13/blackhawks-vaclav-nestrasil-nhl-
 **Southern Europe Battles Deadly Wildfires**\
 `High winds were complicating efforts to tame the blazes, which were burning in Greece, Spain, Turkey, Montenegro and Albania.`\
 https://nytimes.com/2025/08/13/world/europe/wildfires-deadly-spain-greece-turkey-albania-montenegro.html
-
-**Ministers Take Jabs at Israel’s Military Chief as Gaza Plan Stokes Tension**\
-`Lt. Gen. Eyal Zamir has pushed back against a proposal to control Gaza City, according to officials. One hard-right member of the government suggested he could be dismissed.`\
-https://nytimes.com/2025/08/13/world/middleeast/israel-gaza-plan-military-government-zamir.html
 
