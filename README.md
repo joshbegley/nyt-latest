@@ -1,8 +1,20 @@
+**Denver Summit FC acquires Ally Watt, first signing in franchise history**\
+`The 28-year-old forward signed with the team ahead of its inaugural 2026 season.`\
+https://nytimes.com/athletic/6551476/2025/08/13/denver-summit-ally-watt-signing-nwsl-expansion-team/
+
+**Trump Warns of Economic Disaster if Court Strikes Down Tariffs**\
+`The president has crowed about the billions of dollars collected so far from tariffs. That money could be at risk if the White House loses the legal battle.`\
+https://nytimes.com/2025/08/13/us/politics/trump-tariffs-case-federal-court.html
+
+**Rory McIlroy turned down chance to be Ryder Cup playing captain**\
+`McIlroy said there's too many other demands on the captain for him to think one person can do both.`\
+https://nytimes.com/athletic/6551435/2025/08/13/rory-mcilroy-ryder-cup-captain/
+
 **gws-great-lakes-beaches**\
 `(No description)`\
 https://nytimes.com/newsgraphics/card-story/great-lakes-beaches
 
-**NBA's Trail Blazers reach agreement to sell to NHL's Hurricanes owner Tom Dundon**\
+**Hurricanes owner Tom Dundon, other investors agree to buy Trail Blazers**\
 `Paul Allen's trust announced in May that it was selling the team and estimated that the process would go into the 2025-26 season.`\
 https://nytimes.com/athletic/6551490/2025/08/13/portland-trail-blazers-sale-tom-dundon-nba-carolina-hurricanes/
 
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6551124/2025/08/13/premier-league-force-transfer-is
 **With new deals, 'Pay Per View' has lost by knockout. 'Pay Per Month' has won: MoneyCall**\
 `More in this week's sports business cheat sheet: The sports podcast episode of the year, La Liga drama, the rising Cincinnati Open and more.`\
 https://nytimes.com/athletic/6551363/2025/08/13/pay-per-view-ufc-paramount-espn-wwe-moneycall/
-
-**Scoop City: One big contract dispute settled as Bills, Cook agree**\
-`Why James Cook won his contract standoff with the Bills, Jalen Hurts is voted as your QB5 (Mike Sando weighs in), and Rashee Rice shines`\
-https://nytimes.com/athletic/6551360/2025/08/13/is-jalen-hurts-a-top-5-qb-readers-weigh-in-plus-one-big-contract-dispute-settled/
-
-**Ex-Governor Switches Back to Eric Adams in New York City Mayor’s Race**\
-`Former Gov. David Paterson, who had endorsed his successor, Andrew Cuomo, in the Democratic primary, said he believed Mr. Adams “would run the city the best.”`\
-https://nytimes.com/2025/08/13/nyregion/eric-adams-paterson-endorsement.html
-
-**gws-rome-neighborhoods-restaurants-food**\
-`(No description)`\
-https://nytimes.com/newsgraphics/card-story/rome-neighborhoods-restaurants-food
 

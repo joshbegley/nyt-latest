@@ -1,3 +1,7 @@
+**gws-great-lakes-beaches**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/great-lakes-beaches
+
 **NBA's Trail Blazers reach agreement to sell to NHL's Hurricanes owner Tom Dundon**\
 `Paul Allen's trust announced in May that it was selling the team and estimated that the process would go into the 2025-26 season.`\
 https://nytimes.com/athletic/6551490/2025/08/13/portland-trail-blazers-sale-tom-dundon-nba-carolina-hurricanes/
