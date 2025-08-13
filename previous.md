@@ -1,3 +1,11 @@
+**The good and bad for the Jets in two joint practices against the Giants**\
+`From a conservative passing game to some needed growing pains for the offensive line.`\
+https://nytimes.com/athletic/6551816/2025/08/13/giants-jets-joint-practice-report-justin-fields-offense/
+
+**Liverpool closing in on deal to sign Parma defender Leoni**\
+`The Athletic previously reported that Liverpool were interested in Leoni and were trying to persuade him to move to Anfield.`\
+https://nytimes.com/athletic/6546444/2025/08/13/giovanni-leoni-liverpool-transfer-parma/
+
 **Top Iranian Official Visits Lebanon as Hezbollah Bucks Calls to Disarm**\
 `The visit by Ali Larijani, the head of Iran’s top security body, came as the Lebanese government moves to disarm Hezbollah, the militant group that has long been Tehran’s most powerful regional ally.`\
 https://nytimes.com/2025/08/13/world/europe/iran-lebanon-hezbollah-disarm.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/08/13/us/politics/scott-bessent-conflicts-of-interest.h
 **Pulisic docuseries inflames clash between current, former USMNT players**\
 `A new episode of 'Pulisic' on Paramount+ dives more into the rift between USMNT past and present that emerged this summer`\
 https://nytimes.com/athletic/6551719/2025/08/13/christian-pulisic-documentary-comments-usmnt-players-weah/
-
-**The Democrats Are in Danger. So Are the Republicans.**\
-`Britain is a warning to both parties.`\
-https://nytimes.com/2025/08/13/opinion/britain-democrats-republicans-labour.html
-
-**Every Pan Has a Purpose. Here’s How to Know Which One You Need.**\
-`(No description)`\
-https://nytimes.com/newsgraphics/card-story/wc-how-to-choose-a-cooking-pan
 
