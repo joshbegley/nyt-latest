@@ -1,3 +1,7 @@
+**Bournemouth confirm Diakite signing from Lille**\
+`The €35million (£30.3m) plus €5m fee represents the second biggest transfer fee Bournemouth have paid in their history.`\
+https://nytimes.com/athletic/6545238/2025/08/13/bournemouth-bafode-diakite-transfer-confirmed/
+
 **Fantasy football traditionally doesn't prioritize elite QBs. Here's when it should**\
 `Turns out QBs account for wins a whole lot more in certain formats and it is not currently reflected in their ADPs, making them big values. `\
 https://nytimes.com/athletic/6520747/2025/08/13/fantasy-football-2025-qbs-quarterbacks-stats-drafting/
