@@ -1,3 +1,15 @@
+**Answering crucial fantasy football draft questions at running back**\
+`The Athletic fantasy football experts share their opinions on Ashton Jeanty, Christian McCaffrey and many more at the RB position.`\
+https://nytimes.com/athletic/6549327/2025/08/13/fantasy-football-2025-running-back-roundtable/
+
+**Kent Lacob is leaving the Warriors: How the owner's son came to a huge decision**\
+`"I'm incredibly grateful for it," Kent says of the opportunity to work for father Joe with the Warriors. But for him, it's time to move on.`\
+https://nytimes.com/athletic/6548292/2025/08/13/kent-lacob-warriors-vp-leaving/
+
+**Roma in talks to sign Villa winger Bailey**\
+`Bailey has made 144 appearances for Villa but was used sparingly last season and started only 14 league games. `\
+https://nytimes.com/athletic/6397085/2025/08/13/leon-bailey-roma-talks-aston-villa-transfers/
+
 **Whose stock is up (or down) as the 49ers hit the home stretch of training camp?**\
 `An undrafted rookie running back caught Kyle Shanahan's eye, and Marques Sigle's ascent at safety is putting pressure on two veterans.`\
 https://nytimes.com/athletic/6549947/2025/08/13/49ers-preseason-training-camp-corey-kiner/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/08/13/world/europe/jd-vance-nigel-farage-reform-uk.html
 **With Deep N.I.H. Cuts, Research Into Health Disparities Falters**\
 `In its campaign against “woke” science, the Trump administration has closed down studies and programs focused on the gaps between racial and socioeconomic groups.`\
 https://nytimes.com/2025/08/13/health/nih-grant-cancellations-dei.html
-
-**A Hollywood Start-Up Targets the Micro Drama Craze**\
-`A new app will focus on super-short TV shows shot for phones, a bit like Quibi, an earlier app aimed at quick content.`\
-https://nytimes.com/2025/08/13/business/media/hollywood-micro-drama-quibi.html
-
-**May I Confront My Sister About Excluding My Fiancée From Her Wedding Album?**\
-`A reader’s suspicion that his sister doesn’t like his fiancée seems to have been confirmed by her absence from wedding photos. But how should he raise the issue?`\
-https://nytimes.com/2025/08/13/style/wedding-photos-exclusion.html
-
-**Denny Hamlin on how much drivers impact NASCAR success and more: 12 Questions**\
-`Denny Hamlin talks about his revised career timeline, how much the car has to do with winning and more in the latest 12 Questions.`\
-https://nytimes.com/athletic/6546922/2025/08/13/denny-hamlin-nascar-drivers-career-retirement-12-questions/
 
