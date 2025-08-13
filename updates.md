@@ -1,3 +1,15 @@
+**The ‘Womanosphere’ Is Booming. No Wonder Katie Miller Hopped Aboard.**\
+`The wife of Stephen Miller, who recently worked for Elon Musk, has joined a fast-growing world of conservative podcasters offering women lifestyle advice.`\
+https://nytimes.com/2025/08/13/style/katie-miller-podcast.html
+
+**'Everything happened pretty fast:' Penix ends up on bottom of pile in Falcons-Titans fight**\
+`The Falcons and Titans saw Wednesday's joint practice stopped for several minutes after a fight broke out between the two teams.`\
+https://nytimes.com/athletic/6551717/2025/08/13/michael-penix-falcons-titans-fight-preseason/
+
+**U.S. Ethics Agency Warns Bessent Over Conflicts of Interest**\
+`The Treasury secretary has been slow to divest assets, including farmland, that he pledged to shed.`\
+https://nytimes.com/2025/08/13/us/politics/scott-bessent-conflicts-of-interest.html
+
 **Pulisic docuseries inflames clash between current, former USMNT players**\
 `A new episode of 'Pulisic' on Paramount+ dives more into the rift between USMNT past and present that emerged this summer`\
 https://nytimes.com/athletic/6551719/2025/08/13/christian-pulisic-documentary-comments-usmnt-players-weah/

@@ -1,3 +1,15 @@
+**The ‘Womanosphere’ Is Booming. No Wonder Katie Miller Hopped Aboard.**\
+`The wife of Stephen Miller, who recently worked for Elon Musk, has joined a fast-growing world of conservative podcasters offering women lifestyle advice.`\
+https://nytimes.com/2025/08/13/style/katie-miller-podcast.html
+
+**'Everything happened pretty fast:' Penix ends up on bottom of pile in Falcons-Titans fight**\
+`The Falcons and Titans saw Wednesday's joint practice stopped for several minutes after a fight broke out between the two teams.`\
+https://nytimes.com/athletic/6551717/2025/08/13/michael-penix-falcons-titans-fight-preseason/
+
+**U.S. Ethics Agency Warns Bessent Over Conflicts of Interest**\
+`The Treasury secretary has been slow to divest assets, including farmland, that he pledged to shed.`\
+https://nytimes.com/2025/08/13/us/politics/scott-bessent-conflicts-of-interest.html
+
 **Pulisic docuseries inflames clash between current, former USMNT players**\
 `A new episode of 'Pulisic' on Paramount+ dives more into the rift between USMNT past and present that emerged this summer`\
 https://nytimes.com/athletic/6551719/2025/08/13/christian-pulisic-documentary-comments-usmnt-players-weah/
@@ -25,16 +37,4 @@ https://nytimes.com/card/2025/08/13/arts/editors-recommendations-murderbot
 **4 Inmates Are Killed in Less Than a Month at Nevada Prisons, State Says**\
 `The homicides appear to be unrelated, according to prison officials, who said that drugs were believed to have been a contributing factor.`\
 https://nytimes.com/2025/08/13/us/nevada-prisons-inmate-homicides.html
-
-**Some Democrats Panicked Over Mamdani. Obama Called Him.**\
-`Obamaworld seems interested in understanding Zohran Mamdani’s sudden rise to prominence.`\
-https://nytimes.com/2025/08/13/opinion/mamdani-obama-democrats.html
-
-**Hispanic Democratic Officials in Texas Plead Not Guilty to Voter Fraud**\
-`Texas’ attorney general, Ken Paxton, has now used his “election integrity unit” to indict 15 Latino Democrats under a 2021 statute that outlawed delivering ballots for other voters.`\
-https://nytimes.com/2025/08/13/us/politics/voter-fraud-texas.html
-
-**Mario Paglino, 52, and Gianni Grossi, 54, Die; Designers Made Barbies Into Art**\
-`They transformed dolls into one-of-a-kind pieces that sold for thousands of dollars. A married couple, they died in a car crash in Italy.`\
-https://nytimes.com/2025/08/13/arts/design/mario-paglino-gianni-grossi-dead.html
 
