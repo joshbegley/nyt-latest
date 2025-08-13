@@ -10,7 +10,7 @@ https://nytimes.com/athletic/6551264/2025/08/13/minnesota-twins-pohlad-family-sa
 `Collecting the "grading rainbow" has brought added value to cards in previously undesirable condition`\
 https://nytimes.com/athletic/6549780/2025/08/13/grading-rainbow-griffey-sanders-psa/
 
-**Barca execs agree to risk €7m in personal wealth in bid to register Rashford, Garcia**\
+**Barca board agree to risk €7m in personal wealth in bid to register Rashford, Garcia**\
 `With three days to go before Barca’s first match of the campaign, Hansi Flick’s major signings of the summer are still not eligible to play.`\
 https://nytimes.com/athletic/6551185/2025/08/13/barcelona-new-signings-register-rashford-garcia/
 
