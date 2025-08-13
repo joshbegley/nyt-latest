@@ -1,3 +1,19 @@
+**Behind Wall Street’s Abrupt Flip on Crypto**\
+`The reversal risks declawing a century of consumer financial protections and replacing the backbone of bank accounts.`\
+https://nytimes.com/2025/08/13/business/wall-street-banks-crypto-stablecoins.html
+
+**Historians Alarmed by White House Plan to Oversee Smithsonian Exhibits**\
+`The Trump administration’s plan to, in effect, audit the content of Smithsonian museums drew criticism from groups that represent scholars and promote free speech.`\
+https://nytimes.com/2025/08/13/arts/design/trump-smithsonian-exhibits-review-historians-alarmed.html
+
+**Mr. President, Stop Coddling Putin**\
+`Ukrainians are heroes. It’s time that Trump started acting like it.`\
+https://nytimes.com/2025/08/13/opinion/trump-putin-summit-ukraine.html
+
+**U.S. Drinking Drops to New Low, Poll Finds**\
+`The results signal a shift after a recent uptick in drinking among middle-aged adults in particular.`\
+https://nytimes.com/2025/08/13/well/us-alcohol-drinking-low-poll.html
+
 **Manchester United under-21 game abandoned after Sekou Kone head injury**\
 `Kone fell to the ground following a clash of heads with a Tamworth player towards the end of the first half at the Lamb Ground.`\
 https://nytimes.com/athletic/6552020/2025/08/13/man-united-news-sekou-kone-head-injury/
