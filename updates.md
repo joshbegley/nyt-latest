@@ -1,3 +1,15 @@
+**Tiny Love Stories: ‘It’s Our Secret’**\
+`Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
+https://nytimes.com/2025/08/13/style/tiny-modern-love-stories-its-our-secret.html
+
+**How Scientists Are Using Drones to Study Sperm Whales**\
+`A new tagging method called tap-and-go allows researchers to gather more data on the health and behavior of whales, with less disruption.`\
+https://nytimes.com/2025/08/13/science/whales-drones-acoustics-tagging.html
+
+**Judge Appears Skeptical of Lawsuit Against Federal Bench in Maryland**\
+`The spectacle of the White House suing an entire district court in the name of the United States of America underscored just how rancorous relations between the two branches had become.`\
+https://nytimes.com/2025/08/13/us/politics/trump-maryland-judges-lawsuit.html
+
 **Lamar Jackson drops No. 8 trademark challenge against Troy Aikman's company**\
 `Jackson has previously challenged the use of the No. 8 by entities including NASCAR Hall of Fame driver Dale Earnhardt Jr.`\
 https://nytimes.com/athletic/6551619/2025/08/13/ravens-lamar-jackson-troy-aikman-trademark-challenge/

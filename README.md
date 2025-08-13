@@ -1,3 +1,7 @@
+**At Least 26 Migrants Drown Off the Italian Island of Lampedusa**\
+`Sixty people survived after two boats with nearly 100 migrants capsized. The causes of the shipwreck were not clear, Italian officials and U.N. agencies said. The death toll is likely to grow.`\
+https://nytimes.com/2025/08/13/world/europe/migrants-drown-lampedusa-italy.html
+
 **Tiny Love Stories: ‘It’s Our Secret’**\
 `Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
 https://nytimes.com/2025/08/13/style/tiny-modern-love-stories-its-our-secret.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/13/arts/television/beyonce-emmy-win-nfl-halftime-net
 **Climate Change, Regulation and Health**\
 `Readers respond to articles about the E.P.A.’s reversal on the dangers of climate change. Also: Hiding unfavorable jobs data.`\
 https://nytimes.com/2025/08/13/opinion/climate-change-regulation-health.html
-
-**Denver Summit FC acquires Ally Watt, first signing in franchise history**\
-`The 28-year-old forward signed with the team ahead of its inaugural 2026 season.`\
-https://nytimes.com/athletic/6551476/2025/08/13/denver-summit-ally-watt-signing-nwsl-expansion-team/
 
