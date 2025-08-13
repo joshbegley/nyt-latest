@@ -1,3 +1,11 @@
+**Bills Hard Knocks Week 2 takeaways: Damar Hamlin inspires, Buffalo Joe gets the spotlight**\
+`Elsewhere on campus, KJ Hamler's scooter adventure continued.`\
+https://nytimes.com/athletic/6550378/2025/08/13/bills-hard-knocks-episode-2-buffalo-joe-damar-hamlin/
+
+**How Netflix could've had a fairy-tale ending to its Cowboys documentary**\
+`The devastating loss to the Packers in the 2023 playoffs cut short what could have been a much better ending to the story of those Cowboys.`\
+https://nytimes.com/athletic/6550500/2025/08/13/cowboys-netflix-documentary-americas-team/
+
 **Shohei Ohtani, the one who got away, pitches vs. the Angels. Here's how to watch**\
 `Here's how to watch Shohei Ohtani hit and pitch against his former team on Wednesday night.`\
 https://nytimes.com/athletic/6549616/2025/08/13/shohei-ohtani-dodgers-angels-hitting-pitching-how-to-watch/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6549350/2025/08/13/chiefs-wide-receiver-roster-bubb
 **How to watch the BMW Championship, the second leg of the FedEx Cup playoffs**\
 `The FedEx Cup playoffs continue at a renovated Caves Valley Golf Club this weekend, and only 30 golfers will advance to the final event.`\
 https://nytimes.com/athletic/6548895/2025/08/13/bmw-championship-playoffs-golf-weather-how-to-watch-2025/
-
-**'Unguardable' with 'freaky lateral quickness': Hunter Renfrow returns to where he broke out**\
-`Hunter Renfrow's 65-yard TD reception in 2019 jumpstarted his rookie season. He's looking to regain some of that magic with the Panthers.`\
-https://nytimes.com/athletic/6549761/2025/08/13/panthers-hunter-renfrow-receiver-roster/
-
-**Miguel Andujar, acquired to crush left-handed pitching, delivering big for Reds**\
-`Since joining the Reds, Andújar has helped transform their lineup, hitting .991 OPS against lefties and sparking key wins.`\
-https://nytimes.com/athletic/6550353/2025/08/13/miguel-andujar-crush-lefties/
 
