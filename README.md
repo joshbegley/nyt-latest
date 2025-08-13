@@ -1,5 +1,9 @@
+**Florida Approves First Black Bear Hunt Since 2015**\
+`State wildlife officials say a regulated hunt is needed to manage the bear population. Opponents say the new rules will lead to trophy hunting.`\
+https://nytimes.com/2025/08/13/us/florida-approves-first-black-bear-hunt-since-2015.html
+
 **At Least 26 Migrants Drown Off the Italian Island of Lampedusa**\
-`Sixty people survived after two boats with nearly 100 migrants capsized. The causes of the shipwreck were not clear, Italian officials and U.N. agencies said. The death toll is likely to grow.`\
+`Sixty people survived after two boats with nearly 100 migrants capsized. The causes of the shipwrecks were not clear, Italian officials and U.N. agencies said. The death toll is likely to grow.`\
 https://nytimes.com/2025/08/13/world/europe/migrants-drown-lampedusa-italy.html
 
 **Tiny Love Stories: ‘It’s Our Secret’**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6551573/2025/08/13/most-valuable-nfl-teams-sportico
 **Beyoncé Wins First Emmy for N.F.L. Halftime Show**\
 `The pop superstar received a costume design award for her Netflix football halftime performance tied to her “Cowboy Carter” album.`\
 https://nytimes.com/2025/08/13/arts/television/beyonce-emmy-win-nfl-halftime-netflix-christmas.html
-
-**Climate Change, Regulation and Health**\
-`Readers respond to articles about the E.P.A.’s reversal on the dangers of climate change. Also: Hiding unfavorable jobs data.`\
-https://nytimes.com/2025/08/13/opinion/climate-change-regulation-health.html
 
