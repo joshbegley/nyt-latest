@@ -1,3 +1,7 @@
+**Changing her tone, the mayor of Washington condemns Trump’s deployment of the National Guard.**\
+`By Ashley Ahn`\
+https://nytimes.com/live/2025/08/12/us/trump-news/dc-mayor-bowser-trump-national-guard
+
 **‘Alien: Earth’ Episodes 1 and 2 Recap: Gross Encounters**\
 `Noah Hawley’s new expansion to the “Alien” franchise introduces a host of new characters and concepts — and some disgusting new monsters.`\
 https://nytimes.com/2025/08/12/arts/television/alien-earth-recap-episodes-1-and-2.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/12/us/politics/trump-dc-crime-data-fact-check.html
 **Mets' Pete Alonso passes Darryl Strawberry as franchise's all-time home run leader**\
 `Alonso’s 253rd career home run came in his 965th game and 4,118th plate appearance.`\
 https://nytimes.com/athletic/6550142/2025/08/12/new-york-mets-pete-alonso-hr-record/
-
-**Trump Deploys National Guard for D.C. Crime but Called Jan. 6 Rioters ‘Very Special’**\
-`President Trump said he needed to send in the Guard to secure the nation’s capital. But on Jan. 6, 2021 — the most lawless day in recent Washington history — he had a very different reaction.`\
-https://nytimes.com/2025/08/12/us/politics/trump-jan-6-dc-crime.html
 
