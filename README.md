@@ -1,3 +1,7 @@
+**Six Convicted in 2017 Fire That Killed 41 Girls in Guatemala Group Home**\
+`The girls were locked in a classroom in a government-run group home for at-risk youth. The officials were charged with child abuse, dereliction of duty, manslaughter and other counts.`\
+https://nytimes.com/2025/08/12/world/americas/guatemala-convictions-deadly-fire.html
+
 **Trump Misstates Washington Crime Data to Justify Takeover**\
 `The president cited a number of false and misleading claims about homicides and youth crime in the nation’s capital.`\
 https://nytimes.com/2025/08/12/us/politics/trump-dc-crime-data-fact-check.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/world/middleeast/100000010337207/israel-air-force-war-
 **The Little League bat flip is now a collectible pin, bat heading to auction**\
 `The moment that captured the attention of the baseball world last month will soon be featured on an exclusive piece of memorabilia.`\
 https://nytimes.com/athletic/6548133/2025/08/12/baseball-little-league-bat-flip-world-series/
-
-**The New Sound of Young Love**\
-`Our critic’s new Song of the Week is from an up-and-coming British soul singer with a fresh take on swooning.`\
-https://nytimes.com/video/podcasts/100000010337202/the-new-sound-of-young-love.html
 
