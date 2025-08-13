@@ -1,3 +1,7 @@
+**TAFC: Donnarumma - from Champions League hero to PSG exit in three months? Plus: EPL hope-o-meter**\
+`Today in TAFC: Donnarumma on cusp of PSG exit, an ex-Premier League star's drug conviction and our hope-o-meter.`\
+https://nytimes.com/athletic/6550512/2025/08/13/donnarumma-psg-champions-league/
+
 **How to watch the Premier League in the U.S. this season**\
 `Here's a straightforward explainer on how Americans can watch EPL matches in their home markets.`\
 https://nytimes.com/athletic/6543080/2025/08/13/premier-league-usa-2025-26-how-to-watch/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6548948/2025/08/13/arsenal-zinchenko-transfer-playi
 **Steelers training camp is over, but focus on young OTs only intensifying**\
 `The two recent first-rounders will be charged with protecting Aaron Rodgers this season.`\
 https://nytimes.com/athletic/6549966/2025/08/13/broderick-jones-troy-fautanu-steelers-starting-ots/
-
-**Mandel's Mailbag: An unusually wide-open championship field**\
-`Also: the SEC's dark horse team, G5 program with best chances to make playoffs and Iowa State-Kansas State's Week 0 matchup in Dublin.`\
-https://nytimes.com/athletic/6550179/2025/08/13/mandels-mailbag-wide-open-title-race/
 

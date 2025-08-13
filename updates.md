@@ -1,3 +1,7 @@
+**TAFC: Donnarumma - from Champions League hero to PSG exit in three months? Plus: EPL hope-o-meter**\
+`Today in TAFC: Donnarumma on cusp of PSG exit, an ex-Premier League star's drug conviction and our hope-o-meter.`\
+https://nytimes.com/athletic/6550512/2025/08/13/donnarumma-psg-champions-league/
+
 **How to watch the Premier League in the U.S. this season**\
 `Here's a straightforward explainer on how Americans can watch EPL matches in their home markets.`\
 https://nytimes.com/athletic/6543080/2025/08/13/premier-league-usa-2025-26-how-to-watch/
