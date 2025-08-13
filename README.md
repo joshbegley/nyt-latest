@@ -1,3 +1,7 @@
+**Flash Floods Trap Cars on Tennessee Highway**\
+`A car swirled around in a muddy whirlpool as rescue teams helped people evacuate from flooded homes in Chattanooga, Tenn.`\
+https://nytimes.com/video/weather/100000010337632/flooding-chattanooga-tennessee.html
+
 **Barcelona 2025-26 season preview: Next-level Yamal, high-line worries and Rashford's new role**\
 `Barca get their La Liga title defence up and running on Saturday night when they visit Mallorca`\
 https://nytimes.com/athletic/6548280/2025/08/13/barcelona-la-liga-new-season-preview-yamal-rashford/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6525265/2025/08/13/fantasy-premier-league-defensive
 **Can George Hemmings become the young player to break through under Unai Emery?**\
 `Hemmings is a name known across youth football circles in the UK — the midfielder has already appeared for Villa's first team in pre-season`\
 https://nytimes.com/athletic/6501695/2025/08/13/picking-aston-villas-breakthrough-player-for-2025-26-george-hemmings/
-
-**From White's return to Dowman's cameos, the five players who impressed most in Arsenal's pre-season**\
-`Mikel Arteta highlighted defensive naivety in Arsenal’s pre-season defeats, but their recent wins showed signs of evolution`\
-https://nytimes.com/athletic/6546182/2025/08/13/arsenal-dorman-zubimendi-white-nwaneri-calafiori/
 
