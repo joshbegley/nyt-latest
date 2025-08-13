@@ -1,3 +1,11 @@
+**Denny Hamlin on how much drivers impact NASCAR success and more: 12 Questions**\
+`Denny Hamlin talks about his revised career timeline, how much the car has to do with winning and more in the latest 12 Questions.`\
+https://nytimes.com/athletic/6546922/2025/08/13/denny-hamlin-nascar-drivers-career-retirement-12-questions/
+
+**Giants have MLB's worst OPS against left-handers. Was it avoidable?**\
+`The team-wide struggles against left-handed pitching has worsened from a persistent problem to an embarrassing one.`\
+https://nytimes.com/athletic/6550546/2025/08/13/giants-left-handed-pitching/
+
 **Typhoon Podul Batters Southern Taiwan**\
 `The storm weakened after hitting the island’s central mountains, according to Taiwan’s Central Weather Administration.`\
 https://nytimes.com/video/world/asia/100000010338013/typhoon-podul-taiwan-storm-weather.html
