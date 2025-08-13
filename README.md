@@ -1,3 +1,7 @@
+**Beijing Evacuated Thousands Before Floods, but Not the Most Vulnerable.**\
+`The recent flooding that killed 31 in a single nursing home exposed flaws in emergency planning as China braces for more extreme and unpredictable weather.`\
+https://nytimes.com/2025/08/13/world/asia/china-floods-nursing-home.html
+
 **Pakistan Is in Trump’s Good Graces, but for How Long?**\
 `President Trump hosted the South Asian nation’s army chief and seeks deals on critical minerals and crypto. But Pakistan is also tightening its military partnership with China.`\
 https://nytimes.com/2025/08/13/world/africa/pakistan-trump-munir.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6550460/2025/08/13/astros-lose-red-sox-squander-al-
 **Ollie Palmer's incredible and unexpected comeback could give Wrexham a selection dilemma**\
 `Has striker Ollie Palmer just earned himself the most unlikely of Wrexham reprieves with two goals against Hull City?`\
 https://nytimes.com/athletic/6546201/2025/08/13/wrexham-hull-palmer-league-cup/
-
-**Padres pull even with Dodgers in NL West, claiming latest share of first place since 2010**\
-`With a pair of weekend series coming up against Los Angeles, the Padres will soon have the opportunity to speed past the Dodgers.`\
-https://nytimes.com/athletic/6550438/2025/08/13/padres-dodgers-nl-west-race/
 
