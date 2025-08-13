@@ -1,3 +1,19 @@
+**Behind Wall Street’s Abrupt Flip on Crypto**\
+`The reversal risks declawing a century of consumer financial protections and replacing the backbone of bank accounts.`\
+https://nytimes.com/2025/08/13/business/wall-street-banks-crypto-stablecoins.html
+
+**Historians Alarmed by White House Plan to Oversee Smithsonian Exhibits**\
+`The Trump administration’s plan to, in effect, audit the content of Smithsonian museums drew criticism from groups that represent scholars and promote free speech.`\
+https://nytimes.com/2025/08/13/arts/design/trump-smithsonian-exhibits-review-historians-alarmed.html
+
+**Mr. President, Stop Coddling Putin**\
+`Ukrainians are heroes. It’s time that Trump started acting like it.`\
+https://nytimes.com/2025/08/13/opinion/trump-putin-summit-ukraine.html
+
+**U.S. Drinking Drops to New Low, Poll Finds**\
+`The results signal a shift after a recent uptick in drinking among middle-aged adults in particular.`\
+https://nytimes.com/2025/08/13/well/us-alcohol-drinking-low-poll.html
+
 **Trump Talks Honorees, National Guard in D.C. and Russia at Kennedy Center**\
 `President Donald J. Trump said that he would be hosting the Kennedy Center Honors himself in December and announced the honorees, which included Sylvester Stallone and Gloria Gaynor. Mr. Trump then focused most of his remarks on the National Guard being deployed to Washington.`\
 https://nytimes.com/video/us/politics/100000010338772/trump-ukraine-russia-national-guard.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6546444/2025/08/13/giovanni-leoni-liverpool-transfe
 **Top Iranian Official Visits Lebanon as Hezbollah Bucks Calls to Disarm**\
 `The visit by Ali Larijani, the head of Iran’s top security body, came as the Lebanese government moves to disarm Hezbollah, the militant group that has long been Tehran’s most powerful regional ally.`\
 https://nytimes.com/2025/08/13/world/europe/iran-lebanon-hezbollah-disarm.html
-
-**The Reason Economists Are Worried About Trump’s Labor Statistics Choices**\
-`Most of us just accept that government economic data is the best possible estimate of the economy. That could change, and that would be bad for all of us.`\
-https://nytimes.com/2025/08/13/opinion/trump-bls-nominee-antoni.html
-
-**Read the document**\
-`The criminal complaint charging the man who is accused of throwing a sandwich at a federal officer.`\
-https://nytimes.com/interactive/2025/08/13/us/sandwich-complaint.html
-
-**Trump Administration Can Withhold Billions in Aid, Appeals Court Rules**\
-`In a 2-to-1 vote, a federal appeals court panel ruled that foreign aid groups that sued to recover funds that President Trump froze cannot challenge the decision.`\
-https://nytimes.com/2025/08/13/us/politics/foreign-aid-trump-appeals-ruling.html
-
-**The ‘Womanosphere’ Is Booming. No Wonder Katie Miller Hopped Aboard.**\
-`The wife of Stephen Miller, who recently worked for Elon Musk, has joined a fast-growing world of conservative podcasters offering women lifestyle advice.`\
-https://nytimes.com/2025/08/13/style/katie-miller-podcast.html
 
