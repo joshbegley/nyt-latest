@@ -1,3 +1,15 @@
+**gws-santa-fe-essential-art-outpost**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/santa-fe-essential-art-outpost
+
+**How Do I Tell My Religious Friend to Stop Inviting Us to Church?**\
+`Although I see these invites as well-meaning, they make me deeply uncomfortable.`\
+https://nytimes.com/2025/08/13/magazine/religious-friend-church-invitation-ethics.html
+
+**Five Horror Movies to Stream Now**\
+`This month’s terrors come from stalkers, a witch, a slimy creature — and low blood sugar.`\
+https://nytimes.com/2025/08/13/movies/five-horror-movies-to-stream-now.html
+
 **Barca board agree to risk €7m in personal wealth in bid to register Rashford, Garcia**\
 `With three days to go before Barca’s first match of the campaign, Hansi Flick’s major signings of the summer are still not eligible to play.`\
 https://nytimes.com/athletic/6551185/2025/08/13/barcelona-new-signings-register-rashford-garcia/

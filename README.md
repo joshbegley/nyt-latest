@@ -1,3 +1,7 @@
+**Trump Picks Stallone and Kiss for Kennedy Center Honors**\
+`The actors Sylvester Stallone and Michael Crawford, the singers George Strait and Gloria Gaynor and the rock band Kiss will be honored later this year.`\
+https://nytimes.com/2025/08/13/us/politics/trump-stallone-kiss-kennedy-center-honors.html
+
 **gws-santa-fe-essential-art-outpost**\
 `(No description)`\
 https://nytimes.com/newsgraphics/card-story/santa-fe-essential-art-outpost
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/13/well/homeless-heat-phoenix.html
 **Wildfires Rage Across Southern Europe**\
 `Thousands of firefighters are battling blazes as the continent continues to swelter in dangerously high temperatures.`\
 https://nytimes.com/video/world/europe/100000010338011/wildfires-rage-across-southern-europe.html
-
-**Liverpool's Gomez returns to training before Premier League opener on Friday**\
-`Gomez has recovered from the Achilles injury that forced him to leave the club's pre-season tour of Asia last month.`\
-https://nytimes.com/athletic/6551195/2025/08/13/liverpool-gomez-injury-team-news-bournemouth/
 
