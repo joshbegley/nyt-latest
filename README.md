@@ -1,3 +1,7 @@
+**4 Inmates Are Killed in Less Than a Month at Nevada Prisons, State Says**\
+`The homicides appear to be unrelated, according to prison officials, who said that drugs were believed to have been a contributing factor.`\
+https://nytimes.com/2025/08/13/us/nevada-prisons-inmate-homicides.html
+
 **Some Democrats Panicked Over Mamdani. Obama Called Him.**\
 `Obamaworld seems interested in understanding Zohran Mamdani’s sudden rise to prominence.`\
 https://nytimes.com/2025/08/13/opinion/mamdani-obama-democrats.html
@@ -12,7 +16,7 @@ https://nytimes.com/2025/08/13/arts/design/mario-paglino-gianni-grossi-dead.html
 
 **Florida Approves First Black Bear Hunt Since 2015**\
 `State wildlife officials say a regulated hunt is needed to manage the bear population. Opponents say the new rules will lead to trophy hunting.`\
-https://nytimes.com/2025/08/13/us/florida-approves-first-black-bear-hunt-since-2015.html
+https://nytimes.com/2025/08/13/us/florida-black-bear-hunt.html
 
 **At Least 26 Migrants Drown Off the Italian Island of Lampedusa**\
 `Sixty people survived after two boats with nearly 100 migrants capsized. The causes of the shipwrecks were not clear, Italian officials and U.N. agencies said. The death toll is likely to grow.`\
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/13/us/politics/trump-maryland-judges-lawsuit.html
 **Lamar Jackson drops No. 8 trademark challenge against Troy Aikman's company**\
 `Jackson has previously challenged the use of the No. 8 by entities including NASCAR Hall of Fame driver Dale Earnhardt Jr.`\
 https://nytimes.com/athletic/6551619/2025/08/13/ravens-lamar-jackson-troy-aikman-trademark-challenge/
-
-**Man Who Tried to Export 850 Turtles Hidden in Socks Pleads Guilty**\
-`The man was caught after an undercover agent of the U.S. Fish and Wildlife Service coordinated a sale with him on Facebook, the authorities said.`\
-https://nytimes.com/2025/08/13/us/illegal-wildlife-turtles-export.html
 
