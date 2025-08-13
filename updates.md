@@ -1,3 +1,15 @@
+**How do you assess Jack Grealish's four season-spell at Manchester City?**\
+`Grealish won several major honours with City but only in 2022-23 did he take games by the scruff of the neck like he had at Villa   `\
+https://nytimes.com/athletic/6548221/2025/08/13/jack-grealish-manchester-city-aston-villa-everton-career/
+
+**UEFA Super Cup: PSG look to bounce back as Frank eyes Spurs trophy**\
+`Thomas Frank's Europa League winners face Luis Enrique's European champions in a chance for early season silverware`\
+https://nytimes.com/athletic/6548920/2025/08/13/uefa-super-cup-psg-spurs-roundtable/
+
+**How Sunderland play: Fast breaks, wide triangles, and lots of dribbles**\
+`The Athletic looks at the tactical set-up of Regis Le Bris' promoted outfit as they return to the Premier League in 2025-26`\
+https://nytimes.com/athletic/6534535/2025/08/13/sunderland-tactics-premier-league-2025-26/
+
 **Cubs' offensive malaise continues north of the border**\
 `The Cubs offense was a no-show yet again, this time in a 5-1 loss to the Toronto Blue Jays on Tuesday.`\
 https://nytimes.com/athletic/6550345/2025/08/13/cubs-offensive-malaise-continues-blue-jays/
