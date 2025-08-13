@@ -1,3 +1,15 @@
+**With O-line struggles in Minnesota, Patriots offense might need time to jell**\
+`The New England offense should be better in 2025, but Wednesday's joint practice with the Vikings showed it's not going to happen overnight.`\
+https://nytimes.com/athletic/6552056/2025/08/13/patriots-vikings-drake-maye-offensive-line/
+
+**Why Does Trump Want to Meet With Putin, and What Are the Risks?**\
+`President Trump wants to be seen as a peacemaker, but the meeting comes with enormous stakes.`\
+https://nytimes.com/2025/08/13/us/politics/trump-putin-alaska-meeting-stakes.html
+
+**Gleeman: In pulling Twins off the market, Pohlads crush hopes of a fan base that deserves better**\
+`After 10 months of hope, Twins fans find themselves stuck in the same place they've been for decades under the team's current ownership. `\
+https://nytimes.com/athletic/6551378/2025/08/13/minnesota-twins-pohlad-no-sale-fans/
+
 **American Influencer Stuck Off Antarctica for 6 Weeks Says It’s ‘Isolating and Lonely’**\
 `Ethan Guo, a 20-year-old pilot and content creator, said that he has been effectively trapped at a Chilean base since June. The authorities had said he landed there without permission.`\
 https://nytimes.com/2025/08/13/world/americas/ethan-guo-pilot-antarctica-chile.html
@@ -6,7 +18,7 @@ https://nytimes.com/2025/08/13/world/americas/ethan-guo-pilot-antarctica-chile.h
 `Everything you need to know from the Giants' second day of joint practice with the Jets. `\
 https://nytimes.com/athletic/6552063/2025/08/13/ny-giants-jets-practice-brian-burns/
 
-**With a 12-win game streak, Brewers give their fans something else to cheer about — free burgers**\
+**With a 12-game win streak, Brewers give their fans something else to cheer about — free burgers**\
 `The Brewers swept the Pittsburgh Pirates with a 12-5 win, setting up a chance to tie their club-record win streak on Friday in Cincinnati.`\
 https://nytimes.com/athletic/6552074/2025/08/13/mlb-brewers-burgers-win-streak/
 
@@ -25,16 +37,4 @@ https://nytimes.com/2025/08/13/nyregion/united-health-care-harassment-charges.ht
 **Canada Has Its Second-Worst Wildfire Season on Record**\
 `Thousands have been evacuated as quick moving wildfires burn in Eastern Canada.`\
 https://nytimes.com/2025/08/13/world/canada/canada-wildfire-season-newfoundland-saskatchewan.html
-
-**Eagles-Browns practice takeaways: Cornerback concerns, inconsistent offense**\
-`The Browns gave the Eagles trouble in a few areas.`\
-https://nytimes.com/athletic/6551937/2025/08/13/eagles-browns-practice-takeaways-cornerback-inconsistent-offense/
-
-**Ahead of Putin Meeting, Trump Shrugs Off Russian Threats in U.S. and Abroad**\
-`President Trump struck a remarkably unconcerned tone when asked to address the horrors of war, raising questions about whether he has the leverage to convince Vladimir V. Putin to agree to end the invasion in Ukraine.`\
-https://nytimes.com/2025/08/13/us/politics/trump-putin-russian-threats.html
-
-**Man Charged With Assaulting Federal Agent With Sandwich in D.C.**\
-`A video showed a man repeatedly calling a group of officers “fascists” before throwing a sub sandwich at one.`\
-https://nytimes.com/2025/08/13/us/politics/federal-agent-trump-sandwich-dc.html
 
