@@ -1,3 +1,11 @@
+**Taylor Swift’s ‘The Life of a Showgirl’ Will Release on Oct. 3**\
+`Swift is talking about her upcoming album on “New Heights,” a sports and pop culture podcast co-hosted by her boyfriend.`\
+https://nytimes.com/2025/08/13/arts/music/taylor-swift-travis-kelce-new-heights-podcast.html
+
+**Blue Jays' Alek Manoah stumbles in first Triple-A rehab outing, future uncertain**\
+`In Manoah's first Triple-A rehab outing, he lasted 1 2/3 innings, walking three batters and reaching 49 pitches.`\
+https://nytimes.com/athletic/6552220/2025/08/13/toronto-blue-jays-alek-manoah-update/
+
 **Republican Ex-Candidate Sentenced to 80 Years in Prison for Shooting Plot**\
 `Solomon Peña, who lost a bid for a seat in the New Mexico Legislature in 2022, was found guilty in March of orchestrating the attacks against state Democrats.`\
 https://nytimes.com/2025/08/13/us/solomon-pena-new-mexico-political-shootings-sentencing.html
