@@ -1,3 +1,7 @@
+**Climate Change, Regulation and Health**\
+`Readers respond to articles about the E.P.A.’s reversal on the dangers of climate change. Also: Hiding unfavorable jobs data.`\
+https://nytimes.com/2025/08/13/opinion/climate-change-regulation-health.html
+
 **Denver Summit FC acquires Ally Watt, first signing in franchise history**\
 `The 28-year-old forward signed with the team ahead of its inaugural 2026 season.`\
 https://nytimes.com/athletic/6551476/2025/08/13/denver-summit-ally-watt-signing-nwsl-expansion-team/
@@ -33,8 +37,4 @@ https://nytimes.com/video/world/middleeast/100000010322362/what-it-takes-to-find
 **The Premier League players who tried to force a move - with varying degrees of success**\
 `The Newcastle striker is this summer's transfer saga but his is a familiar tale when a footballer wants to make a move happen`\
 https://nytimes.com/athletic/6551124/2025/08/13/premier-league-force-transfer-isak/
-
-**With new deals, 'Pay Per View' has lost by knockout. 'Pay Per Month' has won: MoneyCall**\
-`More in this week's sports business cheat sheet: The sports podcast episode of the year, La Liga drama, the rising Cincinnati Open and more.`\
-https://nytimes.com/athletic/6551363/2025/08/13/pay-per-view-ufc-paramount-espn-wwe-moneycall/
 
