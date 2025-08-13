@@ -1,3 +1,7 @@
+**The Ravens’ biggest weapon might be Derrick Henry’s empty stomach**\
+`Henry is north of 30, an age when his production should be in decline. So how is he still getting better?`\
+https://nytimes.com/athletic/6547155/2025/08/13/derrick-henry-ravens-diet-nfl/
+
 **Israel Hasn’t Prosecuted a Single Suspect for the Oct. 7 Attack**\
 `Israel has extensively documented the 2023 Hamas-led assault and is believed to be holding at least 200 Palestinians suspected of involvement. Not one has been charged or put on trial.`\
 https://nytimes.com/2025/08/13/world/middleeast/israel-oct-7-palestinians-trial.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6549007/2025/08/13/packers-jordan-love-elite-matt-l
 **Kepner: The Mets must to do right by Pete Alonso, and keep him in Queens for good**\
 `No matter the metrics, no matter the market, Alonso is different. That should be obvious by now.`\
 https://nytimes.com/athletic/6550451/2025/08/13/new-york-mets-pete-alonso-long-term-contract/
-
-**Shohei Ohtani, Mike Trout set for rematch of their 2023 World Baseball Classic duel**\
-`Ohtani will pitch Wednesday at Angel Stadium for the first time as a visitor. Trout will occupy Ohtani's old spot as designated hitter.`\
-https://nytimes.com/athletic/6550340/2025/08/13/shohei-ohtani-mike-trout-wbc-rematch/
 
