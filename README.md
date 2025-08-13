@@ -1,3 +1,15 @@
+**NWSL's Chicago Stars name Martin Sjögren as new head coach**\
+`Sjögren, who is currently head coach of Hammarby in Sweden’s top women’s flight, will join the club in January.`\
+https://nytimes.com/athletic/6549836/2025/08/13/chicago-stars-martin-sjogren-head-coach/
+
+**Jack Grealish to Everton: Everything you need to know - TLDR**\
+`Everton have completed the loan signing of the England international. Here, we break down the deal`\
+https://nytimes.com/athletic/6550736/2025/08/13/jack-grealish-everton-man-city/
+
+**It’s Always the Season for Lemon Spaghetti With Roasted Artichokes**\
+`This weeknight pasta comes together with ease — especially if you use an air fryer to burnish your canned or frozen artichoke hearts.`\
+https://nytimes.com/2025/08/13/dining/easy-lemon-pasta-recipe-for-canned-or-frozen-artichokes.html
+
 **Trump’s Affinity for Putin Will Be Tested at High-Risk Summit in Alaska**\
 `President Trump has largely held back from harsh criticism of Vladimir V. Putin personally, despite recent complaints about Russian intransigence in ending the war in Ukraine.`\
 https://nytimes.com/2025/08/13/us/politics/trump-putin-meeting-russia-ukraine.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6549947/2025/08/13/49ers-preseason-training-camp-co
 **Some Juneau Residents Evacuate as Melting Glacier Threatens to Flood Town**\
 `The Mendenhall River in Alaska was at “major flood” stage as of Wednesday morning, with additional water expected from an overflowing glacial lake.`\
 https://nytimes.com/2025/08/13/climate/alaska-juneau-flood-glacier.html
-
-**Wilshere will not make Arsenal return as Under-21s head coach**\
-`Wilshere is highly-regarded for his role in helping develop talents such as Myles Lewis-Skelly, Ethan Nwaneri and Max Dowman.`\
-https://nytimes.com/athletic/6388502/2025/08/13/jack-wilshere-arsenal-under-21s/
-
-**Catalan club cancels player transfer over anti-Catalan livestream video**\
-`A video of the defender saying "I s*** on all dead Catalans" after a 2024 match against Barcelona's B team was published on Instagram.`\
-https://nytimes.com/athletic/6550878/2025/08/13/catalan-football-transfer-cancelled/
-
-**Lowetide: Complete reasonable expectations for the Oilers' 2025-26 season**\
-`The annual prediction returns with the Oilers set in some positions and in a transitional phase at others.`\
-https://nytimes.com/athletic/6549033/2025/08/13/edmonton-oilers-reasonable-expectations-2025/
 
