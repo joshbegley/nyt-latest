@@ -1,3 +1,19 @@
+**Manchester City season betting preview: Can Citizens recover dynastic dominance?**\
+`No longer the defending champs, Man City have an uphill battle to reclaim dominance over Liverpool.`\
+https://nytimes.com/athletic/6547176/2025/08/13/manchester-city-season-betting-preview-odds/
+
+**New York City Companies All but Stopped Hiring in First Half of the Year**\
+`Fewer than 1,000 private-sector jobs were added, the slowest growth in the labor market outside a recession and the pandemic since 2003.`\
+https://nytimes.com/2025/08/13/nyregion/nyc-jobs.html
+
+**Documenting the Horrors of the Texas Floods**\
+`Not for the first time, a photographer was called to head (quickly) to the scene of a natural disaster.`\
+https://nytimes.com/2025/08/13/insider/documenting-the-horrors-of-the-texas-floods.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/08/13/crosswords/spelling-bee-forum.html
+
 **Jimmy Fallon Isn’t Optimistic About the Trump-Putin ‘Listening Exercise’**\
 `That’s how the White House described the upcoming Alaska talks. Fallon said “listening and exercise are Trump’s two favorite things, so this should go well.”`\
 https://nytimes.com/2025/08/13/arts/television/jimmy-fallon-trump-putin.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6550438/2025/08/13/padres-dodgers-nl-west-race/
 **The New York Times in Print for Wednesday, Aug. 13, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/08/13/todays-new-york-times
-
-**Trump Is Doubling Down on Sanctions. Putin Is Laughing All the Way to Alaska.**\
-`There is something Putin cares about more than money.`\
-https://nytimes.com/2025/08/13/opinion/trump-putin-ukraine-alaska.html
-
-**Flash Floods Trap Cars on Tennessee Highway**\
-`A car swirled around in a muddy whirlpool as rescue teams helped people evacuate from flooded homes in Chattanooga, Tenn.`\
-https://nytimes.com/video/weather/100000010337632/flooding-chattanooga-tennessee.html
-
-**Barcelona 2025-26 season preview: Next-level Yamal, high-line worries and Rashford's new role**\
-`Barca get their La Liga title defence up and running on Saturday night when they visit Mallorca`\
-https://nytimes.com/athletic/6548280/2025/08/13/barcelona-la-liga-new-season-preview-yamal-rashford/
-
-**Picking Manchester United's 2025-26 breakthrough player - Leny Yoro**\
-`Leny Yoro endured plenty of frustration during his first year at Manchester United but those who work with him have high expectations`\
-https://nytimes.com/athletic/6549723/2025/08/13/manchester-united-breakthrough-player-leny-yoro/
 
