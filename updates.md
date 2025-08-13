@@ -1,3 +1,7 @@
+**Taking stock of Chargers' 'really competitive' cornerback competition**\
+`Najee Harris also made some progress in his return from his fireworks-related eye injury, running with a football off to the side. `\
+https://nytimes.com/athletic/6550199/2025/08/12/chargers-training-camp-cornerback-competition/
+
 **After Fatal Explosion, Focus Turns to Steel Mill’s Future and Past**\
 `The mill, which is part of the recent merger between U.S. Steel and Nippon Steel, has faced scrutiny from federal and local regulators.`\
 https://nytimes.com/2025/08/12/us/us-steel-plant-explosion.html
