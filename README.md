@@ -1,3 +1,11 @@
+**Trump’s Affinity for Putin Will Be Tested at High-Risk Summit in Alaska**\
+`President Trump has largely held back from harsh criticism of Vladimir V. Putin personally, despite recent complaints about Russian intransigence in ending the war in Ukraine.`\
+https://nytimes.com/2025/08/13/us/politics/trump-putin-meeting-russia-ukraine.html
+
+**Escondido, Calif., a Showcase for Fire-Resilient Building**\
+`“Affordable” by California standards, this San Diego suburb is the site of a new community developed with fire preparedness in mind.`\
+https://nytimes.com/2025/08/13/realestate/escondido-san-diego-california-real-estate.html
+
 **Answering crucial fantasy football draft questions at running back**\
 `The Athletic fantasy football experts share their opinions on Ashton Jeanty, Christian McCaffrey and many more at the RB position.`\
 https://nytimes.com/athletic/6549327/2025/08/13/fantasy-football-2025-running-back-roundtable/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6550878/2025/08/13/catalan-football-transfer-cancel
 **Lowetide: Complete reasonable expectations for the Oilers' 2025-26 season**\
 `The annual prediction returns with the Oilers set in some positions and in a transitional phase at others.`\
 https://nytimes.com/athletic/6549033/2025/08/13/edmonton-oilers-reasonable-expectations-2025/
-
-**Vance Meets Farage, Another Right-Wing Populist, in Britain**\
-`JD Vance, the vice president, sat down with Nigel Farage, a longtime supporter of President Trump whose party, Reform U.K., is leading in British polls.`\
-https://nytimes.com/2025/08/13/world/europe/jd-vance-nigel-farage-reform-uk.html
-
-**With Deep N.I.H. Cuts, Research Into Health Disparities Falters**\
-`In its campaign against “woke” science, the Trump administration has closed down studies and programs focused on the gaps between racial and socioeconomic groups.`\
-https://nytimes.com/2025/08/13/health/nih-grant-cancellations-dei.html
 
