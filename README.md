@@ -1,3 +1,7 @@
+**Shohei Ohtani, the one who got away, pitches vs. the Angels. Here's how to watch**\
+`Here's how to watch Shohei Ohtani hit and pitch against his former team on Wednesday night.`\
+https://nytimes.com/athletic/6549616/2025/08/13/shohei-ohtani-dodgers-angels-hitting-pitching-how-to-watch/
+
 **Typhoon Podul Heads Toward China After Lashing Taiwan**\
 `A man was swept away while fishing and dozens of other people were injured as strong winds and rain battered the island.`\
 https://nytimes.com/2025/08/13/world/asia/typhoon-podul-taiwan-china.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6549761/2025/08/13/panthers-hunter-renfrow-receiver
 **Miguel Andujar, acquired to crush left-handed pitching, delivering big for Reds**\
 `Since joining the Reds, Andújar has helped transform their lineup, hitting .991 OPS against lefties and sparking key wins.`\
 https://nytimes.com/athletic/6550353/2025/08/13/miguel-andujar-crush-lefties/
-
-**Aaron Donald was one of the NFL's toughest players. A stalker left him living in fear**\
-`Though most stalking victims are women, the issue remains deeply problematic for all athletes.`\
-https://nytimes.com/athletic/6543065/2025/08/13/aaron-donald-stalker-rams-nfl/
 
