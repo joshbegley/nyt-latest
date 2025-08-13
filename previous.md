@@ -1,3 +1,15 @@
+**Trump Talks Honorees, National Guard in D.C. and Russia at Kennedy Center**\
+`President Donald J. Trump said that he would be hosting the Kennedy Center Honors himself in December and announced the honorees, which included Sylvester Stallone and Gloria Gaynor. Mr. Trump then focused most of his remarks on the National Guard being deployed to Washington.`\
+https://nytimes.com/video/us/politics/100000010338772/trump-ukraine-russia-national-guard.html
+
+**Manchester United under-21 game abandoned after Sekou Kone head injury**\
+`Kone fell to the ground following a clash of heads with a Tamworth player towards the send of the first half at the Lamb Ground.`\
+https://nytimes.com/athletic/6552020/2025/08/13/man-united-news-sekou-kone-head-injury/
+
+**The First Hours of Trump’s Federal Deployment in D.C.**\
+`National Guard troops began to deploy on Tuesday as President Trump says he will use the federal government to crack down on crime in the city.`\
+https://nytimes.com/card/2025/08/13/us/politics/washington-dc-national-guard-photos
+
 **The good and bad for the Jets in two joint practices against the Giants**\
 `From a conservative passing game to some needed growing pains for the offensive line.`\
 https://nytimes.com/athletic/6551816/2025/08/13/giants-jets-joint-practice-report-justin-fields-offense/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/08/13/us/politics/foreign-aid-trump-appeals-ruling.html
 **The ‘Womanosphere’ Is Booming. No Wonder Katie Miller Hopped Aboard.**\
 `The wife of Stephen Miller, who recently worked for Elon Musk, has joined a fast-growing world of conservative podcasters offering women lifestyle advice.`\
 https://nytimes.com/2025/08/13/style/katie-miller-podcast.html
-
-**'Everything happened pretty fast:' Penix ends up on bottom of pile in Falcons-Titans fight**\
-`The Falcons and Titans saw Wednesday's joint practice stopped for several minutes after a fight broke out between the teams.`\
-https://nytimes.com/athletic/6551717/2025/08/13/michael-penix-falcons-titans-fight-preseason/
-
-**U.S. Ethics Agency Warns Bessent Over Conflicts of Interest**\
-`The Treasury secretary has been slow to divest assets, including farmland, that he pledged to shed.`\
-https://nytimes.com/2025/08/13/us/politics/scott-bessent-conflicts-of-interest.html
-
-**Pulisic docuseries inflames clash between current, former USMNT players**\
-`A new episode of 'Pulisic' on Paramount+ dives more into the rift between USMNT past and present that emerged this summer`\
-https://nytimes.com/athletic/6551719/2025/08/13/christian-pulisic-documentary-comments-usmnt-players-weah/
 
