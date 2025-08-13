@@ -1,3 +1,7 @@
+**Lionel Taylor, Denver Broncos Ring of Fame WR, dies at 89**\
+`Taylor was the first player in league history to have 100 receptions in a season.`\
+https://nytimes.com/athletic/6552188/2025/08/13/lionel-taylor-denver-broncos-ring-of-fame-wr-dies-at-89/
+
 **Joe Flacco continues to get majority of No. 1 reps as injuries pile up in Browns' QB room**\
 `The 40-year-old Flacco is the only QB to begin camp with Cleveland who hasn't been at least limited by an injury on multiple days. `\
 https://nytimes.com/athletic/6552035/2025/08/13/joe-flacco-browns-eagles-joint-practice/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/13/world/americas/ethan-guo-pilot-antarctica-chile.h
 **Giants pass rush torments Jets for second straight practice, but run defense looks shaky**\
 `Everything you need to know from the Giants' second day of joint practice with the Jets. `\
 https://nytimes.com/athletic/6552063/2025/08/13/ny-giants-jets-practice-brian-burns/
-
-**With a 12-game win streak, Brewers give their fans something else to cheer about — free burgers**\
-`The Brewers swept the Pittsburgh Pirates with a 12-5 win, setting up a chance to tie their club-record win streak on Friday in Cincinnati.`\
-https://nytimes.com/athletic/6552074/2025/08/13/mlb-brewers-burgers-win-streak/
 
