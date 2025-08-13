@@ -1,3 +1,7 @@
+**'Unguardable' with 'freaky lateral quickness': Hunter Renfrow returns to where he broke out**\
+`Hunter Renfrow's 65-yard TD reception in 2019 jumpstarted his rookie season. He's looking to regain some of that magic with the Panthers.`\
+https://nytimes.com/athletic/6549761/2025/08/13/panthers-hunter-renfrow-receiver-roster/
+
 **Shohei Ohtani, the one who got away, pitches vs. the Angels. Here's how to watch**\
 `Here's how to watch Shohei Ohtani hit and pitch against his former team on Wednesday night.`\
 https://nytimes.com/athletic/6549616/2025/08/13/shohei-ohtani-dodgers-angels-hitting-pitching-how-to-watch/

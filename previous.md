@@ -31,7 +31,7 @@ https://nytimes.com/athletic/6549350/2025/08/13/chiefs-wide-receiver-roster-bubb
 https://nytimes.com/athletic/6548895/2025/08/13/bmw-championship-playoffs-golf-weather-how-to-watch-2025/
 
 **'Unguardable' with 'freaky lateral quickness': Hunter Renfrow returns to where he broke out**\
-`After missing last season with a health issue, Hunter Renfrow is "unguardable" according to one teammate and working to regain his magic.`\
+`Hunter Renfrow's 65-yard TD reception in 2019 jumpstarted his rookie season. He's looking to regain some of that magic with the Panthers.`\
 https://nytimes.com/athletic/6549761/2025/08/13/panthers-hunter-renfrow-receiver-roster/
 
 **Miguel Andujar, acquired to crush left-handed pitching, delivering big for Reds**\
