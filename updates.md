@@ -1,3 +1,19 @@
+**Manchester City season betting preview: Can Citizens recover dynastic dominance?**\
+`No longer the defending champs, Man City have an uphill battle to reclaim dominance over Liverpool.`\
+https://nytimes.com/athletic/6547176/2025/08/13/manchester-city-season-betting-preview-odds/
+
+**New York City Companies All but Stopped Hiring in First Half of the Year**\
+`Fewer than 1,000 private-sector jobs were added, the slowest growth in the labor market outside a recession and the pandemic since 2003.`\
+https://nytimes.com/2025/08/13/nyregion/nyc-jobs.html
+
+**Documenting the Horrors of the Texas Floods**\
+`Not for the first time, a photographer was called to head (quickly) to the scene of a natural disaster.`\
+https://nytimes.com/2025/08/13/insider/documenting-the-horrors-of-the-texas-floods.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/08/13/crosswords/spelling-bee-forum.html
+
 **Jimmy Fallon Isn’t Optimistic About the Trump-Putin ‘Listening Exercise’**\
 `That’s how the White House described the upcoming Alaska talks. Fallon said “listening and exercise are Trump’s two favorite things, so this should go well.”`\
 https://nytimes.com/2025/08/13/arts/television/jimmy-fallon-trump-putin.html
