@@ -1,3 +1,7 @@
+**Brewers rout Pirates, extend winning streak to league-leading 11 games**\
+`At 75-44, Milwaukee has quickly become far and away MLB's best team, five games better than the next-closest club.`\
+https://nytimes.com/athletic/6550203/2025/08/12/milwaukee-brewers-win-streak-extended/
+
 **Brock Stewart, the Dodgers' primary bullpen deadline addition, hits the injured list**\
 `Stewart has right shoulder inflammation after just four appearances with the team.`\
 https://nytimes.com/athletic/6550224/2025/08/12/dodgers-brock-stewart-injured-list/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/12/us/us-steel-plant-explosion.html
 **Six Convicted in 2017 Fire That Killed 41 Girls in Guatemala Group Home**\
 `The girls were locked in a classroom in a government-run group home for at-risk youth. The officials were charged with child abuse, dereliction of duty, manslaughter and other counts.`\
 https://nytimes.com/2025/08/12/world/americas/guatemala-convictions-deadly-fire.html
-
-**Trump Misstates Washington Crime Data to Justify Takeover**\
-`The president cited a number of false and misleading claims about homicides and youth crime in the nation’s capital.`\
-https://nytimes.com/2025/08/12/us/politics/trump-dc-crime-data-fact-check.html
 
