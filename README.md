@@ -1,3 +1,23 @@
+**Fantasy football targets and fades: Navigating the draft's first eight rounds**\
+`Dalton Del Don helps you navigate the minefield of your fantasy football drafts by sharing his targets and fades for the first eight rounds.`\
+https://nytimes.com/athletic/6549091/2025/08/13/fantasy-football-draft-targets-fades-nabers/
+
+**Steve Buscemi Is Glad He Took That Leap**\
+`Born on the unluckiest of days, the 67-year-old has built an enviable roster of affable malcontents. With his debut on Season 2 of “Wednesday,” he adds to his legend.`\
+https://nytimes.com/2025/08/13/arts/television/steve-buscemi-wednesday-profile.html
+
+**When Is It Genocide?**\
+`Philippe Sands discusses how to think about the tragedies in Gaza through the lens of international law.`\
+https://nytimes.com/2025/08/13/opinion/ezra-klein-podcast-philippe-sands.html
+
+**Trump Will Visit Kennedy Center to Announce New Honorees**\
+`The president has taken a strong interest in the Kennedy Center’s affairs ever since naming himself chairman in February, when he restocked its traditionally bipartisan board with loyalists.`\
+https://nytimes.com/2025/08/13/us/politics/trump-kennedy-center-nominees.html
+
+**How a U.S. Senate Race Is Shaping the Fight Over Redistricting in Texas**\
+`Senator John Cornyn and Attorney General Ken Paxton are vying to be the tougher candidate on Democratic lawmakers who left Texas, as potential Democratic rivals seek their own spotlight.`\
+https://nytimes.com/2025/08/13/us/politics/texas-redistricting-senate.html
+
 **The Hidden Meaning of ‘And Just Like That…’**\
 `Every generation gets the “Sex and the City” version it deserves.`\
 https://nytimes.com/2025/08/13/opinion/and-just-like-that-finale.html
@@ -17,24 +37,4 @@ https://nytimes.com/2025/08/13/technology/trump-chips-nvidia-intel.html
 **Trump Thinks He Is the C.E.O. of Everything. Awesome.**\
 `Our commander in chief has decided to also command the Fortune 500.`\
 https://nytimes.com/2025/08/13/opinion/trump-ceo-nvidia-intel.html
-
-**Robert F. Kennedy Jr.’s Impact So Far: ‘The Worst Possible Case’**\
-`David Wallace-Wells and Emily Oster argue that the effects of MAHA will be long-lasting.`\
-https://nytimes.com/2025/08/13/opinion/rfk-jr-maha-vaccines-food-dyes.html
-
-**What to Know About Trump’s Deal With A.I. Chipmakers**\
-`Nvidia and AMD will give the Trump administration a cut of chip sales to China in a deal that raises questions about national security and trade policy goals. Tripp Mickle explains.`\
-https://nytimes.com/video/business/100000010334605/what-to-know-about-trumps-deal-with-ai-chipmakers.html
-
-**What Does It Mean to Be a Woman in Power? A Ballet Looks to Two Queens.**\
-`“Mary, Queen of Scots,” a new commission by Scottish Ballet, puts both her historical tale and contemporary views in motion.`\
-https://nytimes.com/2025/08/13/arts/dance/mary-queen-of-scots-ballet-edinburgh.html
-
-**A Hybrid Ferry Offers a Cleaner Run to Governors Island**\
-`The Harbor Charger is quieter than conventional ferries and has been built to run completely on battery power.`\
-https://nytimes.com/2025/08/13/nyregion/hybrid-ferry-governors-island.html
-
-**Meat Is Back at Eleven Madison Park, After 4 Vegan Years**\
-`The Manhattan restaurant drew global praise and skepticism with its climate-minded, all-plant menu. Now its chef wants to be more welcoming — and popular.`\
-https://nytimes.com/2025/08/13/dining/eleven-madison-park-meat.html
 
