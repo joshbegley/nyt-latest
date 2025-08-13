@@ -1,9 +1,17 @@
+**Read the document**\
+`The criminal complaint charging the man who is accused of throwing a sandwich at a federal officer.`\
+https://nytimes.com/interactive/2025/08/13/us/sandwich-complaint.html
+
+**Trump Administration Can Withhold Billions in Aid, Appeals Court Rules**\
+`In a 2-to-1 vote, a federal appeals court panel ruled that foreign aid groups who sued to recover funds that President Trump froze cannot challenge the decision.`\
+https://nytimes.com/2025/08/13/us/politics/foreign-aid-trump-appeals-ruling.html
+
 **The ‘Womanosphere’ Is Booming. No Wonder Katie Miller Hopped Aboard.**\
 `The wife of Stephen Miller, who recently worked for Elon Musk, has joined a fast-growing world of conservative podcasters offering women lifestyle advice.`\
 https://nytimes.com/2025/08/13/style/katie-miller-podcast.html
 
 **'Everything happened pretty fast:' Penix ends up on bottom of pile in Falcons-Titans fight**\
-`The Falcons and Titans saw Wednesday's joint practice stopped for several minutes after a fight broke out between the two teams.`\
+`The Falcons and Titans saw Wednesday's joint practice stopped for several minutes after a fight broke out between the teams.`\
 https://nytimes.com/athletic/6551717/2025/08/13/michael-penix-falcons-titans-fight-preseason/
 
 **U.S. Ethics Agency Warns Bessent Over Conflicts of Interest**\
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6551686/2025/08/13/nebraska-football-punter-austral
 **Leonard Tow, Cable TV Magnate and a Major Philanthropist, Dies at 97**\
 `Once on the Forbes 400 list of richest Americans, he donated substantially to the arts, higher education, hospitals and criminal justice reform.`\
 https://nytimes.com/2025/08/13/business/media/leonard-tow-dead.html
-
-**What’s in Our Queue? ‘Murderbot’ and More**\
-`Text by Erik Vance`\
-https://nytimes.com/card/2025/08/13/arts/editors-recommendations-murderbot
-
-**4 Inmates Are Killed in Less Than a Month at Nevada Prisons, State Says**\
-`The homicides appear to be unrelated, according to prison officials, who said that drugs were believed to have been a contributing factor.`\
-https://nytimes.com/2025/08/13/us/nevada-prisons-inmate-homicides.html
 
