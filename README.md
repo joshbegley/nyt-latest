@@ -1,3 +1,11 @@
+**Jerry Jones talks Micah Parsons contract; Parsons declines comment**\
+`“You don’t have deadlines when you’re playing under a contract,” Jones said Wednesday.`\
+https://nytimes.com/athletic/6552121/2025/08/13/cowboys-micah-parsons-contract-update-jerry-jones/
+
+**Blue Jays' Alek Manoah stumbles in first Triple A rehab outing, future uncertain**\
+`In Manoah’s first Triple A rehab outing, he lasted 1 2/3 innings, walking three batters and reaching 49 pitches.`\
+https://nytimes.com/athletic/6552220/2025/08/13/toronto-blue-jays-alek-manoah-update/
+
 **'Let's play football': James Cook, with a smile and a tear, signs long-awaited extension with Bills**\
 `The running back and the team had been at an impasse before reaching a deal.`\
 https://nytimes.com/athletic/6552059/2025/08/13/james-cook-with-a-smile-and-a-tear-signs-long-awaited-extension-with-bills-lets-play-football/
@@ -10,7 +18,7 @@ https://nytimes.com/2025/08/13/us/armored-truck-robberies-philadelphia.html
 `Taylor was the first player in league history to have 100 receptions in a season.`\
 https://nytimes.com/athletic/6552188/2025/08/13/lionel-taylor-denver-broncos-ring-of-fame-wr-dies-at-89/
 
-**Joe Flacco continues to get majority of No. 1 reps as injuries pile up in Browns' QB room**\
+**Joe Flacco continues to get No. 1 reps in Browns' hampered QB room**\
 `The 40-year-old Flacco is the only QB to begin camp with Cleveland who hasn't been at least limited by an injury on multiple days. `\
 https://nytimes.com/athletic/6552035/2025/08/13/joe-flacco-browns-eagles-joint-practice/
 
@@ -29,12 +37,4 @@ https://nytimes.com/2025/08/13/briefing/trump-putin-meeting-water-kabul-bodega-r
 **With O-line struggles in Minnesota, Patriots offense might need time to jell**\
 `The New England offense should be better in 2025, but Wednesday's joint practice with the Vikings showed it's not going to happen overnight.`\
 https://nytimes.com/athletic/6552056/2025/08/13/patriots-vikings-drake-maye-offensive-line/
-
-**Why Does Trump Want to Meet With Putin, and What Are the Risks?**\
-`President Trump wants to be seen as a peacemaker, but the meeting comes with enormous stakes.`\
-https://nytimes.com/2025/08/13/us/politics/trump-putin-alaska-meeting-stakes.html
-
-**Gleeman: In pulling Twins off the market, Pohlads crush hopes of a fan base that deserves better**\
-`After 10 months of hope, Twins fans find themselves stuck in the same place they've been for decades under the team's current ownership. `\
-https://nytimes.com/athletic/6551378/2025/08/13/minnesota-twins-pohlad-no-sale-fans/
 
