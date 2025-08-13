@@ -1,3 +1,7 @@
+**Trump Administration Violated Order on U.C.L.A. Grant Terminations, Judge Says**\
+`Judge Rita F. Lin ordered the National Science Foundation to restore grants awarded to the university, which she said had been suspended in defiance of the court.`\
+https://nytimes.com/2025/08/12/us/politics/ucla-grant-nsf-science-trump.html
+
 **Trump to Meet Putin at U.S. Military Base in Anchorage**\
 `The American and Russian presidents will meet face to face at Joint Base Elmendorf-Richardson in Alaska on Friday, according to a White House official.`\
 https://nytimes.com/2025/08/12/us/politics/trump-putin-summit-alaska.html
