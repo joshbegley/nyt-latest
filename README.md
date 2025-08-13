@@ -1,3 +1,7 @@
+**Taylor Swift’s ‘The Life of a Showgirl’ Will Release on Oct. 3**\
+`Swift is talking about her upcoming album on “New Heights,” a sports and pop culture podcast co-hosted by her boyfriend.`\
+https://nytimes.com/2025/08/13/arts/music/taylor-swift-travis-kelce-new-heights-podcast.html
+
 **Republican Ex-Candidate Sentenced to 80 Years in Prison for Shooting Plot**\
 `Solomon Peña, who lost a bid for a seat in the New Mexico Legislature in 2022, was found guilty in March of orchestrating the attacks against state Democrats.`\
 https://nytimes.com/2025/08/13/us/solomon-pena-new-mexico-political-shootings-sentencing.html
@@ -10,8 +14,8 @@ https://nytimes.com/2025/08/13/us/politics/trump-kennedy-center-pop-culture.html
 `“You don’t have deadlines when you’re playing under a contract,” Jones said Wednesday.`\
 https://nytimes.com/athletic/6552121/2025/08/13/cowboys-micah-parsons-contract-update-jerry-jones/
 
-**Blue Jays' Alek Manoah stumbles in first Triple A rehab outing, future uncertain**\
-`In Manoah’s first Triple A rehab outing, he lasted 1 2/3 innings, walking three batters and reaching 49 pitches.`\
+**Blue Jays' Alek Manoah stumbles in first Triple-A rehab outing, future uncertain**\
+`In Manoah's first Triple-A rehab outing, he lasted 1 2/3 innings, walking three batters and reaching 49 pitches.`\
 https://nytimes.com/athletic/6552220/2025/08/13/toronto-blue-jays-alek-manoah-update/
 
 **'Let's play football': James Cook, with a smile and a tear, signs long-awaited extension with Bills**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6552035/2025/08/13/joe-flacco-browns-eagles-joint-p
 **Overlooked No More: Molly Drake, a Maternal, Musical Force Behind Nick Drake’s Sound**\
 `She was a poet, singer, composer and pianist whose melancholic home recordings from the 1950s hit on universal themes of despair, heartbreak, longing and loss.`\
 https://nytimes.com/2025/08/13/obituaries/molly-drake-overlooked.html
-
-**Lions joint practice takeaways: A dominating day on both sides vs. the Dolphins**\
-`Amon-Ra St. Brown and Jared Goff were sharp as the Lions got the best of the Dolphins. The two teams practice together again Thursday.`\
-https://nytimes.com/athletic/6551725/2025/08/13/lions-joint-practice-dominate-dolphins/
 

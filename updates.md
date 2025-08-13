@@ -1,3 +1,7 @@
+**Republican Ex-Candidate Sentenced to 80 Years in Prison for Shooting Plot**\
+`Solomon Peña, who lost a bid for a seat in the New Mexico Legislature in 2022, was found guilty in March of orchestrating the attacks against state Democrats.`\
+https://nytimes.com/2025/08/13/us/solomon-pena-new-mexico-political-shootings-sentencing.html
+
 **At the Kennedy Center, Trump Puts His Pop Culture Obsession on Display**\
 `President Trump held forth about the nature of show business and his own tortured relationship with celebrity.`\
 https://nytimes.com/2025/08/13/us/politics/trump-kennedy-center-pop-culture.html
