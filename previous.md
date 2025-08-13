@@ -1,3 +1,7 @@
+**Typhoon Podul Batters Southern Taiwan**\
+`The storm weakened after hitting the island’s central mountains, according to Taiwan’s Central Weather Administration.`\
+https://nytimes.com/video/world/asia/100000010338013/typhoon-podul-taiwan-storm-weather.html
+
 **Why Investors Are Again Euphoric About Interest Rates**\
 `The S&P 500 is approaching a record on bets that Federal Reserve will lower borrowing costs despite uncertainty over President Trump’s trade war.`\
 https://nytimes.com/2025/08/13/business/dealbook/market-rally-interest-rates-trump.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/13/world/europe/wildfires-deadly-spain-greece-turkey
 **Ministers Take Jabs at Israel’s Military Chief as Gaza Plan Stokes Tension**\
 `Lt. Gen. Eyal Zamir has pushed back against a proposal to control Gaza City, according to officials. One hard-right member of the government suggested he could be dismissed.`\
 https://nytimes.com/2025/08/13/world/middleeast/israel-gaza-plan-military-government-zamir.html
-
-**Bills, James Cook agree 4-year, $48m contract extension: Source**\
-`The $12m per season average sees Cook's new deal rank sixth in average annual value for running backs.`\
-https://nytimes.com/athletic/6547384/2025/08/13/james-cook-bills-contract-extension/
 

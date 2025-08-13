@@ -1,3 +1,7 @@
+**Typhoon Podul Batters Southern Taiwan**\
+`The storm weakened after hitting the island’s central mountains, according to Taiwan’s Central Weather Administration.`\
+https://nytimes.com/video/world/asia/100000010338013/typhoon-podul-taiwan-storm-weather.html
+
 **Why Investors Are Again Euphoric About Interest Rates**\
 `The S&P 500 is approaching a record on bets that Federal Reserve will lower borrowing costs despite uncertainty over President Trump’s trade war.`\
 https://nytimes.com/2025/08/13/business/dealbook/market-rally-interest-rates-trump.html
