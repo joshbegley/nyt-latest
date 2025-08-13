@@ -1,3 +1,7 @@
+**If You Hate ‘And Just Like That…’ What Does That Say About You?**\
+`Wesley Morris and Taffy Brodesser-Akner say farewell to the “Sex and the City” reboot.`\
+https://nytimes.com/video/podcasts/100000010334754/if-you-hate-and-just-like-that-what-does-that-say-about-you.html
+
 **Cabbies Who Lost Licenses After Arrests Near $140 Million Settlement**\
 `New York City could grant payouts to some 20,000 taxi drivers whose professional licenses were summarily suspended without sufficient due process.`\
 https://nytimes.com/2025/08/13/nyregion/nyc-taxi-drivers-settlement.html
@@ -7,7 +11,7 @@ https://nytimes.com/2025/08/13/nyregion/nyc-taxi-drivers-settlement.html
 https://nytimes.com/2025/08/13/us/border-bakery-undocumented-immigrants.html
 
 **Taylor Swift’s ‘The Life of a Showgirl’ Will Release on Oct. 3**\
-`Swift is talking about her upcoming album on “New Heights,” a sports and pop culture podcast co-hosted by her boyfriend.`\
+`Swift spoke about her upcoming album on “New Heights,” a sports and pop culture podcast co-hosted by her boyfriend.`\
 https://nytimes.com/2025/08/13/arts/music/taylor-swift-travis-kelce-new-heights-podcast.html
 
 **Republican Ex-Candidate Sentenced to 80 Years in Prison for Shooting Plot**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6552059/2025/08/13/james-cook-with-a-smile-and-a-te
 **3 Arrested in $2 Million Heist From Brinks Truck in Philadelphia**\
 `One of the suspects is a former Brinks employee who had recently been fired. The robbery was one of five similar crimes in the area in less than two months.`\
 https://nytimes.com/2025/08/13/us/armored-truck-robberies-philadelphia.html
-
-**Lionel Taylor, Denver Broncos Ring of Fame WR, dies at 89**\
-`Taylor was the first player in league history to have 100 receptions in a season.`\
-https://nytimes.com/athletic/6552188/2025/08/13/lionel-taylor-denver-broncos-ring-of-fame-wr-dies-at-89/
 
