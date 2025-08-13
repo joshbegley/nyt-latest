@@ -34,7 +34,7 @@ https://nytimes.com/athletic/6550546/2025/08/13/giants-left-handed-pitching/
 `Nestrašil's dad wanted a pianist, not another hockey player. Instead, he got his family's second NHL Draft pick 16 years after the first.`\
 https://nytimes.com/athletic/6521559/2025/08/13/blackhawks-vaclav-nestrasil-nhl-draft/
 
-**Southern Europe Battles Deadly Wildfires**\
-`High winds were complicating efforts to tame the blazes, which were burning in Greece, Spain, Turkey, Montenegro and Albania.`\
+**Europe Battles Deadly Wildfires as High Winds Fuel Flames**\
+`Firefighters were struggling to tame blazes in several countries in southern Europe, including Albania, Greece, Montenegro and Spain, and in Turkey.`\
 https://nytimes.com/2025/08/13/world/europe/wildfires-deadly-spain-greece-turkey-albania-montenegro.html
 
