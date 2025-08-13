@@ -1,3 +1,7 @@
+**In ‘And Just Like That…’ a Craven Era Took Its Revenge on Youth and Hope and Fun**\
+`Every generation gets the “Sex and the City” version it deserves.`\
+https://nytimes.com/2025/08/13/opinion/and-just-like-that-finale.html
+
 **10 fantasy football targets who can go from trash to treasure in 2025**\
 `Jake Ciely details players tossed aside due to poor performances last season who could be fantasy gold in 2025. `\
 https://nytimes.com/athletic/6549661/2025/08/13/fantasy-football-2025-bounce-back-players/

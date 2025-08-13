@@ -26,7 +26,7 @@ https://nytimes.com/2025/08/13/us/politics/trump-kennedy-center-nominees.html
 `Senator John Cornyn and Attorney General Ken Paxton are vying to be the tougher candidate on Democratic lawmakers who left Texas, as potential Democratic rivals seek their own spotlight.`\
 https://nytimes.com/2025/08/13/us/politics/texas-redistricting-senate.html
 
-**The Hidden Meaning of ‘And Just Like That…’**\
+**In ‘And Just Like That…’ a Craven Era Took Its Revenge on Youth and Hope and Fun**\
 `Every generation gets the “Sex and the City” version it deserves.`\
 https://nytimes.com/2025/08/13/opinion/and-just-like-that-finale.html
 
