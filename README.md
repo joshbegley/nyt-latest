@@ -3,7 +3,7 @@
 https://nytimes.com/video/us/politics/100000010338772/trump-ukraine-russia-national-guard.html
 
 **Manchester United under-21 game abandoned after Sekou Kone head injury**\
-`Kone fell to the ground following a clash of heads with a Tamworth player towards the send of the first half at the Lamb Ground.`\
+`Kone fell to the ground following a clash of heads with a Tamworth player towards the end of the first half at the Lamb Ground.`\
 https://nytimes.com/athletic/6552020/2025/08/13/man-united-news-sekou-kone-head-injury/
 
 **The First Hours of Trump’s Federal Deployment in D.C.**\
