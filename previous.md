@@ -1,3 +1,15 @@
+**Southern Europe Battles Deadly Wildfires**\
+`High winds were complicating efforts to tame the blazes, which were burning in Greece, Spain, Turkey, Montenegro and Albania.`\
+https://nytimes.com/2025/08/13/world/europe/wildfires-deadly-spain-greece-turkey-albania-montenegro.html
+
+**Ministers Take Jabs at Israel’s Military Chief as Gaza Plan Stokes Tension**\
+`Lt. Gen. Eyal Zamir has pushed back against a proposal to control Gaza City, according to officials. One hard-right member of the government suggested he could be dismissed.`\
+https://nytimes.com/2025/08/13/world/middleeast/israel-gaza-plan-military-government-zamir.html
+
+**Bills, James Cook agree 4-year, $48m contract extension: Source**\
+`The average value of $12m per season sees Cook's new deal rank sixth in APY for running backs.`\
+https://nytimes.com/athletic/6547384/2025/08/13/james-cook-bills-contract-extension/
+
 **Trump Administration Live Updates: President to Speak With Zelensky and European Allies on Ukraine**\
 ``\
 https://nytimes.com/live/2025/08/13/us/trump-news
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6543080/2025/08/13/premier-league-usa-2025-26-how-t
 **'No one expects us here': Brewers thrive while Cubs crumble in August**\
 `Since the All-Star break, the Cubs are 10-12 and have been outscored 94-88, a far cry from how they were playing earlier this season.`\
 https://nytimes.com/athletic/6550305/2025/08/13/christian-yelich-cubs-brewers-rivalry/
-
-**Twins mailbag: Taj Bradley most intriguing pickup in roster overhaul**\
-`Plus falling attendance, a lefty logjam, Kody Clemens slugging his way into a 2026 role and ETAs for Walker Jenkins and Kaelen Culpepper.`\
-https://nytimes.com/athletic/6543858/2025/08/13/twins-mailbag-taj-bradley-intrigue-pablo-lopez-and-joe-ryan-trade-odds-and-future-shortstops/
-
-**For Gio Reyna, the transfer waiting game is not helping his cause**\
-`If Reyna is to make a charge at the 2026 U.S. World Cup squad, his club fortunes need to change drastically – and quickly`\
-https://nytimes.com/athletic/6549855/2025/08/13/gio-reyna-transfer-borussia-dortmund-usmnt-world-cup/
-
-**Rockets fan survey: Are the Rockets finally a title contender? Voice your opinion**\
-`Share your opinion on the state of the Rockets heading into a big season for the franchise.`\
-https://nytimes.com/athletic/6549153/2025/08/13/rockets-fan-survey-title-contender/
 

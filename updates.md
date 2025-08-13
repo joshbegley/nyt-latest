@@ -1,3 +1,15 @@
+**Southern Europe Battles Deadly Wildfires**\
+`High winds were complicating efforts to tame the blazes, which were burning in Greece, Spain, Turkey, Montenegro and Albania.`\
+https://nytimes.com/2025/08/13/world/europe/wildfires-deadly-spain-greece-turkey-albania-montenegro.html
+
+**Ministers Take Jabs at Israel’s Military Chief as Gaza Plan Stokes Tension**\
+`Lt. Gen. Eyal Zamir has pushed back against a proposal to control Gaza City, according to officials. One hard-right member of the government suggested he could be dismissed.`\
+https://nytimes.com/2025/08/13/world/middleeast/israel-gaza-plan-military-government-zamir.html
+
+**Bills, James Cook agree 4-year, $48m contract extension: Source**\
+`The average value of $12m per season sees Cook's new deal rank sixth in APY for running backs.`\
+https://nytimes.com/athletic/6547384/2025/08/13/james-cook-bills-contract-extension/
+
 **Trump Administration Live Updates: President to Speak With Zelensky and European Allies on Ukraine**\
 ``\
 https://nytimes.com/live/2025/08/13/us/trump-news
