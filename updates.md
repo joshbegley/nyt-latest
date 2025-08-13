@@ -1,3 +1,7 @@
+**Why Investors Are Again Euphoric About Interest Rates**\
+`The S&P 500 is approaching a record on bets that Federal Reserve will lower borrowing costs despite uncertainty over President Trump’s trade war.`\
+https://nytimes.com/2025/08/13/business/dealbook/market-rally-interest-rates-trump.html
+
 **Meet the 49ers undrafted rookie (with a superhero nickname) pushing for a roster spot**\
 `Four years ago, Sebastian Valdez was a 235-pounder at Montana State. Now, he's turning heads in NFL games and drawing the nickname "Hulk."`\
 https://nytimes.com/athletic/6550226/2025/08/13/49ers-rookie-sebastian-valdez-hulk/
