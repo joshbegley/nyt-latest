@@ -1,3 +1,15 @@
+**American Influencer Stuck Off Antarctica for 6 Weeks Says It’s ‘Isolating and Lonely’**\
+`Ethan Guo, a 20-year-old pilot and content creator, said that he has been effectively trapped at a Chilean base since June. The authorities had said he landed there without permission.`\
+https://nytimes.com/2025/08/13/world/americas/ethan-guo-pilot-antarctica-chile.html
+
+**Giants pass rush torments Jets for second straight practice, but run defense looks shaky**\
+`Everything you need to know from the Giants' second day of joint practice with the Jets. `\
+https://nytimes.com/athletic/6552063/2025/08/13/ny-giants-jets-practice-brian-burns/
+
+**With a 12-win game streak, Brewers give their fans something else to cheer about — free burgers**\
+`The Brewers swept the Pittsburgh Pirates with a 12-5 win, setting up a chance to tie their club-record win streak on Friday in Cincinnati.`\
+https://nytimes.com/athletic/6552074/2025/08/13/mlb-brewers-burgers-win-streak/
+
 **Billy Howton, Top Green Bay Packers Receiver in the ’50s, Dies at 95**\
 `He retired as the N.F.L.’s leading career receiver but was soon surpassed. In retirement, he went to prison for bilking investors in an $8 million fraud.`\
 https://nytimes.com/2025/08/13/sports/football/billy-howton-dead.html
