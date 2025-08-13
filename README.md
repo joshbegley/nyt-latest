@@ -1,3 +1,7 @@
+**Human Rights Report Under Trump Blunts Language on Israel and El Salvador**\
+`A collection of U.S. reports on human rights offenses trimmed or omitted past language on violations in El Salvador, Hungary, Saudi Arabia, the U.A.E. and Israel, all seen as partners by President Trump.`\
+https://nytimes.com/2025/08/12/us/politics/trump-human-rights-israel-saudi-arabia-china.html
+
 **After Fatal Explosion, Focus Turns to Steel Mill’s Future and Past**\
 `The mill, which is part of the recent merger between U.S. Steel and Nippon Steel, has faced scrutiny from federal and local regulators.`\
 https://nytimes.com/2025/08/12/sports/us-steel-plant-explosion.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/12/us/uvalde-documents-video-arredondo.html
 **White House Will ‘Definitely’ Host a U.F.C. Fight on July 4, U.F.C. Head Says**\
 `The event would take place on the 250th anniversary of the signing of the Declaration of Independence.`\
 https://nytimes.com/2025/08/12/us/politics/ufc-white-house-dana-white.html
-
-**I.D.F. Pilots Protest War in Gaza Outside Israeli Military Headquarters**\
-`A group of Israeli Air Force reserve and retired pilots protested outside of the military’s headquarters in Tel Aviv on Tuesday, calling for a cease-fire.`\
-https://nytimes.com/video/world/middleeast/100000010337207/israel-air-force-war-protest.html
 
