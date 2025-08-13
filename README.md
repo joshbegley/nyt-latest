@@ -1,3 +1,11 @@
+**What It Takes to Find Food in Gaza**\
+`Starvation has spread in Gaza, as the prices of basic goods have skyrocketed and getting aid is difficult and often deadly. Ashley Wu, a graphics reporter for The New York Times, explains the dire choices that many Gazans face, as Israel faces growing condemnation over the crisis.`\
+https://nytimes.com/video/world/middleeast/100000010322362/what-it-takes-to-find-food-in-gaza.html
+
+**The Premier League players who tried to force a move - with varying degrees of success**\
+`The Newcastle striker is this summer's transfer saga but his is a familiar tale when a footballer wants to make a move happen`\
+https://nytimes.com/athletic/6551124/2025/08/13/premier-league-force-transfer-isak/
+
 **With new deals, 'Pay Per View' has lost by knockout. 'Pay Per Month' has won: MoneyCall**\
 `More in this week's sports business cheat sheet: The sports podcast episode of the year, La Liga drama, the rising Cincinnati Open and more.`\
 https://nytimes.com/athletic/6551363/2025/08/13/pay-per-view-ufc-paramount-espn-wwe-moneycall/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/08/13/us/politics/trump-stallone-kiss-kennedy-center-ho
 **gws-santa-fe-essential-art-outpost**\
 `(No description)`\
 https://nytimes.com/newsgraphics/card-story/santa-fe-essential-art-outpost
-
-**How Do I Tell My Religious Friend to Stop Inviting Us to Church?**\
-`Although I see these invites as well-meaning, they make me deeply uncomfortable.`\
-https://nytimes.com/2025/08/13/magazine/religious-friend-church-invitation-ethics.html
-
-**Five Horror Movies to Stream Now**\
-`This month’s terrors come from stalkers, a witch, a slimy creature — and low blood sugar.`\
-https://nytimes.com/2025/08/13/movies/five-horror-movies-to-stream-now.html
 

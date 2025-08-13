@@ -1,3 +1,11 @@
+**With new deals, 'Pay Per View' has lost by knockout. 'Pay Per Month' has won: MoneyCall**\
+`More in this week's sports business cheat sheet: The sports podcast episode of the year, La Liga drama, the rising Cincinnati Open and more.`\
+https://nytimes.com/athletic/6551363/2025/08/13/pay-per-view-ufc-paramount-espn-wwe-moneycall/
+
+**Scoop City: One big contract dispute settled as Bills, Cook agree**\
+`Why James Cook won his contract standoff with the Bills, Jalen Hurts is voted as your QB5 (Mike Sando weighs in), and Rashee Rice shines`\
+https://nytimes.com/athletic/6551360/2025/08/13/is-jalen-hurts-a-top-5-qb-readers-weigh-in-plus-one-big-contract-dispute-settled/
+
 **Ex-Governor Switches Back to Eric Adams in New York City Mayor’s Race**\
 `Former Gov. David Paterson, who had endorsed his successor, Andrew Cuomo, in the Democratic primary, said he believed Mr. Adams “would run the city the best.”`\
 https://nytimes.com/2025/08/13/nyregion/eric-adams-paterson-endorsement.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/08/13/magazine/religious-friend-church-invitation-ethic
 **Five Horror Movies to Stream Now**\
 `This month’s terrors come from stalkers, a witch, a slimy creature — and low blood sugar.`\
 https://nytimes.com/2025/08/13/movies/five-horror-movies-to-stream-now.html
-
-**Summer 2025 News Quiz for Students**\
-`How closely have you paid attention to current events? See what you remember by taking our special Summer 2025 News Quiz.`\
-https://nytimes.com/interactive/2025/08/13/learning/2025-summer-news-quiz-for-students.html
-
-**Pohlad family to remain Twins owners, add on limited partnership groups**\
-`After 10 months of exploring a sale, the Pohlad family issued a statement that it will retain ownership of the franchise.`\
-https://nytimes.com/athletic/6551264/2025/08/13/minnesota-twins-pohlad-family-sale/
 
