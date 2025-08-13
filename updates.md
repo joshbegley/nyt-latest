@@ -1,3 +1,7 @@
+**With Deep N.I.H. Cuts, Research Into Health Disparities Falters**\
+`In its campaign against “woke” science, the Trump administration has closed down studies and programs focused on the gaps between racial and socioeconomic groups.`\
+https://nytimes.com/2025/08/13/health/nih-grant-cancellations-dei.html
+
 **A Hollywood Start-Up Targets the Micro Drama Craze**\
 `A new app will focus on super-short TV shows shot for phones, a bit like Quibi, an earlier app aimed at quick content.`\
 https://nytimes.com/2025/08/13/business/media/hollywood-micro-drama-quibi.html
