@@ -1,40 +1,40 @@
-**Man Utd in 'no man's land', 'actual transition hasn't started yet', says Rashford**\
-`Rashford has made 426 appearances for Manchester United under five of Ferguson's six permanent successors. `\
-https://nytimes.com/athletic/6550558/2025/08/13/marcus-rashford-podcast-manchester-united-no-mans-land/
+**Fantasy football targets and fades: Navigating the draft's first eight rounds**\
+`Dalton Del Don helps you navigate the minefield of your fantasy football drafts by sharing his targets and fades for the first eight rounds.`\
+https://nytimes.com/athletic/6549091/2025/08/13/fantasy-football-draft-targets-fades-nabers/
 
-**Spurs confirm Romero as new captain after Son exit**\
-`Romero will lead the team out for Tottenham’s first official game under Thomas Frank in the Super Cup against PSG on Wednesday.`\
-https://nytimes.com/athletic/6550560/2025/08/13/tottenham-captain-new-who/
+**Steve Buscemi Is Glad He Took That Leap**\
+`Born on the unluckiest of days, the 67-year-old has built an enviable roster of affable malcontents. With his debut on Season 2 of “Wednesday,” he adds to his legend.`\
+https://nytimes.com/2025/08/13/arts/television/steve-buscemi-wednesday-profile.html
 
-**Bournemouth confirm Diakite signing from Lille**\
-`The €35million (£30.3m) plus €5m fee represents the second biggest transfer fee Bournemouth have paid in their history.`\
-https://nytimes.com/athletic/6545238/2025/08/13/bournemouth-bafode-diakite-transfer-confirmed/
+**When Is It Genocide?**\
+`Philippe Sands discusses how to think about the tragedies in Gaza through the lens of international law.`\
+https://nytimes.com/2025/08/13/opinion/ezra-klein-podcast-philippe-sands.html
 
-**Fantasy football traditionally doesn't prioritize elite QBs. Here's when it should**\
-`Turns out QBs account for wins a whole lot more in certain formats and it is not currently reflected in their ADPs, making them big values. `\
-https://nytimes.com/athletic/6520747/2025/08/13/fantasy-football-2025-qbs-quarterbacks-stats-drafting/
+**Trump Will Visit Kennedy Center to Announce New Honorees**\
+`The president has taken a strong interest in the Kennedy Center’s affairs ever since naming himself chairman in February, when he restocked its traditionally bipartisan board with loyalists.`\
+https://nytimes.com/2025/08/13/us/politics/trump-kennedy-center-nominees.html
 
-**Beijing Evacuated Thousands Before Floods, but Not the Most Vulnerable**\
-`The recent flooding that killed 31 in a single nursing home exposed flaws in emergency planning as China braces for more extreme and unpredictable weather.`\
-https://nytimes.com/2025/08/13/world/asia/china-floods-nursing-home.html
+**How a U.S. Senate Race Is Shaping the Fight Over Redistricting in Texas**\
+`Senator John Cornyn and Attorney General Ken Paxton are vying to be the tougher candidate on Democratic lawmakers who left Texas, as potential Democratic rivals seek their own spotlight.`\
+https://nytimes.com/2025/08/13/us/politics/texas-redistricting-senate.html
 
-**Pakistan Is in Trump’s Good Graces, but for How Long?**\
-`President Trump hosted the South Asian nation’s army chief and seeks deals on critical minerals and crypto. But Pakistan is also tightening its military partnership with China.`\
-https://nytimes.com/2025/08/13/world/asia/pakistan-trump-munir.html
+**The Hidden Meaning of ‘And Just Like That…’**\
+`Every generation gets the “Sex and the City” version it deserves.`\
+https://nytimes.com/2025/08/13/opinion/and-just-like-that-finale.html
 
-**Manchester City season betting preview: Can Citizens recover dynastic dominance?**\
-`No longer the defending champs, Man City have an uphill battle to reclaim dominance over Liverpool.`\
-https://nytimes.com/athletic/6547176/2025/08/13/manchester-city-season-betting-preview-odds/
+**Why Cristiano Ronaldo’s Engagement Raised Eyebrows in Saudi Arabia**\
+`The soccer star has been living in the country with Georgina Rodríguez, the mother of his children, testing the boundaries of social change in the conservative Islamic kingdom.`\
+https://nytimes.com/2025/08/13/world/middleeast/ronaldo-engagement-saudi-arabia.html
 
-**New York City Companies All but Stopped Hiring in First Half of the Year**\
-`Fewer than 1,000 private-sector jobs were added, the slowest growth in the labor market outside a recession and the pandemic since 2003.`\
-https://nytimes.com/2025/08/13/nyregion/nyc-jobs.html
+**Trump and Putin Could Decide Others’ Fates, Echoing Yalta Summit**\
+`In 1945, the map of Europe was redrawn in Yalta without input from the affected countries. Ukraine and Europe fear a repeat in Alaska.`\
+https://nytimes.com/2025/08/13/world/europe/yalta-trump-putin-meeting-alaska.html
 
-**Documenting the Horrors of the Texas Floods**\
-`Not for the first time, a photographer was called to head (quickly) to the scene of a natural disaster.`\
-https://nytimes.com/2025/08/13/insider/documenting-the-horrors-of-the-texas-floods.html
+**Trump Has Made Himself Commander in Chief of the Chip Industry**\
+`President Trump has become the semiconductor sector’s leading decision maker, from new fees on exports to China to a brief demand for a C.E.O.’s firing.`\
+https://nytimes.com/2025/08/13/technology/trump-chips-nvidia-intel.html
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2025/08/13/crosswords/spelling-bee-forum.html
+**Trump Thinks He Is the C.E.O. of Everything. Awesome.**\
+`Our commander in chief has decided to also command the Fortune 500.`\
+https://nytimes.com/2025/08/13/opinion/trump-ceo-nvidia-intel.html
 
