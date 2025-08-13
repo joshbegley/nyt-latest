@@ -1,3 +1,11 @@
+**Hard Truths**\
+`We look at how the Trump administration deals with unfavorable data.`\
+https://nytimes.com/2025/08/13/briefing/trump-administration-data.html
+
+**Bournemouth Leverkusen's Amine Adli**\
+`The 25-year-old was part of the Leverkusen side that won the Bundesliga and DFB-Pokal in 2023-24, when he scored 10 goals across all comps.`\
+https://nytimes.com/athletic/6549893/2025/08/13/bournemouth-transfer-news-amine-adli-leverkusen/
+
 **Bills Hard Knocks Week 2 takeaways: Damar Hamlin inspires, Buffalo Joe gets the spotlight**\
 `Elsewhere on campus, KJ Hamler's scooter adventure continued.`\
 https://nytimes.com/athletic/6550378/2025/08/13/bills-hard-knocks-episode-2-buffalo-joe-damar-hamlin/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/08/13/world/middleeast/israel-oct-7-palestinians-trial.
 **Yankees' Giancarlo Stanton on pace for his best season yet: What's different**\
 `If he can continue this trend, don't be surprised if he finishes with the best numbers he's had in pinstripes.`\
 https://nytimes.com/athletic/6550338/2025/08/13/ny-yankees-giancarlo-stanton-swing-change/
-
-**Who will survive Chiefs' roster bubble at receiver? Where each candidate stands**\
-`Here's how Rashee Rice's status — and special teams — could shift the landscape of the Chiefs' end-of-roster battle at receiver.`\
-https://nytimes.com/athletic/6549350/2025/08/13/chiefs-wide-receiver-roster-bubble/
-
-**How to watch the BMW Championship, the second leg of the FedEx Cup playoffs**\
-`The FedEx Cup playoffs continue at a renovated Caves Valley Golf Club this weekend, and only 30 golfers will advance to the final event.`\
-https://nytimes.com/athletic/6548895/2025/08/13/bmw-championship-playoffs-golf-weather-how-to-watch-2025/
 

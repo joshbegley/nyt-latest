@@ -1,3 +1,11 @@
+**Hard Truths**\
+`We look at how the Trump administration deals with unfavorable data.`\
+https://nytimes.com/2025/08/13/briefing/trump-administration-data.html
+
+**Bournemouth Leverkusen's Amine Adli**\
+`The 25-year-old was part of the Leverkusen side that won the Bundesliga and DFB-Pokal in 2023-24, when he scored 10 goals across all comps.`\
+https://nytimes.com/athletic/6549893/2025/08/13/bournemouth-transfer-news-amine-adli-leverkusen/
+
 **Bills Hard Knocks Week 2 takeaways: Damar Hamlin inspires, Buffalo Joe gets the spotlight**\
 `Elsewhere on campus, KJ Hamler's scooter adventure continued.`\
 https://nytimes.com/athletic/6550378/2025/08/13/bills-hard-knocks-episode-2-buffalo-joe-damar-hamlin/
