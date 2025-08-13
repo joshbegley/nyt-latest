@@ -1,3 +1,7 @@
+**Lowetide: Complete reasonable expectations for the Oilers' 2025-26 season**\
+`The annual prediction returns with the Oilers set in some positions and in a transitional phase at others.`\
+https://nytimes.com/athletic/6549033/2025/08/13/edmonton-oilers-reasonable-expectations-2025/
+
 **Vance Meets Farage, Another Right-Wing Populist, in Britain**\
 `JD Vance, the vice president, sat down with Nigel Farage, a longtime supporter of President Trump whose party, Reform U.K., is leading in British polls.`\
 https://nytimes.com/2025/08/13/world/europe/jd-vance-nigel-farage-reform-uk.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6550226/2025/08/13/49ers-rookie-sebastian-valdez-hu
 **Lakers mailbag: Is this LeBron's last season in LA? Could Giannis or Jokić be future targets?**\
 `In Dan Woike's debut mailbag, he answers questions on LeBron's future, whether the Lakers could make a trade before the season and more.`\
 https://nytimes.com/athletic/6550156/2025/08/13/lakers-mailbag-lebron-giannis-jokic/
-
-**Sabres depth chart projection: 6 key questions about Buffalo's forward group**\
-`Lindy Ruff has some interesting decisions to make with a slightly shuffled roster heading into training camp.`\
-https://nytimes.com/athletic/6550299/2025/08/13/sabres-depth-chart-projection-forwards/
 
