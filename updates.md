@@ -1,3 +1,11 @@
+**Trump’s Affinity for Putin Will Be Tested at High-Risk Summit in Alaska**\
+`President Trump has largely held back from harsh criticism of Vladimir V. Putin personally, despite recent complaints about Russian intransigence in ending the war in Ukraine.`\
+https://nytimes.com/2025/08/13/us/politics/trump-putin-meeting-russia-ukraine.html
+
+**Escondido, Calif., a Showcase for Fire-Resilient Building**\
+`“Affordable” by California standards, this San Diego suburb is the site of a new community developed with fire preparedness in mind.`\
+https://nytimes.com/2025/08/13/realestate/escondido-san-diego-california-real-estate.html
+
 **Answering crucial fantasy football draft questions at running back**\
 `The Athletic fantasy football experts share their opinions on Ashton Jeanty, Christian McCaffrey and many more at the RB position.`\
 https://nytimes.com/athletic/6549327/2025/08/13/fantasy-football-2025-running-back-roundtable/
