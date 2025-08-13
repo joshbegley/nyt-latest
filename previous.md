@@ -1,3 +1,7 @@
+**Ollie Palmer's incredible and unexpected comeback could give Wrexham a selection dilemma**\
+`Has striker Ollie Palmer just earned himself the most unlikely of Wrexham reprieves with two goals against Hull City?`\
+https://nytimes.com/athletic/6546201/2025/08/13/wrexham-hull-palmer-league-cup/
+
 **Padres pull even with Dodgers in NL West, claiming latest share of first place since 2010**\
 `With a pair of weekend series coming up against Los Angeles, the Padres will soon have the opportunity to speed past the Dodgers.`\
 https://nytimes.com/athletic/6550438/2025/08/13/padres-dodgers-nl-west-race/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6550335/2025/08/13/braves-hitting-pitching-falters-
 **Picking Crystal Palace's 2025-26 breakout player: Caleb Kporha**\
 `The winger turned wing-back was once at Brighton's academy. Now this season offers hope of first-team minutes either for Glasner or on loan`\
 https://nytimes.com/athletic/6536642/2025/08/13/crystal-palace-caleb-kporha-breakout/
-
-**Wolves season preview: Pereira handed greater control and chance to prove his pedigree**\
-`The Portuguese head coach instigated last season's revival but Wolves will be anxious not to be drawn into another relegation fight`\
-https://nytimes.com/athletic/6508570/2025/08/13/wolves-pereira-season-preview/
 

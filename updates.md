@@ -1,3 +1,7 @@
+**Ollie Palmer's incredible and unexpected comeback could give Wrexham a selection dilemma**\
+`Has striker Ollie Palmer just earned himself the most unlikely of Wrexham reprieves with two goals against Hull City?`\
+https://nytimes.com/athletic/6546201/2025/08/13/wrexham-hull-palmer-league-cup/
+
 **Padres pull even with Dodgers in NL West, claiming latest share of first place since 2010**\
 `With a pair of weekend series coming up against Los Angeles, the Padres will soon have the opportunity to speed past the Dodgers.`\
 https://nytimes.com/athletic/6550438/2025/08/13/padres-dodgers-nl-west-race/
