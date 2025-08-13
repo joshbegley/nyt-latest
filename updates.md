@@ -1,3 +1,15 @@
+**Lamar Jackson drops No. 8 trademark challenge against Troy Aikman's company**\
+`Jackson has previously challenged the use of the No. 8 by entities including NASCAR Hall of Fame driver Dale Earnhardt Jr.`\
+https://nytimes.com/athletic/6551619/2025/08/13/ravens-lamar-jackson-troy-aikman-trademark-challenge/
+
+**Man Who Tried to Export 850 Turtles Hidden in Socks Pleads Guilty**\
+`The man was caught after an undercover agent of the U.S. Fish and Wildlife Service coordinated a sale with him on Facebook, the authorities said.`\
+https://nytimes.com/2025/08/13/us/illegal-wildlife-turtles-export.html
+
+**U.K. Secretly Spent $3.2 Million to Stop Journalists From Reporting on Data Breach**\
+`After British authorities accidentally exposed information about 19,000 Afghans, the government sought a legal order preventing disclosure of the breach.`\
+https://nytimes.com/2025/08/13/world/europe/uk-data-breach-afghan.html
+
 **America's (Most Valuable) Team: Cowboys still lead annual ranking of NFL team valuations**\
 `The annual list, prepared by Sportico, illustrates the power of NFL team ownership, with ever-increasing valuations for all 32 teams.`\
 https://nytimes.com/athletic/6551573/2025/08/13/most-valuable-nfl-teams-sportico-cowboys-rams/

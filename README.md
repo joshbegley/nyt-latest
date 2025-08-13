@@ -1,3 +1,15 @@
+**Tiny Love Stories: ‘It’s Our Secret’**\
+`Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
+https://nytimes.com/2025/08/13/style/tiny-modern-love-stories-its-our-secret.html
+
+**How Scientists Are Using Drones to Study Sperm Whales**\
+`A new tagging method called tap-and-go allows researchers to gather more data on the health and behavior of whales, with less disruption.`\
+https://nytimes.com/2025/08/13/science/whales-drones-acoustics-tagging.html
+
+**Judge Appears Skeptical of Lawsuit Against Federal Bench in Maryland**\
+`The spectacle of the White House suing an entire district court in the name of the United States of America underscored just how rancorous relations between the two branches had become.`\
+https://nytimes.com/2025/08/13/us/politics/trump-maryland-judges-lawsuit.html
+
 **Lamar Jackson drops No. 8 trademark challenge against Troy Aikman's company**\
 `Jackson has previously challenged the use of the No. 8 by entities including NASCAR Hall of Fame driver Dale Earnhardt Jr.`\
 https://nytimes.com/athletic/6551619/2025/08/13/ravens-lamar-jackson-troy-aikman-trademark-challenge/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/08/13/opinion/climate-change-regulation-health.html
 **Denver Summit FC acquires Ally Watt, first signing in franchise history**\
 `The 28-year-old forward signed with the team ahead of its inaugural 2026 season.`\
 https://nytimes.com/athletic/6551476/2025/08/13/denver-summit-ally-watt-signing-nwsl-expansion-team/
-
-**Trump Warns of Economic Disaster if Court Strikes Down Tariffs**\
-`The president has crowed about the billions of dollars collected so far from tariffs. That money could be at risk if the White House loses the legal battle.`\
-https://nytimes.com/2025/08/13/us/politics/trump-tariffs-case-federal-court.html
-
-**Rory McIlroy turned down chance to be Ryder Cup playing captain**\
-`McIlroy said there's too many other demands on the captain for him to think one person can do both.`\
-https://nytimes.com/athletic/6551435/2025/08/13/rory-mcilroy-ryder-cup-captain/
-
-**gws-great-lakes-beaches**\
-`(No description)`\
-https://nytimes.com/newsgraphics/card-story/great-lakes-beaches
 
