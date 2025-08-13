@@ -1,3 +1,11 @@
+**Liverpool's Gomez returns to training before Premier League opener on Friday**\
+`Gomez has recovered from the Achilles injury that forced him to leave the club's pre-season tour of Asia last month.`\
+https://nytimes.com/athletic/6551195/2025/08/13/liverpool-gomez-injury-team-news-bournemouth/
+
+**What Does It Mean to Be Chopped?**\
+`As younger generations continue to adopt new slang, a familiar word has become a meanspirited adjective.`\
+https://nytimes.com/2025/08/13/style/chopped-slang-gen-alpha.html
+
 **A Desperate Flight as Russia Closes In**\
 `Russian forces have been closing in on the eastern Ukrainian city of Dobropillia, prompting urgent evacuations of residents just six miles from the front line.`\
 https://nytimes.com/card/2025/08/13/world/europe/ukraine-war-evacuation-dobropillia
@@ -29,12 +37,4 @@ https://nytimes.com/2025/08/13/us/politics/trump-putin-meeting-russia-ukraine.ht
 **Escondido, Calif., a Showcase for Fire-Resilient Building**\
 `“Affordable” by California standards, this San Diego suburb is the site of a new community developed with fire preparedness in mind.`\
 https://nytimes.com/2025/08/13/realestate/escondido-san-diego-california-real-estate.html
-
-**Answering crucial fantasy football draft questions at running back**\
-`The Athletic fantasy football experts share their opinions on Ashton Jeanty, Christian McCaffrey and many more at the RB position.`\
-https://nytimes.com/athletic/6549327/2025/08/13/fantasy-football-2025-running-back-roundtable/
-
-**Kent Lacob is leaving the Warriors: How the owner's son came to a huge decision**\
-`"I'm incredibly grateful for it," Kent says of the opportunity to work for father Joe with the Warriors. But for him, it's time to move on.`\
-https://nytimes.com/athletic/6548292/2025/08/13/kent-lacob-warriors-vp-leaving/
 
