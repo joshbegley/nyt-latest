@@ -1,3 +1,7 @@
+**Barca board agree to risk €7m in personal wealth in bid to register Rashford, Garcia**\
+`With three days to go before Barca’s first match of the campaign, Hansi Flick’s major signings of the summer are still not eligible to play.`\
+https://nytimes.com/athletic/6551185/2025/08/13/barcelona-new-signings-register-rashford-garcia/
+
 **Summer 2025 News Quiz for Students**\
 `How closely have you paid attention to current events? See what you remember by taking our special Summer 2025 News Quiz.`\
 https://nytimes.com/interactive/2025/08/13/learning/2025-summer-news-quiz-for-students.html

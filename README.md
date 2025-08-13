@@ -1,3 +1,7 @@
+**Five Horror Movies to Stream Now**\
+`This month’s terrors come from stalkers, a witch, a slimy creature — and low blood sugar.`\
+https://nytimes.com/2025/08/13/movies/five-horror-movies-to-stream-now.html
+
 **Summer 2025 News Quiz for Students**\
 `How closely have you paid attention to current events? See what you remember by taking our special Summer 2025 News Quiz.`\
 https://nytimes.com/interactive/2025/08/13/learning/2025-summer-news-quiz-for-students.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/13/style/chopped-slang-gen-alpha.html
 **A Desperate Flight as Russia Closes In**\
 `Russian forces have been closing in on the eastern Ukrainian city of Dobropillia, prompting urgent evacuations of residents just six miles from the front line.`\
 https://nytimes.com/card/2025/08/13/world/europe/ukraine-war-evacuation-dobropillia
-
-**Venus Williams headlines U.S. Open wild cards with 25th appearance in singles draw**\
-`Williams is a two-time singles champion at Flushing Meadows and will make her first appearance since 2023.`\
-https://nytimes.com/athletic/6550579/2025/08/13/tennis-us-open-wild-cards-venus-williams/
 
