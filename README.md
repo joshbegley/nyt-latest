@@ -1,3 +1,11 @@
+**Asphalt Burns and Heatstroke: Homeless in America’s Hottest City**\
+`As the summer heat becomes increasingly extreme in Phoenix, people who can’t escape the sun are suffering heat-related ailments of all kinds.`\
+https://nytimes.com/2025/08/13/well/homeless-heat-phoenix.html
+
+**Wildfires Rage Across Southern Europe**\
+`Thousands of firefighters are battling blazes as the continent continues to swelter in dangerously high temperatures.`\
+https://nytimes.com/video/world/europe/100000010338011/wildfires-rage-across-southern-europe.html
+
 **Liverpool's Gomez returns to training before Premier League opener on Friday**\
 `Gomez has recovered from the Achilles injury that forced him to leave the club's pre-season tour of Asia last month.`\
 https://nytimes.com/athletic/6551195/2025/08/13/liverpool-gomez-injury-team-news-bournemouth/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6550736/2025/08/13/jack-grealish-everton-man-city/
 **It’s Always the Season for Lemon Spaghetti With Roasted Artichokes**\
 `This weeknight pasta comes together with ease — especially if you use an air fryer to burnish your canned or frozen artichoke hearts.`\
 https://nytimes.com/2025/08/13/dining/easy-lemon-pasta-recipe-for-canned-or-frozen-artichokes.html
-
-**Trump’s Affinity for Putin Will Be Tested at High-Risk Summit in Alaska**\
-`President Trump has largely held back from harsh criticism of Vladimir V. Putin personally, despite recent complaints about Russian intransigence in ending the war in Ukraine.`\
-https://nytimes.com/2025/08/13/us/politics/trump-putin-meeting-russia-ukraine.html
-
-**Escondido, Calif., a Showcase for Fire-Resilient Building**\
-`“Affordable” by California standards, this San Diego suburb is the site of a new community developed with fire preparedness in mind.`\
-https://nytimes.com/2025/08/13/realestate/escondido-san-diego-california-real-estate.html
 

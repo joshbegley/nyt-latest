@@ -1,3 +1,11 @@
+**Liverpool's Gomez returns to training before Premier League opener on Friday**\
+`Gomez has recovered from the Achilles injury that forced him to leave the club's pre-season tour of Asia last month.`\
+https://nytimes.com/athletic/6551195/2025/08/13/liverpool-gomez-injury-team-news-bournemouth/
+
+**What Does It Mean to Be Chopped?**\
+`As younger generations continue to adopt new slang, a familiar word has become a meanspirited adjective.`\
+https://nytimes.com/2025/08/13/style/chopped-slang-gen-alpha.html
+
 **A Desperate Flight as Russia Closes In**\
 `Russian forces have been closing in on the eastern Ukrainian city of Dobropillia, prompting urgent evacuations of residents just six miles from the front line.`\
 https://nytimes.com/card/2025/08/13/world/europe/ukraine-war-evacuation-dobropillia
