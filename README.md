@@ -1,8 +1,12 @@
+**The Pulse: A dramatic shift for the UFC**\
+`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/6550281/2025/08/13/ufc-paramount-ppv-the-pulse/
+
 **Hard Truths**\
 `We look at how the Trump administration deals with unfavorable data.`\
 https://nytimes.com/2025/08/13/briefing/trump-administration-data.html
 
-**Bournemouth Leverkusen's Amine Adli**\
+**Bournemouth in talks to sign Leverkusen's Amine Adli**\
 `The 25-year-old was part of the Leverkusen side that won the Bundesliga and DFB-Pokal in 2023-24, when he scored 10 goals across all comps.`\
 https://nytimes.com/athletic/6549893/2025/08/13/bournemouth-transfer-news-amine-adli-leverkusen/
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6547155/2025/08/13/derrick-henry-ravens-diet-nfl/
 **Israel Hasn’t Prosecuted a Single Suspect for the Oct. 7 Attack**\
 `Israel has extensively documented the 2023 Hamas-led assault and is believed to be holding at least 200 Palestinians suspected of involvement. Not one has been charged or put on trial.`\
 https://nytimes.com/2025/08/13/world/middleeast/israel-oct-7-palestinians-trial.html
-
-**Yankees' Giancarlo Stanton on pace for his best season yet: What's different**\
-`If he can continue this trend, don't be surprised if he finishes with the best numbers he's had in pinstripes.`\
-https://nytimes.com/athletic/6550338/2025/08/13/ny-yankees-giancarlo-stanton-swing-change/
 
