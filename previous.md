@@ -1,3 +1,7 @@
+**Astros squander a 7-game AL West lead in loss to Red Sox**\
+`"They're playing great baseball. We just have to step it up a notch," Carlos Correa said. `\
+https://nytimes.com/athletic/6550460/2025/08/13/astros-lose-red-sox-squander-al-west-lead/
+
 **Ollie Palmer's incredible and unexpected comeback could give Wrexham a selection dilemma**\
 `Has striker Ollie Palmer just earned himself the most unlikely of Wrexham reprieves with two goals against Hull City?`\
 https://nytimes.com/athletic/6546201/2025/08/13/wrexham-hull-palmer-league-cup/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/13/briefing/ukraine-russia-zakaria-zubeidi-europe-wi
 **Braves are hitting now, but pitching has faltered, and Spencer Strider got rocked again**\
 `Pitching is the main culprit for Atlanta's 9-15 record since the break, including a 13-5 rout Tuesday by the New York Mets.`\
 https://nytimes.com/athletic/6550335/2025/08/13/braves-hitting-pitching-falters-spencer-strider/
-
-**Picking Crystal Palace's 2025-26 breakout player: Caleb Kporha**\
-`The winger turned wing-back was once at Brighton's academy. Now this season offers hope of first-team minutes either for Glasner or on loan`\
-https://nytimes.com/athletic/6536642/2025/08/13/crystal-palace-caleb-kporha-breakout/
 

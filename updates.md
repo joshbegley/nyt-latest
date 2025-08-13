@@ -1,3 +1,7 @@
+**Astros squander a 7-game AL West lead in loss to Red Sox**\
+`"They're playing great baseball. We just have to step it up a notch," Carlos Correa said. `\
+https://nytimes.com/athletic/6550460/2025/08/13/astros-lose-red-sox-squander-al-west-lead/
+
 **Ollie Palmer's incredible and unexpected comeback could give Wrexham a selection dilemma**\
 `Has striker Ollie Palmer just earned himself the most unlikely of Wrexham reprieves with two goals against Hull City?`\
 https://nytimes.com/athletic/6546201/2025/08/13/wrexham-hull-palmer-league-cup/
