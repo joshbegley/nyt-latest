@@ -1,3 +1,11 @@
+**Leonard Tow, Cable TV Magnate and a Major Philanthropist, Dies at 97**\
+`Once on the Forbes 400 list of richest Americans, he donated substantially to the arts, higher education, hospitals and criminal justice reform.`\
+https://nytimes.com/2025/08/13/business/media/leonard-tow-dead.html
+
+**What’s in Our Queue? ‘Murderbot’ and More**\
+`Text by Erik Vance`\
+https://nytimes.com/card/2025/08/13/arts/editors-recommendations-murderbot
+
 **4 Inmates Are Killed in Less Than a Month at Nevada Prisons, State Says**\
 `The homicides appear to be unrelated, according to prison officials, who said that drugs were believed to have been a contributing factor.`\
 https://nytimes.com/2025/08/13/us/nevada-prisons-inmate-homicides.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/08/13/style/tiny-modern-love-stories-its-our-secret.htm
 **How Scientists Are Using Drones to Study Sperm Whales**\
 `A new tagging method called tap-and-go allows researchers to gather more data on the health and behavior of whales, with less disruption.`\
 https://nytimes.com/2025/08/13/science/whales-drones-acoustics-tagging.html
-
-**Judge Appears Skeptical of Lawsuit Against Federal Bench in Maryland**\
-`The spectacle of the White House suing an entire district court in the name of the United States of America underscored just how rancorous relations between the two branches had become.`\
-https://nytimes.com/2025/08/13/us/politics/trump-maryland-judges-lawsuit.html
-
-**Lamar Jackson drops No. 8 trademark challenge against Troy Aikman's company**\
-`Jackson has previously challenged the use of the No. 8 by entities including NASCAR Hall of Fame driver Dale Earnhardt Jr.`\
-https://nytimes.com/athletic/6551619/2025/08/13/ravens-lamar-jackson-troy-aikman-trademark-challenge/
 

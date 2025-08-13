@@ -1,3 +1,11 @@
+**Leonard Tow, Cable TV Magnate and a Major Philanthropist, Dies at 97**\
+`Once on the Forbes 400 list of richest Americans, he donated substantially to the arts, higher education, hospitals and criminal justice reform.`\
+https://nytimes.com/2025/08/13/business/media/leonard-tow-dead.html
+
+**What’s in Our Queue? ‘Murderbot’ and More**\
+`Text by Erik Vance`\
+https://nytimes.com/card/2025/08/13/arts/editors-recommendations-murderbot
+
 **4 Inmates Are Killed in Less Than a Month at Nevada Prisons, State Says**\
 `The homicides appear to be unrelated, according to prison officials, who said that drugs were believed to have been a contributing factor.`\
 https://nytimes.com/2025/08/13/us/nevada-prisons-inmate-homicides.html
