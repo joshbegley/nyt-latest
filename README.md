@@ -1,3 +1,11 @@
+**Joe Flacco continues to get majority of No. 1 reps as injuries pile up in Browns' QB room**\
+`The 40-year-old Flacco is the only QB to begin camp with Cleveland who hasn't been at least limited by an injury on multiple days. `\
+https://nytimes.com/athletic/6552035/2025/08/13/joe-flacco-browns-eagles-joint-practice/
+
+**Overlooked No More: Molly Drake, a Maternal, Musical Force Behind Nick Drake’s Sound**\
+`She was a poet, singer, composer and pianist whose melancholic home recordings from the 1950s hit on universal themes of despair, heartbreak, longing and loss.`\
+https://nytimes.com/2025/08/13/obituaries/molly-drake-overlooked.html
+
 **Lions joint practice takeaways: A dominating day on both sides vs. the Dolphins**\
 `Amon-Ra St. Brown and Jared Goff were sharp as the Lions got the best of the Dolphins. The two teams practice together again Thursday.`\
 https://nytimes.com/athletic/6551725/2025/08/13/lions-joint-practice-dominate-dolphins/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6552063/2025/08/13/ny-giants-jets-practice-brian-bu
 **With a 12-game win streak, Brewers give their fans something else to cheer about — free burgers**\
 `The Brewers swept the Pittsburgh Pirates with a 12-5 win, setting up a chance to tie their club-record win streak on Friday in Cincinnati.`\
 https://nytimes.com/athletic/6552074/2025/08/13/mlb-brewers-burgers-win-streak/
-
-**Billy Howton, Top Green Bay Packers Receiver in the ’50s, Dies at 95**\
-`He retired as the N.F.L.’s leading career receiver but was soon surpassed. In retirement, he went to prison for bilking investors in an $8 million fraud.`\
-https://nytimes.com/2025/08/13/sports/football/billy-howton-dead.html
-
-**PSG 2-2 Tottenham (4-3 pens): Spurs let 2-0 lead slip in closing stages to miss out on UEFA Super Cup**\
-`The Athletic's writers analyse Wednesday's UEFA Super Cup Final `\
-https://nytimes.com/athletic/6551757/2025/08/13/psg-tottenham-super-cup-result-analysis/
 
