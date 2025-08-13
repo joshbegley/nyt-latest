@@ -1,3 +1,7 @@
+**The Hidden Meaning of ‘And Just Like That…’**\
+`Every generation gets the “Sex and the City” version it deserves.`\
+https://nytimes.com/2025/08/13/opinion/and-just-like-that-finale.html
+
 **In ‘And Just Like That…’ a Craven Era Took Its Revenge on Youth and Hope and Fun**\
 `Every generation gets the “Sex and the City” version it deserves.`\
 https://nytimes.com/2025/08/13/opinion/and-just-like-that-finale.html
