@@ -1,3 +1,7 @@
+**Late Night Hopes Trump’s New Hosting Gig Will Keep Him Busy**\
+`Nicole Byer said she supports Trump hosting this year's Kennedy Center Honors: “Anything that distracts him from running this country into the ground.”`\
+https://nytimes.com/2025/08/14/arts/television/late-night-trump.html
+
 **Mets blow 6-run lead in latest ugly loss to Braves**\
 `After a 12th defeat in 14 games, the Mets' lead on a playoff spot is down to a single game over the Cincinnati Reds.`\
 https://nytimes.com/athletic/6552684/2025/08/14/mets-lose-braves-blow-six-run-lead/

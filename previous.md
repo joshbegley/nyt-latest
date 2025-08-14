@@ -1,3 +1,7 @@
+**Late Night Hopes Trump’s New Hosting Gig Will Keep Him Busy**\
+`Nicole Byer said she supports Trump hosting this year's Kennedy Center Honors: “Anything that distracts him from running this country into the ground.”`\
+https://nytimes.com/2025/08/14/arts/television/late-night-trump.html
+
 **Mets blow 6-run lead in latest ugly loss to Braves**\
 `After a 12th defeat in 14 games, the Mets' lead on a playoff spot is down to a single game over the Cincinnati Reds.`\
 https://nytimes.com/athletic/6552684/2025/08/14/mets-lose-braves-blow-six-run-lead/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6552655/2025/08/14/cubs-win-cade-horton-scoreless-s
 **Picking West Ham's 2025-26 breakthrough player: Freddie Potts**\
 `Potts has a legendary surname but has impressed with his attitude and performances during pre-season with West Ham`\
 https://nytimes.com/athletic/6506298/2025/08/14/west-ham-freddie-potts-breakthrough/
-
-**Aston Villa charging £77 for a ticket in the Holte End: 'Madness'**\
-`Villa’s ticket pricing is a bottleneck issue for those fans who simply cannot afford it any more`\
-https://nytimes.com/athletic/6546387/2025/08/14/aston-villa-charging-77-for-a-ticket-in-the-holte-end-madness/
 
