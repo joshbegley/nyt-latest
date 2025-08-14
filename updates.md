@@ -1,3 +1,11 @@
+**Taylor Swift and Drake Go Long to Promote Their Albums**\
+`The two megastars recently sat for hourslong video conversations on streaming platforms, reflecting a shift in how the ultrafamous cultivate both casual and die-hard fans.`\
+https://nytimes.com/2025/08/14/arts/music/celebrity-podcasts-taylor-swift-drake.html
+
+**Premier League redistribution deal rejected by EFL before football governance bill passed**\
+`The offer, delivered with the support of the Premier League CEO Richard Masters, was made in April.`\
+https://nytimes.com/athletic/6553163/2025/08/14/premier-league-efl-offer-football-regulator/
+
 **Premier League planning Diogo Jota, Andre Silva tributes for opening weekend**\
 `Every league fixture across the opening weekend will see a moment's silence held and the players wearing black armbands.`\
 https://nytimes.com/athletic/6553158/2025/08/14/diogo-jota-tributes-premier-league/

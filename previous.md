@@ -1,3 +1,11 @@
+**Taylor Swift and Drake Go Long to Promote Their Albums**\
+`The two megastars recently sat for hourslong video conversations on streaming platforms, reflecting a shift in how the ultrafamous cultivate both casual and die-hard fans.`\
+https://nytimes.com/2025/08/14/arts/music/celebrity-podcasts-taylor-swift-drake.html
+
+**Premier League redistribution deal rejected by EFL before football governance bill passed**\
+`The offer, delivered with the support of the Premier League CEO Richard Masters, was made in April.`\
+https://nytimes.com/athletic/6553163/2025/08/14/premier-league-efl-offer-football-regulator/
+
 **Premier League planning Diogo Jota, Andre Silva tributes for opening weekend**\
 `Every league fixture across the opening weekend will see a moment's silence held and the players wearing black armbands.`\
 https://nytimes.com/athletic/6553158/2025/08/14/diogo-jota-tributes-premier-league/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6551249/2025/08/14/knicks-fan-survey-nba-finals/
 **How Jaxon Smith-Njigba, Cooper Kupp could co-exist in the Seahawks' new offense**\
 `The Seahawks are banking on two slot-heavy receivers to fit together cleanly. Friday, we could get our first glimpse at how they'll be used.`\
 https://nytimes.com/athletic/6552439/2025/08/14/jsn-cooper-kupp-seahawks-preseason/
-
-**Should Mika Zibanejad play wing or center? Burning Rangers questions for 2025-26**\
-`New York needs the 32-year-old forward back on track after a tough 2024-25 season. But coach Mike Sullivan must choose his position.`\
-https://nytimes.com/athletic/6542658/2025/08/14/new-york-rangers-mika-zibanejad-lineup-roster/
-
-**Why Trump’s Pay-for-Play Chips Deal May Not Be the Last**\
-`The Trump administration’s unorthodox Chinese export pact with Nvidia and Advanced Micro Devices is worrying trade experts.`\
-https://nytimes.com/2025/08/14/business/dealbook/trump-nvidia-chips-deal-trade-policy.html
 
