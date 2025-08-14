@@ -1,3 +1,7 @@
+**Owen Caissie, Cubs' top prospect, debuts in Toronto as offense continues its struggles**\
+`Caissie's thunderous bat could not save a Cubs offense desperate for a clutch hit and searching for any sort of rhythm.`\
+https://nytimes.com/athletic/6554603/2025/08/14/owen-caissie-cubs-top-prospect-debuts-offense-struggles/
+
 **PBS Slashes Budget by 21% After Federal Funding Cuts**\
 `The nonprofit will receive less revenue from its members, which are under pressure to make up for shortfalls of their own.`\
 https://nytimes.com/2025/08/14/business/pbs-budget-cuts.html
@@ -11,7 +15,7 @@ https://nytimes.com/video/us/politics/100000010341817/national-guard-troops-mobi
 https://nytimes.com/2025/08/14/weather/hurricane-erin-spaghetti-models.html
 
 **Former Texas WR Isaiah Bond will not face charges, announces he's joining Browns**\
-`A grand jury cleared Bond of the sexual assault accusations levied against him just weeks before the 2025 NFL Draft. `\
+`A grand jury voted not to bring sexual assault charges against Bond, who says he will join the Cleveland Browns.`\
 https://nytimes.com/athletic/6554609/2025/08/14/isaiah-bond-cleared-charges-browns/
 
 **Red flags abound for Patriots defense after struggles in Minnesota**\
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/14/us/dale-webster-surfer-dead-california.html
 **Immigration Agents Show Up Outside Newsom Rally**\
 `More than a dozen Border Patrol agents turned up in downtown Los Angeles on Thursday outside a museum where Gov. Gavin Newsom of California was holding a rally.`\
 https://nytimes.com/video/us/politics/100000010342016/immigration-agents-newsom-rally.html
-
-**Lions joint practice takeaways: Dolphins respond, but Detroit settles in on Day 2**\
-`While the Lions dominated Day 1, Miami responded on Day 2 of the teams' joint practices.`\
-https://nytimes.com/athletic/6554377/2025/08/14/lions-dolphins-joint-practice-day-2/
 
