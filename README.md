@@ -1,3 +1,7 @@
+**Tourist ‘Is in Trouble’ After Stones Taken From Pompeii, Police Say**\
+`A Scottish man is under investigation for aggravated theft, police officials said, after visiting the ancient Italian site.`\
+https://nytimes.com/2025/08/14/world/europe/pompeii-italy-tourist.html
+
 **Wissa unavailable for opener at Forest due to disrupted summer, Andrews says**\
 `Andrews said he would like Wissa to be part of the squad but added it is "very hard to know" what will happen in relation to his future.`\
 https://nytimes.com/athletic/6553312/2025/08/14/keith-andrews-yoane-wissa-unavailable-brentford/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/14/t-magazine/hotel-marrakesh.html
 **Gustavo Hamer scores from halfway: An audacious Hail Mary Tom Brady would be proud of**\
 `Tom Brady has attempted a few Hail Marys in his time, but his Birmingham City was at the wrong end of soccer's equivalent on Wednesday`\
 https://nytimes.com/athletic/6552962/2025/08/14/birmingham-city-gustavo-hamer-tom-brady-halfway-line/
-
-**Manchester United 2025-26 season preview: Live Q&A with Laurie Whitwell**\
-`Post your questions and our Manchester United writer will answer as many as possible`\
-https://nytimes.com/athletic/6546619/2025/08/14/manchester-united-season-preview-laurie-whitwell/
 
