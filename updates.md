@@ -1,3 +1,7 @@
+**Why the World Is Deadlocked Over a Treaty to Stop Plastics Pollution**\
+`After three years of talks, and despite growing warnings about the dangers of plastics pollution, nations are at an impasse again over what to do about it.`\
+https://nytimes.com/2025/08/14/climate/global-plastic-pollution-treaty.html
+
 **A Whiskey Maker Honoring an Enslaved Distiller Is in a Fiscal Bind**\
 `A federal judge has ordered that Uncle Nearest be placed in receivership, after a lender claimed the company’s finances are in disarray.`\
 https://nytimes.com/2025/08/14/dining/uncle-nearest-whiskey-receivership.html
