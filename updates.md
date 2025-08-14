@@ -1,3 +1,7 @@
+**Hunter Brown bolstering Cy Young candidacy, learning 'how to separate himself from the rest'**\
+`Brown's four-seam fastball has the second-highest mark in baseball. It is, by most public metrics, one of the best pitches in the game.`\
+https://nytimes.com/athletic/6552673/2025/08/14/astros-red-sox-hunter-brown-bolstering-cy-young-candidacy/
+
 **Thursday Briefing: Air Conditioning Politics**\
 `Also, Trump spoke with European leaders ahead of his talks with Putin.`\
 https://nytimes.com/2025/08/14/briefing/air-conditioning-politics-in-europe.html
