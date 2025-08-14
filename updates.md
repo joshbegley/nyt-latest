@@ -1,3 +1,7 @@
+**Authorities Clear D.C. Homeless Camps as Part of Trump’s Takeover**\
+`City officials and advocates for the homeless had spent much of Thursday urging people in encampments to go to shelters.`\
+https://nytimes.com/2025/08/14/us/politics/dc-homeless-camps-trump.html
+
 **Vikings-Patriots joint practice: J.J. McCarthy's best practice of training camp and more**\
 `McCarthy completed 13 consecutive passes at one point and tallied six touchdowns during Thursday's practice.`\
 https://nytimes.com/athletic/6554637/2025/08/14/vikings-patriots-joint-practice-jj-mccarthy/
