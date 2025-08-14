@@ -1,5 +1,9 @@
+**Dodgers blow another game, slip out of first place: ‘Obviously, it doesn’t feel good’**\
+`Just 41 days ago, the Dodgers held a nine-game advantage and full control of the NL West. Now they're looking up at the Padres.`\
+https://nytimes.com/athletic/6552727/2025/08/14/los-angeles-dodgers-nl-west-race/
+
 **Newcastle reach agreement to sign Ramsey from Villa**\
-`Newcastle have emerged as the 24-year-old's preferred destination despite interest from other clubs such as West Ham United.`\
+`Newcastle emerged as the 24-year-old's preferred destination despite interest from other clubs such as West Ham United.`\
 https://nytimes.com/athletic/6495539/2025/08/14/jacob-ramsey-newcastle-aston-villa-transfer/
 
 **Stone Stacks Litter Pristine Trails. A Grumpy Hiker Is Kicking Back.**\
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2025/08/14/us/earthquake-san-francisco-bay-area-
 **What will the Timberwolves' roster look like this season? Expect continuity**\
 `Minnesota has mostly tinkered around the edges after making back-to-back Western Conference finals.`\
 https://nytimes.com/athletic/6536869/2025/08/14/timberwolves-roster-preview-mike-conley-anthony-edwards/
-
-**Taylor Swift and Drake Go Long to Promote Their Albums**\
-`The two megastars recently sat for hourslong video conversations on streaming platforms, reflecting a shift in how the ultrafamous cultivate both casual and die-hard fans.`\
-https://nytimes.com/2025/08/14/arts/music/celebrity-podcasts-taylor-swift-drake.html
 

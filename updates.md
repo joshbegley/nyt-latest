@@ -1,3 +1,19 @@
+**Newcastle reach agreement to sign Ramsey from Villa**\
+`Newcastle have emerged as the 24-year-old's preferred destination despite interest from other clubs such as West Ham United.`\
+https://nytimes.com/athletic/6495539/2025/08/14/jacob-ramsey-newcastle-aston-villa-transfer/
+
+**Stone Stacks Litter Pristine Trails. A Grumpy Hiker Is Kicking Back.**\
+`Rock piles have proliferated on some trails in recent years, irking conservationists. Stuart Cox has been applying his boot to the issue.`\
+https://nytimes.com/2025/08/14/us/hiking-peak-district-stone-stacks.html
+
+**Live Q&A: Discuss Tottenham Hotspur's upcoming season with Jack Pitt-Brooke**\
+`Spurs get their campaign under way on Saturday - do you have a question for our correspondent?`\
+https://nytimes.com/athletic/6552885/2025/08/14/spurs-questions-jack-pitt-brooke/
+
+**Live Q&A: Discuss Everton's upcoming season with Patrick Boyland**\
+`Everton get their campaign under way on Monday night - do you have a question for our correspondent?`\
+https://nytimes.com/athletic/6553102/2025/08/14/questions-everton-patrick-boyland/
+
 **A Riad With a Rooftop Pool in Marrakesh**\
 `Plus: playful knitwear, new takes on Classical plinths and more recommendations from T Magazine.`\
 https://nytimes.com/2025/08/14/t-magazine/hotel-marrakesh.html
