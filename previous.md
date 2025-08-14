@@ -26,7 +26,7 @@ https://nytimes.com/athletic/6552267/2025/08/13/taylor-swift-new-heights-travis-
 `His summer conferences gave budding playwrights a chance to try out new works, many of which went on to success in New York.`\
 https://nytimes.com/2025/08/13/theater/george-c-white-dead.html
 
-**National Guard Ramps Up D.C. Presence as Trump Threatens to Extend Takeover**\
+**D.C. Federal Deployment Ramps Up as Trump Threatens to Extend Takeover**\
 `The Army expects up to 200 soldiers out on the capital’s streets within the next few days at any given time in support of federal law enforcement.`\
 https://nytimes.com/2025/08/13/us/politics/national-guard-dc-trump-takeover.html
 

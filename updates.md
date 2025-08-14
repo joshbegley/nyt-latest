@@ -1,3 +1,7 @@
+**D.C. Federal Deployment Ramps Up as Trump Threatens to Extend Takeover**\
+`The Army expects up to 200 soldiers out on the capital’s streets within the next few days at any given time in support of federal law enforcement.`\
+https://nytimes.com/2025/08/13/us/politics/national-guard-dc-trump-takeover.html
+
 **Rabbits With Hornlike Growths Are Hopping Around Colorado. Are They OK?**\
 `The unsightly bunnies are infected with cottontail rabbit papillomavirus, which can cause growths that resemble warts or tentacles.`\
 https://nytimes.com/2025/08/13/science/colorado-rabbits-tentacles-papilloma-virus.html
