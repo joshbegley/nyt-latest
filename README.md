@@ -1,3 +1,7 @@
+**Is Trump a Test or Triumph for Democracy?**\
+`Why the left can’t win until it reckons with this question.`\
+https://nytimes.com/video/opinion/100000010330631/is-trump-a-test-or-triumph-for-democracy.html
+
 **Leeds interested in Milan forward Okafor**\
 `Okafor spent the second half of the 2024-25 season on loan at Napoli, winning the Serie A title.`\
 https://nytimes.com/athletic/6552803/2025/08/14/leeds-noah-okafor-milan-interest/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6551251/2025/08/14/badge-bravery-spirit-manchester-
 **Protest Breaks Out at Police Checkpoint in D.C.**\
 `The police and federal agents set up a vehicle checkpoint on 14th street, drawing protesters who directed drivers away from the block.`\
 https://nytimes.com/video/us/100000010340116/national-guard-dc-trump-takeover.html
-
-**Why Frank's 'special operation' offered promise even if Tottenham succumbed at the last**\
-`The new Spurs manager needed to devise a game plan for PSG after a heavy defeat to Bayern, and his tactical approach almost paid off`\
-https://nytimes.com/athletic/6552380/2025/08/14/tottenham-frank-psg-supercup-richarlison-kudus/
 
