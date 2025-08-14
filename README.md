@@ -1,3 +1,7 @@
+**La Liga, Serie A, Bundesliga odds: Which league is shaping up to have the closest race?**\
+`Barcelona, Bayern, Napoli and PSG are defending league crowns in Europe. Which will be able to retain their titles?`\
+https://nytimes.com/athletic/6551427/2025/08/14/la-liga-serie-a-bundesliga-odds/
+
 **What readers think about Villarreal-Barcelona being played in the U.S.**\
 `Reaction to the proposed move by La Liga has been mixed. We asked for your views`\
 https://nytimes.com/athletic/6551287/2025/08/14/villarreal-barcelona-la-liga-us-survey-results/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/14/realestate/carrie-bradshaw-apartments-sex-and-the
 **Fed Faces High Bar for Big Cuts Despite White House Pressure**\
 `The Federal Reserve is poised to lower interest rates in September. But signs of stickier inflation could limit how much relief officials can ultimately provide to borrowers.`\
 https://nytimes.com/2025/08/14/business/fed-faces-high-bar-for-big-cuts-despite-white-house-pressure.html
-
-**‘And Just Like That …’ Is Over Too Soon**\
-`Wesley and Taffy Brodesser-Akner loved the reboot that everyone else loved to hate.`\
-https://nytimes.com/2025/08/14/podcasts/and-just-like-that-finale-cannonball.html
 

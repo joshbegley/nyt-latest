@@ -1,3 +1,7 @@
+**What readers think about Villarreal-Barcelona being played in the U.S.**\
+`Reaction to the proposed move by La Liga has been mixed. We asked for your views`\
+https://nytimes.com/athletic/6551287/2025/08/14/villarreal-barcelona-la-liga-us-survey-results/
+
 **Liverpool reach agreement to sign Leoni from Parma**\
 `The Premier League club will pay a fee in the region of £26million plus add-ons for the 18-year-old.`\
 https://nytimes.com/athletic/6552813/2025/08/14/liverpool-transfers-giovanni-leoni/
