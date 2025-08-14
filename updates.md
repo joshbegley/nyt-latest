@@ -1,3 +1,7 @@
+**In L.A., Fear of ICE Raids Created a Tense First Day of School**\
+`Officials and volunteers patrolled areas around schools, part of an effort to warn families about potential raids and reassure them that their children were safe at school.`\
+https://nytimes.com/2025/08/14/us/los-angeles-raids-school-patrols.html
+
 **Eagles-Browns practice takeaways: Landon Dickerson's beer run, safeties surge and more**\
 `The Browns beat the Eagles on two trick plays: a halfback pass across the field and a hook-and-ladder on a two-point conversion.`\
 https://nytimes.com/athletic/6553762/2025/08/14/eagles-browns-takeaways-landon-dickersons-beer-run-safety-offensive-line/

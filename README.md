@@ -1,3 +1,11 @@
+**A Whiskey Maker Honoring an Enslaved Distiller Is in a Fiscal Bind**\
+`A federal judge has ordered that Uncle Nearest be placed in receivership, after a lender claimed the company’s finances are in disarray.`\
+https://nytimes.com/2025/08/14/dining/uncle-nearest-whiskey-receivership.html
+
+**There’s Never Been a Better to Time to Love a Wine Bar**\
+`Wine bars with great menus just keep popping up across New York City. Here are three new ones to check out.`\
+https://nytimes.com/2025/08/14/dining/theres-never-been-a-better-to-time-to-love-a-wine-bar.html
+
 **In L.A., Fear of ICE Raids Created a Tense First Day of School**\
 `Officials and volunteers patrolled areas around schools, part of an effort to warn families about potential raids and reassure them that their children were safe at school.`\
 https://nytimes.com/2025/08/14/us/los-angeles-raids-school-patrols.html
@@ -29,12 +37,4 @@ https://nytimes.com/paidpost/notre-dame-what-would-you-fight-for/notre-dame-vide
 **Eagles-Browns practice takeaways: Landon Dickerson's beer run, safeties surge and more**\
 `The Browns beat the Eagles on two trick plays: a halfback pass across the field and a hook-and-ladder on a two-point conversion.`\
 https://nytimes.com/athletic/6553762/2025/08/14/eagles-browns-takeaways-landon-dickersons-beer-run-safety-offensive-line/
-
-**Vancouver introduces Thomas Müller: Record sales, goat noises and a will to win**\
-`Müller was his affable, jovial self as he begins to settle into his post-Bayern club career with an MLS Cup contender`\
-https://nytimes.com/athletic/6554115/2025/08/14/thomas-muller-vancouver-whitecaps-mls-introduction-goat-noises/
-
-**Supreme Court Allows Mississippi Law on Children’s Use of Social Media, for Now**\
-`A trade group representing sites like Facebook and X said the law ran afoul of the First Amendment.`\
-https://nytimes.com/2025/08/14/us/politics/supreme-court-mississippi-social-media.html
 
