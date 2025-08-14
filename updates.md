@@ -1,3 +1,15 @@
+**NASCAR considering moving All-Star Race to Dover: Sources**\
+`Dover hosting the All-Star Race would clear a spot for North Wilkesboro Speedway to land a Cup points race, which it hasn't done since 1996.`\
+https://nytimes.com/athletic/6554454/2025/08/14/nascar-considering-moving-all-star-race-to-dover-sources/
+
+**Russia and Ukraine Agree: A Trump Summit Is a Big Win for Putin**\
+`The talks on Friday in Alaska pull the Russian leader out of diplomatic isolation from the West, and Ukrainian and European leaders fear it gives him an opening to sway the American president.`\
+https://nytimes.com/2025/08/14/world/europe/trump-putin-alaska-summit.html
+
+**Woman Claims Marine Laced Her Drink With Abortion Pills**\
+`A Texas woman said in a lawsuit that a U.S. Marine got her pregnant and then, after she chose to keep the pregnancy, dissolved abortion pills in her hot chocolate.`\
+https://nytimes.com/2025/08/14/us/marine-abortion-pills-lawsuit-texas.html
+
 **Attracting The Right People With The Right Benefits**\
 `Dental and vision care can be critical to our personal health. They’re also critical to a company’s recruitment and benefits strategy. `\
 https://nytimes.com/paidpost/humana/attracting-the-right-people-with-the-right-benefits.html
