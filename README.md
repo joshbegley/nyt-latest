@@ -1,3 +1,7 @@
+**Why the World Is Deadlocked Over a Treaty to Stop Plastics Pollution**\
+`After three years of talks, and despite growing warnings about the dangers of plastics pollution, nations are at an impasse again over what to do about it.`\
+https://nytimes.com/2025/08/14/climate/global-plastic-pollution-treaty.html
+
 **A Whiskey Maker Honoring an Enslaved Distiller Is in a Fiscal Bind**\
 `A federal judge has ordered that Uncle Nearest be placed in receivership, after a lender claimed the company’s finances are in disarray.`\
 https://nytimes.com/2025/08/14/dining/uncle-nearest-whiskey-receivership.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6546868/2025/08/14/nottingham-forest-james-mcatee-a
 **What Would You Fight For?**\
 `Sports, science, technology, research—for the University of Notre Dame, it’s not a question. It’s a call to action.`\
 https://nytimes.com/paidpost/notre-dame-what-would-you-fight-for/notre-dame-video-ad-post/what-would-you-fight-for.html
-
-**Eagles-Browns practice takeaways: Landon Dickerson's beer run, safeties surge and more**\
-`The Browns beat the Eagles on two trick plays: a halfback pass across the field and a hook-and-ladder on a two-point conversion.`\
-https://nytimes.com/athletic/6553762/2025/08/14/eagles-browns-takeaways-landon-dickersons-beer-run-safety-offensive-line/
 
