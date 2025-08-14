@@ -1,3 +1,7 @@
+**Thursday Briefing: Air Conditioning Politics**\
+`Also, Trump spoke with European leaders ahead of his talks with Putin.`\
+https://nytimes.com/2025/08/14/briefing/air-conditioning-politics-in-europe.html
+
 **Liverpool 2025-26 Premier League season preview: Can they dominate again?**\
 `Liverpool dominated the Premier League last season... can they do it again?`\
 https://nytimes.com/athletic/6550662/2025/08/14/liverpool-season-preview/

@@ -1,3 +1,7 @@
+**Hunter Brown bolstering Cy Young candidacy, learning 'how to separate himself from the rest'**\
+`Brown's four-seam fastball has the second-highest mark in baseball. It is, by most public metrics, one of the best pitches in the game.`\
+https://nytimes.com/athletic/6552673/2025/08/14/astros-red-sox-hunter-brown-bolstering-cy-young-candidacy/
+
 **Thursday Briefing: Air Conditioning Politics**\
 `Also, Trump spoke with European leaders ahead of his talks with Putin.`\
 https://nytimes.com/2025/08/14/briefing/air-conditioning-politics-in-europe.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6548611/2025/08/14/wolves-ki-jana-hoever-breakout/
 **Hansi Flick and the unique challenges of a second season at Barcelona**\
 `The German manager has proved himself an expert handler of Barca's infamous 'entorno'. Can he build on last season's success?`\
 https://nytimes.com/athletic/6551460/2025/08/14/hansi-flick-barcelona-new-season-la-liga/
-
-**The Alternative Premier League Table: No 1 - Making sense of season predictions and projections**\
-`Each week The Athletic will analyse the Premier League through the prism of the league table`\
-https://nytimes.com/athletic/6550850/2025/08/14/alternative-premier-league-table-matchweek-one-projections/
 
