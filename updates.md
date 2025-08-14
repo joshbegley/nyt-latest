@@ -1,3 +1,19 @@
+**Attracting The Right People With The Right Benefits**\
+`Dental and vision care can be critical to our personal health. They’re also critical to a company’s recruitment and benefits strategy. `\
+https://nytimes.com/paidpost/humana/attracting-the-right-people-with-the-right-benefits.html
+
+**Hudson-Odoi close to agreeing new contract with Forest**\
+`The 24-year-old's current contract is set to expire in the summer of 2026.`\
+https://nytimes.com/athletic/6554323/2025/08/14/callum-hudson-odoi-nottingham-forest-contract-talks/
+
+**Friday Briefing: Ukraine’s Fate**\
+`Plus: To appreciate a dancer, watch the hands.`\
+https://nytimes.com/2025/08/14/briefing/ukraine-putin-trump-russia-gaza-aid.html
+
+**America’s New Segregation**\
+`To be one nation, we have to embrace ground-up social change.`\
+https://nytimes.com/2025/08/14/opinion/trump-democrats-resistance-reform.html
+
 **As Trump Seizes D.C.’s Police, Critics Say He’s Undercut Its Ability to Fight Crime**\
 `The Trump administration has taken steps that have hobbled Washington’s efforts to reduce crime, such as gutting its U.S. attorney’s office and enacting budget cuts of more than $1 billion.`\
 https://nytimes.com/2025/08/14/us/politics/trump-washington-dc-crime-police.html
