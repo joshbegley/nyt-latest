@@ -1,3 +1,11 @@
+**Law Firms That Settled With Trump Are Pressed to Help on Trade Deals**\
+`Boris Epshteyn, a personal lawyer for President Trump, connected two firms — Kirkland & Ellis and Skadden Arps — to the Commerce Department.`\
+https://nytimes.com/2025/08/13/us/politics/trump-law-firms-trade-deals.html
+
+**Miguel Amaya carted off field with left ankle sprain, will go on IL**\
+`The play occurred during the eighth inning of the Cubs' game against the Toronto Blue Jays.`\
+https://nytimes.com/athletic/6552519/2025/08/13/chicago-cubs-miguel-amaya-injury/
+
 **Cubs' Miguel Amaya carted off field with left ankle sprain, will go on IL**\
 `The play occurred during the eighth inning of the Cubs' game against the Toronto Blue Jays.`\
 https://nytimes.com/athletic/6552519/2025/08/13/chicago-cubs-miguel-amaya-injury/
