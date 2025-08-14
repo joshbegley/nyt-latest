@@ -1,3 +1,7 @@
+**Why Trump’s Pay-for-Play Chips Deal May Not Be the Last**\
+`The Trump administration’s unorthodox Chinese export pact with Nvidia and Advanced Micro Devices is worrying trade experts.`\
+https://nytimes.com/2025/08/14/business/dealbook/trump-nvidia-chips-deal-trade-policy.html
+
 **Chelsea co-sporting directors Winstanley and Stewart sign new contracts**\
 `Recruitment chiefs Joe Shields and Sam Jewell have also signed fresh terms until 2031.`\
 https://nytimes.com/athletic/6553098/2025/08/14/paul-winstanley-laurence-stewart-chelsea-contracts/

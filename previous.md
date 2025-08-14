@@ -1,3 +1,7 @@
+**Why Trump’s Pay-for-Play Chips Deal May Not Be the Last**\
+`The Trump administration’s unorthodox Chinese export pact with Nvidia and Advanced Micro Devices is worrying trade experts.`\
+https://nytimes.com/2025/08/14/business/dealbook/trump-nvidia-chips-deal-trade-policy.html
+
 **Chelsea co-sporting directors Winstanley and Stewart sign new contracts**\
 `Recruitment chiefs Joe Shields and Sam Jewell have also signed fresh terms until 2031.`\
 https://nytimes.com/athletic/6553098/2025/08/14/paul-winstanley-laurence-stewart-chelsea-contracts/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6551336/2025/08/14/this-week-in-sports-trivia-augus
 **Ben Johnson touts flexibility as he puts together Bears' offensive identity: Greenberg**\
 `Johnson has been pretty open from his introductory press conference that he’s not bringing the Detroit Lions offense to Chicago.`\
 https://nytimes.com/athletic/6552399/2025/08/14/greenberg-ben-johnson-bears-offensive-identity/
-
-**How the Blue Jays fare against aces ahead of a week filled with top starters**\
-`Against top starters, past Blue Jays teams were overmatched. This year, so far, they’ve proven they can beat them.`\
-https://nytimes.com/athletic/6552508/2025/08/14/toronto-blue-jays-top-level-pitching-analysis/
 
