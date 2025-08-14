@@ -1,3 +1,11 @@
+**D.C. Police Move to Share Limited Information With Federal Immigration Officials**\
+`Chief Pamela A. Smith’s order effectively serves as a carve-out to how the department enforces a broader ban that prohibits the local police from cooperating with federal law enforcement.`\
+https://nytimes.com/2025/08/14/us/politics/dc-police-federal-immigration-enforcement.html
+
+**MLB negotiating possible broadcast packages with Apple, Netflix, ESPN, NBC: Sources**\
+`Netflix has emerged as the potential Home Run Derby destination, while ESPN could add weekday games.`\
+https://nytimes.com/athletic/6553812/2025/08/14/mlb-negotiating-with-apple-netflix-espn-nbc-sources/
+
 **Scoop City: Four coaches on the hot seat**\
 `Mike McDaniel and Brian Daboll lead our list of coaches with plenty to prove this season, Stefon Diggs' uncertain Week 1 status`\
 https://nytimes.com/athletic/6553887/2025/08/14/nfl-coach-hot-seat-2025-scoop-city-giants-dolphins/
