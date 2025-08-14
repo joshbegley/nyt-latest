@@ -1,3 +1,7 @@
+**Rooney 'very disappointed' with Brady criticism in Birmingham documentary**\
+`Brady previously voiced concern about Rooney, saying: "I'm a little worried about our head coach's work ethic."`\
+https://nytimes.com/athletic/6552934/2025/08/14/rooney-brady-birmingham-city/
+
 **With Arson and Land Grabs, Israeli Settler Attacks in West Bank Hit Record High**\
 `Extremists are carrying out one of the most violent campaigns against Palestinian villages since the U.N. began keeping records.`\
 https://nytimes.com/2025/08/14/world/middleeast/west-bank-israel-settler-attacks.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6551283/2025/08/14/fantasy-football-undervalued-adp
 **Trump Wants to ‘Take Back’ D.C., but the Federal Government Already Controls Much of It**\
 `The president and his allies have berated local officials. Yet the federal government has often made it harder for those officials to manage the capital.`\
 https://nytimes.com/2025/08/14/upshot/washington-dc-home-rule.html
-
-**Why a ‘Paleo-Confederate’ Pastor Is on the Rise**\
-`Trump isn’t just shaping the nation; he’s also changing the evangelical church.`\
-https://nytimes.com/2025/08/14/opinion/douglas-wilson-evangelical-hegseth.html
 
