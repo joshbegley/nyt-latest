@@ -1,3 +1,7 @@
+**Cubs to call up outfield prospect Owen Caissie ahead of series finale: Source**\
+`The 23-year-old Caissie has been tearing up Triple A this season, slugging 22 homers and posting a strong 145 wRC+.`\
+https://nytimes.com/athletic/6552615/2025/08/13/chicago-cubs-owen-caissie-promotion/
+
 **Why the Pohlads stunned potential buyers and kept control of the Twins: ‘We’re the right people’**\
 `The announcement that the Twins owners are keeping the team sent shock waves through the organization, fan base, and beyond.`\
 https://nytimes.com/athletic/6552618/2025/08/13/minnesota-twins-sale-process-pohlad/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6552416/2025/08/13/chargers-training-camp-evaluatio
 **Taylor Swift joins Travis Kelce on 'New Heights' podcast: What we learned (Taylor knows ball)**\
 `The megastar made her first in-studio podcast appearance ever, joining her boyfriend to discuss her upcoming 12th album, the NFL and more.`\
 https://nytimes.com/athletic/6552267/2025/08/13/taylor-swift-new-heights-travis-kelce-album-takeaways/
-
-**George C. White, Founder of Eugene O’Neill Theater Center, Dies at 89**\
-`His summer conferences gave budding playwrights a chance to try out new works, many of which went on to success in New York.`\
-https://nytimes.com/2025/08/13/theater/george-c-white-dead.html
 
