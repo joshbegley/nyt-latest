@@ -23,7 +23,7 @@ https://nytimes.com/athletic/6546868/2025/08/14/nottingham-forest-james-mcatee-a
 https://nytimes.com/paidpost/notre-dame-what-would-you-fight-for/notre-dame-video-ad-post/what-would-you-fight-for.html
 
 **Eagles-Browns takeaways: Landon Dickerson's beer run, safeties surge, offensive line tested**\
-`PHILADELPHIA — Few things beat the heat like a couple of cold ones.`\
+`The Browns beat the Eagles on two trick plays: a halfback pass across the field and a hook-and-ladder on a two-point conversion.`\
 https://nytimes.com/athletic/6553762/2025/08/14/eagles-browns-takeaways-landon-dickersons-beer-run-safety-offensive-line/
 
 **Vancouver introduces Thomas Müller: Record sales, goat noises and a will to win**\

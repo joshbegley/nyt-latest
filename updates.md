@@ -1,3 +1,7 @@
+**Eagles-Browns takeaways: Landon Dickerson's beer run, safeties surge, offensive line tested**\
+`The Browns beat the Eagles on two trick plays: a halfback pass across the field and a hook-and-ladder on a two-point conversion.`\
+https://nytimes.com/athletic/6553762/2025/08/14/eagles-browns-takeaways-landon-dickersons-beer-run-safety-offensive-line/
+
 **Russia and Ukraine Continue Drone Attacks Before Putin-Trump Meeting**\
 `The Kremlin signaled that apart from Ukraine, it was also interested in discussing other subjects with the U.S., like economic links and nuclear arms. At the same time, Ukrainian President Volodymyr Zelensky met with the U.K. Prime Minister Keir Starmer in a show of unity.`\
 https://nytimes.com/video/world/europe/100000010341261/ukraine-russia-us-negotiations.html
