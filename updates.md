@@ -1,3 +1,11 @@
+**Owen Caissie, Cubs' top prospect, debuts in Toronto as offense continues its struggles**\
+`Caissie's thunderous bat could not save a Cubs offense desperate for a clutch hit and searching for any sort of rhythm.`\
+https://nytimes.com/athletic/6554603/2025/08/14/owen-caissie-cubs-top-prospect-debuts-offense-struggles/
+
+**Former Texas WR Isaiah Bond will not face charges, announces he's joining Browns**\
+`A grand jury voted not to bring sexual assault charges against Bond, who says he will join the Cleveland Browns.`\
+https://nytimes.com/athletic/6554609/2025/08/14/isaiah-bond-cleared-charges-browns/
+
 **PBS Slashes Budget by 21% After Federal Funding Cuts**\
 `The nonprofit will receive less revenue from its members, which are under pressure to make up for shortfalls of their own.`\
 https://nytimes.com/2025/08/14/business/pbs-budget-cuts.html
