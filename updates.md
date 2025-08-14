@@ -1,3 +1,11 @@
+**George C. White, Founder of Eugene O’Neill Theater Center, Dies at 89**\
+`His summer conferences gave budding playwrights a chance to try out new works, many of which went on to success in New York.`\
+https://nytimes.com/2025/08/13/theater/george-c-white-dead.html
+
+**National Guard Ramps Up D.C. Presence as Trump Threatens to Extend Takeover**\
+`The Army expects up to 200 soldiers out on the capital’s streets within the next few days at any given time in support of federal law enforcement.`\
+https://nytimes.com/2025/08/13/us/politics/national-guard-dc-trump-takeover.html
+
 **Vikings-Patriots joint practice: J.J. McCarthy's poise, quick decisions stand out**\
 `McCarthy faced pressure and delivered flashes, giving the Vikings a glimpse of what’s ahead.`\
 https://nytimes.com/athletic/6552179/2025/08/13/vikings-vs-patriots-joint-practice/
