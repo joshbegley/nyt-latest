@@ -1,3 +1,19 @@
+**Premier League top 4 odds: Will there be a surprise Champions League entrant?**\
+`The race for Champions League qualification was the most exciting part of last season. Will this year's race be as close?`\
+https://nytimes.com/athletic/6551290/2025/08/14/premier-league-top-4-odds-man-united-chelsea-newcastle/
+
+**Does Earning $142,000 in New York City Make You Rich?**\
+`Andrew Cuomo is basing his new line of attack against Zohran Mamdani on a certain definition of wealth. But the reality is complicated.`\
+https://nytimes.com/2025/08/14/nyregion/who-is-rich-new-york-city.html
+
+**Will New York’s Governor Endorse Mamdani for Mayor?**\
+`Gov. Kathy Hochul, who withheld an endorsement in the New York City Democratic primary, has yet to endorse the winner, Zohran Mamdani.`\
+https://nytimes.com/2025/08/14/nyregion/hochul-mamdani-cuomo-endorsement.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/08/14/crosswords/spelling-bee-forum.html
+
 **Mikel Arteta exclusive: His 'evolution' as a manager and the 'gift' of developing young talent**\
 `Mikel Arteta speaks to The Athletic on the eve of his seventh season with Arsenal. 'There is much more to come,' he says`\
 https://nytimes.com/athletic/6551609/2025/08/14/arsenal-mikel-arteta-interview-talent/
@@ -21,20 +37,4 @@ https://nytimes.com/2025/08/14/world/asia/bangladesh-revolution-sheikh-hasina.ht
 **Ben Healy on his stellar Tour de France: 'I was climbing up the Hautacam with a massive smile on my face'**\
 `The Irishman speaks to The Athletic about his career-defining summer and his plans for the road world championships next month `\
 https://nytimes.com/athletic/6548410/2025/08/14/ben-healy-interview-tour-de-france-2025/
-
-**Word of the Day: dovish**\
-`This word has appeared in 23 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2025/08/14/learning/word-of-the-day-dovish.html
-
-**3 Officers Injured in Virginia Shooting**\
-`A man opened fire on the sheriff’s deputies, wounding them with shrapnel, as they served warrants, officials said.`\
-https://nytimes.com/2025/08/14/us/virginia-shooting-officers.html
-
-**Late Night Hopes Trump’s New Hosting Gig Will Keep Him Busy**\
-`Nicole Byer said she supports Trump hosting this year's Kennedy Center Honors: “Anything that distracts him from running this country into the ground.”`\
-https://nytimes.com/2025/08/14/arts/television/late-night-trump.html
-
-**Mets blow 6-run lead in latest ugly loss to Braves**\
-`After a 12th defeat in 14 games, the Mets' lead on a playoff spot is down to a single game over the Cincinnati Reds.`\
-https://nytimes.com/athletic/6552684/2025/08/14/mets-lose-braves-blow-six-run-lead/
 

@@ -1,3 +1,7 @@
+**Mikel Arteta exclusive: His 'evolution' as a manager and the 'gift' of developing young talent**\
+`Mikel Arteta speaks to The Athletic on the eve of his seventh season with Arsenal. 'There is much more to come,' he says`\
+https://nytimes.com/athletic/6551609/2025/08/14/arsenal-mikel-arteta-interview-talent/
+
 **'Badge, Bravery, Spirit' - Manchester United's message to staff before 'now or never' season begins**\
 `New core values, a refurbished Carrington and honest talk from Ruben Amorim reflect what feels like all or nothing at Manchester United`\
 https://nytimes.com/athletic/6551251/2025/08/14/badge-bravery-spirit-manchester-united/
