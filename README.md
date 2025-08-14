@@ -1,3 +1,7 @@
+**Mets blow 6-run lead in latest ugly loss to Braves**\
+`After a 12th defeat in 14 games, the Mets' lead on a playoff spot is down to a single game over the Cincinnati Reds.`\
+https://nytimes.com/athletic/6552684/2025/08/14/mets-lose-braves-blow-six-run-lead/
+
 **The New York Times in Print for Thursday, Aug. 14, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/08/14/todays-new-york-times
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6506298/2025/08/14/west-ham-freddie-potts-breakthro
 **Aston Villa charging £77 for a ticket in the Holte End: 'Madness'**\
 `Villa’s ticket pricing is a bottleneck issue for those fans who simply cannot afford it any more`\
 https://nytimes.com/athletic/6546387/2025/08/14/aston-villa-charging-77-for-a-ticket-in-the-holte-end-madness/
-
-**Brighton season preview: Hope for another European adventure...and fewer injuries**\
-`The aim for Fabian Hurzeler's side is the same as before – to push for a European place and have a crack at winning a first major trophy`\
-https://nytimes.com/athletic/6534305/2025/08/14/brighton-season-preview/
 
