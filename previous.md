@@ -1,3 +1,15 @@
+**Man Who Faked His Death and Fled to Scotland Is Convicted of Rape**\
+`Nicholas Rossi lived for years as a fugitive before being extradited. A jury in Utah found him guilty of a 2008 sexual assault.`\
+https://nytimes.com/2025/08/14/us/nicholas-rossi-rape-trial-utah.html
+
+**Roma working on loan deal for Man Utd's Sancho**\
+`Sancho has been training away from the United first team after returning from a loan spell at Chelsea.`\
+https://nytimes.com/athletic/6403283/2025/08/14/jadon-sancho-roma-transfer-man-utd/
+
+**USMNT's Robinson will return 'soon' but missing Fulham opener - Silva**\
+`The 28-year-old underwent surgery on his right knee following the conclusion of 2024-25 and has not yet recovered match fitness.`\
+https://nytimes.com/athletic/6548235/2025/08/14/antonee-robinson-injury-fulham-usmnt/
+
 **Tourist ‘Is in Trouble’ After Stones Taken From Pompeii, Police Say**\
 `A Scottish man is under investigation for aggravated theft, police officials said, after visiting the ancient Italian site.`\
 https://nytimes.com/2025/08/14/world/europe/pompeii-italy-tourist.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/08/14/us/hiking-peak-district-stone-stacks.html
 **Live Q&A: Discuss Tottenham Hotspur's upcoming season with Jack Pitt-Brooke**\
 `Spurs get their campaign under way on Saturday - do you have a question for our correspondent?`\
 https://nytimes.com/athletic/6552885/2025/08/14/spurs-questions-jack-pitt-brooke/
-
-**Live Q&A: Discuss Everton's upcoming season with Patrick Boyland**\
-`Everton get their campaign under way on Monday night - do you have a question for our correspondent?`\
-https://nytimes.com/athletic/6553102/2025/08/14/questions-everton-patrick-boyland/
-
-**A Riad With a Rooftop Pool in Marrakesh**\
-`Plus: playful knitwear, new takes on Classical plinths and more recommendations from T Magazine.`\
-https://nytimes.com/2025/08/14/t-magazine/hotel-marrakesh.html
-
-**Gustavo Hamer scores from halfway: An audacious Hail Mary Tom Brady would be proud of**\
-`Tom Brady has attempted a few Hail Marys in his time, but his Birmingham City was at the wrong end of soccer's equivalent on Wednesday`\
-https://nytimes.com/athletic/6552962/2025/08/14/birmingham-city-gustavo-hamer-tom-brady-halfway-line/
 

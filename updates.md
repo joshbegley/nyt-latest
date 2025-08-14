@@ -1,3 +1,15 @@
+**Man Who Faked His Death and Fled to Scotland Is Convicted of Rape**\
+`Nicholas Rossi lived for years as a fugitive before being extradited. A jury in Utah found him guilty of a 2008 sexual assault.`\
+https://nytimes.com/2025/08/14/us/nicholas-rossi-rape-trial-utah.html
+
+**Roma working on loan deal for Man Utd's Sancho**\
+`Sancho has been training away from the United first team after returning from a loan spell at Chelsea.`\
+https://nytimes.com/athletic/6403283/2025/08/14/jadon-sancho-roma-transfer-man-utd/
+
+**USMNT's Robinson will return 'soon' but missing Fulham opener - Silva**\
+`The 28-year-old underwent surgery on his right knee following the conclusion of 2024-25 and has not yet recovered match fitness.`\
+https://nytimes.com/athletic/6548235/2025/08/14/antonee-robinson-injury-fulham-usmnt/
+
 **Wissa unavailable for opener at Forest due to disrupted summer**\
 `Andrews said he would like Wissa to be part of the squad but added it is "very hard to know" what will happen in relation to his future.`\
 https://nytimes.com/athletic/6553312/2025/08/14/keith-andrews-yoane-wissa-unavailable-brentford/
