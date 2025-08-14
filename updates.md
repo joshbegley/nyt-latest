@@ -1,3 +1,11 @@
+**Liverpool 2025-26 Premier League season preview: Can they dominate again?**\
+`Liverpool dominated the Premier League last season... can they do it again?`\
+https://nytimes.com/athletic/6550662/2025/08/14/liverpool-season-preview/
+
+**FPL mailbag: Premium defenders no longer vital, Palmer over Saka, and dark horse Anderson**\
+`With the new Premier League season getting underway tomorrow, here are some final tips to get your FPL team in top order`\
+https://nytimes.com/athletic/6551078/2025/08/14/fantasy-premier-league-palmer-saka-van-dijk-salah/
+
 **Despite his scoreless streak’s end at 28 1/3 innings, Cade Horton dominates again in win**\
 `The rookie allowed just one hit and one run in the Chicago Cubs' 4-1 victory over the Toronto Blue Jays.`\
 https://nytimes.com/athletic/6552655/2025/08/14/cubs-win-cade-horton-scoreless-streak-ends/
