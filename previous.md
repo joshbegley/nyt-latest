@@ -1,3 +1,7 @@
+**As criticism swirls, Ravens are resolute in their belief in guard Daniel Faalele**\
+`Baltimore's players and coaches know what they have in the fourth-year O-lineman who didn't start playing football until he was 16.`\
+https://nytimes.com/athletic/6552081/2025/08/14/daniel-faalele-ravens-offensive-line/
+
 **Zelensky Meets Starmer Before U.S.-Russia Meeting**\
 `In a show of unity, President Volodymyr Zelensky of Ukraine hugged Prime Minister Keir Starmer of Britain a day before President Trump was to meet President Vladimir V. Putin of Russia in Alaska.`\
 https://nytimes.com/video/world/europe/100000010340197/zelensky-meets-starmer-before-us-russia-meeting.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6547791/2025/08/14/nba-draft-2024-stephon-castle-za
 **College football's most unsinkable program: Why Ohio State just keeps winning**\
 `Ryan Day, Urban Meyer, Jim Tressel and more detail the factors that have kept Ohio State around the top of college football for decades.`\
 https://nytimes.com/athletic/6551237/2025/08/14/ohio-state-football-championships-day-meyer-tressel-hayes/
-
-**Before the NHL, the Little League World Series once was the spotlight for Canada greats**\
-`A ragtag, small-town Quebec team made it to the Little League World Series in 1982. Some of those players grew up to be pro hockey stars.`\
-https://nytimes.com/athletic/6537359/2025/08/14/little-league-world-series-pierre-turgeon-stephane-matteau/
 

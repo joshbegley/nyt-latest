@@ -1,3 +1,7 @@
+**As criticism swirls, Ravens are resolute in their belief in guard Daniel Faalele**\
+`Baltimore's players and coaches know what they have in the fourth-year O-lineman who didn't start playing football until he was 16.`\
+https://nytimes.com/athletic/6552081/2025/08/14/daniel-faalele-ravens-offensive-line/
+
 **Zelensky Meets Starmer Before U.S.-Russia Meeting**\
 `In a show of unity, President Volodymyr Zelensky of Ukraine hugged Prime Minister Keir Starmer of Britain a day before President Trump was to meet President Vladimir V. Putin of Russia in Alaska.`\
 https://nytimes.com/video/world/europe/100000010340197/zelensky-meets-starmer-before-us-russia-meeting.html
