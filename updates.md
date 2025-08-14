@@ -1,3 +1,11 @@
+**Hiker Topples Cairns Along Historic English Hiking Trail**\
+`Stuart Cox, a British hiker, is on a mission to raise awareness about the damage that stone stacks, known as cairns, cause on the Mam Tor hiking trail in England’s Peak District.`\
+https://nytimes.com/video/world/europe/100000010340505/hiking-peak-district-stone-stacks.html
+
+**MLB negotiating possible broadcast packages with Netflix, ESPN, NBC, Apple: Sources**\
+`Netflix has emerged as the potential Home Run Derby destination, while ESPN could add weekday games.`\
+https://nytimes.com/athletic/6553812/2025/08/14/mlb-negotiating-with-apple-netflix-espn-nbc-sources/
+
 **Fact-Checking Trump on Epstein**\
 `For the most part, President Trump has ignored questions about Jeffrey Epstein, a registered sex offender who paid teenage girls for sex.`\
 https://nytimes.com/video/us/politics/100000010336922/fact-checking-trump-on-epstein.html

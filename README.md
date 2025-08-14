@@ -1,3 +1,11 @@
+**‘Checkpoint Zoo’ Review: Operation Animal Rescue**\
+`This documentary retraces the heart-rending evacuation of animals from an outdoor zoo near the front lines of the Russia-Ukraine War.`\
+https://nytimes.com/2025/08/14/movies/checkpoint-zoo-review.html
+
+**8 New Books We Love This Week**\
+`Reading recommendations from critics and editors at The New York Times.`\
+https://nytimes.com/2025/08/14/books/review/new-book-recommendations.html
+
 **Hiker Topples Cairns Along Historic English Hiking Trail**\
 `Stuart Cox, a British hiker, is on a mission to raise awareness about the damage that stone stacks, known as cairns, cause on the Mam Tor hiking trail in England’s Peak District.`\
 https://nytimes.com/video/world/europe/100000010340505/hiking-peak-district-stone-stacks.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6553887/2025/08/14/nfl-coach-hot-seat-2025-scoop-ci
 **Troops in Washington Remain Largely Unseen So Far**\
 `Federal agents are assisting the local police, but a surge in National Guard troops hasn’t hit the streets.`\
 https://nytimes.com/2025/08/14/us/troops-washington-trump.html
-
-**What can Browns do for your 2025 fantasy football team? Could Shedeur Sanders be in play?**\
-`Gary Davenport is a Cleveland Browns fan, and he tries hard to find some value in the team's roster for fantasy football 2025.`\
-https://nytimes.com/athletic/6552560/2025/08/14/fantasy-football-cleveland-browns-shedeur-sanders/
-
-**Pediatricians’ Plea: Don’t Separate Migrant Families**\
-`Pediatricians call for keeping migrant families intact. Also: Nuclear pessimism; a view from Canada; “cleaning up” D.C.; food stamps; books, read and unread.`\
-https://nytimes.com/2025/08/14/opinion/pediatricians-migrant-families-separation.html
 
