@@ -1,3 +1,11 @@
+**Liverpool parade suspect facing additional charges, has plea hearing delayed**\
+`Paul Doyle, 53, appeared via video link at Liverpool Crown Court on Thursday.`\
+https://nytimes.com/athletic/6552926/2025/08/14/liverpool-parade-court-case-paul-doyle/
+
+**TAFC: How players force a transfer, Pulisic and Weah hit back at 'evil' ex-USMNT stars**\
+`Today in TAFC: The darks arts behind forcing a move, Pulisic and Weah take spat with ex-stars up a level, Rooney hits back at Brady.`\
+https://nytimes.com/athletic/6552718/2025/08/14/pulisic-weah-evil-usmnt-podcast/
+
 **As criticism swirls, Ravens are resolute in their belief in guard Daniel Faalele**\
 `Baltimore's players and coaches know what they have in the fourth-year O-lineman who didn't start playing football until he was 16.`\
 https://nytimes.com/athletic/6552081/2025/08/14/daniel-faalele-ravens-offensive-line/

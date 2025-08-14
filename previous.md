@@ -1,3 +1,11 @@
+**Liverpool parade suspect facing additional charges, has plea hearing delayed**\
+`Paul Doyle, 53, appeared via video link at Liverpool Crown Court on Thursday.`\
+https://nytimes.com/athletic/6552926/2025/08/14/liverpool-parade-court-case-paul-doyle/
+
+**TAFC: How players force a transfer, Pulisic and Weah hit back at 'evil' ex-USMNT stars**\
+`Today in TAFC: The darks arts behind forcing a move, Pulisic and Weah take spat with ex-stars up a level, Rooney hits back at Brady.`\
+https://nytimes.com/athletic/6552718/2025/08/14/pulisic-weah-evil-usmnt-podcast/
+
 **As criticism swirls, Ravens are resolute in their belief in guard Daniel Faalele**\
 `Baltimore's players and coaches know what they have in the fourth-year O-lineman who didn't start playing football until he was 16.`\
 https://nytimes.com/athletic/6552081/2025/08/14/daniel-faalele-ravens-offensive-line/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6551748/2025/08/14/bills-training-camp-roster-decis
 **The epicenter of stalking in sports? Why tennis stands apart**\
 `Stalking experts say that tennis has particular conditions and characteristics that make its players targets, regardless of the era.`\
 https://nytimes.com/athletic/6456273/2025/08/14/tennis-stalking-cases-players-history/
-
-**2024 NBA re-draft: Who would go No. 1 if we did last year's draft again?**\
-`Were there any future All-Stars in the 2024 draft class? Whose stock has risen and dropped the most after their rookie years. `\
-https://nytimes.com/athletic/6547791/2025/08/14/nba-draft-2024-stephon-castle-zaccharie-risacher/
-
-**College football's most unsinkable program: Why Ohio State just keeps winning**\
-`Ryan Day, Urban Meyer, Jim Tressel and more detail the factors that have kept Ohio State around the top of college football for decades.`\
-https://nytimes.com/athletic/6551237/2025/08/14/ohio-state-football-championships-day-meyer-tressel-hayes/
 
