@@ -1,3 +1,7 @@
+**Bill Belichick won’t headline North Carolina’s weekly coach's radio show**\
+`General manager Michael Lombardi will headline the show, now called “Carolina Football Live," each week. `\
+https://nytimes.com/athletic/6554682/2025/08/14/bill-belichik-north-carolina-coach-radio/
+
 **D.C. Homeless Camps Are Cleared Ahead of Federal Raids**\
 `City officials and advocates spent much of the day trying to clear homeless camps in the city, urging people to go to shelters ahead of expected federal raids.`\
 https://nytimes.com/2025/08/14/us/politics/dc-homeless-camps-trump.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6554609/2025/08/14/isaiah-bond-cleared-charges-brow
 **Red flags abound for Patriots defense after struggles in Minnesota**\
 `The Patriots are going to have to rely on their defense to keep them in games this season. The unit did not look good Thursday in Minnesota.`\
 https://nytimes.com/athletic/6554464/2025/08/14/patriots-defense-mike-vrabel-struggles-vikings/
-
-**Fred Warner and injury-depleted 49ers keep heads cool against Raiders in desert practice**\
-`Also, rookie tackle Connor Colby impressed while QB Brock Purdy was sharper than he was in last week’s joint practice against the Broncos.`\
-https://nytimes.com/athletic/6554515/2025/08/14/fred-warner-49ers-raiders-joint-practices/
 
