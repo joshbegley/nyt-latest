@@ -1,3 +1,7 @@
+**Zelensky Meets Starmer Before U.S.-Russia Meeting**\
+`In a show of unity, President Volodymyr Zelensky of Ukraine hugged Prime Minister Keir Starmer of Britain a day before President Trump was to meet President Vladimir V. Putin of Russia in Alaska.`\
+https://nytimes.com/video/world/europe/100000010340197/zelensky-meets-starmer-before-us-russia-meeting.html
+
 **Commanders 53-man roster projection: Which receivers will make the cut?**\
 `Washington's focus this summer is on depth and finding bottom-of-the-roster guys, who often end up having large roles down the stretch`\
 https://nytimes.com/athletic/6551700/2025/08/14/commanders-53-man-roster-projection-sam-hartman/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6551237/2025/08/14/ohio-state-football-championship
 **Before the NHL, the Little League World Series once was the spotlight for Canada greats**\
 `A ragtag, small-town Quebec team made it to the Little League World Series in 1982. Some of those players grew up to be pro hockey stars.`\
 https://nytimes.com/athletic/6537359/2025/08/14/little-league-world-series-pierre-turgeon-stephane-matteau/
-
-**CFB Coaching Tiers 2025: Marcus Freeman rising, Brent Venables teetering**\
-`What makes a good college football coach? We weighed everything from resume to resources to longevity and more to sort out these Tiers.`\
-https://nytimes.com/athletic/6527033/2025/08/14/college-football-coach-tiers-rankings/
 

@@ -1,3 +1,7 @@
+**Zelensky Meets Starmer Before U.S.-Russia Meeting**\
+`In a show of unity, President Volodymyr Zelensky of Ukraine hugged Prime Minister Keir Starmer of Britain a day before President Trump was to meet President Vladimir V. Putin of Russia in Alaska.`\
+https://nytimes.com/video/world/europe/100000010340197/zelensky-meets-starmer-before-us-russia-meeting.html
+
 **Commanders 53-man roster projection: Which receivers will make the cut?**\
 `Washington's focus this summer is on depth and finding bottom-of-the-roster guys, who often end up having large roles down the stretch`\
 https://nytimes.com/athletic/6551700/2025/08/14/commanders-53-man-roster-projection-sam-hartman/
