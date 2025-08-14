@@ -1,3 +1,15 @@
+**Supreme Court Allows Mississippi Law on Children’s Use of Social Media, for Now**\
+`A trade group representing sites like Facebook and X said the law ran afoul of the First Amendment.`\
+https://nytimes.com/2025/08/14/us/politics/supreme-court-mississippi-social-media.html
+
+**Bobby Whitlock, Keyboardist for Derek and the Dominos, Dies at 77**\
+`With Eric Clapton, he wrote “Bell Bottom Blues” and built one of the greatest — if most short-lived — supergroups of the 1970s.`\
+https://nytimes.com/2025/08/14/arts/music/bobby-whitlock-dead.html
+
+**How Accessible Is Traveling by Amtrak?**\
+`Many people with disabilities depend on Amtrak to travel across the country, but the journey can still present obstacles. Gabe Castro-Root outlines some of the challenges disabled passengers encounter while traveling.`\
+https://nytimes.com/video/travel/100000010331128/how-accessible-is-traveling-by-amtrak.html
+
 **Forest in process of agreeing fee with Ipswich for Hutchinson**\
 `Forest saw an opening bid worth £35m rejected but personal terms with the player are not an issue.`\
 https://nytimes.com/athletic/6539148/2025/08/14/omari-hutchinson-nottingham-forest-transfer-ipswich/
