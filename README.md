@@ -1,3 +1,7 @@
+**Why the Pohlads stunned potential buyers and kept control of the Twins: ‘We’re the right people’**\
+`The announcement that the Twins owners are keeping the team sent shock waves through the organization, fan base, and beyond.`\
+https://nytimes.com/athletic/6552618/2025/08/13/minnesota-twins-sale-process-pohlad/
+
 **Law Firms That Settled With Trump Are Pressed to Help on Trade Deals**\
 `Boris Epshteyn, a personal lawyer for President Trump, connected two firms — Kirkland & Ellis and Skadden Arps — to the Commerce Department.`\
 https://nytimes.com/2025/08/13/us/politics/trump-law-firms-trade-deals.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6552267/2025/08/13/taylor-swift-new-heights-travis-
 **George C. White, Founder of Eugene O’Neill Theater Center, Dies at 89**\
 `His summer conferences gave budding playwrights a chance to try out new works, many of which went on to success in New York.`\
 https://nytimes.com/2025/08/13/theater/george-c-white-dead.html
-
-**D.C. Federal Deployment Ramps Up as Trump Threatens to Extend Takeover**\
-`The Army expects up to 200 soldiers out on the capital’s streets within the next few days at any given time in support of federal law enforcement.`\
-https://nytimes.com/2025/08/13/us/politics/national-guard-dc-trump-takeover.html
 
