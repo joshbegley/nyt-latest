@@ -1,3 +1,7 @@
+**Wissa unavailable for opener at Forest due to disrupted summer**\
+`Andrews said he would like Wissa to be part of the squad but added it is "very hard to know" what will happen in relation to his future.`\
+https://nytimes.com/athletic/6553312/2025/08/14/keith-andrews-yoane-wissa-unavailable-brentford/
+
 **Tourist ‘Is in Trouble’ After Stones Taken From Pompeii, Police Say**\
 `A Scottish man is under investigation for aggravated theft, police officials said, after visiting the ancient Italian site.`\
 https://nytimes.com/2025/08/14/world/europe/pompeii-italy-tourist.html
