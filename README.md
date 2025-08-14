@@ -1,3 +1,15 @@
+**NASCAR considering moving All-Star Race to Dover: Sources**\
+`Dover hosting the All-Star Race would clear a spot for North Wilkesboro Speedway to land a Cup points race, which it hasn't done since 1996.`\
+https://nytimes.com/athletic/6554454/2025/08/14/nascar-considering-moving-all-star-race-to-dover-sources/
+
+**Russia and Ukraine Agree: A Trump Summit Is a Big Win for Putin**\
+`The talks on Friday in Alaska pull the Russian leader out of diplomatic isolation from the West, and Ukrainian and European leaders fear it gives him an opening to sway the American president.`\
+https://nytimes.com/2025/08/14/world/europe/trump-putin-alaska-summit.html
+
+**Woman Claims Marine Laced Her Drink With Abortion Pills**\
+`A Texas woman said in a lawsuit that a U.S. Marine got her pregnant and then, after she chose to keep the pregnancy, dissolved abortion pills in her hot chocolate.`\
+https://nytimes.com/2025/08/14/us/marine-abortion-pills-lawsuit-texas.html
+
 **Attracting The Right People With The Right Benefits**\
 `Dental and vision care can be critical to our personal health. They’re also critical to a company’s recruitment and benefits strategy. `\
 https://nytimes.com/paidpost/humana/attracting-the-right-people-with-the-right-benefits.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/08/14/us/newsom-la-immigration-agents.html
 **Panthers-Texans joint practice: Bryce Young and C.J. Stroud stay connected**\
 `Panthers safety Tre'von Moehrig brought the heat on Thursday. Houston players didn’t like it, but Moehrig didn’t particularly care.`\
 https://nytimes.com/athletic/6554278/2025/08/14/panthers-texans-bryce-young-c-j-stroud/
-
-**Adams Pushes to Force Drug Users Off New York City’s Streets**\
-`As he runs a long-shot third-party bid for re-election, Mayor Eric Adams is proposing an aggressive approach, favored by conservatives, of combating open drug use.`\
-https://nytimes.com/2025/08/14/nyregion/adams-involuntary-drugs-treatment.html
-
-**A 500-Year-Old Receipt for Supplies to Conquer an Empire Is Returned to Mexico**\
-`The document describes payments made for expedition supplies, and was signed by Hernán Cortés, who conquered the Aztecs.`\
-https://nytimes.com/2025/08/14/us/fbi-mexico-conquistador-cortes-document.html
-
-**Margaret Boden, Philosopher of Artificial Intelligence, Dies at 88**\
-`A cognitive scientist, she used the language of computers to explore the nature of human thought and creativity, offering prescient insights about A.I.`\
-https://nytimes.com/2025/08/14/science/margaret-boden-dead.html
 
