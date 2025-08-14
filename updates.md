@@ -1,3 +1,7 @@
+**How Does Taylor Swift Deal With Internet Noise?**\
+`She doesn’t.`\
+https://nytimes.com/2025/08/14/style/taylor-swift-social-media-travis-kelce.html
+
 **Dodgers blow another game, slip out of first place: ‘Obviously, it doesn’t feel good’**\
 `Just 41 days ago, the Dodgers held a nine-game advantage and full control of the NL West. Now they're looking up at the Padres.`\
 https://nytimes.com/athletic/6552727/2025/08/14/los-angeles-dodgers-nl-west-race/

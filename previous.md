@@ -1,3 +1,7 @@
+**How Does Taylor Swift Deal With Internet Noise?**\
+`She doesn’t.`\
+https://nytimes.com/2025/08/14/style/taylor-swift-social-media-travis-kelce.html
+
 **Dodgers blow another game, slip out of first place: ‘Obviously, it doesn’t feel good’**\
 `Just 41 days ago, the Dodgers held a nine-game advantage and full control of the NL West. Now they're looking up at the Padres.`\
 https://nytimes.com/athletic/6552727/2025/08/14/los-angeles-dodgers-nl-west-race/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6546619/2025/08/14/manchester-united-season-preview
 **Map: Minor Earthquake Strikes the San Francisco Bay Area**\
 `View the location of the quake’s epicenter and shake area.`\
 https://nytimes.com/interactive/2025/08/14/us/earthquake-san-francisco-bay-area-tracker.html
-
-**What will the Timberwolves' roster look like this season? Expect continuity**\
-`Minnesota has mostly tinkered around the edges after making back-to-back Western Conference finals.`\
-https://nytimes.com/athletic/6536869/2025/08/14/timberwolves-roster-preview-mike-conley-anthony-edwards/
 
