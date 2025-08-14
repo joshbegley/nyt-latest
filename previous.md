@@ -1,3 +1,11 @@
+**With Arson and Land Grabs, Israeli Settler Attacks in West Bank Hit Record High**\
+`Extremists are carrying out one of the most violent campaigns against Palestinian villages since the U.N. began keeping records.`\
+https://nytimes.com/2025/08/14/world/middleeast/west-bank-israel-settler-attacks.html
+
+**Man Utd's Collyer in advanced talks over West Brom loan**\
+`A host of Championship clubs have registered an interest in Collyer, who played 19 times for United last season.`\
+https://nytimes.com/athletic/6520325/2025/08/14/man-utd-news-collyer-west-brom/
+
 **The New York Times International Edition in Print for Friday, Aug. 15, 2025**\
 ``\
 https://nytimes.com/issue/todaysinyt/2025/08/14/todays-new-york-times-international-edition
@@ -29,12 +37,4 @@ https://nytimes.com/2025/08/14/upshot/washington-dc-home-rule.html
 **Why a ‘Paleo-Confederate’ Pastor Is on the Rise**\
 `Trump isn’t just shaping the nation; he’s also changing the evangelical church.`\
 https://nytimes.com/2025/08/14/opinion/douglas-wilson-evangelical-hegseth.html
-
-**Alaska’s Ukrainian Refugees Brace for Putin’s Arrival in Their Safe Harbor**\
-`Ukraine’s president, Volodymyr Zelensky, was not invited to the Trump-Putin summit in Anchorage, but 1,000 Ukrainian refugees in Alaska will be watching with trepidation.`\
-https://nytimes.com/2025/08/14/us/politics/putin-trump-alaska.html
-
-**A Maple Syrup Farmer Lands on the Upper East Side for His Next Chapter**\
-`Seeking to reinvent himself as a writer, an ‘empty-nest bachelor’ looked for a co-op in Carnegie Hill for around $500,000.`\
-https://nytimes.com/interactive/2025/08/14/realestate/upper-east-side-carnegie-hill-apartments.html
 

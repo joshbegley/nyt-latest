@@ -1,3 +1,11 @@
+**With Arson and Land Grabs, Israeli Settler Attacks in West Bank Hit Record High**\
+`Extremists are carrying out one of the most violent campaigns against Palestinian villages since the U.N. began keeping records.`\
+https://nytimes.com/2025/08/14/world/middleeast/west-bank-israel-settler-attacks.html
+
+**Man Utd's Collyer in advanced talks over West Brom loan**\
+`A host of Championship clubs have registered an interest in Collyer, who played 19 times for United last season.`\
+https://nytimes.com/athletic/6520325/2025/08/14/man-utd-news-collyer-west-brom/
+
 **The New York Times International Edition in Print for Friday, Aug. 15, 2025**\
 ``\
 https://nytimes.com/issue/todaysinyt/2025/08/14/todays-new-york-times-international-edition
