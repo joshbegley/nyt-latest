@@ -1,3 +1,7 @@
+**Scoop City: Four coaches on the hot seat**\
+`Mike McDaniel and Brian Daboll lead our list of coaches with plenty to prove this season, Stefon Diggs' uncertain Week 1 status`\
+https://nytimes.com/athletic/6553887/2025/08/14/nfl-coach-hot-seat-2025-scoop-city-giants-dolphins/
+
 **Troops in Washington Remain Largely Unseen So Far**\
 `Federal agents are assisting the local police, but a surge in National Guard troops hasn’t hit the streets.`\
 https://nytimes.com/2025/08/14/us/troops-washington-trump.html

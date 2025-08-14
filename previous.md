@@ -1,3 +1,7 @@
+**Scoop City: Four coaches on the hot seat**\
+`Mike McDaniel and Brian Daboll lead our list of coaches with plenty to prove this season, Stefon Diggs' uncertain Week 1 status`\
+https://nytimes.com/athletic/6553887/2025/08/14/nfl-coach-hot-seat-2025-scoop-city-giants-dolphins/
+
 **Troops in Washington Remain Largely Unseen So Far**\
 `Federal agents are assisting the local police, but a surge in National Guard troops hasn’t hit the streets.`\
 https://nytimes.com/2025/08/14/us/troops-washington-trump.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/14/movies/review-night-always-comes.html
 **Pilgrimage Route Hit as Flash Flood Kills Dozens in Kashmir**\
 `Hundreds more were missing, many of them Hindu pilgrims, after a cloudburst triggered flooding in mountainous terrain.`\
 https://nytimes.com/2025/08/14/world/asia/kashmir-flash-flood.html
-
-**Brian Flores' racial discrimination lawsuit against NFL can advance, court rules**\
-`A New York appeals court said the NFL can go on trial to face civil claims that Brian Flores and other Black coaches face discrimination.`\
-https://nytimes.com/athletic/6553759/2025/08/14/nfl-brian-flores-lawsuit-racial-discrimination/
 
