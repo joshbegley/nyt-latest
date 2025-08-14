@@ -1,3 +1,7 @@
+**Why Frank's 'special operation' offered promise even if Tottenham succumbed at the last**\
+`The new Spurs manager needed to devise a game plan after a heavy defeat to Bayern, and his tactical approach almost paid off against PSG`\
+https://nytimes.com/athletic/6552380/2025/08/14/tottenham-frank-psg-supercup-richarlison-kudus/
+
 **A Year After Revolution, Hope Turns to Frustration in Bangladesh**\
 `There are concerns about the slow pace of change in the country, with a promised election still months away, a struggling economy and familiar problems persisting.`\
 https://nytimes.com/2025/08/14/world/asia/bangladesh-revolution-sheikh-hasina.html

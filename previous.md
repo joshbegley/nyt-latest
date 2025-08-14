@@ -1,3 +1,7 @@
+**Why Frank's 'special operation' offered promise even if Tottenham succumbed at the last**\
+`The new Spurs manager needed to devise a game plan after a heavy defeat to Bayern, and his tactical approach almost paid off against PSG`\
+https://nytimes.com/athletic/6552380/2025/08/14/tottenham-frank-psg-supercup-richarlison-kudus/
+
 **A Year After Revolution, Hope Turns to Frustration in Bangladesh**\
 `There are concerns about the slow pace of change in the country, with a promised election still months away, a struggling economy and familiar problems persisting.`\
 https://nytimes.com/2025/08/14/world/asia/bangladesh-revolution-sheikh-hasina.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/14/science/kryptos-sculpture-cia-solution-auction.ht
 **Sudan, Battered by War, Is Hit by Its ‘Worst Cholera Outbreak’ in Years**\
 `International charities warned that, left unchecked, the disease’s spread might exacerbate similar outbreaks across the African region for weeks or months to come.`\
 https://nytimes.com/2025/08/14/world/africa/sudan-cholera-outbreak.html
-
-**Hunter Brown bolstering Cy Young candidacy, learning 'how to separate himself from the rest'**\
-`Brown's four-seam fastball has the second-highest mark in baseball. It is, by most public metrics, one of the best pitches in the game.`\
-https://nytimes.com/athletic/6552673/2025/08/14/astros-red-sox-hunter-brown-bolstering-cy-young-candidacy/
 
