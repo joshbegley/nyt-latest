@@ -1,3 +1,7 @@
+**Manchester City 2025-26 season preview: Live Q&A with Jordan Campbell**\
+`Post your questions and our Manchester City writer will endeavour to answer as many as possible`\
+https://nytimes.com/athletic/6550765/2025/08/14/manchester-city-premier-league-preview-guardiola-haaland/
+
 **Real Madrid's Franco Mastantuono signing: How they won race for €63.2m wonderkid**\
 `Their signing of the Argentina international was a long time in the making, and many other clubs were interested too`\
 https://nytimes.com/athletic/6434533/2025/08/14/franco-mastantuono-real-madrid-inside-the-deal/

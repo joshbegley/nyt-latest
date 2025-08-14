@@ -1,3 +1,7 @@
+**Manchester City 2025-26 season preview: Live Q&A with Jordan Campbell**\
+`Post your questions and our Manchester City writer will endeavour to answer as many as possible`\
+https://nytimes.com/athletic/6550765/2025/08/14/manchester-city-premier-league-preview-guardiola-haaland/
+
 **Real Madrid's Franco Mastantuono signing: How they won race for €63.2m wonderkid**\
 `Their signing of the Argentina international was a long time in the making, and many other clubs were interested too`\
 https://nytimes.com/athletic/6434533/2025/08/14/franco-mastantuono-real-madrid-inside-the-deal/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6552508/2025/08/14/toronto-blue-jays-top-level-pitc
 **How does Michigan's defensive rotation look? Predicting the depth chart for Week 1**\
 `Similar to the offense, the defensive starters appear set. Now, its about filling out the depth for a long and grueling season.`\
 https://nytimes.com/athletic/6551561/2025/08/14/michigan-football-depth-chart-defense-2025/
-
-**Gavin Williams, Tanner Bibee and the winding paths for two could-be top Guardians starters**\
-`For Stephen Vogt's group to chase down a playoff berth, a two-headed monster of Williams and Bibee could lead the charge.`\
-https://nytimes.com/athletic/6548741/2025/08/14/gavin-williams-tanner-bibee-could-be-top-guardians-starters/
 

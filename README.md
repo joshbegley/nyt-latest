@@ -1,3 +1,7 @@
+**Chelsea co-sporting directors Winstanley and Stewart sign new contracts**\
+`Recruitment chiefs Joe Shields and Sam Jewell have also signed fresh terms until 2031.`\
+https://nytimes.com/athletic/6553098/2025/08/14/paul-winstanley-laurence-stewart-chelsea-contracts/
+
 **Manchester City 2025-26 season preview: Live Q&A with Jordan Campbell**\
 `Post your questions and our Manchester City writer will endeavour to answer as many as possible`\
 https://nytimes.com/athletic/6550765/2025/08/14/manchester-city-premier-league-preview-guardiola-haaland/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6552399/2025/08/14/greenberg-ben-johnson-bears-offe
 **How the Blue Jays fare against aces ahead of a week filled with top starters**\
 `Against top starters, past Blue Jays teams were overmatched. This year, so far, they’ve proven they can beat them.`\
 https://nytimes.com/athletic/6552508/2025/08/14/toronto-blue-jays-top-level-pitching-analysis/
-
-**How does Michigan's defensive rotation look? Predicting the depth chart for Week 1**\
-`Similar to the offense, the defensive starters appear set. Now, its about filling out the depth for a long and grueling season.`\
-https://nytimes.com/athletic/6551561/2025/08/14/michigan-football-depth-chart-defense-2025/
 
