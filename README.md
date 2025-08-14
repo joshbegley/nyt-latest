@@ -1,3 +1,7 @@
+**Cubs' Miguel Amaya carted off field with apparent leg injury**\
+`The play occurred during the eighth inning of the Cubs' game against the Toronto Blue Jays.`\
+https://nytimes.com/athletic/6552519/2025/08/13/chicago-cubs-miguel-amaya-injury/
+
 **How to evaluate Chargers despite relative lack of competitive reps? 'We'll be ready'**\
 `The Chargers canceled their joint practice with the Rams scheduled for Wednesday because they are dealing with too many injuries. `\
 https://nytimes.com/athletic/6552416/2025/08/13/chargers-training-camp-evaluation-ready/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/13/us/border-bakery-undocumented-immigrants.html
 **4 Takeaways From Taylor Swift’s Rare Podcast Appearance**\
 `The pop superstar discussed her upcoming album on a podcast co-hosted by her boyfriend, the N.F.L. player Travis Kelce.`\
 https://nytimes.com/2025/08/13/arts/music/taylor-swift-travis-kelce-new-heights-podcast.html
-
-**Republican Ex-Candidate Sentenced to 80 Years in Prison for Shooting Plot**\
-`Solomon Peña, who lost a bid for a seat in the New Mexico Legislature in 2022, was found guilty in March of orchestrating the attacks against state Democrats.`\
-https://nytimes.com/2025/08/13/us/solomon-pena-new-mexico-political-shootings-sentencing.html
 
