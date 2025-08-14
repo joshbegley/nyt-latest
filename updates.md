@@ -1,3 +1,7 @@
+**La Liga, Serie A, Bundesliga odds: Which league is shaping up to have the closest race?**\
+`Barcelona, Bayern, Napoli and PSG are defending league crowns in Europe. Which will be able to retain their titles?`\
+https://nytimes.com/athletic/6551427/2025/08/14/la-liga-serie-a-bundesliga-odds/
+
 **What readers think about Villarreal-Barcelona being played in the U.S.**\
 `Reaction to the proposed move by La Liga has been mixed. We asked for your views`\
 https://nytimes.com/athletic/6551287/2025/08/14/villarreal-barcelona-la-liga-us-survey-results/
