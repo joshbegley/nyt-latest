@@ -1,3 +1,11 @@
+**Blood Oxygen Measurements to Return to Some Apple Watches**\
+`The company said it will issue a software update to restart the technology, which was caught up in a patent dispute.`\
+https://nytimes.com/2025/08/14/technology/apple-watch-masimo-blood-oxygen-levels.html
+
+**Violence on Syrian Coast Likely Amounts to War Crimes, U.N. Says**\
+`An inquiry found that members of the new government’s forces took part in killing Syrian civilians during sectarian fighting in March, but found no evidence that they acted on government orders.`\
+https://nytimes.com/2025/08/14/world/middleeast/syria-violence-war-crimes-un-report.html
+
 **Florida to Open Second Immigrant Detention Center**\
 `The state says it will run the new center from an empty prison that could hold 2,000 federal detainees. This one will be called “Deportation Depot.”`\
 https://nytimes.com/2025/08/14/us/florida-immigrant-detention-center.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6551526/2025/08/14/fantasy-football-2025-wide-recei
 **The Auctioneer and the Treasury Chief: How Billy Long Fell Short at the I.R.S.**\
 `Treasury Secretary Scott Bessent sought total control over the I.R.S., an agency where Mr. Long, the new commissioner, had started to put his own mark on the job.`\
 https://nytimes.com/2025/08/14/us/politics/billy-long-scott-bessent-irs-treasury.html
-
-**Man Who Faked His Death and Fled to Scotland Is Convicted of Rape**\
-`Nicholas Rossi lived for years as a fugitive before being extradited. A jury in Utah found him guilty of a 2008 sexual assault.`\
-https://nytimes.com/2025/08/14/us/nicholas-rossi-rape-trial-utah.html
-
-**Roma working on loan deal for Man Utd's Sancho**\
-`Sancho has been training away from the United first team after returning from a loan spell at Chelsea.`\
-https://nytimes.com/athletic/6403283/2025/08/14/jadon-sancho-roma-transfer-man-utd/
 
