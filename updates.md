@@ -1,3 +1,11 @@
+**Eagles-Browns takeaways: Landon Dickerson's beer run, safeties surge, offensive line tested**\
+`PHILADELPHIA — Few things beat the heat like a couple of cold ones.`\
+https://nytimes.com/athletic/6553762/2025/08/14/eagles-browns-takeaways-landon-dickersons-beer-run-safety-offensive-line/
+
+**Vancouver introduces Thomas Müller: Record sales, goat noises and a will to win**\
+`Müller was his affable, jovial self as he begins to settle into his post-Bayern club career with an MLS Cup contender`\
+https://nytimes.com/athletic/6554115/2025/08/14/thomas-muller-vancouver-whitecaps-mls-introduction-goat-noises/
+
 **Supreme Court Allows Mississippi Law on Children’s Use of Social Media, for Now**\
 `A trade group representing sites like Facebook and X said the law ran afoul of the First Amendment.`\
 https://nytimes.com/2025/08/14/us/politics/supreme-court-mississippi-social-media.html

@@ -1,3 +1,11 @@
+**Eagles-Browns takeaways: Landon Dickerson's beer run, safeties surge, offensive line tested**\
+`PHILADELPHIA — Few things beat the heat like a couple of cold ones.`\
+https://nytimes.com/athletic/6553762/2025/08/14/eagles-browns-takeaways-landon-dickersons-beer-run-safety-offensive-line/
+
+**Vancouver introduces Thomas Müller: Record sales, goat noises and a will to win**\
+`Müller was his affable, jovial self as he begins to settle into his post-Bayern club career with an MLS Cup contender`\
+https://nytimes.com/athletic/6554115/2025/08/14/thomas-muller-vancouver-whitecaps-mls-introduction-goat-noises/
+
 **Supreme Court Allows Mississippi Law on Children’s Use of Social Media, for Now**\
 `A trade group representing sites like Facebook and X said the law ran afoul of the First Amendment.`\
 https://nytimes.com/2025/08/14/us/politics/supreme-court-mississippi-social-media.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/08/14/books/review/new-book-recommendations.html
 **Hiker Topples Cairns Along Historic English Hiking Trail**\
 `Stuart Cox, a British hiker, is on a mission to raise awareness about the damage that stone stacks, known as cairns, cause on the Mam Tor hiking trail in England’s Peak District.`\
 https://nytimes.com/video/world/europe/100000010340505/hiking-peak-district-stone-stacks.html
-
-**Fact-Checking Trump on Epstein**\
-`For the most part, President Trump has ignored questions about Jeffrey Epstein, a registered sex offender who paid teenage girls for sex.`\
-https://nytimes.com/video/us/politics/100000010336922/fact-checking-trump-on-epstein.html
-
-**Fantasy bullpen report featuring a problem in Houston and a timeshare in Detroit**\
-`Greg Jewett looks at the notable fantasy baseball developments across MLB bullpens, including a rare shakeup at closer in Houston.`\
-https://nytimes.com/athletic/6553529/2025/08/14/fantasy-baseball-bullpen-report-relievers-houston-detroit/
 
