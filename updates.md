@@ -1,3 +1,15 @@
+**Enjoy the new Premier League season, there might not be many more like it**\
+`The Premier League is booming but FIFA's pursuit of the club game means its place in football's hierarchy is under threat`\
+https://nytimes.com/athletic/6536142/2025/08/14/premier-league-future/
+
+**How have Premier League teams spent this summer? Upgrading their attacks**\
+`Mark Carey and Thom Harris analyse the concerted effort to evolve offensive quality in England's top flight `\
+https://nytimes.com/athletic/6548195/2025/08/14/premier-league-tactics-upgraded-attacks/
+
+**How Chelsea play: Building from the goalkeeper, a box-shaped midfield and lots of short corners**\
+`The Athletic looks at the tactical setup of Enzo Maresca's side ahead of the 2025-26 season`\
+https://nytimes.com/athletic/6550962/2025/08/14/how-chelsea-play-building-from-goalkeeper-box-shaped-midfield-short-corners/
+
 **Dubai Basketball and its meteoric rise to EuroLeague: 'This is a story from a movie'**\
 `Starting September, Dubai Basketball will compete for the first time in EuroLeague, considered the world's second-best basketball league.`\
 https://nytimes.com/athletic/6524583/2025/08/14/dubai-basketball-euroleague/
