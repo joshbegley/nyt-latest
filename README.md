@@ -1,3 +1,7 @@
+**H.H.S. Resurrects Vaccine Safety Panel Disbanded Decades Ago**\
+`Anti-vaccine groups had sought the revival of the task force.`\
+https://nytimes.com/2025/08/14/health/kennedy-vaccine-safety-task-force.html
+
 **Dale Webster, Who Surfed Every Day for 40 Years, Dies at 76**\
 `He braved frigid waters and sharks and surfed even when he had a kidney stone while breaking the record for the most consecutive days surfed.`\
 https://nytimes.com/2025/08/14/us/dale-webster-surfer-dead-california.html
@@ -6,7 +10,7 @@ https://nytimes.com/2025/08/14/us/dale-webster-surfer-dead-california.html
 `More than a dozen Border Patrol agents turned up in downtown Los Angeles on Thursday outside a museum where Gov. Gavin Newsom of California was holding a rally.`\
 https://nytimes.com/video/us/politics/100000010342016/immigration-agents-newsom-rally.html
 
-**Lions joint practice takeaways: Dolphins respond but Detroit settles in on Day 2**\
+**Lions joint practice takeaways: Dolphins respond, but Detroit settles in on Day 2**\
 `While the Lions dominated Day 1, Miami responded on Day 2 of the teams' joint practices.`\
 https://nytimes.com/athletic/6554377/2025/08/14/lions-dolphins-joint-practice-day-2/
 
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/14/us/minnesota-assassination-charges.html
 **Gregory C. O’Connell, Developer Who Revived Red Hook, Dies at 83**\
 `A former N.Y.P.D. detective, he rejuvenated properties on the Brooklyn waterfront and restored a historic village in upstate New York.`\
 https://nytimes.com/2025/08/14/nyregion/gregory-c-oconnell-dead.html
-
-**Adams, Embracing Veto Power, Says No to Raises for Instacart Workers**\
-`The City Council is likely to override most of Mayor Eric Adams’s recent vetoes. Still, the mayor seems eager for a fight over bills affecting grocery delivery workers and street vendors.`\
-https://nytimes.com/2025/08/14/nyregion/eric-adams-veto-instacart.html
 
