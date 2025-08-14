@@ -1,3 +1,7 @@
+**Bill Belichick won’t headline North Carolina’s weekly coach's radio show**\
+`General manager Michael Lombardi will headline the show, now called “Carolina Football Live," each week. `\
+https://nytimes.com/athletic/6554682/2025/08/14/bill-belichik-north-carolina-coach-radio/
+
 **D.C. Homeless Camps Are Cleared Ahead of Federal Raids**\
 `City officials and advocates spent much of the day trying to clear homeless camps in the city, urging people to go to shelters ahead of expected federal raids.`\
 https://nytimes.com/2025/08/14/us/politics/dc-homeless-camps-trump.html

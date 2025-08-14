@@ -1,9 +1,17 @@
+**Lesser Prairie Chicken Loses Endangered Species Act Protections**\
+`A federal judge in Texas granted a request by the Trump administration, which said a Biden-era decision to safeguard the bird was flawed.`\
+https://nytimes.com/2025/08/14/climate/lesser-prairie-chicken-endangered-species.html
+
+**Anthony Edwards has helped turn the Minnesota Timberwolves into must-see TV**\
+`The Wolves are set to be featured on national TV 28 times in the upcoming season, further highlighting Edwards' impact on the franchise.`\
+https://nytimes.com/athletic/6554235/2025/08/14/minnesota-timberwolves-2025-schedule-release-anthony-edwards/
+
 **Bill Belichick won’t headline North Carolina’s weekly coach's radio show**\
 `General manager Michael Lombardi will headline the show, now called “Carolina Football Live," each week. `\
-https://nytimes.com/athletic/6554682/2025/08/14/bill-belichik-north-carolina-coach-radio/
+https://nytimes.com/athletic/6554682/2025/08/14/bill-belichick-north-carolina-coach-radio/
 
 **D.C. Homeless Camps Are Cleared Ahead of Federal Raids**\
-`City officials and advocates spent much of the day trying to clear homeless camps in the city, urging people to go to shelters ahead of expected federal raids.`\
+`City officials and advocates spent much of the day trying to clear the city’s dozens of homeless camps, urging people to go to shelters ahead of expected federal raids.`\
 https://nytimes.com/2025/08/14/us/politics/dc-homeless-camps-trump.html
 
 **Vikings-Patriots joint practice: J.J. McCarthy's best practice of training camp and more**\
@@ -29,12 +37,4 @@ https://nytimes.com/video/us/politics/100000010341817/national-guard-troops-mobi
 **What Hurricane Models Can (and Can’t) Tell Us About Erin**\
 `The storm’s likely path is coming into focus, but a lot can still change. Here’s what the forecasters look at.`\
 https://nytimes.com/2025/08/14/weather/hurricane-erin-spaghetti-models.html
-
-**Former Texas WR Isaiah Bond will not face charges, announces he's joining Browns**\
-`A grand jury voted not to bring sexual assault charges against Bond, who says he will join the Cleveland Browns.`\
-https://nytimes.com/athletic/6554609/2025/08/14/isaiah-bond-cleared-charges-browns/
-
-**Red flags abound for Patriots defense after struggles in Minnesota**\
-`The Patriots are going to have to rely on their defense to keep them in games this season. The unit did not look good Thursday in Minnesota.`\
-https://nytimes.com/athletic/6554464/2025/08/14/patriots-defense-mike-vrabel-struggles-vikings/
 
