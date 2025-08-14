@@ -1,3 +1,11 @@
+**Trump Mobilizes 800 National Guard Troops to Washington**\
+`President Trump deployed the troops as part of his attempt to fight crime that he has claimed is “out of control,” although official data shows that crime in the nation’s capital has been sharply falling in the last two years.`\
+https://nytimes.com/video/us/politics/100000010341817/national-guard-troops-mobilize-washington.html
+
+**Former Texas WR Isaiah Bond will not face charges, announces he's joining Browns**\
+`A grand jury cleared Bond of the sexual assault accusations levied against him just weeks before the 2025 NFL Draft. `\
+https://nytimes.com/athletic/6554609/2025/08/14/isaiah-bond-cleared-charges-browns/
+
 **What Hurricane Models Can (and Can’t) Tell Us About Erin**\
 `The storm’s likely path is coming into focus, but a lot can still change. Here’s what the forecasters look at.`\
 https://nytimes.com/2025/08/14/weather/hurricane-erin-spaghetti-models.html

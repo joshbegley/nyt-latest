@@ -1,8 +1,12 @@
+**Trump Mobilizes 800 National Guard Troops to Washington**\
+`President Trump deployed the troops as part of his attempt to fight crime that he has claimed is “out of control,” although official data shows that crime in the nation’s capital has been sharply falling in the last two years.`\
+https://nytimes.com/video/us/politics/100000010341817/national-guard-troops-mobilize-washington.html
+
 **What Hurricane Models Can (and Can’t) Tell Us About Erin**\
 `The storm’s likely path is coming into focus, but a lot can still change. Here’s what the forecasters look at.`\
 https://nytimes.com/2025/08/14/weather/hurricane-erin-spaghetti-models.html
 
-**Former Texas WR Isaiah Bond cleared of charges, announces he's joining Browns**\
+**Former Texas WR Isaiah Bond will not face charges, announces he's joining Browns**\
 `A grand jury cleared Bond of the sexual assault accusations levied against him just weeks before the 2025 NFL Draft. `\
 https://nytimes.com/athletic/6554609/2025/08/14/isaiah-bond-cleared-charges-browns/
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6554377/2025/08/14/lions-dolphins-joint-practice-da
 **The good and bad for the Raiders in joint practice against the 49ers**\
 `Maxx Crosby looked like his old self, while the O-line looked good and the secondary struggled on Thursday.`\
 https://nytimes.com/athletic/6554327/2025/08/14/raiders-49ers-joint-practice-report/
-
-**Broncos' Bo Nix-Courtland Sutton connection hits high gear in practice vs. Cardinals**\
-`Sutton's three catches during a two-minute drill highlighted the growing connection between the second-year QB and his top target.`\
-https://nytimes.com/athletic/6554342/2025/08/14/broncos-bo-nix-courtland-sutton-cardinals/
 
