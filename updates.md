@@ -1,3 +1,7 @@
+**Mets blow 6-run lead in latest ugly loss to Braves**\
+`After a 12th defeat in 14 games, the Mets' lead on a playoff spot is down to a single game over the Cincinnati Reds.`\
+https://nytimes.com/athletic/6552684/2025/08/14/mets-lose-braves-blow-six-run-lead/
+
 **The New York Times in Print for Thursday, Aug. 14, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/08/14/todays-new-york-times
