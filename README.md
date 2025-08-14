@@ -1,3 +1,15 @@
+**Enjoy the new Premier League season, there might not be many more like it**\
+`The Premier League is booming but FIFA's pursuit of the club game means its place in football's hierarchy is under threat`\
+https://nytimes.com/athletic/6536142/2025/08/14/premier-league-future/
+
+**How have Premier League teams spent this summer? Upgrading their attacks**\
+`Mark Carey and Thom Harris analyse the concerted effort to evolve offensive quality in England's top flight `\
+https://nytimes.com/athletic/6548195/2025/08/14/premier-league-tactics-upgraded-attacks/
+
+**How Chelsea play: Building from the goalkeeper, a box-shaped midfield and lots of short corners**\
+`The Athletic looks at the tactical setup of Enzo Maresca's side ahead of the 2025-26 season`\
+https://nytimes.com/athletic/6550962/2025/08/14/how-chelsea-play-building-from-goalkeeper-box-shaped-midfield-short-corners/
+
 **Dubai Basketball and its meteoric rise to EuroLeague: 'This is a story from a movie'**\
 `Starting September, Dubai Basketball will compete for the first time in EuroLeague, considered the world's second-best basketball league.`\
 https://nytimes.com/athletic/6524583/2025/08/14/dubai-basketball-euroleague/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/08/13/pageoneplus/quote-of-the-day-a-riot-an-assault-tr
 **Cubs to call up outfield prospect Owen Caissie ahead of series finale: Source**\
 `The 23-year-old Caissie has been tearing up Triple A this season, slugging 22 homers and posting a strong 145 wRC+.`\
 https://nytimes.com/athletic/6552615/2025/08/13/chicago-cubs-owen-caissie-promotion/
-
-**Why the Pohlads stunned potential buyers and kept control of the Twins: ‘We’re the right people’**\
-`The announcement that the Twins owners are keeping the team sent shock waves through the organization, fan base, and beyond.`\
-https://nytimes.com/athletic/6552618/2025/08/13/minnesota-twins-sale-process-pohlad/
-
-**Law Firms That Settled With Trump Are Pressed to Help on Trade Deals**\
-`Boris Epshteyn, a personal lawyer for President Trump, connected two firms — Kirkland & Ellis and Skadden Arps — to the Commerce Department.`\
-https://nytimes.com/2025/08/13/us/politics/trump-law-firms-trade-deals.html
-
-**Rookie Drake Baldwin has exceeded expectations in otherwise dismal Braves season**\
-`With just over six weeks left in the season, Baldwin is favored to win the National League Rookie of the Year Award.`\
-https://nytimes.com/athletic/6552506/2025/08/13/braves-rookie-drake-baldwin-exceeded-expectations/
 
