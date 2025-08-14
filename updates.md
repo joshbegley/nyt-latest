@@ -1,3 +1,11 @@
+**H.H.S. Resurrects Vaccine Safety Panel Disbanded Decades Ago**\
+`Anti-vaccine groups had sought the revival of the task force.`\
+https://nytimes.com/2025/08/14/health/kennedy-vaccine-safety-task-force.html
+
+**Lions joint practice takeaways: Dolphins respond, but Detroit settles in on Day 2**\
+`While the Lions dominated Day 1, Miami responded on Day 2 of the teams' joint practices.`\
+https://nytimes.com/athletic/6554377/2025/08/14/lions-dolphins-joint-practice-day-2/
+
 **Dale Webster, Who Surfed Every Day for 40 Years, Dies at 76**\
 `He braved frigid waters and sharks and surfed even when he had a kidney stone while breaking the record for the most consecutive days surfed.`\
 https://nytimes.com/2025/08/14/us/dale-webster-surfer-dead-california.html
