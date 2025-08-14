@@ -1,3 +1,7 @@
+**Vikings-Patriots joint practice: J.J. McCarthy's poise, quick decisions stand out**\
+`McCarthy faced pressure and delivered flashes, giving the Vikings a glimpse of what’s ahead.`\
+https://nytimes.com/athletic/6552179/2025/08/13/vikings-vs-patriots-joint-practice/
+
 **If You Hate ‘And Just Like That…’ What Does That Say About You?**\
 `Wesley Morris and Taffy Brodesser-Akner say farewell to the “Sex and the City” reboot.`\
 https://nytimes.com/video/podcasts/100000010334754/if-you-hate-and-just-like-that-what-does-that-say-about-you.html
