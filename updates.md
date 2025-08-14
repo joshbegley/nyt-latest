@@ -1,3 +1,7 @@
+**Chelsea to pay Club World Cup bonus to family of Diogo Jota, Andre Silva**\
+`Jota and his brother died in a car accident in Spain on July 3, 10 days prior to Chelsea's Club World Cup final victory.`\
+https://nytimes.com/athletic/6551143/2025/08/14/diogo-jota-family-chelsea-donation/
+
 **Premier League top 4 odds: Will there be a surprise Champions League entrant?**\
 `The race for Champions League qualification was the most exciting part of last season. Will this year's race be as close?`\
 https://nytimes.com/athletic/6551290/2025/08/14/premier-league-top-4-odds-man-united-chelsea-newcastle/
