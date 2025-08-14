@@ -1,3 +1,7 @@
+**What readers think about Villarreal-Barcelona being played in the U.S.**\
+`Reaction to the proposed move by La Liga has been mixed. We asked for your views`\
+https://nytimes.com/athletic/6551287/2025/08/14/villarreal-barcelona-la-liga-us-survey-results/
+
 **Liverpool reach agreement to sign Leoni from Parma**\
 `The Premier League club will pay a fee in the region of £26million plus add-ons for the 18-year-old.`\
 https://nytimes.com/athletic/6552813/2025/08/14/liverpool-transfers-giovanni-leoni/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/14/business/fed-faces-high-bar-for-big-cuts-despite-
 **‘And Just Like That …’ Is Over Too Soon**\
 `Wesley and Taffy Brodesser-Akner loved the reboot that everyone else loved to hate.`\
 https://nytimes.com/2025/08/14/podcasts/and-just-like-that-finale-cannonball.html
-
-**How China Went From Clean Energy Copycat to Global Innovator**\
-`A surge in high quality research and patent applications has cemented China’s dominance in the industry.`\
-https://nytimes.com/interactive/2025/08/14/climate/china-clean-energy-patents.html
 
