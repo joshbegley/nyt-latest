@@ -1,3 +1,11 @@
+**Pediatricians’ Plea: Don’t Separate Migrant Families**\
+`Pediatricians call for keeping migrant families intact. Also: Nuclear pessimism; a view from Canada; “cleaning up” D.C.; food stamps; books, read and unread.`\
+https://nytimes.com/2025/08/14/opinion/pediatricians-migrant-families-separation.html
+
+**A Jerome Robbins Festival: Sparkling, Intimate, Imperfect**\
+`Tiler Peck has curated a program of Robbins’s dances at the Joyce Theater featuring casts of ballet luminaries and rising stars.`\
+https://nytimes.com/2025/08/14/arts/dance/jerome-robbins-ballet-festival-tiler-peck.html
+
 **Echoes of Old Walls Appear, Briefly, in Britain’s Arid Soil**\
 `Unusually dry conditions are revealing the outlines of old walls at British historical sites. Climate change is making the lines, called “parchmarks,” more frequently visible.`\
 https://nytimes.com/2025/08/14/world/europe/britain-archaeology-parchmarks-dry.html

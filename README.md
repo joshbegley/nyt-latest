@@ -1,3 +1,11 @@
+**Troops in Washington Remain Largely Unseen So Far**\
+`Federal agents are assisting the local police, but a surge in National Guard troops hasn’t hit the streets.`\
+https://nytimes.com/2025/08/14/us/troops-washington-trump.html
+
+**What can Browns do for your 2025 fantasy football team? Could Shedeur Sanders be in play?**\
+`Gary Davenport is a Cleveland Browns fan, and he tries hard to find some value in the team's roster for fantasy football 2025.`\
+https://nytimes.com/athletic/6552560/2025/08/14/fantasy-football-cleveland-browns-shedeur-sanders/
+
 **Pediatricians’ Plea: Don’t Separate Migrant Families**\
 `Pediatricians call for keeping migrant families intact. Also: Nuclear pessimism; a view from Canada; “cleaning up” D.C.; food stamps; books, read and unread.`\
 https://nytimes.com/2025/08/14/opinion/pediatricians-migrant-families-separation.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/08/14/world/asia/kashmir-flash-flood.html
 **Brian Flores' racial discrimination lawsuit against NFL can advance, court rules**\
 `A New York appeals court said the NFL can go on trial to face civil claims that Brian Flores and other Black coaches face discrimination.`\
 https://nytimes.com/athletic/6553759/2025/08/14/nfl-brian-flores-lawsuit-racial-discrimination/
-
-**Antonee Robinson's injury timetable underscores his importance to USMNT**\
-`Robinson is due to miss the start of Fulham's season while recovering from knee surgery, which doesn't bode well for club or country`\
-https://nytimes.com/athletic/6553743/2025/08/14/antonee-robinson-injury-fulham-usmnt-premier-league-season/
-
-**Submit your Cardinals questions for Katie Woo's mailbag**\
-`<p>We’ve reached the dog days of summer.`\
-https://nytimes.com/athletic/6553797/2025/08/14/cardinals-mailbag-katie-woo-2/
 

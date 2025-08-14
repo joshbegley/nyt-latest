@@ -1,3 +1,11 @@
+**Pediatricians’ Plea: Don’t Separate Migrant Families**\
+`Pediatricians call for keeping migrant families intact. Also: Nuclear pessimism; a view from Canada; “cleaning up” D.C.; food stamps; books, read and unread.`\
+https://nytimes.com/2025/08/14/opinion/pediatricians-migrant-families-separation.html
+
+**A Jerome Robbins Festival: Sparkling, Intimate, Imperfect**\
+`Tiler Peck has curated a program of Robbins’s dances at the Joyce Theater featuring casts of ballet luminaries and rising stars.`\
+https://nytimes.com/2025/08/14/arts/dance/jerome-robbins-ballet-festival-tiler-peck.html
+
 **Echoes of Old Walls Appear, Briefly, in Britain’s Arid Soil**\
 `Unusually dry conditions are revealing the outlines of old walls at British historical sites. Climate change is making the lines, called “parchmarks,” more frequently visible.`\
 https://nytimes.com/2025/08/14/world/europe/britain-archaeology-parchmarks-dry.html
@@ -29,8 +37,4 @@ https://nytimes.com/athletic/6553743/2025/08/14/antonee-robinson-injury-fulham-u
 **Submit your Cardinals questions for Katie Woo's mailbag**\
 `<p>We’ve reached the dog days of summer.`\
 https://nytimes.com/athletic/6553797/2025/08/14/cardinals-mailbag-katie-woo-2/
-
-**Michael Phelps adds to USA Swimming criticism, calls for 'systemic change'**\
-`Phelps called for "systemic change" at USA Swimming, amid what he sees as worsening problems at deep levels of the sport.`\
-https://nytimes.com/athletic/6553372/2025/08/14/michael-phelps-usa-swimming-criticism-systemic-change/
 
