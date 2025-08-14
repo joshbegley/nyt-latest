@@ -1,3 +1,7 @@
+**All National Guard Troops Sent to Washington Are Mobilized, Pentagon Says**\
+`The 800 soldiers, in round-the-clock shifts of 100 to 200, will support Washington police and federal law enforcement officers.`\
+https://nytimes.com/2025/08/14/us/politics/national-guard-dc-mobilized.html
+
 **‘Checkpoint Zoo’ Review: Operation Animal Rescue**\
 `This documentary retraces the heart-rending evacuation of animals from an outdoor zoo near the front lines of the Russia-Ukraine War.`\
 https://nytimes.com/2025/08/14/movies/checkpoint-zoo-review.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6553812/2025/08/14/mlb-negotiating-with-apple-netfl
 **Scoop City: Four coaches on the hot seat**\
 `Mike McDaniel and Brian Daboll lead our list of coaches with plenty to prove this season, Stefon Diggs' uncertain Week 1 status`\
 https://nytimes.com/athletic/6553887/2025/08/14/nfl-coach-hot-seat-2025-scoop-city-giants-dolphins/
-
-**Troops in Washington Remain Largely Unseen So Far**\
-`Federal agents are assisting the local police, but a surge in National Guard troops hasn’t hit the streets.`\
-https://nytimes.com/2025/08/14/us/troops-washington-trump.html
 
