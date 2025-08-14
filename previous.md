@@ -1,3 +1,19 @@
+**Judge Orders Liquidation of Infowars to Pay Sandy Hook Families**\
+`The order comes after a series of legal setbacks for the families of Sandy Hook victims as they tried to collect money owed to them by the conspiracy theorist Alex Jones.`\
+https://nytimes.com/2025/08/14/us/infowars-sale-alex-jones-sandy-hook.html
+
+**More Relief Supplies Enter Gaza, but Aid Groups Warn of Bottlenecks**\
+`Israel says its has allowed more aid into Gaza in recent days, and food prices are dropping, but humanitarian groups warn it is not enough.`\
+https://nytimes.com/2025/08/14/world/middleeast/israel-aid-gaza-issues.html
+
+**What the historically lousy play at Oracle Park tells us about the 2025 Giants**\
+`The Giants are keeping company with some of the worst teams in MLB history, and much of the core of the roster is expected back next year.`\
+https://nytimes.com/athletic/6552569/2025/08/14/sf-giants-home-park-losing-streak/
+
+**Tariffs Set to Hit Ireland, Where U.S. Drugmakers Play Tax Games**\
+`Manufacturing in Ireland has long helped many American drug companies pay lower taxes. But that strategy was designed for a world without President Trump’s tariffs.`\
+https://nytimes.com/2025/08/14/health/pharma-tariffs-ireland-taxes.html
+
 **Rashee Rice expected to play first 4 games as NFL schedules hearing: Source**\
 `With his hearing set for Sept. 30, Rice is unlikely to face discipline for his role in a 2024 car crash until after the first four games.`\
 https://nytimes.com/athletic/6553601/2025/08/14/chiefs-rashee-rice-disciplinary-hearing/
@@ -21,20 +37,4 @@ https://nytimes.com/2025/08/14/us/florida-immigrant-detention-center.html
 **Russia Seeks to Add Trade and Arms Control Into Trump-Putin Talks**\
 `Over recent months, the Kremlin has been trying to move the diplomatic focus away from Ukraine to bilateral issues, such as trade and strategic stability.`\
 https://nytimes.com/2025/08/14/world/europe/trump-putin-talks-russia-trade-arms-control.html
-
-**500th Windup: Our 10 most-clicked links**\
-`The Windup Newsletter ⚾ | This is The Athletic’s MLB newsletter.`\
-https://nytimes.com/athletic/6553469/2025/08/14/minnesota-twins-ownership-the-windup/
-
-**For Some Patients, the ‘Inner Voice’ May Soon Be Audible**\
-`In a recent study, scientists successfully decoded not only the words people tried to say but the words they merely imagined saying.`\
-https://nytimes.com/2025/08/14/science/brain-neuroscience-computers-speech.html
-
-**‘This Was a Revelation in Cooking Eggplant’**\
-`Sue Li’s five-star sweet and sour eggplant pairs the versatile vegetable with an assertive soy-vinegar sauce and crispy garlic chips.`\
-https://nytimes.com/2025/08/14/dining/this-was-a-revelation-in-cooking-eggplant.html
-
-**Red Light: The modern NHLer's offseason routine. Plus: Why do hockey games have three periods? ͏‌**\
-`It’s mid-August, but to me that’s as good a time as any to talk about some puck, no?`\
-https://nytimes.com/athletic/6553495/2025/08/14/red-light-nhlers-offseason-routine/
 
