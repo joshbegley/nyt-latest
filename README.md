@@ -1,3 +1,7 @@
+**Law Firms That Settled With Trump Are Pressed to Help on Trade Deals**\
+`Boris Epshteyn, a personal lawyer for President Trump, connected two firms — Kirkland & Ellis and Skadden Arps — to the Commerce Department.`\
+https://nytimes.com/2025/08/13/us/politics/trump-law-firms-trade-deals.html
+
 **Rookie Drake Baldwin has exceeded expectations in otherwise dismal Braves season**\
 `With just over six weeks left in the season, Baldwin is favored to win the National League Rookie of the Year Award.`\
 https://nytimes.com/athletic/6552506/2025/08/13/braves-rookie-drake-baldwin-exceeded-expectations/
@@ -14,7 +18,7 @@ https://nytimes.com/2025/08/13/us/politics/trump-dc-national-guard-police.html
 `Gene Louise De Vera asks the important questions.`\
 https://nytimes.com/2025/08/13/crosswords/daily-puzzle-2025-08-14.html
 
-**Cubs' Miguel Amaya carted off field with left ankle sprain, will go on IL**\
+**Miguel Amaya carted off field with left ankle sprain, will go on IL**\
 `The play occurred during the eighth inning of the Cubs' game against the Toronto Blue Jays.`\
 https://nytimes.com/athletic/6552519/2025/08/13/chicago-cubs-miguel-amaya-injury/
 
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/13/theater/george-c-white-dead.html
 **D.C. Federal Deployment Ramps Up as Trump Threatens to Extend Takeover**\
 `The Army expects up to 200 soldiers out on the capital’s streets within the next few days at any given time in support of federal law enforcement.`\
 https://nytimes.com/2025/08/13/us/politics/national-guard-dc-trump-takeover.html
-
-**Vikings-Patriots joint practice: J.J. McCarthy's poise, quick decisions stand out**\
-`McCarthy faced pressure and delivered flashes, giving the Vikings a glimpse of what’s ahead.`\
-https://nytimes.com/athletic/6552179/2025/08/13/vikings-vs-patriots-joint-practice/
 
