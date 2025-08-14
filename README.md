@@ -1,3 +1,19 @@
+**What Hurricane Models Can (and Can’t) Tell Us About Tropical Storm Erin**\
+`The storm’s likely path is coming into focus, but a lot can still change. Here’s what the forecasters look at.`\
+https://nytimes.com/2025/08/14/weather/hurricane-erin-spaghetti-models.html
+
+**Former Texas WR Isaiah Bond cleared of charges, announces he's joining Browns**\
+`A grand jury cleared Bond of the sexual assault accusations levied against him just weeks before the 2025 NFL Draft. `\
+https://nytimes.com/athletic/6554609/2025/08/14/isaiah-bond-cleared-charges-browns/
+
+**Red flags abound for Patriots defense after struggles in Minnesota**\
+`The Patriots are going to have to rely on their defense to keep them in games this season. The unit did not look good Thursday in Minnesota.`\
+https://nytimes.com/athletic/6554464/2025/08/14/patriots-defense-mike-vrabel-struggles-vikings/
+
+**Fred Warner and injury-depleted 49ers keep heads cool against Raiders in desert practice**\
+`Also, rookie tackle Connor Colby impressed while QB Brock Purdy was sharper than he was in last week’s joint practice against the Broncos.`\
+https://nytimes.com/athletic/6554515/2025/08/14/fred-warner-49ers-raiders-joint-practices/
+
 **H.H.S. Resurrects Vaccine Safety Panel Disbanded Decades Ago**\
 `Anti-vaccine groups had sought the revival of the task force.`\
 https://nytimes.com/2025/08/14/health/kennedy-vaccine-safety-task-force.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6554327/2025/08/14/raiders-49ers-joint-practice-rep
 **Broncos' Bo Nix-Courtland Sutton connection hits high gear in practice vs. Cardinals**\
 `Sutton's three catches during a two-minute drill highlighted the growing connection between the second-year QB and his top target.`\
 https://nytimes.com/athletic/6554342/2025/08/14/broncos-bo-nix-courtland-sutton-cardinals/
-
-**Trump Sought to Minimize Expectations for Putin Talks**\
-`Also, an experimental treatment for chronic pain showed promise. Here’s the latest at the end of Thursday.`\
-https://nytimes.com/2025/08/14/briefing/trump-putin-talks-chronic-pain.html
-
-**Gerry Spence, Courtroom Showman in Buckskin, Dies at 96**\
-`Calling himself America’s best trial lawyer, he won justice for Karen Silkwood and successfully defended Imelda Marcos. He also wrote best sellers.`\
-https://nytimes.com/2025/08/14/us/gerry-spence-dead.html
-
-**Minnesota Assassination Suspect Indicted on First-Degree Murder Charges**\
-`State prosecutors had previously charged the man with second-degree murder in the deaths of State Representative Melissa Hortman and her husband.`\
-https://nytimes.com/2025/08/14/us/minnesota-assassination-charges.html
-
-**Gregory C. O’Connell, Developer Who Revived Red Hook, Dies at 83**\
-`A former N.Y.P.D. detective, he rejuvenated properties on the Brooklyn waterfront and restored a historic village in upstate New York.`\
-https://nytimes.com/2025/08/14/nyregion/gregory-c-oconnell-dead.html
 
