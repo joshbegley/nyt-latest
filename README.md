@@ -1,3 +1,7 @@
+**In L.A., Fear of ICE Raids Created a Tense First Day of School**\
+`Officials and volunteers patrolled areas around schools, part of an effort to warn families about potential raids and reassure them that their children were safe at school.`\
+https://nytimes.com/2025/08/14/us/los-angeles-raids-school-patrols.html
+
 **Russia and Ukraine Continue Drone Attacks Before Putin-Trump Meeting**\
 `The Kremlin signaled that apart from Ukraine, it was also interested in discussing other subjects with the U.S., like economic links and nuclear arms. At the same time, Ukrainian President Volodymyr Zelensky met with the U.K. Prime Minister Keir Starmer in a show of unity.`\
 https://nytimes.com/video/world/europe/100000010341261/ukraine-russia-us-negotiations.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6554115/2025/08/14/thomas-muller-vancouver-whitecap
 **Supreme Court Allows Mississippi Law on Children’s Use of Social Media, for Now**\
 `A trade group representing sites like Facebook and X said the law ran afoul of the First Amendment.`\
 https://nytimes.com/2025/08/14/us/politics/supreme-court-mississippi-social-media.html
-
-**Bobby Whitlock, Keyboardist for Derek and the Dominos, Dies at 77**\
-`With Eric Clapton, he wrote “Bell Bottom Blues” and built one of the greatest — if most short-lived — supergroups of the 1970s.`\
-https://nytimes.com/2025/08/14/arts/music/bobby-whitlock-dead.html
 
