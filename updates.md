@@ -1,3 +1,11 @@
+**A Whiskey Maker Honoring an Enslaved Distiller Is in a Fiscal Bind**\
+`A federal judge has ordered that Uncle Nearest be placed in receivership, after a lender claimed the company’s finances are in disarray.`\
+https://nytimes.com/2025/08/14/dining/uncle-nearest-whiskey-receivership.html
+
+**There’s Never Been a Better to Time to Love a Wine Bar**\
+`Wine bars with great menus just keep popping up across New York City. Here are three new ones to check out.`\
+https://nytimes.com/2025/08/14/dining/theres-never-been-a-better-to-time-to-love-a-wine-bar.html
+
 **In L.A., Fear of ICE Raids Created a Tense First Day of School**\
 `Officials and volunteers patrolled areas around schools, part of an effort to warn families about potential raids and reassure them that their children were safe at school.`\
 https://nytimes.com/2025/08/14/us/los-angeles-raids-school-patrols.html
