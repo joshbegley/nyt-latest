@@ -1,3 +1,7 @@
+**Liverpool 2025-26 Premier League season preview: Can they dominate again?**\
+`Liverpool dominated the Premier League last season... can they do it again?`\
+https://nytimes.com/athletic/6550662/2025/08/14/liverpool-season-preview/
+
 **Despite his scoreless streak’s end at 28 1/3 innings, Cade Horton dominates again in win**\
 `The rookie allowed just one hit and one run in the Chicago Cubs' 4-1 victory over the Toronto Blue Jays.`\
 https://nytimes.com/athletic/6552655/2025/08/14/cubs-win-cade-horton-scoreless-streak-ends/
@@ -14,6 +18,10 @@ https://nytimes.com/athletic/6546387/2025/08/14/aston-villa-charging-77-for-a-ti
 `The aim for Fabian Hurzeler's side is the same as before – to push for a European place and have a crack at winning a first major trophy`\
 https://nytimes.com/athletic/6534305/2025/08/14/brighton-season-preview/
 
+**FPL mailbag: Premium defenders no longer vital, Palmer over Saka, and dark horse Anderson**\
+`With the new Premier League season getting underway tomorrow, here are some final tips to get your FPL team in top order`\
+https://nytimes.com/athletic/6551078/2025/08/14/fantasy-premier-league-palmer-saka-van-dijk-salah/
+
 **Wolves breakout player: Ki-Jana Hoever**\
 `Hoever was last seen in the Premier League in March, 2022. But the Dutchman may well have a part to play for Wolves this season`\
 https://nytimes.com/athletic/6548611/2025/08/14/wolves-ki-jana-hoever-breakout/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6550850/2025/08/14/alternative-premier-league-table
 **Enjoy the new Premier League season, there might not be many more like it**\
 `The Premier League is booming but FIFA's pursuit of the club game means its place in football's hierarchy is under threat`\
 https://nytimes.com/athletic/6536142/2025/08/14/premier-league-future/
-
-**How have Premier League teams spent this summer? Upgrading their attacks**\
-`Mark Carey and Thom Harris analyse the concerted effort to evolve offensive quality in England's top flight `\
-https://nytimes.com/athletic/6548195/2025/08/14/premier-league-tactics-upgraded-attacks/
-
-**James Milner interview: 'There's no hiding place now. Cameras in the dressing room? That can't happen'**\
-`The 39-year-old Brighton midfielder discusses longevity, retirement, what comes next and the loss of his close friend Diogo Jota`\
-https://nytimes.com/athletic/6550783/2025/08/14/james-milner-interview-cameras/
 
