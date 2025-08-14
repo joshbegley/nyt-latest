@@ -1,3 +1,7 @@
+**Russia and Ukraine Continue Drone Attacks Before Putin-Trump Meeting**\
+`The Kremlin signaled that apart from Ukraine, it was also interested in discussing other subjects with the U.S., like economic links and nuclear arms. At the same time, Ukrainian President Volodymyr Zelensky met with the U.K. Prime Minister Keir Starmer in a show of unity.`\
+https://nytimes.com/video/world/europe/100000010341261/ukraine-russia-us-negotiations.html
+
 **Cost of buying new SailGP team expected to exceed $60m**\
 `The tender process for the two-team expansion closes on August 14.`\
 https://nytimes.com/athletic/6554019/2025/08/14/sailgp-team-expansion-team-cost/

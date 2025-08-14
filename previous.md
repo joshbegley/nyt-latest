@@ -1,3 +1,7 @@
+**Russia and Ukraine Continue Drone Attacks Before Putin-Trump Meeting**\
+`The Kremlin signaled that apart from Ukraine, it was also interested in discussing other subjects with the U.S., like economic links and nuclear arms. At the same time, Ukrainian President Volodymyr Zelensky met with the U.K. Prime Minister Keir Starmer in a show of unity.`\
+https://nytimes.com/video/world/europe/100000010341261/ukraine-russia-us-negotiations.html
+
 **Cost of buying new SailGP team expected to exceed $60m**\
 `The tender process for the two-team expansion closes on August 14.`\
 https://nytimes.com/athletic/6554019/2025/08/14/sailgp-team-expansion-team-cost/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/14/us/politics/supreme-court-mississippi-social-medi
 **Bobby Whitlock, Keyboardist for Derek and the Dominos, Dies at 77**\
 `With Eric Clapton, he wrote “Bell Bottom Blues” and built one of the greatest — if most short-lived — supergroups of the 1970s.`\
 https://nytimes.com/2025/08/14/arts/music/bobby-whitlock-dead.html
-
-**How Accessible Is Traveling by Amtrak?**\
-`Many people with disabilities depend on Amtrak to travel across the country, but the journey can still present obstacles. Gabe Castro-Root outlines some of the challenges disabled passengers encounter while traveling.`\
-https://nytimes.com/video/travel/100000010331128/how-accessible-is-traveling-by-amtrak.html
 
