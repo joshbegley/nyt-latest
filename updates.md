@@ -1,3 +1,19 @@
+**What Hurricane Models Can (and Can’t) Tell Us About Tropical Storm Erin**\
+`The storm’s likely path is coming into focus, but a lot can still change. Here’s what the forecasters look at.`\
+https://nytimes.com/2025/08/14/weather/hurricane-erin-spaghetti-models.html
+
+**Former Texas WR Isaiah Bond cleared of charges, announces he's joining Browns**\
+`A grand jury cleared Bond of the sexual assault accusations levied against him just weeks before the 2025 NFL Draft. `\
+https://nytimes.com/athletic/6554609/2025/08/14/isaiah-bond-cleared-charges-browns/
+
+**Red flags abound for Patriots defense after struggles in Minnesota**\
+`The Patriots are going to have to rely on their defense to keep them in games this season. The unit did not look good Thursday in Minnesota.`\
+https://nytimes.com/athletic/6554464/2025/08/14/patriots-defense-mike-vrabel-struggles-vikings/
+
+**Fred Warner and injury-depleted 49ers keep heads cool against Raiders in desert practice**\
+`Also, rookie tackle Connor Colby impressed while QB Brock Purdy was sharper than he was in last week’s joint practice against the Broncos.`\
+https://nytimes.com/athletic/6554515/2025/08/14/fred-warner-49ers-raiders-joint-practices/
+
 **H.H.S. Resurrects Vaccine Safety Panel Disbanded Decades Ago**\
 `Anti-vaccine groups had sought the revival of the task force.`\
 https://nytimes.com/2025/08/14/health/kennedy-vaccine-safety-task-force.html

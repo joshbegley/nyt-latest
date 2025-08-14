@@ -1,4 +1,4 @@
-**What Hurricane Models Can (and Can’t) Tell Us About Tropical Storm Erin**\
+**What Hurricane Models Can (and Can’t) Tell Us About Erin**\
 `The storm’s likely path is coming into focus, but a lot can still change. Here’s what the forecasters look at.`\
 https://nytimes.com/2025/08/14/weather/hurricane-erin-spaghetti-models.html
 
