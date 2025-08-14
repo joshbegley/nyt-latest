@@ -1,3 +1,15 @@
+**Gregory C. O’Connell, Developer Who Revived Red Hook, Dies at 83**\
+`A former N.Y.P.D. detective, he rejuvenated properties on the Brooklyn waterfront and restored a historic village in upstate New York.`\
+https://nytimes.com/2025/08/14/nyregion/gregory-c-oconnell-dead.html
+
+**Adams, Embracing Veto Power, Says No to Raises for Instacart Workers**\
+`The City Council is likely to override most of Mayor Eric Adams’s recent vetoes. Still, the mayor seems eager for a fight over bills affecting grocery delivery workers and street vendors.`\
+https://nytimes.com/2025/08/14/nyregion/eric-adams-veto-instacart.html
+
+**Texas Democrats Will Return Home, Allowing Vote on Congressional Map**\
+`The leader of Democrats in the Texas House said the  battle over restricting, which could determine control of Congress, is likely to continue in the courts.`\
+https://nytimes.com/2025/08/14/us/texas-democrats-return.html
+
 **The Third Rock From Another Sun Shows No Signs of Life So Far**\
 `Astronomers had hoped to observe an atmosphere on one of the seven planets known to orbit Trappist-1, a red dwarf star. A new study found nothing to write home about.`\
 https://nytimes.com/2025/08/14/science/trappist-1d-webb-life-planet.html
@@ -11,7 +23,7 @@ https://nytimes.com/athletic/6553771/2025/08/14/yankees-mets-new-york-baseball-c
 https://nytimes.com/athletic/6542267/2025/08/14/dango-ouattara-brentford-bournemouth-deal-agreed-transfer/
 
 **Browns RB Quinshon Judkins won't face domestic violence charges**\
-`Prosecutors say there was "no reasonable likelihood of conviction" in case against rookie running back.`\
+`Prosecutors say there was "no reasonable likelihood of conviction" in the case against the rookie running back.`\
 https://nytimes.com/athletic/6554355/2025/08/14/browns-quinshon-judkins-domestic-violence-charges/
 
 **NASCAR considering moving All-Star Race to Dover: Sources**\
@@ -25,16 +37,4 @@ https://nytimes.com/2025/08/14/world/europe/trump-putin-alaska-summit.html
 **Woman Claims Marine Laced Her Drink With Abortion Pills**\
 `A Texas woman said in a lawsuit that a U.S. Marine got her pregnant and then, after she chose to keep the pregnancy, dissolved abortion pills in her hot chocolate.`\
 https://nytimes.com/2025/08/14/us/marine-abortion-pills-lawsuit-texas.html
-
-**Attracting The Right People With The Right Benefits**\
-`Dental and vision care can be critical to our personal health. They’re also critical to a company’s recruitment and benefits strategy. `\
-https://nytimes.com/paidpost/humana/attracting-the-right-people-with-the-right-benefits.html
-
-**Hudson-Odoi close to agreeing new contract with Forest**\
-`The 24-year-old's current contract is set to expire in the summer of 2026.`\
-https://nytimes.com/athletic/6554323/2025/08/14/callum-hudson-odoi-nottingham-forest-contract-talks/
-
-**Friday Briefing: Ukraine’s Fate**\
-`Plus: To appreciate a dancer, watch the hands.`\
-https://nytimes.com/2025/08/14/briefing/ukraine-putin-trump-russia-gaza-aid.html
 
