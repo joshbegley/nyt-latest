@@ -1,3 +1,11 @@
+**Judge Orders Liquidation of Infowars to Pay Sandy Hook Families**\
+`The order comes after a series of legal setbacks for the families of Sandy Hook victims as they tried to collect money owed to them by the conspiracy theorist Alex Jones.`\
+https://nytimes.com/2025/08/14/us/infowars-sale-alex-jones-sandy-hook.html
+
+**More Relief Supplies Enter Gaza, but Aid Groups Warn of Bottlenecks**\
+`Israel says its has allowed more aid into Gaza in recent days, and food prices are dropping, but humanitarian groups warn it is not enough.`\
+https://nytimes.com/2025/08/14/world/middleeast/israel-aid-gaza-issues.html
+
 **What the historically lousy play at Oracle Park tells us about the 2025 Giants**\
 `The Giants are keeping company with some of the worst teams in MLB history, and much of the core of the roster is expected back next year.`\
 https://nytimes.com/athletic/6552569/2025/08/14/sf-giants-home-park-losing-streak/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/08/14/us/florida-immigrant-detention-center.html
 **Russia Seeks to Add Trade and Arms Control Into Trump-Putin Talks**\
 `Over recent months, the Kremlin has been trying to move the diplomatic focus away from Ukraine to bilateral issues, such as trade and strategic stability.`\
 https://nytimes.com/2025/08/14/world/europe/trump-putin-talks-russia-trade-arms-control.html
-
-**500th Windup: Our 10 most-clicked links**\
-`The Windup Newsletter ⚾ | This is The Athletic’s MLB newsletter.`\
-https://nytimes.com/athletic/6553469/2025/08/14/minnesota-twins-ownership-the-windup/
-
-**For Some Patients, the ‘Inner Voice’ May Soon Be Audible**\
-`In a recent study, scientists successfully decoded not only the words people tried to say but the words they merely imagined saying.`\
-https://nytimes.com/2025/08/14/science/brain-neuroscience-computers-speech.html
 
