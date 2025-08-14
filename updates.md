@@ -1,3 +1,7 @@
+**Chelsea co-sporting directors Winstanley and Stewart sign new contracts**\
+`Recruitment chiefs Joe Shields and Sam Jewell have also signed fresh terms until 2031.`\
+https://nytimes.com/athletic/6553098/2025/08/14/paul-winstanley-laurence-stewart-chelsea-contracts/
+
 **Manchester City 2025-26 season preview: Live Q&A with Jordan Campbell**\
 `Post your questions and our Manchester City writer will endeavour to answer as many as possible`\
 https://nytimes.com/athletic/6550765/2025/08/14/manchester-city-premier-league-preview-guardiola-haaland/
