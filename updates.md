@@ -1,3 +1,7 @@
+**Cubs' Miguel Amaya carted off field with apparent leg injury**\
+`The play occurred during the eighth inning of the Cubs' game against the Toronto Blue Jays.`\
+https://nytimes.com/athletic/6552519/2025/08/13/chicago-cubs-miguel-amaya-injury/
+
 **4 Takeaways From Taylor Swift’s Rare Podcast Appearance**\
 `The pop superstar discussed her upcoming album on a podcast co-hosted by her boyfriend, the N.F.L. player Travis Kelce.`\
 https://nytimes.com/2025/08/13/arts/music/taylor-swift-travis-kelce-new-heights-podcast.html

@@ -1,3 +1,11 @@
+**Trump’s D.C. Police Takeover and National Guard Deployment, Explained**\
+`President Trump is the first president to use a declared emergency to wrest control of Washington, D.C.’s police force.`\
+https://nytimes.com/2025/08/13/us/politics/trump-dc-national-guard-police.html
+
+**‘Thus With a Kiss … ’**\
+`Gene Louise De Vera asks the important questions.`\
+https://nytimes.com/2025/08/13/crosswords/daily-puzzle-2025-08-14.html
+
 **Cubs' Miguel Amaya carted off field with apparent leg injury**\
 `The play occurred during the eighth inning of the Cubs' game against the Toronto Blue Jays.`\
 https://nytimes.com/athletic/6552519/2025/08/13/chicago-cubs-miguel-amaya-injury/
@@ -29,12 +37,4 @@ https://nytimes.com/video/podcasts/100000010334754/if-you-hate-and-just-like-tha
 **Cabbies Who Lost Licenses After Arrests Near $140 Million Settlement**\
 `New York City could grant payouts to some 20,000 taxi drivers whose professional licenses were summarily suspended without sufficient due process.`\
 https://nytimes.com/2025/08/13/nyregion/nyc-taxi-drivers-settlement.html
-
-**Bakers on Texas-Mexican Border Are Found Guilty of Harboring Illegal Workers**\
-`Leonardo Baez and his wife were among the first employers prosecuted for taking on undocumented immigrants at their bakery in Los Fresnos, Texas. They face up to 10 years in prison.`\
-https://nytimes.com/2025/08/13/us/border-bakery-undocumented-immigrants.html
-
-**4 Takeaways From Taylor Swift’s Rare Podcast Appearance**\
-`The pop superstar discussed her upcoming album on a podcast co-hosted by her boyfriend, the N.F.L. player Travis Kelce.`\
-https://nytimes.com/2025/08/13/arts/music/taylor-swift-travis-kelce-new-heights-podcast.html
 
