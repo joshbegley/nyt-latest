@@ -1,3 +1,19 @@
+**The Third Rock From Another Sun Shows No Signs of Life So Far**\
+`Astronomers had hoped to observe an atmosphere on one of the seven planets known to orbit Trappist-1, a red dwarf star. A new study found nothing to write home about.`\
+https://nytimes.com/2025/08/14/science/trappist-1d-webb-life-planet.html
+
+**Worse than a stock market crash: How Yankees, Mets collapse has played out in betting odds**\
+`The Yankees and Mets are both slumping lately and their futures odds have fallen off a cliff.`\
+https://nytimes.com/athletic/6553771/2025/08/14/yankees-mets-new-york-baseball-collapse-odds-betting/
+
+**Brentford agree club-record deal with Bournemouth for Ouattara**\
+`The 23-year-old has been authorised to travel for a medical on Friday. `\
+https://nytimes.com/athletic/6542267/2025/08/14/dango-ouattara-brentford-bournemouth-deal-agreed-transfer/
+
+**Browns RB Quinshon Judkins won't face domestic violence charges**\
+`Prosecutors say there was "no reasonable likelihood of conviction" in case against rookie running back.`\
+https://nytimes.com/athletic/6554355/2025/08/14/browns-quinshon-judkins-domestic-violence-charges/
+
 **NASCAR considering moving All-Star Race to Dover: Sources**\
 `Dover hosting the All-Star Race would clear a spot for North Wilkesboro Speedway to land a Cup points race, which it hasn't done since 1996.`\
 https://nytimes.com/athletic/6554454/2025/08/14/nascar-considering-moving-all-star-race-to-dover-sources/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6554323/2025/08/14/callum-hudson-odoi-nottingham-fo
 **Friday Briefing: Ukraine’s Fate**\
 `Plus: To appreciate a dancer, watch the hands.`\
 https://nytimes.com/2025/08/14/briefing/ukraine-putin-trump-russia-gaza-aid.html
-
-**America’s New Segregation**\
-`To be one nation, we have to embrace ground-up social change.`\
-https://nytimes.com/2025/08/14/opinion/trump-democrats-resistance-reform.html
-
-**As Trump Seizes D.C.’s Police, Critics Say He’s Undercut Its Ability to Fight Crime**\
-`The Trump administration has taken steps that have hobbled Washington’s efforts to reduce crime, such as gutting its U.S. attorney’s office and enacting budget cuts of more than $1 billion.`\
-https://nytimes.com/2025/08/14/us/politics/trump-washington-dc-crime-police.html
-
-**Newsom Held an Event in L.A. Federal Immigration Agents Showed Up Outside.**\
-`The armed and masked agents assembled outside the museum where the governor was speaking. Mayor Karen Bass of Los Angeles called it “a provocative act.”`\
-https://nytimes.com/2025/08/14/us/newsom-la-immigration-agents.html
-
-**Panthers-Texans joint practice: Bryce Young and C.J. Stroud stay connected**\
-`Panthers safety Tre'von Moehrig brought the heat on Thursday. Houston players didn’t like it, but Moehrig didn’t particularly care.`\
-https://nytimes.com/athletic/6554278/2025/08/14/panthers-texans-bryce-young-c-j-stroud/
 
