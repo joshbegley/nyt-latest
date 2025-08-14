@@ -1,3 +1,11 @@
+**Vikings-Patriots joint practice: J.J. McCarthy's best practice of training camp and more**\
+`McCarthy completed 13 consecutive passes at one point and tallied six touchdowns during Thursday's practice.`\
+https://nytimes.com/athletic/6554637/2025/08/14/vikings-patriots-joint-practice-jj-mccarthy/
+
+**Judge Blocks White House Effort to Defund Schools With D.E.I. Programs**\
+`The Trump administration had asked states to certify that their schools did not practice “illegal D.E.I.” and threatened to cut off billions of dollars from schools that did not comply.`\
+https://nytimes.com/2025/08/14/us/politics/trump-dei-schools.html
+
 **Owen Caissie, Cubs' top prospect, debuts in Toronto as offense continues its struggles**\
 `Caissie's thunderous bat could not save a Cubs offense desperate for a clutch hit and searching for any sort of rhythm.`\
 https://nytimes.com/athletic/6554603/2025/08/14/owen-caissie-cubs-top-prospect-debuts-offense-struggles/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6554515/2025/08/14/fred-warner-49ers-raiders-joint-
 **H.H.S. Resurrects Vaccine Safety Panel Disbanded Decades Ago**\
 `Anti-vaccine groups had sought the revival of the task force.`\
 https://nytimes.com/2025/08/14/health/kennedy-vaccine-safety-task-force.html
-
-**Dale Webster, Who Surfed Every Day for 40 Years, Dies at 76**\
-`He braved frigid waters and sharks and surfed even when he had a kidney stone while breaking the record for the most consecutive days surfed.`\
-https://nytimes.com/2025/08/14/us/dale-webster-surfer-dead-california.html
-
-**Immigration Agents Show Up Outside Newsom Rally**\
-`More than a dozen Border Patrol agents turned up in downtown Los Angeles on Thursday outside a museum where Gov. Gavin Newsom of California was holding a rally.`\
-https://nytimes.com/video/us/politics/100000010342016/immigration-agents-newsom-rally.html
 
