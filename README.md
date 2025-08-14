@@ -1,3 +1,15 @@
+**500th Windup: Our 10 most-clicked links**\
+`The Windup Newsletter ⚾ | This is The Athletic’s MLB newsletter.`\
+https://nytimes.com/athletic/6553469/2025/08/14/minnesota-twins-ownership-the-windup/
+
+**For Some Patients, the ‘Inner Voice’ May Soon Be Audible**\
+`In a recent study, scientists successfully decoded not only the words people tried to say but the words they merely imagined saying.`\
+https://nytimes.com/2025/08/14/science/brain-neuroscience-computers-speech.html
+
+**‘This Was a Revelation in Cooking Eggplant’**\
+`Sue Li’s five-star sweet and sour eggplant pairs the versatile vegetable with an assertive soy-vinegar sauce and crispy garlic chips.`\
+https://nytimes.com/2025/08/14/dining/this-was-a-revelation-in-cooking-eggplant.html
+
 **Red Light: The modern NHLer's offseason routine. Plus: Why do hockey games have three periods? ͏‌**\
 `It’s mid-August, but to me that’s as good a time as any to talk about some puck, no?`\
 https://nytimes.com/athletic/6553495/2025/08/14/red-light-nhlers-offseason-routine/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6548235/2025/08/14/antonee-robinson-injury-fulham-u
 **Tourist ‘Is in Trouble’ After Stones Taken From Pompeii, Police Say**\
 `A Scottish man is under investigation for aggravated theft, police officials said, after visiting the ancient Italian site.`\
 https://nytimes.com/2025/08/14/world/europe/pompeii-italy-tourist.html
-
-**Wissa unavailable for opener at Forest due to disrupted summer**\
-`Andrews said he would like Wissa to be part of the squad but added it is "very hard to know" what will happen in relation to his future.`\
-https://nytimes.com/athletic/6553312/2025/08/14/keith-andrews-yoane-wissa-unavailable-brentford/
-
-**How Does Taylor Swift Deal With Internet Noise?**\
-`She doesn’t.`\
-https://nytimes.com/2025/08/14/style/taylor-swift-social-media-travis-kelce.html
-
-**Dodgers blow another game, slip out of first place: ‘Obviously, it doesn’t feel good’**\
-`Just 41 days ago, the Dodgers held a nine-game advantage and full control of the NL West. Now they're looking up at the Padres.`\
-https://nytimes.com/athletic/6552727/2025/08/14/los-angeles-dodgers-nl-west-race/
 
