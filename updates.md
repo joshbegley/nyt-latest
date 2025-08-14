@@ -1,3 +1,7 @@
+**Why the Pohlads stunned potential buyers and kept control of the Twins: ‘We’re the right people’**\
+`The announcement that the Twins owners are keeping the team sent shock waves through the organization, fan base, and beyond.`\
+https://nytimes.com/athletic/6552618/2025/08/13/minnesota-twins-sale-process-pohlad/
+
 **Law Firms That Settled With Trump Are Pressed to Help on Trade Deals**\
 `Boris Epshteyn, a personal lawyer for President Trump, connected two firms — Kirkland & Ellis and Skadden Arps — to the Commerce Department.`\
 https://nytimes.com/2025/08/13/us/politics/trump-law-firms-trade-deals.html
