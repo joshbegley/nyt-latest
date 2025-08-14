@@ -1,3 +1,15 @@
+**The New York Times in Print for Thursday, Aug. 14, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/08/14/todays-new-york-times
+
+**You Can Buy One of the C.I.A.’s Greatest Mysteries at an Auction House**\
+`Sleuths have solved three of the panels of the Kryptos sculpture at the agency’s headquarters. Now the artwork’s creator is announcing the sale of the solution to the fourth.`\
+https://nytimes.com/2025/08/14/science/kryptos-sculpture-cia-solution-auction.html
+
+**Sudan, Battered by War, Is Hit by Its ‘Worst Cholera Outbreak’ in Years**\
+`International charities warned that, left unchecked, the disease’s spread might exacerbate similar outbreaks across the African region for weeks or months to come.`\
+https://nytimes.com/2025/08/14/world/africa/sudan-cholera-outbreak.html
+
 **Hunter Brown bolstering Cy Young candidacy, learning 'how to separate himself from the rest'**\
 `Brown's four-seam fastball has the second-highest mark in baseball. It is, by most public metrics, one of the best pitches in the game.`\
 https://nytimes.com/athletic/6552673/2025/08/14/astros-red-sox-hunter-brown-bolstering-cy-young-candidacy/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6546387/2025/08/14/aston-villa-charging-77-for-a-ti
 **Brighton season preview: Hope for another European adventure...and fewer injuries**\
 `The aim for Fabian Hurzeler's side is the same as before – to push for a European place and have a crack at winning a first major trophy`\
 https://nytimes.com/athletic/6534305/2025/08/14/brighton-season-preview/
-
-**FPL mailbag: Premium defenders no longer vital, Palmer over Saka, and dark horse Anderson**\
-`With the new Premier League season getting underway tomorrow, here are some final tips to get your FPL team in top order`\
-https://nytimes.com/athletic/6551078/2025/08/14/fantasy-premier-league-palmer-saka-van-dijk-salah/
-
-**Wolves breakout player: Ki-Jana Hoever**\
-`Hoever was last seen in the Premier League in March, 2022. But the Dutchman may well have a part to play for Wolves this season`\
-https://nytimes.com/athletic/6548611/2025/08/14/wolves-ki-jana-hoever-breakout/
-
-**Hansi Flick and the unique challenges of a second season at Barcelona**\
-`The German manager has proved himself an expert handler of Barca's infamous 'entorno'. Can he build on last season's success?`\
-https://nytimes.com/athletic/6551460/2025/08/14/hansi-flick-barcelona-new-season-la-liga/
 
