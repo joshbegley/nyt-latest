@@ -1,3 +1,7 @@
+**Even Taylor Swift Can’t Resist Podcasts, the Celebrity Safe Space**\
+`For stars promoting their projects, podcasts have become an appealing alternative to late-night TV and glossy magazines.`\
+https://nytimes.com/2025/08/14/business/media/taylor-swift-podcast-celebrity-interviews.html
+
 **Trump Administration Live Updates: Federal Deployment Ramps Up in D.C.**\
 ``\
 https://nytimes.com/live/2025/08/14/us/trump-news

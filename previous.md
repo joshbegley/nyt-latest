@@ -1,3 +1,7 @@
+**Even Taylor Swift Can’t Resist Podcasts, the Celebrity Safe Space**\
+`For stars promoting their projects, podcasts have become an appealing alternative to late-night TV and glossy magazines.`\
+https://nytimes.com/2025/08/14/business/media/taylor-swift-podcast-celebrity-interviews.html
+
 **Trump Administration Live Updates: Federal Deployment Ramps Up in D.C.**\
 ``\
 https://nytimes.com/live/2025/08/14/us/trump-news
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6434533/2025/08/14/franco-mastantuono-real-madrid-i
 **Here's how Canadian fans of the English Premier League can stream the 2025-26 season**\
 `This is what Canadian fans need to know to watch all 380 EPL matches during the 2025-26 season.`\
 https://nytimes.com/athletic/6551306/2025/08/14/premier-league-canada-2025-26-season-how-to-watch/
-
-**Meet college football's next best hope for a post-Travis Hunter two-way star**\
-`Minnesota sophomore safety Koi Perich has a chance to approach Travis Hunter's workload as the Gophers try to maximize their best player.`\
-https://nytimes.com/athletic/6551090/2025/08/14/koi-perich-minnesota-football-travis-hunter/
 
