@@ -1,3 +1,7 @@
+**How Cuomo Wants to Limit Who Gets to Live in Rent-Stabilized Units**\
+`Former Gov. Andrew M. Cuomo’s proposal is a dig at Zohran Mamdani, his main opponent in the mayor’s race, but it could upend the housing search for middle-income New Yorkers.`\
+https://nytimes.com/2025/08/14/nyregion/cuomo-mamdani-zohrans-law.html
+
 **Federal Prosecutors Seek Death Penalty in Fatal Shooting of Border Patrol Agent**\
 `A federal grand jury in Vermont indicted Teresa Youngblut, 21, on murder and other charges, seven months after a violent encounter during a traffic stop.`\
 https://nytimes.com/2025/08/14/us/border-patrol-shooting-vermont.html
@@ -6,7 +10,7 @@ https://nytimes.com/2025/08/14/us/border-patrol-shooting-vermont.html
 `After three years of talks, and despite growing warnings about the dangers of plastics pollution, nations are at an impasse again over what to do about it.`\
 https://nytimes.com/2025/08/14/climate/global-plastic-pollution-treaty.html
 
-**A Whiskey Maker Honoring an Enslaved Distiller Is in a Fiscal Bind**\
+**Whiskey Maker Honoring an Enslaved Distiller Is in a Fiscal Bind**\
 `A federal judge has ordered that Uncle Nearest be placed in receivership, after a lender claimed the company’s finances are in disarray.`\
 https://nytimes.com/2025/08/14/dining/uncle-nearest-whiskey-receivership.html
 
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/14/world/canada/air-canada-flight-attendant-strike-c
 **Israeli Settlement Expansion Plan Will ‘Bury’ Palestinian Statehood, Minister Vows**\
 `Bezalel Smotrich, the finance minister, said on Thursday that a plan to significantly expand a settlement near occupied East Jerusalem had won approval. But a procedural step remained.`\
 https://nytimes.com/2025/08/14/world/middleeast/israel-smotrich-settlements-palestinian-state.html
-
-**Forest agree deal with City for McAtee**\
-`McAtee's contract at City was set to expire next summer but the 22-year-old been subject to many admirers.`\
-https://nytimes.com/athletic/6546868/2025/08/14/nottingham-forest-james-mcatee-agree-deal-transfer/
 

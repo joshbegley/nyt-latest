@@ -1,3 +1,11 @@
+**How Cuomo Wants to Limit Who Gets to Live in Rent-Stabilized Units**\
+`Former Gov. Andrew M. Cuomo’s proposal is a dig at Zohran Mamdani, his main opponent in the mayor’s race, but it could upend the housing search for middle-income New Yorkers.`\
+https://nytimes.com/2025/08/14/nyregion/cuomo-mamdani-zohrans-law.html
+
+**Whiskey Maker Honoring an Enslaved Distiller Is in a Fiscal Bind**\
+`A federal judge has ordered that Uncle Nearest be placed in receivership, after a lender claimed the company’s finances are in disarray.`\
+https://nytimes.com/2025/08/14/dining/uncle-nearest-whiskey-receivership.html
+
 **Federal Prosecutors Seek Death Penalty in Fatal Shooting of Border Patrol Agent**\
 `A federal grand jury in Vermont indicted Teresa Youngblut, 21, on murder and other charges, seven months after a violent encounter during a traffic stop.`\
 https://nytimes.com/2025/08/14/us/border-patrol-shooting-vermont.html
