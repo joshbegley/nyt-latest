@@ -1,3 +1,7 @@
+**Leeds interested in Milan forward Okafor**\
+`Okafor spent the second half of the 2024-25 season on loan at Napoli, winning the Serie A title.`\
+https://nytimes.com/athletic/6552803/2025/08/14/leeds-noah-okafor-milan-interest/
+
 **Chelsea to pay Club World Cup bonus to family of Diogo Jota, Andre Silva**\
 `Jota and his brother died in a car accident in Spain on July 3, 10 days prior to Chelsea's Club World Cup final victory.`\
 https://nytimes.com/athletic/6551143/2025/08/14/diogo-jota-family-chelsea-donation/
@@ -33,8 +37,4 @@ https://nytimes.com/video/us/100000010340116/national-guard-dc-trump-takeover.ht
 **Why Frank's 'special operation' offered promise even if Tottenham succumbed at the last**\
 `The new Spurs manager needed to devise a game plan for PSG after a heavy defeat to Bayern, and his tactical approach almost paid off`\
 https://nytimes.com/athletic/6552380/2025/08/14/tottenham-frank-psg-supercup-richarlison-kudus/
-
-**A Year After Revolution, Hope Turns to Frustration in Bangladesh**\
-`There are concerns about the slow pace of change in the country, with a promised election still months away, a struggling economy and familiar problems persisting.`\
-https://nytimes.com/2025/08/14/world/asia/bangladesh-revolution-sheikh-hasina.html
 
