@@ -1,3 +1,7 @@
+**4 Takeaways From Taylor Swift’s Rare Podcast Appearance**\
+`The pop superstar discussed her upcoming album on a podcast co-hosted by her boyfriend, the N.F.L. player Travis Kelce.`\
+https://nytimes.com/2025/08/13/arts/music/taylor-swift-travis-kelce-new-heights-podcast.html
+
 **Taylor Swift joins Travis Kelce on 'New Heights' podcast: What we learned (Taylor knows ball)**\
 `The megastar made her first in-studio podcast appearance ever, joining her boyfriend to discuss her upcoming 12th album, the NFL and more.`\
 https://nytimes.com/athletic/6552267/2025/08/13/taylor-swift-new-heights-travis-kelce-album-takeaways/

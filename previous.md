@@ -30,8 +30,8 @@ https://nytimes.com/2025/08/13/nyregion/nyc-taxi-drivers-settlement.html
 `Leonardo Baez and his wife were among the first employers prosecuted for taking on undocumented immigrants at their bakery in Los Fresnos, Texas. They face up to 10 years in prison.`\
 https://nytimes.com/2025/08/13/us/border-bakery-undocumented-immigrants.html
 
-**Taylor Swift’s ‘The Life of a Showgirl’ Will Release on Oct. 3**\
-`Swift spoke about her upcoming album on “New Heights,” a sports and pop culture podcast co-hosted by her boyfriend.`\
+**4 Takeaways From Taylor Swift’s Rare Podcast Appearance**\
+`The pop superstar discussed her upcoming album on a podcast co-hosted by her boyfriend, the N.F.L. player Travis Kelce.`\
 https://nytimes.com/2025/08/13/arts/music/taylor-swift-travis-kelce-new-heights-podcast.html
 
 **Republican Ex-Candidate Sentenced to 80 Years in Prison for Shooting Plot**\
