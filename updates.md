@@ -1,3 +1,5 @@
+
+
 **Lions joint practice takeaways: Dolphins respond but Detroit settles in on Day 2**\
 `While the Lions dominated Day 1, Miami responded on Day 2 of the teams' joint practices.`\
 https://nytimes.com/athletic/6554377/2025/08/14/lions-dolphins-joint-practice-day-2/
