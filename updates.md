@@ -1,3 +1,15 @@
+**Ben Healy on his stellar Tour de France: 'I was climbing up the Hautacam with a massive smile on my face'**\
+`The Irishman speaks to The Athletic about his career-defining summer and his plans for the road world championships next month `\
+https://nytimes.com/athletic/6548410/2025/08/14/ben-healy-interview-tour-de-france-2025/
+
+**Word of the Day: dovish**\
+`This word has appeared in 23 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2025/08/14/learning/word-of-the-day-dovish.html
+
+**3 Officers Injured in Virginia Shooting**\
+`A man opened fire on the sheriff’s deputies, wounding them with shrapnel, as they served warrants, officials said.`\
+https://nytimes.com/2025/08/14/us/virginia-shooting-officers.html
+
 **Late Night Hopes Trump’s New Hosting Gig Will Keep Him Busy**\
 `Nicole Byer said she supports Trump hosting this year's Kennedy Center Honors: “Anything that distracts him from running this country into the ground.”`\
 https://nytimes.com/2025/08/14/arts/television/late-night-trump.html
