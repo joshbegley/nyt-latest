@@ -1,3 +1,7 @@
+**Is Trump a Test or Triumph for Democracy?**\
+`Why the left can’t win until it reckons with this question.`\
+https://nytimes.com/video/opinion/100000010330631/is-trump-a-test-or-triumph-for-democracy.html
+
 **Leeds interested in Milan forward Okafor**\
 `Okafor spent the second half of the 2024-25 season on loan at Napoli, winning the Serie A title.`\
 https://nytimes.com/athletic/6552803/2025/08/14/leeds-noah-okafor-milan-interest/
