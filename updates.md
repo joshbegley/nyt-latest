@@ -1,3 +1,7 @@
+**Cubs' Miguel Amaya carted off field with left ankle sprain, will go on IL**\
+`The play occurred during the eighth inning of the Cubs' game against the Toronto Blue Jays.`\
+https://nytimes.com/athletic/6552519/2025/08/13/chicago-cubs-miguel-amaya-injury/
+
 **Rookie Drake Baldwin has exceeded expectations in otherwise dismal Braves season**\
 `With just over six weeks left in the season, Baldwin is favored to win the National League Rookie of the Year Award.`\
 https://nytimes.com/athletic/6552506/2025/08/13/braves-rookie-drake-baldwin-exceeded-expectations/

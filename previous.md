@@ -14,7 +14,7 @@ https://nytimes.com/2025/08/13/us/politics/trump-dc-national-guard-police.html
 `Gene Louise De Vera asks the important questions.`\
 https://nytimes.com/2025/08/13/crosswords/daily-puzzle-2025-08-14.html
 
-**Cubs' Miguel Amaya carted off field with apparent leg injury**\
+**Cubs' Miguel Amaya carted off field with left ankle sprain, will go on IL**\
 `The play occurred during the eighth inning of the Cubs' game against the Toronto Blue Jays.`\
 https://nytimes.com/athletic/6552519/2025/08/13/chicago-cubs-miguel-amaya-injury/
 
