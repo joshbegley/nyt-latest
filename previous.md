@@ -3,7 +3,7 @@
 https://nytimes.com/athletic/6552416/2025/08/13/chargers-training-camp-evaluation-ready/
 
 **Taylor Swift joins Travis Kelce on 'New Heights' podcast: What we learned (Taylor knows ball)**\
-`The mega-star made her first in-studio podcast appearance ever, joining her boyfriend to discuss her upcoming 12th album, the NFL and more.`\
+`The megastar made her first in-studio podcast appearance ever, joining her boyfriend to discuss her upcoming 12th album, the NFL and more.`\
 https://nytimes.com/athletic/6552267/2025/08/13/taylor-swift-new-heights-travis-kelce-album-takeaways/
 
 **George C. White, Founder of Eugene O’Neill Theater Center, Dies at 89**\
