@@ -1,3 +1,11 @@
+**D.C. Police Move to Share Limited Information With Federal Immigration Officials**\
+`Chief Pamela A. Smith’s order effectively serves as a carve-out to how the department enforces a broader ban that prohibits the local police from cooperating with federal law enforcement.`\
+https://nytimes.com/2025/08/14/us/politics/dc-police-federal-immigration-enforcement.html
+
+**MLB negotiating possible broadcast packages with Apple, Netflix, ESPN, NBC: Sources**\
+`Netflix has emerged as the potential Home Run Derby destination, while ESPN could add weekday games.`\
+https://nytimes.com/athletic/6553812/2025/08/14/mlb-negotiating-with-apple-netflix-espn-nbc-sources/
+
 **Scoop City: Four coaches on the hot seat**\
 `Mike McDaniel and Brian Daboll lead our list of coaches with plenty to prove this season, Stefon Diggs' uncertain Week 1 status`\
 https://nytimes.com/athletic/6553887/2025/08/14/nfl-coach-hot-seat-2025-scoop-city-giants-dolphins/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/08/14/us/politics/fact-check-trump-epstein.html
 **Wrexham sign Broadhead for club-record fee from Ipswich**\
 `Lewis O'Brien was the Welsh club's previous record transfer, only a month ago. `\
 https://nytimes.com/athletic/6553621/2025/08/14/wrexham-nathan-broadhead-club-record-transfer-ipswich/
-
-**Review: ‘Night Always Comes,’ Whether You Have a Home or Not**\
-`Vanessa Kirby plays a woman who has 24 desperate hours to scrape up the $25,000 that will buy a measure security for her and the brother she protects.`\
-https://nytimes.com/2025/08/14/movies/review-night-always-comes.html
-
-**Pilgrimage Route Hit as Flash Flood Kills Dozens in Kashmir**\
-`Hundreds more were missing, many of them Hindu pilgrims, after a cloudburst triggered flooding in mountainous terrain.`\
-https://nytimes.com/2025/08/14/world/asia/kashmir-flash-flood.html
 
