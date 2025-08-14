@@ -1,3 +1,11 @@
+**Vikings-Patriots joint practice: J.J. McCarthy's best practice of training camp and more**\
+`McCarthy completed 13 consecutive passes at one point and tallied six touchdowns during Thursday's practice.`\
+https://nytimes.com/athletic/6554637/2025/08/14/vikings-patriots-joint-practice-jj-mccarthy/
+
+**Judge Blocks White House Effort to Defund Schools With D.E.I. Programs**\
+`The Trump administration had asked states to certify that their schools did not practice “illegal D.E.I.” and threatened to cut off billions of dollars from schools that did not comply.`\
+https://nytimes.com/2025/08/14/us/politics/trump-dei-schools.html
+
 **Owen Caissie, Cubs' top prospect, debuts in Toronto as offense continues its struggles**\
 `Caissie's thunderous bat could not save a Cubs offense desperate for a clutch hit and searching for any sort of rhythm.`\
 https://nytimes.com/athletic/6554603/2025/08/14/owen-caissie-cubs-top-prospect-debuts-offense-struggles/

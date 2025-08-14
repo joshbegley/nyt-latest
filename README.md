@@ -1,3 +1,7 @@
+**Authorities Clear D.C. Homeless Camps as Part of Trump’s Takeover**\
+`City officials and advocates for the homeless had spent much of Thursday urging people in encampments to go to shelters.`\
+https://nytimes.com/2025/08/14/us/politics/dc-homeless-camps-trump.html
+
 **Vikings-Patriots joint practice: J.J. McCarthy's best practice of training camp and more**\
 `McCarthy completed 13 consecutive passes at one point and tallied six touchdowns during Thursday's practice.`\
 https://nytimes.com/athletic/6554637/2025/08/14/vikings-patriots-joint-practice-jj-mccarthy/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6554464/2025/08/14/patriots-defense-mike-vrabel-str
 **Fred Warner and injury-depleted 49ers keep heads cool against Raiders in desert practice**\
 `Also, rookie tackle Connor Colby impressed while QB Brock Purdy was sharper than he was in last week’s joint practice against the Broncos.`\
 https://nytimes.com/athletic/6554515/2025/08/14/fred-warner-49ers-raiders-joint-practices/
-
-**H.H.S. Resurrects Vaccine Safety Panel Disbanded Decades Ago**\
-`Anti-vaccine groups had sought the revival of the task force.`\
-https://nytimes.com/2025/08/14/health/kennedy-vaccine-safety-task-force.html
 
