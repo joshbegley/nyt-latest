@@ -1,3 +1,7 @@
+**Rookie Drake Baldwin has exceeded expectations in otherwise dismal Braves season**\
+`With just over six weeks left in the season, Baldwin is favored to win the National League Rookie of the Year Award.`\
+https://nytimes.com/athletic/6552506/2025/08/13/braves-rookie-drake-baldwin-exceeded-expectations/
+
 **D.C. Federal Deployment Ramps Up as Trump Threatens to Extend Takeover**\
 `The Army expects up to 200 soldiers out on the capital’s streets within the next few days at any given time in support of federal law enforcement.`\
 https://nytimes.com/2025/08/13/us/politics/national-guard-dc-trump-takeover.html
