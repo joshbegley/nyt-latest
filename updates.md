@@ -1,3 +1,7 @@
+**Rabbits With Hornlike Growths Are Hopping Around Colorado. Are They OK?**\
+`The unsightly bunnies are infected with cottontail rabbit papillomavirus, which can cause growths that resemble warts or tentacles.`\
+https://nytimes.com/2025/08/13/science/colorado-rabbits-tentacles-papilloma-virus.html
+
 **Trump’s D.C. Police Takeover and National Guard Deployment, Explained**\
 `President Trump is the first president to use a declared emergency to wrest control of Washington, D.C.’s police force.`\
 https://nytimes.com/2025/08/13/us/politics/trump-dc-national-guard-police.html
