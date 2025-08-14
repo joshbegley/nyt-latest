@@ -1,3 +1,15 @@
+**Panthers-Texans joint practice: Bryce Young and C.J. Stroud stay connected**\
+`Panthers safety Tre'von Moehrig brought the heat on Thursday. Houston players didn’t like it, but Moehrig didn’t particularly care.`\
+https://nytimes.com/athletic/6554278/2025/08/14/panthers-texans-bryce-young-c-j-stroud/
+
+**Adams Pushes to Force Drug Users Off New York City’s Streets**\
+`As he runs a long-shot third-party bid for re-election, Mayor Eric Adams is proposing an aggressive approach, favored by conservatives, of combating open drug use.`\
+https://nytimes.com/2025/08/14/nyregion/adams-involuntary-drugs-treatment.html
+
+**A 500-Year-Old Receipt for Supplies to Conquer an Empire Is Returned to Mexico**\
+`The document describes payments made for expedition supplies, and was signed by Hernán Cortés, who conquered the Aztecs.`\
+https://nytimes.com/2025/08/14/us/fbi-mexico-conquistador-cortes-document.html
+
 **Margaret Boden, Philosopher of Artificial Intelligence, Dies at 88**\
 `A cognitive scientist, she used the language of computers to explore the nature of human thought and creativity, offering prescient insights about A.I.`\
 https://nytimes.com/2025/08/14/science/margaret-boden-dead.html

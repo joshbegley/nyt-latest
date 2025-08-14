@@ -1,3 +1,15 @@
+**Panthers-Texans joint practice: Bryce Young and C.J. Stroud stay connected**\
+`Panthers safety Tre'von Moehrig brought the heat on Thursday. Houston players didn’t like it, but Moehrig didn’t particularly care.`\
+https://nytimes.com/athletic/6554278/2025/08/14/panthers-texans-bryce-young-c-j-stroud/
+
+**Adams Pushes to Force Drug Users Off New York City’s Streets**\
+`As he runs a long-shot third-party bid for re-election, Mayor Eric Adams is proposing an aggressive approach, favored by conservatives, of combating open drug use.`\
+https://nytimes.com/2025/08/14/nyregion/adams-involuntary-drugs-treatment.html
+
+**A 500-Year-Old Receipt for Supplies to Conquer an Empire Is Returned to Mexico**\
+`The document describes payments made for expedition supplies, and was signed by Hernán Cortés, who conquered the Aztecs.`\
+https://nytimes.com/2025/08/14/us/fbi-mexico-conquistador-cortes-document.html
+
 **Margaret Boden, Philosopher of Artificial Intelligence, Dies at 88**\
 `A cognitive scientist, she used the language of computers to explore the nature of human thought and creativity, offering prescient insights about A.I.`\
 https://nytimes.com/2025/08/14/science/margaret-boden-dead.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/08/14/dining/theres-never-been-a-better-to-time-to-love
 **In L.A., Fear of ICE Raids Created a Tense First Day of School**\
 `Officials and volunteers patrolled areas around schools, part of an effort to warn families about potential raids and reassure them that their children were safe at school.`\
 https://nytimes.com/2025/08/14/us/los-angeles-raids-school-patrols.html
-
-**Russia and Ukraine Continue Drone Attacks Before Putin-Trump Meeting**\
-`The Kremlin signaled that apart from Ukraine, it was also interested in discussing other subjects with the U.S., like economic links and nuclear arms. At the same time, Ukrainian President Volodymyr Zelensky met with the U.K. Prime Minister Keir Starmer in a show of unity.`\
-https://nytimes.com/video/world/europe/100000010341261/ukraine-russia-us-negotiations.html
-
-**Cost of buying new SailGP team expected to exceed $60m**\
-`The tender process for the two-team expansion closes on August 14.`\
-https://nytimes.com/athletic/6554019/2025/08/14/sailgp-team-expansion-team-cost/
-
-**Air Canada Cancels Flights Ahead of Possible Crippling Strike**\
-`The dominant air carrier in Canada set in motion a process that could ground 130,000 passengers a day by Saturday.`\
-https://nytimes.com/2025/08/14/world/canada/air-canada-flight-attendant-strike-canceled.html
 

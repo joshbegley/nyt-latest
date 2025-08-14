@@ -1,3 +1,11 @@
+**As Trump Seizes D.C.’s Police, Critics Say He’s Undercut Its Ability to Fight Crime**\
+`The Trump administration has taken steps that have hobbled Washington’s efforts to reduce crime, such as gutting its U.S. attorney’s office and enacting budget cuts of more than $1 billion.`\
+https://nytimes.com/2025/08/14/us/politics/trump-washington-dc-crime-police.html
+
+**Newsom Held an Event in L.A. Federal Immigration Agents Showed Up Outside.**\
+`The armed and masked agents assembled outside the museum where the governor was speaking. Mayor Karen Bass of Los Angeles called it “a provocative act.”`\
+https://nytimes.com/2025/08/14/us/newsom-la-immigration-agents.html
+
 **Panthers-Texans joint practice: Bryce Young and C.J. Stroud stay connected**\
 `Panthers safety Tre'von Moehrig brought the heat on Thursday. Houston players didn’t like it, but Moehrig didn’t particularly care.`\
 https://nytimes.com/athletic/6554278/2025/08/14/panthers-texans-bryce-young-c-j-stroud/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/08/14/climate/global-plastic-pollution-treaty.html
 **Whiskey Maker Honoring an Enslaved Distiller Is in a Fiscal Bind**\
 `A federal judge has ordered that Uncle Nearest be placed in receivership, after a lender claimed the company’s finances are in disarray.`\
 https://nytimes.com/2025/08/14/dining/uncle-nearest-whiskey-receivership.html
-
-**There’s Never Been a Better to Time to Love a Wine Bar**\
-`Wine bars with great menus just keep popping up across New York City. Here are three new ones to check out.`\
-https://nytimes.com/2025/08/14/dining/theres-never-been-a-better-to-time-to-love-a-wine-bar.html
-
-**In L.A., Fear of ICE Raids Created a Tense First Day of School**\
-`Officials and volunteers patrolled areas around schools, part of an effort to warn families about potential raids and reassure them that their children were safe at school.`\
-https://nytimes.com/2025/08/14/us/los-angeles-raids-school-patrols.html
 
