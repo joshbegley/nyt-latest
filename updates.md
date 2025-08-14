@@ -1,3 +1,11 @@
+**Dodgers blow another game, slip out of first place: ‘Obviously, it doesn’t feel good’**\
+`Just 41 days ago, the Dodgers held a nine-game advantage and full control of the NL West. Now they're looking up at the Padres.`\
+https://nytimes.com/athletic/6552727/2025/08/14/los-angeles-dodgers-nl-west-race/
+
+**Newcastle reach agreement to sign Ramsey from Villa**\
+`Newcastle emerged as the 24-year-old's preferred destination despite interest from other clubs such as West Ham United.`\
+https://nytimes.com/athletic/6495539/2025/08/14/jacob-ramsey-newcastle-aston-villa-transfer/
+
 **Newcastle reach agreement to sign Ramsey from Villa**\
 `Newcastle have emerged as the 24-year-old's preferred destination despite interest from other clubs such as West Ham United.`\
 https://nytimes.com/athletic/6495539/2025/08/14/jacob-ramsey-newcastle-aston-villa-transfer/
