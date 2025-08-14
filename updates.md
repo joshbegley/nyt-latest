@@ -1,3 +1,7 @@
+**What will the Timberwolves' roster look like this season? Expect continuity**\
+`Minnesota has mostly tinkered around the edges after making back-to-back Western Conference finals.`\
+https://nytimes.com/athletic/6536869/2025/08/14/timberwolves-roster-preview-mike-conley-anthony-edwards/
+
 **Taylor Swift and Drake Go Long to Promote Their Albums**\
 `The two megastars recently sat for hourslong video conversations on streaming platforms, reflecting a shift in how the ultrafamous cultivate both casual and die-hard fans.`\
 https://nytimes.com/2025/08/14/arts/music/celebrity-podcasts-taylor-swift-drake.html

@@ -1,3 +1,7 @@
+**What will the Timberwolves' roster look like this season? Expect continuity**\
+`Minnesota has mostly tinkered around the edges after making back-to-back Western Conference finals.`\
+https://nytimes.com/athletic/6536869/2025/08/14/timberwolves-roster-preview-mike-conley-anthony-edwards/
+
 **Taylor Swift and Drake Go Long to Promote Their Albums**\
 `The two megastars recently sat for hourslong video conversations on streaming platforms, reflecting a shift in how the ultrafamous cultivate both casual and die-hard fans.`\
 https://nytimes.com/2025/08/14/arts/music/celebrity-podcasts-taylor-swift-drake.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/08/14/us/trump-news
 **Do the Knicks need to make NBA Finals and other New York fan survey results**\
 `Knicks fans voice their opinions on the state of the franchise and the season ahead. `\
 https://nytimes.com/athletic/6551249/2025/08/14/knicks-fan-survey-nba-finals/
-
-**How Jaxon Smith-Njigba, Cooper Kupp could co-exist in the Seahawks' new offense**\
-`The Seahawks are banking on two slot-heavy receivers to fit together cleanly. Friday, we could get our first glimpse at how they'll be used.`\
-https://nytimes.com/athletic/6552439/2025/08/14/jsn-cooper-kupp-seahawks-preseason/
 

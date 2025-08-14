@@ -1,3 +1,19 @@
+**A Riad With a Rooftop Pool in Marrakesh**\
+`Plus: playful knitwear, new takes on Classical plinths and more recommendations from T Magazine.`\
+https://nytimes.com/2025/08/14/t-magazine/hotel-marrakesh.html
+
+**Gustavo Hamer scores from halfway: An audacious Hail Mary Tom Brady would be proud of**\
+`Tom Brady has attempted a few Hail Marys in his time, but his Birmingham City was at the wrong end of soccer's equivalent on Wednesday`\
+https://nytimes.com/athletic/6552962/2025/08/14/birmingham-city-gustavo-hamer-tom-brady-halfway-line/
+
+**Manchester United 2025-26 season preview: Live Q&A with Laurie Whitwell**\
+`Post your questions and our Manchester United writer will answer as many as possible`\
+https://nytimes.com/athletic/6546619/2025/08/14/manchester-united-season-preview-laurie-whitwell/
+
+**Map: Minor Earthquake Strikes the San Francisco Bay Area**\
+`View the location of the quake’s epicenter and shake area.`\
+https://nytimes.com/interactive/2025/08/14/us/earthquake-san-francisco-bay-area-tracker.html
+
 **What will the Timberwolves' roster look like this season? Expect continuity**\
 `Minnesota has mostly tinkered around the edges after making back-to-back Western Conference finals.`\
 https://nytimes.com/athletic/6536869/2025/08/14/timberwolves-roster-preview-mike-conley-anthony-edwards/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6553099/2025/08/14/nottingham-forest-transfer-arnau
 **No Corrections: Aug. 14, 2025**\
 `No corrections appeared in print on Thursday, Aug. 14, 2025.`\
 https://nytimes.com/2025/08/14/pageoneplus/no-corrections-aug-14-2025.html
-
-**By the numbers: How the Padres overtook the Dodgers in the race for the NL West**\
-`The Padres are threatening to end the Dodgers’ reign over the NL West. How, against the odds, did they reach this point?`\
-https://nytimes.com/athletic/6551603/2025/08/14/sd-padres-la-dodgers-nl-west-race/
-
-**Even Taylor Swift Can’t Resist Podcasts, the Celebrity Safe Space**\
-`For stars promoting their projects, podcasts have become an appealing alternative to late-night TV and glossy magazines.`\
-https://nytimes.com/2025/08/14/business/media/taylor-swift-podcast-celebrity-interviews.html
-
-**Trump Administration Live Updates: Federal Deployment Ramps Up in D.C.**\
-``\
-https://nytimes.com/live/2025/08/14/us/trump-news
-
-**Do the Knicks need to make NBA Finals and other New York fan survey results**\
-`Knicks fans voice their opinions on the state of the franchise and the season ahead. `\
-https://nytimes.com/athletic/6551249/2025/08/14/knicks-fan-survey-nba-finals/
 
