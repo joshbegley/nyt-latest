@@ -1,3 +1,19 @@
+**The Third Rock From Another Sun Shows No Signs of Life So Far**\
+`Astronomers had hoped to observe an atmosphere on one of the seven planets known to orbit Trappist-1, a red dwarf star. A new study found nothing to write home about.`\
+https://nytimes.com/2025/08/14/science/trappist-1d-webb-life-planet.html
+
+**Worse than a stock market crash: How Yankees, Mets collapse has played out in betting odds**\
+`The Yankees and Mets are both slumping lately and their futures odds have fallen off a cliff.`\
+https://nytimes.com/athletic/6553771/2025/08/14/yankees-mets-new-york-baseball-collapse-odds-betting/
+
+**Brentford agree club-record deal with Bournemouth for Ouattara**\
+`The 23-year-old has been authorised to travel for a medical on Friday. `\
+https://nytimes.com/athletic/6542267/2025/08/14/dango-ouattara-brentford-bournemouth-deal-agreed-transfer/
+
+**Browns RB Quinshon Judkins won't face domestic violence charges**\
+`Prosecutors say there was "no reasonable likelihood of conviction" in case against rookie running back.`\
+https://nytimes.com/athletic/6554355/2025/08/14/browns-quinshon-judkins-domestic-violence-charges/
+
 **NASCAR considering moving All-Star Race to Dover: Sources**\
 `Dover hosting the All-Star Race would clear a spot for North Wilkesboro Speedway to land a Cup points race, which it hasn't done since 1996.`\
 https://nytimes.com/athletic/6554454/2025/08/14/nascar-considering-moving-all-star-race-to-dover-sources/
