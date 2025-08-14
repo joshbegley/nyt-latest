@@ -1,3 +1,11 @@
+**'Badge, Bravery, Spirit' - Manchester United's message to staff before 'now or never' season begins**\
+`New core values, a refurbished Carrington and honest talk from Ruben Amorim reflect what feels like all or nothing at Manchester United`\
+https://nytimes.com/athletic/6551251/2025/08/14/badge-bravery-spirit-manchester-united/
+
+**Why Frank's 'special operation' offered promise even if Tottenham succumbed at the last**\
+`The new Spurs manager needed to devise a game plan for PSG after a heavy defeat to Bayern, and his tactical approach almost paid off`\
+https://nytimes.com/athletic/6552380/2025/08/14/tottenham-frank-psg-supercup-richarlison-kudus/
+
 **Protest Breaks Out at Police Checkpoint in D.C.**\
 `The police and federal agents set up a vehicle checkpoint on 14th street, drawing protesters who directed drivers away from the block.`\
 https://nytimes.com/video/us/100000010340116/national-guard-dc-trump-takeover.html
