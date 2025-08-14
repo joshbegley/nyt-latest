@@ -1,3 +1,19 @@
+**Attracting The Right People With The Right Benefits**\
+`Dental and vision care can be critical to our personal health. They’re also critical to a company’s recruitment and benefits strategy. `\
+https://nytimes.com/paidpost/humana/attracting-the-right-people-with-the-right-benefits.html
+
+**Hudson-Odoi close to agreeing new contract with Forest**\
+`The 24-year-old's current contract is set to expire in the summer of 2026.`\
+https://nytimes.com/athletic/6554323/2025/08/14/callum-hudson-odoi-nottingham-forest-contract-talks/
+
+**Friday Briefing: Ukraine’s Fate**\
+`Plus: To appreciate a dancer, watch the hands.`\
+https://nytimes.com/2025/08/14/briefing/ukraine-putin-trump-russia-gaza-aid.html
+
+**America’s New Segregation**\
+`To be one nation, we have to embrace ground-up social change.`\
+https://nytimes.com/2025/08/14/opinion/trump-democrats-resistance-reform.html
+
 **As Trump Seizes D.C.’s Police, Critics Say He’s Undercut Its Ability to Fight Crime**\
 `The Trump administration has taken steps that have hobbled Washington’s efforts to reduce crime, such as gutting its U.S. attorney’s office and enacting budget cuts of more than $1 billion.`\
 https://nytimes.com/2025/08/14/us/politics/trump-washington-dc-crime-police.html
@@ -21,20 +37,4 @@ https://nytimes.com/2025/08/14/us/fbi-mexico-conquistador-cortes-document.html
 **Margaret Boden, Philosopher of Artificial Intelligence, Dies at 88**\
 `A cognitive scientist, she used the language of computers to explore the nature of human thought and creativity, offering prescient insights about A.I.`\
 https://nytimes.com/2025/08/14/science/margaret-boden-dead.html
-
-**How Cuomo Wants to Limit Who Gets to Live in Rent-Stabilized Units**\
-`Former Gov. Andrew M. Cuomo’s proposal is a dig at Zohran Mamdani, his main opponent in the mayor’s race, but it could upend the housing search for middle-income New Yorkers.`\
-https://nytimes.com/2025/08/14/nyregion/cuomo-mamdani-zohrans-law.html
-
-**Federal Prosecutors Seek Death Penalty in Fatal Shooting of Border Patrol Agent**\
-`A federal grand jury in Vermont indicted Teresa Youngblut, 21, on murder and other charges, seven months after a violent encounter during a traffic stop.`\
-https://nytimes.com/2025/08/14/us/border-patrol-shooting-vermont.html
-
-**Why the World Is Deadlocked Over a Treaty to Stop Plastics Pollution**\
-`After three years of talks, and despite growing warnings about the dangers of plastics pollution, nations are at an impasse again over what to do about it.`\
-https://nytimes.com/2025/08/14/climate/global-plastic-pollution-treaty.html
-
-**Whiskey Maker Honoring an Enslaved Distiller Is in a Fiscal Bind**\
-`A federal judge has ordered that Uncle Nearest be placed in receivership, after a lender claimed the company’s finances are in disarray.`\
-https://nytimes.com/2025/08/14/dining/uncle-nearest-whiskey-receivership.html
 
