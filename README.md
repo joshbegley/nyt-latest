@@ -1,3 +1,19 @@
+**Newcastle reach agreement to sign Ramsey from Villa**\
+`Newcastle have emerged as the 24-year-old's preferred destination despite interest from other clubs such as West Ham United.`\
+https://nytimes.com/athletic/6495539/2025/08/14/jacob-ramsey-newcastle-aston-villa-transfer/
+
+**Stone Stacks Litter Pristine Trails. A Grumpy Hiker Is Kicking Back.**\
+`Rock piles have proliferated on some trails in recent years, irking conservationists. Stuart Cox has been applying his boot to the issue.`\
+https://nytimes.com/2025/08/14/us/hiking-peak-district-stone-stacks.html
+
+**Live Q&A: Discuss Tottenham Hotspur's upcoming season with Jack Pitt-Brooke**\
+`Spurs get their campaign under way on Saturday - do you have a question for our correspondent?`\
+https://nytimes.com/athletic/6552885/2025/08/14/spurs-questions-jack-pitt-brooke/
+
+**Live Q&A: Discuss Everton's upcoming season with Patrick Boyland**\
+`Everton get their campaign under way on Monday night - do you have a question for our correspondent?`\
+https://nytimes.com/athletic/6553102/2025/08/14/questions-everton-patrick-boyland/
+
 **A Riad With a Rooftop Pool in Marrakesh**\
 `Plus: playful knitwear, new takes on Classical plinths and more recommendations from T Magazine.`\
 https://nytimes.com/2025/08/14/t-magazine/hotel-marrakesh.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6536869/2025/08/14/timberwolves-roster-preview-mike
 **Taylor Swift and Drake Go Long to Promote Their Albums**\
 `The two megastars recently sat for hourslong video conversations on streaming platforms, reflecting a shift in how the ultrafamous cultivate both casual and die-hard fans.`\
 https://nytimes.com/2025/08/14/arts/music/celebrity-podcasts-taylor-swift-drake.html
-
-**Premier League redistribution deal rejected by EFL before football governance bill passed**\
-`The offer, delivered with the support of the Premier League CEO Richard Masters, was made in April.`\
-https://nytimes.com/athletic/6553163/2025/08/14/premier-league-efl-offer-football-regulator/
-
-**Premier League planning Diogo Jota, Andre Silva tributes for opening weekend**\
-`Every league fixture across the opening weekend will see a moment's silence held and the players wearing black armbands.`\
-https://nytimes.com/athletic/6553158/2025/08/14/diogo-jota-tributes-premier-league/
-
-**Forest in talks with Rennes over Kalimuendo deal**\
-`No formal offer has been submitted, but negotiations are progressing over a potential package worth around £26million.`\
-https://nytimes.com/athletic/6553099/2025/08/14/nottingham-forest-transfer-arnaud-kalimuendo-rennes/
-
-**No Corrections: Aug. 14, 2025**\
-`No corrections appeared in print on Thursday, Aug. 14, 2025.`\
-https://nytimes.com/2025/08/14/pageoneplus/no-corrections-aug-14-2025.html
 
