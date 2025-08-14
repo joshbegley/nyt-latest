@@ -1,3 +1,7 @@
+**Rashee Rice expected to play first 4 games as NFL schedules hearing: Source**\
+`With his hearing set for Sept. 30, Rice is unlikely to face discipline for his role in a 2024 car crash until after the first four games.`\
+https://nytimes.com/athletic/6553601/2025/08/14/chiefs-rashee-rice-disciplinary-hearing/
+
 **Chiefs' Rashee Rice expected to play first 4 games after NFL hearing scheduled: Source**\
 `With his hearing set for Sept. 30, Rice is unlikely to face discipline for his role in a 2024 car crash until after the first four games.`\
 https://nytimes.com/athletic/6553601/2025/08/14/chiefs-rashee-rice-disciplinary-hearing/

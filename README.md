@@ -1,3 +1,11 @@
+**What the historically lousy play at Oracle Park tells us about the 2025 Giants**\
+`The Giants are keeping company with some of the worst teams in MLB history, and much of the core of the roster is expected back next year.`\
+https://nytimes.com/athletic/6552569/2025/08/14/sf-giants-home-park-losing-streak/
+
+**Tariffs Set to Hit Ireland, Where U.S. Drugmakers Play Tax Games**\
+`Manufacturing in Ireland has long helped many American drug companies pay lower taxes. But that strategy was designed for a world without President Trump’s tariffs.`\
+https://nytimes.com/2025/08/14/health/pharma-tariffs-ireland-taxes.html
+
 **Rashee Rice expected to play first 4 games as NFL schedules hearing: Source**\
 `With his hearing set for Sept. 30, Rice is unlikely to face discipline for his role in a 2024 car crash until after the first four games.`\
 https://nytimes.com/athletic/6553601/2025/08/14/chiefs-rashee-rice-disciplinary-hearing/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6553469/2025/08/14/minnesota-twins-ownership-the-wi
 **For Some Patients, the ‘Inner Voice’ May Soon Be Audible**\
 `In a recent study, scientists successfully decoded not only the words people tried to say but the words they merely imagined saying.`\
 https://nytimes.com/2025/08/14/science/brain-neuroscience-computers-speech.html
-
-**‘This Was a Revelation in Cooking Eggplant’**\
-`Sue Li’s five-star sweet and sour eggplant pairs the versatile vegetable with an assertive soy-vinegar sauce and crispy garlic chips.`\
-https://nytimes.com/2025/08/14/dining/this-was-a-revelation-in-cooking-eggplant.html
-
-**Red Light: The modern NHLer's offseason routine. Plus: Why do hockey games have three periods? ͏‌**\
-`It’s mid-August, but to me that’s as good a time as any to talk about some puck, no?`\
-https://nytimes.com/athletic/6553495/2025/08/14/red-light-nhlers-offseason-routine/
 
