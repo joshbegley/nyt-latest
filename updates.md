@@ -1,3 +1,7 @@
+**Protest Breaks Out at Police Checkpoint in D.C.**\
+`The police and federal agents set up a vehicle checkpoint on 14th street, drawing protesters who directed drivers away from the block.`\
+https://nytimes.com/video/us/100000010340116/national-guard-dc-trump-takeover.html
+
 **Why Frank's 'special operation' offered promise even if Tottenham succumbed at the last**\
 `The new Spurs manager needed to devise a game plan after a heavy defeat to Bayern, and his tactical approach almost paid off against PSG`\
 https://nytimes.com/athletic/6552380/2025/08/14/tottenham-frank-psg-supercup-richarlison-kudus/

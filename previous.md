@@ -1,3 +1,7 @@
+**Protest Breaks Out at Police Checkpoint in D.C.**\
+`The police and federal agents set up a vehicle checkpoint on 14th street, drawing protesters who directed drivers away from the block.`\
+https://nytimes.com/video/us/100000010340116/national-guard-dc-trump-takeover.html
+
 **Why Frank's 'special operation' offered promise even if Tottenham succumbed at the last**\
 `The new Spurs manager needed to devise a game plan after a heavy defeat to Bayern, and his tactical approach almost paid off against PSG`\
 https://nytimes.com/athletic/6552380/2025/08/14/tottenham-frank-psg-supercup-richarlison-kudus/
@@ -33,8 +37,4 @@ https://nytimes.com/issue/todayspaper/2025/08/14/todays-new-york-times
 **You Can Buy One of the C.I.A.’s Greatest Mysteries at an Auction House**\
 `Sleuths have solved three of the panels of the Kryptos sculpture at the agency’s headquarters. Now the artwork’s creator is announcing the sale of the solution to the fourth.`\
 https://nytimes.com/2025/08/14/science/kryptos-sculpture-cia-solution-auction.html
-
-**Sudan, Battered by War, Is Hit by Its ‘Worst Cholera Outbreak’ in Years**\
-`International charities warned that, left unchecked, the disease’s spread might exacerbate similar outbreaks across the African region for weeks or months to come.`\
-https://nytimes.com/2025/08/14/world/africa/sudan-cholera-outbreak.html
 
