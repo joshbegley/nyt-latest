@@ -1,3 +1,11 @@
+**Troops in Washington Remain Largely Unseen So Far**\
+`Federal agents are assisting the local police, but a surge in National Guard troops hasn’t hit the streets.`\
+https://nytimes.com/2025/08/14/us/troops-washington-trump.html
+
+**What can Browns do for your 2025 fantasy football team? Could Shedeur Sanders be in play?**\
+`Gary Davenport is a Cleveland Browns fan, and he tries hard to find some value in the team's roster for fantasy football 2025.`\
+https://nytimes.com/athletic/6552560/2025/08/14/fantasy-football-cleveland-browns-shedeur-sanders/
+
 **Pediatricians’ Plea: Don’t Separate Migrant Families**\
 `Pediatricians call for keeping migrant families intact. Also: Nuclear pessimism; a view from Canada; “cleaning up” D.C.; food stamps; books, read and unread.`\
 https://nytimes.com/2025/08/14/opinion/pediatricians-migrant-families-separation.html
