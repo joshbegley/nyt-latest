@@ -1,3 +1,7 @@
+**Eagles-Browns practice takeaways: Landon Dickerson's beer run, safeties surge and more**\
+`The Browns beat the Eagles on two trick plays: a halfback pass across the field and a hook-and-ladder on a two-point conversion.`\
+https://nytimes.com/athletic/6553762/2025/08/14/eagles-browns-takeaways-landon-dickersons-beer-run-safety-offensive-line/
+
 **Eagles-Browns takeaways: Landon Dickerson's beer run, safeties surge, offensive line tested**\
 `The Browns beat the Eagles on two trick plays: a halfback pass across the field and a hook-and-ladder on a two-point conversion.`\
 https://nytimes.com/athletic/6553762/2025/08/14/eagles-browns-takeaways-landon-dickersons-beer-run-safety-offensive-line/

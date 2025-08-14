@@ -22,7 +22,7 @@ https://nytimes.com/athletic/6546868/2025/08/14/nottingham-forest-james-mcatee-a
 `Sports, science, technology, research—for the University of Notre Dame, it’s not a question. It’s a call to action.`\
 https://nytimes.com/paidpost/notre-dame-what-would-you-fight-for/notre-dame-video-ad-post/what-would-you-fight-for.html
 
-**Eagles-Browns takeaways: Landon Dickerson's beer run, safeties surge, offensive line tested**\
+**Eagles-Browns practice takeaways: Landon Dickerson's beer run, safeties surge and more**\
 `The Browns beat the Eagles on two trick plays: a halfback pass across the field and a hook-and-ladder on a two-point conversion.`\
 https://nytimes.com/athletic/6553762/2025/08/14/eagles-browns-takeaways-landon-dickersons-beer-run-safety-offensive-line/
 
