@@ -1,40 +1,40 @@
+**The U.S. Is Auctioning a Seized Russian Yacht. Will Anyone Buy It?**\
+`The Justice Department said the yacht, Amadea, was worth at least $300 million when it was seized in 2022 from a Russian oligarch. It’s unlikely to sell for that price.`\
+https://nytimes.com/2025/08/14/world/europe/russian-yacht-seized-sanctions-auction.html
+
+**Under the Radar New Zealand Wines to Seek Out Now**\
+`Despite its short history of wine, these producers, from Central Otago and North Canterbury, are making bottles that are ravishing and distinctive.`\
+https://nytimes.com/2025/08/14/dining/drinks/new-zealand-wines.html
+
+**It’s a New TV Musical, Charlie Brown**\
+`The last “Peanuts” musical on TV was over 35 years ago. An Apple TV+ special recalls the classics while taking a slightly different direction.`\
+https://nytimes.com/2025/08/14/arts/television/snoopy-presents-a-summer-musical-apple-tv-plus.html
+
+**Treating Chronic Pain is Hard. An Experimental Approach Shows Promise.**\
+`A guitarist in a death metal band was one of several people who found that personalized deep brain stimulation eased their pain and helped them reduce pain medication.`\
+https://nytimes.com/2025/08/14/health/pain-personalized-brain-stimulation.html
+
 **Is Trump a Test or Triumph for Democracy?**\
 `Why the left can’t win until it reckons with this question.`\
-https://nytimes.com/video/opinion/100000010330631/is-trump-a-test-or-triumph-for-democracy.html
+https://nytimes.com/2025/08/14/opinion/trump-democracy-test-left.html
 
-**Leeds interested in Milan forward Okafor**\
-`Okafor spent the second half of the 2024-25 season on loan at Napoli, winning the Serie A title.`\
-https://nytimes.com/athletic/6552803/2025/08/14/leeds-noah-okafor-milan-interest/
+**These Artists Want You to Stop and Smell the Waste**\
+`In a cleareyed show at MoMA PS1 in Queens, artists wrestle with the refuse of consumer society. They’re not just worried about the environment. They’re rummaging for the human spirit.`\
+https://nytimes.com/2025/08/14/arts/design/the-gatherers-review-moma-ps1.html
 
-**Chelsea to pay Club World Cup bonus to family of Diogo Jota, Andre Silva**\
-`Jota and his brother died in a car accident in Spain on July 3, 10 days prior to Chelsea's Club World Cup final victory.`\
-https://nytimes.com/athletic/6551143/2025/08/14/diogo-jota-family-chelsea-donation/
+**I’m in Addiction Recovery and I Still Drink Wine**\
+`There’s no single way to achieve addiction recovery.`\
+https://nytimes.com/2025/08/14/opinion/non-sober-addiction-recovery.html
 
-**Premier League top 4 odds: Will there be a surprise Champions League entrant?**\
-`The race for Champions League qualification was the most exciting part of last season. Will this year's race be as close?`\
-https://nytimes.com/athletic/6551290/2025/08/14/premier-league-top-4-odds-man-united-chelsea-newcastle/
+**‘Suspended Time’ Review: A Nostalgic Detour**\
+`The French filmmaker Olivier Assayas meanders down memory lane in a story about two brothers returning to their family home during the Covid pandemic.`\
+https://nytimes.com/2025/08/14/movies/suspended-time-review-a-nostalgic-detour.html
 
-**Does Earning $142,000 in New York City Make You Rich?**\
-`Andrew Cuomo is basing his new line of attack against Zohran Mamdani on a certain definition of wealth. But the reality is complicated.`\
-https://nytimes.com/2025/08/14/nyregion/who-is-rich-new-york-city.html
+**Homes for Sale in Manhattan and Brooklyn**\
+`This week’s properties are two-bedroom units in Hudson Heights and Midtown and a multifamily house in Greenwood Heights.`\
+https://nytimes.com/2025/08/14/realestate/housing-market-nyc.html
 
-**Will New York’s Governor Endorse Mamdani for Mayor?**\
-`Gov. Kathy Hochul, who withheld an endorsement in the New York City Democratic primary, has yet to endorse the winner, Zohran Mamdani.`\
-https://nytimes.com/2025/08/14/nyregion/hochul-mamdani-cuomo-endorsement.html
-
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2025/08/14/crosswords/spelling-bee-forum.html
-
-**Mikel Arteta exclusive: His 'evolution' as a manager and the 'gift' of developing young talent**\
-`Mikel Arteta speaks to The Athletic on the eve of his seventh season with Arsenal. 'There is much more to come,' he says`\
-https://nytimes.com/athletic/6551609/2025/08/14/arsenal-mikel-arteta-interview-talent/
-
-**'Badge, Bravery, Spirit' - Manchester United's message to staff before 'now or never' season begins**\
-`New core values, a refurbished Carrington and honest talk from Ruben Amorim reflect what feels like all or nothing at Manchester United`\
-https://nytimes.com/athletic/6551251/2025/08/14/badge-bravery-spirit-manchester-united/
-
-**Protest Breaks Out at Police Checkpoint in D.C.**\
-`The police and federal agents set up a vehicle checkpoint on 14th street, drawing protesters who directed drivers away from the block.`\
-https://nytimes.com/video/us/100000010340116/national-guard-dc-trump-takeover.html
+**‘My Undesirable Friends: Part I — Last Air in Moscow’ Review: Strangling Democracy**\
+`One of the year’s most towering achievements is a documentary about Russian independent journalism being wiped out in real time.`\
+https://nytimes.com/2025/08/14/movies/my-undesirable-friends-part-i-last-air-in-moscow-review.html
 

@@ -1,40 +1,40 @@
-**The U.S. Is Auctioning a Seized Russian Yacht. Will Anyone Buy It?**\
-`The Justice Department said the yacht, Amadea, was worth at least $300 million when it was seized in 2022 from a Russian oligarch. It’s unlikely to sell for that price.`\
-https://nytimes.com/2025/08/14/world/europe/russian-yacht-seized-sanctions-auction.html
+**Liverpool reach agreement to sign Leoni from Parma**\
+`The Premier League club will pay a fee in the region of £26million plus add-ons for the 18-year-old.`\
+https://nytimes.com/athletic/6552813/2025/08/14/liverpool-transfers-giovanni-leoni/
 
-**Under the Radar New Zealand Wines to Seek Out Now**\
-`Despite its short history of wine, these producers, from Central Otago and North Canterbury, are making bottles that are ravishing and distinctive.`\
-https://nytimes.com/2025/08/14/dining/drinks/new-zealand-wines.html
+**Fantasy football managers hate these players. I love them**\
+`Michael Salfino shows the love to Justin Fields, Cooper Kupp and several other players the fantasy football market is fading.`\
+https://nytimes.com/athletic/6551283/2025/08/14/fantasy-football-undervalued-adp-fields-kupp/
 
-**It’s a New TV Musical, Charlie Brown**\
-`The last “Peanuts” musical on TV was over 35 years ago. An Apple TV+ special recalls the classics while taking a slightly different direction.`\
-https://nytimes.com/2025/08/14/arts/television/snoopy-presents-a-summer-musical-apple-tv-plus.html
+**Trump Wants to ‘Take Back’ D.C., but the Federal Government Already Controls Much of It**\
+`The president and his allies have berated local officials. Yet the federal government has often made it harder for those officials to manage the capital.`\
+https://nytimes.com/2025/08/14/upshot/washington-dc-home-rule.html
 
-**Treating Chronic Pain is Hard. An Experimental Approach Shows Promise.**\
-`A guitarist in a death metal band was one of several people who found that personalized deep brain stimulation eased their pain and helped them reduce pain medication.`\
-https://nytimes.com/2025/08/14/health/pain-personalized-brain-stimulation.html
+**Why a ‘Paleo-Confederate’ Pastor Is on the Rise**\
+`Trump isn’t just shaping the nation; he’s also changing the evangelical church.`\
+https://nytimes.com/2025/08/14/opinion/douglas-wilson-evangelical-hegseth.html
 
-**Is Trump a Test or Triumph for Democracy?**\
-`Why the left can’t win until it reckons with this question.`\
-https://nytimes.com/2025/08/14/opinion/trump-democracy-test-left.html
+**Alaska’s Ukrainian Refugees Brace for Putin’s Arrival in Their Safe Harbor**\
+`Ukraine’s president, Volodymyr Zelensky, was not invited to the Trump-Putin summit in Anchorage, but 1,000 Ukrainian refugees in Alaska will be watching with trepidation.`\
+https://nytimes.com/2025/08/14/us/politics/putin-trump-alaska.html
 
-**These Artists Want You to Stop and Smell the Waste**\
-`In a cleareyed show at MoMA PS1 in Queens, artists wrestle with the refuse of consumer society. They’re not just worried about the environment. They’re rummaging for the human spirit.`\
-https://nytimes.com/2025/08/14/arts/design/the-gatherers-review-moma-ps1.html
+**A Maple Syrup Farmer Lands on the Upper East Side for His Next Chapter**\
+`Seeking to reinvent himself as a writer, an ‘empty-nest bachelor’ looked for a co-op in Carnegie Hill for around $500,000.`\
+https://nytimes.com/interactive/2025/08/14/realestate/upper-east-side-carnegie-hill-apartments.html
 
-**I’m in Addiction Recovery and I Still Drink Wine**\
-`There’s no single way to achieve addiction recovery.`\
-https://nytimes.com/2025/08/14/opinion/non-sober-addiction-recovery.html
+**Carrie Bradshaw’s Life in New York City Apartments (and the Townhouse)**\
+`The end of “And Just Like That …” means the end of a real estate portfolio that includes a cozy Upper East Side studio and a grand Gramercy townhouse.`\
+https://nytimes.com/2025/08/14/realestate/carrie-bradshaw-apartments-sex-and-the-city.html
 
-**‘Suspended Time’ Review: A Nostalgic Detour**\
-`The French filmmaker Olivier Assayas meanders down memory lane in a story about two brothers returning to their family home during the Covid pandemic.`\
-https://nytimes.com/2025/08/14/movies/suspended-time-review-a-nostalgic-detour.html
+**Fed Faces High Bar for Big Cuts Despite White House Pressure**\
+`The Federal Reserve is poised to lower interest rates in September. But signs of stickier inflation could limit how much relief officials can ultimately provide to borrowers.`\
+https://nytimes.com/2025/08/14/business/fed-faces-high-bar-for-big-cuts-despite-white-house-pressure.html
 
-**Homes for Sale in Manhattan and Brooklyn**\
-`This week’s properties are two-bedroom units in Hudson Heights and Midtown and a multifamily house in Greenwood Heights.`\
-https://nytimes.com/2025/08/14/realestate/housing-market-nyc.html
+**‘And Just Like That …’ Is Over Too Soon**\
+`Wesley and Taffy Brodesser-Akner loved the reboot that everyone else loved to hate.`\
+https://nytimes.com/2025/08/14/podcasts/and-just-like-that-finale-cannonball.html
 
-**‘My Undesirable Friends: Part I — Last Air in Moscow’ Review: Strangling Democracy**\
-`One of the year’s most towering achievements is a documentary about Russian independent journalism being wiped out in real time.`\
-https://nytimes.com/2025/08/14/movies/my-undesirable-friends-part-i-last-air-in-moscow-review.html
+**How China Went From Clean Energy Copycat to Global Innovator**\
+`A surge in high quality research and patent applications has cemented China’s dominance in the industry.`\
+https://nytimes.com/interactive/2025/08/14/climate/china-clean-energy-patents.html
 
