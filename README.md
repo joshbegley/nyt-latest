@@ -1,3 +1,15 @@
+**Fact-Checking Trump on Epstein**\
+`For the most part, President Trump has ignored questions about Jeffrey Epstein, a registered sex offender who paid teenage girls for sex.`\
+https://nytimes.com/video/us/politics/100000010336922/fact-checking-trump-on-epstein.html
+
+**Fantasy bullpen report featuring a problem in Houston and a timeshare in Detroit**\
+`Greg Jewett looks at the notable fantasy baseball developments across MLB bullpens, including a rare shakeup at closer in Houston.`\
+https://nytimes.com/athletic/6553529/2025/08/14/fantasy-baseball-bullpen-report-relievers-houston-detroit/
+
+**Plan to Add 9,500 Homes to Midtown Expected to Get City Council Approval**\
+`The plan would open a swath of Manhattan, including the garment district, to residential development.`\
+https://nytimes.com/2025/08/14/nyregion/midtown-manhattan-residential-development.html
+
 **D.C. Police Move to Share Limited Information With Federal Immigration Officials**\
 `Chief Pamela A. Smith’s order effectively serves as a carve-out to how the department enforces a broader ban that prohibits the local police from cooperating with federal immigration enforcement.`\
 https://nytimes.com/2025/08/14/us/politics/dc-police-federal-immigration-enforcement.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/08/14/opinion/pediatricians-migrant-families-separation
 **A Jerome Robbins Festival: Sparkling, Intimate, Imperfect**\
 `Tiler Peck has curated a program of Robbins’s dances at the Joyce Theater featuring casts of ballet luminaries and rising stars.`\
 https://nytimes.com/2025/08/14/arts/dance/jerome-robbins-ballet-festival-tiler-peck.html
-
-**Echoes of Old Walls Appear, Briefly, in Britain’s Arid Soil**\
-`Unusually dry conditions are revealing the outlines of old walls at British historical sites. Climate change is making the lines, called “parchmarks,” more frequently visible.`\
-https://nytimes.com/2025/08/14/world/europe/britain-archaeology-parchmarks-dry.html
-
-**Fact-Checking Trump’s Epstein Defenses**\
-`In the face of mounting discontent over his administration’s handling of the Jeffrey Epstein files, President Trump has turned to deflection, denial and downplaying.`\
-https://nytimes.com/2025/08/14/us/politics/fact-check-trump-epstein.html
-
-**Wrexham sign Broadhead for club-record fee from Ipswich**\
-`Lewis O'Brien was the Welsh club's previous record transfer, only a month ago. `\
-https://nytimes.com/athletic/6553621/2025/08/14/wrexham-nathan-broadhead-club-record-transfer-ipswich/
 

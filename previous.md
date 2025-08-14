@@ -1,5 +1,5 @@
 **D.C. Police Move to Share Limited Information With Federal Immigration Officials**\
-`Chief Pamela A. Smith’s order effectively serves as a carve-out to how the department enforces a broader ban that prohibits the local police from cooperating with federal law enforcement.`\
+`Chief Pamela A. Smith’s order effectively serves as a carve-out to how the department enforces a broader ban that prohibits the local police from cooperating with federal immigration enforcement.`\
 https://nytimes.com/2025/08/14/us/politics/dc-police-federal-immigration-enforcement.html
 
 **MLB negotiating possible broadcast packages with Apple, Netflix, ESPN, NBC: Sources**\
