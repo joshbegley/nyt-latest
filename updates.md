@@ -1,3 +1,11 @@
+**Lions joint practice takeaways: Dolphins respond but Detroit settles in on Day 2**\
+`While the Lions dominated Day 1, Miami responded on Day 2 of the teams' joint practices.`\
+https://nytimes.com/athletic/6554377/2025/08/14/lions-dolphins-joint-practice-day-2/
+
+**The good and bad for the Raiders in joint practice against the 49ers**\
+`Maxx Crosby looked like his old self, while the O-line looked good and the secondary struggled on Thursday.`\
+https://nytimes.com/athletic/6554327/2025/08/14/raiders-49ers-joint-practice-report/
+
 **Broncos' Bo Nix-Courtland Sutton connection hits high gear in practice vs. Cardinals**\
 `Sutton's three catches during a two-minute drill highlighted the growing connection between the second-year QB and his top target.`\
 https://nytimes.com/athletic/6554342/2025/08/14/broncos-bo-nix-courtland-sutton-cardinals/

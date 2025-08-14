@@ -1,3 +1,11 @@
+**Lions joint practice takeaways: Dolphins respond but Detroit settles in on Day 2**\
+`While the Lions dominated Day 1, Miami responded on Day 2 of the teams' joint practices.`\
+https://nytimes.com/athletic/6554377/2025/08/14/lions-dolphins-joint-practice-day-2/
+
+**The good and bad for the Raiders in joint practice against the 49ers**\
+`Maxx Crosby looked like his old self, while the O-line looked good and the secondary struggled on Thursday.`\
+https://nytimes.com/athletic/6554327/2025/08/14/raiders-49ers-joint-practice-report/
+
 **Broncos' Bo Nix-Courtland Sutton connection hits high gear in practice vs. Cardinals**\
 `Sutton's three catches during a two-minute drill highlighted the growing connection between the second-year QB and his top target.`\
 https://nytimes.com/athletic/6554342/2025/08/14/broncos-bo-nix-courtland-sutton-cardinals/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/08/14/us/texas-democrats-return.html
 **The Third Rock From Another Sun Shows No Signs of Life So Far**\
 `Astronomers had hoped to observe an atmosphere on one of the seven planets known to orbit Trappist-1, a red dwarf star. A new study found nothing to write home about.`\
 https://nytimes.com/2025/08/14/science/trappist-1d-webb-life-planet.html
-
-**Worse than a stock market crash: How Yankees, Mets collapse has played out in betting odds**\
-`The Yankees and Mets are both slumping lately and their futures odds have fallen off a cliff.`\
-https://nytimes.com/athletic/6553771/2025/08/14/yankees-mets-new-york-baseball-collapse-odds-betting/
-
-**Brentford agree club-record deal with Bournemouth for Ouattara**\
-`The 23-year-old has been authorised to travel for a medical on Friday. `\
-https://nytimes.com/athletic/6542267/2025/08/14/dango-ouattara-brentford-bournemouth-deal-agreed-transfer/
 
