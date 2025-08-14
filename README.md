@@ -1,3 +1,19 @@
+**Trump Administration Live Updates: Federal Deployment Ramps Up in D.C.**\
+``\
+https://nytimes.com/live/2025/08/14/us/trump-news
+
+**Do the Knicks need to make NBA Finals and other New York fan survey results**\
+`Knicks fans voice their opinions on the state of the franchise and the season ahead. `\
+https://nytimes.com/athletic/6551249/2025/08/14/knicks-fan-survey-nba-finals/
+
+**How Jaxon Smith-Njigba, Cooper Kupp could co-exist in the Seahawks' new offense**\
+`The Seahawks are banking on two slot-heavy receivers to fit together cleanly. Friday, we could get our first glimpse at how they'll be used.`\
+https://nytimes.com/athletic/6552439/2025/08/14/jsn-cooper-kupp-seahawks-preseason/
+
+**Should Mika Zibanejad play wing or center? Burning Rangers questions for 2025-26**\
+`New York needs the 32-year-old forward back on track after a tough 2024-25 season. But coach Mike Sullivan must choose his position.`\
+https://nytimes.com/athletic/6542658/2025/08/14/new-york-rangers-mika-zibanejad-lineup-roster/
+
 **Why Trump’s Pay-for-Play Chips Deal May Not Be the Last**\
 `The Trump administration’s unorthodox Chinese export pact with Nvidia and Advanced Micro Devices is worrying trade experts.`\
 https://nytimes.com/2025/08/14/business/dealbook/trump-nvidia-chips-deal-trade-policy.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6551306/2025/08/14/premier-league-canada-2025-26-se
 **Meet college football's next best hope for a post-Travis Hunter two-way star**\
 `Minnesota sophomore safety Koi Perich has a chance to approach Travis Hunter's workload as the Gophers try to maximize their best player.`\
 https://nytimes.com/athletic/6551090/2025/08/14/koi-perich-minnesota-football-travis-hunter/
-
-**With the Rafael Devers deal off the books, where does that money now go?**\
-`Some of the Devers money has already gone to Roman Anthony. Where the rest of it goes could determine much in Boston's future. `\
-https://nytimes.com/athletic/6552133/2025/08/14/red-sox-payroll-analysis-rafael-devers-roman-anthony/
-
-**What Paul Goldschmidt's knee sprain could mean for playoff hopeful Yankees**\
-`The Yankees are off Thursday before they start a three-game set against the Cardinals on Friday in St. Louis.`\
-https://nytimes.com/athletic/6552692/2025/08/14/ny-yankees-paul-goldschmidt-knee-injury/
-
-**This Week in Sports Trivia: August 14, 2025**\
-`How closely were you following the sports news this week? Find out and test your knowledge by taking The Athletic's weekly quiz.`\
-https://nytimes.com/athletic/6551336/2025/08/14/this-week-in-sports-trivia-august-14-2025/
-
-**Ben Johnson touts flexibility as he puts together Bears' offensive identity: Greenberg**\
-`Johnson has been pretty open from his introductory press conference that he’s not bringing the Detroit Lions offense to Chicago.`\
-https://nytimes.com/athletic/6552399/2025/08/14/greenberg-ben-johnson-bears-offensive-identity/
 
