@@ -1,3 +1,11 @@
+**Chiefs' Rashee Rice expected to play first 4 games after NFL hearing scheduled: Source**\
+`With his hearing set for Sept. 30, Rice is unlikely to face discipline for his role in a 2024 car crash until after the first four games.`\
+https://nytimes.com/athletic/6553601/2025/08/14/chiefs-rashee-rice-disciplinary-hearing/
+
+**Summer Movies in New York Swerve Into Horror**\
+`From timeless classics to new sensations, our horror expert has some scary movie recommendations to help make summer’s final stretch feel like hell.`\
+https://nytimes.com/2025/08/14/movies/summer-horror-movies-nyc.html
+
 **Blood Oxygen Measurements to Return to Some Apple Watches**\
 `The company said it will issue a software update to restart the technology, which was caught up in a patent dispute.`\
 https://nytimes.com/2025/08/14/technology/apple-watch-masimo-blood-oxygen-levels.html
