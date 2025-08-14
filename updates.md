@@ -1,3 +1,7 @@
+**The Pulse: The sport at the ‘epicenter’ of stalking**\
+`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/6551782/2025/08/14/tennis-stalking-monica-seles-the-pulse/
+
 **Liverpool parade suspect facing additional charges, has plea hearing delayed**\
 `Paul Doyle, 53, appeared via video link at Liverpool Crown Court on Thursday.`\
 https://nytimes.com/athletic/6552926/2025/08/14/liverpool-parade-court-case-paul-doyle/

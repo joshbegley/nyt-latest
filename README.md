@@ -1,40 +1,40 @@
-**The Pulse: The sport at the ‘epicenter’ of stalking**\
-`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
-https://nytimes.com/athletic/6551782/2025/08/14/tennis-stalking-monica-seles-the-pulse/
+**Real Madrid's Franco Mastantuono signing: How they won race for €63.2m wonderkid**\
+`Their signing of the Argentina international was a long time in the making, and many other clubs were interested too`\
+https://nytimes.com/athletic/6434533/2025/08/14/franco-mastantuono-real-madrid-inside-the-deal/
 
-**Liverpool parade suspect facing additional charges, has plea hearing delayed**\
-`Paul Doyle, 53, appeared via video link at Liverpool Crown Court on Thursday.`\
-https://nytimes.com/athletic/6552926/2025/08/14/liverpool-parade-court-case-paul-doyle/
+**Here's how Canadian fans of the English Premier League can stream the 2025-26 season**\
+`This is what Canadian fans need to know to watch all 380 EPL matches during the 2025-26 season.`\
+https://nytimes.com/athletic/6551306/2025/08/14/premier-league-canada-2025-26-season-how-to-watch/
 
-**TAFC: How players force a transfer, Pulisic and Weah hit back at 'evil' ex-USMNT stars**\
-`Today in TAFC: The darks arts behind forcing a move, Pulisic and Weah take spat with ex-stars up a level, Rooney hits back at Brady.`\
-https://nytimes.com/athletic/6552718/2025/08/14/pulisic-weah-evil-usmnt-podcast/
+**Meet college football's next best hope for a post-Travis Hunter two-way star**\
+`Minnesota sophomore safety Koi Perich has a chance to approach Travis Hunter's workload as the Gophers try to maximize their best player.`\
+https://nytimes.com/athletic/6551090/2025/08/14/koi-perich-minnesota-football-travis-hunter/
 
-**As criticism swirls, Ravens are resolute in their belief in guard Daniel Faalele**\
-`Baltimore's players and coaches know what they have in the fourth-year O-lineman who didn't start playing football until he was 16.`\
-https://nytimes.com/athletic/6552081/2025/08/14/daniel-faalele-ravens-offensive-line/
+**With the Rafael Devers deal off the books, where does that money now go?**\
+`Some of the Devers money has already gone to Roman Anthony. Where the rest of it goes could determine much in Boston's future. `\
+https://nytimes.com/athletic/6552133/2025/08/14/red-sox-payroll-analysis-rafael-devers-roman-anthony/
 
-**Zelensky Meets Starmer Before U.S.-Russia Meeting**\
-`In a show of unity, President Volodymyr Zelensky of Ukraine hugged Prime Minister Keir Starmer of Britain a day before President Trump was to meet President Vladimir V. Putin of Russia in Alaska.`\
-https://nytimes.com/video/world/europe/100000010340197/zelensky-meets-starmer-before-us-russia-meeting.html
+**What Paul Goldschmidt's knee sprain could mean for playoff hopeful Yankees**\
+`The Yankees are off Thursday before they start a three-game set against the Cardinals on Friday in St. Louis.`\
+https://nytimes.com/athletic/6552692/2025/08/14/ny-yankees-paul-goldschmidt-knee-injury/
 
-**Commanders 53-man roster projection: Which receivers will make the cut?**\
-`Washington's focus this summer is on depth and finding bottom-of-the-roster guys, who often end up having large roles down the stretch`\
-https://nytimes.com/athletic/6551700/2025/08/14/commanders-53-man-roster-projection-sam-hartman/
+**This Week in Sports Trivia: August 14, 2025**\
+`How closely were you following the sports news this week? Find out and test your knowledge by taking The Athletic's weekly quiz.`\
+https://nytimes.com/athletic/6551336/2025/08/14/this-week-in-sports-trivia-august-14-2025/
 
-**The 100 Best Movies of the 21st Century**\
-`How the list came together, and why some movies stand the test of time.`\
-https://nytimes.com/2025/08/14/podcasts/the-daily/100-best-movies.html
+**Ben Johnson touts flexibility as he puts together Bears' offensive identity: Greenberg**\
+`Johnson has been pretty open from his introductory press conference that he’s not bringing the Detroit Lions offense to Chicago.`\
+https://nytimes.com/athletic/6552399/2025/08/14/greenberg-ben-johnson-bears-offensive-identity/
 
-**Dak Prescott remains in Tier 2: Health, postseason success remain biggest obstacles**\
-`Prescott remained in Tier 2 of Sando's rankings, but his vote total dropped a season after he only played eight games before an injury.`\
-https://nytimes.com/athletic/6550555/2025/08/14/dak-prescott-cowboys-nfl-quarterback-tiers-2025/
+**How the Blue Jays fare against aces ahead of a week filled with top starters**\
+`Against top starters, past Blue Jays teams were overmatched. This year, so far, they’ve proven they can beat them.`\
+https://nytimes.com/athletic/6552508/2025/08/14/toronto-blue-jays-top-level-pitching-analysis/
 
-**Will Piastri need to get angry to win F1 2025? Plus, have your say on our driver rankings**\
-`If McLaren continues to allow its drivers to diverge on F1 race strategy calls, Oscar Piastri might have to try something different`\
-https://nytimes.com/athletic/6551180/2025/08/14/oscar-piastri-f1-2025-title-battle/
+**How does Michigan's defensive rotation look? Predicting the depth chart for Week 1**\
+`Similar to the offense, the defensive starters appear set. Now, its about filling out the depth for a long and grueling season.`\
+https://nytimes.com/athletic/6551561/2025/08/14/michigan-football-depth-chart-defense-2025/
 
-**Trends at Bills training camp and how they impact looming roster decisions**\
-`The wide receiver situation is complicated. `\
-https://nytimes.com/athletic/6551748/2025/08/14/bills-training-camp-roster-decisions/
+**Gavin Williams, Tanner Bibee and the winding paths for two could-be top Guardians starters**\
+`For Stephen Vogt's group to chase down a playoff berth, a two-headed monster of Williams and Bibee could lead the charge.`\
+https://nytimes.com/athletic/6548741/2025/08/14/gavin-williams-tanner-bibee-could-be-top-guardians-starters/
 

@@ -1,3 +1,7 @@
+**The Pulse: The sport at the ‘epicenter’ of stalking**\
+`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/6551782/2025/08/14/tennis-stalking-monica-seles-the-pulse/
+
 **Liverpool parade suspect facing additional charges, has plea hearing delayed**\
 `Paul Doyle, 53, appeared via video link at Liverpool Crown Court on Thursday.`\
 https://nytimes.com/athletic/6552926/2025/08/14/liverpool-parade-court-case-paul-doyle/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6551180/2025/08/14/oscar-piastri-f1-2025-title-batt
 **Trends at Bills training camp and how they impact looming roster decisions**\
 `The wide receiver situation is complicated. `\
 https://nytimes.com/athletic/6551748/2025/08/14/bills-training-camp-roster-decisions/
-
-**The epicenter of stalking in sports? Why tennis stands apart**\
-`Stalking experts say that tennis has particular conditions and characteristics that make its players targets, regardless of the era.`\
-https://nytimes.com/athletic/6456273/2025/08/14/tennis-stalking-cases-players-history/
 
