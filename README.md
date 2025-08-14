@@ -1,3 +1,7 @@
+**Margaret Boden, Philosopher of Artificial Intelligence, Dies at 88**\
+`A cognitive scientist, she used the language of computers to explore the nature of human thought and creativity, offering prescient insights about A.I.`\
+https://nytimes.com/2025/08/14/science/margaret-boden-dead.html
+
 **How Cuomo Wants to Limit Who Gets to Live in Rent-Stabilized Units**\
 `Former Gov. Andrew M. Cuomo’s proposal is a dig at Zohran Mamdani, his main opponent in the mayor’s race, but it could upend the housing search for middle-income New Yorkers.`\
 https://nytimes.com/2025/08/14/nyregion/cuomo-mamdani-zohrans-law.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6554019/2025/08/14/sailgp-team-expansion-team-cost/
 **Air Canada Cancels Flights Ahead of Possible Crippling Strike**\
 `The dominant air carrier in Canada set in motion a process that could ground 130,000 passengers a day by Saturday.`\
 https://nytimes.com/2025/08/14/world/canada/air-canada-flight-attendant-strike-canceled.html
-
-**Israeli Settlement Expansion Plan Will ‘Bury’ Palestinian Statehood, Minister Vows**\
-`Bezalel Smotrich, the finance minister, said on Thursday that a plan to significantly expand a settlement near occupied East Jerusalem had won approval. But a procedural step remained.`\
-https://nytimes.com/2025/08/14/world/middleeast/israel-smotrich-settlements-palestinian-state.html
 
