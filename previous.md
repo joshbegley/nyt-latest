@@ -1,3 +1,15 @@
+**Premier League planning Diogo Jota, Andre Silva tributes for opening weekend**\
+`Every league fixture across the opening weekend will see a moment's silence held and the players wearing black armbands.`\
+https://nytimes.com/athletic/6553158/2025/08/14/diogo-jota-tributes-premier-league/
+
+**Forest in talks with Rennes over Kalimuendo deal**\
+`No formal offer has been submitted, but negotiations are progressing over a potential package worth around £26million.`\
+https://nytimes.com/athletic/6553099/2025/08/14/nottingham-forest-transfer-arnaud-kalimuendo-rennes/
+
+**No Corrections: Aug. 14, 2025**\
+`No corrections appeared in print on Thursday, Aug. 14, 2025.`\
+https://nytimes.com/2025/08/14/pageoneplus/no-corrections-aug-14-2025.html
+
 **By the numbers: How the Padres overtook the Dodgers in the race for the NL West**\
 `The Padres are threatening to end the Dodgers’ reign over the NL West. How, against the odds, did they reach this point?`\
 https://nytimes.com/athletic/6551603/2025/08/14/sd-padres-la-dodgers-nl-west-race/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6542658/2025/08/14/new-york-rangers-mika-zibanejad-
 **Why Trump’s Pay-for-Play Chips Deal May Not Be the Last**\
 `The Trump administration’s unorthodox Chinese export pact with Nvidia and Advanced Micro Devices is worrying trade experts.`\
 https://nytimes.com/2025/08/14/business/dealbook/trump-nvidia-chips-deal-trade-policy.html
-
-**Chelsea co-sporting directors Winstanley and Stewart sign new contracts**\
-`Recruitment chiefs Joe Shields and Sam Jewell have also signed fresh terms until 2031.`\
-https://nytimes.com/athletic/6553098/2025/08/14/paul-winstanley-laurence-stewart-chelsea-contracts/
-
-**Manchester City 2025-26 season preview: Live Q&A with Jordan Campbell**\
-`Post your questions and our Manchester City writer will endeavour to answer as many as possible`\
-https://nytimes.com/athletic/6550765/2025/08/14/manchester-city-premier-league-preview-guardiola-haaland/
-
-**Real Madrid's Franco Mastantuono signing: How they won race for €63.2m wonderkid**\
-`Their signing of the Argentina international was a long time in the making, and many other clubs were interested too`\
-https://nytimes.com/athletic/6434533/2025/08/14/franco-mastantuono-real-madrid-inside-the-deal/
 
