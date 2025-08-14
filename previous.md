@@ -1,3 +1,7 @@
+**PBS Slashes Budget by 21% After Federal Funding Cuts**\
+`The nonprofit will receive less revenue from its members, which are under pressure to make up for shortfalls of their own.`\
+https://nytimes.com/2025/08/14/business/pbs-budget-cuts.html
+
 **Trump Mobilizes 800 National Guard Troops to Washington**\
 `President Trump deployed the troops as part of his attempt to fight crime that he has claimed is “out of control,” although official data shows that crime in the nation’s capital has been sharply falling in the last two years.`\
 https://nytimes.com/video/us/politics/100000010341817/national-guard-troops-mobilize-washington.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/us/politics/100000010342016/immigration-agents-newsom-
 **Lions joint practice takeaways: Dolphins respond, but Detroit settles in on Day 2**\
 `While the Lions dominated Day 1, Miami responded on Day 2 of the teams' joint practices.`\
 https://nytimes.com/athletic/6554377/2025/08/14/lions-dolphins-joint-practice-day-2/
-
-**The good and bad for the Raiders in joint practice against the 49ers**\
-`Maxx Crosby looked like his old self, while the O-line looked good and the secondary struggled on Thursday.`\
-https://nytimes.com/athletic/6554327/2025/08/14/raiders-49ers-joint-practice-report/
 

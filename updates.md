@@ -1,3 +1,7 @@
+**PBS Slashes Budget by 21% After Federal Funding Cuts**\
+`The nonprofit will receive less revenue from its members, which are under pressure to make up for shortfalls of their own.`\
+https://nytimes.com/2025/08/14/business/pbs-budget-cuts.html
+
 **Trump Mobilizes 800 National Guard Troops to Washington**\
 `President Trump deployed the troops as part of his attempt to fight crime that he has claimed is “out of control,” although official data shows that crime in the nation’s capital has been sharply falling in the last two years.`\
 https://nytimes.com/video/us/politics/100000010341817/national-guard-troops-mobilize-washington.html
