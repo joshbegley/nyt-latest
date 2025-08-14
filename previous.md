@@ -1,3 +1,7 @@
+**By the numbers: How the Padres overtook the Dodgers in the race for the NL West**\
+`The Padres are threatening to end the Dodgers’ reign over the NL West. How, against the odds, did they reach this point?`\
+https://nytimes.com/athletic/6551603/2025/08/14/sd-padres-la-dodgers-nl-west-race/
+
 **Even Taylor Swift Can’t Resist Podcasts, the Celebrity Safe Space**\
 `For stars promoting their projects, podcasts have become an appealing alternative to late-night TV and glossy magazines.`\
 https://nytimes.com/2025/08/14/business/media/taylor-swift-podcast-celebrity-interviews.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6550765/2025/08/14/manchester-city-premier-league-p
 **Real Madrid's Franco Mastantuono signing: How they won race for €63.2m wonderkid**\
 `Their signing of the Argentina international was a long time in the making, and many other clubs were interested too`\
 https://nytimes.com/athletic/6434533/2025/08/14/franco-mastantuono-real-madrid-inside-the-deal/
-
-**Here's how Canadian fans of the English Premier League can stream the 2025-26 season**\
-`This is what Canadian fans need to know to watch all 380 EPL matches during the 2025-26 season.`\
-https://nytimes.com/athletic/6551306/2025/08/14/premier-league-canada-2025-26-season-how-to-watch/
 

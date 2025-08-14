@@ -1,3 +1,7 @@
+**By the numbers: How the Padres overtook the Dodgers in the race for the NL West**\
+`The Padres are threatening to end the Dodgers’ reign over the NL West. How, against the odds, did they reach this point?`\
+https://nytimes.com/athletic/6551603/2025/08/14/sd-padres-la-dodgers-nl-west-race/
+
 **Even Taylor Swift Can’t Resist Podcasts, the Celebrity Safe Space**\
 `For stars promoting their projects, podcasts have become an appealing alternative to late-night TV and glossy magazines.`\
 https://nytimes.com/2025/08/14/business/media/taylor-swift-podcast-celebrity-interviews.html
