@@ -1,3 +1,7 @@
+**Rabbits With Hornlike Growths Are Hopping Around Colorado. Are They OK?**\
+`The unsightly bunnies are infected with cottontail rabbit papillomavirus, which can cause growths that resemble warts or tentacles.`\
+https://nytimes.com/2025/08/13/science/colorado-rabbits-tentacles-papilloma-virus.html
+
 **Trump’s D.C. Police Takeover and National Guard Deployment, Explained**\
 `President Trump is the first president to use a declared emergency to wrest control of Washington, D.C.’s police force.`\
 https://nytimes.com/2025/08/13/us/politics/trump-dc-national-guard-police.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6552179/2025/08/13/vikings-vs-patriots-joint-practi
 **If You Hate ‘And Just Like That…’ What Does That Say About You?**\
 `Wesley Morris and Taffy Brodesser-Akner say farewell to the “Sex and the City” reboot.`\
 https://nytimes.com/video/podcasts/100000010334754/if-you-hate-and-just-like-that-what-does-that-say-about-you.html
-
-**Cabbies Who Lost Licenses After Arrests Near $140 Million Settlement**\
-`New York City could grant payouts to some 20,000 taxi drivers whose professional licenses were summarily suspended without sufficient due process.`\
-https://nytimes.com/2025/08/13/nyregion/nyc-taxi-drivers-settlement.html
 
