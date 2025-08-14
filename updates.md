@@ -1,3 +1,7 @@
+**Leeds interested in Milan forward Okafor**\
+`Okafor spent the second half of the 2024-25 season on loan at Napoli, winning the Serie A title.`\
+https://nytimes.com/athletic/6552803/2025/08/14/leeds-noah-okafor-milan-interest/
+
 **Chelsea to pay Club World Cup bonus to family of Diogo Jota, Andre Silva**\
 `Jota and his brother died in a car accident in Spain on July 3, 10 days prior to Chelsea's Club World Cup final victory.`\
 https://nytimes.com/athletic/6551143/2025/08/14/diogo-jota-family-chelsea-donation/
