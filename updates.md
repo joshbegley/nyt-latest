@@ -1,3 +1,7 @@
+**Forest in process of agreeing fee with Ipswich for Hutchinson**\
+`Forest saw an opening bid worth £35m rejected but personal terms with the player are not an issue.`\
+https://nytimes.com/athletic/6539148/2025/08/14/omari-hutchinson-nottingham-forest-transfer-ipswich/
+
 **All National Guard Troops Sent to Washington Are Mobilized, Pentagon Says**\
 `The 800 soldiers, in round-the-clock shifts of 100 to 200, will support Washington police and federal law enforcement officers.`\
 https://nytimes.com/2025/08/14/us/politics/national-guard-dc-mobilized.html

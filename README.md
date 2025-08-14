@@ -1,3 +1,15 @@
+**Supreme Court Allows Mississippi Law on Children’s Use of Social Media, for Now**\
+`A trade group representing sites like Facebook and X said the law ran afoul of the First Amendment.`\
+https://nytimes.com/2025/08/14/us/politics/supreme-court-mississippi-social-media.html
+
+**Bobby Whitlock, Keyboardist for Derek and the Dominos, Dies at 77**\
+`With Eric Clapton, he wrote “Bell Bottom Blues” and built one of the greatest — if most short-lived — supergroups of the 1970s.`\
+https://nytimes.com/2025/08/14/arts/music/bobby-whitlock-dead.html
+
+**How Accessible Is Traveling by Amtrak?**\
+`Many people with disabilities depend on Amtrak to travel across the country, but the journey can still present obstacles. Gabe Castro-Root outlines some of the challenges disabled passengers encounter while traveling.`\
+https://nytimes.com/video/travel/100000010331128/how-accessible-is-traveling-by-amtrak.html
+
 **Forest in process of agreeing fee with Ipswich for Hutchinson**\
 `Forest saw an opening bid worth £35m rejected but personal terms with the player are not an issue.`\
 https://nytimes.com/athletic/6539148/2025/08/14/omari-hutchinson-nottingham-forest-transfer-ipswich/
@@ -25,16 +37,4 @@ https://nytimes.com/video/us/politics/100000010336922/fact-checking-trump-on-eps
 **Fantasy bullpen report featuring a problem in Houston and a timeshare in Detroit**\
 `Greg Jewett looks at the notable fantasy baseball developments across MLB bullpens, including a rare shakeup at closer in Houston.`\
 https://nytimes.com/athletic/6553529/2025/08/14/fantasy-baseball-bullpen-report-relievers-houston-detroit/
-
-**Plan to Add 9,500 Homes to Midtown Expected to Get City Council Approval**\
-`The plan would open a swath of Manhattan, including the garment district, to residential development.`\
-https://nytimes.com/2025/08/14/nyregion/midtown-manhattan-residential-development.html
-
-**D.C. Police Move to Share Limited Information With Federal Immigration Officials**\
-`Chief Pamela A. Smith’s order effectively serves as a carve-out to how the department enforces a broader ban that prohibits the local police from cooperating with federal immigration enforcement.`\
-https://nytimes.com/2025/08/14/us/politics/dc-police-federal-immigration-enforcement.html
-
-**MLB negotiating possible broadcast packages with Netflix, ESPN, NBC, Apple: Sources**\
-`Netflix has emerged as the potential Home Run Derby destination, while ESPN could add weekday games.`\
-https://nytimes.com/athletic/6553812/2025/08/14/mlb-negotiating-with-apple-netflix-espn-nbc-sources/
 
