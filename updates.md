@@ -1,3 +1,7 @@
+**All National Guard Troops Sent to Washington Are Mobilized, Pentagon Says**\
+`The 800 soldiers, in round-the-clock shifts of 100 to 200, will support Washington police and federal law enforcement officers.`\
+https://nytimes.com/2025/08/14/us/politics/national-guard-dc-mobilized.html
+
 **‘Checkpoint Zoo’ Review: Operation Animal Rescue**\
 `This documentary retraces the heart-rending evacuation of animals from an outdoor zoo near the front lines of the Russia-Ukraine War.`\
 https://nytimes.com/2025/08/14/movies/checkpoint-zoo-review.html
