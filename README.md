@@ -1,3 +1,15 @@
+**Echoes of Old Walls Appear, Briefly, in Britain’s Arid Soil**\
+`Unusually dry conditions are revealing the outlines of old walls at British historical sites. Climate change is making the lines, called “parchmarks,” more frequently visible.`\
+https://nytimes.com/2025/08/14/world/europe/britain-archaeology-parchmarks-dry.html
+
+**Fact-Checking Trump’s Epstein Defenses**\
+`In the face of mounting discontent over his administration’s handling of the Jeffrey Epstein files, President Trump has turned to deflection, denial and downplaying.`\
+https://nytimes.com/2025/08/14/us/politics/fact-check-trump-epstein.html
+
+**Wrexham sign Broadhead for club-record fee from Ipswich**\
+`Lewis O'Brien was the Welsh club's previous record transfer, only a month ago. `\
+https://nytimes.com/athletic/6553621/2025/08/14/wrexham-nathan-broadhead-club-record-transfer-ipswich/
+
 **Review: ‘Night Always Comes,’ Whether You Have a Home or Not**\
 `Vanessa Kirby plays a woman who has 24 desperate hours to scrape up the $25,000 that will buy a measure security for her and the brother she protects.`\
 https://nytimes.com/2025/08/14/movies/review-night-always-comes.html
@@ -21,16 +33,4 @@ https://nytimes.com/athletic/6553797/2025/08/14/cardinals-mailbag-katie-woo-2/
 **Michael Phelps adds to USA Swimming criticism, calls for 'systemic change'**\
 `Phelps called for "systemic change" at USA Swimming, amid what he sees as worsening problems at deep levels of the sport.`\
 https://nytimes.com/athletic/6553372/2025/08/14/michael-phelps-usa-swimming-criticism-systemic-change/
-
-**Toronto Film Festival Cancels Screenings of Israeli Documentary About Oct. 7 Attack**\
-`The event’s organizers said the producers of the film, which includes footage of atrocities recorded by Hamas fighters during the attack, had failed to obtain the rights to the videos.`\
-https://nytimes.com/2025/08/14/world/canada/tiff-israel-oct-7-documentary-canceled.html
-
-**‘Nobody 2’ Review: Bob Odenkirk Is a Father Who Knows (and Kills) Best**\
-`In this sequel, Bob Odenkirk returns as an ordinary suburban husband and dad who’s an exceedingly skilled and very busy assassin.`\
-https://nytimes.com/2025/08/14/movies/nobody-2-review.html
-
-**Judge Orders Liquidation of Infowars to Pay Sandy Hook Families**\
-`The order comes after a series of legal setbacks for the families of Sandy Hook victims as they tried to collect money owed to them by the conspiracy theorist Alex Jones.`\
-https://nytimes.com/2025/08/14/us/infowars-sale-alex-jones-sandy-hook.html
 
