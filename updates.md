@@ -1,3 +1,19 @@
+**A Riad With a Rooftop Pool in Marrakesh**\
+`Plus: playful knitwear, new takes on Classical plinths and more recommendations from T Magazine.`\
+https://nytimes.com/2025/08/14/t-magazine/hotel-marrakesh.html
+
+**Gustavo Hamer scores from halfway: An audacious Hail Mary Tom Brady would be proud of**\
+`Tom Brady has attempted a few Hail Marys in his time, but his Birmingham City was at the wrong end of soccer's equivalent on Wednesday`\
+https://nytimes.com/athletic/6552962/2025/08/14/birmingham-city-gustavo-hamer-tom-brady-halfway-line/
+
+**Manchester United 2025-26 season preview: Live Q&A with Laurie Whitwell**\
+`Post your questions and our Manchester United writer will answer as many as possible`\
+https://nytimes.com/athletic/6546619/2025/08/14/manchester-united-season-preview-laurie-whitwell/
+
+**Map: Minor Earthquake Strikes the San Francisco Bay Area**\
+`View the location of the quake’s epicenter and shake area.`\
+https://nytimes.com/interactive/2025/08/14/us/earthquake-san-francisco-bay-area-tracker.html
+
 **What will the Timberwolves' roster look like this season? Expect continuity**\
 `Minnesota has mostly tinkered around the edges after making back-to-back Western Conference finals.`\
 https://nytimes.com/athletic/6536869/2025/08/14/timberwolves-roster-preview-mike-conley-anthony-edwards/
