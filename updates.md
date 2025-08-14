@@ -1,3 +1,7 @@
+**Rooney 'very disappointed' with Brady criticism in Birmingham documentary**\
+`Brady previously voiced concern about Rooney, saying: "I'm a little worried about our head coach's work ethic."`\
+https://nytimes.com/athletic/6552934/2025/08/14/rooney-brady-birmingham-city/
+
 **With Arson and Land Grabs, Israeli Settler Attacks in West Bank Hit Record High**\
 `Extremists are carrying out one of the most violent campaigns against Palestinian villages since the U.N. began keeping records.`\
 https://nytimes.com/2025/08/14/world/middleeast/west-bank-israel-settler-attacks.html

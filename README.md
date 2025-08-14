@@ -1,40 +1,40 @@
-**Rooney 'very disappointed' with Brady criticism in Birmingham documentary**\
-`Brady previously voiced concern about Rooney, saying: "I'm a little worried about our head coach's work ethic."`\
-https://nytimes.com/athletic/6552934/2025/08/14/rooney-brady-birmingham-city/
+**Commanders 53-man roster projection: Which receivers will make the cut?**\
+`Washington's focus this summer is on depth and finding bottom-of-the-roster guys, who often end up having large roles down the stretch`\
+https://nytimes.com/athletic/6551700/2025/08/14/commanders-53-man-roster-projection-sam-hartman/
 
-**With Arson and Land Grabs, Israeli Settler Attacks in West Bank Hit Record High**\
-`Extremists are carrying out one of the most violent campaigns against Palestinian villages since the U.N. began keeping records.`\
-https://nytimes.com/2025/08/14/world/middleeast/west-bank-israel-settler-attacks.html
+**The 100 Best Movies of the 21st Century**\
+`How the list came together, and why some movies stand the test of time.`\
+https://nytimes.com/2025/08/14/podcasts/the-daily/100-best-movies.html
 
-**Man Utd's Collyer in advanced talks over West Brom loan**\
-`A host of Championship clubs have registered an interest in Collyer, who played 19 times for United last season.`\
-https://nytimes.com/athletic/6520325/2025/08/14/man-utd-news-collyer-west-brom/
+**Dak Prescott remains in Tier 2: Health, postseason success remain biggest obstacles**\
+`Prescott remained in Tier 2 of Sando's rankings, but his vote total dropped a season after he only played eight games before an injury.`\
+https://nytimes.com/athletic/6550555/2025/08/14/dak-prescott-cowboys-nfl-quarterback-tiers-2025/
 
-**The New York Times International Edition in Print for Friday, Aug. 15, 2025**\
-``\
-https://nytimes.com/issue/todaysinyt/2025/08/14/todays-new-york-times-international-edition
+**Will Piastri need to get angry to win F1 2025? Plus, have your say on our driver rankings**\
+`If McLaren continues to allow its drivers to diverge on F1 race strategy calls, Oscar Piastri might have to try something different`\
+https://nytimes.com/athletic/6551180/2025/08/14/oscar-piastri-f1-2025-title-battle/
 
-**Why Putin Thinks Russia Has the Upper Hand**\
-`As he heads to Alaska for talks with President Trump, the Russian leader projects confidence that his edge on the battlefield will secure a peace deal on his terms. It’s the result of a yearslong re-engineering of his country’s military and economy.`\
-https://nytimes.com/interactive/2025/08/14/world/europe/putin-russia-ukraine-war-resurgence.html
+**Trends at Bills training camp and how they impact looming roster decisions**\
+`The wide receiver situation is complicated. `\
+https://nytimes.com/athletic/6551748/2025/08/14/bills-training-camp-roster-decisions/
 
-**La Liga, Serie A, Bundesliga odds: Which league is shaping up to have the closest race?**\
-`Barcelona, Bayern, Napoli and PSG are defending league crowns in Europe. Which will be able to retain their titles?`\
-https://nytimes.com/athletic/6551427/2025/08/14/la-liga-serie-a-bundesliga-odds/
+**The epicenter of stalking in sports? Why tennis stands apart**\
+`Stalking experts say that tennis has particular conditions and characteristics that make its players targets, regardless of the era.`\
+https://nytimes.com/athletic/6456273/2025/08/14/tennis-stalking-cases-players-history/
 
-**What readers think about Villarreal-Barcelona being played in the U.S.**\
-`Reaction to the proposed move by La Liga has been mixed. We asked for your views`\
-https://nytimes.com/athletic/6551287/2025/08/14/villarreal-barcelona-la-liga-us-survey-results/
+**2024 NBA re-draft: Who would go No. 1 if we did last year's draft again?**\
+`Were there any future All-Stars in the 2024 draft class? Whose stock has risen and dropped the most after their rookie years. `\
+https://nytimes.com/athletic/6547791/2025/08/14/nba-draft-2024-stephon-castle-zaccharie-risacher/
 
-**Liverpool reach agreement to sign Leoni from Parma**\
-`The Premier League club will pay a fee in the region of £26million plus add-ons for the 18-year-old.`\
-https://nytimes.com/athletic/6552813/2025/08/14/liverpool-transfers-giovanni-leoni/
+**College football's most unsinkable program: Why Ohio State just keeps winning**\
+`Ryan Day, Urban Meyer, Jim Tressel and more detail the factors that have kept Ohio State around the top of college football for decades.`\
+https://nytimes.com/athletic/6551237/2025/08/14/ohio-state-football-championships-day-meyer-tressel-hayes/
 
-**Fantasy football managers hate these players. I love them**\
-`Michael Salfino shows the love to Justin Fields, Cooper Kupp and several other players the fantasy football market is fading.`\
-https://nytimes.com/athletic/6551283/2025/08/14/fantasy-football-undervalued-adp-fields-kupp/
+**Before the NHL, the Little League World Series once was the spotlight for Canada greats**\
+`A ragtag, small-town Quebec team made it to the Little League World Series in 1982. Some of those players grew up to be pro hockey stars.`\
+https://nytimes.com/athletic/6537359/2025/08/14/little-league-world-series-pierre-turgeon-stephane-matteau/
 
-**Trump Wants to ‘Take Back’ D.C., but the Federal Government Already Controls Much of It**\
-`The president and his allies have berated local officials. Yet the federal government has often made it harder for those officials to manage the capital.`\
-https://nytimes.com/2025/08/14/upshot/washington-dc-home-rule.html
+**CFB Coaching Tiers 2025: Marcus Freeman rising, Brent Venables teetering**\
+`What makes a good college football coach? We weighed everything from resume to resources to longevity and more to sort out these Tiers.`\
+https://nytimes.com/athletic/6527033/2025/08/14/college-football-coach-tiers-rankings/
 
