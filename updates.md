@@ -1,3 +1,15 @@
+**500th Windup: Our 10 most-clicked links**\
+`The Windup Newsletter ⚾ | This is The Athletic’s MLB newsletter.`\
+https://nytimes.com/athletic/6553469/2025/08/14/minnesota-twins-ownership-the-windup/
+
+**For Some Patients, the ‘Inner Voice’ May Soon Be Audible**\
+`In a recent study, scientists successfully decoded not only the words people tried to say but the words they merely imagined saying.`\
+https://nytimes.com/2025/08/14/science/brain-neuroscience-computers-speech.html
+
+**‘This Was a Revelation in Cooking Eggplant’**\
+`Sue Li’s five-star sweet and sour eggplant pairs the versatile vegetable with an assertive soy-vinegar sauce and crispy garlic chips.`\
+https://nytimes.com/2025/08/14/dining/this-was-a-revelation-in-cooking-eggplant.html
+
 **Red Light: The modern NHLer's offseason routine. Plus: Why do hockey games have three periods? ͏‌**\
 `It’s mid-August, but to me that’s as good a time as any to talk about some puck, no?`\
 https://nytimes.com/athletic/6553495/2025/08/14/red-light-nhlers-offseason-routine/
