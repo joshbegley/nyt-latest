@@ -1,5 +1,5 @@
-**Authorities Clear D.C. Homeless Camps as Part of Trump’s Takeover**\
-`City officials and advocates for the homeless had spent much of Thursday urging people in encampments to go to shelters.`\
+**D.C. Homeless Camps Are Cleared Ahead of Federal Raids**\
+`City officials and advocates spent much of the day trying to clear homeless camps in the city, urging people to go to shelters ahead of expected federal raids.`\
 https://nytimes.com/2025/08/14/us/politics/dc-homeless-camps-trump.html
 
 **Vikings-Patriots joint practice: J.J. McCarthy's best practice of training camp and more**\
