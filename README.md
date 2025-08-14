@@ -1,3 +1,7 @@
+**Vikings-Patriots joint practice: J.J. McCarthy's poise, quick decisions stand out**\
+`McCarthy faced pressure and delivered flashes, giving the Vikings a glimpse of what’s ahead.`\
+https://nytimes.com/athletic/6552179/2025/08/13/vikings-vs-patriots-joint-practice/
+
 **If You Hate ‘And Just Like That…’ What Does That Say About You?**\
 `Wesley Morris and Taffy Brodesser-Akner say farewell to the “Sex and the City” reboot.`\
 https://nytimes.com/video/podcasts/100000010334754/if-you-hate-and-just-like-that-what-does-that-say-about-you.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6552220/2025/08/13/toronto-blue-jays-alek-manoah-up
 **'Let's play football': James Cook, with a smile and a tear, signs long-awaited extension with Bills**\
 `The running back and the team had been at an impasse before reaching a deal.`\
 https://nytimes.com/athletic/6552059/2025/08/13/james-cook-with-a-smile-and-a-tear-signs-long-awaited-extension-with-bills-lets-play-football/
-
-**3 Arrested in $2 Million Heist From Brinks Truck in Philadelphia**\
-`One of the suspects is a former Brinks employee who had recently been fired. The robbery was one of five similar crimes in the area in less than two months.`\
-https://nytimes.com/2025/08/13/us/armored-truck-robberies-philadelphia.html
 
