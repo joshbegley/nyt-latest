@@ -1,3 +1,7 @@
+**A Year After Revolution, Hope Turns to Frustration in Bangladesh**\
+`There are concerns about the slow pace of change in the country, with a promised election still months away, a struggling economy and familiar problems persisting.`\
+https://nytimes.com/2025/08/14/world/asia/bangladesh-revolution-sheikh-hasina.html
+
 **Ben Healy on his stellar Tour de France: 'I was climbing up the Hautacam with a massive smile on my face'**\
 `The Irishman speaks to The Athletic about his career-defining summer and his plans for the road world championships next month `\
 https://nytimes.com/athletic/6548410/2025/08/14/ben-healy-interview-tour-de-france-2025/
