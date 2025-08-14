@@ -1,3 +1,7 @@
+**Wissa unavailable for opener at Forest due to disrupted summer, Andrews says**\
+`Andrews said he would like Wissa to be part of the squad but added it is "very hard to know" what will happen in relation to his future.`\
+https://nytimes.com/athletic/6553312/2025/08/14/keith-andrews-yoane-wissa-unavailable-brentford/
+
 **How Does Taylor Swift Deal With Internet Noise?**\
 `She doesn’t.`\
 https://nytimes.com/2025/08/14/style/taylor-swift-social-media-travis-kelce.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6552962/2025/08/14/birmingham-city-gustavo-hamer-to
 **Manchester United 2025-26 season preview: Live Q&A with Laurie Whitwell**\
 `Post your questions and our Manchester United writer will answer as many as possible`\
 https://nytimes.com/athletic/6546619/2025/08/14/manchester-united-season-preview-laurie-whitwell/
-
-**Map: Minor Earthquake Strikes the San Francisco Bay Area**\
-`View the location of the quake’s epicenter and shake area.`\
-https://nytimes.com/interactive/2025/08/14/us/earthquake-san-francisco-bay-area-tracker.html
 
