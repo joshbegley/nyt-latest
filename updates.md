@@ -1,3 +1,23 @@
+**Cost of buying new SailGP team expected to exceed $60m**\
+`The tender process for the two-team expansion closes on August 14.`\
+https://nytimes.com/athletic/6554019/2025/08/14/sailgp-team-expansion-team-cost/
+
+**Air Canada Cancels Flights Ahead of Possible Crippling Strike**\
+`The dominant air carrier in Canada set in motion a process that could ground 130,000 passengers a day by Saturday.`\
+https://nytimes.com/2025/08/14/world/canada/air-canada-flight-attendant-strike-canceled.html
+
+**Israeli Settlement Expansion Plan Will ‘Bury’ Palestinian Statehood, Minister Vows**\
+`Bezalel Smotrich, the finance minister, said on Thursday that a plan to significantly expand a settlement near occupied East Jerusalem had won approval. But a procedural step remained.`\
+https://nytimes.com/2025/08/14/world/middleeast/israel-smotrich-settlements-palestinian-state.html
+
+**Forest agree deal with City for McAtee**\
+`McAtee's contract at City was set to expire next summer but the 22-year-old been subject to many admirers.`\
+https://nytimes.com/athletic/6546868/2025/08/14/nottingham-forest-james-mcatee-agree-deal-transfer/
+
+**What Would You Fight For?**\
+`Sports, science, technology, research—for the University of Notre Dame, it’s not a question. It’s a call to action.`\
+https://nytimes.com/paidpost/notre-dame-what-would-you-fight-for/notre-dame-video-ad-post/what-would-you-fight-for.html
+
 **Eagles-Browns takeaways: Landon Dickerson's beer run, safeties surge, offensive line tested**\
 `PHILADELPHIA — Few things beat the heat like a couple of cold ones.`\
 https://nytimes.com/athletic/6553762/2025/08/14/eagles-browns-takeaways-landon-dickersons-beer-run-safety-offensive-line/
