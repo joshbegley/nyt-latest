@@ -1,3 +1,11 @@
+**Florida to Open Second Immigrant Detention Center**\
+`The state says it will run the new center from an empty prison that could hold 2,000 federal detainees. This one will be called “Deportation Depot.”`\
+https://nytimes.com/2025/08/14/us/florida-immigrant-detention-center.html
+
+**Russia Seeks to Add Trade and Arms Control Into Trump-Putin Talks**\
+`Over recent months, the Kremlin has been trying to move the diplomatic focus away from Ukraine to bilateral issues, such as trade and strategic stability.`\
+https://nytimes.com/2025/08/14/world/europe/trump-putin-talks-russia-trade-arms-control.html
+
 **500th Windup: Our 10 most-clicked links**\
 `The Windup Newsletter ⚾ | This is The Athletic’s MLB newsletter.`\
 https://nytimes.com/athletic/6553469/2025/08/14/minnesota-twins-ownership-the-windup/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/08/14/us/nicholas-rossi-rape-trial-utah.html
 **Roma working on loan deal for Man Utd's Sancho**\
 `Sancho has been training away from the United first team after returning from a loan spell at Chelsea.`\
 https://nytimes.com/athletic/6403283/2025/08/14/jadon-sancho-roma-transfer-man-utd/
-
-**USMNT's Robinson will return 'soon' but missing Fulham opener, says Silva**\
-`The 28-year-old underwent surgery on his right knee following the conclusion of 2024-25 and has not yet recovered match fitness.`\
-https://nytimes.com/athletic/6548235/2025/08/14/antonee-robinson-injury-fulham-usmnt/
-
-**Tourist ‘Is in Trouble’ After Stones Taken From Pompeii, Police Say**\
-`A Scottish man is under investigation for aggravated theft, police officials said, after visiting the ancient Italian site.`\
-https://nytimes.com/2025/08/14/world/europe/pompeii-italy-tourist.html
 

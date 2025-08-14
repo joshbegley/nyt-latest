@@ -1,3 +1,11 @@
+**Florida to Open Second Immigrant Detention Center**\
+`The state says it will run the new center from an empty prison that could hold 2,000 federal detainees. This one will be called “Deportation Depot.”`\
+https://nytimes.com/2025/08/14/us/florida-immigrant-detention-center.html
+
+**Russia Seeks to Add Trade and Arms Control Into Trump-Putin Talks**\
+`Over recent months, the Kremlin has been trying to move the diplomatic focus away from Ukraine to bilateral issues, such as trade and strategic stability.`\
+https://nytimes.com/2025/08/14/world/europe/trump-putin-talks-russia-trade-arms-control.html
+
 **500th Windup: Our 10 most-clicked links**\
 `The Windup Newsletter ⚾ | This is The Athletic’s MLB newsletter.`\
 https://nytimes.com/athletic/6553469/2025/08/14/minnesota-twins-ownership-the-windup/
