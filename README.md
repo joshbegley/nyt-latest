@@ -1,3 +1,11 @@
+**Chiefs' Rashee Rice expected to play first 4 games after NFL hearing scheduled: Source**\
+`With his hearing set for Sept. 30, Rice is unlikely to face discipline for his role in a 2024 car crash until after the first four games.`\
+https://nytimes.com/athletic/6553601/2025/08/14/chiefs-rashee-rice-disciplinary-hearing/
+
+**Summer Movies in New York Swerve Into Horror**\
+`From timeless classics to new sensations, our horror expert has some scary movie recommendations to help make summer’s final stretch feel like hell.`\
+https://nytimes.com/2025/08/14/movies/summer-horror-movies-nyc.html
+
 **Blood Oxygen Measurements to Return to Some Apple Watches**\
 `The company said it will issue a software update to restart the technology, which was caught up in a patent dispute.`\
 https://nytimes.com/2025/08/14/technology/apple-watch-masimo-blood-oxygen-levels.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/08/14/dining/this-was-a-revelation-in-cooking-eggplant.
 **Red Light: The modern NHLer's offseason routine. Plus: Why do hockey games have three periods? ͏‌**\
 `It’s mid-August, but to me that’s as good a time as any to talk about some puck, no?`\
 https://nytimes.com/athletic/6553495/2025/08/14/red-light-nhlers-offseason-routine/
-
-**WR roundtable: Best QB-WR stacks, Travis Hunter projections, mid-round targets and more**\
-`The Athletic fantasy football experts share their opinions on CeeDee Lamb, Travis Hunter and many more at the WR position.`\
-https://nytimes.com/athletic/6551526/2025/08/14/fantasy-football-2025-wide-receiver-roundtable/
-
-**The Auctioneer and the Treasury Chief: How Billy Long Fell Short at the I.R.S.**\
-`Treasury Secretary Scott Bessent sought total control over the I.R.S., an agency where Mr. Long, the new commissioner, had started to put his own mark on the job.`\
-https://nytimes.com/2025/08/14/us/politics/billy-long-scott-bessent-irs-treasury.html
 

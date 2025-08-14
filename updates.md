@@ -1,3 +1,11 @@
+**Blood Oxygen Measurements to Return to Some Apple Watches**\
+`The company said it will issue a software update to restart the technology, which was caught up in a patent dispute.`\
+https://nytimes.com/2025/08/14/technology/apple-watch-masimo-blood-oxygen-levels.html
+
+**Violence on Syrian Coast Likely Amounts to War Crimes, U.N. Says**\
+`An inquiry found that members of the new government’s forces took part in killing Syrian civilians during sectarian fighting in March, but found no evidence that they acted on government orders.`\
+https://nytimes.com/2025/08/14/world/middleeast/syria-violence-war-crimes-un-report.html
+
 **Florida to Open Second Immigrant Detention Center**\
 `The state says it will run the new center from an empty prison that could hold 2,000 federal detainees. This one will be called “Deportation Depot.”`\
 https://nytimes.com/2025/08/14/us/florida-immigrant-detention-center.html
