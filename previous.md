@@ -1,3 +1,7 @@
+**Federal Prosecutors Seek Death Penalty in Fatal Shooting of Border Patrol Agent**\
+`A federal grand jury in Vermont indicted Teresa Youngblut, 21, on murder and other charges, seven months after a violent encounter during a traffic stop.`\
+https://nytimes.com/2025/08/14/us/border-patrol-shooting-vermont.html
+
 **Why the World Is Deadlocked Over a Treaty to Stop Plastics Pollution**\
 `After three years of talks, and despite growing warnings about the dangers of plastics pollution, nations are at an impasse again over what to do about it.`\
 https://nytimes.com/2025/08/14/climate/global-plastic-pollution-treaty.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/14/world/middleeast/israel-smotrich-settlements-pale
 **Forest agree deal with City for McAtee**\
 `McAtee's contract at City was set to expire next summer but the 22-year-old been subject to many admirers.`\
 https://nytimes.com/athletic/6546868/2025/08/14/nottingham-forest-james-mcatee-agree-deal-transfer/
-
-**What Would You Fight For?**\
-`Sports, science, technology, research—for the University of Notre Dame, it’s not a question. It’s a call to action.`\
-https://nytimes.com/paidpost/notre-dame-what-would-you-fight-for/notre-dame-video-ad-post/what-would-you-fight-for.html
 

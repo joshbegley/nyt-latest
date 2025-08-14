@@ -1,3 +1,7 @@
+**Federal Prosecutors Seek Death Penalty in Fatal Shooting of Border Patrol Agent**\
+`A federal grand jury in Vermont indicted Teresa Youngblut, 21, on murder and other charges, seven months after a violent encounter during a traffic stop.`\
+https://nytimes.com/2025/08/14/us/border-patrol-shooting-vermont.html
+
 **Why the World Is Deadlocked Over a Treaty to Stop Plastics Pollution**\
 `After three years of talks, and despite growing warnings about the dangers of plastics pollution, nations are at an impasse again over what to do about it.`\
 https://nytimes.com/2025/08/14/climate/global-plastic-pollution-treaty.html
