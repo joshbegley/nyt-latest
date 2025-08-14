@@ -1,3 +1,11 @@
+**The New York Times International Edition in Print for Friday, Aug. 15, 2025**\
+``\
+https://nytimes.com/issue/todaysinyt/2025/08/14/todays-new-york-times-international-edition
+
+**Why Putin Thinks Russia Has the Upper Hand**\
+`As he heads to Alaska for talks with President Trump, the Russian leader projects confidence that his edge on the battlefield will secure a peace deal on his terms. It’s the result of a yearslong re-engineering of his country’s military and economy.`\
+https://nytimes.com/interactive/2025/08/14/world/europe/putin-russia-ukraine-war-resurgence.html
+
 **La Liga, Serie A, Bundesliga odds: Which league is shaping up to have the closest race?**\
 `Barcelona, Bayern, Napoli and PSG are defending league crowns in Europe. Which will be able to retain their titles?`\
 https://nytimes.com/athletic/6551427/2025/08/14/la-liga-serie-a-bundesliga-odds/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/08/14/us/politics/putin-trump-alaska.html
 **A Maple Syrup Farmer Lands on the Upper East Side for His Next Chapter**\
 `Seeking to reinvent himself as a writer, an ‘empty-nest bachelor’ looked for a co-op in Carnegie Hill for around $500,000.`\
 https://nytimes.com/interactive/2025/08/14/realestate/upper-east-side-carnegie-hill-apartments.html
-
-**Carrie Bradshaw’s Life in New York City Apartments (and the Townhouse)**\
-`The end of “And Just Like That …” means the end of a real estate portfolio that includes a cozy Upper East Side studio and a grand Gramercy townhouse.`\
-https://nytimes.com/2025/08/14/realestate/carrie-bradshaw-apartments-sex-and-the-city.html
-
-**Fed Faces High Bar for Big Cuts Despite White House Pressure**\
-`The Federal Reserve is poised to lower interest rates in September. But signs of stickier inflation could limit how much relief officials can ultimately provide to borrowers.`\
-https://nytimes.com/2025/08/14/business/fed-faces-high-bar-for-big-cuts-despite-white-house-pressure.html
 

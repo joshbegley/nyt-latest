@@ -1,3 +1,11 @@
+**The New York Times International Edition in Print for Friday, Aug. 15, 2025**\
+``\
+https://nytimes.com/issue/todaysinyt/2025/08/14/todays-new-york-times-international-edition
+
+**Why Putin Thinks Russia Has the Upper Hand**\
+`As he heads to Alaska for talks with President Trump, the Russian leader projects confidence that his edge on the battlefield will secure a peace deal on his terms. It’s the result of a yearslong re-engineering of his country’s military and economy.`\
+https://nytimes.com/interactive/2025/08/14/world/europe/putin-russia-ukraine-war-resurgence.html
+
 **La Liga, Serie A, Bundesliga odds: Which league is shaping up to have the closest race?**\
 `Barcelona, Bayern, Napoli and PSG are defending league crowns in Europe. Which will be able to retain their titles?`\
 https://nytimes.com/athletic/6551427/2025/08/14/la-liga-serie-a-bundesliga-odds/
