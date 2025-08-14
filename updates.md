@@ -1,3 +1,7 @@
+**How to evaluate Chargers despite relative lack of competitive reps? 'We'll be ready'**\
+`The Chargers canceled their joint practice with the Rams scheduled for Wednesday because they are dealing with too many injuries. `\
+https://nytimes.com/athletic/6552416/2025/08/13/chargers-training-camp-evaluation-ready/
+
 **Taylor Swift joins Travis Kelce on 'New Heights' podcast: What we learned (Taylor knows ball)**\
 `The mega-star made her first in-studio podcast appearance ever, joining her boyfriend to discuss her upcoming 12th album, the NFL and more.`\
 https://nytimes.com/athletic/6552267/2025/08/13/taylor-swift-new-heights-travis-kelce-album-takeaways/
