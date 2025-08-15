@@ -1,3 +1,7 @@
+**Flash Floods in Pakistan Kill Dozens of People in a Single Day**\
+`The country has faced heavier rain during monsoon seasons, which scientists have attributed to climate change.`\
+https://nytimes.com/2025/08/15/world/asia/pakistan-flash-floods-india.html
+
 **Nottingham Forest pre-season Q&A: Ask Paul Taylor anything ahead of the new season**\
 `The new Premier League season is upon us, and Nottingham Forest head into it on the back of another eventful summer`\
 https://nytimes.com/athletic/6555277/2025/08/15/nottingham-forest-pre-season-qa-ask-paul-taylor-anything-ahead-of-the-new-season/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6554902/2025/08/15/minnesota-twins-pablo-lopez-retu
 **The catfishing scam putting fans and female golfers in danger**\
 `Inside the social media scheme turning fans against athletes: 'There's really two victims'`\
 https://nytimes.com/athletic/6554056/2025/08/15/womens-golf-catfishing-social-media-stalking-cases/
-
-**Watch out, WNBA — the Aces might just be back**\
-`For as inconsistent as they have been — and their season has been plenty uneven — the Aces appear to be finding their stride.`\
-https://nytimes.com/athletic/6554850/2025/08/15/las-vegas-aces-win-streak-wnba/
 

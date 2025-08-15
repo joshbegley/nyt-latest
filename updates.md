@@ -1,3 +1,7 @@
+**Flash Floods in Pakistan Kill Dozens of People in a Single Day**\
+`The country has faced heavier rain during monsoon seasons, which scientists have attributed to climate change.`\
+https://nytimes.com/2025/08/15/world/asia/pakistan-flash-floods-india.html
+
 **Nottingham Forest pre-season Q&A: Ask Paul Taylor anything ahead of the new season**\
 `The new Premier League season is upon us, and Nottingham Forest head into it on the back of another eventful summer`\
 https://nytimes.com/athletic/6555277/2025/08/15/nottingham-forest-pre-season-qa-ask-paul-taylor-anything-ahead-of-the-new-season/
