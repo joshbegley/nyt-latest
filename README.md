@@ -1,3 +1,19 @@
+**Zelensky Condemns Continuing Strikes by Russia as Putin and Trump Meet in Alaska**\
+`The Ukrainian leader sounded off on social media before the summit in Anchorage from which he was excluded.`\
+https://nytimes.com/2025/08/15/world/europe/zelensky-ukraine-strikes-putin.html
+
+**A crucial Padres-Dodgers series goes down this weekend. Here's how to tune in**\
+`Heat is rising in Southern California, and tensions are narrowing in the NL West. The Padres visit the Dodgers for three games this weekend.`\
+https://nytimes.com/athletic/6554589/2025/08/15/padres-dodgers-ohtani-tatis-machado-how-to-watch/
+
+**Frank Savage, 87, Business Leader Entangled in Enron Scandal, Is Dead**\
+`He was one of the relatively few Black Americans to reach the upper echelons of global finance. He was also a competitive sailor.`\
+https://nytimes.com/2025/08/15/business/frank-savage-dead-at-87.html
+
+**PL opener paused after Semenyo reports racist abuse from the stands**\
+`TV cameras showed Semenyo informing referee Anthony Taylor of the racist comment from a member of the Anfield crowd.`\
+https://nytimes.com/athletic/6556320/2025/08/15/liverpool-bournemouth-antoine-semenyo-racist-abuse/
+
 **Robin Lakoff, Expert on Language and Gender, Is Dead at 82**\
 `In arguing that language enforces the power imbalance between the sexes, she inspired an entire academic field.`\
 https://nytimes.com/2025/08/15/us/robin-lakoff-dead.html
@@ -21,20 +37,4 @@ https://nytimes.com/2025/08/15/nyregion/eric-adams-donor-sentenced-illegal-gifts
 **Environmental Groups Sue Over D.O.E. Report Downplaying Climate Change**\
 `The lawsuit seeks to block the Trump administration from repealing the legal foundation for regulating climate pollution.`\
 https://nytimes.com/2025/08/15/climate/lawsuit-climate-change-report.html
-
-**Flashback: Your Weekly History Quiz, Aug. 16, 2025**\
-`Can you sort 8 historical events?`\
-https://nytimes.com/interactive/2025/08/15/upshot/flashback.html
-
-**Isaac TeSlaa and other Detroit Lions to watch in Saturday's preseason game vs. Dolphins**\
-`Also, QB Hendon Hooker has much to prove after last week's fumbles vs. the Falcons.`\
-https://nytimes.com/athletic/6556063/2025/08/15/lions-dolphins-preseason-hendon-hooker-isaac-teslaa/
-
-**Officers Clear More Homeless People from Sites Around Washington**\
-`Local police now under federal oversight dismantled encampments, discarding tents and other belongings.`\
-https://nytimes.com/2025/08/15/us/politics/dc-homeless-encampments-police.html
-
-**Fantasy football All-Fade team: Christian McCaffrey, Xavier Worthy and more**\
-`Michael Salfino identifies the players who are too rich for his liking in 2025 fantasy football drafts, including speedster Xavier Worthy.`\
-https://nytimes.com/athletic/6555861/2025/08/15/fantasy-football-fade-overvalued-adp-cmc-worthy/
 
