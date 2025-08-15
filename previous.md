@@ -1,40 +1,40 @@
-**Putin’s visit to the U.S. will be his first since 2015.**\
-`By Anushka Patil`\
-https://nytimes.com/live/2025/08/15/world/trump-putin-meeting-alaska/putin-trump-alaska-us-visit
+**Bayern in negotiations over Nkunku move from Chelsea**\
+`The Bundesliga champions are in talks over a proposed deal for the 27-year-old France international.`\
+https://nytimes.com/athletic/6555393/2025/08/15/christopher-nkunku-bayern-munich-transfer-chelsea/
 
-**D.C. Sues Trump Administration Over Takeover of City**\
-`The suit argues that the move to federalize the city’s Police Department was a “brazen usurpation of the district’s authority” that exceeded the president’s authority.`\
-https://nytimes.com/2025/08/15/us/washington-dc-police-trump-lawsuit.html
+**The 8.17.25 Issue**\
+``\
+https://nytimes.com/issue/magazine/2025/08/15/the-81725-issue
 
-**No Corrections: Aug. 15, 2025**\
-`No corrections appeared in print on Friday, Aug. 15, 2025.`\
-https://nytimes.com/2025/08/15/pageoneplus/no-corrections-aug-15-2025.html
+**Governor Hochul Pardons Laotian Immigrant to Stop His Deportation**\
+`The man had been convicted of manslaughter as a teenager after he admitted to fatally shooting a man during a pool hall confrontation in Brooklyn, arguing it was self-defense.`\
+https://nytimes.com/2025/08/15/nyregion/hochul-pardon-laos-immigrant-deportation.html
 
-**Branthwaite ruled out of Everton's trip to Leeds**\
-`Manager David Moyes did not give a timeframe on Branthwaite's recovery from injury.`\
-https://nytimes.com/athletic/6553854/2025/08/15/jarrad-branthwaite-injury-everton-leeds/
+**Aston Villa pre-season Q&A: Ask Jacob Tanswell anything ahead of the new season**\
+`The new Premier League season is upon us, and Aston Villa head into it on the back of a fairly quiet summer.`\
+https://nytimes.com/athletic/6555505/2025/08/15/aston-villa-pre-season-qa-ask-jacob-tanswell-anything-ahead-of-the-new-season/
 
-**Which version of Dominic Calvert-Lewin are Leeds United getting?**\
-`Leeds have signed a striker with international pedigree for nothing, yet Calvert-Lewin has not hit double figures since 2020-21`\
-https://nytimes.com/athletic/6553185/2025/08/15/leeds-united-calvert-lewin/
+**Wolves pre-season Q&A: Ask Steve Madeley anything ahead of the new season**\
+`The new Premier League season is upon us and Wolverhampton Wanderers still feel like an incomplete team.`\
+https://nytimes.com/athletic/6554417/2025/08/15/wolves-pre-season-qa-ask-steve-madeley-anything-ahead-of-the-new-season/
 
-**Here’s the latest.**\
-`By Shashank Bengali`\
-https://nytimes.com/live/2025/08/15/world/trump-putin-meeting-alaska/heres-the-latest
+**Christian McCaffrey, Rashee Rice and the fantasy football implications of the latest NFL news**\
+`Andy Behrens checks in on the hot fantasy football topics pervading NFL training camps, including a healthy Christian McCaffrey.`\
+https://nytimes.com/athletic/6554966/2025/08/15/fantasy-football-news-christian-mccaffrey-rashee-rice/
 
-**Live Updates: Trump Flies to Alaska for High-Stakes Summit With Putin**\
-`The first face-to-face meeting between U.S. and Russian leaders since the 2022 invasion of Ukraine will test President Trump’s promise that he can end the war.`\
-https://nytimes.com/live/2025/08/15/world/trump-putin-meeting-alaska
+**A Timeline of Trump’s Complicated Relationship With Putin**\
+`President Trump has long admired President Vladimir V. Putin of Russia. Their meeting in Alaska will be at least their seventh face-to-face encounter.`\
+https://nytimes.com/2025/08/15/world/europe/trump-putin-timeline.html
 
-**Trump Heads to Alaska for Summit With Putin**\
-`President Trump boarded Air Force One at Joint Base Andrews, Md., on Friday. The leaders of the United States and Russia are set to hold talks at an American military base in Alaska to discuss an end to the war in Ukraine, which Russia invaded in 2022.`\
-https://nytimes.com/video/embedded/us/politics/100000010342681/trump-alaska-putin-ukraine.html
+**Villa’s PL multi-ball violation: A three-game ban and £125k fine**\
+`Villa acknowledged that they breached the rules for the fifth time last season in their 2-0 win over Tottenham Hotspur at Villa Park in May.`\
+https://nytimes.com/athletic/6555473/2025/08/15/aston-villa-fined-premier-league-multiball-system/
 
-**Rosie O’Donnell and Eating the Rich: 7 Buzzy Shows at Edinburgh Fringe**\
-`The shows that have gotten tongues wagging this year include stand-up gigs, character skits and a routine that ends with its performer covered in goo.`\
-https://nytimes.com/2025/08/15/arts/edinburgh-fringe-buzziest-best-acts.html
+**Theater to Stream in August: ‘Hamilton’ and a Comedy About Immigration**\
+`Check out the Broadway blockbuster, which celebrates its 10th anniversary, and Michael Abbensetts’s play about the Guyanese community of London.`\
+https://nytimes.com/2025/08/15/theater/theater-to-stream-in-august-hamilton.html
 
-**Amorim: Sesko ready to start against Arsenal**\
-`Noussair Mazraoui and Lisandro Martinez will miss Sunday's Premier League opener.`\
-https://nytimes.com/athletic/6555433/2025/08/15/man-utd-team-news-sesko-onana-arsenal/
+**Arteta: Arsenal players voted to keep Odegaard as captain 'by a mile'**\
+`The issue had been raised by former Arsenal skipper Tony Adams, who said Arteta should replace Odegaard with Declan Rice.`\
+https://nytimes.com/athletic/6555560/2025/08/15/martin-odegaard-arsenal-captain-arteta/
 
