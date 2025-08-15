@@ -1,3 +1,7 @@
+**TAFC: The Premier League is back, but what's new, and what are our predictions?**\
+`Today in TAFC: Our ultimate Premier League guide, which Americans own top-flight clubs and a backlash to Barca playing in U.S.`\
+https://nytimes.com/athletic/6555259/2025/08/15/the-premier-league-is-back-but-whats-new-and-what-are-our-predictions/
+
 **Flash Floods in Pakistan Kill Dozens of People in a Single Day**\
 `The country has faced heavier rain during monsoon seasons, which scientists have attributed to climate change.`\
 https://nytimes.com/2025/08/15/world/asia/pakistan-flash-floods-india.html
