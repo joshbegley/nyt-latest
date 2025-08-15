@@ -1,3 +1,19 @@
+**Environmental Groups Sue Over D.O.E. Report Downplaying Climate Change**\
+`The lawsuit seeks to block the Trump administration from repealing the legal foundation for regulating climate pollution.`\
+https://nytimes.com/2025/08/15/climate/lawsuit-climate-change-report.html
+
+**Flashback: Your Weekly History Quiz, Aug. 16, 2025**\
+`Can you sort 8 historical events?`\
+https://nytimes.com/interactive/2025/08/15/upshot/flashback.html
+
+**Isaac TeSlaa and other Detroit Lions to watch in Saturday's preseason game vs. Dolphins**\
+`Also, QB Hendon Hooker has much to prove after last week's fumbles vs. the Falcons.`\
+https://nytimes.com/athletic/6556063/2025/08/15/lions-dolphins-preseason-hendon-hooker-isaac-teslaa/
+
+**Officers Clear More Homeless People from Sites Around Washington**\
+`Local police now under federal oversight dismantled encampments, discarding tents and other belongings.`\
+https://nytimes.com/2025/08/15/us/politics/dc-homeless-encampments-police.html
+
 **Fantasy football All-Fade team: Christian McCaffrey, Xavier Worthy and more**\
 `Michael Salfino identifies the players who are too rich for his liking in 2025 fantasy football drafts, including speedster Xavier Worthy.`\
 https://nytimes.com/athletic/6555861/2025/08/15/fantasy-football-fade-overvalued-adp-cmc-worthy/
