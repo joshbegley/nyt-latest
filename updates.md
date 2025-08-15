@@ -1,3 +1,11 @@
+**Kliff Kingsbury is losing patience, says Washington needs its top WRs back**\
+`Kingsbury’s comments were the most pointed yet by a Commanders coach or executive about the urgency to get Terry McLaurin and others back.`\
+https://nytimes.com/athletic/6555950/2025/08/15/kliff-kingsbury-commanders-terry-mclaurin/
+
+**Former employee sues Blackhawks, alleging discrimination, wrongful termination**\
+`The former employee alleges he was mistreated and fired by his supervisor for a previously approved interview about being gay.`\
+https://nytimes.com/athletic/6553636/2025/08/15/blackhawks-lawsuit-discrimination-filomena/
+
 **10 New Songs You Need to Hear: Khalid, Jay Som, Steve Lacy and More**\
 `Listen to tracks by Dijon, Woody Guthrie, iLe and others.`\
 https://nytimes.com/2025/08/15/arts/music/playlist-khalid-steve-lacy-dijon.html

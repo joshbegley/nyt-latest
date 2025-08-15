@@ -1,3 +1,11 @@
+**Kliff Kingsbury is losing patience, says Washington needs its top WRs back**\
+`Kingsbury’s comments were the most pointed yet by a Commanders coach or executive about the urgency to get Terry McLaurin and others back.`\
+https://nytimes.com/athletic/6555950/2025/08/15/kliff-kingsbury-commanders-terry-mclaurin/
+
+**Former employee sues Blackhawks, alleging discrimination, wrongful termination**\
+`The former employee alleges he was mistreated and fired by his supervisor for a previously approved interview about being gay.`\
+https://nytimes.com/athletic/6553636/2025/08/15/blackhawks-lawsuit-discrimination-filomena/
+
 **10 New Songs You Need to Hear: Khalid, Jay Som, Steve Lacy and More**\
 `Listen to tracks by Dijon, Woody Guthrie, iLe and others.`\
 https://nytimes.com/2025/08/15/arts/music/playlist-khalid-steve-lacy-dijon.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/08/15/dining/chakalaka-easy-relish-recipe.html
 **What comes next for Amad after Mbeumo's arrival?**\
 `The new signing is likely to play in the position Amad occupied for United towards the end of last season. What will follow for the latter?`\
 https://nytimes.com/athletic/6543745/2025/08/15/amad-diallo-bryan-mbeumo-manchester-united-analysis/
-
-**Dominic Calvert-Lewin to Leeds: Everything you need to know - TLDR**\
-`The former Everton striker, who left Merseyside this summer, has signed a three-year deal with Leeds. Here, we break down the move`\
-https://nytimes.com/athletic/6555579/2025/08/15/dominic-calvert-lewin-transfer-leeds-analysis/
-
-**Grand Slam Track misses payments to athletes, Michael Johnson 'confident' of its future**\
-`Johnson said GST "offered dated payment timelines" to its athletes and "have been unable to meet them".`\
-https://nytimes.com/athletic/6555763/2025/08/15/grand-slam-track-athlete-payments-michael-johnson/
 
