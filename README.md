@@ -1,3 +1,11 @@
+**False Flags, Fake Flags: Propaganda Muddles the Trump-Putin Meeting**\
+`The summit in Alaska between President Trump and President Vladimir V. Putin of Russia has unleashed a wave of propaganda and disinformation from Russian state media and online conspiracy theorists.`\
+https://nytimes.com/2025/08/15/world/europe/misinformation-russia.html
+
+**Caleb Williams solid, not spectacular vs. Bills 'D': Bears joint practice observations**\
+`We break down Friday's joint practice between the Bears and Bills — how the two starting quarterbacks fared and Mitch Trubisky's return.`\
+https://nytimes.com/athletic/6556392/2025/08/15/bears-bills-joint-practice-caleb-williams/
+
 **Jackson to be left out of Chelsea squad for Palace game**\
 `Jackson, his representatives and Chelsea are exploring a possible move away from Stamford Bridge in the final weeks of the transfer window.`\
 https://nytimes.com/athletic/6555812/2025/08/15/nicolas-jackson-chelsea-crystal-palace/
@@ -29,12 +37,4 @@ https://nytimes.com/video/world/asia/100000010343290/pakistan-flash-floods-monso
 **Answering your Guardians questions: DeLauter updates, Kwan's struggles and more**\
 `Zack Meisel discussed these topics and more during a wide-ranging live Q&A with The Athletic subscribers on Friday.`\
 https://nytimes.com/athletic/6556334/2025/08/15/guardians-questions-kwan-delauter-playoffs/
-
-**Why the Giants shouldn't call up Bryce Eldridge in 2025**\
-`The Giants' season isn't going anywhere fast, but that doesn't mean rushing their top prospect to the majors is a good idea.`\
-https://nytimes.com/athletic/6556044/2025/08/15/sf-giants-bryce-eldridige-mlb-debut-timing/
-
-**Zelensky Condemns Continuing Strikes by Russia as Putin and Trump Meet in Alaska**\
-`The Ukrainian leader sounded off on social media before the summit in Anchorage from which he was excluded.`\
-https://nytimes.com/2025/08/15/world/europe/zelensky-ukraine-strikes-putin.html
 

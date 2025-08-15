@@ -1,3 +1,7 @@
+**Jackson to be left out of Chelsea squad for Palace game**\
+`Jackson, his representatives and Chelsea are exploring a possible move away from Stamford Bridge in the final weeks of the transfer window.`\
+https://nytimes.com/athletic/6555812/2025/08/15/nicolas-jackson-chelsea-crystal-palace/
+
 **Senator Begins Child Safety Investigation Into Meta’s A.I. Bot**\
 `Josh Hawley, Republican of Missouri, said he would look into whether the social media company’s artificial intelligence technology endangers children.`\
 https://nytimes.com/2025/08/15/technology/meta-child-safety-senate-investigation.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6556044/2025/08/15/sf-giants-bryce-eldridige-mlb-de
 **Zelensky Condemns Continuing Strikes by Russia as Putin and Trump Meet in Alaska**\
 `The Ukrainian leader sounded off on social media before the summit in Anchorage from which he was excluded.`\
 https://nytimes.com/2025/08/15/world/europe/zelensky-ukraine-strikes-putin.html
-
-**A crucial Padres-Dodgers series goes down this weekend. Here's how to tune in**\
-`Heat is rising in Southern California, and tensions are narrowing in the NL West. The Padres visit the Dodgers for three games this weekend.`\
-https://nytimes.com/athletic/6554589/2025/08/15/padres-dodgers-ohtani-tatis-machado-how-to-watch/
 
