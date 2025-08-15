@@ -1,3 +1,19 @@
+**Ten Ravens on the roster bubble heading into second preseason game**\
+`It seems that, barring injuries, there are only a handful of undecided spots on Baltimore's roster ahead of the 53-man cutdown on Aug. 26. `\
+https://nytimes.com/athletic/6554277/2025/08/15/ravens-2025-roster-bubble-players/
+
+**Barcelona 2025-26 season preview: Live Q&A with Pol Ballus and Laia Cervello Herrero**\
+`Post your questions and our Barcelona writers will endeavour to answer as many as possible`\
+https://nytimes.com/athletic/6553745/2025/08/15/barcelona-2025-26-season-preview-q-and-a/
+
+**City midfielder Nypan set for Middlesbrough loan**\
+`The 18-year-old joined from Rosenborg this summer in a £12.5m deal.`\
+https://nytimes.com/athletic/6555150/2025/08/15/sverre-nypan-middlesbrough-man-city/
+
+**The Pulse: The world’s biggest sport begins now**\
+`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/6554343/2025/08/15/premier-league-preview-the-pulse/
+
 **How to watch NASCAR's Cook Out 400 this weekend as Cup Series playoffs near**\
 `The playoff clock shows two races left in the Cup Series. This weekend, the short-track sprint at Richmond is a return to elbows-out racing.`\
 https://nytimes.com/athletic/6553731/2025/08/15/nascar-richmond-cook-out-400-channel-odds-how-to-watch/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6554669/2025/08/15/connor-stalions-sign-stealing-sa
 **Five Bears battles to watch when Josh Allen, Buffalo Bills come to town**\
 `The Bears' starters will make their preseason debut Sunday and get valuable reps in joint practice. Here are five critical competitions.`\
 https://nytimes.com/athletic/6554448/2025/08/15/bears-position-battles-caleb-williams-bills/
-
-**Twins’ newest team Hall of Famer: Corey Koskie, the volleyball-playing ‘no shot’ from Canada**\
-`Tom Kelly didn't trust his glove, so Koskie "worked his butt off" to become one of the best all-around players in Twins history.`\
-https://nytimes.com/athletic/3093709/2025/08/15/the-most-underrated-minnesota-twins-of-all-time-corey-koskie-the-volleyball-playing-no-shot-from-canada/
-
-**The biggest issues facing youth sports? Greg Olsen has strong opinions**\
-`"Are we raising 12 year olds to be professional baseball players? Or are we raising 12 year olds to be professional people?"`\
-https://nytimes.com/athletic/6553294/2025/08/15/greg-olsen-issues-youth-sports/
-
-**Someone spent $12,000 on a Jay Cutler football card in 2025 — why?**\
-`A bidding war erupts over a Jay Cutler card eight years after his retirement`\
-https://nytimes.com/athletic/6554071/2025/08/15/jay-cutler-card-record-sale/
-
-**NBA 2025-26 schedule release: 40 games I'm looking forward to next season**\
-`Stars are returning to their old homes, rookies are facing off and every other Western Conference game is a must-watch. `\
-https://nytimes.com/athletic/6532058/2025/08/15/schedule-release-40-exciting-games-nba/
 

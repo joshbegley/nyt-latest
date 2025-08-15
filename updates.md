@@ -1,3 +1,19 @@
+**Ten Ravens on the roster bubble heading into second preseason game**\
+`It seems that, barring injuries, there are only a handful of undecided spots on Baltimore's roster ahead of the 53-man cutdown on Aug. 26. `\
+https://nytimes.com/athletic/6554277/2025/08/15/ravens-2025-roster-bubble-players/
+
+**Barcelona 2025-26 season preview: Live Q&A with Pol Ballus and Laia Cervello Herrero**\
+`Post your questions and our Barcelona writers will endeavour to answer as many as possible`\
+https://nytimes.com/athletic/6553745/2025/08/15/barcelona-2025-26-season-preview-q-and-a/
+
+**City midfielder Nypan set for Middlesbrough loan**\
+`The 18-year-old joined from Rosenborg this summer in a £12.5m deal.`\
+https://nytimes.com/athletic/6555150/2025/08/15/sverre-nypan-middlesbrough-man-city/
+
+**The Pulse: The world’s biggest sport begins now**\
+`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/6554343/2025/08/15/premier-league-preview-the-pulse/
+
 **How to watch NASCAR's Cook Out 400 this weekend as Cup Series playoffs near**\
 `The playoff clock shows two races left in the Cup Series. This weekend, the short-track sprint at Richmond is a return to elbows-out racing.`\
 https://nytimes.com/athletic/6553731/2025/08/15/nascar-richmond-cook-out-400-channel-odds-how-to-watch/
