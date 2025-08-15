@@ -1,3 +1,7 @@
+**Priscilla Presley Locked in Feud With Former Business Partners**\
+`Elvis’s ex-wife has traded lawsuits in a financial dispute with former advisers that has grown ugly with an allegation that she prematurely pulled the plug on her late daughter, Lisa Marie.`\
+https://nytimes.com/2025/08/15/arts/music/priscilla-presley-feud-former-business-partners.html
+
 **As Strike Looms, Air Canada’s Flight Attendants Reject Call for Arbitration**\
 `Their union says one of its core demands, to receive pay for groundwork, is unlikely to be introduced in arbitration. The airline began canceling flights ahead of the potential strike.`\
 https://nytimes.com/2025/08/15/world/canada/air-canada-flight-attendant-strike.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/15/opinion/smoking-cigarettes-death.html
 **Guehi, Eze in line to start for Palace at Chelsea - Glasner**\
 `Glasner, though, offered no guarantees that the pair would stay at Palace beyond the end of the transfer window on September 1.`\
 https://nytimes.com/athletic/6555726/2025/08/15/marc-guehi-eberechi-eze-in-line-to-start-for-crystal-palace-at-chelsea-glasner/
-
-**Until Saturday: Wait, they'd *never* started No. 1?**\
-`Until Saturday is The Athletic's free CFB newsletter.`\
-https://nytimes.com/athletic/6556020/2025/08/15/texas-preseason-ranking-until-saturday/
 
