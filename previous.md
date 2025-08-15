@@ -1,40 +1,40 @@
-**Marshall Islands, last country without a football team, play first game**\
-`The Pacific Island nation, which boasts fewer than 40,000 inhabitants, played the US Virgin Islands on Thursday.`\
-https://nytimes.com/athletic/6555128/2025/08/15/marshall-islands-football-team-first-game/
+**Like All Autocrats, Trump Wants to Control History**\
+`MAGA would fill museums with self-glorifying kitsch, the aesthetic lingua franca of all authoritarians.`\
+https://nytimes.com/2025/08/15/opinion/trump-history-museums-censorship.html
 
-**Ukrainians in Alaska Are Skeptical About Trump-Putin Summit**\
-`Ukrainians who fled the war and settled in Alaska, where President Trump is set to meet with Russia’s leader, Vladimir Putin, on Friday, are keeping their expectations for the talks low.`\
-https://nytimes.com/video/us/100000010342529/trump-putin-ukraine-alaska.html
+**How Trump’s Meeting With Putin Could Unfold**\
+`A sudden feud, an impasse or a first step toward a cease-fire are all possible at the summit in Alaska as the two leaders navigate thorny issues such as Ukraine’s territory and NATO expansion.`\
+https://nytimes.com/2025/08/15/us/politics/trump-putin-summit-ukraine.html
 
-**Nuno: Forest have 'major problem' ahead of new season: 'We are all very worried'**\
-`After Nuno spoke to Sky, the club have accelerated several transfer moves in a bid to bolster their squad.`\
-https://nytimes.com/athletic/6553002/2025/08/15/nottingham-forest-transfer-news-nuno/
+**Don’t Let Your Vacation Stress You Out**\
+`Travel experts share their best tips for ensuring your trip is actually relaxing.`\
+https://nytimes.com/2025/08/15/well/dont-let-your-vacation-stress-you-out.html
 
-**Why Russia Sold Alaska to the U.S.**\
-`The Trump-Putin summit will take place in a former Russian colony that the United States bought for $7.2 million in 1867. Here’s how the deal came together and why its legacy matters.`\
-https://nytimes.com/2025/08/15/world/europe/russia-alaska-purchase-ukraine.html
+**Feds Turn Into Beat Cops Under Trump’s D.C. Policing Surge**\
+`In the nation’s capital, federal agents have operated a sobriety checkpoint, made gun and drug busts and carried out other day-to-day police work. Some residents are uneasy.`\
+https://nytimes.com/2025/08/15/us/dc-police-federal-night-scene.html
 
-**The Trump-Putin Meeting: What to Know**\
-`The leaders of the United States and Russia will hold talks at an American military base in Alaska and are expected to hold a news conference afterward.`\
-https://nytimes.com/2025/08/15/us/politics/trump-putin-meeting-what-time-alaska.html
+**Tariffs Are High. So Is the Stock Market.**\
+`Strong corporate earnings, mostly stable tariff rates and the expectation of interest rate cuts have eased worries of a market reckoning.`\
+https://nytimes.com/2025/08/15/business/tariffs-are-high-so-is-the-stock-market.html
 
-**They’re Losing Their Vision. They Still Love Playing Tennis.**\
-`For the visually impaired people who participate in blind tennis, the sport delivers joy. “This is what I’ve been missing,” one player said.`\
-https://nytimes.com/2025/08/15/nyregion/blind-tennis-new-york-city.html
+**Sarah Jessica Parker on ‘And Just Like That …’ and Carrie’s Legacy**\
+`The “Sex and the City” revival reached its bittersweet end this week. Does the actress like where Carrie Bradshaw landed? “Absolutely.”`\
+https://nytimes.com/2025/08/15/arts/television/sarah-jessica-parker-and-just-like-that-finale.html
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2025/08/15/crosswords/spelling-bee-forum.html
+**The New York Times News Quiz, Aug. 15, 2025**\
+`Did you follow the news this week? Take our quiz to see how well you stack up with other Times readers.`\
+https://nytimes.com/interactive/2025/08/15/briefing/news-quiz-trump-putin-dc-national-guard.html
 
-**Fantasy Premier League live Q&A: FPL Gameweek One advice from Ben Dinnery**\
-`Join Ben Dinnery for a live Gameweek One FPL Q&A from 3pm-4pm UK time`\
-https://nytimes.com/athletic/6545147/2025/08/15/fantasy-premier-league-live-qa-fpl-tips-gw1/
+**Carrie Bradshaw’s Story May Be Over, but Her Clothes Live On**\
+`Throughout the beloved series “Sex and the City” and its reboot “And Just Like That …,” the protagonist’s wardrobe was the most reliable through line.`\
+https://nytimes.com/2025/08/15/style/carrie-bradshaw-and-just-like-that-fashion.html
 
-**Seth Meyers Braces for Trump’s Kennedy Center Honors**\
-`The president said “wokesters” in the performing arts wouldn’t be honored. “A ‘wokester’ sounds like a car your great-grandfather drove after the war,” Meyers said.`\
-https://nytimes.com/2025/08/15/arts/television/seth-meyers-trump-kennedy-center.html
+**How Ambitious Democratic Governors Are Navigating Trump’s Redistricting War**\
+`Some have emerged as a front line against Trump’s push to grab more seats in Congress, putting the issue at the center of their party’s politics. Others are ceding the spotlight.`\
+https://nytimes.com/2025/08/15/us/politics/democrats-redistricting-trump.html
 
-**Pro cycling transfer window round-up: Evenepoel's Red Bull switch, Quick-Step's change of direction, and more**\
-`Rounding up the main moves of summer transfer window as teams begin to look ahead to the 2026 campaign`\
-https://nytimes.com/athletic/6553362/2025/08/15/pro-cycling-transfer-window-evenepoel-tour-de-france/
+**With a Shovel and a Dream, Woman Finds 2.3 Carat Diamond in Arkansas**\
+`After three weeks, with bug bites and tattered hiking boots, Micherre Fox found the stone at Crater of Diamonds State Park.`\
+https://nytimes.com/2025/08/15/us/arkansas-state-park-diamond-found-engagment-ring.html
 
