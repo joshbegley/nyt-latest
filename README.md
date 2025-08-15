@@ -1,3 +1,19 @@
+**Why Russia Sold Alaska to the U.S.**\
+`The Trump-Putin summit will take place in a former Russian colony that the United States bought for $7.2 million in 1867. Here’s how the deal came together and why its legacy matters.`\
+https://nytimes.com/2025/08/15/world/europe/russia-alaska-purchase-ukraine.html
+
+**The Trump-Putin Meeting: What to Know**\
+`The leaders of the United States and Russia will hold talks at an American military base in Alaska and are expected to hold a news conference afterward.`\
+https://nytimes.com/2025/08/15/us/politics/trump-putin-meeting-what-time-alaska.html
+
+**They’re Losing Their Vision. They Still Love Playing Tennis.**\
+`For the visually impaired people who participate in blind tennis, the sport delivers joy. “This is what I’ve been missing,” one player said.`\
+https://nytimes.com/2025/08/15/nyregion/blind-tennis-new-york-city.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/08/15/crosswords/spelling-bee-forum.html
+
 **Fantasy Premier League live Q&A: FPL Gameweek One advice from Ben Dinnery**\
 `Join Ben Dinnery for a live Gameweek One FPL Q&A from 3pm-4pm UK time`\
 https://nytimes.com/athletic/6545147/2025/08/15/fantasy-premier-league-live-qa-fpl-tips-gw1/
@@ -21,20 +37,4 @@ https://nytimes.com/2025/08/15/business/china-economy-july-tariffs.html
 **The New York Times in Print for Friday, Aug. 15, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/08/15/todays-new-york-times
-
-**The Most Environmentally Imaginative Country on Earth Is Under Assault**\
-`Ecuador’s ecological progress is threatened by a series of reforms steamrolled by its young populist president, Daniel Noboa.`\
-https://nytimes.com/2025/08/15/opinion/ecuador-galapagos-noboa.html
-
-**Putin Should Be Careful What He Wishes For**\
-`Russia’s president has long insisted that Ukraine will be his. But his obsession may cost Russia more than he has bargained for.`\
-https://nytimes.com/2025/08/15/opinion/putin-trump-alaska-ukraine.html
-
-**Friday Briefing: Ukraine’s Fate**\
-`Plus, to appreciate a dancer, watch the hands.`\
-https://nytimes.com/2025/08/15/briefing/russia-putin-trump-ukraine-gaza-aid.html
-
-**Manchester United 2025-26 season preview: A new front line to help purge memories of Bilbao**\
-`Ruben Amorim has players better suited to his tactical approach and will hope to restore the club to the Champions League this term`\
-https://nytimes.com/athletic/6519745/2025/08/15/manchester-united-amorim-sesko-mbeumo-cunha-season-preview/
 
