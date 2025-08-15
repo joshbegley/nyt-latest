@@ -1,3 +1,11 @@
+**Phil Knight, Ex-Nike Chief, and His Wife Pledge $2 Billion to Oregon Cancer Center**\
+`Oregon Health & Science University said the couple’s donation would be the largest single gift to a higher-learning institution in the United States.`\
+https://nytimes.com/2025/08/14/us/phil-knight-nike-oregon-cancer-donation.html
+
+**Steelers offense a mixed bag in joint practice with Bucs; run game 'sloppy'**\
+`With Aaron Rodgers possibly sitting out all three preseason games, Thursday might have been the best chance to evaluate the QB this summer.`\
+https://nytimes.com/athletic/6554592/2025/08/14/steelers-offense-joint-practice-bucs/
+
 **Packers-Colts joint practice: Passing game struggles without Jordan Love, 5 key WRs**\
 `Tight end Tucker Kraft didn't sugarcoat his assessment of the passing game's performance in Thursday's joint practice.`\
 https://nytimes.com/athletic/6554753/2025/08/14/packers-colts-joint-practice-jordan-love/
@@ -14,7 +22,7 @@ https://nytimes.com/athletic/6554235/2025/08/14/minnesota-timberwolves-2025-sche
 `General manager Michael Lombardi will headline the show, now called “Carolina Football Live," each week. `\
 https://nytimes.com/athletic/6554682/2025/08/14/bill-belichick-north-carolina-coach-radio/
 
-**D.C. Homeless Camps Are Cleared Ahead of Federal Raids**\
+**D.C. Homeless Camps Are Cleared Ahead of Expected Federal Raids**\
 `City officials and advocates spent much of the day trying to clear the city’s dozens of homeless camps, urging people to go to shelters ahead of expected federal raids.`\
 https://nytimes.com/2025/08/14/us/politics/dc-homeless-camps-trump.html
 
@@ -29,12 +37,4 @@ https://nytimes.com/2025/08/14/us/politics/trump-dei-schools.html
 **Owen Caissie, Cubs' top prospect, debuts in Toronto as offense continues its struggles**\
 `Caissie's thunderous bat could not save a Cubs offense desperate for a clutch hit and searching for any sort of rhythm.`\
 https://nytimes.com/athletic/6554603/2025/08/14/owen-caissie-cubs-top-prospect-debuts-offense-struggles/
-
-**PBS Slashes Budget by 21% After Federal Funding Cuts**\
-`The nonprofit will receive less revenue from its members, which are under pressure to make up for shortfalls of their own.`\
-https://nytimes.com/2025/08/14/business/pbs-budget-cuts.html
-
-**Trump Mobilizes 800 National Guard Troops to Washington**\
-`President Trump deployed the troops as part of his attempt to fight crime that he has claimed is “out of control,” although official data shows that crime in the nation’s capital has been sharply falling in the last two years.`\
-https://nytimes.com/video/us/politics/100000010341817/national-guard-troops-mobilize-washington.html
 

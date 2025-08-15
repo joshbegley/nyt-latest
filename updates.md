@@ -1,3 +1,15 @@
+**Phil Knight, Ex-Nike Chief, and His Wife Pledge $2 Billion to Oregon Cancer Center**\
+`Oregon Health & Science University said the couple’s donation would be the largest single gift to a higher-learning institution in the United States.`\
+https://nytimes.com/2025/08/14/us/phil-knight-nike-oregon-cancer-donation.html
+
+**Steelers offense a mixed bag in joint practice with Bucs; run game 'sloppy'**\
+`With Aaron Rodgers possibly sitting out all three preseason games, Thursday might have been the best chance to evaluate the QB this summer.`\
+https://nytimes.com/athletic/6554592/2025/08/14/steelers-offense-joint-practice-bucs/
+
+**D.C. Homeless Camps Are Cleared Ahead of Expected Federal Raids**\
+`City officials and advocates spent much of the day trying to clear the city’s dozens of homeless camps, urging people to go to shelters ahead of expected federal raids.`\
+https://nytimes.com/2025/08/14/us/politics/dc-homeless-camps-trump.html
+
 **Packers-Colts joint practice: Passing game struggles without Jordan Love, 5 key WRs**\
 `Tight end Tucker Kraft didn't sugarcoat his assessment of the passing game's performance in Thursday's joint practice.`\
 https://nytimes.com/athletic/6554753/2025/08/14/packers-colts-joint-practice-jordan-love/
