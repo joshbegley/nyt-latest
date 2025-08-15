@@ -1,3 +1,7 @@
+**Fantasy Premier League live Q&A: FPL Gameweek One advice from Ben Dinnery**\
+`Join Ben Dinnery for a live Gameweek One FPL Q&A from 3pm-4pm UK time`\
+https://nytimes.com/athletic/6545147/2025/08/15/fantasy-premier-league-live-qa-fpl-tips-gw1/
+
 **Seth Meyers Braces for Trump’s Kennedy Center Honors**\
 `The president said “wokesters” in the performing arts wouldn’t be honored. “A ‘wokester’ sounds like a car your great-grandfather drove after the war,” Meyers said.`\
 https://nytimes.com/2025/08/15/arts/television/seth-meyers-trump-kennedy-center.html
