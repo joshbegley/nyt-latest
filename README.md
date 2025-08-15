@@ -2,7 +2,7 @@
 `Michael Salfino identifies the players who are too rich for his liking in 2025 fantasy football drafts, including speedster Xavier Worthy.`\
 https://nytimes.com/athletic/6555861/2025/08/15/fantasy-football-fade-overvalued-adp-cmc-worthy/
 
-**Kansas' Bill Self ready to coach after recovering from July procedure, he says**\
+**Kansas' Bill Self says he's ready to coach after recovering from July procedure**\
 `Self, released from the hospital July 26, said he would be able to coach a game tomorrow if Kansas played.`\
 https://nytimes.com/athletic/6556184/2025/08/15/bill-self-kansas-coach-procedure-recovery/
 
@@ -11,7 +11,7 @@ https://nytimes.com/athletic/6556184/2025/08/15/bill-self-kansas-coach-procedure
 https://nytimes.com/athletic/6556158/2025/08/15/michigan-stalions-sign-stealing-harbaugh-integrity/
 
 **Mayor of New Orleans Is Indicted, Her Lawyer Says**\
-`LaToya Cantrell has been under a corruption investigation, facing claims that she had taken gifts from a businessman who wanted a city official fired. The specific charges were not immediately clear.`\
+`LaToya Cantrell has been under a corruption investigation that has cast a shadow over her final term as mayor. The specific charges were not immediately clear.`\
 https://nytimes.com/2025/08/15/us/new-orleans-mayor-indictment.html
 
 **Trump Is Testing D.C.’s Home Rule. What Is It?**\
