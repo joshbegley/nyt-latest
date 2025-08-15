@@ -1,3 +1,11 @@
+**At Least 185 People Killed in Devastating Flash Floods in Pakistan**\
+`Rapidly melting glaciers and abnormally heavy rain have led to deadly flash floods in Pakistan, killing over 500 people since late June. Officials expect the death toll to rise as the monsoon season continues.`\
+https://nytimes.com/video/world/asia/100000010343290/pakistan-flash-floods-monsoon.html
+
+**Answering your Guardians questions: DeLauter updates, Kwan's struggles and more**\
+`Zack Meisel discussed these topics and more during a wide-ranging live Q&A with The Athletic subscribers on Friday.`\
+https://nytimes.com/athletic/6556334/2025/08/15/guardians-questions-kwan-delauter-playoffs/
+
 **Why the Giants shouldn't call up Bryce Eldridge in 2025**\
 `The Giants' season isn't going anywhere fast, but that doesn't mean rushing their top prospect to the majors is a good idea.`\
 https://nytimes.com/athletic/6556044/2025/08/15/sf-giants-bryce-eldridige-mlb-debut-timing/
