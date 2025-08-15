@@ -1,3 +1,15 @@
+**Hours Ahead of Meeting Putin, Trump Calls Kremlin’s Closest Ally**\
+`President Trump referred to the authoritarian ruler of Belarus, who has been isolated by the West for years, “the highly respected President.”`\
+https://nytimes.com/2025/08/15/world/europe/trump-belarus-leader-call-putin.html
+
+**Forest working on deal for City's Lewis**\
+`Lewis made 48 appearances for City in all competitions last season, starting 37 games and recording two goals and five assists.`\
+https://nytimes.com/athletic/6556026/2025/08/15/rico-lewis-forest-manchester-city-transfer/
+
+**Reds place rookie Chase Burns on IL with flexor strain**\
+`Burns has 57 strikeouts in 34 1/3 innings in the big leagues and four 10-strikeout starts.`\
+https://nytimes.com/athletic/6556057/2025/08/15/reds-chase-burns-injured-list/
+
 **Trump Rails About Youth Crime, a Focus of D.C. Leaders for Decades**\
 `Concerns came to a head during the pandemic, when carjackings surged and many of those arrested were children. Carjackings and other crimes have declined considerably.`\
 https://nytimes.com/2025/08/15/us/trump-juvenile-crime-dc-data.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6555950/2025/08/15/kliff-kingsbury-commanders-terry
 **Former employee sues Blackhawks, alleging discrimination, wrongful termination**\
 `The former employee alleges he was mistreated and fired by his supervisor for a previously approved interview about being gay.`\
 https://nytimes.com/athletic/6553636/2025/08/15/blackhawks-lawsuit-discrimination-filomena/
-
-**10 New Songs You Need to Hear: Khalid, Jay Som, Steve Lacy and More**\
-`Listen to tracks by Dijon, Woody Guthrie, iLe and others.`\
-https://nytimes.com/2025/08/15/arts/music/playlist-khalid-steve-lacy-dijon.html
-
-**How to Get the Most Out of Your Microwave, According to an Appliances Expert**\
-`Text by Rachel Wharton`\
-https://nytimes.com/card/2025/08/15/smarter-living/wirecutter/
-
-**Congressional Democrats Move to End Trump’s Control of D.C. Police**\
-`The legislation has little chance of success, given that Republicans control Congress.`\
-https://nytimes.com/2025/08/15/us/politics/congress-democrats-legislation-trump-dc-police.html
 
