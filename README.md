@@ -1,3 +1,7 @@
+**TAFC: The Premier League is back, but what's new, and what are our predictions?**\
+`Today in TAFC: Our ultimate Premier League guide, which Americans own top-flight clubs and a backlash to Barca playing in U.S.`\
+https://nytimes.com/athletic/6555259/2025/08/15/the-premier-league-is-back-but-whats-new-and-what-are-our-predictions/
+
 **Flash Floods in Pakistan Kill Dozens of People in a Single Day**\
 `The country has faced heavier rain during monsoon seasons, which scientists have attributed to climate change.`\
 https://nytimes.com/2025/08/15/world/asia/pakistan-flash-floods-india.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6552851/2025/08/15/newcastle-united-latest-alexande
 **Even with Twins out of contention, Pablo López aims for late season return: 'I want to do it'**\
 `Twins starter wants to have a "regular offseason."`\
 https://nytimes.com/athletic/6554902/2025/08/15/minnesota-twins-pablo-lopez-return/
-
-**The catfishing scam putting fans and female golfers in danger**\
-`Inside the social media scheme turning fans against athletes: 'There's really two victims'`\
-https://nytimes.com/athletic/6554056/2025/08/15/womens-golf-catfishing-social-media-stalking-cases/
 
