@@ -1,3 +1,15 @@
+**Mali’s Junta Accuses Frenchman of Plot to Overthrow the Military Government**\
+`A representative of the junta said the man had worked “on behalf of the French intelligence service, which mobilized political leaders, civil society actors and military personnel” to foment a coup.`\
+https://nytimes.com/2025/08/15/world/africa/mali-coup-france.html
+
+**Hull sign ex-Man Utd defender Williams as free agent**\
+`The 24-year-old, who has been without a club since his United contract expired in the summer of 2024, featured for Hull in pre-season.`\
+https://nytimes.com/athletic/6544165/2025/08/15/brandon-williams-hull-transfer/
+
+**Nuno: Forest signings' lack of 'adaption' time is problem after 'very, very bad' pre-season**\
+`Nuno says the lack of adaption time for the splurge of late Nottingham Forest signings is a major problem ahead of the Premier League start.`\
+https://nytimes.com/athletic/6556021/2025/08/15/nottingham-forest-adaption-new-signings/
+
 **Priscilla Presley Locked in Feud With Former Business Partners**\
 `Elvis’s ex-wife has traded lawsuits in a financial dispute with former advisers that has grown ugly with an allegation that she prematurely pulled the plug on her late daughter, Lisa Marie.`\
 https://nytimes.com/2025/08/15/arts/music/priscilla-presley-feud-former-business-partners.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6556057/2025/08/15/reds-chase-burns-injured-list/
 **Trump Rails About Youth Crime, a Focus of D.C. Leaders for Decades**\
 `Concerns came to a head during the pandemic, when carjackings surged and many of those arrested were children. Carjackings and other crimes have declined considerably.`\
 https://nytimes.com/2025/08/15/us/trump-juvenile-crime-dc-data.html
-
-**As Trump Tightens Hold on Kennedy Center, Top Theater Producer Resigns**\
-`Jeffrey Finn, a Broadway producer who has overseen theater programming at the Washington venue since 2016, will leave next month.`\
-https://nytimes.com/2025/08/15/theater/jeffrey-finn-kennedy-center-theater.html
-
-**The Deadly Pleasure of Smoking Cigarettes**\
-`Readers criticize a guest essay about the pleasures of smoking. Also: The trauma of jury duty; the federalized police in Washington, D.C.`\
-https://nytimes.com/2025/08/15/opinion/smoking-cigarettes-death.html
-
-**Guehi, Eze in line to start for Palace at Chelsea - Glasner**\
-`Glasner, though, offered no guarantees that the pair would stay at Palace beyond the end of the transfer window on September 1.`\
-https://nytimes.com/athletic/6555726/2025/08/15/marc-guehi-eberechi-eze-in-line-to-start-for-crystal-palace-at-chelsea-glasner/
 

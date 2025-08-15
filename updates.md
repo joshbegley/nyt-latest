@@ -1,3 +1,15 @@
+**Mali’s Junta Accuses Frenchman of Plot to Overthrow the Military Government**\
+`A representative of the junta said the man had worked “on behalf of the French intelligence service, which mobilized political leaders, civil society actors and military personnel” to foment a coup.`\
+https://nytimes.com/2025/08/15/world/africa/mali-coup-france.html
+
+**Hull sign ex-Man Utd defender Williams as free agent**\
+`The 24-year-old, who has been without a club since his United contract expired in the summer of 2024, featured for Hull in pre-season.`\
+https://nytimes.com/athletic/6544165/2025/08/15/brandon-williams-hull-transfer/
+
+**Nuno: Forest signings' lack of 'adaption' time is problem after 'very, very bad' pre-season**\
+`Nuno says the lack of adaption time for the splurge of late Nottingham Forest signings is a major problem ahead of the Premier League start.`\
+https://nytimes.com/athletic/6556021/2025/08/15/nottingham-forest-adaption-new-signings/
+
 **Priscilla Presley Locked in Feud With Former Business Partners**\
 `Elvis’s ex-wife has traded lawsuits in a financial dispute with former advisers that has grown ugly with an allegation that she prematurely pulled the plug on her late daughter, Lisa Marie.`\
 https://nytimes.com/2025/08/15/arts/music/priscilla-presley-feud-former-business-partners.html
