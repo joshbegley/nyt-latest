@@ -1,3 +1,7 @@
+**Braves takeaways: Acuña returns Friday, and out-of-contention Braves aim for strong finish**\
+`Atlanta has won six of its past eight games, including a 4-3, come-from-behind win in Thursday's series finale against the New York Mets.`\
+https://nytimes.com/athletic/6554931/2025/08/14/braves-takeaways-ronald-acuna-jr-strong-finish/
+
 **Jackie Bezos, Jeff Bezos’ Mother and an Early Amazon Investor, Dies at 78**\
 `Ms. Bezos and her husband invested about $245,000 in Amazon when the online bookstore was in its first year.`\
 https://nytimes.com/2025/08/14/obituaries/jackie-bezos-dead.html
