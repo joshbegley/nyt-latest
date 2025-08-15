@@ -1,3 +1,11 @@
+**The Windup: High-stakes rivalry this weekend**\
+`The Windup Newsletter ⚾ | This is The Athletic’s MLB newsletter.`\
+https://nytimes.com/athletic/6555731/2025/08/15/dodgers-padres-the-windup/
+
+**Ukrainians are very skeptical about the Trump-Putin meeting.**\
+`By Constant Méheut`\
+https://nytimes.com/live/2025/08/15/world/trump-putin-meeting-alaska/ukrainians-are-very-skeptical-about-the-trump-putin-meeting
+
 **Guardiola hopes Spurs target Savinho will remain at City for 'many years'**\
 `Guardiola also revealed the Brazilian winger was unlikely to be fit until after the close of the transfer window.`\
 https://nytimes.com/athletic/6555641/2025/08/15/tottenham-savinho-future-guardiola-injury/

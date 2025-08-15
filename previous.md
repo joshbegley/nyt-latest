@@ -1,3 +1,11 @@
+**The Windup: High-stakes rivalry this weekend**\
+`The Windup Newsletter ⚾ | This is The Athletic’s MLB newsletter.`\
+https://nytimes.com/athletic/6555731/2025/08/15/dodgers-padres-the-windup/
+
+**Ukrainians are very skeptical about the Trump-Putin meeting.**\
+`By Constant Méheut`\
+https://nytimes.com/live/2025/08/15/world/trump-putin-meeting-alaska/ukrainians-are-very-skeptical-about-the-trump-putin-meeting
+
 **Guardiola hopes Spurs target Savinho will remain at City for 'many years'**\
 `Guardiola also revealed the Brazilian winger was unlikely to be fit until after the close of the transfer window.`\
 https://nytimes.com/athletic/6555641/2025/08/15/tottenham-savinho-future-guardiola-injury/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6554966/2025/08/15/fantasy-football-news-christian-
 **A Timeline of Trump’s Complicated Relationship With Putin**\
 `President Trump has long admired President Vladimir V. Putin of Russia. Their meeting in Alaska will be at least their seventh face-to-face encounter.`\
 https://nytimes.com/2025/08/15/world/europe/trump-putin-timeline.html
-
-**Villa’s PL multi-ball violation: A three-game ban and £125k fine**\
-`Villa acknowledged that they breached the rules for the fifth time last season in their 2-0 win over Tottenham Hotspur at Villa Park in May.`\
-https://nytimes.com/athletic/6555473/2025/08/15/aston-villa-fined-premier-league-multiball-system/
-
-**Theater to Stream in August: ‘Hamilton’ and a Comedy About Immigration**\
-`Check out the Broadway blockbuster, which celebrates its 10th anniversary, and Michael Abbensetts’s play about the Guyanese community of London.`\
-https://nytimes.com/2025/08/15/theater/theater-to-stream-in-august-hamilton.html
 
