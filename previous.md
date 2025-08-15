@@ -1,3 +1,7 @@
+**Elena Rybakina surges past Aryna Sabalenka at Cincinnati Open to end world No.1's title defense**\
+`Rybakina reached her third semifinal in three tournaments with a comprehensive win over Sabalenka.`\
+https://nytimes.com/athletic/6556106/2025/08/15/tennis-rybakina-sabalenka-cincinnati-open-result-analysis/
+
 **Mali’s Junta Accuses Frenchman of Plot to Overthrow the Military Government**\
 `A representative of the junta said the man had worked “on behalf of the French intelligence service, which mobilized political leaders, civil society actors and military personnel” to foment a coup.`\
 https://nytimes.com/2025/08/15/world/africa/mali-coup-france.html
@@ -29,8 +33,4 @@ https://nytimes.com/2025/08/15/world/europe/trump-belarus-leader-call-putin.html
 **Forest working on deal for City's Lewis**\
 `Lewis made 48 appearances for City in all competitions last season, starting 37 games and recording two goals and five assists.`\
 https://nytimes.com/athletic/6556026/2025/08/15/rico-lewis-forest-manchester-city-transfer/
-
-**Reds place rookie Chase Burns on IL with flexor strain**\
-`Burns has 57 strikeouts in 34 1/3 innings in the big leagues and four 10-strikeout starts.`\
-https://nytimes.com/athletic/6556057/2025/08/15/reds-chase-burns-injured-list/
 

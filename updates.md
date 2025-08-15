@@ -1,3 +1,7 @@
+**Elena Rybakina surges past Aryna Sabalenka at Cincinnati Open to end world No.1's title defense**\
+`Rybakina reached her third semifinal in three tournaments with a comprehensive win over Sabalenka.`\
+https://nytimes.com/athletic/6556106/2025/08/15/tennis-rybakina-sabalenka-cincinnati-open-result-analysis/
+
 **Nuno: Forest signings' lack of 'adaption' time is problem after 'very, very bad' pre-season**\
 `Head coach Nuno is happy to see Forest push for such ambitious additions, but is concerned about the challenges of integrating new players`\
 https://nytimes.com/athletic/6556021/2025/08/15/nottingham-forest-adaption-new-signings/
