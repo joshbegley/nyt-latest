@@ -1,3 +1,19 @@
+**How to watch NASCAR's Cook Out 400 this weekend as Cup Series playoffs near**\
+`The playoff clock shows two races left in the Cup Series. This weekend, the short-track sprint at Richmond is a return to elbows-out racing.`\
+https://nytimes.com/athletic/6553731/2025/08/15/nascar-richmond-cook-out-400-channel-odds-how-to-watch/
+
+**Mets bullpen, trade deadline acquisitions waste rare good start in brutal loss**\
+`The way the Mets are playing, they can’t afford much more growing pains from their trade deadline acquisitions. `\
+https://nytimes.com/athletic/6555005/2025/08/15/new-york-mets-trade-deadline-acquisition-struggles/
+
+**The Savannah Bananas have a South Side sellout. Here's how to watch their Chicago stopover**\
+`The Savannah Bananas bring their baseball show to the South Side of Chicago. Here's how to watch Friday's funky scrimmage.`\
+https://nytimes.com/athletic/6549951/2025/08/15/savannah-bananas-chicago-white-sox-bananaball-how-to-watch/
+
+**Twins’ newest team Hall of Famer: Corey Koskie, the volleyball-playing ‘no shot’ from Canada**\
+`Tom Kelly didn't trust his glove, so Koskie "worked his butt off" to become one of the best all-around players in Twins history.`\
+https://nytimes.com/athletic/3093709/2025/08/15/the-most-underrated-minnesota-twins-of-all-time-corey-koskie-the-volleyball-playing-no-shot-from-canada/
+
 **Howe insists Isak could stay at Newcastle, 'all options' remain open**\
 `The Sweden international is keen to move to Liverpool and has been training away from his Newcastle team-mates.`\
 https://nytimes.com/athletic/6555216/2025/08/15/alexander-isak-newcastle-latest-eddie-howe/
