@@ -1,3 +1,7 @@
+**Nottingham Forest pre-season Q&A: Ask Paul Taylor anything ahead of the new season**\
+`The new Premier League season is upon us, and Nottingham Forest head into it on the back of another eventful summer`\
+https://nytimes.com/athletic/6555277/2025/08/15/nottingham-forest-pre-season-qa-ask-paul-taylor-anything-ahead-of-the-new-season/
+
 **Arch Manning and 2025’s other 24 most interesting college football people**\
 `The 21-year-old Manning, a member of the first family of football, is far from the only interesting person to follow this season.`\
 https://nytimes.com/athletic/6553536/2025/08/15/arch-manning-bill-belichick-james-franklin-college-football-2025/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6554056/2025/08/15/womens-golf-catfishing-social-me
 **Watch out, WNBA — the Aces might just be back**\
 `For as inconsistent as they have been — and their season has been plenty uneven — the Aces appear to be finding their stride.`\
 https://nytimes.com/athletic/6554850/2025/08/15/las-vegas-aces-win-streak-wnba/
-
-**The Athletic’s Friday football quiz question #68**\
-`Can you answer the weekly poser plucked from deep inside The Athletic's trivia vaults?`\
-https://nytimes.com/athletic/6554320/2025/08/15/the-athletics-friday-football-quiz-question-68/
 
