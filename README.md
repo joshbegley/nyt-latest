@@ -1,3 +1,7 @@
+**I.R.S. Makes It Harder for Wind and Solar Projects to Claim Tax Breaks**\
+`The move comes as the Trump administration has issued a barrage of new restrictions on renewable energy across the country.`\
+https://nytimes.com/2025/08/15/climate/irs-wind-solar-tax-credits.html
+
 **Appeals Court Paves Way for Mass Layoffs at C.F.P.B.**\
 `In a 2-to-1 ruling, a federal appeals court said a lower court could not block the Trump administration’s plans to reduce the Consumer Financial Protection Bureau’s staff by nearly 90 percent.`\
 https://nytimes.com/2025/08/15/us/politics/cfpb-layoffs-court.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6555861/2025/08/15/fantasy-football-fade-overvalued
 **Kansas' Bill Self says he's ready to coach after recovering from July procedure**\
 `Self, released from the hospital July 26, said he would be able to coach a game tomorrow if Kansas played.`\
 https://nytimes.com/athletic/6556184/2025/08/15/bill-self-kansas-coach-procedure-recovery/
-
-**Mandel: Michigan gets to keep its wins but loses its integrity**\
-`It isn't the fines or suspensions that impact Michigan's program the most. It's the reputational hit the school has taken over this scandal.`\
-https://nytimes.com/athletic/6556158/2025/08/15/michigan-stalions-sign-stealing-harbaugh-integrity/
 
