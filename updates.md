@@ -1,3 +1,11 @@
+**False Flags, Fake Flags: Propaganda Muddles the Trump-Putin Meeting**\
+`The summit in Alaska between President Trump and President Vladimir V. Putin of Russia has unleashed a wave of propaganda and disinformation from Russian state media and online conspiracy theorists.`\
+https://nytimes.com/2025/08/15/world/europe/misinformation-russia.html
+
+**Caleb Williams solid, not spectacular vs. Bills 'D': Bears joint practice observations**\
+`We break down Friday's joint practice between the Bears and Bills — how the two starting quarterbacks fared and Mitch Trubisky's return.`\
+https://nytimes.com/athletic/6556392/2025/08/15/bears-bills-joint-practice-caleb-williams/
+
 **Jackson to be left out of Chelsea squad for Palace game**\
 `Jackson, his representatives and Chelsea are exploring a possible move away from Stamford Bridge in the final weeks of the transfer window.`\
 https://nytimes.com/athletic/6555812/2025/08/15/nicolas-jackson-chelsea-crystal-palace/
