@@ -1,3 +1,11 @@
+**Appeals Court Paves Way for Mass Layoffs at C.F.P.B.**\
+`In a 2-to-1 ruling, a federal appeals court said a lower court could not block the Trump administration’s plans to reduce the Consumer Financial Protection Bureau’s staff by nearly 90 percent.`\
+https://nytimes.com/2025/08/15/us/politics/cfpb-layoffs-court.html
+
+**Al Nassr sign Coman from Bayern Munich**\
+`The 29-year-old spent 10 years with Bayern, making 339 appearances and recording 72 goals and 71 assists.`\
+https://nytimes.com/athletic/6547545/2025/08/15/kingsley-coman-al-nassr-bayern-transfer/
+
 **Adams Donor Avoids Prison After Admitting to Campaign Finance Scheme**\
 `Months after the Justice Department abandoned the corruption charges against Mayor Eric Adams, a Turkish American businessman was sentenced for crimes tied to the mayor’s case.`\
 https://nytimes.com/2025/08/15/nyregion/eric-adams-donor-sentenced-illegal-gifts.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6556184/2025/08/15/bill-self-kansas-coach-procedure
 **Mandel: Michigan gets to keep its wins but loses its integrity**\
 `It isn't the fines or suspensions that impact Michigan's program the most. It's the reputational hit the school has taken over this scandal.`\
 https://nytimes.com/athletic/6556158/2025/08/15/michigan-stalions-sign-stealing-harbaugh-integrity/
-
-**Mayor of New Orleans Is Indicted, Her Lawyer Says**\
-`LaToya Cantrell has been under a corruption investigation that has cast a shadow over her final term as mayor. The specific charges were not immediately clear.`\
-https://nytimes.com/2025/08/15/us/new-orleans-mayor-indictment.html
-
-**Trump Is Testing D.C.’s Home Rule. What Is It?**\
-`The city’s limited self-governance has set the stage for the president’s police takeover.`\
-https://nytimes.com/2025/08/15/upshot/washington-dc-home-rule-explained.html
 

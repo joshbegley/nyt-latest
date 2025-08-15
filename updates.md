@@ -1,3 +1,11 @@
+**Appeals Court Paves Way for Mass Layoffs at C.F.P.B.**\
+`In a 2-to-1 ruling, a federal appeals court said a lower court could not block the Trump administration’s plans to reduce the Consumer Financial Protection Bureau’s staff by nearly 90 percent.`\
+https://nytimes.com/2025/08/15/us/politics/cfpb-layoffs-court.html
+
+**Al Nassr sign Coman from Bayern Munich**\
+`The 29-year-old spent 10 years with Bayern, making 339 appearances and recording 72 goals and 71 assists.`\
+https://nytimes.com/athletic/6547545/2025/08/15/kingsley-coman-al-nassr-bayern-transfer/
+
 **Adams Donor Avoids Prison After Admitting to Campaign Finance Scheme**\
 `Months after the Justice Department abandoned the corruption charges against Mayor Eric Adams, a Turkish American businessman was sentenced for crimes tied to the mayor’s case.`\
 https://nytimes.com/2025/08/15/nyregion/eric-adams-donor-sentenced-illegal-gifts.html
