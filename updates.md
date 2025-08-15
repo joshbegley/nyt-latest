@@ -1,3 +1,7 @@
+**Seth Meyers Braces for Trump’s Kennedy Center Honors**\
+`The president said “wokesters” in the performing arts wouldn’t be honored. “A ‘wokester’ sounds like a car your great-grandfather drove after the war,” Meyers said.`\
+https://nytimes.com/2025/08/15/arts/television/seth-meyers-trump-kennedy-center.html
+
 **Pro cycling transfer window round-up: Evenepoel's Red Bull switch, Quick-Step's change of direction, and more**\
 `Rounding up the main moves of summer transfer window as teams begin to look ahead to the 2026 campaign`\
 https://nytimes.com/athletic/6553362/2025/08/15/pro-cycling-transfer-window-evenepoel-tour-de-france/

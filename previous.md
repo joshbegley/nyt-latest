@@ -1,3 +1,7 @@
+**Seth Meyers Braces for Trump’s Kennedy Center Honors**\
+`The president said “wokesters” in the performing arts wouldn’t be honored. “A ‘wokester’ sounds like a car your great-grandfather drove after the war,” Meyers said.`\
+https://nytimes.com/2025/08/15/arts/television/seth-meyers-trump-kennedy-center.html
+
 **Pro cycling transfer window round-up: Evenepoel's Red Bull switch, Quick-Step's change of direction, and more**\
 `Rounding up the main moves of summer transfer window as teams begin to look ahead to the 2026 campaign`\
 https://nytimes.com/athletic/6553362/2025/08/15/pro-cycling-transfer-window-evenepoel-tour-de-france/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6519745/2025/08/15/manchester-united-amorim-sesko-m
 **Arsenal Q&A with Art de Roche**\
 `Our Arsenal writer will answer your questions on the season ahead before Sunday's opening game at Old Trafford`\
 https://nytimes.com/athletic/6550960/2025/08/15/arsenal-pre-season-qa-art-de-roche/
-
-**Manchester City season preview: What to be excited about, what to fear and where they finish**\
-`How will Manchester City deal with not being favourites? What does Pep Guardiola have planned? And what should excite and worry fans?`\
-https://nytimes.com/athletic/6546495/2025/08/15/manchester-city-season-preview/
 
