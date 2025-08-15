@@ -1,3 +1,7 @@
+**10 New Songs You Need to Hear: Khalid, Jay Som, Steve Lacy and More**\
+`Listen to tracks by Dijon, Woody Guthrie, iLe and others.`\
+https://nytimes.com/2025/08/15/arts/music/playlist-khalid-steve-lacy-dijon.html
+
 **How to Get the Most Out of Your Microwave, According to an Appliances Expert**\
 `Text by Rachel Wharton`\
 https://nytimes.com/card/2025/08/15/smarter-living/wirecutter/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6555579/2025/08/15/dominic-calvert-lewin-transfer-l
 **Grand Slam Track misses payments to athletes, Michael Johnson 'confident' of its future**\
 `Johnson said GST "offered dated payment timelines" to its athletes and "have been unable to meet them".`\
 https://nytimes.com/athletic/6555763/2025/08/15/grand-slam-track-athlete-payments-michael-johnson/
-
-**Why Barcelona only have 18 active player contracts - with more departures expected**\
-`Barcelona Femeni are one of Europe’s elite teams. But despite the accolades, they have already said goodbye to five key players this summer`\
-https://nytimes.com/athletic/6554668/2025/08/15/barcelona-women-liga-f-finance/
 

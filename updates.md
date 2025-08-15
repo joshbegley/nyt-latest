@@ -1,3 +1,7 @@
+**10 New Songs You Need to Hear: Khalid, Jay Som, Steve Lacy and More**\
+`Listen to tracks by Dijon, Woody Guthrie, iLe and others.`\
+https://nytimes.com/2025/08/15/arts/music/playlist-khalid-steve-lacy-dijon.html
+
 **How to Get the Most Out of Your Microwave, According to an Appliances Expert**\
 `Text by Rachel Wharton`\
 https://nytimes.com/card/2025/08/15/smarter-living/wirecutter/
