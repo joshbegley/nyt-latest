@@ -1,3 +1,7 @@
+**Jackie Bezos, Jeff Bezos’ Mother and an Early Amazon Investor, Dies at 78**\
+`Ms. Bezos and her husband invested about $245,000 in Amazon when the online bookstore was in its first year.`\
+https://nytimes.com/2025/08/14/obituaries/jackie-bezos-dead.html
+
 **Man Fleeing an Immigration Raid Dies After Running Onto an L.A. Freeway**\
 `The man was hit by a vehicle. It happened about a month after an immigrant fell from a greenhouse and later died following a raid in Ventura County.`\
 https://nytimes.com/2025/08/14/us/los-angeles-raids-freeway-death.html

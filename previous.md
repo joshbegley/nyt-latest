@@ -1,3 +1,7 @@
+**Jackie Bezos, Jeff Bezos’ Mother and an Early Amazon Investor, Dies at 78**\
+`Ms. Bezos and her husband invested about $245,000 in Amazon when the online bookstore was in its first year.`\
+https://nytimes.com/2025/08/14/obituaries/jackie-bezos-dead.html
+
 **Man Fleeing an Immigration Raid Dies After Running Onto an L.A. Freeway**\
 `The man was hit by a vehicle. It happened about a month after an immigrant fell from a greenhouse and later died following a raid in Ventura County.`\
 https://nytimes.com/2025/08/14/us/los-angeles-raids-freeway-death.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/14/well/rfk-jr-maha-report-draft.html
 **Another Potential Storm Is Brewing in the Gulf of Mexico**\
 `If this storm becomes more organized before it moves over land, it would become Tropical Storm Fernand.`\
 https://nytimes.com/2025/08/14/weather/gulf-mexico-texas-storm-fernand.html
-
-**Milwaukee Bucks 2025-26 schedule takeaways: Fewer national TV games and a brutal midseason stretch**\
-`Each season, every team has a stretch that could be difficult. For the Bucks, their toughest span comes in late December, early January.`\
-https://nytimes.com/athletic/6553138/2025/08/14/milwaukee-bucks-2025-26-schedule-takeaways/
 
