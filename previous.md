@@ -1,3 +1,7 @@
+**D.C. Police Chief Retains Control of City Police After Court Hearing**\
+`After a federal judge threatened to block an order federalizing Washington, D.C.’s police, the Justice Department agreed to clarify that the city’s police chief remains in charge, for now.`\
+https://nytimes.com/2025/08/15/us/politics/judge-hearing-dc-home-rule.html
+
 **Judge Blocks F.T.C. Investigation of Media Matters**\
 `The agency began looking into the liberal watchdog group’s research critical of Elon Musk and his social media platform, X, in May.`\
 https://nytimes.com/2025/08/15/technology/media-matters-ftc-musk-injunction.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/08/15/world/trump-putin-meeting-alaska/fox-news-wi
 **Doris Lockhart Saatchi, 88, Critic and Collector of Cutting-Edge Art, Dies**\
 `With her husband, Charles Saatchi, she assembled one of the world’s top collections of contemporary art, featuring works by Andy Warhol, Julian Schnabel, Cy Twombly and many others.`\
 https://nytimes.com/2025/08/15/arts/doris-lockhart-saatchi-dead.html
-
-**Cannabis Shops Sue New York Over Rule Change That Could Shut Them Down**\
-`Last month, dozens of cannabis businesses were told they were located too close to schools after state officials realized they had misinterpreted regulations.`\
-https://nytimes.com/2025/08/15/nyregion/weed-cannabis-dispensary-lawsuit.html
 
