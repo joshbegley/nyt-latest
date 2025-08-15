@@ -1,3 +1,15 @@
+**Senator Begins Child Safety Investigation Into Meta’s A.I. Bot**\
+`Josh Hawley, Republican of Missouri, said he would look into whether the social media company’s artificial intelligence technology endangers children.`\
+https://nytimes.com/2025/08/15/technology/meta-child-safety-senate-investigation.html
+
+**Trump and Putin Meet in Alaska**\
+`Also, D.C. sued Trump over his takeover of the city’s police. Here’s the latest at the end of Friday.`\
+https://nytimes.com/2025/08/15/briefing/trump-and-putin-meet-in-alaska.html
+
+**Trump and Putin Meet in Alaska for Summit**\
+`President Trump arrived in Alaska on Friday for a meeting with President Vladimir V. Putin of Russia, hoping to broker a cease-fire in the Ukraine war.`\
+https://nytimes.com/video/us/politics/100000010344154/trump-putin-alaska-meeting.html
+
 **Tommy McLain, the King of Swamp Pop, Dies at 85**\
 `Playing a blend of rock, R&B and zydeco, he had a hit in 1966 with “Sweet Dreams” and inspired Elvis Costello and Nick Lowe, among many others.`\
 https://nytimes.com/2025/08/15/arts/music/tommy-mclain-dead.html
