@@ -1,3 +1,7 @@
+**Person With Fire Power**\
+`Dena R. Verkuil opens our solving weekend with a very crunchy puzzle.`\
+https://nytimes.com/2025/08/14/crosswords/daily-puzzle-2025-08-15.html
+
 **NFL to continue end zone social justice slogans in upcoming season: Report**\
 `As has been the case in recent years, programs will be able to choose between four different slogans.`\
 https://nytimes.com/athletic/6554825/2025/08/14/nfl-end-zone-slogans-social-justice-end-racism/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6553138/2025/08/14/milwaukee-bucks-2025-26-schedule
 **Thousands Ask Harvard Not to ‘Give in’ and Pay Fine to Trump**\
 `In a petition, alumni, faculty and members of the public asked Harvard to stand up to the White House. The school has signaled a willingness to pay $500 million to restore research funds.`\
 https://nytimes.com/2025/08/14/us/harvard-petition-trump.html
-
-**'I just want to help': Frankie Montas remains positive after being demoted to the bullpen**\
-`Banished to the bullpen after struggling in the starting rotation, Montas trails only Edwin Díaz as the Mets' most expensive reliever.`\
-https://nytimes.com/athletic/6554746/2025/08/14/frankie-montas-bullpen-demotion-mets/
 

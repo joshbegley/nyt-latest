@@ -1,3 +1,7 @@
+**Person With Fire Power**\
+`Dena R. Verkuil opens our solving weekend with a very crunchy puzzle.`\
+https://nytimes.com/2025/08/14/crosswords/daily-puzzle-2025-08-15.html
+
 **NFL to continue end zone social justice slogans in upcoming season: Report**\
 `As has been the case in recent years, programs will be able to choose between four different slogans.`\
 https://nytimes.com/athletic/6554825/2025/08/14/nfl-end-zone-slogans-social-justice-end-racism/
