@@ -1,3 +1,7 @@
+**Guardiola hopes Spurs target Savinho will remain at City for 'many years'**\
+`Guardiola also revealed the Brazilian winger was unlikely to be fit until after the close of the transfer window.`\
+https://nytimes.com/athletic/6555641/2025/08/15/tottenham-savinho-future-guardiola-injury/
+
 **Bayern in negotiations over Nkunku move from Chelsea**\
 `The Bundesliga champions are in talks over a proposed deal for the 27-year-old France international.`\
 https://nytimes.com/athletic/6555393/2025/08/15/christopher-nkunku-bayern-munich-transfer-chelsea/

@@ -1,3 +1,7 @@
+**Guardiola hopes Spurs target Savinho will remain at City for 'many years'**\
+`Guardiola also revealed the Brazilian winger was unlikely to be fit until after the close of the transfer window.`\
+https://nytimes.com/athletic/6555641/2025/08/15/tottenham-savinho-future-guardiola-injury/
+
 **Bayern in negotiations over Nkunku move from Chelsea**\
 `The Bundesliga champions are in talks over a proposed deal for the 27-year-old France international.`\
 https://nytimes.com/athletic/6555393/2025/08/15/christopher-nkunku-bayern-munich-transfer-chelsea/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6555473/2025/08/15/aston-villa-fined-premier-league
 **Theater to Stream in August: ‘Hamilton’ and a Comedy About Immigration**\
 `Check out the Broadway blockbuster, which celebrates its 10th anniversary, and Michael Abbensetts’s play about the Guyanese community of London.`\
 https://nytimes.com/2025/08/15/theater/theater-to-stream-in-august-hamilton.html
-
-**Arteta: Arsenal players voted to keep Odegaard as captain 'by a mile'**\
-`The issue had been raised by former Arsenal skipper Tony Adams, who said Arteta should replace Odegaard with Declan Rice.`\
-https://nytimes.com/athletic/6555560/2025/08/15/martin-odegaard-arsenal-captain-arteta/
 
