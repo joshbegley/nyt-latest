@@ -1,3 +1,15 @@
+**Mandel: Michigan's loss of integrity is biggest hit in Stalions scandal, not NCAA penalty**\
+`It isn't the fines or suspensions that impact Michigan's program the most. It's the reputational hit the school has taken over this scandal.`\
+https://nytimes.com/athletic/6556158/2025/08/15/michigan-stalions-sign-stealing-harbaugh-integrity/
+
+**Mayor of New Orleans Is Indicted, Her Lawyer Says**\
+`LaToya Cantrell has been under a corruption investigation, facing claims that she had taken gifts from a businessman who wanted a city official fired. The specific charges were not immediately clear.`\
+https://nytimes.com/2025/08/15/us/new-orleans-mayor-indictment.html
+
+**Trump Is Testing D.C.’s Home Rule. What Is It?**\
+`The city’s limited self-governance has set the stage for the president’s police takeover.`\
+https://nytimes.com/2025/08/15/upshot/washington-dc-home-rule-explained.html
+
 **Elena Rybakina surges past Aryna Sabalenka at Cincinnati Open to end world No.1's title defense**\
 `Rybakina reached her third semifinal in three tournaments with a comprehensive win over Sabalenka.`\
 https://nytimes.com/athletic/6556106/2025/08/15/tennis-rybakina-sabalenka-cincinnati-open-result-analysis/
@@ -25,12 +37,4 @@ https://nytimes.com/2025/08/15/world/canada/air-canada-flight-attendant-strike.h
 **As the Air Canada Strike Looms, Here’s What Travelers Need to Know**\
 `A strike by the carrier’s flight attendants could disrupt 130,000 travelers a day, including international fliers. Here’s what to know if your flight is affected.`\
 https://nytimes.com/2025/08/15/travel/air-canada-strike-flight-cancellations.html
-
-**Hours Ahead of Meeting Putin, Trump Calls Kremlin’s Closest Ally**\
-`President Trump referred to the authoritarian ruler of Belarus, who has been isolated by the West for years, “the highly respected President.”`\
-https://nytimes.com/2025/08/15/world/europe/trump-belarus-leader-call-putin.html
-
-**Forest working on deal for City's Lewis**\
-`Lewis made 48 appearances for City in all competitions last season, starting 37 games and recording two goals and five assists.`\
-https://nytimes.com/athletic/6556026/2025/08/15/rico-lewis-forest-manchester-city-transfer/
 
