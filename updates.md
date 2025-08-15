@@ -1,3 +1,7 @@
+**Trump Heads to Alaska for Summit With Putin**\
+`President Trump boarded Air Force One at Joint Base Andrews, Md., on Friday. The leaders of the United States and Russia are set to hold talks at an American military base in Alaska to discuss an end to the war in Ukraine, which Russia invaded in 2022.`\
+https://nytimes.com/video/us/politics/100000010342681/trump-alaska-putin-ukraine.html
+
 **Rosie O’Donnell and Eating the Rich: 7 Buzzy Shows at Edinburgh Fringe**\
 `The shows that have gotten tongues wagging this year include stand-up gigs, character skits and a routine that ends with its performer covered in goo.`\
 https://nytimes.com/2025/08/15/arts/edinburgh-fringe-buzziest-best-acts.html
