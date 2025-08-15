@@ -1,3 +1,7 @@
+**Until Saturday: Wait, they'd *never* started No. 1?**\
+`Until Saturday is The Athletic's free CFB newsletter.`\
+https://nytimes.com/athletic/6556020/2025/08/15/texas-preseason-ranking-until-saturday/
+
 **Kliff Kingsbury is losing patience, says Washington needs its top WRs back**\
 `Kingsbury’s comments were the most pointed yet by a Commanders coach or executive about the urgency to get Terry McLaurin and others back.`\
 https://nytimes.com/athletic/6555950/2025/08/15/kliff-kingsbury-commanders-terry-mclaurin/
