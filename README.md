@@ -1,3 +1,7 @@
+**Fantasy football All-Fade team: Christian McCaffrey, Xavier Worthy and more**\
+`Michael Salfino identifies the players who are too rich for his liking in 2025 fantasy football drafts, including speedster Xavier Worthy.`\
+https://nytimes.com/athletic/6555861/2025/08/15/fantasy-football-fade-overvalued-adp-cmc-worthy/
+
 **Kansas' Bill Self ready to coach after recovering from July procedure, he says**\
 `Self, released from the hospital July 26, said he would be able to coach a game tomorrow if Kansas played.`\
 https://nytimes.com/athletic/6556184/2025/08/15/bill-self-kansas-coach-procedure-recovery/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6556021/2025/08/15/nottingham-forest-adaption-new-s
 **Priscilla Presley Locked in Feud With Former Business Partners**\
 `Elvis’s ex-wife has traded lawsuits in a financial dispute with former advisers that has grown ugly with an allegation that she prematurely pulled the plug on her late daughter, Lisa Marie.`\
 https://nytimes.com/2025/08/15/arts/music/priscilla-presley-feud-former-business-partners.html
-
-**As Strike Looms, Air Canada’s Flight Attendants Reject Call for Arbitration**\
-`Their union says one of its core demands, to receive pay for groundwork, is unlikely to be introduced in arbitration. The airline began canceling flights ahead of the potential strike.`\
-https://nytimes.com/2025/08/15/world/canada/air-canada-flight-attendant-strike.html
 
