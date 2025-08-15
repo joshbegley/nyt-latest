@@ -1,3 +1,7 @@
+**Liverpool 4 Bournemouth 2 - Chiesa the supersub, Semenyo reports racist abuse, scores twice**\
+`A dramatic and controversial first game of the Premier League season ends with the Italian and Salah breaking the visitors' resolve`\
+https://nytimes.com/athletic/6553512/2025/08/15/liverpool-bournemouth-chiesa-semenyo-ekitike-jota/
+
 **At Least 185 People Killed in Devastating Flash Floods in Pakistan**\
 `Rapidly melting glaciers and abnormally heavy rain have led to deadly flash floods in Pakistan, killing over 500 people since late June. Officials expect the death toll to rise as the monsoon season continues.`\
 https://nytimes.com/video/world/asia/100000010343290/pakistan-flash-floods-monsoon.html
