@@ -1,3 +1,7 @@
+**Liverpool 4 Bournemouth 2 - Chiesa the supersub, Semenyo reports racist abuse, scores twice**\
+`A dramatic and controversial first game of the Premier League season ends with the Italian and Salah breaking the visitors' resolve`\
+https://nytimes.com/athletic/6553512/2025/08/15/liverpool-bournemouth-chiesa-semenyo-ekitike-jota/
+
 **At Least 185 People Killed in Devastating Flash Floods in Pakistan**\
 `Rapidly melting glaciers and abnormally heavy rain have led to deadly flash floods in Pakistan, killing over 500 people since late June. Officials expect the death toll to rise as the monsoon season continues.`\
 https://nytimes.com/video/world/asia/100000010343290/pakistan-flash-floods-monsoon.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/15/us/robin-lakoff-dead.html
 **I.R.S. Makes It Harder for Wind and Solar Projects to Claim Tax Breaks**\
 `The move comes as the Trump administration has issued a barrage of new restrictions on renewable energy across the country.`\
 https://nytimes.com/2025/08/15/climate/irs-wind-solar-tax-credits.html
-
-**Appeals Court Paves Way for Mass Layoffs at C.F.P.B.**\
-`In a 2-to-1 ruling, a federal appeals court said a lower court could not block the Trump administration’s plans to reduce the Consumer Financial Protection Bureau’s staff by nearly 90 percent.`\
-https://nytimes.com/2025/08/15/us/politics/cfpb-layoffs-court.html
 
