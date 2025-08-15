@@ -1,3 +1,19 @@
+**The Trauma of Childhood in Gaza**\
+`Over the past two years, tens of thousands of children in the territory have been killed, wounded or orphaned. Childhood as they once knew it has ceased to exist.`\
+https://nytimes.com/2025/08/15/world/middleeast/gaza-children-school-play.html
+
+**Masaoki Sen, a Kamikaze Volunteer Who Later Promoted Peace, Dies at 102**\
+`A pilot who never flew on a suicide mission during World War II, Mr. Sen went on to become a grandmaster of Japan’s tea ceremony and used the platform to oppose all wars.`\
+https://nytimes.com/2025/08/15/world/asia/japan-masaoki-sen-kamikaze-tea.html
+
+**The New York Times International Edition in Print for Saturday, Aug. 16, 2025**\
+``\
+https://nytimes.com/issue/todaysinyt/2025/08/15/todays-new-york-times-international-edition
+
+**Chelsea 'need a central defender' after Colwill injury, says Enzo Maresca**\
+`"We are trying to find a solution internally, but the club knows exactly what I think and we will see what happens," Maresca said on Friday.`\
+https://nytimes.com/athletic/6555194/2025/08/15/chelsea-transfers-defender-maresca/
+
 **Frank expects huge reception for Tel after 'terrible' racist abuse**\
 `Frank says Spurs are supporting Tel and expects a huge reception for the 20-year-old in Saturday's Premier League opener against Burnley.`\
 https://nytimes.com/athletic/6555168/2025/08/15/tottenham-mathys-tel-racist-abuse-thomas-frank/
