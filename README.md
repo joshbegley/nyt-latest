@@ -1,3 +1,15 @@
+**Senator Begins Child Safety Investigation Into Meta’s A.I. Bot**\
+`Josh Hawley, Republican of Missouri, said he would look into whether the social media company’s artificial intelligence technology endangers children.`\
+https://nytimes.com/2025/08/15/technology/meta-child-safety-senate-investigation.html
+
+**Trump and Putin Meet in Alaska**\
+`Also, D.C. sued Trump over his takeover of the city’s police. Here’s the latest at the end of Friday.`\
+https://nytimes.com/2025/08/15/briefing/trump-and-putin-meet-in-alaska.html
+
+**Trump and Putin Meet in Alaska for Summit**\
+`President Trump arrived in Alaska on Friday for a meeting with President Vladimir V. Putin of Russia, hoping to broker a cease-fire in the Ukraine war.`\
+https://nytimes.com/video/us/politics/100000010344154/trump-putin-alaska-meeting.html
+
 **Tommy McLain, the King of Swamp Pop, Dies at 85**\
 `Playing a blend of rock, R&B and zydeco, he had a hit in 1966 with “Sweet Dreams” and inspired Elvis Costello and Nick Lowe, among many others.`\
 https://nytimes.com/2025/08/15/arts/music/tommy-mclain-dead.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/08/15/world/europe/zelensky-ukraine-strikes-putin.html
 **A crucial Padres-Dodgers series goes down this weekend. Here's how to tune in**\
 `Heat is rising in Southern California, and tensions are narrowing in the NL West. The Padres visit the Dodgers for three games this weekend.`\
 https://nytimes.com/athletic/6554589/2025/08/15/padres-dodgers-ohtani-tatis-machado-how-to-watch/
-
-**Frank Savage, 87, Business Leader Entangled in Enron Scandal, Is Dead**\
-`He was one of the relatively few Black Americans to reach the upper echelons of global finance. He was also a competitive sailor.`\
-https://nytimes.com/2025/08/15/business/frank-savage-dead-at-87.html
-
-**PL opener paused after Semenyo reports racist abuse from the stands**\
-`TV cameras showed Semenyo informing referee Anthony Taylor of the racist comment from a member of the Anfield crowd.`\
-https://nytimes.com/athletic/6556320/2025/08/15/liverpool-bournemouth-antoine-semenyo-racist-abuse/
-
-**Robin Lakoff, Expert on Language and Gender, Is Dead at 82**\
-`In arguing that language enforces the power imbalance between the sexes, she inspired an entire academic field.`\
-https://nytimes.com/2025/08/15/us/robin-lakoff-dead.html
 

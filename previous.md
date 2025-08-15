@@ -1,3 +1,7 @@
+**Tommy McLain, the King of Swamp Pop, Dies at 85**\
+`Playing a blend of rock, R&B and zydeco, he had a hit in 1966 with “Sweet Dreams” and inspired Elvis Costello and Nick Lowe, among many others.`\
+https://nytimes.com/2025/08/15/arts/music/tommy-mclain-dead.html
+
 **Liverpool 4 Bournemouth 2 - Chiesa the supersub, Semenyo reports racist abuse, scores twice**\
 `A dramatic and controversial first game of the Premier League season ends with the Italian and Salah breaking the visitors' resolve`\
 https://nytimes.com/athletic/6553512/2025/08/15/liverpool-bournemouth-chiesa-semenyo-ekitike-jota/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6556320/2025/08/15/liverpool-bournemouth-antoine-se
 **Robin Lakoff, Expert on Language and Gender, Is Dead at 82**\
 `In arguing that language enforces the power imbalance between the sexes, she inspired an entire academic field.`\
 https://nytimes.com/2025/08/15/us/robin-lakoff-dead.html
-
-**I.R.S. Makes It Harder for Wind and Solar Projects to Claim Tax Breaks**\
-`The move comes as the Trump administration has issued a barrage of new restrictions on renewable energy across the country.`\
-https://nytimes.com/2025/08/15/climate/irs-wind-solar-tax-credits.html
 

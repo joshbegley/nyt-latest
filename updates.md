@@ -1,3 +1,7 @@
+**Tommy McLain, the King of Swamp Pop, Dies at 85**\
+`Playing a blend of rock, R&B and zydeco, he had a hit in 1966 with “Sweet Dreams” and inspired Elvis Costello and Nick Lowe, among many others.`\
+https://nytimes.com/2025/08/15/arts/music/tommy-mclain-dead.html
+
 **Liverpool 4 Bournemouth 2 - Chiesa the supersub, Semenyo reports racist abuse, scores twice**\
 `A dramatic and controversial first game of the Premier League season ends with the Italian and Salah breaking the visitors' resolve`\
 https://nytimes.com/athletic/6553512/2025/08/15/liverpool-bournemouth-chiesa-semenyo-ekitike-jota/
