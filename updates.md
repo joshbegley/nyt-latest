@@ -1,3 +1,7 @@
+**Putin’s visit to the U.S. will be his first since 2015.**\
+`By Anushka Patil`\
+https://nytimes.com/live/2025/08/15/world/trump-putin-meeting-alaska/putin-trump-alaska-us-visit
+
 **D.C. Sues Trump Administration Over Takeover of City**\
 `The suit argues that the move to federalize the city’s Police Department was a “brazen usurpation of the district’s authority” that exceeded the president’s authority.`\
 https://nytimes.com/2025/08/15/us/washington-dc-police-trump-lawsuit.html
