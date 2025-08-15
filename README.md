@@ -1,3 +1,7 @@
+**‘And Just Like That …’ Series Finale Recap: My Everything**\
+`The “Sex and the City” revival ended on an empowering but bittersweet note for Carrie and the crew … and also with Barry White.`\
+https://nytimes.com/2025/08/14/arts/television/and-just-like-that-recap-series-finale.html
+
 **Draft of White House Report Suggests Kennedy Won’t Push Strict Pesticide Regulations**\
 `The report is not final, but indicates good news for the food and agriculture industries.`\
 https://nytimes.com/2025/08/14/well/rfk-jr-maha-report-draft.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6554753/2025/08/14/packers-colts-joint-practice-jor
 **Lesser Prairie Chicken Loses Endangered Species Act Protections**\
 `A federal judge in Texas granted a request by the Trump administration, which said a Biden-era decision to safeguard the bird was flawed.`\
 https://nytimes.com/2025/08/14/climate/lesser-prairie-chicken-endangered-species.html
-
-**Anthony Edwards has helped turn the Minnesota Timberwolves into must-see TV**\
-`The Wolves are set to be featured on national TV 28 times in the upcoming season, further highlighting Edwards' impact on the franchise.`\
-https://nytimes.com/athletic/6554235/2025/08/14/minnesota-timberwolves-2025-schedule-release-anthony-edwards/
 
