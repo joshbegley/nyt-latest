@@ -1,3 +1,7 @@
+**‘And Just Like That …’ Series Finale Recap: My Everything**\
+`The “Sex and the City” revival ended on an empowering but bittersweet note for Carrie and the crew … and also with Barry White.`\
+https://nytimes.com/2025/08/14/arts/television/and-just-like-that-recap-series-finale.html
+
 **Draft of White House Report Suggests Kennedy Won’t Push Strict Pesticide Regulations**\
 `The report is not final, but indicates good news for the food and agriculture industries.`\
 https://nytimes.com/2025/08/14/well/rfk-jr-maha-report-draft.html
