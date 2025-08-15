@@ -1,3 +1,15 @@
+**Bournemouth close to agreement for Liverpool's Doak**\
+`Doak joined Liverpool from Celtic as a 16-year-old in March 2022 and made 10 first-team appearances, spending last season at Middlesbrough.`\
+https://nytimes.com/athletic/6522220/2025/08/15/bournemouth-ben-doak-liverpool-transfer-news/
+
+**Twins’ newest team Hall of Famer: Corey Koskie, the volleyball-playing ‘no shot’ from Canada**\
+`Tom Kelly didn't trust his glove, so Koskie "worked his butt off" to become one of the best all-around players in Twins history.`\
+https://nytimes.com/athletic/3093709/2025/08/15/the-most-underrated-minnesota-twins-of-all-time-corey-koskie-the-volleyball-playing-no-shot-from-canada/
+
+**Who is the Phillies' third-best starter? It will matter come October**\
+`Cristopher Sánchez and Zack Wheeler will be locks for Philadelphia's playoff rotation. After that, things are much less clear.`\
+https://nytimes.com/athletic/6554926/2025/08/15/phillies-third-best-starting-pitcher-mlb-playoffs/
+
 **Top 25 potential MLB free agents for 2025-26 as the offseason draws nearer**\
 `Kyle Tucker leads the way in a free-agent class that is expected to also feature prolific power hitters and impact closers. `\
 https://nytimes.com/athletic/6554757/2025/08/15/mlb-free-agents-2025-26-offseason/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6554394/2025/08/15/dodgers-padres-nl-west-race/
 **Trump Administration Live Updates: Federal Authorities Target Homeless Camps in D.C.**\
 ``\
 https://nytimes.com/live/2025/08/15/us/trump-administration-dc-news
-
-**TAFC: The Premier League is back, but what's new, and what are our predictions?**\
-`Today in TAFC: Our ultimate Premier League guide, which Americans own top-flight clubs and a backlash to Barca playing in U.S.`\
-https://nytimes.com/athletic/6555259/2025/08/15/the-premier-league-is-back-but-whats-new-and-what-are-our-predictions/
-
-**Flash Floods in Pakistan Kill Dozens of People in a Single Day**\
-`The country has faced heavier rain during monsoon seasons, which scientists have attributed to climate change.`\
-https://nytimes.com/2025/08/15/world/asia/pakistan-flash-floods-india.html
-
-**Nottingham Forest pre-season Q&A: Ask Paul Taylor anything ahead of the new season**\
-`The new Premier League season is upon us, and Nottingham Forest head into it on the back of another eventful summer`\
-https://nytimes.com/athletic/6555277/2025/08/15/nottingham-forest-pre-season-qa-ask-paul-taylor-anything-ahead-of-the-new-season/
 
