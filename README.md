@@ -1,3 +1,7 @@
+**Adams Donor Avoids Prison After Admitting to Campaign Finance Scheme**\
+`Months after the Justice Department abandoned the corruption charges against Mayor Eric Adams, a Turkish American businessman was sentenced for crimes tied to the mayor’s case.`\
+https://nytimes.com/2025/08/15/nyregion/eric-adams-donor-sentenced-illegal-gifts.html
+
 **Environmental Groups Sue Over D.O.E. Report Downplaying Climate Change**\
 `The lawsuit seeks to block the Trump administration from repealing the legal foundation for regulating climate pollution.`\
 https://nytimes.com/2025/08/15/climate/lawsuit-climate-change-report.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/15/us/new-orleans-mayor-indictment.html
 **Trump Is Testing D.C.’s Home Rule. What Is It?**\
 `The city’s limited self-governance has set the stage for the president’s police takeover.`\
 https://nytimes.com/2025/08/15/upshot/washington-dc-home-rule-explained.html
-
-**Elena Rybakina surges past Aryna Sabalenka at Cincinnati Open to end world No.1's title defense**\
-`Rybakina reached her third semifinal in three tournaments with a comprehensive win over Sabalenka.`\
-https://nytimes.com/athletic/6556106/2025/08/15/tennis-rybakina-sabalenka-cincinnati-open-result-analysis/
 
