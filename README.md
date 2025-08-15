@@ -1,3 +1,7 @@
+**Packers-Colts joint practice: Passing game struggles without Jordan Love, 5 key WRs**\
+`Tight end Tucker Kraft didn't sugarcoat his assessment of the passing game's performance in Thursday's joint practice.`\
+https://nytimes.com/athletic/6554753/2025/08/14/packers-colts-joint-practice-jordan-love/
+
 **Lesser Prairie Chicken Loses Endangered Species Act Protections**\
 `A federal judge in Texas granted a request by the Trump administration, which said a Biden-era decision to safeguard the bird was flawed.`\
 https://nytimes.com/2025/08/14/climate/lesser-prairie-chicken-endangered-species.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/14/business/pbs-budget-cuts.html
 **Trump Mobilizes 800 National Guard Troops to Washington**\
 `President Trump deployed the troops as part of his attempt to fight crime that he has claimed is “out of control,” although official data shows that crime in the nation’s capital has been sharply falling in the last two years.`\
 https://nytimes.com/video/us/politics/100000010341817/national-guard-troops-mobilize-washington.html
-
-**What Hurricane Models Can (and Can’t) Tell Us About Erin**\
-`The storm’s likely path is coming into focus, but a lot can still change. Here’s what the forecasters look at.`\
-https://nytimes.com/2025/08/14/weather/hurricane-erin-spaghetti-models.html
 
