@@ -1,3 +1,7 @@
+**Putin’s visit to the U.S. will be his first since 2015.**\
+`By Anushka Patil`\
+https://nytimes.com/live/2025/08/15/world/trump-putin-meeting-alaska/putin-trump-alaska-us-visit
+
 **D.C. Sues Trump Administration Over Takeover of City**\
 `The suit argues that the move to federalize the city’s Police Department was a “brazen usurpation of the district’s authority” that exceeded the president’s authority.`\
 https://nytimes.com/2025/08/15/us/washington-dc-police-trump-lawsuit.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/15/arts/edinburgh-fringe-buzziest-best-acts.html
 **Amorim: Sesko ready to start against Arsenal**\
 `Noussair Mazraoui and Lisandro Martinez will miss Sunday's Premier League opener.`\
 https://nytimes.com/athletic/6555433/2025/08/15/man-utd-team-news-sesko-onana-arsenal/
-
-**Plastic Pollution Talks Collapse as Oil States Oppose Tough Treaty**\
-`Countries failed to bridge wide gaps on whether the world should limit plastic manufacturing and restrict the use of harmful plastic chemicals.`\
-https://nytimes.com/2025/08/15/climate/plastic-pollution-treaty-talks-collapse.html
 

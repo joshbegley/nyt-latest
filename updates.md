@@ -1,3 +1,15 @@
+**D.C. Sues Trump Administration Over Takeover of City**\
+`The suit argues that the move to federalize the city’s Police Department was a “brazen usurpation of the district’s authority” that exceeded the president’s authority.`\
+https://nytimes.com/2025/08/15/us/washington-dc-police-trump-lawsuit.html
+
+**No Corrections: Aug. 15, 2025**\
+`No corrections appeared in print on Friday, Aug. 15, 2025.`\
+https://nytimes.com/2025/08/15/pageoneplus/no-corrections-aug-15-2025.html
+
+**Trump Heads to Alaska for Summit With Putin**\
+`President Trump boarded Air Force One at Joint Base Andrews, Md., on Friday. The leaders of the United States and Russia are set to hold talks at an American military base in Alaska to discuss an end to the war in Ukraine, which Russia invaded in 2022.`\
+https://nytimes.com/video/embedded/us/politics/100000010342681/trump-alaska-putin-ukraine.html
+
 **Branthwaite ruled out of Everton's trip to Leeds**\
 `Manager David Moyes did not give a timeframe on Branthwaite's recovery from injury.`\
 https://nytimes.com/athletic/6553854/2025/08/15/jarrad-branthwaite-injury-everton-leeds/
