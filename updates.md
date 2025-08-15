@@ -1,3 +1,7 @@
+**Plastic Pollution Talks Collapse as Oil States Oppose Tough Treaty**\
+`Countries failed to bridge wide gaps on whether the world should limit plastic manufacturing and restrict the use of harmful plastic chemicals.`\
+https://nytimes.com/2025/08/15/climate/plastic-pollution-treaty-talks-collapse.html
+
 **Bournemouth close to agreement for Liverpool's Doak**\
 `Doak joined Liverpool from Celtic as a 16-year-old in March 2022 and made 10 first-team appearances, spending last season at Middlesbrough.`\
 https://nytimes.com/athletic/6522220/2025/08/15/bournemouth-ben-doak-liverpool-transfer-news/
