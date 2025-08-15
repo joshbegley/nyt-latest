@@ -1,3 +1,7 @@
+**Draft of White House Report Suggests Kennedy Won’t Push Strict Pesticide Regulations**\
+`The report is not final, but indicates good news for the food and agriculture industries.`\
+https://nytimes.com/2025/08/14/well/rfk-jr-maha-report-draft.html
+
 **Another Potential Storm Is Brewing in the Gulf of Mexico**\
 `If this storm becomes more organized before it moves over land, it would become Tropical Storm Fernand.`\
 https://nytimes.com/2025/08/14/weather/gulf-mexico-texas-storm-fernand.html
