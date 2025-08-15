@@ -1,3 +1,7 @@
+**Marshall Islands, last country without a football team, play first game**\
+`The Pacific Island nation, which boasts fewer than 40,000 inhabitants, played the US Virgin Islands on Thursday.`\
+https://nytimes.com/athletic/6555128/2025/08/15/marshall-islands-football-team-first-game/
+
 **Ukrainians in Alaska Are Skeptical About Trump-Putin Summit**\
 `Ukrainians who fled the war and settled in Alaska, where President Trump is set to meet with Russia’s leader, Vladimir Putin, on Friday, are keeping their expectations for the talks low.`\
 https://nytimes.com/video/us/100000010342529/trump-putin-ukraine-alaska.html
