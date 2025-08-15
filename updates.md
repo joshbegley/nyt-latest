@@ -1,3 +1,11 @@
+**Theater to Stream in August: ‘Hamilton’ and a Comedy About Immigration**\
+`Check out the Broadway blockbuster, which celebrates its 10th anniversary, and Michael Abbensetts’s play about the Guyanese community of London.`\
+https://nytimes.com/2025/08/15/theater/theater-to-stream-in-august-hamilton.html
+
+**Arteta: Arsenal players voted to keep Odegaard as captain 'by a mile'**\
+`The issue had been raised by former Arsenal skipper Tony Adams, who said Arteta should replace Odegaard with Declan Rice.`\
+https://nytimes.com/athletic/6555560/2025/08/15/martin-odegaard-arsenal-captain-arteta/
+
 **Putin’s visit to the U.S. will be his first since 2015.**\
 `By Anushka Patil`\
 https://nytimes.com/live/2025/08/15/world/trump-putin-meeting-alaska/putin-trump-alaska-us-visit

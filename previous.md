@@ -1,3 +1,11 @@
+**Theater to Stream in August: ‘Hamilton’ and a Comedy About Immigration**\
+`Check out the Broadway blockbuster, which celebrates its 10th anniversary, and Michael Abbensetts’s play about the Guyanese community of London.`\
+https://nytimes.com/2025/08/15/theater/theater-to-stream-in-august-hamilton.html
+
+**Arteta: Arsenal players voted to keep Odegaard as captain 'by a mile'**\
+`The issue had been raised by former Arsenal skipper Tony Adams, who said Arteta should replace Odegaard with Declan Rice.`\
+https://nytimes.com/athletic/6555560/2025/08/15/martin-odegaard-arsenal-captain-arteta/
+
 **Putin’s visit to the U.S. will be his first since 2015.**\
 `By Anushka Patil`\
 https://nytimes.com/live/2025/08/15/world/trump-putin-meeting-alaska/putin-trump-alaska-us-visit
@@ -29,12 +37,4 @@ https://nytimes.com/live/2025/08/15/world/trump-putin-meeting-alaska
 **Trump Heads to Alaska for Summit With Putin**\
 `President Trump boarded Air Force One at Joint Base Andrews, Md., on Friday. The leaders of the United States and Russia are set to hold talks at an American military base in Alaska to discuss an end to the war in Ukraine, which Russia invaded in 2022.`\
 https://nytimes.com/video/embedded/us/politics/100000010342681/trump-alaska-putin-ukraine.html
-
-**Rosie O’Donnell and Eating the Rich: 7 Buzzy Shows at Edinburgh Fringe**\
-`The shows that have gotten tongues wagging this year include stand-up gigs, character skits and a routine that ends with its performer covered in goo.`\
-https://nytimes.com/2025/08/15/arts/edinburgh-fringe-buzziest-best-acts.html
-
-**Amorim: Sesko ready to start against Arsenal**\
-`Noussair Mazraoui and Lisandro Martinez will miss Sunday's Premier League opener.`\
-https://nytimes.com/athletic/6555433/2025/08/15/man-utd-team-news-sesko-onana-arsenal/
 
