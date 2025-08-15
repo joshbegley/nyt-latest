@@ -1,3 +1,7 @@
+**NCAA fines Michigan, suspends coach Moore in sign-stealing investigation**\
+`The punishments include a significant penalty for former staffer Connor Stalions, but the Wolverines will not face a postseason ban`\
+https://nytimes.com/athletic/6554669/2025/08/15/connor-stalions-sign-stealing-saga-resolution/
+
 **$5,000-Per-Plate Dinner Tests Museum Ban on Political Fund-Raisers**\
 `Carnegie Museums employees objected that a fund-raiser for a nonprofit with ties to a senator had violated museum policy against renting space for partisan political events.`\
 https://nytimes.com/2025/08/15/arts/design/carnegie-museums-mccormick-pa-rising.html

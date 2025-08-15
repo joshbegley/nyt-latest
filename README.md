@@ -1,4 +1,12 @@
-**NCAA fines Michigan, suspends coach Moore in sign-stealing investigation**\
+**Who’s Attending the Trump-Putin Meeting in Alaska**\
+`The delegations include top diplomatic, military and economic officials, a sign that the U.S. and Russia will discuss more than the war in Ukraine.`\
+https://nytimes.com/2025/08/15/world/europe/trump-putin-russia-us-attending-who-alaska.html
+
+**Lowetide: Why this goalie is a player to watch for Edmonton Oilers fans in 2025-26**\
+`Samuel Jonsson is good at doing the one thing Edmonton's goalies have found difficult in the last couple of years: stopping pucks.`\
+https://nytimes.com/athletic/6552365/2025/08/15/edmonton-oilers-prospect-samuel-jonsson/
+
+**NCAA fines Michigan, suspends Sherrone Moore in sign-stealing investigation**\
 `The punishments include a significant penalty for former staffer Connor Stalions, but the Wolverines will not face a postseason ban`\
 https://nytimes.com/athletic/6554669/2025/08/15/connor-stalions-sign-stealing-saga-resolution/
 
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6555774/2025/08/15/nba-center-rankings-the-bounce/
 **Fed Chair Faces Scrutiny at Major Policy Speech. Also, Bats.**\
 `A colony of bats recently took up residence at the storied Jackson Lake Lodge, where central bankers and economic policymakers will convene next week for an exclusive gathering.`\
 https://nytimes.com/2025/08/15/business/federal-reserve-jerome-powell-jackson-hole-bats.html
-
-**Read D.C.’s Lawsuit Against the Trump Administration**\
-`The District of Columbia government is challenging the Trump administration’s attempt to take control of the D.C. Police Department.`\
-https://nytimes.com/interactive/2025/08/15/us/dc-lawsuit-trump.html
-
-**Can You Wear Pajamas Through Lunchtime?**\
-`A ruling on a dispute over the appropriate time limits for sleepwear.`\
-https://nytimes.com/interactive/2025/08/15/magazine/pajamas-hodgman-quiz.html
 
