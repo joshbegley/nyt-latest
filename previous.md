@@ -1,3 +1,11 @@
+**Read D.C.’s Lawsuit Against the Trump Administration**\
+`The District of Columbia government is challenging the Trump administration’s attempt to take control of the D.C. Police Department.`\
+https://nytimes.com/interactive/2025/08/15/us/dc-lawsuit-trump.html
+
+**Can You Wear Pajamas Through Lunchtime?**\
+`A ruling on a dispute over the appropriate time limits for sleepwear.`\
+https://nytimes.com/interactive/2025/08/15/magazine/pajamas-hodgman-quiz.html
+
 **The Windup: High-stakes rivalry this weekend**\
 `The Windup Newsletter ⚾ | This is The Athletic’s MLB newsletter.`\
 https://nytimes.com/athletic/6555731/2025/08/15/dodgers-padres-the-windup/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6555505/2025/08/15/aston-villa-pre-season-qa-ask-ja
 **Wolves pre-season Q&A: Ask Steve Madeley anything ahead of the new season**\
 `The new Premier League season is upon us and Wolverhampton Wanderers still feel like an incomplete team.`\
 https://nytimes.com/athletic/6554417/2025/08/15/wolves-pre-season-qa-ask-steve-madeley-anything-ahead-of-the-new-season/
-
-**Christian McCaffrey, Rashee Rice and the fantasy football implications of the latest NFL news**\
-`Andy Behrens checks in on the hot fantasy football topics pervading NFL training camps, including a healthy Christian McCaffrey.`\
-https://nytimes.com/athletic/6554966/2025/08/15/fantasy-football-news-christian-mccaffrey-rashee-rice/
-
-**A Timeline of Trump’s Complicated Relationship With Putin**\
-`President Trump has long admired President Vladimir V. Putin of Russia. Their meeting in Alaska will be at least their seventh face-to-face encounter.`\
-https://nytimes.com/2025/08/15/world/europe/trump-putin-timeline.html
 

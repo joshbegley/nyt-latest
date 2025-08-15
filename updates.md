@@ -1,3 +1,11 @@
+**Read D.C.’s Lawsuit Against the Trump Administration**\
+`The District of Columbia government is challenging the Trump administration’s attempt to take control of the D.C. Police Department.`\
+https://nytimes.com/interactive/2025/08/15/us/dc-lawsuit-trump.html
+
+**Can You Wear Pajamas Through Lunchtime?**\
+`A ruling on a dispute over the appropriate time limits for sleepwear.`\
+https://nytimes.com/interactive/2025/08/15/magazine/pajamas-hodgman-quiz.html
+
 **The Windup: High-stakes rivalry this weekend**\
 `The Windup Newsletter ⚾ | This is The Athletic’s MLB newsletter.`\
 https://nytimes.com/athletic/6555731/2025/08/15/dodgers-padres-the-windup/

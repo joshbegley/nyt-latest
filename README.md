@@ -1,3 +1,7 @@
+**Fed Chair Faces Scrutiny at Major Policy Speech. Also, Bats.**\
+`A colony of bats recently took up residence at the storied Jackson Lake Lodge, where central bankers and economic policymakers will convene next week for an exclusive gathering.`\
+https://nytimes.com/2025/08/15/business/federal-reserve-jerome-powell-jackson-hole-bats.html
+
 **Read D.C.’s Lawsuit Against the Trump Administration**\
 `The District of Columbia government is challenging the Trump administration’s attempt to take control of the D.C. Police Department.`\
 https://nytimes.com/interactive/2025/08/15/us/dc-lawsuit-trump.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/15/nyregion/hochul-pardon-laos-immigrant-deportation
 **Aston Villa pre-season Q&A: Ask Jacob Tanswell anything ahead of the new season**\
 `The new Premier League season is upon us, and Aston Villa head into it on the back of a fairly quiet summer.`\
 https://nytimes.com/athletic/6555505/2025/08/15/aston-villa-pre-season-qa-ask-jacob-tanswell-anything-ahead-of-the-new-season/
-
-**Wolves pre-season Q&A: Ask Steve Madeley anything ahead of the new season**\
-`The new Premier League season is upon us and Wolverhampton Wanderers still feel like an incomplete team.`\
-https://nytimes.com/athletic/6554417/2025/08/15/wolves-pre-season-qa-ask-steve-madeley-anything-ahead-of-the-new-season/
 
