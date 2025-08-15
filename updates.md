@@ -1,3 +1,7 @@
+**4 Takeaways From the Week Trump Took Control of D.C.’s Police**\
+`The administration’s grip on the city has only tightened as the week has worn on, while pushback has begun to intensify.`\
+https://nytimes.com/2025/08/15/us/politics/trump-washington-crime-takeaways.html
+
 **D.C. Police Chief Retains Control of City Police After Court Hearing**\
 `After a federal judge threatened to block an order federalizing Washington, D.C.’s police, the Justice Department agreed to clarify that the city’s police chief remains in charge, for now.`\
 https://nytimes.com/2025/08/15/us/politics/judge-hearing-dc-home-rule.html

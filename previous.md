@@ -1,3 +1,7 @@
+**4 Takeaways From the Week Trump Took Control of D.C.’s Police**\
+`The administration’s grip on the city has only tightened as the week has worn on, while pushback has begun to intensify.`\
+https://nytimes.com/2025/08/15/us/politics/trump-washington-crime-takeaways.html
+
 **D.C. Police Chief Retains Control of City Police After Court Hearing**\
 `After a federal judge threatened to block an order federalizing Washington, D.C.’s police, the Justice Department agreed to clarify that the city’s police chief remains in charge, for now.`\
 https://nytimes.com/2025/08/15/us/politics/judge-hearing-dc-home-rule.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/15/us/sean-kingston-fraud-sentenced-prison.html
 **Fox News will interview Trump three times during the summit with Putin.**\
 `President Trump is expected to speak with Sean Hannity after meeting with the Russian leader. Bret Baier is interviewing Mr. Trump twice on Air Force One.`\
 https://nytimes.com/live/2025/08/15/world/trump-putin-meeting-alaska/fox-news-will-interview-trump-three-times-during-the-summit-with-putin
-
-**Doris Lockhart Saatchi, 88, Critic and Collector of Cutting-Edge Art, Dies**\
-`With her husband, Charles Saatchi, she assembled one of the world’s top collections of contemporary art, featuring works by Andy Warhol, Julian Schnabel, Cy Twombly and many others.`\
-https://nytimes.com/2025/08/15/arts/doris-lockhart-saatchi-dead.html
 
