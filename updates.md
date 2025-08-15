@@ -1,3 +1,19 @@
+**China’s Economy Slows Broadly Even as Exports Keep Rising**\
+`Officials blamed U.S. “protectionism” for the dismal July data, but growth was likely held back by real estate and new policies aimed at slowing factory investments.`\
+https://nytimes.com/2025/08/15/business/china-economy-july-tariffs.html
+
+**The New York Times in Print for Friday, Aug. 15, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/08/15/todays-new-york-times
+
+**Putin Should Be Careful What He Wishes For**\
+`Russia’s president has long insisted that Ukraine will be his. But his obsession may cost Russia more than he has bargained for.`\
+https://nytimes.com/2025/08/15/opinion/putin-trump-alaska-ukraine.html
+
+**The Most Environmentally Imaginative Country on Earth Is Under Assault**\
+`Ecuador’s ecological progress is threatened by a series of reforms steamrolled by its young populist president, Daniel Noboa.`\
+https://nytimes.com/2025/08/15/opinion/ecuador-galapagos-noboa.html
+
 **Friday Briefing: Ukraine’s Fate**\
 `Plus, to appreciate a dancer, watch the hands.`\
 https://nytimes.com/2025/08/15/briefing/russia-putin-trump-ukraine-gaza-aid.html
