@@ -1,3 +1,7 @@
+**Robin Lakoff, Expert on Language and Gender, Is Dead at 82**\
+`In arguing that language enforces the power imbalance between the sexes, she inspired an entire academic field.`\
+https://nytimes.com/2025/08/15/us/robin-lakoff-dead.html
+
 **I.R.S. Makes It Harder for Wind and Solar Projects to Claim Tax Breaks**\
 `The move comes as the Trump administration has issued a barrage of new restrictions on renewable energy across the country.`\
 https://nytimes.com/2025/08/15/climate/irs-wind-solar-tax-credits.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/15/us/politics/dc-homeless-encampments-police.html
 **Fantasy football All-Fade team: Christian McCaffrey, Xavier Worthy and more**\
 `Michael Salfino identifies the players who are too rich for his liking in 2025 fantasy football drafts, including speedster Xavier Worthy.`\
 https://nytimes.com/athletic/6555861/2025/08/15/fantasy-football-fade-overvalued-adp-cmc-worthy/
-
-**Kansas' Bill Self says he's ready to coach after recovering from July procedure**\
-`Self, released from the hospital July 26, said he would be able to coach a game tomorrow if Kansas played.`\
-https://nytimes.com/athletic/6556184/2025/08/15/bill-self-kansas-coach-procedure-recovery/
 
