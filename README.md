@@ -1,3 +1,11 @@
+**Milwaukee Bucks 2025-26 schedule takeaways: Fewer national TV games and a brutal midseason stretch**\
+`Each season, every team has a stretch that could be difficult. For the Bucks, their toughest span comes in late December, early January.`\
+https://nytimes.com/athletic/6553138/2025/08/14/milwaukee-bucks-2025-26-schedule-takeaways/
+
+**Thousands Ask Harvard Not to ‘Give in’ and Pay Fine to Trump**\
+`In a petition, alumni, faculty and members of the public asked Harvard to stand up to the White House. The school has signaled a willingness to pay $500 million to restore research funds.`\
+https://nytimes.com/2025/08/14/us/harvard-petition-trump.html
+
 **'I just want to help': Frankie Montas remains positive after being demoted to the bullpen**\
 `Banished to the bullpen after struggling in the starting rotation, Montas trails only Edwin Díaz as the Mets' most expensive reliever.`\
 https://nytimes.com/athletic/6554746/2025/08/14/frankie-montas-bullpen-demotion-mets/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6554682/2025/08/14/bill-belichick-north-carolina-co
 **D.C. Homeless Camps Are Cleared Ahead of Expected Federal Raids**\
 `City officials and advocates spent much of the day trying to clear the city’s dozens of homeless camps, urging people to go to shelters ahead of expected federal raids.`\
 https://nytimes.com/2025/08/14/us/politics/dc-homeless-camps-trump.html
-
-**Vikings-Patriots joint practice: J.J. McCarthy's best practice of training camp and more**\
-`McCarthy completed 13 consecutive passes at one point and tallied six touchdowns during Thursday's practice.`\
-https://nytimes.com/athletic/6554637/2025/08/14/vikings-patriots-joint-practice-jj-mccarthy/
-
-**Judge Blocks White House Effort to Defund Schools With D.E.I. Programs**\
-`The Trump administration had asked states to certify that their schools did not practice “illegal D.E.I.” and threatened to cut off billions of dollars from schools that did not comply.`\
-https://nytimes.com/2025/08/14/us/politics/trump-dei-schools.html
 
