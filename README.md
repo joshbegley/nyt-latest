@@ -1,3 +1,7 @@
+**Braves takeaways: Acuña returns Friday, and out-of-contention Braves aim for strong finish**\
+`Atlanta has won six of its past eight games, including a 4-3, come-from-behind win in Thursday's series finale against the New York Mets.`\
+https://nytimes.com/athletic/6554931/2025/08/14/braves-takeaways-ronald-acuna-jr-strong-finish/
+
 **Jackie Bezos, Jeff Bezos’ Mother and an Early Amazon Investor, Dies at 78**\
 `Ms. Bezos and her husband invested about $245,000 in Amazon when the online bookstore was in its first year.`\
 https://nytimes.com/2025/08/14/obituaries/jackie-bezos-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/14/arts/television/and-just-like-that-recap-series-f
 **Draft of White House Report Suggests Kennedy Won’t Push Strict Pesticide Regulations**\
 `The report is not final, but indicates good news for the food and agriculture industries.`\
 https://nytimes.com/2025/08/14/well/rfk-jr-maha-report-draft.html
-
-**Another Potential Storm Is Brewing in the Gulf of Mexico**\
-`If this storm becomes more organized before it moves over land, it would become Tropical Storm Fernand.`\
-https://nytimes.com/2025/08/14/weather/gulf-mexico-texas-storm-fernand.html
 
