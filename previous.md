@@ -1,3 +1,23 @@
+**Friday Briefing: Ukraine’s Fate**\
+`Plus, to appreciate a dancer, watch the hands.`\
+https://nytimes.com/2025/08/15/briefing/russia-putin-trump-ukraine-gaza-aid.html
+
+**Manchester United 2025-26 season preview: A new front line to help purge memories of Bilbao**\
+`Ruben Amorim has players better suited to his tactical approach and will hope to restore the club to the Champions League this term`\
+https://nytimes.com/athletic/6519745/2025/08/15/manchester-united-amorim-sesko-mbeumo-cunha-season-preview/
+
+**Arsenal Q&A with Art de Roche**\
+`Our Arsenal writer will answer your questions on the season ahead before Sunday's opening game at Old Trafford`\
+https://nytimes.com/athletic/6550960/2025/08/15/arsenal-pre-season-qa-art-de-roche/
+
+**Manchester City season preview: What to be excited about, what to fear and where they finish**\
+`How will Manchester City deal with not being favourites? What does Pep Guardiola have planned? And what should excite and worry fans?`\
+https://nytimes.com/athletic/6546495/2025/08/15/manchester-city-season-preview/
+
+**Arsenal Premier League season preview: Can second place turn into silverware?**\
+`A busy summer, a No 9 and excitement about youthful prospects — will this be Arsenal's season?`\
+https://nytimes.com/athletic/6524604/2025/08/15/arsenal-2025-26-premier-league-season-preview-can-second-place-turn-into-silverware/
+
 **Nottingham Forest season preview: What to be excited about, what to fear and where will they finish?**\
 `Paul Taylor answers the big questions as Nottingham Forest prepare for the start of the Premier League season...`\
 https://nytimes.com/athletic/6542708/2025/08/15/nottingham-forest-premier-league-season-preview/
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/6551990/2025/08/15/chelsea-estevao-palmer-maresca-b
 **Everton 2025-26 season preview: A much-needed squad overhaul and a sparkling new home**\
 `David Moyes' side start life in the Hill Dickinson stadium looking to integrate a raft of new signings, and with more on the way`\
 https://nytimes.com/athletic/6550656/2025/08/15/everton-moyes-stadium-grealish-season-preview/
-
-**La Liga season preview: Our predictions on Barcelona, Real Madrid and much more**\
-`Will Hansi Flick continue to build at champions Barca? Can Xabi Alonso find a new winning formula at the Bernabeu?`\
-https://nytimes.com/athletic/6550631/2025/08/15/la-liga-new-season-real-madrid-barcelona-atletico/
-
-**Aston Villa season preview: Focus on making Champions League again, but lack of recruitment is a worry**\
-`What are the club's hopes for 2025-26? How is Unai Emery feeling? What is their strongest XI? Our correspondent answers all these and more`\
-https://nytimes.com/athletic/6540201/2025/08/15/aston-villa-season-preview-focus-is-on-a-champions-league-return-but-lack-of-recruitment-is-a-worry/
-
-**Jhon Arias: Wolves' late bloomer who has risen from a tough start to his career**\
-`Jhon Arias has overcome a series of challenges ahead of his possible Premier League debut against Manchester City`\
-https://nytimes.com/athletic/6553338/2025/08/15/jhon-arias-wolves-profile/
-
-**Crystal Palace 2025-26 season preview: A trophy in the bag but Glasner needs new signings**\
-`The FA Cup winners have already added the Community Shield to their haul, but the manager is still waiting to see his squad strengthened`\
-https://nytimes.com/athletic/6546958/2025/08/15/crystal-palace-glasner-season-preview/
-
-**The BookKeeper: Who owns your Premier League club? And what else do they own?**\
-`The BookKeeper, The Athletic's dedicated football finance expert, breaks down the ownership structure of all 20 Premier League clubs`\
-https://nytimes.com/athletic/6539836/2025/08/15/premier-league-club-owners-who/
 
