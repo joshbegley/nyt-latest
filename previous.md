@@ -1,3 +1,7 @@
+**Terence Atmane plays tennis from another planet on run to Cincinnati Open semifinals**\
+`Atmane referenced a paradox related to aliens after beating Holger Rune to reach his first ATP 1,000 semifinal.`\
+https://nytimes.com/athletic/6555182/2025/08/15/tennis-terence-atmane-cincinnati-open/
+
 **The Trauma of Childhood in Gaza**\
 `Over the past two years, tens of thousands of children in the territory have been killed, wounded or orphaned. Childhood as they once knew it has ceased to exist.`\
 https://nytimes.com/2025/08/15/world/middleeast/gaza-children-school-play.html
@@ -30,11 +34,7 @@ https://nytimes.com/athletic/6554227/2025/08/15/fantasy-baseball-waiver-wire-dra
 `Defensive line coach Nate Ollie, 33, is hoping to help the talented second-year linemen take a big jump this fall.`\
 https://nytimes.com/athletic/6550993/2025/08/15/falcons-ruke-orhorhoro-brandon-dorlus-nate-ollie/
 
-**Like All Autocrats, Trump Wants to Control History**\
+**Trump’s Attempt to Make Museums Submit Feels Familiar**\
 `MAGA would fill museums with self-glorifying kitsch, the aesthetic lingua franca of all authoritarians.`\
 https://nytimes.com/2025/08/15/opinion/trump-history-museums-censorship.html
-
-**How Trump’s Meeting With Putin Could Unfold**\
-`A sudden feud, an impasse or a first step toward a cease-fire are all possible at the summit in Alaska as the two leaders navigate thorny issues such as Ukraine’s territory and NATO expansion.`\
-https://nytimes.com/2025/08/15/us/politics/trump-putin-summit-ukraine.html
 

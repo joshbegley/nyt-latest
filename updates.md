@@ -1,3 +1,11 @@
+**Terence Atmane plays tennis from another planet on run to Cincinnati Open semifinals**\
+`Atmane referenced a paradox related to aliens after beating Holger Rune to reach his first ATP 1,000 semifinal.`\
+https://nytimes.com/athletic/6555182/2025/08/15/tennis-terence-atmane-cincinnati-open/
+
+**Trump’s Attempt to Make Museums Submit Feels Familiar**\
+`MAGA would fill museums with self-glorifying kitsch, the aesthetic lingua franca of all authoritarians.`\
+https://nytimes.com/2025/08/15/opinion/trump-history-museums-censorship.html
+
 **The Trauma of Childhood in Gaza**\
 `Over the past two years, tens of thousands of children in the territory have been killed, wounded or orphaned. Childhood as they once knew it has ceased to exist.`\
 https://nytimes.com/2025/08/15/world/middleeast/gaza-children-school-play.html
