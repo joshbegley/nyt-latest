@@ -1,3 +1,19 @@
+**What Business Will Be Watching For in the Trump-Putin Talks**\
+`Normalized economic ties between Russia and the West may be a long way off, but there’s global interest in what’s said about sanctions and tariffs.`\
+https://nytimes.com/2025/08/15/business/dealbook/trump-putin-talks-business.html
+
+**When CJ met D.J.: 49ers rookie resembles former player — and that’s no coincidence**\
+`West says he's been watching the Broncos DT for years. The ex-49er has proven to be the perfect role model.`\
+https://nytimes.com/athletic/6554046/2025/08/15/cj-west-49ers-rookie-defensive-tackle/
+
+**Chargers 53-man projection: Trey Lance leads QB2 battle but will they keep 3?**\
+`The Chargers could choose to keep Taylor Heinicke as well, but their needs on the rest of the roster could outweigh the benefit.`\
+https://nytimes.com/athletic/6554726/2025/08/15/chargers-53-man-projection-trey-lance/
+
+**Dodgers, Padres face off in spicy NL West race: 'The rivalry part is certainly real'**\
+`The last time the Padres led the NL West this late in the season was in 2010; Dave Roberts told the Dodgers to 'ramp up the intensity.'`\
+https://nytimes.com/athletic/6554394/2025/08/15/dodgers-padres-nl-west-race/
+
 **Trump Administration Live Updates: Federal Authorities Target Homeless Camps in D.C.**\
 ``\
 https://nytimes.com/live/2025/08/15/us/trump-administration-dc-news
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6553536/2025/08/15/arch-manning-bill-belichick-jame
 **She might be the world's best wide receiver: Meet Isabella Geraci, U.S. flag football star**\
 `Geraci was a former college athlete looking for a way to keep the spark alive. She found flag football, and maybe a path to Olympic stardom.`\
 https://nytimes.com/athletic/6554291/2025/08/15/isabella-geraci-team-usa-flag-football-wide-receiver/
-
-**The Atlanta Dream are now the only WNBA team without a mascot, and we have ideas for them**\
-`The Dream are due for a new mascot. We consider several options in advance of Sunday's game against the Valkyries, who just unveiled Violet.`\
-https://nytimes.com/athletic/6552237/2025/08/15/atlanta-dream-mascot-golden-state-valkyries-violet-wnba/
-
-**Ukraine’s Fate**\
-`We have a primer on today’s Trump-Putin summit in Alaska.`\
-https://nytimes.com/2025/08/15/briefing/trump-putin-alaska-ukraine.html
-
-**Israeli soccer club's 'murderers' banner described as 'scandalous' by Polish president**\
-`Maccabi Haifa fans unveiled a banner reading "Murderers since 1939" in their Conference League match against Polish club Rakow Czestochowa.`\
-https://nytimes.com/athletic/6555174/2025/08/15/maccabi-haifa-israel-banner-poland/
-
-**Inside Newcastle Q&A: Isak future, Howe contract and redevelopment plans**\
-`Newcastle return to Premier League action this weekend after a difficult summer`\
-https://nytimes.com/athletic/6552851/2025/08/15/newcastle-united-latest-alexander-isak-eddie-howe-contract/
 

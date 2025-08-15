@@ -1,3 +1,7 @@
+**Trump Administration Live Updates: Federal Authorities Target Homeless Camps in D.C.**\
+``\
+https://nytimes.com/live/2025/08/15/us/trump-administration-dc-news
+
 **TAFC: The Premier League is back, but what's new, and what are our predictions?**\
 `Today in TAFC: Our ultimate Premier League guide, which Americans own top-flight clubs and a backlash to Barca playing in U.S.`\
 https://nytimes.com/athletic/6555259/2025/08/15/the-premier-league-is-back-but-whats-new-and-what-are-our-predictions/
