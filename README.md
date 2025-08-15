@@ -1,3 +1,7 @@
+**Until Saturday: Wait, they'd *never* started No. 1?**\
+`Until Saturday is The Athletic's free CFB newsletter.`\
+https://nytimes.com/athletic/6556020/2025/08/15/texas-preseason-ranking-until-saturday/
+
 **Kliff Kingsbury is losing patience, says Washington needs its top WRs back**\
 `Kingsbury’s comments were the most pointed yet by a Commanders coach or executive about the urgency to get Terry McLaurin and others back.`\
 https://nytimes.com/athletic/6555950/2025/08/15/kliff-kingsbury-commanders-terry-mclaurin/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6555721/2025/08/15/live-qa-with-guardians-writer-za
 **This Easy Relish Is the Best Way to Use Up Any Produce**\
 `Chakalaka, a South African staple of spiced peppers, tomato and beans, is a generous dish, ready to accept whatever’s in your pantry.`\
 https://nytimes.com/2025/08/15/dining/chakalaka-easy-relish-recipe.html
-
-**What comes next for Amad after Mbeumo's arrival?**\
-`The new signing is likely to play in the position Amad occupied for United towards the end of last season. What will follow for the latter?`\
-https://nytimes.com/athletic/6543745/2025/08/15/amad-diallo-bryan-mbeumo-manchester-united-analysis/
 
