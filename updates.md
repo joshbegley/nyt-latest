@@ -1,3 +1,7 @@
+**Trump Welcomes Putin With a Jet Fighter Escort and Red Carpet**\
+`President Trump clapped for his guest, Vladimir V. Putin of Russia, as he stepped foot in the United States for the first time in a decade.`\
+https://nytimes.com/2025/08/15/us/politics/trump-putin-alaska-scene.html
+
 **Understanding Michigan's sign-stealing penalties — and the ones it avoided**\
 `Is the NCAA’s power fully neutered? Is this the norm moving forward? Here is a breakdown of the Wolverines' penalties and what they mean.`\
 https://nytimes.com/athletic/6556144/2025/08/15/michigan-sign-stealing-penalties-show-cause/
