@@ -1,3 +1,7 @@
+**Another Potential Storm Is Brewing in the Gulf of Mexico**\
+`If this storm becomes more organized before it moves over land, it would become Tropical Storm Fernand.`\
+https://nytimes.com/2025/08/14/weather/gulf-mexico-texas-storm-fernand.html
+
 **Milwaukee Bucks 2025-26 schedule takeaways: Fewer national TV games and a brutal midseason stretch**\
 `Each season, every team has a stretch that could be difficult. For the Bucks, their toughest span comes in late December, early January.`\
 https://nytimes.com/athletic/6553138/2025/08/14/milwaukee-bucks-2025-26-schedule-takeaways/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6554235/2025/08/14/minnesota-timberwolves-2025-sche
 **Bill Belichick won’t headline North Carolina’s weekly coach's radio show**\
 `General manager Michael Lombardi will headline the show, now called “Carolina Football Live," each week. `\
 https://nytimes.com/athletic/6554682/2025/08/14/bill-belichick-north-carolina-coach-radio/
-
-**D.C. Homeless Camps Are Cleared Ahead of Expected Federal Raids**\
-`City officials and advocates spent much of the day trying to clear the city’s dozens of homeless camps, urging people to go to shelters ahead of expected federal raids.`\
-https://nytimes.com/2025/08/14/us/politics/dc-homeless-camps-trump.html
 

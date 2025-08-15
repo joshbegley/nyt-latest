@@ -1,3 +1,7 @@
+**Another Potential Storm Is Brewing in the Gulf of Mexico**\
+`If this storm becomes more organized before it moves over land, it would become Tropical Storm Fernand.`\
+https://nytimes.com/2025/08/14/weather/gulf-mexico-texas-storm-fernand.html
+
 **Milwaukee Bucks 2025-26 schedule takeaways: Fewer national TV games and a brutal midseason stretch**\
 `Each season, every team has a stretch that could be difficult. For the Bucks, their toughest span comes in late December, early January.`\
 https://nytimes.com/athletic/6553138/2025/08/14/milwaukee-bucks-2025-26-schedule-takeaways/

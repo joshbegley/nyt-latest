@@ -1,3 +1,7 @@
+**Draft of White House Report Suggests Kennedy Won’t Push Strict Pesticide Regulations**\
+`The report is not final, but indicates good news for the food and agriculture industries.`\
+https://nytimes.com/2025/08/14/well/rfk-jr-maha-report-draft.html
+
 **Another Potential Storm Is Brewing in the Gulf of Mexico**\
 `If this storm becomes more organized before it moves over land, it would become Tropical Storm Fernand.`\
 https://nytimes.com/2025/08/14/weather/gulf-mexico-texas-storm-fernand.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/14/climate/lesser-prairie-chicken-endangered-species
 **Anthony Edwards has helped turn the Minnesota Timberwolves into must-see TV**\
 `The Wolves are set to be featured on national TV 28 times in the upcoming season, further highlighting Edwards' impact on the franchise.`\
 https://nytimes.com/athletic/6554235/2025/08/14/minnesota-timberwolves-2025-schedule-release-anthony-edwards/
-
-**Bill Belichick won’t headline North Carolina’s weekly coach's radio show**\
-`General manager Michael Lombardi will headline the show, now called “Carolina Football Live," each week. `\
-https://nytimes.com/athletic/6554682/2025/08/14/bill-belichick-north-carolina-coach-radio/
 
