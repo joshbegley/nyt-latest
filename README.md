@@ -1,3 +1,7 @@
+**Does Your Face Need Work? She’ll Tell You.**\
+`Melinda Farina, known as the Beauty Broker, sends Hollywood actresses and everyday women to doctors around the globe. In her world, the knives are always out.`\
+https://nytimes.com/2025/08/15/style/beauty-broker-melinda-farina-plastic-surgery.html
+
 **Who’s Attending the Trump-Putin Meeting in Alaska**\
 `The delegations include top diplomatic, military and economic officials, a sign that the U.S. and Russia will discuss more than the war in Ukraine.`\
 https://nytimes.com/2025/08/15/world/europe/trump-putin-russia-us-attending-who-alaska.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6555696/2025/08/15/lionel-messi-injury-update-inter
 **The Bounce: NBA's 40 best big men, ranked**\
 `The Bounce Newsletter  | This is The Athletic’s daily NBA newsletter.`\
 https://nytimes.com/athletic/6555774/2025/08/15/nba-center-rankings-the-bounce/
-
-**Fed Chair Faces Scrutiny at Major Policy Speech. Also, Bats.**\
-`A colony of bats recently took up residence at the storied Jackson Lake Lodge, where central bankers and economic policymakers will convene next week for an exclusive gathering.`\
-https://nytimes.com/2025/08/15/business/federal-reserve-jerome-powell-jackson-hole-bats.html
 
