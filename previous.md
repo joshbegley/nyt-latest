@@ -1,4 +1,8 @@
-**Mandel: Michigan's loss of integrity is biggest hit in Stalions scandal, not NCAA penalty**\
+**Kansas' Bill Self ready to coach after recovering from July procedure, he says**\
+`Self, released from the hospital July 26, said he would be able to coach a game tomorrow if Kansas played.`\
+https://nytimes.com/athletic/6556184/2025/08/15/bill-self-kansas-coach-procedure-recovery/
+
+**Mandel: Michigan gets to keep its wins but loses its integrity**\
 `It isn't the fines or suspensions that impact Michigan's program the most. It's the reputational hit the school has taken over this scandal.`\
 https://nytimes.com/athletic/6556158/2025/08/15/michigan-stalions-sign-stealing-harbaugh-integrity/
 
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/15/arts/music/priscilla-presley-feud-former-business
 **As Strike Looms, Air Canada’s Flight Attendants Reject Call for Arbitration**\
 `Their union says one of its core demands, to receive pay for groundwork, is unlikely to be introduced in arbitration. The airline began canceling flights ahead of the potential strike.`\
 https://nytimes.com/2025/08/15/world/canada/air-canada-flight-attendant-strike.html
-
-**As the Air Canada Strike Looms, Here’s What Travelers Need to Know**\
-`A strike by the carrier’s flight attendants could disrupt 130,000 travelers a day, including international fliers. Here’s what to know if your flight is affected.`\
-https://nytimes.com/2025/08/15/travel/air-canada-strike-flight-cancellations.html
 

@@ -1,3 +1,11 @@
+**Kansas' Bill Self ready to coach after recovering from July procedure, he says**\
+`Self, released from the hospital July 26, said he would be able to coach a game tomorrow if Kansas played.`\
+https://nytimes.com/athletic/6556184/2025/08/15/bill-self-kansas-coach-procedure-recovery/
+
+**Mandel: Michigan gets to keep its wins but loses its integrity**\
+`It isn't the fines or suspensions that impact Michigan's program the most. It's the reputational hit the school has taken over this scandal.`\
+https://nytimes.com/athletic/6556158/2025/08/15/michigan-stalions-sign-stealing-harbaugh-integrity/
+
 **Mandel: Michigan's loss of integrity is biggest hit in Stalions scandal, not NCAA penalty**\
 `It isn't the fines or suspensions that impact Michigan's program the most. It's the reputational hit the school has taken over this scandal.`\
 https://nytimes.com/athletic/6556158/2025/08/15/michigan-stalions-sign-stealing-harbaugh-integrity/
