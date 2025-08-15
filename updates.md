@@ -1,3 +1,7 @@
+**Man Fleeing an Immigration Raid Dies After Running Onto an L.A. Freeway**\
+`The man was hit by a vehicle. It happened about a month after an immigrant fell from a greenhouse and later died following a raid in Ventura County.`\
+https://nytimes.com/2025/08/14/us/los-angeles-raids-freeway-death.html
+
 **Person With Fire Power**\
 `Dena R. Verkuil opens our solving weekend with a very crunchy puzzle.`\
 https://nytimes.com/2025/08/14/crosswords/daily-puzzle-2025-08-15.html

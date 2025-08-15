@@ -1,3 +1,7 @@
+**Man Fleeing an Immigration Raid Dies After Running Onto an L.A. Freeway**\
+`The man was hit by a vehicle. It happened about a month after an immigrant fell from a greenhouse and later died following a raid in Ventura County.`\
+https://nytimes.com/2025/08/14/us/los-angeles-raids-freeway-death.html
+
 **Person With Fire Power**\
 `Dena R. Verkuil opens our solving weekend with a very crunchy puzzle.`\
 https://nytimes.com/2025/08/14/crosswords/daily-puzzle-2025-08-15.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/14/weather/gulf-mexico-texas-storm-fernand.html
 **Milwaukee Bucks 2025-26 schedule takeaways: Fewer national TV games and a brutal midseason stretch**\
 `Each season, every team has a stretch that could be difficult. For the Bucks, their toughest span comes in late December, early January.`\
 https://nytimes.com/athletic/6553138/2025/08/14/milwaukee-bucks-2025-26-schedule-takeaways/
-
-**Thousands Ask Harvard Not to ‘Give in’ and Pay Fine to Trump**\
-`In a petition, alumni, faculty and members of the public asked Harvard to stand up to the White House. The school has signaled a willingness to pay $500 million to restore research funds.`\
-https://nytimes.com/2025/08/14/us/harvard-petition-trump.html
 
