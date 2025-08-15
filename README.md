@@ -1,3 +1,7 @@
+**Trump Administration Live Updates: Federal Authorities Target Homeless Camps in D.C.**\
+``\
+https://nytimes.com/live/2025/08/15/us/trump-administration-dc-news
+
 **TAFC: The Premier League is back, but what's new, and what are our predictions?**\
 `Today in TAFC: Our ultimate Premier League guide, which Americans own top-flight clubs and a backlash to Barca playing in U.S.`\
 https://nytimes.com/athletic/6555259/2025/08/15/the-premier-league-is-back-but-whats-new-and-what-are-our-predictions/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6555174/2025/08/15/maccabi-haifa-israel-banner-pola
 **Inside Newcastle Q&A: Isak future, Howe contract and redevelopment plans**\
 `Newcastle return to Premier League action this weekend after a difficult summer`\
 https://nytimes.com/athletic/6552851/2025/08/15/newcastle-united-latest-alexander-isak-eddie-howe-contract/
-
-**Even with Twins out of contention, Pablo López aims for late season return: 'I want to do it'**\
-`Twins starter wants to have a "regular offseason."`\
-https://nytimes.com/athletic/6554902/2025/08/15/minnesota-twins-pablo-lopez-return/
 
