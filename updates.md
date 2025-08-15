@@ -1,3 +1,7 @@
+**'I just want to help': Frankie Montas remains positive after being demoted to the bullpen**\
+`Banished to the bullpen after struggling in the starting rotation, Montas trails only Edwin Díaz as the Mets' most expensive reliever.`\
+https://nytimes.com/athletic/6554746/2025/08/14/frankie-montas-bullpen-demotion-mets/
+
 **Phil Knight, Ex-Nike Chief, and His Wife Pledge $2 Billion to Oregon Cancer Center**\
 `Oregon Health & Science University said the couple’s donation would be the largest single gift to a higher-learning institution in the United States.`\
 https://nytimes.com/2025/08/14/us/phil-knight-nike-oregon-cancer-donation.html
