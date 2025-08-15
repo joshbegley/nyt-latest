@@ -1,3 +1,7 @@
+**Ukrainians in Alaska Are Skeptical About Trump-Putin Summit**\
+`Ukrainians who fled the war and settled in Alaska, where President Trump is set to meet with Russia’s leader, Vladimir Putin, on Friday, are keeping their expectations for the talks low.`\
+https://nytimes.com/video/us/100000010342529/trump-putin-ukraine-alaska.html
+
 **Nuno: Forest have 'major problem' ahead of new season: 'We are all very worried'**\
 `After Nuno spoke to Sky, the club have accelerated several transfer moves in a bid to bolster their squad.`\
 https://nytimes.com/athletic/6553002/2025/08/15/nottingham-forest-transfer-news-nuno/
