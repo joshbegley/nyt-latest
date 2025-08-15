@@ -1,3 +1,11 @@
+**At Least 185 People Killed in Devastating Flash Floods in Pakistan**\
+`Rapidly melting glaciers and abnormally heavy rain have led to deadly flash floods in Pakistan, killing over 500 people since late June. Officials expect the death toll to rise as the monsoon season continues.`\
+https://nytimes.com/video/world/asia/100000010343290/pakistan-flash-floods-monsoon.html
+
+**Answering your Guardians questions: DeLauter updates, Kwan's struggles and more**\
+`Zack Meisel discussed these topics and more during a wide-ranging live Q&A with The Athletic subscribers on Friday.`\
+https://nytimes.com/athletic/6556334/2025/08/15/guardians-questions-kwan-delauter-playoffs/
+
 **Why the Giants shouldn't call up Bryce Eldridge in 2025**\
 `The Giants' season isn't going anywhere fast, but that doesn't mean rushing their top prospect to the majors is a good idea.`\
 https://nytimes.com/athletic/6556044/2025/08/15/sf-giants-bryce-eldridige-mlb-debut-timing/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/08/15/climate/irs-wind-solar-tax-credits.html
 **Appeals Court Paves Way for Mass Layoffs at C.F.P.B.**\
 `In a 2-to-1 ruling, a federal appeals court said a lower court could not block the Trump administration’s plans to reduce the Consumer Financial Protection Bureau’s staff by nearly 90 percent.`\
 https://nytimes.com/2025/08/15/us/politics/cfpb-layoffs-court.html
-
-**Al Nassr sign Coman from Bayern Munich**\
-`The 29-year-old spent 10 years with Bayern, making 339 appearances and recording 72 goals and 71 assists.`\
-https://nytimes.com/athletic/6547545/2025/08/15/kingsley-coman-al-nassr-bayern-transfer/
-
-**Adams Donor Avoids Prison After Admitting to Campaign Finance Scheme**\
-`Months after the Justice Department abandoned the corruption charges against Mayor Eric Adams, a Turkish American businessman was sentenced for crimes tied to the mayor’s case.`\
-https://nytimes.com/2025/08/15/nyregion/eric-adams-donor-sentenced-illegal-gifts.html
 

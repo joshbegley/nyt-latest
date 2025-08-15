@@ -1,3 +1,7 @@
+**Why the Giants shouldn't call up Bryce Eldridge in 2025**\
+`The Giants' season isn't going anywhere fast, but that doesn't mean rushing their top prospect to the majors is a good idea.`\
+https://nytimes.com/athletic/6556044/2025/08/15/sf-giants-bryce-eldridige-mlb-debut-timing/
+
 **Zelensky Condemns Continuing Strikes by Russia as Putin and Trump Meet in Alaska**\
 `The Ukrainian leader sounded off on social media before the summit in Anchorage from which he was excluded.`\
 https://nytimes.com/2025/08/15/world/europe/zelensky-ukraine-strikes-putin.html
