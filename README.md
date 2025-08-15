@@ -1,3 +1,7 @@
+**Marshall Islands, last country without a football team, play first game**\
+`The Pacific Island nation, which boasts fewer than 40,000 inhabitants, played the US Virgin Islands on Thursday.`\
+https://nytimes.com/athletic/6555128/2025/08/15/marshall-islands-football-team-first-game/
+
 **Ukrainians in Alaska Are Skeptical About Trump-Putin Summit**\
 `Ukrainians who fled the war and settled in Alaska, where President Trump is set to meet with Russia’s leader, Vladimir Putin, on Friday, are keeping their expectations for the talks low.`\
 https://nytimes.com/video/us/100000010342529/trump-putin-ukraine-alaska.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/15/arts/television/seth-meyers-trump-kennedy-center.
 **Pro cycling transfer window round-up: Evenepoel's Red Bull switch, Quick-Step's change of direction, and more**\
 `Rounding up the main moves of summer transfer window as teams begin to look ahead to the 2026 campaign`\
 https://nytimes.com/athletic/6553362/2025/08/15/pro-cycling-transfer-window-evenepoel-tour-de-france/
-
-**Word of the Day: hawkish**\
-`This word has appeared in 191 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2025/08/15/learning/word-of-the-day-hawkish.html
 
