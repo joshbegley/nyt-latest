@@ -1,3 +1,11 @@
+**Pro cycling transfer window round-up: Evenepoel's Red Bull switch, Quick-Step's change of direction, and more**\
+`Rounding up the main moves of summer transfer window as teams begin to look ahead to the 2026 campaign`\
+https://nytimes.com/athletic/6553362/2025/08/15/pro-cycling-transfer-window-evenepoel-tour-de-france/
+
+**Word of the Day: hawkish**\
+`This word has appeared in 191 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2025/08/15/learning/word-of-the-day-hawkish.html
+
 **China’s Economy Slows Broadly Even as Exports Keep Rising**\
 `Officials blamed U.S. “protectionism” for the dismal July data, but growth was likely held back by real estate and new policies aimed at slowing factory investments.`\
 https://nytimes.com/2025/08/15/business/china-economy-july-tariffs.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6550960/2025/08/15/arsenal-pre-season-qa-art-de-roc
 **Manchester City season preview: What to be excited about, what to fear and where they finish**\
 `How will Manchester City deal with not being favourites? What does Pep Guardiola have planned? And what should excite and worry fans?`\
 https://nytimes.com/athletic/6546495/2025/08/15/manchester-city-season-preview/
-
-**Arsenal Premier League season preview: Can second place turn into silverware?**\
-`A busy summer, a No 9 and excitement about youthful prospects — will this be Arsenal's season?`\
-https://nytimes.com/athletic/6524604/2025/08/15/arsenal-2025-26-premier-league-season-preview-can-second-place-turn-into-silverware/
-
-**Nottingham Forest season preview: What to be excited about, what to fear and where will they finish?**\
-`Paul Taylor answers the big questions as Nottingham Forest prepare for the start of the Premier League season...`\
-https://nytimes.com/athletic/6542708/2025/08/15/nottingham-forest-premier-league-season-preview/
 

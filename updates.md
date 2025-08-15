@@ -1,3 +1,11 @@
+**Pro cycling transfer window round-up: Evenepoel's Red Bull switch, Quick-Step's change of direction, and more**\
+`Rounding up the main moves of summer transfer window as teams begin to look ahead to the 2026 campaign`\
+https://nytimes.com/athletic/6553362/2025/08/15/pro-cycling-transfer-window-evenepoel-tour-de-france/
+
+**Word of the Day: hawkish**\
+`This word has appeared in 191 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2025/08/15/learning/word-of-the-day-hawkish.html
+
 **China’s Economy Slows Broadly Even as Exports Keep Rising**\
 `Officials blamed U.S. “protectionism” for the dismal July data, but growth was likely held back by real estate and new policies aimed at slowing factory investments.`\
 https://nytimes.com/2025/08/15/business/china-economy-july-tariffs.html
