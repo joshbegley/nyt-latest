@@ -1,3 +1,7 @@
+**Fed Chair Faces Scrutiny at Major Policy Speech. Also, Bats.**\
+`A colony of bats recently took up residence at the storied Jackson Lake Lodge, where central bankers and economic policymakers will convene next week for an exclusive gathering.`\
+https://nytimes.com/2025/08/15/business/federal-reserve-jerome-powell-jackson-hole-bats.html
+
 **Read D.C.’s Lawsuit Against the Trump Administration**\
 `The District of Columbia government is challenging the Trump administration’s attempt to take control of the D.C. Police Department.`\
 https://nytimes.com/interactive/2025/08/15/us/dc-lawsuit-trump.html
