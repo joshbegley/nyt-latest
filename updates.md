@@ -1,3 +1,11 @@
+**Judge Blocks F.T.C. Investigation of Media Matters**\
+`The agency began looking into the liberal watchdog group’s research critical of Elon Musk and his social media platform, X, in May.`\
+https://nytimes.com/2025/08/15/technology/media-matters-ftc-musk-injunction.html
+
+**O'Connor: Harbaugh's Michigan tenure revealed him to be the same as any other coach. No lie**\
+`I’ve found that these mega-coaches are pretty much all the same. They will do almost anything to win.`\
+https://nytimes.com/athletic/6556477/2025/08/15/jim-harbaugh-michigan-suspension-coach/
+
 **Trump Welcomes Putin With a Jet Fighter Escort and Red Carpet**\
 `President Trump clapped for his guest, Vladimir V. Putin of Russia, as he stepped foot in the United States for the first time in a decade.`\
 https://nytimes.com/2025/08/15/us/politics/trump-putin-alaska-scene.html
