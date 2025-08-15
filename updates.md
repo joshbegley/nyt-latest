@@ -1,3 +1,19 @@
+**What Business Will Be Watching For in the Trump-Putin Talks**\
+`Normalized economic ties between Russia and the West may be a long way off, but there’s global interest in what’s said about sanctions and tariffs.`\
+https://nytimes.com/2025/08/15/business/dealbook/trump-putin-talks-business.html
+
+**When CJ met D.J.: 49ers rookie resembles former player — and that’s no coincidence**\
+`West says he's been watching the Broncos DT for years. The ex-49er has proven to be the perfect role model.`\
+https://nytimes.com/athletic/6554046/2025/08/15/cj-west-49ers-rookie-defensive-tackle/
+
+**Chargers 53-man projection: Trey Lance leads QB2 battle but will they keep 3?**\
+`The Chargers could choose to keep Taylor Heinicke as well, but their needs on the rest of the roster could outweigh the benefit.`\
+https://nytimes.com/athletic/6554726/2025/08/15/chargers-53-man-projection-trey-lance/
+
+**Dodgers, Padres face off in spicy NL West race: 'The rivalry part is certainly real'**\
+`The last time the Padres led the NL West this late in the season was in 2010; Dave Roberts told the Dodgers to 'ramp up the intensity.'`\
+https://nytimes.com/athletic/6554394/2025/08/15/dodgers-padres-nl-west-race/
+
 **Trump Administration Live Updates: Federal Authorities Target Homeless Camps in D.C.**\
 ``\
 https://nytimes.com/live/2025/08/15/us/trump-administration-dc-news
