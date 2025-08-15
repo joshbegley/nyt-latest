@@ -1,3 +1,15 @@
+**As Trump Tightens Hold on Kennedy Center, Top Theater Producer Resigns**\
+`Jeffrey Finn, a Broadway producer who has overseen theater programming at the Washington venue since 2016, will leave next month.`\
+https://nytimes.com/2025/08/15/theater/jeffrey-finn-kennedy-center-theater.html
+
+**The Deadly Pleasure of Smoking Cigarettes**\
+`Readers criticize a guest essay about the pleasures of smoking. Also: The trauma of jury duty; the federalized police in Washington, D.C.`\
+https://nytimes.com/2025/08/15/opinion/smoking-cigarettes-death.html
+
+**Guehi, Eze in line to start for Palace at Chelsea - Glasner**\
+`Glasner, though, offered no guarantees that the pair would stay at Palace beyond the end of the transfer window on September 1.`\
+https://nytimes.com/athletic/6555726/2025/08/15/marc-guehi-eberechi-eze-in-line-to-start-for-crystal-palace-at-chelsea-glasner/
+
 **Until Saturday: Wait, they'd *never* started No. 1?**\
 `Until Saturday is The Athletic's free CFB newsletter.`\
 https://nytimes.com/athletic/6556020/2025/08/15/texas-preseason-ranking-until-saturday/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/08/15/us/politics/congress-democrats-legislation-trump-
 **Leoni: Italy's next great defensive hope is ready to learn from Van Dijk at Liverpool**\
 `Leoni's rise has been stratospheric, and he is part of a growing trend of Italian talent seeking fortune and improvement in England`\
 https://nytimes.com/athletic/6552968/2025/08/15/giovanni-leoni-liverpool-transfer-van-dijk/
-
-**Finding Beauty in a Bowl of Soup**\
-`It tethers us to the world, brings us together, asks our bodies to remember a time beyond ourselves.`\
-https://nytimes.com/interactive/2025/08/15/opinion/soup-beauty.html
-
-**Live Q&A with Guardians writer Zack Meisel: Friday, Aug. 15 at 1 p.m. ET**\
-`<p>A lot has happened in Guardians World since the trade deadline last month, which is why <em>The Athletic</em>&#8217;s Zack Meisel will be here to answer any questions you may have starting at 1 p.`\
-https://nytimes.com/athletic/6555721/2025/08/15/live-qa-with-guardians-writer-zack-meisel-friday-aug-15-at-1-p-m-et/
-
-**This Easy Relish Is the Best Way to Use Up Any Produce**\
-`Chakalaka, a South African staple of spiced peppers, tomato and beans, is a generous dish, ready to accept whatever’s in your pantry.`\
-https://nytimes.com/2025/08/15/dining/chakalaka-easy-relish-recipe.html
 
