@@ -1,3 +1,15 @@
+**How to Get the Most Out of Your Microwave, According to an Appliances Expert**\
+`Text by Rachel Wharton`\
+https://nytimes.com/card/2025/08/15/smarter-living/wirecutter/
+
+**Congressional Democrats Move to End Trump’s Control of D.C. Police**\
+`The legislation has little chance of success, given that Republicans control Congress.`\
+https://nytimes.com/2025/08/15/us/politics/congress-democrats-legislation-trump-dc-police.html
+
+**Leoni: Italy's next great defensive hope is ready to learn from Van Dijk at Liverpool**\
+`Leoni's rise has been stratospheric, and he is part of a growing trend of Italian talent seeking fortune and improvement in England`\
+https://nytimes.com/athletic/6552968/2025/08/15/giovanni-leoni-liverpool-transfer-van-dijk/
+
 **Finding Beauty in a Bowl of Soup**\
 `It tethers us to the world, brings us together, asks our bodies to remember a time beyond ourselves.`\
 https://nytimes.com/interactive/2025/08/15/opinion/soup-beauty.html

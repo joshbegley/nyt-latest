@@ -1,3 +1,15 @@
+**How to Get the Most Out of Your Microwave, According to an Appliances Expert**\
+`Text by Rachel Wharton`\
+https://nytimes.com/card/2025/08/15/smarter-living/wirecutter/
+
+**Congressional Democrats Move to End Trump’s Control of D.C. Police**\
+`The legislation has little chance of success, given that Republicans control Congress.`\
+https://nytimes.com/2025/08/15/us/politics/congress-democrats-legislation-trump-dc-police.html
+
+**Leoni: Italy's next great defensive hope is ready to learn from Van Dijk at Liverpool**\
+`Leoni's rise has been stratospheric, and he is part of a growing trend of Italian talent seeking fortune and improvement in England`\
+https://nytimes.com/athletic/6552968/2025/08/15/giovanni-leoni-liverpool-transfer-van-dijk/
+
 **Finding Beauty in a Bowl of Soup**\
 `It tethers us to the world, brings us together, asks our bodies to remember a time beyond ourselves.`\
 https://nytimes.com/interactive/2025/08/15/opinion/soup-beauty.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6555763/2025/08/15/grand-slam-track-athlete-payment
 **Why Barcelona only have 18 active player contracts - with more departures expected**\
 `Barcelona Femeni are one of Europe’s elite teams. But despite the accolades, they have already said goodbye to five key players this summer`\
 https://nytimes.com/athletic/6554668/2025/08/15/barcelona-women-liga-f-finance/
-
-**Why Sean Payton believes Broncos will have 'markedly different' run game in 2025**\
-`New additions RJ Harvey and JK Dobbins are locks for the roster, but four others are battling for spots entering Saturday's preseason game.`\
-https://nytimes.com/athletic/6555361/2025/08/15/denver-broncos-preseason-rj-harvey-sean-payton/
-
-**In Moscow, Russians see a chance for peace but prepare for more war.**\
-`W`\
-https://nytimes.com/live/2025/08/15/world/trump-putin-meeting-alaska/in-moscow-russians-see-a-chance-for-peace-but-prepare-for-more-war
-
-**Man United not planning to proceed with move for Brighton's Baleba**\
-`The 21-year-old Brighton & Hove Albion midfielder has been United’s top target to strengthen in the No. 6 position.`\
-https://nytimes.com/athletic/6539234/2025/08/15/carlos-baleba-manchester-united-not-planning-to-proceed-with-move-for-brighton-transfer/
 
