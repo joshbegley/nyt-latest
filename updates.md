@@ -1,3 +1,7 @@
+**Does Your Face Need Work? She’ll Tell You.**\
+`Melinda Farina, known as the Beauty Broker, sends Hollywood actresses and everyday women to doctors around the globe. In her world, the knives are always out.`\
+https://nytimes.com/2025/08/15/style/beauty-broker-melinda-farina-plastic-surgery.html
+
 **Who’s Attending the Trump-Putin Meeting in Alaska**\
 `The delegations include top diplomatic, military and economic officials, a sign that the U.S. and Russia will discuss more than the war in Ukraine.`\
 https://nytimes.com/2025/08/15/world/europe/trump-putin-russia-us-attending-who-alaska.html

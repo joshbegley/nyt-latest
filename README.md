@@ -1,3 +1,11 @@
+**A $45 Treatment Can Save a Starving Child. US Aid Cuts Have Frozen the Supply**\
+`The dismantling of U.S.A.I.D. has disrupted the global supply chain that provides a therapeutic food, leaving thousands of malnourished children at risk of dying.`\
+https://nytimes.com/2025/08/15/health/hunger-malnutrition-usaid-cuts.html
+
+**How the Trump-Putin Summit Signals a Return to Imperial Thinking**\
+`The two leaders are bringing some old-world approaches to bear on a 21st-century conflict.`\
+https://nytimes.com/2025/08/15/world/asia/trump-putin-summit-imperial.html
+
 **Does Your Face Need Work? She’ll Tell You.**\
 `Melinda Farina, known as the Beauty Broker, sends Hollywood actresses and everyday women to doctors around the globe. In her world, the knives are always out.`\
 https://nytimes.com/2025/08/15/style/beauty-broker-melinda-farina-plastic-surgery.html
@@ -11,7 +19,7 @@ https://nytimes.com/2025/08/15/world/europe/trump-putin-russia-us-attending-who-
 https://nytimes.com/athletic/6552365/2025/08/15/edmonton-oilers-prospect-samuel-jonsson/
 
 **NCAA fines Michigan, suspends Sherrone Moore in sign-stealing investigation**\
-`The punishments include a significant penalty for former staffer Connor Stalions, but the Wolverines will not face a postseason ban`\
+`The punishments include a significant penalty for former staffer Connor Stalions, but the Wolverines will not face a postseason ban.`\
 https://nytimes.com/athletic/6554669/2025/08/15/connor-stalions-sign-stealing-saga-resolution/
 
 **$5,000-Per-Plate Dinner Tests Museum Ban on Political Fund-Raisers**\
@@ -29,12 +37,4 @@ https://nytimes.com/2025/08/15/dining/an-easy-homemade-ice-cream-recipe-to-make-
 **Man Rescued From Behind California Waterfall After 2 Days**\
 `The man, who was found with minor injuries and suffering from dehydration, was located by rescue crews operating a drone near where he had last been spotted.`\
 https://nytimes.com/2025/08/15/us/california-waterfall-rescue-seven-teacups.html
-
-**Messi available to return from injury for Inter Miami, Mascherano says**\
-`Messi is back after suffering a leg injury, but with a busy upcoming stretch of important games, how he's handled bears watching`\
-https://nytimes.com/athletic/6555696/2025/08/15/lionel-messi-injury-update-inter-miami-la-galaxy-mls/
-
-**The Bounce: NBA's 40 best big men, ranked**\
-`The Bounce Newsletter  | This is The Athletic’s daily NBA newsletter.`\
-https://nytimes.com/athletic/6555774/2025/08/15/nba-center-rankings-the-bounce/
 
