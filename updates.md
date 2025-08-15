@@ -1,3 +1,15 @@
+**Who’s Attending the Trump-Putin Meeting in Alaska**\
+`The delegations include top diplomatic, military and economic officials, a sign that the U.S. and Russia will discuss more than the war in Ukraine.`\
+https://nytimes.com/2025/08/15/world/europe/trump-putin-russia-us-attending-who-alaska.html
+
+**Lowetide: Why this goalie is a player to watch for Edmonton Oilers fans in 2025-26**\
+`Samuel Jonsson is good at doing the one thing Edmonton's goalies have found difficult in the last couple of years: stopping pucks.`\
+https://nytimes.com/athletic/6552365/2025/08/15/edmonton-oilers-prospect-samuel-jonsson/
+
+**NCAA fines Michigan, suspends Sherrone Moore in sign-stealing investigation**\
+`The punishments include a significant penalty for former staffer Connor Stalions, but the Wolverines will not face a postseason ban`\
+https://nytimes.com/athletic/6554669/2025/08/15/connor-stalions-sign-stealing-saga-resolution/
+
 **NCAA fines Michigan, suspends coach Moore in sign-stealing investigation**\
 `The punishments include a significant penalty for former staffer Connor Stalions, but the Wolverines will not face a postseason ban`\
 https://nytimes.com/athletic/6554669/2025/08/15/connor-stalions-sign-stealing-saga-resolution/
