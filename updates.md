@@ -1,3 +1,7 @@
+**Who is the Phillies' third-best starter? It will matter come October**\
+`Cristopher Sánchez and Zack Wheeler will be locks for Philadelphia's playoff rotation. After that, things are much less clear.`\
+https://nytimes.com/athletic/6554926/2025/08/15/phillies-third-best-starting-pitcher-mlb-playoffs/
+
 **Ten Ravens on the roster bubble heading into second preseason game**\
 `It seems that, barring injuries, there are only a handful of undecided spots on Baltimore's roster ahead of the 53-man cutdown on Aug. 26. `\
 https://nytimes.com/athletic/6554277/2025/08/15/ravens-2025-roster-bubble-players/
