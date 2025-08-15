@@ -1,3 +1,19 @@
+**Manchester United not planning to proceed with move for Brighton's Baleba**\
+`The 21-year-old Brighton & Hove Albion midfielder has been United’s top target to strengthen in the No. 6 position.`\
+https://nytimes.com/athletic/6539234/2025/08/15/carlos-baleba-manchester-united-not-planning-to-proceed-with-move-for-brighton-transfer/
+
+**A $45 Treatment Can Save a Starving Child. US Aid Cuts Have Frozen the Supply**\
+`The dismantling of U.S.A.I.D. has disrupted the global supply chain that provides a therapeutic food, leaving thousands of malnourished children at risk of dying.`\
+https://nytimes.com/2025/08/15/health/hunger-malnutrition-usaid-cuts.html
+
+**How the Trump-Putin Summit Signals a Return to Imperial Thinking**\
+`The two leaders are bringing some old-world approaches to bear on a 21st-century conflict.`\
+https://nytimes.com/2025/08/15/world/asia/trump-putin-summit-imperial.html
+
+**NCAA fines Michigan, suspends Sherrone Moore in sign-stealing investigation**\
+`The punishments include a significant penalty for former staffer Connor Stalions, but the Wolverines will not face a postseason ban.`\
+https://nytimes.com/athletic/6554669/2025/08/15/connor-stalions-sign-stealing-saga-resolution/
+
 **Does Your Face Need Work? She’ll Tell You.**\
 `Melinda Farina, known as the Beauty Broker, sends Hollywood actresses and everyday women to doctors around the globe. In her world, the knives are always out.`\
 https://nytimes.com/2025/08/15/style/beauty-broker-melinda-farina-plastic-surgery.html
