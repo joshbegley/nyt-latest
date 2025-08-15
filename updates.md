@@ -1,3 +1,11 @@
+**Top 25 potential MLB free agents for 2025-26 as the offseason draws nearer**\
+`Kyle Tucker leads the way in a free-agent class that is expected to also feature prolific power hitters and impact closers. `\
+https://nytimes.com/athletic/6554757/2025/08/15/mlb-free-agents-2025-26-offseason/
+
+**Sunderland countdown: A week behind the scenes ahead of their Premier League return**\
+`Granit Xhaka, Kristjaan Speakman, Regis Le Bris and characters in and around Sunderland prepare for the club's top-flight return`\
+https://nytimes.com/athletic/6553792/2025/08/15/sunderland-premier-league-bris-dreyfus-xhaka/
+
 **What Business Will Be Watching For in the Trump-Putin Talks**\
 `Normalized economic ties between Russia and the West may be a long way off, but there’s global interest in what’s said about sanctions and tariffs.`\
 https://nytimes.com/2025/08/15/business/dealbook/trump-putin-talks-business.html
