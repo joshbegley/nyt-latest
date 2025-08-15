@@ -1,3 +1,7 @@
+**Trump Welcomes Putin With a Jet Fighter Escort and Red Carpet**\
+`President Trump clapped for his guest, Vladimir V. Putin of Russia, as he stepped foot in the United States for the first time in a decade.`\
+https://nytimes.com/2025/08/15/us/politics/trump-putin-alaska-scene.html
+
 **Understanding Michigan's sign-stealing penalties — and the ones it avoided**\
 `Is the NCAA’s power fully neutered? Is this the norm moving forward? Here is a breakdown of the Wolverines' penalties and what they mean.`\
 https://nytimes.com/athletic/6556144/2025/08/15/michigan-sign-stealing-penalties-show-cause/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/15/world/europe/misinformation-russia.html
 **Caleb Williams solid, not spectacular vs. Bills 'D': Bears joint practice observations**\
 `We break down Friday's joint practice between the Bears and Bills — how the two starting quarterbacks fared and Mitch Trubisky's return.`\
 https://nytimes.com/athletic/6556392/2025/08/15/bears-bills-joint-practice-caleb-williams/
-
-**Jackson to be left out of Chelsea squad for Palace game**\
-`Jackson, his representatives and Chelsea are exploring a possible move away from Stamford Bridge in the final weeks of the transfer window.`\
-https://nytimes.com/athletic/6555812/2025/08/15/nicolas-jackson-chelsea-crystal-palace/
 
