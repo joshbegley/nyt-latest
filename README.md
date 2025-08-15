@@ -1,3 +1,7 @@
+**Fantasy Premier League live Q&A: FPL Gameweek One advice from Ben Dinnery**\
+`Join Ben Dinnery for a live Gameweek One FPL Q&A from 3pm-4pm UK time`\
+https://nytimes.com/athletic/6545147/2025/08/15/fantasy-premier-league-live-qa-fpl-tips-gw1/
+
 **Seth Meyers Braces for Trump’s Kennedy Center Honors**\
 `The president said “wokesters” in the performing arts wouldn’t be honored. “A ‘wokester’ sounds like a car your great-grandfather drove after the war,” Meyers said.`\
 https://nytimes.com/2025/08/15/arts/television/seth-meyers-trump-kennedy-center.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/15/briefing/russia-putin-trump-ukraine-gaza-aid.html
 **Manchester United 2025-26 season preview: A new front line to help purge memories of Bilbao**\
 `Ruben Amorim has players better suited to his tactical approach and will hope to restore the club to the Champions League this term`\
 https://nytimes.com/athletic/6519745/2025/08/15/manchester-united-amorim-sesko-mbeumo-cunha-season-preview/
-
-**Arsenal Q&A with Art de Roche**\
-`Our Arsenal writer will answer your questions on the season ahead before Sunday's opening game at Old Trafford`\
-https://nytimes.com/athletic/6550960/2025/08/15/arsenal-pre-season-qa-art-de-roche/
 
