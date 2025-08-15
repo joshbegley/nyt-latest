@@ -1,3 +1,11 @@
+**Rosie O’Donnell and Eating the Rich: 7 Buzzy Shows at Edinburgh Fringe**\
+`The shows that have gotten tongues wagging this year include stand-up gigs, character skits and a routine that ends with its performer covered in goo.`\
+https://nytimes.com/2025/08/15/arts/edinburgh-fringe-buzziest-best-acts.html
+
+**Amorim: Sesko ready to start against Arsenal**\
+`Noussair Mazraoui and Lisandro Martinez will miss Sunday's Premier League opener.`\
+https://nytimes.com/athletic/6555433/2025/08/15/man-utd-team-news-sesko-onana-arsenal/
+
 **Plastic Pollution Talks Collapse as Oil States Oppose Tough Treaty**\
 `Countries failed to bridge wide gaps on whether the world should limit plastic manufacturing and restrict the use of harmful plastic chemicals.`\
 https://nytimes.com/2025/08/15/climate/plastic-pollution-treaty-talks-collapse.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6554046/2025/08/15/cj-west-49ers-rookie-defensive-t
 **Chargers 53-man projection: Trey Lance leads QB2 battle but will they keep 3?**\
 `The Chargers could choose to keep Taylor Heinicke as well, but their needs on the rest of the roster could outweigh the benefit.`\
 https://nytimes.com/athletic/6554726/2025/08/15/chargers-53-man-projection-trey-lance/
-
-**Sunderland countdown: A week behind the scenes ahead of their Premier League return**\
-`Granit Xhaka, Kristjaan Speakman, Regis Le Bris and characters in and around Sunderland prepare for the club's top-flight return`\
-https://nytimes.com/athletic/6553792/2025/08/15/sunderland-premier-league-bris-dreyfus-xhaka/
-
-**Dodgers, Padres face off in spicy NL West race: 'The rivalry part is certainly real'**\
-`The last time the Padres led the NL West this late in the season was in 2010; Dave Roberts told the Dodgers to 'ramp up the intensity.'`\
-https://nytimes.com/athletic/6554394/2025/08/15/dodgers-padres-nl-west-race/
 

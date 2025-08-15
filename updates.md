@@ -1,3 +1,11 @@
+**Rosie O’Donnell and Eating the Rich: 7 Buzzy Shows at Edinburgh Fringe**\
+`The shows that have gotten tongues wagging this year include stand-up gigs, character skits and a routine that ends with its performer covered in goo.`\
+https://nytimes.com/2025/08/15/arts/edinburgh-fringe-buzziest-best-acts.html
+
+**Amorim: Sesko ready to start against Arsenal**\
+`Noussair Mazraoui and Lisandro Martinez will miss Sunday's Premier League opener.`\
+https://nytimes.com/athletic/6555433/2025/08/15/man-utd-team-news-sesko-onana-arsenal/
+
 **Plastic Pollution Talks Collapse as Oil States Oppose Tough Treaty**\
 `Countries failed to bridge wide gaps on whether the world should limit plastic manufacturing and restrict the use of harmful plastic chemicals.`\
 https://nytimes.com/2025/08/15/climate/plastic-pollution-treaty-talks-collapse.html
