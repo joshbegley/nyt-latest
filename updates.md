@@ -1,3 +1,19 @@
+**Why Russia Sold Alaska to the U.S.**\
+`The Trump-Putin summit will take place in a former Russian colony that the United States bought for $7.2 million in 1867. Here’s how the deal came together and why its legacy matters.`\
+https://nytimes.com/2025/08/15/world/europe/russia-alaska-purchase-ukraine.html
+
+**The Trump-Putin Meeting: What to Know**\
+`The leaders of the United States and Russia will hold talks at an American military base in Alaska and are expected to hold a news conference afterward.`\
+https://nytimes.com/2025/08/15/us/politics/trump-putin-meeting-what-time-alaska.html
+
+**They’re Losing Their Vision. They Still Love Playing Tennis.**\
+`For the visually impaired people who participate in blind tennis, the sport delivers joy. “This is what I’ve been missing,” one player said.`\
+https://nytimes.com/2025/08/15/nyregion/blind-tennis-new-york-city.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/08/15/crosswords/spelling-bee-forum.html
+
 **Fantasy Premier League live Q&A: FPL Gameweek One advice from Ben Dinnery**\
 `Join Ben Dinnery for a live Gameweek One FPL Q&A from 3pm-4pm UK time`\
 https://nytimes.com/athletic/6545147/2025/08/15/fantasy-premier-league-live-qa-fpl-tips-gw1/
