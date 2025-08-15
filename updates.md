@@ -1,3 +1,7 @@
+**Packers-Colts joint practice: Passing game struggles without Jordan Love, 5 key WRs**\
+`Tight end Tucker Kraft didn't sugarcoat his assessment of the passing game's performance in Thursday's joint practice.`\
+https://nytimes.com/athletic/6554753/2025/08/14/packers-colts-joint-practice-jordan-love/
+
 **Lesser Prairie Chicken Loses Endangered Species Act Protections**\
 `A federal judge in Texas granted a request by the Trump administration, which said a Biden-era decision to safeguard the bird was flawed.`\
 https://nytimes.com/2025/08/14/climate/lesser-prairie-chicken-endangered-species.html
