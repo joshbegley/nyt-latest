@@ -1,3 +1,7 @@
+**Finding Beauty in a Bowl of Soup**\
+`It tethers us to the world, brings us together, asks our bodies to remember a time beyond ourselves.`\
+https://nytimes.com/interactive/2025/08/15/opinion/soup-beauty.html
+
 **Live Q&A with Guardians writer Zack Meisel: Friday, Aug. 15 at 1 p.m. ET**\
 `<p>A lot has happened in Guardians World since the trade deadline last month, which is why <em>The Athletic</em>&#8217;s Zack Meisel will be here to answer any questions you may have starting at 1 p.`\
 https://nytimes.com/athletic/6555721/2025/08/15/live-qa-with-guardians-writer-zack-meisel-friday-aug-15-at-1-p-m-et/
