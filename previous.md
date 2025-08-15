@@ -1,3 +1,11 @@
+**As Strike Looms, Air Canada’s Flight Attendants Reject Call for Arbitration**\
+`Their union says one of its core demands, to receive pay for groundwork, is unlikely to be introduced in arbitration. The airline began canceling flights ahead of the potential strike.`\
+https://nytimes.com/2025/08/15/world/canada/air-canada-flight-attendant-strike.html
+
+**As the Air Canada Strike Looms, Here’s What Travelers Need to Know**\
+`A strike by the carrier’s flight attendants could disrupt 130,000 travelers a day, including international fliers. Here’s what to know if your flight is affected.`\
+https://nytimes.com/2025/08/15/travel/air-canada-strike-flight-cancellations.html
+
 **Hours Ahead of Meeting Putin, Trump Calls Kremlin’s Closest Ally**\
 `President Trump referred to the authoritarian ruler of Belarus, who has been isolated by the West for years, “the highly respected President.”`\
 https://nytimes.com/2025/08/15/world/europe/trump-belarus-leader-call-putin.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6555726/2025/08/15/marc-guehi-eberechi-eze-in-line-
 **Until Saturday: Wait, they'd *never* started No. 1?**\
 `Until Saturday is The Athletic's free CFB newsletter.`\
 https://nytimes.com/athletic/6556020/2025/08/15/texas-preseason-ranking-until-saturday/
-
-**Kliff Kingsbury says Commanders need Terry McLaurin, other starters back**\
-`Kingsbury’s comments were the most pointed yet by a Commanders coach or executive about the urgency to get Terry McLaurin and others back.`\
-https://nytimes.com/athletic/6555950/2025/08/15/kliff-kingsbury-commanders-terry-mclaurin/
-
-**Former employee sues Blackhawks, alleging discrimination, wrongful termination**\
-`The former employee alleges he was mistreated and fired by his supervisor for a previously approved interview about being gay.`\
-https://nytimes.com/athletic/6553636/2025/08/15/blackhawks-lawsuit-discrimination-filomena/
 
