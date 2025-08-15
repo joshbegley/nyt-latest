@@ -1,3 +1,15 @@
+**Fox News will interview Trump three times during the summit with Putin.**\
+`President Trump is expected to speak with Sean Hannity after meeting with the Russian leader. Bret Baier is interviewing Mr. Trump twice on Air Force One.`\
+https://nytimes.com/live/2025/08/15/world/trump-putin-meeting-alaska/fox-news-will-interview-trump-three-times-during-the-summit-with-putin
+
+**Doris Lockhart Saatchi, 88, Critic and Collector of Cutting-Edge Art, Dies**\
+`With her husband, Charles Saatchi, she assembled one of the world’s top collections of contemporary art, featuring works by Andy Warhol, Julian Schnabel, Cy Twombly and many others.`\
+https://nytimes.com/2025/08/15/arts/doris-lockhart-saatchi-dead.html
+
+**Cannabis Shops Sue New York Over Rule Change That Could Shut Them Down**\
+`Last month, dozens of cannabis businesses were told they were located too close to schools after state officials realized they had misinterpreted regulations.`\
+https://nytimes.com/2025/08/15/nyregion/weed-cannabis-dispensary-lawsuit.html
+
 **False Flags, Fake Flags: Propaganda Muddles the Trump-Putin Meeting**\
 `The summit in Alaska between President Trump and President Vladimir V. Putin of Russia has unleashed a wave of propaganda and disinformation from Russian state media and online conspiracy theorists.`\
 https://nytimes.com/2025/08/15/world/europe/misinformation-russia.html

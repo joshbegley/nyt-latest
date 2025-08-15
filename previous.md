@@ -1,3 +1,15 @@
+**Fox News will interview Trump three times during the summit with Putin.**\
+`President Trump is expected to speak with Sean Hannity after meeting with the Russian leader. Bret Baier is interviewing Mr. Trump twice on Air Force One.`\
+https://nytimes.com/live/2025/08/15/world/trump-putin-meeting-alaska/fox-news-will-interview-trump-three-times-during-the-summit-with-putin
+
+**Doris Lockhart Saatchi, 88, Critic and Collector of Cutting-Edge Art, Dies**\
+`With her husband, Charles Saatchi, she assembled one of the world’s top collections of contemporary art, featuring works by Andy Warhol, Julian Schnabel, Cy Twombly and many others.`\
+https://nytimes.com/2025/08/15/arts/doris-lockhart-saatchi-dead.html
+
+**Cannabis Shops Sue New York Over Rule Change That Could Shut Them Down**\
+`Last month, dozens of cannabis businesses were told they were located too close to schools after state officials realized they had misinterpreted regulations.`\
+https://nytimes.com/2025/08/15/nyregion/weed-cannabis-dispensary-lawsuit.html
+
 **False Flags, Fake Flags: Propaganda Muddles the Trump-Putin Meeting**\
 `The summit in Alaska between President Trump and President Vladimir V. Putin of Russia has unleashed a wave of propaganda and disinformation from Russian state media and online conspiracy theorists.`\
 https://nytimes.com/2025/08/15/world/europe/misinformation-russia.html
@@ -25,16 +37,4 @@ https://nytimes.com/video/us/politics/100000010344154/trump-putin-alaska-meeting
 **Tommy McLain, the King of Swamp Pop, Dies at 85**\
 `Playing a blend of rock, R&B and zydeco, he had a hit in 1966 with “Sweet Dreams” and inspired Elvis Costello and Nick Lowe, among many others.`\
 https://nytimes.com/2025/08/15/arts/music/tommy-mclain-dead.html
-
-**Liverpool 4 Bournemouth 2 - Chiesa the supersub, Semenyo reports racist abuse, scores twice**\
-`A dramatic and controversial first game of the Premier League season ends with the Italian and Salah breaking the visitors' resolve`\
-https://nytimes.com/athletic/6553512/2025/08/15/liverpool-bournemouth-chiesa-semenyo-ekitike-jota/
-
-**At Least 185 People Killed in Devastating Flash Floods in Pakistan**\
-`Rapidly melting glaciers and abnormally heavy rain have led to deadly flash floods in Pakistan, killing over 500 people since late June. Officials expect the death toll to rise as the monsoon season continues.`\
-https://nytimes.com/video/world/asia/100000010343290/pakistan-flash-floods-monsoon.html
-
-**Answering your Guardians questions: DeLauter updates, Kwan's struggles and more**\
-`Zack Meisel discussed these topics and more during a wide-ranging live Q&A with The Athletic subscribers on Friday.`\
-https://nytimes.com/athletic/6556334/2025/08/15/guardians-questions-kwan-delauter-playoffs/
 
