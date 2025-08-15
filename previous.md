@@ -1,3 +1,7 @@
+**Nuno: Forest have 'major problem' ahead of new season: 'We are all very worried'**\
+`After Nuno spoke to Sky, the club have accelerated several transfer moves in a bid to bolster their squad.`\
+https://nytimes.com/athletic/6553002/2025/08/15/nottingham-forest-transfer-news-nuno/
+
 **Why Russia Sold Alaska to the U.S.**\
 `The Trump-Putin summit will take place in a former Russian colony that the United States bought for $7.2 million in 1867. Here’s how the deal came together and why its legacy matters.`\
 https://nytimes.com/2025/08/15/world/europe/russia-alaska-purchase-ukraine.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/15/learning/word-of-the-day-hawkish.html
 **China’s Economy Slows Broadly Even as Exports Keep Rising**\
 `Officials blamed U.S. “protectionism” for the dismal July data, but growth was likely held back by real estate and new policies aimed at slowing factory investments.`\
 https://nytimes.com/2025/08/15/business/china-economy-july-tariffs.html
-
-**The New York Times in Print for Friday, Aug. 15, 2025**\
-``\
-https://nytimes.com/issue/todayspaper/2025/08/15/todays-new-york-times
 
