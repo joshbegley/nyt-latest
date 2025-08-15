@@ -1,3 +1,7 @@
+**NCAA fines Michigan, suspends coach Moore in sign-stealing investigation**\
+`The punishments include a significant penalty for former staffer Connor Stalions, but the Wolverines will not face a postseason ban`\
+https://nytimes.com/athletic/6554669/2025/08/15/connor-stalions-sign-stealing-saga-resolution/
+
 **$5,000-Per-Plate Dinner Tests Museum Ban on Political Fund-Raisers**\
 `Carnegie Museums employees objected that a fund-raiser for a nonprofit with ties to a senator had violated museum policy against renting space for partisan political events.`\
 https://nytimes.com/2025/08/15/arts/design/carnegie-museums-mccormick-pa-rising.html
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2025/08/15/us/dc-lawsuit-trump.html
 **Can You Wear Pajamas Through Lunchtime?**\
 `A ruling on a dispute over the appropriate time limits for sleepwear.`\
 https://nytimes.com/interactive/2025/08/15/magazine/pajamas-hodgman-quiz.html
-
-**The Windup: High-stakes rivalry this weekend**\
-`The Windup Newsletter ⚾ | This is The Athletic’s MLB newsletter.`\
-https://nytimes.com/athletic/6555731/2025/08/15/dodgers-padres-the-windup/
 
