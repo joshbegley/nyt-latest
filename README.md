@@ -1,3 +1,7 @@
+**Finding Beauty in a Bowl of Soup**\
+`It tethers us to the world, brings us together, asks our bodies to remember a time beyond ourselves.`\
+https://nytimes.com/interactive/2025/08/15/opinion/soup-beauty.html
+
 **Live Q&A with Guardians writer Zack Meisel: Friday, Aug. 15 at 1 p.m. ET**\
 `<p>A lot has happened in Guardians World since the trade deadline last month, which is why <em>The Athletic</em>&#8217;s Zack Meisel will be here to answer any questions you may have starting at 1 p.`\
 https://nytimes.com/athletic/6555721/2025/08/15/live-qa-with-guardians-writer-zack-meisel-friday-aug-15-at-1-p-m-et/
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/08/15/world/trump-putin-meeting-alaska/in-moscow-r
 **Man United not planning to proceed with move for Brighton's Baleba**\
 `The 21-year-old Brighton & Hove Albion midfielder has been United’s top target to strengthen in the No. 6 position.`\
 https://nytimes.com/athletic/6539234/2025/08/15/carlos-baleba-manchester-united-not-planning-to-proceed-with-move-for-brighton-transfer/
-
-**A $45 Treatment Can Save a Starving Child. US Aid Cuts Have Frozen the Supply**\
-`The dismantling of U.S.A.I.D. has disrupted the global supply chain that provides a therapeutic food, leaving thousands of malnourished children at risk of dying.`\
-https://nytimes.com/2025/08/15/health/hunger-malnutrition-usaid-cuts.html
 
