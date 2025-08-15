@@ -1,3 +1,15 @@
+**Arch Manning and 2025’s other 24 most interesting college football people**\
+`The 21-year-old Manning, a member of the first family of football, is far from the only interesting person to follow this season.`\
+https://nytimes.com/athletic/6553536/2025/08/15/arch-manning-bill-belichick-james-franklin-college-football-2025/
+
+**She might be the world's best wide receiver: Meet Isabella Geraci, U.S. flag football star**\
+`Geraci was a former college athlete looking for a way to keep the spark alive. She found flag football, and maybe a path to Olympic stardom.`\
+https://nytimes.com/athletic/6554291/2025/08/15/isabella-geraci-team-usa-flag-football-wide-receiver/
+
+**The Atlanta Dream are now the only WNBA team without a mascot, and we have ideas for them**\
+`The Dream are due for a new mascot. We consider several options in advance of Sunday's game against the Valkyries, who just unveiled Violet.`\
+https://nytimes.com/athletic/6552237/2025/08/15/atlanta-dream-mascot-golden-state-valkyries-violet-wnba/
+
 **Ukraine’s Fate**\
 `We have a primer on today’s Trump-Putin summit in Alaska.`\
 https://nytimes.com/2025/08/15/briefing/trump-putin-alaska-ukraine.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6554850/2025/08/15/las-vegas-aces-win-streak-wnba/
 **The Athletic’s Friday football quiz question #68**\
 `Can you answer the weekly poser plucked from deep inside The Athletic's trivia vaults?`\
 https://nytimes.com/athletic/6554320/2025/08/15/the-athletics-friday-football-quiz-question-68/
-
-**Nazem Kadri talks Hockey Canada Olympic camp snub: 'I deserve a chance'**\
-`The Flames forward also discussed the Hockey Diversity Alliance and the trade rumors swirling around teammate Rasmus Andersson.`\
-https://nytimes.com/athletic/6554054/2025/08/15/nazem-kadri-2026-olympics-hockey-canada-roster-nhl/
-
-**United sign Rolfo following Barcelona departure**\
-`The Sweden international won 13 major trophies in four years with Barcelona, including four Liga F titles and the Champions League twice.`\
-https://nytimes.com/athletic/6555238/2025/08/15/manchester-united-fridolina-rolfo-free-transfer/
-
-**Blue Jays notes: Vladimir Guerrero Jr.'s surge, Trey Yesavage's development and more**\
-`Guerrero has hit seven home runs in 20 games — a 56-homer full-season pace reminiscent of his second-half surge in 2024.`\
-https://nytimes.com/athletic/6554833/2025/08/15/blue-jays-vladimir-guerrero-jr-trey-yesavage/
 

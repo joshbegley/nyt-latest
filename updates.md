@@ -1,3 +1,15 @@
+**Arch Manning and 2025’s other 24 most interesting college football people**\
+`The 21-year-old Manning, a member of the first family of football, is far from the only interesting person to follow this season.`\
+https://nytimes.com/athletic/6553536/2025/08/15/arch-manning-bill-belichick-james-franklin-college-football-2025/
+
+**She might be the world's best wide receiver: Meet Isabella Geraci, U.S. flag football star**\
+`Geraci was a former college athlete looking for a way to keep the spark alive. She found flag football, and maybe a path to Olympic stardom.`\
+https://nytimes.com/athletic/6554291/2025/08/15/isabella-geraci-team-usa-flag-football-wide-receiver/
+
+**The Atlanta Dream are now the only WNBA team without a mascot, and we have ideas for them**\
+`The Dream are due for a new mascot. We consider several options in advance of Sunday's game against the Valkyries, who just unveiled Violet.`\
+https://nytimes.com/athletic/6552237/2025/08/15/atlanta-dream-mascot-golden-state-valkyries-violet-wnba/
+
 **Ukraine’s Fate**\
 `We have a primer on today’s Trump-Putin summit in Alaska.`\
 https://nytimes.com/2025/08/15/briefing/trump-putin-alaska-ukraine.html
