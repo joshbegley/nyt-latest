@@ -1,3 +1,15 @@
+**As Trump Tightens Hold on Kennedy Center, Top Theater Producer Resigns**\
+`Jeffrey Finn, a Broadway producer who has overseen theater programming at the Washington venue since 2016, will leave next month.`\
+https://nytimes.com/2025/08/15/theater/jeffrey-finn-kennedy-center-theater.html
+
+**The Deadly Pleasure of Smoking Cigarettes**\
+`Readers criticize a guest essay about the pleasures of smoking. Also: The trauma of jury duty; the federalized police in Washington, D.C.`\
+https://nytimes.com/2025/08/15/opinion/smoking-cigarettes-death.html
+
+**Guehi, Eze in line to start for Palace at Chelsea - Glasner**\
+`Glasner, though, offered no guarantees that the pair would stay at Palace beyond the end of the transfer window on September 1.`\
+https://nytimes.com/athletic/6555726/2025/08/15/marc-guehi-eberechi-eze-in-line-to-start-for-crystal-palace-at-chelsea-glasner/
+
 **Until Saturday: Wait, they'd *never* started No. 1?**\
 `Until Saturday is The Athletic's free CFB newsletter.`\
 https://nytimes.com/athletic/6556020/2025/08/15/texas-preseason-ranking-until-saturday/

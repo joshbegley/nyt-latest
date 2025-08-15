@@ -1,3 +1,7 @@
+**Trump Rails About Youth Crime, a Focus of D.C. Leaders for Decades**\
+`Concerns came to a head during the pandemic, when carjackings surged and many of those arrested were children. Carjackings and other crimes have declined considerably.`\
+https://nytimes.com/2025/08/15/us/trump-juvenile-crime-dc-data.html
+
 **As Trump Tightens Hold on Kennedy Center, Top Theater Producer Resigns**\
 `Jeffrey Finn, a Broadway producer who has overseen theater programming at the Washington venue since 2016, will leave next month.`\
 https://nytimes.com/2025/08/15/theater/jeffrey-finn-kennedy-center-theater.html
@@ -14,7 +18,7 @@ https://nytimes.com/athletic/6555726/2025/08/15/marc-guehi-eberechi-eze-in-line-
 `Until Saturday is The Athletic's free CFB newsletter.`\
 https://nytimes.com/athletic/6556020/2025/08/15/texas-preseason-ranking-until-saturday/
 
-**Kliff Kingsbury is losing patience, says Washington needs its top WRs back**\
+**Kliff Kingsbury says Commanders need Terry McLaurin, other starters back**\
 `Kingsbury’s comments were the most pointed yet by a Commanders coach or executive about the urgency to get Terry McLaurin and others back.`\
 https://nytimes.com/athletic/6555950/2025/08/15/kliff-kingsbury-commanders-terry-mclaurin/
 
@@ -33,8 +37,4 @@ https://nytimes.com/card/2025/08/15/smarter-living/wirecutter/
 **Congressional Democrats Move to End Trump’s Control of D.C. Police**\
 `The legislation has little chance of success, given that Republicans control Congress.`\
 https://nytimes.com/2025/08/15/us/politics/congress-democrats-legislation-trump-dc-police.html
-
-**Leoni: Italy's next great defensive hope is ready to learn from Van Dijk at Liverpool**\
-`Leoni's rise has been stratospheric, and he is part of a growing trend of Italian talent seeking fortune and improvement in England`\
-https://nytimes.com/athletic/6552968/2025/08/15/giovanni-leoni-liverpool-transfer-van-dijk/
 
