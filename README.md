@@ -22,13 +22,13 @@ https://nytimes.com/2025/08/15/business/china-economy-july-tariffs.html
 ``\
 https://nytimes.com/issue/todayspaper/2025/08/15/todays-new-york-times
 
-**Putin Should Be Careful What He Wishes For**\
-`Russia’s president has long insisted that Ukraine will be his. But his obsession may cost Russia more than he has bargained for.`\
-https://nytimes.com/2025/08/15/opinion/putin-trump-alaska-ukraine.html
-
 **The Most Environmentally Imaginative Country on Earth Is Under Assault**\
 `Ecuador’s ecological progress is threatened by a series of reforms steamrolled by its young populist president, Daniel Noboa.`\
 https://nytimes.com/2025/08/15/opinion/ecuador-galapagos-noboa.html
+
+**Putin Should Be Careful What He Wishes For**\
+`Russia’s president has long insisted that Ukraine will be his. But his obsession may cost Russia more than he has bargained for.`\
+https://nytimes.com/2025/08/15/opinion/putin-trump-alaska-ukraine.html
 
 **Friday Briefing: Ukraine’s Fate**\
 `Plus, to appreciate a dancer, watch the hands.`\
