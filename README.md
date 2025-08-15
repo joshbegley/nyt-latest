@@ -1,3 +1,7 @@
+**Manchester United not planning to proceed with move for Brighton's Baleba**\
+`The 21-year-old Brighton & Hove Albion midfielder has been United’s top target to strengthen in the No. 6 position.`\
+https://nytimes.com/athletic/6539234/2025/08/15/carlos-baleba-manchester-united-not-planning-to-proceed-with-move-for-brighton-transfer/
+
 **A $45 Treatment Can Save a Starving Child. US Aid Cuts Have Frozen the Supply**\
 `The dismantling of U.S.A.I.D. has disrupted the global supply chain that provides a therapeutic food, leaving thousands of malnourished children at risk of dying.`\
 https://nytimes.com/2025/08/15/health/hunger-malnutrition-usaid-cuts.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/08/15/world/trump-putin-meeting-alaska/the-minsk-a
 **An Easy Homemade Ice Cream Recipe to Make Your Flavor Dreams Come True**\
 `By Sam Sifton`\
 https://nytimes.com/2025/08/15/dining/an-easy-homemade-ice-cream-recipe-to-make-your-flavor-dreams-come-true.html
-
-**Man Rescued From Behind California Waterfall After 2 Days**\
-`The man, who was found with minor injuries and suffering from dehydration, was located by rescue crews operating a drone near where he had last been spotted.`\
-https://nytimes.com/2025/08/15/us/california-waterfall-rescue-seven-teacups.html
 
