@@ -1,3 +1,7 @@
+**Frank expects huge reception for Tel after 'terrible' racist abuse**\
+`Frank says Spurs are supporting Tel and expects a huge reception for the 20-year-old in Saturday's Premier League opener against Burnley.`\
+https://nytimes.com/athletic/6555168/2025/08/15/tottenham-mathys-tel-racist-abuse-thomas-frank/
+
 **The Mets are spiraling, the Mariners are soaring. Here's how to watch their weekend series**\
 `The Mets are down. The Mariners are up. The stars are out for a meaningful interleague series.`\
 https://nytimes.com/athletic/6554300/2025/08/15/mariners-mets-cal-raleigh-pete-alonso-juan-soto-little-league-mlb-how-to-watch/
