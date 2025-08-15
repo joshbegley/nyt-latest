@@ -1,3 +1,7 @@
+**Nuno: Forest signings' lack of 'adaption' time is problem after 'very, very bad' pre-season**\
+`Head coach Nuno is happy to see Forest push for such ambitious additions, but is concerned about the challenges of integrating new players`\
+https://nytimes.com/athletic/6556021/2025/08/15/nottingham-forest-adaption-new-signings/
+
 **Mali’s Junta Accuses Frenchman of Plot to Overthrow the Military Government**\
 `A representative of the junta said the man had worked “on behalf of the French intelligence service, which mobilized political leaders, civil society actors and military personnel” to foment a coup.`\
 https://nytimes.com/2025/08/15/world/africa/mali-coup-france.html

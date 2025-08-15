@@ -7,7 +7,7 @@ https://nytimes.com/2025/08/15/world/africa/mali-coup-france.html
 https://nytimes.com/athletic/6544165/2025/08/15/brandon-williams-hull-transfer/
 
 **Nuno: Forest signings' lack of 'adaption' time is problem after 'very, very bad' pre-season**\
-`Nuno says the lack of adaption time for the splurge of late Nottingham Forest signings is a major problem ahead of the Premier League start.`\
+`Head coach Nuno is happy to see Forest push for such ambitious additions, but is concerned about the challenges of integrating new players`\
 https://nytimes.com/athletic/6556021/2025/08/15/nottingham-forest-adaption-new-signings/
 
 **Priscilla Presley Locked in Feud With Former Business Partners**\
@@ -33,8 +33,4 @@ https://nytimes.com/athletic/6556026/2025/08/15/rico-lewis-forest-manchester-cit
 **Reds place rookie Chase Burns on IL with flexor strain**\
 `Burns has 57 strikeouts in 34 1/3 innings in the big leagues and four 10-strikeout starts.`\
 https://nytimes.com/athletic/6556057/2025/08/15/reds-chase-burns-injured-list/
-
-**Trump Rails About Youth Crime, a Focus of D.C. Leaders for Decades**\
-`Concerns came to a head during the pandemic, when carjackings surged and many of those arrested were children. Carjackings and other crimes have declined considerably.`\
-https://nytimes.com/2025/08/15/us/trump-juvenile-crime-dc-data.html
 
