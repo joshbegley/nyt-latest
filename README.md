@@ -1,3 +1,7 @@
+**Judge Blocks F.T.C. Investigation of Media Matters**\
+`The agency began looking into the liberal watchdog group’s research critical of Elon Musk and his social media platform, X, in May.`\
+https://nytimes.com/2025/08/15/technology/media-matters-ftc-musk-injunction.html
+
 **O'Connor: Harbaugh's Michigan tenure revealed him to be the same as any other coach. No lie**\
 `I’ve found that these mega-coaches are pretty much all the same. They will do almost anything to win.`\
 https://nytimes.com/athletic/6556477/2025/08/15/jim-harbaugh-michigan-suspension-coach/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/15/arts/doris-lockhart-saatchi-dead.html
 **Cannabis Shops Sue New York Over Rule Change That Could Shut Them Down**\
 `Last month, dozens of cannabis businesses were told they were located too close to schools after state officials realized they had misinterpreted regulations.`\
 https://nytimes.com/2025/08/15/nyregion/weed-cannabis-dispensary-lawsuit.html
-
-**False Flags, Fake Flags: Propaganda Muddles the Trump-Putin Meeting**\
-`The summit in Alaska between President Trump and President Vladimir V. Putin of Russia has unleashed a wave of propaganda and disinformation from Russian state media and online conspiracy theorists.`\
-https://nytimes.com/2025/08/15/world/europe/misinformation-russia.html
 
