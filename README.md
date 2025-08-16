@@ -1,3 +1,11 @@
+**Brewers erase 7-run deficit, extend winning streak to 13 games**\
+`Milwaukee's magical run continues as Christian Yelich had a four-hit, two-homer game with his Players' Weekend bat dedicated to Bob Uecker.`\
+https://nytimes.com/athletic/6556744/2025/08/15/brewers-13-game-winning-streak-christian-yelich/
+
+**6 Takeaways From Trump’s Meeting With Putin**\
+`While no deal was announced, the Russian leader secured some wins and left on good terms with the U.S. president.`\
+https://nytimes.com/2025/08/15/us/politics/trump-putin-meeting-takeaways.html
+
 **Full of Snickers**\
 `Grab this tough-looking Byron Walden puzzle by the horns.`\
 https://nytimes.com/2025/08/15/crosswords/daily-puzzle-2025-08-16.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/08/15/us/politics/trump-putin-alaska-ukraine.html
 **Newsom’s Gerrymander of California Has a Formidable Foe: Schwarzenegger**\
 `The actor-turned-governor helped overhaul how California draws political maps. In an interview with The New York Times, he said he would fight to preserve that legacy.`\
 https://nytimes.com/2025/08/15/us/politics/schwarzenegger-newsom-california-redistricting.html
-
-**Trump Leaves With No Ukraine Deal After Meeting With Putin**\
-`President Trump and President Vladimir V. Putin of Russia said they had made “progress” during their nearly three-hour meeting, but did not reach a cease-fire deal on the war in Ukraine.`\
-https://nytimes.com/video/us/politics/100000010344612/trump-putin-summit-no-deal.html
-
-**Giants place Matt Chapman on injured list with right hand inflammation**\
-`San Francisco's third baseman missed nearly a month earlier this season with a badly sprained hand.`\
-https://nytimes.com/athletic/6556609/2025/08/15/sf-giants-matt-chapman-injury/
 
