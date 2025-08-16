@@ -1,3 +1,7 @@
+**Trump Administration Live Updates: Federal Government Agrees in Court That D.C. Chief Controls City Police**\
+``\
+https://nytimes.com/live/2025/08/16/us/trump-dc-news
+
 **The Giants have lost 14 of 15 at home. Matt Chapman still believes**\
 `Whether the Giants truly believe they can crawl back into contention or not, it will have to start with playing one clean game.`\
 https://nytimes.com/athletic/6556946/2025/08/16/sf-giants-home-defeats-matt-chapman/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6556674/2025/08/16/chiefs-concerns-preseason-loss-s
 **Blues mailbag, Part 1: Season predictions, line combos, Dvorsky's chances, Mailloux's ceiling**\
 `The Blues are trickling into town this month, and associate coach Steve Ott says they're raring to go in 2025-26. `\
 https://nytimes.com/athletic/6555485/2025/08/16/blues-mailbag-dalibor-dvorsky-logan-mailloux/
-
-**Planning a college sports road trip? These are the 25 best stops you can make**\
-`Pack your bags: This is The Athletic's must-visit college sporting events in 2025.`\
-https://nytimes.com/athletic/6553497/2025/08/16/best-college-sports-towns-road-trip/
 
