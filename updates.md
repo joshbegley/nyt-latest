@@ -1,3 +1,11 @@
+**Packers stock report: Who struggled and who impressed in comeback win over Colts?**\
+`Green Bay erased a 13-0 deficit in Indianapolis on Saturday and beat the Colts 23-19 in the second of three preseason games.`\
+https://nytimes.com/athletic/6557740/2025/08/16/packers-stock-report-colts-preseason/
+
+**Protesters Gather to Oppose Trump’s Push on Redistricting**\
+`Thousands assembled around the country to demonstrate against a Republican effort to redraw congressional maps in their favor for 2026.`\
+https://nytimes.com/2025/08/16/us/politics/texas-democrats-redistricting-protests.html
+
 **What Drew Mukuba's pick-six says about the state of the Eagles' young secondary**\
 `The Eagles are still figuring out how to make up for the loss of C.J. Gardner-Johnson.`\
 https://nytimes.com/athletic/6557309/2025/08/16/drew-mukuba-pick-six-eagles-secondary/
