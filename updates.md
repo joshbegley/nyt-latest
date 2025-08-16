@@ -1,3 +1,7 @@
+**Panthers 53-man roster projection: Will they keep 7 WRs? A surprise cut on D-line**\
+`Carolina has tough decisions with a deep receiver group and Dan Morgan could be on the lookout for a corner not on the current roster.`\
+https://nytimes.com/athletic/6557525/2025/08/16/panthers-53-man-roster-projection-preseason/
+
 **New Orleans Mayor Joins Long Line of Louisiana Politicians Accused of Corruption**\
 `For decades, Louisiana lawmakers at all levels of government have been caught up in corruption allegations.`\
 https://nytimes.com/2025/08/16/us/new-orleans-mayor-louisiana-corruption.html
