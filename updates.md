@@ -1,3 +1,11 @@
+**Air Canada Strike Grounds Hundreds of Flights, Stranding Passengers**\
+`More than 100,000 travelers had their plans upended amid the busy summer season as flight attendants faced off with management over wages.`\
+https://nytimes.com/2025/08/16/world/canada/air-canada-strike.html
+
+**Villa's Dendoncker close to Oviedo move**\
+`There will be no fee involved for the midfielder, who has one year left on his existing contract but is out of Unai Emery’s plans.`\
+https://nytimes.com/athletic/6557221/2025/08/16/leander-dendoncker-aston-villa-real-oviedo/
+
 **The Briefing: Tottenham 3 Burnley 0 - Frank's young midfield, Richarlison finds form, Dubravka's unwanted history**\
 `Breaking down the key moments from Tottenham's opening Premier League win over Burnley`\
 https://nytimes.com/athletic/6553539/2025/08/16/tottenham-3-burnley-0-highlights/

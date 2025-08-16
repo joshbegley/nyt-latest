@@ -1,3 +1,11 @@
+**Air Canada Strike Grounds Hundreds of Flights, Stranding Passengers**\
+`More than 100,000 travelers had their plans upended amid the busy summer season as flight attendants faced off with management over wages.`\
+https://nytimes.com/2025/08/16/world/canada/air-canada-strike.html
+
+**Villa's Dendoncker close to Oviedo move**\
+`There will be no fee involved for the midfielder, who has one year left on his existing contract but is out of Unai Emery’s plans.`\
+https://nytimes.com/athletic/6557221/2025/08/16/leander-dendoncker-aston-villa-real-oviedo/
+
 **Kalimuendo undergoing Forest medical; Luiz, Lewis deals being worked on**\
 `Forest are working on a number of deals before kicking off their season on Sunday.`\
 https://nytimes.com/athletic/6552999/2025/08/16/nottingham-forest-transfers-kalimuendo-luiz-lewis/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/08/16/us/politics/national-guard-detained-man.html
 **Man arrested after Semenyo report of racist abuse during Liverpool game**\
 `The opening match of the new season was paused in the first-half after Semenyo reported an alleged incident of racist abuse.`\
 https://nytimes.com/athletic/6556942/2025/08/16/antoine-semenyo-liverpool-racist-abuse-arrest/
-
-**Ukraine Tries to Understand Why Trump Suddenly Abandoned Idea of Cease-Fire**\
-`President Volodymyr Zelensky of Ukraine will go to Washington on Monday seeking answers.`\
-https://nytimes.com/2025/08/16/world/europe/ukraine-russia-trump-zelensky.html
-
-**Commanders activate WR Terry McLaurin off PUP list, still no extension**\
-`McLaurin, 29, has missed the entirety of training camp because of his contract stalemate with the team, and a deal has not yet been reached.`\
-https://nytimes.com/athletic/6557147/2025/08/16/terry-mclaurin-commanders-activate-extension/
 
