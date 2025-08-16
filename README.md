@@ -1,3 +1,7 @@
+**Jon Gray goes unclaimed after Rangers place him on waivers: Sources**\
+`No team was willing to assume the rest of the approximately $3 million left on the 33-year-old right-hander's contract.`\
+https://nytimes.com/athletic/6557800/2025/08/16/rangers-jon-gray-waivers/
+
 **'Great opportunity ahead': Why the Cubs believe they still control their own destiny**\
 `Shota Imanaga’s steady performance Saturday helped the Cubs snap a 35-game streak without a comeback win, the longest in franchise history.`\
 https://nytimes.com/athletic/6557701/2025/08/16/why-cubs-believe-they-control-their-own-destiny/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6557618/2025/08/16/browns-qb-competition-dillon-gab
 **Vikings' backup QB situation and other risers and fallers from preseason loss to Patriots**\
 `Rookie QB Max Brosmer's decision-making and command were impressive Saturday, while the Vikings' returner situation is looking dire.`\
 https://nytimes.com/athletic/6557608/2025/08/16/vikings-patriots-max-brosmer-backup-qb/
-
-**Protesters Gather to Oppose Trump’s Push on Redistricting**\
-`Thousands assembled around the country to demonstrate against a Republican effort to redraw congressional maps in their favor for 2026.`\
-https://nytimes.com/2025/08/16/us/politics/texas-democrats-redistricting-protests.html
 
