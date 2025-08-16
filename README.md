@@ -1,3 +1,7 @@
+**Trump Backs Off Cease-Fire Demand in Ukraine War, Aligning With Putin**\
+`President Trump’s break from a strategy agreed to with European allies could give President Vladimir V. Putin of Russia an edge as talks to end the fighting continue.`\
+https://nytimes.com/2025/08/16/world/europe/trump-putin-ukraine-ceasefire-peace-deal.html
+
 **Guardiola: Man City squad still too big, situation is 'not healthy'**\
 `City have signed six new players this summer.`\
 https://nytimes.com/athletic/6557535/2025/08/16/pep-guardiola-manchester-city-squad-size/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/16/arts/joel-demott-dead.html
 **Barcelona beat nine-man Mallorca 3-0 in La Liga opener as Rashford debuts**\
 `Goals from Raphinha, Ferran Torres and Lamine Yamal gave Hansi Flick's side a comfortable win.`\
 https://nytimes.com/athletic/6557412/2025/08/16/barcelona-mallorca-la-liga-rashford/
-
-**Big Ten crafting options to at least double size of CFP field: Sources**\
-`The idea for a field as large as 28 teams was presented to Big Ten athletic directors for the first time last week, one source said.`\
-https://nytimes.com/athletic/6557310/2025/08/16/big-ten-college-football-playoff-expansion/
 
