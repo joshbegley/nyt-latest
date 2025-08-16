@@ -1,3 +1,11 @@
+**No Deal, but No Consequence for Putin**\
+`President Trump’s failure to reach an accord on Ukraine only made his warm welcome for the Russian leader more striking.`\
+https://nytimes.com/2025/08/15/us/politics/trump-putin-summit-ukrainians.html
+
+**Coco Gauff loses in quarterfinals to Jasmine Paolini at Cincinnati Open**\
+`The serving woes continued Friday for Gauff, falling in three sets 2-6, 6-4, 6-3.`\
+https://nytimes.com/athletic/6556759/2025/08/15/jasmine-paolini-coco-gauff-cincinnati-open/
+
 **Coco Gauff loses in quarterfinals to Jasmine Paolini at Cincinnati Open**\
 `The serving woes continued for Gauff on Friday night, falling in three sets 2-6, 6-4, 6-3.`\
 https://nytimes.com/athletic/6556759/2025/08/15/jasmine-paolini-coco-gauff-cincinnati-open/
