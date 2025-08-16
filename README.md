@@ -1,3 +1,7 @@
+**NASCAR lands new series sponsorship deal with O'Reilly Auto Parts: Sources**\
+`Xfinity has been the entitlement sponsor for the past 11 years but will continue as a premier partner for NASCAR’s top-level Cup Series.`\
+https://nytimes.com/athletic/6557415/2025/08/16/nascar-xfinity-series-new-sponsor-oreilly-auto-parts/
+
 **Joel DeMott, Whose Documentary Was Rejected by PBS, Dies at 78**\
 `Her “Seventeen,” a study of teenagers later recognized as a major work of cinéma vérité, was pulled from a public TV series in 1982 under pressure from its sponsor.`\
 https://nytimes.com/2025/08/16/arts/joel-demott-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6553550/2025/08/16/wolves-manchester-city-highlight
 **Trump Bows to Putin’s Approach on Ukraine: No Cease-Fire, Deadlines or Sanctions**\
 `The net effect of the Alaska summit was to give President Vladimir V. Putin of Russia a free pass to continue his war against his neighbor indefinitely without further penalty, pending talks on a broader peace deal.`\
 https://nytimes.com/2025/08/16/us/politics/trump-putin-approach-ukraine.html
-
-**West Virginia to Send Hundreds of State National Guard Troops to D.C.**\
-`Gov. Patrick Morrisey said the state would send 300 to 400 troops to Washington to support Mr. Trump’s “initiative to restore cleanliness and safety” to the city.`\
-https://nytimes.com/2025/08/16/us/politics/west-virginia-national-guard-dc.html
 
