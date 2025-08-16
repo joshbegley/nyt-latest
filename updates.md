@@ -1,3 +1,7 @@
+**The Briefing: Tottenham 3 Burnley 0 - Frank's young midfield, Richarlison finds form, Dubravka's unwanted history**\
+`Breaking down the key moments from Tottenham's opening Premier League win over Burnley`\
+https://nytimes.com/athletic/6553539/2025/08/16/tottenham-3-burnley-0-highlights/
+
 **Kalimuendo undergoing Forest medical; Luiz, Lewis deals being worked on**\
 `Forest are working on a number of deals before kicking off their season on Sunday.`\
 https://nytimes.com/athletic/6552999/2025/08/16/nottingham-forest-transfers-kalimuendo-luiz-lewis/
