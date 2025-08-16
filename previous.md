@@ -18,7 +18,7 @@ https://nytimes.com/2025/08/15/opinion/trump-putin-alaska-meeting-ukraine.html
 `Court-mandated oversight will remain in place for migrant children in custody. Lawyers have reported poor medical care and lack of sunlight and showers.`\
 https://nytimes.com/2025/08/15/us/migrant-children-trump-flores-settlement.html
 
-**Phillies closer Jhoan Duran carted off field after being hit in ankle with line drive**\
+**Phillies' Jhoan Duran exits game after being hit in ankle with line drive; X-rays negative**\
 `Duran exited the Phillies' game Friday against the Nationals after taking a 94.1 mph liner to his right ankle off the bat of Paul DeJong.`\
 https://nytimes.com/athletic/6556703/2025/08/15/jhoan-duran-phillies-hit-foot-injury/
 

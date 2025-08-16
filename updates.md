@@ -1,3 +1,7 @@
+**Phillies' Jhoan Duran exits game after being hit in ankle with line drive; X-rays negative**\
+`Duran exited the Phillies' game Friday against the Nationals after taking a 94.1 mph liner to his right ankle off the bat of Paul DeJong.`\
+https://nytimes.com/athletic/6556703/2025/08/15/jhoan-duran-phillies-hit-foot-injury/
+
 **Brewers erase 7-run deficit, extend winning streak to 13 games**\
 `Milwaukee's magical run continues as Christian Yelich had a four-hit, two-homer game with his Players' Weekend bat dedicated to Bob Uecker.`\
 https://nytimes.com/athletic/6556744/2025/08/15/brewers-13-game-winning-streak-christian-yelich/
