@@ -1,3 +1,7 @@
+**Trump Administration Live Updates: Federal Government Agrees in Court That D.C. Chief Controls City Police**\
+``\
+https://nytimes.com/live/2025/08/16/us/trump-dc-news
+
 **The Giants have lost 14 of 15 at home. Matt Chapman still believes**\
 `Whether the Giants truly believe they can crawl back into contention or not, it will have to start with playing one clean game.`\
 https://nytimes.com/athletic/6556946/2025/08/16/sf-giants-home-defeats-matt-chapman/
