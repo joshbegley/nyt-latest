@@ -1,3 +1,15 @@
+**Rashford, Garcia registered by La Liga in time for Barcelona's first game**\
+`Both players will be eligible to feature against Mallorca on Saturday evening.`\
+https://nytimes.com/athletic/6546292/2025/08/16/marcus-rashford-barcelona-registration-la-liga/
+
+**How to watch Liberty vs. Lynx: WNBA’s best square off for third time this season**\
+`It’s another 2024 WNBA Finals rematch as the Minnesota Lynx and New York Liberty face off in the third of four regular-season meetings.`\
+https://nytimes.com/athletic/6556431/2025/08/16/new-york-liberty-minnesota-lynx-third-meeting-2025-how-to-watch/
+
+**This World-Renowned Negotiator Says Trump’s Secret Weapon Is Empathy**\
+`Chris Voss on our “dealmaker in chief” and the benefit of approaching life as a deal waiting to be made.`\
+https://nytimes.com/2025/08/16/magazine/chris-voss-interview.html
+
 **In a Wider Redistricting War, Republicans Have an Advantage**\
 `Republicans have a clear advantage over Democrats in the total number of states that could redraw their maps.`\
 https://nytimes.com/interactive/2025/08/16/us/politics/texas-california-redistricting-republicans-democrats.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/08/16/arts/television/south-park-trump-administration-p
 **Where D.C. Crime Is Bad, Residents Question Trump’s Motives**\
 `The president might have found allies in Southeast Washington, where violent crime has long vexed residents. But when he described the city as “disgusting,” with “roving mobs,” his remarks left those looking for help cold.`\
 https://nytimes.com/2025/08/16/us/politics/trump-washington-crime.html
-
-**Hobbies Too Relaxing? Try ‘Leisure Crafting.’**\
-`Productivity and goal-setting should not be confined to work, some recreational enthusiasts say.`\
-https://nytimes.com/2025/08/16/business/leisure-crafting.html
-
-**For Gen Z, ‘Little Treats’ Are Worth Going Over Budget**\
-`Any excuse is good enough for young adults to treat themselves, whether it’s failing an exam, getting a “job well done” from a boss or simply washing the dishes.`\
-https://nytimes.com/2025/08/16/business/gen-z-treat-spending.html
-
-**An Arts District Helped Make Asheville a Destination. Its Recovery Is Slow Going.**\
-`Nearly a year after Hurricane Helene severely damaged the popular River Arts District, the rebuilding process continues in a gradual manner.`\
-https://nytimes.com/2025/08/16/arts/design/asheville-arts-recovery.html
 

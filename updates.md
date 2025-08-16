@@ -1,3 +1,15 @@
+**Rashford, Garcia registered by La Liga in time for Barcelona's first game**\
+`Both players will be eligible to feature against Mallorca on Saturday evening.`\
+https://nytimes.com/athletic/6546292/2025/08/16/marcus-rashford-barcelona-registration-la-liga/
+
+**How to watch Liberty vs. Lynx: WNBA’s best square off for third time this season**\
+`It’s another 2024 WNBA Finals rematch as the Minnesota Lynx and New York Liberty face off in the third of four regular-season meetings.`\
+https://nytimes.com/athletic/6556431/2025/08/16/new-york-liberty-minnesota-lynx-third-meeting-2025-how-to-watch/
+
+**This World-Renowned Negotiator Says Trump’s Secret Weapon Is Empathy**\
+`Chris Voss on our “dealmaker in chief” and the benefit of approaching life as a deal waiting to be made.`\
+https://nytimes.com/2025/08/16/magazine/chris-voss-interview.html
+
 **In a Wider Redistricting War, Republicans Have an Advantage**\
 `Republicans have a clear advantage over Democrats in the total number of states that could redraw their maps.`\
 https://nytimes.com/interactive/2025/08/16/us/politics/texas-california-redistricting-republicans-democrats.html
