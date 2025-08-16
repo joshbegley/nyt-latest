@@ -1,3 +1,11 @@
+**Wolves 0 Manchester City 4 - How good are Bobb and Reijnders? Is Trafford No 1? What must Pep still solve?**\
+`Analysis of Manchester City's victory over Wolves`\
+https://nytimes.com/athletic/6553550/2025/08/16/wolves-manchester-city-highlights/
+
+**Trump Bows to Putin’s Approach on Ukraine: No Cease-Fire, Deadlines or Sanctions**\
+`The net effect of the Alaska summit was to give President Vladimir V. Putin of Russia a free pass to continue his war against his neighbor indefinitely without further penalty, pending talks on a broader peace deal.`\
+https://nytimes.com/2025/08/16/us/politics/trump-putin-approach-ukraine.html
+
 **West Virginia to Send Hundreds of State National Guard Troops to D.C.**\
 `Gov. Patrick Morrisey said the state would send 300 to 400 troops to Washington to support Mr. Trump’s “initiative to restore cleanliness and safety” to the city.`\
 https://nytimes.com/2025/08/16/us/politics/west-virginia-national-guard-dc.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6557298/2025/08/16/sailgp-germany-american-british-
 **With Putin by his side, Trump repeats his claims of a ‘Russia Hoax.’**\
 `By The New York Times`\
 https://nytimes.com/live/2025/08/16/world/trump-putin-meeting-alaska/with-putin-by-his-side-trump-repeats-his-claims-of-a-russia-hoax
-
-**Government Shuts Down Air Canada Strike That Grounded Hundreds of Flights**\
-`A walkout by flight attendants ended after about 12 hours with the imposition of binding arbitration. But getting travel back to normal will take days.`\
-https://nytimes.com/2025/08/16/world/canada/air-canada-strike.html
-
-**Villa's Dendoncker close to Oviedo move**\
-`There will be no fee involved for the midfielder, who has one year left on his existing contract but is out of Unai Emery’s plans.`\
-https://nytimes.com/athletic/6557221/2025/08/16/leander-dendoncker-aston-villa-real-oviedo/
 
