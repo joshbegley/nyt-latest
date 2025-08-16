@@ -1,3 +1,15 @@
+**After Meeting Putin, Trump Reverts to Land Swaps for Peace in Ukraine**\
+`The U.S. president’s latest statements are a reversal of much of what he seemed to have agreed to with European allies this past week.`\
+https://nytimes.com/2025/08/16/world/europe/trump-putin-ukraine-land-swap.html
+
+**The Briefing: Aston Villa 0 Newcastle 0 - Anti-PSR chants, Isak and Ramsey absences**\
+`Aston Villa and Newcastle United played out a 0-0 draw in the opening game of their Premier League seasons.`\
+https://nytimes.com/athletic/6553530/2025/08/16/aston-villa-newcastle-result-report-analysis/
+
+**The Giants have lost 14 of 15 at home, but Matt Chapman still believes**\
+`Whether the Giants truly believe they can crawl back into contention or not, it will have to start with playing one clean game.`\
+https://nytimes.com/athletic/6556946/2025/08/16/sf-giants-home-defeats-matt-chapman/
+
 **Dodgers find the intensity they need, snap skid and even up NL West against Padres**\
 `The Dodgers met the moment against a Padres team that won 23 of its last 35 games.`\
 https://nytimes.com/athletic/6556886/2025/08/16/dodgers-padres-nl-west-clayton-kershaw/

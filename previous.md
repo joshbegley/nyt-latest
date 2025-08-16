@@ -1,8 +1,16 @@
+**After Meeting Putin, Trump Reverts to Land Swaps for Peace in Ukraine**\
+`The U.S. president’s latest statements are a reversal of much of what he seemed to have agreed to with European allies this past week.`\
+https://nytimes.com/2025/08/16/world/europe/trump-putin-ukraine-land-swap.html
+
+**The Briefing: Aston Villa 0 Newcastle 0 - Anti-PSR chants, Isak and Ramsey absences**\
+`Aston Villa and Newcastle United played out a 0-0 draw in the opening game of their Premier League seasons.`\
+https://nytimes.com/athletic/6553530/2025/08/16/aston-villa-newcastle-result-report-analysis/
+
 **Trump Administration Live Updates: Federal Government Agrees in Court That D.C. Chief Controls City Police**\
 ``\
 https://nytimes.com/live/2025/08/16/us/trump-dc-news
 
-**The Giants have lost 14 of 15 at home. Matt Chapman still believes**\
+**The Giants have lost 14 of 15 at home, but Matt Chapman still believes**\
 `Whether the Giants truly believe they can crawl back into contention or not, it will have to start with playing one clean game.`\
 https://nytimes.com/athletic/6556946/2025/08/16/sf-giants-home-defeats-matt-chapman/
 
@@ -29,12 +37,4 @@ https://nytimes.com/2025/08/16/opinion/ezra-klein-podcast-natasha-sarin.html
 **Detroit Tigers' Dillon Dingler reveals what it’s like catching Tarik Skubal**\
 `Dingler talks about how he built trust with the reigning Cy Young winner in his first full MLB season. `\
 https://nytimes.com/athletic/6554085/2025/08/16/detroit-tigers-tarik-skubal-dillon-dingler/
-
-**These 3 Chiefs concerns loom after second preseason game vs. Seahawks**\
-`Some Chiefs' big-picture issues include depth at one position, consistency at another and health at a third.`\
-https://nytimes.com/athletic/6556674/2025/08/16/chiefs-concerns-preseason-loss-seahawks/
-
-**Blues mailbag, Part 1: Season predictions, line combos, Dvorsky's chances, Mailloux's ceiling**\
-`The Blues are trickling into town this month, and associate coach Steve Ott says they're raring to go in 2025-26. `\
-https://nytimes.com/athletic/6555485/2025/08/16/blues-mailbag-dalibor-dvorsky-logan-mailloux/
 
