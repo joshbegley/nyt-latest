@@ -1,3 +1,7 @@
+**Two Decades of Putin Playing the West**\
+`For more than 20 years, Western leaders have played right into Putin’s hands — and given one a shake.`\
+https://nytimes.com/video/opinion/100000010343291/two-decades-of-putin-playing-the-west.html
+
 **4 Takeaways From the Week Trump Took Control of D.C.’s Police**\
 `The administration’s grip on the city has only tightened as the week has worn on, while pushback has begun to intensify.`\
 https://nytimes.com/2025/08/15/us/politics/trump-washington-crime-takeaways.html
