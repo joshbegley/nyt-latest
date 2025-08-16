@@ -1,3 +1,7 @@
+**At Nationals Park, It Was Game Time as Usual**\
+`A warm and muggy Friday night seemed to have a typical ballgame atmosphere in Washington.`\
+https://nytimes.com/2025/08/15/us/politics/at-nationals-park-it-was-game-time-as-usual.html
+
 **Phillies' Jhoan Duran exits game after being hit in ankle with line drive; X-rays negative**\
 `Duran exited the Phillies' game Friday against the Nationals after taking a 94.1 mph liner to his right ankle off the bat of Paul DeJong.`\
 https://nytimes.com/athletic/6556703/2025/08/15/jhoan-duran-phillies-hit-foot-injury/

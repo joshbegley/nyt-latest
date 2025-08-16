@@ -1,3 +1,7 @@
+**At Nationals Park, It Was Game Time as Usual**\
+`A warm and muggy Friday night seemed to have a typical ballgame atmosphere in Washington.`\
+https://nytimes.com/2025/08/15/us/politics/at-nationals-park-it-was-game-time-as-usual.html
+
 **Brewers erase 7-run deficit, extend winning streak to 13 games**\
 `Milwaukee's magical run continues as Christian Yelich had a four-hit, two-homer game with his Players' Weekend bat dedicated to Bob Uecker.`\
 https://nytimes.com/athletic/6556744/2025/08/15/brewers-13-game-winning-streak-christian-yelich/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6556652/2025/08/15/padres-michael-king-injury/
 **Trump and Putin Put on a Show of Friendship but Come Away Without a Deal**\
 `President Trump gave President Vladimir Putin a warm public reception, effectively ending his diplomatic isolation over the past three years for his invasion of Ukraine. But Mr. Putin did not agree to stop the war.`\
 https://nytimes.com/2025/08/15/us/politics/trump-putin-alaska-ukraine.html
-
-**Newsom’s Gerrymander of California Has a Formidable Foe: Schwarzenegger**\
-`The actor-turned-governor helped overhaul how California draws political maps. In an interview with The New York Times, he said he would fight to preserve that legacy.`\
-https://nytimes.com/2025/08/15/us/politics/schwarzenegger-newsom-california-redistricting.html
 
