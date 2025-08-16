@@ -1,3 +1,7 @@
+**The power of the Trump-Putin presidential photo op.**\
+`By Vanessa Friedman`\
+https://nytimes.com/2025/08/16/world/europe/the-power-of-the-trump-putin-presidential-photo-op.html
+
 **Commanders activate WR Terry McLaurin off PUP list, still no extension**\
 `McLaurin, 29, has missed the entirety of training camp because of his contract stalemate with the team, and a deal has not yet been reached.`\
 https://nytimes.com/athletic/6557147/2025/08/16/terry-mclaurin-commanders-activate-extension/
