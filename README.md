@@ -1,3 +1,11 @@
+**Here’s the latest.**\
+`By Jim Tankersley`\
+https://nytimes.com/live/2025/08/16/world/trump-putin-meeting-alaska/heres-the-latest
+
+**Live Updates: Zelensky Says He’ll Meet With Trump After U.S.-Russia Summit Yields No Deal**\
+`President Volodymyr Zelensky of Ukraine said he would meet with President Trump in Washington on Monday. Mr. Trump and President Vladimir V. Putin of Russia held talks in Alaska but announced no agreement on ending the war in Ukraine.`\
+https://nytimes.com/live/2025/08/16/world/trump-putin-meeting-alaska
+
 **A Lifelong Party of ‘Puzzle-Making Tomfoolery’**\
 `In 1978, Jerry Slocum assembled the first International Puzzle Party in his living room. Now it’s a global event.`\
 https://nytimes.com/2025/08/16/science/puzzle-party-slocum.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6556774/2025/08/16/antoine-semenyo-bournemouth-live
 **Federico Chiesa finally has his moment in a Liverpool shirt after a year of waiting**\
 `Liverpool beat Bournemouth 4-2 on Friday night, with Federico Chiesa scoring a crucial goal`\
 https://nytimes.com/athletic/6556573/2025/08/16/federico-chiesa-liverpool-bournemouth-analysis/
-
-**Trump and Putin had an isolated conversation in Trump’s limo.**\
-`By Andrew Das and John Yoon`\
-https://nytimes.com/live/2025/08/15/world/trump-putin-meeting-alaska/trump-putin-limousine-meeting
-
-**Ramón Urías spoke in the Astros' advance meeting. Then his former team almost perfect-gamed them**\
-`Urías and the Astros fell 7-0 to the Orioles, from whom Houston acquired the 31-year-old middle infielder 16 days ago.`\
-https://nytimes.com/athletic/6556836/2025/08/16/astros-ramon-urias-hitters-orioles/
 
