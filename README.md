@@ -1,3 +1,7 @@
+**Ukraine Tries to Understand Why Trump Suddenly Abandoned Idea of Cease-Fire**\
+`President Volodymyr Zelensky of Ukraine will go to Washington on Monday seeking answers.`\
+https://nytimes.com/2025/08/16/world/europe/ukraine-russia-trump-zelensky.html
+
 **Commanders activate WR Terry McLaurin off PUP list, still no extension**\
 `McLaurin, 29, has missed the entirety of training camp because of his contract stalemate with the team, and a deal has not yet been reached.`\
 https://nytimes.com/athletic/6557147/2025/08/16/terry-mclaurin-commanders-activate-extension/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/16/business/dealbook/texas-incorporation-delaware.ht
 **Seahawks’ new-look offense aces its biggest test yet, dominating Chiefs: Takeaways**\
 `The Seahawks' first-string offense looked better than anyone could have hoped, in what was likely its only action before the season opener.`\
 https://nytimes.com/athletic/6556889/2025/08/16/seahawks-chiefs-preseason-offensive-line/
-
-**The Pulse: How are the Brewers this good?**\
-`Welcome to The Pulse, The Athletic's daily sports newsletter.`\
-https://nytimes.com/athletic/6556820/2025/08/16/mlb-best-team-the-pulse/
 
