@@ -1,3 +1,15 @@
+**The U.S. was one of the few Western nations Putin could visit without risking arrest.**\
+`By Anushka Patil`\
+https://nytimes.com/live/2025/08/15/world/trump-putin-meeting-alaska/putin-icc-arrest-warrant-us-trump-meeting
+
+**Tottenham season preview: Defensive solidity to come first as injuries strike again**\
+`Selling Son and losing Maddison long-term leaves Spurs without spark, even if they can improve at the back under Frank`\
+https://nytimes.com/athletic/6546401/2025/08/16/tottenham-hotspur-season-preview-2025-26/
+
+**Versatile playmaker McAtee could grow alongside Gibbs-White instead of being his No 10 heir**\
+`He might have had the unenviable task of trying to replace the City Ground talisman. Now McAtee can learn from him...`\
+https://nytimes.com/athletic/6555255/2025/08/16/mcatee-man-city-nottingham-forest-transfer/
+
 **The last time United weren't in Europe - Big signings, long empty weeks and a happy(ish) ending**\
 `United's 2014-15 vintage were a team in transition - as one fan put it, 'from bad to worse' - but they did at least finish fourth...`\
 https://nytimes.com/athletic/6555860/2025/08/16/manchester-united-van-gaal-di-maria-falcao-2014-2015/

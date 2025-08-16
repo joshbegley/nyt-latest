@@ -1,3 +1,15 @@
+**The U.S. was one of the few Western nations Putin could visit without risking arrest.**\
+`By Anushka Patil`\
+https://nytimes.com/live/2025/08/15/world/trump-putin-meeting-alaska/putin-icc-arrest-warrant-us-trump-meeting
+
+**Tottenham season preview: Defensive solidity to come first as injuries strike again**\
+`Selling Son and losing Maddison long-term leaves Spurs without spark, even if they can improve at the back under Frank`\
+https://nytimes.com/athletic/6546401/2025/08/16/tottenham-hotspur-season-preview-2025-26/
+
+**Versatile playmaker McAtee could grow alongside Gibbs-White instead of being his No 10 heir**\
+`He might have had the unenviable task of trying to replace the City Ground talisman. Now McAtee can learn from him...`\
+https://nytimes.com/athletic/6555255/2025/08/16/mcatee-man-city-nottingham-forest-transfer/
+
 **The last time United weren't in Europe - Big signings, long empty weeks and a happy(ish) ending**\
 `United's 2014-15 vintage were a team in transition - as one fan put it, 'from bad to worse' - but they did at least finish fourth...`\
 https://nytimes.com/athletic/6555860/2025/08/16/manchester-united-van-gaal-di-maria-falcao-2014-2015/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6552940/2025/08/16/premier-league-club-youngsters-d
 **A new look for the BBC's Match of the Day - but will the show be any different?**\
 `The Premier League's Saturday night free-to-air UK highlights programme returns - with a new trio of presenters taking turns in the chair`\
 https://nytimes.com/athletic/6554495/2025/08/16/a-new-look-for-the-bbcs-match-of-the-day-but-will-the-show-be-any-different/
-
-**Is turbo-nostalgia ruining people's enjoyment of contemporary football?**\
-`How easily-accessible bitesize clips of the past have warped our perception of the present`\
-https://nytimes.com/athletic/6553417/2025/08/16/footballs-turbo-nostalgia-premier-league-world-cup/
-
-**Spain’s Old Ways May Show How to Keep Cool**\
-`The tradition of the siesta is no accident. Spain has been living with extreme heat for centuries, and its people have ways of coping.`\
-https://nytimes.com/2025/08/16/world/europe/heat-spain-global-warming.html
-
-**Once Seen as Divisive, South Korea’s New Leader Tries for Charming**\
-`To South Koreans weary of the political polarization that led briefly to martial law, President Lee Jae Myung is showing a more human touch than his predecessor. But his biggest challenges lie ahead.`\
-https://nytimes.com/2025/08/16/world/asia/south-korea-president-lee.html
 
