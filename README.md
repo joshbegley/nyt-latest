@@ -22,7 +22,7 @@ https://nytimes.com/2025/08/16/world/europe/trump-putin-ukraine-land-swap.html
 `In their Premier League opener, both sides looked flat, leaving fans to rail against spending rules`\
 https://nytimes.com/athletic/6553530/2025/08/16/aston-villa-newcastle-result-report-analysis/
 
-**Trump Administration Live Updates: Federal Government Agrees in Court That D.C. Chief Controls City Police**\
+**Trump Administration Live Updates: West Virginia Governor Sending Guard Troops to Assist in D.C.**\
 ``\
 https://nytimes.com/live/2025/08/16/us/trump-dc-news
 
