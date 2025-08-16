@@ -1,3 +1,7 @@
+**Newcastle are still a team and a fierce collective. They just need a striker**\
+`They missed out on three points but Eddie Howe's side can still take positives from the 0-0 draw against Aston Villa`\
+https://nytimes.com/athletic/6557198/2025/08/16/newcastle-team-striker-aston-villa/
+
 **The Briefing: Wolves 0 Manchester City 4 - How good are Bobb and Reijnders? Is Trafford No 1? What must Pep still solve?**\
 `Guardiola should be encouraged from what he saw from his players in their opening Premier League fixture`\
 https://nytimes.com/athletic/6553550/2025/08/16/wolves-manchester-city-highlights/
