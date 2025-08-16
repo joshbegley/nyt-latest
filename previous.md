@@ -1,3 +1,7 @@
+**Joel DeMott, Whose Documentary Was Rejected by PBS, Dies at 78**\
+`Her “Seventeen,” a study of teenagers later recognized as a major work of cinéma vérité, was pulled from a public TV series in 1982 under pressure from its sponsor.`\
+https://nytimes.com/2025/08/16/arts/joel-demott-dead.html
+
 **Barcelona beat nine-man Mallorca 3-0 in La Liga opener as Rashford debuts**\
 `Goals from Raphinha, Ferran Torres and Lamine Yamal gave Hansi Flick's side a comfortable win.`\
 https://nytimes.com/athletic/6557412/2025/08/16/barcelona-mallorca-la-liga-rashford/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/16/us/politics/trump-putin-approach-ukraine.html
 **West Virginia to Send Hundreds of State National Guard Troops to D.C.**\
 `Gov. Patrick Morrisey said the state would send 300 to 400 troops to Washington to support Mr. Trump’s “initiative to restore cleanliness and safety” to the city.`\
 https://nytimes.com/2025/08/16/us/politics/west-virginia-national-guard-dc.html
-
-**Tristan Rogers, ‘General Hospital’ Actor, Dies at 79**\
-`He became a fixture on the popular daytime television show as Robert Scorpio, a spy who became a police commissioner.`\
-https://nytimes.com/2025/08/16/arts/television/tristan-rogers-dead.html
 

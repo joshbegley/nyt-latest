@@ -1,3 +1,7 @@
+**Joel DeMott, Whose Documentary Was Rejected by PBS, Dies at 78**\
+`Her “Seventeen,” a study of teenagers later recognized as a major work of cinéma vérité, was pulled from a public TV series in 1982 under pressure from its sponsor.`\
+https://nytimes.com/2025/08/16/arts/joel-demott-dead.html
+
 **Barcelona beat nine-man Mallorca 3-0 in La Liga opener as Rashford debuts**\
 `Goals from Raphinha, Ferran Torres and Lamine Yamal gave Hansi Flick's side a comfortable win.`\
 https://nytimes.com/athletic/6557412/2025/08/16/barcelona-mallorca-la-liga-rashford/
