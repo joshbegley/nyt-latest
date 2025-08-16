@@ -1,3 +1,7 @@
+**Forest complete signing of Hutchinson from Ipswich**\
+`Forest are close to deals for a number of players ahead of kicking off their Premier League campaign on Sunday.`\
+https://nytimes.com/athletic/6557127/2025/08/16/nottingham-forest-transfers-hutchinson/
+
 **Statue of Martin Luther King Draws Criticism Over Its Proportions**\
 `A statue in Florida has prompted complaints about its shoes, arm and head but also a discussion about art and representations of historic figures.`\
 https://nytimes.com/2025/08/16/us/mlk-statue-florida.html

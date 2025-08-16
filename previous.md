@@ -1,3 +1,7 @@
+**Forest complete signing of Hutchinson from Ipswich**\
+`Forest are close to deals for a number of players ahead of kicking off their Premier League campaign on Sunday.`\
+https://nytimes.com/athletic/6557127/2025/08/16/nottingham-forest-transfers-hutchinson/
+
 **Statue of Martin Luther King Draws Criticism Over Its Proportions**\
 `A statue in Florida has prompted complaints about its shoes, arm and head but also a discussion about art and representations of historic figures.`\
 https://nytimes.com/2025/08/16/us/mlk-statue-florida.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/16/world/europe/trump-putin-ukraine-land-swap.html
 **The Briefing: Aston Villa 0 Newcastle 0 - Anti-PSR chants, Isak and Ramsey absences**\
 `In their Premier League opener, both sides looked flat, leaving fans to rail against spending rules`\
 https://nytimes.com/athletic/6553530/2025/08/16/aston-villa-newcastle-result-report-analysis/
-
-**Trump Administration Live Updates: West Virginia Governor Sending Guard Troops to Assist in D.C.**\
-``\
-https://nytimes.com/live/2025/08/16/us/trump-dc-news
 
