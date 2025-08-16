@@ -1,3 +1,11 @@
+**Vikings' backup QB situation and other risers and fallers from preseason loss to Patriots**\
+`Rookie QB Max Brosmer's decision-making and command were impressive Saturday, while the Vikings' returner situation is looking dire.`\
+https://nytimes.com/athletic/6557608/2025/08/16/vikings-patriots-max-brosmer-backup-qb/
+
+**Josh Hader's regular season is likely over. Are his days as a multi-inning reliever numbered?**\
+`“Fatigue is fatigue,” the Astros' closer said. “The only way you can recover from fatigue is rest."`\
+https://nytimes.com/athletic/6557590/2025/08/16/astros-josh-hader-injury-multi-inning-reliever/
+
 **Democrats Gather for Protests Over Trump’s Push on Redistricting**\
 `Thousands assembled around the country to demonstrate against a Republican effort to redraw congressional maps in their favor for 2026.`\
 https://nytimes.com/2025/08/16/us/politics/texas-democrats-redistricting-protests.html
