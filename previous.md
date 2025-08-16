@@ -1,3 +1,7 @@
+**Colts' QB Anthony Richardson promising, if not spectacular, in loss to Packers**\
+`Richardson took a positive step on short and intermediate throws, but Daniel Jones also had a solid showing as the QB competition continues.`\
+https://nytimes.com/athletic/6557498/2025/08/16/colts-packers-anthony-richardson-daniel-jones/
+
 **NASCAR lands new series sponsorship deal with O'Reilly Auto Parts: Sources**\
 `Xfinity has been the entitlement sponsor for the past 11 years but will continue as a premier partner for NASCAR’s top-level Cup Series.`\
 https://nytimes.com/athletic/6557415/2025/08/16/nascar-xfinity-series-new-sponsor-oreilly-auto-parts/
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/08/16/world/trump-putin-meeting-alaska/putin-keeps
 **The Briefing: Wolves 0 Manchester City 4 - How good are Bobb and Reijnders? Is Trafford No 1? What must Pep still solve?**\
 `Guardiola should be encouraged from what he saw from his players in their opening Premier League fixture`\
 https://nytimes.com/athletic/6553550/2025/08/16/wolves-manchester-city-highlights/
-
-**Trump Bows to Putin’s Approach on Ukraine: No Cease-Fire, Deadlines or Sanctions**\
-`The net effect of the Alaska summit was to give President Vladimir V. Putin of Russia a free pass to continue his war against his neighbor indefinitely without further penalty, pending talks on a broader peace deal.`\
-https://nytimes.com/2025/08/16/us/politics/trump-putin-approach-ukraine.html
 

@@ -1,3 +1,7 @@
+**Colts' QB Anthony Richardson promising, if not spectacular, in loss to Packers**\
+`Richardson took a positive step on short and intermediate throws, but Daniel Jones also had a solid showing as the QB competition continues.`\
+https://nytimes.com/athletic/6557498/2025/08/16/colts-packers-anthony-richardson-daniel-jones/
+
 **NASCAR lands new series sponsorship deal with O'Reilly Auto Parts: Sources**\
 `Xfinity has been the entitlement sponsor for the past 11 years but will continue as a premier partner for NASCAR’s top-level Cup Series.`\
 https://nytimes.com/athletic/6557415/2025/08/16/nascar-xfinity-series-new-sponsor-oreilly-auto-parts/
