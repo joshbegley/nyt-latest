@@ -1,3 +1,15 @@
+**The young player to watch out for at every Premier League club this season**\
+`Youngsters such as Max Dowman and Rio Ngumoha have stood out in pre-season, but who is your Premier League club's starlet this season?`\
+https://nytimes.com/athletic/6552940/2025/08/16/premier-league-club-youngsters-dowman-ngumoha/
+
+**A new look for the BBC's Match of the Day - but will the show be any different?**\
+`The Premier League's Saturday night free-to-air UK highlights programme returns - with a new trio of presenters taking turns in the chair`\
+https://nytimes.com/athletic/6554495/2025/08/16/a-new-look-for-the-bbcs-match-of-the-day-but-will-the-show-be-any-different/
+
+**Is turbo-nostalgia ruining people's enjoyment of contemporary football?**\
+`How easily-accessible bitesize clips of the past have warped our perception of the present`\
+https://nytimes.com/athletic/6553417/2025/08/16/footballs-turbo-nostalgia-premier-league-world-cup/
+
 **Spain’s Old Ways May Show How to Keep Cool**\
 `The tradition of the siesta is no accident. Spain has been living with extreme heat for centuries, and its people have ways of coping.`\
 https://nytimes.com/2025/08/16/world/europe/heat-spain-global-warming.html

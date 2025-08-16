@@ -1,3 +1,15 @@
+**The young player to watch out for at every Premier League club this season**\
+`Youngsters such as Max Dowman and Rio Ngumoha have stood out in pre-season, but who is your Premier League club's starlet this season?`\
+https://nytimes.com/athletic/6552940/2025/08/16/premier-league-club-youngsters-dowman-ngumoha/
+
+**A new look for the BBC's Match of the Day - but will the show be any different?**\
+`The Premier League's Saturday night free-to-air UK highlights programme returns - with a new trio of presenters taking turns in the chair`\
+https://nytimes.com/athletic/6554495/2025/08/16/a-new-look-for-the-bbcs-match-of-the-day-but-will-the-show-be-any-different/
+
+**Is turbo-nostalgia ruining people's enjoyment of contemporary football?**\
+`How easily-accessible bitesize clips of the past have warped our perception of the present`\
+https://nytimes.com/athletic/6553417/2025/08/16/footballs-turbo-nostalgia-premier-league-world-cup/
+
 **Spain’s Old Ways May Show How to Keep Cool**\
 `The tradition of the siesta is no accident. Spain has been living with extreme heat for centuries, and its people have ways of coping.`\
 https://nytimes.com/2025/08/16/world/europe/heat-spain-global-warming.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/08/15/us/politics/trump-putin-summit-ukrainians.html
 **Coco Gauff loses in quarterfinals to Jasmine Paolini at Cincinnati Open**\
 `The serving woes continued Friday for Gauff, falling in three sets 2-6, 6-4, 6-3.`\
 https://nytimes.com/athletic/6556759/2025/08/15/jasmine-paolini-coco-gauff-cincinnati-open/
-
-**Putin flatters Trump by echoing his claims about the war in Ukraine.**\
-`By Erica L. Green`\
-https://nytimes.com/live/2025/08/15/world/trump-putin-meeting-alaska/putin-flatters-trump-by-echoing-his-claims-about-the-war-in-ukraine
-
-**At Nationals Park, It Was Game Time as Usual**\
-`A warm and muggy Friday night seemed to have a typical ballgame atmosphere in Washington.`\
-https://nytimes.com/2025/08/15/us/politics/at-nationals-park-it-was-game-time-as-usual.html
-
-**Brewers erase 7-run deficit, extend winning streak to 13 games**\
-`Milwaukee's magical run continues as Christian Yelich had a four-hit, two-homer game with his Players' Weekend bat dedicated to Bob Uecker.`\
-https://nytimes.com/athletic/6556744/2025/08/15/brewers-13-game-winning-streak-christian-yelich/
 
