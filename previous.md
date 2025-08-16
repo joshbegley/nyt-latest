@@ -1,40 +1,40 @@
-**Here’s the latest.**\
-`By Jim Tankersley`\
-https://nytimes.com/live/2025/08/16/world/trump-putin-meeting-alaska/heres-the-latest
+**In a Wider Redistricting War, Republicans Have an Advantage**\
+`Republicans have a clear advantage over Democrats in the total number of states that could redraw their maps.`\
+https://nytimes.com/interactive/2025/08/16/us/politics/texas-california-redistricting-republicans-democrats.html
 
-**Live Updates: Zelensky Says He’ll Meet With Trump After U.S.-Russia Summit Yields No Deal**\
-`President Volodymyr Zelensky of Ukraine said he would meet with President Trump in Washington on Monday. Mr. Trump and President Vladimir V. Putin of Russia held talks in Alaska but announced no agreement on ending the war in Ukraine.`\
-https://nytimes.com/live/2025/08/16/world/trump-putin-meeting-alaska
+**Why Is the U.S. Offering a $5 Million Reward for a Haitian Gang Leader?**\
+`A major bounty has been offered for help apprehending Jimmy Cherizier, a gang leader known as “Barbecue.” Experts have doubts about whether it will make any difference.`\
+https://nytimes.com/2025/08/16/us/haiti-gang-barbeque-bounty.html
 
-**A Lifelong Party of ‘Puzzle-Making Tomfoolery’**\
-`In 1978, Jerry Slocum assembled the first International Puzzle Party in his living room. Now it’s a global event.`\
-https://nytimes.com/2025/08/16/science/puzzle-party-slocum.html
+**Meet the Beautiful Dragonfly That Thrives in Your Pollution**\
+`New research outlines how the savvy blue dasher lives happily in storm drains and park ponds others flee.`\
+https://nytimes.com/2025/08/16/science/blue-dasher-dragonflies-pollution.html
 
-**Unraveling in Las Vegas, Then a Massacre in New York**\
-`Shane Tamura was barely known in the city where he lived, working at night and navigating mental health crises. He drove 2,500 miles east to commit New York’s deadliest shooting in a quarter-century.`\
-https://nytimes.com/2025/08/16/nyregion/park-avenue-gunman-profile.html
+**32 Memorable Style Moments From ‘And Just Like That …’**\
+`The HBO Max reboot of “Sex and the City” may have divided audiences, but it kept pushing New York fashion into bold, sometimes absurd territory.`\
+https://nytimes.com/2025/08/16/style/and-just-like-that-style-fashion.html
 
-**Mamdani’s Video Savvy: Easy to Envy, Hard to Duplicate**\
-`Former Gov. Andrew M. Cuomo and Mayor Eric Adams are trying to mimic Assemblyman Zohran Mamdani’s buzzy online videos in the New York City mayor’s race.`\
-https://nytimes.com/2025/08/16/nyregion/cuomo-adams-mamdani-social-media.html
+**Want to Find the Love of Your Life? Look Up.**\
+`As our digital worlds continue to steal our attention, some people are taking a more intentional approach to meeting strangers in real life.`\
+https://nytimes.com/2025/08/16/style/want-to-find-the-love-of-your-life-look-up.html
 
-**The N.Y.C. Mayor’s Race Is Happening On Social Media**\
-`Former Gov.`\
-https://nytimes.com/video/nyregion/100000010333798/the-nyc-mayors-race-is-happening-on-social-media.html
+**Eric Cartman, Welcome (for Now) to the Resistance**\
+`For decades, “South Park” has been crude, cynical and childish. That may be what makes it perfect for this moment.`\
+https://nytimes.com/2025/08/16/arts/television/south-park-trump-administration-paramount.html
 
-**How Nina Garcia, of ‘Project Runway’ and Elle, Spends a Promo Day**\
-`Ms. Garcia skips breakfast but stops by a morning TV show, reviews the fashion magazine’s upcoming issue and heads to the Hamptons for dinner.`\
-https://nytimes.com/2025/08/16/nyregion/nina-garcia-elle-project-runway.html
+**Where D.C. Crime Is Bad, Residents Question Trump’s Motives**\
+`The president might have found allies in Southeast Washington, where violent crime has long vexed residents. But when he described the city as “disgusting,” with “roving mobs,” his remarks left those looking for help cold.`\
+https://nytimes.com/2025/08/16/us/politics/trump-washington-crime.html
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2025/08/16/crosswords/spelling-bee-forum.html
+**Hobbies Too Relaxing? Try ‘Leisure Crafting.’**\
+`Productivity and goal-setting should not be confined to work, some recreational enthusiasts say.`\
+https://nytimes.com/2025/08/16/business/leisure-crafting.html
 
-**We should be talking about Antoine Semenyo's football. But football still has a racism problem**\
-`Semenyo scored twice at Anfield on Friday night. But that does not tell the story of his evening`\
-https://nytimes.com/athletic/6556774/2025/08/16/antoine-semenyo-bournemouth-liverpool-racism/
+**For Gen Z, ‘Little Treats’ Are Worth Going Over Budget**\
+`Any excuse is good enough for young adults to treat themselves, whether it’s failing an exam, getting a “job well done” from a boss or simply washing the dishes.`\
+https://nytimes.com/2025/08/16/business/gen-z-treat-spending.html
 
-**Federico Chiesa finally has his moment in a Liverpool shirt after a year of waiting**\
-`Liverpool beat Bournemouth 4-2 on Friday night, with Federico Chiesa scoring a crucial goal`\
-https://nytimes.com/athletic/6556573/2025/08/16/federico-chiesa-liverpool-bournemouth-analysis/
+**An Arts District Helped Make Asheville a Destination. Its Recovery Is Slow Going.**\
+`Nearly a year after Hurricane Helene severely damaged the popular River Arts District, the rebuilding process continues in a gradual manner.`\
+https://nytimes.com/2025/08/16/arts/design/asheville-arts-recovery.html
 
