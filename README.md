@@ -3,7 +3,7 @@
 https://nytimes.com/live/2025/08/16/world/trump-putin-meeting-alaska/putin-keeps-talking-about-the-root-causes-of-the-war-what-does-he-mean
 
 **The Briefing: Wolves 0 Manchester City 4 - How good are Bobb and Reijnders? Is Trafford No 1? What must Pep still solve?**\
-`Analysis of Manchester City's victory over Wolves`\
+`Guardiola should be encouraged from what he saw from his players in their opening Premier League fixture`\
 https://nytimes.com/athletic/6553550/2025/08/16/wolves-manchester-city-highlights/
 
 **Trump Bows to Putin’s Approach on Ukraine: No Cease-Fire, Deadlines or Sanctions**\
