@@ -1,3 +1,7 @@
+**The power of the Trump-Putin presidential photo op.**\
+`By Vanessa Friedman`\
+https://nytimes.com/live/2025/08/16/world/trump-putin-meeting-alaska/the-power-of-the-trump-putin-presidential-photo-op
+
 **After Meeting Putin, Trump Reverts to Land Swaps for Peace in Ukraine**\
 `The U.S. president’s latest statements are a reversal of much of what he seemed to have agreed to with European allies this past week.`\
 https://nytimes.com/2025/08/16/world/europe/trump-putin-ukraine-land-swap.html

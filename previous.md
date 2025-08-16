@@ -1,3 +1,7 @@
+**The power of the Trump-Putin presidential photo op.**\
+`By Vanessa Friedman`\
+https://nytimes.com/live/2025/08/16/world/trump-putin-meeting-alaska/the-power-of-the-trump-putin-presidential-photo-op
+
 **After Meeting Putin, Trump Reverts to Land Swaps for Peace in Ukraine**\
 `The U.S. president’s latest statements are a reversal of much of what he seemed to have agreed to with European allies this past week.`\
 https://nytimes.com/2025/08/16/world/europe/trump-putin-ukraine-land-swap.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6556820/2025/08/16/mlb-best-team-the-pulse/
 **Trump vs. the U.S. Economy**\
 `Natasha Sarin walks through how Trump’s tariffs, the A.I. boom and the leadership shake-up at the Bureau of Labor Statistics are impacting the economy.`\
 https://nytimes.com/2025/08/16/opinion/ezra-klein-podcast-natasha-sarin.html
-
-**Detroit Tigers' Dillon Dingler reveals what it’s like catching Tarik Skubal**\
-`Dingler talks about how he built trust with the reigning Cy Young winner in his first full MLB season. `\
-https://nytimes.com/athletic/6554085/2025/08/16/detroit-tigers-tarik-skubal-dillon-dingler/
 
