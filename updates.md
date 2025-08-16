@@ -1,3 +1,7 @@
+**Wrexham must show they belong in the Championship - Nathan Broadhead will help them**\
+`Owners Ryan Reynolds and Rob McElhenney watched their club record £7.5m signing labour on debut, but this is the calibre of player they need`\
+https://nytimes.com/athletic/6555184/2025/08/16/wrexham-broadhead-parkinson-moore-west-brom/
+
 **Blue Jays reinstate George Springer, option hot-hitting Joey Loperfido**\
 `As the 35-year-old returns, hoping to continue a resurgent season, Loperfido heads down to Triple A despite hitting .358 with Toronto.`\
 https://nytimes.com/athletic/6557258/2025/08/16/blue-jays-george-springer-joey-loperfido/
