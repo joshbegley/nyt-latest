@@ -1,3 +1,7 @@
+**Blue Jays reinstate George Springer, option hot-hitting Joey Loperfido**\
+`As the 35-year-old returns, hoping to continue a resurgent season, Loperfido heads down to Triple A despite hitting .358 with Toronto.`\
+https://nytimes.com/athletic/6557258/2025/08/16/blue-jays-george-springer-joey-loperfido/
+
 **Europe moves to back Ukraine after Trump drops cease-fire demand.**\
 `By Ashley Ahn`\
 https://nytimes.com/live/2025/08/16/world/trump-putin-meeting-alaska/europe-moves-to-back-ukraine-after-trump-drops-cease-fire-demand
