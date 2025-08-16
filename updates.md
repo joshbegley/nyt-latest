@@ -1,3 +1,11 @@
+**Commanders activate WR Terry McLaurin off PUP list, still no extension**\
+`McLaurin, 29, has missed the entirety of training camp because of his contract stalemate with the team, and a deal has not yet been reached.`\
+https://nytimes.com/athletic/6557147/2025/08/16/terry-mclaurin-commanders-activate-extension/
+
+**The Briefing: Aston Villa 0 Newcastle 0 - Anti-PSR chants, Isak and Ramsey absences**\
+`In their Premier League opener, both sides looked flat, leaving fans to rail against spending rules`\
+https://nytimes.com/athletic/6553530/2025/08/16/aston-villa-newcastle-result-report-analysis/
+
 **The power of the Trump-Putin presidential photo op.**\
 `By Vanessa Friedman`\
 https://nytimes.com/live/2025/08/16/world/trump-putin-meeting-alaska/the-power-of-the-trump-putin-presidential-photo-op
