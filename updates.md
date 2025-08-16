@@ -1,3 +1,7 @@
+**NASCAR lands new series sponsorship deal with O'Reilly Auto Parts: Sources**\
+`Xfinity has been the entitlement sponsor for the past 11 years but will continue as a premier partner for NASCAR’s top-level Cup Series.`\
+https://nytimes.com/athletic/6557415/2025/08/16/nascar-xfinity-series-new-sponsor-oreilly-auto-parts/
+
 **Joel DeMott, Whose Documentary Was Rejected by PBS, Dies at 78**\
 `Her “Seventeen,” a study of teenagers later recognized as a major work of cinéma vérité, was pulled from a public TV series in 1982 under pressure from its sponsor.`\
 https://nytimes.com/2025/08/16/arts/joel-demott-dead.html
