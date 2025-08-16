@@ -1,3 +1,11 @@
+**Padres' Michael King 'feeling a lot better,' hopes to return from IL in time to face Mariners**\
+`King could have pitched Friday, but not without pain, "and it's just not a recipe for short- and longer-term success," Mike Shildt said.`\
+https://nytimes.com/athletic/6556652/2025/08/15/padres-michael-king-injury/
+
+**Trump and Putin Put on a Show of Friendship but Come Away Without a Deal**\
+`President Trump rolled out a literal red carpet for Vladimir V. Putin of Russia, effectively ending his diplomatic isolation over the past three years for his invasion of Ukraine. But Mr. Putin did not agree to stop the war.`\
+https://nytimes.com/2025/08/15/us/politics/trump-putin-alaska-ukraine.html
+
 **Newsom’s Gerrymander of California Has a Formidable Foe: Schwarzenegger**\
 `The actor-turned-governor helped overhaul how California draws political maps. In an interview with The New York Times, he said he would fight to preserve that legacy.`\
 https://nytimes.com/2025/08/15/us/politics/schwarzenegger-newsom-california-redistricting.html
@@ -29,12 +37,4 @@ https://nytimes.com/live/2025/08/15/world/trump-putin-meeting-alaska/in-russia-p
 **Two Decades of Putin Playing the West**\
 `For more than 20 years, Western leaders have played right into Putin’s hands — and given one a shake.`\
 https://nytimes.com/video/opinion/100000010343291/two-decades-of-putin-playing-the-west.html
-
-**4 Takeaways From the Week Trump Took Control of D.C.’s Police**\
-`The administration’s grip on the city has only tightened as the week has worn on, while pushback has begun to intensify.`\
-https://nytimes.com/2025/08/15/us/politics/trump-washington-crime-takeaways.html
-
-**D.C. Police Chief Retains Control of City Police After Court Hearing**\
-`After a judge threatened to block an order federalizing Washington’s police, the Justice Department issued a new directive leaving the city’s police chief in charge, for now.`\
-https://nytimes.com/2025/08/15/us/politics/judge-hearing-dc-home-rule.html
 

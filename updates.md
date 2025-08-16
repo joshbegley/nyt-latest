@@ -1,3 +1,11 @@
+**Padres' Michael King 'feeling a lot better,' hopes to return from IL in time to face Mariners**\
+`King could have pitched Friday, but not without pain, "and it's just not a recipe for short- and longer-term success," Mike Shildt said.`\
+https://nytimes.com/athletic/6556652/2025/08/15/padres-michael-king-injury/
+
+**Trump and Putin Put on a Show of Friendship but Come Away Without a Deal**\
+`President Trump rolled out a literal red carpet for Vladimir V. Putin of Russia, effectively ending his diplomatic isolation over the past three years for his invasion of Ukraine. But Mr. Putin did not agree to stop the war.`\
+https://nytimes.com/2025/08/15/us/politics/trump-putin-alaska-ukraine.html
+
 **The Cubs and Pete Crow-Armstrong want you to believe everything is fine**\
 `“It’s been an interesting two weeks, but we’re fine," Crow-Armstrong said as his MVP campaign continues to lose steam.`\
 https://nytimes.com/athletic/6556597/2025/08/15/pete-crow-armstrong-chicago-cubs-playoff/
