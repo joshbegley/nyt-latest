@@ -1,3 +1,11 @@
+**Tottenham 3 Burnley 0 - Frank's young midfield, Richarlison finds form, Dubravka's unwanted history**\
+`Breaking down the key moments from Tottenham's opening Premier League win over Burnley`\
+https://nytimes.com/athletic/6553539/2025/08/16/tottenham-3-burnley-0-highlights/
+
+**Kishane Thompson beats Noah Lyles in 100m in first meeting since thrilling Olympic final**\
+`Lyles beat Thompson in a photo finish in Paris. With the world championships looming, Thompson got the better of his rival on Saturday.`\
+https://nytimes.com/athletic/6557217/2025/08/16/kishane-thompson-noah-lyles-100m-diamond-league-silesia-olympics/
+
 **Forest complete signing of Hutchinson from Ipswich**\
 `Forest are close to deals for a number of players ahead of kicking off their Premier League campaign on Sunday.`\
 https://nytimes.com/athletic/6557127/2025/08/16/nottingham-forest-transfers-hutchinson/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6557147/2025/08/16/terry-mclaurin-commanders-activa
 **The power of the Trump-Putin presidential photo op.**\
 `By Vanessa Friedman`\
 https://nytimes.com/2025/08/16/world/europe/the-power-of-the-trump-putin-presidential-photo-op.html
-
-**After Meeting Putin, Trump Reverts to Land Swaps for Peace in Ukraine**\
-`The U.S. president’s latest statements are a reversal of much of what he seemed to have agreed to with European allies this past week.`\
-https://nytimes.com/2025/08/16/world/europe/trump-putin-ukraine-land-swap.html
-
-**The Briefing: Aston Villa 0 Newcastle 0 - Anti-PSR chants, Isak and Ramsey absences**\
-`In their Premier League opener, both sides looked flat, leaving fans to rail against spending rules`\
-https://nytimes.com/athletic/6553530/2025/08/16/aston-villa-newcastle-result-report-analysis/
 
