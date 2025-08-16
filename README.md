@@ -1,3 +1,7 @@
+**West Virginia to Send Hundreds of State National Guard Troops to D.C.**\
+`Gov. Patrick Morrisey said the state would send 300 to 400 troops to Washington to support Mr. Trump’s “initiative to restore cleanliness and safety” to the city.`\
+https://nytimes.com/2025/08/16/us/politics/west-virginia-national-guard-dc.html
+
 **Tristan Rogers, ‘General Hospital’ Actor, Dies at 79**\
 `Mr. Rogers became a fixture on the daytime television show as Robert Scorpio, a spy who became a police commissioner.`\
 https://nytimes.com/2025/08/16/arts/television/tristan-rogers-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/16/world/canada/air-canada-strike.html
 **Villa's Dendoncker close to Oviedo move**\
 `There will be no fee involved for the midfielder, who has one year left on his existing contract but is out of Unai Emery’s plans.`\
 https://nytimes.com/athletic/6557221/2025/08/16/leander-dendoncker-aston-villa-real-oviedo/
-
-**Kalimuendo undergoing Forest medical; Luiz, Lewis deals being worked on**\
-`Forest are working on a number of deals before kicking off their season on Sunday.`\
-https://nytimes.com/athletic/6552999/2025/08/16/nottingham-forest-transfers-kalimuendo-luiz-lewis/
 
