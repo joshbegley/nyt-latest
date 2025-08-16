@@ -1,3 +1,7 @@
+**Dodgers find the intensity they need, snap skid and even up NL West against Padres**\
+`The Dodgers met the moment against a Padres team that won 23 of its last 35 games.`\
+https://nytimes.com/athletic/6556886/2025/08/16/dodgers-padres-nl-west-clayton-kershaw/
+
 **Trump Administration Live Updates: Federal Government Agrees in Court That D.C. Chief Controls City Police**\
 ``\
 https://nytimes.com/live/2025/08/16/us/trump-dc-news
