@@ -1,3 +1,7 @@
+**Newcastle are still a team and a fierce collective. They just need a striker**\
+`They missed out on three points but Eddie Howe's side can still take positives from the 0-0 draw against Aston Villa`\
+https://nytimes.com/athletic/6557198/2025/08/16/newcastle-team-striker-aston-villa/
+
 **Putin keeps talking about the ‘root causes’ of the war. What does he mean?**\
 `By Michael Schwirtz`\
 https://nytimes.com/live/2025/08/16/world/trump-putin-meeting-alaska/putin-keeps-talking-about-the-root-causes-of-the-war-what-does-he-mean
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6557258/2025/08/16/blue-jays-george-springer-joey-l
 **Europe moves to back Ukraine after Trump drops cease-fire demand.**\
 `By Ashley Ahn`\
 https://nytimes.com/live/2025/08/16/world/trump-putin-meeting-alaska/europe-moves-to-back-ukraine-after-trump-drops-cease-fire-demand
-
-**U.S., GB collision mars dramatic opening day at Germany Sail Grand Prix**\
-`Australia hold top spot at the end of a hectic day with an eight point lead over New Zealand.`\
-https://nytimes.com/athletic/6557298/2025/08/16/sailgp-germany-american-british-collision/
 
