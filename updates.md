@@ -1,3 +1,7 @@
+**Ramón Urías ran the Astros' hitters meeting. Then his former team almost perfect game'd them**\
+`Urías and the Astros fell 7-0 to the Orioles, from whom Houston acquired the 31-year-old middle infielder 16 days ago.`\
+https://nytimes.com/athletic/6556836/2025/08/16/astros-ramon-urias-hitters-orioles/
+
 **Christian Yelich wasn't sure if he should use his Bob Uecker bat. The Brewers are glad he did**\
 `After his first homer, the Brewers' equipment manager told Yelich not to put the bat away: “You have to keep going.”`\
 https://nytimes.com/athletic/6556837/2025/08/16/christian-yelich-bob-ueker-bat-brewers-winning-streak/
