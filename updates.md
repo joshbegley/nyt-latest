@@ -1,3 +1,5 @@
+
+
 **Judge Rejects Trump’s Attempt to End Standards of Care for Detained Migrant Children**\
 `Court-mandated oversight will remain in place for migrant children in custody. Lawyers have reported poor medical care and lack of sunlight and showers.`\
 https://nytimes.com/2025/08/15/us/migrant-children-trump-flores-settlement.html
