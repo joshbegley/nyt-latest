@@ -7,7 +7,7 @@ https://nytimes.com/live/2025/08/16/us/trump-dc-news
 https://nytimes.com/athletic/6556946/2025/08/16/sf-giants-home-defeats-matt-chapman/
 
 **Dodgers find the intensity they need, snap skid and even up NL West against Padres**\
-`The Dodgers met the moment against a Padres team that had won 23 of their last 35 games.`\
+`The Dodgers met the moment against a Padres team that won 23 of its last 35 games.`\
 https://nytimes.com/athletic/6556886/2025/08/16/dodgers-padres-nl-west-clayton-kershaw/
 
 **New Texas Laws Open a Wild West for Corporate Governance**\
