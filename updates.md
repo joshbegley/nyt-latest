@@ -1,3 +1,5 @@
+
+
 **The Pulse: How are the Brewers this good?**\
 `Welcome to The Pulse, The Athletic's daily sports newsletter.`\
 https://nytimes.com/athletic/6556820/2025/08/16/mlb-best-team-the-pulse/
