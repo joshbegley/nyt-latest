@@ -1,3 +1,7 @@
+**Kalimuendo undergoing Forest medical; Luiz, Lewis deals being worked on**\
+`Forest are working on a number of deals before kicking off their season on Sunday.`\
+https://nytimes.com/athletic/6552999/2025/08/16/nottingham-forest-transfers-kalimuendo-luiz-lewis/
+
 **The power of the Trump-Putin presidential photo op.**\
 `By Vanessa Friedman`\
 https://nytimes.com/live/2025/08/16/world/trump-putin-meeting-alaska/trump-putin-red-carpet-photo-op

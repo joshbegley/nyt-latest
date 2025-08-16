@@ -1,3 +1,7 @@
+**Kalimuendo undergoing Forest medical; Luiz, Lewis deals being worked on**\
+`Forest are working on a number of deals before kicking off their season on Sunday.`\
+https://nytimes.com/athletic/6552999/2025/08/16/nottingham-forest-transfers-kalimuendo-luiz-lewis/
+
 **Tottenham 3 Burnley 0 - Frank's young midfield, Richarlison finds form, Dubravka's unwanted history**\
 `Breaking down the key moments from Tottenham's opening Premier League win over Burnley`\
 https://nytimes.com/athletic/6553539/2025/08/16/tottenham-3-burnley-0-highlights/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/16/world/europe/ukraine-russia-trump-zelensky.html
 **Commanders activate WR Terry McLaurin off PUP list, still no extension**\
 `McLaurin, 29, has missed the entirety of training camp because of his contract stalemate with the team, and a deal has not yet been reached.`\
 https://nytimes.com/athletic/6557147/2025/08/16/terry-mclaurin-commanders-activate-extension/
-
-**The power of the Trump-Putin presidential photo op.**\
-`By Vanessa Friedman`\
-https://nytimes.com/live/2025/08/16/world/trump-putin-meeting-alaska/trump-putin-red-carpet-photo-op
 
