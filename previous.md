@@ -1,3 +1,7 @@
+**With Putin by his side, Trump repeats his claims of a ‘Russia Hoax.’**\
+`By The New York Times`\
+https://nytimes.com/live/2025/08/16/world/trump-putin-meeting-alaska/with-putin-by-his-side-trump-repeats-his-claims-of-a-russia-hoax
+
 **Air Canada Strike Grounds Hundreds of Flights, Stranding Passengers**\
 `More than 100,000 travelers had their plans upended amid the busy summer season as flight attendants faced off with management over wages.`\
 https://nytimes.com/2025/08/16/world/canada/air-canada-strike.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/16/dining/an-easy-chicken-and-zucchini-dinner-with-c
 **National Guard Detained Man Who Assaulted a Park Police Officer, Authorities Say**\
 `It was the first such action by the Guard since its deployment in Washington.`\
 https://nytimes.com/2025/08/16/us/politics/national-guard-detained-man.html
-
-**Man arrested after Semenyo report of racist abuse during Liverpool game**\
-`The opening match of the new season was paused in the first-half after Semenyo reported an alleged incident of racist abuse.`\
-https://nytimes.com/athletic/6556942/2025/08/16/antoine-semenyo-liverpool-racist-abuse-arrest/
 

@@ -1,3 +1,7 @@
+**With Putin by his side, Trump repeats his claims of a ‘Russia Hoax.’**\
+`By The New York Times`\
+https://nytimes.com/live/2025/08/16/world/trump-putin-meeting-alaska/with-putin-by-his-side-trump-repeats-his-claims-of-a-russia-hoax
+
 **Air Canada Strike Grounds Hundreds of Flights, Stranding Passengers**\
 `More than 100,000 travelers had their plans upended amid the busy summer season as flight attendants faced off with management over wages.`\
 https://nytimes.com/2025/08/16/world/canada/air-canada-strike.html
