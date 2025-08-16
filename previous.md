@@ -1,3 +1,7 @@
+**National Guard Detained Man Who Assaulted a Park Police Officer, Authorities Say**\
+`It was the first such action by the Guard since its deployment in Washington.`\
+https://nytimes.com/2025/08/16/us/politics/national-guard-detained-man.html
+
 **Man arrested after Semenyo report of racist abuse during Liverpool game**\
 `The opening match of the new season was paused in the first-half after Semenyo reported an alleged incident of racist abuse.`\
 https://nytimes.com/athletic/6556942/2025/08/16/antoine-semenyo-liverpool-racist-abuse-arrest/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6556946/2025/08/16/sf-giants-home-defeats-matt-chap
 **Dodgers find the intensity they need, snap skid and even up NL West against Padres**\
 `The Dodgers met the moment against a Padres team that won 23 of its last 35 games.`\
 https://nytimes.com/athletic/6556886/2025/08/16/dodgers-padres-nl-west-clayton-kershaw/
-
-**New Texas Laws Open a Wild West for Corporate Governance**\
-`The state has handed big business a series of legislative wins as it races to woo corporations from Delaware, including a law that helped pave the way for Elon Musk’s big Tesla payday.`\
-https://nytimes.com/2025/08/16/business/dealbook/texas-incorporation-delaware.html
 

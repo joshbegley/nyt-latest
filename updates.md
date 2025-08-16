@@ -1,3 +1,7 @@
+**National Guard Detained Man Who Assaulted a Park Police Officer, Authorities Say**\
+`It was the first such action by the Guard since its deployment in Washington.`\
+https://nytimes.com/2025/08/16/us/politics/national-guard-detained-man.html
+
 **Trump Administration Live Updates: West Virginia Governor Sending Guard Troops to Assist in D.C.**\
 ``\
 https://nytimes.com/live/2025/08/16/us/trump-dc-news
