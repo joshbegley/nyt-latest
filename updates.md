@@ -1,3 +1,7 @@
+**Coco Gauff loses in quarterfinals to Jasmine Paolini at Cincinnati Open**\
+`The serving woes continued for Gauff Friday night, falling in three sets 2-6, 6-4, 6-3.`\
+https://nytimes.com/athletic/6556759/2025/08/15/jasmine-paolini-coco-gauff-cincinnati-open/
+
 **Phillies' Jhoan Duran exits game after being hit in ankle with line drive; X-rays negative**\
 `Duran exited in the ninth after taking a 94.1 mph liner to his right ankle. The Phillies announced his X-rays were negative. `\
 https://nytimes.com/athletic/6556703/2025/08/15/jhoan-duran-phillies-hit-foot-injury/

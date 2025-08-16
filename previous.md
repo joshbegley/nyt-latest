@@ -1,3 +1,7 @@
+**Coco Gauff loses in quarterfinals to Jasmine Paolini at Cincinnati Open**\
+`The serving woes continued for Gauff Friday night, falling in three sets 2-6, 6-4, 6-3.`\
+https://nytimes.com/athletic/6556759/2025/08/15/jasmine-paolini-coco-gauff-cincinnati-open/
+
 **Putin flatters Trump by echoing his claims about the war in Ukraine.**\
 `By Erica L. Green`\
 https://nytimes.com/live/2025/08/15/world/trump-putin-meeting-alaska/putin-flatters-trump-by-echoing-his-claims-about-the-war-in-ukraine
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6556703/2025/08/15/jhoan-duran-phillies-hit-foot-in
 **Brian Cashman defends Aaron Boone: 'You’ve got to understand what the atmosphere is like'**\
 `New York's GM believes that in such a high-pressure market, there's no reason for a manager to pile on when players are struggling.`\
 https://nytimes.com/athletic/6556650/2025/08/15/yankees-brian-cashman-aaron-boone-accountability-2/
-
-**Padres' Michael King 'feeling a lot better,' hopes to return from IL in time to face Mariners**\
-`King could have pitched Friday, but not without pain, "and it's just not a recipe for short- and longer-term success," Mike Shildt said.`\
-https://nytimes.com/athletic/6556652/2025/08/15/padres-michael-king-injury/
 
