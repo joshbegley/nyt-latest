@@ -1,3 +1,7 @@
+**Browns' QB competition rolls on as Dillon Gabriel starts amid hamstring tightness**\
+`Coach Kevin Stefanski still hasn't announced who has won the competition.`\
+https://nytimes.com/athletic/6557618/2025/08/16/browns-qb-competition-dillon-gabriel-start/
+
 **Vikings' backup QB situation and other risers and fallers from preseason loss to Patriots**\
 `Rookie QB Max Brosmer's decision-making and command were impressive Saturday, while the Vikings' returner situation is looking dire.`\
 https://nytimes.com/athletic/6557608/2025/08/16/vikings-patriots-max-brosmer-backup-qb/
