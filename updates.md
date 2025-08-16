@@ -1,3 +1,7 @@
+**Giants place Matt Chapman on injured list with right hand inflammation**\
+`San Francisco's third baseman missed nearly a month earlier this season with a badly sprained hand.`\
+https://nytimes.com/athletic/6556609/2025/08/15/sf-giants-matt-chapman-injury/
+
 **The Cubs and Pete Crow-Armstrong want you to believe everything is fine**\
 `Pete Crow-Armstrong's MVP campaign continues to lose steam as the Cubs went from tied for first place to eight games behind Milwaukee.`\
 https://nytimes.com/athletic/6556597/2025/08/15/pete-crow-armstrong-chicago-cubs-playoff/
