@@ -1,3 +1,15 @@
+**Fox News Warrior Takes on Prosecutor Role in Trump’s D.C. Crackdown**\
+`As the U.S. attorney in Washington, Jeanine Pirro is a central player in a clash that could define her legacy: the president’s takeover of local law enforcement.`\
+https://nytimes.com/2025/08/16/us/politics/jeanine-pirro-trump-dc-police.html
+
+**1961 Topps Roger Maris #2: Our sports card of the week**\
+`As Cal Raleigh maintains a 60-plus home run pace, we look back at a notable card of a man who hit 61 in '61. `\
+https://nytimes.com/athletic/6556686/2025/08/16/roger-maris-1961-topps-card/
+
+**8 Patriots risers and fallers after preseason win vs. Vikings**\
+`Rookie receiver Efton Chism III had another impressive performance, while young quarterback Drake Maye didn't have his best day.`\
+https://nytimes.com/athletic/6557448/2025/08/16/patriots-vikings-preseason-efton-chism-drake-maye/
+
 **Colts' QB Anthony Richardson promising, if not spectacular, in loss to Packers**\
 `Richardson took a positive step on short and intermediate throws, but Daniel Jones also had a solid showing as the QB competition continues.`\
 https://nytimes.com/athletic/6557498/2025/08/16/colts-packers-anthony-richardson-daniel-jones/

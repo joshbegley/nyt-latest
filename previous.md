@@ -1,3 +1,15 @@
+**Fox News Warrior Takes on Prosecutor Role in Trump’s D.C. Crackdown**\
+`As the U.S. attorney in Washington, Jeanine Pirro is a central player in a clash that could define her legacy: the president’s takeover of local law enforcement.`\
+https://nytimes.com/2025/08/16/us/politics/jeanine-pirro-trump-dc-police.html
+
+**1961 Topps Roger Maris #2: Our sports card of the week**\
+`As Cal Raleigh maintains a 60-plus home run pace, we look back at a notable card of a man who hit 61 in '61. `\
+https://nytimes.com/athletic/6556686/2025/08/16/roger-maris-1961-topps-card/
+
+**8 Patriots risers and fallers after preseason win vs. Vikings**\
+`Rookie receiver Efton Chism III had another impressive performance, while young quarterback Drake Maye didn't have his best day.`\
+https://nytimes.com/athletic/6557448/2025/08/16/patriots-vikings-preseason-efton-chism-drake-maye/
+
 **Colts' QB Anthony Richardson promising, if not spectacular, in loss to Packers**\
 `Richardson took a positive step on short and intermediate throws, but Daniel Jones also had a solid showing as the QB competition continues.`\
 https://nytimes.com/athletic/6557498/2025/08/16/colts-packers-anthony-richardson-daniel-jones/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6555250/2025/08/16/mateo-joseph-leeds-farke-intervi
 **Why Chelsea are not inclined to sign a new centre-back this summer**\
 `Enzo Maresca went public with his desire for a new centre-half after Levi Colwill suffered long-term injury, but he will go disappointed`\
 https://nytimes.com/athletic/6557326/2025/08/16/chelsea-maresca-centre-half-colwill/
-
-**Newcastle are still a team and a fierce collective. They just need a striker**\
-`They missed out on three points but Eddie Howe's side can still take positives from the 0-0 draw against Aston Villa`\
-https://nytimes.com/athletic/6557198/2025/08/16/newcastle-team-striker-aston-villa/
-
-**Putin keeps talking about the ‘root causes’ of the war. What does he mean?**\
-`By Michael Schwirtz`\
-https://nytimes.com/live/2025/08/16/world/trump-putin-meeting-alaska/putin-keeps-talking-about-the-root-causes-of-the-war-what-does-he-mean
-
-**The Briefing: Wolves 0 Manchester City 4 - How good are Bobb and Reijnders? Is Trafford No 1? What must Pep still solve?**\
-`Guardiola should be encouraged from what he saw from his players in their opening Premier League fixture`\
-https://nytimes.com/athletic/6553550/2025/08/16/wolves-manchester-city-highlights/
 
