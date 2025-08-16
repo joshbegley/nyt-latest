@@ -30,7 +30,7 @@ https://nytimes.com/athletic/6556774/2025/08/16/antoine-semenyo-bournemouth-live
 `Liverpool beat Bournemouth 4-2 on Friday night, with Federico Chiesa scoring a crucial goal`\
 https://nytimes.com/athletic/6556573/2025/08/16/federico-chiesa-liverpool-bournemouth-analysis/
 
-**Trump and Putin’s isolated limousine conversation.**\
+**Trump and Putin had an isolated conversation in Trump’s limo.**\
 `By Andrew Das and John Yoon`\
 https://nytimes.com/live/2025/08/15/world/trump-putin-meeting-alaska/trump-putin-limousine-meeting
 
