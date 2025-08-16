@@ -1,3 +1,11 @@
+**Barcelona beat nine-man Mallorca 3-0 in La Liga opener as Rashford debuts**\
+`Goals from Raphinha, Ferran Torres and Lamine Yamal gave Hansi Flick's side a comfortable win.`\
+https://nytimes.com/athletic/6557412/2025/08/16/barcelona-mallorca-la-liga-rashford/
+
+**Big Ten crafting options to at least double size of CFP field: Sources**\
+`The idea for a field as large as 28 teams was presented to Big Ten athletic directors for the first time last week, one source said.`\
+https://nytimes.com/athletic/6557310/2025/08/16/big-ten-college-football-playoff-expansion/
+
 **Mateo Joseph interview on his Leeds exit: 'I don't think Daniel Farke had much confidence in me'**\
 `The 21-year-old striker has his say on what happened this summer in an exclusive interview with The Athletic`\
 https://nytimes.com/athletic/6555250/2025/08/16/mateo-joseph-leeds-farke-interview/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/08/16/us/politics/west-virginia-national-guard-dc.html
 **Tristan Rogers, ‘General Hospital’ Actor, Dies at 79**\
 `He became a fixture on the popular daytime television show as Robert Scorpio, a spy who became a police commissioner.`\
 https://nytimes.com/2025/08/16/arts/television/tristan-rogers-dead.html
-
-**Frank: Bissouma missed Burnley game due to injury**\
-`This comes after Bissouma was left out of the squad for Wednesday’s UEFA Super Cup final against PSG due to disciplinary reasons.`\
-https://nytimes.com/athletic/6557325/2025/08/16/tottenhams-burnley-yves-bissouma-injury/
-
-**Wrexham must show they belong in the Championship - Nathan Broadhead will help them**\
-`Owners Ryan Reynolds and Rob McElhenney watched their club record £7.5m signing labour on debut, but this is the calibre of player they need`\
-https://nytimes.com/athletic/6555184/2025/08/16/wrexham-broadhead-parkinson-moore-west-brom/
 

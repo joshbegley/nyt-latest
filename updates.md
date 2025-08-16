@@ -1,3 +1,11 @@
+**Barcelona beat nine-man Mallorca 3-0 in La Liga opener as Rashford debuts**\
+`Goals from Raphinha, Ferran Torres and Lamine Yamal gave Hansi Flick's side a comfortable win.`\
+https://nytimes.com/athletic/6557412/2025/08/16/barcelona-mallorca-la-liga-rashford/
+
+**Big Ten crafting options to at least double size of CFP field: Sources**\
+`The idea for a field as large as 28 teams was presented to Big Ten athletic directors for the first time last week, one source said.`\
+https://nytimes.com/athletic/6557310/2025/08/16/big-ten-college-football-playoff-expansion/
+
 **Mateo Joseph interview on his Leeds exit: 'I don't think Daniel Farke had much confidence in me'**\
 `The 21-year-old striker has his say on what happened this summer in an exclusive interview with The Athletic`\
 https://nytimes.com/athletic/6555250/2025/08/16/mateo-joseph-leeds-farke-interview/
