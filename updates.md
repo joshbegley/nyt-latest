@@ -1,3 +1,7 @@
+**Trump Administration Live Updates: West Virginia Governor Sending Guard Troops to Assist in D.C.**\
+``\
+https://nytimes.com/live/2025/08/16/us/trump-dc-news
+
 **Man arrested after Semenyo report of racist abuse during Liverpool game**\
 `The opening match of the new season was paused in the first-half after Semenyo reported an alleged incident of racist abuse.`\
 https://nytimes.com/athletic/6556942/2025/08/16/antoine-semenyo-liverpool-racist-abuse-arrest/
