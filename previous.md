@@ -3,7 +3,7 @@
 https://nytimes.com/live/2025/08/15/world/trump-putin-meeting-alaska/trump-putin-limousine-meeting
 
 **Ramón Urías spoke in the Astros' advance meeting. Then his former team almost perfect-gamed them**\
-`Urías and the Astros fell 7-0 to the Orioles, from which Houston acquired the 31-year-old middle infielder 16 days ago.`\
+`Urías and the Astros fell 7-0 to the Orioles, from whom Houston acquired the 31-year-old middle infielder 16 days ago.`\
 https://nytimes.com/athletic/6556836/2025/08/16/astros-ramon-urias-hitters-orioles/
 
 **Christian Yelich wasn't sure if he should use his Bob Uecker bat. The Brewers are glad he did**\
