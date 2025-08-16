@@ -1,3 +1,7 @@
+**Trump and Putin had an isolated conversation in Trump’s limo.**\
+`By Andrew Das and John Yoon`\
+https://nytimes.com/live/2025/08/15/world/trump-putin-meeting-alaska/trump-putin-limousine-meeting
+
 **A Lifelong Party of ‘Puzzle-Making Tomfoolery’**\
 `In 1978, Jerry Slocum assembled the first International Puzzle Party in his living room. Now it’s a global event.`\
 https://nytimes.com/2025/08/16/science/puzzle-party-slocum.html
