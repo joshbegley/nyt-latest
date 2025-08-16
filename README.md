@@ -1,3 +1,7 @@
+**Commanders activate WR Terry McLaurin off PUP list, still no extension**\
+`McLaurin, 29, has missed the entirety of training camp because of his contract stalemate with the team, and a deal has not yet been reached.`\
+https://nytimes.com/athletic/6557147/2025/08/16/terry-mclaurin-commanders-activate-extension/
+
 **The power of the Trump-Putin presidential photo op.**\
 `By Vanessa Friedman`\
 https://nytimes.com/live/2025/08/16/world/trump-putin-meeting-alaska/the-power-of-the-trump-putin-presidential-photo-op
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6556889/2025/08/16/seahawks-chiefs-preseason-offens
 **The Pulse: How are the Brewers this good?**\
 `Welcome to The Pulse, The Athletic's daily sports newsletter.`\
 https://nytimes.com/athletic/6556820/2025/08/16/mlb-best-team-the-pulse/
-
-**Trump vs. the U.S. Economy**\
-`Natasha Sarin walks through how Trump’s tariffs, the A.I. boom and the leadership shake-up at the Bureau of Labor Statistics are impacting the economy.`\
-https://nytimes.com/2025/08/16/opinion/ezra-klein-podcast-natasha-sarin.html
 
