@@ -1,3 +1,7 @@
+**West Virginia to Send Hundreds of State National Guard Troops to D.C.**\
+`Gov. Patrick Morrisey said the state would send 300 to 400 troops to Washington to support Mr. Trump’s “initiative to restore cleanliness and safety” to the city.`\
+https://nytimes.com/2025/08/16/us/politics/west-virginia-national-guard-dc.html
+
 **Tristan Rogers, ‘General Hospital’ Actor, Dies at 79**\
 `Mr. Rogers became a fixture on the daytime television show as Robert Scorpio, a spy who became a police commissioner.`\
 https://nytimes.com/2025/08/16/arts/television/tristan-rogers-dead.html
