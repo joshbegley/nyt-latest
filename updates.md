@@ -1,3 +1,7 @@
+**Phillies' Jhoan Duran exits game after being hit in ankle with line drive; X-rays negative**\
+`Duran exited in the ninth after taking a 94.1 mph liner to his right ankle. The Phillies announced his X-rays were negative. `\
+https://nytimes.com/athletic/6556703/2025/08/15/jhoan-duran-phillies-hit-foot-injury/
+
 **Putin flatters Trump by echoing his claims about the war in Ukraine.**\
 `By Erica L. Green`\
 https://nytimes.com/live/2025/08/15/world/trump-putin-meeting-alaska/putin-flatters-trump-by-echoing-his-claims-about-the-war-in-ukraine
