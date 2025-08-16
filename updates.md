@@ -1,3 +1,11 @@
+**Trump and Putin’s isolated limousine conversation.**\
+`By Andrew Das and John Yoon`\
+https://nytimes.com/live/2025/08/15/world/trump-putin-meeting-alaska/trump-putin-limousine-meeting
+
+**Ramón Urías spoke in the Astros' advance meeting. Then his former team almost perfect-gamed them**\
+`Urías and the Astros fell 7-0 to the Orioles, from which Houston acquired the 31-year-old middle infielder 16 days ago.`\
+https://nytimes.com/athletic/6556836/2025/08/16/astros-ramon-urias-hitters-orioles/
+
 **Ramón Urías ran the Astros' hitters meeting. Then his former team almost perfect game'd them**\
 `Urías and the Astros fell 7-0 to the Orioles, from whom Houston acquired the 31-year-old middle infielder 16 days ago.`\
 https://nytimes.com/athletic/6556836/2025/08/16/astros-ramon-urias-hitters-orioles/
