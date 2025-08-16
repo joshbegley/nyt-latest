@@ -1,3 +1,5 @@
+
+
 **With Putin by his side, Trump repeats his claims of a ‘Russia Hoax.’**\
 `By The New York Times`\
 https://nytimes.com/live/2025/08/16/world/trump-putin-meeting-alaska/with-putin-by-his-side-trump-repeats-his-claims-of-a-russia-hoax
