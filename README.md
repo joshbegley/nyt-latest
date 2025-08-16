@@ -1,3 +1,7 @@
+**Wrexham must show they belong in the Championship - Nathan Broadhead will help them**\
+`Owners Ryan Reynolds and Rob McElhenney watched their club record £7.5m signing labour on debut, but this is the calibre of player they need`\
+https://nytimes.com/athletic/6555184/2025/08/16/wrexham-broadhead-parkinson-moore-west-brom/
+
 **Blue Jays reinstate George Springer, option hot-hitting Joey Loperfido**\
 `As the 35-year-old returns, hoping to continue a resurgent season, Loperfido heads down to Triple A despite hitting .358 with Toronto.`\
 https://nytimes.com/athletic/6557258/2025/08/16/blue-jays-george-springer-joey-loperfido/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6553539/2025/08/16/tottenham-3-burnley-0-highlights
 **Kishane Thompson beats Noah Lyles in 100m in first meeting since thrilling Olympic final**\
 `Lyles beat Thompson in a photo finish in Paris. With the world championships looming, Thompson got the better of his rival on Saturday.`\
 https://nytimes.com/athletic/6557217/2025/08/16/kishane-thompson-noah-lyles-100m-diamond-league-silesia-olympics/
-
-**Forest complete signing of Hutchinson from Ipswich**\
-`Forest are close to deals for a number of players ahead of kicking off their Premier League campaign on Sunday.`\
-https://nytimes.com/athletic/6557127/2025/08/16/nottingham-forest-transfers-hutchinson/
 
