@@ -1,3 +1,7 @@
+**Ukraine Tries to Understand Why Trump Suddenly Abandoned Idea of Cease-Fire**\
+`President Volodymyr Zelensky of Ukraine will go to Washington on Monday seeking answers.`\
+https://nytimes.com/2025/08/16/world/europe/ukraine-russia-trump-zelensky.html
+
 **The power of the Trump-Putin presidential photo op.**\
 `By Vanessa Friedman`\
 https://nytimes.com/2025/08/16/world/europe/the-power-of-the-trump-putin-presidential-photo-op.html
