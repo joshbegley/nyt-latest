@@ -1,3 +1,7 @@
+**Ramón Urías ran the Astros' hitters meeting. Then his former team almost perfect game'd them**\
+`Urías and the Astros fell 7-0 to the Orioles, from whom Houston acquired the 31-year-old middle infielder 16 days ago.`\
+https://nytimes.com/athletic/6556836/2025/08/16/astros-ramon-urias-hitters-orioles/
+
 **Christian Yelich wasn't sure if he should use his Bob Uecker bat. The Brewers are glad he did**\
 `After his first homer, the Brewers' equipment manager told Yelich not to put the bat away: “You have to keep going.”`\
 https://nytimes.com/athletic/6556837/2025/08/16/christian-yelich-bob-ueker-bat-brewers-winning-streak/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6550797/2025/08/16/real-madrid-la-liga-start-tuesda
 **Mikel Arteta, pressure and a season that will define his time at Arsenal**\
 `The London club have not won a major trophy for over five years and, while the board retain faith, how many more 'almosts' can they afford?`\
 https://nytimes.com/athletic/6555630/2025/08/16/mikel-arteta-pressure-and-a-season-that-will-define-his-time-at-arsenal/
-
-**How Barcelona play: Pedri's line-breaking passes, that offside trap and how will Rashford change things?**\
-`Flick is heading into his second season at Barca with an exciting team with plenty of quality. But how do they set up tactically?`\
-https://nytimes.com/athletic/6553865/2025/08/16/barcelona-tactics-pedri-rashford-offside/
 
