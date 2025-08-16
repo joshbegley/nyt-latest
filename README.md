@@ -1,3 +1,7 @@
+**California Lawmakers Release a Proposed House Map Favoring Democrats**\
+`The plan would help Democrats flip five seats, offsetting the gains Republicans hope to make by redrawing maps in Texas.`\
+https://nytimes.com/2025/08/15/us/california-redistricting-maps-released.html
+
 **Chicago Cubs and Pete Crow-Armstrong want you to believe that everything is fine**\
 `Pete Crow-Armstrong's MVP campaign continues to lose steam as the Cubs went from tied for first place to eight games behind Milwaukee.`\
 https://nytimes.com/athletic/6556597/2025/08/15/pete-crow-armstrong-chicago-cubs-playoff/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6556477/2025/08/15/jim-harbaugh-michigan-suspension
 **Trump Welcomes Putin With a Jet Fighter Escort and Red Carpet**\
 `President Trump clapped for his guest, Vladimir V. Putin of Russia, as he stepped foot in the United States for the first time in a decade.`\
 https://nytimes.com/2025/08/15/us/politics/trump-putin-alaska-scene.html
-
-**Understanding Michigan's sign-stealing penalties — and the ones it avoided**\
-`Is the NCAA’s power fully neutered? Is this the norm moving forward? Here is a breakdown of the Wolverines' penalties and what they mean.`\
-https://nytimes.com/athletic/6556144/2025/08/15/michigan-sign-stealing-penalties-show-cause/
 
