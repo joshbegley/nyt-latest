@@ -1,3 +1,7 @@
+**The Pulse: How are the Brewers this good?**\
+`Welcome to The Pulse, The Athletic's daily sports newsletter.`\
+https://nytimes.com/athletic/6556820/2025/08/16/mlb-best-team-the-pulse/
+
 **Trump vs. the U.S. Economy**\
 `Natasha Sarin walks through how Trump’s tariffs, the A.I. boom and the leadership shake-up at the Bureau of Labor Statistics are impacting the economy.`\
 https://nytimes.com/2025/08/16/opinion/ezra-klein-podcast-natasha-sarin.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/16/opinion/israel-hamas-gaza-starvation.html
 **Trump’s Political Theater Won’t Save D.C.**\
 `It’s been a summer full of Trump’s overreach. Our round table convenes to discuss.`\
 https://nytimes.com/2025/08/16/opinion/trump-national-guard-crime-dc.html
-
-**Trump vs. the U.S. Economy**\
-`Natasha Sarin walks through how Trump’s tariffs, the A.I. boom and the leadership shake-up at the Bureau of Labor Statistics are impacting the economy.`\
-https://nytimes.com/video/opinion/100000010328969/trump-vs-the-us-economy.html
 
