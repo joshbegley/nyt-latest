@@ -1,5 +1,9 @@
+**No Deal, but No Consequence for Putin**\
+`President Trump’s failure to reach an accord on Ukraine only made his warm welcome for the Russian leader more striking.`\
+https://nytimes.com/2025/08/15/us/politics/trump-putin-summit-ukrainians.html
+
 **Coco Gauff loses in quarterfinals to Jasmine Paolini at Cincinnati Open**\
-`The serving woes continued for Gauff on Friday night, falling in three sets 2-6, 6-4, 6-3.`\
+`The serving woes continued Friday for Gauff, falling in three sets 2-6, 6-4, 6-3.`\
 https://nytimes.com/athletic/6556759/2025/08/15/jasmine-paolini-coco-gauff-cincinnati-open/
 
 **Putin flatters Trump by echoing his claims about the war in Ukraine.**\
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/15/us/migrant-children-trump-flores-settlement.html
 **Phillies' Jhoan Duran exits game after being hit in ankle with line drive; X-rays negative**\
 `Duran exited in the ninth after taking a 94.1 mph liner to his right ankle. The Phillies announced his X-rays were negative. `\
 https://nytimes.com/athletic/6556703/2025/08/15/jhoan-duran-phillies-hit-foot-injury/
-
-**Brian Cashman defends Aaron Boone: 'You’ve got to understand what the atmosphere is like'**\
-`New York's GM believes that in such a high-pressure market, there's no reason for a manager to pile on when players are struggling.`\
-https://nytimes.com/athletic/6556650/2025/08/15/yankees-brian-cashman-aaron-boone-accountability-2/
 
