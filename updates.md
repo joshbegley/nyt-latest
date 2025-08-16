@@ -1,3 +1,7 @@
+**Why Chelsea are not inclined to sign a new centre-back this summer**\
+`Enzo Maresca went public with his desire for a new centre-half after Levi Colwill suffered long-term injury, but he will go disappointed`\
+https://nytimes.com/athletic/6557326/2025/08/16/chelsea-maresca-centre-half-colwill/
+
 **Newcastle are still a team and a fierce collective. They just need a striker**\
 `They missed out on three points but Eddie Howe's side can still take positives from the 0-0 draw against Aston Villa`\
 https://nytimes.com/athletic/6557198/2025/08/16/newcastle-team-striker-aston-villa/
