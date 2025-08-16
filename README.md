@@ -1,3 +1,15 @@
+**Chicago Cubs and Pete Crow-Armstrong want you to believe that everything is fine**\
+`Pete Crow-Armstrong's MVP campaign continues to lose steam as the Cubs went from tied for first place to eight games behind Milwaukee.`\
+https://nytimes.com/athletic/6556597/2025/08/15/pete-crow-armstrong-chicago-cubs-playoff/
+
+**Dodgers place Max Muncy on injured list with right oblique strain**\
+`Though Dave Roberts said the Grade 1 strain isn't expected to end Muncy's season, there is no timeline for his return.`\
+https://nytimes.com/athletic/6556566/2025/08/15/max-muncy-injury-dodgers/
+
+**In Russia, Putin’s meeting with Trump plays as a triumph.**\
+`By Neil MacFarquhar and Alina Lobzina`\
+https://nytimes.com/live/2025/08/15/world/trump-putin-meeting-alaska/in-russia-putins-meeting-with-trump-plays-as-a-triumph
+
 **Two Decades of Putin Playing the West**\
 `For more than 20 years, Western leaders have played right into Putin’s hands — and given one a shake.`\
 https://nytimes.com/video/opinion/100000010343291/two-decades-of-putin-playing-the-west.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/08/15/us/politics/trump-putin-alaska-scene.html
 **Understanding Michigan's sign-stealing penalties — and the ones it avoided**\
 `Is the NCAA’s power fully neutered? Is this the norm moving forward? Here is a breakdown of the Wolverines' penalties and what they mean.`\
 https://nytimes.com/athletic/6556144/2025/08/15/michigan-sign-stealing-penalties-show-cause/
-
-**MAHA Draft Report Brings Relief to Some, Chagrin to Others**\
-`A draft of an upcoming White House report on children’s health was not as harsh toward the agriculture industry as some of Robert F. Kennedy Jr.’s allies had hoped.`\
-https://nytimes.com/2025/08/15/health/maha-draft-report-pesticides.html
-
-**Beauty Essentials to Help You Beat the Heat This Summer**\
-`The face mists, claw clips and handy gadgets to bring with you on any summer adventure.`\
-https://nytimes.com/2025/08/15/t-magazine/beauty-essentials-summer-heat.html
-
-**The Rapper Sean Kingston Is Sentenced to 3½ Years in $1 Million Fraud Scheme**\
-`A Florida jury convicted the hip-hop artist and his mother in a federal fraud case that centered on luxury goods, which prosecutors said that Mr. Kingston did not pay for.`\
-https://nytimes.com/2025/08/15/us/sean-kingston-fraud-sentenced-prison.html
 
