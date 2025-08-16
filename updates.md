@@ -1,3 +1,11 @@
+**Here’s the latest.**\
+`By Jim Tankersley`\
+https://nytimes.com/live/2025/08/16/world/trump-putin-meeting-alaska/heres-the-latest
+
+**Live Updates: Zelensky Says He’ll Meet With Trump After U.S.-Russia Summit Yields No Deal**\
+`President Volodymyr Zelensky of Ukraine said he would meet with President Trump in Washington on Monday. Mr. Trump and President Vladimir V. Putin of Russia held talks in Alaska but announced no agreement on ending the war in Ukraine.`\
+https://nytimes.com/live/2025/08/16/world/trump-putin-meeting-alaska
+
 **Trump and Putin had an isolated conversation in Trump’s limo.**\
 `By Andrew Das and John Yoon`\
 https://nytimes.com/live/2025/08/15/world/trump-putin-meeting-alaska/trump-putin-limousine-meeting
