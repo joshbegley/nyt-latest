@@ -7,7 +7,7 @@ https://nytimes.com/athletic/6557701/2025/08/16/why-cubs-believe-they-control-th
 https://nytimes.com/athletic/6557684/2025/08/16/lions-preseason-top-players-kyle-allen-dolphins/
 
 **U.S. Pauses Visitor Visas for Gazans After Right-Wing Outcry**\
-`The move blocked a pathway for those seeking medical care in the United States, including young children who arrived in recent weeks with serious conditions.`\
+`The move blocked a pathway for those seeking medical care in the United States, including young children, who have arrived in recent weeks with serious conditions.`\
 https://nytimes.com/2025/08/16/us/politics/gaza-visitor-visas-medical-trump-loomer.html
 
 **Packers stock report: Who struggled and who impressed in comeback win over Colts?**\
