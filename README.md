@@ -1,3 +1,11 @@
+**Tristan Rogers, ‘General Hospital’ Actor, Dies at 79**\
+`Mr. Rogers became a fixture on the daytime television show as Robert Scorpio, a spy who became a police commissioner.`\
+https://nytimes.com/2025/08/16/arts/television/tristan-rogers-dead.html
+
+**Frank: Bissouma missed Burnley game due to injury**\
+`This comes after Bissouma was left out of the squad for Wednesday’s UEFA Super Cup final against PSG due to disciplinary reasons.`\
+https://nytimes.com/athletic/6557325/2025/08/16/tottenhams-burnley-yves-bissouma-injury/
+
 **Wrexham must show they belong in the Championship - Nathan Broadhead will help them**\
 `Owners Ryan Reynolds and Rob McElhenney watched their club record £7.5m signing labour on debut, but this is the calibre of player they need`\
 https://nytimes.com/athletic/6555184/2025/08/16/wrexham-broadhead-parkinson-moore-west-brom/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6557221/2025/08/16/leander-dendoncker-aston-villa-r
 **Kalimuendo undergoing Forest medical; Luiz, Lewis deals being worked on**\
 `Forest are working on a number of deals before kicking off their season on Sunday.`\
 https://nytimes.com/athletic/6552999/2025/08/16/nottingham-forest-transfers-kalimuendo-luiz-lewis/
-
-**The Briefing: Tottenham 3 Burnley 0 - Frank's young midfield, Richarlison finds form, Dubravka's unwanted history**\
-`Breaking down the key moments from Tottenham's opening Premier League win over Burnley`\
-https://nytimes.com/athletic/6553539/2025/08/16/tottenham-3-burnley-0-highlights/
-
-**Kishane Thompson beats Noah Lyles in 100m in first meeting since thrilling Olympic final**\
-`Lyles beat Thompson in a photo finish in Paris. With the world championships looming, Thompson got the better of his rival on Saturday.`\
-https://nytimes.com/athletic/6557217/2025/08/16/kishane-thompson-noah-lyles-100m-diamond-league-silesia-olympics/
 
