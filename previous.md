@@ -1,3 +1,7 @@
+**Mateo Joseph interview on his Leeds exit: 'I don't think Daniel Farke had much confidence in me'**\
+`The 21-year-old striker has his say on what happened this summer in an exclusive interview with The Athletic`\
+https://nytimes.com/athletic/6555250/2025/08/16/mateo-joseph-leeds-farke-interview/
+
 **Why Chelsea are not inclined to sign a new centre-back this summer**\
 `Enzo Maresca went public with his desire for a new centre-half after Levi Colwill suffered long-term injury, but he will go disappointed`\
 https://nytimes.com/athletic/6557326/2025/08/16/chelsea-maresca-centre-half-colwill/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6557325/2025/08/16/tottenhams-burnley-yves-bissouma
 **Wrexham must show they belong in the Championship - Nathan Broadhead will help them**\
 `Owners Ryan Reynolds and Rob McElhenney watched their club record £7.5m signing labour on debut, but this is the calibre of player they need`\
 https://nytimes.com/athletic/6555184/2025/08/16/wrexham-broadhead-parkinson-moore-west-brom/
-
-**Blue Jays reinstate George Springer, option hot-hitting Joey Loperfido**\
-`As the 35-year-old returns, hoping to continue a resurgent season, Loperfido heads down to Triple A despite hitting .358 with Toronto.`\
-https://nytimes.com/athletic/6557258/2025/08/16/blue-jays-george-springer-joey-loperfido/
 

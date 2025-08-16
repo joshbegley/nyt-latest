@@ -1,3 +1,7 @@
+**Mateo Joseph interview on his Leeds exit: 'I don't think Daniel Farke had much confidence in me'**\
+`The 21-year-old striker has his say on what happened this summer in an exclusive interview with The Athletic`\
+https://nytimes.com/athletic/6555250/2025/08/16/mateo-joseph-leeds-farke-interview/
+
 **Tristan Rogers, ‘General Hospital’ Actor, Dies at 79**\
 `He became a fixture on the popular daytime television show as Robert Scorpio, a spy who became a police commissioner.`\
 https://nytimes.com/2025/08/16/arts/television/tristan-rogers-dead.html
