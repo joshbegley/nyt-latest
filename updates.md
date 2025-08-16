@@ -1,3 +1,7 @@
+**Guardiola: Man City squad still too big, situation is 'not healthy'**\
+`City have signed six new players this summer.`\
+https://nytimes.com/athletic/6557535/2025/08/16/pep-guardiola-manchester-city-squad-size/
+
 **Big wins, progressions and causes for concern at Silesia Diamond League**\
 `Silesia was a melting pot and proving ground for six Olympic/World champions, who had question marks by their name ahead of Worlds.`\
 https://nytimes.com/athletic/6557421/2025/08/16/lyles-hodgkinson-warholm-richardson-silesia-diamond-league/

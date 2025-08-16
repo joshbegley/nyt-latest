@@ -1,3 +1,7 @@
+**Guardiola: Man City squad still too big, situation is 'not healthy'**\
+`City have signed six new players this summer.`\
+https://nytimes.com/athletic/6557535/2025/08/16/pep-guardiola-manchester-city-squad-size/
+
 **Big wins, progressions and causes for concern at Silesia Diamond League**\
 `Silesia was a melting pot and proving ground for six Olympic/World champions, who had question marks by their name ahead of Worlds.`\
 https://nytimes.com/athletic/6557421/2025/08/16/lyles-hodgkinson-warholm-richardson-silesia-diamond-league/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6557412/2025/08/16/barcelona-mallorca-la-liga-rashf
 **Big Ten crafting options to at least double size of CFP field: Sources**\
 `The idea for a field as large as 28 teams was presented to Big Ten athletic directors for the first time last week, one source said.`\
 https://nytimes.com/athletic/6557310/2025/08/16/big-ten-college-football-playoff-expansion/
-
-**Mateo Joseph interview on his Leeds exit: 'I don't think Daniel Farke had much confidence in me'**\
-`The 21-year-old striker has his say on what happened this summer in an exclusive interview with The Athletic`\
-https://nytimes.com/athletic/6555250/2025/08/16/mateo-joseph-leeds-farke-interview/
 
