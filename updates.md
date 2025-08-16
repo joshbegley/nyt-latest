@@ -1,4 +1,8 @@
 **Coco Gauff loses in quarterfinals to Jasmine Paolini at Cincinnati Open**\
+`The serving woes continued for Gauff on Friday night, falling in three sets 2-6, 6-4, 6-3.`\
+https://nytimes.com/athletic/6556759/2025/08/15/jasmine-paolini-coco-gauff-cincinnati-open/
+
+**Coco Gauff loses in quarterfinals to Jasmine Paolini at Cincinnati Open**\
 `The serving woes continued for Gauff Friday night, falling in three sets 2-6, 6-4, 6-3.`\
 https://nytimes.com/athletic/6556759/2025/08/15/jasmine-paolini-coco-gauff-cincinnati-open/
 
