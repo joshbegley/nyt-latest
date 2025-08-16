@@ -1,3 +1,7 @@
+**The Cubs and Pete Crow-Armstrong want you to believe everything is fine**\
+`“It’s been an interesting two weeks, but we’re fine," Crow-Armstrong said as his MVP campaign continues to lose steam.`\
+https://nytimes.com/athletic/6556597/2025/08/15/pete-crow-armstrong-chicago-cubs-playoff/
+
 **Newsom’s Gerrymander of California Has a Formidable Foe: Schwarzenegger**\
 `The actor-turned-governor helped overhaul how California draws political maps. In an interview with The New York Times, he said he would fight to preserve that legacy.`\
 https://nytimes.com/2025/08/15/us/politics/schwarzenegger-newsom-california-redistricting.html

@@ -15,7 +15,7 @@ https://nytimes.com/athletic/6556609/2025/08/15/sf-giants-matt-chapman-injury/
 https://nytimes.com/2025/08/15/us/california-redistricting-maps-released.html
 
 **The Cubs and Pete Crow-Armstrong want you to believe everything is fine**\
-`Pete Crow-Armstrong's MVP campaign continues to lose steam as the Cubs went from tied for first place to eight games behind Milwaukee.`\
+`“It’s been an interesting two weeks, but we’re fine," Crow-Armstrong said as his MVP campaign continues to lose steam.`\
 https://nytimes.com/athletic/6556597/2025/08/15/pete-crow-armstrong-chicago-cubs-playoff/
 
 **Dodgers place Max Muncy on injured list with right oblique strain**\
