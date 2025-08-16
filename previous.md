@@ -1,3 +1,11 @@
+**Statue of Martin Luther King Draws Criticism Over Its Proportions**\
+`A statue in Florida has prompted complaints about its shoes, arm and head but also a discussion about art and representations of historic figures.`\
+https://nytimes.com/2025/08/16/us/mlk-statue-florida.html
+
+**Come for the Chicken and Zucchini, Stay for the Charred Scallion Salsa**\
+`A smoky, zippy mix of charred scallions, cilantro, jalapeño and lime perks up summer’s sweet zucchini and skin-on chicken breasts.`\
+https://nytimes.com/2025/08/16/dining/an-easy-chicken-and-zucchini-dinner-with-charred-scallion-salsa.html
+
 **National Guard Detained Man Who Assaulted a Park Police Officer, Authorities Say**\
 `It was the first such action by the Guard since its deployment in Washington.`\
 https://nytimes.com/2025/08/16/us/politics/national-guard-detained-man.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6553530/2025/08/16/aston-villa-newcastle-result-rep
 **Trump Administration Live Updates: West Virginia Governor Sending Guard Troops to Assist in D.C.**\
 ``\
 https://nytimes.com/live/2025/08/16/us/trump-dc-news
-
-**The Giants have lost 14 of 15 at home, but Matt Chapman still believes**\
-`Whether the Giants truly believe they can crawl back into contention or not, it will have to start with playing one clean game.`\
-https://nytimes.com/athletic/6556946/2025/08/16/sf-giants-home-defeats-matt-chapman/
-
-**Dodgers find the intensity they need, snap skid and even up NL West against Padres**\
-`The Dodgers met the moment against a Padres team that won 23 of its last 35 games.`\
-https://nytimes.com/athletic/6556886/2025/08/16/dodgers-padres-nl-west-clayton-kershaw/
 

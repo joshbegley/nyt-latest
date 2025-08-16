@@ -1,3 +1,11 @@
+**Statue of Martin Luther King Draws Criticism Over Its Proportions**\
+`A statue in Florida has prompted complaints about its shoes, arm and head but also a discussion about art and representations of historic figures.`\
+https://nytimes.com/2025/08/16/us/mlk-statue-florida.html
+
+**Come for the Chicken and Zucchini, Stay for the Charred Scallion Salsa**\
+`A smoky, zippy mix of charred scallions, cilantro, jalapeño and lime perks up summer’s sweet zucchini and skin-on chicken breasts.`\
+https://nytimes.com/2025/08/16/dining/an-easy-chicken-and-zucchini-dinner-with-charred-scallion-salsa.html
+
 **National Guard Detained Man Who Assaulted a Park Police Officer, Authorities Say**\
 `It was the first such action by the Guard since its deployment in Washington.`\
 https://nytimes.com/2025/08/16/us/politics/national-guard-detained-man.html
