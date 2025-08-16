@@ -7,7 +7,7 @@ https://nytimes.com/live/2025/08/16/world/trump-putin-meeting-alaska/the-power-o
 https://nytimes.com/2025/08/16/world/europe/trump-putin-ukraine-land-swap.html
 
 **The Briefing: Aston Villa 0 Newcastle 0 - Anti-PSR chants, Isak and Ramsey absences**\
-`Aston Villa and Newcastle United played out a 0-0 draw in the opening game of their Premier League seasons.`\
+`In their Premier League opener, both sides looked flat, leaving fans to rail against spending rules`\
 https://nytimes.com/athletic/6553530/2025/08/16/aston-villa-newcastle-result-report-analysis/
 
 **Trump Administration Live Updates: Federal Government Agrees in Court That D.C. Chief Controls City Police**\
