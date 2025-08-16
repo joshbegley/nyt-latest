@@ -1,3 +1,11 @@
+**Brewers erase 7-run deficit, extend winning streak to 13 games**\
+`Milwaukee's magical run continues as Christian Yelich had a four-hit, two-homer game with his Players' Weekend bat dedicated to Bob Uecker.`\
+https://nytimes.com/athletic/6556744/2025/08/15/brewers-13-game-winning-streak-christian-yelich/
+
+**6 Takeaways From Trump’s Meeting With Putin**\
+`While no deal was announced, the Russian leader secured some wins and left on good terms with the U.S. president.`\
+https://nytimes.com/2025/08/15/us/politics/trump-putin-meeting-takeaways.html
+
 **Full of Snickers**\
 `Grab this tough-looking Byron Walden puzzle by the horns.`\
 https://nytimes.com/2025/08/15/crosswords/daily-puzzle-2025-08-16.html
