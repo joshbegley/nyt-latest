@@ -1,3 +1,7 @@
+**Vikings' backup QB situation and other risers and fallers from preseason loss to Patriots**\
+`Rookie QB Max Brosmer's decision-making and command were impressive Saturday, while the Vikings' returner situation is looking dire.`\
+https://nytimes.com/athletic/6557608/2025/08/16/vikings-patriots-max-brosmer-backup-qb/
+
 **Democrats Gather for Protests Over Trump’s Push on Redistricting**\
 `Thousands assembled around the country to demonstrate against a Republican effort to redraw congressional maps in their favor for 2026.`\
 https://nytimes.com/2025/08/16/us/politics/texas-democrats-redistricting-protests.html
@@ -7,7 +11,7 @@ https://nytimes.com/2025/08/16/us/politics/texas-democrats-redistricting-protest
 https://nytimes.com/2025/08/16/crosswords/daily-puzzle-2025-08-17.html
 
 **Josh Hader's regular season is likely over. Are his days as a multi-inning reliever numbered?**\
-`“At the end of the day, fatigue is fatigue,” the Astros' closer said. “The only way you can recover from fatigue is rest."`\
+`“Fatigue is fatigue,” the Astros' closer said. “The only way you can recover from fatigue is rest."`\
 https://nytimes.com/athletic/6557590/2025/08/16/astros-josh-hader-injury-multi-inning-reliever/
 
 **Panthers 53-man roster projection: Will they keep 7 WRs? A surprise cut on D-line**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6557421/2025/08/16/lyles-hodgkinson-warholm-richard
 **Fox News Warrior Takes on Prosecutor Role in Trump’s D.C. Crackdown**\
 `As the U.S. attorney in Washington, Jeanine Pirro is a central player in a clash that could define her legacy: the president’s takeover of local law enforcement.`\
 https://nytimes.com/2025/08/16/us/politics/jeanine-pirro-trump-dc-police.html
-
-**1961 Topps Roger Maris #2: Our sports card of the week**\
-`As Cal Raleigh maintains a 60-plus home run pace, we look back at a notable card of a man who hit 61 in '61. `\
-https://nytimes.com/athletic/6556686/2025/08/16/roger-maris-1961-topps-card/
 
