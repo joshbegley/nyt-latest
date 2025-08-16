@@ -1,3 +1,7 @@
+**Tristan Rogers, ‘General Hospital’ Actor, Dies at 79**\
+`He became a fixture on the popular daytime television show as Robert Scorpio, a spy who became a police commissioner.`\
+https://nytimes.com/2025/08/16/arts/television/tristan-rogers-dead.html
+
 **Why Chelsea are not inclined to sign a new centre-back this summer**\
 `Enzo Maresca went public with his desire for a new centre-half after Levi Colwill suffered long-term injury, but he will go disappointed`\
 https://nytimes.com/athletic/6557326/2025/08/16/chelsea-maresca-centre-half-colwill/

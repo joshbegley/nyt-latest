@@ -23,7 +23,7 @@ https://nytimes.com/2025/08/16/us/politics/trump-putin-approach-ukraine.html
 https://nytimes.com/2025/08/16/us/politics/west-virginia-national-guard-dc.html
 
 **Tristan Rogers, ‘General Hospital’ Actor, Dies at 79**\
-`Mr. Rogers became a fixture on the daytime television show as Robert Scorpio, a spy who became a police commissioner.`\
+`He became a fixture on the popular daytime television show as Robert Scorpio, a spy who became a police commissioner.`\
 https://nytimes.com/2025/08/16/arts/television/tristan-rogers-dead.html
 
 **Frank: Bissouma missed Burnley game due to injury**\
