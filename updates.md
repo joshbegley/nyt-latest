@@ -1,3 +1,7 @@
+**The power of the Trump-Putin presidential photo op.**\
+`By Vanessa Friedman`\
+https://nytimes.com/live/2025/08/16/world/trump-putin-meeting-alaska/trump-putin-red-carpet-photo-op
+
 **Tottenham 3 Burnley 0 - Frank's young midfield, Richarlison finds form, Dubravka's unwanted history**\
 `Breaking down the key moments from Tottenham's opening Premier League win over Burnley`\
 https://nytimes.com/athletic/6553539/2025/08/16/tottenham-3-burnley-0-highlights/

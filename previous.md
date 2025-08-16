@@ -36,5 +36,5 @@ https://nytimes.com/athletic/6557147/2025/08/16/terry-mclaurin-commanders-activa
 
 **The power of the Trump-Putin presidential photo op.**\
 `By Vanessa Friedman`\
-https://nytimes.com/2025/08/16/world/europe/the-power-of-the-trump-putin-presidential-photo-op.html
+https://nytimes.com/live/2025/08/16/world/trump-putin-meeting-alaska/trump-putin-red-carpet-photo-op
 
