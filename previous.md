@@ -1,3 +1,7 @@
+**New Orleans Mayor Joins Long Line of Louisiana Politicians Accused of Corruption**\
+`For decades, Louisiana lawmakers at all levels of government have been caught up in corruption allegations.`\
+https://nytimes.com/2025/08/16/us/new-orleans-mayor-louisiana-corruption.html
+
 **Trump Backs Off Cease-Fire Demand in Ukraine War, Aligning With Putin**\
 `President Trump’s break from a strategy agreed to with European allies could give President Vladimir V. Putin of Russia an edge as talks to end the fighting continue.`\
 https://nytimes.com/2025/08/16/world/europe/trump-putin-ukraine-ceasefire-peace-deal.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6557415/2025/08/16/nascar-xfinity-series-new-sponso
 **Joel DeMott, Whose Documentary Was Rejected by PBS, Dies at 78**\
 `Her “Seventeen,” a study of teenagers later recognized as a major work of cinéma vérité, was pulled from a public TV series in 1982 under pressure from its sponsor.`\
 https://nytimes.com/2025/08/16/arts/joel-demott-dead.html
-
-**Barcelona beat nine-man Mallorca 3-0 in La Liga opener as Rashford debuts**\
-`Goals from Raphinha, Ferran Torres and Lamine Yamal gave Hansi Flick's side a comfortable win.`\
-https://nytimes.com/athletic/6557412/2025/08/16/barcelona-mallorca-la-liga-rashford/
 

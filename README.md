@@ -1,3 +1,7 @@
+**Panthers 53-man roster projection: Will they keep 7 WRs? A surprise cut on D-line**\
+`Carolina has tough decisions with a deep receiver group and Dan Morgan could be on the lookout for a corner not on the current roster.`\
+https://nytimes.com/athletic/6557525/2025/08/16/panthers-53-man-roster-projection-preseason/
+
 **New Orleans Mayor Joins Long Line of Louisiana Politicians Accused of Corruption**\
 `For decades, Louisiana lawmakers at all levels of government have been caught up in corruption allegations.`\
 https://nytimes.com/2025/08/16/us/new-orleans-mayor-louisiana-corruption.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6557498/2025/08/16/colts-packers-anthony-richardson
 **NASCAR lands new series sponsorship deal with O'Reilly Auto Parts: Sources**\
 `Xfinity has been the entitlement sponsor for the past 11 years but will continue as a premier partner for NASCAR’s top-level Cup Series.`\
 https://nytimes.com/athletic/6557415/2025/08/16/nascar-xfinity-series-new-sponsor-oreilly-auto-parts/
-
-**Joel DeMott, Whose Documentary Was Rejected by PBS, Dies at 78**\
-`Her “Seventeen,” a study of teenagers later recognized as a major work of cinéma vérité, was pulled from a public TV series in 1982 under pressure from its sponsor.`\
-https://nytimes.com/2025/08/16/arts/joel-demott-dead.html
 

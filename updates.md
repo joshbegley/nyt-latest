@@ -1,3 +1,7 @@
+**New Orleans Mayor Joins Long Line of Louisiana Politicians Accused of Corruption**\
+`For decades, Louisiana lawmakers at all levels of government have been caught up in corruption allegations.`\
+https://nytimes.com/2025/08/16/us/new-orleans-mayor-louisiana-corruption.html
+
 **Trump Backs Off Cease-Fire Demand in Ukraine War, Aligning With Putin**\
 `President Trump’s break from a strategy agreed to with European allies could give President Vladimir V. Putin of Russia an edge as talks to end the fighting continue.`\
 https://nytimes.com/2025/08/16/world/europe/trump-putin-ukraine-ceasefire-peace-deal.html
