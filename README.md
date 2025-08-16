@@ -1,3 +1,7 @@
+**Two Decades of Putin Playing the West**\
+`For more than 20 years, Western leaders have played right into Putin’s hands — and given one a shake.`\
+https://nytimes.com/video/opinion/100000010343291/two-decades-of-putin-playing-the-west.html
+
 **4 Takeaways From the Week Trump Took Control of D.C.’s Police**\
 `The administration’s grip on the city has only tightened as the week has worn on, while pushback has begun to intensify.`\
 https://nytimes.com/2025/08/15/us/politics/trump-washington-crime-takeaways.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/15/t-magazine/beauty-essentials-summer-heat.html
 **The Rapper Sean Kingston Is Sentenced to 3½ Years in $1 Million Fraud Scheme**\
 `A Florida jury convicted the hip-hop artist and his mother in a federal fraud case that centered on luxury goods, which prosecutors said that Mr. Kingston did not pay for.`\
 https://nytimes.com/2025/08/15/us/sean-kingston-fraud-sentenced-prison.html
-
-**Fox News will interview Trump three times during the summit with Putin.**\
-`President Trump is expected to speak with Sean Hannity after meeting with the Russian leader. Bret Baier is interviewing Mr. Trump twice on Air Force One.`\
-https://nytimes.com/live/2025/08/15/world/trump-putin-meeting-alaska/fox-news-will-interview-trump-three-times-during-the-summit-with-putin
 
