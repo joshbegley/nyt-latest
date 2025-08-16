@@ -1,3 +1,7 @@
+**Federico Chiesa finally has his moment in a Liverpool shirt after a year of waiting**\
+`Liverpool beat Bournemouth 4-2 on Friday night, with Federico Chiesa scoring a crucial goal`\
+https://nytimes.com/athletic/6556573/2025/08/16/federico-chiesa-liverpool-bournemouth-analysis/
+
 **Trump and Putin’s isolated limousine conversation.**\
 `By Andrew Das and John Yoon`\
 https://nytimes.com/live/2025/08/15/world/trump-putin-meeting-alaska/trump-putin-limousine-meeting
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6555860/2025/08/16/manchester-united-van-gaal-di-ma
 **Picking Manchester City's 2025-26 breakout player: Oscar Bobb**\
 `Bobb is back from injury and needs to prove he is special enough to hang with City's front three`\
 https://nytimes.com/athletic/6553659/2025/08/16/oscar-bobb-manchester-city-breakthrough-player/
-
-**Why are Real Madrid starting the new La Liga season on a Tuesday?**\
-`The Spanish side asked for their opening match to be postponed, but the request was rejected`\
-https://nytimes.com/athletic/6550797/2025/08/16/real-madrid-la-liga-start-tuesday/
 
