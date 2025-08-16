@@ -1,3 +1,7 @@
+**Israel Gears Up for Nationwide Strike to Support Hostages**\
+`Nearly two years of demonstrations have failed to push Prime Minister Benjamin Netanyahu to reach a deal with Hamas that would end the war and free the remaining captives`\
+https://nytimes.com/2025/08/16/world/middleeast/israel-nationwide-strike-hostages.html
+
 **After Alaska Summit, Europeans Are Relieved, for Now**\
 `The problem is that they have no strategy of their own for ending the Ukraine war, other than hoping to contain Russia over the longer term.`\
 https://nytimes.com/2025/08/16/world/europe/putin-trump-alaska-summit-ukraine.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6556783/2025/08/16/red-sox-fenway-home-record-playo
 **Strands Sidekick No. 532**\
 `Scroll down for hints and conversation about the puzzle for Sunday, Aug. 17, 2025.`\
 https://nytimes.com/2025/08/16/crosswords/strands-sidekick-532.html
-
-**Connections Companion No. 798**\
-`Scroll down for hints and conversation about the puzzle for Sunday, Aug. 17, 2025.`\
-https://nytimes.com/2025/08/16/crosswords/connections-companion-798.html
 
