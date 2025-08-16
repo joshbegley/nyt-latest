@@ -1,3 +1,7 @@
+**Man arrested after Semenyo report of racist abuse during Liverpool game**\
+`The opening match of the new season was paused in the first-half after Semenyo reported an alleged incident of racist abuse.`\
+https://nytimes.com/athletic/6556942/2025/08/16/antoine-semenyo-liverpool-racist-abuse-arrest/
+
 **Ukraine Tries to Understand Why Trump Suddenly Abandoned Idea of Cease-Fire**\
 `President Volodymyr Zelensky of Ukraine will go to Washington on Monday seeking answers.`\
 https://nytimes.com/2025/08/16/world/europe/ukraine-russia-trump-zelensky.html

@@ -1,3 +1,7 @@
+**Man arrested after Semenyo report of racist abuse during Liverpool game**\
+`The opening match of the new season was paused in the first-half after Semenyo reported an alleged incident of racist abuse.`\
+https://nytimes.com/athletic/6556942/2025/08/16/antoine-semenyo-liverpool-racist-abuse-arrest/
+
 **Ukraine Tries to Understand Why Trump Suddenly Abandoned Idea of Cease-Fire**\
 `President Volodymyr Zelensky of Ukraine will go to Washington on Monday seeking answers.`\
 https://nytimes.com/2025/08/16/world/europe/ukraine-russia-trump-zelensky.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6556886/2025/08/16/dodgers-padres-nl-west-clayton-k
 **New Texas Laws Open a Wild West for Corporate Governance**\
 `The state has handed big business a series of legislative wins as it races to woo corporations from Delaware, including a law that helped pave the way for Elon Musk’s big Tesla payday.`\
 https://nytimes.com/2025/08/16/business/dealbook/texas-incorporation-delaware.html
-
-**Seahawks’ new-look offense aces its biggest test yet, dominating Chiefs: Takeaways**\
-`The Seahawks' first-string offense looked better than anyone could have hoped, in what was likely its only action before the season opener.`\
-https://nytimes.com/athletic/6556889/2025/08/16/seahawks-chiefs-preseason-offensive-line/
 
