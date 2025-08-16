@@ -1,3 +1,7 @@
+**California Lawmakers Release a Proposed House Map Favoring Democrats**\
+`The plan would help Democrats flip five seats, offsetting the gains Republicans hope to make by redrawing maps in Texas.`\
+https://nytimes.com/2025/08/15/us/california-redistricting-maps-released.html
+
 **Chicago Cubs and Pete Crow-Armstrong want you to believe that everything is fine**\
 `Pete Crow-Armstrong's MVP campaign continues to lose steam as the Cubs went from tied for first place to eight games behind Milwaukee.`\
 https://nytimes.com/athletic/6556597/2025/08/15/pete-crow-armstrong-chicago-cubs-playoff/
