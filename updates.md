@@ -1,3 +1,7 @@
+**Trump Backs Off Cease-Fire Demand in Ukraine War, Aligning With Putin**\
+`President Trump’s break from a strategy agreed to with European allies could give President Vladimir V. Putin of Russia an edge as talks to end the fighting continue.`\
+https://nytimes.com/2025/08/16/world/europe/trump-putin-ukraine-ceasefire-peace-deal.html
+
 **Guardiola: Man City squad still too big, situation is 'not healthy'**\
 `City have signed six new players this summer.`\
 https://nytimes.com/athletic/6557535/2025/08/16/pep-guardiola-manchester-city-squad-size/
