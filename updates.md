@@ -1,3 +1,11 @@
+**Putin keeps talking about the ‘root causes’ of the war. What does he mean?**\
+`By Michael Schwirtz`\
+https://nytimes.com/live/2025/08/16/world/trump-putin-meeting-alaska/putin-keeps-talking-about-the-root-causes-of-the-war-what-does-he-mean
+
+**The Briefing: Wolves 0 Manchester City 4 - How good are Bobb and Reijnders? Is Trafford No 1? What must Pep still solve?**\
+`Analysis of Manchester City's victory over Wolves`\
+https://nytimes.com/athletic/6553550/2025/08/16/wolves-manchester-city-highlights/
+
 **Wolves 0 Manchester City 4 - How good are Bobb and Reijnders? Is Trafford No 1? What must Pep still solve?**\
 `Analysis of Manchester City's victory over Wolves`\
 https://nytimes.com/athletic/6553550/2025/08/16/wolves-manchester-city-highlights/

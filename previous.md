@@ -1,4 +1,8 @@
-**Wolves 0 Manchester City 4 - How good are Bobb and Reijnders? Is Trafford No 1? What must Pep still solve?**\
+**Putin keeps talking about the ‘root causes’ of the war. What does he mean?**\
+`By Michael Schwirtz`\
+https://nytimes.com/live/2025/08/16/world/trump-putin-meeting-alaska/putin-keeps-talking-about-the-root-causes-of-the-war-what-does-he-mean
+
+**The Briefing: Wolves 0 Manchester City 4 - How good are Bobb and Reijnders? Is Trafford No 1? What must Pep still solve?**\
 `Analysis of Manchester City's victory over Wolves`\
 https://nytimes.com/athletic/6553550/2025/08/16/wolves-manchester-city-highlights/
 
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/08/16/world/trump-putin-meeting-alaska/europe-move
 **U.S., GB collision mars dramatic opening day at Germany Sail Grand Prix**\
 `Australia hold top spot at the end of a hectic day with an eight point lead over New Zealand.`\
 https://nytimes.com/athletic/6557298/2025/08/16/sailgp-germany-american-british-collision/
-
-**With Putin by his side, Trump repeats his claims of a ‘Russia Hoax.’**\
-`By The New York Times`\
-https://nytimes.com/live/2025/08/16/world/trump-putin-meeting-alaska/with-putin-by-his-side-trump-repeats-his-claims-of-a-russia-hoax
 
