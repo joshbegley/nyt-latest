@@ -1,3 +1,15 @@
+**'Great opportunity ahead': Why the Cubs believe they still control their own destiny**\
+`Shota Imanaga’s steady performance Saturday helped the Cubs snap a 35-game streak without a comeback win, the longest in franchise history.`\
+https://nytimes.com/athletic/6557701/2025/08/16/why-cubs-believe-they-control-their-own-destiny/
+
+**Has Kyle Allen earned Lions' backup QB job? 6 players who impressed vs. Dolphins**\
+`Kyle Allen is "playing better" than Hendon Hooker and has tossed four total TD passes in the past two preseason contests.`\
+https://nytimes.com/athletic/6557684/2025/08/16/lions-preseason-top-players-kyle-allen-dolphins/
+
+**U.S. Pauses Visitor Visas for Gazans After Right-Wing Outcry**\
+`The move blocked a pathway for those seeking medical care in the United States, including young children who arrived in recent weeks with serious conditions.`\
+https://nytimes.com/2025/08/16/us/politics/gaza-visitor-visas-medical-trump-loomer.html
+
 **Packers stock report: Who struggled and who impressed in comeback win over Colts?**\
 `Green Bay erased a 13-0 deficit in Indianapolis on Saturday and beat the Colts 23-19 in the second of three preseason games.`\
 https://nytimes.com/athletic/6557740/2025/08/16/packers-stock-report-colts-preseason/
