@@ -1,3 +1,7 @@
+**Big wins, progressions and causes for concern at Silesia Diamond League**\
+`Silesia was a melting pot and proving ground for six Olympic/World champions, who had question marks by their name ahead of Worlds.`\
+https://nytimes.com/athletic/6557421/2025/08/16/lyles-hodgkinson-warholm-richardson-silesia-diamond-league/
+
 **Fox News Warrior Takes on Prosecutor Role in Trump’s D.C. Crackdown**\
 `As the U.S. attorney in Washington, Jeanine Pirro is a central player in a clash that could define her legacy: the president’s takeover of local law enforcement.`\
 https://nytimes.com/2025/08/16/us/politics/jeanine-pirro-trump-dc-police.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6557310/2025/08/16/big-ten-college-football-playoff
 **Mateo Joseph interview on his Leeds exit: 'I don't think Daniel Farke had much confidence in me'**\
 `The 21-year-old striker has his say on what happened this summer in an exclusive interview with The Athletic`\
 https://nytimes.com/athletic/6555250/2025/08/16/mateo-joseph-leeds-farke-interview/
-
-**Why Chelsea are not inclined to sign a new centre-back this summer**\
-`Enzo Maresca went public with his desire for a new centre-half after Levi Colwill suffered long-term injury, but he will go disappointed`\
-https://nytimes.com/athletic/6557326/2025/08/16/chelsea-maresca-centre-half-colwill/
 

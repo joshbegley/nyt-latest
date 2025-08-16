@@ -1,3 +1,7 @@
+**Big wins, progressions and causes for concern at Silesia Diamond League**\
+`Silesia was a melting pot and proving ground for six Olympic/World champions, who had question marks by their name ahead of Worlds.`\
+https://nytimes.com/athletic/6557421/2025/08/16/lyles-hodgkinson-warholm-richardson-silesia-diamond-league/
+
 **Fox News Warrior Takes on Prosecutor Role in Trump’s D.C. Crackdown**\
 `As the U.S. attorney in Washington, Jeanine Pirro is a central player in a clash that could define her legacy: the president’s takeover of local law enforcement.`\
 https://nytimes.com/2025/08/16/us/politics/jeanine-pirro-trump-dc-police.html
