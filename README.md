@@ -1,3 +1,7 @@
+**Putin flatters Trump by echoing his claims about the war in Ukraine.**\
+`By Erica L. Green`\
+https://nytimes.com/live/2025/08/15/world/trump-putin-meeting-alaska/putin-flatters-trump-by-echoing-his-claims-about-the-war-in-ukraine
+
 **At Nationals Park, It Was Game Time as Usual**\
 `A warm and muggy Friday night seemed to have a typical ballgame atmosphere in Washington.`\
 https://nytimes.com/2025/08/15/us/politics/at-nationals-park-it-was-game-time-as-usual.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6556650/2025/08/15/yankees-brian-cashman-aaron-boon
 **Padres' Michael King 'feeling a lot better,' hopes to return from IL in time to face Mariners**\
 `King could have pitched Friday, but not without pain, "and it's just not a recipe for short- and longer-term success," Mike Shildt said.`\
 https://nytimes.com/athletic/6556652/2025/08/15/padres-michael-king-injury/
-
-**Trump and Putin Put on a Show of Friendship but Come Away Without a Deal**\
-`President Trump gave President Vladimir Putin a warm public reception, effectively ending his diplomatic isolation over the past three years for his invasion of Ukraine. But Mr. Putin did not agree to stop the war.`\
-https://nytimes.com/2025/08/15/us/politics/trump-putin-alaska-ukraine.html
 
