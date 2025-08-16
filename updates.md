@@ -1,3 +1,7 @@
+**Federico Chiesa finally has his moment in a Liverpool shirt after a year of waiting**\
+`Liverpool beat Bournemouth 4-2 on Friday night, with Federico Chiesa scoring a crucial goal`\
+https://nytimes.com/athletic/6556573/2025/08/16/federico-chiesa-liverpool-bournemouth-analysis/
+
 **Ramón Urías spoke in the Astros' advance meeting. Then his former team almost perfect-gamed them**\
 `Urías and the Astros fell 7-0 to the Orioles, from whom Houston acquired the 31-year-old middle infielder 16 days ago.`\
 https://nytimes.com/athletic/6556836/2025/08/16/astros-ramon-urias-hitters-orioles/
