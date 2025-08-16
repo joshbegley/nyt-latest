@@ -1,40 +1,40 @@
-**After Summit, Trump Heaps Praise on Putin in Fox News Interview**\
-`President Trump offered Sean Hannity few details of what he had discussed with President Vladimir V. Putin about Russia’s war in Ukraine, but talked up their personal connection.`\
-https://nytimes.com/2025/08/16/world/europe/trump-hannity-interview-fox-news.html
+**Trump vs. the U.S. Economy**\
+`Natasha Sarin walks through how Trump’s tariffs, the A.I. boom and the leadership shake-up at the Bureau of Labor Statistics are impacting the economy.`\
+https://nytimes.com/2025/08/16/opinion/ezra-klein-podcast-natasha-sarin.html
 
-**Palace approach Leicester over deal for El Khannouss**\
-`The 21-year-old attacking midfielder has been considered by a number of Premier League sides following Leicester’s relegation.`\
-https://nytimes.com/athletic/6332314/2025/08/16/crystal-palace-transfers-bilal-el-khannouss/
+**Detroit Tigers' Dillon Dingler reveals what it’s like catching Tarik Skubal**\
+`Dingler talks about how he built trust with the reigning Cy Young winner in his first full MLB season. `\
+https://nytimes.com/athletic/6554085/2025/08/16/detroit-tigers-tarik-skubal-dillon-dingler/
 
-**No Deal**\
-`President Trump came home empty-handed.`\
-https://nytimes.com/2025/08/16/briefing/no-deal.html
+**These 3 Chiefs concerns loom after second preseason game vs. Seahawks**\
+`Some Chiefs' big-picture issues include depth at one position, consistency at another and health at a third.`\
+https://nytimes.com/athletic/6556674/2025/08/16/chiefs-concerns-preseason-loss-seahawks/
 
-**Israel Gears Up for Nationwide Strike to Support Hostages**\
-`Nearly two years of demonstrations have failed to push Prime Minister Benjamin Netanyahu to reach a deal with Hamas that would end the war and free the remaining captives`\
-https://nytimes.com/2025/08/16/world/middleeast/israel-nationwide-strike-hostages.html
+**Blues mailbag, Part 1: Season predictions, line combos, Dvorsky's chances, Mailloux's ceiling**\
+`The Blues are trickling into town this month, and associate coach Steve Ott says they're raring to go in 2025-26. `\
+https://nytimes.com/athletic/6555485/2025/08/16/blues-mailbag-dalibor-dvorsky-logan-mailloux/
 
-**After Alaska Summit, Europeans Are Relieved, for Now**\
-`The problem is that they have no strategy of their own for ending the Ukraine war, other than hoping to contain Russia over the longer term.`\
-https://nytimes.com/2025/08/16/world/europe/putin-trump-alaska-summit-ukraine.html
+**Planning a college sports road trip? These are the 25 best stops you can make**\
+`Pack your bags: This is The Athletic's must-visit college sporting events in 2025.`\
+https://nytimes.com/athletic/6553497/2025/08/16/best-college-sports-towns-road-trip/
 
-**Alejandro Kirk's first career stolen base caps wild comeback win for Blue Jays**\
-`It was the first swiped bag in a six-year, 532-game career for a catcher with one of the lowest average sprint speeds in baseball. `\
-https://nytimes.com/athletic/6556814/2025/08/16/alejandro-kirk-stolen-base-blue-jays/
+**Criminal Fights Crime**\
+`Democrats should remember: “It’s the crime, stupid!”`\
+https://nytimes.com/2025/08/16/opinion/criminal-fights-crime.html
 
-**I lost a no-hitter in the 9th inning. This is what that experience — and Roy Halladay — taught me**\
-`Former MLB pitcher Dustin McGowan said he gained some added perspective after losing his no-hitter. `\
-https://nytimes.com/athletic/6553357/2025/08/16/i-lost-a-no-hitter-in-the-9th-inning-this-is-what-that-experience-and-roy-halladay-taught-me/
+**‘KPop Demon Hunters’ Is My Kind of Globalism**\
+`The Netflix animated blockbuster might be proof that we are finally living in a post-multicultural world.`\
+https://nytimes.com/2025/08/16/opinion/kpop-demon-hunters-globalism.html
 
-**James Pearce Jr. barely leaves the field as Jalon Walker misses Falcons' preseason loss**\
-`Pearce, Atlanta's rookie pass rusher, has played more snaps than any player on the team in practice and is plenty busy in games, too.`\
-https://nytimes.com/athletic/6556809/2025/08/16/falcons-titans-james-pearce-jalon-walker/
+**Answering My Critics About the War in Gaza**\
+`Why I believe American support for Israel in this conflict is a moral and practical failure.`\
+https://nytimes.com/2025/08/16/opinion/israel-hamas-gaza-starvation.html
 
-**My Neighbor Gave My Injured Cat Morphine. Can I Blame Her for His Death?**\
-`He was such a perfect little guy.`\
-https://nytimes.com/2025/08/16/magazine/neighbor-dead-cat-ethics.html
+**Trump’s Political Theater Won’t Save D.C.**\
+`It’s been a summer full of Trump’s overreach. Our round table convenes to discuss.`\
+https://nytimes.com/2025/08/16/opinion/trump-national-guard-crime-dc.html
 
-**Wordle Review No. 1,520**\
-`Scroll down for hints and conversation about the puzzle for Sunday, Aug. 17, 2025.`\
-https://nytimes.com/2025/08/16/crosswords/wordle-review-1520.html
+**Trump vs. the U.S. Economy**\
+`Natasha Sarin walks through how Trump’s tariffs, the A.I. boom and the leadership shake-up at the Bureau of Labor Statistics are impacting the economy.`\
+https://nytimes.com/video/opinion/100000010328969/trump-vs-the-us-economy.html
 
