@@ -1,3 +1,7 @@
+**Putin flatters Trump by echoing his claims about the war in Ukraine.**\
+`By Erica L. Green`\
+https://nytimes.com/live/2025/08/15/world/trump-putin-meeting-alaska/putin-flatters-trump-by-echoing-his-claims-about-the-war-in-ukraine
+
 **At Nationals Park, It Was Game Time as Usual**\
 `A warm and muggy Friday night seemed to have a typical ballgame atmosphere in Washington.`\
 https://nytimes.com/2025/08/15/us/politics/at-nationals-park-it-was-game-time-as-usual.html
