@@ -1,3 +1,7 @@
+**Phillies place Zack Wheeler on injured list due to blood clot near right shoulder**\
+`Philadelphia's ace will be out for an unspecified amount of time. He last pitched on Friday against the Nationals.`\
+https://nytimes.com/athletic/6557719/2025/08/16/phillies-zack-wheeler-injury-blood-clot/
+
 **Browns' QB competition rolls on as Dillon Gabriel starts amid hamstring tightness**\
 `Coach Kevin Stefanski still hasn't announced who has won the competition.`\
 https://nytimes.com/athletic/6557618/2025/08/16/browns-qb-competition-dillon-gabriel-start/
