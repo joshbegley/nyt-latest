@@ -1,3 +1,7 @@
+**We should be talking about Antoine Semenyo's football. But football still has a racism problem**\
+`Semenyo scored twice at Anfield on Friday night. But that does not tell the story of his evening`\
+https://nytimes.com/athletic/6556774/2025/08/16/antoine-semenyo-bournemouth-liverpool-racism/
+
 **Federico Chiesa finally has his moment in a Liverpool shirt after a year of waiting**\
 `Liverpool beat Bournemouth 4-2 on Friday night, with Federico Chiesa scoring a crucial goal`\
 https://nytimes.com/athletic/6556573/2025/08/16/federico-chiesa-liverpool-bournemouth-analysis/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6555255/2025/08/16/mcatee-man-city-nottingham-fores
 **The last time United weren't in Europe - Big signings, long empty weeks and a happy(ish) ending**\
 `United's 2014-15 vintage were a team in transition - as one fan put it, 'from bad to worse' - but they did at least finish fourth...`\
 https://nytimes.com/athletic/6555860/2025/08/16/manchester-united-van-gaal-di-maria-falcao-2014-2015/
-
-**Picking Manchester City's 2025-26 breakout player: Oscar Bobb**\
-`Bobb is back from injury and needs to prove he is special enough to hang with City's front three`\
-https://nytimes.com/athletic/6553659/2025/08/16/oscar-bobb-manchester-city-breakthrough-player/
 

@@ -1,3 +1,7 @@
+**We should be talking about Antoine Semenyo's football. But football still has a racism problem**\
+`Semenyo scored twice at Anfield on Friday night. But that does not tell the story of his evening`\
+https://nytimes.com/athletic/6556774/2025/08/16/antoine-semenyo-bournemouth-liverpool-racism/
+
 **Federico Chiesa finally has his moment in a Liverpool shirt after a year of waiting**\
 `Liverpool beat Bournemouth 4-2 on Friday night, with Federico Chiesa scoring a crucial goal`\
 https://nytimes.com/athletic/6556573/2025/08/16/federico-chiesa-liverpool-bournemouth-analysis/
