@@ -1,3 +1,11 @@
+**Russia holds a battlefield advantage over Ukraine.**\
+`By Constant Méheut`\
+https://nytimes.com/live/2025/08/16/world/trump-putin-meeting-alaska/russia-ukraine-war-death-toll-land
+
+**After years of pressure in Europe, Jonas Eidevall is learning to let go with San Diego Wave**\
+`The former Arsenal head coach, now seven months into his new job in the NWSL, has been prioritizing collaboration over instant results`\
+https://nytimes.com/athletic/6556786/2025/08/16/nwsl-soccer-jonas-eidevall-san-diego-wave/
+
 **Rashford, Garcia registered by La Liga in time for Barcelona's first game**\
 `Both players will be eligible to feature against Mallorca on Saturday evening.`\
 https://nytimes.com/athletic/6546292/2025/08/16/marcus-rashford-barcelona-registration-la-liga/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/08/16/style/and-just-like-that-style-fashion.html
 **Want to Find the Love of Your Life? Look Up.**\
 `As our digital worlds continue to steal our attention, some people are taking a more intentional approach to meeting strangers in real life.`\
 https://nytimes.com/2025/08/16/style/want-to-find-the-love-of-your-life-look-up.html
-
-**Eric Cartman, Welcome (for Now) to the Resistance**\
-`For decades, “South Park” has been crude, cynical and childish. That may be what makes it perfect for this moment.`\
-https://nytimes.com/2025/08/16/arts/television/south-park-trump-administration-paramount.html
-
-**Where D.C. Crime Is Bad, Residents Question Trump’s Motives**\
-`The president might have found allies in Southeast Washington, where violent crime has long vexed residents. But when he described the city as “disgusting,” with “roving mobs,” his remarks left those looking for help cold.`\
-https://nytimes.com/2025/08/16/us/politics/trump-washington-crime.html
 
