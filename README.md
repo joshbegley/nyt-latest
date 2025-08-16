@@ -1,3 +1,15 @@
+**After Summit, Trump Heaps Praise on Putin in Fox News Interview**\
+`President Trump offered Sean Hannity few details of what he had discussed with President Vladimir V. Putin about Russia’s war in Ukraine, but talked up their personal connection.`\
+https://nytimes.com/2025/08/16/world/europe/trump-hannity-interview-fox-news.html
+
+**Palace approach Leicester over deal for El Khannouss**\
+`The 21-year-old attacking midfielder has been considered by a number of Premier League sides following Leicester’s relegation.`\
+https://nytimes.com/athletic/6332314/2025/08/16/crystal-palace-transfers-bilal-el-khannouss/
+
+**No Deal**\
+`President Trump came home empty-handed.`\
+https://nytimes.com/2025/08/16/briefing/no-deal.html
+
 **Israel Gears Up for Nationwide Strike to Support Hostages**\
 `Nearly two years of demonstrations have failed to push Prime Minister Benjamin Netanyahu to reach a deal with Hamas that would end the war and free the remaining captives`\
 https://nytimes.com/2025/08/16/world/middleeast/israel-nationwide-strike-hostages.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/08/16/magazine/neighbor-dead-cat-ethics.html
 **Wordle Review No. 1,520**\
 `Scroll down for hints and conversation about the puzzle for Sunday, Aug. 17, 2025.`\
 https://nytimes.com/2025/08/16/crosswords/wordle-review-1520.html
-
-**Life in a City Where English Is the Minority Language**\
-`Some thoughts from Quebec City’s English-speaking community.`\
-https://nytimes.com/2025/08/16/world/canada/quebec-city-english-minority-language.html
-
-**Red Sox own one of MLB's best home records, a good sign for playoff push**\
-`Boston's exciting play is bringing fans back to Fenway Park. The packed houses, players say, fuel the team and rattle the opponent.`\
-https://nytimes.com/athletic/6556783/2025/08/16/red-sox-fenway-home-record-playoff-push/
-
-**Strands Sidekick No. 532**\
-`Scroll down for hints and conversation about the puzzle for Sunday, Aug. 17, 2025.`\
-https://nytimes.com/2025/08/16/crosswords/strands-sidekick-532.html
 
