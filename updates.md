@@ -1,3 +1,15 @@
+**Chicago Cubs and Pete Crow-Armstrong want you to believe that everything is fine**\
+`Pete Crow-Armstrong's MVP campaign continues to lose steam as the Cubs went from tied for first place to eight games behind Milwaukee.`\
+https://nytimes.com/athletic/6556597/2025/08/15/pete-crow-armstrong-chicago-cubs-playoff/
+
+**Dodgers place Max Muncy on injured list with right oblique strain**\
+`Though Dave Roberts said the Grade 1 strain isn't expected to end Muncy's season, there is no timeline for his return.`\
+https://nytimes.com/athletic/6556566/2025/08/15/max-muncy-injury-dodgers/
+
+**In Russia, Putin’s meeting with Trump plays as a triumph.**\
+`By Neil MacFarquhar and Alina Lobzina`\
+https://nytimes.com/live/2025/08/15/world/trump-putin-meeting-alaska/in-russia-putins-meeting-with-trump-plays-as-a-triumph
+
 **Two Decades of Putin Playing the West**\
 `For more than 20 years, Western leaders have played right into Putin’s hands — and given one a shake.`\
 https://nytimes.com/video/opinion/100000010343291/two-decades-of-putin-playing-the-west.html
