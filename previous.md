@@ -1,3 +1,11 @@
+**Christian Yelich wasn't sure if he should use his Bob Uecker bat. The Brewers are glad he did**\
+`After his first homer, the Brewers' equipment manager told Yelich not to put the bat away: “You have to keep going.”`\
+https://nytimes.com/athletic/6556837/2025/08/16/christian-yelich-bob-ueker-bat-brewers-winning-streak/
+
+**The New York Times in Print for Saturday, Aug. 16, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/08/16/todays-new-york-times
+
 **The U.S. was one of the few Western nations Putin could visit without risking arrest.**\
 `By Anushka Patil`\
 https://nytimes.com/live/2025/08/15/world/trump-putin-meeting-alaska/putin-icc-arrest-warrant-us-trump-meeting
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6555630/2025/08/16/mikel-arteta-pressure-and-a-seas
 **How Barcelona play: Pedri's line-breaking passes, that offside trap and how will Rashford change things?**\
 `Flick is heading into his second season at Barca with an exciting team with plenty of quality. But how do they set up tactically?`\
 https://nytimes.com/athletic/6553865/2025/08/16/barcelona-tactics-pedri-rashford-offside/
-
-**The young player to watch out for at every Premier League club this season**\
-`Youngsters such as Max Dowman and Rio Ngumoha have stood out in pre-season, but who is your Premier League club's starlet this season?`\
-https://nytimes.com/athletic/6552940/2025/08/16/premier-league-club-youngsters-dowman-ngumoha/
-
-**A new look for the BBC's Match of the Day - but will the show be any different?**\
-`The Premier League's Saturday night free-to-air UK highlights programme returns - with a new trio of presenters taking turns in the chair`\
-https://nytimes.com/athletic/6554495/2025/08/16/a-new-look-for-the-bbcs-match-of-the-day-but-will-the-show-be-any-different/
 

@@ -1,3 +1,11 @@
+**Christian Yelich wasn't sure if he should use his Bob Uecker bat. The Brewers are glad he did**\
+`After his first homer, the Brewers' equipment manager told Yelich not to put the bat away: “You have to keep going.”`\
+https://nytimes.com/athletic/6556837/2025/08/16/christian-yelich-bob-ueker-bat-brewers-winning-streak/
+
+**The New York Times in Print for Saturday, Aug. 16, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/08/16/todays-new-york-times
+
 **The U.S. was one of the few Western nations Putin could visit without risking arrest.**\
 `By Anushka Patil`\
 https://nytimes.com/live/2025/08/15/world/trump-putin-meeting-alaska/putin-icc-arrest-warrant-us-trump-meeting
