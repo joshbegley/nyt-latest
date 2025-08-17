@@ -1,3 +1,7 @@
+**West Ham's failure at the basics already has Potter talking about bouncing back**\
+`West Ham lost their opening game of the season 3-0 against newly promoted Sunderland`\
+https://nytimes.com/athletic/6558248/2025/08/17/west-ham-sunderland-analysis/
+
 **Eze expected to start Palace opening match, Spurs pursuit ongoing**\
 `Oliver Glasner has praised Eze's professionalism but offered no guarantees he would remain at the club beyond the September 1 deadline.`\
 https://nytimes.com/athletic/6558288/2025/08/17/eberechi-eze-transfer-tottenham-crystal-palace/
