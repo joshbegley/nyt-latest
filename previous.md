@@ -1,3 +1,7 @@
+**West Ham vice-chair backs 'great man' Potter to bounce back after opening-day defeat**\
+`The former Chelsea head coach has won just five of his 20 matches in charge of the east London club, who lost 3-0 at Sunderland on Saturday.`\
+https://nytimes.com/athletic/6558385/2025/08/17/graham-potter-west-ham-sunderland/
+
 **European Leaders to Join Zelensky for Meeting With Trump**\
 `After the Trump-Putin summit, European leaders said they would accompany President Volodymyr Zelensky of Ukraine to the White House on Monday.`\
 https://nytimes.com/2025/08/17/us/politics/trump-european-leaders-zelensky-meeting.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6558232/2025/08/17/giants-stock-report-jaxson-dart-
 **City’s Lewis 'never imagined playing at another club' amid Forest interest**\
 `The right-back started for Pep Guardiola's side in Saturday's 4-0 win at Wolverhampton Wanderers amid interest from Nottingham Forest.`\
 https://nytimes.com/athletic/6558319/2025/08/17/manchester-city-rico-lewis-transfer-nottingham-forest/
-
-**Derrick Harmon, Kaleb Johnson lead Steelers stock report after second preseason game**\
-`Plus, some O-line concerns after a shaky week working against the Bucs.`\
-https://nytimes.com/athletic/6558126/2025/08/17/steelers-second-preseason-game-roster-report/
 

@@ -1,3 +1,7 @@
+**West Ham vice-chair backs 'great man' Potter to bounce back after opening-day defeat**\
+`The former Chelsea head coach has won just five of his 20 matches in charge of the east London club, who lost 3-0 at Sunderland on Saturday.`\
+https://nytimes.com/athletic/6558385/2025/08/17/graham-potter-west-ham-sunderland/
+
 **European Leaders to Join Zelensky for Meeting With Trump**\
 `After the Trump-Putin summit, European leaders said they would accompany President Volodymyr Zelensky of Ukraine to the White House on Monday.`\
 https://nytimes.com/2025/08/17/us/politics/trump-european-leaders-zelensky-meeting.html
