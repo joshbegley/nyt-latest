@@ -1,3 +1,7 @@
+**Dodgers step back, let Padres run themselves out of series, NL West lead**\
+`Will Smith caught three runners attempting to steal within the first four outs of the Dodgers' 6-0 win.`\
+https://nytimes.com/athletic/6558199/2025/08/17/dodgers-padres-nl-west-blake-snell-will-smith/
+
 **Suleiman Obeid - Answering Mohamed Salah's questions about the death of the 'Palestinian Pele'**\
 `“Can you tell us how he died, where, and why?” wrote Mohamed Salah in response to a UEFA post about Suleiman Obeid`\
 https://nytimes.com/athletic/6555510/2025/08/17/suleiman-obeid-mohamed-salah-palestinian-pele/

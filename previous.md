@@ -1,3 +1,7 @@
+**Dodgers step back, let Padres run themselves out of series, NL West lead**\
+`Will Smith caught three runners attempting to steal within the first four outs of the Dodgers' 6-0 win.`\
+https://nytimes.com/athletic/6558199/2025/08/17/dodgers-padres-nl-west-blake-snell-will-smith/
+
 **Suleiman Obeid - Answering Mohamed Salah's questions about the death of the 'Palestinian Pele'**\
 `“Can you tell us how he died, where, and why?” wrote Mohamed Salah in response to a UEFA post about Suleiman Obeid`\
 https://nytimes.com/athletic/6555510/2025/08/17/suleiman-obeid-mohamed-salah-palestinian-pele/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6557483/2025/08/17/richarlison-solanke-spurs-strike
 **Twins notes: Alan Roden injured, James Outman called up, Pablo López nearing rehab start**\
 `Plus a Triple-A promotion for pitching prospect Connor Prielipp and an update on Simeon Woods Richardson's return timeline.`\
 https://nytimes.com/athletic/6557047/2025/08/17/twins-alan-roden-injured-james-outman/
-
-**'Not ideal' - Fulham's Marco Silva and the Premier League coaches frustrated by a lack of signings**\
-`A quarter of Premier League coaches spoke about a lack of new faces as they prepared for their opening games of the new season`\
-https://nytimes.com/athletic/6555435/2025/08/17/premier-league-transfer-manager-complaints/
 
