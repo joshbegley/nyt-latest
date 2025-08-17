@@ -1,3 +1,11 @@
+**Three Are Killed in Shooting at Crown Heights Bar**\
+`Eight others were taken to the hospital with injuries after the early morning shooting in Brooklyn.`\
+https://nytimes.com/2025/08/17/nyregion/brooklyn-shooting-nightclub.html
+
+**Hojlund set for omission from Man Utd matchday squad vs Arsenal**\
+`Hojlund faces an uncertain future at Old Trafford following the signing of fellow striker Benjamin Sesko from RB Leipzig.`\
+https://nytimes.com/athletic/6558338/2025/08/17/rasmus-hojlund-manchester-united-transfer-update/
+
 **Ukraine Weighs Trump’s Offer of Security Guarantees With Caution**\
 `President Trump offered security guarantees to deter future Russian aggression. But the offer was vague, prompting Kyiv to seek clarity.`\
 https://nytimes.com/2025/08/17/world/europe/ukraine-security-guarantees-trump-russia.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6558016/2025/08/17/justin-fields-jets-offense-passi
 **Vanderbilt football has a cancer beater and a life 'forever changed' in Marlon Jones**\
 `Jones missed the 2024 season after being diagnosed with stage 3 Hodgkin's lymphoma just before he was scheduled to enroll at Vanderbilt. `\
 https://nytimes.com/athletic/6556190/2025/08/17/marlon-jones-vanderbilt-cancer-survivor/
-
-**Is it Actually Fine to Look at Your Phone Before Bed?**\
-`Scientists offer some surprising answers.`\
-https://nytimes.com/2025/08/17/briefing/is-it-actually-fine-to-look-at-your-phone-before-bed.html
-
-**Brian Schottenheimer: 'I'm not panicked' about Cowboys' backup QB situation**\
-`ARLINGTON, Texas — Whether they want to admit it or not, the Dallas Cowboys have to have concerns about their backup quarterback position.`\
-https://nytimes.com/athletic/6558211/2025/08/17/cowboys-joe-milton-backup-qb-ravens/
 
