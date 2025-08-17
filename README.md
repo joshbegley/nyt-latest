@@ -22,7 +22,7 @@ https://nytimes.com/2025/08/17/insider/white-house-correspondent.html
 `Feeling stuck on today’s puzzle? We can help.`\
 https://nytimes.com/2025/08/17/crosswords/spelling-bee-forum.html
 
-**West Ham's failure on the basics already has Potter talking about bouncing back**\
+**West Ham's failure at the basics already has Potter talking about bouncing back**\
 `West Ham lost their opening game of the season 3-0 against newly promoted Sunderland`\
 https://nytimes.com/athletic/6558248/2025/08/17/west-ham-sunderland-analysis/
 
