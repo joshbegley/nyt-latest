@@ -1,3 +1,7 @@
+**Lionel Messi scores, assists to lead Miami to win over LA Galaxy**\
+`Messi had gone out with a hamstring injury on Aug. 2.`\
+https://nytimes.com/athletic/6558062/2025/08/16/lionel-messi-miami-la-assist/
+
 **Lionel Messi scores, assists to lead Miami to 3-1 win over LA Galaxy**\
 `Messi had gone out with a hamstring injury on Aug. 2.`\
 https://nytimes.com/athletic/6558062/2025/08/16/lionel-messi-miami-la-assist/
