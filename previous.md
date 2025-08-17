@@ -1,3 +1,7 @@
+**Israelis Join Nationwide Rallies to Call for Release of Hostages**\
+`It was unclear how many people would join the planned day of action, which was expected to culminate with a large evening demonstration.`\
+https://nytimes.com/2025/08/17/world/middleeast/israel-rallies-labor-strike.html
+
 **The Insidious Creep of Trump’s Speaking Style**\
 `The fact that we’re talking like Donald Trump could mean that we’re starting to think like him as well.`\
 https://nytimes.com/2025/08/17/opinion/trump-speaking-style.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/17/world/americas/bolivia-presidential-election-expl
 **Ukrainians Fleeing Russia’s Attacks Say the Alaska Summit Was an Insult**\
 `Evacuees at a shelter in eastern Ukraine reacted angrily to talk that land that has long been theirs could be given to Russia in exchange for peace.`\
 https://nytimes.com/2025/08/17/world/europe/ukraine-evacuation-donetsk.html
-
-**If You’ll Pay $800 for a Credit Card, You’re in Demand**\
-`Credit card companies and airlines are in a race for customers who spend the most money — and that is making it harder for many other customers to score deals and perks.`\
-https://nytimes.com/2025/08/17/business/airlines-credit-cards-loyalty.html
 

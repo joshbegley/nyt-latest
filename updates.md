@@ -1,3 +1,7 @@
+**Israelis Join Nationwide Rallies to Call for Release of Hostages**\
+`It was unclear how many people would join the planned day of action, which was expected to culminate with a large evening demonstration.`\
+https://nytimes.com/2025/08/17/world/middleeast/israel-rallies-labor-strike.html
+
 **The Insidious Creep of Trump’s Speaking Style**\
 `The fact that we’re talking like Donald Trump could mean that we’re starting to think like him as well.`\
 https://nytimes.com/2025/08/17/opinion/trump-speaking-style.html
