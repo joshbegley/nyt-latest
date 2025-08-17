@@ -1,3 +1,7 @@
+**What to Know About Russia-U.S.-Ukraine Peace Talks**\
+`The president of Ukraine and his European allies are to visit the White House on Monday, after President Trump backed Russia’s plan to end the war.`\
+https://nytimes.com/2025/08/17/world/europe/us-russia-ukraine-peace-talks.html
+
 **Chelsea 0 Crystal Palace 0 - Acheampong steps in, that free-kick rule but are Chelsea undercooked?**\
 `The FIFA Club World Cup winners began their Premier League campaign with an uninspiring goalless draw at an expectant Stamford Bridge`\
 https://nytimes.com/athletic/6556017/2025/08/17/chelsea-palace-acheampong-estevao/
@@ -15,7 +19,7 @@ https://nytimes.com/2025/08/17/world/canada/air-canada-strike.html
 https://nytimes.com/2025/08/17/dining/grilled-beef-loves-beefy-tomatoes.html
 
 **Padres, Dylan Cease flounder in 6-0 loss, fall behind Dodgers in NL West**\
-`In one of their worst performances of the year, the Padres beat themselves in a shutout to the Dodgers, who reclaimed first place.`\
+`In one of their worst performances of the season, the Padres beat themselves in a shutout to the Dodgers, which reclaimed first place.`\
 https://nytimes.com/athletic/6558226/2025/08/17/padres-dodgers-score-standings-dylan-cease/
 
 **Cardinals place Victor Scott II on IL, add Nathan Church as lineup takes another hit**\
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/17/world/europe/russia-donbas-importance.html
 **O-line steps up while D-line takes shape: Five things we learned this week at Raiders training camp**\
 `Plus, a riser among the cornerbacks, and the promise of Laki Tasi.`\
 https://nytimes.com/athletic/6557918/2025/08/17/las-vegas-raiders-training-camp-report/
-
-**The Debate Over Defining Death**\
-`Readers discuss definitions of death in the context of organ donations. Also: Addressing sexual abuse at Uber.`\
-https://nytimes.com/2025/08/17/opinion/defining-death-organ-donors.html
 

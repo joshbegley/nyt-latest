@@ -1,3 +1,11 @@
+**What to Know About Russia-U.S.-Ukraine Peace Talks**\
+`The president of Ukraine and his European allies are to visit the White House on Monday, after President Trump backed Russia’s plan to end the war.`\
+https://nytimes.com/2025/08/17/world/europe/us-russia-ukraine-peace-talks.html
+
+**Padres, Dylan Cease flounder in 6-0 loss, fall behind Dodgers in NL West**\
+`In one of their worst performances of the season, the Padres beat themselves in a shutout to the Dodgers, which reclaimed first place.`\
+https://nytimes.com/athletic/6558226/2025/08/17/padres-dodgers-score-standings-dylan-cease/
+
 **Chelsea 0 Crystal Palace 0 - Acheampong steps in, that free-kick rule but are Chelsea undercooked?**\
 `The FIFA Club World Cup winners began their Premier League campaign with an uninspiring goalless draw at an expectant Stamford Bridge`\
 https://nytimes.com/athletic/6556017/2025/08/17/chelsea-palace-acheampong-estevao/
