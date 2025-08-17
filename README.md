@@ -1,3 +1,23 @@
+**Sure, These Comics Can Make You Laugh. But Can They Hit a Jump Shot?**\
+`A weekly pickup basketball game in Manhattan is populated almost entirely by professional funny people from all corners of the comedy landscape — stand-up comedians on their way up, comics past their primes and even industry A-listers.`\
+https://nytimes.com/2025/08/17/nyregion/comedians-basketball-adam-sandler.html
+
+**A Modern Shout-Out to the Old ‘Gray Lady’**\
+`A cardboard placard from a rally for press freedoms in 2017 sits in the Museum at The Times.`\
+https://nytimes.com/2025/08/17/insider/a-modern-shout-out-to-the-old-gray-lady.html
+
+**‘A Man and a Woman in Front of Me Were Hurrying in the Same Direction’**\
+`Slowing down for a sidewalk stomp, an impressive sense of smell and more reader tales of New York City in this week’s Metropolitan Diary.`\
+https://nytimes.com/2025/08/17/nyregion/metropolitan-diary.html
+
+**How to Keep Up With President Trump**\
+`A White House reporter discusses the pressures that come with covering a ‘fire hose’ of information.`\
+https://nytimes.com/2025/08/17/insider/white-house-correspondent.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/08/17/crosswords/spelling-bee-forum.html
+
 **West Ham's failure on the basics already has Potter talking about bouncing back**\
 `West Ham lost their opening game of the season 3-0 against newly promoted Sunderland`\
 https://nytimes.com/athletic/6558248/2025/08/17/west-ham-sunderland-analysis/
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/6558199/2025/08/17/dodgers-padres-nl-west-blake-sne
 **Suleiman Obeid - Answering Mohamed Salah's questions about the death of the 'Palestinian Pele'**\
 `“Can you tell us how he died, where, and why?” wrote Mohamed Salah in response to a UEFA post about Suleiman Obeid`\
 https://nytimes.com/athletic/6555510/2025/08/17/suleiman-obeid-mohamed-salah-palestinian-pele/
-
-**Jaxson Dart's impressive preseason has Giants walking a fine line**\
-`It's impossible not to get excited about what Dart has shown in his first two NFL appearances.`\
-https://nytimes.com/athletic/6558165/2025/08/17/giants-jaxson-dart-preseason-impressive-start/
-
-**Rookie receivers steal show in Chargers' preseason loss to Rams**\
-`Tre' Harris had six catches for 85 yards, KeAndre Lambert-Smith had two explosive receptions and Luke Grimm had a punt return for a TD.`\
-https://nytimes.com/athletic/6558184/2025/08/17/chargers-rams-preseason-rookie-receivers/
-
-**The New York Times in Print for Sunday, Aug. 17, 2025**\
-``\
-https://nytimes.com/issue/todayspaper/2025/08/17/todays-new-york-times
-
-**China’s Biotech Is Cheaper and Faster**\
-`China’s biotechnology sector has established a bright future by focusing not on breakthrough cures and treatments but on speed and efficiency.`\
-https://nytimes.com/2025/08/17/opinion/china-biotech.html
-
-**Don’t Be a Loser, Gen X Baby**\
-`It’s fine to make room for the next generation.`\
-https://nytimes.com/2025/08/17/opinion/gen-x.html
 
