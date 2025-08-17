@@ -1,3 +1,7 @@
+**Amorim says Man Utd 'can win any game' after performance in Arsenal loss**\
+`"We were the better team," Amorim said after his side's 1-0 home defeat to open the 2025-26 season.`\
+https://nytimes.com/athletic/6558961/2025/08/17/ruben-amorim-man-utd-arsenal/
+
 **From the hospital to the podium, France celebrates unlikely Germany Sail Grand Prix win**\
 `France wins Germany SailGP but after a dramatic weekend there are questions about technical reliability and human safety to be addressed`\
 https://nytimes.com/athletic/6558828/2025/08/17/france-win-germany-sail-grand-prix-report/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6558713/2025/08/17/red-sox-marcelo-mayer-injury-wri
 **Trump Officials Hint at Possible Concessions by Putin**\
 `Secretary of State Marco Rubio and Steve Witkoff, an envoy for President Trump, suggested that a peace deal was still distant.`\
 https://nytimes.com/2025/08/17/us/politics/trump-witkoff-ukraine-putin-concessions.html
-
-**Lowetide: What McDavid's next contract could tell us about the Oilers**\
-`After 10 years in Edmonton and two consecutive trips to the Stanley Cup Final, the Oilers captain is likely thinking about trajectories.`\
-https://nytimes.com/athletic/6557219/2025/08/17/connor-mcdavid-oilers-bowman-contract/
 
