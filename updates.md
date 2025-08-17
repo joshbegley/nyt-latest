@@ -1,3 +1,7 @@
+**Can the Packers ever count on RB MarShawn Lloyd after yet another injury?**\
+`The 2024 third-round pick suffered another hamstring injury in the second quarter of Saturday's preseason game against the Colts.`\
+https://nytimes.com/athletic/6559189/2025/08/17/packers-marshawn-lloyd-injuries/
+
 **Phillies' Aaron Nola stumbles in return as questions about rotation abound**\
 `The Phillies entered the weekend with one of the best rotations in the league. Much of that stability changed in about 24 hours.`\
 https://nytimes.com/athletic/6559082/2025/08/17/phillies-aaron-nola-stumbles-rotation-zack-wheeler/
