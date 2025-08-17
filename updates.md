@@ -1,3 +1,11 @@
+**Hundreds Protest Trump’s National Guard Deployment in D.C.**\
+`Police officers in Washington looked on from afar, as demonstrators marched in what was a largely peaceful, upbeat protest against President Trump’s deployment of National Guard troops.`\
+https://nytimes.com/video/us/politics/100000010345595/washington-dc-trump-protests.html
+
+**Man Utd 0 Arsenal 1 - Analysing Arsenal's 'new' set-piece, Amorim's goalkeeper problem, Gyokeres and Sesko watch**\
+`Analysis of Manchester United against Arsenal in the Premier League opening round`\
+https://nytimes.com/athletic/6556019/2025/08/17/man-utd-arsenal-highlights/
+
 **Red Sox rookie Marcelo Mayer to undergo season-ending wrist surgery**\
 `The 22-year-old injured his wrist on a swing in July and didn't see any improvement from a pain-killing injection.`\
 https://nytimes.com/athletic/6558713/2025/08/17/red-sox-marcelo-mayer-injury-wrist-surgery/
