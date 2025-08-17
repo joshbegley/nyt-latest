@@ -1,40 +1,40 @@
-**Eze expected to start Palace opening match, Spurs pursuit ongoing**\
-`Oliver Glasner has praised Eze's professionalism but offered no guarantees he would remain at the club beyond the September 1 deadline.`\
-https://nytimes.com/athletic/6558288/2025/08/17/eberechi-eze-transfer-tottenham-crystal-palace/
+**Palace make approach for Club Brugge's Christos Tzolis**\
+`Palace have already seen a bid rejected by Brugge but plan to return with an improved bid and are speaking to the Greece attacker’s camp.`\
+https://nytimes.com/athletic/6558299/2025/08/17/crystal-palace-transfer-news-christos-tzolis/
 
-**Sure, These Comics Can Make You Laugh. But Can They Hit a Jump Shot?**\
-`A weekly pickup basketball game in Manhattan is populated almost entirely by professional funny people from all corners of the comedy landscape — stand-up comedians on their way up, comics past their primes and even industry A-listers.`\
-https://nytimes.com/2025/08/17/nyregion/comedians-basketball-adam-sandler.html
+**What to Know About Bolivia’s Presidential Election**\
+`An economic crisis and political infighting among the country’s long-dominant socialist party could pave the way for the first right-wing president in decades.`\
+https://nytimes.com/2025/08/17/world/americas/bolivia-presidential-election-explained.html
 
-**A Modern Shout-Out to the Old ‘Gray Lady’**\
-`A cardboard placard from a rally for press freedoms in 2017 sits in the Museum at The Times.`\
-https://nytimes.com/2025/08/17/insider/a-modern-shout-out-to-the-old-gray-lady.html
+**Ukrainians Fleeing Russia’s Attacks Say the Alaska Summit Was an Insult**\
+`Evacuees at a shelter in eastern Ukraine reacted angrily to talk that land that has long been theirs could be given to Russia in exchange for peace.`\
+https://nytimes.com/2025/08/17/world/europe/ukraine-evacuation-donetsk.html
 
-**‘A Man and a Woman in Front of Me Were Hurrying in the Same Direction’**\
-`Slowing down for a sidewalk stomp, an impressive sense of smell and more reader tales of New York City in this week’s Metropolitan Diary.`\
-https://nytimes.com/2025/08/17/nyregion/metropolitan-diary.html
+**If You’ll Pay $800 for a Credit Card, You’re in Demand**\
+`Credit card companies and airlines are in a race for customers who spend the most money — and that is making it harder for many other customers to score deals and perks.`\
+https://nytimes.com/2025/08/17/business/airlines-credit-cards-loyalty.html
 
-**How to Keep Up With President Trump**\
-`A White House reporter discusses the pressures that come with covering a ‘fire hose’ of information.`\
-https://nytimes.com/2025/08/17/insider/white-house-correspondent.html
+**Trump’s Selective Stance on Justice: Redemption for Some, Scorn for Others**\
+`President Trump, himself a felon, has shown particular leniency to criminals he seems to identify with — people who are white or wealthy, or who rioted in his name on Jan. 6, 2021.`\
+https://nytimes.com/2025/08/17/us/politics/trump-dc-criminals-justice.html
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2025/08/17/crosswords/spelling-bee-forum.html
+**Why Wildfire Fighters Are Getting Dangerously Sick**\
+`The U.S. Forest Service has been sending out crews to fight fires without the recommended masks for decades. Hannah Dreier, a New York Times investigative reporter, reveals the dangerous and sometimes deadly repercussions of sending firefighters into the field unprotected.`\
+https://nytimes.com/video/health/100000010339242/why-wildfire-fighters-are-getting-dangerously-sick.html
 
-**West Ham's failure at the basics already has Potter talking about bouncing back**\
-`West Ham lost their opening game of the season 3-0 against newly promoted Sunderland`\
-https://nytimes.com/athletic/6558248/2025/08/17/west-ham-sunderland-analysis/
+**Ravens 2-0 in preseason: 3 who impressed, 3 who struggled, 1 who prompted a question**\
+`Rookie kicker Tyler Loop appears locked in, but there are plenty of questions elsewhere, including safety, offensive tackle and edge rusher.`\
+https://nytimes.com/athletic/6558133/2025/08/17/ravens-preseason-rasheen-ali-david-ojabo-tyler-loop/
 
-**Sunderland's emotional exorcism of the Stadium of Light gives them the hope they needed**\
-`Sunderland beat West Ham 3-0 to begin life back in the Premier League with a victory`\
-https://nytimes.com/athletic/6557698/2025/08/17/sunderland-stadium-of-light-premier-league-return/
+**How to watch Sunday's NFL preseason games: Jaguars at Saints, Bills at Bears**\
+`Here's how to check in on Sunday's NFL preseason lineup, including Caleb Williams and the Bears' taking the field against the Bills.`\
+https://nytimes.com/athletic/6556120/2025/08/17/preseason-jaguars-saints-bills-bears-nfl-odds-how-to-watch/
 
-**Match of the Day review: Same product, slightly different appearance, but it just felt right**\
-`A Gary Lineker-less Match of the Day could be seen for the first time on Saturday night. Tim Spiers has reviewed it`\
-https://nytimes.com/athletic/6555503/2025/08/17/match-of-the-day-2025-review/
+**A Memoir of Ukraine, Spiced With Dill, Strength and Heartache**\
+`The food writer Olia Hercules proves to be a great cook and a powerful family historian in “Strong Roots.”`\
+https://nytimes.com/2025/08/17/books/review/strong-roots-olia-hercules-ukraine.html
 
-**Dodgers step back, let Padres run themselves out of series, NL West lead**\
-`Will Smith caught three runners attempting to steal within the first four outs of the Dodgers' 6-0 win.`\
-https://nytimes.com/athletic/6558199/2025/08/17/dodgers-padres-nl-west-blake-snell-will-smith/
+**Redistricting Push Would Further Divide a Polarized Congress**\
+`Many state delegations are already under single-party control. New maps could tighten the partisan grip while decreasing the importance of general elections.`\
+https://nytimes.com/2025/08/17/us/politics/redistricting-polarization-congress.html
 
