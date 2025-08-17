@@ -1,3 +1,7 @@
+**Sunderland's emotional exorcism of the Stadium of Light gives them the hope they needed**\
+`Sunderland beat West Ham 3-0 to begin life back in the Premier League with a victory`\
+https://nytimes.com/athletic/6557698/2025/08/17/sunderland-stadium-of-light-premier-league-return/
+
 **Match of the Day review: Same product, slightly different appearance, but it just felt right**\
 `A Gary Lineker-less Match of the Day could be seen for the first time on Saturday night. Tim Spiers has reviewed it`\
 https://nytimes.com/athletic/6555503/2025/08/17/match-of-the-day-2025-review/

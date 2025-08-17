@@ -1,3 +1,7 @@
+**Sunderland's emotional exorcism of the Stadium of Light gives them the hope they needed**\
+`Sunderland beat West Ham 3-0 to begin life back in the Premier League with a victory`\
+https://nytimes.com/athletic/6557698/2025/08/17/sunderland-stadium-of-light-premier-league-return/
+
 **Match of the Day review: Same product, slightly different appearance, but it just felt right**\
 `A Gary Lineker-less Match of the Day could be seen for the first time on Saturday night. Tim Spiers has reviewed it`\
 https://nytimes.com/athletic/6555503/2025/08/17/match-of-the-day-2025-review/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/17/opinion/gen-x.html
 **Ben Rice's 7-RBI night powers Yankees offense to series win over Cardinals**\
 `Rice reached base four times and fell a triple short of the cycle in New York's 12-8 win over St. Louis.`\
 https://nytimes.com/athletic/6558035/2025/08/17/ben-rice-7-rbi-yankees-cardinals/
-
-**Advantage Richarlison in contest to be Tottenham's first-choice striker**\
-`Richarlison has scored nine goals in his past nine starts for Tottenham, suggesting his has the potential to be a consistent threat`\
-https://nytimes.com/athletic/6557483/2025/08/17/richarlison-solanke-spurs-striker/
 
