@@ -1,3 +1,7 @@
+**Ukraine Weighs Trump’s Offer of Security Guarantees With Caution**\
+`President Trump offered security guarantees to deter future Russian aggression. But the offer was vague, prompting Kyiv to seek clarity.`\
+https://nytimes.com/2025/08/17/world/europe/ukraine-security-guarantees-trump-russia.html
+
 **Giants stock report: Jaxson Dart hype builds, grading Evan Neal's performance**\
 `Dart has another stellar performance, Russell Wilson hits signature deep throw and Neal plays first NFL game at guard.`\
 https://nytimes.com/athletic/6558232/2025/08/17/giants-stock-report-jaxson-dart-preseason-jets/

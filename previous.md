@@ -1,3 +1,7 @@
+**Ukraine Weighs Trump’s Offer of Security Guarantees With Caution**\
+`President Trump offered security guarantees to deter future Russian aggression. But the offer was vague, prompting Kyiv to seek clarity.`\
+https://nytimes.com/2025/08/17/world/europe/ukraine-security-guarantees-trump-russia.html
+
 **Giants stock report: Jaxson Dart hype builds, grading Evan Neal's performance**\
 `Dart has another stellar performance, Russell Wilson hits signature deep throw and Neal plays first NFL game at guard.`\
 https://nytimes.com/athletic/6558232/2025/08/17/giants-stock-report-jaxson-dart-preseason-jets/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/17/briefing/is-it-actually-fine-to-look-at-your-phon
 **Brian Schottenheimer: 'I'm not panicked' about Cowboys' backup QB situation**\
 `ARLINGTON, Texas — Whether they want to admit it or not, the Dallas Cowboys have to have concerns about their backup quarterback position.`\
 https://nytimes.com/athletic/6558211/2025/08/17/cowboys-joe-milton-backup-qb-ravens/
-
-**Israelis Join Nationwide Rallies to Call for Release of Hostages**\
-`It was unclear how many people would join the planned day of action, which was expected to culminate with a large evening demonstration.`\
-https://nytimes.com/2025/08/17/world/middleeast/israel-rallies-labor-strike.html
 
