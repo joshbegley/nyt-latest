@@ -1,3 +1,11 @@
+**Zelensky Brings Backup to the White House as Trump Aligns More Closely With Putin**\
+`European leaders are joining a trip to Washington to make sure the trans-Atlantic alliance remains intact.`\
+https://nytimes.com/2025/08/17/us/politics/europe-trump-zelensky-putin.html
+
+**Joe Caroff, Who Gave James Bond His Signature 007 Logo, Dies at 103**\
+`A quiet giant in graphic design, he created posters for hundreds of movies, including “West Side Story” and “Manhattan.” But his work was often unsigned.`\
+https://nytimes.com/2025/08/17/obituaries/joe-caroff-dead.html
+
 **Bengals engaged in trade talks for Trey Hendrickson: Sources**\
 `Hendrickson has been present but not participating in the Bengals' training camp practices.`\
 https://nytimes.com/athletic/6558984/2025/08/17/bengals-trade-talks-trey-hendrickson/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6558844/2025/08/17/nottingham-forest-brentford-rui-
 **The Pulse: College football's mystery QB component**\
 `Welcome to The Pulse, The Athletic's daily sports newsletter.`\
 https://nytimes.com/athletic/6558111/2025/08/17/why-theres-so-much-we-dont-quite-know-about-college-qbs-in-2025/
-
-**Hundreds Protest Trump’s National Guard Deployment in D.C.**\
-`Police officers in Washington looked on from afar, as demonstrators marched in what was a largely peaceful, upbeat protest against President Trump’s deployment of National Guard troops.`\
-https://nytimes.com/video/us/politics/100000010345595/washington-dc-trump-protests.html
-
-**Man Utd 0 Arsenal 1: Analysing Arsenal's 'new' set piece, Amorim's goalkeeper problem, watching Gyokeres and Sesko**\
-`Analysis of Manchester United against Arsenal in the Premier League opening round`\
-https://nytimes.com/athletic/6556019/2025/08/17/man-utd-arsenal-highlights/
 
