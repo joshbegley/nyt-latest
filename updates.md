@@ -1,3 +1,11 @@
+**Three Are Killed in Shooting at Crown Heights Bar**\
+`Eight others were taken to the hospital with injuries after the early morning shooting in Brooklyn.`\
+https://nytimes.com/2025/08/17/nyregion/brooklyn-shooting-nightclub.html
+
+**Hojlund set for omission from Man Utd matchday squad vs Arsenal**\
+`Hojlund faces an uncertain future at Old Trafford following the signing of fellow striker Benjamin Sesko from RB Leipzig.`\
+https://nytimes.com/athletic/6558338/2025/08/17/rasmus-hojlund-manchester-united-transfer-update/
+
 **Ukraine Weighs Trump’s Offer of Security Guarantees With Caution**\
 `President Trump offered security guarantees to deter future Russian aggression. But the offer was vague, prompting Kyiv to seek clarity.`\
 https://nytimes.com/2025/08/17/world/europe/ukraine-security-guarantees-trump-russia.html
