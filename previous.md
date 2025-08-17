@@ -1,3 +1,19 @@
+**Chelsea 0 Crystal Palace 0 - Acheampong steps in, that free-kick rule but are Chelsea undercooked?**\
+`The FIFA Club World Cup winners began their Premier League campaign with an uninspiring goalless draw at an expectant Stamford Bridge`\
+https://nytimes.com/athletic/6556017/2025/08/17/chelsea-palace-acheampong-estevao/
+
+**Terence Stamp, Luminary of 1960s British Cinema, Dies at 87**\
+`Known for his “heartbreak blue eyes,” he starred in “Billy Budd” and “The Collector,” and had a memorable role in “Superman” and “Superman II.”`\
+https://nytimes.com/2025/08/17/movies/terence-stamp-dead.html
+
+**Air Canada Flight Attendants Say They Will Defy Back-to-Work Order**\
+`The decision by the union representing the 10,000 workers means that travel chaos will most likely continue for at least a second day.`\
+https://nytimes.com/2025/08/17/world/canada/air-canada-strike.html
+
+**Grilled Beef Loves Beefy Tomatoes**\
+`Ali Slagle’s grilled steak with tomato tartare pairs rare beef with the sweet acidity of tomatoes and the sharpness of shallots, capers and chives.`\
+https://nytimes.com/2025/08/17/dining/grilled-beef-loves-beefy-tomatoes.html
+
 **Padres, Dylan Cease flounder in 6-0 loss, fall behind Dodgers in NL West**\
 `In one of their worst performances of the year, the Padres beat themselves in a shutout to the Dodgers, who reclaimed first place.`\
 https://nytimes.com/athletic/6558226/2025/08/17/padres-dodgers-score-standings-dylan-cease/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6557918/2025/08/17/las-vegas-raiders-training-camp-
 **The Debate Over Defining Death**\
 `Readers discuss definitions of death in the context of organ donations. Also: Addressing sexual abuse at Uber.`\
 https://nytimes.com/2025/08/17/opinion/defining-death-organ-donors.html
-
-**Farmers Are Turning on MAHA**\
-`Farmers thought they’d benefit greatly under Robert F. Kennedy Jr.’s goals for American health. They’re not so sure anymore.`\
-https://nytimes.com/2025/08/17/opinion/farmers-kennedy-maha.html
-
-**Brighty the Burro, Beloved Grand Canyon Statue, Is Rescued From Wildfire**\
-`The statue was missing an ear and two front legs, but it was mostly intact when crews recovered it from the Dragon Bravo fire.`\
-https://nytimes.com/2025/08/17/us/brighty-burro-grand-canyon-fire.html
-
-**Broncos stock report: Jarrett Stidham, young WRs pop in preseason win vs. Cardinals**\
-`Stidham was nearly perfect again, twice connecting with Troy Franklin for TDs as we look at Denver's risers and fallers from Saturday.`\
-https://nytimes.com/athletic/6558249/2025/08/17/broncos-risers-fallers-stidham-receivers-preseason/
-
-**KC Current and Orlando Pride finish scoreless after 3.5-hour heat delay in NWSL**\
-`The NWSL match is just the latest example of dangerous heat impacting soccer games in the U.S.`\
-https://nytimes.com/athletic/6558243/2025/08/17/nwsl-weather-heat-delay-kc-current-orlando-pride/
 
