@@ -1,3 +1,7 @@
+**Bengals engaged in trade talks for Trey Hendrickson: Sources**\
+`Hendrickson has been present but not participating in the Bengals' training camp practices.`\
+https://nytimes.com/athletic/6558984/2025/08/17/bengals-trade-talks-trey-hendrickson/
+
 **NASCAR Richmond takeaways: Austin Dillon's surprise win, NASCAR playoff picture and more**\
 `Austin Dillon jumps into the playoffs, Tyler Reddick suddenly has to sweat it out at Daytona, and more from the weekend to Richmond.`\
 https://nytimes.com/athletic/6558530/2025/08/17/richmond-takeways-nascar-austin-dillon-playoff-picture/

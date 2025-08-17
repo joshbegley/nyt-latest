@@ -1,3 +1,7 @@
+**Bengals engaged in trade talks for Trey Hendrickson: Sources**\
+`Hendrickson has been present but not participating in the Bengals' training camp practices.`\
+https://nytimes.com/athletic/6558984/2025/08/17/bengals-trade-talks-trey-hendrickson/
+
 **NASCAR Richmond takeaways: Austin Dillon's surprise win, NASCAR playoff picture and more**\
 `Austin Dillon jumps into the playoffs, Tyler Reddick suddenly has to sweat it out at Daytona, and more from the weekend to Richmond.`\
 https://nytimes.com/athletic/6558530/2025/08/17/richmond-takeways-nascar-austin-dillon-playoff-picture/
@@ -33,8 +37,4 @@ https://nytimes.com/video/us/politics/100000010345595/washington-dc-trump-protes
 **Man Utd 0 Arsenal 1: Analysing Arsenal's 'new' set piece, Amorim's goalkeeper problem, watching Gyokeres and Sesko**\
 `Analysis of Manchester United against Arsenal in the Premier League opening round`\
 https://nytimes.com/athletic/6556019/2025/08/17/man-utd-arsenal-highlights/
-
-**Red Sox rookie Marcelo Mayer to undergo season-ending wrist surgery**\
-`The 22-year-old injured his wrist on a swing in July and didn't see any improvement from a pain-killing injection.`\
-https://nytimes.com/athletic/6558713/2025/08/17/red-sox-marcelo-mayer-injury-wrist-surgery/
 
