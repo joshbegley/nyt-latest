@@ -1,3 +1,7 @@
+**West Ham's failure on the basics already has Potter talking about bouncing back**\
+`West Ham lost their opening game of the season 3-0 against newly promoted Sunderland`\
+https://nytimes.com/athletic/6558248/2025/08/17/west-ham-sunderland-analysis/
+
 **Sunderland's emotional exorcism of the Stadium of Light gives them the hope they needed**\
 `Sunderland beat West Ham 3-0 to begin life back in the Premier League with a victory`\
 https://nytimes.com/athletic/6557698/2025/08/17/sunderland-stadium-of-light-premier-league-return/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/17/opinion/china-biotech.html
 **Don’t Be a Loser, Gen X Baby**\
 `It’s fine to make room for the next generation.`\
 https://nytimes.com/2025/08/17/opinion/gen-x.html
-
-**Ben Rice's 7-RBI night powers Yankees offense to series win over Cardinals**\
-`Rice reached base four times and fell a triple short of the cycle in New York's 12-8 win over St. Louis.`\
-https://nytimes.com/athletic/6558035/2025/08/17/ben-rice-7-rbi-yankees-cardinals/
 
