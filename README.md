@@ -1,3 +1,7 @@
+**Manchester United vs Arsenal: The mood, transfer window, hopes for the season and predictions**\
+`How does each club feel about their opening-weekend clash and which players will have the biggest impact on the game's result?`\
+https://nytimes.com/athletic/6553787/2025/08/17/manchester-united-arsenal-preview/
+
 **Putin Sees Ukraine Through a Lens of Grievance Over Lost Glory**\
 `Speaking after Friday’s summit, President Putin again implied that the war is all about Russia’s diminished status since the fall of the Soviet Union.`\
 https://nytimes.com/2025/08/17/world/europe/russia-ukraine-putin-alaska.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6557972/2025/08/16/nolan-mclean-mets-major-league-d
 **Former Wisconsin women's basketball coach sued for psychological abuse**\
 `The University of Wisconsin declined to comment on the lawsuit, filed Friday.`\
 https://nytimes.com/athletic/6557880/2025/08/16/wisconsin-marisa-moseley-womens-college-basketball-lawsuit/
-
-**49ers standouts vs. Raiders: Brock Purdy's hot start, Jake Moody's redemption**\
-`Moody went from goat to hero, while Purdy and receiver Ricky Pearsall are already showing impressive chemistry.`\
-https://nytimes.com/athletic/6557909/2025/08/16/brock-purdy-jake-moody-49ers-preseason/
 
