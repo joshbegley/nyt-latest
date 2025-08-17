@@ -1,3 +1,11 @@
+**KC Current and Orlando Pride finish scoreless after 3.5-hour heat delay in NWSL**\
+`The NWSL match is just the latest example of dangerous heat impacting soccer games in the U.S.`\
+https://nytimes.com/athletic/6558243/2025/08/17/nwsl-weather-heat-delay-kc-current-orlando-pride/
+
+**Trump Administration Live Updates: European Leaders to Join Zelensky for White House Meeting**\
+``\
+https://nytimes.com/live/2025/08/17/us/trump-news
+
 **West Ham vice-chair backs 'great man' Potter to bounce back after opening-day defeat**\
 `The former Chelsea head coach has won just five of his 20 matches in charge of the east London club, who lost 3-0 at Sunderland on Saturday.`\
 https://nytimes.com/athletic/6558385/2025/08/17/graham-potter-west-ham-sunderland/
