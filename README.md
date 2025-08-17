@@ -1,3 +1,7 @@
+**Is it Actually Fine to Look at Your Phone Before Bed?**\
+`Scientists offer some surprising answers.`\
+https://nytimes.com/2025/08/17/briefing/is-it-actually-fine-to-look-at-your-phone-before-bed.html
+
 **Brian Schottenheimer: 'I'm not panicked' about Cowboys' backup QB situation**\
 `ARLINGTON, Texas — Whether they want to admit it or not, the Dallas Cowboys have to have concerns about their backup quarterback position.`\
 https://nytimes.com/athletic/6558211/2025/08/17/cowboys-joe-milton-backup-qb-ravens/
@@ -33,8 +37,4 @@ https://nytimes.com/issue/todaysinyt/2025/08/17/todays-new-york-times-internatio
 **Palace make approach for Club Brugge's Christos Tzolis**\
 `Palace have already seen a bid rejected by Brugge but plan to return with an improved bid and are speaking to the Greece attacker’s camp.`\
 https://nytimes.com/athletic/6558299/2025/08/17/crystal-palace-transfer-news-christos-tzolis/
-
-**What to Know About Bolivia’s Presidential Election**\
-`An economic crisis and political infighting among the country’s long-dominant socialist party could pave the way for the first right-wing president in decades.`\
-https://nytimes.com/2025/08/17/world/americas/bolivia-presidential-election-explained.html
 
