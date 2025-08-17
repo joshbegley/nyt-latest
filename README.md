@@ -1,3 +1,7 @@
+**Red Sox rookie Marcelo Mayer to undergo season-ending wrist surgery**\
+`The 22-year-old injured his wrist on a swing in July and didn't see any improvement from a pain-killing injection.`\
+https://nytimes.com/athletic/6558713/2025/08/17/red-sox-marcelo-mayer-injury-wrist-surgery/
+
 **Trump Officials Hint at Possible Concessions by Putin**\
 `Secretary of State Marco Rubio and Steve Witkoff, an envoy for President Trump, suggested that a peace deal was still distant.`\
 https://nytimes.com/2025/08/17/us/politics/trump-witkoff-ukraine-putin-concessions.html
@@ -15,7 +19,7 @@ https://nytimes.com/athletic/6558721/2025/08/17/astros-yordan-alvarez-injury-reh
 https://nytimes.com/2025/08/17/us/politics/trump-putin-common-ground-biden.html
 
 **Orioles' Samuel Basallo, No. 8 MLB prospect, to make his major-league debut Sunday**\
-`Basallo quickly established himself as one of the top catching prospects in the game.`\
+`Basallo will play everyday but will be the No. 2 catcher behind Adley Rutschman while also seeing time at first base and DH.`\
 https://nytimes.com/athletic/6558627/2025/08/17/samuel-basallo-orioles-mlb-debut/
 
 **Newcastle complete Ramsey signing from Villa**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6558595/2025/08/17/spike-lee-colin-kaepernick-docu-
 **The Secret Weapon of ‘Weapons’: Amy Madigan**\
 `The star says her uncanny villain, Aunt Gladys, is actually misunderstood. And her unforgettable appearance? “I just think she looks fab!”`\
 https://nytimes.com/2025/08/17/movies/amy-madigan-weapons-aunt-gladys.html
-
-**What to Know About Russia-U.S.-Ukraine Peace Talks**\
-`The president of Ukraine and his European allies are to visit the White House on Monday, after President Trump backed Russia’s plan to end the war.`\
-https://nytimes.com/2025/08/17/world/europe/us-russia-ukraine-peace-talks.html
 
