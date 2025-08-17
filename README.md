@@ -1,3 +1,7 @@
+**Eze expected to start Palace opening match, Spurs pursuit ongoing**\
+`Oliver Glasner has praised Eze's professionalism but offered no guarantees he would remain at the club beyond the September 1 deadline.`\
+https://nytimes.com/athletic/6558288/2025/08/17/eberechi-eze-transfer-tottenham-crystal-palace/
+
 **Sure, These Comics Can Make You Laugh. But Can They Hit a Jump Shot?**\
 `A weekly pickup basketball game in Manhattan is populated almost entirely by professional funny people from all corners of the comedy landscape — stand-up comedians on their way up, comics past their primes and even industry A-listers.`\
 https://nytimes.com/2025/08/17/nyregion/comedians-basketball-adam-sandler.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6555503/2025/08/17/match-of-the-day-2025-review/
 **Dodgers step back, let Padres run themselves out of series, NL West lead**\
 `Will Smith caught three runners attempting to steal within the first four outs of the Dodgers' 6-0 win.`\
 https://nytimes.com/athletic/6558199/2025/08/17/dodgers-padres-nl-west-blake-snell-will-smith/
-
-**Suleiman Obeid - Answering Mohamed Salah's questions about the death of the 'Palestinian Pele'**\
-`“Can you tell us how he died, where, and why?” wrote Mohamed Salah in response to a UEFA post about Suleiman Obeid`\
-https://nytimes.com/athletic/6555510/2025/08/17/suleiman-obeid-mohamed-salah-palestinian-pele/
 
