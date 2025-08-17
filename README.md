@@ -1,3 +1,23 @@
+**'Not ideal' - Fulham's Marco Silva and the Premier League coaches frustrated by a lack of signings**\
+`A quarter of Premier League coaches spoke about a lack of new faces as they prepared for their opening games of the new season`\
+https://nytimes.com/athletic/6555435/2025/08/17/premier-league-transfer-manager-complaints/
+
+**Dutch footballers and the criminal underworld: 'Once you're in, you never get out'**\
+`Ronnie Stam's seven-year prison sentence is the latest example of a prominent Dutch footballer becoming embroiled in major crime`\
+https://nytimes.com/athletic/6548316/2025/08/17/stam-promes-levchenko-dutch-footballers-major-crime/
+
+**Trent Alexander-Arnold's Real Madrid evolution: Fewer raking passes? Right-back or right wing-back?**\
+`How will Xabi Alonso use the former Liverpool man in his first season in the Spanish capital?`\
+https://nytimes.com/athletic/6553303/2025/08/17/trent-alexander-arnold-real-madrid-reinvention/
+
+**What role does football have in saving England's 'lost boys' from 'toxic online ideas'?**\
+`Brighton's Paul Barber believes 'trusted adults' may be able to help young men - and that football has an important role to play`\
+https://nytimes.com/athletic/6551833/2025/08/17/premier-league-adolescence-lost-boys-brighton/
+
+**How Liverpool's new defensive fragility was exposed by four Bournemouth chances**\
+`Just as they had been in the Community Shield, the champions gave up too many counter attacks and were vulnerable to crosses and cutbacks`\
+https://nytimes.com/athletic/6556990/2025/08/17/liverpool-defence-fragility-analysis-bournemouth/
+
 **Manchester United vs Arsenal: The mood, transfer window, hopes for the season and predictions**\
 `How does each club feel about their opening-weekend clash and which players will have the biggest impact on the game's result?`\
 https://nytimes.com/athletic/6553787/2025/08/17/manchester-united-arsenal-preview/
@@ -17,24 +37,4 @@ https://nytimes.com/2025/08/16/pageoneplus/corrections-aug-17-2025.html
 **Quote of the Day: Grizzlies Were Raiding Farms. Then the Dogs Came Out.**\
 `Quotation of the Day for Sunday, August 17, 2025.`\
 https://nytimes.com/2025/08/16/pageoneplus/quote-of-the-day-grizzlies-were-raiding-farms-then-the-dogs-came-out.html
-
-**Lionel Messi scores, assists to lead Miami to win over LA Galaxy**\
-`Messi had gone out with a hamstring injury on Aug. 2.`\
-https://nytimes.com/athletic/6558062/2025/08/16/lionel-messi-miami-la-assist/
-
-**At the Alaska Summit, an Unlikely Local Dish Gets a Cameo**\
-`Halibut Olympia, a Tuesday-night kind of recipe, was part of the planning (if not the eating) at the Friday meeting.`\
-https://nytimes.com/2025/08/16/dining/trump-putin-alaska-halibut.html
-
-**Brewers' extend winning streak to 14 games, setting franchise record**\
-`The day after the Brewers came back from seven runs down to extend the streak to 13, the Reds pretty much handed Milwaukee their 14th.`\
-https://nytimes.com/athletic/6557669/2025/08/16/brewers-14-win-streak-reds-franchise-record/
-
-**Nolan McLean gives Mets much-needed lift in major-league debut**\
-`McLean joined Matt Harvey as the only pitchers in Mets history to earn a win, strike out eight or more and allow zero runs in their debut.`\
-https://nytimes.com/athletic/6557972/2025/08/16/nolan-mclean-mets-major-league-debut/
-
-**Former Wisconsin women's basketball coach sued for psychological abuse**\
-`The University of Wisconsin declined to comment on the lawsuit, filed Friday.`\
-https://nytimes.com/athletic/6557880/2025/08/16/wisconsin-marisa-moseley-womens-college-basketball-lawsuit/
 
