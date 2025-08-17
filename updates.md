@@ -1,4 +1,8 @@
 **Phillies place Zack Wheeler on injured list due to blood clot near right shoulder**\
+`Philadelphia's ace felt normal before his start on Friday against the Nationals, but reported some new symptoms after the outing.`\
+https://nytimes.com/athletic/6557719/2025/08/16/phillies-zack-wheeler-injury-blood-clot/
+
+**Phillies place Zack Wheeler on injured list due to blood clot near right shoulder**\
 `Philadelphia's ace felt normal before his start on Friday against the Nationals, but reported some new symptoms after that outing.`\
 https://nytimes.com/athletic/6557719/2025/08/16/phillies-zack-wheeler-injury-blood-clot/
 
