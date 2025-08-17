@@ -1,3 +1,7 @@
+**Former Wisconsin women's basketball coach sued for psychological abuse**\
+`The University of Wisconsin declined to comment on the lawsuit, filed Friday.`\
+https://nytimes.com/athletic/6557880/2025/08/16/wisconsin-marisa-moseley-womens-college-basketball-lawsuit/
+
 **49ers standouts vs. Raiders: Brock Purdy's hot start, Jake Moody's redemption**\
 `Moody went from goat to hero, while Purdy and receiver Ricky Pearsall are already showing impressive chemistry.`\
 https://nytimes.com/athletic/6557909/2025/08/16/brock-purdy-jake-moody-49ers-preseason/
