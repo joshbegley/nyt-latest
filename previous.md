@@ -10,7 +10,7 @@ https://nytimes.com/2025/08/17/movies/the-secret-weapon-of-weapons-amy-madigan.h
 `The president of Ukraine and his European allies are to visit the White House on Monday, after President Trump backed Russia’s plan to end the war.`\
 https://nytimes.com/2025/08/17/world/europe/us-russia-ukraine-peace-talks.html
 
-**Chelsea 0 Crystal Palace 0 - Acheampong steps in, that free-kick rule but are Chelsea undercooked?**\
+**Chelsea 0 Crystal Palace 0: Acheampong steps in, that free-kick rule but are Chelsea undercooked?**\
 `The FIFA Club World Cup winners began their Premier League campaign with an uninspiring goalless draw at an expectant Stamford Bridge`\
 https://nytimes.com/athletic/6556017/2025/08/17/chelsea-palace-acheampong-estevao/
 

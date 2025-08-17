@@ -4,7 +4,7 @@ https://nytimes.com/athletic/6558595/2025/08/17/spike-lee-colin-kaepernick-docu-
 
 **The Secret Weapon of ‘Weapons’: Amy Madigan**\
 `The star says her uncanny villain, Aunt Gladys, is actually misunderstood. And her unforgettable appearance? “I just think she looks fab!”`\
-https://nytimes.com/2025/08/17/movies/the-secret-weapon-of-weapons-amy-madigan.html
+https://nytimes.com/2025/08/17/movies/amy-madigan-weapons-aunt-gladys.html
 
 **What to Know About Russia-U.S.-Ukraine Peace Talks**\
 `The president of Ukraine and his European allies are to visit the White House on Monday, after President Trump backed Russia’s plan to end the war.`\

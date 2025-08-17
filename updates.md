@@ -1,3 +1,7 @@
+**Chelsea 0 Crystal Palace 0: Acheampong steps in, that free-kick rule but are Chelsea undercooked?**\
+`The FIFA Club World Cup winners began their Premier League campaign with an uninspiring goalless draw at an expectant Stamford Bridge`\
+https://nytimes.com/athletic/6556017/2025/08/17/chelsea-palace-acheampong-estevao/
+
 **Spike Lee's Colin Kaepernick docuseries no longer coming to ESPN**\
 `It is believed the series can still be shopped elsewhere, a source briefed on the situation told The Athletic.`\
 https://nytimes.com/athletic/6558595/2025/08/17/spike-lee-colin-kaepernick-docu-series-espn/
