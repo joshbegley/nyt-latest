@@ -1,3 +1,7 @@
+**Guardians notes: Parker Messick among options as Cleveland shuffle rotation**\
+`The Cleveland Guardians need a starting pitcher for Wednesday. They didn't have to need one, but they chose to create the opportunity.`\
+https://nytimes.com/athletic/6558902/2025/08/17/guardians-parker-messick-joey-cantillo-triston-mckenzie/
+
 **Bother, as a Bear**\
 `Andrea Carla Michaels and Christina Iverson voice their approval.`\
 https://nytimes.com/2025/08/17/crosswords/daily-puzzle-2025-08-18.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/17/us/politics/europe-trump-zelensky-putin.html
 **Joe Caroff, Who Gave James Bond His Signature 007 Logo, Dies at 103**\
 `A quiet giant in graphic design, he created posters for hundreds of movies, including “West Side Story” and “Manhattan.” But his work was often unsigned.`\
 https://nytimes.com/2025/08/17/obituaries/joe-caroff-dead.html
-
-**Bengals engaged in trade talks for Trey Hendrickson: Sources**\
-`Hendrickson has been present but not participating in the Bengals' training camp practices.`\
-https://nytimes.com/athletic/6558984/2025/08/17/bengals-trade-talks-trey-hendrickson/
 

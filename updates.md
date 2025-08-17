@@ -1,3 +1,7 @@
+**Bother, as a Bear**\
+`Andrea Carla Michaels and Christina Iverson voice their approval.`\
+https://nytimes.com/2025/08/17/crosswords/daily-puzzle-2025-08-18.html
+
 **Can the Packers ever count on RB MarShawn Lloyd after yet another injury?**\
 `The 2024 third-round pick suffered another hamstring injury in the second quarter of Saturday's preseason game against the Colts.`\
 https://nytimes.com/athletic/6559189/2025/08/17/packers-marshawn-lloyd-injuries/
