@@ -1,3 +1,11 @@
+**Protesters Against National Guard Deployment Flood D.C. Streets**\
+`A largely peaceful march filled downtown Washington with chants and whistles.`\
+https://nytimes.com/2025/08/16/us/politics/washington-dc-national-guard-protest.html
+
+**Eagles-Browns takeaways: Tanner McKee sits, offense sputters, Jihaad Campbell dazzles**\
+`Plus, Tyler Steen appears to have secured the starting right guard spot.`\
+https://nytimes.com/athletic/6557791/2025/08/16/eagles-browns-takeaways-tanner-mckee-offense-jihaad-campbell/
+
 **Phillies place Zack Wheeler on injured list due to blood clot near right shoulder**\
 `Philadelphia's ace felt normal before his start on Friday against the Nationals, but reported some new symptoms after the outing.`\
 https://nytimes.com/athletic/6557719/2025/08/16/phillies-zack-wheeler-injury-blood-clot/

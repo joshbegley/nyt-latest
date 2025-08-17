@@ -1,3 +1,11 @@
+**Protesters Against National Guard Deployment Flood D.C. Streets**\
+`A largely peaceful march filled downtown Washington with chants and whistles.`\
+https://nytimes.com/2025/08/16/us/politics/washington-dc-national-guard-protest.html
+
+**Eagles-Browns takeaways: Tanner McKee sits, offense sputters, Jihaad Campbell dazzles**\
+`Plus, Tyler Steen appears to have secured the starting right guard spot.`\
+https://nytimes.com/athletic/6557791/2025/08/16/eagles-browns-takeaways-tanner-mckee-offense-jihaad-campbell/
+
 **Jon Gray goes unclaimed after Rangers place him on waivers: Sources**\
 `No team was willing to assume the rest of the approximately $3 million left on the 33-year-old right-hander's contract.`\
 https://nytimes.com/athletic/6557800/2025/08/16/rangers-jon-gray-waivers/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/08/16/us/hiker-dead-snake-tennessee.html
 **Phillies place Zack Wheeler on injured list due to blood clot near right shoulder**\
 `Philadelphia's ace felt normal before his start on Friday against the Nationals, but reported some new symptoms after the outing.`\
 https://nytimes.com/athletic/6557719/2025/08/16/phillies-zack-wheeler-injury-blood-clot/
-
-**Browns' QB competition rolls on as Dillon Gabriel starts amid hamstring tightness**\
-`Coach Kevin Stefanski still hasn't announced who has won the competition.`\
-https://nytimes.com/athletic/6557618/2025/08/16/browns-qb-competition-dillon-gabriel-start/
-
-**Vikings' backup QB situation and other risers and fallers from preseason loss to Patriots**\
-`Rookie QB Max Brosmer's decision-making and command were impressive Saturday, while the Vikings' returner situation is looking dire.`\
-https://nytimes.com/athletic/6557608/2025/08/16/vikings-patriots-max-brosmer-backup-qb/
 
