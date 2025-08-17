@@ -1,3 +1,7 @@
+**Match of the Day review: Same product, slightly different appearance, but it just felt right**\
+`A Gary Lineker-less Match of the Day could be seen for the first time on Saturday night. Tim Spiers has reviewed it`\
+https://nytimes.com/athletic/6555503/2025/08/17/match-of-the-day-2025-review/
+
 **Dodgers step back, let Padres run themselves out of series, NL West lead**\
 `Will Smith caught three runners attempting to steal within the first four outs of the Dodgers' 6-0 win.`\
 https://nytimes.com/athletic/6558199/2025/08/17/dodgers-padres-nl-west-blake-snell-will-smith/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6558035/2025/08/17/ben-rice-7-rbi-yankees-cardinals
 **Advantage Richarlison in contest to be Tottenham's first-choice striker**\
 `Richarlison has scored nine goals in his past nine starts for Tottenham, suggesting his has the potential to be a consistent threat`\
 https://nytimes.com/athletic/6557483/2025/08/17/richarlison-solanke-spurs-striker/
-
-**Twins notes: Alan Roden injured, James Outman called up, Pablo López nearing rehab start**\
-`Plus a Triple-A promotion for pitching prospect Connor Prielipp and an update on Simeon Woods Richardson's return timeline.`\
-https://nytimes.com/athletic/6557047/2025/08/17/twins-alan-roden-injured-james-outman/
 

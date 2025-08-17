@@ -1,3 +1,7 @@
+**Match of the Day review: Same product, slightly different appearance, but it just felt right**\
+`A Gary Lineker-less Match of the Day could be seen for the first time on Saturday night. Tim Spiers has reviewed it`\
+https://nytimes.com/athletic/6555503/2025/08/17/match-of-the-day-2025-review/
+
 **Dodgers step back, let Padres run themselves out of series, NL West lead**\
 `Will Smith caught three runners attempting to steal within the first four outs of the Dodgers' 6-0 win.`\
 https://nytimes.com/athletic/6558199/2025/08/17/dodgers-padres-nl-west-blake-snell-will-smith/
