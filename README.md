@@ -1,3 +1,7 @@
+**Brewers' extend winning streak to 14 games, setting franchise record**\
+`The day after the Brewers came back from seven runs down to extend the streak to 13, the Reds pretty much handed Milwaukee their 14th.`\
+https://nytimes.com/athletic/6557669/2025/08/16/brewers-14-win-streak-reds-franchise-record/
+
 **Nolan McLean gives Mets much-needed lift in major-league debut**\
 `McLean joined Matt Harvey as the only pitchers in Mets history to earn a win, strike out eight or more and allow zero runs in their debut.`\
 https://nytimes.com/athletic/6557972/2025/08/16/nolan-mclean-mets-major-league-debut/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6557800/2025/08/16/rangers-jon-gray-waivers/
 **'Great opportunity ahead': Why the Cubs believe they still control their own destiny**\
 `Shota Imanaga’s steady performance Saturday helped the Cubs snap a 35-game streak without a comeback win, the longest in franchise history.`\
 https://nytimes.com/athletic/6557701/2025/08/16/why-cubs-believe-they-control-their-own-destiny/
-
-**Has Kyle Allen earned Lions' backup QB job? 6 players who impressed vs. Dolphins**\
-`Kyle Allen is "playing better" than Hendon Hooker and has tossed four total TD passes in the past two preseason contests.`\
-https://nytimes.com/athletic/6557684/2025/08/16/lions-preseason-top-players-kyle-allen-dolphins/
 
