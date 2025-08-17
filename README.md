@@ -1,3 +1,7 @@
+**Bother, as a Bear**\
+`Andrea Carla Michaels and Christina Iverson voice their approval.`\
+https://nytimes.com/2025/08/17/crosswords/daily-puzzle-2025-08-18.html
+
 **Can the Packers ever count on RB MarShawn Lloyd after yet another injury?**\
 `The 2024 third-round pick suffered another hamstring injury in the second quarter of Saturday's preseason game against the Colts.`\
 https://nytimes.com/athletic/6559189/2025/08/17/packers-marshawn-lloyd-injuries/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/17/obituaries/joe-caroff-dead.html
 **Bengals engaged in trade talks for Trey Hendrickson: Sources**\
 `Hendrickson has been present but not participating in the Bengals' training camp practices.`\
 https://nytimes.com/athletic/6558984/2025/08/17/bengals-trade-talks-trey-hendrickson/
-
-**NASCAR Richmond takeaways: Austin Dillon's surprise win, NASCAR playoff picture and more**\
-`Austin Dillon jumps into the playoffs, Tyler Reddick suddenly has to sweat it out at Daytona, and more from the weekend to Richmond.`\
-https://nytimes.com/athletic/6558530/2025/08/17/richmond-takeways-nascar-austin-dillon-playoff-picture/
 
