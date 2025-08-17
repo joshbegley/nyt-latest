@@ -1,3 +1,11 @@
+**Red Sox takeaways: Bullpen concerns, Wilyer Abreu's injury, more**\
+`Takeaways from Boston's series vs. the Marlins, which felt like an opportunity missed.`\
+https://nytimes.com/athletic/6559234/2025/08/17/red-sox-takeaways-bullpen-concerns-kristian-campbell-wilyer-abreu/
+
+**Scottie Scheffler surges to BMW Championship victory for 18th PGA Tour win**\
+`Scheffler's run of dominance continued at the BMW Championship as he caught Robert MacIntyre for his fifth victory of the season.`\
+https://nytimes.com/athletic/6559278/2025/08/17/scottie-scheffler-bmw-championship-robert-macintyre/
+
 **Dan Tana, Whose Clubby Red-Sauce Restaurant Drew Stars, Dies at 90**\
 `Dan Tana’s was said to be as central to Hollywood as palm trees and Botox. On a scale of 1 to 10, the people watching was a 10. Even the steak came with pasta.`\
 https://nytimes.com/2025/08/17/obituaries/dan-tana-dead.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6559082/2025/08/17/phillies-aaron-nola-stumbles-rot
 **China Hosts Sports Competition for Humanoid Robots**\
 `Humanoid robots competed in a sports competition in Beijing where they ran, kicked and punched — as well as crashed and fell over many times.`\
 https://nytimes.com/video/world/asia/100000010345761/china-robots-sports-competition.html
-
-**Monday Briefing: A Trump-Zelensky Meeting**\
-`Plus, an A.I. stuffed animal.`\
-https://nytimes.com/2025/08/17/briefing/trump-zelensky-gaza-us-visas-bolivia-evo-morales.html
-
-**Brewers' winning streak snapped in extras after ninth-inning comeback doesn't hold**\
-`William Contreras hit a come-from-behind, two-run homer in the ninth inning, but Milwaukee couldn't keep its magical run going after that.`\
-https://nytimes.com/athletic/6559026/2025/08/17/brewers-winning-streak-ends-reds/
 
