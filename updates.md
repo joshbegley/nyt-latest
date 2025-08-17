@@ -1,3 +1,11 @@
+**Monday Briefing: A Trump-Zelensky Meeting**\
+`Plus, an A.I. stuffed animal.`\
+https://nytimes.com/2025/08/17/briefing/trump-zelensky-gaza-us-visas-bolivia-evo-morales.html
+
+**Brewers' winning streak snapped in extras after 9th-inning comeback doesn't hold**\
+`William Contreras hit a come-from-behind, two-run homer in the ninth inning, but Milwaukee couldn't keep their magical run going after that.`\
+https://nytimes.com/athletic/6559026/2025/08/17/brewers-winning-streak-ends-reds/
+
 **Eagles acquire John Metchie III from Texans, adding depth at WR: Sources**\
 `Last season, he played 45 percent of the Texans' offensive snaps and caught 24 balls for 254 yards and a touchdown.`\
 https://nytimes.com/athletic/6559051/2025/08/17/eagles-john-metchie-texans-trade/

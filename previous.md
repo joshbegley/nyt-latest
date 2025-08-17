@@ -1,3 +1,11 @@
+**Monday Briefing: A Trump-Zelensky Meeting**\
+`Plus, an A.I. stuffed animal.`\
+https://nytimes.com/2025/08/17/briefing/trump-zelensky-gaza-us-visas-bolivia-evo-morales.html
+
+**Brewers' winning streak snapped in extras after 9th-inning comeback doesn't hold**\
+`William Contreras hit a come-from-behind, two-run homer in the ninth inning, but Milwaukee couldn't keep their magical run going after that.`\
+https://nytimes.com/athletic/6559026/2025/08/17/brewers-winning-streak-ends-reds/
+
 **Eagles acquire John Metchie III from Texans, adding depth at WR: Sources**\
 `Last season, he played 45 percent of the Texans' offensive snaps and caught 24 balls for 254 yards and a touchdown.`\
 https://nytimes.com/athletic/6559051/2025/08/17/eagles-john-metchie-texans-trade/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6558828/2025/08/17/france-win-germany-sail-grand-pr
 **Alabama RB Jam Miller expected to miss season opener vs. FSU**\
 `The timetable for Miller's return is uncertain after he suffered an upper-body injury in Saturday's scrimmage.`\
 https://nytimes.com/athletic/6558891/2025/08/17/jam-miller-injury-alabama-florida-state/
-
-**Pence Welcomes Trump’s D.C. Deployment of National Guard**\
-`Former Vice President Mike Pence said he wished President Trump “would have done more” on Jan. 6, but supported the recent decision to deploy troops to Washington.`\
-https://nytimes.com/2025/08/17/us/politics/pence-trump-dc-national-guard.html
-
-**Forest assistant Barbosa needs stitches after celebrating in Brentford win**\
-`The goalkeeper coach's injury occurred after Chris Wood had given Forest an early lead at the City Ground.`\
-https://nytimes.com/athletic/6558844/2025/08/17/nottingham-forest-brentford-rui-barbosa/
 
