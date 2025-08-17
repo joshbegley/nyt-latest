@@ -1,3 +1,7 @@
+**Trump and Putin Find Common Ground on One Issue: Biden**\
+`The Alaska summit between the U.S. and Russian leaders showcased their mutual animosity for the former president.`\
+https://nytimes.com/2025/08/17/us/politics/trump-putin-common-ground-biden.html
+
 **Orioles' Samuel Basallo, No. 8 MLB prospect, to make his major-league debut Sunday**\
 `Basallo quickly established himself as one of the top catching prospects in the game.`\
 https://nytimes.com/athletic/6558627/2025/08/17/samuel-basallo-orioles-mlb-debut/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/17/movies/terence-stamp-dead.html
 **Air Canada Flight Attendants Say They Will Defy Back-to-Work Order**\
 `The decision by the union representing the 10,000 workers means that travel chaos will most likely continue for at least a second day.`\
 https://nytimes.com/2025/08/17/world/canada/air-canada-strike.html
-
-**Grilled Beef Loves Beefy Tomatoes**\
-`Ali Slagle’s grilled steak with tomato tartare pairs rare beef with the sweet acidity of tomatoes and the sharpness of shallots, capers and chives.`\
-https://nytimes.com/2025/08/17/dining/grilled-beef-loves-beefy-tomatoes.html
 
