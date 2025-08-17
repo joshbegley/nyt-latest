@@ -1,3 +1,7 @@
+**At the Alaska Summit, an Unlikely Local Dish Gets a Cameo**\
+`Halibut Olympia, a Tuesday-night kind of recipe, was part of the planning (if not the eating) at the Friday meeting.`\
+https://nytimes.com/2025/08/16/dining/trump-putin-alaska-halibut.html
+
 **Brewers' extend winning streak to 14 games, setting franchise record**\
 `The day after the Brewers came back from seven runs down to extend the streak to 13, the Reds pretty much handed Milwaukee their 14th.`\
 https://nytimes.com/athletic/6557669/2025/08/16/brewers-14-win-streak-reds-franchise-record/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6557791/2025/08/16/eagles-browns-takeaways-tanner-m
 **Jon Gray goes unclaimed after Rangers place him on waivers: Sources**\
 `No team was willing to assume the rest of the approximately $3 million left on the 33-year-old right-hander's contract.`\
 https://nytimes.com/athletic/6557800/2025/08/16/rangers-jon-gray-waivers/
-
-**'Great opportunity ahead': Why the Cubs believe they still control their own destiny**\
-`Shota Imanaga’s steady performance Saturday helped the Cubs snap a 35-game streak without a comeback win, the longest in franchise history.`\
-https://nytimes.com/athletic/6557701/2025/08/16/why-cubs-believe-they-control-their-own-destiny/
 
