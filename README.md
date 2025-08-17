@@ -1,3 +1,7 @@
+**Giants stock report: Jaxson Dart hype builds, grading Evan Neal's performance**\
+`Dart has another stellar performance, Russell Wilson hits signature deep throw and Neal plays first NFL game at guard.`\
+https://nytimes.com/athletic/6558232/2025/08/17/giants-stock-report-jaxson-dart-preseason-jets/
+
 **City’s Lewis 'never imagined playing at another club' amid Forest interest**\
 `The right-back started for Pep Guardiola's side in Saturday's 4-0 win at Wolverhampton Wanderers amid interest from Nottingham Forest.`\
 https://nytimes.com/athletic/6558319/2025/08/17/manchester-city-rico-lewis-transfer-nottingham-forest/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6558211/2025/08/17/cowboys-joe-milton-backup-qb-rav
 **Israelis Join Nationwide Rallies to Call for Release of Hostages**\
 `It was unclear how many people would join the planned day of action, which was expected to culminate with a large evening demonstration.`\
 https://nytimes.com/2025/08/17/world/middleeast/israel-rallies-labor-strike.html
-
-**The Insidious Creep of Trump’s Speaking Style**\
-`The fact that we’re talking like Donald Trump could mean that we’re starting to think like him as well.`\
-https://nytimes.com/2025/08/17/opinion/trump-speaking-style.html
 
