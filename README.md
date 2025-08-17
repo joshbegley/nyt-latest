@@ -1,3 +1,23 @@
+**Jaxson Dart's impressive preseason has Giants walking a fine line**\
+`It's impossible not to get excited about what Dart has shown in his first two NFL appearances.`\
+https://nytimes.com/athletic/6558165/2025/08/17/giants-jaxson-dart-preseason-impressive-start/
+
+**Rookie receivers steal show in Chargers' preseason loss to Rams**\
+`Tre' Harris had six catches for 85 yards, KeAndre Lambert-Smith had two explosive receptions and Luke Grimm had a punt return for a TD.`\
+https://nytimes.com/athletic/6558184/2025/08/17/chargers-rams-preseason-rookie-receivers/
+
+**The New York Times in Print for Sunday, Aug. 17, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/08/17/todays-new-york-times
+
+**China’s Biotech Is Cheaper and Faster**\
+`China’s biotechnology sector has established a bright future by focusing not on breakthrough cures and treatments but on speed and efficiency.`\
+https://nytimes.com/2025/08/17/opinion/china-biotech.html
+
+**Don’t Be a Loser, Gen X Baby**\
+`It’s fine to make room for the next generation.`\
+https://nytimes.com/2025/08/17/opinion/gen-x.html
+
 **Ben Rice's 7-RBI night powers Yankees offense to series win over Cardinals**\
 `Rice reached base four times and fell a triple short of the cycle in New York's 12-8 win over St. Louis.`\
 https://nytimes.com/athletic/6558035/2025/08/17/ben-rice-7-rbi-yankees-cardinals/
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/6555435/2025/08/17/premier-league-transfer-manager-
 **Dutch footballers and the criminal underworld: 'Once you're in, you never get out'**\
 `Ronnie Stam's seven-year prison sentence is the latest example of a prominent Dutch footballer becoming embroiled in major crime`\
 https://nytimes.com/athletic/6548316/2025/08/17/stam-promes-levchenko-dutch-footballers-major-crime/
-
-**Trent Alexander-Arnold's Real Madrid evolution: Fewer raking passes? Right-back or right wing-back?**\
-`How will Xabi Alonso use the former Liverpool man in his first season in the Spanish capital?`\
-https://nytimes.com/athletic/6553303/2025/08/17/trent-alexander-arnold-real-madrid-reinvention/
-
-**What role does football have in saving England's 'lost boys' from 'toxic online ideas'?**\
-`Brighton's Paul Barber believes 'trusted adults' may be able to help young men - and that football has an important role to play`\
-https://nytimes.com/athletic/6551833/2025/08/17/premier-league-adolescence-lost-boys-brighton/
-
-**How Liverpool's new defensive fragility was exposed by four Bournemouth chances**\
-`Just as they had been in the Community Shield, the champions gave up too many counter attacks and were vulnerable to crosses and cutbacks`\
-https://nytimes.com/athletic/6556990/2025/08/17/liverpool-defence-fragility-analysis-bournemouth/
-
-**Manchester United vs Arsenal: The mood, transfer window, hopes for the season and predictions**\
-`How does each club feel about their opening-weekend clash and which players will have the biggest impact on the game's result?`\
-https://nytimes.com/athletic/6553787/2025/08/17/manchester-united-arsenal-preview/
-
-**Putin Sees Ukraine Through a Lens of Grievance Over Lost Glory**\
-`Speaking after Friday’s summit, President Putin again implied that the war is all about Russia’s diminished status since the fall of the Soviet Union.`\
-https://nytimes.com/2025/08/17/world/europe/russia-ukraine-putin-alaska.html
 
