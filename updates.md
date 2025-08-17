@@ -1,3 +1,7 @@
+**Ronnie Rondell, Stuntman Set on Fire for Pink Floyd Cover, Dies at 88**\
+`He was also known for his performances in “Twister” and “The Matrix Reloaded,” and came from a family of stunt performers.`\
+https://nytimes.com/2025/08/17/us/ronnie-rondell-dead.html
+
 **Guardians notes: Parker Messick among options as Cleveland shuffle rotation**\
 `The Cleveland Guardians need a starting pitcher for Wednesday. They didn't have to need one, but they chose to create the opportunity.`\
 https://nytimes.com/athletic/6558902/2025/08/17/guardians-parker-messick-joey-cantillo-triston-mckenzie/

@@ -1,3 +1,7 @@
+**Ronnie Rondell, Stuntman Set on Fire for Pink Floyd Cover, Dies at 88**\
+`He was also known for his performances in “Twister” and “The Matrix Reloaded,” and came from a family of stunt performers.`\
+https://nytimes.com/2025/08/17/us/ronnie-rondell-dead.html
+
 **Guardians notes: Parker Messick among options as Cleveland shuffle rotation**\
 `The Cleveland Guardians need a starting pitcher for Wednesday. They didn't have to need one, but they chose to create the opportunity.`\
 https://nytimes.com/athletic/6558902/2025/08/17/guardians-parker-messick-joey-cantillo-triston-mckenzie/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6559051/2025/08/17/eagles-john-metchie-texans-trade
 **Zelensky Brings Backup to the White House as Trump Aligns More Closely With Putin**\
 `European leaders are joining a trip to Washington to make sure the trans-Atlantic alliance remains intact.`\
 https://nytimes.com/2025/08/17/us/politics/europe-trump-zelensky-putin.html
-
-**Joe Caroff, Who Gave James Bond His Signature 007 Logo, Dies at 103**\
-`A quiet giant in graphic design, he created posters for hundreds of movies, including “West Side Story” and “Manhattan.” But his work was often unsigned.`\
-https://nytimes.com/2025/08/17/obituaries/joe-caroff-dead.html
 
