@@ -1,3 +1,19 @@
+**Putin Sees Ukraine Through a Lens of Grievance Over Lost Glory**\
+`Speaking after Friday’s summit, President Putin again implied that the war is all about Russia’s diminished status since the fall of the Soviet Union.`\
+https://nytimes.com/2025/08/17/world/europe/russia-ukraine-putin-alaska.html
+
+**Connections: Sports Edition Coach: Hints for Aug. 17, 2025**\
+`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
+https://nytimes.com/athletic/6557364/2025/08/17/connections-sports-edition-hints-for-aug-17-2025-puzzle-no-328/
+
+**Corrections: Aug. 17, 2025**\
+`Corrections that appeared in print on Sunday, Aug. 17, 2025.`\
+https://nytimes.com/2025/08/16/pageoneplus/corrections-aug-17-2025.html
+
+**Quote of the Day: Grizzlies Were Raiding Farms. Then the Dogs Came Out.**\
+`Quotation of the Day for Sunday, August 17, 2025.`\
+https://nytimes.com/2025/08/16/pageoneplus/quote-of-the-day-grizzlies-were-raiding-farms-then-the-dogs-came-out.html
+
 **Lionel Messi scores, assists to lead Miami to win over LA Galaxy**\
 `Messi had gone out with a hamstring injury on Aug. 2.`\
 https://nytimes.com/athletic/6558062/2025/08/16/lionel-messi-miami-la-assist/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6557880/2025/08/16/wisconsin-marisa-moseley-womens-
 **49ers standouts vs. Raiders: Brock Purdy's hot start, Jake Moody's redemption**\
 `Moody went from goat to hero, while Purdy and receiver Ricky Pearsall are already showing impressive chemistry.`\
 https://nytimes.com/athletic/6557909/2025/08/16/brock-purdy-jake-moody-49ers-preseason/
-
-**For a Few Hours, a Party Drowns Out the Tensions in D.C.**\
-`At Fort Dupont Park, thousands gathered to honor a local music legend, creating a brief refuge from the conflict.`\
-https://nytimes.com/2025/08/16/us/politics/washington-concert-chuck-brown.html
-
-**Raiders 53-man roster projection: Tom Brady gets an up-close look on Saturday**\
-`Battles among the receiving corps, offensive line and secondary will continue through August.`\
-https://nytimes.com/athletic/6557648/2025/08/16/raiders-53-man-roster-projection-after-second-preseason-game/
-
-**Protesters Against National Guard Deployment Flood D.C. Streets**\
-`A largely peaceful march filled downtown Washington with chants and whistles.`\
-https://nytimes.com/2025/08/16/us/politics/washington-dc-national-guard-protest.html
-
-**Eagles-Browns takeaways: Tanner McKee sits, offense sputters, Jihaad Campbell dazzles**\
-`Plus, Tyler Steen appears to have secured the starting right guard spot.`\
-https://nytimes.com/athletic/6557791/2025/08/16/eagles-browns-takeaways-tanner-mckee-offense-jihaad-campbell/
 

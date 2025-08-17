@@ -1,3 +1,19 @@
+**Putin Sees Ukraine Through a Lens of Grievance Over Lost Glory**\
+`Speaking after Friday’s summit, President Putin again implied that the war is all about Russia’s diminished status since the fall of the Soviet Union.`\
+https://nytimes.com/2025/08/17/world/europe/russia-ukraine-putin-alaska.html
+
+**Connections: Sports Edition Coach: Hints for Aug. 17, 2025**\
+`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
+https://nytimes.com/athletic/6557364/2025/08/17/connections-sports-edition-hints-for-aug-17-2025-puzzle-no-328/
+
+**Corrections: Aug. 17, 2025**\
+`Corrections that appeared in print on Sunday, Aug. 17, 2025.`\
+https://nytimes.com/2025/08/16/pageoneplus/corrections-aug-17-2025.html
+
+**Quote of the Day: Grizzlies Were Raiding Farms. Then the Dogs Came Out.**\
+`Quotation of the Day for Sunday, August 17, 2025.`\
+https://nytimes.com/2025/08/16/pageoneplus/quote-of-the-day-grizzlies-were-raiding-farms-then-the-dogs-came-out.html
+
 **Lionel Messi scores, assists to lead Miami to win over LA Galaxy**\
 `Messi had gone out with a hamstring injury on Aug. 2.`\
 https://nytimes.com/athletic/6558062/2025/08/16/lionel-messi-miami-la-assist/
