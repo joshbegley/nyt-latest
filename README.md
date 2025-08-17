@@ -1,3 +1,11 @@
+**Padres, Dylan Cease flounder in 6-0 loss, fall behind Dodgers in NL West**\
+`In one of their worst performances of the year, the Padres beat themselves in a shutout to the Dodgers, who reclaimed first place.`\
+https://nytimes.com/athletic/6558226/2025/08/17/padres-dodgers-score-standings-dylan-cease/
+
+**Cardinals place Victor Scott II on IL, add Nathan Church as lineup takes another hit**\
+`Church, 25, has played 53 of his 86 games this season with Memphis and is hitting .335 with a .921 OPS, 11 doubles and seven home runs.`\
+https://nytimes.com/athletic/6558521/2025/08/17/cardinals-injuries-victor-scott-nathan-church/
+
 **Justin Verlander's best start of the year can't get Giants out of another home loss**\
 `Verlander completed seven innings and didn't allow a run, but the Giants lost their seventh straight game behind a thinned-out bullpen.`\
 https://nytimes.com/athletic/6558215/2025/08/17/justin-verlanders-start-giants-rays/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6558249/2025/08/17/broncos-risers-fallers-stidham-r
 **KC Current and Orlando Pride finish scoreless after 3.5-hour heat delay in NWSL**\
 `The NWSL match is just the latest example of dangerous heat impacting soccer games in the U.S.`\
 https://nytimes.com/athletic/6558243/2025/08/17/nwsl-weather-heat-delay-kc-current-orlando-pride/
-
-**West Ham vice-chair backs 'great man' Potter to bounce back after opening-day defeat**\
-`The former Chelsea head coach has won just five of his 20 matches in charge of the east London club, who lost 3-0 at Sunderland on Saturday.`\
-https://nytimes.com/athletic/6558385/2025/08/17/graham-potter-west-ham-sunderland/
-
-**European Leaders to Join Zelensky for Meeting With Trump**\
-`After the Trump-Putin summit, European leaders said they would accompany President Volodymyr Zelensky of Ukraine to the White House on Monday.`\
-https://nytimes.com/2025/08/17/us/politics/trump-european-leaders-zelensky-meeting.html
 
