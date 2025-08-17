@@ -1,3 +1,7 @@
+**Brian Schottenheimer: 'I'm not panicked' about Cowboys' backup QB situation**\
+`ARLINGTON, Texas — Whether they want to admit it or not, the Dallas Cowboys have to have concerns about their backup quarterback position.`\
+https://nytimes.com/athletic/6558211/2025/08/17/cowboys-joe-milton-backup-qb-ravens/
+
 **Israelis Join Nationwide Rallies to Call for Release of Hostages**\
 `It was unclear how many people would join the planned day of action, which was expected to culminate with a large evening demonstration.`\
 https://nytimes.com/2025/08/17/world/middleeast/israel-rallies-labor-strike.html
