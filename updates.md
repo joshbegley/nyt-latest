@@ -1,3 +1,7 @@
+**Is it Actually Fine to Look at Your Phone Before Bed?**\
+`Scientists offer some surprising answers.`\
+https://nytimes.com/2025/08/17/briefing/is-it-actually-fine-to-look-at-your-phone-before-bed.html
+
 **Brian Schottenheimer: 'I'm not panicked' about Cowboys' backup QB situation**\
 `ARLINGTON, Texas — Whether they want to admit it or not, the Dallas Cowboys have to have concerns about their backup quarterback position.`\
 https://nytimes.com/athletic/6558211/2025/08/17/cowboys-joe-milton-backup-qb-ravens/
