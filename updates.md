@@ -1,3 +1,15 @@
+**Samuel Basallo, No. 8 MLB prospect, to make his MLB debut for Orioles**\
+`Basallo is the Orioles' top prospect and the No. 8 prospect in baseball.`\
+https://nytimes.com/athletic/6558627/2025/08/17/samuel-basallo-orioles-mlb-debut/
+
+**Newcastle complete Ramsey signing from Villa**\
+`The clubs had agreed an upfront fee of £39million ($52.8m) along with a further £5m in harder to achieve add-ons for the central midfielder.`\
+https://nytimes.com/athletic/6558681/2025/08/17/jacob-ramsey-transfer-newcastle-aston-villa/
+
+**Trump Administration Minimizes Summit Papers Left in Hotel**\
+`The papers, laying out the sequence of events and including the phone numbers of several officials, were found around 9 a.m. on Friday and sent to NPR by a guest of the hotel.`\
+https://nytimes.com/2025/08/17/us/politics/trump-putin-summit-papers-hotel.html
+
 **The Secret Weapon of ‘Weapons’: Amy Madigan**\
 `The star says her uncanny villain, Aunt Gladys, is actually misunderstood. And her unforgettable appearance? “I just think she looks fab!”`\
 https://nytimes.com/2025/08/17/movies/amy-madigan-weapons-aunt-gladys.html
