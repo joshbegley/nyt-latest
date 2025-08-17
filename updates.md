@@ -1,3 +1,11 @@
+**Pence, who pushed for National Guard troops on Jan. 6, welcomes Trump’s D.C. deployment.**\
+`By Talya Minsberg`\
+https://nytimes.com/live/2025/08/17/us/trump-news/pence-who-pushed-for-national-guard-troops-on-jan-6-welcomes-trumps-dc-deployment
+
+**Forest assistant Barbosa needs stitches after celebrating in Brentford win**\
+`The goalkeeper coach's injury occurred after Chris Wood had given Forest an early lead at the City Ground.`\
+https://nytimes.com/athletic/6558844/2025/08/17/nottingham-forest-brentford-rui-barbosa/
+
 **The Pulse: College football's mystery QB component**\
 `Welcome to The Pulse, The Athletic's daily sports newsletter.`\
 https://nytimes.com/athletic/6558111/2025/08/17/why-theres-so-much-we-dont-quite-know-about-college-qbs-in-2025/
