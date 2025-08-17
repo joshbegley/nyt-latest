@@ -1,3 +1,7 @@
+**Astros' Yordan Alvarez to start rehab assignment after missing over 3 months**\
+`Houston's lefty slugger will report to Double-A Corpus Christi on Tuesday.`\
+https://nytimes.com/athletic/6558721/2025/08/17/astros-yordan-alvarez-injury-rehab-assignment/
+
 **Trump and Putin Find Common Ground on One Issue: Biden**\
 `The Alaska summit between the U.S. and Russian leaders showcased their mutual animosity for the former president.`\
 https://nytimes.com/2025/08/17/us/politics/trump-putin-common-ground-biden.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6556017/2025/08/17/chelsea-palace-acheampong-esteva
 **Terence Stamp, Luminary of 1960s British Cinema, Dies at 87**\
 `Known for his “heartbreak blue eyes,” he starred in “Billy Budd” and “The Collector,” and had a memorable role in “Superman” and “Superman II.”`\
 https://nytimes.com/2025/08/17/movies/terence-stamp-dead.html
-
-**Air Canada Flight Attendants Say They Will Defy Back-to-Work Order**\
-`The decision by the union representing the 10,000 workers means that travel chaos will most likely continue for at least a second day.`\
-https://nytimes.com/2025/08/17/world/canada/air-canada-strike.html
 

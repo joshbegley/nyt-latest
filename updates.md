@@ -1,3 +1,7 @@
+**Astros' Yordan Alvarez to start rehab assignment after missing over 3 months**\
+`Houston's lefty slugger will report to Double-A Corpus Christi on Tuesday.`\
+https://nytimes.com/athletic/6558721/2025/08/17/astros-yordan-alvarez-injury-rehab-assignment/
+
 **Trump and Putin Find Common Ground on One Issue: Biden**\
 `The Alaska summit between the U.S. and Russian leaders showcased their mutual animosity for the former president.`\
 https://nytimes.com/2025/08/17/us/politics/trump-putin-common-ground-biden.html
