@@ -1,3 +1,7 @@
+**Lionel Messi scores, assists to lead Miami to 3-1 win over LA Galaxy**\
+`Messi had gone out with a hamstring injury on Aug. 2.`\
+https://nytimes.com/athletic/6558062/2025/08/16/lionel-messi-miami-la-assist/
+
 **At the Alaska Summit, an Unlikely Local Dish Gets a Cameo**\
 `Halibut Olympia, a Tuesday-night kind of recipe, was part of the planning (if not the eating) at the Friday meeting.`\
 https://nytimes.com/2025/08/16/dining/trump-putin-alaska-halibut.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/16/us/politics/washington-dc-national-guard-protest.
 **Eagles-Browns takeaways: Tanner McKee sits, offense sputters, Jihaad Campbell dazzles**\
 `Plus, Tyler Steen appears to have secured the starting right guard spot.`\
 https://nytimes.com/athletic/6557791/2025/08/16/eagles-browns-takeaways-tanner-mckee-offense-jihaad-campbell/
-
-**Jon Gray goes unclaimed after Rangers place him on waivers: Sources**\
-`No team was willing to assume the rest of the approximately $3 million left on the 33-year-old right-hander's contract.`\
-https://nytimes.com/athletic/6557800/2025/08/16/rangers-jon-gray-waivers/
 
