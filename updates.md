@@ -1,3 +1,7 @@
+**Advantage Richarlison in contest to be Tottenham's first-choice striker**\
+`Richarlison has scored nine goals in his past nine starts for Tottenham, suggesting his has the potential to be a consistent threat`\
+https://nytimes.com/athletic/6557483/2025/08/17/richarlison-solanke-spurs-striker/
+
 **Twins notes: Alan Roden injured, James Outman called up, Pablo López nearing rehab start**\
 `Plus a Triple-A promotion for pitching prospect Connor Prielipp and an update on Simeon Woods Richardson's return timeline.`\
 https://nytimes.com/athletic/6557047/2025/08/17/twins-alan-roden-injured-james-outman/

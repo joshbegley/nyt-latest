@@ -1,3 +1,7 @@
+**Advantage Richarlison in contest to be Tottenham's first-choice striker**\
+`Richarlison has scored nine goals in his past nine starts for Tottenham, suggesting his has the potential to be a consistent threat`\
+https://nytimes.com/athletic/6557483/2025/08/17/richarlison-solanke-spurs-striker/
+
 **Twins notes: Alan Roden injured, James Outman called up, Pablo López nearing rehab start**\
 `Plus a Triple-A promotion for pitching prospect Connor Prielipp and an update on Simeon Woods Richardson's return timeline.`\
 https://nytimes.com/athletic/6557047/2025/08/17/twins-alan-roden-injured-james-outman/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/17/world/europe/russia-ukraine-putin-alaska.html
 **Connections: Sports Edition Coach: Hints for Aug. 17, 2025**\
 `Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
 https://nytimes.com/athletic/6557364/2025/08/17/connections-sports-edition-hints-for-aug-17-2025-puzzle-no-328/
-
-**Corrections: Aug. 17, 2025**\
-`Corrections that appeared in print on Sunday, Aug. 17, 2025.`\
-https://nytimes.com/2025/08/16/pageoneplus/corrections-aug-17-2025.html
 
