@@ -1,3 +1,11 @@
+**Blue Jays takeaways: Myles Straw the microcosm, José Berríos' struggles, more**\
+`Here are three takeaways from Toronto’s series win over the Rangers.`\
+https://nytimes.com/athletic/6559227/2025/08/17/blue-jays-takeaways-myles-straw-jose-berrios/
+
+**Guardians notes: Parker Messick watch, Triston McKenzie's return and key prospect updates**\
+`The Cleveland Guardians need a starting pitcher for Wednesday. They didn't have to need one, but they chose to create the opportunity.`\
+https://nytimes.com/athletic/6558902/2025/08/17/guardians-parker-messick-joey-cantillo-triston-mckenzie/
+
 **Ronnie Rondell, Stuntman Set on Fire for Pink Floyd Cover, Dies at 88**\
 `He was also known for his performances in “Twister” and “The Matrix Reloaded,” and came from a family of stunt performers.`\
 https://nytimes.com/2025/08/17/us/ronnie-rondell-dead.html

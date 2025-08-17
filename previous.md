@@ -1,8 +1,12 @@
+**Blue Jays takeaways: Myles Straw the microcosm, José Berríos' struggles, more**\
+`Here are three takeaways from Toronto’s series win over the Rangers.`\
+https://nytimes.com/athletic/6559227/2025/08/17/blue-jays-takeaways-myles-straw-jose-berrios/
+
 **Ronnie Rondell, Stuntman Set on Fire for Pink Floyd Cover, Dies at 88**\
 `He was also known for his performances in “Twister” and “The Matrix Reloaded,” and came from a family of stunt performers.`\
 https://nytimes.com/2025/08/17/us/ronnie-rondell-dead.html
 
-**Guardians notes: Parker Messick among options as Cleveland shuffle rotation**\
+**Guardians notes: Parker Messick watch, Triston McKenzie's return and key prospect updates**\
 `The Cleveland Guardians need a starting pitcher for Wednesday. They didn't have to need one, but they chose to create the opportunity.`\
 https://nytimes.com/athletic/6558902/2025/08/17/guardians-parker-messick-joey-cantillo-triston-mckenzie/
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6559026/2025/08/17/brewers-winning-streak-ends-reds
 **Eagles acquire John Metchie III from Texans, adding depth at WR: Sources**\
 `Last season, he played 45 percent of the Texans' offensive snaps and caught 24 balls for 254 yards and a touchdown.`\
 https://nytimes.com/athletic/6559051/2025/08/17/eagles-john-metchie-texans-trade/
-
-**Zelensky Brings Backup to the White House as Trump Aligns More Closely With Putin**\
-`European leaders are joining a trip to Washington to make sure the trans-Atlantic alliance remains intact.`\
-https://nytimes.com/2025/08/17/us/politics/europe-trump-zelensky-putin.html
 
