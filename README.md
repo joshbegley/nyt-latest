@@ -1,3 +1,11 @@
+**Mukiele joins Sunderland as promoted club's 12th summer transfer**\
+`The 27-year-old, who spent last season on loan at Bayer Leverkusen, becomes Sunderland's 12th signing of the window.`\
+https://nytimes.com/athletic/6556443/2025/08/17/nordi-mukiele-sunderland-transfer-news/
+
+**Scream 4: Jake Moody might spook 49ers fans, but he isn't going away**\
+`The 49ers kicker was on his way to being a shaky summer storyline until two kicks in the final minute bought him some breathing room.`\
+https://nytimes.com/athletic/6558074/2025/08/17/jake-moody-49ers-kicker-preseason/
+
 **Three Are Killed in Shooting at Crown Heights Bar**\
 `Eight others were taken to the hospital with injuries after the early morning shooting in Brooklyn.`\
 https://nytimes.com/2025/08/17/nyregion/brooklyn-shooting-nightclub.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6557540/2025/08/17/cfp-college-football-playoff-exp
 **The 2025 College Football Playoff chase will be impacted by these 20 players**\
 `The focus is on players who have yet to see significant snaps for their current team or are new to the Power 4 level.`\
 https://nytimes.com/athletic/6551262/2025/08/17/college-football-playoff-2025-impact-players/
-
-**At some point, Justin Fields will have to throw the ball — it would be nice to see it this summer**\
-`Saturday night, like the rest of this summer, brought little downfield passing from the Jets' quarterback.`\
-https://nytimes.com/athletic/6558016/2025/08/17/justin-fields-jets-offense-passing-game/
-
-**Vanderbilt football has a cancer beater and a life 'forever changed' in Marlon Jones**\
-`Jones missed the 2024 season after being diagnosed with stage 3 Hodgkin's lymphoma just before he was scheduled to enroll at Vanderbilt. `\
-https://nytimes.com/athletic/6556190/2025/08/17/marlon-jones-vanderbilt-cancer-survivor/
 
