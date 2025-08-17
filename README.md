@@ -1,3 +1,11 @@
+**Pence, who pushed for National Guard troops on Jan. 6, welcomes Trump’s D.C. deployment.**\
+`By Talya Minsberg`\
+https://nytimes.com/live/2025/08/17/us/trump-news/pence-who-pushed-for-national-guard-troops-on-jan-6-welcomes-trumps-dc-deployment
+
+**Forest assistant Barbosa needs stitches after celebrating in Brentford win**\
+`The goalkeeper coach's injury occurred after Chris Wood had given Forest an early lead at the City Ground.`\
+https://nytimes.com/athletic/6558844/2025/08/17/nottingham-forest-brentford-rui-barbosa/
+
 **The Pulse: College football's mystery QB component**\
 `Welcome to The Pulse, The Athletic's daily sports newsletter.`\
 https://nytimes.com/athletic/6558111/2025/08/17/why-theres-so-much-we-dont-quite-know-about-college-qbs-in-2025/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6558721/2025/08/17/astros-yordan-alvarez-injury-reh
 **Trump and Putin Find Common Ground on One Issue: Biden**\
 `The Alaska summit between the U.S. and Russian leaders showcased their mutual animosity for the former president.`\
 https://nytimes.com/2025/08/17/us/politics/trump-putin-common-ground-biden.html
-
-**Orioles' Samuel Basallo, No. 8 MLB prospect, to make his major-league debut Sunday**\
-`Basallo will play everyday but will be the No. 2 catcher behind Adley Rutschman while also seeing time at first base and DH.`\
-https://nytimes.com/athletic/6558627/2025/08/17/samuel-basallo-orioles-mlb-debut/
-
-**Newcastle complete Ramsey signing from Villa**\
-`The clubs had agreed an upfront fee of £39million ($52.8m) along with a further £5m in harder to achieve add-ons for the central midfielder.`\
-https://nytimes.com/athletic/6558681/2025/08/17/jacob-ramsey-transfer-newcastle-aston-villa/
 
