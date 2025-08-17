@@ -1,3 +1,7 @@
+**Giants stock report: Jaxson Dart hype builds, grading Evan Neal's performance**\
+`Dart has another stellar performance, Russell Wilson hits signature deep throw and Neal plays first NFL game at guard.`\
+https://nytimes.com/athletic/6558232/2025/08/17/giants-stock-report-jaxson-dart-preseason-jets/
+
 **City’s Lewis 'never imagined playing at another club' amid Forest interest**\
 `The right-back started for Pep Guardiola's side in Saturday's 4-0 win at Wolverhampton Wanderers amid interest from Nottingham Forest.`\
 https://nytimes.com/athletic/6558319/2025/08/17/manchester-city-rico-lewis-transfer-nottingham-forest/
