@@ -1,3 +1,7 @@
+**Nolan McLean gives Mets much-needed lift in major-league debut**\
+`McLean joined Matt Harvey as the only pitchers in Mets history to earn a win, strike out eight or more and allow zero runs in their debut.`\
+https://nytimes.com/athletic/6557972/2025/08/16/nolan-mclean-mets-major-league-debut/
+
 **Former Wisconsin women's basketball coach sued for psychological abuse**\
 `The University of Wisconsin declined to comment on the lawsuit, filed Friday.`\
 https://nytimes.com/athletic/6557880/2025/08/16/wisconsin-marisa-moseley-womens-college-basketball-lawsuit/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6557701/2025/08/16/why-cubs-believe-they-control-th
 **Has Kyle Allen earned Lions' backup QB job? 6 players who impressed vs. Dolphins**\
 `Kyle Allen is "playing better" than Hendon Hooker and has tossed four total TD passes in the past two preseason contests.`\
 https://nytimes.com/athletic/6557684/2025/08/16/lions-preseason-top-players-kyle-allen-dolphins/
-
-**U.S. Pauses Visitor Visas for Gazans After Right-Wing Outcry**\
-`The move blocked a pathway for those seeking medical care in the United States, including young children, who have arrived in recent weeks with serious conditions.`\
-https://nytimes.com/2025/08/16/us/politics/gaza-visitor-visas-medical-trump-loomer.html
 

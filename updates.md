@@ -1,3 +1,7 @@
+**Nolan McLean gives Mets much-needed lift in major-league debut**\
+`McLean joined Matt Harvey as the only pitchers in Mets history to earn a win, strike out eight or more and allow zero runs in their debut.`\
+https://nytimes.com/athletic/6557972/2025/08/16/nolan-mclean-mets-major-league-debut/
+
 **Former Wisconsin women's basketball coach sued for psychological abuse**\
 `The University of Wisconsin declined to comment on the lawsuit, filed Friday.`\
 https://nytimes.com/athletic/6557880/2025/08/16/wisconsin-marisa-moseley-womens-college-basketball-lawsuit/
