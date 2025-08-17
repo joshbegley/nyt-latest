@@ -1,3 +1,7 @@
+**Eagles acquire John Metchie III from Texans, adding depth at WR: Sources**\
+`Last season, he played 45 percent of the Texans' offensive snaps and caught 24 balls for 254 yards and a touchdown.`\
+https://nytimes.com/athletic/6559051/2025/08/17/eagles-john-metchie-texans-trade/
+
 **Zelensky Brings Backup to the White House as Trump Aligns More Closely With Putin**\
 `European leaders are joining a trip to Washington to make sure the trans-Atlantic alliance remains intact.`\
 https://nytimes.com/2025/08/17/us/politics/europe-trump-zelensky-putin.html
