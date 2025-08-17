@@ -1,3 +1,7 @@
+**Can the Packers ever count on RB MarShawn Lloyd after yet another injury?**\
+`The 2024 third-round pick suffered another hamstring injury in the second quarter of Saturday's preseason game against the Colts.`\
+https://nytimes.com/athletic/6559189/2025/08/17/packers-marshawn-lloyd-injuries/
+
 **Phillies' Aaron Nola stumbles in return as questions about rotation abound**\
 `The Phillies entered the weekend with one of the best rotations in the league. Much of that stability changed in about 24 hours.`\
 https://nytimes.com/athletic/6559082/2025/08/17/phillies-aaron-nola-stumbles-rotation-zack-wheeler/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6558984/2025/08/17/bengals-trade-talks-trey-hendric
 **NASCAR Richmond takeaways: Austin Dillon's surprise win, NASCAR playoff picture and more**\
 `Austin Dillon jumps into the playoffs, Tyler Reddick suddenly has to sweat it out at Daytona, and more from the weekend to Richmond.`\
 https://nytimes.com/athletic/6558530/2025/08/17/richmond-takeways-nascar-austin-dillon-playoff-picture/
-
-**Amorim says Man Utd 'can win any game' after performance in Arsenal loss**\
-`"We were the better team," Amorim said after his side's 1-0 home defeat to open the 2025-26 season.`\
-https://nytimes.com/athletic/6558961/2025/08/17/ruben-amorim-man-utd-arsenal/
 
