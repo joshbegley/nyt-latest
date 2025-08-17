@@ -1,3 +1,11 @@
+**Broncos stock report: Jarrett Stidham, young WRs pop in preseason win vs. Cardinals**\
+`Stidham was nearly perfect again, twice connecting with Troy Franklin for TDs as we look at Denver's risers and fallers from Saturday.`\
+https://nytimes.com/athletic/6558249/2025/08/17/broncos-risers-fallers-stidham-receivers-preseason/
+
+**Hojlund set for omission from Man Utd squad for Arsenal game**\
+`Hojlund faces an uncertain future at Old Trafford following the signing of fellow striker Benjamin Sesko from RB Leipzig.`\
+https://nytimes.com/athletic/6558338/2025/08/17/rasmus-hojlund-manchester-united-transfer-update/
+
 **KC Current and Orlando Pride finish scoreless after 3.5-hour heat delay in NWSL**\
 `The NWSL match is just the latest example of dangerous heat impacting soccer games in the U.S.`\
 https://nytimes.com/athletic/6558243/2025/08/17/nwsl-weather-heat-delay-kc-current-orlando-pride/
