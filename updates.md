@@ -1,3 +1,7 @@
+**West Ham's failure on the basics already has Potter talking about bouncing back**\
+`West Ham lost their opening game of the season 3-0 against newly promoted Sunderland`\
+https://nytimes.com/athletic/6558248/2025/08/17/west-ham-sunderland-analysis/
+
 **Sunderland's emotional exorcism of the Stadium of Light gives them the hope they needed**\
 `Sunderland beat West Ham 3-0 to begin life back in the Premier League with a victory`\
 https://nytimes.com/athletic/6557698/2025/08/17/sunderland-stadium-of-light-premier-league-return/
