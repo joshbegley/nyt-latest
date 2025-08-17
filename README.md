@@ -1,3 +1,7 @@
+**Former Wisconsin women's basketball coach sued for psychological abuse**\
+`The University of Wisconsin declined to comment on the lawsuit, filed Friday.`\
+https://nytimes.com/athletic/6557880/2025/08/16/wisconsin-marisa-moseley-womens-college-basketball-lawsuit/
+
 **49ers standouts vs. Raiders: Brock Purdy's hot start, Jake Moody's redemption**\
 `Moody went from goat to hero, while Purdy and receiver Ricky Pearsall are already showing impressive chemistry.`\
 https://nytimes.com/athletic/6557909/2025/08/16/brock-purdy-jake-moody-49ers-preseason/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6557684/2025/08/16/lions-preseason-top-players-kyle
 **U.S. Pauses Visitor Visas for Gazans After Right-Wing Outcry**\
 `The move blocked a pathway for those seeking medical care in the United States, including young children, who have arrived in recent weeks with serious conditions.`\
 https://nytimes.com/2025/08/16/us/politics/gaza-visitor-visas-medical-trump-loomer.html
-
-**Packers stock report: Who struggled and who impressed in comeback win over Colts?**\
-`Green Bay erased a 13-0 deficit in Indianapolis on Saturday and beat the Colts 23-19 in the second of three preseason games.`\
-https://nytimes.com/athletic/6557740/2025/08/16/packers-stock-report-colts-preseason/
 
