@@ -1,3 +1,11 @@
+**European Leaders to Join Zelensky for Meeting With Trump**\
+`After the Trump-Putin summit, European leaders said they would accompany President Volodymyr Zelensky of Ukraine to the White House on Monday.`\
+https://nytimes.com/2025/08/17/us/politics/trump-european-leaders-zelensky-meeting.html
+
+**Trump Administration Live Updates: Three Republican-Led States Pledge More National Guard Troops for D.C.**\
+``\
+https://nytimes.com/live/2025/08/17/us/trump-news
+
 **Mukiele joins Sunderland as promoted club's 12th summer transfer**\
 `The 27-year-old, who spent last season on loan at Bayer Leverkusen, becomes Sunderland's 12th signing of the window.`\
 https://nytimes.com/athletic/6556443/2025/08/17/nordi-mukiele-sunderland-transfer-news/

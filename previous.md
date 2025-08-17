@@ -1,3 +1,11 @@
+**European Leaders to Join Zelensky for Meeting With Trump**\
+`After the Trump-Putin summit, European leaders said they would accompany President Volodymyr Zelensky of Ukraine to the White House on Monday.`\
+https://nytimes.com/2025/08/17/us/politics/trump-european-leaders-zelensky-meeting.html
+
+**Trump Administration Live Updates: Three Republican-Led States Pledge More National Guard Troops for D.C.**\
+``\
+https://nytimes.com/live/2025/08/17/us/trump-news
+
 **Mukiele joins Sunderland as promoted club's 12th summer transfer**\
 `The 27-year-old, who spent last season on loan at Bayer Leverkusen, becomes Sunderland's 12th signing of the window.`\
 https://nytimes.com/athletic/6556443/2025/08/17/nordi-mukiele-sunderland-transfer-news/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6558319/2025/08/17/manchester-city-rico-lewis-trans
 **Derrick Harmon, Kaleb Johnson lead Steelers stock report after second preseason game**\
 `Plus, some O-line concerns after a shaky week working against the Bucs.`\
 https://nytimes.com/athletic/6558126/2025/08/17/steelers-second-preseason-game-roster-report/
-
-**Need a College Football Playoff expansion plan that makes sense? Look to the FCS format**\
-`This format provides a path to the Playoff for virtually every team in the FBS. Win your conference and you are in. `\
-https://nytimes.com/athletic/6557540/2025/08/17/cfp-college-football-playoff-expansion-format-fcs/
-
-**The 2025 College Football Playoff chase will be impacted by these 20 players**\
-`The focus is on players who have yet to see significant snaps for their current team or are new to the Power 4 level.`\
-https://nytimes.com/athletic/6551262/2025/08/17/college-football-playoff-2025-impact-players/
 
