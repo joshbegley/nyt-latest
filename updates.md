@@ -1,3 +1,11 @@
+**Zelensky Brings Backup to the White House as Trump Aligns More Closely With Putin**\
+`European leaders are joining a trip to Washington to make sure the trans-Atlantic alliance remains intact.`\
+https://nytimes.com/2025/08/17/us/politics/europe-trump-zelensky-putin.html
+
+**Joe Caroff, Who Gave James Bond His Signature 007 Logo, Dies at 103**\
+`A quiet giant in graphic design, he created posters for hundreds of movies, including “West Side Story” and “Manhattan.” But his work was often unsigned.`\
+https://nytimes.com/2025/08/17/obituaries/joe-caroff-dead.html
+
 **Bengals engaged in trade talks for Trey Hendrickson: Sources**\
 `Hendrickson has been present but not participating in the Bengals' training camp practices.`\
 https://nytimes.com/athletic/6558984/2025/08/17/bengals-trade-talks-trey-hendrickson/
