@@ -1,3 +1,7 @@
+**Brewers' extend winning streak to 14 games, setting franchise record**\
+`The day after the Brewers came back from seven runs down to extend the streak to 13, the Reds pretty much handed Milwaukee their 14th.`\
+https://nytimes.com/athletic/6557669/2025/08/16/brewers-14-win-streak-reds-franchise-record/
+
 **Nolan McLean gives Mets much-needed lift in major-league debut**\
 `McLean joined Matt Harvey as the only pitchers in Mets history to earn a win, strike out eight or more and allow zero runs in their debut.`\
 https://nytimes.com/athletic/6557972/2025/08/16/nolan-mclean-mets-major-league-debut/
