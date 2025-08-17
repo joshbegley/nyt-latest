@@ -1,3 +1,7 @@
+**Amorim says Man Utd 'can win any game' after performance in Arsenal loss**\
+`"We were the better team," Amorim said after his side's 1-0 home defeat to open the 2025-26 season.`\
+https://nytimes.com/athletic/6558961/2025/08/17/ruben-amorim-man-utd-arsenal/
+
 **Man Utd 0 Arsenal 1: Analysing Arsenal's 'new' set piece, Amorim's goalkeeper problem, watching Gyokeres and Sesko**\
 `Analysis of Manchester United against Arsenal in the Premier League opening round`\
 https://nytimes.com/athletic/6556019/2025/08/17/man-utd-arsenal-highlights/
