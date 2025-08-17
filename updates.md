@@ -1,3 +1,7 @@
+**Phillies place Zack Wheeler on injured list due to blood clot near right shoulder**\
+`Philadelphia's ace felt normal before his start on Friday against the Nationals, but reported some new symptoms after that outing.`\
+https://nytimes.com/athletic/6557719/2025/08/16/phillies-zack-wheeler-injury-blood-clot/
+
 **Jon Gray goes unclaimed after Rangers place him on waivers: Sources**\
 `No team was willing to assume the rest of the approximately $3 million left on the 33-year-old right-hander's contract.`\
 https://nytimes.com/athletic/6557800/2025/08/16/rangers-jon-gray-waivers/
