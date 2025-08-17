@@ -1,3 +1,7 @@
+**Dan Tana, Whose Clubby Red-Sauce Restaurant Drew Stars, Dies at 90**\
+`Dan Tana’s was said to be as central to Hollywood as palm trees and Botox. On a scale of 1 to 10, the people watching was a 10. Even the steak came with pasta.`\
+https://nytimes.com/2025/08/17/obituaries/dan-tana-dead.html
+
 **Blue Jays takeaways: Myles Straw the microcosm, José Berríos' struggles, more**\
 `Here are three takeaways from Toronto’s series win over the Rangers.`\
 https://nytimes.com/athletic/6559227/2025/08/17/blue-jays-takeaways-myles-straw-jose-berrios/
@@ -30,11 +34,7 @@ https://nytimes.com/video/world/asia/100000010345761/china-robots-sports-competi
 `Plus, an A.I. stuffed animal.`\
 https://nytimes.com/2025/08/17/briefing/trump-zelensky-gaza-us-visas-bolivia-evo-morales.html
 
-**Brewers' winning streak snapped in extras after 9th-inning comeback doesn't hold**\
+**Brewers' winning streak snapped in extras after ninth-inning comeback doesn't hold**\
 `William Contreras hit a come-from-behind, two-run homer in the ninth inning, but Milwaukee couldn't keep its magical run going after that.`\
 https://nytimes.com/athletic/6559026/2025/08/17/brewers-winning-streak-ends-reds/
-
-**Eagles acquire John Metchie III from Texans, adding depth at WR: Sources**\
-`Last season, he played 45 percent of the Texans' offensive snaps and caught 24 balls for 254 yards and a touchdown.`\
-https://nytimes.com/athletic/6559051/2025/08/17/eagles-john-metchie-texans-trade/
 
