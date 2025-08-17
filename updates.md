@@ -1,3 +1,11 @@
+**Mukiele joins Sunderland as promoted club's 12th summer transfer**\
+`The 27-year-old, who spent last season on loan at Bayer Leverkusen, becomes Sunderland's 12th signing of the window.`\
+https://nytimes.com/athletic/6556443/2025/08/17/nordi-mukiele-sunderland-transfer-news/
+
+**Scream 4: Jake Moody might spook 49ers fans, but he isn't going away**\
+`The 49ers kicker was on his way to being a shaky summer storyline until two kicks in the final minute bought him some breathing room.`\
+https://nytimes.com/athletic/6558074/2025/08/17/jake-moody-49ers-kicker-preseason/
+
 **Three Are Killed in Shooting at Crown Heights Bar**\
 `Eight others were taken to the hospital with injuries after the early morning shooting in Brooklyn.`\
 https://nytimes.com/2025/08/17/nyregion/brooklyn-shooting-nightclub.html
