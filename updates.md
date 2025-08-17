@@ -1,3 +1,11 @@
+**Dan Tana, Whose Clubby Red-Sauce Restaurant Drew Stars, Dies at 90**\
+`Dan Tana’s was said to be as central to Hollywood as palm trees and Botox. On a scale of 1 to 10, the people watching was a 10. Even the steak came with pasta.`\
+https://nytimes.com/2025/08/17/obituaries/dan-tana-dead.html
+
+**Brewers' winning streak snapped in extras after ninth-inning comeback doesn't hold**\
+`William Contreras hit a come-from-behind, two-run homer in the ninth inning, but Milwaukee couldn't keep its magical run going after that.`\
+https://nytimes.com/athletic/6559026/2025/08/17/brewers-winning-streak-ends-reds/
+
 **Blue Jays takeaways: Myles Straw the microcosm, José Berríos' struggles, more**\
 `Here are three takeaways from Toronto’s series win over the Rangers.`\
 https://nytimes.com/athletic/6559227/2025/08/17/blue-jays-takeaways-myles-straw-jose-berrios/
