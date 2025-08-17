@@ -1,3 +1,7 @@
+**NASCAR Richmond takeaways: Austin Dillon's surprise win, NASCAR playoff picture and more**\
+`Austin Dillon jumps into the playoffs, Tyler Reddick suddenly has to sweat it out at Daytona, and more from the weekend to Richmond.`\
+https://nytimes.com/athletic/6558530/2025/08/17/richmond-takeways-nascar-austin-dillon-playoff-picture/
+
 **Amorim says Man Utd 'can win any game' after performance in Arsenal loss**\
 `"We were the better team," Amorim said after his side's 1-0 home defeat to open the 2025-26 season.`\
 https://nytimes.com/athletic/6558961/2025/08/17/ruben-amorim-man-utd-arsenal/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6556019/2025/08/17/man-utd-arsenal-highlights/
 **Red Sox rookie Marcelo Mayer to undergo season-ending wrist surgery**\
 `The 22-year-old injured his wrist on a swing in July and didn't see any improvement from a pain-killing injection.`\
 https://nytimes.com/athletic/6558713/2025/08/17/red-sox-marcelo-mayer-injury-wrist-surgery/
-
-**Trump Officials Hint at Possible Concessions by Putin**\
-`Secretary of State Marco Rubio and Steve Witkoff, an envoy for President Trump, suggested that a peace deal was still distant.`\
-https://nytimes.com/2025/08/17/us/politics/trump-witkoff-ukraine-putin-concessions.html
 
