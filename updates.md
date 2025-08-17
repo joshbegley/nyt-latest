@@ -1,3 +1,7 @@
+**Twins notes: Alan Roden injured, James Outman called up, Pablo López nearing rehab start**\
+`Plus a Triple-A promotion for pitching prospect Connor Prielipp and an update on Simeon Woods Richardson's return timeline.`\
+https://nytimes.com/athletic/6557047/2025/08/17/twins-alan-roden-injured-james-outman/
+
 **'Not ideal' - Fulham's Marco Silva and the Premier League coaches frustrated by a lack of signings**\
 `A quarter of Premier League coaches spoke about a lack of new faces as they prepared for their opening games of the new season`\
 https://nytimes.com/athletic/6555435/2025/08/17/premier-league-transfer-manager-complaints/
