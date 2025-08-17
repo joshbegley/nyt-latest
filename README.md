@@ -1,3 +1,11 @@
+**Spike Lee's Colin Kaepernick docuseries no longer coming to ESPN**\
+`It is believed the series can still be shopped elsewhere, a source briefed on the situation told The Athletic.`\
+https://nytimes.com/athletic/6558595/2025/08/17/spike-lee-colin-kaepernick-docu-series-espn/
+
+**The Secret Weapon of ‘Weapons’: Amy Madigan**\
+`The star says her uncanny villain, Aunt Gladys, is actually misunderstood. And her unforgettable appearance? “I just think she looks fab!”`\
+https://nytimes.com/2025/08/17/movies/the-secret-weapon-of-weapons-amy-madigan.html
+
 **What to Know About Russia-U.S.-Ukraine Peace Talks**\
 `The president of Ukraine and his European allies are to visit the White House on Monday, after President Trump backed Russia’s plan to end the war.`\
 https://nytimes.com/2025/08/17/world/europe/us-russia-ukraine-peace-talks.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6558521/2025/08/17/cardinals-injuries-victor-scott-
 **Justin Verlander's best start of the year can't get Giants out of another home loss**\
 `Verlander completed seven innings and didn't allow a run, but the Giants lost their seventh straight game behind a thinned-out bullpen.`\
 https://nytimes.com/athletic/6558215/2025/08/17/justin-verlanders-start-giants-rays/
-
-**Putin’s Ukraine Proposal Backed by Trump Centers on Donbas. Here’s Why.**\
-`The traditionally Russian-speaking area is at the heart of what the Russian president calls the “root causes” of the war, and taking it over is near the top of his list of territorial and political demands.`\
-https://nytimes.com/2025/08/17/world/europe/russia-donbas-importance.html
-
-**O-line steps up while D-line takes shape: Five things we learned this week at Raiders training camp**\
-`Plus, a riser among the cornerbacks, and the promise of Laki Tasi.`\
-https://nytimes.com/athletic/6557918/2025/08/17/las-vegas-raiders-training-camp-report/
 
