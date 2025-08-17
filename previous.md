@@ -1,9 +1,17 @@
+**Phillies' Aaron Nola stumbles in return as questions about rotation abound**\
+`The Phillies entered the weekend with one of the best rotations in the league. Much of that stability changed in about 24 hours.`\
+https://nytimes.com/athletic/6559082/2025/08/17/phillies-aaron-nola-stumbles-rotation-zack-wheeler/
+
+**China Hosts Sports Competition for Humanoid Robots**\
+`Humanoid robots competed in a sports competition in Beijing where they ran, kicked and punched — as well as crashed and fell over many times.`\
+https://nytimes.com/video/world/asia/100000010345761/china-robots-sports-competition.html
+
 **Monday Briefing: A Trump-Zelensky Meeting**\
 `Plus, an A.I. stuffed animal.`\
 https://nytimes.com/2025/08/17/briefing/trump-zelensky-gaza-us-visas-bolivia-evo-morales.html
 
 **Brewers' winning streak snapped in extras after 9th-inning comeback doesn't hold**\
-`William Contreras hit a come-from-behind, two-run homer in the ninth inning, but Milwaukee couldn't keep their magical run going after that.`\
+`William Contreras hit a come-from-behind, two-run homer in the ninth inning, but Milwaukee couldn't keep its magical run going after that.`\
 https://nytimes.com/athletic/6559026/2025/08/17/brewers-winning-streak-ends-reds/
 
 **Eagles acquire John Metchie III from Texans, adding depth at WR: Sources**\
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6558530/2025/08/17/richmond-takeways-nascar-austin-
 **Amorim says Man Utd 'can win any game' after performance in Arsenal loss**\
 `"We were the better team," Amorim said after his side's 1-0 home defeat to open the 2025-26 season.`\
 https://nytimes.com/athletic/6558961/2025/08/17/ruben-amorim-man-utd-arsenal/
-
-**From the hospital to the podium, France celebrates unlikely Germany Sail Grand Prix win**\
-`France wins Germany SailGP but after a dramatic weekend there are questions about technical reliability and human safety to be addressed`\
-https://nytimes.com/athletic/6558828/2025/08/17/france-win-germany-sail-grand-prix-report/
-
-**Alabama RB Jam Miller expected to miss season opener vs. FSU**\
-`The timetable for Miller's return is uncertain after he suffered an upper-body injury in Saturday's scrimmage.`\
-https://nytimes.com/athletic/6558891/2025/08/17/jam-miller-injury-alabama-florida-state/
 

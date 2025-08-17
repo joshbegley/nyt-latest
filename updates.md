@@ -1,3 +1,15 @@
+**Phillies' Aaron Nola stumbles in return as questions about rotation abound**\
+`The Phillies entered the weekend with one of the best rotations in the league. Much of that stability changed in about 24 hours.`\
+https://nytimes.com/athletic/6559082/2025/08/17/phillies-aaron-nola-stumbles-rotation-zack-wheeler/
+
+**China Hosts Sports Competition for Humanoid Robots**\
+`Humanoid robots competed in a sports competition in Beijing where they ran, kicked and punched — as well as crashed and fell over many times.`\
+https://nytimes.com/video/world/asia/100000010345761/china-robots-sports-competition.html
+
+**Brewers' winning streak snapped in extras after 9th-inning comeback doesn't hold**\
+`William Contreras hit a come-from-behind, two-run homer in the ninth inning, but Milwaukee couldn't keep its magical run going after that.`\
+https://nytimes.com/athletic/6559026/2025/08/17/brewers-winning-streak-ends-reds/
+
 **Monday Briefing: A Trump-Zelensky Meeting**\
 `Plus, an A.I. stuffed animal.`\
 https://nytimes.com/2025/08/17/briefing/trump-zelensky-gaza-us-visas-bolivia-evo-morales.html
