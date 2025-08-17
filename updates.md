@@ -1,3 +1,5 @@
+
+
 **Pence, who pushed for National Guard troops on Jan. 6, welcomes Trump’s D.C. deployment.**\
 `By Talya Minsberg`\
 https://nytimes.com/live/2025/08/17/us/trump-news/pence-who-pushed-for-national-guard-troops-on-jan-6-welcomes-trumps-dc-deployment
