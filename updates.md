@@ -1,3 +1,7 @@
+**Ben Rice's 7-RBI night powers Yankees offense to series win over Cardinals**\
+`Rice reached base four times and fell a triple short of the cycle in New York's 12-8 win over St. Louis.`\
+https://nytimes.com/athletic/6558035/2025/08/17/ben-rice-7-rbi-yankees-cardinals/
+
 **Advantage Richarlison in contest to be Tottenham's first-choice striker**\
 `Richarlison has scored nine goals in his past nine starts for Tottenham, suggesting his has the potential to be a consistent threat`\
 https://nytimes.com/athletic/6557483/2025/08/17/richarlison-solanke-spurs-striker/

@@ -1,3 +1,7 @@
+**Ben Rice's 7-RBI night powers Yankees offense to series win over Cardinals**\
+`Rice reached base four times and fell a triple short of the cycle in New York's 12-8 win over St. Louis.`\
+https://nytimes.com/athletic/6558035/2025/08/17/ben-rice-7-rbi-yankees-cardinals/
+
 **Advantage Richarlison in contest to be Tottenham's first-choice striker**\
 `Richarlison has scored nine goals in his past nine starts for Tottenham, suggesting his has the potential to be a consistent threat`\
 https://nytimes.com/athletic/6557483/2025/08/17/richarlison-solanke-spurs-striker/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6553787/2025/08/17/manchester-united-arsenal-previe
 **Putin Sees Ukraine Through a Lens of Grievance Over Lost Glory**\
 `Speaking after Friday’s summit, President Putin again implied that the war is all about Russia’s diminished status since the fall of the Soviet Union.`\
 https://nytimes.com/2025/08/17/world/europe/russia-ukraine-putin-alaska.html
-
-**Connections: Sports Edition Coach: Hints for Aug. 17, 2025**\
-`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
-https://nytimes.com/athletic/6557364/2025/08/17/connections-sports-edition-hints-for-aug-17-2025-puzzle-no-328/
 
