@@ -1,3 +1,7 @@
+**Guardians notes: Parker Messick among options as Cleveland shuffle rotation**\
+`The Cleveland Guardians need a starting pitcher for Wednesday. They didn't have to need one, but they chose to create the opportunity.`\
+https://nytimes.com/athletic/6558902/2025/08/17/guardians-parker-messick-joey-cantillo-triston-mckenzie/
+
 **Bother, as a Bear**\
 `Andrea Carla Michaels and Christina Iverson voice their approval.`\
 https://nytimes.com/2025/08/17/crosswords/daily-puzzle-2025-08-18.html
