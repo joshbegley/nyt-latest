@@ -1,3 +1,11 @@
+**Justin Verlander's best start of the year can't get Giants out of another home loss**\
+`Verlander completed seven innings and didn't allow a run, but the Giants lost their seventh straight game behind a thinned-out bullpen.`\
+https://nytimes.com/athletic/6558215/2025/08/17/justin-verlanders-start-giants-rays/
+
+**Putin’s Ukraine Proposal Backed by Trump Centers on Donbas. Here’s Why.**\
+`The traditionally Russian-speaking area is at the heart of what the Russian president calls the “root causes” of the war, and taking it over is near the top of his list of territorial and political demands.`\
+https://nytimes.com/2025/08/17/world/europe/russia-donbas-importance.html
+
 **O-line steps up while D-line takes shape: Five things we learned this week at Raiders training camp**\
 `Plus, a riser among the cornerbacks, and the promise of Laki Tasi.`\
 https://nytimes.com/athletic/6557918/2025/08/17/las-vegas-raiders-training-camp-report/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6558385/2025/08/17/graham-potter-west-ham-sunderlan
 **European Leaders to Join Zelensky for Meeting With Trump**\
 `After the Trump-Putin summit, European leaders said they would accompany President Volodymyr Zelensky of Ukraine to the White House on Monday.`\
 https://nytimes.com/2025/08/17/us/politics/trump-european-leaders-zelensky-meeting.html
-
-**Trump Administration Live Updates: European Leaders to Join Zelensky for White House Meeting**\
-``\
-https://nytimes.com/live/2025/08/17/us/trump-news
-
-**Mukiele joins Sunderland as promoted club's 12th summer transfer**\
-`The 27-year-old, who spent last season on loan at Bayer Leverkusen, becomes Sunderland's 12th signing of the window.`\
-https://nytimes.com/athletic/6556443/2025/08/17/nordi-mukiele-sunderland-transfer-news/
 
