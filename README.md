@@ -1,3 +1,11 @@
+**Chelsea 0 Crystal Palace 0 - Acheampong steps in, that free-kick rule but are Chelsea undercooked?**\
+`The FIFA Club World Cup winners began their Premier League campaign with an uninspiring goalless draw at an expectant Stamford Bridge`\
+https://nytimes.com/athletic/6556017/2025/08/17/chelsea-palace-acheampong-estevao/
+
+**Terence Stamp, Luminary of 1960s British Cinema, Dies at 87**\
+`Known for his “heartbreak blue eyes,” he starred in “Billy Budd” and “The Collector,” and had a memorable role in “Superman” and “Superman II.”`\
+https://nytimes.com/2025/08/17/movies/terence-stamp-dead.html
+
 **Air Canada Flight Attendants Say They Will Defy Back-to-Work Order**\
 `The decision by the union representing the 10,000 workers means that travel chaos will most likely continue for at least a second day.`\
 https://nytimes.com/2025/08/17/world/canada/air-canada-strike.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6557918/2025/08/17/las-vegas-raiders-training-camp-
 **The Debate Over Defining Death**\
 `Readers discuss definitions of death in the context of organ donations. Also: Addressing sexual abuse at Uber.`\
 https://nytimes.com/2025/08/17/opinion/defining-death-organ-donors.html
-
-**Farmers Are Turning on MAHA**\
-`Farmers thought they’d benefit greatly under Robert F. Kennedy Jr.’s goals for American health. They’re not so sure anymore.`\
-https://nytimes.com/2025/08/17/opinion/farmers-kennedy-maha.html
-
-**Brighty the Burro, Beloved Grand Canyon Statue, Is Rescued From Wildfire**\
-`The statue was missing an ear and two front legs, but it was mostly intact when crews recovered it from the Dragon Bravo fire.`\
-https://nytimes.com/2025/08/17/us/brighty-burro-grand-canyon-fire.html
 
