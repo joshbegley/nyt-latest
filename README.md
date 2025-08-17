@@ -1,3 +1,11 @@
+**Trump Officials Hint at Possible Concessions by Putin**\
+`Secretary of State Marco Rubio and Steve Witkoff, an envoy for President Trump, suggested that a peace deal was still distant.`\
+https://nytimes.com/2025/08/17/us/politics/trump-witkoff-ukraine-putin-concessions.html
+
+**Lowetide: What McDavid's next contract could tell us about the Oilers**\
+`After 10 years in Edmonton and two consecutive trips to the Stanley Cup Final, the Oilers captain is likely thinking about trajectories.`\
+https://nytimes.com/athletic/6557219/2025/08/17/connor-mcdavid-oilers-bowman-contract/
+
 **Astros' Yordan Alvarez to start rehab assignment after missing over 3 months**\
 `Houston's lefty slugger will report to Double-A Corpus Christi on Tuesday.`\
 https://nytimes.com/athletic/6558721/2025/08/17/astros-yordan-alvarez-injury-rehab-assignment/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/08/17/movies/amy-madigan-weapons-aunt-gladys.html
 **What to Know About Russia-U.S.-Ukraine Peace Talks**\
 `The president of Ukraine and his European allies are to visit the White House on Monday, after President Trump backed Russia’s plan to end the war.`\
 https://nytimes.com/2025/08/17/world/europe/us-russia-ukraine-peace-talks.html
-
-**Chelsea 0 Crystal Palace 0: Acheampong steps in, that free-kick rule but are Chelsea undercooked?**\
-`The FIFA Club World Cup winners began their Premier League campaign with an uninspiring goalless draw at an expectant Stamford Bridge`\
-https://nytimes.com/athletic/6556017/2025/08/17/chelsea-palace-acheampong-estevao/
-
-**Terence Stamp, Luminary of 1960s British Cinema, Dies at 87**\
-`Known for his “heartbreak blue eyes,” he starred in “Billy Budd” and “The Collector,” and had a memorable role in “Superman” and “Superman II.”`\
-https://nytimes.com/2025/08/17/movies/terence-stamp-dead.html
 
