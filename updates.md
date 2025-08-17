@@ -1,3 +1,23 @@
+**Jaxson Dart's impressive preseason has Giants walking a fine line**\
+`It's impossible not to get excited about what Dart has shown in his first two NFL appearances.`\
+https://nytimes.com/athletic/6558165/2025/08/17/giants-jaxson-dart-preseason-impressive-start/
+
+**Rookie receivers steal show in Chargers' preseason loss to Rams**\
+`Tre' Harris had six catches for 85 yards, KeAndre Lambert-Smith had two explosive receptions and Luke Grimm had a punt return for a TD.`\
+https://nytimes.com/athletic/6558184/2025/08/17/chargers-rams-preseason-rookie-receivers/
+
+**The New York Times in Print for Sunday, Aug. 17, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/08/17/todays-new-york-times
+
+**China’s Biotech Is Cheaper and Faster**\
+`China’s biotechnology sector has established a bright future by focusing not on breakthrough cures and treatments but on speed and efficiency.`\
+https://nytimes.com/2025/08/17/opinion/china-biotech.html
+
+**Don’t Be a Loser, Gen X Baby**\
+`It’s fine to make room for the next generation.`\
+https://nytimes.com/2025/08/17/opinion/gen-x.html
+
 **Ben Rice's 7-RBI night powers Yankees offense to series win over Cardinals**\
 `Rice reached base four times and fell a triple short of the cycle in New York's 12-8 win over St. Louis.`\
 https://nytimes.com/athletic/6558035/2025/08/17/ben-rice-7-rbi-yankees-cardinals/
