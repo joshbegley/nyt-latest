@@ -1,3 +1,7 @@
+**NASCAR Richmond takeaways: Austin Dillon's surprise win, NASCAR playoff picture and more**\
+`Austin Dillon jumps into the playoffs, Tyler Reddick suddenly has to sweat it out at Daytona, and more from the weekend to Richmond.`\
+https://nytimes.com/athletic/6558530/2025/08/17/richmond-takeways-nascar-austin-dillon-playoff-picture/
+
 **Amorim says Man Utd 'can win any game' after performance in Arsenal loss**\
 `"We were the better team," Amorim said after his side's 1-0 home defeat to open the 2025-26 season.`\
 https://nytimes.com/athletic/6558961/2025/08/17/ruben-amorim-man-utd-arsenal/
