@@ -1,3 +1,7 @@
+**Man Utd 0 Arsenal 1: Analysing Arsenal's 'new' set piece, Amorim's goalkeeper problem, watching Gyokeres and Sesko**\
+`Analysis of Manchester United against Arsenal in the Premier League opening round`\
+https://nytimes.com/athletic/6556019/2025/08/17/man-utd-arsenal-highlights/
+
 **From the hospital to the podium, France celebrates unlikely Germany Sail Grand Prix win**\
 `France wins Germany SailGP but after a dramatic weekend there are questions about technical reliability and human safety to be addressed`\
 https://nytimes.com/athletic/6558828/2025/08/17/france-win-germany-sail-grand-prix-report/
