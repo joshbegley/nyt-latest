@@ -1,3 +1,19 @@
+**O-line steps up while D-line takes shape: Five things we learned this week at Raiders training camp**\
+`Plus, a riser among the cornerbacks, and the promise of Laki Tasi.`\
+https://nytimes.com/athletic/6557918/2025/08/17/las-vegas-raiders-training-camp-report/
+
+**The Debate Over Defining Death**\
+`Readers discuss definitions of death in the context of organ donations. Also: Addressing sexual abuse at Uber.`\
+https://nytimes.com/2025/08/17/opinion/defining-death-organ-donors.html
+
+**Farmers Are Turning on MAHA**\
+`Farmers thought they’d benefit greatly under Robert F. Kennedy Jr.’s goals for American health. They’re not so sure anymore.`\
+https://nytimes.com/2025/08/17/opinion/farmers-kennedy-maha.html
+
+**Brighty the Burro, Beloved Grand Canyon Statue, Is Rescued From Wildfire**\
+`The statue was missing an ear and two front legs, but it was mostly intact when crews recovered it from the Dragon Bravo fire.`\
+https://nytimes.com/2025/08/17/us/brighty-burro-grand-canyon-fire.html
+
 **Broncos stock report: Jarrett Stidham, young WRs pop in preseason win vs. Cardinals**\
 `Stidham was nearly perfect again, twice connecting with Troy Franklin for TDs as we look at Denver's risers and fallers from Saturday.`\
 https://nytimes.com/athletic/6558249/2025/08/17/broncos-risers-fallers-stidham-receivers-preseason/
