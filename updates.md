@@ -1,3 +1,7 @@
+**Raiders 53-man roster projection: Tom Brady gets an up-close look on Saturday**\
+`Battles among the receiving corps, offensive line and secondary will continue through August.`\
+https://nytimes.com/athletic/6557648/2025/08/16/raiders-53-man-roster-projection-after-second-preseason-game/
+
 **Protesters Against National Guard Deployment Flood D.C. Streets**\
 `A largely peaceful march filled downtown Washington with chants and whistles.`\
 https://nytimes.com/2025/08/16/us/politics/washington-dc-national-guard-protest.html

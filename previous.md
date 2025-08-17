@@ -1,3 +1,7 @@
+**Raiders 53-man roster projection: Tom Brady gets an up-close look on Saturday**\
+`Battles among the receiving corps, offensive line and secondary will continue through August.`\
+https://nytimes.com/athletic/6557648/2025/08/16/raiders-53-man-roster-projection-after-second-preseason-game/
+
 **Protesters Against National Guard Deployment Flood D.C. Streets**\
 `A largely peaceful march filled downtown Washington with chants and whistles.`\
 https://nytimes.com/2025/08/16/us/politics/washington-dc-national-guard-protest.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6557309/2025/08/16/drew-mukuba-pick-six-eagles-seco
 **Hiker in Tennessee Who Picked Up a Venomous Snake Dies After Being Bitten**\
 `While thousands of people are bitten by venomous snakes in the United States each year, deaths are uncommon, according to the authorities.`\
 https://nytimes.com/2025/08/16/us/hiker-dead-snake-tennessee.html
-
-**Phillies place Zack Wheeler on injured list due to blood clot near right shoulder**\
-`Philadelphia's ace felt normal before his start on Friday against the Nationals, but reported some new symptoms after the outing.`\
-https://nytimes.com/athletic/6557719/2025/08/16/phillies-zack-wheeler-injury-blood-clot/
 
