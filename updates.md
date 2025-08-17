@@ -1,3 +1,7 @@
+**The Secret Weapon of ‘Weapons’: Amy Madigan**\
+`The star says her uncanny villain, Aunt Gladys, is actually misunderstood. And her unforgettable appearance? “I just think she looks fab!”`\
+https://nytimes.com/2025/08/17/movies/amy-madigan-weapons-aunt-gladys.html
+
 **Chelsea 0 Crystal Palace 0: Acheampong steps in, that free-kick rule but are Chelsea undercooked?**\
 `The FIFA Club World Cup winners began their Premier League campaign with an uninspiring goalless draw at an expectant Stamford Bridge`\
 https://nytimes.com/athletic/6556017/2025/08/17/chelsea-palace-acheampong-estevao/
