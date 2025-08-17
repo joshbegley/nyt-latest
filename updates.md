@@ -1,3 +1,7 @@
+**The New York Times International Edition in Print for Monday, Aug. 18, 2025**\
+``\
+https://nytimes.com/issue/todaysinyt/2025/08/17/todays-new-york-times-international-edition
+
 **Palace make approach for Club Brugge's Christos Tzolis**\
 `Palace have already seen a bid rejected by Brugge but plan to return with an improved bid and are speaking to the Greece attacker’s camp.`\
 https://nytimes.com/athletic/6558299/2025/08/17/crystal-palace-transfer-news-christos-tzolis/

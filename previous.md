@@ -1,3 +1,7 @@
+**The New York Times International Edition in Print for Monday, Aug. 18, 2025**\
+``\
+https://nytimes.com/issue/todaysinyt/2025/08/17/todays-new-york-times-international-edition
+
 **Palace make approach for Club Brugge's Christos Tzolis**\
 `Palace have already seen a bid rejected by Brugge but plan to return with an improved bid and are speaking to the Greece attacker’s camp.`\
 https://nytimes.com/athletic/6558299/2025/08/17/crystal-palace-transfer-news-christos-tzolis/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6556120/2025/08/17/preseason-jaguars-saints-bills-b
 **A Memoir of Ukraine, Spiced With Dill, Strength and Heartache**\
 `The food writer Olia Hercules proves to be a great cook and a powerful family historian in “Strong Roots.”`\
 https://nytimes.com/2025/08/17/books/review/strong-roots-olia-hercules-ukraine.html
-
-**Redistricting Push Would Further Divide a Polarized Congress**\
-`Many state delegations are already under single-party control. New maps could tighten the partisan grip while decreasing the importance of general elections.`\
-https://nytimes.com/2025/08/17/us/politics/redistricting-polarization-congress.html
 
