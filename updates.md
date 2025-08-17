@@ -1,3 +1,11 @@
+**Trump Officials Hint at Possible Concessions by Putin**\
+`Secretary of State Marco Rubio and Steve Witkoff, an envoy for President Trump, suggested that a peace deal was still distant.`\
+https://nytimes.com/2025/08/17/us/politics/trump-witkoff-ukraine-putin-concessions.html
+
+**Lowetide: What McDavid's next contract could tell us about the Oilers**\
+`After 10 years in Edmonton and two consecutive trips to the Stanley Cup Final, the Oilers captain is likely thinking about trajectories.`\
+https://nytimes.com/athletic/6557219/2025/08/17/connor-mcdavid-oilers-bowman-contract/
+
 **Astros' Yordan Alvarez to start rehab assignment after missing over 3 months**\
 `Houston's lefty slugger will report to Double-A Corpus Christi on Tuesday.`\
 https://nytimes.com/athletic/6558721/2025/08/17/astros-yordan-alvarez-injury-rehab-assignment/
