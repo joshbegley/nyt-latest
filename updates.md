@@ -1,3 +1,7 @@
+**At the Alaska Summit, an Unlikely Local Dish Gets a Cameo**\
+`Halibut Olympia, a Tuesday-night kind of recipe, was part of the planning (if not the eating) at the Friday meeting.`\
+https://nytimes.com/2025/08/16/dining/trump-putin-alaska-halibut.html
+
 **Brewers' extend winning streak to 14 games, setting franchise record**\
 `The day after the Brewers came back from seven runs down to extend the streak to 13, the Reds pretty much handed Milwaukee their 14th.`\
 https://nytimes.com/athletic/6557669/2025/08/16/brewers-14-win-streak-reds-franchise-record/
