@@ -1,5 +1,5 @@
-**Samuel Basallo, No. 8 MLB prospect, to make his MLB debut for Orioles**\
-`Basallo is the Orioles' top prospect and the No. 8 prospect in baseball.`\
+**Orioles' Samuel Basallo, No. 8 MLB prospect, to make his major-league debut Sunday**\
+`Basallo quickly established himself as one of the top catching prospects in the game.`\
 https://nytimes.com/athletic/6558627/2025/08/17/samuel-basallo-orioles-mlb-debut/
 
 **Newcastle complete Ramsey signing from Villa**\
