@@ -1,3 +1,11 @@
+**Red Sox rookie Marcelo Mayer to undergo season-ending wrist surgery**\
+`The 22-year-old injured his wrist on a swing in July and didn't see any improvement from a pain-killing injection.`\
+https://nytimes.com/athletic/6558713/2025/08/17/red-sox-marcelo-mayer-injury-wrist-surgery/
+
+**Orioles' Samuel Basallo, No. 8 MLB prospect, to make his major-league debut Sunday**\
+`Basallo will play everyday but will be the No. 2 catcher behind Adley Rutschman while also seeing time at first base and DH.`\
+https://nytimes.com/athletic/6558627/2025/08/17/samuel-basallo-orioles-mlb-debut/
+
 **Trump Officials Hint at Possible Concessions by Putin**\
 `Secretary of State Marco Rubio and Steve Witkoff, an envoy for President Trump, suggested that a peace deal was still distant.`\
 https://nytimes.com/2025/08/17/us/politics/trump-witkoff-ukraine-putin-concessions.html
