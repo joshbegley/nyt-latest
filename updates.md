@@ -1,3 +1,19 @@
+**Hamas Accepts New Gaza Cease-Fire Proposal, Officials Say**\
+`It was unclear whether Prime Minister Benjamin Netanyahu of Israel was on board with the terms, which came as Qatar and Egypt were intensifying mediation efforts.`\
+https://nytimes.com/2025/08/18/world/middleeast/hamas-israel-gaza-ceasefire.html
+
+**A's promote Leo De Vries, key prospect in Mason Miller deal, to Double A**\
+`De Vries, 18, will be the youngest player in the Double-A Texas League. He is the No. 13 prospect in baseball.`\
+https://nytimes.com/athletic/6560896/2025/08/18/leo-de-vries-athletics-double-a-promotion/
+
+**Russia reaffirms opposition to deploying NATO troops in Ukraine as part of a security guarantees.**\
+`By Neil MacFarquhar`\
+https://nytimes.com/live/2025/08/18/us/trump-zelensky-ukraine-putin/russia-reaffirms-opposition-to-deploying-nato-troops-in-ukraine-as-part-of-a-security-guarantees
+
+**Immigration Enforcement Takes Key Role in Trump’s D.C. Crime Crackdown**\
+`Immigrants who live and work in the city say they want violent crime lowered but fear that ICE efforts could make it worse.`\
+https://nytimes.com/2025/08/18/us/trump-immigration-dc-crime.html
+
 **Immigration Enforcement Takes Key Role in Trump’s D.C. Crime Crackdown**\
 `Immigrants who live and work in the city say they want violent crime lowered but fear that ICE efforts could make it worse.`\
 https://nytimes.com/2025/08/18/us/immigration-enforcement-takes-key-role-in-trumps-dc-crime-crackdown.html
