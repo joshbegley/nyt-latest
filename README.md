@@ -1,3 +1,7 @@
+**Republican Bid to Help Trump Move Past Epstein Falls Flat**\
+`Republicans in Congress managed to recess for the summer without voting on the issue, but it has continued to dog them and awaits them when they return.`\
+https://nytimes.com/2025/08/18/us/politics/republicans-epstein-files.html
+
 **Censoring the Smithsonian, and History**\
 `Readers condemn the Trump administration’s plans to remove some Smithsonian exhibits. Also: Secrets of aging well.`\
 https://nytimes.com/2025/08/18/opinion/trump-smithsonian-american-history.html
@@ -37,8 +41,4 @@ https://nytimes.com/2025/08/18/business/used-electric-vehicles-callout.html
 <p>&nbsp;</p>
 `\
 https://nytimes.com/athletic/6560633/2025/08/18/submit-a-question-for-stewart-mandels-college-football-mailbag-311/
-
-**gws-best-restaurants-boston**\
-`(No description)`\
-https://nytimes.com/newsgraphics/card-story/25-best-restaurants-boston
 
