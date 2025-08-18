@@ -1,3 +1,7 @@
+**Manchester United's transfer business has clearly improved them - but more work is needed**\
+`Matheus Cunha and Bryan Mbeumo impressed on their United's debuts vs Arsenal - but this team is not yet the finished article`\
+https://nytimes.com/athletic/6559461/2025/08/18/manchester-united-squad-amorim/
+
 **Word of the Day: coxswain**\
 `This word has appeared in three articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2025/08/18/learning/word-of-the-day-coxswain.html
