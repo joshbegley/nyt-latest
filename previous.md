@@ -1,3 +1,11 @@
+**New York Prisons Accused of Defying Judge on Solitary Confinement**\
+`The illegal practices continued despite a judge’s order last year that corrections officials follow state law on the issue, a civil liberties group said in a court filing.`\
+https://nytimes.com/2025/08/18/nyregion/new-york-prisons-solitary-confinement-illegal.html
+
+**Jackson Hole**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/things-to-do-jackson-hole
+
 **Joe Flacco named Browns' starting QB heading into Week 1**\
 `The 40-year-old Flacco is the only QB on Cleveland's roster who hasn't been limited by injury during training camp. `\
 https://nytimes.com/athletic/6560641/2025/08/18/browns-joe-flacco-starting-quarterback/
@@ -33,12 +41,4 @@ https://nytimes.com/newsgraphics/card-story/jamie-lee-curtis-lindsay-lohan-freak
 **Roma reach agreement in principle on loan for Villa's Bailey**\
 `The deal will include an option for the Italian side to sign the winger permanently for around €22m (£19m, $25.7m).`\
 https://nytimes.com/athletic/6551474/2025/08/18/leon-bailey-roma-transfer-aston-villa/
-
-**gws-tesla-diner-elon-musk**\
-`(No description)`\
-https://nytimes.com/newsgraphics/card-story/tesla-diner-elon-musk
-
-**gws-european-castles-kids**\
-`(No description)`\
-https://nytimes.com/newsgraphics/card-story/european-castles-kids
 
