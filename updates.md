@@ -1,3 +1,7 @@
+**Oil and Gas Prices Are Falling, a Boon for Drivers, and Trump**\
+`Plentiful supply and weak demand has helped bring down fuel prices, which President Trump has often cited as a measure of his success.`\
+https://nytimes.com/2025/08/18/business/energy-environment/oil-gasoline-prices-trump.html
+
 **Labor Board Declares Flight Attendants’ Continued Strike at Air Canada Illegal**\
 `The Canada Industrial Relations board ordered the flight attendants union to call off the job action by midday.`\
 https://nytimes.com/2025/08/18/world/canada/air-canada-strike-flight-attendant-labor-board.html
