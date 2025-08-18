@@ -1,3 +1,7 @@
+**Republican Bid to Help Trump Move Past Epstein Falls Flat**\
+`Republicans in Congress managed to recess for the summer without voting on the issue, but it has continued to dog them and awaits them when they return.`\
+https://nytimes.com/2025/08/18/us/politics/republicans-epstein-files.html
+
 **Did You Recently Buy a Used E.V.? We Want to Hear From You.**\
 `The prices of used electric cars have fallen sharply in recent months, making them a more attractive option.`\
 https://nytimes.com/2025/08/18/business/used-electric-vehicles-callout.html
