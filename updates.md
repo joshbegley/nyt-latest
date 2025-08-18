@@ -1,3 +1,15 @@
+**Vacation Vibes: Match These Novels to Their Settings**\
+`Try this short quiz on popular novels that take you places, even if you’re staying home this summer.`\
+https://nytimes.com/interactive/2025/08/18/books/review/vacation-setting-novels.html
+
+**These Comics Got Caught Up in Politics. Now, They’re Getting Personal.**\
+`Comedians at Edinburgh Fringe are presenting shows with President Trump or Gaza in the background and human stories at the fore.`\
+https://nytimes.com/2025/08/18/arts/edinburgh-fringe-comedy-politics.html
+
+**Zelensky Hopes for a Less Fiery Oval Office Discussion**\
+`President Volodymyr Zelensky of Ukraine was ambushed by President Trump and Vice President JD Vance in March. This time, he is bringing backup.`\
+https://nytimes.com/2025/08/18/us/zelensky-hopes-for-a-less-fiery-oval-office-discussion.html
+
 **Madison Avenue Is Starting to Love A.I.**\
 `Advertisers are increasingly using generative artificial intelligence to make their commercials.`\
 https://nytimes.com/2025/08/18/business/madison-avenue-is-starting-to-love-ai.html
