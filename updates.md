@@ -1,3 +1,15 @@
+**Everything You Need to Know About the 2025 U.S. Open**\
+`The tournament runs Aug. 24 to Sept. 7 at the Billie Jean King National Tennis Center in New York City.`\
+https://nytimes.com/2025/08/18/nyregion/us-open-2025-guide-tennis.html
+
+**Can Cuomo’s New Attack Mode Win Back Voters and Donors?**\
+`Former Gov. Andrew M. Cuomo has overhauled his campaign strategy as he continues his bid to become mayor of New York City on a third-party line.`\
+https://nytimes.com/2025/08/18/nyregion/cuomo-campaign-strategy-mayor.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/08/18/crosswords/spelling-bee-forum.html
+
 **Passengers Stranded as Air Canada Flight Attendants’ Strike Continues**\
 `Passengers on Canada’s largest airline waited to be rebooked or compensated for flight cancellations as the walkout disrupted travel across the country.`\
 https://nytimes.com/video/world/canada/100000010346124/air-canada-strike.html
