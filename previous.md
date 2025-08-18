@@ -1,8 +1,16 @@
+**Zelensky, European Leaders Push Trump for Security Guarantees**\
+`President Trump met with President Volodymyr Zelensky of Ukraine and several other European leaders on Monday to discuss the terms for a potential cease-fire with Russia.`\
+https://nytimes.com/video/us/politics/100000010347694/trump-zelensky-ukraine-war-negotiations.html
+
+**Texas Tech RB Quinten Joyner expected to miss season with knee injury: Sources**\
+`The 5-foot-11, 215-pound Joyner, a sophomore from Austin, rushed for 478 yards, averaging 7.6 yards per carry in 2024.`\
+https://nytimes.com/athletic/6561259/2025/08/18/texas-tech-quinten-joyner-injury/
+
 **M.T.A. Approves Major Contract to Expand the Second Avenue Subway Line**\
 `The contract, which will award nearly $2 billion to construction firms, funds crucial aspects of the latest phase of the long-awaited subway expansion into East Harlem.`\
 https://nytimes.com/2025/08/18/nyregion/mta-second-avenue-subway-harlem-125th-street.html
 
-**Shane Bieber to make his Blue Jays debut on Friday**\
+**Former Cy Young winner Shane Bieber to make his Blue Jays debut on Friday**\
 `Acquired at the trade deadline, Bieber will be making his MLB return from Tommy John surgery when he debuts with the Blue Jays.`\
 https://nytimes.com/athletic/6561100/2025/08/18/shane-bieber-blue-jays-debut/
 
@@ -29,12 +37,4 @@ https://nytimes.com/2025/08/18/briefing/trump-hosts-zelensky-and-european-leader
 **NBA, players' union favor placing further limitations on prop bets**\
 `League believes limiting prop bets would reduce "risk of performance manipulation." Union sees it as way to reduce player abuse.`\
 https://nytimes.com/athletic/6561182/2025/08/18/nba-players-union-support-limitations-prop-bets/
-
-**The Texas Measles Outbreak Is Over, Officials Say**\
-`The larger outbreak, which spread to New Mexico and Oklahoma, is still ongoing.`\
-https://nytimes.com/2025/08/18/well/texas-measles-outbreak-over.html
-
-**Yosemite Biologist Who Hung Trans Pride Flag From El Capitan Is Fired**\
-`The National Park Service terminated Shannon Joslin over the May 20 demonstration, which it said took place in a prohibited area and lacked the required permits.`\
-https://nytimes.com/2025/08/18/us/yosemite-biologist-fired-transgender-pride-flag-el-capitan.html
 

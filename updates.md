@@ -1,3 +1,15 @@
+**Zelensky, European Leaders Push Trump for Security Guarantees**\
+`President Trump met with President Volodymyr Zelensky of Ukraine and several other European leaders on Monday to discuss the terms for a potential cease-fire with Russia.`\
+https://nytimes.com/video/us/politics/100000010347694/trump-zelensky-ukraine-war-negotiations.html
+
+**Texas Tech RB Quinten Joyner expected to miss season with knee injury: Sources**\
+`The 5-foot-11, 215-pound Joyner, a sophomore from Austin, rushed for 478 yards, averaging 7.6 yards per carry in 2024.`\
+https://nytimes.com/athletic/6561259/2025/08/18/texas-tech-quinten-joyner-injury/
+
+**Former Cy Young winner Shane Bieber to make his Blue Jays debut on Friday**\
+`Acquired at the trade deadline, Bieber will be making his MLB return from Tommy John surgery when he debuts with the Blue Jays.`\
+https://nytimes.com/athletic/6561100/2025/08/18/shane-bieber-blue-jays-debut/
+
 **M.T.A. Approves Major Contract to Expand the Second Avenue Subway Line**\
 `The contract, which will award nearly $2 billion to construction firms, funds crucial aspects of the latest phase of the long-awaited subway expansion into East Harlem.`\
 https://nytimes.com/2025/08/18/nyregion/mta-second-avenue-subway-harlem-125th-street.html
