@@ -1,3 +1,11 @@
+**Tennessee names Joey Aguilar starting QB after Nico Iamaleava transfer**\
+`Aguilar was considered the favorite to win the starting job following Iamaleava’s dramatic departure from Tennessee.`\
+https://nytimes.com/athletic/6559641/2025/08/18/joey-aguilar-tennessee-quarterback/
+
+**Mets find joy and reset in Williamsport's Little League magic**\
+`For the Mets on Sunday, their hopes of a late-season sprint into an unforgettable autumn started in the birthplace of Little League.`\
+https://nytimes.com/athletic/6559581/2025/08/18/williamsport-mets-padres-venezuela-little-league/
+
 **Zelensky Calls for ‘Lasting’ Peace, and Warns of Russia’s Intentions**\
 `Ahead of a meeting with President Trump, President Volodymyr Zelensky of Ukraine noted that Russia’s 2014 seizure of Ukrainian land became “a springboard for a new attack.”`\
 https://nytimes.com/2025/08/18/us/politics/zelensky-trump-ukraine-russia.html
