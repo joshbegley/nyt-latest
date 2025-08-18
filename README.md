@@ -11,7 +11,7 @@ https://nytimes.com/issue/todaysinyt/2025/08/18/todays-new-york-times-internatio
 https://nytimes.com/live/2025/08/18/us/trump-zelensky-ukraine-putin/heres-the-latest
 
 **Live Updates: Zelensky and Allies Head to White House to Show Unity on Ukraine**\
-`President Volodymyr Zelensky and European leaders will aim to defend Ukraine’s position in peace talks after President Trump aligned with Russia. Hours before the meeting, Russia hit Ukraine with a deadly strike.`\
+`President Volodymyr Zelensky and European leaders will aim to defend Ukraine’s position in talks after President Trump aligned more closely with Russia. Hours before the meeting, Russia hit Ukraine with a deadly strike.`\
 https://nytimes.com/live/2025/08/18/us/trump-zelensky-ukraine-putin
 
 **Patriots 53-man roster projection: Veteran S Kyle Dugger on the outside looking in?**\
