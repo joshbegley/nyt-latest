@@ -1,3 +1,15 @@
+**gws-european-castles-kids**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/european-castles-kids
+
+**Pirates promote top prospect Konnor Griffin to Double A**\
+`The No. 9 pick in last year's draft is on his third level this season and is currently batting .332 on the year with 59 stolen bases.`\
+https://nytimes.com/athletic/6560559/2025/08/18/pirates-konnor-griffin-promotion-top-prospect/
+
+**Raptors extend Bobby Webster as GM, not replacing president role for time being**\
+`"This team is his, now, to lead and I know we all look forward to what comes next," MLSE CEO Keith Pelley said in a statement.`\
+https://nytimes.com/athletic/6560349/2025/08/18/raptors-extend-general-manager-bobby-webster/
+
 **gws-best-bedroom-design**\
 `(No description)`\
 https://nytimes.com/newsgraphics/card-story/best-bedroom-design
@@ -25,16 +37,4 @@ https://nytimes.com/live/2025/08/18/us/trump-zelensky-ukraine-putin/in-support-o
 **At White House Meeting, Zelensky Is Likely to Ask What Russia Is Willing to Concede**\
 `President Trump is expected to press Ukraine to make concessions to end the war. President Volodymyr Zelensky will likely ask what, if anything, Russia is offering in return.`\
 https://nytimes.com/2025/08/18/us/zelensky-russia-concessions-trump-meeting.html
-
-**How Real Madrid play: Xabi Alonso's new ideas mean big change for Spanish giants**\
-`The 43-year-old Spaniard's approach represents a marked change from that of predecessor Carlo Ancelotti`\
-https://nytimes.com/athletic/6546842/2025/08/18/real-madrid-xabi-alonso-new-ideas-tactics/
-
-**She’s Serving New Clothes at the U.S. Open**\
-`After years of playing in store-bought attire and without an apparel deal, Taylor Townsend, now the world No. 1 in women’s doubles, is attempting a label of her own.`\
-https://nytimes.com/2025/08/18/style/taylor-townsend-athletic-clothing-tennis-us-open.html
-
-**Scoop City: Risers and fallers after preseason Week 2**\
-`Key takeaways from preseason Week 2, plus an impressive turnaround from Cincinnati's first-round pick amid Trey Hendrickson trade rumors.`\
-https://nytimes.com/athletic/6560487/2025/08/18/nfl-preseason-week-2-risers-fallers-scoop-city-bengals/
 

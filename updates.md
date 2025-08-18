@@ -1,3 +1,7 @@
+**gws-best-bedroom-design**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/best-bedroom-design
+
 **Two Gunmen in Attack at a Brooklyn Bar Were Among Those Killed**\
 `The Sunday morning shootout at Taste of the City Lounge in Crown Heights happened after a gang-related dispute, the police said.`\
 https://nytimes.com/2025/08/18/nyregion/brooklyn-lounge-shooting.html
