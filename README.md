@@ -1,3 +1,7 @@
+**Live Updates: Zelensky and Allies Head to White House to Show Unity on Ukraine**\
+`President Volodymyr Zelensky and European leaders will aim to defend Ukraine’s position in peace talks after President Trump aligned with Russia. Hours before the meeting, Russia hit Ukraine with a deadly strike.`\
+https://nytimes.com/live/2025/08/18/us/trump-zelensky-ukraine-putin
+
 **Patriots 53-man roster projection: Veteran S Kyle Dugger on the outside looking in?**\
 `Will the Patriots keep seven receivers? Which backup offensive linemen will stick around? Are veterans like Dugger and Jahlani Tavai safe?`\
 https://nytimes.com/athletic/6557531/2025/08/18/patriots-53-man-roster-projection-kyle-dugger/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/18/nyregion/at-the-us-open-stars-will-team-up-for-mi
 **Marco Rubio Once Filed a Brief Embracing Birthright Citizenship**\
 `Rubio, a son of immigrants and now secretary of state, was responding to a 2016 lawsuit questioning his eligibility for the presidency.`\
 https://nytimes.com/2025/08/18/us/politics/marco-rubio-birthright-citizenship.html
-
-**Making Do in the Dog Days (and the Frog Days, Too)**\
-`In a climate-twisted summer, a garden runs riot.`\
-https://nytimes.com/2025/08/18/opinion/tennessee-climate-change-summer.html
 
