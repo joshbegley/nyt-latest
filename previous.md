@@ -1,3 +1,7 @@
+**The Eaton Fire Destroyed Their School. They Created a New Wonderland Onstage.**\
+`At first it seemed unthinkable that the school’s spring musical, “Alice in Wonderland,” would happen. But school leaders quickly decided that it should go on.`\
+https://nytimes.com/interactive/2025/08/18/us/eaton-fire-aveson-charter-school.html
+
 **Oil and Gas Prices Are Falling, a Boon for Drivers, and Trump**\
 `Plentiful supply and weak demand has helped bring down fuel prices, which President Trump has often cited as a measure of his success.`\
 https://nytimes.com/2025/08/18/business/energy-environment/oil-gasoline-prices-trump.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6560220/2025/08/18/boston-red-sox-nathaniel-lowe/
 **Lowetide: Why Frederic might be the biggest surprise for Oilers fans this season**\
 `Still confused about that maximum-length extension? A healthy Trent Frederic might change your mind.`\
 https://nytimes.com/athletic/6558764/2025/08/18/oilers-trent-frederic-production-analysis/
-
-**Seven European Leaders Rush to Join Zelensky at the White House**\
-`The leaders of Germany, France, Britain and Italy are among those who flew to Washington, D.C. on short notice to attend meetings with President Trump and President Volodymyr Zelensky of Ukraine.`\
-https://nytimes.com/2025/08/18/us/european-allies-zelensky-white-house.html
 

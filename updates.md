@@ -1,3 +1,7 @@
+**The Eaton Fire Destroyed Their School. They Created a New Wonderland Onstage.**\
+`At first it seemed unthinkable that the school’s spring musical, “Alice in Wonderland,” would happen. But school leaders quickly decided that it should go on.`\
+https://nytimes.com/interactive/2025/08/18/us/eaton-fire-aveson-charter-school.html
+
 **Oil and Gas Prices Are Falling, a Boon for Drivers, and Trump**\
 `Plentiful supply and weak demand has helped bring down fuel prices, which President Trump has often cited as a measure of his success.`\
 https://nytimes.com/2025/08/18/business/energy-environment/oil-gasoline-prices-trump.html

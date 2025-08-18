@@ -1,3 +1,23 @@
+**More Soldiers and European Firefighters Join Battle Against Blazes in Spain**\
+`Across the Iberian Peninsula, thousands are trying to quell deadly flames amid dangerously hot weather.`\
+https://nytimes.com/2025/08/18/world/europe/spain-wildfires-europe-heat.html
+
+**Why a Kiwi May Be the Perfect Snack**\
+`The fiber-rich fruits are packed with nutrients. Here’s how they may benefit your health.`\
+https://nytimes.com/2025/08/18/well/eat/health-benefits-kiwi-fiber-vitamin-c.html
+
+**These Majestic Seabirds Never Stop Pooping**\
+`Streaked shearwaters keep a very regular rhythm throughout their daily foraging flights, shedding about 5 percent of their body mass every hour.`\
+https://nytimes.com/2025/08/18/science/seabirds-never-stop-pooping.html
+
+**One Pan, 30 Minutes, Dinner Done**\
+`More promising numbers: My orzo with spinach and feta has five stars and over 15,000 reviews.`\
+https://nytimes.com/2025/08/18/dining/melissa-clark-one-pan-spinach-and-feta-orzo-recipe.html
+
+**Fantasy baseball cheat sheet: Start Shane Bieber in his return and other THE BAT X insights**\
+`The Athletic and THE BAT X have teamed up to bring readers a fantasy baseball cheat sheet to begin the week. `\
+https://nytimes.com/athletic/6560150/2025/08/18/fantasy-baseball-the-bat-x-shane-bieber/
+
 **The Eaton Fire Destroyed Their School. They Created a New Wonderland Onstage.**\
 `At first it seemed unthinkable that the school’s spring musical, “Alice in Wonderland,” would happen. But school leaders quickly decided that it should go on.`\
 https://nytimes.com/interactive/2025/08/18/us/eaton-fire-aveson-charter-school.html
@@ -7,7 +27,7 @@ https://nytimes.com/interactive/2025/08/18/us/eaton-fire-aveson-charter-school.h
 https://nytimes.com/2025/08/18/business/energy-environment/oil-gasoline-prices-trump.html
 
 **Labor Board Declares Flight Attendants’ Continued Strike at Air Canada Illegal**\
-`The Canada Industrial Relations board ordered the flight attendants union to call off the job action by midday.`\
+`The Canada Industrial Relations Board ordered the flight attendants’ union to call off the job action by midday.`\
 https://nytimes.com/2025/08/18/world/canada/air-canada-strike-flight-attendant-labor-board.html
 
 **Will Oil Demand Peak Soon? Trump Administration Doesn’t Want to Hear It.**\
@@ -17,24 +37,4 @@ https://nytimes.com/2025/08/18/climate/iea-trump-energy-data-peak-oil.html
 **An Ohio City Faces a Future Without Haitian Workers: ‘It’s Not Going to Be Good’**\
 `Springfield faced a crisis after Donald Trump falsely claimed Haitians were eating pets. Now his policies are driving out workers like Wilford Rinvil, who left for Canada.`\
 https://nytimes.com/2025/08/18/us/springfield-ohio-haitian-immigrants-trump.html
-
-**Decision time arrives for Notre Dame's QB battle: 'We’re not as freaked out'**\
-`Notre Dame doesn’t have a starting quarterback after two-plus weeks of preseason practice. Up until right now, that was fine.`\
-https://nytimes.com/athletic/6560042/2025/08/18/notre-dame-starting-quarterback-competition-updates/
-
-**Two Police Officers Are Shot and Killed at House in Utah**\
-`The officers were responding to a domestic disturbance on Sunday when a man came outside and opened fire, the police said.`\
-https://nytimes.com/2025/08/18/us/tremonton-utah-police-shooting.html
-
-**Manfred says expansion would provide chance to 'geographically realign'**\
-`"I think if we expand it provides us with an opportunity to geographically realign," Manfred said.`\
-https://nytimes.com/athletic/6560162/2025/08/18/rob-manfred-mlb-expansion-comments/
-
-**Red Sox to add first baseman Nathaniel Lowe: Reports**\
-`Lowe, 30, was released by the Nationals over the weekend.`\
-https://nytimes.com/athletic/6560220/2025/08/18/boston-red-sox-nathaniel-lowe/
-
-**Lowetide: Why Frederic might be the biggest surprise for Oilers fans this season**\
-`Still confused about that maximum-length extension? A healthy Trent Frederic might change your mind.`\
-https://nytimes.com/athletic/6558764/2025/08/18/oilers-trent-frederic-production-analysis/
 
