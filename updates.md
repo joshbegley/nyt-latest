@@ -1,3 +1,15 @@
+**Ukrainians hold little hope for Zelensky’s Oval Office meeting.**\
+`By Constant Méheut and Olha Konovalova`\
+https://nytimes.com/live/2025/08/18/us/trump-zelensky-ukraine-putin/ukrainians-hold-little-hope-for-zelenskys-oval-office-meeting
+
+**Russia Continues Striking Ukraine Ahead of Zelensky-Trump Meeting**\
+`At least 10 people died in attacks on the cities of Kharkiv and Zaporizhzhia as President Volodymyr Zelensky of Ukraine arrived in Washington for a meeting with President Trump and European leaders.`\
+https://nytimes.com/video/world/europe/100000010346233/russia-strikes-ukraine-zelensky-trump.html
+
+**Trump Administration Live Updates: President Says He’ll ‘Lead a Movement’ to Eliminate Mail-In Ballots**\
+``\
+https://nytimes.com/live/2025/08/18/us/trump-news
+
 **College football quiz: Do you remember what happened last season?**\
 `Twenty questions about the 2024 college football season ahead of the 2025 season kickoff.`\
 https://nytimes.com/athletic/6555553/2025/08/18/college-football-quiz-2024-playoff-champions/
