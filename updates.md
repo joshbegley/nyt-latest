@@ -3,7 +3,7 @@
 https://nytimes.com/athletic/6559234/2025/08/17/red-sox-takeaways-bullpen-concerns-kristian-campbell-wilyer-abreu/
 
 **Scottie Scheffler surges to BMW Championship victory for 18th PGA Tour win**\
-`Scheffler's run of dominance continued at the BMW Championship as he won for the fifth time this season.`\
+`Scheffler's run of dominance continued at the BMW Championship as he caught Robert MacIntyre for his fifth victory of the season.`\
 https://nytimes.com/athletic/6559278/2025/08/17/scottie-scheffler-bmw-championship-robert-macintyre/
 
 **Dan Tana, Whose Clubby Red-Sauce Restaurant Drew Stars, Dies at 90**\
