@@ -1,3 +1,11 @@
+**Cade Horton’s blister is yet another thing going wrong for the Cubs**\
+`Missing Horton for an extended period would not help a team that appears to be reeling.`\
+https://nytimes.com/athletic/6561269/2025/08/18/cade-horton-blister-cubs/
+
+**Trump Administration Discusses Taking 10% Stake in Intel**\
+`Federal officials are considering the move because Intel, the last leading-edge chipmaker in the United States, has been struggling.`\
+https://nytimes.com/2025/08/18/technology/intel-trump-government-stake.html
+
 **The Fight With Democrats That Trump Wants Now**\
 `Crime is tricky territory for Democrats and President Trump knows it.`\
 https://nytimes.com/2025/08/18/us/politics/trump-washington-crime-democrats.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6561100/2025/08/18/shane-bieber-blue-jays-debut/
 **Mother Who Said 7-Month-Old Was Kidnapped Stops Cooperating, Sheriff Says**\
 `The Sheriff’s Department in San Bernardino County, Calif., said that Emmanuel Haro’s mother had stopped speaking with investigators after being confronted with inconsistencies in her initial report.`\
 https://nytimes.com/2025/08/18/us/california-missing-baby-kidnapping-foul-play.html
-
-**What ‘Security Guarantees,’ in the Form of Troops, Could Look Like in Ukraine**\
-`President Trump has not committed to adding American forces to the mix in Ukraine. No one has detailed publicly what form defenses would take, but there are several options.`\
-https://nytimes.com/2025/08/18/world/europe/security-guarantees-troops-ukraine.html
-
-**Frustrations Mount for 500,000 Passengers Affected by Air Canada Strike**\
-`Many passengers are still struggling to find alternative transportation and are angry at the airline. “You feel like you’re at their mercy,” said one.`\
-https://nytimes.com/2025/08/18/travel/air-canada-strike-refund.html
 

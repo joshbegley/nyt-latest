@@ -1,3 +1,11 @@
+**Cade Horton’s blister is yet another thing going wrong for the Cubs**\
+`Missing Horton for an extended period would not help a team that appears to be reeling.`\
+https://nytimes.com/athletic/6561269/2025/08/18/cade-horton-blister-cubs/
+
+**Trump Administration Discusses Taking 10% Stake in Intel**\
+`Federal officials are considering the move because Intel, the last leading-edge chipmaker in the United States, has been struggling.`\
+https://nytimes.com/2025/08/18/technology/intel-trump-government-stake.html
+
 **The Fight With Democrats That Trump Wants Now**\
 `Crime is tricky territory for Democrats and President Trump knows it.`\
 https://nytimes.com/2025/08/18/us/politics/trump-washington-crime-democrats.html
