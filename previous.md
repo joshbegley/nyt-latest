@@ -1,3 +1,11 @@
+**How to Do a Perfect Smoky Eye**\
+`Expert advice from a makeup artist, a model and a fashion designer.`\
+https://nytimes.com/2025/08/18/t-magazine/smoky-eye-makeup.html
+
+**Zelensky Suits Up for Trump**\
+`Months after a disastrous visit to the White House, the Ukrainian president had a whole new look.`\
+https://nytimes.com/2025/08/18/us/zelensky-suit-trump-meeting.html
+
 **Republican Bid to Help Trump Move Past Epstein Falls Flat**\
 `Republicans in Congress managed to recess for the summer without voting on the issue, but it has continued to dog them and awaits them when they return.`\
 https://nytimes.com/2025/08/18/us/politics/republicans-epstein-files.html
@@ -29,16 +37,4 @@ https://nytimes.com/newsgraphics/card-story/things-to-do-jackson-hole
 **Joe Flacco named Browns' starting QB for Week 1**\
 `The 40-year-old Flacco is the only QB on Cleveland's roster who hasn't been limited by injury during training camp. `\
 https://nytimes.com/athletic/6560641/2025/08/18/browns-joe-flacco-starting-quarterback/
-
-**Did You Recently Buy a Used E.V.? We Want to Hear From You.**\
-`The prices of used electric cars have fallen sharply in recent months, making them a more attractive option.`\
-https://nytimes.com/2025/08/18/business/used-electric-vehicles-callout.html
-
-**Submit a question for Stewart Mandel's College Football Mailbag**\
-`<p>Week 0 is here!</p>
-<p>Ask about Stanford-Hawaii if you want, but I&#8217;ll answer anything. Including Connor Stalions.</p>
-<p>Leave your questions here. Please include your city.</p>
-<p>&nbsp;</p>
-`\
-https://nytimes.com/athletic/6560633/2025/08/18/submit-a-question-for-stewart-mandels-college-football-mailbag-311/
 

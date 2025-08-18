@@ -1,3 +1,11 @@
+**How to Do a Perfect Smoky Eye**\
+`Expert advice from a makeup artist, a model and a fashion designer.`\
+https://nytimes.com/2025/08/18/t-magazine/smoky-eye-makeup.html
+
+**Zelensky Suits Up for Trump**\
+`Months after a disastrous visit to the White House, the Ukrainian president had a whole new look.`\
+https://nytimes.com/2025/08/18/us/zelensky-suit-trump-meeting.html
+
 **Joe Flacco named Browns' starting QB for Week 1**\
 `The 40-year-old Flacco is the only QB on Cleveland's roster who hasn't been limited by injury during training camp. `\
 https://nytimes.com/athletic/6560641/2025/08/18/browns-joe-flacco-starting-quarterback/
