@@ -1,3 +1,7 @@
+**Mookie Betts, Dodgers remind everyone who they are with sweep of Padres**\
+`If the Dodgers have a switch they can turn on when they need it, it was certainly flipped on this weekend.`\
+https://nytimes.com/athletic/6559450/2025/08/17/mookie-betts-dodgers-sweep-padres/
+
 **U.S. Open mixed doubles lineup is loaded, but awaits Cincinnati results**\
 `Jannik Sinner enters the event paired with Katerina Siniakova in a new format designed to platform the biggest stars.`\
 https://nytimes.com/athletic/6555424/2025/08/17/tennis-us-open-mixed-doubles-teams-2025/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6559227/2025/08/17/blue-jays-takeaways-myles-straw-
 **Ronnie Rondell, Stuntman Set on Fire for Pink Floyd Cover, Dies at 88**\
 `He was also known for his performances in “Twister” and “The Matrix Reloaded,” and came from a family of stunt performers.`\
 https://nytimes.com/2025/08/17/us/ronnie-rondell-dead.html
-
-**Guardians notes: Parker Messick watch, Triston McKenzie's return and key prospect updates**\
-`The Cleveland Guardians need a starting pitcher for Wednesday. They didn't have to need one, but they chose to create the opportunity.`\
-https://nytimes.com/athletic/6558902/2025/08/17/guardians-parker-messick-joey-cantillo-triston-mckenzie/
 

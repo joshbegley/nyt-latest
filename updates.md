@@ -1,3 +1,7 @@
+**Mookie Betts, Dodgers remind everyone who they are with sweep of Padres**\
+`If the Dodgers have a switch they can turn on when they need it, it was certainly flipped on this weekend.`\
+https://nytimes.com/athletic/6559450/2025/08/17/mookie-betts-dodgers-sweep-padres/
+
 **U.S. Open mixed doubles lineup is loaded, but awaits Cincinnati results**\
 `Jannik Sinner enters the event paired with Katerina Siniakova in a new format designed to platform the biggest stars.`\
 https://nytimes.com/athletic/6555424/2025/08/17/tennis-us-open-mixed-doubles-teams-2025/
