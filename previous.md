@@ -1,3 +1,7 @@
+**Saints, Jags swap linemen hours after they played each other**\
+`Offensive lineman Luke Fortner heads to New Orleans, while defensive tackle Khalen Saunders goes to Jacksonville.`\
+https://nytimes.com/athletic/6559562/2025/08/17/saints-jaguars-trade-linemen/
+
 **Mookie Betts, Dodgers remind everyone who they are with sweep of Padres**\
 `If the Dodgers have a switch they can turn on when they need it, it was certainly flipped on this weekend.`\
 https://nytimes.com/athletic/6559450/2025/08/17/mookie-betts-dodgers-sweep-padres/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/17/obituaries/dan-tana-dead.html
 **Blue Jays takeaways: Myles Straw the microcosm, José Berríos' struggles, more**\
 `Here are three takeaways from Toronto’s series win over the Rangers.`\
 https://nytimes.com/athletic/6559227/2025/08/17/blue-jays-takeaways-myles-straw-jose-berrios/
-
-**Ronnie Rondell, Stuntman Set on Fire for Pink Floyd Cover, Dies at 88**\
-`He was also known for his performances in “Twister” and “The Matrix Reloaded,” and came from a family of stunt performers.`\
-https://nytimes.com/2025/08/17/us/ronnie-rondell-dead.html
 

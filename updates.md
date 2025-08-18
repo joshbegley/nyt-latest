@@ -1,3 +1,7 @@
+**Saints, Jags swap linemen hours after they played each other**\
+`Offensive lineman Luke Fortner heads to New Orleans, while defensive tackle Khalen Saunders goes to Jacksonville.`\
+https://nytimes.com/athletic/6559562/2025/08/17/saints-jaguars-trade-linemen/
+
 **Mookie Betts, Dodgers remind everyone who they are with sweep of Padres**\
 `If the Dodgers have a switch they can turn on when they need it, it was certainly flipped on this weekend.`\
 https://nytimes.com/athletic/6559450/2025/08/17/mookie-betts-dodgers-sweep-padres/
