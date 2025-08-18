@@ -1,4 +1,8 @@
 **U.S. Open mixed doubles lineup is loaded, but awaits Cincinnati results**\
+`Jannik Sinner enters the event paired with Katerina Siniakova in a new format designed to platform the biggest stars.`\
+https://nytimes.com/athletic/6555424/2025/08/17/tennis-us-open-mixed-doubles-teams-2025/
+
+**U.S. Open mixed doubles lineup is loaded, but awaits Cincinnati results**\
 `Jannik Sinner enters event, paired with Katerina Siniakova in a new format designed to platform the biggest stars.`\
 https://nytimes.com/athletic/6555424/2025/08/17/tennis-us-open-mixed-doubles-teams-2025/
 
