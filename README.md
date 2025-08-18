@@ -15,7 +15,7 @@ https://nytimes.com/2025/08/18/crosswords/spelling-bee-forum.html
 https://nytimes.com/video/world/canada/100000010346124/air-canada-strike.html
 
 **Manchester United's transfer business has clearly improved them - but more work is needed**\
-`Matheus Cunha and Bryan Mbeumo impressed on their United's debuts vs Arsenal - but this team is not yet the finished article`\
+`The wisdom of signing two players who understand the Premier League was evident as they immediately looked settled at Old Trafford`\
 https://nytimes.com/athletic/6559461/2025/08/18/manchester-united-squad-amorim/
 
 **Word of the Day: coxswain**\
