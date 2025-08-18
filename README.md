@@ -1,3 +1,7 @@
+**Oil and Gas Prices Are Falling, a Boon for Drivers, and Trump**\
+`Plentiful supply and weak demand has helped bring down fuel prices, which President Trump has often cited as a measure of his success.`\
+https://nytimes.com/2025/08/18/business/energy-environment/oil-gasoline-prices-trump.html
+
 **Labor Board Declares Flight Attendants’ Continued Strike at Air Canada Illegal**\
 `The Canada Industrial Relations board ordered the flight attendants union to call off the job action by midday.`\
 https://nytimes.com/2025/08/18/world/canada/air-canada-strike-flight-attendant-labor-board.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6558764/2025/08/18/oilers-trent-frederic-production
 **Seven European Leaders Rush to Join Zelensky at the White House**\
 `The leaders of Germany, France, Britain and Italy are among those who flew to Washington, D.C. on short notice to attend meetings with President Trump and President Volodymyr Zelensky of Ukraine.`\
 https://nytimes.com/2025/08/18/us/european-allies-zelensky-white-house.html
-
-**Omaha basketball player Deng Mayar dies in drowning incident at age 22**\
-`Mayar drowned in a reservoir in Utah on Saturday, and rescue crews recovered his body several hours later.`\
-https://nytimes.com/athletic/6560065/2025/08/18/deng-mayar-death-drowning-omaha/
 
