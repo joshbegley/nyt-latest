@@ -1,3 +1,11 @@
+**The Unseen Dangers of Floodwaters**\
+`Even if the water looks safe, it could be filled with sewage and other hazards.`\
+https://nytimes.com/2025/08/18/well/floodwater-sewage-chemicals-disease.html
+
+**Housing Agency to Offer Material Only in English, Official Says**\
+`The change at the Department of Housing and Urban Development could make it hard for speakers of other languages to access federal services.`\
+https://nytimes.com/2025/08/18/us/politics/housing-agency-to-offer-material-only-in-english-official-says.html
+
 **Jules Witcover, Political Reporter and Columnist, Dies at 98**\
 `A journalist of the old school, he covered presidential races and political affairs for several newspapers and in many books, as well as in a long-running column, “Politics Today.”`\
 https://nytimes.com/2025/08/18/business/media/jules-witcover-dead.html
