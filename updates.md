@@ -1,3 +1,11 @@
+**M.T.A. Approves Major Contract to Expand the Second Avenue Subway Line**\
+`The contract, which will award nearly $2 billion to construction firms, funds crucial aspects of the latest phase of the long-awaited subway expansion into East Harlem.`\
+https://nytimes.com/2025/08/18/nyregion/mta-second-avenue-subway-harlem-125th-street.html
+
+**Shane Bieber to make his Blue Jays debut on Friday**\
+`Acquired at the trade deadline, Bieber will be making his MLB return from Tommy John surgery when he debuts with the Blue Jays.`\
+https://nytimes.com/athletic/6561100/2025/08/18/shane-bieber-blue-jays-debut/
+
 **Mother Who Said 7-Month-Old Was Kidnapped Stops Cooperating, Sheriff Says**\
 `The Sheriff’s Department in San Bernardino County, Calif., said that Emmanuel Haro’s mother had stopped speaking with investigators after being confronted with inconsistencies in her initial report.`\
 https://nytimes.com/2025/08/18/us/california-missing-baby-kidnapping-foul-play.html

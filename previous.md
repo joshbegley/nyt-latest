@@ -1,3 +1,11 @@
+**M.T.A. Approves Major Contract to Expand the Second Avenue Subway Line**\
+`The contract, which will award nearly $2 billion to construction firms, funds crucial aspects of the latest phase of the long-awaited subway expansion into East Harlem.`\
+https://nytimes.com/2025/08/18/nyregion/mta-second-avenue-subway-harlem-125th-street.html
+
+**Shane Bieber to make his Blue Jays debut on Friday**\
+`Acquired at the trade deadline, Bieber will be making his MLB return from Tommy John surgery when he debuts with the Blue Jays.`\
+https://nytimes.com/athletic/6561100/2025/08/18/shane-bieber-blue-jays-debut/
+
 **Mother Who Said 7-Month-Old Was Kidnapped Stops Cooperating, Sheriff Says**\
 `The Sheriff’s Department in San Bernardino County, Calif., said that Emmanuel Haro’s mother had stopped speaking with investigators after being confronted with inconsistencies in her initial report.`\
 https://nytimes.com/2025/08/18/us/california-missing-baby-kidnapping-foul-play.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/08/18/well/texas-measles-outbreak-over.html
 **Yosemite Biologist Who Hung Trans Pride Flag From El Capitan Is Fired**\
 `The National Park Service terminated Shannon Joslin over the May 20 demonstration, which it said took place in a prohibited area and lacked the required permits.`\
 https://nytimes.com/2025/08/18/us/yosemite-biologist-fired-transgender-pride-flag-el-capitan.html
-
-**Cardinals place Brendan Donovan on injured list as roster options continue to dwindle**\
-`The All-Star infielder has missed games recently with left groin tightness and is also dealing with a toe injury.`\
-https://nytimes.com/athletic/6557287/2025/08/18/brendan-donovan-injury-cardinals-roster/
-
-**How ‘Skibidi’ and ‘Tradwife’ Were Added to the Cambridge Dictionary**\
-`The terms, which started as online slang, are expected to have staying power.`\
-https://nytimes.com/2025/08/18/style/skibidi-tradwife-delulu-cambridge-dictionary.html
 
