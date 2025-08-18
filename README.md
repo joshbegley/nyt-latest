@@ -1,3 +1,7 @@
+**Passengers Stranded as Air Canada Flight Attendants’ Strike Continues**\
+`Passengers on Canada’s largest airline waited to be rebooked or compensated for flight cancellations as the walkout disrupted travel across the country.`\
+https://nytimes.com/video/world/canada/100000010346124/air-canada-strike.html
+
 **Manchester United's transfer business has clearly improved them - but more work is needed**\
 `Matheus Cunha and Bryan Mbeumo impressed on their United's debuts vs Arsenal - but this team is not yet the finished article`\
 https://nytimes.com/athletic/6559461/2025/08/18/manchester-united-squad-amorim/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/18/us/politics/zelensky-trump-ukraine-russia.html
 **Monday Briefing: A Trump-Zelensky Meeting**\
 `Plus, an A.I. stuffed animal.`\
 https://nytimes.com/2025/08/18/briefing/ukraine-russia-trump-europe-gaza-us-visas-bolivia-evo-morales.html
-
-**Mets find joy and reset in Williamsport's Little League magic**\
-`For the Mets on Sunday, their hopes of a late-season sprint into an unforgettable autumn started in the birthplace of Little League.`\
-https://nytimes.com/athletic/6559581/2025/08/18/williamsport-mets-padres-venezuela-little-league/
 
