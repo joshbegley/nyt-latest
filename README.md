@@ -1,3 +1,15 @@
+**Everything You Need to Know About the 2025 U.S. Open**\
+`The tournament runs Aug. 24 to Sept. 7 at the Billie Jean King National Tennis Center in New York City.`\
+https://nytimes.com/2025/08/18/nyregion/us-open-2025-guide-tennis.html
+
+**Can Cuomo’s New Attack Mode Win Back Voters and Donors?**\
+`Former Gov. Andrew M. Cuomo has overhauled his campaign strategy as he continues his bid to become mayor of New York City on a third-party line.`\
+https://nytimes.com/2025/08/18/nyregion/cuomo-campaign-strategy-mayor.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/08/18/crosswords/spelling-bee-forum.html
+
 **Passengers Stranded as Air Canada Flight Attendants’ Strike Continues**\
 `Passengers on Canada’s largest airline waited to be rebooked or compensated for flight cancellations as the walkout disrupted travel across the country.`\
 https://nytimes.com/video/world/canada/100000010346124/air-canada-strike.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/08/18/opinion/trump-ai-europe.html
 **‘The Twisted Tale of Amanda Knox,’ Plus 6 Things to Watch on TV This Week**\
 `A fictionalized version of the true story comes to Hulu, and a Dallas Cowboys documentary series releases on Netflix.`\
 https://nytimes.com/2025/08/18/arts/television/the-twisted-tale-of-amanda-knox-plus-6-things-to-watch-on-tv-this-week.html
-
-**Tennessee names Joey Aguilar starting QB after Nico Iamaleava transfer**\
-`Aguilar was considered the favorite to win the starting job following Iamaleava’s dramatic departure from Tennessee.`\
-https://nytimes.com/athletic/6559641/2025/08/18/joey-aguilar-tennessee-quarterback/
-
-**Zelensky Calls for ‘Lasting’ Peace, and Warns of Russia’s Intentions**\
-`Ahead of a meeting with President Trump, President Volodymyr Zelensky of Ukraine noted that Russia’s 2014 seizure of Ukrainian land became “a springboard for a new attack.”`\
-https://nytimes.com/2025/08/18/us/politics/zelensky-trump-ukraine-russia.html
-
-**Monday Briefing: A Trump-Zelensky Meeting**\
-`Plus, an A.I. stuffed animal.`\
-https://nytimes.com/2025/08/18/briefing/ukraine-russia-trump-europe-gaza-us-visas-bolivia-evo-morales.html
 
