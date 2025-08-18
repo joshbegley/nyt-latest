@@ -1,3 +1,7 @@
+**Trump Just Reminded Me of Why I’m Still a Neocon**\
+`By putting the interests of what Trump calls “peace” ahead of the interests of freedom, we are all-but guaranteeing that Ukraine will lose both.`\
+https://nytimes.com/2025/08/18/opinion/trump-israel-ukraine-zelensky.html
+
 **Zelensky, European Leaders Push Trump for Security Guarantees**\
 `President Trump met with President Volodymyr Zelensky of Ukraine and several other European leaders on Monday to discuss the terms for a potential cease-fire with Russia.`\
 https://nytimes.com/video/us/politics/100000010347694/trump-zelensky-ukraine-war-negotiations.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6561040/2025/08/18/lions-roster-projection-final-pr
 **Trump Hosts Zelensky and European Leaders**\
 `Also, Texas Democrats ended their walkout over redistricting. Here’s the latest at the end of Monday.`\
 https://nytimes.com/2025/08/18/briefing/trump-hosts-zelensky-and-european-leaders.html
-
-**NBA, players' union favor placing further limitations on prop bets**\
-`League believes limiting prop bets would reduce "risk of performance manipulation." Union sees it as way to reduce player abuse.`\
-https://nytimes.com/athletic/6561182/2025/08/18/nba-players-union-support-limitations-prop-bets/
 
