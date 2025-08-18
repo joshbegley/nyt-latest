@@ -1,3 +1,7 @@
+**The Athletes at China’s Robot Games Fell Down a Lot**\
+`The Humanoid Robot Games in Beijing — featuring running, kickboxing and soccer — highlighted advancements in robotics. Limitations, too.`\
+https://nytimes.com/2025/08/18/world/asia/china-humanoid-robot-games.html
+
 **Manchester United's transfer business has clearly improved them - but more work is needed**\
 `The wisdom of signing two players who understand the Premier League was evident as they immediately looked settled at Old Trafford`\
 https://nytimes.com/athletic/6559461/2025/08/18/manchester-united-squad-amorim/
