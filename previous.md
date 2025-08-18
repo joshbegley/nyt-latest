@@ -1,3 +1,7 @@
+**Ask The Morning: What Do You Want to Know About K-12 Schools?**\
+`The school year is beginning. We’ll find experts to answer your questions.`\
+https://nytimes.com/2025/08/18/education/ask-the-morning-k12-schools.html
+
 **Hamas Accepts New Gaza Cease-Fire Proposal, Officials Say**\
 `It was unclear whether Prime Minister Benjamin Netanyahu of Israel was on board with the terms, which came as Qatar and Egypt were intensifying mediation efforts.`\
 https://nytimes.com/2025/08/18/world/middleeast/hamas-israel-gaza-ceasefire.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6560804/2025/08/18/49ers-preseason-injuries-alfred-
 **Dealer Known as ‘Ketamine Queen’ to Plead Guilty in Matthew Perry Case**\
 `Jasveen Sangha will plead guilty to selling the ketamine that killed the “Friends” star, prosecutors said. She could face decades in prison.`\
 https://nytimes.com/2025/08/18/arts/television/matthew-perry-jasveen-singha-guilty-plea.html
-
-**Sinaloa Cartel Founder Expected to Plead Guilty to Trafficking Charges**\
-`Ismael Zambada García, known as El Mayo, was accused of running a murderous operation that ran drugs like cocaine, heroin and methamphetamine across the U.S.-Mexico border.`\
-https://nytimes.com/2025/08/18/nyregion/el-mayo-guilty-plea.html
 

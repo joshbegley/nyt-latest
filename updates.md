@@ -1,3 +1,7 @@
+**Ask The Morning: What Do You Want to Know About K-12 Schools?**\
+`The school year is beginning. We’ll find experts to answer your questions.`\
+https://nytimes.com/2025/08/18/education/ask-the-morning-k12-schools.html
+
 **Hamas Accepts New Gaza Cease-Fire Proposal, Officials Say**\
 `It was unclear whether Prime Minister Benjamin Netanyahu of Israel was on board with the terms, which came as Qatar and Egypt were intensifying mediation efforts.`\
 https://nytimes.com/2025/08/18/world/middleeast/hamas-israel-gaza-ceasefire.html
