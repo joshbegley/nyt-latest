@@ -1,3 +1,19 @@
+**Censoring the Smithsonian, and History**\
+`Readers condemn the Trump administration’s plans to remove some Smithsonian exhibits. Also: Secrets of aging well.`\
+https://nytimes.com/2025/08/18/opinion/trump-smithsonian-american-history.html
+
+**A Common Weight Loss Drug Can Treat Severe Liver Disease, F.D.A. Says**\
+`Wegovy has been approved for use among the growing number of Americans who have MASH.`\
+https://nytimes.com/2025/08/18/well/fda-approves-wegovy-mash-liver-disease-fibrosis.html
+
+**Our Reader Favorite Chicken Recipes**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/reader-favorite-chicken-recipes
+
+**gws-dr-phils-road-from-oprah-to-ice-raids**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/dr-phils-road-from-oprah-to-ice-raids
+
 **New York Prisons Accused of Defying Judge on Solitary Confinement**\
 `The illegal practices continued despite a judge’s order last year that corrections officials follow state law on the issue, a civil liberties group said in a court filing.`\
 https://nytimes.com/2025/08/18/nyregion/new-york-prisons-solitary-confinement-illegal.html
@@ -25,20 +41,4 @@ https://nytimes.com/athletic/6560633/2025/08/18/submit-a-question-for-stewart-ma
 **gws-best-restaurants-boston**\
 `(No description)`\
 https://nytimes.com/newsgraphics/card-story/25-best-restaurants-boston
-
-**gws-road-house-patrick-swayze-good-bad-movie**\
-`(No description)`\
-https://nytimes.com/newsgraphics/card-story/road-house-patrick-swayze-good-bad-movie
-
-**Matthew Stafford returns to Rams practice after sitting out with back soreness**\
-`Stafford, 37, had yet to take any reps at the Rams' training camp this summer. `\
-https://nytimes.com/athletic/6560583/2025/08/18/rams-matthew-stafford-returns-practice/
-
-**gws-jamie-lee-curtis-lindsay-lohan-freakier-friday-interview**\
-`(No description)`\
-https://nytimes.com/newsgraphics/card-story/jamie-lee-curtis-lindsay-lohan-freakier-friday-interview
-
-**Roma reach agreement in principle on loan for Villa's Bailey**\
-`The deal will include an option for the Italian side to sign the winger permanently for around €22m (£19m, $25.7m).`\
-https://nytimes.com/athletic/6551474/2025/08/18/leon-bailey-roma-transfer-aston-villa/
 
