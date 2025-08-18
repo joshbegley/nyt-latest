@@ -1,3 +1,11 @@
+**U.S. Open mixed doubles lineup is loaded, but awaits Cincinnati results**\
+`Jannik Sinner enters event, paired with Katerina Siniakova in a new format designed to platform the biggest stars.`\
+https://nytimes.com/athletic/6555424/2025/08/17/tennis-us-open-mixed-doubles-teams-2025/
+
+**Where’s Kyle Tucker? Right now, the Cubs need more impact from frustrated slugger**\
+`CHICAGO — Kyle Tucker is supposed to make the game look easy.`\
+https://nytimes.com/athletic/6559359/2025/08/17/chicago-cubs-kyle-tucker-slump/
+
 **Three Astros takeaways: Carlos Correa's return hasn't masked Houston's problems**\
 `Plus notes on the team's pitching woes and Jesús Sánchez feeling "weird" during his slump since joining the team.`\
 https://nytimes.com/athletic/6559386/2025/08/17/houston-astros-carlos-correa-jesus-sanchez/

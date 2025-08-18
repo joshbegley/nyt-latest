@@ -1,3 +1,11 @@
+**U.S. Open mixed doubles lineup is loaded, but awaits Cincinnati results**\
+`Jannik Sinner enters event, paired with Katerina Siniakova in a new format designed to platform the biggest stars.`\
+https://nytimes.com/athletic/6555424/2025/08/17/tennis-us-open-mixed-doubles-teams-2025/
+
+**Where’s Kyle Tucker? Right now, the Cubs need more impact from frustrated slugger**\
+`CHICAGO — Kyle Tucker is supposed to make the game look easy.`\
+https://nytimes.com/athletic/6559359/2025/08/17/chicago-cubs-kyle-tucker-slump/
+
 **Three Astros takeaways: Carlos Correa's return hasn't masked Houston's problems**\
 `Plus notes on the team's pitching woes and Jesús Sánchez feeling "weird" during his slump since joining the team.`\
 https://nytimes.com/athletic/6559386/2025/08/17/houston-astros-carlos-correa-jesus-sanchez/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/08/17/us/ronnie-rondell-dead.html
 **Guardians notes: Parker Messick watch, Triston McKenzie's return and key prospect updates**\
 `The Cleveland Guardians need a starting pitcher for Wednesday. They didn't have to need one, but they chose to create the opportunity.`\
 https://nytimes.com/athletic/6558902/2025/08/17/guardians-parker-messick-joey-cantillo-triston-mckenzie/
-
-**Bother, as a Bear**\
-`Andrea Carla Michaels and Christina Iverson voice their approval.`\
-https://nytimes.com/2025/08/17/crosswords/daily-puzzle-2025-08-18.html
-
-**Can the Packers ever count on RB MarShawn Lloyd after yet another injury?**\
-`The 2024 third-round pick suffered another hamstring injury in the second quarter of Saturday's preseason game against the Colts.`\
-https://nytimes.com/athletic/6559189/2025/08/17/packers-marshawn-lloyd-injuries/
 
