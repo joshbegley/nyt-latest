@@ -1,3 +1,11 @@
+**Three Astros takeaways: Carlos Correa's return hasn't masked Houston's problems**\
+`Plus notes on the team's pitching woes and Jesús Sánchez feeling "weird" during his slump since joining the team.`\
+https://nytimes.com/athletic/6559386/2025/08/17/houston-astros-carlos-correa-jesus-sanchez/
+
+**Lists!!!**\
+`How they help make sense of the world.`\
+https://nytimes.com/2025/08/17/podcasts/lists-this-american-life-nyt-audio.html
+
 **Red Sox takeaways: Bullpen concerns, Wilyer Abreu's injury, more**\
 `Takeaways from Boston's series vs. the Marlins, which felt like an opportunity missed.`\
 https://nytimes.com/athletic/6559234/2025/08/17/red-sox-takeaways-bullpen-concerns-kristian-campbell-wilyer-abreu/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/08/17/crosswords/daily-puzzle-2025-08-18.html
 **Can the Packers ever count on RB MarShawn Lloyd after yet another injury?**\
 `The 2024 third-round pick suffered another hamstring injury in the second quarter of Saturday's preseason game against the Colts.`\
 https://nytimes.com/athletic/6559189/2025/08/17/packers-marshawn-lloyd-injuries/
-
-**Phillies' Aaron Nola stumbles in return as questions about rotation abound**\
-`The Phillies entered the weekend with one of the best rotations in the league. Much of that stability changed in about 24 hours.`\
-https://nytimes.com/athletic/6559082/2025/08/17/phillies-aaron-nola-stumbles-rotation-zack-wheeler/
-
-**China Hosts Sports Competition for Humanoid Robots**\
-`Humanoid robots competed in a sports competition in Beijing where they ran, kicked and punched — as well as crashed and fell over many times.`\
-https://nytimes.com/video/world/asia/100000010345761/china-robots-sports-competition.html
 

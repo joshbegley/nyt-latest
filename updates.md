@@ -1,3 +1,11 @@
+**Three Astros takeaways: Carlos Correa's return hasn't masked Houston's problems**\
+`Plus notes on the team's pitching woes and Jesús Sánchez feeling "weird" during his slump since joining the team.`\
+https://nytimes.com/athletic/6559386/2025/08/17/houston-astros-carlos-correa-jesus-sanchez/
+
+**Lists!!!**\
+`How they help make sense of the world.`\
+https://nytimes.com/2025/08/17/podcasts/lists-this-american-life-nyt-audio.html
+
 **Scottie Scheffler surges to BMW Championship victory for 18th PGA Tour win**\
 `Scheffler's run of dominance continued at the BMW Championship as he won for the fifth time this season.`\
 https://nytimes.com/athletic/6559278/2025/08/17/scottie-scheffler-bmw-championship-robert-macintyre/
