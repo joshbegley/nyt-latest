@@ -1,3 +1,7 @@
+**Scottie Scheffler surges to BMW Championship victory for 18th PGA Tour win**\
+`Scheffler's run of dominance continued at the BMW Championship as he won for the fifth time this season.`\
+https://nytimes.com/athletic/6559278/2025/08/17/scottie-scheffler-bmw-championship-robert-macintyre/
+
 **Red Sox takeaways: Bullpen concerns, Wilyer Abreu's injury, more**\
 `Takeaways from Boston's series vs. the Marlins, which felt like an opportunity missed.`\
 https://nytimes.com/athletic/6559234/2025/08/17/red-sox-takeaways-bullpen-concerns-kristian-campbell-wilyer-abreu/
