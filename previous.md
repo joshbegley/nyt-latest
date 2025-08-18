@@ -1,3 +1,7 @@
+**Jules Witcover, Political Reporter and Columnist, Dies at 98**\
+`A journalist of the old school, he covered presidential races and political affairs for several newspapers and in many books, as well as in a long-running column, “Politics Today.”`\
+https://nytimes.com/2025/08/18/business/media/jules-witcover-dead.html
+
 **How to Do a Perfect Smoky Eye**\
 `Expert advice from a makeup artist, a model and a fashion designer.`\
 https://nytimes.com/2025/08/18/t-magazine/smoky-eye-makeup.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/18/nyregion/new-york-prisons-solitary-confinement-il
 **Jackson Hole**\
 `(No description)`\
 https://nytimes.com/newsgraphics/card-story/things-to-do-jackson-hole
-
-**Joe Flacco named Browns' starting QB for Week 1**\
-`The 40-year-old Flacco is the only QB on Cleveland's roster who hasn't been limited by injury during training camp. `\
-https://nytimes.com/athletic/6560641/2025/08/18/browns-joe-flacco-starting-quarterback/
 

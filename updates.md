@@ -1,3 +1,7 @@
+**Jules Witcover, Political Reporter and Columnist, Dies at 98**\
+`A journalist of the old school, he covered presidential races and political affairs for several newspapers and in many books, as well as in a long-running column, “Politics Today.”`\
+https://nytimes.com/2025/08/18/business/media/jules-witcover-dead.html
+
 **How to Do a Perfect Smoky Eye**\
 `Expert advice from a makeup artist, a model and a fashion designer.`\
 https://nytimes.com/2025/08/18/t-magazine/smoky-eye-makeup.html
