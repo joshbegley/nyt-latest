@@ -1,3 +1,11 @@
+**Carlos Alcaraz wins Cincinnati Open after Jannik Sinner retires through illness after five games**\
+`Alcaraz now leads the head to head 9-5 after the 20-minute victory.`\
+https://nytimes.com/athletic/6560644/2025/08/18/alcaraz-sinner-cincinnati-open-final-result-analysis/
+
+**49ers mailbag: Why is the team so injury-prone? What is Alfred Collins’ best spot?**\
+`Among this week's questions: What is the 49ers' biggest weakness along their defensive line? How has Jake Moody been at kickoffs?`\
+https://nytimes.com/athletic/6560804/2025/08/18/49ers-preseason-injuries-alfred-collins-mailbag/
+
 **Dealer Known as ‘Ketamine Queen’ to Plead Guilty in Matthew Perry Case, Prosecutors Say**\
 `Jasveen Sangha will plead guilty to selling the ketamine that killed the “Friends” star, prosecutors said. She could face decades in prison.`\
 https://nytimes.com/2025/08/18/arts/television/matthew-perry-jasveen-singha-guilty-plea.html
