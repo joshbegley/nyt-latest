@@ -1,3 +1,11 @@
+**Trump Hosts Zelensky and European Leaders**\
+`Also, Texas Democrats ended their walkout over redistricting. Here’s the latest at the end of Monday.`\
+https://nytimes.com/2025/08/18/briefing/trump-hosts-zelensky-and-european-leaders.html
+
+**NBA, players' union favor placing further limitations on prop bets**\
+`League believes limiting prop bets would reduce "risk of performance manipulation." Union sees it as way to reduce player abuse.`\
+https://nytimes.com/athletic/6561182/2025/08/18/nba-players-union-support-limitations-prop-bets/
+
 **The Texas Measles Outbreak Is Over, Officials Say**\
 `The larger outbreak, which spread to New Mexico and Oklahoma, is still ongoing.`\
 https://nytimes.com/2025/08/18/well/texas-measles-outbreak-over.html

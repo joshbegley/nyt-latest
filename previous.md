@@ -1,3 +1,11 @@
+**Trump Hosts Zelensky and European Leaders**\
+`Also, Texas Democrats ended their walkout over redistricting. Here’s the latest at the end of Monday.`\
+https://nytimes.com/2025/08/18/briefing/trump-hosts-zelensky-and-european-leaders.html
+
+**NBA, players' union favor placing further limitations on prop bets**\
+`League believes limiting prop bets would reduce "risk of performance manipulation." Union sees it as way to reduce player abuse.`\
+https://nytimes.com/athletic/6561182/2025/08/18/nba-players-union-support-limitations-prop-bets/
+
 **The Texas Measles Outbreak Is Over, Officials Say**\
 `The larger outbreak, which spread to New Mexico and Oklahoma, is still ongoing.`\
 https://nytimes.com/2025/08/18/well/texas-measles-outbreak-over.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6561154/2025/08/18/submit-your-question-for-pete-sa
 **Terence Stamp’s Swinging, Smoldering Style**\
 `He helped redefine male beauty, ushering in the era of the cinematic bad boy.`\
 https://nytimes.com/2025/08/18/style/terence-stamps-swinging-smoldering-style.html
-
-**Top Republican Says Justice Dept. Will Begin Sharing Epstein Files**\
-`The chairman of the House Oversight Committee said the department would miss a Tuesday deadline his panel set in a subpoena but would begin sharing some records on Friday.`\
-https://nytimes.com/2025/08/18/us/politics/epstein-files-release-trump.html
-
-**USWNT's 1985 team honored 40 years later with limited memorabilia drop**\
-`Forty years after their first tournament, the USWNT's 1985 team is getting to capitalize financially on its existence `\
-https://nytimes.com/athletic/6561027/2025/08/18/uswnt-collection-jersey-1985/
 
