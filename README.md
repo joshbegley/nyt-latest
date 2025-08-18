@@ -1,3 +1,7 @@
+**Goodbye, MSNBC. Hello, MS NOW.**\
+`The cable news network is changing its name this year because a corporate spinoff is separating MSNBC from its cousin, NBC News.`\
+https://nytimes.com/2025/08/18/business/media/goodbye-msnbc-hello-ms-now.html
+
 **For Some, Dressing in Outdated Clothing Is the Point**\
 `As Bonhams prepares to auction costumes and props from “Downton Abbey,” a new generation is embracing items that look historical, even if they’re new.`\
 https://nytimes.com/2025/08/18/style/downton-abbey-costume-auction.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6558870/2025/08/18/seahawks-rookies-preseason-grey-
 **Red Wings questions for 2025: Who's top-line LW? Can young players level up?**\
 `With few major acquisitions this summer, the Red Wings will feature a lot of familiar faces — but will they get familiar results?`\
 https://nytimes.com/athletic/6544506/2025/08/18/red-wings-questions-2025-training-camp/
-
-**Way-too-early Knicks depth chart, rotations and starting lineup predictions for 2025**\
-`Could their be a change to the starting lineup? How many players will new coach Mike Brown use in his rotation?`\
-https://nytimes.com/athletic/6554889/2025/08/18/knicks-roster-2025-rotations-lineup-predictions/
 
