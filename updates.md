@@ -1,3 +1,19 @@
+**CFP director doesn't want to 'rush' Big Ten's major expansion idea**\
+`If the Big Ten and SEC can't agree on a CFP format, it stays at 12 teams for at least the 2026 season, and Rich Clark is fine with that.`\
+https://nytimes.com/athletic/6560859/2025/08/18/college-football-playoff-expansion-teams-big-ten/
+
+**Have You Been Unemployed for Six Months or More? We’d Like to Hear From You.**\
+`The long-term jobless rate recently hit its highest point in more than three years. Please tell us how this has affected you.`\
+https://nytimes.com/2025/08/18/business/long-term-unemployment.html
+
+**Carlos Alcaraz wins Cincinnati Open after Jannik Sinner retires through illness after five games**\
+`Alcaraz led 5-0 when his nearest rival in tennis had to abandon the match.`\
+https://nytimes.com/athletic/6560644/2025/08/18/alcaraz-sinner-cincinnati-open-final-result-analysis/
+
+**Dealer Known as ‘Ketamine Queen’ to Plead Guilty in Matthew Perry Case**\
+`Jasveen Sangha will plead guilty to selling the ketamine that killed the “Friends” star, prosecutors said. She could face decades in prison.`\
+https://nytimes.com/2025/08/18/arts/television/matthew-perry-jasveen-singha-guilty-plea.html
+
 **Carlos Alcaraz wins Cincinnati Open after Jannik Sinner retires through illness after five games**\
 `Alcaraz now leads the head to head 9-5 after the 20-minute victory.`\
 https://nytimes.com/athletic/6560644/2025/08/18/alcaraz-sinner-cincinnati-open-final-result-analysis/
