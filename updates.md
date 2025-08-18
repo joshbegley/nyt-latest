@@ -1,3 +1,11 @@
+**Everything we learned from NFL preseason games this weekend**\
+`Thirty of the NFL's 32 teams had preseason games this weekend; here are some key takeaways.`\
+https://nytimes.com/athletic/6557904/2025/08/18/nfl-preseason-takeaways-jaxson-dart-colts-qb-2025/
+
+**FPL Gameweek 1 review: Budget gem Reijnders, Gyokeres patience, and Bournemouth buys**\
+`While one gameweek alone shouldn’t lead you to drastically change your FPL strategy, it did highlight a few early trends worth monitoring`\
+https://nytimes.com/athletic/6559022/2025/08/18/fantasy-premier-league-reijnders-gyokeres-liverpool-bournemouth/
+
 **Syria’s Lost Children**\
 `The Assad regime disappeared thousands of children. We go inside an investigation into what happened to them.`\
 https://nytimes.com/2025/08/18/briefing/syrias-lost-children.html

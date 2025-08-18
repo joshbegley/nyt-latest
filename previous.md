@@ -1,3 +1,11 @@
+**Everything we learned from NFL preseason games this weekend**\
+`Thirty of the NFL's 32 teams had preseason games this weekend; here are some key takeaways.`\
+https://nytimes.com/athletic/6557904/2025/08/18/nfl-preseason-takeaways-jaxson-dart-colts-qb-2025/
+
+**FPL Gameweek 1 review: Budget gem Reijnders, Gyokeres patience, and Bournemouth buys**\
+`While one gameweek alone shouldn’t lead you to drastically change your FPL strategy, it did highlight a few early trends worth monitoring`\
+https://nytimes.com/athletic/6559022/2025/08/18/fantasy-premier-league-reijnders-gyokeres-liverpool-bournemouth/
+
 **Syria’s Lost Children**\
 `The Assad regime disappeared thousands of children. We go inside an investigation into what happened to them.`\
 https://nytimes.com/2025/08/18/briefing/syrias-lost-children.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6558990/2025/08/18/houston-astros-mailbag-questions
 **How Bengals' Shemar Stewart has quickly flipped the narrative: 'You feel his impact'**\
 `After an ugly holdout and fan backlash, the rookie now is making an impact on the field while doing and saying all the right things.`\
 https://nytimes.com/athletic/6557343/2025/08/18/bengals-shemar-stewart-preseason/
-
-**WNBA power rankings: Golden State Valkyries aiming to make history**\
-`How far did the Liberty and Fever fall in Sabreena Merchant's rankings this week?`\
-https://nytimes.com/athletic/6559705/2025/08/18/wnba-power-rankings-golden-state-valkyries-record/
-
-**Welcome to the 'Fix The NHL' draft: Non-standard rinks, 3-point games — and relegation?**\
-`Everyone has an opinion on where the NHL most needs to improve. Let's get competitive about it.`\
-https://nytimes.com/athletic/6550175/2025/08/18/fix-the-nhl-draft-officiating-relegation-penalties/
 
