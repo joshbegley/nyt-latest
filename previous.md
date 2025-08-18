@@ -1,3 +1,15 @@
+**Caleb Williams, Tyson Bagent, defense impress in Bears' preseason shutout of Bills**\
+`What mattered in the Bears' rout of the Bills? Well, for one, plenty of good throws from Williams and Bagent. Five takeaways.`\
+https://nytimes.com/athletic/6559658/2025/08/18/bears-bills-caleb-williams-tyson-bagent-preseason/
+
+**Rosenthal: There's a lesson for the rest of baseball in the Brewers' recent run of success**\
+`Milwaukee isn't perfect – but their style of play could benefit large and small-market teams alike. `\
+https://nytimes.com/athletic/6559497/2025/08/18/milwaukee-brewers-baseball-fundamentals-pat-murphy/
+
+**TAFC - Arsenal expose Man Utd as Premier League returns. Plus: Obscure rules and Messi magic**\
+`Analysing the top flight's best teams, explaining the weekend's stranger decisions and checking in on Wrexham's progress`\
+https://nytimes.com/athletic/6559913/2025/08/18/tafc-arsenal-manchester-united-epl-return/
+
 **The Pulse: The most interesting man in college football**\
 `The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
 https://nytimes.com/athletic/6559526/2025/08/18/andrew-luck-stanford-colts-interview-the-pulse/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6559737/2025/08/18/barcelona-mallorca-la-liga-camp-
 **Stalking has become an unsettling part of sports landscape: Key takeaways from our investigation**\
 `Here's what we learned from last week's series that examined the stalking of sports figures and the deep toll it exacts on victims.`\
 https://nytimes.com/athletic/6558675/2025/08/18/athlete-stalking-sports-investigation-takeaways/
-
-**Why LIV Golf relegating Henrik Stenson, Anthony Kim is actually a win**\
-`Stenson left the Ryder Cup captaincy for LIV riches. Two years later, his future is much more uncertain.`\
-https://nytimes.com/athletic/6559432/2025/08/18/liv-golf-henrik-stenson-anthony-kim-relegation/
-
-**The Athletic 136: Ranking the FBS entering 2025, from Penn State to Kent State**\
-`Who will win it all in 2025? Who will be comically overlooked? Who will make the Playoff, and who will finish at No. 136?`\
-https://nytimes.com/athletic/6558436/2025/08/18/college-football-rankings-preseason-136/
-
-**Jayden Daniels spent the offseason scouting himself. It's already paying off.**\
-`At the urging of veteran linebacker Bobby Wagner, Daniels dug deep into his own game over the offseason. Now he's putting it to use.`\
-https://nytimes.com/athletic/6559023/2025/08/18/jayden-daniels-commanders-year-2/
 
