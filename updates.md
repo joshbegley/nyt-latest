@@ -1,3 +1,7 @@
+**Passengers Stranded as Air Canada Flight Attendants’ Strike Continues**\
+`Passengers on Canada’s largest airline waited to be rebooked or compensated for flight cancellations as the walkout disrupted travel across the country.`\
+https://nytimes.com/video/world/canada/100000010346124/air-canada-strike.html
+
 **Trump Wants to Let A.I. Run Wild. This Might Stop Him.**\
 `The president wants to unleash American artificial intelligence companies on the world, but Europe can still stand in his way.`\
 https://nytimes.com/2025/08/18/opinion/trump-ai-europe.html
