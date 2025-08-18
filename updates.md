@@ -1,3 +1,7 @@
+**Goodbye, MSNBC. Hello, MS NOW.**\
+`The cable news network is changing its name this year because a corporate spinoff is separating MSNBC from its cousin, NBC News.`\
+https://nytimes.com/2025/08/18/business/media/goodbye-msnbc-hello-ms-now.html
+
 **For Some, Dressing in Outdated Clothing Is the Point**\
 `As Bonhams prepares to auction costumes and props from “Downton Abbey,” a new generation is embracing items that look historical, even if they’re new.`\
 https://nytimes.com/2025/08/18/style/downton-abbey-costume-auction.html
