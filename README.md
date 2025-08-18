@@ -1,3 +1,7 @@
+**The Giants won a game at Oracle Park; time and date of parade TBD**\
+`Let us count the ways this win showed off a lot of what the Giants have been missing this season.`\
+https://nytimes.com/athletic/6559430/2025/08/18/giants-win-oracle-park-logan-webb-rays/
+
 **Watching Chelsea's Josh Acheampong closely to see if he can fill Maresca's problem position**\
 `The teenager stood in for the injured Levi Colwill and Tosin Adarabioyo and, while his attributes are different, he impressed against Palace`\
 https://nytimes.com/athletic/6558935/2025/08/18/chelsea-acheampong-maresca-colwill-tosin/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6553299/2025/08/18/premier-league-shirt-number-chan
 **Why Manchester United may find themselves in an auction for Brighton's Baleba next summer**\
 `Should the midfielder maintain his development this season then Brighton will hope other elite suitors emerge for their prized asset`\
 https://nytimes.com/athletic/6542331/2025/08/18/baleba-brighton-manchester-united-fulham/
-
-**Tijjani Reijnders: The story behind one of the best Premier League debuts**\
-`The Premier League debutant played a key role in all four of City's goals against Wolves`\
-https://nytimes.com/athletic/6557165/2025/08/18/tijjani-reijnders-best-premier-league-debut/
 
