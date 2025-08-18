@@ -1,3 +1,23 @@
+**Israel Is in Talks to Send Gazans to South Sudan, Officials Say**\
+`Israel has broadened its push, so far unsuccessful, to persuade other countries to take in Gazans en masse. Critics say the relocation could violate international law.`\
+https://nytimes.com/2025/08/18/world/middleeast/israel-gazans-south-sudan.html
+
+**The Briefing: Leeds 1 Everton 0 - A dramatic, deserved win but should penalty have stood?**\
+`The major talking points analysed from Leeds' Premier League return`\
+https://nytimes.com/athletic/6560057/2025/08/18/leeds-everton-briefing-analysis/
+
+**Hobbs accepts offer to become Crystal Palace sporting director**\
+`He is set to replace Dougie Freedman, who left Palace in March after spending eight years in the role at Selhurst Park.`\
+https://nytimes.com/athletic/6561010/2025/08/18/crystal-palace-transfers-sporting-director-matt-hobbs/
+
+**Cooper DeJean debuted at CB in training camp. What does this mean for Eagles?**\
+`There's been no clear winner for the CB2 spot.`\
+https://nytimes.com/athletic/6560560/2025/08/18/cooper-dejean-debut-cornerback-eagles/
+
+**Russia reaffirms opposition to deploying NATO troops in Ukraine as part of a security guarantee.**\
+`By Neil MacFarquhar`\
+https://nytimes.com/live/2025/08/18/us/trump-zelensky-ukraine-putin/russia-reaffirms-opposition-to-deploying-nato-troops-in-ukraine-as-part-of-a-security-guarantees
+
 **Cooper DeJean debuted at cornerback in training camp. What does this mean for the Eagles?**\
 `There's been no clear winner for the CB2 spot.`\
 https://nytimes.com/athletic/6560560/2025/08/18/cooper-dejean-debut-cornerback-eagles/

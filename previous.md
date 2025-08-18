@@ -1,4 +1,16 @@
-**Cooper DeJean debuted at cornerback in training camp. What does this mean for the Eagles?**\
+**Israel Is in Talks to Send Gazans to South Sudan, Officials Say**\
+`Israel has broadened its push, so far unsuccessful, to persuade other countries to take in Gazans en masse. Critics say the relocation could violate international law.`\
+https://nytimes.com/2025/08/18/world/middleeast/israel-gazans-south-sudan.html
+
+**The Briefing: Leeds 1 Everton 0 - A dramatic, deserved win but should penalty have stood?**\
+`The major talking points analysed from Leeds' Premier League return`\
+https://nytimes.com/athletic/6560057/2025/08/18/leeds-everton-briefing-analysis/
+
+**Hobbs accepts offer to become Crystal Palace sporting director**\
+`He is set to replace Dougie Freedman, who left Palace in March after spending eight years in the role at Selhurst Park.`\
+https://nytimes.com/athletic/6561010/2025/08/18/crystal-palace-transfers-sporting-director-matt-hobbs/
+
+**Cooper DeJean debuted at CB in training camp. What does this mean for Eagles?**\
 `There's been no clear winner for the CB2 spot.`\
 https://nytimes.com/athletic/6560560/2025/08/18/cooper-dejean-debut-cornerback-eagles/
 
@@ -18,23 +30,11 @@ https://nytimes.com/2025/08/18/world/middleeast/hamas-israel-gaza-ceasefire.html
 `De Vries, 18, will be the youngest player in the Double-A Texas League. He is the No. 13 prospect in baseball.`\
 https://nytimes.com/athletic/6560896/2025/08/18/leo-de-vries-athletics-double-a-promotion/
 
-**Russia reaffirms opposition to deploying NATO troops in Ukraine as part of a security guarantees.**\
+**Russia reaffirms opposition to deploying NATO troops in Ukraine as part of a security guarantee.**\
 `By Neil MacFarquhar`\
 https://nytimes.com/live/2025/08/18/us/trump-zelensky-ukraine-putin/russia-reaffirms-opposition-to-deploying-nato-troops-in-ukraine-as-part-of-a-security-guarantees
 
 **Immigration Enforcement Takes Key Role in Trump’s D.C. Crime Crackdown**\
 `Immigrants who live and work in the city say they want violent crime lowered but fear that ICE efforts could make it worse.`\
 https://nytimes.com/2025/08/18/us/trump-immigration-dc-crime.html
-
-**CFP director doesn't want to 'rush' decision on expansion as new Big Ten idea emerges**\
-`If the Big Ten and SEC can't agree on a CFP format, it stays at 12 teams for at least the 2026 season, and Rich Clark is fine with that.`\
-https://nytimes.com/athletic/6560859/2025/08/18/college-football-playoff-expansion-teams-big-ten/
-
-**Have You Been Unemployed for Six Months or More? We’d Like to Hear From You.**\
-`The long-term jobless rate recently hit its highest point in more than three years. Please tell us how this has affected you.`\
-https://nytimes.com/2025/08/18/business/long-term-unemployment.html
-
-**Alcaraz wins Cincinnati Open after Sinner retires through illness**\
-`Alcaraz led 5-0 when his nearest rival in tennis had to abandon the match.`\
-https://nytimes.com/athletic/6560644/2025/08/18/alcaraz-sinner-cincinnati-open-final-result-analysis/
 
