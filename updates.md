@@ -1,3 +1,11 @@
+**Top Republican Says Justice Dept. Will Begin Sharing Epstein Files**\
+`The chairman of the House Oversight Committee said the department would miss a Tuesday deadline his panel set in a subpoena but would begin sharing some records on Friday.`\
+https://nytimes.com/2025/08/18/us/politics/epstein-files-release-trump.html
+
+**USWNT's 1985 team honored 40 years later with limited memorabilia drop**\
+`Forty years after their first tournament, the USWNT's 1985 team is getting to capitalize financially on its existence `\
+https://nytimes.com/athletic/6561027/2025/08/18/uswnt-collection-jersey-1985/
+
 **Penguins draw interest from a new potential buyer**\
 `A group including Mario Lemieux now has competition in buying some or all of the Penguins from FSG.`\
 https://nytimes.com/athletic/6561060/2025/08/18/pittsburgh-penguins-sale-potential-buyer-hoffmann/
