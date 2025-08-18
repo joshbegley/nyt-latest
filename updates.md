@@ -1,3 +1,7 @@
+**Zelensky Calls for ‘Lasting’ Peace, and Warns of Russia’s Intentions**\
+`Ahead of a meeting with President Trump, President Volodymyr Zelensky of Ukraine noted that Russia’s 2014 seizure of Ukrainian land became “a springboard for a new attack.”`\
+https://nytimes.com/2025/08/18/us/politics/zelensky-trump-ukraine-russia.html
+
 **Monday Briefing: A Trump-Zelensky Meeting**\
 `Plus, an A.I. stuffed animal.`\
 https://nytimes.com/2025/08/18/briefing/ukraine-russia-trump-europe-gaza-us-visas-bolivia-evo-morales.html
