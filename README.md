@@ -1,3 +1,11 @@
+**Wildfires Continue Scorching Spain**\
+`Searing temperatures were complicating attempts by local firefighters and Spanish soldiers to suppress devastating wildfires.`\
+https://nytimes.com/video/world/europe/100000010346774/spain-wildfires-heat-europe.html
+
+**Dolphins meeting with Matthew Judon, expected to sign him: Source**\
+`Judon is still looking for a landing spot after the Falcons did not re-sign him following last season.`\
+https://nytimes.com/athletic/6560420/2025/08/18/matthew-judon-dolphins-meeting-contract/
+
 **The Windup: Starters shine in Dodgers’ statement sweep**\
 `Welcome to The Windup, The Athletic's MLB newsletter.`\
 https://nytimes.com/athletic/6560152/2025/08/18/dodgers-padres-pitching-the-windup/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/08/18/us/zelensky-trump-white-house-meeting-allies.html
 **Madison Avenue Is Starting to Love A.I.**\
 `Advertisers are increasingly using generative artificial intelligence to make their commercials.`\
 https://nytimes.com/2025/08/18/business/madison-avenue-is-starting-to-love-ai.html
-
-**Cristian Romero signs new four-year Tottenham contract**\
-`Romero had two years remaining on his previous Spurs contract, and was targeted by Atletico Madrid earlier this summer.`\
-https://nytimes.com/athletic/6508224/2025/08/18/cristian-romero-new-contract-tottenham/
-
-**Melania Trump Appeals to Putin to Protect Children**\
-`In a letter posted online by President Trump, the first lady wrote to Russia’s leader of the “duty” to safeguard children, but didn’t mention Ukraine.`\
-https://nytimes.com/2025/08/18/us/melania-trump-putin-letter-ukraine-russia.html
 
