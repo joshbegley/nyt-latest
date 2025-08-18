@@ -1,10 +1,14 @@
+**Sinaloa Cartel Founder Expected to Plead Guilty to Trafficking Charges**\
+`Ismael Zambada García, known as El Mayo, was accused of running a murderous operation that ran drugs like cocaine, heroin and methamphetamine across the U.S.-Mexico border.`\
+https://nytimes.com/2025/08/18/nyregion/el-mayo-guilty-plea.html
+
 **The Unseen Dangers of Floodwaters**\
 `Even if the water looks safe, it could be filled with sewage and other hazards.`\
 https://nytimes.com/2025/08/18/well/floodwater-sewage-chemicals-disease.html
 
 **Housing Agency to Offer Material Only in English, Official Says**\
 `The change at the Department of Housing and Urban Development could make it hard for speakers of other languages to access federal services.`\
-https://nytimes.com/2025/08/18/us/politics/housing-agency-to-offer-material-only-in-english-official-says.html
+https://nytimes.com/2025/08/18/us/politics/housing-agency-english-material-trump.html
 
 **Jules Witcover, Political Reporter and Columnist, Dies at 98**\
 `A journalist of the old school, he covered presidential races and political affairs for several newspapers and in many books, as well as in a long-running column, “Politics Today.”`\
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/18/well/fda-approves-wegovy-mash-liver-disease-fibro
 **Our Reader Favorite Chicken Recipes**\
 `(No description)`\
 https://nytimes.com/newsgraphics/card-story/reader-favorite-chicken-recipes
-
-**gws-dr-phils-road-from-oprah-to-ice-raids**\
-`(No description)`\
-https://nytimes.com/newsgraphics/card-story/dr-phils-road-from-oprah-to-ice-raids
 
