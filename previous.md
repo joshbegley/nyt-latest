@@ -1,3 +1,31 @@
+**Watching Chelsea's Josh Acheampong closely to see if he can fill Maresca's problem position**\
+`The teenager stood in for the injured Levi Colwill and Tosin Adarabioyo and, while his attributes are different, he impressed against Palace`\
+https://nytimes.com/athletic/6558935/2025/08/18/chelsea-acheampong-maresca-colwill-tosin/
+
+**Are Wolves signing the right players to survive in the Premier League?**\
+`Wolves lost their opening game of the Premier League season against Manchester City 4-0`\
+https://nytimes.com/athletic/6557695/2025/08/18/wolves-premier-league-ready-transfers/
+
+**Aston Villa still dare to dream, but financial compliance is choking their ambition**\
+`A summer of transfer restrictions has left Unai Emery's side desperately undercooked and uninspired`\
+https://nytimes.com/athletic/6557140/2025/08/18/aston-villa-emery-ramsey-psr-uefa/
+
+**Was this Eberechi Eze bidding farewell to Crystal Palace?**\
+`The England forward was denied what might have been a winning goal by the VAR at Stamford Bridge as Tottenham aspire to lure him away`\
+https://nytimes.com/athletic/6550840/2025/08/18/eze-crystal-palace-farewell-chelsea/
+
+**The Briefing: Is Arsenal's grind impressive? Should three teams be worried? Who does Guardiola want to leave?**\
+`Tackling the three key talking points from the opening Premier League weekend`\
+https://nytimes.com/athletic/6559104/2025/08/18/arsenal-premier-league-briefing/
+
+**The passes that show how Arsenal are trying to adapt to Gyokeres and where it needs work**\
+`After beating Manchester United, Mikel Arteta spoke of "seven, eight" times when Arsenal had the chance to release a player on goal`\
+https://nytimes.com/athletic/6559263/2025/08/18/arsenal-gyokeres-tactical-change/
+
+**Isak and Hojlund cases show clubs are as likely as players to pursue ruthless self-interest over transfers**\
+`Isak has angered Newcastle supporters by trying to force an exit, while Manchester United left out Rasmus Hojlund, who is desperate to stay`\
+https://nytimes.com/athletic/6558975/2025/08/18/isak-hojlund-transfers/
+
 **The key shirt number changes at your Premier League club this season**\
 `From exciting new signings to promising youngsters breaking through, we look at the major shirt number switches this summer`\
 https://nytimes.com/athletic/6553299/2025/08/18/premier-league-shirt-number-changes/
@@ -9,32 +37,4 @@ https://nytimes.com/athletic/6542331/2025/08/18/baleba-brighton-manchester-unite
 **Tijjani Reijnders: The story behind one of the best Premier League debuts**\
 `The Premier League debutant played a key role in all four of City's goals against Wolves`\
 https://nytimes.com/athletic/6557165/2025/08/18/tijjani-reijnders-best-premier-league-debut/
-
-**The story of Forest's remarkable week: How Nuno's interview sparked £90m of spending and a thumping win**\
-`Neither the drama of this week, nor the frustrated mood of their manager, appear to have been a distraction for the squad`\
-https://nytimes.com/athletic/6558778/2025/08/18/nottingham-forest-transfers/
-
-**The absent Premier League players (and those who played with transfers hanging over them)**\
-`Alexander Isak, Rasmus Hojlund and Ederson are among the players whose futures are uncertain with two weeks of the window left to run`\
-https://nytimes.com/athletic/6558594/2025/08/18/premier-league-absent-transfers-latest/
-
-**Trump’s Tariffs Will Crush India’s Exporters, Threatening Livelihoods**\
-`New U.S. taxes on American imports, even at 25 percent, will hurt many Indian businesses and may put vast numbers of people out of work.`\
-https://nytimes.com/2025/08/18/business/trump-tariffs-india-economy.html
-
-**Quote of the Day: In Gaza, the Joys of Childhood Dissolve Into Indelible Trauma**\
-`Quotation of the Day for Monday, August 18, 2025.`\
-https://nytimes.com/2025/08/18/pageoneplus/quote-of-the-day-in-gaza-the-joys-of-childhood-dissolve-into-indelible-trauma.html
-
-**Trump Is Pushing India Back Toward China**\
-`Prime Minister Narendra Modi had been moving to align India with the United States and freeze out China. Now, efforts to rebuild ties between the Asian giants are gaining momentum.`\
-https://nytimes.com/2025/08/18/world/asia/india-china-trump.html
-
-**A New Way to Reduce Children’s Deaths: Cash**\
-`Simply giving money to poor families at certain times reduced deaths among young children by nearly half, a new study found.`\
-https://nytimes.com/2025/08/18/health/cash-transfer-kenya-poverty.html
-
-**Musiala replacement, Kane support, the defence: The key Bayern questions for new season**\
-`Vincent Kompany's side won the Franz Beckenbauer Supercup on Saturday night, but that will not be enough to make a successful season`\
-https://nytimes.com/athletic/6558335/2025/08/18/bayern-munich-key-questions-bundesliga/
 
