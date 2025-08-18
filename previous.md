@@ -1,3 +1,7 @@
+**No corrections: Aug. 18, 2025.**\
+`No corrections appeared in print on Monday, Aug. 18, 2025.`\
+https://nytimes.com/2025/08/17/corrections/no-corrections-aug-18-2025.html
+
 **Saints, Jags swap linemen hours after they played each other**\
 `Offensive lineman Luke Fortner heads to New Orleans, while defensive tackle Khalen Saunders goes to Jacksonville.`\
 https://nytimes.com/athletic/6559562/2025/08/17/saints-jaguars-trade-linemen/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6559278/2025/08/17/scottie-scheffler-bmw-championsh
 **Dan Tana, Whose Clubby Red-Sauce Restaurant Drew Stars, Dies at 90**\
 `Dan Tana’s was said to be as central to Hollywood as palm trees and Botox. On a scale of 1 to 10, the people watching was a 10. Even the steak came with pasta.`\
 https://nytimes.com/2025/08/17/obituaries/dan-tana-dead.html
-
-**Blue Jays takeaways: Myles Straw the microcosm, José Berríos' struggles, more**\
-`Here are three takeaways from Toronto’s series win over the Rangers.`\
-https://nytimes.com/athletic/6559227/2025/08/17/blue-jays-takeaways-myles-straw-jose-berrios/
 
