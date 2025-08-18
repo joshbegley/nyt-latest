@@ -1,3 +1,11 @@
+**The Fight With Democrats That Trump Wants Now**\
+`Crime is tricky territory for Democrats and President Trump knows it.`\
+https://nytimes.com/2025/08/18/us/politics/trump-washington-crime-democrats.html
+
+**Mississippi and Louisiana Will Send National Guard Troops to D.C.**\
+`Ohio, West Virginia and South Carolina have also deployed the Guard to Washington to support President Trump’s crackdown on the city.`\
+https://nytimes.com/2025/08/18/us/politics/national-guard-dc-trump-mississippi-louisiana.html
+
 **Trump Just Reminded Me of Why I’m Still a Neocon**\
 `By putting the interests of what Trump calls “peace” ahead of the interests of freedom, we are all-but guaranteeing that Ukraine will lose both.`\
 https://nytimes.com/2025/08/18/opinion/trump-israel-ukraine-zelensky.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/08/18/world/europe/security-guarantees-troops-ukraine.h
 **Frustrations Mount for 500,000 Passengers Affected by Air Canada Strike**\
 `Many passengers are still struggling to find alternative transportation and are angry at the airline. “You feel like you’re at their mercy,” said one.`\
 https://nytimes.com/2025/08/18/travel/air-canada-strike-refund.html
-
-**Lions 53-man roster projection: Will they keep just 5 WRs? New addition to D-line**\
-`The Lions' final preseason game is Saturday vs. the Texans and the roster has to be set by the following Tuesday. How does it shake out?`\
-https://nytimes.com/athletic/6561040/2025/08/18/lions-roster-projection-final-preseason-game/
-
-**Trump Hosts Zelensky and European Leaders**\
-`Also, Texas Democrats ended their walkout over redistricting. Here’s the latest at the end of Monday.`\
-https://nytimes.com/2025/08/18/briefing/trump-hosts-zelensky-and-european-leaders.html
 

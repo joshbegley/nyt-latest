@@ -1,3 +1,7 @@
+**Trump Just Reminded Me of Why I’m Still a Neocon**\
+`By putting the interests of what Trump calls “peace” ahead of the interests of freedom, we are all-but guaranteeing that Ukraine will lose both.`\
+https://nytimes.com/2025/08/18/opinion/trump-israel-ukraine-zelensky.html
+
 **Zelensky, European Leaders Push Trump for Security Guarantees**\
 `President Trump met with President Volodymyr Zelensky of Ukraine and several other European leaders on Monday to discuss the terms for a potential cease-fire with Russia.`\
 https://nytimes.com/video/us/politics/100000010347694/trump-zelensky-ukraine-war-negotiations.html
