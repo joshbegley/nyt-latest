@@ -1,3 +1,11 @@
+**Protests Highlight Growing Discontent With Netanyahu and the Gaza War**\
+`Many Israelis feel that freeing the hostages cannot happen if the government refuses to come to terms with Hamas and pursues its policy of trying to eliminate the group militarily.`\
+https://nytimes.com/2025/08/18/world/middleeast/protests-highlight-growing-discontent-with-netanyahu-and-the-gaza-war.html
+
+**Bournemouth set to sign Doak from Liverpool in £25m deal**\
+`The 19-year-old Scotland international is set to become Bournemouth's fourth signing of the summer.`\
+https://nytimes.com/athletic/6557018/2025/08/18/ben-doak-bournemouth-liverpool-transfer/
+
 **Neymar in tears as biggest career loss sees Santos manager sacked**\
 `"I'm crying out of anger, at everything," Neymar said after the game. "Today was terrible, that's the reality."`\
 https://nytimes.com/athletic/6559818/2025/08/18/neymar-santos-xavier-sacked/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/08/18/world/europe/putin-trump-zelensky-ukraine.html
 **For D.C.’s Homeless, Strained Lives Become More Unstable**\
 `Some on the street have been forced to move, while others are fearful they could be next. Many face an even more uncertain future.`\
 https://nytimes.com/2025/08/18/us/politics/washington-dc-homeless.html
-
-**Give Trump a Nobel! And an Emmy. And an Oscar …**\
-`If we bedeck him more, maybe he’ll bedevil us less.`\
-https://nytimes.com/2025/08/18/opinion/trump-nobel-peace-prize.html
-
-**Trump Wants to Fight Democrats on Crime. They’re Treading Cautiously.**\
-`Democrats see the federal takeover of Washington as a way for President Trump to stoke fear for political gain. But they are mindful that issues of public safety continue to resonate with their own supporters.`\
-https://nytimes.com/2025/08/18/us/politics/trump-wants-to-fight-democrats-on-crime-theyre-treading-cautiously.html
 

@@ -1,3 +1,11 @@
+**Protests Highlight Growing Discontent With Netanyahu and the Gaza War**\
+`Many Israelis feel that freeing the hostages cannot happen if the government refuses to come to terms with Hamas and pursues its policy of trying to eliminate the group militarily.`\
+https://nytimes.com/2025/08/18/world/middleeast/protests-highlight-growing-discontent-with-netanyahu-and-the-gaza-war.html
+
+**Bournemouth set to sign Doak from Liverpool in £25m deal**\
+`The 19-year-old Scotland international is set to become Bournemouth's fourth signing of the summer.`\
+https://nytimes.com/athletic/6557018/2025/08/18/ben-doak-bournemouth-liverpool-transfer/
+
 **Live Updates: Zelensky and Allies Head to White House to Show Unity on Ukraine**\
 `President Volodymyr Zelensky and European leaders will aim to defend Ukraine’s position in talks after President Trump aligned more closely with Russia. Hours before the meeting, Russia hit Ukraine with a deadly strike.`\
 https://nytimes.com/live/2025/08/18/us/trump-zelensky-ukraine-putin
