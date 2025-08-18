@@ -1,3 +1,11 @@
+**Wildfires Continue Scorching Spain**\
+`Searing temperatures were complicating attempts by local firefighters and Spanish soldiers to suppress devastating wildfires.`\
+https://nytimes.com/video/world/europe/100000010346774/spain-wildfires-heat-europe.html
+
+**Dolphins meeting with Matthew Judon, expected to sign him: Source**\
+`Judon is still looking for a landing spot after the Falcons did not re-sign him following last season.`\
+https://nytimes.com/athletic/6560420/2025/08/18/matthew-judon-dolphins-meeting-contract/
+
 **The Windup: Starters shine in Dodgers’ statement sweep**\
 `Welcome to The Windup, The Athletic's MLB newsletter.`\
 https://nytimes.com/athletic/6560152/2025/08/18/dodgers-padres-pitching-the-windup/
