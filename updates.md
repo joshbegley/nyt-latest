@@ -1,3 +1,11 @@
+**Mother Who Said 7-Month-Old Was Kidnapped Stops Cooperating, Sheriff Says**\
+`The Sheriff’s Department in San Bernardino County, Calif., said that Emmanuel Haro’s mother had stopped speaking with investigators after being confronted with inconsistencies in her initial report.`\
+https://nytimes.com/2025/08/18/us/california-missing-baby-kidnapping-foul-play.html
+
+**What ‘Security Guarantees,’ in the Form of Troops, Could Look Like in Ukraine**\
+`President Trump has not committed to adding American forces to the mix in Ukraine. No one has detailed publicly what form defenses would take, but there are several options.`\
+https://nytimes.com/2025/08/18/world/europe/security-guarantees-troops-ukraine.html
+
 **What ‘Security Guarantees’ in the Form of Troops Could Look Like in Ukraine**\
 `President Trump has not committed to adding American forces to the mix in Ukraine. No one has detailed publicly what form defenses would take, but there are several options.`\
 https://nytimes.com/2025/08/18/world/europe/security-guarantees-troops-ukraine.html
