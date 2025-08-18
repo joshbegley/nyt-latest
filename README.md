@@ -1,3 +1,7 @@
+**The Athletes at China’s Robot Games Fell Down a Lot**\
+`The Humanoid Robot Games in Beijing — featuring running, kickboxing and soccer — highlighted advancements in robotics. Limitations, too.`\
+https://nytimes.com/2025/08/18/world/asia/china-humanoid-robot-games.html
+
 **Everything You Need to Know About the 2025 U.S. Open**\
 `The tournament runs Aug. 24 to Sept. 7 at the Billie Jean King National Tennis Center in New York City.`\
 https://nytimes.com/2025/08/18/nyregion/us-open-2025-guide-tennis.html
@@ -33,8 +37,4 @@ https://nytimes.com/issue/todayspaper/2025/08/18/todays-new-york-times
 **Trump Wants to Let A.I. Run Wild. This Might Stop Him.**\
 `The president wants to unleash American artificial intelligence companies on the world, but Europe can still stand in his way.`\
 https://nytimes.com/2025/08/18/opinion/trump-ai-europe.html
-
-**‘The Twisted Tale of Amanda Knox,’ Plus 6 Things to Watch on TV This Week**\
-`A fictionalized version of the true story comes to Hulu, and a Dallas Cowboys documentary series releases on Netflix.`\
-https://nytimes.com/2025/08/18/arts/television/the-twisted-tale-of-amanda-knox-plus-6-things-to-watch-on-tv-this-week.html
 
