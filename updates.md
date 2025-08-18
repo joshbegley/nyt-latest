@@ -1,3 +1,15 @@
+**Immigration Enforcement Takes Key Role in Trump’s D.C. Crime Crackdown**\
+`Immigrants who live and work in the city say they want violent crime lowered but fear that ICE efforts could make it worse.`\
+https://nytimes.com/2025/08/18/us/immigration-enforcement-takes-key-role-in-trumps-dc-crime-crackdown.html
+
+**CFP director doesn't want to 'rush' decision on expansion as new Big Ten idea emerges**\
+`If the Big Ten and SEC can't agree on a CFP format, it stays at 12 teams for at least the 2026 season, and Rich Clark is fine with that.`\
+https://nytimes.com/athletic/6560859/2025/08/18/college-football-playoff-expansion-teams-big-ten/
+
+**Alcaraz wins Cincinnati Open after Sinner retires through illness**\
+`Alcaraz led 5-0 when his nearest rival in tennis had to abandon the match.`\
+https://nytimes.com/athletic/6560644/2025/08/18/alcaraz-sinner-cincinnati-open-final-result-analysis/
+
 **CFP director doesn't want to 'rush' Big Ten's major expansion idea**\
 `If the Big Ten and SEC can't agree on a CFP format, it stays at 12 teams for at least the 2026 season, and Rich Clark is fine with that.`\
 https://nytimes.com/athletic/6560859/2025/08/18/college-football-playoff-expansion-teams-big-ten/
