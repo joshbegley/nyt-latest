@@ -1,3 +1,15 @@
+**Neymar in tears as biggest career loss sees Santos manager sacked**\
+`"I'm crying out of anger, at everything," Neymar said after the game. "Today was terrible, that's the reality."`\
+https://nytimes.com/athletic/6559818/2025/08/18/neymar-santos-xavier-sacked/
+
+**The New York Times International Edition in Print for Tuesday, Aug. 19, 2025**\
+``\
+https://nytimes.com/issue/todaysinyt/2025/08/18/todays-new-york-times-international-edition
+
+**Here’s the latest.**\
+`By Jim Tankersley, David E. Sanger, Constant Méheut and Andy Newman`\
+https://nytimes.com/live/2025/08/18/us/trump-zelensky-ukraine-putin/heres-the-latest
+
 **Live Updates: Zelensky and Allies Head to White House to Show Unity on Ukraine**\
 `President Volodymyr Zelensky and European leaders will aim to defend Ukraine’s position in peace talks after President Trump aligned with Russia. Hours before the meeting, Russia hit Ukraine with a deadly strike.`\
 https://nytimes.com/live/2025/08/18/us/trump-zelensky-ukraine-putin
