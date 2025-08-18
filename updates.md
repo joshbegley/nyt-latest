@@ -1,3 +1,7 @@
+**Dealer Known as ‘Ketamine Queen’ to Plead Guilty in Matthew Perry Case, Prosecutors Say**\
+`Jasveen Sangha will plead guilty to selling the ketamine that killed the “Friends” star, prosecutors said. She could face decades in prison.`\
+https://nytimes.com/2025/08/18/arts/television/matthew-perry-jasveen-singha-guilty-plea.html
+
 **Sinaloa Cartel Founder Expected to Plead Guilty to Trafficking Charges**\
 `Ismael Zambada García, known as El Mayo, was accused of running a murderous operation that ran drugs like cocaine, heroin and methamphetamine across the U.S.-Mexico border.`\
 https://nytimes.com/2025/08/18/nyregion/el-mayo-guilty-plea.html
