@@ -1,3 +1,7 @@
+**Live Updates: Zelensky and Allies Head to White House to Show Unity on Ukraine**\
+`President Volodymyr Zelensky and European leaders will aim to defend Ukraine’s position in talks after President Trump aligned more closely with Russia. Hours before the meeting, Russia hit Ukraine with a deadly strike.`\
+https://nytimes.com/live/2025/08/18/us/trump-zelensky-ukraine-putin
+
 **Neymar in tears as biggest career loss sees Santos manager sacked**\
 `"I'm crying out of anger, at everything," Neymar said after the game. "Today was terrible, that's the reality."`\
 https://nytimes.com/athletic/6559818/2025/08/18/neymar-santos-xavier-sacked/
