@@ -1,3 +1,19 @@
+**An Ohio City Faces a Future Without Haitian Workers: ‘It’s Not Going to Be Good’**\
+`Springfield faced a crisis after Donald Trump falsely claimed Haitians were eating pets. Now his policies are driving out workers like Wilford Rinvil, who left for Canada.`\
+https://nytimes.com/2025/08/18/us/springfield-ohio-haitian-immigrants-trump.html
+
+**Decision time arrives for Notre Dame's QB battle: 'We’re not as freaked out'**\
+`Notre Dame doesn’t have a starting quarterback after two-plus weeks of preseason practice. Up until right now, that was fine.`\
+https://nytimes.com/athletic/6560042/2025/08/18/notre-dame-starting-quarterback-competition-updates/
+
+**Two Police Officers Are Shot and Killed at House in Utah**\
+`The officers were responding to a domestic disturbance on Sunday when a man came outside and opened fire, the police said.`\
+https://nytimes.com/2025/08/18/us/tremonton-utah-police-shooting.html
+
+**Goodbye, MSNBC. Hello, MS NOW.**\
+`The cable news network is changing its name this year because a corporate spinoff is separating MSNBC from its cousin, NBC News.`\
+https://nytimes.com/2025/08/18/business/media/msnbc-new-name-ms-now.html
+
 **Manfred says expansion would provide chance to 'geographically realign'**\
 `"I think if we expand it provides us with an opportunity to geographically realign," Manfred said.`\
 https://nytimes.com/athletic/6560162/2025/08/18/rob-manfred-mlb-expansion-comments/
