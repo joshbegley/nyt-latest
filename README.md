@@ -1,3 +1,15 @@
+**Ukrainians hold little hope for Zelensky’s Oval Office meeting.**\
+`By Constant Méheut and Olha Konovalova`\
+https://nytimes.com/live/2025/08/18/us/trump-zelensky-ukraine-putin/ukrainians-hold-little-hope-for-zelenskys-oval-office-meeting
+
+**Russia Continues Striking Ukraine Ahead of Zelensky-Trump Meeting**\
+`At least 10 people died in attacks on the cities of Kharkiv and Zaporizhzhia as President Volodymyr Zelensky of Ukraine arrived in Washington for a meeting with President Trump and European leaders.`\
+https://nytimes.com/video/world/europe/100000010346233/russia-strikes-ukraine-zelensky-trump.html
+
+**Trump Administration Live Updates: President Says He’ll ‘Lead a Movement’ to Eliminate Mail-In Ballots**\
+``\
+https://nytimes.com/live/2025/08/18/us/trump-news
+
 **College football quiz: Do you remember what happened last season?**\
 `Twenty questions about the 2024 college football season ahead of the 2025 season kickoff.`\
 https://nytimes.com/athletic/6555553/2025/08/18/college-football-quiz-2024-playoff-champions/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6559653/2025/08/18/chicago-bears-roster-left-tackle
 **Yankees fans have some worries. Here are their biggest right now**\
 `Did positive series against the Cardinals and Twins help New York get its mojo back?`\
 https://nytimes.com/athletic/6559466/2025/08/18/yankees-fans-concerns-cardinals/
-
-**Napoli's Lukaku facing months on the sidelines with quad injury**\
-`The 32-year-old was forced off in Napoli’s friendly win over Olympiacos on Thursday.`\
-https://nytimes.com/athletic/6560011/2025/08/18/romelu-lukaku-injury-napoli-serie-a/
-
-**Republican Stacy Garrity Announces Bid to Challenge Josh Shapiro in Pennsylvania**\
-`Republicans hope Ms. Garrity, the state treasurer, will give them a shot against Gov. Josh Shapiro. But he will be tough to beat, and the Republican field could still be complicated by Doug Mastriano.`\
-https://nytimes.com/2025/08/18/us/politics/republican-stacy-garrity-josh-shapiro-pennsylvania.html
-
-**Everything we learned from NFL preseason games this weekend**\
-`Thirty of the NFL's 32 teams had preseason games this weekend; here are some key takeaways.`\
-https://nytimes.com/athletic/6557904/2025/08/18/nfl-preseason-takeaways-jaxson-dart-colts-qb-2025/
 

@@ -1,40 +1,40 @@
+**College football quiz: Do you remember what happened last season?**\
+`Twenty questions about the 2024 college football season ahead of the 2025 season kickoff.`\
+https://nytimes.com/athletic/6555553/2025/08/18/college-football-quiz-2024-playoff-champions/
+
+**What we've learned about the Seahawks' rookie class in the preseason**\
+`Evaluating how Grey Zabel, Nick Emmanwori, Elijah Arroyo and the rest of the rookies have performed in the preseason.`\
+https://nytimes.com/athletic/6558870/2025/08/18/seahawks-rookies-preseason-grey-zabel/
+
+**Red Wings questions for 2025: Who's top-line LW? Can young players level up?**\
+`With few major acquisitions this summer, the Red Wings will feature a lot of familiar faces — but will they get familiar results?`\
+https://nytimes.com/athletic/6544506/2025/08/18/red-wings-questions-2025-training-camp/
+
+**Way-too-early Knicks depth chart, rotations and starting lineup predictions for 2025**\
+`Could their be a change to the starting lineup? How many players will new coach Mike Brown use in his rotation?`\
+https://nytimes.com/athletic/6554889/2025/08/18/knicks-roster-2025-rotations-lineup-predictions/
+
+**Ex-Yankee Oswald Peraza opens up about struggles, reaffirms he can succeed with Angels**\
+`Peraza hit just .190 with a .542 OPS over parts of four seasons in New York, spanning 145 games.`\
+https://nytimes.com/athletic/6557417/2025/08/18/oswald-peraza-struggles-angels/
+
+**Greenberg: Do the Bears have an answer at left tackle? Why is it still a question?**\
+`Jones mostly held his own Sunday against the Bills' backups, but coach Ben Johnson still isn't comfortable with key position on the O-line.`\
+https://nytimes.com/athletic/6559653/2025/08/18/chicago-bears-roster-left-tackle/
+
+**Yankees fans have some worries. Here are their biggest right now**\
+`Did positive series against the Cardinals and Twins help New York get its mojo back?`\
+https://nytimes.com/athletic/6559466/2025/08/18/yankees-fans-concerns-cardinals/
+
+**Napoli's Lukaku facing months on the sidelines with quad injury**\
+`The 32-year-old was forced off in Napoli’s friendly win over Olympiacos on Thursday.`\
+https://nytimes.com/athletic/6560011/2025/08/18/romelu-lukaku-injury-napoli-serie-a/
+
 **Republican Stacy Garrity Announces Bid to Challenge Josh Shapiro in Pennsylvania**\
 `Republicans hope Ms. Garrity, the state treasurer, will give them a shot against Gov. Josh Shapiro. But he will be tough to beat, and the Republican field could still be complicated by Doug Mastriano.`\
-https://nytimes.com/2025/08/18/us/politics/republican-stacy-garrity-announces-bid-to-challenge-josh-shapiro-in-pennsylvania.html
+https://nytimes.com/2025/08/18/us/politics/republican-stacy-garrity-josh-shapiro-pennsylvania.html
 
 **Everything we learned from NFL preseason games this weekend**\
 `Thirty of the NFL's 32 teams had preseason games this weekend; here are some key takeaways.`\
 https://nytimes.com/athletic/6557904/2025/08/18/nfl-preseason-takeaways-jaxson-dart-colts-qb-2025/
-
-**FPL Gameweek 1 review: Budget gem Reijnders, Gyokeres patience, and Bournemouth buys**\
-`While one gameweek alone shouldn’t lead you to drastically change your FPL strategy, it did highlight a few early trends worth monitoring`\
-https://nytimes.com/athletic/6559022/2025/08/18/fantasy-premier-league-reijnders-gyokeres-liverpool-bournemouth/
-
-**Syria’s Lost Children**\
-`The Assad regime disappeared thousands of children. We go inside an investigation into what happened to them.`\
-https://nytimes.com/2025/08/18/briefing/syrias-lost-children.html
-
-**In Josh Metellus, Minnesota Vikings’ shape-shifting defense has unearthed a star  **\
-`The Vikings defense under Brian Flores is the only one of its kind in the NFL, and shape-shifter Josh Metellus is its embodiment.`\
-https://nytimes.com/athletic/6558855/2025/08/18/vikings-defense-positions-josh-metellus/
-
-**C. Notes: Brewers series showed where the Reds need to button it up**\
-`The Reds played clean baseball Sunday to beat the Brewers, but defensive lapses earlier cost them the series — again.`\
-https://nytimes.com/athletic/6559544/2025/08/18/brewers-series-showed-where-the-reds-need-to-button-it-up/
-
-**Inside Leeds United Q&A: Beren Cross answers your questions ahead of the season starting**\
-`Leeds United return to the Premier League by taking on Everton on Monday night`\
-https://nytimes.com/athletic/6559914/2025/08/18/leeds-united-beren-cross/
-
-**Bills stock report: Who's up and who's down after preseason shutout loss to Bears**\
-`Some players helped their case of making the roster, while others made it harder for themselves.`\
-https://nytimes.com/athletic/6559669/2025/08/18/bills-stock-report-tyrell-shavers/
-
-**One year later, Twins are still struggling to break free from last season's collapse**\
-`It started with a blown lead last August, and 365 days later the Twins have gone 70-93, worse than every AL team besides the White Sox.`\
-https://nytimes.com/athletic/6557580/2025/08/18/minnesota-twins-collapse/
-
-**Submit your Astros questions for Chandler Rome’s mailbag**\
-`The Athletic's Chandler Rome is here to answer your questions about the team, so submit them in the comments below.`\
-https://nytimes.com/athletic/6558990/2025/08/18/houston-astros-mailbag-questions-yordan-alvarez/
 
