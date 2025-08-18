@@ -1,3 +1,7 @@
+**Zelensky Calls for ‘Lasting’ Peace, and Warns of Russia’s Intentions**\
+`Ahead of a meeting with President Trump, President Volodymyr Zelensky of Ukraine noted that Russia’s 2014 seizure of Ukrainian land became “a springboard for a new attack.”`\
+https://nytimes.com/2025/08/18/us/politics/zelensky-trump-ukraine-russia.html
+
 **Monday Briefing: A Trump-Zelensky Meeting**\
 `Plus, an A.I. stuffed animal.`\
 https://nytimes.com/2025/08/18/briefing/ukraine-russia-trump-europe-gaza-us-visas-bolivia-evo-morales.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6550840/2025/08/18/eze-crystal-palace-farewell-chel
 **The Briefing: Is Arsenal's grind impressive? Should three teams be worried? Who does Guardiola want to leave?**\
 `Tackling the three key talking points from the opening Premier League weekend`\
 https://nytimes.com/athletic/6559104/2025/08/18/arsenal-premier-league-briefing/
-
-**The passes that show how Arsenal are trying to adapt to Gyokeres and where it needs work**\
-`After beating Manchester United, Mikel Arteta spoke of "seven, eight" times when Arsenal had the chance to release a player on goal`\
-https://nytimes.com/athletic/6559263/2025/08/18/arsenal-gyokeres-tactical-change/
 
