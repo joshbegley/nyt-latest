@@ -1,3 +1,7 @@
+**Hurricane Erin Is Growing, and So Are the Dangers It Could Bring**\
+`Rip currents are the third leading cause of deaths from hurricanes, and they can happen on a sunny day hundreds of miles from the storm.`\
+https://nytimes.com/2025/08/18/weather/hurricane-erin-rip-current-east-coast-carolina.html
+
 **In support of Zelensky, European leaders opt for Washington instead of Ibiza.**\
 `By Mark Landler`\
 https://nytimes.com/live/2025/08/18/us/trump-zelensky-ukraine-putin/in-support-of-zelensky-european-leaders-opt-for-washington-instead-of-ibiza
