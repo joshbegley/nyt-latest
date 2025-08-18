@@ -1,3 +1,19 @@
+**Matthew Stafford returns to Rams practice after sitting out with back soreness**\
+`Stafford, 37, had yet to take any reps at the Rams' training camp this summer. `\
+https://nytimes.com/athletic/6560583/2025/08/18/rams-matthew-stafford-returns-practice/
+
+**gws-jamie-lee-curtis-lindsay-lohan-freakier-friday-interview**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/jamie-lee-curtis-lindsay-lohan-freakier-friday-interview
+
+**Roma reach agreement in principle on loan for Villa's Bailey**\
+`The deal will include an option for the Italian side to sign the winger permanently for around €22m (£19m, $25.7m).`\
+https://nytimes.com/athletic/6551474/2025/08/18/leon-bailey-roma-transfer-aston-villa/
+
+**gws-tesla-diner-elon-musk**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/tesla-diner-elon-musk
+
 **gws-european-castles-kids**\
 `(No description)`\
 https://nytimes.com/newsgraphics/card-story/european-castles-kids
