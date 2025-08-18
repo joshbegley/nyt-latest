@@ -1,3 +1,43 @@
+**Russian Attacks Kill 10 in Ukraine, Hours Before Zelensky Visits White House**\
+`Ukrainian officials said the deadly strikes were a further sign that Russia had no intention of halting hostilities.`\
+https://nytimes.com/2025/08/18/us/russia-attacks-kharkiv-zaporizhzhia-ukraine.html
+
+**As the U.S. Open shakes up mixed doubles, ESPN attempts to meet the moment**\
+`The new format full of boldfaced singles names has faced sporting criticism, but its possible entertainment factor is close to undeniable.`\
+https://nytimes.com/athletic/6557409/2025/08/18/us-open-mixed-doubles-espn-schedule-commentators/
+
+**2026 NHL Draft ranking: McKenna leads Wheeler’s preseason top 32 list**\
+`After the conclusion of the Hlinka Gretzky Cup, here's where the top prospects stand with their seasons poised to begin.`\
+https://nytimes.com/athletic/6553301/2025/08/18/2026-nhl-draft-ranking-preseason-gavin-mckenna/
+
+**Forest complete signing of Kalimuendo from Rennes**\
+`The France youth international striker, 23, has signed a five-year deal at the City Ground.`\
+https://nytimes.com/athletic/6559872/2025/08/18/nottingham-forest-kalimuendo-confirmed/
+
+**Inside Barcelona: Your new weekly guide to the biggest talking points and latest info**\
+`This week, our writers explain the latest on Barca’s registration issues, their plans to return to the Camp Nou next month and more`\
+https://nytimes.com/athletic/6559737/2025/08/18/barcelona-mallorca-la-liga-camp-nou-rashford/
+
+**Stalking has become an unsettling part of sports landscape: Key takeaways from our investigation**\
+`Here's what we learned from last week's series that examined the stalking of sports figures and the deep toll it exacts on victims.`\
+https://nytimes.com/athletic/6558675/2025/08/18/athlete-stalking-sports-investigation-takeaways/
+
+**Why LIV Golf relegating Henrik Stenson, Anthony Kim is actually a win**\
+`Stenson left the Ryder Cup captaincy for LIV riches. Two years later, his future is much more uncertain.`\
+https://nytimes.com/athletic/6559432/2025/08/18/liv-golf-henrik-stenson-anthony-kim-relegation/
+
+**The Athletic 136: Ranking the FBS entering 2025, from Penn State to Kent State**\
+`Who will win it all in 2025? Who will be comically overlooked? Who will make the Playoff, and who will finish at No. 136?`\
+https://nytimes.com/athletic/6558436/2025/08/18/college-football-rankings-preseason-136/
+
+**Jayden Daniels spent the offseason scouting himself. It's already paying off.**\
+`At the urging of veteran linebacker Bobby Wagner, Daniels dug deep into his own game over the offseason. Now he's putting it to use.`\
+https://nytimes.com/athletic/6559023/2025/08/18/jayden-daniels-commanders-year-2/
+
+**Inside Real Madrid: Your new weekly guide to the biggest talking points and latest info**\
+`Our Real Madrid writers guide you through the biggest talking points at the Spanish club, in a new weekly series`\
+https://nytimes.com/athletic/6559751/2025/08/18/real-madrid-la-liga-alonso-rodrygo-transfers-pitarch/
+
 **Protests Highlight Growing Discontent With Netanyahu and the Gaza War**\
 `Many Israelis feel that freeing the hostages cannot happen if the government refuses to come to terms with Hamas and pursues its policy of trying to eliminate the group militarily.`\
 https://nytimes.com/2025/08/18/world/middleeast/protests-highlight-growing-discontent-with-netanyahu-and-the-gaza-war.html
