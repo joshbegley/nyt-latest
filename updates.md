@@ -1,3 +1,5 @@
+
+
 **Wildfires Continue Scorching Spain**\
 `Searing temperatures were complicating attempts by local firefighters and Spanish soldiers to suppress devastating wildfires.`\
 https://nytimes.com/video/world/europe/100000010346774/spain-wildfires-heat-europe.html
