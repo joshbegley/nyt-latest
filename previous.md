@@ -1,3 +1,7 @@
+**Syria’s Lost Children**\
+`The Assad regime disappeared thousands of children. We go inside an investigation into what happened to them.`\
+https://nytimes.com/2025/08/18/briefing/syrias-lost-children.html
+
 **In Josh Metellus, Minnesota Vikings’ shape-shifting defense has unearthed a star  **\
 `The Vikings defense under Brian Flores is the only one of its kind in the NFL, and shape-shifter Josh Metellus is its embodiment.`\
 https://nytimes.com/athletic/6558855/2025/08/18/vikings-defense-positions-josh-metellus/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6559705/2025/08/18/wnba-power-rankings-golden-state
 **Welcome to the 'Fix The NHL' draft: Non-standard rinks, 3-point games — and relegation?**\
 `Everyone has an opinion on where the NHL most needs to improve. Let's get competitive about it.`\
 https://nytimes.com/athletic/6550175/2025/08/18/fix-the-nhl-draft-officiating-relegation-penalties/
-
-**Blue Jays takeaways: Myles Straw the microcosm, José Berríos' struggles, more**\
-`Here are three takeaways from Toronto’s series win over the Rangers.`\
-https://nytimes.com/athletic/6559227/2025/08/18/blue-jays-takeaways-myles-straw-jose-berrios/
 

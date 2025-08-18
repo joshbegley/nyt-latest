@@ -1,3 +1,7 @@
+**Syria’s Lost Children**\
+`The Assad regime disappeared thousands of children. We go inside an investigation into what happened to them.`\
+https://nytimes.com/2025/08/18/briefing/syrias-lost-children.html
+
 **In Josh Metellus, Minnesota Vikings’ shape-shifting defense has unearthed a star  **\
 `The Vikings defense under Brian Flores is the only one of its kind in the NFL, and shape-shifter Josh Metellus is its embodiment.`\
 https://nytimes.com/athletic/6558855/2025/08/18/vikings-defense-positions-josh-metellus/
