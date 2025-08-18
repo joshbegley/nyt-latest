@@ -1,3 +1,19 @@
+**Commanders will hold Brian Robinson Jr. out of preseason game vs. Bengals**\
+`Robinson is a healthy scratch in the team's second preseason game, and his future with the Commanders is reportedly in doubt.`\
+https://nytimes.com/athletic/6561130/2025/08/18/brian-robinson-commanders-not-playing-bengals/
+
+**‘Like Death Visited Every Home’: A Pakistani Village Is Hit by Torrential Rains**\
+`At least 660 people have died in rain-related incidents across Pakistan since monsoon season began in late June, and 935 more have been injured.`\
+https://nytimes.com/2025/08/18/world/asia/pakistan-floods-village.html
+
+**Submit your question for Pete Sampson's Notre Dame football mailbag**\
+`With less than two weeks until the Fighting Irish kick off against Miami, Notre Dame is working to settle its final few questions.`\
+https://nytimes.com/athletic/6561154/2025/08/18/submit-your-question-for-pete-sampsons-notre-dame-football-mailbag/
+
+**Terence Stamp’s Swinging, Smoldering Style**\
+`He helped redefine male beauty, ushering in the era of the cinematic bad boy.`\
+https://nytimes.com/2025/08/18/style/terence-stamps-swinging-smoldering-style.html
+
 **Top Republican Says Justice Dept. Will Begin Sharing Epstein Files**\
 `The chairman of the House Oversight Committee said the department would miss a Tuesday deadline his panel set in a subpoena but would begin sharing some records on Friday.`\
 https://nytimes.com/2025/08/18/us/politics/epstein-files-release-trump.html
@@ -21,20 +37,4 @@ https://nytimes.com/2025/08/18/nyregion/jay-clayton-us-attorney-manhattan-trump.
 **Israel Is in Talks to Send Gazans to South Sudan, Officials Say**\
 `Israel has broadened its push, so far unsuccessful, to persuade other countries to take in Gazans en masse. Critics say the relocation could violate international law.`\
 https://nytimes.com/2025/08/18/world/middleeast/israel-gazans-south-sudan.html
-
-**The Briefing: Leeds 1 Everton 0 - A dramatic, deserved win but should penalty have stood?**\
-`The major talking points analysed from Leeds' Premier League return`\
-https://nytimes.com/athletic/6560057/2025/08/18/leeds-everton-briefing-analysis/
-
-**Hobbs accepts offer to become Crystal Palace sporting director**\
-`He is set to replace Dougie Freedman, who left Palace in March after spending eight years in the role at Selhurst Park.`\
-https://nytimes.com/athletic/6561010/2025/08/18/crystal-palace-transfers-sporting-director-matt-hobbs/
-
-**Cooper DeJean debuted at CB in training camp. What does this mean for Eagles?**\
-`There's been no clear winner for the CB2 spot.`\
-https://nytimes.com/athletic/6560560/2025/08/18/cooper-dejean-debut-cornerback-eagles/
-
-**Zack Wheeler undergoes procedure to remove blood clot**\
-`The Phillies are more concerned about Wheeler's health than the rotation. "This is life. My thoughts are constantly on him and his family."`\
-https://nytimes.com/athletic/6560966/2025/08/18/zack-wheeler-phillies-blood-clot-surgery/
 
