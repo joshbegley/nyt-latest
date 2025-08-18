@@ -1,3 +1,7 @@
+**Word of the Day: coxswain**\
+`This word has appeared in three articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2025/08/18/learning/word-of-the-day-coxswain.html
+
 **All Russia Needs to Do Is Go Home**\
 `The meeting was a stark reminder of a simple truth: That the real barrier between President Trump and peace in Ukraine is Vladimir Putin.`\
 https://nytimes.com/2025/08/18/opinion/ukraine-russia-putin-trump-peace.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6559581/2025/08/18/williamsport-mets-padres-venezue
 **Newcastle's pressing and defensive shape against Aston Villa showed how good they can be**\
 `Eddie Howe's side showed how good they can be against Aston Villa, but their lack of firepower up front denied them a deserved win`\
 https://nytimes.com/athletic/6548374/2025/08/18/newcastle-pressing-defensive-solidity-centre-forward/
-
-**The Giants won a game at Oracle Park; time and date of parade TBD**\
-`Let us count the ways this win showed off a lot of what the Giants have been missing this season.`\
-https://nytimes.com/athletic/6559430/2025/08/18/giants-win-oracle-park-logan-webb-rays/
 
