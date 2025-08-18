@@ -1,3 +1,7 @@
+**Labor Board Declares Flight Attendants’ Continued Strike at Air Canada Illegal**\
+`The Canada Industrial Relations board ordered the flight attendants union to call off the job action by midday.`\
+https://nytimes.com/2025/08/18/world/canada/air-canada-strike-flight-attendant-labor-board.html
+
 **Will Oil Demand Peak Soon? Trump Administration Doesn’t Want to Hear It.**\
 `It is lashing out at the world’s leading energy organization for saying oil and gas use could start declining as the world pivots to cleaner alternatives.`\
 https://nytimes.com/2025/08/18/climate/iea-trump-energy-data-peak-oil.html
