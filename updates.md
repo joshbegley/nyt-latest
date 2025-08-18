@@ -1,3 +1,19 @@
+**Commanders will hold Brian Robinson Jr. out of preseason game vs. Bengals**\
+`Robinson is a healthy scratch in the team's second preseason game, and his future with the Commanders is reportedly in doubt.`\
+https://nytimes.com/athletic/6561130/2025/08/18/brian-robinson-commanders-not-playing-bengals/
+
+**‘Like Death Visited Every Home’: A Pakistani Village Is Hit by Torrential Rains**\
+`At least 660 people have died in rain-related incidents across Pakistan since monsoon season began in late June, and 935 more have been injured.`\
+https://nytimes.com/2025/08/18/world/asia/pakistan-floods-village.html
+
+**Submit your question for Pete Sampson's Notre Dame football mailbag**\
+`With less than two weeks until the Fighting Irish kick off against Miami, Notre Dame is working to settle its final few questions.`\
+https://nytimes.com/athletic/6561154/2025/08/18/submit-your-question-for-pete-sampsons-notre-dame-football-mailbag/
+
+**Terence Stamp’s Swinging, Smoldering Style**\
+`He helped redefine male beauty, ushering in the era of the cinematic bad boy.`\
+https://nytimes.com/2025/08/18/style/terence-stamps-swinging-smoldering-style.html
+
 **Top Republican Says Justice Dept. Will Begin Sharing Epstein Files**\
 `The chairman of the House Oversight Committee said the department would miss a Tuesday deadline his panel set in a subpoena but would begin sharing some records on Friday.`\
 https://nytimes.com/2025/08/18/us/politics/epstein-files-release-trump.html
