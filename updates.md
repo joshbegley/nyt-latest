@@ -1,3 +1,15 @@
+**Monday Briefing: A Trump-Zelensky Meeting**\
+`Plus, an A.I. stuffed animal.`\
+https://nytimes.com/2025/08/18/briefing/ukraine-russia-trump-europe-gaza-us-visas-bolivia-evo-morales.html
+
+**Mets find joy and reset in Williamsport's Little League magic**\
+`For the Mets on Sunday, their hopes of a late-season sprint into an unforgettable autumn start in the birthplace of Little League.`\
+https://nytimes.com/athletic/6559581/2025/08/18/williamsport-mets-padres-venezuela-little-league/
+
+**Newcastle's pressing and defensive shape against Aston Villa showed how good they can be**\
+`Eddie Howe's side showed how good they can be against Aston Villa, but their lack of firepower up front denied them a deserved win`\
+https://nytimes.com/athletic/6548374/2025/08/18/newcastle-pressing-defensive-solidity-centre-forward/
+
 **The Giants won a game at Oracle Park; time and date of parade TBD**\
 `Let us count the ways this win showed off a lot of what the Giants have been missing this season.`\
 https://nytimes.com/athletic/6559430/2025/08/18/giants-win-oracle-park-logan-webb-rays/
