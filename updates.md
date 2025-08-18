@@ -1,3 +1,5 @@
+
+
 **Caleb Williams, Tyson Bagent, defense impress in Bears' preseason shutout of Bills**\
 `What mattered in the Bears' rout of the Bills? Well, for one, plenty of good throws from Williams and Bagent. Five takeaways.`\
 https://nytimes.com/athletic/6559658/2025/08/18/bears-bills-caleb-williams-tyson-bagent-preseason/
