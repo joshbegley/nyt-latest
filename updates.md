@@ -1,3 +1,11 @@
+**The Lambs Sing a Melancholy Song**\
+`The nation’s longest-running theatrical club toasts its old Manhattan home before moving to a new place.`\
+https://nytimes.com/2025/08/18/style/the-lambs-sing-a-melancholy-song.html
+
+**Indianapolis Colts sign CB Xavien Howard to boost ailing secondary**\
+`Howard’s arrival comes amid a rash of cornerback injuries in Indianapolis.`\
+https://nytimes.com/athletic/6560500/2025/08/18/indianapolis-colts-sign-xavien-howard/
+
 **Hurricane Erin Is Growing, and So Are the Dangers It Could Bring**\
 `Rip currents are the third leading cause of deaths from hurricanes, and they can happen on a sunny day hundreds of miles from the storm.`\
 https://nytimes.com/2025/08/18/weather/hurricane-erin-rip-current-east-coast-carolina.html
