@@ -1,3 +1,11 @@
+**Cooper DeJean debuted at cornerback in training camp. What does this mean for the Eagles?**\
+`There's been no clear winner for the CB2 spot.`\
+https://nytimes.com/athletic/6560560/2025/08/18/cooper-dejean-debut-cornerback-eagles/
+
+**Zack Wheeler undergoes procedure to remove blood clot**\
+`The Phillies are more concerned about Wheeler's health than the rotation. "This is life. My thoughts are constantly on him and his family."`\
+https://nytimes.com/athletic/6560966/2025/08/18/zack-wheeler-phillies-blood-clot-surgery/
+
 **Ask The Morning: What Do You Want to Know About K-12 Schools?**\
 `The school year is beginning. We’ll find experts to answer your questions.`\
 https://nytimes.com/2025/08/18/education/ask-the-morning-k12-schools.html

@@ -1,3 +1,11 @@
+**Cooper DeJean debuted at cornerback in training camp. What does this mean for the Eagles?**\
+`There's been no clear winner for the CB2 spot.`\
+https://nytimes.com/athletic/6560560/2025/08/18/cooper-dejean-debut-cornerback-eagles/
+
+**Zack Wheeler undergoes procedure to remove blood clot**\
+`The Phillies are more concerned about Wheeler's health than the rotation. "This is life. My thoughts are constantly on him and his family."`\
+https://nytimes.com/athletic/6560966/2025/08/18/zack-wheeler-phillies-blood-clot-surgery/
+
 **Ask The Morning: What Do You Want to Know About K-12 Schools?**\
 `The school year is beginning. We’ll find experts to answer your questions.`\
 https://nytimes.com/2025/08/18/education/ask-the-morning-k12-schools.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/08/18/business/long-term-unemployment.html
 **Alcaraz wins Cincinnati Open after Sinner retires through illness**\
 `Alcaraz led 5-0 when his nearest rival in tennis had to abandon the match.`\
 https://nytimes.com/athletic/6560644/2025/08/18/alcaraz-sinner-cincinnati-open-final-result-analysis/
-
-**49ers mailbag: Why is the team so injury-prone? What is Alfred Collins’ best spot?**\
-`Among this week's questions: What is the 49ers' biggest weakness along their defensive line? How has Jake Moody been at kickoffs?`\
-https://nytimes.com/athletic/6560804/2025/08/18/49ers-preseason-injuries-alfred-collins-mailbag/
-
-**Dealer Known as ‘Ketamine Queen’ to Plead Guilty in Matthew Perry Case**\
-`Jasveen Sangha will plead guilty to selling the ketamine that killed the “Friends” star, prosecutors said. She could face decades in prison.`\
-https://nytimes.com/2025/08/18/arts/television/matthew-perry-jasveen-singha-guilty-plea.html
 
