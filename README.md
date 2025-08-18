@@ -1,3 +1,7 @@
+**Republican Stacy Garrity Announces Bid to Challenge Josh Shapiro in Pennsylvania**\
+`Republicans hope Ms. Garrity, the state treasurer, will give them a shot against Gov. Josh Shapiro. But he will be tough to beat, and the Republican field could still be complicated by Doug Mastriano.`\
+https://nytimes.com/2025/08/18/us/politics/republican-stacy-garrity-announces-bid-to-challenge-josh-shapiro-in-pennsylvania.html
+
 **Everything we learned from NFL preseason games this weekend**\
 `Thirty of the NFL's 32 teams had preseason games this weekend; here are some key takeaways.`\
 https://nytimes.com/athletic/6557904/2025/08/18/nfl-preseason-takeaways-jaxson-dart-colts-qb-2025/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6557580/2025/08/18/minnesota-twins-collapse/
 **Submit your Astros questions for Chandler Rome’s mailbag**\
 `The Athletic's Chandler Rome is here to answer your questions about the team, so submit them in the comments below.`\
 https://nytimes.com/athletic/6558990/2025/08/18/houston-astros-mailbag-questions-yordan-alvarez/
-
-**How Bengals' Shemar Stewart has quickly flipped the narrative: 'You feel his impact'**\
-`After an ugly holdout and fan backlash, the rookie now is making an impact on the field while doing and saying all the right things.`\
-https://nytimes.com/athletic/6557343/2025/08/18/bengals-shemar-stewart-preseason/
 
