@@ -1,3 +1,15 @@
+**Penguins draw interest from a new potential buyer**\
+`A group including Mario Lemieux now has competition in buying some or all of the Penguins from FSG.`\
+https://nytimes.com/athletic/6561060/2025/08/18/pittsburgh-penguins-sale-potential-buyer-hoffmann/
+
+**Tuesday Briefing: Crucial Talks on Ukraine**\
+`Also, China’s robot games.`\
+https://nytimes.com/2025/08/18/briefing/ukraine-white-house-trump-zelensky-gaza.html
+
+**Manhattan Judges Approve Trump’s Choice for U.S. Attorney**\
+`Jay Clayton, whose Senate confirmation was stalled, could serve for the rest of the Trump presidency. He faced criticism after a prosecutor in his office was fired by the administration.`\
+https://nytimes.com/2025/08/18/nyregion/jay-clayton-us-attorney-manhattan-trump.html
+
 **Israel Is in Talks to Send Gazans to South Sudan, Officials Say**\
 `Israel has broadened its push, so far unsuccessful, to persuade other countries to take in Gazans en masse. Critics say the relocation could violate international law.`\
 https://nytimes.com/2025/08/18/world/middleeast/israel-gazans-south-sudan.html

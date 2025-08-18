@@ -1,3 +1,15 @@
+**Penguins draw interest from a new potential buyer**\
+`A group including Mario Lemieux now has competition in buying some or all of the Penguins from FSG.`\
+https://nytimes.com/athletic/6561060/2025/08/18/pittsburgh-penguins-sale-potential-buyer-hoffmann/
+
+**Tuesday Briefing: Crucial Talks on Ukraine**\
+`Also, China’s robot games.`\
+https://nytimes.com/2025/08/18/briefing/ukraine-white-house-trump-zelensky-gaza.html
+
+**Manhattan Judges Approve Trump’s Choice for U.S. Attorney**\
+`Jay Clayton, whose Senate confirmation was stalled, could serve for the rest of the Trump presidency. He faced criticism after a prosecutor in his office was fired by the administration.`\
+https://nytimes.com/2025/08/18/nyregion/jay-clayton-us-attorney-manhattan-trump.html
+
 **Israel Is in Talks to Send Gazans to South Sudan, Officials Say**\
 `Israel has broadened its push, so far unsuccessful, to persuade other countries to take in Gazans en masse. Critics say the relocation could violate international law.`\
 https://nytimes.com/2025/08/18/world/middleeast/israel-gazans-south-sudan.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/08/18/education/ask-the-morning-k12-schools.html
 **Hamas Accepts New Gaza Cease-Fire Proposal, Officials Say**\
 `It was unclear whether Prime Minister Benjamin Netanyahu of Israel was on board with the terms, which came as Qatar and Egypt were intensifying mediation efforts.`\
 https://nytimes.com/2025/08/18/world/middleeast/hamas-israel-gaza-ceasefire.html
-
-**A's promote Leo De Vries, key prospect in Mason Miller deal, to Double A**\
-`De Vries, 18, will be the youngest player in the Double-A Texas League. He is the No. 13 prospect in baseball.`\
-https://nytimes.com/athletic/6560896/2025/08/18/leo-de-vries-athletics-double-a-promotion/
-
-**Russia reaffirms opposition to deploying NATO troops in Ukraine as part of a security guarantee.**\
-`By Neil MacFarquhar`\
-https://nytimes.com/live/2025/08/18/us/trump-zelensky-ukraine-putin/russia-reaffirms-opposition-to-deploying-nato-troops-in-ukraine-as-part-of-a-security-guarantees
-
-**Immigration Enforcement Takes Key Role in Trump’s D.C. Crime Crackdown**\
-`Immigrants who live and work in the city say they want violent crime lowered but fear that ICE efforts could make it worse.`\
-https://nytimes.com/2025/08/18/us/trump-immigration-dc-crime.html
 
