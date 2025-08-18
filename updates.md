@@ -1,3 +1,7 @@
+**Trump Wants to Let A.I. Run Wild. This Might Stop Him.**\
+`The president wants to unleash American artificial intelligence companies on the world, but Europe can still stand in his way.`\
+https://nytimes.com/2025/08/18/opinion/trump-ai-europe.html
+
 **Manchester United's transfer business has clearly improved them - but more work is needed**\
 `Matheus Cunha and Bryan Mbeumo impressed on their United's debuts vs Arsenal - but this team is not yet the finished article`\
 https://nytimes.com/athletic/6559461/2025/08/18/manchester-united-squad-amorim/

@@ -14,7 +14,7 @@ https://nytimes.com/2025/08/18/opinion/ukraine-russia-putin-trump-peace.html
 ``\
 https://nytimes.com/issue/todayspaper/2025/08/18/todays-new-york-times
 
-**Trump’s Plans for A.I. Might Hit a Wall. Thank Europe.**\
+**Trump Wants to Let A.I. Run Wild. This Might Stop Him.**\
 `The president wants to unleash American artificial intelligence companies on the world, but Europe can still stand in his way.`\
 https://nytimes.com/2025/08/18/opinion/trump-ai-europe.html
 
