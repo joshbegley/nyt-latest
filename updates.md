@@ -1,3 +1,7 @@
+**Manchester United's transfer business has clearly improved them - but more work is needed**\
+`The wisdom of signing two players who understand the Premier League was evident as they immediately looked settled at Old Trafford`\
+https://nytimes.com/athletic/6559461/2025/08/18/manchester-united-squad-amorim/
+
 **Everything You Need to Know About the 2025 U.S. Open**\
 `The tournament runs Aug. 24 to Sept. 7 at the Billie Jean King National Tennis Center in New York City.`\
 https://nytimes.com/2025/08/18/nyregion/us-open-2025-guide-tennis.html
