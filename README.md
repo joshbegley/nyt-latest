@@ -1,3 +1,7 @@
+**Hurricane Erin Is Growing, and So Are the Dangers It Could Bring**\
+`Rip currents are the third leading cause of deaths from hurricanes, and they can happen on a sunny day hundreds of miles from the storm.`\
+https://nytimes.com/2025/08/18/weather/hurricane-erin-rip-current-east-coast-carolina.html
+
 **In support of Zelensky, European leaders opt for Washington instead of Ibiza.**\
 `By Mark Landler`\
 https://nytimes.com/live/2025/08/18/us/trump-zelensky-ukraine-putin/in-support-of-zelensky-european-leaders-opt-for-washington-instead-of-ibiza
@@ -33,8 +37,4 @@ https://nytimes.com/video/world/europe/100000010346774/spain-wildfires-heat-euro
 **Dolphins meeting with Matthew Judon, expected to sign him: Source**\
 `Judon is still looking for a landing spot after the Falcons did not re-sign him following last season.`\
 https://nytimes.com/athletic/6560420/2025/08/18/matthew-judon-dolphins-meeting-contract/
-
-**The Windup: Starters shine in Dodgers’ statement sweep**\
-`Welcome to The Windup, The Athletic's MLB newsletter.`\
-https://nytimes.com/athletic/6560152/2025/08/18/dodgers-padres-pitching-the-windup/
 

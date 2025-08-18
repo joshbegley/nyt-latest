@@ -1,0 +1,40 @@
+**In support of Zelensky, European leaders opt for Washington instead of Ibiza.**\
+`By Mark Landler`\
+https://nytimes.com/live/2025/08/18/us/trump-zelensky-ukraine-putin/in-support-of-zelensky-european-leaders-opt-for-washington-instead-of-ibiza
+
+**At White House Meeting, Zelensky Is Likely to Ask What Russia Is Willing to Concede**\
+`President Trump is expected to press Ukraine to make concessions to end the war. President Volodymyr Zelensky will likely ask what, if anything, Russia is offering in return.`\
+https://nytimes.com/2025/08/18/us/zelensky-russia-concessions-trump-meeting.html
+
+**How Real Madrid play: Xabi Alonso's new ideas mean big change for Spanish giants**\
+`The 43-year-old Spaniard's approach represents a marked change from that of predecessor Carlo Ancelotti`\
+https://nytimes.com/athletic/6546842/2025/08/18/real-madrid-xabi-alonso-new-ideas-tactics/
+
+**She’s Serving New Clothes at the U.S. Open**\
+`After years of playing in store-bought attire and without an apparel deal, Taylor Townsend, now the world No. 1 in women’s doubles, is attempting a label of her own.`\
+https://nytimes.com/2025/08/18/style/taylor-townsend-athletic-clothing-tennis-us-open.html
+
+**Scoop City: Risers and fallers after preseason Week 2**\
+`Key takeaways from preseason Week 2, plus an impressive turnaround from Cincinnati's first-round pick amid Trey Hendrickson trade rumors.`\
+https://nytimes.com/athletic/6560487/2025/08/18/nfl-preseason-week-2-risers-fallers-scoop-city-bengals/
+
+**Newsmax Will Pay $67 Million to Settle Dominion Defamation Lawsuit**\
+`Dominion Voting Systems sued the right-wing cable channel for broadcasting false claims that the voting machine company had rigged votes in the 2020 presidential election.`\
+https://nytimes.com/2025/08/18/business/media/newsmax-dominion-defamation-lawsuit-settlement.html
+
+**What we learned from the sports card industry's biggest month of 2025 so far**\
+`The athletes across all sports that attracted the most money and interest on eBay`\
+https://nytimes.com/athletic/6557910/2025/08/18/sports-card-sales-ebay/
+
+**Wildfires Continue Scorching Spain**\
+`Searing temperatures were complicating attempts by local firefighters and Spanish soldiers to suppress devastating wildfires.`\
+https://nytimes.com/video/world/europe/100000010346774/spain-wildfires-heat-europe.html
+
+**Dolphins meeting with Matthew Judon, expected to sign him: Source**\
+`Judon is still looking for a landing spot after the Falcons did not re-sign him following last season.`\
+https://nytimes.com/athletic/6560420/2025/08/18/matthew-judon-dolphins-meeting-contract/
+
+**The Windup: Starters shine in Dodgers’ statement sweep**\
+`Welcome to The Windup, The Athletic's MLB newsletter.`\
+https://nytimes.com/athletic/6560152/2025/08/18/dodgers-padres-pitching-the-windup/
+
