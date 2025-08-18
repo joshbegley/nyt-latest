@@ -1,4 +1,8 @@
-**What ‘Security Guarantees’ in the Form of Troops Could Look Like in Ukraine**\
+**Mother Who Said 7-Month-Old Was Kidnapped Stops Cooperating, Sheriff Says**\
+`The Sheriff’s Department in San Bernardino County, Calif., said that Emmanuel Haro’s mother had stopped speaking with investigators after being confronted with inconsistencies in her initial report.`\
+https://nytimes.com/2025/08/18/us/california-missing-baby-kidnapping-foul-play.html
+
+**What ‘Security Guarantees,’ in the Form of Troops, Could Look Like in Ukraine**\
 `President Trump has not committed to adding American forces to the mix in Ukraine. No one has detailed publicly what form defenses would take, but there are several options.`\
 https://nytimes.com/2025/08/18/world/europe/security-guarantees-troops-ukraine.html
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6557287/2025/08/18/brendan-donovan-injury-cardinals
 **How ‘Skibidi’ and ‘Tradwife’ Were Added to the Cambridge Dictionary**\
 `The terms, which started as online slang, are expected to have staying power.`\
 https://nytimes.com/2025/08/18/style/skibidi-tradwife-delulu-cambridge-dictionary.html
-
-**Commanders will hold Brian Robinson Jr. out of preseason game vs. Bengals**\
-`Robinson is a healthy scratch in the team's second preseason game, and his future with the Commanders is reportedly in doubt.`\
-https://nytimes.com/athletic/6561130/2025/08/18/brian-robinson-commanders-not-playing-bengals/
 
