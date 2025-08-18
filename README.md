@@ -1,3 +1,7 @@
+**Tennessee names Joey Aguilar starting QB after Nico Iamaleava transfer**\
+`Aguilar was considered the favorite to win the starting job following Iamaleava’s dramatic departure from Tennessee.`\
+https://nytimes.com/athletic/6559641/2025/08/18/joey-aguilar-tennessee-quarterback/
+
 **Zelensky Calls for ‘Lasting’ Peace, and Warns of Russia’s Intentions**\
 `Ahead of a meeting with President Trump, President Volodymyr Zelensky of Ukraine noted that Russia’s 2014 seizure of Ukrainian land became “a springboard for a new attack.”`\
 https://nytimes.com/2025/08/18/us/politics/zelensky-trump-ukraine-russia.html
@@ -7,7 +11,7 @@ https://nytimes.com/2025/08/18/us/politics/zelensky-trump-ukraine-russia.html
 https://nytimes.com/2025/08/18/briefing/ukraine-russia-trump-europe-gaza-us-visas-bolivia-evo-morales.html
 
 **Mets find joy and reset in Williamsport's Little League magic**\
-`For the Mets on Sunday, their hopes of a late-season sprint into an unforgettable autumn start in the birthplace of Little League.`\
+`For the Mets on Sunday, their hopes of a late-season sprint into an unforgettable autumn started in the birthplace of Little League.`\
 https://nytimes.com/athletic/6559581/2025/08/18/williamsport-mets-padres-venezuela-little-league/
 
 **Newcastle's pressing and defensive shape against Aston Villa showed how good they can be**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6557140/2025/08/18/aston-villa-emery-ramsey-psr-uef
 **Was this Eberechi Eze bidding farewell to Crystal Palace?**\
 `The England forward was denied what might have been a winning goal by the VAR at Stamford Bridge as Tottenham aspire to lure him away`\
 https://nytimes.com/athletic/6550840/2025/08/18/eze-crystal-palace-farewell-chelsea/
-
-**The Briefing: Is Arsenal's grind impressive? Should three teams be worried? Who does Guardiola want to leave?**\
-`Tackling the three key talking points from the opening Premier League weekend`\
-https://nytimes.com/athletic/6559104/2025/08/18/arsenal-premier-league-briefing/
 
