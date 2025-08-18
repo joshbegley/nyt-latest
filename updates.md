@@ -1,3 +1,19 @@
+**All Russia Needs to Do Is Go Home**\
+`The meeting was a stark reminder of a simple truth: That the real barrier between President Trump and peace in Ukraine is Vladimir Putin.`\
+https://nytimes.com/2025/08/18/opinion/ukraine-russia-putin-trump-peace.html
+
+**The New York Times in Print for Monday, Aug. 18, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/08/18/todays-new-york-times
+
+**Trump’s Plans for A.I. Might Hit a Wall. Thank Europe.**\
+`The president wants to unleash American artificial intelligence companies on the world, but Europe can still stand in his way.`\
+https://nytimes.com/2025/08/18/opinion/trump-ai-europe.html
+
+**‘The Twisted Tale of Amanda Knox,’ Plus 6 Things to Watch on TV This Week**\
+`A fictionalized version of the true story comes to Hulu, and a Dallas Cowboys documentary series releases on Netflix.`\
+https://nytimes.com/2025/08/18/arts/television/the-twisted-tale-of-amanda-knox-plus-6-things-to-watch-on-tv-this-week.html
+
 **Tennessee names Joey Aguilar starting QB after Nico Iamaleava transfer**\
 `Aguilar was considered the favorite to win the starting job following Iamaleava’s dramatic departure from Tennessee.`\
 https://nytimes.com/athletic/6559641/2025/08/18/joey-aguilar-tennessee-quarterback/
