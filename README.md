@@ -1,3 +1,7 @@
+**Will Oil Demand Peak Soon? Trump Administration Doesn’t Want to Hear It.**\
+`It is lashing out at the world’s leading energy organization for saying oil and gas use could start declining as the world pivots to cleaner alternatives.`\
+https://nytimes.com/2025/08/18/climate/iea-trump-energy-data-peak-oil.html
+
 **An Ohio City Faces a Future Without Haitian Workers: ‘It’s Not Going to Be Good’**\
 `Springfield faced a crisis after Donald Trump falsely claimed Haitians were eating pets. Now his policies are driving out workers like Wilford Rinvil, who left for Canada.`\
 https://nytimes.com/2025/08/18/us/springfield-ohio-haitian-immigrants-trump.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6560065/2025/08/18/deng-mayar-death-drowning-omaha/
 **Trump Says He Wants to Get Rid of Mail-In Ballots**\
 `President Trump has claimed mail voting was a source of fraud during the 2020 presidential election, although his former attorney general said his assertions of widespread fraud couldn’t be proven.`\
 https://nytimes.com/2025/08/18/us/politics/trump-mail-ballots-voting-machines-election.html
-
-**Goodbye, MSNBC. Hello, MS NOW.**\
-`The cable news network is changing its name this year because a corporate spinoff is separating MSNBC from its cousin, NBC News.`\
-https://nytimes.com/2025/08/18/business/media/msnbc-new-name-ms-now.html
 
