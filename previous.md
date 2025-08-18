@@ -1,3 +1,15 @@
+**What ‘Security Guarantees’ in the Form of Troops Could Look Like in Ukraine**\
+`President Trump has not committed to adding American forces to the mix in Ukraine. No one has detailed publicly what form defenses would take, but there are several options.`\
+https://nytimes.com/2025/08/18/world/europe/security-guarantees-troops-ukraine.html
+
+**Frustrations Mount for 500,000 Passengers Affected by Air Canada Strike**\
+`Many passengers are still struggling to find alternative transportation and are angry at the airline. “You feel like you’re at their mercy,” said one.`\
+https://nytimes.com/2025/08/18/travel/air-canada-strike-refund.html
+
+**Lions 53-man roster projection: Will they keep just 5 WRs? New addition to D-line**\
+`The Lions' final preseason game is Saturday vs. the Texans and the roster has to be set by the following Tuesday. How does it shake out?`\
+https://nytimes.com/athletic/6561040/2025/08/18/lions-roster-projection-final-preseason-game/
+
 **Trump Hosts Zelensky and European Leaders**\
 `Also, Texas Democrats ended their walkout over redistricting. Here’s the latest at the end of Monday.`\
 https://nytimes.com/2025/08/18/briefing/trump-hosts-zelensky-and-european-leaders.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/08/18/style/skibidi-tradwife-delulu-cambridge-dictionar
 **Commanders will hold Brian Robinson Jr. out of preseason game vs. Bengals**\
 `Robinson is a healthy scratch in the team's second preseason game, and his future with the Commanders is reportedly in doubt.`\
 https://nytimes.com/athletic/6561130/2025/08/18/brian-robinson-commanders-not-playing-bengals/
-
-**‘Like Death Visited Every Home’: A Pakistani Village Is Hit by Torrential Rains**\
-`At least 660 people have died in rain-related incidents across Pakistan since monsoon season began in late June, and 935 more have been injured.`\
-https://nytimes.com/2025/08/18/world/asia/pakistan-floods-village.html
-
-**Submit your question for Pete Sampson's Notre Dame football mailbag**\
-`With less than two weeks until the Fighting Irish kick off against Miami, Notre Dame is working to settle its final few questions.`\
-https://nytimes.com/athletic/6561154/2025/08/18/submit-your-question-for-pete-sampsons-notre-dame-football-mailbag/
-
-**Terence Stamp’s Swinging, Smoldering Style**\
-`He helped redefine male beauty, ushering in the era of the cinematic bad boy.`\
-https://nytimes.com/2025/08/18/style/terence-stamps-swinging-smoldering-style.html
 
