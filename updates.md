@@ -1,3 +1,7 @@
+**The Bull and Bear Cases for Another Market Rally**\
+`Stocks are still flying high. But doubts are creeping in about the S&P 500’s run, as some analysts have flashbacks to valuations during the dotcom boom.`\
+https://nytimes.com/2025/08/18/business/dealbook/sp-500-market-valuations.html
+
 **Ukrainians hold little hope for Zelensky’s Oval Office meeting.**\
 `By Constant Méheut and Olha Konovalova`\
 https://nytimes.com/live/2025/08/18/us/trump-zelensky-ukraine-putin/ukrainians-hold-little-hope-for-zelenskys-oval-office-meeting
