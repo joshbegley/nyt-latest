@@ -1,4 +1,8 @@
-**Cristian Romero agrees new four-year Tottenham contract**\
+**Madison Avenue Is Starting to Love A.I.**\
+`Advertisers are increasingly using generative artificial intelligence to make their commercials.`\
+https://nytimes.com/2025/08/18/business/madison-avenue-is-starting-to-love-ai.html
+
+**Cristian Romero signs new four-year Tottenham contract**\
 `Romero had two years remaining on his previous Spurs contract, and was targeted by Atletico Madrid earlier this summer.`\
 https://nytimes.com/athletic/6508224/2025/08/18/cristian-romero-new-contract-tottenham/
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6560150/2025/08/18/fantasy-baseball-the-bat-x-shane
 **The Eaton Fire Destroyed Their School. They Created a New Wonderland Onstage.**\
 `At first it seemed unthinkable that the school’s spring musical, “Alice in Wonderland,” would happen. But school leaders quickly decided that it should go on.`\
 https://nytimes.com/interactive/2025/08/18/us/eaton-fire-aveson-charter-school.html
-
-**Oil and Gas Prices Are Falling, a Boon for Drivers, and Trump**\
-`Plentiful supply and weak demand has helped bring down fuel prices, which President Trump has often cited as a measure of his success.`\
-https://nytimes.com/2025/08/18/business/energy-environment/oil-gasoline-prices-trump.html
 

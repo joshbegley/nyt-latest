@@ -1,3 +1,11 @@
+**Madison Avenue Is Starting to Love A.I.**\
+`Advertisers are increasingly using generative artificial intelligence to make their commercials.`\
+https://nytimes.com/2025/08/18/business/madison-avenue-is-starting-to-love-ai.html
+
+**Cristian Romero signs new four-year Tottenham contract**\
+`Romero had two years remaining on his previous Spurs contract, and was targeted by Atletico Madrid earlier this summer.`\
+https://nytimes.com/athletic/6508224/2025/08/18/cristian-romero-new-contract-tottenham/
+
 **Cristian Romero agrees new four-year Tottenham contract**\
 `Romero had two years remaining on his previous Spurs contract, and was targeted by Atletico Madrid earlier this summer.`\
 https://nytimes.com/athletic/6508224/2025/08/18/cristian-romero-new-contract-tottenham/

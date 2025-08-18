@@ -1,3 +1,15 @@
+**Vacation Vibes: Match These Novels to Their Settings**\
+`Try this short quiz on popular novels that take you places, even if you’re staying home this summer.`\
+https://nytimes.com/interactive/2025/08/18/books/review/vacation-setting-novels.html
+
+**These Comics Got Caught Up in Politics. Now, They’re Getting Personal.**\
+`Comedians at Edinburgh Fringe are presenting shows with President Trump or Gaza in the background and human stories at the fore.`\
+https://nytimes.com/2025/08/18/arts/edinburgh-fringe-comedy-politics.html
+
+**Zelensky Hopes for a Less Fiery Oval Office Discussion**\
+`President Volodymyr Zelensky of Ukraine was ambushed by President Trump and Vice President JD Vance in March. This time, he is bringing backup.`\
+https://nytimes.com/2025/08/18/us/zelensky-hopes-for-a-less-fiery-oval-office-discussion.html
+
 **Madison Avenue Is Starting to Love A.I.**\
 `Advertisers are increasingly using generative artificial intelligence to make their commercials.`\
 https://nytimes.com/2025/08/18/business/madison-avenue-is-starting-to-love-ai.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/08/18/well/eat/health-benefits-kiwi-fiber-vitamin-c.htm
 **These Majestic Seabirds Never Stop Pooping**\
 `Streaked shearwaters keep a very regular rhythm throughout their daily foraging flights, shedding about 5 percent of their body mass every hour.`\
 https://nytimes.com/2025/08/18/science/seabirds-never-stop-pooping.html
-
-**One Pan, 30 Minutes, Dinner Done**\
-`More promising numbers: My orzo with spinach and feta has five stars and over 15,000 reviews.`\
-https://nytimes.com/2025/08/18/dining/melissa-clark-one-pan-spinach-and-feta-orzo-recipe.html
-
-**Fantasy baseball cheat sheet: Start Shane Bieber in his return and other THE BAT X insights**\
-`The Athletic and THE BAT X have teamed up to bring readers a fantasy baseball cheat sheet to begin the week. `\
-https://nytimes.com/athletic/6560150/2025/08/18/fantasy-baseball-the-bat-x-shane-bieber/
-
-**The Eaton Fire Destroyed Their School. They Created a New Wonderland Onstage.**\
-`At first it seemed unthinkable that the school’s spring musical, “Alice in Wonderland,” would happen. But school leaders quickly decided that it should go on.`\
-https://nytimes.com/interactive/2025/08/18/us/eaton-fire-aveson-charter-school.html
 
