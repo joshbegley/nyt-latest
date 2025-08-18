@@ -1,3 +1,7 @@
+**The Pulse: The most interesting man in college football**\
+`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/6559526/2025/08/18/andrew-luck-stanford-colts-interview-the-pulse/
+
 **Russian Attacks Kill 10 in Ukraine, Hours Before Zelensky Visits White House**\
 `Ukrainian officials said the deadly strikes were a further sign that Russia had no intention of halting hostilities.`\
 https://nytimes.com/2025/08/18/us/russia-attacks-kharkiv-zaporizhzhia-ukraine.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6558436/2025/08/18/college-football-rankings-presea
 **Jayden Daniels spent the offseason scouting himself. It's already paying off.**\
 `At the urging of veteran linebacker Bobby Wagner, Daniels dug deep into his own game over the offseason. Now he's putting it to use.`\
 https://nytimes.com/athletic/6559023/2025/08/18/jayden-daniels-commanders-year-2/
-
-**Inside Real Madrid: Your new weekly guide to the biggest talking points and latest info**\
-`Our Real Madrid writers guide you through the biggest talking points at the Spanish club, in a new weekly series`\
-https://nytimes.com/athletic/6559751/2025/08/18/real-madrid-la-liga-alonso-rodrygo-transfers-pitarch/
 
