@@ -1,3 +1,7 @@
+**Live Updates: Zelensky and Allies Head to White House to Show Unity on Ukraine**\
+`President Volodymyr Zelensky and European leaders will aim to defend Ukraine’s position in peace talks after President Trump aligned with Russia. Hours before the meeting, Russia hit Ukraine with a deadly strike.`\
+https://nytimes.com/live/2025/08/18/us/trump-zelensky-ukraine-putin
+
 **Patriots 53-man roster projection: Veteran S Kyle Dugger on the outside looking in?**\
 `Will the Patriots keep seven receivers? Which backup offensive linemen will stick around? Are veterans like Dugger and Jahlani Tavai safe?`\
 https://nytimes.com/athletic/6557531/2025/08/18/patriots-53-man-roster-projection-kyle-dugger/
