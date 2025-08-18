@@ -1,6 +1,18 @@
+**Hamas Accepts New Gaza Cease-Fire Proposal, Officials Say**\
+`It was unclear whether Prime Minister Benjamin Netanyahu of Israel was on board with the terms, which came as Qatar and Egypt were intensifying mediation efforts.`\
+https://nytimes.com/2025/08/18/world/middleeast/hamas-israel-gaza-ceasefire.html
+
+**A's promote Leo De Vries, key prospect in Mason Miller deal, to Double A**\
+`De Vries, 18, will be the youngest player in the Double-A Texas League. He is the No. 13 prospect in baseball.`\
+https://nytimes.com/athletic/6560896/2025/08/18/leo-de-vries-athletics-double-a-promotion/
+
+**Russia reaffirms opposition to deploying NATO troops in Ukraine as part of a security guarantees.**\
+`By Neil MacFarquhar`\
+https://nytimes.com/live/2025/08/18/us/trump-zelensky-ukraine-putin/russia-reaffirms-opposition-to-deploying-nato-troops-in-ukraine-as-part-of-a-security-guarantees
+
 **Immigration Enforcement Takes Key Role in Trump’s D.C. Crime Crackdown**\
 `Immigrants who live and work in the city say they want violent crime lowered but fear that ICE efforts could make it worse.`\
-https://nytimes.com/2025/08/18/us/immigration-enforcement-takes-key-role-in-trumps-dc-crime-crackdown.html
+https://nytimes.com/2025/08/18/us/trump-immigration-dc-crime.html
 
 **CFP director doesn't want to 'rush' decision on expansion as new Big Ten idea emerges**\
 `If the Big Ten and SEC can't agree on a CFP format, it stays at 12 teams for at least the 2026 season, and Rich Clark is fine with that.`\
@@ -25,16 +37,4 @@ https://nytimes.com/2025/08/18/arts/television/matthew-perry-jasveen-singha-guil
 **Sinaloa Cartel Founder Expected to Plead Guilty to Trafficking Charges**\
 `Ismael Zambada García, known as El Mayo, was accused of running a murderous operation that ran drugs like cocaine, heroin and methamphetamine across the U.S.-Mexico border.`\
 https://nytimes.com/2025/08/18/nyregion/el-mayo-guilty-plea.html
-
-**The Unseen Dangers of Floodwaters**\
-`Even if the water looks safe, it could be filled with sewage and other hazards.`\
-https://nytimes.com/2025/08/18/well/floodwater-sewage-chemicals-disease.html
-
-**Housing Agency to Offer Material Only in English, Official Says**\
-`The change at the Department of Housing and Urban Development could make it hard for speakers of other languages to access federal services.`\
-https://nytimes.com/2025/08/18/us/politics/housing-agency-english-material-trump.html
-
-**Jules Witcover, Political Reporter and Columnist, Dies at 98**\
-`A journalist of the old school, he covered presidential races and political affairs for several newspapers and in many books, as well as in a long-running column, “Politics Today.”`\
-https://nytimes.com/2025/08/18/business/media/jules-witcover-dead.html
 
