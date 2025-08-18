@@ -1,3 +1,7 @@
+**Republican Stacy Garrity Announces Bid to Challenge Josh Shapiro in Pennsylvania**\
+`Republicans hope Ms. Garrity, the state treasurer, will give them a shot against Gov. Josh Shapiro. But he will be tough to beat, and the Republican field could still be complicated by Doug Mastriano.`\
+https://nytimes.com/2025/08/18/us/politics/republican-stacy-garrity-announces-bid-to-challenge-josh-shapiro-in-pennsylvania.html
+
 **Everything we learned from NFL preseason games this weekend**\
 `Thirty of the NFL's 32 teams had preseason games this weekend; here are some key takeaways.`\
 https://nytimes.com/athletic/6557904/2025/08/18/nfl-preseason-takeaways-jaxson-dart-colts-qb-2025/
