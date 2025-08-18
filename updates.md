@@ -1,3 +1,7 @@
+**The Giants won a game at Oracle Park; time and date of parade TBD**\
+`Let us count the ways this win showed off a lot of what the Giants have been missing this season.`\
+https://nytimes.com/athletic/6559430/2025/08/18/giants-win-oracle-park-logan-webb-rays/
+
 **Watching Chelsea's Josh Acheampong closely to see if he can fill Maresca's problem position**\
 `The teenager stood in for the injured Levi Colwill and Tosin Adarabioyo and, while his attributes are different, he impressed against Palace`\
 https://nytimes.com/athletic/6558935/2025/08/18/chelsea-acheampong-maresca-colwill-tosin/
