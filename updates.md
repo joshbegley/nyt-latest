@@ -1,3 +1,15 @@
+**gws-european-castles-kids**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/european-castles-kids
+
+**Pirates promote top prospect Konnor Griffin to Double A**\
+`The No. 9 pick in last year's draft is on his third level this season and is currently batting .332 on the year with 59 stolen bases.`\
+https://nytimes.com/athletic/6560559/2025/08/18/pirates-konnor-griffin-promotion-top-prospect/
+
+**Raptors extend Bobby Webster as GM, not replacing president role for time being**\
+`"This team is his, now, to lead and I know we all look forward to what comes next," MLSE CEO Keith Pelley said in a statement.`\
+https://nytimes.com/athletic/6560349/2025/08/18/raptors-extend-general-manager-bobby-webster/
+
 **gws-best-bedroom-design**\
 `(No description)`\
 https://nytimes.com/newsgraphics/card-story/best-bedroom-design
