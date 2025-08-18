@@ -1,3 +1,15 @@
+**Neymar in tears as biggest career loss sees Santos manager sacked**\
+`"I'm crying out of anger, at everything," Neymar said after the game. "Today was terrible, that's the reality."`\
+https://nytimes.com/athletic/6559818/2025/08/18/neymar-santos-xavier-sacked/
+
+**The New York Times International Edition in Print for Tuesday, Aug. 19, 2025**\
+``\
+https://nytimes.com/issue/todaysinyt/2025/08/18/todays-new-york-times-international-edition
+
+**Here’s the latest.**\
+`By Jim Tankersley, David E. Sanger, Constant Méheut and Andy Newman`\
+https://nytimes.com/live/2025/08/18/us/trump-zelensky-ukraine-putin/heres-the-latest
+
 **Live Updates: Zelensky and Allies Head to White House to Show Unity on Ukraine**\
 `President Volodymyr Zelensky and European leaders will aim to defend Ukraine’s position in peace talks after President Trump aligned with Russia. Hours before the meeting, Russia hit Ukraine with a deadly strike.`\
 https://nytimes.com/live/2025/08/18/us/trump-zelensky-ukraine-putin
@@ -25,16 +37,4 @@ https://nytimes.com/2025/08/18/opinion/trump-nobel-peace-prize.html
 **Trump Wants to Fight Democrats on Crime. They’re Treading Cautiously.**\
 `Democrats see the federal takeover of Washington as a way for President Trump to stoke fear for political gain. But they are mindful that issues of public safety continue to resonate with their own supporters.`\
 https://nytimes.com/2025/08/18/us/politics/trump-wants-to-fight-democrats-on-crime-theyre-treading-cautiously.html
-
-**They Wanted More Space in Brooklyn. Now They Have Room for Chickens.**\
-`A couple seeking a more sustainable home gut-renovated a Prospect Heights townhouse and were able to stop paying for electricity.`\
-https://nytimes.com/2025/08/18/realestate/prospect-heights-brooklyn-townhouse-renovation.html
-
-**At the U.S. Open, Stars Will Team Up for Mixed Doubles Early**\
-`Many of the world’s top tennis players, who ordinarily focus on the singles matches, will compete at the event, to the disappointment of some career mixed-doubles players.`\
-https://nytimes.com/2025/08/18/nyregion/at-the-us-open-stars-will-team-up-for-mixed-doubles-early.html
-
-**Marco Rubio Once Filed a Brief Embracing Birthright Citizenship**\
-`Rubio, a son of immigrants and now secretary of state, was responding to a 2016 lawsuit questioning his eligibility for the presidency.`\
-https://nytimes.com/2025/08/18/us/politics/marco-rubio-birthright-citizenship.html
 
