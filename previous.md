@@ -1,3 +1,7 @@
+**Trump Says He Wants to Get Rid of Mail-In Ballots**\
+`President Trump has claimed mail voting was a source of fraud during the 2020 presidential election, although his former attorney general said his assertions of widespread fraud couldn’t be proven.`\
+https://nytimes.com/2025/08/18/us/politics/trump-mail-ballots-voting-machines-election.html
+
 **Goodbye, MSNBC. Hello, MS NOW.**\
 `The cable news network is changing its name this year because a corporate spinoff is separating MSNBC from its cousin, NBC News.`\
 https://nytimes.com/2025/08/18/business/media/goodbye-msnbc-hello-ms-now.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6555553/2025/08/18/college-football-quiz-2024-playo
 **What we've learned about the Seahawks' rookie class in the preseason**\
 `Evaluating how Grey Zabel, Nick Emmanwori, Elijah Arroyo and the rest of the rookies have performed in the preseason.`\
 https://nytimes.com/athletic/6558870/2025/08/18/seahawks-rookies-preseason-grey-zabel/
-
-**Red Wings questions for 2025: Who's top-line LW? Can young players level up?**\
-`With few major acquisitions this summer, the Red Wings will feature a lot of familiar faces — but will they get familiar results?`\
-https://nytimes.com/athletic/6544506/2025/08/18/red-wings-questions-2025-training-camp/
 

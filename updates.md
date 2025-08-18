@@ -1,3 +1,7 @@
+**Trump Says He Wants to Get Rid of Mail-In Ballots**\
+`President Trump has claimed mail voting was a source of fraud during the 2020 presidential election, although his former attorney general said his assertions of widespread fraud couldn’t be proven.`\
+https://nytimes.com/2025/08/18/us/politics/trump-mail-ballots-voting-machines-election.html
+
 **Goodbye, MSNBC. Hello, MS NOW.**\
 `The cable news network is changing its name this year because a corporate spinoff is separating MSNBC from its cousin, NBC News.`\
 https://nytimes.com/2025/08/18/business/media/goodbye-msnbc-hello-ms-now.html
