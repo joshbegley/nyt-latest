@@ -1,3 +1,7 @@
+**Joe Flacco named Browns' starting QB for Week 1**\
+`The 40-year-old Flacco is the only QB on Cleveland's roster who hasn't been limited by injury during training camp. `\
+https://nytimes.com/athletic/6560641/2025/08/18/browns-joe-flacco-starting-quarterback/
+
 **Republican Bid to Help Trump Move Past Epstein Falls Flat**\
 `Republicans in Congress managed to recess for the summer without voting on the issue, but it has continued to dog them and awaits them when they return.`\
 https://nytimes.com/2025/08/18/us/politics/republicans-epstein-files.html

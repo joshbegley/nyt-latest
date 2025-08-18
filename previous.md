@@ -26,7 +26,7 @@ https://nytimes.com/2025/08/18/nyregion/new-york-prisons-solitary-confinement-il
 `(No description)`\
 https://nytimes.com/newsgraphics/card-story/things-to-do-jackson-hole
 
-**Joe Flacco named Browns' starting QB heading into Week 1**\
+**Joe Flacco named Browns' starting QB for Week 1**\
 `The 40-year-old Flacco is the only QB on Cleveland's roster who hasn't been limited by injury during training camp. `\
 https://nytimes.com/athletic/6560641/2025/08/18/browns-joe-flacco-starting-quarterback/
 
