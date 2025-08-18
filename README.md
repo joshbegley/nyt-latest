@@ -26,7 +26,7 @@ https://nytimes.com/newsgraphics/card-story/things-to-do-jackson-hole
 `The 40-year-old Flacco is the only QB on Cleveland's roster who hasn't been limited by injury during training camp. `\
 https://nytimes.com/athletic/6560641/2025/08/18/browns-joe-flacco-starting-quarterback/
 
-**Did you Recently Buy a Used E.V.? We Want to Hear from You.**\
+**Did You Recently Buy a Used E.V.? We Want to Hear From You.**\
 `The prices of used electric cars have fallen sharply in recent months, making them a more attractive option.`\
 https://nytimes.com/2025/08/18/business/used-electric-vehicles-callout.html
 
