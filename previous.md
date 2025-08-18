@@ -1,3 +1,7 @@
+**Two Gunmen in Attack at a Brooklyn Bar Were Among Those Killed**\
+`The Sunday morning shootout at Taste of the City Lounge in Crown Heights happened after a gang-related dispute, the police said.`\
+https://nytimes.com/2025/08/18/nyregion/brooklyn-lounge-shooting.html
+
 **The Lambs Sing a Melancholy Song**\
 `The nation’s longest-running theatrical club toasts its old Manhattan home before moving to a new place.`\
 https://nytimes.com/2025/08/18/style/the-lambs-sing-a-melancholy-song.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6560487/2025/08/18/nfl-preseason-week-2-risers-fall
 **Newsmax Will Pay $67 Million to Settle Dominion Defamation Lawsuit**\
 `Dominion Voting Systems sued the right-wing cable channel for broadcasting false claims that the voting machine company had rigged votes in the 2020 presidential election.`\
 https://nytimes.com/2025/08/18/business/media/newsmax-dominion-defamation-lawsuit-settlement.html
-
-**What we learned from the sports card industry's biggest month of 2025 so far**\
-`The athletes across all sports that attracted the most money and interest on eBay`\
-https://nytimes.com/athletic/6557910/2025/08/18/sports-card-sales-ebay/
 
