@@ -1,3 +1,11 @@
+**The Texas Measles Outbreak Is Over, Officials Say**\
+`The larger outbreak, which spread to New Mexico and Oklahoma, is still ongoing.`\
+https://nytimes.com/2025/08/18/well/texas-measles-outbreak-over.html
+
+**Yosemite Biologist Who Hung Trans Pride Flag From El Capitan Is Fired**\
+`The National Park Service terminated Shannon Joslin over the May 20 demonstration, which it said took place in a prohibited area and lacked the required permits.`\
+https://nytimes.com/2025/08/18/us/yosemite-biologist-fired-transgender-pride-flag-el-capitan.html
+
 **Cardinals place Brendan Donovan on injured list as roster options continue to dwindle**\
 `The All-Star infielder has missed games recently with left groin tightness and is also dealing with a toe injury.`\
 https://nytimes.com/athletic/6557287/2025/08/18/brendan-donovan-injury-cardinals-roster/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/08/18/us/politics/epstein-files-release-trump.html
 **USWNT's 1985 team honored 40 years later with limited memorabilia drop**\
 `Forty years after their first tournament, the USWNT's 1985 team is getting to capitalize financially on its existence `\
 https://nytimes.com/athletic/6561027/2025/08/18/uswnt-collection-jersey-1985/
-
-**Penguins draw interest from a new potential buyer**\
-`A group including Mario Lemieux now has competition in buying some or all of the Penguins from FSG.`\
-https://nytimes.com/athletic/6561060/2025/08/18/pittsburgh-penguins-sale-potential-buyer-hoffmann/
-
-**Tuesday Briefing: Crucial Talks on Ukraine**\
-`Also, China’s robot games.`\
-https://nytimes.com/2025/08/18/briefing/ukraine-white-house-trump-zelensky-gaza.html
 
