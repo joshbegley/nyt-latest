@@ -1,3 +1,11 @@
+**The Fight With Democrats That Trump Wants Now**\
+`Crime is tricky territory for Democrats and President Trump knows it.`\
+https://nytimes.com/2025/08/18/us/politics/trump-washington-crime-democrats.html
+
+**Mississippi and Louisiana Will Send National Guard Troops to D.C.**\
+`Ohio, West Virginia and South Carolina have also deployed the Guard to Washington to support President Trump’s crackdown on the city.`\
+https://nytimes.com/2025/08/18/us/politics/national-guard-dc-trump-mississippi-louisiana.html
+
 **Trump Just Reminded Me of Why I’m Still a Neocon**\
 `By putting the interests of what Trump calls “peace” ahead of the interests of freedom, we are all-but guaranteeing that Ukraine will lose both.`\
 https://nytimes.com/2025/08/18/opinion/trump-israel-ukraine-zelensky.html
