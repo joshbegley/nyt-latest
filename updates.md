@@ -1,3 +1,7 @@
+**Did You Recently Buy a Used E.V.? We Want to Hear From You.**\
+`The prices of used electric cars have fallen sharply in recent months, making them a more attractive option.`\
+https://nytimes.com/2025/08/18/business/used-electric-vehicles-callout.html
+
 **Censoring the Smithsonian, and History**\
 `Readers condemn the Trump administration’s plans to remove some Smithsonian exhibits. Also: Secrets of aging well.`\
 https://nytimes.com/2025/08/18/opinion/trump-smithsonian-american-history.html
