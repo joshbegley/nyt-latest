@@ -1,3 +1,7 @@
+**gws-best-bedroom-design**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/best-bedroom-design
+
 **Two Gunmen in Attack at a Brooklyn Bar Were Among Those Killed**\
 `The Sunday morning shootout at Taste of the City Lounge in Crown Heights happened after a gang-related dispute, the police said.`\
 https://nytimes.com/2025/08/18/nyregion/brooklyn-lounge-shooting.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/18/style/taylor-townsend-athletic-clothing-tennis-us
 **Scoop City: Risers and fallers after preseason Week 2**\
 `Key takeaways from preseason Week 2, plus an impressive turnaround from Cincinnati's first-round pick amid Trey Hendrickson trade rumors.`\
 https://nytimes.com/athletic/6560487/2025/08/18/nfl-preseason-week-2-risers-fallers-scoop-city-bengals/
-
-**Newsmax Will Pay $67 Million to Settle Dominion Defamation Lawsuit**\
-`Dominion Voting Systems sued the right-wing cable channel for broadcasting false claims that the voting machine company had rigged votes in the 2020 presidential election.`\
-https://nytimes.com/2025/08/18/business/media/newsmax-dominion-defamation-lawsuit-settlement.html
 
