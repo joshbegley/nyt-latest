@@ -1,3 +1,7 @@
+**Omaha basketball player Deng Mayar dies in drowning incident at age 22**\
+`Mayar drowned in a reservoir in Utah on Saturday, and rescue crews recovered his body several hours later.`\
+https://nytimes.com/athletic/6560065/2025/08/18/deng-mayar-death-drowning-omaha/
+
 **Trump Says He Wants to Get Rid of Mail-In Ballots**\
 `President Trump has claimed mail voting was a source of fraud during the 2020 presidential election, although his former attorney general said his assertions of widespread fraud couldn’t be proven.`\
 https://nytimes.com/2025/08/18/us/politics/trump-mail-ballots-voting-machines-election.html
