@@ -1,3 +1,11 @@
+**For Some, Dressing in Outdated Clothing Is the Point**\
+`As Bonhams prepares to auction costumes and props from “Downton Abbey,” a new generation is embracing items that look historical, even if they’re new.`\
+https://nytimes.com/2025/08/18/style/downton-abbey-costume-auction.html
+
+**Israelis Rally to Demand Release of Hostages in Gaza**\
+`Thousands of Israelis protested on Sunday to pressure the government into a truce with Hamas for the release of hostages held in Gaza. The group that organized the protests, which represents some of the hostages’ families, estimated the crowd to be over 400,000.`\
+https://nytimes.com/video/world/middleeast/100000010346327/israel-rally-hostages-gaza-tel-aviv.html
+
 **The Bull and Bear Cases for Another Market Rally**\
 `Stocks are still flying high. But doubts are creeping in about the S&P 500’s run, as some analysts have flashbacks to valuations during the dotcom boom.`\
 https://nytimes.com/2025/08/18/business/dealbook/sp-500-market-valuations.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6544506/2025/08/18/red-wings-questions-2025-trainin
 **Way-too-early Knicks depth chart, rotations and starting lineup predictions for 2025**\
 `Could their be a change to the starting lineup? How many players will new coach Mike Brown use in his rotation?`\
 https://nytimes.com/athletic/6554889/2025/08/18/knicks-roster-2025-rotations-lineup-predictions/
-
-**Ex-Yankee Oswald Peraza opens up about struggles, reaffirms he can succeed with Angels**\
-`Peraza hit just .190 with a .542 OPS over parts of four seasons in New York, spanning 145 games.`\
-https://nytimes.com/athletic/6557417/2025/08/18/oswald-peraza-struggles-angels/
-
-**Greenberg: Do the Bears have an answer at left tackle? Why is it still a question?**\
-`Jones mostly held his own Sunday against the Bills' backups, but coach Ben Johnson still isn't comfortable with key position on the O-line.`\
-https://nytimes.com/athletic/6559653/2025/08/18/chicago-bears-roster-left-tackle/
 

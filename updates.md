@@ -1,3 +1,11 @@
+**For Some, Dressing in Outdated Clothing Is the Point**\
+`As Bonhams prepares to auction costumes and props from “Downton Abbey,” a new generation is embracing items that look historical, even if they’re new.`\
+https://nytimes.com/2025/08/18/style/downton-abbey-costume-auction.html
+
+**Israelis Rally to Demand Release of Hostages in Gaza**\
+`Thousands of Israelis protested on Sunday to pressure the government into a truce with Hamas for the release of hostages held in Gaza. The group that organized the protests, which represents some of the hostages’ families, estimated the crowd to be over 400,000.`\
+https://nytimes.com/video/world/middleeast/100000010346327/israel-rally-hostages-gaza-tel-aviv.html
+
 **The Bull and Bear Cases for Another Market Rally**\
 `Stocks are still flying high. But doubts are creeping in about the S&P 500’s run, as some analysts have flashbacks to valuations during the dotcom boom.`\
 https://nytimes.com/2025/08/18/business/dealbook/sp-500-market-valuations.html
