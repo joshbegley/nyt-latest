@@ -1,3 +1,5 @@
+
+
 **Seven European Leaders Rush to Join Zelensky at the White House**\
 `The leaders of Germany, France, Britain and Italy are among those who flew to Washington, D.C. on short notice to attend meetings with President Trump and President Volodymyr Zelensky of Ukraine.`\
 https://nytimes.com/2025/08/18/us/european-allies-zelensky-white-house.html
