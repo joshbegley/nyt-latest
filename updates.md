@@ -1,3 +1,19 @@
+**Walk-off loss to Rockies highlights Teoscar Hernández's defensive struggles for Dodgers**\
+`The Dodgers appeared to be one out away from pushing the game into extra innings. Until they weren’t.`\
+https://nytimes.com/athletic/6561720/2025/08/19/dodgers-walk-off-loss-teoscar-hernandez-rockies/
+
+**Beaches Close as Hurricane Erin Brings Deadly Rip Currents to Mid-Atlantic**\
+`Several beaches in New Jersey and Delaware were closed on Monday as the powerful storm churned in the Atlantic. Rip currents have been blamed for at least one death.`\
+https://nytimes.com/2025/08/19/nyregion/hurricane-erin-beach-closures-new-jersey.html
+
+**The New York Times in Print for Tuesday, Aug. 19, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/08/19/todays-new-york-times
+
+**The Man Who Saw the Future of Africa**\
+`As the world’s powers turn away from the continent, Kwame Nkrumah’s vision for Africa may hold the key to realizing its potential today.`\
+https://nytimes.com/2025/08/19/opinion/africa-future-kwame-nkrumah.html
+
 **Britain Drops Request That Apple Create a Back Door**\
 `The Trump administration says that law enforcement organizations in Britain would back off asking the company for a tool to access customers’ data.`\
 https://nytimes.com/2025/08/19/technology/britain-apple-back-door.html
