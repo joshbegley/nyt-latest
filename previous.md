@@ -1,3 +1,11 @@
+**Israel Says It Killed a Hamas Militant Involved in Yarden Bibas Kidnapping**\
+`Mr. Bibas, his wife and their two small children were abducted and taken to Gaza. Only he survived.`\
+https://nytimes.com/2025/08/19/world/middleeast/hamas-israel-bibas-kidnapping.html
+
+**Abrego Garcia’s Lawyers Accuse Justice Dept. of Vindictive Prosecution**\
+`It was the second time that Mr. Abrego Garcia’s lawyers have sought to hold the Trump administration accountable over its handling of his expulsion to El Salvador and its aftermath.`\
+https://nytimes.com/2025/08/19/us/politics/kilmar-abrego-garcia-trump-prosecution.html
+
 **Cincinnati dismisses guard Jizzle James from team amid 'personal issues'**\
 `James was Cincinnati's top scorer last season and a productive playmaker, averaging 12.7 points and team-best 3.5 assists per game.`\
 https://nytimes.com/athletic/6563424/2025/08/19/cincinnati-jizzle-james-edgerrin-ncaa-basketball/
@@ -19,7 +27,7 @@ https://nytimes.com/athletic/6563507/2025/08/19/aaron-rodgers-sits-out-preseason
 https://nytimes.com/athletic/6562762/2025/08/19/canada-jesse-marsch-world-cup-europe-transfers/
 
 **Whitecaps add defender Sebastian Schonlau from Bundesliga's Hamburg**\
-`Whitecaps make another move following Thomas Muller's arrival`\
+`The Whitecaps made another move following Thomas Muller's arrival.`\
 https://nytimes.com/athletic/6563578/2025/08/19/vancouver-whitecaps-schonlau-mls-hamburg/
 
 **Read Abrego Garcia’s Motion**\
@@ -29,12 +37,4 @@ https://nytimes.com/interactive/2025/08/19/us/politics/kag-selective-vindictive-
 **Putin Won’t Even Say Zelensky’s Name. So Will He Sit Down With Him?**\
 `The Kremlin is keeping its options open, but analysts said the Russian leader would probably only meet with his Ukrainian counterpart to accept a capitulation.`\
 https://nytimes.com/2025/08/19/world/europe/putin-zelensky-meeting.html
-
-**Wednesday Briefing: An Uncertain Path to Peace in Ukraine**\
-`Also, Paris prepares for extreme heat.`\
-https://nytimes.com/2025/08/19/briefing/ukraine-russia-peace-gaza-indonesia-rain-forest.html
-
-**John Metchie III's rapid Eagles intro begins with A.J. Brown, DeVonta Smith on sideline**\
-`Plus, notes from practice, including an update on Tanner McKee's injury.`\
-https://nytimes.com/athletic/6563356/2025/08/19/john-metchies-eagles-a-j-brown-devonta-smith/
 

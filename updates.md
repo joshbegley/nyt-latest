@@ -1,3 +1,15 @@
+**Israel Says It Killed a Hamas Militant Involved in Yarden Bibas Kidnapping**\
+`Mr. Bibas, his wife and their two small children were abducted and taken to Gaza. Only he survived.`\
+https://nytimes.com/2025/08/19/world/middleeast/hamas-israel-bibas-kidnapping.html
+
+**Abrego Garcia’s Lawyers Accuse Justice Dept. of Vindictive Prosecution**\
+`It was the second time that Mr. Abrego Garcia’s lawyers have sought to hold the Trump administration accountable over its handling of his expulsion to El Salvador and its aftermath.`\
+https://nytimes.com/2025/08/19/us/politics/kilmar-abrego-garcia-trump-prosecution.html
+
+**Whitecaps add defender Sebastian Schonlau from Bundesliga's Hamburg**\
+`The Whitecaps made another move following Thomas Muller's arrival.`\
+https://nytimes.com/athletic/6563578/2025/08/19/vancouver-whitecaps-schonlau-mls-hamburg/
+
 **Cincinnati dismisses guard Jizzle James from team amid 'personal issues'**\
 `James was Cincinnati's top scorer last season and a productive playmaker, averaging 12.7 points and team-best 3.5 assists per game.`\
 https://nytimes.com/athletic/6563424/2025/08/19/cincinnati-jizzle-james-edgerrin-ncaa-basketball/
