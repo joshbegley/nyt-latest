@@ -1,3 +1,11 @@
+**An Evening With the Central Park Coyotes**\
+`Romeo and Juliet are shy and graceful, leaping over fences, hunting for rodents and catching at least one Canada goose.`\
+https://nytimes.com/2025/08/19/nyregion/central-park-coyotes.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/08/19/crosswords/spelling-bee-forum.html
+
 **The Transfer DealSheet: The latest on your club and their plans this summer window**\
 `This week, David Ornstein gives us his One To Watch, we have news on Newcastle's interest in a striker and Man Utd's midfield options`\
 https://nytimes.com/athletic/6559975/2025/08/19/transfer-latest-eberechi-eze-marc-guehi-arsenal-manchester-united-liverpool-tottenham-hotspur/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/08/19/opinion/africa-future-kwame-nkrumah.html
 **Britain Drops Request That Apple Create a Back Door**\
 `The Trump administration says that law enforcement organizations in Britain would back off asking the company for a tool to access customers’ data.`\
 https://nytimes.com/2025/08/19/technology/britain-apple-back-door.html
-
-**Tuesday Briefing: Crucial Talks on Ukraine**\
-`Also, China’s robot games.`\
-https://nytimes.com/2025/08/19/briefing/tuesday-briefing-crucial-talks-on-ukraine.html
-
-**Oliver Glasner, a 10-match unbeaten run, and why Crystal Palace must back their manager**\
-`The Austrian has secured Palace's first major silverware with his team holding their own against the elite, but they need reinforcements`\
-https://nytimes.com/athletic/6558746/2025/08/19/crystal-palace-glasner-transfer-market/
 
