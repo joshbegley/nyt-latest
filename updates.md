@@ -1,3 +1,11 @@
+**Until Saturday: Judging Auburn's 7 new title claims**\
+`Until Saturday is The Athletic's free CFB newsletter.`\
+https://nytimes.com/athletic/6563070/2025/08/19/auburn-national-championships-claims-until-saturday/
+
+**National Guard Troops in Washington Stick to Tourist Areas**\
+`The number of troops in the city is expected to grow. But Army officials appear to be trying to keep them on the sidelines of President Trump’s mission.`\
+https://nytimes.com/2025/08/19/us/politics/tourists-national-guard-washington.html
+
 **Who’s in Charge of Trump’s Cultural Realignment? Here Are Key Players.**\
 `These five people are among those leading the president’s efforts to put his stamp on national cultural institutions, buildings and policies.`\
 https://nytimes.com/2025/08/19/arts/design/trump-cultural-leaders-smithsonian-ballroom-garden-kennedy-center.html
