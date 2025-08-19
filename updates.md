@@ -1,3 +1,11 @@
+**Gazans Optimistic After Hamas Accepts New Cease-Fire Deal**\
+`Palestinians in Khan Younis, Gaza, expressed hope that Israel would accept a cease-fire deal put forward by Egypt and Qatar, which would include the release of Israeli hostages and Palestinian prisoners.`\
+https://nytimes.com/video/world/middleeast/100000010349345/gaza-cease-fire-israel.html
+
+**No Tariff Exemption for European Wine and Spirits, at Least for Now**\
+`As the text of a trade agreement comes together, European Union negotiators haven’t persuaded the Americans to cut alcohol tariffs to zero.`\
+https://nytimes.com/2025/08/19/world/europe/tariff-exemption-european-wine-spirits.html
+
 **Trump Says He’s Ended 6 (or 7) Wars. Here’s Some Context.**\
 `President Trump has cast himself as a global peacemaker. His interventions have calmed some conflicts, while in others his role is less clear.`\
 https://nytimes.com/2025/08/19/world/europe/trump-six-wars-fact-check.html
