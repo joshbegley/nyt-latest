@@ -1,3 +1,7 @@
+**Austin Cindric on self-growth, digging deep and positivity: 12 Questions**\
+`Cup Series driver Austin Cindric talks about the time he realized he was all-in, the race that got away and more in the latest 12 Questions.`\
+https://nytimes.com/athletic/6560226/2025/08/19/austin-cindric-nascar-12-questions/
+
 **Tell us about your favorite CFB tailgate foods — and why you love them**\
 `We at The Athletic want to celebrate what makes us love college football. Let's hear after your best tailgate food experiences.`\
 https://nytimes.com/athletic/6560685/2025/08/19/college-football-best-tailgate-foods-receipes/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6561386/2025/08/19/youtube-deestroying-nfl-chiefs-c
 **He Tried to Endorse From the Pulpit. He Wound Up Without a Church.**\
 `The I.R.S. says churches can now support candidates during services, but many denominations still forbid it. A Wisconsin pastor learned the hard way.`\
 https://nytimes.com/2025/08/19/us/politics/church-endorsements-irs-kenosha.html
-
-**Fan interference call overturns Bogaerts' HR, Shildt ejected in tough Padres loss**\
-`The Padres’ losing streak reached four games in part as a result of the play reversal. San Diego dropped to two games out of first place.`\
-https://nytimes.com/athletic/6562241/2025/08/19/padres-giants-xander-bogaerts-home-run-fan-interference/
 

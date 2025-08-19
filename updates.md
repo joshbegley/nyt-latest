@@ -1,3 +1,7 @@
+**Austin Cindric on self-growth, digging deep and positivity: 12 Questions**\
+`Cup Series driver Austin Cindric talks about the time he realized he was all-in, the race that got away and more in the latest 12 Questions.`\
+https://nytimes.com/athletic/6560226/2025/08/19/austin-cindric-nascar-12-questions/
+
 **Tell us about your favorite CFB tailgate foods — and why you love them**\
 `We at The Athletic want to celebrate what makes us love college football. Let's hear after your best tailgate food experiences.`\
 https://nytimes.com/athletic/6560685/2025/08/19/college-football-best-tailgate-foods-receipes/
