@@ -1,3 +1,19 @@
+**PGA Tour's Miami Championship heading to Trump National Doral in 2026**\
+`Miami has received signature event status, making it one of nine higher-stakes tournaments where only top players are qualified.`\
+https://nytimes.com/athletic/6562637/2025/08/19/miami-championship-trump-national-doral/
+
+**Submit your questions for Chris Kirschner's Yankees mailbag**\
+`The Yankees are entering a critical stretch of their schedule. What's on your mind?`\
+https://nytimes.com/athletic/6562716/2025/08/19/submit-your-questions-for-chris-kirschners-yankees-mailbag/
+
+**Trump Wants to End Mail-In Voting, Again**\
+`President Trump vowed on Monday to lead a movement to eliminate the use of mail-in ballots, continuing his legally dubious crusade against the nation’s voting rules, which he has long attacked and falsely blamed for his 2020 election loss. Nick Corasaniti, a Times political reporter, explains.`\
+https://nytimes.com/video/us/politics/100000010347667/trump-wants-to-end-mail-in-voting-again.html
+
+**Thick Bands, ‘The Shoulder Pads of Jewelry,’ Are Back in Style**\
+`After the pop star Dua Lipa endorsed the look this year, stylish yet practical chunky engagement rings have taken off in popularity.`\
+https://nytimes.com/2025/08/19/fashion/weddings/thick-chunky-engagement-rings.html
+
 **From Unstable Ground, an Old Church Rolls to a New Home**\
 `Mining in Kiruna, Sweden, has jeopardized the ground below a beloved church. Thanks to a feat of engineering, it is on the move.`\
 https://nytimes.com/2025/08/19/world/europe/sweden-church-kiruna-move.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6562471/2025/08/19/pacers-rick-carlisle-contract-ex
 **Auburn formally claims seven additional football national titles, bringing school total to nine**\
 `Claiming national titles is a long-held tradition in major college football, where the NCAA has never held any authority to run a playoff.`\
 https://nytimes.com/athletic/6562375/2025/08/19/auburn-football-national-championships-claimed/
-
-**Jack Roslovic, centre upgrades and Vitali Kravtsov's chance: Canucks notebook**\
-`The Canucks seem to have settled on their strategy for bolstering the depth down the middle.`\
-https://nytimes.com/athletic/6560879/2025/08/19/vancouver-canucks-centre-roslovic-kravtsov/
-
-**How One American Brand Stays Ahead of Trump Tariff Whac-a-Mole**\
-`Keen Footwear has limited its exposure to supply chain trouble and opened a plant in Kentucky. But the trade upheaval has strained its adaptive strategy.`\
-https://nytimes.com/2025/08/19/business/trump-tariffs-keen-footwear.html
-
-**Celtics sale finalized as Bill Chisholm takes ownership of 18x NBA champions**\
-`Chisholm bought the franchise at a $6.1 billion valuation — the highest price paid for a team in North American sports history.`\
-https://nytimes.com/athletic/6562431/2025/08/19/celtics-sale-finalized-bill-chisholm/
-
-**How a soccer facility in Wimbledon helped Trinity Rodman return from back injury**\
-`Goals Wimbledon's owner described the USWNT forward as humble while using his five-a-side facility to regain fitness earlier this summer`\
-https://nytimes.com/athletic/6546866/2025/08/19/trinity-rodman-wimbledon-injury-return/
 
