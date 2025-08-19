@@ -1,3 +1,7 @@
+**Trump Says He’s Ended 6 (or 7) Wars. Here’s Some Context.**\
+`President Trump has cast himself as a global peacemaker. His interventions have calmed some conflicts, while in others his role is less clear.`\
+https://nytimes.com/2025/08/19/world/europe/trump-six-wars-fact-check.html
+
 **The Bounce: NBA’s 40 best lead guards, ranked**\
 `Catching you up on the leaguewide news you need to know.`\
 https://nytimes.com/athletic/6562495/2025/08/19/nba-lead-guard-rankings-sga-luka/

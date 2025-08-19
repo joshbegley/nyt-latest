@@ -1,3 +1,7 @@
+**Trump Says He’s Ended 6 (or 7) Wars. Here’s Some Context.**\
+`President Trump has cast himself as a global peacemaker. His interventions have calmed some conflicts, while in others his role is less clear.`\
+https://nytimes.com/2025/08/19/world/europe/trump-six-wars-fact-check.html
+
 **The Bounce: NBA’s 40 best lead guards, ranked**\
 `Catching you up on the leaguewide news you need to know.`\
 https://nytimes.com/athletic/6562495/2025/08/19/nba-lead-guard-rankings-sga-luka/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/19/us/politics/trump-heaven.html
 **Trossard agrees new Arsenal contract**\
 `Trossard has reached an agreement on a contract adjustment, increasing his salary but not extending the deal beyond its previous expiration.`\
 https://nytimes.com/athletic/6445104/2025/08/19/leandro-trossard-arsenal-contract-new/
-
-**Mike Castle, Bipartisan Delaware Congressman, Dies at 86**\
-`A fiscal conservative who supported gun control and other liberal causes, he was the last Republican elected to serve his state as governor and to represent it in the House.`\
-https://nytimes.com/2025/08/19/us/politics/mike-castle-dead.html
 
