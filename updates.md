@@ -1,3 +1,19 @@
+**Dine in a Palace of Mirrors at Musaafer**\
+`El Rey Tacos brings Mexico City style to Times Square, the Blue Vault adds a speakeasy option to the theater district and more news.`\
+https://nytimes.com/2025/08/19/dining/nyc-restaurant-news.html
+
+**Fantasy Scoop: Who is Jacory 'Bill' Croskey-Merritt?**\
+`Meet the Commanders' running back who caused a social media frenzy. Plus: Fantasy implications of Joe Flacco and Matthew Stafford situations`\
+https://nytimes.com/athletic/6563003/2025/08/19/washington-jacory-bill-croskey-merritt-fantasy-football-nfl/
+
+**Defying fantasy football conventions, from Saquon Barkley to Justin Jefferson**\
+`Michael Salfino looks at some commonly held beliefs in fantasy football that could lead to managers overpaying on draft day.`\
+https://nytimes.com/athletic/6562708/2025/08/19/fantasy-football-2025-saquon-barkley-justin-jefferson/
+
+**Tennessee Becomes Latest Republican-Led State to Send National Guard to D.C.**\
+`The chair of the Democratic Governors Association, however, warned Republican governors against supporting “a dangerous, politically motivated agenda.”`\
+https://nytimes.com/2025/08/19/us/politics/tennessee-national-guard-dc-trump.html
+
 **Aaron Judge unlikely to throw normally again in 2025, says Aaron Boone**\
 `Judge is on a throwing progression but Boone noted Tuesday that the slugger isn't likely to be able to throw without limitations in 2025.`\
 https://nytimes.com/athletic/6562809/2025/08/19/aaron-judge-yankees-arm-health-aaron-boone/
