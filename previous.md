@@ -1,3 +1,11 @@
+**Galatasaray interested in Man City's Akanji, continuing Ederson talks**\
+`The Turkish club were also interested in Ilkay Gundogan earlier in the summer, although the midfielder wants to remain at City.`\
+https://nytimes.com/athletic/6561838/2025/08/19/manchester-city-galatasaray-manuel-akanji-transfer/
+
+**Wolves sign Verona's Tchatchoua on five-year deal**\
+`The Belgium-born Cameroon international has signed a five-year deal at Molineux with a club option for a sixth season.`\
+https://nytimes.com/athletic/6561841/2025/08/19/wolves-transfers-jackson-chatchoua/
+
 **Champions League qualifying fixtures, kick off times and analysis**\
 `Qualifying for the Champions League ramps up as Rangers, Celtic, Fenerbahce and more try to book one of the final seven places`\
 https://nytimes.com/athletic/6560257/2025/08/19/champions-league-play-off-round-celtics-7000-mile-trip-robbie-keane-the-manager-and-mourinho-under-pressure/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6561673/2025/08/19/leeds-ampadu-bogle-rodon-farke-e
 **Walk-off loss to Rockies highlights Teoscar Hernández's defensive struggles for Dodgers**\
 `The Dodgers appeared to be one out away from pushing the game into extra innings. Until they weren’t.`\
 https://nytimes.com/athletic/6561720/2025/08/19/dodgers-walk-off-loss-teoscar-hernandez-rockies/
-
-**Beaches Close as Hurricane Erin Brings Deadly Rip Currents to Mid-Atlantic**\
-`Several beaches in New Jersey and Delaware were closed as the powerful storm churned in the Atlantic. Rip currents have been blamed for at least one death.`\
-https://nytimes.com/2025/08/19/nyregion/hurricane-erin-beach-closures-new-jersey.html
-
-**The New York Times in Print for Tuesday, Aug. 19, 2025**\
-``\
-https://nytimes.com/issue/todayspaper/2025/08/19/todays-new-york-times
 

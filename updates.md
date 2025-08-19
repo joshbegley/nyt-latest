@@ -1,3 +1,11 @@
+**Galatasaray interested in Man City's Akanji, continuing Ederson talks**\
+`The Turkish club were also interested in Ilkay Gundogan earlier in the summer, although the midfielder wants to remain at City.`\
+https://nytimes.com/athletic/6561838/2025/08/19/manchester-city-galatasaray-manuel-akanji-transfer/
+
+**Wolves sign Verona's Tchatchoua on five-year deal**\
+`The Belgium-born Cameroon international has signed a five-year deal at Molineux with a club option for a sixth season.`\
+https://nytimes.com/athletic/6561841/2025/08/19/wolves-transfers-jackson-chatchoua/
+
 **Champions League qualifying fixtures, kick off times and analysis**\
 `Qualifying for the Champions League ramps up as Rangers, Celtic, Fenerbahce and more try to book one of the final seven places`\
 https://nytimes.com/athletic/6560257/2025/08/19/champions-league-play-off-round-celtics-7000-mile-trip-robbie-keane-the-manager-and-mourinho-under-pressure/
