@@ -1,3 +1,23 @@
+**Zelensky’s Return to the White House**\
+`Readers weigh in on the Ukrainian president’s meeting with President Trump and European leaders. Also: When teens vote.`\
+https://nytimes.com/2025/08/19/opinion/trump-zelensky-ukraine-white-house.html
+
+**California Republicans File Suit Seeking to Block Newsom Redistricting Plan**\
+`Republican state lawmakers argue that Democratic lawmakers violated 30-day disclosure rules in the California Constitution.`\
+https://nytimes.com/2025/08/19/us/california-republicans-lawsuit-redistricting.html
+
+**Olympic hopefuls, NHL stars fill USA Hockey 44-player orientation camp roster**\
+`The U.S. is expected to carry 14 forwards, eight defensemen and three goalies at the Olympics in February.`\
+https://nytimes.com/athletic/6562802/2025/08/19/team-usa-olympics-orientation-camp-roster/
+
+**The Chatbot Updated. Users Lost a Friend.**\
+`When OpenAI released a new version of ChatGPT, people were quick to protest its colder responses. Acknowledging the emotional attachment with chatbots, the company quickly backtracked.`\
+https://nytimes.com/2025/08/19/business/the-chatbot-updated-users-lost-a-friend.html
+
+**Mexico’s President Denies New D.E.A. Partnership Against Cartels**\
+`The D.E.A. announced “a major new initiative” with Mexico to fight cartels. President Claudia Sheinbaum of Mexico said that was news to her.`\
+https://nytimes.com/2025/08/19/world/americas/mexico-dea-cartels-sheinbaum.html
+
 **Mark Zuckerberg Plans to Shake Up Meta’s A.I. Efforts, Again**\
 `Meta is expected to announce a new restructuring of its artificial intelligence division amid internal tensions over the technology, people with knowledge of the plans said.`\
 https://nytimes.com/2025/08/19/technology/mark-zuckerberg-meta-ai.html
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/6562722/2025/08/19/john-wall-retirement-nba/
 **Russia rejects placing Western peacekeepers in Ukraine, despite Trump’s suggestions Putin is fine with it.**\
 `By Paul Sonne`\
 https://nytimes.com/live/2025/08/19/us/trump-zelensky-ukraine-russia/western-forces-nato-peacekeepers-trump
-
-**PGA Tour's Miami Championship heading to Trump National Doral in 2026**\
-`Miami has received signature event status, making it one of nine higher-stakes tournaments where only top players are qualified.`\
-https://nytimes.com/athletic/6562637/2025/08/19/miami-championship-trump-national-doral/
-
-**Submit your questions for Chris Kirschner's Yankees mailbag**\
-`The Yankees are entering a critical stretch of their schedule. What's on your mind?`\
-https://nytimes.com/athletic/6562716/2025/08/19/submit-your-questions-for-chris-kirschners-yankees-mailbag/
-
-**Trump Wants to End Mail-In Voting, Again**\
-`President Trump vowed on Monday to lead a movement to eliminate the use of mail-in ballots, continuing his legally dubious crusade against the nation’s voting rules, which he has long attacked and falsely blamed for his 2020 election loss. Nick Corasaniti, a Times political reporter, explains.`\
-https://nytimes.com/video/us/politics/100000010347667/trump-wants-to-end-mail-in-voting-again.html
-
-**Sara Errani's return to the U.S. Open mixed doubles – and the art of the underarm serve**\
-`The 38-year-old completed a career Golden Slam in 2024, and has built a remarkable career behind one major weakness.`\
-https://nytimes.com/athletic/5936031/2025/08/19/sara-errani-tennis-player-serve-us-open-mixed-doubles/
-
-**Thick Bands, ‘The Shoulder Pads of Jewelry,’ Are Back in Style**\
-`After the pop star Dua Lipa endorsed the look this year, stylish yet practical chunky engagement rings have taken off in popularity.`\
-https://nytimes.com/2025/08/19/fashion/weddings/thick-chunky-engagement-rings.html
 

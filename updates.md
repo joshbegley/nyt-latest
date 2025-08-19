@@ -1,3 +1,23 @@
+**Zelensky’s Return to the White House**\
+`Readers weigh in on the Ukrainian president’s meeting with President Trump and European leaders. Also: When teens vote.`\
+https://nytimes.com/2025/08/19/opinion/trump-zelensky-ukraine-white-house.html
+
+**California Republicans File Suit Seeking to Block Newsom Redistricting Plan**\
+`Republican state lawmakers argue that Democratic lawmakers violated 30-day disclosure rules in the California Constitution.`\
+https://nytimes.com/2025/08/19/us/california-republicans-lawsuit-redistricting.html
+
+**Olympic hopefuls, NHL stars fill USA Hockey 44-player orientation camp roster**\
+`The U.S. is expected to carry 14 forwards, eight defensemen and three goalies at the Olympics in February.`\
+https://nytimes.com/athletic/6562802/2025/08/19/team-usa-olympics-orientation-camp-roster/
+
+**The Chatbot Updated. Users Lost a Friend.**\
+`When OpenAI released a new version of ChatGPT, people were quick to protest its colder responses. Acknowledging the emotional attachment with chatbots, the company quickly backtracked.`\
+https://nytimes.com/2025/08/19/business/the-chatbot-updated-users-lost-a-friend.html
+
+**Mexico’s President Denies New D.E.A. Partnership Against Cartels**\
+`The D.E.A. announced “a major new initiative” with Mexico to fight cartels. President Claudia Sheinbaum of Mexico said that was news to her.`\
+https://nytimes.com/2025/08/19/world/americas/mexico-dea-cartels-sheinbaum.html
+
 **Mark Zuckerberg Plans to Shake Up Meta’s A.I. Efforts, Again**\
 `Meta is expected to announce a new restructuring of its artificial intelligence division amid internal tensions over the technology, people with knowledge of the plans said.`\
 https://nytimes.com/2025/08/19/technology/mark-zuckerberg-meta-ai.html
