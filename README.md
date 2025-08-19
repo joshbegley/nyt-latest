@@ -1,3 +1,11 @@
+**Zelensky’s Return to the White House**\
+`Readers weigh in on the Ukrainian president’s meeting with President Trump and European leaders. Also: When teens vote.`\
+https://nytimes.com/2025/08/19/opinion/trump-zelensky-ukraine-white-house.html
+
+**California Republicans File Suit Seeking to Block Newsom Redistricting Plan**\
+`Republican state lawmakers argue that Democratic lawmakers violated 30-day disclosure rules in the California Constitution.`\
+https://nytimes.com/2025/08/19/us/california-republicans-lawsuit-redistricting.html
+
 **Olympic hopefuls, NHL stars fill USA Hockey 44-player orientation camp roster**\
 `The U.S. is expected to carry 14 forwards, eight defensemen and three goalies at the Olympics in February.`\
 https://nytimes.com/athletic/6562802/2025/08/19/team-usa-olympics-orientation-camp-roster/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6562722/2025/08/19/john-wall-retirement-nba/
 **Russia rejects placing Western peacekeepers in Ukraine, despite Trump’s suggestions Putin is fine with it.**\
 `By Paul Sonne`\
 https://nytimes.com/live/2025/08/19/us/trump-zelensky-ukraine-russia/western-forces-nato-peacekeepers-trump
-
-**PGA Tour's Miami Championship heading to Trump National Doral in 2026**\
-`Miami has received signature event status, making it one of nine higher-stakes tournaments where only top players are qualified.`\
-https://nytimes.com/athletic/6562637/2025/08/19/miami-championship-trump-national-doral/
-
-**Submit your questions for Chris Kirschner's Yankees mailbag**\
-`The Yankees are entering a critical stretch of their schedule. What's on your mind?`\
-https://nytimes.com/athletic/6562716/2025/08/19/submit-your-questions-for-chris-kirschners-yankees-mailbag/
 
