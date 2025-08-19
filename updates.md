@@ -1,3 +1,15 @@
+**Rodrigo Moya, Who Photographed a Changing Latin America, Dies at 91**\
+`He documented poverty and protest in the 1950s and ’60, and he created indelible images of Che Guevara and Gabriel García Márquez.`\
+https://nytimes.com/2025/08/19/arts/rodrigo-moya-dead.html
+
+**Trump Revokes Security Clearances of 37 Former and Current Officials**\
+`The move is the latest effort by the Trump administration to shift the public’s attention to the 2016 election.`\
+https://nytimes.com/2025/08/19/us/politics/trump-security-clearances.html
+
+**Isak: Newcastle relationship 'can't continue', promises have been 'broken'**\
+`Isak was not present at Tuesday's PFA awards, where he was the only Newcastle player to be named in the Premier League team of the season.`\
+https://nytimes.com/athletic/6563347/2025/08/19/alexander-isak-newcastle-transfer-latest/
+
 **Adams Asks Trump Administration to Stop Courthouse Migrant Detentions**\
 `Federal prosecutors dropped charges against Mayor Eric Adams of New York so that he could help with deportations. But the administration and the city have been jousting in court.`\
 https://nytimes.com/2025/08/19/nyregion/adams-immigration-amicus-brief.html
