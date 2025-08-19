@@ -1,3 +1,11 @@
+**Ukraine Diplomacy Reveals How Un-American Trump Is**\
+`Trump doesn’t feel any gut need to bring Ukraine into the West or understand that Putin’s invasion of that country was just his latest march to break up the West.`\
+https://nytimes.com/2025/08/19/opinion/trump-russia-ukraine-putin.html
+
+**Without U.S. troops in Ukraine, how much would a ‘security guarantee’ deter Russia?**\
+`By Pranav Baskar`\
+https://nytimes.com/live/2025/08/19/us/trump-zelensky-ukraine-russia/us-troops-security-guarantees-europe
+
 **Manhunt Underway After Texas Jail Mistakenly Releases Inmate**\
 `The release of a man who had been serving a five-year sentence for assault is the second time the jail has released someone prematurely this year.`\
 https://nytimes.com/2025/08/19/us/texas-manhunt-mistaken-release.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6560924/2025/08/19/pfa-awards-winners-salah-caldent
 **Night at the Capitol: One Democrat’s Unexpected Protest Grips Texas**\
 `Nicole Collier, a state representative, slept in the Capitol rather than agree to police surveillance imposed by Republicans after a Democratic walkout. “I am resisting,” she said.`\
 https://nytimes.com/2025/08/19/us/politics/texas-redistricting-nicole-collier.html
-
-**Trump Wants Universities to Show Him the Money, or No Deal**\
-`President Trump has personally stipulated that hefty financial penalties be part of agreements his administration is negotiating with the elite universities. Critics call it extortion.`\
-https://nytimes.com/2025/08/19/us/politics/trump-universities-financial-penalties.html
-
-**Man Utd set to appoint Brentford’s Stephen Torpey to lead academy**\
-`Torpey previously served as head of academy coaching at United’s rivals Manchester City and has been Brentford academy director since 2024.`\
-https://nytimes.com/athletic/6563279/2025/08/19/manchester-united-academy-stephen-torpey/
 

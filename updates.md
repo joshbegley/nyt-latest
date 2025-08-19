@@ -1,3 +1,11 @@
+**Ukraine Diplomacy Reveals How Un-American Trump Is**\
+`Trump doesn’t feel any gut need to bring Ukraine into the West or understand that Putin’s invasion of that country was just his latest march to break up the West.`\
+https://nytimes.com/2025/08/19/opinion/trump-russia-ukraine-putin.html
+
+**Without U.S. troops in Ukraine, how much would a ‘security guarantee’ deter Russia?**\
+`By Pranav Baskar`\
+https://nytimes.com/live/2025/08/19/us/trump-zelensky-ukraine-russia/us-troops-security-guarantees-europe
+
 **Manhunt Underway After Texas Jail Mistakenly Releases Inmate**\
 `The release of a man who had been serving a five-year sentence for assault is the second time the jail has released someone prematurely this year.`\
 https://nytimes.com/2025/08/19/us/texas-manhunt-mistaken-release.html
