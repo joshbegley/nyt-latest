@@ -1,3 +1,7 @@
+**Leeds take heart as last season's core show they belong at Premier League level**\
+`Daniel Farke leant on those who had helped smooth promotion from the Championship and was rewarded with an impressive victory over Everton`\
+https://nytimes.com/athletic/6561673/2025/08/19/leeds-ampadu-bogle-rodon-farke-everton/
+
 **Everton are tepid and tentative. They are a team still crying out for additions**\
 `David Moyes' pre-season warning that his squad might not be ready proved prophetic as Leeds exposed the holes in the visitors' options`\
 https://nytimes.com/athletic/6561308/2025/08/19/everton-moyes-window-grealish-leeds/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6558746/2025/08/19/crystal-palace-glasner-transfer-
 **Xabi Alonso's €180m Real Madrid rebuild: How Spanish giants transformed this summer**\
 `Under the dynamic leadership of their new coach, Real Madrid look to have significantly strengthened`\
 https://nytimes.com/athletic/6560142/2025/08/19/xabi-alonso-real-madrid-rebuild-la-liga/
-
-**Watching Matheus Cunha's Man United debut at his first futsal club in Brazil: 'He looked at home, relaxed'**\
-`Locals gathered at CT Barao in Recife's Paramirim neighbourhood to watch a former alumnus on the big stage. The Athletic went, too...`\
-https://nytimes.com/athletic/6560200/2025/08/19/matheus-cunha-man-united-debut-brazil/
 
