@@ -1,3 +1,7 @@
+**Travis Jones is Ravens' best player you know nothing about — and that's how he wants it**\
+`On a defense stocked in big personalities with big resumes, the massive fourth-year nose tackle always finds a way to stand out. `\
+https://nytimes.com/athletic/6560402/2025/08/19/travis-jones-ravens-nose-tackle/
+
 **Jimmy Pitaro's big bet to keep ESPN on top**\
 `The Aug. 21 launch of ESPN's updated app, including new access to all of ESPN's live games without cable, is a huge moment for the network.`\
 https://nytimes.com/athletic/6560777/2025/08/19/jimmy-pitaro-espn-streaming-app-launch-netflix/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6560579/2025/08/19/jim-valvano-college-basketball-e
 **Do the Steelers need another wide receiver? If so, is Gabe Davis the answer?**\
 `Davis is set to visit the team for a second time on Tuesday, though Pittsburgh has other options, in-house and outside the roster.`\
 https://nytimes.com/athletic/6561522/2025/08/19/steelers-wide-receiver-wr2-gabe-davis/
-
-**From worst to nearly first: Michael Harris II's stunning midseason turnaround**\
-`Harris went from having the worst OPS among all major-league qualifiers before the All-Star break to having the third-highest since.`\
-https://nytimes.com/athletic/6561680/2025/08/19/braves-michael-harris-ii-turnaround/
 
