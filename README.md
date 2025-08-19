@@ -1,40 +1,36 @@
-**Galatasaray interested in Man City's Akanji, continuing Ederson talks**\
-`The Turkish club were also interested in Ilkay Gundogan earlier in the summer, although the midfielder wants to remain at City.`\
-https://nytimes.com/athletic/6561838/2025/08/19/manchester-city-galatasaray-manuel-akanji-transfer/
+**A Brief Note on the Difference Between Negotiation and Extortion**\
+`And while we’re at it, let’s think about the phrase “land swap.”`\
+https://nytimes.com/2025/08/19/opinion/ukraine-russia-war-territory.html
 
-**Wolves sign Verona's Tchatchoua on five-year deal**\
-`The Belgium-born Cameroon international has signed a five-year deal at Molineux with a club option for a sixth season.`\
-https://nytimes.com/athletic/6561841/2025/08/19/wolves-transfers-jackson-chatchoua/
+**Trump Is Playing at Being a Wartime President**\
+`The president is driving the tentacles of the federal government deep into the nation’s economy, culture and legal system.`\
+https://nytimes.com/2025/08/19/opinion/trump-intrusion-lincoln-roosevelt.html
 
-**Champions League qualifying fixtures, kick off times and analysis**\
-`Qualifying for the Champions League ramps up as Rangers, Celtic, Fenerbahce and more try to book one of the final seven places`\
-https://nytimes.com/athletic/6560257/2025/08/19/champions-league-play-off-round-celtics-7000-mile-trip-robbie-keane-the-manager-and-mourinho-under-pressure/
+**In Pursuing Trump Rival, Weaponization Czar Sidesteps Justice Dept. Norms**\
+`Edward R. Martin Jr.’s conduct is part of a pattern in which top administration officials try to use the vast powers of the government to cast the specter of criminality on President Trump’s enemies.`\
+https://nytimes.com/2025/08/19/us/politics/trump-letitia-james-weaponization-czar.html
 
-**Everton are tepid and tentative. They are a team still crying out for additions**\
-`David Moyes' pre-season warning that his squad might not be ready proved prophetic as Leeds exposed the holes in the visitors' options`\
-https://nytimes.com/athletic/6561308/2025/08/19/everton-moyes-window-grealish-leeds/
+**Young People of Color Flocked to This Show. It Made Them Feel Seen.**\
+`The exhibition “Beloved Suburbs” drew more than 150,000 visitors to France’s Museum of the History of Immigration. “We really recognize ourselves in the exhibition,” one said.`\
+https://nytimes.com/2025/08/19/arts/paris-banlieues-cheries-beloved-suburbs.html
 
-**Vietnamese Are Helping Cuba With 38-Cent Donations. A Lot of Them.**\
-`Cuba sent doctors and food to Vietnam during the war. Now ordinary Vietnamese are sending cash to struggling Cubans.`\
-https://nytimes.com/2025/08/19/world/asia/vietnam-cuba-fundraising.html
+**A Long Sunrise Walk to Start the School Year**\
+`In an annual tradition at the Pratt Institute, first-year students will get to know one another while walking from their campus across the Brooklyn Bridge.`\
+https://nytimes.com/2025/08/19/nyregion/sunrise-walk-pratt-institute-brooklyn-bridge.html
 
-**An Evening With the Central Park Coyotes**\
-`Romeo and Juliet are shy and graceful, leaping over fences, hunting for rodents and catching at least one Canada goose.`\
-https://nytimes.com/2025/08/19/nyregion/central-park-coyotes.html
+**With ‘Highest 2 Lowest,’ Stars Perfect the Art of Friendship**\
+`Across 35 years and five films, Spike Lee and Denzel Washington redefined Black male filmmaking and cemented an indestructible personal bond.`\
+https://nytimes.com/2025/08/19/movies/19cul-spike-lee-denzel-highest-2-lowest.html
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2025/08/19/crosswords/spelling-bee-forum.html
+**The Race to Rescue PBS and NPR Stations**\
+`The Knight Foundation and other top organizations are aiming to provide $50 million to stabilize the stations most at risk from the recent federal government funding cuts.`\
+https://nytimes.com/2025/08/19/business/the-race-to-rescue-pbs-and-npr-stations.html
 
-**The Transfer DealSheet: The latest on your club and their plans this summer window**\
-`This week, David Ornstein gives us his One To Watch, we have news on Newcastle's interest in a striker and Man Utd's midfield options`\
-https://nytimes.com/athletic/6559975/2025/08/19/transfer-latest-eberechi-eze-marc-guehi-arsenal-manchester-united-liverpool-tottenham-hotspur/
+**‘They’re Just Waiting to Just Get Back on Their Phone’: 12 Teachers on What’s Changed in Schools**\
+`The group discusses artificial intelligence, phones, and how students have changed over time,`\
+https://nytimes.com/interactive/2025/08/19/opinion/focus-group-teachers.html
 
-**Leeds take heart as last season's core show they belong at Premier League level**\
-`Daniel Farke leant on those who had helped smooth promotion from the Championship and was rewarded with an impressive victory over Everton`\
-https://nytimes.com/athletic/6561673/2025/08/19/leeds-ampadu-bogle-rodon-farke-everton/
-
-**Walk-off loss to Rockies highlights Teoscar Hernández's defensive struggles for Dodgers**\
-`The Dodgers appeared to be one out away from pushing the game into extra innings. Until they weren’t.`\
-https://nytimes.com/athletic/6561720/2025/08/19/dodgers-walk-off-loss-teoscar-hernandez-rockies/
+**The Politics of Crime Are Perilous for Left and Right Alike**\
+`President Trump has latched on to concerns about crime, as liberals point to its decline. The politics often flip when it comes to mass shootings.`\
+https://nytimes.com/2025/08/19/us/politics-gun-violence-mass-shootings-washington-dc.html
 
