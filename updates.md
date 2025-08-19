@@ -1,3 +1,11 @@
+**Iga Świątek's Cincinnati Open win a message to U.S. Open field: Watch out**\
+`World No. 2 defeats feisty Jasmine Paolini in final to earn her first title on a hard court since March of 2024.`\
+https://nytimes.com/athletic/6561392/2025/08/18/iga-swiatek-cincinnati-open-win-jasmine-paolini/
+
+**Full Time: How long should we wait for weather to clear?**\
+`Welcome to Full Time, The Athletic's women's soccer newsletter.`\
+https://nytimes.com/athletic/6561404/2025/08/18/heat-delays-nwsl-full-time/
+
 **In Surprise Move, Trump Taps Missouri Attorney General to Help Run F.B.I.**\
 `The move appears to diminish the authority of the current deputy director, Dan Bongino, whose tumultuous tenure has included a pitched argument over files related to the disgraced financier Jeffrey Epstein.`\
 https://nytimes.com/2025/08/18/us/politics/fbi-missouri-attorney-general.html
