@@ -1,3 +1,5 @@
+
+
 **Cubs' Kyle Tucker will be benched for mental reset, manager Craig Counsell reveals**\
 `The Cubs are hoping that Tucker will snap out of this funk. They just don’t know when that will happen.`\
 https://nytimes.com/athletic/6561401/2025/08/18/chicago-cubs-kyle-tucker-benching/
