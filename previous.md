@@ -1,3 +1,7 @@
+**MSNBC’s Rebrand Invites Bemusement and Ridicule**\
+`The cable TV network’s new name, MS NOW, became the subject of mockery soon after it was announced on Monday.`\
+https://nytimes.com/2025/08/19/business/msnbc-ms-now-rebranding.html
+
 **Netanyahu Faces Pressure From Far Right Over New Cease-Fire Proposal**\
 `Some members of Israel’s coalition have ruled out a proposed hostage deal with Hamas, but the prime minister has yet to state his position.`\
 https://nytimes.com/2025/08/19/world/middleeast/netanyahu-faces-pressure-from-far-right-over-new-cease-fire-proposal.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6556414/2025/08/19/mlb-health-care-plan-more-expens
 **USC commit Boobie Feaster is the modern recruit — agents, NIL, reclassification and all**\
 `Feaster, who will be only 16 when he graduates DeSoto (Texas) HS, had 25 scholarship offers before he played a down of varsity football. `\
 https://nytimes.com/athletic/6556345/2025/08/19/usc-football-commit-boobie-feaster-nil/
-
-**Vladimir Guerrero Jr.’s health is top concern after messy Blue Jays loss**\
-`Monday's loss was undeniably messy. The greater concern, however, hovers around Guerrero.`\
-https://nytimes.com/athletic/6561622/2025/08/19/vladimir-guerrero-jr-injury-messy-loss-blue-jays/
 
