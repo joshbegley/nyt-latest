@@ -1,3 +1,23 @@
+**Mark Zuckerberg Plans to Shake Up Meta’s A.I. Efforts, Again**\
+`Meta is expected to announce a new restructuring of its artificial intelligence division amid internal tensions over the technology, people with knowledge of the plans said.`\
+https://nytimes.com/2025/08/19/technology/mark-zuckerberg-meta-ai.html
+
+**Aston Villa's North Stand plans set for approval - and could transform club and area alike**\
+`Villa have wanted to raise the capacity of their stadium beyond 50,000 for years. They are a set to move a step closer to doing so...`\
+https://nytimes.com/athletic/6559836/2025/08/19/aston-villa-north-stand-planning-approval/
+
+**TV Giant Nexstar Agrees to Acquire a Rival, Tegna, for $6.2 Billion**\
+`To close the deal, Nexstar will need approval from the Federal Communications Commission, which could cement its position as the biggest provider of local TV in the U.S.`\
+https://nytimes.com/2025/08/19/business/media/nexstar-tegna-deal.html
+
+**John Wall, 2010 No. 1 NBA pick who played 11 seasons, announces retirement**\
+`He averaged 19.0 points and 9.2 assists per game during his career with the Wizards after the franchise drafted him out of Kentucky.`\
+https://nytimes.com/athletic/6562722/2025/08/19/john-wall-retirement-nba/
+
+**Russia rejects placing Western peacekeepers in Ukraine, despite Trump’s suggestions Putin is fine with it.**\
+`By Paul Sonne`\
+https://nytimes.com/live/2025/08/19/us/trump-zelensky-ukraine-russia/western-forces-nato-peacekeepers-trump
+
 **PGA Tour's Miami Championship heading to Trump National Doral in 2026**\
 `Miami has received signature event status, making it one of nine higher-stakes tournaments where only top players are qualified.`\
 https://nytimes.com/athletic/6562637/2025/08/19/miami-championship-trump-national-doral/
@@ -10,31 +30,11 @@ https://nytimes.com/athletic/6562716/2025/08/19/submit-your-questions-for-chris-
 `President Trump vowed on Monday to lead a movement to eliminate the use of mail-in ballots, continuing his legally dubious crusade against the nation’s voting rules, which he has long attacked and falsely blamed for his 2020 election loss. Nick Corasaniti, a Times political reporter, explains.`\
 https://nytimes.com/video/us/politics/100000010347667/trump-wants-to-end-mail-in-voting-again.html
 
+**Sara Errani's return to the U.S. Open mixed doubles – and the art of the underarm serve**\
+`The 38-year-old completed a career Golden Slam in 2024, and has built a remarkable career behind one major weakness.`\
+https://nytimes.com/athletic/5936031/2025/08/19/sara-errani-tennis-player-serve-us-open-mixed-doubles/
+
 **Thick Bands, ‘The Shoulder Pads of Jewelry,’ Are Back in Style**\
 `After the pop star Dua Lipa endorsed the look this year, stylish yet practical chunky engagement rings have taken off in popularity.`\
 https://nytimes.com/2025/08/19/fashion/weddings/thick-chunky-engagement-rings.html
-
-**From Unstable Ground, an Old Church Rolls to a New Home**\
-`Mining in Kiruna, Sweden, has jeopardized the ground below a beloved church. Thanks to a feat of engineering, it is on the move.`\
-https://nytimes.com/2025/08/19/world/europe/sweden-church-kiruna-move.html
-
-**Church Is Wheeled Away in Sweden as Mining Disrupts the Ground**\
-`The church in the Swedish town of Kiruna, built in 1912, began a two-day journey on Tuesday to its new home three miles away.`\
-https://nytimes.com/video/world/europe/100000010348724/sweden-church-wheels-mine-move.html
-
-**Trump doesn’t like the term ‘cease-fire,’ so Europe is settling on ‘truce.’**\
-`By Jeanna Smialek and Jim Tankersley`\
-https://nytimes.com/live/2025/08/19/us/trump-zelensky-ukraine-russia/trump-doesnt-like-the-term-cease-fire-so-europe-is-settling-on-truce
-
-**Five-star RB Savion Hiter commits to Michigan**\
-`Savion Hiter, a five-star prospect from Mineral, Va., committed to the Wolverines on Tuesday over Tennessee, Georgia and Ohio State.`\
-https://nytimes.com/athletic/6562112/2025/08/19/savion-hiter-michigan-recruiting-commitment-football/
-
-**Rick Carlisle, Pacers agree to multiyear contract extension: Source**\
-`In his second stint as Indiana's coach, Carlisle led the Pacers to their first NBA Finals appearance since 2000.`\
-https://nytimes.com/athletic/6562471/2025/08/19/pacers-rick-carlisle-contract-extension-nba/
-
-**Auburn formally claims seven additional football national titles, bringing school total to nine**\
-`Claiming national titles is a long-held tradition in major college football, where the NCAA has never held any authority to run a playoff.`\
-https://nytimes.com/athletic/6562375/2025/08/19/auburn-football-national-championships-claimed/
 
