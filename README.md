@@ -1,3 +1,7 @@
+**In Surprise Move, Trump Taps Missouri Attorney General to Help Run F.B.I.**\
+`The move appears to diminish the authority of the current deputy director, Dan Bongino, whose tumultuous tenure has included a pitched argument over files related to the disgraced financier Jeffrey Epstein.`\
+https://nytimes.com/2025/08/18/us/politics/fbi-missouri-attorney-general.html
+
 **Cade Horton’s blister is yet another thing going wrong for the Cubs**\
 `Missing Horton for an extended period would not help a team that appears to be reeling.`\
 https://nytimes.com/athletic/6561269/2025/08/18/cade-horton-blister-cubs/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/18/nyregion/mta-second-avenue-subway-harlem-125th-st
 **Former Cy Young winner Shane Bieber to make his Blue Jays debut on Friday**\
 `Acquired at the trade deadline, Bieber will be making his MLB return from Tommy John surgery when he debuts with the Blue Jays.`\
 https://nytimes.com/athletic/6561100/2025/08/18/shane-bieber-blue-jays-debut/
-
-**Mother Who Said 7-Month-Old Was Kidnapped Stops Cooperating, Sheriff Says**\
-`The Sheriff’s Department in San Bernardino County, Calif., said that Emmanuel Haro’s mother had stopped speaking with investigators after being confronted with inconsistencies in her initial report.`\
-https://nytimes.com/2025/08/18/us/california-missing-baby-kidnapping-foul-play.html
 
