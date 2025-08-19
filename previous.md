@@ -1,3 +1,7 @@
+**Russia Plays Down the Prospect of a Putin-Zelensky Meeting**\
+`President Trump had suggested a meeting between Russia and Ukraine’s leaders could be a potential next step on the path to peace, but Russian state news media barely mentioned such a meeting in its coverage.`\
+https://nytimes.com/2025/08/19/us/russia-putin-zelensky-meeting-trump.html
+
 **Have You Been Rejected by a New York Co-op Board? We Want to Hear From You.**\
 `The New York Times is looking for buyers who suspect that discrimination played a role in their rejection by a co-op board.`\
 https://nytimes.com/2025/08/19/realestate/nyc-co-op-board-apartment-rejection-discrimination.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6560802/2025/08/19/ducks-verbeek-sennecke-mcqueen/
 **Is Extreme Running Linked to Colon Cancer?**\
 `A small, preliminary study found that marathoners were much more likely to have precancerous growths. Experts aren’t sure why.`\
 https://nytimes.com/2025/08/19/health/running-colon-cancer.html
-
-**Sabotage Shows How Russia’s Hostility Toward Europe Goes Beyond Ukraine**\
-`The Kremlin’s goal is to destabilize Europe, and attacks on infrastructure are a preferred weapon, a new report said.`\
-https://nytimes.com/2025/08/19/world/europe/russia-hybrid-attacks-europe.html
 
