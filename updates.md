@@ -1,3 +1,7 @@
+**Leeds take heart as last season's core show they belong at Premier League level**\
+`Daniel Farke leant on those who had helped smooth promotion from the Championship and was rewarded with an impressive victory over Everton`\
+https://nytimes.com/athletic/6561673/2025/08/19/leeds-ampadu-bogle-rodon-farke-everton/
+
 **Everton are tepid and tentative. They are a team still crying out for additions**\
 `David Moyes' pre-season warning that his squad might not be ready proved prophetic as Leeds exposed the holes in the visitors' options`\
 https://nytimes.com/athletic/6561308/2025/08/19/everton-moyes-window-grealish-leeds/
