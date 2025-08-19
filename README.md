@@ -1,3 +1,11 @@
+**Sophie Cunningham to miss rest of season with right knee injury**\
+`Cunningham injured her knee when she collided with the Sun's Bria Hartley in Sunday's game.`\
+https://nytimes.com/athletic/6563208/2025/08/19/indiana-fever-sophie-cunningham-injury-wnba/
+
+**Once a Source of Life and Renewal, Monsoon Brings Death to Pakistan**\
+`With villages swept away and Pakistan’s largest city assailed by monsoon floods, climate change has brought a catastrophic new normal to the country.`\
+https://nytimes.com/2025/08/19/world/asia/pakistan-monsoon-devastation.html
+
 **African Union Wants World to Scrub 450-Year-Old Map**\
 `Supporters of the campaign say that the popular Mercator projection promotes a false view of the continent and its size.`\
 https://nytimes.com/2025/08/19/world/africa/africa-map-mercator.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/08/19/dining/where-to-eat-portland.html
 **Gazans Optimistic After Hamas Accepts New Cease-Fire Deal**\
 `Palestinians in Khan Younis, Gaza, expressed hope that Israel would accept a cease-fire deal put forward by Egypt and Qatar, which would include the release of Israeli hostages and Palestinian prisoners.`\
 https://nytimes.com/video/world/middleeast/100000010349345/gaza-cease-fire-israel.html
-
-**Trump Says He’s Ended 6 (or 7) Wars. Here’s Some Context.**\
-`President Trump has cast himself as a global peacemaker. His interventions have calmed some conflicts, while in others his role is less clear.`\
-https://nytimes.com/2025/08/19/world/europe/trump-six-wars-fact-check.html
-
-**The Bounce: NBA’s 40 best lead guards, ranked**\
-`Catching you up on the leaguewide news you need to know.`\
-https://nytimes.com/athletic/6562495/2025/08/19/nba-lead-guard-rankings-sga-luka/
 

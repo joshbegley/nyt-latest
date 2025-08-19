@@ -1,3 +1,19 @@
+**African Union Wants World to Scrub 450-Year-Old Map**\
+`Supporters of the campaign say that the popular Mercator projection promotes a false view of the continent and its size.`\
+https://nytimes.com/2025/08/19/world/africa/africa-map-mercator.html
+
+**A ‘Dexter’ Obsessed Man Highlights a Gap in British Law**\
+`Inspired by the TV serial killer, Jacob Power wrote out detailed murder plans and dug graves. Still, prosecutors could not charge him with attempted murder.`\
+https://nytimes.com/2025/08/19/world/europe/jacob-power-dexter-murder-plans-uk-laws.html
+
+**These TV Hits Are Censored in Putin’s Russia**\
+`At best their meanings have changed. At worst, they no longer make sense.`\
+https://nytimes.com/interactive/2025/08/19/arts/television/russia-tv-censorship.html
+
+**Richard Lee, Activist Who Founded a Pot ‘University,’ Dies at 62**\
+`After he was paralyzed in an accident, his use of marijuana for medical purposes led him to become one of the nation’s most influential cannabis activists.`\
+https://nytimes.com/2025/08/19/us/richard-lee-dead.html
+
 **First look at NASCAR's 2026 Cup Series schedule, from Daytona to Homestead**\
 `Here's a first look at NASCAR's 2026 Cup Series schedule and where San Diego, Chicagoland and North Wilkesboro's new points race fit in.`\
 https://nytimes.com/athletic/6548777/2025/08/19/nascar-2026-cup-series-schedule-san-diego-chicagoland/
@@ -21,20 +37,4 @@ https://nytimes.com/2025/08/19/world/europe/trump-six-wars-fact-check.html
 **The Bounce: NBA’s 40 best lead guards, ranked**\
 `Catching you up on the leaguewide news you need to know.`\
 https://nytimes.com/athletic/6562495/2025/08/19/nba-lead-guard-rankings-sga-luka/
-
-**No Tariff Exemption for European Wine and Spirits, at Least for Now**\
-`As the text of a trade agreement comes together, European Union negotiators haven’t persuaded the Americans to cut alcohol tariffs to zero.`\
-https://nytimes.com/2025/08/19/world/europe/tariff-exemption-european-wine-spirits.html
-
-**OpenAI in Deal Talks That Would Value the Company at $500 Billion**\
-`At $500 billion, OpenAI would become the world’s most valuable privately held company.`\
-https://nytimes.com/2025/08/19/technology/openai-chatgpt-stock-sale-valuation.html
-
-**Until Saturday: Judging Auburn's 7 new title claims**\
-`Until Saturday is The Athletic's free CFB newsletter.`\
-https://nytimes.com/athletic/6563070/2025/08/19/auburn-national-championships-claims-until-saturday/
-
-**National Guard Troops in Washington Stick to Tourist Areas**\
-`The number of troops in the city is expected to grow. But Army officials appear to be trying to keep them on the sidelines of President Trump’s mission.`\
-https://nytimes.com/2025/08/19/us/politics/tourists-national-guard-washington.html
 
