@@ -1,3 +1,7 @@
+**Blue Jays' Vladimir Guerrero Jr. exits game with left hamstring tightness**\
+`In the event of an extended absence, deadline acquisition Ty France would likely see regular playing time at first base.`\
+https://nytimes.com/athletic/6561450/2025/08/18/toronto-blue-jays-vladimir-guerrero-jr-injury/
+
 **How the Chargers' 'uncoverable' Ladd McConkey is poised to reach greater heights in Year 2**\
 `After a record-setting rookie season, McConkey says his “head’s not spinning as much” compared to last year.`\
 https://nytimes.com/athletic/6561393/2025/08/18/chargers-ladd-mcconkey-year-2/

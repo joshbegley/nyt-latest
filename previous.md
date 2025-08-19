@@ -1,3 +1,7 @@
+**Blue Jays' Vladimir Guerrero Jr. exits game with left hamstring tightness**\
+`In the event of an extended absence, deadline acquisition Ty France would likely see regular playing time at first base.`\
+https://nytimes.com/athletic/6561450/2025/08/18/toronto-blue-jays-vladimir-guerrero-jr-injury/
+
 **How the Chargers' 'uncoverable' Ladd McConkey is poised to reach greater heights in Year 2**\
 `After a record-setting rookie season, McConkey says his “head’s not spinning as much” compared to last year.`\
 https://nytimes.com/athletic/6561393/2025/08/18/chargers-ladd-mcconkey-year-2/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/18/technology/intel-trump-government-stake.html
 **The Fight With Democrats That Trump Wants Now**\
 `Crime is tricky territory for Democrats and President Trump knows it.`\
 https://nytimes.com/2025/08/18/us/politics/trump-washington-crime-democrats.html
-
-**Mississippi and Louisiana Will Send National Guard Troops to D.C.**\
-`Ohio, West Virginia and South Carolina have also deployed the Guard to Washington to support President Trump’s crackdown on the city.`\
-https://nytimes.com/2025/08/18/us/politics/national-guard-dc-trump-mississippi-louisiana.html
 
