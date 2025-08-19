@@ -1,3 +1,11 @@
+**Salah, Caldentey win 2024-25 PFA Player of the Year awards**\
+`Salah becomes the first player to win three PFA Player of the Year awards, having also secured the crown for the 2017-18 and 2021-22.`\
+https://nytimes.com/athletic/6560924/2025/08/19/pfa-awards-winners-salah-caldentey/
+
+**Night at the Capitol: One Democrat’s Unexpected Protest Grips Texas**\
+`Nicole Collier, a state representative, slept in the Capitol rather than agree to police surveillance imposed by Republicans after a Democratic walkout. “I am resisting,” she said.`\
+https://nytimes.com/2025/08/19/us/politics/texas-redistricting-nicole-collier.html
+
 **Trump Wants Universities to Show Him the Money, or No Deal**\
 `President Trump has personally stipulated that hefty financial penalties be part of agreements his administration is negotiating with the elite universities. Critics call it extortion.`\
 https://nytimes.com/2025/08/19/us/politics/trump-universities-financial-penalties.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6563208/2025/08/19/indiana-fever-sophie-cunningham-
 **Once a Source of Life and Renewal, Monsoon Brings Death to Pakistan**\
 `With villages swept away and Pakistan’s largest city assailed by monsoon floods, climate change has brought a catastrophic new normal to the country.`\
 https://nytimes.com/2025/08/19/world/asia/pakistan-monsoon-devastation.html
-
-**African Union Wants World to Scrub 450-Year-Old Map**\
-`Supporters of the campaign say that the popular Mercator projection promotes a false view of the continent and its size.`\
-https://nytimes.com/2025/08/19/world/africa/africa-map-mercator.html
-
-**A ‘Dexter’ Obsessed Man Highlights a Gap in British Law**\
-`Inspired by the TV serial killer, Jacob Power wrote out detailed murder plans and dug graves. Still, prosecutors could not charge him with attempted murder.`\
-https://nytimes.com/2025/08/19/world/europe/jacob-power-dexter-murder-plans-uk-laws.html
 
