@@ -1,3 +1,7 @@
+**Russia Attacks Ukraine Hours After White House Meetings**\
+`Russia launched hundreds of drones and missiles at Ukraine overnight, Ukrainian officials said. The attacks came after European leaders met with President Trump to try to find a path toward peace.`\
+https://nytimes.com/2025/08/19/us/russia-attack-drones-missiles-ukraine.html
+
 **Word of the Day: bivalve**\
 `This word has appeared in 25 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2025/08/19/learning/word-of-the-day-bivalve.html
