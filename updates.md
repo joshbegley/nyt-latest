@@ -1,3 +1,7 @@
+**Wednesday Briefing: An Uncertain Path to Peace in Ukraine**\
+`Also, Paris prepares for extreme heat.`\
+https://nytimes.com/2025/08/19/briefing/ukraine-russia-peace-gaza-indonesia-rain-forest.html
+
 **John Metchie III's rapid Eagles intro begins with A.J. Brown, DeVonta Smith on sideline**\
 `Plus, notes from practice, including an update on Tanner McKee's injury.`\
 https://nytimes.com/athletic/6563356/2025/08/19/john-metchies-eagles-a-j-brown-devonta-smith/

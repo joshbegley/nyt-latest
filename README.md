@@ -1,3 +1,23 @@
+**Aaron Rodgers won't play in preseason finale, sitting entire preseason for second straight year**\
+`The quarterback will make his Steelers debut in Week 1 of the regular season, against his former team, the Jets.`\
+https://nytimes.com/athletic/6563507/2025/08/19/aaron-rodgers-sits-out-preseason/
+
+**Canada coach Jesse Marsch's focus is on final days of European transfer window as World Cup looms**\
+`Manager expecting "between 10 and 15 players" to change clubs as they chase call-ups for the biggest tournament in Canadian soccer history`\
+https://nytimes.com/athletic/6562762/2025/08/19/canada-jesse-marsch-world-cup-europe-transfers/
+
+**Whitecaps add defender Sebastian Schonlau from Bundesliga's Hamburg**\
+`Whitecaps make another move following Thomas Muller's arrival`\
+https://nytimes.com/athletic/6563578/2025/08/19/vancouver-whitecaps-schonlau-mls-hamburg/
+
+**Read Abrego Garcia’s Motion**\
+`Lawyers for Kilmar Armando Abrego Garcia, the immigrant at the center of a legal maelstrom after he was wrongfully expelled to El Salvador in March, accused the Justice Department on Tuesday of vindictively bringing a criminal case against him in retaliation for trying to hold the Trump administration accountable for his mistaken deportation.`\
+https://nytimes.com/interactive/2025/08/19/us/politics/kag-selective-vindictive-motion.html
+
+**Putin Won’t Even Say Zelensky’s Name. So Will He Sit Down With Him?**\
+`The Kremlin is keeping its options open, but analysts said the Russian leader would probably only meet with his Ukrainian counterpart to accept a capitulation.`\
+https://nytimes.com/2025/08/19/world/europe/putin-zelensky-meeting.html
+
 **Wednesday Briefing: An Uncertain Path to Peace in Ukraine**\
 `Also, Paris prepares for extreme heat.`\
 https://nytimes.com/2025/08/19/briefing/ukraine-russia-peace-gaza-indonesia-rain-forest.html
@@ -17,24 +37,4 @@ https://nytimes.com/2025/08/19/nyregion/ice-connecticut-legislator-threats.html
 **Attacker Stabs Colorado Park Ranger and Flees**\
 `A manhunt was underway for the attacker as the ranger was airlifted to a hospital with serious but non-life-threatening injuries after the episode at Staunton State Park, the authorities said.`\
 https://nytimes.com/2025/08/19/us/colorado-park-ranger-stabbed-manhunt.html
-
-**College football has never made sense. Auburn, with its national title claims, is getting in on the fun**\
-`Auburn adding seven national titles in mid-August might be absurd. But I say let Auburn cook.`\
-https://nytimes.com/athletic/6562953/2025/08/19/auburn-football-national-titles-claim-2004/
-
-**Ukraine Diplomacy Reveals How Un-American Trump Is**\
-`Trump doesn’t feel any gut need to bring Ukraine into the West or understand that Putin’s invasion of that country was just his latest march to break up the West.`\
-https://nytimes.com/2025/08/19/opinion/trump-russia-ukraine-putin.html
-
-**Without U.S. troops in Ukraine, how much would a ‘security guarantee’ deter Russia?**\
-`By Pranav Baskar`\
-https://nytimes.com/live/2025/08/19/us/trump-zelensky-ukraine-russia/us-troops-security-guarantees-europe
-
-**Manhunt Underway After Texas Jail Mistakenly Releases Inmate**\
-`The release of a man who had been serving a five-year sentence for assault is the second time the jail has released someone prematurely this year.`\
-https://nytimes.com/2025/08/19/us/texas-manhunt-mistaken-release.html
-
-**Arch Manning pushes back against grandfather Archie's NFL Draft comments**\
-`Archie told Texas Monthly magazine that although he hadn't talked to Arch about the decision, he felt confident that Arch wouldn't declare.`\
-https://nytimes.com/athletic/6563300/2025/08/19/arch-manning-pushes-back-against-grandfather-archies-comments-on-2026-nfl-draft-status/
 

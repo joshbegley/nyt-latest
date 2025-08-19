@@ -1,3 +1,7 @@
+**Wednesday Briefing: An Uncertain Path to Peace in Ukraine**\
+`Also, Paris prepares for extreme heat.`\
+https://nytimes.com/2025/08/19/briefing/ukraine-russia-peace-gaza-indonesia-rain-forest.html
+
 **John Metchie III's rapid Eagles intro begins with A.J. Brown, DeVonta Smith on sideline**\
 `Plus, notes from practice, including an update on Tanner McKee's injury.`\
 https://nytimes.com/athletic/6563356/2025/08/19/john-metchies-eagles-a-j-brown-devonta-smith/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/19/us/texas-manhunt-mistaken-release.html
 **Arch Manning pushes back against grandfather Archie's NFL Draft comments**\
 `Archie told Texas Monthly magazine that although he hadn't talked to Arch about the decision, he felt confident that Arch wouldn't declare.`\
 https://nytimes.com/athletic/6563300/2025/08/19/arch-manning-pushes-back-against-grandfather-archies-comments-on-2026-nfl-draft-status/
-
-**Rodrigo Moya, Who Photographed a Changing Latin America, Dies at 91**\
-`He documented poverty and protest in the 1950s and ’60s, and he created indelible images of Che Guevara and Gabriel García Márquez.`\
-https://nytimes.com/2025/08/19/arts/rodrigo-moya-dead.html
 
