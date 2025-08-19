@@ -1,3 +1,7 @@
+**In Surprise Move, Trump Taps Missouri Attorney General to Help Run F.B.I.**\
+`The move appears to diminish the authority of the current deputy director, Dan Bongino, whose tumultuous tenure has included a pitched argument over files related to the disgraced financier Jeffrey Epstein.`\
+https://nytimes.com/2025/08/18/us/politics/fbi-missouri-attorney-general.html
+
 **Cade Horton’s blister is yet another thing going wrong for the Cubs**\
 `Missing Horton for an extended period would not help a team that appears to be reeling.`\
 https://nytimes.com/athletic/6561269/2025/08/18/cade-horton-blister-cubs/
