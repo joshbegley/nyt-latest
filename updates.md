@@ -1,3 +1,15 @@
+**Pirro has ordered her office to maximize criminal charges on street arrests.**\
+`The instruction amounts to a declaration that the understaffed U.S. attorney’s office will seek to ramp up criminal charges arising from the president’s takeover of law enforcement in the capital.`\
+https://nytimes.com/live/2025/08/19/us/trump-news/pirro-has-ordered-her-office-to-maximize-criminal-charges-on-street-arrests
+
+**Seeking Simplicity? These Books Will Help You Banish Clutter**\
+`Clean home, clean mind. Or at least you can try, with the help of several tomes about doing more with less.`\
+https://nytimes.com/2025/08/19/books/review/organization-books.html
+
+**Hot-hitting Mets catcher Francisco Alvarez going on IL after injuring thumb on slide: Source**\
+`Alvarez’s resurgence was a critical development for a Mets team in a prolonged malaise.`\
+https://nytimes.com/athletic/6562878/2025/08/19/francisco-alvarez-mets-right-hand-injury-slide/
+
 **Tennessee Becomes Latest Republican-Led State to Send National Guard to D.C.**\
 `The chair of the Democratic Governors Association, however, warned Republican governors against supporting “a dangerous, politically motivated agenda.”`\
 https://nytimes.com/2025/08/19/us/politics/tennessee-becomes-latest-republican-led-state-to-send-national-guard-to-dc.html
