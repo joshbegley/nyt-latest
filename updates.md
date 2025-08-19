@@ -1,3 +1,7 @@
+**Tell us about your favorite CFB tailgate foods — and why you love them**\
+`We at The Athletic want to celebrate what makes us love college football. Let's hear after your best tailgate food experiences.`\
+https://nytimes.com/athletic/6560685/2025/08/19/college-football-best-tailgate-foods-receipes/
+
 **Napoli complete Miguel Gutierrez transfer from Girona**\
 `The Italian champions have signed the left-back in a deal worth €18million (plus a potential further €2m in bonuses).`\
 https://nytimes.com/athletic/6522120/2025/08/19/napoli-transfers-miguel-gutierrez-girona/
