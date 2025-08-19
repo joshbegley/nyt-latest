@@ -1,3 +1,15 @@
+**Red Wings to retire Sergei Fedorov's No. 91 jersey this season**\
+`DETROIT — Sergei Fedorov is the only Detroit Red Wings player ever to wear No.`\
+https://nytimes.com/athletic/6560466/2025/08/19/red-wings-sergei-fedorov-jersey-retirement/
+
+**The Windup: Pulling Counsell’s burger receipts**\
+`Welcome to The Windup, The Athletic's MLB newsletter.`\
+https://nytimes.com/athletic/6562114/2025/08/19/craig-counsell-cubs-burgers-the-windup/
+
+**In Battle Over D.C. Police, Federal Prosecutors Open Inquiry Into Crime Data**\
+`The same U.S. attorney’s office that praised a drop in crime in the capital in April has begun an investigation into the Police Department resisting President Trump’s takeover.`\
+https://nytimes.com/2025/08/19/us/politics/dc-police-crime-data-investigation.html
+
 **John Kelly fallout, Justin Carbonneau's future, AHL prospects: Blues mailbag, Part 2**\
 `The Blues received significant backlash after firing John Kelly from the broadcast booth, and it was warranted.`\
 https://nytimes.com/athletic/6555494/2025/08/19/blues-john-kelly-carbonneau-prospects/

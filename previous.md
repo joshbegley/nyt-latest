@@ -1,3 +1,15 @@
+**Red Wings to retire Sergei Fedorov's No. 91 jersey this season**\
+`DETROIT — Sergei Fedorov is the only Detroit Red Wings player ever to wear No.`\
+https://nytimes.com/athletic/6560466/2025/08/19/red-wings-sergei-fedorov-jersey-retirement/
+
+**The Windup: Pulling Counsell’s burger receipts**\
+`Welcome to The Windup, The Athletic's MLB newsletter.`\
+https://nytimes.com/athletic/6562114/2025/08/19/craig-counsell-cubs-burgers-the-windup/
+
+**In Battle Over D.C. Police, Federal Prosecutors Open Inquiry Into Crime Data**\
+`The same U.S. attorney’s office that praised a drop in crime in the capital in April has begun an investigation into the Police Department resisting President Trump’s takeover.`\
+https://nytimes.com/2025/08/19/us/politics/dc-police-crime-data-investigation.html
+
 **John Kelly fallout, Justin Carbonneau's future, AHL prospects: Blues mailbag, Part 2**\
 `The Blues received significant backlash after firing John Kelly from the broadcast booth, and it was warranted.`\
 https://nytimes.com/athletic/6555494/2025/08/19/blues-john-kelly-carbonneau-prospects/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/08/19/world/asia/rvs-deforestation-what-know.html
 **Trump Caught Whispering to Macron About a Possible Deal on Ukraine**\
 `Before a roundtable of European leaders in Washington, President Trump was overheard on an open microphone talking to President Emmanuel Macron of France about discussions with the Russian president on the war in Ukraine.`\
 https://nytimes.com/video/us/politics/100000010348665/trump-macron-putin-hot-mic.html
-
-**The Rainforests Being Cleared to Build Your R.V.**\
-`American demand for tropical wood that is used in motor homes, conservationists say, is accelerating the disappearance of some of the world’s largest forests.`\
-https://nytimes.com/2025/08/19/world/asia/indonesia-borneo-deforestation-rv.html
-
-**Relief in Ukraine as Zelensky Avoids Disaster in Washington**\
-`Ukrainian analysts watching their president’s return to the White House were braced for a “nightmare.” They took cautious encouragement from what they saw instead.`\
-https://nytimes.com/2025/08/19/world/europe/ukraine-russia-putin-zelensky-trump-talks.html
-
-**Commanders takeaways: Jayden Daniels, Bill Croskey-Merritt show off their speed**\
-`In the Commanders' second preseason game, we also learned the safety corps is deep and John Bates is a blocking weapon.`\
-https://nytimes.com/athletic/6561898/2025/08/19/jayden-daniels-preseason-commanders-bengals/
 
