@@ -1,3 +1,11 @@
+**Why Were Air Canada Flight Attendants Striking? Boarding Pay Was a Big Issue.**\
+`The strike, which ended on Tuesday, focused attention on why many airlines don’t start paying flight attendants until the plane doors are shut.`\
+https://nytimes.com/2025/08/19/business/air-canada-strike-boarding-pay.html
+
+**Jannik Sinner withdraws from U.S. Open mixed doubles after Cincinnati Open final illness**\
+`Sinner's partnership with doubles great Kateřina Siniaková is over before it has begun.`\
+https://nytimes.com/athletic/6562019/2025/08/19/tennis-jannik-sinner-us-open-mixed-doubles-withdraws-out/
+
 **Red Wings to retire Sergei Fedorov's No. 91 jersey this season**\
 `DETROIT — Sergei Fedorov is the only Detroit Red Wings player ever to wear No.`\
 https://nytimes.com/athletic/6560466/2025/08/19/red-wings-sergei-fedorov-jersey-retirement/

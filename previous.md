@@ -1,3 +1,11 @@
+**Why Were Air Canada Flight Attendants Striking? Boarding Pay Was a Big Issue.**\
+`The strike, which ended on Tuesday, focused attention on why many airlines don’t start paying flight attendants until the plane doors are shut.`\
+https://nytimes.com/2025/08/19/business/air-canada-strike-boarding-pay.html
+
+**Jannik Sinner withdraws from U.S. Open mixed doubles after Cincinnati Open final illness**\
+`Sinner's partnership with doubles great Kateřina Siniaková is over before it has begun.`\
+https://nytimes.com/athletic/6562019/2025/08/19/tennis-jannik-sinner-us-open-mixed-doubles-withdraws-out/
+
 **Red Wings to retire Sergei Fedorov's No. 91 jersey this season**\
 `DETROIT — Sergei Fedorov is the only Detroit Red Wings player ever to wear No.`\
 https://nytimes.com/athletic/6560466/2025/08/19/red-wings-sergei-fedorov-jersey-retirement/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/08/19/business/dealbook/trump-capitalism-intel.html
 **On Fathers and Sons and ‘Unpronounceable’ Names: The Week 9 Winners of Our Summer Reading Contest**\
 `This week we had so many excellent entries, we decided to honor two winners: an essay by William Alexis, 16, and a video by Saanvi Kondoju, 16.`\
 https://nytimes.com/2025/08/19/learning/on-fathers-and-sons-and-unpronounceable-names-the-week-9-winners-of-our-summer-reading-contest.html
-
-**What to Know About R.V.s and Deforested Wood**\
-`There is no viable alternative to a tropical hardwood that grows in Southeast Asia, according to the American R.V. industry.`\
-https://nytimes.com/2025/08/19/world/asia/rvs-deforestation-what-know.html
-
-**Trump Caught Whispering to Macron About a Possible Deal on Ukraine**\
-`Before a roundtable of European leaders in Washington, President Trump was overheard on an open microphone talking to President Emmanuel Macron of France about discussions with the Russian president on the war in Ukraine.`\
-https://nytimes.com/video/us/politics/100000010348665/trump-macron-putin-hot-mic.html
 
