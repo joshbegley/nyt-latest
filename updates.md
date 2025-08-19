@@ -1,3 +1,19 @@
+**Diamondbacks' Ketel Marte addresses reports concerning off day requests**\
+`Marte apologized for missing a key series against the Cardinals and said his goal is to help the Diamondbacks win games.`\
+https://nytimes.com/athletic/6561509/2025/08/18/arizona-diamondbacks-ketel-marte-comments/
+
+**Story Extender**\
+`Eric Rollfing takes us on a puzzle crawl.`\
+https://nytimes.com/2025/08/18/crosswords/daily-puzzle-2025-08-19.html
+
+**‘Take a Banana for the Ride’ Review: Jeff Ross’s Life Makes a Detour**\
+`With mortality on his mind, the insult comic comes to Broadway in a gentle, tough-guy solo show.`\
+https://nytimes.com/2025/08/18/theater/jeff-ross-take-a-banana-for-the-ride-review.html
+
+**A Rush to Washington Seems to Have Paid Off for European Leaders**\
+`Jolted by President Trump’s support for possible land swaps in Ukraine, they went to back President Volodymyr Zelensky, a move that appeared to have accomplished its goal.`\
+https://nytimes.com/2025/08/18/world/europe/europe-trump-zelensky-meeting.html
+
 **Air Force’s Top General to Retire Early**\
 `Gen. David Allvin, the chief of staff of the Air Force, is the latest high-ranking general to exit following President Trump’s purge of Pentagon leadership.`\
 https://nytimes.com/2025/08/18/us/politics/air-force-general-trump-hegseth-pentagon.html
