@@ -1,3 +1,7 @@
+**Europe’s Leaders Succeeded at Summit, but Will That Help End the War?**\
+`The leaders dropped everything to travel to Washington to ensure President Trump didn’t force a bad deal on Ukraine. (He didn’t.) But there is still no road map for peace.`\
+https://nytimes.com/2025/08/19/world/europe/ukraine-trump-meeting-europe-leaders-war.html
+
 **Why Zelensky and European Leaders Are Still Pushing for a Cease-Fire in Ukraine**\
 `Ukraine and its European allies are seeking to persuade President Trump that a cease-fire is a prerequisite for peace talks with Russia.`\
 https://nytimes.com/2025/08/19/us/ukraine-russia-war-ceasefire-trump-europe.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6560402/2025/08/19/travis-jones-ravens-nose-tackle/
 **Jimmy Pitaro's big bet to keep ESPN on top**\
 `The Aug. 21 launch of ESPN's updated app, including new access to all of ESPN's live games without cable, is a huge moment for the network.`\
 https://nytimes.com/athletic/6560777/2025/08/19/jimmy-pitaro-espn-streaming-app-launch-netflix/
-
-**Most underrated member of the Vikings defense? Poetically, it's safety Theo Jackson**\
-`The Vikings are hoping Jackson can follow in the footsteps of Cam Bynum and Josh Metellus and become their next do-it-all safety.`\
-https://nytimes.com/athletic/6560615/2025/08/19/theo-jackson-vikings-defense-underrated/
 
