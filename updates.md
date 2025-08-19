@@ -1,3 +1,11 @@
+**Here’s the latest.**\
+`By Maggie Haberman, David E. Sanger, Neil MacFarquhar, Francesca Regalado and Jeanna Smialek`\
+https://nytimes.com/live/2025/08/19/us/trump-zelensky-ukraine-russia/heres-the-latest
+
+**Live Updates: European Leaders to Discuss Protections for Ukraine After White House Talks**\
+`After hastily arranged meetings with President Trump produced little tangible progress toward peace, Ukraine’s allies focused on security guarantees to keep Russia from invading again.`\
+https://nytimes.com/live/2025/08/19/us/trump-zelensky-ukraine-russia
+
 **Air Canada and Striking Flight Attendants’ Union Reach Tentative Deal**\
 `Thousands of flight attendants must still approve the agreement. The walkout, which began Saturday, has disrupted half a million travelers’ plans, the airline said.`\
 https://nytimes.com/2025/08/19/world/canada/air-canada-strike-flight-attendants-union-deal.html
