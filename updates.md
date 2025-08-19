@@ -1,3 +1,15 @@
+**Fire and Explosion Damage Ship in Baltimore Harbor**\
+`No one was injured in the explosion, which occurred aboard a bulk carrier ship near the site of the collapse of the Francis Scott Key Bridge in 2024.`\
+https://nytimes.com/2025/08/18/us/baltimore-ship-explosion.html
+
+**Greenberg: NL Central race is over, but can Cubs find their bats, heart before October?**\
+`This was supposed to be a make-or-break series. But then the Brewers won 14 straight while the Cubs replaced their bats with pool noodles.`\
+https://nytimes.com/athletic/6561452/2025/08/18/cubs-brewers-nl-central-column/
+
+**With Rush to Washington and Use of Flattery, E.U. Leaders Help Keep Talks On Track**\
+`Jolted by President Trump’s support for possible land swaps in Ukraine, they went to back President Volodymyr Zelensky, a move that appeared to have accomplished its goal.`\
+https://nytimes.com/2025/08/18/world/europe/europe-trump-zelensky-meeting.html
+
 **Diamondbacks' Ketel Marte addresses reports concerning off day requests**\
 `Marte apologized for missing a key series against the Cardinals and said his goal is to help the Diamondbacks win games.`\
 https://nytimes.com/athletic/6561509/2025/08/18/arizona-diamondbacks-ketel-marte-comments/

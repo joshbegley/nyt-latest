@@ -1,3 +1,11 @@
+**Fire and Explosion Damage Ship in Baltimore Harbor**\
+`No one was injured in the explosion, which occurred aboard a bulk carrier ship near the site of the collapse of the Francis Scott Key Bridge in 2024.`\
+https://nytimes.com/2025/08/18/us/baltimore-ship-explosion.html
+
+**Greenberg: NL Central race is over, but can Cubs find their bats, heart before October?**\
+`This was supposed to be a make-or-break series. But then the Brewers won 14 straight while the Cubs replaced their bats with pool noodles.`\
+https://nytimes.com/athletic/6561452/2025/08/18/cubs-brewers-nl-central-column/
+
 **Diamondbacks' Ketel Marte addresses reports concerning off day requests**\
 `Marte apologized for missing a key series against the Cardinals and said his goal is to help the Diamondbacks win games.`\
 https://nytimes.com/athletic/6561509/2025/08/18/arizona-diamondbacks-ketel-marte-comments/
@@ -10,7 +18,7 @@ https://nytimes.com/2025/08/18/crosswords/daily-puzzle-2025-08-19.html
 `With mortality on his mind, the insult comic comes to Broadway in a gentle, tough-guy solo show.`\
 https://nytimes.com/2025/08/18/theater/jeff-ross-take-a-banana-for-the-ride-review.html
 
-**A Rush to Washington Seems to Have Paid Off for European Leaders**\
+**With Rush to Washington and Use of Flattery, E.U. Leaders Help Keep Talks On Track**\
 `Jolted by President Trump’s support for possible land swaps in Ukraine, they went to back President Volodymyr Zelensky, a move that appeared to have accomplished its goal.`\
 https://nytimes.com/2025/08/18/world/europe/europe-trump-zelensky-meeting.html
 
@@ -29,12 +37,4 @@ https://nytimes.com/2025/08/18/us/politics/white-house-summit-diplomacy-courting
 **Blue Jays' Vladimir Guerrero Jr. exits game with left hamstring tightness**\
 `In the event of an extended absence, deadline acquisition Ty France would likely see regular playing time at first base.`\
 https://nytimes.com/athletic/6561450/2025/08/18/toronto-blue-jays-vladimir-guerrero-jr-injury/
-
-**How the Chargers' 'uncoverable' Ladd McConkey is poised to reach greater heights in Year 2**\
-`After a record-setting rookie season, McConkey says his “head’s not spinning as much” compared to last year.`\
-https://nytimes.com/athletic/6561393/2025/08/18/chargers-ladd-mcconkey-year-2/
-
-**Cubs' Kyle Tucker will be benched for mental reset, manager Craig Counsell reveals**\
-`The Cubs are hoping that Tucker will snap out of this funk. They just don’t know when that will happen.`\
-https://nytimes.com/athletic/6561401/2025/08/18/chicago-cubs-kyle-tucker-benching/
 
