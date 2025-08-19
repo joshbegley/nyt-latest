@@ -1,3 +1,7 @@
+**With Mac Jones hurt, 49ers sign another QB, weigh playing Brock Purdy in finale**\
+`Renardo Green and Isaac Guerendo were among those who returned for a practice in which Brock Purdy and Ricky Pearsall continued to connect.`\
+https://nytimes.com/athletic/6563765/2025/08/19/mac-jones-injury-brock-purdy/
+
 **Alexander Isak's statement has set fire to Newcastle - drawing fury but little sign of success**\
 `Isak's public demand to leave might just have made things worse for everybody but that includes himself`\
 https://nytimes.com/athletic/6563682/2025/08/19/alexander-isak-newcastle-transfer-statement/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/19/us/arizona-stabbing-high-school.html
 **At Hamptons Fund-Raiser, Cuomo Predicts Help From Trump Is on the Way**\
 `Andrew M. Cuomo, who trails in the polls for New York City mayor, is said to have told a crowd of donors that he believed President Trump would help smooth his path to victory.`\
 https://nytimes.com/2025/08/19/nyregion/cuomo-trump-nyc-mayor-hamptons.html
-
-**What’s Next for the Ukraine Peace Talks?**\
-`President Trump says President Vladimir V. Putin of Russia has agreed to meet with President Volodymyr Zelensky of Ukraine, but Mr. Putin has not confirmed.`\
-https://nytimes.com/2025/08/19/us/ukraine-peace-talks-trump-putin.html
 
