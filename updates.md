@@ -1,3 +1,15 @@
+**The Bounce: NBA’s 40 best lead guards, ranked**\
+`Catching you up on the leaguewide news you need to know.`\
+https://nytimes.com/athletic/6562495/2025/08/19/nba-lead-guard-rankings-sga-luka/
+
+**No Tariff Exemption for European Wine and Spirits, at Least for Now**\
+`As the text of a trade agreement comes together, European Union negotiators haven’t convinced the Americans to cut alcohol tariffs to zero.`\
+https://nytimes.com/2025/08/19/world/europe/tariff-exemption-european-wine-spirits.html
+
+**OpenAI in Deal Talks That Would Value the Company at $500 Billion**\
+`At $500 billion, OpenAI would become the world’s most valuable privately held company.`\
+https://nytimes.com/2025/08/19/technology/openai-chatgpt-stock-sale-valuation.html
+
 **Until Saturday: Judging Auburn's 7 new title claims**\
 `Until Saturday is The Athletic's free CFB newsletter.`\
 https://nytimes.com/athletic/6563070/2025/08/19/auburn-national-championships-claims-until-saturday/

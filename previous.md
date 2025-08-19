@@ -1,3 +1,15 @@
+**The Bounce: NBA’s 40 best lead guards, ranked**\
+`Catching you up on the leaguewide news you need to know.`\
+https://nytimes.com/athletic/6562495/2025/08/19/nba-lead-guard-rankings-sga-luka/
+
+**No Tariff Exemption for European Wine and Spirits, at Least for Now**\
+`As the text of a trade agreement comes together, European Union negotiators haven’t convinced the Americans to cut alcohol tariffs to zero.`\
+https://nytimes.com/2025/08/19/world/europe/tariff-exemption-european-wine-spirits.html
+
+**OpenAI in Deal Talks That Would Value the Company at $500 Billion**\
+`At $500 billion, OpenAI would become the world’s most valuable privately held company.`\
+https://nytimes.com/2025/08/19/technology/openai-chatgpt-stock-sale-valuation.html
+
 **Until Saturday: Judging Auburn's 7 new title claims**\
 `Until Saturday is The Athletic's free CFB newsletter.`\
 https://nytimes.com/athletic/6563070/2025/08/19/auburn-national-championships-claims-until-saturday/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6445104/2025/08/19/leandro-trossard-arsenal-contrac
 **Mike Castle, Bipartisan Delaware Congressman, Dies at 86**\
 `A fiscal conservative who supported gun control and other liberal causes, he was the last Republican elected to serve his state as governor and to represent it in the House.`\
 https://nytimes.com/2025/08/19/us/politics/mike-castle-dead.html
-
-**Dine in a Palace of Mirrors at Musaafer**\
-`El Rey Tacos brings Mexico City style to Times Square, the Blue Vault adds a speakeasy option to the theater district and more news.`\
-https://nytimes.com/2025/08/19/dining/nyc-restaurant-news.html
-
-**Fantasy Scoop: Who is Jacory 'Bill' Croskey-Merritt?**\
-`Meet the Commanders' running back who caused a social media frenzy. Plus: Fantasy implications of Joe Flacco and Matthew Stafford situations`\
-https://nytimes.com/athletic/6563003/2025/08/19/washington-jacory-bill-croskey-merritt-fantasy-football-nfl/
-
-**Defying fantasy football conventions, from Saquon Barkley to Justin Jefferson**\
-`Michael Salfino looks at some commonly held beliefs in fantasy football that could lead to managers overpaying on draft day.`\
-https://nytimes.com/athletic/6562708/2025/08/19/fantasy-football-2025-saquon-barkley-justin-jefferson/
 
