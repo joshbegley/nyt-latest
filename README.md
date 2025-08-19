@@ -1,3 +1,7 @@
+**Tell us about your favorite CFB tailgate foods — and why you love them**\
+`We at The Athletic want to celebrate what makes us love college football. Let's hear after your best tailgate food experiences.`\
+https://nytimes.com/athletic/6560685/2025/08/19/college-football-best-tailgate-foods-receipes/
+
 **Napoli complete Miguel Gutierrez transfer from Girona**\
 `The Italian champions have signed the left-back in a deal worth €18million (plus a potential further €2m in bonuses).`\
 https://nytimes.com/athletic/6522120/2025/08/19/napoli-transfers-miguel-gutierrez-girona/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/19/us/politics/church-endorsements-irs-kenosha.html
 **Fan interference call overturns Bogaerts' HR, Shildt ejected in tough Padres loss**\
 `The Padres’ losing streak reached four games in part as a result of the play reversal. San Diego dropped to two games out of first place.`\
 https://nytimes.com/athletic/6562241/2025/08/19/padres-giants-xander-bogaerts-home-run-fan-interference/
-
-**Milan Lucic joins Blues on professional tryout in NHL comeback attempt**\
-`Lucic, 37, has played 17 NHL seasons with the Bruins, Kings, Oilers and Flames, but last appeared in a game in 2023. `\
-https://nytimes.com/athletic/6562175/2025/08/19/milan-lucic-blues-nhl-tryout-contract-pto/
 

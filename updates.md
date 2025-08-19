@@ -1,3 +1,11 @@
+**Napoli complete Miguel Gutierrez transfer from Girona**\
+`The Italian champions have signed the left-back in a deal worth €18million (plus a potential further €2m in bonuses).`\
+https://nytimes.com/athletic/6522120/2025/08/19/napoli-transfers-miguel-gutierrez-girona/
+
+**Ukraine welcomes NATO-like security guarantees with caution.**\
+`By Constant Méheut`\
+https://nytimes.com/live/2025/08/19/us/trump-zelensky-ukraine-russia/ukraine-security-guarantees
+
 **Cleveland's WNBA expansion team hires Allison Howard as team president**\
 `Executive has previous experience leading an expansion team as the first president of the NWSL's Kansas City Current.`\
 https://nytimes.com/athletic/6561591/2025/08/19/wnba-cleveland-expansion-team-first-hire/
