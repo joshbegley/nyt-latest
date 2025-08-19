@@ -1,3 +1,7 @@
+**OpenAI in Deal Talks That Would Value the Company at $500 Billion**\
+`At $500 billion, OpenAI would become the world’s most valuable privately held company.`\
+https://nytimes.com/2025/08/19/technology/openai-chatgpt-stock-sale-valuation.html
+
 **Until Saturday: Judging Auburn's 7 new title claims**\
 `Until Saturday is The Athletic's free CFB newsletter.`\
 https://nytimes.com/athletic/6563070/2025/08/19/auburn-national-championships-claims-until-saturday/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/19/dining/nyc-restaurant-news.html
 **Fantasy Scoop: Who is Jacory 'Bill' Croskey-Merritt?**\
 `Meet the Commanders' running back who caused a social media frenzy. Plus: Fantasy implications of Joe Flacco and Matthew Stafford situations`\
 https://nytimes.com/athletic/6563003/2025/08/19/washington-jacory-bill-croskey-merritt-fantasy-football-nfl/
-
-**Defying fantasy football conventions, from Saquon Barkley to Justin Jefferson**\
-`Michael Salfino looks at some commonly held beliefs in fantasy football that could lead to managers overpaying on draft day.`\
-https://nytimes.com/athletic/6562708/2025/08/19/fantasy-football-2025-saquon-barkley-justin-jefferson/
 
