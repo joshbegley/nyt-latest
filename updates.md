@@ -1,3 +1,7 @@
+**Everton are tepid and tentative. They are a team still crying out for additions**\
+`David Moyes' pre-season warning that his squad might not be ready proved prophetic as Leeds exposed the holes in the visitors' options`\
+https://nytimes.com/athletic/6561308/2025/08/19/everton-moyes-window-grealish-leeds/
+
 **Walk-off loss to Rockies highlights Teoscar Hernández's defensive struggles for Dodgers**\
 `The Dodgers appeared to be one out away from pushing the game into extra innings. Until they weren’t.`\
 https://nytimes.com/athletic/6561720/2025/08/19/dodgers-walk-off-loss-teoscar-hernandez-rockies/
