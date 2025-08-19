@@ -1,3 +1,7 @@
+**Everton are tepid and tentative. They are a team still crying out for additions**\
+`David Moyes' pre-season warning that his squad might not be ready proved prophetic as Leeds exposed the holes in the visitors' options`\
+https://nytimes.com/athletic/6561308/2025/08/19/everton-moyes-window-grealish-leeds/
+
 **Walk-off loss to Rockies highlights Teoscar Hernández's defensive struggles for Dodgers**\
 `The Dodgers appeared to be one out away from pushing the game into extra innings. Until they weren’t.`\
 https://nytimes.com/athletic/6561720/2025/08/19/dodgers-walk-off-loss-teoscar-hernandez-rockies/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6560142/2025/08/19/xabi-alonso-real-madrid-rebuild-
 **Watching Matheus Cunha's Man United debut at his first futsal club in Brazil: 'He looked at home, relaxed'**\
 `Locals gathered at CT Barao in Recife's Paramirim neighbourhood to watch a former alumnus on the big stage. The Athletic went, too...`\
 https://nytimes.com/athletic/6560200/2025/08/19/matheus-cunha-man-united-debut-brazil/
-
-**Row Z: Chelsea's defensive headache, FIFA football, and Heaton's wait goes on**\
-`Our weekly look at the whackier side of the game also looks at Racing Club seeking to disguise their signing of Marcos Rojo`\
-https://nytimes.com/athletic/6560024/2025/08/19/maresca-chelsea-fifa-heaton-rojo-row-z/
 
