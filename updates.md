@@ -1,3 +1,19 @@
+**John Metchie III's rapid Eagles intro begins with A.J. Brown, DeVonta Smith on sideline**\
+`Plus, notes from practice, including an update on Tanner McKee's injury.`\
+https://nytimes.com/athletic/6563356/2025/08/19/john-metchies-eagles-a-j-brown-devonta-smith/
+
+**Luis Suarez open to Inter Miami contract, retirement with Messi: 'It could happen'**\
+`Despite physical setbacks, Suarez’s drive remains strong, fueled by a shared dream with Messi to retire together.`\
+https://nytimes.com/athletic/6563345/2025/08/19/suarez-messi-inter-miami-contract-mls/
+
+**ICE Wrongly Suggests Lawmaker Doxxed Agents, and Racist Threats Follow**\
+`A state representative in Connecticut had posted on Instagram about immigration enforcement efforts in his district but did not give detailed information.`\
+https://nytimes.com/2025/08/19/nyregion/ice-connecticut-legislator-threats.html
+
+**College football has never made sense. Auburn, with its national title claims, is getting in on the fun**\
+`Auburn adding seven national titles in mid-August might be absurd. But I say let Auburn cook.`\
+https://nytimes.com/athletic/6562953/2025/08/19/auburn-football-national-titles-claim-2004/
+
 **Attacker Stabs Colorado Park Ranger and Flees**\
 `A manhunt was underway for the attacker as the ranger was airlifted to a hospital with serious but non-life-threatening injuries after the episode at Staunton State Park, the authorities said.`\
 https://nytimes.com/2025/08/19/us/colorado-park-ranger-stabbed-manhunt.html
