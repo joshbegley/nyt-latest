@@ -1,3 +1,15 @@
+**First look at NASCAR's 2026 Cup Series schedule, from Daytona to Homestead**\
+`Here's a first look at NASCAR's 2026 Cup Series schedule and where San Diego, Chicagoland and North Wilkesboro's new points race fit in.`\
+https://nytimes.com/athletic/6548777/2025/08/19/nascar-2026-cup-series-schedule-san-diego-chicagoland/
+
+**Why Can’t the U.S. Build 5-Minute E.V. Chargers?**\
+`Chinese automakers have rolled out chargers that can mostly recharge a car’s battery in about five minutes. Yet U.S. technology lags far behind.`\
+https://nytimes.com/2025/08/19/climate/us-electric-vehicle-chargers-china.html
+
+**We Just Updated our Portland, Ore., Dining Guide**\
+`A meat lovers’ destination and a vegan paradise join our list of the 25 best restaurants in the City of Roses.`\
+https://nytimes.com/2025/08/19/dining/where-to-eat-portland.html
+
 **Gazans Optimistic After Hamas Accepts New Cease-Fire Deal**\
 `Palestinians in Khan Younis, Gaza, expressed hope that Israel would accept a cease-fire deal put forward by Egypt and Qatar, which would include the release of Israeli hostages and Palestinian prisoners.`\
 https://nytimes.com/video/world/middleeast/100000010349345/gaza-cease-fire-israel.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6563070/2025/08/19/auburn-national-championships-cl
 **National Guard Troops in Washington Stick to Tourist Areas**\
 `The number of troops in the city is expected to grow. But Army officials appear to be trying to keep them on the sidelines of President Trump’s mission.`\
 https://nytimes.com/2025/08/19/us/politics/tourists-national-guard-washington.html
-
-**Who’s in Charge of Trump’s Cultural Realignment? Here Are Key Players.**\
-`These five people are among those leading the president’s efforts to put his stamp on national cultural institutions, buildings and policies.`\
-https://nytimes.com/2025/08/19/arts/design/trump-cultural-leaders-smithsonian-ballroom-garden-kennedy-center.html
-
-**Ring the Alarm for 13 Killer Dancehall Cuts**\
-`Trace the evolution of the genre over the decades via songs by Sister Nancy, Cutty Ranks, Super Cat and more.`\
-https://nytimes.com/2025/08/19/arts/music/amplifier-newsletter-dancehall-songs.html
-
-**‘I Want to Try and Get to Heaven’: Trump Gets Reflective on ‘Fox & Friends’**\
-`President Trump cast his effort to broker peace in Ukraine in existential terms.`\
-https://nytimes.com/2025/08/19/us/politics/trump-heaven.html
 
