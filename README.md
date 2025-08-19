@@ -1,3 +1,15 @@
+**John Kelly fallout, Justin Carbonneau's future, AHL prospects: Blues mailbag, Part 2**\
+`The Blues received significant backlash after firing John Kelly from the broadcast booth, and it was warranted.`\
+https://nytimes.com/athletic/6555494/2025/08/19/blues-john-kelly-carbonneau-prospects/
+
+**'The Sports Gossip Show' hosts answer your burning questions**\
+`It’s been a crazy few weeks. We joined The Athletic, and Jordon Hudson and Taylor Swift episodes quickly followed. Now we need answers. `\
+https://nytimes.com/athletic/6558911/2025/08/19/sports-gossip-show-mailbag/
+
+**Wardrobes Shaped by Music**\
+`A couple’s style took cues from Wu-Tang Clan and Anita Baker.`\
+https://nytimes.com/2025/08/19/style/street-style-look-music-inspired-fashion.html
+
 **Trump May Expand His Revision of U.S. Capitalism**\
 `The White House’s deliberations about taking a stake in Intel could upend the technology sector — and further redefine how Washington deals with business.`\
 https://nytimes.com/2025/08/19/business/dealbook/trump-capitalism-intel.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/08/19/world/europe/ukraine-russia-putin-zelensky-trump-
 **Commanders takeaways: Jayden Daniels, Bill Croskey-Merritt show off their speed**\
 `In the Commanders' second preseason game, we also learned the safety corps is deep and John Bates is a blocking weapon.`\
 https://nytimes.com/athletic/6561898/2025/08/19/jayden-daniels-preseason-commanders-bengals/
-
-**Submit your questions for 'The Athletic Hockey Show' Prospect Series**\
-`Have a question about an NHL prospect, the draft or your favorite team’s farm system? It may be answered on a podcast episode this season.`\
-https://nytimes.com/athletic/6560710/2025/08/19/the-athletic-hockey-show-prospect-series-listener-questions/
-
-**Seahawks WR Dareke Young’s confidence surging at just the right time**\
-`Entering a contract year, Young is in position to not only earn a roster spot, but also push for playing time on offense.`\
-https://nytimes.com/athletic/6561088/2025/08/19/seahawks-preseason-dareke-young-wide-receiver/
-
-**Do Packers truly have an open competition at left tackle? They just might**\
-`The 2024 first-round pick Jordan Morgan has impressed while filling in for the injured Rasheed Walker in recent weeks.`\
-https://nytimes.com/athletic/6560828/2025/08/19/packers-jordan-morgan-rasheed-walker-left-tackle/
 
