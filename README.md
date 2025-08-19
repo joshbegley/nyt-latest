@@ -1,9 +1,21 @@
+**As José Alvarado returns to crowded Phillies bullpen, can Jordan Romano justify his spot?**\
+`Romano cannot pitch multiple innings, and he's recorded three outs in only one of his six outings this month.`\
+https://nytimes.com/athletic/6563707/2025/08/19/philadelphia-phillies-jordan-romano-bullpen-design/
+
+**Deadly Flash Floods Lash Northern Pakistan**\
+`Torrential rains continued pouring on dozens of villages in northern Pakistan, triggering flash floods that have wiped out houses and killed hundreds.`\
+https://nytimes.com/video/world/asia/100000010350391/pakistan-flash-floods-monsoon.html
+
+**North Carolina Beach Towns Brace for a Surge of Dangerous Seas**\
+`Most of the tourists have left Ocracoke Island, and the surfers are watching closely as deadly rip currents lurk below the waves.`\
+https://nytimes.com/2025/08/19/weather/hurricane-erin-north-carolina-evacuations.html
+
 **Stabbing at Arizona High School Leaves 1 Student Dead, Officials Say**\
 `A fight between two students at Maryvale High School in Phoenix on Tuesday left one fatally stabbed and the other with non-life-threatening injuries, the agency said.`\
 https://nytimes.com/2025/08/19/us/arizona-stabbing-high-school.html
 
 **At Hamptons Fund-Raiser, Cuomo Predicts Help From Trump Is on the Way**\
-`Former Gov. Andrew M. Cuomo, who trails in the polls for New York City mayor, is said to have told a crowd of wealthy donors that he believed President Trump would help line up support behind him.`\
+`Andrew M. Cuomo, who trails in the polls for New York City mayor, is said to have told a crowd of donors that he believed President Trump would help smooth his path to victory.`\
 https://nytimes.com/2025/08/19/nyregion/cuomo-trump-nyc-mayor-hamptons.html
 
 **What’s Next for the Ukraine Peace Talks?**\
@@ -25,16 +37,4 @@ https://nytimes.com/2025/08/19/us/politics/kilmar-abrego-garcia-trump-prosecutio
 **Cincinnati dismisses guard Jizzle James from team amid 'personal issues'**\
 `James was Cincinnati's top scorer last season and a productive playmaker, averaging 12.7 points and team-best 3.5 assists per game.`\
 https://nytimes.com/athletic/6563424/2025/08/19/cincinnati-jizzle-james-edgerrin-ncaa-basketball/
-
-**Trump Said He Would Not Send Troops to Ukraine**\
-`Also, hundreds more troops are headed to Washington. Here’s the latest at the end of Tuesday.`\
-https://nytimes.com/2025/08/19/briefing/trump-us-troops-ukraine-open-ai.html
-
-**Potential new Trail Blazers ownership hopes to close deal by end of March**\
-`Tom Dundon has reached an exclusivity agreement with the estate, which means there will be no negotiations with other interested buyers.`\
-https://nytimes.com/athletic/6563404/2025/08/19/potential-trail-blazers-ownership-close-deal-march/
-
-**Aaron Rodgers won't play in preseason finale, sitting entire preseason for second straight year**\
-`The quarterback will make his Steelers debut in Week 1 of the regular season, against his former team, the Jets.`\
-https://nytimes.com/athletic/6563507/2025/08/19/aaron-rodgers-sits-out-preseason/
 

@@ -1,3 +1,7 @@
+**Stabbing at Arizona High School Leaves 1 Student Dead, Officials Say**\
+`A fight between two students at Maryvale High School in Phoenix on Tuesday left one fatally stabbed and the other with non-life-threatening injuries, the agency said.`\
+https://nytimes.com/2025/08/19/us/arizona-stabbing-high-school.html
+
 **At Hamptons Fund-Raiser, Cuomo Predicts Help From Trump Is on the Way**\
 `Former Gov. Andrew M. Cuomo, who trails in the polls for New York City mayor, is said to have told a crowd of wealthy donors that he believed President Trump would help line up support behind him.`\
 https://nytimes.com/2025/08/19/nyregion/cuomo-trump-nyc-mayor-hamptons.html
