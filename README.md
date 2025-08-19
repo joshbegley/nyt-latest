@@ -1,3 +1,7 @@
+**Russia rejects placing Western peacekeepers in Ukraine, despite Trump’s suggestions Putin is fine with it.**\
+`By Paul Sonne`\
+https://nytimes.com/live/2025/08/19/us/trump-zelensky-ukraine-russia/western-forces-nato-peacekeepers-trump
+
 **PGA Tour's Miami Championship heading to Trump National Doral in 2026**\
 `Miami has received signature event status, making it one of nine higher-stakes tournaments where only top players are qualified.`\
 https://nytimes.com/athletic/6562637/2025/08/19/miami-championship-trump-national-doral/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6562112/2025/08/19/savion-hiter-michigan-recruiting
 **Rick Carlisle, Pacers agree to multiyear contract extension: Source**\
 `In his second stint as Indiana's coach, Carlisle led the Pacers to their first NBA Finals appearance since 2000.`\
 https://nytimes.com/athletic/6562471/2025/08/19/pacers-rick-carlisle-contract-extension-nba/
-
-**Auburn formally claims seven additional football national titles, bringing school total to nine**\
-`Claiming national titles is a long-held tradition in major college football, where the NCAA has never held any authority to run a playoff.`\
-https://nytimes.com/athletic/6562375/2025/08/19/auburn-football-national-championships-claimed/
 
