@@ -1,3 +1,11 @@
+**Cubs' Kyle Tucker will be benched for mental reset, manager Craig Counsell reveals**\
+`The Cubs are hoping that Tucker will snap out of this funk. They just don’t know when that will happen.`\
+https://nytimes.com/athletic/6561401/2025/08/18/chicago-cubs-kyle-tucker-benching/
+
+**Can Zelensky Trust Trump? Ukraine’s Fate May Depend on the Answer.**\
+`President Trump has offered only vague assurances of security guarantees for Ukraine if President Volodymyr Zelensky agrees to cut a deal with Russia.`\
+https://nytimes.com/2025/08/18/us/politics/zelensky-trump-ukraine-trust.html
+
 **Iga Świątek's Cincinnati Open win a message to U.S. Open field: Watch out**\
 `World No. 2 defeats feisty Jasmine Paolini in final to earn her first title on a hard court since March of 2024.`\
 https://nytimes.com/athletic/6561392/2025/08/18/iga-swiatek-cincinnati-open-win-jasmine-paolini/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/08/18/us/politics/national-guard-dc-trump-mississippi-l
 **Trump Just Reminded Me of Why I’m Still a Neocon**\
 `By putting the interests of what Trump calls “peace” ahead of the interests of freedom, we are all-but guaranteeing that Ukraine will lose both.`\
 https://nytimes.com/2025/08/18/opinion/trump-israel-ukraine-zelensky.html
-
-**Zelensky, European Leaders Push Trump for Security Guarantees**\
-`President Trump met with President Volodymyr Zelensky of Ukraine and several other European leaders on Monday to discuss the terms for a potential cease-fire with Russia.`\
-https://nytimes.com/video/us/politics/100000010347694/trump-zelensky-ukraine-war-negotiations.html
-
-**Texas Tech RB Quinten Joyner expected to miss season with knee injury: Sources**\
-`The 5-foot-11, 215-pound Joyner, a sophomore from Austin, rushed for 478 yards, averaging 7.6 yards per carry in 2024.`\
-https://nytimes.com/athletic/6561259/2025/08/18/texas-tech-quinten-joyner-injury/
 
