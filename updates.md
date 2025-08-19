@@ -1,3 +1,7 @@
+**With Mac Jones hurt, 49ers sign another QB, weigh playing Brock Purdy in finale**\
+`Renardo Green and Isaac Guerendo were among those who returned for a practice in which Brock Purdy and Ricky Pearsall continued to connect.`\
+https://nytimes.com/athletic/6563765/2025/08/19/mac-jones-injury-brock-purdy/
+
 **Alexander Isak's statement has set fire to Newcastle - drawing fury but little sign of success**\
 `Isak's public demand to leave might just have made things worse for everybody but that includes himself`\
 https://nytimes.com/athletic/6563682/2025/08/19/alexander-isak-newcastle-transfer-statement/
