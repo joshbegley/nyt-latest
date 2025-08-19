@@ -1,3 +1,19 @@
+**Alexander Isak's statement has set fire to Newcastle - drawing fury but little sign of success**\
+`Isak's public demand to leave might just have made things worse for everybody but that includes himself`\
+https://nytimes.com/athletic/6563682/2025/08/19/alexander-isak-newcastle-transfer-statement/
+
+**For Trump, Flashy Summits Come First. Grunt Work Comes Next.**\
+`Diplomats scrambled to come up with detailed proposals for security guarantees and other sticking points following two high-level summits in Alaska and Washington.`\
+https://nytimes.com/2025/08/19/us/politics/trump-summits-putin-zelensky.html
+
+**The Ukrainian children abducted by Russia have become a prominent issue in peace talks.**\
+`By Matthew Mpoke Bigg`\
+https://nytimes.com/live/2025/08/19/us/trump-zelensky-ukraine-russia/the-ukrainian-children-abducted-by-russia-have-become-a-prominent-issue-in-peace-talks
+
+**Newly Discovered Origami Patterns Put the Bloom on the Fold**\
+`Bloom patterns could be useful, as engineers build folding structures to send to outer space. They’re also very pretty.`\
+https://nytimes.com/2025/08/19/science/origami-bloom-patterns.html
+
 **As José Alvarado returns to crowded Phillies bullpen, can Jordan Romano justify his spot?**\
 `Romano cannot pitch multiple innings, and he's recorded three outs in only one of his six outings this month.`\
 https://nytimes.com/athletic/6563707/2025/08/19/philadelphia-phillies-jordan-romano-bullpen-design/
@@ -21,20 +37,4 @@ https://nytimes.com/2025/08/19/nyregion/cuomo-trump-nyc-mayor-hamptons.html
 **What’s Next for the Ukraine Peace Talks?**\
 `President Trump says President Vladimir V. Putin of Russia has agreed to meet with President Volodymyr Zelensky of Ukraine, but Mr. Putin has not confirmed.`\
 https://nytimes.com/2025/08/19/us/ukraine-peace-talks-trump-putin.html
-
-**Orlando Pride finalizing world-record transfer for Mexico's Lizbeth Ovalle**\
-`The Pride, who play in the National Women's Soccer League (NWSL), is expected to spend $1.5 million in fees to acquire the forward.`\
-https://nytimes.com/athletic/6562110/2025/08/19/orlando-pride-lizbeth-ovalle-transfer-record/
-
-**Israel Says It Killed a Hamas Militant Involved in Yarden Bibas Kidnapping**\
-`Mr. Bibas, his wife and their two small children were abducted and taken to Gaza. Only he survived.`\
-https://nytimes.com/2025/08/19/world/middleeast/hamas-israel-bibas-kidnapping.html
-
-**Abrego Garcia’s Lawyers Accuse Justice Dept. of Vindictive Prosecution**\
-`It was the second time that Mr. Abrego Garcia’s lawyers have sought to hold the Trump administration accountable over its handling of his expulsion to El Salvador and its aftermath.`\
-https://nytimes.com/2025/08/19/us/politics/kilmar-abrego-garcia-trump-prosecution.html
-
-**Cincinnati dismisses guard Jizzle James from team amid 'personal issues'**\
-`James was Cincinnati's top scorer last season and a productive playmaker, averaging 12.7 points and team-best 3.5 assists per game.`\
-https://nytimes.com/athletic/6563424/2025/08/19/cincinnati-jizzle-james-edgerrin-ncaa-basketball/
 
