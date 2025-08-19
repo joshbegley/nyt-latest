@@ -1,3 +1,7 @@
+**Britain Drops Request That Apple Create a Back Door**\
+`The Trump administration says that law enforcement organizations in Britain would back off asking the company for a tool to access customers’ data.`\
+https://nytimes.com/2025/08/19/technology/britain-apple-back-door.html
+
 **Tuesday Briefing: Crucial Talks on Ukraine**\
 `Also, China’s robot games.`\
 https://nytimes.com/2025/08/19/briefing/tuesday-briefing-crucial-talks-on-ukraine.html
