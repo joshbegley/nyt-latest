@@ -1,40 +1,40 @@
-**Europe’s Leaders Succeeded at Summit, but Will That Help End the War?**\
-`The leaders dropped everything to travel to Washington to ensure President Trump didn’t force a bad deal on Ukraine. (He didn’t.) But there is still no road map for peace.`\
-https://nytimes.com/2025/08/19/world/europe/ukraine-trump-meeting-europe-leaders-war.html
+**Netanyahu Faces Pressure From Far Right Over New Cease-Fire Proposal**\
+`Some members of Israel’s coalition have ruled out a proposed hostage deal with Hamas, but the prime minister has yet to state his position.`\
+https://nytimes.com/2025/08/19/world/middleeast/netanyahu-faces-pressure-from-far-right-over-new-cease-fire-proposal.html
 
-**Why Zelensky and European Leaders Are Still Pushing for a Cease-Fire in Ukraine**\
-`Ukraine and its European allies are seeking to persuade President Trump that a cease-fire is a prerequisite for peace talks with Russia.`\
-https://nytimes.com/2025/08/19/us/ukraine-russia-war-ceasefire-trump-europe.html
+**A United Front?**\
+`We look at what happened during Ukraine peace talks at the White House.`\
+https://nytimes.com/2025/08/19/briefing/ukraine-peace-talks-white-house.html
 
-**Securing Postwar Ukraine, Even With Trump’s Pledge to Help, Is Complex**\
-`Russia seems unlikely to agree to Western troops in Ukraine as part of any deal to end the war.`\
-https://nytimes.com/2025/08/19/world/europe/ukraine-security-guarantees-trump.html
+**A college football guide for the bandwagon fan: Why you should cheer for Florida, Utah and Iowa**\
+`Are you frustrated with your team's coach? Are you new to the sport and looking for a team to support? We've got you covered.`\
+https://nytimes.com/athletic/6559123/2025/08/19/college-football-2025-season-florida-utah-georgia-tech-iowa/
 
-**TAFC: The killing of the ‘Palestinian Pele’. Plus: Dutch football's criminal underworld**\
-`Answering Mohamed Salah's questions over the death of Suleiman Obeid`\
-https://nytimes.com/athletic/6561961/2025/08/19/palestinian-pele-mohamed-salah-tafc/
+**Cardinals manager Oli Marmol on his job status, management style and more**\
+`The fourth-year skipper speaks extensively about the craft of managing in an exclusive interview with The Athletic.`\
+https://nytimes.com/athletic/6560926/2025/08/19/oli-marmol-cardinals-interview-q-and-a/
 
-**Who will win the national title? Our staff predicts the CFP, Heisman and more**\
-`Who our 28 college football staffers believe will win the national title (Texas?), the Heisman (not Arch?) and more, plus bold predictions.`\
-https://nytimes.com/athletic/6560979/2025/08/19/college-football-playoff-heisman-conference-predictions/
+**NHL hype-o-meter: What to get excited about for the upcoming season**\
+`It's time to crank up the hype-o-meter and look at interesting developments building up this summer, despite the boring offseason.`\
+https://nytimes.com/athletic/6561274/2025/08/19/nhl-offseason-hype-o-meter-2025/
 
-**Browns roster analysis: Which players are 53-man locks, which are on the bubble?**\
-`After joint practices against two teams and two preseason games, we take a look at where the roster stands one week before cutdown day.`\
-https://nytimes.com/athletic/6560569/2025/08/19/browns-53-man-roster-analysis-preseason/
+**Bills bubble watch: Which players make it and who is in danger of not making 2025 roster?**\
+`While many positions are already secured, several players are still hoping to play their way onto the final roster.`\
+https://nytimes.com/athletic/6560872/2025/08/19/buffalo-bills-bubble-watch-players-cut-roster-2025/
 
-**The Pulse: A matchup of stars gets spoiled**\
-`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
-https://nytimes.com/athletic/6560670/2025/08/19/sinner-alcaraz-cincinnati-open-the-pulse/
+**Giants QB Russell Wilson tumbles in QB Tiers: Can he recapture his 'lost magic'?**\
+`Can Wilson hold off Father Time — and Jaxson Dart — in 2025?`\
+https://nytimes.com/athletic/6560485/2025/08/19/giants-russell-wilson-nfl-quarterback-tiers-2025/
 
-**Morecambe appoint first Sikh manager in British professional football**\
-`The 30-year-old, who has never previously managed a senior side, succeeds Derek Adams, who was sacked by Morecambe's new owners on Monday.`\
-https://nytimes.com/athletic/6561912/2025/08/19/morecambe-sikh-manager-ashvir-singh-johal/
+**Amid a ‘thriving’ moment, MLB makes top-notch healthcare plan more expensive to employees**\
+`MLB has made a change to its employee health benefits, though they remain more generous than most private plans. `\
+https://nytimes.com/athletic/6556414/2025/08/19/mlb-health-care-plan-more-expensive/
 
-**Travis Jones is Ravens' best player you know nothing about — and that's how he wants it**\
-`On a defense stocked in big personalities with big resumes, the massive fourth-year nose tackle always finds a way to stand out. `\
-https://nytimes.com/athletic/6560402/2025/08/19/travis-jones-ravens-nose-tackle/
+**USC commit Boobie Feaster is the modern recruit — agents, NIL, reclassification and all**\
+`Feaster, who will be only 16 when he graduates DeSoto (Texas) HS, had 25 scholarship offers before he played a down of varsity football. `\
+https://nytimes.com/athletic/6556345/2025/08/19/usc-football-commit-boobie-feaster-nil/
 
-**Jimmy Pitaro's big bet to keep ESPN on top**\
-`The Aug. 21 launch of ESPN's updated app, including new access to all of ESPN's live games without cable, is a huge moment for the network.`\
-https://nytimes.com/athletic/6560777/2025/08/19/jimmy-pitaro-espn-streaming-app-launch-netflix/
+**Vladimir Guerrero Jr.’s health is top concern after messy Blue Jays loss**\
+`Monday's loss was undeniably messy. The greater concern, however, hovers around Guerrero.`\
+https://nytimes.com/athletic/6561622/2025/08/19/vladimir-guerrero-jr-injury-messy-loss-blue-jays/
 
