@@ -1,3 +1,11 @@
+**Air Canada and Striking Flight Attendants’ Union Reach Tentative Deal**\
+`Thousands of flight attendants must still approve the agreement. The walkout, which began Saturday, has disrupted half a million travelers’ plans, the airline said.`\
+https://nytimes.com/2025/08/19/world/canada/air-canada-strike-flight-attendants-union-deal.html
+
+**The New York Times International Edition in Print for Wednesday, Aug. 20, 2025**\
+``\
+https://nytimes.com/issue/todaysinyt/2025/08/19/todays-new-york-times-international-edition
+
 **There's a cool WNBA double-header tonight. Here's how to see Lynx-Liberty and Dream-Aces**\
 `There are two out-of-market games on national TV. Here's how to watch four of the WNBA's best teams Tuesday night.`\
 https://nytimes.com/athletic/6561166/2025/08/19/lynx-liberty-dream-aces-wnba-how-to-watch/
