@@ -1,3 +1,7 @@
+**Willy Adames expects emotion, and maybe some inspiration, in weekend return to Milwaukee**\
+`The high-flying Brewers play a different style of baseball. San Francisco's shortstop, under contract for six more seasons, has noticed.`\
+https://nytimes.com/athletic/6561709/2025/08/19/sf-giants-willy-adames-milwaukee-brewers-return/
+
 **Netanyahu Faces Pressure From Far Right Over New Cease-Fire Proposal**\
 `Some members of Israel’s coalition have ruled out a proposed hostage deal with Hamas, but the prime minister has yet to state his position.`\
 https://nytimes.com/2025/08/19/world/middleeast/netanyahu-israel-hamas-gaza-cease-fire-talks.html

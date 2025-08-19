@@ -1,3 +1,7 @@
+**Willy Adames expects emotion, and maybe some inspiration, in weekend return to Milwaukee**\
+`The high-flying Brewers play a different style of baseball. San Francisco's shortstop, under contract for six more seasons, has noticed.`\
+https://nytimes.com/athletic/6561709/2025/08/19/sf-giants-willy-adames-milwaukee-brewers-return/
+
 **MSNBC’s Rebrand Invites Bemusement and Ridicule**\
 `The cable TV network’s new name, MS NOW, became the subject of mockery soon after it was announced on Monday.`\
 https://nytimes.com/2025/08/19/business/msnbc-ms-now-rebranding.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6560485/2025/08/19/giants-russell-wilson-nfl-quarte
 **Amid a ‘thriving’ moment, MLB makes top-notch healthcare plan more expensive to employees**\
 `MLB has made a change to its employee health benefits, though they remain more generous than most private plans. `\
 https://nytimes.com/athletic/6556414/2025/08/19/mlb-health-care-plan-more-expensive/
-
-**USC commit Boobie Feaster is the modern recruit — agents, NIL, reclassification and all**\
-`Feaster, who will be only 16 when he graduates DeSoto (Texas) HS, had 25 scholarship offers before he played a down of varsity football. `\
-https://nytimes.com/athletic/6556345/2025/08/19/usc-football-commit-boobie-feaster-nil/
 
