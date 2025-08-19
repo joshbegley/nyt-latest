@@ -1,3 +1,19 @@
+**Walk-off loss to Rockies highlights Teoscar Hernández's defensive struggles for Dodgers**\
+`The Dodgers appeared to be one out away from pushing the game into extra innings. Until they weren’t.`\
+https://nytimes.com/athletic/6561720/2025/08/19/dodgers-walk-off-loss-teoscar-hernandez-rockies/
+
+**Beaches Close as Hurricane Erin Brings Deadly Rip Currents to Mid-Atlantic**\
+`Several beaches in New Jersey and Delaware were closed on Monday as the powerful storm churned in the Atlantic. Rip currents have been blamed for at least one death.`\
+https://nytimes.com/2025/08/19/nyregion/hurricane-erin-beach-closures-new-jersey.html
+
+**The New York Times in Print for Tuesday, Aug. 19, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/08/19/todays-new-york-times
+
+**The Man Who Saw the Future of Africa**\
+`As the world’s powers turn away from the continent, Kwame Nkrumah’s vision for Africa may hold the key to realizing its potential today.`\
+https://nytimes.com/2025/08/19/opinion/africa-future-kwame-nkrumah.html
+
 **Britain Drops Request That Apple Create a Back Door**\
 `The Trump administration says that law enforcement organizations in Britain would back off asking the company for a tool to access customers’ data.`\
 https://nytimes.com/2025/08/19/technology/britain-apple-back-door.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6560200/2025/08/19/matheus-cunha-man-united-debut-b
 **Row Z: Chelsea's defensive headache, FIFA football, and Heaton's wait goes on**\
 `Our weekly look at the whackier side of the game also looks at Racing Club seeking to disguise their signing of Marcos Rojo`\
 https://nytimes.com/athletic/6560024/2025/08/19/maresca-chelsea-fifa-heaton-rojo-row-z/
-
-**New signings aren't always the solution. Maybe unhappy managers should try coaching?**\
-`Perhaps more managers should try other things before pushing the big red transfer button`\
-https://nytimes.com/athletic/6560039/2025/08/19/managers-new-signings-coaching-column/
-
-**A Debilitating Virus Surges Globally as Mosquitoes Move With Warming Climate**\
-`Chikungunya, which can disable victims for years, is spreading rapidly, including in China and other places that have not seen it before.`\
-https://nytimes.com/2025/08/19/health/chikungunya-virus-mosquitoes-what-to-know.html
-
-**Connections: Sports Edition Coach: Hints for Aug. 19, 2025**\
-`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
-https://nytimes.com/athletic/6559541/2025/08/19/connections-sports-edition-hints-for-aug-19-2025/
-
-**Corrections: Aug. 19, 2025**\
-`Corrections that appeared in print on Tuesday, Aug. 19, 2025.`\
-https://nytimes.com/2025/08/19/pageoneplus/corrections-aug-19-2025.html
 
