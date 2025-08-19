@@ -1,3 +1,11 @@
+**Oliver Glasner, a 10-match unbeaten run, and why Crystal Palace must back their manager**\
+`The Austrian has secured Palace's first major silverware with his team holding their own against the elite, but they need reinforcements`\
+https://nytimes.com/athletic/6558746/2025/08/19/crystal-palace-glasner-transfer-market/
+
+**Xabi Alonso's €180m Real Madrid rebuild: How Spanish giants transformed this summer**\
+`Under the dynamic leadership of their new coach, Real Madrid look to have significantly strengthened`\
+https://nytimes.com/athletic/6560142/2025/08/19/xabi-alonso-real-madrid-rebuild-la-liga/
+
 **Watching Matheus Cunha's Man United debut at his first futsal club in Brazil: 'He looked at home, relaxed'**\
 `Locals gathered at CT Barao in Recife's Paramirim neighbourhood to watch a former alumnus on the big stage. The Athletic went, too...`\
 https://nytimes.com/athletic/6560200/2025/08/19/matheus-cunha-man-united-debut-brazil/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/08/18/pageoneplus/quote-of-the-day-games-show-robots-po
 **Fire and Explosion Damage Ship in Baltimore Harbor**\
 `No one was injured in the explosion, which occurred aboard a bulk carrier ship near the site of the collapse of the Francis Scott Key Bridge in 2024.`\
 https://nytimes.com/2025/08/18/us/baltimore-ship-explosion.html
-
-**Greenberg: NL Central race is over, but can Cubs find their bats, heart before October?**\
-`This was supposed to be a make-or-break series. But then the Brewers won 14 straight while the Cubs replaced their bats with pool noodles.`\
-https://nytimes.com/athletic/6561452/2025/08/18/cubs-brewers-nl-central-column/
-
-**Diamondbacks' Ketel Marte addresses reports concerning off day requests**\
-`Marte apologized for missing a key series against the Cardinals and said his goal is to help the Diamondbacks win games.`\
-https://nytimes.com/athletic/6561509/2025/08/18/arizona-diamondbacks-ketel-marte-comments/
 

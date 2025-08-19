@@ -1,3 +1,11 @@
+**Oliver Glasner, a 10-match unbeaten run, and why Crystal Palace must back their manager**\
+`The Austrian has secured Palace's first major silverware with his team holding their own against the elite, but they need reinforcements`\
+https://nytimes.com/athletic/6558746/2025/08/19/crystal-palace-glasner-transfer-market/
+
+**Xabi Alonso's €180m Real Madrid rebuild: How Spanish giants transformed this summer**\
+`Under the dynamic leadership of their new coach, Real Madrid look to have significantly strengthened`\
+https://nytimes.com/athletic/6560142/2025/08/19/xabi-alonso-real-madrid-rebuild-la-liga/
+
 **Watching Matheus Cunha's Man United debut at his first futsal club in Brazil: 'He looked at home, relaxed'**\
 `Locals gathered at CT Barao in Recife's Paramirim neighbourhood to watch a former alumnus on the big stage. The Athletic went, too...`\
 https://nytimes.com/athletic/6560200/2025/08/19/matheus-cunha-man-united-debut-brazil/

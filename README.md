@@ -1,3 +1,7 @@
+**Tuesday Briefing: Crucial Talks on Ukraine**\
+`Also, China’s robot games.`\
+https://nytimes.com/2025/08/19/briefing/tuesday-briefing-crucial-talks-on-ukraine.html
+
 **Oliver Glasner, a 10-match unbeaten run, and why Crystal Palace must back their manager**\
 `The Austrian has secured Palace's first major silverware with his team holding their own against the elite, but they need reinforcements`\
 https://nytimes.com/athletic/6558746/2025/08/19/crystal-palace-glasner-transfer-market/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/19/pageoneplus/corrections-aug-19-2025.html
 **Quote of the Day: Games Show Robots’ Potential, But Your Job Is Safe, for Now**\
 `Quotation of the Day for Tuesday, August 19, 2025.`\
 https://nytimes.com/2025/08/18/pageoneplus/quote-of-the-day-games-show-robots-potential-but-your-job-is-safe-for-now.html
-
-**Fire and Explosion Damage Ship in Baltimore Harbor**\
-`No one was injured in the explosion, which occurred aboard a bulk carrier ship near the site of the collapse of the Francis Scott Key Bridge in 2024.`\
-https://nytimes.com/2025/08/18/us/baltimore-ship-explosion.html
 
