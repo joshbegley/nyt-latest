@@ -1,3 +1,7 @@
+**Macron calls Putin a ‘predator’ and an ‘ogre.’**\
+`The remarks were a considerable shift in sentiment between President Vladimir V. Putin of Russia and France’s president, Emmanuel Macron, who called Moscow a potential threat for many European countries.`\
+https://nytimes.com/live/2025/08/19/us/trump-zelensky-ukraine-russia/macron-putin-predator-russia-ukraine-war
+
 **Austin Cindric on self-growth, digging deep and positivity: 12 Questions**\
 `Cup Series driver Austin Cindric talks about the time he realized he was all-in, the race that got away and more in the latest 12 Questions.`\
 https://nytimes.com/athletic/6560226/2025/08/19/austin-cindric-nascar-12-questions/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/19/world/europe/russia-hybrid-attacks-europe.html
 **YouTube tabs Deestroying as sideline reporter for Chiefs-Chargers game**\
 `Donald De La Haye (Deestroying's real name), will join Rich Eisen, Kurt Warner on platform's inaugural exclusive NFL stream.`\
 https://nytimes.com/athletic/6561386/2025/08/19/youtube-deestroying-nfl-chiefs-chargers/
-
-**He Tried to Endorse From the Pulpit. He Wound Up Without a Church.**\
-`The I.R.S. says churches can now support candidates during services, but many denominations still forbid it. A Wisconsin pastor learned the hard way.`\
-https://nytimes.com/2025/08/19/us/politics/church-endorsements-irs-kenosha.html
 
