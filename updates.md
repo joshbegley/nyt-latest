@@ -1,3 +1,19 @@
+**Why Zelensky and European Leaders Are Still Pushing for a Cease-Fire in Ukraine**\
+`Ukraine and its European allies are seeking to persuade President Trump that a cease-fire is a prerequisite for peace talks with Russia.`\
+https://nytimes.com/2025/08/19/us/ukraine-russia-war-ceasefire-trump-europe.html
+
+**Securing Postwar Ukraine, Even With Trump’s Pledge to Help, Is Complex**\
+`Russia seems unlikely to agree to Western troops in Ukraine as part of any deal to end the war.`\
+https://nytimes.com/2025/08/19/world/europe/ukraine-security-guarantees-trump.html
+
+**TAFC: The killing of the ‘Palestinian Pele’. Plus: Dutch football's criminal underworld**\
+`Answering Mohamed Salah's questions over the death of Suleiman Obeid`\
+https://nytimes.com/athletic/6561961/2025/08/19/palestinian-pele-mohamed-salah-tafc/
+
+**The Pulse: A matchup of stars gets spoiled**\
+`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/6560670/2025/08/19/sinner-alcaraz-cincinnati-open-the-pulse/
+
 **Who will win the national title? Our staff predicts the CFP, Heisman and more**\
 `Who our 28 college football staffers believe will win the national title (Texas?), the Heisman (not Arch?) and more, plus bold predictions.`\
 https://nytimes.com/athletic/6560979/2025/08/19/college-football-playoff-heisman-conference-predictions/
