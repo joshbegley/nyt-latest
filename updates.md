@@ -1,3 +1,15 @@
+**Man Utd set to appoint Brentford’s Stephen Torpey to lead academy**\
+`Torpey previously served as head of academy coaching at United’s rivals Manchester City and has been Brentford academy director since 2024.`\
+https://nytimes.com/athletic/6563279/2025/08/19/manchester-united-academy-stephen-torpey/
+
+**It's about time Carolina's players started getting mad and pushing back**\
+`Dave Canales said his team's practice “got heated toward the end" as the Panthers wrapped up training camp with a few fights.`\
+https://nytimes.com/athletic/6563151/2025/08/19/carolina-panthers-practice-fight-tempers/
+
+**Maps: How Ukraine’s Frontline Has Moved**\
+`Putin has demanded that Ukraine give up the entirety of the Donbas region before Russia stops fighting. Here is a look at Russia’s advances into Ukrainian territory since in 2014.`\
+https://nytimes.com/interactive/2025/08/19/world/europe/ukraine-russia-frontline-maps.html
+
 **How Europe Learned to Speak So Trump Would Listen**\
 `The leaders of Germany, France, Britain and other supporters of Ukraine have come together in exceptional ways to help sway the U.S. president.`\
 https://nytimes.com/2025/08/19/world/europe/trump-putin-summit-europe.html
