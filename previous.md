@@ -1,3 +1,11 @@
+**Trossard agrees new Arsenal contract**\
+`Trossard has reached an agreement on a contract adjustment, increasing his salary but not extending the deal beyond its previous expiration.`\
+https://nytimes.com/athletic/6445104/2025/08/19/leandro-trossard-arsenal-contract-new/
+
+**Mike Castle, Bipartisan Delaware Congressman, Dies at 86**\
+`A fiscal conservative who supported gun control and other liberal causes, he was the last Republican elected to serve his state as governor and to represent it in the House.`\
+https://nytimes.com/2025/08/19/us/politics/mike-castle-dead.html
+
 **Dine in a Palace of Mirrors at Musaafer**\
 `El Rey Tacos brings Mexico City style to Times Square, the Blue Vault adds a speakeasy option to the theater district and more news.`\
 https://nytimes.com/2025/08/19/dining/nyc-restaurant-news.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/08/19/us/politics/tennessee-national-guard-dc-trump.htm
 **Top 5 fantasy football overvalued and undervalued players for 2025**\
 `KC Joyner shares who he thinks are the top-five over- and undervalued players for fantasy football in 2025. `\
 https://nytimes.com/athletic/6562262/2025/08/19/fantasy-football-2025-adp-overvalued-undervalued-players/
-
-**Notre Dame names CJ Carr Week 1 starter vs. Miami after extended QB battle**\
-`The most decorated Irish QB recruit in years emerged from a battle that sources said appeared to be trending toward Minchey in recent days.`\
-https://nytimes.com/athletic/6558676/2025/08/19/cj-carr-notre-dame-starting-quarterback/
-
-**Leeds finalising move for Milan's Okafor**\
-`The Switzerland international spent the second half of 2025-26 on loan at Napoli, playing four games as Antonio Conte's side won Serie A.`\
-https://nytimes.com/athletic/6551626/2025/08/19/leeds-transfer-news-noah-okafor-milan/
 

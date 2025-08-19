@@ -1,3 +1,15 @@
+**Who’s in Charge of Trump’s Cultural Realignment? Here Are Key Players.**\
+`These five people are among those leading the president’s efforts to put his stamp on national cultural institutions, buildings and policies.`\
+https://nytimes.com/2025/08/19/arts/design/trump-cultural-leaders-smithsonian-ballroom-garden-kennedy-center.html
+
+**Ring the Alarm for 13 Killer Dancehall Cuts**\
+`Trace the evolution of the genre over the decades via songs by Sister Nancy, Cutty Ranks, Super Cat and more.`\
+https://nytimes.com/2025/08/19/arts/music/amplifier-newsletter-dancehall-songs.html
+
+**‘I Want to Try and Get to Heaven’: Trump Gets Reflective on ‘Fox & Friends’**\
+`President Trump cast his effort to broker peace in Ukraine in existential terms.`\
+https://nytimes.com/2025/08/19/us/politics/trump-heaven.html
+
 **Trossard agrees new Arsenal contract**\
 `Trossard has reached an agreement on a contract adjustment, increasing his salary but not extending the deal beyond its previous expiration.`\
 https://nytimes.com/athletic/6445104/2025/08/19/leandro-trossard-arsenal-contract-new/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6562809/2025/08/19/aaron-judge-yankees-arm-health-a
 **Pirro has ordered her office to maximize criminal charges on street arrests.**\
 `The instruction amounts to a declaration that the understaffed U.S. attorney’s office will seek to ramp up criminal charges arising from the president’s takeover of law enforcement in the capital.`\
 https://nytimes.com/live/2025/08/19/us/trump-news/pirro-has-ordered-her-office-to-maximize-criminal-charges-on-street-arrests
-
-**Seeking Simplicity? These Books Will Help You Banish Clutter**\
-`Clean home, clean mind. Or at least you can try, with the help of several tomes about doing more with less.`\
-https://nytimes.com/2025/08/19/books/review/organization-books.html
-
-**Tennessee Becomes Latest Republican-Led State to Send National Guard to D.C.**\
-`The chair of the Democratic Governors Association, however, warned Republican governors against supporting “a dangerous, politically motivated agenda.”`\
-https://nytimes.com/2025/08/19/us/politics/tennessee-national-guard-dc-trump.html
-
-**Top 5 fantasy football overvalued and undervalued players for 2025**\
-`KC Joyner shares who he thinks are the top-five over- and undervalued players for fantasy football in 2025. `\
-https://nytimes.com/athletic/6562262/2025/08/19/fantasy-football-2025-adp-overvalued-undervalued-players/
 

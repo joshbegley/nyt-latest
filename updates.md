@@ -1,3 +1,11 @@
+**Trossard agrees new Arsenal contract**\
+`Trossard has reached an agreement on a contract adjustment, increasing his salary but not extending the deal beyond its previous expiration.`\
+https://nytimes.com/athletic/6445104/2025/08/19/leandro-trossard-arsenal-contract-new/
+
+**Mike Castle, Bipartisan Delaware Congressman, Dies at 86**\
+`A fiscal conservative who supported gun control and other liberal causes, he was the last Republican elected to serve his state as governor and to represent it in the House.`\
+https://nytimes.com/2025/08/19/us/politics/mike-castle-dead.html
+
 **Dine in a Palace of Mirrors at Musaafer**\
 `El Rey Tacos brings Mexico City style to Times Square, the Blue Vault adds a speakeasy option to the theater district and more news.`\
 https://nytimes.com/2025/08/19/dining/nyc-restaurant-news.html
