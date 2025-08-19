@@ -1,3 +1,7 @@
+**Vietnamese Are Helping Cuba With 38-Cent Donations. A Lot of Them.**\
+`Cuba sent doctors and food to Vietnam during the war. Now ordinary Vietnamese are sending cash to struggling Cubans.`\
+https://nytimes.com/2025/08/19/world/asia/vietnam-cuba-fundraising.html
+
 **An Evening With the Central Park Coyotes**\
 `Romeo and Juliet are shy and graceful, leaping over fences, hunting for rodents and catching at least one Canada goose.`\
 https://nytimes.com/2025/08/19/nyregion/central-park-coyotes.html
@@ -33,8 +37,4 @@ https://nytimes.com/issue/todayspaper/2025/08/19/todays-new-york-times
 **The Man Who Saw the Future of Africa**\
 `As the world’s powers turn away from the continent, Kwame Nkrumah’s vision for Africa may hold the key to realizing its potential today.`\
 https://nytimes.com/2025/08/19/opinion/africa-future-kwame-nkrumah.html
-
-**Britain Drops Request That Apple Create a Back Door**\
-`The Trump administration says that law enforcement organizations in Britain would back off asking the company for a tool to access customers’ data.`\
-https://nytimes.com/2025/08/19/technology/britain-apple-back-door.html
 

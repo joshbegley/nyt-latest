@@ -1,3 +1,7 @@
+**Vietnamese Are Helping Cuba With 38-Cent Donations. A Lot of Them.**\
+`Cuba sent doctors and food to Vietnam during the war. Now ordinary Vietnamese are sending cash to struggling Cubans.`\
+https://nytimes.com/2025/08/19/world/asia/vietnam-cuba-fundraising.html
+
 **Beaches Close as Hurricane Erin Brings Deadly Rip Currents to Mid-Atlantic**\
 `Several beaches in New Jersey and Delaware were closed as the powerful storm churned in the Atlantic. Rip currents have been blamed for at least one death.`\
 https://nytimes.com/2025/08/19/nyregion/hurricane-erin-beach-closures-new-jersey.html
