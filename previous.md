@@ -1,3 +1,11 @@
+**Attacker Stabs Colorado Park Ranger and Flees**\
+`A manhunt was underway for the attacker as the ranger was airlifted to a hospital with serious but non-life-threatening injuries after the episode at Staunton State Park, the authorities said.`\
+https://nytimes.com/2025/08/19/us/colorado-park-ranger-stabbed-manhunt.html
+
+**College football has never sense. Auburn, with its national title claims, is getting in on the fun**\
+`Auburn adding seven national titles in mid-August might be absurd. But I say let Auburn cook.`\
+https://nytimes.com/athletic/6562953/2025/08/19/auburn-football-national-titles-claim-2004/
+
 **Ukraine Diplomacy Reveals How Un-American Trump Is**\
 `Trump doesn’t feel any gut need to bring Ukraine into the West or understand that Putin’s invasion of that country was just his latest march to break up the West.`\
 https://nytimes.com/2025/08/19/opinion/trump-russia-ukraine-putin.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6563347/2025/08/19/alexander-isak-newcastle-transfe
 **Adams Asks Trump Administration to Stop Courthouse Migrant Detentions**\
 `Federal prosecutors dropped charges against Mayor Eric Adams of New York so that he could help with deportations. But the administration and the city have been jousting in court.`\
 https://nytimes.com/2025/08/19/nyregion/adams-immigration-amicus-brief.html
-
-**Salah, Caldentey win 2024-25 PFA Player of the Year awards**\
-`Salah becomes the first player to win three PFA Player of the Year awards, having also secured the crown for the 2017-18 and 2021-22.`\
-https://nytimes.com/athletic/6560924/2025/08/19/pfa-awards-winners-salah-caldentey/
-
-**Night at the Capitol: One Democrat’s Unexpected Protest Grips Texas**\
-`Nicole Collier, a state representative, slept in the Capitol rather than agree to police surveillance imposed by Republicans after a Democratic walkout. “I am resisting,” she said.`\
-https://nytimes.com/2025/08/19/us/politics/texas-redistricting-nicole-collier.html
 

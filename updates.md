@@ -1,3 +1,11 @@
+**Attacker Stabs Colorado Park Ranger and Flees**\
+`A manhunt was underway for the attacker as the ranger was airlifted to a hospital with serious but non-life-threatening injuries after the episode at Staunton State Park, the authorities said.`\
+https://nytimes.com/2025/08/19/us/colorado-park-ranger-stabbed-manhunt.html
+
+**College football has never sense. Auburn, with its national title claims, is getting in on the fun**\
+`Auburn adding seven national titles in mid-August might be absurd. But I say let Auburn cook.`\
+https://nytimes.com/athletic/6562953/2025/08/19/auburn-football-national-titles-claim-2004/
+
 **Ukraine Diplomacy Reveals How Un-American Trump Is**\
 `Trump doesn’t feel any gut need to bring Ukraine into the West or understand that Putin’s invasion of that country was just his latest march to break up the West.`\
 https://nytimes.com/2025/08/19/opinion/trump-russia-ukraine-putin.html
