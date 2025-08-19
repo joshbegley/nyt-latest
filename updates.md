@@ -1,3 +1,7 @@
+**Champions League qualifying fixtures, kick off times and analysis**\
+`Qualifying for the Champions League ramps up as Rangers, Celtic, Fenerbahce and more try to book one of the final seven places`\
+https://nytimes.com/athletic/6560257/2025/08/19/champions-league-play-off-round-celtics-7000-mile-trip-robbie-keane-the-manager-and-mourinho-under-pressure/
+
 **Vietnamese Are Helping Cuba With 38-Cent Donations. A Lot of Them.**\
 `Cuba sent doctors and food to Vietnam during the war. Now ordinary Vietnamese are sending cash to struggling Cubans.`\
 https://nytimes.com/2025/08/19/world/asia/vietnam-cuba-fundraising.html

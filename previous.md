@@ -1,3 +1,11 @@
+**Champions League qualifying fixtures, kick off times and analysis**\
+`Qualifying for the Champions League ramps up as Rangers, Celtic, Fenerbahce and more try to book one of the final seven places`\
+https://nytimes.com/athletic/6560257/2025/08/19/champions-league-play-off-round-celtics-7000-mile-trip-robbie-keane-the-manager-and-mourinho-under-pressure/
+
+**Everton are tepid and tentative. They are a team still crying out for additions**\
+`David Moyes' pre-season warning that his squad might not be ready proved prophetic as Leeds exposed the holes in the visitors' options`\
+https://nytimes.com/athletic/6561308/2025/08/19/everton-moyes-window-grealish-leeds/
+
 **Vietnamese Are Helping Cuba With 38-Cent Donations. A Lot of Them.**\
 `Cuba sent doctors and food to Vietnam during the war. Now ordinary Vietnamese are sending cash to struggling Cubans.`\
 https://nytimes.com/2025/08/19/world/asia/vietnam-cuba-fundraising.html
@@ -18,10 +26,6 @@ https://nytimes.com/athletic/6559975/2025/08/19/transfer-latest-eberechi-eze-mar
 `Daniel Farke leant on those who had helped smooth promotion from the Championship and was rewarded with an impressive victory over Everton`\
 https://nytimes.com/athletic/6561673/2025/08/19/leeds-ampadu-bogle-rodon-farke-everton/
 
-**Everton are tepid and tentative. They are a team still crying out for additions**\
-`David Moyes' pre-season warning that his squad might not be ready proved prophetic as Leeds exposed the holes in the visitors' options`\
-https://nytimes.com/athletic/6561308/2025/08/19/everton-moyes-window-grealish-leeds/
-
 **Walk-off loss to Rockies highlights Teoscar Hernández's defensive struggles for Dodgers**\
 `The Dodgers appeared to be one out away from pushing the game into extra innings. Until they weren’t.`\
 https://nytimes.com/athletic/6561720/2025/08/19/dodgers-walk-off-loss-teoscar-hernandez-rockies/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/19/nyregion/hurricane-erin-beach-closures-new-jersey
 **The New York Times in Print for Tuesday, Aug. 19, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/08/19/todays-new-york-times
-
-**The Man Who Saw the Future of Africa**\
-`As the world’s powers turn away from the continent, Kwame Nkrumah’s vision for Africa may hold the key to realizing its potential today.`\
-https://nytimes.com/2025/08/19/opinion/africa-future-kwame-nkrumah.html
 
