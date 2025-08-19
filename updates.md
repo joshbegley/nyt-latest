@@ -1,3 +1,11 @@
+**How Europe Learned to Speak So Trump Would Listen**\
+`The leaders of Germany, France, Britain and other supporters of Ukraine have come together in exceptional ways to help sway the U.S. president.`\
+https://nytimes.com/2025/08/19/world/europe/trump-putin-summit-europe.html
+
+**If realignment is looming, here's what Giants fans should hope for**\
+`If realignment is coming to MLB, the Giants will be impacted. Here are the changes that would be dealbreakers.`\
+https://nytimes.com/athletic/6562865/2025/08/19/mlb-realignment-sf-giants-outlook/
+
 **Sophie Cunningham to miss rest of season with right knee injury**\
 `Cunningham injured her knee when she collided with the Sun's Bria Hartley in Sunday's game.`\
 https://nytimes.com/athletic/6563208/2025/08/19/indiana-fever-sophie-cunningham-injury-wnba/

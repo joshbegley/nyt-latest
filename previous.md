@@ -1,3 +1,11 @@
+**How Europe Learned to Speak So Trump Would Listen**\
+`The leaders of Germany, France, Britain and other supporters of Ukraine have come together in exceptional ways to help sway the U.S. president.`\
+https://nytimes.com/2025/08/19/world/europe/trump-putin-summit-europe.html
+
+**If realignment is looming, here's what Giants fans should hope for**\
+`If realignment is coming to MLB, the Giants will be impacted. Here are the changes that would be dealbreakers.`\
+https://nytimes.com/athletic/6562865/2025/08/19/mlb-realignment-sf-giants-outlook/
+
 **Sophie Cunningham to miss rest of season with right knee injury**\
 `Cunningham injured her knee when she collided with the Sun's Bria Hartley in Sunday's game.`\
 https://nytimes.com/athletic/6563208/2025/08/19/indiana-fever-sophie-cunningham-injury-wnba/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6548777/2025/08/19/nascar-2026-cup-series-schedule-
 **Why Can’t the U.S. Build 5-Minute E.V. Chargers?**\
 `Chinese automakers have rolled out chargers that can mostly recharge a car’s battery in about five minutes. Yet U.S. technology lags far behind.`\
 https://nytimes.com/2025/08/19/climate/us-electric-vehicle-chargers-china.html
-
-**We Just Updated our Portland, Ore., Dining Guide**\
-`A meat lovers’ destination and a vegan paradise join our list of the 25 best restaurants in the City of Roses.`\
-https://nytimes.com/2025/08/19/dining/where-to-eat-portland.html
-
-**Gazans Optimistic After Hamas Accepts New Cease-Fire Deal**\
-`Palestinians in Khan Younis, Gaza, expressed hope that Israel would accept a cease-fire deal put forward by Egypt and Qatar, which would include the release of Israeli hostages and Palestinian prisoners.`\
-https://nytimes.com/video/world/middleeast/100000010349345/gaza-cease-fire-israel.html
 

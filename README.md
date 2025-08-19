@@ -1,3 +1,15 @@
+**Man Utd set to appoint Brentford’s Stephen Torpey to lead academy**\
+`Torpey previously served as head of academy coaching at United’s rivals Manchester City and has been Brentford academy director since 2024.`\
+https://nytimes.com/athletic/6563279/2025/08/19/manchester-united-academy-stephen-torpey/
+
+**It's about time Carolina's players started getting mad and pushing back**\
+`Dave Canales said his team's practice “got heated toward the end" as the Panthers wrapped up training camp with a few fights.`\
+https://nytimes.com/athletic/6563151/2025/08/19/carolina-panthers-practice-fight-tempers/
+
+**Maps: How Ukraine’s Frontline Has Moved**\
+`Putin has demanded that Ukraine give up the entirety of the Donbas region before Russia stops fighting. Here is a look at Russia’s advances into Ukrainian territory since in 2014.`\
+https://nytimes.com/interactive/2025/08/19/world/europe/ukraine-russia-frontline-maps.html
+
 **How Europe Learned to Speak So Trump Would Listen**\
 `The leaders of Germany, France, Britain and other supporters of Ukraine have come together in exceptional ways to help sway the U.S. president.`\
 https://nytimes.com/2025/08/19/world/europe/trump-putin-summit-europe.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/08/19/world/europe/jacob-power-dexter-murder-plans-uk-l
 **These TV Hits Are Censored in Putin’s Russia**\
 `At best their meanings have changed. At worst, they no longer make sense.`\
 https://nytimes.com/interactive/2025/08/19/arts/television/russia-tv-censorship.html
-
-**Richard Lee, Activist Who Founded a Pot ‘University,’ Dies at 62**\
-`After he was paralyzed in an accident, his use of marijuana for medical purposes led him to become one of the nation’s most influential cannabis activists.`\
-https://nytimes.com/2025/08/19/us/richard-lee-dead.html
-
-**First look at NASCAR's 2026 Cup Series schedule, from Daytona to Homestead**\
-`Here's a first look at NASCAR's 2026 Cup Series schedule and where San Diego, Chicagoland and North Wilkesboro's new points race fit in.`\
-https://nytimes.com/athletic/6548777/2025/08/19/nascar-2026-cup-series-schedule-san-diego-chicagoland/
-
-**Why Can’t the U.S. Build 5-Minute E.V. Chargers?**\
-`Chinese automakers have rolled out chargers that can mostly recharge a car’s battery in about five minutes. Yet U.S. technology lags far behind.`\
-https://nytimes.com/2025/08/19/climate/us-electric-vehicle-chargers-china.html
 
