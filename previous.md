@@ -1,3 +1,11 @@
+**Who will win the national title? Our staff predicts the CFP, Heisman and more**\
+`Who our 28 college football staffers believe will win the national title (Texas?), the Heisman (not Arch?) and more, plus bold predictions.`\
+https://nytimes.com/athletic/6560979/2025/08/19/college-football-playoff-heisman-conference-predictions/
+
+**Browns roster analysis: Which players are 53-man locks, which are on the bubble?**\
+`After joint practices against two teams and two preseason games, we take a look at where the roster stands one week before cutdown day.`\
+https://nytimes.com/athletic/6560569/2025/08/19/browns-53-man-roster-analysis-preseason/
+
 **The Pulse: A matchup of stares gets spoiled**\
 `The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
 https://nytimes.com/athletic/6560670/2025/08/19/sinner-alcaraz-cincinnati-open-the-pulse/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6559423/2025/08/19/tennis-us-open-mixed-doubles-tea
 **Is James Franklin overrated or underappreciated? It's time to find out**\
 `Franklin is college football's most polarizing elite coach, and even he is willing to concede that this season is huge for his reputation.`\
 https://nytimes.com/athletic/6555743/2025/08/19/james-franklin-overrated-penn-state-football/
-
-**With MLB expansion on the horizon, we imagine what the future alignment might look like**\
-`Our plan: Keep the American and National Leagues. Protect division rivalries. Tidy things up geographically.`\
-https://nytimes.com/athletic/6560635/2025/08/19/mlb-expansion-realignment-leagues-projection/
-
-**A drop in velocity be damned, Brandon Woodruff won't forsake his fastball — and it's working**\
-`Woodruff somehow looks lights out with a 2.06 ERA despite missing last season with a shoulder injury. `\
-https://nytimes.com/athletic/6561428/2025/08/19/brewers-brandon-woodruff-comeback/
 

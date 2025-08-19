@@ -1,3 +1,11 @@
+**Who will win the national title? Our staff predicts the CFP, Heisman and more**\
+`Who our 28 college football staffers believe will win the national title (Texas?), the Heisman (not Arch?) and more, plus bold predictions.`\
+https://nytimes.com/athletic/6560979/2025/08/19/college-football-playoff-heisman-conference-predictions/
+
+**Browns roster analysis: Which players are 53-man locks, which are on the bubble?**\
+`After joint practices against two teams and two preseason games, we take a look at where the roster stands one week before cutdown day.`\
+https://nytimes.com/athletic/6560569/2025/08/19/browns-53-man-roster-analysis-preseason/
+
 **The Pulse: A matchup of stares gets spoiled**\
 `The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
 https://nytimes.com/athletic/6560670/2025/08/19/sinner-alcaraz-cincinnati-open-the-pulse/
