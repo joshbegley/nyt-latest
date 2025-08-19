@@ -1,3 +1,11 @@
+**5 Takeaways From Trump’s Meeting With Zelensky and European Leaders**\
+`The leaders presented a relatively united front and appeared to agree on the next steps in the effort to halt the fighting between Ukraine and Russia. But much remained unresolved.`\
+https://nytimes.com/2025/08/18/us/politics/takeaways-trump-zelensky-putin.html
+
+**At White House Summit, a Master Class of Diplomacy. In Courting Trump.**\
+`President Volodymyr Zelensky of Ukraine and other European leaders have learned a thing or two about negotiating, Trump-style. So has Vladimir Putin.`\
+https://nytimes.com/2025/08/18/us/politics/white-house-summit-diplomacy-courting-trump.html
+
 **Blue Jays' Vladimir Guerrero Jr. exits game with left hamstring tightness**\
 `In the event of an extended absence, deadline acquisition Ty France would likely see regular playing time at first base.`\
 https://nytimes.com/athletic/6561450/2025/08/18/toronto-blue-jays-vladimir-guerrero-jr-injury/
