@@ -1,3 +1,11 @@
+**Milan Lucic joins Blues on professional tryout in NHL comeback attempt**\
+`Lucic, 37, has played 17 NHL seasons with the Bruins, Kings, Oilers and Flames, but last appeared in a game in 2023. `\
+https://nytimes.com/athletic/6562175/2025/08/19/milan-lucic-blues-nhl-tryout-contract-pto/
+
+**$90 billion in weapons would boost Ukraine against Russia now and in the future.**\
+`By Lara Jakes`\
+https://nytimes.com/live/2025/08/19/us/trump-zelensky-ukraine-russia/90-billion-in-weapons-would-boost-ukraine-against-russia-now-and-in-the-future
+
 **Brighton re-sign Euros winner Agyemang on loan from Arsenal**\
 `Agyemang, who starred as the Lionesses retained their Euros title this summer, spent last season on loan on the south coast,`\
 https://nytimes.com/athletic/6562253/2025/08/19/michelle-agyemang-loan-brighton-arsenal-transfer-lioness/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6555494/2025/08/19/blues-john-kelly-carbonneau-pros
 **'The Sports Gossip Show' hosts answer your burning questions**\
 `It’s been a crazy few weeks. We joined The Athletic, and Jordon Hudson and Taylor Swift episodes quickly followed. Now we need answers. `\
 https://nytimes.com/athletic/6558911/2025/08/19/sports-gossip-show-mailbag/
-
-**Wardrobes Shaped by Music**\
-`A couple’s style took cues from Wu-Tang Clan and Anita Baker.`\
-https://nytimes.com/2025/08/19/style/street-style-look-music-inspired-fashion.html
-
-**Trump May Expand His Revision of U.S. Capitalism**\
-`The White House’s deliberations about taking a stake in Intel could upend the technology sector — and further redefine how Washington deals with business.`\
-https://nytimes.com/2025/08/19/business/dealbook/trump-capitalism-intel.html
 

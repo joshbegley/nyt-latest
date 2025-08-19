@@ -1,3 +1,11 @@
+**Milan Lucic joins Blues on professional tryout in NHL comeback attempt**\
+`Lucic, 37, has played 17 NHL seasons with the Bruins, Kings, Oilers and Flames, but last appeared in a game in 2023. `\
+https://nytimes.com/athletic/6562175/2025/08/19/milan-lucic-blues-nhl-tryout-contract-pto/
+
+**$90 billion in weapons would boost Ukraine against Russia now and in the future.**\
+`By Lara Jakes`\
+https://nytimes.com/live/2025/08/19/us/trump-zelensky-ukraine-russia/90-billion-in-weapons-would-boost-ukraine-against-russia-now-and-in-the-future
+
 **Brighton re-sign Euros winner Agyemang on loan from Arsenal**\
 `Agyemang, who starred as the Lionesses retained their Euros title this summer, spent last season on loan on the south coast,`\
 https://nytimes.com/athletic/6562253/2025/08/19/michelle-agyemang-loan-brighton-arsenal-transfer-lioness/
