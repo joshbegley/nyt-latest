@@ -1,9 +1,13 @@
+**Manhunt Underway After Texas Jail Mistakenly Releases Inmate**\
+`The release of a man who had been serving a five-year sentence for assault is the second time the jail has released someone prematurely this year.`\
+https://nytimes.com/2025/08/19/us/texas-manhunt-mistaken-release.html
+
 **Arch Manning pushes back against grandfather Archie's NFL Draft comments**\
 `Archie told Texas Monthly magazine that although he hadn't talked to Arch about the decision, he felt confident that Arch wouldn't declare.`\
 https://nytimes.com/athletic/6563300/2025/08/19/arch-manning-pushes-back-against-grandfather-archies-comments-on-2026-nfl-draft-status/
 
 **Rodrigo Moya, Who Photographed a Changing Latin America, Dies at 91**\
-`He documented poverty and protest in the 1950s and ’60, and he created indelible images of Che Guevara and Gabriel García Márquez.`\
+`He documented poverty and protest in the 1950s and ’60s, and he created indelible images of Che Guevara and Gabriel García Márquez.`\
 https://nytimes.com/2025/08/19/arts/rodrigo-moya-dead.html
 
 **Trump Revokes Security Clearances of 37 Former and Current Officials**\
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/19/us/politics/trump-universities-financial-penaltie
 **Man Utd set to appoint Brentford’s Stephen Torpey to lead academy**\
 `Torpey previously served as head of academy coaching at United’s rivals Manchester City and has been Brentford academy director since 2024.`\
 https://nytimes.com/athletic/6563279/2025/08/19/manchester-united-academy-stephen-torpey/
-
-**It's about time Carolina's players started getting mad and pushing back**\
-`Dave Canales said his team's practice “got heated toward the end" as the Panthers wrapped up training camp with a few fights.`\
-https://nytimes.com/athletic/6563151/2025/08/19/carolina-panthers-practice-fight-tempers/
 
