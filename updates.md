@@ -1,3 +1,7 @@
+**Have You Been Rejected by a New York Co-op Board? We Want to Hear From You.**\
+`The New York Times is looking for buyers who suspect that discrimination played a role in their rejection by a co-op board.`\
+https://nytimes.com/2025/08/19/realestate/nyc-co-op-board-apartment-rejection-discrimination.html
+
 **Macron calls Putin a ‘predator’ and an ‘ogre.’**\
 `The remarks were a considerable shift in sentiment between President Vladimir V. Putin of Russia and France’s president, Emmanuel Macron, who called Moscow a potential threat for many European countries.`\
 https://nytimes.com/live/2025/08/19/us/trump-zelensky-ukraine-russia/macron-putin-predator-russia-ukraine-war
