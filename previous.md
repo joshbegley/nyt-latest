@@ -1,3 +1,7 @@
+**Trump Wants Universities to Show Him the Money, or No Deal**\
+`President Trump has personally stipulated that hefty financial penalties be part of agreements his administration is negotiating with the elite universities. Critics call it extortion.`\
+https://nytimes.com/2025/08/19/us/politics/trump-universities-financial-penalties.html
+
 **Man Utd set to appoint Brentford’s Stephen Torpey to lead academy**\
 `Torpey previously served as head of academy coaching at United’s rivals Manchester City and has been Brentford academy director since 2024.`\
 https://nytimes.com/athletic/6563279/2025/08/19/manchester-united-academy-stephen-torpey/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/19/world/africa/africa-map-mercator.html
 **A ‘Dexter’ Obsessed Man Highlights a Gap in British Law**\
 `Inspired by the TV serial killer, Jacob Power wrote out detailed murder plans and dug graves. Still, prosecutors could not charge him with attempted murder.`\
 https://nytimes.com/2025/08/19/world/europe/jacob-power-dexter-murder-plans-uk-laws.html
-
-**These TV Hits Are Censored in Putin’s Russia**\
-`At best their meanings have changed. At worst, they no longer make sense.`\
-https://nytimes.com/interactive/2025/08/19/arts/television/russia-tv-censorship.html
 
