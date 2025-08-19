@@ -1,3 +1,31 @@
+**Commanders takeaways: Jayden Daniels, Bill Croskey-Merritt show off their speed**\
+`In the Commanders' second preseason game, we also learned the safety corps is deep and John Bates is a blocking weapon.`\
+https://nytimes.com/athletic/6561898/2025/08/19/jayden-daniels-preseason-commanders-bengals/
+
+**Submit your questions for 'The Athletic Hockey Show' Prospect Series**\
+`Have a question about an NHL prospect, the draft or your favorite team’s farm system? It may be answered on a podcast episode this season.`\
+https://nytimes.com/athletic/6560710/2025/08/19/the-athletic-hockey-show-prospect-series-listener-questions/
+
+**Seahawks WR Dareke Young’s confidence surging at just the right time**\
+`Entering a contract year, Young is in position to not only earn a roster spot, but also push for playing time on offense.`\
+https://nytimes.com/athletic/6561088/2025/08/19/seahawks-preseason-dareke-young-wide-receiver/
+
+**Do Packers truly have an open competition at left tackle? They just might**\
+`The 2024 first-round pick Jordan Morgan has impressed while filling in for the injured Rasheed Walker in recent weeks.`\
+https://nytimes.com/athletic/6560828/2025/08/19/packers-jordan-morgan-rasheed-walker-left-tackle/
+
+**An ATP Tour partnership with TikTok will test the limits of how tennis can embrace chaos**\
+`The social media platform is a vital route into tennis for casual fans. But can the sport embrace the chaos that makes it so?`\
+https://nytimes.com/athletic/6560678/2025/08/19/tennis-tiktok-atp-tour-players/
+
+**Leverkusen clinch loan deal for Man City's Echeverri**\
+`The deal does not include a buy option nor obligation, and Leverkusen will pay City a fee for the 19-year-old.`\
+https://nytimes.com/athletic/6557042/2025/08/19/man-city-transfers-claudio-echeverri-bayer-leverkusen/
+
+**Trump Administration Live Updates: More Republican-Led States Pledge National Guard Troops for D.C.**\
+``\
+https://nytimes.com/live/2025/08/19/us/trump-news
+
 **Russia Attacks Ukraine Hours After White House Meetings**\
 `Russia launched hundreds of drones and missiles at Ukraine overnight, Ukrainian officials said. The attacks came after European leaders met with President Trump to try to find a path toward peace.`\
 https://nytimes.com/2025/08/19/us/russia-attack-drones-missiles-ukraine.html
@@ -9,32 +37,4 @@ https://nytimes.com/2025/08/19/learning/word-of-the-day-bivalve.html
 **Willy Adames expects emotion, and maybe some inspiration, in weekend return to Milwaukee**\
 `The high-flying Brewers play a different style of baseball. San Francisco's shortstop, under contract for six more seasons, has noticed.`\
 https://nytimes.com/athletic/6561709/2025/08/19/sf-giants-willy-adames-milwaukee-brewers-return/
-
-**MSNBC’s Rebrand Invites Bemusement and Ridicule**\
-`The cable TV network’s new name, MS NOW, became the subject of mockery soon after it was announced on Monday.`\
-https://nytimes.com/2025/08/19/business/msnbc-ms-now-rebranding.html
-
-**Netanyahu Faces Pressure From Far Right Over New Cease-Fire Proposal**\
-`Some members of Israel’s coalition have ruled out a proposed hostage deal with Hamas, but the prime minister has yet to state his position.`\
-https://nytimes.com/2025/08/19/world/middleeast/netanyahu-israel-hamas-gaza-cease-fire-talks.html
-
-**A United Front?**\
-`We look at what happened during Ukraine peace talks at the White House.`\
-https://nytimes.com/2025/08/19/briefing/ukraine-peace-talks-white-house.html
-
-**A college football guide for the bandwagon fan: Why you should cheer for Florida, Utah and Iowa**\
-`Are you frustrated with your team's coach? Are you new to the sport and looking for a team to support? We've got you covered.`\
-https://nytimes.com/athletic/6559123/2025/08/19/college-football-2025-season-florida-utah-georgia-tech-iowa/
-
-**Cardinals manager Oli Marmol on his job status, management style and more**\
-`The fourth-year skipper speaks extensively about the craft of managing in an exclusive interview with The Athletic.`\
-https://nytimes.com/athletic/6560926/2025/08/19/oli-marmol-cardinals-interview-q-and-a/
-
-**NHL hype-o-meter: What to get excited about for the upcoming season**\
-`It's time to crank up the hype-o-meter and look at interesting developments building up this summer, despite the boring offseason.`\
-https://nytimes.com/athletic/6561274/2025/08/19/nhl-offseason-hype-o-meter-2025/
-
-**Bills bubble watch: Which players make 2025 roster, who's in danger of getting cut?**\
-`While many positions are already secured, several players are still hoping to play their way onto the final roster.`\
-https://nytimes.com/athletic/6560872/2025/08/19/buffalo-bills-bubble-watch-players-cut-roster-2025/
 
