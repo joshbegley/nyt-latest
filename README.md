@@ -1,3 +1,11 @@
+**Here’s the latest.**\
+`By Maggie Haberman, David E. Sanger, Neil MacFarquhar, Francesca Regalado and Jeanna Smialek`\
+https://nytimes.com/live/2025/08/19/us/trump-zelensky-ukraine-russia/heres-the-latest
+
+**Live Updates: European Leaders to Discuss Protections for Ukraine After White House Talks**\
+`After hastily arranged meetings with President Trump produced little tangible progress toward peace, Ukraine’s allies focused on security guarantees to keep Russia from invading again.`\
+https://nytimes.com/live/2025/08/19/us/trump-zelensky-ukraine-russia
+
 **Air Canada and Striking Flight Attendants’ Union Reach Tentative Deal**\
 `Thousands of flight attendants must still approve the agreement. The walkout, which began Saturday, has disrupted half a million travelers’ plans, the airline said.`\
 https://nytimes.com/2025/08/19/world/canada/air-canada-strike-flight-attendants-union-deal.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/08/19/opinion/trump-intrusion-lincoln-roosevelt.html
 **In Pursuing Trump Rival, Weaponization Czar Sidesteps Justice Dept. Norms**\
 `Edward R. Martin Jr.’s conduct is part of a pattern in which top administration officials try to use the vast powers of the government to cast the specter of criminality on President Trump’s enemies.`\
 https://nytimes.com/2025/08/19/us/politics/trump-letitia-james-weaponization-czar.html
-
-**Young People of Color Flocked to This Show. It Made Them Feel Seen.**\
-`The exhibition “Beloved Suburbs” drew more than 150,000 visitors to France’s Museum of the History of Immigration. “We really recognize ourselves in the exhibition,” one said.`\
-https://nytimes.com/2025/08/19/arts/paris-banlieues-cheries-beloved-suburbs.html
-
-**A Long Sunrise Walk to Start the School Year**\
-`In an annual tradition at the Pratt Institute, first-year students will get to know one another while walking from their campus across the Brooklyn Bridge.`\
-https://nytimes.com/2025/08/19/nyregion/sunrise-walk-pratt-institute-brooklyn-bridge.html
 
