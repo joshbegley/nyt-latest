@@ -1,3 +1,7 @@
+**Netanyahu Faces Pressure From Far Right Over New Cease-Fire Proposal**\
+`Some members of Israel’s coalition have ruled out a proposed hostage deal with Hamas, but the prime minister has yet to state his position.`\
+https://nytimes.com/2025/08/19/world/middleeast/netanyahu-israel-hamas-gaza-cease-fire-talks.html
+
 **MSNBC’s Rebrand Invites Bemusement and Ridicule**\
 `The cable TV network’s new name, MS NOW, became the subject of mockery soon after it was announced on Monday.`\
 https://nytimes.com/2025/08/19/business/msnbc-ms-now-rebranding.html

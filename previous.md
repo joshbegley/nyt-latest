@@ -4,7 +4,7 @@ https://nytimes.com/2025/08/19/business/msnbc-ms-now-rebranding.html
 
 **Netanyahu Faces Pressure From Far Right Over New Cease-Fire Proposal**\
 `Some members of Israel’s coalition have ruled out a proposed hostage deal with Hamas, but the prime minister has yet to state his position.`\
-https://nytimes.com/2025/08/19/world/middleeast/netanyahu-faces-pressure-from-far-right-over-new-cease-fire-proposal.html
+https://nytimes.com/2025/08/19/world/middleeast/netanyahu-israel-hamas-gaza-cease-fire-talks.html
 
 **A United Front?**\
 `We look at what happened during Ukraine peace talks at the White House.`\
