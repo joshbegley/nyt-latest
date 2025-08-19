@@ -1,3 +1,11 @@
+**Word of the Day: bivalve**\
+`This word has appeared in 25 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2025/08/19/learning/word-of-the-day-bivalve.html
+
+**Bills bubble watch: Which players make 2025 roster, who's in danger of getting cut?**\
+`While many positions are already secured, several players are still hoping to play their way onto the final roster.`\
+https://nytimes.com/athletic/6560872/2025/08/19/buffalo-bills-bubble-watch-players-cut-roster-2025/
+
 **Willy Adames expects emotion, and maybe some inspiration, in weekend return to Milwaukee**\
 `The high-flying Brewers play a different style of baseball. San Francisco's shortstop, under contract for six more seasons, has noticed.`\
 https://nytimes.com/athletic/6561709/2025/08/19/sf-giants-willy-adames-milwaukee-brewers-return/

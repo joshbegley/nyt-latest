@@ -1,3 +1,7 @@
+**Word of the Day: bivalve**\
+`This word has appeared in 25 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2025/08/19/learning/word-of-the-day-bivalve.html
+
 **Willy Adames expects emotion, and maybe some inspiration, in weekend return to Milwaukee**\
 `The high-flying Brewers play a different style of baseball. San Francisco's shortstop, under contract for six more seasons, has noticed.`\
 https://nytimes.com/athletic/6561709/2025/08/19/sf-giants-willy-adames-milwaukee-brewers-return/
@@ -26,15 +30,11 @@ https://nytimes.com/athletic/6560926/2025/08/19/oli-marmol-cardinals-interview-q
 `It's time to crank up the hype-o-meter and look at interesting developments building up this summer, despite the boring offseason.`\
 https://nytimes.com/athletic/6561274/2025/08/19/nhl-offseason-hype-o-meter-2025/
 
-**Bills bubble watch: Which players make it and who is in danger of not making 2025 roster?**\
+**Bills bubble watch: Which players make 2025 roster, who's in danger of getting cut?**\
 `While many positions are already secured, several players are still hoping to play their way onto the final roster.`\
 https://nytimes.com/athletic/6560872/2025/08/19/buffalo-bills-bubble-watch-players-cut-roster-2025/
 
 **Giants QB Russell Wilson tumbles in QB Tiers: Can he recapture his 'lost magic'?**\
 `Can Wilson hold off Father Time — and Jaxson Dart — in 2025?`\
 https://nytimes.com/athletic/6560485/2025/08/19/giants-russell-wilson-nfl-quarterback-tiers-2025/
-
-**Amid a ‘thriving’ moment, MLB makes top-notch healthcare plan more expensive to employees**\
-`MLB has made a change to its employee health benefits, though they remain more generous than most private plans. `\
-https://nytimes.com/athletic/6556414/2025/08/19/mlb-health-care-plan-more-expensive/
 
