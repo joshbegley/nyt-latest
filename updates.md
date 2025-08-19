@@ -1,3 +1,7 @@
+**Five-star RB Savion Hiter commits to Michigan**\
+`Savion Hiter, a five-star prospect from Mineral, Va., committed to the Wolverines on Tuesday over Tennessee, Georgia and Ohio State.`\
+https://nytimes.com/athletic/6562112/2025/08/19/savion-hiter-michigan-recruiting-commitment-football/
+
 **Rick Carlisle, Pacers agree to multiyear contract extension: Source**\
 `In his second stint as Indiana's coach, Carlisle led the Pacers to their first NBA Finals appearance since 2000.`\
 https://nytimes.com/athletic/6562471/2025/08/19/pacers-rick-carlisle-contract-extension-nba/
