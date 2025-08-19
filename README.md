@@ -1,3 +1,7 @@
+**Trump May Expand His Revision of U.S. Capitalism**\
+`The White House’s deliberations about taking a stake in Intel could upend the technology sector — and further redefine how Washington deals with business.`\
+https://nytimes.com/2025/08/19/business/dealbook/trump-capitalism-intel.html
+
 **On Fathers and Sons and ‘Unpronounceable’ Names: The Week 9 Winners of Our Summer Reading Contest**\
 `This week we had so many excellent entries, we decided to honor two winners: an essay by William Alexis, 16, and a video by Saanvi Kondoju, 16.`\
 https://nytimes.com/2025/08/19/learning/on-fathers-and-sons-and-unpronounceable-names-the-week-9-winners-of-our-summer-reading-contest.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6561088/2025/08/19/seahawks-preseason-dareke-young-
 **Do Packers truly have an open competition at left tackle? They just might**\
 `The 2024 first-round pick Jordan Morgan has impressed while filling in for the injured Rasheed Walker in recent weeks.`\
 https://nytimes.com/athletic/6560828/2025/08/19/packers-jordan-morgan-rasheed-walker-left-tackle/
-
-**An ATP Tour partnership with TikTok will test the limits of how tennis can embrace chaos**\
-`The social media platform is a vital route into tennis for casual fans. But can the sport embrace the chaos that makes it so?`\
-https://nytimes.com/athletic/6560678/2025/08/19/tennis-tiktok-atp-tour-players/
 

@@ -1,3 +1,7 @@
+**On Fathers and Sons and ‘Unpronounceable’ Names: The Week 9 Winners of Our Summer Reading Contest**\
+`This week we had so many excellent entries, we decided to honor two winners: an essay by William Alexis, 16, and a video by Saanvi Kondoju, 16.`\
+https://nytimes.com/2025/08/19/learning/on-fathers-and-sons-and-unpronounceable-names-the-week-9-winners-of-our-summer-reading-contest.html
+
 **What to Know About R.V.s and Deforested Wood**\
 `There is no viable alternative to a tropical hardwood that grows in Southeast Asia, according to the American R.V. industry.`\
 https://nytimes.com/2025/08/19/world/asia/rvs-deforestation-what-know.html
