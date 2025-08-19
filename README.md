@@ -1,3 +1,7 @@
+**The Transfer DealSheet: The latest on your club and their plans this summer window**\
+`This week, David Ornstein gives us his One To Watch, we have news on Newcastle's interest in a striker and Man Utd's midfield options`\
+https://nytimes.com/athletic/6559975/2025/08/19/transfer-latest-eberechi-eze-marc-guehi-arsenal-manchester-united-liverpool-tottenham-hotspur/
+
 **Leeds take heart as last season's core show they belong at Premier League level**\
 `Daniel Farke leant on those who had helped smooth promotion from the Championship and was rewarded with an impressive victory over Everton`\
 https://nytimes.com/athletic/6561673/2025/08/19/leeds-ampadu-bogle-rodon-farke-everton/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/19/briefing/tuesday-briefing-crucial-talks-on-ukrain
 **Oliver Glasner, a 10-match unbeaten run, and why Crystal Palace must back their manager**\
 `The Austrian has secured Palace's first major silverware with his team holding their own against the elite, but they need reinforcements`\
 https://nytimes.com/athletic/6558746/2025/08/19/crystal-palace-glasner-transfer-market/
-
-**Xabi Alonso's €180m Real Madrid rebuild: How Spanish giants transformed this summer**\
-`Under the dynamic leadership of their new coach, Real Madrid look to have significantly strengthened`\
-https://nytimes.com/athletic/6560142/2025/08/19/xabi-alonso-real-madrid-rebuild-la-liga/
 
