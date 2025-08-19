@@ -1,3 +1,15 @@
+**Who’s in Charge of Trump’s Cultural Realignment? Here Are Key Players.**\
+`These five people are among those leading the president’s efforts to put his stamp on national cultural institutions, buildings and policies.`\
+https://nytimes.com/2025/08/19/arts/design/trump-cultural-leaders-smithsonian-ballroom-garden-kennedy-center.html
+
+**Ring the Alarm for 13 Killer Dancehall Cuts**\
+`Trace the evolution of the genre over the decades via songs by Sister Nancy, Cutty Ranks, Super Cat and more.`\
+https://nytimes.com/2025/08/19/arts/music/amplifier-newsletter-dancehall-songs.html
+
+**‘I Want to Try and Get to Heaven’: Trump Gets Reflective on ‘Fox & Friends’**\
+`President Trump cast his effort to broker peace in Ukraine in existential terms.`\
+https://nytimes.com/2025/08/19/us/politics/trump-heaven.html
+
 **Trossard agrees new Arsenal contract**\
 `Trossard has reached an agreement on a contract adjustment, increasing his salary but not extending the deal beyond its previous expiration.`\
 https://nytimes.com/athletic/6445104/2025/08/19/leandro-trossard-arsenal-contract-new/

@@ -1,3 +1,11 @@
+**Until Saturday: Judging Auburn's 7 new title claims**\
+`Until Saturday is The Athletic's free CFB newsletter.`\
+https://nytimes.com/athletic/6563070/2025/08/19/auburn-national-championships-claims-until-saturday/
+
+**National Guard Troops in Washington Stick to Tourist Areas**\
+`The number of troops in the city is expected to grow. But Army officials appear to be trying to keep them on the sidelines of President Trump’s mission.`\
+https://nytimes.com/2025/08/19/us/politics/tourists-national-guard-washington.html
+
 **Who’s in Charge of Trump’s Cultural Realignment? Here Are Key Players.**\
 `These five people are among those leading the president’s efforts to put his stamp on national cultural institutions, buildings and policies.`\
 https://nytimes.com/2025/08/19/arts/design/trump-cultural-leaders-smithsonian-ballroom-garden-kennedy-center.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6563003/2025/08/19/washington-jacory-bill-croskey-m
 **Defying fantasy football conventions, from Saquon Barkley to Justin Jefferson**\
 `Michael Salfino looks at some commonly held beliefs in fantasy football that could lead to managers overpaying on draft day.`\
 https://nytimes.com/athletic/6562708/2025/08/19/fantasy-football-2025-saquon-barkley-justin-jefferson/
-
-**Aaron Judge unlikely to throw normally again in 2025, says Aaron Boone**\
-`Judge is on a throwing progression but Boone noted Tuesday that the slugger isn't likely to be able to throw without limitations in 2025.`\
-https://nytimes.com/athletic/6562809/2025/08/19/aaron-judge-yankees-arm-health-aaron-boone/
-
-**Pirro has ordered her office to maximize criminal charges on street arrests.**\
-`The instruction amounts to a declaration that the understaffed U.S. attorney’s office will seek to ramp up criminal charges arising from the president’s takeover of law enforcement in the capital.`\
-https://nytimes.com/live/2025/08/19/us/trump-news/pirro-has-ordered-her-office-to-maximize-criminal-charges-on-street-arrests
 
