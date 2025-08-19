@@ -1,3 +1,15 @@
+**There's a cool WNBA double-header tonight. Here's how to see Lynx-Liberty and Dream-Aces**\
+`There are two out-of-market games on national TV. Here's how to watch four of the WNBA's best teams Tuesday night.`\
+https://nytimes.com/athletic/6561166/2025/08/19/lynx-liberty-dream-aces-wnba-how-to-watch/
+
+**Falcons believe new center might be a 'Neuz Flash' for rest of NFL**\
+`After joining the Falcons as an undrafted free agent in 2021, Ryan Neuzil is set to take over the starting center job this season.`\
+https://nytimes.com/athletic/6560229/2025/08/19/ryan-neuzil-falcons-center-nfl/
+
+**Why it wouldn't make sense for Patriots to trade a top pick for Hendrickson, McLaurin**\
+`Eliot Wolf said the Patriots would be willing to deal a first- or second-round draft pick, but doing it now doesn't seem likely.`\
+https://nytimes.com/athletic/6560785/2025/08/19/eliot-wolf-patriots-trade-trey-hendrickson-terry-mclaurin/
+
 **A Brief Note on the Difference Between Negotiation and Extortion**\
 `And while we’re at it, let’s think about the phrase “land swap.”`\
 https://nytimes.com/2025/08/19/opinion/ukraine-russia-war-territory.html

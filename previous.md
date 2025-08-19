@@ -1,3 +1,15 @@
+**There's a cool WNBA double-header tonight. Here's how to see Lynx-Liberty and Dream-Aces**\
+`There are two out-of-market games on national TV. Here's how to watch four of the WNBA's best teams Tuesday night.`\
+https://nytimes.com/athletic/6561166/2025/08/19/lynx-liberty-dream-aces-wnba-how-to-watch/
+
+**Falcons believe new center might be a 'Neuz Flash' for rest of NFL**\
+`After joining the Falcons as an undrafted free agent in 2021, Ryan Neuzil is set to take over the starting center job this season.`\
+https://nytimes.com/athletic/6560229/2025/08/19/ryan-neuzil-falcons-center-nfl/
+
+**Why it wouldn't make sense for Patriots to trade a top pick for Hendrickson, McLaurin**\
+`Eliot Wolf said the Patriots would be willing to deal a first- or second-round draft pick, but doing it now doesn't seem likely.`\
+https://nytimes.com/athletic/6560785/2025/08/19/eliot-wolf-patriots-trade-trey-hendrickson-terry-mclaurin/
+
 **A Brief Note on the Difference Between Negotiation and Extortion**\
 `And while we’re at it, let’s think about the phrase “land swap.”`\
 https://nytimes.com/2025/08/19/opinion/ukraine-russia-war-territory.html
@@ -25,12 +37,4 @@ https://nytimes.com/2025/08/19/movies/19cul-spike-lee-denzel-highest-2-lowest.ht
 **The Race to Rescue PBS and NPR Stations**\
 `The Knight Foundation and other top organizations are aiming to provide $50 million to stabilize the stations most at risk from the recent federal government funding cuts.`\
 https://nytimes.com/2025/08/19/business/the-race-to-rescue-pbs-and-npr-stations.html
-
-**‘They’re Just Waiting to Just Get Back on Their Phone’: 12 Teachers on What’s Changed in Schools**\
-`The group discusses artificial intelligence, phones, and how students have changed over time,`\
-https://nytimes.com/interactive/2025/08/19/opinion/focus-group-teachers.html
-
-**The Politics of Crime Are Perilous for Left and Right Alike**\
-`President Trump has latched on to concerns about crime, as liberals point to its decline. The politics often flip when it comes to mass shootings.`\
-https://nytimes.com/2025/08/19/us/politics-gun-violence-mass-shootings-washington-dc.html
 
