@@ -1,3 +1,15 @@
+**Cincinnati dismisses guard Jizzle James from team amid 'personal issues'**\
+`James was Cincinnati's top scorer last season and a productive playmaker, averaging 12.7 points and team-best 3.5 assists per game.`\
+https://nytimes.com/athletic/6563424/2025/08/19/cincinnati-jizzle-james-edgerrin-ncaa-basketball/
+
+**Trump Said He Would Not Send Troops to Ukraine**\
+`Also, hundreds more troops are headed to Washington. Here’s the latest at the end of Tuesday.`\
+https://nytimes.com/2025/08/19/briefing/trump-us-troops-ukraine-open-ai.html
+
+**Potential new Trail Blazers ownership hopes to close deal by end of March**\
+`Tom Dundon has reached an exclusivity agreement with the estate, which means there will be no negotiations with other interested buyers.`\
+https://nytimes.com/athletic/6563404/2025/08/19/potential-trail-blazers-ownership-close-deal-march/
+
 **Aaron Rodgers won't play in preseason finale, sitting entire preseason for second straight year**\
 `The quarterback will make his Steelers debut in Week 1 of the regular season, against his former team, the Jets.`\
 https://nytimes.com/athletic/6563507/2025/08/19/aaron-rodgers-sits-out-preseason/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/08/19/briefing/ukraine-russia-peace-gaza-indonesia-rain
 **John Metchie III's rapid Eagles intro begins with A.J. Brown, DeVonta Smith on sideline**\
 `Plus, notes from practice, including an update on Tanner McKee's injury.`\
 https://nytimes.com/athletic/6563356/2025/08/19/john-metchies-eagles-a-j-brown-devonta-smith/
-
-**Luis Suarez open to Inter Miami contract, retirement with Messi: 'It could happen'**\
-`Despite physical setbacks, Suarez’s drive remains strong, fueled by a shared dream with Messi to retire together.`\
-https://nytimes.com/athletic/6563345/2025/08/19/suarez-messi-inter-miami-contract-mls/
-
-**ICE Wrongly Suggests Lawmaker Doxxed Agents, and Racist Threats Follow**\
-`A state representative in Connecticut had posted on Instagram about immigration enforcement efforts in his district but did not give detailed information.`\
-https://nytimes.com/2025/08/19/nyregion/ice-connecticut-legislator-threats.html
-
-**Attacker Stabs Colorado Park Ranger and Flees**\
-`A manhunt was underway for the attacker as the ranger was airlifted to a hospital with serious but non-life-threatening injuries after the episode at Staunton State Park, the authorities said.`\
-https://nytimes.com/2025/08/19/us/colorado-park-ranger-stabbed-manhunt.html
 

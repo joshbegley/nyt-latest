@@ -1,3 +1,15 @@
+**Cincinnati dismisses guard Jizzle James from team amid 'personal issues'**\
+`James was Cincinnati's top scorer last season and a productive playmaker, averaging 12.7 points and team-best 3.5 assists per game.`\
+https://nytimes.com/athletic/6563424/2025/08/19/cincinnati-jizzle-james-edgerrin-ncaa-basketball/
+
+**Trump Said He Would Not Send Troops to Ukraine**\
+`Also, hundreds more troops are headed to Washington. Here’s the latest at the end of Tuesday.`\
+https://nytimes.com/2025/08/19/briefing/trump-us-troops-ukraine-open-ai.html
+
+**Potential new Trail Blazers ownership hopes to close deal by end of March**\
+`Tom Dundon has reached an exclusivity agreement with the estate, which means there will be no negotiations with other interested buyers.`\
+https://nytimes.com/athletic/6563404/2025/08/19/potential-trail-blazers-ownership-close-deal-march/
+
 **Aaron Rodgers won't play in preseason finale, sitting entire preseason for second straight year**\
 `The quarterback will make his Steelers debut in Week 1 of the regular season, against his former team, the Jets.`\
 https://nytimes.com/athletic/6563507/2025/08/19/aaron-rodgers-sits-out-preseason/
