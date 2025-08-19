@@ -1,3 +1,19 @@
+**New signings aren't always the solution. Maybe unhappy managers should try coaching?**\
+`Perhaps more managers should try other things before pushing the big red transfer button`\
+https://nytimes.com/athletic/6560039/2025/08/19/managers-new-signings-coaching-column/
+
+**A Debilitating Virus Surges Globally as Mosquitoes Move With Warming Climate**\
+`Chikungunya, which can disable victims for years, is spreading rapidly, including in China and other places that have not seen it before.`\
+https://nytimes.com/2025/08/19/health/chikungunya-virus-mosquitoes-what-to-know.html
+
+**Connections: Sports Edition Coach: Hints for Aug. 19, 2025**\
+`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
+https://nytimes.com/athletic/6559541/2025/08/19/connections-sports-edition-hints-for-aug-19-2025/
+
+**Corrections: Aug. 19, 2025**\
+`Corrections that appeared in print on Tuesday, Aug. 19, 2025.`\
+https://nytimes.com/2025/08/19/pageoneplus/corrections-aug-19-2025.html
+
 **Quote of the Day: Games Show Robots’ Potential, But Your Job Is Safe, for Now**\
 `Quotation of the Day for Tuesday, August 19, 2025.`\
 https://nytimes.com/2025/08/18/pageoneplus/quote-of-the-day-games-show-robots-potential-but-your-job-is-safe-for-now.html
