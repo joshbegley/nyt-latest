@@ -1,3 +1,15 @@
+**John Kelly fallout, Justin Carbonneau's future, AHL prospects: Blues mailbag, Part 2**\
+`The Blues received significant backlash after firing John Kelly from the broadcast booth, and it was warranted.`\
+https://nytimes.com/athletic/6555494/2025/08/19/blues-john-kelly-carbonneau-prospects/
+
+**'The Sports Gossip Show' hosts answer your burning questions**\
+`It’s been a crazy few weeks. We joined The Athletic, and Jordon Hudson and Taylor Swift episodes quickly followed. Now we need answers. `\
+https://nytimes.com/athletic/6558911/2025/08/19/sports-gossip-show-mailbag/
+
+**Wardrobes Shaped by Music**\
+`A couple’s style took cues from Wu-Tang Clan and Anita Baker.`\
+https://nytimes.com/2025/08/19/style/street-style-look-music-inspired-fashion.html
+
 **Trump May Expand His Revision of U.S. Capitalism**\
 `The White House’s deliberations about taking a stake in Intel could upend the technology sector — and further redefine how Washington deals with business.`\
 https://nytimes.com/2025/08/19/business/dealbook/trump-capitalism-intel.html
