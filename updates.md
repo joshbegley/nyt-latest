@@ -1,3 +1,7 @@
+**Arch Manning pushes back against grandfather Archie's NFL Draft comments**\
+`Archie told Texas Monthly magazine that although he hadn't talked to Arch about the decision, he felt confident that Arch wouldn't declare.`\
+https://nytimes.com/athletic/6563300/2025/08/19/arch-manning-pushes-back-against-grandfather-archies-comments-on-2026-nfl-draft-status/
+
 **Rodrigo Moya, Who Photographed a Changing Latin America, Dies at 91**\
 `He documented poverty and protest in the 1950s and ’60, and he created indelible images of Che Guevara and Gabriel García Márquez.`\
 https://nytimes.com/2025/08/19/arts/rodrigo-moya-dead.html

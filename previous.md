@@ -1,3 +1,7 @@
+**Arch Manning pushes back against grandfather Archie's NFL Draft comments**\
+`Archie told Texas Monthly magazine that although he hadn't talked to Arch about the decision, he felt confident that Arch wouldn't declare.`\
+https://nytimes.com/athletic/6563300/2025/08/19/arch-manning-pushes-back-against-grandfather-archies-comments-on-2026-nfl-draft-status/
+
 **Rodrigo Moya, Who Photographed a Changing Latin America, Dies at 91**\
 `He documented poverty and protest in the 1950s and ’60, and he created indelible images of Che Guevara and Gabriel García Márquez.`\
 https://nytimes.com/2025/08/19/arts/rodrigo-moya-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6563279/2025/08/19/manchester-united-academy-stephe
 **It's about time Carolina's players started getting mad and pushing back**\
 `Dave Canales said his team's practice “got heated toward the end" as the Panthers wrapped up training camp with a few fights.`\
 https://nytimes.com/athletic/6563151/2025/08/19/carolina-panthers-practice-fight-tempers/
-
-**Maps: How Ukraine’s Frontline Has Moved**\
-`Putin has demanded that Ukraine give up the entirety of the Donbas region before Russia stops fighting. Here is a look at Russia’s advances into Ukrainian territory since in 2014.`\
-https://nytimes.com/interactive/2025/08/19/world/europe/ukraine-russia-frontline-maps.html
 
