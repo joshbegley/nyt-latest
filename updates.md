@@ -1,3 +1,7 @@
+**Air Force’s Top General to Retire Early**\
+`Gen. David Allvin, the chief of staff of the Air Force, is the latest high-ranking general to exit following President Trump’s purge of Pentagon leadership.`\
+https://nytimes.com/2025/08/18/us/politics/air-force-general-trump-hegseth-pentagon.html
+
 **5 Takeaways From Trump’s Meeting With Zelensky and European Leaders**\
 `The leaders presented a relatively united front and appeared to agree on the next steps in the effort to halt the fighting between Ukraine and Russia. But much remained unresolved.`\
 https://nytimes.com/2025/08/18/us/politics/takeaways-trump-zelensky-putin.html
