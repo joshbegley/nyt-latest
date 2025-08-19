@@ -1,3 +1,7 @@
+**Britain Drops Request That Apple Create a Back Door**\
+`The Trump administration says that law enforcement organizations in Britain would back off asking the company for a tool to access customers’ data.`\
+https://nytimes.com/2025/08/19/technology/britain-apple-back-door.html
+
 **Tuesday Briefing: Crucial Talks on Ukraine**\
 `Also, China’s robot games.`\
 https://nytimes.com/2025/08/19/briefing/tuesday-briefing-crucial-talks-on-ukraine.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6559541/2025/08/19/connections-sports-edition-hints
 **Corrections: Aug. 19, 2025**\
 `Corrections that appeared in print on Tuesday, Aug. 19, 2025.`\
 https://nytimes.com/2025/08/19/pageoneplus/corrections-aug-19-2025.html
-
-**Quote of the Day: Games Show Robots’ Potential, But Your Job Is Safe, for Now**\
-`Quotation of the Day for Tuesday, August 19, 2025.`\
-https://nytimes.com/2025/08/18/pageoneplus/quote-of-the-day-games-show-robots-potential-but-your-job-is-safe-for-now.html
 

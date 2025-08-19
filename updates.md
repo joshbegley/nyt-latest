@@ -1,3 +1,7 @@
+**Tuesday Briefing: Crucial Talks on Ukraine**\
+`Also, China’s robot games.`\
+https://nytimes.com/2025/08/19/briefing/tuesday-briefing-crucial-talks-on-ukraine.html
+
 **Oliver Glasner, a 10-match unbeaten run, and why Crystal Palace must back their manager**\
 `The Austrian has secured Palace's first major silverware with his team holding their own against the elite, but they need reinforcements`\
 https://nytimes.com/athletic/6558746/2025/08/19/crystal-palace-glasner-transfer-market/
