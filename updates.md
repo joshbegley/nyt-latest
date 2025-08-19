@@ -1,3 +1,7 @@
+**Macron calls Putin a ‘predator’ and an ‘ogre.’**\
+`The remarks were a considerable shift in sentiment between President Vladimir V. Putin of Russia and France’s president, Emmanuel Macron, who called Moscow a potential threat for many European countries.`\
+https://nytimes.com/live/2025/08/19/us/trump-zelensky-ukraine-russia/macron-putin-predator-russia-ukraine-war
+
 **Austin Cindric on self-growth, digging deep and positivity: 12 Questions**\
 `Cup Series driver Austin Cindric talks about the time he realized he was all-in, the race that got away and more in the latest 12 Questions.`\
 https://nytimes.com/athletic/6560226/2025/08/19/austin-cindric-nascar-12-questions/
