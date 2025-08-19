@@ -1,3 +1,7 @@
+**Rick Carlisle, Pacers agree to multiyear contract extension: Source**\
+`In his second stint as Indiana's coach, Carlisle led the Pacers to their first NBA Finals appearance since 2000.`\
+https://nytimes.com/athletic/6562471/2025/08/19/pacers-rick-carlisle-contract-extension-nba/
+
 **Auburn formally claims seven additional football national titles, bringing school total to nine**\
 `Claiming national titles is a long-held tradition in major college football, where the NCAA has never held any authority to run a playoff.`\
 https://nytimes.com/athletic/6562375/2025/08/19/auburn-football-national-championships-claimed/
