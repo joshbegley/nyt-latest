@@ -1,3 +1,7 @@
+**Adams Asks Trump Administration to Stop Courthouse Migrant Detentions**\
+`Federal prosecutors dropped charges against Mayor Eric Adams of New York so that he could help with deportations. But the administration and the city have been jousting in court.`\
+https://nytimes.com/2025/08/19/nyregion/adams-immigration-amicus-brief.html
+
 **Salah, Caldentey win 2024-25 PFA Player of the Year awards**\
 `Salah becomes the first player to win three PFA Player of the Year awards, having also secured the crown for the 2017-18 and 2021-22.`\
 https://nytimes.com/athletic/6560924/2025/08/19/pfa-awards-winners-salah-caldentey/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6562865/2025/08/19/mlb-realignment-sf-giants-outloo
 **Sophie Cunningham to miss rest of season with right knee injury**\
 `Cunningham injured her knee when she collided with the Sun's Bria Hartley in Sunday's game.`\
 https://nytimes.com/athletic/6563208/2025/08/19/indiana-fever-sophie-cunningham-injury-wnba/
-
-**Once a Source of Life and Renewal, Monsoon Brings Death to Pakistan**\
-`With villages swept away and Pakistan’s largest city assailed by monsoon floods, climate change has brought a catastrophic new normal to the country.`\
-https://nytimes.com/2025/08/19/world/asia/pakistan-monsoon-devastation.html
 
