@@ -1,3 +1,7 @@
+**Travis Jones is Ravens' best player you know nothing about — and that's how he wants it**\
+`On a defense stocked in big personalities with big resumes, the massive fourth-year nose tackle always finds a way to stand out. `\
+https://nytimes.com/athletic/6560402/2025/08/19/travis-jones-ravens-nose-tackle/
+
 **Jimmy Pitaro's big bet to keep ESPN on top**\
 `The Aug. 21 launch of ESPN's updated app, including new access to all of ESPN's live games without cable, is a huge moment for the network.`\
 https://nytimes.com/athletic/6560777/2025/08/19/jimmy-pitaro-espn-streaming-app-launch-netflix/

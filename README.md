@@ -1,3 +1,11 @@
+**The Pulse: A matchup of stares gets spoiled**\
+`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/6560670/2025/08/19/sinner-alcaraz-cincinnati-open-the-pulse/
+
+**Morecambe appoint first Sikh manager in British professional football**\
+`The 30-year-old, who has never previously managed a senior side, succeeds Derek Adams, who was sacked by Morecambe's new owners on Monday.`\
+https://nytimes.com/athletic/6561912/2025/08/19/morecambe-sikh-manager-ashvir-singh-johal/
+
 **Travis Jones is Ravens' best player you know nothing about — and that's how he wants it**\
 `On a defense stocked in big personalities with big resumes, the massive fourth-year nose tackle always finds a way to stand out. `\
 https://nytimes.com/athletic/6560402/2025/08/19/travis-jones-ravens-nose-tackle/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6560635/2025/08/19/mlb-expansion-realignment-league
 **A drop in velocity be damned, Brandon Woodruff won't forsake his fastball — and it's working**\
 `Woodruff somehow looks lights out with a 2.06 ERA despite missing last season with a shoulder injury. `\
 https://nytimes.com/athletic/6561428/2025/08/19/brewers-brandon-woodruff-comeback/
-
-**Jim Valvano’s ESPYs speech touched hearts. It’s also a masterclass in public speaking**\
-`A public speaking expert watched Valvano's speech for the first time and called her dad. “Have you ever seen this?” she asked. “Oh my God."`\
-https://nytimes.com/athletic/6560579/2025/08/19/jim-valvano-college-basketball-espys-speech/
-
-**Do the Steelers need another wide receiver? If so, is Gabe Davis the answer?**\
-`Davis is set to visit the team for a second time on Tuesday, though Pittsburgh has other options, in-house and outside the roster.`\
-https://nytimes.com/athletic/6561522/2025/08/19/steelers-wide-receiver-wr2-gabe-davis/
 
