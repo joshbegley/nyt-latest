@@ -23,7 +23,7 @@ https://nytimes.com/athletic/6561308/2025/08/19/everton-moyes-window-grealish-le
 https://nytimes.com/athletic/6561720/2025/08/19/dodgers-walk-off-loss-teoscar-hernandez-rockies/
 
 **Beaches Close as Hurricane Erin Brings Deadly Rip Currents to Mid-Atlantic**\
-`Several beaches in New Jersey and Delaware were closed on Monday as the powerful storm churned in the Atlantic. Rip currents have been blamed for at least one death.`\
+`Several beaches in New Jersey and Delaware were closed as the powerful storm churned in the Atlantic. Rip currents have been blamed for at least one death.`\
 https://nytimes.com/2025/08/19/nyregion/hurricane-erin-beach-closures-new-jersey.html
 
 **The New York Times in Print for Tuesday, Aug. 19, 2025**\

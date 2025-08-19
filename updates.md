@@ -1,3 +1,7 @@
+**Beaches Close as Hurricane Erin Brings Deadly Rip Currents to Mid-Atlantic**\
+`Several beaches in New Jersey and Delaware were closed as the powerful storm churned in the Atlantic. Rip currents have been blamed for at least one death.`\
+https://nytimes.com/2025/08/19/nyregion/hurricane-erin-beach-closures-new-jersey.html
+
 **An Evening With the Central Park Coyotes**\
 `Romeo and Juliet are shy and graceful, leaping over fences, hunting for rodents and catching at least one Canada goose.`\
 https://nytimes.com/2025/08/19/nyregion/central-park-coyotes.html
