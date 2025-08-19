@@ -1,3 +1,7 @@
+**Rick Carlisle, Pacers agree to multiyear contract extension: Source**\
+`In his second stint as Indiana's coach, Carlisle led the Pacers to their first NBA Finals appearance since 2000.`\
+https://nytimes.com/athletic/6562471/2025/08/19/pacers-rick-carlisle-contract-extension-nba/
+
 **Auburn formally claims seven additional football national titles, bringing school total to nine**\
 `Claiming national titles is a long-held tradition in major college football, where the NCAA has never held any authority to run a playoff.`\
 https://nytimes.com/athletic/6562375/2025/08/19/auburn-football-national-championships-claimed/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6434875/2025/08/19/fantasy-football-2025-draft-kit-
 **Colts name Daniel Jones Week 1 starter; Anthony Richardson heads to bench**\
 `Jones will start the Colts' season-opening game at home versus the Miami Dolphins. `\
 https://nytimes.com/athletic/6561524/2025/08/19/colts-daniel-jones-starter-anthony-richardson/
-
-**Russia Plays Down the Prospect of a Putin-Zelensky Meeting**\
-`President Trump had suggested a meeting between Russia and Ukraine’s leaders could be a potential next step on the path to peace, but Russian state news media barely mentioned such a meeting in its coverage.`\
-https://nytimes.com/2025/08/19/us/russia-putin-zelensky-meeting-trump.html
 
