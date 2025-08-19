@@ -1,3 +1,11 @@
+**Iga Świątek's Cincinnati Open win a message to U.S. Open field: Watch out**\
+`World No. 2 defeats feisty Jasmine Paolini in final to earn her first title on a hard court since March of 2024.`\
+https://nytimes.com/athletic/6561392/2025/08/18/iga-swiatek-cincinnati-open-win-jasmine-paolini/
+
+**Full Time: How long should we wait for weather to clear?**\
+`Welcome to Full Time, The Athletic's women's soccer newsletter.`\
+https://nytimes.com/athletic/6561404/2025/08/18/heat-delays-nwsl-full-time/
+
 **In Surprise Move, Trump Taps Missouri Attorney General to Help Run F.B.I.**\
 `The move appears to diminish the authority of the current deputy director, Dan Bongino, whose tumultuous tenure has included a pitched argument over files related to the disgraced financier Jeffrey Epstein.`\
 https://nytimes.com/2025/08/18/us/politics/fbi-missouri-attorney-general.html
@@ -29,12 +37,4 @@ https://nytimes.com/video/us/politics/100000010347694/trump-zelensky-ukraine-war
 **Texas Tech RB Quinten Joyner expected to miss season with knee injury: Sources**\
 `The 5-foot-11, 215-pound Joyner, a sophomore from Austin, rushed for 478 yards, averaging 7.6 yards per carry in 2024.`\
 https://nytimes.com/athletic/6561259/2025/08/18/texas-tech-quinten-joyner-injury/
-
-**M.T.A. Approves Major Contract to Expand the Second Avenue Subway Line**\
-`The contract, which will award nearly $2 billion to construction firms, funds crucial aspects of the latest phase of the long-awaited subway expansion into East Harlem.`\
-https://nytimes.com/2025/08/18/nyregion/mta-second-avenue-subway-harlem-125th-street.html
-
-**Former Cy Young winner Shane Bieber to make his Blue Jays debut on Friday**\
-`Acquired at the trade deadline, Bieber will be making his MLB return from Tommy John surgery when he debuts with the Blue Jays.`\
-https://nytimes.com/athletic/6561100/2025/08/18/shane-bieber-blue-jays-debut/
 
