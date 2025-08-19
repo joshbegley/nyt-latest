@@ -1,3 +1,7 @@
+**Stabbing at Arizona High School Leaves 1 Student Dead, Officials Say**\
+`A fight between two students at Maryvale High School in Phoenix on Tuesday left one fatally stabbed and the other with non-life-threatening injuries, the agency said.`\
+https://nytimes.com/2025/08/19/us/arizona-stabbing-high-school.html
+
 **At Hamptons Fund-Raiser, Cuomo Predicts Help From Trump Is on the Way**\
 `Former Gov. Andrew M. Cuomo, who trails in the polls for New York City mayor, is said to have told a crowd of wealthy donors that he believed President Trump would help line up support behind him.`\
 https://nytimes.com/2025/08/19/nyregion/cuomo-trump-nyc-mayor-hamptons.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6563404/2025/08/19/potential-trail-blazers-ownershi
 **Aaron Rodgers won't play in preseason finale, sitting entire preseason for second straight year**\
 `The quarterback will make his Steelers debut in Week 1 of the regular season, against his former team, the Jets.`\
 https://nytimes.com/athletic/6563507/2025/08/19/aaron-rodgers-sits-out-preseason/
-
-**Canada's Jesse Marsch focused on final days of European transfer window**\
-`Manager expecting "between 10 and 15 players" to change clubs as they chase call-ups for the biggest tournament in Canadian soccer history`\
-https://nytimes.com/athletic/6562762/2025/08/19/canada-jesse-marsch-world-cup-europe-transfers/
 
