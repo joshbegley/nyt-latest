@@ -1,3 +1,15 @@
+**Rodrigo Moya, Who Photographed a Changing Latin America, Dies at 91**\
+`He documented poverty and protest in the 1950s and ’60, and he created indelible images of Che Guevara and Gabriel García Márquez.`\
+https://nytimes.com/2025/08/19/arts/rodrigo-moya-dead.html
+
+**Trump Revokes Security Clearances of 37 Former and Current Officials**\
+`The move is the latest effort by the Trump administration to shift the public’s attention to the 2016 election.`\
+https://nytimes.com/2025/08/19/us/politics/trump-security-clearances.html
+
+**Isak: Newcastle relationship 'can't continue', promises have been 'broken'**\
+`Isak was not present at Tuesday's PFA awards, where he was the only Newcastle player to be named in the Premier League team of the season.`\
+https://nytimes.com/athletic/6563347/2025/08/19/alexander-isak-newcastle-transfer-latest/
+
 **Adams Asks Trump Administration to Stop Courthouse Migrant Detentions**\
 `Federal prosecutors dropped charges against Mayor Eric Adams of New York so that he could help with deportations. But the administration and the city have been jousting in court.`\
 https://nytimes.com/2025/08/19/nyregion/adams-immigration-amicus-brief.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6563151/2025/08/19/carolina-panthers-practice-fight
 **Maps: How Ukraine’s Frontline Has Moved**\
 `Putin has demanded that Ukraine give up the entirety of the Donbas region before Russia stops fighting. Here is a look at Russia’s advances into Ukrainian territory since in 2014.`\
 https://nytimes.com/interactive/2025/08/19/world/europe/ukraine-russia-frontline-maps.html
-
-**How Europe Learned to Speak So Trump Would Listen**\
-`The leaders of Germany, France, Britain and other supporters of Ukraine have come together in exceptional ways to help sway the U.S. president.`\
-https://nytimes.com/2025/08/19/world/europe/trump-putin-summit-europe.html
-
-**If realignment is looming, here's what Giants fans should hope for**\
-`If realignment is coming to MLB, the Giants will be impacted. Here are the changes that would be dealbreakers.`\
-https://nytimes.com/athletic/6562865/2025/08/19/mlb-realignment-sf-giants-outlook/
-
-**Sophie Cunningham to miss rest of season with right knee injury**\
-`Cunningham injured her knee when she collided with the Sun's Bria Hartley in Sunday's game.`\
-https://nytimes.com/athletic/6563208/2025/08/19/indiana-fever-sophie-cunningham-injury-wnba/
 
