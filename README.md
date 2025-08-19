@@ -1,3 +1,15 @@
+**Dine in a Palace of Mirrors at Musaafer**\
+`El Rey Tacos brings Mexico City style to Times Square, the Blue Vault adds a speakeasy option to the theater district and more news.`\
+https://nytimes.com/2025/08/19/dining/nyc-restaurant-news.html
+
+**Fantasy Scoop: Who is Jacory 'Bill' Croskey-Merritt?**\
+`Meet the Commanders' running back who caused a social media frenzy. Plus: Fantasy implications of Joe Flacco and Matthew Stafford situations`\
+https://nytimes.com/athletic/6563003/2025/08/19/washington-jacory-bill-croskey-merritt-fantasy-football-nfl/
+
+**Defying fantasy football conventions, from Saquon Barkley to Justin Jefferson**\
+`Michael Salfino looks at some commonly held beliefs in fantasy football that could lead to managers overpaying on draft day.`\
+https://nytimes.com/athletic/6562708/2025/08/19/fantasy-football-2025-saquon-barkley-justin-jefferson/
+
 **Aaron Judge unlikely to throw normally again in 2025, says Aaron Boone**\
 `Judge is on a throwing progression but Boone noted Tuesday that the slugger isn't likely to be able to throw without limitations in 2025.`\
 https://nytimes.com/athletic/6562809/2025/08/19/aaron-judge-yankees-arm-health-aaron-boone/
@@ -12,7 +24,7 @@ https://nytimes.com/2025/08/19/books/review/organization-books.html
 
 **Tennessee Becomes Latest Republican-Led State to Send National Guard to D.C.**\
 `The chair of the Democratic Governors Association, however, warned Republican governors against supporting “a dangerous, politically motivated agenda.”`\
-https://nytimes.com/2025/08/19/us/politics/tennessee-becomes-latest-republican-led-state-to-send-national-guard-to-dc.html
+https://nytimes.com/2025/08/19/us/politics/tennessee-national-guard-dc-trump.html
 
 **Top 5 fantasy football overvalued and undervalued players for 2025**\
 `KC Joyner shares who he thinks are the top-five over- and undervalued players for fantasy football in 2025. `\
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6558676/2025/08/19/cj-carr-notre-dame-starting-quar
 **Leeds finalising move for Milan's Okafor**\
 `The Switzerland international spent the second half of 2025-26 on loan at Napoli, playing four games as Antonio Conte's side won Serie A.`\
 https://nytimes.com/athletic/6551626/2025/08/19/leeds-transfer-news-noah-okafor-milan/
-
-**How Zelensky Made Progress With Trump**\
-`President Volodymyr Zelensky of Ukraine had a remarkably different White House visit on Monday than the ambush he walked into six months ago.`\
-https://nytimes.com/video/world/europe/100000010348280/how-zelensky-made-progress-with-trump.html
-
-**Hot-hitting Mets catcher Francisco Alvarez going on IL after injuring thumb on slide: Source**\
-`Alvarez’s resurgence was a critical development for a Mets team in a prolonged malaise.`\
-https://nytimes.com/athletic/6562878/2025/08/19/francisco-alvarez-mets-right-hand-injury-slide/
-
-**RB Leipzig step up Nkunku talks with Chelsea**\
-`The France international, 27, is open to the possibility of rejoining his former club.`\
-https://nytimes.com/athletic/6555856/2025/08/19/christopher-nkunku-rb-leipzig-chelsea-talks/
 
