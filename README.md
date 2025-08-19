@@ -1,3 +1,7 @@
+**Russia Attacks Ukraine Hours After White House Meetings**\
+`Russia launched hundreds of drones and missiles at Ukraine overnight, Ukrainian officials said. The attacks came after European leaders met with President Trump to try to find a path toward peace.`\
+https://nytimes.com/2025/08/19/us/russia-attack-drones-missiles-ukraine.html
+
 **Word of the Day: bivalve**\
 `This word has appeared in 25 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2025/08/19/learning/word-of-the-day-bivalve.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6561274/2025/08/19/nhl-offseason-hype-o-meter-2025/
 **Bills bubble watch: Which players make 2025 roster, who's in danger of getting cut?**\
 `While many positions are already secured, several players are still hoping to play their way onto the final roster.`\
 https://nytimes.com/athletic/6560872/2025/08/19/buffalo-bills-bubble-watch-players-cut-roster-2025/
-
-**Giants QB Russell Wilson tumbles in QB Tiers: Can he recapture his 'lost magic'?**\
-`Can Wilson hold off Father Time — and Jaxson Dart — in 2025?`\
-https://nytimes.com/athletic/6560485/2025/08/19/giants-russell-wilson-nfl-quarterback-tiers-2025/
 
