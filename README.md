@@ -1,3 +1,7 @@
+**At Hamptons Fund-Raiser, Cuomo Predicts Help From Trump Is on the Way**\
+`Former Gov. Andrew M. Cuomo, who trails in the polls for New York City mayor, is said to have told a crowd of wealthy donors that he believed President Trump would help line up support behind him.`\
+https://nytimes.com/2025/08/19/nyregion/cuomo-trump-nyc-mayor-hamptons.html
+
 **What’s Next for the Ukraine Peace Talks?**\
 `President Trump says President Vladimir V. Putin of Russia has agreed to meet with President Volodymyr Zelensky of Ukraine, but Mr. Putin has not confirmed.`\
 https://nytimes.com/2025/08/19/us/ukraine-peace-talks-trump-putin.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6563507/2025/08/19/aaron-rodgers-sits-out-preseason
 **Canada's Jesse Marsch focused on final days of European transfer window**\
 `Manager expecting "between 10 and 15 players" to change clubs as they chase call-ups for the biggest tournament in Canadian soccer history`\
 https://nytimes.com/athletic/6562762/2025/08/19/canada-jesse-marsch-world-cup-europe-transfers/
-
-**Whitecaps add defender Sebastian Schonlau from Bundesliga's Hamburg**\
-`The Whitecaps made another move following Thomas Muller's arrival.`\
-https://nytimes.com/athletic/6563578/2025/08/19/vancouver-whitecaps-schonlau-mls-hamburg/
 

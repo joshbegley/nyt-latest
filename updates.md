@@ -1,3 +1,15 @@
+**What’s Next for the Ukraine Peace Talks?**\
+`President Trump says President Vladimir V. Putin of Russia has agreed to meet with President Volodymyr Zelensky of Ukraine, but Mr. Putin has not confirmed.`\
+https://nytimes.com/2025/08/19/us/ukraine-peace-talks-trump-putin.html
+
+**Orlando Pride finalizing world-record transfer for Mexico's Lizbeth Ovalle**\
+`The Pride, who play in the National Women's Soccer League (NWSL), is expected to spend $1.5 million in fees to acquire the forward.`\
+https://nytimes.com/athletic/6562110/2025/08/19/orlando-pride-lizbeth-ovalle-transfer-record/
+
+**Canada's Jesse Marsch focused on final days of European transfer window**\
+`Manager expecting "between 10 and 15 players" to change clubs as they chase call-ups for the biggest tournament in Canadian soccer history`\
+https://nytimes.com/athletic/6562762/2025/08/19/canada-jesse-marsch-world-cup-europe-transfers/
+
 **Israel Says It Killed a Hamas Militant Involved in Yarden Bibas Kidnapping**\
 `Mr. Bibas, his wife and their two small children were abducted and taken to Gaza. Only he survived.`\
 https://nytimes.com/2025/08/19/world/middleeast/hamas-israel-bibas-kidnapping.html
