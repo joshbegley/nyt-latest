@@ -1,3 +1,11 @@
+**Watching Matheus Cunha's Man United debut at his first futsal club in Brazil: 'He looked at home, relaxed'**\
+`Locals gathered at CT Barao in Recife's Paramirim neighbourhood to watch a former alumnus on the big stage. The Athletic went, too...`\
+https://nytimes.com/athletic/6560200/2025/08/19/matheus-cunha-man-united-debut-brazil/
+
+**Row Z: Chelsea's defensive headache, FIFA football, and Heaton's wait goes on**\
+`Our weekly look at the whackier side of the game also looks at Racing Club seeking to disguise their signing of Marcos Rojo`\
+https://nytimes.com/athletic/6560024/2025/08/19/maresca-chelsea-fifa-heaton-rojo-row-z/
+
 **New signings aren't always the solution. Maybe unhappy managers should try coaching?**\
 `Perhaps more managers should try other things before pushing the big red transfer button`\
 https://nytimes.com/athletic/6560039/2025/08/19/managers-new-signings-coaching-column/

@@ -1,3 +1,11 @@
+**Watching Matheus Cunha's Man United debut at his first futsal club in Brazil: 'He looked at home, relaxed'**\
+`Locals gathered at CT Barao in Recife's Paramirim neighbourhood to watch a former alumnus on the big stage. The Athletic went, too...`\
+https://nytimes.com/athletic/6560200/2025/08/19/matheus-cunha-man-united-debut-brazil/
+
+**Row Z: Chelsea's defensive headache, FIFA football, and Heaton's wait goes on**\
+`Our weekly look at the whackier side of the game also looks at Racing Club seeking to disguise their signing of Marcos Rojo`\
+https://nytimes.com/athletic/6560024/2025/08/19/maresca-chelsea-fifa-heaton-rojo-row-z/
+
 **New signings aren't always the solution. Maybe unhappy managers should try coaching?**\
 `Perhaps more managers should try other things before pushing the big red transfer button`\
 https://nytimes.com/athletic/6560039/2025/08/19/managers-new-signings-coaching-column/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6561452/2025/08/18/cubs-brewers-nl-central-column/
 **Diamondbacks' Ketel Marte addresses reports concerning off day requests**\
 `Marte apologized for missing a key series against the Cardinals and said his goal is to help the Diamondbacks win games.`\
 https://nytimes.com/athletic/6561509/2025/08/18/arizona-diamondbacks-ketel-marte-comments/
-
-**Story Extender**\
-`Eric Rollfing takes us on a puzzle crawl.`\
-https://nytimes.com/2025/08/18/crosswords/daily-puzzle-2025-08-19.html
-
-**‘Take a Banana for the Ride’ Review: Jeff Ross’s Life Makes a Detour**\
-`With mortality on his mind, the insult comic comes to Broadway in a gentle, tough-guy solo show.`\
-https://nytimes.com/2025/08/18/theater/jeff-ross-take-a-banana-for-the-ride-review.html
 
