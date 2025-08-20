@@ -1,3 +1,7 @@
+**Ask a Journalist: A Monthly Series for Teenagers**\
+`Join us each month this school year to discuss a teen-friendly topic with a New York Times journalist who covers it. Post your thoughts, ask questions or suggest ideas, and the reporters will reply!`\
+https://nytimes.com/2025/08/20/learning/ask-a-journalist-a-monthly-series-for-teenagers.html
+
 **Three Things to Know About Hurricane Erin Today**\
 `The storm’s center will stay offshore, but it will bring dangers to the coast.`\
 https://nytimes.com/2025/08/20/weather/hurricane-erin-forecast-today.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/20/science/uranus-new-moon.html
 **College football national title odds: Texas is favorite ahead of a wide open field**\
 `Texas enters the 2025 season as the favorite to win the national title, but the odds show a wide open field.`\
 https://nytimes.com/athletic/6560571/2025/08/20/college-football-national-title-odds-texas-georgia-ohio-state-penn-state/
-
-**Two of the NFL’s worst quarterback situations are resolved... yay**\
-`The Colts and Browns named their starting quarterbacks for Week 1 and beyond. And we're all thrilled....`\
-https://nytimes.com/athletic/6564581/2025/08/20/two-of-the-nfls-worst-quarterback-situations-are-resolved-yay/
 
