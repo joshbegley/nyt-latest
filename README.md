@@ -1,3 +1,7 @@
+**Hurricane Erin Creates Large Waves Along North Carolina Coast**\
+`Large waves crashed along North Carolina’s shores, as the outer bands of Hurricane Erin inched closer to the state.`\
+https://nytimes.com/video/weather/100000010351101/hurricane-erin-arrival.html
+
 **American Businesses in ‘Survival Mode’ as Trump Tariffs Pile Up**\
 `A 90-day pause on additional tariffs on China offers no relief to American companies already facing extraordinarily high import taxes imposed by President Trump.`\
 https://nytimes.com/2025/08/20/business/trump-china-tariffs-american-importers.html
@@ -7,7 +11,7 @@ https://nytimes.com/2025/08/20/business/trump-china-tariffs-american-importers.h
 https://nytimes.com/athletic/6564020/2025/08/20/wnba-sale-connecticut-sun/
 
 **Brentford reject bid worth up to £40m from Newcastle for Wissa**\
-`The DR Congo international wants the move to St James’s Park.`\
+`The DR Congo international wants the move to St James’ Park.`\
 https://nytimes.com/athletic/6508978/2025/08/20/yoane-wissa-brentford-newcastle-transfer-update/
 
 **Ask a Journalist: How Generative A.I. Is Reshaping Our Lives**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6564644/2025/08/20/broncos-mailbag-request-preseaso
 **N.S.A.’s Acting Director Tried to Save Top Scientist From Purge**\
 `Vinh Nguyen, an expert in artificial intelligence and advanced mathematics, was among the current and former officials whose security clearances were revoked by the president.`\
 https://nytimes.com/2025/08/20/us/politics/security-clearances-scientist-fired.html
-
-**Lowetide: Between McDavid and Draisaitl, which Oilers superstar will age better?**\
-`Oilers fans have been lucky enough to watch McDavid and Draisaitl for the past 10 years. What might be coming in the future?`\
-https://nytimes.com/athletic/6563612/2025/08/20/oilers-mcdavid-draisaitl-aging-curve/
 
