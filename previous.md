@@ -1,3 +1,15 @@
+**Villa defender Moreno set to complete move to Girona**\
+`The left-back spent last season on loan at Forest where he played in 19 games in all competitions. `\
+https://nytimes.com/athletic/6522107/2025/08/20/alex-moreno-aston-villa-girona-transfer/
+
+**A Combustible Mix of Heat and Storms Is Expected Across Southern California**\
+`A stretch of unusually hot weather combined with exceptionally dry vegetation will elevate the risk of wildfire.`\
+https://nytimes.com/2025/08/20/weather/los-angeles-heat-fire-forecast.html
+
+**We’re Already Living in the Post-A.I. Future**\
+`Artificial intelligence may change the world, but it probably won’t remake it.`\
+https://nytimes.com/2025/08/20/opinion/ai-technology-chatgpt.html
+
 **‘We Can’t Take It Anymore’: Gazans Fear Looming Israeli Operation**\
 `Israel’s plan to invade Gaza City, the most populous city in the Gaza Strip, has forced many families to consider uprooting themselves.`\
 https://nytimes.com/2025/08/20/world/middleeast/gaza-city-israeli-operation.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/08/20/weather/highway-12-ocracoke-hatteras-north-caroli
 **Manhattan Judge Denies Request to Unseal Epstein Grand Jury Transcripts**\
 `The judge said that the papers contained testimony from a single F.B.I. agent and that far more information about the case was held in Justice Department files.`\
 https://nytimes.com/2025/08/20/nyregion/epstein-grand-jury-transcripts-denied.html
-
-**These Bats Like to Give Hugs and Play With Bugs**\
-`Rare footage of spectral bats, known also as great false vampire bats, revealed animals with a cuddly, social side.`\
-https://nytimes.com/2025/08/20/science/spectral-bats-hugs.html
-
-**A 1990 Measles Outbreak Shows How the Disease Can Roar Back**\
-`To understand the virus’s re-emergence in America in 2025, some experts are looking to a past epidemic that had a high death rate in Philadelphia.`\
-https://nytimes.com/2025/08/20/health/measles-outbreak-philadelphia.html
-
-**Learning to Live With Vision Loss**\
-`Reader’s find both challenges and beauty in failing eyesight. Also: Questioning A.I.`\
-https://nytimes.com/2025/08/20/opinion/coping-vision-loss.html
 

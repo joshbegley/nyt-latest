@@ -1,3 +1,15 @@
+**Villa defender Moreno set to complete move to Girona**\
+`The left-back spent last season on loan at Forest where he played in 19 games in all competitions. `\
+https://nytimes.com/athletic/6522107/2025/08/20/alex-moreno-aston-villa-girona-transfer/
+
+**A Combustible Mix of Heat and Storms Is Expected Across Southern California**\
+`A stretch of unusually hot weather combined with exceptionally dry vegetation will elevate the risk of wildfire.`\
+https://nytimes.com/2025/08/20/weather/los-angeles-heat-fire-forecast.html
+
+**We’re Already Living in the Post-A.I. Future**\
+`Artificial intelligence may change the world, but it probably won’t remake it.`\
+https://nytimes.com/2025/08/20/opinion/ai-technology-chatgpt.html
+
 **‘We Can’t Take It Anymore’: Gazans Fear Looming Israeli Operation**\
 `Israel’s plan to invade Gaza City, the most populous city in the Gaza Strip, has forced many families to consider uprooting themselves.`\
 https://nytimes.com/2025/08/20/world/middleeast/gaza-city-israeli-operation.html
