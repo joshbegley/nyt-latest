@@ -1,3 +1,7 @@
+**College football national title odds: Texas is favorite ahead of a wide open field**\
+`Texas enters the 2025 season as the favorite to win the national title, but the odds show a wide-open field.`\
+https://nytimes.com/athletic/6560571/2025/08/20/college-football-national-title-odds-texas-georgia-ohio-state-penn-state/
+
 **Two of the NFL’s worst quarterback situations are resolved... yay**\
 `The Colts and Browns named their starting quarterbacks for Week 1 and beyond. And we're all thrilled....`\
 https://nytimes.com/athletic/6564581/2025/08/20/two-of-the-nfls-worst-quarterback-situations-are-resolved-yay/
@@ -33,8 +37,4 @@ https://nytimes.com/video/world/asia/100000010350895/bus-crash-kills-scores-afgh
 **It's become a mismatch for Giants in the late innings against Padres**\
 `Compared to some of their NL West adversaries, the Giants and president Buster Posey have a lot of work to do when it comes to the bullpen.`\
 https://nytimes.com/athletic/6564266/2025/08/20/sf-giants-bullpen-padres/
-
-**Bills 'Hard Knocks' Week 3 takeaways: Sean McDermott tries to rally sluggish team**\
-`Plus, James Cook ends his hold-in and a look at Ed Oliver's horses.`\
-https://nytimes.com/athletic/6564207/2025/08/20/bills-hard-knocks-takeaways-sean-mcdermott-tries-to-rally-sluggish-team/
 

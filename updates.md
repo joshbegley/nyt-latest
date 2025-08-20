@@ -1,3 +1,7 @@
+**College football national title odds: Texas is favorite ahead of a wide open field**\
+`Texas enters the 2025 season as the favorite to win the national title, but the odds show a wide-open field.`\
+https://nytimes.com/athletic/6560571/2025/08/20/college-football-national-title-odds-texas-georgia-ohio-state-penn-state/
+
 **Two of the NFL’s worst quarterback situations are resolved... yay**\
 `The Colts and Browns named their starting quarterbacks for Week 1 and beyond. And we're all thrilled....`\
 https://nytimes.com/athletic/6564581/2025/08/20/two-of-the-nfls-worst-quarterback-situations-are-resolved-yay/
