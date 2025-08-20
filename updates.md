@@ -1,3 +1,15 @@
+**Ask a Journalist: A Monthly Series for Teenagers**\
+`Join us each month this school year to discuss a teen-friendly topic with a New York Times journalist who covers it. Post your thoughts, ask questions or suggest ideas, and the reporters will reply!`\
+https://nytimes.com/2025/08/20/learning/ask-a-journalist-a-monthly-series-for-teenagers.html
+
+**Three Things to Know About Hurricane Erin Today**\
+`The storm’s center will stay offshore, but it will bring dangers to the coast.`\
+https://nytimes.com/2025/08/20/weather/hurricane-erin-forecast-today.html
+
+**Understanding ESPN's big bet on how to keep up with fans: MoneyCall**\
+`More in this week's sports business cheat sheet: MLB realignment, CFB's most interesting executive, an amazing list, reading recs and more.`\
+https://nytimes.com/athletic/6564769/2025/08/20/espn-jimmy-pitaro-mlb-realignment-moneycall/
+
 **Broncos mailbag: Submit your questions to beat writer Nick Kosmider**\
 `What's on your mind as Denver nears its highly anticipated 2025 season?`\
 https://nytimes.com/athletic/6564644/2025/08/20/broncos-mailbag-request-preseason/
