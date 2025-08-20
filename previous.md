@@ -31,7 +31,7 @@ https://nytimes.com/video/world/asia/100000010350391/pakistan-flash-floods-monso
 https://nytimes.com/2025/08/19/weather/hurricane-erin-north-carolina-evacuations.html
 
 **Stabbing at Arizona High School Leaves 1 Student Dead, Officials Say**\
-`A fight between two students at Maryvale High School in Phoenix on Tuesday left one fatally stabbed and the other with non-life-threatening injuries, the agency said.`\
+`A fight between two students at Maryvale High School in Phoenix on Tuesday left one fatally stabbed and the other with non-life-threatening injuries and in custody, officials said.`\
 https://nytimes.com/2025/08/19/us/arizona-stabbing-high-school.html
 
 **At Hamptons Fund-Raiser, Cuomo Predicts Help From Trump Is on the Way**\

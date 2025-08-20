@@ -1,3 +1,7 @@
+**Stabbing at Arizona High School Leaves 1 Student Dead, Officials Say**\
+`A fight between two students at Maryvale High School in Phoenix on Tuesday left one fatally stabbed and the other with non-life-threatening injuries and in custody, officials said.`\
+https://nytimes.com/2025/08/19/us/arizona-stabbing-high-school.html
+
 **With Mac Jones hurt, 49ers sign another QB, weigh playing Brock Purdy in finale**\
 `Renardo Green and Isaac Guerendo were among those who returned for a practice in which Brock Purdy and Ricky Pearsall continued to connect.`\
 https://nytimes.com/athletic/6563765/2025/08/19/mac-jones-injury-brock-purdy/
