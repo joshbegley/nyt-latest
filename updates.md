@@ -1,3 +1,11 @@
+**Tiny Love Stories: ‘A Father’s Love Shouldn’t Wound’**\
+`Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
+https://nytimes.com/2025/08/20/style/tiny-modern-love-stories-a-fathers-love-shouldnt-wound.html
+
+**Arsenal make move for Eze, player wants move from Palace**\
+`Spurs had the conditions of a deal agreed with Palace on Wednesday but are ready to move on to alternative targets.`\
+https://nytimes.com/athletic/6565385/2025/08/20/arsenal-eberechi-eze-transfer-tottenham-latest/
+
 **Arsenal make move for Eze, player wants move from Palace**\
 `Spurs had the conditions of a deal agreed with Palace today and the player but are ready to move on to alternative targets.`\
 https://nytimes.com/athletic/6565385/2025/08/20/arsenal-eberechi-eze-transfer-tottenham-latest/

@@ -1,3 +1,7 @@
+**Social Media Figure Is Killed by Stray Bullet in Road Rage Episode, Police Say**\
+`Yarely Hermosillo, 27, was in a car struck by a bullet fired by a man who was arguing with another driver in Glendale, Ariz., the police said.`\
+https://nytimes.com/2025/08/20/us/yarely-hermosillo-arizona-road-rage-shooting.html
+
 **Tiny Love Stories: ‘A Father’s Love Shouldn’t Wound’**\
 `Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
 https://nytimes.com/2025/08/20/style/tiny-modern-love-stories-a-fathers-love-shouldnt-wound.html
@@ -30,11 +34,7 @@ https://nytimes.com/2025/08/20/opinion/coping-vision-loss.html
 `European and Ukrainian officials call the idea ludicrous, showing the large gaps in peace negotiations.`\
 https://nytimes.com/2025/08/20/world/europe/ukraine-russia-security-guarantees.html
 
-**Senate Adds Guardrails to Force Trump to Obey Spending Bills**\
+**Senate Adds Guardrails in an Effort to Force Trump to Obey Spending Bills**\
 `Leaders of the Appropriations Committee are trying to tighten up funding legislation to give the Trump administration less leeway to refuse to spend federal money.`\
 https://nytimes.com/2025/08/20/us/politics/senate-spending-guardrails-trump.html
-
-**ESPN details new streaming service, revamped app ahead of Thursday launch**\
-`The network going direct-to-consumer reflects a notable shift in its longtime strategy and a reflection of rapidly evolving consumer habits.`\
-https://nytimes.com/athletic/6564607/2025/08/20/espn-streaming-service-app-launch/
 
