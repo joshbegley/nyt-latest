@@ -1,3 +1,15 @@
+**Boxer Julio César Chávez Jr. deported from U.S., faces charges in Mexico**\
+`Chavez, 39, had a warrant for his arrest in Mexico in connection with alleged arms, drug trafficking and cartel ties.`\
+https://nytimes.com/athletic/6563900/2025/08/19/julio-cesar-chavez-jr-deported/
+
+**‘Alien: Earth’ Season 1, Episode 3 Recap: Weird Science**\
+`A lot of folks, human and otherwise, seem very interested in getting their hands on the newly crash-landed alien specimens. What could go wrong?`\
+https://nytimes.com/2025/08/19/arts/television/alien-earth-recap-season-1-episode-3.html
+
+**Change Seeker**\
+`Victor Schmitt is on a roll.`\
+https://nytimes.com/2025/08/19/crosswords/daily-puzzle-2025-08-20.html
+
 **What we're hearing about Kyle Tucker's reset as the Cubs work with a frustrated star**\
 `The situation has turned ugly, with Tucker getting booed at Wrigley Field for not producing and not running to first base.`\
 https://nytimes.com/athletic/6563935/2025/08/19/chicago-cubs-kyle-tucker-reset/
