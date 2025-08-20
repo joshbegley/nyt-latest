@@ -1,3 +1,7 @@
+**Judge Halts Texas’ Law Mandating the Ten Commandments in School**\
+`The state law had said public schools would have to  display the Ten Commandments in a “conspicuous” location in every classroom in Texas by Sept. 1.`\
+https://nytimes.com/2025/08/20/us/politics/ten-commandments-texas.html
+
 **NFL teams monitoring wide receiver trade market: Why Vikings, Jets, 49ers need help**\
 `As teams start looking to finalize their initial 53-man rosters, trade talks could be underway soon for wide receiver-needy squads.`\
 https://nytimes.com/athletic/6565104/2025/08/20/nfl-wide-receivers-trades-vikings-jets-49ers/
