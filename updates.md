@@ -1,3 +1,11 @@
+**Isak, Newcastle and Liverpool: What happens next?**\
+`Breaking down the player's and clubs' options as transfer saga turns increasingly bitter`\
+https://nytimes.com/athletic/6564527/2025/08/20/alexander-isak-newcastle-and-liverpool-what-happens-next/
+
+**The Windup: What's up with MLB's left-handed pitching surge?**\
+`Welcome to The Windup, The Athletic's MLB newsletter.`\
+https://nytimes.com/athletic/6565158/2025/08/20/mlb-left-handed-pitching-the-windup/
+
 **Scoop City: Anatomy of a QB failure and WR promise**\
 `Thoughts on the Colts quarterback situation and the rookie receiver who might be this year's Justin Jefferson.`\
 https://nytimes.com/athletic/6565116/2025/08/20/colts-qb-situation-nfl-emeka-egbuka-fantasy-scoop-city/

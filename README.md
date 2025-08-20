@@ -1,3 +1,7 @@
+**NFL teams monitoring wide receiver trade market: Why Vikings, Jets, 49ers need help**\
+`As teams start looking to finalize their initial 53-man rosters, trade talks could be underway soon for wide receiver-needy squads.`\
+https://nytimes.com/athletic/6565104/2025/08/20/nfl-wide-receivers-trades-vikings-jets-49ers/
+
 **Isak, Newcastle and Liverpool: What happens next?**\
 `Breaking down the player's and clubs' options as transfer saga turns increasingly bitter`\
 https://nytimes.com/athletic/6564527/2025/08/20/alexander-isak-newcastle-and-liverpool-what-happens-next/
@@ -11,7 +15,7 @@ https://nytimes.com/athletic/6565116/2025/08/20/colts-qb-situation-nfl-emeka-egb
 https://nytimes.com/athletic/6565158/2025/08/20/mlb-left-handed-pitching-the-windup/
 
 **Top pitching prospect Bubba Chandler to make MLB debut in Pirates bullpen: Source**\
-`With superior athleticism, a power fastball and multiple promising off-speed pitches, Chandler has a chance to be a force in the majors.`\
+`With superior athleticism, a power fastball and promising off-speed pitches, Chandler has a chance to be a force in the majors.`\
 https://nytimes.com/athletic/6565041/2025/08/20/bubba-chandler-mlb-promotion-pirates-bullpen/
 
 **Monsoon Rains Bring Mumbai to a Standstill**\
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/20/world/europe/italy-pippo-baudo-funeral-rai.html
 **Coco Gauff splits with key coach on eve of U.S. Open, practices with serve expert**\
 `Gauff's serve struggles have reemerged of late after a period of improvement with coach Matt Daly, who is now off her team.`\
 https://nytimes.com/athletic/6565020/2025/08/20/coco-gauff-fired-coach-2025-us-open/
-
-**Drone Explosion in Haiti Kills 2 SWAT Members, Injures 6 Others**\
-`A drone intended for attacking gang members detonated at a police base, raising questions about how the deadly operations are conducted.`\
-https://nytimes.com/2025/08/20/world/americas/haiti-drones-police-gangs.html
 
