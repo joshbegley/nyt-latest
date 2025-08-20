@@ -1,3 +1,7 @@
+**NASCAR's 2026 Cup Series schedule: Highlights and lowlights of the 38-race slate**\
+`San Diego and more intermediate tracks: Good. Watkins Glen in May and a couple more blows to fans in the Northeast: Not so much.`\
+https://nytimes.com/athletic/6564041/2025/08/20/nascar-2026-cup-series-schedule-highlights-changes/
+
 **At the U.S. Open, Fan Week Gets Some Star Power**\
 `What used to be a free preview of low-key qualifying matches is reinvented as a mostly free event with some of the biggest names in tennis.`\
 https://nytimes.com/2025/08/20/nyregion/us-open-tennis-fan-week.html
