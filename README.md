@@ -19,7 +19,7 @@ https://nytimes.com/2025/08/20/weather/los-angeles-heat-fire-forecast.html
 https://nytimes.com/2025/08/20/opinion/ai-technology-chatgpt.html
 
 **‘We Can’t Take It Anymore’: Gazans Fear Looming Israeli Operation**\
-`Israel’s plan to invade Gaza City, the most populous city in the Gaza Strip, has forced many families to consider uprooting themselves.`\
+`Israel’s plan to invade Gaza City, the most populous city in the northern Gaza Strip, has forced many families to consider uprooting themselves.`\
 https://nytimes.com/2025/08/20/world/middleeast/gaza-city-israeli-operation.html
 
 **Fed Officials Split Over How to Read Economic Signals**\

@@ -1,3 +1,11 @@
+**Why Claiming Two Primary Residences Is a Problem, Even if Prosecutions Are Rare**\
+`Lenders will often charge a higher interest rate for a second home or a property you intend to use as a rental since the risks there are higher.`\
+https://nytimes.com/2025/08/20/business/mortgage-primary-residence.html
+
+**Colorado Avalanche sign winger Victor Olofsson to one-year contract**\
+`Olofsson scored 15 goals in 56 games for Vegas last season, including six on the power play.`\
+https://nytimes.com/athletic/6565436/2025/08/20/colorado-avalanche-victor-olofsson-contract/
+
 **Villa defender Moreno set to complete move to Girona**\
 `The left-back spent last season on loan at Forest where he played in 19 games in all competitions. `\
 https://nytimes.com/athletic/6522107/2025/08/20/alex-moreno-aston-villa-girona-transfer/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/08/20/style/tiny-modern-love-stories-a-fathers-love-sho
 **Arsenal make move for Eze, player wants move from Palace**\
 `Spurs had the conditions of a deal agreed with Palace on Wednesday but are ready to move on to alternative targets.`\
 https://nytimes.com/athletic/6565385/2025/08/20/arsenal-eberechi-eze-transfer-tottenham-latest/
-
-**Even a Glancing Blow From Hurricane Erin May Cost the Outer Banks a Crucial Lifeline**\
-`Highway 12 is beloved for its scenic views. But it’s also prone to flooding.`\
-https://nytimes.com/2025/08/20/weather/highway-12-ocracoke-hatteras-north-carolina-hurricane-erin.html
-
-**Manhattan Judge Denies Request to Unseal Epstein Grand Jury Transcripts**\
-`The judge said that the papers contained testimony from a single F.B.I. agent and that far more information about the case was held in Justice Department files.`\
-https://nytimes.com/2025/08/20/nyregion/epstein-grand-jury-transcripts-denied.html
 
