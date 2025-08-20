@@ -1,3 +1,7 @@
+**A 1990 Measles Outbreak Shows How the Disease Can Roar Back**\
+`To understand the virus’s re-emergence in America in 2025, some experts are looking to a past epidemic that had a high death rate in Philadelphia.`\
+https://nytimes.com/2025/08/20/health/measles-outbreak-philadelphia.html
+
 **Learning to Live With Vision Loss**\
 `Reader’s find both challenges and beauty in failing eyesight. Also: Questioning A.I.`\
 https://nytimes.com/2025/08/20/opinion/coping-vision-loss.html
