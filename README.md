@@ -1,3 +1,19 @@
+**How We Vote**\
+`We explore President Trump effort to eliminate mailed ballots and voting machines.`\
+https://nytimes.com/2025/08/20/briefing/voting-machines-mailin-voting.html
+
+**A Move on Gaza City Has Started, Israel’s Military Says**\
+`Troops have reached the city’s outskirts, an Israeli official said, adding that more reservists are being asked to report for duty to cover for other soldiers who will be involved in going into Gaza City.`\
+https://nytimes.com/2025/08/20/world/middleeast/israel-hamas-gaza-city.html
+
+**Why Nottingham Forest are considering a transfer return for Matty Cash from Aston Villa**\
+`Could a return to the City Ground really be on the cards for Matty Cash? Jacob Tanswell and Daniel Taylor discuss `\
+https://nytimes.com/athletic/6564361/2025/08/20/matty-cash-nottingham-forest-aston-villa-transfer/
+
+**Arsenal's Havertz set for spell on sidelines with knee injury**\
+`Arsenal are actively exploring the transfer market to potentially reinforce their attack and cover the absence of the 26-year-old.`\
+https://nytimes.com/athletic/6564371/2025/08/20/kai-havertz-injury-arsenal-latest/
+
 **Fluminense goalkeeper Fabio breaks Shilton's all-time appearance record**\
 `Fabio played his 1,391st game on Wednesday, overtaking Shilton's record of 1,390 appearances.`\
 https://nytimes.com/athletic/6564397/2025/08/20/footballer-most-appearances-record-fabio-peter-shilton/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6563884/2025/08/20/mandels-mailbag-michigan-scandal
 **Tarik Skubal, Hunter Brown and the anatomy of a modern pitching duel**\
 `Skubal and Brown pitched like legitimate Cy Young Award contenders Tuesday night in Detroit. `\
 https://nytimes.com/athletic/6564112/2025/08/20/tarik-skubal-hunter-brown-modern-pitching-duel/
-
-**How and why Iowa State and Kansas State brought 'Farm O' Geddon' to Ireland**\
-`How did a rivalry with so much importance to America's breadbasket end up in Ireland?`\
-https://nytimes.com/athletic/6562670/2025/08/20/college-football-ireland-iowa-state-kansas-state/
-
-**Stewart Mandel's SEC predictions: Is it time for a Texas takeover?**\
-`Only three SEC teams made the College Football Playoff last year, but the conference is deep with contenders in 2025.`\
-https://nytimes.com/athletic/6560780/2025/08/20/2025-sec-football-predictions-texas-alabama/
-
-**Fernando Tatis Jr.'s power is missing. His contact point may be to blame**\
-`Tatis is getting on base and making contact, but his power has dropped off. His "intercept point" may be to blame.`\
-https://nytimes.com/athletic/6563290/2025/08/20/fernando-tatis-power-drop-intercept-point/
-
-**Blue Jays flip page from Monday's mess, earn decisive win over Pirates**\
-`Vladimir Guerrero Jr. received promising injury news as Toronto rebounded to stop a brief skid.`\
-https://nytimes.com/athletic/6564059/2025/08/20/blue-jays-flip-page-earn-decisive-win-pirates/
 
