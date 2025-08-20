@@ -1,3 +1,11 @@
+**Is the A.I. Sell-off the Start of Something Bigger?**\
+`A sharp drop in technology stocks, and even comments by OpenAI’s Sam Altman, suggest investors are getting too exuberant about artificial intelligence.`\
+https://nytimes.com/2025/08/20/business/dealbook/ai-dip-blip-palantir-nvidia.html
+
+**After Deadly Clashes, Syria and Israel Hold Direct Talks**\
+`The talks in Paris brokered by the United States were the latest effort to reduce tensions between the two longstanding foes, and came after Israel launched airstrikes on the Syrian capital last month.`\
+https://nytimes.com/2025/08/20/world/middleeast/syrian-israel-meet-paris.html
+
 **Marseille transfer list Rabiot and Rowe due to ‘unacceptable behaviour’**\
 `Marseille said in a statement that the incident occurred in the dressing room after Friday's 1-0 loss against Rennes.`\
 https://nytimes.com/athletic/6564410/2025/08/20/marseille-jonathan-rowe-adrien-rabiot/
