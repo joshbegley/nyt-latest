@@ -1,3 +1,15 @@
+**How Climate Change Affects Hurricanes Like Erin**\
+`Global warming is changing the way storms behave.`\
+https://nytimes.com/2025/08/20/climate/climate-change-hurricanes.html
+
+**With Bills roster decisions looming, Cole Bishop gets wake-up call, WR room draws focus**\
+`Plus, there's a possibility Josh Allen won't play in the preseason for the first time in his career.`\
+https://nytimes.com/athletic/6565655/2025/08/20/bills-roster-cole-bishop-wide-receivers/
+
+**Myles Garrett wants to keep the focus on the Browns amid speeding ticket questions**\
+`“I’d honestly rather talk about football and this team than anything I’m doing off (the) field," Garrett said when asked about the ticket. `\
+https://nytimes.com/athletic/6565898/2025/08/20/myles-garrett-speeding-ticket-browns/
+
 **How Trump Is Forcing Foes to Pay Up**\
 `President Trump is getting universities, trading partners and law firms to agree to spend big on his terms, often to end fights he picked.`\
 https://nytimes.com/2025/08/20/us/politics/trump-payments-colleges-law-firms.html
