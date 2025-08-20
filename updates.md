@@ -1,3 +1,15 @@
+**John Cruickshank, Last World War II Victoria Cross Winner, Dies at 105**\
+`He made a daring raid on a U-boat, suffered 72 wounds and helped land his damaged seaplane.`\
+https://nytimes.com/2025/08/20/world/europe/john-cruickshank-dead.html
+
+**Deportation of 6-Year-Old Puts Spotlight on ICE’s Detention of Families**\
+`Immigration authorities have detained about 50 children younger than 18 in the New York City area since January. At least 38 of them have been deported.`\
+https://nytimes.com/2025/08/20/nyregion/ice-6-year-old-nyc.html
+
+**Arsenal reach agreement in principle to sign Eze from Palace**\
+`The deal is worth in the region of the expired £68m release clause, matching the level of fee Tottenham Hotspur were prepared to pay.`\
+https://nytimes.com/athletic/6565048/2025/08/20/eberechi-eze-arsenal-transfer-agreement/
+
 **Arsenal reach agreement in principle to sign Eze from Palace**\
 `The deal is worth in the region of the expired £68m release clause, matching level of fee Tottenham Hotspur were prepared to pay.`\
 https://nytimes.com/athletic/6565048/2025/08/20/eberechi-eze-arsenal-transfer-agreement/
