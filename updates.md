@@ -1,3 +1,7 @@
+**Forget Bear Hugs, These Bats Greet Each Other by Embracing**\
+`Rare footage of spectral bats, known also as great false vampire bats, revealed animals with a cuddly, social side.`\
+https://nytimes.com/2025/08/20/science/spectral-bats-hugs.html
+
 **A 1990 Measles Outbreak Shows How the Disease Can Roar Back**\
 `To understand the virus’s re-emergence in America in 2025, some experts are looking to a past epidemic that had a high death rate in Philadelphia.`\
 https://nytimes.com/2025/08/20/health/measles-outbreak-philadelphia.html
