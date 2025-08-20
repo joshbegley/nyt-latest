@@ -1,3 +1,7 @@
+**How Climate Change Affects Hurricanes Like Erin**\
+`Global warming is changing the way storms behave.`\
+https://nytimes.com/2025/08/20/climate/climate-change-hurricanes.html
+
 **How Trump Is Forcing Foes to Pay Up**\
 `President Trump is getting universities, trading partners and law firms to agree to spend big on his terms, often to end fights he picked.`\
 https://nytimes.com/2025/08/20/us/politics/trump-payments-colleges-law-firms.html
@@ -19,7 +23,7 @@ https://nytimes.com/2025/08/20/us/politics/gabbard-odni-reorganization.html
 https://nytimes.com/athletic/6484906/2025/08/20/demarcus-robinson-suspended-49ers/
 
 **With Bills roster decisions looming, Cole Bishop gets wake-up call, WR room draws focus**\
-`Plus, there's a possibility Josh Allen doesn't play in the preseason for the first time in his career.`\
+`Plus, there's a possibility Josh Allen won't play in the preseason for the first time in his career.`\
 https://nytimes.com/athletic/6565655/2025/08/20/bills-roster-cole-bishop-wide-receivers/
 
 **Federal workers’ health plan will stop covering transition surgery and hormone treatment.**\
@@ -27,14 +31,10 @@ https://nytimes.com/athletic/6565655/2025/08/20/bills-roster-cole-bishop-wide-re
 https://nytimes.com/live/2025/08/20/us/trump-news/federal-workers-transgender-treatment-trump
 
 **Myles Garrett wants to keep the focus on the Browns amid speeding ticket questions**\
-`“I’d honestly rather talk about football and this team than anything I’m doing off the field," Garrett said when asked about the ticket. `\
+`“I’d honestly rather talk about football and this team than anything I’m doing off (the) field," Garrett said when asked about the ticket. `\
 https://nytimes.com/athletic/6565898/2025/08/20/myles-garrett-speeding-ticket-browns/
 
 **Mamdani, Skeptical of Casinos, Won’t Try to Block Them in New York City**\
 `Zohran Mamdani, the Democratic mayoral nominee, said that while he still had doubts about city casinos, he respected the views of voters who supported them.`\
 https://nytimes.com/2025/08/20/nyregion/mamdani-casinos-nyc-mayor.html
-
-**Tracking Heat Across Canada**\
-`See detailed maps of the latest temperature forecasts across Canada.`\
-https://nytimes.com/interactive/2025/world/canada/canada-heat-map-tracker.html
 
