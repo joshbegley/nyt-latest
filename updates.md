@@ -1,3 +1,7 @@
+**The New York Times International Edition in Print for Thursday, Aug. 21, 2025**\
+``\
+https://nytimes.com/issue/todaysinyt/2025/08/20/todays-new-york-times-international-edition
+
 **Texas Democrats Reject Republican-Imposed Police Supervision**\
 `State representatives ripped up permission slips that Republican House leaders gave Democratic lawmakers trying to leave the Capitol building. One even spent the night sleeping inside the chambers.`\
 https://nytimes.com/video/us/politics/100000010350829/texas-redistricting-nicole-collier.html
