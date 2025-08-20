@@ -1,3 +1,43 @@
+**Myles Garrett wants to keep the focus on the Browns amid speeding ticket questions**\
+`“I’d honestly rather talk about football and this team than anything I’m doing off the field," Garrett said when asked about the ticket. `\
+https://nytimes.com/athletic/6565898/2025/08/20/myles-garrett-speeding-ticket-browns/
+
+**Mamdani, Skeptical of Casinos, Won’t Try to Block Them in New York City**\
+`Zohran Mamdani, the Democratic mayoral nominee, said that while he still had doubts about city casinos, he respected the views of voters who supported them.`\
+https://nytimes.com/2025/08/20/nyregion/mamdani-casinos-nyc-mayor.html
+
+**Tracking Heat Across Canada**\
+`See detailed maps of the latest temperature forecasts across Canada.`\
+https://nytimes.com/interactive/2025/08/20/world/canada/canada-heat-map-tracker.html
+
+**Trump Stepped Up His Attacks on the Fed**\
+`Also, Israel is preparing an assault on Gaza City. Here’s the latest at the end of Wednesday.`\
+https://nytimes.com/2025/08/20/briefing/trump-fed-israel-gaza-city-origami.html
+
+**East Coast Braces for Rip Currents From Hurricane Erin**\
+`States from Florida to Maine are bracing for potentially life-threatening surf and rip currents as Hurricane Erin brushes past the East Coast.`\
+https://nytimes.com/video/weather/100000010352200/hurricane-erin-waves-rip-currents.html
+
+**Join The Athletic fantasy football Discord server**\
+`Seeking some sage fantasy football advice? Come join our season-long chat in The Athletic's fantasy football Discord server.`\
+https://nytimes.com/athletic/6562700/2025/08/20/fantasy-football-discord-jake-ciely-brandon-funston/
+
+**Alyssa Naeher's first NWSL goal as told by her Stars teammates: 'I just felt pure joy'**\
+`In her record 200th NWSL appearance, the former U.S. goalkeeper scored her first league goal to complete a three-goal comeback for Chicago.`\
+https://nytimes.com/athletic/6565707/2025/08/20/alyssa-naeher-nwsl-uswnt-goal-chicago-stars/
+
+**Blue Jays takeaways: Vladimir Guerrero Jr. health update, new rotation plans, more**\
+`Three key takeaways after Toronto drops a series in Pittsburgh.`\
+https://nytimes.com/athletic/6565589/2025/08/20/blue-jays-takeaways-rotation-addison-barger-vladimir-guerrero-jr/
+
+**Thursday Briefing: Israel’s Planned Offensive**\
+`Also, Africa’s push for a new world map.`\
+https://nytimes.com/2025/08/20/briefing/israel-military-gaza-ukraine-tibet.html
+
+**Eberechi Eze's return to Arsenal would be a romantic twist in their summer story**\
+`Arsenal have reached an agreement in principle to sign Eberechi Eze. It could make a huge impact on the pitch`\
+https://nytimes.com/athletic/6565659/2025/08/20/eberechi-eze-arsenal-romantic-twist/
+
 **Israel Approves West Bank Settlements, a Blow to Palestinian Statehood Hopes**\
 `The long-stalled project near Jerusalem, known as E1, further fragments lands envisioned as a Palestinian state, advancing a goal of Israeli hard-liners.`\
 https://nytimes.com/2025/08/20/world/middleeast/israel-e1-settlement-west-bank.html
