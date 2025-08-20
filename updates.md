@@ -1,3 +1,7 @@
+**Walmart Recalls Frozen Shrimp After Radioactive Contamination Warning**\
+`The Food and Drug Administration urged consumers to discard packages of frozen shrimp sold in 13 states. A food safety expert said the risk to the public was low.`\
+https://nytimes.com/2025/08/20/business/radioactive-shrimp-walmart-recall.html
+
 **Ratcliffe's INEOS counter-suing Tottenham relating to Kane's Bayern move**\
 `The dispute centres on an agreement between INEOS and Tottenham that was signed in 2022. `\
 https://nytimes.com/athletic/6565428/2025/08/20/ineos-automotive-countersuing-tottenham-harry-kane-bayern-move/

@@ -1,3 +1,7 @@
+**Walmart Recalls Frozen Shrimp After Radioactive Contamination Warning**\
+`The Food and Drug Administration urged consumers to discard packages of frozen shrimp sold in 13 states. A food safety expert said the risk to the public was low.`\
+https://nytimes.com/2025/08/20/business/radioactive-shrimp-walmart-recall.html
+
 **Ratcliffe's INEOS counter-suing Tottenham relating to Kane's Bayern move**\
 `The dispute centres on an agreement between INEOS and Tottenham that was signed in 2022. `\
 https://nytimes.com/athletic/6565428/2025/08/20/ineos-automotive-countersuing-tottenham-harry-kane-bayern-move/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/20/world/middleeast/gaza-city-israeli-operation.html
 **Fed Officials Split Over How to Read Economic Signals**\
 `Minutes from the Federal Reserve’s July meeting showed policymakers grappling with a slowing labor market and inflation that remains above the central bank’s target.`\
 https://nytimes.com/2025/08/20/business/federal-reserve-july-minutes.html
-
-**Social Media Figure Is Killed by Stray Bullet in Road Rage Episode, Police Say**\
-`Yarely Hermosillo, 27, was in a car struck by a bullet fired by a man who was arguing with another driver in Glendale, Ariz., the police said.`\
-https://nytimes.com/2025/08/20/us/yarely-hermosillo-arizona-road-rage-shooting.html
 
