@@ -1,3 +1,7 @@
+**Word of the Day: bayou**\
+`This word has appeared in 52 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2025/08/20/learning/word-of-the-day-bayou.html
+
 **The New York Times in Print for Wednesday, Aug. 20, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/08/20/todays-new-york-times

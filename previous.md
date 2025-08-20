@@ -1,3 +1,7 @@
+**Word of the Day: bayou**\
+`This word has appeared in 52 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2025/08/20/learning/word-of-the-day-bayou.html
+
 **The New York Times in Print for Wednesday, Aug. 20, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/08/20/todays-new-york-times
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6550776/2025/08/20/sydney-lohmann-manchester-city-w
 **'A lot more connected' - how Matt O'Riley has forced his way back into contention at Brighton**\
 `The midfelder had looked to be edging towards an exit from the Amex, but a good pre-season and a new role appear to have changed things`\
 https://nytimes.com/athletic/6515214/2025/08/20/matt-oriley-brighton-transfer-2/
-
-**What would Eze bring to Spurs and where could he play?**\
-`Eze, who grew up playing football in south London's cages, plays with confidence and flair, unafraid to beat players on the dribble`\
-https://nytimes.com/athletic/6562089/2025/08/20/eberechi-eze-spurs-position/
 
