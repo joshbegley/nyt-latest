@@ -1,3 +1,19 @@
+**How to watch Leagues Cup quarterfinal: Messi, Inter Miami host Tigres**\
+`Inter Miami, built around Lionel Messi and a veteran core, hosts Tigres UANL on Wednesday with a slim margin for error. `\
+https://nytimes.com/athletic/6563876/2025/08/20/messi-injury-inter-miami-tigres-how-to-watch-leagues-cup-quarterfinal/
+
+**Which Year 2 QB could join Jayden Daniels in fantasy football’s Top 5? Bo Nix? Drake Maye?**\
+`Mike Hume, Jake Ciely and our beat writers predict how second-year QBs will fare in the NFL and fantasy football in 2025. `\
+https://nytimes.com/athletic/6563048/2025/08/20/fantasy-football-year-2-quarterbacks-bo-nix-drake-maye/
+
+**Patriots players on the roster bubble entering final preseason game vs. Giants**\
+`Kyle Dugger, Javon Baker and Anfernee Jennings are some of the Patriots who need to impress Thursday night in New York.`\
+https://nytimes.com/athletic/6562997/2025/08/20/patriots-53-man-roster-bubble-giants/
+
+**Why the Bundesliga has turned to Mark Goldbridge and YouTube to grow its audience**\
+`The aim is straightforward: to get as many people engaging with German football as possible. The reason behind it is unique`\
+https://nytimes.com/athletic/6562703/2025/08/20/bundesliga-mark-goldbridge-youtube/
+
 **A Sacred Recipe for Virility or a Dangerous Drug?**\
 `Unregulated sexual stimulants are flooding West Africa, posing major health risks that officials are scrambling to address.`\
 https://nytimes.com/2025/08/20/world/africa/fake-viagra-smuggling.html
@@ -21,20 +37,4 @@ https://nytimes.com/video/world/europe/100000010349018/inside-trumps-effort-on-r
 **The New Yorker Who Interviews Doormen on TikTok**\
 `Sara Leeds gained a social media following for her fast-paced conversations with doormen (and women) who serve as gatekeepers and confidants at thousands of buildings.`\
 https://nytimes.com/2025/08/20/nyregion/the-new-yorker-who-interviews-doormen-on-tiktok.html
-
-**Your Questions (and Criticisms) of Our Recent Shows**\
-`Ezra Klein discusses reactions to his recent episodes with Mahmoud Khalil, Philippe Sands and Yoram Hazony.`\
-https://nytimes.com/2025/08/20/opinion/ezra-klein-podcast-ask-me-anything.html
-
-**A Wild West Parody Is Topping the Box Office in Germany. What Gives?**\
-`A newly released sequel to the most successful German movie of all time is also a hit, even though the original cowboys-and-Indians film hasn’t necessarily aged well.`\
-https://nytimes.com/2025/08/20/arts/germany-film-manitu.html
-
-**For Zach Cherry, ‘Severance’ Was a Leap of Faith**\
-`The actor’s improv background makes him more comfortable in comedy, but his performance in this twisty sci-fi mystery brought his first Emmy nomination.`\
-https://nytimes.com/2025/08/20/arts/television/for-zach-cherry-severance-was-a-leap-of-faith.html
-
-**Amy Klobuchar: I Knew Deepfakes Were a Problem. Then I Saw One of Myself.**\
-`Deepfakes are getting more realistic, and more difficult to stop. Congress needs to take steps now.`\
-https://nytimes.com/2025/08/20/opinion/amy-klobuchar-deepfakes.html
 
