@@ -1,3 +1,15 @@
+**Boxer Julio César Chávez Jr. deported from U.S., faces charges in Mexico**\
+`Chavez, 39, had a warrant for his arrest in Mexico in connection with alleged arms, drug trafficking and cartel ties.`\
+https://nytimes.com/athletic/6563900/2025/08/19/julio-cesar-chavez-jr-deported/
+
+**‘Alien: Earth’ Season 1, Episode 3 Recap: Weird Science**\
+`A lot of folks, human and otherwise, seem very interested in getting their hands on the newly crash-landed alien specimens. What could go wrong?`\
+https://nytimes.com/2025/08/19/arts/television/alien-earth-recap-season-1-episode-3.html
+
+**Change Seeker**\
+`Victor Schmitt is on a roll.`\
+https://nytimes.com/2025/08/19/crosswords/daily-puzzle-2025-08-20.html
+
 **What we're hearing about Kyle Tucker's reset as the Cubs work with a frustrated star**\
 `The situation has turned ugly, with Tucker getting booed at Wrigley Field for not producing and not running to first base.`\
 https://nytimes.com/athletic/6563935/2025/08/19/chicago-cubs-kyle-tucker-reset/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/08/19/us/politics/white-house-tiktok-trump.html
 **With Mac Jones hurt, 49ers sign another QB, weigh playing Brock Purdy in finale**\
 `Renardo Green and Isaac Guerendo were among those who returned for a practice in which Brock Purdy and Ricky Pearsall continued to connect.`\
 https://nytimes.com/athletic/6563765/2025/08/19/mac-jones-injury-brock-purdy/
-
-**Alexander Isak's statement has set fire to Newcastle - drawing fury but little sign of success**\
-`Isak's public demand to leave might just have made things worse for everybody but that includes himself`\
-https://nytimes.com/athletic/6563682/2025/08/19/alexander-isak-newcastle-transfer-statement/
-
-**For Trump, Flashy Summits Come First. Grunt Work Comes Next.**\
-`Diplomats scrambled to come up with detailed proposals for security guarantees and other sticking points following two high-level summits in Alaska and Washington.`\
-https://nytimes.com/2025/08/19/us/politics/trump-summits-putin-zelensky.html
-
-**The Ukrainian children abducted by Russia have become a prominent issue in peace talks.**\
-`By Matthew Mpoke Bigg`\
-https://nytimes.com/live/2025/08/19/us/trump-zelensky-ukraine-russia/the-ukrainian-children-abducted-by-russia-have-become-a-prominent-issue-in-peace-talks
 
