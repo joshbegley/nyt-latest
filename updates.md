@@ -1,3 +1,15 @@
+**With Bills roster decisions looming, Cole Bishop gets wake-up call, WR room draws focus**\
+`Plus, there's a possibility Josh Allen doesn't play in the preseason for the first time in his career.`\
+https://nytimes.com/athletic/6565655/2025/08/20/bills-roster-cole-bishop-wide-receivers/
+
+**Federal workers’ health plan will stop covering transition surgery and hormone treatment.**\
+`The change is in line with other Trump administration policies that seek to reverse transgender rights.`\
+https://nytimes.com/live/2025/08/20/us/trump-news/federal-workers-transgender-treatment-trump
+
+**Tracking Heat Across Canada**\
+`See detailed maps of the latest temperature forecasts across Canada.`\
+https://nytimes.com/interactive/2025/world/canada/canada-heat-map-tracker.html
+
 **Myles Garrett wants to keep the focus on the Browns amid speeding ticket questions**\
 `“I’d honestly rather talk about football and this team than anything I’m doing off the field," Garrett said when asked about the ticket. `\
 https://nytimes.com/athletic/6565898/2025/08/20/myles-garrett-speeding-ticket-browns/
