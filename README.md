@@ -1,3 +1,7 @@
+**Real Madrid mailbag: Ask Mario Cortegana and Guillermo Rai your questions**\
+`The early signs under Xabi Alonso are promising. But what do you want to know about Madrid's season?`\
+https://nytimes.com/athletic/6564377/2025/08/20/real-madrid-2025-26-mailbag/
+
 **How to watch the Tour Championship, the FedEx Cup finale at East Lake**\
 `This year’s Tour Championship arrives with a clean slate. Can Scottie Scheffler win for the second year in a row?`\
 https://nytimes.com/athletic/6563603/2025/08/20/tour-championship-2025-playoff-format-how-to-watch/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6561517/2025/08/20/notre-dame-football-recruiting-n
 **Phillies' Cristopher Sánchez meets the moment amid Zack Wheeler's IL stint**\
 `Sánchez left the game after 96 pitches, staring at the standing sea of blue and red applauding him, and lifted his cap.`\
 https://nytimes.com/athletic/6564073/2025/08/20/phillies-win-mariners-cristopher-sanchez-strikes-out-12/
-
-**NHL front-office confidence rankings: How fans feel about every team in 2025**\
-`The 10th annual version of this project saw over 13,000 responses from readers, weighing in on top brass around the league.`\
-https://nytimes.com/athletic/6562358/2025/08/20/nhl-front-office-confidence-rankings-2025/
 
