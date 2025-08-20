@@ -1,3 +1,7 @@
+**If You Have Time for Just One Romance Novel, Make It This One**\
+`Our critic says Regina Black’s “August Lane” is the best book she’s read this year.`\
+https://nytimes.com/2025/08/20/books/review/new-romance-books.html
+
 **TAFC: The Chiesa chant and the fallout. Plus: Rangers chaos and panic rankings**\
 `Explaining the context of Liverpool fans' song and why it matters`\
 https://nytimes.com/athletic/6564225/2025/08/20/chiesa-chant-liverpool-rangers-tafc/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6563035/2025/08/20/commanders-terry-mclaurin-contra
 **‘No superstars’ and the power of anxiety: How McLaren is building the next F1 dynasty**\
 `McLaren is set to win a first F1 world title double since 1998 this season - a dramatic turnaround from the still-struggling team of 2022`\
 https://nytimes.com/athletic/6559951/2025/08/20/f1-mclaren-piastri-norris/
-
-**Chiefs stock report: Where Kingsley Suamataia, others stand before preseason finale**\
-`One player could help his stock in Friday's preseason game vs. the Bears.`\
-https://nytimes.com/athletic/6562608/2025/08/20/chiefs-stock-report-kingsley-suamataia/
 
