@@ -1,9 +1,17 @@
+**Marseille transfer list Rabiot and Rowe due to ‘unacceptable behaviour’**\
+`Marseille said in a statement that the incident occurred in the dressing room after Friday's 1-0 loss against Rennes.`\
+https://nytimes.com/athletic/6564410/2025/08/20/marseille-jonathan-rowe-adrien-rabiot/
+
+**Arsenal fans: After Havertz injury, who should be signed in closing days of window?**\
+`As reported today, Arsenal are actively exploring the transfer market to potentially reinforce their attack and cover the absence of Havertz`\
+https://nytimes.com/athletic/6564489/2025/08/20/arsenal-havertz-transfer-replacement/
+
 **Forest agree deal to sign Luiz from Juventus**\
 `The move will see the 27-year-old Brazil international move on loan with an obligation to buy based on the number of games he plays.`\
 https://nytimes.com/athletic/6538400/2025/08/20/douglas-luiz-nottingham-forest-transfer-loan/
 
 **How the U.S. Open showed off one of the most important - but neglected - selling points of tennis**\
-`The best men and women in the world took each other on in New York. Tennis produces that dynamic like no other sport.`\
+`The best men and women in the world took each other on at Flushing Meadows on Tuesday. Tennis produces that dynamic like no other sport.`\
 https://nytimes.com/athletic/6564356/2025/08/20/tennis-men-against-women-mixed-doubles/
 
 **Target Names New C.E.O. as It Tries to Break Sales Slump**\
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6564361/2025/08/20/matty-cash-nottingham-forest-ast
 **Arsenal's Havertz set for spell on sidelines with knee injury**\
 `Arsenal are actively exploring the transfer market to potentially reinforce their attack and cover the absence of the 26-year-old.`\
 https://nytimes.com/athletic/6564371/2025/08/20/kai-havertz-injury-arsenal-latest/
-
-**Fluminense goalkeeper Fabio breaks Shilton's all-time appearance record**\
-`Fabio played his 1,391st game on Wednesday, overtaking Shilton's record of 1,390 appearances.`\
-https://nytimes.com/athletic/6564397/2025/08/20/footballer-most-appearances-record-fabio-peter-shilton/
-
-**Surging, slumping, scoreboard watching: A night in the pennant race with the Mariners' Jerry Dipoto**\
-`With his team on the edge of something special, Seattle's president of baseball operations watched a game with The Athletic.`\
-https://nytimes.com/athletic/6564118/2025/08/20/seattle-mariners-jerry-dipoto/
 
