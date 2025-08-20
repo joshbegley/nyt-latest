@@ -1,3 +1,11 @@
+**‘We Can’t Take It Anymore’: Gazans Fear Looming Israeli Operation**\
+`Israel’s plan to invade Gaza City, the most populous city in the Gaza Strip, has forced many families to consider uprooting themselves.`\
+https://nytimes.com/2025/08/20/world/middleeast/gaza-city-israeli-operation.html
+
+**Fed Officials Split Over How to Read Economic Signals**\
+`Minutes from the Federal Reserve’s July meeting showed policymakers grappling with a slowing labor market and inflation that remains above the central bank’s target.`\
+https://nytimes.com/2025/08/20/business/federal-reserve-july-minutes.html
+
 **Social Media Figure Is Killed by Stray Bullet in Road Rage Episode, Police Say**\
 `Yarely Hermosillo, 27, was in a car struck by a bullet fired by a man who was arguing with another driver in Glendale, Ariz., the police said.`\
 https://nytimes.com/2025/08/20/us/yarely-hermosillo-arizona-road-rage-shooting.html
