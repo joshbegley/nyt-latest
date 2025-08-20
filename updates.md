@@ -1,3 +1,11 @@
+**Arsenal make move for Eze, player wants move from Palace**\
+`Spurs had the conditions of a deal agreed with Palace today and the player but are ready to move on to alternative targets.`\
+https://nytimes.com/athletic/6565385/2025/08/20/arsenal-eberechi-eze-transfer-tottenham-latest/
+
+**These Bats Like to Give Hugs and Play With Bugs**\
+`Rare footage of spectral bats, known also as great false vampire bats, revealed animals with a cuddly, social side.`\
+https://nytimes.com/2025/08/20/science/spectral-bats-hugs.html
+
 **Even a Glancing Blow From Hurricane Erin May Cost the Outer Banks a Crucial Lifeline**\
 `Highway 12 is beloved for its scenic views. But it’s also prone to flooding.`\
 https://nytimes.com/2025/08/20/weather/highway-12-ocracoke-hatteras-north-carolina-hurricane-erin.html

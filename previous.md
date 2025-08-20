@@ -1,3 +1,7 @@
+**Arsenal make move for Eze, player wants move from Palace**\
+`Spurs had the conditions of a deal agreed with Palace today and the player but are ready to move on to alternative targets.`\
+https://nytimes.com/athletic/6565385/2025/08/20/arsenal-eberechi-eze-transfer-tottenham-latest/
+
 **Even a Glancing Blow From Hurricane Erin May Cost the Outer Banks a Crucial Lifeline**\
 `Highway 12 is beloved for its scenic views. But it’s also prone to flooding.`\
 https://nytimes.com/2025/08/20/weather/highway-12-ocracoke-hatteras-north-carolina-hurricane-erin.html
@@ -6,7 +10,7 @@ https://nytimes.com/2025/08/20/weather/highway-12-ocracoke-hatteras-north-caroli
 `The judge said that the papers contained testimony from a single F.B.I. agent and that far more information about the case was held in Justice Department files.`\
 https://nytimes.com/2025/08/20/nyregion/epstein-grand-jury-transcripts-denied.html
 
-**Forget Bear Hugs, These Bats Greet Each Other by Embracing**\
+**These Bats Like to Give Hugs and Play With Bugs**\
 `Rare footage of spectral bats, known also as great false vampire bats, revealed animals with a cuddly, social side.`\
 https://nytimes.com/2025/08/20/science/spectral-bats-hugs.html
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6564607/2025/08/20/espn-streaming-service-app-launc
 **More Adams Associates and Supporters Are Said to Face Corruption Charges**\
 `Among those expected to surrender in the coming days are a close friend of Mayor Eric Adams whom the mayor installed in a powerful city position.`\
 https://nytimes.com/2025/08/20/nyregion/adams-corruption-nyc-lewis-martin-charges.html
-
-**With the Dalai Lama’s Succession Looming, Xi Jinping Visits Tibet**\
-`A power struggle is taking shape over choosing a successor to the 90-year-old Buddhist leader. In a trip to Tibet’s capital, China’s leader emphasized maintaining Beijing’s control.`\
-https://nytimes.com/2025/08/20/world/asia/xi-tibet-dalai-lama.html
 

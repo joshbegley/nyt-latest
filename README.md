@@ -1,5 +1,9 @@
+**Tiny Love Stories: ‘A Father’s Love Shouldn’t Wound’**\
+`Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
+https://nytimes.com/2025/08/20/style/tiny-modern-love-stories-a-fathers-love-shouldnt-wound.html
+
 **Arsenal make move for Eze, player wants move from Palace**\
-`Spurs had the conditions of a deal agreed with Palace today and the player but are ready to move on to alternative targets.`\
+`Spurs had the conditions of a deal agreed with Palace on Wednesday but are ready to move on to alternative targets.`\
 https://nytimes.com/athletic/6565385/2025/08/20/arsenal-eberechi-eze-transfer-tottenham-latest/
 
 **Even a Glancing Blow From Hurricane Erin May Cost the Outer Banks a Crucial Lifeline**\
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/20/us/politics/senate-spending-guardrails-trump.html
 **ESPN details new streaming service, revamped app ahead of Thursday launch**\
 `The network going direct-to-consumer reflects a notable shift in its longtime strategy and a reflection of rapidly evolving consumer habits.`\
 https://nytimes.com/athletic/6564607/2025/08/20/espn-streaming-service-app-launch/
-
-**More Adams Associates and Supporters Are Said to Face Corruption Charges**\
-`Among those expected to surrender in the coming days are a close friend of Mayor Eric Adams whom the mayor installed in a powerful city position.`\
-https://nytimes.com/2025/08/20/nyregion/adams-corruption-nyc-lewis-martin-charges.html
 
