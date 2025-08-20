@@ -1,3 +1,15 @@
+**TAFC: The Chiesa chant and the fallout. Plus: Rangers chaos and panic rankings**\
+`Explaining the context of Liverpool fans' song and why it matters`\
+https://nytimes.com/athletic/6564225/2025/08/20/chiesa-chant-liverpool-rangers-tafc/
+
+**Feldman's preseason College Football Playoff bracket: Who will win the national title?**\
+`Who will make the College Football Playoff bracket this winter? Bruce Feldman runs through his 12 teams and each round to crown a champion.`\
+https://nytimes.com/athletic/6562950/2025/08/20/college-football-playoff-bracket-predictions-bruce-feldman/
+
+**Dodgers prospect lost use of his right eye, but his big-league vision remains**\
+`Patrick Copen took a comebacker to his face one year ago. Now he's back on the mound and rising up the ranks. `\
+https://nytimes.com/athletic/6562793/2025/08/20/dodgers-pitching-prospect-patrick-copen-lost-vision-eye/
+
 **The Pulse: Football's nervous contenders**\
 `The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
 https://nytimes.com/athletic/6563329/2025/08/20/ravens-penn-state-football-the-pulse/
