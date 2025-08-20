@@ -6,7 +6,7 @@ https://nytimes.com/2025/08/20/learning/word-of-the-day-bayou.html
 ``\
 https://nytimes.com/issue/todayspaper/2025/08/20/todays-new-york-times
 
-**Talking Past Each Other in Israel**\
+**We Need a New Language After This War**\
 `We must find a way to speak in a common language again, a language that has a name for everything, even for a person holding a photograph of a dead child.`\
 https://nytimes.com/2025/08/20/opinion/israel-war-language-humanity.html
 
