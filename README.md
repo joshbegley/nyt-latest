@@ -1,3 +1,7 @@
+**The New York Times International Edition in Print for Thursday, Aug. 21, 2025**\
+``\
+https://nytimes.com/issue/todaysinyt/2025/08/20/todays-new-york-times-international-edition
+
 **Texas Democrats Reject Republican-Imposed Police Supervision**\
 `State representatives ripped up permission slips that Republican House leaders gave Democratic lawmakers trying to leave the Capitol building. One even spent the night sleeping inside the chambers.`\
 https://nytimes.com/video/us/politics/100000010350829/texas-redistricting-nicole-collier.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/20/us/politics/texas-republicans-redistricting-maps.
 **Bridget Everett Says a Best Friend Can Be Your Greatest Love (Encore)**\
 `The Somebody Somewhere star is tired of the same old love stories. Her show about friendship earned her an Emmy nomination.`\
 https://nytimes.com/2025/08/20/podcasts/bridget-everett-says-a-best-friend-can-be-your-greatest-love-encore.html
-
-**Conjuring Ghosts of Elizabeth Taylor**\
-`A rare perfume worn by the actress was lost to obscurity. Some passionate fans have given it a new life.`\
-https://nytimes.com/2025/08/20/style/elizabeth-taylor-scent-of-mystery-perfume.html
 
