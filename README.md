@@ -1,3 +1,7 @@
+**Forget Bear Hugs, These Bats Greet Each Other by Embracing**\
+`Rare footage of spectral bats, known also as great false vampire bats, revealed animals with a cuddly, social side.`\
+https://nytimes.com/2025/08/20/science/spectral-bats-hugs.html
+
 **A 1990 Measles Outbreak Shows How the Disease Can Roar Back**\
 `To understand the virus’s re-emergence in America in 2025, some experts are looking to a past epidemic that had a high death rate in Philadelphia.`\
 https://nytimes.com/2025/08/20/health/measles-outbreak-philadelphia.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/20/technology/warren-brodey-dead.html
 **Ilona Maher to start Team USA's Rugby World Cup opener vs. England**\
 `The 29-year-old is set to make her first World Cup appearance after making the switch to the 15-a-side format.`\
 https://nytimes.com/athletic/6564569/2025/08/20/ilona-maher-rugby-world-cup-usa-england/
-
-**Brian Rolapp announces Future Competition Committee chaired by Tiger Woods**\
-`The committee plans to find the “optimal competitive model” for professional golf after several years of change and turmoil.`\
-https://nytimes.com/athletic/6565061/2025/08/20/brian-rolapp-pga-tour-competition-committee-tiger-woods/
 
