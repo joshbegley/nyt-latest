@@ -1,3 +1,11 @@
+**Small, Luxurious Ships That Cater to Never-Cruisers**\
+`Five options for travelers who want to go by boat but prefer well-appointed yachts to floating cities.`\
+https://nytimes.com/2025/08/20/t-magazine/small-cruise-ships.html
+
+**Yankees mark 'Hamilton' anniversary with co-branded hat giveaway**\
+`Appearances from "Hamilton" stars past and present will mark the Yankee/Hamilton hat giveaway.`\
+https://nytimes.com/athletic/6549148/2025/08/20/new-york-yankees-hamilton-hat-broadway/
+
 **Morgan Wallen Will Not Submit Latest Album for Grammys Consideration**\
 `The country singer became the latest major artist to abandon the awards, declining to enter his chart-topping fourth album, “I’m the Problem,” for the 2026 ceremony.`\
 https://nytimes.com/2025/08/20/arts/music/morgan-wallen-grammys.html
@@ -25,12 +33,4 @@ https://nytimes.com/2025/08/20/nyregion/ice-6-year-old-nyc.html
 **Arsenal reach agreement in principle to sign Eze from Palace**\
 `The deal is worth in the region of the expired £68m release clause, matching the level of fee Tottenham Hotspur were prepared to pay.`\
 https://nytimes.com/athletic/6565048/2025/08/20/eberechi-eze-arsenal-transfer-agreement/
-
-**What’s in Our Queue? ‘The Gilded Age’ and More **\
-`Text by Jordyn Holman`\
-https://nytimes.com/card/2025/08/20/arts/editors-recommendations-gildedage
-
-**Walmart Recalls Frozen Shrimp After Radioactive Contamination Warning**\
-`The Food and Drug Administration urged consumers to discard packages of frozen shrimp sold in 13 states. A food safety expert said the risk to the public was low.`\
-https://nytimes.com/2025/08/20/business/radioactive-shrimp-walmart-recall.html
 
