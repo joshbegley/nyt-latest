@@ -1,3 +1,7 @@
+**Trump Administration Live Updates: Visa Clampdown Prompts Worries at U.S. Colleges**\
+``\
+https://nytimes.com/live/2025/08/20/us/trump-news
+
 **Raiders rookie report: Searching for immediate help beyond Ashton Jeanty**\
 `A look at how the Raiders' large rookie class has fared this summer — and the first-year players' roles for the upcoming season.`\
 https://nytimes.com/athletic/6562741/2025/08/20/raiders-rookie-report-ashton-jeanty-jack-bech/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6562192/2025/08/20/college-football-playoff-predict
 **Is the A.I. Sell-off the Start of Something Bigger?**\
 `A sharp drop in technology stocks, and even comments by OpenAI’s Sam Altman, suggest investors are getting too exuberant about artificial intelligence.`\
 https://nytimes.com/2025/08/20/business/dealbook/ai-dip-blip-palantir-nvidia.html
-
-**After Deadly Clashes, Syria and Israel Hold Direct Talks**\
-`The talks in Paris brokered by the United States were the latest effort to reduce tensions between the two longstanding foes, and came after Israel launched airstrikes on the Syrian capital last month.`\
-https://nytimes.com/2025/08/20/world/middleeast/syrian-israel-meet-paris.html
 

@@ -1,3 +1,7 @@
+**Trump Administration Live Updates: Visa Clampdown Prompts Worries at U.S. Colleges**\
+``\
+https://nytimes.com/live/2025/08/20/us/trump-news
+
 **Raiders rookie report: Searching for immediate help beyond Ashton Jeanty**\
 `A look at how the Raiders' large rookie class has fared this summer — and the first-year players' roles for the upcoming season.`\
 https://nytimes.com/athletic/6562741/2025/08/20/raiders-rookie-report-ashton-jeanty-jack-bech/
