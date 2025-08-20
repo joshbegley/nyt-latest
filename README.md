@@ -1,3 +1,7 @@
+**How Trump Is Forcing Foes to Pay Up**\
+`President Trump is getting universities, trading partners and law firms to agree to spend big on his terms, often to end fights he picked.`\
+https://nytimes.com/2025/08/20/us/politics/trump-payments-colleges-law-firms.html
+
 **Bruce Slovin, Who Unified Jewish Archives in New York, Dies at 89**\
 `A corporate executive who specialized in mergers, he brought together five Jewish institutions and their collections at the Center for Jewish History in Manhattan.`\
 https://nytimes.com/2025/08/20/nyregion/bruce-slovin-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/20/nyregion/mamdani-casinos-nyc-mayor.html
 **Tracking Heat Across Canada**\
 `See detailed maps of the latest temperature forecasts across Canada.`\
 https://nytimes.com/interactive/2025/world/canada/canada-heat-map-tracker.html
-
-**Trump Stepped Up His Attacks on the Fed**\
-`Also, Israel is preparing an assault on Gaza City. Here’s the latest at the end of Wednesday.`\
-https://nytimes.com/2025/08/20/briefing/trump-fed-israel-gaza-city-origami.html
 
