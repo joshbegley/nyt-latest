@@ -1,10 +1,14 @@
+**Isak, Newcastle and Liverpool: What happens next?**\
+`Breaking down the player's and clubs' options as transfer saga turns increasingly bitter`\
+https://nytimes.com/athletic/6564527/2025/08/20/alexander-isak-newcastle-and-liverpool-what-happens-next/
+
 **Scoop City: Anatomy of a QB failure and WR promise**\
 `Thoughts on the Colts quarterback situation and the rookie receiver who might be this year's Justin Jefferson.`\
 https://nytimes.com/athletic/6565116/2025/08/20/colts-qb-situation-nfl-emeka-egbuka-fantasy-scoop-city/
 
 **The Windup: What's up with MLB's left-handed pitching surge?**\
 `Welcome to The Windup, The Athletic's MLB newsletter.`\
-https://nytimes.com/athletic/6565158/2025/08/20/whats-up-with-mlbs-left-handed-pitching-surge-plus-yankees-mets-paralellism/
+https://nytimes.com/athletic/6565158/2025/08/20/mlb-left-handed-pitching-the-windup/
 
 **Top pitching prospect Bubba Chandler to make MLB debut in Pirates bullpen: Source**\
 `With superior athleticism, a power fastball and multiple promising off-speed pitches, Chandler has a chance to be a force in the majors.`\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6565020/2025/08/20/coco-gauff-fired-coach-2025-us-o
 **Drone Explosion in Haiti Kills 2 SWAT Members, Injures 6 Others**\
 `A drone intended for attacking gang members detonated at a police base, raising questions about how the deadly operations are conducted.`\
 https://nytimes.com/2025/08/20/world/americas/haiti-drones-police-gangs.html
-
-**Forest in talks over Sevilla defender Carmona**\
-`The 23-year-old made 35 La Liga appearances last season, scoring once. `\
-https://nytimes.com/athletic/6564870/2025/08/20/jose-angel-carmona-nottingham-forest-sevilla-talks-transfer/
 
