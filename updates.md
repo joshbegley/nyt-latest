@@ -1,3 +1,11 @@
+**NFL teams monitoring wide receiver trade market: Why Vikings, Jets, 49ers need help**\
+`As teams start looking to finalize their initial 53-man rosters, trade talks could be underway soon for wide receiver-needy squads.`\
+https://nytimes.com/athletic/6565104/2025/08/20/nfl-wide-receivers-trades-vikings-jets-49ers/
+
+**Top pitching prospect Bubba Chandler to make MLB debut in Pirates bullpen: Source**\
+`With superior athleticism, a power fastball and promising off-speed pitches, Chandler has a chance to be a force in the majors.`\
+https://nytimes.com/athletic/6565041/2025/08/20/bubba-chandler-mlb-promotion-pirates-bullpen/
+
 **Isak, Newcastle and Liverpool: What happens next?**\
 `Breaking down the player's and clubs' options as transfer saga turns increasingly bitter`\
 https://nytimes.com/athletic/6564527/2025/08/20/alexander-isak-newcastle-and-liverpool-what-happens-next/
