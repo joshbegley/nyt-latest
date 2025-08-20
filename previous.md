@@ -1,3 +1,7 @@
+**Documents Add Detail to Fox Hosts’ Desire to Help Trump**\
+`The documents were released as part of a defamation case against Fox Corporation filed by Smartmatic, an election technology company.`\
+https://nytimes.com/2025/08/19/business/media/fox-news-trump-election-documents.html
+
 **Mets put it all together in best performance in weeks**\
 `"We played a complete game," Carlos Mendoza said of the Mets' 8-1 win over the Nationals on Tuesday.`\
 https://nytimes.com/athletic/6564016/2025/08/19/mets-nationals-best-performance-in-weeks/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6563896/2025/08/19/los-angeles-dodgers-mookie-betts
 **Susan Collins to Get Hollywood Treatment at Fund-Raiser Featuring Democrats**\
 `Democrats hoping to retake the Senate in the midterm elections next year are targeting the seat of Senator Collins, a Maine Republican who is seen as a moderate.`\
 https://nytimes.com/2025/08/19/us/politics/hollywood-fundraiser-susan-collins-democrats.html
-
-**Trump’s White House Joins TikTok**\
-`The move continues a remarkable turnabout toward the app for President Trump, who tried to ban TikTok in his first term.`\
-https://nytimes.com/2025/08/19/us/politics/white-house-tiktok-trump.html
 
