@@ -1,3 +1,11 @@
+**Trump Demands a Fed Governor Resign, Escalating Campaign to Remake Central Bank**\
+`The administration accused Lisa Cook of mortgage fraud and said it would refer the matter for criminal investigation.`\
+https://nytimes.com/2025/08/20/us/politics/trump-fed-resign-lisa-cook-governor.html
+
+**Eze and Guehi to start for Palace in Conference League, says Glasner**\
+`Palace face Norwegian side Fredrikstad on Thursday in what is their first European fixture in 27 years.`\
+https://nytimes.com/athletic/6564611/2025/08/20/eze-guehi-transfer-palace-glasner/
+
 **Uranus Was Hiding a Moon Outside Its Rings**\
 `The 29th moon found to be orbiting the solar system’s 7th planet is about six miles wide.`\
 https://nytimes.com/2025/08/20/science/uranus-new-moon.html

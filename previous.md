@@ -1,3 +1,11 @@
+**Trump Demands a Fed Governor Resign, Escalating Campaign to Remake Central Bank**\
+`The administration accused Lisa Cook of mortgage fraud and said it would refer the matter for criminal investigation.`\
+https://nytimes.com/2025/08/20/us/politics/trump-fed-resign-lisa-cook-governor.html
+
+**Eze and Guehi to start for Palace in Conference League, says Glasner**\
+`Palace face Norwegian side Fredrikstad on Thursday in what is their first European fixture in 27 years.`\
+https://nytimes.com/athletic/6564611/2025/08/20/eze-guehi-transfer-palace-glasner/
+
 **Uranus Was Hiding a Moon Outside Its Rings**\
 `The 29th moon found to be orbiting the solar system’s 7th planet is about six miles wide.`\
 https://nytimes.com/2025/08/20/science/uranus-new-moon.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/08/20/style/moving-in-with-a-partner-cohabitation-anxie
 **How Tariffs Will Affect This Unique Cheese**\
 `Stilton is a special type of blue cheese that can be made in only three English counties.`\
 https://nytimes.com/video/business/small-business/100000010283073/blue-cheese-stilton-tariffs-america.html
-
-**More Than 70 Afghans Returning From Iran Die in Fiery Bus Crash**\
-`The bus collided with two vehicles. The victims were among the 1.8 million Afghans expelled from Iran as the country vowed to deport undocumented residents en masse.`\
-https://nytimes.com/2025/08/20/world/asia/afghan-deportation-bus-crash.html
-
-**Bus Crash Kills Scores of Afghans Returning From Iran**\
-`The bus collided with a truck and a motorbike on Tuesday night in northern Afghanistan near the border with Iran, killing more than 70 people, according to local officials. According to the United Nations, nearly 1.8 million Afghans have been forced out by Iran this year.`\
-https://nytimes.com/video/world/asia/100000010350895/bus-crash-kills-scores-afghanistan-iran.html
 
