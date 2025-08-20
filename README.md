@@ -1,3 +1,7 @@
+**Alyssa Naeher's first NWSL goal as told by her Stars teammates: 'I just felt pure joy'**\
+`In her record 200th NWSL appearance, the former U.S. goalkeeper scored her first league goal to complete a three-goal comeback for Chicago.`\
+https://nytimes.com/athletic/6565707/2025/08/20/alyssa-naeher-nwsl-uswnt-goal-chicago-stars/
+
 **Blue Jays takeaways: Vladimir Guerrero Jr. health update, new rotation plans, more**\
 `Three key takeaways after Toronto drops a series in Pittsburgh.`\
 https://nytimes.com/athletic/6565589/2025/08/20/blue-jays-takeaways-rotation-addison-barger-vladimir-guerrero-jr/
@@ -18,8 +22,8 @@ https://nytimes.com/athletic/6565643/2025/08/20/panthers-preseason-finale-roster
 `A Morris County resident may have contracted the illness locally, which would be the first known instance in decades of someone being exposed while in the state.`\
 https://nytimes.com/2025/08/20/nyregion/new-jersey-mosquitoes-malaria.html
 
-**Israel Approves West Bank Settlements, a Blow to Palestinian Statehood Hopes**\
-`The long-stalled project near Jerusalem, known as E1, further fragments lands envisioned as a Palestinian state, advancing a goal of Israeli hard-liners.`\
+**Israel Approves Settlements, a Blow to Faded Hopes for a Palestinian State**\
+`The long-stalled project near Jerusalem, known as E1, further fragments West Bank lands envisioned as part of a Palestinian state, advancing a goal of Israeli hard-liners.`\
 https://nytimes.com/2025/08/20/world/middleeast/israel-e1-settlement-west-bank.html
 
 **Stephanie Shirley, Who Created a Tech World for Women, Dies at 91**\
@@ -33,8 +37,4 @@ https://nytimes.com/video/world/middleeast/100000010351595/israel-gaza-city-atta
 **Camp Mystic Parents Demand Changes Before More Children Are Lost**\
 `A Texas Legislative Committee heard for the first time from the parents who demanded better flood warning systems, better training and equipment for camps near the river.`\
 https://nytimes.com/2025/08/20/us/politics/camp-mystic-parents.html
-
-**Obama Endorses Newsom’s Redistricting Proposal as a ‘Responsible Approach’**\
-`The former president suggested that Democrats opposing G.O.P. efforts in Texas and elsewhere should advance their own gerrymandering plans.`\
-https://nytimes.com/2025/08/20/us/politics/california-redistricting-newsom-obama.html
 
