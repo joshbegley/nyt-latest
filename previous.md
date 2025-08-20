@@ -1,3 +1,15 @@
+**New Malaria Case Prompts Testing of Mosquitoes in New Jersey**\
+`A Morris County resident may have contracted the illness locally, which would be the first known instance in decades of someone being exposed while in the state.`\
+https://nytimes.com/2025/08/20/nyregion/new-jersey-mosquitoes-malaria.html
+
+**Israel Approves West Bank Settlements, a Blow to Palestinian Statehood Hopes**\
+`The long-stalled project near Jerusalem, known as E1, further fragments lands envisioned as a Palestinian state, advancing a goal of Israeli hard-liners.`\
+https://nytimes.com/2025/08/20/world/middleeast/israel-e1-settlement-west-bank.html
+
+**Stephanie Shirley, Who Created a Tech World for Women, Dies at 91**\
+`In 1962, she started a software company at her dining room table with a revolutionary idea: to create a place where women could find a work-life balance.`\
+https://nytimes.com/2025/08/20/business/stephanie-shirley-dead.html
+
 **Gazans React to Israel’s Preparations to Take Over Gaza City**\
 `Palestinians expressed frustration on Wednesday over Israel’s announcement to call up tens of thousands of reservists for an operation to take control of Gaza City.`\
 https://nytimes.com/video/world/middleeast/100000010351595/israel-gaza-city-attack.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6565713/2025/08/20/chelsea-julio-enciso-brighton-bl
 **Small, Luxurious Ships That Cater to Never-Cruisers**\
 `Five options for travelers who want to go by boat but prefer well-appointed yachts to floating cities.`\
 https://nytimes.com/2025/08/20/t-magazine/small-cruise-ships.html
-
-**Yankees mark 'Hamilton' anniversary with co-branded hat giveaway**\
-`Appearances from "Hamilton" stars past and present will mark the Yankee/Hamilton hat giveaway.`\
-https://nytimes.com/athletic/6549148/2025/08/20/new-york-yankees-hamilton-hat-broadway/
-
-**Morgan Wallen Will Not Submit Latest Album for Grammys Consideration**\
-`The country singer became the latest major artist to abandon the awards, declining to enter his chart-topping fourth album, “I’m the Problem,” for the 2026 ceremony.`\
-https://nytimes.com/2025/08/20/arts/music/morgan-wallen-grammys.html
-
-**Their Window Seats Lacked Windows, So Delta and United Passengers Sued**\
-`Two suits filed this week accuse the airlines of unfairly charging passengers extra fees for window seats that the carriers knew were adjacent to aircraft walls.`\
-https://nytimes.com/2025/08/20/travel/delta-united-airlines-window-seat-lawsuits.html
 
