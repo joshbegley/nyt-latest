@@ -1,40 +1,40 @@
-**Tracking Heat Across Canada**\
-`See detailed maps of the latest temperature forecasts across Canada.`\
-https://nytimes.com/interactive/2025/08/20/world/canada/canada-heat-map-tracker.html
-
-**Trump Stepped Up His Attacks on the Fed**\
-`Also, Israel is preparing an assault on Gaza City. Here’s the latest at the end of Wednesday.`\
-https://nytimes.com/2025/08/20/briefing/trump-fed-israel-gaza-city-origami.html
-
-**East Coast Braces for Rip Currents From Hurricane Erin**\
-`States from Florida to Maine are bracing for potentially life-threatening surf and rip currents as Hurricane Erin brushes past the East Coast.`\
-https://nytimes.com/video/weather/100000010352200/hurricane-erin-waves-rip-currents.html
-
-**Join The Athletic fantasy football Discord server**\
-`Seeking some sage fantasy football advice? Come join our season-long chat in The Athletic's fantasy football Discord server.`\
-https://nytimes.com/athletic/6562700/2025/08/20/fantasy-football-discord-jake-ciely-brandon-funston/
-
-**Alyssa Naeher's first NWSL goal as told by her Stars teammates: 'I just felt pure joy'**\
-`In her record 200th NWSL appearance, the former U.S. goalkeeper scored her first league goal to complete a three-goal comeback for Chicago.`\
-https://nytimes.com/athletic/6565707/2025/08/20/alyssa-naeher-nwsl-uswnt-goal-chicago-stars/
-
-**Blue Jays takeaways: Vladimir Guerrero Jr. health update, new rotation plans, more**\
-`Three key takeaways after Toronto drops a series in Pittsburgh.`\
-https://nytimes.com/athletic/6565589/2025/08/20/blue-jays-takeaways-rotation-addison-barger-vladimir-guerrero-jr/
-
-**Thursday Briefing: Israel’s Planned Offensive**\
-`Also, Africa’s push for a new world map.`\
-https://nytimes.com/2025/08/20/briefing/israel-military-gaza-ukraine-tibet.html
-
-**Eberechi Eze's return to Arsenal would be a romantic twist in their summer story**\
-`Arsenal have reached an agreement in principle to sign Eberechi Eze. It could make a huge impact on the pitch`\
-https://nytimes.com/athletic/6565659/2025/08/20/eberechi-eze-arsenal-romantic-twist/
-
-**Seven players to watch in Panthers' finale: 2 WRs, new QB, kicking battle**\
-`Will WR Brycen Tremayne earn a roster spot? Is Matthew Wright or Ryan Fitzgerald going to end up Carolina's Week 1 kicker?`\
-https://nytimes.com/athletic/6565643/2025/08/20/panthers-preseason-finale-roster-watch/
-
 **New Malaria Case Prompts Testing of Mosquitoes in New Jersey**\
 `A Morris County resident may have contracted the illness locally, which would be the first known instance in decades of someone being exposed while in the state.`\
 https://nytimes.com/2025/08/20/nyregion/new-jersey-mosquitoes-malaria.html
+
+**Israel Approves West Bank Settlements, a Blow to Palestinian Statehood Hopes**\
+`The long-stalled project near Jerusalem, known as E1, further fragments lands envisioned as a Palestinian state, advancing a goal of Israeli hard-liners.`\
+https://nytimes.com/2025/08/20/world/middleeast/israel-e1-settlement-west-bank.html
+
+**Stephanie Shirley, Who Created a Tech World for Women, Dies at 91**\
+`In 1962, she started a software company at her dining room table with a revolutionary idea: to create a place where women could find a work-life balance.`\
+https://nytimes.com/2025/08/20/business/stephanie-shirley-dead.html
+
+**Gazans React to Israel’s Preparations to Take Over Gaza City**\
+`Palestinians expressed frustration on Wednesday over Israel’s announcement to call up tens of thousands of reservists for an operation to take control of Gaza City.`\
+https://nytimes.com/video/world/middleeast/100000010351595/israel-gaza-city-attack.html
+
+**Camp Mystic Parents Demand Changes Before More Children Are Lost**\
+`A Texas Legislative Committee heard for the first time from the parents who demanded better flood warning systems, better training and equipment for camps near the river.`\
+https://nytimes.com/2025/08/20/us/politics/camp-mystic-parents.html
+
+**Obama Endorses Newsom’s Redistricting Proposal as a ‘Responsible Approach’**\
+`The former president suggested that Democrats opposing G.O.P. efforts in Texas and elsewhere should advance their own gerrymandering plans.`\
+https://nytimes.com/2025/08/20/us/politics/california-redistricting-newsom-obama.html
+
+**New Origami Design Could Help With Space Engineering**\
+`Researchers discovered a new type of origami called bloom patterns, which are repeating tiles of creased patterns that rotate symmetrically around a center. Engineers are working on real-life applications, like a collapsable space telescope for NASA.`\
+https://nytimes.com/video/science/100000010351446/new-origami-design-could-help-with-space-engineering.html
+
+**Hurricane Erin Brings Rip Current Risks From Florida to Maine**\
+`The storm, off North Carolina, was generating life-threatening surf and rip currents and causing beach closures along the East Coast.`\
+https://nytimes.com/2025/08/20/weather/hurricane-erin-rip-currents-beach-closures.html
+
+**Chelsea owners BlueCo reach agreement to sign Enciso from Brighton**\
+`The Paraguay international is expected to initially spend time at Strasbourg but is viewed as a long-term Chelsea player.`\
+https://nytimes.com/athletic/6565713/2025/08/20/chelsea-julio-enciso-brighton-blueco/
+
+**Small, Luxurious Ships That Cater to Never-Cruisers**\
+`Five options for travelers who want to go by boat but prefer well-appointed yachts to floating cities.`\
+https://nytimes.com/2025/08/20/t-magazine/small-cruise-ships.html
 
