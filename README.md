@@ -1,3 +1,7 @@
+**Ask a Journalist: How Generative A.I. Is Reshaping Our Lives**\
+`Kashmir Hill joins us for the month of September to chat about artificial intelligence and our relationship to it. Post your comments and questions for her by Sept. 15.`\
+https://nytimes.com/2025/08/20/learning/lesson-plans/ask-a-journalist-how-generative-ai-is-reshaping-our-lives.html
+
 **Ask a Journalist: A Monthly Series for Teenagers**\
 `Join us each month this school year to discuss a teen-friendly topic with a New York Times journalist who covers it. Post your thoughts, ask questions or suggest ideas, and the reporters will reply!`\
 https://nytimes.com/2025/08/20/learning/ask-a-journalist-a-monthly-series-for-teenagers.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6564611/2025/08/20/eze-guehi-transfer-palace-glasne
 **Uranus Was Hiding a Moon Outside Its Rings**\
 `The 29th moon found to be orbiting the solar system’s 7th planet is about six miles wide.`\
 https://nytimes.com/2025/08/20/science/uranus-new-moon.html
-
-**College football national title odds: Texas is favorite ahead of a wide open field**\
-`Texas enters the 2025 season as the favorite to win the national title, but the odds show a wide open field.`\
-https://nytimes.com/athletic/6560571/2025/08/20/college-football-national-title-odds-texas-georgia-ohio-state-penn-state/
 
