@@ -1,3 +1,11 @@
+**With the Dalai Lama’s Succession Looming, Xi Jinping Visits Tibet**\
+`A power struggle is taking shape over choosing a successor to the 90-year-old Buddhist leader. In a trip to Tibet’s capital, China’s leader emphasized maintaining Beijing’s control.`\
+https://nytimes.com/2025/08/20/world/asia/xi-tibet-dalai-lama.html
+
+**Warren Brodey, 101, Dies; a Visionary at the Dawn of the Information Age**\
+`His work on complex systems and responsive technologies helped lay the groundwork for later work on artificial intelligence.`\
+https://nytimes.com/2025/08/20/technology/warren-brodey-dead.html
+
 **Ilona Maher to start Team USA's Rugby World Cup opener vs. England**\
 `The 29-year-old is set to make her first World Cup appearance after making the switch to the 15-a-side format.`\
 https://nytimes.com/athletic/6564569/2025/08/20/ilona-maher-rugby-world-cup-usa-england/
