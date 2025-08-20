@@ -1,3 +1,11 @@
+**Position changes – for Mookie Betts or Teoscar Hernández – aren't coming any time soon for Dodgers**\
+`Betts did not replace Hernández in right field on Tuesday night, as both former All-Stars assumed their usual positions.`\
+https://nytimes.com/athletic/6563896/2025/08/19/los-angeles-dodgers-mookie-betts-teoscar-hernandez-positions/
+
+**Susan Collins to Get Hollywood Treatment at Fund-Raiser Featuring Democrats**\
+`Democrats hoping to retake the Senate in the midterm elections next year are targeting the seat of Senator Collins, a Maine Republican who is seen as a moderate.`\
+https://nytimes.com/2025/08/19/us/politics/hollywood-fundraiser-susan-collins-democrats.html
+
 **Trump’s White House Joins TikTok**\
 `The move continues a remarkable turnabout toward the app for President Trump, who tried to ban TikTok in his first term.`\
 https://nytimes.com/2025/08/19/us/politics/white-house-tiktok-trump.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6563707/2025/08/19/philadelphia-phillies-jordan-rom
 **Deadly Flash Floods Lash Northern Pakistan**\
 `Torrential rains continued pouring on dozens of villages in northern Pakistan, triggering flash floods that have wiped out houses and killed hundreds.`\
 https://nytimes.com/video/world/asia/100000010350391/pakistan-flash-floods-monsoon.html
-
-**North Carolina Beach Towns Brace for a Surge of Dangerous Seas**\
-`Most of the tourists have left Ocracoke Island, and the surfers are watching closely as deadly rip currents lurk below the waves.`\
-https://nytimes.com/2025/08/19/weather/hurricane-erin-north-carolina-evacuations.html
-
-**Stabbing at Arizona High School Leaves 1 Student Dead, Officials Say**\
-`A fight between two students at Maryvale High School in Phoenix on Tuesday left one fatally stabbed and the other with non-life-threatening injuries and in custody, officials said.`\
-https://nytimes.com/2025/08/19/us/arizona-stabbing-high-school.html
 

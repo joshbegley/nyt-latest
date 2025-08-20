@@ -1,3 +1,11 @@
+**Position changes – for Mookie Betts or Teoscar Hernández – aren't coming any time soon for Dodgers**\
+`Betts did not replace Hernández in right field on Tuesday night, as both former All-Stars assumed their usual positions.`\
+https://nytimes.com/athletic/6563896/2025/08/19/los-angeles-dodgers-mookie-betts-teoscar-hernandez-positions/
+
+**Susan Collins to Get Hollywood Treatment at Fund-Raiser Featuring Democrats**\
+`Democrats hoping to retake the Senate in the midterm elections next year are targeting the seat of Senator Collins, a Maine Republican who is seen as a moderate.`\
+https://nytimes.com/2025/08/19/us/politics/hollywood-fundraiser-susan-collins-democrats.html
+
 **Trump’s White House Joins TikTok**\
 `The move continues a remarkable turnabout toward the app for President Trump, who tried to ban TikTok in his first term.`\
 https://nytimes.com/2025/08/19/us/politics/white-house-tiktok-trump.html
