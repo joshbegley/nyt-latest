@@ -1,3 +1,11 @@
+**Is the A.I. Sell-off the Start of Something Bigger?**\
+`A sharp drop in technology stocks, and even comments by OpenAI’s Sam Altman, suggest investors are getting too exuberant about artificial intelligence.`\
+https://nytimes.com/2025/08/20/business/dealbook/ai-dip-blip-palantir-nvidia.html
+
+**After Deadly Clashes, Syria and Israel Hold Direct Talks**\
+`The talks in Paris brokered by the United States were the latest effort to reduce tensions between the two longstanding foes, and came after Israel launched airstrikes on the Syrian capital last month.`\
+https://nytimes.com/2025/08/20/world/middleeast/syrian-israel-meet-paris.html
+
 **Marseille transfer list Rabiot and Rowe due to ‘unacceptable behaviour’**\
 `Marseille said in a statement that the incident occurred in the dressing room after Friday's 1-0 loss against Rennes.`\
 https://nytimes.com/athletic/6564410/2025/08/20/marseille-jonathan-rowe-adrien-rabiot/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/08/20/briefing/voting-machines-mailin-voting.html
 **Preparations for a Move on Gaza City Have Started, Israel’s Military Says**\
 `Troops have reached the city’s outskirts, an Israeli official said, adding that more reservists are being asked to report for duty to cover for other soldiers who will be involved in going into Gaza City.`\
 https://nytimes.com/2025/08/20/world/middleeast/israel-hamas-gaza-city.html
-
-**Why Nottingham Forest are considering a transfer return for Matty Cash from Aston Villa**\
-`Could a return to the City Ground really be on the cards for Matty Cash? Jacob Tanswell and Daniel Taylor discuss `\
-https://nytimes.com/athletic/6564361/2025/08/20/matty-cash-nottingham-forest-aston-villa-transfer/
-
-**Arsenal's Havertz set for spell on sidelines with knee injury**\
-`Arsenal are actively exploring the transfer market to potentially reinforce their attack and cover the absence of the 26-year-old.`\
-https://nytimes.com/athletic/6564371/2025/08/20/kai-havertz-injury-arsenal-latest/
 
