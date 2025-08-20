@@ -1,3 +1,11 @@
+**More Than 70 Afghans Returning From Iran Die in Fiery Bus Crash**\
+`The bus collided with two vehicles. The victims were among the 1.8 million Afghans expelled from Iran as the country vowed to deport undocumented residents en masse.`\
+https://nytimes.com/2025/08/20/world/asia/afghan-deportation-bus-crash.html
+
+**Bus Crash Kills Scores of Afghans Returning From Iran**\
+`The bus collided with a truck and a motorbike on Tuesday night in northern Afghanistan near the border with Iran, killing more than 70 people, according to local officials. According to the United Nations, nearly 1.8 million Afghans have been forced out by Iran this year.`\
+https://nytimes.com/video/world/asia/100000010350895/bus-crash-kills-scores-afghanistan-iran.html
+
 **It's become a mismatch for Giants in the late innings against Padres**\
 `Compared to some of their NL West adversaries, the Giants and president Buster Posey have a lot of work to do when it comes to the bullpen.`\
 https://nytimes.com/athletic/6564266/2025/08/20/sf-giants-bullpen-padres/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6563427/2025/08/20/packers-position-battles-cliffor
 **Return of Dre Greenlaw, Nik Bonitto brings Broncos' defense into clearer focus**\
 `"You can always feel him when he's out there," Bonitto said of Greenlaw, who has missed much of camp with a quad injury.`\
 https://nytimes.com/athletic/6563293/2025/08/20/broncos-defense-dre-greenlaw-nik-bonitto/
-
-**Blackhawks Hall of Fame rankings: Will Larmer finally get recognition? Keith a lock?**\
-`The Blackhawks have released their list of nominees for the franchise Hall of Fame. Here's how we'd stack the 27 players.`\
-https://nytimes.com/athletic/6558402/2025/08/20/blackhawks-hall-of-fame-rankings-larmer-keith/
-
-**Submit your questions for Scott Wheeler’s first 2026 NHL Draft mailbag**\
-`Have a question about the 2026 NHL Draft class, prospects or scouting? Send them here!`\
-https://nytimes.com/athletic/6563084/2025/08/20/scott-wheeler-2026-nhl-draft-mailbag-prompt/
 
