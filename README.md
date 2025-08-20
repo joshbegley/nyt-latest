@@ -1,3 +1,11 @@
+**The New York Times in Print for Wednesday, Aug. 20, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/08/20/todays-new-york-times
+
+**Talking Past Each Other in Israel**\
+`We must find a way to speak in a common language again, a language that has a name for everything, even for a person holding a photograph of a dead child.`\
+https://nytimes.com/2025/08/20/opinion/israel-war-language-humanity.html
+
 **Yankees slug their way into the franchise record books for the second time in 2025**\
 `Six Yankees homered against the Rays, including multi-home-run efforts from José Caballero, Giancarlo Stanton and Cody Bellinger.`\
 https://nytimes.com/athletic/6564104/2025/08/20/ny-yankees-single-game-home-run-record/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6515214/2025/08/20/matt-oriley-brighton-transfer-2/
 **What would Eze bring to Spurs and where could he play?**\
 `Eze, who grew up playing football in south London's cages, plays with confidence and flair, unafraid to beat players on the dribble`\
 https://nytimes.com/athletic/6562089/2025/08/20/eberechi-eze-spurs-position/
-
-**Confident, composed and increasingly commanding: Arsenal goalkeeper David Raya**\
-`The Arsenal No 1 was everything that counterpart Altay Bayindir was not on Sunday. Raya is 'only' 6ft but that does not matter to his team`\
-https://nytimes.com/athletic/6559917/2025/08/20/arsenal-david-raya-goalkeeper-premier-league/
-
-**Do Chelsea have an attack that can win them the Premier League?**\
-`Chelsea must find a way to become the sum of their spending in the final third if the world champions are to become English champions again`\
-https://nytimes.com/athletic/6562266/2025/08/20/chelsea-attack-pedro-delap-palmer-neto-maresca/
 
