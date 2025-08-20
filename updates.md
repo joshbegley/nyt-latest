@@ -1,3 +1,11 @@
+**Onstage and Onscreen, The New York Times Is Ready for Its Close-Up**\
+`The recognizable masthead has been portrayed in a Betty Boop musical on Broadway, a Marvel movie and many other creative works.`\
+https://nytimes.com/2025/08/20/insider/new-york-times-movies.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/08/20/crosswords/spelling-bee-forum.html
+
 **We Need a New Language After This War**\
 `We must find a way to speak in a common language again, a language that has a name for everything, even for a person holding a photograph of a dead child.`\
 https://nytimes.com/2025/08/20/opinion/israel-war-language-humanity.html

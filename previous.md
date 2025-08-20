@@ -1,3 +1,11 @@
+**Onstage and Onscreen, The New York Times Is Ready for Its Close-Up**\
+`The recognizable masthead has been portrayed in a Betty Boop musical on Broadway, a Marvel movie and many other creative works.`\
+https://nytimes.com/2025/08/20/insider/new-york-times-movies.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/08/20/crosswords/spelling-bee-forum.html
+
 **Word of the Day: bayou**\
 `This word has appeared in 52 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2025/08/20/learning/word-of-the-day-bayou.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/08/20/briefing/ukraine-russia-trump-gaza-netanyahu-indo
 **Flags, fan leaflets and a song debate - how United are trying to improve Old Trafford's atmosphere**\
 `United’s fan culture and song book is one of the best in football - but Old Trafford on matchdays is not what it used to be`\
 https://nytimes.com/athletic/6562484/2025/08/20/manchester-united-old-trafford-atmosphere/
-
-**Man City's new signing wants to be known for more than Jill Scott's viral rant**\
-`Sydney Lohmann moved to Manchester from Germany this summer - and she has the perfect ice-breaker to make friends in her new surroundings`\
-https://nytimes.com/athletic/6550776/2025/08/20/sydney-lohmann-manchester-city-wsl-interview/
-
-**'A lot more connected' - how Matt O'Riley has forced his way back into contention at Brighton**\
-`The midfelder had looked to be edging towards an exit from the Amex, but a good pre-season and a new role appear to have changed things`\
-https://nytimes.com/athletic/6515214/2025/08/20/matt-oriley-brighton-transfer-2/
 
