@@ -1,3 +1,7 @@
+**Mets put it all together in best performance in weeks**\
+`"We played a complete game," Carlos Mendoza said of the Mets' 8-1 win over the Nationals on Tuesday.`\
+https://nytimes.com/athletic/6564016/2025/08/19/mets-nationals-best-performance-in-weeks/
+
 **Boxer Julio César Chávez Jr. deported from U.S., faces charges in Mexico**\
 `Chavez, 39, had a warrant for his arrest in Mexico in connection with alleged arms, drug trafficking and cartel ties.`\
 https://nytimes.com/athletic/6563900/2025/08/19/julio-cesar-chavez-jr-deported/
