@@ -1,3 +1,11 @@
+**Forest exploring deal to sign Cash from Villa**\
+`The 28-year-old is among Forest's options as they look to strengthen the right side of defence.`\
+https://nytimes.com/athletic/6563700/2025/08/20/nottingham-forest-aston-villa-matty-cash/
+
+**Mark Goldbridge among Bundesliga's UK broadcast partners for this season**\
+`The new agreement is due to be announced today and is expected to be in place for the Bundesliga’s first round of games.`\
+https://nytimes.com/athletic/6560329/2025/08/20/mark-goldbridge-bundesliga-tv/
+
 **Onstage and Onscreen, The New York Times Is Ready for Its Close-Up**\
 `The recognizable masthead has been portrayed in a Betty Boop musical on Broadway, a Marvel movie and many other creative works.`\
 https://nytimes.com/2025/08/20/insider/new-york-times-movies.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6559870/2025/08/20/ryan-gravenberch-liverpool-defen
 **Is The Hundred the saviour of English domestic county cricket?**\
 `The ECB tournament has its detractors but the sale of a 49 per cent stake in its franchises raised £520m for the county and grassroots game`\
 https://nytimes.com/athletic/6546341/2025/08/20/cricket-hundred-county-saviour/
-
-**Wednesday Briefing: An Uncertain Path to Peace in Ukraine**\
-`Also, Paris adapts for extreme heat.`\
-https://nytimes.com/2025/08/20/briefing/ukraine-russia-trump-gaza-netanyahu-indonesia-rainforest.html
-
-**Flags, fan leaflets and a song debate - how United are trying to improve Old Trafford's atmosphere**\
-`United’s fan culture and song book is one of the best in football - but Old Trafford on matchdays is not what it used to be`\
-https://nytimes.com/athletic/6562484/2025/08/20/manchester-united-old-trafford-atmosphere/
 
