@@ -1,3 +1,7 @@
+**U.S. Open mixed doubles: Sara Errani and Andrea Vavassori take singles stars to school**\
+`The new event wanted to use singles stars to put mixed doubles on a pedestal. Two masters of the discipline have stolen the show.`\
+https://nytimes.com/athletic/6563804/2025/08/20/tennis-us-open-mixed-doubles-results-format/
+
 **The New York Times International Edition in Print for Thursday, Aug. 21, 2025**\
 ``\
 https://nytimes.com/issue/todaysinyt/2025/08/20/todays-new-york-times-international-edition

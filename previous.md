@@ -1,3 +1,7 @@
+**U.S. Open mixed doubles: Sara Errani and Andrea Vavassori take singles stars to school**\
+`The new event wanted to use singles stars to put mixed doubles on a pedestal. Two masters of the discipline have stolen the show.`\
+https://nytimes.com/athletic/6563804/2025/08/20/tennis-us-open-mixed-doubles-results-format/
+
 **The New York Times International Edition in Print for Thursday, Aug. 21, 2025**\
 ``\
 https://nytimes.com/issue/todaysinyt/2025/08/20/todays-new-york-times-international-edition
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/20/world/africa/fake-viagra-smuggling.html
 **Texas Republicans Ready to Pass New Redistricting Maps, Just as Trump Wanted**\
 `The effort is intended to help the G.O.P. win five more U.S. House seats in the midterm elections. Other states, red and blue, are likely to redraw their own maps.`\
 https://nytimes.com/2025/08/20/us/politics/texas-republicans-redistricting-maps.html
-
-**Bridget Everett Says a Best Friend Can Be Your Greatest Love (Encore)**\
-`The Somebody Somewhere star is tired of the same old love stories. Her show about friendship earned her an Emmy nomination.`\
-https://nytimes.com/2025/08/20/podcasts/bridget-everett-says-a-best-friend-can-be-your-greatest-love-encore.html
 
