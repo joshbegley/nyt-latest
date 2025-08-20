@@ -1,3 +1,11 @@
+**Tracking Heat Across Canada**\
+`See detailed maps of the latest temperature forecasts across Canada.`\
+https://nytimes.com/interactive/2025/08/20/world/canada/canada-heat-map-tracker.html
+
+**Trump Stepped Up His Attacks on the Fed**\
+`Also, Israel is preparing an assault on Gaza City. Here’s the latest at the end of Wednesday.`\
+https://nytimes.com/2025/08/20/briefing/trump-fed-israel-gaza-city-origami.html
+
 **East Coast Braces for Rip Currents From Hurricane Erin**\
 `States from Florida to Maine are bracing for potentially life-threatening surf and rip currents as Hurricane Erin brushes past the East Coast.`\
 https://nytimes.com/video/weather/100000010352200/hurricane-erin-waves-rip-currents.html
