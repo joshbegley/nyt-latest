@@ -1,3 +1,7 @@
+**We Need a New Language After This War**\
+`We must find a way to speak in a common language again, a language that has a name for everything, even for a person holding a photograph of a dead child.`\
+https://nytimes.com/2025/08/20/opinion/israel-war-language-humanity.html
+
 **Word of the Day: bayou**\
 `This word has appeared in 52 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2025/08/20/learning/word-of-the-day-bayou.html
