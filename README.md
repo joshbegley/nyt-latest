@@ -1,3 +1,19 @@
+**Rebuilding Pac-12 set to add college baseball powerhouse Dallas Baptist: Source**\
+`Dallas Baptist to join conference in baseball only, beginning play as a member in 2027. `\
+https://nytimes.com/athletic/6566053/2025/08/20/pac-12-to-add-college-baseball-powerhouse-dallas-baptist/
+
+**Ayo Edebiri and Don Cheadle to Star in Broadway ‘Proof’ Revival**\
+`The play, by David Auburn, won the Pulitzer Prize for drama in 2001.`\
+https://nytimes.com/2025/08/20/theater/proof-broadway-edebiri-cheadle.html
+
+**Gavin Newsom’s Latest Role: Social Media Troll**\
+`The California governor’s press office is mimicking President Trump’s distinctive Truth Social style on X. Liberals love it. The White House says it’s “just getting weird at this point.”`\
+https://nytimes.com/2025/08/20/us/newsom-trump-social-media.html
+
+**Stephen Miller Pledges Even More ‘Resources’ for D.C. Crackdown**\
+`President Trump’s deputy chief of staff, joined by Defense Secretary Pete Hegseth and Vice President JD Vance, visited National Guard members at Union Station and were met with jeers by people in transit.`\
+https://nytimes.com/2025/08/20/us/politics/stephen-miller-dc-crime-crackdown.html
+
 **Vikings trade veteran DT Harrison Phillips to Jets: Sources**\
 `Minnesota agreed to take on $3.7 million of Phillips’s salary as part of the compensation.`\
 https://nytimes.com/athletic/6566032/2025/08/20/vikings-jets-harrison-phillips-trade-pick-nfl-2025/
@@ -21,20 +37,4 @@ https://nytimes.com/2025/08/20/nyregion/bruce-slovin-dead.html
 **Ousted Fire Chief in L.A. Demands Formal Apology in Legal Filing**\
 `The former chief, Kristin Crowley, claimed that Los Angeles leaders retaliated against her for publicly blaming them for refusing to properly fund the Fire Department.`\
 https://nytimes.com/2025/08/20/us/los-angeles-fire-chief-mayor-bass.html
-
-**Gabbard Plan Would Shrink Intelligence Center Focused on Election Threats**\
-`Two other centers focusing on cybersecurity and chemical, biological and nuclear threats would also be reduced, and the National Intelligence University would be eliminated.`\
-https://nytimes.com/2025/08/20/us/politics/gabbard-odni-reorganization.html
-
-**WR Demarcus Robinson suspended 3 games after no-contest plea to DUI**\
-`The 49ers will be without Robinson and likely Brandon Aiyuk for the first three games of the regular season.`\
-https://nytimes.com/athletic/6484906/2025/08/20/demarcus-robinson-suspended-49ers/
-
-**With Bills roster decisions looming, Cole Bishop gets wake-up call, WR room draws focus**\
-`Plus, there's a possibility Josh Allen won't play in the preseason for the first time in his career.`\
-https://nytimes.com/athletic/6565655/2025/08/20/bills-roster-cole-bishop-wide-receivers/
-
-**Federal workers’ health plan will stop covering transition surgery and hormone treatment.**\
-`The change is in line with other Trump administration policies that seek to reverse transgender rights.`\
-https://nytimes.com/live/2025/08/20/us/trump-news/federal-workers-transgender-treatment-trump
 
