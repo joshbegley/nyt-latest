@@ -1,9 +1,13 @@
-**Bills 'Hard Knocks' takeaways: Sean McDermott tries to rally sluggish team**\
+**It's become a mismatch for Giants in the late innings against Padres**\
+`Compared to some of their NL West adversaries, the Giants and president Buster Posey have a lot of work to do when it comes to the bullpen.`\
+https://nytimes.com/athletic/6564266/2025/08/20/sf-giants-bullpen-padres/
+
+**Bills 'Hard Knocks' Week 3 takeaways: Sean McDermott tries to rally sluggish team**\
 `Plus, James Cook ends his hold-in and a look at Ed Oliver's horses.`\
 https://nytimes.com/athletic/6564207/2025/08/20/bills-hard-knocks-takeaways-sean-mcdermott-tries-to-rally-sluggish-team/
 
-**Man City, Lewis reach agreement in principle over new contract**\
-`The England international is set to renew terms on a deal until 2030 with the Premier League club.`\
+**Man City, Lewis close to agreement over new contract**\
+`Nothing has been signed but all sides are working towards the England international renewing until 2030.`\
 https://nytimes.com/athletic/6556096/2025/08/20/manchester-city-rico-lewis-contract-nottingham-forest/
 
 **Trump Administration Live Updates: Visa Clampdown Prompts Worries at U.S. Colleges**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6558402/2025/08/20/blackhawks-hall-of-fame-rankings
 **Submit your questions for Scott Wheeler’s first 2026 NHL Draft mailbag**\
 `Have a question about the 2026 NHL Draft class, prospects or scouting? Send them here!`\
 https://nytimes.com/athletic/6563084/2025/08/20/scott-wheeler-2026-nhl-draft-mailbag-prompt/
-
-**Carrie Coon Is Scratching an Itch, Starring in ‘Bug’ on Broadway**\
-`The play was written by Tracy Letts, who is married to Coon. It’s about a down-and-out duo for whom motel room insects prompt paranoia.`\
-https://nytimes.com/2025/08/20/theater/bug-broadway-carrie-coon.html
 

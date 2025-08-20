@@ -1,3 +1,15 @@
+**It's become a mismatch for Giants in the late innings against Padres**\
+`Compared to some of their NL West adversaries, the Giants and president Buster Posey have a lot of work to do when it comes to the bullpen.`\
+https://nytimes.com/athletic/6564266/2025/08/20/sf-giants-bullpen-padres/
+
+**Bills 'Hard Knocks' Week 3 takeaways: Sean McDermott tries to rally sluggish team**\
+`Plus, James Cook ends his hold-in and a look at Ed Oliver's horses.`\
+https://nytimes.com/athletic/6564207/2025/08/20/bills-hard-knocks-takeaways-sean-mcdermott-tries-to-rally-sluggish-team/
+
+**Man City, Lewis close to agreement over new contract**\
+`Nothing has been signed but all sides are working towards the England international renewing until 2030.`\
+https://nytimes.com/athletic/6556096/2025/08/20/manchester-city-rico-lewis-contract-nottingham-forest/
+
 **Bills 'Hard Knocks' takeaways: Sean McDermott tries to rally sluggish team**\
 `Plus, James Cook ends his hold-in and a look at Ed Oliver's horses.`\
 https://nytimes.com/athletic/6564207/2025/08/20/bills-hard-knocks-takeaways-sean-mcdermott-tries-to-rally-sluggish-team/
