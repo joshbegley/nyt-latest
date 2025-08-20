@@ -1,3 +1,11 @@
+**Bruce Slovin, Who Unified Jewish Archives in New York, Dies at 89**\
+`A corporate executive who specialized in mergers, he brought together five Jewish institutions and their collections at the Center for Jewish History in Manhattan.`\
+https://nytimes.com/2025/08/20/nyregion/bruce-slovin-dead.html
+
+**Ousted Fire Chief in L.A. Demands Formal Apology in Legal Filing**\
+`The former chief, Kristin Crowley, claimed that Los Angeles leaders retaliated against her for publicly blaming them for refusing to properly fund the Fire Department.`\
+https://nytimes.com/2025/08/20/us/los-angeles-fire-chief-mayor-bass.html
+
 **Gabbard Plan Would Shrink Intelligence Center Focused on Election Threats**\
 `Two other centers focusing on cybersecurity and chemical, biological and nuclear threats would also be reduced, and the National Intelligence University would be eliminated.`\
 https://nytimes.com/2025/08/20/us/politics/gabbard-odni-reorganization.html
@@ -29,12 +37,4 @@ https://nytimes.com/interactive/2025/world/canada/canada-heat-map-tracker.html
 **Trump Stepped Up His Attacks on the Fed**\
 `Also, Israel is preparing an assault on Gaza City. Here’s the latest at the end of Wednesday.`\
 https://nytimes.com/2025/08/20/briefing/trump-fed-israel-gaza-city-origami.html
-
-**East Coast Braces for Rip Currents From Hurricane Erin**\
-`States from Florida to Maine are bracing for potentially life-threatening surf and rip currents as Hurricane Erin brushes past the East Coast.`\
-https://nytimes.com/video/weather/100000010352200/hurricane-erin-waves-rip-currents.html
-
-**Join The Athletic fantasy football Discord server**\
-`Seeking some sage fantasy football advice? Come join our season-long chat in The Athletic's fantasy football Discord server.`\
-https://nytimes.com/athletic/6562700/2025/08/20/fantasy-football-discord-jake-ciely-brandon-funston/
 
