@@ -1,40 +1,40 @@
-**Hint of Mini Labubu Launch Sends Pop Mart Stock Soaring 12%**\
-`The grinning plush elves drove record revenue for the Chinese retailer in the first half of the year, and soon fans will have something new to lust after.`\
-https://nytimes.com/2025/08/20/business/mini-labubu-pop-mart-earnings-stock.html
+**How to watch the Tour Championship, the FedEx Cup finale at East Lake**\
+`This year’s Tour Championship arrives with a clean slate. Can Scottie Scheffler win for the second year in a row?`\
+https://nytimes.com/athletic/6563603/2025/08/20/tour-championship-2025-playoff-format-how-to-watch/
 
-**U.S. Open mixed doubles: Sara Errani and Andrea Vavassori take singles stars to school**\
-`The new event wanted to use singles stars to put mixed doubles on a pedestal. Two masters of the discipline have stolen the show.`\
-https://nytimes.com/athletic/6563804/2025/08/20/tennis-us-open-mixed-doubles-results-format/
+**Vikings GM Kwesi Adofo-Mensah: Unique decision-maker or just a 'normal-ass dude'?**\
+`Entering his fourth season, Adofo-Mensah doesn't see himself as exceptional. But his career arc and approach are anything but typical.`\
+https://nytimes.com/athletic/6562339/2025/08/20/vikings-gm-kwesi-adofo-mensah-decisions/
 
-**The New York Times International Edition in Print for Thursday, Aug. 21, 2025**\
-``\
-https://nytimes.com/issue/todaysinyt/2025/08/20/todays-new-york-times-international-edition
+**Commanders, Terry McLaurin still can't reach a deal. How did we get here?**\
+`As the impasse continues, with McLaurin absent from the team's second preseason game on Monday, some large questions remain unanswered.`\
+https://nytimes.com/athletic/6563035/2025/08/20/commanders-terry-mclaurin-contract-holdout-nfl-news/
 
-**Texas Democrats Reject Republican-Imposed Police Supervision**\
-`State representatives ripped up permission slips that Republican House leaders gave Democratic lawmakers trying to leave the Capitol building. One even spent the night sleeping inside the chambers.`\
-https://nytimes.com/video/us/politics/100000010350829/texas-redistricting-nicole-collier.html
+**‘No superstars’ and the power of anxiety: How McLaren is building the next F1 dynasty**\
+`McLaren is set to win a first F1 world title double since 1998 this season - a dramatic turnaround from the still-struggling team of 2022`\
+https://nytimes.com/athletic/6559951/2025/08/20/f1-mclaren-piastri-norris/
 
-**The 25 most impactful play-by-play voices of the 21st century**\
-`We are living in a golden age of sports TV play-by-play announcers, Richard Deitsch said, listing his 25 most impactful of the 21st century.`\
-https://nytimes.com/athletic/6508659/2025/08/20/21st-century-best-play-by-play-joe-buck-gus-johnson/
+**Chiefs stock report: Where Kingsley Suamataia, others stand before preseason finale**\
+`One player could help his stock in Friday's preseason game vs. the Bears.`\
+https://nytimes.com/athletic/6562608/2025/08/20/chiefs-stock-report-kingsley-suamataia/
 
-**How to watch Leagues Cup quarterfinal: Messi, Inter Miami host Tigres**\
-`Inter Miami, built around Lionel Messi and a veteran core, hosts Tigres UANL on Wednesday with a slim margin for error. `\
-https://nytimes.com/athletic/6563876/2025/08/20/messi-injury-inter-miami-tigres-how-to-watch-leagues-cup-quarterfinal/
+**The Yankees drafted a player after he admitted he drew a swastika on a Jewish student's door in college. Why?**\
+`The club said it did its due diligence when deciding to select Core Jackson, and that the choice was cleared with owner Hal Steinbrenner.`\
+https://nytimes.com/athletic/6563252/2025/08/20/yankees-prospect-swastika-core-jackson-2025-mlb-draft/
 
-**Which Year 2 QB could join Jayden Daniels in fantasy football’s Top 5? Bo Nix? Drake Maye?**\
-`Mike Hume, Jake Ciely and our beat writers predict how second-year QBs will fare in the NFL and fantasy football in 2025. `\
-https://nytimes.com/athletic/6563048/2025/08/20/fantasy-football-year-2-quarterbacks-bo-nix-drake-maye/
+**Matt Olson passes Pete Rose, helps Braves pull out wild, come-from-behind win**\
+`Olson played in his 746th consecutive game Tuesday as the Braves rallied past the White Sox.`\
+https://nytimes.com/athletic/6564110/2025/08/20/matt-olson-pete-rose-braves-win-white-sox/
 
-**Patriots players on the roster bubble entering final preseason game vs. Giants**\
-`Kyle Dugger, Javon Baker and Anfernee Jennings are some of the Patriots who need to impress Thursday night in New York.`\
-https://nytimes.com/athletic/6562997/2025/08/20/patriots-53-man-roster-bubble-giants/
+**How Notre Dame became a more durable national championship contender**\
+`Notre Dame is no longer trying to bend the soul of college football to its will. It's focused on competing for titles every single year.`\
+https://nytimes.com/athletic/6561517/2025/08/20/notre-dame-football-recruiting-national-championships/
 
-**Why the Bundesliga has turned to Mark Goldbridge and YouTube to grow its audience**\
-`The aim is straightforward: to get as many people engaging with German football as possible. The reason behind it is unique`\
-https://nytimes.com/athletic/6562703/2025/08/20/bundesliga-mark-goldbridge-youtube/
+**Phillies' Cristopher Sánchez meets the moment amid Zack Wheeler's IL stint**\
+`Sánchez left the game after 96 pitches, staring at the standing sea of blue and red applauding him, and lifted his cap.`\
+https://nytimes.com/athletic/6564073/2025/08/20/phillies-win-mariners-cristopher-sanchez-strikes-out-12/
 
-**A Sacred Recipe for Virility or a Dangerous Drug?**\
-`Unregulated sexual stimulants are flooding West Africa, posing major health risks that officials are scrambling to address.`\
-https://nytimes.com/2025/08/20/world/africa/fake-viagra-smuggling.html
+**NHL front-office confidence rankings: How fans feel about every team in 2025**\
+`The 10th annual version of this project saw over 13,000 responses from readers, weighing in on top brass around the league.`\
+https://nytimes.com/athletic/6562358/2025/08/20/nhl-front-office-confidence-rankings-2025/
 
