@@ -1,3 +1,7 @@
+**Vikings trade veteran DT Harrison Phillips to Jets: Sources**\
+`Minnesota agreed to take on $3.7 million of Phillips’s salary as part of the compensation.`\
+https://nytimes.com/athletic/6566032/2025/08/20/vikings-jets-harrison-phillips-trade-pick-nfl-2025/
+
 **Rubio Takes on Tricky Task of Drafting Security Guarantees for Ukraine**\
 `The secretary of state and national security adviser will meet with European counterparts on Thursday in an effort to advance a peace process that so far has gotten little traction.`\
 https://nytimes.com/2025/08/20/us/politics/marco-rubio-ukraine.html

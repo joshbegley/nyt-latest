@@ -1,3 +1,7 @@
+**Vikings trade veteran DT Harrison Phillips to Jets: Sources**\
+`Minnesota agreed to take on $3.7 million of Phillips’s salary as part of the compensation.`\
+https://nytimes.com/athletic/6566032/2025/08/20/vikings-jets-harrison-phillips-trade-pick-nfl-2025/
+
 **Rubio Takes on Tricky Task of Drafting Security Guarantees for Ukraine**\
 `The secretary of state and national security adviser will meet with European counterparts on Thursday in an effort to advance a peace process that so far has gotten little traction.`\
 https://nytimes.com/2025/08/20/us/politics/marco-rubio-ukraine.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6565655/2025/08/20/bills-roster-cole-bishop-wide-re
 **Federal workers’ health plan will stop covering transition surgery and hormone treatment.**\
 `The change is in line with other Trump administration policies that seek to reverse transgender rights.`\
 https://nytimes.com/live/2025/08/20/us/trump-news/federal-workers-transgender-treatment-trump
-
-**Myles Garrett wants to keep the focus on the Browns amid speeding ticket questions**\
-`“I’d honestly rather talk about football and this team than anything I’m doing off (the) field," Garrett said when asked about the ticket. `\
-https://nytimes.com/athletic/6565898/2025/08/20/myles-garrett-speeding-ticket-browns/
 
