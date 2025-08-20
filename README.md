@@ -1,3 +1,15 @@
+**American Businesses in ‘Survival Mode’ as Trump Tariffs Pile Up**\
+`A 90-day pause on additional tariffs on China offers no relief to American companies already facing extraordinarily high import taxes imposed by President Trump.`\
+https://nytimes.com/2025/08/20/business/trump-china-tariffs-american-importers.html
+
+**Why has the sale of the WNBA's Connecticut Sun become so complicated?**\
+`Sources say the league is trying to leave options open to get a team in Houston or later gain a larger expansion fee for a team in Boston.`\
+https://nytimes.com/athletic/6564020/2025/08/20/wnba-sale-connecticut-sun/
+
+**Brentford reject bid worth up to £40m from Newcastle for Wissa**\
+`The DR Congo international wants the move to St James’s Park.`\
+https://nytimes.com/athletic/6508978/2025/08/20/yoane-wissa-brentford-newcastle-transfer-update/
+
 **Ask a Journalist: How Generative A.I. Is Reshaping Our Lives**\
 `Kashmir Hill joins us for the month of September to chat about artificial intelligence and our relationship to it. Post your comments and questions for her by Sept. 15.`\
 https://nytimes.com/2025/08/20/learning/lesson-plans/ask-a-journalist-how-generative-ai-is-reshaping-our-lives.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/08/20/us/politics/security-clearances-scientist-fired.h
 **Lowetide: Between McDavid and Draisaitl, which Oilers superstar will age better?**\
 `Oilers fans have been lucky enough to watch McDavid and Draisaitl for the past 10 years. What might be coming in the future?`\
 https://nytimes.com/athletic/6563612/2025/08/20/oilers-mcdavid-draisaitl-aging-curve/
-
-**Trump Demands a Fed Governor Resign, Escalating Campaign to Remake Central Bank**\
-`The administration accused Lisa Cook of mortgage fraud and said it would refer the matter for criminal investigation.`\
-https://nytimes.com/2025/08/20/us/politics/trump-fed-resign-lisa-cook-governor.html
-
-**Eze and Guehi to start for Palace in Conference League, says Glasner**\
-`Palace face Norwegian side Fredrikstad on Thursday in what is their first European fixture in 27 years.`\
-https://nytimes.com/athletic/6564611/2025/08/20/eze-guehi-transfer-palace-glasner/
-
-**Uranus Was Hiding a Moon Outside Its Rings**\
-`The 29th moon found to be orbiting the solar system’s 7th planet is about six miles wide.`\
-https://nytimes.com/2025/08/20/science/uranus-new-moon.html
 
