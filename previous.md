@@ -1,3 +1,11 @@
+**Bills 'Hard Knocks' takeaways: Sean McDermott tries to rally sluggish team**\
+`Plus, James Cook ends his hold-in and a look at Ed Oliver's horses.`\
+https://nytimes.com/athletic/6564207/2025/08/20/bills-hard-knocks-takeaways-sean-mcdermott-tries-to-rally-sluggish-team/
+
+**Man City, Lewis reach agreement in principle over new contract**\
+`The England international is set to renew terms on a deal until 2030 with the Premier League club.`\
+https://nytimes.com/athletic/6556096/2025/08/20/manchester-city-rico-lewis-contract-nottingham-forest/
+
 **Trump Administration Live Updates: Visa Clampdown Prompts Worries at U.S. Colleges**\
 ``\
 https://nytimes.com/live/2025/08/20/us/trump-news
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6563084/2025/08/20/scott-wheeler-2026-nhl-draft-mai
 **Carrie Coon Is Scratching an Itch, Starring in ‘Bug’ on Broadway**\
 `The play was written by Tracy Letts, who is married to Coon. It’s about a down-and-out duo for whom motel room insects prompt paranoia.`\
 https://nytimes.com/2025/08/20/theater/bug-broadway-carrie-coon.html
-
-**How to make CFP predictions using the preseason AP Top 25**\
-`Not only is picking a chalky bracket boring, it’s just about as likely to be incorrect.`\
-https://nytimes.com/athletic/6562192/2025/08/20/college-football-playoff-predictions-ap-top-25/
-
-**Is the A.I. Sell-off the Start of Something Bigger?**\
-`A sharp drop in technology stocks, and even comments by OpenAI’s Sam Altman, suggest investors are getting too exuberant about artificial intelligence.`\
-https://nytimes.com/2025/08/20/business/dealbook/ai-dip-blip-palantir-nvidia.html
 

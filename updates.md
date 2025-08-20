@@ -1,3 +1,11 @@
+**Bills 'Hard Knocks' takeaways: Sean McDermott tries to rally sluggish team**\
+`Plus, James Cook ends his hold-in and a look at Ed Oliver's horses.`\
+https://nytimes.com/athletic/6564207/2025/08/20/bills-hard-knocks-takeaways-sean-mcdermott-tries-to-rally-sluggish-team/
+
+**Man City, Lewis reach agreement in principle over new contract**\
+`The England international is set to renew terms on a deal until 2030 with the Premier League club.`\
+https://nytimes.com/athletic/6556096/2025/08/20/manchester-city-rico-lewis-contract-nottingham-forest/
+
 **Trump Administration Live Updates: Visa Clampdown Prompts Worries at U.S. Colleges**\
 ``\
 https://nytimes.com/live/2025/08/20/us/trump-news
