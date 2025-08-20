@@ -1,3 +1,7 @@
+**Jihaad Campbell's rapid rise in 'Block Destruction University' signals he'll start Week 1**\
+`Jihaad Campbell's flexibility at the linebacker position is a huge asset.`\
+https://nytimes.com/athletic/6563460/2025/08/20/eagles-jihaad-campbell-block-destruction-university/
+
 **Rebuilding Pac-12 set to add college baseball powerhouse Dallas Baptist: Source**\
 `Dallas Baptist to join conference in baseball only, beginning play as a member in 2027. `\
 https://nytimes.com/athletic/6566053/2025/08/20/pac-12-to-add-college-baseball-powerhouse-dallas-baptist/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/20/us/politics/trump-payments-colleges-law-firms.htm
 **Bruce Slovin, Who Unified Jewish Archives in New York, Dies at 89**\
 `A corporate executive who specialized in mergers, he brought together five Jewish institutions and their collections at the Center for Jewish History in Manhattan.`\
 https://nytimes.com/2025/08/20/nyregion/bruce-slovin-dead.html
-
-**Ousted Fire Chief in L.A. Demands Formal Apology in Legal Filing**\
-`The former chief, Kristin Crowley, claimed that Los Angeles leaders retaliated against her for publicly blaming them for refusing to properly fund the Fire Department.`\
-https://nytimes.com/2025/08/20/us/los-angeles-fire-chief-mayor-bass.html
 

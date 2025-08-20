@@ -1,3 +1,7 @@
+**Jihaad Campbell's rapid rise in 'Block Destruction University' signals he'll start Week 1**\
+`Jihaad Campbell's flexibility at the linebacker position is a huge asset.`\
+https://nytimes.com/athletic/6563460/2025/08/20/eagles-jihaad-campbell-block-destruction-university/
+
 **Rebuilding Pac-12 set to add college baseball powerhouse Dallas Baptist: Source**\
 `Dallas Baptist to join conference in baseball only, beginning play as a member in 2027. `\
 https://nytimes.com/athletic/6566053/2025/08/20/pac-12-to-add-college-baseball-powerhouse-dallas-baptist/
