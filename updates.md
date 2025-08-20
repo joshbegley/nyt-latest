@@ -1,3 +1,15 @@
+**Broncos mailbag: Submit your questions to beat writer Nick Kosmider**\
+`What's on your mind as Denver nears its highly anticipated 2025 season?`\
+https://nytimes.com/athletic/6564644/2025/08/20/broncos-mailbag-request-preseason/
+
+**N.S.A.’s Acting Director Tried to Save Top Scientist From Purge**\
+`Vinh Nguyen, an expert in artificial intelligence and advanced mathematics, was among the current and former officials whose security clearances were revoked by the president.`\
+https://nytimes.com/2025/08/20/us/politics/security-clearances-scientist-fired.html
+
+**Lowetide: Between McDavid and Draisaitl, which Oilers superstar will age better?**\
+`Oilers fans have been lucky enough to watch McDavid and Draisaitl for the past 10 years. What might be coming in the future?`\
+https://nytimes.com/athletic/6563612/2025/08/20/oilers-mcdavid-draisaitl-aging-curve/
+
 **Trump Demands a Fed Governor Resign, Escalating Campaign to Remake Central Bank**\
 `The administration accused Lisa Cook of mortgage fraud and said it would refer the matter for criminal investigation.`\
 https://nytimes.com/2025/08/20/us/politics/trump-fed-resign-lisa-cook-governor.html
