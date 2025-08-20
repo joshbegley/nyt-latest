@@ -1,3 +1,11 @@
+**Even a Glancing Blow From Hurricane Erin May Cost the Outer Banks a Crucial Lifeline**\
+`Highway 12 is beloved for its scenic views. But it’s also prone to flooding.`\
+https://nytimes.com/2025/08/20/weather/highway-12-ocracoke-hatteras-north-carolina-hurricane-erin.html
+
+**More Adams Associates and Supporters Are Said to Face Corruption Charges**\
+`Among those expected to surrender in the coming days are a close friend of Mayor Eric Adams whom the mayor installed in a powerful city position.`\
+https://nytimes.com/2025/08/20/nyregion/adams-corruption-nyc-lewis-martin-charges.html
+
 **Manhattan Judge Denies Request to Unseal Epstein Grand Jury Transcripts**\
 `The judge said that the papers contained testimony from a single F.B.I. agent and that far more information about the case was held in Justice Department files.`\
 https://nytimes.com/2025/08/20/nyregion/epstein-grand-jury-transcripts-denied.html
