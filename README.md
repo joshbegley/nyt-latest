@@ -1,4 +1,12 @@
-**Bears signing QB Tyson Bagent to 2-year, $10 million extension: Source**\
+**Ilona Maher to start Team USA's Rugby World Cup opener vs. England**\
+`The 29-year-old is set to make her first World Cup appearance after making the switch to the 15-a-side format.`\
+https://nytimes.com/athletic/6564569/2025/08/20/ilona-maher-rugby-world-cup-usa-england/
+
+**Brian Rolapp announces Future Competition Committee chaired by Tiger Woods**\
+`The committee plans to find the “optimal competitive model” for professional golf after several years of change and turmoil.`\
+https://nytimes.com/athletic/6565061/2025/08/20/brian-rolapp-pga-tour-competition-committee-tiger-woods/
+
+**Bears signing QB Tyson Bagent to 2-year, $10 million extension**\
 `Bagent solidifies his role as the primary backup to Caleb Williams and keeps him with Chicago through the 2027 season.`\
 https://nytimes.com/athletic/6565233/2025/08/20/bears-qb-tyson-bagent-contract-extension/
 
@@ -29,12 +37,4 @@ https://nytimes.com/2025/08/20/us/politics/ten-commandments-texas.html
 **NFL teams monitoring wide receiver trade market: Why Vikings, Jets, 49ers need help**\
 `As teams start looking to finalize their initial 53-man rosters, trade talks could be underway soon for wide receiver-needy squads.`\
 https://nytimes.com/athletic/6565104/2025/08/20/nfl-wide-receivers-trades-vikings-jets-49ers/
-
-**Isak, Newcastle and Liverpool: What happens next?**\
-`Breaking down the player's and clubs' options as transfer saga turns increasingly bitter`\
-https://nytimes.com/athletic/6564527/2025/08/20/alexander-isak-newcastle-and-liverpool-what-happens-next/
-
-**Scoop City: Anatomy of a QB failure and WR promise**\
-`Thoughts on the Colts quarterback situation and the rookie receiver who might be this year's Justin Jefferson.`\
-https://nytimes.com/athletic/6565116/2025/08/20/colts-qb-situation-nfl-emeka-egbuka-fantasy-scoop-city/
 
