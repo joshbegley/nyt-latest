@@ -1,3 +1,27 @@
+**Gazans React to Israel’s Preparations to Take Over Gaza City**\
+`Palestinians expressed frustration on Wednesday over Israel’s announcement to call up tens of thousands of reservists for an operation to take control of Gaza City.`\
+https://nytimes.com/video/world/middleeast/100000010351595/israel-gaza-city-attack.html
+
+**Camp Mystic Parents Demand Changes Before More Children Are Lost**\
+`A Texas Legislative Committee heard for the first time from the parents who demanded better flood warning systems, better training and equipment for camps near the river.`\
+https://nytimes.com/2025/08/20/us/politics/camp-mystic-parents.html
+
+**Obama Endorses Newsom’s Redistricting Proposal as a ‘Responsible Approach’**\
+`The former president suggested that Democrats opposing G.O.P. efforts in Texas and elsewhere should advance their own gerrymandering plans.`\
+https://nytimes.com/2025/08/20/us/politics/california-redistricting-newsom-obama.html
+
+**New Origami Design Could Help With Space Engineering**\
+`Researchers discovered a new type of origami called bloom patterns, which are repeating tiles of creased patterns that rotate symmetrically around a center. Engineers are working on real-life applications, like a collapsable space telescope for NASA.`\
+https://nytimes.com/video/science/100000010351446/new-origami-design-could-help-with-space-engineering.html
+
+**Hurricane Erin Brings Rip Current Risks From Florida to Maine**\
+`The storm, off North Carolina, was generating life-threatening surf and rip currents and causing beach closures along the East Coast.`\
+https://nytimes.com/2025/08/20/weather/hurricane-erin-rip-currents-beach-closures.html
+
+**Chelsea owners BlueCo reach agreement to sign Enciso from Brighton**\
+`The Paraguay international is expected to initially spend time at Strasbourg but is viewed as a long-term Chelsea player.`\
+https://nytimes.com/athletic/6565713/2025/08/20/chelsea-julio-enciso-brighton-blueco/
+
 **Small, Luxurious Ships That Cater to Never-Cruisers**\
 `Five options for travelers who want to go by boat but prefer well-appointed yachts to floating cities.`\
 https://nytimes.com/2025/08/20/t-magazine/small-cruise-ships.html
@@ -13,24 +37,4 @@ https://nytimes.com/2025/08/20/arts/music/morgan-wallen-grammys.html
 **Their Window Seats Lacked Windows, So Delta and United Passengers Sued**\
 `Two suits filed this week accuse the airlines of unfairly charging passengers extra fees for window seats that the carriers knew were adjacent to aircraft walls.`\
 https://nytimes.com/2025/08/20/travel/delta-united-airlines-window-seat-lawsuits.html
-
-**The 49ers need wide receiver help. Here are 31 options, from most likely to least**\
-`A familiar face leads the group of receivers who could interest the 49ers after the roster cutdown deadline next week.`\
-https://nytimes.com/athletic/6565196/2025/08/20/49ers-wide-receiver-waivers-cuts/
-
-**Chelsea confirm James out for 'period of time' after injury from 2025 Euros**\
-`The 23-year-old was seen with ice around her right ankle during the second half of the 2025 Euros semi-final.`\
-https://nytimes.com/athletic/6565604/2025/08/20/chelsea-lauren-james-injury-2025-euros/
-
-**John Cruickshank, Last World War II Victoria Cross Winner, Dies at 105**\
-`He made a daring raid on a U-boat, suffered 72 wounds and helped land his damaged seaplane.`\
-https://nytimes.com/2025/08/20/world/europe/john-cruickshank-dead.html
-
-**Deportation of 6-Year-Old Puts Spotlight on ICE’s Detention of Families**\
-`Immigration authorities have detained about 50 children younger than 18 in the New York City area since January. At least 38 of them have been deported.`\
-https://nytimes.com/2025/08/20/nyregion/ice-6-year-old-nyc.html
-
-**Arsenal reach agreement in principle to sign Eze from Palace**\
-`The deal is worth in the region of the expired £68m release clause, matching the level of fee Tottenham Hotspur were prepared to pay.`\
-https://nytimes.com/athletic/6565048/2025/08/20/eberechi-eze-arsenal-transfer-agreement/
 
