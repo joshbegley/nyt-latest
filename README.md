@@ -1,3 +1,11 @@
+**Gabbard Plan Would Shrink Intelligence Center Focused on Election Threats**\
+`Two other centers focusing on cybersecurity and chemical, biological and nuclear threats would also be reduced, and the National Intelligence University would be eliminated.`\
+https://nytimes.com/2025/08/20/us/politics/gabbard-odni-reorganization.html
+
+**WR Demarcus Robinson suspended 3 games after no-contest plea to DUI**\
+`The 49ers will be without Robinson and likely Brandon Aiyuk for the first three games of the regular season.`\
+https://nytimes.com/athletic/6484906/2025/08/20/demarcus-robinson-suspended-49ers/
+
 **With Bills roster decisions looming, Cole Bishop gets wake-up call, WR room draws focus**\
 `Plus, there's a possibility Josh Allen doesn't play in the preseason for the first time in his career.`\
 https://nytimes.com/athletic/6565655/2025/08/20/bills-roster-cole-bishop-wide-receivers/
@@ -29,12 +37,4 @@ https://nytimes.com/video/weather/100000010352200/hurricane-erin-waves-rip-curre
 **Join The Athletic fantasy football Discord server**\
 `Seeking some sage fantasy football advice? Come join our season-long chat in The Athletic's fantasy football Discord server.`\
 https://nytimes.com/athletic/6562700/2025/08/20/fantasy-football-discord-jake-ciely-brandon-funston/
-
-**Alyssa Naeher's first NWSL goal as told by her Stars teammates: 'I just felt pure joy'**\
-`In her record 200th NWSL appearance, the former U.S. goalkeeper scored her first league goal to complete a three-goal comeback for Chicago.`\
-https://nytimes.com/athletic/6565707/2025/08/20/alyssa-naeher-nwsl-uswnt-goal-chicago-stars/
-
-**Blue Jays takeaways: Vladimir Guerrero Jr. health update, new rotation plans, more**\
-`Three key takeaways after Toronto drops a series in Pittsburgh.`\
-https://nytimes.com/athletic/6565589/2025/08/20/blue-jays-takeaways-rotation-addison-barger-vladimir-guerrero-jr/
 
