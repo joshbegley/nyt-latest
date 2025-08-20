@@ -1,3 +1,7 @@
+**‘We Can’t Take It Anymore’: Gazans Fear Looming Israeli Operation**\
+`Israel’s plan to invade Gaza City, the most populous city in the northern Gaza Strip, has forced many families to consider uprooting themselves.`\
+https://nytimes.com/2025/08/20/world/middleeast/gaza-city-israeli-operation.html
+
 **Why Claiming Two Primary Residences Is a Problem, Even if Prosecutions Are Rare**\
 `Lenders will often charge a higher interest rate for a second home or a property you intend to use as a rental since the risks there are higher.`\
 https://nytimes.com/2025/08/20/business/mortgage-primary-residence.html
