@@ -1,3 +1,7 @@
+**Manhattan Judge Denies Request to Unseal Epstein Grand Jury Transcripts**\
+`The judge said that the papers contained testimony from a single F.B.I. agent and that far more information about the case was held in Justice Department files.`\
+https://nytimes.com/2025/08/20/nyregion/epstein-grand-jury-transcripts-denied.html
+
 **Forget Bear Hugs, These Bats Greet Each Other by Embracing**\
 `Rare footage of spectral bats, known also as great false vampire bats, revealed animals with a cuddly, social side.`\
 https://nytimes.com/2025/08/20/science/spectral-bats-hugs.html
@@ -14,7 +18,7 @@ https://nytimes.com/2025/08/20/opinion/coping-vision-loss.html
 `European and Ukrainian officials call the idea ludicrous, showing the large gaps in peace negotiations.`\
 https://nytimes.com/2025/08/20/world/europe/ukraine-russia-security-guarantees.html
 
-**Senate Adds Guardrails in an Effort to Force Trump to Obey Spending Bills**\
+**Senate Adds Guardrails to Force Trump to Obey Spending Bills**\
 `Leaders of the Appropriations Committee are trying to tighten up funding legislation to give the Trump administration less leeway to refuse to spend federal money.`\
 https://nytimes.com/2025/08/20/us/politics/senate-spending-guardrails-trump.html
 
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/20/world/asia/xi-tibet-dalai-lama.html
 **Warren Brodey, 101, Dies; a Visionary at the Dawn of the Information Age**\
 `His work on complex systems and responsive technologies helped lay the groundwork for later work on artificial intelligence.`\
 https://nytimes.com/2025/08/20/technology/warren-brodey-dead.html
-
-**Ilona Maher to start Team USA's Rugby World Cup opener vs. England**\
-`The 29-year-old is set to make her first World Cup appearance after making the switch to the 15-a-side format.`\
-https://nytimes.com/athletic/6564569/2025/08/20/ilona-maher-rugby-world-cup-usa-england/
 

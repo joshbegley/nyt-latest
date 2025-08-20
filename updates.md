@@ -1,3 +1,11 @@
+**Manhattan Judge Denies Request to Unseal Epstein Grand Jury Transcripts**\
+`The judge said that the papers contained testimony from a single F.B.I. agent and that far more information about the case was held in Justice Department files.`\
+https://nytimes.com/2025/08/20/nyregion/epstein-grand-jury-transcripts-denied.html
+
+**Senate Adds Guardrails to Force Trump to Obey Spending Bills**\
+`Leaders of the Appropriations Committee are trying to tighten up funding legislation to give the Trump administration less leeway to refuse to spend federal money.`\
+https://nytimes.com/2025/08/20/us/politics/senate-spending-guardrails-trump.html
+
 **Forget Bear Hugs, These Bats Greet Each Other by Embracing**\
 `Rare footage of spectral bats, known also as great false vampire bats, revealed animals with a cuddly, social side.`\
 https://nytimes.com/2025/08/20/science/spectral-bats-hugs.html

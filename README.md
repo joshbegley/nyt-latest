@@ -1,3 +1,7 @@
+**Even a Glancing Blow From Hurricane Erin May Cost the Outer Banks a Crucial Lifeline**\
+`Highway 12 is beloved for its scenic views. But it’s also prone to flooding.`\
+https://nytimes.com/2025/08/20/weather/highway-12-ocracoke-hatteras-north-carolina-hurricane-erin.html
+
 **Manhattan Judge Denies Request to Unseal Epstein Grand Jury Transcripts**\
 `The judge said that the papers contained testimony from a single F.B.I. agent and that far more information about the case was held in Justice Department files.`\
 https://nytimes.com/2025/08/20/nyregion/epstein-grand-jury-transcripts-denied.html
@@ -27,14 +31,10 @@ https://nytimes.com/2025/08/20/us/politics/senate-spending-guardrails-trump.html
 https://nytimes.com/athletic/6564607/2025/08/20/espn-streaming-service-app-launch/
 
 **More Adams Associates and Supporters Are Said to Face Corruption Charges**\
-`Among those expected to surrender in the coming days are Mayor Eric Adams’s closest adviser and a friend whom the mayor installed in a powerful city position.`\
+`Among those expected to surrender in the coming days are a close friend of Mayor Eric Adams whom the mayor installed in a powerful city position.`\
 https://nytimes.com/2025/08/20/nyregion/adams-corruption-nyc-lewis-martin-charges.html
 
 **With the Dalai Lama’s Succession Looming, Xi Jinping Visits Tibet**\
 `A power struggle is taking shape over choosing a successor to the 90-year-old Buddhist leader. In a trip to Tibet’s capital, China’s leader emphasized maintaining Beijing’s control.`\
 https://nytimes.com/2025/08/20/world/asia/xi-tibet-dalai-lama.html
-
-**Warren Brodey, 101, Dies; a Visionary at the Dawn of the Information Age**\
-`His work on complex systems and responsive technologies helped lay the groundwork for later work on artificial intelligence.`\
-https://nytimes.com/2025/08/20/technology/warren-brodey-dead.html
 
