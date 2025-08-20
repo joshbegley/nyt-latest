@@ -1,3 +1,7 @@
+**Former Heat employee pleads guilty to selling stolen jerseys, memorabilia**\
+`Marcos Thomas Perez stole more than 400 jerseys and other memorabilia from a secured equipment room and sold them online.`\
+https://nytimes.com/athletic/6564585/2025/08/20/heat-stolen-jerseys-memorabilia/
+
 **Moms Need to Give MAHA a Taste of Its Own Medicine**\
 `Peer-to-peer persuasion is a necessary tool right now.`\
 https://nytimes.com/2025/08/20/opinion/organize-fight-maha-moms.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6556096/2025/08/20/manchester-city-rico-lewis-contr
 **Trump Administration Live Updates: Visa Clampdown Prompts Worries at U.S. Colleges**\
 ``\
 https://nytimes.com/live/2025/08/20/us/trump-news
-
-**Raiders rookie report: Searching for immediate help beyond Ashton Jeanty**\
-`A look at how the Raiders' large rookie class has fared this summer — and the first-year players' roles for the upcoming season.`\
-https://nytimes.com/athletic/6562741/2025/08/20/raiders-rookie-report-ashton-jeanty-jack-bech/
 
