@@ -1,3 +1,15 @@
+**American Businesses in ‘Survival Mode’ as Trump Tariffs Pile Up**\
+`A 90-day pause on additional tariffs on China offers no relief to American companies already facing extraordinarily high import taxes imposed by President Trump.`\
+https://nytimes.com/2025/08/20/business/trump-china-tariffs-american-importers.html
+
+**Why has the sale of the WNBA's Connecticut Sun become so complicated?**\
+`Sources say the league is trying to leave options open to get a team in Houston or later gain a larger expansion fee for a team in Boston.`\
+https://nytimes.com/athletic/6564020/2025/08/20/wnba-sale-connecticut-sun/
+
+**Brentford reject bid worth up to £40m from Newcastle for Wissa**\
+`The DR Congo international wants the move to St James’s Park.`\
+https://nytimes.com/athletic/6508978/2025/08/20/yoane-wissa-brentford-newcastle-transfer-update/
+
 **Ask a Journalist: How Generative A.I. Is Reshaping Our Lives**\
 `Kashmir Hill joins us for the month of September to chat about artificial intelligence and our relationship to it. Post your comments and questions for her by Sept. 15.`\
 https://nytimes.com/2025/08/20/learning/lesson-plans/ask-a-journalist-how-generative-ai-is-reshaping-our-lives.html
