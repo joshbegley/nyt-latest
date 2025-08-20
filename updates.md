@@ -1,3 +1,7 @@
+**Hint of Mini Labubu Launch Sends Pop Mart Stock Soaring 12%**\
+`The grinning plush elves drove record revenue for the Chinese retailer in the first half of the year, and soon fans will have something new to lust after.`\
+https://nytimes.com/2025/08/20/business/mini-labubu-pop-mart-earnings-stock.html
+
 **U.S. Open mixed doubles: Sara Errani and Andrea Vavassori take singles stars to school**\
 `The new event wanted to use singles stars to put mixed doubles on a pedestal. Two masters of the discipline have stolen the show.`\
 https://nytimes.com/athletic/6563804/2025/08/20/tennis-us-open-mixed-doubles-results-format/
