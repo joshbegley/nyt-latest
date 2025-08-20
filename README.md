@@ -1,3 +1,7 @@
+**Lowetide: Between McDavid and Draisaitl, which Oilers superstar will age better?**\
+`Oilers fans have been lucky enough to watch McDavid and Draisaitl for the past 10 years. What might be coming in the future?`\
+https://nytimes.com/athletic/6563612/2025/08/20/oilers-mcdavid-draisaitl-aging-curve/
+
 **Trump Demands a Fed Governor Resign, Escalating Campaign to Remake Central Bank**\
 `The administration accused Lisa Cook of mortgage fraud and said it would refer the matter for criminal investigation.`\
 https://nytimes.com/2025/08/20/us/politics/trump-fed-resign-lisa-cook-governor.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/20/opinion/organize-fight-maha-moms.html
 **My Partner and I Aren’t Excited to Move In Together. Is That Bad?**\
 `A reader and his girlfriend who are happy living apart worry that their reluctance to shack up could spell trouble for their relationship.`\
 https://nytimes.com/2025/08/20/style/moving-in-with-a-partner-cohabitation-anxiety.html
-
-**How Tariffs Will Affect This Unique Cheese**\
-`Stilton is a special type of blue cheese that can be made in only three English counties.`\
-https://nytimes.com/video/business/small-business/100000010283073/blue-cheese-stilton-tariffs-america.html
 
