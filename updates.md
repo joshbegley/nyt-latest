@@ -1,3 +1,11 @@
+**Trump Says Smithsonian Focuses Too Much on ‘How Bad Slavery Was’**\
+`The remark, made as the president has ordered a wide-ranging review of museum exhibits, added to his pattern of minimizing Black history.`\
+https://nytimes.com/2025/08/19/us/politics/trump-smithsonian-slavery.html
+
+**Mekhi Becton returns to Chargers practice — will he be ready for Week 1?**\
+`Becton still has not participated in team drills since July 28, but Greg Roman said "I think he’ll be good to go" for the season opener.`\
+https://nytimes.com/athletic/6563910/2025/08/19/chargers-mekhi-becton-return-week-1/
+
 **Mekhi Becton returns to Chargers practice — will he be ready for Week 1?**\
 `Becton still has not participated in team drills since July 28 but Greg Roman said "I think he’ll be good to go" for the season opener.`\
 https://nytimes.com/athletic/6563910/2025/08/19/chargers-mekhi-becton-return-week-1/
