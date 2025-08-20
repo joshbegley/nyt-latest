@@ -1,3 +1,15 @@
+**Ilona Maher to start Team USA's Rugby World Cup opener vs. England**\
+`The 29-year-old is set to make her first World Cup appearance after making the switch to the 15-a-side format.`\
+https://nytimes.com/athletic/6564569/2025/08/20/ilona-maher-rugby-world-cup-usa-england/
+
+**Brian Rolapp announces Future Competition Committee chaired by Tiger Woods**\
+`The committee plans to find the “optimal competitive model” for professional golf after several years of change and turmoil.`\
+https://nytimes.com/athletic/6565061/2025/08/20/brian-rolapp-pga-tour-competition-committee-tiger-woods/
+
+**Bears signing QB Tyson Bagent to 2-year, $10 million extension**\
+`Bagent solidifies his role as the primary backup to Caleb Williams and keeps him with Chicago through the 2027 season.`\
+https://nytimes.com/athletic/6565233/2025/08/20/bears-qb-tyson-bagent-contract-extension/
+
 **What Do You Want to Read About Disability?**\
 `Input from readers will help shape our coverage.`\
 https://nytimes.com/2025/08/20/us/disability-stories-callout.html
