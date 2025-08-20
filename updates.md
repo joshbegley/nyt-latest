@@ -1,3 +1,7 @@
+**What we're hearing about Kyle Tucker's reset as the Cubs work with a frustrated star**\
+`The situation has turned ugly, with Tucker getting booed at Wrigley Field for not producing and not running to first base.`\
+https://nytimes.com/athletic/6563935/2025/08/19/chicago-cubs-kyle-tucker-reset/
+
 **Trump Says Smithsonian Focuses Too Much on ‘How Bad Slavery Was’**\
 `The remark, made as the president has ordered a wide-ranging review of museum exhibits, added to his pattern of minimizing Black history.`\
 https://nytimes.com/2025/08/19/us/politics/trump-smithsonian-slavery.html
