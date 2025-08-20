@@ -1,3 +1,11 @@
+**Two of the NFL’s worst quarterback situations are resolved... yay**\
+`The Colts and Browns named their starting quarterbacks for Week 1 and beyond. And we're all thrilled....`\
+https://nytimes.com/athletic/6564581/2025/08/20/two-of-the-nfls-worst-quarterback-situations-are-resolved-yay/
+
+**No Food, No Water, a Broken Leg: How a Hiker Survived a Harrowing Week in the Wild**\
+`Alec Luhn, 38, an American journalist, hopes the lessons he learned from his ordeal in a national park in Norway can help others.`\
+https://nytimes.com/2025/08/20/world/europe/alec-luhn-missing-hiker-norway-found-interview.html
+
 **Former Heat employee pleads guilty to selling stolen jerseys, memorabilia**\
 `Marcos Thomas Perez stole more than 400 jerseys and other memorabilia from a secured equipment room and sold them online.`\
 https://nytimes.com/athletic/6564585/2025/08/20/heat-stolen-jerseys-memorabilia/
