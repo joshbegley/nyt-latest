@@ -1,3 +1,7 @@
+**East Coast Braces for Rip Currents From Hurricane Erin**\
+`States from Florida to Maine are bracing for potentially life-threatening surf and rip currents as Hurricane Erin brushes past the East Coast.`\
+https://nytimes.com/video/weather/100000010352200/hurricane-erin-waves-rip-currents.html
+
 **Join The Athletic fantasy football Discord server**\
 `Seeking some sage fantasy football advice? Come join our season-long chat in The Athletic's fantasy football Discord server.`\
 https://nytimes.com/athletic/6562700/2025/08/20/fantasy-football-discord-jake-ciely-brandon-funston/
