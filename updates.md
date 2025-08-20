@@ -1,3 +1,15 @@
+**Ratcliffe's INEOS counter-suing Tottenham relating to Kane's Bayern move**\
+`The dispute centres on an agreement between INEOS and Tottenham that was signed in 2022. `\
+https://nytimes.com/athletic/6565428/2025/08/20/ineos-automotive-countersuing-tottenham-harry-kane-bayern-move/
+
+**Two Big Law Firms Said to Be Doing Free Work for Trump Administration**\
+`After making deals with the president to avoid punitive executive orders, Paul Weiss and Kirkland & Ellis are helping the Commerce Department.`\
+https://nytimes.com/2025/08/20/us/politics/law-firms-free-work-trump-administration.html
+
+**Colorado Avalanche sign winger Victor Olofsson to 1-year contract**\
+`Olofsson scored 15 goals in 56 games for Vegas last season, including six on the power play.`\
+https://nytimes.com/athletic/6565436/2025/08/20/colorado-avalanche-victor-olofsson-contract/
+
 **‘We Can’t Take It Anymore’: Gazans Fear Looming Israeli Operation**\
 `Israel’s plan to invade Gaza City, the most populous city in the northern Gaza Strip, has forced many families to consider uprooting themselves.`\
 https://nytimes.com/2025/08/20/world/middleeast/gaza-city-israeli-operation.html
