@@ -1,3 +1,7 @@
+**If You Have Time for Just One Romance Novel, Make It This One**\
+`Our critic says Regina Black’s “August Lane” is the best book she’s read this year.`\
+https://nytimes.com/2025/08/20/books/review/new-romance-books.html
+
 **TAFC: The Chiesa chant and the fallout. Plus: Rangers chaos and panic rankings**\
 `Explaining the context of Liverpool fans' song and why it matters`\
 https://nytimes.com/athletic/6564225/2025/08/20/chiesa-chant-liverpool-rangers-tafc/
