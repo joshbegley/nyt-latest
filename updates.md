@@ -1,3 +1,11 @@
+**Small, Luxurious Ships That Cater to Never-Cruisers**\
+`Five options for travelers who want to go by boat but prefer well-appointed yachts to floating cities.`\
+https://nytimes.com/2025/08/20/t-magazine/small-cruise-ships.html
+
+**Yankees mark 'Hamilton' anniversary with co-branded hat giveaway**\
+`Appearances from "Hamilton" stars past and present will mark the Yankee/Hamilton hat giveaway.`\
+https://nytimes.com/athletic/6549148/2025/08/20/new-york-yankees-hamilton-hat-broadway/
+
 **Morgan Wallen Will Not Submit Latest Album for Grammys Consideration**\
 `The country singer became the latest major artist to abandon the awards, declining to enter his chart-topping fourth album, “I’m the Problem,” for the 2026 ceremony.`\
 https://nytimes.com/2025/08/20/arts/music/morgan-wallen-grammys.html
