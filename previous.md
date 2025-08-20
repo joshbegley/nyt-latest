@@ -1,3 +1,35 @@
+**Raiders rookie report: Searching for immediate help beyond Ashton Jeanty**\
+`A look at how the Raiders' large rookie class has fared this summer — and the first-year players' roles for the upcoming season.`\
+https://nytimes.com/athletic/6562741/2025/08/20/raiders-rookie-report-ashton-jeanty-jack-bech/
+
+**Could a healthy Uchenna Nwosu put the Seahawks' defense over the top?**\
+`Hampered by injuries since his breakout 2022 season, Nwosu could be back for Week 1. "He's a heck of a player," coach Mike Macdonald said.`\
+https://nytimes.com/athletic/6563786/2025/08/20/seahawks-defense-preseason-uchenna-nwosu/
+
+**Packers position battles: Isaiah Simmons, Mecole Hardman among those in tight competitions**\
+`There's still uncertainty surrounding position battles at quarterback, linebacker, cornerback and several other spots.`\
+https://nytimes.com/athletic/6563427/2025/08/20/packers-position-battles-clifford-elgersma-hardman/
+
+**Return of Dre Greenlaw, Nik Bonitto brings Broncos' defense into clearer focus**\
+`"You can always feel him when he's out there," Bonitto said of Greenlaw, who has missed much of camp with a quad injury.`\
+https://nytimes.com/athletic/6563293/2025/08/20/broncos-defense-dre-greenlaw-nik-bonitto/
+
+**Blackhawks Hall of Fame rankings: Will Larmer finally get recognition? Keith a lock?**\
+`The Blackhawks have released their list of nominees for the franchise Hall of Fame. Here's how we'd stack the 27 players.`\
+https://nytimes.com/athletic/6558402/2025/08/20/blackhawks-hall-of-fame-rankings-larmer-keith/
+
+**Submit your questions for Scott Wheeler’s first 2026 NHL Draft mailbag**\
+`Have a question about the 2026 NHL Draft class, prospects or scouting? Send them here!`\
+https://nytimes.com/athletic/6563084/2025/08/20/scott-wheeler-2026-nhl-draft-mailbag-prompt/
+
+**Carrie Coon Is Scratching an Itch, Starring in ‘Bug’ on Broadway**\
+`The play was written by Tracy Letts, who is married to Coon. It’s about a down-and-out duo for whom motel room insects prompt paranoia.`\
+https://nytimes.com/2025/08/20/theater/bug-broadway-carrie-coon.html
+
+**How to make CFP predictions using the preseason AP Top 25**\
+`Not only is picking a chalky bracket boring, it’s just about as likely to be incorrect.`\
+https://nytimes.com/athletic/6562192/2025/08/20/college-football-playoff-predictions-ap-top-25/
+
 **Is the A.I. Sell-off the Start of Something Bigger?**\
 `A sharp drop in technology stocks, and even comments by OpenAI’s Sam Altman, suggest investors are getting too exuberant about artificial intelligence.`\
 https://nytimes.com/2025/08/20/business/dealbook/ai-dip-blip-palantir-nvidia.html
@@ -5,36 +37,4 @@ https://nytimes.com/2025/08/20/business/dealbook/ai-dip-blip-palantir-nvidia.htm
 **After Deadly Clashes, Syria and Israel Hold Direct Talks**\
 `The talks in Paris brokered by the United States were the latest effort to reduce tensions between the two longstanding foes, and came after Israel launched airstrikes on the Syrian capital last month.`\
 https://nytimes.com/2025/08/20/world/middleeast/syrian-israel-meet-paris.html
-
-**Marseille transfer list Rabiot and Rowe due to ‘unacceptable behaviour’**\
-`Marseille said in a statement that the incident occurred in the dressing room after Friday's 1-0 loss against Rennes.`\
-https://nytimes.com/athletic/6564410/2025/08/20/marseille-jonathan-rowe-adrien-rabiot/
-
-**Arsenal fans: After Havertz injury, who should be signed in closing days of window?**\
-`As reported today, Arsenal are actively exploring the transfer market to potentially reinforce their attack and cover the absence of Havertz`\
-https://nytimes.com/athletic/6564489/2025/08/20/arsenal-havertz-transfer-replacement/
-
-**Forest agree deal to sign Luiz from Juventus**\
-`The move will see the 27-year-old Brazil international move on loan with an obligation to buy based on the number of games he plays.`\
-https://nytimes.com/athletic/6538400/2025/08/20/douglas-luiz-nottingham-forest-transfer-loan/
-
-**How the U.S. Open showed off one of the most important - but neglected - selling points of tennis**\
-`The best men and women in the world took each other on at Flushing Meadows on Tuesday. Tennis produces that dynamic like no other sport.`\
-https://nytimes.com/athletic/6564356/2025/08/20/tennis-men-against-women-mixed-doubles/
-
-**Target Names New C.E.O. as It Tries to Break Sales Slump**\
-`Michael Fiddelke, the company’s chief operating officer, will step into the role in February.`\
-https://nytimes.com/2025/08/20/business/target-retail-sales-outlook-tariffs.html
-
-**Trump Calls Netanyahu a ‘War Hero’ and Adds: ‘I Guess I Am Too’**\
-`President Trump praised Prime Minister Benjamin Netanyahu of Israel for bombing Iranian nuclear sites, and credited himself as well.`\
-https://nytimes.com/2025/08/20/world/middleeast/trump-war-hero-netanyahu-iran.html
-
-**How We Vote**\
-`We explore President Trump effort to eliminate mailed ballots and voting machines.`\
-https://nytimes.com/2025/08/20/briefing/voting-machines-mailin-voting.html
-
-**Preparations for a Move on Gaza City Have Started, Israel’s Military Says**\
-`Troops have reached the city’s outskirts, an Israeli official said, adding that more reservists are being asked to report for duty to cover for other soldiers who will be involved in going into Gaza City.`\
-https://nytimes.com/2025/08/20/world/middleeast/israel-hamas-gaza-city.html
 
