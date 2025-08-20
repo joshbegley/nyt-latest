@@ -1,3 +1,15 @@
+**TAFC: The Chiesa chant and the fallout. Plus: Rangers chaos and panic rankings**\
+`Explaining the context of Liverpool fans' song and why it matters`\
+https://nytimes.com/athletic/6564225/2025/08/20/chiesa-chant-liverpool-rangers-tafc/
+
+**Feldman's preseason College Football Playoff bracket: Who will win the national title?**\
+`Who will make the College Football Playoff bracket this winter? Bruce Feldman runs through his 12 teams and each round to crown a champion.`\
+https://nytimes.com/athletic/6562950/2025/08/20/college-football-playoff-bracket-predictions-bruce-feldman/
+
+**Dodgers prospect lost use of his right eye, but his big-league vision remains**\
+`Patrick Copen took a comebacker to his face one year ago. Now he's back on the mound and rising up the ranks. `\
+https://nytimes.com/athletic/6562793/2025/08/20/dodgers-pitching-prospect-patrick-copen-lost-vision-eye/
+
 **The Pulse: Football's nervous contenders**\
 `The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
 https://nytimes.com/athletic/6563329/2025/08/20/ravens-penn-state-football-the-pulse/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6559951/2025/08/20/f1-mclaren-piastri-norris/
 **Chiefs stock report: Where Kingsley Suamataia, others stand before preseason finale**\
 `One player could help his stock in Friday's preseason game vs. the Bears.`\
 https://nytimes.com/athletic/6562608/2025/08/20/chiefs-stock-report-kingsley-suamataia/
-
-**The Yankees drafted a player after he admitted he drew a swastika on a Jewish student's door in college. Why?**\
-`The club said it did its due diligence when deciding to select Core Jackson, and that the choice was cleared with owner Hal Steinbrenner.`\
-https://nytimes.com/athletic/6563252/2025/08/20/yankees-prospect-swastika-core-jackson-2025-mlb-draft/
-
-**Matt Olson passes Pete Rose, helps Braves pull out wild, come-from-behind win**\
-`Olson played in his 746th consecutive game Tuesday as the Braves rallied past the White Sox.`\
-https://nytimes.com/athletic/6564110/2025/08/20/matt-olson-pete-rose-braves-win-white-sox/
-
-**How Notre Dame became a more durable national championship contender**\
-`Notre Dame is no longer trying to bend the soul of college football to its will. It's focused on competing for titles every single year.`\
-https://nytimes.com/athletic/6561517/2025/08/20/notre-dame-football-recruiting-national-championships/
 
