@@ -1,3 +1,23 @@
+**What Do You Want to Read About Disability?**\
+`Input from readers will help shape our coverage.`\
+https://nytimes.com/2025/08/20/us/disability-stories-callout.html
+
+**My Relative Insulted My Trans Fiancé. Do I Have to Tolerate Her Intolerance?**\
+`This didn’t come from confusion — it felt malevolent.`\
+https://nytimes.com/2025/08/20/magazine/my-relative-insulted-my-trans-fiance-do-i-have-to-tolerate-her-intolerance.html
+
+**Oklahoma Proposes ‘America First Test’ for Teachers From New York and California**\
+`The test is meant to filter out teachers who hold views “antithetical” to Oklahoma values.`\
+https://nytimes.com/2025/08/20/education/oklahoma-woke-teacher-test.html
+
+**Villarreal set to sign Chelsea's Veiga in permanent move**\
+`The 21-year-old joined Chelsea from Basel for €14m last summer, signing a contract until 2031 and spending four months on loan at Juventus.`\
+https://nytimes.com/athletic/6508158/2025/08/20/chelsea-transfer-news-veiga-villarreal/
+
+**CFP selection committee to consider new strength of record metric, tweak recusal policy**\
+`The new metric 'rewards teams defeating high-quality opponents while minimizing the penalty for losing to such a team.'`\
+https://nytimes.com/athletic/6565187/2025/08/20/college-football-playoff-selection-committee-metrics/
+
 **Judge Halts Texas’ Law Mandating the Ten Commandments in School**\
 `The state law had said public schools would have to  display the Ten Commandments in a “conspicuous” location in every classroom in Texas by Sept. 1.`\
 https://nytimes.com/2025/08/20/us/politics/ten-commandments-texas.html

@@ -1,3 +1,23 @@
+**What Do You Want to Read About Disability?**\
+`Input from readers will help shape our coverage.`\
+https://nytimes.com/2025/08/20/us/disability-stories-callout.html
+
+**My Relative Insulted My Trans Fiancé. Do I Have to Tolerate Her Intolerance?**\
+`This didn’t come from confusion — it felt malevolent.`\
+https://nytimes.com/2025/08/20/magazine/my-relative-insulted-my-trans-fiance-do-i-have-to-tolerate-her-intolerance.html
+
+**Oklahoma Proposes ‘America First Test’ for Teachers From New York and California**\
+`The test is meant to filter out teachers who hold views “antithetical” to Oklahoma values.`\
+https://nytimes.com/2025/08/20/education/oklahoma-woke-teacher-test.html
+
+**Villarreal set to sign Chelsea's Veiga in permanent move**\
+`The 21-year-old joined Chelsea from Basel for €14m last summer, signing a contract until 2031 and spending four months on loan at Juventus.`\
+https://nytimes.com/athletic/6508158/2025/08/20/chelsea-transfer-news-veiga-villarreal/
+
+**CFP selection committee to consider new strength of record metric, tweak recusal policy**\
+`The new metric 'rewards teams defeating high-quality opponents while minimizing the penalty for losing to such a team.'`\
+https://nytimes.com/athletic/6565187/2025/08/20/college-football-playoff-selection-committee-metrics/
+
 **Judge Halts Texas’ Law Mandating the Ten Commandments in School**\
 `The state law had said public schools would have to  display the Ten Commandments in a “conspicuous” location in every classroom in Texas by Sept. 1.`\
 https://nytimes.com/2025/08/20/us/politics/ten-commandments-texas.html
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/6565116/2025/08/20/colts-qb-situation-nfl-emeka-egb
 **The Windup: What's up with MLB's left-handed pitching surge?**\
 `Welcome to The Windup, The Athletic's MLB newsletter.`\
 https://nytimes.com/athletic/6565158/2025/08/20/mlb-left-handed-pitching-the-windup/
-
-**Top pitching prospect Bubba Chandler to make MLB debut in Pirates bullpen: Source**\
-`With superior athleticism, a power fastball and promising off-speed pitches, Chandler has a chance to be a force in the majors.`\
-https://nytimes.com/athletic/6565041/2025/08/20/bubba-chandler-mlb-promotion-pirates-bullpen/
-
-**Monsoon Rains Bring Mumbai to a Standstill**\
-`On track for more than 48 inches of rain in August, India’s financial capital is expected to surpass the record set in 2020.`\
-https://nytimes.com/2025/08/20/world/asia/india-monsoon-mumbai.html
-
-**Mumbai Reels From Flooding After Heavy Rain**\
-`Torrential rains battered India’s financial capital, causing flooding that has waterlogged streets, disrupted public transport and canceled flights.`\
-https://nytimes.com/video/world/asia/100000010350861/mumbai-reels-from-flooding-after-heavy-rain.html
-
-**Fewer People Are Reading for Fun, Study Finds**\
-`From 2003 to 2023, the share of Americans who read for pleasure fell 40 percent, a sharp decline that is part of a continuing downward trend.`\
-https://nytimes.com/2025/08/20/well/reading-pleasure-decline-study.html
-
-**Italians Pay Final Respects to Their ‘King of Television’**\
-`For some five decades Pippo Baudo was the face of Italy’s national broadcaster, RAI. His death on Saturday unleashed a wave of accolades and tears.`\
-https://nytimes.com/2025/08/20/world/europe/italy-pippo-baudo-funeral-rai.html
 
