@@ -1,3 +1,7 @@
+**Judge Halts Texas’ Law Mandating the Ten Commandments in School**\
+`The state law had said public schools would have to  display the Ten Commandments in a “conspicuous” location in every classroom in Texas by Sept. 1.`\
+https://nytimes.com/2025/08/20/us/politics/ten-commandments-texas.html
+
 **NFL teams monitoring wide receiver trade market: Why Vikings, Jets, 49ers need help**\
 `As teams start looking to finalize their initial 53-man rosters, trade talks could be underway soon for wide receiver-needy squads.`\
 https://nytimes.com/athletic/6565104/2025/08/20/nfl-wide-receivers-trades-vikings-jets-49ers/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/20/well/reading-pleasure-decline-study.html
 **Italians Pay Final Respects to Their ‘King of Television’**\
 `For some five decades Pippo Baudo was the face of Italy’s national broadcaster, RAI. His death on Saturday unleashed a wave of accolades and tears.`\
 https://nytimes.com/2025/08/20/world/europe/italy-pippo-baudo-funeral-rai.html
-
-**Coco Gauff splits with key coach on eve of U.S. Open, practices with serve expert**\
-`Gauff's serve struggles have reemerged of late after a period of improvement with coach Matt Daly, who is now off her team.`\
-https://nytimes.com/athletic/6565020/2025/08/20/coco-gauff-fired-coach-2025-us-open/
 
