@@ -1,3 +1,5 @@
+
+
 **Why Magic, Dragons and Explicit Sex Are in Bookstores Everywhere**\
 `Romantasy is propping up the fiction market. Thanks to a generation that grew up reading about a boy wizard.`\
 https://nytimes.com/2025/08/20/style/harry-potter-fan-fiction-romantasy-manacled.html
