@@ -1,3 +1,11 @@
+**Tracking Heat Across Canada**\
+`See detailed maps of the latest temperature forecasts across Canada.`\
+https://nytimes.com/interactive/2025/08/20/world/canada/canada-heat-map-tracker.html
+
+**Trump Stepped Up His Attacks on the Fed**\
+`Also, Israel is preparing an assault on Gaza City. Here’s the latest at the end of Wednesday.`\
+https://nytimes.com/2025/08/20/briefing/trump-fed-israel-gaza-city-origami.html
+
 **East Coast Braces for Rip Currents From Hurricane Erin**\
 `States from Florida to Maine are bracing for potentially life-threatening surf and rip currents as Hurricane Erin brushes past the East Coast.`\
 https://nytimes.com/video/weather/100000010352200/hurricane-erin-waves-rip-currents.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6565643/2025/08/20/panthers-preseason-finale-roster
 **New Malaria Case Prompts Testing of Mosquitoes in New Jersey**\
 `A Morris County resident may have contracted the illness locally, which would be the first known instance in decades of someone being exposed while in the state.`\
 https://nytimes.com/2025/08/20/nyregion/new-jersey-mosquitoes-malaria.html
-
-**Israel Approves Settlements, a Blow to Faded Hopes for a Palestinian State**\
-`The long-stalled project near Jerusalem, known as E1, further fragments West Bank lands envisioned as part of a Palestinian state, advancing a goal of Israeli hard-liners.`\
-https://nytimes.com/2025/08/20/world/middleeast/israel-e1-settlement-west-bank.html
-
-**Stephanie Shirley, Who Created a Tech World for Women, Dies at 91**\
-`In 1962, she started a software company at her dining room table with a revolutionary idea: to create a place where women could find a work-life balance.`\
-https://nytimes.com/2025/08/20/business/stephanie-shirley-dead.html
 
