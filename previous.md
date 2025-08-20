@@ -1,3 +1,7 @@
+**Yankees slug their way into the franchise record books for the second time in 2025**\
+`Six Yankees homered against the Rays, including multi-home-run efforts from José Caballero, Giancarlo Stanton and Cody Bellinger.`\
+https://nytimes.com/athletic/6564104/2025/08/20/ny-yankees-single-game-home-run-record/
+
 **Liverpool look defensively shaky, but Gravenberch can fix it**\
 `The Dutchman's absence so far this season has left his club looking frail at the back`\
 https://nytimes.com/athletic/6559870/2025/08/20/ryan-gravenberch-liverpool-defence/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6559917/2025/08/20/arsenal-david-raya-goalkeeper-pr
 **Do Chelsea have an attack that can win them the Premier League?**\
 `Chelsea must find a way to become the sum of their spending in the final third if the world champions are to become English champions again`\
 https://nytimes.com/athletic/6562266/2025/08/20/chelsea-attack-pedro-delap-palmer-neto-maresca/
-
-**West Ham's dreadful start has put Graham Potter, his players and an entire club on edge**\
-`How has sobering opening-day Sunderland defeat impacted the mood of the coach, squad and hierarchy - and what can they do about it?`\
-https://nytimes.com/athletic/6561850/2025/08/20/west-ham-graham-potter-on-edge/
 

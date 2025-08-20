@@ -1,3 +1,7 @@
+**Yankees slug their way into the franchise record books for the second time in 2025**\
+`Six Yankees homered against the Rays, including multi-home-run efforts from José Caballero, Giancarlo Stanton and Cody Bellinger.`\
+https://nytimes.com/athletic/6564104/2025/08/20/ny-yankees-single-game-home-run-record/
+
 **Liverpool look defensively shaky, but Gravenberch can fix it**\
 `The Dutchman's absence so far this season has left his club looking frail at the back`\
 https://nytimes.com/athletic/6559870/2025/08/20/ryan-gravenberch-liverpool-defence/
