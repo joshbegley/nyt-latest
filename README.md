@@ -1,3 +1,7 @@
+**Join The Athletic fantasy football Discord server**\
+`Seeking some sage fantasy football advice? Come join our season-long chat in The Athletic's fantasy football Discord server.`\
+https://nytimes.com/athletic/6562700/2025/08/20/fantasy-football-discord-jake-ciely-brandon-funston/
+
 **Alyssa Naeher's first NWSL goal as told by her Stars teammates: 'I just felt pure joy'**\
 `In her record 200th NWSL appearance, the former U.S. goalkeeper scored her first league goal to complete a three-goal comeback for Chicago.`\
 https://nytimes.com/athletic/6565707/2025/08/20/alyssa-naeher-nwsl-uswnt-goal-chicago-stars/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/20/business/stephanie-shirley-dead.html
 **Gazans React to Israel’s Preparations to Take Over Gaza City**\
 `Palestinians expressed frustration on Wednesday over Israel’s announcement to call up tens of thousands of reservists for an operation to take control of Gaza City.`\
 https://nytimes.com/video/world/middleeast/100000010351595/israel-gaza-city-attack.html
-
-**Camp Mystic Parents Demand Changes Before More Children Are Lost**\
-`A Texas Legislative Committee heard for the first time from the parents who demanded better flood warning systems, better training and equipment for camps near the river.`\
-https://nytimes.com/2025/08/20/us/politics/camp-mystic-parents.html
 
