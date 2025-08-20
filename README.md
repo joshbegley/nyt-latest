@@ -1,3 +1,11 @@
+**With the Dalai Lama’s Succession Looming, Xi Jinping Visits Tibet**\
+`A power struggle is taking shape over choosing a successor to the 90-year-old Buddhist leader. In a trip to Tibet’s capital, China’s leader emphasized maintaining Beijing’s control.`\
+https://nytimes.com/2025/08/20/world/asia/xi-tibet-dalai-lama.html
+
+**Warren Brodey, 101, Dies; a Visionary at the Dawn of the Information Age**\
+`His work on complex systems and responsive technologies helped lay the groundwork for later work on artificial intelligence.`\
+https://nytimes.com/2025/08/20/technology/warren-brodey-dead.html
+
 **Ilona Maher to start Team USA's Rugby World Cup opener vs. England**\
 `The 29-year-old is set to make her first World Cup appearance after making the switch to the 15-a-side format.`\
 https://nytimes.com/athletic/6564569/2025/08/20/ilona-maher-rugby-world-cup-usa-england/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6508158/2025/08/20/chelsea-transfer-news-veiga-vill
 **CFP selection committee to consider new strength of record metric, tweak recusal policy**\
 `The new metric 'rewards teams defeating high-quality opponents while minimizing the penalty for losing to such a team.'`\
 https://nytimes.com/athletic/6565187/2025/08/20/college-football-playoff-selection-committee-metrics/
-
-**Judge Halts Texas’ Law Mandating the Ten Commandments in School**\
-`The state law had said public schools would have to  display the Ten Commandments in a “conspicuous” location in every classroom in Texas by Sept. 1.`\
-https://nytimes.com/2025/08/20/us/politics/ten-commandments-texas.html
-
-**NFL teams monitoring wide receiver trade market: Why Vikings, Jets, 49ers need help**\
-`As teams start looking to finalize their initial 53-man rosters, trade talks could be underway soon for wide receiver-needy squads.`\
-https://nytimes.com/athletic/6565104/2025/08/20/nfl-wide-receivers-trades-vikings-jets-49ers/
 
