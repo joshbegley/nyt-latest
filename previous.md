@@ -1,3 +1,7 @@
+**What’s in Our Queue? ‘The Gilded Age’ and More **\
+`Text by Jordyn Holman`\
+https://nytimes.com/card/2025/08/20/arts/editors-recommendations-gildedage
+
 **Walmart Recalls Frozen Shrimp After Radioactive Contamination Warning**\
 `The Food and Drug Administration urged consumers to discard packages of frozen shrimp sold in 13 states. A food safety expert said the risk to the public was low.`\
 https://nytimes.com/2025/08/20/business/radioactive-shrimp-walmart-recall.html
@@ -29,12 +33,4 @@ https://nytimes.com/2025/08/20/weather/los-angeles-heat-fire-forecast.html
 **We’re Already Living in the Post-A.I. Future**\
 `Artificial intelligence may change the world, but it probably won’t remake it.`\
 https://nytimes.com/2025/08/20/opinion/ai-technology-chatgpt.html
-
-**‘We Can’t Take It Anymore’: Gazans Fear Looming Israeli Operation**\
-`Israel’s plan to invade Gaza City, the most populous city in the northern Gaza Strip, has forced many families to consider uprooting themselves.`\
-https://nytimes.com/2025/08/20/world/middleeast/gaza-city-israeli-operation.html
-
-**Fed Officials Split Over How to Read Economic Signals**\
-`Minutes from the Federal Reserve’s July meeting showed policymakers grappling with a slowing labor market and inflation that remains above the central bank’s target.`\
-https://nytimes.com/2025/08/20/business/federal-reserve-july-minutes.html
 

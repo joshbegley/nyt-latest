@@ -1,3 +1,7 @@
+**What’s in Our Queue? ‘The Gilded Age’ and More **\
+`Text by Jordyn Holman`\
+https://nytimes.com/card/2025/08/20/arts/editors-recommendations-gildedage
+
 **Walmart Recalls Frozen Shrimp After Radioactive Contamination Warning**\
 `The Food and Drug Administration urged consumers to discard packages of frozen shrimp sold in 13 states. A food safety expert said the risk to the public was low.`\
 https://nytimes.com/2025/08/20/business/radioactive-shrimp-walmart-recall.html
