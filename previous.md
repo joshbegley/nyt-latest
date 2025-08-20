@@ -1,3 +1,7 @@
+**Rubio Takes on Tricky Task of Drafting Security Guarantees for Ukraine**\
+`The secretary of state and national security adviser will meet with European counterparts on Thursday in an effort to advance a peace process that so far has gotten little traction.`\
+https://nytimes.com/2025/08/20/us/politics/marco-rubio-ukraine.html
+
 **How Climate Change Affects Hurricanes Like Erin**\
 `Global warming is changing the way storms behave.`\
 https://nytimes.com/2025/08/20/climate/climate-change-hurricanes.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/08/20/us/trump-news/federal-workers-transgender-tr
 **Myles Garrett wants to keep the focus on the Browns amid speeding ticket questions**\
 `“I’d honestly rather talk about football and this team than anything I’m doing off (the) field," Garrett said when asked about the ticket. `\
 https://nytimes.com/athletic/6565898/2025/08/20/myles-garrett-speeding-ticket-browns/
-
-**Mamdani, Skeptical of Casinos, Won’t Try to Block Them in New York City**\
-`Zohran Mamdani, the Democratic mayoral nominee, said that while he still had doubts about city casinos, he respected the views of voters who supported them.`\
-https://nytimes.com/2025/08/20/nyregion/mamdani-casinos-nyc-mayor.html
 

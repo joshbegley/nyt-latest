@@ -1,3 +1,7 @@
+**Rubio Takes on Tricky Task of Drafting Security Guarantees for Ukraine**\
+`The secretary of state and national security adviser will meet with European counterparts on Thursday in an effort to advance a peace process that so far has gotten little traction.`\
+https://nytimes.com/2025/08/20/us/politics/marco-rubio-ukraine.html
+
 **How Climate Change Affects Hurricanes Like Erin**\
 `Global warming is changing the way storms behave.`\
 https://nytimes.com/2025/08/20/climate/climate-change-hurricanes.html
