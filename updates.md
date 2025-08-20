@@ -1,3 +1,11 @@
+**Forest agree deal to sign Luiz from Juventus**\
+`The move will see the 27-year-old Brazil international move on loan with an obligation to buy based on the number of games he plays.`\
+https://nytimes.com/athletic/6538400/2025/08/20/douglas-luiz-nottingham-forest-transfer-loan/
+
+**How the U.S. Open showed off one of the most important - but neglected - selling points of tennis**\
+`The best men and women in the world took each other on in New York. Tennis produces that dynamic like no other sport.`\
+https://nytimes.com/athletic/6564356/2025/08/20/tennis-men-against-women-mixed-doubles/
+
 **How the U.S. Open showed off one of the most important – but neglected – selling points of tennis**\
 `The best men and women in the world took each other on in New York. Tennis produces that dynamic like no other sport.`\
 https://nytimes.com/athletic/6564356/2025/08/20/tennis-men-against-women-mixed-doubles/
