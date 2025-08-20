@@ -1,3 +1,19 @@
+**Why Covid Is Spreading Again This Summer**\
+`Researchers are seeing an uptick in cases, as they have every summer since the pandemic began. Here’s why.`\
+https://nytimes.com/2025/08/20/well/why-covid-is-spreading-again-this-summer.html
+
+**Digesting the summer, Kempe's next contract, what might be next: Kings mailbag**\
+`The Kings' future, in both the short and long term, is on the fans' minds. Let's dissect some of the biggest questions.`\
+https://nytimes.com/athletic/6564170/2025/08/20/kings-offseason-kempe-byfield-kopitar/
+
+**Onionlike Space Explosion May Be a New Type of Supernova**\
+`The rare blast peeled back the inner layers of a dying star, offering clues to how the elements that make up life on Earth were forged.`\
+https://nytimes.com/2025/08/20/science/supernova-layers-elements.html
+
+**Schmaltzy Tomatoes!**\
+`Peak summer tomatoes get a salty, savory boost from pan drippings in my easy skillet chicken dinner.`\
+https://nytimes.com/2025/08/20/dining/schmaltzy-tomatoes-with-chicken.html
+
 **Hurricane Erin Creates Large Waves Along North Carolina Coast**\
 `Large waves crashed along North Carolina’s shores, as the outer bands of Hurricane Erin inched closer to the state.`\
 https://nytimes.com/video/weather/100000010351101/hurricane-erin-arrival.html
@@ -21,20 +37,4 @@ https://nytimes.com/2025/08/20/learning/lesson-plans/ask-a-journalist-how-genera
 **Ask a Journalist: A Monthly Series for Teenagers**\
 `Join us each month this school year to discuss a teen-friendly topic with a New York Times journalist who covers it. Post your thoughts, ask questions or suggest ideas, and the reporters will reply!`\
 https://nytimes.com/2025/08/20/learning/ask-a-journalist-a-monthly-series-for-teenagers.html
-
-**Three Things to Know About Hurricane Erin Today**\
-`The storm’s center will stay offshore, but it will bring dangers to the coast.`\
-https://nytimes.com/2025/08/20/weather/hurricane-erin-forecast-today.html
-
-**Understanding ESPN's big bet on how to keep up with fans: MoneyCall**\
-`More in this week's sports business cheat sheet: MLB realignment, CFB's most interesting executive, an amazing list, reading recs and more.`\
-https://nytimes.com/athletic/6564769/2025/08/20/espn-jimmy-pitaro-mlb-realignment-moneycall/
-
-**Broncos mailbag: Submit your questions to beat writer Nick Kosmider**\
-`What's on your mind as Denver nears its highly anticipated 2025 season?`\
-https://nytimes.com/athletic/6564644/2025/08/20/broncos-mailbag-request-preseason/
-
-**N.S.A.’s Acting Director Tried to Save Top Scientist From Purge**\
-`Vinh Nguyen, an expert in artificial intelligence and advanced mathematics, was among the current and former officials whose security clearances were revoked by the president.`\
-https://nytimes.com/2025/08/20/us/politics/security-clearances-scientist-fired.html
 

@@ -1,3 +1,11 @@
+**Hurricane Erin Creates Large Waves Along North Carolina Coast**\
+`Large waves crashed along North Carolina’s shores, as the outer bands of Hurricane Erin inched closer to the state.`\
+https://nytimes.com/video/weather/100000010351101/hurricane-erin-arrival.html
+
+**Brentford reject bid worth up to £40m from Newcastle for Wissa**\
+`The DR Congo international wants the move to St James’ Park.`\
+https://nytimes.com/athletic/6508978/2025/08/20/yoane-wissa-brentford-newcastle-transfer-update/
+
 **American Businesses in ‘Survival Mode’ as Trump Tariffs Pile Up**\
 `A 90-day pause on additional tariffs on China offers no relief to American companies already facing extraordinarily high import taxes imposed by President Trump.`\
 https://nytimes.com/2025/08/20/business/trump-china-tariffs-american-importers.html
