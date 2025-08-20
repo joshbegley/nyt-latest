@@ -1,3 +1,11 @@
+**Uranus Was Hiding a Moon Outside Its Rings**\
+`The 29th moon found to be orbiting the solar system’s 7th planet is about six miles wide.`\
+https://nytimes.com/2025/08/20/science/uranus-new-moon.html
+
+**College football national title odds: Texas is favorite ahead of a wide open field**\
+`Texas enters the 2025 season as the favorite to win the national title, but the odds show a wide open field.`\
+https://nytimes.com/athletic/6560571/2025/08/20/college-football-national-title-odds-texas-georgia-ohio-state-penn-state/
+
 **College football national title odds: Texas is favorite ahead of a wide open field**\
 `Texas enters the 2025 season as the favorite to win the national title, but the odds show a wide-open field.`\
 https://nytimes.com/athletic/6560571/2025/08/20/college-football-national-title-odds-texas-georgia-ohio-state-penn-state/
