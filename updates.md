@@ -1,3 +1,11 @@
+**The New York Times in Print for Wednesday, Aug. 20, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/08/20/todays-new-york-times
+
+**Talking Past Each Other in Israel**\
+`We must find a way to speak in a common language again, a language that has a name for everything, even for a person holding a photograph of a dead child.`\
+https://nytimes.com/2025/08/20/opinion/israel-war-language-humanity.html
+
 **Yankees slug their way into the franchise record books for the second time in 2025**\
 `Six Yankees homered against the Rays, including multi-home-run efforts from José Caballero, Giancarlo Stanton and Cody Bellinger.`\
 https://nytimes.com/athletic/6564104/2025/08/20/ny-yankees-single-game-home-run-record/
