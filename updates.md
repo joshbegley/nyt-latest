@@ -1,3 +1,19 @@
+**Former Heat employee pleads guilty to selling stolen jerseys, memorabilia**\
+`Marcos Thomas Perez stole more than 400 jerseys and other memorabilia from a secured equipment room and sold them online.`\
+https://nytimes.com/athletic/6564585/2025/08/20/heat-stolen-jerseys-memorabilia/
+
+**Moms Need to Give MAHA a Taste of Its Own Medicine**\
+`Peer-to-peer persuasion is a necessary tool right now.`\
+https://nytimes.com/2025/08/20/opinion/organize-fight-maha-moms.html
+
+**My Partner and I Aren’t Excited to Move In Together. Is That Bad?**\
+`A reader and his girlfriend who are happy living apart worry that their reluctance to shack up could spell trouble for their relationship.`\
+https://nytimes.com/2025/08/20/style/moving-in-with-a-partner-cohabitation-anxiety.html
+
+**How Tariffs Will Affect This Unique Cheese**\
+`Stilton is a special type of blue cheese that can be made in only three English counties.`\
+https://nytimes.com/video/business/small-business/100000010283073/blue-cheese-stilton-tariffs-america.html
+
 **More Than 70 Afghans Returning From Iran Die in Fiery Bus Crash**\
 `The bus collided with two vehicles. The victims were among the 1.8 million Afghans expelled from Iran as the country vowed to deport undocumented residents en masse.`\
 https://nytimes.com/2025/08/20/world/asia/afghan-deportation-bus-crash.html

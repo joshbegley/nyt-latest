@@ -1,3 +1,19 @@
+**Former Heat employee pleads guilty to selling stolen jerseys, memorabilia**\
+`Marcos Thomas Perez stole more than 400 jerseys and other memorabilia from a secured equipment room and sold them online.`\
+https://nytimes.com/athletic/6564585/2025/08/20/heat-stolen-jerseys-memorabilia/
+
+**Moms Need to Give MAHA a Taste of Its Own Medicine**\
+`Peer-to-peer persuasion is a necessary tool right now.`\
+https://nytimes.com/2025/08/20/opinion/organize-fight-maha-moms.html
+
+**My Partner and I Aren’t Excited to Move In Together. Is That Bad?**\
+`A reader and his girlfriend who are happy living apart worry that their reluctance to shack up could spell trouble for their relationship.`\
+https://nytimes.com/2025/08/20/style/moving-in-with-a-partner-cohabitation-anxiety.html
+
+**How Tariffs Will Affect This Unique Cheese**\
+`Stilton is a special type of blue cheese that can be made in only three English counties.`\
+https://nytimes.com/video/business/small-business/100000010283073/blue-cheese-stilton-tariffs-america.html
+
 **More Than 70 Afghans Returning From Iran Die in Fiery Bus Crash**\
 `The bus collided with two vehicles. The victims were among the 1.8 million Afghans expelled from Iran as the country vowed to deport undocumented residents en masse.`\
 https://nytimes.com/2025/08/20/world/asia/afghan-deportation-bus-crash.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6556096/2025/08/20/manchester-city-rico-lewis-contr
 **Trump Administration Live Updates: Visa Clampdown Prompts Worries at U.S. Colleges**\
 ``\
 https://nytimes.com/live/2025/08/20/us/trump-news
-
-**Raiders rookie report: Searching for immediate help beyond Ashton Jeanty**\
-`A look at how the Raiders' large rookie class has fared this summer — and the first-year players' roles for the upcoming season.`\
-https://nytimes.com/athletic/6562741/2025/08/20/raiders-rookie-report-ashton-jeanty-jack-bech/
-
-**Could a healthy Uchenna Nwosu put the Seahawks' defense over the top?**\
-`Hampered by injuries since his breakout 2022 season, Nwosu could be back for Week 1. "He's a heck of a player," coach Mike Macdonald said.`\
-https://nytimes.com/athletic/6563786/2025/08/20/seahawks-defense-preseason-uchenna-nwosu/
-
-**Packers position battles: Isaiah Simmons, Mecole Hardman among those in tight competitions**\
-`There's still uncertainty surrounding position battles at quarterback, linebacker, cornerback and several other spots.`\
-https://nytimes.com/athletic/6563427/2025/08/20/packers-position-battles-clifford-elgersma-hardman/
-
-**Return of Dre Greenlaw, Nik Bonitto brings Broncos' defense into clearer focus**\
-`"You can always feel him when he's out there," Bonitto said of Greenlaw, who has missed much of camp with a quad injury.`\
-https://nytimes.com/athletic/6563293/2025/08/20/broncos-defense-dre-greenlaw-nik-bonitto/
 
