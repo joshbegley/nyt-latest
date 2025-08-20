@@ -1,3 +1,11 @@
+**Why Magic, Dragons and Explicit Sex Are in Bookstores Everywhere**\
+`Romantasy is propping up the fiction market. Thanks to a generation that grew up reading about a boy wizard.`\
+https://nytimes.com/2025/08/20/style/harry-potter-fan-fiction-romantasy-manacled.html
+
+**Frisbee, Seth Meyers’s Dog and Andy Samberg’s Archenemy, Dies**\
+`The “Late Night” host announced her death on Instagram. Fans mused that the comic Andy Samberg, who famously hated his friend’s scrawny pet, was rejoicing.`\
+https://nytimes.com/2025/08/20/us/seth-meyers-dog-frisbee-dead.html
+
 **USMNT's Aaronson set to join Rapids in club-record deal from Frankfurt**\
 `The deal, when finalised, would represent a club record $7million (€6m) upfront fee alongside a further $1.5m (€1.3m) in add-ons.`\
 https://nytimes.com/athletic/6564974/2025/08/20/colorado-rapids-transfers-paxten-aaronson-usmnt/
