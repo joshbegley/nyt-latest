@@ -1,3 +1,7 @@
+**Trump’s White House Joins TikTok**\
+`The move continues a remarkable turnabout toward the app for President Trump, who tried to ban TikTok in his first term.`\
+https://nytimes.com/2025/08/19/us/politics/white-house-tiktok-trump.html
+
 **With Mac Jones hurt, 49ers sign another QB, weigh playing Brock Purdy in finale**\
 `Renardo Green and Isaac Guerendo were among those who returned for a practice in which Brock Purdy and Ricky Pearsall continued to connect.`\
 https://nytimes.com/athletic/6563765/2025/08/19/mac-jones-injury-brock-purdy/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/19/weather/hurricane-erin-north-carolina-evacuations
 **Stabbing at Arizona High School Leaves 1 Student Dead, Officials Say**\
 `A fight between two students at Maryvale High School in Phoenix on Tuesday left one fatally stabbed and the other with non-life-threatening injuries and in custody, officials said.`\
 https://nytimes.com/2025/08/19/us/arizona-stabbing-high-school.html
-
-**At Hamptons Fund-Raiser, Cuomo Predicts Help From Trump Is on the Way**\
-`Andrew M. Cuomo, who trails in the polls for New York City mayor, is said to have told a crowd of donors that he believed President Trump would help smooth his path to victory.`\
-https://nytimes.com/2025/08/19/nyregion/cuomo-trump-nyc-mayor-hamptons.html
 

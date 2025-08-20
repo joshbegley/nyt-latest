@@ -1,3 +1,7 @@
+**Trump’s White House Joins TikTok**\
+`The move continues a remarkable turnabout toward the app for President Trump, who tried to ban TikTok in his first term.`\
+https://nytimes.com/2025/08/19/us/politics/white-house-tiktok-trump.html
+
 **Stabbing at Arizona High School Leaves 1 Student Dead, Officials Say**\
 `A fight between two students at Maryvale High School in Phoenix on Tuesday left one fatally stabbed and the other with non-life-threatening injuries and in custody, officials said.`\
 https://nytimes.com/2025/08/19/us/arizona-stabbing-high-school.html
