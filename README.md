@@ -1,8 +1,16 @@
+**Ratcliffe's INEOS counter-suing Tottenham relating to Kane's Bayern move**\
+`The dispute centres on an agreement between INEOS and Tottenham that was signed in 2022. `\
+https://nytimes.com/athletic/6565428/2025/08/20/ineos-automotive-countersuing-tottenham-harry-kane-bayern-move/
+
+**Two Big Law Firms Said to Be Doing Free Work for Trump Administration**\
+`After making deals with the president to avoid punitive executive orders, Paul Weiss and Kirkland & Ellis are helping the Commerce Department.`\
+https://nytimes.com/2025/08/20/us/politics/law-firms-free-work-trump-administration.html
+
 **Why Claiming Two Primary Residences Is a Problem, Even if Prosecutions Are Rare**\
 `Lenders will often charge a higher interest rate for a second home or a property you intend to use as a rental since the risks there are higher.`\
 https://nytimes.com/2025/08/20/business/mortgage-primary-residence.html
 
-**Colorado Avalanche sign winger Victor Olofsson to one-year contract**\
+**Colorado Avalanche sign winger Victor Olofsson to 1-year contract**\
 `Olofsson scored 15 goals in 56 games for Vegas last season, including six on the power play.`\
 https://nytimes.com/athletic/6565436/2025/08/20/colorado-avalanche-victor-olofsson-contract/
 
@@ -29,12 +37,4 @@ https://nytimes.com/2025/08/20/business/federal-reserve-july-minutes.html
 **Social Media Figure Is Killed by Stray Bullet in Road Rage Episode, Police Say**\
 `Yarely Hermosillo, 27, was in a car struck by a bullet fired by a man who was arguing with another driver in Glendale, Ariz., the police said.`\
 https://nytimes.com/2025/08/20/us/yarely-hermosillo-arizona-road-rage-shooting.html
-
-**Tiny Love Stories: ‘A Father’s Love Shouldn’t Wound’**\
-`Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
-https://nytimes.com/2025/08/20/style/tiny-modern-love-stories-a-fathers-love-shouldnt-wound.html
-
-**Arsenal make move for Eze, player wants move from Palace**\
-`Spurs had the conditions of a deal agreed with Palace on Wednesday but are ready to move on to alternative targets.`\
-https://nytimes.com/athletic/6565385/2025/08/20/arsenal-eberechi-eze-transfer-tottenham-latest/
 
