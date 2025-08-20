@@ -1,3 +1,11 @@
+**Forest exploring deal to sign Cash from Villa**\
+`The 28-year-old is among Forest's options as they look to strengthen the right side of defence.`\
+https://nytimes.com/athletic/6563700/2025/08/20/nottingham-forest-aston-villa-matty-cash/
+
+**Mark Goldbridge among Bundesliga's UK broadcast partners for this season**\
+`The new agreement is due to be announced today and is expected to be in place for the Bundesliga’s first round of games.`\
+https://nytimes.com/athletic/6560329/2025/08/20/mark-goldbridge-bundesliga-tv/
+
 **Onstage and Onscreen, The New York Times Is Ready for Its Close-Up**\
 `The recognizable masthead has been portrayed in a Betty Boop musical on Broadway, a Marvel movie and many other creative works.`\
 https://nytimes.com/2025/08/20/insider/new-york-times-movies.html
