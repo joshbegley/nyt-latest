@@ -1,3 +1,7 @@
+**The 25 most impactful play-by-play voices of the 21st century**\
+`We are living in a golden age of sports TV play-by-play announcers, Richard Deitsch said, listing his 25 most impactful of the 21st century.`\
+https://nytimes.com/athletic/6508659/2025/08/20/21st-century-best-play-by-play-joe-buck-gus-johnson/
+
 **How to watch Leagues Cup quarterfinal: Messi, Inter Miami host Tigres**\
 `Inter Miami, built around Lionel Messi and a veteran core, hosts Tigres UANL on Wednesday with a slim margin for error. `\
 https://nytimes.com/athletic/6563876/2025/08/20/messi-injury-inter-miami-tigres-how-to-watch-leagues-cup-quarterfinal/

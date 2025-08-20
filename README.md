@@ -1,3 +1,7 @@
+**Texas Democrats Reject Republican-Imposed Police Supervision**\
+`State representatives ripped up permission slips that Republican House leaders gave Democratic lawmakers trying to leave the Capitol building. One even spent the night sleeping inside the chambers.`\
+https://nytimes.com/video/us/politics/100000010350829/texas-redistricting-nicole-collier.html
+
 **The 25 most impactful play-by-play voices of the 21st century**\
 `We are living in a golden age of sports TV play-by-play announcers, Richard Deitsch said, listing his 25 most impactful of the 21st century.`\
 https://nytimes.com/athletic/6508659/2025/08/20/21st-century-best-play-by-play-joe-buck-gus-johnson/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/20/podcasts/bridget-everett-says-a-best-friend-can-b
 **Conjuring Ghosts of Elizabeth Taylor**\
 `A rare perfume worn by the actress was lost to obscurity. Some passionate fans have given it a new life.`\
 https://nytimes.com/2025/08/20/style/elizabeth-taylor-scent-of-mystery-perfume.html
-
-**Inside Trump’s Effort on Russia and Ukraine**\
-`President Trump has repeatedly bent other leaders to his will, simply by refusing to budge.`\
-https://nytimes.com/video/world/europe/100000010349018/inside-trumps-effort-on-russia-and-ukraine.html
 
