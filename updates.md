@@ -1,3 +1,15 @@
+**The Premier League panic rankings: From smug Man City to woeful West Ham**\
+`How unnerved are your club with less than two weeks to go in the transfer window and the opening fixtures completed?`\
+https://nytimes.com/athletic/6561993/2025/08/20/premier-league-transfers-window-rankings/
+
+**David Brooks interview: 'With chemo, you are being poisoned - it deconditions you as a footballer'**\
+`The Bournemouth and Wales midfielder speaks to The Athletic about his recovery from cancer, working under Iraola and his World Cup dreams`\
+https://nytimes.com/athletic/6559426/2025/08/20/david-brooks-interview-bournemouth-recovery/
+
+**Kick-off routine, corner-taker and 213 extra seats - What's new about each Premier League club**\
+`Our reporters explain what was new about each club on the opening weekend of the season`\
+https://nytimes.com/athletic/6563092/2025/08/20/premier-league-club-new/
+
 **Leeds target height, aerial control and tighter defence in bid for Premier League survival**\
 `Daniel Farke has learned from his toils with Norwich at this level and adopted a more pragmatic approach for Leeds' top-flight return`\
 https://nytimes.com/athletic/6562613/2025/08/20/leeds-farke-survival-height-control/

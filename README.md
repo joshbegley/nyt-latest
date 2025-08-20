@@ -1,3 +1,23 @@
+**Confident, composed and increasingly commanding: Arsenal goalkeeper David Raya**\
+`The Arsenal No 1 was everything that counterpart Altay Bayindir was not on Sunday. Raya is 'only' 6ft but that does not matter to his team`\
+https://nytimes.com/athletic/6559917/2025/08/20/arsenal-david-raya-goalkeeper-premier-league/
+
+**Do Chelsea have an attack that can win them the Premier League?**\
+`Chelsea must find a way to become the sum of their spending in the final third if the world champions are to become English champions again`\
+https://nytimes.com/athletic/6562266/2025/08/20/chelsea-attack-pedro-delap-palmer-neto-maresca/
+
+**West Ham's dreadful start has put Graham Potter, his players and an entire club on edge**\
+`How has sobering opening-day Sunderland defeat impacted the mood of the coach, squad and hierarchy - and what can they do about it?`\
+https://nytimes.com/athletic/6561850/2025/08/20/west-ham-graham-potter-on-edge/
+
+**Mohamed Salah: The secrets of a fitness 'freak'**\
+`Yoga, cryotherapy, a strict diet and strong genetics mean the new PFA player of the year is more effective than ever at 33`\
+https://nytimes.com/athletic/6272715/2025/08/20/mohamed-salah-diet-fitness-yoga/
+
+**Two decades on, it's time to talk about Jason Kaminsky**\
+`Brian Clough tipped the teenager for greatness at Nottingham Forest, yet his story ended up one of rejection, drift, illness and addiction`\
+https://nytimes.com/athletic/6549344/2025/08/20/jason-kaminsky-nottingham-forest-clough/
+
 **The Premier League panic rankings: From smug Man City to woeful West Ham**\
 `How unnerved are your club with less than two weeks to go in the transfer window and the opening fixtures completed?`\
 https://nytimes.com/athletic/6561993/2025/08/20/premier-league-transfers-window-rankings/
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/6562613/2025/08/20/leeds-farke-survival-height-cont
 **Hong Kong Officials Harden Their Stance on ‘Soft Resistance’**\
 `With pro-democracy movements long squashed, the government is targeting any hint of subtler expressions of discontent. Even establishment figures say it may be too much.`\
 https://nytimes.com/2025/08/20/world/asia/hong-kong-soft-resistance.html
-
-**Connections: Sports Edition Coach: Hints for Aug. 20, 2025**\
-`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
-https://nytimes.com/athletic/6562217/2025/08/20/connections-sports-edition-hints-for-aug-20-2025/
-
-**Why Does Xi Keep Purging Loyalists? Look to Stalin and Mao for the Answer.**\
-`China’s “bedside eavesdroppers,” the online posse parsing rumors for power shifts, have a lot to work with as Xi Jinping pushes aside his own political appointees.`\
-https://nytimes.com/2025/08/20/business/xi-jinping-china.html
-
-**Corrections: Aug. 20, 2025**\
-`Corrections that appeared in print on Wednesday, Aug. 20, 2025.`\
-https://nytimes.com/2025/08/20/pageoneplus/corrections-aug-20-2025.html
-
-**Quote of the Day: Pulling the ‘Crime Card’ Proves Politically Dicey**\
-`Quotation of the Day for Wednesday, August 20, 2025.`\
-https://nytimes.com/2025/08/19/pageoneplus/quote-of-the-day-pulling-the-crime-card-proves-politically-dicey.html
-
-**Documents Add Detail to Fox Hosts’ Desire to Help Trump**\
-`The documents were released as part of a defamation case against Fox Corporation filed by Smartmatic, an election technology company.`\
-https://nytimes.com/2025/08/19/business/media/fox-news-trump-election-documents.html
 
