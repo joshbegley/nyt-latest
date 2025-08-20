@@ -1,3 +1,7 @@
+**How Trump Is Forcing Foes to Pay Up**\
+`President Trump is getting universities, trading partners and law firms to agree to spend big on his terms, often to end fights he picked.`\
+https://nytimes.com/2025/08/20/us/politics/trump-payments-colleges-law-firms.html
+
 **Bruce Slovin, Who Unified Jewish Archives in New York, Dies at 89**\
 `A corporate executive who specialized in mergers, he brought together five Jewish institutions and their collections at the Center for Jewish History in Manhattan.`\
 https://nytimes.com/2025/08/20/nyregion/bruce-slovin-dead.html
