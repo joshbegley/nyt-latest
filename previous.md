@@ -1,3 +1,7 @@
+**How the U.S. Open showed off one of the most important – but neglected – selling points of tennis**\
+`The best men and women in the world took each other on in New York. Tennis produces that dynamic like no other sport.`\
+https://nytimes.com/athletic/6564356/2025/08/20/tennis-men-against-women-mixed-doubles/
+
 **Target Names New C.E.O. as It Tries to Break Sales Slump**\
 `Michael Fiddelke, the company’s chief operating officer, will step into the role in February.`\
 https://nytimes.com/2025/08/20/business/target-retail-sales-outlook-tariffs.html
@@ -10,7 +14,7 @@ https://nytimes.com/2025/08/20/world/middleeast/trump-war-hero-netanyahu-iran.ht
 `We explore President Trump effort to eliminate mailed ballots and voting machines.`\
 https://nytimes.com/2025/08/20/briefing/voting-machines-mailin-voting.html
 
-**A Move on Gaza City Has Started, Israel’s Military Says**\
+**Preparations for a Move on Gaza City Have Started, Israel’s Military Says**\
 `Troops have reached the city’s outskirts, an Israeli official said, adding that more reservists are being asked to report for duty to cover for other soldiers who will be involved in going into Gaza City.`\
 https://nytimes.com/2025/08/20/world/middleeast/israel-hamas-gaza-city.html
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6564118/2025/08/20/seattle-mariners-jerry-dipoto/
 **Marcus Freeman ends ND's QB battle, but not its intrigue, in picking CJ Carr**\
 `The fact Carr winning the job registered as a surprise says something about both players who battled this month to be Notre Dame's next QB1.`\
 https://nytimes.com/athletic/6564055/2025/08/20/notre-dame-cj-carr-marcus-freeman/
-
-**Through cancer treatments and elbow surgeries, 2 resilient rookies are fueling Guardians' bullpen**\
-`Nic Enright and Erik Sabrowski have helped boost a bullpen that now ranks fourth in the league in ERA.`\
-https://nytimes.com/athletic/6557592/2025/08/20/guardians-bullpen-sabrowski-enright-mlb/
 

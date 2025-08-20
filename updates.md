@@ -1,3 +1,11 @@
+**How the U.S. Open showed off one of the most important – but neglected – selling points of tennis**\
+`The best men and women in the world took each other on in New York. Tennis produces that dynamic like no other sport.`\
+https://nytimes.com/athletic/6564356/2025/08/20/tennis-men-against-women-mixed-doubles/
+
+**Preparations for a Move on Gaza City Have Started, Israel’s Military Says**\
+`Troops have reached the city’s outskirts, an Israeli official said, adding that more reservists are being asked to report for duty to cover for other soldiers who will be involved in going into Gaza City.`\
+https://nytimes.com/2025/08/20/world/middleeast/israel-hamas-gaza-city.html
+
 **Target Names New C.E.O. as It Tries to Break Sales Slump**\
 `Michael Fiddelke, the company’s chief operating officer, will step into the role in February.`\
 https://nytimes.com/2025/08/20/business/target-retail-sales-outlook-tariffs.html

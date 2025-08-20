@@ -1,4 +1,8 @@
-**How the U.S. Open showed off one of the most important – but neglected – selling points of tennis**\
+**Forest agree deal to sign Luiz from Juventus**\
+`The move will see the 27-year-old Brazil international move on loan with an obligation to buy based on the number of games he plays.`\
+https://nytimes.com/athletic/6538400/2025/08/20/douglas-luiz-nottingham-forest-transfer-loan/
+
+**How the U.S. Open showed off one of the most important - but neglected - selling points of tennis**\
 `The best men and women in the world took each other on in New York. Tennis produces that dynamic like no other sport.`\
 https://nytimes.com/athletic/6564356/2025/08/20/tennis-men-against-women-mixed-doubles/
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6564397/2025/08/20/footballer-most-appearances-reco
 **Surging, slumping, scoreboard watching: A night in the pennant race with the Mariners' Jerry Dipoto**\
 `With his team on the edge of something special, Seattle's president of baseball operations watched a game with The Athletic.`\
 https://nytimes.com/athletic/6564118/2025/08/20/seattle-mariners-jerry-dipoto/
-
-**Marcus Freeman ends ND's QB battle, but not its intrigue, in picking CJ Carr**\
-`The fact Carr winning the job registered as a surprise says something about both players who battled this month to be Notre Dame's next QB1.`\
-https://nytimes.com/athletic/6564055/2025/08/20/notre-dame-cj-carr-marcus-freeman/
 
