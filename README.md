@@ -1,40 +1,40 @@
-**Forest exploring deal to sign Cash from Villa**\
-`The 28-year-old is among Forest's options as they look to strengthen the right side of defence.`\
-https://nytimes.com/athletic/6563700/2025/08/20/nottingham-forest-aston-villa-matty-cash/
+**A Sacred Recipe for Virility or a Dangerous Drug?**\
+`Unregulated sexual stimulants are flooding West Africa, posing major health risks that officials are scrambling to address.`\
+https://nytimes.com/2025/08/20/world/africa/fake-viagra-smuggling.html
 
-**Mark Goldbridge among Bundesliga's UK broadcast partners for this season**\
-`The new agreement is due to be announced today and is expected to be in place for the Bundesliga’s first round of games.`\
-https://nytimes.com/athletic/6560329/2025/08/20/mark-goldbridge-bundesliga-tv/
+**Texas Republicans Ready to Pass New Redistricting Maps, Just as Trump Wanted**\
+`The effort is intended to help the G.O.P. win five more U.S. House seats in the midterm elections. Other states, red and blue, are likely to redraw their own maps.`\
+https://nytimes.com/2025/08/20/us/politics/texas-republicans-redistricting-maps.html
 
-**Onstage and Onscreen, The New York Times Is Ready for Its Close-Up**\
-`The recognizable masthead has been portrayed in a Betty Boop musical on Broadway, a Marvel movie and many other creative works.`\
-https://nytimes.com/2025/08/20/insider/new-york-times-movies.html
+**Bridget Everett Says a Best Friend Can Be Your Greatest Love (Encore)**\
+`The Somebody Somewhere star is tired of the same old love stories. Her show about friendship earned her an Emmy nomination.`\
+https://nytimes.com/2025/08/20/podcasts/bridget-everett-says-a-best-friend-can-be-your-greatest-love-encore.html
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2025/08/20/crosswords/spelling-bee-forum.html
+**Conjuring Ghosts of Elizabeth Taylor**\
+`A rare perfume worn by the actress was lost to obscurity. Some passionate fans have given it a new life.`\
+https://nytimes.com/2025/08/20/style/elizabeth-taylor-scent-of-mystery-perfume.html
 
-**Word of the Day: bayou**\
-`This word has appeared in 52 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2025/08/20/learning/word-of-the-day-bayou.html
+**Inside Trump’s Effort on Russia and Ukraine**\
+`President Trump has repeatedly bent other leaders to his will, simply by refusing to budge.`\
+https://nytimes.com/video/world/europe/100000010349018/inside-trumps-effort-on-russia-and-ukraine.html
 
-**The New York Times in Print for Wednesday, Aug. 20, 2025**\
-``\
-https://nytimes.com/issue/todayspaper/2025/08/20/todays-new-york-times
+**The New Yorker Who Interviews Doormen on TikTok**\
+`Sara Leeds gained a social media following for her fast-paced conversations with doormen (and women) who serve as gatekeepers and confidants at thousands of buildings.`\
+https://nytimes.com/2025/08/20/nyregion/the-new-yorker-who-interviews-doormen-on-tiktok.html
 
-**We Need a New Language After This War**\
-`We must find a way to speak in a common language again, a language that has a name for everything, even for a person holding a photograph of a dead child.`\
-https://nytimes.com/2025/08/20/opinion/israel-war-language-humanity.html
+**Your Questions (and Criticisms) of Our Recent Shows**\
+`Ezra Klein discusses reactions to his recent episodes with Mahmoud Khalil, Philippe Sands and Yoram Hazony.`\
+https://nytimes.com/2025/08/20/opinion/ezra-klein-podcast-ask-me-anything.html
 
-**Yankees slug their way into the franchise record books for the second time in 2025**\
-`Six Yankees homered against the Rays, including multi-home-run efforts from José Caballero, Giancarlo Stanton and Cody Bellinger.`\
-https://nytimes.com/athletic/6564104/2025/08/20/ny-yankees-single-game-home-run-record/
+**A Wild West Parody Is Topping the Box Office in Germany. What Gives?**\
+`A newly released sequel to the most successful German movie of all time is also a hit, even though the original cowboys-and-Indians film hasn’t necessarily aged well.`\
+https://nytimes.com/2025/08/20/arts/germany-film-manitu.html
 
-**Liverpool look defensively shaky, but Gravenberch can fix it**\
-`The Dutchman's absence so far this season has left his club looking frail at the back`\
-https://nytimes.com/athletic/6559870/2025/08/20/ryan-gravenberch-liverpool-defence/
+**For Zach Cherry, ‘Severance’ Was a Leap of Faith**\
+`The actor’s improv background makes him more comfortable in comedy, but his performance in this twisty sci-fi mystery brought his first Emmy nomination.`\
+https://nytimes.com/2025/08/20/arts/television/for-zach-cherry-severance-was-a-leap-of-faith.html
 
-**Is The Hundred the saviour of English domestic county cricket?**\
-`The ECB tournament has its detractors but the sale of a 49 per cent stake in its franchises raised £520m for the county and grassroots game`\
-https://nytimes.com/athletic/6546341/2025/08/20/cricket-hundred-county-saviour/
+**Amy Klobuchar: I Knew Deepfakes Were a Problem. Then I Saw One of Myself.**\
+`Deepfakes are getting more realistic, and more difficult to stop. Congress needs to take steps now.`\
+https://nytimes.com/2025/08/20/opinion/amy-klobuchar-deepfakes.html
 
