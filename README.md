@@ -1,3 +1,7 @@
+**Bears signing QB Tyson Bagent to 2-year, $10 million extension: Source**\
+`Bagent solidifies his role as the primary backup to Caleb Williams and keeps him with Chicago through the 2027 season.`\
+https://nytimes.com/athletic/6565233/2025/08/20/bears-qb-tyson-bagent-contract-extension/
+
 **What Do You Want to Read About Disability?**\
 `Input from readers will help shape our coverage.`\
 https://nytimes.com/2025/08/20/us/disability-stories-callout.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6564527/2025/08/20/alexander-isak-newcastle-and-liv
 **Scoop City: Anatomy of a QB failure and WR promise**\
 `Thoughts on the Colts quarterback situation and the rookie receiver who might be this year's Justin Jefferson.`\
 https://nytimes.com/athletic/6565116/2025/08/20/colts-qb-situation-nfl-emeka-egbuka-fantasy-scoop-city/
-
-**The Windup: What's up with MLB's left-handed pitching surge?**\
-`Welcome to The Windup, The Athletic's MLB newsletter.`\
-https://nytimes.com/athletic/6565158/2025/08/20/mlb-left-handed-pitching-the-windup/
 
