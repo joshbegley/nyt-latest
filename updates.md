@@ -1,3 +1,7 @@
+**Real Madrid mailbag: Ask Mario Cortegana and Guillermo Rai your questions**\
+`The early signs under Xabi Alonso are promising. But what do you want to know about Madrid's season?`\
+https://nytimes.com/athletic/6564377/2025/08/20/real-madrid-2025-26-mailbag/
+
 **How to watch the Tour Championship, the FedEx Cup finale at East Lake**\
 `This year’s Tour Championship arrives with a clean slate. Can Scottie Scheffler win for the second year in a row?`\
 https://nytimes.com/athletic/6563603/2025/08/20/tour-championship-2025-playoff-format-how-to-watch/
