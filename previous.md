@@ -1,40 +1,40 @@
-**If You Have Time for Just One Romance Novel, Make It This One**\
-`Our critic says Regina Black’s “August Lane” is the best book she’s read this year.`\
-https://nytimes.com/2025/08/20/books/review/new-romance-books.html
+**Fluminense goalkeeper Fabio breaks Shilton's all-time appearance record**\
+`Fabio played his 1,391st game on Wednesday, overtaking Shilton's record of 1,390 appearances.`\
+https://nytimes.com/athletic/6564397/2025/08/20/footballer-most-appearances-record-fabio-peter-shilton/
 
-**TAFC: The Chiesa chant and the fallout. Plus: Rangers chaos and panic rankings**\
-`Explaining the context of Liverpool fans' song and why it matters`\
-https://nytimes.com/athletic/6564225/2025/08/20/chiesa-chant-liverpool-rangers-tafc/
+**Surging, slumping, scoreboard watching: A night in the pennant race with the Mariners' Jerry Dipoto**\
+`With his team on the edge of something special, Seattle's president of baseball operations watched a game with The Athletic.`\
+https://nytimes.com/athletic/6564118/2025/08/20/seattle-mariners-jerry-dipoto/
 
-**Feldman's preseason College Football Playoff bracket: Who will win the national title?**\
-`Who will make the College Football Playoff bracket this winter? Bruce Feldman runs through his 12 teams and each round to crown a champion.`\
-https://nytimes.com/athletic/6562950/2025/08/20/college-football-playoff-bracket-predictions-bruce-feldman/
+**Marcus Freeman ends ND's QB battle, but not its intrigue, in picking CJ Carr**\
+`The fact Carr winning the job registered as a surprise says something about both players who battled this month to be Notre Dame's next QB1.`\
+https://nytimes.com/athletic/6564055/2025/08/20/notre-dame-cj-carr-marcus-freeman/
 
-**Dodgers prospect lost use of his right eye, but his big-league vision remains**\
-`Patrick Copen took a comebacker to his face one year ago. Now he's back on the mound and rising up the ranks. `\
-https://nytimes.com/athletic/6562793/2025/08/20/dodgers-pitching-prospect-patrick-copen-lost-vision-eye/
+**Through cancer treatments and elbow surgeries, 2 resilient rookies are fueling Guardians' bullpen**\
+`Nic Enright and Erik Sabrowski have helped boost a bullpen that now ranks fourth in the league in ERA.`\
+https://nytimes.com/athletic/6557592/2025/08/20/guardians-bullpen-sabrowski-enright-mlb/
 
-**The Pulse: Football's nervous contenders**\
-`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
-https://nytimes.com/athletic/6563329/2025/08/20/ravens-penn-state-football-the-pulse/
+**Mandel's Mailbag: It's time to put a bow on the Michigan scandal**\
+`Also: Is Dabo Swinney's window closed? And a 28-team CFP proposal from Tony Petitti.`\
+https://nytimes.com/athletic/6563884/2025/08/20/mandels-mailbag-michigan-scandal/
 
-**Real Madrid mailbag: Ask Mario Cortegana and Guillermo Rai your questions**\
-`The early signs under Xabi Alonso are promising. But what do you want to know about Madrid's season?`\
-https://nytimes.com/athletic/6564377/2025/08/20/real-madrid-2025-26-mailbag/
+**Tarik Skubal, Hunter Brown and the anatomy of a modern pitching duel**\
+`Skubal and Brown pitched like legitimate Cy Young Award contenders Tuesday night in Detroit. `\
+https://nytimes.com/athletic/6564112/2025/08/20/tarik-skubal-hunter-brown-modern-pitching-duel/
 
-**How to watch the Tour Championship, the FedEx Cup finale at East Lake**\
-`This year’s Tour Championship arrives with a clean slate. Can Scottie Scheffler win for the second year in a row?`\
-https://nytimes.com/athletic/6563603/2025/08/20/tour-championship-2025-playoff-format-how-to-watch/
+**How and why Iowa State and Kansas State brought 'Farm O' Geddon' to Ireland**\
+`How did a rivalry with so much importance to America's breadbasket end up in Ireland?`\
+https://nytimes.com/athletic/6562670/2025/08/20/college-football-ireland-iowa-state-kansas-state/
 
-**Vikings GM Kwesi Adofo-Mensah: Unique decision-maker or just a 'normal-ass dude'?**\
-`Entering his fourth season, Adofo-Mensah doesn't see himself as exceptional. But his career arc and approach are anything but typical.`\
-https://nytimes.com/athletic/6562339/2025/08/20/vikings-gm-kwesi-adofo-mensah-decisions/
+**Stewart Mandel's SEC predictions: Is it time for a Texas takeover?**\
+`Only three SEC teams made the College Football Playoff last year, but the conference is deep with contenders in 2025.`\
+https://nytimes.com/athletic/6560780/2025/08/20/2025-sec-football-predictions-texas-alabama/
 
-**Commanders, Terry McLaurin still can't reach a deal. How did we get here?**\
-`As the impasse continues, with McLaurin absent from the team's second preseason game on Monday, some large questions remain unanswered.`\
-https://nytimes.com/athletic/6563035/2025/08/20/commanders-terry-mclaurin-contract-holdout-nfl-news/
+**Fernando Tatis Jr.'s power is missing. His contact point may be to blame**\
+`Tatis is getting on base and making contact, but his power has dropped off. His "intercept point" may be to blame.`\
+https://nytimes.com/athletic/6563290/2025/08/20/fernando-tatis-power-drop-intercept-point/
 
-**‘No superstars’ and the power of anxiety: How McLaren is building the next F1 dynasty**\
-`McLaren is set to win a first F1 world title double since 1998 this season - a dramatic turnaround from the still-struggling team of 2022`\
-https://nytimes.com/athletic/6559951/2025/08/20/f1-mclaren-piastri-norris/
+**Blue Jays flip page from Monday's mess, earn decisive win over Pirates**\
+`Vladimir Guerrero Jr. received promising injury news as Toronto rebounded to stop a brief skid.`\
+https://nytimes.com/athletic/6564059/2025/08/20/blue-jays-flip-page-earn-decisive-win-pirates/
 
