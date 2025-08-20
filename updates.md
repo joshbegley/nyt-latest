@@ -1,3 +1,7 @@
+**Arsenal reach agreement in principle to sign Eze from Palace**\
+`The deal is worth in the region of the expired £68m release clause, matching level of fee Tottenham Hotspur were prepared to pay.`\
+https://nytimes.com/athletic/6565048/2025/08/20/eberechi-eze-arsenal-transfer-agreement/
+
 **What’s in Our Queue? ‘The Gilded Age’ and More **\
 `Text by Jordyn Holman`\
 https://nytimes.com/card/2025/08/20/arts/editors-recommendations-gildedage
