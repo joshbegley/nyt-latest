@@ -1,3 +1,11 @@
+**Target Names New C.E.O. as It Tries to Break Sales Slump**\
+`Michael Fiddelke, the company’s chief operating officer, will step into the role in February.`\
+https://nytimes.com/2025/08/20/business/target-retail-sales-outlook-tariffs.html
+
+**Trump Calls Netanyahu a ‘War Hero’ and Adds: ‘I Guess I Am Too’**\
+`President Trump praised Prime Minister Benjamin Netanyahu of Israel for bombing Iranian nuclear sites, and credited himself as well.`\
+https://nytimes.com/2025/08/20/world/middleeast/trump-war-hero-netanyahu-iran.html
+
 **How We Vote**\
 `We explore President Trump effort to eliminate mailed ballots and voting machines.`\
 https://nytimes.com/2025/08/20/briefing/voting-machines-mailin-voting.html

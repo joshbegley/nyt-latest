@@ -1,3 +1,11 @@
+**Target Names New C.E.O. as It Tries to Break Sales Slump**\
+`Michael Fiddelke, the company’s chief operating officer, will step into the role in February.`\
+https://nytimes.com/2025/08/20/business/target-retail-sales-outlook-tariffs.html
+
+**Trump Calls Netanyahu a ‘War Hero’ and Adds: ‘I Guess I Am Too’**\
+`President Trump praised Prime Minister Benjamin Netanyahu of Israel for bombing Iranian nuclear sites, and credited himself as well.`\
+https://nytimes.com/2025/08/20/world/middleeast/trump-war-hero-netanyahu-iran.html
+
 **How We Vote**\
 `We explore President Trump effort to eliminate mailed ballots and voting machines.`\
 https://nytimes.com/2025/08/20/briefing/voting-machines-mailin-voting.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6564055/2025/08/20/notre-dame-cj-carr-marcus-freema
 **Through cancer treatments and elbow surgeries, 2 resilient rookies are fueling Guardians' bullpen**\
 `Nic Enright and Erik Sabrowski have helped boost a bullpen that now ranks fourth in the league in ERA.`\
 https://nytimes.com/athletic/6557592/2025/08/20/guardians-bullpen-sabrowski-enright-mlb/
-
-**Mandel's Mailbag: It's time to put a bow on the Michigan scandal**\
-`Also: Is Dabo Swinney's window closed? And a 28-team CFP proposal from Tony Petitti.`\
-https://nytimes.com/athletic/6563884/2025/08/20/mandels-mailbag-michigan-scandal/
-
-**Tarik Skubal, Hunter Brown and the anatomy of a modern pitching duel**\
-`Skubal and Brown pitched like legitimate Cy Young Award contenders Tuesday night in Detroit. `\
-https://nytimes.com/athletic/6564112/2025/08/20/tarik-skubal-hunter-brown-modern-pitching-duel/
 
