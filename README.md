@@ -1,5 +1,9 @@
+**Trump Says Smithsonian Focuses Too Much on ‘How Bad Slavery Was’**\
+`The remark, made as the president has ordered a wide-ranging review of museum exhibits, added to his pattern of minimizing Black history.`\
+https://nytimes.com/2025/08/19/us/politics/trump-smithsonian-slavery.html
+
 **Mekhi Becton returns to Chargers practice — will he be ready for Week 1?**\
-`Becton still has not participated in team drills since July 28 but Greg Roman said "I think he’ll be good to go" for the season opener.`\
+`Becton still has not participated in team drills since July 28, but Greg Roman said "I think he’ll be good to go" for the season opener.`\
 https://nytimes.com/athletic/6563910/2025/08/19/chargers-mekhi-becton-return-week-1/
 
 **Position changes – for Mookie Betts or Teoscar Hernández – aren't coming any time soon for Dodgers**\
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/08/19/us/trump-zelensky-ukraine-russia/the-ukraini
 **Newly Discovered Origami Patterns Put the Bloom on the Fold**\
 `Bloom patterns could be useful, as engineers build folding structures to send to outer space. They’re also very pretty.`\
 https://nytimes.com/2025/08/19/science/origami-bloom-patterns.html
-
-**As José Alvarado returns to crowded Phillies bullpen, can Jordan Romano justify his spot?**\
-`Romano cannot pitch multiple innings, and he's recorded three outs in only one of his six outings this month.`\
-https://nytimes.com/athletic/6563707/2025/08/19/philadelphia-phillies-jordan-romano-bullpen-design/
 

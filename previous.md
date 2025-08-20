@@ -1,3 +1,7 @@
+**Mekhi Becton returns to Chargers practice — will he be ready for Week 1?**\
+`Becton still has not participated in team drills since July 28 but Greg Roman said "I think he’ll be good to go" for the season opener.`\
+https://nytimes.com/athletic/6563910/2025/08/19/chargers-mekhi-becton-return-week-1/
+
 **Position changes – for Mookie Betts or Teoscar Hernández – aren't coming any time soon for Dodgers**\
 `Betts did not replace Hernández in right field on Tuesday night, as both former All-Stars assumed their usual positions.`\
 https://nytimes.com/athletic/6563896/2025/08/19/los-angeles-dodgers-mookie-betts-teoscar-hernandez-positions/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/19/science/origami-bloom-patterns.html
 **As José Alvarado returns to crowded Phillies bullpen, can Jordan Romano justify his spot?**\
 `Romano cannot pitch multiple innings, and he's recorded three outs in only one of his six outings this month.`\
 https://nytimes.com/athletic/6563707/2025/08/19/philadelphia-phillies-jordan-romano-bullpen-design/
-
-**Deadly Flash Floods Lash Northern Pakistan**\
-`Torrential rains continued pouring on dozens of villages in northern Pakistan, triggering flash floods that have wiped out houses and killed hundreds.`\
-https://nytimes.com/video/world/asia/100000010350391/pakistan-flash-floods-monsoon.html
 
