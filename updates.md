@@ -1,3 +1,11 @@
+**Fantasy football hot takes for Malik Nabers, Jaxon Smith-Njigba and more**\
+`The Athletic fantasy football crew share their spiciest hot takes for the coming season, including multiple (and diverging) opinions on JSN.`\
+https://nytimes.com/athletic/6560938/2025/08/20/fantasy-football-2025-malik-nabers-jaxon-smith-njigba/
+
+**What Russia Is Doing to Grab Ukrainian Land While It Still Can**\
+`As negotiations over the war carry on, President Vladimir V. Putin is pushing hard with tactics that have evolved over three and a half years.`\
+https://nytimes.com/2025/08/20/world/europe/ukraine-russia-battlefield.html
+
 **NASCAR's 2026 Cup Series schedule: Highlights and lowlights of the 38-race slate**\
 `San Diego and more intermediate tracks: Good. Watkins Glen in May and a couple more blows to fans in the Northeast: Not so much.`\
 https://nytimes.com/athletic/6564041/2025/08/20/nascar-2026-cup-series-schedule-highlights-changes/
