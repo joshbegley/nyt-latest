@@ -1,3 +1,7 @@
+**The Pulse: Football's nervous contenders**\
+`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/6563329/2025/08/20/ravens-penn-state-football-the-pulse/
+
 **Real Madrid mailbag: Ask Mario Cortegana and Guillermo Rai your questions**\
 `The early signs under Xabi Alonso are promising. But what do you want to know about Madrid's season?`\
 https://nytimes.com/athletic/6564377/2025/08/20/real-madrid-2025-26-mailbag/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6564110/2025/08/20/matt-olson-pete-rose-braves-win-
 **How Notre Dame became a more durable national championship contender**\
 `Notre Dame is no longer trying to bend the soul of college football to its will. It's focused on competing for titles every single year.`\
 https://nytimes.com/athletic/6561517/2025/08/20/notre-dame-football-recruiting-national-championships/
-
-**Phillies' Cristopher Sánchez meets the moment amid Zack Wheeler's IL stint**\
-`Sánchez left the game after 96 pitches, staring at the standing sea of blue and red applauding him, and lifted his cap.`\
-https://nytimes.com/athletic/6564073/2025/08/20/phillies-win-mariners-cristopher-sanchez-strikes-out-12/
 
