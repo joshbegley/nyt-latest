@@ -1,3 +1,11 @@
+**Broncos trade DeVaughn Vele to Saints: Why Denver could part with WR**\
+`Denver will receive a fourth-round pick in 2026 and a seventh-round pick in 2027 for promising wideout.`\
+https://nytimes.com/athletic/6566061/2025/08/20/broncos-trade-devaughn-vele-saints-draft-picks/
+
+**U.S. Navy Sailor Is Convicted of Spying for China**\
+`Jinchao Wei provided a Chinese intelligence officer with defense and weapons abilities of U.S. warships, including their vulnerabilities, prosecutors said.`\
+https://nytimes.com/2025/08/20/us/us-navy-sailor-china-spy-convicted.html
+
 **Jihaad Campbell's rapid rise in 'Block Destruction University' signals he'll start Week 1**\
 `Jihaad Campbell's flexibility at the linebacker position is a huge asset.`\
 https://nytimes.com/athletic/6563460/2025/08/20/eagles-jihaad-campbell-block-destruction-university/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/08/20/us/politics/marco-rubio-ukraine.html
 **How Climate Change Affects Hurricanes Like Erin**\
 `Global warming is changing the way storms behave.`\
 https://nytimes.com/2025/08/20/climate/climate-change-hurricanes.html
-
-**How Trump Is Forcing Foes to Pay Up**\
-`President Trump is getting universities, trading partners and law firms to agree to spend big on his terms, often to end fights he picked.`\
-https://nytimes.com/2025/08/20/us/politics/trump-payments-colleges-law-firms.html
-
-**Bruce Slovin, Who Unified Jewish Archives in New York, Dies at 89**\
-`A corporate executive who specialized in mergers, he brought together five Jewish institutions and their collections at the Center for Jewish History in Manhattan.`\
-https://nytimes.com/2025/08/20/nyregion/bruce-slovin-dead.html
 
