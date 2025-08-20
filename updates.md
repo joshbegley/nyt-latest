@@ -1,3 +1,7 @@
+**Join The Athletic fantasy football Discord server**\
+`Seeking some sage fantasy football advice? Come join our season-long chat in The Athletic's fantasy football Discord server.`\
+https://nytimes.com/athletic/6562700/2025/08/20/fantasy-football-discord-jake-ciely-brandon-funston/
+
 **Alyssa Naeher's first NWSL goal as told by her Stars teammates: 'I just felt pure joy'**\
 `In her record 200th NWSL appearance, the former U.S. goalkeeper scored her first league goal to complete a three-goal comeback for Chicago.`\
 https://nytimes.com/athletic/6565707/2025/08/20/alyssa-naeher-nwsl-uswnt-goal-chicago-stars/

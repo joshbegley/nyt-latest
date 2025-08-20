@@ -1,3 +1,7 @@
+**East Coast Braces for Rip Currents From Hurricane Erin**\
+`States from Florida to Maine are bracing for potentially life-threatening surf and rip currents as Hurricane Erin brushes past the East Coast.`\
+https://nytimes.com/video/weather/100000010352200/hurricane-erin-waves-rip-currents.html
+
 **Join The Athletic fantasy football Discord server**\
 `Seeking some sage fantasy football advice? Come join our season-long chat in The Athletic's fantasy football Discord server.`\
 https://nytimes.com/athletic/6562700/2025/08/20/fantasy-football-discord-jake-ciely-brandon-funston/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/20/world/middleeast/israel-e1-settlement-west-bank.h
 **Stephanie Shirley, Who Created a Tech World for Women, Dies at 91**\
 `In 1962, she started a software company at her dining room table with a revolutionary idea: to create a place where women could find a work-life balance.`\
 https://nytimes.com/2025/08/20/business/stephanie-shirley-dead.html
-
-**Gazans React to Israel’s Preparations to Take Over Gaza City**\
-`Palestinians expressed frustration on Wednesday over Israel’s announcement to call up tens of thousands of reservists for an operation to take control of Gaza City.`\
-https://nytimes.com/video/world/middleeast/100000010351595/israel-gaza-city-attack.html
 
