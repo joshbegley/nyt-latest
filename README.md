@@ -1,3 +1,7 @@
+**Mets put it all together in best performance in weeks**\
+`"We played a complete game," Carlos Mendoza said of the Mets' 8-1 win over the Nationals on Tuesday.`\
+https://nytimes.com/athletic/6564016/2025/08/19/mets-nationals-best-performance-in-weeks/
+
 **Boxer Julio César Chávez Jr. deported from U.S., faces charges in Mexico**\
 `Chavez, 39, had a warrant for his arrest in Mexico in connection with alleged arms, drug trafficking and cartel ties.`\
 https://nytimes.com/athletic/6563900/2025/08/19/julio-cesar-chavez-jr-deported/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/19/us/politics/hollywood-fundraiser-susan-collins-de
 **Trump’s White House Joins TikTok**\
 `The move continues a remarkable turnabout toward the app for President Trump, who tried to ban TikTok in his first term.`\
 https://nytimes.com/2025/08/19/us/politics/white-house-tiktok-trump.html
-
-**With Mac Jones hurt, 49ers sign another QB, weigh playing Brock Purdy in finale**\
-`Renardo Green and Isaac Guerendo were among those who returned for a practice in which Brock Purdy and Ricky Pearsall continued to connect.`\
-https://nytimes.com/athletic/6563765/2025/08/19/mac-jones-injury-brock-purdy/
 
