@@ -1,3 +1,11 @@
+**Federal Agents Detain Dozens of Workers in Raid at New Jersey Warehouse**\
+`It appeared to be among the largest federal raids in the state since President Trump took office.`\
+https://nytimes.com/2025/08/20/nyregion/immigration-raid-warehouse-edison-new-jersey.html
+
+**Giants' Landen Roupp carted off the field after apparent leg injury**\
+`Roupp, 26, was making his 22nd start of the season, and his second since returning from a three-week stint on the IL.`\
+https://nytimes.com/athletic/6566355/2025/08/20/san-francisco-giants-landen-roupp-injury/
+
 **Mets' positive momentum halted in frustrating loss to Nationals as familiar problems return**\
 `For the Mets to qualify for the postseason, they need better from Kodai Senga and an offense that slumbers against middle relievers.`\
 https://nytimes.com/athletic/6566268/2025/08/20/mets-positive-momentum-halted-loss-to-nationals-familiar-problems/
