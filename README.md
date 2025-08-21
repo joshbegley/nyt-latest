@@ -1,3 +1,7 @@
+**Police ‘Failed’ Slain Woman Who Reported Ex’s Harassment, Family Says**\
+`Dr. Lauren Semanchik told the police that she was “especially uncomfortable” because her ex-boyfriend was a state trooper. She and her boyfriend were later shot to death.`\
+https://nytimes.com/2025/08/21/nyregion/semanchik-murder-new-jersey-police.html
+
 **Kyle Tucker returns but struggles persist as Cubs drop finale to Milwaukee**\
 `Tucker returned to the lineup after sitting for three games but went hitless Thursday, making him 0-for-8 in the two losses this series.`\
 https://nytimes.com/athletic/6568305/2025/08/21/kyle-tucker-cubs-brewers-series/
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/08/20/weather/hurricane-erin/erins-gusts-sent-a-wi
 **See Trump’s Use of Federal Law Enforcement in D.C.**\
 `Times journalists reviewed hundreds of images and videos of law enforcement agents to determine what they have been doing on the ground.`\
 https://nytimes.com/2025/08/21/us/politics/dc-police-national-guard-trump.html
-
-**California Democrats Pass Redistricting Plan to Counter Texas Republicans**\
-`State lawmakers moved quickly to create new districts that could help Democrats flip five congressional seats. Their plan still requires voter approval.`\
-https://nytimes.com/2025/08/21/us/politics/california-newsom-redistricting-texas.html
 

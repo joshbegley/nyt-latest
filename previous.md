@@ -1,3 +1,7 @@
+**Kyle Tucker returns but struggles persist as Cubs drop finale to Milwaukee**\
+`Tucker returned to the lineup after sitting for three games but went hitless Thursday, making him 0-for-8 in the two losses this series.`\
+https://nytimes.com/athletic/6568305/2025/08/21/kyle-tucker-cubs-brewers-series/
+
 **Minnesota’s Democratic Party Revokes Endorsement of Mayoral Candidate**\
 `State Democratic officials withdrew the endorsement of a Minneapolis mayoral candidate who has drawn comparisons to Zohran Mamdani, the New York mayoral hopeful.`\
 https://nytimes.com/2025/08/21/us/minnesotas-democratic-party-revokes-endorsement-of-mayoral-candidate.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/21/us/politics/dc-police-national-guard-trump.html
 **California Democrats Pass Redistricting Plan to Counter Texas Republicans**\
 `State lawmakers moved quickly to create new districts that could help Democrats flip five congressional seats. Their plan still requires voter approval.`\
 https://nytimes.com/2025/08/21/us/politics/california-newsom-redistricting-texas.html
-
-**Packers-Seahawks joint practice: One big brawl and 9 other observations**\
-`Packers right tackle Zach Tom got kicked out of Thursday's joint practice for throwing haymakers at multiple Seahawks during a scuffle.`\
-https://nytimes.com/athletic/6568263/2025/08/21/packers-seahawks-joint-practice-fight/
 
