@@ -1,3 +1,7 @@
+**Want to guarantee 2027 All-Star Game tickets at Wrigley? The Cubs have a plan for that**\
+`The Cubs want to ensure the tickets they're allocated for the events go to fans "who are going to be here for a long time."`\
+https://nytimes.com/athletic/6567232/2025/08/21/cubs-all-star-game-season-ticket-holders/
+
 **Apple Fitness Chief Accused of Toxic Workplace Culture and Harassment**\
 `Workers say the executive was volatile and retaliated when they cooperated with an investigation. Apple denies the claims.`\
 https://nytimes.com/2025/08/21/technology/apple-fitness-jay-blahnik.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/21/us/politics/trump-administration-education-instru
 **Anxiety Mounts in Gaza City as Israel Threatens a New Offensive**\
 `The Israeli military announced its operation to take Gaza City, where many displaced Palestinians have taken refuge, was underway on Thursday, even as Prime Minister Benjamin Netanyahu considered a cease-fire proposal.`\
 https://nytimes.com/video/world/middleeast/100000010353185/gaza-city-israel-offensive-protest-.html
-
-**Hurricane Erin Storm Surge Causes Flooding in North Carolina**\
-`Forecasters said Erin had made its closest approach to the North Carolina coast on Wednesday, and storm surge flooding, large waves and strong winds were expected to batter the region on Thursday.`\
-https://nytimes.com/video/weather/100000010353421/hurricane-erin-north-carolina.html
 
