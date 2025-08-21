@@ -1,3 +1,27 @@
+**What Progress Has Trump Really Made in Ukraine Peace Talks?**\
+`The gulf between Moscow and Kyiv’s positions remains huge, and that is crashing into the expectations set by the White House.`\
+https://nytimes.com/2025/08/21/world/europe/russia-ukraine-peace-talks-trump.html
+
+**Ryan O’Hearn, Gavin Sheets seizing opportunities to address Padres’ lack of power**\
+`The Padres’ four home runs Wednesday — including three from Sheets and O'Hearn — were their most since they crushed five on May 10.`\
+https://nytimes.com/athletic/6566518/2025/08/21/sd-padres-ryan-ohearn-gavin-sheets/
+
+**Wolves in talks to sign Krejci from Girona**\
+`An agreement has not yet been reached between the two sides but they remain in negotiations over a deal for the 26-year-old.`\
+https://nytimes.com/athletic/6566626/2025/08/21/wolves-ladislav-krejci-girona-transfer/
+
+**Why India Is Stuck on Russian Oil**\
+`Three years ago, India ramped up its imports of Russia’s oil. Now President Trump is demanding that India reverse course and quit its cheap Russian oil habit or face debilitating tariffs. Alex Travelli, a Times reporter, explains.`\
+https://nytimes.com/video/world/asia/100000010339930/why-india-is-stuck-on-russian-oil.html
+
+**Peace Changed the Village Where War Changed Me**\
+`Fifteen years after a combat photographer lost his legs to a land mine, he returned to the place in Afghanistan where it happened.`\
+https://nytimes.com/2025/08/21/world/asia/afghanistan-joao-silva.html
+
+**Arsenal in advanced talks with Werder Bremen over Hein loan**\
+`The Estonia international, who made 31 appearances in La Liga last season on loan at Real Valladolid, joined Arsenal in 2019.`\
+https://nytimes.com/athletic/6566887/2025/08/21/arsenal-transfer-news-karl-hein-loan/
+
 **Heart of the Menendez Case: Who Deserves a Second Chance?**\
 `Media attention has brought the Menendez brothers to the cusp of early release from prison. Criminal justice reform proponents hope other prisoners benefit.`\
 https://nytimes.com/2025/08/21/us/menendez-brothers-lawyer-resentencing.html
@@ -13,28 +37,4 @@ https://nytimes.com/2025/08/21/business/dealbook/powell-trump-cook-fed-independe
 **Burning Rangers questions for 2025-26: Will the team extend Artemi Panarin?**\
 `Only one year remains on the seven-year, $81.5 million deal that brought Panarin to New York. This leaves the team at a big crossroads`\
 https://nytimes.com/athletic/6565062/2025/08/21/artemi-panarin-rangers-contract-nhl-free-agency/
-
-**Maguire on his Man Utd future and being a leader**\
-`The 32-year-old speaks after attending a charity event in Stretford. He believes he's back playing his best but his contract is up next June`\
-https://nytimes.com/athletic/6566646/2025/08/21/harry-maguire-manchester-united-interview/
-
-**Colt Keith’s return to third base helps Tigers solve a puzzle — now and maybe in the future**\
-`Keith has made 20 starts at third base after another midseason position change. Might it alter Detroit's offseason needs?`\
-https://nytimes.com/athletic/6565268/2025/08/21/colt-keith-third-base-tigers/
-
-**College football quiz: Do you remember who's in which conference?**\
-`There's rarely a college football season without conference changes. Do you know who's where heading into 2025?`\
-https://nytimes.com/athletic/6566758/2025/08/21/college-football-conference-realignment-quiz/
-
-**Real Madrid mailbag: Our writers answer questions on Vinicius Jr, Alexander-Arnold's best position and more**\
-`Mario Cortegana and Guillermo Rai answer your questions about a range of topics at the Bernabeu as a new season kicks off`\
-https://nytimes.com/athletic/6566693/2025/08/21/real-madrid-mailbag-vinicius-alexander-arnold/
-
-**Wait, Michigan doesn't have any in-state recruits? What to make of a unique 2026 class**\
-`A year after signing the nation's No. 1 recruit Bryce Underwood from in state, the Class of 2026 looks a lot different for Michigan.`\
-https://nytimes.com/athletic/6565307/2025/08/21/michigan-football-recruiting-in-state-2026-class/
-
-**Why Bill Belichick, Frank Reich face unique task in jumping from NFL to college football**\
-`College football may be becoming more like the NFL in some ways, but Belichick and Reich still face unique challenges in 2025.`\
-https://nytimes.com/athletic/6565143/2025/08/21/college-football-nfl-coaches-belichick-reich/
 
