@@ -1,3 +1,7 @@
+**Jair Bolsonaro Planned to Seek Asylum in Argentina, Brazil’s Police Say**\
+`The police said they found a request for asylum, addressed to Argentina’s leader, on the phone of the Brazilian ex-president, who is accused of plotting a coup.`\
+https://nytimes.com/2025/08/20/world/americas/jair-bolsonaro-brazil-asylum-argentina.html
+
 **A Huge Cave in Kentucky Was a Smelly Disaster. Now It’s Spectacular.**\
 `Hidden River Cave was once filled with heavy metals and sewage that made the surrounding town smell awful. After a cleanup, it became a tourist draw.`\
 https://nytimes.com/2025/08/20/climate/horse-hidden-river-cave-pollution-cleanup.html
