@@ -15,7 +15,7 @@ https://nytimes.com/athletic/6566061/2025/08/20/broncos-trade-devaughn-vele-sain
 https://nytimes.com/2025/08/20/us/us-navy-sailor-china-spy-convicted.html
 
 **Jihaad Campbell's rapid rise in 'Block Destruction University' signals he'll start Week 1**\
-`Jihaad Campbell's flexibility at the linebacker position is a huge asset.`\
+`Campbell's flexibility at the linebacker position is a huge asset to the Eagles.`\
 https://nytimes.com/athletic/6563460/2025/08/20/eagles-jihaad-campbell-block-destruction-university/
 
 **Rebuilding Pac-12 set to add college baseball powerhouse Dallas Baptist: Sources**\

@@ -1,3 +1,7 @@
+**Jihaad Campbell's rapid rise in 'Block Destruction University' signals he'll start Week 1**\
+`Campbell's flexibility at the linebacker position is a huge asset to the Eagles.`\
+https://nytimes.com/athletic/6563460/2025/08/20/eagles-jihaad-campbell-block-destruction-university/
+
 **Texas House Approves Redistricting Maps**\
 `The Texas House passed a partisan congressional map on Wednesday after weeks of legislative combat.`\
 https://nytimes.com/video/us/politics/100000010352562/texas-republican-redistricting-maps.html
