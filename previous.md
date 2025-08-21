@@ -23,18 +23,18 @@ https://nytimes.com/athletic/6565268/2025/08/21/colt-keith-third-base-tigers/
 https://nytimes.com/athletic/6566758/2025/08/21/college-football-conference-realignment-quiz/
 
 **Real Madrid mailbag: Our writers answer questions on Vinicius Jr, Alexander-Arnold's best position and more**\
-`Mario Cortegana and Guillermo Rai answer your questions about a range of topics at Madrid`\
+`Mario Cortegana and Guillermo Rai answer your questions about a range of topics at the Bernabeu as a new season kicks off`\
 https://nytimes.com/athletic/6566693/2025/08/21/real-madrid-mailbag-vinicius-alexander-arnold/
 
-**How does college football coaching differ from the NFL? 'A whole different world'**\
+**Wait, Michigan doesn't have any in-state recruits? What to make of a unique 2026 class**\
+`A year after signing the nation's No. 1 recruit Bryce Underwood from in state, the Class of 2026 looks a lot different for Michigan.`\
+https://nytimes.com/athletic/6565307/2025/08/21/michigan-football-recruiting-in-state-2026-class/
+
+**Why Bill Belichick, Frank Reich face unique task in jumping from NFL to college football**\
 `College football may be becoming more like the NFL in some ways, but Belichick and Reich still face unique challenges in 2025.`\
 https://nytimes.com/athletic/6565143/2025/08/21/college-football-nfl-coaches-belichick-reich/
 
 **Trump Administration Live Updates: U.S. and E.U. Agree on Details of Trade Deal**\
 ``\
 https://nytimes.com/live/2025/08/21/us/trump-news
-
-**Key Cowboys players and roster battles to watch in final preseason game**\
-`The Cowboys' last preseason game is Friday and Joe Milton, Jaydon Blue, several receivers and defensive tackles will be in the spotlight.`\
-https://nytimes.com/athletic/6566506/2025/08/21/cowboys-preseason-key-players-joe-milton/
 

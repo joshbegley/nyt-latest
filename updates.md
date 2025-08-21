@@ -1,3 +1,15 @@
+**Real Madrid mailbag: Our writers answer questions on Vinicius Jr, Alexander-Arnold's best position and more**\
+`Mario Cortegana and Guillermo Rai answer your questions about a range of topics at the Bernabeu as a new season kicks off`\
+https://nytimes.com/athletic/6566693/2025/08/21/real-madrid-mailbag-vinicius-alexander-arnold/
+
+**Wait, Michigan doesn't have any in-state recruits? What to make of a unique 2026 class**\
+`A year after signing the nation's No. 1 recruit Bryce Underwood from in state, the Class of 2026 looks a lot different for Michigan.`\
+https://nytimes.com/athletic/6565307/2025/08/21/michigan-football-recruiting-in-state-2026-class/
+
+**Why Bill Belichick, Frank Reich face unique task in jumping from NFL to college football**\
+`College football may be becoming more like the NFL in some ways, but Belichick and Reich still face unique challenges in 2025.`\
+https://nytimes.com/athletic/6565143/2025/08/21/college-football-nfl-coaches-belichick-reich/
+
 **Gladbach in talks to sign USMNT's Reyna from Dortmund**\
 `The 22-year-old's contract at Dortmund is set to expire next summer.`\
 https://nytimes.com/athletic/6506391/2025/08/21/gio-reyna-gladbach-dortmund-transfer/
