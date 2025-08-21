@@ -1,3 +1,11 @@
+**Christian Pulisic is now debate bait, but past U.S. coaches have a unified take**\
+`Pulisic's persona took a polarizing turn this summer, but it's Mauricio Pochettino's preference that will eclipse any public perception`\
+https://nytimes.com/athletic/6564033/2025/08/21/christian-pulisic-usmnt-coaches-pochettino-world-cup/
+
+**The New York Times International Edition in Print for Friday, Aug. 22, 2025**\
+``\
+https://nytimes.com/issue/todaysinyt/2025/08/21/todays-new-york-times-international-edition
+
 **Falcons rookie report: Jalon Walker still slowed; defensive backs still finding roles**\
 `The Falcons drafted five players this spring. Four are expected to be significant contributors once the season begins.`\
 https://nytimes.com/athletic/6565492/2025/08/21/falcons-rookie-report-jalon-walker-james-pearce/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/08/21/business/stocks-nvidia-federal-reserve.html
 **A Park That Floods Every Time It Rains**\
 `Flushing Meadows Corona Park, which covers nearly 900 acres in Queens, has been plagued with expensive infrastructure problems. A new report suggests ways to address them.`\
 https://nytimes.com/2025/08/21/nyregion/a-park-that-floods-every-time-it-rains.html
-
-**These Plays Don’t Repress the Trauma, They Bring It to Life Onstage**\
-`Several theater productions at the Edinburgh Festival Fringe, including drama, comedy and musicals, deal with the effects of psychic pain.`\
-https://nytimes.com/2025/08/21/theater/edinburgh-fringe-theater.html
-
-**Is the New Spike Lee Joint Serving Pound Cake?**\
-`Plus, Denzel’s best hairline yet.`\
-https://nytimes.com/2025/08/21/podcasts/is-the-new-spike-lee-joint-serving-pound-cake.html
 
