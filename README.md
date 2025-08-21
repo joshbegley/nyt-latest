@@ -1,3 +1,15 @@
+**Six questions that will help shape Ravens' final roster decisions**\
+`Can tight end Isaiah Likely avoid being placed on injured reserve? And how many defensive backs will Baltimore keep?`\
+https://nytimes.com/athletic/6565836/2025/08/21/baltimore-ravens-53-man-roster-decisions/
+
+**Wisconsin Woman Who Flew to Britain to Try to Kill a Man Gets 30-Year Sentence**\
+`Aimee Betro, 45, was convicted this month of attempting to shoot a man near Birmingham, England, in 2019.`\
+https://nytimes.com/2025/08/21/world/europe/aimee-betro-assassination-attempt-sentence.html
+
+**The Red Sox-Yankees series has 4 games on 4 different networks. Here's how to watch**\
+`Look at that, an extended, consequential late-summer series between baseball's fiercest rivals.`\
+https://nytimes.com/athletic/6565733/2025/08/21/red-sox-yankees-al-east-wild-card-how-to-watch/
+
 **Bryson Stott, Trea Turner are playing freely and powering the Phillies' lineup**\
 `This is all the Phillies have ever wanted from their talented but mercurial double-play tandem, Stott and Turner. Be natural.`\
 https://nytimes.com/athletic/6566214/2025/08/21/trea-turner-bryson-stott-phillies-lineup/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6565892/2025/08/21/2025-tour-championship-fedex-cup
 **NFL Projection Model, NFC win totals: How wide is gap between Eagles and everyone else?**\
 `Are the Eagles the clear-cut favorites to win the NFC? Our model likes them to repeat as champs, but it won't be easy in a stacked NFC. `\
 https://nytimes.com/athletic/6565019/2025/08/21/nfl-projection-model-nfc-win-totals-2025/
-
-**Ilona Maher on decisions that changed her life, being a 'boss lady' and 2025 Rugby World Cup**\
-`Ahead of the Rugby World Cup, U.S. star Ilona Maher said, "It's so much easier to be yourself than anybody else."`\
-https://nytimes.com/athletic/6565550/2025/08/21/ilona-maher-on-decisions-that-changed-her-life-being-a-boss-lady-and-2025-rugby-world-cup/
-
-**How skin cancer turned Tanner McKee into a sunscreen-drenched, hat-clad QB**\
-`Tanner McKee has to take several precautions in his everyday life to keep himself protected from the sun.`\
-https://nytimes.com/athletic/6565406/2025/08/21/philadelphia-eagles-qb-tanner-mckee-skin-cancer/
-
-**How Notre Dame became a more durable national championship contender**\
-`Notre Dame is no longer trying to bend the soul of college football to its will. It's focused on competing for titles every single year.`\
-https://nytimes.com/athletic/6561517/2025/08/21/notre-dame-football-recruiting-national-championships/
 
