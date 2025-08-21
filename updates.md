@@ -1,3 +1,7 @@
+**He Was the Face and Voice of Gaza. Israel Assassinated Him.**\
+`The killing of Anas al-Sharif marks an ominous new phase of the war in Gaza.`\
+https://nytimes.com/2025/08/21/opinion/israel-al-sharif-killing-gaza.html
+
 **Word of the Day: renowned**\
 `This word has appeared in 892 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2025/08/21/learning/word-of-the-day-renowned.html

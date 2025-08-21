@@ -14,7 +14,7 @@ https://nytimes.com/athletic/6566260/2025/08/21/tennis-us-open-mixed-doubles-err
 ``\
 https://nytimes.com/issue/todayspaper/2025/08/21/todays-new-york-times
 
-**Israel Is Making Sure There Is No One to Document the Horror of Its War**\
+**He Was the Face and Voice of Gaza. Israel Assassinated Him.**\
 `The killing of Anas al-Sharif marks an ominous new phase of the war in Gaza.`\
 https://nytimes.com/2025/08/21/opinion/israel-al-sharif-killing-gaza.html
 
