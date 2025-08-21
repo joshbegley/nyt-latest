@@ -1,3 +1,11 @@
+**Texas Mother Wanted for Son’s Murder Arrested in India**\
+`Cindy Rodriguez Singh had fled the United States in 2023 shortly after the authorities questioned her about her 6-year-old’s disappearance.`\
+https://nytimes.com/2025/08/21/world/asia/cindy-singh-fbi-most-wanted-india.html
+
+**Austin Riley's season ends with sports hernia surgery; Braves add starter Cal Quantrill**\
+`The typical recovery period for Riley's procedure is six weeks, but there are only five weeks left in the season.`\
+https://nytimes.com/athletic/6568138/2025/08/21/braves-austin-riley-surgery-cal-quantrill/
+
 **State Dept. Unlawfully Withheld Visas Under Trump’s Travel Ban, Judge Rules**\
 `The ruling involved a subset of applicants who had won the right to apply for a visa under a lottery system aimed at fostering diversity.`\
 https://nytimes.com/2025/08/21/us/politics/state-dept-travel-ban-ruling.html
@@ -25,12 +33,4 @@ https://nytimes.com/athletic/6568077/2025/08/21/browns-joe-flacco-dillon-gabriel
 **Man Accused of Arranging Murder of the Rapper Young Dolph Is Found Not Guilty**\
 `A jury acquitted Hernandez Govan in the 2021 shooting of the rapper outside a Memphis cookie shop.`\
 https://nytimes.com/2025/08/21/us/young-dolph-murder-acquittal.html
-
-**A Painting That Captures London at Dusk**\
-`Cece Philips discusses works by Barkley L. Hendricks and Edward Hopper, as well as one of her own new pieces, which depicts a solitary moment at the end of the day.`\
-https://nytimes.com/2025/08/21/t-magazine/cece-philips.html
-
-**Red Sox call up power-hitting prospect Jhostynxon Garcia**\
-`Garcia, 22, hit 17 home runs in 66 games for Triple-A Worcester. Keith Law ranked him as the No. 46 prospect in the game.`\
-https://nytimes.com/athletic/6568014/2025/08/21/red-sox-jhostynxon-garcia-prospect-call-up/
 

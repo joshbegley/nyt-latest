@@ -1,3 +1,7 @@
+**State Dept. Unlawfully Withheld Visas Under Trump’s Travel Ban, Judge Rules**\
+`The ruling involved a subset of applicants who had won the right to apply for a visa under a lottery system aimed at fostering diversity.`\
+https://nytimes.com/2025/08/21/us/politics/state-dept-travel-ban-ruling.html
+
 **Friday Briefing: The U.S. and Europe Flesh Out a Trade Deal**\
 `Also, a war photographer’s return to Afghanistan.`\
 https://nytimes.com/2025/08/21/briefing/us-eu-trade-deal-ukraine-war.html
@@ -29,8 +33,4 @@ https://nytimes.com/2025/08/21/t-magazine/cece-philips.html
 **Red Sox call up power-hitting prospect Jhostynxon Garcia**\
 `Garcia, 22, hit 17 home runs in 66 games for Triple-A Worcester. Keith Law ranked him as the No. 46 prospect in the game.`\
 https://nytimes.com/athletic/6568014/2025/08/21/red-sox-jhostynxon-garcia-prospect-call-up/
-
-**ACC odds, win totals, projections, best bets: Clemson back on its perch as favorite**\
-`Clemson has won the ACC in eight of the past 10 seasons and the Tigers are favored to win the league again this fall.`\
-https://nytimes.com/athletic/6562696/2025/08/21/acc-odds-win-totals-projections-best-bets-clemson/
 

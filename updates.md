@@ -1,3 +1,7 @@
+**State Dept. Unlawfully Withheld Visas Under Trump’s Travel Ban, Judge Rules**\
+`The ruling involved a subset of applicants who had won the right to apply for a visa under a lottery system aimed at fostering diversity.`\
+https://nytimes.com/2025/08/21/us/politics/state-dept-travel-ban-ruling.html
+
 **Friday Briefing: The U.S. and Europe Flesh Out a Trade Deal**\
 `Also, a war photographer’s return to Afghanistan.`\
 https://nytimes.com/2025/08/21/briefing/us-eu-trade-deal-ukraine-war.html
