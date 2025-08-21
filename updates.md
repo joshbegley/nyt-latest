@@ -1,3 +1,7 @@
+**The Windup: A shorter season on the horizon?**\
+`Welcome to The Windup, The Athletic's MLB newsletter. `\
+https://nytimes.com/athletic/6567527/2025/08/21/mlb-expansion-shorter-season-the-windup/
+
 **ESPN, MLB have framework for deal to sell out-of-market regular-season games**\
 `ESPN would continue to broadcast around 30 regular-season games, but not “Sunday Night Baseball.”`\
 https://nytimes.com/athletic/6567327/2025/08/21/mlb-espn-exclusive-out-of-market-digital/
