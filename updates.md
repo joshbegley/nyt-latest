@@ -1,3 +1,11 @@
+**Minnesota’s Democratic Party Revokes Endorsement of Mayoral Candidate**\
+`State Democratic officials withdrew the endorsement of a Minneapolis mayoral candidate who has drawn comparisons to Zohran Mamdani, the New York mayoral hopeful.`\
+https://nytimes.com/2025/08/21/us/minnesotas-democratic-party-revokes-endorsement-of-mayoral-candidate.html
+
+**Mandel: SEC going to 9 games staves off potential disaster: The Big Ten's Playoff plan**\
+`The SEC finally going to nine conference games is great for the fans, for the sport and for ESPN’s ratings.`\
+https://nytimes.com/athletic/6568398/2025/08/21/sec-9-games-big-tens-playoff-plan/
+
 **Jared Goff, Amon-Ra St. Brown sharp again in even day vs. Texans: Takeaways**\
 `The Texans' defense provided a strong test for the Lions as did C.J. Stroud and Nico Collins from Houston's offense.`\
 https://nytimes.com/athletic/6568163/2025/08/21/lions-texas-practice-jared-goff-cj-stroud/
