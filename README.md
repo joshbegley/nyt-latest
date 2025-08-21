@@ -1,3 +1,7 @@
+**An Ohio State repeat? No SEC byes? 5 takeaways from our College Football Playoff predictor**\
+`Our College Football Playoff predictor is back. Here's how it came together and what to watch as Ohio State aims for a repeat.`\
+https://nytimes.com/athletic/6565395/2025/08/21/college-football-playoff-preseason-predictions-odds/
+
 **TAFC: Ex-USMNT coaches talk Pulisic, Arsenal's Eze move, 'keeper's late equaliser**\
 `Today in TAFC: What ex-USMNT coaches think of Christian Pulisic, how Arsenal could steal Eze from Spurs, and Ream's game in his own words.`\
 https://nytimes.com/athletic/6566591/2025/08/21/pulisic-usmnt-world-cup-eze-arsenal-tottenham/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6563243/2025/08/21/college-football-week-0-kansas-s
 **NBA 2025 offseason rankings Top 10: How did Thunder, Rockets, Spurs fare?**\
 `By getting Kevin Durant, the Rockets acquired the superstar they needed to challenge the Thunder, who had a successful offseason as well.`\
 https://nytimes.com/athletic/6549950/2025/08/21/nba-offseason-2025-rankings-thunder-rockets-spurs/
-
-**Red Sox rookie Roman Anthony has passed every major-league test so far. Now he takes on Yankee Stadium**\
-`The 21-year-old will likely play a key role in the storied Red Sox-Yankees rivalry for most of the next decade. `\
-https://nytimes.com/athletic/6565795/2025/08/21/roman-anthony-red-sox-yankees/
 
