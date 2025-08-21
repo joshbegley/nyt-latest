@@ -1,3 +1,11 @@
+**Why Saints, Browns, Chiefs are monitoring the NFL running back trade market**\
+`The Saints need some protection behind Alvin Kamara, the Browns need a big-bodied option and the Chiefs have no depth behind Isiah Pacheco.`\
+https://nytimes.com/athletic/6567227/2025/08/21/nfl-running-backs-trades-saints-browns-chiefs/
+
+**Divided Court Eliminates Trump’s Half-Billion-Dollar Fine in Fraud Case**\
+`New York appeals judges said that the judgment was excessive, but agreed to uphold the case so the appeal could continue.`\
+https://nytimes.com/2025/08/21/nyregion/trump-fraud-james.html
+
 **Cracker Barrel’s New Modern Logo and Aesthetic Become a Political Rorschach Test**\
 `Nostalgic fans of the interstate staple lament the loss of its country kitsch, while some conservatives blamed wokeness for the sleek redesign.`\
 https://nytimes.com/2025/08/21/business/cracker-barrel-rebrand-logo.html

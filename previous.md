@@ -1,9 +1,13 @@
+**Why Saints, Browns, Chiefs are monitoring the NFL running back trade market**\
+`The Saints need some protection behind Alvin Kamara, the Browns need a big-bodied option and the Chiefs have no depth behind Isiah Pacheco.`\
+https://nytimes.com/athletic/6567227/2025/08/21/nfl-running-backs-trades-saints-browns-chiefs/
+
 **Cracker Barrel’s New Modern Logo and Aesthetic Become a Political Rorschach Test**\
 `Nostalgic fans of the interstate staple lament the loss of its country kitsch, while some conservatives blamed wokeness for the sleek redesign.`\
 https://nytimes.com/2025/08/21/business/cracker-barrel-rebrand-logo.html
 
-**Court Halts Trump’s Half-Billion-Dollar Penalty, but Upholds Fraud Case**\
-`The ruling handed the president a financial victory, and some legal validation, as New York appeals judges agreed that the fine in his civil fraud case was excessive.`\
+**Divided Court Eliminates Trump’s Half-Billion-Dollar Fine in Fraud Case**\
+`New York appeals judges said that the judgment was excessive, but agreed to uphold the case so the appeal could continue.`\
 https://nytimes.com/2025/08/21/nyregion/trump-fraud-james.html
 
 **Want to guarantee 2027 All-Star Game tickets at Wrigley? The Cubs have a plan for that**\
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/21/dining/pretty-peach-ricotta-cake-please.html
 **4 Surprising Ways Healthy Heart Habits Benefit Your Whole Body**\
 `A new review shows that the benefits of cardiovascular health extend from head to toe.`\
 https://nytimes.com/2025/08/21/well/heart-health-benefits-body.html
-
-**Humpy Wheeler, NASCAR showman who helped races run under the lights, dies at 86**\
-`Known as the "P.T. Barnum of race promoters," Wheeler is credited with bringing night races to speedways.`\
-https://nytimes.com/athletic/6567059/2025/08/21/humpy-wheeler-nascar-dies/
 
