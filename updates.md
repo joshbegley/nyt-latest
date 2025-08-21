@@ -1,3 +1,11 @@
+**Dortmund interested in signing Chelsea's Anselmino on loan**\
+`Chelsea head coach Enzo Maresca confirmed on Thursday that a loan move for Anselmino was being planned.`\
+https://nytimes.com/athletic/6508696/2025/08/21/aaron-anselmino-chelsea-dortmund-transfer/
+
+**Eze left out of Palace's Conference League play-off squad ahead of Arsenal move**\
+`The 27-year-old is set to leave Palace for Arsenal.`\
+https://nytimes.com/athletic/6567317/2025/08/21/eze-arsenal-news-crystal-palace-conference-league/
+
 **D.C. Crime Is Real; Solutions Are Complex**\
 `Readers respond to a column by Maureen Dowd on crime in Washington and federal takeover of the city’s police department. Also: President Trump’s intemperance.`\
 https://nytimes.com/2025/08/21/opinion/maureen-dowd-trump-dc-crime.html
