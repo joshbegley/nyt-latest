@@ -1,3 +1,11 @@
+**10 things to watch in what’s left of F1 2025. Plus, your picks for influential F1 figures**\
+`The 2025 Formula 1 campaign is well over halfway done, but there's plenty left to watch over the season run-in, as the summer break ends`\
+https://nytimes.com/athletic/6562850/2025/08/21/10-things-to-watch-in-f1-2025/
+
+**A View From Space Shows Hurricane Erin’s Vastness**\
+`The International Space Station captured the unusually large storm as it swirled near the East Coast of the United States.`\
+https://nytimes.com/2025/08/21/weather/hurricane-erin-international-space-station.html
+
 **Christian Pulisic is now debate bait, but past U.S. coaches have a unified take**\
 `Pulisic's persona took a polarizing turn this summer, but it's Mauricio Pochettino's preference that will eclipse any public perception`\
 https://nytimes.com/athletic/6564033/2025/08/21/christian-pulisic-usmnt-coaches-pochettino-world-cup/
