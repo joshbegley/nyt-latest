@@ -1,40 +1,40 @@
-**Uganda Joins African Countries Agreeing to Take Deportees From U.S.**\
-`The East African country said it had reached a deal to accept an unspecified number of deportees, who would not include people with criminal records or unaccompanied minors.`\
-https://nytimes.com/2025/08/21/world/africa/uganda-us-deportees.html
+**Falcons rookie report: Jalon Walker still slowed; defensive backs still finding roles**\
+`The Falcons drafted five players this spring. Four are expected to be significant contributors once the season begins.`\
+https://nytimes.com/athletic/6565492/2025/08/21/falcons-rookie-report-jalon-walker-james-pearce/
 
-**Enciso has 'big potential' but Brighton not right 'environment', says Hurzeler**\
-`The 21-year-old is expected to initially spend time at Strasbourg but is viewed as a long-term Chelsea player.`\
-https://nytimes.com/athletic/6566584/2025/08/21/julio-enciso-chelsea-brighton-transfer-fabian-hurzeler/
+**What to know about ESPN's new direct-to-consumer subscription service**\
+`ESPN has hit a new height of sheer omnipresence. Up next is a consolidated direct-to-consumer subscription.`\
+https://nytimes.com/athletic/6560729/2025/08/21/espn-new-streaming-service-dtc-what-to-know/
 
-**Zelensky, Back From Washington, Projects More Confidence in Peace Talks**\
-`The Ukrainian leader returned with a U.S. commitment to participate in security guarantees for Kyiv in a postwar settlement.`\
-https://nytimes.com/2025/08/21/world/europe/zelensky-ukraine-russia-trump-peace-talks.html
+**Texas and California Race Forward With Rival Redistricting Efforts**\
+`Lawmakers in the nation’s two most populous states were planning to vote Thursday on competing proposals as the battle over U.S. House maps intensified.`\
+https://nytimes.com/2025/08/21/us/politics/redistricting-california-texas.html
 
-**Sailors Fight Fire on U.S. Navy Ship in Japan**\
-`The fire on the U.S.S. New Orleans burned for about 12 hours and injured two sailors, the Navy said.`\
-https://nytimes.com/video/us/100000010353021/us-navy-fire-ship-okinawa.html
+**One Sentence in the Constitution Is Causing America Huge Problems**\
+`An amendment that can help save our democracy.`\
+https://nytimes.com/2025/08/21/opinion/trump-constitution-unitary-executive.html
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2025/08/21/crosswords/spelling-bee-forum.html
+**Making the Most of Their Second Chance in the Bay Area**\
+`After the pandemic forced them to leave Oakland, Calif., a couple returned five years later to realize their dream of owning a home there. Would $600,000 be enough?`\
+https://nytimes.com/interactive/2025/08/21/realestate/oakland-california-homes-for-sale.html
 
-**Word of the Day: renowned**\
-`This word has appeared in 892 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2025/08/21/learning/word-of-the-day-renowned.html
+**Deportations Reach New High After Summer Surge in Immigration Arrests**\
+`With an infusion of cash from Mr. Trump’s domestic policy bill, ICE appears poised to scale its operations even further.`\
+https://nytimes.com/interactive/2025/08/21/us/trump-deportations-summer-data-immigration-arrests.html
 
-**Soccer Match in Argentina Ends Early After Violence in Stands**\
-`Fans were hospitalized and detained after violent attacks during a match in a stadium near Buenos Aires, prompting officials to cancel the game.`\
-https://nytimes.com/2025/08/21/world/americas/argentina-chile-soccer-violence.html
+**What Matters More to the Stock Market? The Fed or Nvidia?**\
+`When Nvidia, the chip producer, reports earnings next week, investors expect the S&P 500 to have a bigger reaction than when the Fed chair delivers a big speech on Friday.`\
+https://nytimes.com/2025/08/21/business/stocks-nvidia-federal-reserve.html
 
-**Sara Errani and Andrea Vavassori retain U.S. Open mixed doubles by outclassing singles stars**\
-`The defending champions delivered a different sort of script Wednesday, beating Iga Świątek and Casper Ruud 6-3, 5-7, 10-6 in the final.`\
-https://nytimes.com/athletic/6566260/2025/08/21/tennis-us-open-mixed-doubles-errani-vavassori-win/
+**A Park That Floods Every Time It Rains**\
+`Flushing Meadows Corona Park, which covers nearly 900 acres in Queens, has been plagued with expensive infrastructure problems. A new report suggests ways to address them.`\
+https://nytimes.com/2025/08/21/nyregion/a-park-that-floods-every-time-it-rains.html
 
-**The New York Times in Print for Thursday, Aug. 21, 2025**\
-``\
-https://nytimes.com/issue/todayspaper/2025/08/21/todays-new-york-times
+**These Plays Don’t Repress the Trauma, They Bring It to Life Onstage**\
+`Several theater productions at the Edinburgh Festival Fringe, including drama, comedy and musicals, deal with the effects of psychic pain.`\
+https://nytimes.com/2025/08/21/theater/edinburgh-fringe-theater.html
 
-**He Was the Face and Voice of Gaza. Israel Assassinated Him.**\
-`The killing of Anas al-Sharif marks an ominous new phase of the war in Gaza.`\
-https://nytimes.com/2025/08/21/opinion/israel-al-sharif-killing-gaza.html
+**Is the New Spike Lee Joint Serving Pound Cake?**\
+`Plus, Denzel’s best hairline yet.`\
+https://nytimes.com/2025/08/21/podcasts/is-the-new-spike-lee-joint-serving-pound-cake.html
 
