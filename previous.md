@@ -1,3 +1,11 @@
+**How do Ducks view McTavish? Are they a wild-card threat? Mailbag, part 2**\
+`Plus, how much of a difference will the coaching changes make? What does the future hold for the many defense prospects?`\
+https://nytimes.com/athletic/6566342/2025/08/21/anaheim-ducks-mctavish-verbeek-zegras-colangelo/
+
+**WR Ja'Lynn Polk, Patriots' second-round pick in 2024, out for season**\
+`In another setback for what already looks like a major draft bust, Polk is expected to undergo shoulder surgery and miss the 2025 season.`\
+https://nytimes.com/athletic/6567720/2025/08/21/jalynn-polk-patriots-shoulder-injury/
+
 **SEC moving closer to adopting 9-game conference schedule: Source**\
 `The conference's president still need to give final approve, but the SEC moved forward on a debate it has been having for years.`\
 https://nytimes.com/athletic/6567782/2025/08/21/sec-9-game-conference-schedule/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6567317/2025/08/21/eze-arsenal-news-crystal-palace-
 **D.C. Crime Is Real; Solutions Are Complex**\
 `Readers respond to a column by Maureen Dowd on crime in Washington and the federal takeover of the city’s police department. Also: President Trump’s intemperance.`\
 https://nytimes.com/2025/08/21/opinion/maureen-dowd-trump-dc-crime.html
-
-**Cubs' Kyle Tucker on playing through hairline fracture: 'After a while it kind of turned'**\
-`Tucker is back in the starting lineup for Thursday's game after sitting out the first three games of a series against the Brewers.`\
-https://nytimes.com/athletic/6567681/2025/08/21/cubs-kyle-tucker-injury-hairline-fracture/
-
-**Trump’s Attacks on Fed Overshadow a Critical Moment for the Central Bank**\
-`The president’s calls for Lisa Cook, a Fed governor, to resign are diverting attention from economic issues as top central bankers from around the world gather in Jackson, Wyo.`\
-https://nytimes.com/2025/08/21/business/trump-federal-reserve-lisa-cook.html
 

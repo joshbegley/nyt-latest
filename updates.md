@@ -1,3 +1,11 @@
+**How do Ducks view McTavish? Are they a wild-card threat? Mailbag, part 2**\
+`Plus, how much of a difference will the coaching changes make? What does the future hold for the many defense prospects?`\
+https://nytimes.com/athletic/6566342/2025/08/21/anaheim-ducks-mctavish-verbeek-zegras-colangelo/
+
+**WR Ja'Lynn Polk, Patriots' second-round pick in 2024, out for season**\
+`In another setback for what already looks like a major draft bust, Polk is expected to undergo shoulder surgery and miss the 2025 season.`\
+https://nytimes.com/athletic/6567720/2025/08/21/jalynn-polk-patriots-shoulder-injury/
+
 **SEC moving closer to adopting 9-game conference schedule: Source**\
 `The conference's president still need to give final approve, but the SEC moved forward on a debate it has been having for years.`\
 https://nytimes.com/athletic/6567782/2025/08/21/sec-9-game-conference-schedule/
