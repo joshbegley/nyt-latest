@@ -1,3 +1,11 @@
+**Start of a Popular Saying**\
+`Simeon Seigel shows us the gravity of today’s solving situation.`\
+https://nytimes.com/2025/08/20/crosswords/daily-puzzle-2025-08-21.html
+
+**Trump Officials Demanded Confidential Data About Transgender Children Seeking Care**\
+`A June subpoena to the Children’s Hospital of Philadelphia sought Social Security numbers and addresses of patients who received gender-related care, as well as “every writing or record” made by doctors on such treatments.`\
+https://nytimes.com/2025/08/20/us/politics/trump-transgender-children-care-subpoena.html
+
 **Chargers' goal to build depth on interior defensive line is looking like a reality**\
 `The Chargers went with a committee approach in trying to replace Poona Ford and Morgan Fox. The early returns look good. `\
 https://nytimes.com/athletic/6566115/2025/08/20/chargers-interior-defensive-line-depth/

@@ -1,3 +1,11 @@
+**Start of a Popular Saying**\
+`Simeon Seigel shows us the gravity of today’s solving situation.`\
+https://nytimes.com/2025/08/20/crosswords/daily-puzzle-2025-08-21.html
+
+**Trump Officials Demanded Confidential Data About Transgender Children Seeking Care**\
+`A June subpoena to the Children’s Hospital of Philadelphia sought Social Security numbers and addresses of patients who received gender-related care, as well as “every writing or record” made by doctors on such treatments.`\
+https://nytimes.com/2025/08/20/us/politics/trump-transgender-children-care-subpoena.html
+
 **Chargers' goal to build depth on interior defensive line is looking like a reality**\
 `The Chargers went with a committee approach in trying to replace Poona Ford and Morgan Fox. The early returns look good. `\
 https://nytimes.com/athletic/6566115/2025/08/20/chargers-interior-defensive-line-depth/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/08/20/climate/rooftop-solar-cooperative-ohio.html
 **Could Shohei Ohtani pitch in relief in October? Here's what it would take**\
 `The door remains open, regardless, that Ohtani could be used as a reliever at some point in October.`\
 https://nytimes.com/athletic/6566154/2025/08/20/los-angeles-dodgers-shohei-ohtani-october-pitching/
-
-**Texas House Approves Redistricting Maps**\
-`The Texas House passed a partisan congressional map on Wednesday after weeks of legislative combat.`\
-https://nytimes.com/video/us/politics/100000010352562/texas-republican-redistricting-maps.html
-
-**Chiefs trade WR Skyy Moore to 49ers, swap picks: Sources**\
-`The Chiefs will receive a 2027 sixth-round pick and send the 49ers a 2027 seventh-round pick.`\
-https://nytimes.com/athletic/6566104/2025/08/20/skyy-moore-trade-chiefs-49ers/
 
