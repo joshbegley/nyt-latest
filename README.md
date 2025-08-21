@@ -1,3 +1,7 @@
+**Bright Tiles Inspired by Cities Around the World**\
+`Plus: cinnamon buns in New York’s East Village, the Athens neighborhood attracting artists and more recommendations from T Magazine.`\
+https://nytimes.com/2025/08/21/t-magazine/concrete-tiles.html
+
 **International Criminal Court Criticizes New U.S. Sanctions Against It**\
 `The Trump administration imposed further penalties on judges for the world’s highest criminal court in retaliation for issuing arrest warrants for Israeli leaders and investigating the U.S. military.`\
 https://nytimes.com/2025/08/21/us/politics/international-criminal-court-us-sanctions.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6566887/2025/08/21/arsenal-transfer-news-karl-hein-
 **Heart of the Menendez Case: Who Deserves a Second Chance?**\
 `Media attention has brought the Menendez brothers to the cusp of early release from prison. Criminal justice reform proponents hope other prisoners benefit.`\
 https://nytimes.com/2025/08/21/us/menendez-brothers-lawyer-resentencing.html
-
-**Gladbach in talks to sign USMNT's Reyna from Dortmund**\
-`The 22-year-old's contract at Dortmund is set to expire next summer.`\
-https://nytimes.com/athletic/6506391/2025/08/21/gio-reyna-gladbach-dortmund-transfer/
 
