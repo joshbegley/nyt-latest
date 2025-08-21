@@ -1,3 +1,7 @@
+**Packers-Seahawks joint practice: One big brawl and 9 other observations**\
+`Packers right tackle Zach Tom got kicked out of Thursday's joint practice for throwing haymakers at multiple Seahawks during a scuffle.`\
+https://nytimes.com/athletic/6568263/2025/08/21/packers-seahawks-joint-practice-fight/
+
 **Father of Celtics star Jaylen Brown arrested, charged with attempted murder**\
 `The elder Brown was booked into the Clark County Detention Center on Wednesday evening.`\
 https://nytimes.com/athletic/6567990/2025/08/21/jaylen-brown-father-arrest-attempted-murder-las-vegas/
