@@ -1,3 +1,11 @@
+**McVay says Stafford 'looks like the stud that we know' since return to practice**\
+`Stafford has dealt with an aggravated disk that caused back soreness for the last several weeks.`\
+https://nytimes.com/athletic/6567800/2025/08/21/matthew-stafford-rams-practice-return-injury/
+
+**Judge Says Alina Habba Has Acted Without Legal Authority**\
+`Defense lawyers had questioned whether Alina Habba, a Trump loyalist, was legally authorized to run the U.S. attorney’s office in New Jersey.`\
+https://nytimes.com/2025/08/21/nyregion/alina-habba-us-attorney-new-jersey.html
+
 **Court Decision to Toss Penalty Frees Trump Family of Financial Straits**\
 `The president’s financial situation had already improved after taking office a second time, thanks to his cryptocurrency ventures.`\
 https://nytimes.com/2025/08/21/us/politics/court-penalty-trump-family-financials.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/08/21/arts/shelly-zegart-dead.html
 **Lamar Jackson OK after injury scare: 'Prayers do get answered'**\
 `Baltimore coach John Harbaugh said an X-ray revealed no concerns after the QB had his foot stepped on during Wednesday's practice.`\
 https://nytimes.com/athletic/6567805/2025/08/21/lamar-jackson-injury-ravens-practice/
-
-**How do Ducks view McTavish? Are they a wild-card threat? Mailbag, part 2**\
-`Plus, how much of a difference will the coaching changes make? What does the future hold for the many defense prospects?`\
-https://nytimes.com/athletic/6566342/2025/08/21/anaheim-ducks-mctavish-verbeek-zegras-colangelo/
-
-**WR Ja'Lynn Polk, Patriots' second-round pick in 2024, out for season**\
-`In another setback for what already looks like a major draft bust, Polk is expected to undergo shoulder surgery and miss the 2025 season.`\
-https://nytimes.com/athletic/6567720/2025/08/21/jalynn-polk-patriots-shoulder-injury/
 
