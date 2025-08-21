@@ -1,3 +1,19 @@
+**Friday Briefing: The U.S. and Europe Flesh Out a Trade Deal**\
+`Also, a war photographer’s return to Afghanistan.`\
+https://nytimes.com/2025/08/21/briefing/us-eu-trade-deal-ukraine-war.html
+
+**Can a Gen Z Amy Winehouse Get Big Without Breaking? Lola Young Is Trying.**\
+`The diaristic pop-soul singer is self-loathing, self-aggrandizing, irreverent, evasive and in-your-face. At 24, she’s finally arrived. But the ride is just beginning.`\
+https://nytimes.com/interactive/2025/08/21/arts/music/lola-young-messy-album.html
+
+**A Coney Island Fixture, With Baked Clams and Housemade Mozzarella**\
+`For nearly 120 years, Gargiulo’s has attracted those in search of classic southern Italian cooking and a festive, familial atmosphere.`\
+https://nytimes.com/2025/08/21/t-magazine/gargiulos-coney-island.html
+
+**The Rise of Right-Wing Nihilism**\
+`Rather than conserve or build, some people just want to destroy.`\
+https://nytimes.com/2025/08/21/opinion/rufo-yarvin-trump-nihilism.html
+
 **Browns expected to play Flacco, Gabriel and Sanders in preseason finale**\
 `Kenny Pickett, who’s No. 2 on the team’s unofficial depth chart, will not play as he continues to deal with a lingering hamstring injury. `\
 https://nytimes.com/athletic/6568077/2025/08/21/browns-joe-flacco-dillon-gabriel-shedeur-sanders-rams/

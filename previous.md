@@ -1,3 +1,19 @@
+**Friday Briefing: The U.S. and Europe Flesh Out a Trade Deal**\
+`Also, a war photographer’s return to Afghanistan.`\
+https://nytimes.com/2025/08/21/briefing/us-eu-trade-deal-ukraine-war.html
+
+**Can a Gen Z Amy Winehouse Get Big Without Breaking? Lola Young Is Trying.**\
+`The diaristic pop-soul singer is self-loathing, self-aggrandizing, irreverent, evasive and in-your-face. At 24, she’s finally arrived. But the ride is just beginning.`\
+https://nytimes.com/interactive/2025/08/21/arts/music/lola-young-messy-album.html
+
+**A Coney Island Fixture, With Baked Clams and Housemade Mozzarella**\
+`For nearly 120 years, Gargiulo’s has attracted those in search of classic southern Italian cooking and a festive, familial atmosphere.`\
+https://nytimes.com/2025/08/21/t-magazine/gargiulos-coney-island.html
+
+**The Rise of Right-Wing Nihilism**\
+`Rather than conserve or build, some people just want to destroy.`\
+https://nytimes.com/2025/08/21/opinion/rufo-yarvin-trump-nihilism.html
+
 **Browns expected to play Flacco, Gabriel and Sanders in preseason finale**\
 `Kenny Pickett, who’s No. 2 on the team’s unofficial depth chart, will not play as he continues to deal with a lingering hamstring injury. `\
 https://nytimes.com/athletic/6568077/2025/08/21/browns-joe-flacco-dillon-gabriel-shedeur-sanders-rams/
@@ -17,24 +33,4 @@ https://nytimes.com/athletic/6568014/2025/08/21/red-sox-jhostynxon-garcia-prospe
 **ACC odds, win totals, projections, best bets: Clemson back on its perch as favorite**\
 `Clemson has won the ACC in eight of the past 10 seasons and the Tigers are favored to win the league again this fall.`\
 https://nytimes.com/athletic/6562696/2025/08/21/acc-odds-win-totals-projections-best-bets-clemson/
-
-**Hurricane Erin Is Heading Out to Sea. People Are Riveted Anyway.**\
-`The Category 2 hurricane isn’t expected to make landfall. Still, it’s drawing notice as the first named storm to reach hurricane strength this year.`\
-https://nytimes.com/2025/08/21/us/hurricane-erin.html
-
-**Where to Dine with Totally Bored Teens, and More Reader Questions**\
-`Can a cheeky Korean restaurant cure adolescent ennui? Can you get a proper meal at a wine bar? Becky Hughes investigates.`\
-https://nytimes.com/2025/08/21/dining/where-to-dine-with-totally-bored-teens-and-more-reader-questions.html
-
-**F.B.I. Plans to Lower Recruiting Standards, Alarming Agents**\
-`The plan appears to be part of a broader effort to shift the agency’s focus from tracking national security threats to fighting crime.`\
-https://nytimes.com/2025/08/21/us/politics/fbi-agent-recruitment-requirements-trump.html
-
-**Shooting at Chiefs facility in 2024 kept quiet at behest of team**\
-`After an investigation with the KCPD, Mark Donovan said the team decided to keep a May 2024 shooting incident at the team facility quiet.`\
-https://nytimes.com/athletic/6567768/2025/08/21/chiefs-shooting-andy-reid-team-facility/
-
-**Yankees sign former Mets right-hander Paul Blackburn**\
-`Blackburn will work out of the bullpen. He dealt with several injuries after joining the Mets at the 2024 trade deadline.`\
-https://nytimes.com/athletic/6567951/2025/08/21/yankees-sign-paul-blackburn-mets/
 
