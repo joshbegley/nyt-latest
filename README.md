@@ -1,3 +1,11 @@
+**Soccer Game in Argentina Is Canceled After Violence in Stands**\
+`Fans were hospitalized and detained after violent attacks during a match in a stadium near Buenos Aires, prompting officials to cancel the game.`\
+https://nytimes.com/2025/08/21/world/americas/argentina-chile-soccer-violence.html
+
+**Sara Errani and Andrea Vavassori retain U.S. Open mixed doubles by outclassing singles stars**\
+`The defending champions delivered a different sort of script Wednesday, beating Iga Świątek and Casper Ruud 6-3, 5-7, 10-6 in the final.`\
+https://nytimes.com/athletic/6566260/2025/08/21/tennis-us-open-mixed-doubles-errani-vavassori-win/
+
 **The New York Times in Print for Thursday, Aug. 21, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/08/21/todays-new-york-times
@@ -29,12 +37,4 @@ https://nytimes.com/2025/08/21/briefing/gaza-city-offensive-west-bank-settlement
 **Omari Hutchinson's signing epitomises the new Forest blueprint**\
 `The new club-record signing is one of many recent arrivals to the City Ground expected to only grow in both stature and value`\
 https://nytimes.com/athletic/6564606/2025/08/21/omari-hutchinson-nottingham-forest/
-
-**Missing out on Eze underlines a sense Spurs have failed to kick on after Europa League win**\
-`Eberechi Eze looks as though he will move to Arsenal rather than completing a switch to Spurs`\
-https://nytimes.com/athletic/6565814/2025/08/21/tottenham-hotspur-eberechi-eze-analysis/
-
-**Could this be a crucial season for Man Utd's Matthijs de Ligt?**\
-`It has been a tricky few years for De Ligt since he joined Manchester United. This season could be different`\
-https://nytimes.com/athletic/6480014/2025/08/21/matthijs-de-ligt-man-utd-analysis/
 
