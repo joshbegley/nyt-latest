@@ -1,3 +1,7 @@
+**Texans’ Jimmie Ward accused of drug-fueled domestic assault in new lawsuit**\
+`The lawsuit alleges Ward attacked the mother of his 3-year-old son at his home in April, then again in June.`\
+https://nytimes.com/athletic/6567573/2025/08/21/texans-jimmie-ward-meth-domestic-assault-lawsuit/
+
 **As Adams Tries to Run on His Record, Scandals Keep Swirling Around Him**\
 `Mayor Eric Adams of New York has sought to argue that his first-term wins have earned him the right to serve a second. But he cannot shake the stench of corruption around his administration.`\
 https://nytimes.com/2025/08/21/nyregion/eric-adams-mayor-corruption.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6567478/2025/08/21/pat-fitzgerald-northwestern-sett
 **The Windup: A shorter season on the horizon?**\
 `Welcome to The Windup, The Athletic's MLB newsletter. `\
 https://nytimes.com/athletic/6567527/2025/08/21/mlb-expansion-shorter-season-the-windup/
-
-**Vance Recounts Telling Zelensky to ‘Behave’ in Trump Meeting**\
-`It was not the first time that the vice president had addressed Ukraine’s leader with words more commonly spoken to toddlers than heads of state.`\
-https://nytimes.com/2025/08/21/us/politics/vance-zelensky-ukraine.html
 
