@@ -1,3 +1,7 @@
+**Suzuki is ready to build on what the Canadiens accomplished last season**\
+`Nick Suzuki knows expectations will be higher for the Canadiens, but he is confident the team can meet or even exceed them.`\
+https://nytimes.com/athletic/6567899/2025/08/21/canadiens-suzuki-expectations-dobson-demidov-laine/
+
 **U.S. Open draw: Novak Djokovic lands with Carlos Alcaraz as defending champions learn paths**\
 `Can anyone challenge the 'Big Two' of men's tennis in the U.S. Open? And how is the women's draw so lopsided?`\
 https://nytimes.com/athletic/6566536/2025/08/21/tennis-us-open-draw-2025/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/21/us/missing-woman-dead-los-angeles-forest.html
 **Fantasy bullpen report featuring rising reliever Edwin Uceta and a rash of injuries**\
 `Greg Jewett keeps fantasy baseball managers informed on a closer carousel that has been rapidly picking up speed since the All-Star break.`\
 https://nytimes.com/athletic/6567333/2025/08/21/fantasy-baseball-bullpen-report-relievers-closer-injuries/
-
-**What Happens When Hurricane Erin Crosses the Atlantic? Europe Is Watching.**\
-`It won’t be a hurricane much longer, but the storm could still make an impact next week.`\
-https://nytimes.com/2025/08/21/weather/hurricane-erin-uk-europe-atlantic.html
 

@@ -1,3 +1,7 @@
+**Suzuki is ready to build on what the Canadiens accomplished last season**\
+`Nick Suzuki knows expectations will be higher for the Canadiens, but he is confident the team can meet or even exceed them.`\
+https://nytimes.com/athletic/6567899/2025/08/21/canadiens-suzuki-expectations-dobson-demidov-laine/
+
 **U.S. Open draw: Novak Djokovic lands with Carlos Alcaraz as defending champions learn paths**\
 `Can anyone challenge the 'Big Two' of men's tennis in the U.S. Open? And how is the women's draw so lopsided?`\
 https://nytimes.com/athletic/6566536/2025/08/21/tennis-us-open-draw-2025/
