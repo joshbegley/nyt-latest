@@ -1,3 +1,7 @@
+**Suspect Is Arrested in Sabotage of Pipelines Between Russia and Germany**\
+`German authorities said a Ukrainian man suspected of coordinating the attacks on the Nord Stream pipelines in 2022 had been taken into custody by the Italian police.`\
+https://nytimes.com/2025/08/21/world/europe/nord-stream-pipeline-attacks-arrest.html
+
 **Bright Tiles Inspired by Cities Around the World**\
 `Plus: cinnamon buns in New York’s East Village, the Athens neighborhood attracting artists and more recommendations from T Magazine.`\
 https://nytimes.com/2025/08/21/t-magazine/concrete-tiles.html

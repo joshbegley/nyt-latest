@@ -1,3 +1,7 @@
+**Suspect Is Arrested in Sabotage of Pipelines Between Russia and Germany**\
+`German authorities said a Ukrainian man suspected of coordinating the attacks on the Nord Stream pipelines in 2022 had been taken into custody by the Italian police.`\
+https://nytimes.com/2025/08/21/world/europe/nord-stream-pipeline-attacks-arrest.html
+
 **Bright Tiles Inspired by Cities Around the World**\
 `Plus: cinnamon buns in New York’s East Village, the Athens neighborhood attracting artists and more recommendations from T Magazine.`\
 https://nytimes.com/2025/08/21/t-magazine/concrete-tiles.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/21/world/asia/afghanistan-joao-silva.html
 **Arsenal in advanced talks with Werder Bremen over Hein loan**\
 `The Estonia international, who made 31 appearances in La Liga last season on loan at Real Valladolid, joined Arsenal in 2019.`\
 https://nytimes.com/athletic/6566887/2025/08/21/arsenal-transfer-news-karl-hein-loan/
-
-**Heart of the Menendez Case: Who Deserves a Second Chance?**\
-`Media attention has brought the Menendez brothers to the cusp of early release from prison. Criminal justice reform proponents hope other prisoners benefit.`\
-https://nytimes.com/2025/08/21/us/menendez-brothers-lawyer-resentencing.html
 
