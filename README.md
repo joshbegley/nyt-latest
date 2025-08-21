@@ -1,3 +1,11 @@
+**Paige Bueckers ties rookie single-game scoring record**\
+`Bueckers was already the fastest rookie in WNBA history to 500 points. She also set the Wings franchise assist record.`\
+https://nytimes.com/athletic/6566427/2025/08/21/paige-bueckers-breaks-rookie-scoring-record-wings/
+
+**Thursday Briefing: Israeli Troops Near Gaza City**\
+`Also, Africa’s push for a new world map.`\
+https://nytimes.com/2025/08/21/briefing/gaza-city-offensive-west-bank-settlements-ukraine-russia-china-tibet.html
+
 **Omari Hutchinson's signing epitomises the new Forest blueprint**\
 `The new club-record signing is one of many recent arrivals to the City Ground expected to only grow in both stature and value`\
 https://nytimes.com/athletic/6564606/2025/08/21/omari-hutchinson-nottingham-forest/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6564710/2025/08/21/alternative-premier-league-table
 **Isak's public petulance looks bad but it should not deter Liverpool**\
 `The Swede is not the first player to try and force a move and, ultimately, his talent matters more than his tantrum`\
 https://nytimes.com/athletic/6554442/2025/08/21/liverpool-alexander-isak-transfer-statement/
-
-**Europe's maddest league is back - after a mind-blowing summer**\
-`Italian football is compelling in its sheer unpredictability, the sweep of its beauty and preposterousness on so many levels`\
-https://nytimes.com/athletic/6564433/2025/08/21/serie-a-europes-maddest-league/
-
-**Remembering Joey Jones: Mr Wrexham, a two-time European Cup winner, and 'a special man'**\
-`On Wednesday the people of Wrexham said a final farewell to their football club's greatest idol`\
-https://nytimes.com/athletic/6556041/2025/08/21/joey-jones-wrexham-liverpool-wales/
 
