@@ -1,3 +1,11 @@
+**ESPN, MLB have framework for deal to sell out-of-market regular-season games**\
+`ESPN would continue to broadcast around 30 regular-season games, but "Sunday Night Baseball" would move to a different night in the week.`\
+https://nytimes.com/athletic/6567327/2025/08/21/mlb-espn-exclusive-out-of-market-digital/
+
+**Sonallah Ibrahim, Egyptian Novelist of Irony and Dissent, Dies at 88**\
+`Starting with “That Smell” in 1966, he wrote with stark power about themes of repression in the Egyptian police state.`\
+https://nytimes.com/2025/08/21/world/africa/sonallah-ibrahim-dead.html
+
 **Why Saints, Browns, Chiefs are monitoring the NFL running back trade market**\
 `The Saints need some protection behind Alvin Kamara, the Browns need a big-bodied option and the Chiefs have no depth behind Isiah Pacheco.`\
 https://nytimes.com/athletic/6567227/2025/08/21/nfl-running-backs-trades-saints-browns-chiefs/
