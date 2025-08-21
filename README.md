@@ -1,3 +1,7 @@
+**Packers-Seahawks joint practice: One big brawl and 9 other observations**\
+`Packers right tackle Zach Tom got kicked out of Thursday's joint practice for throwing haymakers at multiple Seahawks during a scuffle.`\
+https://nytimes.com/athletic/6568263/2025/08/21/packers-seahawks-joint-practice-fight/
+
 **Father of Celtics star Jaylen Brown arrested, charged with attempted murder**\
 `The elder Brown was booked into the Clark County Detention Center on Wednesday evening.`\
 https://nytimes.com/athletic/6567990/2025/08/21/jaylen-brown-father-arrest-attempted-murder-las-vegas/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6568075/2025/08/21/west-ham-news-potter-transfer-po
 **Brighton's Moran joins LAFC on loan until January**\
 `Moran joins fellow former Premier League players Hugo Lloris and Son Heung-min.`\
 https://nytimes.com/athletic/6568206/2025/08/21/brighton-lafc-moran-transfer-news-loan/
-
-**Texas Mother Wanted for Son’s Murder Arrested in India**\
-`Cindy Rodriguez Singh had fled the United States in 2023 shortly after the authorities questioned her about her 6-year-old’s disappearance.`\
-https://nytimes.com/2025/08/21/world/asia/cindy-singh-fbi-most-wanted-india.html
 

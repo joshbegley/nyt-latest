@@ -1,3 +1,23 @@
+**Father of Celtics star Jaylen Brown arrested, charged with attempted murder**\
+`The elder Brown was booked into the Clark County Detention Center on Wednesday evening.`\
+https://nytimes.com/athletic/6567990/2025/08/21/jaylen-brown-father-arrest-attempted-murder-las-vegas/
+
+**Live Updates: Gunman Reported at Villanova University, Forcing Lockdown**\
+`The report of an active shooter drew a large police response to the university’s campus northwest of Philadelphia, where students were told to shelter in place.`\
+https://nytimes.com/live/2025/08/21/us/villanova-active-shooter
+
+**Tempers boil over into fights at Seahawks-Packers joint practice: Takeaways**\
+`Jalen Sundell appears to have won the starting center job over Olu Oluwatimi. Meanwhile, Jalen Milroe will play the full preseason finale.`\
+https://nytimes.com/athletic/6568176/2025/08/21/seahawks-packers-fight-joint-practice/
+
+**A Half-Billion-Dollar Fine Against Trump Was Thrown Out**\
+`Also, Texas and California raced to gerrymander their maps. Here’s the latest at the end of Thursday.`\
+https://nytimes.com/2025/08/21/briefing/trump-fine-court-us-eu-trade-deal.html
+
+**Here’s what to know.**\
+`The report drew a large police response to the university’s campus northwest of Philadelphia, and students were told to shelter in place.`\
+https://nytimes.com/live/2025/08/21/us/villanova-active-shooter/villanova-university-shooting
+
 **Supreme Court Lets Trump Administration Cut N.I.H. Grants for Disfavored Research**\
 `The court’s order was fractured, with the justices splitting over whether individual cancellations and the policy behind them could be challenged in a federal trial court.`\
 https://nytimes.com/2025/08/21/us/politics/supreme-court-nih-grants.html
