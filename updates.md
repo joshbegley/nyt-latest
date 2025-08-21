@@ -1,3 +1,5 @@
+
+
 **How do Ducks view McTavish? Are they a wild-card threat? Mailbag, part 2**\
 `Plus, how much of a difference will the coaching changes make? What does the future hold for the many defense prospects?`\
 https://nytimes.com/athletic/6566342/2025/08/21/anaheim-ducks-mctavish-verbeek-zegras-colangelo/
