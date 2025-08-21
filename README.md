@@ -1,5 +1,13 @@
-**What Brian Schottenheimer wants to see, plus key roster battles and opportunities**\
-`The Cowboys' final preseason game is Friday and Joe Milton, Jaydon Blue, several receivers and defensive tackles will be in the spotlight.`\
+**How does college football coaching differ from the NFL? 'A whole different world'**\
+`College football may be becoming more like the NFL in some ways, but Belichick and Reich still face unique challenges in 2025.`\
+https://nytimes.com/athletic/6565143/2025/08/21/college-football-nfl-coaches-belichick-reich/
+
+**Trump Administration Live Updates: U.S. and E.U. Agree on Details of Trade Deal**\
+``\
+https://nytimes.com/live/2025/08/21/us/trump-news
+
+**Key Cowboys players and roster battles to watch in final preseason game**\
+`The Cowboys' last preseason game is Friday and Joe Milton, Jaydon Blue, several receivers and defensive tackles will be in the spotlight.`\
 https://nytimes.com/athletic/6566506/2025/08/21/cowboys-preseason-key-players-joe-milton/
 
 **Walmart Sees Sales ‘Momentum’ Despite Tariffs**\
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6565452/2025/08/21/little-league-world-series-2025-
 **Lloyd: Where does Shedeur Sanders fit if Joe Flacco is starter and Browns prefer Dillon Gabriel?**\
 `Why keep Sanders? The answer, of course, is a fear that he may develop elsewhere. For now, he remains in purgatory. `\
 https://nytimes.com/athletic/6564727/2025/08/21/shedeur-sanders-browns-qbs-joe-flacco-dillon-gabriel/
-
-**The Penguins could soon be sold to the Hoffmann family. Who are they?**\
-`According to reports, Fenway Sports Group could sell the Penguins to a Florida-based family investment firm. So who are the Hoffmanns? `\
-https://nytimes.com/athletic/6563076/2025/08/21/pittsburgh-penguins-owners-hoffmann-family-fenway-sports-group-fsg-nhl/
-
-**This Week in Sports Trivia: August 21, 2025**\
-`How closely were you following the sports news this week? Find out and test your knowledge by taking The Athletic's weekly quiz.`\
-https://nytimes.com/athletic/6565023/2025/08/21/this-week-in-sports-trivia-august-21-2025/
 
