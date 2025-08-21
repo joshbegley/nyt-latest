@@ -1,3 +1,7 @@
+**Scoop City: Spencer Rattler leads final QB competition**\
+`Who's leading the QB competition in New Orleans, other battles to watch, contract disputes, and the greatest rookie seasons of all time`\
+https://nytimes.com/athletic/6567611/2025/08/21/spencer-rattler-saints-tyler-shough-competition-nfl-scoop-city/
+
 **Facing a ‘Reading Crisis,’ Denmark Wants to Make Books Cheaper**\
 `The Danish government announced this week that it planned to make books exempt from a 25 percent value-added tax.`\
 https://nytimes.com/2025/08/21/world/europe/denmark-books-tax-reading.html

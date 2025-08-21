@@ -1,3 +1,7 @@
+**Scoop City: Spencer Rattler leads final QB competition**\
+`Who's leading the QB competition in New Orleans, other battles to watch, contract disputes, and the greatest rookie seasons of all time`\
+https://nytimes.com/athletic/6567611/2025/08/21/spencer-rattler-saints-tyler-shough-competition-nfl-scoop-city/
+
 **Facing a ‘Reading Crisis,’ Denmark Wants to Make Books Cheaper**\
 `The Danish government announced this week that it planned to make books exempt from a 25 percent value-added tax.`\
 https://nytimes.com/2025/08/21/world/europe/denmark-books-tax-reading.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/21/us/politics/vance-zelensky-ukraine.html
 **Trump Says Massachusetts’ All-Blue Map Is Unfair. Is He Right?**\
 `Can you recognize a gerrymander?`\
 https://nytimes.com/interactive/2025/08/21/upshot/up-massachusetts-redistricting.html
-
-**ESPN, MLB have framework for deal to sell out-of-market regular-season games**\
-`ESPN would continue to broadcast around 30 regular-season games, but not “Sunday Night Baseball.”`\
-https://nytimes.com/athletic/6567327/2025/08/21/mlb-espn-exclusive-out-of-market-digital/
 
