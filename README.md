@@ -1,3 +1,7 @@
+**Jair Bolsonaro Planned to Seek Asylum in Argentina, Brazil’s Police Say**\
+`The police said they found a request for asylum, addressed to Argentina’s leader, on the phone of the Brazilian ex-president, who is accused of plotting a coup.`\
+https://nytimes.com/2025/08/20/world/americas/jair-bolsonaro-brazil-asylum-argentina.html
+
 **A Huge Cave in Kentucky Was a Smelly Disaster. Now It’s Spectacular.**\
 `Hidden River Cave was once filled with heavy metals and sewage that made the surrounding town smell awful. After a cleanup, it became a tourist draw.`\
 https://nytimes.com/2025/08/20/climate/horse-hidden-river-cave-pollution-cleanup.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6566104/2025/08/20/skyy-moore-trade-chiefs-49ers/
 **Broncos trade Devaughn Vele to Saints: Why Denver could part with WR**\
 `Denver will receive a fourth-round pick in 2026 and a seventh-round pick in 2027 for the promising wideout.`\
 https://nytimes.com/athletic/6566061/2025/08/20/broncos-trade-devaughn-vele-saints-draft-picks/
-
-**U.S. Navy Sailor Is Convicted of Spying for China**\
-`Jinchao Wei provided a Chinese intelligence officer with defense and weapons abilities of U.S. warships, including their vulnerabilities, prosecutors said.`\
-https://nytimes.com/2025/08/20/us/us-navy-sailor-china-spy-convicted.html
 
