@@ -1,3 +1,11 @@
+**Texas Mother Wanted for Son’s Murder Arrested in India**\
+`Cindy Rodriguez Singh had fled the United States in 2023 shortly after the authorities questioned her about her 6-year-old’s disappearance.`\
+https://nytimes.com/2025/08/21/world/asia/cindy-singh-fbi-most-wanted-india.html
+
+**Austin Riley's season ends with sports hernia surgery; Braves add starter Cal Quantrill**\
+`The typical recovery period for Riley's procedure is six weeks, but there are only five weeks left in the season.`\
+https://nytimes.com/athletic/6568138/2025/08/21/braves-austin-riley-surgery-cal-quantrill/
+
 **State Dept. Unlawfully Withheld Visas Under Trump’s Travel Ban, Judge Rules**\
 `The ruling involved a subset of applicants who had won the right to apply for a visa under a lottery system aimed at fostering diversity.`\
 https://nytimes.com/2025/08/21/us/politics/state-dept-travel-ban-ruling.html
