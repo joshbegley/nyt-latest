@@ -1,3 +1,15 @@
+**Mets' positive momentum halted in frustrating loss to Nationals as familiar problems return**\
+`For the Mets to qualify for the postseason, they need better from Kodai Senga and an offense that slumbers against middle relievers.`\
+https://nytimes.com/athletic/6566268/2025/08/20/mets-positive-momentum-halted-loss-to-nationals-familiar-problems/
+
+**Bullet fired into Chiefs building while Andy Reid was inside in 2024: Source**\
+`Police are investigating the incident, saying that “there is no indication this was a targeted incident at any person or organization.”`\
+https://nytimes.com/athletic/6566316/2025/08/20/chiefs-andy-reid-bullet/
+
+**‘Highest 2 Lowest’ Is Doing Too Much. (And We Love It.)**\
+`Spike Lee’s new movie is over the top and unapologetically New York. Wesley Morris dives into it on “Cannonball” podcast.`\
+https://nytimes.com/video/podcasts/100000010348044/highest-2-lowest-spike-lee.html
+
 **Mascherano sent off, coaches from stands in Miami's mad Leagues Cup win**\
 `Miami's triumph over Tigres featured a bit of everything – including a sent-off coach who just couldn't stay away`\
 https://nytimes.com/athletic/6566290/2025/08/20/javier-mascherano-red-card-phone-inter-miami-tigres-leagues-cup/
