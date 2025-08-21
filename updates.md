@@ -1,3 +1,7 @@
+**ESPN, MLB have framework for deal to sell out-of-market regular-season games**\
+`ESPN would continue to broadcast around 30 regular-season games, but not “Sunday Night Baseball.”`\
+https://nytimes.com/athletic/6567327/2025/08/21/mlb-espn-exclusive-out-of-market-digital/
+
 **Vance Recounts Telling Zelensky to ‘Behave’ in Trump Meeting**\
 `It was not the first time that the vice president had addressed Ukraine’s leader with words more commonly spoken to toddlers than heads of state.`\
 https://nytimes.com/2025/08/21/us/politics/vance-zelensky-ukraine.html
