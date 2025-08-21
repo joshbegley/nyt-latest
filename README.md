@@ -1,3 +1,15 @@
+**Remembering Joey Jones: Mr Wrexham, a two-time European Cup winner, and 'a special man'**\
+`On Wednesday the people of Wrexham said a final farewell to their football club's greatest idol`\
+https://nytimes.com/athletic/6556041/2025/08/21/joey-jones-wrexham-liverpool-wales/
+
+**Grappling, goalkeepers timewasting and captain guidelines - but do refereeing crackdowns last?**\
+`A new season brings fresh directives for players, managers and officials to be aware of - but how long will these rules be enforced for?`\
+https://nytimes.com/athletic/6562539/2025/08/21/refereeing-crackdowns-grappling-premier-league-last/
+
+**What happens when football clubs move stadiums?**\
+`No Premier League club in the 21st century has permanently moved stadium and improved their home form. Can Everton buck that trend?`\
+https://nytimes.com/athletic/6560215/2025/08/21/everton-football-clubs-move-stadiums/
+
 **Braves takeaways: Hurston Waldrep's been a revelation, resurgent Michael Harris II a relief**\
 `Waldrep continued to impress Wednesday with seven innings of four-hit ball, reducing his ERA to 0.73.`\
 https://nytimes.com/athletic/6566334/2025/08/21/braves-hurston-waldrep-michael-harris-white-sox/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6560132/2025/08/21/eirik-granaas-15-fredrikstad-rec
 **Corrections: Aug. 21, 2025**\
 `Corrections that appeared in print on Thursday, Aug. 21, 2025.`\
 https://nytimes.com/2025/08/21/pageoneplus/corrections-aug-21-2025.html
-
-**Quote of the Day: Ireland’s Last Leprechaun Whisperer Hunts His Own Pot of Gold**\
-`Quotation of the Day for Thursday, August 21, 2025.`\
-https://nytimes.com/2025/08/20/pageoneplus/quote-of-the-day-irelands-last-leprechaun-whisperer-hunts-his-own-pot-of-gold.html
-
-**Cubs' Kyle Tucker had hairline fracture in hand, Craig Counsell confirms**\
-`The normally reliable slugger has posted a .560 OPS since July 1, has not homered since July 19 and has zero extra-base hits in August.`\
-https://nytimes.com/athletic/6566295/2025/08/20/chicago-cubs-kyle-tucker-injury-update/
-
-**Jake Paul vs. Gervonta 'Tank' Davis: Netflix to stream fight Nov. 14**\
-`Davis could be Paul's most formidable foe yet, but it's unclear how sides will handle the large weight difference between the fighters.`\
-https://nytimes.com/athletic/6566263/2025/08/20/jake-paul-vs-gervonta-tank-davis/
 
