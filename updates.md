@@ -1,3 +1,7 @@
+**Soccer Match in Argentina Ends Early After Violence in Stands**\
+`Fans were hospitalized and detained after violent attacks during a match in a stadium near Buenos Aires, prompting officials to cancel the game.`\
+https://nytimes.com/2025/08/21/world/americas/argentina-chile-soccer-violence.html
+
 **Spelling Bee Forum**\
 `Feeling stuck on today’s puzzle? We can help.`\
 https://nytimes.com/2025/08/21/crosswords/spelling-bee-forum.html
