@@ -1,3 +1,11 @@
+**Yankees sign former Mets right-hander Paul Blackburn**\
+`Blackburn will work out of the Yankees' bullpen. He dealt with several injuries after joining the Mets at the 2024 trade deadline.`\
+https://nytimes.com/athletic/6567951/2025/08/21/yankees-sign-paul-blackburn-mets/
+
+**NWSL commissioner threatened to fine KC Current over weather delay: Sources**\
+`The Kansas City Current's game against Orlando Pride was delayed by more than three hours, missing its national broadcast slot`\
+https://nytimes.com/athletic/6566406/2025/08/21/nwsl-weather-delay-threat-fine-kc-current/
+
 **Suzuki is ready to build on what the Canadiens accomplished last season**\
 `Nick Suzuki knows expectations will be higher for the Canadiens, but he is confident the team can meet or even exceed them.`\
 https://nytimes.com/athletic/6567899/2025/08/21/canadiens-suzuki-expectations-dobson-demidov-laine/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/08/21/books/review/new-book-recommendations.html
 **Newsom Raises $6.2 Million in First Week of Redistricting Fight**\
 `The figure makes plain how a gerrymandering push that began in Texas but spread nationwide has energized the Democratic base.`\
 https://nytimes.com/2025/08/21/us/politics/newsom-gerrymandering-california-fundraising.html
-
-**Woman’s Body Found in Forest Near L.A. Her Husband Left the U.S., Police Say.**\
-`A neighbor’s doorbell camera showed Jossimar Cabrera dragging a large object in a tarp, two days before his wife was reported missing, the authorities said.`\
-https://nytimes.com/2025/08/21/us/missing-woman-dead-los-angeles-forest.html
-
-**Fantasy bullpen report featuring rising reliever Edwin Uceta and a rash of injuries**\
-`Greg Jewett keeps fantasy baseball managers informed on a closer carousel that has been rapidly picking up speed since the All-Star break.`\
-https://nytimes.com/athletic/6567333/2025/08/21/fantasy-baseball-bullpen-report-relievers-closer-injuries/
 

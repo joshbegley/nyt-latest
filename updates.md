@@ -1,3 +1,11 @@
+**Yankees sign former Mets right-hander Paul Blackburn**\
+`Blackburn will work out of the Yankees' bullpen. He dealt with several injuries after joining the Mets at the 2024 trade deadline.`\
+https://nytimes.com/athletic/6567951/2025/08/21/yankees-sign-paul-blackburn-mets/
+
+**NWSL commissioner threatened to fine KC Current over weather delay: Sources**\
+`The Kansas City Current's game against Orlando Pride was delayed by more than three hours, missing its national broadcast slot`\
+https://nytimes.com/athletic/6566406/2025/08/21/nwsl-weather-delay-threat-fine-kc-current/
+
 **Suzuki is ready to build on what the Canadiens accomplished last season**\
 `Nick Suzuki knows expectations will be higher for the Canadiens, but he is confident the team can meet or even exceed them.`\
 https://nytimes.com/athletic/6567899/2025/08/21/canadiens-suzuki-expectations-dobson-demidov-laine/
