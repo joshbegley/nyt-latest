@@ -1,5 +1,9 @@
+**Liverpool's Frimpong out until after international break with hamstring injury**\
+`The 24-year-old was substituted during the second half of his Premier League debut against Bournemouth last Friday.`\
+https://nytimes.com/athletic/6567077/2025/08/21/liverpool-jeremie-frimpong-injury-update/
+
 **Williamson to miss start of Arsenal's season after knee surgery**\
-`The injury was to the same knee (right) that she suffered an anterior cruciate ligament injury to in April 2023, but is a separate issue.`\
+`The injury was to the same knee that she suffered an anterior cruciate ligament injury to in April 2023, but is a separate issue.`\
 https://nytimes.com/athletic/6567168/2025/08/21/arsenal-leah-williamson-injury/
 
 **NHL risers and fallers: Your picks. Plus: Meet the Moldovan Mountain**\
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/21/us/menendez-parole-how-to-watch.html
 **Cowboys coach optimistic Parsons will play in Week 1 amid trade request**\
 `“I feel good that Micah will be out there against the Philadelphia Eagles," Schottenheimer said Wednesday.`\
 https://nytimes.com/athletic/6567035/2025/08/21/brian-schottenheimer-micah-parsons-comments-cowboys/
-
-**Immigrant Population in U.S. Drops for the First Time in Decades**\
-`An analysis of census data by the Pew Research Center found that between January and June, the foreign-born population declined by nearly 1.5 million.`\
-https://nytimes.com/2025/08/21/us/immigration-decline-united-states-trump.html
 
