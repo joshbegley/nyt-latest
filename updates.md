@@ -1,3 +1,15 @@
+**International Criminal Court Criticizes New U.S. Sanctions Against It**\
+`The Trump administration imposed further penalties on judges for the world’s highest criminal court in retaliation for issuing arrest warrants for Israeli leaders and investigating the U.S. military.`\
+https://nytimes.com/2025/08/21/us/politics/international-criminal-court-us-sanctions.html
+
+**‘The Beatles Anthology’ Expands With a 9th Episode and 4th Volume**\
+`This episode goes behind the scenes of the 1995 documentary; new mixes of “Free as a Bird” and “Real Love” are coming out; and an updated book is due.`\
+https://nytimes.com/2025/08/21/arts/music/beatles-anthology-documentary-new-demos.html
+
+**Trump’s Bold Talk Aside, Russia and Ukraine Remain Miles Apart on Peace**\
+`Nearly a week after President Trump’s Alaska summit, his suggestions of imminent breakthroughs have not come to pass.`\
+https://nytimes.com/2025/08/21/world/europe/russia-ukraine-peace-talks-trump.html
+
 **What Progress Has Trump Really Made in Ukraine Peace Talks?**\
 `The gulf between Moscow and Kyiv’s positions remains huge, and that is crashing into the expectations set by the White House.`\
 https://nytimes.com/2025/08/21/world/europe/russia-ukraine-peace-talks-trump.html

@@ -1,5 +1,13 @@
-**What Progress Has Trump Really Made in Ukraine Peace Talks?**\
-`The gulf between Moscow and Kyiv’s positions remains huge, and that is crashing into the expectations set by the White House.`\
+**International Criminal Court Criticizes New U.S. Sanctions Against It**\
+`The Trump administration imposed further penalties on judges for the world’s highest criminal court in retaliation for issuing arrest warrants for Israeli leaders and investigating the U.S. military.`\
+https://nytimes.com/2025/08/21/us/politics/international-criminal-court-us-sanctions.html
+
+**‘The Beatles Anthology’ Expands With a 9th Episode and 4th Volume**\
+`This episode goes behind the scenes of the 1995 documentary; new mixes of “Free as a Bird” and “Real Love” are coming out; and an updated book is due.`\
+https://nytimes.com/2025/08/21/arts/music/beatles-anthology-documentary-new-demos.html
+
+**Trump’s Bold Talk Aside, Russia and Ukraine Remain Miles Apart on Peace**\
+`Nearly a week after President Trump’s Alaska summit, his suggestions of imminent breakthroughs have not come to pass.`\
 https://nytimes.com/2025/08/21/world/europe/russia-ukraine-peace-talks-trump.html
 
 **Ryan O’Hearn, Gavin Sheets seizing opportunities to address Padres’ lack of power**\
@@ -29,12 +37,4 @@ https://nytimes.com/2025/08/21/us/menendez-brothers-lawyer-resentencing.html
 **Gladbach in talks to sign USMNT's Reyna from Dortmund**\
 `The 22-year-old's contract at Dortmund is set to expire next summer.`\
 https://nytimes.com/athletic/6506391/2025/08/21/gio-reyna-gladbach-dortmund-transfer/
-
-**What Will Powell Do Now?**\
-`President Trump’s attack on a Federal Reserve governor comes as the White House seeks more control over the central bank. Will the Fed’s leader push back?`\
-https://nytimes.com/2025/08/21/business/dealbook/powell-trump-cook-fed-independence.html
-
-**Burning Rangers questions for 2025-26: Will the team extend Artemi Panarin?**\
-`Only one year remains on the seven-year, $81.5 million deal that brought Panarin to New York. This leaves the team at a big crossroads`\
-https://nytimes.com/athletic/6565062/2025/08/21/artemi-panarin-rangers-contract-nhl-free-agency/
 
