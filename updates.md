@@ -1,3 +1,7 @@
+**Bright Tiles Inspired by Cities Around the World**\
+`Plus: cinnamon buns in New York’s East Village, the Athens neighborhood attracting artists and more recommendations from T Magazine.`\
+https://nytimes.com/2025/08/21/t-magazine/concrete-tiles.html
+
 **International Criminal Court Criticizes New U.S. Sanctions Against It**\
 `The Trump administration imposed further penalties on judges for the world’s highest criminal court in retaliation for issuing arrest warrants for Israeli leaders and investigating the U.S. military.`\
 https://nytimes.com/2025/08/21/us/politics/international-criminal-court-us-sanctions.html
