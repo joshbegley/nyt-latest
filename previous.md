@@ -1,3 +1,11 @@
+**TAFC: Ex-USMNT coaches talk Pulisic, Arsenal's Eze move, 'keeper's late equaliser**\
+`Today in TAFC: What ex-USMNT coaches think of Christian Pulisic, how Arsenal could steal Eze from Spurs, and Ream's game in his own words.`\
+https://nytimes.com/athletic/6566591/2025/08/21/pulisic-usmnt-world-cup-eze-arsenal-tottenham/
+
+**The Pulse: The biggest hockey player on Earth**\
+`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/6565155/2025/08/21/worlds-tallest-hockey-player-the-pulse/
+
 **Six questions that will help shape Ravens' final roster decisions**\
 `Can tight end Isaiah Likely avoid being placed on injured reserve? And how many defensive backs will Baltimore keep?`\
 https://nytimes.com/athletic/6565836/2025/08/21/baltimore-ravens-53-man-roster-decisions/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6549950/2025/08/21/nba-offseason-2025-rankings-thun
 **Red Sox rookie Roman Anthony has passed every major-league test so far. Now he takes on Yankee Stadium**\
 `The 21-year-old will likely play a key role in the storied Red Sox-Yankees rivalry for most of the next decade. `\
 https://nytimes.com/athletic/6565795/2025/08/21/roman-anthony-red-sox-yankees/
-
-**What is the Tour Championship trying to be? After 2 decades, it's still not sure**\
-`While seemingly nobody agrees on any perfect solution, the overwhelming majority of players are just happy the starting stroke era is over.`\
-https://nytimes.com/athletic/6565892/2025/08/21/2025-tour-championship-fedex-cup-format/
-
-**NFL Projection Model, NFC win totals: How wide is gap between Eagles and everyone else?**\
-`Are the Eagles the clear-cut favorites to win the NFC? Our model likes them to repeat as champs, but it won't be easy in a stacked NFC. `\
-https://nytimes.com/athletic/6565019/2025/08/21/nfl-projection-model-nfc-win-totals-2025/
 

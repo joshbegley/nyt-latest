@@ -1,3 +1,11 @@
+**TAFC: Ex-USMNT coaches talk Pulisic, Arsenal's Eze move, 'keeper's late equaliser**\
+`Today in TAFC: What ex-USMNT coaches think of Christian Pulisic, how Arsenal could steal Eze from Spurs, and Ream's game in his own words.`\
+https://nytimes.com/athletic/6566591/2025/08/21/pulisic-usmnt-world-cup-eze-arsenal-tottenham/
+
+**The Pulse: The biggest hockey player on Earth**\
+`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/6565155/2025/08/21/worlds-tallest-hockey-player-the-pulse/
+
 **Six questions that will help shape Ravens' final roster decisions**\
 `Can tight end Isaiah Likely avoid being placed on injured reserve? And how many defensive backs will Baltimore keep?`\
 https://nytimes.com/athletic/6565836/2025/08/21/baltimore-ravens-53-man-roster-decisions/
