@@ -1,40 +1,40 @@
-**Word of the Day: renowned**\
-`This word has appeared in 892 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2025/08/21/learning/word-of-the-day-renowned.html
+**Chargers' goal to build depth on interior defensive line is looking like a reality**\
+`The Chargers went with a committee approach in trying to replace Poona Ford and Morgan Fox. The early returns look good. `\
+https://nytimes.com/athletic/6566115/2025/08/20/chargers-interior-defensive-line-depth/
 
-**Soccer Game in Argentina Is Canceled After Violence in Stands**\
-`Fans were hospitalized and detained after violent attacks during a match in a stadium near Buenos Aires, prompting officials to cancel the game.`\
-https://nytimes.com/2025/08/21/world/americas/argentina-chile-soccer-violence.html
+**Jair Bolsonaro Planned to Seek Asylum in Argentina, Brazil’s Police Say**\
+`The police said they found a request for asylum, addressed to Argentina’s leader, on the phone of the Brazilian ex-president, who is accused of plotting a coup.`\
+https://nytimes.com/2025/08/20/world/americas/jair-bolsonaro-brazil-asylum-argentina.html
 
-**Sara Errani and Andrea Vavassori retain U.S. Open mixed doubles by outclassing singles stars**\
-`The defending champions delivered a different sort of script Wednesday, beating Iga Świątek and Casper Ruud 6-3, 5-7, 10-6 in the final.`\
-https://nytimes.com/athletic/6566260/2025/08/21/tennis-us-open-mixed-doubles-errani-vavassori-win/
+**A Huge Cave in Kentucky Was a Smelly Disaster. Now It’s Spectacular.**\
+`Hidden River Cave was once filled with heavy metals and sewage that made the surrounding town smell awful. After a cleanup, it became a tourist draw.`\
+https://nytimes.com/2025/08/20/climate/horse-hidden-river-cave-pollution-cleanup.html
 
-**The New York Times in Print for Thursday, Aug. 21, 2025**\
-``\
-https://nytimes.com/issue/todayspaper/2025/08/21/todays-new-york-times
+**They Kindled Froggy Romance and Rescued Eggs to Save a Species in Mississippi**\
+`Fewer than 100 dusky gopher frogs were known to remain. Thanks to some very dedicated humans, numbers are now on the rise.`\
+https://nytimes.com/2025/08/20/climate/mississippi-dusky-gopher-frog.html
 
-**He Was the Face and Voice of Gaza. Israel Assassinated Him.**\
-`The killing of Anas al-Sharif marks an ominous new phase of the war in Gaza.`\
-https://nytimes.com/2025/08/21/opinion/israel-al-sharif-killing-gaza.html
+**Why Shop? In Maine, the Library of Things Has It All (Almost)**\
+`One town’s effort to make pricey items accessible and encourage people to buy less stuff seems to be catching on.`\
+https://nytimes.com/2025/08/20/climate/maine-library-of-things.html
 
-**The Folly of Trump’s Cartel-Bombing Fantasy**\
-`A U.S. strike on cartels in Mexico won’t fix the deep problems that allow organized crime to flourish.`\
-https://nytimes.com/2025/08/21/opinion/trump-cartel-mexico-fentanyl.html
+**Do Coconuts Go With Oysters? For Saving the Delaware Shore, Yes.**\
+`Along with other East Coast states, Delaware is using natural materials to protect vulnerable coastal areas.`\
+https://nytimes.com/2025/08/20/climate/delaware-living-shorelines.html
 
-**Fire on U.S. Navy Ship in Japan Extinguished After 12 Hours**\
-`Two sailors sustained minor injuries, the Navy said, adding that the ship’s crew will remain on board in Okinawa.`\
-https://nytimes.com/2025/08/21/us/us-navy-fire-ship-okinawa.html
+**These Ohioans Got a Deal on Solar Panels. Here’s Their Secret.**\
+`A group of homeowners worked together to navigate the process of installing rooftop solar systems, saving time and money in the process.`\
+https://nytimes.com/2025/08/20/climate/rooftop-solar-cooperative-ohio.html
 
-**How Owen Caissie met the Cubs' challenge and improved upon his few remaining flaws**\
-`Caissie drew a big walk in Wednesday's 4-3 win over the Milwaukee Brewers, the Cubs' third straight victory.`\
-https://nytimes.com/athletic/6566404/2025/08/21/cubs-owen-caissie-improvement/
+**Could Shohei Ohtani pitch in relief in October? Here's what it would take**\
+`The door remains open, regardless, that Ohtani could be used as a reliever at some point in October.`\
+https://nytimes.com/athletic/6566154/2025/08/20/los-angeles-dodgers-shohei-ohtani-october-pitching/
 
-**Paige Bueckers ties rookie single-game scoring record**\
-`Bueckers was already the fastest rookie in WNBA history to 500 points. She also set the Wings franchise assist record.`\
-https://nytimes.com/athletic/6566427/2025/08/21/paige-bueckers-breaks-rookie-scoring-record-wings/
+**Texas House Approves Redistricting Maps**\
+`The Texas House passed a partisan congressional map on Wednesday after weeks of legislative combat.`\
+https://nytimes.com/video/us/politics/100000010352562/texas-republican-redistricting-maps.html
 
-**Thursday Briefing: Israeli Troops Near Gaza City**\
-`Also, Africa’s push for a new world map.`\
-https://nytimes.com/2025/08/21/briefing/gaza-city-offensive-west-bank-settlements-ukraine-russia-china-tibet.html
+**Chiefs trade WR Skyy Moore to 49ers, swap picks: Sources**\
+`The Chiefs will receive a 2027 sixth-round pick and send the 49ers a 2027 seventh-round pick.`\
+https://nytimes.com/athletic/6566104/2025/08/20/skyy-moore-trade-chiefs-49ers/
 
