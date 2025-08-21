@@ -1,3 +1,7 @@
+**The Trade That Binds the Indian and American Economies**\
+`President Trump focuses on the trade in manufactured goods, where India sells more to the U.S. than it buys. But the countries share a balanced trade in services.`\
+https://nytimes.com/2025/08/21/business/trump-tariffs-india.html
+
 **An Ohio State repeat? No SEC byes? 5 takeaways from our College Football Playoff predictor**\
 `Our College Football Playoff predictor is back. Here's how it came together and what to watch as Ohio State aims for a repeat.`\
 https://nytimes.com/athletic/6565395/2025/08/21/college-football-playoff-preseason-predictions-odds/
