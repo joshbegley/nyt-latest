@@ -1,3 +1,11 @@
+**Police Respond to Active Shooter Report at Villanova University**\
+`The report drew a large police response to the university’s campus northwest of Philadelphia, and students were told to shelter in place.`\
+https://nytimes.com/2025/08/21/us/villanova-university-shooting.html
+
+**Brighton's Moran joins LAFC on loan until January**\
+`Moran joins fellow former Premier League players Hugo Lloris and Son Heung-min.`\
+https://nytimes.com/athletic/6568206/2025/08/21/brighton-lafc-moran-transfer-news-loan/
+
 **Potter says West Ham 's previous transfer policy has hindered activity this summer**\
 `Potter intends to step up their pursuit for transfer targets but admits he is hamstrung by their inability to spend heavily.`\
 https://nytimes.com/athletic/6568075/2025/08/21/west-ham-news-potter-transfer-policy/

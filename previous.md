@@ -1,9 +1,13 @@
+**Police Respond to Active Shooter Report at Villanova University**\
+`The report drew a large police response to the university’s campus northwest of Philadelphia, and students were told to shelter in place.`\
+https://nytimes.com/2025/08/21/us/villanova-university-shooting.html
+
 **Potter says West Ham 's previous transfer policy has hindered activity this summer**\
 `Potter intends to step up their pursuit for transfer targets but admits he is hamstrung by their inability to spend heavily.`\
 https://nytimes.com/athletic/6568075/2025/08/21/west-ham-news-potter-transfer-policy/
 
 **Brighton's Moran joins LAFC on loan until January**\
-`Moran will join fellow former Premier League players Hugo Lloris and Son Heung-min.`\
+`Moran joins fellow former Premier League players Hugo Lloris and Son Heung-min.`\
 https://nytimes.com/athletic/6568206/2025/08/21/brighton-lafc-moran-transfer-news-loan/
 
 **Texas Mother Wanted for Son’s Murder Arrested in India**\
@@ -29,8 +33,4 @@ https://nytimes.com/interactive/2025/08/21/arts/music/lola-young-messy-album.htm
 **A Coney Island Fixture, With Baked Clams and Housemade Mozzarella**\
 `For nearly 120 years, Gargiulo’s has attracted those in search of classic southern Italian cooking and a festive, familial atmosphere.`\
 https://nytimes.com/2025/08/21/t-magazine/gargiulos-coney-island.html
-
-**The Rise of Right-Wing Nihilism**\
-`Rather than conserve or build, some people just want to destroy.`\
-https://nytimes.com/2025/08/21/opinion/rufo-yarvin-trump-nihilism.html
 
