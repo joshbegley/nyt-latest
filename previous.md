@@ -1,3 +1,11 @@
+**U.S. Kills Islamic State Operative in Rare Raid in Syria**\
+`The Pentagon provided few details about the operation. But counterterrorism raids — as opposed to airstrikes — typically involve helicopter-borne commandos.`\
+https://nytimes.com/2025/08/21/us/politics/islamic-state-us-raid-syria.html
+
+**Jones on Parsons contract: 'We've got this deal resolved in my mind'**\
+`Jerry Jones said when they sent the Micah Parsons contract details over, “the agent told us to stick it up our ass.”`\
+https://nytimes.com/athletic/6568347/2025/08/21/cowboys-jerry-jones-micah-parsons-contract/
+
 **Taking on the Fed, Trump Combines Retribution Tactics With a Power Play**\
 `The president’s second term has been marked by his eagerness to go after his foes and his assertions of presidential authority. Both traits are on display as he seeks control over the central bank.`\
 https://nytimes.com/2025/08/21/us/politics/trump-fed-federal-reserve.html
@@ -18,7 +26,7 @@ https://nytimes.com/athletic/6568305/2025/08/21/kyle-tucker-cubs-brewers-series/
 `State Democratic officials withdrew the endorsement of a Minneapolis mayoral candidate who has drawn comparisons to Zohran Mamdani, the New York mayoral hopeful.`\
 https://nytimes.com/2025/08/21/us/minnesotas-democratic-party-revokes-endorsement-of-mayoral-candidate.html
 
-**Mandel: SEC going to 9 games staves off Big Ten's hairbrained Playoff plan**\
+**Mandel: SEC going to 9 games staves off Big Ten's harebrained Playoff plan**\
 `Big Ten’s schools might have to go back to drawing board with their own scheduling.`\
 https://nytimes.com/athletic/6568398/2025/08/21/sec-9-games-big-tens-playoff-plan/
 
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6568163/2025/08/21/lions-texas-practice-jared-goff-
 **Red Envelopes With Cash Are Changing Hands at Adams Campaign Rallies**\
 `New York Times reporters witnessed supporters of Mayor Eric Adams handing out cash-filled envelopes. Sometimes, that money went to reporters from Chinese-language outlets.`\
 https://nytimes.com/2025/08/21/nyregion/eric-adams-chinese-cash-envelopes.html
-
-**Palace have left it 'very late' to sign replacements - Glasner**\
-`After the victory at Selhurst Park, Glasner discussed how Palace have negotiated Eze and Guehi’s futures this summer.`\
-https://nytimes.com/athletic/6568396/2025/08/21/crystal-palace-transfer-news-glasner-eze-guehi/
-
-**N.Y. Lawmakers Press Officials About Home Health Program’s Issues**\
-`The program, which helps disabled and chronically ill New Yorkers, has had issues with timely pay and service since the state brought in a new operator to save money.`\
-https://nytimes.com/2025/08/21/nyregion/cdpap-new-york.html
 

@@ -1,3 +1,15 @@
+**U.S. Kills Islamic State Operative in Rare Raid in Syria**\
+`The Pentagon provided few details about the operation. But counterterrorism raids — as opposed to airstrikes — typically involve helicopter-borne commandos.`\
+https://nytimes.com/2025/08/21/us/politics/islamic-state-us-raid-syria.html
+
+**Jones on Parsons contract: 'We've got this deal resolved in my mind'**\
+`Jerry Jones said when they sent the Micah Parsons contract details over, “the agent told us to stick it up our ass.”`\
+https://nytimes.com/athletic/6568347/2025/08/21/cowboys-jerry-jones-micah-parsons-contract/
+
+**Mandel: SEC going to 9 games staves off Big Ten's harebrained Playoff plan**\
+`Big Ten’s schools might have to go back to drawing board with their own scheduling.`\
+https://nytimes.com/athletic/6568398/2025/08/21/sec-9-games-big-tens-playoff-plan/
+
 **Taking on the Fed, Trump Combines Retribution Tactics With a Power Play**\
 `The president’s second term has been marked by his eagerness to go after his foes and his assertions of presidential authority. Both traits are on display as he seeks control over the central bank.`\
 https://nytimes.com/2025/08/21/us/politics/trump-fed-federal-reserve.html
