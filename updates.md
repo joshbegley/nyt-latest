@@ -1,3 +1,7 @@
+**Zelensky, Back From Washington, Projects More Confidence in Peace Talks**\
+`The Ukrainian leader returned with a U.S. commitment to participate in security guarantees for Kyiv in a postwar settlement.`\
+https://nytimes.com/2025/08/21/world/europe/zelensky-ukraine-russia-trump-peace-talks.html
+
 **Sailors Fight Fire on U.S. Navy Ship in Japan**\
 `The fire on the U.S.S. New Orleans burned for about 12 hours and injured two sailors, the Navy said.`\
 https://nytimes.com/video/us/100000010353021/us-navy-fire-ship-okinawa.html
