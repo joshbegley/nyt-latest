@@ -1,3 +1,11 @@
+**U.S. Open draw: Novak Djokovic lands with Carlos Alcaraz as defending champions learn paths**\
+`Can anyone challenge the 'Big Two' of men's tennis in the U.S. Open? And how is the women's draw so lopsided?`\
+https://nytimes.com/athletic/6566536/2025/08/21/tennis-us-open-draw-2025/
+
+**Small Fixes for a Big Problem**\
+`As President Trump moves to withdraw the United States from the fight against global warming, climate action is shifting to local solutions.`\
+https://nytimes.com/2025/08/21/climate/climate-solutions-local.html
+
 **McVay says Stafford 'looks like the stud that we know' since return to practice**\
 `Stafford has dealt with an aggravated disk that caused back soreness for the last several weeks.`\
 https://nytimes.com/athletic/6567800/2025/08/21/matthew-stafford-rams-practice-return-injury/
