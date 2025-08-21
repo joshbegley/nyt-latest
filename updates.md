@@ -1,3 +1,15 @@
+**Six questions that will help shape Ravens' final roster decisions**\
+`Can tight end Isaiah Likely avoid being placed on injured reserve? And how many defensive backs will Baltimore keep?`\
+https://nytimes.com/athletic/6565836/2025/08/21/baltimore-ravens-53-man-roster-decisions/
+
+**Wisconsin Woman Who Flew to Britain to Try to Kill a Man Gets 30-Year Sentence**\
+`Aimee Betro, 45, was convicted this month of attempting to shoot a man near Birmingham, England, in 2019.`\
+https://nytimes.com/2025/08/21/world/europe/aimee-betro-assassination-attempt-sentence.html
+
+**The Red Sox-Yankees series has 4 games on 4 different networks. Here's how to watch**\
+`Look at that, an extended, consequential late-summer series between baseball's fiercest rivals.`\
+https://nytimes.com/athletic/6565733/2025/08/21/red-sox-yankees-al-east-wild-card-how-to-watch/
+
 **Bryson Stott, Trea Turner are playing freely and powering the Phillies' lineup**\
 `This is all the Phillies have ever wanted from their talented but mercurial double-play tandem, Stott and Turner. Be natural.`\
 https://nytimes.com/athletic/6566214/2025/08/21/trea-turner-bryson-stott-phillies-lineup/
