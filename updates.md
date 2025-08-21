@@ -1,3 +1,19 @@
+**Is Giants preseason finale the last we'll see of Jaxson Dart this year?**\
+`If all goes according to plan, Thursday night’s preseason finale vs. New England will be the rookie QB's last game action for a long time.`\
+https://nytimes.com/athletic/6566292/2025/08/21/ny-giants-jaxson-dart-preseason-russell-wilson/
+
+**Meyer says Harbaugh should face NFL discipline for role in sign-stealing scandal**\
+`Meyer's comments come after the NCAA disciplined Michigan for staffer Connor Stalions' sign-stealing scheme during Harbaugh's tenure.`\
+https://nytimes.com/athletic/6566925/2025/08/21/urban-meyer-jim-harbaugh-michigan-sign-stealing/
+
+**French Authorities Investigate Streamer’s Death After Months of Abuse**\
+`Raphaël Graven, known online as Jean Pormanove, was regularly subjected to humiliation and abuse on Kick, a streaming platform.`\
+https://nytimes.com/2025/08/21/world/europe/jean-pormanove-dead-streamer-kick-french.html
+
+**Ingrid Lewis-Martin, Top Adams Adviser, Faces Fresh Corruption Charges**\
+`Ms. Lewis-Martin, the former chief adviser to Mayor Eric Adams, is accused of taking bribes in exchange for favorable treatment, including speeding city permits for a karaoke bar and residential renovations.`\
+https://nytimes.com/2025/08/21/nyregion/ingrid-lewis-martin-corruption-indictment.html
+
 **What to Expect From the Menendez Parole Hearings, and How to Follow**\
 `The hearings will be held on consecutive days, with separate deliberations for each brother.`\
 https://nytimes.com/2025/08/21/us/menendez-parole-how-to-watch.html
