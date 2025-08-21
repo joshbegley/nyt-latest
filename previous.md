@@ -1,3 +1,7 @@
+**Browns expected to play Flacco, Gabriel and Sanders in preseason finale**\
+`Kenny Pickett, who’s No. 2 on the team’s unofficial depth chart, will not play as he continues to deal with a lingering hamstring injury. `\
+https://nytimes.com/athletic/6568077/2025/08/21/browns-joe-flacco-dillon-gabriel-shedeur-sanders-rams/
+
 **Man Accused of Arranging Murder of the Rapper Young Dolph Is Found Not Guilty**\
 `A jury acquitted Hernandez Govan in the 2021 shooting of the rapper outside a Memphis cookie shop.`\
 https://nytimes.com/2025/08/21/us/young-dolph-murder-acquittal.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6567768/2025/08/21/chiefs-shooting-andy-reid-team-f
 **Yankees sign former Mets right-hander Paul Blackburn**\
 `Blackburn will work out of the bullpen. He dealt with several injuries after joining the Mets at the 2024 trade deadline.`\
 https://nytimes.com/athletic/6567951/2025/08/21/yankees-sign-paul-blackburn-mets/
-
-**NWSL commissioner threatened to fine KC Current over weather delay: Sources**\
-`The Kansas City Current's game against Orlando Pride was delayed by more than three hours, missing its national broadcast slot`\
-https://nytimes.com/athletic/6566406/2025/08/21/nwsl-weather-delay-threat-fine-kc-current/
 

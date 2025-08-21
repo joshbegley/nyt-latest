@@ -1,3 +1,7 @@
+**Browns expected to play Flacco, Gabriel and Sanders in preseason finale**\
+`Kenny Pickett, who’s No. 2 on the team’s unofficial depth chart, will not play as he continues to deal with a lingering hamstring injury. `\
+https://nytimes.com/athletic/6568077/2025/08/21/browns-joe-flacco-dillon-gabriel-shedeur-sanders-rams/
+
 **Man Accused of Arranging Murder of the Rapper Young Dolph Is Found Not Guilty**\
 `A jury acquitted Hernandez Govan in the 2021 shooting of the rapper outside a Memphis cookie shop.`\
 https://nytimes.com/2025/08/21/us/young-dolph-murder-acquittal.html
