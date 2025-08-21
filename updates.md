@@ -1,3 +1,11 @@
+**McVay says Stafford 'looks like the stud that we know' since return to practice**\
+`Stafford has dealt with an aggravated disk that caused back soreness for the last several weeks.`\
+https://nytimes.com/athletic/6567800/2025/08/21/matthew-stafford-rams-practice-return-injury/
+
+**Judge Says Alina Habba Has Acted Without Legal Authority**\
+`Defense lawyers had questioned whether Alina Habba, a Trump loyalist, was legally authorized to run the U.S. attorney’s office in New Jersey.`\
+https://nytimes.com/2025/08/21/nyregion/alina-habba-us-attorney-new-jersey.html
+
 **Court Decision to Toss Penalty Frees Trump Family of Financial Straits**\
 `The president’s financial situation had already improved after taking office a second time, thanks to his cryptocurrency ventures.`\
 https://nytimes.com/2025/08/21/us/politics/court-penalty-trump-family-financials.html
