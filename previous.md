@@ -1,3 +1,11 @@
+**Supreme Court Lets Trump Administration Cut N.I.H. Grants for Disfavored Research**\
+`The court’s order was fractured, with the justices splitting over whether individual cancellations and the policy behind them could be challenged in a federal trial court.`\
+https://nytimes.com/2025/08/21/us/politics/supreme-court-nih-grants.html
+
+**The Year’s Most Polarizing Rap Freestyle**\
+`Our critic’s latest Song of the Week is by Ian, a young white rapper who has gone very viral. Not everyone is happy about it.`\
+https://nytimes.com/video/podcasts/100000010351461/the-years-most-polarizing-rap-freestyle.html
+
 **Police Respond to Active Shooter Report at Villanova University**\
 `The report drew a large police response to the university’s campus northwest of Philadelphia, and students were told to shelter in place.`\
 https://nytimes.com/2025/08/21/us/villanova-university-shooting.html
@@ -29,8 +37,4 @@ https://nytimes.com/2025/08/21/briefing/us-eu-trade-deal-ukraine-war.html
 **Can a Gen Z Amy Winehouse Get Big Without Breaking? Lola Young Is Trying.**\
 `The diaristic pop-soul singer is self-loathing, self-aggrandizing, irreverent, evasive and in-your-face. At 24, she’s finally arrived. But the ride is just beginning.`\
 https://nytimes.com/interactive/2025/08/21/arts/music/lola-young-messy-album.html
-
-**A Coney Island Fixture, With Baked Clams and Housemade Mozzarella**\
-`For nearly 120 years, Gargiulo’s has attracted those in search of classic southern Italian cooking and a festive, familial atmosphere.`\
-https://nytimes.com/2025/08/21/t-magazine/gargiulos-coney-island.html
 
