@@ -1,3 +1,7 @@
+**Trump Says Massachusetts’ All-Blue Map Is Unfair. Is He Right?**\
+`Can you recognize a gerrymander?`\
+https://nytimes.com/interactive/2025/08/21/upshot/up-massachusetts-redistricting.html
+
 **ESPN, MLB have framework for deal to sell out-of-market regular-season games**\
 `ESPN would continue to broadcast around 30 regular-season games, but "Sunday Night Baseball" would move to a different night in the week.`\
 https://nytimes.com/athletic/6567327/2025/08/21/mlb-espn-exclusive-out-of-market-digital/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6564437/2025/08/21/trossard-contract-explained-have
 **Newcastle's potential striker pool shrinking as they search for solution to Isak-sized problem**\
 `Signing Wissa or Strand Larsen would provide a boost before the end of the window, but Newcastle are scouring Europe for contingency plans`\
 https://nytimes.com/athletic/6566628/2025/08/21/newcastle-striker-isak-transfers/
-
-**Faith Kipyegon, her legend growing, to return to Athlos women's track event**\
-`Faith Kipyegon is adding a return trip to Athlos to her calendar in a busy year that included a world record and a four-minute mile attempt.`\
-https://nytimes.com/athletic/6566668/2025/08/21/faith-kipyegon-athlos-womens-track-1500-meters/
 
