@@ -1,3 +1,7 @@
+**As Adams Tries to Run on His Record, Scandals Keep Swirling Around Him**\
+`Mayor Eric Adams of New York has sought to argue that his first-term wins have earned him the right to serve a second. But he cannot shake the stench of corruption around his administration.`\
+https://nytimes.com/2025/08/21/nyregion/eric-adams-mayor-corruption.html
+
 **Scoop City: Spencer Rattler leads final QB competition**\
 `Who's leading the QB competition in New Orleans, other battles to watch, contract disputes, and the greatest rookie seasons of all time`\
 https://nytimes.com/athletic/6567611/2025/08/21/spencer-rattler-saints-tyler-shough-competition-nfl-scoop-city/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6567527/2025/08/21/mlb-expansion-shorter-season-the
 **Vance Recounts Telling Zelensky to ‘Behave’ in Trump Meeting**\
 `It was not the first time that the vice president had addressed Ukraine’s leader with words more commonly spoken to toddlers than heads of state.`\
 https://nytimes.com/2025/08/21/us/politics/vance-zelensky-ukraine.html
-
-**Trump Says Massachusetts’ All-Blue Map Is Unfair. Is He Right?**\
-`Can you recognize a gerrymander?`\
-https://nytimes.com/interactive/2025/08/21/upshot/up-massachusetts-redistricting.html
 
