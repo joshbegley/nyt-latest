@@ -1,3 +1,7 @@
+**Taking on the Fed, Trump Combines Retribution Tactics With a Power Play**\
+`The president’s second term has been marked by his eagerness to go after his foes and his assertions of presidential authority. Both traits are on display as he seeks control over the central bank.`\
+https://nytimes.com/2025/08/21/us/politics/trump-fed-federal-reserve.html
+
 **T's Sept. 7 Men's Fashion Issue**\
 ``\
 https://nytimes.com/issue/t-magazine/2025/08/21/ts-sept-7-mens-fashion-issue-2025
