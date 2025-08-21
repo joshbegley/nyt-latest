@@ -1,3 +1,7 @@
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/08/21/crosswords/spelling-bee-forum.html
+
 **He Was the Face and Voice of Gaza. Israel Assassinated Him.**\
 `The killing of Anas al-Sharif marks an ominous new phase of the war in Gaza.`\
 https://nytimes.com/2025/08/21/opinion/israel-al-sharif-killing-gaza.html

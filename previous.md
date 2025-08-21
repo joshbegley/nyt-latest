@@ -1,3 +1,7 @@
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/08/21/crosswords/spelling-bee-forum.html
+
 **Word of the Day: renowned**\
 `This word has appeared in 892 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2025/08/21/learning/word-of-the-day-renowned.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6566404/2025/08/21/cubs-owen-caissie-improvement/
 **Paige Bueckers ties rookie single-game scoring record**\
 `Bueckers was already the fastest rookie in WNBA history to 500 points. She also set the Wings franchise assist record.`\
 https://nytimes.com/athletic/6566427/2025/08/21/paige-bueckers-breaks-rookie-scoring-record-wings/
-
-**Thursday Briefing: Israeli Troops Near Gaza City**\
-`Also, Africa’s push for a new world map.`\
-https://nytimes.com/2025/08/21/briefing/gaza-city-offensive-west-bank-settlements-ukraine-russia-china-tibet.html
 
