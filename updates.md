@@ -1,3 +1,15 @@
+**N.Y. Lawmakers Press Officials About Home Health Program’s Issues**\
+`The program, which helps disabled and chronically ill New Yorkers, has had issues with timely pay and service since the state brought in a new operator to save money.`\
+https://nytimes.com/2025/08/21/nyregion/cdpap-new-york.html
+
+**Erin’s gusts sent a wind turbine’s blades tumbling through a North Carolina neighborhood.**\
+`By Eric Athas`\
+https://nytimes.com/live/2025/08/20/weather/hurricane-erin/erins-gusts-sent-a-wind-turbines-blades-tumbling-through-a-north-carolina-neighborhood
+
+**See Trump’s Use of Federal Law Enforcement in D.C.**\
+`Times journalists reviewed hundreds of images and videos of law enforcement agents to determine what they have been doing on the ground.`\
+https://nytimes.com/2025/08/21/us/politics/dc-police-national-guard-trump.html
+
 **California Democrats Pass Redistricting Plan to Counter Texas Republicans**\
 `State lawmakers moved quickly to create new districts that could help Democrats flip five congressional seats. Their plan still requires voter approval.`\
 https://nytimes.com/2025/08/21/us/politics/california-newsom-redistricting-texas.html

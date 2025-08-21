@@ -1,3 +1,15 @@
+**N.Y. Lawmakers Press Officials About Home Health Program’s Issues**\
+`The program, which helps disabled and chronically ill New Yorkers, has had issues with timely pay and service since the state brought in a new operator to save money.`\
+https://nytimes.com/2025/08/21/nyregion/cdpap-new-york.html
+
+**Erin’s gusts sent a wind turbine’s blades tumbling through a North Carolina neighborhood.**\
+`By Eric Athas`\
+https://nytimes.com/live/2025/08/20/weather/hurricane-erin/erins-gusts-sent-a-wind-turbines-blades-tumbling-through-a-north-carolina-neighborhood
+
+**See Trump’s Use of Federal Law Enforcement in D.C.**\
+`Times journalists reviewed hundreds of images and videos of law enforcement agents to determine what they have been doing on the ground.`\
+https://nytimes.com/2025/08/21/us/politics/dc-police-national-guard-trump.html
+
 **California Democrats Pass Redistricting Plan to Counter Texas Republicans**\
 `State lawmakers moved quickly to create new districts that could help Democrats flip five congressional seats. Their plan still requires voter approval.`\
 https://nytimes.com/2025/08/21/us/politics/california-newsom-redistricting-texas.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/08/21/briefing/trump-fine-court-us-eu-trade-deal.html
 **Supreme Court Lets Trump Administration Cut N.I.H. Grants for Disfavored Research**\
 `The court’s order was fractured, with the justices splitting over whether individual cancellations and the policy behind them could be challenged in a federal trial court.`\
 https://nytimes.com/2025/08/21/us/politics/supreme-court-nih-grants.html
-
-**The Year’s Most Polarizing Rap Freestyle**\
-`Our critic’s latest Song of the Week is by Ian, a young white rapper who has gone very viral. Not everyone is happy about it.`\
-https://nytimes.com/video/podcasts/100000010351461/the-years-most-polarizing-rap-freestyle.html
-
-**Here’s what to know.**\
-`The report drew a large police response to the university’s campus northwest of Philadelphia, and students were told to shelter in place.`\
-https://nytimes.com/live/2025/08/21/us/villanova-active-shooter/villanova-university-shooting
-
-**Potter says West Ham 's previous transfer policy has hindered activity this summer**\
-`Potter intends to step up their pursuit for transfer targets but admits he is hamstrung by their inability to spend heavily.`\
-https://nytimes.com/athletic/6568075/2025/08/21/west-ham-news-potter-transfer-policy/
 
