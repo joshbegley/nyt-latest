@@ -1,3 +1,15 @@
+**F.B.I. Plans to Lower Recruiting Standards, Alarming Agents**\
+`The plan appears to be part of a broader effort to shift the agency’s focus from tracking national security threats to fighting crime.`\
+https://nytimes.com/2025/08/21/us/politics/fbi-agent-recruitment-requirements-trump.html
+
+**Shooting at Chiefs facility kept quiet at behest of team, president says**\
+`After an investigation with the KCPD, Mark Donovan said the team decided to keep a May 2024 shooting incident at the team facility quiet.`\
+https://nytimes.com/athletic/6567768/2025/08/21/chiefs-shooting-andy-reid-team-facility/
+
+**Yankees sign former Mets right-hander Paul Blackburn**\
+`Blackburn will work out of the bullpen. He dealt with several injuries after joining the Mets at the 2024 trade deadline.`\
+https://nytimes.com/athletic/6567951/2025/08/21/yankees-sign-paul-blackburn-mets/
+
 **Yankees sign former Mets right-hander Paul Blackburn**\
 `Blackburn will work out of the Yankees' bullpen. He dealt with several injuries after joining the Mets at the 2024 trade deadline.`\
 https://nytimes.com/athletic/6567951/2025/08/21/yankees-sign-paul-blackburn-mets/
