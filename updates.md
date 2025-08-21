@@ -1,3 +1,7 @@
+**What to Know About the Charges and Investigations Surrounding Eric Adams**\
+`Months after a federal corruption indictment against Mayor Eric Adams of New York was dropped, some of his allies remain under investigation or have been charged with crimes.`\
+https://nytimes.com/2025/08/20/nyregion/eric-adams-corruption-charges-investigations.html
+
 **Adams Adviser Suspended From Campaign After Giving Cash to Reporter**\
 `A campaign volunteer for Mayor Eric Adams of New York was suspended after giving a journalist cash in a potato chip bag.`\
 https://nytimes.com/2025/08/20/nyregion/eric-adams-winnie-greco-cash-reporter.html
