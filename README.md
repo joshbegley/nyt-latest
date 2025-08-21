@@ -1,3 +1,11 @@
+**A Painting That Captures London at Dusk**\
+`Cece Philips discusses works by Barkley L. Hendricks and Edward Hopper, as well as one of her own new pieces, which depicts a solitary moment at the end of the day.`\
+https://nytimes.com/2025/08/21/t-magazine/cece-philips.html
+
+**Red Sox call up power-hitting prospect Jhostynxon Garcia**\
+`Garcia, 22, hit 17 home runs in 66 games for Triple-A Worcester. Keith Law ranked him as the No. 46 prospect in the game.`\
+https://nytimes.com/athletic/6568014/2025/08/21/red-sox-jhostynxon-garcia-prospect-call-up/
+
 **ACC odds, win totals, projections, best bets: Clemson back on its perch as favorite**\
 `Clemson has won the ACC in eight of the past 10 seasons and the Tigers are favored to win the league again this fall.`\
 https://nytimes.com/athletic/6562696/2025/08/21/acc-odds-win-totals-projections-best-bets-clemson/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6566406/2025/08/21/nwsl-weather-delay-threat-fine-k
 **Suzuki is ready to build on what the Canadiens accomplished last season**\
 `Nick Suzuki knows expectations will be higher for the Canadiens, but he is confident the team can meet or even exceed them.`\
 https://nytimes.com/athletic/6567899/2025/08/21/canadiens-suzuki-expectations-dobson-demidov-laine/
-
-**U.S. Open draw: Novak Djokovic lands with Carlos Alcaraz as defending champions learn paths**\
-`Can anyone challenge the 'Big Two' of men's tennis in the U.S. Open? And how is the women's draw so lopsided?`\
-https://nytimes.com/athletic/6566536/2025/08/21/tennis-us-open-draw-2025/
-
-**Small Fixes for a Big Problem**\
-`As President Trump moves to withdraw the United States from the fight against global warming, climate action is shifting to local solutions.`\
-https://nytimes.com/2025/08/21/climate/climate-solutions-local.html
 
