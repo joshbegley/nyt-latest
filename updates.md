@@ -1,3 +1,7 @@
+**Chargers' goal to build depth on interior defensive line is looking like a reality**\
+`The Chargers went with a committee approach in trying to replace Poona Ford and Morgan Fox. The early returns look good. `\
+https://nytimes.com/athletic/6566115/2025/08/20/chargers-interior-defensive-line-depth/
+
 **Jair Bolsonaro Planned to Seek Asylum in Argentina, Brazil’s Police Say**\
 `The police said they found a request for asylum, addressed to Argentina’s leader, on the phone of the Brazilian ex-president, who is accused of plotting a coup.`\
 https://nytimes.com/2025/08/20/world/americas/jair-bolsonaro-brazil-asylum-argentina.html
