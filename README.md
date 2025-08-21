@@ -7,7 +7,7 @@ https://nytimes.com/2025/08/21/us/politics/vance-zelensky-ukraine.html
 https://nytimes.com/interactive/2025/08/21/upshot/up-massachusetts-redistricting.html
 
 **ESPN, MLB have framework for deal to sell out-of-market regular-season games**\
-`ESPN would continue to broadcast around 30 regular-season games, but "Sunday Night Baseball" would move to a different night in the week.`\
+`ESPN would continue to broadcast around 30 regular-season games, but not “Sunday Night Baseball.”`\
 https://nytimes.com/athletic/6567327/2025/08/21/mlb-espn-exclusive-out-of-market-digital/
 
 **Sonallah Ibrahim, Egyptian Novelist of Irony and Dissent, Dies at 88**\
