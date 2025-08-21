@@ -1,3 +1,23 @@
+**Trump Administration Retracts Instructions on Helping English Learners**\
+`Officials removed decade-old guidance outlining the rights of students who are still learning English, which could weaken support for immigrant children.`\
+https://nytimes.com/2025/08/21/us/politics/trump-administration-education-instructions-english-learners.html
+
+**Anxiety Mounts in Gaza City as Israel Threatens a New Offensive**\
+`The Israeli military announced its operation to take Gaza City, where many displaced Palestinians have taken refuge, was underway on Thursday, even as Prime Minister Benjamin Netanyahu considered a cease-fire proposal.`\
+https://nytimes.com/video/world/middleeast/100000010353185/gaza-city-israel-offensive-protest-.html
+
+**Hurricane Erin Storm Surge Causes Flooding in North Carolina**\
+`Forecasters said Erin had made its closest approach to the North Carolina coast on Wednesday, and storm surge flooding, large waves and strong winds were expected to batter the region on Thursday.`\
+https://nytimes.com/video/weather/100000010353421/hurricane-erin-north-carolina.html
+
+**NFL regular-season games to be broadcast on free-to-air TV in UK first**\
+`Channel 5 has picked up the rights to show two games live each week for the upcoming season.`\
+https://nytimes.com/athletic/6567076/2025/08/21/nfl-uk-tv-sky-sports-channel-5-dazn/
+
+**Indian Super League crisis: A delayed season, wages on hold and widespread fear**\
+`Nobody knows when or if the Indian Super League crisis will be resolved`\
+https://nytimes.com/athletic/6564959/2025/08/21/indian-super-league-crisis-analysis/
+
 **Liverpool's Frimpong out until after international break with hamstring injury**\
 `The 24-year-old was substituted during the second half of his Premier League debut against Bournemouth last Friday.`\
 https://nytimes.com/athletic/6567077/2025/08/21/liverpool-jeremie-frimpong-injury-update/

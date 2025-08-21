@@ -1,3 +1,23 @@
+**Trump Administration Retracts Instructions on Helping English Learners**\
+`Officials removed decade-old guidance outlining the rights of students who are still learning English, which could weaken support for immigrant children.`\
+https://nytimes.com/2025/08/21/us/politics/trump-administration-education-instructions-english-learners.html
+
+**Anxiety Mounts in Gaza City as Israel Threatens a New Offensive**\
+`The Israeli military announced its operation to take Gaza City, where many displaced Palestinians have taken refuge, was underway on Thursday, even as Prime Minister Benjamin Netanyahu considered a cease-fire proposal.`\
+https://nytimes.com/video/world/middleeast/100000010353185/gaza-city-israel-offensive-protest-.html
+
+**Hurricane Erin Storm Surge Causes Flooding in North Carolina**\
+`Forecasters said Erin had made its closest approach to the North Carolina coast on Wednesday, and storm surge flooding, large waves and strong winds were expected to batter the region on Thursday.`\
+https://nytimes.com/video/weather/100000010353421/hurricane-erin-north-carolina.html
+
+**NFL regular-season games to be broadcast on free-to-air TV in UK first**\
+`Channel 5 has picked up the rights to show two games live each week for the upcoming season.`\
+https://nytimes.com/athletic/6567076/2025/08/21/nfl-uk-tv-sky-sports-channel-5-dazn/
+
+**Indian Super League crisis: A delayed season, wages on hold and widespread fear**\
+`Nobody knows when or if the Indian Super League crisis will be resolved`\
+https://nytimes.com/athletic/6564959/2025/08/21/indian-super-league-crisis-analysis/
+
 **Liverpool's Frimpong out until after international break with hamstring injury**\
 `The 24-year-old was substituted during the second half of his Premier League debut against Bournemouth last Friday.`\
 https://nytimes.com/athletic/6567077/2025/08/21/liverpool-jeremie-frimpong-injury-update/
@@ -17,24 +37,4 @@ https://nytimes.com/2025/08/21/business/target-ceo-executive-chairman.html
 **More staff fantasy football sleeper picks, including Ollie Gordon and Jacory Croskey-Merritt**\
 `Jake Ciely and The Athletic fantasy football crew offer up another round of 2025 sleepers, including some emerging rookie running backs.`\
 https://nytimes.com/athletic/6566153/2025/08/21/fantasy-football-sleepers-2025-staff-picks-trevor-lawrence/
-
-**Is Giants preseason finale the last we'll see of Jaxson Dart this year?**\
-`If all goes according to plan, Thursday night’s preseason finale vs. New England will be the rookie QB's last game action for a long time.`\
-https://nytimes.com/athletic/6566292/2025/08/21/ny-giants-jaxson-dart-preseason-russell-wilson/
-
-**Meyer says Harbaugh should face NFL discipline for role in sign-stealing scandal**\
-`Meyer's comments come after the NCAA disciplined Michigan for staffer Connor Stalions' sign-stealing scheme during Harbaugh's tenure.`\
-https://nytimes.com/athletic/6566925/2025/08/21/urban-meyer-jim-harbaugh-michigan-sign-stealing/
-
-**French Authorities Investigate Streamer’s Death After Months of Abuse**\
-`Raphaël Graven, known online as Jean Pormanove, was regularly subjected to humiliation and abuse on Kick, a streaming platform.`\
-https://nytimes.com/2025/08/21/world/europe/jean-pormanove-dead-streamer-kick-french.html
-
-**What to Expect From the Menendez Parole Hearings, and How to Follow**\
-`The hearings will be held on consecutive days, with separate deliberations for each brother.`\
-https://nytimes.com/2025/08/21/us/menendez-parole-how-to-watch.html
-
-**Cowboys coach optimistic Parsons will play in Week 1 amid trade request**\
-`“I feel good that Micah will be out there against the Philadelphia Eagles," Schottenheimer said Wednesday.`\
-https://nytimes.com/athletic/6567035/2025/08/21/brian-schottenheimer-micah-parsons-comments-cowboys/
 
