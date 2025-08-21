@@ -1,3 +1,27 @@
+**Gladbach in talks to sign USMNT's Reyna from Dortmund**\
+`The 22-year-old's contract at Dortmund is set to expire next summer.`\
+https://nytimes.com/athletic/6506391/2025/08/21/gio-reyna-gladbach-dortmund-transfer/
+
+**What Will Powell Do Now?**\
+`President Trump’s attack on a Federal Reserve governor comes as the White House seeks more control over the central bank. Will the Fed’s leader push back?`\
+https://nytimes.com/2025/08/21/business/dealbook/powell-trump-cook-fed-independence.html
+
+**Burning Rangers questions for 2025-26: Will the team extend Artemi Panarin?**\
+`Only one year remains on the seven-year, $81.5 million deal that brought Panarin to New York. This leaves the team at a big crossroads`\
+https://nytimes.com/athletic/6565062/2025/08/21/artemi-panarin-rangers-contract-nhl-free-agency/
+
+**Maguire on his Man Utd future and being a leader**\
+`The 32-year-old speaks after attending a charity event in Stretford. He believes he's back playing his best but his contract is up next June`\
+https://nytimes.com/athletic/6566646/2025/08/21/harry-maguire-manchester-united-interview/
+
+**Colt Keith’s return to third base helps Tigers solve a puzzle — now and maybe in the future**\
+`Keith has made 20 starts at third base after another midseason position change. Might it alter Detroit's offseason needs?`\
+https://nytimes.com/athletic/6565268/2025/08/21/colt-keith-third-base-tigers/
+
+**College football quiz: Do you remember who's in which conference?**\
+`There's rarely a college football season without conference changes. Do you know who's where heading into 2025?`\
+https://nytimes.com/athletic/6566758/2025/08/21/college-football-conference-realignment-quiz/
+
 **Real Madrid mailbag: Our writers answer questions on Vinicius Jr, Alexander-Arnold's best position and more**\
 `Mario Cortegana and Guillermo Rai answer your questions about a range of topics at Madrid`\
 https://nytimes.com/athletic/6566693/2025/08/21/real-madrid-mailbag-vinicius-alexander-arnold/
