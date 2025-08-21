@@ -1,3 +1,7 @@
+**Court Overturns Trump’s Half-Billion-Dollar Judgment, but Upholds Fraud Case**\
+`The ruling handed the president a financial victory, and some legal validation, as New York appeals judges agreed that the fine in his civil fraud case was excessive.`\
+https://nytimes.com/2025/08/21/nyregion/trump-fraud-james.html
+
 **Want to guarantee 2027 All-Star Game tickets at Wrigley? The Cubs have a plan for that**\
 `The Cubs want to ensure the tickets they're allocated for the events go to fans "who are going to be here for a long time."`\
 https://nytimes.com/athletic/6567232/2025/08/21/cubs-all-star-game-season-ticket-holders/
