@@ -1,3 +1,7 @@
+**Adams Adviser Suspended From Campaign After Giving Cash to Reporter**\
+`A campaign volunteer for Mayor Eric Adams of New York was suspended after giving a journalist cash in a potato chip bag.`\
+https://nytimes.com/2025/08/20/nyregion/eric-adams-winnie-greco-cash-reporter.html
+
 **Start of a Popular Saying**\
 `Simeon Seigel shows us the gravity of today’s solving situation.`\
 https://nytimes.com/2025/08/20/crosswords/daily-puzzle-2025-08-21.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/20/climate/delaware-living-shorelines.html
 **These Ohioans Got a Deal on Solar Panels. Here’s Their Secret.**\
 `A group of homeowners worked together to navigate the process of installing rooftop solar systems, saving time and money in the process.`\
 https://nytimes.com/2025/08/20/climate/rooftop-solar-cooperative-ohio.html
-
-**Could Shohei Ohtani pitch in relief in October? Here's what it would take**\
-`The door remains open, regardless, that Ohtani could be used as a reliever at some point in October.`\
-https://nytimes.com/athletic/6566154/2025/08/20/los-angeles-dodgers-shohei-ohtani-october-pitching/
 

@@ -1,3 +1,7 @@
+**Adams Adviser Suspended From Campaign After Giving Cash to Reporter**\
+`A campaign volunteer for Mayor Eric Adams of New York was suspended after giving a journalist cash in a potato chip bag.`\
+https://nytimes.com/2025/08/20/nyregion/eric-adams-winnie-greco-cash-reporter.html
+
 **Start of a Popular Saying**\
 `Simeon Seigel shows us the gravity of today’s solving situation.`\
 https://nytimes.com/2025/08/20/crosswords/daily-puzzle-2025-08-21.html
