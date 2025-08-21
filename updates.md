@@ -1,3 +1,7 @@
+**Heart of the Menendez Case: Who Deserves a Second Chance?**\
+`Media attention has brought the Menendez brothers to the cusp of early release from prison. Criminal justice reform proponents hope other prisoners benefit.`\
+https://nytimes.com/2025/08/21/us/menendez-brothers-lawyer-resentencing.html
+
 **Real Madrid mailbag: Our writers answer questions on Vinicius Jr, Alexander-Arnold's best position and more**\
 `Mario Cortegana and Guillermo Rai answer your questions about a range of topics at the Bernabeu as a new season kicks off`\
 https://nytimes.com/athletic/6566693/2025/08/21/real-madrid-mailbag-vinicius-alexander-arnold/

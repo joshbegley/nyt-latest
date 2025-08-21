@@ -1,3 +1,7 @@
+**Heart of the Menendez Case: Who Deserves a Second Chance?**\
+`Media attention has brought the Menendez brothers to the cusp of early release from prison. Criminal justice reform proponents hope other prisoners benefit.`\
+https://nytimes.com/2025/08/21/us/menendez-brothers-lawyer-resentencing.html
+
 **Gladbach in talks to sign USMNT's Reyna from Dortmund**\
 `The 22-year-old's contract at Dortmund is set to expire next summer.`\
 https://nytimes.com/athletic/6506391/2025/08/21/gio-reyna-gladbach-dortmund-transfer/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6565307/2025/08/21/michigan-football-recruiting-in-
 **Why Bill Belichick, Frank Reich face unique task in jumping from NFL to college football**\
 `College football may be becoming more like the NFL in some ways, but Belichick and Reich still face unique challenges in 2025.`\
 https://nytimes.com/athletic/6565143/2025/08/21/college-football-nfl-coaches-belichick-reich/
-
-**Trump Administration Live Updates: U.S. and E.U. Agree on Details of Trade Deal**\
-``\
-https://nytimes.com/live/2025/08/21/us/trump-news
 
