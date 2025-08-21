@@ -1,3 +1,11 @@
+**Minnesota’s Democratic Party Revokes Endorsement of Mayoral Candidate**\
+`State Democratic officials withdrew the endorsement of a Minneapolis mayoral candidate who has drawn comparisons to Zohran Mamdani, the New York mayoral hopeful.`\
+https://nytimes.com/2025/08/21/us/minnesotas-democratic-party-revokes-endorsement-of-mayoral-candidate.html
+
+**Mandel: SEC going to 9 games staves off potential disaster: The Big Ten's Playoff plan**\
+`The SEC finally going to nine conference games is great for the fans, for the sport and for ESPN’s ratings.`\
+https://nytimes.com/athletic/6568398/2025/08/21/sec-9-games-big-tens-playoff-plan/
+
 **Jared Goff, Amon-Ra St. Brown sharp again in even day vs. Texans: Takeaways**\
 `The Texans' defense provided a strong test for the Lions as did C.J. Stroud and Nico Collins from Houston's offense.`\
 https://nytimes.com/athletic/6568163/2025/08/21/lions-texas-practice-jared-goff-cj-stroud/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/08/21/us/politics/california-newsom-redistricting-texas
 **Packers-Seahawks joint practice: One big brawl and 9 other observations**\
 `Packers right tackle Zach Tom got kicked out of Thursday's joint practice for throwing haymakers at multiple Seahawks during a scuffle.`\
 https://nytimes.com/athletic/6568263/2025/08/21/packers-seahawks-joint-practice-fight/
-
-**Father of Celtics star Jaylen Brown arrested, charged with attempted murder**\
-`The elder Brown was booked into the Clark County Detention Center on Wednesday evening.`\
-https://nytimes.com/athletic/6567990/2025/08/21/jaylen-brown-father-arrest-attempted-murder-las-vegas/
-
-**Active Shooter Hoax Prompted Lockdown at Villanova, School’s President Says**\
-`Police had surged onto the university’s campus northwest of Philadelphia, as frightened students sheltered in place. But the school said there was no evidence of a gunman.`\
-https://nytimes.com/live/2025/08/21/us/villanova-active-shooter
 

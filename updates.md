@@ -1,3 +1,15 @@
+**Jared Goff, Amon-Ra St. Brown sharp again in even day vs. Texans: Takeaways**\
+`The Texans' defense provided a strong test for the Lions as did C.J. Stroud and Nico Collins from Houston's offense.`\
+https://nytimes.com/athletic/6568163/2025/08/21/lions-texas-practice-jared-goff-cj-stroud/
+
+**Red Envelopes With Cash Are Changing Hands at Adams Campaign Rallies**\
+`New York Times reporters witnessed supporters of Mayor Eric Adams handing out cash-filled envelopes. Sometimes, that money went to reporters from Chinese-language outlets.`\
+https://nytimes.com/2025/08/21/nyregion/eric-adams-chinese-cash-envelopes.html
+
+**Palace have left it 'very late' to sign replacements - Glasner**\
+`After the victory at Selhurst Park, Glasner discussed how Palace have negotiated Eze and Guehi’s futures this summer.`\
+https://nytimes.com/athletic/6568396/2025/08/21/crystal-palace-transfer-news-glasner-eze-guehi/
+
 **N.Y. Lawmakers Press Officials About Home Health Program’s Issues**\
 `The program, which helps disabled and chronically ill New Yorkers, has had issues with timely pay and service since the state brought in a new operator to save money.`\
 https://nytimes.com/2025/08/21/nyregion/cdpap-new-york.html

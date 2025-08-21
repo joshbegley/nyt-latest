@@ -1,3 +1,15 @@
+**Jared Goff, Amon-Ra St. Brown sharp again in even day vs. Texans: Takeaways**\
+`The Texans' defense provided a strong test for the Lions as did C.J. Stroud and Nico Collins from Houston's offense.`\
+https://nytimes.com/athletic/6568163/2025/08/21/lions-texas-practice-jared-goff-cj-stroud/
+
+**Red Envelopes With Cash Are Changing Hands at Adams Campaign Rallies**\
+`New York Times reporters witnessed supporters of Mayor Eric Adams handing out cash-filled envelopes. Sometimes, that money went to reporters from Chinese-language outlets.`\
+https://nytimes.com/2025/08/21/nyregion/eric-adams-chinese-cash-envelopes.html
+
+**Palace have left it 'very late' to sign replacements - Glasner**\
+`After the victory at Selhurst Park, Glasner discussed how Palace have negotiated Eze and Guehi’s futures this summer.`\
+https://nytimes.com/athletic/6568396/2025/08/21/crystal-palace-transfer-news-glasner-eze-guehi/
+
 **N.Y. Lawmakers Press Officials About Home Health Program’s Issues**\
 `The program, which helps disabled and chronically ill New Yorkers, has had issues with timely pay and service since the state brought in a new operator to save money.`\
 https://nytimes.com/2025/08/21/nyregion/cdpap-new-york.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6567990/2025/08/21/jaylen-brown-father-arrest-attem
 **Active Shooter Hoax Prompted Lockdown at Villanova, School’s President Says**\
 `Police had surged onto the university’s campus northwest of Philadelphia, as frightened students sheltered in place. But the school said there was no evidence of a gunman.`\
 https://nytimes.com/live/2025/08/21/us/villanova-active-shooter
-
-**Tempers boil over into fights at Seahawks-Packers joint practice: Takeaways**\
-`Jalen Sundell appears to have won the starting center job over Olu Oluwatimi. Meanwhile, Jalen Milroe will play the full preseason finale.`\
-https://nytimes.com/athletic/6568176/2025/08/21/seahawks-packers-fight-joint-practice/
-
-**A Half-Billion-Dollar Fine Against Trump Was Thrown Out**\
-`Also, Texas and California raced to gerrymander their maps. Here’s the latest at the end of Thursday.`\
-https://nytimes.com/2025/08/21/briefing/trump-fine-court-us-eu-trade-deal.html
-
-**Supreme Court Lets Trump Administration Cut N.I.H. Grants for Disfavored Research**\
-`The court’s order was fractured, with the justices splitting over whether individual cancellations and the policy behind them could be challenged in a federal trial court.`\
-https://nytimes.com/2025/08/21/us/politics/supreme-court-nih-grants.html
 
