@@ -1,3 +1,11 @@
+**Paige Bueckers ties rookie single-game scoring record**\
+`Bueckers was already the fastest rookie in WNBA history to 500 points. She also set the Wings franchise assist record.`\
+https://nytimes.com/athletic/6566427/2025/08/21/paige-bueckers-breaks-rookie-scoring-record-wings/
+
+**Thursday Briefing: Israeli Troops Near Gaza City**\
+`Also, Africa’s push for a new world map.`\
+https://nytimes.com/2025/08/21/briefing/gaza-city-offensive-west-bank-settlements-ukraine-russia-china-tibet.html
+
 **Omari Hutchinson's signing epitomises the new Forest blueprint**\
 `The new club-record signing is one of many recent arrivals to the City Ground expected to only grow in both stature and value`\
 https://nytimes.com/athletic/6564606/2025/08/21/omari-hutchinson-nottingham-forest/
