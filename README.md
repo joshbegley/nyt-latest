@@ -1,3 +1,15 @@
+**Mets' positive momentum halted in frustrating loss to Nationals as familiar problems return**\
+`For the Mets to qualify for the postseason, they need better from Kodai Senga and an offense that slumbers against middle relievers.`\
+https://nytimes.com/athletic/6566268/2025/08/20/mets-positive-momentum-halted-loss-to-nationals-familiar-problems/
+
+**Bullet fired into Chiefs building while Andy Reid was inside in 2024: Source**\
+`Police are investigating the incident, saying that “there is no indication this was a targeted incident at any person or organization.”`\
+https://nytimes.com/athletic/6566316/2025/08/20/chiefs-andy-reid-bullet/
+
+**‘Highest 2 Lowest’ Is Doing Too Much. (And We Love It.)**\
+`Spike Lee’s new movie is over the top and unapologetically New York. Wesley Morris dives into it on “Cannonball” podcast.`\
+https://nytimes.com/video/podcasts/100000010348044/highest-2-lowest-spike-lee.html
+
 **Mascherano sent off, coaches from stands in Miami's mad Leagues Cup win**\
 `Miami's triumph over Tigres featured a bit of everything – including a sent-off coach who just couldn't stay away`\
 https://nytimes.com/athletic/6566290/2025/08/20/javier-mascherano-red-card-phone-inter-miami-tigres-leagues-cup/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6566115/2025/08/20/chargers-interior-defensive-line
 **Jair Bolsonaro Planned to Seek Asylum in Argentina, Brazil’s Police Say**\
 `The police said they found a request for asylum, addressed to Argentina’s leader, on the phone of the Brazilian ex-president, who is accused of plotting a coup.`\
 https://nytimes.com/2025/08/20/world/americas/jair-bolsonaro-brazil-asylum-argentina.html
-
-**A Huge Cave in Kentucky Was a Smelly Disaster. Now It’s Spectacular.**\
-`Hidden River Cave was once filled with heavy metals and sewage that made the surrounding town smell awful. After a cleanup, it became a tourist draw.`\
-https://nytimes.com/2025/08/20/climate/horse-hidden-river-cave-pollution-cleanup.html
-
-**They Kindled Froggy Romance and Rescued Eggs to Save a Species in Mississippi**\
-`Fewer than 100 dusky gopher frogs were known to remain. Thanks to some very dedicated humans, numbers are now on the rise.`\
-https://nytimes.com/2025/08/20/climate/mississippi-dusky-gopher-frog.html
-
-**Why Shop? In Maine, the Library of Things Has It All (Almost)**\
-`One town’s effort to make pricey items accessible and encourage people to buy less stuff seems to be catching on.`\
-https://nytimes.com/2025/08/20/climate/maine-library-of-things.html
 

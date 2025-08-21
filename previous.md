@@ -1,3 +1,7 @@
+**Mascherano sent off, coaches from stands in Miami's mad Leagues Cup win**\
+`Miami's triumph over Tigres featured a bit of everything – including a sent-off coach who just couldn't stay away`\
+https://nytimes.com/athletic/6566290/2025/08/20/javier-mascherano-red-card-phone-inter-miami-tigres-leagues-cup/
+
 **What to Know About the Charges and Investigations Surrounding Eric Adams**\
 `Months after a federal corruption indictment against Mayor Eric Adams of New York was dropped, some of his allies remain under investigation or have been charged with crimes.`\
 https://nytimes.com/2025/08/20/nyregion/eric-adams-corruption-charges-investigations.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/20/climate/mississippi-dusky-gopher-frog.html
 **Why Shop? In Maine, the Library of Things Has It All (Almost)**\
 `One town’s effort to make pricey items accessible and encourage people to buy less stuff seems to be catching on.`\
 https://nytimes.com/2025/08/20/climate/maine-library-of-things.html
-
-**Do Coconuts Go With Oysters? For Saving the Delaware Shore, Yes.**\
-`Along with other East Coast states, Delaware is using natural materials to protect vulnerable coastal areas.`\
-https://nytimes.com/2025/08/20/climate/delaware-living-shorelines.html
 
