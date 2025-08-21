@@ -1,3 +1,7 @@
+**Blackhawks sign Frank Nazar to seven-year extension**\
+`Chicago locks Nazar in at a reasonable rate that could potentially be a huge bargain as the young player develops.`\
+https://nytimes.com/athletic/6567688/2025/08/21/blackhawks-frank-nazar-contract-extension-nhl/
+
 **Dortmund interested in signing Chelsea's Anselmino on loan**\
 `Chelsea head coach Enzo Maresca confirmed on Thursday that a loan move for Anselmino was being planned.`\
 https://nytimes.com/athletic/6508696/2025/08/21/aaron-anselmino-chelsea-dortmund-transfer/
@@ -7,7 +11,7 @@ https://nytimes.com/athletic/6508696/2025/08/21/aaron-anselmino-chelsea-dortmund
 https://nytimes.com/athletic/6567317/2025/08/21/eze-arsenal-news-crystal-palace-conference-league/
 
 **D.C. Crime Is Real; Solutions Are Complex**\
-`Readers respond to a column by Maureen Dowd on crime in Washington and federal takeover of the city’s police department. Also: President Trump’s intemperance.`\
+`Readers respond to a column by Maureen Dowd on crime in Washington and the federal takeover of the city’s police department. Also: President Trump’s intemperance.`\
 https://nytimes.com/2025/08/21/opinion/maureen-dowd-trump-dc-crime.html
 
 **Cubs' Kyle Tucker on playing through hairline fracture: 'After a while it kind of turned'**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6567611/2025/08/21/spencer-rattler-saints-tyler-sho
 **Facing a ‘Reading Crisis,’ Denmark Wants to Make Books Cheaper**\
 `The Danish government announced this week that it planned to make books exempt from a 25 percent value-added tax.`\
 https://nytimes.com/2025/08/21/world/europe/denmark-books-tax-reading.html
-
-**Gavin Casalegno Knows How You Feel About Him on ‘The Summer I Turned Pretty’**\
-`Social media has turned against the character he plays on the hit show. He finds the reaction “comical.”`\
-https://nytimes.com/2025/08/21/style/summer-i-turned-pretty-jeremiah-gavin-casalegno.html
 
