@@ -1,3 +1,11 @@
+**U.S. Open draw: Novak Djokovic lands with Carlos Alcaraz as defending champions learn paths**\
+`Can anyone challenge the 'Big Two' of men's tennis in the U.S. Open? And how is the women's draw so lopsided?`\
+https://nytimes.com/athletic/6566536/2025/08/21/tennis-us-open-draw-2025/
+
+**Small Fixes for a Big Problem**\
+`As President Trump moves to withdraw the United States from the fight against global warming, climate action is shifting to local solutions.`\
+https://nytimes.com/2025/08/21/climate/climate-solutions-local.html
+
 **McVay says Stafford 'looks like the stud that we know' since return to practice**\
 `Stafford has dealt with an aggravated disk that caused back soreness for the last several weeks.`\
 https://nytimes.com/athletic/6567800/2025/08/21/matthew-stafford-rams-practice-return-injury/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6567333/2025/08/21/fantasy-baseball-bullpen-report-
 **What Happens When Hurricane Erin Crosses the Atlantic? Europe Is Watching.**\
 `It won’t be a hurricane much longer, but the storm could still make an impact next week.`\
 https://nytimes.com/2025/08/21/weather/hurricane-erin-uk-europe-atlantic.html
-
-**Shelly Zegart, Who Stitched Quilting to History and Art, Dies at 84**\
-`She was a pivotal figure in linking quilts to the American experience — although she herself never stitched so much as a sweater in her life.`\
-https://nytimes.com/2025/08/21/arts/shelly-zegart-dead.html
-
-**Lamar Jackson OK after injury scare: 'Prayers do get answered'**\
-`Baltimore coach John Harbaugh said an X-ray revealed no concerns after the QB had his foot stepped on during Wednesday's practice.`\
-https://nytimes.com/athletic/6567805/2025/08/21/lamar-jackson-injury-ravens-practice/
 
