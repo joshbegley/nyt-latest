@@ -1,3 +1,11 @@
+**Potter says West Ham 's previous transfer policy has hindered activity this summer**\
+`Potter intends to step up their pursuit for transfer targets but admits he is hamstrung by their inability to spend heavily.`\
+https://nytimes.com/athletic/6568075/2025/08/21/west-ham-news-potter-transfer-policy/
+
+**Brighton's Moran joins LAFC on loan until January**\
+`Moran will join fellow former Premier League players Hugo Lloris and Son Heung-min.`\
+https://nytimes.com/athletic/6568206/2025/08/21/brighton-lafc-moran-transfer-news-loan/
+
 **Texas Mother Wanted for Son’s Murder Arrested in India**\
 `Cindy Rodriguez Singh had fled the United States in 2023 shortly after the authorities questioned her about her 6-year-old’s disappearance.`\
 https://nytimes.com/2025/08/21/world/asia/cindy-singh-fbi-most-wanted-india.html

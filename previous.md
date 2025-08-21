@@ -1,3 +1,11 @@
+**Potter says West Ham 's previous transfer policy has hindered activity this summer**\
+`Potter intends to step up their pursuit for transfer targets but admits he is hamstrung by their inability to spend heavily.`\
+https://nytimes.com/athletic/6568075/2025/08/21/west-ham-news-potter-transfer-policy/
+
+**Brighton's Moran joins LAFC on loan until January**\
+`Moran will join fellow former Premier League players Hugo Lloris and Son Heung-min.`\
+https://nytimes.com/athletic/6568206/2025/08/21/brighton-lafc-moran-transfer-news-loan/
+
 **Texas Mother Wanted for Son’s Murder Arrested in India**\
 `Cindy Rodriguez Singh had fled the United States in 2023 shortly after the authorities questioned her about her 6-year-old’s disappearance.`\
 https://nytimes.com/2025/08/21/world/asia/cindy-singh-fbi-most-wanted-india.html
@@ -25,12 +33,4 @@ https://nytimes.com/2025/08/21/t-magazine/gargiulos-coney-island.html
 **The Rise of Right-Wing Nihilism**\
 `Rather than conserve or build, some people just want to destroy.`\
 https://nytimes.com/2025/08/21/opinion/rufo-yarvin-trump-nihilism.html
-
-**Browns expected to play Flacco, Gabriel and Sanders in preseason finale**\
-`Kenny Pickett, who’s No. 2 on the team’s unofficial depth chart, will not play as he continues to deal with a lingering hamstring injury. `\
-https://nytimes.com/athletic/6568077/2025/08/21/browns-joe-flacco-dillon-gabriel-shedeur-sanders-rams/
-
-**Man Accused of Arranging Murder of the Rapper Young Dolph Is Found Not Guilty**\
-`A jury acquitted Hernandez Govan in the 2021 shooting of the rapper outside a Memphis cookie shop.`\
-https://nytimes.com/2025/08/21/us/young-dolph-murder-acquittal.html
 
