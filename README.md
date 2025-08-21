@@ -1,3 +1,7 @@
+**Trump Says He’ll Join D.C. Patrols on Thursday Night**\
+`The president told a conservative radio host’s show that he would go out alongside officers. But the White House has not offered details for the excursion.`\
+https://nytimes.com/2025/08/21/us/politics/trump-dc-patrols.html
+
 **Callum Doyle joins Wrexham from Manchester City**\
 `The 21-year-old defender has spent the past four seasons on loan in the EFL.`\
 https://nytimes.com/athletic/6530310/2025/08/21/callum-doyle-wrexham-transfer-man-city/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6567573/2025/08/21/texans-jimmie-ward-meth-domestic
 **As Adams Tries to Run on His Record, Scandals Keep Swirling Around Him**\
 `Mayor Eric Adams of New York has sought to argue that his first-term wins have earned him the right to serve a second. But he cannot shake the stench of corruption around his administration.`\
 https://nytimes.com/2025/08/21/nyregion/eric-adams-mayor-corruption.html
-
-**Scoop City: Spencer Rattler leads final QB competition**\
-`Who's leading the QB competition in New Orleans, other battles to watch, contract disputes, and the greatest rookie seasons of all time`\
-https://nytimes.com/athletic/6567611/2025/08/21/spencer-rattler-saints-tyler-shough-competition-nfl-scoop-city/
 

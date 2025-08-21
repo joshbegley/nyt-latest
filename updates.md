@@ -1,3 +1,7 @@
+**Callum Doyle joins Wrexham from Manchester City**\
+`The 21-year-old defender has spent the past four seasons on loan in the EFL.`\
+https://nytimes.com/athletic/6530310/2025/08/21/callum-doyle-wrexham-transfer-man-city/
+
 **Blackhawks sign Frank Nazar to seven-year extension**\
 `Chicago locks Nazar in at a reasonable rate that could potentially be a huge bargain as the young player develops.`\
 https://nytimes.com/athletic/6567688/2025/08/21/blackhawks-frank-nazar-contract-extension-nhl/
