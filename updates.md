@@ -1,4 +1,12 @@
 **Broncos trade DeVaughn Vele to Saints: Why Denver could part with WR**\
+`Denver will receive a fourth-round pick in 2026 and a seventh-round pick in 2027 for the promising wideout.`\
+https://nytimes.com/athletic/6566061/2025/08/20/broncos-trade-devaughn-vele-saints-draft-picks/
+
+**Rebuilding Pac-12 set to add college baseball powerhouse Dallas Baptist: Sources**\
+`Dallas Baptist to join conference in baseball only, beginning play as a member in 2027. `\
+https://nytimes.com/athletic/6566053/2025/08/20/pac-12-to-add-college-baseball-powerhouse-dallas-baptist/
+
+**Broncos trade DeVaughn Vele to Saints: Why Denver could part with WR**\
 `Denver will receive a fourth-round pick in 2026 and a seventh-round pick in 2027 for promising wideout.`\
 https://nytimes.com/athletic/6566061/2025/08/20/broncos-trade-devaughn-vele-saints-draft-picks/
 
