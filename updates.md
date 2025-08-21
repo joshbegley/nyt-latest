@@ -1,3 +1,7 @@
+**What to Expect From the Menendez Parole Hearings, and How to Follow**\
+`The hearings will be held on consecutive days, with separate deliberations for each brother.`\
+https://nytimes.com/2025/08/21/us/menendez-parole-how-to-watch.html
+
 **Cowboys coach optimistic Parsons will play in Week 1 amid trade request**\
 `“I feel good that Micah will be out there against the Philadelphia Eagles," Schottenheimer said Wednesday.`\
 https://nytimes.com/athletic/6567035/2025/08/21/brian-schottenheimer-micah-parsons-comments-cowboys/
