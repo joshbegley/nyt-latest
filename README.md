@@ -1,3 +1,11 @@
+**What Brian Schottenheimer wants to see, plus key roster battles and opportunities**\
+`The Cowboys' final preseason game is Friday and Joe Milton, Jaydon Blue, several receivers and defensive tackles will be in the spotlight.`\
+https://nytimes.com/athletic/6566506/2025/08/21/cowboys-preseason-key-players-joe-milton/
+
+**Walmart Sees Sales ‘Momentum’ Despite Tariffs**\
+`After mixed reports from retail rivals, Walmart reported better-than-expected quarterly results and raised its sales forecast for the year.`\
+https://nytimes.com/2025/08/21/business/walmart-sales-retail-tariffs.html
+
 **Europe Gets a Written Trump Trade Deal, With a Caveat for Automakers**\
 `The European Union and United States have been negotiating the joint text for weeks. The deal is much as expected, but it will delay tariff relief for European cars.`\
 https://nytimes.com/2025/08/21/us/politics/eu-us-trump-trade-deal.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6563076/2025/08/21/pittsburgh-penguins-owners-hoffm
 **This Week in Sports Trivia: August 21, 2025**\
 `How closely were you following the sports news this week? Find out and test your knowledge by taking The Athletic's weekly quiz.`\
 https://nytimes.com/athletic/6565023/2025/08/21/this-week-in-sports-trivia-august-21-2025/
-
-**Stewart Mandel's Big 12 predictions: Who will win a fascinatingly open conference race?**\
-`Arizona State has a solid chance to repeat, but there's a long list of possible Big 12 title contenders, including upstart Texas Tech.`\
-https://nytimes.com/athletic/6563725/2025/08/21/2025-big-12-football-predictions-arizona-state-colorado/
-
-**Astros mailbag: Jesús Sánchez's struggles, a shorthanded bullpen, more**\
-`The Astros still hold the AL West lead despite being outscored 62-19 over their last nine games.`\
-https://nytimes.com/athletic/6565941/2025/08/21/astros-mailbag-jesus-sanchez-bullpen-cam-smith/
 
