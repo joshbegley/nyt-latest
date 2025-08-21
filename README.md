@@ -1,3 +1,11 @@
+**Federal Agents Detain Dozens of Workers in Raid at New Jersey Warehouse**\
+`It appeared to be among the largest federal raids in the state since President Trump took office.`\
+https://nytimes.com/2025/08/20/nyregion/immigration-raid-warehouse-edison-new-jersey.html
+
+**Giants' Landen Roupp carted off the field after apparent leg injury**\
+`Roupp, 26, was making his 22nd start of the season, and his second since returning from a three-week stint on the IL.`\
+https://nytimes.com/athletic/6566355/2025/08/20/san-francisco-giants-landen-roupp-injury/
+
 **Mets' positive momentum halted in frustrating loss to Nationals as familiar problems return**\
 `For the Mets to qualify for the postseason, they need better from Kodai Senga and an offense that slumbers against middle relievers.`\
 https://nytimes.com/athletic/6566268/2025/08/20/mets-positive-momentum-halted-loss-to-nationals-familiar-problems/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/08/20/crosswords/daily-puzzle-2025-08-21.html
 **Trump Officials Demanded Confidential Data About Transgender Children Seeking Care**\
 `A June subpoena to the Children’s Hospital of Philadelphia sought Social Security numbers and addresses of patients who received gender-related care, as well as “every writing or record” made by doctors on such treatments.`\
 https://nytimes.com/2025/08/20/us/politics/trump-transgender-children-care-subpoena.html
-
-**Chargers' goal to build depth on interior defensive line is looking like a reality**\
-`The Chargers went with a committee approach in trying to replace Poona Ford and Morgan Fox. The early returns look good. `\
-https://nytimes.com/athletic/6566115/2025/08/20/chargers-interior-defensive-line-depth/
-
-**Jair Bolsonaro Planned to Seek Asylum in Argentina, Brazil’s Police Say**\
-`The police said they found a request for asylum, addressed to Argentina’s leader, on the phone of the Brazilian ex-president, who is accused of plotting a coup.`\
-https://nytimes.com/2025/08/20/world/americas/jair-bolsonaro-brazil-asylum-argentina.html
 
