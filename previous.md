@@ -1,3 +1,23 @@
+**Wissa and Strand Larsen - Analysing two Newcastle striker targets and which fits best**\
+`If it's Wissa or Strand Larsen, the decision isn't easy. However, the circumstances of the Isak saga might make it Wissa and Strand Larsen`\
+https://nytimes.com/athletic/6558640/2025/08/21/wissa-strand-larsen-newcastle-transfers/
+
+**FPL tips: The players to hold, sell or target ahead of Gameweek 2**\
+`This week’s transfers are showing that FPL managers are quickly turning their backs on players they'd carefully selected following blanks`\
+https://nytimes.com/athletic/6562426/2025/08/21/fantasy-premier-league-fpl-gameweek-2-wirtz-palmer-wood/
+
+**The Alternative Premier League Table: No 2 - Strongest and weakest teams at corners**\
+`This week: how all 20 Premier League clubs perform at corners, what's working and what isn't`\
+https://nytimes.com/athletic/6564710/2025/08/21/alternative-premier-league-table-corners/
+
+**Isak's public petulance looks bad but it should not deter Liverpool**\
+`The Swede is not the first player to try and force a move and, ultimately, his talent matters more than his tantrum`\
+https://nytimes.com/athletic/6554442/2025/08/21/liverpool-alexander-isak-transfer-statement/
+
+**Europe's maddest league is back - after a mind-blowing summer**\
+`Italian football is compelling in its sheer unpredictability, the sweep of its beauty and preposterousness on so many levels`\
+https://nytimes.com/athletic/6564433/2025/08/21/serie-a-europes-maddest-league/
+
 **Remembering Joey Jones: Mr Wrexham, a two-time European Cup winner, and 'a special man'**\
 `On Wednesday the people of Wrexham said a final farewell to their football club's greatest idol`\
 https://nytimes.com/athletic/6556041/2025/08/21/joey-jones-wrexham-liverpool-wales/
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/6566334/2025/08/21/braves-hurston-waldrep-michael-h
 **Eze wants Arsenal and Arsenal have an agreement for him. Would he flourish under Arteta?**\
 `Would Eze suit Arsenal and would Arsenal suit Eze?`\
 https://nytimes.com/athletic/6565432/2025/08/21/eberechi-eze-arsenal-transfer/
-
-**Women in Indian Sports Sweat for Their Share of a Booming Market**\
-`Female athletes are using social media to increase viewership and seek better sponsorship deals in a field long dominated by men.`\
-https://nytimes.com/2025/08/21/world/asia/india-sports-women-female-athletes.html
-
-**When the USA shocked the rugby world: Locks from Hell, KGB agents, and a White House visit**\
-`The U.S. was not a traditional rugby nation and the squad had barely trained together before the sport's first Women’s World Cup in 1991`\
-https://nytimes.com/athletic/6564358/2025/08/21/usa-win-1991-womens-rugby-world-cup/
-
-**Connections: Sports Edition Coach: Hints for Aug. 21, 2025**\
-`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
-https://nytimes.com/athletic/6562576/2025/08/21/connections-sports-edition-hints-for-aug-21-2025/
-
-**Eirik Granaas, the Norwegian 15-year-old emulating Odegaard and making European football history**\
-`Eirik Granaas is only 15, but he has already made a senior debut in the Norwegian top flight, the Norwegian Cup and the Europa League`\
-https://nytimes.com/athletic/6560132/2025/08/21/eirik-granaas-15-fredrikstad-record-youngest/
-
-**Corrections: Aug. 21, 2025**\
-`Corrections that appeared in print on Thursday, Aug. 21, 2025.`\
-https://nytimes.com/2025/08/21/pageoneplus/corrections-aug-21-2025.html
 
