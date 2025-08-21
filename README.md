@@ -1,3 +1,11 @@
+**Fire on U.S. Navy Ship in Japan Extinguished After 12 Hours**\
+`Two sailors sustained minor injuries, the Navy said, adding that the ship’s crew will remain on board in Okinawa.`\
+https://nytimes.com/2025/08/21/us/us-navy-fire-ship-okinawa.html
+
+**How Owen Caissie met the Cubs' challenge and improved upon his few remaining flaws**\
+`Caissie drew a big walk in Wednesday's 4-3 win over the Milwaukee Brewers, the Cubs' third straight victory.`\
+https://nytimes.com/athletic/6566404/2025/08/21/cubs-owen-caissie-improvement/
+
 **Paige Bueckers ties rookie single-game scoring record**\
 `Bueckers was already the fastest rookie in WNBA history to 500 points. She also set the Wings franchise assist record.`\
 https://nytimes.com/athletic/6566427/2025/08/21/paige-bueckers-breaks-rookie-scoring-record-wings/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6558640/2025/08/21/wissa-strand-larsen-newcastle-tr
 **FPL tips: The players to hold, sell or target ahead of Gameweek 2**\
 `This week’s transfers are showing that FPL managers are quickly turning their backs on players they'd carefully selected following blanks`\
 https://nytimes.com/athletic/6562426/2025/08/21/fantasy-premier-league-fpl-gameweek-2-wirtz-palmer-wood/
-
-**The Alternative Premier League Table: No 2 - Strongest and weakest teams at corners**\
-`This week: how all 20 Premier League clubs perform at corners, what's working and what isn't`\
-https://nytimes.com/athletic/6564710/2025/08/21/alternative-premier-league-table-corners/
-
-**Isak's public petulance looks bad but it should not deter Liverpool**\
-`The Swede is not the first player to try and force a move and, ultimately, his talent matters more than his tantrum`\
-https://nytimes.com/athletic/6554442/2025/08/21/liverpool-alexander-isak-transfer-statement/
 
