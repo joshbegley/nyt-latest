@@ -1,3 +1,7 @@
+**An Ohio State repeat? No SEC byes? 5 takeaways from our College Football Playoff predictor**\
+`Our College Football Playoff predictor is back. Here's how it came together and what to watch as Ohio State aims for a repeat.`\
+https://nytimes.com/athletic/6565395/2025/08/21/college-football-playoff-preseason-predictions-odds/
+
 **TAFC: Ex-USMNT coaches talk Pulisic, Arsenal's Eze move, 'keeper's late equaliser**\
 `Today in TAFC: What ex-USMNT coaches think of Christian Pulisic, how Arsenal could steal Eze from Spurs, and Ream's game in his own words.`\
 https://nytimes.com/athletic/6566591/2025/08/21/pulisic-usmnt-world-cup-eze-arsenal-tottenham/
