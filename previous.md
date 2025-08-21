@@ -1,3 +1,23 @@
+**Gavin Casalegno Knows How You Feel About Him on ‘The Summer I Turned Pretty’**\
+`Social media has turned against the character he plays on the hit show. He finds the reaction “comical.”`\
+https://nytimes.com/2025/08/21/style/summer-i-turned-pretty-jeremiah-gavin-casalegno.html
+
+**You Say Tomato, I Say Bingo**\
+`Tomato Cheddar toasts, dumpling tomato salad, best gazpacho — you can’t lose with these tomato dishes.`\
+https://nytimes.com/2025/08/21/dining/vegetarian-tomato-recipes-for-summer.html
+
+**Frank Caprio, Kind Judge of ‘Caught in Providence,’ Dies at 88**\
+`Judge Caprio, a retired municipal judge in Rhode Island, became a social media star for courtroom videos that viewers said showed his compassion in the courtroom.`\
+https://nytimes.com/2025/08/21/us/judge-frank-caprio-dies.html
+
+**Rookie 49ers LB Nick Martin shows there is a lot more than violence to his game**\
+`After a nervy debut, Martin showed why the 49ers drafted him during the second preseason game in Las Vegas.`\
+https://nytimes.com/athletic/6567359/2025/08/21/nick-martin-49ers-rookie-linebacker/
+
+**Pat Fitzgerald, Northwestern reach settlement in his wrongful termination lawsuit**\
+`Northwestern fired Fitzgerald in 2023 amid hazing allegations in the football program. He's maintained that he was unaware of the incidents.`\
+https://nytimes.com/athletic/6567478/2025/08/21/pat-fitzgerald-northwestern-settlement-hazing/
+
 **The Windup: A shorter season on the horizon?**\
 `Welcome to The Windup, The Athletic's MLB newsletter. `\
 https://nytimes.com/athletic/6567527/2025/08/21/mlb-expansion-shorter-season-the-windup/
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/6567327/2025/08/21/mlb-espn-exclusive-out-of-market
 **Sonallah Ibrahim, Egyptian Novelist of Irony and Dissent, Dies at 88**\
 `Starting with “That Smell” in 1966, he wrote with stark power about themes of repression in the Egyptian police state.`\
 https://nytimes.com/2025/08/21/world/africa/sonallah-ibrahim-dead.html
-
-**Why Saints, Browns, Chiefs are monitoring the NFL running back trade market**\
-`The Saints need some protection behind Alvin Kamara, the Browns need a big-bodied option and the Chiefs have no depth behind Isiah Pacheco.`\
-https://nytimes.com/athletic/6567227/2025/08/21/nfl-running-backs-trades-saints-browns-chiefs/
-
-**Cracker Barrel’s New Modern Logo and Aesthetic Become a Political Rorschach Test**\
-`Nostalgic fans of the interstate staple lament the loss of its country kitsch, while some conservatives blamed wokeness for the sleek redesign.`\
-https://nytimes.com/2025/08/21/business/cracker-barrel-rebrand-logo.html
-
-**Divided Court Eliminates Trump’s Half-Billion-Dollar Fine in Fraud Case**\
-`New York appeals judges said that the judgment was excessive, but agreed to uphold the case so the appeal could continue.`\
-https://nytimes.com/2025/08/21/nyregion/trump-fraud-james.html
-
-**Want to guarantee 2027 All-Star Game tickets at Wrigley? The Cubs have a plan for that**\
-`The Cubs want to ensure the tickets they're allocated for the events go to fans "who are going to be here for a long time."`\
-https://nytimes.com/athletic/6567232/2025/08/21/cubs-all-star-game-season-ticket-holders/
-
-**Apple Fitness Chief Accused of Toxic Workplace Culture and Harassment**\
-`Workers say the executive was volatile and retaliated when they cooperated with an investigation. Apple denies the claims.`\
-https://nytimes.com/2025/08/21/technology/apple-fitness-jay-blahnik.html
 

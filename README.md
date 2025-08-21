@@ -1,3 +1,7 @@
+**Facing a ‘Reading Crisis,’ Denmark Wants to Make Books Cheaper**\
+`The Danish government announced this week that it planned to make books exempt from a 25 percent value-added tax.`\
+https://nytimes.com/2025/08/21/world/europe/denmark-books-tax-reading.html
+
 **Gavin Casalegno Knows How You Feel About Him on ‘The Summer I Turned Pretty’**\
 `Social media has turned against the character he plays on the hit show. He finds the reaction “comical.”`\
 https://nytimes.com/2025/08/21/style/summer-i-turned-pretty-jeremiah-gavin-casalegno.html
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2025/08/21/upshot/up-massachusetts-redistricting
 **ESPN, MLB have framework for deal to sell out-of-market regular-season games**\
 `ESPN would continue to broadcast around 30 regular-season games, but not “Sunday Night Baseball.”`\
 https://nytimes.com/athletic/6567327/2025/08/21/mlb-espn-exclusive-out-of-market-digital/
-
-**Sonallah Ibrahim, Egyptian Novelist of Irony and Dissent, Dies at 88**\
-`Starting with “That Smell” in 1966, he wrote with stark power about themes of repression in the Egyptian police state.`\
-https://nytimes.com/2025/08/21/world/africa/sonallah-ibrahim-dead.html
 
