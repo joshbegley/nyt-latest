@@ -1,3 +1,11 @@
+**SEC moving closer to adopting 9-game conference schedule: Source**\
+`The conference's president still need to give final approve, but the SEC moved forward on a debate it has been having for years.`\
+https://nytimes.com/athletic/6567782/2025/08/21/sec-9-game-conference-schedule/
+
+**Brent Hinds, Mastodon Guitarist, Dies in Motorcycle Crash**\
+`Mr. Hinds, 51, was found unresponsive late Wednesday after an S.U.V. appeared to slam into the motorcycle he was riding near downtown Atlanta, the authorities said.`\
+https://nytimes.com/2025/08/21/arts/music/brent-hinds-mastodon-dead.html
+
 **Trump Says He’ll Join D.C. Patrols on Thursday Night**\
 `The president told a conservative radio host’s show that he would go out alongside officers. But the White House has not offered details for the excursion.`\
 https://nytimes.com/2025/08/21/us/politics/trump-dc-patrols.html
