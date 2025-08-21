@@ -1,3 +1,7 @@
+**Jake Paul vs. Gervonta 'Tank' Davis: Netflix to stream fight on Nov. 14**\
+`Davis could be Paul's most formidable foe yet, but it's unclear how sides will handle large weight difference between fighters.`\
+https://nytimes.com/athletic/6566263/2025/08/20/jake-paul-vs-gervonta-tank-davis/
+
 **Federal Agents Detain Dozens of Workers in Raid at New Jersey Warehouse**\
 `It appeared to be among the largest federal raids in the state since President Trump took office.`\
 https://nytimes.com/2025/08/20/nyregion/immigration-raid-warehouse-edison-new-jersey.html

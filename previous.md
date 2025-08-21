@@ -1,3 +1,7 @@
+**Jake Paul vs. Gervonta 'Tank' Davis: Netflix to stream fight on Nov. 14**\
+`Davis could be Paul's most formidable foe yet, but it's unclear how sides will handle large weight difference between fighters.`\
+https://nytimes.com/athletic/6566263/2025/08/20/jake-paul-vs-gervonta-tank-davis/
+
 **Federal Agents Detain Dozens of Workers in Raid at New Jersey Warehouse**\
 `It appeared to be among the largest federal raids in the state since President Trump took office.`\
 https://nytimes.com/2025/08/20/nyregion/immigration-raid-warehouse-edison-new-jersey.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/20/nyregion/eric-adams-winnie-greco-cash-reporter.ht
 **Start of a Popular Saying**\
 `Simeon Seigel shows us the gravity of today’s solving situation.`\
 https://nytimes.com/2025/08/20/crosswords/daily-puzzle-2025-08-21.html
-
-**Trump Officials Demanded Confidential Data About Transgender Children Seeking Care**\
-`A June subpoena to the Children’s Hospital of Philadelphia sought Social Security numbers and addresses of patients who received gender-related care, as well as “every writing or record” made by doctors on such treatments.`\
-https://nytimes.com/2025/08/20/us/politics/trump-transgender-children-care-subpoena.html
 
