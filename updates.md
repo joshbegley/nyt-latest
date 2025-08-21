@@ -1,3 +1,7 @@
+**Sailors Fight Fire on U.S. Navy Ship in Japan**\
+`The fire on the U.S.S. New Orleans burned for about 12 hours and injured two sailors, the Navy said.`\
+https://nytimes.com/video/us/100000010353021/us-navy-fire-ship-okinawa.html
+
 **Soccer Match in Argentina Ends Early After Violence in Stands**\
 `Fans were hospitalized and detained after violent attacks during a match in a stadium near Buenos Aires, prompting officials to cancel the game.`\
 https://nytimes.com/2025/08/21/world/americas/argentina-chile-soccer-violence.html
