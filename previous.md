@@ -1,4 +1,8 @@
-**Court Overturns Trump’s Half-Billion-Dollar Judgment, but Upholds Fraud Case**\
+**Cracker Barrel’s New Modern Logo and Aesthetic Become a Political Rorschach Test**\
+`Nostalgic fans of the interstate staple lament the loss of its country kitsch, while some conservatives blamed wokeness for the sleek redesign.`\
+https://nytimes.com/2025/08/21/business/cracker-barrel-rebrand-logo.html
+
+**Court Halts Trump’s Half-Billion-Dollar Penalty, but Upholds Fraud Case**\
 `The ruling handed the president a financial victory, and some legal validation, as New York appeals judges agreed that the fine in his civil fraud case was excessive.`\
 https://nytimes.com/2025/08/21/nyregion/trump-fraud-james.html
 
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/21/well/heart-health-benefits-body.html
 **Humpy Wheeler, NASCAR showman who helped races run under the lights, dies at 86**\
 `Known as the "P.T. Barnum of race promoters," Wheeler is credited with bringing night races to speedways.`\
 https://nytimes.com/athletic/6567059/2025/08/21/humpy-wheeler-nascar-dies/
-
-**Trump Administration Retracts Instructions on Helping English Learners**\
-`Officials removed decade-old guidance outlining the rights of students who are still learning English, which could weaken support for immigrant children.`\
-https://nytimes.com/2025/08/21/us/politics/trump-administration-education-instructions-english-learners.html
 

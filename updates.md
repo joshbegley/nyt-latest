@@ -1,3 +1,11 @@
+**Cracker Barrel’s New Modern Logo and Aesthetic Become a Political Rorschach Test**\
+`Nostalgic fans of the interstate staple lament the loss of its country kitsch, while some conservatives blamed wokeness for the sleek redesign.`\
+https://nytimes.com/2025/08/21/business/cracker-barrel-rebrand-logo.html
+
+**Court Halts Trump’s Half-Billion-Dollar Penalty, but Upholds Fraud Case**\
+`The ruling handed the president a financial victory, and some legal validation, as New York appeals judges agreed that the fine in his civil fraud case was excessive.`\
+https://nytimes.com/2025/08/21/nyregion/trump-fraud-james.html
+
 **Court Overturns Trump’s Half-Billion-Dollar Judgment, but Upholds Fraud Case**\
 `The ruling handed the president a financial victory, and some legal validation, as New York appeals judges agreed that the fine in his civil fraud case was excessive.`\
 https://nytimes.com/2025/08/21/nyregion/trump-fraud-james.html
