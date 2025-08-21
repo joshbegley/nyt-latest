@@ -1,3 +1,15 @@
+**How does college football coaching differ from the NFL? 'A whole different world'**\
+`College football may be becoming more like the NFL in some ways, but Belichick and Reich still face unique challenges in 2025.`\
+https://nytimes.com/athletic/6565143/2025/08/21/college-football-nfl-coaches-belichick-reich/
+
+**Trump Administration Live Updates: U.S. and E.U. Agree on Details of Trade Deal**\
+``\
+https://nytimes.com/live/2025/08/21/us/trump-news
+
+**Key Cowboys players and roster battles to watch in final preseason game**\
+`The Cowboys' last preseason game is Friday and Joe Milton, Jaydon Blue, several receivers and defensive tackles will be in the spotlight.`\
+https://nytimes.com/athletic/6566506/2025/08/21/cowboys-preseason-key-players-joe-milton/
+
 **What Brian Schottenheimer wants to see, plus key roster battles and opportunities**\
 `The Cowboys' final preseason game is Friday and Joe Milton, Jaydon Blue, several receivers and defensive tackles will be in the spotlight.`\
 https://nytimes.com/athletic/6566506/2025/08/21/cowboys-preseason-key-players-joe-milton/
