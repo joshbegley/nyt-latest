@@ -1,3 +1,11 @@
+**Real Madrid mailbag: Our writers answer questions on Vinicius Jr, Alexander-Arnold's best position and more**\
+`Mario Cortegana and Guillermo Rai answer your questions about a range of topics at Madrid`\
+https://nytimes.com/athletic/6566693/2025/08/21/real-madrid-mailbag-vinicius-alexander-arnold/
+
+**Europe Gets a Written Trump Trade Deal, With a Caveat for Automakers**\
+`The European Union and United States have been negotiating the joint text for weeks. The deal is much as expected, but tariff relief for European cars may not be immediate.`\
+https://nytimes.com/2025/08/21/us/politics/eu-us-trump-trade-deal.html
+
 **How does college football coaching differ from the NFL? 'A whole different world'**\
 `College football may be becoming more like the NFL in some ways, but Belichick and Reich still face unique challenges in 2025.`\
 https://nytimes.com/athletic/6565143/2025/08/21/college-football-nfl-coaches-belichick-reich/
