@@ -1,3 +1,7 @@
+**Violence Halts Soccer Match in Argentina**\
+`A game between an Argentine club, Independiente, and a Chilean one, Universidad de Chile, was canceled after unrest in the stands left some fans hospitalized or detained by the local authorities. The cause of the violence was not immediately clear.`\
+https://nytimes.com/video/world/americas/100000010353072/violence-halts-soccer-match-in-argentina.html
+
 **The Trade That Binds the Indian and American Economies**\
 `President Trump focuses on the trade in manufactured goods, where India sells more to the U.S. than it buys. But the countries share a balanced trade in services.`\
 https://nytimes.com/2025/08/21/business/trump-tariffs-india.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6566214/2025/08/21/trea-turner-bryson-stott-phillie
 **How has Vikings rookie Max Brosmer gone from undrafted free agent to potential No. 2 QB?**\
 `Brosmer, a rookie out of Minnesota (and New Hampshire!), has shown the smarts and processing skills to stick in the NFL for a long time.`\
 https://nytimes.com/athletic/6565396/2025/08/21/max-brosmer-minnesota-vikings-new-hampshire/
-
-**Ranking the college football Week 0 games, from Ireland to Hawaii**\
-`Saturday marks the official launch of college football season, with five opening matchups involving FBS teams spread from Dublin to O'ahu.`\
-https://nytimes.com/athletic/6563243/2025/08/21/college-football-week-0-kansas-st-iowa-state-stanford-hawaii-how-to-watch/
 

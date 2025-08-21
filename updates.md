@@ -1,3 +1,7 @@
+**Violence Halts Soccer Match in Argentina**\
+`A game between an Argentine club, Independiente, and a Chilean one, Universidad de Chile, was canceled after unrest in the stands left some fans hospitalized or detained by the local authorities. The cause of the violence was not immediately clear.`\
+https://nytimes.com/video/world/americas/100000010353072/violence-halts-soccer-match-in-argentina.html
+
 **The Trade That Binds the Indian and American Economies**\
 `President Trump focuses on the trade in manufactured goods, where India sells more to the U.S. than it buys. But the countries share a balanced trade in services.`\
 https://nytimes.com/2025/08/21/business/trump-tariffs-india.html
