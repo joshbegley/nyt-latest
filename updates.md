@@ -1,3 +1,11 @@
+**Soccer Game in Argentina Is Canceled After Violence in Stands**\
+`Fans were hospitalized and detained after violent attacks during a match in a stadium near Buenos Aires, prompting officials to cancel the game.`\
+https://nytimes.com/2025/08/21/world/americas/argentina-chile-soccer-violence.html
+
+**Sara Errani and Andrea Vavassori retain U.S. Open mixed doubles by outclassing singles stars**\
+`The defending champions delivered a different sort of script Wednesday, beating Iga Świątek and Casper Ruud 6-3, 5-7, 10-6 in the final.`\
+https://nytimes.com/athletic/6566260/2025/08/21/tennis-us-open-mixed-doubles-errani-vavassori-win/
+
 **The New York Times in Print for Thursday, Aug. 21, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/08/21/todays-new-york-times

@@ -1,3 +1,7 @@
+**Word of the Day: renowned**\
+`This word has appeared in 892 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2025/08/21/learning/word-of-the-day-renowned.html
+
 **Soccer Game in Argentina Is Canceled After Violence in Stands**\
 `Fans were hospitalized and detained after violent attacks during a match in a stadium near Buenos Aires, prompting officials to cancel the game.`\
 https://nytimes.com/2025/08/21/world/americas/argentina-chile-soccer-violence.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6566427/2025/08/21/paige-bueckers-breaks-rookie-sco
 **Thursday Briefing: Israeli Troops Near Gaza City**\
 `Also, Africa’s push for a new world map.`\
 https://nytimes.com/2025/08/21/briefing/gaza-city-offensive-west-bank-settlements-ukraine-russia-china-tibet.html
-
-**Omari Hutchinson's signing epitomises the new Forest blueprint**\
-`The new club-record signing is one of many recent arrivals to the City Ground expected to only grow in both stature and value`\
-https://nytimes.com/athletic/6564606/2025/08/21/omari-hutchinson-nottingham-forest/
 
