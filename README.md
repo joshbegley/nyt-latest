@@ -1,3 +1,7 @@
+**Taking on the Fed, Trump Combines Retribution Tactics With a Power Play**\
+`The president’s second term has been marked by his eagerness to go after his foes and his assertions of presidential authority. Both traits are on display as he seeks control over the central bank.`\
+https://nytimes.com/2025/08/21/us/politics/trump-fed-federal-reserve.html
+
 **T's Sept. 7 Men's Fashion Issue**\
 ``\
 https://nytimes.com/issue/t-magazine/2025/08/21/ts-sept-7-mens-fashion-issue-2025
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6568396/2025/08/21/crystal-palace-transfer-news-gla
 **N.Y. Lawmakers Press Officials About Home Health Program’s Issues**\
 `The program, which helps disabled and chronically ill New Yorkers, has had issues with timely pay and service since the state brought in a new operator to save money.`\
 https://nytimes.com/2025/08/21/nyregion/cdpap-new-york.html
-
-**Erin’s gusts sent a wind turbine’s blades tumbling through a North Carolina neighborhood.**\
-`By Eric Athas`\
-https://nytimes.com/live/2025/08/20/weather/hurricane-erin/erins-gusts-sent-a-wind-turbines-blades-tumbling-through-a-north-carolina-neighborhood
 

@@ -1,3 +1,11 @@
+**T's Sept. 7 Men's Fashion Issue**\
+``\
+https://nytimes.com/issue/t-magazine/2025/08/21/ts-sept-7-mens-fashion-issue-2025
+
+**Police ‘Failed’ Slain Woman Who Reported Ex’s Harassment, Family Says**\
+`Dr. Lauren Semanchik told the police that she was “especially uncomfortable” because her ex-boyfriend was a state trooper. She and her boyfriend were later shot to death.`\
+https://nytimes.com/2025/08/21/nyregion/semanchik-murder-new-jersey-police.html
+
 **Kyle Tucker returns but struggles persist as Cubs drop finale to Milwaukee**\
 `Tucker returned to the lineup after sitting for three games but went hitless Thursday, making him 0-for-8 in the two losses this series.`\
 https://nytimes.com/athletic/6568305/2025/08/21/kyle-tucker-cubs-brewers-series/
@@ -6,8 +14,8 @@ https://nytimes.com/athletic/6568305/2025/08/21/kyle-tucker-cubs-brewers-series/
 `State Democratic officials withdrew the endorsement of a Minneapolis mayoral candidate who has drawn comparisons to Zohran Mamdani, the New York mayoral hopeful.`\
 https://nytimes.com/2025/08/21/us/minnesotas-democratic-party-revokes-endorsement-of-mayoral-candidate.html
 
-**Mandel: SEC going to 9 games staves off potential disaster: The Big Ten's Playoff plan**\
-`The SEC finally going to nine conference games is great for the fans, for the sport and for ESPN’s ratings.`\
+**Mandel: SEC going to 9 games staves off Big Ten's hairbrained Playoff plan**\
+`Big Ten’s schools might have to go back to drawing board with their own scheduling.`\
 https://nytimes.com/athletic/6568398/2025/08/21/sec-9-games-big-tens-playoff-plan/
 
 **Jared Goff, Amon-Ra St. Brown sharp again in even day vs. Texans: Takeaways**\
@@ -29,12 +37,4 @@ https://nytimes.com/2025/08/21/nyregion/cdpap-new-york.html
 **Erin’s gusts sent a wind turbine’s blades tumbling through a North Carolina neighborhood.**\
 `By Eric Athas`\
 https://nytimes.com/live/2025/08/20/weather/hurricane-erin/erins-gusts-sent-a-wind-turbines-blades-tumbling-through-a-north-carolina-neighborhood
-
-**See Trump’s Use of Federal Law Enforcement in D.C.**\
-`Times journalists reviewed hundreds of images and videos of law enforcement agents to determine what they have been doing on the ground.`\
-https://nytimes.com/2025/08/21/us/politics/dc-police-national-guard-trump.html
-
-**California Democrats Pass Redistricting Plan to Counter Texas Republicans**\
-`State lawmakers moved quickly to create new districts that could help Democrats flip five congressional seats. Their plan still requires voter approval.`\
-https://nytimes.com/2025/08/21/us/politics/california-newsom-redistricting-texas.html
 

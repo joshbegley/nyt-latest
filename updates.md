@@ -1,3 +1,15 @@
+**T's Sept. 7 Men's Fashion Issue**\
+``\
+https://nytimes.com/issue/t-magazine/2025/08/21/ts-sept-7-mens-fashion-issue-2025
+
+**Police ‘Failed’ Slain Woman Who Reported Ex’s Harassment, Family Says**\
+`Dr. Lauren Semanchik told the police that she was “especially uncomfortable” because her ex-boyfriend was a state trooper. She and her boyfriend were later shot to death.`\
+https://nytimes.com/2025/08/21/nyregion/semanchik-murder-new-jersey-police.html
+
+**Mandel: SEC going to 9 games staves off Big Ten's hairbrained Playoff plan**\
+`Big Ten’s schools might have to go back to drawing board with their own scheduling.`\
+https://nytimes.com/athletic/6568398/2025/08/21/sec-9-games-big-tens-playoff-plan/
+
 **Kyle Tucker returns but struggles persist as Cubs drop finale to Milwaukee**\
 `Tucker returned to the lineup after sitting for three games but went hitless Thursday, making him 0-for-8 in the two losses this series.`\
 https://nytimes.com/athletic/6568305/2025/08/21/kyle-tucker-cubs-brewers-series/
