@@ -1,3 +1,7 @@
+**The Trade That Binds the Indian and American Economies**\
+`President Trump focuses on the trade in manufactured goods, where India sells more to the U.S. than it buys. But the countries share a balanced trade in services.`\
+https://nytimes.com/2025/08/21/business/trump-tariffs-india.html
+
 **An Ohio State repeat? No SEC byes? 5 takeaways from our College Football Playoff predictor**\
 `Our College Football Playoff predictor is back. Here's how it came together and what to watch as Ohio State aims for a repeat.`\
 https://nytimes.com/athletic/6565395/2025/08/21/college-football-playoff-preseason-predictions-odds/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6565396/2025/08/21/max-brosmer-minnesota-vikings-ne
 **Ranking the college football Week 0 games, from Ireland to Hawaii**\
 `Saturday marks the official launch of college football season, with five opening matchups involving FBS teams spread from Dublin to O'ahu.`\
 https://nytimes.com/athletic/6563243/2025/08/21/college-football-week-0-kansas-st-iowa-state-stanford-hawaii-how-to-watch/
-
-**NBA 2025 offseason rankings Top 10: How did Thunder, Rockets, Spurs fare?**\
-`By getting Kevin Durant, the Rockets acquired the superstar they needed to challenge the Thunder, who had a successful offseason as well.`\
-https://nytimes.com/athletic/6549950/2025/08/21/nba-offseason-2025-rankings-thunder-rockets-spurs/
 
