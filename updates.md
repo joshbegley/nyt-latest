@@ -1,3 +1,7 @@
+**Chiefs trade WR Skyy Moore to 49ers, swap picks: Sources**\
+`The Chiefs will receive a 2027 sixth-round pick and send the 49ers a 2027 seventh-round pick.`\
+https://nytimes.com/athletic/6566104/2025/08/20/skyy-moore-trade-chiefs-49ers/
+
 **Jihaad Campbell's rapid rise in 'Block Destruction University' signals he'll start Week 1**\
 `Campbell's flexibility at the linebacker position is a huge asset to the Eagles.`\
 https://nytimes.com/athletic/6563460/2025/08/20/eagles-jihaad-campbell-block-destruction-university/
