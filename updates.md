@@ -1,3 +1,7 @@
+**Man Accused of Arranging Murder of the Rapper Young Dolph Is Found Not Guilty**\
+`A jury acquitted Hernandez Govan in the 2021 shooting of the rapper outside a Memphis cookie shop.`\
+https://nytimes.com/2025/08/21/us/young-dolph-murder-acquittal.html
+
 **A Painting That Captures London at Dusk**\
 `Cece Philips discusses works by Barkley L. Hendricks and Edward Hopper, as well as one of her own new pieces, which depicts a solitary moment at the end of the day.`\
 https://nytimes.com/2025/08/21/t-magazine/cece-philips.html
