@@ -1,3 +1,11 @@
+**Liverpool's Frimpong out until after international break with hamstring injury**\
+`The 24-year-old was substituted during the second half of his Premier League debut against Bournemouth last Friday.`\
+https://nytimes.com/athletic/6567077/2025/08/21/liverpool-jeremie-frimpong-injury-update/
+
+**Williamson to miss start of Arsenal's season after knee surgery**\
+`The injury was to the same knee that she suffered an anterior cruciate ligament injury to in April 2023, but is a separate issue.`\
+https://nytimes.com/athletic/6567168/2025/08/21/arsenal-leah-williamson-injury/
+
 **Williamson to miss start of Arsenal's season after knee surgery**\
 `The injury was to the same knee (right) that she suffered an anterior cruciate ligament injury to in April 2023, but is a separate issue.`\
 https://nytimes.com/athletic/6567168/2025/08/21/arsenal-leah-williamson-injury/
