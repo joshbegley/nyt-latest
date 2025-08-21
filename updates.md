@@ -1,3 +1,19 @@
+**Omari Hutchinson's signing epitomises the new Forest blueprint**\
+`The new club-record signing is one of many recent arrivals to the City Ground expected to only grow in both stature and value`\
+https://nytimes.com/athletic/6564606/2025/08/21/omari-hutchinson-nottingham-forest/
+
+**Missing out on Eze underlines a sense Spurs have failed to kick on after Europa League win**\
+`Eberechi Eze looks as though he will move to Arsenal rather than completing a switch to Spurs`\
+https://nytimes.com/athletic/6565814/2025/08/21/tottenham-hotspur-eberechi-eze-analysis/
+
+**Could this be a crucial season for Man Utd's Matthijs de Ligt?**\
+`It has been a tricky few years for De Ligt since he joined Manchester United. This season could be different`\
+https://nytimes.com/athletic/6480014/2025/08/21/matthijs-de-ligt-man-utd-analysis/
+
+**Jackson Tchatchoua: Fastest player in Serie A last season who always looks to get forward**\
+`Analysing Wolves' new right wing-back's strengths and weaknesses, his style of play and how he will fit into Vitor Pereira's system`\
+https://nytimes.com/athletic/6564728/2025/08/21/jackson-tchatchoua-wolves-new-signing/
+
 **Wissa and Strand Larsen - Analysing two Newcastle striker targets and which fits best**\
 `If it's Wissa or Strand Larsen, the decision isn't easy. However, the circumstances of the Isak saga might make it Wissa and Strand Larsen`\
 https://nytimes.com/athletic/6558640/2025/08/21/wissa-strand-larsen-newcastle-transfers/
