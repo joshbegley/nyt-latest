@@ -1,3 +1,7 @@
+**Court Overturns Trump’s Half-Billion-Dollar Judgment, but Upholds Fraud Case**\
+`The ruling handed the president a financial victory, and some legal validation, as New York appeals judges agreed that the fine in his civil fraud case was excessive.`\
+https://nytimes.com/2025/08/21/nyregion/trump-fraud-james.html
+
 **Want to guarantee 2027 All-Star Game tickets at Wrigley? The Cubs have a plan for that**\
 `The Cubs want to ensure the tickets they're allocated for the events go to fans "who are going to be here for a long time."`\
 https://nytimes.com/athletic/6567232/2025/08/21/cubs-all-star-game-season-ticket-holders/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6567059/2025/08/21/humpy-wheeler-nascar-dies/
 **Trump Administration Retracts Instructions on Helping English Learners**\
 `Officials removed decade-old guidance outlining the rights of students who are still learning English, which could weaken support for immigrant children.`\
 https://nytimes.com/2025/08/21/us/politics/trump-administration-education-instructions-english-learners.html
-
-**Anxiety Mounts in Gaza City as Israel Threatens a New Offensive**\
-`The Israeli military announced its operation to take Gaza City, where many displaced Palestinians have taken refuge, was underway on Thursday, even as Prime Minister Benjamin Netanyahu considered a cease-fire proposal.`\
-https://nytimes.com/video/world/middleeast/100000010353185/gaza-city-israel-offensive-protest-.html
 

@@ -1,3 +1,11 @@
+**Want to guarantee 2027 All-Star Game tickets at Wrigley? The Cubs have a plan for that**\
+`The Cubs want to ensure the tickets they're allocated for the events go to fans "who are going to be here for a long time."`\
+https://nytimes.com/athletic/6567232/2025/08/21/cubs-all-star-game-season-ticket-holders/
+
+**Apple Fitness Chief Accused of Toxic Workplace Culture and Harassment**\
+`Workers say the executive was volatile and retaliated when they cooperated with an investigation. Apple denies the claims.`\
+https://nytimes.com/2025/08/21/technology/apple-fitness-jay-blahnik.html
+
 **Why Arsenal adjusted Trossard's contract and what Havertz injury and Eze mean for Belgian**\
 `Explaining why Arsenal went ahead with Trossard's revamped contract, and the implications for the rest of their transfer business.`\
 https://nytimes.com/athletic/6564437/2025/08/21/trossard-contract-explained-havertz-injury-and-what-next-for-arsenal-in-the-transfer-window/
