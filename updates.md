@@ -1,3 +1,11 @@
+**California Democrats Pass Redistricting Plan to Counter Texas Republicans**\
+`State lawmakers moved quickly to create new districts that could help Democrats flip five congressional seats. Their plan still requires voter approval.`\
+https://nytimes.com/2025/08/21/us/politics/california-newsom-redistricting-texas.html
+
+**Active Shooter Hoax Prompted Lockdown at Villanova, School’s President Says**\
+`Police had surged onto the university’s campus northwest of Philadelphia, as frightened students sheltered in place. But the school said there was no evidence of a gunman.`\
+https://nytimes.com/live/2025/08/21/us/villanova-active-shooter
+
 **Packers-Seahawks joint practice: One big brawl and 9 other observations**\
 `Packers right tackle Zach Tom got kicked out of Thursday's joint practice for throwing haymakers at multiple Seahawks during a scuffle.`\
 https://nytimes.com/athletic/6568263/2025/08/21/packers-seahawks-joint-practice-fight/

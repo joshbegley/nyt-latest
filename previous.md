@@ -1,3 +1,7 @@
+**California Democrats Pass Redistricting Plan to Counter Texas Republicans**\
+`State lawmakers moved quickly to create new districts that could help Democrats flip five congressional seats. Their plan still requires voter approval.`\
+https://nytimes.com/2025/08/21/us/politics/california-newsom-redistricting-texas.html
+
 **Packers-Seahawks joint practice: One big brawl and 9 other observations**\
 `Packers right tackle Zach Tom got kicked out of Thursday's joint practice for throwing haymakers at multiple Seahawks during a scuffle.`\
 https://nytimes.com/athletic/6568263/2025/08/21/packers-seahawks-joint-practice-fight/
@@ -6,8 +10,8 @@ https://nytimes.com/athletic/6568263/2025/08/21/packers-seahawks-joint-practice-
 `The elder Brown was booked into the Clark County Detention Center on Wednesday evening.`\
 https://nytimes.com/athletic/6567990/2025/08/21/jaylen-brown-father-arrest-attempted-murder-las-vegas/
 
-**Live Updates: Gunman Reported at Villanova University, Forcing Lockdown**\
-`The report of an active shooter drew a large police response to the university’s campus northwest of Philadelphia, where students were told to shelter in place.`\
+**Active Shooter Hoax Prompted Lockdown at Villanova, School’s President Says**\
+`Police had surged onto the university’s campus northwest of Philadelphia, as frightened students sheltered in place. But the school said there was no evidence of a gunman.`\
 https://nytimes.com/live/2025/08/21/us/villanova-active-shooter
 
 **Tempers boil over into fights at Seahawks-Packers joint practice: Takeaways**\
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/08/21/us/villanova-active-shooter/villanova-univer
 **Potter says West Ham 's previous transfer policy has hindered activity this summer**\
 `Potter intends to step up their pursuit for transfer targets but admits he is hamstrung by their inability to spend heavily.`\
 https://nytimes.com/athletic/6568075/2025/08/21/west-ham-news-potter-transfer-policy/
-
-**Brighton's Moran joins LAFC on loan until January**\
-`Moran joins fellow former Premier League players Hugo Lloris and Son Heung-min.`\
-https://nytimes.com/athletic/6568206/2025/08/21/brighton-lafc-moran-transfer-news-loan/
 
