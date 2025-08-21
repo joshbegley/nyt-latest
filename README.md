@@ -1,3 +1,7 @@
+**Chargers' goal to build depth on interior defensive line is looking like a reality**\
+`The Chargers went with a committee approach in trying to replace Poona Ford and Morgan Fox. The early returns look good. `\
+https://nytimes.com/athletic/6566115/2025/08/20/chargers-interior-defensive-line-depth/
+
 **Jair Bolsonaro Planned to Seek Asylum in Argentina, Brazil’s Police Say**\
 `The police said they found a request for asylum, addressed to Argentina’s leader, on the phone of the Brazilian ex-president, who is accused of plotting a coup.`\
 https://nytimes.com/2025/08/20/world/americas/jair-bolsonaro-brazil-asylum-argentina.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/us/politics/100000010352562/texas-republican-redistric
 **Chiefs trade WR Skyy Moore to 49ers, swap picks: Sources**\
 `The Chiefs will receive a 2027 sixth-round pick and send the 49ers a 2027 seventh-round pick.`\
 https://nytimes.com/athletic/6566104/2025/08/20/skyy-moore-trade-chiefs-49ers/
-
-**Broncos trade Devaughn Vele to Saints: Why Denver could part with WR**\
-`Denver will receive a fourth-round pick in 2026 and a seventh-round pick in 2027 for the promising wideout.`\
-https://nytimes.com/athletic/6566061/2025/08/20/broncos-trade-devaughn-vele-saints-draft-picks/
 
