@@ -1,3 +1,7 @@
+**Trump Says He’ll Join D.C. Patrols on Thursday Night**\
+`The president told a conservative radio host’s show that he would go out alongside officers. But the White House has not offered details for the excursion.`\
+https://nytimes.com/2025/08/21/us/politics/trump-dc-patrols.html
+
 **Callum Doyle joins Wrexham from Manchester City**\
 `The 21-year-old defender has spent the past four seasons on loan in the EFL.`\
 https://nytimes.com/athletic/6530310/2025/08/21/callum-doyle-wrexham-transfer-man-city/
