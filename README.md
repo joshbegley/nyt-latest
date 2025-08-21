@@ -1,3 +1,7 @@
+**See Trump’s Use of Federal Law Enforcement in D.C.**\
+`Times journalists reviewed hundreds of images and videos of law enforcement agents to determine what they have been doing on the ground.`\
+https://nytimes.com/2025/08/21/us/politics/dc-police-national-guard-trump.html
+
 **California Democrats Pass Redistricting Plan to Counter Texas Republicans**\
 `State lawmakers moved quickly to create new districts that could help Democrats flip five congressional seats. Their plan still requires voter approval.`\
 https://nytimes.com/2025/08/21/us/politics/california-newsom-redistricting-texas.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/podcasts/100000010351461/the-years-most-polarizing-rap
 **Here’s what to know.**\
 `The report drew a large police response to the university’s campus northwest of Philadelphia, and students were told to shelter in place.`\
 https://nytimes.com/live/2025/08/21/us/villanova-active-shooter/villanova-university-shooting
-
-**Potter says West Ham 's previous transfer policy has hindered activity this summer**\
-`Potter intends to step up their pursuit for transfer targets but admits he is hamstrung by their inability to spend heavily.`\
-https://nytimes.com/athletic/6568075/2025/08/21/west-ham-news-potter-transfer-policy/
 
