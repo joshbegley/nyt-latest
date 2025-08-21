@@ -1,3 +1,11 @@
+**Uganda Joins African Countries Agreeing to Take Deportees From U.S.**\
+`The East African country said it had reached a deal to accept an unspecified number of deportees, who would not include people with criminal records or unaccompanied minors.`\
+https://nytimes.com/2025/08/21/world/africa/uganda-us-deportees.html
+
+**Enciso has 'big potential' but Brighton not right 'environment', says Hurzeler**\
+`The 21-year-old is expected to initially spend time at Strasbourg but is viewed as a long-term Chelsea player.`\
+https://nytimes.com/athletic/6566584/2025/08/21/julio-enciso-chelsea-brighton-transfer-fabian-hurzeler/
+
 **Zelensky, Back From Washington, Projects More Confidence in Peace Talks**\
 `The Ukrainian leader returned with a U.S. commitment to participate in security guarantees for Kyiv in a postwar settlement.`\
 https://nytimes.com/2025/08/21/world/europe/zelensky-ukraine-russia-trump-peace-talks.html
