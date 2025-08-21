@@ -1,3 +1,7 @@
+**Zelensky, Back From Washington, Projects More Confidence in Peace Talks**\
+`The Ukrainian leader returned with a U.S. commitment to participate in security guarantees for Kyiv in a postwar settlement.`\
+https://nytimes.com/2025/08/21/world/europe/zelensky-ukraine-russia-trump-peace-talks.html
+
 **Sailors Fight Fire on U.S. Navy Ship in Japan**\
 `The fire on the U.S.S. New Orleans burned for about 12 hours and injured two sailors, the Navy said.`\
 https://nytimes.com/video/us/100000010353021/us-navy-fire-ship-okinawa.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/21/opinion/trump-cartel-mexico-fentanyl.html
 **Fire on U.S. Navy Ship in Japan Extinguished After 12 Hours**\
 `Two sailors sustained minor injuries, the Navy said, adding that the ship’s crew will remain on board in Okinawa.`\
 https://nytimes.com/2025/08/21/us/us-navy-fire-ship-okinawa.html
-
-**How Owen Caissie met the Cubs' challenge and improved upon his few remaining flaws**\
-`Caissie drew a big walk in Wednesday's 4-3 win over the Milwaukee Brewers, the Cubs' third straight victory.`\
-https://nytimes.com/athletic/6566404/2025/08/21/cubs-owen-caissie-improvement/
 
