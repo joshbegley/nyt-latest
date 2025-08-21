@@ -1,3 +1,11 @@
+**What Brian Schottenheimer wants to see, plus key roster battles and opportunities**\
+`The Cowboys' final preseason game is Friday and Joe Milton, Jaydon Blue, several receivers and defensive tackles will be in the spotlight.`\
+https://nytimes.com/athletic/6566506/2025/08/21/cowboys-preseason-key-players-joe-milton/
+
+**Walmart Sees Sales ‘Momentum’ Despite Tariffs**\
+`After mixed reports from retail rivals, Walmart reported better-than-expected quarterly results and raised its sales forecast for the year.`\
+https://nytimes.com/2025/08/21/business/walmart-sales-retail-tariffs.html
+
 **Europe Gets a Written Trump Trade Deal, With a Caveat for Automakers**\
 `The European Union and United States have been negotiating the joint text for weeks. The deal is much as expected, but it will delay tariff relief for European cars.`\
 https://nytimes.com/2025/08/21/us/politics/eu-us-trump-trade-deal.html
