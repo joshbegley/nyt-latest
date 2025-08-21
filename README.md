@@ -1,3 +1,11 @@
+**Uganda Joins African Countries Agreeing to Take Deportees From U.S.**\
+`The East African country said it had reached a deal to accept an unspecified number of deportees, who would not include people with criminal records or unaccompanied minors.`\
+https://nytimes.com/2025/08/21/world/africa/uganda-us-deportees.html
+
+**Enciso has 'big potential' but Brighton not right 'environment', says Hurzeler**\
+`The 21-year-old is expected to initially spend time at Strasbourg but is viewed as a long-term Chelsea player.`\
+https://nytimes.com/athletic/6566584/2025/08/21/julio-enciso-chelsea-brighton-transfer-fabian-hurzeler/
+
 **Zelensky, Back From Washington, Projects More Confidence in Peace Talks**\
 `The Ukrainian leader returned with a U.S. commitment to participate in security guarantees for Kyiv in a postwar settlement.`\
 https://nytimes.com/2025/08/21/world/europe/zelensky-ukraine-russia-trump-peace-talks.html
@@ -29,12 +37,4 @@ https://nytimes.com/issue/todayspaper/2025/08/21/todays-new-york-times
 **He Was the Face and Voice of Gaza. Israel Assassinated Him.**\
 `The killing of Anas al-Sharif marks an ominous new phase of the war in Gaza.`\
 https://nytimes.com/2025/08/21/opinion/israel-al-sharif-killing-gaza.html
-
-**The Folly of Trump’s Cartel-Bombing Fantasy**\
-`A U.S. strike on cartels in Mexico won’t fix the deep problems that allow organized crime to flourish.`\
-https://nytimes.com/2025/08/21/opinion/trump-cartel-mexico-fentanyl.html
-
-**Fire on U.S. Navy Ship in Japan Extinguished After 12 Hours**\
-`Two sailors sustained minor injuries, the Navy said, adding that the ship’s crew will remain on board in Okinawa.`\
-https://nytimes.com/2025/08/21/us/us-navy-fire-ship-okinawa.html
 
