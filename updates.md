@@ -1,3 +1,7 @@
+**Facing a ‘Reading Crisis,’ Denmark Wants to Make Books Cheaper**\
+`The Danish government announced this week that it planned to make books exempt from a 25 percent value-added tax.`\
+https://nytimes.com/2025/08/21/world/europe/denmark-books-tax-reading.html
+
 **Gavin Casalegno Knows How You Feel About Him on ‘The Summer I Turned Pretty’**\
 `Social media has turned against the character he plays on the hit show. He finds the reaction “comical.”`\
 https://nytimes.com/2025/08/21/style/summer-i-turned-pretty-jeremiah-gavin-casalegno.html
