@@ -1,3 +1,7 @@
+**Another Dodgers-Padres series with first-place stakes. Here's how to watch the sequel**\
+`A second straight weekend three-pack with the Los Angeles Dodgers and San Diego Padres? Of course we are down.`\
+https://nytimes.com/athletic/6568323/2025/08/22/dodgers-padres-nl-west-ohtani-injury-tatis-snell-how-to-watch/
+
 **Vikings' 53-man roster bubble: Who needs to produce vs. Titans in final preseason game?**\
 `Which players need to perform well Friday night to find themselves on the right side of the cut line? Here are 11 names.`\
 https://nytimes.com/athletic/6567374/2025/08/22/vikings-53-man-roster-bubble-titans-preseason/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6566088/2025/08/22/farmageddon-kansas-state-iowa-st
 **Myth-busting Big Ten travel: How much is realignment impacting football results?**\
 `Big Ten teams fared poorly when flying multiple time zones last football season. But how much could actually be chalked up to travel?`\
 https://nytimes.com/athletic/6567649/2025/08/22/big-ten-travel-conference-realignment-football/
-
-**California Strikes Back at Texas’ Power Grab**\
-`Gov. Gavin Newsom has announced an aggressive plan to retaliate against gerrymandering by Texas Republicans. Will it work?`\
-https://nytimes.com/2025/08/22/podcasts/the-daily/california-texas-newsom-trump.html
 
