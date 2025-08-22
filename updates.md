@@ -1,3 +1,15 @@
+**West Ham 1 Chelsea 5 - Brazilians make their mark as Blues finally back on top (for now)**\
+`Chelsea absolutely strolled to their first win of the Premier League season, thanks to Joao Pedro and Estevao`\
+https://nytimes.com/athletic/6564447/2025/08/22/west-ham-1-chelsea-5-estevao-joao-pedro/
+
+**The 8.24.25 Issue**\
+``\
+https://nytimes.com/issue/magazine/2025/08/22/the-82425-issue
+
+**Pentagon Fires the Defense Intelligence Agency Chief**\
+`The move comes weeks after the agency drafted a preliminary report contradicting President Trump’s contention that U.S. strikes had “obliterated” nuclear sites in Iran.`\
+https://nytimes.com/2025/08/22/us/politics/defense-intelligence-agency-chief-fired.html
+
 **Elon Musk’s X Agrees to Settlements With Thousands of Former Employees**\
 `The settlements are an about-face for the billionaire, whose company fought with former workers over whether it owed them severance pay.`\
 https://nytimes.com/2025/08/22/technology/elon-musk-x-settlements.html

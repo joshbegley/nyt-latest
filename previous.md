@@ -1,3 +1,15 @@
+**West Ham 1 Chelsea 5 - Brazilians make their mark as Blues finally back on top (for now)**\
+`Chelsea absolutely strolled to their first win of the Premier League season, thanks to Joao Pedro and Estevao`\
+https://nytimes.com/athletic/6564447/2025/08/22/west-ham-1-chelsea-5-estevao-joao-pedro/
+
+**The 8.24.25 Issue**\
+``\
+https://nytimes.com/issue/magazine/2025/08/22/the-82425-issue
+
+**Pentagon Fires the Defense Intelligence Agency Chief**\
+`The move comes weeks after the agency drafted a preliminary report contradicting President Trump’s contention that U.S. strikes had “obliterated” nuclear sites in Iran.`\
+https://nytimes.com/2025/08/22/us/politics/defense-intelligence-agency-chief-fired.html
+
 **Elon Musk’s X Agrees to Settlements With Thousands of Former Employees**\
 `The settlements are an about-face for the billionaire, whose company fought with former workers over whether it owed them severance pay.`\
 https://nytimes.com/2025/08/22/technology/elon-musk-x-settlements.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/08/22/arts/dance/kennedy-center-dance-jane-raleigh.html
 **Trump’s Revenge Campaign, Live on Morning TV**\
 `The recent F.B.I. search of John Bolton’s home makes clear that President Trump is perverting the justice system to intimidate his critics.`\
 https://nytimes.com/2025/08/22/opinion/trump-john-bolton-raid.html
-
-**Trump Revels in a ‘Nice’ Gesture From Putin**\
-`The Russian president sent his American counterpart a photograph of the two of them from their face-to-face meeting.`\
-https://nytimes.com/2025/08/22/us/politics/trump-putin-photo.html
-
-**Southwest Is Changing Its Rules for Plus-Size Passengers**\
-`Among other changes, the airline will soon require travelers who “encroach upon the neighboring seat” to purchase an additional ticket, which might not be refunded.`\
-https://nytimes.com/2025/08/22/travel/southwest-extra-seat-plus-size-travelers.html
-
-**Abrego Garcia, Free From Tennessee Jail, Is Returning to Maryland, Lawyer Says**\
-`It remains unclear what will happen next to Kilmar Armando Abrego Garcia. The Justice Department has said that if he was released from custody in Tennessee, it would likely seek to re-deport him.`\
-https://nytimes.com/2025/08/22/us/politics/abrego-garcia-free-maryland.html
 
