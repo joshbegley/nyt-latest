@@ -1,3 +1,19 @@
+**F.B.I. Searches Maryland Home of John Bolton, Ex-Trump Adviser**\
+`An investigation seeks to determine whether Mr. Bolton illegally shared or possessed classified information, according to two people familiar with the case.`\
+https://nytimes.com/2025/08/22/us/politics/john-bolton-trump-home-fbi.html
+
+**‘No Meeting Planned’ Between Putin and Zelensky, Top Russian Diplomat Says**\
+`It was the clearest sign yet that President Trump’s push for an imminent summit was faltering.`\
+https://nytimes.com/2025/08/22/world/europe/putin-zelensky-meeting-russia-ukraine-summit.html
+
+**The Windup: Two big returns tonight**\
+`Welcome to The Windup, The Athletic's MLB newsletter.`\
+https://nytimes.com/athletic/6568908/2025/08/22/shane-bieber-blue-jays-debut-the-windup/
+
+**Former Sri Lankan President Arrested on Corruption Charges**\
+`The ex-leader, Ranil Wickremesinghe, was arrested amid government investigations into widespread bribery and graft.`\
+https://nytimes.com/2025/08/22/world/asia/sri-lanka-ranil-wickremesinghe-arrested.html
+
 **Amorim says Onana 'ready to play', refuses to confirm goalkeeper choice vs. Fulham**\
 `Onana suffered a hamstring injury in early July and missed United's pre-season but had been aiming to return for the league opener.`\
 https://nytimes.com/athletic/6558372/2025/08/22/andre-onana-manchester-united-goalkeeper/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6562113/2025/08/22/joe-ryan-twins-sonny-gray-johan-
 **ND mailbag: CJ Carr's room for error, SEC's move to nine conference games**\
 `In the final Irish mailbag before kickoff, we have a QB decision to discuss, Notre Dame's noncon future against SEC opponents and more.`\
 https://nytimes.com/athletic/6568253/2025/08/22/notre-dame-mailbag-cj-carr-sec/
-
-**What's the impact of an NFL holdout? History shows mixed on-field results**\
-`When and if Micah Parsons, Trey Hendrickson and Terry McLaurin make it back on the field, what type of production can be expected? `\
-https://nytimes.com/athletic/6568021/2025/08/22/nfl-holdouts-impact-parsons-hendrickson-mclaurin/
-
-**Global Monitors Confirm Famine in Part of Gaza. What Does That Mean?**\
-`A panel of food security experts have determined that part of Gaza is suffering from famine, and that it could spread to the rest of the enclave within weeks.`\
-https://nytimes.com/2025/08/22/world/middleeast/gaza-famine-what-to-know.html
-
-**Trump Administration Live Updates: F.B.I. Searches John Bolton’s Home**\
-``\
-https://nytimes.com/live/2025/08/22/us/trump-news
-
-**Rodri, Foden available for Man City vs Spurs – Guardiola**\
-`Both players missed City's opening-weekend victory at Wolves with Rodri returning to availability ahead of schedule.`\
-https://nytimes.com/athletic/6569145/2025/08/22/man-city-team-news-rodri-foden/
 
