@@ -1,3 +1,23 @@
+**The Best School Supplies, According to 100 Kids**\
+`Text by Ellen Lee`\
+https://nytimes.com/card/2025/08/22/smarter-living/wirecutter/
+
+**Fed Chair Hints at Interest Rate Cuts, While Emphasizing Caution**\
+`Jerome H. Powell, the chair of the Federal Reserve, signaled that interest rate cuts may be coming during his final speech as Fed chair on Friday at an annual conference hosted by the Reserve Bank of Kansas City in Jackson, Wyo.`\
+https://nytimes.com/video/us/politics/100000010356275/powell-hints-interest-rate-cuts.html
+
+**Trump Says Intel Has Agreed to Give U.S. a 10% Stake in Its Business**\
+`The president’s comments follow his calls for the resignation of Intel’s chief executive this month.`\
+https://nytimes.com/2025/08/22/technology/trump-intel-stake.html
+
+**Flashback: Your Weekly History Quiz, Aug. 23, 2025**\
+`Can you sort 8 historical events?`\
+https://nytimes.com/interactive/2025/08/22/upshot/flashback.html
+
+**Send in your Red Wings questions for Max Bultman's mailbag**\
+`Have questions about Detroit's offseason, upcoming season or anything else? Submit them here and Max may answer them in an upcoming mailbag.`\
+https://nytimes.com/athletic/6569981/2025/08/22/red-wings-questions-bultman-mailbag-prompt/
+
 **Trump’s First Administration Tried to Stop Bolton’s Memoir**\
 `The book, in which John Bolton described repeated instances of corruption, was one of the most detailed and damaging accounts of Trump’s first term.`\
 https://nytimes.com/2025/08/22/us/politics/trump-bolton-memoir-room-where-it-happened.html
@@ -17,24 +37,4 @@ https://nytimes.com/2025/08/22/t-magazine/work-bags-best.html
 **What Counts as a ‘National Emergency’?**\
 `In his seven months back in office, President Trump has declared nine national emergencies, plus a “crime emergency” in Washington.`\
 https://nytimes.com/video/us/100000010351409/what-counts-as-a-national-emergency.html
-
-**Tell us: Who should be each SEC team's 3 annual rivals on its new schedule?**\
-`Let's provide another data point for the SEC as it figures out the contours of its nine-game football schedule.`\
-https://nytimes.com/athletic/6569933/2025/08/22/sec-football-9-game-schedule-annual-rivalries/
-
-**Trump Officials Demand Apology From George Mason President Over Diversity**\
-`The Education Department said an investigation had found the public university and Gregory Washington, its first Black president, had supported diversity programs it views as discriminatory.`\
-https://nytimes.com/2025/08/22/us/george-mason-president-diversity-investigation.html
-
-**Tour Bus Crashes in Western New York, Injuring Passengers**\
-`The crash, which occurred about 30 miles east of Buffalo, caused multiple injuries and shut down part of one of western New York’s main highways, officials said.`\
-https://nytimes.com/2025/08/22/nyregion/new-york-tour-bus-crash.html
-
-**Everton close to Dibling agreement**\
-`Personal terms have been agreed in principle and, if all goes to plan, the 19-year-old will undergo a medical early next week.`\
-https://nytimes.com/athletic/6544930/2025/08/22/tyler-dibling-everton-transfer-southampton/
-
-**Covid Vaccine Opponent Tapped to Lead Federal Review Team**\
-`Panel members have been given a broad mandate, despite pleas from C.D.C. employees asking Robert F. Kennedy Jr. to stop spreading misinformation.`\
-https://nytimes.com/2025/08/22/health/covid-vaccines-rfk.html
 
