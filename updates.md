@@ -1,3 +1,7 @@
+**After being denied parole, Erik Menendez still has other pathways to freedom.**\
+`By Matt Stevens and Tim Arango`\
+https://nytimes.com/live/2025/08/21/us/menendez-brothers-parole-hearing/after-being-denied-parole-erik-menendez-still-has-other-pathways-to-freedom
+
 **White House Lists Smithsonian Exhibits It Finds Objectionable**\
 `The Trump administration highlighted material dealing with topics like sexuality, slavery and immigration.`\
 https://nytimes.com/2025/08/21/arts/design/smithsonian-trump.html
