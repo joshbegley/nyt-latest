@@ -1,3 +1,5 @@
+
+
 **Ron Turcotte, Who Rode Secretariat to the Triple Crown, Dies at 84**\
 `With Turcotte in the saddle, Secretariat powered to victory in the Kentucky Derby and the Preakness in 1973 and then demolished the competition in the Belmont Stakes.`\
 https://nytimes.com/2025/08/22/sports/horse-racing/ron-turcotte-dead.html
