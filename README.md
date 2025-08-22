@@ -1,3 +1,23 @@
+**Spurs have failed in a move for another star midfielder - who should they target next?**\
+`For the second time this summer, Spurs must pivot after a proposed deal to sign a creative midfielder collapsed at the final hurdle`\
+https://nytimes.com/athletic/6567248/2025/08/22/tottenham-eze-replacements/
+
+**Everton's preparation for Premier League games at new stadium: Creating for 'future generations'**\
+`With the first Premier League game being played at the Hill Dickinson Stadium on Sunday, how have Everton prepared their new stadium?`\
+https://nytimes.com/athletic/6566982/2025/08/22/evertons-preparation-hill-dickinson-stadium-first-premier-league-match/
+
+**Manchester United's goalkeeper issues analysed... by former goalkeepers**\
+`Should Manchester United sign a new goalkeeper or back the options they already have?`\
+https://nytimes.com/athletic/6567442/2025/08/22/manchester-united-goalkeepers-analysis/
+
+**Barcelona's Camp Nou crunch time: Will it really be ready in three weeks?**\
+`The Spanish champions are still hoping to return to their famous ground next month, but is that possible? `\
+https://nytimes.com/athletic/6566792/2025/08/22/barcelona-camp-nou-stadium-la-liga-champions-league/
+
+**Leoni is raw but he ticks a lot of boxes for Liverpool. This is how he'll fit in**\
+`As the 18-year-old central defender moves to Anfield from Parma of Serie A, Andy Jones analyses his game...`\
+https://nytimes.com/athletic/6563442/2025/08/22/liverpool-giovanni-leoni-liverpool-analysis/
+
 **Douglas Luiz coup is a sign of Nottingham Forest's ambition**\
 `Nuno Espirito Santo already has a strong midfield, but the chance to bring in the Brazil international was too good to turn down`\
 https://nytimes.com/athletic/6567594/2025/08/22/douglas-luiz-transfer-nottingham-forest-analysis/
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/6564263/2025/08/22/guardiola-arsenal-liverpool-lavo
 **Danny Welbeck: 'I don't think about retirement - that won't happen as soon as people think'**\
 `The former Manchester United, Arsenal and England forward explains how he and football have changed over his 17-year Premier League career`\
 https://nytimes.com/athletic/6501844/2025/08/22/danny-welbeck-interview-retirement-brighton/
-
-**How fit are Premier League footballers compared to everyday members of the public?**\
-`The Athletic's Eduardo Tansley undergoes a series of tests designed to show how he measures up against the average top-flight footballer`\
-https://nytimes.com/athletic/6545553/2025/08/22/how-fit-are-footballers/
-
-**Premier League clubs, PSR and £1.9bn in academy sales since 2020 - how much has each club made?**\
-`Academy players offer pure profit when sold and clubs have found it a good way of avoiding potential PSR breaches`\
-https://nytimes.com/athletic/6566905/2025/08/22/premier-league-academy-sales-psr/
-
-**Why transfer release clauses are more common, more complex and more specific than ever**\
-`A release clause is not as simple as just stumping up the set price. And that is getting more and more difficult to keep track of...`\
-https://nytimes.com/athletic/6566732/2025/08/22/transfer-release-clauses-premier-league/
-
-**Premier League Predictions: Man City vs Tottenham, Newcastle vs Liverpool and the rest of Matchday 2**\
-`How did our writer get on in MD1 against a subscriber, a child and an algorithm? And what is everyone predicting for MD2?`\
-https://nytimes.com/athletic/6562025/2025/08/22/premier-league-predictions-matchday-2/
-
-**Why Chelsea, Villa & Arsenal will have one eye on UEFA's rules before window closes**\
-`PSR is at the forefront of everyone's minds, but it is not quite that simple over the rest of the window`\
-https://nytimes.com/athletic/6566554/2025/08/22/chelsea-aston-villa-arsenal-uefa-financial-rules/
 
