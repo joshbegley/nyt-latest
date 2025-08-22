@@ -1,3 +1,7 @@
+**San Francisco Had Avoided Trump’s Ire. Until Now.**\
+`The president focused on cities like Los Angeles and Washington as he deployed federal troops and railed against crime. But on Friday, in reference to San Francisco, he said, “We’ll clean that one up, too.”`\
+https://nytimes.com/2025/08/22/us/politics/san-francisco-trump-cities.html
+
 **Impact of ‘Continuous Vetting’ for U.S. Visa Holders Remains Unclear**\
 `The State Department offered few details about its plans for the 55 million visa holders, and it was unclear if it was culling travel documents, or making less drastic changes.`\
 https://nytimes.com/2025/08/22/us/politics/continuous-vetting-visa-holders.html
