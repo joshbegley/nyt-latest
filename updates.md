@@ -1,3 +1,7 @@
+**WNBA breaks single-season attendance record set in 2002**\
+`With three weeks left in the regular season and three rounds of postseason play ahead, the new record will continue to rise.`\
+https://nytimes.com/athletic/6569313/2025/08/22/wnba-new-single-season-attendance-record/
+
 **Nuno says 'relationship has changed' with Forest owner Marinakis**\
 `The Forest head coach's comments come a week after he said the club have a “major problem” after the summer window.`\
 https://nytimes.com/athletic/6569287/2025/08/22/nuno-nottingham-forest-marinakis/
