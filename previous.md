@@ -1,3 +1,11 @@
+**Everton close to Dibling agreement**\
+`Personal terms have been agreed in principle and, if all goes to plan, the 19-year-old will undergo a medical early next week.`\
+https://nytimes.com/athletic/6544930/2025/08/22/tyler-dibling-everton-transfer-southampton/
+
+**Covid Vaccine Opponent Tapped to Lead Federal Review Team**\
+`Panel members have been given a broad mandate, despite pleas from C.D.C. employees asking Robert F. Kennedy Jr. to stop spreading misinformation.`\
+https://nytimes.com/2025/08/22/health/covid-vaccines-rfk.html
+
 **13 New Songs You Need to Hear: Doja Cat, Laufey, Wolf Alice and More**\
 `Listen to tracks by Deftones, Lila Iké, Chance the Rappers and others.`\
 https://nytimes.com/2025/08/22/arts/music/playlist-doja-cat-laufey.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6568934/2025/08/22/ny-giants-jaxson-dart-preseason/
 **Hoping to Jump-Start Talks, Canada to Drop Some Retaliatory Tariffs on U.S. Products**\
 `Canada’s leader said he would follow the United States in dropping tariffs against American goods covered by the existing free trade agreement.`\
 https://nytimes.com/2025/08/22/world/canada/canada-us-tariffs-drop-trump.html
-
-**Battling Power Outages and Heat Wave, Iran Orders More Shutdowns**\
-`Amid suffocating temperatures, the Iranian authorities are closing public offices and cutting water and electricity as the country struggles with an energy crisis.`\
-https://nytimes.com/2025/08/22/world/middleeast/iran-heat-shutdown-outages.html
-
-**Take a Closer Look at These ‘Great’ New York City Trees**\
-`Some are rare or endangered. Others have stood witness to important moments in history. All are lovely and surprising in their own way.`\
-https://nytimes.com/interactive/2025/08/22/nyregion/nyc-trees.html
 

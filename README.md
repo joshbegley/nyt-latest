@@ -1,3 +1,19 @@
+**What Counts as a ‘National Emergency’?**\
+`In his seven months back in office, President Trump has declared nine national emergencies, plus a “crime emergency” in Washington.`\
+https://nytimes.com/video/us/100000010351409/what-counts-as-a-national-emergency.html
+
+**Tell us: Who should be each SEC team's 3 annual rivals on its new schedule?**\
+`Let's provide another data point for the SEC as it figures out the contours of its nine-game football schedule.`\
+https://nytimes.com/athletic/6569933/2025/08/22/sec-football-9-game-schedule-annual-rivalries/
+
+**Trump Officials Demand Apology From George Mason President Over Diversity**\
+`The Education Department said an investigation had found the public university and Gregory Washington, its first Black president, had supported diversity programs it views as discriminatory.`\
+https://nytimes.com/2025/08/22/us/george-mason-president-diversity-investigation.html
+
+**iTour Bus Crashes in Western New York, Injuring Passengers**\
+`The crash, which occurred about 30 miles east of Buffalo, caused multiple injuries and shut down part of one of western New York’s main highways, officials said.`\
+https://nytimes.com/2025/08/22/nyregion/new-york-tour-bus-crash.html
+
 **Everton close to Dibling agreement**\
 `Personal terms have been agreed in principle and, if all goes to plan, the 19-year-old will undergo a medical early next week.`\
 https://nytimes.com/athletic/6544930/2025/08/22/tyler-dibling-everton-transfer-southampton/
@@ -21,20 +37,4 @@ https://nytimes.com/2025/08/22/opinion/democrats-republicans-epstein.html
 **Who Is John Bolton, Trump’s Former National Security Adviser?**\
 `A Republican mainstay who served multiple presidents, Mr. Bolton has become a persistent Trump critic since leaving the White House.`\
 https://nytimes.com/2025/08/22/us/politics/john-bolton-trump-national-security-adviser.html
-
-**2026 World Cup draw to be held at Kennedy Center, President Trump announces**\
-`Trump made the announcement flanked by Vice President JD Vance and FIFA president Gianni Infantino in the Oval Office.`\
-https://nytimes.com/athletic/6569842/2025/08/22/world-cup-draw-kennedy-center-trump-infantino/
-
-**Revealed: Nuno's row with Edu at the heart of his Nottingham Forest unhappiness**\
-`A row between Nuno and Edu at Nottingham Forest has sparked recent discontent over the state of the club's squad`\
-https://nytimes.com/athletic/6569506/2025/08/22/nuno-edu-row-nottingham-forest/
-
-**Giants stock report: Jaxson Dart did all he could to ignite optimism**\
-`Who else saw their stock rise this preseason? Fellow rookies Abdul Carter and Marcus Mbow make the list alongside Dart. `\
-https://nytimes.com/athletic/6568934/2025/08/22/ny-giants-jaxson-dart-preseason/
-
-**Hoping to Jump-Start Talks, Canada to Drop Some Retaliatory Tariffs on U.S. Products**\
-`Canada’s leader said he would follow the United States in dropping tariffs against American goods covered by the existing free trade agreement.`\
-https://nytimes.com/2025/08/22/world/canada/canada-us-tariffs-drop-trump.html
 

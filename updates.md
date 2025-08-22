@@ -1,3 +1,11 @@
+**Everton close to Dibling agreement**\
+`Personal terms have been agreed in principle and, if all goes to plan, the 19-year-old will undergo a medical early next week.`\
+https://nytimes.com/athletic/6544930/2025/08/22/tyler-dibling-everton-transfer-southampton/
+
+**Covid Vaccine Opponent Tapped to Lead Federal Review Team**\
+`Panel members have been given a broad mandate, despite pleas from C.D.C. employees asking Robert F. Kennedy Jr. to stop spreading misinformation.`\
+https://nytimes.com/2025/08/22/health/covid-vaccines-rfk.html
+
 **13 New Songs You Need to Hear: Doja Cat, Laufey, Wolf Alice and More**\
 `Listen to tracks by Deftones, Lila Iké, Chance the Rappers and others.`\
 https://nytimes.com/2025/08/22/arts/music/playlist-doja-cat-laufey.html
