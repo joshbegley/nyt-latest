@@ -1,3 +1,7 @@
+**Man United 'bomb squad' 'not a good thing', players could still return says Amorim**\
+`Alejandro Garnacho, Antony, Jadon Sancho and Tyrell Malacia have trained separately from the rest of the first team squad this summer.`\
+https://nytimes.com/athletic/6569255/2025/08/22/manchester-united-transfer-bomb-squad-ruben-amorim/
+
 **Fantasy football news: 2 rookie running back soaring up draft lists**\
 `Andy Behrens spins the hot fantasy football topics emerging from NFL training camps, including TreVeyon Henderson Hype Week.`\
 https://nytimes.com/athletic/6568777/2025/08/22/fantasy-football-news-buzz-report/

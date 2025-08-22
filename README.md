@@ -1,3 +1,11 @@
+**Nuno says 'relationship has changed' with Forest owner Marinakis**\
+`The Forest head coach's comments come a week after he said the club have a “major problem” after the summer window.`\
+https://nytimes.com/athletic/6569287/2025/08/22/nuno-nottingham-forest-marinakis/
+
+**Emery: 'Still work to do' for Aston Villa in summer transfer window**\
+`Emery outlined his desire to have “two players in every position” but admitted more sales are not out of the question.`\
+https://nytimes.com/athletic/6569300/2025/08/22/unai-emery-aston-villa-transfer-window/
+
 **Man United 'bomb squad' 'not a good thing', players could still return says Amorim**\
 `Alejandro Garnacho, Antony, Jadon Sancho and Tyrell Malacia have trained separately from the rest of the first team squad this summer.`\
 https://nytimes.com/athletic/6569255/2025/08/22/manchester-united-transfer-bomb-squad-ruben-amorim/
@@ -10,7 +18,7 @@ https://nytimes.com/athletic/6568777/2025/08/22/fantasy-football-news-buzz-repor
 `The 25-year-old has been sidelined since suffering a knee injury against Crystal Palace in May.`\
 https://nytimes.com/athletic/6569109/2025/08/22/dejan-kulusevski-tottenham-injury-return/
 
-**Alexander Isak's brutal rejection of Newcastle causes confusion, irritation and discussion about how to react**\
+**Isak's brutal rejection of Newcastle causes confusion, irritation and discussion about how to react**\
 `Isak's determination to leave has caused turmoil inside Newcastle and among the fanbase. The question is how they react against Liverpool`\
 https://nytimes.com/athletic/6569097/2025/08/22/alexander-isak-newcastle-rejection/
 
@@ -29,12 +37,4 @@ https://nytimes.com/interactive/2025/08/22/magazine/uber-music-hodgman-quiz.html
 **F.B.I. Searches Maryland Home of John Bolton, Ex-Trump Adviser**\
 `An investigation seeks to determine whether Mr. Bolton illegally shared or possessed classified information, according to two people familiar with the case.`\
 https://nytimes.com/2025/08/22/us/politics/john-bolton-trump-home-fbi.html
-
-**‘No Meeting Planned’ Between Putin and Zelensky, Top Russian Diplomat Says**\
-`It was the clearest sign yet that President Trump’s push for an imminent summit was faltering.`\
-https://nytimes.com/2025/08/22/world/europe/putin-zelensky-meeting-russia-ukraine-summit.html
-
-**The Windup: Two big returns tonight**\
-`Welcome to The Windup, The Athletic's MLB newsletter.`\
-https://nytimes.com/athletic/6568908/2025/08/22/shane-bieber-blue-jays-debut-the-windup/
 

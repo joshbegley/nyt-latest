@@ -1,3 +1,7 @@
+**Man United 'bomb squad' 'not a good thing', players could still return says Amorim**\
+`Alejandro Garnacho, Antony, Jadon Sancho and Tyrell Malacia have trained separately from the rest of the first team squad this summer.`\
+https://nytimes.com/athletic/6569255/2025/08/22/manchester-united-transfer-bomb-squad-ruben-amorim/
+
 **Fantasy football news: 2 rookie running back soaring up draft lists**\
 `Andy Behrens spins the hot fantasy football topics emerging from NFL training camps, including TreVeyon Henderson Hype Week.`\
 https://nytimes.com/athletic/6568777/2025/08/22/fantasy-football-news-buzz-report/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/22/world/europe/putin-zelensky-meeting-russia-ukrain
 **The Windup: Two big returns tonight**\
 `Welcome to The Windup, The Athletic's MLB newsletter.`\
 https://nytimes.com/athletic/6568908/2025/08/22/shane-bieber-blue-jays-debut-the-windup/
-
-**Former Sri Lankan President Arrested on Corruption Charges**\
-`The ex-leader, Ranil Wickremesinghe, was arrested amid government investigations into widespread bribery and graft.`\
-https://nytimes.com/2025/08/22/world/asia/sri-lanka-ranil-wickremesinghe-arrested.html
 
