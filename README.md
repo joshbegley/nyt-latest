@@ -1,3 +1,23 @@
+**Need a snappy team name for fantasy football? Check these out.**\
+`From player name puns, to Taylor Swift references, we've got a fantasy handle for you.`\
+https://nytimes.com/athletic/6567645/2025/08/22/best-fun-fantasy-football-team-names-taylor-swift-puns/
+
+**U.N.-Backed Experts Confirm Situation in Gaza City as Famine**\
+`At least half a million residents in Gaza City and its surrounding areas are officially living under famine, according to a hunger monitoring group that the United Nations and international aid groups rely on for assessing global crises.`\
+https://nytimes.com/video/world/middleeast/100000010355470/famine-report-gaza-city-.html
+
+**A sleeper in Washington, a 'windfall' in Indy and more fantasy football spin from NFL camps**\
+`Michael Salfino identifies the latest NFL camp news impacting player values ahead of a busy fantasy football draft weekend.`\
+https://nytimes.com/athletic/6569401/2025/08/22/fantasy-football-nfl-camp-takeaways/
+
+**If Your Blow Dryer Brush Isn’t Working, You Probably Need to Clean It**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/wc-how-to-clean-blow-dryer-brush
+
+**Sharpening Your Knives Incorrectly Can Damage Their Blades. Here’s How to Do It Right.**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/wc-how-to-sharpen-knives
+
 **Scoop City: The new standard in Chicago**\
 `What's different about Ben Johnson, plus Caleb Williams, Cam Ward and Dillon Gabriel lead our players to watch this weekend.`\
 https://nytimes.com/athletic/6569629/2025/08/22/bears-ben-johnson-detail-dillon-gabriel-browns-scoop-city/
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/6569489/2025/08/22/commanders-training-camp-preseas
 **F.B.I. Raids John Bolton’s Home And Office**\
 `Federal agents raided John Bolton’s home in Maryland and office in Washington as part of an inquiry into whether President Trump’s former security advisor mishandled classified information.`\
 https://nytimes.com/video/us/politics/100000010355616/fbi-raids-john-boltons-home-and-office.html
-
-**Move Over, Mouse Ears: For Disney Adults, There’s a New Obsession**\
-`Tiny stuffed animals that use magnets to stay perched on your shoulder have become a must-have accessory for some theme park superfans.`\
-https://nytimes.com/2025/08/22/business/media/disney-shoulder-plush.html
-
-**Until Saturday: CFB's best team to watch**\
-`Until Saturday is The Athletic's free CFB newsletter.`\
-https://nytimes.com/athletic/6569582/2025/08/22/south-carolina-lanorris-sellers-until-saturday/
-
-**1991 Fleer Pro-Visions Michael Jordan #2: Our Sports Card of the Week**\
-`Artist Terry Smith's Fleer cards stood out in the early '90s.`\
-https://nytimes.com/athletic/6569450/2025/08/22/michael-jordan-fleer-space-card/
-
-**What to Know About Plague After a New Case in California**\
-`It is not just a scourge of the Middle Ages. Plague still exists, though it is rare. Here’s what to look for and how to protect yourself.`\
-https://nytimes.com/2025/08/22/health/california-plague-diagnosis-what-to-know.html
-
-**Red Lobster Is Betting on Black Diners With Its Brand Comeback**\
-`Are nostalgia, a new chief executive and seafood boil bags enough to save the seafood chain after more than 60 years?`\
-https://nytimes.com/2025/08/22/dining/red-lobster-comeback.html
 
