@@ -1,3 +1,15 @@
+**Powell Sends Strongest Signal Yet That Interest Rate Cuts Are Coming**\
+`Jerome H. Powell said the “balance of risks” across the economy had started to shift, raising the odds the central bank lowers borrowing costs at its next meeting in September.`\
+https://nytimes.com/2025/08/22/business/powell-speech-jackson-hole-fed-inflation.html
+
+**Was Head- Binding an Ancient Way to Get a Leg Up?**\
+`For some cultures, the practice of cranial deformation may have offered individuals a path to privilege later in their lives.`\
+https://nytimes.com/2025/08/22/science/anthropology-head-binding.html
+
+**Book Club: Read ‘Pride and Prejudice,’ by Jane Austen, With the Book Review**\
+`In September, the Book Review Book Club will read and discuss Jane Austen’s classic, about the tortured romance of two people frazzled by miscommunications and assumptions.`\
+https://nytimes.com/2025/08/22/books/review/pride-and-prejudice-jane-austen-book-club.html
+
 **British Government to Rescue Another Ailing Steel Maker**\
 `The move, which comes after a court-approved liquidation of Speciality Steel, is meant to preserve jobs and domestic manufacturing.`\
 https://nytimes.com/2025/08/22/business/britain-steel-takeover.html

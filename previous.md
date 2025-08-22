@@ -1,3 +1,15 @@
+**Powell Sends Strongest Signal Yet That Interest Rate Cuts Are Coming**\
+`Jerome H. Powell said the “balance of risks” across the economy had started to shift, raising the odds the central bank lowers borrowing costs at its next meeting in September.`\
+https://nytimes.com/2025/08/22/business/powell-speech-jackson-hole-fed-inflation.html
+
+**Was Head- Binding an Ancient Way to Get a Leg Up?**\
+`For some cultures, the practice of cranial deformation may have offered individuals a path to privilege later in their lives.`\
+https://nytimes.com/2025/08/22/science/anthropology-head-binding.html
+
+**Book Club: Read ‘Pride and Prejudice,’ by Jane Austen, With the Book Review**\
+`In September, the Book Review Book Club will read and discuss Jane Austen’s classic, about the tortured romance of two people frazzled by miscommunications and assumptions.`\
+https://nytimes.com/2025/08/22/books/review/pride-and-prejudice-jane-austen-book-club.html
+
 **British Government to Rescue Another Ailing Steel Maker**\
 `The move, which comes after a court-approved liquidation of Speciality Steel, is meant to preserve jobs and domestic manufacturing.`\
 https://nytimes.com/2025/08/22/business/britain-steel-takeover.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6568777/2025/08/22/fantasy-football-news-buzz-repor
 **Frank: Kulusevski's injury 'a longer one', no timeframe for return**\
 `The 25-year-old has been sidelined since suffering a knee injury against Crystal Palace in May.`\
 https://nytimes.com/athletic/6569109/2025/08/22/dejan-kulusevski-tottenham-injury-return/
-
-**Isak's brutal rejection of Newcastle causes confusion, irritation and discussion about how to react**\
-`Isak's determination to leave has caused turmoil inside Newcastle and among the fanbase. The question is how they react against Liverpool`\
-https://nytimes.com/athletic/6569097/2025/08/22/alexander-isak-newcastle-rejection/
-
-**Havertz set for further tests on knee injury**\
-`Arteta said additional tests were required for clarity on the "next steps" for the Germany international.`\
-https://nytimes.com/athletic/6564851/2025/08/22/kai-havertz-knee-injury-assessments-arsenal/
-
-**Members of Congress Seek to Expand Sports Diplomacy**\
-`With the United States hosting two sets of Olympic Games and the World Cup, lawmakers are pressing for the State Department to step up its sports diplomacy.`\
-https://nytimes.com/2025/08/22/us/politics/congress-olympics-sports-diplomacy.html
 

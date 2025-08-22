@@ -1,3 +1,7 @@
+**Malik Beasley not a target of federal gambling investigation, lawyer says**\
+`The 28-year-old was named as a person of interest in a federal gambling investigation related to gambling in late June. `\
+https://nytimes.com/athletic/6569233/2025/08/22/malik-beasley-gambling-investigation-latest-nba/
+
 **Powell Sends Strongest Signal Yet That Interest Rate Cuts Are Coming**\
 `Jerome H. Powell said the “balance of risks” across the economy had started to shift, raising the odds the central bank lowers borrowing costs at its next meeting in September.`\
 https://nytimes.com/2025/08/22/business/powell-speech-jackson-hole-fed-inflation.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6569255/2025/08/22/manchester-united-transfer-bomb-
 **Fantasy football news: 2 rookie running back soaring up draft lists**\
 `Andy Behrens spins the hot fantasy football topics emerging from NFL training camps, including TreVeyon Henderson Hype Week.`\
 https://nytimes.com/athletic/6568777/2025/08/22/fantasy-football-news-buzz-report/
-
-**Frank: Kulusevski's injury 'a longer one', no timeframe for return**\
-`The 25-year-old has been sidelined since suffering a knee injury against Crystal Palace in May.`\
-https://nytimes.com/athletic/6569109/2025/08/22/dejan-kulusevski-tottenham-injury-return/
 
