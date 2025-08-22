@@ -1,3 +1,7 @@
+**A Bear Walked Into an Ice Cream Parlor. The Strawberry Never Had a Chance.**\
+`The black bear, which the authorities named Fuzzy, caused little damage but cleaned out much of the inventory at a popular parlor on south shore of Lake Tahoe.`\
+https://nytimes.com/2025/08/22/us/bear-lake-tahoe-ice-cream-shop.html
+
 **Book Club: Let’s Discuss ‘Wild Dark Shore’**\
 `Charlotte McConaghy’s novel about one isolated family, a mysterious stranger and the secrets they all hold is just the thing for late summer.`\
 https://nytimes.com/2025/08/22/books/review/podcast-book-club-wild-dark-shore-charlotte-mcconaghy.html
