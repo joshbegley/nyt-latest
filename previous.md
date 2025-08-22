@@ -1,3 +1,11 @@
+**Cubs takeaways: Missed opportunity, starting pitching impresses, Kyle Tucker struggles in return**\
+`The offense once again failed the Cubs in their 4-1 loss Thursday to the Milwaukee Brewers.`\
+https://nytimes.com/athletic/6568378/2025/08/21/cubs-loss-brewers-kyle-tucker-struggles/
+
+**6 Men Are Killed in an Accident at a Colorado Dairy Farm**\
+`Fire crews discovered the men’s bodies on Wednesday at a farm near the town of Keenesburg, about 40 miles northeast of Denver, officials said.`\
+https://nytimes.com/2025/08/21/us/colorado-dairy-farm-deaths.html
+
 **Keegan Bradley: 'I'm more worried about the Ryder Cup than my game'**\
 `Bradley is 11th in the standings, the same position he was in when Zach Johnson passed him over for Rome two years ago.`\
 https://nytimes.com/athletic/6568496/2025/08/21/ryder-cup-2025-keegan-bradley-captain-pick/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/08/21/us/kristi-noem-spending-contracts-homeland-securi
 **U.S. Kills Islamic State Operative in Rare Raid in Syria**\
 `The Pentagon provided few details about the operation. But counterterrorism raids — as opposed to airstrikes — typically involve helicopter-borne commandos.`\
 https://nytimes.com/2025/08/21/us/politics/islamic-state-us-raid-syria.html
-
-**Jones on Parsons contract: 'We've got this deal resolved in my mind'**\
-`Jerry Jones said when they sent the Micah Parsons contract details over, “the agent told us to stick it up our ass.”`\
-https://nytimes.com/athletic/6568347/2025/08/21/cowboys-jerry-jones-micah-parsons-contract/
-
-**Taking on the Fed, Trump Combines Retribution Tactics With a Power Play**\
-`The president’s second term has been marked by his eagerness to go after his foes and his assertions of presidential authority. Both traits are on display as he seeks control over the central bank.`\
-https://nytimes.com/2025/08/21/us/politics/trump-fed-federal-reserve.html
 

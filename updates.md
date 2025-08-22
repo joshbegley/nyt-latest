@@ -1,3 +1,11 @@
+**Cubs takeaways: Missed opportunity, starting pitching impresses, Kyle Tucker struggles in return**\
+`The offense once again failed the Cubs in their 4-1 loss Thursday to the Milwaukee Brewers.`\
+https://nytimes.com/athletic/6568378/2025/08/21/cubs-loss-brewers-kyle-tucker-struggles/
+
+**6 Men Are Killed in an Accident at a Colorado Dairy Farm**\
+`Fire crews discovered the men’s bodies on Wednesday at a farm near the town of Keenesburg, about 40 miles northeast of Denver, officials said.`\
+https://nytimes.com/2025/08/21/us/colorado-dairy-farm-deaths.html
+
 **Keegan Bradley: 'I'm more worried about the Ryder Cup than my game'**\
 `Bradley is 11th in the standings, the same position he was in when Zach Johnson passed him over for Rome two years ago.`\
 https://nytimes.com/athletic/6568496/2025/08/21/ryder-cup-2025-keegan-bradley-captain-pick/
