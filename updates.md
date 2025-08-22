@@ -1,3 +1,11 @@
+**California Lawmakers Approve Plan to Counter Texas Redistricting**\
+`On Thursday, lawmakers in Sacramento approved a sweeping plan to elect more Democrats by redrawing congressional districts. This would counter the gerrymandered map that Republicans in Texas passed earlier the same day.`\
+https://nytimes.com/video/us/politics/100000010354945/california-votes-redistricting-gerrymandering.html
+
+**Steelers 1st-round pick Derrick Harmon carted off field after knee injury in preseason game**\
+`As Harmon fell to the turf, he appeared to twist his knee.`\
+https://nytimes.com/athletic/6568572/2025/08/21/steelers-derrick-harmon-carted-off-field-knee-injury-preseason/
+
 **Dodger Details: A disappointing split in Denver, the left-field problem and more**\
 `An exhilarating sweep of the Padres was immediately followed by a dud and a split to the 37-win Rockies.`\
 https://nytimes.com/athletic/6568454/2025/08/21/dodger-details-rockies-split-left-field-michael-conforto/

@@ -1,3 +1,7 @@
+**Trump Budget Office Is Withholding H.I.V. Funds That Congress Appropriated**\
+`Lawmakers allocated $6 billion this fiscal year for PEPFAR, the H.I.V. prevention and treatment program, but the administration has indicated it will release less than half of that.`\
+https://nytimes.com/2025/08/21/health/hiv-aids-pepfar-funding-trump.html
+
 **California Lawmakers Approve Plan to Counter Texas Redistricting**\
 `On Thursday, lawmakers in Sacramento approved a sweeping plan to elect more Democrats by redrawing congressional districts. This would counter the gerrymandered map that Republicans in Texas passed earlier the same day.`\
 https://nytimes.com/video/us/politics/100000010354945/california-votes-redistricting-gerrymandering.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6568447/2025/08/21/mets-cant-shake-funk-series-loss
 **‘Flying Blind’: Trump Strips Government of Expertise at a High-Stakes Moment**\
 `President Trump has few sources of independent advice just as he is trying to broker an end to the Russian invasion of Ukraine, perhaps the trickiest negotiation of his presidency.`\
 https://nytimes.com/2025/08/21/us/politics/trump-government-expertise.html
-
-**Colorado Park Ranger Falsely Reported That Attacker Stabbed Him, Officials Say**\
-`In fact, the Jefferson County Sheriff’s Office said Thursday, the ranger had injured himself and orchestrated an “elaborate hoax” claiming someone had attacked him and fled.`\
-https://nytimes.com/2025/08/21/us/colorado-park-ranger-stabbed-hoax.html
 
