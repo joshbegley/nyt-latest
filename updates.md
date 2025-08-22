@@ -1,3 +1,7 @@
+**Malik Beasley not a target of federal gambling investigation, lawyer says**\
+`The 28-year-old was named as a person of interest in a federal gambling investigation related to gambling in late June. `\
+https://nytimes.com/athletic/6569233/2025/08/22/malik-beasley-gambling-investigation-latest-nba/
+
 **Powell Sends Strongest Signal Yet That Interest Rate Cuts Are Coming**\
 `Jerome H. Powell said the “balance of risks” across the economy had started to shift, raising the odds the central bank lowers borrowing costs at its next meeting in September.`\
 https://nytimes.com/2025/08/22/business/powell-speech-jackson-hole-fed-inflation.html
