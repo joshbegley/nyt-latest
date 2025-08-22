@@ -1,3 +1,7 @@
+**The brothers’ case has been a reckoning for the 1990s.**\
+`By Tim Arango`\
+https://nytimes.com/live/2025/08/21/us/menendez-brothers-parole-hearing/the-brothers-case-has-been-a-reckoning-for-the-1990s
+
 **Large Earthquake Strikes Drake Passage Near Argentina and Chile**\
 `The epicenter of the 7.5-magnitude earthquake was in the Drake Passage, a body of water between the southernmost tip of South America and Antarctica.`\
 https://nytimes.com/2025/08/21/world/americas/argentina-earthquake-drake-passage.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/21/arts/design/smithsonian-trump.html
 **‘Twelfth Night’ Review: Lupita Nyong’o in Illyria**\
 `The actress is luminous, alongside her look-alike brother Junior Nyong’o, Sandra Oh and Peter Dinklage, in Shakespeare’s comedy at the newly revived Delacorte Theater.`\
 https://nytimes.com/2025/08/21/theater/twelfth-night-review-lupita-nyongo-in-illyria.html
-
-**Kite-Flying Weather**\
-`Gia Bosko offers us a wide open Friday grid.`\
-https://nytimes.com/2025/08/21/crosswords/daily-puzzle-2025-08-22.html
 

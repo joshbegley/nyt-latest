@@ -1,3 +1,15 @@
+**Large Earthquake Strikes Drake Passage Near Argentina and Chile**\
+`The epicenter of the 7.5-magnitude earthquake was in the Drake Passage, a body of water between the southernmost tip of South America and Antarctica.`\
+https://nytimes.com/2025/08/21/world/americas/argentina-earthquake-drake-passage.html
+
+**Thai Court to Rule Whether Thaksin, Former Premier, Insulted Monarchy**\
+`Thaksin Shinawatra, who has long jostled for power with Thailand’s military-royalist establishment, faces up to 15 years in prison.`\
+https://nytimes.com/2025/08/21/world/asia/thailand-thaksin-royal-insult.html
+
+**Wildfire Forces Evacuations in Napa County in California**\
+`The Pickett fire spread across more than 1,100 acres on Thursday, threatening the city of Calistoga and nearby vineyards.`\
+https://nytimes.com/2025/08/21/us/pickett-fire-calistoga-napa-county.html
+
 **Final Giants 53-man roster projection: Has fan favorite Greg Dulcich earned a spot?**\
 `The Giants must trim their roster to 53 players by Tuesday evening. They have some tough decisions to make. `\
 https://nytimes.com/athletic/6567596/2025/08/21/ny-giants-roster-projection-53-greg-dulcich/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/08/21/theater/twelfth-night-review-lupita-nyongo-in-ill
 **Kite-Flying Weather**\
 `Gia Bosko offers us a wide open Friday grid.`\
 https://nytimes.com/2025/08/21/crosswords/daily-puzzle-2025-08-22.html
-
-**Judge Orders That ‘Alligator Alcatraz’ Detention Center Be Shut Down for Now**\
-`A judge ruled that the state and federal governments acted illegally by not conducting an environmental review before building the center in the Florida Everglades.`\
-https://nytimes.com/2025/08/21/us/alligator-alcatraz-florida-ruling.html
-
-**Erik Menendez was questioned about illicit cellphone use inside the prison.**\
-`By Tim Arango and Matt Stevens`\
-https://nytimes.com/live/2025/08/21/us/menendez-brothers-parole-hearing/erik-menendez-was-questioned-about-illicit-cellphone-use-inside-the-prison
-
-**‘I was not raised with a moral foundation,’ Erik Menendez told the parole board.**\
-`By Matt Stevens and Tim Arango`\
-https://nytimes.com/live/2025/08/21/us/menendez-brothers-parole-hearing/i-was-not-raised-with-a-moral-foundation-erik-menendez-told-the-parole-board
 
