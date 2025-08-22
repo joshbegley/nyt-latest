@@ -1,41 +1,40 @@
-**Ipswich reach agreement with Leicester to sign McAteer**\
-`The deal for the 23-year-old is worth £12m guaranteed over three years plus add-ons.
-`\
-https://nytimes.com/athletic/6568974/2025/08/22/ipswich-kasey-mcateer-transfer-leicester/
+**Preseason waiver wire: Ollie Gordon, Troy Franklin and more players to add now — before the Week 2 rush**\
+`John Laghezza gives his way-too-early Week 0 waiver wire targets ahead of the kickoff of the 2025 NFL regular season. `\
+https://nytimes.com/athletic/6567712/2025/08/22/fantasy-football-early-waiver-wire-ollie-gordon/
 
-**Pair of Immigration Raids Disrupt a New Jersey Shipping Hub**\
-`In Edison, thousands of immigrant workers toil in hundreds of warehouses, sorting millions of boxes arriving from nearby ports.`\
-https://nytimes.com/2025/08/22/nyregion/immigration-raids-edison-new-jersey.html
+**MAHA Is a Bad Answer to a Good Question**\
+`Rachael Bedard and David Wallace-Wells on Covid disillusionment and the rise of the MAHA movement.`\
+https://nytimes.com/2025/08/22/opinion/ezra-klein-podcast-rachael-bedard-david-wallace-wells.html
 
-**For Two or Three Days, a Surfer’s Paradise in New York City**\
-`Thanks to Hurricane Erin, conditions are ideal for the urban surfer: giant waves and no swimmers.`\
-https://nytimes.com/2025/08/22/nyregion/long-island-surf-waves-hurricane-erin.html
+**A Simple Plan to Prepare for Disasters**\
+`Having long, medium and short term goals can help ease your mind.`\
+https://nytimes.com/2025/08/22/well/disaster-plan-prep-hurricane-fire.html
 
-**A Homecoming, of Sorts, to a Place Where Bears Run Wild**\
-`A reporter visiting Romania, where she was born, found that humans’ ancient relationship with bears there had fallen out of balance.`\
-https://nytimes.com/2025/08/22/insider/romania-bears-real-estate.html
+**Year Will End With 300,000 Fewer Federal Workers, Trump Official Says**\
+`The reduction would be the largest single-year decline in civilian federal employment since World War II.`\
+https://nytimes.com/2025/08/22/us/politics/trump-federal-workers.html
 
-**Robert Moses Tore the South Bronx in Half. Is It About to Happen Again?**\
-`It took decades for the Bronx to recover after the Cross Bronx Expressway was built. With years of repairs on the horizon, some residents worry about new trauma.`\
-https://nytimes.com/2025/08/22/nyregion/south-bronx-park-expressway.html
+**How Trump Leans on Emergency Declarations to Bypass Congress and Skirt Regulations**\
+`The president has declared 10 emergencies since returning to office, far outpacing what is typical. He has used them to justify hundreds of actions.`\
+https://nytimes.com/interactive/2025/08/22/us/politics/trump-emergency-immigration-tariffs-crime.html
 
-**5 Classical Music Albums You Can Listen to Right Now**\
-`The male soprano Samuel Mariño’s “Lumina,” a suite from Thomas Adès’s “The Tempest” and Ginastera’s string quartets are among the highlights.`\
-https://nytimes.com/2025/08/22/arts/music/classical-music-albums-august.html
+**4 Takeaways From Erik Menendez’s Parole Board Hearing**\
+`Lyle Menendez has his hearing Friday. Several of the concerns raised in denying parole to Erik suggest Lyle faces considerable hurdles in his own bid for release.`\
+https://nytimes.com/2025/08/22/us/takeaways-menendez-brothers-parole.html
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2025/08/22/crosswords/spelling-bee-forum.html
+**Hollywood’s Newest Formula for Success: Rereleasing Old Movies**\
+`The multiplex is awash in titles that are 15, 20, even 60 years old. Nostalgia is a factor but economics play a big part, too.`\
+https://nytimes.com/2025/08/22/movies/rereleases-black-swan-jaws-casper.html
 
-**Another Crystal Palace milestone overshadowed**\
-`A first major European victory should have brought great joy to Selhurst - instead regret and concern lingers at Crystal Palace`\
-https://nytimes.com/athletic/6565773/2025/08/22/crystal-palace-eze-glasner-parish-transfers/
+**Trump’s Attacks on Institutions Threaten a Bulwark of Economic Strength**\
+`The president’s efforts to control the Federal Reserve and Bureau of Labor Statistics carry risks. But collectively, the moves could be even more damaging, economists warn.`\
+https://nytimes.com/2025/08/22/business/trump-federal-reserve-bls.html
 
-**FPL live Q&A: Gameweek Two advice from Ben Dinnery**\
-`It’s time to dust off your Gameweek One mishaps and get your FPL team in working order for the next set of Premier League fixtures`\
-https://nytimes.com/athletic/6568418/2025/08/22/fantasy-premier-league-live-qa-gameweek-two-advice-from-ben-dinnery/
+**‘KPop Demon Hunters’ Has Everyone Bobbing Their Heads. Especially Parents.**\
+`Some parents are reliving a golden era of boy bands and girl groups — “but now I’m handing out juice boxes instead of dancing like a rave with a glow stick,” one said.`\
+https://nytimes.com/2025/08/22/arts/kpop-demon-hunters-netflix.html
 
-**Word of the Day: gulag**\
-`This word has appeared in 43 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2025/08/22/learning/word-of-the-day-gulag.html
+**Earl Sweatshirt Turned the Hype Down. Now He Can ‘Live, Laugh, Love.’**\
+`The cult rapper, who broke out at 16 as a member of Odd Future, spoke with Popcast about cutting his own path around fame and into fatherhood.`\
+https://nytimes.com/2025/08/22/arts/music/earl-sweatshirt-interview-popcast.html
 
