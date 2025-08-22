@@ -10,12 +10,12 @@ https://nytimes.com/live/2025/08/21/us/menendez-brothers-parole-hearing/the-brot
 `The epicenter of the 7.5-magnitude quake was in the Drake Passage, a body of water between the southernmost tip of South America and Antarctica.`\
 https://nytimes.com/2025/08/21/world/americas/argentina-earthquake-drake-passage.html
 
-**Thai Court to Rule Whether Thaksin, Former Premier, Insulted Monarchy**\
-`Thaksin Shinawatra, who has long jostled for power with Thailand’s military-royalist establishment, faces up to 15 years in prison.`\
+**Thaksin, Former Thai Premier, Cleared of Insulting Nation’s Monarchy**\
+`But the reprieve for Thaksin Shinawatra, who remains a political force, did not mean that the legal troubles for him and his family were over.`\
 https://nytimes.com/2025/08/21/world/asia/thailand-thaksin-royal-insult.html
 
 **Wildfire Forces Evacuations in Napa County in California**\
-`The Pickett fire spread across more than 1,100 acres on Thursday, threatening the city of Calistoga and nearby vineyards.`\
+`The Pickett fire spread across more than 1,000 acres on Thursday, threatening the city of Calistoga and nearby vineyards.`\
 https://nytimes.com/2025/08/21/us/pickett-fire-calistoga-napa-county.html
 
 **Final Giants 53-man roster projection: Has fan favorite Greg Dulcich earned a spot?**\

@@ -1,3 +1,11 @@
+**Thaksin, Former Thai Premier, Cleared of Insulting Nation’s Monarchy**\
+`But the reprieve for Thaksin Shinawatra, who remains a political force, did not mean that the legal troubles for him and his family were over.`\
+https://nytimes.com/2025/08/21/world/asia/thailand-thaksin-royal-insult.html
+
+**Wildfire Forces Evacuations in Napa County in California**\
+`The Pickett fire spread across more than 1,000 acres on Thursday, threatening the city of Calistoga and nearby vineyards.`\
+https://nytimes.com/2025/08/21/us/pickett-fire-calistoga-napa-county.html
+
 **Map: 7.5-Magnitude Earthquake Strikes the South Atlantic Ocean**\
 `View the location of the quake’s epicenter and shake area.`\
 https://nytimes.com/interactive/2025/08/21/world/americas/earthquake-drake-passage.html

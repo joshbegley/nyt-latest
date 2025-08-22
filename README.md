@@ -1,40 +1,40 @@
-**Map: 7.5-Magnitude Earthquake Strikes the South Atlantic Ocean**\
-`View the location of the quake’s epicenter and shake area.`\
-https://nytimes.com/interactive/2025/08/21/world/americas/earthquake-drake-passage.html
+**Vuelta a Espana 2025 preview: Riders to watch, key stages and more**\
+`Home to unpredictable and aggressive racing and steep climbs, The Vuelta has a unique place in the cycling calendar`\
+https://nytimes.com/athletic/6566610/2025/08/22/vuelta-a-espana-2025-preview/
 
-**The brothers’ case has been a reckoning for the 1990s.**\
-`By Tim Arango`\
-https://nytimes.com/live/2025/08/21/us/menendez-brothers-parole-hearing/the-brothers-case-has-been-a-reckoning-for-the-1990s
+**Corrections: Aug. 22, 2025**\
+`Corrections that appeared in print on Friday, Aug. 22, 2025.`\
+https://nytimes.com/2025/08/22/pageoneplus/corrections-aug-22-2025.html
 
-**Powerful Earthquake Strikes Near Argentina and Chile**\
-`The epicenter of the 7.5-magnitude quake was in the Drake Passage, a body of water between the southernmost tip of South America and Antarctica.`\
-https://nytimes.com/2025/08/21/world/americas/argentina-earthquake-drake-passage.html
+**Welcoming My First Marriage Into My Second**\
+`Is it better to bury memories of past relationships, or embrace them?`\
+https://nytimes.com/2025/08/22/style/modern-love-welcoming-my-first-marriage-into-my-second.html
 
-**Thaksin, Former Thai Premier, Cleared of Insulting Nation’s Monarchy**\
-`But the reprieve for Thaksin Shinawatra, who remains a political force, did not mean that the legal troubles for him and his family were over.`\
-https://nytimes.com/2025/08/21/world/asia/thailand-thaksin-royal-insult.html
+**The Sisterhood of the Cape Cod Wedding Dress**\
+`Eleanor Conroy was the eighth bride in her family to wear her grandmother’s A-line silk gown when she married her childhood crush, Christopher Aitken.`\
+https://nytimes.com/2025/08/22/style/eleanor-conroy-christopher-aitken-wedding.html
 
-**Wildfire Forces Evacuations in Napa County in California**\
-`The Pickett fire spread across more than 1,000 acres on Thursday, threatening the city of Calistoga and nearby vineyards.`\
-https://nytimes.com/2025/08/21/us/pickett-fire-calistoga-napa-county.html
+**When Two Opposites Have So Much in Common**\
+`Jaeyeon Kim wasn’t looking for anything serious last year. She was busy touring as a singer and still hurting from a previous breakup. Then she met Andrew Hong.`\
+https://nytimes.com/2025/08/22/style/jaeyeon-kim-andrew-hong-wedding.html
 
-**Final Giants 53-man roster projection: Has fan favorite Greg Dulcich earned a spot?**\
-`The Giants must trim their roster to 53 players by Tuesday evening. They have some tough decisions to make. `\
-https://nytimes.com/athletic/6567596/2025/08/21/ny-giants-roster-projection-53-greg-dulcich/
+**She Asked for a Marriage Plan. His ‘Board of Directors’ Approved.**\
+`When Jenelle Hamilton first met Bart Williams, she made her intentions clear: she was dating for marriage. Two years later, he proposed his own plan for their future.`\
+https://nytimes.com/2025/08/22/style/jenelle-hamilton-bart-williams-wedding.html
 
-**Giants takeaways: The season series with the Padres has been a total whiff**\
-`What Luis Matos could offer in a bigger role, how Justin Verlander is getting tested and who had the team's fastest pitch this season.`\
-https://nytimes.com/athletic/6568732/2025/08/21/sf-giants-strikeouts-justin-verlander/
+**After He Proposed, 19 Friends Lost Their Bet**\
+`When they met on a dating app three years ago, Stefanie Manisero and John Avanzino had been single for a while. Both were uncertain whether they would ever marry.`\
+https://nytimes.com/2025/08/22/style/stefanie-manisero-john-avanzino-wedding.html
 
-**‘You have not been a model prisoner,’ parole commissioner says in denial.**\
-`By Matt Stevens and Tim Arango`\
-https://nytimes.com/live/2025/08/21/us/menendez-brothers-parole-hearing/you-have-not-been-a-model-prisoner-parole-commissioner-says-in-denial
+**A Simple Favor Turned Her ‘Hot Neighbor’ Into Her Husband**\
+`Olivia Schreiber and Kyle Shaub lived one floor away from each other in a West Village building. When they saw each other in the elevator, sparks flew.`\
+https://nytimes.com/2025/08/22/style/olivia-schreiber-kyle-shaub-wedding.html
 
-**After being denied parole, Erik Menendez still has other pathways to freedom.**\
-`One legal avenue the Menendez brothers have pursued remains open to them: a habeas petition, which is a vehicle for challenging unlawful detentions.`\
-https://nytimes.com/2025/08/21/us/erik-menendez-parole-release-habeas.html
+**Connections: Sports Edition Coach: Hints for Aug. 22, 2025**\
+`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
+https://nytimes.com/athletic/6566855/2025/08/22/connections-sports-edition-hints-for-aug-22-2025/
 
-**White House Lists Smithsonian Exhibits It Finds Objectionable**\
-`The Trump administration highlighted material dealing with topics like sexuality, slavery and immigration.`\
-https://nytimes.com/2025/08/21/arts/design/smithsonian-trump.html
+**‘Eenie Meanie’ Review: Road Rage**\
+`This heist movie features Samara Weaving as a getaway driver with an unruly ex-boyfriend who owes a local kingpin serious cash.`\
+https://nytimes.com/2025/08/22/movies/eenie-meanie-review.html
 
