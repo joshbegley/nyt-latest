@@ -1,3 +1,15 @@
+**Nuno says 'relationship has changed' with Forest owner Marinakis**\
+`The Forest head coach's comments come a week after he said the club have a “major problem” after the summer window.`\
+https://nytimes.com/athletic/6569287/2025/08/22/nuno-nottingham-forest-marinakis/
+
+**Emery: 'Still work to do' for Aston Villa in summer transfer window**\
+`Emery outlined his desire to have “two players in every position” but admitted more sales are not out of the question.`\
+https://nytimes.com/athletic/6569300/2025/08/22/unai-emery-aston-villa-transfer-window/
+
+**Isak's brutal rejection of Newcastle causes confusion, irritation and discussion about how to react**\
+`Isak's determination to leave has caused turmoil inside Newcastle and among the fanbase. The question is how they react against Liverpool`\
+https://nytimes.com/athletic/6569097/2025/08/22/alexander-isak-newcastle-rejection/
+
 **Man United 'bomb squad' 'not a good thing', players could still return says Amorim**\
 `Alejandro Garnacho, Antony, Jadon Sancho and Tyrell Malacia have trained separately from the rest of the first team squad this summer.`\
 https://nytimes.com/athletic/6569255/2025/08/22/manchester-united-transfer-bomb-squad-ruben-amorim/
