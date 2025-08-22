@@ -1,3 +1,7 @@
+**Trump Names His Personnel Chief as Ambassador to India**\
+`As head of presidential personnel appointments, Sergio Gor placed thousands of people across government, the president said.`\
+https://nytimes.com/2025/08/22/us/politics/sergio-gor-ambassador-india.html
+
 **Craig Kimbrel joins Astros bullpen just as they lose another key arm**\
 `The nine-time All-Star closer is preparing to play for his ninth team. "It's a tremendous ballclub with a lot of talent," Kimbrel said.`\
 https://nytimes.com/athletic/6570142/2025/08/22/craig-kimbrel-astros-bennett-sousa-injured-list/

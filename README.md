@@ -1,3 +1,7 @@
+**With Close Associates Under Fire, Mayor Adams Remains Defiant**\
+`Mayor Eric Adams defended his administration and his re-election bid on Friday amid corruption charges against some of his closest allies.`\
+https://nytimes.com/2025/08/22/nyregion/with-close-associates-under-fire-mayor-adams-remains-defiant.html
+
 **Craig Kimbrel joins Astros bullpen just as they lose another key arm**\
 `The nine-time All-Star closer is preparing to play for his ninth team. "It's a tremendous ballclub with a lot of talent," Kimbrel said.`\
 https://nytimes.com/athletic/6570142/2025/08/22/craig-kimbrel-astros-bennett-sousa-injured-list/
@@ -27,14 +31,10 @@ https://nytimes.com/2025/08/22/briefing/fbi-searched-home-of-john-bolton-a-forme
 https://nytimes.com/athletic/6570180/2025/08/22/alexander-zverev-us-open-therapy-comments/
 
 **Warships From the ‘Gringo Empire’ Move Close, but Many Venezuelans Shrug**\
-`Past experience has left some people skeptical that political change in Venezuela will come from the outside.`\
+`President Nicolás Maduro said Venezuela would not back down while facing a U.S. naval buildup. But many in the country doubt a confrontation will come at all.`\
 https://nytimes.com/2025/08/22/world/americas/trump-venezuela-maduro-regime-change.html
 
 **Trump and Infantino kick off the MAGA World Cup with draw slated for DC**\
 `Friday's World Cup draw announcement set the tone for a World Cup that promises a consistently political theme.`\
 https://nytimes.com/athletic/6570248/2025/08/22/trump-infantino-maga-world-cup-dc/
-
-**Ron Turcotte, Who Rode Secretariat to the Triple Crown, Dies at 84**\
-`With Turcotte in the saddle, Secretariat powered to victory in the Kentucky Derby and the Preakness in 1973 and then demolished the competition in the Belmont Stakes.`\
-https://nytimes.com/2025/08/22/sports/horse-racing/ron-turcotte-dead.html
 
