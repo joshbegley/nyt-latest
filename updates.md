@@ -1,3 +1,7 @@
+**Book Club: Let’s Discuss ‘Wild Dark Shore’**\
+`Charlotte McConaghy’s novel about one isolated family, a mysterious stranger and the secrets they all hold is just the thing for late summer.`\
+https://nytimes.com/2025/08/22/books/review/podcast-book-club-wild-dark-shore-charlotte-mcconaghy.html
+
 **The Best School Supplies, According to 100 Kids**\
 `Text by Ellen Lee`\
 https://nytimes.com/card/2025/08/22/smarter-living/wirecutter/
