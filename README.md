@@ -1,6 +1,10 @@
+**Wyoming Man Accused of Torturing Wolf Is Charged With Animal Cruelty**\
+`Video of the wolf on a leash in a bar prompted outrage. A sheriff’s department investigation stalled, but more than a year later, a grand jury indicted a man on a felony count.`\
+https://nytimes.com/2025/08/22/us/wyoming-wolf-killed-snowmobile-animal-cruelty.html
+
 **Trump Threatens to Fire Fed Governor, Escalating Pressure on Central Bank**\
 `President Trump said he would fire Lisa Cook, a Federal Reserve governor, if she did not resign. But his ability to fire a Fed governor is limited.`\
-https://nytimes.com/2025/08/22/business/trump-threatens-to-fire-fed-governor-escalating-pressure-on-central-bank.html
+https://nytimes.com/2025/08/22/business/trump-lisa-cook-federal-reserve-governor.html
 
 **Malik Beasley not a target of federal gambling investigation, lawyer says**\
 `The 28-year-old was named as a person of interest in a federal gambling investigation related to gambling in late June. `\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6569287/2025/08/22/nuno-nottingham-forest-marinakis
 **Emery: 'Still work to do' for Aston Villa in summer transfer window**\
 `Emery outlined his desire to have “two players in every position” but admitted more sales are not out of the question.`\
 https://nytimes.com/athletic/6569300/2025/08/22/unai-emery-aston-villa-transfer-window/
-
-**Man United 'bomb squad' 'not a good thing', players could still return says Amorim**\
-`Alejandro Garnacho, Antony, Jadon Sancho and Tyrell Malacia have trained separately from the rest of the first team squad this summer.`\
-https://nytimes.com/athletic/6569255/2025/08/22/manchester-united-transfer-bomb-squad-ruben-amorim/
 
