@@ -1,5 +1,17 @@
+**The biggest reason the Giants couldn't stay in the postseason race**\
+`Giants' hitters have performed as expected or worse than expected. The lack of breakout seasons has really hurt their playoff hopes.`\
+https://nytimes.com/athletic/6568081/2025/08/22/sf-giants-team-weakness-postseason-race/
+
+**Justice Dept. Gives Congress Some Subpoenaed Epstein Files**\
+`The G.O.P. chairman of a key House panel was forced to issue the subpoena after a few Republicans banded together with Democrats to push it through.`\
+https://nytimes.com/2025/08/22/us/politics/house-subpoena-epstein-files.html
+
+**Kennedy Center Fires Dance Director After Questions About Programming**\
+`The president of the arts center cited the TV show “So You Think You Can Dance” as the type of programming that could be more broadly appealing to audiences.`\
+https://nytimes.com/2025/08/22/arts/dance/kennedy-center-dance-jane-raleigh.html
+
 **Trump’s Revenge Campaign, Live on Morning TV**\
-`The recent F.B.I. raid on John Bolton’s home makes clear that President Trump is perverting the justice system to intimidate his critics.`\
+`The recent F.B.I. search of John Bolton’s home makes clear that President Trump is perverting the justice system to intimidate his critics.`\
 https://nytimes.com/2025/08/22/opinion/trump-john-bolton-raid.html
 
 **Trump Revels in a ‘Nice’ Gesture From Putin**\
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6570039/2025/08/22/jefferson-wooden-diamond-league-
 **Two-time Olympic ski champion Eileen Gu hurt while training in New Zealand**\
 `In a social media post, Gu hinted at the possibility of an overzealous fan disrupting her while training. `\
 https://nytimes.com/athletic/6569901/2025/08/22/olympic-ski-eileen-gu-injury-training/
-
-**How Redistricting Wars Could Give the G.O.P. Up to 7 Seats**\
-`As a handful of states have made moves and begun discussing redrawing their maps, here’s what’s at stake.`\
-https://nytimes.com/2025/08/22/us/redistricting-gerrymandering-texas-california-stakes.html
-
-**Tiébilé Dramé, Voice for Rights in Mali, Is Dead at 70**\
-`A former foreign minister, he founded an opposition political party and then served in the government as an unflagging negotiator with northern rebels.`\
-https://nytimes.com/2025/08/22/world/africa/tiebile-drame-dead.html
-
-**Hendon Hooker and the Detroit Lions who will impact final roster decisions the most**\
-`While all eyes are on Hooker, Jackson Meeks, Mekhi Wingo and others make interesting cases as roster cuts loom.`\
-https://nytimes.com/athletic/6569563/2025/08/22/detroit-lions-roster-preseason-hendon-hooker/
 
