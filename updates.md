@@ -1,3 +1,7 @@
+**Trump’s Revenge Campaign, Live on Morning TV**\
+`The recent F.B.I. raid on John Bolton’s home makes clear that President Trump is perverting the justice system to intimidate his critics.`\
+https://nytimes.com/2025/08/22/opinion/trump-john-bolton-raid.html
+
 **Trump Revels in a ‘Nice’ Gesture From Putin**\
 `The Russian president sent his American counterpart a photograph of the two of them from their face-to-face meeting.`\
 https://nytimes.com/2025/08/22/us/politics/trump-putin-photo.html
