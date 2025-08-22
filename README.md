@@ -1,3 +1,27 @@
+**Pair of Immigration Raids Disrupt a New Jersey Shipping Hub**\
+`In Edison, thousands of immigrant workers toil in hundreds of warehouses, sorting millions of boxes arriving from nearby ports.`\
+https://nytimes.com/2025/08/22/nyregion/immigration-raids-edison-new-jersey.html
+
+**For Two or Three Days, a Surfer’s Paradise in New York City**\
+`Thanks to Hurricane Erin, conditions are ideal for the urban surfer: giant waves and no swimmers.`\
+https://nytimes.com/2025/08/22/nyregion/long-island-surf-waves-hurricane-erin.html
+
+**A Homecoming, of Sorts, to a Place Where Bears Run Wild**\
+`A reporter visiting Romania, where she was born, found that humans’ ancient relationship with bears there had fallen out of balance.`\
+https://nytimes.com/2025/08/22/insider/romania-bears-real-estate.html
+
+**Robert Moses Tore the South Bronx in Half. Is It About to Happen Again?**\
+`It took decades for the Bronx to recover after the Cross Bronx Expressway was built. With years of repairs on the horizon, some residents worry about new trauma.`\
+https://nytimes.com/2025/08/22/nyregion/south-bronx-park-expressway.html
+
+**5 Classical Music Albums You Can Listen to Right Now**\
+`The male soprano Samuel Mariño’s “Lumina,” a suite from Thomas Adès’s “The Tempest” and Ginastera’s string quartets are among the highlights.`\
+https://nytimes.com/2025/08/22/arts/music/classical-music-albums-august.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/08/22/crosswords/spelling-bee-forum.html
+
 **Another Crystal Palace milestone overshadowed**\
 `A first major European victory should have brought great joy to Selhurst - instead regret and concern lingers at Crystal Palace`\
 https://nytimes.com/athletic/6565773/2025/08/22/crystal-palace-eze-glasner-parish-transfers/
@@ -13,28 +37,4 @@ https://nytimes.com/2025/08/22/learning/word-of-the-day-gulag.html
 **The New York Times in Print for Friday, Aug. 22, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/08/22/todays-new-york-times
-
-**Dukes, cows, and the 'grimy' craftsmanship behind the cricket ball**\
-`Dukes, now based in a factory in east London, have been manufacturing cricket balls used in Test cricket in England since the 1760s`\
-https://nytimes.com/athletic/6560094/2025/08/22/cricket-ball-dukes-cow-science/
-
-**Friday Briefing: U.S. and Europe Flesh Out Trade Deal**\
-`Also, a war photographer’s return to Afghanistan.`\
-https://nytimes.com/2025/08/22/briefing/europe-us-trade-deal-ukraine-fallen-soldiers.html
-
-**Spurs have failed in a move for another star midfielder - who should they target next?**\
-`For the second time this summer, Spurs must pivot after a proposed deal to sign a creative midfielder collapsed at the final hurdle`\
-https://nytimes.com/athletic/6567248/2025/08/22/tottenham-eze-replacements/
-
-**Everton's preparation for Premier League games at new stadium: Creating for 'future generations'**\
-`With the first Premier League game being played at the Hill Dickinson Stadium on Sunday, how have Everton prepared their new stadium?`\
-https://nytimes.com/athletic/6566982/2025/08/22/evertons-preparation-hill-dickinson-stadium-first-premier-league-match/
-
-**Manchester United's goalkeeper issues analysed... by former goalkeepers**\
-`Should Manchester United sign a new goalkeeper or back the options they already have?`\
-https://nytimes.com/athletic/6567442/2025/08/22/manchester-united-goalkeepers-analysis/
-
-**Barcelona's Camp Nou crunch time: Will it really be ready in three weeks?**\
-`The Spanish champions are still hoping to return to their famous ground next month, but is that possible? `\
-https://nytimes.com/athletic/6566792/2025/08/22/barcelona-camp-nou-stadium-la-liga-champions-league/
 
