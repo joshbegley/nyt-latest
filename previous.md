@@ -1,9 +1,13 @@
+**Map: 7.5-Magnitude Earthquake Strikes the South Atlantic Ocean**\
+`View the location of the quake’s epicenter and shake area.`\
+https://nytimes.com/interactive/2025/08/21/world/americas/earthquake-drake-passage.html
+
 **The brothers’ case has been a reckoning for the 1990s.**\
 `By Tim Arango`\
 https://nytimes.com/live/2025/08/21/us/menendez-brothers-parole-hearing/the-brothers-case-has-been-a-reckoning-for-the-1990s
 
-**Large Earthquake Strikes Drake Passage Near Argentina and Chile**\
-`The epicenter of the 7.5-magnitude earthquake was in the Drake Passage, a body of water between the southernmost tip of South America and Antarctica.`\
+**Powerful Earthquake Strikes Near Argentina and Chile**\
+`The epicenter of the 7.5-magnitude quake was in the Drake Passage, a body of water between the southernmost tip of South America and Antarctica.`\
 https://nytimes.com/2025/08/21/world/americas/argentina-earthquake-drake-passage.html
 
 **Thai Court to Rule Whether Thaksin, Former Premier, Insulted Monarchy**\
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/21/us/erik-menendez-parole-release-habeas.html
 **White House Lists Smithsonian Exhibits It Finds Objectionable**\
 `The Trump administration highlighted material dealing with topics like sexuality, slavery and immigration.`\
 https://nytimes.com/2025/08/21/arts/design/smithsonian-trump.html
-
-**‘Twelfth Night’ Review: Lupita Nyong’o in Illyria**\
-`The actress is luminous, alongside her look-alike brother Junior Nyong’o, Sandra Oh and Peter Dinklage, in Shakespeare’s comedy at the newly revived Delacorte Theater.`\
-https://nytimes.com/2025/08/21/theater/twelfth-night-review-lupita-nyongo-in-illyria.html
 
