@@ -1,3 +1,7 @@
+**Big 12 odds, projected win totals, best bets: How the most balanced conference stacks up**\
+`The Big 12 doesn't have a clear favorite, but instead a jumble of teams bunched closely together in the odds. It could be weekly chaos.`\
+https://nytimes.com/athletic/6563115/2025/08/22/big-12-odds-win-totals-projections-best-bets/
+
 **Preseason waiver wire: Ollie Gordon, Troy Franklin and more players to add now — before the Week 2 rush**\
 `John Laghezza gives his way-too-early Week 0 waiver wire targets ahead of the kickoff of the 2025 NFL regular season. `\
 https://nytimes.com/athletic/6567712/2025/08/22/fantasy-football-early-waiver-wire-ollie-gordon/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/22/movies/rereleases-black-swan-jaws-casper.html
 **Trump’s Attacks on Institutions Threaten a Bulwark of Economic Strength**\
 `The president’s efforts to control the Federal Reserve and Bureau of Labor Statistics carry risks. But collectively, the moves could be even more damaging, economists warn.`\
 https://nytimes.com/2025/08/22/business/trump-federal-reserve-bls.html
-
-**‘KPop Demon Hunters’ Has Everyone Bobbing Their Heads. Especially Parents.**\
-`Some parents are reliving a golden era of boy bands and girl groups — “but now I’m handing out juice boxes instead of dancing like a rave with a glow stick,” one said.`\
-https://nytimes.com/2025/08/22/arts/kpop-demon-hunters-netflix.html
 

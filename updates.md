@@ -1,3 +1,7 @@
+**Big 12 odds, projected win totals, best bets: How the most balanced conference stacks up**\
+`The Big 12 doesn't have a clear favorite, but instead a jumble of teams bunched closely together in the odds. It could be weekly chaos.`\
+https://nytimes.com/athletic/6563115/2025/08/22/big-12-odds-win-totals-projections-best-bets/
+
 **Patriots 53-man roster projection: With the preseason over, who makes the initial list?**\
 `The Patriots have some tough decisions to make ahead of Tuesday's deadline and could go the waiver-wire route to improve at RB, TE and LB.`\
 https://nytimes.com/athletic/6568712/2025/08/22/patriots-53-man-roster-projection-final/
