@@ -1,3 +1,7 @@
+**Andrews suggests Wissa could return to Brentford squad vs Aston Villa**\
+`The Athletic reported on Wednesday that Wissa was the subject of an improved bid from Newcastle.`\
+https://nytimes.com/athletic/6569464/2025/08/22/yoane-wissa-brentford-squad-aston-villa/
+
 **Greg Iles, Novelist Who Wrote About Race in Mississippi, Dies at 65**\
 `In his best-selling books, notably the “Natchez Burning” trilogy, he addressed what one reviewer called “the pervasive impact of past events.”`\
 https://nytimes.com/2025/08/22/books/greg-iles-novelist-who-wrote-about-race-in-mississippi-dies-at-65.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/22/business/media/chris-wallace-redbird-cbs.html
 **Orioles to sign Samuel Basallo to 8-year, $67 million contract: Source**\
 `The deal includes a club option for 2034, and could reach $88.5 million based on escalators for awards and playing time at catcher.`\
 https://nytimes.com/athletic/6569423/2025/08/22/orioles-samuel-basallo-record-contract-deal-catcher/
-
-**The Bounce: NBA’s 40 best shooting guards, ranked + a salute to John Wall**\
-`Plus: You have to see this Pacers fan's tattoo.`\
-https://nytimes.com/athletic/6569367/2025/08/22/nba-rankings-shooting-guards-anthony-edwards-devin-booker/
 

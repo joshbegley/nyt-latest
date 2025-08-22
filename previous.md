@@ -1,3 +1,27 @@
+**Greg Iles, Novelist Who Wrote About Race in Mississippi, Dies at 65**\
+`In his best-selling books, notably the “Natchez Burning” trilogy, he addressed what one reviewer called “the pervasive impact of past events.”`\
+https://nytimes.com/2025/08/22/books/greg-iles-novelist-who-wrote-about-race-in-mississippi-dies-at-65.html
+
+**Insurance Companies Send Chilling Letters Just Before Surgery. But Why?**\
+`They often deny coverage via snail mail. Here’s what happened when my family got a note like that 36 hours before cancer surgery.`\
+https://nytimes.com/2025/08/22/your-money/insurance-prior-authorization-surgery-unitedhealthcare.html
+
+**Canucks offseason depth chart 3.0: Where Vancouver stands as training camp nears**\
+`With training camp slowly but surely getting closer, here's where players look likely to play in the Canucks' lineup.`\
+https://nytimes.com/athletic/6568264/2025/08/22/canucks-offseason-depth-chart-2/
+
+**How the Oilers can beat the salary cap despite their top-heavy roster**\
+`With four players taking up nearly half of the team's cap space in 2025-26, Edmonton will need to get creative in adding value contracts.`\
+https://nytimes.com/athletic/6567560/2025/08/22/oilers-value-contracts-salary-cap/
+
+**The Perfect Dinner for Late Summer Plums**\
+`Yewande Komolafe’s new recipe gives pork belly dominoes a quick turn in a hot pan so they crisp and plump before they’re coated in caramelized fruit.`\
+https://nytimes.com/2025/08/22/dining/the-perfect-dinner-for-late-summer-plums.html
+
+**Five International Movies to Stream Now**\
+`This month’s picks include a Romanian essay film about television ads, a raucous action-comedy from South India, a Swiss drama about a middle-aged woman’s sexual explorations and more.`\
+https://nytimes.com/2025/08/22/movies/five-international-movies-to-stream-now.html
+
 **Panthers, T Taylor Moton agree to 2-year, $44 million contract extension: Sources**\
 `Moton has been mainstay on the Panthers offensive line and has started nearly every game since 2018.`\
 https://nytimes.com/athletic/6569480/2025/08/22/panthers-taylor-moton-contract-extension/
@@ -13,28 +37,4 @@ https://nytimes.com/athletic/6569423/2025/08/22/orioles-samuel-basallo-record-co
 **The Bounce: NBA’s 40 best shooting guards, ranked + a salute to John Wall**\
 `Plus: You have to see this Pacers fan's tattoo.`\
 https://nytimes.com/athletic/6569367/2025/08/22/nba-rankings-shooting-guards-anthony-edwards-devin-booker/
-
-**Wyoming Man Accused of Torturing Wolf Is Charged With Animal Cruelty**\
-`Video of the wolf on a leash in a bar prompted outrage. A sheriff’s department investigation stalled, but more than a year later, a grand jury indicted a man on a felony count.`\
-https://nytimes.com/2025/08/22/us/wyoming-wolf-killed-snowmobile-animal-cruelty.html
-
-**Trump Threatens to Fire Fed Governor, Escalating Pressure on Central Bank**\
-`President Trump said he would fire Lisa Cook, a Federal Reserve governor, if she did not resign. But his ability to fire a Fed governor is limited.`\
-https://nytimes.com/2025/08/22/business/trump-lisa-cook-federal-reserve-governor.html
-
-**Malik Beasley not a target of federal gambling investigation, lawyer says**\
-`The 28-year-old was named as a person of interest in a federal gambling investigation related to gambling in late June. `\
-https://nytimes.com/athletic/6569233/2025/08/22/malik-beasley-gambling-investigation-latest-nba/
-
-**Powell Sends Strongest Signal Yet That Interest Rate Cuts Are Coming**\
-`Jerome H. Powell said the “balance of risks” across the economy had started to shift, raising the odds the central bank lowers borrowing costs at its next meeting in September.`\
-https://nytimes.com/2025/08/22/business/powell-speech-jackson-hole-fed-inflation.html
-
-**Was Head-Binding an Ancient Way to Get a Leg Up?**\
-`For some cultures, the practice of cranial deformation may have offered individuals a path to privilege later in their lives.`\
-https://nytimes.com/2025/08/22/science/anthropology-head-binding.html
-
-**Book Club: Read ‘Pride and Prejudice,’ by Jane Austen, With the Book Review**\
-`In September, the Book Review Book Club will read and discuss Jane Austen’s classic, about the tortured romance of two people frazzled by miscommunications and assumptions.`\
-https://nytimes.com/2025/08/22/books/review/pride-and-prejudice-jane-austen-book-club.html
 
