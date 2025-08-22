@@ -1,3 +1,15 @@
+**White House Lists Smithsonian Exhibits It Finds Objectionable**\
+`The Trump administration highlighted material dealing with topics like sexuality, slavery and immigration.`\
+https://nytimes.com/2025/08/21/arts/design/smithsonian-trump.html
+
+**‘Twelfth Night’ Review: Lupita Nyong’o in Illyria**\
+`The actress is luminous, alongside her look-alike brother Junior Nyong’o, Sandra Oh and Peter Dinklage, in Shakespeare’s comedy at the newly revived Delacorte Theater.`\
+https://nytimes.com/2025/08/21/theater/twelfth-night-review-lupita-nyongo-in-illyria.html
+
+**Kite-Flying Weather**\
+`Gia Bosko offers us a wide open Friday grid.`\
+https://nytimes.com/2025/08/21/crosswords/daily-puzzle-2025-08-22.html
+
 **Judge Orders That ‘Alligator Alcatraz’ Detention Center Be Shut Down for Now**\
 `A judge ruled that the state and federal governments acted illegally by not conducting an environmental review before building the center in the Florida Everglades.`\
 https://nytimes.com/2025/08/21/us/alligator-alcatraz-florida-ruling.html

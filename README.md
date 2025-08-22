@@ -1,3 +1,7 @@
+**After being denied parole, Erik Menendez still has other pathways to freedom.**\
+`By Matt Stevens and Tim Arango`\
+https://nytimes.com/live/2025/08/21/us/menendez-brothers-parole-hearing/after-being-denied-parole-erik-menendez-still-has-other-pathways-to-freedom
+
 **White House Lists Smithsonian Exhibits It Finds Objectionable**\
 `The Trump administration highlighted material dealing with topics like sexuality, slavery and immigration.`\
 https://nytimes.com/2025/08/21/arts/design/smithsonian-trump.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/08/21/us/menendez-brothers-parole-hearing
 **Crown will not appeal decision in Hockey Canada sexual assault trial**\
 `The decision came following a trial that garnered widespread attention, spanned two months and featured a number of bizarre twists.`\
 https://nytimes.com/athletic/6568637/2025/08/21/hockey-canada-sexual-assault-trial-appeal/
-
-**Tracking the Aftermath From Erin on the Ocean**\
-`Meteorologists piece together the aftereffects in a hurricane’s path, and look ahead to potential future storms.`\
-https://nytimes.com/2025/08/21/climate/hurricane-erin-wake-mixing-temperature.html
 
