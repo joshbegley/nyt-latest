@@ -1,3 +1,7 @@
+**Trump Administration Live Updates: F.B.I. Searches John Bolton’s Home**\
+``\
+https://nytimes.com/live/2025/08/22/us/trump-news
+
 **Trump Administration Live Updates: F.B.I. Searches John Bolton’s Maryland Home**\
 ``\
 https://nytimes.com/live/2025/08/22/us/trump-news
