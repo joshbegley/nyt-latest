@@ -1,3 +1,11 @@
+**Javier Mascherano defends red card, confirms Lionel Messi out vs. D.C. United**\
+`Mascherano fires back at critics over his red card antics and explains why Messi won’t be on the pitch against D.C. United.`\
+https://nytimes.com/athletic/6569781/2025/08/22/javier-mascherano-defends-red-card/
+
+**Maxwell Never Witnessed Trump in ‘Inappropriate Setting,’ Transcript Says**\
+`The transcripts and audio, covering two days of discussions between Ms. Maxwell and Todd Blanche, the No. 2 post at the Justice Department, are likely to raise as many questions as they answer.`\
+https://nytimes.com/2025/08/22/us/politics/ghislaine-maxwell-doj-transcript-trump.html
+
 **The biggest reason the Giants couldn't stay in the postseason race**\
 `Giants' hitters have performed as expected or worse than expected. The lack of breakout seasons has really hurt their playoff hopes.`\
 https://nytimes.com/athletic/6568081/2025/08/22/sf-giants-team-weakness-postseason-race/
