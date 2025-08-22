@@ -1,3 +1,7 @@
+**Another Dodgers-Padres series with first-place stakes. Here's how to watch the sequel**\
+`A second straight weekend three-pack with the Los Angeles Dodgers and San Diego Padres? Of course we are down.`\
+https://nytimes.com/athletic/6568323/2025/08/22/dodgers-padres-nl-west-ohtani-injury-tatis-snell-how-to-watch/
+
 **Vikings' 53-man roster bubble: Who needs to produce vs. Titans in final preseason game?**\
 `Which players need to perform well Friday night to find themselves on the right side of the cut line? Here are 11 names.`\
 https://nytimes.com/athletic/6567374/2025/08/22/vikings-53-man-roster-bubble-titans-preseason/
