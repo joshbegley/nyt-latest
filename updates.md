@@ -1,3 +1,11 @@
+**Jayden Daniels confident Commanders, WR Terry McLaurin will end stalemate**\
+`Washington's star QB shared his thoughts with The Athletic’s Dianna Russini on the latest episode of Scoop City.`\
+https://nytimes.com/athletic/6568494/2025/08/21/jayden-daniels-terry-mclaurin-commanders-contract/
+
+**Five parting thoughts as Chargers wrap training camp: CB battle, OL depth**\
+`The Chargers wrapped up training camp Thursday ahead of the final preseason game Sunday against the 49ers.`\
+https://nytimes.com/athletic/6568564/2025/08/21/chargers-training-camp-parting-thoughts/
+
 **Trump Starts Investigation That Could Lead to Tariffs on Wind Turbines**\
 `The tariffs would hamper a clean energy industry that the president has often railed against.`\
 https://nytimes.com/2025/08/21/us/politics/trump-investigation-tariffs-wind-turbines.html

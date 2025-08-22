@@ -1,3 +1,11 @@
+**Crown will not appeal decision in Hockey Canada sexual assault trial**\
+`The decision came following a trial that garnered widespread attention, spanned two months and featured a number of bizarre twists.`\
+https://nytimes.com/athletic/6568637/2025/08/21/hockey-canada-sexual-assault-trial-appeal/
+
+**Tracking the Aftermath From Erin on the Ocean**\
+`Meteorologists piece together the aftereffects in a hurricane’s path, and look ahead to potential future storms.`\
+https://nytimes.com/2025/08/21/climate/hurricane-erin-wake-mixing-temperature.html
+
 **Jayden Daniels confident Commanders, WR Terry McLaurin will end stalemate**\
 `Washington's star QB shared his thoughts with The Athletic’s Dianna Russini on the latest episode of Scoop City.`\
 https://nytimes.com/athletic/6568494/2025/08/21/jayden-daniels-terry-mclaurin-commanders-contract/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6568454/2025/08/21/dodger-details-rockies-split-lef
 **Steelers 1st-round pick Derrick Harmon carted off field after knee injury in preseason game**\
 `As Harmon fell to the turf, he appeared to twist his knee.`\
 https://nytimes.com/athletic/6568572/2025/08/21/steelers-derrick-harmon-carted-off-field-knee-injury-preseason/
-
-**Cubs takeaways: Missed opportunity, starting pitching impresses, Kyle Tucker struggles in return**\
-`The offense once again failed the Cubs in their 4-1 loss Thursday to the Milwaukee Brewers.`\
-https://nytimes.com/athletic/6568378/2025/08/21/cubs-loss-brewers-kyle-tucker-struggles/
-
-**6 Men Are Killed in an Accident at a Colorado Dairy Farm**\
-`Fire crews discovered the men’s bodies on Wednesday at a farm near the town of Keenesburg, about 40 miles northeast of Denver, officials said.`\
-https://nytimes.com/2025/08/21/us/colorado-dairy-farm-deaths.html
 
