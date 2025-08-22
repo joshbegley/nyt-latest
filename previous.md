@@ -1,3 +1,7 @@
+**​North Korea Honors Its Soldiers Who Fought in Ukraine War**\
+`The North’s leader, Kim Jong-un, publicly consoled bereaved families, as well as awarding medals to soldiers returning from the force he has sent to aid Russia.`\
+https://nytimes.com/2025/08/22/world/asia/north-korea-ukraine-ceremony.html
+
 **Yankees give doubters extra fuel in sloppy loss to Red Sox: 'We beat ourselves'**\
 `Of the team's 74 errors this season, over a quarter of them have come in their 17 games against the Red Sox and Toronto Blue Jays.`\
 https://nytimes.com/athletic/6568156/2025/08/22/new-york-yankees-sloppy-loss/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6549367/2025/08/22/hockey-diversity-alliance-nhl-de
 **A closer look at new big leaguer Bubba Chandler and the 9 best starters still in Triple A**\
 `Chandler makes his major-league debut today. What is the outlook for him and the top starters remaining in Triple A?`\
 https://nytimes.com/athletic/6568174/2025/08/22/triple-a-starters-bubba-chandler-outlooks/
-
-**Joe Flacco is embracing the 'special' feeling of getting another chance to start**\
-`If the 40-year-old Flacco still has some magic left in his right arm, Cleveland will ride it as far as it can this season. `\
-https://nytimes.com/athletic/6567872/2025/08/22/joe-flacco-browns-starting-quarterback/
 

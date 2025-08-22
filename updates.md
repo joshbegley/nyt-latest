@@ -1,3 +1,7 @@
+**​North Korea Honors Its Soldiers Who Fought in Ukraine War**\
+`The North’s leader, Kim Jong-un, publicly consoled bereaved families, as well as awarding medals to soldiers returning from the force he has sent to aid Russia.`\
+https://nytimes.com/2025/08/22/world/asia/north-korea-ukraine-ceremony.html
+
 **Yankees give doubters extra fuel in sloppy loss to Red Sox: 'We beat ourselves'**\
 `Of the team's 74 errors this season, over a quarter of them have come in their 17 games against the Red Sox and Toronto Blue Jays.`\
 https://nytimes.com/athletic/6568156/2025/08/22/new-york-yankees-sloppy-loss/
