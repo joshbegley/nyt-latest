@@ -13,6 +13,11 @@ https://nytimes.com/athletic/6568974/2025/08/22/ipswich-kasey-mcateer-transfer-l
 `\
 https://nytimes.com/athletic/6568974/2025/08/22/ipswich-kasey-mcateer-transfer-leicester/
 
+**Ipswich reach agreement with Leicester to sign McAteer**\
+`The deal for the 23-year-old is worth £12m guaranteed over three years plus add-ons.
+`\
+https://nytimes.com/athletic/6568974/2025/08/22/ipswich-kasey-mcateer-transfer-leicester/
+
 **Pair of Immigration Raids Disrupt a New Jersey Shipping Hub**\
 `In Edison, thousands of immigrant workers toil in hundreds of warehouses, sorting millions of boxes arriving from nearby ports.`\
 https://nytimes.com/2025/08/22/nyregion/immigration-raids-edison-new-jersey.html
