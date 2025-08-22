@@ -1,3 +1,7 @@
+**Bolton Investigation Linked to Overseas Intelligence**\
+`The nature of the intelligence collected overseas is not known. The F.B.I. obtained the search warrant after presenting evidence to a federal judge.`\
+https://nytimes.com/2025/08/22/us/politics/john-bolton-intelligence-fbi-classified.html
+
 **Colorado Judge Rejects Deal for Funeral Home Owner in Corpse Abuse Case**\
 `The judge rejected a 20-year sentence that would have been combined with a federal case. Prosecutors said that Jon Hallford, 45, and his wife cheated grieving families while living a lavish lifestyle.`\
 https://nytimes.com/2025/08/22/us/colorado-funeral-home-plea-deal.html
