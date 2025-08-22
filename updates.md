@@ -1,3 +1,7 @@
+**Bayern Munich, Real Madrid kick-off times and preview**\
+`Real Madrid and Bayern Munich are in action as the European giants lead a host of fascinating ties from across the continent. `\
+https://nytimes.com/athletic/6569019/2025/08/22/bayerns-title-charge-begins-and-marseilles-meltdown-european-weekend-preview/
+
 **Gaza City and Surrounding Areas Are Officially Under Famine, Monitors Say**\
 `At least half a million people in the enclave were facing the most severe conditions measured by U.N.-backed international experts: starvation, acute malnutrition and death.`\
 https://nytimes.com/2025/08/22/world/middleeast/famine-gaza-city-israel.html

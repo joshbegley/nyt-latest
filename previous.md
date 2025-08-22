@@ -1,3 +1,7 @@
+**Bayern Munich, Real Madrid kick-off times and preview**\
+`Real Madrid and Bayern Munich are in action as the European giants lead a host of fascinating ties from across the continent. `\
+https://nytimes.com/athletic/6569019/2025/08/22/bayerns-title-charge-begins-and-marseilles-meltdown-european-weekend-preview/
+
 **Gaza City and Surrounding Areas Are Officially Under Famine, Monitors Say**\
 `At least half a million people in the enclave were facing the most severe conditions measured by U.N.-backed international experts: starvation, acute malnutrition and death.`\
 https://nytimes.com/2025/08/22/world/middleeast/famine-gaza-city-israel.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6567712/2025/08/22/fantasy-football-early-waiver-wi
 **Patriots 53-man roster projection: With the preseason over, who makes the initial list?**\
 `The Patriots have some tough decisions to make ahead of Tuesday's deadline and could go the waiver-wire route to improve at RB, TE and LB.`\
 https://nytimes.com/athletic/6568712/2025/08/22/patriots-53-man-roster-projection-final/
-
-**MAHA Is a Bad Answer to a Good Question**\
-`Rachael Bedard and David Wallace-Wells on Covid disillusionment and the rise of the MAHA movement.`\
-https://nytimes.com/2025/08/22/opinion/ezra-klein-podcast-rachael-bedard-david-wallace-wells.html
 
