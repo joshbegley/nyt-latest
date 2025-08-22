@@ -1,3 +1,15 @@
+**Collapsing Boundaries**\
+`We look at the relationship between digital stars and their followers.`\
+https://nytimes.com/2025/08/22/briefing/fan-encounters.html
+
+**Thoughts of Kevin Durant's arrival? 2025-26 expectations? Rockets fan survey results**\
+`More than 700 Houston Rockets fans filled out a survey featuring a variety of team-related topics and expectations.`\
+https://nytimes.com/athletic/6567423/2025/08/22/rockets-fan-survey-kevin-durant-nba/
+
+**The Athletic FC: The £1.9bn academy stars sell-off, 'Lavolpiana' tactic explained, Reyna bid**\
+`Today in TAFC: Why academy stars are being sold by Premier League clubs, the 'Lavolpiana' tactic to watch out for, and Reyna on the move?`\
+https://nytimes.com/athletic/6568992/2025/08/22/1-9nb-academy-stars-lavolpiana-tactics-reyna/
+
 **The Pulse: The fantasy questions you’re too embarrassed to ask**\
 `The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
 https://nytimes.com/athletic/6567700/2025/08/22/fantasy-football-beginners-guide-the-pulse/
