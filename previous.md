@@ -1,5 +1,9 @@
+**Impact of ‘Continuous Vetting’ for U.S. Visa Holders Remains Unclear**\
+`The State Department offered few details about its plans for the 55 million visa holders, and it was unclear if it was culling travel documents, or making less drastic changes.`\
+https://nytimes.com/2025/08/22/us/politics/continuous-vetting-visa-holders.html
+
 **Red Sox move struggling Walker Buehler to bullpen**\
-`In 22 starts, Buehler posted the worst numbers of his career with a 5.40 ERA, 16.5 percent strikeout rates and 10.7 percent walk rate.`\
+`In 22 starts, Buehler posted the worst numbers of his career with a 5.40 ERA, 16.5 percent strikeout rate and 10.7 percent walk rate.`\
 https://nytimes.com/athletic/6570293/2025/08/22/red-sox-walker-buehler-bullpen/
 
 **Ex-Employee Sentenced to 4 Years for Sabotaging Company’s Computer Network**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6570142/2025/08/22/craig-kimbrel-astros-bennett-sou
 **Chris Doyle, Artist Who Brought the Inanimate to Life, Dies at 66**\
 `He used animation and other media to create worlds inhabited by anthropomorphic machines and industrious creatures. One curator described his work as “Narnia on acid.”`\
 https://nytimes.com/2025/08/22/arts/chris-doyle-dead.html
-
-**Education Department Backs Away From Program for Hispanic-Serving Colleges**\
-`The federal program supports universities with high numbers of Latino students. Trump officials said they wouldn’t defend it against a lawsuit, which could effectively end the program.`\
-https://nytimes.com/2025/08/22/us/education-department-hispanic-serving-universities.html
 

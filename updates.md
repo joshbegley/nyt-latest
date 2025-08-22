@@ -1,3 +1,11 @@
+**Impact of ‘Continuous Vetting’ for U.S. Visa Holders Remains Unclear**\
+`The State Department offered few details about its plans for the 55 million visa holders, and it was unclear if it was culling travel documents, or making less drastic changes.`\
+https://nytimes.com/2025/08/22/us/politics/continuous-vetting-visa-holders.html
+
+**Red Sox move struggling Walker Buehler to bullpen**\
+`In 22 starts, Buehler posted the worst numbers of his career with a 5.40 ERA, 16.5 percent strikeout rate and 10.7 percent walk rate.`\
+https://nytimes.com/athletic/6570293/2025/08/22/red-sox-walker-buehler-bullpen/
+
 **Red Sox move struggling Walker Buehler to bullpen**\
 `In 22 starts, Buehler posted the worst numbers of his career with a 5.40 ERA, 16.5 percent strikeout rates and 10.7 percent walk rate.`\
 https://nytimes.com/athletic/6570293/2025/08/22/red-sox-walker-buehler-bullpen/
