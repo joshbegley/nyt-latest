@@ -1,5 +1,13 @@
 **After being denied parole, Erik Menendez still has other pathways to freedom.**\
 `By Matt Stevens and Tim Arango`\
+https://nytimes.com/2025/08/21/us/erik-menendez-parole-release-habeas.html
+
+**Live Updates: Menendez Hasn’t Been a ‘Model Prisoner,’ Board Says in Denying Parole**\
+`A state panel said Erik Menendez should stay in prison for the 1989 killing of his parents and questioned the sincerity of his rehabilitation. His brother, Lyle, goes before the board on Friday.`\
+https://nytimes.com/live/2025/08/21/us/menendez-brothers-parole-hearing
+
+**After being denied parole, Erik Menendez still has other pathways to freedom.**\
+`By Matt Stevens and Tim Arango`\
 https://nytimes.com/live/2025/08/21/us/menendez-brothers-parole-hearing/after-being-denied-parole-erik-menendez-still-has-other-pathways-to-freedom
 
 **White House Lists Smithsonian Exhibits It Finds Objectionable**\

@@ -1,6 +1,6 @@
 **After being denied parole, Erik Menendez still has other pathways to freedom.**\
 `By Matt Stevens and Tim Arango`\
-https://nytimes.com/live/2025/08/21/us/menendez-brothers-parole-hearing/after-being-denied-parole-erik-menendez-still-has-other-pathways-to-freedom
+https://nytimes.com/2025/08/21/us/erik-menendez-parole-release-habeas.html
 
 **White House Lists Smithsonian Exhibits It Finds Objectionable**\
 `The Trump administration highlighted material dealing with topics like sexuality, slavery and immigration.`\
@@ -30,8 +30,8 @@ https://nytimes.com/live/2025/08/21/us/menendez-brothers-parole-hearing/i-was-no
 `By Tim Arango and Matt Stevens`\
 https://nytimes.com/live/2025/08/21/us/menendez-brothers-parole-hearing/erik-menendez-closing-statement
 
-**Live Updates: Menendez Brother Loses Bid for Release Three Decades After Sensational Murder**\
-`A parole panel said Erik Menendez should stay in prison. Lyle Menendez goes before the board on Friday.`\
+**Live Updates: Menendez Hasn’t Been a ‘Model Prisoner,’ Board Says in Denying Parole**\
+`A state panel said Erik Menendez should stay in prison for the 1989 killing of his parents and questioned the sincerity of his rehabilitation. His brother, Lyle, goes before the board on Friday.`\
 https://nytimes.com/live/2025/08/21/us/menendez-brothers-parole-hearing
 
 **Crown will not appeal decision in Hockey Canada sexual assault trial**\
