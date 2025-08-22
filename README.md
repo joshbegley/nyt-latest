@@ -1,40 +1,40 @@
-**Collapsing Boundaries**\
-`We look at the relationship between digital stars and their followers.`\
-https://nytimes.com/2025/08/22/briefing/fan-encounters.html
+**Yankees give doubters extra fuel in sloppy loss to Red Sox: 'We beat ourselves'**\
+`Of the team's 74 errors this season, over a quarter of them have come in their 17 games against the Red Sox and Toronto Blue Jays.`\
+https://nytimes.com/athletic/6568156/2025/08/22/new-york-yankees-sloppy-loss/
 
-**Thoughts of Kevin Durant's arrival? 2025-26 expectations? Rockets fan survey results**\
-`More than 700 Houston Rockets fans filled out a survey featuring a variety of team-related topics and expectations.`\
-https://nytimes.com/athletic/6567423/2025/08/22/rockets-fan-survey-kevin-durant-nba/
+**How to watch the Coke Zero Sugar 400, NASCAR's nighttime regular-season finale**\
+`With two playoff spots up for grabs, this weekend's NASCAR regular-season finale is leaving the door wide open for chaos. `\
+https://nytimes.com/athletic/6568199/2025/08/22/nascar-season-finale-coke-zero-sugar-400-daytona-how-to-watch/
 
-**The Athletic FC: The £1.9bn academy stars sell-off, 'Lavolpiana' tactic explained, Reyna bid**\
-`Today in TAFC: Why academy stars are being sold by Premier League clubs, the 'Lavolpiana' tactic to watch out for, and Reyna on the move?`\
-https://nytimes.com/athletic/6568992/2025/08/22/1-9nb-academy-stars-lavolpiana-tactics-reyna/
+**The Athletic’s Friday football quiz question #69**\
+`Can you answer the weekly poser plucked from deep inside The Athletic's trivia vaults?`\
+https://nytimes.com/athletic/6558973/2025/08/22/the-athletics-friday-football-quiz-question-69/
 
-**The Pulse: The fantasy questions you’re too embarrassed to ask**\
-`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
-https://nytimes.com/athletic/6567700/2025/08/22/fantasy-football-beginners-guide-the-pulse/
+**Pitching is Carson Fulmer's job. Catching ceremonial first pitches? That's his calling**\
+`Many players shy away from catching ceremonial first pitches, seeing them as an imposition. The Angels reliever looks at them differently. `\
+https://nytimes.com/athletic/6567370/2025/08/22/carson-fulmer-angels-ceremonial-first-pitches/
 
-**Anthony Richardson must own failures, but Colts aren't blameless either**\
-`As the Colts appear to be punting on Richardson's development, Steichen sounds like he's trying to distance himself from the embattled QB.`\
-https://nytimes.com/athletic/6568689/2025/08/22/colts-anthony-richardson-failure-shane-steichen/
+**Why the Bengals aren't as worried about the defense as you are, despite preseason flops**\
+`The starters were shredded by the Eagles and Commanders, but there's in-house optimism about what's happened in practices.`\
+https://nytimes.com/athletic/6568239/2025/08/22/bengals-defense-preseason-al-golden/
 
-**Weird & Wild: Alejandro Kirk's stolen base, Brewers' 14-game streak, Bronx Bombers' blasts**\
-`Can you imagine how much courage it takes to give baseball’s slowest everyday player the green light to run amok?`\
-https://nytimes.com/athletic/6568592/2025/08/22/alejandro-kirks-stolen-base-brewers-win-streak-yankees-homers/
+**Steelers 53-man roster projection after preseason finale win over Panthers**\
+`With the preseason now complete, cut-down day looms on Tuesday as players on the fringe had their final chance to prove themselves.`\
+https://nytimes.com/athletic/6568760/2025/08/22/steelers-53-man-roster-projection-panthers/
 
-**Another Dodgers-Padres series with first-place stakes. Here's how to watch the sequel**\
-`A second straight weekend three-pack with the Los Angeles Dodgers and San Diego Padres? Of course we are down.`\
-https://nytimes.com/athletic/6568323/2025/08/22/dodgers-padres-nl-west-ohtani-injury-tatis-snell-how-to-watch/
+**College football portal buzz: Late-rising transfers, QB battle domino effects and more**\
+`As the college football season kicks off, here's what were hearing around the country on depth charts, portal pickups and season openers.`\
+https://nytimes.com/athletic/6567708/2025/08/22/college-football-news-buzz-portal-depth-chart/
 
-**Vikings' 53-man roster bubble: Who needs to produce vs. Titans in final preseason game?**\
-`Which players need to perform well Friday night to find themselves on the right side of the cut line? Here are 11 names.`\
-https://nytimes.com/athletic/6567374/2025/08/22/vikings-53-man-roster-bubble-titans-preseason/
+**Hockey Diversity Alliance skates on amid DEI attacks and dwindling sponsorships**\
+`The HDA recently held its first annual "Summer Fest" event in Toronto, hosting 250 young aspiring hockey players of various backgrounds.`\
+https://nytimes.com/athletic/6549367/2025/08/22/hockey-diversity-alliance-nhl-dei-inclusion/
 
-**Who is each MLB playoff contender’s most indispensable 'under-the-radar' player?**\
-`I touched base with front-office executives and managers from 16 contending teams to hear their thoughts on these key players.`\
-https://nytimes.com/athletic/6567281/2025/08/22/mlb-playoff-contenders-underrated-players/
+**A closer look at new big leaguer Bubba Chandler and the 9 best starters still in Triple A**\
+`Chandler makes his major-league debut today. What is the outlook for him and the top starters remaining in Triple A?`\
+https://nytimes.com/athletic/6568174/2025/08/22/triple-a-starters-bubba-chandler-outlooks/
 
-**What makes Ben Johnson's attention to detail different: 'Dialed in on every little thing'**\
-`Johnson says he's focused on the details, and he's shown it on the field, in the film room and throughout training camp.`\
-https://nytimes.com/athletic/6566003/2025/08/22/bears-ben-johnson-attention-to-detail/
+**Joe Flacco is embracing the 'special' feeling of getting another chance to start**\
+`If the 40-year-old Flacco still has some magic left in his right arm, Cleveland will ride it as far as it can this season. `\
+https://nytimes.com/athletic/6567872/2025/08/22/joe-flacco-browns-starting-quarterback/
 
