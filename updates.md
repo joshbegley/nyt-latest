@@ -1,3 +1,11 @@
+**Hegseth Authorizes Troops in D.C. to Carry Weapons**\
+`It remains unclear whether the National Guard soldiers will be armed as they walk through the city.`\
+https://nytimes.com/2025/08/22/us/politics/national-guard-weapons.html
+
+**2026 World Cup draw to be held at Kennedy Center, President Trump announces**\
+`Trump made the announcement flanked by Vice President JD Vance and FIFA president Gianni Infantino in the Oval Office.`\
+https://nytimes.com/athletic/6569842/2025/08/22/world-cup-draw-kennedy-center-trump-infantino/
+
 **Why Epstein’s Furious Grip on Washington Holds**\
 `It isn’t just members of the MAGA faithful who are feeling let down.`\
 https://nytimes.com/2025/08/22/opinion/democrats-republicans-epstein.html
