@@ -1,3 +1,7 @@
+**Patriots 53-man roster projection: With the preseason over, who makes the initial list?**\
+`The Patriots have some tough decisions to make ahead of Tuesday's deadline and could go the waiver-wire route to improve at RB, TE and LB.`\
+https://nytimes.com/athletic/6568712/2025/08/22/patriots-53-man-roster-projection-final/
+
 **Preseason waiver wire: Ollie Gordon, Troy Franklin and more players to add now — before the Week 2 rush**\
 `John Laghezza gives his way-too-early Week 0 waiver wire targets ahead of the kickoff of the 2025 NFL regular season. `\
 https://nytimes.com/athletic/6567712/2025/08/22/fantasy-football-early-waiver-wire-ollie-gordon/
