@@ -1,3 +1,7 @@
+**Trump Administration Live Updates: F.B.I. Searches John Bolton’s Maryland Home**\
+``\
+https://nytimes.com/live/2025/08/22/us/trump-news
+
 **49ers roster battles: 7 positions to watch in preseason finale vs. Chargers**\
 `Five years removed from a 1,000-yard season with the Panthers, Robbie Chosen is pushing for a spot on the 49ers' depleted WR depth chart.`\
 https://nytimes.com/athletic/6567421/2025/08/22/49ers-roster-preseason-robbie-chosen/
