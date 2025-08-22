@@ -1,3 +1,7 @@
+**Word of the Day: gulag**\
+`This word has appeared in 43 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2025/08/22/learning/word-of-the-day-gulag.html
+
 **The New York Times in Print for Friday, Aug. 22, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/08/22/todays-new-york-times
