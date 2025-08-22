@@ -1,3 +1,7 @@
+**Trump’s Revenge Campaign, Live on Morning TV**\
+`The recent F.B.I. raid on John Bolton’s home makes clear that President Trump is perverting the justice system to intimidate his critics.`\
+https://nytimes.com/2025/08/22/opinion/trump-john-bolton-raid.html
+
 **Trump Revels in a ‘Nice’ Gesture From Putin**\
 `The Russian president sent his American counterpart a photograph of the two of them from their face-to-face meeting.`\
 https://nytimes.com/2025/08/22/us/politics/trump-putin-photo.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/22/world/africa/tiebile-drame-dead.html
 **Hendon Hooker and the Detroit Lions who will impact final roster decisions the most**\
 `While all eyes are on Hooker, Jackson Meeks, Mekhi Wingo and others make interesting cases as roster cuts loom.`\
 https://nytimes.com/athletic/6569563/2025/08/22/detroit-lions-roster-preseason-hendon-hooker/
-
-**Florida Governor Says He Is Undeterred by Court Ruling on ‘Alligator Alcatraz’**\
-`A federal judge had ordered that much of the Florida immigration detention center be dismantled, a ruling Gov. Ron DeSantis called “preordained.”`\
-https://nytimes.com/2025/08/22/us/desantis-florida-alligator-alcatraz.html
 
