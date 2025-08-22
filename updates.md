@@ -1,3 +1,23 @@
+**Need a snappy team name for fantasy football? Check these out.**\
+`From player name puns, to Taylor Swift references, we've got a fantasy handle for you.`\
+https://nytimes.com/athletic/6567645/2025/08/22/best-fun-fantasy-football-team-names-taylor-swift-puns/
+
+**U.N.-Backed Experts Confirm Situation in Gaza City as Famine**\
+`At least half a million residents in Gaza City and its surrounding areas are officially living under famine, according to a hunger monitoring group that the United Nations and international aid groups rely on for assessing global crises.`\
+https://nytimes.com/video/world/middleeast/100000010355470/famine-report-gaza-city-.html
+
+**A sleeper in Washington, a 'windfall' in Indy and more fantasy football spin from NFL camps**\
+`Michael Salfino identifies the latest NFL camp news impacting player values ahead of a busy fantasy football draft weekend.`\
+https://nytimes.com/athletic/6569401/2025/08/22/fantasy-football-nfl-camp-takeaways/
+
+**If Your Blow Dryer Brush Isn’t Working, You Probably Need to Clean It**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/wc-how-to-clean-blow-dryer-brush
+
+**Sharpening Your Knives Incorrectly Can Damage Their Blades. Here’s How to Do It Right.**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/wc-how-to-sharpen-knives
+
 **Scoop City: The new standard in Chicago**\
 `What's different about Ben Johnson, plus Caleb Williams, Cam Ward and Dillon Gabriel lead our players to watch this weekend.`\
 https://nytimes.com/athletic/6569629/2025/08/22/bears-ben-johnson-detail-dillon-gabriel-browns-scoop-city/
