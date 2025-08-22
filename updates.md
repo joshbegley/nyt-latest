@@ -1,3 +1,7 @@
+**British Government to Rescue Another Ailing Steel Maker**\
+`The move, which comes after a court-approved liquidation of Speciality Steel, is meant to preserve jobs and domestic manufacturing.`\
+https://nytimes.com/2025/08/22/business/britain-steel-takeover.html
+
 **WNBA breaks single-season attendance record set in 2002**\
 `With three weeks left in the regular season and three rounds of postseason play ahead, the new record will continue to rise.`\
 https://nytimes.com/athletic/6569313/2025/08/22/wnba-new-single-season-attendance-record/
