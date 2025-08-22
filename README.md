@@ -1,3 +1,11 @@
+**Craig Kimbrel joins Astros bullpen just as they lose another key arm**\
+`The nine-time All-Star closer is preparing to play for his ninth team. "It's a tremendous ballclub with a lot of talent," Kimbrel said.`\
+https://nytimes.com/athletic/6570142/2025/08/22/craig-kimbrel-astros-bennett-sousa-injured-list/
+
+**Chris Doyle, Artist Who Brought the Inanimate to Life, Dies at 66**\
+`He used animation and other media to create worlds inhabited by anthropomorphic machines and industrious creatures. One curator described his work as “Narnia on acid.”`\
+https://nytimes.com/2025/08/22/arts/chris-doyle-dead.html
+
 **Education Department Backs Away From Program for Hispanic-Serving Colleges**\
 `The federal program supports universities with high numbers of Latino students. Trump officials said they wouldn’t defend it against a lawsuit, which could effectively end the program.`\
 https://nytimes.com/2025/08/22/us/education-department-hispanic-serving-universities.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6570248/2025/08/22/trump-infantino-maga-world-cup-d
 **Ron Turcotte, Who Rode Secretariat to the Triple Crown, Dies at 84**\
 `With Turcotte in the saddle, Secretariat powered to victory in the Kentucky Derby and the Preakness in 1973 and then demolished the competition in the Belmont Stakes.`\
 https://nytimes.com/2025/08/22/sports/horse-racing/ron-turcotte-dead.html
-
-**Parents of Missing 7-Month-Old Are Charged in His Murder**\
-`Investigators said they were still searching for the boy, Emmanuel Haro, whose mother had claimed he was abducted outside a store in Yucaipa, Calif., on Aug. 14.`\
-https://nytimes.com/2025/08/22/us/california-missing-baby-parents-arrest-murder.html
-
-**Bolton Investigation Linked to Overseas Intelligence**\
-`The nature of the intelligence collected overseas is not known. The F.B.I. obtained the search warrant after presenting evidence to a federal judge.`\
-https://nytimes.com/2025/08/22/us/politics/john-bolton-intelligence-fbi-classified.html
 
