@@ -1,3 +1,7 @@
+**The brothers’ case has been a reckoning for the 1990s.**\
+`By Tim Arango`\
+https://nytimes.com/live/2025/08/21/us/menendez-brothers-parole-hearing/the-brothers-case-has-been-a-reckoning-for-the-1990s
+
 **Large Earthquake Strikes Drake Passage Near Argentina and Chile**\
 `The epicenter of the 7.5-magnitude earthquake was in the Drake Passage, a body of water between the southernmost tip of South America and Antarctica.`\
 https://nytimes.com/2025/08/21/world/americas/argentina-earthquake-drake-passage.html
