@@ -1,3 +1,7 @@
+**Amorim says Onana 'ready to play', refuses to confirm goalkeeper choice vs. Fulham**\
+`Onana suffered a hamstring injury in early July and missed United's pre-season but had been aiming to return for the league opener.`\
+https://nytimes.com/athletic/6558372/2025/08/22/andre-onana-manchester-united-goalkeeper/
+
 **Trump Administration Live Updates: F.B.I. Searches John Bolton’s Home**\
 ``\
 https://nytimes.com/live/2025/08/22/us/trump-news

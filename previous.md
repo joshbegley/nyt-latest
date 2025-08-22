@@ -1,3 +1,7 @@
+**Amorim says Onana 'ready to play', refuses to confirm goalkeeper choice vs. Fulham**\
+`Onana suffered a hamstring injury in early July and missed United's pre-season but had been aiming to return for the league opener.`\
+https://nytimes.com/athletic/6558372/2025/08/22/andre-onana-manchester-united-goalkeeper/
+
 **49ers roster battles: 7 positions to watch in preseason finale vs. Chargers**\
 `Five years removed from a 1,000-yard season with the Panthers, Robbie Chosen is pushing for a spot on the 49ers' depleted WR depth chart.`\
 https://nytimes.com/athletic/6567421/2025/08/22/49ers-roster-preseason-robbie-chosen/
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/08/22/us/trump-news
 **Rodri, Foden available for Man City vs Spurs – Guardiola**\
 `Both players missed City's opening-weekend victory at Wolves with Rodri returning to availability ahead of schedule.`\
 https://nytimes.com/athletic/6569145/2025/08/22/man-city-team-news-rodri-foden/
-
-**Lil Nas X Is Arrested and Briefly Hospitalized in L.A., Authorities Say**\
-`Video showed the pop star walking down a major street in only underwear some time before an encounter with police officers.`\
-https://nytimes.com/2025/08/22/arts/music/lil-nas-x-arrested-hospital-la.html
 
