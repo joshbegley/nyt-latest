@@ -1,3 +1,7 @@
+**Another Crystal Palace milestone overshadowed**\
+`A first major European victory should have brought great joy to Selhurst - instead regret and concern lingers at Crystal Palace`\
+https://nytimes.com/athletic/6565773/2025/08/22/crystal-palace-eze-glasner-parish-transfers/
+
 **FPL live Q&A: Gameweek Two advice from Ben Dinnery**\
 `It’s time to dust off your Gameweek One mishaps and get your FPL team in working order for the next set of Premier League fixtures`\
 https://nytimes.com/athletic/6568418/2025/08/22/fantasy-premier-league-live-qa-gameweek-two-advice-from-ben-dinnery/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6567442/2025/08/22/manchester-united-goalkeepers-an
 **Barcelona's Camp Nou crunch time: Will it really be ready in three weeks?**\
 `The Spanish champions are still hoping to return to their famous ground next month, but is that possible? `\
 https://nytimes.com/athletic/6566792/2025/08/22/barcelona-camp-nou-stadium-la-liga-champions-league/
-
-**Leoni is raw but he ticks a lot of boxes for Liverpool. This is how he'll fit in**\
-`As the 18-year-old central defender moves to Anfield from Parma of Serie A, Andy Jones analyses his game...`\
-https://nytimes.com/athletic/6563442/2025/08/22/liverpool-giovanni-leoni-liverpool-analysis/
 
