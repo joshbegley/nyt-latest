@@ -1,3 +1,15 @@
+**College football Week 0 picks against the spread: Iowa State-Kansas State headlines**\
+`The college football season kicks off with five games involving FBS teams, including a top-25 matchup in Ireland.`\
+https://nytimes.com/athletic/6567767/2025/08/22/college-football-week-0-picks-against-the-spread-iowa-state-kansas-state/
+
+**Search of Bolton’s Home Shows Uneasy Mix of Retribution and Law Enforcement**\
+`It is not clear what evidence the authorities have that John Bolton mishandled classified information, but President Trump’s efforts to punish rivals immediately stoked questions about the investigation.`\
+https://nytimes.com/2025/08/22/us/politics/trump-bolton-search-analysis.html
+
+**Holdout avoided: Marco Rossi agrees to terms on 3-year, $15 million contract with Wild**\
+`Rossi, 23, was a top-six center for Minnesota this past season and scored a career-high 24 goals and 60 points.`\
+https://nytimes.com/athletic/6471963/2025/08/22/marco-rossi-wild-contract/
+
 **Need a snappy team name for fantasy football? Check these out.**\
 `From player name puns, to Taylor Swift references, we've got a fantasy handle for you.`\
 https://nytimes.com/athletic/6567645/2025/08/22/best-fun-fantasy-football-team-names-taylor-swift-puns/
