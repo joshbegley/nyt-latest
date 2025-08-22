@@ -1,3 +1,11 @@
+**Man City v Tottenham Premier League preview, kick-off time, injury news and prediction**\
+`Manchester City host Tottenham in what is historically a high-scoring, entertaining affair.`\
+https://nytimes.com/athletic/6569037/2025/08/22/manchester-city-v-tottenham-premier-league-preview-can-spurs-spring-a-surprise/
+
+**What we're hearing about Ohio State: RB rotation, a breakout position group and more**\
+`Game week is almost here. Here's how Ohio State is shaping up at some key positions, including a surprisingly loaded group of tight ends.`\
+https://nytimes.com/athletic/6567187/2025/08/22/ohio-state-camp-takeaways-depth-chart-texas/
+
 **​North Korea Honors Its Soldiers Who Fought in Ukraine War**\
 `The North’s leader, Kim Jong-un, publicly consoled bereaved families, as well as awarding medals to soldiers returning from the force he has sent to aid Russia.`\
 https://nytimes.com/2025/08/22/world/asia/north-korea-ukraine-ceremony.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6568760/2025/08/22/steelers-53-man-roster-projectio
 **College football portal buzz: Late-rising transfers, QB battle domino effects and more**\
 `As the college football season kicks off, here's what were hearing around the country on depth charts, portal pickups and season openers.`\
 https://nytimes.com/athletic/6567708/2025/08/22/college-football-news-buzz-portal-depth-chart/
-
-**Hockey Diversity Alliance skates on amid DEI attacks and dwindling sponsorships**\
-`The HDA recently held its first annual "Summer Fest" event in Toronto, hosting 250 young aspiring hockey players of various backgrounds.`\
-https://nytimes.com/athletic/6549367/2025/08/22/hockey-diversity-alliance-nhl-dei-inclusion/
-
-**A closer look at new big leaguer Bubba Chandler and the 9 best starters still in Triple A**\
-`Chandler makes his major-league debut today. What is the outlook for him and the top starters remaining in Triple A?`\
-https://nytimes.com/athletic/6568174/2025/08/22/triple-a-starters-bubba-chandler-outlooks/
 

@@ -1,3 +1,11 @@
+**Man City v Tottenham Premier League preview, kick-off time, injury news and prediction**\
+`Manchester City host Tottenham in what is historically a high-scoring, entertaining affair.`\
+https://nytimes.com/athletic/6569037/2025/08/22/manchester-city-v-tottenham-premier-league-preview-can-spurs-spring-a-surprise/
+
+**What we're hearing about Ohio State: RB rotation, a breakout position group and more**\
+`Game week is almost here. Here's how Ohio State is shaping up at some key positions, including a surprisingly loaded group of tight ends.`\
+https://nytimes.com/athletic/6567187/2025/08/22/ohio-state-camp-takeaways-depth-chart-texas/
+
 **​North Korea Honors Its Soldiers Who Fought in Ukraine War**\
 `The North’s leader, Kim Jong-un, publicly consoled bereaved families, as well as awarding medals to soldiers returning from the force he has sent to aid Russia.`\
 https://nytimes.com/2025/08/22/world/asia/north-korea-ukraine-ceremony.html
