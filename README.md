@@ -1,3 +1,19 @@
+**Trump’s First Administration Tried to Stop Bolton’s Memoir**\
+`The book, in which John Bolton described repeated instances of corruption, was one of the most detailed and damaging accounts of Trump’s first term.`\
+https://nytimes.com/2025/08/22/us/politics/trump-bolton-memoir-room-where-it-happened.html
+
+**From Boss Tweed to Bike Lanes: N.Y.C. Graft Ain’t What It Used to Be**\
+`The city’s corruption once had ambition to match its soaring skyscrapers. Indictments this week described cut-rate schemes with far lower returns — and there was that cash in a potato-chip bag.`\
+https://nytimes.com/2025/08/22/nyregion/new-york-city-corruption.html
+
+**Drop and Give Me … One**\
+`Push-up challenges are trending. Before you try for 100 reps, focus on getting the exercise right.`\
+https://nytimes.com/2025/08/22/well/move/push-up-challenges-training.html
+
+**Day Bags That Work as Hard as You Do**\
+`A roundup of totes for the office that are both eminently functional and refreshingly stylish.`\
+https://nytimes.com/2025/08/22/t-magazine/work-bags-best.html
+
 **What Counts as a ‘National Emergency’?**\
 `In his seven months back in office, President Trump has declared nine national emergencies, plus a “crime emergency” in Washington.`\
 https://nytimes.com/video/us/100000010351409/what-counts-as-a-national-emergency.html
@@ -10,7 +26,7 @@ https://nytimes.com/athletic/6569933/2025/08/22/sec-football-9-game-schedule-ann
 `The Education Department said an investigation had found the public university and Gregory Washington, its first Black president, had supported diversity programs it views as discriminatory.`\
 https://nytimes.com/2025/08/22/us/george-mason-president-diversity-investigation.html
 
-**iTour Bus Crashes in Western New York, Injuring Passengers**\
+**Tour Bus Crashes in Western New York, Injuring Passengers**\
 `The crash, which occurred about 30 miles east of Buffalo, caused multiple injuries and shut down part of one of western New York’s main highways, officials said.`\
 https://nytimes.com/2025/08/22/nyregion/new-york-tour-bus-crash.html
 
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6544930/2025/08/22/tyler-dibling-everton-transfer-s
 **Covid Vaccine Opponent Tapped to Lead Federal Review Team**\
 `Panel members have been given a broad mandate, despite pleas from C.D.C. employees asking Robert F. Kennedy Jr. to stop spreading misinformation.`\
 https://nytimes.com/2025/08/22/health/covid-vaccines-rfk.html
-
-**13 New Songs You Need to Hear: Doja Cat, Laufey, Wolf Alice and More**\
-`Listen to tracks by Deftones, Lila Iké, Chance the Rappers and others.`\
-https://nytimes.com/2025/08/22/arts/music/playlist-doja-cat-laufey.html
-
-**Hegseth Authorizes Troops in D.C. to Carry Weapons**\
-`It remains unclear whether the National Guard soldiers will be armed as they walk through the city.`\
-https://nytimes.com/2025/08/22/us/politics/national-guard-weapons.html
-
-**Why Epstein’s Furious Grip on Washington Holds**\
-`It isn’t just members of the MAGA faithful who are feeling let down.`\
-https://nytimes.com/2025/08/22/opinion/democrats-republicans-epstein.html
-
-**Who Is John Bolton, Trump’s Former National Security Adviser?**\
-`A Republican mainstay who served multiple presidents, Mr. Bolton has become a persistent Trump critic since leaving the White House.`\
-https://nytimes.com/2025/08/22/us/politics/john-bolton-trump-national-security-adviser.html
 
