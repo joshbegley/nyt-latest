@@ -1,5 +1,5 @@
 **Alleged WNBA sex toy thrower arrested in New York on assault charges**\
-`The New York Police Department arrested a 32-year-old man from Ohio on Wednesday for allegedly throwing a sex toy that hit other fans during a WNBA game earlier this month.`\
+`Police say a 32-year-old man from Ohio smuggled in a green sex toy that he flung from the stands, which hit a young girl.`\
 https://nytimes.com/athletic/6568448/2025/08/21/wnba-sex-toy-thrower-arrested-new-york/
 
 **Mets can't shake out of their funk in series loss to lowly Nationals**\
