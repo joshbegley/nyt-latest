@@ -1,3 +1,15 @@
+**Revealed: Nuno's row with Edu at the heart of his Nottingham Forest unhappiness**\
+`A row between Nuno and Edu at Nottingham Forest has sparked recent discontent over the state of the club's squad`\
+https://nytimes.com/athletic/6569506/2025/08/22/nuno-edu-row-nottingham-forest/
+
+**Giants stock report: Jaxson Dart did all he could to ignite optimism for future**\
+`Who else saw their stock rise this preseason? Fellow rookies Abdul Carter and Marcus Mbow make the list alongside Dart. `\
+https://nytimes.com/athletic/6568934/2025/08/22/ny-giants-jaxson-dart-preseason/
+
+**Hoping to Jump-Start Talks, Canada to Drop Some Retaliatory Tariffs on U.S. Products**\
+`Canada’s leader said he would follow the United States in dropping tariffs against American goods covered by the existing free trade agreement.`\
+https://nytimes.com/2025/08/22/world/canada/canada-us-tariffs-drop-trump.html
+
 **Battling Power Outages and Heat Wave, Iran Orders More Shutdowns**\
 `Amid suffocating temperatures, the Iranian authorities are closing public offices and cutting water and electricity as the country struggles with an energy crisis.`\
 https://nytimes.com/2025/08/22/world/middleeast/iran-heat-shutdown-outages.html
