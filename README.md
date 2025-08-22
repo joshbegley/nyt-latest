@@ -1,3 +1,11 @@
+**Everton pursuing deal to sign England international Mace from Leicester**\
+`Mace, 21, is entering the final year of her contract with Leicester.`\
+https://nytimes.com/athletic/6568984/2025/08/22/ruby-mace-everton-leicester-transfer/
+
+**Powell Takes Center Stage, With Wall Street and Washington Watching**\
+`The Fed chief is expected to address inflation, interest rates and the economy in his speech on Friday. Will he also confront President Trump’s attacks on central bank independence?`\
+https://nytimes.com/2025/08/22/business/dealbook/powell-trump-jackson-hole.html
+
 **Man City v Tottenham Premier League preview, kick-off time, injury news and prediction**\
 `Manchester City host Tottenham in what is historically a high-scoring, entertaining affair.`\
 https://nytimes.com/athletic/6569037/2025/08/22/manchester-city-v-tottenham-premier-league-preview-can-spurs-spring-a-surprise/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6567370/2025/08/22/carson-fulmer-angels-ceremonial-
 **Why the Bengals aren't as worried about the defense as you are, despite preseason flops**\
 `The starters were shredded by the Eagles and Commanders, but there's in-house optimism about what's happened in practices.`\
 https://nytimes.com/athletic/6568239/2025/08/22/bengals-defense-preseason-al-golden/
-
-**Steelers 53-man roster projection after preseason finale win over Panthers**\
-`With the preseason now complete, cut-down day looms on Tuesday as players on the fringe had their final chance to prove themselves.`\
-https://nytimes.com/athletic/6568760/2025/08/22/steelers-53-man-roster-projection-panthers/
-
-**College football portal buzz: Late-rising transfers, QB battle domino effects and more**\
-`As the college football season kicks off, here's what were hearing around the country on depth charts, portal pickups and season openers.`\
-https://nytimes.com/athletic/6567708/2025/08/22/college-football-news-buzz-portal-depth-chart/
 
