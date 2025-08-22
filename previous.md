@@ -1,3 +1,7 @@
+**Keegan Bradley: 'I'm more worried about the Ryder Cup than my game'**\
+`Bradley is 11th in the standings, the same position he was in when Zach Johnson passed him over for Rome two years ago.`\
+https://nytimes.com/athletic/6568496/2025/08/21/ryder-cup-2025-keegan-bradley-captain-pick/
+
 **Alleged WNBA sex toy thrower arrested in New York on assault charges**\
 `Police say a 32-year-old man from Ohio smuggled in a green sex toy that he flung from the stands, which hit a young girl.`\
 https://nytimes.com/athletic/6568448/2025/08/21/wnba-sex-toy-thrower-arrested-new-york/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6568347/2025/08/21/cowboys-jerry-jones-micah-parson
 **Taking on the Fed, Trump Combines Retribution Tactics With a Power Play**\
 `The president’s second term has been marked by his eagerness to go after his foes and his assertions of presidential authority. Both traits are on display as he seeks control over the central bank.`\
 https://nytimes.com/2025/08/21/us/politics/trump-fed-federal-reserve.html
-
-**T's Sept. 7 Men's Fashion Issue**\
-``\
-https://nytimes.com/issue/t-magazine/2025/08/21/ts-sept-7-mens-fashion-issue-2025
 

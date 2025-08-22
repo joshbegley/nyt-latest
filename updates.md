@@ -1,3 +1,7 @@
+**Keegan Bradley: 'I'm more worried about the Ryder Cup than my game'**\
+`Bradley is 11th in the standings, the same position he was in when Zach Johnson passed him over for Rome two years ago.`\
+https://nytimes.com/athletic/6568496/2025/08/21/ryder-cup-2025-keegan-bradley-captain-pick/
+
 **Alleged WNBA sex toy thrower arrested in New York on assault charges**\
 `Police say a 32-year-old man from Ohio smuggled in a green sex toy that he flung from the stands, which hit a young girl.`\
 https://nytimes.com/athletic/6568448/2025/08/21/wnba-sex-toy-thrower-arrested-new-york/
