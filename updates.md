@@ -1,3 +1,15 @@
+**Can Trump Fire a Fed Governor? What to Know About the Legal Arguments**\
+`The Supreme Court has indicated that there are distinctive reasons to shield the Federal Reserve from political interference.`\
+https://nytimes.com/2025/08/22/us/politics/can-trump-fire-a-fed-governor.html
+
+**Holdout avoided: Marco Rossi signs 3-year, $15 million contract with Wild**\
+`Rossi, 23, was a top-six center for Minnesota this past season and scored a career-high 24 goals and 60 points.`\
+https://nytimes.com/athletic/6471963/2025/08/22/marco-rossi-wild-contract/
+
+**Analyzing the fantasy football ADP movers as drafts approach**\
+`Whose fantasy stock is shifting as drafts approach? Michael Salfino analyzes who's up and who's down.`\
+https://nytimes.com/athletic/6569401/2025/08/22/fantasy-football-nfl-camp-takeaways/
+
 **College football Week 0 picks against the spread: Iowa State-Kansas State headlines**\
 `The college football season kicks off with five games involving FBS teams, including a top-25 matchup in Ireland.`\
 https://nytimes.com/athletic/6567767/2025/08/22/college-football-week-0-picks-against-the-spread-iowa-state-kansas-state/

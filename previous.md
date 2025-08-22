@@ -1,3 +1,7 @@
+**Can Trump Fire a Fed Governor? What to Know About the Legal Arguments**\
+`The Supreme Court has indicated that there are distinctive reasons to shield the Federal Reserve from political interference.`\
+https://nytimes.com/2025/08/22/us/politics/can-trump-fire-a-fed-governor.html
+
 **College football Week 0 picks against the spread: Iowa State-Kansas State headlines**\
 `The college football season kicks off with five games involving FBS teams, including a top-25 matchup in Ireland.`\
 https://nytimes.com/athletic/6567767/2025/08/22/college-football-week-0-picks-against-the-spread-iowa-state-kansas-state/
@@ -6,7 +10,7 @@ https://nytimes.com/athletic/6567767/2025/08/22/college-football-week-0-picks-ag
 `It is not clear what evidence the authorities have that John Bolton mishandled classified information, but President Trump’s efforts to punish rivals immediately stoked questions about the investigation.`\
 https://nytimes.com/2025/08/22/us/politics/trump-bolton-search-analysis.html
 
-**Holdout avoided: Marco Rossi agrees to terms on 3-year, $15 million contract with Wild**\
+**Holdout avoided: Marco Rossi signs 3-year, $15 million contract with Wild**\
 `Rossi, 23, was a top-six center for Minnesota this past season and scored a career-high 24 goals and 60 points.`\
 https://nytimes.com/athletic/6471963/2025/08/22/marco-rossi-wild-contract/
 
@@ -18,8 +22,8 @@ https://nytimes.com/athletic/6567645/2025/08/22/best-fun-fantasy-football-team-n
 `At least half a million residents in Gaza City and its surrounding areas are officially living under famine, according to a hunger monitoring group that the United Nations and international aid groups rely on for assessing global crises.`\
 https://nytimes.com/video/world/middleeast/100000010355470/famine-report-gaza-city-.html
 
-**A sleeper in Washington, a 'windfall' in Indy and more fantasy football spin from NFL camps**\
-`Michael Salfino identifies the latest NFL camp news impacting player values ahead of a busy fantasy football draft weekend.`\
+**Analyzing the fantasy football ADP movers as drafts approach**\
+`Whose fantasy stock is shifting as drafts approach? Michael Salfino analyzes who's up and who's down.`\
 https://nytimes.com/athletic/6569401/2025/08/22/fantasy-football-nfl-camp-takeaways/
 
 **If Your Blow Dryer Brush Isn’t Working, You Probably Need to Clean It**\
@@ -33,8 +37,4 @@ https://nytimes.com/newsgraphics/card-story/wc-how-to-sharpen-knives
 **Scoop City: The new standard in Chicago**\
 `What's different about Ben Johnson, plus Caleb Williams, Cam Ward and Dillon Gabriel lead our players to watch this weekend.`\
 https://nytimes.com/athletic/6569629/2025/08/22/bears-ben-johnson-detail-dillon-gabriel-browns-scoop-city/
-
-**Stocks and Bonds Rise After Powell Suggests Rate Cuts Could Be Imminent**\
-`Investors’ expectations of lower interest rates were reflected in the major stock indexes and lower government bond yields.`\
-https://nytimes.com/2025/08/22/business/powell-rate-cut-stocks-bonds.html
 
