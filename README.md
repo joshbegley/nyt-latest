@@ -1,3 +1,7 @@
+**WNBA breaks single-season attendance record set in 2002**\
+`With three weeks left in the regular season and three rounds of postseason play ahead, the new record will continue to rise.`\
+https://nytimes.com/athletic/6569313/2025/08/22/wnba-new-single-season-attendance-record/
+
 **Nuno says 'relationship has changed' with Forest owner Marinakis**\
 `The Forest head coach's comments come a week after he said the club have a “major problem” after the summer window.`\
 https://nytimes.com/athletic/6569287/2025/08/22/nuno-nottingham-forest-marinakis/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/22/us/politics/congress-olympics-sports-diplomacy.ht
 **Is It OK to Request Custom Music in an Uber?**\
 `A ruling on how to please all the ears in a ride share.`\
 https://nytimes.com/interactive/2025/08/22/magazine/uber-music-hodgman-quiz.html
-
-**F.B.I. Searches Maryland Home of John Bolton, Ex-Trump Adviser**\
-`An investigation seeks to determine whether Mr. Bolton illegally shared or possessed classified information, according to two people familiar with the case.`\
-https://nytimes.com/2025/08/22/us/politics/john-bolton-trump-home-fbi.html
 
