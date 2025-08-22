@@ -1,3 +1,11 @@
+**Novak Djokovic calls out top players for not challenging tennis schedule changes**\
+`While some top names have publicly spoken out against the ATP Tour changes, Djokovic wishes more players complained years ago.`\
+https://nytimes.com/athletic/6570320/2025/08/22/novak-djokovic-us-open-atp-tour-comments/
+
+**With Close Associates Under Fire, Mayor Adams Remains Defiant**\
+`Mayor Eric Adams defended his administration and his re-election bid on Friday amid corruption charges against some of his closest allies.`\
+https://nytimes.com/2025/08/22/nyregion/adams-mamdani-nyc-mayor.html
+
 **With Close Associates Under Fire, Mayor Adams Remains Defiant**\
 `Mayor Eric Adams defended his administration and his re-election bid on Friday amid corruption charges against some of his closest allies.`\
 https://nytimes.com/2025/08/22/nyregion/with-close-associates-under-fire-mayor-adams-remains-defiant.html
