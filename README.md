@@ -1,3 +1,8 @@
+**Ipswich reach agreement with Leicester to sign McAteer**\
+`The deal for the 23-year-old is worth £12m guaranteed over three years plus add-ons.
+`\
+https://nytimes.com/athletic/6568974/2025/08/22/ipswich-kasey-mcateer-transfer-leicester/
+
 **Pair of Immigration Raids Disrupt a New Jersey Shipping Hub**\
 `In Edison, thousands of immigrant workers toil in hundreds of warehouses, sorting millions of boxes arriving from nearby ports.`\
 https://nytimes.com/2025/08/22/nyregion/immigration-raids-edison-new-jersey.html
@@ -33,8 +38,4 @@ https://nytimes.com/athletic/6568418/2025/08/22/fantasy-premier-league-live-qa-g
 **Word of the Day: gulag**\
 `This word has appeared in 43 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2025/08/22/learning/word-of-the-day-gulag.html
-
-**The New York Times in Print for Friday, Aug. 22, 2025**\
-``\
-https://nytimes.com/issue/todayspaper/2025/08/22/todays-new-york-times
 
