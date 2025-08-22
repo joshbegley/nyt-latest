@@ -1,3 +1,11 @@
+**Javier Mascherano defends red card, confirms Lionel Messi out vs. D.C. United**\
+`Mascherano fires back at critics over his red card antics and explains why Messi won’t be on the pitch against D.C. United.`\
+https://nytimes.com/athletic/6569781/2025/08/22/javier-mascherano-defends-red-card/
+
+**Maxwell Never Witnessed Trump in ‘Inappropriate Setting,’ Transcript Says**\
+`The transcripts and audio, covering two days of discussions between Ms. Maxwell and Todd Blanche, the No. 2 post at the Justice Department, are likely to raise as many questions as they answer.`\
+https://nytimes.com/2025/08/22/us/politics/ghislaine-maxwell-doj-transcript-trump.html
+
 **The biggest reason the Giants couldn't stay in the postseason race**\
 `Giants' hitters have performed as expected or worse than expected. The lack of breakout seasons has really hurt their playoff hopes.`\
 https://nytimes.com/athletic/6568081/2025/08/22/sf-giants-team-weakness-postseason-race/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/08/22/us/politics/abrego-garcia-free-maryland.html
 **Scientists Split Giraffes Into Four Species. Three Are in Trouble.**\
 `A reassessment of the iconic species has “some dramatic implications for how we view giraffe conservation across Africa,” a new study concludes.`\
 https://nytimes.com/2025/08/22/science/giraffes-conservation-dna.html
-
-**Jefferson-Wooden takes down Richardson at Brussels Diamond League**\
-`Jefferson-Wooden ran a 10.76s, with fellow American Sha’Carri Richardson finishing second in 11.08s.`\
-https://nytimes.com/athletic/6570039/2025/08/22/jefferson-wooden-diamond-league-brussels/
-
-**Two-time Olympic ski champion Eileen Gu hurt while training in New Zealand**\
-`In a social media post, Gu hinted at the possibility of an overzealous fan disrupting her while training. `\
-https://nytimes.com/athletic/6569901/2025/08/22/olympic-ski-eileen-gu-injury-training/
 
