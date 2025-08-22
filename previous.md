@@ -1,3 +1,23 @@
+**Judge Orders That ‘Alligator Alcatraz’ Detention Center Be Shut Down for Now**\
+`A judge ruled that the state and federal governments acted illegally by not conducting an environmental review before building the center in the Florida Everglades.`\
+https://nytimes.com/2025/08/21/us/alligator-alcatraz-florida-ruling.html
+
+**Erik Menendez was questioned about illicit cellphone use inside the prison.**\
+`By Tim Arango and Matt Stevens`\
+https://nytimes.com/live/2025/08/21/us/menendez-brothers-parole-hearing/erik-menendez-was-questioned-about-illicit-cellphone-use-inside-the-prison
+
+**‘I was not raised with a moral foundation,’ Erik Menendez told the parole board.**\
+`By Matt Stevens and Tim Arango`\
+https://nytimes.com/live/2025/08/21/us/menendez-brothers-parole-hearing/i-was-not-raised-with-a-moral-foundation-erik-menendez-told-the-parole-board
+
+**Erik Menendez apologized to his family in closing remarks.**\
+`By Tim Arango and Matt Stevens`\
+https://nytimes.com/live/2025/08/21/us/menendez-brothers-parole-hearing/erik-menendez-closing-statement
+
+**Live Updates: Menendez Brother Loses Bid for Release Three Decades After Sensational Murder**\
+`A parole panel said Erik Menendez should stay in prison. Lyle Menendez goes before the board on Friday.`\
+https://nytimes.com/live/2025/08/21/us/menendez-brothers-parole-hearing
+
 **Crown will not appeal decision in Hockey Canada sexual assault trial**\
 `The decision came following a trial that garnered widespread attention, spanned two months and featured a number of bizarre twists.`\
 https://nytimes.com/athletic/6568637/2025/08/21/hockey-canada-sexual-assault-trial-appeal/
@@ -17,24 +37,4 @@ https://nytimes.com/2025/08/21/us/politics/trump-investigation-tariffs-wind-turb
 **George Costanza bobblehead giveaway prompts long lines ahead of Yankees-Red Sox game**\
 `Fans were eager to get their hands on the bobblehead of their favorite assistant to the traveling secretary `\
 https://nytimes.com/athletic/6568640/2025/08/21/yankees-george-costanza-bobblehead/
-
-**Five parting thoughts as Chargers wrap training camp: CB battle, OL depth**\
-`The Chargers wrapped up training camp Thursday ahead of the final preseason game Sunday against the 49ers.`\
-https://nytimes.com/athletic/6568564/2025/08/21/chargers-training-camp-parting-thoughts/
-
-**Trump Budget Office Is Withholding H.I.V. Funds That Congress Appropriated**\
-`Lawmakers allocated $6 billion this fiscal year for PEPFAR, the H.I.V. prevention and treatment program, but the administration has indicated it will release less than half of that.`\
-https://nytimes.com/2025/08/21/health/hiv-aids-pepfar-funding-trump.html
-
-**California Lawmakers Approve Plan to Counter Texas Redistricting**\
-`On Thursday, lawmakers in Sacramento approved a sweeping plan to elect more Democrats by redrawing congressional districts. This would counter the gerrymandered map that Republicans in Texas passed earlier the same day.`\
-https://nytimes.com/video/us/politics/100000010354945/california-votes-redistricting-gerrymandering.html
-
-**Dodger Details: A disappointing split in Denver, the left-field problem and more**\
-`An exhilarating sweep of the Padres was immediately followed by a dud and a split to the 37-win Rockies.`\
-https://nytimes.com/athletic/6568454/2025/08/21/dodger-details-rockies-split-left-field-michael-conforto/
-
-**Steelers 1st-round pick Derrick Harmon carted off field after knee injury in preseason game**\
-`As Harmon fell to the turf, he appeared to twist his knee.`\
-https://nytimes.com/athletic/6568572/2025/08/21/steelers-derrick-harmon-carted-off-field-knee-injury-preseason/
 

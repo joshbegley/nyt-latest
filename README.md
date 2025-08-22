@@ -1,3 +1,15 @@
+**White House Lists Smithsonian Exhibits It Finds Objectionable**\
+`The Trump administration highlighted material dealing with topics like sexuality, slavery and immigration.`\
+https://nytimes.com/2025/08/21/arts/design/smithsonian-trump.html
+
+**‘Twelfth Night’ Review: Lupita Nyong’o in Illyria**\
+`The actress is luminous, alongside her look-alike brother Junior Nyong’o, Sandra Oh and Peter Dinklage, in Shakespeare’s comedy at the newly revived Delacorte Theater.`\
+https://nytimes.com/2025/08/21/theater/twelfth-night-review-lupita-nyongo-in-illyria.html
+
+**Kite-Flying Weather**\
+`Gia Bosko offers us a wide open Friday grid.`\
+https://nytimes.com/2025/08/21/crosswords/daily-puzzle-2025-08-22.html
+
 **Judge Orders That ‘Alligator Alcatraz’ Detention Center Be Shut Down for Now**\
 `A judge ruled that the state and federal governments acted illegally by not conducting an environmental review before building the center in the Florida Everglades.`\
 https://nytimes.com/2025/08/21/us/alligator-alcatraz-florida-ruling.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6568637/2025/08/21/hockey-canada-sexual-assault-tri
 **Tracking the Aftermath From Erin on the Ocean**\
 `Meteorologists piece together the aftereffects in a hurricane’s path, and look ahead to potential future storms.`\
 https://nytimes.com/2025/08/21/climate/hurricane-erin-wake-mixing-temperature.html
-
-**Jayden Daniels confident Commanders, WR Terry McLaurin will end stalemate**\
-`Washington's star QB shared his thoughts with The Athletic’s Dianna Russini on the latest episode of Scoop City.`\
-https://nytimes.com/athletic/6568494/2025/08/21/jayden-daniels-terry-mclaurin-commanders-contract/
-
-**Trump Starts Investigation That Could Lead to Tariffs on Wind Turbines**\
-`The tariffs would hamper a clean energy industry that the president has often railed against.`\
-https://nytimes.com/2025/08/21/us/politics/trump-investigation-tariffs-wind-turbines.html
-
-**George Costanza bobblehead giveaway prompts long lines ahead of Yankees-Red Sox game**\
-`Fans were eager to get their hands on the bobblehead of their favorite assistant to the traveling secretary `\
-https://nytimes.com/athletic/6568640/2025/08/21/yankees-george-costanza-bobblehead/
 
