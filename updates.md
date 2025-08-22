@@ -1,3 +1,15 @@
+**Ex-Employee Sentenced to 4 Years for Sabotaging Company’s Computer Network**\
+`The man, a former software developer for Eaton Corporation, wrote malicious code that crashed servers on the company’s network in 2019, prosecutors said.`\
+https://nytimes.com/2025/08/22/business/eaton-corporation-hack-prison-sentence.html
+
+**Will Museums Fight Back Against Trump?**\
+`The president’s attacks on the Smithsonian Institution and other museums have become an effort to redefine why such places exist.`\
+https://nytimes.com/2025/08/22/us/politics/trump-smithsonian-museums.html
+
+**Read the Justice Dept. Interview With Ghislaine Maxwell**\
+`The department released transcripts from two days of discussions between Ms. Maxwell, the longtime confidante of the disgraced financier Jeffrey Epstein, and Todd Blanche, the department’s No. 2 official.`\
+https://nytimes.com/interactive/2025/08/22/us/ghislaine-maxwell-transcript-read.html
+
 **Read the Justice Dept. Interview With Ghislaine Maxwell**\
 `The department released transcripts from two days of discussions between Ms. Maxwell, the longtime confidante of the disgraced financier Jeffrey Epstein, and Todd Blanche, the department’s No. 2 official.`\
 https://nytimes.com/interactive/2025/08/22/us/combined-ghislaine.html
