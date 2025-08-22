@@ -1,3 +1,7 @@
+**The New York Times in Print for Friday, Aug. 22, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/08/22/todays-new-york-times
+
 **Dukes, cows, and the 'grimy' craftsmanship behind the cricket ball**\
 `Dukes, now based in a factory in east London, have been manufacturing cricket balls used in Test cricket in England since the 1760s`\
 https://nytimes.com/athletic/6560094/2025/08/22/cricket-ball-dukes-cow-science/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6567594/2025/08/22/douglas-luiz-transfer-nottingham
 **Aston Villa's search for a No 10: Do they need Asensio back? Is it time for Buendia?**\
 `A wide player is on the list of priorities, but Unai Emery needs to optimise Villa's attacking output through his No 10s`\
 https://nytimes.com/athletic/6559986/2025/08/22/aston-villa-marco-asensio-emiliano-buendia-no-10/
-
-**FPL Gameweek 2 preview: Evanilson’s edge, Haaland captaincy and Eze knock-on effect**\
-`While one gameweek is far too small a sample size to draw long-term conclusions from, spotting the right trends can give you the edge`\
-https://nytimes.com/athletic/6563175/2025/08/22/fantasy-premier-league-fpl-gameweek-2-preview-eze-arsenal-haaland/
 

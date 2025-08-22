@@ -1,3 +1,7 @@
+**The New York Times in Print for Friday, Aug. 22, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/08/22/todays-new-york-times
+
 **Dukes, cows, and the 'grimy' craftsmanship behind the cricket ball**\
 `Dukes, now based in a factory in east London, have been manufacturing cricket balls used in Test cricket in England since the 1760s`\
 https://nytimes.com/athletic/6560094/2025/08/22/cricket-ball-dukes-cow-science/
