@@ -1,3 +1,7 @@
+**Trump Threatens to Fire Fed Governor, Escalating Pressure on Central Bank**\
+`President Trump said he would fire Lisa Cook, a Federal Reserve governor, if she did not resign. But his ability to fire a Fed governor is limited.`\
+https://nytimes.com/2025/08/22/business/trump-threatens-to-fire-fed-governor-escalating-pressure-on-central-bank.html
+
 **Malik Beasley not a target of federal gambling investigation, lawyer says**\
 `The 28-year-old was named as a person of interest in a federal gambling investigation related to gambling in late June. `\
 https://nytimes.com/athletic/6569233/2025/08/22/malik-beasley-gambling-investigation-latest-nba/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6569300/2025/08/22/unai-emery-aston-villa-transfer-
 **Man United 'bomb squad' 'not a good thing', players could still return says Amorim**\
 `Alejandro Garnacho, Antony, Jadon Sancho and Tyrell Malacia have trained separately from the rest of the first team squad this summer.`\
 https://nytimes.com/athletic/6569255/2025/08/22/manchester-united-transfer-bomb-squad-ruben-amorim/
-
-**Fantasy football news: 2 rookie running back soaring up draft lists**\
-`Andy Behrens spins the hot fantasy football topics emerging from NFL training camps, including TreVeyon Henderson Hype Week.`\
-https://nytimes.com/athletic/6568777/2025/08/22/fantasy-football-news-buzz-report/
 
