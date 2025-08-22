@@ -1,3 +1,7 @@
+**Elon Musk’s X Agrees to Settlements With Thousands of Former Employees**\
+`The settlements are an about-face for the billionaire, whose company fought with former workers over whether it owed them severance pay.`\
+https://nytimes.com/2025/08/22/technology/elon-musk-x-settlements.html
+
 **Javier Mascherano defends red card, confirms Lionel Messi out vs. D.C. United**\
 `Mascherano fires back at critics over his red card antics and explains why Messi won’t be on the pitch against D.C. United.`\
 https://nytimes.com/athletic/6569781/2025/08/22/javier-mascherano-defends-red-card/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/22/travel/southwest-extra-seat-plus-size-travelers.h
 **Abrego Garcia, Free From Tennessee Jail, Is Returning to Maryland, Lawyer Says**\
 `It remains unclear what will happen next to Kilmar Armando Abrego Garcia. The Justice Department has said that if he was released from custody in Tennessee, it would likely seek to re-deport him.`\
 https://nytimes.com/2025/08/22/us/politics/abrego-garcia-free-maryland.html
-
-**Scientists Split Giraffes Into Four Species. Three Are in Trouble.**\
-`A reassessment of the iconic species has “some dramatic implications for how we view giraffe conservation across Africa,” a new study concludes.`\
-https://nytimes.com/2025/08/22/science/giraffes-conservation-dna.html
 

@@ -1,3 +1,7 @@
+**Elon Musk’s X Agrees to Settlements With Thousands of Former Employees**\
+`The settlements are an about-face for the billionaire, whose company fought with former workers over whether it owed them severance pay.`\
+https://nytimes.com/2025/08/22/technology/elon-musk-x-settlements.html
+
 **Javier Mascherano defends red card, confirms Lionel Messi out vs. D.C. United**\
 `Mascherano fires back at critics over his red card antics and explains why Messi won’t be on the pitch against D.C. United.`\
 https://nytimes.com/athletic/6569781/2025/08/22/javier-mascherano-defends-red-card/
