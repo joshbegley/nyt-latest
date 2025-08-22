@@ -1,3 +1,7 @@
+**Is It OK to Request Custom Music in an Uber?**\
+`A ruling on how to please all the ears in a ride share.`\
+https://nytimes.com/interactive/2025/08/22/magazine/uber-music-hodgman-quiz.html
+
 **F.B.I. Searches Maryland Home of John Bolton, Ex-Trump Adviser**\
 `An investigation seeks to determine whether Mr. Bolton illegally shared or possessed classified information, according to two people familiar with the case.`\
 https://nytimes.com/2025/08/22/us/politics/john-bolton-trump-home-fbi.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6567437/2025/08/22/broncos-mailbag-jahdae-barron-se
 **Joe Ryan is having one of the best seasons by a Twins starting pitcher in 25 years**\
 `As the Twins crumble around him, Ryan is neck and neck with Sonny Gray for Minnesota's best season by a starter since Johan Santana.`\
 https://nytimes.com/athletic/6562113/2025/08/22/joe-ryan-twins-sonny-gray-johan-santana/
-
-**ND mailbag: CJ Carr's room for error, SEC's move to nine conference games**\
-`In the final Irish mailbag before kickoff, we have a QB decision to discuss, Notre Dame's noncon future against SEC opponents and more.`\
-https://nytimes.com/athletic/6568253/2025/08/22/notre-dame-mailbag-cj-carr-sec/
 
