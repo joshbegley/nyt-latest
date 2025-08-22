@@ -1,3 +1,7 @@
+**Trump Revels in a ‘Nice’ Gesture From Putin**\
+`The Russian president sent his American counterpart a photograph of the two of them from their face-to-face meeting.`\
+https://nytimes.com/2025/08/22/us/politics/trump-putin-photo.html
+
 **Southwest Is Changing Its Rules for Plus-Size Passengers**\
 `Among other changes, the airline will soon require travelers who “encroach upon the neighboring seat” to purchase an additional ticket, which might not be refunded.`\
 https://nytimes.com/2025/08/22/travel/southwest-extra-seat-plus-size-travelers.html
