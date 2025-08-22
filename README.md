@@ -1,3 +1,15 @@
+**Fearing Customs Chaos, DHL Joins Others in Suspending U.S. Shipments**\
+`The halt by one of the world’s largest couriers comes after President Trump eliminated an exemption on tariffs levied on imported goods valued under $800.`\
+https://nytimes.com/2025/08/22/business/dhl-us-shipments-suspended-de-minimis.html
+
+**What to Know About the Allegations Against Lisa Cook of the Fed**\
+`Trump administration officials have accused the Federal Reserve governor of mortgage fraud and called for her to resign.`\
+https://nytimes.com/2025/08/22/us/politics/trump-lisa-cook-fed-mortgage-fraud.html
+
+**Trump Signals Fourth Delay of TikTok Ban**\
+`The short-form video app has until mid-September to change its ownership structure or face a ban in the United States, after a number of deadline extensions from President Trump.`\
+https://nytimes.com/2025/08/22/business/trump-tiktok-ban-deadline.html
+
 **Can Trump Fire a Fed Governor? What to Know About the Legal Arguments**\
 `The Supreme Court has indicated that there are distinctive reasons to shield the Federal Reserve from political interference.`\
 https://nytimes.com/2025/08/22/us/politics/can-trump-fire-a-fed-governor.html
@@ -25,16 +37,4 @@ https://nytimes.com/video/world/middleeast/100000010355470/famine-report-gaza-ci
 **Analyzing the fantasy football ADP movers as drafts approach**\
 `Whose fantasy stock is shifting as drafts approach? Michael Salfino analyzes who's up and who's down.`\
 https://nytimes.com/athletic/6569401/2025/08/22/fantasy-football-nfl-camp-takeaways/
-
-**If Your Blow Dryer Brush Isn’t Working, You Probably Need to Clean It**\
-`(No description)`\
-https://nytimes.com/newsgraphics/card-story/wc-how-to-clean-blow-dryer-brush
-
-**Sharpening Your Knives Incorrectly Can Damage Their Blades. Here’s How to Do It Right.**\
-`(No description)`\
-https://nytimes.com/newsgraphics/card-story/wc-how-to-sharpen-knives
-
-**Scoop City: The new standard in Chicago**\
-`What's different about Ben Johnson, plus Caleb Williams, Cam Ward and Dillon Gabriel lead our players to watch this weekend.`\
-https://nytimes.com/athletic/6569629/2025/08/22/bears-ben-johnson-detail-dillon-gabriel-browns-scoop-city/
 
