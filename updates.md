@@ -1,3 +1,7 @@
+**Trump Budget Office Is Withholding H.I.V. Funds That Congress Appropriated**\
+`Lawmakers allocated $6 billion this fiscal year for PEPFAR, the H.I.V. prevention and treatment program, but the administration has indicated it will release less than half of that.`\
+https://nytimes.com/2025/08/21/health/hiv-aids-pepfar-funding-trump.html
+
 **California Lawmakers Approve Plan to Counter Texas Redistricting**\
 `On Thursday, lawmakers in Sacramento approved a sweeping plan to elect more Democrats by redrawing congressional districts. This would counter the gerrymandered map that Republicans in Texas passed earlier the same day.`\
 https://nytimes.com/video/us/politics/100000010354945/california-votes-redistricting-gerrymandering.html

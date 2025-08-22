@@ -1,3 +1,15 @@
+**Trump Starts Investigation That Could Lead to Tariffs on Wind Turbines**\
+`The tariffs would hamper a clean energy industry that the president has often railed against.`\
+https://nytimes.com/2025/08/21/us/politics/trump-investigation-tariffs-wind-turbines.html
+
+**George Costanza bobblehead giveaway prompts long lines ahead of Yankees-Red Sox game**\
+`Fans were eager to get their hands on the bobblehead of their favorite assistant to the traveling secretary `\
+https://nytimes.com/athletic/6568640/2025/08/21/yankees-george-costanza-bobblehead/
+
+**Five parting thoughts as Chargers wrap training camp: CB battle, OL depth**\
+`The Chargers wrapped up training camp on Thursday ahead of the final preseason game Sunday against the 49ers.`\
+https://nytimes.com/athletic/6568564/2025/08/21/chargers-training-camp-parting-thoughts/
+
 **Trump Budget Office Is Withholding H.I.V. Funds That Congress Appropriated**\
 `Lawmakers allocated $6 billion this fiscal year for PEPFAR, the H.I.V. prevention and treatment program, but the administration has indicated it will release less than half of that.`\
 https://nytimes.com/2025/08/21/health/hiv-aids-pepfar-funding-trump.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/08/21/us/colorado-dairy-farm-deaths.html
 **Keegan Bradley: 'I'm more worried about the Ryder Cup than my game'**\
 `Bradley is 11th in the standings, the same position he was in when Zach Johnson passed him over for Rome two years ago.`\
 https://nytimes.com/athletic/6568496/2025/08/21/ryder-cup-2025-keegan-bradley-captain-pick/
-
-**Alleged WNBA sex toy thrower arrested in New York on assault charges**\
-`Police say a 32-year-old man from Ohio smuggled in a green sex toy that he flung from the stands, which hit a young girl.`\
-https://nytimes.com/athletic/6568448/2025/08/21/wnba-sex-toy-thrower-arrested-new-york/
-
-**Mets can't shake out of their funk in series loss to lowly Nationals**\
-`It’s the Mets' first series loss in the nation’s capital since 2021, when Soto played right field for the home team.`\
-https://nytimes.com/athletic/6568447/2025/08/21/mets-cant-shake-funk-series-loss-nationals/
-
-**‘Flying Blind’: Trump Strips Government of Expertise at a High-Stakes Moment**\
-`President Trump has few sources of independent advice just as he is trying to broker an end to the Russian invasion of Ukraine, perhaps the trickiest negotiation of his presidency.`\
-https://nytimes.com/2025/08/21/us/politics/trump-government-expertise.html
 
