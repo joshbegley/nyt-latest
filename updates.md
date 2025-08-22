@@ -1,3 +1,15 @@
+**The New York Times International Edition in Print for Saturday, Aug. 23, 2025**\
+``\
+https://nytimes.com/issue/todaysinyt/2025/08/22/todays-new-york-times-international-edition
+
+**Nvidia Chief in Talks With China to Allay Security Fears Over A.I. Chips**\
+`Jensen Huang said he was “surprised” by questions about his company’s chips, given China’s eagerness to acquire them for advanced A.I systems.`\
+https://nytimes.com/2025/08/22/business/jensen-huang-nvidia-china.html
+
+**The Crowdfunded War Map That Ukrainians Check Every Morning**\
+`The online DeepState map, based on geolocated combat footage and tips from Ukrainian Army sources, draws 900,000 views each day and acts as a counterbalance to the military’s omissions.`\
+https://nytimes.com/2025/08/22/world/europe/ukraine-russia-deepstate-war-map.html
+
 **Big 12 odds, projected win totals, best bets: How the most balanced conference stacks up**\
 `The Big 12 doesn't have a clear favorite, but instead a jumble of teams bunched closely together in the odds. It could be weekly chaos.`\
 https://nytimes.com/athletic/6563115/2025/08/22/big-12-odds-win-totals-projections-best-bets/

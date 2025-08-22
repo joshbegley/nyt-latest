@@ -1,3 +1,15 @@
+**The New York Times International Edition in Print for Saturday, Aug. 23, 2025**\
+``\
+https://nytimes.com/issue/todaysinyt/2025/08/22/todays-new-york-times-international-edition
+
+**Nvidia Chief in Talks With China to Allay Security Fears Over A.I. Chips**\
+`Jensen Huang said he was “surprised” by questions about his company’s chips, given China’s eagerness to acquire them for advanced A.I systems.`\
+https://nytimes.com/2025/08/22/business/jensen-huang-nvidia-china.html
+
+**The Crowdfunded War Map That Ukrainians Check Every Morning**\
+`The online DeepState map, based on geolocated combat footage and tips from Ukrainian Army sources, draws 900,000 views each day and acts as a counterbalance to the military’s omissions.`\
+https://nytimes.com/2025/08/22/world/europe/ukraine-russia-deepstate-war-map.html
+
 **Big 12 odds, projected win totals, best bets: How the most balanced conference stacks up**\
 `The Big 12 doesn't have a clear favorite, but instead a jumble of teams bunched closely together in the odds. It could be weekly chaos.`\
 https://nytimes.com/athletic/6563115/2025/08/22/big-12-odds-win-totals-projections-best-bets/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/08/22/us/politics/trump-federal-workers.html
 **How Trump Leans on Emergency Declarations to Bypass Congress and Skirt Regulations**\
 `The president has declared 10 emergencies since returning to office, far outpacing what is typical. He has used them to justify hundreds of actions.`\
 https://nytimes.com/interactive/2025/08/22/us/politics/trump-emergency-immigration-tariffs-crime.html
-
-**4 Takeaways From Erik Menendez’s Parole Board Hearing**\
-`Lyle Menendez has his hearing Friday. Several of the concerns raised in denying parole to Erik suggest Lyle faces considerable hurdles in his own bid for release.`\
-https://nytimes.com/2025/08/22/us/takeaways-menendez-brothers-parole.html
-
-**Hollywood’s Newest Formula for Success: Rereleasing Old Movies**\
-`The multiplex is awash in titles that are 15, 20, even 60 years old. Nostalgia is a factor but economics play a big part, too.`\
-https://nytimes.com/2025/08/22/movies/rereleases-black-swan-jaws-casper.html
-
-**Trump’s Attacks on Institutions Threaten a Bulwark of Economic Strength**\
-`The president’s efforts to control the Federal Reserve and Bureau of Labor Statistics carry risks. But collectively, the moves could be even more damaging, economists warn.`\
-https://nytimes.com/2025/08/22/business/trump-federal-reserve-bls.html
 
