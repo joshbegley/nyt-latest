@@ -26,7 +26,7 @@ https://nytimes.com/athletic/6568021/2025/08/22/nfl-holdouts-impact-parsons-hend
 `A panel of food security experts have determined that part of Gaza is suffering from famine, and that it could spread to the rest of the enclave within weeks.`\
 https://nytimes.com/2025/08/22/world/middleeast/gaza-famine-what-to-know.html
 
-**Trump Administration Live Updates: F.B.I. Searches John Bolton’s Maryland Home**\
+**Trump Administration Live Updates: F.B.I. Searches John Bolton’s Home**\
 ``\
 https://nytimes.com/live/2025/08/22/us/trump-news
 
