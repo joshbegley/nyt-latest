@@ -1,3 +1,11 @@
+**With Close Associates Under Fire, Mayor Adams Remains Defiant**\
+`Mayor Eric Adams defended his administration and his re-election bid on Friday amid corruption charges against some of his closest allies.`\
+https://nytimes.com/2025/08/22/nyregion/with-close-associates-under-fire-mayor-adams-remains-defiant.html
+
+**Warships From the ‘Gringo Empire’ Move Close, but Many Venezuelans Shrug**\
+`President Nicolás Maduro said Venezuela would not back down while facing a U.S. naval buildup. But many in the country doubt a confrontation will come at all.`\
+https://nytimes.com/2025/08/22/world/americas/trump-venezuela-maduro-regime-change.html
+
 **Trump Names His Personnel Chief as Ambassador to India**\
 `As head of presidential personnel appointments, Sergio Gor placed thousands of people across government, the president said.`\
 https://nytimes.com/2025/08/22/us/politics/sergio-gor-ambassador-india.html
