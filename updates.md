@@ -1,3 +1,7 @@
+**Red Lobster Is Betting on Black Diners With Its Brand Comeback**\
+`Are nostalgia, a new chief executive and seafood boil bags enough to save the seafood chain after more than 60 years?`\
+https://nytimes.com/2025/08/22/dining/red-lobster-comeback.html
+
 **Andrews suggests Wissa could return to Brentford squad vs Aston Villa**\
 `The Athletic reported on Wednesday that Wissa was the subject of an improved bid from Newcastle.`\
 https://nytimes.com/athletic/6569464/2025/08/22/yoane-wissa-brentford-squad-aston-villa/

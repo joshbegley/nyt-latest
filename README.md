@@ -1,3 +1,23 @@
+**F.B.I. Raids John Bolton’s Home And Office**\
+`Federal agents raided John Bolton’s home in Maryland and office in Washington as part of an inquiry into whether President Trump’s former security advisor mishandled classified information.`\
+https://nytimes.com/video/us/politics/100000010355616/fbi-raids-john-boltons-home-and-office.html
+
+**Move Over, Mouse Ears: For Disney Adults, There’s a New Obsession**\
+`Tiny stuffed animals that use magnets to stay perched on your shoulder have become a must-have accessory for some theme park superfans.`\
+https://nytimes.com/2025/08/22/business/media/disney-shoulder-plush.html
+
+**Until Saturday: CFB's best team to watch**\
+`Until Saturday is The Athletic's free CFB newsletter.`\
+https://nytimes.com/athletic/6569582/2025/08/22/south-carolina-lanorris-sellers-until-saturday/
+
+**1991 Fleer Pro-Visions Michael Jordan #2: Our Sports Card of the Week**\
+`Artist Terry Smith's Fleer cards stood out in the early '90s.`\
+https://nytimes.com/athletic/6569450/2025/08/22/michael-jordan-fleer-space-card/
+
+**What to Know About Plague After a New Case in California**\
+`It is not just a scourge of the Middle Ages. Plague still exists, though it is rare. Here’s what to look for and how to protect yourself.`\
+https://nytimes.com/2025/08/22/health/california-plague-diagnosis-what-to-know.html
+
 **Red Lobster Is Betting on Black Diners With Its Brand Comeback**\
 `Are nostalgia, a new chief executive and seafood boil bags enough to save the seafood chain after more than 60 years?`\
 https://nytimes.com/2025/08/22/dining/red-lobster-comeback.html
@@ -17,24 +37,4 @@ https://nytimes.com/2025/08/22/your-money/insurance-prior-authorization-surgery-
 **Canucks offseason depth chart 3.0: Where Vancouver stands as training camp nears**\
 `With training camp slowly but surely getting closer, here's where players look likely to play in the Canucks' lineup.`\
 https://nytimes.com/athletic/6568264/2025/08/22/canucks-offseason-depth-chart-2/
-
-**How the Oilers can beat the salary cap despite their top-heavy roster**\
-`With four players taking up nearly half of the team's cap space in 2025-26, Edmonton will need to get creative in adding value contracts.`\
-https://nytimes.com/athletic/6567560/2025/08/22/oilers-value-contracts-salary-cap/
-
-**The Perfect Dinner for Late Summer Plums**\
-`Yewande Komolafe’s new recipe gives pork belly dominoes a quick turn in a hot pan so they crisp and plump before they’re coated in caramelized fruit.`\
-https://nytimes.com/2025/08/22/dining/the-perfect-dinner-for-late-summer-plums.html
-
-**Five International Movies to Stream Now**\
-`This month’s picks include a Romanian essay film about television ads, a raucous action-comedy from South India, a Swiss drama about a middle-aged woman’s sexual explorations and more.`\
-https://nytimes.com/2025/08/22/movies/five-international-movies-to-stream-now.html
-
-**Panthers, T Taylor Moton agree to 2-year, $44 million contract extension: Sources**\
-`Moton has been mainstay on the Panthers offensive line and has started nearly every game since 2018.`\
-https://nytimes.com/athletic/6569480/2025/08/22/panthers-taylor-moton-contract-extension/
-
-**Chris Wallace, a CBS News Scion, Is Advising Its New Owner**\
-`The longtime news anchor recently began working for a financial firm connected to CBS’s new parent company and has spoken with the network’s owner, David Ellison, several times.`\
-https://nytimes.com/2025/08/22/business/media/chris-wallace-redbird-cbs.html
 
