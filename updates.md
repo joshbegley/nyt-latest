@@ -1,3 +1,15 @@
+**Trump Starts Investigation That Could Lead to Tariffs on Wind Turbines**\
+`The tariffs would hamper a clean energy industry that the president has often railed against.`\
+https://nytimes.com/2025/08/21/us/politics/trump-investigation-tariffs-wind-turbines.html
+
+**George Costanza bobblehead giveaway prompts long lines ahead of Yankees-Red Sox game**\
+`Fans were eager to get their hands on the bobblehead of their favorite assistant to the traveling secretary `\
+https://nytimes.com/athletic/6568640/2025/08/21/yankees-george-costanza-bobblehead/
+
+**Five parting thoughts as Chargers wrap training camp: CB battle, OL depth**\
+`The Chargers wrapped up training camp on Thursday ahead of the final preseason game Sunday against the 49ers.`\
+https://nytimes.com/athletic/6568564/2025/08/21/chargers-training-camp-parting-thoughts/
+
 **Trump Budget Office Is Withholding H.I.V. Funds That Congress Appropriated**\
 `Lawmakers allocated $6 billion this fiscal year for PEPFAR, the H.I.V. prevention and treatment program, but the administration has indicated it will release less than half of that.`\
 https://nytimes.com/2025/08/21/health/hiv-aids-pepfar-funding-trump.html

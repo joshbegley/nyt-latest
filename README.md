@@ -1,3 +1,7 @@
+**Jayden Daniels confident Commanders, WR Terry McLaurin will end stalemate**\
+`Washington's star QB shared his thoughts with The Athletic’s Dianna Russini on the latest episode of Scoop City.`\
+https://nytimes.com/athletic/6568494/2025/08/21/jayden-daniels-terry-mclaurin-commanders-contract/
+
 **Trump Starts Investigation That Could Lead to Tariffs on Wind Turbines**\
 `The tariffs would hamper a clean energy industry that the president has often railed against.`\
 https://nytimes.com/2025/08/21/us/politics/trump-investigation-tariffs-wind-turbines.html
@@ -7,7 +11,7 @@ https://nytimes.com/2025/08/21/us/politics/trump-investigation-tariffs-wind-turb
 https://nytimes.com/athletic/6568640/2025/08/21/yankees-george-costanza-bobblehead/
 
 **Five parting thoughts as Chargers wrap training camp: CB battle, OL depth**\
-`The Chargers wrapped up training camp on Thursday ahead of the final preseason game Sunday against the 49ers.`\
+`The Chargers wrapped up training camp Thursday ahead of the final preseason game Sunday against the 49ers.`\
 https://nytimes.com/athletic/6568564/2025/08/21/chargers-training-camp-parting-thoughts/
 
 **Trump Budget Office Is Withholding H.I.V. Funds That Congress Appropriated**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6568378/2025/08/21/cubs-loss-brewers-kyle-tucker-st
 **6 Men Are Killed in an Accident at a Colorado Dairy Farm**\
 `Fire crews discovered the men’s bodies on Wednesday at a farm near the town of Keenesburg, about 40 miles northeast of Denver, officials said.`\
 https://nytimes.com/2025/08/21/us/colorado-dairy-farm-deaths.html
-
-**Keegan Bradley: 'I'm more worried about the Ryder Cup than my game'**\
-`Bradley is 11th in the standings, the same position he was in when Zach Johnson passed him over for Rome two years ago.`\
-https://nytimes.com/athletic/6568496/2025/08/21/ryder-cup-2025-keegan-bradley-captain-pick/
 
