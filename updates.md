@@ -1,3 +1,11 @@
+**Dodger Details: A disappointing split in Denver, the left-field problem and more**\
+`An exhilarating sweep of the Padres was immediately followed by a dud and a split to the 37-win Rockies.`\
+https://nytimes.com/athletic/6568454/2025/08/21/dodger-details-rockies-split-left-field-michael-conforto/
+
+**Steelers' 1st-round pick Derrick Harmon carted off field after knee injury in preseason game**\
+`As Harmon fell to the turf, he appeared to twist his knee.`\
+https://nytimes.com/athletic/6568572/2025/08/21/steelers-derrick-harmon-carted-off-field-knee-injury-preseason/
+
 **Cubs takeaways: Missed opportunity, starting pitching impresses, Kyle Tucker struggles in return**\
 `The offense once again failed the Cubs in their 4-1 loss Thursday to the Milwaukee Brewers.`\
 https://nytimes.com/athletic/6568378/2025/08/21/cubs-loss-brewers-kyle-tucker-struggles/

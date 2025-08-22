@@ -1,3 +1,11 @@
+**Dodger Details: A disappointing split in Denver, the left-field problem and more**\
+`An exhilarating sweep of the Padres was immediately followed by a dud and a split to the 37-win Rockies.`\
+https://nytimes.com/athletic/6568454/2025/08/21/dodger-details-rockies-split-left-field-michael-conforto/
+
+**Steelers' 1st-round pick Derrick Harmon carted off field after knee injury in preseason game**\
+`As Harmon fell to the turf, he appeared to twist his knee.`\
+https://nytimes.com/athletic/6568572/2025/08/21/steelers-derrick-harmon-carted-off-field-knee-injury-preseason/
+
 **Cubs takeaways: Missed opportunity, starting pitching impresses, Kyle Tucker struggles in return**\
 `The offense once again failed the Cubs in their 4-1 loss Thursday to the Milwaukee Brewers.`\
 https://nytimes.com/athletic/6568378/2025/08/21/cubs-loss-brewers-kyle-tucker-struggles/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/08/21/us/colorado-park-ranger-stabbed-hoax.html
 **Astros to sign 9-time All-Star closer Craig Kimbrel: Source**\
 `Kimbrel’s 440 career saves trail only Los Angeles Angels closer Kenley Jansen for the most by any active reliever.`\
 https://nytimes.com/athletic/6568517/2025/08/21/houston-astros-craig-kimbrel-signing/
-
-**Noem’s Spending Rule Causes Delays at Homeland Security Dept.**\
-`The secretary’s requirement that she personally approve any expense over $100,000 has created a backlog of “mission critical” contracts, records show.`\
-https://nytimes.com/2025/08/21/us/kristi-noem-spending-contracts-homeland-security-department.html
-
-**U.S. Kills Islamic State Operative in Rare Raid in Syria**\
-`The Pentagon provided few details about the operation. But counterterrorism raids — as opposed to airstrikes — typically involve helicopter-borne commandos.`\
-https://nytimes.com/2025/08/21/us/politics/islamic-state-us-raid-syria.html
 
