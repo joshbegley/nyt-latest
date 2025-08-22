@@ -1,3 +1,7 @@
+**Bolton Investigation Linked to Overseas Intelligence**\
+`The nature of the intelligence collected overseas is not known. The F.B.I. obtained the search warrant after presenting evidence to a federal judge.`\
+https://nytimes.com/2025/08/22/us/politics/john-bolton-intelligence-fbi-classified.html
+
 **Colorado Judge Rejects Deal for Funeral Home Owner in Corpse Abuse Case**\
 `The judge rejected a 20-year sentence that would have been combined with a federal case. Prosecutors said that Jon Hallford, 45, and his wife cheated grieving families while living a lavish lifestyle.`\
 https://nytimes.com/2025/08/22/us/colorado-funeral-home-plea-deal.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/22/technology/elon-musk-x-settlements.html
 **Javier Mascherano defends red card, confirms Lionel Messi out vs. D.C. United**\
 `Mascherano fires back at critics over his red card antics and explains why Messi won’t be on the pitch against D.C. United.`\
 https://nytimes.com/athletic/6569781/2025/08/22/javier-mascherano-defends-red-card/
-
-**Maxwell Never Witnessed Trump in ‘Inappropriate Setting,’ Transcript Says**\
-`The transcripts and audio, covering two days of discussions between Ms. Maxwell and Todd Blanche, the No. 2 post at the Justice Department, are likely to raise as many questions as they answer.`\
-https://nytimes.com/2025/08/22/us/politics/ghislaine-maxwell-doj-transcript-trump.html
 
