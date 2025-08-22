@@ -1,3 +1,7 @@
+**Is It OK to Request Custom Music in an Uber?**\
+`A ruling on how to please all the ears in a ride share.`\
+https://nytimes.com/interactive/2025/08/22/magazine/uber-music-hodgman-quiz.html
+
 **F.B.I. Searches Maryland Home of John Bolton, Ex-Trump Adviser**\
 `An investigation seeks to determine whether Mr. Bolton illegally shared or possessed classified information, according to two people familiar with the case.`\
 https://nytimes.com/2025/08/22/us/politics/john-bolton-trump-home-fbi.html
