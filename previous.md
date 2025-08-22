@@ -1,3 +1,15 @@
+**Panthers, T Taylor Moton agree to 2-year, $44 million contract extension: Sources**\
+`Moton has been mainstay on the Panthers offensive line and has started nearly every game since 2018.`\
+https://nytimes.com/athletic/6569480/2025/08/22/panthers-taylor-moton-contract-extension/
+
+**Chris Wallace, a CBS News Scion, Is Advising Its New Owner**\
+`The longtime news anchor recently began working for a financial firm connected to CBS’s new parent company and has spoken with the network’s owner, David Ellison, several times.`\
+https://nytimes.com/2025/08/22/business/media/chris-wallace-redbird-cbs.html
+
+**Orioles to sign Samuel Basallo to 8-year, $67 million contract: Source**\
+`The deal includes a club option for 2034, and could reach $88.5 million based on escalators for awards and playing time at catcher.`\
+https://nytimes.com/athletic/6569423/2025/08/22/orioles-samuel-basallo-record-contract-deal-catcher/
+
 **The Bounce: NBA’s 40 best shooting guards, ranked + a salute to John Wall**\
 `Plus: You have to see this Pacers fan's tattoo.`\
 https://nytimes.com/athletic/6569367/2025/08/22/nba-rankings-shooting-guards-anthony-edwards-devin-booker/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/08/22/science/anthropology-head-binding.html
 **Book Club: Read ‘Pride and Prejudice,’ by Jane Austen, With the Book Review**\
 `In September, the Book Review Book Club will read and discuss Jane Austen’s classic, about the tortured romance of two people frazzled by miscommunications and assumptions.`\
 https://nytimes.com/2025/08/22/books/review/pride-and-prejudice-jane-austen-book-club.html
-
-**British Government to Rescue Another Ailing Steel Maker**\
-`The move, which comes after a court-approved liquidation of Speciality Steel, is meant to preserve jobs and domestic manufacturing.`\
-https://nytimes.com/2025/08/22/business/britain-steel-takeover.html
-
-**WNBA breaks single-season attendance record set in 2002**\
-`With three weeks left in the regular season and three rounds of postseason play ahead, the new record will continue to rise.`\
-https://nytimes.com/athletic/6569313/2025/08/22/wnba-new-single-season-attendance-record/
-
-**Nuno says 'relationship has changed' with Forest owner Marinakis**\
-`The Forest head coach's comments come a week after he said the club have a “major problem” after the summer window.`\
-https://nytimes.com/athletic/6569287/2025/08/22/nuno-nottingham-forest-marinakis/
 
