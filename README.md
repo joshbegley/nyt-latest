@@ -1,3 +1,7 @@
+**Red Sox move struggling Walker Buehler to bullpen**\
+`In 22 starts, Buehler posted the worst numbers of his career with a 5.40 ERA, 16.5 percent strikeout rates and 10.7 percent walk rate.`\
+https://nytimes.com/athletic/6570293/2025/08/22/red-sox-walker-buehler-bullpen/
+
 **Ex-Employee Sentenced to 4 Years for Sabotaging Company’s Computer Network**\
 `The man, a former software developer for Eaton Corporation, wrote malicious code that crashed servers on the company’s network in 2019, prosecutors said.`\
 https://nytimes.com/2025/08/22/business/eaton-corporation-hack-prison-sentence.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/22/arts/chris-doyle-dead.html
 **Education Department Backs Away From Program for Hispanic-Serving Colleges**\
 `The federal program supports universities with high numbers of Latino students. Trump officials said they wouldn’t defend it against a lawsuit, which could effectively end the program.`\
 https://nytimes.com/2025/08/22/us/education-department-hispanic-serving-universities.html
-
-**Trump Names His Personnel Chief as Ambassador to India**\
-`As head of presidential personnel appointments, Sergio Gor placed thousands of people across government, the president said.`\
-https://nytimes.com/2025/08/22/us/politics/sergio-gor-ambassador-india.html
 
