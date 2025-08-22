@@ -1,4 +1,20 @@
-**Astros to sign nine-time All-Star closer Craig Kimbrel: Source**\
+**Alleged WNBA sex toy thrower arrested in New York on assault charges**\
+`The New York Police Department arrested a 32-year-old man from Ohio on Wednesday for allegedly throwing a sex toy that hit other fans during a WNBA game earlier this month.`\
+https://nytimes.com/athletic/6568448/2025/08/21/wnba-sex-toy-thrower-arrested-new-york/
+
+**Mets can't shake out of their funk in series loss to lowly Nationals**\
+`It’s the Mets' first series loss in the nation’s capital since 2021, when Soto played right field for the home team.`\
+https://nytimes.com/athletic/6568447/2025/08/21/mets-cant-shake-funk-series-loss-nationals/
+
+**‘Flying Blind’: Trump Strips Government of Expertise at a High-Stakes Moment**\
+`President Trump has few sources of independent advice just as he is trying to broker an end to the Russian invasion of Ukraine, perhaps the trickiest negotiation of his presidency.`\
+https://nytimes.com/2025/08/21/us/politics/trump-government-expertise.html
+
+**Colorado Park Ranger Falsely Reported That Attacker Stabbed Him, Officials Say**\
+`In fact, the Jefferson County Sheriff’s Office said Thursday, the ranger had injured himself and orchestrated an “elaborate hoax” claiming someone had attacked him and fled.`\
+https://nytimes.com/2025/08/21/us/colorado-park-ranger-stabbed-hoax.html
+
+**Astros to sign 9-time All-Star closer Craig Kimbrel: Source**\
 `Kimbrel’s 440 career saves trail only Los Angeles Angels closer Kenley Jansen for the most by any active reliever.`\
 https://nytimes.com/athletic/6568517/2025/08/21/houston-astros-craig-kimbrel-signing/
 
@@ -21,20 +37,4 @@ https://nytimes.com/2025/08/21/us/politics/trump-fed-federal-reserve.html
 **T's Sept. 7 Men's Fashion Issue**\
 ``\
 https://nytimes.com/issue/t-magazine/2025/08/21/ts-sept-7-mens-fashion-issue-2025
-
-**Police ‘Failed’ Slain Woman Who Reported Ex’s Harassment, Family Says**\
-`Dr. Lauren Semanchik told the police that she was “especially uncomfortable” because her ex-boyfriend was a state trooper. She and her boyfriend were later shot to death.`\
-https://nytimes.com/2025/08/21/nyregion/semanchik-murder-new-jersey-police.html
-
-**Kyle Tucker, Cubs waste a perfect opportunity to gain another game on Brewers: Greenberg**\
-`Tucker returned to the lineup after sitting for three games but went hitless Thursday, making him 0-for-8 in the two losses this series.`\
-https://nytimes.com/athletic/6568305/2025/08/21/kyle-tucker-cubs-brewers-series/
-
-**Minnesota’s Democratic Party Revokes Endorsement of Mayoral Candidate**\
-`State Democratic officials withdrew the endorsement of a Minneapolis mayoral candidate who has drawn comparisons to Zohran Mamdani, the New York mayoral hopeful.`\
-https://nytimes.com/2025/08/21/us/minnesotas-democratic-party-revokes-endorsement-of-mayoral-candidate.html
-
-**Mandel: SEC going to 9 games staves off Big Ten's harebrained Playoff plan**\
-`Big Ten’s schools might have to go back to drawing board with their own scheduling.`\
-https://nytimes.com/athletic/6568398/2025/08/21/sec-9-games-big-tens-playoff-plan/
 
