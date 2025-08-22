@@ -1,6 +1,10 @@
+**Novak Djokovic calls out top players for not challenging tennis schedule changes**\
+`While some top names have publicly spoken out against the ATP Tour changes, Djokovic wishes more players complained years ago.`\
+https://nytimes.com/athletic/6570320/2025/08/22/novak-djokovic-us-open-atp-tour-comments/
+
 **With Close Associates Under Fire, Mayor Adams Remains Defiant**\
 `Mayor Eric Adams defended his administration and his re-election bid on Friday amid corruption charges against some of his closest allies.`\
-https://nytimes.com/2025/08/22/nyregion/with-close-associates-under-fire-mayor-adams-remains-defiant.html
+https://nytimes.com/2025/08/22/nyregion/adams-mamdani-nyc-mayor.html
 
 **Craig Kimbrel joins Astros bullpen just as they lose another key arm**\
 `The nine-time All-Star closer is preparing to play for his ninth team. "It's a tremendous ballclub with a lot of talent," Kimbrel said.`\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6570180/2025/08/22/alexander-zverev-us-open-therapy
 **Warships From the ‘Gringo Empire’ Move Close, but Many Venezuelans Shrug**\
 `President Nicolás Maduro said Venezuela would not back down while facing a U.S. naval buildup. But many in the country doubt a confrontation will come at all.`\
 https://nytimes.com/2025/08/22/world/americas/trump-venezuela-maduro-regime-change.html
-
-**Trump and Infantino kick off the MAGA World Cup with draw slated for DC**\
-`Friday's World Cup draw announcement set the tone for a World Cup that promises a consistently political theme.`\
-https://nytimes.com/athletic/6570248/2025/08/22/trump-infantino-maga-world-cup-dc/
 
