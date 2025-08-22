@@ -1,3 +1,11 @@
+**Read the Justice Dept. Interview With Ghislaine Maxwell**\
+`The department released transcripts from two days of discussions between Ms. Maxwell, the longtime confidante of the disgraced financier Jeffrey Epstein, and Todd Blanche, the department’s No. 2 official.`\
+https://nytimes.com/interactive/2025/08/22/us/combined-ghislaine.html
+
+**Trump Administration Orders Work Halted on Wind Farm That Is Nearly Built**\
+`The order to stop construction on Revolution Wind off the coast of Rhode Island is part of a campaign against renewable energy.`\
+https://nytimes.com/2025/08/22/climate/trump-administration-halts-revolution-wind.html
+
 **Novak Djokovic calls out top players for not challenging tennis schedule changes**\
 `While some top names have publicly spoken out against the ATP Tour changes, Djokovic wishes more players complained years ago.`\
 https://nytimes.com/athletic/6570320/2025/08/22/novak-djokovic-us-open-atp-tour-comments/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/08/22/us/politics/trump-chicago-new-york-crime.html
 **F.B.I. Searched Home of John Bolton, a Former Trump Adviser**\
 `Also, the Fed chair signaled that interest rates could soon come down. Here’s the latest at the end of Friday.`\
 https://nytimes.com/2025/08/22/briefing/fbi-searched-home-of-john-bolton-a-former-trump-adviser.html
-
-**Zverev says he's 'on the right path' at U.S. Open after seeking professional help**\
-`At Wimbledon in June, Zverev said he felt “very alone” and lacked "joy in everything that I do.” Zverev said Friday he is in a better place.`\
-https://nytimes.com/athletic/6570180/2025/08/22/alexander-zverev-us-open-therapy-comments/
-
-**Warships From the ‘Gringo Empire’ Move Close, but Many Venezuelans Shrug**\
-`President Nicolás Maduro said Venezuela would not back down while facing a U.S. naval buildup. But many in the country doubt a confrontation will come at all.`\
-https://nytimes.com/2025/08/22/world/americas/trump-venezuela-maduro-regime-change.html
 

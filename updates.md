@@ -1,3 +1,11 @@
+**Read the Justice Dept. Interview With Ghislaine Maxwell**\
+`The department released transcripts from two days of discussions between Ms. Maxwell, the longtime confidante of the disgraced financier Jeffrey Epstein, and Todd Blanche, the department’s No. 2 official.`\
+https://nytimes.com/interactive/2025/08/22/us/combined-ghislaine.html
+
+**Trump Administration Orders Work Halted on Wind Farm That Is Nearly Built**\
+`The order to stop construction on Revolution Wind off the coast of Rhode Island is part of a campaign against renewable energy.`\
+https://nytimes.com/2025/08/22/climate/trump-administration-halts-revolution-wind.html
+
 **Novak Djokovic calls out top players for not challenging tennis schedule changes**\
 `While some top names have publicly spoken out against the ATP Tour changes, Djokovic wishes more players complained years ago.`\
 https://nytimes.com/athletic/6570320/2025/08/22/novak-djokovic-us-open-atp-tour-comments/

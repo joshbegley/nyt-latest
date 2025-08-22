@@ -1,6 +1,14 @@
+**Ex-Employee Sentenced to 4 Years for Sabotaging Company’s Computer Network**\
+`The man, a former software developer for Eaton Corporation, wrote malicious code that crashed servers on the company’s network in 2019, prosecutors said.`\
+https://nytimes.com/2025/08/22/business/eaton-corporation-hack-prison-sentence.html
+
+**Will Museums Fight Back Against Trump?**\
+`The president’s attacks on the Smithsonian Institution and other museums have become an effort to redefine why such places exist.`\
+https://nytimes.com/2025/08/22/us/politics/trump-smithsonian-museums.html
+
 **Read the Justice Dept. Interview With Ghislaine Maxwell**\
 `The department released transcripts from two days of discussions between Ms. Maxwell, the longtime confidante of the disgraced financier Jeffrey Epstein, and Todd Blanche, the department’s No. 2 official.`\
-https://nytimes.com/interactive/2025/08/22/us/combined-ghislaine.html
+https://nytimes.com/interactive/2025/08/22/us/ghislaine-maxwell-transcript-read.html
 
 **Trump Administration Orders Work Halted on Wind Farm That Is Nearly Built**\
 `The order to stop construction on Revolution Wind off the coast of Rhode Island is part of a campaign against renewable energy.`\
@@ -29,12 +37,4 @@ https://nytimes.com/2025/08/22/us/education-department-hispanic-serving-universi
 **Trump Names His Personnel Chief as Ambassador to India**\
 `As head of presidential personnel appointments, Sergio Gor placed thousands of people across government, the president said.`\
 https://nytimes.com/2025/08/22/us/politics/sergio-gor-ambassador-india.html
-
-**Trump Says Chicago and New York Are Next for Federal Crackdown on Crime**\
-`President Trump wants to use Washington as a template to target crime in cities around the country.`\
-https://nytimes.com/2025/08/22/us/politics/trump-chicago-new-york-crime.html
-
-**F.B.I. Searched Home of John Bolton, a Former Trump Adviser**\
-`Also, the Fed chair signaled that interest rates could soon come down. Here’s the latest at the end of Friday.`\
-https://nytimes.com/2025/08/22/briefing/fbi-searched-home-of-john-bolton-a-former-trump-adviser.html
 
