@@ -1,3 +1,27 @@
+**Pair of Immigration Raids Disrupt a New Jersey Shipping Hub**\
+`In Edison, thousands of immigrant workers toil in hundreds of warehouses, sorting millions of boxes arriving from nearby ports.`\
+https://nytimes.com/2025/08/22/nyregion/immigration-raids-edison-new-jersey.html
+
+**For Two or Three Days, a Surfer’s Paradise in New York City**\
+`Thanks to Hurricane Erin, conditions are ideal for the urban surfer: giant waves and no swimmers.`\
+https://nytimes.com/2025/08/22/nyregion/long-island-surf-waves-hurricane-erin.html
+
+**A Homecoming, of Sorts, to a Place Where Bears Run Wild**\
+`A reporter visiting Romania, where she was born, found that humans’ ancient relationship with bears there had fallen out of balance.`\
+https://nytimes.com/2025/08/22/insider/romania-bears-real-estate.html
+
+**Robert Moses Tore the South Bronx in Half. Is It About to Happen Again?**\
+`It took decades for the Bronx to recover after the Cross Bronx Expressway was built. With years of repairs on the horizon, some residents worry about new trauma.`\
+https://nytimes.com/2025/08/22/nyregion/south-bronx-park-expressway.html
+
+**5 Classical Music Albums You Can Listen to Right Now**\
+`The male soprano Samuel Mariño’s “Lumina,” a suite from Thomas Adès’s “The Tempest” and Ginastera’s string quartets are among the highlights.`\
+https://nytimes.com/2025/08/22/arts/music/classical-music-albums-august.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/08/22/crosswords/spelling-bee-forum.html
+
 **Another Crystal Palace milestone overshadowed**\
 `A first major European victory should have brought great joy to Selhurst - instead regret and concern lingers at Crystal Palace`\
 https://nytimes.com/athletic/6565773/2025/08/22/crystal-palace-eze-glasner-parish-transfers/
