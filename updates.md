@@ -1,3 +1,11 @@
+**The Bounce: NBA’s 40 best shooting guards, ranked + a salute to John Wall**\
+`Plus: You have to see this Pacers fan's tattoo.`\
+https://nytimes.com/athletic/6569367/2025/08/22/nba-rankings-shooting-guards-anthony-edwards-devin-booker/
+
+**Was Head-Binding an Ancient Way to Get a Leg Up?**\
+`For some cultures, the practice of cranial deformation may have offered individuals a path to privilege later in their lives.`\
+https://nytimes.com/2025/08/22/science/anthropology-head-binding.html
+
 **Wyoming Man Accused of Torturing Wolf Is Charged With Animal Cruelty**\
 `Video of the wolf on a leash in a bar prompted outrage. A sheriff’s department investigation stalled, but more than a year later, a grand jury indicted a man on a felony count.`\
 https://nytimes.com/2025/08/22/us/wyoming-wolf-killed-snowmobile-animal-cruelty.html
