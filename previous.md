@@ -1,3 +1,11 @@
+**Florida Governor Says He Is Undeterred by Court Ruling on ‘Alligator Alcatraz’**\
+`A federal judge had ordered that much of the Florida immigration detention center be dismantled, a ruling Gov. Ron DeSantis called “preordained.”`\
+https://nytimes.com/2025/08/22/us/desantis-florida-alligator-alcatraz.html
+
+**Is the Trump Administration Building Up to a Military Confrontation With Venezuela?**\
+`A major increase in U.S. naval forces in the south Caribbean Sea has been underway since President Trump signed a directive targeting some cartels.`\
+https://nytimes.com/2025/08/22/us/politics/trump-venezuela-drug-war.html
+
 **A Bear Walked Into an Ice Cream Parlor. The Strawberry Never Had a Chance.**\
 `The black bear, which the authorities named Fuzzy, caused little damage but cleaned out much of the inventory at a popular parlor on south shore of Lake Tahoe.`\
 https://nytimes.com/2025/08/22/us/bear-lake-tahoe-ice-cream-shop.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6569981/2025/08/22/red-wings-questions-bultman-mail
 **Trump’s First Administration Tried to Stop Bolton’s Memoir**\
 `The book, in which John Bolton described repeated instances of corruption, was one of the most detailed and damaging accounts of Trump’s first term.`\
 https://nytimes.com/2025/08/22/us/politics/trump-bolton-memoir-room-where-it-happened.html
-
-**From Boss Tweed to Bike Lanes: N.Y.C. Graft Ain’t What It Used to Be**\
-`The city’s corruption once had ambition to match its soaring skyscrapers. Indictments this week described cut-rate schemes with far lower returns — and there was that cash in a potato-chip bag.`\
-https://nytimes.com/2025/08/22/nyregion/new-york-city-corruption.html
-
-**Drop and Give Me … One**\
-`Push-up challenges are trending. Before you try for 100 reps, focus on getting the exercise right.`\
-https://nytimes.com/2025/08/22/well/move/push-up-challenges-training.html
 

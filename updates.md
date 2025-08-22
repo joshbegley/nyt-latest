@@ -1,3 +1,11 @@
+**Florida Governor Says He Is Undeterred by Court Ruling on ‘Alligator Alcatraz’**\
+`A federal judge had ordered that much of the Florida immigration detention center be dismantled, a ruling Gov. Ron DeSantis called “preordained.”`\
+https://nytimes.com/2025/08/22/us/desantis-florida-alligator-alcatraz.html
+
+**Is the Trump Administration Building Up to a Military Confrontation With Venezuela?**\
+`A major increase in U.S. naval forces in the south Caribbean Sea has been underway since President Trump signed a directive targeting some cartels.`\
+https://nytimes.com/2025/08/22/us/politics/trump-venezuela-drug-war.html
+
 **A Bear Walked Into an Ice Cream Parlor. The Strawberry Never Had a Chance.**\
 `The black bear, which the authorities named Fuzzy, caused little damage but cleaned out much of the inventory at a popular parlor on south shore of Lake Tahoe.`\
 https://nytimes.com/2025/08/22/us/bear-lake-tahoe-ice-cream-shop.html
