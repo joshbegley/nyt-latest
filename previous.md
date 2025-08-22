@@ -1,3 +1,19 @@
+**Two-time Olympic ski champion Eileen Gu hurt while training in New Zealand**\
+`In a social media post, Gu hinted at the possibility of an overzealous fan disrupting her while training. `\
+https://nytimes.com/athletic/6569901/2025/08/22/olympic-ski-eileen-gu-injury-training/
+
+**How Redistricting Wars Could Give the G.O.P. Up to 7 Seats**\
+`As a handful of states have made moves and begun discussing redrawing their maps, here’s what’s at stake.`\
+https://nytimes.com/2025/08/22/us/redistricting-gerrymandering-texas-california-stakes.html
+
+**Tiébilé Dramé, Voice for Rights in Mali, Is Dead at 70**\
+`A former foreign minister, he founded an opposition political party and then served in the government as an unflagging negotiator with northern rebels.`\
+https://nytimes.com/2025/08/22/world/africa/tiebile-drame-dead.html
+
+**Hendon Hooker and the Detroit Lions who will impact final roster decisions the most**\
+`While all eyes are on Hooker, Jackson Meeks, Mekhi Wingo and others make interesting cases as roster cuts loom.`\
+https://nytimes.com/athletic/6569563/2025/08/22/detroit-lions-roster-preseason-hendon-hooker/
+
 **Florida Governor Says He Is Undeterred by Court Ruling on ‘Alligator Alcatraz’**\
 `A federal judge had ordered that much of the Florida immigration detention center be dismantled, a ruling Gov. Ron DeSantis called “preordained.”`\
 https://nytimes.com/2025/08/22/us/desantis-florida-alligator-alcatraz.html
@@ -21,20 +37,4 @@ https://nytimes.com/card/2025/08/22/smarter-living/wirecutter/
 **Fed Chair Hints at Interest Rate Cuts, While Emphasizing Caution**\
 `Jerome H. Powell, the chair of the Federal Reserve, signaled that interest rate cuts may be coming during his final speech as Fed chair on Friday at an annual conference hosted by the Reserve Bank of Kansas City in Jackson, Wyo.`\
 https://nytimes.com/video/us/politics/100000010356275/powell-hints-interest-rate-cuts.html
-
-**Trump Says Intel Has Agreed to Give U.S. a 10% Stake in Its Business**\
-`The president’s comments follow his calls for the resignation of Intel’s chief executive this month.`\
-https://nytimes.com/2025/08/22/technology/trump-intel-stake.html
-
-**Flashback: Your Weekly History Quiz, Aug. 23, 2025**\
-`Can you sort 8 historical events?`\
-https://nytimes.com/interactive/2025/08/22/upshot/flashback.html
-
-**Send in your Red Wings questions for Max Bultman's mailbag**\
-`Have questions about Detroit's offseason, upcoming season or anything else? Submit them here and Max may answer them in an upcoming mailbag.`\
-https://nytimes.com/athletic/6569981/2025/08/22/red-wings-questions-bultman-mailbag-prompt/
-
-**Trump’s First Administration Tried to Stop Bolton’s Memoir**\
-`The book, in which John Bolton described repeated instances of corruption, was one of the most detailed and damaging accounts of Trump’s first term.`\
-https://nytimes.com/2025/08/22/us/politics/trump-bolton-memoir-room-where-it-happened.html
 
