@@ -1,3 +1,11 @@
+**Havertz set for further tests on knee injury**\
+`Arteta said additional tests were required for clarity on the "next steps" for the Germany international.`\
+https://nytimes.com/athletic/6564851/2025/08/22/kai-havertz-knee-injury-assessments-arsenal/
+
+**Members of Congress Seek to Expand Sports Diplomacy**\
+`With the United States hosting two sets of Olympic Games and the World Cup, lawmakers are pressing for the State Department to step up its sports diplomacy.`\
+https://nytimes.com/2025/08/22/us/politics/congress-olympics-sports-diplomacy.html
+
 **Is It OK to Request Custom Music in an Uber?**\
 `A ruling on how to please all the ears in a ride share.`\
 https://nytimes.com/interactive/2025/08/22/magazine/uber-music-hodgman-quiz.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6567421/2025/08/22/49ers-roster-preseason-robbie-ch
 **For the Raiders, five position battles linger heading into the preseason finale**\
 `With the regular-season opener just over two weeks away, the offensive line and secondary feature unsettled spots.`\
 https://nytimes.com/athletic/6566245/2025/08/22/raiders-position-battles-third-preseason-game/
-
-**Broncos mailbag: Assessing what top pick Jahdae Barron's role will look like**\
-`Also, a win prediction, a look at depth, new stadium talk and the Bronco to take a flyer on in your fantasy draft.`\
-https://nytimes.com/athletic/6567437/2025/08/22/broncos-mailbag-jahdae-barron-sean-payton/
-
-**Joe Ryan is having one of the best seasons by a Twins starting pitcher in 25 years**\
-`As the Twins crumble around him, Ryan is neck and neck with Sonny Gray for Minnesota's best season by a starter since Johan Santana.`\
-https://nytimes.com/athletic/6562113/2025/08/22/joe-ryan-twins-sonny-gray-johan-santana/
 

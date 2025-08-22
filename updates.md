@@ -1,3 +1,11 @@
+**Havertz set for further tests on knee injury**\
+`Arteta said additional tests were required for clarity on the "next steps" for the Germany international.`\
+https://nytimes.com/athletic/6564851/2025/08/22/kai-havertz-knee-injury-assessments-arsenal/
+
+**Members of Congress Seek to Expand Sports Diplomacy**\
+`With the United States hosting two sets of Olympic Games and the World Cup, lawmakers are pressing for the State Department to step up its sports diplomacy.`\
+https://nytimes.com/2025/08/22/us/politics/congress-olympics-sports-diplomacy.html
+
 **Is It OK to Request Custom Music in an Uber?**\
 `A ruling on how to please all the ears in a ride share.`\
 https://nytimes.com/interactive/2025/08/22/magazine/uber-music-hodgman-quiz.html

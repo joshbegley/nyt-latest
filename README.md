@@ -1,3 +1,15 @@
+**Fantasy football news: 2 rookie running back soaring up draft lists**\
+`Andy Behrens spins the hot fantasy football topics emerging from NFL training camps, including TreVeyon Henderson Hype Week.`\
+https://nytimes.com/athletic/6568777/2025/08/22/fantasy-football-news-buzz-report/
+
+**Frank: Kulusevski's injury 'a longer one', no timeframe for return**\
+`The 25-year-old has been sidelined since suffering a knee injury against Crystal Palace in May.`\
+https://nytimes.com/athletic/6569109/2025/08/22/dejan-kulusevski-tottenham-injury-return/
+
+**Alexander Isak's brutal rejection of Newcastle causes confusion, irritation and discussion about how to react**\
+`Isak's determination to leave has caused turmoil inside Newcastle and among the fanbase. The question is how they react against Liverpool`\
+https://nytimes.com/athletic/6569097/2025/08/22/alexander-isak-newcastle-rejection/
+
 **Havertz set for further tests on knee injury**\
 `Arteta said additional tests were required for clarity on the "next steps" for the Germany international.`\
 https://nytimes.com/athletic/6564851/2025/08/22/kai-havertz-knee-injury-assessments-arsenal/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6568908/2025/08/22/shane-bieber-blue-jays-debut-the
 **Former Sri Lankan President Arrested on Corruption Charges**\
 `The ex-leader, Ranil Wickremesinghe, was arrested amid government investigations into widespread bribery and graft.`\
 https://nytimes.com/2025/08/22/world/asia/sri-lanka-ranil-wickremesinghe-arrested.html
-
-**Amorim says Onana 'ready to play', refuses to confirm goalkeeper choice vs. Fulham**\
-`Onana suffered a hamstring injury in early July and missed United's pre-season but had been aiming to return for the league opener.`\
-https://nytimes.com/athletic/6558372/2025/08/22/andre-onana-manchester-united-goalkeeper/
-
-**49ers roster battles: 7 positions to watch in preseason finale vs. Chargers**\
-`Five years removed from a 1,000-yard season with the Panthers, Robbie Chosen is pushing for a spot on the 49ers' depleted WR depth chart.`\
-https://nytimes.com/athletic/6567421/2025/08/22/49ers-roster-preseason-robbie-chosen/
-
-**For the Raiders, five position battles linger heading into the preseason finale**\
-`With the regular-season opener just over two weeks away, the offensive line and secondary feature unsettled spots.`\
-https://nytimes.com/athletic/6566245/2025/08/22/raiders-position-battles-third-preseason-game/
 
