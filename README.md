@@ -1,3 +1,11 @@
+**Education Department Backs Away From Program for Hispanic-Serving Colleges**\
+`The federal program supports universities with high numbers of Latino students. Trump officials said they wouldn’t defend it against a lawsuit, which could effectively end the program.`\
+https://nytimes.com/2025/08/22/us/education-department-hispanic-serving-universities.html
+
+**Trump Names Personnel Head as Ambassador to India**\
+`As head of presidential personnel appointments, Sergio Gor placed thousands of people across government, the president said.`\
+https://nytimes.com/2025/08/22/us/politics/sergio-gor-ambassador-india.html
+
 **Trump Says Chicago and New York Are Next for Federal Crackdown on Crime**\
 `President Trump wants to use Washington as a template to target crime in cities around the country.`\
 https://nytimes.com/2025/08/22/us/politics/trump-chicago-new-york-crime.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/08/22/us/california-missing-baby-parents-arrest-murder.
 **Bolton Investigation Linked to Overseas Intelligence**\
 `The nature of the intelligence collected overseas is not known. The F.B.I. obtained the search warrant after presenting evidence to a federal judge.`\
 https://nytimes.com/2025/08/22/us/politics/john-bolton-intelligence-fbi-classified.html
-
-**Colorado Judge Rejects Deal for Funeral Home Owner in Corpse Abuse Case**\
-`The judge rejected a 20-year sentence that would have been combined with a federal case. Prosecutors said that Jon Hallford, 45, and his wife cheated grieving families while living a lavish lifestyle.`\
-https://nytimes.com/2025/08/22/us/colorado-funeral-home-plea-deal.html
-
-**The White House Wants Indiana to Redistrict. Republicans There Are Split.**\
-`As President Trump asks Republican-led states to redraw congressional maps, some Indiana conservatives are pushing back. “They should leave it alone,” one legislator said.`\
-https://nytimes.com/2025/08/22/us/indiana-redistricting-congress-republicans.html
 
