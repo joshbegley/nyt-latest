@@ -1,3 +1,11 @@
+**Everton pursuing deal to sign England international Mace from Leicester**\
+`Mace, 21, is entering the final year of her contract with Leicester.`\
+https://nytimes.com/athletic/6568984/2025/08/22/ruby-mace-everton-leicester-transfer/
+
+**Powell Takes Center Stage, With Wall Street and Washington Watching**\
+`The Fed chief is expected to address inflation, interest rates and the economy in his speech on Friday. Will he also confront President Trump’s attacks on central bank independence?`\
+https://nytimes.com/2025/08/22/business/dealbook/powell-trump-jackson-hole.html
+
 **Man City v Tottenham Premier League preview, kick-off time, injury news and prediction**\
 `Manchester City host Tottenham in what is historically a high-scoring, entertaining affair.`\
 https://nytimes.com/athletic/6569037/2025/08/22/manchester-city-v-tottenham-premier-league-preview-can-spurs-spring-a-surprise/
