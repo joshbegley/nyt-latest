@@ -1,3 +1,11 @@
+**Crown will not appeal decision in Hockey Canada sexual assault trial**\
+`The decision came following a trial that garnered widespread attention, spanned two months and featured a number of bizarre twists.`\
+https://nytimes.com/athletic/6568637/2025/08/21/hockey-canada-sexual-assault-trial-appeal/
+
+**Tracking the Aftermath From Erin on the Ocean**\
+`Meteorologists piece together the aftereffects in a hurricane’s path, and look ahead to potential future storms.`\
+https://nytimes.com/2025/08/21/climate/hurricane-erin-wake-mixing-temperature.html
+
 **Jayden Daniels confident Commanders, WR Terry McLaurin will end stalemate**\
 `Washington's star QB shared his thoughts with The Athletic’s Dianna Russini on the latest episode of Scoop City.`\
 https://nytimes.com/athletic/6568494/2025/08/21/jayden-daniels-terry-mclaurin-commanders-contract/
