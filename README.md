@@ -1,5 +1,5 @@
 **After being denied parole, Erik Menendez still has other pathways to freedom.**\
-`By Matt Stevens and Tim Arango`\
+`One legal avenue the Menendez brothers have pursued remains open to them: a habeas petition, which is a vehicle for challenging unlawful detentions.`\
 https://nytimes.com/2025/08/21/us/erik-menendez-parole-release-habeas.html
 
 **White House Lists Smithsonian Exhibits It Finds Objectionable**\
