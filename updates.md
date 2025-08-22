@@ -1,3 +1,7 @@
+**FPL live Q&A: Gameweek Two advice from Ben Dinnery**\
+`It’s time to dust off your Gameweek One mishaps and get your FPL team in working order for the next set of Premier League fixtures`\
+https://nytimes.com/athletic/6568418/2025/08/22/fantasy-premier-league-live-qa-gameweek-two-advice-from-ben-dinnery/
+
 **Word of the Day: gulag**\
 `This word has appeared in 43 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2025/08/22/learning/word-of-the-day-gulag.html
