@@ -1,3 +1,19 @@
+**Scoop City: The new standard in Chicago**\
+`What's different about Ben Johnson, plus Caleb Williams, Cam Ward and Dillon Gabriel lead our players to watch this weekend.`\
+https://nytimes.com/athletic/6569629/2025/08/22/bears-ben-johnson-detail-dillon-gabriel-browns-scoop-city/
+
+**Stocks and Bonds Rise After Powell Suggests Rate Cuts Could Be Imminent**\
+`Investors’ expectations of lower interest rates were reflected in the major stock indexes and lower government bond yields.`\
+https://nytimes.com/2025/08/22/business/powell-rate-cut-stocks-bonds.html
+
+**Republicans Elect Joe Gruters, a Trump Ally From Florida, to Lead the R.N.C.**\
+`He had no opposition in his bid to replace Michael Whatley, who is leaving to run for Senate in North Carolina.`\
+https://nytimes.com/2025/08/22/us/politics/rnc-joe-gruters-trump-republicans.html
+
+**Commanders preseason: WR depth, RB room among 5 lingering questions ahead of finale**\
+`Terry McLaurin's contract dispute and a rash of injuries have played roles in some uncertainty as the regular season approaches.`\
+https://nytimes.com/athletic/6569489/2025/08/22/commanders-training-camp-preseason-finale-ravens/
+
 **F.B.I. Raids John Bolton’s Home And Office**\
 `Federal agents raided John Bolton’s home in Maryland and office in Washington as part of an inquiry into whether President Trump’s former security advisor mishandled classified information.`\
 https://nytimes.com/video/us/politics/100000010355616/fbi-raids-john-boltons-home-and-office.html
