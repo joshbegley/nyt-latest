@@ -1,3 +1,15 @@
+**Fantasy football news: 2 rookie running back soaring up draft lists**\
+`Andy Behrens spins the hot fantasy football topics emerging from NFL training camps, including TreVeyon Henderson Hype Week.`\
+https://nytimes.com/athletic/6568777/2025/08/22/fantasy-football-news-buzz-report/
+
+**Frank: Kulusevski's injury 'a longer one', no timeframe for return**\
+`The 25-year-old has been sidelined since suffering a knee injury against Crystal Palace in May.`\
+https://nytimes.com/athletic/6569109/2025/08/22/dejan-kulusevski-tottenham-injury-return/
+
+**Alexander Isak's brutal rejection of Newcastle causes confusion, irritation and discussion about how to react**\
+`Isak's determination to leave has caused turmoil inside Newcastle and among the fanbase. The question is how they react against Liverpool`\
+https://nytimes.com/athletic/6569097/2025/08/22/alexander-isak-newcastle-rejection/
+
 **Havertz set for further tests on knee injury**\
 `Arteta said additional tests were required for clarity on the "next steps" for the Germany international.`\
 https://nytimes.com/athletic/6564851/2025/08/22/kai-havertz-knee-injury-assessments-arsenal/
