@@ -1,3 +1,7 @@
+**Red Sox move struggling Walker Buehler to bullpen**\
+`In 22 starts, Buehler posted the worst numbers of his career with a 5.40 ERA, 16.5 percent strikeout rates and 10.7 percent walk rate.`\
+https://nytimes.com/athletic/6570293/2025/08/22/red-sox-walker-buehler-bullpen/
+
 **Ex-Employee Sentenced to 4 Years for Sabotaging Company’s Computer Network**\
 `The man, a former software developer for Eaton Corporation, wrote malicious code that crashed servers on the company’s network in 2019, prosecutors said.`\
 https://nytimes.com/2025/08/22/business/eaton-corporation-hack-prison-sentence.html
