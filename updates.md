@@ -1,3 +1,7 @@
+**Andrews suggests Wissa could return to Brentford squad vs Aston Villa**\
+`The Athletic reported on Wednesday that Wissa was the subject of an improved bid from Newcastle.`\
+https://nytimes.com/athletic/6569464/2025/08/22/yoane-wissa-brentford-squad-aston-villa/
+
 **Greg Iles, Novelist Who Wrote About Race in Mississippi, Dies at 65**\
 `In his best-selling books, notably the “Natchez Burning” trilogy, he addressed what one reviewer called “the pervasive impact of past events.”`\
 https://nytimes.com/2025/08/22/books/greg-iles-novelist-who-wrote-about-race-in-mississippi-dies-at-65.html
