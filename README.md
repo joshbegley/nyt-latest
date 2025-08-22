@@ -1,3 +1,7 @@
+**Word of the Day: gulag**\
+`This word has appeared in 43 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2025/08/22/learning/word-of-the-day-gulag.html
+
 **The New York Times in Print for Friday, Aug. 22, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/08/22/todays-new-york-times
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6563442/2025/08/22/liverpool-giovanni-leoni-liverpo
 **Douglas Luiz coup is a sign of Nottingham Forest's ambition**\
 `Nuno Espirito Santo already has a strong midfield, but the chance to bring in the Brazil international was too good to turn down`\
 https://nytimes.com/athletic/6567594/2025/08/22/douglas-luiz-transfer-nottingham-forest-analysis/
-
-**Aston Villa's search for a No 10: Do they need Asensio back? Is it time for Buendia?**\
-`A wide player is on the list of priorities, but Unai Emery needs to optimise Villa's attacking output through his No 10s`\
-https://nytimes.com/athletic/6559986/2025/08/22/aston-villa-marco-asensio-emiliano-buendia-no-10/
 
