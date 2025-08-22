@@ -1,40 +1,40 @@
-**Bayern Munich, Real Madrid kick-off times and preview**\
-`Real Madrid and Bayern Munich are in action as the European giants lead a host of fascinating ties from across the continent. `\
-https://nytimes.com/athletic/6569019/2025/08/22/bayerns-title-charge-begins-and-marseilles-meltdown-european-weekend-preview/
+**Vikings' 53-man roster bubble: Who needs to produce vs. Titans in final preseason game?**\
+`Which players need to perform well Friday night to find themselves on the right side of the cut line? Here are 11 names.`\
+https://nytimes.com/athletic/6567374/2025/08/22/vikings-53-man-roster-bubble-titans-preseason/
 
-**Gaza City and Surrounding Areas Are Officially Under Famine, Monitors Say**\
-`At least half a million people in the enclave were facing the most severe conditions measured by U.N.-backed international experts: starvation, acute malnutrition and death.`\
-https://nytimes.com/2025/08/22/world/middleeast/famine-gaza-city-israel.html
+**Who is each MLB playoff contender’s most indispensable 'under-the-radar' player?**\
+`I touched base with front-office executives and managers from 16 contending teams to hear their thoughts on these key players.`\
+https://nytimes.com/athletic/6567281/2025/08/22/mlb-playoff-contenders-underrated-players/
 
-**Birmingham closing in on signing Koumas on loan from Liverpool**\
-`The dealwill be a straight loan with no option to buy included.`\
-https://nytimes.com/athletic/6569024/2025/08/22/birmingham-lewis-koumas-liverpool-transfer/
+**What makes Ben Johnson's attention to detail different: 'Dialed in on every little thing'**\
+`Johnson says he's focused on the details, and he's shown it on the field, in the film room and throughout training camp.`\
+https://nytimes.com/athletic/6566003/2025/08/22/bears-ben-johnson-attention-to-detail/
 
-**Isak to not be involved vs Liverpool, Howe insists striker would be 'welcomed' back**\
-`Eddie Howe concedes that Newcastle face a “lose-lose situation to a degree” regardless of what happens with the striker this summer.`\
-https://nytimes.com/athletic/6569026/2025/08/22/alexander-isak-newcastle-liverpool-premier-league/
+**The Little League World Series team that produced MLB greats, an Olympian and a CFB champ**\
+`One Florida Little League team 45 years ago included five Major League Baseball draftees, one of whom won two NCAA football championships.`\
+https://nytimes.com/athletic/6540564/2025/08/22/little-league-world-series-tampa-belmont-heights/
 
-**The New York Times International Edition in Print for Saturday, Aug. 23, 2025**\
-``\
-https://nytimes.com/issue/todaysinyt/2025/08/22/todays-new-york-times-international-edition
+**SEC's 9-game schedule will feature 3 vs. annual rivals: How will it work?**\
+`Here is a potential list of the rivalry matchups, prioritizing tradition and geography, not competition.`\
+https://nytimes.com/athletic/6568408/2025/08/22/sec-football-annual-rivals-schedule/
 
-**Nvidia Chief in Talks With China to Allay Security Fears Over A.I. Chips**\
-`Jensen Huang said he was “surprised” by questions about his company’s chips, given China’s eagerness to acquire them for advanced A.I systems.`\
-https://nytimes.com/2025/08/22/business/jensen-huang-nvidia-china.html
+**O'Connor: Fitting that the Yankees have to solve their Red Sox problem … or else**\
+`The Yankees don't inspire fear in anyone these days, certainly not the Red Sox, who have beaten them six times in a row.`\
+https://nytimes.com/athletic/6568915/2025/08/22/yankees-red-sox-rivalry-oconnor/
 
-**The Crowdfunded War Map That Ukrainians Check Every Morning**\
-`The online DeepState map, based on geolocated combat footage and tips from Ukrainian Army sources, draws 900,000 views each day and acts as a counterbalance to the military’s omissions.`\
-https://nytimes.com/2025/08/22/world/europe/ukraine-russia-deepstate-war-map.html
+**Chris Banjo knows the grind and now he’s rising as one of the NFL’s top young coaches**\
+`The Jets’ 35-year-old special teams coordinator built a decade-long career as a player before jumping immediately into coaching.`\
+https://nytimes.com/athletic/6567487/2025/08/22/chris-banjo-jets-special-teams-coordinator/
 
-**Big 12 odds, projected win totals, best bets: How the most balanced conference stacks up**\
-`The Big 12 doesn't have a clear favorite, but instead a jumble of teams bunched closely together in the odds. It could be weekly chaos.`\
-https://nytimes.com/athletic/6563115/2025/08/22/big-12-odds-win-totals-projections-best-bets/
+**Farmageddon in Dublin: How to watch Iowa State vs. Kansas State in college football opener**\
+`One of the sport's oldest rivalries is getting shipped out to Ireland, where the Cyclones and Wildcats meet as ranked teams. `\
+https://nytimes.com/athletic/6566088/2025/08/22/farmageddon-kansas-state-iowa-st-college-football-dublin-ireland-how-to-watch/
 
-**Preseason waiver wire: Ollie Gordon, Troy Franklin and more players to add now — before the Week 2 rush**\
-`John Laghezza gives his way-too-early Week 0 waiver wire targets ahead of the kickoff of the 2025 NFL regular season. `\
-https://nytimes.com/athletic/6567712/2025/08/22/fantasy-football-early-waiver-wire-ollie-gordon/
+**Myth-busting Big Ten travel: How much is realignment impacting football results?**\
+`Big Ten teams fared poorly when flying multiple time zones last football season. But how much could actually be chalked up to travel?`\
+https://nytimes.com/athletic/6567649/2025/08/22/big-ten-travel-conference-realignment-football/
 
-**Patriots 53-man roster projection: With the preseason over, who makes the initial list?**\
-`The Patriots have some tough decisions to make ahead of Tuesday's deadline and could go the waiver-wire route to improve at RB, TE and LB.`\
-https://nytimes.com/athletic/6568712/2025/08/22/patriots-53-man-roster-projection-final/
+**California Strikes Back at Texas’ Power Grab**\
+`Gov. Gavin Newsom has announced an aggressive plan to retaliate against gerrymandering by Texas Republicans. Will it work?`\
+https://nytimes.com/2025/08/22/podcasts/the-daily/california-texas-newsom-trump.html
 
