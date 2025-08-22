@@ -1,3 +1,11 @@
+**Dukes, cows, and the 'grimy' craftsmanship behind the cricket ball**\
+`Dukes, now based in a factory in east London, have been manufacturing cricket balls used in Test cricket in England since the 1760s`\
+https://nytimes.com/athletic/6560094/2025/08/22/cricket-ball-dukes-cow-science/
+
+**Friday Briefing: U.S. and Europe Flesh Out Trade Deal**\
+`Also, a war photographer’s return to Afghanistan.`\
+https://nytimes.com/2025/08/22/briefing/europe-us-trade-deal-ukraine-fallen-soldiers.html
+
 **Spurs have failed in a move for another star midfielder - who should they target next?**\
 `For the second time this summer, Spurs must pivot after a proposed deal to sign a creative midfielder collapsed at the final hurdle`\
 https://nytimes.com/athletic/6567248/2025/08/22/tottenham-eze-replacements/

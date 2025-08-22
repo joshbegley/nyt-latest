@@ -1,3 +1,11 @@
+**Dukes, cows, and the 'grimy' craftsmanship behind the cricket ball**\
+`Dukes, now based in a factory in east London, have been manufacturing cricket balls used in Test cricket in England since the 1760s`\
+https://nytimes.com/athletic/6560094/2025/08/22/cricket-ball-dukes-cow-science/
+
+**Friday Briefing: U.S. and Europe Flesh Out Trade Deal**\
+`Also, a war photographer’s return to Afghanistan.`\
+https://nytimes.com/2025/08/22/briefing/europe-us-trade-deal-ukraine-fallen-soldiers.html
+
 **Spurs have failed in a move for another star midfielder - who should they target next?**\
 `For the second time this summer, Spurs must pivot after a proposed deal to sign a creative midfielder collapsed at the final hurdle`\
 https://nytimes.com/athletic/6567248/2025/08/22/tottenham-eze-replacements/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6559986/2025/08/22/aston-villa-marco-asensio-emilia
 **FPL Gameweek 2 preview: Evanilson’s edge, Haaland captaincy and Eze knock-on effect**\
 `While one gameweek is far too small a sample size to draw long-term conclusions from, spotting the right trends can give you the edge`\
 https://nytimes.com/athletic/6563175/2025/08/22/fantasy-premier-league-fpl-gameweek-2-preview-eze-arsenal-haaland/
-
-**The story behind the 'Lavolpiana build-up' loved by Guardiola and used by Arsenal and Liverpool**\
-`It is a tactical term that has been popularised by Guardiola, but fewer people might be aware of the man who inspired it`\
-https://nytimes.com/athletic/6564263/2025/08/22/guardiola-arsenal-liverpool-lavolpiana/
-
-**Danny Welbeck: 'I don't think about retirement - that won't happen as soon as people think'**\
-`The former Manchester United, Arsenal and England forward explains how he and football have changed over his 17-year Premier League career`\
-https://nytimes.com/athletic/6501844/2025/08/22/danny-welbeck-interview-retirement-brighton/
 
