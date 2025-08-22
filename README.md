@@ -1,3 +1,15 @@
+**Southwest Is Changing Its Rules for Plus-Size Passengers**\
+`Among other changes, the airline will soon require travelers who “encroach upon the neighboring seat” to purchase an additional ticket, which might not be refunded.`\
+https://nytimes.com/2025/08/22/travel/southwest-extra-seat-plus-size-travelers.html
+
+**Abrego Garcia, Free From Tennessee Jail, Is Returning to Maryland, Lawyer Says**\
+`It remains unclear what will happen next to Kilmar Armando Abrego Garcia. The Justice Department has said that if he was released from custody in Tennessee, it would likely seek to re-deport him.`\
+https://nytimes.com/2025/08/22/us/politics/abrego-garcia-free-maryland.html
+
+**Scientists Split Giraffes Into Four Species. Three Are in Trouble.**\
+`A reassessment of the iconic species has “some dramatic implications for how we view giraffe conservation across Africa,” a new study concludes.`\
+https://nytimes.com/2025/08/22/science/giraffes-conservation-dna.html
+
 **Jefferson-Wooden takes down Richardson at Brussels Diamond League**\
 `Jefferson-Wooden ran a 10.76s, with fellow American Sha’Carri Richardson finishing second in 11.08s.`\
 https://nytimes.com/athletic/6570039/2025/08/22/jefferson-wooden-diamond-league-brussels/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/08/22/us/desantis-florida-alligator-alcatraz.html
 **Is the Trump Administration Building Up to a Military Confrontation With Venezuela?**\
 `A major increase in U.S. naval forces in the south Caribbean Sea has been underway since President Trump signed a directive targeting some cartels.`\
 https://nytimes.com/2025/08/22/us/politics/trump-venezuela-drug-war.html
-
-**A Bear Walked Into an Ice Cream Parlor. The Strawberry Never Had a Chance.**\
-`The black bear, which the authorities named Fuzzy, caused little damage but cleaned out much of the inventory at a popular parlor on south shore of Lake Tahoe.`\
-https://nytimes.com/2025/08/22/us/bear-lake-tahoe-ice-cream-shop.html
-
-**Book Club: Let’s Discuss ‘Wild Dark Shore’**\
-`Charlotte McConaghy’s novel about one isolated family, a mysterious stranger and the secrets they all hold is just the thing for late summer.`\
-https://nytimes.com/2025/08/22/books/review/podcast-book-club-wild-dark-shore-charlotte-mcconaghy.html
-
-**The Best School Supplies, According to 100 Kids**\
-`Text by Ellen Lee`\
-https://nytimes.com/card/2025/08/22/smarter-living/wirecutter/
 

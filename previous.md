@@ -1,3 +1,7 @@
+**Jefferson-Wooden takes down Richardson at Brussels Diamond League**\
+`Jefferson-Wooden ran a 10.76s, with fellow American Sha’Carri Richardson finishing second in 11.08s.`\
+https://nytimes.com/athletic/6570039/2025/08/22/jefferson-wooden-diamond-league-brussels/
+
 **Two-time Olympic ski champion Eileen Gu hurt while training in New Zealand**\
 `In a social media post, Gu hinted at the possibility of an overzealous fan disrupting her while training. `\
 https://nytimes.com/athletic/6569901/2025/08/22/olympic-ski-eileen-gu-injury-training/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/22/books/review/podcast-book-club-wild-dark-shore-ch
 **The Best School Supplies, According to 100 Kids**\
 `Text by Ellen Lee`\
 https://nytimes.com/card/2025/08/22/smarter-living/wirecutter/
-
-**Fed Chair Hints at Interest Rate Cuts, While Emphasizing Caution**\
-`Jerome H. Powell, the chair of the Federal Reserve, signaled that interest rate cuts may be coming during his final speech as Fed chair on Friday at an annual conference hosted by the Reserve Bank of Kansas City in Jackson, Wyo.`\
-https://nytimes.com/video/us/politics/100000010356275/powell-hints-interest-rate-cuts.html
 

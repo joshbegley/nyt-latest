@@ -1,3 +1,7 @@
+**Jefferson-Wooden takes down Richardson at Brussels Diamond League**\
+`Jefferson-Wooden ran a 10.76s, with fellow American Sha’Carri Richardson finishing second in 11.08s.`\
+https://nytimes.com/athletic/6570039/2025/08/22/jefferson-wooden-diamond-league-brussels/
+
 **Two-time Olympic ski champion Eileen Gu hurt while training in New Zealand**\
 `In a social media post, Gu hinted at the possibility of an overzealous fan disrupting her while training. `\
 https://nytimes.com/athletic/6569901/2025/08/22/olympic-ski-eileen-gu-injury-training/
