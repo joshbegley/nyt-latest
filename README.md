@@ -1,3 +1,15 @@
+**Battling Power Outages and Heat Wave, Iran Orders More Shutdowns**\
+`Amid suffocating temperatures, the Iranian authorities are closing public offices and cutting water and electricity as the country struggles with an energy crisis.`\
+https://nytimes.com/2025/08/22/world/middleeast/iran-heat-shutdown-outages.html
+
+**Take a Closer Look at These ‘Great’ New York City Trees**\
+`Some are rare or endangered. Others have stood witness to important moments in history. All are lovely and surprising in their own way.`\
+https://nytimes.com/interactive/2025/08/22/nyregion/nyc-trees.html
+
+**Israel and the Existential Threats in Gaza**\
+`Readers discuss a column by Nicholas Kristof on the ‘pointless destructiveness’ of Israel’s war on Hamas. Also: Trump’s mail-in ballot block.`\
+https://nytimes.com/2025/08/22/opinion/kristof-israel-gaza.html
+
 **Howard University President to Step Down This Month**\
 `The historically Black university has faced the possibility of a Trump administration budget cut, and students were outraged over billing troubles.`\
 https://nytimes.com/2025/08/22/us/howard-university-president-resignation.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/08/22/business/trump-tiktok-ban-deadline.html
 **Can Trump Fire a Fed Governor? What to Know About the Legal Arguments**\
 `The Supreme Court has indicated that there are distinctive reasons to shield the Federal Reserve from political interference.`\
 https://nytimes.com/2025/08/22/us/politics/can-trump-fire-a-fed-governor.html
-
-**College football Week 0 picks against the spread: Iowa State-Kansas State headlines**\
-`The college football season kicks off with five games involving FBS teams, including a top-25 matchup in Ireland.`\
-https://nytimes.com/athletic/6567767/2025/08/22/college-football-week-0-picks-against-the-spread-iowa-state-kansas-state/
-
-**Search of Bolton’s Home Shows Uneasy Mix of Retribution and Law Enforcement**\
-`It is not clear what evidence the authorities have that John Bolton mishandled classified information, but President Trump’s efforts to punish rivals immediately stoked questions about the investigation.`\
-https://nytimes.com/2025/08/22/us/politics/trump-bolton-search-analysis.html
-
-**Holdout avoided: Marco Rossi signs 3-year, $15 million contract with Wild**\
-`Rossi, 23, was a top-six center for Minnesota this past season and scored a career-high 24 goals and 60 points.`\
-https://nytimes.com/athletic/6471963/2025/08/22/marco-rossi-wild-contract/
 

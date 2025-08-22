@@ -1,3 +1,15 @@
+**Howard University President to Step Down This Month**\
+`The historically Black university has faced the possibility of a Trump administration budget cut, and students were outraged over billing troubles.`\
+https://nytimes.com/2025/08/22/us/howard-university-president-resignation.html
+
+**Man Utd advancing in talks to sign goalkeeper Lammens**\
+`The 23-year-old goalkeeper has played 52 times in the Belgian Pro League.`\
+https://nytimes.com/athletic/6569765/2025/08/22/senne-lammens-manchester-united/
+
+**Commanders to trade RB Brian Robinson to 49ers for 2026 draft pick: Sources**\
+`Robinson, 26, led the Commanders' running backs in rushing yards in each of his three seasons with the team.`\
+https://nytimes.com/athletic/6564755/2025/08/22/brian-robinson-commanders-49ers-trade/
+
 **Fearing Customs Chaos, DHL Joins Others in Suspending U.S. Shipments**\
 `The halt by one of the world’s largest couriers comes after President Trump eliminated an exemption on tariffs levied on imported goods valued under $800.`\
 https://nytimes.com/2025/08/22/business/dhl-us-shipments-suspended-de-minimis.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/08/22/us/politics/trump-bolton-search-analysis.html
 **Holdout avoided: Marco Rossi signs 3-year, $15 million contract with Wild**\
 `Rossi, 23, was a top-six center for Minnesota this past season and scored a career-high 24 goals and 60 points.`\
 https://nytimes.com/athletic/6471963/2025/08/22/marco-rossi-wild-contract/
-
-**Need a snappy team name for fantasy football? Check these out.**\
-`From player name puns, to Taylor Swift references, we've got a fantasy handle for you.`\
-https://nytimes.com/athletic/6567645/2025/08/22/best-fun-fantasy-football-team-names-taylor-swift-puns/
-
-**U.N.-Backed Experts Confirm Situation in Gaza City as Famine**\
-`At least half a million residents in Gaza City and its surrounding areas are officially living under famine, according to a hunger monitoring group that the United Nations and international aid groups rely on for assessing global crises.`\
-https://nytimes.com/video/world/middleeast/100000010355470/famine-report-gaza-city-.html
-
-**Analyzing the fantasy football ADP movers as drafts approach**\
-`Whose fantasy stock is shifting as drafts approach? Michael Salfino analyzes who's up and who's down.`\
-https://nytimes.com/athletic/6569401/2025/08/22/fantasy-football-nfl-camp-takeaways/
 
