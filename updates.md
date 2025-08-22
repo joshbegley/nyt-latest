@@ -1,3 +1,15 @@
+**Battling Power Outages and Heat Wave, Iran Orders More Shutdowns**\
+`Amid suffocating temperatures, the Iranian authorities are closing public offices and cutting water and electricity as the country struggles with an energy crisis.`\
+https://nytimes.com/2025/08/22/world/middleeast/iran-heat-shutdown-outages.html
+
+**Take a Closer Look at These ‘Great’ New York City Trees**\
+`Some are rare or endangered. Others have stood witness to important moments in history. All are lovely and surprising in their own way.`\
+https://nytimes.com/interactive/2025/08/22/nyregion/nyc-trees.html
+
+**Israel and the Existential Threats in Gaza**\
+`Readers discuss a column by Nicholas Kristof on the ‘pointless destructiveness’ of Israel’s war on Hamas. Also: Trump’s mail-in ballot block.`\
+https://nytimes.com/2025/08/22/opinion/kristof-israel-gaza.html
+
 **Howard University President to Step Down This Month**\
 `The historically Black university has faced the possibility of a Trump administration budget cut, and students were outraged over billing troubles.`\
 https://nytimes.com/2025/08/22/us/howard-university-president-resignation.html

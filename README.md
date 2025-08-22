@@ -1,3 +1,15 @@
+**Revealed: Nuno's row with Edu at the heart of his Nottingham Forest unhappiness**\
+`A row between Nuno and Edu at Nottingham Forest has sparked recent discontent over the state of the club's squad`\
+https://nytimes.com/athletic/6569506/2025/08/22/nuno-edu-row-nottingham-forest/
+
+**Giants stock report: Jaxson Dart did all he could to ignite optimism for future**\
+`Who else saw their stock rise this preseason? Fellow rookies Abdul Carter and Marcus Mbow make the list alongside Dart. `\
+https://nytimes.com/athletic/6568934/2025/08/22/ny-giants-jaxson-dart-preseason/
+
+**Hoping to Jump-Start Talks, Canada to Drop Some Retaliatory Tariffs on U.S. Products**\
+`Canada’s leader said he would follow the United States in dropping tariffs against American goods covered by the existing free trade agreement.`\
+https://nytimes.com/2025/08/22/world/canada/canada-us-tariffs-drop-trump.html
+
 **Battling Power Outages and Heat Wave, Iran Orders More Shutdowns**\
 `Amid suffocating temperatures, the Iranian authorities are closing public offices and cutting water and electricity as the country struggles with an energy crisis.`\
 https://nytimes.com/2025/08/22/world/middleeast/iran-heat-shutdown-outages.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6564755/2025/08/22/brian-robinson-commanders-49ers-
 **Fearing Customs Chaos, DHL Joins Others in Suspending U.S. Shipments**\
 `The halt by one of the world’s largest couriers comes after President Trump eliminated an exemption on tariffs levied on imported goods valued under $800.`\
 https://nytimes.com/2025/08/22/business/dhl-us-shipments-suspended-de-minimis.html
-
-**What to Know About the Allegations Against Lisa Cook of the Fed**\
-`Trump administration officials have accused the Federal Reserve governor of mortgage fraud and called for her to resign.`\
-https://nytimes.com/2025/08/22/us/politics/trump-lisa-cook-fed-mortgage-fraud.html
-
-**Trump Signals Fourth Delay of TikTok Ban**\
-`The short-form video app has until mid-September to change its ownership structure or face a ban in the United States, after a number of deadline extensions from President Trump.`\
-https://nytimes.com/2025/08/22/business/trump-tiktok-ban-deadline.html
-
-**Can Trump Fire a Fed Governor? What to Know About the Legal Arguments**\
-`The Supreme Court has indicated that there are distinctive reasons to shield the Federal Reserve from political interference.`\
-https://nytimes.com/2025/08/22/us/politics/can-trump-fire-a-fed-governor.html
 
