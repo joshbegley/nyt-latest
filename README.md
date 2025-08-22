@@ -1,3 +1,11 @@
+**Why Chelsea, Villa & Arsenal will have one eye on UEFA's rules before window closes**\
+`PSR is at the forefront of everyone's minds, but it is not quite that simple over the rest of the window`\
+https://nytimes.com/athletic/6566554/2025/08/22/chelsea-aston-villa-arsenal-uefa-financial-rules/
+
+**Philipp Lahm: The Bundesliga has advantages over other leagues. We need to make them matter**\
+`The Bundesliga returns this weekend and Philipp Lahm has thoughts about the league`\
+https://nytimes.com/athletic/6566862/2025/08/22/bundesliga-advantages-premier-league/
+
 **Vuelta a Espana 2025 preview: Riders to watch, key stages and more**\
 `Home to unpredictable and aggressive racing and steep climbs, The Vuelta has a unique place in the cycling calendar`\
 https://nytimes.com/athletic/6566610/2025/08/22/vuelta-a-espana-2025-preview/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/08/22/style/stefanie-manisero-john-avanzino-wedding.htm
 **A Simple Favor Turned Her ‘Hot Neighbor’ Into Her Husband**\
 `Olivia Schreiber and Kyle Shaub lived one floor away from each other in a West Village building. When they saw each other in the elevator, sparks flew.`\
 https://nytimes.com/2025/08/22/style/olivia-schreiber-kyle-shaub-wedding.html
-
-**Connections: Sports Edition Coach: Hints for Aug. 22, 2025**\
-`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
-https://nytimes.com/athletic/6566855/2025/08/22/connections-sports-edition-hints-for-aug-22-2025/
-
-**‘Eenie Meanie’ Review: Road Rage**\
-`This heist movie features Samara Weaving as a getaway driver with an unruly ex-boyfriend who owes a local kingpin serious cash.`\
-https://nytimes.com/2025/08/22/movies/eenie-meanie-review.html
 
