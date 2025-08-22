@@ -1,3 +1,7 @@
+**Red Lobster Is Betting on Black Diners With Its Brand Comeback**\
+`Are nostalgia, a new chief executive and seafood boil bags enough to save the seafood chain after more than 60 years?`\
+https://nytimes.com/2025/08/22/dining/red-lobster-comeback.html
+
 **Andrews suggests Wissa could return to Brentford squad vs Aston Villa**\
 `The Athletic reported on Wednesday that Wissa was the subject of an improved bid from Newcastle.`\
 https://nytimes.com/athletic/6569464/2025/08/22/yoane-wissa-brentford-squad-aston-villa/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6569480/2025/08/22/panthers-taylor-moton-contract-e
 **Chris Wallace, a CBS News Scion, Is Advising Its New Owner**\
 `The longtime news anchor recently began working for a financial firm connected to CBS’s new parent company and has spoken with the network’s owner, David Ellison, several times.`\
 https://nytimes.com/2025/08/22/business/media/chris-wallace-redbird-cbs.html
-
-**Orioles to sign Samuel Basallo to 8-year, $67 million contract: Source**\
-`The deal includes a club option for 2034, and could reach $88.5 million based on escalators for awards and playing time at catcher.`\
-https://nytimes.com/athletic/6569423/2025/08/22/orioles-samuel-basallo-record-contract-deal-catcher/
 
