@@ -1,3 +1,15 @@
+**Gaza City and Surrounding Areas Are Officially Under Famine, Monitors Say**\
+`At least half a million people in the enclave were facing the most severe conditions measured by U.N.-backed international experts: starvation, acute malnutrition and death.`\
+https://nytimes.com/2025/08/22/world/middleeast/famine-gaza-city-israel.html
+
+**Birmingham closing in on signing Koumas on loan from Liverpool**\
+`The dealwill be a straight loan with no option to buy included.`\
+https://nytimes.com/athletic/6569024/2025/08/22/birmingham-lewis-koumas-liverpool-transfer/
+
+**Isak to not be involved vs Liverpool, Howe insists striker would be 'welcomed' back**\
+`Eddie Howe concedes that Newcastle face a “lose-lose situation to a degree” regardless of what happens with the striker this summer.`\
+https://nytimes.com/athletic/6569026/2025/08/22/alexander-isak-newcastle-liverpool-premier-league/
+
 **The New York Times International Edition in Print for Saturday, Aug. 23, 2025**\
 ``\
 https://nytimes.com/issue/todaysinyt/2025/08/22/todays-new-york-times-international-edition

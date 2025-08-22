@@ -1,3 +1,15 @@
+**Gaza City and Surrounding Areas Are Officially Under Famine, Monitors Say**\
+`At least half a million people in the enclave were facing the most severe conditions measured by U.N.-backed international experts: starvation, acute malnutrition and death.`\
+https://nytimes.com/2025/08/22/world/middleeast/famine-gaza-city-israel.html
+
+**Birmingham closing in on signing Koumas on loan from Liverpool**\
+`The dealwill be a straight loan with no option to buy included.`\
+https://nytimes.com/athletic/6569024/2025/08/22/birmingham-lewis-koumas-liverpool-transfer/
+
+**Isak to not be involved vs Liverpool, Howe insists striker would be 'welcomed' back**\
+`Eddie Howe concedes that Newcastle face a “lose-lose situation to a degree” regardless of what happens with the striker this summer.`\
+https://nytimes.com/athletic/6569026/2025/08/22/alexander-isak-newcastle-liverpool-premier-league/
+
 **The New York Times International Edition in Print for Saturday, Aug. 23, 2025**\
 ``\
 https://nytimes.com/issue/todaysinyt/2025/08/22/todays-new-york-times-international-edition
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6568712/2025/08/22/patriots-53-man-roster-projectio
 **MAHA Is a Bad Answer to a Good Question**\
 `Rachael Bedard and David Wallace-Wells on Covid disillusionment and the rise of the MAHA movement.`\
 https://nytimes.com/2025/08/22/opinion/ezra-klein-podcast-rachael-bedard-david-wallace-wells.html
-
-**A Simple Plan to Prepare for Disasters**\
-`Having long, medium and short term goals can help ease your mind.`\
-https://nytimes.com/2025/08/22/well/disaster-plan-prep-hurricane-fire.html
-
-**Year Will End With 300,000 Fewer Federal Workers, Trump Official Says**\
-`The reduction would be the largest single-year decline in civilian federal employment since World War II.`\
-https://nytimes.com/2025/08/22/us/politics/trump-federal-workers.html
-
-**How Trump Leans on Emergency Declarations to Bypass Congress and Skirt Regulations**\
-`The president has declared 10 emergencies since returning to office, far outpacing what is typical. He has used them to justify hundreds of actions.`\
-https://nytimes.com/interactive/2025/08/22/us/politics/trump-emergency-immigration-tariffs-crime.html
 
