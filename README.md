@@ -1,3 +1,7 @@
+**Hegseth Authorizes Troops in D.C. to Carry Weapons**\
+`It remains unclear whether the National Guard soldiers will be armed as they walk through the city.`\
+https://nytimes.com/2025/08/22/us/politics/national-guard-weapons.html
+
 **Why Epstein’s Furious Grip on Washington Holds**\
 `It isn’t just members of the MAGA faithful who are feeling let down.`\
 https://nytimes.com/2025/08/22/opinion/democrats-republicans-epstein.html
@@ -6,7 +10,7 @@ https://nytimes.com/2025/08/22/opinion/democrats-republicans-epstein.html
 `A Republican mainstay who served multiple presidents, Mr. Bolton has become a persistent Trump critic since leaving the White House.`\
 https://nytimes.com/2025/08/22/us/politics/john-bolton-trump-national-security-adviser.html
 
-**Kennedy Center to host 2026 World Cup draw, President Trump announces**\
+**2026 World Cup draw to be held at Kennedy Center, President Trump announces**\
 `Trump made the announcement flanked by Vice President JD Vance and FIFA president Gianni Infantino in the Oval Office.`\
 https://nytimes.com/athletic/6569842/2025/08/22/world-cup-draw-kennedy-center-trump-infantino/
 
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2025/08/22/nyregion/nyc-trees.html
 **Israel and the Existential Threats in Gaza**\
 `Readers discuss a column by Nicholas Kristof on the ‘pointless destructiveness’ of Israel’s war on Hamas. Also: Trump’s mail-in ballot block.`\
 https://nytimes.com/2025/08/22/opinion/kristof-israel-gaza.html
-
-**Howard University President to Step Down This Month**\
-`The historically Black university has faced the possibility of a Trump administration budget cut, and students were outraged over billing troubles.`\
-https://nytimes.com/2025/08/22/us/howard-university-president-resignation.html
 

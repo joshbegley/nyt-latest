@@ -1,8 +1,20 @@
+**Why Epstein’s Furious Grip on Washington Holds**\
+`It isn’t just members of the MAGA faithful who are feeling let down.`\
+https://nytimes.com/2025/08/22/opinion/democrats-republicans-epstein.html
+
+**Who Is John Bolton, Trump’s Former National Security Adviser?**\
+`A Republican mainstay who served multiple presidents, Mr. Bolton has become a persistent Trump critic since leaving the White House.`\
+https://nytimes.com/2025/08/22/us/politics/john-bolton-trump-national-security-adviser.html
+
+**Kennedy Center to host 2026 World Cup draw, President Trump announces**\
+`Trump made the announcement flanked by Vice President JD Vance and FIFA president Gianni Infantino in the Oval Office.`\
+https://nytimes.com/athletic/6569842/2025/08/22/world-cup-draw-kennedy-center-trump-infantino/
+
 **Revealed: Nuno's row with Edu at the heart of his Nottingham Forest unhappiness**\
 `A row between Nuno and Edu at Nottingham Forest has sparked recent discontent over the state of the club's squad`\
 https://nytimes.com/athletic/6569506/2025/08/22/nuno-edu-row-nottingham-forest/
 
-**Giants stock report: Jaxson Dart did all he could to ignite optimism for future**\
+**Giants stock report: Jaxson Dart did all he could to ignite optimism**\
 `Who else saw their stock rise this preseason? Fellow rookies Abdul Carter and Marcus Mbow make the list alongside Dart. `\
 https://nytimes.com/athletic/6568934/2025/08/22/ny-giants-jaxson-dart-preseason/
 
@@ -25,16 +37,4 @@ https://nytimes.com/2025/08/22/opinion/kristof-israel-gaza.html
 **Howard University President to Step Down This Month**\
 `The historically Black university has faced the possibility of a Trump administration budget cut, and students were outraged over billing troubles.`\
 https://nytimes.com/2025/08/22/us/howard-university-president-resignation.html
-
-**Man Utd advancing in talks to sign goalkeeper Lammens**\
-`The 23-year-old goalkeeper has played 52 times in the Belgian Pro League.`\
-https://nytimes.com/athletic/6569765/2025/08/22/senne-lammens-manchester-united/
-
-**Commanders to trade RB Brian Robinson to 49ers for 2026 draft pick: Sources**\
-`Robinson, 26, led the Commanders' running backs in rushing yards in each of his three seasons with the team.`\
-https://nytimes.com/athletic/6564755/2025/08/22/brian-robinson-commanders-49ers-trade/
-
-**Fearing Customs Chaos, DHL Joins Others in Suspending U.S. Shipments**\
-`The halt by one of the world’s largest couriers comes after President Trump eliminated an exemption on tariffs levied on imported goods valued under $800.`\
-https://nytimes.com/2025/08/22/business/dhl-us-shipments-suspended-de-minimis.html
 
