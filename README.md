@@ -2,6 +2,10 @@
 `John Laghezza gives his way-too-early Week 0 waiver wire targets ahead of the kickoff of the 2025 NFL regular season. `\
 https://nytimes.com/athletic/6567712/2025/08/22/fantasy-football-early-waiver-wire-ollie-gordon/
 
+**Patriots 53-man roster projection: With the preseason over, who makes the initial list?**\
+`The Patriots have some tough decisions to make ahead of Tuesday's deadline and could go the waiver-wire route to improve at RB, TE and LB.`\
+https://nytimes.com/athletic/6568712/2025/08/22/patriots-53-man-roster-projection-final/
+
 **MAHA Is a Bad Answer to a Good Question**\
 `Rachael Bedard and David Wallace-Wells on Covid disillusionment and the rise of the MAHA movement.`\
 https://nytimes.com/2025/08/22/opinion/ezra-klein-podcast-rachael-bedard-david-wallace-wells.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/22/business/trump-federal-reserve-bls.html
 **‘KPop Demon Hunters’ Has Everyone Bobbing Their Heads. Especially Parents.**\
 `Some parents are reliving a golden era of boy bands and girl groups — “but now I’m handing out juice boxes instead of dancing like a rave with a glow stick,” one said.`\
 https://nytimes.com/2025/08/22/arts/kpop-demon-hunters-netflix.html
-
-**Earl Sweatshirt Turned the Hype Down. Now He Can ‘Live, Laugh, Love.’**\
-`The cult rapper, who broke out at 16 as a member of Odd Future, spoke with Popcast about cutting his own path around fame and into fatherhood.`\
-https://nytimes.com/2025/08/22/arts/music/earl-sweatshirt-interview-popcast.html
 
