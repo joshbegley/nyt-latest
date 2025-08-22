@@ -1,3 +1,7 @@
+**13 New Songs You Need to Hear: Doja Cat, Laufey, Wolf Alice and More**\
+`Listen to tracks by Deftones, Lila Iké, Chance the Rappers and others.`\
+https://nytimes.com/2025/08/22/arts/music/playlist-doja-cat-laufey.html
+
 **Hegseth Authorizes Troops in D.C. to Carry Weapons**\
 `It remains unclear whether the National Guard soldiers will be armed as they walk through the city.`\
 https://nytimes.com/2025/08/22/us/politics/national-guard-weapons.html
