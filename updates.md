@@ -1,3 +1,11 @@
+**Abrego Garcia Released From Tennessee Jail, Returns to Maryland**\
+`Kilmar Armando Abrego Garcia, the immigrant who the Trump administration wrongfully deported to El Salvador in March, was released from criminal custody on Friday, his lawyer said. The Justice Department has said it might seek to re-deport him.`\
+https://nytimes.com/video/us/politics/100000010357062/kilmar-armando-abrego-garcia-released.html
+
+**West Ham 1 Chelsea 5: Brazilians make their mark as Blues finally back on top (for now)**\
+`Chelsea absolutely strolled to their first win of the Premier League season, thanks to Joao Pedro and Estevao`\
+https://nytimes.com/athletic/6564447/2025/08/22/west-ham-1-chelsea-5-estevao-joao-pedro/
+
 **West Ham 1 Chelsea 5 - Brazilians make their mark as Blues finally back on top (for now)**\
 `Chelsea absolutely strolled to their first win of the Premier League season, thanks to Joao Pedro and Estevao`\
 https://nytimes.com/athletic/6564447/2025/08/22/west-ham-1-chelsea-5-estevao-joao-pedro/
