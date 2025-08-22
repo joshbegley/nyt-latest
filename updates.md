@@ -1,3 +1,15 @@
+**The Pulse: The fantasy questions you’re too embarrassed to ask**\
+`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/6567700/2025/08/22/fantasy-football-beginners-guide-the-pulse/
+
+**Anthony Richardson must own failures, but Colts aren't blameless either**\
+`As the Colts appear to be punting on Richardson's development, Steichen sounds like he's trying to distance himself from the embattled QB.`\
+https://nytimes.com/athletic/6568689/2025/08/22/colts-anthony-richardson-failure-shane-steichen/
+
+**Weird & Wild: Alejandro Kirk's stolen base, Brewers' 14-game streak, Bronx Bombers' blasts**\
+`Can you imagine how much courage it takes to give baseball’s slowest everyday player the green light to run amok?`\
+https://nytimes.com/athletic/6568592/2025/08/22/alejandro-kirks-stolen-base-brewers-win-streak-yankees-homers/
+
 **Another Dodgers-Padres series with first-place stakes. Here's how to watch the sequel**\
 `A second straight weekend three-pack with the Los Angeles Dodgers and San Diego Padres? Of course we are down.`\
 https://nytimes.com/athletic/6568323/2025/08/22/dodgers-padres-nl-west-ohtani-injury-tatis-snell-how-to-watch/

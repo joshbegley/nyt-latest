@@ -1,3 +1,15 @@
+**Collapsing Boundaries**\
+`We look at the relationship between digital stars and their followers.`\
+https://nytimes.com/2025/08/22/briefing/fan-encounters.html
+
+**Thoughts of Kevin Durant's arrival? 2025-26 expectations? Rockets fan survey results**\
+`More than 700 Houston Rockets fans filled out a survey featuring a variety of team-related topics and expectations.`\
+https://nytimes.com/athletic/6567423/2025/08/22/rockets-fan-survey-kevin-durant-nba/
+
+**The Athletic FC: The £1.9bn academy stars sell-off, 'Lavolpiana' tactic explained, Reyna bid**\
+`Today in TAFC: Why academy stars are being sold by Premier League clubs, the 'Lavolpiana' tactic to watch out for, and Reyna on the move?`\
+https://nytimes.com/athletic/6568992/2025/08/22/1-9nb-academy-stars-lavolpiana-tactics-reyna/
+
 **The Pulse: The fantasy questions you’re too embarrassed to ask**\
 `The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
 https://nytimes.com/athletic/6567700/2025/08/22/fantasy-football-beginners-guide-the-pulse/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6567281/2025/08/22/mlb-playoff-contenders-underrate
 **What makes Ben Johnson's attention to detail different: 'Dialed in on every little thing'**\
 `Johnson says he's focused on the details, and he's shown it on the field, in the film room and throughout training camp.`\
 https://nytimes.com/athletic/6566003/2025/08/22/bears-ben-johnson-attention-to-detail/
-
-**The Little League World Series team that produced MLB greats, an Olympian and a CFB champ**\
-`One Florida Little League team 45 years ago included five Major League Baseball draftees, one of whom won two NCAA football championships.`\
-https://nytimes.com/athletic/6540564/2025/08/22/little-league-world-series-tampa-belmont-heights/
-
-**SEC's 9-game schedule will feature 3 vs. annual rivals: How will it work?**\
-`Here is a potential list of the rivalry matchups, prioritizing tradition and geography, not competition.`\
-https://nytimes.com/athletic/6568408/2025/08/22/sec-football-annual-rivals-schedule/
-
-**O'Connor: Fitting that the Yankees have to solve their Red Sox problem … or else**\
-`The Yankees don't inspire fear in anyone these days, certainly not the Red Sox, who have beaten them six times in a row.`\
-https://nytimes.com/athletic/6568915/2025/08/22/yankees-red-sox-rivalry-oconnor/
 
