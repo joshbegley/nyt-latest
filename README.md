@@ -1,3 +1,11 @@
+**Ron Turcotte, Who Rode Secretariat to the Triple Crown, Dies at 84**\
+`With Turcotte in the saddle, Secretariat powered to victory in the Kentucky Derby and the Preakness in 1973 and then demolished the competition in the Belmont Stakes.`\
+https://nytimes.com/2025/08/22/sports/horse-racing/ron-turcotte-dead.html
+
+**Parents of Missing 7-Month-Old Are Charged in His Murder**\
+`Investigators said they were still searching for the boy, Emmanuel Haro, whose mother had claimed he was abducted outside a store in Yucaipa, Calif., on Aug. 14.`\
+https://nytimes.com/2025/08/22/us/california-missing-baby-parents-arrest-murder.html
+
 **Bolton Investigation Linked to Overseas Intelligence**\
 `The nature of the intelligence collected overseas is not known. The F.B.I. obtained the search warrant after presenting evidence to a federal judge.`\
 https://nytimes.com/2025/08/22/us/politics/john-bolton-intelligence-fbi-classified.html
@@ -29,12 +37,4 @@ https://nytimes.com/issue/magazine/2025/08/22/the-82425-issue
 **Pentagon Fires the Defense Intelligence Agency Chief**\
 `The move comes weeks after the agency drafted a preliminary report contradicting President Trump’s contention that U.S. strikes had “obliterated” nuclear sites in Iran.`\
 https://nytimes.com/2025/08/22/us/politics/defense-intelligence-agency-chief-fired.html
-
-**Elon Musk’s X Agrees to Settlements With Thousands of Former Employees**\
-`The settlements are an about-face for the billionaire, whose company fought with former workers over whether it owed them severance pay.`\
-https://nytimes.com/2025/08/22/technology/elon-musk-x-settlements.html
-
-**Javier Mascherano defends red card, confirms Lionel Messi out vs. D.C. United**\
-`Mascherano fires back at critics over his red card antics and explains why Messi won’t be on the pitch against D.C. United.`\
-https://nytimes.com/athletic/6569781/2025/08/22/javier-mascherano-defends-red-card/
 
