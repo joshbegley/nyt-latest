@@ -10,7 +10,7 @@ https://nytimes.com/2025/08/22/arts/chris-doyle-dead.html
 `The federal program supports universities with high numbers of Latino students. Trump officials said they wouldn’t defend it against a lawsuit, which could effectively end the program.`\
 https://nytimes.com/2025/08/22/us/education-department-hispanic-serving-universities.html
 
-**Trump Names Personnel Head as Ambassador to India**\
+**Trump Names His Personnel Chief as Ambassador to India**\
 `As head of presidential personnel appointments, Sergio Gor placed thousands of people across government, the president said.`\
 https://nytimes.com/2025/08/22/us/politics/sergio-gor-ambassador-india.html
 

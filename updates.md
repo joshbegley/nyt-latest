@@ -1,3 +1,11 @@
+**Craig Kimbrel joins Astros bullpen just as they lose another key arm**\
+`The nine-time All-Star closer is preparing to play for his ninth team. "It's a tremendous ballclub with a lot of talent," Kimbrel said.`\
+https://nytimes.com/athletic/6570142/2025/08/22/craig-kimbrel-astros-bennett-sousa-injured-list/
+
+**Chris Doyle, Artist Who Brought the Inanimate to Life, Dies at 66**\
+`He used animation and other media to create worlds inhabited by anthropomorphic machines and industrious creatures. One curator described his work as “Narnia on acid.”`\
+https://nytimes.com/2025/08/22/arts/chris-doyle-dead.html
+
 **Education Department Backs Away From Program for Hispanic-Serving Colleges**\
 `The federal program supports universities with high numbers of Latino students. Trump officials said they wouldn’t defend it against a lawsuit, which could effectively end the program.`\
 https://nytimes.com/2025/08/22/us/education-department-hispanic-serving-universities.html
