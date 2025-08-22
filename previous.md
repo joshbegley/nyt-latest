@@ -1,9 +1,21 @@
+**Colorado Judge Rejects Deal for Funeral Home Owner in Corpse Abuse Case**\
+`The judge rejected a 20-year sentence that would have been combined with a federal case. Prosecutors said that Jon Hallford, 45, and his wife cheated grieving families while living a lavish lifestyle.`\
+https://nytimes.com/2025/08/22/us/colorado-funeral-home-plea-deal.html
+
+**The White House Wants Indiana to Redistrict. Republicans There Are Split.**\
+`As President Trump asks Republican-led states to redraw congressional maps, some Indiana conservatives are pushing back. “They should leave it alone,” one legislator said.`\
+https://nytimes.com/2025/08/22/us/indiana-redistricting-congress-republicans.html
+
+**Printable 2025 fantasy football cheat sheet rankings**\
+`The Athletic's and Jake Ciely's printable fantasy football cheat sheet for the 2025 draft season. `\
+https://nytimes.com/athletic/6569955/2025/08/22/fantasy-football-2025-printable-cheat-sheet/
+
 **Abrego Garcia Released From Tennessee Jail, Returns to Maryland**\
 `Kilmar Armando Abrego Garcia, the immigrant who the Trump administration wrongfully deported to El Salvador in March, was released from criminal custody on Friday, his lawyer said. The Justice Department has said it might seek to re-deport him.`\
 https://nytimes.com/video/us/politics/100000010357062/kilmar-armando-abrego-garcia-released.html
 
 **West Ham 1 Chelsea 5: Brazilians make their mark as Blues finally back on top (for now)**\
-`Chelsea absolutely strolled to their first win of the Premier League season, thanks to Joao Pedro and Estevao`\
+`Chelsea strolled to their first win of the Premier League season, thanks to Joao Pedro and Estevao`\
 https://nytimes.com/athletic/6564447/2025/08/22/west-ham-1-chelsea-5-estevao-joao-pedro/
 
 **The 8.24.25 Issue**\
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6569781/2025/08/22/javier-mascherano-defends-red-ca
 **Maxwell Never Witnessed Trump in ‘Inappropriate Setting,’ Transcript Says**\
 `The transcripts and audio, covering two days of discussions between Ms. Maxwell and Todd Blanche, the No. 2 post at the Justice Department, are likely to raise as many questions as they answer.`\
 https://nytimes.com/2025/08/22/us/politics/ghislaine-maxwell-doj-transcript-trump.html
-
-**The biggest reason the Giants couldn't stay in the postseason race**\
-`Giants' hitters have performed as expected or worse than expected. The lack of breakout seasons has really hurt their playoff hopes.`\
-https://nytimes.com/athletic/6568081/2025/08/22/sf-giants-team-weakness-postseason-race/
-
-**Justice Dept. Gives Congress Some Subpoenaed Epstein Files**\
-`The G.O.P. chairman of a key House panel was forced to issue the subpoena after a few Republicans banded together with Democrats to push it through.`\
-https://nytimes.com/2025/08/22/us/politics/house-subpoena-epstein-files.html
-
-**Kennedy Center Fires Dance Director After Questions About Programming**\
-`The president of the arts center cited the TV show “So You Think You Can Dance” as the type of programming that could be more broadly appealing to audiences.`\
-https://nytimes.com/2025/08/22/arts/dance/kennedy-center-dance-jane-raleigh.html
 

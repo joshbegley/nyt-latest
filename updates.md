@@ -1,3 +1,19 @@
+**Colorado Judge Rejects Deal for Funeral Home Owner in Corpse Abuse Case**\
+`The judge rejected a 20-year sentence that would have been combined with a federal case. Prosecutors said that Jon Hallford, 45, and his wife cheated grieving families while living a lavish lifestyle.`\
+https://nytimes.com/2025/08/22/us/colorado-funeral-home-plea-deal.html
+
+**The White House Wants Indiana to Redistrict. Republicans There Are Split.**\
+`As President Trump asks Republican-led states to redraw congressional maps, some Indiana conservatives are pushing back. “They should leave it alone,” one legislator said.`\
+https://nytimes.com/2025/08/22/us/indiana-redistricting-congress-republicans.html
+
+**Printable 2025 fantasy football cheat sheet rankings**\
+`The Athletic's and Jake Ciely's printable fantasy football cheat sheet for the 2025 draft season. `\
+https://nytimes.com/athletic/6569955/2025/08/22/fantasy-football-2025-printable-cheat-sheet/
+
+**West Ham 1 Chelsea 5: Brazilians make their mark as Blues finally back on top (for now)**\
+`Chelsea strolled to their first win of the Premier League season, thanks to Joao Pedro and Estevao`\
+https://nytimes.com/athletic/6564447/2025/08/22/west-ham-1-chelsea-5-estevao-joao-pedro/
+
 **Abrego Garcia Released From Tennessee Jail, Returns to Maryland**\
 `Kilmar Armando Abrego Garcia, the immigrant who the Trump administration wrongfully deported to El Salvador in March, was released from criminal custody on Friday, his lawyer said. The Justice Department has said it might seek to re-deport him.`\
 https://nytimes.com/video/us/politics/100000010357062/kilmar-armando-abrego-garcia-released.html
