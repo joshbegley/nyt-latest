@@ -1,3 +1,7 @@
+**‘You have not been a model prisoner,’ parole commissioner says in denial.**\
+`By Matt Stevens and Tim Arango`\
+https://nytimes.com/live/2025/08/21/us/menendez-brothers-parole-hearing/you-have-not-been-a-model-prisoner-parole-commissioner-says-in-denial
+
 **After being denied parole, Erik Menendez still has other pathways to freedom.**\
 `One legal avenue the Menendez brothers have pursued remains open to them: a habeas petition, which is a vehicle for challenging unlawful detentions.`\
 https://nytimes.com/2025/08/21/us/erik-menendez-parole-release-habeas.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/08/21/us/menendez-brothers-parole-hearing/erik-men
 **Live Updates: Menendez Hasn’t Been a ‘Model Prisoner,’ Board Says in Denying Parole**\
 `A state panel said Erik Menendez should stay in prison for the 1989 killing of his parents and questioned the sincerity of his rehabilitation. His brother, Lyle, goes before the board on Friday.`\
 https://nytimes.com/live/2025/08/21/us/menendez-brothers-parole-hearing
-
-**Crown will not appeal decision in Hockey Canada sexual assault trial**\
-`The decision came following a trial that garnered widespread attention, spanned two months and featured a number of bizarre twists.`\
-https://nytimes.com/athletic/6568637/2025/08/21/hockey-canada-sexual-assault-trial-appeal/
 
