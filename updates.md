@@ -1,3 +1,11 @@
+**How an Environmental Artist Spends a Day in Her Workshop**\
+`Annalisa Iadicicco, who teaches art with the Blue Bus Project, starts her day with singing bowls and turns a bicycle into a shredder.`\
+https://nytimes.com/2025/08/23/nyregion/annalisa-iadicicco-blue-bus-project.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/08/23/crosswords/spelling-bee-forum.html
+
 **West Ham's dire start exposes a squad lacking quality. In all areas**\
 `Played two, lost two is not an ideal start - but more concerning have been the manner of the defeats. The problems run deep at West Ham`\
 https://nytimes.com/athletic/6569247/2025/08/23/west-ham-graham-potter-squad-transfers/
