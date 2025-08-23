@@ -1,3 +1,15 @@
+**Mets place Frankie Montas on injured list with UCL injury, recall Huascar Brazobán**\
+`Montas, who signed a two-year, $34 million contract in December, has a 6.28 ERA over 38 2/3 innings.`\
+https://nytimes.com/athletic/6571397/2025/08/23/mets-frankie-montas-ucl-injury/
+
+**No. 22 Iowa State edges No. 17 Kansas State 24-21 in CFB opener**\
+`The game showed why both programs are considered among the league favorites.`\
+https://nytimes.com/athletic/6571407/2025/08/23/iowa-state-kansas-state-week-0-college-football-score-analysis/
+
+**College Football Playoff 2025 projections: Our model's best odds to make the bracket**\
+`Our College Football Playoff predictions model is back. Check here for regular updates on CFP and national championship odds for 2025.`\
+https://nytimes.com/athletic/6560541/2025/08/23/college-football-playoff-bracket-projections-odds/
+
 **Commanders 53-man roster projection 2.0: Four RBs earn spots**\
 `Bill Croskey-Merritt was one of the stars of the summer, but the improvement of Chris Rodriguez Jr. also can't be ignored.`\
 https://nytimes.com/athletic/6571284/2025/08/23/commanders-53-man-roster-final-projection-includes-four-running-backs/
