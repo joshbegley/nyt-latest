@@ -10,7 +10,7 @@ https://nytimes.com/2025/08/23/nyregion/theodore-friedman-dead.html
 `Thomas Frank made it two wins out of two as Tottenham head coach with a brilliant away performance - The Athletic analyses the action`\
 https://nytimes.com/athletic/6564448/2025/08/23/manchester-city-0-tottenham-2-guardiola-frank-trafford-palhinha/
 
-**Bolton, Trump and a Crisis of Trust in Federal Law Enforcement**\
+**What Americans Need to Know About the Bolton F.B.I. Search**\
 `If the F.B.I. is seen as a tool of retribution, it will come at the expense of its effectiveness in the long run.`\
 https://nytimes.com/2025/08/23/opinion/john-bolton-trump-fbi.html
 
