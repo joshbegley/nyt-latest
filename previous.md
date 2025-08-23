@@ -1,3 +1,19 @@
+**In 1996, the brothers were convicted of murdering their parents.**\
+`By Matt Stevens and Tim Arango`\
+https://nytimes.com/live/2025/08/22/us/menendez-parole-hearing/in-1996-the-brothers-were-convicted-of-murdering-their-parents
+
+**Judge Blocks Trump From Pulling Funding to 34 More ‘Sanctuary Cities’**\
+`The order expanded a previous one in April that barred the Trump administration from withholding federal funding to 16 cities and counties over their local laws.`\
+https://nytimes.com/2025/08/22/us/politics/trump-sanctuary-cities-funding.html
+
+**With Bobby Cox in attendance, tears were shed during Braves' 1995 championship celebration**\
+`Cox doesn’t get out of the house much and wasn’t able to make it to the All-Star Game, which made Friday’s appearance `\
+https://nytimes.com/athletic/6570510/2025/08/22/bobby-cox-braves-1995-championship-celebration/
+
+**Live Updates: Lyle Menendez Loses Bid for Parole Three Decades After Murdering Parents**\
+`Mr. Menendez will remain in prison with his brother, Erik, who received the same decision on Thursday.`\
+https://nytimes.com/live/2025/08/22/us/menendez-parole-hearing
+
 **The Blue Jays bet on ace upside in Shane Bieber. In season debut, he delivered**\
 `Bieber struck out nine batters in a 5-2 win over the Marlins, delivering the upside Toronto wagered on at the deadline.`\
 https://nytimes.com/athletic/6570489/2025/08/22/shane-bieber-blue-jays-debut-marlins/
@@ -21,20 +37,4 @@ https://nytimes.com/2025/08/22/nyregion/nadine-menendez-blames-robert-menendez.h
 **Homeland Security Dept. Says It Hasn’t Kept Text Message Data Since April**\
 `The agency’s response to public records requests indicated potential violations of federal records laws, experts said.`\
 https://nytimes.com/2025/08/22/us/politics/homeland-security-foia-text-messages.html
-
-**San Francisco Had Avoided Trump’s Ire. Until Now.**\
-`The president focused on cities like Los Angeles and Washington as he deployed federal troops and railed against crime. But on Friday, in reference to San Francisco, he said, “We’ll clean that one up, too.”`\
-https://nytimes.com/2025/08/22/us/politics/san-francisco-trump-cities.html
-
-**Impact of ‘Continuous Vetting’ for U.S. Visa Holders Remains Unclear**\
-`The State Department offered few details about its plans for the 55 million visa holders, and it was unclear if it was culling travel documents, or making less drastic changes.`\
-https://nytimes.com/2025/08/22/us/politics/continuous-vetting-visa-holders.html
-
-**Red Sox move struggling Walker Buehler to bullpen**\
-`In 22 starts, Buehler posted the worst numbers of his career with a 5.40 ERA, 16.5 percent strikeout rate and 10.7 percent walk rate.`\
-https://nytimes.com/athletic/6570293/2025/08/22/red-sox-walker-buehler-bullpen/
-
-**Ex-Employee Sentenced to 4 Years for Sabotaging Company’s Computer Network**\
-`The man, a former software developer for Eaton Corporation, wrote malicious code that crashed servers on the company’s network in 2019, prosecutors said.`\
-https://nytimes.com/2025/08/22/business/eaton-corporation-hack-prison-sentence.html
 
