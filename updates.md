@@ -1,3 +1,7 @@
+**Broncos 53-man roster: Final projection after beating Saints for 3-0 preseason**\
+`Bo Nix ended his second NFL preseason with two big throws to Courtland Sutton, including a 19-yard touchdown pass.`\
+https://nytimes.com/athletic/6570061/2025/08/23/broncos-roster-projection-2025/
+
 **Fed Officials Try to Keep Focus on Economy as Trump Intensifies Attacks**\
 `The administration’s effort to oust a Fed governor as part of a pressure campaign for lower borrowing costs created an inescapable distraction at this year’s Jackson Hole conference.`\
 https://nytimes.com/2025/08/23/business/powell-fed-trump-economy-jackson-hole.html
