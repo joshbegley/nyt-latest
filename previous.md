@@ -1,3 +1,7 @@
+**Tottenham and Hamburg hold talks over Vuskovic loan**\
+`No deal is imminent and Vuskovic travelled on Saturday to the Etihad Stadium for Spurs’ Premier League game against Manchester City.`\
+https://nytimes.com/athletic/6570799/2025/08/23/luka-vuskovic-tottenham-hamburg-loan/
+
 **Vegas was ready for World Cup draw, but the Trump-FIFA bromance resurfaced**\
 `The venue was suggested by Trump's administration, and Infantino fell into line, despite numerous FIFA officials preferring Las Vegas.`\
 https://nytimes.com/athletic/6570329/2025/08/23/las-vegas-fifa-world-cup-trump-infantino/
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/08/22/us/menendez-parole-hearing/the-parole-board-
 **The Dodgers' offense disappears — and the division lead does, too**\
 `The Padres mowed down the Dodgers 2-1 to move back into a tie for the NL West lead.`\
 https://nytimes.com/athletic/6570712/2025/08/23/dodgers-offense-division-lead-padres/
-
-**Hong Kong Denies Visa Renewal for Senior Bloomberg Journalist**\
-`The unexplained decision raises new concerns about the erosion of press freedom in a city transformed by Beijing’s national security law.`\
-https://nytimes.com/2025/08/23/world/asia/hong-kong-bloomberg-visa.html
 
