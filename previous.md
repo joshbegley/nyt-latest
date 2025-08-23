@@ -7,10 +7,10 @@ https://nytimes.com/athletic/6570762/2025/08/23/padres-dodgers-petco-park-home-f
 https://nytimes.com/2025/08/23/nyregion/theodore-friedman-dead.html
 
 **The Briefing: Man City 0 Tottenham 2 - Trafford's howler, Frank's pressing plan, outstanding Palhinha**\
-`Thomas Frank made it two wins out of two as Tottenham head coach with a brilliant away performance - The Athletic analyses the action`\
+`Thomas Frank made it two wins out of two as Tottenham head coach with a brilliant away performance for his visiting side at the Etihad`\
 https://nytimes.com/athletic/6564448/2025/08/23/manchester-city-0-tottenham-2-guardiola-frank-trafford-palhinha/
 
-**Bolton, Trump and a Crisis of Trust in Federal Law Enforcement**\
+**What Americans Need to Know About the Bolton F.B.I. Search**\
 `If the F.B.I. is seen as a tool of retribution, it will come at the expense of its effectiveness in the long run.`\
 https://nytimes.com/2025/08/23/opinion/john-bolton-trump-fbi.html
 

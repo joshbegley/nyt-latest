@@ -1,3 +1,11 @@
+**The Briefing: Man City 0 Tottenham 2 - Trafford's howler, Frank's pressing plan, outstanding Palhinha**\
+`Thomas Frank made it two wins out of two as Tottenham head coach with a brilliant away performance for his visiting side at the Etihad`\
+https://nytimes.com/athletic/6564448/2025/08/23/manchester-city-0-tottenham-2-guardiola-frank-trafford-palhinha/
+
+**What Americans Need to Know About the Bolton F.B.I. Search**\
+`If the F.B.I. is seen as a tool of retribution, it will come at the expense of its effectiveness in the long run.`\
+https://nytimes.com/2025/08/23/opinion/john-bolton-trump-fbi.html
+
 **In Dodgers rematch, Padres feel power of Petco Park's home-field advantage**\
 `Only one team, the league-leading Milwaukee Brewers, has a better winning percentage at home than the Padres.`\
 https://nytimes.com/athletic/6570762/2025/08/23/padres-dodgers-petco-park-home-field-advantage/
