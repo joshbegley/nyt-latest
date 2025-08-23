@@ -1,3 +1,5 @@
+
+
 **Bolton, Trump and a Crisis of Trust in Federal Law Enforcement**\
 `If the F.B.I. is seen as a tool of retribution, it will come at the expense of its effectiveness in the long run.`\
 https://nytimes.com/2025/08/23/opinion/john-bolton-trump-fbi.html
