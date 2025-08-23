@@ -1,3 +1,11 @@
+**Chelsea prove they are no longer 'Cole Palmer Football Club'**\
+`Enzo Maresca now has a wealth of attacking options available - he should be able to keep Cole Palmer fresh for the season ahead`\
+https://nytimes.com/athletic/6570414/2025/08/23/chelsea-cole-palmer-maresca-squad-options-estevao/
+
+**The Menendez murder case through the pages of The New York Times.**\
+`By Ashley Ahn`\
+https://nytimes.com/live/2025/08/22/us/menendez-parole-hearing/the-menendez-murder-case-through-the-pages-of-the-new-york-times
+
 **The parole board decisions take the heat off Gavin Newsom.**\
 `By Laurel Rosenhall and Tim Arango`\
 https://nytimes.com/live/2025/08/22/us/menendez-parole-hearing/the-parole-board-decisions-take-the-heat-off-gavin-newsom

@@ -1,3 +1,11 @@
+**Chelsea prove they are no longer 'Cole Palmer Football Club'**\
+`Enzo Maresca now has a wealth of attacking options available - he should be able to keep Cole Palmer fresh for the season ahead`\
+https://nytimes.com/athletic/6570414/2025/08/23/chelsea-cole-palmer-maresca-squad-options-estevao/
+
+**The Menendez murder case through the pages of The New York Times.**\
+`By Ashley Ahn`\
+https://nytimes.com/live/2025/08/22/us/menendez-parole-hearing/the-menendez-murder-case-through-the-pages-of-the-new-york-times
+
 **The parole board decisions take the heat off Gavin Newsom.**\
 `By Laurel Rosenhall and Tim Arango`\
 https://nytimes.com/live/2025/08/22/us/menendez-parole-hearing/the-parole-board-decisions-take-the-heat-off-gavin-newsom
@@ -29,12 +37,4 @@ https://nytimes.com/live/2025/08/22/us/menendez-parole-hearing/lyle-menendez-sai
 **The New York Times in Print for Saturday, Aug. 23, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/08/23/todays-new-york-times
-
-**In his closing statement, Lyle Menendez said he would be ‘forever sorry.’**\
-`By Matt Stevens and Tim Arango`\
-https://nytimes.com/live/2025/08/22/us/menendez-parole-hearing/in-his-closing-statement-lyle-menendez-said-he-would-be-forever-sorry
-
-**For some who have followed the case, the parole denials were no surprise.**\
-`By Jesus Jiménez`\
-https://nytimes.com/live/2025/08/22/us/menendez-parole-hearing/for-some-who-have-followed-the-case-the-parole-denials-were-no-surprise
 
