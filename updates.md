@@ -1,3 +1,11 @@
+**It's about time — Why the BBWAA created a Reliever of the Year award**\
+`The Baseball Writers Association of America will vote on the game's best relievers each season. Here's why this honor is long overdue.`\
+https://nytimes.com/athletic/6571274/2025/08/23/reliever-of-the-year-award-bbwaa/
+
+**New MLB award: BBWAA to start honoring relief pitcher of the year in 2026**\
+`This is the first new honor awarded by the BBWAA since the Manager of the Year was introduced in 1983.`\
+https://nytimes.com/athletic/6571214/2025/08/23/mlb-relief-pitcher-of-the-year-award/
+
 **Bengals' 53-man roster, depth chart projection: Help wanted on offensive, defensive lines**\
 `The Bengals' roster must be trimmed to 53 by Tuesday evening, but the changes will keep coming after that.`\
 https://nytimes.com/athletic/6571384/2025/08/23/bengals-roster-projection-depth-chart-53/
