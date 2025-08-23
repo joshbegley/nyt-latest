@@ -1,3 +1,7 @@
+**Hong Kong Denies Visa Renewal for Senior Bloomberg Journalist**\
+`The unexplained decision raises fresh concerns about the erosion of press freedom in a city transformed by Beijing’s national security law.`\
+https://nytimes.com/2025/08/23/world/asia/hong-kong-bloomberg-visa.html
+
 **Several factors contributed to Erik Menendez’s parole denial on Thursday.**\
 `By Jesus Jiménez`\
 https://nytimes.com/live/2025/08/22/us/menendez-parole-hearing/several-factors-contributed-to-erik-menendezs-parole-denial-on-thursday
