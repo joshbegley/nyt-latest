@@ -1,3 +1,11 @@
+**Ravens 53-man roster projection: Young defensive players make for tough calls**\
+`Several young players flashed in the preseason, making it a difficult process for Baltimore to trim its roster to 53 players by Tuesday.`\
+https://nytimes.com/athletic/6571465/2025/08/23/ravens-53-man-roster-projection-2025/
+
+**Barcelona stage comeback to beat Levante 3-2 in Rashford's first start**\
+`The winner came in the 92nd minute when Levante defender Unai Elgezabal headed Lamine Yamal’s cross to his own net.`\
+https://nytimes.com/athletic/6571549/2025/08/23/barcelona-levante-rashford-la-liga/
+
 **Connor Zilisch, top NASCAR prospect, moving to Cup Series full-time in 2026**\
 `The 19-year-old will fill out Trackhouse Racing's driver roster by replacing the departing Daniel Suarez.`\
 https://nytimes.com/athletic/6571470/2025/08/23/nascar-connor-zilisch-cup-series-move-2026/

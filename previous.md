@@ -1,3 +1,11 @@
+**Ravens 53-man roster projection: Young defensive players make for tough calls**\
+`Several young players flashed in the preseason, making it a difficult process for Baltimore to trim its roster to 53 players by Tuesday.`\
+https://nytimes.com/athletic/6571465/2025/08/23/ravens-53-man-roster-projection-2025/
+
+**Barcelona stage comeback to beat Levante 3-2 in Rashford's first start**\
+`The winner came in the 92nd minute when Levante defender Unai Elgezabal headed Lamine Yamal’s cross to his own net.`\
+https://nytimes.com/athletic/6571549/2025/08/23/barcelona-levante-rashford-la-liga/
+
 **Connor Zilisch, top NASCAR prospect, moving to Cup Series full-time in 2026**\
 `The 19-year-old will fill out Trackhouse Racing's driver roster by replacing the departing Daniel Suarez.`\
 https://nytimes.com/athletic/6571470/2025/08/23/nascar-connor-zilisch-cup-series-move-2026/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6571397/2025/08/23/mets-frankie-montas-ucl-injury/
 **No. 22 Iowa State edges No. 17 Kansas State 24-21 in CFB opener**\
 `The game showed why both programs are considered among the league favorites.`\
 https://nytimes.com/athletic/6571407/2025/08/23/iowa-state-kansas-state-week-0-college-football-score-analysis/
-
-**College Football Playoff 2025 projections: Our model's best odds to make the bracket**\
-`Our College Football Playoff predictions model is back. Check here for regular updates on CFP and national championship odds for 2025.`\
-https://nytimes.com/athletic/6560541/2025/08/23/college-football-playoff-bracket-projections-odds/
-
-**Commanders 53-man roster projection 2.0: Four RBs earn spots**\
-`Bill Croskey-Merritt was one of the stars of the summer, but the improvement of Chris Rodriguez Jr. also can't be ignored.`\
-https://nytimes.com/athletic/6571284/2025/08/23/washington-commanders-final-roster-projection-preseason/
 
