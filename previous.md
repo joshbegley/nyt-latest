@@ -1,3 +1,7 @@
+**Texas Legislature Gives Final Approval to Redistricting Map**\
+`The map’s passage was a major victory in President Trump’s push to get Republican state leaders to help his party keep control of the U.S. House.`\
+https://nytimes.com/2025/08/23/us/texas-redistricting.html
+
 **Chelsea prove they are no longer 'Cole Palmer Football Club'**\
 `Enzo Maresca now has a wealth of attacking options available - he should be able to keep Cole Palmer fresh for the season ahead`\
 https://nytimes.com/athletic/6570414/2025/08/23/chelsea-cole-palmer-maresca-squad-options-estevao/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6570674/2025/08/23/astros-lance-mccullers-super-clo
 **Lyle Menendez said his mother also sexually abused him.**\
 `By Matt Stevens and Tim Arango`\
 https://nytimes.com/live/2025/08/22/us/menendez-parole-hearing/lyle-menendez-said-his-mother-also-sexually-abused-him
-
-**The New York Times in Print for Saturday, Aug. 23, 2025**\
-``\
-https://nytimes.com/issue/todayspaper/2025/08/23/todays-new-york-times
 
