@@ -1,3 +1,7 @@
+**The Menendez Brothers’ Momentum Built for Years. It Was Dashed in 2 Days.**\
+`Young people energized a push for redemption — and the release of Lyle and Erik. Parole commissioners took a different view and a harder line.`\
+https://nytimes.com/2025/08/23/arts/menendez-brothers-supporters-parole-denied.html
+
 **At Lady Gaga’s Mayhem Ball, a Pop Star Is Reborn**\
 `The singer and songwriter proved she’s operating at the peak of her powers during a two-and-a-half-hour set that drew sharp connections between her past and present.`\
 https://nytimes.com/2025/08/23/arts/music/lady-gaga-mayhem-ball-review.html
