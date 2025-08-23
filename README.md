@@ -1,3 +1,11 @@
+**In his closing statement, Lyle Menendez said he would be ‘forever sorry.’**\
+`By Matt Stevens and Tim Arango`\
+https://nytimes.com/live/2025/08/22/us/menendez-parole-hearing/in-his-closing-statement-lyle-menendez-said-he-would-be-forever-sorry
+
+**For some who have followed the case, the parole denials were no surprise.**\
+`By Jesus Jiménez`\
+https://nytimes.com/live/2025/08/22/us/menendez-parole-hearing/for-some-who-have-followed-the-case-the-parole-denials-were-no-surprise
+
 **Yankees continue to defend Anthony Volpe despite poor performance. Why?**\
 `Volpe has struggled at the plate and in the field, but his team talks about him like he's having a fine season.`\
 https://nytimes.com/athletic/6570542/2025/08/23/yankees-defend-anthony-volpe/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6569071/2025/08/23/marseille-rabiot-rowe-zerbi-long
 **Palace against Forest has become 'El CASico', but is theirs a lasting rivalry?**\
 `The Premier League has a new rivalry, for now anyway, born of the FA Cup winners' demotion from Europa League to Conference League `\
 https://nytimes.com/athletic/6569415/2025/08/23/crystal-palace-nottingham-forest-parish-marinakis-rivalry/
-
-**Micah Parsons, Alexander Isak and other controversial sports contract disputes**\
-`Alexander Isak has divided opinion in the UK, but in the U.S. sports fans are accustomed to players assertively vying for trades`\
-https://nytimes.com/athletic/6566863/2025/08/23/micah-parsons-alexander-isak-contract-disputes-nfl-pl/
-
-**Ryne Sandberg remembered for how he played the game and treated people on way to Hall of Fame**\
-`“What endeared him to fans and earned him universal respect within the game wasn’t just what he did, but the way he did it."`\
-https://nytimes.com/athletic/6570595/2025/08/23/cubs-ryne-sandberg-memorial-service/
 
