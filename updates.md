@@ -1,3 +1,7 @@
+**West Ham's dire start exposes a squad lacking quality. In all areas**\
+`Played two, lost two is not an ideal start - but more concerning have been the manner of the defeats. The problems run deep at West Ham`\
+https://nytimes.com/athletic/6569247/2025/08/23/west-ham-graham-potter-squad-transfers/
+
 **Texas Legislature Gives Final Approval to Redistricting Map**\
 `The map’s passage was a major victory in President Trump’s push to get Republican state leaders to help his party keep control of the U.S. House.`\
 https://nytimes.com/2025/08/23/us/texas-redistricting.html
