@@ -1,3 +1,7 @@
+**Released audio recording of Thursday hearing angers Menendez family.**\
+`By Tim Arango`\
+https://nytimes.com/live/2025/08/22/us/menendez-parole-hearing/released-audio-recording-of-thursday-hearing-angers-menendez-family
+
 **Lance McCullers Jr. feels 'super close.' How long can the Astros wait?**\
 `Houston didn't acquire any pitchers at the deadline, so they need someone besides Framber Valdez or Hunter Brown to provide quality innings.`\
 https://nytimes.com/athletic/6570674/2025/08/23/astros-lance-mccullers-super-close/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6569005/2025/08/23/arsenal-leeds-height-set-pieces/
 **Salomon Rondon interview: Isak sadness, Newcastle love and battling Real Madrid**\
 `The Venezuelan veteran joined Real Oviedo this summer for their return to the Spanish top flight`\
 https://nytimes.com/athletic/6569326/2025/08/23/salomon-rondon-oviedo-real-madrid-isak-newcastle/
-
-**James Horncastle's Serie A predictions: Title winners, best transfers, rising stars and teams in trouble**\
-`The Serie A season is upon us, so James Horncastle outlines the title contenders, who has done the best business, and much more...`\
-https://nytimes.com/athletic/6566565/2025/08/23/james-horncastle-serie-a-predictions/
 
