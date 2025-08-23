@@ -1,3 +1,11 @@
+**Quote of the Day: Critic of Many U.S. Colleges Seeing Need to Defend Them**\
+`Quotation of the Day for Saturday, August 23, 2025.`\
+https://nytimes.com/2025/08/22/pageoneplus/quote-of-the-day-critic-of-many-us-colleges-seeing-need-to-defend-them.html
+
+**Erik and Lyle Menendez have approached their rehabilitation differently in prison.**\
+`By Tim Arango`\
+https://nytimes.com/live/2025/08/22/us/menendez-parole-hearing/erik-and-lyle-menendez-have-approached-their-rehabilitation-differently-in-prison
+
 **Falcons tackle Kaleb McGary out for 'significant time' following practice injury**\
 `McGary could be headed for injured reserve, which would mean he'll miss at least the first four games, and might be out the entire season.`\
 https://nytimes.com/athletic/6565348/2025/08/22/kaleb-mcgary-falcons-injury-preseason/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6570489/2025/08/22/shane-bieber-blue-jays-debut-mar
 **Cute Sound?**\
 `Ryan Judge’s themeless grid will make you hem, haw and say “Aww!”`\
 https://nytimes.com/2025/08/22/crosswords/daily-puzzle-2025-08-23.html
-
-**5 Takeaways From Ghislaine Maxwell’s Interview About Jeffrey Epstein**\
-`In a courthouse interview with the deputy attorney general, Ms. Maxwell, who has been convicted of sex trafficking, maintained that President Trump and other famous figures were not involved.`\
-https://nytimes.com/2025/08/22/us/politics/ghislaine-maxwell-transcript-takeaways.html
-
-**Ron Turcotte, who rode Secretariat to Triple Crown, dead at 84**\
-`Turcotte famously swept the Kentucky Derby, Preakness and Belmont with Secretariat to win the first Triple Crown in 25 years.`\
-https://nytimes.com/athletic/6570433/2025/08/22/ron-turcotte-secretariat-triple-crown/
 

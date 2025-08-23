@@ -1,3 +1,7 @@
+**Falcons tackle Kaleb McGary out for 'significant time' following practice injury**\
+`McGary could be headed for injured reserve, which would mean he'll miss at least the first four games, and might be out the entire season.`\
+https://nytimes.com/athletic/6565348/2025/08/22/kaleb-mcgary-falcons-injury-preseason/
+
 **Lyle Menendez’s hearing took on a different tone from his brother’s.**\
 `By Matt Stevens and Tim Arango`\
 https://nytimes.com/live/2025/08/22/us/menendez-parole-hearing/lyle-menendezs-hearing-took-on-a-different-tone-from-his-brothers
