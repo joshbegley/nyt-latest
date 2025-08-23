@@ -10,7 +10,7 @@ https://nytimes.com/2025/08/23/opinion/jesse-jackson-zohran-mamdani-working-clas
 `The Pride said the Zambia international had suffered a "full thickness avulsion of her right adductor longus tendon".`\
 https://nytimes.com/athletic/6571021/2025/08/23/barbra-banda-orlando-pride-injury/
 
-**Reds drop a chance to keep up in Wild Card race with loss to Diamondbacks**\
+**Reds drop a chance to keep up in wild-card race with loss to Diamondbacks**\
 `The St. Louis Cardinals are just 3.5 games behind the Reds, and the Diamondbacks lurk a half-game behind St. Louis.`\
 https://nytimes.com/athletic/6570742/2025/08/23/reds-diamondbacks-loss-nl-wild-card-race/
 

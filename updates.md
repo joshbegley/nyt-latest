@@ -1,3 +1,7 @@
+**Reds drop a chance to keep up in wild-card race with loss to Diamondbacks**\
+`The St. Louis Cardinals are just 3.5 games behind the Reds, and the Diamondbacks lurk a half-game behind St. Louis.`\
+https://nytimes.com/athletic/6570742/2025/08/23/reds-diamondbacks-loss-nl-wild-card-race/
+
 **Dowman, 15, named in Premier League matchday squad for first time**\
 `Mikel Arteta has include the England youth international as part of his group for the home match against Leeds United.`\
 https://nytimes.com/athletic/6556954/2025/08/23/max-dowman-arsenal-age-first-team/
