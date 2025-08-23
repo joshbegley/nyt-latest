@@ -1,3 +1,7 @@
+**Turning the Tables, Robert Menendez’s Wife Now Seeks to Blame Him**\
+`Nadine and Robert Menendez, a former senator, were convicted of taking bribes. Seeking leniency, Ms. Menendez’s relatives and friends agree she is “not a criminal mastermind.”`\
+https://nytimes.com/2025/08/22/nyregion/nadine-menendez-blames-robert-menendez.html
+
 **Homeland Security Dept. Says It Hasn’t Kept Text Message Data Since April**\
 `The agency’s response to public records requests indicated potential violations of federal records laws, experts said.`\
 https://nytimes.com/2025/08/22/us/politics/homeland-security-foia-text-messages.html

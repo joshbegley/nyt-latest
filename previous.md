@@ -1,3 +1,7 @@
+**Turning the Tables, Robert Menendez’s Wife Now Seeks to Blame Him**\
+`Nadine and Robert Menendez, a former senator, were convicted of taking bribes. Seeking leniency, Ms. Menendez’s relatives and friends agree she is “not a criminal mastermind.”`\
+https://nytimes.com/2025/08/22/nyregion/nadine-menendez-blames-robert-menendez.html
+
 **Homeland Security Dept. Says It Hasn’t Kept Text Message Data Since April**\
 `The agency’s response to public records requests indicated potential violations of federal records laws, experts said.`\
 https://nytimes.com/2025/08/22/us/politics/homeland-security-foia-text-messages.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/22/climate/trump-administration-halts-revolution-win
 **Novak Djokovic calls out top players for not challenging tennis schedule changes**\
 `While some top names have publicly spoken out against the ATP Tour changes, Djokovic wishes more players complained years ago.`\
 https://nytimes.com/athletic/6570320/2025/08/22/novak-djokovic-us-open-atp-tour-comments/
-
-**With Close Associates Under Fire, Mayor Adams Remains Defiant**\
-`Mayor Eric Adams defended his administration and his re-election bid on Friday amid corruption charges against some of his closest allies.`\
-https://nytimes.com/2025/08/22/nyregion/adams-mamdani-nyc-mayor.html
 
