@@ -1,3 +1,7 @@
+**Arsenal 5 Leeds 0: Dowman, Eze, Gyokeres joy, injury concerns return and Farke blueprint needs work**\
+`Arsenal had much to celebrate in Emirates victory, but will wait on injury news, while Farke will be left looking for positives`\
+https://nytimes.com/athletic/6564449/2025/08/23/arsenal-leeds-dowman-eze/
+
 **Arsenal 5 Leeds 0 - Dowman, Eze, Gyokeres joy, injury concerns return and Farke blueprint needs work**\
 `Arsenal had much to celebrate in Emirates victory, but will wait on injury news as Farke will be left looking for positives.`\
 https://nytimes.com/athletic/6564449/2025/08/23/arsenal-leeds-dowman-eze/
