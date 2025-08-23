@@ -1,40 +1,40 @@
-**Tottenham and Hamburg hold talks over Vuskovic loan**\
-`No deal is imminent and Vuskovic travelled on Saturday to the Etihad Stadium for Spurs’ Premier League game against Manchester City.`\
-https://nytimes.com/athletic/6570799/2025/08/23/luka-vuskovic-tottenham-hamburg-loan/
+**Falcons 53-man roster projection: Spate of injuries makes forecast murky at several spots**\
+`The Falcons must trim their roster to 53 players by Tuesday afternoon. Here's what we think it's going to look like.`\
+https://nytimes.com/athletic/6570215/2025/08/23/atlanta-falcons-53-man-roster-projection-cowboys/
 
-**Vegas was ready for World Cup draw, but the Trump-FIFA bromance resurfaced**\
-`The venue was suggested by Trump's administration, and Infantino fell into line, despite numerous FIFA officials preferring Las Vegas.`\
-https://nytimes.com/athletic/6570329/2025/08/23/las-vegas-fifa-world-cup-trump-infantino/
+**When a Gen X-er Watches ‘Stranger Things’ With His Family**\
+`Kids from one era become the adults creating culture in another, trying to recapture the way the world once made them feel.`\
+https://nytimes.com/2025/08/23/arts/television/stranger-things-generation-x-nostalgia.html
 
-**How an Environmental Artist Spends a Day in Her Workshop**\
-`Annalisa Iadicicco, who teaches art with the Blue Bus Project, starts her day with singing bowls and turns a bicycle into a shredder.`\
-https://nytimes.com/2025/08/23/nyregion/annalisa-iadicicco-blue-bus-project.html
+**How to watch the 2025 Little League Baseball World Series championship weekend**\
+`The U.S. and international championship games take place on Saturday, followed by the Little League Baseball World Series final on Sunday.`\
+https://nytimes.com/athletic/6570078/2025/08/23/little-league-baseball-world-series-championship-2025-how-to-watch/
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2025/08/23/crosswords/spelling-bee-forum.html
+**When I Go, I’m Going Green**\
+`More Americans are choosing burials in which everything is biodegradable.`\
+https://nytimes.com/2025/08/23/health/green-natural-burials.html
 
-**West Ham's dire start exposes a squad lacking quality. In all areas**\
-`Played two, lost two is not an ideal start - but more concerning have been the manner of the defeats. The problems run deep at West Ham`\
-https://nytimes.com/athletic/6569247/2025/08/23/west-ham-graham-potter-squad-transfers/
+**Lisa Cook, Who Broke Ground at the Fed, Faces Attack by Trump**\
+`The first Black woman to serve on the Federal Reserve board, Ms. Cook has long been a pathbreaker in a field dominated by white men.`\
+https://nytimes.com/2025/08/23/business/lisa-cook-fed-trump.html
 
-**Texas Legislature Gives Final Approval to Redistricting Map**\
-`The map’s passage was a major victory in President Trump’s push to get Republican state leaders to help his party keep control of the U.S. House.`\
-https://nytimes.com/2025/08/23/us/texas-redistricting.html
+**Faced With Trump’s English Mandate, Mexico’s Truckers Report to Class**\
+`Companies, fearing penalties that could put them out of business, race to make sure their drivers have enough English to communicate with U.S. officials.`\
+https://nytimes.com/2025/08/23/world/americas/mexico-english-truckers-trump.html
 
-**Chelsea prove they are no longer 'Cole Palmer Football Club'**\
-`Enzo Maresca now has a wealth of attacking options available - he should be able to keep Cole Palmer fresh for the season ahead`\
-https://nytimes.com/athletic/6570414/2025/08/23/chelsea-cole-palmer-maresca-squad-options-estevao/
+**Still in Shambles, a Notorious Iranian Prison Is Holding Dissidents Again**\
+`Israel largely destroyed Evin prison, one of Iran’s most infamous symbols of oppression, in June. Less than two months later, Iran began returning male prisoners.`\
+https://nytimes.com/2025/08/23/world/middleeast/iran-evin-prisoners-return.html
 
-**The Menendez murder case through the pages of The New York Times.**\
-`By Ashley Ahn`\
-https://nytimes.com/live/2025/08/22/us/menendez-parole-hearing/the-menendez-murder-case-through-the-pages-of-the-new-york-times
+**As Troops Walk the Streets, Washington Restaurants Report a Slump**\
+`With the deployment of the National Guard, owners say business is down drastically.`\
+https://nytimes.com/2025/08/23/dining/washington-restaurants-national-guard.html
 
-**The parole board decisions take the heat off Gavin Newsom.**\
-`By Laurel Rosenhall and Tim Arango`\
-https://nytimes.com/live/2025/08/22/us/menendez-parole-hearing/the-parole-board-decisions-take-the-heat-off-gavin-newsom
+**Corporate America’s Newest Activist Investor: Donald Trump**\
+`The president is demanding government stakes in U.S. companies and cuts of their revenue. Experts see some similarities to state-managed capitalism in other parts of the world.`\
+https://nytimes.com/2025/08/23/business/trump-intel-us-steel-nvidia.html
 
-**The Dodgers' offense disappears — and the division lead does, too**\
-`The Padres mowed down the Dodgers 2-1 to move back into a tie for the NL West lead.`\
-https://nytimes.com/athletic/6570712/2025/08/23/dodgers-offense-division-lead-padres/
+**Are Remote Closings a Bad Idea?**\
+`The practice, which became more popular during the pandemic, does have its conveniences. But it never hurts to have everyone in the same room.`\
+https://nytimes.com/2025/08/23/realestate/are-remote-closings-a-bad-idea.html
 
