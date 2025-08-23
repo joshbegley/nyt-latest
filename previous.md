@@ -1,5 +1,5 @@
 **The Blue Jays bet on ace upside in Shane Bieber. In season debut, he delivered**\
-`Bieber struck out nine batters in a 5-2 win over the Marlins, delivering the ace upside Toronto bet on.`\
+`Bieber struck out nine batters in a 5-2 win over the Marlins, delivering the upside Toronto wagered on at the deadline.`\
 https://nytimes.com/athletic/6570489/2025/08/22/shane-bieber-blue-jays-debut-marlins/
 
 **Cute Sound?**\
