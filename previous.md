@@ -1,3 +1,11 @@
+**Connor Zilisch, top NASCAR prospect, moving to Cup Series full-time in 2026**\
+`The 19-year-old will fill out Trackhouse Racing's driver roster by replacing the departing Daniel Suarez.`\
+https://nytimes.com/athletic/6571470/2025/08/23/nascar-connor-zilisch-cup-series-move-2026/
+
+**Florida Paints Over Rainbow Memorial for Victims of Pulse Nightclub Shooting**\
+`The mayor of Orlando, Fla., said that the crosswalk mural, which featured the Pride flag’s colors, was removed overnight this week. Community members protested and have, for now, repainted it.`\
+https://nytimes.com/2025/08/23/us/politics/orlando-pulse-shooting-rainbow-crosswalk-memorial.html
+
 **Broncos 53-man roster: Final projection after beating Saints for 3-0 preseason**\
 `Bo Nix ended his second NFL preseason with two big throws to Courtland Sutton, including a 19-yard touchdown pass.`\
 https://nytimes.com/athletic/6570061/2025/08/23/broncos-roster-projection-2025/
@@ -28,13 +36,5 @@ https://nytimes.com/athletic/6560541/2025/08/23/college-football-playoff-bracket
 
 **Commanders 53-man roster projection 2.0: Four RBs earn spots**\
 `Bill Croskey-Merritt was one of the stars of the summer, but the improvement of Chris Rodriguez Jr. also can't be ignored.`\
-https://nytimes.com/athletic/6571284/2025/08/23/commanders-53-man-roster-final-projection-includes-four-running-backs/
-
-**Phillies' Zack Wheeler to undergo season-ending thoracic outlet surgery**\
-`Philadelphia's ace will have a rib removed during the procedure. He will need six to eight months to recover.`\
-https://nytimes.com/athletic/6571385/2025/08/23/phillies-zack-wheeler-season-ending-surgery/
-
-**Why Sheffield Wednesday fans are thanking rivals Wrexham and co-chairman McElhenney**\
-`Wrexham may have drawn with Sheffield Wednesday, but their gesture to help their opposing fans showed some things are bigger than results`\
-https://nytimes.com/athletic/6566603/2025/08/23/wrexham-sheffield-wednesday-mcelhenney-reynolds-protest/
+https://nytimes.com/athletic/6571284/2025/08/23/washington-commanders-final-roster-projection-preseason/
 

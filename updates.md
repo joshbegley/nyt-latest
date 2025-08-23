@@ -1,3 +1,15 @@
+**Connor Zilisch, top NASCAR prospect, moving to Cup Series full-time in 2026**\
+`The 19-year-old will fill out Trackhouse Racing's driver roster by replacing the departing Daniel Suarez.`\
+https://nytimes.com/athletic/6571470/2025/08/23/nascar-connor-zilisch-cup-series-move-2026/
+
+**Florida Paints Over Rainbow Memorial for Victims of Pulse Nightclub Shooting**\
+`The mayor of Orlando, Fla., said that the crosswalk mural, which featured the Pride flag’s colors, was removed overnight this week. Community members protested and have, for now, repainted it.`\
+https://nytimes.com/2025/08/23/us/politics/orlando-pulse-shooting-rainbow-crosswalk-memorial.html
+
+**Commanders 53-man roster projection 2.0: Four RBs earn spots**\
+`Bill Croskey-Merritt was one of the stars of the summer, but the improvement of Chris Rodriguez Jr. also can't be ignored.`\
+https://nytimes.com/athletic/6571284/2025/08/23/washington-commanders-final-roster-projection-preseason/
+
 **Phillies' Zack Wheeler to undergo season-ending thoracic outlet surgery**\
 `Philadelphia's ace will have a rib removed during the procedure. He will need six to eight months to recover.`\
 https://nytimes.com/athletic/6571385/2025/08/23/phillies-zack-wheeler-season-ending-surgery/
