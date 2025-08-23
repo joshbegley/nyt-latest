@@ -1,3 +1,7 @@
+**Bengals’ 53-man roster, depth chart projection: Help wanted on offensive, defensive lines**\
+`The Bengals' roster must be trimmed down to 53 by Tuesday evening, but the changes will keep coming after that.`\
+https://nytimes.com/athletic/6571384/2025/08/23/bengals-roster-projection-depth-chart-53/
+
 **Oregon Wildfire Doubles to More Than 18,000 Acres in 24 Hours**\
 `More than 1,000 homes in Oregon were under some kind of evacuation because of the Flat fire, which was one of many wildfires burning in the West, amid hot weather.`\
 https://nytimes.com/2025/08/23/weather/flat-fire-oregon.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6570061/2025/08/23/broncos-roster-projection-2025/
 **Fed Officials Try to Keep Focus on Economy as Trump Intensifies Attacks**\
 `The administration’s effort to oust a Fed governor as part of a pressure campaign for lower borrowing costs created an inescapable distraction at this year’s Jackson Hole conference.`\
 https://nytimes.com/2025/08/23/business/powell-fed-trump-economy-jackson-hole.html
-
-**Colts roster projection: Injuries shake up secondary; end of the road for Jelani Woods?**\
-`Who makes the final 53-man roster? James Boyd makes his best prediction ahead of the final cuts coming on Tuesday. `\
-https://nytimes.com/athletic/6571393/2025/08/23/colts-roster-projection-53-cutdown/
 
