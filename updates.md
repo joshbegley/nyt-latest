@@ -1,3 +1,15 @@
+**Lance McCullers Jr. feels 'super close.' How long can the Astros wait?**\
+`Houston didn't acquire any pitchers at the deadline, so they need someone besides Framber Valdez or Hunter Brown to provide quality innings.`\
+https://nytimes.com/athletic/6570674/2025/08/23/astros-lance-mccullers-super-close/
+
+**Lyle Menendez said his mother also sexually abused him.**\
+`By Matt Stevens and Tim Arango`\
+https://nytimes.com/live/2025/08/22/us/menendez-parole-hearing/lyle-menendez-said-his-mother-also-sexually-abused-him
+
+**The New York Times in Print for Saturday, Aug. 23, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/08/23/todays-new-york-times
+
 **In his closing statement, Lyle Menendez said he would be ‘forever sorry.’**\
 `By Matt Stevens and Tim Arango`\
 https://nytimes.com/live/2025/08/22/us/menendez-parole-hearing/in-his-closing-statement-lyle-menendez-said-he-would-be-forever-sorry
