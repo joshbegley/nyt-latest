@@ -1,3 +1,7 @@
+**Cubs hope two big swings from Crow-Armstrong, Tucker can change team dynamics**\
+`A successful playoff run requires Crow-Armstrong and Tucker to snap out of funks. Friday could've been the start of that.`\
+https://nytimes.com/athletic/6570766/2025/08/23/cubs-pete-crow-armstrong-kyle-tucker-big-hits/
+
 **The Long, Painful Downfall of Intel**\
 `The Silicon Valley chipmaker’s journey from icon to a government project, with the sale of a 10 percent stake to the Trump administration, underlines how even the mightiest in tech can fall.`\
 https://nytimes.com/2025/08/23/technology/intel-computer-chips-tech-ai-trump.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/23/business/dealbook/future-nick-foster.html
 **The Pulse: Who can end 22-year drought?**\
 `Welcome to The Pulse, The Athletic's daily sports newsletter.`\
 https://nytimes.com/athletic/6570371/2025/08/23/american-men-tennis-grand-slams-the-pulse/
-
-**Troy Melton had a fast and furious rise to the heart of the Tigers' pitching staff**\
-`Inside Melton's path from San Diego State walk-on to raw pitching prospect to a key member of the Tigers' pitching staff. `\
-https://nytimes.com/athletic/6570368/2025/08/23/tigers-troy-melton-heart-of-pitching-staff/
 
