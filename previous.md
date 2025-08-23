@@ -1,3 +1,7 @@
+**Cute Sound?**\
+`Ryan Judge’s themeless grid will make you hem, haw and say “Aww!”`\
+https://nytimes.com/2025/08/22/crosswords/daily-puzzle-2025-08-23.html
+
 **5 Takeaways From Ghislaine Maxwell’s Interview About Jeffrey Epstein**\
 `In a courthouse interview with the deputy attorney general, Ms. Maxwell, who has been convicted of sex trafficking, maintained that President Trump and other famous figures were not involved.`\
 https://nytimes.com/2025/08/22/us/politics/ghislaine-maxwell-transcript-takeaways.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/22/business/eaton-corporation-hack-prison-sentence.h
 **Will Museums Fight Back Against Trump?**\
 `The president’s attacks on the Smithsonian Institution and other museums have become an effort to redefine why such places exist.`\
 https://nytimes.com/2025/08/22/us/politics/trump-smithsonian-museums.html
-
-**Read the Justice Dept. Interview With Ghislaine Maxwell**\
-`The department released transcripts from two days of discussions between Ms. Maxwell, the longtime confidante of the disgraced financier Jeffrey Epstein, and Todd Blanche, the department’s No. 2 official.`\
-https://nytimes.com/interactive/2025/08/22/us/ghislaine-maxwell-transcript-read.html
 

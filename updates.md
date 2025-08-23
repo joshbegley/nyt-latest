@@ -1,3 +1,7 @@
+**Cute Sound?**\
+`Ryan Judge’s themeless grid will make you hem, haw and say “Aww!”`\
+https://nytimes.com/2025/08/22/crosswords/daily-puzzle-2025-08-23.html
+
 **5 Takeaways From Ghislaine Maxwell’s Interview About Jeffrey Epstein**\
 `In a courthouse interview with the deputy attorney general, Ms. Maxwell, who has been convicted of sex trafficking, maintained that President Trump and other famous figures were not involved.`\
 https://nytimes.com/2025/08/22/us/politics/ghislaine-maxwell-transcript-takeaways.html
