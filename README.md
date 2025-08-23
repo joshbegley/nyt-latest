@@ -1,3 +1,15 @@
+**Mets place Frankie Montas on injured list with UCL injury, recall Huascar Brazobán**\
+`Montas, who signed a two-year, $34 million contract in December, has a 6.28 ERA over 38 2/3 innings.`\
+https://nytimes.com/athletic/6571397/2025/08/23/mets-frankie-montas-ucl-injury/
+
+**No. 22 Iowa State edges No. 17 Kansas State 24-21 in CFB opener**\
+`The game showed why both programs are considered among the league favorites.`\
+https://nytimes.com/athletic/6571407/2025/08/23/iowa-state-kansas-state-week-0-college-football-score-analysis/
+
+**College Football Playoff 2025 projections: Our model's best odds to make the bracket**\
+`Our College Football Playoff predictions model is back. Check here for regular updates on CFP and national championship odds for 2025.`\
+https://nytimes.com/athletic/6560541/2025/08/23/college-football-playoff-bracket-projections-odds/
+
 **Commanders 53-man roster projection 2.0: Four RBs earn spots**\
 `Bill Croskey-Merritt was one of the stars of the summer, but the improvement of Chris Rodriguez Jr. also can't be ignored.`\
 https://nytimes.com/athletic/6571284/2025/08/23/commanders-53-man-roster-final-projection-includes-four-running-backs/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6564449/2025/08/23/arsenal-leeds-dowman-eze/
 **Justice Dept. Sent Congress Epstein Files That Were Already Public, Democrats Say**\
 `The ‘overwhelming majority’ of the material provided to a key investigative committee in response to a subpoena had already been released, according to Democratic members.`\
 https://nytimes.com/2025/08/23/us/politics/congress-epstein-files-public.html
-
-**The ‘Lioness’ at the Center of a City Hall Battered by Scandal**\
-`Before Ingrid Lewis-Martin was indicted on bribery charges, she was one of the most powerful people in Mayor Eric Adams’s orbit. Now she may hasten his fall in New York.`\
-https://nytimes.com/2025/08/23/nyregion/ingrid-lewis-martin-eric-adams.html
-
-**The Menendez Brothers’ Momentum Built for Years. It Was Dashed in 2 Days.**\
-`Young people energized a push for redemption — and the release of Lyle and Erik. Parole commissioners took a different view and a harder line.`\
-https://nytimes.com/2025/08/23/arts/menendez-brothers-supporters-parole-denied.html
-
-**At Lady Gaga’s Mayhem Ball, a Pop Star Is Reborn**\
-`The singer and songwriter proved she’s operating at the peak of her powers during a two-and-a-half-hour set that drew sharp connections between her past and present.`\
-https://nytimes.com/2025/08/23/arts/music/lady-gaga-mayhem-ball-review.html
 
