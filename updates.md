@@ -1,3 +1,15 @@
+**Inside Eze to Arsenal: Last-minute phone call with Arteta, Lewis' role, Josh Kroenke's sign-off**\
+`Arsenal beat rivals Spurs to land the Palace playmaker. Here's how the deal was done`\
+https://nytimes.com/athletic/6568120/2025/08/23/inside-eberechi-eze-arsenal-transfer/
+
+**Arsenal complete signing of Eze from Palace**\
+`The England international moves to the Emirates Stadium for an initial fee of £60m plus a potential £7.5m in add-ons.`\
+https://nytimes.com/athletic/6565789/2025/08/23/arsenal-eze-confirmed-transfer/
+
+**Willy Adames homers twice in return to Milwaukee, but Giants crumble in ninth**\
+`When you are the Giants, hoping to create momentum from a mud pit, the rollicking Brewers might be the last team you want to face.`\
+https://nytimes.com/athletic/6570734/2025/08/23/willy-adames-giants-brewers/
+
 **Reds drop a chance to keep up in wild-card race with loss to Diamondbacks**\
 `The St. Louis Cardinals are just 3.5 games behind the Reds, and the Diamondbacks lurk a half-game behind St. Louis.`\
 https://nytimes.com/athletic/6570742/2025/08/23/reds-diamondbacks-loss-nl-wild-card-race/

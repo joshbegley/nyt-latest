@@ -1,3 +1,15 @@
+**Inside Eze to Arsenal: Last-minute phone call with Arteta, Lewis' role, Josh Kroenke's sign-off**\
+`Arsenal beat rivals Spurs to land the Palace playmaker. Here's how the deal was done`\
+https://nytimes.com/athletic/6568120/2025/08/23/inside-eberechi-eze-arsenal-transfer/
+
+**Arsenal complete signing of Eze from Palace**\
+`The England international moves to the Emirates Stadium for an initial fee of £60m plus a potential £7.5m in add-ons.`\
+https://nytimes.com/athletic/6565789/2025/08/23/arsenal-eze-confirmed-transfer/
+
+**Willy Adames homers twice in return to Milwaukee, but Giants crumble in ninth**\
+`When you are the Giants, hoping to create momentum from a mud pit, the rollicking Brewers might be the last team you want to face.`\
+https://nytimes.com/athletic/6570734/2025/08/23/willy-adames-giants-brewers/
+
 **Dowman, 15, named in Premier League matchday squad for first time**\
 `Mikel Arteta has include the England youth international as part of his group for the home match against Leeds United.`\
 https://nytimes.com/athletic/6556954/2025/08/23/max-dowman-arsenal-age-first-team/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6570766/2025/08/23/cubs-pete-crow-armstrong-kyle-tu
 **The Long, Painful Downfall of Intel**\
 `The Silicon Valley chipmaker’s journey from icon to a government project, with the sale of a 10 percent stake to the Trump administration, underlines how even the mightiest in tech can fall.`\
 https://nytimes.com/2025/08/23/technology/intel-computer-chips-tech-ai-trump.html
-
-**Collapse of Bridge Under Construction in China Leaves at Least 12 Dead**\
-`A section of the railway bridge, under construction in the country’s northwest, plunged into the Yellow River early on Friday.`\
-https://nytimes.com/2025/08/23/world/asia/china-bridge-collapse.html
-
-**In Dodgers rematch, Padres feel power of Petco Park's home-field advantage**\
-`Only one team, the league-leading Milwaukee Brewers, has a better winning percentage at home than the Padres.`\
-https://nytimes.com/athletic/6570762/2025/08/23/padres-dodgers-petco-park-home-field-advantage/
-
-**Theodore Friedman, Lawyer Who Triumphed Over Disbarment, Dies at 94**\
-`A zealous New York personal injury lawyer, he won many news-making cases before his professional fall. He was reinstated after 16 years.`\
-https://nytimes.com/2025/08/23/nyregion/theodore-friedman-dead.html
 
