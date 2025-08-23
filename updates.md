@@ -1,3 +1,7 @@
+**Abrego Garcia’s Lawyers Accuse Administration of Seeking to ‘Coerce’ Plea**\
+`Officials dangled an offer to send Kilmar Armando Abrego Garcia to Costa Rica if he pleaded guilty to criminal charges, the lawyers said in a filing, then threatened to send him to Uganda if he did not.`\
+https://nytimes.com/2025/08/23/us/politics/abrego-garcia-coercion.html
+
 **What Eberechi Eze meant to Crystal Palace**\
 `Eze offered Palace supporters hope during lockdown, flung himself into community projects and, in May, made history at the south London club`\
 https://nytimes.com/athletic/6568536/2025/08/23/eberechi-eze-crystal-palace-memories/
