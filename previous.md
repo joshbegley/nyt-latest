@@ -1,3 +1,7 @@
+**Browns 53-man projection: Four quarterbacks make initial roster**\
+`Cleveland makes the tough decision to keep all four of its QBs who competed this summer in our 53-man roster projection. `\
+https://nytimes.com/athletic/6571574/2025/08/23/browns-53-man-roster-projection-2025/
+
 **Packers 53-man roster projection: Close calls at wide receiver, linebacker, cornerback**\
 `Could the Packers release both Mecole Hardman and Isaiah Simmons? The pair of veterans might be on the outside looking in come Tuesday.`\
 https://nytimes.com/athletic/6571410/2025/08/23/packers-roster-projection-preseason-mecole-hardman/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6571465/2025/08/23/ravens-53-man-roster-projection-
 **Barcelona stage comeback to beat Levante 3-2 in Rashford's first start**\
 `The winner came in the 92nd minute when Levante defender Unai Elgezabal headed Lamine Yamal’s cross to his own net.`\
 https://nytimes.com/athletic/6571549/2025/08/23/barcelona-levante-rashford-la-liga/
-
-**Connor Zilisch, top NASCAR prospect, moving to Cup Series full-time in 2026**\
-`The 19-year-old will fill out Trackhouse Racing's driver roster by replacing the departing Daniel Suarez.`\
-https://nytimes.com/athletic/6571470/2025/08/23/nascar-connor-zilisch-cup-series-move-2026/
 

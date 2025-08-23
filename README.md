@@ -1,3 +1,7 @@
+**Garrett Crochet continues to shut down Yankees, making strong case for AL Cy Young**\
+`Crochet held the Yankees to one run on five hits and a walk, striking out 11 in a 12-1 win for the Red Sox.`\
+https://nytimes.com/athletic/6571621/2025/08/23/garrett-crochet-red-sox-yankees-cy-young/
+
 **Browns 53-man projection: Four quarterbacks make initial roster**\
 `Cleveland makes the tough decision to keep all four of its QBs who competed this summer in our 53-man roster projection. `\
 https://nytimes.com/athletic/6571574/2025/08/23/browns-53-man-roster-projection-2025/
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2025/08/23/weather/fernand-map-path-tracker.html
 **Ravens 53-man roster projection: Young defensive players make for tough calls**\
 `Several young players flashed in the preseason, making it a difficult process for Baltimore to trim its roster to 53 players by Tuesday.`\
 https://nytimes.com/athletic/6571465/2025/08/23/ravens-53-man-roster-projection-2025/
-
-**Barcelona stage comeback to beat Levante 3-2 in Rashford's first start**\
-`The winner came in the 92nd minute when Levante defender Unai Elgezabal headed Lamine Yamal’s cross to his own net.`\
-https://nytimes.com/athletic/6571549/2025/08/23/barcelona-levante-rashford-la-liga/
 
