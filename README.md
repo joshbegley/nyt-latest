@@ -1,3 +1,11 @@
+**The Long, Painful Downfall of Intel**\
+`The Silicon Valley chipmaker’s journey from icon to a government project, with the sale of a 10 percent stake to the Trump administration, underlines how even the mightiest in tech can fall.`\
+https://nytimes.com/2025/08/23/technology/intel-computer-chips-tech-ai-trump.html
+
+**Collapse of Bridge Under Construction in China Leaves at Least 12 Dead**\
+`A section of the railway bridge, under construction in the country’s northwest, plunged into the Yellow River early on Friday.`\
+https://nytimes.com/2025/08/23/world/asia/china-bridge-collapse.html
+
 **In Dodgers rematch, Padres feel power of Petco Park's home-field advantage**\
 `Only one team, the league-leading Milwaukee Brewers, has a better winning percentage at home than the Padres.`\
 https://nytimes.com/athletic/6570762/2025/08/23/padres-dodgers-petco-park-home-field-advantage/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6570371/2025/08/23/american-men-tennis-grand-slams-
 **Troy Melton had a fast and furious rise to the heart of the Tigers' pitching staff**\
 `Inside Melton's path from San Diego State walk-on to raw pitching prospect to a key member of the Tigers' pitching staff. `\
 https://nytimes.com/athletic/6570368/2025/08/23/tigers-troy-melton-heart-of-pitching-staff/
-
-**Trump’s Slavish Stupidity**\
-`The president could learn a lesson from the sisters of Nativity.`\
-https://nytimes.com/2025/08/23/opinion/trump-heaven.html
-
-**At Times Like These, My Advice: Take a Hike!**\
-`We’ve inherited dazzling public lands because of the vision of long-ago leaders. It’s our job to preserve their beauty.`\
-https://nytimes.com/2025/08/23/opinion/hike-camp-cathedral-wilderness.html
 
