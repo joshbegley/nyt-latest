@@ -1,3 +1,7 @@
+**After Gaza Famine Report, U.S. Is Mostly Silent and Israel Defiant**\
+`Despite outrage from its allies, the White House has not commented on a report that found famine in Gaza. Analysts say that without U.S. pressure, Israel’s war will not likely change course.`\
+https://nytimes.com/2025/08/23/world/middleeast/gaza-famine-report-us-reaction.html
+
 **Jen Hatmaker’s Life Exploded in Middle Age. So She Built a Better One.**\
 `“It’s like I woke up halfway through my life.”`\
 https://nytimes.com/2025/08/23/magazine/jen-hatmaker-interview.html
