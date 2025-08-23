@@ -1,3 +1,7 @@
+**Homeland Security Dept. Says It Hasn’t Kept Text Message Data Since April**\
+`The agency’s response to public records requests indicated potential violations of federal records laws, experts said.`\
+https://nytimes.com/2025/08/22/us/politics/homeland-security-foia-text-messages.html
+
 **San Francisco Had Avoided Trump’s Ire. Until Now.**\
 `The president focused on cities like Los Angeles and Washington as he deployed federal troops and railed against crime. But on Friday, in reference to San Francisco, he said, “We’ll clean that one up, too.”`\
 https://nytimes.com/2025/08/22/us/politics/san-francisco-trump-cities.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6570320/2025/08/22/novak-djokovic-us-open-atp-tour-
 **With Close Associates Under Fire, Mayor Adams Remains Defiant**\
 `Mayor Eric Adams defended his administration and his re-election bid on Friday amid corruption charges against some of his closest allies.`\
 https://nytimes.com/2025/08/22/nyregion/adams-mamdani-nyc-mayor.html
-
-**Craig Kimbrel joins Astros bullpen just as they lose another key arm**\
-`The nine-time All-Star closer is preparing to play for his ninth team. "It's a tremendous ballclub with a lot of talent," Kimbrel said.`\
-https://nytimes.com/athletic/6570142/2025/08/22/craig-kimbrel-astros-bennett-sousa-injured-list/
 

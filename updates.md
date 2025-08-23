@@ -1,3 +1,7 @@
+**Homeland Security Dept. Says It Hasn’t Kept Text Message Data Since April**\
+`The agency’s response to public records requests indicated potential violations of federal records laws, experts said.`\
+https://nytimes.com/2025/08/22/us/politics/homeland-security-foia-text-messages.html
+
 **San Francisco Had Avoided Trump’s Ire. Until Now.**\
 `The president focused on cities like Los Angeles and Washington as he deployed federal troops and railed against crime. But on Friday, in reference to San Francisco, he said, “We’ll clean that one up, too.”`\
 https://nytimes.com/2025/08/22/us/politics/san-francisco-trump-cities.html
