@@ -1,3 +1,7 @@
+**Arsenal 5 Leeds 0 - Dowman, Eze, Gyokeres joy, injury concerns return and Farke blueprint needs work**\
+`Arsenal had much to celebrate in Emirates victory, but will wait on injury news as Farke will be left looking for positives.`\
+https://nytimes.com/athletic/6564449/2025/08/23/arsenal-leeds-dowman-eze/
+
 **Justice Dept. Sent Congress Epstein Files That Were Already Public, Democrats Say**\
 `The ‘overwhelming majority’ of the material provided to a key investigative committee in response to a subpoena had already been released, according to Democratic members.`\
 https://nytimes.com/2025/08/23/us/politics/congress-epstein-files-public.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6565789/2025/08/23/arsenal-eze-confirmed-transfer/
 **Willy Adames homers twice in return to Milwaukee, but Giants crumble in ninth**\
 `When you are the Giants, hoping to create momentum from a mud pit, the rollicking Brewers might be the last team you want to face.`\
 https://nytimes.com/athletic/6570734/2025/08/23/willy-adames-giants-brewers/
-
-**Dowman, 15, named in Premier League matchday squad for first time**\
-`Mikel Arteta has include the England youth international as part of his group for the home match against Leeds United.`\
-https://nytimes.com/athletic/6556954/2025/08/23/max-dowman-arsenal-age-first-team/
 

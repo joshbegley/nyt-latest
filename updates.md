@@ -1,3 +1,7 @@
+**Arsenal 5 Leeds 0 - Dowman, Eze, Gyokeres joy, injury concerns return and Farke blueprint needs work**\
+`Arsenal had much to celebrate in Emirates victory, but will wait on injury news as Farke will be left looking for positives.`\
+https://nytimes.com/athletic/6564449/2025/08/23/arsenal-leeds-dowman-eze/
+
 **Justice Dept. Sent Congress Epstein Files That Were Already Public, Democrats Say**\
 `The ‘overwhelming majority’ of the material provided to a key investigative committee in response to a subpoena had already been released, according to Democratic members.`\
 https://nytimes.com/2025/08/23/us/politics/congress-epstein-files-public.html
