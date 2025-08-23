@@ -1,3 +1,11 @@
+**Fed Officials Try to Keep Focus on Economy as Trump Intensifies Attacks**\
+`The administration’s effort to oust a Fed governor as part of a pressure campaign for lower borrowing costs created an inescapable distraction at this year’s Jackson Hole conference.`\
+https://nytimes.com/2025/08/23/business/powell-fed-trump-economy-jackson-hole.html
+
+**Colts roster projection: Injuries shake up secondary; end of the road for Jelani Woods?**\
+`Who makes the final 53-man roster? James Boyd makes his best prediction ahead of the final cuts coming on Tuesday. `\
+https://nytimes.com/athletic/6571393/2025/08/23/colts-roster-projection-53-cutdown/
+
 **Arteta: 'For Saka to come off, it looks like something significant'**\
 `Saka appeared to injure his left hamstring during Arsenal's 5-0 win over Leeds United.`\
 https://nytimes.com/athletic/6571395/2025/08/23/arsenal-saka-odegaard-injury-arteta/
