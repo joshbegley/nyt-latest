@@ -1,3 +1,7 @@
+**Dowman, 15, named in Premier League matchday squad for first time**\
+`Mikel Arteta has include the England youth international as part of his group for the home match against Leeds United.`\
+https://nytimes.com/athletic/6556954/2025/08/23/max-dowman-arsenal-age-first-team/
+
 **What Jesse Jackson and Zohran Mamdani Have in Common**\
 `We cannot let this dark moment consume us.`\
 https://nytimes.com/2025/08/23/opinion/jesse-jackson-zohran-mamdani-working-class.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6570762/2025/08/23/padres-dodgers-petco-park-home-f
 **Theodore Friedman, Lawyer Who Triumphed Over Disbarment, Dies at 94**\
 `A zealous New York personal injury lawyer, he won many news-making cases before his professional fall. He was reinstated after 16 years.`\
 https://nytimes.com/2025/08/23/nyregion/theodore-friedman-dead.html
-
-**The Briefing: Man City 0 Tottenham 2 - Trafford's howler, Frank's pressing plan, outstanding Palhinha**\
-`Thomas Frank made it two wins out of two as Tottenham head coach with a brilliant away performance for his visiting side at the Etihad`\
-https://nytimes.com/athletic/6564448/2025/08/23/manchester-city-0-tottenham-2-guardiola-frank-trafford-palhinha/
 
