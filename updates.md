@@ -1,3 +1,7 @@
+**Lyle Menendez’s hearing took on a different tone from his brother’s.**\
+`By Matt Stevens and Tim Arango`\
+https://nytimes.com/live/2025/08/22/us/menendez-parole-hearing/lyle-menendezs-hearing-took-on-a-different-tone-from-his-brothers
+
 **In 1996, the brothers were convicted of murdering their parents.**\
 `By Matt Stevens and Tim Arango`\
 https://nytimes.com/live/2025/08/22/us/menendez-parole-hearing/in-1996-the-brothers-were-convicted-of-murdering-their-parents
