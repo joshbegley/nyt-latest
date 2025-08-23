@@ -1,40 +1,40 @@
-**After Gaza Famine Report, U.S. Is Mostly Silent and Israel Defiant**\
-`Despite outrage from its allies, the White House has not commented on a report that found famine in Gaza. Analysts say that without U.S. pressure, Israel’s war will not likely change course.`\
-https://nytimes.com/2025/08/23/world/middleeast/gaza-famine-report-us-reaction.html
+**The Water Cure**\
+`Whether you swim furiously or float motionless, being in the water is a magical feeling.`\
+https://nytimes.com/2025/08/23/briefing/the-water-cure.html
 
-**Jen Hatmaker’s Life Exploded in Middle Age. So She Built a Better One.**\
-`“It’s like I woke up halfway through my life.”`\
-https://nytimes.com/2025/08/23/magazine/jen-hatmaker-interview.html
+**Vikings' 53-man roster projection reveals major depth concerns**\
+`These next few days will be relentless for the Vikings' front office and coaching staff. There is a lot to sort through after the loss.`\
+https://nytimes.com/athletic/6570396/2025/08/23/vikings-roster-projection-j-j-mccarthy/
 
-**How to watch Liberty vs. Dream: Tight race brewing for WNBA's No. 2 seed**\
-`The Liberty and Dream will meet for a Saturday matinee as both teams battle it out for a shot to claim the WNBA's No. 2 playoff seed. `\
-https://nytimes.com/athletic/6570235/2025/08/23/new-york-liberty-atlanta-dream-wnba-how-to-watch/
+**U.S. Open storylines: Sabalenka's last Grand Slam shot and Sinner and Alcaraz's rankings fight**\
+`The U.S. Open, the last Grand Slam of the 2025 tennis season, will shape the rest of the year for the best players in the world.`\
+https://nytimes.com/athletic/6569131/2025/08/23/tennis-us-open-storylines-sabalenka-alcaraz-sinner-mixed-doubles/
 
-**Falcons 53-man roster projection: Spate of injuries makes forecast murky at several spots**\
-`The Falcons must trim their roster to 53 players by Tuesday afternoon. Here's what we think it's going to look like.`\
-https://nytimes.com/athletic/6570215/2025/08/23/atlanta-falcons-53-man-roster-projection-cowboys/
+**Final Bears 53-man roster projection: Deeper team puts a few draft picks on the bubble**\
+`The first-team offense played the whole first half on Friday, leaving fewer reps for the guys who might need it most, those on the bubble.`\
+https://nytimes.com/athletic/6570244/2025/08/23/bears-53-man-roster-projection-2025/
 
-**When a Gen X-er Watches ‘Stranger Things’ With His Family**\
-`Kids from one era become the adults creating culture in another, trying to recapture the way the world once made them feel.`\
-https://nytimes.com/2025/08/23/arts/television/stranger-things-generation-x-nostalgia.html
+**Eagles 53-man roster projection before final cuts**\
+`Final cuts must be made by Tuesday afternoon.`\
+https://nytimes.com/athletic/6570345/2025/08/23/philadelphia-eagles-53-man-roster-projection-2025/
 
-**How to watch the 2025 Little League Baseball World Series championship weekend**\
-`The U.S. and international championship games take place on Saturday, followed by the Little League Baseball World Series final on Sunday.`\
-https://nytimes.com/athletic/6570078/2025/08/23/little-league-baseball-world-series-championship-2025-how-to-watch/
+**Ilona Maher, England and the Women's Rugby World Cup breaking records**\
+`The tenth women's World Cup is one match old but the tournament is already setting records. Maher and hosts England are making a mark`\
+https://nytimes.com/athletic/6569940/2025/08/23/ilona-maher-england-womens-rugby-world-cup/
 
-**When I Go, I’m Going Green**\
-`More Americans are choosing burials in which everything is biodegradable.`\
-https://nytimes.com/2025/08/23/health/green-natural-burials.html
+**A Troubled Colleague Asked For My Help. How Much Do I Have to Take On?**\
+`He says he has no one else.`\
+https://nytimes.com/2025/08/23/magazine/troubled-colleague-help-ethics.html
 
-**Lisa Cook, Who Broke Ground at the Fed, Faces Attack by Trump**\
-`The first Black woman to serve on the Federal Reserve board, Ms. Cook has long been a pathbreaker in a field dominated by white men.`\
-https://nytimes.com/2025/08/23/business/lisa-cook-fed-trump.html
+**Final Chiefs 53-man roster projection: Why surprises (and trades) could be ahead**\
+`Look for these two dark-horse candidates — one on offensive line and another at linebacker — to potentially be surprises on the Chiefs' 53.`\
+https://nytimes.com/athletic/6566774/2025/08/23/chiefs-roster-projection-2025/
 
-**Faced With Trump’s English Mandate, Mexico’s Truckers Report to Class**\
-`Companies, fearing penalties that could put them out of business, race to make sure their drivers have enough English to communicate with U.S. officials.`\
-https://nytimes.com/2025/08/23/world/americas/mexico-english-truckers-trump.html
+**An Unusual Sight Over Canada’s Arctic: Wildfire Smoke**\
+`Once rare, wildfire smoke is becoming more prevalent in Arctic communities as Canada faces harsh wildfire seasons.`\
+https://nytimes.com/2025/08/23/world/canada/canada-wildfires-smoke-arctic.html
 
-**Still in Shambles, a Notorious Iranian Prison Is Holding Dissidents Again**\
-`Israel largely destroyed Evin prison, one of Iran’s most infamous symbols of oppression, in June. Less than two months later, Iran began returning male prisoners.`\
-https://nytimes.com/2025/08/23/world/middleeast/iran-evin-prisoners-return.html
+**Wordle Review No. 1,527**\
+`Scroll down for hints and conversation about the puzzle for Sunday, Aug. 24, 2025.`\
+https://nytimes.com/2025/08/23/crosswords/wordle-review-1527.html
 
