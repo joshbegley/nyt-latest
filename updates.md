@@ -1,3 +1,7 @@
+**Bengals’ 53-man roster, depth chart projection: Help wanted on offensive, defensive lines**\
+`The Bengals' roster must be trimmed down to 53 by Tuesday evening, but the changes will keep coming after that.`\
+https://nytimes.com/athletic/6571384/2025/08/23/bengals-roster-projection-depth-chart-53/
+
 **Oregon Wildfire Doubles to More Than 18,000 Acres in 24 Hours**\
 `More than 1,000 homes in Oregon were under some kind of evacuation because of the Flat fire, which was one of many wildfires burning in the West, amid hot weather.`\
 https://nytimes.com/2025/08/23/weather/flat-fire-oregon.html
