@@ -1,3 +1,11 @@
+**Yankees continue to defend Anthony Volpe despite poor performance. Why?**\
+`Volpe has struggled at the plate and in the field, but his team talks about him like he's having a fine season.`\
+https://nytimes.com/athletic/6570542/2025/08/23/yankees-defend-anthony-volpe/
+
+**Brayan Bello dazzles as Red Sox clinch season series against Yankees**\
+`Bello spun seven scoreless innings, holding a potent Yankees lineup to three singles and a walk and striking out five in a 1-0 Red Sox win.`\
+https://nytimes.com/athletic/6570603/2025/08/23/red-sox-clinch-season-series-yankees-brayan-bello/
+
 **Arsenal, Leeds and the importance of height at set-pieces**\
 `Arsenal have become synonymous with set pieces while promoted Leeds have been clear in their recruitment - will a battle of giants ensue?`\
 https://nytimes.com/athletic/6569005/2025/08/23/arsenal-leeds-height-set-pieces/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6566863/2025/08/23/micah-parsons-alexander-isak-con
 **Ryne Sandberg remembered for how he played the game and treated people on way to Hall of Fame**\
 `“What endeared him to fans and earned him universal respect within the game wasn’t just what he did, but the way he did it."`\
 https://nytimes.com/athletic/6570595/2025/08/23/cubs-ryne-sandberg-memorial-service/
-
-**Nmecha and his long road to a Premier League goal: 'He's been blighted by injuries'**\
-`Nmecha had been on the field for six minutes and scored the winner with his fifth competitive touch. It was a goal seven years in the making`\
-https://nytimes.com/athletic/6569290/2025/08/23/lukas-nmecha-leeds-premier-league/
-
-**An Island’s Tourism Pitch: White Sand and Magic**\
-`Siquijor, in the Philippines, it trying to capitalize on a centuries-old association with the occult.`\
-https://nytimes.com/2025/08/23/world/asia/philippines-siquijor-healers.html
 
