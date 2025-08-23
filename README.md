@@ -1,3 +1,7 @@
+**Arsenal, Leeds and the importance of height at set-pieces**\
+`Arsenal have become synonymous with set pieces while promoted Leeds have been clear in their recruitment - will a battle of giants ensue?`\
+https://nytimes.com/athletic/6569005/2025/08/23/arsenal-leeds-height-set-pieces/
+
 **Salomon Rondon interview: Isak sadness, Newcastle love and battling Real Madrid**\
 `The Venezuelan veteran joined Real Oviedo this summer for their return to the Spanish top flight`\
 https://nytimes.com/athletic/6569326/2025/08/23/salomon-rondon-oviedo-real-madrid-isak-newcastle/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6569290/2025/08/23/lukas-nmecha-leeds-premier-leagu
 **An Island’s Tourism Pitch: White Sand and Magic**\
 `Siquijor, in the Philippines, it trying to capitalize on a centuries-old association with the occult.`\
 https://nytimes.com/2025/08/23/world/asia/philippines-siquijor-healers.html
-
-**Under the Italian Sun, a Debate Rages Over the Cost of a Beach Day**\
-`For Americans, the price of eggs became a rallying cry for consumers beaten down by high prices. For Italians, it’s the cost of beach umbrellas.`\
-https://nytimes.com/2025/08/23/world/europe/italy-beach-costs-inflation-anger.html
 
