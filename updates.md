@@ -1,3 +1,7 @@
+**Police Release Names of 5 Killed in Tour Bus Crash Near Buffalo**\
+`Those killed in the accident on Friday ranged in age from 22 to 65 and included three people from New Jersey, a Chinese student at Columbia University and a person from India.`\
+https://nytimes.com/2025/08/23/nyregion/new-york-buffalo-bus-crash.html
+
 **Arsenal 5 Leeds 0: Dowman, Eze, Gyokeres joy, injury concerns return and Farke blueprint needs work**\
 `Arsenal had much to celebrate in Emirates victory, but will wait on injury news, while Farke will be left looking for positives`\
 https://nytimes.com/athletic/6564449/2025/08/23/arsenal-leeds-dowman-eze/
