@@ -1,3 +1,11 @@
+**Commanders 53-man roster projection 2.0: Four RBs earn spots**\
+`Bill Croskey-Merritt was one of the stars of the summer, but the improvement of Chris Rodriguez Jr. also can't be ignored.`\
+https://nytimes.com/athletic/6571284/2025/08/23/commanders-53-man-roster-final-projection-includes-four-running-backs/
+
+**Phillies' Zack Wheeler to undergo season-ending thoracic outlet surgery**\
+`Philadelphia's ace will need six to eight months to recover.`\
+https://nytimes.com/athletic/6571385/2025/08/23/phillies-zack-wheeler-season-ending-surgery/
+
 **Why Sheffield Wednesday fans are thanking rivals Wrexham and co-chairman McElhenney**\
 `Wrexham may have drawn with Sheffield Wednesday, but their gesture to help their opposing fans showed some things are bigger than results`\
 https://nytimes.com/athletic/6566603/2025/08/23/wrexham-sheffield-wednesday-mcelhenney-reynolds-protest/
