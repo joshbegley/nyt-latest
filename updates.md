@@ -1,3 +1,11 @@
+**Blues rookie Jimmy Snuggerud on gaining weight, learning from losses and fan support: Q&A**\
+`Jimmy Snuggerud went back home to Minnesota this summer and gained 11 to 12 pounds, so he's up to 197 heading into Blues training camp.`\
+https://nytimes.com/athletic/6555465/2025/08/23/blues-jimmy-snuggerud-gaining-weight/
+
+**You’re Probably Thinking About the Future All Wrong**\
+`Nick Foster helped Apple and Google envision the future. He has some notes.`\
+https://nytimes.com/2025/08/23/business/dealbook/future-nick-foster.html
+
 **The Pulse: Who can end 22-year drought?**\
 `Welcome to The Pulse, The Athletic's daily sports newsletter.`\
 https://nytimes.com/athletic/6570371/2025/08/23/american-men-tennis-grand-slams-the-pulse/
