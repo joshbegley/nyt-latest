@@ -1,3 +1,7 @@
+**What Eberechi Eze meant to Crystal Palace**\
+`Eze offered Palace supporters hope during lockdown, flung himself into community projects and, in May, made history at the south London club`\
+https://nytimes.com/athletic/6568536/2025/08/23/eberechi-eze-crystal-palace-memories/
+
 **Inside Eze to Arsenal: Last-minute phone call with Arteta, Lewis' role, Josh Kroenke's sign-off**\
 `Arsenal beat rivals Spurs to land the Palace playmaker. Here's how the deal was done`\
 https://nytimes.com/athletic/6568120/2025/08/23/inside-eberechi-eze-arsenal-transfer/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/23/dining/easy-slow-cooker-recipes-for-late-summer.h
 **Cubs hope two big swings from Crow-Armstrong, Tucker can change team dynamics**\
 `A successful playoff run requires Crow-Armstrong and Tucker to snap out of funks. Friday could've been the start of that.`\
 https://nytimes.com/athletic/6570766/2025/08/23/cubs-pete-crow-armstrong-kyle-tucker-big-hits/
-
-**The Long, Painful Downfall of Intel**\
-`The Silicon Valley chipmaker’s journey from icon to a government project, with the sale of a 10 percent stake to the Trump administration, underlines how even the mightiest in tech can fall.`\
-https://nytimes.com/2025/08/23/technology/intel-computer-chips-tech-ai-trump.html
 
