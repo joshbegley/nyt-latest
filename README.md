@@ -1,3 +1,11 @@
+**How an Environmental Artist Spends a Day in Her Workshop**\
+`Annalisa Iadicicco, who teaches art with the Blue Bus Project, starts her day with singing bowls and turns a bicycle into a shredder.`\
+https://nytimes.com/2025/08/23/nyregion/annalisa-iadicicco-blue-bus-project.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/08/23/crosswords/spelling-bee-forum.html
+
 **West Ham's dire start exposes a squad lacking quality. In all areas**\
 `Played two, lost two is not an ideal start - but more concerning have been the manner of the defeats. The problems run deep at West Ham`\
 https://nytimes.com/athletic/6569247/2025/08/23/west-ham-graham-potter-squad-transfers/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/08/23/world/asia/hong-kong-bloomberg-visa.html
 **Several factors contributed to Erik Menendez’s parole denial on Thursday.**\
 `By Jesus Jiménez`\
 https://nytimes.com/live/2025/08/22/us/menendez-parole-hearing/several-factors-contributed-to-erik-menendezs-parole-denial-on-thursday
-
-**Released audio recording of Thursday hearing angers Menendez family.**\
-`By Tim Arango`\
-https://nytimes.com/live/2025/08/22/us/menendez-parole-hearing/released-audio-recording-of-thursday-hearing-angers-menendez-family
-
-**Lance McCullers Jr. feels 'super close.' How long can the Astros wait?**\
-`Houston didn't acquire any pitchers at the deadline, so it needs someone besides Framber Valdez or Hunter Brown to provide quality innings.`\
-https://nytimes.com/athletic/6570674/2025/08/23/astros-lance-mccullers-super-close/
 
