@@ -1,3 +1,7 @@
+**The Pulse: Who can end 22-year drought?**\
+`Welcome to The Pulse, The Athletic's daily sports newsletter.`\
+https://nytimes.com/athletic/6570371/2025/08/23/american-men-tennis-grand-slams-the-pulse/
+
 **Troy Melton had a fast and furious rise to the heart of the Tigers' pitching staff**\
 `Inside Melton's path from San Diego State walk-on to raw pitching prospect to a key member of the Tigers' pitching staff. `\
 https://nytimes.com/athletic/6570368/2025/08/23/tigers-troy-melton-heart-of-pitching-staff/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6570602/2025/08/23/jets-final-53-man-roster-project
 **Why We Are Feeling Less Hopeful, and What to Do About It**\
 `Readers react to a column by David Brooks analyzing the gloominess trend in the United States.`\
 https://nytimes.com/2025/08/23/opinion/americans-pessimism-hopefulness.html
-
-**Reyna set for Gladbach medical ahead of Dortmund transfer**\
-`The USMNT international has been open to the move in his search for regular football ahead of the 2026 World Cup.`\
-https://nytimes.com/athletic/6569150/2025/08/23/gio-reyna-borussia-monchengladbach-medical/
 
