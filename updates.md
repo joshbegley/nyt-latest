@@ -1,3 +1,15 @@
+**Oregon Wildfire Doubles to More Than 18,000 Acres in 24 Hours**\
+`More than 1,000 homes in Oregon were under some kind of evacuation because of the Flat fire, which was one of many wildfires burning in the West, amid hot weather.`\
+https://nytimes.com/2025/08/23/weather/flat-fire-oregon.html
+
+**Mixed Company**\
+`Michael Lieberman conglomerates his skills to make an extra clever puzzle.`\
+https://nytimes.com/2025/08/23/crosswords/daily-puzzle-2025-08-24.html
+
+**Tracking Tropical Storm Fernand**\
+`See the likely path and wind arrival times for Fernand`\
+https://nytimes.com/interactive/2025/08/23/weather/fernand-map-path-tracker.html
+
 **Ravens 53-man roster projection: Young defensive players make for tough calls**\
 `Several young players flashed in the preseason, making it a difficult process for Baltimore to trim its roster to 53 players by Tuesday.`\
 https://nytimes.com/athletic/6571465/2025/08/23/ravens-53-man-roster-projection-2025/
