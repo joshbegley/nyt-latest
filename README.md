@@ -1,3 +1,11 @@
+**Jen Hatmaker’s Life Exploded in Middle Age. So She Built a Better One.**\
+`“It’s like I woke up halfway through my life.”`\
+https://nytimes.com/2025/08/23/magazine/jen-hatmaker-interview.html
+
+**How to watch Liberty vs. Dream: Tight race brewing for WNBA's No. 2 seed**\
+`The Liberty and Dream will meet for a Saturday matinee as both teams battle it out for a shot to claim the WNBA's No. 2 playoff seed. `\
+https://nytimes.com/athletic/6570235/2025/08/23/new-york-liberty-atlanta-dream-wnba-how-to-watch/
+
 **Falcons 53-man roster projection: Spate of injuries makes forecast murky at several spots**\
 `The Falcons must trim their roster to 53 players by Tuesday afternoon. Here's what we think it's going to look like.`\
 https://nytimes.com/athletic/6570215/2025/08/23/atlanta-falcons-53-man-roster-projection-cowboys/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/08/23/world/middleeast/iran-evin-prisoners-return.html
 **As Troops Walk the Streets, Washington Restaurants Report a Slump**\
 `With the deployment of the National Guard, owners say business is down drastically.`\
 https://nytimes.com/2025/08/23/dining/washington-restaurants-national-guard.html
-
-**Corporate America’s Newest Activist Investor: Donald Trump**\
-`The president is demanding government stakes in U.S. companies and cuts of their revenue. Experts see some similarities to state-managed capitalism in other parts of the world.`\
-https://nytimes.com/2025/08/23/business/trump-intel-us-steel-nvidia.html
-
-**Are Remote Closings a Bad Idea?**\
-`The practice, which became more popular during the pandemic, does have its conveniences. But it never hurts to have everyone in the same room.`\
-https://nytimes.com/2025/08/23/realestate/are-remote-closings-a-bad-idea.html
 
