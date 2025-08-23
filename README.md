@@ -1,3 +1,11 @@
+**Commanders 53-man roster projection 2.0: Four RBs earn spots**\
+`Bill Croskey-Merritt was one of the stars of the summer, but the improvement of Chris Rodriguez Jr. also can't be ignored.`\
+https://nytimes.com/athletic/6571284/2025/08/23/commanders-53-man-roster-final-projection-includes-four-running-backs/
+
+**Phillies' Zack Wheeler to undergo season-ending thoracic outlet surgery**\
+`Philadelphia's ace will need six to eight months to recover.`\
+https://nytimes.com/athletic/6571385/2025/08/23/phillies-zack-wheeler-season-ending-surgery/
+
 **Why Sheffield Wednesday fans are thanking rivals Wrexham and co-chairman McElhenney**\
 `Wrexham may have drawn with Sheffield Wednesday, but their gesture to help their opposing fans showed some things are bigger than results`\
 https://nytimes.com/athletic/6566603/2025/08/23/wrexham-sheffield-wednesday-mcelhenney-reynolds-protest/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/08/23/arts/menendez-brothers-supporters-parole-denied.h
 **At Lady Gaga’s Mayhem Ball, a Pop Star Is Reborn**\
 `The singer and songwriter proved she’s operating at the peak of her powers during a two-and-a-half-hour set that drew sharp connections between her past and present.`\
 https://nytimes.com/2025/08/23/arts/music/lady-gaga-mayhem-ball-review.html
-
-**Abrego Garcia’s Lawyers Accuse Administration of Seeking to ‘Coerce’ Plea**\
-`Officials dangled an offer to send Kilmar Armando Abrego Garcia to Costa Rica if he pleaded guilty to criminal charges, the lawyers said in a filing, then threatened to send him to Uganda if he did not.`\
-https://nytimes.com/2025/08/23/us/politics/abrego-garcia-coercion.html
-
-**What Eberechi Eze meant to Crystal Palace**\
-`Eze offered Palace supporters hope during lockdown, flung himself into community projects and, in May, made history at the south London club`\
-https://nytimes.com/athletic/6568536/2025/08/23/eberechi-eze-crystal-palace-memories/
 
