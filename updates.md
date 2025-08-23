@@ -1,3 +1,11 @@
+**In his closing statement, Lyle Menendez said he would be ‘forever sorry.’**\
+`By Matt Stevens and Tim Arango`\
+https://nytimes.com/live/2025/08/22/us/menendez-parole-hearing/in-his-closing-statement-lyle-menendez-said-he-would-be-forever-sorry
+
+**For some who have followed the case, the parole denials were no surprise.**\
+`By Jesus Jiménez`\
+https://nytimes.com/live/2025/08/22/us/menendez-parole-hearing/for-some-who-have-followed-the-case-the-parole-denials-were-no-surprise
+
 **Yankees continue to defend Anthony Volpe despite poor performance. Why?**\
 `Volpe has struggled at the plate and in the field, but his team talks about him like he's having a fine season.`\
 https://nytimes.com/athletic/6570542/2025/08/23/yankees-defend-anthony-volpe/
