@@ -1,3 +1,11 @@
+**Quote of the Day: Critic of Many U.S. Colleges Seeing Need to Defend Them**\
+`Quotation of the Day for Saturday, August 23, 2025.`\
+https://nytimes.com/2025/08/22/pageoneplus/quote-of-the-day-critic-of-many-us-colleges-seeing-need-to-defend-them.html
+
+**Erik and Lyle Menendez have approached their rehabilitation differently in prison.**\
+`By Tim Arango`\
+https://nytimes.com/live/2025/08/22/us/menendez-parole-hearing/erik-and-lyle-menendez-have-approached-their-rehabilitation-differently-in-prison
+
 **Falcons tackle Kaleb McGary out for 'significant time' following practice injury**\
 `McGary could be headed for injured reserve, which would mean he'll miss at least the first four games, and might be out the entire season.`\
 https://nytimes.com/athletic/6565348/2025/08/22/kaleb-mcgary-falcons-injury-preseason/
