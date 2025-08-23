@@ -1,3 +1,7 @@
+**Arsenal, Leeds and the importance of height at set-pieces**\
+`Arsenal have become synonymous with set pieces while promoted Leeds have been clear in their recruitment - will a battle of giants ensue?`\
+https://nytimes.com/athletic/6569005/2025/08/23/arsenal-leeds-height-set-pieces/
+
 **Salomon Rondon interview: Isak sadness, Newcastle love and battling Real Madrid**\
 `The Venezuelan veteran joined Real Oviedo this summer for their return to the Spanish top flight`\
 https://nytimes.com/athletic/6569326/2025/08/23/salomon-rondon-oviedo-real-madrid-isak-newcastle/
