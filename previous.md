@@ -1,3 +1,19 @@
+**What Jesse Jackson and Zohran Mamdani Have in Common**\
+`We cannot let this dark moment consume us.`\
+https://nytimes.com/2025/08/23/opinion/jesse-jackson-zohran-mamdani-working-class.html
+
+**Orlando Pride's Banda placed on season-ending injury list**\
+`The Pride said the Zambia international had suffered a "full thickness avulsion of her right adductor longus tendon".`\
+https://nytimes.com/athletic/6571021/2025/08/23/barbra-banda-orlando-pride-injury/
+
+**Reds drop a chance to keep up in Wild Card race with loss to Diamondbacks**\
+`The St. Louis Cardinals are just 3.5 games behind the Reds, and the Diamondbacks lurk a half-game behind St. Louis.`\
+https://nytimes.com/athletic/6570742/2025/08/23/reds-diamondbacks-loss-nl-wild-card-race/
+
+**Now’s the Time to Make Friends With Your Slow Cooker**\
+`Find new dinner favorites — creamy lentil tomato soup, or comforting chicken jook — to pull out of your back pocket when the fall calendar fills up.`\
+https://nytimes.com/2025/08/23/dining/easy-slow-cooker-recipes-for-late-summer.html
+
 **Cubs hope two big swings from Crow-Armstrong, Tucker can change team dynamics**\
 `A successful playoff run requires Crow-Armstrong and Tucker to snap out of funks. Friday could've been the start of that.`\
 https://nytimes.com/athletic/6570766/2025/08/23/cubs-pete-crow-armstrong-kyle-tucker-big-hits/
@@ -21,20 +37,4 @@ https://nytimes.com/2025/08/23/nyregion/theodore-friedman-dead.html
 **The Briefing: Man City 0 Tottenham 2 - Trafford's howler, Frank's pressing plan, outstanding Palhinha**\
 `Thomas Frank made it two wins out of two as Tottenham head coach with a brilliant away performance for his visiting side at the Etihad`\
 https://nytimes.com/athletic/6564448/2025/08/23/manchester-city-0-tottenham-2-guardiola-frank-trafford-palhinha/
-
-**What Americans Need to Know About the Bolton F.B.I. Search**\
-`If the F.B.I. is seen as a tool of retribution, it will come at the expense of its effectiveness in the long run.`\
-https://nytimes.com/2025/08/23/opinion/john-bolton-trump-fbi.html
-
-**Blues rookie Jimmy Snuggerud on gaining weight, learning from losses and fan support: Q&A**\
-`Jimmy Snuggerud went back home to Minnesota this summer and gained 11 to 12 pounds, so he's up to 197 heading into Blues training camp.`\
-https://nytimes.com/athletic/6555465/2025/08/23/blues-jimmy-snuggerud-gaining-weight/
-
-**You’re Probably Thinking About the Future All Wrong**\
-`Nick Foster helped Apple and Google envision the future. He has some notes.`\
-https://nytimes.com/2025/08/23/business/dealbook/future-nick-foster.html
-
-**The Pulse: Who can end 22-year drought?**\
-`Welcome to The Pulse, The Athletic's daily sports newsletter.`\
-https://nytimes.com/athletic/6570371/2025/08/23/american-men-tennis-grand-slams-the-pulse/
 
