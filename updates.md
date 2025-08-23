@@ -1,3 +1,11 @@
+**Reyna set for Gladbach medical ahead of Dortmund transfer**\
+`The USMNT international has been open to the move in his search for regular football ahead of the 2026 World Cup.`\
+https://nytimes.com/athletic/6569150/2025/08/23/gio-reyna-borussia-monchengladbach-medical/
+
+**Mexico captain Alvarez joins Fenerbahce on loan from West Ham**\
+`The 27-year-old has made 73 appearances for West Ham across two seasons, scoring two goals.`\
+https://nytimes.com/athletic/6561168/2025/08/23/west-ham-transfer-news-edson-alvarez-fenerbahce/
+
 **Semenyo says racism sanctions not enough after alleged abuse vs Liverpool**\
 `Semenyo, 25, reported an alleged incident of racist abuse at Anfield during the opening game of the Premier League season.`\
 https://nytimes.com/athletic/6570847/2025/08/23/antoine-semenyo-bournemouth-liverpool-racism-sanctions/
