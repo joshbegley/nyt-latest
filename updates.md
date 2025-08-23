@@ -1,3 +1,7 @@
+**What Eberechi Eze meant to Crystal Palace**\
+`Eze offered Palace supporters hope during lockdown, flung himself into community projects and, in May, made history at the south London club`\
+https://nytimes.com/athletic/6568536/2025/08/23/eberechi-eze-crystal-palace-memories/
+
 **Inside Eze to Arsenal: Last-minute phone call with Arteta, Lewis' role, Josh Kroenke's sign-off**\
 `Arsenal beat rivals Spurs to land the Palace playmaker. Here's how the deal was done`\
 https://nytimes.com/athletic/6568120/2025/08/23/inside-eberechi-eze-arsenal-transfer/
