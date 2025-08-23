@@ -1,3 +1,7 @@
+**West Ham's dire start exposes a squad lacking quality. In all areas**\
+`Played two, lost two is not an ideal start - but more concerning have been the manner of the defeats. The problems run deep at West Ham`\
+https://nytimes.com/athletic/6569247/2025/08/23/west-ham-graham-potter-squad-transfers/
+
 **Texas Legislature Gives Final Approval to Redistricting Map**\
 `The map’s passage was a major victory in President Trump’s push to get Republican state leaders to help his party keep control of the U.S. House.`\
 https://nytimes.com/2025/08/23/us/texas-redistricting.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/08/22/us/menendez-parole-hearing/released-audio-re
 **Lance McCullers Jr. feels 'super close.' How long can the Astros wait?**\
 `Houston didn't acquire any pitchers at the deadline, so it needs someone besides Framber Valdez or Hunter Brown to provide quality innings.`\
 https://nytimes.com/athletic/6570674/2025/08/23/astros-lance-mccullers-super-close/
-
-**Lyle Menendez said his mother also sexually abused him.**\
-`By Matt Stevens and Tim Arango`\
-https://nytimes.com/live/2025/08/22/us/menendez-parole-hearing/lyle-menendez-said-his-mother-also-sexually-abused-him
 
