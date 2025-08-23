@@ -1,3 +1,7 @@
+**At Lady Gaga’s Mayhem Ball, a Pop Star Is Reborn**\
+`The singer and songwriter proved she’s operating at the peak of her powers during a two-and-a-half-hour set that drew sharp connections between her past and present.`\
+https://nytimes.com/2025/08/23/arts/music/lady-gaga-mayhem-ball-review.html
+
 **Abrego Garcia’s Lawyers Accuse Administration of Seeking to ‘Coerce’ Plea**\
 `Officials dangled an offer to send Kilmar Armando Abrego Garcia to Costa Rica if he pleaded guilty to criminal charges, the lawyers said in a filing, then threatened to send him to Uganda if he did not.`\
 https://nytimes.com/2025/08/23/us/politics/abrego-garcia-coercion.html

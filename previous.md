@@ -1,3 +1,7 @@
+**At Lady Gaga’s Mayhem Ball, a Pop Star Is Reborn**\
+`The singer and songwriter proved she’s operating at the peak of her powers during a two-and-a-half-hour set that drew sharp connections between her past and present.`\
+https://nytimes.com/2025/08/23/arts/music/lady-gaga-mayhem-ball-review.html
+
 **Abrego Garcia’s Lawyers Accuse Administration of Seeking to ‘Coerce’ Plea**\
 `Officials dangled an offer to send Kilmar Armando Abrego Garcia to Costa Rica if he pleaded guilty to criminal charges, the lawyers said in a filing, then threatened to send him to Uganda if he did not.`\
 https://nytimes.com/2025/08/23/us/politics/abrego-garcia-coercion.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6571021/2025/08/23/barbra-banda-orlando-pride-injur
 **Reds drop a chance to keep up in wild-card race with loss to Diamondbacks**\
 `The St. Louis Cardinals are just 3.5 games behind the Reds, and the Diamondbacks lurk a half-game behind St. Louis.`\
 https://nytimes.com/athletic/6570742/2025/08/23/reds-diamondbacks-loss-nl-wild-card-race/
-
-**Now’s the Time to Make Friends With Your Slow Cooker**\
-`Find new dinner favorites — creamy lentil tomato soup, or comforting chicken jook — to pull out of your back pocket when the fall calendar fills up.`\
-https://nytimes.com/2025/08/23/dining/easy-slow-cooker-recipes-for-late-summer.html
 
