@@ -1,3 +1,7 @@
+**5 Takeaways From Ghislaine Maxwell’s Interview About Jeffrey Epstein**\
+`In a courthouse interview with the deputy attorney general, Ms. Maxwell, who has been convicted of sex trafficking, maintained that President Trump and other famous figures were not involved.`\
+https://nytimes.com/2025/08/22/us/politics/ghislaine-maxwell-transcript-takeaways.html
+
 **Ron Turcotte, who rode Secretariat to Triple Crown, dead at 84**\
 `Turcotte famously swept the Kentucky Derby, Preakness and Belmont with Secretariat to win the first Triple Crown in 25 years.`\
 https://nytimes.com/athletic/6570433/2025/08/22/ron-turcotte-secretariat-triple-crown/
