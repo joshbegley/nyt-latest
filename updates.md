@@ -1,3 +1,7 @@
+**Phillies' Zack Wheeler to undergo season-ending thoracic outlet surgery**\
+`Philadelphia's ace will have a rib removed during the procedure. He will need six to eight months to recover.`\
+https://nytimes.com/athletic/6571385/2025/08/23/phillies-zack-wheeler-season-ending-surgery/
+
 **Broncos 53-man roster: Final projection after beating Saints for 3-0 preseason**\
 `Bo Nix ended his second NFL preseason with two big throws to Courtland Sutton, including a 19-yard touchdown pass.`\
 https://nytimes.com/athletic/6570061/2025/08/23/broncos-roster-projection-2025/
