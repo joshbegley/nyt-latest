@@ -1,3 +1,7 @@
+**The Menendez Brothers’ Momentum Built for Years. It Was Dashed in 2 Days.**\
+`Young people energized a push for redemption — and the release of Lyle and Erik. Parole commissioners took a different view and a harder line.`\
+https://nytimes.com/2025/08/23/arts/menendez-brothers-supporters-parole-denied.html
+
 **At Lady Gaga’s Mayhem Ball, a Pop Star Is Reborn**\
 `The singer and songwriter proved she’s operating at the peak of her powers during a two-and-a-half-hour set that drew sharp connections between her past and present.`\
 https://nytimes.com/2025/08/23/arts/music/lady-gaga-mayhem-ball-review.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/23/opinion/jesse-jackson-zohran-mamdani-working-clas
 **Orlando Pride's Banda placed on season-ending injury list**\
 `The Pride said the Zambia international had suffered a "full thickness avulsion of her right adductor longus tendon".`\
 https://nytimes.com/athletic/6571021/2025/08/23/barbra-banda-orlando-pride-injury/
-
-**Reds drop a chance to keep up in wild-card race with loss to Diamondbacks**\
-`The St. Louis Cardinals are just 3.5 games behind the Reds, and the Diamondbacks lurk a half-game behind St. Louis.`\
-https://nytimes.com/athletic/6570742/2025/08/23/reds-diamondbacks-loss-nl-wild-card-race/
 
