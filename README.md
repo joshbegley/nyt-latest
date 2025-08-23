@@ -1,3 +1,7 @@
+**Shane Bieber delivers in Blue Jays debut as trade deadline gamble pays off**\
+`Bieber struck out nine batters in a 5-2 win over the Marlins, delivering the ace upside Toronto bet on.`\
+https://nytimes.com/athletic/6570489/2025/08/22/shane-bieber-blue-jays-debut-marlins/
+
 **Cute Sound?**\
 `Ryan Judge’s themeless grid will make you hem, haw and say “Aww!”`\
 https://nytimes.com/2025/08/22/crosswords/daily-puzzle-2025-08-23.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6570293/2025/08/22/red-sox-walker-buehler-bullpen/
 **Ex-Employee Sentenced to 4 Years for Sabotaging Company’s Computer Network**\
 `The man, a former software developer for Eaton Corporation, wrote malicious code that crashed servers on the company’s network in 2019, prosecutors said.`\
 https://nytimes.com/2025/08/22/business/eaton-corporation-hack-prison-sentence.html
-
-**Will Museums Fight Back Against Trump?**\
-`The president’s attacks on the Smithsonian Institution and other museums have become an effort to redefine why such places exist.`\
-https://nytimes.com/2025/08/22/us/politics/trump-smithsonian-museums.html
 
