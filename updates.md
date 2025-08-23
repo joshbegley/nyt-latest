@@ -1,3 +1,7 @@
+**Hong Kong Denies Visa Renewal for Senior Bloomberg Journalist**\
+`The unexplained decision raises new concerns about the erosion of press freedom in a city transformed by Beijing’s national security law.`\
+https://nytimes.com/2025/08/23/world/asia/hong-kong-bloomberg-visa.html
+
 **How an Environmental Artist Spends a Day in Her Workshop**\
 `Annalisa Iadicicco, who teaches art with the Blue Bus Project, starts her day with singing bowls and turns a bicycle into a shredder.`\
 https://nytimes.com/2025/08/23/nyregion/annalisa-iadicicco-blue-bus-project.html

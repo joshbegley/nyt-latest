@@ -31,7 +31,7 @@ https://nytimes.com/live/2025/08/22/us/menendez-parole-hearing/the-parole-board-
 https://nytimes.com/athletic/6570712/2025/08/23/dodgers-offense-division-lead-padres/
 
 **Hong Kong Denies Visa Renewal for Senior Bloomberg Journalist**\
-`The unexplained decision raises fresh concerns about the erosion of press freedom in a city transformed by Beijing’s national security law.`\
+`The unexplained decision raises new concerns about the erosion of press freedom in a city transformed by Beijing’s national security law.`\
 https://nytimes.com/2025/08/23/world/asia/hong-kong-bloomberg-visa.html
 
 **Several factors contributed to Erik Menendez’s parole denial on Thursday.**\
