@@ -1,4 +1,4 @@
-**Shane Bieber delivers in Blue Jays debut as trade deadline gamble pays off**\
+**The Blue Jays bet on ace upside in Shane Bieber. In season debut, he delivered**\
 `Bieber struck out nine batters in a 5-2 win over the Marlins, delivering the ace upside Toronto bet on.`\
 https://nytimes.com/athletic/6570489/2025/08/22/shane-bieber-blue-jays-debut-marlins/
 
