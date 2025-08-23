@@ -1,3 +1,7 @@
+**Ron Turcotte, who rode Secretariat to Triple Crown, dead at 84**\
+`Turcotte famously swept the Kentucky Derby, Preakness and Belmont with Secretariat to win the first Triple Crown in 25 years.`\
+https://nytimes.com/athletic/6570433/2025/08/22/ron-turcotte-secretariat-triple-crown/
+
 **Turning the Tables, Robert Menendez’s Wife Now Seeks to Blame Him**\
 `Nadine and Robert Menendez, a former senator, were convicted of taking bribes. Seeking leniency, Ms. Menendez’s relatives and friends agree she is “not a criminal mastermind.”`\
 https://nytimes.com/2025/08/22/nyregion/nadine-menendez-blames-robert-menendez.html

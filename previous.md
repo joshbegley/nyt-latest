@@ -1,3 +1,7 @@
+**Ron Turcotte, who rode Secretariat to Triple Crown, dead at 84**\
+`Turcotte famously swept the Kentucky Derby, Preakness and Belmont with Secretariat to win the first Triple Crown in 25 years.`\
+https://nytimes.com/athletic/6570433/2025/08/22/ron-turcotte-secretariat-triple-crown/
+
 **Turning the Tables, Robert Menendez’s Wife Now Seeks to Blame Him**\
 `Nadine and Robert Menendez, a former senator, were convicted of taking bribes. Seeking leniency, Ms. Menendez’s relatives and friends agree she is “not a criminal mastermind.”`\
 https://nytimes.com/2025/08/22/nyregion/nadine-menendez-blames-robert-menendez.html
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2025/08/22/us/ghislaine-maxwell-transcript-read.
 **Trump Administration Orders Work Halted on Wind Farm That Is Nearly Built**\
 `The order to stop construction on Revolution Wind off the coast of Rhode Island is part of a campaign against renewable energy.`\
 https://nytimes.com/2025/08/22/climate/trump-administration-halts-revolution-wind.html
-
-**Novak Djokovic calls out top players for not challenging tennis schedule changes**\
-`While some top names have publicly spoken out against the ATP Tour changes, Djokovic wishes more players complained years ago.`\
-https://nytimes.com/athletic/6570320/2025/08/22/novak-djokovic-us-open-atp-tour-comments/
 

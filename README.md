@@ -1,3 +1,7 @@
+**5 Takeaways From Ghislaine Maxwell’s Interview About Jeffrey Epstein**\
+`In a courthouse interview with the deputy attorney general, Ms. Maxwell, who has been convicted of sex trafficking, maintained that President Trump and other famous figures were not involved.`\
+https://nytimes.com/2025/08/22/us/politics/ghislaine-maxwell-transcript-takeaways.html
+
 **Ron Turcotte, who rode Secretariat to Triple Crown, dead at 84**\
 `Turcotte famously swept the Kentucky Derby, Preakness and Belmont with Secretariat to win the first Triple Crown in 25 years.`\
 https://nytimes.com/athletic/6570433/2025/08/22/ron-turcotte-secretariat-triple-crown/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/22/us/politics/trump-smithsonian-museums.html
 **Read the Justice Dept. Interview With Ghislaine Maxwell**\
 `The department released transcripts from two days of discussions between Ms. Maxwell, the longtime confidante of the disgraced financier Jeffrey Epstein, and Todd Blanche, the department’s No. 2 official.`\
 https://nytimes.com/interactive/2025/08/22/us/ghislaine-maxwell-transcript-read.html
-
-**Trump Administration Orders Work Halted on Wind Farm That Is Nearly Built**\
-`The order to stop construction on Revolution Wind off the coast of Rhode Island is part of a campaign against renewable energy.`\
-https://nytimes.com/2025/08/22/climate/trump-administration-halts-revolution-wind.html
 
