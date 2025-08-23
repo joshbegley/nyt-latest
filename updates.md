@@ -1,3 +1,11 @@
+**Why Sheffield Wednesday fans are thanking rivals Wrexham and co-chairman McElhenney**\
+`Wrexham may have drawn with Sheffield Wednesday, but their gesture to help their opposing fans showed some things are bigger than results`\
+https://nytimes.com/athletic/6566603/2025/08/23/wrexham-sheffield-wednesday-mcelhenney-reynolds-protest/
+
+**Filip Gustavsson open to contract extension talks with Wild as training camp approaches**\
+`Gustavsson said he’s open to talking to the Wild about a future contract and hopes to remain with the franchise.`\
+https://nytimes.com/athletic/6571220/2025/08/23/filip-gustavsson-contract-extension-talks-wild/
+
 **Police Release Names of 5 Killed in Tour Bus Crash Near Buffalo**\
 `Those killed in the accident on Friday ranged in age from 22 to 65 and included three people from New Jersey, a Chinese student at Columbia University and a person from India.`\
 https://nytimes.com/2025/08/23/nyregion/new-york-buffalo-bus-crash.html
