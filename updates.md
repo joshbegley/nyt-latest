@@ -1,3 +1,7 @@
+**Vegas was ready for World Cup draw, but the Trump-FIFA bromance resurfaced**\
+`The venue was suggested by Trump's administration, and Infantino fell into line, despite numerous FIFA officials preferring Las Vegas.`\
+https://nytimes.com/athletic/6570329/2025/08/23/las-vegas-fifa-world-cup-trump-infantino/
+
 **Hong Kong Denies Visa Renewal for Senior Bloomberg Journalist**\
 `The unexplained decision raises new concerns about the erosion of press freedom in a city transformed by Beijing’s national security law.`\
 https://nytimes.com/2025/08/23/world/asia/hong-kong-bloomberg-visa.html

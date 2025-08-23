@@ -1,3 +1,7 @@
+**Vegas was ready for World Cup draw, but the Trump-FIFA bromance resurfaced**\
+`The venue was suggested by Trump's administration, and Infantino fell into line, despite numerous FIFA officials preferring Las Vegas.`\
+https://nytimes.com/athletic/6570329/2025/08/23/las-vegas-fifa-world-cup-trump-infantino/
+
 **How an Environmental Artist Spends a Day in Her Workshop**\
 `Annalisa Iadicicco, who teaches art with the Blue Bus Project, starts her day with singing bowls and turns a bicycle into a shredder.`\
 https://nytimes.com/2025/08/23/nyregion/annalisa-iadicicco-blue-bus-project.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6570712/2025/08/23/dodgers-offense-division-lead-pa
 **Hong Kong Denies Visa Renewal for Senior Bloomberg Journalist**\
 `The unexplained decision raises new concerns about the erosion of press freedom in a city transformed by Beijing’s national security law.`\
 https://nytimes.com/2025/08/23/world/asia/hong-kong-bloomberg-visa.html
-
-**Several factors contributed to Erik Menendez’s parole denial on Thursday.**\
-`By Jesus Jiménez`\
-https://nytimes.com/live/2025/08/22/us/menendez-parole-hearing/several-factors-contributed-to-erik-menendezs-parole-denial-on-thursday
 
