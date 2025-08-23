@@ -1,3 +1,7 @@
+**Abrego Garcia’s Lawyers Accuse Administration of Seeking to ‘Coerce’ Plea**\
+`Officials dangled an offer to send Kilmar Armando Abrego Garcia to Costa Rica if he pleaded guilty to criminal charges, the lawyers said in a filing, then threatened to send him to Uganda if he did not.`\
+https://nytimes.com/2025/08/23/us/politics/abrego-garcia-coercion.html
+
 **What Eberechi Eze meant to Crystal Palace**\
 `Eze offered Palace supporters hope during lockdown, flung himself into community projects and, in May, made history at the south London club`\
 https://nytimes.com/athletic/6568536/2025/08/23/eberechi-eze-crystal-palace-memories/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6570742/2025/08/23/reds-diamondbacks-loss-nl-wild-c
 **Now’s the Time to Make Friends With Your Slow Cooker**\
 `Find new dinner favorites — creamy lentil tomato soup, or comforting chicken jook — to pull out of your back pocket when the fall calendar fills up.`\
 https://nytimes.com/2025/08/23/dining/easy-slow-cooker-recipes-for-late-summer.html
-
-**Cubs hope two big swings from Crow-Armstrong, Tucker can change team dynamics**\
-`A successful playoff run requires Crow-Armstrong and Tucker to snap out of funks. Friday could've been the start of that.`\
-https://nytimes.com/athletic/6570766/2025/08/23/cubs-pete-crow-armstrong-kyle-tucker-big-hits/
 
