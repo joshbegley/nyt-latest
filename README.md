@@ -1,3 +1,7 @@
+**Hong Kong Denies Visa Renewal for Senior Bloomberg Journalist**\
+`The unexplained decision raises fresh concerns about the erosion of press freedom in a city transformed by Beijing’s national security law.`\
+https://nytimes.com/2025/08/23/world/asia/hong-kong-bloomberg-visa.html
+
 **Several factors contributed to Erik Menendez’s parole denial on Thursday.**\
 `By Jesus Jiménez`\
 https://nytimes.com/live/2025/08/22/us/menendez-parole-hearing/several-factors-contributed-to-erik-menendezs-parole-denial-on-thursday
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6570542/2025/08/23/yankees-defend-anthony-volpe/
 **Brayan Bello dazzles as Red Sox clinch season series against Yankees**\
 `Bello spun seven scoreless innings, holding a potent Yankees lineup to three singles and a walk and striking out five in a 1-0 Red Sox win.`\
 https://nytimes.com/athletic/6570603/2025/08/23/red-sox-clinch-season-series-yankees-brayan-bello/
-
-**Arsenal, Leeds and the importance of height at set-pieces**\
-`Arsenal have become synonymous with set pieces while promoted Leeds have been clear in their recruitment - will a battle of giants ensue?`\
-https://nytimes.com/athletic/6569005/2025/08/23/arsenal-leeds-height-set-pieces/
 

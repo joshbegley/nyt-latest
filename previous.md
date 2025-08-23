@@ -1,3 +1,7 @@
+**Several factors contributed to Erik Menendez’s parole denial on Thursday.**\
+`By Jesus Jiménez`\
+https://nytimes.com/live/2025/08/22/us/menendez-parole-hearing/several-factors-contributed-to-erik-menendezs-parole-denial-on-thursday
+
 **Released audio recording of Thursday hearing angers Menendez family.**\
 `By Tim Arango`\
 https://nytimes.com/live/2025/08/22/us/menendez-parole-hearing/released-audio-recording-of-thursday-hearing-angers-menendez-family
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6570603/2025/08/23/red-sox-clinch-season-series-yan
 **Arsenal, Leeds and the importance of height at set-pieces**\
 `Arsenal have become synonymous with set pieces while promoted Leeds have been clear in their recruitment - will a battle of giants ensue?`\
 https://nytimes.com/athletic/6569005/2025/08/23/arsenal-leeds-height-set-pieces/
-
-**Salomon Rondon interview: Isak sadness, Newcastle love and battling Real Madrid**\
-`The Venezuelan veteran joined Real Oviedo this summer for their return to the Spanish top flight`\
-https://nytimes.com/athletic/6569326/2025/08/23/salomon-rondon-oviedo-real-madrid-isak-newcastle/
 

@@ -1,3 +1,7 @@
+**Several factors contributed to Erik Menendez’s parole denial on Thursday.**\
+`By Jesus Jiménez`\
+https://nytimes.com/live/2025/08/22/us/menendez-parole-hearing/several-factors-contributed-to-erik-menendezs-parole-denial-on-thursday
+
 **Released audio recording of Thursday hearing angers Menendez family.**\
 `By Tim Arango`\
 https://nytimes.com/live/2025/08/22/us/menendez-parole-hearing/released-audio-recording-of-thursday-hearing-angers-menendez-family
