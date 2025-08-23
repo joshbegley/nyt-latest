@@ -7,7 +7,7 @@ https://nytimes.com/athletic/6570762/2025/08/23/padres-dodgers-petco-park-home-f
 https://nytimes.com/2025/08/23/nyregion/theodore-friedman-dead.html
 
 **The Briefing: Man City 0 Tottenham 2 - Trafford's howler, Frank's pressing plan, outstanding Palhinha**\
-`Thomas Frank made it two wins out of two as Tottenham head coach with a brilliant away performance - The Athletic analyses the action`\
+`Thomas Frank made it two wins out of two as Tottenham head coach with a brilliant away performance for his visiting side at the Etihad`\
 https://nytimes.com/athletic/6564448/2025/08/23/manchester-city-0-tottenham-2-guardiola-frank-trafford-palhinha/
 
 **What Americans Need to Know About the Bolton F.B.I. Search**\
