@@ -1,3 +1,7 @@
+**Shane Bieber delivers in Blue Jays debut as trade deadline gamble pays off**\
+`Bieber struck out nine batters in a 5-2 win over the Marlins, delivering the ace upside Toronto bet on.`\
+https://nytimes.com/athletic/6570489/2025/08/22/shane-bieber-blue-jays-debut-marlins/
+
 **Cute Sound?**\
 `Ryan Judge’s themeless grid will make you hem, haw and say “Aww!”`\
 https://nytimes.com/2025/08/22/crosswords/daily-puzzle-2025-08-23.html
