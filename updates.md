@@ -1,3 +1,11 @@
+**The Long, Painful Downfall of Intel**\
+`The Silicon Valley chipmaker’s journey from icon to a government project, with the sale of a 10 percent stake to the Trump administration, underlines how even the mightiest in tech can fall.`\
+https://nytimes.com/2025/08/23/technology/intel-computer-chips-tech-ai-trump.html
+
+**Collapse of Bridge Under Construction in China Leaves at Least 12 Dead**\
+`A section of the railway bridge, under construction in the country’s northwest, plunged into the Yellow River early on Friday.`\
+https://nytimes.com/2025/08/23/world/asia/china-bridge-collapse.html
+
 **The Briefing: Man City 0 Tottenham 2 - Trafford's howler, Frank's pressing plan, outstanding Palhinha**\
 `Thomas Frank made it two wins out of two as Tottenham head coach with a brilliant away performance for his visiting side at the Etihad`\
 https://nytimes.com/athletic/6564448/2025/08/23/manchester-city-0-tottenham-2-guardiola-frank-trafford-palhinha/
