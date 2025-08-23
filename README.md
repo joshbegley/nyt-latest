@@ -1,3 +1,11 @@
+**Reyna set for Gladbach medical ahead of Dortmund transfer**\
+`The USMNT international has been open to the move in his search for regular football ahead of the 2026 World Cup.`\
+https://nytimes.com/athletic/6569150/2025/08/23/gio-reyna-borussia-monchengladbach-medical/
+
+**Mexico captain Alvarez joins Fenerbahce on loan from West Ham**\
+`The 27-year-old has made 73 appearances for West Ham across two seasons, scoring two goals.`\
+https://nytimes.com/athletic/6561168/2025/08/23/west-ham-transfer-news-edson-alvarez-fenerbahce/
+
 **Semenyo says racism sanctions not enough after alleged abuse vs Liverpool**\
 `Semenyo, 25, reported an alleged incident of racist abuse at Anfield during the opening game of the Premier League season.`\
 https://nytimes.com/athletic/6570847/2025/08/23/antoine-semenyo-bournemouth-liverpool-racism-sanctions/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6570244/2025/08/23/bears-53-man-roster-projection-2
 **Eagles 53-man roster projection before final cuts**\
 `Final cuts must be made by Tuesday afternoon.`\
 https://nytimes.com/athletic/6570345/2025/08/23/philadelphia-eagles-53-man-roster-projection-2025/
-
-**Ilona Maher, England and the Women's Rugby World Cup breaking records**\
-`The tenth women's World Cup is one match old but the tournament is already setting records. Maher and hosts England are making a mark`\
-https://nytimes.com/athletic/6569940/2025/08/23/ilona-maher-england-womens-rugby-world-cup/
-
-**A Troubled Colleague Asked For My Help. How Much Do I Have to Take On?**\
-`He says he has no one else.`\
-https://nytimes.com/2025/08/23/magazine/troubled-colleague-help-ethics.html
 

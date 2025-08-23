@@ -1,3 +1,11 @@
+**Semenyo says racism sanctions not enough after alleged abuse vs Liverpool**\
+`Semenyo, 25, reported an alleged incident of racist abuse at Anfield during the opening game of the Premier League season.`\
+https://nytimes.com/athletic/6570847/2025/08/23/antoine-semenyo-bournemouth-liverpool-racism-sanctions/
+
+**Final Cowboys 53-man roster projection: 'Tough' decisions to make on 'talented roster'**\
+`Trevon Diggs sounds like he's close to returning, but will he be ready to go Week 1? That and more decisions ahead for the Cowboys.`\
+https://nytimes.com/athletic/6570778/2025/08/23/dallas-cowboys-final-roster-projection-preseason/
+
 **Spy Novels: A Starter Pack**\
 `Interested in espionage fiction, but don’t know where to start? Let our expert guide you.`\
 https://nytimes.com/2025/08/23/books/review/best-spy-novels.html
