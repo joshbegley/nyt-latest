@@ -1,3 +1,7 @@
+**Bolton, Trump and a Crisis of Trust in Federal Law Enforcement**\
+`If the F.B.I. is seen as a tool of retribution, it will come at the expense of its effectiveness in the long run.`\
+https://nytimes.com/2025/08/23/opinion/john-bolton-trump-fbi.html
+
 **Blues rookie Jimmy Snuggerud on gaining weight, learning from losses and fan support: Q&A**\
 `Jimmy Snuggerud went back home to Minnesota this summer and gained 11 to 12 pounds, so he's up to 197 heading into Blues training camp.`\
 https://nytimes.com/athletic/6555465/2025/08/23/blues-jimmy-snuggerud-gaining-weight/
