@@ -1,3 +1,15 @@
+**Oregon Wildfire Doubles to More Than 18,000 Acres in 24 Hours**\
+`More than 1,000 homes in Oregon were under some kind of evacuation because of the Flat fire, which was one of many wildfires burning in the West, amid hot weather.`\
+https://nytimes.com/2025/08/23/weather/flat-fire-oregon.html
+
+**Mixed Company**\
+`Michael Lieberman conglomerates his skills to make an extra clever puzzle.`\
+https://nytimes.com/2025/08/23/crosswords/daily-puzzle-2025-08-24.html
+
+**Tracking Tropical Storm Fernand**\
+`See the likely path and wind arrival times for Fernand`\
+https://nytimes.com/interactive/2025/08/23/weather/fernand-map-path-tracker.html
+
 **Ravens 53-man roster projection: Young defensive players make for tough calls**\
 `Several young players flashed in the preseason, making it a difficult process for Baltimore to trim its roster to 53 players by Tuesday.`\
 https://nytimes.com/athletic/6571465/2025/08/23/ravens-53-man-roster-projection-2025/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/08/23/business/powell-fed-trump-economy-jackson-hole.ht
 **Colts roster projection: Injuries shake up secondary; end of the road for Jelani Woods?**\
 `Who makes the final 53-man roster? James Boyd makes his best prediction ahead of the final cuts coming on Tuesday. `\
 https://nytimes.com/athletic/6571393/2025/08/23/colts-roster-projection-53-cutdown/
-
-**Arteta: 'For Saka to come off, it looks like something significant'**\
-`Saka appeared to injure his left hamstring during Arsenal's 5-0 win over Leeds United.`\
-https://nytimes.com/athletic/6571395/2025/08/23/arsenal-saka-odegaard-injury-arteta/
-
-**Mets place Frankie Montas on injured list with UCL injury, recall Huascar Brazobán**\
-`Montas, who signed a two-year, $34 million contract in December, has a 6.28 ERA over 38 2/3 innings.`\
-https://nytimes.com/athletic/6571397/2025/08/23/mets-frankie-montas-ucl-injury/
-
-**No. 22 Iowa State edges No. 17 Kansas State 24-21 in CFB opener**\
-`The game showed why both programs are considered among the league favorites.`\
-https://nytimes.com/athletic/6571407/2025/08/23/iowa-state-kansas-state-week-0-college-football-score-analysis/
 
