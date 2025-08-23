@@ -1,3 +1,11 @@
+**Yankees continue to defend Anthony Volpe despite poor performance. Why?**\
+`Volpe has struggled at the plate and in the field, but his team talks about him like he's having a fine season.`\
+https://nytimes.com/athletic/6570542/2025/08/23/yankees-defend-anthony-volpe/
+
+**Brayan Bello dazzles as Red Sox clinch season series against Yankees**\
+`Bello spun seven scoreless innings, holding a potent Yankees lineup to three singles and a walk and striking out five in a 1-0 Red Sox win.`\
+https://nytimes.com/athletic/6570603/2025/08/23/red-sox-clinch-season-series-yankees-brayan-bello/
+
 **Arsenal, Leeds and the importance of height at set-pieces**\
 `Arsenal have become synonymous with set pieces while promoted Leeds have been clear in their recruitment - will a battle of giants ensue?`\
 https://nytimes.com/athletic/6569005/2025/08/23/arsenal-leeds-height-set-pieces/
