@@ -1,3 +1,7 @@
+**Bolton, Trump and a Crisis of Trust in Federal Law Enforcement**\
+`If the F.B.I. is seen as a tool of retribution, it will come at the expense of its effectiveness in the long run.`\
+https://nytimes.com/2025/08/23/opinion/john-bolton-trump-fbi.html
+
 **Blues rookie Jimmy Snuggerud on gaining weight, learning from losses and fan support: Q&A**\
 `Jimmy Snuggerud went back home to Minnesota this summer and gained 11 to 12 pounds, so he's up to 197 heading into Blues training camp.`\
 https://nytimes.com/athletic/6555465/2025/08/23/blues-jimmy-snuggerud-gaining-weight/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/23/opinion/international-sports-tennis-america-first
 **What Is Trump Hiding in His Secret Budget?**\
 `If the president plans to replace Social Security, the American people deserve to know.`\
 https://nytimes.com/2025/08/23/opinion/federal-budget-trump-delay.html
-
-**Would You Believe This Spy’s Name?**\
-`Spy fiction thrives on vermismilitude — shy are so many writers so incompetent when it comes to naming foriegn characters?`\
-https://nytimes.com/2025/08/23/opinion/spy-fiction-books-names-foreign.html
 
