@@ -1,3 +1,15 @@
+**Lance McCullers Jr. feels 'super close.' How long can the Astros wait?**\
+`Houston didn't acquire any pitchers at the deadline, so they need someone besides Framber Valdez or Hunter Brown to provide quality innings.`\
+https://nytimes.com/athletic/6570674/2025/08/23/astros-lance-mccullers-super-close/
+
+**Lyle Menendez said his mother also sexually abused him.**\
+`By Matt Stevens and Tim Arango`\
+https://nytimes.com/live/2025/08/22/us/menendez-parole-hearing/lyle-menendez-said-his-mother-also-sexually-abused-him
+
+**The New York Times in Print for Saturday, Aug. 23, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/08/23/todays-new-york-times
+
 **In his closing statement, Lyle Menendez said he would be ‘forever sorry.’**\
 `By Matt Stevens and Tim Arango`\
 https://nytimes.com/live/2025/08/22/us/menendez-parole-hearing/in-his-closing-statement-lyle-menendez-said-he-would-be-forever-sorry
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6569326/2025/08/23/salomon-rondon-oviedo-real-madri
 **James Horncastle's Serie A predictions: Title winners, best transfers, rising stars and teams in trouble**\
 `The Serie A season is upon us, so James Horncastle outlines the title contenders, who has done the best business, and much more...`\
 https://nytimes.com/athletic/6566565/2025/08/23/james-horncastle-serie-a-predictions/
-
-**In denying Lyle Menendez parole, officials cited the ‘callous’ murders.**\
-`By Matt Stevens and Tim Arango`\
-https://nytimes.com/live/2025/08/22/us/menendez-parole-hearing/in-denying-lyle-menendez-parole-officials-cited-the-callous-murders
-
-**‘An incident of extreme violence’: Why Marseille showed Adrien Rabiot and Jonathan Rowe the door**\
-`The players clashed in the dressing room after last week's defeat at 10-man Rennes and were immediately placed on the transfer list`\
-https://nytimes.com/athletic/6569071/2025/08/23/marseille-rabiot-rowe-zerbi-longoria/
-
-**Palace against Forest has become 'El CASico', but is theirs a lasting rivalry?**\
-`The Premier League has a new rivalry, for now anyway, born of the FA Cup winners' demotion from Europa League to Conference League `\
-https://nytimes.com/athletic/6569415/2025/08/23/crystal-palace-nottingham-forest-parish-marinakis-rivalry/
 
