@@ -1,3 +1,11 @@
+**The parole board decisions take the heat off Gavin Newsom.**\
+`By Laurel Rosenhall and Tim Arango`\
+https://nytimes.com/live/2025/08/22/us/menendez-parole-hearing/the-parole-board-decisions-take-the-heat-off-gavin-newsom
+
+**The Dodgers' offense disappears — and the division lead does, too**\
+`The Padres mowed down the Dodgers 2-1 to move back into a tie for the NL West lead.`\
+https://nytimes.com/athletic/6570712/2025/08/23/dodgers-offense-division-lead-padres/
+
 **Hong Kong Denies Visa Renewal for Senior Bloomberg Journalist**\
 `The unexplained decision raises fresh concerns about the erosion of press freedom in a city transformed by Beijing’s national security law.`\
 https://nytimes.com/2025/08/23/world/asia/hong-kong-bloomberg-visa.html
@@ -29,12 +37,4 @@ https://nytimes.com/live/2025/08/22/us/menendez-parole-hearing/in-his-closing-st
 **For some who have followed the case, the parole denials were no surprise.**\
 `By Jesus Jiménez`\
 https://nytimes.com/live/2025/08/22/us/menendez-parole-hearing/for-some-who-have-followed-the-case-the-parole-denials-were-no-surprise
-
-**Yankees continue to defend Anthony Volpe despite poor performance. Why?**\
-`Volpe has struggled at the plate and in the field, but his team talks about him like he's having a fine season.`\
-https://nytimes.com/athletic/6570542/2025/08/23/yankees-defend-anthony-volpe/
-
-**Brayan Bello dazzles as Red Sox clinch season series against Yankees**\
-`Bello spun seven scoreless innings, holding a potent Yankees lineup to three singles and a walk and striking out five in a 1-0 Red Sox win.`\
-https://nytimes.com/athletic/6570603/2025/08/23/red-sox-clinch-season-series-yankees-brayan-bello/
 
