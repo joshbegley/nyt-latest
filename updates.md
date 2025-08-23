@@ -1,3 +1,7 @@
+**Lance McCullers Jr. feels 'super close.' How long can the Astros wait?**\
+`Houston didn't acquire any pitchers at the deadline, so it needs someone besides Framber Valdez or Hunter Brown to provide quality innings.`\
+https://nytimes.com/athletic/6570674/2025/08/23/astros-lance-mccullers-super-close/
+
 **Hong Kong Denies Visa Renewal for Senior Bloomberg Journalist**\
 `The unexplained decision raises fresh concerns about the erosion of press freedom in a city transformed by Beijing’s national security law.`\
 https://nytimes.com/2025/08/23/world/asia/hong-kong-bloomberg-visa.html
