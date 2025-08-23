@@ -11,7 +11,7 @@ https://nytimes.com/live/2025/08/22/us/menendez-parole-hearing/several-factors-c
 https://nytimes.com/live/2025/08/22/us/menendez-parole-hearing/released-audio-recording-of-thursday-hearing-angers-menendez-family
 
 **Lance McCullers Jr. feels 'super close.' How long can the Astros wait?**\
-`Houston didn't acquire any pitchers at the deadline, so they need someone besides Framber Valdez or Hunter Brown to provide quality innings.`\
+`Houston didn't acquire any pitchers at the deadline, so it needs someone besides Framber Valdez or Hunter Brown to provide quality innings.`\
 https://nytimes.com/athletic/6570674/2025/08/23/astros-lance-mccullers-super-close/
 
 **Lyle Menendez said his mother also sexually abused him.**\
