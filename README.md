@@ -1,3 +1,11 @@
+**Blues rookie Jimmy Snuggerud on gaining weight, learning from losses and fan support: Q&A**\
+`Jimmy Snuggerud went back home to Minnesota this summer and gained 11 to 12 pounds, so he's up to 197 heading into Blues training camp.`\
+https://nytimes.com/athletic/6555465/2025/08/23/blues-jimmy-snuggerud-gaining-weight/
+
+**You’re Probably Thinking About the Future All Wrong**\
+`Nick Foster helped Apple and Google envision the future. He has some notes.`\
+https://nytimes.com/2025/08/23/business/dealbook/future-nick-foster.html
+
 **The Pulse: Who can end 22-year drought?**\
 `Welcome to The Pulse, The Athletic's daily sports newsletter.`\
 https://nytimes.com/athletic/6570371/2025/08/23/american-men-tennis-grand-slams-the-pulse/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/08/23/opinion/federal-budget-trump-delay.html
 **Would You Believe This Spy’s Name?**\
 `Spy fiction thrives on vermismilitude — shy are so many writers so incompetent when it comes to naming foriegn characters?`\
 https://nytimes.com/2025/08/23/opinion/spy-fiction-books-names-foreign.html
-
-**Jets final 53-man roster projection: Prichett, others make their case in preseason finale**\
-`How the roster is settling ahead of cut-down day.`\
-https://nytimes.com/athletic/6570602/2025/08/23/jets-final-53-man-roster-projection-after-preseason-finale/
-
-**Why We Are Feeling Less Hopeful, and What to Do About It**\
-`Readers react to a column by David Brooks analyzing the gloominess trend in the United States.`\
-https://nytimes.com/2025/08/23/opinion/americans-pessimism-hopefulness.html
 

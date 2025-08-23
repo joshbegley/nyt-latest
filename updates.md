@@ -1,3 +1,7 @@
+**The Pulse: Who can end 22-year drought?**\
+`Welcome to The Pulse, The Athletic's daily sports newsletter.`\
+https://nytimes.com/athletic/6570371/2025/08/23/american-men-tennis-grand-slams-the-pulse/
+
 **Troy Melton had a fast and furious rise to the heart of the Tigers' pitching staff**\
 `Inside Melton's path from San Diego State walk-on to raw pitching prospect to a key member of the Tigers' pitching staff. `\
 https://nytimes.com/athletic/6570368/2025/08/23/tigers-troy-melton-heart-of-pitching-staff/
