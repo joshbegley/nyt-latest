@@ -1,3 +1,7 @@
+**Spy Novels: A Starter Pack**\
+`Interested in espionage fiction, but don’t know where to start? Let our expert guide you.`\
+https://nytimes.com/2025/08/23/books/review/best-spy-novels.html
+
 **The Water Cure**\
 `Whether you swim furiously or float motionless, being in the water is a magical feeling.`\
 https://nytimes.com/2025/08/23/briefing/the-water-cure.html

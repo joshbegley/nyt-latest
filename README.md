@@ -1,3 +1,11 @@
+**Semenyo says racism sanctions not enough after alleged abuse vs Liverpool**\
+`Semenyo, 25, reported an alleged incident of racist abuse at Anfield during the opening game of the Premier League season.`\
+https://nytimes.com/athletic/6570847/2025/08/23/antoine-semenyo-bournemouth-liverpool-racism-sanctions/
+
+**Final Cowboys 53-man roster projection: 'Tough' decisions to make on 'talented roster'**\
+`Trevon Diggs sounds like he's close to returning, but will he be ready to go Week 1? That and more decisions ahead for the Cowboys.`\
+https://nytimes.com/athletic/6570778/2025/08/23/dallas-cowboys-final-roster-projection-preseason/
+
 **Spy Novels: A Starter Pack**\
 `Interested in espionage fiction, but don’t know where to start? Let our expert guide you.`\
 https://nytimes.com/2025/08/23/books/review/best-spy-novels.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6569940/2025/08/23/ilona-maher-england-womens-rugby
 **A Troubled Colleague Asked For My Help. How Much Do I Have to Take On?**\
 `He says he has no one else.`\
 https://nytimes.com/2025/08/23/magazine/troubled-colleague-help-ethics.html
-
-**Final Chiefs 53-man roster projection: Why surprises (and trades) could be ahead**\
-`Look for these two dark-horse candidates — one on offensive line and another at linebacker — to potentially be surprises on the Chiefs' 53.`\
-https://nytimes.com/athletic/6566774/2025/08/23/chiefs-roster-projection-2025/
-
-**An Unusual Sight Over Canada’s Arctic: Wildfire Smoke**\
-`Once rare, wildfire smoke is becoming more prevalent in Arctic communities as Canada faces harsh wildfire seasons.`\
-https://nytimes.com/2025/08/23/world/canada/canada-wildfires-smoke-arctic.html
 

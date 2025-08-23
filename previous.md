@@ -1,3 +1,7 @@
+**Spy Novels: A Starter Pack**\
+`Interested in espionage fiction, but don’t know where to start? Let our expert guide you.`\
+https://nytimes.com/2025/08/23/books/review/best-spy-novels.html
+
 **The Water Cure**\
 `Whether you swim furiously or float motionless, being in the water is a magical feeling.`\
 https://nytimes.com/2025/08/23/briefing/the-water-cure.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6566774/2025/08/23/chiefs-roster-projection-2025/
 **An Unusual Sight Over Canada’s Arctic: Wildfire Smoke**\
 `Once rare, wildfire smoke is becoming more prevalent in Arctic communities as Canada faces harsh wildfire seasons.`\
 https://nytimes.com/2025/08/23/world/canada/canada-wildfires-smoke-arctic.html
-
-**Wordle Review No. 1,527**\
-`Scroll down for hints and conversation about the puzzle for Sunday, Aug. 24, 2025.`\
-https://nytimes.com/2025/08/23/crosswords/wordle-review-1527.html
 
