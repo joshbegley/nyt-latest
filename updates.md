@@ -1,3 +1,11 @@
+**Justice Dept. Sent Congress Epstein Files That Were Already Public, Democrats Say**\
+`The ‘overwhelming majority’ of the material provided to a key investigative committee in response to a subpoena had already been released, according to Democratic members.`\
+https://nytimes.com/2025/08/23/us/politics/congress-epstein-files-public.html
+
+**The ‘Lioness’ at the Center of a City Hall Battered by Scandal**\
+`Before Ingrid Lewis-Martin was indicted on bribery charges, she was one of the most powerful people in Mayor Eric Adams’s orbit. Now she may hasten his fall in New York.`\
+https://nytimes.com/2025/08/23/nyregion/ingrid-lewis-martin-eric-adams.html
+
 **The Menendez Brothers’ Momentum Built for Years. It Was Dashed in 2 Days.**\
 `Young people energized a push for redemption — and the release of Lyle and Erik. Parole commissioners took a different view and a harder line.`\
 https://nytimes.com/2025/08/23/arts/menendez-brothers-supporters-parole-denied.html

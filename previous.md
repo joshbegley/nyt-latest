@@ -1,3 +1,11 @@
+**Justice Dept. Sent Congress Epstein Files That Were Already Public, Democrats Say**\
+`The ‘overwhelming majority’ of the material provided to a key investigative committee in response to a subpoena had already been released, according to Democratic members.`\
+https://nytimes.com/2025/08/23/us/politics/congress-epstein-files-public.html
+
+**The ‘Lioness’ at the Center of a City Hall Battered by Scandal**\
+`Before Ingrid Lewis-Martin was indicted on bribery charges, she was one of the most powerful people in Mayor Eric Adams’s orbit. Now she may hasten his fall in New York.`\
+https://nytimes.com/2025/08/23/nyregion/ingrid-lewis-martin-eric-adams.html
+
 **The Menendez Brothers’ Momentum Built for Years. It Was Dashed in 2 Days.**\
 `Young people energized a push for redemption — and the release of Lyle and Erik. Parole commissioners took a different view and a harder line.`\
 https://nytimes.com/2025/08/23/arts/menendez-brothers-supporters-parole-denied.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6570734/2025/08/23/willy-adames-giants-brewers/
 **Dowman, 15, named in Premier League matchday squad for first time**\
 `Mikel Arteta has include the England youth international as part of his group for the home match against Leeds United.`\
 https://nytimes.com/athletic/6556954/2025/08/23/max-dowman-arsenal-age-first-team/
-
-**What Jesse Jackson and Zohran Mamdani Have in Common**\
-`We cannot let this dark moment consume us.`\
-https://nytimes.com/2025/08/23/opinion/jesse-jackson-zohran-mamdani-working-class.html
-
-**Orlando Pride's Banda placed on season-ending injury list**\
-`The Pride said the Zambia international had suffered a "full thickness avulsion of her right adductor longus tendon".`\
-https://nytimes.com/athletic/6571021/2025/08/23/barbra-banda-orlando-pride-injury/
 
