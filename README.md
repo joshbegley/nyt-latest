@@ -31,7 +31,7 @@ https://nytimes.com/athletic/6560541/2025/08/23/college-football-playoff-bracket
 https://nytimes.com/athletic/6571284/2025/08/23/commanders-53-man-roster-final-projection-includes-four-running-backs/
 
 **Phillies' Zack Wheeler to undergo season-ending thoracic outlet surgery**\
-`Philadelphia's ace will need six to eight months to recover.`\
+`Philadelphia's ace will have a rib removed during the procedure. He will need six to eight months to recover.`\
 https://nytimes.com/athletic/6571385/2025/08/23/phillies-zack-wheeler-season-ending-surgery/
 
 **Why Sheffield Wednesday fans are thanking rivals Wrexham and co-chairman McElhenney**\
