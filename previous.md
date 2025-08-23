@@ -1,3 +1,7 @@
+**Arteta: 'For Saka to come off, it looks like something significant'**\
+`Saka appeared to injure his left hamstring during Arsenal's 5-0 win over Leeds United.`\
+https://nytimes.com/athletic/6571395/2025/08/23/arsenal-saka-odegaard-injury-arteta/
+
 **Mets place Frankie Montas on injured list with UCL injury, recall Huascar Brazobán**\
 `Montas, who signed a two-year, $34 million contract in December, has a 6.28 ERA over 38 2/3 innings.`\
 https://nytimes.com/athletic/6571397/2025/08/23/mets-frankie-montas-ucl-injury/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/23/nyregion/new-york-buffalo-bus-crash.html
 **Arsenal 5 Leeds 0: Dowman, Eze, Gyokeres joy, injury concerns return and Farke blueprint needs work**\
 `Arsenal had much to celebrate in Emirates victory, but will wait on injury news, while Farke will be left looking for positives`\
 https://nytimes.com/athletic/6564449/2025/08/23/arsenal-leeds-dowman-eze/
-
-**Justice Dept. Sent Congress Epstein Files That Were Already Public, Democrats Say**\
-`The ‘overwhelming majority’ of the material provided to a key investigative committee in response to a subpoena had already been released, according to Democratic members.`\
-https://nytimes.com/2025/08/23/us/politics/congress-epstein-files-public.html
 

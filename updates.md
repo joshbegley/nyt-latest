@@ -1,3 +1,7 @@
+**Arteta: 'For Saka to come off, it looks like something significant'**\
+`Saka appeared to injure his left hamstring during Arsenal's 5-0 win over Leeds United.`\
+https://nytimes.com/athletic/6571395/2025/08/23/arsenal-saka-odegaard-injury-arteta/
+
 **Mets place Frankie Montas on injured list with UCL injury, recall Huascar Brazobán**\
 `Montas, who signed a two-year, $34 million contract in December, has a 6.28 ERA over 38 2/3 innings.`\
 https://nytimes.com/athletic/6571397/2025/08/23/mets-frankie-montas-ucl-injury/
