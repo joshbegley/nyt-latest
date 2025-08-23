@@ -1,3 +1,7 @@
+**Dowman, 15, named in Premier League matchday squad for first time**\
+`Mikel Arteta has include the England youth international as part of his group for the home match against Leeds United.`\
+https://nytimes.com/athletic/6556954/2025/08/23/max-dowman-arsenal-age-first-team/
+
 **What Jesse Jackson and Zohran Mamdani Have in Common**\
 `We cannot let this dark moment consume us.`\
 https://nytimes.com/2025/08/23/opinion/jesse-jackson-zohran-mamdani-working-class.html
