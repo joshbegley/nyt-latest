@@ -1,3 +1,7 @@
+**Bengals' 53-man roster, depth chart projection: Help wanted on offensive, defensive lines**\
+`The Bengals' roster must be trimmed to 53 by Tuesday evening, but the changes will keep coming after that.`\
+https://nytimes.com/athletic/6571384/2025/08/23/bengals-roster-projection-depth-chart-53/
+
 **Bengals’ 53-man roster, depth chart projection: Help wanted on offensive, defensive lines**\
 `The Bengals' roster must be trimmed down to 53 by Tuesday evening, but the changes will keep coming after that.`\
 https://nytimes.com/athletic/6571384/2025/08/23/bengals-roster-projection-depth-chart-53/
