@@ -1,3 +1,7 @@
+**Police Release Names of 5 Killed in Tour Bus Crash Near Buffalo**\
+`Those killed in the accident on Friday ranged in age from 22 to 65 and included three people from New Jersey, a Chinese student at Columbia University and a person from India.`\
+https://nytimes.com/2025/08/23/nyregion/new-york-buffalo-bus-crash.html
+
 **Arsenal 5 Leeds 0: Dowman, Eze, Gyokeres joy, injury concerns return and Farke blueprint needs work**\
 `Arsenal had much to celebrate in Emirates victory, but will wait on injury news, while Farke will be left looking for positives`\
 https://nytimes.com/athletic/6564449/2025/08/23/arsenal-leeds-dowman-eze/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6568120/2025/08/23/inside-eberechi-eze-arsenal-tran
 **Arsenal complete signing of Eze from Palace**\
 `The England international moves to the Emirates Stadium for an initial fee of £60m plus a potential £7.5m in add-ons.`\
 https://nytimes.com/athletic/6565789/2025/08/23/arsenal-eze-confirmed-transfer/
-
-**Willy Adames homers twice in return to Milwaukee, but Giants crumble in ninth**\
-`When you are the Giants, hoping to create momentum from a mud pit, the rollicking Brewers might be the last team you want to face.`\
-https://nytimes.com/athletic/6570734/2025/08/23/willy-adames-giants-brewers/
 
