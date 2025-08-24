@@ -1,3 +1,7 @@
+**Seahawks' final roster projection: Uncertainty at wide receiver and with OL depth**\
+`The Seahawks still have some big decisions to make before Tuesday when final cuts are due.`\
+https://nytimes.com/athletic/6568806/2025/08/23/seahawks-roster-53-man-roster-projection-2025/
+
 **A Muted Homecoming for Kilmar Abrego Garcia**\
 `Mr. Abrego Garcia, who was wrongfully deported to El Salvador, is keeping a low profile as his lawyers prepare to fight the Trump administration’s proposal to deport him to Uganda.`\
 https://nytimes.com/2025/08/23/us/kilmar-abrego-garcia-returns-home.html
