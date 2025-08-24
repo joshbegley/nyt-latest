@@ -1,3 +1,11 @@
+**Chiefs bringing back Derrick Nnadi in trade with Jets: Source**\
+`Nnadi returns to Kansas City, where he played for seven seasons after signing with the Jets as a free agent in March.`\
+https://nytimes.com/athletic/6572749/2025/08/24/derrick-nnadi-trade-chiefs-jets/
+
+**Fulham 1 Manchester United 1: Fernandes' awful miss, Mount impresses, smart substitutions**\
+`At Craven Cottage, usually a happy hunting ground for the visitors, substitute Emile Smith Rowe denied Ruben Amorim's men three points`\
+https://nytimes.com/athletic/6564479/2025/08/24/fulham-1-manchester-united-1-briefing/
+
 **Submit your questions for Jordan Bianchi's latest NASCAR Mailbag**\
 `Have any questions about anything going on in the NASCAR world? Leave them in the comments below for Jordan Bianchi's next NASCAR Mailbag.`\
 https://nytimes.com/athletic/6572757/2025/08/24/submit-your-questions-for-jordan-bianchis-latest-nascar-mailbag/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6572365/2025/08/24/marinakis-banner-palace-forest/
 **Arsenal get Saka, Odegaard boost as injuries not believed to be serious**\
 `Arsenal head coach Mikel Arteta initially feared Saka had suffered a "significant" hamstring injury.`\
 https://nytimes.com/athletic/6572330/2025/08/24/bukayo-saka-martin-odegaard-injuries-news-arsenal/
-
-**Everton's Hill Dickinson Stadium cost £800m. It is an arena fit for the future**\
-`Everton's first Premier League game at their new home was a powerful, emotional occasion - and The Athletic savoured every moment`\
-https://nytimes.com/athletic/6572314/2025/08/24/everton-hill-dickinson-stadium-first-premier-league-game/
-
-**Annie Stainer, 79, Dies; Enigmatic Mime Who Performed With David Bowie**\
-`She later became a powerful solo artist in her own right, creating a dance trilogy steeped in myth and feminine archetypes.`\
-https://nytimes.com/2025/08/24/arts/dance/annie-stainer-dead.html
 

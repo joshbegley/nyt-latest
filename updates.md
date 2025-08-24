@@ -1,3 +1,11 @@
+**Chiefs bringing back Derrick Nnadi in trade with Jets: Source**\
+`Nnadi returns to Kansas City, where he played for seven seasons after signing with the Jets as a free agent in March.`\
+https://nytimes.com/athletic/6572749/2025/08/24/derrick-nnadi-trade-chiefs-jets/
+
+**Fulham 1 Manchester United 1: Fernandes' awful miss, Mount impresses, smart substitutions**\
+`At Craven Cottage, usually a happy hunting ground for the visitors, substitute Emile Smith Rowe denied Ruben Amorim's men three points`\
+https://nytimes.com/athletic/6564479/2025/08/24/fulham-1-manchester-united-1-briefing/
+
 **Submit your questions for Jordan Bianchi's latest NASCAR Mailbag**\
 `Have any questions about anything going on in the NASCAR world? Leave them in the comments below for Jordan Bianchi's next NASCAR Mailbag.`\
 https://nytimes.com/athletic/6572757/2025/08/24/submit-your-questions-for-jordan-bianchis-latest-nascar-mailbag/
