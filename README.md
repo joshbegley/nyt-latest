@@ -1,3 +1,7 @@
+**Livestream Shows M.M.A. Fighter Raja Jackson Assaulting Pro Wrestler**\
+`The footage showed Mr. Jackson, son of the former UFC champion Quinton Jackson, punching the wrestler Stuart Smith at least 20 times.`\
+https://nytimes.com/2025/08/24/us/raja-jackson-wrestler-assault.html
+
 **Shade of Green**\
 `Ryan Mathiason keeps us on edge.`\
 https://nytimes.com/2025/08/24/crosswords/daily-puzzle-2025-08-25.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/24/us/politics/trump-dc-crime-takeover-federal-court
 **‘Seven Scenes’ Review: Push-Pull Pieces Lacking Connective Tissue**\
 `A tempestuous new work by the choreographers Bobbi Jene Smith and Or Schraiber debuts at Little Island.`\
 https://nytimes.com/2025/08/24/arts/dance/seven-scenes-review.html
-
-**Avery Johnson's father, brother apologize for fight after ISU game**\
-`Mark and Anthony Johnson were seen on video fighting one another outside of Dublin’s Aviva Stadium after Kansas State's loss.`\
-https://nytimes.com/athletic/6572880/2025/08/24/avery-johnson-family-fight-kansas-state/
 
