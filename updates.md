@@ -1,3 +1,7 @@
+**Yankees' Anthony Volpe benched in Red Sox series finale**\
+`Manager Aaron Boone didn’t guarantee that Volpe, who is healthy, would start on Monday either.`\
+https://nytimes.com/athletic/6573199/2025/08/24/ny-yankees-anthony-volpe-benched/
+
 **Livestream Shows M.M.A. Fighter Raja Jackson Assaulting Pro Wrestler**\
 `The footage showed Mr. Jackson, son of the former UFC champion Quinton Jackson, punching the wrestler Stuart Smith at least 20 times.`\
 https://nytimes.com/2025/08/24/us/raja-jackson-wrestler-assault.html
