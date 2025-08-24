@@ -1,3 +1,11 @@
+**Nuno admits relationship with Edu must improve, denies want to leave Forest**\
+`As revealed by The Athletic on Friday, Nuno's relationship with Edu has deteriorated.`\
+https://nytimes.com/athletic/6572159/2025/08/24/nuno-edu-nottingham-forest-rift-marinakis/
+
+**Andrew Abbott's worst start of the year comes at a bad time for the Reds**\
+`Abbott went four innings in a 10-1 loss Saturday. Coupled with a Mets victory, the Reds are now 2 1/2 games back for the last NL wild card.`\
+https://nytimes.com/athletic/6571861/2025/08/24/andrew-abbott-reds-worst-start/
+
 **Tracking Typhoon Kajiki**\
 `See the likely path and wind arrival times for Kajiki`\
 https://nytimes.com/interactive/2025/weather/kajiki-map-path-tracker.html
