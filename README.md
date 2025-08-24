@@ -1,9 +1,13 @@
+**Is Kyle Tucker back? The Cubs’ reset appears to be working as planned **\
+`After being benched against the Brewers, Tucker has rediscovered his ability to hunt certain pitches and launch those balls into the seats.`\
+https://nytimes.com/athletic/6571944/2025/08/24/kyle-tucker-cubs-reset-home-run/
+
 **Does Coventry 7 (xG 1.27) QPR 1 (0.61) prove expected goals is broken?**\
 `The Championship club's remarkable overperformance on Saturday raised questions about the xG model`\
 https://nytimes.com/athletic/6572050/2025/08/24/does-coventry-7-xg-1-27-qpr-1-0-61-prove-expected-goals-is-broken/
 
 **Bay FC continue to push boundaries - a record-breaking crowd will only fuel the ambition**\
-`Bay FC's ambition knows no bounds - in taking the game against the Spirit to Oracle Park they wanted a record crowd. Mission accomplished`\
+`In taking the game against the Spirit to Oracle Park, Bay FC were ambitious in wanting a record crowd. Mission accomplished`\
 https://nytimes.com/athletic/6572028/2025/08/24/bay-fc-record-crowd-oracle-park/
 
 **Nuno admits relationship with Edu must improve, denies wanting to leave Forest**\
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/24/arts/television/david-ketchum-dead.html
 **Gripes and Grumbling at the Airport Lounge**\
 `Readers respond to a guest essay on the decline of a premium air travel perk. Also: When church and politics meet.`\
 https://nytimes.com/2025/08/24/opinion/airport-lounge-complaints.html
-
-**Aidan O'Connell, Raiders backup QB, fractures wrist in preseason finale**\
-`O'Connell was set to be Geno Smith's top backup this season.`\
-https://nytimes.com/athletic/6572126/2025/08/24/aidan-oconnell-injury-broken-wrist/
 

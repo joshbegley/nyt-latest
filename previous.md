@@ -1,3 +1,7 @@
+**Does Coventry 7 (xG 1.27) QPR 1 (0.61) prove expected goals is broken?**\
+`The Championship club's remarkable overperformance on Saturday raised questions about the xG model`\
+https://nytimes.com/athletic/6572050/2025/08/24/does-coventry-7-xg-1-27-qpr-1-0-61-prove-expected-goals-is-broken/
+
 **Bay FC continue to push boundaries - a record-breaking crowd will only fuel the ambition**\
 `Bay FC's ambition knows no bounds - in taking the game against the Spirit to Oracle Park they wanted a record crowd. Mission accomplished`\
 https://nytimes.com/athletic/6572028/2025/08/24/bay-fc-record-crowd-oracle-park/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/24/opinion/airport-lounge-complaints.html
 **Aidan O'Connell, Raiders backup QB, fractures wrist in preseason finale**\
 `O'Connell was set to be Geno Smith's top backup this season.`\
 https://nytimes.com/athletic/6572126/2025/08/24/aidan-oconnell-injury-broken-wrist/
-
-**Leeds and Valencia negotiating loan deal for Ramazani**\
-`The 24-year-old started just once in the Championship between October 23 last year and the end of the campaign.`\
-https://nytimes.com/athletic/6572020/2025/08/24/largie-ramazani-leeds-united-valencia-loan/
 
