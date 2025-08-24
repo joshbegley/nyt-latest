@@ -1,3 +1,7 @@
+**Gripes and Grumbling at the Airport Lounge**\
+`Readers respond to a guest essay on the decline of a premium air travel perk. Also: When church and politics meet.`\
+https://nytimes.com/2025/08/24/opinion/airport-lounge-complaints.html
+
 **Aidan O'Connell, Raiders backup QB, fractures wrist in preseason finale**\
 `O'Connell was set to be Geno Smith's top backup this season.`\
 https://nytimes.com/athletic/6572126/2025/08/24/aidan-oconnell-injury-broken-wrist/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5847687/2025/08/24/tennis-rankings-how-players-rank
 **The Tigers bullpen is leaning into a new version of chaos down the stretch**\
 `With a series of transactions and creative bullpen usage, the Tigers have won nine of 10 and reclaimed the AL's best record.`\
 https://nytimes.com/athletic/6571782/2025/08/24/tigers-bullpen-kyle-finnegan-will-vest/
-
-**Is USC football — finally aligned and committed — poised to return to national prominence?**\
-`“Everyone knows the potential of USC,” Trojans GM Chad Bowden said earlier this month. “I think they understand the giant’s awake now.”`\
-https://nytimes.com/athletic/6566847/2025/08/24/usc-football-2025-nil-lincoln-riley/
 
