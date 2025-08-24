@@ -1,3 +1,19 @@
+**FA to investigate Palace fans' Marinakis, Gibbs-White banner**\
+`The banner, which showed Marinakis holding a gun to Gibbs-White's head, was not broadcast in Sky Sports' coverage.`\
+https://nytimes.com/athletic/6572365/2025/08/24/marinakis-banner-palace-forest/
+
+**Arsenal get Saka, Odegaard boost as injuries not believed to be serious**\
+`Arsenal head coach Mikel Arteta initially feared Saka had suffered a "significant" hamstring injury.`\
+https://nytimes.com/athletic/6572330/2025/08/24/bukayo-saka-martin-odegaard-injuries-news-arsenal/
+
+**Everton's Hill Dickinson Stadium cost £800m. It is an arena fit for the future**\
+`Everton's first Premier League game at their new home was a powerful, emotional occasion - and The Athletic savoured every moment`\
+https://nytimes.com/athletic/6572314/2025/08/24/everton-hill-dickinson-stadium-first-premier-league-game/
+
+**Annie Stainer, 79, Dies; Enigmatic Mime Who Performed With David Bowie**\
+`She later became a powerful solo artist in her own right, creating a dance trilogy steeped in myth and feminine archetypes.`\
+https://nytimes.com/2025/08/24/arts/dance/annie-stainer-dead.html
+
 **Trump’s Stunning Attack on Mail-In Ballots**\
 `The president and his allies should not be trusted to ensure the integrity of the vote.`\
 https://nytimes.com/2025/08/24/opinion/trump-voting-mail-in-ballots.html
@@ -21,20 +37,4 @@ https://nytimes.com/2025/08/24/dining/a-former-critics-summer-cooking-notebook.h
 **The Pulse: A sublime, sloppy start to college football**\
 `Welcome to The Pulse, The Athletic's daily sports newsletter.`\
 https://nytimes.com/athletic/6571895/2025/08/24/a-sloppy-superb-start-to-college-football-and-a-brutal-night-for-the-sanders-brothers/
-
-**Ozzie Rodriguez, Off Off Broadway Mainstay and Archivist, Dies at 81**\
-`An actor, director and playwright for La MaMa Experimental Theater Club, he later found an even more distinct role: curating its vast archive.`\
-https://nytimes.com/2025/08/24/theater/ozzie-rodriguez-dead.html
-
-**Vikings signing QB Carson Wentz, trading Sam Howell to Eagles: Sources**\
-`The move comes one day after Wentz worked out with the Vikings, raising questions about the team's depth chart at QB.`\
-https://nytimes.com/athletic/6572335/2025/08/24/vikings-carson-wentz-sam-howell-trade-signing/
-
-**Humpy Wheeler, NASCAR’s Greatest Showman, Dies at 86**\
-`With fire-breathing robots and death-defying school-bus stunts, he brought spectacle to stock-car racing as the sport boomed in the 1970s and beyond.`\
-https://nytimes.com/2025/08/24/sports/autoracing/humpy-wheeler-dead.html
-
-**A pair of pass-rushers emerge: Five things we learned this week at Raiders training camp**\
-`Potential help for Maxx Crosby, plus the cornerback room continues to take shape.`\
-https://nytimes.com/athletic/6571874/2025/08/24/raiders-final-training-camp-practice-report/
 
