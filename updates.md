@@ -1,3 +1,11 @@
+**This wasn't just any old Saturday in north London**\
+`Arsenal's 5-0 win over Leeds featured Max Dowman's Premier League debut, Eberechi Eze's unveiling, two goals for Viktor Gyokeres and more.`\
+https://nytimes.com/athletic/6571423/2025/08/24/arsenal-dowman-eze-leeds-live/
+
+**I Missed My Parent’s WhatsApp**\
+`The incessant alerts are annoying, but also feel like community.`\
+https://nytimes.com/2025/08/24/opinion/parents-whatsapp-group-chats.html
+
 **Michael Jordan and Kobe Bryant card sells for record $12.9 million**\
 `Jordan and Bryant take a joint place atop the sports card world`\
 https://nytimes.com/athletic/6571746/2025/08/24/michael-jordan-kobe-bryant-record-card-sale/
