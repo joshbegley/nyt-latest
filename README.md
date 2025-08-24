@@ -1,3 +1,11 @@
+**NASCAR Daytona takeaways: A thrilling race, playoff predictions and more**\
+`The regular-season finale at Daytona delivered a race that felt almost too good to be true. Plus, our playoff predictions and more.`\
+https://nytimes.com/athletic/6572407/2025/08/24/nascar-daytona-takeaways-playoff-predictions/
+
+**Democrats Criticize Trump’s Push for National Guard in More Cities**\
+`President Trump said he was considering sending troops to cities like Chicago, New York and Baltimore. State and local leaders say they have crime under control.`\
+https://nytimes.com/2025/08/24/us/politics/trump-national-guard-chicago-crime.html
+
 **Chiefs bringing back Derrick Nnadi in trade with Jets: Source**\
 `Nnadi returns to Kansas City, where he played for seven seasons after signing with the Jets as a free agent in March.`\
 https://nytimes.com/athletic/6572749/2025/08/24/derrick-nnadi-trade-chiefs-jets/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6572634/2025/08/24/sam-howell-trade-grades-vikings-
 **Phillies, Twins will face off in next year's Field of Dreams game**\
 `It will be the first time since 2022 that big-league baseball will be played in the iconic Iowa cornfield.`\
 https://nytimes.com/athletic/6572602/2025/08/24/phillies-twins-mlb-field-of-dreams-iowa/
-
-**FA to investigate Palace fans' Marinakis, Gibbs-White banner**\
-`The banner, which showed Marinakis holding a gun to Gibbs-White's head, was not broadcast in Sky Sports' coverage.`\
-https://nytimes.com/athletic/6572365/2025/08/24/marinakis-banner-palace-forest/
-
-**Arsenal get Saka, Odegaard boost as injuries not believed to be serious**\
-`Arsenal head coach Mikel Arteta initially feared Saka had suffered a "significant" hamstring injury.`\
-https://nytimes.com/athletic/6572330/2025/08/24/bukayo-saka-martin-odegaard-injuries-news-arsenal/
 
