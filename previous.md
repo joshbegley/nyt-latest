@@ -1,3 +1,7 @@
+**Michael Jordan and Kobe Bryant card sells for record $12.9 million**\
+`Jordan and Bryant take a joint place atop the sports card world`\
+https://nytimes.com/athletic/6571746/2025/08/24/michael-jordan-kobe-bryant-record-card-sale/
+
 **The Dodgers offense is struggling to make adjustments and scuffling at the wrong time**\
 `Modifications are required but have not come often enough as a lineup of future Hall of Famers has produced runs at a mediocre rate for L.A.`\
 https://nytimes.com/athletic/6571904/2025/08/24/dodgers-lose-padres-offense-no-offense/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6570997/2025/08/24/manchester-city-tottenham-premie
 **Four problems Wolves must address in the transfer window and beyond**\
 `To ensure they don't suffer a worse fate this season, Pereira and the club have some big problems to rectify before the window closes`\
 https://nytimes.com/athletic/6571287/2025/08/24/four-wolves-problems-bournemouth-defeat/
-
-**Newcastle-Liverpool predictions: How will both sides respond to Alexander Isak drama?**\
-`Our writers discuss the key talking points ahead of what promises to be a fiery fixture at St James' Park`\
-https://nytimes.com/athletic/6569321/2025/08/24/newcastle-liverpool-isak-predictions/
 

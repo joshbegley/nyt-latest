@@ -1,3 +1,7 @@
+**Michael Jordan and Kobe Bryant card sells for record $12.9 million**\
+`Jordan and Bryant take a joint place atop the sports card world`\
+https://nytimes.com/athletic/6571746/2025/08/24/michael-jordan-kobe-bryant-record-card-sale/
+
 **The Dodgers offense is struggling to make adjustments and scuffling at the wrong time**\
 `Modifications are required but have not come often enough as a lineup of future Hall of Famers has produced runs at a mediocre rate for L.A.`\
 https://nytimes.com/athletic/6571904/2025/08/24/dodgers-lose-padres-offense-no-offense/
