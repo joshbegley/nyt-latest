@@ -1,3 +1,19 @@
+**Tracking Typhoon Kajiki**\
+`See the likely path and wind arrival times for Kajiki`\
+https://nytimes.com/interactive/2025/weather/kajiki-map-path-tracker.html
+
+**Lavrov seems to erase the notion that a Putin-Zelensky meeting is in the works.**\
+`In an interview NBC’s “Meet the Press” is set to broadcast an interview on Sunday morning with Foreign Minister Sergey V. Lavrov of Russia`\
+https://nytimes.com/live/2025/08/24/us/trump-news-updates/lavrov-seems-to-erase-the-notion-that-a-putin-zelensky-meeting-is-in-the-works
+
+**Trump Administration Live Updates: Russia’s Top Diplomat Says ‘No Meeting Planned’ Between Putin and Zelensky**\
+``\
+https://nytimes.com/live/2025/08/24/us/trump-news-updates
+
+**David Ketchum, Who Played the Cooped-Up Agent 13 on ‘Get Smart,’ Dies at 97**\
+`He was frequently crammed into airport lockers, popcorn machines and grandfather clocks as Agent 13, the long-suffering spy.`\
+https://nytimes.com/2025/08/24/arts/television/david-ketchum-dead.html
+
 **Gripes and Grumbling at the Airport Lounge**\
 `Readers respond to a guest essay on the decline of a premium air travel perk. Also: When church and politics meet.`\
 https://nytimes.com/2025/08/24/opinion/airport-lounge-complaints.html

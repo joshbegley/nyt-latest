@@ -1,3 +1,7 @@
+**Andrew Abbott's worst start of the year comes at a bad time for the Reds**\
+`PHOENIX — After Cincinnati Reds starter Zack Littell went just three innings in Friday’s 11-inning loss to the Arizona Diamondbacks, the team needed lefty Andrew Abbott not only to pitch well Saturday, but also to pitch deep into the game.`\
+https://nytimes.com/athletic/6571861/2025/08/24/andrew-abbott-reds-worst-start/
+
 **Tracking Typhoon Kajiki**\
 `See the likely path and wind arrival times for Kajiki`\
 https://nytimes.com/interactive/2025/weather/kajiki-map-path-tracker.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/24/briefing/revealing-taste.html
 **The best matches of U.S. Open day 1, from Sabalenka and Raducanu to Djokovic and Fritz**\
 `The best matches on the first day of the 2025 U.S. Open, including last year's singles finalists and one defending champion.`\
 https://nytimes.com/athletic/6571634/2025/08/24/tennis-us-open-day-1-matches-schedule/
-
-**Big Ten vs. SEC challenge: Who would win a 16-game showdown?**\
-`If the sport's two premier conferences played a nonconference series, who would prove to have more depth? We played it out.`\
-https://nytimes.com/athletic/6569243/2025/08/24/big-ten-vs-sec-challenge-who-would-win-a-16-game-showdown/
 
