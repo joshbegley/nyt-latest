@@ -1,3 +1,7 @@
+**Braves takeaways: How Atlanta can transform into a contender in 2026**\
+`Atlanta’s run of seven consecutive postseason appearances is about to end. Here's how the Braves can get back on track next season.`\
+https://nytimes.com/athletic/6573087/2025/08/24/braves-takeaways-atlanta-contender-2026/
+
 **Yankees' Anthony Volpe benched in Red Sox series finale**\
 `Manager Aaron Boone didn’t guarantee that Volpe, who is healthy, would start on Monday either.`\
 https://nytimes.com/athletic/6573199/2025/08/24/ny-yankees-anthony-volpe-benched/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6569698/2025/08/24/mlb-cal-raleigh-home-run-catcher
 **SpaceX Prepares for Critical 10th Test Launch of Mars Rocket**\
 `After setbacks in its last three flight attempts, Elon Musk’s company has a lot riding on the latest trip of its Starship prototype.`\
 https://nytimes.com/2025/08/24/science/spacex-starship-launch.html
-
-**In Washington Crackdown, Making a Federal Case Out of Low-Level Arrests**\
-`A single afternoon in court illustrated the new ways in which laws are being enforced after President Trump’s takeover of the city’s police.`\
-https://nytimes.com/2025/08/24/us/politics/trump-dc-crime-takeover-federal-court.html
 

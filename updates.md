@@ -1,3 +1,7 @@
+**Braves takeaways: How Atlanta can transform into a contender in 2026**\
+`Atlanta’s run of seven consecutive postseason appearances is about to end. Here's how the Braves can get back on track next season.`\
+https://nytimes.com/athletic/6573087/2025/08/24/braves-takeaways-atlanta-contender-2026/
+
 **Yankees' Anthony Volpe benched in Red Sox series finale**\
 `Manager Aaron Boone didn’t guarantee that Volpe, who is healthy, would start on Monday either.`\
 https://nytimes.com/athletic/6573199/2025/08/24/ny-yankees-anthony-volpe-benched/
