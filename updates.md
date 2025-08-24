@@ -1,3 +1,11 @@
+**NASCAR Daytona takeaways: A thrilling race, playoff predictions and more**\
+`The regular-season finale at Daytona delivered a race that felt almost too good to be true. Plus, our playoff predictions and more.`\
+https://nytimes.com/athletic/6572407/2025/08/24/nascar-daytona-takeaways-playoff-predictions/
+
+**Democrats Criticize Trump’s Push for National Guard in More Cities**\
+`President Trump said he was considering sending troops to cities like Chicago, New York and Baltimore. State and local leaders say they have crime under control.`\
+https://nytimes.com/2025/08/24/us/politics/trump-national-guard-chicago-crime.html
+
 **Chiefs bringing back Derrick Nnadi in trade with Jets: Source**\
 `Nnadi returns to Kansas City, where he played for seven seasons after signing with the Jets as a free agent in March.`\
 https://nytimes.com/athletic/6572749/2025/08/24/derrick-nnadi-trade-chiefs-jets/
