@@ -1,3 +1,7 @@
+**This wasn't just any old Saturday in north London**\
+`Arsenal's 5-0 win over Leeds featured Max Dowman's Premier League debut, Eberechi Eze's unveiling, two goals for Viktor Gyokeres and more.`\
+https://nytimes.com/athletic/6571423/2025/08/24/arsenal-dowman-eze-leeds-live/
+
 **Michael Jordan and Kobe Bryant card sells for record $12.9 million**\
 `Jordan and Bryant take a joint place atop the sports card world`\
 https://nytimes.com/athletic/6571746/2025/08/24/michael-jordan-kobe-bryant-record-card-sale/
@@ -14,7 +18,7 @@ https://nytimes.com/athletic/6571919/2025/08/24/uc-davis-mercer-no-contest-delay
 ``\
 https://nytimes.com/issue/todayspaper/2025/08/24/todays-new-york-times
 
-**Ding-Ding! The Parent Group Chats Are Back, Thank God.**\
+**I Missed My Parent’s WhatsApp**\
 `The incessant alerts are annoying, but also feel like community.`\
 https://nytimes.com/2025/08/24/opinion/parents-whatsapp-group-chats.html
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6571172/2025/08/24/tottenham-manchester-city-premie
 **City's aggressive offside trap failed against Tottenham - and shows how precarious it can be**\
 `Manchester City are attempting to play a high defensive line.... but there are teething problems, and it showed against Tottenham`\
 https://nytimes.com/athletic/6570997/2025/08/24/manchester-city-tottenham-premier-league-offside-trap/
-
-**Four problems Wolves must address in the transfer window and beyond**\
-`To ensure they don't suffer a worse fate this season, Pereira and the club have some big problems to rectify before the window closes`\
-https://nytimes.com/athletic/6571287/2025/08/24/four-wolves-problems-bournemouth-defeat/
 
