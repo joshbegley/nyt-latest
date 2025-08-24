@@ -1,3 +1,7 @@
+**Avery Johnson's father, brother apologize for fight after ISU game**\
+`Mark and Anthony Johnson were seen on video fighting one another outside of Dublin’s Aviva Stadium after Kansas State's loss.`\
+https://nytimes.com/athletic/6572880/2025/08/24/avery-johnson-family-fight-kansas-state/
+
 **NASCAR Daytona takeaways: A thrilling throwback, playoff predictions and more**\
 `The regular-season finale at Daytona delivered a race that felt almost too good to be true. Plus, our playoff predictions and more.`\
 https://nytimes.com/athletic/6572407/2025/08/24/nascar-daytona-takeaways-playoff-predictions/
