@@ -1,3 +1,7 @@
+**Brewers remember, celebrate late Bob Uecker: 'This is a chance for all of you to say goodbye'**\
+`The memorial program interspersed testimonials with a four-part video that recounted Uecker's life, career and his connection to Milwaukee.`\
+https://nytimes.com/athletic/6571420/2025/08/24/milwaukee-brewers-bob-uecker-celebration/
+
 **Braves takeaways: How Atlanta can transform into a contender in 2026**\
 `Atlanta’s run of seven consecutive postseason appearances is about to end. Here's how the Braves can get back on track next season.`\
 https://nytimes.com/athletic/6573087/2025/08/24/braves-takeaways-atlanta-contender-2026/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6573009/2025/08/24/unc-football-documentary-hulu/
 **Mariners' Cal Raleigh homers twice, sets catcher record with MLB-leading 49th HR**\
 `Breaking Salvador Perez's record is Raleigh's latest feat during an All-Star season.`\
 https://nytimes.com/athletic/6569698/2025/08/24/mlb-cal-raleigh-home-run-catcher-record/
-
-**SpaceX Prepares for Critical 10th Test Launch of Mars Rocket**\
-`After setbacks in its last three flight attempts, Elon Musk’s company has a lot riding on the latest trip of its Starship prototype.`\
-https://nytimes.com/2025/08/24/science/spacex-starship-launch.html
 

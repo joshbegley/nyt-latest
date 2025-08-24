@@ -1,3 +1,7 @@
+**Brewers remember, celebrate late Bob Uecker: 'This is a chance for all of you to say goodbye'**\
+`The memorial program interspersed testimonials with a four-part video that recounted Uecker's life, career and his connection to Milwaukee.`\
+https://nytimes.com/athletic/6571420/2025/08/24/milwaukee-brewers-bob-uecker-celebration/
+
 **Braves takeaways: How Atlanta can transform into a contender in 2026**\
 `Atlanta’s run of seven consecutive postseason appearances is about to end. Here's how the Braves can get back on track next season.`\
 https://nytimes.com/athletic/6573087/2025/08/24/braves-takeaways-atlanta-contender-2026/
