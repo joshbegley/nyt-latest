@@ -1,3 +1,19 @@
+**Who Killed King Louie? The Mystery of a Prize Buck’s Death.**\
+`An enormous whitetail deer had become a local legend in rural New York. Then a picture of his carcass appeared on social media.`\
+https://nytimes.com/2025/08/24/nyregion/king-louie-buck.html
+
+**Why Is Andrew Cuomo Still Running for Mayor? The Answer May Lie in 1977.**\
+`Mario Cuomo’s failed mayoral campaign was a training ground for his son Andrew, who would mount his own bid decades later.`\
+https://nytimes.com/2025/08/24/nyregion/andrew-mario-cuomo-father.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/08/24/crosswords/spelling-bee-forum.html
+
+**‘A Little Hungry, I Saw a Coffee Cart and Got in Line’**\
+`A memorable coffee cart order, a ferry rider gets an unusual greeting and more reader tales of New York City in this week’s Metropolitan Diary.`\
+https://nytimes.com/2025/08/24/nyregion/metropolitan-diary.html
+
 **Leeds had a brutal reality check at Arsenal - they must not linger on it**\
 `There are lessons to be learned but games like this will not decide Leeds' Premier League future`\
 https://nytimes.com/athletic/6571818/2025/08/24/arsenal-leeds-premier-league-reality-check/
