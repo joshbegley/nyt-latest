@@ -1,3 +1,11 @@
+**The New York Times in Print for Sunday, Aug. 24, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/08/24/todays-new-york-times
+
+**Ding-Ding! The Parent Group Chats Are Back, Thank God.**\
+`The incessant alerts are annoying, but also feel like community.`\
+https://nytimes.com/2025/08/24/opinion/parents-whatsapp-group-chats.html
+
 **The Astros are 'picking each other up,' but can they sustain their starting pitching woes?**\
 `Bryan Abreu's 58th appearance of the season, coming a day after throwing more than one inning, is a symbol of the Astros' seismic problem.`\
 https://nytimes.com/athletic/6571849/2025/08/24/astros-starting-pitching-woes-bryan-abreu/
