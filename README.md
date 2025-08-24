@@ -1,3 +1,7 @@
+**Yankees' Anthony Volpe benched in Red Sox series finale**\
+`Manager Aaron Boone didn’t guarantee that Volpe, who is healthy, would start on Monday either.`\
+https://nytimes.com/athletic/6573199/2025/08/24/ny-yankees-anthony-volpe-benched/
+
 **Livestream Shows M.M.A. Fighter Raja Jackson Assaulting Pro Wrestler**\
 `The footage showed Mr. Jackson, son of the former UFC champion Quinton Jackson, punching the wrestler Stuart Smith at least 20 times.`\
 https://nytimes.com/2025/08/24/us/raja-jackson-wrestler-assault.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/24/science/spacex-starship-launch.html
 **In Washington Crackdown, Making a Federal Case Out of Low-Level Arrests**\
 `A single afternoon in court illustrated the new ways in which laws are being enforced after President Trump’s takeover of the city’s police.`\
 https://nytimes.com/2025/08/24/us/politics/trump-dc-crime-takeover-federal-court.html
-
-**‘Seven Scenes’ Review: Push-Pull Pieces Lacking Connective Tissue**\
-`A tempestuous new work by the choreographers Bobbi Jene Smith and Or Schraiber debuts at Little Island.`\
-https://nytimes.com/2025/08/24/arts/dance/seven-scenes-review.html
 
