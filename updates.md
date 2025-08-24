@@ -1,3 +1,7 @@
+**In Washington Crackdown, Making a Federal Case Out of Low-Level Arrests**\
+`A single afternoon in court illustrated the new ways in which laws are being enforced after President Trump’s takeover of the city’s police.`\
+https://nytimes.com/2025/08/24/us/politics/trump-dc-crime-takeover-federal-court.html
+
 **Arrestees in Trump’s Crackdown Emerge in Federal Court**\
 `A single afternoon in federal court in Washington underscored the array of government resources dedicated to fighting street crime and the new ways in which laws are being enforced.`\
 https://nytimes.com/2025/08/24/us/politics/trump-dc-crime-takeover-federal-court.html
