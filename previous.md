@@ -1,3 +1,7 @@
+**Shade of Green**\
+`Ryan Mathiason keeps us on edge.`\
+https://nytimes.com/2025/08/24/crosswords/daily-puzzle-2025-08-25.html
+
 **Fleetwood claims Tour Championship for a dramatic first PGA Tour win**\
 `Fleetwood had 30 top-five finishes in 164 PGA Tour starts, but now he has a win.`\
 https://nytimes.com/athletic/6573108/2025/08/24/tour-championship-2025-tommy-fleetwood-win-pga-tour/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/24/arts/dance/seven-scenes-review.html
 **Avery Johnson's father, brother apologize for fight after ISU game**\
 `Mark and Anthony Johnson were seen on video fighting one another outside of Dublin’s Aviva Stadium after Kansas State's loss.`\
 https://nytimes.com/athletic/6572880/2025/08/24/avery-johnson-family-fight-kansas-state/
-
-**NASCAR Daytona takeaways: A thrilling throwback, playoff predictions and more**\
-`The regular-season finale at Daytona delivered a race that felt almost too good to be true. Plus, our playoff predictions and more.`\
-https://nytimes.com/athletic/6572407/2025/08/24/nascar-daytona-takeaways-playoff-predictions/
 

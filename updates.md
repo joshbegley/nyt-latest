@@ -1,3 +1,7 @@
+**Shade of Green**\
+`Ryan Mathiason keeps us on edge.`\
+https://nytimes.com/2025/08/24/crosswords/daily-puzzle-2025-08-25.html
+
 **Fleetwood claims Tour Championship for a dramatic first PGA Tour win**\
 `Fleetwood had 30 top-five finishes in 164 PGA Tour starts, but now he has a win.`\
 https://nytimes.com/athletic/6573108/2025/08/24/tour-championship-2025-tommy-fleetwood-win-pga-tour/
