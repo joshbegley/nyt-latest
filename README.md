@@ -3,7 +3,7 @@
 https://nytimes.com/athletic/6571449/2025/08/23/detroit-lions-roster-projection-hendon-hooker/
 
 **Yankees say they must 'play better' after Red Sox laugher. But why should you believe it?**\
-`Saturday’s defeat was the Yankees' eighth loss in nine games against the Red Sox this season.`\
+`Saturday's defeat was the Yankees' eighth loss in nine games against the Red Sox this season.`\
 https://nytimes.com/athletic/6571628/2025/08/23/yankees-red-sox-rout-aaron-judge/
 
 **Garrett Crochet continues to shut down Yankees, making strong case for AL Cy Young**\
