@@ -1,3 +1,7 @@
+**Has Scottie Scheffler opened the door at the Tour Championship?**\
+`The best player on the PGA Tour is four shots off the lead at the season-ending Tour Championship.`\
+https://nytimes.com/athletic/6571732/2025/08/23/tour-championship-round-3-scottie-scheffler/
+
 **Seahawks' final roster projection: Uncertainty at wide receiver and with OL depth**\
 `The Seahawks still have some big decisions to make before Tuesday when final cuts are due.`\
 https://nytimes.com/athletic/6568806/2025/08/23/seahawks-roster-53-man-roster-projection-2025/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6571274/2025/08/23/reliever-of-the-year-award-bbwaa
 **New MLB award: BBWAA to start honoring relief pitcher of the year in 2026**\
 `This is the first new honor awarded by the BBWAA since the Manager of the Year was introduced in 1983.`\
 https://nytimes.com/athletic/6571214/2025/08/23/mlb-relief-pitcher-of-the-year-award/
-
-**Bengals' 53-man roster, depth chart projection: Help wanted on offensive, defensive lines**\
-`The Bengals' roster must be trimmed to 53 by Tuesday evening, but the changes will keep coming after that.`\
-https://nytimes.com/athletic/6571384/2025/08/23/bengals-roster-projection-depth-chart-53/
 

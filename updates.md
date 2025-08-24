@@ -1,3 +1,7 @@
+**Has Scottie Scheffler opened the door at the Tour Championship?**\
+`The best player on the PGA Tour is four shots off the lead at the season-ending Tour Championship.`\
+https://nytimes.com/athletic/6571732/2025/08/23/tour-championship-round-3-scottie-scheffler/
+
 **Seahawks' final roster projection: Uncertainty at wide receiver and with OL depth**\
 `The Seahawks still have some big decisions to make before Tuesday when final cuts are due.`\
 https://nytimes.com/athletic/6568806/2025/08/23/seahawks-roster-53-man-roster-projection-2025/
