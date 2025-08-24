@@ -1,40 +1,40 @@
+**How tennis rankings actually work with world No. 1 spots on the line at U.S. Open**\
+`The men's and women's tennis tours use similar methodologies when ranking players. Here's how the rankings are put together`\
+https://nytimes.com/athletic/5847687/2025/08/24/tennis-rankings-how-players-ranked-atp-wta-explained/
+
+**The Tigers bullpen is leaning into a new version of chaos down the stretch**\
+`With a series of transactions and creative bullpen usage, the Tigers have won nine of 10 and reclaimed the AL's best record.`\
+https://nytimes.com/athletic/6571782/2025/08/24/tigers-bullpen-kyle-finnegan-will-vest/
+
+**Is USC football — finally aligned and committed — poised to return to national prominence?**\
+`“Everyone knows the potential of USC,” Trojans GM Chad Bowden said earlier this month. “I think they understand the giant’s awake now.”`\
+https://nytimes.com/athletic/6566847/2025/08/24/usc-football-2025-nil-lincoln-riley/
+
+**How ChatGPT Surprised Me**\
+`What if we come to love and depend on the A.I.s — if we prefer them in many cases to our fellow humans?`\
+https://nytimes.com/2025/08/24/opinion/chat-gpt5-open-ai-future.html
+
+**What to Make for Breakfast in Kyiv**\
+`When Donald Trump and Vladimir Putin are looking at maps of Ukraine and deciding which parts Russia should have, it’s time to make waffles.`\
+https://nytimes.com/2025/08/24/opinion/ukraine-putin-trump-waffles.html
+
+**What Is Gen Z So Nostalgic for?**\
+`Longing for the past can be good news for the future.`\
+https://nytimes.com/2025/08/24/opinion/gen-z-technology-nostalgia.html
+
+**Why there's never enough money in college sports**\
+`The pay scale for coaches has exploded across college sports, but coaching salaries are just part of the spending problem.`\
+https://nytimes.com/athletic/6567247/2025/08/24/college-sports-athletic-department-spending-buyouts/
+
+**Command issues surface in Mick Abel's Twins debut as White Sox strike for 6 runs**\
+`Abel allowed six earned runs and seven hits in three innings with two walks and two strikeouts in a 7-3 loss to the White Sox.`\
+https://nytimes.com/athletic/6571803/2025/08/24/mick-abel-twins-debut-white-sox/
+
+**Wordle Review No. 1,528**\
+`Scroll down for hints and conversation about the puzzle for Monday, Aug. 25, 2025.`\
+https://nytimes.com/2025/08/24/crosswords/wordle-review-1528.html
+
 **America First? Not When It Comes to Your Health.**\
 `They hoped to make tomorrow’s medicines. Then came Trump.`\
-https://nytimes.com/video/opinion/100000010337256/trump-defunding-medical-research.html
-
-**The New York Times International Edition in Print for Monday, Aug. 25, 2025**\
-``\
-https://nytimes.com/issue/todaysinyt/2025/08/24/todays-new-york-times-international-edition
-
-**How the best American women's tennis players rose to the top of Grand Slams and the sport**\
-`The top of women's tennis is filled with U.S. players. That's no accident.`\
-https://nytimes.com/athletic/6564063/2025/08/24/tennis-wta-best-american-players-gauff-keys/
-
-**The Ideal Moving Day Meal, Updated for the Online Era**\
-`First-time home buyers are commemorating their purchases by sharing images of a new home staple, takeout pizza, online.`\
-https://nytimes.com/2025/08/24/realestate/pizza-box-moving-home-apartment.html
-
-**When the Gilded Age Went Mad for Mars**\
-`Life on the red planet? “Bosh and nonsense,” said one astronomer. But according to “The Martians,” plenty of self-appointed experts argued otherwise.`\
-https://nytimes.com/2025/08/24/books/review/the-martians-david-baron.html
-
-**Why the Donbas Is the Key to the Ukraine War**\
-`Talks of a cease-fire in Ukraine have centered on the Donbas, a valued region for both sides and where most of the fighting is taking place.`\
-https://nytimes.com/video/world/europe/100000010350283/why-the-donbas-is-the-key-to-the-ukraine-war.html
-
-**Pete Townshend and Roger Daltrey on Rock ’n’ Roll Swindles and the Who’s Future**\
-`The guitarist and frontman chat about their fraught partnership, earliest goals and (possibly) final shows on the road.`\
-https://nytimes.com/2025/08/24/arts/music/who-pete-townshend-roger-daltrey-interview.html
-
-**A New Kind of Fighting Man**\
-`What happens when the Ultimate Fighting Championship’s hottest prospect doesn’t fit the sport’s hypermasculine mold?`\
-https://nytimes.com/2025/08/24/style/payton-talbott-ufc.html
-
-**Help! My Terrible Ex-Employee Wants Advice on Her Job Search.**\
-`Plus, what to do when your boss is hitting on your boyfriend.`\
-https://nytimes.com/2025/08/24/business/former-employee-job-search-advice.html
-
-**How a Ritzy L.A. Enclave Learned a Bitter Lesson About the Limits of Its Wealth**\
-`Calabasas residents thought it would be easy to keep wildfire ash from being trucked to their local landfill. They were wrong.`\
-https://nytimes.com/2025/08/24/magazine/landfill-calabasas-los-angeles-wildfire-ash.html
+https://nytimes.com/2025/08/24/opinion/trump-defunding-medical-research.html
 
