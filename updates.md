@@ -1,3 +1,5 @@
+
+
 **‘Seven Scenes’ Review: Push-Pull Pieces Lacking Connective Tissue**\
 `A tempestuous new work by the choreographers Bobbi Jene Smith and Or Schraiber debuts at Little Island.`\
 https://nytimes.com/2025/08/24/arts/dance/seven-scenes-review.html
