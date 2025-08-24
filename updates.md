@@ -1,3 +1,7 @@
+**Chinese Taipei dominates Nevada to win Little League World Series**\
+`Chinese-Taipei pitcher Lin Chin-Tse threw a gem on the mound for Taiwan, holding Nevada to just one hit.`\
+https://nytimes.com/athletic/6572975/2025/08/24/little-league-world-series-nevada-taipei-results-2025/
+
 **Monday Briefing: Would Ukraine Give Up the Donbas?**\
 `Also, the U.S. Open gets going.`\
 https://nytimes.com/2025/08/24/briefing/ukraine-donbas-russia-south-korea-trump.html

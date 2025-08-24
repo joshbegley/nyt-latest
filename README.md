@@ -10,8 +10,8 @@ https://nytimes.com/2025/08/24/briefing/ukraine-donbas-russia-south-korea-trump.
 `The docuseries will follow UNC and first-year coach Bill Belichick after a deal with HBO's "Hard Knocks" fell through in the spring.`\
 https://nytimes.com/athletic/6573009/2025/08/24/unc-football-documentary-hulu/
 
-**Mariners' Cal Raleigh hits his 48th homer, ties catcher home run record**\
-`Matching Perez's record is Raleigh's latest feat during an All-Star season.`\
+**Mariners' Cal Raleigh homers twice, sets catcher record with MLB-leading 49th HR**\
+`Breaking Salvador Perez's record is Raleigh's latest feat during an All-Star season.`\
 https://nytimes.com/athletic/6569698/2025/08/24/mlb-cal-raleigh-home-run-catcher-record/
 
 **SpaceX Prepares for Critical 10th Test Launch of Mars Rocket**\
