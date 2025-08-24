@@ -1,3 +1,7 @@
+**Mariners' Cal Raleigh homers twice, sets catcher record with MLB-leading 49th HR**\
+`Breaking Salvador Perez's record is Raleigh's latest feat during an All-Star season.`\
+https://nytimes.com/athletic/6569698/2025/08/24/mlb-cal-raleigh-home-run-catcher-record/
+
 **Chinese Taipei dominates Nevada to win Little League World Series**\
 `Chinese-Taipei pitcher Lin Chin-Tse threw a gem on the mound for Taiwan, holding Nevada to just one hit.`\
 https://nytimes.com/athletic/6572975/2025/08/24/little-league-world-series-nevada-taipei-results-2025/
