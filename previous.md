@@ -1,3 +1,11 @@
+**A pair of pass-rushers emerge: Five things we learned this week at Raiders training camp**\
+`Potential help for Maxx Crosby, plus the cornerback room continues to take shape.`\
+https://nytimes.com/athletic/6571874/2025/08/24/raiders-final-training-camp-practice-report/
+
+**Kings' top prospect Liam Greentree 'brings so much to the table'**\
+`The No. 26 pick in the 2024 draft took a big step last season, ranking among the highest scorers in the OHL and captaining a playoff team.`\
+https://nytimes.com/athletic/6567203/2025/08/24/kings-liam-greentree-prospect-spitfires/
+
 **Jerry Adler, Actor in ‘The Sopranos’ Who Found Success Late in Life, Dies at 96**\
 `After spending years in behind-the-scenes roles on Broadway, he enjoyed a late career transformation to become an actor in films and on television.`\
 https://nytimes.com/2025/08/24/arts/television/jerry-adler-dead.html
@@ -29,12 +37,4 @@ https://nytimes.com/interactive/2025/weather/kajiki-map-path-tracker.html
 **Lavrov seems to erase the notion that a Putin-Zelensky meeting is in the works.**\
 `In an interview NBC’s “Meet the Press” is set to broadcast an interview on Sunday morning with Foreign Minister Sergey V. Lavrov of Russia`\
 https://nytimes.com/live/2025/08/24/us/trump-news-updates/lavrov-seems-to-erase-the-notion-that-a-putin-zelensky-meeting-is-in-the-works
-
-**Trump Administration Live Updates: Russia’s Top Diplomat Says ‘No Meeting Planned’ Between Putin and Zelensky**\
-``\
-https://nytimes.com/live/2025/08/24/us/trump-news-updates
-
-**David Ketchum, Who Played the Cooped-Up Agent 13 on ‘Get Smart,’ Dies at 97**\
-`He was frequently crammed into airport lockers, popcorn machines and grandfather clocks as Agent 13, the long-suffering spy.`\
-https://nytimes.com/2025/08/24/arts/television/david-ketchum-dead.html
 

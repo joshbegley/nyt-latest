@@ -1,3 +1,7 @@
+**Humpy Wheeler, NASCAR’s Greatest Showman, Dies at 86**\
+`With fire-breathing robots and death-defying school-bus stunts, he brought spectacle to stock-car racing as the sport boomed in the 1970s and beyond.`\
+https://nytimes.com/2025/08/24/sports/autoracing/humpy-wheeler-dead.html
+
 **A pair of pass-rushers emerge: Five things we learned this week at Raiders training camp**\
 `Potential help for Maxx Crosby, plus the cornerback room continues to take shape.`\
 https://nytimes.com/athletic/6571874/2025/08/24/raiders-final-training-camp-practice-report/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6571861/2025/08/24/andrew-abbott-reds-worst-start/
 **Tracking Typhoon Kajiki**\
 `See the likely path and wind arrival times for Kajiki`\
 https://nytimes.com/interactive/2025/weather/kajiki-map-path-tracker.html
-
-**Lavrov seems to erase the notion that a Putin-Zelensky meeting is in the works.**\
-`In an interview NBC’s “Meet the Press” is set to broadcast an interview on Sunday morning with Foreign Minister Sergey V. Lavrov of Russia`\
-https://nytimes.com/live/2025/08/24/us/trump-news-updates/lavrov-seems-to-erase-the-notion-that-a-putin-zelensky-meeting-is-in-the-works
 
