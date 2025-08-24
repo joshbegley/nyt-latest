@@ -1,3 +1,7 @@
+**‘Seven Scenes’ Review: Push-Pull Pieces Lacking Connective Tissue**\
+`A tempestuous new work by the choreographers Bobbi Jene Smith and Or Schraiber debuts at Little Island.`\
+https://nytimes.com/2025/08/24/arts/dance/seven-scenes-review.html
+
 **Lionel Taylor, Elite Receiver in A.F.L.’s Early Days, Dies at 89**\
 `He caught 100 passes for the Denver Broncos in 1961, setting a record.  As a wide receivers coach, he helped the Pittsburgh Steelers win two Super Bowls.`\
 https://nytimes.com/2025/08/24/sports/football/lionel-taylor-dead.html

@@ -1,3 +1,7 @@
+**‘Seven Scenes’ Review: Push-Pull Pieces Lacking Connective Tissue**\
+`A tempestuous new work by the choreographers Bobbi Jene Smith and Or Schraiber debuts at Little Island.`\
+https://nytimes.com/2025/08/24/arts/dance/seven-scenes-review.html
+
 **Avery Johnson's father, brother apologize for fight after ISU game**\
 `Mark and Anthony Johnson were seen on video fighting one another outside of Dublin’s Aviva Stadium after Kansas State's loss.`\
 https://nytimes.com/athletic/6572880/2025/08/24/avery-johnson-family-fight-kansas-state/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6571967/2025/08/24/tottenham-beat-manchester-city-k
 **Alex Bowman's long, anxious night at Daytona: 'I owe Ryan Blaney 7 million beers'**\
 `After Alex Bowman wrecked early Saturday, he was left to sit and watch and hope. And then Ryan Blaney delivered him the ultimate gift.`\
 https://nytimes.com/athletic/6572614/2025/08/24/alex-bowman-daytona-playoffs-crash-ryan-blaney/
-
-**Sam Howell trade grades: How the Eagles and Vikings fared in backup QB deal**\
-`Philadelphia adds insurance with Tanner McKee out hurt while Minnesota signs Carson Wentz to fill Howell's spot.`\
-https://nytimes.com/athletic/6572634/2025/08/24/sam-howell-trade-grades-vikings-eagles/
 
