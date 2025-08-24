@@ -1,3 +1,7 @@
+**Phillies, Twins will face off in next year's Field of Dreams game**\
+`It will be the first time since 2022 that big-league baseball will be played in the iconic Iowa cornfield.`\
+https://nytimes.com/athletic/6572602/2025/08/24/phillies-twins-mlb-field-of-dreams-iowa/
+
 **FA to investigate Palace fans' Marinakis, Gibbs-White banner**\
 `The banner, which showed Marinakis holding a gun to Gibbs-White's head, was not broadcast in Sky Sports' coverage.`\
 https://nytimes.com/athletic/6572365/2025/08/24/marinakis-banner-palace-forest/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6571179/2025/08/24/edmonton-oilers-training-camp-at
 **A (Former) Critic’s Summer Cooking Notebook**\
 `How I’m cooking my chicken (in a versatile tinga de pollo), corn (sautéed in a skillet), tomatoes (softened with eggplant) and peppers (stuffed).`\
 https://nytimes.com/2025/08/24/dining/a-former-critics-summer-cooking-notebook.html
-
-**The Pulse: A sublime, sloppy start to college football**\
-`Welcome to The Pulse, The Athletic's daily sports newsletter.`\
-https://nytimes.com/athletic/6571895/2025/08/24/a-sloppy-superb-start-to-college-football-and-a-brutal-night-for-the-sanders-brothers/
 
