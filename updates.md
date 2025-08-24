@@ -1,3 +1,11 @@
+**Is Kyle Tucker back? The Cubs’ reset appears to be working as planned **\
+`After being benched against the Brewers, Tucker has rediscovered his ability to hunt certain pitches and launch those balls into the seats.`\
+https://nytimes.com/athletic/6571944/2025/08/24/kyle-tucker-cubs-reset-home-run/
+
+**Bay FC continue to push boundaries - a record-breaking crowd will only fuel the ambition**\
+`In taking the game against the Spirit to Oracle Park, Bay FC were ambitious in wanting a record crowd. Mission accomplished`\
+https://nytimes.com/athletic/6572028/2025/08/24/bay-fc-record-crowd-oracle-park/
+
 **Does Coventry 7 (xG 1.27) QPR 1 (0.61) prove expected goals is broken?**\
 `The Championship club's remarkable overperformance on Saturday raised questions about the xG model`\
 https://nytimes.com/athletic/6572050/2025/08/24/does-coventry-7-xg-1-27-qpr-1-0-61-prove-expected-goals-is-broken/

@@ -1,3 +1,7 @@
+**Jerry Adler, Actor in ‘The Sopranos’ Who Found Success Late in Life, Dies at 96**\
+`After spending years in behind-the-scenes roles on Broadway, he enjoyed a late career transformation to become an actor in films and on television.`\
+https://nytimes.com/2025/08/24/arts/television/jerry-adler-dead.html
+
 **Is Kyle Tucker back? The Cubs’ reset appears to be working as planned **\
 `After being benched against the Brewers, Tucker has rediscovered his ability to hunt certain pitches and launch those balls into the seats.`\
 https://nytimes.com/athletic/6571944/2025/08/24/kyle-tucker-cubs-reset-home-run/
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/08/24/us/trump-news-updates
 **David Ketchum, Who Played the Cooped-Up Agent 13 on ‘Get Smart,’ Dies at 97**\
 `He was frequently crammed into airport lockers, popcorn machines and grandfather clocks as Agent 13, the long-suffering spy.`\
 https://nytimes.com/2025/08/24/arts/television/david-ketchum-dead.html
-
-**Gripes and Grumbling at the Airport Lounge**\
-`Readers respond to a guest essay on the decline of a premium air travel perk. Also: When church and politics meet.`\
-https://nytimes.com/2025/08/24/opinion/airport-lounge-complaints.html
 
