@@ -1,3 +1,7 @@
+**A Muted Homecoming for Kilmar Abrego Garcia**\
+`Mr. Abrego Garcia, who was wrongfully deported to El Salvador, is keeping a low profile as his lawyers prepare to fight the Trump administration’s proposal to deport him to Uganda.`\
+https://nytimes.com/2025/08/23/us/kilmar-abrego-garcia-returns-home.html
+
 **Lions 53-man roster projection: Hendon Hooker's future in doubt, questions remain at edge**\
 `The Lions have one of the NFC's best rosters, but they'll have some difficult decisions to make in the coming days.`\
 https://nytimes.com/athletic/6571449/2025/08/23/detroit-lions-roster-projection-hendon-hooker/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6571384/2025/08/23/bengals-roster-projection-depth-
 **Oregon Wildfire Doubles to More Than 18,000 Acres in 24 Hours**\
 `More than 1,000 homes in Oregon were under some kind of evacuation because of the Flat fire, which was one of many wildfires burning in the West, amid hot weather.`\
 https://nytimes.com/2025/08/23/weather/flat-fire-oregon.html
-
-**Mixed Company**\
-`Michael Lieberman conglomerates his skills to make an extra clever puzzle.`\
-https://nytimes.com/2025/08/23/crosswords/daily-puzzle-2025-08-24.html
 

@@ -1,3 +1,7 @@
+**A Muted Homecoming for Kilmar Abrego Garcia**\
+`Mr. Abrego Garcia, who was wrongfully deported to El Salvador, is keeping a low profile as his lawyers prepare to fight the Trump administration’s proposal to deport him to Uganda.`\
+https://nytimes.com/2025/08/23/us/kilmar-abrego-garcia-returns-home.html
+
 **Lions 53-man roster projection: Hendon Hooker's future in doubt, questions remain at edge**\
 `The Lions have one of the NFC's best rosters, but they'll have some difficult decisions to make in the coming days.`\
 https://nytimes.com/athletic/6571449/2025/08/23/detroit-lions-roster-projection-hendon-hooker/
