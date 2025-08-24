@@ -23,7 +23,7 @@ https://nytimes.com/athletic/6564479/2025/08/24/fulham-1-manchester-united-1-bri
 https://nytimes.com/athletic/6572757/2025/08/24/submit-your-questions-for-jordan-bianchis-latest-nascar-mailbag/
 
 **Lionel Taylor, Elite Receiver in A.F.L.’s Early Days, Dies at 89**\
-`He caught 100 passes for the Denver Broncos in 1961, setting a record.  As a wide receivers coach, he helped the Buffalo Bills win two Super Bowls.`\
+`He caught 100 passes for the Denver Broncos in 1961, setting a record.  As a wide receivers coach, he helped the Pittsburgh Steelers win two Super Bowls.`\
 https://nytimes.com/2025/08/24/sports/football/lionel-taylor-dead.html
 
 **The Thomas Frank tactic that was crucial to Tottenham beating Manchester City**\
