@@ -1,3 +1,7 @@
+**SpaceX Prepares for Critical 10th Test Launch of Mars Rocket**\
+`After setbacks in its last three flight attempts, Elon Musk’s company has a lot riding on the latest trip of its Starship prototype.`\
+https://nytimes.com/2025/08/24/science/spacex-starship-launch.html
+
 **In Washington Crackdown, Making a Federal Case Out of Low-Level Arrests**\
 `A single afternoon in court illustrated the new ways in which laws are being enforced after President Trump’s takeover of the city’s police.`\
 https://nytimes.com/2025/08/24/us/politics/trump-dc-crime-takeover-federal-court.html

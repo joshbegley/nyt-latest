@@ -1,3 +1,7 @@
+**SpaceX Prepares for Critical 10th Test Launch of Mars Rocket**\
+`After setbacks in its last three flight attempts, Elon Musk’s company has a lot riding on the latest trip of its Starship prototype.`\
+https://nytimes.com/2025/08/24/science/spacex-starship-launch.html
+
 **In Washington Crackdown, Making a Federal Case Out of Low-Level Arrests**\
 `A single afternoon in court illustrated the new ways in which laws are being enforced after President Trump’s takeover of the city’s police.`\
 https://nytimes.com/2025/08/24/us/politics/trump-dc-crime-takeover-federal-court.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6572757/2025/08/24/submit-your-questions-for-jordan
 **Lionel Taylor, Elite Receiver in A.F.L.’s Early Days, Dies at 89**\
 `He caught 100 passes for the Denver Broncos in 1961, setting a record.  As a wide receivers coach, he helped the Pittsburgh Steelers win two Super Bowls.`\
 https://nytimes.com/2025/08/24/sports/football/lionel-taylor-dead.html
-
-**The Thomas Frank tactic that was crucial to Tottenham beating Manchester City**\
-`Tottenham's goals against Manchester City represented two key features of their new manager’s attacking principles`\
-https://nytimes.com/athletic/6571967/2025/08/24/tottenham-beat-manchester-city-key-tactic-thomas-frank/
 
