@@ -1,3 +1,7 @@
+**Phillies, Twins will face off in next year's Field of Dreams game**\
+`It will be the first time since 2022 that big-league baseball will be played in the iconic Iowa cornfield.`\
+https://nytimes.com/athletic/6572602/2025/08/24/phillies-twins-mlb-field-of-dreams-iowa/
+
 **FA to investigate Palace fans' Marinakis, Gibbs-White banner**\
 `The banner, which showed Marinakis holding a gun to Gibbs-White's head, was not broadcast in Sky Sports' coverage.`\
 https://nytimes.com/athletic/6572365/2025/08/24/marinakis-banner-palace-forest/
