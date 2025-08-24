@@ -1,3 +1,7 @@
+**America First? Not When It Comes to Your Health.**\
+`They hoped to make tomorrow’s medicines. Then came Trump.`\
+https://nytimes.com/video/opinion/100000010337256/trump-defunding-medical-research.html
+
 **The New York Times International Edition in Print for Monday, Aug. 25, 2025**\
 ``\
 https://nytimes.com/issue/todaysinyt/2025/08/24/todays-new-york-times-international-edition
