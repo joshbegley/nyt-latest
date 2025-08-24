@@ -1,3 +1,11 @@
+**Leeds and Valencia negotiating loan deal for Ramazani**\
+`The 24-year-old started just once in the Championship between October 23 last year and the end of the campaign.`\
+https://nytimes.com/athletic/6572020/2025/08/24/largie-ramazani-leeds-united-valencia-loan/
+
+**Revealing Taste**\
+`A clever leak exposed the music habits of some famous people — and two Times journalists.`\
+https://nytimes.com/2025/08/24/briefing/revealing-taste.html
+
 **The best matches of U.S. Open day 1, from Sabalenka and Raducanu to Djokovic and Fritz**\
 `The best matches on the first day of the 2025 U.S. Open, including last year's singles finalists and one defending champion.`\
 https://nytimes.com/athletic/6571634/2025/08/24/tennis-us-open-day-1-matches-schedule/
