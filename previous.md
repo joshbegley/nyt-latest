@@ -1,3 +1,7 @@
+**Chargers 53-man roster prediction: Expect some roster churn on the offensive line**\
+`Rashawn Slater's injury threw a wrench into the Chargers' plans and they will likely make more moves after Tuesday's 53-man roster deadline.`\
+https://nytimes.com/athletic/6571532/2025/08/23/chargers-final-53-man-roster-prediction/
+
 **Ryan Blaney wins 'wild' NASCAR regular-season finale, Cup Series playoffs set**\
 `Blaney went from 13th place to the win in the final two laps at Daytona as the Cup Series locked in its 16-driver playoff field.`\
 https://nytimes.com/athletic/6571839/2025/08/23/nascar-ryan-blaney-cup-series-playoff/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6571628/2025/08/23/yankees-red-sox-rout-aaron-judge
 **Garrett Crochet continues to shut down Yankees, making strong case for AL Cy Young**\
 `Crochet held the Yankees to one run on five hits and a walk, striking out 11 in a 12-1 win for the Red Sox.`\
 https://nytimes.com/athletic/6571621/2025/08/23/garrett-crochet-red-sox-yankees-cy-young/
-
-**Browns 53-man projection: Four quarterbacks make initial roster**\
-`Cleveland makes the tough decision to keep all four of its QBs who competed this summer in our 53-man roster projection. `\
-https://nytimes.com/athletic/6571574/2025/08/23/browns-53-man-roster-projection-2025/
 

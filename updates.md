@@ -1,3 +1,7 @@
+**Chargers 53-man roster prediction: Expect some roster churn on the offensive line**\
+`Rashawn Slater's injury threw a wrench into the Chargers' plans and they will likely make more moves after Tuesday's 53-man roster deadline.`\
+https://nytimes.com/athletic/6571532/2025/08/23/chargers-final-53-man-roster-prediction/
+
 **Ryan Blaney wins 'wild' NASCAR regular-season finale, Cup Series playoffs set**\
 `Blaney went from 13th place to the win in the final two laps at Daytona as the Cup Series locked in its 16-driver playoff field.`\
 https://nytimes.com/athletic/6571839/2025/08/23/nascar-ryan-blaney-cup-series-playoff/
