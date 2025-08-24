@@ -1,3 +1,7 @@
+**China’s Tropical Resort Island Orders Evacuations as Typhoon Kajiki Nears**\
+`Officials on Hainan Island, China’s only tropical beach destination, halted public transportation. Businesses were closed in Sanya, a popular resort city on the island.`\
+https://nytimes.com/2025/08/24/world/asia/typhoon-kajiki-china-sanya.html
+
 **Arsenal agree deal for Shamrock Rovers midfielder Ozhianvuna, 16**\
 `The transfer is expected to constitute an Irish record.`\
 https://nytimes.com/athletic/6571181/2025/08/24/victor-ozhianvuna-arsenal-transfer/

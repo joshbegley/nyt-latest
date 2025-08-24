@@ -1,3 +1,7 @@
+**China’s Tropical Resort Island Orders Evacuations as Typhoon Kajiki Nears**\
+`Officials on Hainan Island, China’s only tropical beach destination, halted public transportation. Businesses were closed in Sanya, a popular resort city on the island.`\
+https://nytimes.com/2025/08/24/world/asia/typhoon-kajiki-china-sanya.html
+
 **Arsenal agree deal for Shamrock Rovers midfielder Ozhianvuna, 16**\
 `The transfer is expected to constitute an Irish record.`\
 https://nytimes.com/athletic/6571181/2025/08/24/victor-ozhianvuna-arsenal-transfer/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6571746/2025/08/24/michael-jordan-kobe-bryant-recor
 **The Dodgers offense is struggling to make adjustments and scuffling at the wrong time**\
 `Modifications are required but have not come often enough as a lineup of future Hall of Famers has produced runs at a mediocre rate for L.A.`\
 https://nytimes.com/athletic/6571904/2025/08/24/dodgers-lose-padres-offense-no-offense/
-
-**UC Davis-Mercer game declared no contest after weather delay**\
-`UC Davis was leading 23-17 with 7:46 left until rain and lightning sent the game into a delay. It was eventually called off.`\
-https://nytimes.com/athletic/6571919/2025/08/24/uc-davis-mercer-no-contest-delay/
 
