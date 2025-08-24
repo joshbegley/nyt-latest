@@ -1,3 +1,7 @@
+**Zelensky Marks Independence Day With Diplomacy in Kyiv and a Plea for Peace**\
+`The Ukrainian leader held talks with Prime Minister Mark Carney of Canada and was set to meet with President Trump’s envoy, Keith Kellogg, amid continuing diplomatic efforts to end the war.`\
+https://nytimes.com/2025/08/24/world/europe/zelensky-ukraine-independence-day.html
+
 **How tennis rankings actually work with world No. 1 spots on the line at U.S. Open**\
 `The men's and women's tennis tours use similar methodologies when ranking players. Here's how the rankings are put together`\
 https://nytimes.com/athletic/5847687/2025/08/24/tennis-rankings-how-players-ranked-atp-wta-explained/
