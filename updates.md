@@ -1,3 +1,19 @@
+**Newcastle-Liverpool predictions: How will both sides respond to Alexander Isak drama?**\
+`Our writers discuss the key talking points ahead of what promises to be a fiery fixture at St James' Park`\
+https://nytimes.com/athletic/6569321/2025/08/24/newcastle-liverpool-isak-predictions/
+
+**49ers final roster projection: Skyy Moore, Brian Robinson knock others off bubble**\
+`How will the 49ers hold onto Sebastian Valdez and other promising youngsters? Look for plenty of roster maneuvering over the next week.`\
+https://nytimes.com/athletic/6568194/2025/08/24/49ers-roster-53-man-projection-preseason/
+
+**Premier League clubs face £100m black hole left by betting sponsors – who will fill it?**\
+`This is the last season PL clubs will be allowed gambling sponsors on the front of playing shirts – where will they go next?`\
+https://nytimes.com/athletic/6562065/2025/08/24/premier-league-clubs-gambling-sponsorship/
+
+**Global kits rated: The best and the worst outside of the Premier League**\
+`Not a fan of Premier League kits? No problem, we've found you some of the best - and worst - of the rest from around the globe...`\
+https://nytimes.com/athletic/6551174/2025/08/24/global-kits-rated-the-best-and-the-worst-outside-of-the-premier-league/
+
 **How Brazil won the 1970 World Cup: Pele's return, a fearsome front five - but 'an incompetent goalkeeper'**\
 `Pele returned to the Brazil ranks to help Mario Zagallo and the country make history in Mexico. They were an outstanding team`\
 https://nytimes.com/athletic/6567329/2025/08/24/how-brazil-won-the-1970-world-cup-peles-return-a-fearsome-front-five-but-an-incompetent-goalkeeper/
