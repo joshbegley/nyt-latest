@@ -1,3 +1,7 @@
+**Seahawks' final roster projection: Uncertainty at wide receiver and with OL depth**\
+`The Seahawks still have some big decisions to make before Tuesday when final cuts are due.`\
+https://nytimes.com/athletic/6568806/2025/08/23/seahawks-roster-53-man-roster-projection-2025/
+
 **A Muted Homecoming for Kilmar Abrego Garcia**\
 `Mr. Abrego Garcia, who was wrongfully deported to El Salvador, is keeping a low profile as his lawyers prepare to fight the Trump administration’s proposal to deport him to Uganda.`\
 https://nytimes.com/2025/08/23/us/kilmar-abrego-garcia-returns-home.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6571214/2025/08/23/mlb-relief-pitcher-of-the-year-a
 **Bengals' 53-man roster, depth chart projection: Help wanted on offensive, defensive lines**\
 `The Bengals' roster must be trimmed to 53 by Tuesday evening, but the changes will keep coming after that.`\
 https://nytimes.com/athletic/6571384/2025/08/23/bengals-roster-projection-depth-chart-53/
-
-**Oregon Wildfire Doubles to More Than 18,000 Acres in 24 Hours**\
-`More than 1,000 homes in Oregon were under some kind of evacuation because of the Flat fire, which was one of many wildfires burning in the West, amid hot weather.`\
-https://nytimes.com/2025/08/23/weather/flat-fire-oregon.html
 
