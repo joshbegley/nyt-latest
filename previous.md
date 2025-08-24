@@ -1,3 +1,15 @@
+**With Frank's press working, do Tottenham need a creative No 10 against top sides?**\
+`Thomas Frank clearly wants a playmaker for Tottenham, but his team’s forward press is another great way of making chances…`\
+https://nytimes.com/athletic/6571172/2025/08/24/tottenham-manchester-city-premier-league-result/
+
+**City's aggressive offside trap failed against Tottenham - and shows how precarious it can be**\
+`Manchester City are attempting to play a high defensive line.... but there are teething problems, and it showed against Tottenham`\
+https://nytimes.com/athletic/6570997/2025/08/24/manchester-city-tottenham-premier-league-offside-trap/
+
+**Four problems Wolves must address in the transfer window and beyond**\
+`To ensure they don't suffer a worse fate this season, Pereira and the club have some big problems to rectify before the window closes`\
+https://nytimes.com/athletic/6571287/2025/08/24/four-wolves-problems-bournemouth-defeat/
+
 **Newcastle-Liverpool predictions: How will both sides respond to Alexander Isak drama?**\
 `Our writers discuss the key talking points ahead of what promises to be a fiery fixture at St James' Park`\
 https://nytimes.com/athletic/6569321/2025/08/24/newcastle-liverpool-isak-predictions/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6561186/2025/08/24/alexander-isak-physical-impact-t
 **Peace Talks in Ukraine All Lead to the Donbas**\
 `The contested region is where Russia’s war in Ukraine began a decade ago. Scores of Ukrainian soldiers have died defending it. Would Ukraine give it up now?`\
 https://nytimes.com/2025/08/24/world/europe/russia-ukraine-donbas-peace-talks-putin-trump-zelensky.html
-
-**Quote of the Day: Stephanie Shirley, 91, Tech Pioneer Who Hired Women**\
-`Quotation of the Day for Sunday, August 24, 2025.`\
-https://nytimes.com/2025/08/24/pageoneplus/quote-of-the-day-stephanie-shirley-91-tech-pioneer-who-hired-women.html
-
-**As South Korea’s Leader Meets With Trump, China Looms Large**\
-`Washington’s increasing focus on Beijing is straining the decades-old alliance between South Korea and the United States.`\
-https://nytimes.com/2025/08/24/world/asia/as-south-koreas-leader-meets-with-trump-china-looms-large.html
-
-**The War in Israel Over Serving in War**\
-`Ultra-Orthodox Israelis, exempt for decades from military service, are now being drafted. Their rage is dividing Israel and threatening Prime Minister Benjamin Netanyahu’s coalition.`\
-https://nytimes.com/2025/08/24/world/middleeast/israel-gaza-ultra-orthodox.html
 

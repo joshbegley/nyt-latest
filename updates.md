@@ -1,3 +1,15 @@
+**With Frank's press working, do Tottenham need a creative No 10 against top sides?**\
+`Thomas Frank clearly wants a playmaker for Tottenham, but his team’s forward press is another great way of making chances…`\
+https://nytimes.com/athletic/6571172/2025/08/24/tottenham-manchester-city-premier-league-result/
+
+**City's aggressive offside trap failed against Tottenham - and shows how precarious it can be**\
+`Manchester City are attempting to play a high defensive line.... but there are teething problems, and it showed against Tottenham`\
+https://nytimes.com/athletic/6570997/2025/08/24/manchester-city-tottenham-premier-league-offside-trap/
+
+**Four problems Wolves must address in the transfer window and beyond**\
+`To ensure they don't suffer a worse fate this season, Pereira and the club have some big problems to rectify before the window closes`\
+https://nytimes.com/athletic/6571287/2025/08/24/four-wolves-problems-bournemouth-defeat/
+
 **Newcastle-Liverpool predictions: How will both sides respond to Alexander Isak drama?**\
 `Our writers discuss the key talking points ahead of what promises to be a fiery fixture at St James' Park`\
 https://nytimes.com/athletic/6569321/2025/08/24/newcastle-liverpool-isak-predictions/
