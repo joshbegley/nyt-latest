@@ -1,3 +1,7 @@
+**Chinese Taipei dominates Nevada to win Little League World Series**\
+`Chinese-Taipei pitcher Lin Chin-Tse threw a gem on the mound for Taiwan, holding Nevada to just one hit.`\
+https://nytimes.com/athletic/6572975/2025/08/24/little-league-world-series-nevada-taipei-results-2025/
+
 **Monday Briefing: Would Ukraine Give Up the Donbas?**\
 `Also, the U.S. Open gets going.`\
 https://nytimes.com/2025/08/24/briefing/ukraine-donbas-russia-south-korea-trump.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6572407/2025/08/24/nascar-daytona-takeaways-playoff
 **Democrats Criticize Trump’s Push for National Guard in More Cities**\
 `President Trump said he was considering sending troops to cities like Chicago, New York and Baltimore. State and local leaders say they have crime under control.`\
 https://nytimes.com/2025/08/24/us/politics/trump-national-guard-chicago-crime.html
-
-**Chiefs bringing back Derrick Nnadi in trade with Jets: Source**\
-`Nnadi returns to Kansas City, where he played for seven seasons after signing with the Jets as a free agent in March.`\
-https://nytimes.com/athletic/6572749/2025/08/24/derrick-nnadi-trade-chiefs-jets/
 
