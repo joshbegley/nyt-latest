@@ -1,3 +1,7 @@
+**NASCAR Daytona takeaways: A thrilling throwback, playoff predictions and more**\
+`The regular-season finale at Daytona delivered a race that felt almost too good to be true. Plus, our playoff predictions and more.`\
+https://nytimes.com/athletic/6572407/2025/08/24/nascar-daytona-takeaways-playoff-predictions/
+
 **NASCAR Daytona takeaways: A thrilling race, playoff predictions and more**\
 `The regular-season finale at Daytona delivered a race that felt almost too good to be true. Plus, our playoff predictions and more.`\
 https://nytimes.com/athletic/6572407/2025/08/24/nascar-daytona-takeaways-playoff-predictions/
