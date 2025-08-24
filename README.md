@@ -1,3 +1,11 @@
+**Submit your questions for Jordan Bianchi's latest NASCAR Mailbag**\
+`Have any questions about anything going on in the NASCAR world? Leave them in the comments below for Jordan Bianchi's next NASCAR Mailbag.`\
+https://nytimes.com/athletic/6572757/2025/08/24/submit-your-questions-for-jordan-bianchis-latest-nascar-mailbag/
+
+**Lionel Taylor, Elite Receiver in A.F.L.’s Early Days, Dies at 89**\
+`He caught 100 passes for the Denver Broncos in 1961, setting a record.  As a wide receivers coach, he helped the Buffalo Bills win two Super Bowls.`\
+https://nytimes.com/2025/08/24/sports/football/lionel-taylor-dead.html
+
 **The Thomas Frank tactic that was crucial to Tottenham beating Manchester City**\
 `Tottenham's goals against Manchester City represented two key features of their new manager’s attacking principles`\
 https://nytimes.com/athletic/6571967/2025/08/24/tottenham-beat-manchester-city-key-tactic-thomas-frank/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6572314/2025/08/24/everton-hill-dickinson-stadium-f
 **Annie Stainer, 79, Dies; Enigmatic Mime Who Performed With David Bowie**\
 `She later became a powerful solo artist in her own right, creating a dance trilogy steeped in myth and feminine archetypes.`\
 https://nytimes.com/2025/08/24/arts/dance/annie-stainer-dead.html
-
-**Trump’s Stunning Attack on Mail-In Ballots**\
-`The president and his allies should not be trusted to ensure the integrity of the vote.`\
-https://nytimes.com/2025/08/24/opinion/trump-voting-mail-in-ballots.html
-
-**Two Women Are Rescued From Hot Tub at Remote Cabin**\
-`Health issues prevented the women, who were in their 80s, from climbing out, officials said. They became unresponsive after overheating and developing hyperthermia.`\
-https://nytimes.com/2025/08/24/us/hot-tub-rescue.html
 
