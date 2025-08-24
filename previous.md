@@ -1,3 +1,7 @@
+**Arrestees in Trump’s Crackdown Emerge in Federal Court**\
+`A single afternoon in federal court in Washington underscored the array of government resources dedicated to fighting street crime and the new ways in which laws are being enforced.`\
+https://nytimes.com/2025/08/24/us/politics/trump-dc-crime-takeover-federal-court.html
+
 **‘Seven Scenes’ Review: Push-Pull Pieces Lacking Connective Tissue**\
 `A tempestuous new work by the choreographers Bobbi Jene Smith and Or Schraiber debuts at Little Island.`\
 https://nytimes.com/2025/08/24/arts/dance/seven-scenes-review.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/24/sports/football/lionel-taylor-dead.html
 **The Thomas Frank tactic that was crucial to Tottenham beating Manchester City**\
 `Tottenham's goals against Manchester City represented two key features of their new manager’s attacking principles`\
 https://nytimes.com/athletic/6571967/2025/08/24/tottenham-beat-manchester-city-key-tactic-thomas-frank/
-
-**Alex Bowman's long, anxious night at Daytona: 'I owe Ryan Blaney 7 million beers'**\
-`After Alex Bowman wrecked early Saturday, he was left to sit and watch and hope. And then Ryan Blaney delivered him the ultimate gift.`\
-https://nytimes.com/athletic/6572614/2025/08/24/alex-bowman-daytona-playoffs-crash-ryan-blaney/
 

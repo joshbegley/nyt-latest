@@ -1,3 +1,7 @@
+**Arrestees in Trump’s Crackdown Emerge in Federal Court**\
+`A single afternoon in federal court in Washington underscored the array of government resources dedicated to fighting street crime and the new ways in which laws are being enforced.`\
+https://nytimes.com/2025/08/24/us/politics/trump-dc-crime-takeover-federal-court.html
+
 **‘Seven Scenes’ Review: Push-Pull Pieces Lacking Connective Tissue**\
 `A tempestuous new work by the choreographers Bobbi Jene Smith and Or Schraiber debuts at Little Island.`\
 https://nytimes.com/2025/08/24/arts/dance/seven-scenes-review.html
