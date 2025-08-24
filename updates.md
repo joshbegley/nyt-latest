@@ -1,3 +1,5 @@
+
+
 **UNC football docuseries coming to Hulu this fall**\
 `The docuseries will follow UNC and first-year coach Bill Belichick after a deal with HBO's "Hard Knocks" fell through in the spring.`\
 https://nytimes.com/athletic/6573009/2025/08/24/unc-football-documentary-hulu/
