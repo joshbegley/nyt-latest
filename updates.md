@@ -1,3 +1,7 @@
+**Vikings signing QB Carson Wentz, trading Sam Howell to Eagles: Sources**\
+`The move comes one day after Wentz worked out with the Vikings, raising questions about the team's depth chart at QB.`\
+https://nytimes.com/athletic/6572335/2025/08/24/vikings-carson-wentz-sam-howell-trade-signing/
+
 **Humpy Wheeler, NASCAR’s Greatest Showman, Dies at 86**\
 `With fire-breathing robots and death-defying school-bus stunts, he brought spectacle to stock-car racing as the sport boomed in the 1970s and beyond.`\
 https://nytimes.com/2025/08/24/sports/autoracing/humpy-wheeler-dead.html

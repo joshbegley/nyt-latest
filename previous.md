@@ -1,3 +1,7 @@
+**Vikings signing QB Carson Wentz, trading Sam Howell to Eagles: Sources**\
+`The move comes one day after Wentz worked out with the Vikings, raising questions about the team's depth chart at QB.`\
+https://nytimes.com/athletic/6572335/2025/08/24/vikings-carson-wentz-sam-howell-trade-signing/
+
 **Humpy Wheeler, NASCAR’s Greatest Showman, Dies at 86**\
 `With fire-breathing robots and death-defying school-bus stunts, he brought spectacle to stock-car racing as the sport boomed in the 1970s and beyond.`\
 https://nytimes.com/2025/08/24/sports/autoracing/humpy-wheeler-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6572159/2025/08/24/nuno-edu-nottingham-forest-rift-
 **Andrew Abbott's worst start of the year comes at a bad time for the Reds**\
 `Abbott went four innings in a 10-1 loss Saturday. Coupled with a Mets victory, the Reds are now 2 1/2 games back for the last NL wild card.`\
 https://nytimes.com/athletic/6571861/2025/08/24/andrew-abbott-reds-worst-start/
-
-**Tracking Typhoon Kajiki**\
-`See the likely path and wind arrival times for Kajiki`\
-https://nytimes.com/interactive/2025/weather/kajiki-map-path-tracker.html
 
