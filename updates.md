@@ -1,3 +1,7 @@
+**Lionel Taylor, Elite Receiver in A.F.L.’s Early Days, Dies at 89**\
+`He caught 100 passes for the Denver Broncos in 1961, setting a record.  As a wide receivers coach, he helped the Pittsburgh Steelers win two Super Bowls.`\
+https://nytimes.com/2025/08/24/sports/football/lionel-taylor-dead.html
+
 **Avery Johnson's father, brother apologize for fight after ISU game**\
 `Mark and Anthony Johnson were seen on video fighting one another outside of Dublin’s Aviva Stadium after Kansas State's loss.`\
 https://nytimes.com/athletic/6572880/2025/08/24/avery-johnson-family-fight-kansas-state/
