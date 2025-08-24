@@ -1,3 +1,11 @@
+**'I just need to step up': Phillies need more of vintage Aaron Nola**\
+`Philadelphia needs a righty for its hypothetical postseason rotation, which as of now would feature three lefties.`\
+https://nytimes.com/athletic/6571788/2025/08/23/aaron-nola-phillies-pitching-zack-wheeler/
+
+**Shilo Sanders ejected after throwing punch at Bills TE Zach Davidson**\
+`In Sanders' last year at Colorado, he was ejected just before halftime against UCLA for a targeting penalty.`\
+https://nytimes.com/athletic/6571799/2025/08/23/buccaneers-shilo-sanders-ejected-preseason/
+
 **Has Scottie Scheffler opened the door at the Tour Championship?**\
 `The best player on the PGA Tour is four shots off the lead at the season-ending Tour Championship.`\
 https://nytimes.com/athletic/6571732/2025/08/23/tour-championship-round-3-scottie-scheffler/

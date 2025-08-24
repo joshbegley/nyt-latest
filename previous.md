@@ -1,3 +1,11 @@
+**'I just need to step up': Phillies need more of vintage Aaron Nola**\
+`Philadelphia needs a righty for its hypothetical postseason rotation, which as of now would feature three lefties.`\
+https://nytimes.com/athletic/6571788/2025/08/23/aaron-nola-phillies-pitching-zack-wheeler/
+
+**Shilo Sanders ejected after throwing punch at Bills TE Zach Davidson**\
+`In Sanders' last year at Colorado, he was ejected just before halftime against UCLA for a targeting penalty.`\
+https://nytimes.com/athletic/6571799/2025/08/23/buccaneers-shilo-sanders-ejected-preseason/
+
 **Has Scottie Scheffler opened the door at the Tour Championship?**\
 `The best player on the PGA Tour is four shots off the lead at the season-ending Tour Championship.`\
 https://nytimes.com/athletic/6571732/2025/08/23/tour-championship-round-3-scottie-scheffler/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6571574/2025/08/23/browns-53-man-roster-projection-
 **Packers 53-man roster projection: Close calls at wide receiver, linebacker, cornerback**\
 `Could the Packers release both Mecole Hardman and Isaiah Simmons? The pair of veterans might be on the outside looking in come Tuesday.`\
 https://nytimes.com/athletic/6571410/2025/08/23/packers-roster-projection-preseason-mecole-hardman/
-
-**It's about time — why the BBWAA created a Reliever of the Year award**\
-`The Baseball Writers' Association of America will vote on the game's best relievers each season. Here's why this honor is long overdue.`\
-https://nytimes.com/athletic/6571274/2025/08/23/reliever-of-the-year-award-bbwaa/
-
-**New MLB award: BBWAA to start honoring relief pitcher of the year in 2026**\
-`This is the first new honor awarded by the BBWAA since the Manager of the Year was introduced in 1983.`\
-https://nytimes.com/athletic/6571214/2025/08/23/mlb-relief-pitcher-of-the-year-award/
 
