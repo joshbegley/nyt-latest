@@ -1,3 +1,7 @@
+**Livestream Shows M.M.A. Fighter Raja Jackson Assaulting Pro Wrestler**\
+`The footage showed Mr. Jackson, son of the former UFC champion Quinton Jackson, punching the wrestler Stuart Smith at least 20 times.`\
+https://nytimes.com/2025/08/24/us/raja-jackson-wrestler-assault.html
+
 **Shade of Green**\
 `Ryan Mathiason keeps us on edge.`\
 https://nytimes.com/2025/08/24/crosswords/daily-puzzle-2025-08-25.html
