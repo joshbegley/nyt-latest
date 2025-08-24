@@ -1,3 +1,7 @@
+**Aidan O'Connell, Raiders backup QB, fractures wrist in preseason finale**\
+`O'Connell was set to be Geno Smith's top backup this season.`\
+https://nytimes.com/athletic/6572126/2025/08/24/aidan-oconnell-injury-broken-wrist/
+
 **Leeds and Valencia negotiating loan deal for Ramazani**\
 `The 24-year-old started just once in the Championship between October 23 last year and the end of the campaign.`\
 https://nytimes.com/athletic/6572020/2025/08/24/largie-ramazani-leeds-united-valencia-loan/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6571782/2025/08/24/tigers-bullpen-kyle-finnegan-wil
 **Is USC football — finally aligned and committed — poised to return to national prominence?**\
 `“Everyone knows the potential of USC,” Trojans GM Chad Bowden said earlier this month. “I think they understand the giant’s awake now.”`\
 https://nytimes.com/athletic/6566847/2025/08/24/usc-football-2025-nil-lincoln-riley/
-
-**How ChatGPT Surprised Me**\
-`What if we come to love and depend on the A.I.s — if we prefer them in many cases to our fellow humans?`\
-https://nytimes.com/2025/08/24/opinion/chat-gpt5-open-ai-future.html
 
