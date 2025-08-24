@@ -1,3 +1,7 @@
+**Trump’s Stunning Attack on Mail-In Ballots**\
+`The president and his allies should not be trusted to ensure the integrity of the vote.`\
+https://nytimes.com/2025/08/24/opinion/trump-voting-mail-in-ballots.html
+
 **Two Women Are Rescued From Hot Tub at Remote Cabin**\
 `Health issues prevented the women, who were in their 80s, from climbing out, officials said. They became unresponsive after overheating and developing hyperthermia.`\
 https://nytimes.com/2025/08/24/us/hot-tub-rescue.html
