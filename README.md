@@ -1,3 +1,7 @@
+**Arsenal agree deal for Shamrock Rovers midfielder Ozhianvuna, 16**\
+`The transfer is expected to constitute an Irish record.`\
+https://nytimes.com/athletic/6571181/2025/08/24/victor-ozhianvuna-arsenal-transfer/
+
 **Who Killed King Louie? The Mystery of a Prize Buck’s Death.**\
 `An enormous whitetail deer had become a local legend in rural New York. Then a picture of his carcass appeared on social media.`\
 https://nytimes.com/2025/08/24/nyregion/king-louie-buck.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6571904/2025/08/24/dodgers-lose-padres-offense-no-o
 **UC Davis-Mercer game declared no contest after weather delay**\
 `UC Davis was leading 23-17 with 7:46 left until rain and lightning sent the game into a delay. It was eventually called off.`\
 https://nytimes.com/athletic/6571919/2025/08/24/uc-davis-mercer-no-contest-delay/
-
-**The New York Times in Print for Sunday, Aug. 24, 2025**\
-``\
-https://nytimes.com/issue/todayspaper/2025/08/24/todays-new-york-times
 
