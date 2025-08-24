@@ -1,3 +1,7 @@
+**Ryan Blaney wins 'wild' NASCAR regular-season finale, Cup Series playoffs set**\
+`Blaney went from 13th place to the win in the final two laps at Daytona as the Cup Series locked in its 16-driver playoff field.`\
+https://nytimes.com/athletic/6571839/2025/08/23/nascar-ryan-blaney-cup-series-playoff/
+
 **'I just need to step up': Phillies need more of vintage Aaron Nola**\
 `Philadelphia needs a righty for its hypothetical postseason rotation, which as of now would feature three lefties.`\
 https://nytimes.com/athletic/6571788/2025/08/23/aaron-nola-phillies-pitching-zack-wheeler/

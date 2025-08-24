@@ -1,3 +1,7 @@
+**Ryan Blaney wins 'wild' NASCAR regular-season finale, Cup Series playoffs set**\
+`Blaney went from 13th place to the win in the final two laps at Daytona as the Cup Series locked in its 16-driver playoff field.`\
+https://nytimes.com/athletic/6571839/2025/08/23/nascar-ryan-blaney-cup-series-playoff/
+
 **'I just need to step up': Phillies need more of vintage Aaron Nola**\
 `Philadelphia needs a righty for its hypothetical postseason rotation, which as of now would feature three lefties.`\
 https://nytimes.com/athletic/6571788/2025/08/23/aaron-nola-phillies-pitching-zack-wheeler/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6571621/2025/08/23/garrett-crochet-red-sox-yankees-
 **Browns 53-man projection: Four quarterbacks make initial roster**\
 `Cleveland makes the tough decision to keep all four of its QBs who competed this summer in our 53-man roster projection. `\
 https://nytimes.com/athletic/6571574/2025/08/23/browns-53-man-roster-projection-2025/
-
-**Packers 53-man roster projection: Close calls at wide receiver, linebacker, cornerback**\
-`Could the Packers release both Mecole Hardman and Isaiah Simmons? The pair of veterans might be on the outside looking in come Tuesday.`\
-https://nytimes.com/athletic/6571410/2025/08/23/packers-roster-projection-preseason-mecole-hardman/
 
