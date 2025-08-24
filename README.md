@@ -1,3 +1,7 @@
+**Trump’s Stunning Attack on Mail-In Ballots**\
+`The president and his allies should not be trusted to ensure the integrity of the vote.`\
+https://nytimes.com/2025/08/24/opinion/trump-voting-mail-in-ballots.html
+
 **Two Women Are Rescued From Hot Tub at Remote Cabin**\
 `Health issues prevented the women, who were in their 80s, from climbing out, officials said. They became unresponsive after overheating and developing hyperthermia.`\
 https://nytimes.com/2025/08/24/us/hot-tub-rescue.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/24/sports/autoracing/humpy-wheeler-dead.html
 **A pair of pass-rushers emerge: Five things we learned this week at Raiders training camp**\
 `Potential help for Maxx Crosby, plus the cornerback room continues to take shape.`\
 https://nytimes.com/athletic/6571874/2025/08/24/raiders-final-training-camp-practice-report/
-
-**Kings' top prospect Liam Greentree 'brings so much to the table'**\
-`The No. 26 pick in the 2024 draft took a big step last season, ranking among the highest scorers in the OHL and captaining a playoff team.`\
-https://nytimes.com/athletic/6567203/2025/08/24/kings-liam-greentree-prospect-spitfires/
 

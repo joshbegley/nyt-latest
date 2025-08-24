@@ -1,3 +1,7 @@
+**Two Women Are Rescued From Hot Tub at Remote Cabin**\
+`Health issues prevented the women, who were in their 80s, from climbing out, officials said. They became unresponsive after overheating and developing hyperthermia.`\
+https://nytimes.com/2025/08/24/us/hot-tub-rescue.html
+
 **Starling Lawrence, Editor Who Uncovered Best Sellers, Dies at 82**\
 `He discovered and nurtured Michael Lewis, Sebastian Junger and many other authors. He had, Mr. Lewis said, “the storytelling equivalent of perfect pitch.”`\
 https://nytimes.com/2025/08/24/books/starling-lawrence-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6571874/2025/08/24/raiders-final-training-camp-prac
 **Kings' top prospect Liam Greentree 'brings so much to the table'**\
 `The No. 26 pick in the 2024 draft took a big step last season, ranking among the highest scorers in the OHL and captaining a playoff team.`\
 https://nytimes.com/athletic/6567203/2025/08/24/kings-liam-greentree-prospect-spitfires/
-
-**Jerry Adler, Actor in ‘The Sopranos’ Who Found Success Late in Life, Dies at 96**\
-`After spending years in behind-the-scenes roles on Broadway, he enjoyed a late career transformation to become an actor in films and on television.`\
-https://nytimes.com/2025/08/24/arts/television/jerry-adler-dead.html
 

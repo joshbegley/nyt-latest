@@ -1,3 +1,7 @@
+**Two Women Are Rescued From Hot Tub at Remote Cabin**\
+`Health issues prevented the women, who were in their 80s, from climbing out, officials said. They became unresponsive after overheating and developing hyperthermia.`\
+https://nytimes.com/2025/08/24/us/hot-tub-rescue.html
+
 **Starling Lawrence, Editor Who Uncovered Best Sellers, Dies at 82**\
 `He discovered and nurtured Michael Lewis, Sebastian Junger and many other authors. He had, Mr. Lewis said, “the storytelling equivalent of perfect pitch.”`\
 https://nytimes.com/2025/08/24/books/starling-lawrence-dead.html
