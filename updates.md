@@ -1,3 +1,7 @@
+**Leeds had a brutal reality check at Arsenal - they must not linger on it**\
+`There are lessons to be learned but games like this will not decide Leeds' Premier League future`\
+https://nytimes.com/athletic/6571818/2025/08/24/arsenal-leeds-premier-league-reality-check/
+
 **This wasn't just any old Saturday in north London**\
 `Arsenal's 5-0 win over Leeds featured Max Dowman's Premier League debut, Eberechi Eze's unveiling, two goals for Viktor Gyokeres and more.`\
 https://nytimes.com/athletic/6571423/2025/08/24/arsenal-dowman-eze-leeds-live/

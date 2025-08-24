@@ -1,3 +1,7 @@
+**Leeds had a brutal reality check at Arsenal - they must not linger on it**\
+`There are lessons to be learned but games like this will not decide Leeds' Premier League future`\
+https://nytimes.com/athletic/6571818/2025/08/24/arsenal-leeds-premier-league-reality-check/
+
 **This wasn't just any old Saturday in north London**\
 `Arsenal's 5-0 win over Leeds featured Max Dowman's Premier League debut, Eberechi Eze's unveiling, two goals for Viktor Gyokeres and more.`\
 https://nytimes.com/athletic/6571423/2025/08/24/arsenal-dowman-eze-leeds-live/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6571859/2025/08/24/hawaii-beats-stanford-frank-reic
 **With Frank's press working, do Tottenham need a creative No 10 against top sides?**\
 `Thomas Frank clearly wants a playmaker for Tottenham, but his team’s forward press is another great way of making chances…`\
 https://nytimes.com/athletic/6571172/2025/08/24/tottenham-manchester-city-premier-league-result/
-
-**City's aggressive offside trap failed against Tottenham - and shows how precarious it can be**\
-`Manchester City are attempting to play a high defensive line.... but there are teething problems, and it showed against Tottenham`\
-https://nytimes.com/athletic/6570997/2025/08/24/manchester-city-tottenham-premier-league-offside-trap/
 
