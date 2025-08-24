@@ -1,3 +1,11 @@
+**The New York Times in Print for Sunday, Aug. 24, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/08/24/todays-new-york-times
+
+**Ding-Ding! The Parent Group Chats Are Back, Thank God.**\
+`The incessant alerts are annoying, but also feel like community.`\
+https://nytimes.com/2025/08/24/opinion/parents-whatsapp-group-chats.html
+
 **The Astros are 'picking each other up,' but can they sustain their starting pitching woes?**\
 `Bryan Abreu's 58th appearance of the season, coming a day after throwing more than one inning, is a symbol of the Astros' seismic problem.`\
 https://nytimes.com/athletic/6571849/2025/08/24/astros-starting-pitching-woes-bryan-abreu/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6568194/2025/08/24/49ers-roster-53-man-projection-p
 **Premier League clubs face £100m black hole left by betting sponsors – who will fill it?**\
 `This is the last season PL clubs will be allowed gambling sponsors on the front of playing shirts – where will they go next?`\
 https://nytimes.com/athletic/6562065/2025/08/24/premier-league-clubs-gambling-sponsorship/
-
-**Global kits rated: The best and the worst outside of the Premier League**\
-`Not a fan of Premier League kits? No problem, we've found you some of the best - and worst - of the rest from around the globe...`\
-https://nytimes.com/athletic/6551174/2025/08/24/global-kits-rated-the-best-and-the-worst-outside-of-the-premier-league/
-
-**How Brazil won the 1970 World Cup: Pele's return, a fearsome front five - but 'an incompetent goalkeeper'**\
-`Pele returned to the Brazil ranks to help Mario Zagallo and the country make history in Mexico. They were an outstanding team`\
-https://nytimes.com/athletic/6567329/2025/08/24/how-brazil-won-the-1970-world-cup-peles-return-a-fearsome-front-five-but-an-incompetent-goalkeeper/
 
