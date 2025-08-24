@@ -1,4 +1,8 @@
-**Nuno admits relationship with Edu must improve, denies want to leave Forest**\
+**Bay FC continue to push boundaries - a record-breaking crowd will only fuel the ambition**\
+`Bay FC's ambition knows no bounds - in taking the game against the Spirit to Oracle Park they wanted a record crowd. Mission accomplished`\
+https://nytimes.com/athletic/6572028/2025/08/24/bay-fc-record-crowd-oracle-park/
+
+**Nuno admits relationship with Edu must improve, denies wanting to leave Forest**\
 `As revealed by The Athletic on Friday, Nuno's relationship with Edu has deteriorated.`\
 https://nytimes.com/athletic/6572159/2025/08/24/nuno-edu-nottingham-forest-rift-marinakis/
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6572126/2025/08/24/aidan-oconnell-injury-broken-wri
 **Leeds and Valencia negotiating loan deal for Ramazani**\
 `The 24-year-old started just once in the Championship between October 23 last year and the end of the campaign.`\
 https://nytimes.com/athletic/6572020/2025/08/24/largie-ramazani-leeds-united-valencia-loan/
-
-**Revealing Taste**\
-`A clever leak exposed the music habits of some famous people — and two Times journalists.`\
-https://nytimes.com/2025/08/24/briefing/revealing-taste.html
 
