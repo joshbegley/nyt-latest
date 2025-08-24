@@ -1,3 +1,7 @@
+**UC Davis-Mercer game declared no contest after weather delay**\
+`UC Davis was leading 23-17 with 7:46 left until rain and lightning sent the game into a delay. It was eventually called off.`\
+https://nytimes.com/athletic/6571919/2025/08/24/uc-davis-mercer-no-contest-delay/
+
 **The New York Times in Print for Sunday, Aug. 24, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/08/24/todays-new-york-times
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6569321/2025/08/24/newcastle-liverpool-isak-predict
 **49ers final roster projection: Skyy Moore, Brian Robinson knock others off bubble**\
 `How will the 49ers hold onto Sebastian Valdez and other promising youngsters? Look for plenty of roster maneuvering over the next week.`\
 https://nytimes.com/athletic/6568194/2025/08/24/49ers-roster-53-man-projection-preseason/
-
-**Premier League clubs face £100m black hole left by betting sponsors – who will fill it?**\
-`This is the last season PL clubs will be allowed gambling sponsors on the front of playing shirts – where will they go next?`\
-https://nytimes.com/athletic/6562065/2025/08/24/premier-league-clubs-gambling-sponsorship/
 

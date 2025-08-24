@@ -1,3 +1,7 @@
+**UC Davis-Mercer game declared no contest after weather delay**\
+`UC Davis was leading 23-17 with 7:46 left until rain and lightning sent the game into a delay. It was eventually called off.`\
+https://nytimes.com/athletic/6571919/2025/08/24/uc-davis-mercer-no-contest-delay/
+
 **The New York Times in Print for Sunday, Aug. 24, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/08/24/todays-new-york-times
