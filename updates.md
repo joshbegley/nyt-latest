@@ -1,0 +1,40 @@
+**Garrett Crochet continues to shut down Yankees, making strong case for AL Cy Young**\
+`Crochet held the Yankees to one run on five hits and a walk, striking out 11 in a 12-1 win for the Red Sox.`\
+https://nytimes.com/athletic/6571621/2025/08/23/garrett-crochet-red-sox-yankees-cy-young/
+
+**Browns 53-man projection: Four quarterbacks make initial roster**\
+`Cleveland makes the tough decision to keep all four of its QBs who competed this summer in our 53-man roster projection. `\
+https://nytimes.com/athletic/6571574/2025/08/23/browns-53-man-roster-projection-2025/
+
+**Packers 53-man roster projection: Close calls at wide receiver, linebacker, cornerback**\
+`Could the Packers release both Mecole Hardman and Isaiah Simmons? The pair of veterans might be on the outside looking in come Tuesday.`\
+https://nytimes.com/athletic/6571410/2025/08/23/packers-roster-projection-preseason-mecole-hardman/
+
+**It's about time — why the BBWAA created a Reliever of the Year award**\
+`The Baseball Writers' Association of America will vote on the game's best relievers each season. Here's why this honor is long overdue.`\
+https://nytimes.com/athletic/6571274/2025/08/23/reliever-of-the-year-award-bbwaa/
+
+**New MLB award: BBWAA to start honoring relief pitcher of the year in 2026**\
+`This is the first new honor awarded by the BBWAA since the Manager of the Year was introduced in 1983.`\
+https://nytimes.com/athletic/6571214/2025/08/23/mlb-relief-pitcher-of-the-year-award/
+
+**Bengals' 53-man roster, depth chart projection: Help wanted on offensive, defensive lines**\
+`The Bengals' roster must be trimmed to 53 by Tuesday evening, but the changes will keep coming after that.`\
+https://nytimes.com/athletic/6571384/2025/08/23/bengals-roster-projection-depth-chart-53/
+
+**Oregon Wildfire Doubles to More Than 18,000 Acres in 24 Hours**\
+`More than 1,000 homes in Oregon were under some kind of evacuation because of the Flat fire, which was one of many wildfires burning in the West, amid hot weather.`\
+https://nytimes.com/2025/08/23/weather/flat-fire-oregon.html
+
+**Mixed Company**\
+`Michael Lieberman conglomerates his skills to make an extra clever puzzle.`\
+https://nytimes.com/2025/08/23/crosswords/daily-puzzle-2025-08-24.html
+
+**Tracking Tropical Storm Fernand**\
+`See the likely path and wind arrival times for Fernand`\
+https://nytimes.com/interactive/2025/08/23/weather/fernand-map-path-tracker.html
+
+**Ravens 53-man roster projection: Young defensive players make for tough calls**\
+`Several young players flashed in the preseason, making it a difficult process for Baltimore to trim its roster to 53 players by Tuesday.`\
+https://nytimes.com/athletic/6571465/2025/08/23/ravens-53-man-roster-projection-2025/
+
