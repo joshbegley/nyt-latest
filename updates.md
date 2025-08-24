@@ -1,3 +1,7 @@
+**Arsenal agree deal for Shamrock Rovers midfielder Ozhianvuna, 16**\
+`The transfer is expected to constitute an Irish record.`\
+https://nytimes.com/athletic/6571181/2025/08/24/victor-ozhianvuna-arsenal-transfer/
+
 **Who Killed King Louie? The Mystery of a Prize Buck’s Death.**\
 `An enormous whitetail deer had become a local legend in rural New York. Then a picture of his carcass appeared on social media.`\
 https://nytimes.com/2025/08/24/nyregion/king-louie-buck.html
