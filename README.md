@@ -1,3 +1,7 @@
+**The Dodgers offense is struggling to make adjustments and scuffling at the wrong time**\
+`Modifications are required but have not come often enough as a lineup of future Hall of Famers has produced runs at a mediocre rate for L.A.`\
+https://nytimes.com/athletic/6571904/2025/08/24/dodgers-lose-padres-offense-no-offense/
+
 **UC Davis-Mercer game declared no contest after weather delay**\
 `UC Davis was leading 23-17 with 7:46 left until rain and lightning sent the game into a delay. It was eventually called off.`\
 https://nytimes.com/athletic/6571919/2025/08/24/uc-davis-mercer-no-contest-delay/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6571287/2025/08/24/four-wolves-problems-bournemouth
 **Newcastle-Liverpool predictions: How will both sides respond to Alexander Isak drama?**\
 `Our writers discuss the key talking points ahead of what promises to be a fiery fixture at St James' Park`\
 https://nytimes.com/athletic/6569321/2025/08/24/newcastle-liverpool-isak-predictions/
-
-**49ers final roster projection: Skyy Moore, Brian Robinson knock others off bubble**\
-`How will the 49ers hold onto Sebastian Valdez and other promising youngsters? Look for plenty of roster maneuvering over the next week.`\
-https://nytimes.com/athletic/6568194/2025/08/24/49ers-roster-53-man-projection-preseason/
 
