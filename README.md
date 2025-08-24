@@ -1,3 +1,23 @@
+**Starling Lawrence, Editor Who Uncovered Best Sellers, Dies at 82**\
+`He discovered and nurtured Michael Lewis, Sebastian Junger and many other authors. He had, Mr. Lewis said, “the storytelling equivalent of perfect pitch.”`\
+https://nytimes.com/2025/08/24/books/starling-lawrence-dead.html
+
+**Lowetide: One of the most intriguing storylines of Oilers training camp**\
+`Last spring, Edmonton signed defenceman Atro Leppänen from Finland's Liiga. He hasn't gotten a lot of attention, but he's a name to watch.`\
+https://nytimes.com/athletic/6571179/2025/08/24/edmonton-oilers-training-camp-atro-leppanen-nhl/
+
+**A (Former) Critic’s Summer Cooking Notebook**\
+`How I’m cooking my chicken (in a versatile tinga de pollo), corn (sautéed in a skillet), tomatoes (softened with eggplant) and peppers (stuffed).`\
+https://nytimes.com/2025/08/24/dining/a-former-critics-summer-cooking-notebook.html
+
+**The Pulse: A sublime, sloppy start to college football**\
+`Welcome to The Pulse, The Athletic's daily sports newsletter.`\
+https://nytimes.com/athletic/6571895/2025/08/24/a-sloppy-superb-start-to-college-football-and-a-brutal-night-for-the-sanders-brothers/
+
+**Ozzie Rodriguez, Off Off Broadway Mainstay and Archivist, Dies at 81**\
+`An actor, director and playwright for La MaMa Experimental Theater Club, he later found an even more distinct role: curating its vast archive.`\
+https://nytimes.com/2025/08/24/theater/ozzie-rodriguez-dead.html
+
 **Vikings signing QB Carson Wentz, trading Sam Howell to Eagles: Sources**\
 `The move comes one day after Wentz worked out with the Vikings, raising questions about the team's depth chart at QB.`\
 https://nytimes.com/athletic/6572335/2025/08/24/vikings-carson-wentz-sam-howell-trade-signing/
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/6567203/2025/08/24/kings-liam-greentree-prospect-sp
 **Jerry Adler, Actor in ‘The Sopranos’ Who Found Success Late in Life, Dies at 96**\
 `After spending years in behind-the-scenes roles on Broadway, he enjoyed a late career transformation to become an actor in films and on television.`\
 https://nytimes.com/2025/08/24/arts/television/jerry-adler-dead.html
-
-**Is Kyle Tucker back? The Cubs’ reset appears to be working as planned **\
-`After being benched against the Brewers, Tucker has rediscovered his ability to hunt certain pitches and launch those balls into the seats.`\
-https://nytimes.com/athletic/6571944/2025/08/24/kyle-tucker-cubs-reset-home-run/
-
-**Does Coventry 7 (xG 1.27) QPR 1 (0.61) prove expected goals is broken?**\
-`The Championship club's remarkable overperformance on Saturday raised questions about the xG model`\
-https://nytimes.com/athletic/6572050/2025/08/24/does-coventry-7-xg-1-27-qpr-1-0-61-prove-expected-goals-is-broken/
-
-**Bay FC continue to push boundaries - a record-breaking crowd will only fuel the ambition**\
-`In taking the game against the Spirit to Oracle Park, Bay FC were ambitious in wanting a record crowd. Mission accomplished`\
-https://nytimes.com/athletic/6572028/2025/08/24/bay-fc-record-crowd-oracle-park/
-
-**Nuno admits relationship with Edu must improve, denies wanting to leave Forest**\
-`As revealed by The Athletic on Friday, Nuno's relationship with Edu has deteriorated.`\
-https://nytimes.com/athletic/6572159/2025/08/24/nuno-edu-nottingham-forest-rift-marinakis/
-
-**Andrew Abbott's worst start of the year comes at a bad time for the Reds**\
-`Abbott went four innings in a 10-1 loss Saturday. Coupled with a Mets victory, the Reds are now 2 1/2 games back for the last NL wild card.`\
-https://nytimes.com/athletic/6571861/2025/08/24/andrew-abbott-reds-worst-start/
 
