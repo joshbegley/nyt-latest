@@ -1,3 +1,7 @@
+**The Thomas Frank tactic that was crucial to Tottenham beating Manchester City**\
+`Tottenham's goals against Manchester City represented two key features of their new manager’s attacking principles`\
+https://nytimes.com/athletic/6571967/2025/08/24/tottenham-beat-manchester-city-key-tactic-thomas-frank/
+
 **Alex Bowman's long, anxious night at Daytona: 'I owe Ryan Blaney 7 million beers'**\
 `After Alex Bowman wrecked early Saturday, he was left to sit and watch and hope. And then Ryan Blaney delivered him the ultimate gift.`\
 https://nytimes.com/athletic/6572614/2025/08/24/alex-bowman-daytona-playoffs-crash-ryan-blaney/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/24/opinion/trump-voting-mail-in-ballots.html
 **Two Women Are Rescued From Hot Tub at Remote Cabin**\
 `Health issues prevented the women, who were in their 80s, from climbing out, officials said. They became unresponsive after overheating and developing hyperthermia.`\
 https://nytimes.com/2025/08/24/us/hot-tub-rescue.html
-
-**Starling Lawrence, Editor Who Uncovered Best Sellers, Dies at 82**\
-`He discovered and nurtured Michael Lewis, Sebastian Junger and many other authors. He had, Mr. Lewis said, “the storytelling equivalent of perfect pitch.”`\
-https://nytimes.com/2025/08/24/books/starling-lawrence-dead.html
 
