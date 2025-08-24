@@ -1,3 +1,7 @@
+**Aidan O'Connell, Raiders backup QB, fractures wrist in preseason finale**\
+`O'Connell was set to be Geno Smith's top backup this season.`\
+https://nytimes.com/athletic/6572126/2025/08/24/aidan-oconnell-injury-broken-wrist/
+
 **Leeds and Valencia negotiating loan deal for Ramazani**\
 `The 24-year-old started just once in the Championship between October 23 last year and the end of the campaign.`\
 https://nytimes.com/athletic/6572020/2025/08/24/largie-ramazani-leeds-united-valencia-loan/
