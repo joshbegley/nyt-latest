@@ -1,3 +1,7 @@
+**Dortmund close to deals for Chelsea's Chukwuemeka and Anselmino**\
+`The pair have been given permission to travel to Germany to sign for the Bundesliga side.`\
+https://nytimes.com/athletic/6399330/2025/08/24/carney-chukwuemeka-aaron-anselmino-transfers-borussia-dortmunde-chelsea/
+
 **China’s Tropical Resort Island Orders Evacuations as Typhoon Kajiki Nears**\
 `Officials on Hainan Island, China’s only tropical beach destination, halted public transportation. Businesses were closed in Sanya, a popular resort city on the island.`\
 https://nytimes.com/2025/08/24/world/asia/typhoon-kajiki-china-sanya.html
