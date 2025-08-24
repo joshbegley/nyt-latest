@@ -1,3 +1,7 @@
+**The Astros are 'picking each other up,' but can they sustain their starting pitching woes?**\
+`Bryan Abreu's 58th appearance of the season, coming a day after throwing more than one inning, is a symbol of the Astros' seismic problem.`\
+https://nytimes.com/athletic/6571849/2025/08/24/astros-starting-pitching-woes-bryan-abreu/
+
 **Hawaii spoils Reich-Luck Stanford opener on walk-off field goal**\
 `This is Hawaii's first victory over a Power conference team since 2019.`\
 https://nytimes.com/athletic/6571859/2025/08/24/hawaii-beats-stanford-frank-reich-andrew-luck/
