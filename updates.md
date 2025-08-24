@@ -1,3 +1,7 @@
+**The New York Times International Edition in Print for Monday, Aug. 25, 2025**\
+``\
+https://nytimes.com/issue/todaysinyt/2025/08/24/todays-new-york-times-international-edition
+
 **How the best American women's tennis players rose to the top of Grand Slams and the sport**\
 `The top of women's tennis is filled with U.S. players. That's no accident.`\
 https://nytimes.com/athletic/6564063/2025/08/24/tennis-wta-best-american-players-gauff-keys/

@@ -1,3 +1,7 @@
+**The New York Times International Edition in Print for Monday, Aug. 25, 2025**\
+``\
+https://nytimes.com/issue/todaysinyt/2025/08/24/todays-new-york-times-international-edition
+
 **How the best American women's tennis players rose to the top of Grand Slams and the sport**\
 `The top of women's tennis is filled with U.S. players. That's no accident.`\
 https://nytimes.com/athletic/6564063/2025/08/24/tennis-wta-best-american-players-gauff-keys/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/24/magazine/landfill-calabasas-los-angeles-wildfire-
 **New England Boaters Battle a Coast Guard Plan to Remove Beloved Buoys**\
 `The agency said a proposal to get rid of 350 navigational buoys from Maine to New Jersey made sense after decades of advancement in electronic navigation tools.`\
 https://nytimes.com/2025/08/24/us/new-england-boaters-protest-buoys-removal.html
-
-**We Are Tech Privacy Reporters. Our Music Habits Got Doxxed.**\
-`The “Panama Playlists” exposed the Spotify listening habits of some famous people — and two journalists who didn’t know as much about protecting their privacy as they had thought.`\
-https://nytimes.com/2025/08/24/technology/spotify-panama-playlists-privacy.html
 
