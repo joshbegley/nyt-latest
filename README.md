@@ -1,3 +1,11 @@
+**Lions 53-man roster projection: Hendon Hooker's future in doubt, questions remain at edge**\
+`The Lions have one of the NFC's best rosters, but they'll have some difficult decisions to make in the coming days.`\
+https://nytimes.com/athletic/6571449/2025/08/23/detroit-lions-roster-projection-hendon-hooker/
+
+**Yankees say they must 'play better' after Red Sox laugher. But why should you believe it?**\
+`Saturday’s defeat was the Yankees' eighth loss in nine games against the Red Sox this season.`\
+https://nytimes.com/athletic/6571628/2025/08/23/yankees-red-sox-rout-aaron-judge/
+
 **Garrett Crochet continues to shut down Yankees, making strong case for AL Cy Young**\
 `Crochet held the Yankees to one run on five hits and a walk, striking out 11 in a 12-1 win for the Red Sox.`\
 https://nytimes.com/athletic/6571621/2025/08/23/garrett-crochet-red-sox-yankees-cy-young/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/08/23/weather/flat-fire-oregon.html
 **Mixed Company**\
 `Michael Lieberman conglomerates his skills to make an extra clever puzzle.`\
 https://nytimes.com/2025/08/23/crosswords/daily-puzzle-2025-08-24.html
-
-**Tracking Tropical Storm Fernand**\
-`See the likely path and wind arrival times for Fernand`\
-https://nytimes.com/interactive/2025/08/23/weather/fernand-map-path-tracker.html
-
-**Ravens 53-man roster projection: Young defensive players make for tough calls**\
-`Several young players flashed in the preseason, making it a difficult process for Baltimore to trim its roster to 53 players by Tuesday.`\
-https://nytimes.com/athletic/6571465/2025/08/23/ravens-53-man-roster-projection-2025/
 
