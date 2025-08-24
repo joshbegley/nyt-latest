@@ -1,3 +1,7 @@
+**Hawaii spoils Reich-Luck Stanford opener on walk-off field goal**\
+`This is Hawaii's first victory over a Power conference team since 2019.`\
+https://nytimes.com/athletic/6571859/2025/08/24/hawaii-beats-stanford-frank-reich-andrew-luck/
+
 **With Frank's press working, do Tottenham need a creative No 10 against top sides?**\
 `Thomas Frank clearly wants a playmaker for Tottenham, but his team’s forward press is another great way of making chances…`\
 https://nytimes.com/athletic/6571172/2025/08/24/tottenham-manchester-city-premier-league-result/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6567329/2025/08/24/how-brazil-won-the-1970-world-cu
 **What is the physical impact of a player training alone?**\
 `Team training sessions are designed to prepare Premier League players for unique demands. When they go solo, it is bound to have an effect`\
 https://nytimes.com/athletic/6561186/2025/08/24/alexander-isak-physical-impact-training-alone/
-
-**Peace Talks in Ukraine All Lead to the Donbas**\
-`The contested region is where Russia’s war in Ukraine began a decade ago. Scores of Ukrainian soldiers have died defending it. Would Ukraine give it up now?`\
-https://nytimes.com/2025/08/24/world/europe/russia-ukraine-donbas-peace-talks-putin-trump-zelensky.html
 

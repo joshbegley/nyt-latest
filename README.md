@@ -1,3 +1,7 @@
+**The Astros are 'picking each other up,' but can they sustain their starting pitching woes?**\
+`Bryan Abreu's 58th appearance of the season, coming a day after throwing more than one inning, is a symbol of the Astros' seismic problem.`\
+https://nytimes.com/athletic/6571849/2025/08/24/astros-starting-pitching-woes-bryan-abreu/
+
 **Hawaii spoils Reich-Luck Stanford opener on walk-off field goal**\
 `This is Hawaii's first victory over a Power conference team since 2019.`\
 https://nytimes.com/athletic/6571859/2025/08/24/hawaii-beats-stanford-frank-reich-andrew-luck/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6551174/2025/08/24/global-kits-rated-the-best-and-t
 **How Brazil won the 1970 World Cup: Pele's return, a fearsome front five - but 'an incompetent goalkeeper'**\
 `Pele returned to the Brazil ranks to help Mario Zagallo and the country make history in Mexico. They were an outstanding team`\
 https://nytimes.com/athletic/6567329/2025/08/24/how-brazil-won-the-1970-world-cup-peles-return-a-fearsome-front-five-but-an-incompetent-goalkeeper/
-
-**What is the physical impact of a player training alone?**\
-`Team training sessions are designed to prepare Premier League players for unique demands. When they go solo, it is bound to have an effect`\
-https://nytimes.com/athletic/6561186/2025/08/24/alexander-isak-physical-impact-training-alone/
 

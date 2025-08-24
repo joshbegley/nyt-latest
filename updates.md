@@ -1,3 +1,7 @@
+**Hawaii spoils Reich-Luck Stanford opener on walk-off field goal**\
+`This is Hawaii's first victory over a Power conference team since 2019.`\
+https://nytimes.com/athletic/6571859/2025/08/24/hawaii-beats-stanford-frank-reich-andrew-luck/
+
 **With Frank's press working, do Tottenham need a creative No 10 against top sides?**\
 `Thomas Frank clearly wants a playmaker for Tottenham, but his team’s forward press is another great way of making chances…`\
 https://nytimes.com/athletic/6571172/2025/08/24/tottenham-manchester-city-premier-league-result/
