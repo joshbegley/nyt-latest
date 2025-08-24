@@ -1,3 +1,7 @@
+**Fleetwood claims Tour Championship for a dramatic first PGA Tour win**\
+`Fleetwood had 30 top-five finishes in 164 PGA Tour starts, but now he has a win.`\
+https://nytimes.com/athletic/6573108/2025/08/24/tour-championship-2025-tommy-fleetwood-win-pga-tour/
+
 **Chinese Taipei dominates Nevada to win Little League World Series**\
 `Chinese-Taipei pitcher Lin Chin-Tse threw a gem on the mound for Taiwan, holding Nevada to just one hit.`\
 https://nytimes.com/athletic/6572975/2025/08/24/little-league-world-series-nevada-taipei-results-2025/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6572880/2025/08/24/avery-johnson-family-fight-kansa
 **NASCAR Daytona takeaways: A thrilling throwback, playoff predictions and more**\
 `The regular-season finale at Daytona delivered a race that felt almost too good to be true. Plus, our playoff predictions and more.`\
 https://nytimes.com/athletic/6572407/2025/08/24/nascar-daytona-takeaways-playoff-predictions/
-
-**Democrats Criticize Trump’s Push for National Guard in More Cities**\
-`President Trump said he was considering sending troops to cities like Chicago, New York and Baltimore. State and local leaders say they have crime under control.`\
-https://nytimes.com/2025/08/24/us/politics/trump-national-guard-chicago-crime.html
 
