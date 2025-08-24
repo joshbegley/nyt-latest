@@ -1,3 +1,7 @@
+**Jerry Adler, Actor in ‘The Sopranos’ Who Found Success Late in Life, Dies at 96**\
+`After spending years in behind-the-scenes roles on Broadway, he enjoyed a late career transformation to become an actor in films and on television.`\
+https://nytimes.com/2025/08/24/arts/television/jerry-adler-dead.html
+
 **Is Kyle Tucker back? The Cubs’ reset appears to be working as planned **\
 `After being benched against the Brewers, Tucker has rediscovered his ability to hunt certain pitches and launch those balls into the seats.`\
 https://nytimes.com/athletic/6571944/2025/08/24/kyle-tucker-cubs-reset-home-run/
