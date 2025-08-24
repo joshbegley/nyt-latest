@@ -1,3 +1,15 @@
+**The best matches of U.S. Open day 1, from Sabalenka and Raducanu to Djokovic and Fritz**\
+`The best matches on the first day of the 2025 U.S. Open, including last year's singles finalists and one defending champion.`\
+https://nytimes.com/athletic/6571634/2025/08/24/tennis-us-open-day-1-matches-schedule/
+
+**Big Ten vs. SEC challenge: Who would win a 16-game showdown?**\
+`If the sport's two premier conferences played a nonconference series, who would prove to have more depth? We played it out.`\
+https://nytimes.com/athletic/6569243/2025/08/24/big-ten-vs-sec-challenge-who-would-win-a-16-game-showdown/
+
+**How college athletic departments are finding new ways to bring in more money**\
+`Exploring new ways to make money in more ways than raising ticket prices is an urgent task for programs looking to keep up with one another.`\
+https://nytimes.com/athletic/6570158/2025/08/24/college-sports-money-revenue-ross-bjork/
+
 **Zelensky Marks Independence Day With Diplomacy in Kyiv and a Plea for Peace**\
 `The Ukrainian leader held talks with Prime Minister Mark Carney of Canada and was set to meet with President Trump’s envoy, Keith Kellogg, amid continuing diplomatic efforts to end the war.`\
 https://nytimes.com/2025/08/24/world/europe/zelensky-ukraine-independence-day.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/08/24/opinion/ukraine-putin-trump-waffles.html
 **What Is Gen Z So Nostalgic for?**\
 `Longing for the past can be good news for the future.`\
 https://nytimes.com/2025/08/24/opinion/gen-z-technology-nostalgia.html
-
-**Why there's never enough money in college sports**\
-`The pay scale for coaches has exploded across college sports, but coaching salaries are just part of the spending problem.`\
-https://nytimes.com/athletic/6567247/2025/08/24/college-sports-athletic-department-spending-buyouts/
-
-**Command issues surface in Mick Abel's Twins debut as White Sox strike for 6 runs**\
-`Abel allowed six earned runs and seven hits in three innings with two walks and two strikeouts in a 7-3 loss to the White Sox.`\
-https://nytimes.com/athletic/6571803/2025/08/24/mick-abel-twins-debut-white-sox/
-
-**Wordle Review No. 1,528**\
-`Scroll down for hints and conversation about the puzzle for Monday, Aug. 25, 2025.`\
-https://nytimes.com/2025/08/24/crosswords/wordle-review-1528.html
 
