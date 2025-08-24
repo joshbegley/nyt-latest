@@ -1,3 +1,7 @@
+**Sam Howell trade grades: How the Eagles and Vikings fared in backup QB deal**\
+`Philadelphia adds insurance with Tanner McKee out hurt while Minnesota signs Carson Wentz to fill Howell's spot.`\
+https://nytimes.com/athletic/6572634/2025/08/24/sam-howell-trade-grades-vikings-eagles/
+
 **Phillies, Twins will face off in next year's Field of Dreams game**\
 `It will be the first time since 2022 that big-league baseball will be played in the iconic Iowa cornfield.`\
 https://nytimes.com/athletic/6572602/2025/08/24/phillies-twins-mlb-field-of-dreams-iowa/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/24/books/starling-lawrence-dead.html
 **Lowetide: One of the most intriguing storylines of Oilers training camp**\
 `Last spring, Edmonton signed defenceman Atro Leppänen from Finland's Liiga. He hasn't gotten a lot of attention, but he's a name to watch.`\
 https://nytimes.com/athletic/6571179/2025/08/24/edmonton-oilers-training-camp-atro-leppanen-nhl/
-
-**A (Former) Critic’s Summer Cooking Notebook**\
-`How I’m cooking my chicken (in a versatile tinga de pollo), corn (sautéed in a skillet), tomatoes (softened with eggplant) and peppers (stuffed).`\
-https://nytimes.com/2025/08/24/dining/a-former-critics-summer-cooking-notebook.html
 
