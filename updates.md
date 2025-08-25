@@ -1,3 +1,15 @@
+**Monday Briefing: Would Ukraine Give Up the Donbas?**\
+`Plus, the U.S. Open gets going.`\
+https://nytimes.com/2025/08/25/briefing/ukraine-donbas-gaza-south-korea-us-open.html
+
+**Palace have a week to prove they can match Glasner's ambition**\
+`The Austrian's lack of options was exposed in Sunday's 1-1 draw with Nottingham Forest - he needs proper backing`\
+https://nytimes.com/athletic/6569565/2025/08/25/crystal-palace-oliver-glasner-transfer-market/
+
+**Have Brighton left themselves short of a striker after selling Joao Pedro?**\
+`Hurzeler says teens Tzimas and Kostoulas aren't Premier League-ready, leaving only Rutter and Welbeck as senior options. Are they enough?`\
+https://nytimes.com/athletic/6572645/2025/08/25/brighton-strikers-transfers-welbeck-rutter/
+
 **Why playing two left-footed centre-backs sums up Aston Villa's problems**\
 `Squad balance and depth remains in question at Villa – as the struggles of Torres and Mings in defence against Brentford showed`\
 https://nytimes.com/athletic/6571489/2025/08/25/aston-villa-brentford-defence-refresh-result/
