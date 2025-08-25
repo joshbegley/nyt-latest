@@ -1,4 +1,4 @@
-**Eagles reacquire Fred Johnson, deal Darian Kinnard to Packers: Source**\
+**Eagles reacquire Fred Johnson, deal Darian Kinnard to Packers: Sources**\
 `The Eagles made two trades on Sunday as they attempt to shore up their offensive line depth while also maintaining draft capital.`\
 https://nytimes.com/athletic/6573312/2025/08/24/eagles-trade-fred-johnson-darian-kinnard/
 
