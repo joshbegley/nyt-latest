@@ -1,3 +1,5 @@
+
+
 **Howe: Joelinton and Tonali injuries a 'huge blow' for Newcastle**\
 `Howe has lost four starters ahead of Newcastle's next game against Leeds. `\
 https://nytimes.com/athletic/6574894/2025/08/25/eddie-howe-joelinton-sandro-tonali-injuries/
