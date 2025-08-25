@@ -1,3 +1,11 @@
+**Commanders, Terry McLaurin agree to 3-year, $96 million extension**\
+`McLaurin caught 82 passes for 1,096 yards and scored 13 touchdowns in the 2024 regular season.`\
+https://nytimes.com/athletic/6432712/2025/08/25/terry-mclaurin-commanders-contract-extension/
+
+**Kneecap Cancels U.S. Tour, Calling U.K. Terrorism Charge a ‘Witch Hunt’**\
+`One member of the Northern Irish rap group, which is known for its anti-Israel and pro-Palestinian views, is accused of displaying a flag supporting Hezbollah.`\
+https://nytimes.com/2025/08/25/arts/music/kneecap-cancels-us-tour.html
+
 **Luis Matos is on another one of his tears, and it's just what the Giants need**\
 `Matos has shown flashes of this kind of production. The Giants need him, or another young player, to make a sustained breakthrough soon.`\
 https://nytimes.com/athletic/6573429/2025/08/25/sf-giants-luis-matos-development/
