@@ -1,3 +1,7 @@
+**Eze's decision not to join Spurs feels like history repeating itself. It might not be**\
+`Spurs have missed out on the Crystal Palace midfielder, who is joining Arsenal instead. But it may not be quite as simple as that...`\
+https://nytimes.com/athletic/6569020/2025/08/25/eberechi-eze-tottenham-transfer/
+
 **Trump Threatens to Investigate Chris Christie Over ‘Bridgegate’**\
 `President Trump floated the idea after the former governor of New Jersey, a onetime ally, criticized his use of the Justice Department.`\
 https://nytimes.com/2025/08/25/us/politics/trump-chris-christie-bridgegate.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6569565/2025/08/25/crystal-palace-oliver-glasner-tr
 **Have Brighton left themselves short of a striker after selling Joao Pedro?**\
 `Hurzeler says teens Tzimas and Kostoulas aren't Premier League-ready, leaving only Rutter and Welbeck as senior options. Are they enough?`\
 https://nytimes.com/athletic/6572645/2025/08/25/brighton-strikers-transfers-welbeck-rutter/
-
-**Why playing two left-footed centre-backs sums up Aston Villa's problems**\
-`Squad balance and depth remains in question at Villa – as the struggles of Torres and Mings in defence against Brentford showed`\
-https://nytimes.com/athletic/6571489/2025/08/25/aston-villa-brentford-defence-refresh-result/
 

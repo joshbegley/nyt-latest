@@ -14,7 +14,7 @@ https://nytimes.com/2025/08/25/learning/word-of-the-day-kindling.html
 `After Bonzi was given back a first serve because a photographer entered the court, Medvedev was irate.`\
 https://nytimes.com/athletic/6573472/2025/08/25/us-open-medvedev-bonzi-crowd-photographer-umpire/
 
-**California Farms Feed America. They Can’t Do It Without Immigrants.**\
+**Wilted Lettuce. Rotten Strawberries. Here’s What Happens When You Round Up Farmworkers.**\
 `We need a bipartisan solution that ensures a stable farm work force and protects farmworker families and the future of American agriculture.`\
 https://nytimes.com/2025/08/25/opinion/immigration-farmworkers-agriculture-groceries.html
 

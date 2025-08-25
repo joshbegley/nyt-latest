@@ -1,3 +1,7 @@
+**Eze's decision not to join Spurs feels like history repeating itself. It might not be**\
+`Spurs have missed out on the Crystal Palace midfielder, who is joining Arsenal instead. But it may not be quite as simple as that...`\
+https://nytimes.com/athletic/6569020/2025/08/25/eberechi-eze-tottenham-transfer/
+
 **Trump Threatens to Investigate Chris Christie Over ‘Bridgegate’**\
 `President Trump floated the idea after the former governor of New Jersey, a onetime ally, criticized his use of the Justice Department.`\
 https://nytimes.com/2025/08/25/us/politics/trump-chris-christie-bridgegate.html
