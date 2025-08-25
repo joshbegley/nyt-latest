@@ -1,3 +1,7 @@
+**Netflix to stream 2026 World Baseball Classic in Japan**\
+`The partnership with MLB is the start of a relationship that is expected to grow soon.`\
+https://nytimes.com/athletic/6574987/2025/08/25/netflix-world-baseball-classic/
+
 **Trump Once Praised the Black History Museum That He Is Now Attacking**\
 `President Trump’s 2017 tour of the Smithsonian’s National Museum of African American History and Culture seems a distant memory.`\
 https://nytimes.com/2025/08/25/us/politics/trump-smithsonian-black-history.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6574768/2025/08/25/lions-hendon-hooker-waived-quart
 **The Briefing: Newcastle 2 Liverpool 3 -– Ngumoha scores 100th-minute winner, injuries mount for Howe, was Gordon red card deserved?**\
 `Chris Waugh and Andy Jones analyse the key moments from Monday night's game at St James' Park `\
 https://nytimes.com/athletic/6573028/2025/08/25/newcastle-liverpool-premier-league-result-analysis/
-
-**Sheila R. Canby, Curator at the Met Who Humanized Islam, Dies at 76**\
-`In overseeing the expansion of the Islamic art galleries at the Metropolitan Museum, she countered hostile narratives about the Muslim world that arose after 9/11.`\
-https://nytimes.com/2025/08/25/arts/sheila-r-canby-dead.html
 

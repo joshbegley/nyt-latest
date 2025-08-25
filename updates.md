@@ -1,3 +1,7 @@
+**Netflix to stream 2026 World Baseball Classic in Japan**\
+`The partnership with MLB is the start of a relationship that is expected to grow soon.`\
+https://nytimes.com/athletic/6574987/2025/08/25/netflix-world-baseball-classic/
+
 **Trump Once Praised the Black History Museum That He Is Now Attacking**\
 `President Trump’s 2017 tour of the Smithsonian’s National Museum of African American History and Culture seems a distant memory.`\
 https://nytimes.com/2025/08/25/us/politics/trump-smithsonian-black-history.html
