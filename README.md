@@ -1,3 +1,7 @@
+**Medvedev vs. Bonzi delayed for six minutes at U.S. Open after crowd refuses to be quiet**\
+`After Bonzi was given back a first serve because a photographer entered the court, Medvedev was irate.`\
+https://nytimes.com/athletic/6573472/2025/08/25/us-open-medvedev-bonzi-crowd-photographer-umpire/
+
 **California Farms Feed America. They Can’t Do It Without Immigrants.**\
 `We need a bipartisan solution that ensures a stable farm work force and protects farmworker families and the future of American agriculture.`\
 https://nytimes.com/2025/08/25/opinion/immigration-farmworkers-agriculture-groceries.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6571536/2025/08/25/this-is-why-arsenal-invested/
 **The Briefing: Why Max Dowman can break a 20-year Premier League record**\
 `The big talking points from the Premier League weekend, including more passing into trouble and the grappling 'crackdown'`\
 https://nytimes.com/athletic/6572800/2025/08/25/max-dowman-premier-league-youngest-scorer-record/
-
-**Howe, Hughes, friendship and fallout - and the fight for Isak**\
-`Eddie Howe and Richard Hughes go back decades. Where will those relationships lie once the transfer window closes after the Isak saga?`\
-https://nytimes.com/athletic/6572668/2025/08/25/alexander-isak-newcastle-liverpool-transfer/
 
