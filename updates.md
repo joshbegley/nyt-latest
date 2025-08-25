@@ -1,3 +1,11 @@
+**Founder of Sinaloa Cartel Pleads Guilty to Drug Trafficking**\
+`Ismael Zambada García will spend life in prison. He had been charged with running a criminal network that sold cocaine, heroin and other illegal drugs.`\
+https://nytimes.com/2025/08/25/nyregion/el-mayo-sinaloa-drug-trafficking-plea.html
+
+**Forest bid rejected for Strasbourg winger Bakwa**\
+`The 22-year-old made 30 appearances last season and would be Forest's ninth signing of the summer.`\
+https://nytimes.com/athletic/6574326/2025/08/25/dilane-bakwa-nottingham-forest-transfer/
+
 **K-Pop Fans Sing the Demons Away**\
 `Kids and their parents celebrated their fandom at a singalong showing of “KPop Demon Hunters.”`\
 https://nytimes.com/2025/08/25/style/kpop-demon-hunters-singalong-paris-theater-nyc.html
