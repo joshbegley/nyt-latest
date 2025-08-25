@@ -1,3 +1,11 @@
+**National Guard Patrols Begin to Carry Weapons in D.C.**\
+`More than 2,200 troops were deployed in Washington as of Sunday, a Guard spokesman said.`\
+https://nytimes.com/2025/08/24/us/politics/national-guard-weapons-guns-dc.html
+
+**Eagles reacquire Fred Johnson, deal Darian Kinnard to Packers: Sources**\
+`The Eagles made two trades on Sunday as they attempt to shore up their offensive line depth while also maintaining draft capital.`\
+https://nytimes.com/athletic/6573312/2025/08/24/eagles-trade-fred-johnson-darian-kinnard/
+
 **Eagles reacquire Fred Johnson, deal Darian Kinnard to Packers: Source**\
 `The Eagles made two trades on Sunday as they attempt to shore up their offensive line depth while also maintaining draft capital.`\
 https://nytimes.com/athletic/6573312/2025/08/24/eagles-trade-fred-johnson-darian-kinnard/
