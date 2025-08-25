@@ -1,3 +1,11 @@
+**West Ham supporters group to contact police over protest against club ownership**\
+`David Sullivan, Karren Brady, and Daniel Kretinsky and the rest of the West Ham board have come under increased pressure in recent months.`\
+https://nytimes.com/athletic/6573775/2025/08/25/west-ham-protest-supporters-owners-petition/
+
+**Fantasy baseball cheat sheet: Jo Adell's power and more THE BAT X insights**\
+`The Athletic and THE BAT X teamed up to offer a fantasy baseball cheat sheet to help fantasy managers as playoffs near. `\
+https://nytimes.com/athletic/6573833/2025/08/25/fantasy-baseball-the-bat-x-jo-adell/
+
 **In This Novel, Chasing a Scoop Leads to Bad News in a War Zone**\
 `“Vulture,” by Phoebe Greenwood, follows a journalist’s downward spiral in Gaza.`\
 https://nytimes.com/2025/08/25/books/review/phoebe-greenwood-vulture.html
