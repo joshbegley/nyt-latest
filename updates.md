@@ -1,3 +1,7 @@
+**Tommy Fleetwood waited years for his first PGA Tour win. Here our 4 lessons from his career**\
+`“I always try to find the positives,” Fleetwood said. “I’ll try to think the right way, speak the right way and do the right things."`\
+https://nytimes.com/athletic/6574322/2025/08/25/tommy-fleetwood-waited-years-for-his-first-pga-tour-win-our-4-favorite-lessons-from-his-career/
+
 **Maurice Tempelsman, Diamond Magnate and Jackie Onassis’s Companion, Dies at 95**\
 `A private and politically connected gem merchant, he was thrust into the public spotlight when his personal relationship with the former first lady became known in the late 1980s.`\
 https://nytimes.com/2025/08/25/business/maurice-tempelsman-dead.html
