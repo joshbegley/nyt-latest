@@ -1,3 +1,21 @@
+**The Briefing: Newcastle 2 Liverpool 3 - Rio Ngumoha scores 100th-minute winner, injuries mount for Howe, was Gordon red card deserved?**\
+`Chris Waugh and Andy Jones analyse the key moments from Monday night's game at St James' Park `\
+https://nytimes.com/athletic/6573028/2025/08/25/newcastle-liverpool-premier-league-result-analysis/
+
+**Sheila R. Canby, Curator at the Met Who Humanized Islam, Dies at 76**\
+`In overseeing the expansion of the Islamic art galleries at the Metropolitan Museum, she countered the hostile narratives about the Muslim world that arose after 9/11.`\
+https://nytimes.com/2025/08/25/arts/sheila-r-canby-dead.html
+
+**Submit a question for Stewart Mandel's College Football Mailbag**\
+`<p>Do you have that Week 1 pep in your step this week? Like order is being restored?</p>
+<p>Leave your questions here. Please include your city.</p>
+`\
+https://nytimes.com/athletic/6574870/2025/08/25/submit-a-question-for-stewart-mandels-college-football-mailbag-312/
+
+**In Private Deal, the D.N.C. Covered $20 Million in Harris Bills Post-Election**\
+`The former vice president has been raising the funds to pay all of those expenses and to keep the party whole financially. But small donors making those contributions have been left in the dark.`\
+https://nytimes.com/2025/08/25/us/politics/kamala-harris-dnc-fundraising.html
+
 **Mediterranean Diet Reduces Diabetes Risk, Study Shows**\
 `Strong evidence suggests that following the diet, cutting calories and exercising lowers the chances of developing diabetes for those with metabolic risk factors.`\
 https://nytimes.com/2025/08/25/well/mediterranean-diet-diabetes.html
@@ -21,20 +39,4 @@ https://nytimes.com/athletic/6574755/2025/08/25/texans-joe-mixon-out-at-least-fo
 **Trump Enlists More Agencies in His Crackdown on Washington, D.C.**\
 `The president ordered the federal transportation and housing departments to examine whether city officials and some landlords are following public safety rules.`\
 https://nytimes.com/2025/08/25/us/politics/trump-dc-dot-hud.html
-
-**Daniil Medvedev, tennis' walking Rorschach test, asks the U.S. Open what it sees**\
-`Medvedev's tentacular game style and relish for the dark arts make him an acid test for how fans view tennis.`\
-https://nytimes.com/athletic/6574435/2025/08/25/tennis-medvedev-us-open-umpire-camera-bonzi/
-
-**After U.S. Takes Stake in Intel, Trump Pledges ‘Many More’ Deals**\
-`The president said he hoped to “get as much as I can,” signaling a shift in the relationship between government and private business.`\
-https://nytimes.com/2025/08/25/us/politics/trump-intel-economy-strategy.html
-
-**Israel’s Gaza Campaign Is Making It a Pariah State**\
-`Israel is well on its way to making itself a pariah state — to the point that Israelis will think twice about speaking Hebrew when traveling abroad.`\
-https://nytimes.com/2025/08/25/opinion/international-world/friedman-israel-gaza-hamas.html
-
-**Trump Repeatedly Praises North Korea’s Dictator in Meeting With South’s President**\
-`In the Oval Office, President Trump met his South Korean counterpart as the relationship between their countries has been strained.`\
-https://nytimes.com/2025/08/25/us/politics/trump-north-south-korea.html
 
