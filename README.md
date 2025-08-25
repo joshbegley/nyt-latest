@@ -1,3 +1,11 @@
+**Trump Once Praised the Black History Museum That He Is Now Attacking**\
+`President Trump’s 2017 tour of the Smithsonian’s National Museum of African American History and Culture seems a distant memory.`\
+https://nytimes.com/2025/08/25/us/politics/trump-smithsonian-black-history.html
+
+**Panthers make move at kicker, but still have a lot to figure out — including Adam Thielen**\
+`The Panthers released Matthew Wright on Monday, paving the way for rookie Ryan Fitzgerald to be the team's Week 1 kicker.`\
+https://nytimes.com/athletic/6574795/2025/08/25/panthers-roster-kicker-ryan-fitzgerald-adam-thielen/
+
 **Despite Trump’s Tough Talk, Flag Burning Is Protected Speech**\
 `The president wants to prosecute protesters who desecrate the American flag, but his order concedes that such protests are typically covered by the First Amendment.`\
 https://nytimes.com/2025/08/25/us/politics/trump-flag-burning-executive-order.html
@@ -29,14 +37,4 @@ https://nytimes.com/athletic/6573028/2025/08/25/newcastle-liverpool-premier-leag
 **Sheila R. Canby, Curator at the Met Who Humanized Islam, Dies at 76**\
 `In overseeing the expansion of the Islamic art galleries at the Metropolitan Museum, she countered hostile narratives about the Muslim world that arose after 9/11.`\
 https://nytimes.com/2025/08/25/arts/sheila-r-canby-dead.html
-
-**Submit a question for Stewart Mandel's College Football Mailbag**\
-`<p>Do you have that Week 1 pep in your step this week? Like order is being restored?</p>
-<p>Leave your questions here. Please include your city.</p>
-`\
-https://nytimes.com/athletic/6574870/2025/08/25/submit-a-question-for-stewart-mandels-college-football-mailbag-312/
-
-**In Private Deal, the D.N.C. Covered $20 Million in Harris Bills Post-Election**\
-`The former vice president has been raising the funds to pay all of those expenses and to keep the party whole financially. But small donors making those contributions have been left in the dark.`\
-https://nytimes.com/2025/08/25/us/politics/kamala-harris-dnc-fundraising.html
 
