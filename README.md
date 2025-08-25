@@ -1,3 +1,7 @@
+**Newcastle v Liverpool EPL preview: Kick-off time, where to watch and prediction**\
+`Not much context to add to this one, really.`\
+https://nytimes.com/athletic/6572708/2025/08/25/newcastle-liverpool-premier-league-preview-analysis-tv/
+
 **Spelling Bee Forum**\
 `Feeling stuck on today’s puzzle? We can help.`\
 https://nytimes.com/2025/08/25/crosswords/spelling-bee-forum.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/25/opinion/immigration-farmworkers-agriculture-groce
 **The New York Times in Print for Monday, Aug. 25, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/08/25/todays-new-york-times
-
-**‘Thursday Murder Club,’ Plus 6 Things to Watch on TV This Week**\
-`The book adaptation of the mystery series comes to Netflix, and Peacock airs the “Love Island USA” reunion.`\
-https://nytimes.com/2025/08/25/arts/television/thursday-murder-club-plus-6-things-to-watch-on-tv-this-week.html
 
