@@ -1,3 +1,7 @@
+**Newcastle v Liverpool EPL preview: Kick-off time, where to watch and prediction**\
+`Not much context to add to this one, really.`\
+https://nytimes.com/athletic/6572708/2025/08/25/newcastle-liverpool-premier-league-preview-analysis-tv/
+
 **Spelling Bee Forum**\
 `Feeling stuck on today’s puzzle? We can help.`\
 https://nytimes.com/2025/08/25/crosswords/spelling-bee-forum.html
