@@ -1,3 +1,7 @@
+**Expecting on the Front Lines: Motherhood in Ukraine’s Military**\
+`Pregnant Ukrainian soldiers say they are fighting for the future of their country and for their children.`\
+https://nytimes.com/2025/08/25/world/europe/ukraine-military-war-pregnancy.html
+
 **Arsenal working on deal to sign Hincapie from Bayer Leverkusen**\
 `Hincapie’s preference is to join Arsenal and the Premier League side are ready to push for him, should departures materialise.`\
 https://nytimes.com/athletic/6573642/2025/08/25/arsenal-hincapie-transfer-news/
