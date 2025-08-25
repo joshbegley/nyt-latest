@@ -1,3 +1,11 @@
+**Kyle Hendricks is a reminder the Cubs will go only as far as their pitching takes them**\
+`Hendricks' legacy in Chicago endures — defined by intellect, precision and a World Series run that transcended generations.`\
+https://nytimes.com/athletic/6573318/2025/08/24/kyle-hendricks-angeles-cubs-pitching/
+
+**Dalton Rushing, Dodgers offense finally show life to stave off sweep in San Diego**\
+`Rushing's homer on a full-count slider from Jeremiah Estrada was only his fourth hit off a breaking ball in 34 at-bats.`\
+https://nytimes.com/athletic/6573331/2025/08/24/dalton-rushing-dodgers-offense-stave-off-sweep-san-diego/
+
 **Twins' top prospect Walker Jenkins promoted to Triple-A St. Paul**\
 `The No. 5 pick in the 2023 draft is now just one step from the big leagues as a 20-year-old.`\
 https://nytimes.com/athletic/6573321/2025/08/24/twins-top-prospect-walker-jenkins-promoted-triple-a/

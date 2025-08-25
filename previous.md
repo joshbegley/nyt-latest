@@ -1,3 +1,11 @@
+**Kyle Hendricks is a reminder the Cubs will go only as far as their pitching takes them**\
+`Hendricks' legacy in Chicago endures — defined by intellect, precision and a World Series run that transcended generations.`\
+https://nytimes.com/athletic/6573318/2025/08/24/kyle-hendricks-angeles-cubs-pitching/
+
+**Dalton Rushing, Dodgers offense finally show life to stave off sweep in San Diego**\
+`Rushing's homer on a full-count slider from Jeremiah Estrada was only his fourth hit off a breaking ball in 34 at-bats.`\
+https://nytimes.com/athletic/6573331/2025/08/24/dalton-rushing-dodgers-offense-stave-off-sweep-san-diego/
+
 **Twins' top prospect Walker Jenkins promoted to Triple-A St. Paul**\
 `The No. 5 pick in the 2023 draft is now just one step from the big leagues as a 20-year-old.`\
 https://nytimes.com/athletic/6573321/2025/08/24/twins-top-prospect-walker-jenkins-promoted-triple-a/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6573199/2025/08/24/ny-yankees-anthony-volpe-benched
 **Livestream Shows M.M.A. Fighter Raja Jackson Assaulting Pro Wrestler**\
 `The footage showed Mr. Jackson, son of the former UFC champion Quinton Jackson, punching the wrestler Stuart Smith at least 20 times.`\
 https://nytimes.com/2025/08/24/us/raja-jackson-wrestler-assault.html
-
-**Shade of Green**\
-`Ryan Mathiason keeps us on edge.`\
-https://nytimes.com/2025/08/24/crosswords/daily-puzzle-2025-08-25.html
-
-**Fleetwood claims Tour Championship for a dramatic first PGA Tour win**\
-`Fleetwood had 30 top-five finishes in 164 PGA Tour starts, but now he has a win.`\
-https://nytimes.com/athletic/6573108/2025/08/24/tour-championship-2025-tommy-fleetwood-win-pga-tour/
 
