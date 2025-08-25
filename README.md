@@ -1,3 +1,7 @@
+**Bengals, Trey Hendrickson agree to reworked 1-year deal to end holdout**\
+`The NFL's reigning sack leader comes to terms in Cincinnati after a contentious offseason.`\
+https://nytimes.com/athletic/6547675/2025/08/25/trey-hendrickson-contract-bengals/
+
 **Judge Allows Blocking of Funds to Maine Abortion Providers**\
 `In a blunt ruling, the federal judge wrote that he would not thwart Republican lawmakers’ bid to pull Medicaid funds from organizations that perform abortions.`\
 https://nytimes.com/2025/08/25/us/politics/maine-judge-abortion-funding-blocked.html
@@ -35,8 +39,4 @@ https://nytimes.com/2025/08/25/briefing/israel-gaza-strike-korea-trump-lee.html
 **SpaceX Readies for Critical 10th Test Launch of Mars Rocket**\
 `Elon Musk’s company is trying again to overcome setbacks faced by its Starship prototype after a Sunday night scrub of a test flight.`\
 https://nytimes.com/2025/08/25/science/spacex-starship-launch.html
-
-**‘A Partner in Crime’ and, Now, in Love**\
-`State Representative Leigh Finke of Minnesota and Deborah Fox found kindred spirits in each other when they met last year in Washington.`\
-https://nytimes.com/2025/08/25/fashion/weddings/leigh-finke-transgender-minnesota-lawmaker-married-deborah-fox.html
 
