@@ -1,3 +1,7 @@
+**Governor Pritzker Challenges Trump’s Threat to Send Troops to Chicago**\
+`The Illinois governor pointed out that eight of the 10 states with the highest homicide rates are led by Republicans.`\
+https://nytimes.com/2025/08/25/us/politics/pritzker-chicago-trump-national-guard.html
+
 **Netflix to stream 2026 World Baseball Classic in Japan**\
 `The partnership with MLB is the start of a relationship that is expected to grow soon.`\
 https://nytimes.com/athletic/6574987/2025/08/25/netflix-world-baseball-classic/
