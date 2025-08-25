@@ -1,3 +1,7 @@
+**FEMA Employees Warn That Trump Is Gutting Disaster Response**\
+`After Hurricane Katrina, Congress passed a law to strengthen the nation’s disaster response. FEMA employees say the Trump administration has reversed that progress.`\
+https://nytimes.com/2025/08/25/climate/fema-employees-letter-trump-katrina.html
+
 **France Summons U.S. Ambassador Over Antisemitism Comments**\
 `The new American envoy, Charles Kushner, said that France was not doing enough to protect its Jewish citizens, a charge the government in Paris said it “firmly refutes.”`\
 https://nytimes.com/2025/08/25/world/europe/us-ambassador-kushner-france-antisemitism.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6573685/2025/08/25/usmnt-christian-pulisic-ac-milan
 **Orsted Stock Plummets to Record Low After Trump Halts U.S. Wind Farm**\
 `An order to stop work on the Revolution Wind project off Rhode Island further rattled the beleaguered Danish company.`\
 https://nytimes.com/2025/08/25/business/orsted-trump-wind-farm.html
-
-**As Indiana Fever await Caitlin Clark's return, can they hold on for playoff push?**\
-`The Fever need immediate stronger performances from its other core players. `\
-https://nytimes.com/athletic/6573534/2025/08/25/indiana-fever-caitlin-clark-wnba-playoff-contention/
 

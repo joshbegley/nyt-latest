@@ -1,3 +1,7 @@
+**FEMA Employees Warn That Trump Is Gutting Disaster Response**\
+`After Hurricane Katrina, Congress passed a law to strengthen the nation’s disaster response. FEMA employees say the Trump administration has reversed that progress.`\
+https://nytimes.com/2025/08/25/climate/fema-employees-letter-trump-katrina.html
+
 **France Summons U.S. Ambassador Over Antisemitism Comments**\
 `The new American envoy, Charles Kushner, said that France was not doing enough to protect its Jewish citizens, a charge the government in Paris said it “firmly refutes.”`\
 https://nytimes.com/2025/08/25/world/europe/us-ambassador-kushner-france-antisemitism.html
