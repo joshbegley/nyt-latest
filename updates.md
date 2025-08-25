@@ -1,3 +1,7 @@
+**100 Push-Ups and 50 Pull-Ups in Under 10 Minutes. What Could Go Wrong?**\
+`Fitness experts caution against jumping into a difficult routine suggested by Robert F. Kennedy Jr. and Pete Hegseth.`\
+https://nytimes.com/2025/08/25/style/hegseth-rfk-jr-fitness-challenge.html
+
 **Elon Musk’s xAI Sues Apple Over Claims It Favors OpenAI**\
 `Mr. Musk’s artificial intelligence company, xAI, claimed that its Grok chatbot app was being artificially suppressed in Apple’s App Store.`\
 https://nytimes.com/2025/08/25/technology/xai-sues-apple.html
