@@ -1,3 +1,7 @@
+**Kevin O'Leary part of group behind record $12.9 million basketball card purchase**\
+`The 'Shark Tank' star announced his involvement in the purchase during an interview on Monday`\
+https://nytimes.com/athletic/6573945/2025/08/25/jordan-bryant-card-oleary/
+
 **State of the Penguins: The long, winding road of a rebuild that's looking for a spark**\
 `A look at where the Penguins stand with training camp less than a month away and the 2025-26 season fast approaching.`\
 https://nytimes.com/athletic/6530137/2025/08/25/penguins-rebuild-roster-2025-26-nhl-season/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6573460/2025/08/25/fantasy-football-zero-rb-draft-t
 **In Arizona, the Kyler Murray question that never goes away inches closer to an answer**\
 `Franchise QB or on the wrong path? It's the Murray storyline that persists. With an upgraded defense, the Cardinals might get their answer.`\
 https://nytimes.com/athletic/6573495/2025/08/25/kyler-murray-arizona-cardinals-question-franchise-qb/
-
-**West Ham supporters group to contact police over protest against club ownership**\
-`David Sullivan, Karren Brady, and Daniel Kretinsky and the rest of the West Ham board have come under increased pressure in recent months.`\
-https://nytimes.com/athletic/6573775/2025/08/25/west-ham-protest-supporters-owners-petition/
 
