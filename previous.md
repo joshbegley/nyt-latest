@@ -1,3 +1,11 @@
+**France Summons U.S. Ambassador Over Antisemitism Comments**\
+`The new American envoy, Charles Kushner, said that France was not doing enough to protect its Jewish citizens, a charge the government in Paris said it “firmly refutes.”`\
+https://nytimes.com/2025/08/25/world/europe/us-ambassador-kushner-france-antisemitism.html
+
+**Trump Administration Live Updates: Kilmar Abrego Garcia Meets With Immigration Authorities**\
+``\
+https://nytimes.com/live/2025/08/25/us/trump-news
+
 **Inside Real Madrid: Vinicius Jr concerns, Rodrygo latest, Ceballos' 'last dance'**\
 `The latest in our weekly look behind the scenes at Real Madrid has an update on Rodrygo's future at the club and much more`\
 https://nytimes.com/athletic/6573575/2025/08/25/inside-real-madrid-vinicius-jr-rodrygo-ceballos-alonso/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/08/25/business/orsted-trump-wind-farm.html
 **As Indiana Fever await Caitlin Clark's return, can they hold on for playoff push?**\
 `The Fever need immediate stronger performances from its other core players. `\
 https://nytimes.com/athletic/6573534/2025/08/25/indiana-fever-caitlin-clark-wnba-playoff-contention/
-
-**Inside Barca: Rashford's first start, Casado's future and when will they return to Camp Nou?**\
-`A look at the key talking points this week at Barca in the latest of our new weekly series`\
-https://nytimes.com/athletic/6573697/2025/08/25/inside-barcelona-rashford-casado-camp-nou/
-
-**Astros rookie Cam Smith is handling failure 'better than anybody'**\
-`Failure of some degree seemed inevitable for someone who entered the season with 32 games of minor-league experience`\
-https://nytimes.com/athletic/6573184/2025/08/25/houston-astros-rookie-cam-smith-development/
 
