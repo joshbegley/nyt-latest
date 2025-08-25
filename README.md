@@ -1,3 +1,7 @@
+**Commanders, Terry McLaurin agree to 3-year, $96 million extension**\
+`McLaurin caught 82 passes for 1,096 yards and scored 13 touchdowns in the 2024 regular season.`\
+https://nytimes.com/athletic/6432712/2025/08/25/terry-mclaurin-commanders-contract-extension/
+
 **Luis Matos is on another one of his tears, and it's just what the Giants need**\
 `Matos has shown flashes of this kind of production. The Giants need him, or another young player, to make a sustained breakthrough soon.`\
 https://nytimes.com/athletic/6573429/2025/08/25/sf-giants-luis-matos-development/
@@ -10,7 +14,7 @@ https://nytimes.com/2025/08/25/science/quadruple-star-system.html
 `Borussia Dortmund CEO for sport, Lars Ricken, confirmed the conversation took place after Saturday's draw with St Pauli.`\
 https://nytimes.com/athletic/6573785/2025/08/25/jobe-bellingham-father-dortmund-sporting-director/
 
-**Kneecap Cancels U.S. Tour, Calling Terrorism Charge a ‘Witch Hunt’**\
+**Kneecap Cancels U.S. Tour, Calling U.K. Terrorism Charge a ‘Witch Hunt’**\
 `One member of the Northern Irish rap group, which is known for its anti-Israel and pro-Palestinian views, is accused of displaying a flag supporting Hezbollah.`\
 https://nytimes.com/2025/08/25/arts/music/kneecap-cancels-us-tour.html
 
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/25/business/housing-market-builders-demand.html
 **How Did Jillian Michaels End Up Here?**\
 `America’s toughest trainer was a proud Hollywood liberal. Now, she’s become a defining voice of the MAHA era.`\
 https://nytimes.com/2025/08/25/well/jillian-michaels-profile.html
-
-**A Lemony Zucchini Pasta Boosted by Miso**\
-`Salting and searing your squash keeps it from turning into mush; a silky miso-pecorino sauce balances its sweetness.`\
-https://nytimes.com/2025/08/25/dining/a-lemony-zucchini-pasta-boosted-by-miso.html
 
