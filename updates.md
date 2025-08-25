@@ -1,3 +1,7 @@
+**The Bolton Raid and Trump’s ‘Justice’**\
+`Readers suspect motives for the F.B.I. raid of John Bolton’s home. Also: Why authoritarians don’t like science.`\
+https://nytimes.com/2025/08/25/opinion/trump-fbi-boltton-raid.html
+
 **Founder of Sinaloa Cartel Pleads Guilty to Drug Trafficking**\
 `Ismael Zambada García will spend life in prison. He had been charged with running a criminal network that sold cocaine, heroin and other illegal drugs.`\
 https://nytimes.com/2025/08/25/nyregion/el-mayo-sinaloa-drug-trafficking-plea.html

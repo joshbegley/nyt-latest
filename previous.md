@@ -1,3 +1,7 @@
+**The Bolton Raid and Trump’s ‘Justice’**\
+`Readers suspect motives for the F.B.I. raid of John Bolton’s home. Also: Why authoritarians don’t like science.`\
+https://nytimes.com/2025/08/25/opinion/trump-fbi-boltton-raid.html
+
 **Founder of Sinaloa Cartel Pleads Guilty to Drug Trafficking**\
 `Ismael Zambada García will spend life in prison. He had been charged with running a criminal network that sold cocaine, heroin and other illegal drugs.`\
 https://nytimes.com/2025/08/25/nyregion/el-mayo-sinaloa-drug-trafficking-plea.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/25/dining/vegan-chocolate-chip-cookies.html
 **Maurice Tempelsman, Diamond Magnate and Jackie Onassis’s Companion, Dies at 95**\
 `A private and politically connected gem merchant, he was thrust into the public spotlight when his personal relationship with the former first lady became known in the late 1980s.`\
 https://nytimes.com/2025/08/25/business/maurice-tempelsman-dead.html
-
-**Fantasy football dynasty league sleepers: In search of the next Bucky Irving**\
-`Jeff Haverlack looks at the most likely Day 3 NFL draft picks to make an early fantasy splash, like Puka Nacua and Bucky Irving before them.`\
-https://nytimes.com/athletic/6574218/2025/08/25/dynasty-fantasy-football-sleepers-puka-bucky/
 
