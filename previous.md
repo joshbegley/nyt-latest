@@ -1,3 +1,7 @@
+**The Windup: Big Dumper’s next milestones?**\
+`Welcome to The Windup, The Athletic's MLB newsletter.`\
+https://nytimes.com/athletic/6573554/2025/08/25/cal-raleigh-home-runs-milestones-the-windup/
+
 **The best fantasy football running back targets for a ZeroRB draft strategy**\
 `Michael Salfino lays out his favorite targets in the mid-to-late rounds for those looking to deploy a ZeroRB draft strategy.`\
 https://nytimes.com/athletic/6573460/2025/08/25/fantasy-football-zero-rb-draft-targets/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/25/world/europe/germany-american-spy-china.html
 **Why Morgan Gautrat has moved to Newcastle: 'I've loved joining places I could help make better'**\
 `The USWNT midfielder has two world titles and is a reigning NWSL champion, so why move to WSL 2?`\
 https://nytimes.com/athletic/6571017/2025/08/25/morgan-gautrat-newcastle-united-interview/
-
-**Visma Lease-A-Bike's Vuelta squad have multiple bikes stolen, police investigating**\
-`The team explained “several” bikes had been stolen but did not disclose the exact number.`\
-https://nytimes.com/athletic/6573778/2025/08/25/vuelta-a-espana-visma-bikes-stolen/
 

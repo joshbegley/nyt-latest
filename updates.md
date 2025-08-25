@@ -1,3 +1,7 @@
+**The Windup: Big Dumper’s next milestones?**\
+`Welcome to The Windup, The Athletic's MLB newsletter.`\
+https://nytimes.com/athletic/6573554/2025/08/25/cal-raleigh-home-runs-milestones-the-windup/
+
 **The best fantasy football running back targets for a ZeroRB draft strategy**\
 `Michael Salfino lays out his favorite targets in the mid-to-late rounds for those looking to deploy a ZeroRB draft strategy.`\
 https://nytimes.com/athletic/6573460/2025/08/25/fantasy-football-zero-rb-draft-targets/
