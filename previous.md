@@ -1,3 +1,7 @@
+**Meek: Starting Bryce Underwood? The freshman made himself Michigan's only choice**\
+`Starting a freshman at QB — even the nation's No. 1 recruit — is never a sure thing, but Underwood made the choice easy for Michigan.`\
+https://nytimes.com/athletic/6574610/2025/08/25/bryce-underwood-michigan-starting-quarterback/
+
 **Raiders reject Jakobi Meyers trade request as extension talks stall: Source**\
 `Meyers is in the final year of his deal and is set to make a base salary of $10.5 million this season.`\
 https://nytimes.com/athletic/6574626/2025/08/25/jakobi-meyers-trade-request-raiders/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6574242/2025/08/25/college-football-week-1-odds-ohi
 **The Bolton Search and Trump’s ‘Justice’**\
 `Readers suspect motives for the F.B.I. raid of John Bolton’s home. Also: Why authoritarians don’t like science.`\
 https://nytimes.com/2025/08/25/opinion/trump-fbi-boltton-raid.html
-
-**Founder of Sinaloa Cartel Pleads Guilty to Drug Trafficking**\
-`Ismael Zambada García will spend life in prison. He had been charged with running a criminal network that sold cocaine, heroin and other illegal drugs.`\
-https://nytimes.com/2025/08/25/nyregion/el-mayo-sinaloa-drug-trafficking-plea.html
 
