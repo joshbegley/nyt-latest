@@ -1,3 +1,15 @@
+**California Farms Feed America. They Can’t Do It Without Immigrants.**\
+`We need a bipartisan solution that ensures a stable farm work force and protects farmworker families and the future of American agriculture.`\
+https://nytimes.com/2025/08/25/opinion/immigration-farmworkers-agriculture-groceries.html
+
+**The New York Times in Print for Monday, Aug. 25, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/08/25/todays-new-york-times
+
+**‘Thursday Murder Club,’ Plus 6 Things to Watch on TV This Week**\
+`The book adaptation of the mystery series comes to Netflix, and Peacock airs the “Love Island USA” reunion.`\
+https://nytimes.com/2025/08/25/arts/television/thursday-murder-club-plus-6-things-to-watch-on-tv-this-week.html
+
 **Garnacho, Jackson, Zinchenko and the other players Premier League clubs are trying to transfer**\
 `Billions have been spent but moving unwanted players on is now a necessity for many clubs before a transfer window closes`\
 https://nytimes.com/athletic/6568993/2025/08/25/garnacho-jackson-zinchenko-and-the-other-players-premier-league-clubs-are-trying-to-transfer/
