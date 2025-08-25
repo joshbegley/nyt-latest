@@ -1,3 +1,11 @@
+**Fantasy football dynasty league sleepers: In search of the next Bucky Irving**\
+`Jeff Haverlack looks at the most likely Day 3 NFL draft picks to make an early fantasy splash, like Puka Nacua and Bucky Irving before them.`\
+https://nytimes.com/athletic/6574218/2025/08/25/dynasty-fantasy-football-sleepers-puka-bucky/
+
+**Tommy Fleetwood waited years for his first PGA Tour win. Our 4 favorite lessons from his career**\
+`“I always try to find the positives,” Fleetwood said. “I’ll try to think the right way, speak the right way and do the right things."`\
+https://nytimes.com/athletic/6574322/2025/08/25/tommy-fleetwood-waited-years-for-his-first-pga-tour-win-our-4-favorite-lessons-from-his-career/
+
 **100 Push-Ups and 50 Pull-Ups in Under 10 Minutes. What Could Go Wrong?**\
 `Fitness experts caution against jumping into a difficult routine suggested by Robert F. Kennedy Jr. and Pete Hegseth.`\
 https://nytimes.com/2025/08/25/style/hegseth-rfk-jr-fitness-challenge.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/08/25/business/denmark-taxes-coffee-chocolate.html
 **Commanders, Terry McLaurin agree to 3-year, $96 million extension**\
 `McLaurin caught 82 passes for 1,096 yards and scored 13 touchdowns in the 2024 regular season.`\
 https://nytimes.com/athletic/6432712/2025/08/25/terry-mclaurin-commanders-contract-extension/
-
-**Luis Matos is on another one of his tears, and it's just what the Giants need**\
-`Matos has shown flashes of this kind of production. The Giants need him, or another young player, to make a sustained breakthrough soon.`\
-https://nytimes.com/athletic/6573429/2025/08/25/sf-giants-luis-matos-development/
-
-**Scientists Find a Quadruple Star System in Our Cosmic Backyard**\
-`Two of the objects in the arrangement are cold brown dwarfs, which will serve as a benchmark for others throughout the Milky Way.`\
-https://nytimes.com/2025/08/25/science/quadruple-star-system.html
 
