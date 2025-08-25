@@ -1,3 +1,7 @@
+**Eagles reacquire Fred Johnson, deal Darian Kinnard to Packers: Source**\
+`The Eagles made two trades on Sunday as they attempt to shore up their offensive line depth while also maintaining draft capital.`\
+https://nytimes.com/athletic/6573312/2025/08/24/eagles-trade-fred-johnson-darian-kinnard/
+
 **Kyle Hendricks is a reminder the Cubs will go only as far as their pitching takes them**\
 `Hendricks' legacy in Chicago endures — defined by intellect, precision and a World Series run that transcended generations.`\
 https://nytimes.com/athletic/6573318/2025/08/24/kyle-hendricks-angeles-cubs-pitching/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6573087/2025/08/24/braves-takeaways-atlanta-contend
 **Yankees' Anthony Volpe benched in Red Sox series finale**\
 `Manager Aaron Boone didn’t guarantee that Volpe, who is healthy, would start on Monday either.`\
 https://nytimes.com/athletic/6573199/2025/08/24/ny-yankees-anthony-volpe-benched/
-
-**Livestream Shows M.M.A. Fighter Raja Jackson Assaulting Pro Wrestler**\
-`The footage showed Mr. Jackson, son of the former UFC champion Quinton Jackson, punching the wrestler Stuart Smith at least 20 times.`\
-https://nytimes.com/2025/08/24/us/raja-jackson-wrestler-assault.html
 

@@ -1,3 +1,7 @@
+**Eagles reacquire Fred Johnson, deal Darian Kinnard to Packers: Source**\
+`The Eagles made two trades on Sunday as they attempt to shore up their offensive line depth while also maintaining draft capital.`\
+https://nytimes.com/athletic/6573312/2025/08/24/eagles-trade-fred-johnson-darian-kinnard/
+
 **This Is the End of China’s Once Mightiest Property Firm**\
 `China Evergrande, set to be delisted from the Hong Kong Stock Exchange on Monday, leaves behind a giant pile of debt and a long line of desperate creditors.`\
 https://nytimes.com/2025/08/24/business/china-evergrande-delisted.html
