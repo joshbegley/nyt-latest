@@ -1,3 +1,11 @@
+**House Republicans Seek Review of D.C. Crime Data**\
+`A G.O.P. request for information and interviews comes amid Trump administration claims that crime in the capital is worse than it appears.`\
+https://nytimes.com/2025/08/25/us/politics/house-republicans-crime-washington.html
+
+**College football Week 1 odds: Ohio State favored against Texas in massive season opener**\
+`Week 1 has a number of massive matchups to kick off the 2025 college football season with a bang. Which teams are expected to win?`\
+https://nytimes.com/athletic/6574242/2025/08/25/college-football-week-1-odds-ohio-state-texas/
+
 **The Bolton Raid and Trump’s ‘Justice’**\
 `Readers suspect motives for the F.B.I. raid of John Bolton’s home. Also: Why authoritarians don’t like science.`\
 https://nytimes.com/2025/08/25/opinion/trump-fbi-boltton-raid.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/08/25/us/politics/trump-cashless-bail.html
 **Abrego Garcia Faces Re-Deportation After ICE Arrests Him Again**\
 `Kilmar Armando Abrego Garcia, the immigrant who was wrongfully deported to El Salvador in March, was detained on Monday at an Immigration and Customs Enforcement office in Baltimore, where he appeared for a check-in.`\
 https://nytimes.com/video/us/politics/100000010359783/kilmar-abrego-garcia-ice.html
-
-**These Cookies Are So Easy a Toddler Made Them**\
-`Adapted from LB. Kitchen in Portland, Maine, this vegan, gluten-free recipe comes together in one bowl, no mixer needed.`\
-https://nytimes.com/2025/08/25/dining/vegan-chocolate-chip-cookies.html
-
-**Maurice Tempelsman, Diamond Magnate and Jackie Onassis’s Companion, Dies at 95**\
-`A private and politically connected gem merchant, he was thrust into the public spotlight when his personal relationship with the former first lady became known in the late 1980s.`\
-https://nytimes.com/2025/08/25/business/maurice-tempelsman-dead.html
 

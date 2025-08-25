@@ -1,3 +1,11 @@
+**House Republicans Seek Review of D.C. Crime Data**\
+`A G.O.P. request for information and interviews comes amid Trump administration claims that crime in the capital is worse than it appears.`\
+https://nytimes.com/2025/08/25/us/politics/house-republicans-crime-washington.html
+
+**College football Week 1 odds: Ohio State favored against Texas in massive season opener**\
+`Week 1 has a number of massive matchups to kick off the 2025 college football season with a bang. Which teams are expected to win?`\
+https://nytimes.com/athletic/6574242/2025/08/25/college-football-week-1-odds-ohio-state-texas/
+
 **The Bolton Raid and Trump’s ‘Justice’**\
 `Readers suspect motives for the F.B.I. raid of John Bolton’s home. Also: Why authoritarians don’t like science.`\
 https://nytimes.com/2025/08/25/opinion/trump-fbi-boltton-raid.html
