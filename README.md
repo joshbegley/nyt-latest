@@ -1,3 +1,7 @@
+**Governor Pritzker Challenges Trump’s Threat to Send Troops to Chicago**\
+`The Illinois governor pointed out that eight of the 10 states with the highest homicide rates are led by Republicans.`\
+https://nytimes.com/2025/08/25/us/politics/pritzker-chicago-trump-national-guard.html
+
 **Netflix to stream 2026 World Baseball Classic in Japan**\
 `The partnership with MLB is the start of a relationship that is expected to grow soon.`\
 https://nytimes.com/athletic/6574987/2025/08/25/netflix-world-baseball-classic/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/25/us/politics/maine-judge-abortion-funding-blocked.
 **Lions waive QB Hendon Hooker, will turn to Kyle Allen as backup: Reports**\
 `The Lions drafted Hooker in the third round in 2023, but he hasn't developed as they hoped he would to become Jared Goff's backup.`\
 https://nytimes.com/athletic/6574768/2025/08/25/lions-hendon-hooker-waived-quarterback/
-
-**The Briefing: Newcastle 2 Liverpool 3 -– Ngumoha scores 100th-minute winner, injuries mount for Howe, was Gordon red card deserved?**\
-`Chris Waugh and Andy Jones analyse the key moments from Monday night's game at St James' Park `\
-https://nytimes.com/athletic/6573028/2025/08/25/newcastle-liverpool-premier-league-result-analysis/
 
