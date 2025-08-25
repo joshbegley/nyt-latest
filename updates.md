@@ -1,3 +1,7 @@
+**Howe: Joelinton and Tonali injuries a 'huge blow' for Newcastle**\
+`Howe has lost four starters ahead of Newcastle's next game against Leeds. `\
+https://nytimes.com/athletic/6574894/2025/08/25/eddie-howe-joelinton-sandro-tonali-injuries/
+
 **Governor Pritzker Challenges Trump’s Threat to Send Troops to Chicago**\
 `The Illinois governor pointed out that eight of the 10 states with the highest homicide rates are led by Republicans.`\
 https://nytimes.com/2025/08/25/us/politics/pritzker-chicago-trump-national-guard.html
