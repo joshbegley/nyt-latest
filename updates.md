@@ -1,3 +1,7 @@
+**Kevin O'Leary part of group behind record $12.9 million basketball card purchase**\
+`The 'Shark Tank' star announced his involvement in the purchase during an interview on Monday`\
+https://nytimes.com/athletic/6573945/2025/08/25/jordan-bryant-card-oleary/
+
 **State of the Penguins: The long, winding road of a rebuild that's looking for a spark**\
 `A look at where the Penguins stand with training camp less than a month away and the 2025-26 season fast approaching.`\
 https://nytimes.com/athletic/6530137/2025/08/25/penguins-rebuild-roster-2025-26-nhl-season/
