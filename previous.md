@@ -1,3 +1,15 @@
+**Inside Real Madrid: Vinicius Jr concerns, Rodrygo latest, Ceballos' 'last dance'**\
+`The latest in our weekly look behind the scenes at Real Madrid has an update on Rodrygo's future at the club and much more`\
+https://nytimes.com/athletic/6573575/2025/08/25/inside-real-madrid-vinicius-jr-rodrygo-ceballos-alonso/
+
+**TAFC: Trump and Infantino's World Cup draw U-turn. Plus: Arsenal chase Hincapie**\
+`Today in TAFC: Trump and Infantino make late U-turn on the World Cup draw city, Arsenal eye a new defender, Di Maria rolls back the years.`\
+https://nytimes.com/athletic/6573615/2025/08/25/trump-infantino-world-cup-draw/
+
+**Four Journalists Among Those Killed in Israeli Strikes in Gaza, Local Officials Say**\
+`Gaza-based reporters said the four had worked for various international media outlets. At least four other people were killed in the strikes on a hospital.`\
+https://nytimes.com/2025/08/25/world/middleeast/gaza-hospital-journalists.html
+
 **FPL Gameweek 2 review: Palmer problems, Spurs bargains and Watkins worries**\
 `It is early days, but your decisions now could shape your team's season – should you be patient or ring the changes?`\
 https://nytimes.com/athletic/6573193/2025/08/25/fantasy-premier-league-gameweek-2-review-palmer-problems-spurs-bargains-and-watkins-worries/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6573697/2025/08/25/inside-barcelona-rashford-casado
 **Astros rookie Cam Smith is handling failure 'better than anybody'**\
 `Failure of some degree seemed inevitable for someone who entered the season with 32 games of minor-league experience`\
 https://nytimes.com/athletic/6573184/2025/08/25/houston-astros-rookie-cam-smith-development/
-
-**Cases Closed**\
-`We explore how President Trump selectively enforces the law.`\
-https://nytimes.com/2025/08/25/briefing/president-trump-law.html
-
-**The best matches of U.S. Open day 2, from Venus Williams to Carlos Alcaraz**\
-`The best matches of day 2 include Williams' return to the singles at 45, Alcaraz's tricky opener and Victoria Mboko's debut as a seed.`\
-https://nytimes.com/athletic/6572384/2025/08/25/tennis-us-open-day-2-matches-schedule/
-
-**Derrick Harmon's injury will test the Steelers' defensive line depth**\
-`Coach Mike Tomlin said that Harmon is dealing with a knee sprain and categorized his timeline as "week-to-week" after the injury. `\
-https://nytimes.com/athletic/6573066/2025/08/25/derrick-harmon-injury-steelers-defensive-line-depth/
 
