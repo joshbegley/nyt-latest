@@ -1,3 +1,11 @@
+**Monday Briefing: Would Ukraine Give Up the Donbas?**\
+`Plus, the U.S. Open gets going.`\
+https://nytimes.com/2025/08/25/briefing/ukraine-donbas-gaza-south-korea-us-open.html
+
+**Palace have a week to prove they can match Glasner's ambition**\
+`The Austrian's lack of options was exposed in Sunday's 1-1 draw with Nottingham Forest - he needs proper backing`\
+https://nytimes.com/athletic/6569565/2025/08/25/crystal-palace-oliver-glasner-transfer-market/
+
 **Have Brighton left themselves short of a striker after selling Joao Pedro?**\
 `Hurzeler says teens Tzimas and Kostoulas aren't Premier League-ready, leaving only Rutter and Welbeck as senior options. Are they enough?`\
 https://nytimes.com/athletic/6572645/2025/08/25/brighton-strikers-transfers-welbeck-rutter/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/08/25/world/asia/north-korea-foreign-tourism.html
 **A Glimpse into North Korea’s New Beach Resort**\
 `Daria Zubkova, one of the first foreign tourists to visit the Wonsan Kalma resort, said the experience felt like other beach trips she’d taken before, but with some unusual features.`\
 https://nytimes.com/video/world/asia/100000010348569/north-korea-beach-resort-tourist.html
-
-**No corrections: Aug. 25, 2025**\
-`No corrections appeared in print on Monday, Aug. 25, 2025.`\
-https://nytimes.com/2025/08/25/corrections/no-corrections-aug-25-2025.html
-
-**Quote of the Day: Under Trump, Far-Right View Is Mainstream**\
-`Quotation of the Day for Monday, August 25, 2025.`\
-https://nytimes.com/2025/08/25/pageoneplus/quote-of-the-day-under-trump-far-right-view-is-mainstream.html
 
