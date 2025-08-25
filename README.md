@@ -1,3 +1,7 @@
+**Twins' top prospect Walker Jenkins promoted to Triple-A St. Paul**\
+`The No. 5 pick in the 2023 draft is now just one step from the big leagues as a 20-year-old.`\
+https://nytimes.com/athletic/6573321/2025/08/24/twins-top-prospect-walker-jenkins-promoted-triple-a/
+
 **President Trump demands Roger Clemens be enshrined in Hall of Fame 'NOW'**\
 `The seven-time Cy Young winner fell off the Hall of Fame ballot in 2022 after failing to get enough votes in 10 tries.`\
 https://nytimes.com/athletic/6573239/2025/08/24/president-trump-roger-clemens-hall-of-fame/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/24/crosswords/daily-puzzle-2025-08-25.html
 **Fleetwood claims Tour Championship for a dramatic first PGA Tour win**\
 `Fleetwood had 30 top-five finishes in 164 PGA Tour starts, but now he has a win.`\
 https://nytimes.com/athletic/6573108/2025/08/24/tour-championship-2025-tommy-fleetwood-win-pga-tour/
-
-**Chinese Taipei dominates Nevada to win Little League World Series**\
-`Chinese-Taipei pitcher Lin Chin-Tse threw a gem on the mound for Taiwan, holding Nevada to just one hit.`\
-https://nytimes.com/athletic/6572975/2025/08/24/little-league-world-series-nevada-taipei-results-2025/
 
