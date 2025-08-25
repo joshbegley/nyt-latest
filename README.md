@@ -1,3 +1,7 @@
+**Kennedy Center’s New Dance Director Criticized ‘Woke’ Ballet Culture**\
+`Stephen Nakagawa, a former dancer with the Washington Ballet, wrote a letter to the leader of the arts center complaining about “radical leftist ideologies in ballet.”`\
+https://nytimes.com/2025/08/25/arts/dance/kennedy-center-stephen-nakagawa.html
+
 **House Republican Seeks Documents From Epstein Estate**\
 `Representative James E. Comer of Kentucky demanded financial records, video recordings and information on meetings with famous people.`\
 https://nytimes.com/2025/08/25/us/politics/epstein-files-subpoena-comer.html
@@ -8,7 +12,7 @@ https://nytimes.com/athletic/6575099/2025/08/25/womens-soccer-transfer-record-fu
 
 **A judge threatens to hold a Trump official in contempt over the silencing of Voice of America.**\
 `Judge Royce C. Lamberth in Washington`\
-https://nytimes.com/2025/08/25/us/politics/trump-official-voa-judge.html
+https://nytimes.com/live/2025/08/25/us/trump-news/trump-official-voa-judge
 
 **49ers still light at WR, but Brian Robinson provides more options, better thump**\
 `Mykel Williams, CJ West and other injured 49ers returned to practice Monday as the team's 53-man roster begins to take shape.`\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6574987/2025/08/25/netflix-world-baseball-classic/
 **Trump Once Praised the Black History Museum That He Is Now Attacking**\
 `President Trump’s 2017 tour of the Smithsonian’s National Museum of African American History and Culture seems a distant memory.`\
 https://nytimes.com/2025/08/25/us/politics/trump-smithsonian-black-history.html
-
-**Panthers make move at kicker, but still have a lot to figure out — including Adam Thielen**\
-`The Panthers released Matthew Wright on Monday, paving the way for rookie Ryan Fitzgerald to be the team's Week 1 kicker.`\
-https://nytimes.com/athletic/6574795/2025/08/25/panthers-roster-kicker-ryan-fitzgerald-adam-thielen/
 
