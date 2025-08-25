@@ -1,3 +1,7 @@
+**In Arizona, the Kyler Murray question that never goes away inches closer to an answer**\
+`Franchise QB or on the wrong path? It's the Murray storyline that persists. With an upgraded defense, the Cardinals might get their answer.`\
+https://nytimes.com/athletic/6573495/2025/08/25/kyler-murray-arizona-cardinals-question-franchise-qb/
+
 **West Ham supporters group to contact police over protest against club ownership**\
 `David Sullivan, Karren Brady, and Daniel Kretinsky and the rest of the West Ham board have come under increased pressure in recent months.`\
 https://nytimes.com/athletic/6573775/2025/08/25/west-ham-protest-supporters-owners-petition/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6573778/2025/08/25/vuelta-a-espana-visma-bikes-stol
 **Lowetide: Does Max Jones have a shot at a roster spot on the Oilers this year?**\
 `The uncertainty around Jones this fall is twofold: Can he make the team, and is there a role he can succeed in?`\
 https://nytimes.com/athletic/6572448/2025/08/25/edmonton-oilers-max-jones-roster-nhl/
-
-**Burning Knicks questions: Will Mitchell Robinson get traded? Will youngsters play?**\
-`With the Knicks beginning training camp in a little over a month, we take a look at four burning questions surrounding the team. `\
-https://nytimes.com/athletic/6567128/2025/08/25/knicks-questions-mitchell-robinson/
 

@@ -1,3 +1,7 @@
+**In Arizona, the Kyler Murray question that never goes away inches closer to an answer**\
+`Franchise QB or on the wrong path? It's the Murray storyline that persists. With an upgraded defense, the Cardinals might get their answer.`\
+https://nytimes.com/athletic/6573495/2025/08/25/kyler-murray-arizona-cardinals-question-franchise-qb/
+
 **West Ham supporters group to contact police over protest against club ownership**\
 `David Sullivan, Karren Brady, and Daniel Kretinsky and the rest of the West Ham board have come under increased pressure in recent months.`\
 https://nytimes.com/athletic/6573775/2025/08/25/west-ham-protest-supporters-owners-petition/
