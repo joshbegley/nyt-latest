@@ -1,3 +1,7 @@
+**Have Brighton left themselves short of a striker after selling Joao Pedro?**\
+`Hurzeler says teens Tzimas and Kostoulas aren't Premier League-ready, leaving only Rutter and Welbeck as senior options. Are they enough?`\
+https://nytimes.com/athletic/6572645/2025/08/25/brighton-strikers-transfers-welbeck-rutter/
+
 **Why playing two left-footed centre-backs sums up Aston Villa's problems**\
 `Squad balance and depth remains in question at Villa – as the struggles of Torres and Mings in defence against Brentford showed`\
 https://nytimes.com/athletic/6571489/2025/08/25/aston-villa-brentford-defence-refresh-result/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/25/corrections/no-corrections-aug-25-2025.html
 **Quote of the Day: Under Trump, Far-Right View Is Mainstream**\
 `Quotation of the Day for Monday, August 25, 2025.`\
 https://nytimes.com/2025/08/25/pageoneplus/quote-of-the-day-under-trump-far-right-view-is-mainstream.html
-
-**Connections: Sports Edition Coach: Hints for Aug. 25, 2025**\
-`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
-https://nytimes.com/athletic/6572023/2025/08/25/connections-sports-edition-hints-for-aug-25-2025/
 
