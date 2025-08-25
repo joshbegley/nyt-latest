@@ -1,3 +1,7 @@
+**Wilted Lettuce. Rotten Strawberries. Here’s What Happens When You Round Up Farmworkers.**\
+`We need a bipartisan solution that ensures a stable farm work force and protects farmworker families and the future of American agriculture.`\
+https://nytimes.com/2025/08/25/opinion/immigration-farmworkers-agriculture-groceries.html
+
 **Eze's decision not to join Spurs feels like history repeating itself. It might not be**\
 `Spurs have missed out on the Crystal Palace midfielder, who is joining Arsenal instead. But it may not be quite as simple as that...`\
 https://nytimes.com/athletic/6569020/2025/08/25/eberechi-eze-tottenham-transfer/
