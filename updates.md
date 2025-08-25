@@ -1,3 +1,7 @@
+**As Indiana Fever await Caitlin Clark's return, can they hold on for playoff push?**\
+`The Fever need immediate stronger performances from its other core players. `\
+https://nytimes.com/athletic/6573534/2025/08/25/indiana-fever-caitlin-clark-wnba-playoff-contention/
+
 **Inside Barca: Rashford's first start, Casado's future and when will they return to Camp Nou?**\
 `A look at the key talking points this week at Barca in the latest of our new weekly series`\
 https://nytimes.com/athletic/6573697/2025/08/25/inside-barcelona-rashford-casado-camp-nou/

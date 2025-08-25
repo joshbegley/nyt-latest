@@ -1,3 +1,7 @@
+**As Indiana Fever await Caitlin Clark's return, can they hold on for playoff push?**\
+`The Fever need immediate stronger performances from its other core players. `\
+https://nytimes.com/athletic/6573534/2025/08/25/indiana-fever-caitlin-clark-wnba-playoff-contention/
+
 **Inside Barca: Rashford's first start, Casado's future and when will they return to Camp Nou?**\
 `A look at the key talking points this week at Barca in the latest of our new weekly series`\
 https://nytimes.com/athletic/6573697/2025/08/25/inside-barcelona-rashford-casado-camp-nou/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6569858/2025/08/25/tcu-bill-belichick-unc-first-gam
 **Maple Leafs rank No. 26 in NHL Pipeline Rankings for 2025**\
 `Toronto’s pipeline isn’t overly deep, but it still has solid players, even though it’s not a large number of them.`\
 https://nytimes.com/athletic/6493176/2025/08/25/toronto-maple-leafs-nhl-pipeline-rankings-2025/
-
-**25 under-the-radar names to watch in CFB's 2025 coaching carousel**\
-`Don't be surprised if these rising coaches emerge in Power 4 head coach and coordinator searches later this fall.`\
-https://nytimes.com/athletic/6570986/2025/08/25/college-football-coaching-carousel-top-candidates/
 
