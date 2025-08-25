@@ -1,3 +1,7 @@
+**K-Pop Fans Sing the Demons Away**\
+`Kids and their parents celebrated their fandom at a singalong showing of “KPop Demon Hunters.”`\
+https://nytimes.com/2025/08/25/style/kpop-demon-hunters-singalong-paris-theater-nyc.html
+
 **Scoop City: Risers and fallers after preseason Week 3**\
 `How teams, players and units are trending after preseason Week 3, as the Chiefs' and Bears' offenses shift in different directions`\
 https://nytimes.com/athletic/6574396/2025/08/25/nfl-preseason-week-3-risers-fallers-chiefs-giants/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6574322/2025/08/25/tommy-fleetwood-waited-years-for
 **100 Push-Ups and 50 Pull-Ups in Under 10 Minutes. What Could Go Wrong?**\
 `Fitness experts caution against jumping into a difficult routine suggested by Robert F. Kennedy Jr. and Pete Hegseth.`\
 https://nytimes.com/2025/08/25/style/hegseth-rfk-jr-fitness-challenge.html
-
-**Elon Musk’s xAI Sues Apple Over Claims It Favors OpenAI**\
-`Mr. Musk’s artificial intelligence company, xAI, claimed that its Grok chatbot app was being artificially suppressed in Apple’s App Store.`\
-https://nytimes.com/2025/08/25/technology/xai-sues-apple.html
 
