@@ -1,3 +1,15 @@
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/08/25/crosswords/spelling-bee-forum.html
+
+**Mamdani’s Voters Want Free Child Care. Here’s How He Could Do It.**\
+`Zohran Mamdani’s coalition in the New York mayor’s race includes residents who have questioned whether they can afford to raise children in the city.`\
+https://nytimes.com/2025/08/25/nyregion/zohran-mamdani-free-child-care-nyc-mayor.html
+
+**Columbia Got Most of Its Research Funding Back. The Damage Goes Deeper.**\
+`While the university was able to strike a deal with the Trump administration, the national outlook for federal science funding remains bleak.`\
+https://nytimes.com/2025/08/25/nyregion/columbia-trump-federal-money-returned.html
+
 **Wilted Lettuce. Rotten Strawberries. Here’s What Happens When You Round Up Farmworkers.**\
 `We need a bipartisan solution that ensures a stable farm work force and protects farmworker families and the future of American agriculture.`\
 https://nytimes.com/2025/08/25/opinion/immigration-farmworkers-agriculture-groceries.html

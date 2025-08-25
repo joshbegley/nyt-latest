@@ -1,3 +1,15 @@
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/08/25/crosswords/spelling-bee-forum.html
+
+**Mamdani’s Voters Want Free Child Care. Here’s How He Could Do It.**\
+`Zohran Mamdani’s coalition in the New York mayor’s race includes residents who have questioned whether they can afford to raise children in the city.`\
+https://nytimes.com/2025/08/25/nyregion/zohran-mamdani-free-child-care-nyc-mayor.html
+
+**Columbia Got Most of Its Research Funding Back. The Damage Goes Deeper.**\
+`While the university was able to strike a deal with the Trump administration, the national outlook for federal science funding remains bleak.`\
+https://nytimes.com/2025/08/25/nyregion/columbia-trump-federal-money-returned.html
+
 **Eze's decision not to join Spurs feels like history repeating itself. It might not be**\
 `Spurs have missed out on the Crystal Palace midfielder, who is joining Arsenal instead. But it may not be quite as simple as that...`\
 https://nytimes.com/athletic/6569020/2025/08/25/eberechi-eze-tottenham-transfer/
@@ -25,16 +37,4 @@ https://nytimes.com/issue/todayspaper/2025/08/25/todays-new-york-times
 **‘Thursday Murder Club,’ Plus 6 Things to Watch on TV This Week**\
 `The book adaptation of the mystery series comes to Netflix, and Peacock airs the “Love Island USA” reunion.`\
 https://nytimes.com/2025/08/25/arts/television/thursday-murder-club-plus-6-things-to-watch-on-tv-this-week.html
-
-**Monday Briefing: Would Ukraine Give Up the Donbas?**\
-`Plus, the U.S. Open gets going.`\
-https://nytimes.com/2025/08/25/briefing/ukraine-donbas-gaza-south-korea-us-open.html
-
-**Palace have a week to prove they can match Glasner's ambition**\
-`The Austrian's lack of options was exposed in Sunday's 1-1 draw with Nottingham Forest - he needs proper backing`\
-https://nytimes.com/athletic/6569565/2025/08/25/crystal-palace-oliver-glasner-transfer-market/
-
-**Have Brighton left themselves short of a striker after selling Joao Pedro?**\
-`Hurzeler says teens Tzimas and Kostoulas aren't Premier League-ready, leaving only Rutter and Welbeck as senior options. Are they enough?`\
-https://nytimes.com/athletic/6572645/2025/08/25/brighton-strikers-transfers-welbeck-rutter/
 
