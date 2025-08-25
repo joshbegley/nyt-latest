@@ -1,3 +1,7 @@
+**Word of the Day: kindling**\
+`This word has appeared in 36 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2025/08/25/learning/word-of-the-day-kindling.html
+
 **Medvedev vs. Bonzi delayed for six minutes at U.S. Open after crowd refuses to be quiet**\
 `After Bonzi was given back a first serve because a photographer entered the court, Medvedev was irate.`\
 https://nytimes.com/athletic/6573472/2025/08/25/us-open-medvedev-bonzi-crowd-photographer-umpire/
