@@ -1,3 +1,19 @@
+**FPL Gameweek 2 review: Palmer problems, Spurs bargains and Watkins worries**\
+`It is early days, but your decisions now could shape your team's season – should you be patient or ring the changes?`\
+https://nytimes.com/athletic/6573193/2025/08/25/fantasy-premier-league-gameweek-2-review-palmer-problems-spurs-bargains-and-watkins-worries/
+
+**Villa's Kamara set to to miss two to three weeks with hamstring injury**\
+`Kamara was substituted in the first half against Brentford on Saturday immediately after Dango Ouattara scored the only goal of the game.`\
+https://nytimes.com/athletic/6573731/2025/08/25/boubacar-kamara-injury-aston-villa-update/
+
+**USMNT Player Tracker: Pulisic's day to forget but strikers on song**\
+`Assessing the club fortunes of the USMNT squad, including a tricky weekend for Mauricio Pochettino's most under-scrutiny star `\
+https://nytimes.com/athletic/6573685/2025/08/25/usmnt-christian-pulisic-ac-milan/
+
+**Orsted Stock Plummets to Record Low After Trump Halts U.S. Wind Farm**\
+`An order to stop work on the Revolution Wind project off Rhode Island further rattled the beleaguered Danish company.`\
+https://nytimes.com/2025/08/25/business/orsted-trump-wind-farm.html
+
 **As Indiana Fever await Caitlin Clark's return, can they hold on for playoff push?**\
 `The Fever need immediate stronger performances from its other core players. `\
 https://nytimes.com/athletic/6573534/2025/08/25/indiana-fever-caitlin-clark-wnba-playoff-contention/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6572384/2025/08/25/tennis-us-open-day-2-matches-sch
 **Derrick Harmon's injury will test the Steelers' defensive line depth**\
 `Coach Mike Tomlin said that Harmon is dealing with a knee sprain and categorized his timeline as "week-to-week" after the injury. `\
 https://nytimes.com/athletic/6573066/2025/08/25/derrick-harmon-injury-steelers-defensive-line-depth/
-
-**Yankees-Red Sox takeaways: Boston's edge, New York's careful vibes, key questions**\
-`Here are key takeaways and questions for both teams following this series and with five weeks to go in the regular season. `\
-https://nytimes.com/athletic/6573533/2025/08/25/yankees-red-sox-american-league-playoffs/
-
-**Senators rank No. 27 in NHL Pipeline Rankings for 2025**\
-`Ottawa’s pipeline has been highly ranked for years, but now only has a couple of legit prospects.`\
-https://nytimes.com/athletic/6493725/2025/08/25/ottawa-senators-nhl-pipeline-rankings-2025/
-
-**They faced Deion Sanders in his first game at Colorado. Now they get Bill Belichick's UNC debut, too**\
-`TCU knows what it’s like to prepare for an opener with lots of hype and little schematic insight. It lost in Deion Sanders' Colorado debut.`\
-https://nytimes.com/athletic/6569858/2025/08/25/tcu-bill-belichick-unc-first-game/
-
-**Maple Leafs rank No. 26 in NHL Pipeline Rankings for 2025**\
-`Toronto’s pipeline isn’t overly deep, but it still has solid players, even though it’s not a large number of them.`\
-https://nytimes.com/athletic/6493176/2025/08/25/toronto-maple-leafs-nhl-pipeline-rankings-2025/
 
