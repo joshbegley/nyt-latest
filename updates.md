@@ -1,3 +1,11 @@
+**Trump Once Praised the Black History Museum That He Is Now Attacking**\
+`President Trump’s 2017 tour of the Smithsonian’s National Museum of African American History and Culture seems a distant memory.`\
+https://nytimes.com/2025/08/25/us/politics/trump-smithsonian-black-history.html
+
+**Panthers make move at kicker, but still have a lot to figure out — including Adam Thielen**\
+`The Panthers released Matthew Wright on Monday, paving the way for rookie Ryan Fitzgerald to be the team's Week 1 kicker.`\
+https://nytimes.com/athletic/6574795/2025/08/25/panthers-roster-kicker-ryan-fitzgerald-adam-thielen/
+
 **Despite Trump’s Tough Talk, Flag Burning Is Protected Speech**\
 `The president wants to prosecute protesters who desecrate the American flag, but his order concedes that such protests are typically covered by the First Amendment.`\
 https://nytimes.com/2025/08/25/us/politics/trump-flag-burning-executive-order.html
