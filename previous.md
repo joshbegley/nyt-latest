@@ -1,40 +1,40 @@
-**Keurig Dr Pepper to Acquire Peet’s in $18 Billion Deal**\
-`After the takeover, the company will split into two businesses, one focusing on coffee and one on soft drinks.`\
-https://nytimes.com/2025/08/25/business/keurig-drpepper-peets-coffee-drinks.html
+**Rookie TreVeyon Henderson might already be the Patriots' top offensive weapon**\
+`The rookie from Ohio State has impressed this summer and could be on the verge of getting the lion's share of the rushing duties this fall.`\
+https://nytimes.com/athletic/6569727/2025/08/25/treveyon-henderson-patriots-offensive-weapon/
 
-**Newcastle v Liverpool EPL preview: Kick-off time, where to watch and prediction**\
-`Not much context to add to this one, really.`\
-https://nytimes.com/athletic/6572708/2025/08/25/newcastle-liverpool-premier-league-preview-analysis-tv/
+**What’s Next for Ukraine After All That Diplomacy?**\
+`After President Trump met President Vladimir V. Putin in Alaska, he said the Russian leader would be willing to meet with Ukraine’s president. That seems less and less likely.`\
+https://nytimes.com/2025/08/25/world/europe/ukraine-russia-war-whats-next-summits.html
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2025/08/25/crosswords/spelling-bee-forum.html
+**Trump Isn’t Fixing America’s Campuses. He’s Bleeding Them Dry.**\
+`Take it from an eyewitness: Our colleges don’t deserve this.`\
+https://nytimes.com/2025/08/25/opinion/trump-colleges-universities.html
 
-**Mamdani’s Voters Want Free Child Care. Here’s How He Could Do It.**\
-`Zohran Mamdani’s coalition in the New York mayor’s race includes residents who have questioned whether they can afford to raise children in the city.`\
-https://nytimes.com/2025/08/25/nyregion/zohran-mamdani-free-child-care-nyc-mayor.html
+**Trump Relies on Personal Diplomacy With Putin. The Result Is a Strategic Muddle.**\
+`For President Trump, consistency is less important than leader-to-leader diplomacy.`\
+https://nytimes.com/2025/08/25/us/politics/trump-diplomacy-putin-alaska-ukraine-war.html
 
-**Columbia Got Most of Its Research Funding Back. The Damage Goes Deeper.**\
-`While the university was able to strike a deal with the Trump administration, the national outlook for federal science funding remains bleak.`\
-https://nytimes.com/2025/08/25/nyregion/columbia-trump-federal-money-returned.html
+**Philadelphia Transit Cuts Take Hold, and Commuters Begin to Feel the Pain**\
+`A budget shortfall has led the city’s transit authority to cut its bus and rail services by 20 percent.`\
+https://nytimes.com/2025/08/25/us/philadelphia-transit-cuts.html
 
-**Eze's decision not to join Spurs feels like history repeating itself. It might not be**\
-`Spurs have missed out on the Crystal Palace midfielder, who is joining Arsenal instead. But it may not be quite as simple as that...`\
-https://nytimes.com/athletic/6569020/2025/08/25/eberechi-eze-tottenham-transfer/
+**Staying in San Antonio After Building a New ‘Heart’ for Their Home**\
+`The Anconas found their bungalow cramped as their family grew. Despite limited space, they were able to create a large kitchen, dining and living space in an addition.`\
+https://nytimes.com/2025/08/25/realestate/san-antonio-home-extension-yard.html
 
-**Trump Threatens to Investigate Chris Christie Over ‘Bridgegate’**\
-`President Trump floated the idea after the former governor of New Jersey, a onetime ally, criticized his use of the Justice Department.`\
-https://nytimes.com/2025/08/25/us/politics/trump-chris-christie-bridgegate.html
+**Law Firm Pressures Brown University to Erase Research on Anti-Wind Groups**\
+`The firm, which represents opponents of offshore wind, said it would complain to Brown’s federal and private funding sources.`\
+https://nytimes.com/2025/08/25/climate/brown-university-offshore-wind-marzulla.html
 
-**Word of the Day: kindling**\
-`This word has appeared in 36 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2025/08/25/learning/word-of-the-day-kindling.html
+**What Can I Wear on a Plane Besides Leggings and Sweats?**\
+`Our critic offers advice for jet-setting in style — without compromising on comfort.`\
+https://nytimes.com/2025/08/25/fashion/plane-clothes-flying-outfit.html
 
-**Medvedev vs. Bonzi delayed for six minutes at U.S. Open after crowd refuses to be quiet**\
-`After Bonzi was given back a first serve because a photographer entered the court, Medvedev was irate.`\
-https://nytimes.com/athletic/6573472/2025/08/25/us-open-medvedev-bonzi-crowd-photographer-umpire/
+**Katherine LaNasa Earned Her Role in ‘The Pitt’ the Hard Way**\
+`The actress received an Emmy nod for her performance as a seasoned E.R. nurse, a woman who has seen it all and lived to keep fighting. So has LaNasa.`\
+https://nytimes.com/2025/08/25/arts/television/katherine-lanasa-emmys-the-pitt.html
 
-**Wilted Lettuce. Rotten Strawberries. Here’s What Happens When You Round Up Farmworkers.**\
-`We need a bipartisan solution that ensures a stable farm work force and protects farmworker families and the future of American agriculture.`\
-https://nytimes.com/2025/08/25/opinion/immigration-farmworkers-agriculture-groceries.html
+**$1 Million Homes in California**\
+`A Queen Anne Revival in Yreka, a bungalow in Oakland and a condo in Los Angeles.`\
+https://nytimes.com/2025/08/25/realestate/1-million-dollar-homes-california.html
 
