@@ -1,3 +1,11 @@
+**West Ham supporters group to contact police over protest against club ownership**\
+`David Sullivan, Karren Brady, and Daniel Kretinsky and the rest of the West Ham board have come under increased pressure in recent months.`\
+https://nytimes.com/athletic/6573775/2025/08/25/west-ham-protest-supporters-owners-petition/
+
+**Fantasy baseball cheat sheet: Jo Adell's power and more THE BAT X insights**\
+`The Athletic and THE BAT X teamed up to offer a fantasy baseball cheat sheet to help fantasy managers as playoffs near. `\
+https://nytimes.com/athletic/6573833/2025/08/25/fantasy-baseball-the-bat-x-jo-adell/
+
 **In This Novel, Chasing a Scoop Leads to Bad News in a War Zone**\
 `“Vulture,” by Phoebe Greenwood, follows a journalist’s downward spiral in Gaza.`\
 https://nytimes.com/2025/08/25/books/review/phoebe-greenwood-vulture.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6572448/2025/08/25/edmonton-oilers-max-jones-roster
 **Burning Knicks questions: Will Mitchell Robinson get traded? Will youngsters play?**\
 `With the Knicks beginning training camp in a little over a month, we take a look at four burning questions surrounding the team. `\
 https://nytimes.com/athletic/6567128/2025/08/25/knicks-questions-mitchell-robinson/
-
-**Final Raiders 53-man projection: Examining starters/depth, plus QB move is needed**\
-`Unless players like Dont’e Thornton Jr. break out, the WRs group will be average at best for Las Vegas. Here's our 53-man breakdown.`\
-https://nytimes.com/athletic/6571916/2025/08/25/raiders-final-roster-projection-preseason/
-
-**Two-time World Cup winner Gautrat joins Newcastle on loan from Pride**\
-`The 32-year-old midfielder has signed a short-term deal with the Women’s Super League 2 club.`\
-https://nytimes.com/athletic/6573721/2025/08/25/morgan-gautrat-newcastle-orlando-pride-transfer/
 
