@@ -1,3 +1,11 @@
+**Leeds agree deal with Leicester for Justin signing**\
+`A deal consisting of an initial £8million that could rise to £10m in potential add-ons is in place.`\
+https://nytimes.com/athletic/6573005/2025/08/25/james-justin-leeds-leicester-transfer/
+
+**What’s Next for Ukraine After All That Diplomacy?**\
+`After President Trump held talks with President Vladimir V. Putin, he said the Russian leader would be willing to meet with Ukraine’s president. That seems less and less likely.`\
+https://nytimes.com/2025/08/25/world/europe/ukraine-russia-war-whats-next-summits.html
+
 **Rookie TreVeyon Henderson might already be the Patriots' top offensive weapon**\
 `The rookie from Ohio State has impressed this summer and could be on the verge of getting the lion's share of the rushing duties this fall.`\
 https://nytimes.com/athletic/6569727/2025/08/25/treveyon-henderson-patriots-offensive-weapon/

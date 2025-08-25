@@ -1,9 +1,13 @@
+**Leeds agree deal with Leicester for Justin signing**\
+`A deal consisting of an initial £8million that could rise to £10m in potential add-ons is in place.`\
+https://nytimes.com/athletic/6573005/2025/08/25/james-justin-leeds-leicester-transfer/
+
 **Rookie TreVeyon Henderson might already be the Patriots' top offensive weapon**\
 `The rookie from Ohio State has impressed this summer and could be on the verge of getting the lion's share of the rushing duties this fall.`\
 https://nytimes.com/athletic/6569727/2025/08/25/treveyon-henderson-patriots-offensive-weapon/
 
 **What’s Next for Ukraine After All That Diplomacy?**\
-`After President Trump met President Vladimir V. Putin in Alaska, he said the Russian leader would be willing to meet with Ukraine’s president. That seems less and less likely.`\
+`After President Trump held talks with President Vladimir V. Putin, he said the Russian leader would be willing to meet with Ukraine’s president. That seems less and less likely.`\
 https://nytimes.com/2025/08/25/world/europe/ukraine-russia-war-whats-next-summits.html
 
 **Trump Isn’t Fixing America’s Campuses. He’s Bleeding Them Dry.**\
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/25/fashion/plane-clothes-flying-outfit.html
 **Katherine LaNasa Earned Her Role in ‘The Pitt’ the Hard Way**\
 `The actress received an Emmy nod for her performance as a seasoned E.R. nurse, a woman who has seen it all and lived to keep fighting. So has LaNasa.`\
 https://nytimes.com/2025/08/25/arts/television/katherine-lanasa-emmys-the-pitt.html
-
-**$1 Million Homes in California**\
-`A Queen Anne Revival in Yreka, a bungalow in Oakland and a condo in Los Angeles.`\
-https://nytimes.com/2025/08/25/realestate/1-million-dollar-homes-california.html
 

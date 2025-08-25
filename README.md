@@ -1,3 +1,15 @@
+**Arsenal working on deal to sign Hincapie from Bayer Leverkusen**\
+`Hincapie’s preference is to join Arsenal and the Premier League side are ready to push for him, should departures materialise.`\
+https://nytimes.com/athletic/6573642/2025/08/25/arsenal-hincapie-transfer-news/
+
+**The New York Times International Edition in Print for Tuesday, Aug. 26, 2025**\
+``\
+https://nytimes.com/issue/todaysinyt/2025/08/25/todays-new-york-times-international-edition
+
+**Tiny Patch of West Bank Land Fuels Dreams of Greater Israel**\
+`Israel’s approval of a settlement project delayed for decades shows how far Prime Minister Benjamin Netanyahu has gone in dashing Palestinian aspirations.`\
+https://nytimes.com/2025/08/25/world/middleeast/west-bank-e1-israel.html
+
 **Leeds agree deal with Leicester for Justin signing**\
 `A deal consisting of an initial £8million that could rise to £10m in potential add-ons is in place.`\
 https://nytimes.com/athletic/6573005/2025/08/25/james-justin-leeds-leicester-transfer/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/08/25/us/philadelphia-transit-cuts.html
 **Staying in San Antonio After Building a New ‘Heart’ for Their Home**\
 `The Anconas found their bungalow cramped as their family grew. Despite limited space, they were able to create a large kitchen, dining and living space in an addition.`\
 https://nytimes.com/2025/08/25/realestate/san-antonio-home-extension-yard.html
-
-**Law Firm Pressures Brown University to Erase Research on Anti-Wind Groups**\
-`The firm, which represents opponents of offshore wind, said it would complain to Brown’s federal and private funding sources.`\
-https://nytimes.com/2025/08/25/climate/brown-university-offshore-wind-marzulla.html
-
-**What Can I Wear on a Plane Besides Leggings and Sweats?**\
-`Our critic offers advice for jet-setting in style — without compromising on comfort.`\
-https://nytimes.com/2025/08/25/fashion/plane-clothes-flying-outfit.html
-
-**Katherine LaNasa Earned Her Role in ‘The Pitt’ the Hard Way**\
-`The actress received an Emmy nod for her performance as a seasoned E.R. nurse, a woman who has seen it all and lived to keep fighting. So has LaNasa.`\
-https://nytimes.com/2025/08/25/arts/television/katherine-lanasa-emmys-the-pitt.html
 
