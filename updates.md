@@ -1,3 +1,7 @@
+**Maurice Tempelsman, Diamond Magnate and Jackie Onassis’s Companion, Dies at 95**\
+`A private and politically connected gem merchant, he was thrust into the public spotlight when his personal relationship with the former first lady became known in the late 1980s.`\
+https://nytimes.com/2025/08/25/business/maurice-tempelsman-dead.html
+
 **Fantasy football dynasty league sleepers: In search of the next Bucky Irving**\
 `Jeff Haverlack looks at the most likely Day 3 NFL draft picks to make an early fantasy splash, like Puka Nacua and Bucky Irving before them.`\
 https://nytimes.com/athletic/6574218/2025/08/25/dynasty-fantasy-football-sleepers-puka-bucky/
