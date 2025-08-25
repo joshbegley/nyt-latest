@@ -1,3 +1,7 @@
+**These Cookies Are So Easy a Toddler Made Them**\
+`Adapted from LB. Kitchen in Portland, Maine, this vegan, gluten-free recipe comes together in one bowl, no mixer needed.`\
+https://nytimes.com/2025/08/25/dining/vegan-chocolate-chip-cookies.html
+
 **Maurice Tempelsman, Diamond Magnate and Jackie Onassis’s Companion, Dies at 95**\
 `A private and politically connected gem merchant, he was thrust into the public spotlight when his personal relationship with the former first lady became known in the late 1980s.`\
 https://nytimes.com/2025/08/25/business/maurice-tempelsman-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/25/world/middleeast/gaza-journalists-killed-nasser-h
 **Scientists Perform First Pig-to-Human Lung Transplant**\
 `Researchers in China placed a lung from a genetically modified pig into a brain-dead man, with mixed results.`\
 https://nytimes.com/2025/08/25/health/lung-transplant-pig-human.html
-
-**Inflation Sweetener? Denmark Plans Tax Cut on Chocolate and Coffee.**\
-`The Scandinavian country has proposed scrapping its tax on chocolate, cake and other sweets, as well as coffee, to help consumers cope with high food prices.`\
-https://nytimes.com/2025/08/25/business/denmark-taxes-coffee-chocolate.html
 
