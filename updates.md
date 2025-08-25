@@ -1,3 +1,7 @@
+**Dortmund close to Fabio Silva agreement with Wolves**\
+`A fee in the region of €25m has been proposed, with discussions over the structure of the deal and bonuses ongoing.`\
+https://nytimes.com/athletic/6568951/2025/08/25/fabio-silva-dortmund-wolves-transfer/
+
 **How Builders Are Enticing Buyers in a Weak Housing Market**\
 `A slow start to the home building market this year has prompted some builders to increase incentives and build on smaller lots.`\
 https://nytimes.com/2025/08/25/business/housing-market-builders-demand.html

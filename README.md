@@ -1,3 +1,7 @@
+**What we learned from Jalen Milroe in his first NFL preseason**\
+`Milroe was hardly discouraged by his rocky moments in Green Bay. "If you're discouraged, that means you're not a competitor," he said.`\
+https://nytimes.com/athletic/6573572/2025/08/25/jalen-milroe-preseason-seahawks-rookie-qb/
+
 **Dortmund close to Fabio Silva agreement with Wolves**\
 `A fee in the region of €25m has been proposed, with discussions over the structure of the deal and bonuses ongoing.`\
 https://nytimes.com/athletic/6568951/2025/08/25/fabio-silva-dortmund-wolves-transfer/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6573945/2025/08/25/jordan-bryant-card-oleary/
 **State of the Penguins: The long, winding road of a rebuild that's looking for a spark**\
 `A look at where the Penguins stand with training camp less than a month away and the 2025-26 season fast approaching.`\
 https://nytimes.com/athletic/6530137/2025/08/25/penguins-rebuild-roster-2025-26-nhl-season/
-
-**How Much Do You Know About the Literary Gilded Age?**\
-`Test your knowledge of novels written during (or about) this memorable era of American history.`\
-https://nytimes.com/interactive/2025/08/25/books/review/gilded-age-quiz.html
 

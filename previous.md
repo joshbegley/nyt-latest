@@ -1,3 +1,7 @@
+**Dortmund close to Fabio Silva agreement with Wolves**\
+`A fee in the region of €25m has been proposed, with discussions over the structure of the deal and bonuses ongoing.`\
+https://nytimes.com/athletic/6568951/2025/08/25/fabio-silva-dortmund-wolves-transfer/
+
 **How Builders Are Enticing Buyers in a Weak Housing Market**\
 `A slow start to the home building market this year has prompted some builders to increase incentives and build on smaller lots.`\
 https://nytimes.com/2025/08/25/business/housing-market-builders-demand.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6530137/2025/08/25/penguins-rebuild-roster-2025-26-
 **How Much Do You Know About the Literary Gilded Age?**\
 `Test your knowledge of novels written during (or about) this memorable era of American history.`\
 https://nytimes.com/interactive/2025/08/25/books/review/gilded-age-quiz.html
-
-**Kim Novak, 92, Finds a Defiant Life Has Its Own Rewards**\
-`A lifetime achievement award from the Venice Film Festival and two new films are bringing the star of “Vertigo” back into public view.`\
-https://nytimes.com/2025/08/25/movies/kim-novak-venice.html
 
