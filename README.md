@@ -1,3 +1,7 @@
+**Arch Manning leads No. 1 Texas vs. Ohio State: 'What I’ve been waiting for'**\
+`Steve Sarkisian has some advice for his heralded QB ahead of showdown: "Just be you."`\
+https://nytimes.com/athletic/6574854/2025/08/25/texas-arch-manning-takes-reins-ohio-state/
+
 **Bengals, Trey Hendrickson agree to reworked 1-year deal to end holdout**\
 `The NFL's reigning sack leader comes to terms in Cincinnati after a contentious offseason.`\
 https://nytimes.com/athletic/6547675/2025/08/25/trey-hendrickson-contract-bengals/
@@ -35,8 +39,4 @@ https://nytimes.com/2025/08/25/well/mediterranean-diet-diabetes.html
 **Tuesday Briefing: Israeli Strikes Killed Five Journalists**\
 `Also, visiting a knockoff Starbucks in North Korea.`\
 https://nytimes.com/2025/08/25/briefing/israel-gaza-strike-korea-trump-lee.html
-
-**SpaceX Readies for Critical 10th Test Launch of Mars Rocket**\
-`Elon Musk’s company is trying again to overcome setbacks faced by its Starship prototype after a Sunday night scrub of a test flight.`\
-https://nytimes.com/2025/08/25/science/spacex-starship-launch.html
 
