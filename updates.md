@@ -1,3 +1,7 @@
+**Five Journalists Among Dead in Israeli Attack on Gaza Hospital**\
+`Two Israeli strikes hit a hospital in southern Gaza on Monday, killing at least five Palestinian journalists, a rescue worker and up to 14 more people, according to local health officials.`\
+https://nytimes.com/video/world/middleeast/100000010359268/gaza-nasser-hospital-strikes.html
+
 **Madison Keys stunned by world No. 82 Renata Zarazua in U.S. Open first round**\
 `Keys' exit, the biggest upset of the 2025 U.S. Open so far, opens up Coco Gauff's quarter.`\
 https://nytimes.com/athletic/6574528/2025/08/25/madison-keys-us-open-zarazua-upset-result-analysis/

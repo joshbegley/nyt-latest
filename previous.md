@@ -1,3 +1,7 @@
+**Five Journalists Among Dead in Israeli Attack on Gaza Hospital**\
+`Two Israeli strikes hit a hospital in southern Gaza on Monday, killing at least five Palestinian journalists, a rescue worker and up to 14 more people, according to local health officials.`\
+https://nytimes.com/video/world/middleeast/100000010359268/gaza-nasser-hospital-strikes.html
+
 **Madison Keys stunned by world No. 82 Renata Zarazua in U.S. Open first round**\
 `Keys' exit, the biggest upset of the 2025 U.S. Open so far, opens up Coco Gauff's quarter.`\
 https://nytimes.com/athletic/6574528/2025/08/25/madison-keys-us-open-zarazua-upset-result-analysis/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6574326/2025/08/25/dilane-bakwa-nottingham-forest-t
 **K-Pop Fans Sing the Demons Away**\
 `Kids and their parents celebrated their fandom at a singalong showing of “KPop Demon Hunters.”`\
 https://nytimes.com/2025/08/25/style/kpop-demon-hunters-singalong-paris-theater-nyc.html
-
-**Scoop City: Risers and fallers after preseason Week 3**\
-`How teams, players and units are trending after preseason Week 3, as the Chiefs' and Bears' offenses shift in different directions`\
-https://nytimes.com/athletic/6574396/2025/08/25/nfl-preseason-week-3-risers-fallers-chiefs-giants/
 
