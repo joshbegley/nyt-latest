@@ -1,3 +1,15 @@
+**French Prime Minister Seeks to Force Lawmakers’ Hands on Ballooning Debt**\
+`Prime Minister François Bayrou called a parliamentary session to address the “gravity” of the situation. An analyst said his move was “political suicide,” as some opponents vowed to bring down the government.`\
+https://nytimes.com/2025/08/25/world/europe/france-debt-parliament-vote.html
+
+**Lawmakers Visit Syria to Push for Repealing Sanctions Law**\
+`A bipartisan pair of members of Congress made the first official U.S. visit there since the fall of the Assad government, arguing that it was time to permanently lift American sanctions.`\
+https://nytimes.com/2025/08/25/us/politics/lawmakers-syria-repeal-sanctions-law.html
+
+**Five Journalists Among Dead in Israeli Attack on Gaza Hospital**\
+`Two Israeli strikes hit a hospital in southern Gaza on Monday, killing five Palestinian journalists and at least 15 other people, according to local health officials.`\
+https://nytimes.com/video/world/middleeast/100000010359268/gaza-nasser-hospital-strikes.html
+
 **Meek: Starting Bryce Underwood? The freshman made himself Michigan's only choice**\
 `Starting a freshman at QB — even the nation's No. 1 recruit — is never a sure thing, but Underwood made the choice easy for Michigan.`\
 https://nytimes.com/athletic/6574610/2025/08/25/bryce-underwood-michigan-starting-quarterback/
