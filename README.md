@@ -1,3 +1,7 @@
+**Word of the Day: kindling**\
+`This word has appeared in 36 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2025/08/25/learning/word-of-the-day-kindling.html
+
 **Medvedev vs. Bonzi delayed for six minutes at U.S. Open after crowd refuses to be quiet**\
 `After Bonzi was given back a first serve because a photographer entered the court, Medvedev was irate.`\
 https://nytimes.com/athletic/6573472/2025/08/25/us-open-medvedev-bonzi-crowd-photographer-umpire/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6571489/2025/08/25/aston-villa-brentford-defence-re
 **This is why Arsenal invested**\
 `Arsenal's dominant victory on Saturday still threw up some familiar issues - but they are now in better position to deal with them`\
 https://nytimes.com/athletic/6571536/2025/08/25/this-is-why-arsenal-invested/
-
-**The Briefing: Why Max Dowman can break a 20-year Premier League record**\
-`The big talking points from the Premier League weekend, including more passing into trouble and the grappling 'crackdown'`\
-https://nytimes.com/athletic/6572800/2025/08/25/max-dowman-premier-league-youngest-scorer-record/
 
