@@ -1,3 +1,7 @@
+**St. Louis City SC fires sporting director Lutz Pfannenstiel amid struggles**\
+`St. Louis City is languishing far outside the MLS playoff picture and has made a significant change in hopes of turning its fortunes`\
+https://nytimes.com/athletic/6574064/2025/08/25/lutz-pfannenstiel-st-louis-city-fired-mls/
+
 **What to Know About the Journalists Killed in Gaza**\
 `Five journalists were killed in what local officials said was an Israeli strike on Nasser Hospital in the southern Gazan city of Khan Younis.`\
 https://nytimes.com/2025/08/25/world/middleeast/gaza-journalists-killed-nasser-hospital.html
