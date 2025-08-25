@@ -1,3 +1,15 @@
+**Trump Repeatedly Praises North Korea’s Dictator in Meeting With South’s President**\
+`In the Oval Office, President Trump met his South Korean counterpart as the relationship between their countries has been strained.`\
+https://nytimes.com/2025/08/25/us/politics/trump-north-south-korea.html
+
+**Trump Orders Major Expansion of National Guard’s Role in Law Enforcement**\
+`An executive order released on Monday directs the creation of specialized Guard units to quell civil disturbances in each state and seeks civilian volunteers to assist federal agents in Washington.`\
+https://nytimes.com/2025/08/25/us/politics/trump-national-guard.html
+
+**Meek: Bryce Underwood made himself Michigan's only choice for QB1**\
+`Starting a freshman at QB — even the nation's No. 1 recruit — is never a sure thing, but Underwood made the choice easy for Michigan.`\
+https://nytimes.com/athletic/6574610/2025/08/25/bryce-underwood-michigan-starting-quarterback/
+
 **French Prime Minister Seeks to Force Lawmakers’ Hands on Ballooning Debt**\
 `Prime Minister François Bayrou called a parliamentary session to address the “gravity” of the situation. An analyst said his move was “political suicide,” as some opponents vowed to bring down the government.`\
 https://nytimes.com/2025/08/25/world/europe/france-debt-parliament-vote.html
