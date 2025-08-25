@@ -1,3 +1,11 @@
+**House Republican Seeks Documents From Epstein Estate**\
+`Representative James E. Comer of Kentucky demanded financial records, video recordings and information on meetings with famous people.`\
+https://nytimes.com/2025/08/25/us/politics/epstein-files-subpoena-comer.html
+
+**Full Time: Yup, another women’s soccer transfer record**\
+`Welcome to Full Time, The Athletic's women's soccer newsletter.`\
+https://nytimes.com/athletic/6575099/2025/08/25/womens-soccer-transfer-record-full-time/
+
 **Netflix to stream 2026 World Baseball Classic in Japan**\
 `The streaming service is interested in expanding in Japan, making Shohei Ohtani and the Japanese team appealing.`\
 https://nytimes.com/athletic/6574987/2025/08/25/netflix-world-baseball-classic/

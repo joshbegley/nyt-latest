@@ -1,3 +1,11 @@
+**House Republican Seeks Documents From Epstein Estate**\
+`Representative James E. Comer of Kentucky demanded financial records, video recordings and information on meetings with famous people.`\
+https://nytimes.com/2025/08/25/us/politics/epstein-files-subpoena-comer.html
+
+**Full Time: Yup, another women’s soccer transfer record**\
+`Welcome to Full Time, The Athletic's women's soccer newsletter.`\
+https://nytimes.com/athletic/6575099/2025/08/25/womens-soccer-transfer-record-full-time/
+
 **A judge threatens to hold a Trump official in contempt over the silencing of Voice of America.**\
 `Judge Royce C. Lamberth in Washington`\
 https://nytimes.com/2025/08/25/us/politics/trump-official-voa-judge.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/08/25/us/politics/trump-smithsonian-black-history.html
 **Panthers make move at kicker, but still have a lot to figure out — including Adam Thielen**\
 `The Panthers released Matthew Wright on Monday, paving the way for rookie Ryan Fitzgerald to be the team's Week 1 kicker.`\
 https://nytimes.com/athletic/6574795/2025/08/25/panthers-roster-kicker-ryan-fitzgerald-adam-thielen/
-
-**Despite Trump’s Tough Talk, Flag Burning Is Protected Speech**\
-`The president wants to prosecute protesters who desecrate the American flag, but his order concedes that such protests are typically covered by the First Amendment.`\
-https://nytimes.com/2025/08/25/us/politics/trump-flag-burning-executive-order.html
-
-**Abrego Garcia Was Detained Again**\
-`Also, heat waves could be making you age faster. Here’s the latest at the end of Monday.`\
-https://nytimes.com/2025/08/25/briefing/abrego-garcia-was-detained-again.html
 
