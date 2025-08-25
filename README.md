@@ -6,7 +6,7 @@ https://nytimes.com/2025/08/25/business/maurice-tempelsman-dead.html
 `Jeff Haverlack looks at the most likely Day 3 NFL draft picks to make an early fantasy splash, like Puka Nacua and Bucky Irving before them.`\
 https://nytimes.com/athletic/6574218/2025/08/25/dynasty-fantasy-football-sleepers-puka-bucky/
 
-**Tommy Fleetwood waited years for his first PGA Tour win. Our 4 favorite lessons from his career**\
+**Tommy Fleetwood waited years for his first PGA Tour win. Here our 4 lessons from his career**\
 `“I always try to find the positives,” Fleetwood said. “I’ll try to think the right way, speak the right way and do the right things."`\
 https://nytimes.com/athletic/6574322/2025/08/25/tommy-fleetwood-waited-years-for-his-first-pga-tour-win-our-4-favorite-lessons-from-his-career/
 
