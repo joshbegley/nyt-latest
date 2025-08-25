@@ -1,3 +1,15 @@
+**Inside Barca: Rashford's first start, Casado's future and when will they return to Camp Nou?**\
+`A look at the key talking points this week at Barca in the latest of our new weekly series`\
+https://nytimes.com/athletic/6573697/2025/08/25/inside-barcelona-rashford-casado-camp-nou/
+
+**Astros rookie Cam Smith is handling failure 'better than anybody'**\
+`Failure of some degree seemed inevitable for someone who entered the season with 32 games of minor-league experience`\
+https://nytimes.com/athletic/6573184/2025/08/25/houston-astros-rookie-cam-smith-development/
+
+**Cases Closed**\
+`We explore how President Trump selectively enforces the law.`\
+https://nytimes.com/2025/08/25/briefing/president-trump-law.html
+
 **The best matches of U.S. Open day 2, from Venus Williams to Carlos Alcaraz**\
 `The best matches of day 2 include Williams' return to the singles at 45, Alcaraz's tricky opener and Victoria Mboko's debut as a seed.`\
 https://nytimes.com/athletic/6572384/2025/08/25/tennis-us-open-day-2-matches-schedule/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6493176/2025/08/25/toronto-maple-leafs-nhl-pipeline
 **25 under-the-radar names to watch in CFB's 2025 coaching carousel**\
 `Don't be surprised if these rising coaches emerge in Power 4 head coach and coordinator searches later this fall.`\
 https://nytimes.com/athletic/6570986/2025/08/25/college-football-coaching-carousel-top-candidates/
-
-**Oilers rank No. 31 in NHL Pipeline Rankings for 2025**\
-`Edmonton's pipeline has two legit pro prospects, but the issue is that after them, there is next to nothing in its farm system.`\
-https://nytimes.com/athletic/6493185/2025/08/25/edmonton-oilers-nhl-pipeline-rankings-2025/
-
-**What if Dabo Swinney is right about college football's transfer portal?**\
-`By choosing long-term development over immediate fixes, Swinney has assembled a rare blend of talent, continuity and experience.`\
-https://nytimes.com/athletic/6572347/2025/08/25/dabo-swinney-college-football-transfer-portal/
-
-**He's big. He's slow. And now he's making stolen base history. What happened?**\
-`Josh Naylor is the only player 6-foot-or-under, and weighing at least 235 pounds, to ever steal 20-plus bases in a season.`\
-https://nytimes.com/athletic/6573039/2025/08/25/josh-naylor-stolen-bases-mariners/
 

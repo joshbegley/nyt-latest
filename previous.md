@@ -1,40 +1,40 @@
-**The Pulse: A sobering reality before Week 1 begins**\
-`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
-https://nytimes.com/athletic/6572790/2025/08/25/college-football-week-1-revenues/
+**The best matches of U.S. Open day 2, from Venus Williams to Carlos Alcaraz**\
+`The best matches of day 2 include Williams' return to the singles at 45, Alcaraz's tricky opener and Victoria Mboko's debut as a seed.`\
+https://nytimes.com/athletic/6572384/2025/08/25/tennis-us-open-day-2-matches-schedule/
 
-**Phillies takeaways: Banks shines, Suárez's command, the Castellanos question**\
-`“He's been a godsend for us,” manager Rob Thomson said of Banks, who is enjoying his best season in the big leagues. `\
-https://nytimes.com/athletic/6573201/2025/08/25/phillies-ranger-suarez-nick-castellanos-tanner-banks/
+**Derrick Harmon's injury will test the Steelers' defensive line depth**\
+`Coach Mike Tomlin said that Harmon is dealing with a knee sprain and categorized his timeline as "week-to-week" after the injury. `\
+https://nytimes.com/athletic/6573066/2025/08/25/derrick-harmon-injury-steelers-defensive-line-depth/
 
-**WNBA power rankings: Can the Aces keep climbing in the standings?**\
-`There is a play from Las Vegas’ win over Washington on Saturday that I keep rewatching.`\
-https://nytimes.com/athletic/6573492/2025/08/25/wnba-power-rankings-aces-standings/
+**Yankees-Red Sox takeaways: Boston's edge, New York's careful vibes, key questions**\
+`Here are key takeaways and questions for both teams following this series and with five weeks to go in the regular season. `\
+https://nytimes.com/athletic/6573533/2025/08/25/yankees-red-sox-american-league-playoffs/
 
-**Dibling set for Everton medical ahead of Southampton transfer**\
-`The deal consists of an initial £35m plus £5m in potential bonuses.`\
-https://nytimes.com/athletic/6569954/2025/08/25/tyler-dibling-everton-medical-southampton-transfer/
+**Senators rank No. 27 in NHL Pipeline Rankings for 2025**\
+`Ottawa’s pipeline has been highly ranked for years, but now only has a couple of legit prospects.`\
+https://nytimes.com/athletic/6493725/2025/08/25/ottawa-senators-nhl-pipeline-rankings-2025/
 
-**At the U.S. Open, tennis etiquette goes out of the window. Does it need to come back in?**\
-`The fourth Grand Slam of the year brings a raucous atmosphere and plenty of drama — and goes against the sport's unwritten rules.`\
-https://nytimes.com/athletic/6573033/2025/08/25/tennis-etiquette-rules-crowd-us-open/
+**They faced Deion Sanders in his first game at Colorado. Now they get Bill Belichick's UNC debut, too**\
+`TCU knows what it’s like to prepare for an opener with lots of hype and little schematic insight. It lost in Deion Sanders' Colorado debut.`\
+https://nytimes.com/athletic/6569858/2025/08/25/tcu-bill-belichick-unc-first-game/
 
-**'Very hungry' Cowboys CB Trevon Diggs could be making sooner-than-expected return**\
-`Diggs was moved to the active roster Sunday and his return would provide the secondary a much-needed boost.`\
-https://nytimes.com/athletic/6573148/2025/08/25/cowboys-trevon-diggs-return-knee-injury/
+**Maple Leafs rank No. 26 in NHL Pipeline Rankings for 2025**\
+`Toronto’s pipeline isn’t overly deep, but it still has solid players, even though it’s not a large number of them.`\
+https://nytimes.com/athletic/6493176/2025/08/25/toronto-maple-leafs-nhl-pipeline-rankings-2025/
 
-**Kepner: For the Yankees, a dash of perspective after a clean finale to a weekend mess**\
-`The Yankees’ flawed fundamentals may cost them in the end. But they are strong enough to win slugfests. They'll have a chance in October. `\
-https://nytimes.com/athletic/6573499/2025/08/25/yankees-red-sox-playoffs-perspective/
+**25 under-the-radar names to watch in CFB's 2025 coaching carousel**\
+`Don't be surprised if these rising coaches emerge in Power 4 head coach and coordinator searches later this fall.`\
+https://nytimes.com/athletic/6570986/2025/08/25/college-football-coaching-carousel-top-candidates/
 
-**2025 NASCAR Cup Series playoffs: All 16 drivers and their chances to win the title**\
-`Kyle Larson and William Byron enter as the leaders, but the race for the title is wide open as NASCAR's Cup Series playoffs begin.`\
-https://nytimes.com/athletic/6573132/2025/08/25/2025-nascar-playoffs-drivers/
+**Oilers rank No. 31 in NHL Pipeline Rankings for 2025**\
+`Edmonton's pipeline has two legit pro prospects, but the issue is that after them, there is next to nothing in its farm system.`\
+https://nytimes.com/athletic/6493185/2025/08/25/edmonton-oilers-nhl-pipeline-rankings-2025/
 
-**This Week in Mets: Where must the Mets improve to challenge the Phillies?**\
-`Only four teams this season have a wider gap between their performance against righties versus lefties than the Mets.`\
-https://nytimes.com/athletic/6573416/2025/08/25/this-week-in-mets-where-must-mets-improve/
+**What if Dabo Swinney is right about college football's transfer portal?**\
+`By choosing long-term development over immediate fixes, Swinney has assembled a rare blend of talent, continuity and experience.`\
+https://nytimes.com/athletic/6572347/2025/08/25/dabo-swinney-college-football-transfer-portal/
 
-**Eagles QB coach Scot Loeffler 'chasing perfection' with Jalen Hurts after leaving Bowling Green**\
-`Scot Loeffler left the college ranks to work with the reigning Super Bowl MVP.`\
-https://nytimes.com/athletic/6567291/2025/08/25/eagles-qb-coach-scot-loeffler-jalen-hurts/
+**He's big. He's slow. And now he's making stolen base history. What happened?**\
+`Josh Naylor is the only player 6-foot-or-under, and weighing at least 235 pounds, to ever steal 20-plus bases in a season.`\
+https://nytimes.com/athletic/6573039/2025/08/25/josh-naylor-stolen-bases-mariners/
 
