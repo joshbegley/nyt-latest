@@ -1,3 +1,7 @@
+**German Prosecutors Charge American With Attempted Spying for China**\
+`The authorities provided few details about the case, the latest in a series of apprehensions in Germany of potential Chinese spies.`\
+https://nytimes.com/2025/08/25/world/europe/germany-american-spy-china.html
+
 **Why Morgan Gautrat has moved to Newcastle: 'I've loved joining places I could help make better'**\
 `The USWNT midfielder has two world titles and is a reigning NWSL champion, so why move to WSL 2?`\
 https://nytimes.com/athletic/6571017/2025/08/25/morgan-gautrat-newcastle-united-interview/
@@ -30,11 +34,7 @@ https://nytimes.com/2025/08/25/climate/fema-employees-letter-trump-katrina.html
 `The new American envoy, Charles Kushner, said that France was not doing enough to protect its Jewish citizens, a charge the government in Paris said it “firmly refutes.”`\
 https://nytimes.com/2025/08/25/world/europe/us-ambassador-kushner-france-antisemitism.html
 
-**Trump Administration Live Updates: Kilmar Abrego Garcia Meets With Immigration Authorities**\
+**Trump Administration Live Updates: Kilmar Abrego Garcia Is Detained By Immigration Authorities, Lawyer Says**\
 ``\
 https://nytimes.com/live/2025/08/25/us/trump-news
-
-**Inside Real Madrid: Vinicius Jr concerns, Rodrygo latest, Ceballos' 'last dance'**\
-`The latest in our weekly look behind the scenes at Real Madrid has an update on Rodrygo's future at the club and much more`\
-https://nytimes.com/athletic/6573575/2025/08/25/inside-real-madrid-vinicius-jr-rodrygo-ceballos-alonso/
 

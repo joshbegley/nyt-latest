@@ -1,3 +1,11 @@
+**German Prosecutors Charge American With Attempted Spying for China**\
+`The authorities provided few details about the case, the latest in a series of apprehensions in Germany of potential Chinese spies.`\
+https://nytimes.com/2025/08/25/world/europe/germany-american-spy-china.html
+
+**Trump Administration Live Updates: Kilmar Abrego Garcia Is Detained By Immigration Authorities, Lawyer Says**\
+``\
+https://nytimes.com/live/2025/08/25/us/trump-news
+
 **Why Morgan Gautrat has moved to Newcastle: 'I've loved joining places I could help make better'**\
 `The USWNT midfielder has two world titles and is a reigning NWSL champion, so why move to WSL 2?`\
 https://nytimes.com/athletic/6571017/2025/08/25/morgan-gautrat-newcastle-united-interview/
