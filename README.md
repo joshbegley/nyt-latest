@@ -1,3 +1,7 @@
+**Israel’s Gaza Campaign Is Making It a Pariah State**\
+`Israel is well on its way to making itself a pariah state — to the point that Israelis will think twice about speaking Hebrew when traveling abroad.`\
+https://nytimes.com/2025/08/25/opinion/international-world/friedman-israel-gaza-hamas.html
+
 **Trump Repeatedly Praises North Korea’s Dictator in Meeting With South’s President**\
 `In the Oval Office, President Trump met his South Korean counterpart as the relationship between their countries has been strained.`\
 https://nytimes.com/2025/08/25/us/politics/trump-north-south-korea.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/world/middleeast/100000010359268/gaza-nasser-hospital-
 **Madison Keys stunned by world No. 82 Renata Zarazua in U.S. Open first round**\
 `Keys' exit, the biggest upset of the 2025 U.S. Open so far, opens up Coco Gauff's quarter.`\
 https://nytimes.com/athletic/6574528/2025/08/25/madison-keys-us-open-zarazua-upset-result-analysis/
-
-**Roma make approach to sign Tsimikas on loan from Liverpool**\
-`The 29-year-old joined Liverpool from Olympiacos in 2020 and signed a new contract in 2023, extending his terms until the summer of 2027.`\
-https://nytimes.com/athletic/6423881/2025/08/25/roma-make-approach-to-sign-kostas-tsimikas-on-loan-from-liverpool/
 
