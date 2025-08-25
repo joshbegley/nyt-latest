@@ -1,3 +1,11 @@
+**Daniil Medvedev, tennis' walking Rorschach test, asks the U.S. Open what it sees**\
+`Medvedev's tentacular game style and relish for the dark arts make him an acid test for how fans view tennis.`\
+https://nytimes.com/athletic/6574435/2025/08/25/tennis-medvedev-us-open-umpire-camera-bonzi/
+
+**After U.S. Takes Stake in Intel, Trump Pledges ‘Many More’ Deals**\
+`The president said he hoped to “get as much as I can,” signaling a shift in the relationship between government and private business.`\
+https://nytimes.com/2025/08/25/us/politics/trump-intel-economy-strategy.html
+
 **Israel’s Gaza Campaign Is Making It a Pariah State**\
 `Israel is well on its way to making itself a pariah state — to the point that Israelis will think twice about speaking Hebrew when traveling abroad.`\
 https://nytimes.com/2025/08/25/opinion/international-world/friedman-israel-gaza-hamas.html
