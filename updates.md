@@ -1,3 +1,7 @@
+**Garnacho, Jackson, Zinchenko and the other players Premier League clubs are trying to transfer**\
+`Billions have been spent but moving unwanted players on is now a necessity for many clubs before a transfer window closes`\
+https://nytimes.com/athletic/6568993/2025/08/25/garnacho-jackson-zinchenko-and-the-other-players-premier-league-clubs-are-trying-to-transfer/
+
 **Monday Briefing: Would Ukraine Give Up the Donbas?**\
 `Plus, the U.S. Open gets going.`\
 https://nytimes.com/2025/08/25/briefing/ukraine-donbas-gaza-south-korea-us-open.html

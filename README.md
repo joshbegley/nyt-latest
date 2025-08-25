@@ -1,3 +1,15 @@
+**California Farms Feed America. They Can’t Do It Without Immigrants.**\
+`We need a bipartisan solution that ensures a stable farm work force and protects farmworker families and the future of American agriculture.`\
+https://nytimes.com/2025/08/25/opinion/immigration-farmworkers-agriculture-groceries.html
+
+**The New York Times in Print for Monday, Aug. 25, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/08/25/todays-new-york-times
+
+**‘Thursday Murder Club,’ Plus 6 Things to Watch on TV This Week**\
+`The book adaptation of the mystery series comes to Netflix, and Peacock airs the “Love Island USA” reunion.`\
+https://nytimes.com/2025/08/25/arts/television/thursday-murder-club-plus-6-things-to-watch-on-tv-this-week.html
+
 **Monday Briefing: Would Ukraine Give Up the Donbas?**\
 `Plus, the U.S. Open gets going.`\
 https://nytimes.com/2025/08/25/briefing/ukraine-donbas-gaza-south-korea-us-open.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6572800/2025/08/25/max-dowman-premier-league-younge
 **Howe, Hughes, friendship and fallout - and the fight for Isak**\
 `Eddie Howe and Richard Hughes go back decades. Where will those relationships lie once the transfer window closes after the Isak saga?`\
 https://nytimes.com/athletic/6572668/2025/08/25/alexander-isak-newcastle-liverpool-transfer/
-
-**Can Nuno, Edu and Marinakis fix the mess at Forest?**\
-`A typically tumultuous 72 hours raised questions over manager's future and doubts still linger over his long-term prospects`\
-https://nytimes.com/athletic/6569508/2025/08/25/nuno-edu-marinakis-nottingham-forest/
-
-**Garnacho, Jackson, Zinchenko and the other players Premier League clubs are trying to transfer**\
-`Billions have been spent but moving unwanted players on is now a necessity for many clubs before a transfer window closes`\
-https://nytimes.com/athletic/6568993/2025/08/25/garnacho-jackson-zinchenko-and-the-other-players-premier-league-clubs-are-trying-to-transfer/
-
-**North Korea’s Glossy New Surface: Apps, Beaches and a Fake Starbucks**\
-`Videos taken by visitors to the isolated country provide a rare glimpse of how it’s mimicking the consumerism of the outside world.`\
-https://nytimes.com/2025/08/25/world/asia/north-korea-foreign-tourism.html
 
