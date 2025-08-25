@@ -1,3 +1,7 @@
+**The Pulse: A sobering reality before Week 1 begins**\
+`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/6572790/2025/08/25/college-football-week-1-revenues/
+
 **Phillies takeaways: Banks shines, Suárez's command, the Castellanos question**\
 `“He's been a godsend for us,” manager Rob Thomson said of Banks, who is enjoying his best season in the big leagues. `\
 https://nytimes.com/athletic/6573201/2025/08/25/phillies-ranger-suarez-nick-castellanos-tanner-banks/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6573416/2025/08/25/this-week-in-mets-where-must-met
 **Eagles QB coach Scot Loeffler 'chasing perfection' with Jalen Hurts after leaving Bowling Green**\
 `Scot Loeffler left the college ranks to work with the reigning Super Bowl MVP.`\
 https://nytimes.com/athletic/6567291/2025/08/25/eagles-qb-coach-scot-loeffler-jalen-hurts/
-
-**Ohio State football 2025 streaming guide: Broadcast info and schedule for national champs**\
-`Ohio State tries to run it back as national champion. Here's what to know about the Buckeyes' upcoming 2025 schedule.`\
-https://nytimes.com/athletic/6564161/2025/08/25/ohio-state-football-2025-schedule-how-to-watch/
 

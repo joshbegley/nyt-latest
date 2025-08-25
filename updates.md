@@ -1,3 +1,7 @@
+**The Pulse: A sobering reality before Week 1 begins**\
+`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/6572790/2025/08/25/college-football-week-1-revenues/
+
 **Phillies takeaways: Banks shines, Suárez's command, the Castellanos question**\
 `“He's been a godsend for us,” manager Rob Thomson said of Banks, who is enjoying his best season in the big leagues. `\
 https://nytimes.com/athletic/6573201/2025/08/25/phillies-ranger-suarez-nick-castellanos-tanner-banks/
