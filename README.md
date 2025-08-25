@@ -1,3 +1,7 @@
+**St. Louis City SC fires sporting director Lutz Pfannenstiel amid struggles**\
+`St. Louis City is languishing far outside the MLS playoff picture and has made a significant change in hopes of turning its fortunes`\
+https://nytimes.com/athletic/6574064/2025/08/25/lutz-pfannenstiel-st-louis-city-fired-mls/
+
 **What to Know About the Journalists Killed in Gaza**\
 `Five journalists were killed in what local officials said was an Israeli strike on Nasser Hospital in the southern Gazan city of Khan Younis.`\
 https://nytimes.com/2025/08/25/world/middleeast/gaza-journalists-killed-nasser-hospital.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/25/arts/music/kneecap-cancels-us-tour.html
 **Tracking Tropical Storm Juliette**\
 `See the likely path and wind arrival times for Juliette`\
 https://nytimes.com/interactive/2025/weather/juliette-map-path-tracker.html
-
-**What we learned from Jalen Milroe in his first NFL preseason**\
-`Milroe was hardly discouraged by his rocky moments in Green Bay. "If you're discouraged, that means you're not a competitor," he said.`\
-https://nytimes.com/athletic/6573572/2025/08/25/jalen-milroe-preseason-seahawks-rookie-qb/
 
