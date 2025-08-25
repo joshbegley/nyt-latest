@@ -1,3 +1,7 @@
+**President Trump demands Roger Clemens be enshrined in Hall of Fame 'now'**\
+`The seven-time Cy Young winner fell off the Hall of Fame ballot in 2022 after failing to get enough votes in 10 tries.`\
+https://nytimes.com/athletic/6573239/2025/08/24/president-trump-roger-clemens-hall-of-fame/
+
 **This Is the End of China’s Once Mightiest Property Firm**\
 `China Evergrande, delisted from the Hong Kong Stock Exchange on Monday, leaves behind a giant pile of debt and a long line of desperate creditors.`\
 https://nytimes.com/2025/08/24/business/china-evergrande-delisted.html

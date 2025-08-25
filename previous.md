@@ -26,7 +26,7 @@ https://nytimes.com/athletic/6573331/2025/08/24/dalton-rushing-dodgers-offense-s
 `The No. 5 pick in the 2023 draft is now just one step from the big leagues as a 20-year-old.`\
 https://nytimes.com/athletic/6573321/2025/08/24/twins-top-prospect-walker-jenkins-promoted-triple-a/
 
-**President Trump demands Roger Clemens be enshrined in Hall of Fame 'NOW'**\
+**President Trump demands Roger Clemens be enshrined in Hall of Fame 'now'**\
 `The seven-time Cy Young winner fell off the Hall of Fame ballot in 2022 after failing to get enough votes in 10 tries.`\
 https://nytimes.com/athletic/6573239/2025/08/24/president-trump-roger-clemens-hall-of-fame/
 
