@@ -1,3 +1,15 @@
+**President Trump demands Roger Clemens be enshrined in Hall of Fame 'NOW'**\
+`The seven-time Cy Young winner fell off the Hall of Fame ballot in 2022 after failing to get enough votes in 10 tries.`\
+https://nytimes.com/athletic/6573239/2025/08/24/president-trump-roger-clemens-hall-of-fame/
+
+**The Other Territory**\
+`Since the Oct. 7 attacks, Israel has tightened up restrictions on three million Palestinians in the West Bank.`\
+https://nytimes.com/2025/08/24/podcasts/the-other-territory.html
+
+**This Is the End of China’s Once Mightiest Property Firm**\
+`China Evergrande, set to be delisted from the Hong Kong Stock Exchange on Monday, leaves behind a giant pile of debt and long line of desperate creditors.`\
+https://nytimes.com/2025/08/24/business/china-evergrande-delisted.html
+
 **Brewers remember, celebrate late Bob Uecker: 'This is a chance for all of you to say goodbye'**\
 `The memorial program interspersed testimonials with a four-part video that recounted Uecker's life, career and his connection to Milwaukee.`\
 https://nytimes.com/athletic/6571420/2025/08/24/milwaukee-brewers-bob-uecker-celebration/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6573108/2025/08/24/tour-championship-2025-tommy-fle
 **Chinese Taipei dominates Nevada to win Little League World Series**\
 `Chinese-Taipei pitcher Lin Chin-Tse threw a gem on the mound for Taiwan, holding Nevada to just one hit.`\
 https://nytimes.com/athletic/6572975/2025/08/24/little-league-world-series-nevada-taipei-results-2025/
-
-**Monday Briefing: Would Ukraine Give Up the Donbas?**\
-`Also, the U.S. Open gets going.`\
-https://nytimes.com/2025/08/24/briefing/ukraine-donbas-russia-south-korea-trump.html
-
-**UNC football docuseries coming to Hulu this fall**\
-`The docuseries will follow UNC and first-year coach Bill Belichick after a deal with HBO's "Hard Knocks" fell through in the spring.`\
-https://nytimes.com/athletic/6573009/2025/08/24/unc-football-documentary-hulu/
-
-**Mariners' Cal Raleigh homers twice, sets catcher record with MLB-leading 49th HR**\
-`Breaking Salvador Perez's record is Raleigh's latest feat during an All-Star season.`\
-https://nytimes.com/athletic/6569698/2025/08/24/mlb-cal-raleigh-home-run-catcher-record/
 

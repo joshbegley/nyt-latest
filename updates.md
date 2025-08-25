@@ -1,3 +1,15 @@
+**President Trump demands Roger Clemens be enshrined in Hall of Fame 'NOW'**\
+`The seven-time Cy Young winner fell off the Hall of Fame ballot in 2022 after failing to get enough votes in 10 tries.`\
+https://nytimes.com/athletic/6573239/2025/08/24/president-trump-roger-clemens-hall-of-fame/
+
+**The Other Territory**\
+`Since the Oct. 7 attacks, Israel has tightened up restrictions on three million Palestinians in the West Bank.`\
+https://nytimes.com/2025/08/24/podcasts/the-other-territory.html
+
+**This Is the End of China’s Once Mightiest Property Firm**\
+`China Evergrande, set to be delisted from the Hong Kong Stock Exchange on Monday, leaves behind a giant pile of debt and long line of desperate creditors.`\
+https://nytimes.com/2025/08/24/business/china-evergrande-delisted.html
+
 **Brewers remember, celebrate late Bob Uecker: 'This is a chance for all of you to say goodbye'**\
 `The memorial program interspersed testimonials with a four-part video that recounted Uecker's life, career and his connection to Milwaukee.`\
 https://nytimes.com/athletic/6571420/2025/08/24/milwaukee-brewers-bob-uecker-celebration/
