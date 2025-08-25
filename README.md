@@ -1,3 +1,7 @@
+**Expecting on the Front Lines: Motherhood in Ukraine’s Military**\
+`Pregnant Ukrainian soldiers say they are fighting for the future of their country and for their children.`\
+https://nytimes.com/2025/08/25/world/europe/ukraine-military-war-pregnancy.html
+
 **Arsenal working on deal to sign Hincapie from Bayer Leverkusen**\
 `Hincapie’s preference is to join Arsenal and the Premier League side are ready to push for him, should departures materialise.`\
 https://nytimes.com/athletic/6573642/2025/08/25/arsenal-hincapie-transfer-news/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/25/us/politics/trump-diplomacy-putin-alaska-ukraine-
 **Philadelphia Transit Cuts Take Hold, and Commuters Begin to Feel the Pain**\
 `A budget shortfall has led the city’s transit authority to cut its bus and rail services by 20 percent.`\
 https://nytimes.com/2025/08/25/us/philadelphia-transit-cuts.html
-
-**Staying in San Antonio After Building a New ‘Heart’ for Their Home**\
-`The Anconas found their bungalow cramped as their family grew. Despite limited space, they were able to create a large kitchen, dining and living space in an addition.`\
-https://nytimes.com/2025/08/25/realestate/san-antonio-home-extension-yard.html
 
