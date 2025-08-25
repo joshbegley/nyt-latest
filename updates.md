@@ -1,3 +1,11 @@
+**Newcastle have £50m Strand Larsen offer rejected by Wolves**\
+`Wolves' stance is that any bid for Strand Larsen this summer will be rejected given he is considered too important to the club`\
+https://nytimes.com/athletic/6529761/2025/08/25/jorgen-strand-larsen-newcastle-transfer-wolves/
+
+**With Trump’s Takeover, Washington Finds a Mission to Resist**\
+`Known more for their museums, monuments and government buildings than their culture, Washingtonians are showing a spirit of dissent as protesters dog federal agents in their streets.`\
+https://nytimes.com/2025/08/25/us/politics/washington-dc-trump.html
+
 **Kevin O'Leary part of group behind record $12.9 million basketball card purchase**\
 `The 'Shark Tank' star announced his involvement in the purchase during an interview on Monday`\
 https://nytimes.com/athletic/6573945/2025/08/25/jordan-bryant-card-oleary/
