@@ -1,3 +1,7 @@
+**Netflix to stream 2026 World Baseball Classic in Japan**\
+`The streaming service is interested in expanding in Japan, making Shohei Ohtani and the Japanese team appealing.`\
+https://nytimes.com/athletic/6574987/2025/08/25/netflix-world-baseball-classic/
+
 **A judge threatens to hold a Trump official in contempt over the silencing of Voice of America.**\
 `Judge Royce C. Lamberth in Washington`\
 https://nytimes.com/2025/08/25/us/politics/trump-official-voa-judge.html

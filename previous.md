@@ -19,7 +19,7 @@ https://nytimes.com/athletic/6574894/2025/08/25/eddie-howe-joelinton-sandro-tona
 https://nytimes.com/2025/08/25/us/politics/pritzker-chicago-trump-national-guard.html
 
 **Netflix to stream 2026 World Baseball Classic in Japan**\
-`The partnership with MLB is the start of a relationship that is expected to grow soon.`\
+`The streaming service is interested in expanding in Japan, making Shohei Ohtani and the Japanese team appealing.`\
 https://nytimes.com/athletic/6574987/2025/08/25/netflix-world-baseball-classic/
 
 **Trump Once Praised the Black History Museum That He Is Now Attacking**\
