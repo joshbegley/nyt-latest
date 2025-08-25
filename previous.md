@@ -1,3 +1,27 @@
+**North Korea’s Glossy New Surface: Apps, Beaches and a Fake Starbucks**\
+`Videos taken by visitors to the isolated country provide a rare glimpse of how it’s mimicking the consumerism of the outside world.`\
+https://nytimes.com/2025/08/25/world/asia/north-korea-foreign-tourism.html
+
+**A Glimpse into North Korea’s New Beach Resort**\
+`Daria Zubkova, one of the first foreign tourists to visit the Wonsan Kalma resort, said the experience felt like other beach trips she’d taken before, but with some unusual features.`\
+https://nytimes.com/video/world/asia/100000010348569/north-korea-beach-resort-tourist.html
+
+**No corrections: Aug. 25, 2025**\
+`No corrections appeared in print on Monday, Aug. 25, 2025.`\
+https://nytimes.com/2025/08/25/corrections/no-corrections-aug-25-2025.html
+
+**Quote of the Day: Under Trump, Far-Right View Is Mainstream**\
+`Quotation of the Day for Monday, August 25, 2025.`\
+https://nytimes.com/2025/08/25/pageoneplus/quote-of-the-day-under-trump-far-right-view-is-mainstream.html
+
+**Connections: Sports Edition Coach: Hints for Aug. 25, 2025**\
+`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
+https://nytimes.com/athletic/6572023/2025/08/25/connections-sports-edition-hints-for-aug-25-2025/
+
+**5 Years On, China’s Property Crisis Has No End in Sight**\
+`The government had set out to slow speculation, kicking off a slowdown in real estate values that is still grinding on with wide economic consequences.`\
+https://nytimes.com/2025/08/25/business/china-property-downturn.html
+
 **Medvedev vs. Bonzi delayed for six minutes at U.S. Open after crowd refuses to be quiet**\
 `After Bonzi was given back a first serve because a photographer entered the court, Medvedev was irate.`\
 https://nytimes.com/athletic/6573472/2025/08/24/us-open-medvedev-bonzi-crowd-photographer-umpire/
@@ -13,28 +37,4 @@ https://nytimes.com/athletic/6573426/2025/08/24/michigan-quarterback-bryce-under
 **National Guard Patrols Begin to Carry Weapons in D.C.**\
 `More than 2,200 troops were deployed in Washington as of Sunday, a Guard spokesman said.`\
 https://nytimes.com/2025/08/24/us/politics/national-guard-weapons-guns-dc.html
-
-**Eagles reacquire Fred Johnson, deal Darian Kinnard to Packers: Sources**\
-`The Eagles made two trades on Sunday as they attempt to shore up their offensive line depth while also maintaining draft capital.`\
-https://nytimes.com/athletic/6573312/2025/08/24/eagles-trade-fred-johnson-darian-kinnard/
-
-**Kyle Hendricks is a reminder the Cubs will go only as far as their pitching takes them**\
-`Hendricks' legacy in Chicago endures — defined by intellect, precision and a World Series run that transcended generations.`\
-https://nytimes.com/athletic/6573318/2025/08/24/kyle-hendricks-angeles-cubs-pitching/
-
-**Dalton Rushing, Dodgers offense finally show life to stave off sweep in San Diego**\
-`Rushing's homer on a full-count slider from Jeremiah Estrada was only his fourth hit off a breaking ball in 34 at-bats.`\
-https://nytimes.com/athletic/6573331/2025/08/24/dalton-rushing-dodgers-offense-stave-off-sweep-san-diego/
-
-**Twins' top prospect Walker Jenkins promoted to Triple-A St. Paul**\
-`The No. 5 pick in the 2023 draft is now just one step from the big leagues as a 20-year-old.`\
-https://nytimes.com/athletic/6573321/2025/08/24/twins-top-prospect-walker-jenkins-promoted-triple-a/
-
-**President Trump demands Roger Clemens be enshrined in Hall of Fame 'now'**\
-`The seven-time Cy Young winner fell off the Hall of Fame ballot in 2022 after failing to get enough votes in 10 tries.`\
-https://nytimes.com/athletic/6573239/2025/08/24/president-trump-roger-clemens-hall-of-fame/
-
-**The Other Territory**\
-`Since the Oct. 7 attacks, Israel has tightened up restrictions on three million Palestinians in the West Bank.`\
-https://nytimes.com/2025/08/24/podcasts/the-other-territory.html
 
