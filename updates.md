@@ -1,3 +1,7 @@
+**Raiders reject Jakobi Meyers trade request as extension talks stall: Source**\
+`Meyers is in the final year of his deal and is set to make a base salary of $10.5 million this season.`\
+https://nytimes.com/athletic/6574626/2025/08/25/jakobi-meyers-trade-request-raiders/
+
 **How the Pygmy Sea Horse Lost Its Snout**\
 `The genome of a small, remarkable sea horse offers a surprising lesson in nature’s creativity.`\
 https://nytimes.com/2025/08/25/science/evolution-genetics-seahorses.html
