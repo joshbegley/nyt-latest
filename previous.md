@@ -1,3 +1,11 @@
+**Kneecap Cancels U.S. Tour, Calling Terrorism Charge a ‘Witch Hunt’**\
+`One member of the Northern Irish rap group, which is known for its anti-Israel and pro-Palestinian views, is accused of displaying a flag supporting Hezbollah.`\
+https://nytimes.com/2025/08/25/arts/music/kneecap-cancels-us-tour.html
+
+**Tracking Tropical Storm Juliette**\
+`See the likely path and wind arrival times for Juliette`\
+https://nytimes.com/interactive/2025/weather/juliette-map-path-tracker.html
+
 **What we learned from Jalen Milroe in his first NFL preseason**\
 `Milroe was hardly discouraged by his rocky moments in Green Bay. "If you're discouraged, that means you're not a competitor," he said.`\
 https://nytimes.com/athletic/6573572/2025/08/25/jalen-milroe-preseason-seahawks-rookie-qb/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6529761/2025/08/25/jorgen-strand-larsen-newcastle-t
 **With Trump’s Takeover, Washington Finds a Mission to Resist**\
 `Known more for their museums, monuments and government buildings than their culture, Washingtonians are showing a spirit of dissent as protesters dog federal agents in their streets.`\
 https://nytimes.com/2025/08/25/us/politics/washington-dc-trump.html
-
-**Kevin O'Leary part of group behind record $12.9 million basketball card purchase**\
-`The "Shark Tank" star announced his involvement in the purchase during an interview on Monday`\
-https://nytimes.com/athletic/6573945/2025/08/25/jordan-bryant-card-oleary/
-
-**State of the Penguins: The long, winding road of a rebuild that's looking for a spark**\
-`A look at where the Penguins stand with training camp less than a month away and the 2025-26 season fast approaching.`\
-https://nytimes.com/athletic/6530137/2025/08/25/penguins-rebuild-roster-2025-26-nhl-season/
 

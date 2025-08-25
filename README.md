@@ -1,3 +1,15 @@
+**Luis Matos is on another one of his tears, and it's just what the Giants need**\
+`Matos has shown flashes of this kind of production. The Giants need him, or another young player, to make a sustained breakthrough soon.`\
+https://nytimes.com/athletic/6573429/2025/08/25/sf-giants-luis-matos-development/
+
+**Scientists Find a Quadruple Star System in Our Cosmic Backyard**\
+`Two of the objects in the arrangement are cold brown dwarfs, which will serve as a benchmark for others throughout the Milky Way.`\
+https://nytimes.com/2025/08/25/science/quadruple-star-system.html
+
+**Jobe Bellingham's father had 'emotional' exchange with Dortmund executive**\
+`Borussia Dortmund CEO for sport, Lars Ricken, confirmed the conversation took place after Saturday's draw with St Pauli.`\
+https://nytimes.com/athletic/6573785/2025/08/25/jobe-bellingham-father-dortmund-sporting-director/
+
 **Kneecap Cancels U.S. Tour, Calling Terrorism Charge a ‘Witch Hunt’**\
 `One member of the Northern Irish rap group, which is known for its anti-Israel and pro-Palestinian views, is accused of displaying a flag supporting Hezbollah.`\
 https://nytimes.com/2025/08/25/arts/music/kneecap-cancels-us-tour.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/08/25/well/jillian-michaels-profile.html
 **A Lemony Zucchini Pasta Boosted by Miso**\
 `Salting and searing your squash keeps it from turning into mush; a silky miso-pecorino sauce balances its sweetness.`\
 https://nytimes.com/2025/08/25/dining/a-lemony-zucchini-pasta-boosted-by-miso.html
-
-**In a Hotter World, Some People Age Faster, Researchers Find**\
-`Exposure to heat waves over just two years could add up to 12 extra days of age-related health damage.`\
-https://nytimes.com/2025/08/25/climate/in-a-hotter-world-some-people-age-faster-researchers-find.html
-
-**Newcastle have £50m Strand Larsen offer rejected by Wolves**\
-`Wolves' stance is that any bid for Strand Larsen this summer will be rejected given he is considered too important to the club`\
-https://nytimes.com/athletic/6529761/2025/08/25/jorgen-strand-larsen-newcastle-transfer-wolves/
-
-**With Trump’s Takeover, Washington Finds a Mission to Resist**\
-`Known more for their museums, monuments and government buildings than their culture, Washingtonians are showing a spirit of dissent as protesters dog federal agents in their streets.`\
-https://nytimes.com/2025/08/25/us/politics/washington-dc-trump.html
 

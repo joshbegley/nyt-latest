@@ -1,3 +1,11 @@
+**Kneecap Cancels U.S. Tour, Calling Terrorism Charge a ‘Witch Hunt’**\
+`One member of the Northern Irish rap group, which is known for its anti-Israel and pro-Palestinian views, is accused of displaying a flag supporting Hezbollah.`\
+https://nytimes.com/2025/08/25/arts/music/kneecap-cancels-us-tour.html
+
+**Tracking Tropical Storm Juliette**\
+`See the likely path and wind arrival times for Juliette`\
+https://nytimes.com/interactive/2025/weather/juliette-map-path-tracker.html
+
 **What we learned from Jalen Milroe in his first NFL preseason**\
 `Milroe was hardly discouraged by his rocky moments in Green Bay. "If you're discouraged, that means you're not a competitor," he said.`\
 https://nytimes.com/athletic/6573572/2025/08/25/jalen-milroe-preseason-seahawks-rookie-qb/
