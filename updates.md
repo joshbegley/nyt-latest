@@ -1,3 +1,7 @@
+**Israel’s Gaza Campaign Is Making It a Pariah State**\
+`Israel is well on its way to making itself a pariah state — to the point that Israelis will think twice about speaking Hebrew when traveling abroad.`\
+https://nytimes.com/2025/08/25/opinion/international-world/friedman-israel-gaza-hamas.html
+
 **Trump Repeatedly Praises North Korea’s Dictator in Meeting With South’s President**\
 `In the Oval Office, President Trump met his South Korean counterpart as the relationship between their countries has been strained.`\
 https://nytimes.com/2025/08/25/us/politics/trump-north-south-korea.html
