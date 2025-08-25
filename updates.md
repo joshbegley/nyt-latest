@@ -1,3 +1,7 @@
+**Bengals, Trey Hendrickson agree to reworked 1-year deal to end holdout**\
+`The NFL's reigning sack leader comes to terms in Cincinnati after a contentious offseason.`\
+https://nytimes.com/athletic/6547675/2025/08/25/trey-hendrickson-contract-bengals/
+
 **Judge Allows Blocking of Funds to Maine Abortion Providers**\
 `In a blunt ruling, the federal judge wrote that he would not thwart Republican lawmakers’ bid to pull Medicaid funds from organizations that perform abortions.`\
 https://nytimes.com/2025/08/25/us/politics/maine-judge-abortion-funding-blocked.html
