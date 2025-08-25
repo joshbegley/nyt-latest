@@ -1,3 +1,7 @@
+**This Is the End of China’s Once Mightiest Property Firm**\
+`China Evergrande, set to be delisted from the Hong Kong Stock Exchange on Monday, leaves behind a giant pile of debt and a long line of desperate creditors.`\
+https://nytimes.com/2025/08/24/business/china-evergrande-delisted.html
+
 **Kyle Hendricks is a reminder the Cubs will go only as far as their pitching takes them**\
 `Hendricks' legacy in Chicago endures — defined by intellect, precision and a World Series run that transcended generations.`\
 https://nytimes.com/athletic/6573318/2025/08/24/kyle-hendricks-angeles-cubs-pitching/

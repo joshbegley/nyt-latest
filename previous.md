@@ -19,7 +19,7 @@ https://nytimes.com/athletic/6573239/2025/08/24/president-trump-roger-clemens-ha
 https://nytimes.com/2025/08/24/podcasts/the-other-territory.html
 
 **This Is the End of China’s Once Mightiest Property Firm**\
-`China Evergrande, set to be delisted from the Hong Kong Stock Exchange on Monday, leaves behind a giant pile of debt and long line of desperate creditors.`\
+`China Evergrande, set to be delisted from the Hong Kong Stock Exchange on Monday, leaves behind a giant pile of debt and a long line of desperate creditors.`\
 https://nytimes.com/2025/08/24/business/china-evergrande-delisted.html
 
 **Brewers remember, celebrate late Bob Uecker: 'This is a chance for all of you to say goodbye'**\
