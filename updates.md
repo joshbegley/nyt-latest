@@ -1,3 +1,15 @@
+**Inside Barca: Rashford's first start, Casado's future and when will they return to Camp Nou?**\
+`A look at the key talking points this week at Barca in the latest of our new weekly series`\
+https://nytimes.com/athletic/6573697/2025/08/25/inside-barcelona-rashford-casado-camp-nou/
+
+**Astros rookie Cam Smith is handling failure 'better than anybody'**\
+`Failure of some degree seemed inevitable for someone who entered the season with 32 games of minor-league experience`\
+https://nytimes.com/athletic/6573184/2025/08/25/houston-astros-rookie-cam-smith-development/
+
+**Cases Closed**\
+`We explore how President Trump selectively enforces the law.`\
+https://nytimes.com/2025/08/25/briefing/president-trump-law.html
+
 **The best matches of U.S. Open day 2, from Venus Williams to Carlos Alcaraz**\
 `The best matches of day 2 include Williams' return to the singles at 45, Alcaraz's tricky opener and Victoria Mboko's debut as a seed.`\
 https://nytimes.com/athletic/6572384/2025/08/25/tennis-us-open-day-2-matches-schedule/
