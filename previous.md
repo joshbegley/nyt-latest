@@ -1,3 +1,11 @@
+**Phillies takeaways: Banks shines, Suárez's command, the Castellanos question**\
+`“He's been a godsend for us,” manager Rob Thomson said of Banks, who is enjoying his best season in the big leagues. `\
+https://nytimes.com/athletic/6573201/2025/08/25/phillies-ranger-suarez-nick-castellanos-tanner-banks/
+
+**WNBA power rankings: Can the Aces keep climbing in the standings?**\
+`There is a play from Las Vegas’ win over Washington on Saturday that I keep rewatching.`\
+https://nytimes.com/athletic/6573492/2025/08/25/wnba-power-rankings-aces-standings/
+
 **Dibling set for Everton medical ahead of Southampton transfer**\
 `The deal consists of an initial £35m plus £5m in potential bonuses.`\
 https://nytimes.com/athletic/6569954/2025/08/25/tyler-dibling-everton-medical-southampton-transfer/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6567291/2025/08/25/eagles-qb-coach-scot-loeffler-ja
 **Ohio State football 2025 streaming guide: Broadcast info and schedule for national champs**\
 `Ohio State tries to run it back as national champion. Here's what to know about the Buckeyes' upcoming 2025 schedule.`\
 https://nytimes.com/athletic/6564161/2025/08/25/ohio-state-football-2025-schedule-how-to-watch/
-
-**Wordle Review No. 1,529**\
-`Scroll down for hints and conversation about the puzzle for Tuesday, Aug. 26, 2025.`\
-https://nytimes.com/2025/08/25/crosswords/wordle-review-1529.html
-
-**Inside the A.I. Talent Wars**\
-`Researchers in the technology have been landing quarter-billion dollar salaries.`\
-https://nytimes.com/2025/08/25/podcasts/the-daily/ai-salaries-tech-silicon-valley.html
 
