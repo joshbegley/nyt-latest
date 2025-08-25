@@ -1,3 +1,11 @@
+**Howe, Hughes, friendship and fallout - and the fight for Isak**\
+`Eddie Howe and Richard Hughes go back decades. Where will those relationships lie once the transfer window closes after the Isak saga?`\
+https://nytimes.com/athletic/6572668/2025/08/25/alexander-isak-newcastle-liverpool-transfer/
+
+**Can Nuno, Edu and Marinakis fix the mess at Forest?**\
+`A typically tumultuous 72 hours raised questions over manager's future and doubts still linger over his long-term prospects`\
+https://nytimes.com/athletic/6569508/2025/08/25/nuno-edu-marinakis-nottingham-forest/
+
 **North Korea’s Glossy New Surface: Apps, Beaches and a Fake Starbucks**\
 `Videos taken by visitors to the isolated country provide a rare glimpse of how it’s mimicking the consumerism of the outside world.`\
 https://nytimes.com/2025/08/25/world/asia/north-korea-foreign-tourism.html

@@ -1,3 +1,15 @@
+**Why playing two left-footed centre-backs sums up Aston Villa's problems**\
+`Squad balance and depth remains in question at Villa – as the struggles of Torres and Mings in defence against Brentford showed`\
+https://nytimes.com/athletic/6571489/2025/08/25/aston-villa-brentford-defence-refresh-result/
+
+**This is why Arsenal invested**\
+`Arsenal's dominant victory on Saturday still threw up some familiar issues - but they are now in better position to deal with them`\
+https://nytimes.com/athletic/6571536/2025/08/25/this-is-why-arsenal-invested/
+
+**The Briefing: Why Max Dowman can break a 20-year Premier League record**\
+`The big talking points from the Premier League weekend, including more passing into trouble and the grappling 'crackdown'`\
+https://nytimes.com/athletic/6572800/2025/08/25/max-dowman-premier-league-youngest-scorer-record/
+
 **Howe, Hughes, friendship and fallout - and the fight for Isak**\
 `Eddie Howe and Richard Hughes go back decades. Where will those relationships lie once the transfer window closes after the Isak saga?`\
 https://nytimes.com/athletic/6572668/2025/08/25/alexander-isak-newcastle-liverpool-transfer/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/08/25/pageoneplus/quote-of-the-day-under-trump-far-righ
 **Connections: Sports Edition Coach: Hints for Aug. 25, 2025**\
 `Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
 https://nytimes.com/athletic/6572023/2025/08/25/connections-sports-edition-hints-for-aug-25-2025/
-
-**5 Years On, China’s Property Crisis Has No End in Sight**\
-`The government had set out to slow speculation, kicking off a slowdown in real estate values that is still grinding on with wide economic consequences.`\
-https://nytimes.com/2025/08/25/business/china-property-downturn.html
-
-**Medvedev vs. Bonzi delayed for six minutes at U.S. Open after crowd refuses to be quiet**\
-`After Bonzi was given back a first serve because a photographer entered the court, Medvedev was irate.`\
-https://nytimes.com/athletic/6573472/2025/08/24/us-open-medvedev-bonzi-crowd-photographer-umpire/
-
-**Jeremiah Estrada's Dodgers struggles continue as Padres fall back into NL West tie**\
-`"They might even know what color underwear I'm wearing. I mean, I don't even know what the heck it is," Estrada said about the Dodgers. `\
-https://nytimes.com/athletic/6558832/2025/08/24/jeremiah-estrada-padres-dodgers-home-runs/
 
