@@ -1,3 +1,7 @@
+**Medvedev vs. Bonzi delayed for six minutes at U.S. Open after crowd refuses to be quiet**\
+`After Bonzi was given back a first serve because a photographer entered the court, Medvedev was irate.`\
+https://nytimes.com/athletic/6573472/2025/08/24/us-open-medvedev-bonzi-crowd-photographer-umpire/
+
 **President Trump demands Roger Clemens be enshrined in Hall of Fame 'now'**\
 `The seven-time Cy Young winner fell off the Hall of Fame ballot in 2022 after failing to get enough votes in 10 tries.`\
 https://nytimes.com/athletic/6573239/2025/08/24/president-trump-roger-clemens-hall-of-fame/

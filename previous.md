@@ -1,3 +1,7 @@
+**Medvedev vs. Bonzi delayed for six minutes at U.S. Open after crowd refuses to be quiet**\
+`After Bonzi was given back a first serve because a photographer entered the court, Medvedev was irate.`\
+https://nytimes.com/athletic/6573472/2025/08/24/us-open-medvedev-bonzi-crowd-photographer-umpire/
+
 **Jeremiah Estrada's Dodgers struggles continue as Padres fall back into NL West tie**\
 `"They might even know what color underwear I'm wearing. I mean, I don't even know what the heck it is," Estrada said about the Dodgers. `\
 https://nytimes.com/athletic/6558832/2025/08/24/jeremiah-estrada-padres-dodgers-home-runs/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6573239/2025/08/24/president-trump-roger-clemens-ha
 **The Other Territory**\
 `Since the Oct. 7 attacks, Israel has tightened up restrictions on three million Palestinians in the West Bank.`\
 https://nytimes.com/2025/08/24/podcasts/the-other-territory.html
-
-**This Is the End of China’s Once Mightiest Property Firm**\
-`China Evergrande, delisted from the Hong Kong Stock Exchange on Monday, leaves behind a giant pile of debt and a long line of desperate creditors.`\
-https://nytimes.com/2025/08/24/business/china-evergrande-delisted.html
 
