@@ -1,3 +1,15 @@
+**Despite Trump’s Tough Talk, Flag Burning Is Protected Speech**\
+`The president wants to prosecute protesters who desecrate the American flag, but his order concedes that such protests are typically covered by the First Amendment.`\
+https://nytimes.com/2025/08/25/us/politics/trump-flag-burning-executive-order.html
+
+**Abrego Garcia Was Detained Again**\
+`Also, heat waves could be making you age faster. Here’s the latest at the end of Monday.`\
+https://nytimes.com/2025/08/25/briefing/abrego-garcia-was-detained-again.html
+
+**Arch Manning leads No. 1 Texas vs. Ohio State: 'What I’ve been waiting for'**\
+`Steve Sarkisian has some advice for his heralded QB ahead of showdown: "Just be you."`\
+https://nytimes.com/athletic/6574854/2025/08/25/texas-arch-manning-takes-reins-ohio-state/
+
 **Bengals, Trey Hendrickson agree to reworked 1-year deal to end holdout**\
 `The NFL's reigning sack leader comes to terms in Cincinnati after a contentious offseason.`\
 https://nytimes.com/athletic/6547675/2025/08/25/trey-hendrickson-contract-bengals/

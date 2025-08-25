@@ -1,3 +1,15 @@
+**Despite Trump’s Tough Talk, Flag Burning Is Protected Speech**\
+`The president wants to prosecute protesters who desecrate the American flag, but his order concedes that such protests are typically covered by the First Amendment.`\
+https://nytimes.com/2025/08/25/us/politics/trump-flag-burning-executive-order.html
+
+**Abrego Garcia Was Detained Again**\
+`Also, heat waves could be making you age faster. Here’s the latest at the end of Monday.`\
+https://nytimes.com/2025/08/25/briefing/abrego-garcia-was-detained-again.html
+
+**Arch Manning leads No. 1 Texas vs. Ohio State: 'What I’ve been waiting for'**\
+`Steve Sarkisian has some advice for his heralded QB ahead of showdown: "Just be you."`\
+https://nytimes.com/athletic/6574854/2025/08/25/texas-arch-manning-takes-reins-ohio-state/
+
 **Bengals, Trey Hendrickson agree to reworked 1-year deal to end holdout**\
 `The NFL's reigning sack leader comes to terms in Cincinnati after a contentious offseason.`\
 https://nytimes.com/athletic/6547675/2025/08/25/trey-hendrickson-contract-bengals/
@@ -27,16 +39,4 @@ https://nytimes.com/athletic/6574870/2025/08/25/submit-a-question-for-stewart-ma
 **In Private Deal, the D.N.C. Covered $20 Million in Harris Bills Post-Election**\
 `The former vice president has been raising the funds to pay all of those expenses and to keep the party whole financially. But small donors making those contributions have been left in the dark.`\
 https://nytimes.com/2025/08/25/us/politics/kamala-harris-dnc-fundraising.html
-
-**Mediterranean Diet Reduces Diabetes Risk, Study Shows**\
-`Strong evidence suggests that following the diet, cutting calories and exercising lowers the chances of developing diabetes for those with metabolic risk factors.`\
-https://nytimes.com/2025/08/25/well/mediterranean-diet-diabetes.html
-
-**Tuesday Briefing: Israeli Strikes Killed Five Journalists**\
-`Also, visiting a knockoff Starbucks in North Korea.`\
-https://nytimes.com/2025/08/25/briefing/israel-gaza-strike-korea-trump-lee.html
-
-**SpaceX Readies for Critical 10th Test Launch of Mars Rocket**\
-`Elon Musk’s company is trying again to overcome setbacks faced by its Starship prototype after a Sunday night scrub of a test flight.`\
-https://nytimes.com/2025/08/25/science/spacex-starship-launch.html
 
