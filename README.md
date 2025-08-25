@@ -1,3 +1,7 @@
+**National Guard Patrols Begin to Carry Weapons in D.C.**\
+`More than 2,200 troops were deployed in Washington as of Sunday, a Guard spokesman said.`\
+https://nytimes.com/2025/08/24/us/politics/national-guard-weapons-guns-dc.html
+
 **Eagles reacquire Fred Johnson, deal Darian Kinnard to Packers: Sources**\
 `The Eagles made two trades on Sunday as they attempt to shore up their offensive line depth while also maintaining draft capital.`\
 https://nytimes.com/athletic/6573312/2025/08/24/eagles-trade-fred-johnson-darian-kinnard/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6571420/2025/08/24/milwaukee-brewers-bob-uecker-cel
 **Braves takeaways: How Atlanta can transform into a contender in 2026**\
 `Atlanta’s run of seven consecutive postseason appearances is about to end. Here's how the Braves can get back on track next season.`\
 https://nytimes.com/athletic/6573087/2025/08/24/braves-takeaways-atlanta-contender-2026/
-
-**Yankees' Anthony Volpe benched in Red Sox series finale**\
-`Manager Aaron Boone didn’t guarantee that Volpe, who is healthy, would start on Monday either.`\
-https://nytimes.com/athletic/6573199/2025/08/24/ny-yankees-anthony-volpe-benched/
 
