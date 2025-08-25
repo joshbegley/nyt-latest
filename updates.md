@@ -1,3 +1,5 @@
+
+
 **House Republicans Seek Review of D.C. Crime Data**\
 `A G.O.P. request for information and interviews comes amid Trump administration claims that crime in the capital is worse than it appears.`\
 https://nytimes.com/2025/08/25/us/politics/house-republicans-crime-washington.html
