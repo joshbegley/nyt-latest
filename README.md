@@ -1,3 +1,11 @@
+**Judge Allows Blocking of Funds to Maine Abortion Providers**\
+`In a blunt ruling, the federal judge wrote that he would not thwart Republican lawmakers’ bid to pull Medicaid funds from organizations that perform abortions.`\
+https://nytimes.com/2025/08/25/us/politics/maine-judge-abortion-funding-blocked.html
+
+**Lions waive QB Hendon Hooker, will turn to Kyle Allen as backup: Reports**\
+`The Lions drafted Hooker in the third round in 2023, but he hasn't developed as they hoped he would to become Jared Goff's backup.`\
+https://nytimes.com/athletic/6574768/2025/08/25/lions-hendon-hooker-waived-quarterback/
+
 **The Briefing: Newcastle 2 Liverpool 3 -– Ngumoha scores 100th-minute winner, injuries mount for Howe, was Gordon red card deserved?**\
 `Chris Waugh and Andy Jones analyse the key moments from Monday night's game at St James' Park `\
 https://nytimes.com/athletic/6573028/2025/08/25/newcastle-liverpool-premier-league-result-analysis/
@@ -31,12 +39,4 @@ https://nytimes.com/2025/08/25/science/spacex-starship-launch.html
 **‘A Partner in Crime’ and, Now, in Love**\
 `State Representative Leigh Finke of Minnesota and Deborah Fox found kindred spirits in each other when they met last year in Washington.`\
 https://nytimes.com/2025/08/25/fashion/weddings/leigh-finke-transgender-minnesota-lawmaker-married-deborah-fox.html
-
-**Texans announce RB Joe Mixon will miss at least first 4 weeks of season**\
-`Houston will have to replace Mixon with a committee including Dare Ogunbowale, Dameon Pierce and others.`\
-https://nytimes.com/athletic/6574755/2025/08/25/texans-joe-mixon-out-at-least-four-weeks/
-
-**Trump Enlists More Agencies in His Crackdown on Washington, D.C.**\
-`The president ordered the federal transportation and housing departments to examine whether city officials and some landlords are following public safety rules.`\
-https://nytimes.com/2025/08/25/us/politics/trump-dc-dot-hud.html
 
