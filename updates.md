@@ -1,3 +1,7 @@
+**The best fantasy football running back targets for a ZeroRB draft strategy**\
+`Michael Salfino lays out his favorite targets in the mid-to-late rounds for those looking to deploy a ZeroRB draft strategy.`\
+https://nytimes.com/athletic/6573460/2025/08/25/fantasy-football-zero-rb-draft-targets/
+
 **In Arizona, the Kyler Murray question that never goes away inches closer to an answer**\
 `Franchise QB or on the wrong path? It's the Murray storyline that persists. With an upgraded defense, the Cardinals might get their answer.`\
 https://nytimes.com/athletic/6573495/2025/08/25/kyler-murray-arizona-cardinals-question-franchise-qb/

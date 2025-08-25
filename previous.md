@@ -1,3 +1,7 @@
+**The best fantasy football running back targets for a ZeroRB draft strategy**\
+`Michael Salfino lays out his favorite targets in the mid-to-late rounds for those looking to deploy a ZeroRB draft strategy.`\
+https://nytimes.com/athletic/6573460/2025/08/25/fantasy-football-zero-rb-draft-targets/
+
 **In Arizona, the Kyler Murray question that never goes away inches closer to an answer**\
 `Franchise QB or on the wrong path? It's the Murray storyline that persists. With an upgraded defense, the Cardinals might get their answer.`\
 https://nytimes.com/athletic/6573495/2025/08/25/kyler-murray-arizona-cardinals-question-franchise-qb/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6571017/2025/08/25/morgan-gautrat-newcastle-united-
 **Visma Lease-A-Bike's Vuelta squad have multiple bikes stolen, police investigating**\
 `The team explained “several” bikes had been stolen but did not disclose the exact number.`\
 https://nytimes.com/athletic/6573778/2025/08/25/vuelta-a-espana-visma-bikes-stolen/
-
-**Lowetide: Does Max Jones have a shot at a roster spot on the Oilers this year?**\
-`The uncertainty around Jones this fall is twofold: Can he make the team, and is there a role he can succeed in?`\
-https://nytimes.com/athletic/6572448/2025/08/25/edmonton-oilers-max-jones-roster-nhl/
 
