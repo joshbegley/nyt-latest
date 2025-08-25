@@ -1,3 +1,7 @@
+**Jeremiah Estrada's Dodgers struggles continue as Padres fall back into NL West tie**\
+`"They might even know what color underwear I'm wearing. I mean, I don't even know what the heck it is," Estrada said about the Dodgers. `\
+https://nytimes.com/athletic/6558832/2025/08/24/jeremiah-estrada-padres-dodgers-home-runs/
+
 **Michigan expected to name Bryce Underwood starting quarterback: Reports**\
 `Underwood, a freshman and the No. 1 recruit in the Class of 2025, has been taking reps with the starters since the spring.`\
 https://nytimes.com/athletic/6573426/2025/08/24/michigan-quarterback-bryce-underwood-starter/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/24/podcasts/the-other-territory.html
 **This Is the End of China’s Once Mightiest Property Firm**\
 `China Evergrande, set to be delisted from the Hong Kong Stock Exchange on Monday, leaves behind a giant pile of debt and a long line of desperate creditors.`\
 https://nytimes.com/2025/08/24/business/china-evergrande-delisted.html
-
-**Brewers remember, celebrate late Bob Uecker: 'This is a chance for all of you to say goodbye'**\
-`The memorial program interspersed testimonials with a four-part video that recounted Uecker's life, career and his connection to Milwaukee.`\
-https://nytimes.com/athletic/6571420/2025/08/24/milwaukee-brewers-bob-uecker-celebration/
 

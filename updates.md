@@ -1,3 +1,7 @@
+**Jeremiah Estrada's Dodgers struggles continue as Padres fall back into NL West tie**\
+`"They might even know what color underwear I'm wearing. I mean, I don't even know what the heck it is," Estrada said about the Dodgers. `\
+https://nytimes.com/athletic/6558832/2025/08/24/jeremiah-estrada-padres-dodgers-home-runs/
+
 **Michigan expected to name Bryce Underwood starting quarterback: Reports**\
 `Underwood, a freshman and the No. 1 recruit in the Class of 2025, has been taking reps with the starters since the spring.`\
 https://nytimes.com/athletic/6573426/2025/08/24/michigan-quarterback-bryce-underwood-starter/
