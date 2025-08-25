@@ -1,3 +1,7 @@
+**Why Morgan Gautrat has moved to Newcastle: 'I've loved joining places I could help make better'**\
+`The USWNT midfielder has two world titles and is a reigning NWSL champion, so why move to WSL 2?`\
+https://nytimes.com/athletic/6571017/2025/08/25/morgan-gautrat-newcastle-united-interview/
+
 **Visma Lease-A-Bike's Vuelta squad have multiple bikes stolen, police investigating**\
 `The team explained “several” bikes had been stolen but did not disclose the exact number.`\
 https://nytimes.com/athletic/6573778/2025/08/25/vuelta-a-espana-visma-bikes-stolen/
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/08/25/us/trump-news
 **Inside Real Madrid: Vinicius Jr concerns, Rodrygo latest, Ceballos' 'last dance'**\
 `The latest in our weekly look behind the scenes at Real Madrid has an update on Rodrygo's future at the club and much more`\
 https://nytimes.com/athletic/6573575/2025/08/25/inside-real-madrid-vinicius-jr-rodrygo-ceballos-alonso/
-
-**TAFC: Trump and Infantino's World Cup draw U-turn. Plus: Arsenal chase Hincapie**\
-`Today in TAFC: Trump and Infantino make late U-turn on the World Cup draw city, Arsenal eye a new defender, Di Maria rolls back the years.`\
-https://nytimes.com/athletic/6573615/2025/08/25/trump-infantino-world-cup-draw/
 
