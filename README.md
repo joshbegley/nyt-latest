@@ -30,11 +30,11 @@ https://nytimes.com/athletic/6572668/2025/08/25/alexander-isak-newcastle-liverpo
 `A typically tumultuous 72 hours raised questions over manager's future and doubts still linger over his long-term prospects`\
 https://nytimes.com/athletic/6569508/2025/08/25/nuno-edu-marinakis-nottingham-forest/
 
+**Garnacho, Jackson, Zinchenko and the other players Premier League clubs are trying to transfer**\
+`Billions have been spent but moving unwanted players on is now a necessity for many clubs before a transfer window closes`\
+https://nytimes.com/athletic/6568993/2025/08/25/garnacho-jackson-zinchenko-and-the-other-players-premier-league-clubs-are-trying-to-transfer/
+
 **North Korea’s Glossy New Surface: Apps, Beaches and a Fake Starbucks**\
 `Videos taken by visitors to the isolated country provide a rare glimpse of how it’s mimicking the consumerism of the outside world.`\
 https://nytimes.com/2025/08/25/world/asia/north-korea-foreign-tourism.html
-
-**A Glimpse into North Korea’s New Beach Resort**\
-`Daria Zubkova, one of the first foreign tourists to visit the Wonsan Kalma resort, said the experience felt like other beach trips she’d taken before, but with some unusual features.`\
-https://nytimes.com/video/world/asia/100000010348569/north-korea-beach-resort-tourist.html
 
