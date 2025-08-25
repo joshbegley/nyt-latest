@@ -1,3 +1,7 @@
+**What we learned from Jalen Milroe in his first NFL preseason**\
+`Milroe was hardly discouraged by his rocky moments in Green Bay. "If you're discouraged, that means you're not a competitor," he said.`\
+https://nytimes.com/athletic/6573572/2025/08/25/jalen-milroe-preseason-seahawks-rookie-qb/
+
 **Dortmund close to Fabio Silva agreement with Wolves**\
 `A fee in the region of €25m has been proposed, with discussions over the structure of the deal and bonuses ongoing.`\
 https://nytimes.com/athletic/6568951/2025/08/25/fabio-silva-dortmund-wolves-transfer/
