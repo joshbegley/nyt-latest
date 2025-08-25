@@ -1,3 +1,11 @@
+**Trump Signs Orders Aiming to End Cashless Bail**\
+`The president has long railed against cashless bail, but studies have not backed up his claims that changes in bail laws lead to an increase in crime.`\
+https://nytimes.com/2025/08/25/us/politics/trump-cashless-bail.html
+
+**Abrego Garcia Faces Re-Deportation After ICE Arrests Him Again**\
+`Kilmar Armando Abrego Garcia, the immigrant who was wrongfully deported to El Salvador in March, was detained at an Immigration and Customs Enforcement office in Baltimore, where he appeared for a check-in.`\
+https://nytimes.com/video/us/politics/100000010359783/kilmar-abrego-garcia-ice.html
+
 **These Cookies Are So Easy a Toddler Made Them**\
 `Adapted from LB. Kitchen in Portland, Maine, this vegan, gluten-free recipe comes together in one bowl, no mixer needed.`\
 https://nytimes.com/2025/08/25/dining/vegan-chocolate-chip-cookies.html
@@ -29,12 +37,4 @@ https://nytimes.com/card/2025/08/25/style/us-open-gala
 **St. Louis City SC fires sporting director Lutz Pfannenstiel amid struggles**\
 `St. Louis City is languishing far outside the MLS playoff picture and has made a significant change in hopes of turning its fortunes`\
 https://nytimes.com/athletic/6574064/2025/08/25/lutz-pfannenstiel-st-louis-city-fired-mls/
-
-**Scientists Perform First Pig-to-Human Lung Transplant**\
-`Researchers in China placed a lung from a genetically modified pig into a brain-dead man, with mixed results.`\
-https://nytimes.com/2025/08/25/health/lung-transplant-pig-human.html
-
-**What to Know About the Journalists Killed in Gaza**\
-`Five journalists were killed in what local officials said was an Israeli strike on Nasser Hospital in the southern Gazan city of Khan Younis.`\
-https://nytimes.com/2025/08/25/world/middleeast/gaza-journalists-killed-nasser-hospital.html
 
