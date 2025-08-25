@@ -1,3 +1,11 @@
+**Howe, Hughes, friendship and fallout - and the fight for Isak**\
+`Eddie Howe and Richard Hughes go back decades. Where will those relationships lie once the transfer window closes after the Isak saga?`\
+https://nytimes.com/athletic/6572668/2025/08/25/alexander-isak-newcastle-liverpool-transfer/
+
+**Can Nuno, Edu and Marinakis fix the mess at Forest?**\
+`A typically tumultuous 72 hours raised questions over manager's future and doubts still linger over his long-term prospects`\
+https://nytimes.com/athletic/6569508/2025/08/25/nuno-edu-marinakis-nottingham-forest/
+
 **North Korea’s Glossy New Surface: Apps, Beaches and a Fake Starbucks**\
 `Videos taken by visitors to the isolated country provide a rare glimpse of how it’s mimicking the consumerism of the outside world.`\
 https://nytimes.com/2025/08/25/world/asia/north-korea-foreign-tourism.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6573472/2025/08/24/us-open-medvedev-bonzi-crowd-pho
 **Jeremiah Estrada's Dodgers struggles continue as Padres fall back into NL West tie**\
 `"They might even know what color underwear I'm wearing. I mean, I don't even know what the heck it is," Estrada said about the Dodgers. `\
 https://nytimes.com/athletic/6558832/2025/08/24/jeremiah-estrada-padres-dodgers-home-runs/
-
-**Michigan expected to name Bryce Underwood starting quarterback: Reports**\
-`Underwood, a freshman and the No. 1 recruit in the Class of 2025, has been taking reps with the starters since the spring.`\
-https://nytimes.com/athletic/6573426/2025/08/24/michigan-quarterback-bryce-underwood-starter/
-
-**National Guard Patrols Begin to Carry Weapons in D.C.**\
-`More than 2,200 troops were deployed in Washington as of Sunday, a Guard spokesman said.`\
-https://nytimes.com/2025/08/24/us/politics/national-guard-weapons-guns-dc.html
 
