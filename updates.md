@@ -1,3 +1,11 @@
+**Trump Signs Orders Aiming to End Cashless Bail**\
+`The president has long railed against cashless bail, but studies have not backed up his claims that changes in bail laws lead to an increase in crime.`\
+https://nytimes.com/2025/08/25/us/politics/trump-cashless-bail.html
+
+**Abrego Garcia Faces Re-Deportation After ICE Arrests Him Again**\
+`Kilmar Armando Abrego Garcia, the immigrant who was wrongfully deported to El Salvador in March, was detained at an Immigration and Customs Enforcement office in Baltimore, where he appeared for a check-in.`\
+https://nytimes.com/video/us/politics/100000010359783/kilmar-abrego-garcia-ice.html
+
 **These Cookies Are So Easy a Toddler Made Them**\
 `Adapted from LB. Kitchen in Portland, Maine, this vegan, gluten-free recipe comes together in one bowl, no mixer needed.`\
 https://nytimes.com/2025/08/25/dining/vegan-chocolate-chip-cookies.html
