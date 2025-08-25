@@ -1,3 +1,5 @@
+
+
 **Commanders, Terry McLaurin agree to 3-year, $96 million extension**\
 `McLaurin caught 82 passes for 1,096 yards and scored 13 touchdowns in the 2024 regular season.`\
 https://nytimes.com/athletic/6432712/2025/08/25/terry-mclaurin-commanders-contract-extension/
