@@ -1,3 +1,7 @@
+**Trump Threatens to Investigate Chris Christie Over ‘Bridgegate’**\
+`President Trump floated the idea after the former governor of New Jersey, a onetime ally, criticized his use of the Justice Department.`\
+https://nytimes.com/2025/08/25/us/politics/trump-chris-christie-bridgegate.html
+
 **Word of the Day: kindling**\
 `This word has appeared in 36 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2025/08/25/learning/word-of-the-day-kindling.html

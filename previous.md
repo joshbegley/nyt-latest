@@ -1,3 +1,7 @@
+**Trump Threatens to Investigate Chris Christie Over ‘Bridgegate’**\
+`President Trump floated the idea after the former governor of New Jersey, a onetime ally, criticized his use of the Justice Department.`\
+https://nytimes.com/2025/08/25/us/politics/trump-chris-christie-bridgegate.html
+
 **Word of the Day: kindling**\
 `This word has appeared in 36 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2025/08/25/learning/word-of-the-day-kindling.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6572645/2025/08/25/brighton-strikers-transfers-welb
 **Why playing two left-footed centre-backs sums up Aston Villa's problems**\
 `Squad balance and depth remains in question at Villa – as the struggles of Torres and Mings in defence against Brentford showed`\
 https://nytimes.com/athletic/6571489/2025/08/25/aston-villa-brentford-defence-refresh-result/
-
-**This is why Arsenal invested**\
-`Arsenal's dominant victory on Saturday still threw up some familiar issues - but they are now in better position to deal with them`\
-https://nytimes.com/athletic/6571536/2025/08/25/this-is-why-arsenal-invested/
 
