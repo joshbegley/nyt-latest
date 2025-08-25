@@ -1,3 +1,11 @@
+**How the Pygmy Sea Horse Lost Its Snout**\
+`The genome of a small, remarkable sea horse offers a surprising lesson in nature’s creativity.`\
+https://nytimes.com/2025/08/25/science/evolution-genetics-seahorses.html
+
+**The Bolton Search and Trump’s ‘Justice’**\
+`Readers suspect motives for the F.B.I. raid of John Bolton’s home. Also: Why authoritarians don’t like science.`\
+https://nytimes.com/2025/08/25/opinion/trump-fbi-boltton-raid.html
+
 **Five Journalists Among Dead in Israeli Attack on Gaza Hospital**\
 `Two Israeli strikes hit a hospital in southern Gaza on Monday, killing at least five Palestinian journalists, a rescue worker and up to 14 more people, according to local health officials.`\
 https://nytimes.com/video/world/middleeast/100000010359268/gaza-nasser-hospital-strikes.html
