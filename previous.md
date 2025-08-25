@@ -1,3 +1,7 @@
+**Trump Enlists More Agencies in His Crackdown on Washington, D.C.**\
+`The president ordered the federal transportation and housing departments to examine whether city officials and some landlords are following public safety rules.`\
+https://nytimes.com/2025/08/25/us/politics/trump-enlists-more-agencies-in-his-crackdown-on-washington-dc.html
+
 **Daniil Medvedev, tennis' walking Rorschach test, asks the U.S. Open what it sees**\
 `Medvedev's tentacular game style and relish for the dark arts make him an acid test for how fans view tennis.`\
 https://nytimes.com/athletic/6574435/2025/08/25/tennis-medvedev-us-open-umpire-camera-bonzi/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6574610/2025/08/25/bryce-underwood-michigan-startin
 **Raiders reject Jakobi Meyers trade request as extension talks stall: Source**\
 `Meyers is in the final year of his deal and is set to make a base salary of $10.5 million this season.`\
 https://nytimes.com/athletic/6574626/2025/08/25/jakobi-meyers-trade-request-raiders/
-
-**How the Pygmy Sea Horse Lost Its Snout**\
-`The genome of a small, remarkable sea horse offers a surprising lesson in nature’s creativity.`\
-https://nytimes.com/2025/08/25/science/evolution-genetics-seahorses.html
 
