@@ -1,3 +1,11 @@
+**Elon Musk’s xAI Sues Apple Over Claims It Favors OpenAI**\
+`Mr. Musk’s artificial intelligence company, xAI, claimed that its Grok chatbot app was being artificially suppressed in Apple’s App Store.`\
+https://nytimes.com/2025/08/25/technology/xai-sues-apple.html
+
+**To Start the U.S. Open, a Gala With a Purpose**\
+`Text by Jesse McKinley and Lanna Apisukh`\
+https://nytimes.com/card/2025/08/25/style/us-open-gala
+
 **St. Louis City SC fires sporting director Lutz Pfannenstiel amid struggles**\
 `St. Louis City is languishing far outside the MLS playoff picture and has made a significant change in hopes of turning its fortunes`\
 https://nytimes.com/athletic/6574064/2025/08/25/lutz-pfannenstiel-st-louis-city-fired-mls/

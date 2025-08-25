@@ -1,3 +1,7 @@
+**100 Push-Ups and 50 Pull-Ups in Under 10 Minutes. What Could Go Wrong?**\
+`Fitness experts caution against jumping into a difficult routine suggested by Robert F. Kennedy Jr. and Pete Hegseth.`\
+https://nytimes.com/2025/08/25/style/hegseth-rfk-jr-fitness-challenge.html
+
 **Elon Musk’s xAI Sues Apple Over Claims It Favors OpenAI**\
 `Mr. Musk’s artificial intelligence company, xAI, claimed that its Grok chatbot app was being artificially suppressed in Apple’s App Store.`\
 https://nytimes.com/2025/08/25/technology/xai-sues-apple.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6573429/2025/08/25/sf-giants-luis-matos-development
 **Scientists Find a Quadruple Star System in Our Cosmic Backyard**\
 `Two of the objects in the arrangement are cold brown dwarfs, which will serve as a benchmark for others throughout the Milky Way.`\
 https://nytimes.com/2025/08/25/science/quadruple-star-system.html
-
-**Jobe Bellingham's father had 'emotional' exchange with Dortmund executive**\
-`Borussia Dortmund CEO for sport, Lars Ricken, confirmed the conversation took place after Saturday's draw with St Pauli.`\
-https://nytimes.com/athletic/6573785/2025/08/25/jobe-bellingham-father-dortmund-sporting-director/
 

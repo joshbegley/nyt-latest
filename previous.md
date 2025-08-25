@@ -1,3 +1,11 @@
+**Elon Musk’s xAI Sues Apple Over Claims It Favors OpenAI**\
+`Mr. Musk’s artificial intelligence company, xAI, claimed that its Grok chatbot app was being artificially suppressed in Apple’s App Store.`\
+https://nytimes.com/2025/08/25/technology/xai-sues-apple.html
+
+**To Start the U.S. Open, a Gala With a Purpose**\
+`Text by Jesse McKinley and Lanna Apisukh`\
+https://nytimes.com/card/2025/08/25/style/us-open-gala
+
 **St. Louis City SC fires sporting director Lutz Pfannenstiel amid struggles**\
 `St. Louis City is languishing far outside the MLS playoff picture and has made a significant change in hopes of turning its fortunes`\
 https://nytimes.com/athletic/6574064/2025/08/25/lutz-pfannenstiel-st-louis-city-fired-mls/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/08/25/science/quadruple-star-system.html
 **Jobe Bellingham's father had 'emotional' exchange with Dortmund executive**\
 `Borussia Dortmund CEO for sport, Lars Ricken, confirmed the conversation took place after Saturday's draw with St Pauli.`\
 https://nytimes.com/athletic/6573785/2025/08/25/jobe-bellingham-father-dortmund-sporting-director/
-
-**Kneecap Cancels U.S. Tour, Calling U.K. Terrorism Charge a ‘Witch Hunt’**\
-`One member of the Northern Irish rap group, which is known for its anti-Israel and pro-Palestinian views, is accused of displaying a flag supporting Hezbollah.`\
-https://nytimes.com/2025/08/25/arts/music/kneecap-cancels-us-tour.html
-
-**Tracking Tropical Storm Juliette**\
-`See the likely path and wind arrival times for Juliette`\
-https://nytimes.com/interactive/2025/weather/juliette-map-path-tracker.html
 
