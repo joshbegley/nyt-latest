@@ -1,3 +1,7 @@
+**Why Morgan Gautrat has moved to Newcastle: 'I've loved joining places I could help make better'**\
+`The USWNT midfielder has two world titles and is a reigning NWSL champion, so why move to WSL 2?`\
+https://nytimes.com/athletic/6571017/2025/08/25/morgan-gautrat-newcastle-united-interview/
+
 **Visma Lease-A-Bike's Vuelta squad have multiple bikes stolen, police investigating**\
 `The team explained “several” bikes had been stolen but did not disclose the exact number.`\
 https://nytimes.com/athletic/6573778/2025/08/25/vuelta-a-espana-visma-bikes-stolen/
