@@ -1,3 +1,7 @@
+**This Is the End of China’s Once Mightiest Property Firm**\
+`China Evergrande, delisted from the Hong Kong Stock Exchange on Monday, leaves behind a giant pile of debt and a long line of desperate creditors.`\
+https://nytimes.com/2025/08/24/business/china-evergrande-delisted.html
+
 **Jeremiah Estrada's Dodgers struggles continue as Padres fall back into NL West tie**\
 `"They might even know what color underwear I'm wearing. I mean, I don't even know what the heck it is," Estrada said about the Dodgers. `\
 https://nytimes.com/athletic/6558832/2025/08/24/jeremiah-estrada-padres-dodgers-home-runs/
