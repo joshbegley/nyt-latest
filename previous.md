@@ -1,9 +1,13 @@
+**In This Novel, Chasing a Scoop Leads to Bad News in a War Zone**\
+`“Vulture,” by Phoebe Greenwood, follows a journalist’s downward spiral in Gaza.`\
+https://nytimes.com/2025/08/25/books/review/phoebe-greenwood-vulture.html
+
 **Crystal Palace interested in move for Atletico Madrid's Gallagher**\
 `The Premier League side are yet to submit a formal offer but are interested in bringing Gallagher back to Selhurst Park.`\
 https://nytimes.com/athletic/6573093/2025/08/25/conor-gallagher-crystal-palace-atletico/
 
 **Abrego Garcia Detained Again After Administration Signaled It Would Re-Deport Him**\
-`The detention came only three days after he was freed from custody in the criminal case that was filed against him in Federal District Court in Nashville.`\
+`The move came only three days after he was freed from custody in the criminal case that was filed against him in Federal District Court in Nashville.`\
 https://nytimes.com/2025/08/25/us/politics/kilmar-abrego-garcia-arrested-ice-deportation.html
 
 **German Prosecutors Charge American With Attempted Spying for China**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6571916/2025/08/25/raiders-final-roster-projection-
 **Two-time World Cup winner Gautrat joins Newcastle on loan from Pride**\
 `The 32-year-old midfielder has signed a short-term deal with the Women’s Super League 2 club.`\
 https://nytimes.com/athletic/6573721/2025/08/25/morgan-gautrat-newcastle-orlando-pride-transfer/
-
-**FEMA Employees Warn That Trump Is Gutting Disaster Response**\
-`After Hurricane Katrina, Congress passed a law to strengthen the nation’s disaster response. FEMA employees say the Trump administration has reversed that progress.`\
-https://nytimes.com/2025/08/25/climate/fema-employees-letter-trump-katrina.html
 

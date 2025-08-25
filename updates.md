@@ -1,3 +1,11 @@
+**In This Novel, Chasing a Scoop Leads to Bad News in a War Zone**\
+`“Vulture,” by Phoebe Greenwood, follows a journalist’s downward spiral in Gaza.`\
+https://nytimes.com/2025/08/25/books/review/phoebe-greenwood-vulture.html
+
+**Abrego Garcia Detained Again After Administration Signaled It Would Re-Deport Him**\
+`The move came only three days after he was freed from custody in the criminal case that was filed against him in Federal District Court in Nashville.`\
+https://nytimes.com/2025/08/25/us/politics/kilmar-abrego-garcia-arrested-ice-deportation.html
+
 **Crystal Palace interested in move for Atletico Madrid's Gallagher**\
 `The Premier League side are yet to submit a formal offer but are interested in bringing Gallagher back to Selhurst Park.`\
 https://nytimes.com/athletic/6573093/2025/08/25/conor-gallagher-crystal-palace-atletico/
