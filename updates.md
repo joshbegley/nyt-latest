@@ -1,3 +1,7 @@
+**Keurig Dr Pepper to Acquire Peet’s in $18 Billion Deal**\
+`After the takeover, the company will split into two businesses, one focusing on coffee and one on soft drinks.`\
+https://nytimes.com/2025/08/25/business/keurig-drpepper-peets-coffee-drinks.html
+
 **Newcastle v Liverpool EPL preview: Kick-off time, where to watch and prediction**\
 `Not much context to add to this one, really.`\
 https://nytimes.com/athletic/6572708/2025/08/25/newcastle-liverpool-premier-league-preview-analysis-tv/
