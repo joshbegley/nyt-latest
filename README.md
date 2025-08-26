@@ -1,3 +1,15 @@
+**Colorado plans to start QB Kaidon Salter vs. Georgia Tech**\
+`Last season, Salter threw for 1,886 yards, 15 touchdowns and six interceptions and ran for 587 yards and seven scores.`\
+https://nytimes.com/athletic/6573105/2025/08/26/kaidon-salter-colorado-starting-qb-deion-sanders/
+
+**For a Museum in Melbourne, a Cabinet of Virtuosity**\
+`Nipa Doshi’s furniture commission, which evokes both religious and self-care rituals, honors some of the influential women in her life.`\
+https://nytimes.com/2025/08/26/arts/design/nipa-doshi-melbourne-museum-comission.html
+
+**Taylor Swift, Travis Kelce announce engagement on Instagram**\
+`Swift announced the couple's engagement via Instagram Tuesday afternoon, and the post accrued 1 million likes in nine minutes.`\
+https://nytimes.com/athletic/6576592/2025/08/26/taylor-swift-travis-kelce-engaged-instagram/
+
 **Trump’s Allegations Against Lisa Cook in Some Ways Echo His Own Legal Fight**\
 `President Trump, during his campaign for a second term, was accused of fraudulently inflating his net worth in order to get better rates on bank loans.`\
 https://nytimes.com/2025/08/26/us/politics/trump-lisa-cook-fraud.html
@@ -10,6 +22,10 @@ https://nytimes.com/2025/08/26/style/taylor-swift-engaged-travis-kelce.html
 `Until Saturday is The Athletic's free CFB newsletter.`\
 https://nytimes.com/athletic/6576608/2025/08/26/college-football-coach-salary-trend-until-saturday/
 
+**Former USF football coach Jim Leavitt arrested on battery and theft charges**\
+`Leavitt was the first coach in Bulls history and won 95 games over 13 seasons. `\
+https://nytimes.com/athletic/6576535/2025/08/26/jim-leavitt-usf-coach-arrested/
+
 **Fantasy Scoop: 16 players I'm betting my season on**\
 `Players I'm betting my fantasy season on, plus Jake Ciely's thoughts on Terry McLaurin and Kenneth Walker`\
 https://nytimes.com/athletic/6576564/2025/08/26/fantasy-football-targets-2025-nfl-scoop-city-kyler-murray/
@@ -21,20 +37,4 @@ https://nytimes.com/2025/08/26/arts/design/victoria-albert-design-disability.htm
 **Israel Links Hospital Attack in Gaza to Camera It Says Was Placed by Hamas**\
 `A day after the strike killed 20 people, including five journalists, the Israeli military said its initial inquiry found that militants had placed an observation camera in the area. It provided no evidence.`\
 https://nytimes.com/2025/08/26/world/middleeast/israel-hospital-attack-gaza-camera-hamas.html
-
-**Fed Governor Lisa Cook to Sue Over Firing, Asserting Trump Abused Power**\
-`Lawyers for Ms. Cook promised to take legal action one day after the president moved to fire her over allegations of mortgage fraud.`\
-https://nytimes.com/2025/08/26/us/politics/trump-lisa-cook-firing-lawsuit.html
-
-**The Deadly Risks of Reporting in Gaza**\
-`Journalists endure the same harrowing reality as other Gazans: hunger and the constant threat of death. Those challenges risk further stifling what the world hears about the war.`\
-https://nytimes.com/2025/08/26/world/middleeast/palestinian-journalists-risk-reporting.html
-
-**West Ham make loan offer for Forest's Sangare**\
-`Sangare, 27, has started both of Forest's first two Premier League games under Nuno Espirito Santo this season.`\
-https://nytimes.com/athletic/6576253/2025/08/26/ibrahim-sangare-west-ham-forest-transfer/
-
-**Russia and Ukraine Target Energy Sites, Seeking Leverage Away From the Front**\
-`The two countries appear to be trying to raise political pressure on each other and send signals to Washington in case peace talks move forward.`\
-https://nytimes.com/2025/08/26/world/europe/russia-ukraine-energy-war.html
 

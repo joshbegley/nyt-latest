@@ -1,3 +1,15 @@
+**Trump’s Allegations Against Lisa Cook in Some Ways Echo His Own Legal Fight**\
+`President Trump, during his campaign for a second term, was accused of fraudulently inflating his net worth in order to get better rates on bank loans.`\
+https://nytimes.com/2025/08/26/us/politics/trump-lisa-cook-fraud.html
+
+**Taylor Swift and Travis Kelce Announce Their Engagement**\
+`The news was announced on Instagram: “Your English teacher and your gym teacher are getting married.”`\
+https://nytimes.com/2025/08/26/style/taylor-swift-engaged-travis-kelce.html
+
+**Until Saturday: CFB coach salaries up 370 percent**\
+`Until Saturday is The Athletic's free CFB newsletter.`\
+https://nytimes.com/athletic/6576608/2025/08/26/college-football-coach-salary-trend-until-saturday/
+
 **Fantasy Scoop: 16 players I'm betting my season on**\
 `Players I'm betting my fantasy season on, plus Jake Ciely's thoughts on Terry McLaurin and Kenneth Walker`\
 https://nytimes.com/athletic/6576564/2025/08/26/fantasy-football-targets-2025-nfl-scoop-city-kyler-murray/
