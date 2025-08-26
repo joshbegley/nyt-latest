@@ -1,3 +1,15 @@
+**Lil Nas X Pleads Not Guilty to Four Felony Charges**\
+`The “Old Town Road” rapper was arrested last Thursday after video appeared to show him walking down a street in Los Angeles wearing only his underwear.`\
+https://nytimes.com/2025/08/26/arts/lil-nas-x-felony-charges-los-angeles.html
+
+**Judge Dismisses Trump Administration Suit Against Federal Bench in Maryland**\
+`The judge used the ruling to take President Trump and some of his top aides to task for having repeatedly attacked other judges who have dared to rule against the White House.`\
+https://nytimes.com/2025/08/26/us/politics/trump-suit-maryland-judges.html
+
+**Notable NFL roster cuts: Tommy DeVito, Hendon Hooker, Cam Akers and more**\
+`Teams must trim their rosters to 53 players by 4 p.m. ET on Tuesday. Here are some of the bigger names to be cut so far.`\
+https://nytimes.com/athletic/6576197/2025/08/26/nfl-cuts-roster-tracker/
+
 **Journalist Mariam Dagga Killed in Gaza**\
 `Colleagues of Mariam Dagga, the visual reporter who was among the five journalists killed on Monday by Israeli strikes on a southern Gaza hospital, mourned as they held onto her camera.`\
 https://nytimes.com/video/world/middleeast/100000010361074/mariam-dagga-gaza-journalist-killed.html
