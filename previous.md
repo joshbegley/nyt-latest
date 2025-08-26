@@ -34,7 +34,7 @@ https://nytimes.com/athletic/6570309/2025/08/26/big-ten-football-schedule-streng
 `Year No. 1 under Mike Vrabel. Year No. 2 with Drake Maye under center. Here's how to watch and stream your 2025 New England Patriots.`\
 https://nytimes.com/athletic/6523673/2025/08/26/new-england-patriots-how-to-watch-2025-schedule/
 
-**Trump Administration Live Updates: Fed Governor Says ‘No Cause’ for Her Firing**\
+**Trump Administration Live Updates: Lutnick Keeps Up Attacks on Fed Governor**\
 ``\
 https://nytimes.com/live/2025/08/26/us/trump-news
 

@@ -1,3 +1,7 @@
+**Trump Administration Live Updates: Lutnick Keeps Up Attacks on Fed Governor**\
+``\
+https://nytimes.com/live/2025/08/26/us/trump-news
+
 **Chelsea evaluating move for Barcelona midfielder Lopez**\
 `The Premier League side are in touch with the player's camp as they explore attacking options in case of exits.`\
 https://nytimes.com/athletic/6533184/2025/08/26/chelsea-transfer-news-fermin-lopez-barcelona/
