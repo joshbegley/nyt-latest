@@ -1,3 +1,7 @@
+**South Korea’s Leader and Trump Find Common Ground: Kim Jong-un**\
+`At the White House, President Trump and Lee Jae Myung praised each other’s eagerness to talk to North Korea’s leader — even if he doesn’t want to talk to them.`\
+https://nytimes.com/2025/08/26/world/asia/trump-korea-north-kim.html
+
 **The New York Times International Edition in Print for Wednesday, Aug. 27, 2025**\
 ``\
 https://nytimes.com/issue/todaysinyt/2025/08/26/todays-new-york-times-international-edition
