@@ -1,3 +1,27 @@
+**4 A.M. at a Beijing Labor Market: Jobs, and Hope, Are in Short Supply**\
+`China’s economic slowdown has fallen especially hard on older migrant workers, who often don’t have the technical skills that employers are seeking.`\
+https://nytimes.com/2025/08/26/world/asia/china-jobs-economy.html
+
+**Rabbis Emerge as Growing Voice of Criticism of Israel’s Tactics in Gaza**\
+`Among the recent public letters was one from dozens of Orthodox rabbis demanding “moral clarity” to what they called a humanitarian crisis.`\
+https://nytimes.com/2025/08/26/us/rabbis-gaza.html
+
+**Connections: Sports Edition Coach: Hints for Aug. 26, 2025**\
+`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
+https://nytimes.com/athletic/6574074/2025/08/26/connections-sports-edition-hints-for-aug-26-2025/
+
+**The Backbone of the Global Auto Supply Chain Is at Risk From Trump’s Tariffs**\
+`They are threatening smaller parts companies that are key to manufacturing and employ hundreds of thousands in Japan, South Korea and Germany.`\
+https://nytimes.com/2025/08/26/business/trump-tariffs-auto-suppliers.html
+
+**Corrections: Aug. 26, 2025**\
+`Corrections that appeared in print on Tuesday, Aug. 26, 2025.`\
+https://nytimes.com/2025/08/25/pageoneplus/corrections-aug-26-2025.html
+
+**Quote of the Day: Harvard Makes Changes Trump Wants, Even Before a Deal**\
+`Quotation of the Day for Tuesday, August 26, 2025.`\
+https://nytimes.com/2025/08/25/pageoneplus/quote-of-the-day-harvard-makes-changes-trump-wants-even-before-a-deal.html
+
 **Tanner Bibee's frustration boils over during another miserable showing by Cleveland Guardians**\
 `A seething Tanner Bibee voiced his dissatisfaction in the dugout. His manager disagreed with the timing.`\
 https://nytimes.com/athletic/6575355/2025/08/25/cleveland-guardians-tanner-bibee-steven-voght-dugout/
@@ -13,28 +37,4 @@ https://nytimes.com/2025/08/25/weather/dust-storm-phoenix-arizona-airport.html
 **Man with Babe Ruth's name charged with using athletes' names in fraud case**\
 `A Tennessee man is accused of using names of deceased or retired professional baseball players to submit fraudulent class action claims.`\
 https://nytimes.com/athletic/6575116/2025/08/25/tennessee-man-george-herman-babe-ruth-fraud/
-
-**Cardinals' Willson Contreras gets ejected, throws bat in heated altercation**\
-`Contreras threw his bat in the direction of home plate, striking hitting coach Brant Brown on the arm instead.`\
-https://nytimes.com/athletic/6575299/2025/08/25/st-louis-cardinals-willson-contreras-ejection/
-
-**Maria Sharapova honored at U.S. Open: ‘Some of the most beautiful moments on this court'**\
-`Sharapova, who won five Grand Slam titles, saw her career intertwined with Williams' success.`\
-https://nytimes.com/athletic/6575140/2025/08/25/maria-sharapova-hall-of-fame-serena-williams-us-open/
-
-**Making the case for the Mets to promote pitching prospect Jonah Tong**\
-`Whatever Mets officials had in mind for the right-hander before the season, it wasn’t this: 113 2/3 innings, 1.43 ERA, 47 walks, 179 K's.`\
-https://nytimes.com/athletic/6575222/2025/08/25/new-york-mets-jonah-tong-potential/
-
-**How to Cultivate a Feel-Good Garden**\
-`Horticulturalists and herbalists share tips for nurturing plants with health benefits.`\
-https://nytimes.com/2025/08/25/garden/medicinal-plant-garden-tips.html
-
-**Casting a Fresh Eye on Artifacts from Smoke-Filled Rooms**\
-`The once-ubiquitous ashtray is making a revival as an object of curiosity or a resting place for weed.`\
-https://nytimes.com/2025/08/25/style/ashtray-design-revival.html
-
-**Overall Impact**\
-`Kevin Curry plays a crooked — and brilliant — trick on us.`\
-https://nytimes.com/2025/08/25/crosswords/daily-puzzle-2025-08-26.html
 
