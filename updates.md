@@ -1,3 +1,7 @@
+**Dust Storms Sweep Through Central Arizona**\
+`The intense dust storm briefly grounded flights and knocked out power to thousands in the region.`\
+https://nytimes.com/video/world/asia/100000010361041/dust-storm-phoenix-arizona-airport.html
+
 **2 Police Officers Killed in Shooting in Rural Australia**\
 `Local authorities urged residents to avoid the area as they search for the gunman. A third officer was wounded.`\
 https://nytimes.com/2025/08/26/world/australia/australia-police-shooting-porepunkah.html

@@ -1,3 +1,7 @@
+**Dust Storms Sweep Through Central Arizona**\
+`The intense dust storm briefly grounded flights and knocked out power to thousands in the region.`\
+https://nytimes.com/video/world/asia/100000010361041/dust-storm-phoenix-arizona-airport.html
+
 **The Street-Corner Sensors That Track Flooding in Real Time**\
 `Hundreds of sensors placed throughout New York City measure water as it rises, then send the data to an interactive map available to the public.`\
 https://nytimes.com/2025/08/26/nyregion/flood-sensors-nyc.html
@@ -33,8 +37,4 @@ https://nytimes.com/issue/todayspaper/2025/08/26/todays-new-york-times
 **These Countries Have Never Trusted America. Trump Is Proving Them Right.**\
 `Brazil, India and other emerging countries are hedging their bets against the United States.`\
 https://nytimes.com/2025/08/26/opinion/trump-brazil-india-tariffs.html
-
-**5 Takeaways from the ‘Love Island U.S.A.’ Season 7 Reunion**\
-`After a messy season that had viewers rapt, the cast addressed relationship statuses, online rumors and whether apologies were coming or not.`\
-https://nytimes.com/2025/08/26/arts/television/love-island-usa-season-7-reunion.html
 
