@@ -1,3 +1,11 @@
+**Ousted Maestro Charged in Child Sex Abuse Imagery Case**\
+`Police in Indiana accused Julian Wachner, the former music director at Trinity Wall Street church in New York, of possessing sex abuse imagery purchased with cryptocurrency.`\
+https://nytimes.com/2025/08/26/arts/music/julian-wachner-charged-child-sex-abuse-imagery.html
+
+**Heliot Ramos' outfield defense has raised a lot of questions this season**\
+`Ramos' backslide defensively is just one more thing that didn't go the way the Giants were hoping it would in 2025.`\
+https://nytimes.com/athletic/6575136/2025/08/26/heliot-ramos-sf-giants-defensive-metrics/
+
 **Pochettino confirms no contact with Pulisic, addresses McKennie's omission**\
 `The USMNT manager and his star have not spoken since the Gold Cup roster drama that engulfed the summer`\
 https://nytimes.com/athletic/6576939/2025/08/26/pochettino-pulisic-usmnt-mckennie-september-friendlies/

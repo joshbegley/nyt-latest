@@ -1,3 +1,11 @@
+**Ousted Maestro Charged in Child Sex Abuse Imagery Case**\
+`Police in Indiana accused Julian Wachner, the former music director at Trinity Wall Street church in New York, of possessing sex abuse imagery purchased with cryptocurrency.`\
+https://nytimes.com/2025/08/26/arts/music/julian-wachner-charged-child-sex-abuse-imagery.html
+
+**Heliot Ramos' outfield defense has raised a lot of questions this season**\
+`Ramos' backslide defensively is just one more thing that didn't go the way the Giants were hoping it would in 2025.`\
+https://nytimes.com/athletic/6575136/2025/08/26/heliot-ramos-sf-giants-defensive-metrics/
+
 **Pochettino confirms no contact with Pulisic, addresses McKennie's omission**\
 `The USMNT manager and his star have not spoken since the Gold Cup roster drama that engulfed the summer`\
 https://nytimes.com/athletic/6576939/2025/08/26/pochettino-pulisic-usmnt-mckennie-september-friendlies/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/08/26/opinion/trump-language-influence.html
 **How the N.Y.P.D.’s Facial Recognition Tool Landed the Wrong Man in Jail**\
 `Trevis Williams is eight inches taller than a man accused of flashing a woman in Union Square in February. The police arrested him anyway.`\
 https://nytimes.com/2025/08/26/nyregion/nypd-facial-recognition-dismissed-case.html
-
-**MLB announces 2026 schedule with earliest Opening Day in history**\
-`The season starts on March 25, the earliest Opening Day not involving an international series or special event in league history.`\
-https://nytimes.com/athletic/6576870/2025/08/26/mlb-2026-schedule-release-opening-day/
-
-**Trump Announces Firing of the Fed Governor Lisa Cook**\
-`President Trump justified Lisa Cook’s removal from the Federal Reserve Board of Governors based on allegations that she may have falsified information on her mortgage records. Ms. Cook has vowed to fight the dismissal.`\
-https://nytimes.com/video/us/politics/100000010362278/trump-lisa-cook-fed.html
 
