@@ -1,3 +1,11 @@
+**Penguins announce relaunch of Hall of Fame**\
+`The Penguins will be inducting 10 key franchise figures into their Hall of Fame during the next three years.`\
+https://nytimes.com/athletic/6575980/2025/08/26/penguins-hall-of-fame-nhl-exhibit/
+
+**The Bounce: Ranking the NBA's top 40 forwards**\
+`The Bounce Newsletter  | This is The Athletic’s daily NBA newsletter.`\
+https://nytimes.com/athletic/6575998/2025/08/26/nba-best-forward-rankings-the-bounce/
+
 **Jack Smith’s Legal Team Fires Back Against Ethics Complaint**\
 `For months, the former special counsel has remained silent as the president and his advisers have publicly attacked him.`\
 https://nytimes.com/2025/08/26/us/jack-smith-ethics-complaint-trump.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/08/26/us/politics/doge-social-security-data.html
 **Chelsea evaluating move for Barcelona midfielder Lopez**\
 `The Premier League side are in touch with the player's camp as they explore attacking options in case of exits.`\
 https://nytimes.com/athletic/6533184/2025/08/26/chelsea-transfer-news-fermin-lopez-barcelona/
-
-**How to watch Josh Allen and the Buffalo Bills this season**\
-`Josh Allen and the Bills will be must-watch TV again this season. Here's how to watch all 17 of their regular-season games.`\
-https://nytimes.com/athletic/6573104/2025/08/26/buffalo-bills-josh-allen-2025-schedule-how-to-watch/
-
-**Max Dowman: How did Arsenal prepare 15-year-old for debut? What are the rules? How much will he play?**\
-`Aged 15 years and 235 days, Dowman became the second-youngest player in Premier League history after fellow Arsenal player Ethan Nwaneri`\
-https://nytimes.com/athletic/6573626/2025/08/26/max-dowman-arsenal-rules-playing/
 
