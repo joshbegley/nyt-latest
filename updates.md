@@ -1,3 +1,11 @@
+**Babe Ruth (Not That One) Stole Baseball Players’ Identities, U.S. Says**\
+`George Herman Ruth, a Tennessee man with the same full name as the Yankees slugger, used the names of retired and dead players to file fraudulent class-action settlement claims, prosecutors said.`\
+https://nytimes.com/2025/08/25/us/babe-ruth-baseball-fraud.html
+
+**Browns trade QB Kenny Pickett to Raiders for fifth-round pick**\
+`QB was expected to challenge Joe Flacco for Cleveland's starting QB spot before an injury. Now he'll back up Geno Smith in Las Vegas.`\
+https://nytimes.com/athletic/6575162/2025/08/25/kenny-pickett-trade-browns-raiders/
+
 **Epstein Accuser’s Family Takes Issue With Plans to Publish Her Memoir**\
 `Relatives of Virginia Roberts Giuffre, who died earlier this year, contend that the book underplays the abuse she suffered at the hands of her husband.`\
 https://nytimes.com/2025/08/25/books/review/virginia-roberts-giuffre-memoir-knopf.html
