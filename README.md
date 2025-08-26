@@ -1,4 +1,8 @@
-**Tracking notable NFL roster cuts: Hendon Hooker, Tommy DeVito, Cam Akers and more**\
+**State Department Agents Join Trump’s Deployment in D.C.**\
+`The Diplomatic Security Service traditionally focused on protecting diplomats, helping secure overseas missions and managing background checks. Now it is doing beat-cop work.`\
+https://nytimes.com/2025/08/26/us/politics/state-department-washington-trump.html
+
+**Tracking notable NFL roster cuts: Tommy DeVito, Hendon Hooker, Cam Akers and more**\
 `Teams must trim their rosters to 53 players by 4 p.m. ET on Tuesday. Here are some of the bigger names to be cut so far.`\
 https://nytimes.com/athletic/6576197/2025/08/26/nfl-cuts-roster-tracker/
 
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/26/dining/five-weeknight-salmons.html
 **Premier League remind clubs over potential 'politically motivated' material in stadiums**\
 `The implementation of the guidance — which is not a central league policy and is shared with the EFL and FA — is at clubs' discretion.`\
 https://nytimes.com/athletic/6575747/2025/08/26/premier-league-ban-palestine-israel/
-
-**China Finds Buyers for Surplus Solar: Africa’s Energy-Hungry Countries**\
-`Overproduction in China has led to slashed prices, and buyers on the continent are taking advantage to sharply increase investments in clean energy.`\
-https://nytimes.com/2025/08/26/climate/africa-china-solar-panels.html
 
