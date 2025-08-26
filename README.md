@@ -1,3 +1,7 @@
+**Venus Williams makes magic at the U.S. Open before falling to Karolina Muchova**\
+`The 45-year-old's 25th main-draw singles appearance ended in a gallant defeat to the multitalented Czech.`\
+https://nytimes.com/athletic/6575217/2025/08/25/us-open-venus-williams-first-round-result-analysis/
+
 **Read Trump’s Directive Firing Lisa Cook**\
 `The president said in a letter on Monday that he was removing the Federal Reserve governor from her duties, effective immediately.`\
 https://nytimes.com/interactive/2025/08/25/us/trump-lisa-cook-fed-firing.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/25/nyregion/tisch-nypd-national-guard-bondi.html
 **Crime Gone in a Week? The Politics Behind Trump’s Federal Crackdown.**\
 `President Trump is using crime as a political weapon, proclaiming quick-fix solutions to deeply rooted challenges in cities led by Democrats.`\
 https://nytimes.com/2025/08/25/us/politics/trump-crime-federal-crackdown-politics.html
-
-**Kennedy Center’s New Dance Director Criticized ‘Woke’ Ballet Culture**\
-`Stephen Nakagawa, a former dancer with the Washington Ballet, wrote a letter to the leader of the arts center complaining about “radical leftist ideologies in ballet.”`\
-https://nytimes.com/2025/08/25/arts/dance/kennedy-center-stephen-nakagawa.html
 
