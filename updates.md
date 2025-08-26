@@ -1,3 +1,7 @@
+**Judge Rules Utah Must Redraw Its Congressional Map, Frustrating Republicans**\
+`A G.O.P. effort to carve up a Democratic stronghold ignored the will of voters, a judge said. The ruling, which Republicans can appeal, makes the state another battleground in the national fight over redistricting.`\
+https://nytimes.com/2025/08/26/us/utah-congress-gerrymander-redistricting.html
+
 **What the Federal Reserve, Supreme Court and Senate Need to Do After Lisa Cook’s Firing**\
 `Trump’s move to fire a Federal Reserve governor threatens the independence of the central bank. Its autonomy is not lost, but three institutions must act.`\
 https://nytimes.com/2025/08/26/opinion/lisa-cook-trump-federal-reserve-independence.html
