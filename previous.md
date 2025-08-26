@@ -1,3 +1,19 @@
+**Chelsea evaluating move for Barcelona midfielder Lopez**\
+`The Premier League side are in touch with the player's camp as they explore attacking options in case of exits.`\
+https://nytimes.com/athletic/6533184/2025/08/26/chelsea-transfer-news-fermin-lopez-barcelona/
+
+**How to watch Josh Allen and the Buffalo Bills this season**\
+`Josh Allen and the Bills will be must-watch TV again this season. Here's how to watch all 17 of their regular-season games.`\
+https://nytimes.com/athletic/6573104/2025/08/26/buffalo-bills-josh-allen-2025-schedule-how-to-watch/
+
+**Max Dowman: How did Arsenal prepare 15-year-old for debut? What are the rules? How much will he play?**\
+`Aged 15 years and 235 days, Dowman became the second-youngest player in Premier League history after fellow Arsenal player Ethan Nwaneri`\
+https://nytimes.com/athletic/6573626/2025/08/26/max-dowman-arsenal-rules-playing/
+
+**Packing a Punch in Primary Color Plaid**\
+`A vibrant red-and-blue dress reflected its wearer’s taste for color.`\
+https://nytimes.com/2025/08/26/style/street-style-look-primary-color-clothes.html
+
 **A Teen Was Suicidal. ChatGPT Was the Friend He Confided In.**\
 `More people are turning to general-purpose chatbots for emotional support. At first, Adam Raine, 16, used ChatGPT for schoolwork, but then he started discussing plans to end his life.`\
 https://nytimes.com/2025/08/26/technology/chatgpt-openai-suicide.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6523673/2025/08/26/new-england-patriots-how-to-watc
 **Trump Administration Live Updates: Fed Governor Says ‘No Cause’ for Her Firing**\
 ``\
 https://nytimes.com/live/2025/08/26/us/trump-news
-
-**Can the Red Wings swing an impact trade before the season? Mailbag**\
-`Red Wings beat writer Max Bultman answers subscriber questions with less than a month to go until training camp. `\
-https://nytimes.com/athletic/6572822/2025/08/26/red-wings-trade-2025-26-season-nhl/
-
-**Reds offense sputters – again – in 7-0 loss to the Dodgers**\
-`The Reds managed just three hits in Monday’s loss and now sit 68-64 and 2 1/2 games out of the final wild-card spot.`\
-https://nytimes.com/athletic/6575548/2025/08/26/cincinnati-reds-offense-la-dodgers/
-
-**Cardinals mailbag, Part 2: What to expect when the Chaim Bloom era begins**\
-`The goal for the franchise remains the same: Return winning baseball to St. Louis, and do it in a way that changes the industry.`\
-https://nytimes.com/athletic/6561322/2025/08/26/cardinals-mailbag-chaim-bloom/
-
-**On Phones and Childhood: The Week 10 Winners of Our Summer Reading Contest**\
-`As our contest comes to a close, we honor both a video and an essay, and hear reflections on this year’s submissions from our judges.`\
-https://nytimes.com/2025/08/26/learning/on-phones-and-childhood-the-week-10-winners-of-our-summer-reading-contest.html
 
