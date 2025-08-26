@@ -1,3 +1,23 @@
+**Trump’s India Muddle**\
+`We explore why India is so confused by the Trump administration as U.S. tariff rates of 50 percent are set to take effect today.`\
+https://nytimes.com/2025/08/26/briefing/india-trump-tariff-taylor-swift-fed.html
+
+**Celtic fail to reach CL league phase, miss out on over €18m**\
+`Brendan Rodgers' side lost on penalties in the play-off round to Kazakhstani side Kairat Almaty.`\
+https://nytimes.com/athletic/6577289/2025/08/26/celtic-kairat-champions-league/
+
+**Mumbai’s Pigeon-Feeding Rules Aren’t Going Over Well**\
+`The new rules led to clashes with the police and threats of hunger strikes by members of the Jain religious community, which believes in nonviolence against all creatures.`\
+https://nytimes.com/2025/08/26/world/asia/india-pigeon-feeding-ban-mumbai.html
+
+**Donald Trump’s Assault on Capitalism**\
+`Trump’s personalized control of growing swaths of the economy will harm American economic freedom and competitiveness.`\
+https://nytimes.com/2025/08/26/opinion/trump-intel-economy-competition-control.html
+
+**Popcast Presents: The Songs of This Summer**\
+`We asked 10 notable cultural figures — including Questlove, Ezra Klein, Kristin Cavallari and the candidates for New York City mayor — for their personal summer anthem of 2025. Their answers have range.`\
+https://nytimes.com/interactive/2025/08/26/arts/music/song-of-the-summer-2025.html
+
 **SpaceX Set to Attempt Critical Test Launch of Mars Rocket Again**\
 `After two consecutive scrubs, the Starship vehicle is due for its 10th test flight as Elon Musk’s company aims to overcome earlier setbacks.`\
 https://nytimes.com/2025/08/26/science/spacex-starship-test-launch.html
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/6553825/2025/08/26/phillies-bullpen-moves-jordan-ro
 **In ‘With Love, Meghan,’ the Duchess Leans Into Joy**\
 `For her fans, the show’s focus on her soft life in both seasons is rare and welcome.`\
 https://nytimes.com/2025/08/26/style/with-love-meghan-markle-netflix-season-2.html
-
-**On the Front Lines of Climate Change, Firefighters Are Getting Very Sick**\
-`Across the country, unmasked wildfire fighters are falling ill and dying. Hannah Dreier talks about her investigation into the risks these workers face.`\
-https://nytimes.com/2025/08/26/climate/wildfire-firefighters-getting-sick.html
-
-**Macron, in Letter to Netanyahu, Defends Call for Palestinian Statehood**\
-`President Emmanuel Macron of France also pushed back against accusations by Prime Minister Benjamin Netanyahu that he had not done enough to protect French Jews from antisemitic attacks.`\
-https://nytimes.com/2025/08/26/world/europe/macron-letter-netanyahu-palestine-state-antisemetism.html
-
-**Guardians place first baseman Carlos Santana on outright waivers: Sources**\
-`The move potentially signals an approaching conclusion to the 39-year-old’s third stint with the organization.`\
-https://nytimes.com/athletic/6577053/2025/08/26/cleveland-guardians-carlos-santana-waivers-mlb/
-
-**Villa reject loan with option offer from Stuttgart for Buendia**\
-`Buendia's future in the Midlands is uncertain, with Villa and the player currently weighing up a potential departure.`\
-https://nytimes.com/athletic/6387830/2025/08/26/emi-buendia-aston-villa-stuttgart/
-
-**Pitching prospect Jonah Tong to join Mets rotation, will start Friday: Sources**\
-`Tong, the Mets' top pitching prospect, has a 1.43 ERA in 113 2/3 innings this season.`\
-https://nytimes.com/athletic/6577074/2025/08/26/jonah-tong-new-york-mets-mlb-debut/
 
