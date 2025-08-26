@@ -1,3 +1,11 @@
+**Trump’s Influence on Our Language**\
+`Readers react to an essay on how President Trump’s speaking style is changing our language. Also: A warning from Canada; an argument for shutting down the N.I.H.`\
+https://nytimes.com/2025/08/26/opinion/trump-language-influence.html
+
+**How the N.Y.P.D.’s Facial Recognition Tool Landed the Wrong Man in Jail**\
+`Trevis Williams is eight inches taller than a man accused of flashing a woman in Union Square in February. The police arrested him anyway.`\
+https://nytimes.com/2025/08/26/nyregion/nypd-facial-recognition-dismissed-case.html
+
 **MLB announces 2026 schedule with earliest Opening Day in history**\
 `The season starts on March 25, the earliest Opening Day not involving an international series or special event in league history.`\
 https://nytimes.com/athletic/6576870/2025/08/26/mlb-2026-schedule-release-opening-day/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6565594/2025/08/26/saints-spencer-rattler-starting-
 **Human Case of Flesh-Eating Screwworm Reported in Maryland**\
 `The patient had traveled to Central America, where an outbreak of myiasis, an infection by screwworm larvae, has been ravaging livestock.`\
 https://nytimes.com/2025/08/26/health/infection-screwworm-maryland.html
-
-**Farage Promises Mass Deportations if Elected U.K. Prime Minister**\
-`The plans announced by the leader of Reform U.K., which is leading opinion polls in Britain, illustrated how he is driving a hardening of the debate around immigration.`\
-https://nytimes.com/2025/08/26/world/europe/farage-deportation-plan-uk.html
-
-**West Ham agree fee with Monaco for midfielder Magassa**\
-`There is still work to be done to complete the deal but the two sides have agreed a fee worth in the region of £17.3m for the 21-year-old.`\
-https://nytimes.com/athletic/6575810/2025/08/26/west-ham-transfer-soungoutou-magassa-news/
 
