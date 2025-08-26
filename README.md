@@ -1,3 +1,11 @@
+**Bills 53 man roster analysis: Tyrell Shavers, 'Buffalo Joe' Andreessen make the cut**\
+`Tre'Davious White also made the team amid injury concerns, and rookie Maxwell Hairston will start the season on IR.`\
+https://nytimes.com/athletic/6577480/2025/08/26/bills-initial-53-man-roster-analysis-tyrell-shavers-buffalo-joe-andreessen/
+
+**Cardinals' Willson Contreras handed six-game suspension after bat-throwing incident**\
+`The suspension was scheduled to begin on Tuesday, however, he will be permitted to play until the appeal process is complete. `\
+https://nytimes.com/athletic/6577580/2025/08/26/st-louis-cardinals-willson-contreras-suspension/
+
 **Browns' initial 53-man roster features 3 QBs, 2 RBs and 1 new kicker**\
 `Breaking down the roster as currently constructed and gauging some of the moves Cleveland's made in recent days.`\
 https://nytimes.com/athletic/6577401/2025/08/26/browns-53-man-roster-dillon-gabriel/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6574618/2025/08/26/seahawks-53-man-roster-2025/
 **Lafufus, Fake Labubu Dolls, Raise Safety Alarms and Spawn Raids**\
 `The dupes of the cute-ugly toys have left consumer complaints and warnings about safety risks and potentially hazardous chemicals in their wake.`\
 https://nytimes.com/2025/08/26/world/asia/labubu-fake-safety.html
-
-**Silicon Valley Pledges $200 Million to New Pro-A.I. Super PACs**\
-`The two PACs reflect a new level of political engagement by companies like Meta and investors such as Andreessen Horowitz, which are spending heavily on artificial intelligence.`\
-https://nytimes.com/2025/08/26/technology/silicon-valley-ai-super-pacs.html
-
-**Brooklyn’s Federal Judges Name Joseph Nocella Jr. as U.S. Attorney**\
-`He will continue to oversee an office that often handles cases involving violent drug cartels and transnational repression. In making the choice, the judges avoided a political fight.`\
-https://nytimes.com/2025/08/26/nyregion/edny-us-attorney-nocella.html
 
