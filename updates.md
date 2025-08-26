@@ -1,3 +1,11 @@
+**Saints name Spencer Rattler starting QB, rookie Tyler Shough to serve as backup**\
+`Archie Manning remains the only quarterback in Saints franchise history to earn the starting job at the outset of his rookie season. `\
+https://nytimes.com/athletic/6565594/2025/08/26/saints-spencer-rattler-starting-quarterback/
+
+**Human Case of Flesh-Eating Screwworm Reported in Maryland**\
+`The patient had traveled to Central America, where an outbreak of myiasis, an infection by screwworm larvae, has been ravaging livestock.`\
+https://nytimes.com/2025/08/26/health/infection-screwworm-maryland.html
+
 **Farage Promises Mass Deportations if Elected U.K. Prime Minister**\
 `The plans announced by the leader of Reform U.K., which is leading opinion polls in Britain, illustrated how he is driving a hardening of the debate around immigration.`\
 https://nytimes.com/2025/08/26/world/europe/farage-deportation-plan-uk.html

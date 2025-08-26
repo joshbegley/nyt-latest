@@ -1,3 +1,11 @@
+**Saints name Spencer Rattler starting QB, rookie Tyler Shough to serve as backup**\
+`Archie Manning remains the only quarterback in Saints franchise history to earn the starting job at the outset of his rookie season. `\
+https://nytimes.com/athletic/6565594/2025/08/26/saints-spencer-rattler-starting-quarterback/
+
+**Human Case of Flesh-Eating Screwworm Reported in Maryland**\
+`The patient had traveled to Central America, where an outbreak of myiasis, an infection by screwworm larvae, has been ravaging livestock.`\
+https://nytimes.com/2025/08/26/health/infection-screwworm-maryland.html
+
 **Farage Promises Mass Deportations if Elected U.K. Prime Minister**\
 `The plans announced by the leader of Reform U.K., which is leading opinion polls in Britain, illustrated how he is driving a hardening of the debate around immigration.`\
 https://nytimes.com/2025/08/26/world/europe/farage-deportation-plan-uk.html
@@ -29,8 +37,4 @@ https://nytimes.com/2025/08/26/us/politics/dnc-israel-gaza-war-resolution.html
 **Abrego Garcia Detained After 3 Days of Freedom**\
 `Kilmar Armando Abrego Garcia, the immigrant who was wrongfully expelled to El Salvador in March and then brought back to face criminal charges, was detained again on Monday as the Trump administration indicated that it planned to re-deport him to Uganda. Our reporter Alan Feuer explains the case.`\
 https://nytimes.com/video/us/politics/100000010359993/abreago-garcia-detained-after-3-days-of-freedom.html
-
-**Housing Official’s Push on Mortgage Fraud Gives Trump a Political Weapon**\
-`The director of Federal Housing Finance Agency could win the president an opening on the Federal Reserve board.`\
-https://nytimes.com/2025/08/26/us/politics/housing-mortgage-fraud-trump-lisa-cook.html
 
