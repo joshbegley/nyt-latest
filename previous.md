@@ -1,3 +1,7 @@
+**Mustapha signs new Palace contract, joins Nurnberg on loan**\
+`Mustapha was named last year’s under-21 player of the season and is highly rated at Palace.`\
+https://nytimes.com/athletic/6573738/2025/08/26/crystal-palace-transfers-news-nurnberg/
+
 **Dust Storms Sweep Through Central Arizona**\
 `The intense dust storm briefly grounded flights and knocked out power to thousands in the region.`\
 https://nytimes.com/video/world/asia/100000010361041/dust-storm-phoenix-arizona-airport.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6575054/2025/08/26/newcastle-liverpool-howe-isak-tr
 **The New York Times in Print for Tuesday, Aug. 26, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/08/26/todays-new-york-times
-
-**These Countries Have Never Trusted America. Trump Is Proving Them Right.**\
-`Brazil, India and other emerging countries are hedging their bets against the United States.`\
-https://nytimes.com/2025/08/26/opinion/trump-brazil-india-tariffs.html
 

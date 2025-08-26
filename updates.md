@@ -1,3 +1,7 @@
+**Mustapha signs new Palace contract, joins Nurnberg on loan**\
+`Mustapha was named last year’s under-21 player of the season and is highly rated at Palace.`\
+https://nytimes.com/athletic/6573738/2025/08/26/crystal-palace-transfers-news-nurnberg/
+
 **Dust Storms Sweep Through Central Arizona**\
 `The intense dust storm briefly grounded flights and knocked out power to thousands in the region.`\
 https://nytimes.com/video/world/asia/100000010361041/dust-storm-phoenix-arizona-airport.html
