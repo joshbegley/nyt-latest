@@ -1,3 +1,7 @@
+**Crime Gone in a Week? The Politics Behind Trump’s Federal Crackdown.**\
+`President Trump is using crime as a political weapon, proclaiming quick-fix solutions to deeply rooted challenges in cities led by Democrats.`\
+https://nytimes.com/2025/08/25/us/politics/trump-crime-federal-crackdown-politics.html
+
 **Kennedy Center’s New Dance Director Criticized ‘Woke’ Ballet Culture**\
 `Stephen Nakagawa, a former dancer with the Washington Ballet, wrote a letter to the leader of the arts center complaining about “radical leftist ideologies in ballet.”`\
 https://nytimes.com/2025/08/25/arts/dance/kennedy-center-stephen-nakagawa.html
