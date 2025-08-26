@@ -1,3 +1,7 @@
+**Fantasy football 2025 AFC outlooks: Justin Fields is a top-8 QB, Ravens win Super Bowl**\
+`Dalton Del Don previews the AFC with a fantasy lens and predicts a top-12 WR season for Ladd McConkey. `\
+https://nytimes.com/athletic/6574572/2025/08/26/fantasy-football-2025-afc-outlooks-justin-fields-is-a-top-8-qb-ravens-win-super-bowl/
+
 **The Pulse: Madness at the U.S. Open**\
 `The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
 https://nytimes.com/athletic/6574410/2025/08/26/us-open-medvedev-bonzi-the-pulse/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6575326/2025/08/26/fort-lauderdale-host-second-worl
 **Phoenix Mercury's new 'think outside the box' roster is a creative blueprint for WNBA teams**\
 `Aquiring international vets, strong rookies and, of course, Alyssa Thomas, has made Mercury a team to reckon with.`\
 https://nytimes.com/athletic/6575335/2025/08/26/phoenix-mercury-roster-wnba/
-
-**Should Keegan Bradley pick himself for the Ryder Cup team? Projecting the U.S. roster**\
-`Multiple Americans have said they believe Bradley should pick himself, and there's certainly public sentiment for it. But there's also risk.`\
-https://nytimes.com/athletic/6574544/2025/08/26/ryder-cup-2025-us-team-projections-keegan-bradley/
 

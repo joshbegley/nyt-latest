@@ -1,3 +1,7 @@
+**The Pulse: Madness at the U.S. Open**\
+`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/6574410/2025/08/26/us-open-medvedev-bonzi-the-pulse/
+
 **Borussia Dortmund head coach Niko Kovac signs new contract**\
 `Kovac was appointed by Dortmund in February 2025 following the dismissal of Nuri Sahin, initially on a deal until the summer of 2026.`\
 https://nytimes.com/athletic/6575678/2025/08/26/borussia-dortmund-niko-kovac-signs-new-contract/

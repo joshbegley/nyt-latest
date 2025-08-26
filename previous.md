@@ -1,3 +1,7 @@
+**The Pulse: Madness at the U.S. Open**\
+`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/6574410/2025/08/26/us-open-medvedev-bonzi-the-pulse/
+
 **Borussia Dortmund head coach Niko Kovac signs new contract**\
 `Kovac was appointed by Dortmund in February 2025 following the dismissal of Nuri Sahin, initially on a deal until the summer of 2026.`\
 https://nytimes.com/athletic/6575678/2025/08/26/borussia-dortmund-niko-kovac-signs-new-contract/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6575335/2025/08/26/phoenix-mercury-roster-wnba/
 **Should Keegan Bradley pick himself for the Ryder Cup team? Projecting the U.S. roster**\
 `Multiple Americans have said they believe Bradley should pick himself, and there's certainly public sentiment for it. But there's also risk.`\
 https://nytimes.com/athletic/6574544/2025/08/26/ryder-cup-2025-us-team-projections-keegan-bradley/
-
-**The Knicks and free agency: Which players make sense at veteran's minimum?**\
-`The Knicks have a veteran-minimum deal to use. Which players make sense?`\
-https://nytimes.com/athletic/6574026/2025/08/26/knicks-free-agency-nba-veteran-minimum/
 
