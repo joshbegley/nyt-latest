@@ -1,4 +1,20 @@
-**Trump Again Escalates Power Grabs in Bid to Fire Federal Reserve Board Member**\
+**Cavaliers forward Max Strus out 3-4 months following left foot surgery**\
+`It is the second significant injury already for the Cavs, who will also be without All-Star point guard Darius Garland to start the year.`\
+https://nytimes.com/athletic/6577208/2025/08/26/cavaliers-max-strus-foot-surgery-2025/
+
+**Donald McPherson, Naval Fighter Ace in World War II, Dies at 103**\
+`One of the last surviving combat aces from the war, he took down five Japanese aircraft and helped save a destroyer during the Battle of Okinawa.`\
+https://nytimes.com/2025/08/26/obituaries/donald-mcpherson-dead.html
+
+**Wednesday Briefing: The U.K. May Recognize a Palestinian State**\
+`Plus, the Booker Prize nominees.`\
+https://nytimes.com/2025/08/26/briefing/britain-palestinian-state-china-us-trade.html
+
+**The Big Moments From Taylor Swift and Travis Kelce’s Love Story**\
+`Bogie and Bacall, Marilyn and Joe DiMaggio, Beyoncé and Jay-Z: The new celebrity power couple might overshadow them all.`\
+https://nytimes.com/2025/08/26/arts/music/taylor-swift-travis-kelce-engaged-relationship-timeline.html
+
+**Trump Again Escalates Power Grabs in Bid to Fire Fed Member**\
 `President Trump claimed he has cause to remove a member of the independent board who has not obeyed his demands to vote for lower interest rates.`\
 https://nytimes.com/2025/08/26/us/politics/trump-power-federal-reserve.html
 
@@ -21,20 +37,4 @@ https://nytimes.com/2025/08/26/briefing/india-trump-tariff-taylor-swift-fed.html
 **Celtic fail to reach CL league phase, miss out on over €18m**\
 `Brendan Rodgers' side lost on penalties in the play-off round to Kazakhstani side Kairat Almaty.`\
 https://nytimes.com/athletic/6577289/2025/08/26/celtic-kairat-champions-league/
-
-**Mumbai’s Pigeon-Feeding Rules Aren’t Going Over Well**\
-`The new rules led to clashes with the police and threats of hunger strikes by members of the Jain religious community, which believes in nonviolence against all creatures.`\
-https://nytimes.com/2025/08/26/world/asia/india-pigeon-feeding-ban-mumbai.html
-
-**Donald Trump’s Assault on Capitalism**\
-`Trump’s personalized control of growing swaths of the economy will harm American economic freedom and competitiveness.`\
-https://nytimes.com/2025/08/26/opinion/trump-intel-economy-competition-control.html
-
-**Popcast Presents: The Songs of This Summer**\
-`We asked 10 notable cultural figures — including Questlove, Ezra Klein, Kristin Cavallari and the candidates for New York City mayor — for their personal summer anthem of 2025. Their answers have range.`\
-https://nytimes.com/interactive/2025/08/26/arts/music/song-of-the-summer-2025.html
-
-**SpaceX Set to Attempt Critical Test Launch of Mars Rocket Again**\
-`After two consecutive scrubs, the Starship vehicle is due for its 10th test flight as Elon Musk’s company aims to overcome earlier setbacks.`\
-https://nytimes.com/2025/08/26/science/spacex-starship-test-launch.html
 

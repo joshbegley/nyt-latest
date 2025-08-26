@@ -1,3 +1,7 @@
+**Trump Again Escalates Power Grabs in Bid to Fire Federal Reserve Board Member**\
+`President Trump claimed he has cause to remove a member of the independent board who has not obeyed his demands to vote for lower interest rates.`\
+https://nytimes.com/2025/08/26/us/politics/trump-power-federal-reserve.html
+
 **Small Bookstores and the Future of Liberalism**\
 `A retreat from partisan politics, wokeness and optimism.`\
 https://nytimes.com/2025/08/26/opinion/bookstores-liberalism-trump-politics.html
