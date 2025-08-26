@@ -1,3 +1,7 @@
+**Making the case for the Mets to promote pitching prospect Jonah Tong**\
+`Whatever Mets officials had in mind for the right-hander before the season, it wasn’t this: 113 2/3 innings, 1.43 ERA, 47 walks, 179 K's.`\
+https://nytimes.com/athletic/6575222/2025/08/25/new-york-mets-jonah-tong-potential/
+
 **How to Cultivate a Feel-Good Garden**\
 `Horticulturalists and herbalists share tips for nurturing plants with health benefits.`\
 https://nytimes.com/2025/08/25/garden/medicinal-plant-garden-tips.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/25/books/review/virginia-roberts-giuffre-memoir-knop
 **Read Trump’s Directive Firing Lisa Cook**\
 `The president said in a letter on Monday that he was removing the Federal Reserve governor from her duties, effective immediately.`\
 https://nytimes.com/interactive/2025/08/25/us/trump-lisa-cook-fed-firing.html
-
-**Browns trade QB Kenny Pickett to Raiders for fifth-round pick**\
-`QB was expected to challenge Joe Flacco for Cleveland's starting QB spot before an injury. Now he'll back up Geno Smith in Las Vegas.`\
-https://nytimes.com/athletic/6575162/2025/08/25/kenny-pickett-trade-browns-raiders/
 
