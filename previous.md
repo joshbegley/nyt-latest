@@ -1,40 +1,40 @@
-**Lucas Vazquez set to join Leverkusen after Real Madrid exit**\
-`The 34-year-old ended his career-long association with Madrid earlier this summer, following the club's exit from the Club World Cup.`\
-https://nytimes.com/athletic/6508432/2025/08/26/lucas-vazquez-leverkusen-real-madrid-transfers/
+**Fantasy football breakout candidates for each AFC team: Keon Coleman, RJ Harvey and more**\
+`Theo Gremminger highlights a player for each AFC team who could reach new heights in fantasy football 2025.`\
+https://nytimes.com/athletic/6574501/2025/08/26/fantasy-football-afc-breakout-candidates-coleman/
 
-**U.S. Open day 2 recap: Carlos Alcaraz's buzz cuts through Reilly Opelka in night session**\
-`The world No. 2 produced a locked-in serving performance to take down one of the biggest servers in the sport.`\
-https://nytimes.com/athletic/6575517/2025/08/26/tennis-us-open-day-2-schedule-results-recap/
+**Google Could Get Broken Up This Week. Here’s What It Would Mean.**\
+`It will be effective if people who work at big tech companies start quitting their jobs.`\
+https://nytimes.com/2025/08/26/opinion/google-antitrust-remedy-ai.html
 
-**Mustapha signs new Palace contract, joins Nurnberg on loan**\
-`Mustapha was named last year’s under-21 player of the season and is highly rated at Palace.`\
-https://nytimes.com/athletic/6573738/2025/08/26/crystal-palace-transfers-news-nurnberg/
+**European Officials Press Iran on Nuclear Talks. Here’s What to Know.**\
+`Three European powers will meet with an Iranian minister to try to reopen negotiations over Iran’s nuclear activities and avoid reimposing harsh sanctions.`\
+https://nytimes.com/2025/08/26/world/middleeast/iran-nuclear-talks-europe.html
 
-**Dust Storms Sweep Through Central Arizona**\
-`The intense dust storm briefly grounded flights and knocked out power to thousands in the region.`\
-https://nytimes.com/video/world/asia/100000010361041/dust-storm-phoenix-arizona-airport.html
+**With Little Explanation, Trump Throws Wind Industry Into Chaos**\
+`The Trump administration is halting wind projects that had been approved, financed and underway while providing little to no justification.`\
+https://nytimes.com/2025/08/26/climate/with-little-explanation-trump-throws-wind-industry-into-chaos.html
 
-**The Street-Corner Sensors That Track Flooding in Real Time**\
-`Hundreds of sensors placed throughout New York City measure water as it rises, then send the data to an interactive map available to the public.`\
-https://nytimes.com/2025/08/26/nyregion/flood-sensors-nyc.html
+**Some Options for Mamdani on Free Child Care**\
+`Zohran Mamdani, the Democratic nominee for mayor, will face a challenge in making his proposal of universal free child care a reality.`\
+https://nytimes.com/2025/08/26/nyregion/some-options-for-mamdani-on-free-child-care.html
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2025/08/26/crosswords/spelling-bee-forum.html
+**‘Memoir of a Snail,’ ‘Eephus’ and More Streaming Gems**\
+`This month’s out-of-the-box recommendations include an acclaimed ensemble dramedy and a pair of animated movies that are very much not for the kids.`\
+https://nytimes.com/2025/08/26/movies/memoir-of-a-snail-eephus-streaming-movies.html
 
-**The Transfer DealSheet: The latest on your club and their plans this summer window**\
-`Welcome to The Athletic's weekly guide to the latest from the summer transfer market`\
-https://nytimes.com/athletic/6573666/2025/08/26/transfer-latest-manchester-united-arsenal-liverpool-real-madrid-dealsheet-summer-window-updates/
+**A Life of Rage and Despair, Told in a Memoir Full of Beauty**\
+`The writer Michael Thomas recounts his struggles, successes and fraught family history in mesmerizing detail.`\
+https://nytimes.com/2025/08/26/books/review/michael-thomas-broken-king.html
 
-**Word of the Day: furtive**\
-`This word has appeared in 34 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2025/08/26/learning/word-of-the-day-furtive.html
+**Public Broadcast Cuts Hit Rural Areas, Revealing a Political Shift**\
+`Threatened by the president with political retribution, Republicans agreed to defund public broadcasting, imperiling a lifeline of communication in rural Alaska.`\
+https://nytimes.com/2025/08/26/us/politics/public-broadcast-cuts.html
 
-**How Ngumoha, the ego-free wonderkid, announced himself to Liverpool – and the world**\
-`Arne Slot needed a 16-year-old – and Dominik Szoboszlai – to ensure Newcastle trip was a night of elation not regret`\
-https://nytimes.com/athletic/6575304/2025/08/26/rio-ngumoha-liverpool-age-newcastle-goal/
+**In London, She Became Musical Theater Royalty. Now She’s Back on Broadway.**\
+`Marisha Wallace, headlining the final months of “Cabaret” in New York, returns to the city with Olivier nominations and newly minted British citizenship.`\
+https://nytimes.com/2025/08/26/theater/marisha-wallace-cabaret-broadway.html
 
-**2 Police Officers Killed in Shooting in Rural Australia**\
-`A third officer was wounded. Local authorities urged residents to avoid the area, about 200 miles from Melbourne, as they searched for the gunman.`\
-https://nytimes.com/2025/08/26/world/australia/australia-police-shooting-porepunkah.html
+**Two Restaurants Are Making Minneapolis the American Capital of Hmong Food**\
+`The chefs at Diane’s Place and Vinai serve as guardians and interpreters of their foodways.`\
+https://nytimes.com/2025/08/26/dining/hmong-cuisines-minneapolis.html
 
