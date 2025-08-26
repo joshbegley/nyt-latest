@@ -1,3 +1,7 @@
+**China Finds Buyers for Surplus Solar: Africa’s Energy-Hungry Countries**\
+`Overproduction in China has led to slashed prices, and buyers on the continent are taking advantage to sharply increase investments in clean energy.`\
+https://nytimes.com/2025/08/26/climate/africa-china-solar-panels.html
+
 **Judge Rules Utah Must Redraw Its Congressional Map, Frustrating Republicans**\
 `A G.O.P. effort to carve up a Democratic stronghold ignored the will of voters, a judge said. The ruling, which Republicans can appeal, makes the state another battleground in the national fight over redistricting.`\
 https://nytimes.com/2025/08/26/us/utah-congress-gerrymander-redistricting.html
