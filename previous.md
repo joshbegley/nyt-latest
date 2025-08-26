@@ -1,3 +1,7 @@
+**Maria Sharapova honored at U.S. Open: ‘Some of the most beautiful moments on this court'**\
+`Sharapova, who won five Grand Slam titles, saw her career intertwined with Williams' success.`\
+https://nytimes.com/athletic/6575140/2025/08/25/maria-sharapova-hall-of-fame-serena-williams-us-open/
+
 **Making the case for the Mets to promote pitching prospect Jonah Tong**\
 `Whatever Mets officials had in mind for the right-hander before the season, it wasn’t this: 113 2/3 innings, 1.43 ERA, 47 walks, 179 K's.`\
 https://nytimes.com/athletic/6575222/2025/08/25/new-york-mets-jonah-tong-potential/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/25/us/babe-ruth-baseball-fraud.html
 **Epstein Accuser’s Family Takes Issue With Plans to Publish Her Memoir**\
 `Relatives of Virginia Roberts Giuffre, who died earlier this year, contend that the book underplays the abuse she suffered at the hands of her husband.`\
 https://nytimes.com/2025/08/25/books/review/virginia-roberts-giuffre-memoir-knopf.html
-
-**Read Trump’s Directive Firing Lisa Cook**\
-`The president said in a letter on Monday that he was removing the Federal Reserve governor from her duties, effective immediately.`\
-https://nytimes.com/interactive/2025/08/25/us/trump-lisa-cook-fed-firing.html
 
