@@ -1,3 +1,7 @@
+**FC Midtjylland complete signing of Bournemouth's Billing**\
+`The 29-year-old Denmark international spent the latter half of the 2024-25 season on loan to Napoli.`\
+https://nytimes.com/athletic/6572226/2025/08/26/fc-midtjylland-complete-signing-of-bournemouth-midfielder-philip-billing/
+
 **Fantasy football 2025 AFC outlooks: Justin Fields is a top-8 QB, Ravens win Super Bowl**\
 `Dalton Del Don previews the AFC with a fantasy lens and predicts a top-12 WR season for Ladd McConkey. `\
 https://nytimes.com/athletic/6574572/2025/08/26/fantasy-football-2025-afc-outlooks-justin-fields-is-a-top-8-qb-ravens-win-super-bowl/
