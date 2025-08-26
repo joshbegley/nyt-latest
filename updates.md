@@ -1,3 +1,11 @@
+**Trump Is Trying to End Fed Independence**\
+`If the courts allow Trump to get away with firing Lisa Cook, the Fed will be stripped of its insulation from political pressure.`\
+https://nytimes.com/2025/08/26/opinion/politics/trump-is-trying-to-end-fed-independence.html
+
+**Yankees, Giants to open 2026 MLB season schedule with game at San Francisco**\
+`The Giants and Yankees also played each other on Opening Day in 2023.`\
+https://nytimes.com/athletic/6576597/2025/08/26/sf-giants-yankees-mlb-2026-schedule/
+
 **Big Ten odds, win totals, projections, best bet: Will OSU end conference title drought?**\
 `Ohio State is favored to win the Big Ten, something the Buckeyes haven't done since 2020. Will they end the drought or will it continue?`\
 https://nytimes.com/athletic/6565181/2025/08/26/big-ten-odds-win-totals-projections-best-bets/

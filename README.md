@@ -1,6 +1,6 @@
 **Trump Is Trying to End Fed Independence**\
 `If the courts allow Trump to get away with firing Lisa Cook, the Fed will be stripped of its insulation from political pressure.`\
-https://nytimes.com/2025/08/26/opinion/politics/trump-is-trying-to-end-fed-independence.html
+https://nytimes.com/2025/08/26/opinion/politics/trump-fed-independence-lisa-cook.html
 
 **Yankees, Giants to open 2026 MLB season schedule with game at San Francisco**\
 `The Giants and Yankees also played each other on Opening Day in 2023.`\

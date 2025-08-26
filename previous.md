@@ -1,3 +1,11 @@
+**Trump Is Trying to End Fed Independence**\
+`If the courts allow Trump to get away with firing Lisa Cook, the Fed will be stripped of its insulation from political pressure.`\
+https://nytimes.com/2025/08/26/opinion/politics/trump-is-trying-to-end-fed-independence.html
+
+**Yankees, Giants to open 2026 MLB season schedule with game at San Francisco**\
+`The Giants and Yankees also played each other on Opening Day in 2023.`\
+https://nytimes.com/athletic/6576597/2025/08/26/sf-giants-yankees-mlb-2026-schedule/
+
 **Big Ten odds, win totals, projections, best bet: Will OSU end conference title drought?**\
 `Ohio State is favored to win the Big Ten, something the Buckeyes haven't done since 2020. Will they end the drought or will it continue?`\
 https://nytimes.com/athletic/6565181/2025/08/26/big-ten-odds-win-totals-projections-best-bets/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/08/26/style/taylor-swift-engaged-travis-kelce.html
 **Until Saturday: CFB coach salaries up 370 percent**\
 `Until Saturday is The Athletic's free CFB newsletter.`\
 https://nytimes.com/athletic/6576608/2025/08/26/college-football-coach-salary-trend-until-saturday/
-
-**Former USF football coach Jim Leavitt arrested on battery and theft charges**\
-`Leavitt was the first coach in Bulls history and won 95 games over 13 seasons. `\
-https://nytimes.com/athletic/6576535/2025/08/26/jim-leavitt-usf-coach-arrested/
-
-**Fantasy Scoop: 16 players I'm betting my season on**\
-`Players I'm betting my fantasy season on, plus Jake Ciely's thoughts on Terry McLaurin and Kenneth Walker`\
-https://nytimes.com/athletic/6576564/2025/08/26/fantasy-football-targets-2025-nfl-scoop-city-kyler-murray/
 
