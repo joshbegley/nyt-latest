@@ -1,3 +1,7 @@
+**How Ngumoha, the ego-free wonderkid, announced himself to Liverpool - and the world**\
+`Arne Slot needed a 16-year-old - and Dominik Szoboszlai - to ensure Newcastle trip was a night of elation not regret`\
+https://nytimes.com/athletic/6575304/2025/08/26/rio-ngumoha-liverpool-age-newcastle-goal/
+
 **Police Officers Descend on Australian Town After Reports of Fatal Shooting**\
 `The national broadcaster reported that at least two police officers had been killed in a rural town north of Melbourne. The police declined to comment.`\
 https://nytimes.com/2025/08/26/world/australia/australia-police-shooting-porepunkah.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6575434/2025/08/26/mets-show-what-they-can-be-down-
 **YouTube TV, Fox locked in carriage dispute ahead of big football weekend**\
 `YouTube TV subscribers could lose access to Fox Sports and other Fox properties if a deal is not reached by the Wednesday deadline.`\
 https://nytimes.com/athletic/6575416/2025/08/26/youtube-fox-sports-carriage-dispute-big-football-weekend/
-
-**Forest have one of the best squads in their history - and it could get better**\
-`A summer splurge has given Forest serious strength in depth and the spending may not be over yet`\
-https://nytimes.com/athletic/6573223/2025/08/26/nottingham-forest-squad-transfer-window/
 
