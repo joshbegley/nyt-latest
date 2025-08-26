@@ -1,3 +1,11 @@
+**Police Officers Descend on Australian Town After Reports of Fatal Shooting**\
+`The national broadcaster reported that at least two police officers had been killed in a rural town north of Melbourne. The police declined to comment.`\
+https://nytimes.com/2025/08/26/world/australia/australia-police-shooting-porepunkah.html
+
+**Newcastle lost and lost and lost against Liverpool. It just didn't look like it**\
+`On a night when everything went wrong, Eddie Howe's players proved why there is a lot right at St James' Park`\
+https://nytimes.com/athletic/6575054/2025/08/26/newcastle-liverpool-howe-isak-transfer/
+
 **Trump Is Teaching the World to Live Without a Hegemon**\
 `Brazil, India and other emerging countries are hedging their bets against the United States.`\
 https://nytimes.com/2025/08/26/opinion/trump-brazil-india-tariffs.html
