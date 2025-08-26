@@ -1,3 +1,23 @@
+**USMNT Sept. squad revealed: Pulisic returns, but McKennie among omissions**\
+`Christian Pulisic returns after a contentious summer break, but there's intrigue elsewhere on Mauricio Pochettino's latest squad`\
+https://nytimes.com/athletic/6576080/2025/08/26/usmnt-squad-south-korea-japan-pulisic-mckennie-pochettino/
+
+**Colorado plans to start QB Kaidon Salter vs. Georgia Tech**\
+`Last season, Salter threw for 1,886 yards, 15 touchdowns and six interceptions and ran for 587 yards and seven scores.`\
+https://nytimes.com/athletic/6573105/2025/08/26/kaidon-salter-colorado-starting-qb-deion-sanders/
+
+**For a Museum in Melbourne, a Cabinet of Virtuosity**\
+`Nipa Doshi’s furniture commission, which evokes both religious and self-care rituals, honors some of the influential women in her life.`\
+https://nytimes.com/2025/08/26/arts/design/nipa-doshi-melbourne-museum-comission.html
+
+**Taylor Swift, Travis Kelce announce engagement on Instagram**\
+`Swift announced the couple's engagement via Instagram Tuesday afternoon, and the post accrued 1 million likes in nine minutes.`\
+https://nytimes.com/athletic/6576592/2025/08/26/taylor-swift-travis-kelce-engaged-instagram/
+
+**Former USF football coach Jim Leavitt arrested on battery and theft charges**\
+`Leavitt was the first coach in Bulls history and won 95 games over 13 seasons. `\
+https://nytimes.com/athletic/6576535/2025/08/26/jim-leavitt-usf-coach-arrested/
+
 **Trump’s Allegations Against Lisa Cook in Some Ways Echo His Own Legal Fight**\
 `President Trump, during his campaign for a second term, was accused of fraudulently inflating his net worth in order to get better rates on bank loans.`\
 https://nytimes.com/2025/08/26/us/politics/trump-lisa-cook-fraud.html
