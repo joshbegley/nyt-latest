@@ -1,3 +1,15 @@
+**Browns' initial 53-man roster features 3 QBs, 2 RBs and 1 new kicker**\
+`Breaking down the roster as currently constructed and gauging some of the moves Cleveland's made in recent days.`\
+https://nytimes.com/athletic/6577401/2025/08/26/browns-53-man-roster-dillon-gabriel/
+
+**Leeds' Tanaka to miss several weeks with MCL injury**\
+`It is a similar injury to the one Ethan Ampadu suffered in the season-opening win over Everton.`\
+https://nytimes.com/athletic/6577603/2025/08/26/ao-tanaka-leeds-injury-update/
+
+**Vikings 53-man roster review: One thought on each player who made the initial list**\
+`The Vikings named their initial 53-man roster, but don't be surprised if they make more moves in the coming days at WR, CB and returner.`\
+https://nytimes.com/athletic/6576489/2025/08/26/vikings-53-man-roster-cutdown/
+
 **Taylor Swift’s Engagement Ring Marks a Return to Vintage Elegance**\
 `The pop star’s antique-inspired sparkler channels the “heirloom look,” reflecting a return to antique stones.`\
 https://nytimes.com/2025/08/26/style/taylor-swift-engagement-ring.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/08/26/technology/silicon-valley-ai-super-pacs.html
 **Brooklyn’s Federal Judges Name Joseph Nocella Jr. as U.S. Attorney**\
 `He will continue to oversee an office that often handles cases involving violent drug cartels and transnational repression. In making the choice, the judges avoided a political fight.`\
 https://nytimes.com/2025/08/26/nyregion/edny-us-attorney-nocella.html
-
-**Packers roster breakdown: 2 surprises and 6 other observations from initial 53**\
-`The Packers released both second-year cornerback Kalen King and veteran linebacker Kristian Welch on cutdown day Tuesday.`\
-https://nytimes.com/athletic/6577446/2025/08/26/packers-roster-breakdown-53-man/
-
-**A Spate of Fake Shooting Calls Disrupts College Campuses**\
-`As students arrive on campus for fall classes, several universities have locked down their campuses after reports of mass shootings that turned out to be false.`\
-https://nytimes.com/2025/08/26/us/university-swatting-villanova.html
-
-**What, Exactly, Was That Cabinet Meeting?**\
-`As hours ticked by, President Trump played reality television host — “This has never been done before!” — as his cabinet members offered praise. It was a glimpse of how he runs his presidency.`\
-https://nytimes.com/2025/08/26/us/politics/trump-cabinet-meeting.html
 
