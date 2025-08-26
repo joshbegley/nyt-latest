@@ -1,3 +1,11 @@
+**Browns trade QB Kenny Pickett to Raiders for fifth-round pick: Source**\
+`QB was expected to challenge Joe Flacco for Cleveland's starting QB spot before an injury. Now he'll back up Geno Smith in Las Vegas.`\
+https://nytimes.com/athletic/6575162/2025/08/25/kenny-pickett-trade-browns-raiders/
+
+**Trump Says He Is Removing Lisa Cook From Federal Reserve Board**\
+`“I have determined that there is sufficient cause to remove you from your position,” Mr. Trump said in a letter. Her dismissal threatened to touch off a landmark legal battle over the Fed’s independence.`\
+https://nytimes.com/2025/08/25/us/politics/lisa-cook-fired-trump-fed.html
+
 **Ron Washington returns to Angels following quadruple bypass surgery: 'I miss baseball'**\
 `The 73-year-old made it unequivocally clear that he wants to return to manage the Angels next season.`\
 https://nytimes.com/athletic/6575124/2025/08/25/los-angeles-angels-ron-washington-return/
@@ -29,12 +37,4 @@ https://nytimes.com/live/2025/08/25/us/trump-news/trump-official-voa-judge
 **49ers still light at WR, but Brian Robinson provides more options, better thump**\
 `Mykel Williams, CJ West and other injured 49ers returned to practice Monday as the team's 53-man roster begins to take shape.`\
 https://nytimes.com/athletic/6574986/2025/08/25/brian-robinson-49ers-roster-moves/
-
-**Prosecutors Fail 3 Times to Charge Woman With Felony Assault of F.B.I. Agent in D.C.**\
-`It is highly unusual for prosecutors to fail even once to obtain an indictment from a grand jury given the way the process is stacked in favor of the government.`\
-https://nytimes.com/2025/08/25/us/politics/fbi-agent-assault-dc.html
-
-**Howe: Joelinton and Tonali injuries a 'huge blow' for Newcastle**\
-`Howe has lost four starters ahead of Newcastle's next game against Leeds. `\
-https://nytimes.com/athletic/6574894/2025/08/25/eddie-howe-joelinton-sandro-tonali-injuries/
 
