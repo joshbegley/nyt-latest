@@ -1,3 +1,7 @@
+**Ohio State, Dave Portnoy disagree on whether Barstool founder was banned**\
+`Portnoy, a graduate of Michigan, is expected to make his debut on “Big Noon Kickoff” Saturday. The show will be broadcast from Ohio Stadium.`\
+https://nytimes.com/athletic/6575822/2025/08/26/dave-portnoy-barstool-ohio-state/
+
 **Trump’s Influence on Our Language**\
 `Readers react to an essay on how President Trump’s speaking style is changing our language. Also: A warning from Canada; an argument for shutting down the N.I.H.`\
 https://nytimes.com/2025/08/26/opinion/trump-language-influence.html

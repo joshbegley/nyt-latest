@@ -22,7 +22,7 @@ https://nytimes.com/athletic/6576810/2025/08/26/cadillac-f1-drivers-bottas-perez
 `Judge Hannah C. Dugan was arrested in April and accused of impeding immigration agents who were seeking an undocumented man. A federal judge rejected her claims of immunity.`\
 https://nytimes.com/2025/08/26/us/wisconsin-judge-dugan-motion.html
 
-**Ohio State, Dave Portnoy disagree on whether Barstool founder was 'barred'**\
+**Ohio State, Dave Portnoy disagree on whether Barstool founder was banned**\
 `Portnoy, a graduate of Michigan, is expected to make his debut on “Big Noon Kickoff” Saturday. The show will be broadcast from Ohio Stadium.`\
 https://nytimes.com/athletic/6575822/2025/08/26/dave-portnoy-barstool-ohio-state/
 

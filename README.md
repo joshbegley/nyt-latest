@@ -1,3 +1,11 @@
+**Taylor Swift's engagement arrives right on time for Iga Swiatek's first U.S. Open win of 2025**\
+`Świątek, a tournament favorite, was consumed by Swift and Kelce's engagement as any Swiftie ought to be.`\
+https://nytimes.com/athletic/6576896/2025/08/26/taylor-swift-engagement-fan-reactions-iga-swiatek-swiftie/
+
+**Browns release veteran kicker Dustin Hopkins**\
+`The 34-year-old's struggles from 2024, when he was 18-of-27 on field goal attempts, carried over into the preseason. `\
+https://nytimes.com/athletic/6572439/2025/08/26/browns-release-dustin-hopkins/
+
 **Trump’s Influence on Our Language**\
 `Readers react to an essay on how President Trump’s speaking style is changing our language. Also: A warning from Canada; an argument for shutting down the N.I.H.`\
 https://nytimes.com/2025/08/26/opinion/trump-language-influence.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6575822/2025/08/26/dave-portnoy-barstool-ohio-state
 **Purging ‘Equity’ Programs, G.O.P. Defunded Its Own Roads**\
 `When Republicans repealed a Biden-era “access and equity” grant program for transportation, they canceled funding for projects in some of their own districts.`\
 https://nytimes.com/2025/08/26/us/politics/republicans-transportation-grants.html
-
-**Saints name Spencer Rattler starting QB, rookie Tyler Shough to serve as backup**\
-`Archie Manning remains the only quarterback in Saints franchise history to earn the starting job at the outset of his rookie season. `\
-https://nytimes.com/athletic/6565594/2025/08/26/saints-spencer-rattler-starting-quarterback/
-
-**Human Case of Flesh-Eating Screwworm Reported in Maryland**\
-`The patient had traveled to Central America, where an outbreak of myiasis, an infection by screwworm larvae, has been ravaging livestock.`\
-https://nytimes.com/2025/08/26/health/infection-screwworm-maryland.html
 
