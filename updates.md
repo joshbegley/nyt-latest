@@ -1,3 +1,11 @@
+**Jack Smith’s Legal Team Fires Back Against Ethics Complaint**\
+`For months, the former special counsel has remained silent as the president and his advisers have publicly attacked him.`\
+https://nytimes.com/2025/08/26/us/jack-smith-ethics-complaint-trump.html
+
+**Wolves close to deal for Girona defender Ladislav Krejci**\
+`Krejci is set to join Wolves on an initial loan which will become a permanent transfer in future.`\
+https://nytimes.com/athletic/6575944/2025/08/26/wolves-deal-girona-transfer-ladislav-krejci/
+
 **The Windup: Two types of baseball meltdowns**\
 `Welcome to The Windup, The Athletic's MLB newsletter.`\
 https://nytimes.com/athletic/6575534/2025/08/26/willson-contreras-bat-throw-the-windup/
