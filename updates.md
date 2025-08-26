@@ -1,3 +1,7 @@
+**Journalism in Gaza**\
+`We look at a deadly strike — and explore the challenges of reporting from the enclave.`\
+https://nytimes.com/2025/08/26/briefing/gaza-nasser-hospital-journalists.html
+
 **Yankees unsure how to fix struggling Anthony Volpe: 'It's a hard question to answer'**\
 `Since his debut, no hitter with at least 1,500 plate appearances has been less effective at the plate than Volpe with his 85 wRC+.`\
 https://nytimes.com/athletic/6574921/2025/08/26/ny-yankees-anthony-volpe-struggles-fixes/
