@@ -1,3 +1,7 @@
+**Borussia Dortmund head coach Niko Kovac signs new contract**\
+`Kovac was appointed by Dortmund in February 2025 following the dismissal of Nuri Sahin, initially on a deal until the summer of 2026.`\
+https://nytimes.com/athletic/6575678/2025/08/26/borussia-dortmund-niko-kovac-signs-new-contract/
+
 **Fantasy football 2025 NFC outlooks: Eagles reign, Jalen Hurts outscores Jayden Daniels**\
 `Dalton Del Don delivers a fantasy-focused NFC preview with scorching hot takes. `\
 https://nytimes.com/athletic/6574205/2025/08/26/fantasy-football-2025-nfc-outlooks-eagles-reign-jalen-hurts-outscores-jayden-daniels/

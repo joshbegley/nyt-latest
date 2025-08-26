@@ -1,3 +1,7 @@
+**Borussia Dortmund head coach Niko Kovac signs new contract**\
+`Kovac was appointed by Dortmund in February 2025 following the dismissal of Nuri Sahin, initially on a deal until the summer of 2026.`\
+https://nytimes.com/athletic/6575678/2025/08/26/borussia-dortmund-niko-kovac-signs-new-contract/
+
 **Fantasy football 2025 NFC outlooks: Eagles reign, Jalen Hurts outscores Jayden Daniels**\
 `Dalton Del Don delivers a fantasy-focused NFC preview with scorching hot takes. `\
 https://nytimes.com/athletic/6574205/2025/08/26/fantasy-football-2025-nfc-outlooks-eagles-reign-jalen-hurts-outscores-jayden-daniels/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6574544/2025/08/26/ryder-cup-2025-us-team-projectio
 **The Knicks and free agency: Which players make sense at veteran's minimum?**\
 `The Knicks have a veteran-minimum deal to use. Which players make sense?`\
 https://nytimes.com/athletic/6574026/2025/08/26/knicks-free-agency-nba-veteran-minimum/
-
-**Ben Shelton, Coco Gauff and the science behind pre-match music at the U.S. Open**\
-`A researcher said that listening to music before a task can have psychological and physiological effects on performance.`\
-https://nytimes.com/athletic/6574161/2025/08/26/ben-shelton-coco-gauff-and-the-science-behind-pre-match-music-at-the-u-s-open/
 
