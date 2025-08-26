@@ -1,3 +1,7 @@
+**Tanner Bibee's frustration boils over during another miserable showing by Cleveland Guardians**\
+`A seething Tanner Bibee voiced his dissatisfaction in the dugout. His manager disagreed with the timing.`\
+https://nytimes.com/athletic/6575355/2025/08/25/cleveland-guardians-tanner-bibee-steven-voght-dugout/
+
 **Cal Raleigh becomes first catcher with 50 home runs in a season**\
 `Raleigh is on pace for 61 home runs this season.`\
 https://nytimes.com/athletic/6575298/2025/08/25/mariners-cal-raleigh-50-home-run/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/25/style/ashtray-design-revival.html
 **Overall Impact**\
 `Kevin Curry plays a crooked — and brilliant — trick on us.`\
 https://nytimes.com/2025/08/25/crosswords/daily-puzzle-2025-08-26.html
-
-**How Cubs' Kyle Tucker was able to reset ahead of Chicago's pivotal stretch run**\
-`After pressing pause, the Cubs believe something has clicked with the 28-year-old All-Star.`\
-https://nytimes.com/athletic/6575199/2025/08/25/chicago-cubs-kyle-tucker-reset-results/
 
