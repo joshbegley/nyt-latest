@@ -1,3 +1,7 @@
+**Trump Says He Welcomes Chinese Students, as His Administration Blocks Them**\
+`The president has praised Chinese students several times. But his policies are making it more difficult for students from China to come to the United States.`\
+https://nytimes.com/2025/08/26/us/politics/trump-welcomes-chinese-as-his-administration-blocks-them.html
+
 **This Couple Predicted Taylor Swift and Travis Kelce’s Relationship 5 Years Ago**\
 `They needed a Halloween costume. Five years later, some have suggested that they manifested the “Tayvis” marriage.`\
 https://nytimes.com/2025/08/26/arts/taylor-swift-travis-kelce-engagement-halloween-costume-prediction.html
