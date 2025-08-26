@@ -1,3 +1,7 @@
+**Cal Raleigh becomes first catcher with 50 home runs in a season**\
+`Raleigh is on pace for 61 home runs this season.`\
+https://nytimes.com/athletic/6575298/2025/08/25/mariners-cal-raleigh-50-home-run/
+
 **Phoenix Airport Grounds Flights After Dust Storms**\
 `The brief ground stop at Sky Harbor International Airport was lifted on Monday evening, but delays were expected as operations resumed.`\
 https://nytimes.com/2025/08/25/weather/dust-storm-phoenix-arizona-airport.html
