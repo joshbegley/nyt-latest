@@ -34,7 +34,7 @@ https://nytimes.com/2025/08/26/business/trump-technology-european-union-tariffs.
 `DOGE team members uploaded a database with the personal information of hundreds of millions of Americans to a vulnerable cloud server, according to the agency’s chief data officer.`\
 https://nytimes.com/2025/08/26/us/politics/doge-social-security-data.html
 
-**Chelsea evaluating move for Barcelona midfielder Lopez**\
+**Chelsea evaluating move for Barcelona midfielder Fermin**\
 `The Premier League side are in touch with the player's camp as they explore attacking options in case of exits.`\
 https://nytimes.com/athletic/6533184/2025/08/26/chelsea-transfer-news-fermin-lopez-barcelona/
 
