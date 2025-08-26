@@ -1,3 +1,7 @@
+**Even on a Rough Construction Site, Honeybees Figure It Out**\
+`Honeycomb, a mathematical marvel, is made by worker bees. A new study shows that the insects are very good at adapting to wonky foundations.`\
+https://nytimes.com/2025/08/26/science/honey-comb-bees-math-engineering.html
+
 **A Soundtrack for the End of Summer (Cruel or Not)**\
 `Hang on to the last gasps of the season — and prepare for the encroaching fall — with songs by Lana Del Rey, Maxwell, Pavement and more.`\
 https://nytimes.com/2025/08/26/arts/music/amplifier-newsletter-end-of-summer-songs.html

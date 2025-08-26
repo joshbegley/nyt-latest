@@ -4,7 +4,7 @@ https://nytimes.com/2025/08/26/arts/music/amplifier-newsletter-end-of-summer-son
 
 **Even on a Rough Construction Site, Honeybees Figure It Out**\
 `Honeycomb, a mathematical marvel, is made by worker bees. A new study shows that the insects are very good at adapting to wonky foundations.`\
-https://nytimes.com/2025/08/26/science/even-on-a-rough-construction-site-honeybees-figure-it-out.html
+https://nytimes.com/2025/08/26/science/honey-comb-bees-math-engineering.html
 
 **This Golden Worm Fights Poison With Poison**\
 `To blunt the toxic arsenic in the waters where it lives, a deep-sea worm combines it with another chemical to produce a less toxic compound.`\
@@ -33,8 +33,4 @@ https://nytimes.com/athletic/6576080/2025/08/26/usmnt-squad-south-korea-japan-pu
 **Colorado plans to start QB Kaidon Salter vs. Georgia Tech**\
 `Last season, Salter threw for 1,886 yards, 15 touchdowns and six interceptions and ran for 587 yards and seven scores.`\
 https://nytimes.com/athletic/6573105/2025/08/26/kaidon-salter-colorado-starting-qb-deion-sanders/
-
-**For a Museum in Melbourne, a Cabinet of Virtuosity**\
-`Nipa Doshi’s furniture commission, which evokes both religious and self-care rituals, honors some of the influential women in her life.`\
-https://nytimes.com/2025/08/26/arts/design/nipa-doshi-melbourne-museum-comission.html
 
