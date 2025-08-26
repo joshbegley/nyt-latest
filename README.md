@@ -1,3 +1,11 @@
+**The Street-Corner Sensors That Track Flooding in Real Time**\
+`Hundreds of sensors placed throughout New York City measure water as it rises, then send the data to an interactive map available to the public.`\
+https://nytimes.com/2025/08/26/nyregion/flood-sensors-nyc.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/08/26/crosswords/spelling-bee-forum.html
+
 **The Transfer DealSheet: The latest on your club and their plans this summer window**\
 `Welcome to The Athletic's weekly guide to the latest from the summer transfer market`\
 https://nytimes.com/athletic/6573666/2025/08/26/transfer-latest-manchester-united-arsenal-liverpool-real-madrid-dealsheet-summer-window-updates/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/08/26/opinion/trump-brazil-india-tariffs.html
 **5 Takeaways from the ‘Love Island U.S.A.’ Season 7 Reunion**\
 `After a messy season that had viewers rapt, the cast addressed relationship statuses, online rumors and whether apologies were coming or not.`\
 https://nytimes.com/2025/08/26/arts/television/love-island-usa-season-7-reunion.html
-
-**Lisa Cook Says She Will Not Step Down From the Fed**\
-`Ms. Cook said that she would not resign from the board of governors, hours after President Trump announced he was firing her.`\
-https://nytimes.com/2025/08/26/us/politics/lisa-cook-fed-governor.html
-
-**Tuesday Briefing: Israeli Strikes Killed Five Journalists**\
-`Also, a knockoff Starbucks in North Korea.`\
-https://nytimes.com/2025/08/26/briefing/israel-gaza-journalists-killed-south-korea-trump-china-evergrande.html
 
