@@ -1,3 +1,15 @@
+**Abreago Garcia Detained After 3 Days of Freedom**\
+`Kilmar Armando Abrego Garcia, the immigrant who was wrongfully expelled to El Salvador in March and then brought back to face criminal charges, was detained again on Monday as the Trump administration indicated that it planned to re-deport him to Uganda. Our reporter Alan Feuer explains the case.`\
+https://nytimes.com/video/us/politics/100000010359993/abreago-garcia-detained-after-3-days-of-freedom.html
+
+**Housing Official’s Push on Mortgage Fraud Gives Trump a Political Weapon**\
+`The director of Federal Housing Finance Agency could win the president an opening on the Federal Reserve board.`\
+https://nytimes.com/2025/08/26/us/politics/housing-mortgage-fraud-trump-lisa-cook.html
+
+**This Golden Worm Fights Poison With Poison**\
+`To blunt the toxic arsenic in the waters where it lives, a deep-sea worm combines it with another chemical to produce a less toxic compound.`\
+https://nytimes.com/2025/08/26/science/arsenic-worm.html
+
 **Even on a Rough Construction Site, Honeybees Figure It Out**\
 `Honeycomb, a mathematical marvel, is made by worker bees. A new study shows that the insects are very good at adapting to wonky foundations.`\
 https://nytimes.com/2025/08/26/science/honey-comb-bees-math-engineering.html

@@ -1,3 +1,11 @@
+**Abreago Garcia Detained After 3 Days of Freedom**\
+`Kilmar Armando Abrego Garcia, the immigrant who was wrongfully expelled to El Salvador in March and then brought back to face criminal charges, was detained again on Monday as the Trump administration indicated that it planned to re-deport him to Uganda. Our reporter Alan Feuer explains the case.`\
+https://nytimes.com/video/us/politics/100000010359993/abreago-garcia-detained-after-3-days-of-freedom.html
+
+**Housing Official’s Push on Mortgage Fraud Gives Trump a Political Weapon**\
+`The director of Federal Housing Finance Agency could win the president an opening on the Federal Reserve board.`\
+https://nytimes.com/2025/08/26/us/politics/housing-mortgage-fraud-trump-lisa-cook.html
+
 **A Soundtrack for the End of Summer (Cruel or Not)**\
 `Hang on to the last gasps of the season — and prepare for the encroaching fall — with songs by Lana Del Rey, Maxwell, Pavement and more.`\
 https://nytimes.com/2025/08/26/arts/music/amplifier-newsletter-end-of-summer-songs.html
@@ -8,7 +16,7 @@ https://nytimes.com/2025/08/26/science/honey-comb-bees-math-engineering.html
 
 **This Golden Worm Fights Poison With Poison**\
 `To blunt the toxic arsenic in the waters where it lives, a deep-sea worm combines it with another chemical to produce a less toxic compound.`\
-https://nytimes.com/2025/08/26/science/this-golden-worm-fights-poison-with-poison.html
+https://nytimes.com/2025/08/26/science/arsenic-worm.html
 
 **Simon & Schuster Leader to Step Down**\
 `Jonathan Karp, the chief executive since 2020, will oversee a new imprint that publishes six books year.`\
@@ -25,12 +33,4 @@ https://nytimes.com/athletic/6576597/2025/08/26/sf-giants-yankees-mlb-2026-sched
 **Big Ten odds, win totals, projections, best bet: Will OSU end conference title drought?**\
 `Ohio State is favored to win the Big Ten, something the Buckeyes haven't done since 2020. Will they end the drought or will it continue?`\
 https://nytimes.com/athletic/6565181/2025/08/26/big-ten-odds-win-totals-projections-best-bets/
-
-**USMNT Sept. squad revealed: Pulisic returns, but McKennie among omissions**\
-`Christian Pulisic returns after a contentious summer break, but there's intrigue elsewhere on Mauricio Pochettino's latest squad`\
-https://nytimes.com/athletic/6576080/2025/08/26/usmnt-squad-south-korea-japan-pulisic-mckennie-pochettino/
-
-**Colorado plans to start QB Kaidon Salter vs. Georgia Tech**\
-`Last season, Salter threw for 1,886 yards, 15 touchdowns and six interceptions and ran for 587 yards and seven scores.`\
-https://nytimes.com/athletic/6573105/2025/08/26/kaidon-salter-colorado-starting-qb-deion-sanders/
 
