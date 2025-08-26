@@ -1,3 +1,19 @@
+**7 takeaways from the Falcons' initial 53-man roster, starting with Kaleb McGary's status**\
+`The Falcons released their first 53-man roster of the season on Tuesday, confirming that the right tackle will miss the entire season.`\
+https://nytimes.com/athletic/6577334/2025/08/26/falcons-53-man-roster-kaleb-mcgary/
+
+**Fired Fed governor vows to sue Trump**\
+`Also, a Social Security whistleblower. Here’s the latest at the end of Tuesday.`\
+https://nytimes.com/2025/08/26/briefing/lisa-cook-chatgpt.html
+
+**Gates Foundation Quietly Cuts Ties With Firm Linked to Democrats**\
+`Officials made no mention of politics in cutting ties with a network of nonprofit funds, but Bill Gates has made other moves to insulate the charity from political pressures.`\
+https://nytimes.com/2025/08/26/us/politics/gates-foundation-democrats-arabella-advisors.html
+
+**Lebanon Near Disarmament Plan for Hezbollah, U.S. Envoy Says**\
+`At a delicate moment in Lebanese politics, the envoy, Thomas J. Barrack Jr., provoked outrage by warning Lebanese journalists not to be “animalistic.”`\
+https://nytimes.com/2025/08/26/world/middleeast/lebanon-barrack-hezbollah.html
+
 **Pochettino wants trust in his process but his USMNT is short on time**\
 `With the start of the World Cup moving ever closer, the USMNT head coach is adopting a risky selection policy`\
 https://nytimes.com/athletic/6577242/2025/08/26/pochettino-usmnt-world-cup-squad-friendlies/
