@@ -1,3 +1,16 @@
+**Inside Cadillac's F1 driver choice: Why Pérez and Bottas beat out American hopefuls**\
+`In Valtteri Bottas and Sergio Pérez, Cadillac prioritized proven F1 veterans over homegrown American talent — for now.  
+`\
+https://nytimes.com/athletic/6574657/2025/08/26/cadillac-f1-drivers-sergio-perez-valtteri-bottas-american/
+
+**TAFC: Chaos, Newcastle striker irony, a 16-year-old matchwinner. Plus: Transfer latest on Guehi**\
+`Today in TAFC: A match laced with irony, Isak transfer latest, is xG broken and Cole Palmer's cunning disguise...`\
+https://nytimes.com/athletic/6575696/2025/08/26/newcastle-liverpool-isak-transfers-result/
+
+**Bottas, Pérez unveiled as Cadillac's drivers ahead of F1 debut in 2026**\
+`The two 35-year-olds bring a combined 26 seasons of F1 driving experience to the American team.`\
+https://nytimes.com/athletic/6565097/2025/08/26/valtteri-bottas-sergio-perez-cadillac-f1/
+
 **Journalism in Gaza**\
 `We look at a deadly strike — and explore the challenges of reporting from the enclave.`\
 https://nytimes.com/2025/08/26/briefing/gaza-nasser-hospital-journalists.html
