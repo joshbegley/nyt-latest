@@ -1,3 +1,11 @@
+**Penguins announce relaunch of Hall of Fame**\
+`The Penguins will be inducting 10 key franchise figures into their Hall of Fame during the next three years.`\
+https://nytimes.com/athletic/6575980/2025/08/26/penguins-hall-of-fame-nhl-exhibit/
+
+**The Bounce: Ranking the NBA's top 40 forwards**\
+`The Bounce Newsletter  | This is The Athletic’s daily NBA newsletter.`\
+https://nytimes.com/athletic/6575998/2025/08/26/nba-best-forward-rankings-the-bounce/
+
 **Jack Smith’s Legal Team Fires Back Against Ethics Complaint**\
 `For months, the former special counsel has remained silent as the president and his advisers have publicly attacked him.`\
 https://nytimes.com/2025/08/26/us/jack-smith-ethics-complaint-trump.html
