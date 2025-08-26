@@ -1,8 +1,13 @@
+**Inside Cadillac's F1 driver choice: Why Pérez and Bottas beat out American hopefuls**\
+`In Valtteri Bottas and Sergio Pérez, Cadillac prioritized proven F1 veterans over homegrown American talent — for now.  
+`\
+https://nytimes.com/athletic/6574657/2025/08/26/cadillac-f1-drivers-sergio-perez-valtteri-bottas-american/
+
 **TAFC: Chaos, Newcastle striker irony, a 16-year-old matchwinner. Plus: Transfer latest on Guehi**\
 `Today in TAFC: A match laced with irony, Isak transfer latest, is xG broken and Cole Palmer's cunning disguise...`\
 https://nytimes.com/athletic/6575696/2025/08/26/newcastle-liverpool-isak-transfers-result/
 
-**Bottas, Perez unveiled as Cadillac's drivers ahead of F1 debut in 2026**\
+**Bottas, Pérez unveiled as Cadillac's drivers ahead of F1 debut in 2026**\
 `The two 35-year-olds bring a combined 26 seasons of F1 driving experience to the American team.`\
 https://nytimes.com/athletic/6565097/2025/08/26/valtteri-bottas-sergio-perez-cadillac-f1/
 
@@ -33,8 +38,4 @@ https://nytimes.com/athletic/6575010/2025/08/26/pwhl-olympics-team-canada-prepar
 **Kings rank No. 21 in NHL Pipeline Rankings for 2025**\
 `The Kings have done a good job getting their system up to par as they’ve rebuilt on the fly and have attempted to win again.`\
 https://nytimes.com/athletic/6488840/2025/08/26/los-angeles-kings-nhl-pipeline-rankings-2025/
-
-**Canucks rank No. 22 in NHL Pipeline Rankings for 2025**\
-`Vancouver has a decent but not deep system, in part due to how light the team has been on picks in some of the last five years.`\
-https://nytimes.com/athletic/6486174/2025/08/26/vancouver-canucks-nhl-pipeline-rankings-2025/
 
