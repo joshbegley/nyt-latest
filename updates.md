@@ -1,3 +1,11 @@
+**Rio Ngumoha: Why did he leave Chelsea, when is tribunal to decide compensation and what contract is he on?**\
+`All the key questions surrounding the Liverpool prodigy answered`\
+https://nytimes.com/athletic/6575823/2025/08/26/rio-ngumoha-situation-explained-chelsea-tribunal-compensation-contract/
+
+**What Manny Malhotra learned from winning the Calder Cup**\
+`Malhotra's instantaneous AHL success has put him on every industry short list for best up-and-coming young head coaches in the sport.`\
+https://nytimes.com/athletic/6575550/2025/08/26/abbotsford-canucks-calder-cup-coach-manny-malhotra/
+
 **Journalist Mariam Dagga Killed in Gaza**\
 `Her colleagues mourned as they held onto the visual journalist’s camera, which she used to document the lives of Gazans throughout the war.`\
 https://nytimes.com/video/world/middleeast/100000010361074/mariam-dagga-gaza-journalist-killed.html

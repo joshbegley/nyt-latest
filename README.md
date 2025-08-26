@@ -1,4 +1,8 @@
-**Rio Ngumoha: Why did he leave Chelsea, when is tribunal to decide compensation and what contract is he on?**\
+**McConnell signs new Liverpool contract, poised to join Ajax on loan**\
+`Ajax head coach Johnny Heitinga knows the England youth international, having previously worked with him at Liverpool.`\
+https://nytimes.com/athletic/6576168/2025/08/26/liverpool-james-mcconnell-contract-ajax/
+
+**Rio Ngumoha: Why did he leave Chelsea, when is tribunal to decide compensation, and what contract is he on?**\
 `All the key questions surrounding the Liverpool prodigy answered`\
 https://nytimes.com/athletic/6575823/2025/08/26/rio-ngumoha-situation-explained-chelsea-tribunal-compensation-contract/
 
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/26/us/utah-congress-gerrymander-redistricting.html
 **What Manny Malhotra learned from winning the Calder Cup**\
 `Malhotra's instantaneous AHL success has put him on every industry short list for best up-and-coming young head coaches in the sport.`\
 https://nytimes.com/athletic/6575550/2025/08/26/abbotsford-canucks-calder-cup-coach-manny-malhotra/
-
-**What the Federal Reserve, Supreme Court and Senate Need to Do After Lisa Cook’s Firing**\
-`Trump’s move to fire a Federal Reserve governor threatens the independence of the central bank. Its autonomy is not lost, but three institutions must act.`\
-https://nytimes.com/2025/08/26/opinion/lisa-cook-trump-federal-reserve-independence.html
 
