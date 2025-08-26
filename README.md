@@ -1,3 +1,7 @@
+**Crime Gone in a Week? The Politics Behind Trump’s Federal Crackdown.**\
+`President Trump is using crime as a political weapon, proclaiming quick-fix solutions to deeply rooted challenges in cities led by Democrats.`\
+https://nytimes.com/2025/08/25/us/politics/trump-crime-federal-crackdown-politics.html
+
 **Kennedy Center’s New Dance Director Criticized ‘Woke’ Ballet Culture**\
 `Stephen Nakagawa, a former dancer with the Washington Ballet, wrote a letter to the leader of the arts center complaining about “radical leftist ideologies in ballet.”`\
 https://nytimes.com/2025/08/25/arts/dance/kennedy-center-stephen-nakagawa.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/25/us/politics/pritzker-chicago-trump-national-guard
 **Netflix to stream 2026 World Baseball Classic in Japan**\
 `The streaming service is interested in expanding in Japan, making Shohei Ohtani and the Japanese team appealing.`\
 https://nytimes.com/athletic/6574987/2025/08/25/netflix-world-baseball-classic/
-
-**Trump Once Praised the Black History Museum That He Is Now Attacking**\
-`President Trump’s 2017 tour of the Smithsonian’s National Museum of African American History and Culture seems a distant memory.`\
-https://nytimes.com/2025/08/25/us/politics/trump-smithsonian-black-history.html
 
