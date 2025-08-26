@@ -1,3 +1,19 @@
+**Colorado's mascot Ralphie VI to retire due to 'indifference to running'**\
+`Ralphie VII's training is already underway, but the team said there is no specific timeline for her Folsom Field debut.`\
+https://nytimes.com/athletic/6576967/2025/08/26/colorado-mascot-ralphie-retiring/
+
+**Giants depth chart analysis: Which positions should NY target on waiver wire?**\
+`The work is far from over for GM Joe Schoen and the Giants. They still have some holes to fill ahead of Week 1. `\
+https://nytimes.com/athletic/6577355/2025/08/26/giants-depth-chart-cut-day-waivers/
+
+**Lions roster analysis: With only 50 players, work remains at edge rusher**\
+`The Lions haven't filled all their initial roster spots yet and with just three edge rushers, that looks like a position they'll address.`\
+https://nytimes.com/athletic/6576829/2025/08/26/lions-53-man-roster-analysis-edge-rusher/
+
+**U.S. Envoy Talks Peace in Lebanon, but Stirs Anger With ‘Act Civilized’ Remark**\
+`At a delicate moment in Lebanese politics, the envoy, Thomas J. Barrack Jr., provoked outrage by warning journalists at a news conference there not to be “animalistic.”`\
+https://nytimes.com/2025/08/26/world/middleeast/lebanon-barrack-hezbollah.html
+
 **7 takeaways from the Falcons' initial 53-man roster, starting with Kaleb McGary's status**\
 `The Falcons released their first 53-man roster of the season on Tuesday, confirming that the right tackle will miss the entire season.`\
 https://nytimes.com/athletic/6577334/2025/08/26/falcons-53-man-roster-kaleb-mcgary/

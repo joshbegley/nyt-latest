@@ -1,3 +1,7 @@
+**Bears roster cuts: A breakdown of who's gone, who's hurt and what's next**\
+`The Bears had to deal with injuries as they put together their 53-man roster, while also parting ways with a pair of 2023 draft picks.`\
+https://nytimes.com/athletic/6577365/2025/08/26/bears-roster-cuts-tyler-scott-zacch-pickens/
+
 **Colorado's mascot Ralphie VI to retire due to 'indifference to running'**\
 `Ralphie VII's training is already underway, but the team said there is no specific timeline for her Folsom Field debut.`\
 https://nytimes.com/athletic/6576967/2025/08/26/colorado-mascot-ralphie-retiring/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6577242/2025/08/26/pochettino-usmnt-world-cup-squad
 **London Asks Commuters, ‘Please Put Your Headphones In, Thank You’**\
 `The campaign for silence on the public transit system, which appeals to consideration for fellow passengers, stops short of strictly enforcing fines.`\
 https://nytimes.com/2025/08/26/world/europe/london-commuters-headphones-etiquette-britain.html
-
-**NFL places Texans S Jimmie Ward on Commissioner's Exempt List: Reports**\
-`Ward is facing a domestic assault lawsuit filed by the mother of his 3-year-old child earlier this month.`\
-https://nytimes.com/athletic/6577214/2025/08/26/nfl-texans-jimmie-ward-commissioners-exempt-list/
 
