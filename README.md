@@ -1,8 +1,16 @@
+**Lil Nas X Pleads Not Guilty to Four Felony Charges**\
+`The “Old Town Road” rapper was arrested last Thursday after video appeared to show him walking down a street in Los Angeles wearing only his underwear.`\
+https://nytimes.com/2025/08/26/arts/lil-nas-x-felony-charges-los-angeles.html
+
+**Judge Dismisses Trump Administration Suit Against Federal Bench in Maryland**\
+`The judge used the ruling to take President Trump and some of his top aides to task for having repeatedly attacked other judges who have dared to rule against the White House.`\
+https://nytimes.com/2025/08/26/us/politics/trump-suit-maryland-judges.html
+
 **State Department Agents Join Trump’s Deployment in D.C.**\
 `The Diplomatic Security Service traditionally focused on protecting diplomats, helping secure overseas missions and managing background checks. Now it is doing beat-cop work.`\
 https://nytimes.com/2025/08/26/us/politics/state-department-washington-trump.html
 
-**Tracking notable NFL roster cuts: Tommy DeVito, Hendon Hooker, Cam Akers and more**\
+**Notable NFL roster cuts: Tommy DeVito, Hendon Hooker, Cam Akers and more**\
 `Teams must trim their rosters to 53 players by 4 p.m. ET on Tuesday. Here are some of the bigger names to be cut so far.`\
 https://nytimes.com/athletic/6576197/2025/08/26/nfl-cuts-roster-tracker/
 
@@ -25,12 +33,4 @@ https://nytimes.com/video/world/middleeast/100000010361074/mariam-dagga-gaza-jou
 **Protesters in Israel Demand End of War in Gaza, Freedom of Hostages**\
 `Israelis took to the streets to urge the government to take action to free hostages held in Gaza, as the Israeli military pushed ahead with a widening offensive in Gaza City.`\
 https://nytimes.com/video/world/middleeast/100000010361198/gaza-war-protests-israel.html
-
-**Why Liverpool's 'Italian' method of defending free kicks seems to be more effective**\
-`Arne Slot may be Dutch, but on Monday night his team sat deep and defended set-pieces like a prime Serie A outfit`\
-https://nytimes.com/athletic/6575615/2025/08/26/liverpool-set-piece-defending-newcastle/
-
-**Five Weeknight Salmons**\
-`Including mustardy sheet-pan salmon, a farro-salmon salad with cucumber and herbs and, naturally, Andy Baraghani’s sticky miso salmon bowl.`\
-https://nytimes.com/2025/08/26/dining/five-weeknight-salmons.html
 
