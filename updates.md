@@ -1,3 +1,7 @@
+**Tanner Bibee's frustration boils over during another miserable showing by Cleveland Guardians**\
+`A seething Tanner Bibee voiced his dissatisfaction in the dugout. His manager disagreed with the timing.`\
+https://nytimes.com/athletic/6575355/2025/08/25/cleveland-guardians-tanner-bibee-steven-voght-dugout/
+
 **Cal Raleigh becomes first catcher with 50 home runs in a season**\
 `Raleigh is on pace for 61 home runs this season.`\
 https://nytimes.com/athletic/6575298/2025/08/25/mariners-cal-raleigh-50-home-run/
