@@ -1,3 +1,19 @@
+**A Spate of Fake Shooting Calls Disrupts College Campuses**\
+`As students arrive on campus for fall classes, several universities have locked down their campuses after reports of mass shootings that turned out to be false.`\
+https://nytimes.com/2025/08/26/us/university-swatting-villanova.html
+
+**What, Exactly, Was That Cabinet Meeting?**\
+`As hours ticked by, President Trump played reality television host — “This has never been done before!” — as his cabinet members offered praise. It was a glimpse of how he runs his presidency.`\
+https://nytimes.com/2025/08/26/us/politics/trump-cabinet-meeting.html
+
+**Bowen apologises after appearing to argue with West Ham fans following Wolves defeat**\
+`Wolves beat West Ham 3-2 on Tuesday to advance to the third round of the Carabao Cup.`\
+https://nytimes.com/athletic/6577510/2025/08/26/jarrod-bowen-apologises-west-ham/
+
+**Preston 2-3 Wrexham: Could a Premier League giant be on the horizon in the Carabao Cup?**\
+`Kieffer Moore's stoppage time strike was enough to power Wrexham past Preston North End and into the Carabao Cup third round - who next?`\
+https://nytimes.com/athletic/6566705/2025/08/26/preston-2-3-wrexham-could-a-premier-league-giant-be-on-the-horizon-in-the-carabao-cup/
+
 **Steelers 53-man roster: They keep four quarterbacks; Beanie Bishop, James Pierre cut**\
 `Skylar Thompson was one of the QBs to make Pittsburgh's initial 53-man roster.`\
 https://nytimes.com/athletic/6577336/2025/08/26/steelers-initial-53-man-roster-cutdown-day/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6577365/2025/08/26/bears-roster-cuts-tyler-scott-za
 **Colorado's mascot Ralphie VI to retire due to 'indifference to running'**\
 `Ralphie VII's training is already underway, but the team said there is no specific timeline for her Folsom Field debut.`\
 https://nytimes.com/athletic/6576967/2025/08/26/colorado-mascot-ralphie-retiring/
-
-**Giants depth chart analysis: Which positions should NY target on waiver wire?**\
-`The work is far from over for GM Joe Schoen and the Giants. They still have some holes to fill ahead of Week 1. `\
-https://nytimes.com/athletic/6577355/2025/08/26/giants-depth-chart-cut-day-waivers/
-
-**Lions roster analysis: With only 50 players, work remains at edge rusher**\
-`The Lions haven't filled all their initial roster spots yet and with just three edge rushers, that looks like a position they'll address.`\
-https://nytimes.com/athletic/6576829/2025/08/26/lions-53-man-roster-analysis-edge-rusher/
-
-**Seven takeaways from Falcons' initial 53-man roster, starting with Kaleb McGary's status**\
-`The Falcons released their first 53-man roster of the season Tuesday, confirming that the right tackle will miss the entire season.`\
-https://nytimes.com/athletic/6577334/2025/08/26/falcons-53-man-roster-kaleb-mcgary/
-
-**Fired Fed governor vows to sue Trump**\
-`Also, a Social Security whistleblower. Here’s the latest at the end of Tuesday.`\
-https://nytimes.com/2025/08/26/briefing/lisa-cook-chatgpt.html
 
