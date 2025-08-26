@@ -2,7 +2,7 @@
 `After two consecutive scrubs, the Starship vehicle is due for its 10th test flight as Elon Musk’s company aims to overcome earlier setbacks.`\
 https://nytimes.com/2025/08/26/science/spacex-starship-test-launch.html
 
-**Rookie QB Dillon Gabriel named Browns' backup QB**\
+**Rookie Dillon Gabriel named Browns' backup QB**\
 `Gabriel, a third-round pick by Cleveland, will begin the season as the backup to veteran quarterback Joe Flacco. `\
 https://nytimes.com/athletic/6577205/2025/08/26/browns-dillon-gabriel-backup-quarterback/
 
