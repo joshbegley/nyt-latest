@@ -1,3 +1,11 @@
+**State Department Agents Join Trump’s Deployment in D.C.**\
+`The Diplomatic Security Service traditionally focused on protecting diplomats, helping secure overseas missions and managing background checks. Now it is doing beat-cop work.`\
+https://nytimes.com/2025/08/26/us/politics/state-department-washington-trump.html
+
+**Tracking notable NFL roster cuts: Tommy DeVito, Hendon Hooker, Cam Akers and more**\
+`Teams must trim their rosters to 53 players by 4 p.m. ET on Tuesday. Here are some of the bigger names to be cut so far.`\
+https://nytimes.com/athletic/6576197/2025/08/26/nfl-cuts-roster-tracker/
+
 **Fears of the French Government Collapsing Send Its Borrowing Costs Soaring**\
 `France’s finance minister suggested that a cornerstone of the European economy might need help from the International Monetary Fund if a political and debt crisis were not addressed.`\
 https://nytimes.com/2025/08/26/business/france-government-collapse-economy.html
