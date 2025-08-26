@@ -1,3 +1,7 @@
+**Democrats Have Criticized Trump’s National Guard Decisions. Where’s Everyone Else?**\
+`In the space of a summer, Trump has changed or is trying to change what the National Guard generally does.`\
+https://nytimes.com/2025/08/26/opinion/national-guard-trump-washington.html
+
 **Submit your bold predictions for the Blues’ 2025-26 season**\
 `Submit your predictions here, and Blues writer Jeremy Rutherford will pick a handful to analyze in an upcoming story.`\
 https://nytimes.com/athletic/6576909/2025/08/26/bold-predictions-blues-subscribers/
@@ -7,7 +11,7 @@ https://nytimes.com/athletic/6576909/2025/08/26/bold-predictions-blues-subscribe
 https://nytimes.com/athletic/6576896/2025/08/26/taylor-swift-engagement-fan-reactions-iga-swiatek-swiftie/
 
 **Browns release veteran kicker Dustin Hopkins**\
-`The 34-year-old's struggles from 2024, when he was 18-of-27 on field goal attempts, carried over into the preseason. `\
+`The 34-year-old's struggles from 2024, when he was 18 of 27 on field-goal attempts, carried over into the preseason. `\
 https://nytimes.com/athletic/6572439/2025/08/26/browns-release-dustin-hopkins/
 
 **Trump’s Influence on Our Language**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6576810/2025/08/26/cadillac-f1-drivers-bottas-perez
 **Federal Judge Allows Case to Proceed Against Wisconsin Jurist Accused of Obstructing ICE**\
 `Judge Hannah C. Dugan was arrested in April and accused of impeding immigration agents who were seeking an undocumented man. A federal judge rejected her claims of immunity.`\
 https://nytimes.com/2025/08/26/us/wisconsin-judge-dugan-motion.html
-
-**Ohio State, Dave Portnoy disagree on whether Barstool founder was banned**\
-`Portnoy, a graduate of Michigan, is expected to make his debut on “Big Noon Kickoff” Saturday. The show will be broadcast from Ohio Stadium.`\
-https://nytimes.com/athletic/6575822/2025/08/26/dave-portnoy-barstool-ohio-state/
 

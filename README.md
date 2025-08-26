@@ -1,3 +1,11 @@
+**Pochettino confirms no contact with Pulisic, addresses McKennie's omission**\
+`The USMNT manager and his star have not spoken since the Gold Cup roster drama that engulfed the summer`\
+https://nytimes.com/athletic/6576939/2025/08/26/pochettino-pulisic-usmnt-mckennie-september-friendlies/
+
+**All in Good Fun, or a ‘Disgrace’? Names of Detention Centers Divide Americans**\
+`The use of jokey names for new immigrant detention centers by the Trump administration and its allies is causing serious disagreements.`\
+https://nytimes.com/2025/08/26/us/immigration-detention-center-nickname-alligator-cornhusker-slammer.html
+
 **Democrats Have Criticized Trump’s National Guard Decisions. Where’s Everyone Else?**\
 `In the space of a summer, Trump has changed or is trying to change what the National Guard generally does.`\
 https://nytimes.com/2025/08/26/opinion/national-guard-trump-washington.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6576870/2025/08/26/mlb-2026-schedule-release-openin
 **Trump Announces Firing of the Fed Governor Lisa Cook**\
 `President Trump justified Lisa Cook’s removal from the Federal Reserve Board of Governors based on allegations that she may have falsified information on her mortgage records. Ms. Cook has vowed to fight the dismissal.`\
 https://nytimes.com/video/us/politics/100000010362278/trump-lisa-cook-fed.html
-
-**Prime Tire: Cadillac's F1 drivers are safe, but smart, picks. Plus, three Dutch GP storylines**\
-`Welcome to Prime Tire, The Athletic's Formula 1 newsletter`\
-https://nytimes.com/athletic/6576810/2025/08/26/cadillac-f1-drivers-bottas-perez-dutch-gp/
-
-**Federal Judge Allows Case to Proceed Against Wisconsin Jurist Accused of Obstructing ICE**\
-`Judge Hannah C. Dugan was arrested in April and accused of impeding immigration agents who were seeking an undocumented man. A federal judge rejected her claims of immunity.`\
-https://nytimes.com/2025/08/26/us/wisconsin-judge-dugan-motion.html
 

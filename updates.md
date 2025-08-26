@@ -1,3 +1,11 @@
+**Democrats Have Criticized Trump’s National Guard Decisions. Where’s Everyone Else?**\
+`In the space of a summer, Trump has changed or is trying to change what the National Guard generally does.`\
+https://nytimes.com/2025/08/26/opinion/national-guard-trump-washington.html
+
+**Browns release veteran kicker Dustin Hopkins**\
+`The 34-year-old's struggles from 2024, when he was 18 of 27 on field-goal attempts, carried over into the preseason. `\
+https://nytimes.com/athletic/6572439/2025/08/26/browns-release-dustin-hopkins/
+
 **Submit your bold predictions for the Blues’ 2025-26 season**\
 `Submit your predictions here, and Blues writer Jeremy Rutherford will pick a handful to analyze in an upcoming story.`\
 https://nytimes.com/athletic/6576909/2025/08/26/bold-predictions-blues-subscribers/
