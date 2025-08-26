@@ -1,3 +1,7 @@
+**Astros activate Yordan Alvarez after 100-game absence**\
+`Alvarez, who hasn't played since May 2 due to a hand injury, gives Houston a much-needed left-handed hitter. But how effective will he be?`\
+https://nytimes.com/athletic/6574532/2025/08/26/astros-yordan-alvarez-activated/
+
 **Ousted Maestro Charged in Child Sex Abuse Imagery Case**\
 `Police in Indiana accused Julian Wachner, the former music director at Trinity Wall Street church in New York, of possessing sex abuse imagery purchased with cryptocurrency.`\
 https://nytimes.com/2025/08/26/arts/music/julian-wachner-charged-child-sex-abuse-imagery.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6572439/2025/08/26/browns-release-dustin-hopkins/
 **Trump’s Influence on Our Language**\
 `Readers react to an essay on how President Trump’s speaking style is changing our language. Also: A warning from Canada; an argument for shutting down the N.I.H.`\
 https://nytimes.com/2025/08/26/opinion/trump-language-influence.html
-
-**How the N.Y.P.D.’s Facial Recognition Tool Landed the Wrong Man in Jail**\
-`Trevis Williams is eight inches taller than a man accused of flashing a woman in Union Square in February. The police arrested him anyway.`\
-https://nytimes.com/2025/08/26/nyregion/nypd-facial-recognition-dismissed-case.html
 
