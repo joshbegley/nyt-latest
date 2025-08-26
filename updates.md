@@ -1,3 +1,7 @@
+**Fantasy football 2025 AFC outlooks: Justin Fields is a top-8 QB, Ravens win Super Bowl**\
+`Dalton Del Don previews the AFC with a fantasy lens and predicts a top-12 WR season for Ladd McConkey. `\
+https://nytimes.com/athletic/6574572/2025/08/26/fantasy-football-2025-afc-outlooks-justin-fields-is-a-top-8-qb-ravens-win-super-bowl/
+
 **The Pulse: Madness at the U.S. Open**\
 `The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
 https://nytimes.com/athletic/6574410/2025/08/26/us-open-medvedev-bonzi-the-pulse/
