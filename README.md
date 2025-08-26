@@ -1,5 +1,9 @@
+**Read Trump’s Directive Firing Lisa Cook**\
+`The president said in a letter on Monday that he was removing the Federal Reserve governor from her duties, effective immediately.`\
+https://nytimes.com/interactive/2025/08/25/us/trump-lisa-cook-fed-firing.html
+
 **Babe Ruth (Not That One) Stole Baseball Players’ Identities, U.S. Says**\
-`George Herman Ruth, a Tennessee man with the same full name as the Yankees slugger, used the names of retired and dead players to file fraudulent class-action settlement claims, prosecutors said.`\
+`George Herman Ruth, a Tennessee man with the same full name as the Yankees slugger, used the names of retired and dead players to commit fraud, prosecutors said.`\
 https://nytimes.com/2025/08/25/us/babe-ruth-baseball-fraud.html
 
 **Epstein Accuser’s Family Takes Issue With Plans to Publish Her Memoir**\
@@ -8,7 +12,7 @@ https://nytimes.com/2025/08/25/books/review/virginia-roberts-giuffre-memoir-knop
 
 **Read Trump’s Directive Firing Lisa Cook**\
 `The president said in a letter on Monday that he was removing the Federal Reserve governor from her duties, effective immediately.`\
-https://nytimes.com/interactive/2025/08/25/us/politics/trump-lisa-cook-firing.html
+https://nytimes.com/interactive/2025/08/25/us/trump-lisa-cook-fed-firing.html
 
 **Browns trade QB Kenny Pickett to Raiders for fifth-round pick**\
 `QB was expected to challenge Joe Flacco for Cleveland's starting QB spot before an injury. Now he'll back up Geno Smith in Las Vegas.`\
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/25/us/politics/trump-crime-federal-crackdown-politic
 **Kennedy Center’s New Dance Director Criticized ‘Woke’ Ballet Culture**\
 `Stephen Nakagawa, a former dancer with the Washington Ballet, wrote a letter to the leader of the arts center complaining about “radical leftist ideologies in ballet.”`\
 https://nytimes.com/2025/08/25/arts/dance/kennedy-center-stephen-nakagawa.html
-
-**House Republican Seeks Documents From Epstein Estate**\
-`Representative James E. Comer of Kentucky demanded financial records, video recordings and information on meetings with famous people.`\
-https://nytimes.com/2025/08/25/us/politics/epstein-files-subpoena-comer.html
 
