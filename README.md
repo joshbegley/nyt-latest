@@ -1,3 +1,11 @@
+**Tuesday Briefing: Israeli Strikes Killed Five Journalists**\
+`Also, a knockoff Starbucks in North Korea.`\
+https://nytimes.com/2025/08/26/briefing/israel-gaza-journalists-killed-south-korea-trump-china-evergrande.html
+
+**For one night, Mets show what they can be down the stretch**\
+`Of New York’s 13 runs, all but one was driven in by the bottom five hitters in the order.`\
+https://nytimes.com/athletic/6575434/2025/08/26/mets-show-what-they-can-be-down-stretch/
+
 **YouTube TV, Fox locked in carriage dispute ahead of big football weekend**\
 `YouTube TV subscribers could lose access to Fox Sports and other Fox properties if a deal is not reached by the Wednesday deadline.`\
 https://nytimes.com/athletic/6575416/2025/08/26/youtube-fox-sports-carriage-dispute-big-football-weekend/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6573652/2025/08/26/bundesliga-ten-hag-harry-kane/
 **4 A.M. at a Beijing Labor Market: Jobs, and Hope, Are in Short Supply**\
 `China’s economic slowdown has fallen especially hard on older migrant workers, who often don’t have the technical skills that employers are seeking.`\
 https://nytimes.com/2025/08/26/world/asia/china-jobs-economy.html
-
-**Rabbis Emerge as Growing Voice of Criticism of Israel’s Tactics in Gaza**\
-`Among the recent public letters was one from dozens of Orthodox rabbis demanding “moral clarity” to what they called a humanitarian crisis.`\
-https://nytimes.com/2025/08/26/us/rabbis-gaza.html
-
-**Connections: Sports Edition Coach: Hints for Aug. 26, 2025**\
-`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
-https://nytimes.com/athletic/6574074/2025/08/26/connections-sports-edition-hints-for-aug-26-2025/
 
