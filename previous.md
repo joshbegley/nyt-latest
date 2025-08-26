@@ -1,4 +1,8 @@
-**Packers roster breakdown: Two surprises and 6 other observations from initial 53**\
+**Brooklyn’s Federal Judges Name Joseph Nocella Jr. as U.S. Attorney**\
+`He will continue to oversee an office that often handles cases involving violent drug cartels and transnational repression. In making the choice, the judges avoided a political fight.`\
+https://nytimes.com/2025/08/26/nyregion/edny-us-attorney-nocella.html
+
+**Packers roster breakdown: 2 surprises and 6 other observations from initial 53**\
 `The Packers released both second-year cornerback Kalen King and veteran linebacker Kristian Welch on cutdown day Tuesday.`\
 https://nytimes.com/athletic/6577446/2025/08/26/packers-roster-breakdown-53-man/
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6577126/2025/08/26/colts-juju-brents-cut-day-takeaw
 **Justice Dept. Broadens Inquiry Into Key Players in Russia Investigation**\
 `It is the latest effort by President Trump and his allies to impugn the Russia investigation, which the president sees as having been a partisan witch hunt.`\
 https://nytimes.com/2025/08/26/us/politics/justice-department-investigation-fbi-russia-obama.html
-
-**Bears roster cuts: A breakdown of who's gone, who's hurt and what's next**\
-`The Bears had to deal with injuries as they put together their 53-man roster, while also parting ways with a pair of 2023 draft picks.`\
-https://nytimes.com/athletic/6577365/2025/08/26/bears-roster-cuts-tyler-scott-zacch-pickens/
 

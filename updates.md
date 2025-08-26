@@ -1,3 +1,11 @@
+**Brooklyn’s Federal Judges Name Joseph Nocella Jr. as U.S. Attorney**\
+`He will continue to oversee an office that often handles cases involving violent drug cartels and transnational repression. In making the choice, the judges avoided a political fight.`\
+https://nytimes.com/2025/08/26/nyregion/edny-us-attorney-nocella.html
+
+**Packers roster breakdown: 2 surprises and 6 other observations from initial 53**\
+`The Packers released both second-year cornerback Kalen King and veteran linebacker Kristian Welch on cutdown day Tuesday.`\
+https://nytimes.com/athletic/6577446/2025/08/26/packers-roster-breakdown-53-man/
+
 **Packers roster breakdown: Two surprises and 6 other observations from initial 53**\
 `The Packers released both second-year cornerback Kalen King and veteran linebacker Kristian Welch on cutdown day Tuesday.`\
 https://nytimes.com/athletic/6577446/2025/08/26/packers-roster-breakdown-53-man/
