@@ -1,3 +1,11 @@
+**Police Officers Descend on Australian Town After Reports of Fatal Shooting**\
+`The national broadcaster reported that at least two police officers had been killed in a rural town north of Melbourne. The police declined to comment.`\
+https://nytimes.com/2025/08/26/world/australia/australia-police-shooting-porepunkah.html
+
+**Newcastle lost and lost and lost against Liverpool. It just didn't look like it**\
+`On a night when everything went wrong, Eddie Howe's players proved why there is a lot right at St James' Park`\
+https://nytimes.com/athletic/6575054/2025/08/26/newcastle-liverpool-howe-isak-transfer/
+
 **Trump Is Teaching the World to Live Without a Hegemon**\
 `Brazil, India and other emerging countries are hedging their bets against the United States.`\
 https://nytimes.com/2025/08/26/opinion/trump-brazil-india-tariffs.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6575416/2025/08/26/youtube-fox-sports-carriage-disp
 **Forest have one of the best squads in their history - and it could get better**\
 `A summer splurge has given Forest serious strength in depth and the spending may not be over yet`\
 https://nytimes.com/athletic/6573223/2025/08/26/nottingham-forest-squad-transfer-window/
-
-**Why Mads Hermansen's shaky start is No 1 on Graham Potter's to-do list**\
-`Part of a goalkeeper's armour is mental strength, positioning, concentration and organisation. Hermansen has not impressed in these areas`\
-https://nytimes.com/athletic/6573613/2025/08/26/mads-hermansen-graham-potter-west-ham-united/
-
-**Australia Accuses Iran of Directing Antisemitic Arson Attacks**\
-`The government abruptly severed diplomatic ties and ejected Iran’s ambassador, saying the country had orchestrated attacks in Sydney and Melbourne last year.`\
-https://nytimes.com/2025/08/26/world/australia/australia-iran-antisemitic-attacks.html
 
