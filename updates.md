@@ -1,3 +1,7 @@
+**West Ham make loan offer for Forest's Sangare**\
+`Sangare, 27, has started both of Forest's first two Premier League games under Nuno Espirito Santo this season.`\
+https://nytimes.com/athletic/6576253/2025/08/26/ibrahim-sangare-west-ham-forest-transfer/
+
 **Russia and Ukraine Target Energy Sites, Seeking Leverage Away From the Front**\
 `The two countries appear to be trying to raise political pressure on each other and send signals to Washington in case peace talks move forward.`\
 https://nytimes.com/2025/08/26/world/europe/russia-ukraine-energy-war.html
