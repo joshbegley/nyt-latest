@@ -1,3 +1,11 @@
+**Pochettino confirms no contact with Pulisic, addresses McKennie's omission**\
+`The USMNT manager and his star have not spoken since the Gold Cup roster drama that engulfed the summer`\
+https://nytimes.com/athletic/6576939/2025/08/26/pochettino-pulisic-usmnt-mckennie-september-friendlies/
+
+**All in Good Fun, or a ‘Disgrace’? Names of Detention Centers Divide Americans**\
+`The use of jokey names for new immigrant detention centers by the Trump administration and its allies is causing serious disagreements.`\
+https://nytimes.com/2025/08/26/us/immigration-detention-center-nickname-alligator-cornhusker-slammer.html
+
 **Democrats Have Criticized Trump’s National Guard Decisions. Where’s Everyone Else?**\
 `In the space of a summer, Trump has changed or is trying to change what the National Guard generally does.`\
 https://nytimes.com/2025/08/26/opinion/national-guard-trump-washington.html
