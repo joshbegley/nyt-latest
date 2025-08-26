@@ -1,6 +1,10 @@
+**Bengals roster cutdown: Why opposite approaches on O-line, D-line signal same concern**\
+`Cincinnati is expected to be active on the waiver wire after thinning the offensive line to eight and still needing answers at safety.`\
+https://nytimes.com/athletic/6577660/2025/08/26/bengals-53-man-roster-cutdown/
+
 **Trump Says He Welcomes Chinese Students, as His Administration Blocks Them**\
 `The president has praised Chinese students several times. But his policies are making it more difficult for students from China to come to the United States.`\
-https://nytimes.com/2025/08/26/us/politics/trump-welcomes-chinese-as-his-administration-blocks-them.html
+https://nytimes.com/2025/08/26/us/politics/trump-chinese-students.html
 
 **This Couple Predicted Taylor Swift and Travis Kelce’s Relationship 5 Years Ago**\
 `They needed a Halloween costume. Five years later, some have suggested that they manifested the “Tayvis” marriage.`\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6576489/2025/08/26/vikings-53-man-roster-cutdown/
 **Taylor Swift’s Engagement Ring Marks a Return to Vintage Elegance**\
 `The pop star’s antique-inspired sparkler channels the “heirloom look,” reflecting a return to antique stones.`\
 https://nytimes.com/2025/08/26/style/taylor-swift-engagement-ring.html
-
-**Man Who Faked Kayaking Death and Fled U.S. Gets 89-Day Jail Sentence**\
-`The sentence matched the period last year when the authorities believed Ryan Borgwardt had drowned in a Wisconsin lake.`\
-https://nytimes.com/2025/08/26/us/wisconsin-kayaker-fake-death-jail-sentence.html
 
