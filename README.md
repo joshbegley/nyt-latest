@@ -1,3 +1,11 @@
+**Casting a Fresh Eye on Artifacts from Smoke-Filled Rooms**\
+`The once-ubiquitous ashtray is making a revival as an object of curiosity or a resting place for weed.`\
+https://nytimes.com/2025/08/25/style/ashtray-design-revival.html
+
+**Overall Impact**\
+`Kevin Curry plays a crooked — and brilliant — trick on us.`\
+https://nytimes.com/2025/08/25/crosswords/daily-puzzle-2025-08-26.html
+
 **How Cubs' Kyle Tucker was able to reset ahead of Chicago's pivotal stretch run**\
 `After pressing pause, the Cubs believe something has clicked with the 28-year-old All-Star.`\
 https://nytimes.com/athletic/6575199/2025/08/25/chicago-cubs-kyle-tucker-reset-results/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6575162/2025/08/25/kenny-pickett-trade-browns-raide
 **Trump Says He Is Removing Lisa Cook From Federal Reserve Board**\
 `“I have determined that there is sufficient cause to remove you from your position,” Mr. Trump said in a letter. Her dismissal threatened to touch off a landmark legal battle over the Fed’s independence.`\
 https://nytimes.com/2025/08/25/us/politics/lisa-cook-fired-trump-fed.html
-
-**Ron Washington returns to Angels following quadruple bypass surgery: 'I miss baseball'**\
-`The 73-year-old made it unequivocally clear that he wants to return to manage the Angels next season.`\
-https://nytimes.com/athletic/6575124/2025/08/25/los-angeles-angels-ron-washington-return/
-
-**Tisch Is Said to Tell Bondi That New York Doesn’t Need National Guard**\
-`President Trump, citing crime, has sent troops to patrol Washington and said other Democratic-leaning cities could be next. He has not suggested intervening in states run by Republicans.`\
-https://nytimes.com/2025/08/25/nyregion/tisch-nypd-national-guard-bondi.html
 
