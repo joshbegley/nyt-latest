@@ -1,3 +1,11 @@
+**SpaceX Set to Attempt Critical Test Launch of Mars Rocket Again**\
+`After two consecutive scrubs, the Starship vehicle is due for its 10th test flight as Elon Musk’s company aims to overcome earlier setbacks.`\
+https://nytimes.com/2025/08/26/science/spacex-starship-test-launch.html
+
+**Rookie QB Dillon Gabriel named Browns' backup QB**\
+`Gabriel, a third-round pick by Cleveland, will begin the season as the backup to veteran quarterback Joe Flacco. `\
+https://nytimes.com/athletic/6577205/2025/08/26/browns-dillon-gabriel-backup-quarterback/
+
 **Markets Brush Off Fed Threats. But Concerns Linger on Wall Street.**\
 `The market reaction was muted after President Trump moved to fire the Federal Reserve governor Lisa Cook. One economist likened the response to a frog in “gently heating” water.`\
 https://nytimes.com/2025/08/26/business/trump-federal-reserve-stocks-lisa-cook.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6387830/2025/08/26/emi-buendia-aston-villa-stuttgar
 **Pitching prospect Jonah Tong to join Mets rotation, will start Friday: Sources**\
 `Tong, the Mets' top pitching prospect, has a 1.43 ERA in 113 2/3 innings this season.`\
 https://nytimes.com/athletic/6577074/2025/08/26/jonah-tong-new-york-mets-mlb-debut/
-
-**Rainer Weiss, Who Gave a Nod to Einstein and the Big Bang, Dies at 92**\
-`He shared the Nobel Prize in Physics for his work on gravitational waves, which helped confirm Einstein’s general theory of relativity and how the universe began.`\
-https://nytimes.com/2025/08/26/science/rainer-weiss-dead.html
-
-**Astros activate Yordan Alvarez after 100-game absence**\
-`Alvarez, who hasn't played since May 2 due to a hand injury, gives Houston a much-needed left-handed hitter. But how effective will he be?`\
-https://nytimes.com/athletic/6574532/2025/08/26/astros-yordan-alvarez-activated/
 

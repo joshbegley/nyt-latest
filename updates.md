@@ -1,3 +1,7 @@
+**Phillies push pause on Jordan Romano's season, release Joe Ross in bullpen shakeup**\
+`Romano's 8.23 ERA over 49 games is the worst in Phillies history for a pitcher with 30-plus appearances in a season.`\
+https://nytimes.com/athletic/6553825/2025/08/26/phillies-bullpen-moves-jordan-romano-joe-ross/
+
 **Markets Brush Off Fed Threats. But Concerns Linger on Wall Street.**\
 `The market reaction was muted after President Trump moved to fire the Federal Reserve governor Lisa Cook. One economist likened the response to a frog in “gently heating” water.`\
 https://nytimes.com/2025/08/26/business/trump-federal-reserve-stocks-lisa-cook.html
