@@ -1,3 +1,23 @@
+**Cavaliers forward Max Strus out 3-4 months following left foot surgery**\
+`It is the second significant injury already for the Cavs, who will also be without All-Star point guard Darius Garland to start the year.`\
+https://nytimes.com/athletic/6577208/2025/08/26/cavaliers-max-strus-foot-surgery-2025/
+
+**Donald McPherson, Naval Fighter Ace in World War II, Dies at 103**\
+`One of the last surviving combat aces from the war, he took down five Japanese aircraft and helped save a destroyer during the Battle of Okinawa.`\
+https://nytimes.com/2025/08/26/obituaries/donald-mcpherson-dead.html
+
+**Wednesday Briefing: The U.K. May Recognize a Palestinian State**\
+`Plus, the Booker Prize nominees.`\
+https://nytimes.com/2025/08/26/briefing/britain-palestinian-state-china-us-trade.html
+
+**The Big Moments From Taylor Swift and Travis Kelce’s Love Story**\
+`Bogie and Bacall, Marilyn and Joe DiMaggio, Beyoncé and Jay-Z: The new celebrity power couple might overshadow them all.`\
+https://nytimes.com/2025/08/26/arts/music/taylor-swift-travis-kelce-engaged-relationship-timeline.html
+
+**Trump Again Escalates Power Grabs in Bid to Fire Fed Member**\
+`President Trump claimed he has cause to remove a member of the independent board who has not obeyed his demands to vote for lower interest rates.`\
+https://nytimes.com/2025/08/26/us/politics/trump-power-federal-reserve.html
+
 **Trump Again Escalates Power Grabs in Bid to Fire Federal Reserve Board Member**\
 `President Trump claimed he has cause to remove a member of the independent board who has not obeyed his demands to vote for lower interest rates.`\
 https://nytimes.com/2025/08/26/us/politics/trump-power-federal-reserve.html
