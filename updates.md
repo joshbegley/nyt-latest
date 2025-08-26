@@ -1,3 +1,11 @@
+**The Street-Corner Sensors That Track Flooding in Real Time**\
+`Hundreds of sensors placed throughout New York City measure water as it rises, then send the data to an interactive map available to the public.`\
+https://nytimes.com/2025/08/26/nyregion/flood-sensors-nyc.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/08/26/crosswords/spelling-bee-forum.html
+
 **The Transfer DealSheet: The latest on your club and their plans this summer window**\
 `Welcome to The Athletic's weekly guide to the latest from the summer transfer market`\
 https://nytimes.com/athletic/6573666/2025/08/26/transfer-latest-manchester-united-arsenal-liverpool-real-madrid-dealsheet-summer-window-updates/
