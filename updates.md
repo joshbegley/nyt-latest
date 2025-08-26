@@ -1,3 +1,7 @@
+**Lucas Vazquez set to join Leverkusen after Real Madrid exit**\
+`The 34-year-old ended his career-long association with Madrid earlier this summer, following the club's exit from the Club World Cup.`\
+https://nytimes.com/athletic/6508432/2025/08/26/lucas-vazquez-leverkusen-real-madrid-transfers/
+
 **U.S. Open day 2 recap: Carlos Alcaraz's buzz cuts through Reilly Opelka in night session**\
 `The world No. 2 produced a locked-in serving performance to take down one of the biggest servers in the sport.`\
 https://nytimes.com/athletic/6575517/2025/08/26/tennis-us-open-day-2-schedule-results-recap/
