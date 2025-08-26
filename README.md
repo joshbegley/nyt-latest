@@ -1,3 +1,7 @@
+**USMNT Sept. squad revealed: Pulisic returns, but McKennie among omissions**\
+`Christian Pulisic returns after a contentious summer break, but there's intrigue elsewhere on Mauricio Pochettino's latest squad`\
+https://nytimes.com/athletic/6576080/2025/08/26/usmnt-squad-south-korea-japan-pulisic-mckennie-pochettino/
+
 **Colorado plans to start QB Kaidon Salter vs. Georgia Tech**\
 `Last season, Salter threw for 1,886 yards, 15 touchdowns and six interceptions and ran for 587 yards and seven scores.`\
 https://nytimes.com/athletic/6573105/2025/08/26/kaidon-salter-colorado-starting-qb-deion-sanders/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6576564/2025/08/26/fantasy-football-targets-2025-nf
 **A Museum Show About Disability Asks: ‘Who’s Sorry Now?’**\
 `“Design and Disability,” on view in London, goes beyond the precepts of “universal design” to celebrate particular identities and bodies.`\
 https://nytimes.com/2025/08/26/arts/design/victoria-albert-design-disability.html
-
-**Israel Links Hospital Attack in Gaza to Camera It Says Was Placed by Hamas**\
-`A day after the strike killed 20 people, including five journalists, the Israeli military said its initial inquiry found that militants had placed an observation camera in the area. It provided no evidence.`\
-https://nytimes.com/2025/08/26/world/middleeast/israel-hospital-attack-gaza-camera-hamas.html
 
