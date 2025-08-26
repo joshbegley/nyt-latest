@@ -1,3 +1,23 @@
+**Markets Brush Off Fed Threats. But Concerns Linger on Wall Street.**\
+`The market reaction was muted after President Trump moved to fire the Federal Reserve governor Lisa Cook. One economist likened the response to a frog in “gently heating” water.`\
+https://nytimes.com/2025/08/26/business/trump-federal-reserve-stocks-lisa-cook.html
+
+**In ‘With Love, Meghan,’ the Duchess Leans Into Joy**\
+`For her fans, the show’s focus on her soft life in both seasons is rare and welcome.`\
+https://nytimes.com/2025/08/26/style/with-love-meghan-markle-netflix-season-2.html
+
+**On the Front Lines of Climate Change, Firefighters Are Getting Very Sick**\
+`Across the country, unmasked wildfire fighters are falling ill and dying. Hannah Dreier talks about her investigation into the risks these workers face.`\
+https://nytimes.com/2025/08/26/climate/wildfire-firefighters-getting-sick.html
+
+**Macron, in Letter to Netanyahu, Defends Call for Palestinian Statehood**\
+`President Emmanuel Macron of France also pushed back against accusations by Prime Minister Benjamin Netanyahu that he had not done enough to protect French Jews from antisemitic attacks.`\
+https://nytimes.com/2025/08/26/world/europe/macron-letter-netanyahu-palestine-state-antisemetism.html
+
+**Guardians place first baseman Carlos Santana on outright waivers: Sources**\
+`The move potentially signals an approaching conclusion to the 39-year-old’s third stint with the organization.`\
+https://nytimes.com/athletic/6577053/2025/08/26/cleveland-guardians-carlos-santana-waivers-mlb/
+
 **Guardians place first baseman Carlos Santana on outright waivers**\
 `The move potentially signals an approaching conclusion to the 39-year-old’s third stint with the organization.`\
 https://nytimes.com/athletic/6577053/2025/08/26/cleveland-guardians-carlos-santana-waivers-mlb/

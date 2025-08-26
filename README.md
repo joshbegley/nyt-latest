@@ -2,6 +2,10 @@
 `The market reaction was muted after President Trump moved to fire the Federal Reserve governor Lisa Cook. One economist likened the response to a frog in “gently heating” water.`\
 https://nytimes.com/2025/08/26/business/trump-federal-reserve-stocks-lisa-cook.html
 
+**Phillies push pause on Jordan Romano's season, release Joe Ross in bullpen shakeup**\
+`Romano's 8.23 ERA over 49 games is the worst in Phillies history for a pitcher with 30-plus appearances in a season.`\
+https://nytimes.com/athletic/6553825/2025/08/26/phillies-bullpen-moves-jordan-romano-joe-ross/
+
 **In ‘With Love, Meghan,’ the Duchess Leans Into Joy**\
 `For her fans, the show’s focus on her soft life in both seasons is rare and welcome.`\
 https://nytimes.com/2025/08/26/style/with-love-meghan-markle-netflix-season-2.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/26/science/rainer-weiss-dead.html
 **Astros activate Yordan Alvarez after 100-game absence**\
 `Alvarez, who hasn't played since May 2 due to a hand injury, gives Houston a much-needed left-handed hitter. But how effective will he be?`\
 https://nytimes.com/athletic/6574532/2025/08/26/astros-yordan-alvarez-activated/
-
-**Ousted Maestro Charged in Child Sex Abuse Imagery Case**\
-`Police in Indiana accused Julian Wachner, the former music director at Trinity Wall Street church in New York, of possessing sex abuse imagery purchased with cryptocurrency.`\
-https://nytimes.com/2025/08/26/arts/music/julian-wachner-charged-child-sex-abuse-imagery.html
 

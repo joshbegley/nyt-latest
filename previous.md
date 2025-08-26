@@ -1,4 +1,20 @@
-**Guardians place first baseman Carlos Santana on outright waivers**\
+**Markets Brush Off Fed Threats. But Concerns Linger on Wall Street.**\
+`The market reaction was muted after President Trump moved to fire the Federal Reserve governor Lisa Cook. One economist likened the response to a frog in “gently heating” water.`\
+https://nytimes.com/2025/08/26/business/trump-federal-reserve-stocks-lisa-cook.html
+
+**In ‘With Love, Meghan,’ the Duchess Leans Into Joy**\
+`For her fans, the show’s focus on her soft life in both seasons is rare and welcome.`\
+https://nytimes.com/2025/08/26/style/with-love-meghan-markle-netflix-season-2.html
+
+**On the Front Lines of Climate Change, Firefighters Are Getting Very Sick**\
+`Across the country, unmasked wildfire fighters are falling ill and dying. Hannah Dreier talks about her investigation into the risks these workers face.`\
+https://nytimes.com/2025/08/26/climate/wildfire-firefighters-getting-sick.html
+
+**Macron, in Letter to Netanyahu, Defends Call for Palestinian Statehood**\
+`President Emmanuel Macron of France also pushed back against accusations by Prime Minister Benjamin Netanyahu that he had not done enough to protect French Jews from antisemitic attacks.`\
+https://nytimes.com/2025/08/26/world/europe/macron-letter-netanyahu-palestine-state-antisemetism.html
+
+**Guardians place first baseman Carlos Santana on outright waivers: Sources**\
 `The move potentially signals an approaching conclusion to the 39-year-old’s third stint with the organization.`\
 https://nytimes.com/athletic/6577053/2025/08/26/cleveland-guardians-carlos-santana-waivers-mlb/
 
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6574532/2025/08/26/astros-yordan-alvarez-activated/
 **Ousted Maestro Charged in Child Sex Abuse Imagery Case**\
 `Police in Indiana accused Julian Wachner, the former music director at Trinity Wall Street church in New York, of possessing sex abuse imagery purchased with cryptocurrency.`\
 https://nytimes.com/2025/08/26/arts/music/julian-wachner-charged-child-sex-abuse-imagery.html
-
-**Heliot Ramos' outfield defense has raised a lot of questions this season**\
-`Ramos' backslide defensively is just one more thing that didn't go the way the Giants were hoping it would in 2025.`\
-https://nytimes.com/athletic/6575136/2025/08/26/heliot-ramos-sf-giants-defensive-metrics/
-
-**Pochettino confirms no contact with Pulisic, addresses McKennie's omission**\
-`The USMNT manager and his star have not spoken since the Gold Cup roster drama that engulfed the summer`\
-https://nytimes.com/athletic/6576939/2025/08/26/pochettino-pulisic-usmnt-mckennie-september-friendlies/
-
-**All in Good Fun, or a ‘Disgrace’? Names of Detention Centers Divide Americans**\
-`The use of jokey names for new immigrant detention centers by the Trump administration and its allies is causing serious disagreements.`\
-https://nytimes.com/2025/08/26/us/immigration-detention-center-nickname-alligator-cornhusker-slammer.html
-
-**Democrats Have Criticized Trump’s National Guard Decisions. Where’s Everyone Else?**\
-`In the space of a summer, Trump has changed or is trying to change what the National Guard generally does.`\
-https://nytimes.com/2025/08/26/opinion/national-guard-trump-washington.html
 
