@@ -1,3 +1,7 @@
+**Journalism in Gaza**\
+`We look at a deadly strike — and explore the challenges of reporting from the enclave.`\
+https://nytimes.com/2025/08/26/briefing/gaza-nasser-hospital-journalists.html
+
 **Yankees unsure how to fix struggling Anthony Volpe: 'It's a hard question to answer'**\
 `Since his debut, no hitter with at least 1,500 plate appearances has been less effective at the plate than Volpe with his 85 wRC+.`\
 https://nytimes.com/athletic/6574921/2025/08/26/ny-yankees-anthony-volpe-struggles-fixes/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6495305/2025/08/26/dallas-stars-nhl-pipeline-rankin
 **Hurricanes rank No. 18 in NHL Pipeline Rankings for 2025**\
 `Alexander Nikishin and Seth Jarvis aging out of the pool knocks down the Hurricanes, but they're still in a promising spot for a contender.`\
 https://nytimes.com/athletic/6488787/2025/08/26/carolina-hurricanes-nhl-pipeline-rankings-2025/
-
-**Flames rank No. 17 in NHL Pipeline Rankings for 2025**\
-`The Flames' pool is headlined by Zayne Parekh and a series of good forwards, but likely needs more to hit the next level.`\
-https://nytimes.com/athletic/6486679/2025/08/26/calgary-flames-nhl-pipeline-rankings-2025/
 
