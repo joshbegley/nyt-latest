@@ -1,3 +1,7 @@
+**How Ngumoha, the ego-free wonderkid, announced himself to Liverpool - and the world**\
+`Arne Slot needed a 16-year-old - and Dominik Szoboszlai - to ensure Newcastle trip was a night of elation not regret`\
+https://nytimes.com/athletic/6575304/2025/08/26/rio-ngumoha-liverpool-age-newcastle-goal/
+
 **These Countries Have Never Trusted America. Trump Is Proving Them Right.**\
 `Brazil, India and other emerging countries are hedging their bets against the United States.`\
 https://nytimes.com/2025/08/26/opinion/trump-brazil-india-tariffs.html
