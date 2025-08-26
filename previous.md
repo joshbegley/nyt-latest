@@ -1,3 +1,7 @@
+**Cardinals' Willson Contreras gets ejected, throws bat in heated altercation**\
+`Contreras threw his bat in the direction of home plate, striking hitting coach Brant Brown on the arm instead.`\
+https://nytimes.com/athletic/6575299/2025/08/25/st-louis-cardinals-willson-contreras-ejection/
+
 **Maria Sharapova honored at U.S. Open: ‘Some of the most beautiful moments on this court'**\
 `Sharapova, who won five Grand Slam titles, saw her career intertwined with Williams' success.`\
 https://nytimes.com/athletic/6575140/2025/08/25/maria-sharapova-hall-of-fame-serena-williams-us-open/
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2025/08/25/us/trump-lisa-cook-fed-firing.html
 **Babe Ruth (Not That One) Stole Baseball Players’ Identities, U.S. Says**\
 `George Herman Ruth, a Tennessee man with the same full name as the Yankees slugger, used the names of retired and dead players to commit fraud, prosecutors said.`\
 https://nytimes.com/2025/08/25/us/babe-ruth-baseball-fraud.html
-
-**Epstein Accuser’s Family Takes Issue With Plans to Publish Her Memoir**\
-`Relatives of Virginia Roberts Giuffre, who died earlier this year, contend that the book underplays the abuse she suffered at the hands of her husband.`\
-https://nytimes.com/2025/08/25/books/review/virginia-roberts-giuffre-memoir-knopf.html
 

@@ -1,3 +1,7 @@
+**Cardinals' Willson Contreras gets ejected, throws bat in heated altercation**\
+`Contreras threw his bat in the direction of home plate, striking hitting coach Brant Brown on the arm instead.`\
+https://nytimes.com/athletic/6575299/2025/08/25/st-louis-cardinals-willson-contreras-ejection/
+
 **Maria Sharapova honored at U.S. Open: ‘Some of the most beautiful moments on this court'**\
 `Sharapova, who won five Grand Slam titles, saw her career intertwined with Williams' success.`\
 https://nytimes.com/athletic/6575140/2025/08/25/maria-sharapova-hall-of-fame-serena-williams-us-open/
