@@ -1,3 +1,11 @@
+**Ron Washington returns to Angels following quadruple bypass surgery: 'I miss baseball'**\
+`The 73-year-old made it unequivocally clear that he wants to return to manage the Angels next season.`\
+https://nytimes.com/athletic/6575124/2025/08/25/los-angeles-angels-ron-washington-return/
+
+**Tisch Is Said to Tell Bondi That New York Doesn’t Need National Guard**\
+`President Trump, citing crime, has sent troops to patrol Washington and said other Democratic-leaning cities could be next. He has not suggested intervening in states run by Republicans.`\
+https://nytimes.com/2025/08/25/nyregion/tisch-nypd-national-guard-bondi.html
+
 **Crime Gone in a Week? The Politics Behind Trump’s Federal Crackdown.**\
 `President Trump is using crime as a political weapon, proclaiming quick-fix solutions to deeply rooted challenges in cities led by Democrats.`\
 https://nytimes.com/2025/08/25/us/politics/trump-crime-federal-crackdown-politics.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/08/25/us/politics/fbi-agent-assault-dc.html
 **Howe: Joelinton and Tonali injuries a 'huge blow' for Newcastle**\
 `Howe has lost four starters ahead of Newcastle's next game against Leeds. `\
 https://nytimes.com/athletic/6574894/2025/08/25/eddie-howe-joelinton-sandro-tonali-injuries/
-
-**Governor Pritzker Challenges Trump’s Threat to Send Troops to Chicago**\
-`The Illinois governor pointed out that eight of the 10 states with the highest homicide rates are led by Republicans.`\
-https://nytimes.com/2025/08/25/us/politics/pritzker-chicago-trump-national-guard.html
-
-**Netflix to stream 2026 World Baseball Classic in Japan**\
-`The streaming service is interested in expanding in Japan, making Shohei Ohtani and the Japanese team appealing.`\
-https://nytimes.com/athletic/6574987/2025/08/25/netflix-world-baseball-classic/
 
