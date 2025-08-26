@@ -1,3 +1,7 @@
+**How Cubs' Kyle Tucker was able to reset ahead of Chicago's pivotal stretch run**\
+`After pressing pause, the Cubs believe something has clicked with the 28-year-old All-Star.`\
+https://nytimes.com/athletic/6575199/2025/08/25/chicago-cubs-kyle-tucker-reset-results/
+
 **Venus Williams makes magic at the U.S. Open before falling to Karolina Muchova**\
 `The 45-year-old's 25th main-draw singles appearance ended in a gallant defeat to the multitalented Czech.`\
 https://nytimes.com/athletic/6575217/2025/08/25/us-open-venus-williams-first-round-result-analysis/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6575124/2025/08/25/los-angeles-angels-ron-washingto
 **Tisch Is Said to Tell Bondi That New York Doesn’t Need National Guard**\
 `President Trump, citing crime, has sent troops to patrol Washington and said other Democratic-leaning cities could be next. He has not suggested intervening in states run by Republicans.`\
 https://nytimes.com/2025/08/25/nyregion/tisch-nypd-national-guard-bondi.html
-
-**Crime Gone in a Week? The Politics Behind Trump’s Federal Crackdown.**\
-`President Trump is using crime as a political weapon, proclaiming quick-fix solutions to deeply rooted challenges in cities led by Democrats.`\
-https://nytimes.com/2025/08/25/us/politics/trump-crime-federal-crackdown-politics.html
 

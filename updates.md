@@ -1,3 +1,7 @@
+**How Cubs' Kyle Tucker was able to reset ahead of Chicago's pivotal stretch run**\
+`After pressing pause, the Cubs believe something has clicked with the 28-year-old All-Star.`\
+https://nytimes.com/athletic/6575199/2025/08/25/chicago-cubs-kyle-tucker-reset-results/
+
 **Venus Williams makes magic at the U.S. Open before falling to Karolina Muchova**\
 `The 45-year-old's 25th main-draw singles appearance ended in a gallant defeat to the multitalented Czech.`\
 https://nytimes.com/athletic/6575217/2025/08/25/us-open-venus-williams-first-round-result-analysis/
