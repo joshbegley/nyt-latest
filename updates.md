@@ -1,3 +1,7 @@
+**These Countries Have Never Trusted America. Trump Is Proving Them Right.**\
+`Brazil, India and other emerging countries are hedging their bets against the United States.`\
+https://nytimes.com/2025/08/26/opinion/trump-brazil-india-tariffs.html
+
 **Police Officers Descend on Australian Town After Reports of Fatal Shooting**\
 `The national broadcaster reported that at least two police officers had been killed in a rural town north of Melbourne. The police declined to comment.`\
 https://nytimes.com/2025/08/26/world/australia/australia-police-shooting-porepunkah.html

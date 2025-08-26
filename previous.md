@@ -6,13 +6,13 @@ https://nytimes.com/2025/08/26/world/australia/australia-police-shooting-porepun
 `On a night when everything went wrong, Eddie Howe's players proved why there is a lot right at St James' Park`\
 https://nytimes.com/athletic/6575054/2025/08/26/newcastle-liverpool-howe-isak-transfer/
 
-**Trump Is Teaching the World to Live Without a Hegemon**\
-`Brazil, India and other emerging countries are hedging their bets against the United States.`\
-https://nytimes.com/2025/08/26/opinion/trump-brazil-india-tariffs.html
-
 **The New York Times in Print for Tuesday, Aug. 26, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/08/26/todays-new-york-times
+
+**These Countries Have Never Trusted America. Trump Is Proving Them Right.**\
+`Brazil, India and other emerging countries are hedging their bets against the United States.`\
+https://nytimes.com/2025/08/26/opinion/trump-brazil-india-tariffs.html
 
 **5 Takeaways from the ‘Love Island U.S.A.’ Season 7 Reunion**\
 `After a messy season that had viewers rapt, the cast addressed relationship statuses, online rumors and whether apologies were coming or not.`\
