@@ -1,3 +1,11 @@
+**What the Federal Reserve, Supreme Court and Senate Need to Do After Lisa Cook’s Firing**\
+`Trump’s move to fire a Federal Reserve governor threatens the independence of the central bank. Its autonomy is not lost, but three institutions must act.`\
+https://nytimes.com/2025/08/26/opinion/lisa-cook-trump-federal-reserve-independence.html
+
+**Francis Mallmann Tames the Plancha in Chelsea**\
+`The Argentine master of open-fire grilling mixes it up at the Faena New York, Mark Bittman becomes a restaurateur and more restaurant news.`\
+https://nytimes.com/2025/08/26/dining/nyc-restaurant-news.html
+
 **Chelsea evaluating move for Barcelona midfielder Fermin**\
 `The Premier League side are in touch with the player's camp as they explore attacking options in case of exits.`\
 https://nytimes.com/athletic/6533184/2025/08/26/chelsea-transfer-news-fermin-lopez-barcelona/
