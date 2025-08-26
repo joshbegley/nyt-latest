@@ -1,3 +1,11 @@
+**Patriots 53-man roster: One thought on every player who made the (initial) team**\
+`The Patriots are down to 53 players. But don't get comfortable yet. They're likely to put in several waiver claims over the next 24 hours.`\
+https://nytimes.com/athletic/6577118/2025/08/26/patriots-53-man-roster-kyle-dugger-kendrick-bourne/
+
+**Sheffield Wednesday 1 Leeds 1 (3-0 pens) - Farke's team out as Calvert-Lewin endures debut to forget**\
+`Leeds United crashed out of the Carabao Cup after a penalty shoot-out defeat to Championship crisis club Sheffield Wednesday`\
+https://nytimes.com/athletic/6573029/2025/08/26/sheffield-wednesday-1-leeds-1-calvert-lewin-horvath-penalties/
+
 **Cavaliers forward Max Strus out 3-4 months following left foot surgery**\
 `It is the second significant injury already for the Cavs, who will also be without All-Star point guard Darius Garland to start the year.`\
 https://nytimes.com/athletic/6577208/2025/08/26/cavaliers-max-strus-foot-surgery-2025/

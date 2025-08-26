@@ -1,3 +1,11 @@
+**Patriots 53-man roster: One thought on every player who made the (initial) team**\
+`The Patriots are down to 53 players. But don't get comfortable yet. They're likely to put in several waiver claims over the next 24 hours.`\
+https://nytimes.com/athletic/6577118/2025/08/26/patriots-53-man-roster-kyle-dugger-kendrick-bourne/
+
+**Sheffield Wednesday 1 Leeds 1 (3-0 pens) - Farke's team out as Calvert-Lewin endures debut to forget**\
+`Leeds United crashed out of the Carabao Cup after a penalty shoot-out defeat to Championship crisis club Sheffield Wednesday`\
+https://nytimes.com/athletic/6573029/2025/08/26/sheffield-wednesday-1-leeds-1-calvert-lewin-horvath-penalties/
+
 **Cavaliers forward Max Strus out 3-4 months following left foot surgery**\
 `It is the second significant injury already for the Cavs, who will also be without All-Star point guard Darius Garland to start the year.`\
 https://nytimes.com/athletic/6577208/2025/08/26/cavaliers-max-strus-foot-surgery-2025/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/08/26/arts/television/netflix-expiring-september.html
 **Schottenheimer still confident about Parsons: 'There will be a ramp-up program'**\
 `The Cowboys coach remains confident that the Cowboys star pass rusher will suit up in their season opener against the Eagles.`\
 https://nytimes.com/athletic/6577061/2025/08/26/micah-parsons-week-1-eagles-contract/
-
-**Trump’s India Muddle**\
-`We explore why India is so confused by the Trump administration as U.S. tariff rates of 50 percent are set to take effect today.`\
-https://nytimes.com/2025/08/26/briefing/india-trump-tariff-taylor-swift-fed.html
-
-**Celtic fail to reach CL league phase, miss out on over €18m**\
-`Brendan Rodgers' side lost on penalties in the play-off round to Kazakhstani side Kairat Almaty.`\
-https://nytimes.com/athletic/6577289/2025/08/26/celtic-kairat-champions-league/
 
