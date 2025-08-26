@@ -1,3 +1,7 @@
+**Big Ten odds, win totals, projections, best bet: Will OSU end conference title drought?**\
+`Ohio State is favored to win the Big Ten, something the Buckeyes haven't done since 2020. Will they end the drought or will it continue?`\
+https://nytimes.com/athletic/6565181/2025/08/26/big-ten-odds-win-totals-projections-best-bets/
+
 **USMNT Sept. squad revealed: Pulisic returns, but McKennie among omissions**\
 `Christian Pulisic returns after a contentious summer break, but there's intrigue elsewhere on Mauricio Pochettino's latest squad`\
 https://nytimes.com/athletic/6576080/2025/08/26/usmnt-squad-south-korea-japan-pulisic-mckennie-pochettino/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6576535/2025/08/26/jim-leavitt-usf-coach-arrested/
 **Fantasy Scoop: 16 players I'm betting my season on**\
 `Players I'm betting my fantasy season on, plus Jake Ciely's thoughts on Terry McLaurin and Kenneth Walker`\
 https://nytimes.com/athletic/6576564/2025/08/26/fantasy-football-targets-2025-nfl-scoop-city-kyler-murray/
-
-**A Museum Show About Disability Asks: ‘Who’s Sorry Now?’**\
-`“Design and Disability,” on view in London, goes beyond the precepts of “universal design” to celebrate particular identities and bodies.`\
-https://nytimes.com/2025/08/26/arts/design/victoria-albert-design-disability.html
 

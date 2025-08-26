@@ -1,3 +1,7 @@
+**Big Ten odds, win totals, projections, best bet: Will OSU end conference title drought?**\
+`Ohio State is favored to win the Big Ten, something the Buckeyes haven't done since 2020. Will they end the drought or will it continue?`\
+https://nytimes.com/athletic/6565181/2025/08/26/big-ten-odds-win-totals-projections-best-bets/
+
 **USMNT Sept. squad revealed: Pulisic returns, but McKennie among omissions**\
 `Christian Pulisic returns after a contentious summer break, but there's intrigue elsewhere on Mauricio Pochettino's latest squad`\
 https://nytimes.com/athletic/6576080/2025/08/26/usmnt-squad-south-korea-japan-pulisic-mckennie-pochettino/
