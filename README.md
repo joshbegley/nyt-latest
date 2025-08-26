@@ -1,3 +1,7 @@
+**Word of the Day: furtive**\
+`This word has appeared in 34 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2025/08/26/learning/word-of-the-day-furtive.html
+
 **How Ngumoha, the ego-free wonderkid, announced himself to Liverpool - and the world**\
 `Arne Slot needed a 16-year-old - and Dominik Szoboszlai - to ensure Newcastle trip was a night of elation not regret`\
 https://nytimes.com/athletic/6575304/2025/08/26/rio-ngumoha-liverpool-age-newcastle-goal/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/26/briefing/israel-gaza-journalists-killed-south-kor
 **For one night, Mets show what they can be down the stretch**\
 `Of New York’s 13 runs, all but one were driven in by the bottom five hitters in the order.`\
 https://nytimes.com/athletic/6575434/2025/08/26/mets-show-what-they-can-be-down-stretch/
-
-**YouTube TV, Fox locked in carriage dispute ahead of big football weekend**\
-`YouTube TV subscribers could lose access to Fox Sports and other Fox properties if a deal is not reached by the Wednesday deadline.`\
-https://nytimes.com/athletic/6575416/2025/08/26/youtube-fox-sports-carriage-dispute-big-football-weekend/
 
