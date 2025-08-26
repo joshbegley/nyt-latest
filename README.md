@@ -19,7 +19,7 @@ https://nytimes.com/athletic/6576168/2025/08/26/liverpool-james-mcconnell-contra
 https://nytimes.com/athletic/6575823/2025/08/26/rio-ngumoha-situation-explained-chelsea-tribunal-compensation-contract/
 
 **Journalist Mariam Dagga Killed in Gaza**\
-`Her colleagues mourned as they held onto the visual journalist’s camera, which she used to document the lives of Gazans throughout the war.`\
+`Colleagues of Mariam Dagga, the visual reporter who was among the five journalists killed on Monday by Israeli strikes on a southern Gaza hospital, mourned as they held onto her camera.`\
 https://nytimes.com/video/world/middleeast/100000010361074/mariam-dagga-gaza-journalist-killed.html
 
 **Protesters in Israel Demand End of War in Gaza, Freedom of Hostages**\
@@ -33,8 +33,4 @@ https://nytimes.com/athletic/6575615/2025/08/26/liverpool-set-piece-defending-ne
 **Five Weeknight Salmons**\
 `Including mustardy sheet-pan salmon, a farro-salmon salad with cucumber and herbs and, naturally, Andy Baraghani’s sticky miso salmon bowl.`\
 https://nytimes.com/2025/08/26/dining/five-weeknight-salmons.html
-
-**Premier League remind clubs over potential 'politically motivated' material in stadiums**\
-`The implementation of the guidance — which is not a central league policy and is shared with the EFL and FA — is at clubs' discretion.`\
-https://nytimes.com/athletic/6575747/2025/08/26/premier-league-ban-palestine-israel/
 
