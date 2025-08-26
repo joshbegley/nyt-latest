@@ -1,3 +1,12 @@
+**Michigan 2025 streaming guide: Broadcast info, schedule format for Wolverines football**\
+`It's time for more Meee-chigan. Here's how fans can watch all of the Wolverines' regular-season games this year.`\
+https://nytimes.com/athletic/6568781/2025/08/26/michigan-football-wolverines-how-to-watch-2025-schedule/
+
+**Inside Cadillac's F1 driver choice: Why Pérez and Bottas beat out American hopefuls**\
+`In Valtteri Bottas and Sergio Pérez, Cadillac prioritized proven F1 veterans over homegrown American talent — for now.  
+`\
+https://nytimes.com/athletic/6574657/2025/08/26/cadillac-f1-drivers-sergio-perez-valtteri-bottas-american/
+
 **Inside Cadillac's F1 driver choice: Why Pérez and Bottas beat out American hopefuls**\
 `In Valtteri Bottas and Sergio Pérez, Cadillac prioritized proven F1 veterans over homegrown American talent — for now.  
 `\
