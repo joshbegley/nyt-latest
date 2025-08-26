@@ -1,3 +1,7 @@
+**The Transfer DealSheet: The latest on your club and their plans this summer window**\
+`Welcome to The Athletic's weekly guide to the latest from the summer transfer market`\
+https://nytimes.com/athletic/6573666/2025/08/26/transfer-latest-manchester-united-arsenal-liverpool-real-madrid-dealsheet-summer-window-updates/
+
 **2 Police Officers Are Killed in Rural Australia**\
 `The mayor who confirmed the deaths urged residents to follow police orders to avoid the area. The police declined to comment.`\
 https://nytimes.com/2025/08/26/world/australia/australia-police-shooting-porepunkah.html

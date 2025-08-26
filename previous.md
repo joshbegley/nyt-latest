@@ -1,3 +1,7 @@
+**The Transfer DealSheet: The latest on your club and their plans this summer window**\
+`Welcome to The Athletic's weekly guide to the latest from the summer transfer market`\
+https://nytimes.com/athletic/6573666/2025/08/26/transfer-latest-manchester-united-arsenal-liverpool-real-madrid-dealsheet-summer-window-updates/
+
 **Word of the Day: furtive**\
 `This word has appeared in 34 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2025/08/26/learning/word-of-the-day-furtive.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/26/us/politics/lisa-cook-fed-governor.html
 **Tuesday Briefing: Israeli Strikes Killed Five Journalists**\
 `Also, a knockoff Starbucks in North Korea.`\
 https://nytimes.com/2025/08/26/briefing/israel-gaza-journalists-killed-south-korea-trump-china-evergrande.html
-
-**For one night, Mets show what they can be down the stretch**\
-`Of New York’s 13 runs, all but one were driven in by the bottom five hitters in the order.`\
-https://nytimes.com/athletic/6575434/2025/08/26/mets-show-what-they-can-be-down-stretch/
 
