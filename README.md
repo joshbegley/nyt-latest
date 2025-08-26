@@ -6,8 +6,8 @@ https://nytimes.com/2025/08/26/learning/word-of-the-day-furtive.html
 `Arne Slot needed a 16-year-old - and Dominik Szoboszlai - to ensure Newcastle trip was a night of elation not regret`\
 https://nytimes.com/athletic/6575304/2025/08/26/rio-ngumoha-liverpool-age-newcastle-goal/
 
-**Police Officers Descend on Australian Town After Reports of Fatal Shooting**\
-`The national broadcaster reported that at least two police officers had been killed in a rural town north of Melbourne. The police declined to comment.`\
+**2 Police Officers Are Killed in Rural Australia**\
+`The mayor who confirmed the deaths urged residents to follow police orders to avoid the area. The police declined to comment.`\
 https://nytimes.com/2025/08/26/world/australia/australia-police-shooting-porepunkah.html
 
 **Newcastle lost and lost and lost against Liverpool. It just didn't look like it**\
