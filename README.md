@@ -1,3 +1,7 @@
+**U.S. Open day 2 recap: Carlos Alcaraz's buzz cuts through Reilly Opelka in night session**\
+`The world No. 2 produced a locked-in serving performance to take down one of the biggest servers in the sport.`\
+https://nytimes.com/athletic/6575517/2025/08/26/tennis-us-open-day-2-schedule-results-recap/
+
 **Mustapha signs new Palace contract, joins Nurnberg on loan**\
 `Mustapha was named last year’s under-21 player of the season and is highly rated at Palace.`\
 https://nytimes.com/athletic/6573738/2025/08/26/crystal-palace-transfers-news-nurnberg/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/26/world/australia/australia-police-shooting-porepun
 **Newcastle lost and lost and lost against Liverpool. It just didn't look like it**\
 `On a night when everything went wrong, Eddie Howe's players proved why there is a lot right at St James' Park`\
 https://nytimes.com/athletic/6575054/2025/08/26/newcastle-liverpool-howe-isak-transfer/
-
-**The New York Times in Print for Tuesday, Aug. 26, 2025**\
-``\
-https://nytimes.com/issue/todayspaper/2025/08/26/todays-new-york-times
 

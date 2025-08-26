@@ -1,3 +1,7 @@
+**2 Police Officers Killed in Shooting in Rural Australia**\
+`Local authorities urged residents to avoid the area, about 200 miles from Melbourne, as they search for the gunman. A third officer was wounded.`\
+https://nytimes.com/2025/08/26/world/australia/australia-police-shooting-porepunkah.html
+
 **Mustapha signs new Palace contract, joins Nurnberg on loan**\
 `Mustapha was named last year’s under-21 player of the season and is highly rated at Palace.`\
 https://nytimes.com/athletic/6573738/2025/08/26/crystal-palace-transfers-news-nurnberg/
