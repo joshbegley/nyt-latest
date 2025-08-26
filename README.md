@@ -1,3 +1,7 @@
+**Tracking notable NFL roster cuts: Hendon Hooker, Tommy DeVito, Cam Akers and more**\
+`Teams must trim their rosters to 53 players by 4 p.m. ET on Tuesday. Here are some of the bigger names to be cut so far.`\
+https://nytimes.com/athletic/6576197/2025/08/26/nfl-cuts-roster-tracker/
+
 **Fears of the French Government Collapsing Send Its Borrowing Costs Soaring**\
 `France’s finance minister suggested that a cornerstone of the European economy might need help from the International Monetary Fund if a political and debt crisis were not addressed.`\
 https://nytimes.com/2025/08/26/business/france-government-collapse-economy.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6575747/2025/08/26/premier-league-ban-palestine-isr
 **China Finds Buyers for Surplus Solar: Africa’s Energy-Hungry Countries**\
 `Overproduction in China has led to slashed prices, and buyers on the continent are taking advantage to sharply increase investments in clean energy.`\
 https://nytimes.com/2025/08/26/climate/africa-china-solar-panels.html
-
-**Judge Rules Utah Must Redraw Its Congressional Map, Frustrating Republicans**\
-`A G.O.P. effort to carve up a Democratic stronghold ignored the will of voters, a judge said. The ruling, which Republicans can appeal, makes the state another battleground in the national fight over redistricting.`\
-https://nytimes.com/2025/08/26/us/utah-congress-gerrymander-redistricting.html
 
