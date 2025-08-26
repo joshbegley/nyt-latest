@@ -1,3 +1,7 @@
+**A Teen Was Suicidal. ChatGPT Was the Friend He Confided In.**\
+`More people are turning to general-purpose chatbots for emotional support. At first, Adam Raine, 16, used ChatGPT for schoolwork, but then he started discussing plans to end his life.`\
+https://nytimes.com/2025/08/26/technology/chatgpt-openai-suicide.html
+
 **Inside Cadillac's F1 driver choice: Why Pérez and Bottas beat out American hopefuls**\
 `In Valtteri Bottas and Sergio Pérez, Cadillac prioritized proven F1 veterans over homegrown American talent — for now.  
 `\
