@@ -1,3 +1,11 @@
+**Making the case for the Mets to promote pitching prospect Jonah Tong**\
+`Whatever Mets officials had in mind for the right-hander before the season, it wasn’t this: 113 2/3 innings, 1.43 ERA, 47 walks, 179 K's.`\
+https://nytimes.com/athletic/6575222/2025/08/25/new-york-mets-jonah-tong-potential/
+
+**How to Cultivate a Feel-Good Garden**\
+`Horticulturalists and herbalists share tips for nurturing plants with health benefits.`\
+https://nytimes.com/2025/08/25/garden/medicinal-plant-garden-tips.html
+
 **Casting a Fresh Eye on Artifacts from Smoke-Filled Rooms**\
 `The once-ubiquitous ashtray is making a revival as an object of curiosity or a resting place for weed.`\
 https://nytimes.com/2025/08/25/style/ashtray-design-revival.html
