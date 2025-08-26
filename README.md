@@ -1,3 +1,7 @@
+**Cal Raleigh becomes first catcher with 50 home runs in a season**\
+`Raleigh is on pace for 61 home runs this season.`\
+https://nytimes.com/athletic/6575298/2025/08/25/mariners-cal-raleigh-50-home-run/
+
 **Phoenix Airport Grounds Flights After Dust Storms**\
 `The brief ground stop at Sky Harbor International Airport was lifted on Monday evening, but delays were expected as operations resumed.`\
 https://nytimes.com/2025/08/25/weather/dust-storm-phoenix-arizona-airport.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/25/crosswords/daily-puzzle-2025-08-26.html
 **How Cubs' Kyle Tucker was able to reset ahead of Chicago's pivotal stretch run**\
 `After pressing pause, the Cubs believe something has clicked with the 28-year-old All-Star.`\
 https://nytimes.com/athletic/6575199/2025/08/25/chicago-cubs-kyle-tucker-reset-results/
-
-**Venus Williams makes magic at the U.S. Open before falling to Karolina Muchova**\
-`The 45-year-old's 25th main-draw singles appearance ended in a gallant defeat to the multitalented Czech.`\
-https://nytimes.com/athletic/6575217/2025/08/25/us-open-venus-williams-first-round-result-analysis/
 
