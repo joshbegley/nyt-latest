@@ -1,3 +1,7 @@
+**Packers roster breakdown: Two surprises and 6 other observations from initial 53**\
+`The Packers released both second-year cornerback Kalen King and veteran linebacker Kristian Welch on cutdown day Tuesday.`\
+https://nytimes.com/athletic/6577446/2025/08/26/packers-roster-breakdown-53-man/
+
 **A Spate of Fake Shooting Calls Disrupts College Campuses**\
 `As students arrive on campus for fall classes, several universities have locked down their campuses after reports of mass shootings that turned out to be false.`\
 https://nytimes.com/2025/08/26/us/university-swatting-villanova.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/26/us/politics/justice-department-investigation-fbi-
 **Bears roster cuts: A breakdown of who's gone, who's hurt and what's next**\
 `The Bears had to deal with injuries as they put together their 53-man roster, while also parting ways with a pair of 2023 draft picks.`\
 https://nytimes.com/athletic/6577365/2025/08/26/bears-roster-cuts-tyler-scott-zacch-pickens/
-
-**Colorado's mascot Ralphie VI to retire due to 'indifference to running'**\
-`Ralphie VII's training is already underway, but the team said there is no specific timeline for her Folsom Field debut.`\
-https://nytimes.com/athletic/6576967/2025/08/26/colorado-mascot-ralphie-retiring/
 
