@@ -1,8 +1,16 @@
-**Bills 53 man roster analysis: Tyrell Shavers, 'Buffalo Joe' Andreessen make the cut**\
+**This Couple Predicted Taylor Swift and Travis Kelce’s Relationship 5 Years Ago**\
+`They needed a Halloween costume. Five years later, some have suggested that they manifested the “Tayvis” marriage.`\
+https://nytimes.com/2025/08/26/arts/taylor-swift-travis-kelce-engagement-halloween-costume-prediction.html
+
+**Panthers 53-man roster: Adam Thielen stays (for now) plus where they might add players**\
+`Will Carolina hold onto Thielen so Bryce Young keeps a trusted playmaker? Hunter Renfrow is a cut casualty in the receivers room.`\
+https://nytimes.com/athletic/6577533/2025/08/26/panthers-53-man-roster-adam-thielen/
+
+**Bills 53-man roster analysis: Tyrell Shavers, 'Buffalo Joe' Andreessen make the cut**\
 `Tre'Davious White also made the team amid injury concerns, and rookie Maxwell Hairston will start the season on IR.`\
 https://nytimes.com/athletic/6577480/2025/08/26/bills-initial-53-man-roster-analysis-tyrell-shavers-buffalo-joe-andreessen/
 
-**Cardinals' Willson Contreras handed six-game suspension after bat-throwing incident**\
+**Cardinals' Willson Contreras handed 6-game suspension after bat-throwing incident**\
 `The suspension was scheduled to begin on Tuesday, however, he will be permitted to play until the appeal process is complete. `\
 https://nytimes.com/athletic/6577580/2025/08/26/st-louis-cardinals-willson-contreras-suspension/
 
@@ -29,12 +37,4 @@ https://nytimes.com/2025/08/26/us/wisconsin-kayaker-fake-death-jail-sentence.htm
 **Prosecutors Seek 7-Year Prison Term for Nadine Menendez**\
 `Ms. Menendez was convicted of taking bribes of gold, cash and a Mercedes in exchange for political favors dispensed by her husband, a former New Jersey senator.`\
 https://nytimes.com/2025/08/26/nyregion/nadine-menendez-prison-term.html
-
-**Seahawks 53-man roster breakdown: Marquez Valdes-Scantling out, 3 UDFAs in**\
-`The Seahawks kept six receivers, but MVS wasn't one of them. Meanwhile, there were surprises at tight end, linebacker and on the D-line.`\
-https://nytimes.com/athletic/6574618/2025/08/26/seahawks-53-man-roster-2025/
-
-**Lafufus, Fake Labubu Dolls, Raise Safety Alarms and Spawn Raids**\
-`The dupes of the cute-ugly toys have left consumer complaints and warnings about safety risks and potentially hazardous chemicals in their wake.`\
-https://nytimes.com/2025/08/26/world/asia/labubu-fake-safety.html
 
