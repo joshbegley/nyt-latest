@@ -8,6 +8,11 @@ https://nytimes.com/athletic/6574657/2025/08/26/cadillac-f1-drivers-sergio-perez
 `\
 https://nytimes.com/athletic/6574657/2025/08/26/cadillac-f1-drivers-sergio-perez-valtteri-bottas-american/
 
+**Inside Cadillac's F1 driver choice: Why Pérez and Bottas beat out American hopefuls**\
+`In Valtteri Bottas and Sergio Pérez, Cadillac prioritized proven F1 veterans over homegrown American talent — for now.  
+`\
+https://nytimes.com/athletic/6574657/2025/08/26/cadillac-f1-drivers-sergio-perez-valtteri-bottas-american/
+
 **TAFC: Chaos, Newcastle striker irony, a 16-year-old matchwinner. Plus: Transfer latest on Guehi**\
 `Today in TAFC: A match laced with irony, Isak transfer latest, is xG broken and Cole Palmer's cunning disguise...`\
 https://nytimes.com/athletic/6575696/2025/08/26/newcastle-liverpool-isak-transfers-result/
