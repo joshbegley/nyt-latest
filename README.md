@@ -1,3 +1,7 @@
+**Guardians place first baseman Carlos Santana on outright waivers**\
+`The move potentially signals an approaching conclusion to the 39-year-old’s third stint with the organization.`\
+https://nytimes.com/athletic/6577053/2025/08/26/cleveland-guardians-carlos-santana-waivers-mlb/
+
 **Villa reject loan with option offer from Stuttgart for Buendia**\
 `Buendia's future in the Midlands is uncertain, with Villa and the player currently weighing up a potential departure.`\
 https://nytimes.com/athletic/6387830/2025/08/26/emi-buendia-aston-villa-stuttgart/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/26/us/immigration-detention-center-nickname-alligato
 **Democrats Have Criticized Trump’s National Guard Decisions. Where’s Everyone Else?**\
 `In the space of a summer, Trump has changed or is trying to change what the National Guard generally does.`\
 https://nytimes.com/2025/08/26/opinion/national-guard-trump-washington.html
-
-**Submit your bold predictions for the Blues’ 2025-26 season**\
-`Submit your predictions here, and Blues writer Jeremy Rutherford will pick a handful to analyze in an upcoming story.`\
-https://nytimes.com/athletic/6576909/2025/08/26/bold-predictions-blues-subscribers/
 

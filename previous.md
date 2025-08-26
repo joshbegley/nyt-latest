@@ -1,3 +1,7 @@
+**Villa reject loan with option offer from Stuttgart for Buendia**\
+`Buendia's future in the Midlands is uncertain, with Villa and the player currently weighing up a potential departure.`\
+https://nytimes.com/athletic/6387830/2025/08/26/emi-buendia-aston-villa-stuttgart/
+
 **Pitching prospect Jonah Tong to join Mets rotation, will start Friday: Sources**\
 `Tong, the Mets' top pitching prospect, has a 1.43 ERA in 113 2/3 innings this season.`\
 https://nytimes.com/athletic/6577074/2025/08/26/jonah-tong-new-york-mets-mlb-debut/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/26/opinion/national-guard-trump-washington.html
 **Submit your bold predictions for the Blues’ 2025-26 season**\
 `Submit your predictions here, and Blues writer Jeremy Rutherford will pick a handful to analyze in an upcoming story.`\
 https://nytimes.com/athletic/6576909/2025/08/26/bold-predictions-blues-subscribers/
-
-**Taylor Swift's engagement arrives right on time for Iga Swiatek's first U.S. Open win of 2025**\
-`Świątek, a tournament favorite, was consumed by Swift and Kelce's engagement as any Swiftie ought to be.`\
-https://nytimes.com/athletic/6576896/2025/08/26/taylor-swift-engagement-fan-reactions-iga-swiatek-swiftie/
 
