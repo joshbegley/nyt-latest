@@ -1,3 +1,19 @@
+**Australia Accuses Iran of Directing Antisemitic Arson Attacks**\
+`The government abruptly severed diplomatic ties and ejected Iran’s ambassador, saying the country had orchestrated attacks in Sydney and Melbourne last year.`\
+https://nytimes.com/2025/08/26/world/australia/australia-iran-jewish.html
+
+**Why is London so appealing to new arrivals to the Premier League?**\
+`Nightlife? Money? Communities from around the world? We speak to those in the game to see why some players choose London over elsewhere`\
+https://nytimes.com/athletic/6549064/2025/08/26/transfers-london-appealing-premier-league/
+
+**James Horncastle's Serie A briefing: Transfer absurdity, Milan's spiral, and Fabregas' Como shine**\
+`Football returns, but with the summer window still open, transfers cast a shadow over most games on matchday one`\
+https://nytimes.com/athletic/6573750/2025/08/26/james-horncastles-serie-a-briefing-transfer-absurdity-milans-spiral-and-fabregas-como-shine/
+
+**Bundesliga briefing: Leverkusen and Ten Hag concerns, a VAR oddity and a fabulous tifo**\
+`An ugly start for Ten Hag at Leverkusen, a controversially disallowed goal and a wonder free kick`\
+https://nytimes.com/athletic/6573652/2025/08/26/bundesliga-ten-hag-harry-kane/
+
 **4 A.M. at a Beijing Labor Market: Jobs, and Hope, Are in Short Supply**\
 `China’s economic slowdown has fallen especially hard on older migrant workers, who often don’t have the technical skills that employers are seeking.`\
 https://nytimes.com/2025/08/26/world/asia/china-jobs-economy.html

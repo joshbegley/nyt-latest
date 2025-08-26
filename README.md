@@ -1,3 +1,15 @@
+**YouTube TV, Fox locked in carriage dispute ahead of big football weekend**\
+`YouTube TV subscribers could lose access to Fox Sports and other Fox properties if a deal is not reached by the Wednesday deadline.`\
+https://nytimes.com/athletic/6575416/2025/08/26/youtube-fox-sports-carriage-dispute-big-football-weekend/
+
+**Forest have one of the best squads in their history - and it could get better**\
+`A summer splurge has given Forest serious strength in depth and the spending may not be over yet`\
+https://nytimes.com/athletic/6573223/2025/08/26/nottingham-forest-squad-transfer-window/
+
+**Why Mads Hermansen's shaky start is No 1 on Graham Potter's to-do list**\
+`Part of a goalkeeper's armour is mental strength, positioning, concentration and organisation. Hermansen has not impressed in these areas`\
+https://nytimes.com/athletic/6573613/2025/08/26/mads-hermansen-graham-potter-west-ham-united/
+
 **Australia Accuses Iran of Directing Antisemitic Arson Attacks**\
 `The government abruptly severed diplomatic ties and ejected Iran’s ambassador, saying the country had orchestrated attacks in Sydney and Melbourne last year.`\
 https://nytimes.com/2025/08/26/world/australia/australia-iran-jewish.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/08/26/us/rabbis-gaza.html
 **Connections: Sports Edition Coach: Hints for Aug. 26, 2025**\
 `Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
 https://nytimes.com/athletic/6574074/2025/08/26/connections-sports-edition-hints-for-aug-26-2025/
-
-**The Backbone of the Global Auto Supply Chain Is at Risk From Trump’s Tariffs**\
-`They are threatening smaller parts companies that are key to manufacturing and employ hundreds of thousands in Japan, South Korea and Germany.`\
-https://nytimes.com/2025/08/26/business/trump-tariffs-auto-suppliers.html
-
-**Corrections: Aug. 26, 2025**\
-`Corrections that appeared in print on Tuesday, Aug. 26, 2025.`\
-https://nytimes.com/2025/08/25/pageoneplus/corrections-aug-26-2025.html
-
-**Quote of the Day: Harvard Makes Changes Trump Wants, Even Before a Deal**\
-`Quotation of the Day for Tuesday, August 26, 2025.`\
-https://nytimes.com/2025/08/25/pageoneplus/quote-of-the-day-harvard-makes-changes-trump-wants-even-before-a-deal.html
 
