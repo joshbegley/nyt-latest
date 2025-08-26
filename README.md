@@ -1,3 +1,11 @@
+**Trump Is Teaching the World to Live Without a Hegemon**\
+`Brazil, India and other emerging countries are hedging their bets against the United States.`\
+https://nytimes.com/2025/08/26/opinion/trump-brazil-india-tariffs.html
+
+**The New York Times in Print for Tuesday, Aug. 26, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/08/26/todays-new-york-times
+
 **5 Takeaways from the ‘Love Island U.S.A.’ Season 7 Reunion**\
 `After a messy season that had viewers rapt, the cast addressed relationship statuses, online rumors and whether apologies were coming or not.`\
 https://nytimes.com/2025/08/26/arts/television/love-island-usa-season-7-reunion.html
@@ -11,7 +19,7 @@ https://nytimes.com/2025/08/26/us/politics/lisa-cook-fed-governor.html
 https://nytimes.com/2025/08/26/briefing/israel-gaza-journalists-killed-south-korea-trump-china-evergrande.html
 
 **For one night, Mets show what they can be down the stretch**\
-`Of New York’s 13 runs, all but one was driven in by the bottom five hitters in the order.`\
+`Of New York’s 13 runs, all but one were driven in by the bottom five hitters in the order.`\
 https://nytimes.com/athletic/6575434/2025/08/26/mets-show-what-they-can-be-down-stretch/
 
 **YouTube TV, Fox locked in carriage dispute ahead of big football weekend**\
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6573613/2025/08/26/mads-hermansen-graham-potter-wes
 **Australia Accuses Iran of Directing Antisemitic Arson Attacks**\
 `The government abruptly severed diplomatic ties and ejected Iran’s ambassador, saying the country had orchestrated attacks in Sydney and Melbourne last year.`\
 https://nytimes.com/2025/08/26/world/australia/australia-iran-antisemitic-attacks.html
-
-**Why is London so appealing to new arrivals to the Premier League?**\
-`Nightlife? Money? Communities from around the world? We speak to those in the game to see why some players choose London over elsewhere`\
-https://nytimes.com/athletic/6549064/2025/08/26/transfers-london-appealing-premier-league/
-
-**James Horncastle's Serie A briefing: Transfer absurdity, Milan's spiral, and Fabregas' Como shine**\
-`Football returns, but with the summer window still open, transfers cast a shadow over most games on matchday one`\
-https://nytimes.com/athletic/6573750/2025/08/26/james-horncastles-serie-a-briefing-transfer-absurdity-milans-spiral-and-fabregas-como-shine/
 
