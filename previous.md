@@ -1,3 +1,7 @@
+**How to watch the New York Jets in 2025: Schedule, streaming for Aaron Glenn's Gang Green**\
+`Here's how to watch the New York Jets this season, with games scheduled across five networks in 2025.`\
+https://nytimes.com/athletic/6533882/2025/08/26/new-york-jets-schedule-2025-how-to-watch/
+
 **Michigan 2025 streaming guide: Broadcast info, schedule format for Wolverines football**\
 `It's time for more Meee-chigan. Here's how fans can watch all of the Wolverines' regular-season games this year.`\
 https://nytimes.com/athletic/6568781/2025/08/26/michigan-football-wolverines-how-to-watch-2025-schedule/
@@ -34,8 +38,4 @@ https://nytimes.com/2025/08/26/learning/on-phones-and-childhood-the-week-10-winn
 `In Valtteri Bottas and Sergio Pérez, Cadillac prioritized proven F1 veterans over homegrown American talent — for now.  
 `\
 https://nytimes.com/athletic/6574657/2025/08/26/cadillac-f1-drivers-sergio-perez-valtteri-bottas-american/
-
-**TAFC: Chaos, Newcastle striker irony, a 16-year-old matchwinner. Plus: Transfer latest on Guehi**\
-`Today in TAFC: A match laced with irony, Isak transfer latest, is xG broken and Cole Palmer's cunning disguise...`\
-https://nytimes.com/athletic/6575696/2025/08/26/newcastle-liverpool-isak-transfers-result/
 
