@@ -1,3 +1,15 @@
+**7 takeaways from the Falcons' initial 53-man roster, starting with Kaleb McGary's status**\
+`The Falcons released their first 53-man roster of the season on Tuesday, confirming that the right tackle will miss the entire season.`\
+https://nytimes.com/athletic/6577334/2025/08/26/falcons-53-man-roster-kaleb-mcgary/
+
+**Fired Fed governor vows to sue Trump**\
+`Also, a Social Security whistleblower. Here’s the latest at the end of Tuesday.`\
+https://nytimes.com/2025/08/26/briefing/lisa-cook-chatgpt.html
+
+**Gates Foundation Quietly Cuts Ties With Firm Linked to Democrats**\
+`Officials made no mention of politics in cutting ties with a network of nonprofit funds, but Bill Gates has made other moves to insulate the charity from political pressures.`\
+https://nytimes.com/2025/08/26/us/politics/gates-foundation-democrats-arabella-advisors.html
+
 **Lebanon Near Disarmament Plan for Hezbollah, U.S. Envoy Says**\
 `At a delicate moment in Lebanese politics, the envoy, Thomas J. Barrack Jr., provoked outrage by warning Lebanese journalists not to be “animalistic.”`\
 https://nytimes.com/2025/08/26/world/middleeast/lebanon-barrack-hezbollah.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6577118/2025/08/26/patriots-53-man-roster-kyle-dugg
 **Sheffield Wednesday 1 Leeds 1 (3-0 pens): Farke's team out as Calvert-Lewin endures debut to forget**\
 `Leeds are out of the Carabao Cup at the first hurdle after a penalty shootout defeat to Championship crisis club Wednesday`\
 https://nytimes.com/athletic/6573029/2025/08/26/sheffield-wednesday-1-leeds-1-calvert-lewin-horvath-penalties/
-
-**Cavaliers forward Max Strus out 3-4 months following left foot surgery**\
-`It is the second significant injury already for the Cavs, who will also be without All-Star point guard Darius Garland to start the year.`\
-https://nytimes.com/athletic/6577208/2025/08/26/cavaliers-max-strus-foot-surgery-2025/
-
-**Donald McPherson, Naval Fighter Ace in World War II, Dies at 103**\
-`One of the last surviving combat aces from the war, he took down five Japanese aircraft and helped save a destroyer during the Battle of Okinawa.`\
-https://nytimes.com/2025/08/26/obituaries/donald-mcpherson-dead.html
-
-**Wednesday Briefing: The U.K. May Recognize a Palestinian State**\
-`Plus, the Booker Prize nominees.`\
-https://nytimes.com/2025/08/26/briefing/britain-palestinian-state-china-us-trade.html
 
