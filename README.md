@@ -1,3 +1,7 @@
+**South Korea’s Leader and Trump Find Common Ground: Kim Jong-un**\
+`At the White House, President Trump and Lee Jae Myung praised each other’s eagerness to talk to North Korea’s leader — even if he doesn’t want to talk to them.`\
+https://nytimes.com/2025/08/26/world/asia/trump-korea-north-kim.html
+
 **The New York Times International Edition in Print for Wednesday, Aug. 27, 2025**\
 ``\
 https://nytimes.com/issue/todaysinyt/2025/08/26/todays-new-york-times-international-edition
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/26/climate/with-little-explanation-trump-throws-wind
 **Some Options for Mamdani on Free Child Care**\
 `Zohran Mamdani, the Democratic nominee for mayor, will face a challenge in making his proposal of universal free child care a reality.`\
 https://nytimes.com/2025/08/26/nyregion/some-options-for-mamdani-on-free-child-care.html
-
-**‘Memoir of a Snail,’ ‘Eephus’ and More Streaming Gems**\
-`This month’s out-of-the-box recommendations include an acclaimed ensemble dramedy and a pair of animated movies that are very much not for the kids.`\
-https://nytimes.com/2025/08/26/movies/memoir-of-a-snail-eephus-streaming-movies.html
 
