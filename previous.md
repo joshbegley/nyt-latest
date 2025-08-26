@@ -1,3 +1,15 @@
+**Pitching prospect Jonah Tong to join Mets rotation, will start Friday: Sources**\
+`Tong, the Mets' top pitching prospect, has a 1.43 ERA in 113 2/3 innings this season.`\
+https://nytimes.com/athletic/6577074/2025/08/26/jonah-tong-new-york-mets-mlb-debut/
+
+**Rainer Weiss, Who Gave a Nod to Einstein and the Big Bang, Dies at 92**\
+`He shared the Nobel Prize in Physics for his work on gravitational waves, which helped confirm Einstein’s general theory of relativity and how the universe began.`\
+https://nytimes.com/2025/08/26/science/rainer-weiss-dead.html
+
+**Astros activate Yordan Alvarez after 100-game absence**\
+`Alvarez, who hasn't played since May 2 due to a hand injury, gives Houston a much-needed left-handed hitter. But how effective will he be?`\
+https://nytimes.com/athletic/6574532/2025/08/26/astros-yordan-alvarez-activated/
+
 **Ousted Maestro Charged in Child Sex Abuse Imagery Case**\
 `Police in Indiana accused Julian Wachner, the former music director at Trinity Wall Street church in New York, of possessing sex abuse imagery purchased with cryptocurrency.`\
 https://nytimes.com/2025/08/26/arts/music/julian-wachner-charged-child-sex-abuse-imagery.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6576909/2025/08/26/bold-predictions-blues-subscribe
 **Taylor Swift's engagement arrives right on time for Iga Swiatek's first U.S. Open win of 2025**\
 `Świątek, a tournament favorite, was consumed by Swift and Kelce's engagement as any Swiftie ought to be.`\
 https://nytimes.com/athletic/6576896/2025/08/26/taylor-swift-engagement-fan-reactions-iga-swiatek-swiftie/
-
-**Browns release veteran kicker Dustin Hopkins**\
-`The 34-year-old's struggles from 2024, when he was 18 of 27 on field-goal attempts, carried over into the preseason. `\
-https://nytimes.com/athletic/6572439/2025/08/26/browns-release-dustin-hopkins/
-
-**Trump’s Influence on Our Language**\
-`Readers react to an essay on how President Trump’s speaking style is changing our language. Also: A warning from Canada; an argument for shutting down the N.I.H.`\
-https://nytimes.com/2025/08/26/opinion/trump-language-influence.html
-
-**How the N.Y.P.D.’s Facial Recognition Tool Landed the Wrong Man in Jail**\
-`Trevis Williams is eight inches taller than a man accused of flashing a woman in Union Square in February. The police arrested him anyway.`\
-https://nytimes.com/2025/08/26/nyregion/nypd-facial-recognition-dismissed-case.html
 

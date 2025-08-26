@@ -1,3 +1,15 @@
+**Pitching prospect Jonah Tong to join Mets rotation, will start Friday: Sources**\
+`Tong, the Mets' top pitching prospect, has a 1.43 ERA in 113 2/3 innings this season.`\
+https://nytimes.com/athletic/6577074/2025/08/26/jonah-tong-new-york-mets-mlb-debut/
+
+**Rainer Weiss, Who Gave a Nod to Einstein and the Big Bang, Dies at 92**\
+`He shared the Nobel Prize in Physics for his work on gravitational waves, which helped confirm Einstein’s general theory of relativity and how the universe began.`\
+https://nytimes.com/2025/08/26/science/rainer-weiss-dead.html
+
+**Astros activate Yordan Alvarez after 100-game absence**\
+`Alvarez, who hasn't played since May 2 due to a hand injury, gives Houston a much-needed left-handed hitter. But how effective will he be?`\
+https://nytimes.com/athletic/6574532/2025/08/26/astros-yordan-alvarez-activated/
+
 **Ousted Maestro Charged in Child Sex Abuse Imagery Case**\
 `Police in Indiana accused Julian Wachner, the former music director at Trinity Wall Street church in New York, of possessing sex abuse imagery purchased with cryptocurrency.`\
 https://nytimes.com/2025/08/26/arts/music/julian-wachner-charged-child-sex-abuse-imagery.html
