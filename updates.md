@@ -1,3 +1,15 @@
+**Fears of the French Government Collapsing Send Its Borrowing Costs Soaring**\
+`France’s finance minister suggested that a cornerstone of the European economy might need help from the International Monetary Fund if a political and debt crisis were not addressed.`\
+https://nytimes.com/2025/08/26/business/france-government-collapse-economy.html
+
+**McConnell signs new Liverpool contract, poised to join Ajax on loan**\
+`Ajax head coach John Heitinga knows the England youth international, having previously worked with him at Liverpool.`\
+https://nytimes.com/athletic/6576168/2025/08/26/liverpool-james-mcconnell-contract-ajax/
+
+**Rio Ngumoha: Why did he leave Chelsea, when is tribunal to decide compensation, and what contract is he on?**\
+`All the key questions surrounding the Liverpool prodigy answered`\
+https://nytimes.com/athletic/6575823/2025/08/26/rio-ngumoha-situation-explained-chelsea-tribunal-compensation-contract/
+
 **Rio Ngumoha: Why did he leave Chelsea, when is tribunal to decide compensation and what contract is he on?**\
 `All the key questions surrounding the Liverpool prodigy answered`\
 https://nytimes.com/athletic/6575823/2025/08/26/rio-ngumoha-situation-explained-chelsea-tribunal-compensation-contract/
