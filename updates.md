@@ -1,3 +1,7 @@
+**How Ngumoha, the ego-free wonderkid, announced himself to Liverpool – and the world**\
+`Arne Slot needed a 16-year-old – and Dominik Szoboszlai – to ensure Newcastle trip was a night of elation not regret`\
+https://nytimes.com/athletic/6575304/2025/08/26/rio-ngumoha-liverpool-age-newcastle-goal/
+
 **Lucas Vazquez set to join Leverkusen after Real Madrid exit**\
 `The 34-year-old ended his career-long association with Madrid earlier this summer, following the club's exit from the Club World Cup.`\
 https://nytimes.com/athletic/6508432/2025/08/26/lucas-vazquez-leverkusen-real-madrid-transfers/

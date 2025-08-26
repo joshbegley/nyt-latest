@@ -30,8 +30,8 @@ https://nytimes.com/athletic/6573666/2025/08/26/transfer-latest-manchester-unite
 `This word has appeared in 34 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2025/08/26/learning/word-of-the-day-furtive.html
 
-**How Ngumoha, the ego-free wonderkid, announced himself to Liverpool - and the world**\
-`Arne Slot needed a 16-year-old - and Dominik Szoboszlai - to ensure Newcastle trip was a night of elation not regret`\
+**How Ngumoha, the ego-free wonderkid, announced himself to Liverpool – and the world**\
+`Arne Slot needed a 16-year-old – and Dominik Szoboszlai – to ensure Newcastle trip was a night of elation not regret`\
 https://nytimes.com/athletic/6575304/2025/08/26/rio-ngumoha-liverpool-age-newcastle-goal/
 
 **2 Police Officers Killed in Shooting in Rural Australia**\

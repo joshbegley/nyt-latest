@@ -35,6 +35,6 @@ https://nytimes.com/2025/08/26/learning/word-of-the-day-furtive.html
 https://nytimes.com/athletic/6575304/2025/08/26/rio-ngumoha-liverpool-age-newcastle-goal/
 
 **2 Police Officers Killed in Shooting in Rural Australia**\
-`Local authorities urged residents to avoid the area, about 200 miles from Melbourne, as they search for the gunman. A third officer was wounded.`\
+`A third officer was wounded. Local authorities urged residents to avoid the area, about 200 miles from Melbourne, as they searched for the gunman.`\
 https://nytimes.com/2025/08/26/world/australia/australia-police-shooting-porepunkah.html
 
