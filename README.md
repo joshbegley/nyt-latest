@@ -1,3 +1,7 @@
+**Lebanon Near Disarmament Plan for Hezbollah, U.S. Envoy Says**\
+`At a delicate moment in Lebanese politics, the envoy, Thomas J. Barrack Jr., provoked outrage by warning Lebanese journalists not to be “animalistic.”`\
+https://nytimes.com/2025/08/26/world/middleeast/lebanon-barrack-hezbollah.html
+
 **Pochettino wants trust in his process but his USMNT is short on time**\
 `With the start of the World Cup moving ever closer, the USMNT head coach is adopting a risky selection policy`\
 https://nytimes.com/athletic/6577242/2025/08/26/pochettino-usmnt-world-cup-squad-friendlies/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/26/obituaries/donald-mcpherson-dead.html
 **Wednesday Briefing: The U.K. May Recognize a Palestinian State**\
 `Plus, the Booker Prize nominees.`\
 https://nytimes.com/2025/08/26/briefing/britain-palestinian-state-china-us-trade.html
-
-**The Big Moments From Taylor Swift and Travis Kelce’s Love Story**\
-`Bogie and Bacall, Marilyn and Joe DiMaggio, Beyoncé and Jay-Z: The new celebrity power couple might overshadow them all.`\
-https://nytimes.com/2025/08/26/arts/music/taylor-swift-travis-kelce-engaged-relationship-timeline.html
 

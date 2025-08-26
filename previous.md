@@ -1,3 +1,11 @@
+**Pochettino wants trust in his process but his USMNT is short on time**\
+`With the start of the World Cup moving ever closer, the USMNT head coach is adopting a risky selection policy`\
+https://nytimes.com/athletic/6577242/2025/08/26/pochettino-usmnt-world-cup-squad-friendlies/
+
+**London Asks Commuters, ‘Please Put Your Headphones In, Thank You’**\
+`The campaign for silence on the public transit system, which appeals to consideration for fellow passengers, stops short of strictly enforcing fines.`\
+https://nytimes.com/2025/08/26/world/europe/london-commuters-headphones-etiquette-britain.html
+
 **NFL places Texans S Jimmie Ward on Commissioner's Exempt List: Reports**\
 `Ward is facing a domestic assault lawsuit filed by the mother of his 3-year-old child earlier this month.`\
 https://nytimes.com/athletic/6577214/2025/08/26/nfl-texans-jimmie-ward-commissioners-exempt-list/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/08/26/briefing/britain-palestinian-state-china-us-trade
 **The Big Moments From Taylor Swift and Travis Kelce’s Love Story**\
 `Bogie and Bacall, Marilyn and Joe DiMaggio, Beyoncé and Jay-Z: The new celebrity power couple might overshadow them all.`\
 https://nytimes.com/2025/08/26/arts/music/taylor-swift-travis-kelce-engaged-relationship-timeline.html
-
-**Trump Again Escalates Power Grabs in Bid to Fire Fed Member**\
-`President Trump claimed he has cause to remove a member of the independent board who has not obeyed his demands to vote for lower interest rates.`\
-https://nytimes.com/2025/08/26/us/politics/trump-power-federal-reserve.html
-
-**Small Bookstores and the Future of Liberalism**\
-`A retreat from partisan politics, wokeness and optimism.`\
-https://nytimes.com/2025/08/26/opinion/bookstores-liberalism-trump-politics.html
 
