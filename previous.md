@@ -1,3 +1,11 @@
+**Joe Hickerson, 89, Dies; Helped Preserve America’s Folk Song Tradition**\
+`He was both the longtime archivist of folk music at the Library of Congress and a widely respected singer and songwriter.`\
+https://nytimes.com/2025/08/26/arts/music/joe-hickerson-dead.html
+
+**As Trump Ramps Up Pressure on Digital Rules, Can Europe Resist?**\
+`The White House suggested that countries with digital regulations restricting U.S. tech companies could face penalties. The question is whether Europe can stand firm.`\
+https://nytimes.com/2025/08/26/business/trump-technology-european-union-tariffs.html
+
 **DOGE Put Critical Social Security Data at Risk, Whistle-Blower Says**\
 `DOGE team members uploaded a database with the personal information of hundreds of millions of Americans to a vulnerable cloud server, according to the agency’s chief data officer.`\
 https://nytimes.com/2025/08/26/us/politics/doge-social-security-data.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6533882/2025/08/26/new-york-jets-schedule-2025-how-
 **Michigan 2025 streaming guide: Broadcast info, schedule format for Wolverines football**\
 `It's time for more Meee-chigan. Here's how fans can watch all of the Wolverines' regular-season games this year.`\
 https://nytimes.com/athletic/6568781/2025/08/26/michigan-football-wolverines-how-to-watch-2025-schedule/
-
-**Ranking the Big Ten's conference schedules, from Wisconsin to Michigan**\
-`With 18 teams under the Big Ten umbrella, the conference’s schedules have more disparity now than ever before.`\
-https://nytimes.com/athletic/6570309/2025/08/26/big-ten-football-schedule-strength-rankings/
-
-**New England Patriots streaming guide: Schedule, broadcasts for Drake Maye's second year**\
-`Year No. 1 under Mike Vrabel. Year No. 2 with Drake Maye under center. Here's how to watch and stream your 2025 New England Patriots.`\
-https://nytimes.com/athletic/6523673/2025/08/26/new-england-patriots-how-to-watch-2025-schedule/
 

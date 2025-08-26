@@ -1,3 +1,11 @@
+**Joe Hickerson, 89, Dies; Helped Preserve America’s Folk Song Tradition**\
+`He was both the longtime archivist of folk music at the Library of Congress and a widely respected singer and songwriter.`\
+https://nytimes.com/2025/08/26/arts/music/joe-hickerson-dead.html
+
+**As Trump Ramps Up Pressure on Digital Rules, Can Europe Resist?**\
+`The White House suggested that countries with digital regulations restricting U.S. tech companies could face penalties. The question is whether Europe can stand firm.`\
+https://nytimes.com/2025/08/26/business/trump-technology-european-union-tariffs.html
+
 **DOGE Put Critical Social Security Data at Risk, Whistle-Blower Says**\
 `DOGE team members uploaded a database with the personal information of hundreds of millions of Americans to a vulnerable cloud server, according to the agency’s chief data officer.`\
 https://nytimes.com/2025/08/26/us/politics/doge-social-security-data.html
