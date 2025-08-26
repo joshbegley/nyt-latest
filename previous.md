@@ -1,3 +1,11 @@
+**Russia and Ukraine Target Energy Sites, Seeking Leverage Away From the Front**\
+`The two countries appear to be trying to raise political pressure on each other and send signals to Washington in case peace talks move forward.`\
+https://nytimes.com/2025/08/26/world/europe/russia-ukraine-energy-war.html
+
+**The Pain of Sibling Breakups**\
+`Family estrangement can bring up big, difficult emotions, and it’s not always about parents and children.`\
+https://nytimes.com/2025/08/26/well/family/sibling-estrangement-no-contact.html
+
 **Trump Wants to Call It the War Department Again: What to Know**\
 `The president said War Department “just sounded better” than Defense Department, a name that has been in use since 1949.`\
 https://nytimes.com/2025/08/26/us/politics/trump-defense-department-war-rename.html
@@ -16,7 +24,7 @@ https://nytimes.com/2025/08/26/world/europe/russia-ukraine-villages-dnipropetrov
 
 **Lil Nas X Pleads Not Guilty to Four Felony Charges**\
 `The “Old Town Road” rapper was arrested last Thursday after video appeared to show him walking down a street in Los Angeles wearing only his underwear.`\
-https://nytimes.com/2025/08/26/arts/lil-nas-x-felony-charges-los-angeles.html
+https://nytimes.com/2025/08/26/arts/music/lil-nas-x-felony-charges-los-angeles.html
 
 **Judge Dismisses Trump Administration Suit Against Federal Bench in Maryland**\
 `The judge used the ruling to take President Trump and some of his top aides to task for having repeatedly attacked other judges who have dared to rule against the White House.`\
@@ -25,12 +33,4 @@ https://nytimes.com/2025/08/26/us/politics/trump-suit-maryland-judges.html
 **State Department Agents Join Trump’s Deployment in D.C.**\
 `The Diplomatic Security Service traditionally focused on protecting diplomats, helping secure overseas missions and managing background checks. Now it is doing beat-cop work.`\
 https://nytimes.com/2025/08/26/us/politics/state-department-washington-trump.html
-
-**Notable NFL roster cuts: Tommy DeVito, Hendon Hooker, Cam Akers and more**\
-`Teams must trim their rosters to 53 players by 4 p.m. ET on Tuesday. Here are some of the bigger names to be cut so far.`\
-https://nytimes.com/athletic/6576197/2025/08/26/nfl-cuts-roster-tracker/
-
-**Fears of a French Government Collapse Send Its Borrowing Costs Soaring**\
-`France’s finance minister suggested that a cornerstone of the European economy might need help from the International Monetary Fund if a political and debt crisis were not addressed.`\
-https://nytimes.com/2025/08/26/business/france-government-collapse-economy.html
 

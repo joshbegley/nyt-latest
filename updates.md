@@ -1,3 +1,15 @@
+**Russia and Ukraine Target Energy Sites, Seeking Leverage Away From the Front**\
+`The two countries appear to be trying to raise political pressure on each other and send signals to Washington in case peace talks move forward.`\
+https://nytimes.com/2025/08/26/world/europe/russia-ukraine-energy-war.html
+
+**The Pain of Sibling Breakups**\
+`Family estrangement can bring up big, difficult emotions, and it’s not always about parents and children.`\
+https://nytimes.com/2025/08/26/well/family/sibling-estrangement-no-contact.html
+
+**Lil Nas X Pleads Not Guilty to Four Felony Charges**\
+`The “Old Town Road” rapper was arrested last Thursday after video appeared to show him walking down a street in Los Angeles wearing only his underwear.`\
+https://nytimes.com/2025/08/26/arts/music/lil-nas-x-felony-charges-los-angeles.html
+
 **Trump Wants to Call It the War Department Again: What to Know**\
 `The president said War Department “just sounded better” than Defense Department, a name that has been in use since 1949.`\
 https://nytimes.com/2025/08/26/us/politics/trump-defense-department-war-rename.html
