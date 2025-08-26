@@ -1,3 +1,7 @@
+**U.S. Open day 2 recap: Carlos Alcaraz's buzz cuts through Reilly Opelka in night session**\
+`The world No. 2 produced a locked-in serving performance to take down one of the biggest servers in the sport.`\
+https://nytimes.com/athletic/6575517/2025/08/26/tennis-us-open-day-2-schedule-results-recap/
+
 **2 Police Officers Killed in Shooting in Rural Australia**\
 `Local authorities urged residents to avoid the area, about 200 miles from Melbourne, as they search for the gunman. A third officer was wounded.`\
 https://nytimes.com/2025/08/26/world/australia/australia-police-shooting-porepunkah.html
