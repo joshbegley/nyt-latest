@@ -1,3 +1,23 @@
+**Journalist Mariam Dagga Killed in Gaza**\
+`Her colleagues mourned as they held onto the visual journalist’s camera, which she used to document the lives of Gazans throughout the war.`\
+https://nytimes.com/video/world/middleeast/100000010361074/mariam-dagga-gaza-journalist-killed.html
+
+**Protesters in Israel Demand End of War in Gaza, Freedom of Hostages**\
+`Israelis took to the streets to urge the government to take action to free hostages held in Gaza, as the Israeli military pushed ahead with a widening offensive in Gaza City.`\
+https://nytimes.com/video/world/middleeast/100000010361198/gaza-war-protests-israel.html
+
+**Why Liverpool's 'Italian' method of defending free kicks seems to be more effective**\
+`Arne Slot may be Dutch, but on Monday night his team sat deep and defended set-pieces like a prime Serie A outfit`\
+https://nytimes.com/athletic/6575615/2025/08/26/liverpool-set-piece-defending-newcastle/
+
+**Five Weeknight Salmons**\
+`Including mustardy sheet-pan salmon, a farro-salmon salad with cucumber and herbs and, naturally, Andy Baraghani’s sticky miso salmon bowl.`\
+https://nytimes.com/2025/08/26/dining/five-weeknight-salmons.html
+
+**Premier League remind clubs over potential 'politically motivated' material in stadiums**\
+`The implementation of the guidance — which is not a central league policy and is shared with the EFL and FA — is at clubs' discretion.`\
+https://nytimes.com/athletic/6575747/2025/08/26/premier-league-ban-palestine-israel/
+
 **China Finds Buyers for Surplus Solar: Africa’s Energy-Hungry Countries**\
 `Overproduction in China has led to slashed prices, and buyers on the continent are taking advantage to sharply increase investments in clean energy.`\
 https://nytimes.com/2025/08/26/climate/africa-china-solar-panels.html
@@ -17,24 +37,4 @@ https://nytimes.com/2025/08/26/dining/nyc-restaurant-news.html
 **Penguins announce relaunch of Hall of Fame**\
 `The Penguins will be inducting 10 key franchise figures into their Hall of Fame during the next three years.`\
 https://nytimes.com/athletic/6575980/2025/08/26/penguins-hall-of-fame-nhl-exhibit/
-
-**The Bounce: Ranking the NBA's top 40 forwards**\
-`The Bounce Newsletter  | This is The Athletic’s daily NBA newsletter.`\
-https://nytimes.com/athletic/6575998/2025/08/26/nba-best-forward-rankings-the-bounce/
-
-**Jack Smith’s Legal Team Fires Back Against Ethics Complaint**\
-`For months, the former special counsel has remained silent as the president and his advisers have publicly attacked him.`\
-https://nytimes.com/2025/08/26/us/jack-smith-ethics-complaint-trump.html
-
-**Wolves close to deal for Girona defender Ladislav Krejci**\
-`Krejci is set to join Wolves on an initial loan which will become a permanent transfer in future.`\
-https://nytimes.com/athletic/6575944/2025/08/26/wolves-deal-girona-transfer-ladislav-krejci/
-
-**The Windup: Two types of baseball meltdowns**\
-`Welcome to The Windup, The Athletic's MLB newsletter.`\
-https://nytimes.com/athletic/6575534/2025/08/26/willson-contreras-bat-throw-the-windup/
-
-**How to watch the 2025 Miami Dolphins: Schedule and streaming for the South Beach squad**\
-`Amid new broadcast rules and restrictions, here's how to watch all 17 regular-season Dolphins games this season.`\
-https://nytimes.com/athletic/6570444/2025/08/26/miami-dolphins-2025-schedule-how-to-watch/
 
