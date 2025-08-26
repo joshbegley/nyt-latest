@@ -1,3 +1,23 @@
+**A Soundtrack for the End of Summer (Cruel or Not)**\
+`Hang on to the last gasps of the season — and prepare for the encroaching fall — with songs by Lana Del Rey, Maxwell, Pavement and more.`\
+https://nytimes.com/2025/08/26/arts/music/amplifier-newsletter-end-of-summer-songs.html
+
+**Even on a Rough Construction Site, Honeybees Figure It Out**\
+`Honeycomb, a mathematical marvel, is made by worker bees. A new study shows that the insects are very good at adapting to wonky foundations.`\
+https://nytimes.com/2025/08/26/science/even-on-a-rough-construction-site-honeybees-figure-it-out.html
+
+**This Golden Worm Fights Poison With Poison**\
+`To blunt the toxic arsenic in the waters where it lives, a deep-sea worm combines it with another chemical to produce a less toxic compound.`\
+https://nytimes.com/2025/08/26/science/this-golden-worm-fights-poison-with-poison.html
+
+**Simon & Schuster Leader to Step Down**\
+`Jonathan Karp, the chief executive since 2020, will oversee a new imprint that publishes six books year.`\
+https://nytimes.com/2025/08/26/books/review/jonathan-karp-simon-and-schuster.html
+
+**Trump Is Trying to End Fed Independence**\
+`If the courts allow Trump to get away with firing Lisa Cook, the Fed will be stripped of its insulation from political pressure.`\
+https://nytimes.com/2025/08/26/opinion/politics/trump-fed-independence-lisa-cook.html
+
 **Trump Is Trying to End Fed Independence**\
 `If the courts allow Trump to get away with firing Lisa Cook, the Fed will be stripped of its insulation from political pressure.`\
 https://nytimes.com/2025/08/26/opinion/politics/trump-is-trying-to-end-fed-independence.html

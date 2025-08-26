@@ -1,6 +1,22 @@
+**A Soundtrack for the End of Summer (Cruel or Not)**\
+`Hang on to the last gasps of the season — and prepare for the encroaching fall — with songs by Lana Del Rey, Maxwell, Pavement and more.`\
+https://nytimes.com/2025/08/26/arts/music/amplifier-newsletter-end-of-summer-songs.html
+
+**Even on a Rough Construction Site, Honeybees Figure It Out**\
+`Honeycomb, a mathematical marvel, is made by worker bees. A new study shows that the insects are very good at adapting to wonky foundations.`\
+https://nytimes.com/2025/08/26/science/even-on-a-rough-construction-site-honeybees-figure-it-out.html
+
+**This Golden Worm Fights Poison With Poison**\
+`To blunt the toxic arsenic in the waters where it lives, a deep-sea worm combines it with another chemical to produce a less toxic compound.`\
+https://nytimes.com/2025/08/26/science/this-golden-worm-fights-poison-with-poison.html
+
+**Simon & Schuster Leader to Step Down**\
+`Jonathan Karp, the chief executive since 2020, will oversee a new imprint that publishes six books year.`\
+https://nytimes.com/2025/08/26/books/review/jonathan-karp-simon-and-schuster.html
+
 **Trump Is Trying to End Fed Independence**\
 `If the courts allow Trump to get away with firing Lisa Cook, the Fed will be stripped of its insulation from political pressure.`\
-https://nytimes.com/2025/08/26/opinion/politics/trump-is-trying-to-end-fed-independence.html
+https://nytimes.com/2025/08/26/opinion/politics/trump-fed-independence-lisa-cook.html
 
 **Yankees, Giants to open 2026 MLB season schedule with game at San Francisco**\
 `The Giants and Yankees also played each other on Opening Day in 2023.`\
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6573105/2025/08/26/kaidon-salter-colorado-starting-
 **For a Museum in Melbourne, a Cabinet of Virtuosity**\
 `Nipa Doshi’s furniture commission, which evokes both religious and self-care rituals, honors some of the influential women in her life.`\
 https://nytimes.com/2025/08/26/arts/design/nipa-doshi-melbourne-museum-comission.html
-
-**Taylor Swift, Travis Kelce announce engagement on Instagram**\
-`Swift announced the couple's engagement via Instagram Tuesday afternoon, and the post accrued 1 million likes in nine minutes.`\
-https://nytimes.com/athletic/6576592/2025/08/26/taylor-swift-travis-kelce-engaged-instagram/
-
-**Trump’s Allegations Against Lisa Cook in Some Ways Echo His Own Legal Fight**\
-`President Trump, during his campaign for a second term, was accused of fraudulently inflating his net worth in order to get better rates on bank loans.`\
-https://nytimes.com/2025/08/26/us/politics/trump-lisa-cook-fraud.html
-
-**Taylor Swift and Travis Kelce Announce Their Engagement**\
-`The news was announced on Instagram: “Your English teacher and your gym teacher are getting married.”`\
-https://nytimes.com/2025/08/26/style/taylor-swift-engaged-travis-kelce.html
-
-**Until Saturday: CFB coach salaries up 370 percent**\
-`Until Saturday is The Athletic's free CFB newsletter.`\
-https://nytimes.com/athletic/6576608/2025/08/26/college-football-coach-salary-trend-until-saturday/
 
