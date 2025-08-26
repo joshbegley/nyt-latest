@@ -1,3 +1,19 @@
+**Trump Is Teaching the World to Live Without a Hegemon**\
+`Brazil, India and other emerging countries are hedging their bets against the United States.`\
+https://nytimes.com/2025/08/26/opinion/trump-brazil-india-tariffs.html
+
+**The New York Times in Print for Tuesday, Aug. 26, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/08/26/todays-new-york-times
+
+**5 Takeaways from the ‘Love Island U.S.A.’ Season 7 Reunion**\
+`After a messy season that had viewers rapt, the cast addressed relationship statuses, online rumors and whether apologies were coming or not.`\
+https://nytimes.com/2025/08/26/arts/television/love-island-usa-season-7-reunion.html
+
+**For one night, Mets show what they can be down the stretch**\
+`Of New York’s 13 runs, all but one were driven in by the bottom five hitters in the order.`\
+https://nytimes.com/athletic/6575434/2025/08/26/mets-show-what-they-can-be-down-stretch/
+
 **Lisa Cook Says She Will Not Step Down From the Fed**\
 `Ms. Cook said that she would not resign from the board of governors, hours after President Trump announced he was firing her.`\
 https://nytimes.com/2025/08/26/us/politics/lisa-cook-fed-governor.html
