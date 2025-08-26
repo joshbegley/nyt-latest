@@ -1,3 +1,15 @@
+**Israel Faces Growing Pressure Over Hostages and Gaza Offensive**\
+`The country’s security cabinet is to meet for the first time since Hamas agreed to a new cease-fire proposal, officials said, as rallies spread to demand action to free captives.`\
+https://nytimes.com/2025/08/26/world/middleeast/israel-netanyahu-gaza-protests.html
+
+**U.S. and Japan at Odds Over Terms of $550 Billion Investment**\
+`Claims that President Trump will direct Japanese investment highlight how trade frictions are mounting even with countries that have reached trade deals with the United States.`\
+https://nytimes.com/2025/08/26/business/us-japan-tariff-investment-deal.html
+
+**There's another awesome Tuesday WNBA doubleheader with Storm-Fever, Mercury-Sparks**\
+`Tuesday night's WNBA slate ties four playoff hopefuls together, each caught in the league's late-summer stickiness.`\
+https://nytimes.com/athletic/6574697/2025/08/26/storm-fever-mercury-sparks-clark-injury-plum-how-to-watch/
+
 **Fantasy football breakout candidates for each AFC team: Keon Coleman, RJ Harvey and more**\
 `Theo Gremminger highlights a player for each AFC team who could reach new heights in fantasy football 2025.`\
 https://nytimes.com/athletic/6574501/2025/08/26/fantasy-football-afc-breakout-candidates-coleman/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/08/26/movies/memoir-of-a-snail-eephus-streaming-movies.
 **A Life of Rage and Despair, Told in a Memoir Full of Beauty**\
 `The writer Michael Thomas recounts his struggles, successes and fraught family history in mesmerizing detail.`\
 https://nytimes.com/2025/08/26/books/review/michael-thomas-broken-king.html
-
-**Public Broadcast Cuts Hit Rural Areas, Revealing a Political Shift**\
-`Threatened by the president with political retribution, Republicans agreed to defund public broadcasting, imperiling a lifeline of communication in rural Alaska.`\
-https://nytimes.com/2025/08/26/us/politics/public-broadcast-cuts.html
-
-**In London, She Became Musical Theater Royalty. Now She’s Back on Broadway.**\
-`Marisha Wallace, headlining the final months of “Cabaret” in New York, returns to the city with Olivier nominations and newly minted British citizenship.`\
-https://nytimes.com/2025/08/26/theater/marisha-wallace-cabaret-broadway.html
-
-**Two Restaurants Are Making Minneapolis the American Capital of Hmong Food**\
-`The chefs at Diane’s Place and Vinai serve as guardians and interpreters of their foodways.`\
-https://nytimes.com/2025/08/26/dining/hmong-cuisines-minneapolis.html
 

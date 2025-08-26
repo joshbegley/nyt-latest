@@ -1,3 +1,15 @@
+**Israel Faces Growing Pressure Over Hostages and Gaza Offensive**\
+`The country’s security cabinet is to meet for the first time since Hamas agreed to a new cease-fire proposal, officials said, as rallies spread to demand action to free captives.`\
+https://nytimes.com/2025/08/26/world/middleeast/israel-netanyahu-gaza-protests.html
+
+**U.S. and Japan at Odds Over Terms of $550 Billion Investment**\
+`Claims that President Trump will direct Japanese investment highlight how trade frictions are mounting even with countries that have reached trade deals with the United States.`\
+https://nytimes.com/2025/08/26/business/us-japan-tariff-investment-deal.html
+
+**There's another awesome Tuesday WNBA doubleheader with Storm-Fever, Mercury-Sparks**\
+`Tuesday night's WNBA slate ties four playoff hopefuls together, each caught in the league's late-summer stickiness.`\
+https://nytimes.com/athletic/6574697/2025/08/26/storm-fever-mercury-sparks-clark-injury-plum-how-to-watch/
+
 **Fantasy football breakout candidates for each AFC team: Keon Coleman, RJ Harvey and more**\
 `Theo Gremminger highlights a player for each AFC team who could reach new heights in fantasy football 2025.`\
 https://nytimes.com/athletic/6574501/2025/08/26/fantasy-football-afc-breakout-candidates-coleman/
