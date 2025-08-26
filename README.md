@@ -1,40 +1,40 @@
-**South Korea’s Leader and Trump Find Common Ground: Kim Jong-un**\
-`At the White House, President Trump and Lee Jae Myung praised each other’s eagerness to talk to North Korea’s leader — even if he doesn’t want to talk to them.`\
-https://nytimes.com/2025/08/26/world/asia/trump-korea-north-kim.html
+**Fantasy football 2025 NFC outlooks: Eagles reign, Jalen Hurts outscores Jayden Daniels**\
+`Dalton Del Don delivers a fantasy-focused NFC preview with scorching hot takes. `\
+https://nytimes.com/athletic/6574205/2025/08/26/fantasy-football-2025-nfc-outlooks-eagles-reign-jalen-hurts-outscores-jayden-daniels/
 
-**The New York Times International Edition in Print for Wednesday, Aug. 27, 2025**\
-``\
-https://nytimes.com/issue/todaysinyt/2025/08/26/todays-new-york-times-international-edition
+**Potential reinforcements for the Vikings at 5 positions of need**\
+`The Vikings still need help at multiple positions. Here are 15 options, from realistic to pipe dream, at WR, CB, returner, RB and TE.`\
+https://nytimes.com/athletic/6574518/2025/08/26/vikings-roster-cutdown-day-waiver-wire/
 
-**Israel Faces Growing Pressure Over Hostages and Gaza Offensive**\
-`As rallies spread to demand action to free captives, the country’s security cabinet was to meet for the first time since Hamas agreed to a new cease-fire proposal, officials said.`\
-https://nytimes.com/2025/08/26/world/middleeast/israel-netanyahu-gaza-protests.html
+**Trevon Diggs says he knows Micah Parsons wants 'to be out there' with his teammates**\
+`"I know for sure he wants to be out there with us and helping this team win. This is home," Trevon Diggs said of Parsons.`\
+https://nytimes.com/athletic/6575184/2025/08/26/micah-parsons-cowboys-dak-prescott-season-opener/
 
-**U.S. and Japan at Odds Over Terms of $550 Billion Investment**\
-`Claims that President Trump will direct Japanese investment highlight how trade frictions are mounting even with countries that have reached trade deals with the United States.`\
-https://nytimes.com/2025/08/26/business/us-japan-tariff-investment-deal.html
+**Coco Gauff is fixing her serve to start the U.S. Open – and the rest of her tennis career**\
+`Gauff is reconstructing the most important shot in the sport on the eve of her most important tournament.`\
+https://nytimes.com/athletic/6574667/2025/08/26/coco-gauff-serve-us-open-tennis/
 
-**There's another awesome Tuesday WNBA doubleheader with Storm-Fever, Mercury-Sparks**\
-`Tuesday night's WNBA slate ties four playoff hopefuls together, each caught in the league's late-summer stickiness.`\
-https://nytimes.com/athletic/6574697/2025/08/26/storm-fever-mercury-sparks-clark-injury-plum-how-to-watch/
+**Phillies, haunted by postseason defeats, lose eighth straight game at Citi Field**\
+`The Phillies played crisp baseball until they didn't. It happened fast. It conjured the ghosts that haunt them in this ballpark.`\
+https://nytimes.com/athletic/6575444/2025/08/26/phillies-lose-eighth-straight-game-at-citi-field/
 
-**Fantasy football breakout candidates for each AFC team: Keon Coleman, RJ Harvey and more**\
-`Theo Gremminger highlights a player for each AFC team who could reach new heights in fantasy football 2025.`\
-https://nytimes.com/athletic/6574501/2025/08/26/fantasy-football-afc-breakout-candidates-coleman/
+**Fort Lauderdale to host second World Sevens Football series with $5M prize pot**\
+`The winter participants have yet to be finalized, but W7F says it's in "advanced conversations" with "top clubs across the Americas."`\
+https://nytimes.com/athletic/6575326/2025/08/26/fort-lauderdale-host-second-world-sevens-football-series/
 
-**Google Could Get Broken Up This Week. Here’s What It Would Mean.**\
-`It will be effective if people who work at big tech companies start quitting their jobs.`\
-https://nytimes.com/2025/08/26/opinion/google-antitrust-remedy-ai.html
+**Phoenix Mercury's new 'think outside the box' roster is a creative blueprint for WNBA teams**\
+`Aquiring international vets, strong rookies and, of course, Alyssa Thomas, has made Mercury a team to reckon with.`\
+https://nytimes.com/athletic/6575335/2025/08/26/phoenix-mercury-roster-wnba/
 
-**European Officials Press Iran on Nuclear Talks. Here’s What to Know.**\
-`Three European powers will meet with an Iranian minister to try to reopen negotiations over Iran’s nuclear activities and avoid reimposing harsh sanctions.`\
-https://nytimes.com/2025/08/26/world/middleeast/iran-nuclear-talks-europe.html
+**Should Keegan Bradley pick himself for the Ryder Cup team? Projecting the U.S. roster**\
+`Multiple Americans have said they believe Bradley should pick himself, and there's certainly public sentiment for it. But there's also risk.`\
+https://nytimes.com/athletic/6574544/2025/08/26/ryder-cup-2025-us-team-projections-keegan-bradley/
 
-**With Little Explanation, Trump Throws Wind Industry Into Chaos**\
-`The Trump administration is halting wind projects that had been approved, financed and underway while providing little to no justification.`\
-https://nytimes.com/2025/08/26/climate/with-little-explanation-trump-throws-wind-industry-into-chaos.html
+**The Knicks and free agency: Which players make sense at veteran's minimum?**\
+`The Knicks have a veteran-minimum deal to use. Which players make sense?`\
+https://nytimes.com/athletic/6574026/2025/08/26/knicks-free-agency-nba-veteran-minimum/
 
-**Some Options for Mamdani on Free Child Care**\
-`Zohran Mamdani, the Democratic nominee for mayor, will face a challenge in making his proposal of universal free child care a reality.`\
-https://nytimes.com/2025/08/26/nyregion/some-options-for-mamdani-on-free-child-care.html
+**Ben Shelton, Coco Gauff and the science behind pre-match music at the U.S. Open**\
+`A researcher said that listening to music before a task can have psychological and physiological effects on performance.`\
+https://nytimes.com/athletic/6574161/2025/08/26/ben-shelton-coco-gauff-and-the-science-behind-pre-match-music-at-the-u-s-open/
 
