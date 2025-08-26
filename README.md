@@ -1,3 +1,7 @@
+**Ranking the Big Ten's conference schedules, from Wisconsin to Michigan**\
+`With 18 teams under the Big Ten umbrella, the conference’s schedules have more disparity now than ever before.`\
+https://nytimes.com/athletic/6570309/2025/08/26/big-ten-football-schedule-strength-rankings/
+
 **New England Patriots streaming guide: Schedule, broadcasts for Drake Maye's second year**\
 `Year No. 1 under Mike Vrabel. Year No. 2 with Drake Maye under center. Here's how to watch and stream your 2025 New England Patriots.`\
 https://nytimes.com/athletic/6523673/2025/08/26/new-england-patriots-how-to-watch-2025-schedule/
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/6575696/2025/08/26/newcastle-liverpool-isak-transfe
 **Bottas, Pérez unveiled as Cadillac's drivers ahead of F1 debut in 2026**\
 `The two 35-year-olds bring a combined 26 seasons of F1 driving experience to the American team.`\
 https://nytimes.com/athletic/6565097/2025/08/26/valtteri-bottas-sergio-perez-cadillac-f1/
-
-**Journalism in Gaza**\
-`We look at a deadly strike — and explore the challenges of reporting from the enclave.`\
-https://nytimes.com/2025/08/26/briefing/gaza-nasser-hospital-journalists.html
 

@@ -1,3 +1,27 @@
+**New England Patriots streaming guide: Schedule, broadcasts for Drake Maye's second year**\
+`Year No. 1 under Mike Vrabel. Year No. 2 with Drake Maye under center. Here's how to watch and stream your 2025 New England Patriots.`\
+https://nytimes.com/athletic/6523673/2025/08/26/new-england-patriots-how-to-watch-2025-schedule/
+
+**Trump Administration Live Updates: Fed Governor Says ‘No Cause’ for Her Firing**\
+``\
+https://nytimes.com/live/2025/08/26/us/trump-news
+
+**Can the Red Wings swing an impact trade before the season? Mailbag**\
+`Red Wings beat writer Max Bultman answers subscriber questions with less than a month to go until training camp. `\
+https://nytimes.com/athletic/6572822/2025/08/26/red-wings-trade-2025-26-season-nhl/
+
+**Reds offense sputters – again – in 7-0 loss to the Dodgers**\
+`The Reds managed just three hits in Monday’s loss and now sit 68-64 and 2 1/2 games out of the final wild-card spot.`\
+https://nytimes.com/athletic/6575548/2025/08/26/cincinnati-reds-offense-la-dodgers/
+
+**Cardinals mailbag, Part 2: What to expect when the Chaim Bloom era begins**\
+`The goal for the franchise remains the same: Return winning baseball to St. Louis, and do it in a way that changes the industry.`\
+https://nytimes.com/athletic/6561322/2025/08/26/cardinals-mailbag-chaim-bloom/
+
+**On Phones and Childhood: The Week 10 Winners of Our Summer Reading Contest**\
+`As our contest comes to a close, we honor both a video and an essay, and hear reflections on this year’s submissions from our judges.`\
+https://nytimes.com/2025/08/26/learning/on-phones-and-childhood-the-week-10-winners-of-our-summer-reading-contest.html
+
 **Inside Cadillac's F1 driver choice: Why Pérez and Bottas beat out American hopefuls**\
 `In Valtteri Bottas and Sergio Pérez, Cadillac prioritized proven F1 veterans over homegrown American talent — for now.  
 `\
@@ -14,28 +38,4 @@ https://nytimes.com/athletic/6565097/2025/08/26/valtteri-bottas-sergio-perez-cad
 **Journalism in Gaza**\
 `We look at a deadly strike — and explore the challenges of reporting from the enclave.`\
 https://nytimes.com/2025/08/26/briefing/gaza-nasser-hospital-journalists.html
-
-**Yankees unsure how to fix struggling Anthony Volpe: 'It's a hard question to answer'**\
-`Since his debut, no hitter with at least 1,500 plate appearances has been less effective at the plate than Volpe with his 85 wRC+.`\
-https://nytimes.com/athletic/6574921/2025/08/26/ny-yankees-anthony-volpe-struggles-fixes/
-
-**Before facing Twins for first time, Louis Varland calls hometown tenure 'time of my life'**\
-`Nothing could have prepared Varland for his world being “flipped upside down,” but he appreciates that he got to pitch for the Twins.`\
-https://nytimes.com/athletic/6575182/2025/08/26/louis-varland-twins-trade-reaction-blue-jays/
-
-**Why Arch Manning's 2026 NFL Draft decision isn't as simple as you think**\
-`Everyone, including Arch himself, should be keeping an open mind on when he will go pro.`\
-https://nytimes.com/athletic/6575330/2025/08/26/arch-manning-nfl-draft-scouts-texas-football/
-
-**Rangers rank No. 24 in NHL Pipeline Rankings for 2025**\
-`The Rangers can boast some quality wingers drafted in recent years, but lack the same depth at other positions.`\
-https://nytimes.com/athletic/6493427/2025/08/26/new-york-rangers-nhl-pipeline-rankings-2025/
-
-**Six months from Milan, PWHL play helps Team Canada's Olympics strategy evolve**\
-`The last time Team Canada prepared for the Olympics, the PWHL didn't exist. A best-on-best league is changing established routines.`\
-https://nytimes.com/athletic/6575010/2025/08/26/pwhl-olympics-team-canada-preparation/
-
-**Kings rank No. 21 in NHL Pipeline Rankings for 2025**\
-`The Kings have done a good job getting their system up to par as they’ve rebuilt on the fly and have attempted to win again.`\
-https://nytimes.com/athletic/6488840/2025/08/26/los-angeles-kings-nhl-pipeline-rankings-2025/
 
