@@ -1,3 +1,11 @@
+**Lisa Cook Says She Will Not Step Down From the Fed**\
+`Ms. Cook said that she would not resign from the board of governors, hours after President Trump announced he was firing her.`\
+https://nytimes.com/2025/08/26/us/politics/lisa-cook-fed-governor.html
+
+**Australia Accuses Iran of Directing Antisemitic Arson Attacks**\
+`The government abruptly severed diplomatic ties and ejected Iran’s ambassador, saying the country had orchestrated attacks in Sydney and Melbourne last year.`\
+https://nytimes.com/2025/08/26/world/australia/australia-iran-antisemitic-attacks.html
+
 **Tuesday Briefing: Israeli Strikes Killed Five Journalists**\
 `Also, a knockoff Starbucks in North Korea.`\
 https://nytimes.com/2025/08/26/briefing/israel-gaza-journalists-killed-south-korea-trump-china-evergrande.html
