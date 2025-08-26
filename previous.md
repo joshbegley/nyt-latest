@@ -1,40 +1,40 @@
-**FC Midtjylland complete signing of Bournemouth's Billing**\
-`The 29-year-old Denmark international spent the latter half of the 2024-25 season on loan to Napoli.`\
-https://nytimes.com/athletic/6572226/2025/08/26/fc-midtjylland-complete-signing-of-bournemouth-midfielder-philip-billing/
+**Yankees unsure how to fix struggling Anthony Volpe: 'It's a hard question to answer'**\
+`Since his debut, no hitter with at least 1,500 plate appearances has been less effective at the plate than Volpe with his 85 wRC+.`\
+https://nytimes.com/athletic/6574921/2025/08/26/ny-yankees-anthony-volpe-struggles-fixes/
 
-**Fantasy football 2025 AFC outlooks: Justin Fields is a top-8 QB, Ravens win Super Bowl**\
-`Dalton Del Don previews the AFC with a fantasy lens and predicts a top-12 WR season for Ladd McConkey. `\
-https://nytimes.com/athletic/6574572/2025/08/26/fantasy-football-2025-afc-outlooks-justin-fields-is-a-top-8-qb-ravens-win-super-bowl/
+**Before facing Twins for first time, Louis Varland calls hometown tenure 'time of my life'**\
+`Nothing could have prepared Varland for his world being “flipped upside down,” but he appreciates that he got to pitch for the Twins.`\
+https://nytimes.com/athletic/6575182/2025/08/26/louis-varland-twins-trade-reaction-blue-jays/
 
-**The Pulse: Madness at the U.S. Open**\
-`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
-https://nytimes.com/athletic/6574410/2025/08/26/us-open-medvedev-bonzi-the-pulse/
+**Why Arch Manning's 2026 NFL Draft decision isn't as simple as you think**\
+`Everyone, including Arch himself, should be keeping an open mind on when he will go pro.`\
+https://nytimes.com/athletic/6575330/2025/08/26/arch-manning-nfl-draft-scouts-texas-football/
 
-**Borussia Dortmund head coach Niko Kovac signs new contract**\
-`Kovac was appointed by Dortmund in February 2025 following the dismissal of Nuri Sahin, initially on a deal until the summer of 2026.`\
-https://nytimes.com/athletic/6575678/2025/08/26/borussia-dortmund-niko-kovac-signs-new-contract/
+**Rangers rank No. 24 in NHL Pipeline Rankings for 2025**\
+`The Rangers can boast some quality wingers drafted in recent years, but lack the same depth at other positions.`\
+https://nytimes.com/athletic/6493427/2025/08/26/new-york-rangers-nhl-pipeline-rankings-2025/
 
-**Fantasy football 2025 NFC outlooks: Eagles reign, Jalen Hurts outscores Jayden Daniels**\
-`Dalton Del Don delivers a fantasy-focused NFC preview with scorching hot takes. `\
-https://nytimes.com/athletic/6574205/2025/08/26/fantasy-football-2025-nfc-outlooks-eagles-reign-jalen-hurts-outscores-jayden-daniels/
+**Six months from Milan, PWHL play helps Team Canada's Olympics strategy evolve**\
+`The last time Team Canada prepared for the Olympics, the PWHL didn't exist. A best-on-best league is changing established routines.`\
+https://nytimes.com/athletic/6575010/2025/08/26/pwhl-olympics-team-canada-preparation/
 
-**Potential reinforcements for the Vikings at 5 positions of need**\
-`The Vikings still need help at multiple positions. Here are 15 options, from realistic to pipe dream, at WR, CB, returner, RB and TE.`\
-https://nytimes.com/athletic/6574518/2025/08/26/vikings-roster-cutdown-day-waiver-wire/
+**Kings rank No. 21 in NHL Pipeline Rankings for 2025**\
+`The Kings have done a good job getting their system up to par as they’ve rebuilt on the fly and have attempted to win again.`\
+https://nytimes.com/athletic/6488840/2025/08/26/los-angeles-kings-nhl-pipeline-rankings-2025/
 
-**Trevon Diggs says he knows Micah Parsons wants 'to be out there' with his teammates**\
-`"I know for sure he wants to be out there with us and helping this team win. This is home," Trevon Diggs said of Parsons.`\
-https://nytimes.com/athletic/6575184/2025/08/26/micah-parsons-cowboys-dak-prescott-season-opener/
+**Canucks rank No. 22 in NHL Pipeline Rankings for 2025**\
+`Vancouver has a decent but not deep system, in part due to how light the team has been on picks in some of the last five years.`\
+https://nytimes.com/athletic/6486174/2025/08/26/vancouver-canucks-nhl-pipeline-rankings-2025/
 
-**Coco Gauff is fixing her serve to start the U.S. Open – and the rest of her tennis career**\
-`Gauff is reconstructing the most important shot in the sport on the eve of her most important tournament.`\
-https://nytimes.com/athletic/6574667/2025/08/26/coco-gauff-serve-us-open-tennis/
+**Stars rank No. 23 in NHL Pipeline Rankings for 2025**\
+`The Stars' pipeline is quite light, in part due to how few picks they’ve made in recent years.`\
+https://nytimes.com/athletic/6495305/2025/08/26/dallas-stars-nhl-pipeline-rankings-2025/
 
-**Phillies, haunted by postseason defeats, lose eighth straight game at Citi Field**\
-`The Phillies played crisp baseball until they didn't. It happened fast. It conjured the ghosts that haunt them in this ballpark.`\
-https://nytimes.com/athletic/6575444/2025/08/26/phillies-lose-eighth-straight-game-at-citi-field/
+**Hurricanes rank No. 18 in NHL Pipeline Rankings for 2025**\
+`Alexander Nikishin and Seth Jarvis aging out of the pool knocks down the Hurricanes, but they're still in a promising spot for a contender.`\
+https://nytimes.com/athletic/6488787/2025/08/26/carolina-hurricanes-nhl-pipeline-rankings-2025/
 
-**Fort Lauderdale to host second World Sevens Football series with $5M prize pot**\
-`The winter participants have yet to be finalized, but W7F says it's in "advanced conversations" with "top clubs across the Americas."`\
-https://nytimes.com/athletic/6575326/2025/08/26/fort-lauderdale-host-second-world-sevens-football-series/
+**Flames rank No. 17 in NHL Pipeline Rankings for 2025**\
+`The Flames' pool is headlined by Zayne Parekh and a series of good forwards, but likely needs more to hit the next level.`\
+https://nytimes.com/athletic/6486679/2025/08/26/calgary-flames-nhl-pipeline-rankings-2025/
 
