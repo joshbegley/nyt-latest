@@ -1,3 +1,7 @@
+**Journalist Mariam Dagga Killed in Gaza**\
+`Colleagues of Mariam Dagga, the visual reporter who was among the five journalists killed on Monday by Israeli strikes on a southern Gaza hospital, mourned as they held onto her camera.`\
+https://nytimes.com/video/world/middleeast/100000010361074/mariam-dagga-gaza-journalist-killed.html
+
 **State Department Agents Join Trump’s Deployment in D.C.**\
 `The Diplomatic Security Service traditionally focused on protecting diplomats, helping secure overseas missions and managing background checks. Now it is doing beat-cop work.`\
 https://nytimes.com/2025/08/26/us/politics/state-department-washington-trump.html
