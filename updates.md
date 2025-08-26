@@ -1,3 +1,5 @@
+
+
 **Cardinals' Willson Contreras gets ejected, throws bat in heated altercation**\
 `Contreras threw his bat in the direction of home plate, striking hitting coach Brant Brown on the arm instead.`\
 https://nytimes.com/athletic/6575299/2025/08/25/st-louis-cardinals-willson-contreras-ejection/
