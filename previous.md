@@ -1,3 +1,7 @@
+**DOGE Put Critical Social Security Data at Risk, Whistle-Blower Says**\
+`DOGE team members uploaded a database with the personal information of hundreds of millions of Americans to a vulnerable cloud server, according to the agency’s chief data officer.`\
+https://nytimes.com/2025/08/26/us/politics/doge-social-security-data.html
+
 **Chelsea evaluating move for Barcelona midfielder Lopez**\
 `The Premier League side are in touch with the player's camp as they explore attacking options in case of exits.`\
 https://nytimes.com/athletic/6533184/2025/08/26/chelsea-transfer-news-fermin-lopez-barcelona/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6570309/2025/08/26/big-ten-football-schedule-streng
 **New England Patriots streaming guide: Schedule, broadcasts for Drake Maye's second year**\
 `Year No. 1 under Mike Vrabel. Year No. 2 with Drake Maye under center. Here's how to watch and stream your 2025 New England Patriots.`\
 https://nytimes.com/athletic/6523673/2025/08/26/new-england-patriots-how-to-watch-2025-schedule/
-
-**Trump Administration Live Updates: Lutnick Keeps Up Attacks on Fed Governor**\
-``\
-https://nytimes.com/live/2025/08/26/us/trump-news
 

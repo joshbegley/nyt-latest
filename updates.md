@@ -1,3 +1,7 @@
+**DOGE Put Critical Social Security Data at Risk, Whistle-Blower Says**\
+`DOGE team members uploaded a database with the personal information of hundreds of millions of Americans to a vulnerable cloud server, according to the agency’s chief data officer.`\
+https://nytimes.com/2025/08/26/us/politics/doge-social-security-data.html
+
 **Trump Administration Live Updates: Lutnick Keeps Up Attacks on Fed Governor**\
 ``\
 https://nytimes.com/live/2025/08/26/us/trump-news
