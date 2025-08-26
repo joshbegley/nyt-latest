@@ -1,4 +1,8 @@
 **Israel Faces Growing Pressure Over Hostages and Gaza Offensive**\
+`As rallies spread to demand action to free captives, the country’s security cabinet was to meet for the first time since Hamas agreed to a new cease-fire proposal, officials said.`\
+https://nytimes.com/2025/08/26/world/middleeast/israel-netanyahu-gaza-protests.html
+
+**Israel Faces Growing Pressure Over Hostages and Gaza Offensive**\
 `The country’s security cabinet is to meet for the first time since Hamas agreed to a new cease-fire proposal, officials said, as rallies spread to demand action to free captives.`\
 https://nytimes.com/2025/08/26/world/middleeast/israel-netanyahu-gaza-protests.html
 
