@@ -1,3 +1,15 @@
+**Seahawks 53-man roster breakdown: Marquez Valdes-Scantling out, 3 UDFAs in**\
+`The Seahawks kept six receivers, but MVS wasn't one of them. Meanwhile, there were surprises at tight end, linebacker and on the D-line.`\
+https://nytimes.com/athletic/6574618/2025/08/26/seahawks-53-man-roster-2025/
+
+**Lafufus, Fake Labubu Dolls, Raise Safety Alarms and Spawn Raids**\
+`The dupes of the cute-ugly toys have left consumer complaints and warnings about safety risks and potentially hazardous chemicals in their wake.`\
+https://nytimes.com/2025/08/26/world/asia/labubu-fake-safety.html
+
+**Silicon Valley Pledges $200 Million to New Pro-A.I. Super PACs**\
+`The two PACs reflect a new level of political engagement by companies like Meta and investors such as Andreessen Horowitz, which are spending heavily on artificial intelligence.`\
+https://nytimes.com/2025/08/26/technology/silicon-valley-ai-super-pacs.html
+
 **Brooklyn’s Federal Judges Name Joseph Nocella Jr. as U.S. Attorney**\
 `He will continue to oversee an office that often handles cases involving violent drug cartels and transnational repression. In making the choice, the judges avoided a political fight.`\
 https://nytimes.com/2025/08/26/nyregion/edny-us-attorney-nocella.html

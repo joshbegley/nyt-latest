@@ -1,3 +1,15 @@
+**Seahawks 53-man roster breakdown: Marquez Valdes-Scantling out, 3 UDFAs in**\
+`The Seahawks kept six receivers, but MVS wasn't one of them. Meanwhile, there were surprises at tight end, linebacker and on the D-line.`\
+https://nytimes.com/athletic/6574618/2025/08/26/seahawks-53-man-roster-2025/
+
+**Lafufus, Fake Labubu Dolls, Raise Safety Alarms and Spawn Raids**\
+`The dupes of the cute-ugly toys have left consumer complaints and warnings about safety risks and potentially hazardous chemicals in their wake.`\
+https://nytimes.com/2025/08/26/world/asia/labubu-fake-safety.html
+
+**Silicon Valley Pledges $200 Million to New Pro-A.I. Super PACs**\
+`The two PACs reflect a new level of political engagement by companies like Meta and investors such as Andreessen Horowitz, which are spending heavily on artificial intelligence.`\
+https://nytimes.com/2025/08/26/technology/silicon-valley-ai-super-pacs.html
+
 **Brooklyn’s Federal Judges Name Joseph Nocella Jr. as U.S. Attorney**\
 `He will continue to oversee an office that often handles cases involving violent drug cartels and transnational repression. In making the choice, the judges avoided a political fight.`\
 https://nytimes.com/2025/08/26/nyregion/edny-us-attorney-nocella.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6566705/2025/08/26/preston-2-3-wrexham-could-a-prem
 **Steelers 53-man roster: They keep four quarterbacks; Beanie Bishop, James Pierre cut**\
 `Skylar Thompson was one of the QBs to make Pittsburgh's initial 53-man roster.`\
 https://nytimes.com/athletic/6577336/2025/08/26/steelers-initial-53-man-roster-cutdown-day/
-
-**49ers 53-man roster: Sebastian 'Hulk' Valdez waived; WR group needs help**\
-`The 49ers have no punter and only two healthy receivers, a sure sign that the roster will change more in the coming days.`\
-https://nytimes.com/athletic/6574655/2025/08/26/49ers-53-man-roster-2025/
-
-**Colts cut day takeaways: Waiving JuJu Brents shines spotlight on rough 2023 draft class**\
-`Brents wasn't the only miss from Indianapolis' 2023 class, as Colts fans well know. `\
-https://nytimes.com/athletic/6577126/2025/08/26/colts-juju-brents-cut-day-takeaways/
-
-**Justice Dept. Broadens Inquiry Into Key Players in Russia Investigation**\
-`It is the latest effort by President Trump and his allies to impugn the Russia investigation, which the president sees as having been a partisan witch hunt.`\
-https://nytimes.com/2025/08/26/us/politics/justice-department-investigation-fbi-russia-obama.html
 
