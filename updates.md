@@ -1,3 +1,7 @@
+**2 Police Officers Killed in Shooting in Rural Australia**\
+`A third officer was wounded. Local authorities urged residents to avoid the area, about 200 miles from Melbourne, as they searched for the gunman.`\
+https://nytimes.com/2025/08/26/world/australia/australia-police-shooting-porepunkah.html
+
 **How Ngumoha, the ego-free wonderkid, announced himself to Liverpool – and the world**\
 `Arne Slot needed a 16-year-old – and Dominik Szoboszlai – to ensure Newcastle trip was a night of elation not regret`\
 https://nytimes.com/athletic/6575304/2025/08/26/rio-ngumoha-liverpool-age-newcastle-goal/
