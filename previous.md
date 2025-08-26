@@ -1,3 +1,11 @@
+**Epstein Accuser’s Family Takes Issue With Plans to Publish Her Memoir**\
+`Relatives of Virginia Roberts Giuffre, who died earlier this year, contend that the book underplays the abuse she suffered at the hands of her husband.`\
+https://nytimes.com/2025/08/25/books/review/virginia-roberts-giuffre-memoir-knopf.html
+
+**Read Trump’s Directive Firing Lisa Cook**\
+`The president said in a letter on Monday that he was removing the Federal Reserve governor from her duties, effective immediately.`\
+https://nytimes.com/interactive/2025/08/25/us/politics/trump-lisa-cook-firing.html
+
 **Browns trade QB Kenny Pickett to Raiders for fifth-round pick: Source**\
 `QB was expected to challenge Joe Flacco for Cleveland's starting QB spot before an injury. Now he'll back up Geno Smith in Las Vegas.`\
 https://nytimes.com/athletic/6575162/2025/08/25/kenny-pickett-trade-browns-raiders/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/08/25/us/politics/epstein-files-subpoena-comer.html
 **Full Time: Yup, another women’s soccer transfer record**\
 `Welcome to Full Time, The Athletic's women's soccer newsletter.`\
 https://nytimes.com/athletic/6575099/2025/08/25/womens-soccer-transfer-record-full-time/
-
-**A judge threatens to hold a Trump official in contempt over the silencing of Voice of America.**\
-`Judge Royce C. Lamberth in Washington`\
-https://nytimes.com/live/2025/08/25/us/trump-news/trump-official-voa-judge
-
-**49ers still light at WR, but Brian Robinson provides more options, better thump**\
-`Mykel Williams, CJ West and other injured 49ers returned to practice Monday as the team's 53-man roster begins to take shape.`\
-https://nytimes.com/athletic/6574986/2025/08/25/brian-robinson-49ers-roster-moves/
 

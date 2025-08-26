@@ -1,3 +1,11 @@
+**Epstein Accuser’s Family Takes Issue With Plans to Publish Her Memoir**\
+`Relatives of Virginia Roberts Giuffre, who died earlier this year, contend that the book underplays the abuse she suffered at the hands of her husband.`\
+https://nytimes.com/2025/08/25/books/review/virginia-roberts-giuffre-memoir-knopf.html
+
+**Read Trump’s Directive Firing Lisa Cook**\
+`The president said in a letter on Monday that he was removing the Federal Reserve governor from her duties, effective immediately.`\
+https://nytimes.com/interactive/2025/08/25/us/politics/trump-lisa-cook-firing.html
+
 **Browns trade QB Kenny Pickett to Raiders for fifth-round pick: Source**\
 `QB was expected to challenge Joe Flacco for Cleveland's starting QB spot before an injury. Now he'll back up Geno Smith in Las Vegas.`\
 https://nytimes.com/athletic/6575162/2025/08/25/kenny-pickett-trade-browns-raiders/
