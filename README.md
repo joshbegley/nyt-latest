@@ -1,3 +1,7 @@
+**Fantasy Scoop: 16 players I'm betting my season on**\
+`Players I'm betting my fantasy season on, plus Jake Ciely's thoughts on Terry McLaurin and Kenneth Walker`\
+https://nytimes.com/athletic/6576564/2025/08/26/fantasy-football-targets-2025-nfl-scoop-city-kyler-murray/
+
 **A Museum Show About Disability Asks: ‘Who’s Sorry Now?’**\
 `“Design and Disability,” on view in London, goes beyond the precepts of “universal design” to celebrate particular identities and bodies.`\
 https://nytimes.com/2025/08/26/arts/design/victoria-albert-design-disability.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/26/us/politics/trump-defense-department-war-rename.h
 **Seeking to Control the Fed, Trump Risks Upending a Pillar of the Global Economy**\
 `President Trump’s attempt to fire Lisa Cook, a Fed governor, will set off a long legal battle. Economists warn it could lead to higher inflation and government borrowing costs.`\
 https://nytimes.com/2025/08/26/business/trump-fed-lisa-cook.html
-
-**IShowSpeed to join NFL's YouTube debut for Week 1 Chiefs-Chargers matchup**\
-`The streaming megastar will join three other influencers available to fans through YouTube's "Watch With" alternate broadcast feed.`\
-https://nytimes.com/athletic/6576266/2025/08/26/ishowspeed-nfl-youtube-chiefs-chargers/
 
