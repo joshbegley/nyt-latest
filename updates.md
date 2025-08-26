@@ -1,3 +1,7 @@
+**Chelsea evaluating move for Barcelona midfielder Fermin**\
+`The Premier League side are in touch with the player's camp as they explore attacking options in case of exits.`\
+https://nytimes.com/athletic/6533184/2025/08/26/chelsea-transfer-news-fermin-lopez-barcelona/
+
 **Penguins announce relaunch of Hall of Fame**\
 `The Penguins will be inducting 10 key franchise figures into their Hall of Fame during the next three years.`\
 https://nytimes.com/athletic/6575980/2025/08/26/penguins-hall-of-fame-nhl-exhibit/
