@@ -1,3 +1,7 @@
+**2 Police Officers Killed in Shooting in Rural Australia**\
+`Local authorities urged residents to avoid the area as they search for the gunman. A third officer was wounded.`\
+https://nytimes.com/2025/08/26/world/australia/australia-police-shooting-porepunkah.html
+
 **The Street-Corner Sensors That Track Flooding in Real Time**\
 `Hundreds of sensors placed throughout New York City measure water as it rises, then send the data to an interactive map available to the public.`\
 https://nytimes.com/2025/08/26/nyregion/flood-sensors-nyc.html
