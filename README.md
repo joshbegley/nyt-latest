@@ -1,3 +1,11 @@
+**NFL places Texans S Jimmie Ward on Commissioner's Exempt List: Reports**\
+`Ward is facing a domestic assault lawsuit filed by the mother of his 3-year-old child earlier this month.`\
+https://nytimes.com/athletic/6577214/2025/08/26/nfl-texans-jimmie-ward-commissioners-exempt-list/
+
+**Commanders 53-man roster: 5 takeaways as team keeps 5 receivers, 7 linebackers**\
+`There were few surprises as Washington set its initial roster, and the Commanders could very well look to make changes in the coming days.`\
+https://nytimes.com/athletic/6577213/2025/08/26/commanders-53-man-roster-sam-cosmi-jacory-croskey-merritt/
+
 **Patriots 53-man roster: One thought on every player who made the (initial) team**\
 `The Patriots are down to 53 players. But don't get comfortable yet. They're likely to put in several waiver claims over the next 24 hours.`\
 https://nytimes.com/athletic/6577118/2025/08/26/patriots-53-man-roster-kyle-dugger-kendrick-bourne/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/08/26/us/politics/trump-power-federal-reserve.html
 **Small Bookstores and the Future of Liberalism**\
 `A retreat from partisan politics, wokeness and optimism.`\
 https://nytimes.com/2025/08/26/opinion/bookstores-liberalism-trump-politics.html
-
-**Stream These 8 Movies and TV Shows Before They Leave Netflix in September**\
-`Another batch of excellent titles leaves for U.S. subscribers this month, including “Mad Max: Fury Road” and “The Good Place.”`\
-https://nytimes.com/2025/08/26/arts/television/netflix-expiring-september.html
-
-**Schottenheimer still confident about Parsons: 'There will be a ramp-up program'**\
-`The Cowboys coach remains confident that the Cowboys star pass rusher will suit up in their season opener against the Eagles.`\
-https://nytimes.com/athletic/6577061/2025/08/26/micah-parsons-week-1-eagles-contract/
 
