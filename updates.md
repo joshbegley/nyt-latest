@@ -1,3 +1,7 @@
+**The New York Times International Edition in Print for Wednesday, Aug. 27, 2025**\
+``\
+https://nytimes.com/issue/todaysinyt/2025/08/26/todays-new-york-times-international-edition
+
 **Israel Faces Growing Pressure Over Hostages and Gaza Offensive**\
 `As rallies spread to demand action to free captives, the country’s security cabinet was to meet for the first time since Hamas agreed to a new cease-fire proposal, officials said.`\
 https://nytimes.com/2025/08/26/world/middleeast/israel-netanyahu-gaza-protests.html
