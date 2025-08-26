@@ -1,3 +1,11 @@
+**Casting a Fresh Eye on Artifacts from Smoke-Filled Rooms**\
+`The once-ubiquitous ashtray is making a revival as an object of curiosity or a resting place for weed.`\
+https://nytimes.com/2025/08/25/style/ashtray-design-revival.html
+
+**Overall Impact**\
+`Kevin Curry plays a crooked — and brilliant — trick on us.`\
+https://nytimes.com/2025/08/25/crosswords/daily-puzzle-2025-08-26.html
+
 **How Cubs' Kyle Tucker was able to reset ahead of Chicago's pivotal stretch run**\
 `After pressing pause, the Cubs believe something has clicked with the 28-year-old All-Star.`\
 https://nytimes.com/athletic/6575199/2025/08/25/chicago-cubs-kyle-tucker-reset-results/

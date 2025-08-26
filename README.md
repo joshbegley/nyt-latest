@@ -1,3 +1,7 @@
+**How to Cultivate a Feel-Good Garden**\
+`Horticulturalists and herbalists share tips for nurturing plants with health benefits.`\
+https://nytimes.com/2025/08/25/garden/medicinal-plant-garden-tips.html
+
 **Casting a Fresh Eye on Artifacts from Smoke-Filled Rooms**\
 `The once-ubiquitous ashtray is making a revival as an object of curiosity or a resting place for weed.`\
 https://nytimes.com/2025/08/25/style/ashtray-design-revival.html
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2025/08/25/us/trump-lisa-cook-fed-firing.html
 **Browns trade QB Kenny Pickett to Raiders for fifth-round pick**\
 `QB was expected to challenge Joe Flacco for Cleveland's starting QB spot before an injury. Now he'll back up Geno Smith in Las Vegas.`\
 https://nytimes.com/athletic/6575162/2025/08/25/kenny-pickett-trade-browns-raiders/
-
-**Trump Says He Is Removing Lisa Cook From Federal Reserve Board**\
-`“I have determined that there is sufficient cause to remove you from your position,” Mr. Trump said in a letter. Her dismissal threatened to touch off a landmark legal battle over the Fed’s independence.`\
-https://nytimes.com/2025/08/25/us/politics/lisa-cook-fired-trump-fed.html
 
