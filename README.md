@@ -1,3 +1,11 @@
+**Fed Governor Lisa Cook to Sue Over Firing, Asserting Trump Abused Power**\
+`Lawyers for Ms. Cook promised to take legal action one day after the president moved to fire her over allegations of mortgage fraud.`\
+https://nytimes.com/2025/08/26/us/politics/trump-lisa-cook-firing-lawsuit.html
+
+**The Deadly Risks of Reporting in Gaza**\
+`Journalists endure the same harrowing reality as other Gazans: hunger and the constant threat of death. Those challenges risk further stifling what the world hears about the war.`\
+https://nytimes.com/2025/08/26/world/middleeast/palestinian-journalists-risk-reporting.html
+
 **West Ham make loan offer for Forest's Sangare**\
 `Sangare, 27, has started both of Forest's first two Premier League games under Nuno Espirito Santo this season.`\
 https://nytimes.com/athletic/6576253/2025/08/26/ibrahim-sangare-west-ham-forest-transfer/
@@ -29,8 +37,4 @@ https://nytimes.com/2025/08/26/world/europe/russia-ukraine-villages-dnipropetrov
 **Lil Nas X Pleads Not Guilty to Four Felony Charges**\
 `The “Old Town Road” rapper was arrested last Thursday after video appeared to show him walking down a street in Los Angeles wearing only his underwear.`\
 https://nytimes.com/2025/08/26/arts/music/lil-nas-x-felony-charges-los-angeles.html
-
-**Judge Dismisses Trump Administration Suit Against Federal Bench in Maryland**\
-`The judge used the ruling to take President Trump and some of his top aides to task for having repeatedly attacked other judges who have dared to rule against the White House.`\
-https://nytimes.com/2025/08/26/us/politics/trump-suit-maryland-judges.html
 
