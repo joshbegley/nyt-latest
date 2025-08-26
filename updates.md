@@ -1,3 +1,15 @@
+**NFL places Texans S Jimmie Ward on Commissioner's Exempt List: Reports**\
+`Ward is facing a domestic assault lawsuit filed by the mother of his 3-year-old child earlier this month.`\
+https://nytimes.com/athletic/6577214/2025/08/26/nfl-texans-jimmie-ward-commissioners-exempt-list/
+
+**Commanders 53-man roster: 5 takeaways as team keeps 5 receivers, 7 linebackers**\
+`There were few surprises as Washington set its initial roster, and the Commanders could very well look to make changes in the coming days.`\
+https://nytimes.com/athletic/6577213/2025/08/26/commanders-53-man-roster-sam-cosmi-jacory-croskey-merritt/
+
+**Sheffield Wednesday 1 Leeds 1 (3-0 pens): Farke's team out as Calvert-Lewin endures debut to forget**\
+`Leeds are out of the Carabao Cup at the first hurdle after a penalty shootout defeat to Championship crisis club Wednesday`\
+https://nytimes.com/athletic/6573029/2025/08/26/sheffield-wednesday-1-leeds-1-calvert-lewin-horvath-penalties/
+
 **Patriots 53-man roster: One thought on every player who made the (initial) team**\
 `The Patriots are down to 53 players. But don't get comfortable yet. They're likely to put in several waiver claims over the next 24 hours.`\
 https://nytimes.com/athletic/6577118/2025/08/26/patriots-53-man-roster-kyle-dugger-kendrick-bourne/
