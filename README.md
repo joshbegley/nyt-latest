@@ -1,3 +1,11 @@
+**TAFC: Chaos, Newcastle striker irony, a 16-year-old matchwinner. Plus: Transfer latest on Guehi**\
+`Today in TAFC: A match laced with irony, Isak transfer latest, is xG broken and Cole Palmer's cunning disguise...`\
+https://nytimes.com/athletic/6575696/2025/08/26/newcastle-liverpool-isak-transfers-result/
+
+**Bottas, Perez unveiled as Cadillac's drivers ahead of F1 debut in 2026**\
+`The two 35-year-olds bring a combined 26 seasons of F1 driving experience to the American team.`\
+https://nytimes.com/athletic/6565097/2025/08/26/valtteri-bottas-sergio-perez-cadillac-f1/
+
 **Journalism in Gaza**\
 `We look at a deadly strike — and explore the challenges of reporting from the enclave.`\
 https://nytimes.com/2025/08/26/briefing/gaza-nasser-hospital-journalists.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6488840/2025/08/26/los-angeles-kings-nhl-pipeline-r
 **Canucks rank No. 22 in NHL Pipeline Rankings for 2025**\
 `Vancouver has a decent but not deep system, in part due to how light the team has been on picks in some of the last five years.`\
 https://nytimes.com/athletic/6486174/2025/08/26/vancouver-canucks-nhl-pipeline-rankings-2025/
-
-**Stars rank No. 23 in NHL Pipeline Rankings for 2025**\
-`The Stars' pipeline is quite light, in part due to how few picks they’ve made in recent years.`\
-https://nytimes.com/athletic/6495305/2025/08/26/dallas-stars-nhl-pipeline-rankings-2025/
-
-**Hurricanes rank No. 18 in NHL Pipeline Rankings for 2025**\
-`Alexander Nikishin and Seth Jarvis aging out of the pool knocks down the Hurricanes, but they're still in a promising spot for a contender.`\
-https://nytimes.com/athletic/6488787/2025/08/26/carolina-hurricanes-nhl-pipeline-rankings-2025/
 
