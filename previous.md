@@ -1,3 +1,11 @@
+**The Windup: Two types of baseball meltdowns**\
+`Welcome to The Windup, The Athletic's MLB newsletter.`\
+https://nytimes.com/athletic/6575534/2025/08/26/willson-contreras-bat-throw-the-windup/
+
+**How to watch the 2025 Miami Dolphins: Schedule and streaming for the South Beach squad**\
+`Amid new broadcast rules and restrictions, here's how to watch all 17 regular-season Dolphins games this season.`\
+https://nytimes.com/athletic/6570444/2025/08/26/miami-dolphins-2025-schedule-how-to-watch/
+
 **Joe Hickerson, 89, Dies; Helped Preserve America’s Folk Song Tradition**\
 `He was both the longtime archivist of folk music at the Library of Congress and a widely respected singer and songwriter.`\
 https://nytimes.com/2025/08/26/arts/music/joe-hickerson-dead.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/08/26/style/street-style-look-primary-color-clothes.htm
 **A Teen Was Suicidal. ChatGPT Was the Friend He Confided In.**\
 `More people are turning to general-purpose chatbots for emotional support. At first, Adam Raine, 16, used ChatGPT for schoolwork, but then he started discussing plans to end his life.`\
 https://nytimes.com/2025/08/26/technology/chatgpt-openai-suicide.html
-
-**How to watch the New York Jets in 2025: Schedule, streaming for Aaron Glenn's Gang Green**\
-`Here's how to watch the New York Jets this season, with games scheduled across five networks in 2025.`\
-https://nytimes.com/athletic/6533882/2025/08/26/new-york-jets-schedule-2025-how-to-watch/
-
-**Michigan 2025 streaming guide: Broadcast info, schedule format for Wolverines football**\
-`It's time for more Meee-chigan. Here's how fans can watch all of the Wolverines' regular-season games this year.`\
-https://nytimes.com/athletic/6568781/2025/08/26/michigan-football-wolverines-how-to-watch-2025-schedule/
 

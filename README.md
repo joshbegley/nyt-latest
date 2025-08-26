@@ -1,3 +1,11 @@
+**Jack Smith’s Legal Team Fires Back Against Ethics Complaint**\
+`For months, the former special counsel has remained silent as the president and his advisers have publicly attacked him.`\
+https://nytimes.com/2025/08/26/us/jack-smith-ethics-complaint-trump.html
+
+**Wolves close to deal for Girona defender Ladislav Krejci**\
+`Krejci is set to join Wolves on an initial loan which will become a permanent transfer in future.`\
+https://nytimes.com/athletic/6575944/2025/08/26/wolves-deal-girona-transfer-ladislav-krejci/
+
 **The Windup: Two types of baseball meltdowns**\
 `Welcome to The Windup, The Athletic's MLB newsletter.`\
 https://nytimes.com/athletic/6575534/2025/08/26/willson-contreras-bat-throw-the-windup/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6573104/2025/08/26/buffalo-bills-josh-allen-2025-sc
 **Max Dowman: How did Arsenal prepare 15-year-old for debut? What are the rules? How much will he play?**\
 `Aged 15 years and 235 days, Dowman became the second-youngest player in Premier League history after fellow Arsenal player Ethan Nwaneri`\
 https://nytimes.com/athletic/6573626/2025/08/26/max-dowman-arsenal-rules-playing/
-
-**Packing a Punch in Primary Color Plaid**\
-`A vibrant red-and-blue dress reflected its wearer’s taste for color.`\
-https://nytimes.com/2025/08/26/style/street-style-look-primary-color-clothes.html
-
-**A Teen Was Suicidal. ChatGPT Was the Friend He Confided In.**\
-`More people are turning to general-purpose chatbots for emotional support. At first, Adam Raine, 16, used ChatGPT for schoolwork, but then he started discussing plans to end his life.`\
-https://nytimes.com/2025/08/26/technology/chatgpt-openai-suicide.html
 
