@@ -1,3 +1,15 @@
+**Submit your bold predictions for the Blues’ 2025-26 season**\
+`Submit your predictions here, and Blues writer Jeremy Rutherford will pick a handful to analyze in an upcoming story.`\
+https://nytimes.com/athletic/6576909/2025/08/26/bold-predictions-blues-subscribers/
+
+**Taylor Swift's engagement arrives right on time for Iga Swiatek's first U.S. Open win of 2025**\
+`Świątek, a tournament favorite, was consumed by Swift and Kelce's engagement as any Swiftie ought to be.`\
+https://nytimes.com/athletic/6576896/2025/08/26/taylor-swift-engagement-fan-reactions-iga-swiatek-swiftie/
+
+**Browns release veteran kicker Dustin Hopkins**\
+`The 34-year-old's struggles from 2024, when he was 18-of-27 on field goal attempts, carried over into the preseason. `\
+https://nytimes.com/athletic/6572439/2025/08/26/browns-release-dustin-hopkins/
+
 **Ohio State, Dave Portnoy disagree on whether Barstool founder was banned**\
 `Portnoy, a graduate of Michigan, is expected to make his debut on “Big Noon Kickoff” Saturday. The show will be broadcast from Ohio Stadium.`\
 https://nytimes.com/athletic/6575822/2025/08/26/dave-portnoy-barstool-ohio-state/
