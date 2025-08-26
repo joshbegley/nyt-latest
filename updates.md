@@ -1,3 +1,8 @@
+**Inside Cadillac's F1 driver choice: Why Pérez and Bottas beat out American hopefuls**\
+`In Valtteri Bottas and Sergio Pérez, Cadillac prioritized proven F1 veterans over homegrown American talent — for now.  
+`\
+https://nytimes.com/athletic/6574657/2025/08/26/cadillac-f1-drivers-sergio-perez-valtteri-bottas-american/
+
 **How to watch the New York Jets in 2025: Schedule, streaming for Aaron Glenn's Gang Green**\
 `Here's how to watch the New York Jets this season, with games scheduled across five networks in 2025.`\
 https://nytimes.com/athletic/6533882/2025/08/26/new-york-jets-schedule-2025-how-to-watch/

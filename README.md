@@ -1,3 +1,7 @@
+**A Teen Was Suicidal. ChatGPT Was the Friend He Confided In.**\
+`More people are turning to general-purpose chatbots for emotional support. At first, Adam Raine, 16, used ChatGPT for schoolwork, but then he started discussing plans to end his life.`\
+https://nytimes.com/2025/08/26/technology/chatgpt-openai-suicide.html
+
 **How to watch the New York Jets in 2025: Schedule, streaming for Aaron Glenn's Gang Green**\
 `Here's how to watch the New York Jets this season, with games scheduled across five networks in 2025.`\
 https://nytimes.com/athletic/6533882/2025/08/26/new-york-jets-schedule-2025-how-to-watch/
@@ -33,9 +37,4 @@ https://nytimes.com/athletic/6561322/2025/08/26/cardinals-mailbag-chaim-bloom/
 **On Phones and Childhood: The Week 10 Winners of Our Summer Reading Contest**\
 `As our contest comes to a close, we honor both a video and an essay, and hear reflections on this year’s submissions from our judges.`\
 https://nytimes.com/2025/08/26/learning/on-phones-and-childhood-the-week-10-winners-of-our-summer-reading-contest.html
-
-**Inside Cadillac's F1 driver choice: Why Pérez and Bottas beat out American hopefuls**\
-`In Valtteri Bottas and Sergio Pérez, Cadillac prioritized proven F1 veterans over homegrown American talent — for now.  
-`\
-https://nytimes.com/athletic/6574657/2025/08/26/cadillac-f1-drivers-sergio-perez-valtteri-bottas-american/
 
