@@ -1,3 +1,7 @@
+**Michigan 2025 streaming guide: Broadcast info, schedule format for Wolverines football**\
+`It's time for more Meee-chigan. Here's how fans can watch all of the Wolverines' regular-season games this year.`\
+https://nytimes.com/athletic/6568781/2025/08/26/michigan-football-wolverines-how-to-watch-2025-schedule/
+
 **Ranking the Big Ten's conference schedules, from Wisconsin to Michigan**\
 `With 18 teams under the Big Ten umbrella, the conference’s schedules have more disparity now than ever before.`\
 https://nytimes.com/athletic/6570309/2025/08/26/big-ten-football-schedule-strength-rankings/
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/6574657/2025/08/26/cadillac-f1-drivers-sergio-perez
 **TAFC: Chaos, Newcastle striker irony, a 16-year-old matchwinner. Plus: Transfer latest on Guehi**\
 `Today in TAFC: A match laced with irony, Isak transfer latest, is xG broken and Cole Palmer's cunning disguise...`\
 https://nytimes.com/athletic/6575696/2025/08/26/newcastle-liverpool-isak-transfers-result/
-
-**Bottas, Pérez unveiled as Cadillac's drivers ahead of F1 debut in 2026**\
-`The two 35-year-olds bring a combined 26 seasons of F1 driving experience to the American team.`\
-https://nytimes.com/athletic/6565097/2025/08/26/valtteri-bottas-sergio-perez-cadillac-f1/
 

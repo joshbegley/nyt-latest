@@ -1,3 +1,8 @@
+**Inside Cadillac's F1 driver choice: Why Pérez and Bottas beat out American hopefuls**\
+`In Valtteri Bottas and Sergio Pérez, Cadillac prioritized proven F1 veterans over homegrown American talent — for now.  
+`\
+https://nytimes.com/athletic/6574657/2025/08/26/cadillac-f1-drivers-sergio-perez-valtteri-bottas-american/
+
 **Ranking the Big Ten's conference schedules, from Wisconsin to Michigan**\
 `With 18 teams under the Big Ten umbrella, the conference’s schedules have more disparity now than ever before.`\
 https://nytimes.com/athletic/6570309/2025/08/26/big-ten-football-schedule-strength-rankings/
