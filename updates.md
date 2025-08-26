@@ -1,3 +1,11 @@
+**Tuesday Briefing: Israeli Strikes Killed Five Journalists**\
+`Also, a knockoff Starbucks in North Korea.`\
+https://nytimes.com/2025/08/26/briefing/israel-gaza-journalists-killed-south-korea-trump-china-evergrande.html
+
+**For one night, Mets show what they can be down the stretch**\
+`Of New York’s 13 runs, all but one was driven in by the bottom five hitters in the order.`\
+https://nytimes.com/athletic/6575434/2025/08/26/mets-show-what-they-can-be-down-stretch/
+
 **YouTube TV, Fox locked in carriage dispute ahead of big football weekend**\
 `YouTube TV subscribers could lose access to Fox Sports and other Fox properties if a deal is not reached by the Wednesday deadline.`\
 https://nytimes.com/athletic/6575416/2025/08/26/youtube-fox-sports-carriage-dispute-big-football-weekend/

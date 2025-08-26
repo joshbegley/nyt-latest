@@ -1,3 +1,7 @@
+**Lisa Cook Says She Will Not Step Down From the Fed**\
+`Ms. Cook said that she would not resign from the board of governors, hours after President Trump announced he was firing her.`\
+https://nytimes.com/2025/08/26/us/politics/lisa-cook-fed-governor.html
+
 **Tuesday Briefing: Israeli Strikes Killed Five Journalists**\
 `Also, a knockoff Starbucks in North Korea.`\
 https://nytimes.com/2025/08/26/briefing/israel-gaza-journalists-killed-south-korea-trump-china-evergrande.html
@@ -20,7 +24,7 @@ https://nytimes.com/athletic/6573613/2025/08/26/mads-hermansen-graham-potter-wes
 
 **Australia Accuses Iran of Directing Antisemitic Arson Attacks**\
 `The government abruptly severed diplomatic ties and ejected Iran’s ambassador, saying the country had orchestrated attacks in Sydney and Melbourne last year.`\
-https://nytimes.com/2025/08/26/world/australia/australia-iran-jewish.html
+https://nytimes.com/2025/08/26/world/australia/australia-iran-antisemitic-attacks.html
 
 **Why is London so appealing to new arrivals to the Premier League?**\
 `Nightlife? Money? Communities from around the world? We speak to those in the game to see why some players choose London over elsewhere`\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6573750/2025/08/26/james-horncastles-serie-a-briefi
 **Bundesliga briefing: Leverkusen and Ten Hag concerns, a VAR oddity and a fabulous tifo**\
 `An ugly start for Ten Hag at Leverkusen, a controversially disallowed goal and a wonder free kick`\
 https://nytimes.com/athletic/6573652/2025/08/26/bundesliga-ten-hag-harry-kane/
-
-**4 A.M. at a Beijing Labor Market: Jobs, and Hope, Are in Short Supply**\
-`China’s economic slowdown has fallen especially hard on older migrant workers, who often don’t have the technical skills that employers are seeking.`\
-https://nytimes.com/2025/08/26/world/asia/china-jobs-economy.html
 
