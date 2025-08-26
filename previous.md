@@ -1,3 +1,19 @@
+**Trump Wants to Call It the War Department Again: What to Know**\
+`The president said War Department “just sounded better” than Defense Department, a name that has been in use since 1949.`\
+https://nytimes.com/2025/08/26/us/politics/trump-defense-department-war-rename.html
+
+**Seeking to Control the Fed, Trump Risks Upending a Pillar of the Global Economy**\
+`President Trump’s attempt to fire Lisa Cook, a Fed governor, will set off a long legal battle. Economists warn it could lead to higher inflation and government borrowing costs.`\
+https://nytimes.com/2025/08/26/business/trump-fed-lisa-cook.html
+
+**IShowSpeed to join NFL's YouTube debut for Week 1 Chiefs-Chargers matchup**\
+`The streaming megastar will join three other influencers available to fans through YouTube's "Watch With" alternate broadcast feed.`\
+https://nytimes.com/athletic/6576266/2025/08/26/ishowspeed-nfl-youtube-chiefs-chargers/
+
+**Russian Troops Gain a Toehold in Another Ukrainian Region**\
+`For the first time, Russian forces seized villages in the Dnipropetrovsk region, a minor but symbolic gain that gives the Kremlin another bargaining chip.`\
+https://nytimes.com/2025/08/26/world/europe/russia-ukraine-villages-dnipropetrovsk.html
+
 **Lil Nas X Pleads Not Guilty to Four Felony Charges**\
 `The “Old Town Road” rapper was arrested last Thursday after video appeared to show him walking down a street in Los Angeles wearing only his underwear.`\
 https://nytimes.com/2025/08/26/arts/lil-nas-x-felony-charges-los-angeles.html
@@ -14,23 +30,7 @@ https://nytimes.com/2025/08/26/us/politics/state-department-washington-trump.htm
 `Teams must trim their rosters to 53 players by 4 p.m. ET on Tuesday. Here are some of the bigger names to be cut so far.`\
 https://nytimes.com/athletic/6576197/2025/08/26/nfl-cuts-roster-tracker/
 
-**Fears of the French Government Collapsing Send Its Borrowing Costs Soaring**\
+**Fears of a French Government Collapse Send Its Borrowing Costs Soaring**\
 `France’s finance minister suggested that a cornerstone of the European economy might need help from the International Monetary Fund if a political and debt crisis were not addressed.`\
 https://nytimes.com/2025/08/26/business/france-government-collapse-economy.html
-
-**McConnell signs new Liverpool contract, poised to join Ajax on loan**\
-`Ajax head coach John Heitinga knows the England youth international, having previously worked with him at Liverpool.`\
-https://nytimes.com/athletic/6576168/2025/08/26/liverpool-james-mcconnell-contract-ajax/
-
-**Rio Ngumoha: Why did he leave Chelsea, when is tribunal to decide compensation, and what contract is he on?**\
-`All the key questions surrounding the Liverpool prodigy answered`\
-https://nytimes.com/athletic/6575823/2025/08/26/rio-ngumoha-situation-explained-chelsea-tribunal-compensation-contract/
-
-**Journalist Mariam Dagga Killed in Gaza**\
-`Colleagues of Mariam Dagga, the visual reporter who was among the five journalists killed on Monday by Israeli strikes on a southern Gaza hospital, mourned as they held onto her camera.`\
-https://nytimes.com/video/world/middleeast/100000010361074/mariam-dagga-gaza-journalist-killed.html
-
-**Protesters in Israel Demand End of War in Gaza, Freedom of Hostages**\
-`Israelis took to the streets to urge the government to take action to free hostages held in Gaza, as the Israeli military pushed ahead with a widening offensive in Gaza City.`\
-https://nytimes.com/video/world/middleeast/100000010361198/gaza-war-protests-israel.html
 
