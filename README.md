@@ -1,5 +1,9 @@
+**Fears of the French Government Collapsing Send Its Borrowing Costs Soaring**\
+`France’s finance minister suggested that a cornerstone of the European economy might need help from the International Monetary Fund if a political and debt crisis were not addressed.`\
+https://nytimes.com/2025/08/26/business/france-government-collapse-economy.html
+
 **McConnell signs new Liverpool contract, poised to join Ajax on loan**\
-`Ajax head coach Johnny Heitinga knows the England youth international, having previously worked with him at Liverpool.`\
+`Ajax head coach John Heitinga knows the England youth international, having previously worked with him at Liverpool.`\
 https://nytimes.com/athletic/6576168/2025/08/26/liverpool-james-mcconnell-contract-ajax/
 
 **Rio Ngumoha: Why did he leave Chelsea, when is tribunal to decide compensation, and what contract is he on?**\
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/26/climate/africa-china-solar-panels.html
 **Judge Rules Utah Must Redraw Its Congressional Map, Frustrating Republicans**\
 `A G.O.P. effort to carve up a Democratic stronghold ignored the will of voters, a judge said. The ruling, which Republicans can appeal, makes the state another battleground in the national fight over redistricting.`\
 https://nytimes.com/2025/08/26/us/utah-congress-gerrymander-redistricting.html
-
-**What Manny Malhotra learned from winning the Calder Cup**\
-`Malhotra's instantaneous AHL success has put him on every industry short list for best up-and-coming young head coaches in the sport.`\
-https://nytimes.com/athletic/6575550/2025/08/26/abbotsford-canucks-calder-cup-coach-manny-malhotra/
 
