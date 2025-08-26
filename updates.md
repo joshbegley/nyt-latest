@@ -1,3 +1,7 @@
+**Venus Williams makes magic at the U.S. Open before falling to Karolina Muchova**\
+`The 45-year-old's 25th main-draw singles appearance ended in a gallant defeat to the multitalented Czech.`\
+https://nytimes.com/athletic/6575217/2025/08/25/us-open-venus-williams-first-round-result-analysis/
+
 **Read Trump’s Directive Firing Lisa Cook**\
 `The president said in a letter on Monday that he was removing the Federal Reserve governor from her duties, effective immediately.`\
 https://nytimes.com/interactive/2025/08/25/us/trump-lisa-cook-fed-firing.html
