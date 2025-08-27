@@ -1,3 +1,11 @@
+**UNC QB Gio Lopez to start vs. TCU in Week 1, Bill Belichick says**\
+`"I feel very comfortable with him and what he’s doing," Belichick said of Lopez, who transferred from South Alabama in April.`\
+https://nytimes.com/athletic/6579560/2025/08/27/unc-bill-belichick-gio-lopez-starting-qb/
+
+**Other shootings in recent years have targeted places of worship.**\
+`By Sonia A. Rao`\
+https://nytimes.com/live/2025/08/27/us/minneapolis-church-shooting/other-shootings-in-recent-years-have-targeted-places-of-worship
+
 **Liverpool add Iubel to Slot's coaching staff**\
 `The highly-rated Brazilian has stepped down from his position as assistant coach of Atletico Mineiro ahead of the move.`\
 https://nytimes.com/athletic/6579566/2025/08/27/liverpool-coaches-arne-slot-iubel/
@@ -29,13 +37,4 @@ https://nytimes.com/athletic/6579119/2025/08/27/dawn-staley-knicks-head-coaching
 **Skip Bayless to join Gilbert Arenas' new football show in channel rebrand**\
 `“The Arena: Gridiron” will feature Bayless, former NFL cornerback Aqib Talib and former NFL coach Jay Gruden.`\
 https://nytimes.com/athletic/6579313/2025/08/27/skip-bayless-gilbert-arenas-underdog-football-show/
-
-**McDavid 'taking my time' to work out contract extension with Oilers**\
-`McDavid is entering the final year of his current deal and can hit unrestricted free agency when that expires next summer.
-`\
-https://nytimes.com/athletic/6579447/2025/08/27/connor-mcdavid-oilers-contract-extension-nhl/
-
-**At Least Two Children Are Killed in Minneapolis Church Shooting**\
-`A gunman fired a rifle through the windows of a Roman Catholic church in Minneapolis where students were celebrating their first Mass of the new school year on Wednesday.`\
-https://nytimes.com/video/us/100000010364324/minneapolis-catholic-school-shooting.html
 
