@@ -1,3 +1,7 @@
+**I Can’t Look Away From This Poem About Looking**\
+`Our critic A.O. Scott gazes into a well with Robert Frost.`\
+https://nytimes.com/interactive/2025/08/27/books/robert-frost-for-once-then-something-poem.html
+
 **Nvidia Sales Jump 56%, a Sign the A.I. Boom Isn’t Slowing Down**\
 `The chipmaker, now the most valuable public company in the world, said strong demand for its chips should continue this quarter.`\
 https://nytimes.com/2025/08/27/technology/nvidia-earnings-ai-chips.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/27/us/politics/supreme-court-fed-trump.html
 **When a Horse Has a Toothache, Specialized Dentists Step In**\
 `There is evidence that even ancient horses received dental care, and now caregivers can use motorized tools to keep the animals healthy.`\
 https://nytimes.com/2025/08/27/sports/horse-teeth-specialized-dentists.html
-
-**It’s a Very American Equestrian Discipline. Europeans Are Intrigued.**\
-`Riding horses in the languid, American hunter style has long been dismissed by many speed-loving show jumpers. Now it may be catching on abroad.`\
-https://nytimes.com/2025/08/27/sports/hunters-horses-riding.html
 

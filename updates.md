@@ -1,3 +1,7 @@
+**I Can’t Look Away From This Poem About Looking**\
+`Our critic A.O. Scott gazes into a well with Robert Frost.`\
+https://nytimes.com/interactive/2025/08/27/books/robert-frost-for-once-then-something-poem.html
+
 **Nvidia Sales Jump 56%, a Sign the A.I. Boom Isn’t Slowing Down**\
 `The chipmaker, now the most valuable public company in the world, said strong demand for its chips should continue this quarter.`\
 https://nytimes.com/2025/08/27/technology/nvidia-earnings-ai-chips.html
