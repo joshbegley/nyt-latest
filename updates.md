@@ -1,3 +1,5 @@
+
+
 **The ‘Political Theater’ of Troops in Cities**\
 `Readers react to the Trump administration’s deployment of U.S. military in cities. Also: A California voter’s choice on gerrymandering; the impact of ICE raids.`\
 https://nytimes.com/2025/08/27/opinion/the-political-theater-of-troops-in-cities.html
