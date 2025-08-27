@@ -14,8 +14,8 @@ https://nytimes.com/2025/08/27/theater/tshidi-manye-lion-king-rafiki.html
 `A new Netflix series, with direction by Spike Lee, revisits the storm’s devastation and looks at what has changed in the 20 years since, and what hasn’t.`\
 https://nytimes.com/2025/08/27/arts/television/katrina-come-hell-and-high-water-netflix-spike-lee.html
 
-**London City Lionesses complete signings of Zelem, Kennedy from Angel City**\
-`side said an undisclosed transfer fee had been agreed with London City for the two players.`\
+**London City Lionesses complete Zelem, Kennedy signings from Angel City**\
+`Both players had time remaining on their Angel City contracts and undisclosed fees were agreed with London City `\
 https://nytimes.com/athletic/6572747/2025/08/27/katie-zelem-alanna-kennedy-london-city-lionesses-transfer/
 
 **Union Station in Washington to Go Under Federal Control**\
