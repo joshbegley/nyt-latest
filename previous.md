@@ -1,3 +1,11 @@
+**Bills ‘Hard Knocks’ Week 4 takeaways: Focus turns to players who wound up getting cut**\
+`Plus, the man behind Josh Allen's improved mechanics.`\
+https://nytimes.com/athletic/6578111/2025/08/27/bills-hard-knocks-week-4-takeaways-roster-cuts/
+
+**The New State Interventions**\
+`Protectionism, industrial policy and government ownership — all once conservative boogeymen — have become official doctrine.`\
+https://nytimes.com/2025/08/27/briefing/intel-tariffs-the-fed-state-intervention.html
+
 **Red Sox will need to decide between Payton Tolle, Kyle Harrison for No. 5 starter**\
 `The Red Sox will have to weigh Tolle’s immense talent but lack of experience vs. Harrison’s big league experience but lack of consistency.`\
 https://nytimes.com/athletic/6577966/2025/08/27/boston-red-sox-fifth-starter-role/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6575843/2025/08/27/lsu-clemson-cfb-week-1-klubnik-n
 **Greenberg: Take down the 'Gone Fishing' sign, Dan Bernstein is back ... in podcast form**\
 `"I am facing, still facing, the consequences of my actions," said Bernstein, who was fired from The Score after ugly social media exchange.`\
 https://nytimes.com/athletic/6577738/2025/08/27/dan-bernstein-chicago-podcast-radio/
-
-**Devils rank No. 12 in NHL Pipeline Rankings for 2025**\
-`New Jersey's pipeline stays strong on the backs of three great young defensemen.`\
-https://nytimes.com/athletic/6486605/2025/08/27/new-jersey-devils-nhl-pipeline-rankings-2025/
-
-**NFC South preview: Just how much better are the Bucs than the rest of the division?**\
-`And if Tampa can’t recapture last year’s magic on offense, can Atlanta go bombs-away and catch the Bucs?`\
-https://nytimes.com/athletic/6577093/2025/08/27/nfc-south-predicted-standings-win-totals/
 
