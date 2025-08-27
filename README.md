@@ -1,3 +1,11 @@
+**In Trump’s 2nd Term, More Incarcerations, Less Talk of Reform**\
+`The president is signaling a tough-on-crime message for the midterms next year.`\
+https://nytimes.com/2025/08/27/us/politics/trump-criminal-justice.html
+
+**Pat Moore, a Model Turned Institution at P.J. Clarke’s, Dies at 89**\
+`She went from fashion shoots to becoming a familiar server at that venerable Manhattan saloon for some 45 years. She dated two of her more famous customers, Tony Bennett and Frank Sinatra.`\
+https://nytimes.com/2025/08/27/dining/pat-moore-dead.html
+
 **Sublime New Historical Fiction**\
 `Our columnist on four notable novels.`\
 https://nytimes.com/2025/08/27/books/review/sublime-new-historical-fiction.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6579981/2025/08/27/carabao-cup-third-round-draw/
 **How a Beautiful Summer Day on Lake Tahoe Suddenly Turned Deadly**\
 `An analysis of the turbulent weather that caught people off guard, flipping over boats and killing eight people.`\
 https://nytimes.com/interactive/2025/08/27/weather/lake-tahoe-storm.html
-
-**Former Puerto Rico Governor Pleads Guilty to Campaign Finance Violation**\
-`Wanda Vázquez had initially been accused of taking bribes to influence a regulatory appointment. A controversial plea deal resulted in a lesser charge.`\
-https://nytimes.com/2025/08/27/us/puerto-rico-vazquez-plea.html
-
-**UEFA Champions League Draw: Groups, matches, seedings and how to watch**\
-`All you need to know about the UEFA Champions League draw now the final qualifiers have been confirmed. `\
-https://nytimes.com/athletic/6578856/2025/08/27/uefa-champions-league-draw-2025-format-tv-channel/
 

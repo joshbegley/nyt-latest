@@ -1,3 +1,7 @@
+**Sublime New Historical Fiction**\
+`Our columnist on four notable novels.`\
+https://nytimes.com/2025/08/27/books/review/sublime-new-historical-fiction.html
+
 **John Bolton Inquiry Eyes Emails Obtained by Foreign Government**\
 `It is not clear what country intercepted Mr. Bolton’s private emails, but the investigation into President Trump’s former national security adviser picked up momentum under the Biden administration.`\
 https://nytimes.com/2025/08/27/us/politics/bolton-trump-emails-fbi-investigation.html
