@@ -1,6 +1,31 @@
+**Angela Mortimer, Tennis Champion Who Overcame Adversity, Dies at 93**\
+`She won three Grand Slam singles championships, including one at Wimbledon, in a career that earned her election to the International Tennis Hall of Fame.`\
+https://nytimes.com/2025/08/27/sports/tennis/angela-mortimer-dead.html
+
+**Dawn Staley says she would have taken Knicks' coaching job if offered**\
+`Staley said she believes she "lost the job" when she asked how the franchise would handle hiring the first female head coach in NBA history.`\
+https://nytimes.com/athletic/6579119/2025/08/27/dawn-staley-knicks-head-coaching-position-interview/
+
+**Skip Bayless to join Gilbert Arenas' new football show in channel rebrand**\
+`“The Arena: Gridiron” will feature Bayless, former NFL cornerback Aqib Talib and former NFL coach Jay Gruden.`\
+https://nytimes.com/athletic/6579313/2025/08/27/skip-bayless-gilbert-arenas-underdog-football-show/
+
+**McDavid 'taking my time' to work out contract extension with Oilers**\
+`McDavid is entering the final year of his current deal and can hit unrestricted free agency when that expires next summer.
+`\
+https://nytimes.com/athletic/6579447/2025/08/27/connor-mcdavid-oilers-contract-extension-nhl/
+
+**At Least Two Children Are Killed in Minneapolis Church Shooting**\
+`A gunman fired a rifle through the windows of a Roman Catholic church in Minneapolis where students were celebrating their first Mass of the new school year on Wednesday.`\
+https://nytimes.com/video/us/100000010364324/minneapolis-catholic-school-shooting.html
+
 **Trump’s D.C. Law Enforcement Takeover Has Black Parents on Edge**\
 `The deployment of federal agents and National Guard troops has caused some Black parents to return to the days of “the talk” about policing that they had hoped was no longer needed to keep their children safe.`\
 https://nytimes.com/2025/08/27/us/black-parents-washington-dc-crackdown-federal-law-enforcement.html
+
+**NFL wants expansion beyond this year's 7 international games**\
+`The CBA requires the NFL to negotiate with the NFLPA before the start of this season to expand to up to 10 international games in 2026.`\
+https://nytimes.com/athletic/6579264/2025/08/27/nfl-international-games-expansion-nflpa/
 
 **At the Stephex Masters Horse Auction, Buyers Hope to Nab a Champion**\
 `Picking the right one is an art and carries a lot of risk.`\
@@ -13,28 +38,4 @@ https://nytimes.com/2025/08/27/well/covid-vaccines-guidelines-fall-2025.html
 **Folarin Balogun added to USMNT's squad for September friendlies**\
 `U.S. Soccer hinted at a 23rd player joining the group that was revealed Tuesday, and it's the Monaco forward getting the call`\
 https://nytimes.com/athletic/6579397/2025/08/27/folarin-balogun-usmnt-squad-september-friendlies/
-
-**Besiktas end Oxlade-Chamberlain contract a year early**\
-`Oxlade-Chamberlain departs the Turkish Super Lig club a year before his contract was due to expire.`\
-https://nytimes.com/athletic/6490090/2025/08/27/alex-oxlade-chamberlain-transfer-besiktas/
-
-**This Crocodile Relative Was One of Dinosaurs’ Most Fearsome Predators**\
-`A fossil found in Argentina shows that up to the very end of the age of dinosaurs, they faced serious competition from other reptile species.`\
-https://nytimes.com/2025/08/27/science/land-crocodile-dinosaurs.html
-
-**Donald Trump to attend Ryder Cup in New York next month**\
-`PGA of America CEO Derek Sprague confirmed that the organization invited Trump "a number of weeks ago."`\
-https://nytimes.com/athletic/6579299/2025/08/27/donald-trump-ryder-cup-attendance-keegan-bradley/
-
-**Jack Draper out of U.S. Open with left arm injury despite winning opening match**\
-`Draper, a semifinalist last year, hadn't played ahead of the U.S. Open because of the injury.`\
-https://nytimes.com/athletic/6579324/2025/08/27/tennis-jack-draper-us-open-injury-out/
-
-**Betting for (by) dummies: Picking NFL futures and college's loaded Week 1**\
-`Jon Greenberg and Zac Jackson return for the start of football with some NFL futures bets and some college Week 1 bets.`\
-https://nytimes.com/athletic/6578861/2025/08/27/betting-dummies-nfl-futures-week-1-college-football/
-
-**The attack was the fourth deadly shooting in Minneapolis in just over 24 hours.**\
-`By Anushka Patil`\
-https://nytimes.com/live/2025/08/27/us/minneapolis-church-shooting/the-attack-was-the-fourth-deadly-shooting-in-minneapolis-in-just-over-24-hours
 
