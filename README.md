@@ -1,3 +1,35 @@
+**Full Weight of American Tariffs Slams Into Effect Against India**\
+`As punishment for buying Russian oil, President Trump is doubling the tax on goods imported from India, jeopardizing a relationship decades in the making.`\
+https://nytimes.com/2025/08/27/business/india-tariffs-trump-russia-oil.html
+
+**Breaking down Viktor Gyokeres’ trademark goal - and why it addresses an Arsenal weakness**\
+`The striker loves sprinting into the channels, especially on the left, where his pace and power make it hard for defenders to stop him`\
+https://nytimes.com/athletic/6574938/2025/08/27/viktor-gyokeres-trademark-goal-arsenal-analysis/
+
+**How Russian Oil Could Make Americans’ Diamonds More Expensive**\
+`The Trump administration increased tariffs on imports from India to 50 percent. It will likely disrupt the international diamond trade and potentially lead to increases in retail prices in America.`\
+https://nytimes.com/interactive/2025/08/27/business/india-tariffs-trump-russia-diamonds.html
+
+**Polly Bancroft, the ex-Man Utd head of women's football, who is now hoping for a Grimsby upset against them**\
+`Grimsby Town face Manchester United in the Carabao Cup second round on Wednesday. Meet their CEO, who is optimistic about the game...`\
+https://nytimes.com/athletic/6575777/2025/08/27/grimsby-polly-bancroft-manchester-united-interview/
+
+**From hating her body and not eating to modelling for Barbie: 'I thought I had to be skinny'**\
+`Sarah Bern has become the role model she did not have in the years when she needed one the most`\
+https://nytimes.com/athletic/6564773/2025/08/27/sarah-bern-interview-england-womens-rugby-world-cup/
+
+**Tyler Dibling to Everton: Everything you need to know - TLDR**\
+`Everton have added to their attacking options with Tyler Dibling from Southampton - here we break down the deal.`\
+https://nytimes.com/athletic/6576451/2025/08/27/tyler-dibling-everton-transfer-tldr/
+
+**Will Fulham's quiet summer in the transfer market inhibit their progress under Marco Silva?**\
+`Fulham are sticking to the blueprint that served them well last season – but is that enough in an evolving Premier League?`\
+https://nytimes.com/athletic/6575601/2025/08/27/fulham-transfers-tactics-marco-silva/
+
+**Connections: Sports Edition Coach: Hints for Aug. 27, 2025**\
+`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
+https://nytimes.com/athletic/6575828/2025/08/27/connections-sports-edition-hints-for-aug-27-2025/
+
 **Corrections: Aug. 27, 2025**\
 `Corrections that appeared in print on Wednesday, Aug. 27, 2025.`\
 https://nytimes.com/2025/08/26/pageoneplus/corrections-aug-27-2025.html
@@ -5,36 +37,4 @@ https://nytimes.com/2025/08/26/pageoneplus/corrections-aug-27-2025.html
 **Quote of the Day: Behind Trade Fears in U.S.: A Safety Net Flimsier Than Peers’**\
 `Quotation of the Day for Wednesday, August 27, 2025.`\
 https://nytimes.com/2025/08/26/pageoneplus/quote-of-the-day-behind-trade-fears-in-us-a-safety-net-flimsier-than-peers.html
-
-**Analyzing Chargers' initial 53-man roster: Unfinished product includes no long snapper**\
-`LS Josh Harris was placed on injured reserve with a designation to return, and the Chargers likely have work still to do with their roster.`\
-https://nytimes.com/athletic/6577937/2025/08/26/chargers-53-man-roster-analysis-2025/
-
-**FEMA Suspends Staff Who Signed a Letter Criticizing Trump**\
-`The letter, sent to Congress on Monday, said cuts made by the Trump administration had erased improvements made to disaster response since Hurricane Katrina.`\
-https://nytimes.com/2025/08/26/climate/fema-suspends-staff-who-criticized-trump-cuts.html
-
-**Trump’s Appointees Could Rule the Fed for Decades**\
-`If President Trump succeeds in replacing Lisa Cook, his nominees will make up a majority of the Federal Reserve’s seven-person board.`\
-https://nytimes.com/interactive/2025/08/26/us/politics/trump-fed-appointees.html
-
-**Deploy National Guard to Chicago? Trump Says He Has ‘The Right to Do Anything I Want to Do.’**\
-`President Trump, who has sent the military into Los Angeles and Washington, has targeted states and cities governed by Democrats.`\
-https://nytimes.com/2025/08/26/us/politics/trump-national-guard-chicago-dictator.html
-
-**Coco Gauff's new serve and a U.S. Open win over Ajla Tomljanovic built on old foundations**\
-`On the night that she debuted her new service motion, it was Gauff's tennis foundations that propelled her to victory.`\
-https://nytimes.com/athletic/6577932/2025/08/26/tennis-coco-gauff-us-open-tomljanovic-serve/
-
-**Iowa Democrat Appears to Flip State Legislative Seat in Upset Victory**\
-`The Senate seat in the Sioux City area had been held by a Republican. It would be the second time this year that Iowa Democrats had flipped a legislative district.`\
-https://nytimes.com/2025/08/26/us/politics/iowa-senate-election-democrats.html
-
-**Not at Home**\
-`Is Zhou Zhang a puzzle half-empty or half-full kind of constructor?`\
-https://nytimes.com/2025/08/26/crosswords/daily-puzzle-2025-08-27.html
-
-**Unexpected cuts, rookie revelations: 4 surprises as Chiefs set 53-man roster**\
-`The Chiefs' two most unexpected cuts come with an important caveat as the initial 53-man roster is likely to change soon.`\
-https://nytimes.com/athletic/6576123/2025/08/26/chiefs-53-man-roster-surprises/
 
