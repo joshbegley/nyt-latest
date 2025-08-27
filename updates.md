@@ -1,3 +1,11 @@
+**What’s in Our Queue? ‘OK Computer’ and More**\
+`Text by Haiyun Jiang`\
+https://nytimes.com/card/2025/08/27/arts/editors-recommendations-okcomputer
+
+**Southampton agree £12m transfer for Middlesbrough's Azaz**\
+`The fee is in the region of £12million plus add-ons with the move expected to be finalised between the clubs in the coming days.`\
+https://nytimes.com/athletic/6579176/2025/08/27/finn-azaz-transfer-southampton-middlesbrough/
+
 **After Blocking U.N. Nuclear Watchdog, Iran Allows Inspectors to Return**\
 `Iran halted cooperation with the agency last month, as experts warned that Tehran may revive efforts to build a nuclear bomb.`\
 https://nytimes.com/2025/08/27/world/europe/iran-un-nuclear-watchdog-inspectors.html
