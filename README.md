@@ -1,3 +1,15 @@
+**Bills reunite with safety Jordan Poyer, expected to join practice squad: Source**\
+`Poyer, 34, played with the Bills from 2017-2023.`\
+https://nytimes.com/athletic/6578786/2025/08/27/buffalo-bills-jordan-poyer/
+
+**Indian Exports Hit With 50% U.S. Tariffs**\
+`Traders in India expressed concern after President Trump on Wednesday doubled the tax on nearly all goods imported from the subcontinent. The 50 percent rate, half of which is punishment for India’s buying of Russian oil, is expected to damage many Indian exporters.`\
+https://nytimes.com/video/world/asia/100000010363533/indian-exports-hit-with-50-us-tariffs.html
+
+**Bungling Arsonists, Antisemitic Attacks and a Diplomatic Rift**\
+`Australia has accused Iran of directing an attack on a Jewish restaurant in Sydney through a web of intermediaries. The operation on the ground, court records suggest, was messy.`\
+https://nytimes.com/2025/08/27/world/australia/arson-antisemitism-australia-iran.html
+
 **Want to Swim in the Seine This Summer? Paris Says There’s Still Time.**\
 `The city will extend its experiment with public bathing in the river until mid-September. Swimming there had been banned for a century over health risks.`\
 https://nytimes.com/2025/08/27/world/europe/paris-seine-river-swimming.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6575252/2025/08/27/oilers-evan-bouchard-chaos-defen
 **In Every Tree, a Trillion Tiny Lives**\
 `Scientists have found that a single tree can be home to a trillion microbial cells — an invisible ecosystem that is only beginning to be understood.`\
 https://nytimes.com/2025/08/27/science/biology-trees-microbiomes.html
-
-**India Reels at Trump’s Highest Tariffs Yet**\
-`Businesses and policymakers are casting around for help from unlikely places, as the country’s exports to the United States are crushed by 50 percent tariffs.`\
-https://nytimes.com/2025/08/27/business/india-trump-tariffs.html
-
-**Late-Night Killing of a Teenage Girl on a Bicycle Unnerves Amsterdam**\
-`A 17-year-old was stabbed to death as she rode home after a night out. Her killing has shaken a city where cycling safely at any hour is taken for granted.`\
-https://nytimes.com/2025/08/27/world/europe/amsterdam-murder-lisa.html
-
-**Even 2025’s Chaos Couldn’t Keep Brussels From the European August Holiday**\
-`With President Trump’s trade moves, war in Ukraine and wildfires, it was a busy month for the European Union. But not in Brussels.`\
-https://nytimes.com/2025/08/27/world/europe/brussels-august.html
 
