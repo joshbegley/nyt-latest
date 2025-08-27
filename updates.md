@@ -1,3 +1,7 @@
+**Why Howie Roseman traded for Sam Howell, CB2 intrigue, more Eagles 53-man roster takeaways**\
+`Plus, how the projected depth chart looks after today's moves.`\
+https://nytimes.com/athletic/6577725/2025/08/26/eagles-53-man-roster-howie-roseman-sam-howell-cornerback/
+
 **‘Spiritual Delusion’ Led to Father and Son’s Apparent Drownings, Sheriff Says**\
 `Vincen Miller, 4, died after he was thrown into Atwood Lake in Ohio. His mother is expected to face an aggravated murder charge, the authorities said.`\
 https://nytimes.com/2025/08/26/us/ohio-lake-drowning-mother-son-spiritual.html

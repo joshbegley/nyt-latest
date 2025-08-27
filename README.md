@@ -1,3 +1,7 @@
+**Cracker Barrel Drops New Logo Design After Conservative Backlash**\
+`The chain, known for its farmhouse aesthetic, ignited a social media firestorm when it announced its “fresh” rebrand last week.`\
+https://nytimes.com/2025/08/26/business/cracker-barrel-logo-rebrand.html
+
 **Why Howie Roseman traded for Sam Howell, CB2 intrigue, more Eagles 53-man roster takeaways**\
 `Plus, how the projected depth chart looks after today's moves.`\
 https://nytimes.com/athletic/6577725/2025/08/26/eagles-53-man-roster-howie-roseman-sam-howell-cornerback/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/26/us/politics/trump-chinese-students.html
 **This Couple Predicted Taylor Swift and Travis Kelce’s Relationship 5 Years Ago**\
 `They needed a Halloween costume. Five years later, some have suggested that they manifested the “Tayvis” marriage.`\
 https://nytimes.com/2025/08/26/arts/taylor-swift-travis-kelce-engagement-halloween-costume-prediction.html
-
-**Panthers 53-man roster: Adam Thielen stays (for now) plus where they might add players**\
-`Will Carolina hold onto Thielen so Bryce Young keeps a trusted playmaker? Hunter Renfrow is a cut casualty in the receivers room.`\
-https://nytimes.com/athletic/6577533/2025/08/26/panthers-53-man-roster-adam-thielen/
 

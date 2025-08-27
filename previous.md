@@ -1,3 +1,7 @@
+**Why Howie Roseman traded for Sam Howell, CB2 intrigue, more Eagles 53-man roster takeaways**\
+`Plus, how the projected depth chart looks after today's moves.`\
+https://nytimes.com/athletic/6577725/2025/08/26/eagles-53-man-roster-howie-roseman-sam-howell-cornerback/
+
 **‘Spiritual Delusion’ Led to Father and Son’s Apparent Drownings, Sheriff Says**\
 `Vincen Miller, 4, died after he was thrown into Atwood Lake in Ohio. His mother is expected to face an aggravated murder charge, the authorities said.`\
 https://nytimes.com/2025/08/26/us/ohio-lake-drowning-mother-son-spiritual.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/26/arts/taylor-swift-travis-kelce-engagement-hallowe
 **Panthers 53-man roster: Adam Thielen stays (for now) plus where they might add players**\
 `Will Carolina hold onto Thielen so Bryce Young keeps a trusted playmaker? Hunter Renfrow is a cut casualty in the receivers room.`\
 https://nytimes.com/athletic/6577533/2025/08/26/panthers-53-man-roster-adam-thielen/
-
-**Bills 53-man roster analysis: Tyrell Shavers, 'Buffalo Joe' Andreessen make the cut**\
-`Tre'Davious White also made the team amid injury concerns, and rookie Maxwell Hairston will start the season on IR.`\
-https://nytimes.com/athletic/6577480/2025/08/26/bills-initial-53-man-roster-analysis-tyrell-shavers-buffalo-joe-andreessen/
 
