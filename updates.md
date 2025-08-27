@@ -1,3 +1,5 @@
+
+
 **McDavid 'taking my time' to work out contract extension with Oilers**\
 `McDavid is entering the final year of his current deal and can hit unrestricted free agency when that expires next summer.
 `\
