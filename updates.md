@@ -1,3 +1,11 @@
+**Europe Has Found Its Formula for Managing Trump**\
+`It starts with flattery.`\
+https://nytimes.com/2025/08/27/opinion/europe-ukraine-trump.html
+
+**The New York Times in Print for Wednesday, Aug. 27, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/08/27/todays-new-york-times
+
 **Villa have signed 25 players since Emery's arrival - so why are so few of them in their starting XI?**\
 `The greatest gains during the Spaniard’s tenure have come through coaching, not recruitment - but the squad urgently requires new signings`\
 https://nytimes.com/athletic/6032896/2025/08/27/aston-villa-transfers-unai-emery-recruitment/

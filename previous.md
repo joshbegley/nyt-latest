@@ -1,3 +1,11 @@
+**Europe Has Found Its Formula for Managing Trump**\
+`It starts with flattery.`\
+https://nytimes.com/2025/08/27/opinion/europe-ukraine-trump.html
+
+**The New York Times in Print for Wednesday, Aug. 27, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/08/27/todays-new-york-times
+
 **Villa have signed 25 players since Emery's arrival - so why are so few of them in their starting XI?**\
 `The greatest gains during the Spaniard’s tenure have come through coaching, not recruitment - but the squad urgently requires new signings`\
 https://nytimes.com/athletic/6032896/2025/08/27/aston-villa-transfers-unai-emery-recruitment/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/08/27/business/india-tariffs-trump-russia-oil.html
 **Breaking down Viktor Gyokeres’ trademark goal - and why it addresses an Arsenal weakness**\
 `The striker loves sprinting into the channels, especially on the left, where his pace and power make it hard for defenders to stop him`\
 https://nytimes.com/athletic/6574938/2025/08/27/viktor-gyokeres-trademark-goal-arsenal-analysis/
-
-**How Russian Oil Could Make Americans’ Diamonds More Expensive**\
-`The Trump administration increased tariffs on imports from India to 50 percent. It will likely disrupt the international diamond trade and potentially lead to increases in retail prices in America.`\
-https://nytimes.com/interactive/2025/08/27/business/india-tariffs-trump-russia-diamonds.html
-
-**Polly Bancroft, the ex-Man Utd head of women's football, who is now hoping for a Grimsby upset against them**\
-`Grimsby Town face Manchester United in the Carabao Cup second round on Wednesday. Meet their CEO, who is optimistic about the game...`\
-https://nytimes.com/athletic/6575777/2025/08/27/grimsby-polly-bancroft-manchester-united-interview/
 
