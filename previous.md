@@ -1,3 +1,7 @@
+**Trump’s Appointees Could Rule the Fed for Decades**\
+`If President Trump succeeds in replacing Lisa Cook, his nominees will make up a majority of the Federal Reserve’s seven-person board.`\
+https://nytimes.com/interactive/2025/08/26/us/politics/trump-fed-appointees.html
+
 **Deploy National Guard to Chicago? Trump Says He Has ‘The Right to Do Anything I Want to Do.’**\
 `President Trump, who has sent the military into Los Angeles and Washington, has targeted states and cities governed by Democrats.`\
 https://nytimes.com/2025/08/26/us/politics/trump-national-guard-chicago-dictator.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/science/100000010363077/spacex-starship-launch-texas.h
 **Cowboys 53-man roster: Still 'open for business' after cuts, surprise keepers**\
 `Dallas still has questions at cornerback and defensive tackle remains its weakest position after Tuesday's cuts.`\
 https://nytimes.com/athletic/6577742/2025/08/26/cowboys-53-man-roster-cuts-mazi-smith/
-
-**Cracker Barrel Drops New Logo Design After Conservative Backlash**\
-`The chain, known for its farmhouse aesthetic, ignited a social media firestorm when it announced its “fresh” rebrand last week.`\
-https://nytimes.com/2025/08/26/business/cracker-barrel-logo-rebrand.html
 

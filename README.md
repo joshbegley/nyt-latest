@@ -1,3 +1,7 @@
+**FEMA Suspends Staff Who Signed a Letter Criticizing Trump**\
+`The letter, sent to Congress on Monday, said cuts made by the Trump administration had erased improvements made to disaster response since Hurricane Katrina.`\
+https://nytimes.com/2025/08/26/climate/fema-suspends-staff-who-criticized-trump-cuts.html
+
 **Trump’s Appointees Could Rule the Fed for Decades**\
 `If President Trump succeeds in replacing Lisa Cook, his nominees will make up a majority of the Federal Reserve’s seven-person board.`\
 https://nytimes.com/interactive/2025/08/26/us/politics/trump-fed-appointees.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/26/arts/television/alien-earth-season-1-episode-4-re
 **SpaceX Launches Critical Test of Mars Rocket**\
 `After two consecutive scrubs, SpaceX’s Starship vehicle launched on Tuesday night. The test aims to show that the mammoth rocket is capable of achieving key flight goals.`\
 https://nytimes.com/video/science/100000010363077/spacex-starship-launch-texas.html
-
-**Cowboys 53-man roster: Still 'open for business' after cuts, surprise keepers**\
-`Dallas still has questions at cornerback and defensive tackle remains its weakest position after Tuesday's cuts.`\
-https://nytimes.com/athletic/6577742/2025/08/26/cowboys-53-man-roster-cuts-mazi-smith/
 

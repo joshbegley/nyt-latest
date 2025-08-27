@@ -1,3 +1,7 @@
+**Trump’s Appointees Could Rule the Fed for Decades**\
+`If President Trump succeeds in replacing Lisa Cook, his nominees will make up a majority of the Federal Reserve’s seven-person board.`\
+https://nytimes.com/interactive/2025/08/26/us/politics/trump-fed-appointees.html
+
 **Deploy National Guard to Chicago? Trump Says He Has ‘The Right to Do Anything I Want to Do.’**\
 `President Trump, who has sent the military into Los Angeles and Washington, has targeted states and cities governed by Democrats.`\
 https://nytimes.com/2025/08/26/us/politics/trump-national-guard-chicago-dictator.html
