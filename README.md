@@ -1,3 +1,15 @@
+**Isak named in Sweden squad amid Newcastle standoff**\
+`The 25-year-old has not featured for Newcastle this term, either in preseason or in the club's opening two games of the new season.`\
+https://nytimes.com/athletic/6578350/2025/08/27/alexander-isak-sweden-squad-newcastle/
+
+**The Pulse: The Premier League’s teenage wunderkinds**\
+`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/6576052/2025/08/27/max-dowman-arsenal-rio-ngumoha-liverpool-the-pulse/
+
+**'Take the stigma out of this place': Phillies defiant after another loss at Citi Field**\
+`The Phillies suffered a demoralizing 6-5 defeat to the Mets, who now own a nine-game win streak at home against Philadelphia.`\
+https://nytimes.com/athletic/6578086/2025/08/27/phillies-mets-citi-field-loss/
+
 **Denmark Summons U.S. Envoy Over Espionage Allegations**\
 `It’s the latest twist in the Greenland drama. President Trump wants the island, but Denmark refuses to hand it over.`\
 https://nytimes.com/2025/08/27/world/europe/trump-denmark-greenland-us-embassy.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6576477/2025/08/27/josh-berry-nascar-cup-series-pla
 **Women's soccer fans are among the most loyal in sports — and eager to spend**\
 `Down to Business with Asli Pelit takes you through the exciting, fast-paced (and sometimes confusing) corporate side of women's soccer.`\
 https://nytimes.com/athletic/6577675/2025/08/27/women-soccer-fans-brand-support/
-
-**53 thoughts on the Jets’ initial 53-man roster after cut-down day**\
-`A look at every player on the first Aaron Glenn-, Darren Mougey-built roster.`\
-https://nytimes.com/athletic/6578046/2025/08/27/new-york-jets-initial-53-man-roster-cutdown-day/
-
-**Brian Kelly, Lincoln Riley and two college football powerhouses at the same crossroads**\
-`A little less than four years ago, just three days apart, a pair of heavyweight programs introduced two new, high-wattage coaches.`\
-https://nytimes.com/athletic/6575895/2025/08/27/brian-kelly-lsu-football-lincoln-riley-usc-football/
-
-**The biggest concern for each MLB contending team down the stretch**\
-`All contenders — from the juggernauts to those currently on the outside looking in — have key issues they’re facing or at least pondering. `\
-https://nytimes.com/athletic/6577911/2025/08/27/mlb-playoff-contenders-concerns-questions/
 

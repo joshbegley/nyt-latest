@@ -1,3 +1,11 @@
+**Denmark Summons U.S. Envoy Over Espionage Allegations**\
+`It’s the latest twist in the Greenland drama. President Trump wants the island, but Denmark refuses to hand it over.`\
+https://nytimes.com/2025/08/27/world/europe/trump-denmark-greenland-us-embassy.html
+
+**Van Gogh Museum in Fight With Dutch State That Threatens Its Future**\
+`Its director says that the Amsterdam museum could close unless the culture ministry increases funding to pay for a refurbishment.`\
+https://nytimes.com/2025/08/27/arts/design/van-gogh-museum-renovation.html
+
 **Germany Proposes Plan to Boost Recruitment or Resort to Draft**\
 `Some detractors think the new bill is too weak to fill the recruitment gap. Others worry it will inevitably lead to forced conscription.`\
 https://nytimes.com/2025/08/27/world/europe/germany-military-recruitment.html
