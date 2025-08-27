@@ -1,3 +1,11 @@
+**Deploy National Guard to Chicago? Trump Says He Has ‘The Right to Do Anything I Want to Do.’**\
+`President Trump, who has sent the military into Los Angeles and Washington, has targeted states and cities governed by Democrats.`\
+https://nytimes.com/2025/08/26/us/politics/trump-national-guard-chicago-dictator.html
+
+**Coco Gauff's new serve and a U.S. Open win over Ajla Tomljanovic built on old foundations**\
+`On the night that she debuted her new service motion, it was Gauff's tennis foundations that propelled her to victory.`\
+https://nytimes.com/athletic/6577932/2025/08/26/tennis-coco-gauff-us-open-tomljanovic-serve/
+
 **Iowa Democrat Appears to Flip State Legislative Seat in Upset Victory**\
 `The Senate seat in the Sioux City area had been held by a Republican. It would be the second time this year that Iowa Democrats had flipped a legislative district.`\
 https://nytimes.com/2025/08/26/us/politics/iowa-senate-election-democrats.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6577742/2025/08/26/cowboys-53-man-roster-cuts-mazi-
 **Cracker Barrel Drops New Logo Design After Conservative Backlash**\
 `The chain, known for its farmhouse aesthetic, ignited a social media firestorm when it announced its “fresh” rebrand last week.`\
 https://nytimes.com/2025/08/26/business/cracker-barrel-logo-rebrand.html
-
-**Why Howie Roseman traded for Sam Howell, CB2 intrigue, more Eagles 53-man roster takeaways**\
-`Plus, how the projected depth chart looks after today's moves.`\
-https://nytimes.com/athletic/6577725/2025/08/26/eagles-53-man-roster-howie-roseman-sam-howell-cornerback/
-
-**‘Spiritual Delusion’ Led to Father and Son’s Apparent Drownings, Sheriff Says**\
-`Vincen Miller, 4, died after he was thrown into Atwood Lake in Ohio. His mother is expected to face an aggravated murder charge, the authorities said.`\
-https://nytimes.com/2025/08/26/us/ohio-lake-drowning-mother-son-spiritual.html
 
