@@ -1,3 +1,35 @@
+**Spike Lee’s ‘Come Hell and High Water’ Shows Katrina’s Lingering Damage**\
+`Twenty years after the hurricane, the producer and showrunner Alisa Payne discussed the new Netflix documentary series in an interview.`\
+https://nytimes.com/2025/08/27/arts/television/katrina-alisa-payne-spike-lee.html
+
+**As PBS Stations Confront Cuts, American History Takes a Hit**\
+`The documentary series “American Experience” begins an abbreviated schedule this week. A victim of the federal funding take-back, it has suspended production and laid off its staff.`\
+https://nytimes.com/2025/08/27/arts/television/american-experience.html
+
+**Uncovering the Genes That Let Our Ancestors Walk Upright**\
+`A new study reveals some of the crucial molecular steps on the path to bipedalism.`\
+https://nytimes.com/2025/08/27/science/human-evolution-ilium-bipedal.html
+
+**Eric Kim’s Genius Two-Ingredient Fish**\
+`If you have white fish fillets and scallions — plus olive oil, salt, pepper and about 25 minutes — you have dinner.`\
+https://nytimes.com/2025/08/27/dining/eric-kims-genius-two-ingredient-fish.html
+
+**4 Approaches to Dealing With a Narcissist**\
+`We asked experts for books to help people understand narcissistic personality disorder.`\
+https://nytimes.com/2025/08/27/well/narcissism-books.html
+
+**It’s a Night Light. It’s a Plant. It’s a Glowing Succulent.**\
+`In a proof of concept, researchers demonstrated that they could bioengineer a couple of hours of light into a common plant.`\
+https://nytimes.com/2025/08/27/science/glowing-succulents.html
+
+**Six must-know storylines about the business of college football in 2025: MoneyCall**\
+`More from The Athletic's sports business weekly cheat sheet: Brady Rules update, Swift-Kelce engagement, MLB expansion and more.`\
+https://nytimes.com/athletic/6578693/2025/08/27/six-must-know-storylines-about-the-business-of-college-football-in-2025-moneycall/
+
+**The Windup: Deep thoughts about the 2026 schedule**\
+`Welcome to The Windup, The Athletic's MLB newsletter.`\
+https://nytimes.com/athletic/6578226/2025/08/27/2026-mlb-schedule-opening-day-the-windup/
+
 **Palace will not wear regular shirt sponsor against Fredrikstad**\
 `Palace's players will wear a special version of their 'Eagle Gold' third shirt, promoting the club's Palace For Life foundation.`\
 https://nytimes.com/athletic/6578777/2025/08/27/crystal-palace-shirt-sponsor-fredrikstad-net88/
@@ -5,36 +37,4 @@ https://nytimes.com/athletic/6578777/2025/08/27/crystal-palace-shirt-sponsor-fre
 **Safety Jordan Poyer reunites with Bills, expected to join practice squad: Source**\
 `Poyer, 34, played with the Bills from 2017-2023.`\
 https://nytimes.com/athletic/6578786/2025/08/27/buffalo-bills-jordan-poyer/
-
-**Indian Exports Hit With 50% U.S. Tariffs**\
-`Traders in India expressed concern after President Trump on Wednesday doubled the tax on nearly all goods imported from the subcontinent. The 50 percent rate, half of which is punishment for India’s buying of Russian oil, is expected to damage many Indian exporters.`\
-https://nytimes.com/video/world/asia/100000010363533/indian-exports-hit-with-50-us-tariffs.html
-
-**Bungling Arsonists, Antisemitic Attacks and a Diplomatic Rift**\
-`Australia has accused Iran of directing an attack on a Jewish restaurant in Sydney through a web of intermediaries. The operation on the ground, court records suggest, was messy.`\
-https://nytimes.com/2025/08/27/world/australia/arson-antisemitism-australia-iran.html
-
-**Want to Swim in the Seine This Summer? Paris Says There’s Still Time.**\
-`The city will extend its experiment with public bathing in the river until mid-September. Swimming there had been banned for a century over health risks.`\
-https://nytimes.com/2025/08/27/world/europe/paris-seine-river-swimming.html
-
-**Officials Respond to Reports of Shooting at Minneapolis Church**\
-`The shooting was reported at Annunciation Catholic Church, which operates a school.`\
-https://nytimes.com/2025/08/27/us/annunciation-church-shooting-minneapolis.html
-
-**The Smoking Hot Return of Bathing Culture**\
-`Saunas and other water-based amenities are booming in societies that once turned their backs on them.`\
-https://nytimes.com/2025/08/27/style/bathing-culture-trend.html
-
-**Jaguars acquiring WR Tim Patrick in trade with Lions**\
-`Patrick brings a veteran presence to the Jaguars' young WR room, led by second-year receiver Brian Thomas Jr. and rookie Travis Hunter.`\
-https://nytimes.com/athletic/6578674/2025/08/27/jaguars-lions-trade-tim-patrick-receiver/
-
-**Trump Administration Asks Supreme Court to Allow Freeze on Foreign Aid**\
-`The conservative majority has been largely receptive to the administration’s claims of executive power.`\
-https://nytimes.com/2025/08/27/us/politics/supreme-court-trump-foreign-aid.html
-
-**Lowetide: Why Bouchard is exceptional even on a championship-quality Oilers team**\
-`Bouchard can be a polarizing player with highlight-reel plays good and bad. But is that reputation justified?`\
-https://nytimes.com/athletic/6575252/2025/08/27/oilers-evan-bouchard-chaos-defence/
 
