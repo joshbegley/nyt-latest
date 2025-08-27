@@ -1,3 +1,15 @@
+**Democratic Mayors Convene After Trump’s Takeover Threats, Seeking United Front**\
+`“An attack on one of us is an attack on all of us,” said Mayor Justin Bibb of Cleveland, who led a private strategy call on Wednesday.`\
+https://nytimes.com/2025/08/27/us/politics/democrats-mayors-cities-trump-crime.html
+
+**C.D.C. Director Departs After Just Weeks in the Job**\
+`Susan Monarez’s brief tenure was roiled by Robert F. Kennedy Jr.’s decisions to overhaul vaccine policy and gut a critical advisory panel.`\
+https://nytimes.com/2025/08/27/health/cdc-monarez-kennedy-vaccines.html
+
+**Trump’s Campaign to Reverse Global Climate Progress**\
+`The U.S. president is putting pressure on other countries to burn more fossil fuels and retreat from clean energy.`\
+https://nytimes.com/2025/08/27/briefing/trump-climate-india-tariff-europe-military.html
+
 **Why Adam Thielen became the obvious WR choice for a Vikings team in a pinch**\
 `Thielen's fit is two-pronged. He's a Minnesota native who played there for nine years, but he should also pick up the offense quickly.`\
 https://nytimes.com/athletic/6579651/2025/08/27/adam-thielen-vikings-trade-wr/
