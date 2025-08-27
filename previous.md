@@ -1,3 +1,19 @@
+**Keegan Bradley's surprising decision says a lot about his Ryder Cup captaincy**\
+`No captain has ever been in the predicament Bradley was in over the last year, and there was temptation to lean in and choose himself.`\
+https://nytimes.com/athletic/6579453/2025/08/27/ryder-cup-2025-keegan-bradley-captain-choice/
+
+**John Fanta leaves Fox to become NBC's Big East announcer: Sources**\
+`The 30-year-old will become NBC Sports’ lead Big East basketball announcer and work in the studio for Big Ten and Notre Dame football games.`\
+https://nytimes.com/athletic/6579421/2025/08/27/john-fanta-nbc-big-east/
+
+**Taylor Swift and Travis Kelce Got Engaged. So Did They.**\
+`Sure, one couple stole the spotlight on Tuesday. But other couples who also got engaged had their own news to share — though some were more thrilled by the frenzy than others.`\
+https://nytimes.com/2025/08/27/us/taylor-swift-travis-kelce-engagement-couples.html
+
+**Milan exploring move for Chelsea's Nkunku**\
+`Nkunku has been the subject of interest from Bayern Munich and his former club RB Leipzig this summer.`\
+https://nytimes.com/athletic/6569341/2025/08/27/chelsea-transfer-news-nkunku-milan/
+
 **UNC QB Gio Lopez to start vs. TCU in Week 1, Bill Belichick says**\
 `"I feel very comfortable with him and what he’s doing," Belichick said of Lopez, who transferred from South Alabama in April.`\
 https://nytimes.com/athletic/6579560/2025/08/27/unc-bill-belichick-gio-lopez-starting-qb/
@@ -21,20 +37,4 @@ https://nytimes.com/paidpost/amazon/amazon-its-on-prime/amazon-its-on-prime.html
 **America and China Have Placed Their Wagers. Now We Wait.**\
 `The two superpowers have made different wagers. But their fates are intertwined.`\
 https://nytimes.com/2025/08/27/opinion/china-america-ai.html
-
-**Patriots claim Tommy DeVito, Tyler Huntley joins Ravens in post-cutdown roster moves**\
-`DeVito put on a show in the preseason finale for the Giants against the Patriots and now finds himself in New England. `\
-https://nytimes.com/athletic/6579535/2025/08/27/nfl-waiver-claims-tommy-devito/
-
-**Angela Mortimer, Tennis Champion Who Overcame Adversity, Dies at 93**\
-`She won three Grand Slam singles championships, including one at Wimbledon, in a career that earned her election to the International Tennis Hall of Fame.`\
-https://nytimes.com/2025/08/27/sports/tennis/angela-mortimer-dead.html
-
-**Dawn Staley says she would have taken Knicks' coaching job if offered**\
-`Staley said she believes she "lost the job" when she asked how the franchise would handle hiring the first female head coach in NBA history.`\
-https://nytimes.com/athletic/6579119/2025/08/27/dawn-staley-knicks-head-coaching-position-interview/
-
-**Skip Bayless to join Gilbert Arenas' new football show in channel rebrand**\
-`“The Arena: Gridiron” will feature Bayless, former NFL cornerback Aqib Talib and former NFL coach Jay Gruden.`\
-https://nytimes.com/athletic/6579313/2025/08/27/skip-bayless-gilbert-arenas-underdog-football-show/
 

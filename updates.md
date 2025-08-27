@@ -1,3 +1,19 @@
+**Keegan Bradley's surprising decision says a lot about his Ryder Cup captaincy**\
+`No captain has ever been in the predicament Bradley was in over the last year, and there was temptation to lean in and choose himself.`\
+https://nytimes.com/athletic/6579453/2025/08/27/ryder-cup-2025-keegan-bradley-captain-choice/
+
+**John Fanta leaves Fox to become NBC's Big East announcer: Sources**\
+`The 30-year-old will become NBC Sports’ lead Big East basketball announcer and work in the studio for Big Ten and Notre Dame football games.`\
+https://nytimes.com/athletic/6579421/2025/08/27/john-fanta-nbc-big-east/
+
+**Taylor Swift and Travis Kelce Got Engaged. So Did They.**\
+`Sure, one couple stole the spotlight on Tuesday. But other couples who also got engaged had their own news to share — though some were more thrilled by the frenzy than others.`\
+https://nytimes.com/2025/08/27/us/taylor-swift-travis-kelce-engagement-couples.html
+
+**Milan exploring move for Chelsea's Nkunku**\
+`Nkunku has been the subject of interest from Bayern Munich and his former club RB Leipzig this summer.`\
+https://nytimes.com/athletic/6569341/2025/08/27/chelsea-transfer-news-nkunku-milan/
+
 **UNC QB Gio Lopez to start vs. TCU in Week 1, Bill Belichick says**\
 `"I feel very comfortable with him and what he’s doing," Belichick said of Lopez, who transferred from South Alabama in April.`\
 https://nytimes.com/athletic/6579560/2025/08/27/unc-bill-belichick-gio-lopez-starting-qb/
