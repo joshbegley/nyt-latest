@@ -1,3 +1,15 @@
+**This 20-Minute Shrimp Curry Will Wow Everyone Who Tries It**\
+`Madhur Jaffrey’s Goan recipe is the perfect meal for any occasion — dinner party or just dinner.`\
+https://nytimes.com/2025/08/27/dining/quick-shrimp-curry.html
+
+**Sean Duffy to Announce Penn Station Renovation Will Begin in 2027**\
+`Amtrak intends to partner with a private developer to rebuild the dingy Manhattan train station on an accelerated schedule, transportation officials said.`\
+https://nytimes.com/2025/08/27/nyregion/penn-station-renovation-2027.html
+
+**‘Alligator Alcatraz’ Detention Center May Be Empty Within Days**\
+`A top Florida official wrote in an email that an immigration detention center in the Everglades may soon house no detainees.`\
+https://nytimes.com/2025/08/27/us/alligator-alcatraz-immigration-center-empty.html
+
 **Israel-Premier Tech team time trial disrupted by pro-Palestine protest at Vuelta a Espana**\
 `Wednesday’s stage was the first day of the Vuelta to take place on Spanish soil, circling the Catalan city of Figueres.`\
 https://nytimes.com/athletic/6579213/2025/08/27/israel-cycling-team-palestine-protestors-vuelta-a-espana/
