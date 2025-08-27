@@ -1,3 +1,7 @@
+**UEFA Champions League Draw: Groups, matches, seedings and how to watch**\
+`All you need to know about the UEFA Champions League draw now the final qualifiers have been confirmed. `\
+https://nytimes.com/athletic/6578856/2025/08/27/uefa-champions-league-draw-2025-format-tv-channel/
+
 **Travis Kelce and Taylor Swift Are Engaged. Kansas City Is Enchanted.**\
 `Chiefs fans have been cheering on their star football player’s romance with the pop star for two years. They have the T-shirts, earrings and baked goods to prove it.`\
 https://nytimes.com/2025/08/27/us/taylor-swift-travis-kelce-engaged-kansas-city.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6578939/2025/08/27/champions-league-teams-2025-26-g
 **Gérard Chaliand, Intrepid Authority on Geopolitics, Dies at 91**\
 `His considerable influence in the French-speaking world was based on an unusual attribute: He had actually been to the revolutions he wrote about.`\
 https://nytimes.com/2025/08/27/world/europe/gerard-chaliand-dead.html
-
-**I Can’t Look Away From This Poem About Looking**\
-`Our critic A.O. Scott gazes into a well with Robert Frost.`\
-https://nytimes.com/interactive/2025/08/27/books/robert-frost-for-once-then-something-poem.html
 

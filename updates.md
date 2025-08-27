@@ -1,3 +1,7 @@
+**UEFA Champions League Draw: Groups, matches, seedings and how to watch**\
+`All you need to know about the UEFA Champions League draw now the final qualifiers have been confirmed. `\
+https://nytimes.com/athletic/6578856/2025/08/27/uefa-champions-league-draw-2025-format-tv-channel/
+
 **Travis Kelce and Taylor Swift Are Engaged. Kansas City Is Enchanted.**\
 `Chiefs fans have been cheering on their star football player’s romance with the pop star for two years. They have the T-shirts, earrings and baked goods to prove it.`\
 https://nytimes.com/2025/08/27/us/taylor-swift-travis-kelce-engaged-kansas-city.html
