@@ -1,3 +1,7 @@
+**London City Lionesses complete Zelem, Kennedy signings from Angel City**\
+`Both players had time remaining on their Angel City contracts and undisclosed fees were agreed with London City `\
+https://nytimes.com/athletic/6572747/2025/08/27/katie-zelem-alanna-kennedy-london-city-lionesses-transfer/
+
 **The 1950s Kitchen Gets an Update**\
 `With today’s wellness kitchens, it’s farewell to the pantry with shelf-stabilized foods, and hail to the composter.`\
 https://nytimes.com/2025/08/27/style/wellness-kitchen-design.html
