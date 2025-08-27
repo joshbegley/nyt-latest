@@ -1,3 +1,7 @@
+**A Traumatized Minneapolis Confronts Another Tragedy**\
+`The shooting of children at a Roman Catholic church came after a string of violent confrontations, going back to George Floyd, that has left the Twin Cities reeling.`\
+https://nytimes.com/2025/08/27/us/minneapolis-shooting-reaction.html
+
 **In Trump’s 2nd Term, More Incarcerations, Less Talk of Reform**\
 `The president is signaling a tough-on-crime message for the midterms next year.`\
 https://nytimes.com/2025/08/27/us/politics/trump-criminal-justice.html

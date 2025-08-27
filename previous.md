@@ -1,3 +1,7 @@
+**A Traumatized Minneapolis Confronts Another Tragedy**\
+`The shooting of children at a Roman Catholic church came after a string of violent confrontations, going back to George Floyd, that has left the Twin Cities reeling.`\
+https://nytimes.com/2025/08/27/us/minneapolis-shooting-reaction.html
+
 **In Trump’s 2nd Term, More Incarcerations, Less Talk of Reform**\
 `The president is signaling a tough-on-crime message for the midterms next year.`\
 https://nytimes.com/2025/08/27/us/politics/trump-criminal-justice.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/27/briefing/minneapolis-cdc-covid.html
 **Carabao Cup third-round draw: Port Vale host Arsenal, Liverpool face Southampton**\
 `There are two all-Premier League ties, with Wolverhampton Wanderers facing Everton and Brentford hosting Aston Villa.`\
 https://nytimes.com/athletic/6579981/2025/08/27/carabao-cup-third-round-draw/
-
-**How a Beautiful Summer Day on Lake Tahoe Suddenly Turned Deadly**\
-`An analysis of the turbulent weather that caught people off guard, flipping over boats and killing eight people.`\
-https://nytimes.com/interactive/2025/08/27/weather/lake-tahoe-storm.html
 
