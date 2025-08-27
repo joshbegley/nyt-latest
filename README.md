@@ -1,8 +1,16 @@
+**49ers won't trade WR Jauan Jennings, GM John Lynch says**\
+`Jennings requested a trade earlier this offseason as he seeks a new contract.`\
+https://nytimes.com/athletic/6579925/2025/08/27/49ers-jauan-jennings-no-trade/
+
+**The Briefing: Grimsby 2 Manchester United 2 (12-11 on pens): Onana's blunders, what next for Amorim?**\
+`Manchester United suffered one of the most embarrassing results in their history - The Athletic analyses a woeful night for Amorim's team`\
+https://nytimes.com/athletic/6573030/2025/08/27/grimsby-2-manchester-united-2-onana-amorim-pressure-shootout/
+
 **Democratic Mayors Convene After Trump’s Takeover Threats, Seeking United Front**\
 `“An attack on one of us is an attack on all of us,” said Mayor Justin Bibb of Cleveland, who led a private strategy call on Wednesday.`\
 https://nytimes.com/2025/08/27/us/politics/democrats-mayors-cities-trump-crime.html
 
-**C.D.C. Director Departs After Just Weeks in the Job**\
+**C.D.C. Director Departs After Just Weeks on the Job**\
 `Susan Monarez’s brief tenure was roiled by Robert F. Kennedy Jr.’s decisions to overhaul vaccine policy and gut a critical advisory panel.`\
 https://nytimes.com/2025/08/27/health/cdc-monarez-kennedy-vaccines.html
 
@@ -29,12 +37,4 @@ https://nytimes.com/interactive/2025/08/27/books/robert-frost-for-once-then-some
 **Nvidia Sales Jump 56%, a Sign the A.I. Boom Isn’t Slowing Down**\
 `The chipmaker, now the most valuable public company in the world, said strong demand for its chips should continue this quarter.`\
 https://nytimes.com/2025/08/27/technology/nvidia-earnings-ai-chips.html
-
-**In Milan, an Apartment With a Secret Passageway**\
-`Earthy with industrial touches, the home is connected to an office with a personality all its own.`\
-https://nytimes.com/2025/08/27/t-magazine/milan-home-redduo.html
-
-**Trump and Advisers, Including Kushner, Meet on Gaza’s Future**\
-`The meeting focused on the postwar future of the Gaza Strip, where Mr. Trump has mused about removing Palestinian residents and setting up a luxury resort.`\
-https://nytimes.com/2025/08/27/us/politics/trump-gaza-israel-hamas-ceasefire.html
 
