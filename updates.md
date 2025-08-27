@@ -1,3 +1,15 @@
+**John Bolton Inquiry Eyes Emails Obtained by Foreign Government**\
+`It is not clear what country intercepted Mr. Bolton’s private emails, but the investigation into President Trump’s former national security adviser picked up momentum under the Biden administration.`\
+https://nytimes.com/2025/08/27/us/politics/bolton-trump-emails-fbi-investigation.html
+
+**What We Know About the Minnesota Catholic School Shooting**\
+`Investigators were still searching for a motive in the shooting, which left two children dead at Annunciation Catholic Church in Minneapolis.`\
+https://nytimes.com/2025/08/27/us/minneapolis-school-shooting-minnesota.html
+
+**Southwest Monsoon Finally Arrives, With a Chaotic Mix of Dust and Rain**\
+`The season for strong storms came late. This week, it has led to travel delays, a snarled start to Burning Man and a recharged waterfall in Yosemite.`\
+https://nytimes.com/2025/08/27/weather/monsoon-dust-storm-arizona-burning-man.html
+
 **Chargers' Najee Harris back at practice ahead of 'possible' Week 1 return**\
 `The Chargers running back spent training camp on the non-football injury list after injuring his right eye in a July 4 fireworks accident.`\
 https://nytimes.com/athletic/6579873/2025/08/27/najee-harris-chargers-practice-week-1-nfl/
