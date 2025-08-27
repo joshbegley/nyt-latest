@@ -1,3 +1,11 @@
+**Nvidia Sales Jump 56%, a Sign the A.I. Boom Isn’t Slowing Down**\
+`The chipmaker, now the most valuable public company in the world, said strong demand for its chips should continue this quarter.`\
+https://nytimes.com/2025/08/27/technology/nvidia-earnings-ai-chips.html
+
+**In Milan, an Apartment With a Secret Passageway**\
+`Earthy with industrial touches, the home is connected to an office with a personality all its own.`\
+https://nytimes.com/2025/08/27/t-magazine/milan-home-redduo.html
+
 **Trump and Advisers, Including Kushner, Meet on Gaza’s Future**\
 `The meeting focused on the postwar future of the Gaza Strip, where Mr. Trump has mused about removing Palestinian residents and setting up a luxury resort.`\
 https://nytimes.com/2025/08/27/us/politics/trump-gaza-israel-hamas-ceasefire.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/08/27/sports/horse-teeth-specialized-dentists.html
 **It’s a Very American Equestrian Discipline. Europeans Are Intrigued.**\
 `Riding horses in the languid, American hunter style has long been dismissed by many speed-loving show jumpers. Now it may be catching on abroad.`\
 https://nytimes.com/2025/08/27/sports/hunters-horses-riding.html
-
-**Lakers' Jeanie Buss, Rob Pelinka in Poland to support Luka Dončić, Slovenia**\
-`Despite Dončić's knee-injury scare, Pelinka said he and Buss have no concerns about his continued participation with the national team.`\
-https://nytimes.com/athletic/6579695/2025/08/27/lakers-jeanie-buss-rob-pelinka-luka-doncic-slovenia-poland/
-
-**The ‘Political Theater’ of Troops in Cities**\
-`Readers react to the Trump administration’s deployment of U.S. military in cities. Also: A California voter’s choice on gerrymandering; the impact of ICE raids.`\
-https://nytimes.com/2025/08/27/opinion/the-political-theater-of-troops-in-cities.html
 
