@@ -1,3 +1,7 @@
+**Crime Ring Stole 600 Times From Home Depots in California, Officials Say**\
+`The group in Southern California stole goods worth millions of dollars since January, officials said. Nine people were charged this week over the thefts.`\
+https://nytimes.com/2025/08/27/us/home-depot-theft-ring-california.html
+
 **Isak named in Sweden squad amid Newcastle standoff**\
 `The 25-year-old has not featured for Newcastle this term, either in preseason or in the club's opening two games of the new season.`\
 https://nytimes.com/athletic/6578350/2025/08/27/alexander-isak-sweden-squad-newcastle/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6567313/2025/08/27/lee-corso-dave-portnoy-arch-mann
 **Josh Berry on the loss that shaped him and life as a NASCAR Cup Series driver: 12 Questions**\
 `Josh Berry talks about not being complacent in Cup, a personal tragedy that changed his life, and more in the latest 12 Questions.`\
 https://nytimes.com/athletic/6576477/2025/08/27/josh-berry-nascar-cup-series-playoffs-12-questions/
-
-**Women's soccer fans are among the most loyal in sports — and eager to spend**\
-`Down to Business with Asli Pelit takes you through the exciting, fast-paced (and sometimes confusing) corporate side of women's soccer.`\
-https://nytimes.com/athletic/6577675/2025/08/27/women-soccer-fans-brand-support/
 
