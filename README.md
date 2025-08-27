@@ -1,3 +1,7 @@
+**Analyzing Chargers' initial 53-man roster: Unfinished product includes no long snapper**\
+`LS Josh Harris was placed on injured reserve with a designation to return, and the Chargers likely have work still to do with their roster.`\
+https://nytimes.com/athletic/6577937/2025/08/26/chargers-53-man-roster-analysis-2025/
+
 **FEMA Suspends Staff Who Signed a Letter Criticizing Trump**\
 `The letter, sent to Congress on Monday, said cuts made by the Trump administration had erased improvements made to disaster response since Hurricane Katrina.`\
 https://nytimes.com/2025/08/26/climate/fema-suspends-staff-who-criticized-trump-cuts.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6577801/2025/08/26/las-vegas-raiders-initial-53-man
 **‘Alien: Earth’ Season 1, Episode 4 Recap: In Sheep’s Clothing**\
 `That eyeball monster is pretty scary. But maybe not as scary as the trillionaires running the world.`\
 https://nytimes.com/2025/08/26/arts/television/alien-earth-season-1-episode-4-recap-in-sheeps-clothing.html
-
-**SpaceX Launches Critical Test of Mars Rocket**\
-`After two consecutive scrubs, SpaceX’s Starship vehicle launched on Tuesday night. The test aims to show that the mammoth rocket is capable of achieving key flight goals.`\
-https://nytimes.com/video/science/100000010363077/spacex-starship-launch-texas.html
 
