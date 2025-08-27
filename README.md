@@ -1,3 +1,7 @@
+**The Smoking Hot Return of Bathing Culture**\
+`Saunas and other water-based amenities are booming in societies that once turned their backs on them.`\
+https://nytimes.com/2025/08/27/style/bathing-culture-trend.html
+
 **Jaguars acquiring WR Tim Patrick in trade with Lions**\
 `Patrick brings a veteran presence to the Jaguars' young WR room, led by second-year receiver Brian Thomas Jr. and rookie Travis Hunter.`\
 https://nytimes.com/athletic/6578674/2025/08/27/jaguars-lions-trade-tim-patrick-receiver/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6567394/2025/08/27/adam-thielen-vikings-panthers-tr
 **Bolts on Parade: How to watch, stream and follow the 2025 Los Angeles Chargers**\
 `Here's how to watch Jim Harbaugh, Justin Herbert and the 2025 Los Angeles Chargers this season.`\
 https://nytimes.com/athletic/6576765/2025/08/27/los-angeles-chargers-harbaugh-herbert-how-to-watch-2025/
-
-**TV Producers Flock to California’s Expanded Tax Credit**\
-`The state announced the first 22 projects to take advantage of its hefty new incentives to attract production.`\
-https://nytimes.com/2025/08/27/business/media/california-production-tax-credit.html
 
