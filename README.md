@@ -1,3 +1,7 @@
+**John Bolton Inquiry Eyes Emails Obtained by Foreign Government**\
+`It is not clear what country intercepted Mr. Bolton’s private emails, but the investigation into President Trump’s former national security adviser picked up momentum under the Biden administration.`\
+https://nytimes.com/2025/08/27/us/politics/bolton-trump-emails-fbi-investigation.html
+
 **What We Know About the Minnesota Catholic School Shooting**\
 `Investigators were still searching for a motive in the shooting, which left two children dead at Annunciation Catholic Church in Minneapolis.`\
 https://nytimes.com/2025/08/27/us/minneapolis-school-shooting-minnesota.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6578856/2025/08/27/uefa-champions-league-draw-2025-
 **Travis Kelce and Taylor Swift Are Engaged. Kansas City Is Enchanted.**\
 `Chiefs fans have been cheering on their star football player’s romance with the pop star for two years. They have the T-shirts, earrings and baked goods to prove it.`\
 https://nytimes.com/2025/08/27/us/taylor-swift-travis-kelce-engaged-kansas-city.html
-
-**49ers won't trade WR Jauan Jennings, GM John Lynch says**\
-`Jennings requested a trade earlier this offseason as he seeks a new contract. His status for Week 1 remains unclear due to a calf injury.`\
-https://nytimes.com/athletic/6579925/2025/08/27/49ers-jauan-jennings-no-trade/
 
