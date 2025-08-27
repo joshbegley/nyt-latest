@@ -1,8 +1,16 @@
+**After Blocking U.N. Nuclear Watchdog, Iran Allows Inspectors to Return**\
+`Iran halted cooperation with the agency last month, as experts warned that Tehran may revive efforts to build a nuclear bomb.`\
+https://nytimes.com/2025/08/27/world/europe/iran-un-nuclear-watchdog-inspectors.html
+
+**Trump, With Tariffs and Threats, Tries to Strong-Arm Nations to Retreat on Climate Goals**\
+`The president has made no secret of his distaste for wind and solar in America. Now he’s taking his fossil fuel agenda overseas.`\
+https://nytimes.com/2025/08/27/climate/trump-international-pressure-climate-oil.html
+
 **Witnesses describe harrowing scenes at the hospital and school.**\
 `By Aimee Ortiz`\
 https://nytimes.com/live/2025/08/27/us/minneapolis-church-shooting/witnesses-describe-harrowing-scenes-at-the-hospital-and-school
 
-**F.D.A. Approves Covid Shots with New Restrictions**\
+**F.D.A. Approves Covid Shots With New Restrictions**\
 `The agency’s fall recommendations underscore the goals of Health Secretary Robert F. Kennedy Jr. to limit access to the vaccines, which he has long opposed.`\
 https://nytimes.com/2025/08/27/health/fda-covid-vaccines-rfk-jr.html
 
@@ -29,12 +37,4 @@ https://nytimes.com/2025/08/27/us/politics/abrego-garcia-asylum.html
 **The Longest-Running Rafiki Says Goodbye to ‘The Lion King’**\
 `After more than 9,000 performances as the shaman in the Broadway show, Tshidi Manye prepares to hang up her baboon costume.`\
 https://nytimes.com/2025/08/27/theater/tshidi-manye-lion-king-rafiki.html
-
-**‘Katrina: Come Hell and High Water’ Is a Gripping New Docuseries**\
-`A new Netflix series, with direction by Spike Lee, revisits the storm’s devastation and looks at what has changed in the 20 years since, and what hasn’t.`\
-https://nytimes.com/2025/08/27/arts/television/katrina-come-hell-and-high-water-netflix-spike-lee.html
-
-**London City Lionesses complete Zelem, Kennedy signings from Angel City**\
-`Both players had time remaining on their Angel City contracts and undisclosed fees were agreed with London City `\
-https://nytimes.com/athletic/6572747/2025/08/27/katie-zelem-alanna-kennedy-london-city-lionesses-transfer/
 

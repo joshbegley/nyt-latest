@@ -1,3 +1,15 @@
+**After Blocking U.N. Nuclear Watchdog, Iran Allows Inspectors to Return**\
+`Iran halted cooperation with the agency last month, as experts warned that Tehran may revive efforts to build a nuclear bomb.`\
+https://nytimes.com/2025/08/27/world/europe/iran-un-nuclear-watchdog-inspectors.html
+
+**Trump, With Tariffs and Threats, Tries to Strong-Arm Nations to Retreat on Climate Goals**\
+`The president has made no secret of his distaste for wind and solar in America. Now he’s taking his fossil fuel agenda overseas.`\
+https://nytimes.com/2025/08/27/climate/trump-international-pressure-climate-oil.html
+
+**F.D.A. Approves Covid Shots With New Restrictions**\
+`The agency’s fall recommendations underscore the goals of Health Secretary Robert F. Kennedy Jr. to limit access to the vaccines, which he has long opposed.`\
+https://nytimes.com/2025/08/27/health/fda-covid-vaccines-rfk-jr.html
+
 **Witnesses describe harrowing scenes at the hospital and school.**\
 `By Aimee Ortiz`\
 https://nytimes.com/live/2025/08/27/us/minneapolis-church-shooting/witnesses-describe-harrowing-scenes-at-the-hospital-and-school

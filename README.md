@@ -1,3 +1,7 @@
+**Southampton agree £12m transfer for Middlesbrough's Azaz**\
+`The fee is in the region of £12million plus add-ons with the move expected to be finalised between the clubs in the coming days.`\
+https://nytimes.com/athletic/6579176/2025/08/27/finn-azaz-transfer-southampton-middlesbrough/
+
 **After Blocking U.N. Nuclear Watchdog, Iran Allows Inspectors to Return**\
 `Iran halted cooperation with the agency last month, as experts warned that Tehran may revive efforts to build a nuclear bomb.`\
 https://nytimes.com/2025/08/27/world/europe/iran-un-nuclear-watchdog-inspectors.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/27/style/wellness-kitchen-design.html
 **Abrego Garcia Requests Asylum in the United States**\
 `The request is another possible path for the Salvadoran man, who has already been deported and returned by the Trump administration, to remain in the country.`\
 https://nytimes.com/2025/08/27/us/politics/abrego-garcia-asylum.html
-
-**The Longest-Running Rafiki Says Goodbye to ‘The Lion King’**\
-`After more than 9,000 performances as the shaman in the Broadway show, Tshidi Manye prepares to hang up her baboon costume.`\
-https://nytimes.com/2025/08/27/theater/tshidi-manye-lion-king-rafiki.html
 
