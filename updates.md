@@ -1,3 +1,7 @@
+**NFL to allow Fox's Tom Brady to attend production meetings: Sources**\
+`The NFL will allow Fox Sports’ top TV game analyst and Las Vegas Raiders minority owner to take part in production meetings this season.`\
+https://nytimes.com/athletic/6577539/2025/08/27/tom-brady-rules-fox-nfl-2025/
+
 **Crime Ring Stole 600 Times From Home Depots in California, Officials Say**\
 `The group in Southern California stole goods worth millions of dollars since January, officials said. Nine people were charged this week over the thefts.`\
 https://nytimes.com/2025/08/27/us/home-depot-theft-ring-california.html
