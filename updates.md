@@ -1,3 +1,7 @@
+**Taylor Swift and Travis Kelce Are Engaged**\
+`The pop star and the N.F.L. player announced their engagement on Instagram. Teammates, fans and President Trump congratulated the couple.`\
+https://nytimes.com/video/style/100000010363344/taylor-swift-engaged-travis-kelce.html
+
 **Trump Says Republicans Are Working on a ‘Comprehensive’ Crime Bill**\
 `President Trump made the announcement in a brief social media post. It was his latest effort to push crime to the foreground of American politics.`\
 https://nytimes.com/2025/08/27/us/politics/trump-crime-bill-congress-dc.html
