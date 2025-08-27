@@ -1,3 +1,7 @@
+**At the Stephex Masters Horse Auction, Buyers Hope to Nab a Champion**\
+`Picking the right one is an art and carries a lot of risk.`\
+https://nytimes.com/2025/08/27/sports/horse-auction-buyers.html
+
 **Can You Still Get the Covid Shot?**\
 `The F.D.A. introduced new rules. Here’s what to know.`\
 https://nytimes.com/2025/08/27/well/covid-vaccines-guidelines-fall-2025.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/08/27/us/minneapolis-church-shooting/the-attack-wa
 **This 20-Minute Shrimp Curry Will Wow Everyone Who Tries It**\
 `Madhur Jaffrey’s Goan recipe is the perfect meal for any occasion — dinner party or just dinner.`\
 https://nytimes.com/2025/08/27/dining/quick-shrimp-curry.html
-
-**Penn Station Renovation Will Begin in 2027, Officials Say**\
-`Sean P. Duffy, the federal transportation secretary, laid out the ambitious goal at a news conference on Wednesday afternoon.`\
-https://nytimes.com/2025/08/27/nyregion/penn-station-renovation-2027.html
 
