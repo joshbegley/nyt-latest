@@ -1,3 +1,7 @@
+**Trump Is Set to Host a Meeting on Gaza. How Close is a Ceasefire?**\
+`The president’s Middle East envoy signaled that the war would be settled before the end of the year, but seemed to rule out a temporary truce.`\
+https://nytimes.com/2025/08/27/world/middleeast/trump-is-set-to-host-a-meeting-on-gaza-how-close-is-a-ceasefire.html
+
 **The Look of Taylor Swift’s Engagement Era**\
 `It’s picture-perfect, of course.`\
 https://nytimes.com/2025/08/27/style/taylor-swift-engagement-dress.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6578247/2025/08/27/sf-giants-bob-melvin-future/
 **How to watch the 2025 Kansas City Chiefs: Schedule, streaming for Mahomes and Kelce crew**\
 `Per usual, the Chiefs will appear in prime time often in 2025. Here's how to watch all of Kansas City's 17 regular-season games.`\
 https://nytimes.com/athletic/6537256/2025/08/27/kansas-city-chiefs-mahomes-kelce-2025-tv-how-to-watch/
-
-**Trump Administration Live Updates: President’s Higher Tariffs on India Take Effect**\
-``\
-https://nytimes.com/live/2025/08/27/us/trump-news
 
