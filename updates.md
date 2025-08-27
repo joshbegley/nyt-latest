@@ -1,3 +1,15 @@
+**gws-roommate-court-tiktok-michael-abber**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/roommate-court-tiktok-michael-abber
+
+**gws-pilates-exercises-for-better-posture**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/pilates-exercises-for-better-posture
+
+**Live Updates: At Least 2 Dead and 20 Injured in Shooting at Minneapolis Catholic School, Officials Say**\
+`Officials said that a suspect in the shooting, at Annunciation Catholic Church, was also dead and that the death toll was likely to rise.`\
+https://nytimes.com/live/2025/08/27/us/minneapolis-church-shooting
+
 **Live Updates: At Least 1 Dead and 20 Injured in Shooting at Minneapolis Catholic School, Officials Say**\
 `Officials said that a suspect in the shooting, at Annunciation Catholic Church, was also dead and that the death toll was likely to rise.`\
 https://nytimes.com/live/2025/08/27/us/minneapolis-church-shooting

@@ -1,3 +1,7 @@
+**gws-death-valley-summertime-heat**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/death-valley-summertime-heat
+
 **gws-roommate-court-tiktok-michael-abber**\
 `(No description)`\
 https://nytimes.com/newsgraphics/card-story/roommate-court-tiktok-michael-abber
@@ -26,15 +30,11 @@ https://nytimes.com/athletic/6578523/2025/08/27/mclaren-mastercard-f1-title-spon
 `The assignment would be Darke’s ninth World Cup as an announcer. He previously joined Fox for its coverage of the 2022 tournament.`\
 https://nytimes.com/athletic/6578881/2025/08/27/ian-darke-2026-world-cup-fox/
 
-**Live Updates: At Least 2 Dead and 20 Injured in Shooting at Minneapolis Catholic School, Officials Say**\
+**Live Updates: At Least 2 Killed and 20 Injured in Shooting at Minneapolis Catholic School, Officials Say**\
 `Officials said that a suspect in the shooting, at Annunciation Catholic Church, was also dead and that the death toll was likely to rise.`\
 https://nytimes.com/live/2025/08/27/us/minneapolis-church-shooting
 
 **Doctors Find Early Success With Partial Heart Transplants**\
 `A recent study showed how the cutting-edge surgery could help patients with a failing heart.`\
 https://nytimes.com/2025/08/27/well/partial-heart-transplants.html
-
-**Who is Barcelona's Fermin Lopez? And why do Chelsea need another attacking midfielder?**\
-`Chelsea are evaluating the possibility of a move for Fermin… yet another young attacking player`\
-https://nytimes.com/athletic/6578633/2025/08/27/barcelona-chelsea-fermin-lopez-transfer-profile/
 
