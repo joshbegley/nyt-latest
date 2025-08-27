@@ -27,7 +27,7 @@ https://nytimes.com/2025/08/27/arts/design/van-gogh-museum-renovation.html
 https://nytimes.com/2025/08/27/world/europe/germany-military-recruitment.html
 
 **NFL to allow Fox's Tom Brady to attend production meetings: Sources**\
-`The NFL will allow Fox Sports’ top TV game analyst and Las Vegas Raiders’ minority owner to take part in production meetings this season.`\
+`The NFL will allow Fox Sports’ top TV game analyst and Las Vegas Raiders minority owner to take part in production meetings this season.`\
 https://nytimes.com/athletic/6577539/2025/08/27/tom-brady-rules-fox-nfl-2025/
 
 **Corso exits, Portnoy enters, Manning emerges: College football 2025 media preview**\
