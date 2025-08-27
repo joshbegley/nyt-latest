@@ -1,3 +1,7 @@
+**Travis Kelce and Taylor Swift Are Engaged. Kansas City Is Enchanted.**\
+`Chiefs fans have been cheering on their star football player’s romance with the pop star for two years. They have the T-shirts, earrings and baked goods to prove it.`\
+https://nytimes.com/2025/08/27/us/taylor-swift-travis-kelce-engaged-kansas-city.html
+
 **49ers won't trade WR Jauan Jennings, GM John Lynch says**\
 `Jennings requested a trade earlier this offseason as he seeks a new contract.`\
 https://nytimes.com/athletic/6579925/2025/08/27/49ers-jauan-jennings-no-trade/

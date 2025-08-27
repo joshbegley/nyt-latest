@@ -1,3 +1,7 @@
+**Travis Kelce and Taylor Swift Are Engaged. Kansas City Is Enchanted.**\
+`Chiefs fans have been cheering on their star football player’s romance with the pop star for two years. They have the T-shirts, earrings and baked goods to prove it.`\
+https://nytimes.com/2025/08/27/us/taylor-swift-travis-kelce-engaged-kansas-city.html
+
 **49ers won't trade WR Jauan Jennings, GM John Lynch says**\
 `Jennings requested a trade earlier this offseason as he seeks a new contract.`\
 https://nytimes.com/athletic/6579925/2025/08/27/49ers-jauan-jennings-no-trade/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/27/world/europe/gerard-chaliand-dead.html
 **I Can’t Look Away From This Poem About Looking**\
 `Our critic A.O. Scott gazes into a well with Robert Frost.`\
 https://nytimes.com/interactive/2025/08/27/books/robert-frost-for-once-then-something-poem.html
-
-**Nvidia Sales Jump 56%, a Sign the A.I. Boom Isn’t Slowing Down**\
-`The chipmaker, now the most valuable public company in the world, said strong demand for its chips should continue this quarter.`\
-https://nytimes.com/2025/08/27/technology/nvidia-earnings-ai-chips.html
 
