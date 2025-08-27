@@ -1,3 +1,7 @@
+**Taylor Swift and Travis Kelce Are Engaged**\
+`The pop star and the N.F.L. player announced their engagement on Instagram. Teammates, fans and President Trump congratulated the couple.`\
+https://nytimes.com/video/style/100000010363344/taylor-swift-engaged-travis-kelce.html
+
 **Trump Says Republicans Are Working on a ‘Comprehensive’ Crime Bill**\
 `President Trump made the announcement in a brief social media post. It was his latest effort to push crime to the foreground of American politics.`\
 https://nytimes.com/2025/08/27/us/politics/trump-crime-bill-congress-dc.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/27/learning/word-of-the-day-mangrove.html
 **Astros turn Yordan Alvarez's return into a clunker**\
 `Losing 6-1 against the Rockies ruined any good vibes Alvarez’s return may have produced.`\
 https://nytimes.com/athletic/6578121/2025/08/27/astros-yordan-alvarez-return-rockies/
-
-**Europe Has Found Its Formula for Managing Trump**\
-`It starts with flattery.`\
-https://nytimes.com/2025/08/27/opinion/europe-ukraine-trump.html
 
