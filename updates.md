@@ -1,3 +1,11 @@
+**Jaguars acquiring WR Tim Patrick in trade with Lions**\
+`Patrick brings a veteran presence to the Jaguars' young WR room, led by second-year receiver Brian Thomas Jr. and rookie Travis Hunter.`\
+https://nytimes.com/athletic/6578674/2025/08/27/jaguars-lions-trade-tim-patrick-receiver/
+
+**Trump Administration Asks Supreme Court to Allow Freeze on Foreign Aid**\
+`The conservative majority has been largely receptive to the administration’s claims of executive power.`\
+https://nytimes.com/2025/08/27/us/politics/supreme-court-trump-foreign-aid.html
+
 **Lowetide: Why Bouchard is exceptional even on a championship-quality Oilers team**\
 `Bouchard can be a polarizing player with highlight-reel plays good and bad. But is that reputation justified?`\
 https://nytimes.com/athletic/6575252/2025/08/27/oilers-evan-bouchard-chaos-defence/

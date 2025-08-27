@@ -1,3 +1,11 @@
+**Jaguars acquiring WR Tim Patrick in trade with Lions**\
+`Patrick brings a veteran presence to the Jaguars' young WR room, led by second-year receiver Brian Thomas Jr. and rookie Travis Hunter.`\
+https://nytimes.com/athletic/6578674/2025/08/27/jaguars-lions-trade-tim-patrick-receiver/
+
+**Trump Administration Asks Supreme Court to Allow Freeze on Foreign Aid**\
+`The conservative majority has been largely receptive to the administration’s claims of executive power.`\
+https://nytimes.com/2025/08/27/us/politics/supreme-court-trump-foreign-aid.html
+
 **Lowetide: Why Bouchard is exceptional even on a championship-quality Oilers team**\
 `Bouchard can be a polarizing player with highlight-reel plays good and bad. But is that reputation justified?`\
 https://nytimes.com/athletic/6575252/2025/08/27/oilers-evan-bouchard-chaos-defence/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6576765/2025/08/27/los-angeles-chargers-harbaugh-he
 **TV Producers Flock to California’s Expanded Tax Credit**\
 `The state announced the first 22 projects to take advantage of its hefty new incentives to attract production.`\
 https://nytimes.com/2025/08/27/business/media/california-production-tax-credit.html
-
-**Falcons mailbag: Submit your roster questions for Josh Kendall ahead of Week 1**\
-`The Falcons' 53-man roster is set (although we still expect some tweaks). The season opener is around the corner. Submit your questions now.`\
-https://nytimes.com/athletic/6578647/2025/08/27/falcons-mailbag-53-man-roster-week-1/
-
-**Dust Storm Hits Burning Man Festival**\
-`Footage taken by attendees captured efforts to secure tents as a powerful dust storm tore through the Black Rock Desert in Nevada on the opening weekend of Burning Man.`\
-https://nytimes.com/video/us/100000010363363/dust-storm-hits-burning-man-festival.html
 
