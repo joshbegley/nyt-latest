@@ -1,40 +1,40 @@
-**Taylor Swift and Travis Kelce Are Engaged**\
-`The pop star and the N.F.L. player announced their engagement on Instagram. Teammates, fans and President Trump congratulated the couple.`\
-https://nytimes.com/video/style/100000010363344/taylor-swift-engaged-travis-kelce.html
+**The Aces go for a 12th straight win tonight. Here's how to watch their game vs. Dream**\
+`A'ja Wilson and her crew go for a dozen straight wins Wednesday. Atlanta has been one of the league's best teams, 12-4 in its last 16 games.`\
+https://nytimes.com/athletic/6577465/2025/08/27/aces-dream-win-streak-how-to-watch/
 
-**Trump Says Republicans Are Working on a ‘Comprehensive’ Crime Bill**\
-`President Trump made the announcement in a brief social media post. It was his latest effort to push crime to the foreground of American politics.`\
-https://nytimes.com/2025/08/27/us/politics/trump-crime-bill-congress-dc.html
+**Until the Patriots consistently draft better, roster depth will continue to be an issue**\
+`Mike Vrabel has overhauled the roster in one offseason, but he'll need sustained draft success to make the Patriots a winning team.`\
+https://nytimes.com/athletic/6577554/2025/08/27/mike-vrabel-patriots-nfl-draft-success-roster/
 
-**Jorgen Strand Larsen's value to Wolves is clear, so can they afford to sell him?**\
-`Newcastle had a second offer rejected for the Norwegian striker just hours after his late brace secured Wolves' first win of the season`\
-https://nytimes.com/athletic/6577712/2025/08/27/strand-larsen-wolves-newcastle-pereira/
+**Call Me a Sucker, but I’m Happy for Taylor and Travis**\
+`A new paradigm for the old pairing of male athlete and beautiful female star.`\
+https://nytimes.com/2025/08/27/opinion/taylor-swift-travis-kelce-engagement.html
 
-**Wolves reject £55m bid from Newcastle for Strand Larsen**\
-`Wolves' stance remains that any bid for the Norway international this summer will be rejected given his importance to the club.`\
-https://nytimes.com/athletic/6577528/2025/08/27/newcastle-wolves-strand-larsen-transfer/
+**All the Things Trump Thinks He Owns**\
+`The White House is not the president’s property. Neither is Smithsonian. Or Washington itself.`\
+https://nytimes.com/2025/08/27/opinion/trump-white-house-smithsonian-lisa-cook.html
 
-**In a Lab, the Hunt for a Killer: The Legionella Germ Causing an Outbreak**\
-`Six people in New York City have died this summer from Legionnaires’ disease, and more than 100 others have been sickened.`\
-https://nytimes.com/2025/08/27/nyregion/legionnaires-disease-new-york-lab.html
+**Venus Williams Lost, but Her Fuzzy Bag Won**\
+`In her return at the U.S. Open, Ms. Williams decided to highlight labels based in the United States. Her shearling racket bag was hard to miss.`\
+https://nytimes.com/2025/08/27/style/venus-williams-fuzzy-bag-erl.html
 
-**On the Ground With a Top Mexican Cartel**\
-`A Times reporter shares her experience with the Sinaloa Cartel, which relies on drivers, packers and other operatives to smuggle fentanyl into the United States.`\
-https://nytimes.com/2025/08/27/insider/sinaloa-cartel-fentanyl.html
+**The Supreme Court Must Limit This President. Start With the Fed.**\
+`Trump’s effort to oust Lisa Cook could have all sorts of worrisome consequences.`\
+https://nytimes.com/2025/08/27/opinion/lisa-cook-trump-supreme-court.html
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2025/08/27/crosswords/spelling-bee-forum.html
+**‘Weak, Woke and Whiny’ No More: The Rise of the Democratic National Security Mom**\
+`The party is counting on a new type of leader to counteract Trump.`\
+https://nytimes.com/2025/08/27/opinion/spanberger-sherrill-women-governor-virginia-new-jersey.html
 
-**Jarrod Bowen clashing with a supporter is a sad reflection of West Ham's plight**\
-`The Londoners' captain sought to confront a fan post-match at Molineux as Graham Potter's side endured a third successive defeat of term`\
-https://nytimes.com/athletic/6576781/2025/08/27/bowen-west-ham-wolves-supporter-potter/
+**Venice Film Festival 2025: What to Watch for and What’s Missing**\
+`Starry vehicles featuring the likes of Julia Roberts, George Clooney and Emma Stone will make their debuts in Italy, but some big names are skipping fests.`\
+https://nytimes.com/2025/08/27/movies/venice-film-festival-what-to-watch.html
 
-**Word of the Day: mangrove**\
-`This word has appeared in 23 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2025/08/27/learning/word-of-the-day-mangrove.html
+**From Airbnb to America’s ‘Chief Design Officer’**\
+`Joe Gebbia wants to make government services more “satisfying.” Some peers in the design industry are skeptical.`\
+https://nytimes.com/2025/08/27/style/joe-gebbia-trump-design-officer-airbnb.html
 
-**Astros turn Yordan Alvarez's return into a clunker**\
-`Losing 6-1 against the Rockies ruined any good vibes Alvarez’s return may have produced.`\
-https://nytimes.com/athletic/6578121/2025/08/27/astros-yordan-alvarez-return-rockies/
+**Electric vs. Gas Car: Try Our Calculator (Because the Math Is About to Change)**\
+`There’s one month left to get a federal subsidy. Our calculator lets you compare models and see whether an E.V. is cheaper in the long run.`\
+https://nytimes.com/interactive/2025/08/27/upshot/ev-vs-gas-calculator.html
 
