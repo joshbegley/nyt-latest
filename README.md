@@ -1,3 +1,11 @@
+**What We Know About the Minnesota Catholic School Shooting**\
+`Investigators were still searching for a motive in the shooting, which left two children dead at Annunciation Catholic Church in Minneapolis.`\
+https://nytimes.com/2025/08/27/us/minneapolis-school-shooting-minnesota.html
+
+**Southwest Monsoon Finally Arrives, With a Chaotic Mix of Dust and Rain**\
+`The season for strong storms came late. This week, it has led to travel delays, a snarled start to Burning Man and a recharged waterfall in Yosemite.`\
+https://nytimes.com/2025/08/27/weather/monsoon-dust-storm-arizona-burning-man.html
+
 **Chargers' Najee Harris back at practice ahead of 'possible' Week 1 return**\
 `The Chargers running back spent training camp on the non-football injury list after injuring his right eye in a July 4 fireworks accident.`\
 https://nytimes.com/athletic/6579873/2025/08/27/najee-harris-chargers-practice-week-1-nfl/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/08/27/us/taylor-swift-travis-kelce-engaged-kansas-city.
 **49ers won't trade WR Jauan Jennings, GM John Lynch says**\
 `Jennings requested a trade earlier this offseason as he seeks a new contract. His status for Week 1 remains unclear due to a calf injury.`\
 https://nytimes.com/athletic/6579925/2025/08/27/49ers-jauan-jennings-no-trade/
-
-**The Briefing: Grimsby 2 Manchester United 2 (12-11 on pens): Onana's blunders, what next for Amorim?**\
-`Manchester United suffered one of the most embarrassing results in their history - The Athletic analyses a woeful night for Amorim's team`\
-https://nytimes.com/athletic/6573030/2025/08/27/grimsby-2-manchester-united-2-onana-amorim-pressure-shootout/
-
-**Democratic Mayors Convene After Trump’s Takeover Threats, Seeking United Front**\
-`“An attack on one of us is an attack on all of us,” said Mayor Justin Bibb of Cleveland, who led a private strategy call on Wednesday.`\
-https://nytimes.com/2025/08/27/us/politics/democrats-mayors-cities-trump-crime.html
 
