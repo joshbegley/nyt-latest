@@ -1,3 +1,7 @@
+**The ‘Political Theater’ of Troops in Cities**\
+`Readers react to the Trump administration’s deployment of U.S. military in cities. Also: A California voter’s choice on gerrymandering; the impact of ICE raids.`\
+https://nytimes.com/2025/08/27/opinion/the-political-theater-of-troops-in-cities.html
+
 **Keegan Bradley's surprising decision says a lot about his Ryder Cup captaincy**\
 `No captain has ever been in the predicament Bradley was in over the last year, and there was temptation to lean in and choose himself.`\
 https://nytimes.com/athletic/6579453/2025/08/27/ryder-cup-2025-keegan-bradley-captain-choice/
@@ -33,8 +37,4 @@ https://nytimes.com/video/opinion/100000010352444/trump-is-building-his-own-para
 **Amazon It's on Prime **\
 `40 weeks on the road takes a lot of grit and even more prep. Taylor Townsend uses Prime to get everything she needs in a pinch, from training gear to homey touches for her hotel rooms to birthday surprises for her son. It's all on Prime for tourney season.`\
 https://nytimes.com/paidpost/amazon/amazon-its-on-prime/amazon-its-on-prime.html
-
-**America and China Have Placed Their Wagers. Now We Wait.**\
-`The two superpowers have made different wagers. But their fates are intertwined.`\
-https://nytimes.com/2025/08/27/opinion/china-america-ai.html
 
