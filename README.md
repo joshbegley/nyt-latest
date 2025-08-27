@@ -2,12 +2,12 @@
 `The shooting was reported at Annunciation Catholic Church, which operates a school. Officials said the attacker was contained.`\
 https://nytimes.com/live/2025/08/27/us/minneapolis-church-shooting
 
-**A Promising New Way to Treat a Failing Heart**\
-`A recent study shows how partial heart transplants could help children with valve defects.`\
+**Doctors Find Early Success With Partial Heart Transplants**\
+`A recent study showed how the cutting-edge surgery could help patients with a failing heart.`\
 https://nytimes.com/2025/08/27/well/partial-heart-transplants.html
 
 **Who is Barcelona's Fermin Lopez? And why do Chelsea need another attacking midfielder?**\
-`Chelsea are evaluating the possibility of a move for Fermin — yet another young attacking player`\
+`Chelsea are evaluating the possibility of a move for Fermin… yet another young attacking player`\
 https://nytimes.com/athletic/6578633/2025/08/27/barcelona-chelsea-fermin-lopez-transfer-profile/
 
 **El Salvador Enacts Military-Style Rules on Haircuts and More in Schools**\
