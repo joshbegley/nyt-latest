@@ -1,3 +1,7 @@
+**Safety Jordan Poyer reunites with Bills, expected to join practice squad: Source**\
+`Poyer, 34, played with the Bills from 2017-2023.`\
+https://nytimes.com/athletic/6578786/2025/08/27/buffalo-bills-jordan-poyer/
+
 **Palace will not wear regular shirt sponsor against Fredrikstad**\
 `Palace's players will wear a special version of their 'Eagle Gold' third shirt, promoting the club's Palace For Life foundation.`\
 https://nytimes.com/athletic/6578777/2025/08/27/crystal-palace-shirt-sponsor-fredrikstad-net88/
