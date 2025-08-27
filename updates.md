@@ -1,3 +1,7 @@
+**Analyzing Chargers' initial 53-man roster: Unfinished product includes no long snapper**\
+`LS Josh Harris was placed on injured reserve with a designation to return, and the Chargers likely have work still to do with their roster.`\
+https://nytimes.com/athletic/6577937/2025/08/26/chargers-53-man-roster-analysis-2025/
+
 **FEMA Suspends Staff Who Signed a Letter Criticizing Trump**\
 `The letter, sent to Congress on Monday, said cuts made by the Trump administration had erased improvements made to disaster response since Hurricane Katrina.`\
 https://nytimes.com/2025/08/26/climate/fema-suspends-staff-who-criticized-trump-cuts.html
