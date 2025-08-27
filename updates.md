@@ -1,3 +1,7 @@
+**‘Alien: Earth’ Season 1, Episode 4 Recap: In Sheep’s Clothing**\
+`That eyeball monster is pretty scary. But maybe not as scary as the trillionaires running the world.`\
+https://nytimes.com/2025/08/26/arts/television/alien-earth-season-1-episode-4-recap-in-sheeps-clothing.html
+
 **SpaceX Launches Critical Test of Mars Rocket**\
 `After two consecutive scrubs, SpaceX’s Starship vehicle launched on Tuesday night. The test aims to show that the mammoth rocket is capable of achieving key flight goals.`\
 https://nytimes.com/video/science/100000010363077/spacex-starship-launch-texas.html

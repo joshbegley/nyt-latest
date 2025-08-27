@@ -1,3 +1,7 @@
+**‘Alien: Earth’ Season 1, Episode 4 Recap: In Sheep’s Clothing**\
+`That eyeball monster is pretty scary. But maybe not as scary as the trillionaires running the world.`\
+https://nytimes.com/2025/08/26/arts/television/alien-earth-season-1-episode-4-recap-in-sheeps-clothing.html
+
 **SpaceX Launches Critical Test of Mars Rocket**\
 `After two consecutive scrubs, SpaceX’s Starship vehicle launched on Tuesday night. The test aims to show that the mammoth rocket is capable of achieving key flight goals.`\
 https://nytimes.com/video/science/100000010363077/spacex-starship-launch-texas.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/26/nyregion/american-dream-mall-blue-laws.html
 **Trump Calls for Death Penalty in All D.C. Murder Cases**\
 `It is unclear how Mr. Trump would carry out his directive. The Supreme Court ruled that mandatory death sentences were unconstitutional nearly half a century ago.`\
 https://nytimes.com/2025/08/26/us/politics/trump-death-penalty-murder-dc.html
-
-**Bengals roster cutdown: Why opposite approaches on O-line, D-line signal same concern**\
-`Cincinnati is expected to be active on the waiver wire after thinning the offensive line to eight and still needing answers at safety.`\
-https://nytimes.com/athletic/6577660/2025/08/26/bengals-53-man-roster-cutdown/
 
