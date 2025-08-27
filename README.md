@@ -1,3 +1,11 @@
+**Denmark Summons U.S. Envoy Over Espionage Allegations**\
+`It’s the latest twist in the Greenland drama. President Trump wants the island, but Denmark refuses to hand it over.`\
+https://nytimes.com/2025/08/27/world/europe/trump-denmark-greenland-us-embassy.html
+
+**Van Gogh Museum in Fight With Dutch State That Threatens Its Future**\
+`Its director says that the Amsterdam museum could close unless the culture ministry increases funding to pay for a refurbishment.`\
+https://nytimes.com/2025/08/27/arts/design/van-gogh-museum-renovation.html
+
 **Germany Proposes Plan to Boost Recruitment or Resort to Draft**\
 `Some detractors think the new bill is too weak to fill the recruitment gap. Others worry it will inevitably lead to forced conscription.`\
 https://nytimes.com/2025/08/27/world/europe/germany-military-recruitment.html
@@ -26,15 +34,7 @@ https://nytimes.com/athletic/6578046/2025/08/27/new-york-jets-initial-53-man-ros
 `A little less than four years ago, just three days apart, a pair of heavyweight programs introduced two new, high-wattage coaches.`\
 https://nytimes.com/athletic/6575895/2025/08/27/brian-kelly-lsu-football-lincoln-riley-usc-football/
 
-**Is this college football's best Week 1 ever?**\
-`There have never been this many games between top-10 teams on any opening weekend. And we may not get another Week 1 like it anytime soon.`\
-https://nytimes.com/athletic/6577381/2025/08/27/college-football-schedule-best-week-1-ever-history/
-
 **The biggest concern for each MLB contending team down the stretch**\
 `All contenders — from the juggernauts to those currently on the outside looking in — have key issues they’re facing or at least pondering. `\
 https://nytimes.com/athletic/6577911/2025/08/27/mlb-playoff-contenders-concerns-questions/
-
-**Inside the Yankees’ subtle lineup changes during crucial ‘all hands on deck’ stretch**\
-`New York is clinging to its hold on the second wild-card position, and a few subtle lineup shifts have been necessary to keep it.`\
-https://nytimes.com/athletic/6577898/2025/08/27/yankees-subtle-lineup-changes-all-hands-on-deck-stretch/
 
