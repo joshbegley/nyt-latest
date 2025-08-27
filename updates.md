@@ -1,3 +1,7 @@
+**Astros turn Yordan Alvarez's return into a clunker**\
+`Losing 6-1 against the Rockies ruined any good vibes Alvarez’s return may have produced.`\
+https://nytimes.com/athletic/6578121/2025/08/27/astros-yordan-alvarez-return-rockies/
+
 **Europe Has Found Its Formula for Managing Trump**\
 `It starts with flattery.`\
 https://nytimes.com/2025/08/27/opinion/europe-ukraine-trump.html
