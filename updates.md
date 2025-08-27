@@ -1,3 +1,11 @@
+**Unexpected cuts, rookie revelations: 4 surprises as Chiefs set 53-man roster**\
+`The Chiefs' two most unexpected cuts come with an important caveat as the initial 53-man roster is likely to change soon.`\
+https://nytimes.com/athletic/6576123/2025/08/26/chiefs-53-man-roster-surprises/
+
+**Raiders 53-man roster: Promising offense, troubling D, surprising rookie cuts**\
+`The initial 53-man roster has plenty of promise with plenty of holes.`\
+https://nytimes.com/athletic/6577801/2025/08/26/las-vegas-raiders-initial-53-man-roster-cutdown/
+
 **‘Alien: Earth’ Season 1, Episode 4 Recap: In Sheep’s Clothing**\
 `That eyeball monster is pretty scary. But maybe not as scary as the trillionaires running the world.`\
 https://nytimes.com/2025/08/26/arts/television/alien-earth-season-1-episode-4-recap-in-sheeps-clothing.html
