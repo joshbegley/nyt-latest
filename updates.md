@@ -1,3 +1,7 @@
+**Trump Is Set to Host a Meeting on Gaza. How Close Is a Cease-Fire?**\
+`The president’s Middle East envoy signaled that the war would be settled before the end of the year, but seemed to rule out a temporary truce.`\
+https://nytimes.com/2025/08/27/world/middleeast/trump-gaza-meeting-ceasefire.html
+
 **Trump Is Set to Host a Meeting on Gaza. How Close is a Ceasefire?**\
 `The president’s Middle East envoy signaled that the war would be settled before the end of the year, but seemed to rule out a temporary truce.`\
 https://nytimes.com/2025/08/27/world/middleeast/trump-is-set-to-host-a-meeting-on-gaza-how-close-is-a-ceasefire.html
