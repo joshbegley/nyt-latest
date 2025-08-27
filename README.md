@@ -1,3 +1,15 @@
+**‘Spiritual Delusion’ Led to Father and Son’s Apparent Drownings, Sheriff Says**\
+`Vincen Miller, 4, died after he was thrown into Atwood Lake in Ohio. His mother is expected to face an aggravated murder charge, the authorities said.`\
+https://nytimes.com/2025/08/26/us/ohio-lake-drowning-mother-son-spiritual.html
+
+**Broncos roster analysis: Why Audric Estimé, Levelle Bailey didn't make the cut**\
+`The Broncos have had an undrafted rookie make the roster in 21 of the last 22 seasons after linebacker Karene Reid made this year's team.`\
+https://nytimes.com/athletic/6577519/2025/08/26/broncos-roster-cutdown-53-man/
+
+**Ravens find room on deep roster to reward unheralded players who seized opportunity**\
+`A roster that wasn’t initially believed to have room for one rookie free agent now houses three, all on the defensive side of the ball. `\
+https://nytimes.com/athletic/6577588/2025/08/26/ravens-53-man-roster-breakdown/
+
 **A Huge Mall Allows Shopping on Sundays. Is That Illegal?**\
 `A lawsuit argues that the American Dream mall, by allowing the sale of lumber, furniture and “wearing apparel” on Sundays, has violated a “blue law” descended from a 1798 statute.`\
 https://nytimes.com/2025/08/26/nyregion/american-dream-mall-blue-laws.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6577533/2025/08/26/panthers-53-man-roster-adam-thie
 **Bills 53-man roster analysis: Tyrell Shavers, 'Buffalo Joe' Andreessen make the cut**\
 `Tre'Davious White also made the team amid injury concerns, and rookie Maxwell Hairston will start the season on IR.`\
 https://nytimes.com/athletic/6577480/2025/08/26/bills-initial-53-man-roster-analysis-tyrell-shavers-buffalo-joe-andreessen/
-
-**Cardinals' Willson Contreras handed 6-game suspension after bat-throwing incident**\
-`The suspension was scheduled to begin on Tuesday, however, he will be permitted to play until the appeal process is complete. `\
-https://nytimes.com/athletic/6577580/2025/08/26/st-louis-cardinals-willson-contreras-suspension/
-
-**Browns' initial 53-man roster features 3 QBs, 2 RBs and 1 new kicker**\
-`Breaking down the roster as currently constructed and gauging some of the moves Cleveland's made in recent days.`\
-https://nytimes.com/athletic/6577401/2025/08/26/browns-53-man-roster-dillon-gabriel/
-
-**Leeds' Tanaka to miss several weeks with MCL injury**\
-`It is a similar injury to the one Ethan Ampadu suffered in the season-opening win over Everton.`\
-https://nytimes.com/athletic/6577603/2025/08/26/ao-tanaka-leeds-injury-update/
 
