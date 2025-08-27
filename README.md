@@ -1,40 +1,40 @@
-**Hamburg reach agreement to sign Tottenham's Luka Vuskovic on loan**\
-`The deal is a straight loan, and does not include an option nor an obligation to make the transfer permanent.`\
-https://nytimes.com/athletic/6578316/2025/08/27/hamburg-luka-vuskovic-transfer-loan-tottenham/
+**Germany Proposes Plan to Boost Recruitment or Resort to Draft**\
+`Some detractors think the new bill is too weak to fill the recruitment gap. Others worry it will inevitably lead to forced conscription.`\
+https://nytimes.com/2025/08/27/world/europe/germany-military-recruitment.html
 
-**The New York Times International Edition in Print for Thursday, Aug. 28, 2025**\
-``\
-https://nytimes.com/issue/todaysinyt/2025/08/27/todays-new-york-times-international-edition
+**NFL to allow Fox's Tom Brady to attend production meetings: Sources**\
+`The NFL will allow Fox Sports’ top TV game analyst and Las Vegas Raiders’ minority owner to take part in production meetings this season.`\
+https://nytimes.com/athletic/6577539/2025/08/27/tom-brady-rules-fox-nfl-2025/
 
-**Targeted by U.S. Ally, an Arab Dissident Vanished Across Borders**\
-`After criticizing the United Arab Emirates on social media, an Egyptian activist was extradited to the Gulf country, where he has been detained without trial for months.`\
-https://nytimes.com/2025/08/27/world/middleeast/qaradawi-dissident-uae-extradition.html
+**Corso exits, Portnoy enters, Manning emerges: College football 2025 media preview**\
+`Entering the 2025 college football season, what media dynamics will stand out? The Athletic's Andrew Marchand and Richard Deitsch discuss.`\
+https://nytimes.com/athletic/6567313/2025/08/27/lee-corso-dave-portnoy-arch-manning-college-football-media/
 
-**How the myth of the tennis Cinderella story is being rewritten at the U.S. Open and beyond**\
-`Janice Tjen is the latest player to arrive at a Grand Slam not out of nowhere, but with relentless winning in the sport's lower tiers.`\
-https://nytimes.com/athletic/6576969/2025/08/27/tennis-players-to-watch-us-open-janice-tjen/
+**Josh Berry on the loss that shaped him and life as a NASCAR Cup Series driver: 12 Questions**\
+`Josh Berry talks about not being complacent in Cup, a personal tragedy that changed his life, and more in the latest 12 Questions.`\
+https://nytimes.com/athletic/6576477/2025/08/27/josh-berry-nascar-cup-series-playoffs-12-questions/
 
-**The Aces go for a 12th straight win tonight. Here's how to watch their game vs. Dream**\
-`A'ja Wilson and her crew go for a dozen straight wins Wednesday. Atlanta has been one of the league's best teams, 12-4 in its last 16 games.`\
-https://nytimes.com/athletic/6577465/2025/08/27/aces-dream-win-streak-how-to-watch/
+**Women's soccer fans are among the most loyal in sports — and eager to spend**\
+`Down to Business with Asli Pelit takes you through the exciting, fast-paced (and sometimes confusing) corporate side of women's soccer.`\
+https://nytimes.com/athletic/6577675/2025/08/27/women-soccer-fans-brand-support/
 
-**Until the Patriots consistently draft better, roster depth will continue to be an issue**\
-`Mike Vrabel has overhauled the roster in one offseason, but he'll need sustained draft success to make the Patriots a winning team.`\
-https://nytimes.com/athletic/6577554/2025/08/27/mike-vrabel-patriots-nfl-draft-success-roster/
+**53 thoughts on the Jets’ initial 53-man roster after cut-down day**\
+`A look at every player on the first Aaron Glenn-, Darren Mougey-built roster.`\
+https://nytimes.com/athletic/6578046/2025/08/27/new-york-jets-initial-53-man-roster-cutdown-day/
 
-**Call Me a Sucker, but I’m Happy for Taylor and Travis**\
-`A new paradigm for the old pairing of male athlete and beautiful female star.`\
-https://nytimes.com/2025/08/27/opinion/taylor-swift-travis-kelce-engagement.html
+**Brian Kelly, Lincoln Riley and two college football powerhouses at the same crossroads**\
+`A little less than four years ago, just three days apart, a pair of heavyweight programs introduced two new, high-wattage coaches.`\
+https://nytimes.com/athletic/6575895/2025/08/27/brian-kelly-lsu-football-lincoln-riley-usc-football/
 
-**All the Things Trump Thinks He Owns**\
-`The White House is not the president’s property. Neither is Smithsonian. Or Washington itself.`\
-https://nytimes.com/2025/08/27/opinion/trump-white-house-smithsonian-lisa-cook.html
+**Is this college football's best Week 1 ever?**\
+`There have never been this many games between top-10 teams on any opening weekend. And we may not get another Week 1 like it anytime soon.`\
+https://nytimes.com/athletic/6577381/2025/08/27/college-football-schedule-best-week-1-ever-history/
 
-**Venus Williams Lost, but Her Fuzzy Bag Won**\
-`In her return at the U.S. Open, Ms. Williams decided to highlight labels based in the United States. Her shearling racket bag was hard to miss.`\
-https://nytimes.com/2025/08/27/style/venus-williams-fuzzy-bag-erl.html
+**The biggest concern for each MLB contending team down the stretch**\
+`All contenders — from the juggernauts to those currently on the outside looking in — have key issues they’re facing or at least pondering. `\
+https://nytimes.com/athletic/6577911/2025/08/27/mlb-playoff-contenders-concerns-questions/
 
-**The Supreme Court Must Limit This President. Start With the Fed.**\
-`Trump’s effort to oust Lisa Cook could have all sorts of worrisome consequences.`\
-https://nytimes.com/2025/08/27/opinion/lisa-cook-trump-supreme-court.html
+**Inside the Yankees’ subtle lineup changes during crucial ‘all hands on deck’ stretch**\
+`New York is clinging to its hold on the second wild-card position, and a few subtle lineup shifts have been necessary to keep it.`\
+https://nytimes.com/athletic/6577898/2025/08/27/yankees-subtle-lineup-changes-all-hands-on-deck-stretch/
 

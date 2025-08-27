@@ -10,6 +10,10 @@ https://nytimes.com/issue/todaysinyt/2025/08/27/todays-new-york-times-internatio
 `After criticizing the United Arab Emirates on social media, an Egyptian activist was extradited to the Gulf country, where he has been detained without trial for months.`\
 https://nytimes.com/2025/08/27/world/middleeast/qaradawi-dissident-uae-extradition.html
 
+**How the myth of the tennis Cinderella story is being rewritten at the U.S. Open and beyond**\
+`Janice Tjen is the latest player to arrive at a Grand Slam not out of nowhere, but with relentless winning in the sport's lower tiers.`\
+https://nytimes.com/athletic/6576969/2025/08/27/tennis-players-to-watch-us-open-janice-tjen/
+
 **The Aces go for a 12th straight win tonight. Here's how to watch their game vs. Dream**\
 `A'ja Wilson and her crew go for a dozen straight wins Wednesday. Atlanta has been one of the league's best teams, 12-4 in its last 16 games.`\
 https://nytimes.com/athletic/6577465/2025/08/27/aces-dream-win-streak-how-to-watch/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/27/style/venus-williams-fuzzy-bag-erl.html
 **The Supreme Court Must Limit This President. Start With the Fed.**\
 `Trump’s effort to oust Lisa Cook could have all sorts of worrisome consequences.`\
 https://nytimes.com/2025/08/27/opinion/lisa-cook-trump-supreme-court.html
-
-**‘Weak, Woke and Whiny’ No More: The Rise of the Democratic National Security Mom**\
-`The party is counting on a new type of leader to counteract Trump.`\
-https://nytimes.com/2025/08/27/opinion/spanberger-sherrill-women-governor-virginia-new-jersey.html
 

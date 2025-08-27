@@ -1,3 +1,7 @@
+**How the myth of the tennis Cinderella story is being rewritten at the U.S. Open and beyond**\
+`Janice Tjen is the latest player to arrive at a Grand Slam not out of nowhere, but with relentless winning in the sport's lower tiers.`\
+https://nytimes.com/athletic/6576969/2025/08/27/tennis-players-to-watch-us-open-janice-tjen/
+
 **Hamburg reach agreement to sign Tottenham's Luka Vuskovic on loan**\
 `The deal is a straight loan, and does not include an option nor an obligation to make the transfer permanent.`\
 https://nytimes.com/athletic/6578316/2025/08/27/hamburg-luka-vuskovic-transfer-loan-tottenham/
