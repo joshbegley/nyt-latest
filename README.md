@@ -1,3 +1,11 @@
+**Even 2025’s Chaos Couldn’t Keep Brussels From the European August Holiday**\
+`With President Trump’s trade moves, war in Ukraine and wildfires, it was a busy month for the European Union. But not in Brussels.`\
+https://nytimes.com/2025/08/27/world/europe/brussels-august.html
+
+**WR Adam Thielen returns to Vikings in trade with Panthers**\
+`Thielen, 35, who played nine seasons in Minnesota, provides the Vikings with immediate WR help. Meanwhile, the Panthers opt for youth.`\
+https://nytimes.com/athletic/6567394/2025/08/27/adam-thielen-vikings-panthers-trade/
+
 **Bolts on Parade: How to watch, stream and follow the 2025 Los Angeles Chargers**\
 `Here's how to watch Jim Harbaugh, Justin Herbert and the 2025 Los Angeles Chargers this season.`\
 https://nytimes.com/athletic/6576765/2025/08/27/los-angeles-chargers-harbaugh-herbert-how-to-watch-2025/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6576499/2025/08/27/las-vegas-raiders-how-to-watch-2
 **Kohl Rosario, Matt Able and 4 other college freshmen who could exceed expectations**\
 `Teams have looked at their teams for a few months in the summer. Here's who coaches and scouts have been impressed by. `\
 https://nytimes.com/athletic/6573873/2025/08/27/college-basketball-freshmen-to-watch-2025-26/
-
-**Longhorns QB Arch Manning is safe bet to live up to Texas-sized hype … and then some**\
-`He has Cooper’s perspective, Archie’s feet, Peyton’s arm and Eli’s composure. And he's perfectly built to navigate college football's chaos.`\
-https://nytimes.com/athletic/6571956/2025/08/27/arch-manning-texas-ohio-state-longhorns-hype-week-1/
-
-**Dodgers hitting coach Aaron Bates rejoins team after health scare: 'We can celebrate that'**\
-`Bates was hospitalized with blood clots in his left leg and missed 18 days before rejoining the Dodgers last weekend in San Diego.`\
-https://nytimes.com/athletic/6577934/2025/08/27/dodgers-hitting-coach-aaron-bates-rejoins-team/
 
