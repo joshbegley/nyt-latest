@@ -1,3 +1,15 @@
+**Chiefs' Rashee Rice suspended for first 6 games of season**\
+`Rice's suspension comes after he pled guilty to two third-degree felony charges for his role in a March 2024 high-speed car crash.`\
+https://nytimes.com/athletic/6540361/2025/08/27/rashee-rice-suspension-games-chiefs/
+
+**Adam Thielen trade grades: Vikings reunite with old friend; Panthers clear runway for youth**\
+`With injuries and Jordan Addison's suspension chipping away at the Vikings' WR depth, Thielen can make an immediate impact.`\
+https://nytimes.com/athletic/6578712/2025/08/27/adam-thielen-vikings-panthers-trade-grades/
+
+**Ravens extend Kyle Hamilton, make him NFL's highest-paid safety ever**\
+`Hamilton, a 2022 first-round pick, has been selected to two Pro Bowls and earned two All-Pro nods in three seasons. `\
+https://nytimes.com/athletic/6578115/2025/08/27/kyle-hamilton-ravens-extension/
+
 **London City Lionesses complete Zelem, Kennedy signings from Angel City**\
 `Both players had time remaining on their Angel City contracts and undisclosed fees were agreed with London City `\
 https://nytimes.com/athletic/6572747/2025/08/27/katie-zelem-alanna-kennedy-london-city-lionesses-transfer/

@@ -1,3 +1,7 @@
+**The Catholic school where the shooting took place had begun a new year on Monday.**\
+`By Christina Morales`\
+https://nytimes.com/live/2025/08/27/us/minneapolis-church-shooting/the-catholic-school-where-the-shooting-took-place-had-begun-a-new-year-on-monday
+
 **Chiefs' Rashee Rice suspended for first 6 games of season**\
 `Rice's suspension comes after he pled guilty to two third-degree felony charges for his role in a March 2024 high-speed car crash.`\
 https://nytimes.com/athletic/6540361/2025/08/27/rashee-rice-suspension-games-chiefs/
@@ -31,10 +35,6 @@ https://nytimes.com/athletic/6572747/2025/08/27/katie-zelem-alanna-kennedy-londo
 https://nytimes.com/2025/08/27/us/politics/trump-duffy-union-station-dc.html
 
 **Ravens extend Kyle Hamilton, make him NFL's highest-paid safety ever**\
-`Hamilton, a 2022 first-round pick, has been selected to two Pro Bowls and earned two All-Pro nods in three seasons. `\
+`Hamilton, a 2022 first-round pick, has two Pro Bowl selections and earned two All-Pro nods in three seasons. `\
 https://nytimes.com/athletic/6578115/2025/08/27/kyle-hamilton-ravens-extension/
-
-**17 Easy Vegetarian Summer Dinners**\
-`(No description)`\
-https://nytimes.com/newsgraphics/card-story/easy-vegetarian-summer-dinners
 
