@@ -1,3 +1,8 @@
+**McDavid 'taking my time' to work out contract extension with Oilers**\
+`McDavid is entering the final year of his current deal and can hit unrestricted free agency when that expires next summer.
+`\
+https://nytimes.com/athletic/6579447/2025/08/27/connor-mcdavid-oilers-contract-extension-nhl/
+
 **Angela Mortimer, Tennis Champion Who Overcame Adversity, Dies at 93**\
 `She won three Grand Slam singles championships, including one at Wimbledon, in a career that earned her election to the International Tennis Hall of Fame.`\
 https://nytimes.com/2025/08/27/sports/tennis/angela-mortimer-dead.html
