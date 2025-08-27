@@ -1,13 +1,17 @@
+**Announcer Ian Darke to make Fox return for 2026 World Cup: Source**\
+`The assignment would be Darke’s ninth World Cup as an announcer. He previously joined Fox for its coverage of the 2022 tournament.`\
+https://nytimes.com/athletic/6578881/2025/08/27/ian-darke-2026-world-cup-fox/
+
 **Live Updates: Officials Respond to Reports of Shooting at Minneapolis Church**\
 `The shooting was reported at Annunciation Catholic Church, which operates a school. Officials said the attacker was contained.`\
 https://nytimes.com/live/2025/08/27/us/minneapolis-church-shooting
 
-**A Promising New Way to Treat a Failing Heart**\
-`A recent study shows how partial heart transplants could help children with valve defects.`\
+**Doctors Find Early Success With Partial Heart Transplants**\
+`A recent study showed how the cutting-edge surgery could help patients with a failing heart.`\
 https://nytimes.com/2025/08/27/well/partial-heart-transplants.html
 
 **Who is Barcelona's Fermin Lopez? And why do Chelsea need another attacking midfielder?**\
-`Chelsea are evaluating the possibility of a move for Fermin — yet another young attacking player`\
+`Chelsea are evaluating the possibility of a move for Fermin… yet another young attacking player`\
 https://nytimes.com/athletic/6578633/2025/08/27/barcelona-chelsea-fermin-lopez-transfer-profile/
 
 **El Salvador Enacts Military-Style Rules on Haircuts and More in Schools**\
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/27/dining/eric-kims-genius-two-ingredient-fish.html
 **4 Approaches to Dealing With a Narcissist**\
 `We asked experts for books to help people understand narcissistic personality disorder.`\
 https://nytimes.com/2025/08/27/well/narcissism-books.html
-
-**It’s a Night Light. It’s a Plant. It’s a Glowing Succulent.**\
-`In a proof of concept, researchers demonstrated that they could bioengineer a couple of hours of light into a common plant.`\
-https://nytimes.com/2025/08/27/science/glowing-succulents.html
 

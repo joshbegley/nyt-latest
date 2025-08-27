@@ -1,3 +1,7 @@
+**Why McLaren finally said yes to a title sponsor after a decade without one**\
+`McLaren has signed a major new sponsorship deal that brings it into line with the other nine Formula 1 teams`\
+https://nytimes.com/athletic/6578523/2025/08/27/mclaren-mastercard-f1-title-sponsor/
+
 **Announcer Ian Darke to make Fox return for 2026 World Cup: Source**\
 `The assignment would be Darke’s ninth World Cup as an announcer. He previously joined Fox for its coverage of the 2022 tournament.`\
 https://nytimes.com/athletic/6578881/2025/08/27/ian-darke-2026-world-cup-fox/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/27/science/human-evolution-ilium-bipedal.html
 **Eric Kim’s Genius Two-Ingredient Fish**\
 `If you have white fish fillets and scallions — plus olive oil, salt, pepper and about 25 minutes — you have dinner.`\
 https://nytimes.com/2025/08/27/dining/eric-kims-genius-two-ingredient-fish.html
-
-**4 Approaches to Dealing With a Narcissist**\
-`We asked experts for books to help people understand narcissistic personality disorder.`\
-https://nytimes.com/2025/08/27/well/narcissism-books.html
 
