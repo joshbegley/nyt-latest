@@ -1,3 +1,7 @@
+**Wolves reject £55m bid from Newcastle for Strand Larsen**\
+`Wolves' stance remains that any bid for the Norway international this summer will be rejected given his importance to the club.`\
+https://nytimes.com/athletic/6577528/2025/08/27/newcastle-wolves-strand-larsen-transfer/
+
 **In a Lab, the Hunt for a Killer: The Legionella Germ Causing an Outbreak**\
 `Six people in New York City have died this summer from Legionnaires’ disease, and more than 100 others have been sickened.`\
 https://nytimes.com/2025/08/27/nyregion/legionnaires-disease-new-york-lab.html
@@ -33,8 +37,4 @@ https://nytimes.com/issue/todayspaper/2025/08/27/todays-new-york-times
 **Villa have signed 25 players since Emery's arrival - so why are so few of them in their starting XI?**\
 `The greatest gains during the Spaniard’s tenure have come through coaching, not recruitment - but the squad urgently requires new signings`\
 https://nytimes.com/athletic/6032896/2025/08/27/aston-villa-transfers-unai-emery-recruitment/
-
-**Brennan Johnson's 'sixth sense' should make him invaluable to Spurs, regardless of signings**\
-`There's nothing revolutionary about the Welshman’s anticipation, but it's as important as any attribute to being in position to score goals`\
-https://nytimes.com/athletic/6575842/2025/08/27/brennan-johnson-goals/
 
