@@ -1,3 +1,7 @@
+**Officials Respond to Reports of Shooting at Minneapolis Church**\
+`The shooting was reported at Annunciation Catholic Church, which operates a school.`\
+https://nytimes.com/2025/08/27/us/annunciation-church-shooting-minneapolis.html
+
 **The Smoking Hot Return of Bathing Culture**\
 `Saunas and other water-based amenities are booming in societies that once turned their backs on them.`\
 https://nytimes.com/2025/08/27/style/bathing-culture-trend.html

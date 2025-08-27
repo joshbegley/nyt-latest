@@ -1,3 +1,7 @@
+**Want to Swim in the Seine This Summer? Paris Says There’s Still Time.**\
+`The city will extend its experiment with public bathing in the river until mid-September. Swimming there had been banned for a century over health risks.`\
+https://nytimes.com/2025/08/27/world/europe/paris-seine-river-swimming.html
+
 **Officials Respond to Reports of Shooting at Minneapolis Church**\
 `The shooting was reported at Annunciation Catholic Church, which operates a school.`\
 https://nytimes.com/2025/08/27/us/annunciation-church-shooting-minneapolis.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/27/world/europe/amsterdam-murder-lisa.html
 **Even 2025’s Chaos Couldn’t Keep Brussels From the European August Holiday**\
 `With President Trump’s trade moves, war in Ukraine and wildfires, it was a busy month for the European Union. But not in Brussels.`\
 https://nytimes.com/2025/08/27/world/europe/brussels-august.html
-
-**WR Adam Thielen returns to Vikings in trade with Panthers**\
-`Thielen, 35, who played nine seasons in Minnesota, provides the Vikings with immediate WR help. Meanwhile, the Panthers opt for youth.`\
-https://nytimes.com/athletic/6567394/2025/08/27/adam-thielen-vikings-panthers-trade/
 
