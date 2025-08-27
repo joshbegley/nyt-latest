@@ -1,3 +1,15 @@
+**Why Adam Thielen became the obvious WR choice for a Vikings team in a pinch**\
+`Thielen's fit is two-pronged. He's a Minnesota native who played there for nine years, but he should also pick up the offense quickly.`\
+https://nytimes.com/athletic/6579651/2025/08/27/adam-thielen-vikings-trade-wr/
+
+**Rangers miss out on UCL league phase with 6-0 defeat at Club Brugge**\
+`Rangers defender Max Aarons was sent off in the eighth minute as Russell Martin's side went on to lose 6-0 against Club Brugge.`\
+https://nytimes.com/athletic/6578939/2025/08/27/champions-league-teams-2025-26-group-phase/
+
+**Gérard Chaliand, Intrepid Authority on Geopolitics, Dies at 91**\
+`His considerable influence in the French-speaking world was based on an unusual attribute: He had actually been to the revolutions he wrote about.`\
+https://nytimes.com/2025/08/27/world/europe/gerard-chaliand-dead.html
+
 **I Can’t Look Away From This Poem About Looking**\
 `Our critic A.O. Scott gazes into a well with Robert Frost.`\
 https://nytimes.com/interactive/2025/08/27/books/robert-frost-for-once-then-something-poem.html

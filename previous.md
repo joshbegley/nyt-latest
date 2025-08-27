@@ -1,3 +1,15 @@
+**Why Adam Thielen became the obvious WR choice for a Vikings team in a pinch**\
+`Thielen's fit is two-pronged. He's a Minnesota native who played there for nine years, but he should also pick up the offense quickly.`\
+https://nytimes.com/athletic/6579651/2025/08/27/adam-thielen-vikings-trade-wr/
+
+**Rangers miss out on UCL league phase with 6-0 defeat at Club Brugge**\
+`Rangers defender Max Aarons was sent off in the eighth minute as Russell Martin's side went on to lose 6-0 against Club Brugge.`\
+https://nytimes.com/athletic/6578939/2025/08/27/champions-league-teams-2025-26-group-phase/
+
+**Gérard Chaliand, Intrepid Authority on Geopolitics, Dies at 91**\
+`His considerable influence in the French-speaking world was based on an unusual attribute: He had actually been to the revolutions he wrote about.`\
+https://nytimes.com/2025/08/27/world/europe/gerard-chaliand-dead.html
+
 **I Can’t Look Away From This Poem About Looking**\
 `Our critic A.O. Scott gazes into a well with Robert Frost.`\
 https://nytimes.com/interactive/2025/08/27/books/robert-frost-for-once-then-something-poem.html
@@ -25,16 +37,4 @@ https://nytimes.com/paidpost/progressive-insurance/laying-a-foundation.html
 **No Matter How Hopeless It Seems, We Should Press for Better, Stricter Gun Laws**\
 `The prevalence of mass shootings in America is not normal, no other country has to deal with it to this extent, but we are not powerless to act.`\
 https://nytimes.com/2025/08/27/opinion/minneapolis-school-shooting-guns.html
-
-**Serie A say staging match abroad will 'promote Italian football on a global scale'**\
-`Italy and Spain are both aiming to be the first European league to take a regular-season game abroad in the 2025-26 season.`\
-https://nytimes.com/athletic/6579718/2025/08/27/serie-a-match-abroad-milan-como-perth-australia/
-
-**The Fate of the Fed May Turn on Two Words: ‘For Cause’**\
-`The Supreme Court has said the Federal Reserve Board’s independence warrants protection. President Trump’s effort to fire a member will test that commitment.`\
-https://nytimes.com/2025/08/27/us/politics/supreme-court-fed-trump.html
-
-**When a Horse Has a Toothache, Specialized Dentists Step In**\
-`There is evidence that even ancient horses received dental care, and now caregivers can use motorized tools to keep the animals healthy.`\
-https://nytimes.com/2025/08/27/sports/horse-teeth-specialized-dentists.html
 
