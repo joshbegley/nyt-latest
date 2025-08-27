@@ -1,3 +1,15 @@
+**Mets channel 2024 in walk-off win over Phillies**\
+`“I love what I saw from the guys,” manager Carlos Mendoza said. “The fight, the compete, not giving up, playing the whole game.”`\
+https://nytimes.com/athletic/6578066/2025/08/27/mets-channel-2024-walk-off-phillies/
+
+**History lessons, Van Dijk and coaches' faith: How Ngumoha can handle being a Liverpool prodigy**\
+`The 16-year-old's remarkable rise is thrilling - but he also needs to be handled carefully`\
+https://nytimes.com/athletic/6576242/2025/08/27/rio-ngumoha-liverpool-prodigy-grounded/
+
+**An end to Isak saga, midfielders - and a striker: What Newcastle need before the summer window closes**\
+`With six days left to the deadline, Howe and co have a lot of work to do. As the summer has proved, it will be far from straightforward...`\
+https://nytimes.com/athletic/6575608/2025/08/27/newcastle-isak-al-rumayyan-transfer-window/
+
 **Full Weight of American Tariffs Slams Into Effect Against India**\
 `As punishment for buying Russian oil, President Trump is doubling the tax on goods imported from India, jeopardizing a relationship decades in the making.`\
 https://nytimes.com/2025/08/27/business/india-tariffs-trump-russia-oil.html

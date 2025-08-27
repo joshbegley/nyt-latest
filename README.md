@@ -1,3 +1,7 @@
+**Man City are experts at peaking in the spring under Guardiola – this season, that may be more important than ever**\
+`A short pre-season and uncertainty over departures has contributed to a difficult summer at the Etihad Stadium`\
+https://nytimes.com/athletic/6575714/2025/08/27/manchester-city-slow-start-premier-league/
+
 **Mets channel 2024 in walk-off win over Phillies**\
 `“I love what I saw from the guys,” manager Carlos Mendoza said. “The fight, the compete, not giving up, playing the whole game.”`\
 https://nytimes.com/athletic/6578066/2025/08/27/mets-channel-2024-walk-off-phillies/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6564773/2025/08/27/sarah-bern-interview-england-wom
 **Tyler Dibling to Everton: Everything you need to know - TLDR**\
 `Everton have added to their attacking options with Tyler Dibling from Southampton - here we break down the deal.`\
 https://nytimes.com/athletic/6576451/2025/08/27/tyler-dibling-everton-transfer-tldr/
-
-**Will Fulham's quiet summer in the transfer market inhibit their progress under Marco Silva?**\
-`Fulham are sticking to the blueprint that served them well last season – but is that enough in an evolving Premier League?`\
-https://nytimes.com/athletic/6575601/2025/08/27/fulham-transfers-tactics-marco-silva/
 
