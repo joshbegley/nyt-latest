@@ -1,3 +1,7 @@
+**FEMA Suspends Staff Who Signed a Letter Criticizing Trump**\
+`The letter, sent to Congress on Monday, said cuts made by the Trump administration had erased improvements made to disaster response since Hurricane Katrina.`\
+https://nytimes.com/2025/08/26/climate/fema-suspends-staff-who-criticized-trump-cuts.html
+
 **Trump’s Appointees Could Rule the Fed for Decades**\
 `If President Trump succeeds in replacing Lisa Cook, his nominees will make up a majority of the Federal Reserve’s seven-person board.`\
 https://nytimes.com/interactive/2025/08/26/us/politics/trump-fed-appointees.html
