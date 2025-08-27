@@ -1,3 +1,11 @@
+**Donald Trump to attend Ryder Cup in New York next month**\
+`PGA of America CEO Derek Sprague confirmed that the organization invited Trump "a number of weeks ago."`\
+https://nytimes.com/athletic/6579299/2025/08/27/donald-trump-ryder-cup-attendance-keegan-bradley/
+
+**Jack Draper out of U.S. Open with left arm injury despite winning opening match**\
+`Draper, a semifinalist last year, hadn't played ahead of the U.S. Open because of the injury.`\
+https://nytimes.com/athletic/6579324/2025/08/27/tennis-jack-draper-us-open-injury-out/
+
 **Betting for (by) dummies: Picking NFL futures and college's loaded Week 1**\
 `Jon Greenberg and Zac Jackson return for the start of football with some NFL futures bets and some college Week 1 bets.`\
 https://nytimes.com/athletic/6578861/2025/08/27/betting-dummies-nfl-futures-week-1-college-football/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6579088/2025/08/27/49ers-mvs-kendrick-bourne-wide-r
 **Why Ukraine Is Allowing More Young Men to Leave the Country**\
 `For three years of war, the country has banned young men from leaving the country once they turn 18, prompting an exodus of teenage boys. Now it is raising that age limit to 23.`\
 https://nytimes.com/2025/08/27/world/europe/young-ukrainians-18-22-leave.html
-
-**Google Pixel 10 Pro Review: This A.I. Phone Can Save Time if You Surrender Your Data**\
-`The new artificially intelligent Pixel can help people streamline certain tasks. But that efficiency may not be worth the data you give up, our reviewer writes.`\
-https://nytimes.com/2025/08/27/technology/personaltech/google-pixel-10-pro-review-ai-phone.html
-
-**Denmark Apologizes After Birth Control Scandal in Greenland**\
-`For years, Danish doctors inserted intrauterine devices in Greenlandic girls and women without their consent, part of a painful legacy of mistreatment.`\
-https://nytimes.com/2025/08/27/world/europe/denmark-involuntary-birth-control-greenland-apology.html
 

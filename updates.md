@@ -1,3 +1,11 @@
+**Donald Trump to attend Ryder Cup in New York next month**\
+`PGA of America CEO Derek Sprague confirmed that the organization invited Trump "a number of weeks ago."`\
+https://nytimes.com/athletic/6579299/2025/08/27/donald-trump-ryder-cup-attendance-keegan-bradley/
+
+**Jack Draper out of U.S. Open with left arm injury despite winning opening match**\
+`Draper, a semifinalist last year, hadn't played ahead of the U.S. Open because of the injury.`\
+https://nytimes.com/athletic/6579324/2025/08/27/tennis-jack-draper-us-open-injury-out/
+
 **Betting for (by) dummies: Picking NFL futures and college's loaded Week 1**\
 `Jon Greenberg and Zac Jackson return for the start of football with some NFL futures bets and some college Week 1 bets.`\
 https://nytimes.com/athletic/6578861/2025/08/27/betting-dummies-nfl-futures-week-1-college-football/
