@@ -1,3 +1,11 @@
+**Corrections: Aug. 27, 2025**\
+`Corrections that appeared in print on Wednesday, Aug. 27, 2025.`\
+https://nytimes.com/2025/08/26/pageoneplus/corrections-aug-27-2025.html
+
+**Quote of the Day: Behind Trade Fears in U.S.: A Safety Net Flimsier Than Peers’**\
+`Quotation of the Day for Wednesday, August 27, 2025.`\
+https://nytimes.com/2025/08/26/pageoneplus/quote-of-the-day-behind-trade-fears-in-us-a-safety-net-flimsier-than-peers.html
+
 **Analyzing Chargers' initial 53-man roster: Unfinished product includes no long snapper**\
 `LS Josh Harris was placed on injured reserve with a designation to return, and the Chargers likely have work still to do with their roster.`\
 https://nytimes.com/athletic/6577937/2025/08/26/chargers-53-man-roster-analysis-2025/
