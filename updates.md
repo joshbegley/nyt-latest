@@ -1,3 +1,11 @@
+**A Huge Mall Allows Shopping on Sundays. Is That Illegal?**\
+`A lawsuit argues that the American Dream mall, by allowing the sale of lumber, furniture and “wearing apparel” on Sundays, has violated a “blue law” descended from a 1798 statute.`\
+https://nytimes.com/2025/08/26/nyregion/american-dream-mall-blue-laws.html
+
+**Trump Calls for Death Penalty in All D.C. Murder Cases**\
+`It is unclear how Mr. Trump would carry out his directive. The Supreme Court ruled that mandatory death sentences were unconstitutional nearly half a century ago.`\
+https://nytimes.com/2025/08/26/us/politics/trump-death-penalty-murder-dc.html
+
 **Bengals roster cutdown: Why opposite approaches on O-line, D-line signal same concern**\
 `Cincinnati is expected to be active on the waiver wire after thinning the offensive line to eight and still needing answers at safety.`\
 https://nytimes.com/athletic/6577660/2025/08/26/bengals-53-man-roster-cutdown/

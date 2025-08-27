@@ -1,3 +1,11 @@
+**A Huge Mall Allows Shopping on Sundays. Is That Illegal?**\
+`A lawsuit argues that the American Dream mall, by allowing the sale of lumber, furniture and “wearing apparel” on Sundays, has violated a “blue law” descended from a 1798 statute.`\
+https://nytimes.com/2025/08/26/nyregion/american-dream-mall-blue-laws.html
+
+**Trump Calls for Death Penalty in All D.C. Murder Cases**\
+`It is unclear how Mr. Trump would carry out his directive. The Supreme Court ruled that mandatory death sentences were unconstitutional nearly half a century ago.`\
+https://nytimes.com/2025/08/26/us/politics/trump-death-penalty-murder-dc.html
+
 **Bengals roster cutdown: Why opposite approaches on O-line, D-line signal same concern**\
 `Cincinnati is expected to be active on the waiver wire after thinning the offensive line to eight and still needing answers at safety.`\
 https://nytimes.com/athletic/6577660/2025/08/26/bengals-53-man-roster-cutdown/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6577401/2025/08/26/browns-53-man-roster-dillon-gabr
 **Leeds' Tanaka to miss several weeks with MCL injury**\
 `It is a similar injury to the one Ethan Ampadu suffered in the season-opening win over Everton.`\
 https://nytimes.com/athletic/6577603/2025/08/26/ao-tanaka-leeds-injury-update/
-
-**Vikings 53-man roster review: One thought on each player who made the initial list**\
-`The Vikings named their initial 53-man roster, but don't be surprised if they make more moves in the coming days at WR, CB and returner.`\
-https://nytimes.com/athletic/6576489/2025/08/26/vikings-53-man-roster-cutdown/
-
-**Taylor Swift’s Engagement Ring Marks a Return to Vintage Elegance**\
-`The pop star’s antique-inspired sparkler channels the “heirloom look,” reflecting a return to antique stones.`\
-https://nytimes.com/2025/08/26/style/taylor-swift-engagement-ring.html
 
