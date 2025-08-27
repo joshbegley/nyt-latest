@@ -1,3 +1,23 @@
+**At the Stephex Masters Horse Auction, Buyers Hope to Nab a Champion**\
+`Picking the right one is an art and carries a lot of risk.`\
+https://nytimes.com/2025/08/27/sports/horse-auction-buyers.html
+
+**Can You Still Get the Covid Shot?**\
+`The F.D.A. introduced new rules. Here’s what to know.`\
+https://nytimes.com/2025/08/27/well/covid-vaccines-guidelines-fall-2025.html
+
+**Folarin Balogun added to USMNT's squad for September friendlies**\
+`U.S. Soccer hinted at a 23rd player joining the group that was revealed Tuesday, and it's the Monaco forward getting the call`\
+https://nytimes.com/athletic/6579397/2025/08/27/folarin-balogun-usmnt-squad-september-friendlies/
+
+**Besiktas end Oxlade-Chamberlain contract a year early**\
+`Oxlade-Chamberlain departs the Turkish Super Lig club a year before his contract was due to expire.`\
+https://nytimes.com/athletic/6490090/2025/08/27/alex-oxlade-chamberlain-transfer-besiktas/
+
+**This Crocodile Relative Was One of Dinosaurs’ Most Fearsome Predators**\
+`A fossil found in Argentina shows that up to the very end of the age of dinosaurs, they faced serious competition from other reptile species.`\
+https://nytimes.com/2025/08/27/science/land-crocodile-dinosaurs.html
+
 **Donald Trump to attend Ryder Cup in New York next month**\
 `PGA of America CEO Derek Sprague confirmed that the organization invited Trump "a number of weeks ago."`\
 https://nytimes.com/athletic/6579299/2025/08/27/donald-trump-ryder-cup-attendance-keegan-bradley/
