@@ -1,3 +1,11 @@
+**SpaceX Launches Critical Test of Mars Rocket**\
+`After two consecutive scrubs, SpaceX’s Starship vehicle launched on Tuesday night. The test aims to show that the mammoth rocket is capable of taking people to Mars.`\
+https://nytimes.com/video/science/100000010363077/spacex-starship-launch-texas.html
+
+**Cowboys 53-man roster: Still 'open for business' after cuts, surprise keepers**\
+`Dallas still has questions at cornerback and defensive tackle remains its weakest position after Tuesday's cuts.`\
+https://nytimes.com/athletic/6577742/2025/08/26/cowboys-53-man-roster-cuts-mazi-smith/
+
 **Cracker Barrel Drops New Logo Design After Conservative Backlash**\
 `The chain, known for its farmhouse aesthetic, ignited a social media firestorm when it announced its “fresh” rebrand last week.`\
 https://nytimes.com/2025/08/26/business/cracker-barrel-logo-rebrand.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/08/26/us/politics/trump-death-penalty-murder-dc.html
 **Bengals roster cutdown: Why opposite approaches on O-line, D-line signal same concern**\
 `Cincinnati is expected to be active on the waiver wire after thinning the offensive line to eight and still needing answers at safety.`\
 https://nytimes.com/athletic/6577660/2025/08/26/bengals-53-man-roster-cutdown/
-
-**Trump Says He Welcomes Chinese Students, as His Administration Blocks Them**\
-`The president has praised Chinese students several times. But his policies are making it more difficult for students from China to come to the United States.`\
-https://nytimes.com/2025/08/26/us/politics/trump-chinese-students.html
-
-**This Couple Predicted Taylor Swift and Travis Kelce’s Relationship 5 Years Ago**\
-`They needed a Halloween costume. Five years later, some have suggested that they manifested the “Tayvis” marriage.`\
-https://nytimes.com/2025/08/26/arts/taylor-swift-travis-kelce-engagement-halloween-costume-prediction.html
 
