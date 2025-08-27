@@ -1,3 +1,7 @@
+**Wolves reject £55m bid from Newcastle for Strand Larsen**\
+`Wolves' stance remains that any bid for the Norway international this summer will be rejected given his importance to the club.`\
+https://nytimes.com/athletic/6577528/2025/08/27/newcastle-wolves-strand-larsen-transfer/
+
 **In a Lab, the Hunt for a Killer: The Legionella Germ Causing an Outbreak**\
 `Six people in New York City have died this summer from Legionnaires’ disease, and more than 100 others have been sickened.`\
 https://nytimes.com/2025/08/27/nyregion/legionnaires-disease-new-york-lab.html
