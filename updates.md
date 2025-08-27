@@ -1,4 +1,8 @@
 **SpaceX Launches Critical Test of Mars Rocket**\
+`After two consecutive scrubs, SpaceX’s Starship vehicle launched on Tuesday night. The test aims to show that the mammoth rocket is capable of achieving key flight goals.`\
+https://nytimes.com/video/science/100000010363077/spacex-starship-launch-texas.html
+
+**SpaceX Launches Critical Test of Mars Rocket**\
 `After two consecutive scrubs, SpaceX’s Starship vehicle launched on Tuesday night. The test aims to show that the mammoth rocket is capable of taking people to Mars.`\
 https://nytimes.com/video/science/100000010363077/spacex-starship-launch-texas.html
 
