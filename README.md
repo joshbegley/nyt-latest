@@ -1,3 +1,11 @@
+**The 1950s Kitchen Gets an Update**\
+`With today’s wellness kitchens, it’s farewell to the pantry with shelf-stabilized foods, and hail to the composter.`\
+https://nytimes.com/2025/08/27/style/wellness-kitchen-design.html
+
+**Abrego Garcia Requests Asylum in the United States**\
+`The request is another possible path for the Salvadoran man, who has already been deported and returned by the Trump administration, to remain in the country.`\
+https://nytimes.com/2025/08/27/us/politics/abrego-garcia-asylum.html
+
 **The Longest-Running Rafiki Says Goodbye to ‘The Lion King’**\
 `After more than 9,000 performances as the shaman in the Broadway show, Tshidi Manye prepares to hang up her baboon costume.`\
 https://nytimes.com/2025/08/27/theater/tshidi-manye-lion-king-rafiki.html
@@ -7,7 +15,7 @@ https://nytimes.com/2025/08/27/theater/tshidi-manye-lion-king-rafiki.html
 https://nytimes.com/2025/08/27/arts/television/katrina-come-hell-and-high-water-netflix-spike-lee.html
 
 **London City Lionesses complete signings of Zelem, Kennedy from Angel City**\
-`London City Lionesses have completed the signings of midfielder Katie Zelem and defender Alanna Kennedy from Angel City.`\
+`side said an undisclosed transfer fee had been agreed with London City for the two players.`\
 https://nytimes.com/athletic/6572747/2025/08/27/katie-zelem-alanna-kennedy-london-city-lionesses-transfer/
 
 **Union Station in Washington to Go Under Federal Control**\
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6578875/2025/08/27/timberwolves-ceo-nba-matthew-cal
 **My Father Keeps Forwarding Me Misinformation. How Often Do I Correct Him?**\
 `I worry about him. He has fallen prey to scams in the past.`\
 https://nytimes.com/2025/08/27/magazine/father-forwarding-misinformation-ethics.html
-
-**gws-death-valley-summertime-heat**\
-`(No description)`\
-https://nytimes.com/newsgraphics/card-story/death-valley-summertime-heat
-
-**gws-roommate-court-tiktok-michael-abber**\
-`(No description)`\
-https://nytimes.com/newsgraphics/card-story/roommate-court-tiktok-michael-abber
 
