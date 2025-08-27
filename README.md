@@ -1,3 +1,7 @@
+**Trump Says Republicans Are Working on a ‘Comprehensive’ Crime Bill**\
+`President Trump made the announcement in a brief social media post. It was his latest effort to push crime to the foreground of American politics.`\
+https://nytimes.com/2025/08/27/us/politics/trump-crime-bill-congress-dc.html
+
 **Jorgen Strand Larsen's value to Wolves is clear, so can they afford to sell him?**\
 `Newcastle had a second offer rejected for the Norwegian striker just hours after his late brace secured Wolves' first win of the season`\
 https://nytimes.com/athletic/6577712/2025/08/27/strand-larsen-wolves-newcastle-pereira/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6578121/2025/08/27/astros-yordan-alvarez-return-roc
 **Europe Has Found Its Formula for Managing Trump**\
 `It starts with flattery.`\
 https://nytimes.com/2025/08/27/opinion/europe-ukraine-trump.html
-
-**The New York Times in Print for Wednesday, Aug. 27, 2025**\
-``\
-https://nytimes.com/issue/todayspaper/2025/08/27/todays-new-york-times
 
