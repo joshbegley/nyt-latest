@@ -1,3 +1,7 @@
+**The New York Times International Edition in Print for Thursday, Aug. 28, 2025**\
+``\
+https://nytimes.com/issue/todaysinyt/2025/08/27/todays-new-york-times-international-edition
+
 **Targeted by U.S. Ally, an Arab Dissident Vanished Across Borders**\
 `After criticizing the United Arab Emirates on social media, an Egyptian activist was extradited to the Gulf country, where he has been detained without trial for months.`\
 https://nytimes.com/2025/08/27/world/middleeast/qaradawi-dissident-uae-extradition.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/27/opinion/spanberger-sherrill-women-governor-virgin
 **Venice Film Festival 2025: What to Watch for and What’s Missing**\
 `Starry vehicles featuring the likes of Julia Roberts, George Clooney and Emma Stone will make their debuts in Italy, but some big names are skipping fests.`\
 https://nytimes.com/2025/08/27/movies/venice-film-festival-what-to-watch.html
-
-**From Airbnb to America’s ‘Chief Design Officer’**\
-`Joe Gebbia wants to make government services more “satisfying.” Some peers in the design industry are skeptical.`\
-https://nytimes.com/2025/08/27/style/joe-gebbia-trump-design-officer-airbnb.html
 

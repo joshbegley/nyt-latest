@@ -1,3 +1,7 @@
+**Targeted by U.S. Ally, an Arab Dissident Vanished Across Borders**\
+`After criticizing the United Arab Emirates on social media, an Egyptian activist was extradited to the Gulf country, where he has been detained without trial for months.`\
+https://nytimes.com/2025/08/27/world/middleeast/qaradawi-dissident-uae-extradition.html
+
 **The Aces go for a 12th straight win tonight. Here's how to watch their game vs. Dream**\
 `A'ja Wilson and her crew go for a dozen straight wins Wednesday. Atlanta has been one of the league's best teams, 12-4 in its last 16 games.`\
 https://nytimes.com/athletic/6577465/2025/08/27/aces-dream-win-streak-how-to-watch/
