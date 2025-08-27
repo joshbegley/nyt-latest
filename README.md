@@ -19,7 +19,7 @@ https://nytimes.com/athletic/6578523/2025/08/27/mclaren-mastercard-f1-title-spon
 https://nytimes.com/athletic/6578881/2025/08/27/ian-darke-2026-world-cup-fox/
 
 **Live Updates: At Least 1 Dead, 20 Injured in Shooting at Minneapolis Catholic School, Officials Say**\
-`The city said a suspect in the shooting, at Annunciation Catholic Church, was contained. Officials said the death toll was likely to use.`\
+`Officials said that a suspect in the shooting, at Annunciation Catholic Church, was also dead and that the death toll was likely to rise.`\
 https://nytimes.com/live/2025/08/27/us/minneapolis-church-shooting
 
 **Doctors Find Early Success With Partial Heart Transplants**\

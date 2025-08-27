@@ -1,9 +1,25 @@
+**Pregnant Teenager Is Killed in Road Rage, but Her Baby Is Delivered Alive**\
+`Police said two drivers were tailgating each other when one fired a gun early Sunday in Louisiana.`\
+https://nytimes.com/2025/08/27/us/road-rage-pregnant-teen-shooting.html
+
+**Wednesday Briefing: Trump’s India Muddle**\
+`We explore why India is so confused by the Trump administration as U.S. tariff rates of 50 percent take effect today.`\
+https://nytimes.com/2025/08/27/briefing/india-tariffs-fed-upheaval-trump.html
+
+**Keegan Bradley leaves himself off 2025 Ryder Cup captain's list**\
+`The six spots instead were given to Justin Thomas, Collin Morikawa, Patrick Cantlay, Sam Burns, Cameron Young and Ben Griffin.`\
+https://nytimes.com/athletic/6578841/2025/08/27/keegan-bradley-captain-ryder-cup/
+
+**Why McLaren finally said yes to a title sponsor after a decade without one**\
+`McLaren has signed a major new sponsorship deal that brings it into line with the other nine Formula 1 teams`\
+https://nytimes.com/athletic/6578523/2025/08/27/mclaren-mastercard-f1-title-sponsor/
+
 **Announcer Ian Darke to make Fox return for 2026 World Cup: Source**\
 `The assignment would be Darke’s ninth World Cup as an announcer. He previously joined Fox for its coverage of the 2022 tournament.`\
 https://nytimes.com/athletic/6578881/2025/08/27/ian-darke-2026-world-cup-fox/
 
-**Live Updates: Officials Respond to Reports of Shooting at Minneapolis Church**\
-`The shooting was reported at Annunciation Catholic Church, which operates a school. Officials said the attacker was contained.`\
+**Live Updates: At Least 1 Dead, 20 Injured in Shooting at Minneapolis Catholic School, Officials Say**\
+`The city said a suspect in the shooting, at Annunciation Catholic Church, was contained. Officials said the death toll was likely to use.`\
 https://nytimes.com/live/2025/08/27/us/minneapolis-church-shooting
 
 **Doctors Find Early Success With Partial Heart Transplants**\
@@ -21,20 +37,4 @@ https://nytimes.com/2025/08/27/world/americas/el-salvador-schools-military.html
 **Spike Lee’s ‘Come Hell and High Water’ Shows Katrina’s Lingering Damage**\
 `Twenty years after the hurricane, the producer and showrunner Alisa Payne discussed the new Netflix documentary series in an interview.`\
 https://nytimes.com/2025/08/27/arts/television/katrina-alisa-payne-spike-lee.html
-
-**As PBS Stations Confront Cuts, American History Takes a Hit**\
-`The documentary series “American Experience” begins an abbreviated schedule this week. A victim of the federal funding take-back, it has suspended production and laid off its staff.`\
-https://nytimes.com/2025/08/27/arts/television/american-experience.html
-
-**Uncovering the Genes That Let Our Ancestors Walk Upright**\
-`A new study reveals some of the crucial molecular steps on the path to bipedalism.`\
-https://nytimes.com/2025/08/27/science/human-evolution-ilium-bipedal.html
-
-**Eric Kim’s Genius Two-Ingredient Fish**\
-`If you have white fish fillets and scallions — plus olive oil, salt, pepper and about 25 minutes — you have dinner.`\
-https://nytimes.com/2025/08/27/dining/eric-kims-genius-two-ingredient-fish.html
-
-**4 Approaches to Dealing With a Narcissist**\
-`We asked experts for books to help people understand narcissistic personality disorder.`\
-https://nytimes.com/2025/08/27/well/narcissism-books.html
 
