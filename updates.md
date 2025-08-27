@@ -1,3 +1,7 @@
+**Hamburg reach agreement to sign Tottenham's Luka Vuskovic on loan**\
+`The deal is a straight loan, and does not include an option nor an obligation to make the transfer permanent.`\
+https://nytimes.com/athletic/6578316/2025/08/27/hamburg-luka-vuskovic-transfer-loan-tottenham/
+
 **The New York Times International Edition in Print for Thursday, Aug. 28, 2025**\
 ``\
 https://nytimes.com/issue/todaysinyt/2025/08/27/todays-new-york-times-international-edition
