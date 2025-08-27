@@ -1,3 +1,7 @@
+**Jarrod Bowen clashing with a supporter is a sad reflection of West Ham's plight**\
+`The Londoners' captain sought to confront a fan post-match at Molineux as Graham Potter's side endured a third successive defeat of term`\
+https://nytimes.com/athletic/6576781/2025/08/27/bowen-west-ham-wolves-supporter-potter/
+
 **Word of the Day: mangrove**\
 `This word has appeared in 23 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2025/08/27/learning/word-of-the-day-mangrove.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6578066/2025/08/27/mets-channel-2024-walk-off-phill
 **History lessons, Van Dijk and coaches' faith: How Ngumoha can handle being a Liverpool prodigy**\
 `The 16-year-old's remarkable rise is thrilling - but he also needs to be handled carefully`\
 https://nytimes.com/athletic/6576242/2025/08/27/rio-ngumoha-liverpool-prodigy-grounded/
-
-**An end to Isak saga, midfielders - and a striker: What Newcastle need before the summer window closes**\
-`With six days left to the deadline, Howe and co have a lot of work to do. As the summer has proved, it will be far from straightforward...`\
-https://nytimes.com/athletic/6575608/2025/08/27/newcastle-isak-al-rumayyan-transfer-window/
 
