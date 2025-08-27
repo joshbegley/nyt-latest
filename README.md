@@ -1,3 +1,15 @@
+**The Look of Taylor Swift’s Engagement Era**\
+`It’s picture-perfect, of course.`\
+https://nytimes.com/2025/08/27/style/taylor-swift-engagement-dress.html
+
+**Denver Broncos 2025 streaming guide: TV broadcast and schedule for playoff hopefuls**\
+`The Denver Broncos ended 2024 at an encouraging 10–7. Here's how to tune in for their 2025 follow-up.`\
+https://nytimes.com/athletic/6576222/2025/08/27/denver-broncos-how-to-watch-schedule-streaming-2025/
+
+**Dozens Are Killed in Kashmir After Heavy Rain and Flooding**\
+`Officials said at least 34 people were killed in the Indian-controlled part of Jammu and Kashmir, most of them pilgrims who died along the route to a popular Hindu shrine.`\
+https://nytimes.com/video/world/asia/100000010363454/kashmir-flooding-jammu-monsoon.html
+
 **South Korea Outlaws the Use of Smartphones During Class**\
 `It becomes the latest country to restrict phone use in schools, with a law that will go into effect in 2026.`\
 https://nytimes.com/2025/08/27/world/asia/south-korea-school-smartphone-ban.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6537256/2025/08/27/kansas-city-chiefs-mahomes-kelce
 **Trump Administration Live Updates: President’s Higher Tariffs on India Take Effect**\
 ``\
 https://nytimes.com/live/2025/08/27/us/trump-news
-
-**Does Bill Belichick's relationship with Jordon Hudson impact betting?**\
-`Evaluating UNC odds heading into Game 1, and the "distracted Bill" narrative that saw bettors flip on the team.`\
-https://nytimes.com/athletic/6574810/2025/08/27/bill-belichick-unc-jordon-hudson-odds-betting/
-
-**MoneyCall Poll: Do you like Nike's new Caitlin Clark logo?**\
-`Welcome to the polling page for MoneyCall, The Athletic's free sports business newsletter.`\
-https://nytimes.com/athletic/6576106/2025/08/27/moneycall-newsletter-poll-vote/
-
-**What Pochettino's praise for MLS means for USMNT's makeup**\
-`The U.S. manager, perhaps unexpectedly, continues to turn to MLS talent and isn't shy about explaining why`\
-https://nytimes.com/athletic/6577254/2025/08/27/mauricio-pochettino-mls-praise-usmnt-world-cup/
 

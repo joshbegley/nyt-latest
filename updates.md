@@ -1,3 +1,11 @@
+**South Korea Outlaws the Use of Smartphones During Class**\
+`It becomes the latest country to restrict phone use in schools, with a law that will go into effect in 2026.`\
+https://nytimes.com/2025/08/27/world/asia/south-korea-school-smartphone-ban.html
+
+**Notre Dame football 2025: TV schedule, streaming guide for the Fighting Irish**\
+`Last season's Notre Dame group advanced all the way to the national championship game. Expectations are predictably high for 2025.`\
+https://nytimes.com/athletic/6568956/2025/08/27/notre-dame-football-tv-schedule-how-to-watch-2025/
+
 **Dortmund agree deal for Wolves' Fabio Silva**\
 `The deal is made up of €22.5m up-front, plus a further €4m in potential add ons. `\
 https://nytimes.com/athletic/6578466/2025/08/27/fabio-silva-transfer-wolves-borussia-dortmund/

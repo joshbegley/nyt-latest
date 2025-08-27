@@ -1,3 +1,11 @@
+**South Korea Outlaws the Use of Smartphones During Class**\
+`It becomes the latest country to restrict phone use in schools, with a law that will go into effect in 2026.`\
+https://nytimes.com/2025/08/27/world/asia/south-korea-school-smartphone-ban.html
+
+**Notre Dame football 2025: TV schedule, streaming guide for the Fighting Irish**\
+`Last season's Notre Dame group advanced all the way to the national championship game. Expectations are predictably high for 2025.`\
+https://nytimes.com/athletic/6568956/2025/08/27/notre-dame-football-tv-schedule-how-to-watch-2025/
+
 **Dortmund agree deal for Wolves' Fabio Silva**\
 `The deal is made up of €22.5m up-front, plus a further €4m in potential add ons. `\
 https://nytimes.com/athletic/6578466/2025/08/27/fabio-silva-transfer-wolves-borussia-dortmund/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6576106/2025/08/27/moneycall-newsletter-poll-vote/
 **What Pochettino's praise for MLS means for USMNT's makeup**\
 `The U.S. manager, perhaps unexpectedly, continues to turn to MLS talent and isn't shy about explaining why`\
 https://nytimes.com/athletic/6577254/2025/08/27/mauricio-pochettino-mls-praise-usmnt-world-cup/
-
-**Smith: Why the Marco Rossi-Wild contract was a smart compromise that benefits both sides**\
-`Coach John Hynes on the Rossi negotiations: "There can be some disagreement or conflict. … Some things like that don't turn into something."`\
-https://nytimes.com/athletic/6574845/2025/08/27/marco-rossi-contract-analysis/
-
-**Are the Twins right to think next season's starting pitching depth will be a strength?**\
-`On paper, the Twins have a logjam of 2026 rotation options, but how many will become trade candidates or bullpen conversions?`\
-https://nytimes.com/athletic/6573800/2025/08/27/twins-starting-pitching-depth-options-2026/
 
