@@ -1,3 +1,7 @@
+**Man City are experts at peaking in the spring under Guardiola – this season, that may be more important than ever**\
+`A short pre-season and uncertainty over departures has contributed to a difficult summer at the Etihad Stadium`\
+https://nytimes.com/athletic/6575714/2025/08/27/manchester-city-slow-start-premier-league/
+
 **Mets channel 2024 in walk-off win over Phillies**\
 `“I love what I saw from the guys,” manager Carlos Mendoza said. “The fight, the compete, not giving up, playing the whole game.”`\
 https://nytimes.com/athletic/6578066/2025/08/27/mets-channel-2024-walk-off-phillies/
