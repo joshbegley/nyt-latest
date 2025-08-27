@@ -1,3 +1,7 @@
+**The attack was the fourth deadly shooting in Minneapolis in just over 24 hours.**\
+`By Anushka Patil`\
+https://nytimes.com/live/2025/08/27/us/minneapolis-church-shooting/the-attack-was-the-fourth-deadly-shooting-in-minneapolis-in-just-over-24-hours
+
 **This 20-Minute Shrimp Curry Will Wow Everyone Who Tries It**\
 `Madhur Jaffrey’s Goan recipe is the perfect meal for any occasion — dinner party or just dinner.`\
 https://nytimes.com/2025/08/27/dining/quick-shrimp-curry.html
