@@ -1,3 +1,7 @@
+**Astros turn Yordan Alvarez's return into a clunker**\
+`Losing 6-1 against the Rockies ruined any good vibes Alvarez’s return may have produced.`\
+https://nytimes.com/athletic/6578121/2025/08/27/astros-yordan-alvarez-return-rockies/
+
 **Europe Has Found Its Formula for Managing Trump**\
 `It starts with flattery.`\
 https://nytimes.com/2025/08/27/opinion/europe-ukraine-trump.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6575608/2025/08/27/newcastle-isak-al-rumayyan-trans
 **Full Weight of American Tariffs Slams Into Effect Against India**\
 `As punishment for buying Russian oil, President Trump is doubling the tax on goods imported from India, jeopardizing a relationship decades in the making.`\
 https://nytimes.com/2025/08/27/business/india-tariffs-trump-russia-oil.html
-
-**Breaking down Viktor Gyokeres’ trademark goal - and why it addresses an Arsenal weakness**\
-`The striker loves sprinting into the channels, especially on the left, where his pace and power make it hard for defenders to stop him`\
-https://nytimes.com/athletic/6574938/2025/08/27/viktor-gyokeres-trademark-goal-arsenal-analysis/
 
