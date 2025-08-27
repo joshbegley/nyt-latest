@@ -1,3 +1,15 @@
+**Witnesses describe harrowing scenes at the hospital and school.**\
+`By Aimee Ortiz`\
+https://nytimes.com/live/2025/08/27/us/minneapolis-church-shooting/witnesses-describe-harrowing-scenes-at-the-hospital-and-school
+
+**F.D.A. Approves Covid Shots with New Restrictions**\
+`The agency’s fall recommendations underscore the goals of Health Secretary Robert F. Kennedy Jr. to limit access to the vaccines, which he has long opposed.`\
+https://nytimes.com/2025/08/27/health/fda-covid-vaccines-rfk-jr.html
+
+**The Catholic school where the shooting took place had begun a new year on Monday.**\
+`By Christina Morales`\
+https://nytimes.com/live/2025/08/27/us/minneapolis-church-shooting/the-catholic-school-where-the-shooting-took-place-had-begun-a-new-year-on-monday
+
 **Chiefs' Rashee Rice suspended for first 6 games of season**\
 `Rice's suspension comes after he pled guilty to two third-degree felony charges for his role in a March 2024 high-speed car crash.`\
 https://nytimes.com/athletic/6540361/2025/08/27/rashee-rice-suspension-games-chiefs/

@@ -1,3 +1,15 @@
+**Witnesses describe harrowing scenes at the hospital and school.**\
+`By Aimee Ortiz`\
+https://nytimes.com/live/2025/08/27/us/minneapolis-church-shooting/witnesses-describe-harrowing-scenes-at-the-hospital-and-school
+
+**F.D.A. Approves Covid Shots with New Restrictions**\
+`The agency’s fall recommendations underscore the goals of Health Secretary Robert F. Kennedy Jr. to limit access to the vaccines, which he has long opposed.`\
+https://nytimes.com/2025/08/27/health/fda-covid-vaccines-rfk-jr.html
+
+**The Catholic school where the shooting took place had begun a new year on Monday.**\
+`By Christina Morales`\
+https://nytimes.com/live/2025/08/27/us/minneapolis-church-shooting/the-catholic-school-where-the-shooting-took-place-had-begun-a-new-year-on-monday
+
 **Chiefs' Rashee Rice suspended for first 6 games of season**\
 `Rice's suspension comes after he pled guilty to two third-degree felony charges for his role in a March 2024 high-speed car crash.`\
 https://nytimes.com/athletic/6540361/2025/08/27/rashee-rice-suspension-games-chiefs/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/08/27/arts/television/katrina-come-hell-and-high-water-
 **London City Lionesses complete Zelem, Kennedy signings from Angel City**\
 `Both players had time remaining on their Angel City contracts and undisclosed fees were agreed with London City `\
 https://nytimes.com/athletic/6572747/2025/08/27/katie-zelem-alanna-kennedy-london-city-lionesses-transfer/
-
-**Union Station in Washington to Go Under Federal Control**\
-`Transportation Secretary Sean Duffy announced that his department, which owns Union Station, will assume control of the train hub from the nonprofit that has been controlling it.`\
-https://nytimes.com/2025/08/27/us/politics/trump-duffy-union-station-dc.html
-
-**Ravens extend Kyle Hamilton, make him NFL's highest-paid safety ever**\
-`Hamilton, a 2022 first-round pick, has been selected to two Pro Bowls and earned two All-Pro nods in three seasons. `\
-https://nytimes.com/athletic/6578115/2025/08/27/kyle-hamilton-ravens-extension/
-
-**17 Easy Vegetarian Summer Dinners**\
-`(No description)`\
-https://nytimes.com/newsgraphics/card-story/easy-vegetarian-summer-dinners
 
