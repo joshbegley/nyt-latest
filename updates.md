@@ -1,3 +1,19 @@
+**Live Updates: Officials Respond to Reports of Shooting at Minneapolis Church**\
+`The shooting was reported at Annunciation Catholic Church, which operates a school. Officials said the attacker was contained.`\
+https://nytimes.com/live/2025/08/27/us/minneapolis-church-shooting
+
+**A Promising New Way to Treat a Failing Heart**\
+`A recent study shows how partial heart transplants could help children with valve defects.`\
+https://nytimes.com/2025/08/27/well/partial-heart-transplants.html
+
+**Who is Barcelona's Fermin Lopez? And why do Chelsea need another attacking midfielder?**\
+`Chelsea are evaluating the possibility of a move for Fermin — yet another young attacking player`\
+https://nytimes.com/athletic/6578633/2025/08/27/barcelona-chelsea-fermin-lopez-transfer-profile/
+
+**El Salvador Enacts Military-Style Rules on Haircuts and More in Schools**\
+`President Nayib Bukele says that his new education minister, a military officer, will restore discipline to schools where gangs once recruited. A school workers’ union called the appointment “absurd.”`\
+https://nytimes.com/2025/08/27/world/americas/el-salvador-schools-military.html
+
 **Spike Lee’s ‘Come Hell and High Water’ Shows Katrina’s Lingering Damage**\
 `Twenty years after the hurricane, the producer and showrunner Alisa Payne discussed the new Netflix documentary series in an interview.`\
 https://nytimes.com/2025/08/27/arts/television/katrina-alisa-payne-spike-lee.html
