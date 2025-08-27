@@ -1,3 +1,7 @@
+**The ‘Political Theater’ of Troops in Cities**\
+`Readers react to the Trump administration’s deployment of U.S. military in cities. Also: A California voter’s choice on gerrymandering; the impact of ICE raids.`\
+https://nytimes.com/2025/08/27/opinion/the-political-theater-of-troops-in-cities.html
+
 **Keegan Bradley's surprising decision says a lot about his Ryder Cup captaincy**\
 `No captain has ever been in the predicament Bradley was in over the last year, and there was temptation to lean in and choose himself.`\
 https://nytimes.com/athletic/6579453/2025/08/27/ryder-cup-2025-keegan-bradley-captain-choice/
