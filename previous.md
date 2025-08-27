@@ -1,3 +1,7 @@
+**Terry McLaurin's extension shows how the Commanders will do business going forward**\
+`For the Commanders, last season was a fairy tale, but general manager Adam Peters isn't just hoping for his wishes to be granted.`\
+https://nytimes.com/athletic/6576332/2025/08/27/terry-mclaurins-extension-adam-peters/
+
 **Yu Darvish, in a race against age and time, is still delivering for the Padres**\
 `Age and fatigue may be catching up to the 39-year-old starter, but his continued creativity and dedication are keeping him on the mound.`\
 https://nytimes.com/athletic/6574991/2025/08/27/yu-darvish-padres-elbow-injury/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/27/style/dementia-complaints.html
 **Pac-12 adds The CW to its still-under-construction TV deal**\
 `The new Pac-12 is set to add Boise State, Colorado State, Fresno State, San Diego State, Texas State and Utah State next year.`\
 https://nytimes.com/athletic/6577988/2025/08/27/pac-12-football-tv-deal-cw/
-
-**Prosecutors Fail to Secure Indictment Against Man Who Threw Sandwich at Federal Agent**\
-`It was a sharp rebuke to the prosecutors who are dealing with the fallout from President Trump’s move to send National Guard troops and federal agents into Washington.`\
-https://nytimes.com/2025/08/27/us/politics/trump-sandwich-assault-indictment-justice-department.html
 

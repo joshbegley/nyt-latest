@@ -1,3 +1,7 @@
+**Terry McLaurin's extension shows how the Commanders will do business going forward**\
+`For the Commanders, last season was a fairy tale, but general manager Adam Peters isn't just hoping for his wishes to be granted.`\
+https://nytimes.com/athletic/6576332/2025/08/27/terry-mclaurins-extension-adam-peters/
+
 **Yu Darvish, in a race against age and time, is still delivering for the Padres**\
 `Age and fatigue may be catching up to the 39-year-old starter, but his continued creativity and dedication are keeping him on the mound.`\
 https://nytimes.com/athletic/6574991/2025/08/27/yu-darvish-padres-elbow-injury/
