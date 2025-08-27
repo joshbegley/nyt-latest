@@ -1,3 +1,15 @@
+**This 20-Minute Shrimp Curry Will Wow Everyone Who Tries It**\
+`Madhur Jaffrey’s Goan recipe is the perfect meal for any occasion — dinner party or just dinner.`\
+https://nytimes.com/2025/08/27/dining/quick-shrimp-curry.html
+
+**Sean Duffy to Announce Penn Station Renovation Will Begin in 2027**\
+`Amtrak intends to partner with a private developer to rebuild the dingy Manhattan train station on an accelerated schedule, transportation officials said.`\
+https://nytimes.com/2025/08/27/nyregion/penn-station-renovation-2027.html
+
+**‘Alligator Alcatraz’ Detention Center May Be Empty Within Days**\
+`A top Florida official wrote in an email that an immigration detention center in the Everglades may soon house no detainees.`\
+https://nytimes.com/2025/08/27/us/alligator-alcatraz-immigration-center-empty.html
+
 **Israel-Premier Tech team time trial disrupted by pro-Palestine protest at Vuelta a Espana**\
 `Wednesday’s stage was the first day of the Vuelta to take place on Spanish soil, circling the Catalan city of Figueres.`\
 https://nytimes.com/athletic/6579213/2025/08/27/israel-cycling-team-palestine-protestors-vuelta-a-espana/
@@ -25,16 +37,4 @@ https://nytimes.com/card/2025/08/27/arts/editors-recommendations-okcomputer
 **Southampton agree £12m transfer for Middlesbrough's Azaz**\
 `The fee is in the region of £12million plus add-ons with the move expected to be finalised between the clubs in the coming days.`\
 https://nytimes.com/athletic/6579176/2025/08/27/finn-azaz-transfer-southampton-middlesbrough/
-
-**After Blocking U.N. Nuclear Watchdog, Iran Allows Inspectors to Return**\
-`Iran halted cooperation with the agency last month, as experts warned that Tehran may revive efforts to build a nuclear bomb.`\
-https://nytimes.com/2025/08/27/world/europe/iran-un-nuclear-watchdog-inspectors.html
-
-**Trump, With Tariffs and Threats, Tries to Strong-Arm Nations to Retreat on Climate Goals**\
-`The president has made no secret of his distaste for wind and solar in America. Now he’s taking his fossil fuel agenda overseas.`\
-https://nytimes.com/2025/08/27/climate/trump-international-pressure-climate-oil.html
-
-**Witnesses describe harrowing scenes at the hospital and school.**\
-`By Aimee Ortiz`\
-https://nytimes.com/live/2025/08/27/us/minneapolis-church-shooting/witnesses-describe-harrowing-scenes-at-the-hospital-and-school
 
