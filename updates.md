@@ -1,3 +1,11 @@
+**Dust Storm Hits Burning Man Festival**\
+`Footage taken by attendees captured efforts to secure tents as a powerful dust storm tore through the Black Rock Desert in Nevada on the opening weekend of Burning Man.`\
+https://nytimes.com/video/us/100000010363363/dust-storm-hits-burning-man-festival.html
+
+**Terry McLaurin's extension shows how the Commanders will do business going forward**\
+`For the Commanders, last season was a fairy tale, but general manager Adam Peters isn't just hoping for his future wishes to be granted.`\
+https://nytimes.com/athletic/6576332/2025/08/27/terry-mclaurins-extension-adam-peters/
+
 **Terry McLaurin's extension shows how the Commanders will do business going forward**\
 `For the Commanders, last season was a fairy tale, but general manager Adam Peters isn't just hoping for his wishes to be granted.`\
 https://nytimes.com/athletic/6576332/2025/08/27/terry-mclaurins-extension-adam-peters/

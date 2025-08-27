@@ -1,5 +1,9 @@
+**Dust Storm Hits Burning Man Festival**\
+`Footage taken by attendees captured efforts to secure tents as a powerful dust storm tore through the Black Rock Desert in Nevada on the opening weekend of Burning Man.`\
+https://nytimes.com/video/us/100000010363363/dust-storm-hits-burning-man-festival.html
+
 **Terry McLaurin's extension shows how the Commanders will do business going forward**\
-`For the Commanders, last season was a fairy tale, but general manager Adam Peters isn't just hoping for his wishes to be granted.`\
+`For the Commanders, last season was a fairy tale, but general manager Adam Peters isn't just hoping for his future wishes to be granted.`\
 https://nytimes.com/athletic/6576332/2025/08/27/terry-mclaurins-extension-adam-peters/
 
 **Yu Darvish, in a race against age and time, is still delivering for the Padres**\
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/27/opinion/marriage-at-sea-shipwreck-book.html
 **My Neighbor With Dementia Is a Big Nuisance. Help!**\
 `A reader wonders what he should do about his neighbor’s bothersome behavior, including loud singing and guitar playing mornings and evenings.`\
 https://nytimes.com/2025/08/27/style/dementia-complaints.html
-
-**Pac-12 adds The CW to its still-under-construction TV deal**\
-`The new Pac-12 is set to add Boise State, Colorado State, Fresno State, San Diego State, Texas State and Utah State next year.`\
-https://nytimes.com/athletic/6577988/2025/08/27/pac-12-football-tv-deal-cw/
 
