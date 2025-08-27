@@ -1,3 +1,15 @@
+**Johnston: What to make of Connor McDavid's latest comments about his future with the Oilers**\
+`McDavid said Wednesday that "all options are on the table" as he enters the final season of his contract with the Oilers.`\
+https://nytimes.com/athletic/6580108/2025/08/27/connor-mcdavid-oilers-contract-comments/
+
+**Jelena Ostapenko appears to tell Taylor Townsend she has 'no education' after U.S. Open defeat**\
+`“She told me I have no class," Townsend said in an on-court interview after her 7-5, 6-1 victory.`\
+https://nytimes.com/athletic/6580141/2025/08/27/townsend-ostapenko-us-open-confrontation/
+
+**New N.Y.C. Food Standards Could Spell Doom for Chicken Nuggets**\
+`The standards prohibit processed meat and limit the use of artificial sweeteners in meals served by nearly a dozen city agencies, including the Department of Education.`\
+https://nytimes.com/2025/08/27/nyregion/nyc-food-standards-chicken-nuggets.html
+
 **Woman, 69, Is Killed in Midday Shootout on East Harlem Street**\
 `The woman, Robin Wright, died after being shot in the face near her apartment building on Wednesday afternoon, the police said.`\
 https://nytimes.com/2025/08/27/nyregion/harlem-nyc-shooting-woman-walker.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/08/27/dining/pat-moore-dead.html
 **Sublime New Historical Fiction**\
 `Our columnist on four notable novels.`\
 https://nytimes.com/2025/08/27/books/review/sublime-new-historical-fiction.html
-
-**John Bolton Inquiry Eyes Emails Obtained by Foreign Government**\
-`It is not clear what country intercepted Mr. Bolton’s private emails, but the investigation into President Trump’s former national security adviser picked up momentum under the Biden administration.`\
-https://nytimes.com/2025/08/27/us/politics/bolton-trump-emails-fbi-investigation.html
-
-**What We Know About the Minnesota Catholic School Shooting**\
-`Investigators were still searching for a motive in the shooting, which left two children dead at Annunciation Catholic Church in Minneapolis.`\
-https://nytimes.com/2025/08/27/us/minneapolis-school-shooting-minnesota.html
-
-**Southwest Monsoon Finally Arrives, With a Chaotic Mix of Dust and Rain**\
-`The season for strong storms came late. This week, it has led to travel delays, a snarled start to Burning Man and a recharged waterfall in Yosemite.`\
-https://nytimes.com/2025/08/27/weather/monsoon-dust-storm-arizona-burning-man.html
 
