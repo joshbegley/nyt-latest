@@ -1,3 +1,15 @@
+**In a Lab, the Hunt for a Killer: The Legionella Germ Causing an Outbreak**\
+`Six people in New York City have died this summer from Legionnaires’ disease, and more than 100 others have been sickened.`\
+https://nytimes.com/2025/08/27/nyregion/legionnaires-disease-new-york-lab.html
+
+**On the Ground With a Top Mexican Cartel**\
+`A Times reporter shares her experience with the Sinaloa Cartel, which relies on drivers, packers and other operatives to smuggle fentanyl into the United States.`\
+https://nytimes.com/2025/08/27/insider/sinaloa-cartel-fentanyl.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/08/27/crosswords/spelling-bee-forum.html
+
 **Jarrod Bowen clashing with a supporter is a sad reflection of West Ham's plight**\
 `The Londoners' captain sought to confront a fan post-match at Molineux as Graham Potter's side endured a third successive defeat of term`\
 https://nytimes.com/athletic/6576781/2025/08/27/bowen-west-ham-wolves-supporter-potter/

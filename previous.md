@@ -1,3 +1,15 @@
+**In a Lab, the Hunt for a Killer: The Legionella Germ Causing an Outbreak**\
+`Six people in New York City have died this summer from Legionnaires’ disease, and more than 100 others have been sickened.`\
+https://nytimes.com/2025/08/27/nyregion/legionnaires-disease-new-york-lab.html
+
+**On the Ground With a Top Mexican Cartel**\
+`A Times reporter shares her experience with the Sinaloa Cartel, which relies on drivers, packers and other operatives to smuggle fentanyl into the United States.`\
+https://nytimes.com/2025/08/27/insider/sinaloa-cartel-fentanyl.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/08/27/crosswords/spelling-bee-forum.html
+
 **Jarrod Bowen clashing with a supporter is a sad reflection of West Ham's plight**\
 `The Londoners' captain sought to confront a fan post-match at Molineux as Graham Potter's side endured a third successive defeat of term`\
 https://nytimes.com/athletic/6576781/2025/08/27/bowen-west-ham-wolves-supporter-potter/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6032896/2025/08/27/aston-villa-transfers-unai-emery
 **Brennan Johnson's 'sixth sense' should make him invaluable to Spurs, regardless of signings**\
 `There's nothing revolutionary about the Welshman’s anticipation, but it's as important as any attribute to being in position to score goals`\
 https://nytimes.com/athletic/6575842/2025/08/27/brennan-johnson-goals/
-
-**Man City are experts at peaking in the spring under Guardiola – this season, that may be more important than ever**\
-`A short pre-season and uncertainty over departures has contributed to a difficult summer at the Etihad Stadium`\
-https://nytimes.com/athletic/6575714/2025/08/27/manchester-city-slow-start-premier-league/
-
-**Mets channel 2024 in walk-off win over Phillies**\
-`“I love what I saw from the guys,” manager Carlos Mendoza said. “The fight, the compete, not giving up, playing the whole game.”`\
-https://nytimes.com/athletic/6578066/2025/08/27/mets-channel-2024-walk-off-phillies/
-
-**History lessons, Van Dijk and coaches' faith: How Ngumoha can handle being a Liverpool prodigy**\
-`The 16-year-old's remarkable rise is thrilling - but he also needs to be handled carefully`\
-https://nytimes.com/athletic/6576242/2025/08/27/rio-ngumoha-liverpool-prodigy-grounded/
 
