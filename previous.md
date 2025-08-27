@@ -1,3 +1,7 @@
+**Jorgen Strand Larsen's value to Wolves is clear, so can they afford to sell him?**\
+`Newcastle had a second offer rejected for the Norwegian striker just hours after his late brace secured Wolves' first win of the season`\
+https://nytimes.com/athletic/6577712/2025/08/27/strand-larsen-wolves-newcastle-pereira/
+
 **Wolves reject £55m bid from Newcastle for Strand Larsen**\
 `Wolves' stance remains that any bid for the Norway international this summer will be rejected given his importance to the club.`\
 https://nytimes.com/athletic/6577528/2025/08/27/newcastle-wolves-strand-larsen-transfer/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/27/opinion/europe-ukraine-trump.html
 **The New York Times in Print for Wednesday, Aug. 27, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/08/27/todays-new-york-times
-
-**Villa have signed 25 players since Emery's arrival - so why are so few of them in their starting XI?**\
-`The greatest gains during the Spaniard’s tenure have come through coaching, not recruitment - but the squad urgently requires new signings`\
-https://nytimes.com/athletic/6032896/2025/08/27/aston-villa-transfers-unai-emery-recruitment/
 

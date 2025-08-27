@@ -1,3 +1,7 @@
+**Jorgen Strand Larsen's value to Wolves is clear, so can they afford to sell him?**\
+`Newcastle had a second offer rejected for the Norwegian striker just hours after his late brace secured Wolves' first win of the season`\
+https://nytimes.com/athletic/6577712/2025/08/27/strand-larsen-wolves-newcastle-pereira/
+
 **Wolves reject £55m bid from Newcastle for Strand Larsen**\
 `Wolves' stance remains that any bid for the Norway international this summer will be rejected given his importance to the club.`\
 https://nytimes.com/athletic/6577528/2025/08/27/newcastle-wolves-strand-larsen-transfer/
