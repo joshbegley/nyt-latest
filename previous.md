@@ -1,40 +1,40 @@
+**Yu Darvish, in a race against age and time, is still delivering for the Padres**\
+`Age and fatigue may be catching up to the 39-year-old starter, but his continued creativity and dedication are keeping him on the mound.`\
+https://nytimes.com/athletic/6574991/2025/08/27/yu-darvish-padres-elbow-injury/
+
+**Las Vegas Raiders streaming guide: How to watch Pete Carroll's return to the NFL**\
+`The Raiders enter 2025 with more national intrigue than they’ve had in years. Pete Carroll is back on an NFL sideline. Here's how to watch.`\
+https://nytimes.com/athletic/6576499/2025/08/27/las-vegas-raiders-how-to-watch-2025-pete-carroll/
+
+**Kohl Rosario, Matt Able and 4 other college freshmen who could exceed expectations**\
+`Teams have looked at their teams for a few months in the summer. Here's who coaches and scouts have been impressed by. `\
+https://nytimes.com/athletic/6573873/2025/08/27/college-basketball-freshmen-to-watch-2025-26/
+
+**Longhorns QB Arch Manning is safe bet to live up to Texas-sized hype … and then some**\
+`He has Cooper’s perspective, Archie’s feet, Peyton’s arm and Eli’s composure. And he's perfectly built to navigate college football's chaos.`\
+https://nytimes.com/athletic/6571956/2025/08/27/arch-manning-texas-ohio-state-longhorns-hype-week-1/
+
+**Dodgers hitting coach Aaron Bates rejoins team after health scare: 'We can celebrate that'**\
+`Bates was hospitalized with blood clots in his left leg and missed 18 days before rejoining the Dodgers last weekend in San Diego.`\
+https://nytimes.com/athletic/6577934/2025/08/27/dodgers-hitting-coach-aaron-bates-rejoins-team/
+
+**Fine-Tune Your Feed and Get News You Can Use**\
+`Apps from Google, Apple and other companies let you customize your content so you’re always up to date on the matters you care about most.`\
+https://nytimes.com/2025/08/27/technology/personaltech/apple-google-news-customize.html
+
+**What a Shipwreck Taught Me About Staying Happily Married**\
+`“A Marriage at Sea” provides a kind of rebuke to the current extreme cultural narratives about heterosexual romance.`\
+https://nytimes.com/2025/08/27/opinion/marriage-at-sea-shipwreck-book.html
+
+**My Neighbor With Dementia Is a Big Nuisance. Help!**\
+`A reader wonders what he should do about his neighbor’s bothersome behavior, including loud singing and guitar playing mornings and evenings.`\
+https://nytimes.com/2025/08/27/style/dementia-complaints.html
+
+**Pac-12 adds The CW to its still-under-construction TV deal**\
+`The new Pac-12 is set to add Boise State, Colorado State, Fresno State, San Diego State, Texas State and Utah State next year.`\
+https://nytimes.com/athletic/6577988/2025/08/27/pac-12-football-tv-deal-cw/
+
 **Prosecutors Fail to Secure Indictment Against Man Who Threw Sandwich at Federal Agent**\
 `It was a sharp rebuke to the prosecutors who are dealing with the fallout from President Trump’s move to send National Guard troops and federal agents into Washington.`\
 https://nytimes.com/2025/08/27/us/politics/trump-sandwich-assault-indictment-justice-department.html
-
-**Trump Is Set to Host a Meeting on Gaza. How Close Is a Cease-Fire?**\
-`The president’s Middle East envoy signaled that the war would be settled before the end of the year, but seemed to rule out a temporary truce.`\
-https://nytimes.com/2025/08/27/world/middleeast/trump-gaza-meeting-ceasefire.html
-
-**The Look of Taylor Swift’s Engagement Era**\
-`It’s picture-perfect, of course.`\
-https://nytimes.com/2025/08/27/style/taylor-swift-engagement-dress.html
-
-**Denver Broncos 2025 streaming guide: TV broadcast and schedule for playoff hopefuls**\
-`The Denver Broncos ended 2024 at an encouraging 10–7. Here's how to tune in for their 2025 follow-up.`\
-https://nytimes.com/athletic/6576222/2025/08/27/denver-broncos-how-to-watch-schedule-streaming-2025/
-
-**Dozens Are Killed in Kashmir After Heavy Rain and Flooding**\
-`Officials said at least 34 people were killed in the Indian-controlled part of Jammu and Kashmir, most of them pilgrims who died along the route to a popular Hindu shrine.`\
-https://nytimes.com/video/world/asia/100000010363454/kashmir-flooding-jammu-monsoon.html
-
-**South Korea Outlaws the Use of Smartphones During Class**\
-`It becomes the latest country to restrict phone use in schools, with a law that will go into effect in 2026.`\
-https://nytimes.com/2025/08/27/world/asia/south-korea-school-smartphone-ban.html
-
-**Notre Dame football 2025: TV schedule, streaming guide for the Fighting Irish**\
-`Last season's Notre Dame group advanced all the way to the national championship game. Expectations are predictably high for 2025.`\
-https://nytimes.com/athletic/6568956/2025/08/27/notre-dame-football-tv-schedule-how-to-watch-2025/
-
-**Dortmund agree deal for Wolves' Fabio Silva**\
-`The deal is made up of €22.5m up-front, plus a further €4m in potential add ons. `\
-https://nytimes.com/athletic/6578466/2025/08/27/fabio-silva-transfer-wolves-borussia-dortmund/
-
-**Floods and Landslides Kill Dozens on Pilgrimage Route in Kashmir**\
-`Rescue workers pulled bodies from the debris after rain sent boulders and mud crashing down.`\
-https://nytimes.com/2025/08/27/world/asia/kashmir-deadly-flooding.html
-
-**Are the Giants playing for Bob Melvin's job? It's an open question**\
-`If the front office feels compelled to demonstrate an intolerance for the status quo, the simplest method would be to fire the manager.`\
-https://nytimes.com/athletic/6578247/2025/08/27/sf-giants-bob-melvin-future/
 
