@@ -1,3 +1,7 @@
+**Officials Respond to Reports of Shooting at Minneapolis Church**\
+`The shooting was reported at Annunciation Catholic Church, which operates a school.`\
+https://nytimes.com/2025/08/27/us/annunciation-church-shooting-minneapolis.html
+
 **The Smoking Hot Return of Bathing Culture**\
 `Saunas and other water-based amenities are booming in societies that once turned their backs on them.`\
 https://nytimes.com/2025/08/27/style/bathing-culture-trend.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/27/world/europe/brussels-august.html
 **WR Adam Thielen returns to Vikings in trade with Panthers**\
 `Thielen, 35, who played nine seasons in Minnesota, provides the Vikings with immediate WR help. Meanwhile, the Panthers opt for youth.`\
 https://nytimes.com/athletic/6567394/2025/08/27/adam-thielen-vikings-panthers-trade/
-
-**Bolts on Parade: How to watch, stream and follow the 2025 Los Angeles Chargers**\
-`Here's how to watch Jim Harbaugh, Justin Herbert and the 2025 Los Angeles Chargers this season.`\
-https://nytimes.com/athletic/6576765/2025/08/27/los-angeles-chargers-harbaugh-herbert-how-to-watch-2025/
 

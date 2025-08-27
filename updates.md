@@ -1,3 +1,7 @@
+**The Smoking Hot Return of Bathing Culture**\
+`Saunas and other water-based amenities are booming in societies that once turned their backs on them.`\
+https://nytimes.com/2025/08/27/style/bathing-culture-trend.html
+
 **Jaguars acquiring WR Tim Patrick in trade with Lions**\
 `Patrick brings a veteran presence to the Jaguars' young WR room, led by second-year receiver Brian Thomas Jr. and rookie Travis Hunter.`\
 https://nytimes.com/athletic/6578674/2025/08/27/jaguars-lions-trade-tim-patrick-receiver/
