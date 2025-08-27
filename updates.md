@@ -1,3 +1,7 @@
+**Jarrod Bowen clashing with a supporter is a sad reflection of West Ham's plight**\
+`The Londoners' captain sought to confront a fan post-match at Molineux as Graham Potter's side endured a third successive defeat of term`\
+https://nytimes.com/athletic/6576781/2025/08/27/bowen-west-ham-wolves-supporter-potter/
+
 **Word of the Day: mangrove**\
 `This word has appeared in 23 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2025/08/27/learning/word-of-the-day-mangrove.html
