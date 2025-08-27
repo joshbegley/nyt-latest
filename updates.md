@@ -1,3 +1,11 @@
+**Iowa Democrat Appears to Flip State Legislative Seat in Upset Victory**\
+`The Senate seat in the Sioux City area had been held by a Republican. It would be the second time this year that Iowa Democrats had flipped a legislative district.`\
+https://nytimes.com/2025/08/26/us/politics/iowa-senate-election-democrats.html
+
+**Not at Home**\
+`Is Zhou Zhang a puzzle half-empty or half-full kind of constructor?`\
+https://nytimes.com/2025/08/26/crosswords/daily-puzzle-2025-08-27.html
+
 **Unexpected cuts, rookie revelations: 4 surprises as Chiefs set 53-man roster**\
 `The Chiefs' two most unexpected cuts come with an important caveat as the initial 53-man roster is likely to change soon.`\
 https://nytimes.com/athletic/6576123/2025/08/26/chiefs-53-man-roster-surprises/

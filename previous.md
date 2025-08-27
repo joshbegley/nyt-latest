@@ -1,3 +1,11 @@
+**Iowa Democrat Appears to Flip State Legislative Seat in Upset Victory**\
+`The Senate seat in the Sioux City area had been held by a Republican. It would be the second time this year that Iowa Democrats had flipped a legislative district.`\
+https://nytimes.com/2025/08/26/us/politics/iowa-senate-election-democrats.html
+
+**Not at Home**\
+`Is Zhou Zhang a puzzle half-empty or half-full kind of constructor?`\
+https://nytimes.com/2025/08/26/crosswords/daily-puzzle-2025-08-27.html
+
 **Unexpected cuts, rookie revelations: 4 surprises as Chiefs set 53-man roster**\
 `The Chiefs' two most unexpected cuts come with an important caveat as the initial 53-man roster is likely to change soon.`\
 https://nytimes.com/athletic/6576123/2025/08/26/chiefs-53-man-roster-surprises/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6577725/2025/08/26/eagles-53-man-roster-howie-rosem
 **‘Spiritual Delusion’ Led to Father and Son’s Apparent Drownings, Sheriff Says**\
 `Vincen Miller, 4, died after he was thrown into Atwood Lake in Ohio. His mother is expected to face an aggravated murder charge, the authorities said.`\
 https://nytimes.com/2025/08/26/us/ohio-lake-drowning-mother-son-spiritual.html
-
-**Broncos roster analysis: Why Audric Estimé, Levelle Bailey didn't make the cut**\
-`The Broncos have had an undrafted rookie make the roster in 21 of the last 22 seasons after linebacker Karene Reid made this year's team.`\
-https://nytimes.com/athletic/6577519/2025/08/26/broncos-roster-cutdown-53-man/
-
-**Ravens find room on deep roster to reward unheralded players who seized opportunity**\
-`A roster that wasn’t initially believed to have room for one rookie free agent now houses three, all on the defensive side of the ball. `\
-https://nytimes.com/athletic/6577588/2025/08/26/ravens-53-man-roster-breakdown/
 
