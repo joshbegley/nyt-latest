@@ -1,3 +1,7 @@
+**Hamburg reach agreement to sign Tottenham's Luka Vuskovic on loan**\
+`The deal is a straight loan, and does not include an option nor an obligation to make the transfer permanent.`\
+https://nytimes.com/athletic/6578316/2025/08/27/hamburg-luka-vuskovic-transfer-loan-tottenham/
+
 **The New York Times International Edition in Print for Thursday, Aug. 28, 2025**\
 ``\
 https://nytimes.com/issue/todaysinyt/2025/08/27/todays-new-york-times-international-edition
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/27/opinion/lisa-cook-trump-supreme-court.html
 **‘Weak, Woke and Whiny’ No More: The Rise of the Democratic National Security Mom**\
 `The party is counting on a new type of leader to counteract Trump.`\
 https://nytimes.com/2025/08/27/opinion/spanberger-sherrill-women-governor-virginia-new-jersey.html
-
-**Venice Film Festival 2025: What to Watch for and What’s Missing**\
-`Starry vehicles featuring the likes of Julia Roberts, George Clooney and Emma Stone will make their debuts in Italy, but some big names are skipping fests.`\
-https://nytimes.com/2025/08/27/movies/venice-film-festival-what-to-watch.html
 

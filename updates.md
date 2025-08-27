@@ -1,3 +1,7 @@
+**The New York Times International Edition in Print for Thursday, Aug. 28, 2025**\
+``\
+https://nytimes.com/issue/todaysinyt/2025/08/27/todays-new-york-times-international-edition
+
 **Targeted by U.S. Ally, an Arab Dissident Vanished Across Borders**\
 `After criticizing the United Arab Emirates on social media, an Egyptian activist was extradited to the Gulf country, where he has been detained without trial for months.`\
 https://nytimes.com/2025/08/27/world/middleeast/qaradawi-dissident-uae-extradition.html
