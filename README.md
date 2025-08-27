@@ -1,3 +1,11 @@
+**Angela Mortimer, Tennis Champion Who Overcame Adversity, Dies at 93**\
+`She won three Grand Slam singles championships, including one at Wimbledon, in a career that earned her election to the International Tennis Hall of Fame.`\
+https://nytimes.com/2025/08/27/sports/tennis/angela-mortimer-dead.html
+
+**Dawn Staley says she would have taken Knicks' coaching job if offered**\
+`Staley said she believes she "lost the job" when she asked how the franchise would handle hiring the first female head coach in NBA history.`\
+https://nytimes.com/athletic/6579119/2025/08/27/dawn-staley-knicks-head-coaching-position-interview/
+
 **Skip Bayless to join Gilbert Arenas' new football show in channel rebrand**\
 `“The Arena: Gridiron” will feature Bayless, former NFL cornerback Aqib Talib and former NFL coach Jay Gruden.`\
 https://nytimes.com/athletic/6579313/2025/08/27/skip-bayless-gilbert-arenas-underdog-football-show/
@@ -30,12 +38,4 @@ https://nytimes.com/2025/08/27/well/covid-vaccines-guidelines-fall-2025.html
 **Folarin Balogun added to USMNT's squad for September friendlies**\
 `U.S. Soccer hinted at a 23rd player joining the group that was revealed Tuesday, and it's the Monaco forward getting the call`\
 https://nytimes.com/athletic/6579397/2025/08/27/folarin-balogun-usmnt-squad-september-friendlies/
-
-**Besiktas end Oxlade-Chamberlain contract a year early**\
-`Oxlade-Chamberlain departs the Turkish Super Lig club a year before his contract was due to expire.`\
-https://nytimes.com/athletic/6490090/2025/08/27/alex-oxlade-chamberlain-transfer-besiktas/
-
-**This Crocodile Relative Was One of Dinosaurs’ Most Fearsome Predators**\
-`A fossil found in Argentina shows that up to the very end of the age of dinosaurs, they faced serious competition from other reptile species.`\
-https://nytimes.com/2025/08/27/science/land-crocodile-dinosaurs.html
 
