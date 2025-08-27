@@ -1,3 +1,15 @@
+**SpaceX Launches Critical Test of Mars Rocket**\
+`After two consecutive scrubs, SpaceX’s Starship vehicle launched on Tuesday night. The test aims to show that the mammoth rocket is capable of taking people to Mars.`\
+https://nytimes.com/video/science/100000010363077/spacex-starship-launch-texas.html
+
+**Cowboys 53-man roster: Still 'open for business' after cuts, surprise keepers**\
+`Dallas still has questions at cornerback and defensive tackle remains its weakest position after Tuesday's cuts.`\
+https://nytimes.com/athletic/6577742/2025/08/26/cowboys-53-man-roster-cuts-mazi-smith/
+
+**Cracker Barrel Drops New Logo Design After Conservative Backlash**\
+`The chain, known for its farmhouse aesthetic, ignited a social media firestorm when it announced its “fresh” rebrand last week.`\
+https://nytimes.com/2025/08/26/business/cracker-barrel-logo-rebrand.html
+
 **Why Howie Roseman traded for Sam Howell, CB2 intrigue, more Eagles 53-man roster takeaways**\
 `Plus, how the projected depth chart looks after today's moves.`\
 https://nytimes.com/athletic/6577725/2025/08/26/eagles-53-man-roster-howie-roseman-sam-howell-cornerback/
