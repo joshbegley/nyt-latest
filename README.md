@@ -1,3 +1,11 @@
+**Unexpected cuts, rookie revelations: 4 surprises as Chiefs set 53-man roster**\
+`The Chiefs' two most unexpected cuts come with an important caveat as the initial 53-man roster is likely to change soon.`\
+https://nytimes.com/athletic/6576123/2025/08/26/chiefs-53-man-roster-surprises/
+
+**Raiders 53-man roster: Promising offense, troubling D, surprising rookie cuts**\
+`The initial 53-man roster has plenty of promise with plenty of holes.`\
+https://nytimes.com/athletic/6577801/2025/08/26/las-vegas-raiders-initial-53-man-roster-cutdown/
+
 **‘Alien: Earth’ Season 1, Episode 4 Recap: In Sheep’s Clothing**\
 `That eyeball monster is pretty scary. But maybe not as scary as the trillionaires running the world.`\
 https://nytimes.com/2025/08/26/arts/television/alien-earth-season-1-episode-4-recap-in-sheeps-clothing.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6577519/2025/08/26/broncos-roster-cutdown-53-man/
 **Ravens find room on deep roster to reward unheralded players who seized opportunity**\
 `A roster that wasn’t initially believed to have room for one rookie free agent now houses three, all on the defensive side of the ball. `\
 https://nytimes.com/athletic/6577588/2025/08/26/ravens-53-man-roster-breakdown/
-
-**A Huge Mall Allows Shopping on Sundays. Is That Illegal?**\
-`A lawsuit argues that the American Dream mall, by allowing the sale of lumber, furniture and “wearing apparel” on Sundays, has violated a “blue law” descended from a 1798 statute.`\
-https://nytimes.com/2025/08/26/nyregion/american-dream-mall-blue-laws.html
-
-**Trump Calls for Death Penalty in All D.C. Murder Cases**\
-`It is unclear how Mr. Trump would carry out his directive. The Supreme Court ruled that mandatory death sentences were unconstitutional nearly half a century ago.`\
-https://nytimes.com/2025/08/26/us/politics/trump-death-penalty-murder-dc.html
 
