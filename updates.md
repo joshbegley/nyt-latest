@@ -1,3 +1,5 @@
+
+
 **How a Beautiful Summer Day on Lake Tahoe Suddenly Turned Deadly**\
 `An analysis of the turbulent weather that caught people off guard, flipping over boats and killing eight people.`\
 https://nytimes.com/interactive/2025/08/27/weather/lake-tahoe-storm.html
