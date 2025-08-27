@@ -1,3 +1,11 @@
+**Villa have signed 25 players since Emery's arrival - so why are so few of them in their starting XI?**\
+`The greatest gains during the Spaniard’s tenure have come through coaching, not recruitment - but the squad urgently requires new signings`\
+https://nytimes.com/athletic/6032896/2025/08/27/aston-villa-transfers-unai-emery-recruitment/
+
+**Brennan Johnson's 'sixth sense' should make him invaluable to Spurs, regardless of signings**\
+`There's nothing revolutionary about the Welshman’s anticipation, but it's as important as any attribute to being in position to score goals`\
+https://nytimes.com/athletic/6575842/2025/08/27/brennan-johnson-goals/
+
 **Man City are experts at peaking in the spring under Guardiola – this season, that may be more important than ever**\
 `A short pre-season and uncertainty over departures has contributed to a difficult summer at the Etihad Stadium`\
 https://nytimes.com/athletic/6575714/2025/08/27/manchester-city-slow-start-premier-league/
@@ -29,12 +37,4 @@ https://nytimes.com/interactive/2025/08/27/business/india-tariffs-trump-russia-d
 **Polly Bancroft, the ex-Man Utd head of women's football, who is now hoping for a Grimsby upset against them**\
 `Grimsby Town face Manchester United in the Carabao Cup second round on Wednesday. Meet their CEO, who is optimistic about the game...`\
 https://nytimes.com/athletic/6575777/2025/08/27/grimsby-polly-bancroft-manchester-united-interview/
-
-**From hating her body and not eating to modelling for Barbie: 'I thought I had to be skinny'**\
-`Sarah Bern has become the role model she did not have in the years when she needed one the most`\
-https://nytimes.com/athletic/6564773/2025/08/27/sarah-bern-interview-england-womens-rugby-world-cup/
-
-**Tyler Dibling to Everton: Everything you need to know - TLDR**\
-`Everton have added to their attacking options with Tyler Dibling from Southampton - here we break down the deal.`\
-https://nytimes.com/athletic/6576451/2025/08/27/tyler-dibling-everton-transfer-tldr/
 

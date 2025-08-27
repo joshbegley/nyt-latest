@@ -1,3 +1,11 @@
+**Villa have signed 25 players since Emery's arrival - so why are so few of them in their starting XI?**\
+`The greatest gains during the Spaniard’s tenure have come through coaching, not recruitment - but the squad urgently requires new signings`\
+https://nytimes.com/athletic/6032896/2025/08/27/aston-villa-transfers-unai-emery-recruitment/
+
+**Brennan Johnson's 'sixth sense' should make him invaluable to Spurs, regardless of signings**\
+`There's nothing revolutionary about the Welshman’s anticipation, but it's as important as any attribute to being in position to score goals`\
+https://nytimes.com/athletic/6575842/2025/08/27/brennan-johnson-goals/
+
 **Man City are experts at peaking in the spring under Guardiola – this season, that may be more important than ever**\
 `A short pre-season and uncertainty over departures has contributed to a difficult summer at the Etihad Stadium`\
 https://nytimes.com/athletic/6575714/2025/08/27/manchester-city-slow-start-premier-league/
