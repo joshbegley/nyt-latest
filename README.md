@@ -1,6 +1,6 @@
-**Prosecutors Fail to Secure Indictment Against Sandwich Man**\
+**Prosecutors Fail to Secure Indictment Against Man Who Threw Sandwich at Federal Agent**\
 `It was a sharp rebuke to the prosecutors who are dealing with the fallout from President Trump’s move to send National Guard troops and federal agents into Washington.`\
-https://nytimes.com/2025/08/27/us/politics/trump-sandwich-justice-department-dc.html
+https://nytimes.com/2025/08/27/us/politics/trump-sandwich-assault-indictment-justice-department.html
 
 **Trump Is Set to Host a Meeting on Gaza. How Close Is a Cease-Fire?**\
 `The president’s Middle East envoy signaled that the war would be settled before the end of the year, but seemed to rule out a temporary truce.`\
