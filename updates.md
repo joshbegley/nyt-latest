@@ -1,3 +1,15 @@
+**How Formula 1's premium hospitality evolved from standard to stratospheric**\
+`F1’s nomadic nature means it’s uniquely placed to experiment with its corporate hospitality offerings`\
+https://nytimes.com/athletic/6576995/2025/08/27/f1-paddock-club-evolution/
+
+**Can Ohio State repeat? Previewing and predicting the Buckeyes' 2025 season**\
+`Why I'm predicting a 10-2 season for Ohio State and what that would mean for its Big Ten and College Football Playoff fate this time.`\
+https://nytimes.com/athletic/6574565/2025/08/27/ohio-state-football-preview-predictions-2025/
+
+**Michigan preview, predictions: How far can Wolverines go in Bryce Underwood's debut?**\
+`I'm predicting a fifth straight Michigan win over Ohio State, but will that be enough for the Wolverines to make the Playoff?`\
+https://nytimes.com/athletic/6576089/2025/08/27/michigan-football-2025-preview-predictions/
+
 **Bills ‘Hard Knocks’ Week 4 takeaways: Focus turns to players who wound up getting cut**\
 `Plus, the man behind Josh Allen's improved mechanics.`\
 https://nytimes.com/athletic/6578111/2025/08/27/bills-hard-knocks-week-4-takeaways-roster-cuts/

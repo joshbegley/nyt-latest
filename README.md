@@ -1,4 +1,4 @@
-**How Formula 1's premium hospitality evolved from standard to stratospheric**\
+**How Formula One's premium hospitality evolved from standard to stratospheric**\
 `F1’s nomadic nature means it’s uniquely placed to experiment with its corporate hospitality offerings`\
 https://nytimes.com/athletic/6576995/2025/08/27/f1-paddock-club-evolution/
 
