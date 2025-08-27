@@ -1,3 +1,11 @@
+**Taylor Swift and Travis Kelce Got Engaged. So Did They.**\
+`Sure, one couple stole the spotlight on Tuesday. But other couples who also got engaged had their own news to share — though some were more thrilled by the frenzy than others.`\
+https://nytimes.com/2025/08/27/us/taylor-swift-travis-kelce-engagement-couples.html
+
+**Milan exploring move for Chelsea's Nkunku**\
+`Nkunku has been the subject of interest from Bayern Munich and his former club RB Leipzig this summer.`\
+https://nytimes.com/athletic/6569341/2025/08/27/chelsea-transfer-news-nkunku-milan/
+
 **UNC QB Gio Lopez to start vs. TCU in Week 1, Bill Belichick says**\
 `"I feel very comfortable with him and what he’s doing," Belichick said of Lopez, who transferred from South Alabama in April.`\
 https://nytimes.com/athletic/6579560/2025/08/27/unc-bill-belichick-gio-lopez-starting-qb/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6579535/2025/08/27/nfl-waiver-claims-tommy-devito/
 **Angela Mortimer, Tennis Champion Who Overcame Adversity, Dies at 93**\
 `She won three Grand Slam singles championships, including one at Wimbledon, in a career that earned her election to the International Tennis Hall of Fame.`\
 https://nytimes.com/2025/08/27/sports/tennis/angela-mortimer-dead.html
-
-**Dawn Staley says she would have taken Knicks' coaching job if offered**\
-`Staley said she believes she "lost the job" when she asked how the franchise would handle hiring the first female head coach in NBA history.`\
-https://nytimes.com/athletic/6579119/2025/08/27/dawn-staley-knicks-head-coaching-position-interview/
-
-**Skip Bayless to join Gilbert Arenas' new football show in channel rebrand**\
-`“The Arena: Gridiron” will feature Bayless, former NFL cornerback Aqib Talib and former NFL coach Jay Gruden.`\
-https://nytimes.com/athletic/6579313/2025/08/27/skip-bayless-gilbert-arenas-underdog-football-show/
 
