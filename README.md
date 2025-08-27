@@ -1,8 +1,16 @@
+**The Fate of the Fed May Turn on Two Words: ‘For Cause’**\
+`The Supreme Court has said the Federal Reserve Board’s independence warrants protection. President Trump’s effort to fire a member will test that commitment.`\
+https://nytimes.com/2025/08/27/us/politics/supreme-court-fed-trump.html
+
+**When a Horse Has a Toothache, Specialized Dentists Step In**\
+`There is evidence that even ancient horses received dental care, and now caregivers can use motorized tools to keep the animals healthy.`\
+https://nytimes.com/2025/08/27/sports/horse-teeth-specialized-dentists.html
+
 **It’s a Very American Equestrian Discipline. Europeans Are Intrigued.**\
 `Riding horses in the languid, American hunter style has long been dismissed by many speed-loving show jumpers. Now it may be catching on abroad.`\
 https://nytimes.com/2025/08/27/sports/hunters-horses-riding.html
 
-**Lakers' Jeanie Buss, Rob Pelinka show up in Poland to support Luka Dončić, Slovenian team**\
+**Lakers' Jeanie Buss, Rob Pelinka in Poland to support Luka Dončić, Slovenia**\
 `Despite Dončić's knee-injury scare, Pelinka said he and Buss have no concerns about his continued participation with the national team.`\
 https://nytimes.com/athletic/6579695/2025/08/27/lakers-jeanie-buss-rob-pelinka-luka-doncic-slovenia-poland/
 
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6569341/2025/08/27/chelsea-transfer-news-nkunku-mil
 **UNC QB Gio Lopez to start vs. TCU in Week 1, Bill Belichick says**\
 `"I feel very comfortable with him and what he’s doing," Belichick said of Lopez, who transferred from South Alabama in April.`\
 https://nytimes.com/athletic/6579560/2025/08/27/unc-bill-belichick-gio-lopez-starting-qb/
-
-**Other shootings in recent years have targeted places of worship.**\
-`By Sonia A. Rao`\
-https://nytimes.com/live/2025/08/27/us/minneapolis-church-shooting/other-shootings-in-recent-years-have-targeted-places-of-worship
-
-**Liverpool add Iubel to Slot's coaching staff**\
-`The highly-rated Brazilian has stepped down from his position as assistant coach of Atletico Mineiro ahead of the move.`\
-https://nytimes.com/athletic/6579566/2025/08/27/liverpool-coaches-arne-slot-iubel/
 
