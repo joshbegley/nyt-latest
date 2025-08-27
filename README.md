@@ -1,3 +1,11 @@
+**How a Beautiful Summer Day on Lake Tahoe Suddenly Turned Deadly**\
+`An analysis of the turbulent weather that caught people off guard, flipping over boats and killing eight people.`\
+https://nytimes.com/interactive/2025/08/27/weather/lake-tahoe-storm.html
+
+**Former Puerto Rico Governor Pleads Guilty to Campaign Finance Violation**\
+`Wanda Vázquez had initially been accused of taking bribes to influence a regulatory appointment. A controversial plea deal resulted in a lesser charge.`\
+https://nytimes.com/2025/08/27/us/puerto-rico-vazquez-plea.html
+
 **UEFA Champions League Draw: Groups, matches, seedings and how to watch**\
 `All you need to know about the UEFA Champions League draw now the final qualifiers have been confirmed. `\
 https://nytimes.com/athletic/6578856/2025/08/27/uefa-champions-league-draw-2025-format-tv-channel/
@@ -7,7 +15,7 @@ https://nytimes.com/athletic/6578856/2025/08/27/uefa-champions-league-draw-2025-
 https://nytimes.com/2025/08/27/us/taylor-swift-travis-kelce-engaged-kansas-city.html
 
 **49ers won't trade WR Jauan Jennings, GM John Lynch says**\
-`Jennings requested a trade earlier this offseason as he seeks a new contract.`\
+`Jennings requested a trade earlier this offseason as he seeks a new contract. His status for Week 1 remains unclear due to a calf injury.`\
 https://nytimes.com/athletic/6579925/2025/08/27/49ers-jauan-jennings-no-trade/
 
 **The Briefing: Grimsby 2 Manchester United 2 (12-11 on pens): Onana's blunders, what next for Amorim?**\
@@ -29,12 +37,4 @@ https://nytimes.com/2025/08/27/briefing/trump-climate-india-tariff-europe-milita
 **Why Adam Thielen became the obvious WR choice for a Vikings team in a pinch**\
 `Thielen's fit is two-pronged. He's a Minnesota native who played there for nine years, but he should also pick up the offense quickly.`\
 https://nytimes.com/athletic/6579651/2025/08/27/adam-thielen-vikings-trade-wr/
-
-**Rangers miss out on UCL league phase with 6-0 defeat at Club Brugge**\
-`Rangers defender Max Aarons was sent off in the eighth minute as Russell Martin's side went on to lose 6-0 against Club Brugge.`\
-https://nytimes.com/athletic/6578939/2025/08/27/champions-league-teams-2025-26-group-phase/
-
-**Gérard Chaliand, Intrepid Authority on Geopolitics, Dies at 91**\
-`His considerable influence in the French-speaking world was based on an unusual attribute: He had actually been to the revolutions he wrote about.`\
-https://nytimes.com/2025/08/27/world/europe/gerard-chaliand-dead.html
 
