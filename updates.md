@@ -1,3 +1,7 @@
+**Word of the Day: mangrove**\
+`This word has appeared in 23 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2025/08/27/learning/word-of-the-day-mangrove.html
+
 **Astros turn Yordan Alvarez's return into a clunker**\
 `Losing 6-1 against the Rockies ruined any good vibes Alvarez’s return may have produced.`\
 https://nytimes.com/athletic/6578121/2025/08/27/astros-yordan-alvarez-return-rockies/

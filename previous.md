@@ -1,3 +1,7 @@
+**Word of the Day: mangrove**\
+`This word has appeared in 23 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2025/08/27/learning/word-of-the-day-mangrove.html
+
 **Astros turn Yordan Alvarez's return into a clunker**\
 `Losing 6-1 against the Rockies ruined any good vibes Alvarez’s return may have produced.`\
 https://nytimes.com/athletic/6578121/2025/08/27/astros-yordan-alvarez-return-rockies/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6576242/2025/08/27/rio-ngumoha-liverpool-prodigy-gr
 **An end to Isak saga, midfielders - and a striker: What Newcastle need before the summer window closes**\
 `With six days left to the deadline, Howe and co have a lot of work to do. As the summer has proved, it will be far from straightforward...`\
 https://nytimes.com/athletic/6575608/2025/08/27/newcastle-isak-al-rumayyan-transfer-window/
-
-**Full Weight of American Tariffs Slams Into Effect Against India**\
-`As punishment for buying Russian oil, President Trump is doubling the tax on goods imported from India, jeopardizing a relationship decades in the making.`\
-https://nytimes.com/2025/08/27/business/india-tariffs-trump-russia-oil.html
 
