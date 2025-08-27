@@ -1,3 +1,15 @@
+**Democratic Mayors Convene After Trump’s Takeover Threats, Seeking United Front**\
+`“An attack on one of us is an attack on all of us,” said Mayor Justin Bibb of Cleveland, who led a private strategy call on Wednesday.`\
+https://nytimes.com/2025/08/27/us/politics/democrats-mayors-cities-trump-crime.html
+
+**C.D.C. Director Departs After Just Weeks in the Job**\
+`Susan Monarez’s brief tenure was roiled by Robert F. Kennedy Jr.’s decisions to overhaul vaccine policy and gut a critical advisory panel.`\
+https://nytimes.com/2025/08/27/health/cdc-monarez-kennedy-vaccines.html
+
+**Trump’s Campaign to Reverse Global Climate Progress**\
+`The U.S. president is putting pressure on other countries to burn more fossil fuels and retreat from clean energy.`\
+https://nytimes.com/2025/08/27/briefing/trump-climate-india-tariff-europe-military.html
+
 **Why Adam Thielen became the obvious WR choice for a Vikings team in a pinch**\
 `Thielen's fit is two-pronged. He's a Minnesota native who played there for nine years, but he should also pick up the offense quickly.`\
 https://nytimes.com/athletic/6579651/2025/08/27/adam-thielen-vikings-trade-wr/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/08/27/t-magazine/milan-home-redduo.html
 **Trump and Advisers, Including Kushner, Meet on Gaza’s Future**\
 `The meeting focused on the postwar future of the Gaza Strip, where Mr. Trump has mused about removing Palestinian residents and setting up a luxury resort.`\
 https://nytimes.com/2025/08/27/us/politics/trump-gaza-israel-hamas-ceasefire.html
-
-**Brewers closer Trevor Megill lands on IL; veteran Erick Fedde joins team**\
-`Milwaukee has one of the deepest bullpens in the National League, but will now have to rearrange things on the back end.`\
-https://nytimes.com/athletic/6579728/2025/08/27/trevor-megill-brewers-injured-list-bullpen-depth/
-
-**Laying a Foundation**\
-`How this family set their kids up for future success by buying a home.`\
-https://nytimes.com/paidpost/progressive-insurance/laying-a-foundation.html
-
-**No Matter How Hopeless It Seems, We Should Press for Better, Stricter Gun Laws**\
-`The prevalence of mass shootings in America is not normal, no other country has to deal with it to this extent, but we are not powerless to act.`\
-https://nytimes.com/2025/08/27/opinion/minneapolis-school-shooting-guns.html
 
