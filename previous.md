@@ -1,3 +1,7 @@
+**Prosecutors Fail to Secure Indictment Against Man Who Threw Sandwich at Federal Agent**\
+`It was a sharp rebuke to the prosecutors who are dealing with the fallout from President Trump’s move to send National Guard troops and federal agents into Washington.`\
+https://nytimes.com/2025/08/27/us/politics/trump-sandwich-assault-indictment-justice-department.html
+
 **Trump Is Set to Host a Meeting on Gaza. How Close Is a Cease-Fire?**\
 `The president’s Middle East envoy signaled that the war would be settled before the end of the year, but seemed to rule out a temporary truce.`\
 https://nytimes.com/2025/08/27/world/middleeast/trump-gaza-meeting-ceasefire.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/27/world/asia/kashmir-deadly-flooding.html
 **Are the Giants playing for Bob Melvin's job? It's an open question**\
 `If the front office feels compelled to demonstrate an intolerance for the status quo, the simplest method would be to fire the manager.`\
 https://nytimes.com/athletic/6578247/2025/08/27/sf-giants-bob-melvin-future/
-
-**How to watch the 2025 Kansas City Chiefs: Schedule, streaming for Mahomes and Kelce crew**\
-`Per usual, the Chiefs will appear in prime time often in 2025. Here's how to watch all of Kansas City's 17 regular-season games.`\
-https://nytimes.com/athletic/6537256/2025/08/27/kansas-city-chiefs-mahomes-kelce-2025-tv-how-to-watch/
 
