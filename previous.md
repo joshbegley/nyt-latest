@@ -1,3 +1,7 @@
+**Betting for (by) dummies: Picking NFL futures and college's loaded Week 1**\
+`Jon Greenberg and Zac Jackson return for the start of football with some NFL futures bets and some college Week 1 bets.`\
+https://nytimes.com/athletic/6578861/2025/08/27/betting-dummies-nfl-futures-week-1-college-football/
+
 **The attack was the fourth deadly shooting in Minneapolis in just over 24 hours.**\
 `By Anushka Patil`\
 https://nytimes.com/live/2025/08/27/us/minneapolis-church-shooting/the-attack-was-the-fourth-deadly-shooting-in-minneapolis-in-just-over-24-hours
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/27/technology/personaltech/google-pixel-10-pro-revie
 **Denmark Apologizes After Birth Control Scandal in Greenland**\
 `For years, Danish doctors inserted intrauterine devices in Greenlandic girls and women without their consent, part of a painful legacy of mistreatment.`\
 https://nytimes.com/2025/08/27/world/europe/denmark-involuntary-birth-control-greenland-apology.html
-
-**What’s in Our Queue? ‘OK Computer’ and More**\
-`Text by Haiyun Jiang`\
-https://nytimes.com/card/2025/08/27/arts/editors-recommendations-okcomputer
 
