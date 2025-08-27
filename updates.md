@@ -1,3 +1,7 @@
+**Live Updates: At Least 1 Dead and 20 Injured in Shooting at Minneapolis Catholic School, Officials Say**\
+`Officials said that a suspect in the shooting, at Annunciation Catholic Church, was also dead and that the death toll was likely to rise.`\
+https://nytimes.com/live/2025/08/27/us/minneapolis-church-shooting
+
 **Pregnant Teenager Is Killed in Road Rage, but Her Baby Is Delivered Alive**\
 `Police said two drivers were tailgating each other when one fired a gun early Sunday in Louisiana.`\
 https://nytimes.com/2025/08/27/us/road-rage-pregnant-teen-shooting.html
