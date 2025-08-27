@@ -1,3 +1,7 @@
+**What’s in Our Queue? ‘OK Computer’ and More**\
+`Text by Haiyun Jiang`\
+https://nytimes.com/card/2025/08/27/arts/editors-recommendations-okcomputer
+
 **Southampton agree £12m transfer for Middlesbrough's Azaz**\
 `The fee is in the region of £12million plus add-ons with the move expected to be finalised between the clubs in the coming days.`\
 https://nytimes.com/athletic/6579176/2025/08/27/finn-azaz-transfer-southampton-middlesbrough/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6578712/2025/08/27/adam-thielen-vikings-panthers-tr
 **The 1950s Kitchen Gets an Update**\
 `With today’s wellness kitchens, it’s farewell to the pantry with shelf-stabilized foods, and hail to the composter.`\
 https://nytimes.com/2025/08/27/style/wellness-kitchen-design.html
-
-**Abrego Garcia Requests Asylum in the United States**\
-`The request is another possible path for the Salvadoran man, who has already been deported and returned by the Trump administration, to remain in the country.`\
-https://nytimes.com/2025/08/27/us/politics/abrego-garcia-asylum.html
 
