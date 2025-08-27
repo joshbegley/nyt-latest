@@ -1,3 +1,7 @@
+**Palace will not wear regular shirt sponsor against Fredrikstad**\
+`Palace's players will wear a special version of their 'Eagle Gold' third shirt, promoting the club's Palace For Life foundation.`\
+https://nytimes.com/athletic/6578777/2025/08/27/crystal-palace-shirt-sponsor-fredrikstad-net88/
+
 **Bills reunite with safety Jordan Poyer, expected to join practice squad: Source**\
 `Poyer, 34, played with the Bills from 2017-2023.`\
 https://nytimes.com/athletic/6578786/2025/08/27/buffalo-bills-jordan-poyer/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/27/us/politics/supreme-court-trump-foreign-aid.html
 **Lowetide: Why Bouchard is exceptional even on a championship-quality Oilers team**\
 `Bouchard can be a polarizing player with highlight-reel plays good and bad. But is that reputation justified?`\
 https://nytimes.com/athletic/6575252/2025/08/27/oilers-evan-bouchard-chaos-defence/
-
-**In Every Tree, a Trillion Tiny Lives**\
-`Scientists have found that a single tree can be home to a trillion microbial cells — an invisible ecosystem that is only beginning to be understood.`\
-https://nytimes.com/2025/08/27/science/biology-trees-microbiomes.html
 
