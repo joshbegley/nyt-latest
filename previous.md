@@ -1,3 +1,15 @@
+**Wreaking havoc in the NFL was never a dream for Abdul Carter. It was always the plan**\
+`Brimming with confidence after an "unorthodox" upbringing, Carter plans to dominate the NFL and become the Giants' next iconic pass rusher.`\
+https://nytimes.com/athletic/6566252/2025/08/28/ny-giants-abdul-carter-jersey-number/
+
+**Russian Drones Are Flying Over U.S. Weapons Routes in Germany, Officials Say**\
+`U.S. and European military officials are increasingly concerned about the flights, even as Russian acts of sabotage have declined.`\
+https://nytimes.com/2025/08/28/us/politics/russian-drones-weapons-routes.html
+
+**The New York Times International Edition in Print for Friday, Aug. 29, 2025**\
+``\
+https://nytimes.com/issue/todaysinyt/2025/08/28/todays-new-york-times-international-edition
+
 **Chelsea and Milan agree €42m deal for Nkunku**\
 `The France international has been given permission to travel with personal terms already in place.`\
 https://nytimes.com/athletic/6580849/2025/08/28/chelsea-christopher-nkunku-milan-transfer/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6579640/2025/08/28/fantasy-football-coverage-matchu
 **Trump Raises the Stakes**\
 `The president has dropped an “atomic bomb” on the Department of Justice.`\
 https://nytimes.com/2025/08/28/opinion/trump-justice-bolton-cook.html
-
-**She Returned to Brooklyn With $300,000 and a Dream**\
-`For her first purchase, a longtime renter searched in Flatbush and Midwood for a one-bedroom co-op with nearby subway options. Here’s what she found.`\
-https://nytimes.com/interactive/2025/08/28/realestate/brooklyn-flatbush-midwood-co-op-apartments.html
-
-**Why Marie Antoinette’s Influence Endures**\
-`Plus: a new palazzo hotel in Florence, ceramic dishes in citrus colors and more recommendations from T Magazine.`\
-https://nytimes.com/2025/08/28/t-magazine/marie-antoinette-v-a-exhibition.html
-
-**The Other Victims in School Shootings: The Children Who Survive**\
-`Children who survive school shootings deal with a host of complex feelings, ranging from anxiety and grief to guilt and shame.`\
-https://nytimes.com/2025/08/28/us/minneapolis-school-shooting-victims-survivors-injuries.html
 

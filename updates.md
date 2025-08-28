@@ -1,3 +1,15 @@
+**Wreaking havoc in the NFL was never a dream for Abdul Carter. It was always the plan**\
+`Brimming with confidence after an "unorthodox" upbringing, Carter plans to dominate the NFL and become the Giants' next iconic pass rusher.`\
+https://nytimes.com/athletic/6566252/2025/08/28/ny-giants-abdul-carter-jersey-number/
+
+**Russian Drones Are Flying Over U.S. Weapons Routes in Germany, Officials Say**\
+`U.S. and European military officials are increasingly concerned about the flights, even as Russian acts of sabotage have declined.`\
+https://nytimes.com/2025/08/28/us/politics/russian-drones-weapons-routes.html
+
+**The New York Times International Edition in Print for Friday, Aug. 29, 2025**\
+``\
+https://nytimes.com/issue/todaysinyt/2025/08/28/todays-new-york-times-international-edition
+
 **Chelsea and Milan agree €42m deal for Nkunku**\
 `The France international has been given permission to travel with personal terms already in place.`\
 https://nytimes.com/athletic/6580849/2025/08/28/chelsea-christopher-nkunku-milan-transfer/
