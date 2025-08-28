@@ -1,3 +1,11 @@
+**Lionel Messi scores twice as Miami reach Leagues Cup final**\
+`The Argentinean star brought his team back from the brink of defeat in dramatic fashion.`\
+https://nytimes.com/athletic/6580567/2025/08/27/messi-inter-miami-leagues-cup-2/
+
+**Justin Slaten's return bolsters Red Sox bullpen as Aroldis Chapman's hitless streak continues**\
+`Slaten, who's been out with shoulder/neck inflammation, is expected to be activated Thursday after missing 76 games.`\
+https://nytimes.com/athletic/6580501/2025/08/27/red-sox-bullpen-justin-slaten/
+
 **As Luis Garcia nears his 28th month of Tommy John recovery, is a return near?**\
 `Gregarious pitcher has had a long road back from surgery, and Houston could use him to help bolster rotation depth.`\
 https://nytimes.com/athletic/6580422/2025/08/27/luis-garcia-astros-tommy-john-recovery-return/
@@ -29,12 +37,4 @@ https://nytimes.com/live/2025/08/27/us/minneapolis-church-shooting/faculty-acted
 **Yankees takeaways: Max Fried's dominance, Anthony Volpe's slump and a Nationals sweep**\
 `It was the third time this season the Yankees had six players hit home runs in a single game — the most in MLB history.`\
 https://nytimes.com/athletic/6580231/2025/08/27/yankees-max-fried-anthony-volpe-sweep-nationals/
-
-**Minneapolis Suspect Knew Her Target, but Motive Is a Mystery**\
-`The shooter who attacked a Catholic school on Wednesday posted social media videos and writings that betrayed a litany of grievances and obsessions.`\
-https://nytimes.com/2025/08/27/us/minneapolis-school-shooting-suspect-gunman.html
-
-**Johnston: What to make of Connor McDavid's latest comments about his future with the Oilers**\
-`McDavid said Wednesday that "all options are on the table" as he enters the final season of his contract with the Oilers.`\
-https://nytimes.com/athletic/6580108/2025/08/27/connor-mcdavid-oilers-contract-comments/
 

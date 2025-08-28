@@ -1,3 +1,11 @@
+**Lionel Messi scores twice as Miami reach Leagues Cup final**\
+`The Argentinean star brought his team back from the brink of defeat in dramatic fashion.`\
+https://nytimes.com/athletic/6580567/2025/08/27/messi-inter-miami-leagues-cup-2/
+
+**Justin Slaten's return bolsters Red Sox bullpen as Aroldis Chapman's hitless streak continues**\
+`Slaten, who's been out with shoulder/neck inflammation, is expected to be activated Thursday after missing 76 games.`\
+https://nytimes.com/athletic/6580501/2025/08/27/red-sox-bullpen-justin-slaten/
+
 **As Luis Garcia nears his 28th month of Tommy John recovery, is a return near?**\
 `Gregarious pitcher has had a long road back from surgery, and Houston could use him to help bolster rotation depth.`\
 https://nytimes.com/athletic/6580422/2025/08/27/luis-garcia-astros-tommy-john-recovery-return/
