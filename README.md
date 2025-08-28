@@ -1,3 +1,7 @@
+**Why tennis players apologize for net cords – the strangest piece of tennis etiquette**\
+`The net-cord apology is one of the most prominent — and strange — unwritten rules of the sport.`\
+https://nytimes.com/athletic/6581789/2025/08/28/net-cords-tennis-apology-rules-etiquette/
+
 **Liverpool Champions League draw analysis: Real Madrid, Alexander-Arnold return to Anfield**\
 `Analysing the key games and possible breakthrough player in Liverpool's 2025-26 Champions League campaign `\
 https://nytimes.com/athletic/6581296/2025/08/28/liverpool-champions-league-fixtures-opponents-dates/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6581775/2025/08/28/cadillac-f1-reaction-valtteri-bo
 **Champions League draw analysis: Our predictions, star players and surprise packages**\
 `Our experts break down the league phrase draw, selecting their ones to watch and predicting their final top eights`\
 https://nytimes.com/athletic/6581069/2025/08/28/champions-league-draw-soccer-teams-format-players/
-
-**Shootings and threats add to parental anxiety as a new school year begins.**\
-`The death of two children in Minnesota, along with a string of false shooting reports at colleges, has left many parents and students on edge.`\
-https://nytimes.com/live/2025/08/28/us/minneapolis-school-shooting-minnesota/shootings-and-threats-add-to-parental-anxiety-as-a-new-school-year-begins
 
