@@ -1,3 +1,11 @@
+**Attacks on schools rarely come from outside the building.**\
+`By Talya Minsberg`\
+https://nytimes.com/live/2025/08/28/us/minneapolis-school-shooting-minnesota/attacks-on-schools-rarely-come-from-outside-the-building
+
+**Trump Targets Agencies Long Seen as Above Politics. Critics See Big Risks.**\
+`Trump officials say the president is within his rights to fire officials who do not share his agenda.`\
+https://nytimes.com/2025/08/28/us/politics/trump-firings-cdc-fed.html
+
 **Outside Annunciation Catholic Church, words of remembrance and a mood of healing.**\
 `By Ann Hinga Klein`\
 https://nytimes.com/live/2025/08/28/us/minneapolis-school-shooting-minnesota/outside-annunciation-catholic-church-words-of-remembrance-and-a-mood-of-healing
@@ -29,12 +37,4 @@ https://nytimes.com/2025/08/28/us/politics/federal-agent-sandwich-charges-dc.htm
 **C.D.C. Employees Host ‘Clap-Out’ for Resigned Top Officials**\
 `Staff at the Centers for Disease Control and Prevention held a “clap-out” on Thursday to honor three of the agency’s high-ranking officials, who resigned in protest after President Trump fired the director, Susan Monarez.`\
 https://nytimes.com/video/us/politics/100000010367517/cdc-employees-host-clap-out-for-resigned-top-officials.html
-
-**R.F.K. Jr.’s Firing of C.D.C Director Causes Chaos**\
-`Also, the search for a motive in Minneapolis. Here’s the latest at the end of Thursday.`\
-https://nytimes.com/2025/08/28/briefing/rfk-cdc-minneapolis.html
-
-**Milan exploring move for Man City defender Akanji**\
-`Milan are pursuing further defensive reinforcements between now and the end of the window with Akanji emerging as a candidate for the role.`\
-https://nytimes.com/athletic/6570888/2025/08/28/manuel-akanji-milan-manchester-city-transfer/
 
