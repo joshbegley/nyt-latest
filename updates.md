@@ -1,3 +1,23 @@
+**Why Marquez Valdes-Scantling chose the 49ers over old pal Aaron Rodgers**\
+`The 49ers could add another free-agent receiver to the mix: Kendrick Bourne is scheduled to visit the team on Monday.`\
+https://nytimes.com/athletic/6582916/2025/08/28/marquez-valdes-scantling-mvs-49ers-steelers/
+
+**Mets' Francisco Alvarez experiences injury setback; expected to resume rehab**\
+`Over the last two years, Alvarez has experienced four hand injuries, and will need to manage two of them when he returns.`\
+https://nytimes.com/athletic/6582978/2025/08/28/ny-mets-francisco-alvarez-setback/
+
+**Attacks on schools rarely come from outside the building.**\
+`By Talya Minsberg`\
+https://nytimes.com/live/2025/08/28/us/minneapolis-school-shooting-minnesota/attacks-on-schools-rarely-come-from-outside-the-building
+
+**Trump Targets Agencies Long Seen as Above Politics. Critics See Big Risks.**\
+`Trump officials say the president is within his rights to fire officials who do not share his agenda.`\
+https://nytimes.com/2025/08/28/us/politics/trump-firings-cdc-fed.html
+
+**Antitrust battle between NASCAR, Michael Jordan's team turns contentious**\
+`"If I have to fight this to the end for the betterment of the sport, I will do that," Jordan said on the courthouse steps. `\
+https://nytimes.com/athletic/6582791/2025/08/28/nascar-lawsuit-michael-jordan-23xi-front-row/
+
 **Outside Annunciation Catholic Church, words of remembrance and a mood of healing.**\
 `By Ann Hinga Klein`\
 https://nytimes.com/live/2025/08/28/us/minneapolis-school-shooting-minnesota/outside-annunciation-catholic-church-words-of-remembrance-and-a-mood-of-healing
