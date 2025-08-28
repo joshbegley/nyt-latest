@@ -1,3 +1,11 @@
+**Texas football watch guide: Streaming info, schedule for Arch Manning's Longhorns**\
+`We've prepared a breakdown of the 2025 broadcast rotation, and this piece here is specifically formatted for Steve Sarkisian's Longhorns.`\
+https://nytimes.com/athletic/6575297/2025/08/28/texas-longhorns-football-arch-manning-how-to-watch-2025/
+
+**Trump Administration Live Updates: White House Says New C.D.C. Director Is Fired, but She Refuses to Leave**\
+``\
+https://nytimes.com/live/2025/08/28/us/trump-news-updates
+
 **Live Updates: Police Seek Answers in Fatal Church Shooting**\
 `The attack left two children dead and 17 people injured. Officials were looking at the social media content of the suspect, who was also dead.`\
 https://nytimes.com/live/2025/08/28/us/minneapolis-school-shooting-minnesota
