@@ -1,3 +1,7 @@
+**Byron Buxton sees potential for more after reaching 100 games in 2 straight seasons**\
+`With a month to go, Buxton is closing in on or has already reached several career highs.`\
+https://nytimes.com/athletic/6581704/2025/08/28/twins-byron-buxton-100-games-consecutive-seasons/
+
 **Selling a George Clooney Movie Without George Clooney at the Venice Film Festival**\
 `Castmates Adam Sandler and Laura Dern stepped in, but the star’s absence had a meta quality: his movie “Jay Kelly” is about a star putting his career on hold.`\
 https://nytimes.com/2025/08/28/movies/george-clooney-adam-sandler-venice-film-festival.html

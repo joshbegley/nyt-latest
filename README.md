@@ -1,3 +1,11 @@
+**Scoop City: The ever-growing QB contracts**\
+`Why quarterback salaries are changing the NFL, how the Cowboys' first-year coach navigates drama and Panthers to watch.`\
+https://nytimes.com/athletic/6581893/2025/08/28/nfl-quarterback-contracts-scoop-city/
+
+**New York Needs More Millionaires, Fiscal Watchdog Says.**\
+`A report by the nonpartisan Citizens Budget Commission comes at a time when income inequality and affordability have been the most prominent themes in the race for New York City mayor.`\
+https://nytimes.com/2025/08/28/nyregion/nyc-millionaires.html
+
 **Byron Buxton sees potential for more after reaching 100 games in 2 straight seasons**\
 `With a month to go, Buxton is closing in on or has already reached several career highs.`\
 https://nytimes.com/athletic/6581704/2025/08/28/twins-byron-buxton-100-games-consecutive-seasons/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6576254/2025/08/28/college-football-picks-spread-oh
 **Notre Dame's CJ Carr on winning QB competition: 'There's been a weight lifted off'**\
 `Head coach Marcus Freeman credited Carr’s confidence as a major factor in Carr winning the starting QB job.`\
 https://nytimes.com/athletic/6581488/2025/08/28/notre-dame-cj-carr-qb-competition/
-
-**C.D.C. Standoff: Kennedy’s Push to Fire Director Devolves Into Chaos**\
-`Lawyers for the agency’s chief, Susan Monarez, insist that the impasse with Health Secretary Robert F. Kennedy Jr. can only be resolved by President Trump.`\
-https://nytimes.com/2025/08/28/health/rfk-jr-susan-monarez-cdc-vaccines.html
-
-**ESPN replacing Doris Burke with Tim Legler on NBA Finals broadcast: Sources**\
-`ESPN is discussing a contract extension with Burke, whose contract ends after this upcoming season.`\
-https://nytimes.com/athletic/6581644/2025/08/28/doris-burke-tim-legler-nba-finals-espn-broadcast/
 
