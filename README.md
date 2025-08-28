@@ -1,3 +1,11 @@
+**Everton 2 Mansfield 2: Grealish's good start continues, Moyes speaks on youngsters' futures**\
+`Patrick Boyland breaks down the main talking points from Everton's 2-0 win over Mansfield Town in the Carabao Cup`\
+https://nytimes.com/athletic/6580216/2025/08/28/everton-2-mansfield-2-grealish-alcaraz-armstrong/
+
+**Word of the Day: arachnid**\
+`This word has appeared in 13 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2025/08/28/learning/word-of-the-day-arachnid.html
+
 **Immigration Officials Conduct Operation at Wildfire Site in Washington State**\
 `Local firefighting officials provided few details about the incident at Olympic National Forest. Federal officials rarely enforce immigration laws at the site of an emergency.`\
 https://nytimes.com/2025/08/28/us/border-patrol-bear-gulch-fire.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/08/28/business/uaw-blueoval-ford-sk-on.html
 **Kim Jong-un Will Attend Military Parade in Beijing Next Week**\
 `He will get a chance to meet the leaders of China and Russia, North Korea’s two most important allies, at a time when he is being wooed by Washington and Seoul.`\
 https://nytimes.com/2025/08/28/world/asia/kim-jong-un-military-parade-beijing.html
-
-**Trump Tries to Derail Climate Progress**\
-`Also, the film festival season kicks off.`\
-https://nytimes.com/2025/08/28/briefing/trump-climate-india-tariffs-europe-defense.html
-
-**How Pape Matar Sarr became Thomas Frank's instant favourite**\
-`Joao Palhinha's arrival could have threatened Sarr's gametime. Instead, he is proving integral to Frank's plans...`\
-https://nytimes.com/athletic/6578358/2025/08/28/pape-matar-sarr-tottenham-frank/
 

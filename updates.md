@@ -1,3 +1,7 @@
+**Immigration Officials Conduct Operation at Wildfire Site in Washington State**\
+`Local firefighting officials provided few details about the incident at Olympic National Forest. Federal officials rarely enforce immigration laws at the site of an emergency.`\
+https://nytimes.com/2025/08/28/us/border-patrol-bear-gulch-fire.html
+
 **Russian Missile and Drone Attack Kills at Least 8 in Kyiv**\
 `The strikes on Ukraine’s capital early Thursday injured at least 22 people and left others trapped under rubble, officials said.`\
 https://nytimes.com/2025/08/28/world/europe/ukraine-russia-strikes.html
