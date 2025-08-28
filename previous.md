@@ -1,3 +1,19 @@
+**How Trump Could Gain Control of the Fed**\
+`President Trump’s attempt to fire Lisa Cook has laid bare the erosion of the Federal Reserve’s independence, which could lead to higher inflation and less financial stability, The New York Times’s chief economics correspondent explains.`\
+https://nytimes.com/video/business/economy/100000010362356/how-trump-could-gain-control-of-the-fed.html
+
+**How to watch 2025 F1 Dutch Grand Prix at Zandvoort after the summer break**\
+`Coming straight off the summer break, the Dutch Grand Prix is the first objective measure of which teams spent August wisely. `\
+https://nytimes.com/athletic/6579878/2025/08/28/f1-dutch-grand-prix-odds-2025-how-to-watch/
+
+**Phillies want to forget it, but after 3 brutal days in New York, the NL East race is on**\
+`After the loss, Rob Thomson urged his players not to let the sting of this sweep linger because, if they do, the consequences are real.`\
+https://nytimes.com/athletic/6580571/2025/08/28/phillies-mets-sweep-nl-east-race/
+
+**Wolves confirm Krejci signing from Girona**\
+`The defender has joined on an initial loan with option to buy, though the clubs view the deal as a permanent one.`\
+https://nytimes.com/athletic/6580962/2025/08/28/ladislav-krejci-wolves-transfer/
+
 **Barcelona request to play first Champions League game away amid Camp Nou delay**\
 `Barca have not played at the stadium since starting a €1.5billion (£1.3bn; $1.8bn) refurbishment project in June 2023.`\
 https://nytimes.com/athletic/6580940/2025/08/28/barcelona-champions-league-game-away/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6575888/2025/08/28/nfl-draft-2026-arch-manning-ohio
 **NWSL summer window review: Record transfer fee, hidden gems and expansion team building**\
 `The NWSL's secondary transfer window closed on Monday. These are the moves that captured our attention.`\
 https://nytimes.com/athletic/6580324/2025/08/28/nwsl-summer-window-review-record-transfers/
-
-**How the 2025 post-Super Bowl Eagles are different than 2018 — and the lessons they learned**\
-`The Super Bowl champion Eagles are eager to focus on winning the trophy again this season.`\
-https://nytimes.com/athletic/6579938/2025/08/28/eagles-super-bowl-lessons-learned/
-
-**A classic New York golf course vanished. 80 years later, it reappeared in the Midwest**\
-`The Lido is a course that’s still coming to be understood. Just like the original.`\
-https://nytimes.com/athletic/6577472/2025/08/28/lido-golf-course-history-revival-sand-valley/
-
-**Nolan McLean dispatches Phillies with a flourish as Mets start clicking again**\
-`The rookie pitcher lowered his ERA to 0.89, and now Carlos Mendoza likes the Mets' momentum: "Here we are when we’ve got to go."`\
-https://nytimes.com/athletic/6580660/2025/08/28/mets-nolan-mclean-phillies/
-
-**More than just baseball vaudeville? The Savannah Bananas think so. MLB isn't so sure**\
-`“This isn't the Globetrotters. We're building a sport,” Bananas owner Jesse Cole said.`\
-https://nytimes.com/athletic/6579676/2025/08/28/mlb-savannah-bananas-fans-coexistence-competition/
 
