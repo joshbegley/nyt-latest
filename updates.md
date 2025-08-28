@@ -1,3 +1,15 @@
+**A Major Russian Attack on Kyiv**\
+`The assault, which killed at least 18 people, was the largest attack on the Ukrainian capital since President Trump met Vladimir Putin.`\
+https://nytimes.com/2025/08/28/briefing/russia-kyiv-attack-israeli-reservist.html
+
+**Trump Has Lunch With Smithsonian Chief as He Presses for Museum Changes**\
+`Lonnie G. Bunch III met with the president at the White House as the cultural institution faces a push by the administration to review the content of its exhibitions.`\
+https://nytimes.com/2025/08/28/arts/design/trump-bunch-lunch-smithsonian.html
+
+**Cowboys trade Micah Parsons to Packers in blockbuster deal: Source**\
+`Parsons, 26, is entering his fifth season in the NFL after being drafted by Dallas with the No. 12 pick in the 2021 NFL Draft.`\
+https://nytimes.com/athletic/6582707/2025/08/28/micah-parsons-trade-packers-cowboys-nfl-2025/
+
 **Besiktas sack Solskjaer after Conference League exit**\
 `Besiktas confirmed the decision had been taken after a board meeting on Thursday.`\
 https://nytimes.com/athletic/6582657/2025/08/28/ole-gunnar-solskjaer-besiktas-sacked/
