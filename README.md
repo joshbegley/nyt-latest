@@ -1,9 +1,17 @@
+**C.D.C. Standoff: Kennedy’s Push to Fire Director Devolves Into Chaos**\
+`Lawyers for the agency’s chief, Susan Monarez, insist that the impasse with Health Secretary Robert F. Kennedy Jr. can only be resolved by President Trump.`\
+https://nytimes.com/2025/08/28/health/rfk-jr-susan-monarez-cdc-vaccines.html
+
+**ESPN replacing Doris Burke with Tim Legler on NBA Finals broadcast: Sources**\
+`ESPN is discussing a contract extension with Burke, whose contract ends after this upcoming season.`\
+https://nytimes.com/athletic/6581644/2025/08/28/doris-burke-tim-legler-nba-finals-espn-broadcast/
+
 **A.K. Best, Master of the Art of Fly Tying, Is Dead at 92**\
 `His meticulously crafted, lifelike designs were said to have “shaped the soul of modern fly fishing.”`\
 https://nytimes.com/2025/08/28/sports/ak-best-dead.html
 
-**Havertz to undergo surgery on knee injury, expected to only miss a number of weeks**\
-`Kai Havertz will undergo surgery on his knee issue but the Arsenal forward is expected only to miss a single-digit number of weeks as he recovers.`\
+**Havertz to undergo surgery on knee injury, not expected to miss significant time**\
+`The German forward previously missed several months earlier this year with a hamstring problem.`\
 https://nytimes.com/athletic/6570266/2025/08/28/arsenal-kai-havertz-injury-update/
 
 **Extreme Weather Survivors Share the Tools That Helped Them Get Through Disaster**\
@@ -29,12 +37,4 @@ https://nytimes.com/newsgraphics/card-story/zach-cherry-severance-emmy-nominatio
 **‘We Are All Shocked’: Warming Waters Bring a Stinging Sea Slug to Spain’s Coasts**\
 `The blue dragons, which pack a ferocious sting, have led to several beach closures. Experts say it’s a worrying sign of the warming of the Mediterranean.`\
 https://nytimes.com/2025/08/28/world/europe/spain-beach-blue-dragon-sea-slugs.html
-
-**gws-carrie-bradshaw-apartments-sex-and-the-city**\
-`(No description)`\
-https://nytimes.com/newsgraphics/card-story/carrie-bradshaw-apartments-sex-and-the-city
-
-**Behind Trump’s Targeting of the Smithsonian**\
-`The Trump administration has published a list of exhibits it considers objectionable and has ordered a review of several Smithsonian museums. Zolan Kanno-Youngs, a White House correspondent for The New York Times, explains what’s behind these actions and what they could mean.`\
-https://nytimes.com/video/us/politics/100000010354354/behind-trumps-targeting-of-the-smithsonian.html
 

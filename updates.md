@@ -1,3 +1,7 @@
+**A.K. Best, Master of the Art of Fly Tying, Is Dead at 92**\
+`His meticulously crafted, lifelike designs were said to have “shaped the soul of modern fly fishing.”`\
+https://nytimes.com/2025/08/28/sports/ak-best-dead.html
+
 **Havertz to undergo surgery on knee injury, expected to only miss a number of weeks**\
 `Kai Havertz will undergo surgery on his knee issue but the Arsenal forward is expected only to miss a single-digit number of weeks as he recovers.`\
 https://nytimes.com/athletic/6570266/2025/08/28/arsenal-kai-havertz-injury-update/

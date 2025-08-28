@@ -1,3 +1,7 @@
+**A.K. Best, Master of the Art of Fly Tying, Is Dead at 92**\
+`His meticulously crafted, lifelike designs were said to have “shaped the soul of modern fly fishing.”`\
+https://nytimes.com/2025/08/28/sports/ak-best-dead.html
+
 **Havertz to undergo surgery on knee injury, expected to only miss a number of weeks**\
 `Kai Havertz will undergo surgery on his knee issue but the Arsenal forward is expected only to miss a single-digit number of weeks as he recovers.`\
 https://nytimes.com/athletic/6570266/2025/08/28/arsenal-kai-havertz-injury-update/
@@ -33,8 +37,4 @@ https://nytimes.com/newsgraphics/card-story/carrie-bradshaw-apartments-sex-and-t
 **Behind Trump’s Targeting of the Smithsonian**\
 `The Trump administration has published a list of exhibits it considers objectionable and has ordered a review of several Smithsonian museums. Zolan Kanno-Youngs, a White House correspondent for The New York Times, explains what’s behind these actions and what they could mean.`\
 https://nytimes.com/video/us/politics/100000010354354/behind-trumps-targeting-of-the-smithsonian.html
-
-**gws-carrie-bradshaw-and-just-like-that-fashion**\
-`(No description)`\
-https://nytimes.com/newsgraphics/card-story/carrie-bradshaw-and-just-like-that-fashion
 
