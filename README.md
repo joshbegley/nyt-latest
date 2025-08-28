@@ -1,3 +1,7 @@
+**Leipzig allow Simons to travel to London amid interest from Spurs**\
+`The Netherlands international, 22, is available this summer and had previously attracted interest from both Chelsea and Bayern Munich.`\
+https://nytimes.com/athletic/6485022/2025/08/28/xavi-simons-tottenham-transfer-news/
+
 **A Shooting in Minnesota**\
 `We have the latest on the attack on Annunciation Catholic Church.`\
 https://nytimes.com/2025/08/28/briefing/shooting-minneapolis.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6576933/2025/08/28/big-ten-football-2025-season-sch
 **AFC West preview: Can the Broncos chase down the Chiefs?**\
 `Plus, a rebuild in Vegas, while the Chargers could be derailed by a summer injury.`\
 https://nytimes.com/athletic/6578754/2025/08/28/afc-west-predicted-standings-win-totals/
-
-**Blackhawks rank No. 2 in NHL Pipeline Rankings for 2025**\
-`Chicago's rebuild still has some work ahead, but the Blackhawks' prospect pool is deep and full of players who can contribute.`\
-https://nytimes.com/athletic/6472052/2025/08/28/chicago-blackhawks-nhl-pipeline-rankings-2025/
 
