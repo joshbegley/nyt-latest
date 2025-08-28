@@ -1,3 +1,5 @@
+
+
 **Doctor Who Raped and Videotaped Patients Is Sentenced to 24 Years**\
 `Zhi Alan Cheng, who practiced at NewYork-Presbyterian Queens medical center, had a variety of illicit drugs in his apartment.`\
 https://nytimes.com/2025/08/28/nyregion/queens-doctor-rape-sentence.html
