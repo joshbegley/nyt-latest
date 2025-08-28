@@ -1,3 +1,7 @@
+**23XI and Front Row's future, Dodge's return, and 2026 schedule fallout: NASCAR Mailbag**\
+`What's at stake as the antitrust lawsuit rolls on, how the garage reacted to the 2026 schedule, and more of your latest questions answered.`\
+https://nytimes.com/athletic/6578661/2025/08/28/23xi-front-row-lawsuit-dodge-2026-schedule-nascar-mailbag/
+
 **Tall Ships Return to Amsterdam, Resurfacing City’s Maritime Past**\
 `Millions flocked to the Dutch capital for a festival of centuries-old ships that celebrated the Netherlands’ nautical history.`\
 https://nytimes.com/card/2025/08/28/admin/amsterdam-sail-maritime-ships
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6581018/2025/08/28/college-football-quiz-transfers-
 **Here’s the latest.**\
 `By Aimee Ortiz, Dan Simmons, Talya Minsberg, Amy Harmon and Aric Toler`\
 https://nytimes.com/live/2025/08/28/us/minneapolis-school-shooting-minnesota/heres-the-latest
-
-**I'm going to 6 games in 5 days during Week 1. Come along for the ride**\
-`By my rough count, it’s about 1,300 miles and 20 hours by car. It'll be a lot. It'll be worth it.`\
-https://nytimes.com/athletic/6581111/2025/08/28/college-football-week-1-schedule-road-trip/
 
