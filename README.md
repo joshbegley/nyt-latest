@@ -1,3 +1,7 @@
+**European Nations Move to Restart Sanctions on Iran Over Nuclear Program**\
+`Britain, France and Germany could trigger the reimposition of harsh penalties as the 2015 nuclear deal is soon to expire with nothing to replace it. More talks will follow.`\
+https://nytimes.com/2025/08/28/world/middleeast/iran-nuclear-europe-sanctions.html
+
 **Atlanta Journal-Constitution to Quit Print Cold Turkey**\
 `The publication says the time is right to pour all of its resources into its online news operation and get its journalism “in front of the most people.”`\
 https://nytimes.com/2025/08/28/business/media/atlanta-journal-constitution-print-edition.html
@@ -15,7 +19,7 @@ https://nytimes.com/2025/08/28/movies/sanatorium-under-the-sign-of-the-hourglass
 https://nytimes.com/2025/08/28/us/emmett-till-gun-museum-mississippi.html
 
 **Read Lisa Cook’s Lawsuit**\
-`Lisa Cook’s lawsuit challenging her firing by President Trump.`\
+`The Fed governor is challenging her firing by President Trump.`\
 https://nytimes.com/interactive/2025/08/28/business/lisa-cook-lawsuit-trump.html
 
 **23XI and Front Row's future, Dodge's return, and 2026 schedule fallout: NASCAR Mailbag**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6580010/2025/08/28/fantasy-football-draft-treveyon-
 **Cincinnati Bengals streaming guide: How to watch Joe Burrow and Ja'Marr Chase this year**\
 `The Bengals can't afford to waste another year of Joe Burrow's prime. See what the 2025 season has in store for Cincinnati's finest. `\
 https://nytimes.com/athletic/6572259/2025/08/28/cincinnati-bengals-2025-how-to-watch-burrow-chase/
-
-**Fed Governor Lisa Cook Sues Trump Over Dismissal**\
-`Lisa Cook, who has not been charged with a crime, sought to retain her position, arguing her firing was “unprecedented and illegal.”`\
-https://nytimes.com/2025/08/28/us/politics/lisa-cook-trump-fed-lawsuit.html
 
