@@ -1,3 +1,11 @@
+**Cubs' rotation depth tested as Jameson Taillon goes to IL with groin tightness**\
+`“We have bigger goals in mind than the next two weeks,” Taillon said.`\
+https://nytimes.com/athletic/6580701/2025/08/28/jameson-taillon-injured-list-cubs-playoffs/
+
+**All 36 Champions League teams: ranked and reviewed**\
+`Assessing each of the teams fighting it out in this year's competition (in an entirely subjective way)`\
+https://nytimes.com/athletic/6578769/2025/08/28/champions-league-teams-ranked/
+
 **Cubs rotation depth tested as Taillon goes to IL with groin tightness**\
 `“We have bigger goals in mind than the next two weeks,” Taillon said.`\
 https://nytimes.com/athletic/6580701/2025/08/28/jameson-taillon-injured-list-cubs-playoffs/
