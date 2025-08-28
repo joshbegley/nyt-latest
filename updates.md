@@ -1,3 +1,15 @@
+**Trump Signs Executive Order to Make ‘Federal Architecture Beautiful Again’**\
+`The order, which affects buildings like federal courthouses and agency headquarters, encourages classical styles rather than modernist aesthetics.`\
+https://nytimes.com/2025/08/28/arts/design/trump-executive-order-architecture-federal-buildings.html
+
+**Minnesota Shooting Was Met With Acts of Heroism, Big and Small**\
+`Students and staff members shielded the youngest children, police officers stopped victims’ bleeding, and a nurse abandoned protocol to hold a scared child’s hand.`\
+https://nytimes.com/2025/08/28/us/minneapolis-shooting-heroism.html
+
+**Lyles beats Olympic champion Tebogo for fifth 200m Diamond League title**\
+`Lyles clocked 19.74s in Zürich, Switzerland.`\
+https://nytimes.com/athletic/6582529/2025/08/28/noah-lyles-letsile-tebogo-diamond-league-200m/
+
 **19 Democratic Governors Warn Trump Not to Send Troops to Their States**\
 `President Trump’s extraordinary push to override local authority and militarize cities in Democratic-run states has prompted an unusually united response from state leaders.`\
 https://nytimes.com/2025/08/28/us/politics/democratic-governors-trump-troops.html

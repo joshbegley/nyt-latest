@@ -1,3 +1,15 @@
+**Trump Signs Executive Order to Make ‘Federal Architecture Beautiful Again’**\
+`The order, which affects buildings like federal courthouses and agency headquarters, encourages classical styles rather than modernist aesthetics.`\
+https://nytimes.com/2025/08/28/arts/design/trump-executive-order-architecture-federal-buildings.html
+
+**Minnesota Shooting Was Met With Acts of Heroism, Big and Small**\
+`Students and staff members shielded the youngest children, police officers stopped victims’ bleeding, and a nurse abandoned protocol to hold a scared child’s hand.`\
+https://nytimes.com/2025/08/28/us/minneapolis-shooting-heroism.html
+
+**Lyles beats Olympic champion Tebogo for fifth 200m Diamond League title**\
+`Lyles clocked 19.74s in Zürich, Switzerland.`\
+https://nytimes.com/athletic/6582529/2025/08/28/noah-lyles-letsile-tebogo-diamond-league-200m/
+
 **19 Democratic Governors Warn Trump Not to Send Troops to Their States**\
 `President Trump’s extraordinary push to override local authority and militarize cities in Democratic-run states has prompted an unusually united response from state leaders.`\
 https://nytimes.com/2025/08/28/us/politics/democratic-governors-trump-troops.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/08/28/style/products-comfort-design.html
 **Climate Change Is Transforming Summer in Europe**\
 `A season of record wildfires and a wave of extreme heat is forcing Europe to confront difficult questions about how to adapt.`\
 https://nytimes.com/2025/08/28/climate/climate-change-summer-europe-heat.html
-
-**Is Bed Shopping Turning into a Consumer’s Nightmare?**\
-`Even sleep experts are exhausted by the hype.`\
-https://nytimes.com/2025/08/28/style/bed-mattress-shopping.html
-
-**Champions League draw's impact on USMNT stars' all-important season**\
-`There's a slimmer USMNT contingent taking part in the Champions League this season, but the participants' opponents are now known`\
-https://nytimes.com/athletic/6582226/2025/08/28/champions-league-draw-usmnt-americans/
-
-**Until Saturday: Quick guide to biggest Week 1 ever**\
-`Until Saturday is The Athletic's free CFB newsletter.`\
-https://nytimes.com/athletic/6582401/2025/08/28/college-football-week-1-best-games-until-saturday/
 
