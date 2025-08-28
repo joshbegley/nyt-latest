@@ -1,3 +1,7 @@
+**Whatever Happened to Good Summer Movies?**\
+`Our critic Wesley Morris was underwhelmed by this summer’s movies. Join him as he travels back to the glorious summer of 1990 on “Cannonball” podcast.`\
+https://nytimes.com/video/podcasts/100000010361822/best-summer-movies-cannonball.html
+
 **European Nations Move to Restart Sanctions on Iran Over Nuclear Program**\
 `Britain, France and Germany could trigger the reimposition of harsh penalties as the 2015 nuclear deal is soon to expire with nothing to replace it. More talks will follow.`\
 https://nytimes.com/2025/08/28/world/middleeast/iran-nuclear-europe-sanctions.html
@@ -33,8 +37,4 @@ https://nytimes.com/card/2025/08/28/admin/amsterdam-sail-maritime-ships
 **Here's how TreVeyon Henderson can live up to his fantasy football draft hype**\
 `Is the rising fantasy football ADP of rookie TreVeyon Henderson warranted? Brandon Funston illustrates what a viable ROI path looks like.`\
 https://nytimes.com/athletic/6580010/2025/08/28/fantasy-football-draft-treveyon-henderson-adp-projections-rb/
-
-**Cincinnati Bengals streaming guide: How to watch Joe Burrow and Ja'Marr Chase this year**\
-`The Bengals can't afford to waste another year of Joe Burrow's prime. See what the 2025 season has in store for Cincinnati's finest. `\
-https://nytimes.com/athletic/6572259/2025/08/28/cincinnati-bengals-2025-how-to-watch-burrow-chase/
 
