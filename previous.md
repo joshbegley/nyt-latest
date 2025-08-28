@@ -15,7 +15,7 @@ https://nytimes.com/athletic/6576048/2025/08/28/oxford-united-0-brighton-6tzimas
 https://nytimes.com/athletic/6580019/2025/08/28/grimsby-town-manchester-united/
 
 **Everton 2 Mansfield 0: Grealish's good start continues, Moyes speaks on youngsters' futures**\
-`Patrick Boyland breaks down the main talking points from Everton's 2-0 win over Mansfield Town in the Carabao Cup`\
+`Patrick Boyland breaks down the main talking points from the win over third-tier visitors Mansfield in the Carabao Cup`\
 https://nytimes.com/athletic/6580216/2025/08/28/everton-2-mansfield-0-grealish-alcaraz-armstrong/
 
 **Word of the Day: arachnid**\

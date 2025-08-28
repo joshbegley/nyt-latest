@@ -1,3 +1,7 @@
+**Everton 2 Mansfield 0: Grealish's good start continues, Moyes speaks on youngsters' futures**\
+`Patrick Boyland breaks down the main talking points from the win over third-tier visitors Mansfield in the Carabao Cup`\
+https://nytimes.com/athletic/6580216/2025/08/28/everton-2-mansfield-0-grealish-alcaraz-armstrong/
+
 **Here’s What the Judicial Crisis Gripping New Jersey Looks Like**\
 `Trials and hearings have been delayed since a federal judge ruled that Alina Habba was serving unlawfully as U.S. attorney. The uncertainty may last for months.`\
 https://nytimes.com/2025/08/28/nyregion/new-jersey-federal-court-slowdown.html
