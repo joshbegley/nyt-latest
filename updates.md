@@ -1,3 +1,11 @@
+**Shootings and threats add to parental anxiety as a new school year begins.**\
+`The death of two children in Minnesota, along with a string of false shooting reports at colleges, has left many parents and students on edge.`\
+https://nytimes.com/live/2025/08/28/us/minneapolis-school-shooting-minnesota/shootings-and-threats-add-to-parental-anxiety-as-a-new-school-year-begins
+
+**Astros move Lance McCullers Jr. to bullpen on 'short-term' basis**\
+`McCullers has a 6.89 ERA across 12 starts: “Maybe pitching out of the bullpen for an outing or two can get him going.”`\
+https://nytimes.com/athletic/6581957/2025/08/28/astros-lance-mccullers-bullpen/
+
 **Fantasy bullpen report featuring the emerging Abner Uribe and Andrew Saalfrank**\
 `Greg Jewett notes this week's most impactful bullpen changes for fantasy baseball, including an interim closer taking over in Milwaukee.`\
 https://nytimes.com/athletic/6581514/2025/08/28/fantasy-baseball-bullpen-report-saves-closer-uribe-walker/
