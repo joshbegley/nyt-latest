@@ -1,3 +1,7 @@
+**Here’s the Scoop!**\
+`Joel Woodford makes his New York Times Crossword debut.`\
+https://nytimes.com/2025/08/27/crosswords/daily-puzzle-2025-08-28.html
+
 **Colts GM defends QB plans for Anthony Richardson, Daniel Jones; But do plans make sense?**\
 `Richardson has now been demoted to QB2 for the second time in less than a year, but Ballard maintains Indy isn't giving up on him. `\
 https://nytimes.com/athletic/6580102/2025/08/27/colts-gm-benching-anthony-richardson-daniel-jones/

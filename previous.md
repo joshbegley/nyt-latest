@@ -1,3 +1,7 @@
+**Here’s the Scoop!**\
+`Joel Woodford makes his New York Times Crossword debut.`\
+https://nytimes.com/2025/08/27/crosswords/daily-puzzle-2025-08-28.html
+
 **Seahawks GM John Schneider confident in reconfigured O-line: 'Seen a lot of growth'**\
 `Meanwhile, the Seahawks cut Shaq Griffin but want him back, and Schneider provided insight into possible extensions for the 2022 class.`\
 https://nytimes.com/athletic/6580313/2025/08/27/seahawks-offensive-line-contract-negotiations-john-schneider/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6580108/2025/08/27/connor-mcdavid-oilers-contract-c
 **Jelena Ostapenko appears to tell Taylor Townsend she has 'no education' after U.S. Open defeat**\
 `“She told me I have no class," Townsend said in an on-court interview after her 7-5, 6-1 victory.`\
 https://nytimes.com/athletic/6580141/2025/08/27/townsend-ostapenko-us-open-confrontation/
-
-**New N.Y.C. Food Standards Could Spell Doom for Chicken Nuggets**\
-`The standards prohibit processed meat and limit the use of artificial sweeteners in meals served by nearly a dozen city agencies, including the Department of Education.`\
-https://nytimes.com/2025/08/27/nyregion/nyc-food-standards-chicken-nuggets.html
 

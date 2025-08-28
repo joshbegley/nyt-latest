@@ -1,3 +1,7 @@
+**As Luis Garcia nears his 28th month of Tommy John recovery, is a return near?**\
+`Gregarious pitcher has had a long road back from surgery, and Houston could use him to help bolster rotation depth.`\
+https://nytimes.com/athletic/6580422/2025/08/27/luis-garcia-astros-tommy-john-recovery-return/
+
 **Here’s the Scoop!**\
 `Joel Woodford makes his New York Times Crossword debut.`\
 https://nytimes.com/2025/08/27/crosswords/daily-puzzle-2025-08-28.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/27/us/minneapolis-school-shooting-suspect-gunman.htm
 **Johnston: What to make of Connor McDavid's latest comments about his future with the Oilers**\
 `McDavid said Wednesday that "all options are on the table" as he enters the final season of his contract with the Oilers.`\
 https://nytimes.com/athletic/6580108/2025/08/27/connor-mcdavid-oilers-contract-comments/
-
-**Jelena Ostapenko appears to tell Taylor Townsend she has 'no education' after U.S. Open defeat**\
-`“She told me I have no class," Townsend said in an on-court interview after her 7-5, 6-1 victory.`\
-https://nytimes.com/athletic/6580141/2025/08/27/townsend-ostapenko-us-open-confrontation/
 
