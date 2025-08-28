@@ -1,3 +1,11 @@
+**Why Andre Pallante will remain in Cardinals rotation despite second-half struggles**\
+`"I'm definitely frustrated," Pallante said. "I want to give quality starts, good starts for this team so we go out there and win games."`\
+https://nytimes.com/athletic/6582072/2025/08/28/andre-pallante-cardinals-rotation-despite-struggles/
+
+**Inside the C.D.C., a Growing Sense of Despair**\
+`After six months of turmoil, the loss of the new director and a round of high-profile resignations marks a new low, some employees said.`\
+https://nytimes.com/2025/08/28/health/inside-the-cdc-a-growing-sense-of-despair.html
+
 **Current, former Cowboys react to blockbuster Micah Parsons trade**\
 `Count several of Parsons' teammates — both old and new — among those surprised by the move.`\
 https://nytimes.com/athletic/6582807/2025/08/28/cowboys-micah-parsons-trade-reaction/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6582978/2025/08/28/ny-mets-francisco-alvarez-setbac
 **Attacks on schools rarely come from outside the building.**\
 `By Talya Minsberg`\
 https://nytimes.com/live/2025/08/28/us/minneapolis-school-shooting-minnesota/attacks-on-schools-rarely-come-from-outside-the-building
-
-**Trump Targets Agencies Long Seen as Above Politics. Critics See Big Risks.**\
-`Trump officials say the president is within his rights to fire officials who do not share his agenda.`\
-https://nytimes.com/2025/08/28/us/politics/trump-firings-cdc-fed.html
-
-**Outside Annunciation Catholic Church, words of remembrance and a mood of healing.**\
-`By Ann Hinga Klein`\
-https://nytimes.com/live/2025/08/28/us/minneapolis-school-shooting-minnesota/outside-annunciation-catholic-church-words-of-remembrance-and-a-mood-of-healing
 
