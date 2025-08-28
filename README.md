@@ -1,3 +1,7 @@
+**Immigration Officials Conduct Operation at Wildfire Site in Washington State**\
+`Local firefighting officials provided few details about the incident at Olympic National Forest. Federal officials rarely enforce immigration laws at the site of an emergency.`\
+https://nytimes.com/2025/08/28/us/border-patrol-bear-gulch-fire.html
+
 **Russian Missile and Drone Attack Kills at Least 8 in Kyiv**\
 `The strikes on Ukraine’s capital early Thursday injured at least 22 people and left others trapped under rubble, officials said.`\
 https://nytimes.com/2025/08/28/world/europe/ukraine-russia-strikes.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/28/briefing/trump-climate-india-tariffs-europe-defen
 **How Pape Matar Sarr became Thomas Frank's instant favourite**\
 `Joao Palhinha's arrival could have threatened Sarr's gametime. Instead, he is proving integral to Frank's plans...`\
 https://nytimes.com/athletic/6578358/2025/08/28/pape-matar-sarr-tottenham-frank/
-
-**FPL tips: How to invest in your defence for Gameweek 3**\
-`With injuries to the two most-owned defenders in FPL, who just happen to be premium full-backs, how should we be redistributing our funds?`\
-https://nytimes.com/athletic/6573667/2025/08/28/fantasy-premier-league-fpl-gameweek-three-tips/
 
