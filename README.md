@@ -1,3 +1,35 @@
+**Live Updates: Police Seek Answers in Fatal Church Shooting**\
+`The attack left two children dead and 17 people injured. Officials were looking at the social media content of the suspect, who was also dead.`\
+https://nytimes.com/live/2025/08/28/us/minneapolis-school-shooting-minnesota
+
+**How to watch the Pittsburgh Steelers in 2025: Schedule, streaming for Rodgers' new team**\
+`Aaron Rodgers, in the twilight of his career, is now playing for Mike Tomlin and the Pittsburgh Steelers. Here's how to watch all 17 games. `\
+https://nytimes.com/athletic/6543922/2025/08/28/pittsburgh-steelers-2025-how-to-watch-aaron-rodgers/
+
+**Potential Wild line combos, goalie split, expectations for Danila Yurov and more: John Hynes Q&A**\
+`Hynes discussed what lines he's "toyed around with" heading into training camp, where Vladimir Tarasenko could fit and how the D stacks up.`\
+https://nytimes.com/athletic/6578792/2025/08/28/potential-wild-line-combos-goalie-split-expectations-for-danila-yurov-and-more-john-hynes-qa/
+
+**Week 1's top 10 college football games: Texas-Ohio State, LSU-Clemson headline loaded weekend**\
+`This is arguably the best Week 1 slate in recent memory, running Thursday to Monday. College football, we could drink a case of you.`\
+https://nytimes.com/athletic/6577212/2025/08/28/college-football-schedule-week-1-top-games/
+
+**Takeaways from the Reds' west-coast swoon**\
+`After winning the first two games of their trip in Anaheim against the Angels, the Reds dropped six of their last seven.`\
+https://nytimes.com/athletic/6580751/2025/08/28/cincinnati-reds-la-dodgers-west-coast-swoon/
+
+**How Jamar Mozee has helped lead a Nebraska recruiting revival in Kansas City**\
+`Matt Rhule knew he had a keeper when he met the former high school coach, who is a rising star at Nebraska.`\
+https://nytimes.com/athletic/6579791/2025/08/28/nebraska-football-jamar-mozee-kansas-city-recruiting/
+
+**From 'lost soul' to the Sabres, Michael Kesselring aims make a 'difference'**\
+`Kesselring's story is not one of a player who had his path to the NHL clearly laid out for him.`\
+https://nytimes.com/athletic/6578735/2025/08/28/buffalo-sabres-michael-kesselring-nhl/
+
+**Aday Mara, Kevin Overton and other transfers who stood out in summer practices**\
+`Which transfers have looked the best for their respective teams this summer and are projected to have a strong 2025-2026 season?`\
+https://nytimes.com/athletic/6579107/2025/08/28/college-basketball-transfers-aday-mara-kevin-overton/
+
 **Rescuers Search Through Rubble After Russian Strikes on Kyiv**\
 `Emergency workers looked through the wreckage of a five-story apartment building early Thursday after a Russian missile and drone attack on Kyiv, the Ukrainian capital, killed more than a dozen people.`\
 https://nytimes.com/video/world/europe/100000010365795/rescuers-search-through-rubble-after-russian-strikes-on-kyiv.html
@@ -5,36 +37,4 @@ https://nytimes.com/video/world/europe/100000010365795/rescuers-search-through-r
 **How training in the Algarve helped Arsenal's young hopes prepare for the season**\
 `It has been quite the summer for Kyra Cooney-Cross as she prepares for the start of the Women's Super League season`\
 https://nytimes.com/athletic/6570846/2025/08/28/arsenal-cooney-cross-lewis-skelly/
-
-**Leipzig allow Simons to travel to London amid interest from Spurs**\
-`The Netherlands international, 22, is available this summer and had previously attracted interest from both Chelsea and Bayern Munich.`\
-https://nytimes.com/athletic/6485022/2025/08/28/xavi-simons-tottenham-transfer-news/
-
-**A Shooting in Minnesota**\
-`We have the latest on the attack on Annunciation Catholic Church.`\
-https://nytimes.com/2025/08/28/briefing/shooting-minneapolis.html
-
-**TAFC: Humiliation for Manchester United and Old Firm, Champions League draw guide**\
-`Today in TAFC: Manchester United, Rangers and Celtic humiliated in space of 24 hours, Messi rescues Inter Miami, Champions League draw guide`\
-https://nytimes.com/athletic/6580998/2025/08/28/manchester-united-grimsby-old-firm-champions-league/
-
-**Flyers rank No. 7 in NHL Pipeline Rankings for 2025**\
-`In Matvei Michkov and Porter Martone, the Flyers have two major building blocks to propel their rebuild.`\
-https://nytimes.com/athletic/6488416/2025/08/28/philadelphia-flyers-nhl-pipeline-rankings-2025/
-
-**Initially 'blindsided' by Twins, ex-hitting coach David Popkins finds new home in Toronto**\
-`Entering play Wednesday, the Blue Jays were third in the league in wRC+ and sixth in runs.`\
-https://nytimes.com/athletic/6580569/2025/08/28/minnesota-twins-david-popkins-contract/
-
-**Path to QB1: How each Top 25 college football team landed its starter**\
-`Seventeen of the 25 starters (68 percent) are original signees with their respective school. Eight were former five-star prospects. `\
-https://nytimes.com/athletic/6578997/2025/08/28/college-football-top-25-teams-quarterbacks-arch-manning/
-
-**Explained: Who are Kairat, the Champions League team who play closer to Tokyo than Paris?**\
-`Kairat ended Celtic's Champions League hopes and will now play in the league phase — but who are they and where do they come from?`\
-https://nytimes.com/athletic/6578446/2025/08/28/kairat-champions-league-explained/
-
-**NFC North preview: Packers set to ascend, while Lions and Vikings try to recapture magic**\
-`Plus, excitement over the Bears’ new coach-QB pairing in one of the NFL's toughest divisions.`\
-https://nytimes.com/athletic/6579826/2025/08/28/nfc-north-predicted-standings-win-totals/
 
