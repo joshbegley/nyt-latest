@@ -1,3 +1,11 @@
+**Strand Larsen tells Wolves he wants to leave amid Newcastle bids**\
+`Wolves chairman Jeff Shi has informed Strand Larsen that a move would not be possible this window.`\
+https://nytimes.com/athletic/6578990/2025/08/28/strand-larsen-newcastle-transfer-wolves/
+
+**Ravens, Kyle Hamilton were a perfect match from the start: 'He’s kind of a unicorn'**\
+`Hamilton is a star, just as Baltimore believed he would be. Making sure he remains a Raven for the foreseeable future was an easy call. `\
+https://nytimes.com/athletic/6580155/2025/08/28/ravens-kyle-hamilton-contract-extension/
+
 **The Pulse: The best NFL rookies you don’t know**\
 `The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
 https://nytimes.com/athletic/6579591/2025/08/28/nfl-rookies-egbuka-henderson-dart-the-pulse/
