@@ -1,3 +1,23 @@
+**Behind Trump’s Targeting of the Smithsonian**\
+`The Trump administration has published a list of exhibits it considers objectionable and has ordered a review of several Smithsonian museums. Zolan Kanno-Youngs, a White House correspondent for The New York Times, explains what’s behind these actions and what they could mean.`\
+https://nytimes.com/video/us/politics/100000010354354/behind-trumps-targeting-of-the-smithsonian.html
+
+**gws-carrie-bradshaw-and-just-like-that-fashion**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/carrie-bradshaw-and-just-like-that-fashion
+
+**Support for Ruben Amorim is plummeting among Man Utd fans but appetite for change is diminished too**\
+`The appetite among Man United supporters for yet another reset, another coach, diminishes with each ultimately unsuccessful appointment`\
+https://nytimes.com/athletic/6581259/2025/08/28/manchester-united-amorim-change/
+
+**The Perfect Late-Summer Soup**\
+`Yossy Arefi’s ginger chicken and rice soup with zucchini manages to be both warming and seasonal.`\
+https://nytimes.com/2025/08/28/dining/the-perfect-late-summer-soup.html
+
+**E. Jean Carroll Is Telling Her Story in a Documentary, but Will It Find a Buyer?**\
+`The film, from Ivy Meeropol, will play Telluride. But as distributors pull back from nonfiction titles, especially political ones, a release isn’t certain.`\
+https://nytimes.com/2025/08/28/movies/e-jean-carroll-documentary.html
+
 **A Gaza City Neighborhood Is Now a Wasteland, Satellite Images Show**\
 `With Israel’s expanded assault looming, Zeitoun already resembles other parts of Gaza that have been largely flattened in the war.`\
 https://nytimes.com/2025/08/28/world/middleeast/gaza-city-zeitoun-destruction.html
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/6580730/2025/08/28/suns-mat-ishbia-lawsuit-records-
 **Colts owner Jim Irsay relapsed before death, according to report**\
 `The Washington Post interviewed five people with knowledge of Irsay's relapse and found he overdosed three times in the last five years.`\
 https://nytimes.com/athletic/6581250/2025/08/28/colts-owner-jim-irsay-death-addiction/
-
-**Whatever Happened to Good Summer Movies?**\
-`Our critic Wesley Morris was underwhelmed by this summer’s movies. Join him as he travels back to the glorious summer of 1990 on “Cannonball” podcast.`\
-https://nytimes.com/video/podcasts/100000010361822/best-summer-movies-cannonball.html
-
-**European Nations Move to Restart Sanctions on Iran Over Nuclear Program**\
-`Britain, France and Germany could trigger the reimposition of harsh penalties as the 2015 nuclear deal is soon to expire with nothing to replace it. More talks will follow.`\
-https://nytimes.com/2025/08/28/world/middleeast/iran-nuclear-europe-sanctions.html
-
-**Atlanta Journal-Constitution to Quit Print Cold Turkey**\
-`The publication says the time is right to pour all of its resources into its online news operation and get its journalism “in front of the most people.”`\
-https://nytimes.com/2025/08/28/business/media/atlanta-journal-constitution-print-edition.html
-
-**We've got goalie fever. Plus: Connor McDavid's eyebrow-raising comments**\
-`Welcome to an (almost) all-goaltending edition of the Red Light newsletter.`\
-https://nytimes.com/athletic/6581226/2025/08/28/nhl-red-light-newsletter-goalies-mcdavid/
-
-**‘Sanatorium Under the Sign of the Hourglass’ Review: Dreams Out of Joint**\
-`The latest phantasmagorical feature from the Quay Brothers adapts Bruno Schulz’s enigmatic tale of a son visiting his sick father.`\
-https://nytimes.com/2025/08/28/movies/sanatorium-under-the-sign-of-the-hourglass-review.html
 
