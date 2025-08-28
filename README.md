@@ -6,7 +6,7 @@ https://nytimes.com/2025/08/28/nyregion/new-jersey-federal-court-slowdown.html
 `Feeling stuck on today’s puzzle? We can help.`\
 https://nytimes.com/2025/08/28/crosswords/spelling-bee-forum.html
 
-**Oxford United 0 Brighton 6: Tzimas's debut double, new defenders shine but fringe players left out**\
+**Oxford United 0 Brighton 6: Tzimas's debut double, new defenders shine, but fringe players left out**\
 `Andy Naylor breaks down the main talking points from Brighton's 6-0 win over Oxford United in the Carabao Cup`\
 https://nytimes.com/athletic/6576048/2025/08/28/oxford-united-0-brighton-6tzimas-gruda-boscagli/
 
@@ -26,8 +26,8 @@ https://nytimes.com/2025/08/28/learning/word-of-the-day-arachnid.html
 `Local firefighting officials provided few details about the incident at Olympic National Forest. Federal officials rarely enforce immigration laws at the site of an emergency.`\
 https://nytimes.com/2025/08/28/us/border-patrol-bear-gulch-fire.html
 
-**Russian Missile and Drone Attack Kills at Least 8 in Kyiv**\
-`The strikes on Ukraine’s capital early Thursday injured at least 22 people and left others trapped under rubble, officials said.`\
+**Russian Missile and Drone Attack Kills at Least 10 in Kyiv**\
+`The strikes on Ukraine’s capital early Thursday injured more than 30 people and left others trapped under rubble, officials said.`\
 https://nytimes.com/2025/08/28/world/europe/ukraine-russia-strikes.html
 
 **Dodger Details: Shohei Ohtani's shift in pitch usage, mapping the rotation and more**\
