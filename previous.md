@@ -1,40 +1,40 @@
-**Minneapolis Community Mourns School Shooting Victims**\
-`Residents of Minneapolis gathered to mourn the victims of a shooting at a Catholic school. Children and parents shared their fears about school safety.`\
-https://nytimes.com/video/us/100000010365633/minneapolis-church-shooting.html
+**Trump Raises the Stakes**\
+`The president has dropped an “atomic bomb” on the Department of Justice.`\
+https://nytimes.com/2025/08/28/opinion/trump-justice-bolton-cook.html
 
-**Hong Kong Media Mogul Jimmy Lai’s Trial Wraps Up**\
-`The national security trial of Jimmy Lai, a Hong Kong media tycoon, closed on Thursday. The critic of the Chinese Community Party has become a symbol of how free speech has been squashed in the city.`\
-https://nytimes.com/video/world/asia/100000010365754/hong-kong-jimmy-lai.html
+**She Returned to Brooklyn With $300,000 and a Dream**\
+`For her first purchase, a longtime renter searched in Flatbush and Midwood for a one-bedroom co-op with nearby subway options. Here’s what she found.`\
+https://nytimes.com/interactive/2025/08/28/realestate/brooklyn-flatbush-midwood-co-op-apartments.html
 
-**Here’s What the Judicial Crisis Gripping New Jersey Looks Like**\
-`Trials and hearings have been delayed since a federal judge ruled that Alina Habba was serving unlawfully as U.S. attorney. The uncertainty may last for months.`\
-https://nytimes.com/2025/08/28/nyregion/new-jersey-federal-court-slowdown.html
+**Why Marie Antoinette’s Influence Endures**\
+`Plus: a new palazzo hotel in Florence, ceramic dishes in citrus colors and more recommendations from T Magazine.`\
+https://nytimes.com/2025/08/28/t-magazine/marie-antoinette-v-a-exhibition.html
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2025/08/28/crosswords/spelling-bee-forum.html
+**The Other Victims in School Shootings: The Children Who Survive**\
+`Children who survive school shootings deal with a host of complex feelings, ranging from anxiety and grief to guilt and shame.`\
+https://nytimes.com/2025/08/28/us/minneapolis-school-shooting-victims-survivors-injuries.html
 
-**Oxford 0 Brighton 6: Tzimas' debut double, new defenders shine, but fringe players left out**\
-`Andy Naylor breaks down the main talking points from last night's demolition of Championship side Oxford United in the Carabao Cup`\
-https://nytimes.com/athletic/6576048/2025/08/28/oxford-united-0-brighton-6tzimas-gruda-boscagli/
+**Game. Set. Cuddles.**\
+`At the U.S. Open, players’ dogs are a key part of the entourage, and they have the run of the place.`\
+https://nytimes.com/2025/08/28/style/us-open-dogs.html
 
-**'We only sing when we're fishing' - Celebrating Grimsby Town, the 'minnows' who sank Man Utd**\
-`"We have smaller teams in Portugal too" said Manchester United head coach Ruben Amorim in his pre-match interview. Not like mine, you don't`\
-https://nytimes.com/athletic/6580019/2025/08/28/grimsby-town-manchester-united/
+**Your Mortgage Data Is Probably Public. Can You Hide it?**\
+`After President Trump accused a Federal Reserve governor of mortgage fraud, everyday citizens are waking up to just how much information is out there.`\
+https://nytimes.com/2025/08/28/business/mortgage-data-privacy-lisa-cook-trump.html
 
-**Everton 2 Mansfield 0: Grealish's good start continues, Moyes speaks on youngsters' futures**\
-`Patrick Boyland breaks down the main talking points from the win over third-tier visitors Mansfield in the Carabao Cup`\
-https://nytimes.com/athletic/6580216/2025/08/28/everton-2-mansfield-0-grealish-alcaraz-armstrong/
+**Nothing Could Topple the ‘Queen of Heels.’ Then Trump Came Along.**\
+`The president’s steep tariffs and erratic moves have turned manufacturing abroad into a minefield, even for entrepreneurs who set up in countries viewed as safe alternatives to China.`\
+https://nytimes.com/2025/08/28/us/politics/tariffs-luxury-shoes-brazil-trump.html
 
-**Word of the Day: arachnid**\
-`This word has appeared in 13 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2025/08/28/learning/word-of-the-day-arachnid.html
+**The Boss Finally Gets a Biopic, Just Not the One We Expected**\
+`Jeremy Allen White and Jeremy Strong, the stars of “Springsteen: Deliver Me From Nowhere,” and the director Scott Cooper on capturing a haunted rock icon.`\
+https://nytimes.com/2025/08/28/movies/bruce-springsteen-biopic-jeremy-allen-white.html
 
-**Immigration Officials Conduct Operation at Wildfire Site in Washington State**\
-`Local firefighting officials provided few details about the incident at Olympic National Forest. Federal officials rarely enforce immigration laws at the site of an emergency.`\
-https://nytimes.com/2025/08/28/us/border-patrol-bear-gulch-fire.html
+**U.S. Government Cracks Down on Organ Transplant System**\
+`Organ donation groups accused of safety lapses are facing multiple investigations, and new policies are underway to protect patients.`\
+https://nytimes.com/2025/08/28/us/federal-crackdown-organ-donations.html
 
-**Russian Missile and Drone Attack Kills at Least 10 in Kyiv**\
-`The strikes on Ukraine’s capital early Thursday injured more than 30 people and left others trapped under rubble, officials said.`\
-https://nytimes.com/2025/08/28/world/europe/ukraine-russia-strikes.html
+**What’s Next, Comrade Trump?**\
+`Trump’s meddling in our most important economic institutions is so extreme that at times it resembles China’s state-directed capitalism.`\
+https://nytimes.com/2025/08/28/opinion/donald-trump-economy-intel-fed.html
 
