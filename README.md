@@ -1,3 +1,15 @@
+**Russian Missile and Drone Attack Kills at Least 8 in Kyiv**\
+`The strikes on Ukraine’s capital early Thursday injured at least 22 people and left others trapped under rubble, officials said.`\
+https://nytimes.com/2025/08/28/world/europe/ukraine-russia-strikes.html
+
+**Dodger Details: Shohei Ohtani's shift in pitch usage, mapping the rotation and more**\
+`What he is doing remains unparalleled, and yet feels normal because Ohtani makes it seem so.`\
+https://nytimes.com/athletic/6580702/2025/08/28/dodgers-shohei-ohtani-shift-pitch-usage/
+
+**Ruben Amorim raises doubts over his Manchester United future after latest humiliation**\
+`"Something has to change and you’re not going to change 22 players again," said Amorim, who considered his positions at times last season`\
+https://nytimes.com/athletic/6580478/2025/08/28/ruben-amorim-job-future/
+
 **Cubs' rotation depth tested as Jameson Taillon goes to IL with groin tightness**\
 `“We have bigger goals in mind than the next two weeks,” Taillon said.`\
 https://nytimes.com/athletic/6580701/2025/08/28/jameson-taillon-injured-list-cubs-playoffs/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6578358/2025/08/28/pape-matar-sarr-tottenham-frank/
 **FPL tips: How to invest in your defence for Gameweek 3**\
 `With injuries to the two most-owned defenders in FPL, who just happen to be premium full-backs, how should we be redistributing our funds?`\
 https://nytimes.com/athletic/6573667/2025/08/28/fantasy-premier-league-fpl-gameweek-three-tips/
-
-**Trevoh Chalobah was ushered out at Chelsea a year ago. Now he rightly feels integral**\
-`The England defender was deemed surplus to requirements and loaned out last summer, but he has since established himself at his boyhood club`\
-https://nytimes.com/athletic/6576803/2025/08/28/chalobah-chelsea-maresca-england/
-
-**'To host Crystal Palace in Europe is massive - and they have all the pressure on them'**\
-`Palace have been showered with praise since arriving in Norway - but their hosts' warmth will not extend to the pitch `\
-https://nytimes.com/athletic/6572656/2025/08/28/crystal-palace-fredrikstad-conference-league/
-
-**All 36 Champions League teams: ranked and reviewed**\
-`Assessing each of the teams fighting it out in this year's competition (in an entirely subjective way)`\
-https://nytimes.com/athletic/6578769/2025/08/28/champions-league-teams-ranked/
 
