@@ -1,3 +1,15 @@
+**Besiktas sack Solskjaer after Conference League exit**\
+`Besiktas confirmed the decision had been taken after a board meeting on Thursday.`\
+https://nytimes.com/athletic/6582657/2025/08/28/ole-gunnar-solskjaer-besiktas-sacked/
+
+**Cowboys trade Micah Parsons to Packers: Source**\
+`Parsons, 26, is entering his fifth season in the NFL after being drafted by Dallas with the No. 12 pick in the 2021 NFL Draft.`\
+https://nytimes.com/athletic/6582707/2025/08/28/micah-parsons-trade-packers-cowboys-nfl-2025/
+
+**Cowboys trade star Micah Parsons to Packers: Sources**\
+`The Cowboys have traded star edge rusher Micah Parsons to the Green Bay Packers, league sources told The Athletic.`\
+https://nytimes.com/athletic/6582704/2025/08/28/cowboys-trade-micah-parsons-packers/
+
 **Venus Williams extends U.S. Open stay in doubles win with Leylah Fernandez**\
 `The 45-year-old and 14-time Grand Slam women's doubles champion teamed up with her Canadian partner to take out the No. 6 seeds.`\
 https://nytimes.com/athletic/6582693/2025/08/28/us-open-venus-williams-leylah-fernandez-doubles/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6582529/2025/08/28/noah-lyles-letsile-tebogo-diamon
 **19 Democratic Governors Warn Trump Not to Send Troops to Their States**\
 `President Trump’s extraordinary push to override local authority and militarize cities in Democratic-run states has prompted an unusually united response from state leaders.`\
 https://nytimes.com/2025/08/28/us/politics/democratic-governors-trump-troops.html
-
-**Mamdani Widens Fund-Raising Lead, as Adams Is Denied Matching Funds**\
-`Zohran Mamdani, the Democratic candidate for mayor of New York City, has nearly four times more campaign funds than Andrew M. Cuomo, thought to be his closest rival.`\
-https://nytimes.com/2025/08/28/nyregion/mamdani-adams-cuomo-money.html
-
-**Casey Schmitt's small improvement could mean big things for the Giants**\
-`Schmitt has reduced the percentage of pitches out of the zone that he swings at just enough this season to dramatically improve his outlook.`\
-https://nytimes.com/athletic/6579229/2025/08/28/casey-schmitt-sf-giants-plate-discipline-improvement/
-
-**Again, Grief and Pleas to End Gun Violence**\
-`Readers lament the school shooting in Minnesota. Also: The Capitol Police ignored by President Trump; a possible cancer risk for runners.`\
-https://nytimes.com/2025/08/28/opinion/minn-shooting-gun-violence.html
 

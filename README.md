@@ -1,3 +1,7 @@
+**Trump Has Lunch With Smithsonian Chief as He Presses for Museum Changes**\
+`Lonnie G. Bunch III met with the president at the White House as the cultural institution faces a push by the administration to review the content of its exhibitions.`\
+https://nytimes.com/2025/08/28/arts/design/trump-bunch-lunch-smithsonian.html
+
 **Besiktas sack Solskjaer after Conference League exit**\
 `Besiktas confirmed the decision had been taken after a board meeting on Thursday.`\
 https://nytimes.com/athletic/6582657/2025/08/28/ole-gunnar-solskjaer-besiktas-sacked/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/28/us/minneapolis-shooting-heroism.html
 **Lyles beats Olympic champion Tebogo for fifth 200m Diamond League title**\
 `Lyles clocked 19.74s in Zürich, Switzerland.`\
 https://nytimes.com/athletic/6582529/2025/08/28/noah-lyles-letsile-tebogo-diamond-league-200m/
-
-**19 Democratic Governors Warn Trump Not to Send Troops to Their States**\
-`President Trump’s extraordinary push to override local authority and militarize cities in Democratic-run states has prompted an unusually united response from state leaders.`\
-https://nytimes.com/2025/08/28/us/politics/democratic-governors-trump-troops.html
 

@@ -1,3 +1,15 @@
+**Besiktas sack Solskjaer after Conference League exit**\
+`Besiktas confirmed the decision had been taken after a board meeting on Thursday.`\
+https://nytimes.com/athletic/6582657/2025/08/28/ole-gunnar-solskjaer-besiktas-sacked/
+
+**Cowboys trade Micah Parsons to Packers: Source**\
+`Parsons, 26, is entering his fifth season in the NFL after being drafted by Dallas with the No. 12 pick in the 2021 NFL Draft.`\
+https://nytimes.com/athletic/6582707/2025/08/28/micah-parsons-trade-packers-cowboys-nfl-2025/
+
+**Cowboys trade star Micah Parsons to Packers: Sources**\
+`The Cowboys have traded star edge rusher Micah Parsons to the Green Bay Packers, league sources told The Athletic.`\
+https://nytimes.com/athletic/6582704/2025/08/28/cowboys-trade-micah-parsons-packers/
+
 **Venus Williams extends U.S. Open stay in doubles win with Leylah Fernandez**\
 `The 45-year-old and 14-time Grand Slam women's doubles champion teamed up with her Canadian partner to take out the No. 6 seeds.`\
 https://nytimes.com/athletic/6582693/2025/08/28/us-open-venus-williams-leylah-fernandez-doubles/
