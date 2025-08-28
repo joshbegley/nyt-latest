@@ -1,3 +1,7 @@
+**Doctor Who Raped and Videotaped Patients Is Sentenced to 24 Years**\
+`Zhi Alan Cheng, who practiced at NewYork-Presbyterian Queens medical center, had a variety of illicit drugs in his apartment.`\
+https://nytimes.com/2025/08/28/nyregion/queens-doctor-rape-sentence.html
+
 **Tennessee gives men's basketball coach Rick Barnes lifetime contract**\
 `Barnes, 71, is the most successful coach in Tennessee history.`\
 https://nytimes.com/athletic/6582766/2025/08/28/rick-barnes-tennessee-contract/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6582707/2025/08/28/micah-parsons-trade-packers-cowb
 **Cowboys trade star Micah Parsons to Packers: Sources**\
 `The Cowboys have traded star edge rusher Micah Parsons to the Green Bay Packers, league sources told The Athletic.`\
 https://nytimes.com/athletic/6582704/2025/08/28/cowboys-trade-micah-parsons-packers/
-
-**Venus Williams extends U.S. Open stay in doubles win with Leylah Fernandez**\
-`The 45-year-old and 14-time Grand Slam women's doubles champion teamed up with her Canadian partner to take out the No. 6 seeds.`\
-https://nytimes.com/athletic/6582693/2025/08/28/us-open-venus-williams-leylah-fernandez-doubles/
 

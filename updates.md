@@ -1,3 +1,7 @@
+**Doctor Who Raped and Videotaped Patients Is Sentenced to 24 Years**\
+`Zhi Alan Cheng, who practiced at NewYork-Presbyterian Queens medical center, had a variety of illicit drugs in his apartment.`\
+https://nytimes.com/2025/08/28/nyregion/queens-doctor-rape-sentence.html
+
 **Tennessee gives men's basketball coach Rick Barnes lifetime contract**\
 `Barnes, 71, is the most successful coach in Tennessee history.`\
 https://nytimes.com/athletic/6582766/2025/08/28/rick-barnes-tennessee-contract/

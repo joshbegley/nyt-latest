@@ -1,3 +1,15 @@
+**The Shattering of Wednesday Mass: Minnesota Parish Reels From Attack**\
+`Annunciation Catholic Church and School has been a neighborhood anchor in Minneapolis for more than a century.`\
+https://nytimes.com/2025/08/28/us/catholic-church-shooting.html
+
+**Trump Administration Plans Immigration Crackdown in Chicago**\
+`The plans involve sending in hundreds of homeland security officers and using a naval base as a staging area.`\
+https://nytimes.com/2025/08/28/us/politics/trump-chicago-immigration-naval-base.html
+
+**Mainoo informs Manchester United of desire to leave on loan**\
+`The England international made clear his wish to depart Old Trafford on a temporary basis in order to gain consistent game time.`\
+https://nytimes.com/athletic/5781620/2025/08/28/kobbie-mainoo-manchester-united-loan/
+
 **Doctor Who Raped and Videotaped Patients Is Sentenced to 24 Years**\
 `Zhi Alan Cheng, who practiced at NewYork-Presbyterian Queens medical center, had a variety of illicit drugs in his apartment.`\
 https://nytimes.com/2025/08/28/nyregion/queens-doctor-rape-sentence.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/08/28/briefing/russia-kyiv-attack-israeli-reservist.htm
 **Trump Has Lunch With Smithsonian Chief as He Presses for Museum Changes**\
 `Lonnie G. Bunch III met with the president at the White House as the cultural institution faces a push by the administration to review the content of its exhibitions.`\
 https://nytimes.com/2025/08/28/arts/design/trump-bunch-lunch-smithsonian.html
-
-**Besiktas sack Solskjaer after Conference League exit**\
-`Besiktas confirmed the decision had been taken after a board meeting on Thursday.`\
-https://nytimes.com/athletic/6582657/2025/08/28/ole-gunnar-solskjaer-besiktas-sacked/
-
-**Cowboys trade Micah Parsons to Packers in blockbuster deal: Source**\
-`Parsons, 26, is entering his fifth season in the NFL after being drafted by Dallas with the No. 12 pick in the 2021 NFL Draft.`\
-https://nytimes.com/athletic/6582707/2025/08/28/micah-parsons-trade-packers-cowboys-nfl-2025/
-
-**Cowboys trade star Micah Parsons to Packers: Sources**\
-`The Cowboys have traded star edge rusher Micah Parsons to the Green Bay Packers, league sources told The Athletic.`\
-https://nytimes.com/athletic/6582704/2025/08/28/cowboys-trade-micah-parsons-packers/
 
