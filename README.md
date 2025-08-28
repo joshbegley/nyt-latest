@@ -1,3 +1,11 @@
+**Suns minority owners sue Mat Ishbia over internal records disagreement**\
+`The plaintiffs sought access to company records after what they claim were moves meant to hurt their leverage as minority owners.`\
+https://nytimes.com/athletic/6580730/2025/08/28/suns-mat-ishbia-lawsuit-records-minority-owners/
+
+**Colts owner Jim Irsay relapsed before death, according to investigation**\
+`The Washington Post interviewed five people with knowledge of Irsay's relapse and found he overdosed three times in the last five years.`\
+https://nytimes.com/athletic/6581250/2025/08/28/colts-owner-jim-irsay-death-addiction/
+
 **Whatever Happened to Good Summer Movies?**\
 `Our critic Wesley Morris was underwhelmed by this summer’s movies. Join him as he travels back to the glorious summer of 1990 on “Cannonball” podcast.`\
 https://nytimes.com/video/podcasts/100000010361822/best-summer-movies-cannonball.html
@@ -29,12 +37,4 @@ https://nytimes.com/interactive/2025/08/28/business/lisa-cook-lawsuit-trump.html
 **23XI and Front Row's future, Dodge's return, and 2026 schedule fallout: NASCAR Mailbag**\
 `What's at stake as the antitrust lawsuit rolls on, how the garage reacted to the 2026 schedule, and more of your latest questions answered.`\
 https://nytimes.com/athletic/6578661/2025/08/28/23xi-front-row-lawsuit-dodge-2026-schedule-nascar-mailbag/
-
-**Tall Ships Return to Amsterdam, Resurfacing City’s Maritime Past**\
-`Millions flocked to the Dutch capital for a festival of centuries-old ships that celebrated the Netherlands’ nautical history.`\
-https://nytimes.com/card/2025/08/28/admin/amsterdam-sail-maritime-ships
-
-**Here's how TreVeyon Henderson can live up to his fantasy football draft hype**\
-`Is the rising fantasy football ADP of rookie TreVeyon Henderson warranted? Brandon Funston illustrates what a viable ROI path looks like.`\
-https://nytimes.com/athletic/6580010/2025/08/28/fantasy-football-draft-treveyon-henderson-adp-projections-rb/
 
