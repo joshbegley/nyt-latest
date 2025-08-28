@@ -1,3 +1,11 @@
+**19 Democratic Governors Warn Trump Not to Send Troops to Their States**\
+`President Trump’s extraordinary push to override local authority and militarize cities in Democratic-run states has prompted an unusually united response from state leaders.`\
+https://nytimes.com/2025/08/28/us/politics/democratic-governors-trump-troops.html
+
+**Mamdani Widens Fund-Raising Lead, as Adams Is Denied Matching Funds**\
+`Zohran Mamdani, the Democratic candidate for mayor of New York City, has nearly four times more campaign funds than Andrew M. Cuomo, thought to be his closest rival.`\
+https://nytimes.com/2025/08/28/nyregion/mamdani-adams-cuomo-money.html
+
 **Casey Schmitt's small improvement could mean big things for the Giants**\
 `Schmitt has reduced the percentage of pitches out of the zone that he swings at just enough this season to dramatically improve his outlook.`\
 https://nytimes.com/athletic/6579229/2025/08/28/casey-schmitt-sf-giants-plate-discipline-improvement/
