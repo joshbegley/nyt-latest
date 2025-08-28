@@ -1,3 +1,7 @@
+**Chelsea and Milan agree €42m deal for Nkunku**\
+`The France international has been given permission to travel with personal terms already in place.`\
+https://nytimes.com/athletic/6580849/2025/08/28/chelsea-christopher-nkunku-milan-transfer/
+
 **Israel’s Exhausted Soldiers Complicate Plans for Gaza Assault**\
 `Worn down by hundreds of days of military service, fewer Israeli reservists are turning up for duty. Others are refusing to fight in a war they no longer believe in.`\
 https://nytimes.com/2025/08/28/world/middleeast/israels-exhausted-reservists-gaza.html
