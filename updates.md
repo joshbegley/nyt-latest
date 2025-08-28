@@ -1,3 +1,7 @@
+**Guardians release first baseman Carlos Santana**\
+`Santana has posted a .225/.316/.333 slash line in his 16th major-league season, his 11th season with Cleveland.`\
+https://nytimes.com/athletic/6582220/2025/08/28/guardians-release-carlos-santana/
+
 **Trump and Democrats Float Unusual Midterm Conventions**\
 `Both parties appear to be weighing gatherings that would gin up excitement for candidates in 2026 — and give a major platform for ambitious politicians hoping to lead the parties in 2028.`\
 https://nytimes.com/2025/08/28/us/politics/trump-democrats-midterm-conventions.html
