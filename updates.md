@@ -1,3 +1,7 @@
+**Champions League final moved three hours earlier**\
+`UEFA says the change opens up a "more accessible broadcasting window". `\
+https://nytimes.com/athletic/6580969/2025/08/28/champions-league-final-kick-off-time/
+
 **Strand Larsen tells Wolves he wants to leave amid Newcastle bids**\
 `Wolves chairman Jeff Shi has informed Strand Larsen that a move would not be possible this window.`\
 https://nytimes.com/athletic/6578990/2025/08/28/strand-larsen-newcastle-transfer-wolves/
