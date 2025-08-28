@@ -1,3 +1,11 @@
+**Minneapolis Community Mourns School Shooting Victims**\
+`Residents of Minneapolis gathered to mourn the victims of a shooting at a Catholic school. Children and parents shared their fears about school safety.`\
+https://nytimes.com/video/us/100000010365633/minneapolis-church-shooting.html
+
+**Hong Kong Media Mogul Jimmy Lai’s Trial Wraps Up**\
+`The national security trial of Jimmy Lai, a Hong Kong media tycoon, closed on Thursday. The critic of the Chinese Community Party has become a symbol of how free speech has been squashed in the city.`\
+https://nytimes.com/video/world/asia/100000010365754/hong-kong-jimmy-lai.html
+
 **Oxford 0 Brighton 6: Tzimas' debut double, new defenders shine, but fringe players left out**\
 `Andy Naylor breaks down the main talking points from last night's demolition of Championship side Oxford United in the Carabao Cup`\
 https://nytimes.com/athletic/6576048/2025/08/28/oxford-united-0-brighton-6tzimas-gruda-boscagli/

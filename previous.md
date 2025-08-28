@@ -1,3 +1,11 @@
+**Minneapolis Community Mourns School Shooting Victims**\
+`Residents of Minneapolis gathered to mourn the victims of a shooting at a Catholic school. Children and parents shared their fears about school safety.`\
+https://nytimes.com/video/us/100000010365633/minneapolis-church-shooting.html
+
+**Hong Kong Media Mogul Jimmy Lai’s Trial Wraps Up**\
+`The national security trial of Jimmy Lai, a Hong Kong media tycoon, closed on Thursday. The critic of the Chinese Community Party has become a symbol of how free speech has been squashed in the city.`\
+https://nytimes.com/video/world/asia/100000010365754/hong-kong-jimmy-lai.html
+
 **Here’s What the Judicial Crisis Gripping New Jersey Looks Like**\
 `Trials and hearings have been delayed since a federal judge ruled that Alina Habba was serving unlawfully as U.S. attorney. The uncertainty may last for months.`\
 https://nytimes.com/2025/08/28/nyregion/new-jersey-federal-court-slowdown.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/08/28/us/border-patrol-bear-gulch-fire.html
 **Russian Missile and Drone Attack Kills at Least 10 in Kyiv**\
 `The strikes on Ukraine’s capital early Thursday injured more than 30 people and left others trapped under rubble, officials said.`\
 https://nytimes.com/2025/08/28/world/europe/ukraine-russia-strikes.html
-
-**Dodger Details: Shohei Ohtani's shift in pitch usage, mapping the rotation and more**\
-`What he is doing remains unparalleled, and yet feels normal because Ohtani makes it seem so.`\
-https://nytimes.com/athletic/6580702/2025/08/28/dodgers-shohei-ohtani-shift-pitch-usage/
-
-**Ruben Amorim raises doubts over his Manchester United future after latest humiliation**\
-`"Something has to change and you’re not going to change 22 players again" said the coach, who considered his positions at times last season`\
-https://nytimes.com/athletic/6580478/2025/08/28/ruben-amorim-job-future/
 
