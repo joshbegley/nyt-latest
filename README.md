@@ -1,3 +1,19 @@
+**FPL tips: How to invest in your defence for Gameweek 3**\
+`With injuries to the two most-owned defenders in FPL, who just happen to be premium full-backs, how should we be redistributing our funds?`\
+https://nytimes.com/athletic/6573667/2025/08/28/fantasy-premier-league-fpl-gameweek-three-tips/
+
+**Trevoh Chalobah was ushered out at Chelsea a year ago. Now he rightly feels integral**\
+`The England defender was deemed surplus to requirements and loaned out last summer, but he has since established himself at his boyhood club`\
+https://nytimes.com/athletic/6576803/2025/08/28/chalobah-chelsea-maresca-england/
+
+**'To host Crystal Palace in Europe is massive - and they have all the pressure on them'**\
+`Palace have been showered with praise since arriving in Norway - but their hosts' warmth will not extend to the pitch `\
+https://nytimes.com/athletic/6572656/2025/08/28/crystal-palace-fredrikstad-conference-league/
+
+**All 36 Champions League teams: ranked and reviewed**\
+`Assessing each of the teams fighting it out in this year's competition (in an entirely subjective way)`\
+https://nytimes.com/athletic/6578769/2025/08/28/champions-league-teams-ranked/
+
 **Ndoye interview: Why he chose Forest, Elanga comparisons - and why he celebrates like a lion**\
 `Ndoye became the first Forest player to have two goal involvements in his first two Premier League games since Geoff Thomas in 1998`\
 https://nytimes.com/athletic/6578340/2025/08/28/dan-ndoye-nottingham-forest-interview/
@@ -21,20 +37,4 @@ https://nytimes.com/2025/08/28/world/europe/austria-sound-of-music.html
 **Connections: Sports Edition Coach: Hints for Aug. 28, 2025**\
 `Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
 https://nytimes.com/athletic/6578594/2025/08/28/connections-sports-edition-hints-for-aug-28-2025/
-
-**Corrections: Aug. 28, 2025**\
-`Corrections that appeared in print on Thursday, Aug. 28, 2025.`\
-https://nytimes.com/2025/08/27/pageoneplus/corrections-aug-28-2025.html
-
-**Quote of the Day: Rampant Sexual Violence, With Little Recourse**\
-`Quotation of the Day for Thursday, August 28, 2025.`\
-https://nytimes.com/2025/08/27/pageoneplus/quote-of-the-day-rampant-sexual-violence-with-little-recourse.html
-
-**What to Know About Jimmy Lai’s Trial in Hong Kong**\
-`The media tycoon, jailed since 2020, ran a now-defunct newspaper that was critical of the government.`\
-https://nytimes.com/2025/08/27/world/asia/jimmy-lai-trial-what-to-know.html
-
-**Jimmy Lai’s Freedom May Now Hinge on Beijing and Trump**\
-`As the outspoken Hong Kong publisher awaits a verdict, his trial has become a test of China’s resolve to crush dissent, and of whether President Trump can free him.`\
-https://nytimes.com/2025/08/27/world/asia/hong-kong-jimmy-lai-trump.html
 
