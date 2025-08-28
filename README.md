@@ -1,4 +1,4 @@
-**Cubs rotation depth tested as Taillon goes to IL with groin tightness**\
+**Cubs' rotation depth tested as Jameson Taillon goes to IL with groin tightness**\
 `“We have bigger goals in mind than the next two weeks,” Taillon said.`\
 https://nytimes.com/athletic/6580701/2025/08/28/jameson-taillon-injured-list-cubs-playoffs/
 
@@ -22,10 +22,6 @@ https://nytimes.com/2025/08/28/briefing/trump-climate-india-tariffs-europe-defen
 `Joao Palhinha's arrival could have threatened Sarr's gametime. Instead, he is proving integral to Frank's plans...`\
 https://nytimes.com/athletic/6578358/2025/08/28/pape-matar-sarr-tottenham-frank/
 
-**Champions League draw explained: How it works and who each team can face**\
-`From when and where to how does the format work. This is everything you need to know about Thursday's UEFA Champions League draw`\
-https://nytimes.com/athletic/6576325/2025/08/28/champion-league-draw-soccer-format-teams/
-
 **FPL tips: How to invest in your defence for Gameweek 3**\
 `With injuries to the two most-owned defenders in FPL, who just happen to be premium full-backs, how should we be redistributing our funds?`\
 https://nytimes.com/athletic/6573667/2025/08/28/fantasy-premier-league-fpl-gameweek-three-tips/
@@ -37,4 +33,8 @@ https://nytimes.com/athletic/6576803/2025/08/28/chalobah-chelsea-maresca-england
 **'To host Crystal Palace in Europe is massive - and they have all the pressure on them'**\
 `Palace have been showered with praise since arriving in Norway - but their hosts' warmth will not extend to the pitch `\
 https://nytimes.com/athletic/6572656/2025/08/28/crystal-palace-fredrikstad-conference-league/
+
+**All 36 Champions League teams: ranked and reviewed**\
+`Assessing each of the teams fighting it out in this year's competition (in an entirely subjective way)`\
+https://nytimes.com/athletic/6578769/2025/08/28/champions-league-teams-ranked/
 

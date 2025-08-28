@@ -1,3 +1,15 @@
+**Cubs rotation depth tested as Taillon goes to IL with groin tightness**\
+`“We have bigger goals in mind than the next two weeks,” Taillon said.`\
+https://nytimes.com/athletic/6580701/2025/08/28/jameson-taillon-injured-list-cubs-playoffs/
+
+**The New York Times in Print for Thursday, Aug. 28, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/08/28/todays-new-york-times
+
+**Union Leads in Vote at Ford Battery Plant**\
+`The U.A.W. had a narrow majority in a bid to represent workers at a factory owned by Ford and SK On. But the outcome could change because of contested ballots.`\
+https://nytimes.com/2025/08/28/business/uaw-blueoval-ford-sk-on.html
+
 **Kim Jong-un Will Attend Military Parade in Beijing Next Week**\
 `He will get a chance to meet the leaders of China and Russia, North Korea’s two most important allies, at a time when he is being wooed by Washington and Seoul.`\
 https://nytimes.com/2025/08/28/world/asia/kim-jong-un-military-parade-beijing.html
@@ -10,7 +22,7 @@ https://nytimes.com/2025/08/28/briefing/trump-climate-india-tariffs-europe-defen
 `Joao Palhinha's arrival could have threatened Sarr's gametime. Instead, he is proving integral to Frank's plans...`\
 https://nytimes.com/athletic/6578358/2025/08/28/pape-matar-sarr-tottenham-frank/
 
-**Champions League draw: Time, format and how to watch**\
+**Champions League draw explained: How it works and who each team can face**\
 `From when and where to how does the format work. This is everything you need to know about Thursday's UEFA Champions League draw`\
 https://nytimes.com/athletic/6576325/2025/08/28/champion-league-draw-soccer-format-teams/
 
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6576803/2025/08/28/chalobah-chelsea-maresca-england
 **'To host Crystal Palace in Europe is massive - and they have all the pressure on them'**\
 `Palace have been showered with praise since arriving in Norway - but their hosts' warmth will not extend to the pitch `\
 https://nytimes.com/athletic/6572656/2025/08/28/crystal-palace-fredrikstad-conference-league/
-
-**All 36 Champions League teams: ranked and reviewed**\
-`Assessing each of the teams fighting it out in this year's competition (in an entirely subjective way)`\
-https://nytimes.com/athletic/6578769/2025/08/28/champions-league-teams-ranked/
-
-**Ndoye interview: Why he chose Forest, Elanga comparisons - and why he celebrates like a lion**\
-`Ndoye became the first Forest player to have two goal involvements in his first two Premier League games since Geoff Thomas in 1998`\
-https://nytimes.com/athletic/6578340/2025/08/28/dan-ndoye-nottingham-forest-interview/
-
-**The striker who swapped Newcastle for Liverpool and ended up on a Beatles album cover**\
-`Long before Alexander Isak there was Albert Stubbins, a star striker at Newcastle who was courted and eventually prised away by Liverpool`\
-https://nytimes.com/athletic/6573665/2025/08/28/liverpool-newcastle-isak-stubbins-beatles/
 

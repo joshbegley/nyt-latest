@@ -1,3 +1,19 @@
+**Cubs rotation depth tested as Taillon goes to IL with groin tightness**\
+`“We have bigger goals in mind than the next two weeks,” Taillon said.`\
+https://nytimes.com/athletic/6580701/2025/08/28/jameson-taillon-injured-list-cubs-playoffs/
+
+**The New York Times in Print for Thursday, Aug. 28, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/08/28/todays-new-york-times
+
+**Union Leads in Vote at Ford Battery Plant**\
+`The U.A.W. had a narrow majority in a bid to represent workers at a factory owned by Ford and SK On. But the outcome could change because of contested ballots.`\
+https://nytimes.com/2025/08/28/business/uaw-blueoval-ford-sk-on.html
+
+**Champions League draw explained: How it works and who each team can face**\
+`From when and where to how does the format work. This is everything you need to know about Thursday's UEFA Champions League draw`\
+https://nytimes.com/athletic/6576325/2025/08/28/champion-league-draw-soccer-format-teams/
+
 **Kim Jong-un Will Attend Military Parade in Beijing Next Week**\
 `He will get a chance to meet the leaders of China and Russia, North Korea’s two most important allies, at a time when he is being wooed by Washington and Seoul.`\
 https://nytimes.com/2025/08/28/world/asia/kim-jong-un-military-parade-beijing.html
