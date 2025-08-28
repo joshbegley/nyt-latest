@@ -1,3 +1,7 @@
+**A Major Russian Attack on Kyiv**\
+`The assault, which killed at least 18 people, was the largest attack on the Ukrainian capital since President Trump met Vladimir Putin.`\
+https://nytimes.com/2025/08/28/briefing/russia-kyiv-attack-israeli-reservist.html
+
 **Trump Has Lunch With Smithsonian Chief as He Presses for Museum Changes**\
 `Lonnie G. Bunch III met with the president at the White House as the cultural institution faces a push by the administration to review the content of its exhibitions.`\
 https://nytimes.com/2025/08/28/arts/design/trump-bunch-lunch-smithsonian.html
@@ -6,7 +10,7 @@ https://nytimes.com/2025/08/28/arts/design/trump-bunch-lunch-smithsonian.html
 `Besiktas confirmed the decision had been taken after a board meeting on Thursday.`\
 https://nytimes.com/athletic/6582657/2025/08/28/ole-gunnar-solskjaer-besiktas-sacked/
 
-**Cowboys trade Micah Parsons to Packers: Source**\
+**Cowboys trade Micah Parsons to Packers in blockbuster deal: Source**\
 `Parsons, 26, is entering his fifth season in the NFL after being drafted by Dallas with the No. 12 pick in the 2021 NFL Draft.`\
 https://nytimes.com/athletic/6582707/2025/08/28/micah-parsons-trade-packers-cowboys-nfl-2025/
 
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/28/arts/design/trump-executive-order-architecture-fe
 **Minnesota Shooting Was Met With Acts of Heroism, Big and Small**\
 `Students and staff members shielded the youngest children, police officers stopped victims’ bleeding, and a nurse abandoned protocol to hold a scared child’s hand.`\
 https://nytimes.com/2025/08/28/us/minneapolis-shooting-heroism.html
-
-**Lyles beats Olympic champion Tebogo for fifth 200m Diamond League title**\
-`Lyles clocked 19.74s in Zürich, Switzerland.`\
-https://nytimes.com/athletic/6582529/2025/08/28/noah-lyles-letsile-tebogo-diamond-league-200m/
 
