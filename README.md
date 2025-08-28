@@ -1,3 +1,7 @@
+**Feldman & Russo: What we're hearing around college football in Week 1**\
+`Offensive coordinator Ryan Grubb has reunited with Kalen DeBoer and gotten to work making Alabama's offense much more consistent.`\
+https://nytimes.com/athletic/6578890/2025/08/28/ryan-grubb-matt-campbell-danton-lynn/
+
 **Wreaking havoc in the NFL was never a dream for Abdul Carter. It was always the plan**\
 `Brimming with confidence after an "unorthodox" upbringing, Carter plans to dominate the NFL and become the Giants' next iconic pass rusher.`\
 https://nytimes.com/athletic/6566252/2025/08/28/ny-giants-abdul-carter-jersey-number/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6579764/2025/08/28/patriots-questions-christian-gon
 **Soft secondaries and the receivers who'll benefit most from them in fantasy football**\
 `KC Joyner explains secondary matchup rankings and how they can help you draft wide receivers. `\
 https://nytimes.com/athletic/6579640/2025/08/28/fantasy-football-coverage-matchups/
-
-**Trump Raises the Stakes**\
-`The president has dropped an “atomic bomb” on the Department of Justice.`\
-https://nytimes.com/2025/08/28/opinion/trump-justice-bolton-cook.html
 
