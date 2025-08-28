@@ -1,3 +1,7 @@
+**Thai Premier Could Be Third in Her Family to Be Ousted From Office**\
+`Paetongtarn Shinawatra is facing a legal challenge that’s seen as an important test of her powerful family’s standing with Thailand’s old guard.`\
+https://nytimes.com/2025/08/28/world/asia/thailand-paetongtarn-shinawatra-verdict.html
+
 **Why Andre Pallante will remain in Cardinals rotation despite second-half struggles**\
 `"I'm definitely frustrated," Pallante said. "I want to give quality starts, good starts for this team so we go out there and win games."`\
 https://nytimes.com/athletic/6582072/2025/08/28/andre-pallante-cardinals-rotation-despite-struggles/

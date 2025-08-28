@@ -1,3 +1,7 @@
+**Thai Premier Could Be Third in Her Family to Be Ousted From Office**\
+`Paetongtarn Shinawatra is facing a legal challenge that’s seen as an important test of her powerful family’s standing with Thailand’s old guard.`\
+https://nytimes.com/2025/08/28/world/asia/thailand-paetongtarn-shinawatra-verdict.html
+
 **Why Andre Pallante will remain in Cardinals rotation despite second-half struggles**\
 `"I'm definitely frustrated," Pallante said. "I want to give quality starts, good starts for this team so we go out there and win games."`\
 https://nytimes.com/athletic/6582072/2025/08/28/andre-pallante-cardinals-rotation-despite-struggles/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6582916/2025/08/28/marquez-valdes-scantling-mvs-49e
 **Mets' Francisco Alvarez experiences injury setback; expected to resume rehab**\
 `Over the last two years, Alvarez has experienced four hand injuries, and will need to manage two of them when he returns.`\
 https://nytimes.com/athletic/6582978/2025/08/28/ny-mets-francisco-alvarez-setback/
-
-**Attacks on schools rarely come from outside the building.**\
-`By Talya Minsberg`\
-https://nytimes.com/live/2025/08/28/us/minneapolis-school-shooting-minnesota/attacks-on-schools-rarely-come-from-outside-the-building
 
