@@ -1,3 +1,11 @@
+**19 Democratic Governors Warn Trump Not to Send Troops to Their States**\
+`President Trump’s extraordinary push to override local authority and militarize cities in Democratic-run states has prompted an unusually united response from state leaders.`\
+https://nytimes.com/2025/08/28/us/politics/democratic-governors-trump-troops.html
+
+**Mamdani Widens Fund-Raising Lead, as Adams Is Denied Matching Funds**\
+`Zohran Mamdani, the Democratic candidate for mayor of New York City, has nearly four times more campaign funds than Andrew M. Cuomo, thought to be his closest rival.`\
+https://nytimes.com/2025/08/28/nyregion/mamdani-adams-cuomo-money.html
+
 **Casey Schmitt's small improvement could mean big things for the Giants**\
 `Schmitt has reduced the percentage of pitches out of the zone that he swings at just enough this season to dramatically improve his outlook.`\
 https://nytimes.com/athletic/6579229/2025/08/28/casey-schmitt-sf-giants-plate-discipline-improvement/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6582226/2025/08/28/champions-league-draw-usmnt-amer
 **Until Saturday: Quick guide to biggest Week 1 ever**\
 `Until Saturday is The Athletic's free CFB newsletter.`\
 https://nytimes.com/athletic/6582401/2025/08/28/college-football-week-1-best-games-until-saturday/
-
-**Trump Fires Member of Board That Approves Railroad Mergers**\
-`Robert E. Primus received an email from the White House terminating his position, but he said he would continue his duties.`\
-https://nytimes.com/2025/08/28/business/trump-robert-primus-stb-board-fired.html
-
-**Fishermen Pulled In an Orange Shark Off Costa Rica: ‘My God, What Is This?’**\
-`Scientists published a study this month on the nurse shark, which was caught and photographed by sport fishermen last year.`\
-https://nytimes.com/2025/08/28/world/americas/orange-shark-costa-rica.html
 
