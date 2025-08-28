@@ -1,3 +1,11 @@
+**Austria’s Hills Are Still Alive, 60 Years Later**\
+`In Salzburg, an anniversary of “The Sound of Music” looks grand through a child’s eyes, even if the locals are gazing elsewhere.`\
+https://nytimes.com/2025/08/28/world/europe/austria-sound-of-music.html
+
+**Connections: Sports Edition Coach: Hints for Aug. 28, 2025**\
+`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
+https://nytimes.com/athletic/6578594/2025/08/28/connections-sports-edition-hints-for-aug-28-2025/
+
 **Corrections: Aug. 28, 2025**\
 `Corrections that appeared in print on Thursday, Aug. 28, 2025.`\
 https://nytimes.com/2025/08/27/pageoneplus/corrections-aug-28-2025.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6580422/2025/08/27/luis-garcia-astros-tommy-john-re
 **Here’s the Scoop!**\
 `Joel Woodford makes his New York Times Crossword debut.`\
 https://nytimes.com/2025/08/27/crosswords/daily-puzzle-2025-08-28.html
-
-**Seahawks GM John Schneider confident in reconfigured O-line: 'Seen a lot of growth'**\
-`Meanwhile, the Seahawks cut Shaq Griffin but want him back, and Schneider provided insight into possible extensions for the 2022 class.`\
-https://nytimes.com/athletic/6580313/2025/08/27/seahawks-offensive-line-contract-negotiations-john-schneider/
-
-**'Like riding a bike': Terry McLaurin returns to Commanders' practice after contract saga**\
-`On Wednesday, McLaurin was back in his No. 17 practice jersey, catching passes from Jayden Daniels and running alongside Deebo Samuel.`\
-https://nytimes.com/athletic/6580264/2025/08/27/terry-mclaurin-commanders-contract-practice/
 

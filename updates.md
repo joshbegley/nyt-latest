@@ -1,3 +1,11 @@
+**Austria’s Hills Are Still Alive, 60 Years Later**\
+`In Salzburg, an anniversary of “The Sound of Music” looks grand through a child’s eyes, even if the locals are gazing elsewhere.`\
+https://nytimes.com/2025/08/28/world/europe/austria-sound-of-music.html
+
+**Connections: Sports Edition Coach: Hints for Aug. 28, 2025**\
+`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
+https://nytimes.com/athletic/6578594/2025/08/28/connections-sports-edition-hints-for-aug-28-2025/
+
 **Corrections: Aug. 28, 2025**\
 `Corrections that appeared in print on Thursday, Aug. 28, 2025.`\
 https://nytimes.com/2025/08/27/pageoneplus/corrections-aug-28-2025.html
