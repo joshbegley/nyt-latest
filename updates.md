@@ -1,3 +1,15 @@
+**Corrections: Aug. 28, 2025**\
+`Corrections that appeared in print on Thursday, Aug. 28, 2025.`\
+https://nytimes.com/2025/08/27/pageoneplus/corrections-aug-28-2025.html
+
+**Quote of the Day: Rampant Sexual Violence, With Little Recourse**\
+`Quotation of the Day for Thursday, August 28, 2025.`\
+https://nytimes.com/2025/08/27/pageoneplus/quote-of-the-day-rampant-sexual-violence-with-little-recourse.html
+
+**What to Know About Jimmy Lai’s Trial in Hong Kong**\
+`The media tycoon, jailed since 2020, ran a now-defunct newspaper that was critical of the government.`\
+https://nytimes.com/2025/08/27/world/asia/jimmy-lai-trial-what-to-know.html
+
 **Jimmy Lai’s Freedom May Now Hinge on Beijing and Trump**\
 `As the outspoken Hong Kong publisher awaits a verdict, his trial has become a test of China’s resolve to crush dissent, and of whether President Trump can free him.`\
 https://nytimes.com/2025/08/27/world/asia/hong-kong-jimmy-lai-trump.html
