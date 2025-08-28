@@ -1,40 +1,40 @@
+**Fantasy bullpen report featuring the emerging Abner Uribe and Andrew Saalfrank**\
+`Greg Jewett notes this week's most impactful bullpen changes for fantasy baseball, including an interim closer taking over in Milwaukee.`\
+https://nytimes.com/athletic/6581514/2025/08/28/fantasy-baseball-bullpen-report-saves-closer-uribe-walker/
+
+**‘The Wizard of Oz’ Is Getting an A.I. Glow Up. Cue the Pitchforks.**\
+`The classic film was “enhanced” using A.I. tools so that it could be an immersive experience at the Sphere in Las Vegas.`\
+https://nytimes.com/2025/08/28/business/media/sphere-wizard-of-oz-ai.html
+
+**Hundreds Gather in Lower Manhattan for ‘March on Wall Street’**\
+`The marchers, led by the Rev. Al Sharpton, protested President Trump’s crackdown on diversity, equity and inclusion policies. Zohran Mamdani, the Democratic candidate for mayor, made an appearance.`\
+https://nytimes.com/2025/08/28/nyregion/sharpton-wall-street-march-trump-dei.html
+
+**Barcelona's Champions League draw: PSG, Chelsea and Newcastle United await**\
+`Pol Ballus has analysed Barcelona's Champions League draw for the coming season`\
+https://nytimes.com/athletic/6581849/2025/08/28/barcelona-champions-league-fixtures-opponents-dates/
+
+**Clear Eyes, Cold Noodles, Can’t Lose**\
+`The coldest naengmyeon this side of Fifth Avenue, a noodle-y trip into deep Queens and matcha udon in the Village.`\
+https://nytimes.com/2025/08/28/dining/clear-eyes-cold-noodles-cant-lose.html
+
+**How to Fall in Love With Eggplant**\
+`With the right recipes, eggplant can be luxurious and easy to prepare.`\
+https://nytimes.com/2025/08/28/dining/how-to-fall-in-love-with-eggplant.html
+
+**Arsenal analysis after Champions League draw: Bayern showdown, Inter away, Atletico at home**\
+`Who will Arsenal face in the Champions League league phase? And what are their chances this season?`\
+https://nytimes.com/athletic/6581252/2025/08/28/arsenal-champions-league-fixtures-opponents-date/
+
+**Neil Young Has a New Protest Song Seemingly Aimed at Donald Trump**\
+`The new song, “Big Crime,” does not mention President Trump by name but includes lines such as, “There’s big crime in D.C. at the White House.”`\
+https://nytimes.com/2025/08/28/us/politics/neil-young-big-crime-trump.html
+
+**Ranking NFL ‘Rivalries’ alternate uniforms: How AFC East, NFC West teams stack up**\
+`The AFC East and NFC West is first up, with the rest of the league to get "Rivalries" alternate uniforms in the coming seasons. `\
+https://nytimes.com/athletic/6581773/2025/08/28/nfl-rivalries-alternate-uniforms-jets-49ers-bills-dolphins/
+
 **Scoop City: The ever-growing QB contracts**\
 `Why quarterback salaries are changing the NFL, how the Cowboys' first-year coach navigates drama and Panthers to watch.`\
 https://nytimes.com/athletic/6581893/2025/08/28/nfl-quarterback-contracts-scoop-city/
-
-**New York Needs More Millionaires, Fiscal Watchdog Says.**\
-`A report by the nonpartisan Citizens Budget Commission comes at a time when income inequality and affordability have been the most prominent themes in the race for New York City mayor.`\
-https://nytimes.com/2025/08/28/nyregion/nyc-millionaires.html
-
-**Byron Buxton sees potential for more after reaching 100 games in 2 straight seasons**\
-`With a month to go, Buxton is closing in on or has already reached several career highs.`\
-https://nytimes.com/athletic/6581704/2025/08/28/twins-byron-buxton-100-games-consecutive-seasons/
-
-**Selling a George Clooney Movie Without George Clooney at the Venice Film Festival**\
-`Castmates Adam Sandler and Laura Dern stepped in, but the star’s absence had a meta quality: his movie “Jay Kelly” is about a star putting his career on hold.`\
-https://nytimes.com/2025/08/28/movies/george-clooney-adam-sandler-venice-film-festival.html
-
-**Lions GM Brad Holmes: Blunt assessments, future contracts and Super Bowl goals**\
-`Holmes and Ray Agnew discuss cutting Hendon Hooker, keeping just 50 on the initial roster and the big-money extensions ahead.`\
-https://nytimes.com/athletic/6581571/2025/08/28/detroit-lions-brad-holmes-roster-super-bowl/
-
-**Man Utd asked Grimsby where manager's dressing room was before cup tie, says owner**\
-`"I thought that was quite amusing," Stockwood said on The Athletic FC podcast. "They clearly didn't know what they were coming into."`\
-https://nytimes.com/athletic/6581742/2025/08/28/grimsby-manchester-united-changing-room/
-
-**Michael Johnson's Grand Slam Track: $19m shortfall, unpaid athletes and a lost backer**\
-`Michael Johnson's track league was supposed to 'revolutionize' the sport. Instead, it is hanging on life support after just three meets`\
-https://nytimes.com/athletic/6577959/2025/08/28/michael-johnson-grand-slam-track-investment/
-
-**Is Jordon Hudson a ‘Gold Digger’? She Wants the Trademark.**\
-`Bill Belichick’s girlfriend has applied for numerous trademarks, including one seemingly critical of herself. Is she embracing the jokes?`\
-https://nytimes.com/2025/08/28/style/jordon-hudson-gold-digger-trademark-bill-belichick.html
-
-**College football Week 1 picks against the spread: Texas-OSU, LSU-Clemson, Notre Dame-Miami and more**\
-`Our staff picks against the spread for what could be the best Week 1 slate in college football history.`\
-https://nytimes.com/athletic/6576254/2025/08/28/college-football-picks-spread-ohio-state-texas/
-
-**Notre Dame's CJ Carr on winning QB competition: 'There's been a weight lifted off'**\
-`Head coach Marcus Freeman credited Carr’s confidence as a major factor in Carr winning the starting QB job.`\
-https://nytimes.com/athletic/6581488/2025/08/28/notre-dame-cj-carr-qb-competition/
 
