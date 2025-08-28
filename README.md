@@ -1,3 +1,11 @@
+**Rescuers Search Through Rubble After Russian Strikes on Kyiv**\
+`Emergency workers looked through the wreckage of a five-story apartment building early Thursday after a Russian missile and drone attack on Kyiv, the Ukrainian capital, killed more than a dozen people.`\
+https://nytimes.com/video/world/europe/100000010365795/rescuers-search-through-rubble-after-russian-strikes-on-kyiv.html
+
+**How training in the Algarve helped Arsenal's young hopes prepare for the season**\
+`It has been quite the summer for Kyra Cooney-Cross as she prepares for the start of the Women's Super League season`\
+https://nytimes.com/athletic/6570846/2025/08/28/arsenal-cooney-cross-lewis-skelly/
+
 **Leipzig allow Simons to travel to London amid interest from Spurs**\
 `The Netherlands international, 22, is available this summer and had previously attracted interest from both Chelsea and Bayern Munich.`\
 https://nytimes.com/athletic/6485022/2025/08/28/xavi-simons-tottenham-transfer-news/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6578446/2025/08/28/kairat-champions-league-explaine
 **NFC North preview: Packers set to ascend, while Lions and Vikings try to recapture magic**\
 `Plus, excitement over the Bears’ new coach-QB pairing in one of the NFL's toughest divisions.`\
 https://nytimes.com/athletic/6579826/2025/08/28/nfc-north-predicted-standings-win-totals/
-
-**10 things you need to know about the Big Ten before 2025 kicks off**\
-`Big Ten football enters its 130th year of competition with plenty of swagger.`\
-https://nytimes.com/athletic/6576933/2025/08/28/big-ten-football-2025-season-schedule/
-
-**AFC West preview: Can the Broncos chase down the Chiefs?**\
-`Plus, a rebuild in Vegas, while the Chargers could be derailed by a summer injury.`\
-https://nytimes.com/athletic/6578754/2025/08/28/afc-west-predicted-standings-win-totals/
 
