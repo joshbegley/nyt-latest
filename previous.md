@@ -1,3 +1,7 @@
+**Trump and Democrats Float Unusual Midterm Conventions**\
+`Both parties appear to be weighing gatherings that would gin up excitement for candidates in 2026 — and give a major platform for ambitious politicians hoping to lead the parties in 2028.`\
+https://nytimes.com/2025/08/28/us/politics/trump-democrats-midterm-conventions.html
+
 **Taylor Swift, Travis Kelce are engaged, and Sports Gossip Show listeners have questions**\
 `It was a normal Tuesday of recording before the news we’ve been waiting for since 2023 dropped. We declared an emergency (podcast).`\
 https://nytimes.com/athletic/6581593/2025/08/28/taylor-swift-travis-kelce-engaged-sports-gossip-show/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6506038/2025/08/28/patrick-bamford-leeds-exit/
 **Why tennis players apologize for net cords – the strangest piece of tennis etiquette**\
 `The net-cord apology is one of the most prominent — and strange — unwritten rules of the sport.`\
 https://nytimes.com/athletic/6581789/2025/08/28/net-cords-tennis-apology-rules-etiquette/
-
-**Liverpool Champions League draw analysis: Real Madrid, Alexander-Arnold return to Anfield**\
-`Analysing the key games and possible breakthrough player in Liverpool's 2025-26 Champions League campaign `\
-https://nytimes.com/athletic/6581296/2025/08/28/liverpool-champions-league-fixtures-opponents-dates/
 

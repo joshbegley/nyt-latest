@@ -1,3 +1,7 @@
+**Guardians release first baseman Carlos Santana**\
+`Santana has posted a .225/.316/.333 slash line in his 16th major-league season, his 11th season with Cleveland.`\
+https://nytimes.com/athletic/6582220/2025/08/28/guardians-release-carlos-santana/
+
 **Trump and Democrats Float Unusual Midterm Conventions**\
 `Both parties appear to be weighing gatherings that would gin up excitement for candidates in 2026 — and give a major platform for ambitious politicians hoping to lead the parties in 2028.`\
 https://nytimes.com/2025/08/28/us/politics/trump-democrats-midterm-conventions.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6582041/2025/08/28/chelsea-champions-league-fixture
 **Leeds announce Patrick Bamford departure**\
 `Leeds confirmed on Thursday a "mutual agreement" had been reached for his departure.`\
 https://nytimes.com/athletic/6506038/2025/08/28/patrick-bamford-leeds-exit/
-
-**Why tennis players apologize for net cords – the strangest piece of tennis etiquette**\
-`The net-cord apology is one of the most prominent — and strange — unwritten rules of the sport.`\
-https://nytimes.com/athletic/6581789/2025/08/28/net-cords-tennis-apology-rules-etiquette/
 

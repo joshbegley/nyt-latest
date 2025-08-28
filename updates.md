@@ -1,3 +1,7 @@
+**Trump and Democrats Float Unusual Midterm Conventions**\
+`Both parties appear to be weighing gatherings that would gin up excitement for candidates in 2026 — and give a major platform for ambitious politicians hoping to lead the parties in 2028.`\
+https://nytimes.com/2025/08/28/us/politics/trump-democrats-midterm-conventions.html
+
 **Taylor Swift, Travis Kelce are engaged, and Sports Gossip Show listeners have questions**\
 `It was a normal Tuesday of recording before the news we’ve been waiting for since 2023 dropped. We declared an emergency (podcast).`\
 https://nytimes.com/athletic/6581593/2025/08/28/taylor-swift-travis-kelce-engaged-sports-gossip-show/
