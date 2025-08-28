@@ -1,3 +1,5 @@
+
+
 **Johnston: What to make of Connor McDavid's latest comments about his future with the Oilers**\
 `McDavid said Wednesday that "all options are on the table" as he enters the final season of his contract with the Oilers.`\
 https://nytimes.com/athletic/6580108/2025/08/27/connor-mcdavid-oilers-contract-comments/
