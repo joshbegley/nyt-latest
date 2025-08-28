@@ -1,3 +1,15 @@
+**Russian Missile and Drone Attack Kills at Least 8 in Kyiv**\
+`The strikes on Ukraine’s capital early Thursday injured at least 22 people and left others trapped under rubble, officials said.`\
+https://nytimes.com/2025/08/28/world/europe/ukraine-russia-strikes.html
+
+**Dodger Details: Shohei Ohtani's shift in pitch usage, mapping the rotation and more**\
+`What he is doing remains unparalleled, and yet feels normal because Ohtani makes it seem so.`\
+https://nytimes.com/athletic/6580702/2025/08/28/dodgers-shohei-ohtani-shift-pitch-usage/
+
+**Ruben Amorim raises doubts over his Manchester United future after latest humiliation**\
+`"Something has to change and you’re not going to change 22 players again," said Amorim, who considered his positions at times last season`\
+https://nytimes.com/athletic/6580478/2025/08/28/ruben-amorim-job-future/
+
 **Cubs' rotation depth tested as Jameson Taillon goes to IL with groin tightness**\
 `“We have bigger goals in mind than the next two weeks,” Taillon said.`\
 https://nytimes.com/athletic/6580701/2025/08/28/jameson-taillon-injured-list-cubs-playoffs/
