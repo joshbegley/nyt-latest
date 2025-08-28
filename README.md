@@ -1,3 +1,15 @@
+**Corrections: Aug. 28, 2025**\
+`Corrections that appeared in print on Thursday, Aug. 28, 2025.`\
+https://nytimes.com/2025/08/27/pageoneplus/corrections-aug-28-2025.html
+
+**Quote of the Day: Rampant Sexual Violence, With Little Recourse**\
+`Quotation of the Day for Thursday, August 28, 2025.`\
+https://nytimes.com/2025/08/27/pageoneplus/quote-of-the-day-rampant-sexual-violence-with-little-recourse.html
+
+**What to Know About Jimmy Lai’s Trial in Hong Kong**\
+`The media tycoon, jailed since 2020, ran a now-defunct newspaper that was critical of the government.`\
+https://nytimes.com/2025/08/27/world/asia/jimmy-lai-trial-what-to-know.html
+
 **Jimmy Lai’s Freedom May Now Hinge on Beijing and Trump**\
 `As the outspoken Hong Kong publisher awaits a verdict, his trial has become a test of China’s resolve to crush dissent, and of whether President Trump can free him.`\
 https://nytimes.com/2025/08/27/world/asia/hong-kong-jimmy-lai-trump.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6580313/2025/08/27/seahawks-offensive-line-contract
 **'Like riding a bike': Terry McLaurin returns to Commanders' practice after contract saga**\
 `On Wednesday, McLaurin was back in his No. 17 practice jersey, catching passes from Jayden Daniels and running alongside Deebo Samuel.`\
 https://nytimes.com/athletic/6580264/2025/08/27/terry-mclaurin-commanders-contract-practice/
-
-**Daniil Medvedev fined $42,500 for behavior during U.S. Open match against Benjamin Bonzi**\
-`Medvedev incited the crowd to cause a six-minute delay with Bonzi serving match point up, before smashing his rackets in defeat.`\
-https://nytimes.com/athletic/6580223/2025/08/27/us-open-medvedev-fine-bonzi-umpire-serve/
-
-**Colts GM defends QB plans for Anthony Richardson, Daniel Jones; But do plans make sense?**\
-`Richardson has now been demoted to QB2 for the second time in less than a year, but Ballard maintains Indy isn't giving up on him. `\
-https://nytimes.com/athletic/6580102/2025/08/27/colts-gm-benching-anthony-richardson-daniel-jones/
-
-**Faculty acted ‘within seconds’ to shield students from bullets, the school said.**\
-`The authorities credited the quick action from school staff members, who moved students under pews, with saving lives.`\
-https://nytimes.com/live/2025/08/27/us/minneapolis-church-shooting/faculty-acted-within-seconds-to-shield-students-from-bullets-the-school-said
 

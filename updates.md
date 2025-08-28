@@ -1,3 +1,7 @@
+**Jimmy Lai’s Freedom May Now Hinge on Beijing and Trump**\
+`As the outspoken Hong Kong publisher awaits a verdict, his trial has become a test of China’s resolve to crush dissent, and of whether President Trump can free him.`\
+https://nytimes.com/2025/08/27/world/asia/hong-kong-jimmy-lai-trump.html
+
 **Lionel Messi scores twice as Miami reach Leagues Cup final**\
 `The Argentine star brought his team back from the brink of defeat in dramatic fashion.`\
 https://nytimes.com/athletic/6580567/2025/08/27/messi-inter-miami-leagues-cup-2/
