@@ -1,3 +1,7 @@
+**College football Week 1 projected scores: Model predicts every FBS vs. FBS game**\
+`Austin Mock's projection model has predicted point differentials and point totals for every FBS vs. FBS Week 1 college football game.`\
+https://nytimes.com/athletic/6582176/2025/08/28/college-football-week-1-projected-scores-texas-ohio-state/
+
 **Chelsea analysis after Champions League draw: 2012 revisited and reunions aplenty**\
 `Who will Enzo Maresca's side face on their return to the Champions League, and what are their chances of success this season?`\
 https://nytimes.com/athletic/6582041/2025/08/28/chelsea-champions-league-fixtures-opponents-dates/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6581827/2025/08/28/manchester-city-champions-league
 **Tottenham Hotspur's Champions League draw: Back to Bodo/Glimt, another PSG test**\
 `Tottenham Hotspur will face a few familiar opponents in the group stages of this season's Champions League`\
 https://nytimes.com/athletic/6581818/2025/08/28/tottenham-hotspur-champions-league-fixtures-opponents-dates/
-
-**Real Madrid's Champions League draw: Liverpool, Man City and a 3,985-mile trip to Kazakhstan**\
-`How will the 15-time European champions fare in Alonso's first season in charge?`\
-https://nytimes.com/athletic/6581572/2025/08/28/real-madrid-champions-league-fixtures-opponents-dates/
 
