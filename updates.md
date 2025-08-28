@@ -1,3 +1,7 @@
+**'Like riding a bike': Terry McLaurin returns to Commanders' practice after contract saga**\
+`On Wednesday, McLaurin was back in his No. 17 practice jersey, catching passes from Jayden Daniels and running alongside Deebo Samuel.`\
+https://nytimes.com/athletic/6580264/2025/08/27/terry-mclaurin-commanders-contract-practice/
+
 **Daniil Medvedev fined $42,500 for behavior during U.S. Open match against Benjamin Bonzi**\
 `Medvedev incited the crowd to cause a six-minute delay with Bonzi serving match point up, before smashing his rackets in defeat.`\
 https://nytimes.com/athletic/6580223/2025/08/27/us-open-medvedev-fine-bonzi-umpire-serve/
