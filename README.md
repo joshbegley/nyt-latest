@@ -1,5 +1,5 @@
 **The Public Health Disaster Everyone Saw Coming**\
-`The firing of the C.D.C. director is the latest in a serious of questionable decisions.`\
+`The firing of the C.D.C. director is the latest in a series of questionable decisions.`\
 https://nytimes.com/2025/08/28/opinion/cdc-firings-kennedy.html
 
 **Trump Signs Executive Order to Make ‘Federal Architecture Beautiful Again’**\
