@@ -1,3 +1,11 @@
+**Suns minority owners sue Mat Ishbia over internal records disagreement**\
+`The plaintiffs sought access to company records after what they claim were moves meant to hurt their leverage as minority owners.`\
+https://nytimes.com/athletic/6580730/2025/08/28/suns-mat-ishbia-lawsuit-records-minority-owners/
+
+**Colts owner Jim Irsay relapsed before death, according to investigation**\
+`The Washington Post interviewed five people with knowledge of Irsay's relapse and found he overdosed three times in the last five years.`\
+https://nytimes.com/athletic/6581250/2025/08/28/colts-owner-jim-irsay-death-addiction/
+
 **Whatever Happened to Good Summer Movies?**\
 `Our critic Wesley Morris was underwhelmed by this summer’s movies. Join him as he travels back to the glorious summer of 1990 on “Cannonball” podcast.`\
 https://nytimes.com/video/podcasts/100000010361822/best-summer-movies-cannonball.html

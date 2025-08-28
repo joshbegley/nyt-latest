@@ -2,7 +2,7 @@
 `The plaintiffs sought access to company records after what they claim were moves meant to hurt their leverage as minority owners.`\
 https://nytimes.com/athletic/6580730/2025/08/28/suns-mat-ishbia-lawsuit-records-minority-owners/
 
-**Colts owner Jim Irsay relapsed before death, according to investigation**\
+**Colts owner Jim Irsay relapsed before death, according to report**\
 `The Washington Post interviewed five people with knowledge of Irsay's relapse and found he overdosed three times in the last five years.`\
 https://nytimes.com/athletic/6581250/2025/08/28/colts-owner-jim-irsay-death-addiction/
 
