@@ -1,3 +1,15 @@
+**Climate Change Is Transforming Summer in Europe**\
+`A season of record wildfires and a wave of extreme heat is forcing Europe to confront difficult questions about how to adapt.`\
+https://nytimes.com/2025/08/28/climate/climate-change-summer-europe-heat.html
+
+**Is Bed Shopping Turning into a Consumer’s Nightmare?**\
+`Even sleep experts are exhausted by the hype.`\
+https://nytimes.com/2025/08/28/style/bed-mattress-shopping.html
+
+**Champions League draw's impact on USMNT stars' all-important season**\
+`There's a slimmer USMNT contingent taking part in the Champions League this season, but the participants' opponents are now known`\
+https://nytimes.com/athletic/6582226/2025/08/28/champions-league-draw-usmnt-americans/
+
 **Until Saturday: Quick guide to biggest Week 1 ever**\
 `Until Saturday is The Athletic's free CFB newsletter.`\
 https://nytimes.com/athletic/6582401/2025/08/28/college-football-week-1-best-games-until-saturday/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6582219/2025/08/28/davies-pochettino-world-cup-squa
 **Sacramento State to start Jaden Rashada at QB in season opener: Sources**\
 `The former Florida, Arizona State and Georgia QB has impressed Hornets coaches since arriving last Spring.`\
 https://nytimes.com/athletic/6582222/2025/08/28/sacramento-state-jaden-rashada-starter/
-
-**5 New Books We Love This Week**\
-`Reading recommendations from critics and editors at The New York Times.`\
-https://nytimes.com/2025/08/28/books/review/recommended-new-books.html
-
-**The Single Word That Explains Why Chatbots Sound So Human**\
-`It comes down to a single word, but one that speaks volumes.`\
-https://nytimes.com/2025/08/28/opinion/ai-chatbots-human-hello-hi-hey.html
-
-**Guardians release first baseman Carlos Santana**\
-`Santana has posted a .225/.316/.333 slash line in his 16th major-league season, his 11th season with Cleveland.`\
-https://nytimes.com/athletic/6582220/2025/08/28/guardians-release-carlos-santana/
 
