@@ -1,3 +1,7 @@
+**Casey Schmitt's small improvement could mean big things for the Giants**\
+`Schmitt has reduced the percentage of pitches out of the zone that he swings at just enough this season to dramatically improve his outlook.`\
+https://nytimes.com/athletic/6579229/2025/08/28/casey-schmitt-sf-giants-plate-discipline-improvement/
+
 **Again, Grief and Pleas to End Gun Violence**\
 `Readers lament the school shooting in Minnesota. Also: The Capitol Police ignored by President Trump; a possible cancer risk for runners.`\
 https://nytimes.com/2025/08/28/opinion/minn-shooting-gun-violence.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/28/business/trump-robert-primus-stb-board-fired.html
 **Fishermen Pulled In an Orange Shark Off Costa Rica: ‘My God, What Is This?’**\
 `Scientists published a study this month on the nurse shark, which was caught and photographed by sport fishermen last year.`\
 https://nytimes.com/2025/08/28/world/americas/orange-shark-costa-rica.html
-
-**Nottingham Forest agree deal with Juventus for Savona**\
-`The two clubs have been in discussions over a €15million (£12m; $17.5m) deal for the 22-year-old right back.`\
-https://nytimes.com/athletic/6582373/2025/08/28/nicolo-savona-nottingham-forest-juventus-transfer/
 

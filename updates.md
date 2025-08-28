@@ -1,3 +1,7 @@
+**Casey Schmitt's small improvement could mean big things for the Giants**\
+`Schmitt has reduced the percentage of pitches out of the zone that he swings at just enough this season to dramatically improve his outlook.`\
+https://nytimes.com/athletic/6579229/2025/08/28/casey-schmitt-sf-giants-plate-discipline-improvement/
+
 **Again, Grief and Pleas to End Gun Violence**\
 `Readers lament the school shooting in Minnesota. Also: The Capitol Police ignored by President Trump; a possible cancer risk for runners.`\
 https://nytimes.com/2025/08/28/opinion/minn-shooting-gun-violence.html
