@@ -1,3 +1,19 @@
+**Tennessee gives men's basketball coach Rick Barnes lifetime contract**\
+`Barnes, 71, is the most successful coach in Tennessee history.`\
+https://nytimes.com/athletic/6582766/2025/08/28/rick-barnes-tennessee-contract/
+
+**Joan Mellen, Whose Bobby Knight Biography Sparked Debate, Dies at 83**\
+`Some sportswriters accused her of “deifying” Indiana’s irascible basketball coach. A professor of English, she also wrote about Marilyn Monroe and the assassination of John F. Kennedy.`\
+https://nytimes.com/2025/08/28/books/joan-mellen-dead.html
+
+**Former Yankees First Baseman Mark Teixeira Says He Will Run for Congress**\
+`The three-time All-Star, who hit more than 400 home runs during his career, says he hopes to fill the seat held by Representative Chip Roy, a Republican.`\
+https://nytimes.com/2025/08/28/us/politics/mark-teixeira-congress-texas-baseball.html
+
+**The Most Inspiring Onscreen Summer Houses**\
+`Eight interior designers and architects discuss the beach cottages, country villas and lakeside retreats that inform their aesthetics.`\
+https://nytimes.com/2025/08/28/t-magazine/movies-summer-house.html
+
 **A Major Russian Attack on Kyiv**\
 `The assault, which killed at least 18 people, was the largest attack on the Ukrainian capital since President Trump met Vladimir Putin.`\
 https://nytimes.com/2025/08/28/briefing/russia-kyiv-attack-israeli-reservist.html
