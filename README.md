@@ -1,3 +1,7 @@
+**Chelsea and Milan agree €42m deal for Nkunku**\
+`The France international has been given permission to travel with personal terms already in place.`\
+https://nytimes.com/athletic/6580849/2025/08/28/chelsea-christopher-nkunku-milan-transfer/
+
 **Israel’s Exhausted Soldiers Complicate Plans for Gaza Assault**\
 `Worn down by hundreds of days of military service, fewer Israeli reservists are turning up for duty. Others are refusing to fight in a war they no longer believe in.`\
 https://nytimes.com/2025/08/28/world/middleeast/israels-exhausted-reservists-gaza.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/28/t-magazine/marie-antoinette-v-a-exhibition.html
 **The Other Victims in School Shootings: The Children Who Survive**\
 `Children who survive school shootings deal with a host of complex feelings, ranging from anxiety and grief to guilt and shame.`\
 https://nytimes.com/2025/08/28/us/minneapolis-school-shooting-victims-survivors-injuries.html
-
-**Game. Set. Cuddles.**\
-`At the U.S. Open, players’ dogs are a key part of the entourage, and they have the run of the place.`\
-https://nytimes.com/2025/08/28/style/us-open-dogs.html
 

@@ -1,3 +1,11 @@
+**Israel’s Exhausted Soldiers Complicate Plans for Gaza Assault**\
+`Worn down by hundreds of days of military service, fewer Israeli reservists are turning up for duty. Others are refusing to fight in a war they no longer believe in.`\
+https://nytimes.com/2025/08/28/world/middleeast/israels-exhausted-reservists-gaza.html
+
+**Why the tennis handshake has become a theater of controversy**\
+`The handshake is one of tennis' fundamental traditions. It is also a theatrical obfuscation of the reality of elite sport.`\
+https://nytimes.com/athletic/6580441/2025/08/28/tennis-handshake-controversy-rules-etiquette/
+
 **West Ham agree deal for Southampton midfielder Fernandes**\
 `The 21-year-old has made 46 appearances for Southampton since joining from Sporting CP in 2024. `\
 https://nytimes.com/athletic/6580895/2025/08/28/matheus-fernandes-west-ham-southampton-transfer-deal-agreed/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/08/28/us/minneapolis-school-shooting-victims-survivors-
 **Game. Set. Cuddles.**\
 `At the U.S. Open, players’ dogs are a key part of the entourage, and they have the run of the place.`\
 https://nytimes.com/2025/08/28/style/us-open-dogs.html
-
-**Your Mortgage Data Is Probably Public. Can You Hide it?**\
-`After President Trump accused a Federal Reserve governor of mortgage fraud, everyday citizens are waking up to just how much information is out there.`\
-https://nytimes.com/2025/08/28/business/mortgage-data-privacy-lisa-cook-trump.html
-
-**Nothing Could Topple the ‘Queen of Heels.’ Then Trump Came Along.**\
-`The president’s steep tariffs and erratic moves have turned manufacturing abroad into a minefield, even for entrepreneurs who set up in countries viewed as safe alternatives to China.`\
-https://nytimes.com/2025/08/28/us/politics/tariffs-luxury-shoes-brazil-trump.html
 

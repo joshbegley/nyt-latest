@@ -1,3 +1,11 @@
+**Israel’s Exhausted Soldiers Complicate Plans for Gaza Assault**\
+`Worn down by hundreds of days of military service, fewer Israeli reservists are turning up for duty. Others are refusing to fight in a war they no longer believe in.`\
+https://nytimes.com/2025/08/28/world/middleeast/israels-exhausted-reservists-gaza.html
+
+**Why the tennis handshake has become a theater of controversy**\
+`The handshake is one of tennis' fundamental traditions. It is also a theatrical obfuscation of the reality of elite sport.`\
+https://nytimes.com/athletic/6580441/2025/08/28/tennis-handshake-controversy-rules-etiquette/
+
 **West Ham agree deal for Southampton midfielder Fernandes**\
 `The 21-year-old has made 46 appearances for Southampton since joining from Sporting CP in 2024. `\
 https://nytimes.com/athletic/6580895/2025/08/28/matheus-fernandes-west-ham-southampton-transfer-deal-agreed/
