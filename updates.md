@@ -1,3 +1,19 @@
+**Outside Annunciation Catholic Church, words of remembrance and a mood of healing.**\
+`By Ann Hinga Klein`\
+https://nytimes.com/live/2025/08/28/us/minneapolis-school-shooting-minnesota/outside-annunciation-catholic-church-words-of-remembrance-and-a-mood-of-healing
+
+**Antitrust battle between NASCAR, Michael Jordan racing turns contentious**\
+`"If I have to fight this to the end for the betterment of the sport, I will do that," Jordan said on the courthouse steps. `\
+https://nytimes.com/athletic/6582791/2025/08/28/nascar-lawsuit-michael-jordan-23xi-front-row/
+
+**Jim Murray, Football Executive and Charity Founder, Dies at 87**\
+`Before helping lead the Philadelphia Eagles to the Super Bowl in 1981, he helped found the first Ronald McDonald House to help the families of seriously ill children.`\
+https://nytimes.com/2025/08/28/sports/football/jim-murray-dead.html
+
+**Mets' Ryan Helsley knows he's tipping pitches: 'I think I know how to fix it'**\
+`Helsley ran into some trouble tipping last season, particularly against the Chicago Cubs. But this time is worse.`\
+https://nytimes.com/athletic/6582799/2025/08/28/ryan-helsley-pitch-tipping-mets/
+
 **Judge Blocks Trump’s Firing of the Head of Voice of America**\
 `The ruling is a setback to President Trump and Kari Lake, a Trump ally who has led efforts to shutter federally funded news networks.`\
 https://nytimes.com/2025/08/28/us/politics/voice-of-america-trump-kari-lake.html
