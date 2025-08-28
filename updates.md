@@ -1,3 +1,15 @@
+**Oxford United 0 Brighton 6: Tzimas's debut double, new defenders shine, but fringe players left out**\
+`Andy Naylor breaks down the main talking points from Brighton's 6-0 win over Oxford United in the Carabao Cup`\
+https://nytimes.com/athletic/6576048/2025/08/28/oxford-united-0-brighton-6tzimas-gruda-boscagli/
+
+**'We only sing when we're fishing' - Celebrating Grimsby Town, the 'minnows' who sank Man Utd**\
+`"We have smaller teams in Portugal too" said Manchester United head coach Ruben Amorim in his pre-match interview. Not like mine, you don't`\
+https://nytimes.com/athletic/6580019/2025/08/28/grimsby-town-manchester-united/
+
+**Russian Missile and Drone Attack Kills at Least 10 in Kyiv**\
+`The strikes on Ukraine’s capital early Thursday injured more than 30 people and left others trapped under rubble, officials said.`\
+https://nytimes.com/2025/08/28/world/europe/ukraine-russia-strikes.html
+
 **'We only sing when we're fishing' - Celebrating Grimsby Town, the 'minnows' who sank Man Utd**\
 `"We have smaller teams in Portugal too," said Manchester United head coach Ruben Amorim in his pre-match interview. Not like this you don't`\
 https://nytimes.com/athletic/6580019/2025/08/28/grimsby-town-manchester-united/

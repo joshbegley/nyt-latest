@@ -6,12 +6,12 @@ https://nytimes.com/2025/08/28/nyregion/new-jersey-federal-court-slowdown.html
 `Feeling stuck on today’s puzzle? We can help.`\
 https://nytimes.com/2025/08/28/crosswords/spelling-bee-forum.html
 
-**Oxford United 0 Brighton 6: Tzimas's debut double, new defenders shine but fringe players left out**\
+**Oxford United 0 Brighton 6: Tzimas's debut double, new defenders shine, but fringe players left out**\
 `Andy Naylor breaks down the main talking points from Brighton's 6-0 win over Oxford United in the Carabao Cup`\
 https://nytimes.com/athletic/6576048/2025/08/28/oxford-united-0-brighton-6tzimas-gruda-boscagli/
 
 **'We only sing when we're fishing' - Celebrating Grimsby Town, the 'minnows' who sank Man Utd**\
-`"We have smaller teams in Portugal too," said Manchester United head coach Ruben Amorim in his pre-match interview. Not like this you don't`\
+`"We have smaller teams in Portugal too" said Manchester United head coach Ruben Amorim in his pre-match interview. Not like mine, you don't`\
 https://nytimes.com/athletic/6580019/2025/08/28/grimsby-town-manchester-united/
 
 **Everton 2 Mansfield 0: Grealish's good start continues, Moyes speaks on youngsters' futures**\
@@ -26,8 +26,8 @@ https://nytimes.com/2025/08/28/learning/word-of-the-day-arachnid.html
 `Local firefighting officials provided few details about the incident at Olympic National Forest. Federal officials rarely enforce immigration laws at the site of an emergency.`\
 https://nytimes.com/2025/08/28/us/border-patrol-bear-gulch-fire.html
 
-**Russian Missile and Drone Attack Kills at Least 8 in Kyiv**\
-`The strikes on Ukraine’s capital early Thursday injured at least 22 people and left others trapped under rubble, officials said.`\
+**Russian Missile and Drone Attack Kills at Least 10 in Kyiv**\
+`The strikes on Ukraine’s capital early Thursday injured more than 30 people and left others trapped under rubble, officials said.`\
 https://nytimes.com/2025/08/28/world/europe/ukraine-russia-strikes.html
 
 **Dodger Details: Shohei Ohtani's shift in pitch usage, mapping the rotation and more**\
