@@ -1,3 +1,11 @@
+**Takeaways from the Reds' West-Coast swoon**\
+`After winning the first two games of their trip in Anaheim against the Angels, the Reds dropped six of their last seven.`\
+https://nytimes.com/athletic/6580751/2025/08/28/cincinnati-reds-la-dodgers-west-coast-swoon/
+
+**From 'lost soul' to the Sabres, Michael Kesselring aims to 'make a difference'**\
+`Kesselring's story is not one of a player who had his path to the NHL clearly laid out for him.`\
+https://nytimes.com/athletic/6578735/2025/08/28/buffalo-sabres-michael-kesselring-nhl/
+
 **Texas football watch guide: Streaming info, schedule for Arch Manning's Longhorns**\
 `We've prepared a breakdown of the 2025 broadcast rotation, and this piece here is specifically formatted for Steve Sarkisian's Longhorns.`\
 https://nytimes.com/athletic/6575297/2025/08/28/texas-longhorns-football-arch-manning-how-to-watch-2025/

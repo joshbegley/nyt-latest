@@ -22,7 +22,7 @@ https://nytimes.com/athletic/6578792/2025/08/28/potential-wild-line-combos-goali
 `This is arguably the best Week 1 slate in recent memory, running Thursday to Monday. College football, we could drink a case of you.`\
 https://nytimes.com/athletic/6577212/2025/08/28/college-football-schedule-week-1-top-games/
 
-**Takeaways from the Reds' west-coast swoon**\
+**Takeaways from the Reds' West-Coast swoon**\
 `After winning the first two games of their trip in Anaheim against the Angels, the Reds dropped six of their last seven.`\
 https://nytimes.com/athletic/6580751/2025/08/28/cincinnati-reds-la-dodgers-west-coast-swoon/
 
@@ -30,7 +30,7 @@ https://nytimes.com/athletic/6580751/2025/08/28/cincinnati-reds-la-dodgers-west-
 `Matt Rhule knew he had a keeper when he met the former high school coach, who is a rising star at Nebraska.`\
 https://nytimes.com/athletic/6579791/2025/08/28/nebraska-football-jamar-mozee-kansas-city-recruiting/
 
-**From 'lost soul' to the Sabres, Michael Kesselring aims make a 'difference'**\
+**From 'lost soul' to the Sabres, Michael Kesselring aims to 'make a difference'**\
 `Kesselring's story is not one of a player who had his path to the NHL clearly laid out for him.`\
 https://nytimes.com/athletic/6578735/2025/08/28/buffalo-sabres-michael-kesselring-nhl/
 
