@@ -1,3 +1,7 @@
+**Why tennis players apologize for net cords – the strangest piece of tennis etiquette**\
+`The net-cord apology is one of the most prominent — and strange — unwritten rules of the sport.`\
+https://nytimes.com/athletic/6581789/2025/08/28/net-cords-tennis-apology-rules-etiquette/
+
 **Liverpool Champions League draw analysis: Real Madrid, Alexander-Arnold return to Anfield**\
 `Analysing the key games and possible breakthrough player in Liverpool's 2025-26 Champions League campaign `\
 https://nytimes.com/athletic/6581296/2025/08/28/liverpool-champions-league-fixtures-opponents-dates/
