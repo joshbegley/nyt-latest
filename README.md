@@ -1,3 +1,7 @@
+**Cubs rotation depth tested as Taillon goes to IL with groin tightness**\
+`“We have bigger goals in mind than the next two weeks,” Taillon said.`\
+https://nytimes.com/athletic/6580701/2025/08/28/jameson-taillon-injured-list-cubs-playoffs/
+
 **The New York Times in Print for Thursday, Aug. 28, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/08/28/todays-new-york-times
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6576803/2025/08/28/chalobah-chelsea-maresca-england
 **'To host Crystal Palace in Europe is massive - and they have all the pressure on them'**\
 `Palace have been showered with praise since arriving in Norway - but their hosts' warmth will not extend to the pitch `\
 https://nytimes.com/athletic/6572656/2025/08/28/crystal-palace-fredrikstad-conference-league/
-
-**All 36 Champions League teams: ranked and reviewed**\
-`Assessing each of the teams fighting it out in this year's competition (in an entirely subjective way)`\
-https://nytimes.com/athletic/6578769/2025/08/28/champions-league-teams-ranked/
 
