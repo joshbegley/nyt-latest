@@ -1,3 +1,11 @@
+**Former Yankees First Baseman Mark Teixeira Says He Will Run for Congress**\
+`The three-time All-Star, who hit more than 400 home runs during his career, says he hopes to fill the seat held by Representative Chip Roy, a Republican.`\
+https://nytimes.com/2025/08/28/us/politics/mark-teixeira-congress-texas-baseball.html
+
+**The Most Inspiring Onscreen Summer Houses**\
+`Eight interior designers and architects discuss the beach cottages, country villas and lakeside retreats that inform their aesthetics.`\
+https://nytimes.com/2025/08/28/t-magazine/movies-summer-house.html
+
 **A Major Russian Attack on Kyiv**\
 `The assault, which killed at least 18 people, was the largest attack on the Ukrainian capital since President Trump met Vladimir Putin.`\
 https://nytimes.com/2025/08/28/briefing/russia-kyiv-attack-israeli-reservist.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/08/28/opinion/true-love-society-culture-care.html
 **The Public Health Disaster Everyone Saw Coming**\
 `The firing of the C.D.C. director is the latest in a series of questionable decisions.`\
 https://nytimes.com/2025/08/28/opinion/cdc-firings-kennedy.html
-
-**Trump Signs Executive Order to Make ‘Federal Architecture Beautiful Again’**\
-`The order, which affects buildings like federal courthouses and agency headquarters, encourages classical styles rather than modernist aesthetics.`\
-https://nytimes.com/2025/08/28/arts/design/trump-executive-order-architecture-federal-buildings.html
-
-**Minnesota Shooting Was Met With Acts of Heroism, Big and Small**\
-`Students and staff members shielded the youngest children, police officers stopped victims’ bleeding, and a nurse abandoned protocol to hold a scared child’s hand.`\
-https://nytimes.com/2025/08/28/us/minneapolis-shooting-heroism.html
 
