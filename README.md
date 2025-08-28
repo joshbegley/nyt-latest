@@ -1,3 +1,11 @@
+**Chelsea analysis after Champions League draw: 2012 revisited and reunions aplenty**\
+`Who will Enzo Maresca's side face on their return to the Champions League, and what are their chances of success this season?`\
+https://nytimes.com/athletic/6582041/2025/08/28/chelsea-champions-league-fixtures-opponents-dates/
+
+**Leeds announce Patrick Bamford departure**\
+`Leeds confirmed on Thursday a "mutual agreement" had been reached for his departure.`\
+https://nytimes.com/athletic/6506038/2025/08/28/patrick-bamford-leeds-exit/
+
 **Why tennis players apologize for net cords – the strangest piece of tennis etiquette**\
 `The net-cord apology is one of the most prominent — and strange — unwritten rules of the sport.`\
 https://nytimes.com/athletic/6581789/2025/08/28/net-cords-tennis-apology-rules-etiquette/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6581818/2025/08/28/tottenham-hotspur-champions-leag
 **Real Madrid's Champions League draw: Liverpool, Man City and a 3,985-mile trip to Kazakhstan**\
 `How will the 15-time European champions fare in Alonso's first season in charge?`\
 https://nytimes.com/athletic/6581572/2025/08/28/real-madrid-champions-league-fixtures-opponents-dates/
-
-**F1 drivers welcome Bottas and Pérez returning — but how hard is a comeback at Cadillac?**\
-`The news that Valtteri Bottas and Sergio Pérez will return to F1 action with Cadillac has been welcomed and assessed by their driver peers`\
-https://nytimes.com/athletic/6581775/2025/08/28/cadillac-f1-reaction-valtteri-bottas-sergio-perez/
-
-**Champions League draw analysis: Our predictions, star players and surprise packages**\
-`Our experts break down the league phrase draw, selecting their ones to watch and predicting their final top eights`\
-https://nytimes.com/athletic/6581069/2025/08/28/champions-league-draw-soccer-teams-format-players/
 
