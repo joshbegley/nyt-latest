@@ -1,3 +1,7 @@
+**Colts GM defends QB plans for Anthony Richardson, Daniel Jones; But do plans make sense?**\
+`Richardson has now been demoted to QB2 for the second time in less than a year, but Ballard maintains Indy isn't giving up on him. `\
+https://nytimes.com/athletic/6580102/2025/08/27/colts-gm-benching-anthony-richardson-daniel-jones/
+
 **Seahawks GM John Schneider confident in reconfigured O-line: 'Seen a lot of growth'**\
 `Meanwhile, the Seahawks cut Shaq Griffin but want him back, and Schneider provided insight into possible extensions for the 2022 class.`\
 https://nytimes.com/athletic/6580313/2025/08/27/seahawks-offensive-line-contract-negotiations-john-schneider/
