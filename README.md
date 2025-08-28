@@ -1,3 +1,7 @@
+**Here’s the latest.**\
+`By Aimee Ortiz, Dan Simmons, Talya Minsberg, Amy Harmon and Aric Toler`\
+https://nytimes.com/live/2025/08/28/us/minneapolis-school-shooting-minnesota/heres-the-latest
+
 **I'm going to 6 games in 5 days during Week 1. Come along for the ride**\
 `By my rough count, it’s about 1,300 miles and 20 hours by car. It'll be a lot. It'll be worth it.`\
 https://nytimes.com/athletic/6581111/2025/08/28/college-football-week-1-schedule-road-trip/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6543922/2025/08/28/pittsburgh-steelers-2025-how-to-
 **Potential Wild line combos, goalie split, expectations for Danila Yurov and more: John Hynes Q&A**\
 `Hynes discussed what lines he's "toyed around with" heading into training camp, where Vladimir Tarasenko could fit and how the D stacks up.`\
 https://nytimes.com/athletic/6578792/2025/08/28/potential-wild-line-combos-goalie-split-expectations-for-danila-yurov-and-more-john-hynes-qa/
-
-**Week 1's top 10 college football games: Texas-Ohio State, LSU-Clemson headline loaded weekend**\
-`This is arguably the best Week 1 slate in recent memory, running Thursday to Monday. College football, we could drink a case of you.`\
-https://nytimes.com/athletic/6577212/2025/08/28/college-football-schedule-week-1-top-games/
 
