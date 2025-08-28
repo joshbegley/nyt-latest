@@ -1,3 +1,7 @@
+**'Like riding a bike': Terry McLaurin returns to Commanders' practice after contract saga**\
+`On Wednesday, McLaurin was back in his No. 17 practice jersey, catching passes from Jayden Daniels and running alongside Deebo Samuel.`\
+https://nytimes.com/athletic/6580264/2025/08/27/terry-mclaurin-commanders-contract-practice/
+
 **Daniil Medvedev fined $42,500 for behavior during U.S. Open match against Benjamin Bonzi**\
 `Medvedev incited the crowd to cause a six-minute delay with Bonzi serving match point up, before smashing his rackets in defeat.`\
 https://nytimes.com/athletic/6580223/2025/08/27/us-open-medvedev-fine-bonzi-umpire-serve/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/27/nyregion/nyc-food-standards-chicken-nuggets.html
 **Woman, 69, Is Killed in Midday Shootout on East Harlem Street**\
 `The woman, Robin Wright, died after being shot in the face near her apartment building on Wednesday afternoon, the police said.`\
 https://nytimes.com/2025/08/27/nyregion/harlem-nyc-shooting-woman-walker.html
-
-**Amorim says 'something has to change' after Man Utd loss at Grimsby**\
-`After an epic penalty shootout, Grimsby advanced to the third round with a 12-11 victory after misses from Cunha and Mbeumo.`\
-https://nytimes.com/athletic/6580057/2025/08/27/manchester-united-grimsby-amorim/
 
