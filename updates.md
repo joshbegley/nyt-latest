@@ -1,3 +1,7 @@
+**Leipzig allow Simons to travel to London amid interest from Spurs**\
+`The Netherlands international, 22, is available this summer and had previously attracted interest from both Chelsea and Bayern Munich.`\
+https://nytimes.com/athletic/6485022/2025/08/28/xavi-simons-tottenham-transfer-news/
+
 **A Shooting in Minnesota**\
 `We have the latest on the attack on Annunciation Catholic Church.`\
 https://nytimes.com/2025/08/28/briefing/shooting-minneapolis.html
