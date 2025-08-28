@@ -1,3 +1,11 @@
+**Oxford United 0 Brighton 6: Tzimas's debut double, new defenders shine but fringe players left out**\
+`Andy Naylor breaks down the main talking points from Brighton's 6-0 win over Oxford United in the Carabao Cup`\
+https://nytimes.com/athletic/6576048/2025/08/28/oxford-united-0-brighton-6tzimas-gruda-boscagli/
+
+**'We only sing when we're fishing,' - Celebrating Grimsby Town, the 'minnows' who sank Man Utd**\
+`"We have smaller teams in Portugal too," said Manchester United head coach Ruben Amorim in his pre-match interview. Not like this you don't`\
+https://nytimes.com/athletic/6580019/2025/08/28/grimsby-town-manchester-united/
+
 **Everton 2 Mansfield 0: Grealish's good start continues, Moyes speaks on youngsters' futures**\
 `Patrick Boyland breaks down the main talking points from Everton's 2-0 win over Mansfield Town in the Carabao Cup`\
 https://nytimes.com/athletic/6580216/2025/08/28/everton-2-mansfield-0-grealish-alcaraz-armstrong/
