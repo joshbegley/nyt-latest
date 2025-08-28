@@ -1,3 +1,11 @@
+**Chelsea analysis after Champions League draw: 2012 revisited and reunions aplenty**\
+`Who will Enzo Maresca's side face on their return to the Champions League, and what are their chances of success this season?`\
+https://nytimes.com/athletic/6582041/2025/08/28/chelsea-champions-league-fixtures-opponents-dates/
+
+**Leeds announce Patrick Bamford departure**\
+`Leeds confirmed on Thursday a "mutual agreement" had been reached for his departure.`\
+https://nytimes.com/athletic/6506038/2025/08/28/patrick-bamford-leeds-exit/
+
 **Why tennis players apologize for net cords – the strangest piece of tennis etiquette**\
 `The net-cord apology is one of the most prominent — and strange — unwritten rules of the sport.`\
 https://nytimes.com/athletic/6581789/2025/08/28/net-cords-tennis-apology-rules-etiquette/
