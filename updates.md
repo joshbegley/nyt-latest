@@ -1,3 +1,15 @@
+**Again, Grief and Pleas to End Gun Violence**\
+`Readers lament the school shooting in Minnesota. Also: The Capitol Police ignored by President Trump; a possible cancer risk for runners.`\
+https://nytimes.com/2025/08/28/opinion/minn-shooting-gun-violence.html
+
+**Glasner 'deeply hopes' Guehi plays for Palace vs Villa amid Liverpool interest**\
+`"Honestly I don't know, but I really deeply hope Marc will play for us at Villa Park," Glasner said.`\
+https://nytimes.com/athletic/6582445/2025/08/28/marc-guehi-glasner-crystal-palace-future/
+
+**8 Products That Can Bring Comfort to Life**\
+`These innovative designs promote ease in a variety of ways.`\
+https://nytimes.com/2025/08/28/style/products-comfort-design.html
+
 **Climate Change Is Transforming Summer in Europe**\
 `A season of record wildfires and a wave of extreme heat is forcing Europe to confront difficult questions about how to adapt.`\
 https://nytimes.com/2025/08/28/climate/climate-change-summer-europe-heat.html
