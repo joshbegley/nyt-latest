@@ -1,3 +1,15 @@
+**Whatever Happened to Good Summer Movies?**\
+`Our critic Wesley Morris was underwhelmed by this summer’s movies. Join him as he travels back to the glorious summer of 1990 on “Cannonball” podcast.`\
+https://nytimes.com/video/podcasts/100000010361822/best-summer-movies-cannonball.html
+
+**European Nations Move to Restart Sanctions on Iran Over Nuclear Program**\
+`Britain, France and Germany could trigger the reimposition of harsh penalties as the 2015 nuclear deal is soon to expire with nothing to replace it. More talks will follow.`\
+https://nytimes.com/2025/08/28/world/middleeast/iran-nuclear-europe-sanctions.html
+
+**Read Lisa Cook’s Lawsuit**\
+`The Fed governor is challenging her firing by President Trump.`\
+https://nytimes.com/interactive/2025/08/28/business/lisa-cook-lawsuit-trump.html
+
 **Atlanta Journal-Constitution to Quit Print Cold Turkey**\
 `The publication says the time is right to pour all of its resources into its online news operation and get its journalism “in front of the most people.”`\
 https://nytimes.com/2025/08/28/business/media/atlanta-journal-constitution-print-edition.html
