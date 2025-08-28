@@ -1,3 +1,7 @@
+**The Public Health Disaster Everyone Saw Coming**\
+`The firing of the C.D.C. director is the latest in a serious of questionable decisions.`\
+https://nytimes.com/2025/08/28/opinion/cdc-firings-kennedy.html
+
 **Trump Signs Executive Order to Make ‘Federal Architecture Beautiful Again’**\
 `The order, which affects buildings like federal courthouses and agency headquarters, encourages classical styles rather than modernist aesthetics.`\
 https://nytimes.com/2025/08/28/arts/design/trump-executive-order-architecture-federal-buildings.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6582445/2025/08/28/marc-guehi-glasner-crystal-palac
 **8 Products That Can Bring Comfort to Life**\
 `These innovative designs promote ease in a variety of ways.`\
 https://nytimes.com/2025/08/28/style/products-comfort-design.html
-
-**Climate Change Is Transforming Summer in Europe**\
-`A season of record wildfires and a wave of extreme heat is forcing Europe to confront difficult questions about how to adapt.`\
-https://nytimes.com/2025/08/28/climate/climate-change-summer-europe-heat.html
 
