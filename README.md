@@ -1,3 +1,7 @@
+**Champions League final moved three hours earlier**\
+`UEFA says the change opens up a "more accessible broadcasting window". `\
+https://nytimes.com/athletic/6580969/2025/08/28/champions-league-final-kick-off-time/
+
 **Strand Larsen tells Wolves he wants to leave amid Newcastle bids**\
 `Wolves chairman Jeff Shi has informed Strand Larsen that a move would not be possible this window.`\
 https://nytimes.com/athletic/6578990/2025/08/28/strand-larsen-newcastle-transfer-wolves/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6579878/2025/08/28/f1-dutch-grand-prix-odds-2025-ho
 **Phillies want to forget it, but after 3 brutal days in New York, the NL East race is on**\
 `After the loss, Rob Thomson urged his players not to let the sting of this sweep linger because, if they do, the consequences are real.`\
 https://nytimes.com/athletic/6580571/2025/08/28/phillies-mets-sweep-nl-east-race/
-
-**Wolves confirm Krejci signing from Girona**\
-`The defender has joined on an initial loan with option to buy, though the clubs view the deal as a permanent one.`\
-https://nytimes.com/athletic/6580962/2025/08/28/ladislav-krejci-wolves-transfer/
 
