@@ -4,7 +4,7 @@ https://nytimes.com/athletic/6582693/2025/08/28/us-open-venus-williams-leylah-fe
 
 **The Wrong Definition of Love**\
 `The goal of love is to enhance the life of another, not feel good about ourselves.`\
-https://nytimes.com/2025/08/28/opinion/the-wrong-definition-of-love.html
+https://nytimes.com/2025/08/28/opinion/true-love-society-culture-care.html
 
 **The Public Health Disaster Everyone Saw Coming**\
 `The firing of the C.D.C. director is the latest in a series of questionable decisions.`\
