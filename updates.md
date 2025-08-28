@@ -1,3 +1,7 @@
+**Azpilicueta close to joining Sevilla after Atletico Madrid exit**\
+`Azpilicueta, 36, departed Atletico Madrid in the summer following the conclusion of his contract.`\
+https://nytimes.com/athletic/6582758/2025/08/28/cesar-azpilicueta-sevilla-transfer/
+
 **Prosecutors Reduce Felony Charge Against Man Who Threw Sandwich at Federal Agent**\
 `The U.S. attorney’s office in Washington has struggled to convince judges and grand jurors of the viability of several cases arising from President Trump’s deployment of troops and federal agents to fight crime.`\
 https://nytimes.com/2025/08/28/us/politics/federal-agent-sandwich-charges-dc.html
