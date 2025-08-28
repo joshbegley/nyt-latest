@@ -1,3 +1,11 @@
+**Colts GM defends QB plans for Anthony Richardson, Daniel Jones; But do the plans make sense?**\
+`Richardson has now been demoted to QB2 for the second time in less than a year, but Chris Ballard says the Colts aren't giving up on him.`\
+https://nytimes.com/athletic/6580102/2025/08/27/colts-gm-benching-anthony-richardson-daniel-jones/
+
+**Faculty acted ‘within seconds’ to shield students from bullets, the school said.**\
+`The authorities credited the quick action from school staff members, who moved students under pews, with saving lives.`\
+https://nytimes.com/live/2025/08/27/us/minneapolis-church-shooting/faculty-acted-within-seconds-to-shield-students-from-bullets-the-school-said
+
 **Yankees takeaways: Max Fried's dominance, Anthony Volpe's slump and a Nationals sweep**\
 `It was the third time this season the Yankees had six players hit home runs in a single game — the most in MLB history.`\
 https://nytimes.com/athletic/6580231/2025/08/27/yankees-max-fried-anthony-volpe-sweep-nationals/
