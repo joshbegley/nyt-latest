@@ -1,3 +1,15 @@
+**C.D.C. Standoff: Kennedy’s Push to Fire Director Devolves Into Chaos**\
+`Lawyers for the agency’s chief, Susan Monarez, insist that the impasse with Health Secretary Robert F. Kennedy Jr. can only be resolved by President Trump.`\
+https://nytimes.com/2025/08/28/health/rfk-jr-susan-monarez-cdc-vaccines.html
+
+**ESPN replacing Doris Burke with Tim Legler on NBA Finals broadcast: Sources**\
+`ESPN is discussing a contract extension with Burke, whose contract ends after this upcoming season.`\
+https://nytimes.com/athletic/6581644/2025/08/28/doris-burke-tim-legler-nba-finals-espn-broadcast/
+
+**Havertz to undergo surgery on knee injury, not expected to miss significant time**\
+`The German forward previously missed several months earlier this year with a hamstring problem.`\
+https://nytimes.com/athletic/6570266/2025/08/28/arsenal-kai-havertz-injury-update/
+
 **A.K. Best, Master of the Art of Fly Tying, Is Dead at 92**\
 `His meticulously crafted, lifelike designs were said to have “shaped the soul of modern fly fishing.”`\
 https://nytimes.com/2025/08/28/sports/ak-best-dead.html

@@ -1,3 +1,7 @@
+**Notre Dame's CJ Carr on winning QB competition: 'There's been a weight lifted off'**\
+`Head coach Marcus Freeman credited Carr’s confidence as a major factor in Carr winning the starting QB job.`\
+https://nytimes.com/athletic/6581488/2025/08/28/notre-dame-cj-carr-qb-competition/
+
 **C.D.C. Standoff: Kennedy’s Push to Fire Director Devolves Into Chaos**\
 `Lawyers for the agency’s chief, Susan Monarez, insist that the impasse with Health Secretary Robert F. Kennedy Jr. can only be resolved by President Trump.`\
 https://nytimes.com/2025/08/28/health/rfk-jr-susan-monarez-cdc-vaccines.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/28/movies/venice-film-festival-megadoc-francis-ford-
 **gws-zach-cherry-severance-emmy-nomination**\
 `(No description)`\
 https://nytimes.com/newsgraphics/card-story/zach-cherry-severance-emmy-nomination
-
-**‘We Are All Shocked’: Warming Waters Bring a Stinging Sea Slug to Spain’s Coasts**\
-`The blue dragons, which pack a ferocious sting, have led to several beach closures. Experts say it’s a worrying sign of the warming of the Mediterranean.`\
-https://nytimes.com/2025/08/28/world/europe/spain-beach-blue-dragon-sea-slugs.html
 
