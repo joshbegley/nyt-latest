@@ -1,3 +1,7 @@
+**Daniil Medvedev fined $42,500 for behavior during U.S. Open match against Benjamin Bonzi**\
+`Medvedev incited the crowd to cause a six-minute delay with Bonzi serving match point up, before smashing his rackets in defeat.`\
+https://nytimes.com/athletic/6580223/2025/08/27/us-open-medvedev-fine-bonzi-umpire-serve/
+
 **Colts GM defends QB plans for Anthony Richardson, Daniel Jones; But do the plans make sense?**\
 `Richardson has now been demoted to QB2 for the second time in less than a year, but Chris Ballard says the Colts aren't giving up on him.`\
 https://nytimes.com/athletic/6580102/2025/08/27/colts-gm-benching-anthony-richardson-daniel-jones/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/27/nyregion/harlem-nyc-shooting-woman-walker.html
 **Amorim says 'something has to change' after Man Utd loss at Grimsby**\
 `After an epic penalty shootout, Grimsby advanced to the third round with a 12-11 victory after misses from Cunha and Mbeumo.`\
 https://nytimes.com/athletic/6580057/2025/08/27/manchester-united-grimsby-amorim/
-
-**A Casualty of Trump’s Tariffs: India’s Nascent Solar Industry**\
-`The full weight of a 50 percent tariff on Indian goods took effect this week, undercutting one of the country’s most promising markets for solar exports.`\
-https://nytimes.com/2025/08/27/climate/india-solar-panels-tariff-exports.html
 
