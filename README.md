@@ -1,3 +1,15 @@
+**Real Madrid's Champions League draw: Liverpool, Man City and a 3,985-mile trip to Kazakhstan**\
+`How will the 15-time European champions fare in Alonso's first season in charge?`\
+https://nytimes.com/athletic/6581572/2025/08/28/real-madrid-champions-league-fixtures-opponents-dates/
+
+**F1 drivers welcome Bottas and Pérez returning — but how hard is a comeback at Cadillac?**\
+`The news that Valtteri Bottas and Sergio Pérez will return to F1 action with Cadillac has been welcomed and assessed by their driver peers`\
+https://nytimes.com/athletic/6581775/2025/08/28/cadillac-f1-reaction-valtteri-bottas-sergio-perez/
+
+**Champions League draw analysis: Our predictions, star players and surprise packages**\
+`Our experts break down the league phrase draw, selecting their ones to watch and predicting their final top eights`\
+https://nytimes.com/athletic/6581069/2025/08/28/champions-league-draw-soccer-teams-format-players/
+
 **Shootings and threats add to parental anxiety as a new school year begins.**\
 `The death of two children in Minnesota, along with a string of false shooting reports at colleges, has left many parents and students on edge.`\
 https://nytimes.com/live/2025/08/28/us/minneapolis-school-shooting-minnesota/shootings-and-threats-add-to-parental-anxiety-as-a-new-school-year-begins
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6581849/2025/08/28/barcelona-champions-league-fixtu
 **Clear Eyes, Cold Noodles, Can’t Lose**\
 `The coldest naengmyeon this side of Fifth Avenue, a noodle-y trip into deep Queens and matcha udon in the Village.`\
 https://nytimes.com/2025/08/28/dining/clear-eyes-cold-noodles-cant-lose.html
-
-**How to Fall in Love With Eggplant**\
-`With the right recipes, eggplant can be luxurious and easy to prepare.`\
-https://nytimes.com/2025/08/28/dining/how-to-fall-in-love-with-eggplant.html
-
-**Arsenal analysis after Champions League draw: Bayern showdown, Inter away, Atletico at home**\
-`Who will Arsenal face in the Champions League league phase? And what are their chances this season?`\
-https://nytimes.com/athletic/6581252/2025/08/28/arsenal-champions-league-fixtures-opponents-date/
-
-**Neil Young Has a New Protest Song Seemingly Aimed at Donald Trump**\
-`The new song, “Big Crime,” does not mention President Trump by name but includes lines such as, “There’s big crime in D.C. at the White House.”`\
-https://nytimes.com/2025/08/28/us/politics/neil-young-big-crime-trump.html
 
