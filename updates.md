@@ -1,3 +1,11 @@
+**Here’s What the Judicial Crisis Gripping New Jersey Looks Like**\
+`Trials and hearings have been delayed since a federal judge ruled that Alina Habba was serving unlawfully as U.S. attorney. The uncertainty may last for months.`\
+https://nytimes.com/2025/08/28/nyregion/new-jersey-federal-court-slowdown.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/08/28/crosswords/spelling-bee-forum.html
+
 **Ruben Amorim raises doubts over his Manchester United future after latest humiliation**\
 `"Something has to change and you’re not going to change 22 players again" said the coach, who considered his positions at times last season`\
 https://nytimes.com/athletic/6580478/2025/08/28/ruben-amorim-job-future/

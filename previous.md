@@ -1,3 +1,11 @@
+**Here’s What the Judicial Crisis Gripping New Jersey Looks Like**\
+`Trials and hearings have been delayed since a federal judge ruled that Alina Habba was serving unlawfully as U.S. attorney. The uncertainty may last for months.`\
+https://nytimes.com/2025/08/28/nyregion/new-jersey-federal-court-slowdown.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/08/28/crosswords/spelling-bee-forum.html
+
 **Oxford United 0 Brighton 6: Tzimas's debut double, new defenders shine but fringe players left out**\
 `Andy Naylor breaks down the main talking points from Brighton's 6-0 win over Oxford United in the Carabao Cup`\
 https://nytimes.com/athletic/6576048/2025/08/28/oxford-united-0-brighton-6tzimas-gruda-boscagli/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6580702/2025/08/28/dodgers-shohei-ohtani-shift-pitc
 **Ruben Amorim raises doubts over his Manchester United future after latest humiliation**\
 `"Something has to change and you’re not going to change 22 players again" said the coach, who considered his positions at times last season`\
 https://nytimes.com/athletic/6580478/2025/08/28/ruben-amorim-job-future/
-
-**Cubs' rotation depth tested as Jameson Taillon goes to IL with groin tightness**\
-`“We have bigger goals in mind than the next two weeks,” Taillon said.`\
-https://nytimes.com/athletic/6580701/2025/08/28/jameson-taillon-injured-list-cubs-playoffs/
-
-**The New York Times in Print for Thursday, Aug. 28, 2025**\
-``\
-https://nytimes.com/issue/todayspaper/2025/08/28/todays-new-york-times
 
