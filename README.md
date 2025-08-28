@@ -1,3 +1,11 @@
+**Colts GM defends QB plans for Anthony Richardson, Daniel Jones; But do the plans make sense?**\
+`Richardson has now been demoted to QB2 for the second time in less than a year, but Chris Ballard says the Colts aren't giving up on him.`\
+https://nytimes.com/athletic/6580102/2025/08/27/colts-gm-benching-anthony-richardson-daniel-jones/
+
+**Faculty acted ‘within seconds’ to shield students from bullets, the school said.**\
+`The authorities credited the quick action from school staff members, who moved students under pews, with saving lives.`\
+https://nytimes.com/live/2025/08/27/us/minneapolis-church-shooting/faculty-acted-within-seconds-to-shield-students-from-bullets-the-school-said
+
 **Yankees takeaways: Max Fried's dominance, Anthony Volpe's slump and a Nationals sweep**\
 `It was the third time this season the Yankees had six players hit home runs in a single game — the most in MLB history.`\
 https://nytimes.com/athletic/6580231/2025/08/27/yankees-max-fried-anthony-volpe-sweep-nationals/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6580057/2025/08/27/manchester-united-grimsby-amorim
 **A Casualty of Trump’s Tariffs: India’s Nascent Solar Industry**\
 `The full weight of a 50 percent tariff on Indian goods took effect this week, undercutting one of the country’s most promising markets for solar exports.`\
 https://nytimes.com/2025/08/27/climate/india-solar-panels-tariff-exports.html
-
-**A Traumatized Minneapolis Confronts Another Tragedy**\
-`The shooting of children at a Roman Catholic church came after a string of violent confrontations, going back to George Floyd, that has left the Twin Cities reeling.`\
-https://nytimes.com/2025/08/27/us/minneapolis-shooting-reaction.html
-
-**In Trump’s 2nd Term, More Incarcerations, Less Talk of Reform**\
-`The president is signaling a tough-on-crime message for the midterms next year.`\
-https://nytimes.com/2025/08/27/us/politics/trump-criminal-justice.html
 
