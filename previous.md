@@ -1,3 +1,7 @@
+**Chris Froome airlifted to hospital after training crash**\
+`The 40-year-old is set to undergo surgery on Thursday afternoon after suffering a major crash in training.`\
+https://nytimes.com/athletic/6581209/2025/08/28/chris-froome-crash-training/
+
 **Man arrested in relation to racist abuse sent to England's Carter during Euros**\
 `Carter released a statement during the Euros to say she had "experienced a lot of racial abuse".`\
 https://nytimes.com/athletic/6581167/2025/08/28/jess-carter-racist-abuse-england-arrest/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6580256/2025/08/28/nba-offseason-jonathan-kuminga-f
 **Texas football watch guide: Streaming info, schedule for Arch Manning's Longhorns**\
 `We've prepared a breakdown of the 2025 broadcast rotation, and this piece here is specifically formatted for Steve Sarkisian's Longhorns.`\
 https://nytimes.com/athletic/6575297/2025/08/28/texas-longhorns-football-arch-manning-how-to-watch-2025/
-
-**Trump Administration Live Updates: White House Says New C.D.C. Director Is Fired, but She Refuses to Leave**\
-``\
-https://nytimes.com/live/2025/08/28/us/trump-news-updates
 

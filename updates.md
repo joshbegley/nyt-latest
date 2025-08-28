@@ -1,3 +1,7 @@
+**Chris Froome airlifted to hospital after training crash**\
+`The 40-year-old is set to undergo surgery on Thursday afternoon after suffering a major crash in training.`\
+https://nytimes.com/athletic/6581209/2025/08/28/chris-froome-crash-training/
+
 **Man arrested in relation to racist abuse sent to England's Carter during Euros**\
 `Carter released a statement during the Euros to say she had "experienced a lot of racial abuse".`\
 https://nytimes.com/athletic/6581167/2025/08/28/jess-carter-racist-abuse-england-arrest/
