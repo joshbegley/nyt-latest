@@ -1,4 +1,8 @@
 **Lionel Messi scores twice as Miami reach Leagues Cup final**\
+`The Argentine star brought his team back from the brink of defeat in dramatic fashion.`\
+https://nytimes.com/athletic/6580567/2025/08/27/messi-inter-miami-leagues-cup-2/
+
+**Lionel Messi scores twice as Miami reach Leagues Cup final**\
 `The Argentinean star brought his team back from the brink of defeat in dramatic fashion.`\
 https://nytimes.com/athletic/6580567/2025/08/27/messi-inter-miami-leagues-cup-2/
 
