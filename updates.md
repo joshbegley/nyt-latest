@@ -1,3 +1,19 @@
+**Mauricio Pochettino needs to stop tinkering and build a World Cup team**\
+`The USMNT head coach needs to get his first choice Europe-based players working together`\
+https://nytimes.com/athletic/6582219/2025/08/28/davies-pochettino-world-cup-squad-tinkering/
+
+**Sacramento State to start Jaden Rashada at QB in season opener: Sources**\
+`The former Florida, Arizona State and Georgia QB has impressed Hornets coaches since arriving last Spring.`\
+https://nytimes.com/athletic/6582222/2025/08/28/sacramento-state-jaden-rashada-starter/
+
+**5 New Books We Love This Week**\
+`Reading recommendations from critics and editors at The New York Times.`\
+https://nytimes.com/2025/08/28/books/review/recommended-new-books.html
+
+**The Single Word That Explains Why Chatbots Sound So Human**\
+`It comes down to a single word, but one that speaks volumes.`\
+https://nytimes.com/2025/08/28/opinion/ai-chatbots-human-hello-hi-hey.html
+
 **Guardians release first baseman Carlos Santana**\
 `Santana has posted a .225/.316/.333 slash line in his 16th major-league season, his 11th season with Cleveland.`\
 https://nytimes.com/athletic/6582220/2025/08/28/guardians-release-carlos-santana/
