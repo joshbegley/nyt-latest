@@ -10,7 +10,7 @@ https://nytimes.com/2025/08/28/crosswords/spelling-bee-forum.html
 `Andy Naylor breaks down the main talking points from Brighton's 6-0 win over Oxford United in the Carabao Cup`\
 https://nytimes.com/athletic/6576048/2025/08/28/oxford-united-0-brighton-6tzimas-gruda-boscagli/
 
-**'We only sing when we're fishing,' - Celebrating Grimsby Town, the 'minnows' who sank Man Utd**\
+**'We only sing when we're fishing' - Celebrating Grimsby Town, the 'minnows' who sank Man Utd**\
 `"We have smaller teams in Portugal too," said Manchester United head coach Ruben Amorim in his pre-match interview. Not like this you don't`\
 https://nytimes.com/athletic/6580019/2025/08/28/grimsby-town-manchester-united/
 
