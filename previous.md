@@ -1,3 +1,15 @@
+**Trump Tries to Derail Climate Progress**\
+`Also, the film festival season kicks off.`\
+https://nytimes.com/2025/08/28/briefing/trump-climate-india-tariffs-europe-defense.html
+
+**How Pape Matar Sarr became Thomas Frank's instant favourite**\
+`Joao Palhinha's arrival could have threatened Sarr's gametime. Instead, he is proving integral to Frank's plans...`\
+https://nytimes.com/athletic/6578358/2025/08/28/pape-matar-sarr-tottenham-frank/
+
+**Champions League draw: Time, format and how to watch**\
+`From when and where to how does the format work. This is everything you need to know about Thursday's UEFA Champions League draw`\
+https://nytimes.com/athletic/6576325/2025/08/28/champion-league-draw-soccer-format-teams/
+
 **FPL tips: How to invest in your defence for Gameweek 3**\
 `With injuries to the two most-owned defenders in FPL, who just happen to be premium full-backs, how should we be redistributing our funds?`\
 https://nytimes.com/athletic/6573667/2025/08/28/fantasy-premier-league-fpl-gameweek-three-tips/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6573665/2025/08/28/liverpool-newcastle-isak-stubbin
 **The Alternative Premier League Table: No 3 - Who's good at taking penalties?**\
 `This week: How all 20 Premier League clubs perform when it comes to taking penalties, and who takes them`\
 https://nytimes.com/athletic/6578508/2025/08/28/alternative-premier-league-table-penalties/
-
-**What does Piero Hincapie offer Arsenal? And do they really need him?**\
-`Arsenal look to be building a left flank to rival the variety of their right - signing Hincapie would offer further competition and options`\
-https://nytimes.com/athletic/6578783/2025/08/28/piero-hincapie-arsenal-transfers/
-
-**Austria’s Hills Are Still Alive, 60 Years Later**\
-`In Salzburg, an anniversary of “The Sound of Music” looks grand through a child’s eyes, even if the locals are gazing elsewhere.`\
-https://nytimes.com/2025/08/28/world/europe/austria-sound-of-music.html
-
-**Connections: Sports Edition Coach: Hints for Aug. 28, 2025**\
-`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
-https://nytimes.com/athletic/6578594/2025/08/28/connections-sports-edition-hints-for-aug-28-2025/
 

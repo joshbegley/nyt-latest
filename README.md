@@ -1,3 +1,7 @@
+**Kim Jong-un Will Attend Military Parade in Beijing Next Week**\
+`He will get a chance to meet the leaders of China and Russia, North Korea’s two most important allies, at a time when he is being wooed by Washington and Seoul.`\
+https://nytimes.com/2025/08/28/world/asia/kim-jong-un-military-parade-beijing.html
+
 **Trump Tries to Derail Climate Progress**\
 `Also, the film festival season kicks off.`\
 https://nytimes.com/2025/08/28/briefing/trump-climate-india-tariffs-europe-defense.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6578340/2025/08/28/dan-ndoye-nottingham-forest-inte
 **The striker who swapped Newcastle for Liverpool and ended up on a Beatles album cover**\
 `Long before Alexander Isak there was Albert Stubbins, a star striker at Newcastle who was courted and eventually prised away by Liverpool`\
 https://nytimes.com/athletic/6573665/2025/08/28/liverpool-newcastle-isak-stubbins-beatles/
-
-**The Alternative Premier League Table: No 3 - Who's good at taking penalties?**\
-`This week: How all 20 Premier League clubs perform when it comes to taking penalties, and who takes them`\
-https://nytimes.com/athletic/6578508/2025/08/28/alternative-premier-league-table-penalties/
 
