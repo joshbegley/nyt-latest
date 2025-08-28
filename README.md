@@ -6,8 +6,8 @@ https://nytimes.com/2025/08/28/nyregion/new-jersey-federal-court-slowdown.html
 `Feeling stuck on today’s puzzle? We can help.`\
 https://nytimes.com/2025/08/28/crosswords/spelling-bee-forum.html
 
-**Oxford United 0 Brighton 6: Tzimas's debut double, new defenders shine, but fringe players left out**\
-`Andy Naylor breaks down the main talking points from Brighton's 6-0 win over Oxford United in the Carabao Cup`\
+**Oxford 0 Brighton 6: Tzimas' debut double, new defenders shine, but fringe players left out**\
+`Andy Naylor breaks down the main talking points from last night's demolition of Championship side Oxford United in the Carabao Cup`\
 https://nytimes.com/athletic/6576048/2025/08/28/oxford-united-0-brighton-6tzimas-gruda-boscagli/
 
 **'We only sing when we're fishing' - Celebrating Grimsby Town, the 'minnows' who sank Man Utd**\
