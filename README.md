@@ -11,7 +11,7 @@ https://nytimes.com/2025/08/28/crosswords/spelling-bee-forum.html
 https://nytimes.com/athletic/6576048/2025/08/28/oxford-united-0-brighton-6tzimas-gruda-boscagli/
 
 **'We only sing when we're fishing' - Celebrating Grimsby Town, the 'minnows' who sank Man Utd**\
-`"We have smaller teams in Portugal too," said Manchester United head coach Ruben Amorim in his pre-match interview. Not like this you don't`\
+`"We have smaller teams in Portugal too" said Manchester United head coach Ruben Amorim in his pre-match interview. Not like mine, you don't`\
 https://nytimes.com/athletic/6580019/2025/08/28/grimsby-town-manchester-united/
 
 **Everton 2 Mansfield 0: Grealish's good start continues, Moyes speaks on youngsters' futures**\
