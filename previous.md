@@ -1,3 +1,7 @@
+**What's new in college football in 2025? Take our quiz!**\
+`Test your knowledge of coaching changes, the transfer portal the College Football Playoff and more as the 2025 season begins.`\
+https://nytimes.com/athletic/6581018/2025/08/28/college-football-quiz-transfers-coaches-2025-changes/
+
 **Here’s the latest.**\
 `By Aimee Ortiz, Dan Simmons, Talya Minsberg, Amy Harmon and Aric Toler`\
 https://nytimes.com/live/2025/08/28/us/minneapolis-school-shooting-minnesota/heres-the-latest
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/08/28/us/minneapolis-school-shooting-minnesota
 **How to watch the Pittsburgh Steelers in 2025: Schedule, streaming for Rodgers' new team**\
 `Aaron Rodgers, in the twilight of his career, is now playing for Mike Tomlin and the Pittsburgh Steelers. Here's how to watch all 17 games. `\
 https://nytimes.com/athletic/6543922/2025/08/28/pittsburgh-steelers-2025-how-to-watch-aaron-rodgers/
-
-**Potential Wild line combos, goalie split, expectations for Danila Yurov and more: John Hynes Q&A**\
-`Hynes discussed what lines he's "toyed around with" heading into training camp, where Vladimir Tarasenko could fit and how the D stacks up.`\
-https://nytimes.com/athletic/6578792/2025/08/28/potential-wild-line-combos-goalie-split-expectations-for-danila-yurov-and-more-john-hynes-qa/
 

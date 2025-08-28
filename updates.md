@@ -1,3 +1,7 @@
+**What's new in college football in 2025? Take our quiz!**\
+`Test your knowledge of coaching changes, the transfer portal the College Football Playoff and more as the 2025 season begins.`\
+https://nytimes.com/athletic/6581018/2025/08/28/college-football-quiz-transfers-coaches-2025-changes/
+
 **Here’s the latest.**\
 `By Aimee Ortiz, Dan Simmons, Talya Minsberg, Amy Harmon and Aric Toler`\
 https://nytimes.com/live/2025/08/28/us/minneapolis-school-shooting-minnesota/heres-the-latest
