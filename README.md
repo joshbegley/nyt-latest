@@ -1,3 +1,23 @@
+**Until Saturday: Quick guide to biggest Week 1 ever**\
+`Until Saturday is The Athletic's free CFB newsletter.`\
+https://nytimes.com/athletic/6582401/2025/08/28/college-football-week-1-best-games-until-saturday/
+
+**Trump Fires Member of Board That Approves Railroad Mergers**\
+`Robert E. Primus received an email from the White House terminating his position, but he said he would continue his duties.`\
+https://nytimes.com/2025/08/28/business/trump-robert-primus-stb-board-fired.html
+
+**Fishermen Pulled In an Orange Shark Off Costa Rica: ‘My God, What Is This?’**\
+`Scientists published a study this month on the nurse shark, which was caught and photographed by sport fishermen last year.`\
+https://nytimes.com/2025/08/28/world/americas/orange-shark-costa-rica.html
+
+**Nottingham Forest agree deal with Juventus for Savona**\
+`The two clubs have been in discussions over a €15million (£12m; $17.5m) deal for the 22-year-old right back.`\
+https://nytimes.com/athletic/6582373/2025/08/28/nicolo-savona-nottingham-forest-juventus-transfer/
+
+**Buried by Princess Diana, Time Capsule Brings Back the ’90s Far Too Soon**\
+`The capsule was opened early because of a construction project. It revealed a Kylie Minogue CD, a pocket television and other ephemera from its time.`\
+https://nytimes.com/2025/08/28/world/europe/princess-diana-time-capsule-opened.html
+
 **Mauricio Pochettino needs to stop tinkering and build a World Cup team**\
 `The USMNT head coach needs to get his first choice Europe-based players working together`\
 https://nytimes.com/athletic/6582219/2025/08/28/davies-pochettino-world-cup-squad-tinkering/
@@ -17,24 +37,4 @@ https://nytimes.com/2025/08/28/opinion/ai-chatbots-human-hello-hi-hey.html
 **Guardians release first baseman Carlos Santana**\
 `Santana has posted a .225/.316/.333 slash line in his 16th major-league season, his 11th season with Cleveland.`\
 https://nytimes.com/athletic/6582220/2025/08/28/guardians-release-carlos-santana/
-
-**Trump and Democrats Float Unusual Midterm Conventions**\
-`Both parties appear to be weighing gatherings that would gin up excitement for candidates in 2026 — and give a major platform for ambitious politicians hoping to lead the parties in 2028.`\
-https://nytimes.com/2025/08/28/us/politics/trump-democrats-midterm-conventions.html
-
-**Taylor Swift, Travis Kelce are engaged, and Sports Gossip Show listeners have questions**\
-`It was a normal Tuesday of recording before the news we’ve been waiting for since 2023 dropped. We declared an emergency (podcast).`\
-https://nytimes.com/athletic/6581593/2025/08/28/taylor-swift-travis-kelce-engaged-sports-gossip-show/
-
-**U.N. Votes to Withdraw Peacekeepers From Lebanon Over Next Two Years**\
-`The U.N. Security Council voted to extend the peacekeeping mission in the volatile region for only one year then withdraw in 2027.`\
-https://nytimes.com/2025/08/28/world/middleeast/unifil-lebanon-security-council.html
-
-**James E. Ferguson II, Rights Lawyer Who Defended Busing, Dies at 82**\
-`He helped litigate a landmark school desegregation case before the U.S. Supreme Court and overturn wrongful convictions of Black defendants in North Carolina.`\
-https://nytimes.com/2025/08/28/us/james-e-ferguson-ii-dead.html
-
-**Chelsea agree deal with Manchester United for signing of Garnacho**\
-`The deal consists of a £40million fixed fee and a 10 per cent sell-on clause is also included as part of the package.`\
-https://nytimes.com/athletic/6540440/2025/08/28/alejandro-garnacho-chelsea-manchester-united-transfer-latest/
 
