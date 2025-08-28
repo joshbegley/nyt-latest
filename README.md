@@ -1,4 +1,4 @@
-**Trump Signs Executive Order to ‘Make Federal Architecture Beautiful Again’**\
+**Trump Signs Executive Order to Make ‘Federal Architecture Beautiful Again’**\
 `The order, which affects buildings like federal courthouses and agency headquarters, encourages classical styles rather than modernist aesthetics.`\
 https://nytimes.com/2025/08/28/arts/design/trump-executive-order-architecture-federal-buildings.html
 
