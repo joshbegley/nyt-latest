@@ -1,3 +1,11 @@
+**Scoop City: The ever-growing QB contracts**\
+`Why quarterback salaries are changing the NFL, how the Cowboys' first-year coach navigates drama and Panthers to watch.`\
+https://nytimes.com/athletic/6581893/2025/08/28/nfl-quarterback-contracts-scoop-city/
+
+**New York Needs More Millionaires, Fiscal Watchdog Says.**\
+`A report by the nonpartisan Citizens Budget Commission comes at a time when income inequality and affordability have been the most prominent themes in the race for New York City mayor.`\
+https://nytimes.com/2025/08/28/nyregion/nyc-millionaires.html
+
 **Byron Buxton sees potential for more after reaching 100 games in 2 straight seasons**\
 `With a month to go, Buxton is closing in on or has already reached several career highs.`\
 https://nytimes.com/athletic/6581704/2025/08/28/twins-byron-buxton-100-games-consecutive-seasons/
