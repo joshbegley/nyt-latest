@@ -1,3 +1,11 @@
+**Strand Larsen tells Wolves he wants to leave amid Newcastle bids**\
+`Wolves chairman Jeff Shi has informed Strand Larsen that a move would not be possible this window.`\
+https://nytimes.com/athletic/6578990/2025/08/28/strand-larsen-newcastle-transfer-wolves/
+
+**Ravens, Kyle Hamilton were a perfect match from the start: 'He’s kind of a unicorn'**\
+`Hamilton is a star, just as Baltimore believed he would be. Making sure he remains a Raven for the foreseeable future was an easy call. `\
+https://nytimes.com/athletic/6580155/2025/08/28/ravens-kyle-hamilton-contract-extension/
+
 **The Pulse: The best NFL rookies you don’t know**\
 `The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
 https://nytimes.com/athletic/6579591/2025/08/28/nfl-rookies-egbuka-henderson-dart-the-pulse/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6580571/2025/08/28/phillies-mets-sweep-nl-east-race
 **Wolves confirm Krejci signing from Girona**\
 `The defender has joined on an initial loan with option to buy, though the clubs view the deal as a permanent one.`\
 https://nytimes.com/athletic/6580962/2025/08/28/ladislav-krejci-wolves-transfer/
-
-**Barcelona request to play first Champions League game away amid Camp Nou delay**\
-`Barca have not played at the stadium since starting a €1.5billion (£1.3bn; $1.8bn) refurbishment project in June 2023.`\
-https://nytimes.com/athletic/6580940/2025/08/28/barcelona-champions-league-game-away/
-
-**Behind the scenes of the Adam Thielen trade and why the Panthers made it**\
-`Dave Canales said it was a win for all sides. Now, the Panthers and Bryce Young need their young receivers to rise to the occasion.`\
-https://nytimes.com/athletic/6580195/2025/08/28/panthers-adam-thielen-trade-receivers/
 
