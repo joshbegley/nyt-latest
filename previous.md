@@ -1,3 +1,7 @@
+**Michael Johnson's Grand Slam Track: $19m shortfall, unpaid athletes and a lost backer**\
+`Michael Johnson's track league was supposed to 'revolutionize' the sport. Instead, it is hanging on life support after just three meets`\
+https://nytimes.com/athletic/6577959/2025/08/28/michael-johnson-grand-slam-track-investment/
+
 **Is Jordon Hudson a ‘Gold Digger’? She Wants the Trademark.**\
 `Bill Belichick’s girlfriend has applied for numerous trademarks, including one seemingly critical of herself. Is she embracing the jokes?`\
 https://nytimes.com/2025/08/28/style/jordon-hudson-gold-digger-trademark-bill-belichick.html
@@ -33,8 +37,4 @@ https://nytimes.com/newsgraphics/card-story/wc-disaster-recovery-products
 **36 Hours In Rome**\
 `(No description)`\
 https://nytimes.com/newsgraphics/card-story/things-to-do-rome
-
-**gws-dallas-cowboys-americas-team-netflix**\
-`(No description)`\
-https://nytimes.com/newsgraphics/card-story/dallas-cowboys-americas-team-netflix
 
