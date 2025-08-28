@@ -1,3 +1,11 @@
+**R.F.K. Jr.’s Firing of C.D.C Director Causes Chaos**\
+`Also, the search for a motive in Minneapolis. Here’s the latest at the end of Thursday.`\
+https://nytimes.com/2025/08/28/briefing/rfk-cdc-minneapolis.html
+
+**Milan exploring move for Man City defender Akanji**\
+`Milan are pursuing further defensive reinforcements between now and the end of the window with Akanji emerging as a candidate for the role.`\
+https://nytimes.com/athletic/6570888/2025/08/28/manuel-akanji-milan-manchester-city-transfer/
+
 **U.S. Proposes a More Lethal ‘Gang-Suppression Force’ for Haiti**\
 `More than a year after a contingent of Kenyan police arrived in Haiti, the United States is proposing to replace the force with something bigger and better financed.`\
 https://nytimes.com/2025/08/28/us/haiti-gang-suppression-force-us-un.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6582766/2025/08/28/rick-barnes-tennessee-contract/
 **Joan Mellen, Whose Bobby Knight Biography Sparked Debate, Dies at 83**\
 `Some sportswriters accused her of “deifying” Indiana’s irascible basketball coach. A professor of English, she also wrote about Marilyn Monroe and the assassination of John F. Kennedy.`\
 https://nytimes.com/2025/08/28/books/joan-mellen-dead.html
-
-**Former Yankees First Baseman Mark Teixeira Says He Will Run for Congress**\
-`The three-time All-Star, who hit more than 400 home runs during his career, says he hopes to fill the seat held by Representative Chip Roy, a Republican.`\
-https://nytimes.com/2025/08/28/us/politics/mark-teixeira-congress-texas-baseball.html
-
-**The Most Inspiring Onscreen Summer Houses**\
-`Eight interior designers and architects discuss the beach cottages, country villas and lakeside retreats that inform their aesthetics.`\
-https://nytimes.com/2025/08/28/t-magazine/movies-summer-house.html
 
