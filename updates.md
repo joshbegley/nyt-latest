@@ -1,3 +1,23 @@
+**The Pulse: The best NFL rookies you don’t know**\
+`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/6579591/2025/08/28/nfl-rookies-egbuka-henderson-dart-the-pulse/
+
+**Relics From an Ancient Egyptian ‘Party Town’ Are Pulled Out of the Sea**\
+`Remnants of a 2,000-year-old sunken city, Canopus, were lifted from waters off Alexandria, Egypt, revealing the city might have been larger than thought.`\
+https://nytimes.com/2025/08/28/world/middleeast/egypt-alexandria-sunken-city.html
+
+**Egypt Recovers Ancient Artifacts From Underwater City**\
+`As part of a major archaeological operation, Egyptian officials uncovered underwater remnants from a 2,000-year-old “party town” known as Canopus. Archaeologists believe that the city may be larger than previously thought.`\
+https://nytimes.com/video/world/middleeast/100000010364282/alexandria-egypt-ancient-city.html
+
+**As the Browns' backup QB, Dillon Gabriel knows staying ready is his No. 1 job**\
+`"It's not daunting," the third-round rookie said of his new role. "I have ultimate confidence in myself and who I am."`\
+https://nytimes.com/athletic/6580135/2025/08/28/dillon-gabriel-browns-backup-quarterback/
+
+**How Trump Could Gain Control of the Fed**\
+`President Trump’s attempt to fire Lisa Cook has laid bare the erosion of the Federal Reserve’s independence, which could lead to economic consequences for Americans, The New York Times’s chief economics correspondent explains.`\
+https://nytimes.com/video/business/economy/100000010362356/how-trump-could-gain-control-of-the-fed.html
+
 **How Trump Could Gain Control of the Fed**\
 `President Trump’s attempt to fire Lisa Cook has laid bare the erosion of the Federal Reserve’s independence, which could lead to higher inflation and less financial stability, The New York Times’s chief economics correspondent explains.`\
 https://nytimes.com/video/business/economy/100000010362356/how-trump-could-gain-control-of-the-fed.html
