@@ -1,3 +1,7 @@
+**A Shooting in Minnesota**\
+`We have the latest on the attack on Annunciation Catholic Church.`\
+https://nytimes.com/2025/08/28/briefing/shooting-minneapolis.html
+
 **TAFC: Humiliation for Manchester United and Old Firm, Champions League draw guide**\
 `Today in TAFC: Manchester United, Rangers and Celtic humiliated in space of 24 hours, Messi rescues Inter Miami, Champions League draw guide`\
 https://nytimes.com/athletic/6580998/2025/08/28/manchester-united-grimsby-old-firm-champions-league/
