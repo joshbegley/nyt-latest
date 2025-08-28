@@ -1,3 +1,15 @@
+**The Windup: Where postseason races stand with a month left**\
+`Welcome to The Windup, The Athletic's MLB newsletter.`\
+https://nytimes.com/athletic/6580782/2025/08/28/mlb-playoffs-standings-the-windup/
+
+**How to handle the Rashee Rice suspension, other big fantasy question marks**\
+`Andy Behrens offers advice on how fantasy football managers should navigate murky player situations, starting with Rice's suspension`\
+https://nytimes.com/athletic/6581361/2025/08/28/fantasy-football-rashee-rice-suspension-draft/
+
+**Colts owner Jim Irsay relapsed before death, according to report**\
+`The Washington Post interviewed five people with knowledge of Irsay's relapse and found he overdosed three times in the last five years.`\
+https://nytimes.com/athletic/6581250/2025/08/28/colts-owner-jim-irsay-death-addiction/
+
 **Suns minority owners sue Mat Ishbia over internal records disagreement**\
 `The plaintiffs sought access to company records after what they claim were moves meant to hurt their leverage as minority owners.`\
 https://nytimes.com/athletic/6580730/2025/08/28/suns-mat-ishbia-lawsuit-records-minority-owners/

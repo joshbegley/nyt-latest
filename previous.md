@@ -1,8 +1,16 @@
+**The Windup: Where postseason races stand with a month left**\
+`Welcome to The Windup, The Athletic's MLB newsletter.`\
+https://nytimes.com/athletic/6580782/2025/08/28/mlb-playoffs-standings-the-windup/
+
+**How to handle the Rashee Rice suspension, other big fantasy question marks**\
+`Andy Behrens offers advice on how fantasy football managers should navigate murky player situations, starting with Rice's suspension`\
+https://nytimes.com/athletic/6581361/2025/08/28/fantasy-football-rashee-rice-suspension-draft/
+
 **Suns minority owners sue Mat Ishbia over internal records disagreement**\
 `The plaintiffs sought access to company records after what they claim were moves meant to hurt their leverage as minority owners.`\
 https://nytimes.com/athletic/6580730/2025/08/28/suns-mat-ishbia-lawsuit-records-minority-owners/
 
-**Colts owner Jim Irsay relapsed before death, according to investigation**\
+**Colts owner Jim Irsay relapsed before death, according to report**\
 `The Washington Post interviewed five people with knowledge of Irsay's relapse and found he overdosed three times in the last five years.`\
 https://nytimes.com/athletic/6581250/2025/08/28/colts-owner-jim-irsay-death-addiction/
 
@@ -29,12 +37,4 @@ https://nytimes.com/2025/08/28/movies/sanatorium-under-the-sign-of-the-hourglass
 **Mississippi Museum Acquires Gun Linked to Emmett Till’s Murder**\
 `The Mississippi Civil Rights Museum put the gun on display days after the federal government released thousands of pages of records on the Till case.`\
 https://nytimes.com/2025/08/28/us/emmett-till-gun-museum-mississippi.html
-
-**Read Lisa Cook’s Lawsuit**\
-`The Fed governor is challenging her firing by President Trump.`\
-https://nytimes.com/interactive/2025/08/28/business/lisa-cook-lawsuit-trump.html
-
-**23XI and Front Row's future, Dodge's return, and 2026 schedule fallout: NASCAR Mailbag**\
-`What's at stake as the antitrust lawsuit rolls on, how the garage reacted to the 2026 schedule, and more of your latest questions answered.`\
-https://nytimes.com/athletic/6578661/2025/08/28/23xi-front-row-lawsuit-dodge-2026-schedule-nascar-mailbag/
 
