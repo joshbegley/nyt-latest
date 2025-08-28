@@ -1,3 +1,7 @@
+**A Gaza City Neighborhood Is Now a Wasteland, Satellite Images Show**\
+`With Israel’s expanded assault looming, Zeitoun already resembles other parts of Gaza that have been largely flattened in the war.`\
+https://nytimes.com/2025/08/28/world/middleeast/gaza-city-zeitoun-destruction.html
+
 **The Windup: Where postseason races stand with a month left**\
 `Welcome to The Windup, The Athletic's MLB newsletter.`\
 https://nytimes.com/athletic/6580782/2025/08/28/mlb-playoffs-standings-the-windup/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6581226/2025/08/28/nhl-red-light-newsletter-goalies
 **‘Sanatorium Under the Sign of the Hourglass’ Review: Dreams Out of Joint**\
 `The latest phantasmagorical feature from the Quay Brothers adapts Bruno Schulz’s enigmatic tale of a son visiting his sick father.`\
 https://nytimes.com/2025/08/28/movies/sanatorium-under-the-sign-of-the-hourglass-review.html
-
-**Mississippi Museum Acquires Gun Linked to Emmett Till’s Murder**\
-`The Mississippi Civil Rights Museum put the gun on display days after the federal government released thousands of pages of records on the Till case.`\
-https://nytimes.com/2025/08/28/us/emmett-till-gun-museum-mississippi.html
 
