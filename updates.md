@@ -1,3 +1,7 @@
+**Daniil Medvedev fined $42,500 for behavior during U.S. Open match against Benjamin Bonzi**\
+`Medvedev incited the crowd to cause a six-minute delay with Bonzi serving match point up, before smashing his rackets in defeat.`\
+https://nytimes.com/athletic/6580223/2025/08/27/us-open-medvedev-fine-bonzi-umpire-serve/
+
 **Colts GM defends QB plans for Anthony Richardson, Daniel Jones; But do the plans make sense?**\
 `Richardson has now been demoted to QB2 for the second time in less than a year, but Chris Ballard says the Colts aren't giving up on him.`\
 https://nytimes.com/athletic/6580102/2025/08/27/colts-gm-benching-anthony-richardson-daniel-jones/
