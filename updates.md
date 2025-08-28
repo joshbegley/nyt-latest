@@ -1,3 +1,15 @@
+**Selling a George Clooney Movie Without George Clooney at the Venice Film Festival**\
+`Castmates Adam Sandler and Laura Dern stepped in, but the star’s absence had a meta quality: his movie “Jay Kelly” is about a star putting his career on hold.`\
+https://nytimes.com/2025/08/28/movies/george-clooney-adam-sandler-venice-film-festival.html
+
+**Lions GM Brad Holmes: Blunt assessments, future contracts and Super Bowl goals**\
+`Holmes and Ray Agnew discuss cutting Hendon Hooker, keeping just 50 on the initial roster and the big-money extensions ahead.`\
+https://nytimes.com/athletic/6581571/2025/08/28/detroit-lions-brad-holmes-roster-super-bowl/
+
+**Man Utd asked Grimsby where manager's dressing room was before cup tie, says owner**\
+`"I thought that was quite amusing," Stockwood said on The Athletic FC podcast. "They clearly didn't know what they were coming into."`\
+https://nytimes.com/athletic/6581742/2025/08/28/grimsby-manchester-united-changing-room/
+
 **Michael Johnson's Grand Slam Track: $19m shortfall, unpaid athletes and a lost backer**\
 `Michael Johnson's track league was supposed to 'revolutionize' the sport. Instead, it is hanging on life support after just three meets`\
 https://nytimes.com/athletic/6577959/2025/08/28/michael-johnson-grand-slam-track-investment/
