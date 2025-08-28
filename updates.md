@@ -1,3 +1,7 @@
+**Feldman & Russo: What we're hearing around college football in Week 1**\
+`Offensive coordinator Ryan Grubb has reunited with Kalen DeBoer and gotten to work making Alabama's offense much more consistent.`\
+https://nytimes.com/athletic/6578890/2025/08/28/ryan-grubb-matt-campbell-danton-lynn/
+
 **Wreaking havoc in the NFL was never a dream for Abdul Carter. It was always the plan**\
 `Brimming with confidence after an "unorthodox" upbringing, Carter plans to dominate the NFL and become the Giants' next iconic pass rusher.`\
 https://nytimes.com/athletic/6566252/2025/08/28/ny-giants-abdul-carter-jersey-number/
