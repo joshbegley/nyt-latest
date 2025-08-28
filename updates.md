@@ -1,3 +1,11 @@
+**Venus Williams extends U.S. Open stay in doubles win with Leylah Fernandez**\
+`The 45-year-old and 14-time Grand Slam women's doubles champion teamed up with her Canadian partner to take out the No. 6 seeds.`\
+https://nytimes.com/athletic/6582693/2025/08/28/us-open-venus-williams-leylah-fernandez-doubles/
+
+**The Wrong Definition of Love**\
+`The goal of love is to enhance the life of another, not feel good about ourselves.`\
+https://nytimes.com/2025/08/28/opinion/true-love-society-culture-care.html
+
 **The Public Health Disaster Everyone Saw Coming**\
 `The firing of the C.D.C. director is the latest in a series of questionable decisions.`\
 https://nytimes.com/2025/08/28/opinion/cdc-firings-kennedy.html
