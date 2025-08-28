@@ -1,3 +1,7 @@
+**Everton 2 Mansfield 0: Grealish's good start continues, Moyes speaks on youngsters' futures**\
+`Patrick Boyland breaks down the main talking points from Everton's 2-0 win over Mansfield Town in the Carabao Cup`\
+https://nytimes.com/athletic/6580216/2025/08/28/everton-2-mansfield-0-grealish-alcaraz-armstrong/
+
 **Everton 2 Mansfield 2: Grealish's good start continues, Moyes speaks on youngsters' futures**\
 `Patrick Boyland breaks down the main talking points from Everton's 2-0 win over Mansfield Town in the Carabao Cup`\
 https://nytimes.com/athletic/6580216/2025/08/28/everton-2-mansfield-2-grealish-alcaraz-armstrong/
