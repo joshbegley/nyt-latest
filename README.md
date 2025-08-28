@@ -1,3 +1,11 @@
+**Is Jordon Hudson a ‘Gold Digger’? She Wants the Trademark.**\
+`Bill Belichick’s girlfriend has applied for numerous trademarks, including one seemingly critical of herself. Is she embracing the jokes?`\
+https://nytimes.com/2025/08/28/style/jordon-hudson-gold-digger-trademark-bill-belichick.html
+
+**College football Week 1 picks against the spread: Texas-OSU, LSU-Clemson, Notre Dame-Miami and more**\
+`Our staff picks against the spread for what could be the best Week 1 slate in college football history.`\
+https://nytimes.com/athletic/6576254/2025/08/28/college-football-picks-spread-ohio-state-texas/
+
 **Notre Dame's CJ Carr on winning QB competition: 'There's been a weight lifted off'**\
 `Head coach Marcus Freeman credited Carr’s confidence as a major factor in Carr winning the starting QB job.`\
 https://nytimes.com/athletic/6581488/2025/08/28/notre-dame-cj-carr-qb-competition/
@@ -29,12 +37,4 @@ https://nytimes.com/newsgraphics/card-story/things-to-do-rome
 **gws-dallas-cowboys-americas-team-netflix**\
 `(No description)`\
 https://nytimes.com/newsgraphics/card-story/dallas-cowboys-americas-team-netflix
-
-**Venice Film Festival: ‘Megalopolis’ Documentary Reveals Coppola’s Biggest Conflict**\
-`Cameras captured the director and his crew at work and at odds, as well as his fraught dynamic with cast member Shia LaBeouf.`\
-https://nytimes.com/2025/08/28/movies/venice-film-festival-megadoc-francis-ford-coppola-shia-labeouf.html
-
-**gws-zach-cherry-severance-emmy-nomination**\
-`(No description)`\
-https://nytimes.com/newsgraphics/card-story/zach-cherry-severance-emmy-nomination
 
