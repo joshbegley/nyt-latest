@@ -1,3 +1,11 @@
+**Rescuers Search Through Rubble After Russian Strikes on Kyiv**\
+`Emergency workers looked through the wreckage of a five-story apartment building early Thursday after a Russian missile and drone attack on Kyiv, the Ukrainian capital, killed more than a dozen people.`\
+https://nytimes.com/video/world/europe/100000010365795/rescuers-search-through-rubble-after-russian-strikes-on-kyiv.html
+
+**How training in the Algarve helped Arsenal's young hopes prepare for the season**\
+`It has been quite the summer for Kyra Cooney-Cross as she prepares for the start of the Women's Super League season`\
+https://nytimes.com/athletic/6570846/2025/08/28/arsenal-cooney-cross-lewis-skelly/
+
 **Leipzig allow Simons to travel to London amid interest from Spurs**\
 `The Netherlands international, 22, is available this summer and had previously attracted interest from both Chelsea and Bayern Munich.`\
 https://nytimes.com/athletic/6485022/2025/08/28/xavi-simons-tottenham-transfer-news/
