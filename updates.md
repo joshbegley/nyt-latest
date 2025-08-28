@@ -1,3 +1,7 @@
+**Kim Jong-un Will Attend Military Parade in Beijing Next Week**\
+`He will get a chance to meet the leaders of China and Russia, North Korea’s two most important allies, at a time when he is being wooed by Washington and Seoul.`\
+https://nytimes.com/2025/08/28/world/asia/kim-jong-un-military-parade-beijing.html
+
 **Trump Tries to Derail Climate Progress**\
 `Also, the film festival season kicks off.`\
 https://nytimes.com/2025/08/28/briefing/trump-climate-india-tariffs-europe-defense.html
