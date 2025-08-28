@@ -1,3 +1,7 @@
+**The Public Health Disaster Everyone Saw Coming**\
+`The firing of the C.D.C. director is the latest in a series of questionable decisions.`\
+https://nytimes.com/2025/08/28/opinion/cdc-firings-kennedy.html
+
 **Trump Signs Executive Order to Make ‘Federal Architecture Beautiful Again’**\
 `The order, which affects buildings like federal courthouses and agency headquarters, encourages classical styles rather than modernist aesthetics.`\
 https://nytimes.com/2025/08/28/arts/design/trump-executive-order-architecture-federal-buildings.html
