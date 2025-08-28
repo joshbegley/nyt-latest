@@ -1,3 +1,11 @@
+**Texas football watch guide: Streaming info, schedule for Arch Manning's Longhorns**\
+`We've prepared a breakdown of the 2025 broadcast rotation, and this piece here is specifically formatted for Steve Sarkisian's Longhorns.`\
+https://nytimes.com/athletic/6575297/2025/08/28/texas-longhorns-football-arch-manning-how-to-watch-2025/
+
+**Trump Administration Live Updates: White House Says New C.D.C. Director Is Fired, but She Refuses to Leave**\
+``\
+https://nytimes.com/live/2025/08/28/us/trump-news-updates
+
 **Live Updates: Police Seek Answers in Fatal Church Shooting**\
 `The attack left two children dead and 17 people injured. Officials were looking at the social media content of the suspect, who was also dead.`\
 https://nytimes.com/live/2025/08/28/us/minneapolis-school-shooting-minnesota
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6578735/2025/08/28/buffalo-sabres-michael-kesselrin
 **Aday Mara, Kevin Overton and other transfers who stood out in summer practices**\
 `Which transfers have looked the best for their respective teams this summer and are projected to have a strong 2025-2026 season?`\
 https://nytimes.com/athletic/6579107/2025/08/28/college-basketball-transfers-aday-mara-kevin-overton/
-
-**Rescuers Search Through Rubble After Russian Strikes on Kyiv**\
-`Emergency workers looked through the wreckage of a five-story apartment building early Thursday after a Russian missile and drone attack on Kyiv, the Ukrainian capital, killed more than a dozen people.`\
-https://nytimes.com/video/world/europe/100000010365795/rescuers-search-through-rubble-after-russian-strikes-on-kyiv.html
-
-**How training in the Algarve helped Arsenal's young hopes prepare for the season**\
-`It has been quite the summer for Kyra Cooney-Cross as she prepares for the start of the Women's Super League season`\
-https://nytimes.com/athletic/6570846/2025/08/28/arsenal-cooney-cross-lewis-skelly/
 
