@@ -1,3 +1,7 @@
+**A Shooting in Minnesota**\
+`We have the latest on the attack on Annunciation Catholic Church.`\
+https://nytimes.com/2025/08/28/briefing/shooting-minneapolis.html
+
 **TAFC: Humiliation for Manchester United and Old Firm, Champions League draw guide**\
 `Today in TAFC: Manchester United, Rangers and Celtic humiliated in space of 24 hours, Messi rescues Inter Miami, Champions League draw guide`\
 https://nytimes.com/athletic/6580998/2025/08/28/manchester-united-grimsby-old-firm-champions-league/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6578754/2025/08/28/afc-west-predicted-standings-win
 **Blackhawks rank No. 2 in NHL Pipeline Rankings for 2025**\
 `Chicago's rebuild still has some work ahead, but the Blackhawks' prospect pool is deep and full of players who can contribute.`\
 https://nytimes.com/athletic/6472052/2025/08/28/chicago-blackhawks-nhl-pipeline-rankings-2025/
-
-**Does Clemson or LSU have the real Death Valley? It’s complicated**\
-`The debate boils down to history and tradition (Clemson) against the extremes of human behavior (LSU).`\
-https://nytimes.com/athletic/6578788/2025/08/28/clemson-lsu-death-valley-college-football/
 
