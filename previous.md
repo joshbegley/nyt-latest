@@ -27,7 +27,7 @@ https://nytimes.com/2025/08/28/world/europe/ukraine-russia-strikes.html
 https://nytimes.com/athletic/6580702/2025/08/28/dodgers-shohei-ohtani-shift-pitch-usage/
 
 **Ruben Amorim raises doubts over his Manchester United future after latest humiliation**\
-`"Something has to change and you’re not going to change 22 players again," said Amorim, who considered his positions at times last season`\
+`"Something has to change and you’re not going to change 22 players again" said the coach, who considered his positions at times last season`\
 https://nytimes.com/athletic/6580478/2025/08/28/ruben-amorim-job-future/
 
 **Cubs' rotation depth tested as Jameson Taillon goes to IL with groin tightness**\

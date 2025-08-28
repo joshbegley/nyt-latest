@@ -1,3 +1,7 @@
+**Ruben Amorim raises doubts over his Manchester United future after latest humiliation**\
+`"Something has to change and you’re not going to change 22 players again" said the coach, who considered his positions at times last season`\
+https://nytimes.com/athletic/6580478/2025/08/28/ruben-amorim-job-future/
+
 **Oxford United 0 Brighton 6: Tzimas's debut double, new defenders shine but fringe players left out**\
 `Andy Naylor breaks down the main talking points from Brighton's 6-0 win over Oxford United in the Carabao Cup`\
 https://nytimes.com/athletic/6576048/2025/08/28/oxford-united-0-brighton-6tzimas-gruda-boscagli/
