@@ -8,7 +8,7 @@ https://nytimes.com/athletic/6582072/2025/08/28/andre-pallante-cardinals-rotatio
 
 **Inside the C.D.C., a Growing Sense of Despair**\
 `After six months of turmoil, the loss of the new director and a round of high-profile resignations marks a new low, some employees said.`\
-https://nytimes.com/2025/08/28/health/inside-the-cdc-a-growing-sense-of-despair.html
+https://nytimes.com/2025/08/28/health/cdc-employees-director-trump-rfk-jr.html
 
 **Current, former Cowboys react to blockbuster Micah Parsons trade**\
 `Count several of Parsons' teammates — both old and new — among those surprised by the move.`\

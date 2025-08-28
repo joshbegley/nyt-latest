@@ -1,3 +1,7 @@
+**Inside the C.D.C., a Growing Sense of Despair**\
+`After six months of turmoil, the loss of the new director and a round of high-profile resignations marks a new low, some employees said.`\
+https://nytimes.com/2025/08/28/health/cdc-employees-director-trump-rfk-jr.html
+
 **Thai Premier Could Be Third in Her Family to Be Ousted From Office**\
 `Paetongtarn Shinawatra is facing a legal challenge that’s seen as an important test of her powerful family’s standing with Thailand’s old guard.`\
 https://nytimes.com/2025/08/28/world/asia/thailand-paetongtarn-shinawatra-verdict.html
