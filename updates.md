@@ -1,3 +1,15 @@
+**Havertz to undergo surgery on knee injury, expected to only miss a number of weeks**\
+`Kai Havertz will undergo surgery on his knee issue but the Arsenal forward is expected only to miss a single-digit number of weeks as he recovers.`\
+https://nytimes.com/athletic/6570266/2025/08/28/arsenal-kai-havertz-injury-update/
+
+**Extreme Weather Survivors Share the Tools That Helped Them Get Through Disaster**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/wc-disaster-recovery-products
+
+**36 Hours In Rome**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/things-to-do-rome
+
 **gws-dallas-cowboys-americas-team-netflix**\
 `(No description)`\
 https://nytimes.com/newsgraphics/card-story/dallas-cowboys-americas-team-netflix
