@@ -1,8 +1,16 @@
+**Outside Annunciation Catholic Church, words of remembrance and a mood of healing.**\
+`By Ann Hinga Klein`\
+https://nytimes.com/live/2025/08/28/us/minneapolis-school-shooting-minnesota/outside-annunciation-catholic-church-words-of-remembrance-and-a-mood-of-healing
+
+**Antitrust battle between NASCAR, Michael Jordan racing turns contentious**\
+`"If I have to fight this to the end for the betterment of the sport, I will do that," Jordan said on the courthouse steps. `\
+https://nytimes.com/athletic/6582791/2025/08/28/nascar-lawsuit-michael-jordan-23xi-front-row/
+
 **Jim Murray, Football Executive and Charity Founder, Dies at 87**\
 `Before helping lead the Philadelphia Eagles to the Super Bowl in 1981, he helped found the first Ronald McDonald House to help the families of seriously ill children.`\
 https://nytimes.com/2025/08/28/sports/football/jim-murray-dead.html
 
-**'I've never gone through anything like this': Ryan Helsley's pitch-tipping nightmare**\
+**Mets' Ryan Helsley knows he's tipping pitches: 'I think I know how to fix it'**\
 `Helsley ran into some trouble tipping last season, particularly against the Chicago Cubs. But this time is worse.`\
 https://nytimes.com/athletic/6582799/2025/08/28/ryan-helsley-pitch-tipping-mets/
 
@@ -29,12 +37,4 @@ https://nytimes.com/2025/08/28/briefing/rfk-cdc-minneapolis.html
 **Milan exploring move for Man City defender Akanji**\
 `Milan are pursuing further defensive reinforcements between now and the end of the window with Akanji emerging as a candidate for the role.`\
 https://nytimes.com/athletic/6570888/2025/08/28/manuel-akanji-milan-manchester-city-transfer/
-
-**U.S. Proposes a More Lethal ‘Gang-Suppression Force’ for Haiti**\
-`More than a year after a contingent of Kenyan police arrived in Haiti, the United States is proposing to replace the force with something bigger and better financed.`\
-https://nytimes.com/2025/08/28/us/haiti-gang-suppression-force-us-un.html
-
-**Rangers star Corey Seager to undergo appendectomy**\
-`The five-time All-Star shortstop wasn't ruled out for the rest of this season.`\
-https://nytimes.com/athletic/6582709/2025/08/28/rangers-corey-seager-appendectomy/
 
