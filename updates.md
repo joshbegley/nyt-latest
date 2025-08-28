@@ -1,3 +1,11 @@
+**Prosecutors Reduce Felony Charge Against Man Who Threw Sandwich at Federal Agent**\
+`The U.S. attorney’s office in Washington has struggled to convince judges and grand jurors of the viability of several cases arising from President Trump’s deployment of troops and federal agents to fight crime.`\
+https://nytimes.com/2025/08/28/us/politics/federal-agent-sandwich-charges-dc.html
+
+**C.D.C. Employees Host ‘Clap-Out’ for Resigned Top Officials**\
+`Staff at the Centers for Disease Control and Prevention held a “clap-out” on Thursday to honor three of the agency’s high-ranking officials, who resigned in protest after President Trump fired the director, Susan Monarez.`\
+https://nytimes.com/video/us/politics/100000010367517/cdc-employees-host-clap-out-for-resigned-top-officials.html
+
 **R.F.K. Jr.’s Firing of C.D.C Director Causes Chaos**\
 `Also, the search for a motive in Minneapolis. Here’s the latest at the end of Thursday.`\
 https://nytimes.com/2025/08/28/briefing/rfk-cdc-minneapolis.html
