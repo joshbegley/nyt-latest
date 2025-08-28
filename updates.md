@@ -1,3 +1,7 @@
+**A Gaza City Neighborhood Is Now a Wasteland, Satellite Images Show**\
+`With Israel’s expanded assault looming, Zeitoun already resembles other parts of Gaza that have been largely flattened in the war.`\
+https://nytimes.com/2025/08/28/world/middleeast/gaza-city-zeitoun-destruction.html
+
 **The Windup: Where postseason races stand with a month left**\
 `Welcome to The Windup, The Athletic's MLB newsletter.`\
 https://nytimes.com/athletic/6580782/2025/08/28/mlb-playoffs-standings-the-windup/
