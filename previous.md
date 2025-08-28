@@ -1,3 +1,7 @@
+**Judge Blocks Trump’s Firing of the Head of Voice of America**\
+`The ruling is a setback to President Trump and Kari Lake, a Trump ally who has led efforts to shutter federally funded news networks.`\
+https://nytimes.com/2025/08/28/us/politics/voice-of-america-trump-kari-lake.html
+
 **Azpilicueta close to joining Sevilla after Atletico Madrid exit**\
 `Azpilicueta, 36, departed Atletico Madrid in the summer following the conclusion of his contract.`\
 https://nytimes.com/athletic/6582758/2025/08/28/cesar-azpilicueta-sevilla-transfer/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/28/us/catholic-church-shooting.html
 **Trump Administration Plans Immigration Crackdown in Chicago**\
 `The plans involve sending in hundreds of homeland security officers and using a naval base as a staging area.`\
 https://nytimes.com/2025/08/28/us/politics/trump-chicago-immigration-naval-base.html
-
-**Mainoo informs Manchester United of desire to leave on loan**\
-`The England international made clear his wish to depart Old Trafford on a temporary basis in order to gain consistent game time.`\
-https://nytimes.com/athletic/5781620/2025/08/28/kobbie-mainoo-manchester-united-loan/
 

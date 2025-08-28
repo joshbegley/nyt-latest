@@ -1,3 +1,7 @@
+**Judge Blocks Trump’s Firing of the Head of Voice of America**\
+`The ruling is a setback to President Trump and Kari Lake, a Trump ally who has led efforts to shutter federally funded news networks.`\
+https://nytimes.com/2025/08/28/us/politics/voice-of-america-trump-kari-lake.html
+
 **Azpilicueta close to joining Sevilla after Atletico Madrid exit**\
 `Azpilicueta, 36, departed Atletico Madrid in the summer following the conclusion of his contract.`\
 https://nytimes.com/athletic/6582758/2025/08/28/cesar-azpilicueta-sevilla-transfer/

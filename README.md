@@ -1,3 +1,11 @@
+**Jim Murray, Football Executive and Charity Founder, Dies at 87**\
+`Before helping lead the Philadelphia Eagles to the Super Bowl in 1981, he helped found the first Ronald McDonald House to help the families of seriously ill children.`\
+https://nytimes.com/2025/08/28/sports/football/jim-murray-dead.html
+
+**'I've never gone through anything like this': Ryan Helsley's pitch-tipping nightmare**\
+`Helsley ran into some trouble tipping last season, particularly against the Chicago Cubs. But this time is worse.`\
+https://nytimes.com/athletic/6582799/2025/08/28/ryan-helsley-pitch-tipping-mets/
+
 **Judge Blocks Trump’s Firing of the Head of Voice of America**\
 `The ruling is a setback to President Trump and Kari Lake, a Trump ally who has led efforts to shutter federally funded news networks.`\
 https://nytimes.com/2025/08/28/us/politics/voice-of-america-trump-kari-lake.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/08/28/us/haiti-gang-suppression-force-us-un.html
 **Rangers star Corey Seager to undergo appendectomy**\
 `The five-time All-Star shortstop wasn't ruled out for the rest of this season.`\
 https://nytimes.com/athletic/6582709/2025/08/28/rangers-corey-seager-appendectomy/
-
-**The Shattering of Wednesday Mass: Minnesota Parish Reels From Attack**\
-`Annunciation Catholic Church and School has been a neighborhood anchor in Minneapolis for more than a century.`\
-https://nytimes.com/2025/08/28/us/catholic-church-shooting.html
-
-**Trump Administration Plans Immigration Crackdown in Chicago**\
-`The plans involve sending in hundreds of homeland security officers and using a naval base as a staging area.`\
-https://nytimes.com/2025/08/28/us/politics/trump-chicago-immigration-naval-base.html
 
