@@ -1,3 +1,7 @@
+**Seahawks GM John Schneider confident in reconfigured O-line: 'Seen a lot of growth'**\
+`Meanwhile, the Seahawks cut Shaq Griffin but want him back, and Schneider provided insight into possible extensions for the 2022 class.`\
+https://nytimes.com/athletic/6580313/2025/08/27/seahawks-offensive-line-contract-negotiations-john-schneider/
+
 **'Like riding a bike': Terry McLaurin returns to Commanders' practice after contract saga**\
 `On Wednesday, McLaurin was back in his No. 17 practice jersey, catching passes from Jayden Daniels and running alongside Deebo Samuel.`\
 https://nytimes.com/athletic/6580264/2025/08/27/terry-mclaurin-commanders-contract-practice/

@@ -1,3 +1,7 @@
+**Seahawks GM John Schneider confident in reconfigured O-line: 'Seen a lot of growth'**\
+`Meanwhile, the Seahawks cut Shaq Griffin but want him back, and Schneider provided insight into possible extensions for the 2022 class.`\
+https://nytimes.com/athletic/6580313/2025/08/27/seahawks-offensive-line-contract-negotiations-john-schneider/
+
 **'Like riding a bike': Terry McLaurin returns to Commanders' practice after contract saga**\
 `On Wednesday, McLaurin was back in his No. 17 practice jersey, catching passes from Jayden Daniels and running alongside Deebo Samuel.`\
 https://nytimes.com/athletic/6580264/2025/08/27/terry-mclaurin-commanders-contract-practice/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6580141/2025/08/27/townsend-ostapenko-us-open-confr
 **New N.Y.C. Food Standards Could Spell Doom for Chicken Nuggets**\
 `The standards prohibit processed meat and limit the use of artificial sweeteners in meals served by nearly a dozen city agencies, including the Department of Education.`\
 https://nytimes.com/2025/08/27/nyregion/nyc-food-standards-chicken-nuggets.html
-
-**Woman, 69, Is Killed in Midday Shootout on East Harlem Street**\
-`The woman, Robin Wright, died after being shot in the face near her apartment building on Wednesday afternoon, the police said.`\
-https://nytimes.com/2025/08/27/nyregion/harlem-nyc-shooting-woman-walker.html
 
