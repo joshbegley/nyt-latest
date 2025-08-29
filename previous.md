@@ -1,3 +1,7 @@
+**Salmon Burgers and Kimbap; Nectarine Tart and Summer Berry Buckle**\
+`I’m back from the road, and I want to cook.`\
+https://nytimes.com/2025/08/29/dining/salmon-burgers-and-kimbap-nectarine-tart-and-summer-berry-buckle.html
+
 **International Student Enrollments Stay Steady at Columbia and Princeton**\
 `But Black student enrollment is lower at the two universities after years of turmoil in elite higher education.`\
 https://nytimes.com/2025/08/29/us/international-students-race-affirmative-action-princeton-columbia.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/29/world/middleeast/israel-hostages-remains-recovere
 **The Poetry of Gestures**\
 `Our hands are how we express ourselves to the world around us.`\
 https://nytimes.com/paidpost/bottega-veneta/the-poetry-of-gestures.html
-
-**Aston Villa's Onana to miss Belgium qualifiers with hamstring injury**\
-`The Athletic was informed by multiple sources on Wednesday that he suffered the injury during training.`\
-https://nytimes.com/athletic/6584104/2025/08/29/aston-villa-amadou-onana-hamstring-injury-belgium/
 

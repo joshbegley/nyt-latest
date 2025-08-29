@@ -1,3 +1,7 @@
+**Salmon Burgers and Kimbap; Nectarine Tart and Summer Berry Buckle**\
+`I’m back from the road, and I want to cook.`\
+https://nytimes.com/2025/08/29/dining/salmon-burgers-and-kimbap-nectarine-tart-and-summer-berry-buckle.html
+
 **International Student Enrollments Stay Steady at Columbia and Princeton**\
 `But Black student enrollment is lower at the two universities after years of turmoil in elite higher education.`\
 https://nytimes.com/2025/08/29/us/international-students-race-affirmative-action-princeton-columbia.html
