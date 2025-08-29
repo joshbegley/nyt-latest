@@ -1,3 +1,11 @@
+**Saka out 'for a few weeks' but does not require surgery - Arteta**\
+`Saka was replaced by Leandro Trossard in Arsenal's 5-0 win over Leeds after appearing to sustain a left hamstring injury.`\
+https://nytimes.com/athletic/6571497/2025/08/29/bukayo-sako-injury-update-arsenal-odegaard/
+
+**Amorim: ‘Sometimes I’m going to say I hate my players. I’m going to be who I am’**\
+`"Sometimes I love my players," Amorim added, speaking ahead of Manchester United's home game against Burnley on Saturday.`\
+https://nytimes.com/athletic/6583974/2025/08/29/manchester-united-ruben-amorim-players/
+
 **Fed’s Preferred Inflation Gauge Stayed Stable in July**\
 `The latest economic data keeps the central bank on track to lower interest rates at its next meeting in September.`\
 https://nytimes.com/2025/08/29/business/pce-inflation-fed.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6560541/2025/08/29/college-football-playoff-bracket
 **Father of Child Killed in Minnesota Shooting Gives Emotional Eulogy**\
 `Fletcher Merkel, 8, was one of two children fatally shot on Wednesday at a back-to-school Mass at Annunciation Catholic Church. Fifteen other children and three adults were injured in the attack.`\
 https://nytimes.com/video/us/100000010368343/minnesota-victim-father-eulogy-.html
-
-**Vote in The Bounce's latest poll here!**\
-`Welcome to the polling page for The Bounce, The Athletic's free NBA newsletter.`\
-https://nytimes.com/athletic/6582455/2025/08/29/bounce-newsletter-poll-vote/
-
-**College football is still worth cherishing, despite all the junk surrounding it**\
-`College football no longer prioritizes the hardcore fans. The more you love this sport, the less you matter. In this way, we are cursed.`\
-https://nytimes.com/athletic/6579732/2025/08/29/college-football-fans-2025-season/
 

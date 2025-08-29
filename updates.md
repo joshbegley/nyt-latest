@@ -1,3 +1,7 @@
+**Fed’s Preferred Inflation Gauge Stayed Stable in July**\
+`The latest economic data keeps the central bank on track to lower interest rates at its next meeting in September.`\
+https://nytimes.com/2025/08/29/business/pce-inflation-fed.html
+
 **Jacksonville Jaguars 2025 streaming guide: How to watch Travis Hunter and Trevor Lawrence**\
 `The Jacksonville Jaguars arrive this season in the delicate middle ground between promise and permanence.`\
 https://nytimes.com/athletic/6581660/2025/08/29/jacksonville-jaguars-travis-hunter-how-to-watch-2025/
