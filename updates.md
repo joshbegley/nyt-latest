@@ -1,3 +1,7 @@
+**Man United agree deal with Napoli for Hojlund loan with €44m obligation**\
+`But Hojlund, is still to agree to the move. He has expressed his desire to stay at United but has been left out of three matchday squads.`\
+https://nytimes.com/athletic/6545070/2025/08/29/rasmus-hojlund-transfer-man-utd-napoli/
+
 **Sleeker, Comfier, a Tiny Bit Faster: Riding Amtrak’s New Acela**\
 `The NextGen high-speed trains feel more like those in China, Japan or France. But topping out at 160 m.p.h., they’re still relatively slow.`\
 https://nytimes.com/2025/08/29/travel/amtrak-acela-train-launch.html

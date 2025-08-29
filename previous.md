@@ -1,3 +1,7 @@
+**Man United agree deal with Napoli for Hojlund loan with €44m obligation**\
+`But Hojlund, is still to agree to the move. He has expressed his desire to stay at United but has been left out of three matchday squads.`\
+https://nytimes.com/athletic/6545070/2025/08/29/rasmus-hojlund-transfer-man-utd-napoli/
+
 **Sleeker, Comfier, a Tiny Bit Faster: Riding Amtrak’s New Acela**\
 `The NextGen high-speed trains feel more like those in China, Japan or France. But topping out at 160 m.p.h., they’re still relatively slow.`\
 https://nytimes.com/2025/08/29/travel/amtrak-acela-train-launch.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6584565/2025/08/29/dynasty-league-football-winers-l
 **Challenge Emerges to Two Trump-Appointed Prosecutors**\
 `The federal public defender's office challenged the legality of allowing the U.S. attorneys in Los Angeles and Las Vegas to continue in their jobs without congressional approval.`\
 https://nytimes.com/2025/08/29/us/us-attorney-los-angeles-nevada-challenge.html
-
-**Transportation Dept. Cancels $679 Million for Offshore Wind Projects**\
-`The Trump administration’s campaign against wind power continued as it targeted funding for marine terminals and ports to support development of the industry.`\
-https://nytimes.com/2025/08/29/climate/transportation-dept-cancels-679-million-wind-industry.html
 
