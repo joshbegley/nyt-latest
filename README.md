@@ -1,3 +1,7 @@
+**Britain Bans Israeli Government from a Leading Arms Trade Fair**\
+`The British government said it was acting in response to Israel’s escalating military operation in Gaza. Israel condemned the decision.`\
+https://nytimes.com/2025/08/29/world/europe/uk-israel-military-trade-fair.html
+
 **U.K. Court Overturns Ruling on Hotel at Center of Asylum Seeker Debate**\
 `The decision was a temporary reprieve for the government but will intensify a political battle over how Britain should house tens of thousands of asylum seekers.`\
 https://nytimes.com/2025/08/29/world/europe/uk-asylum-hotel-ruling-epping.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6584009/2025/08/29/liverpool-defender-kostas-tsimik
 **Palace set to sign Toulouse defender Jaydee Canvot**\
 `The clubs have agreed in principle an upfront fee of €23m with €3.5m in add-ons, with Toulouse maintaining a 15 per cent sell-on clause.`\
 https://nytimes.com/athletic/6534333/2025/08/29/jaydee-canvot-crystal-palace-transfer/
-
-**Live Q&A: Preview college football Week 1 with Scott Dochterman at 10:30 a.m. ET Saturday**\
-`Come chat about Ohio State-Texas, Clemson-LSU and all things college football ahead of kickoff Saturday.`\
-https://nytimes.com/athletic/6581885/2025/08/29/college-football-pregame-live-qa-week-1/
 
