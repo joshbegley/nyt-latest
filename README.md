@@ -1,3 +1,19 @@
+**For Democrats, Hindsight Is 2021**\
+`Democrats once had a chance to blunt a couple of the moves President Trump is making now, on redistricting and the takeover of the police force in Washington, D.C.`\
+https://nytimes.com/2025/08/29/us/politics/trump-democrats-dc-takeover-redistricting.html
+
+**Appeals Court Upholds Protections for Venezuelans, but to Little Effect**\
+`The decision affirmed a lower court’s ruling from March, but was overshadowed by a Supreme Court order that allowed the Trump administration to pursue deportations anyway.`\
+https://nytimes.com/2025/08/29/us/politics/appeals-court-protected-status-venezuelans.html
+
+**Bookie for Shohei Ohtani's ex-interpreter gets 1-year prison sentence**\
+`Bowyer must pay $1.6 million in restitution after running an illegal gambling business. Shohei Ohtani’s ex-interpreter was a client.`\
+https://nytimes.com/athletic/6584726/2025/08/29/mathew-bowyer-bookmaker-shohei-ohtani-interpreter/
+
+**Appeals Court: Many Trump Tariffs Are Illegal**\
+`Also, Hurricane Katrina’s legacy. Here’s the latest at the end of Friday.`\
+https://nytimes.com/2025/08/29/briefing/tariffs-recission-katrina.html
+
 **Forest close to signing Botafogo goalkeeper Victor**\
 `The Premier League club are pushing to sign 29-year-old Victor to bolster their goalkeeper options.`\
 https://nytimes.com/athletic/6585003/2025/08/29/nottingham-forest-transfer-news-john-victor/
@@ -17,20 +33,4 @@ https://nytimes.com/athletic/6584945/2025/08/29/micah-parsons-trade-cowboys-scho
 **Will the C.D.C. Survive?**\
 `Robert F. Kennedy Jr.’s assault may have dealt lasting damage to the agency, experts fear, with harsh consequences for public health.`\
 https://nytimes.com/2025/08/29/health/cdc-kennedy-public-health.html
-
-**Appeals Court Rules Against Many Trump Tariffs**\
-`The decision is a big blow to President Trump’s trade policies, but the judges left the duties in place for now to allow time for a likely appeal to the Supreme Court.`\
-https://nytimes.com/2025/08/29/business/economy/trump-tariffs-appeals-court.html
-
-**Liverpool's Robertson replaces Alexander-Arnold as new vice-captain**\
-`The long-serving left-back takes over from Trent Alexander-Arnold, who left the club to join Real Madrid at the end of last season`\
-https://nytimes.com/athletic/6584949/2025/08/29/liverpool-news-robertson-vice-captain/
-
-**Who Is the New Acting C.D.C. Director?**\
-`The selection of Jim O’Neill, a former Silicon Valley executive, drew objections from Democrats, who noted his lack of medical or scientific training.`\
-https://nytimes.com/2025/08/29/health/human-health-vaccines-oneill.html
-
-**Strangers Come Together to Deliver Baby Girl at Burning Man**\
-`A woman unexpectedly went into labor at the desert festival. Within minutes, a neonatal nurse, an OB-GYN, a pediatric doctor and other attendees filled her camper.`\
-https://nytimes.com/2025/08/29/us/burning-man-baby.html
 
