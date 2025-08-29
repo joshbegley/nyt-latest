@@ -1,40 +1,40 @@
-**Forest's Anderson set for first England call-up**\
-`The 22-year-old represented Scotland and England at youth level but has not yet featured for either senior side.`\
-https://nytimes.com/athletic/6578699/2025/08/29/england-squad-elliot-anderson/
+**Even after influx of new tackles, Falcons expected to start a familiar face in Week 1**\
+`Veteran Elijah Wilkinson is the front-runner to take over Kaleb McGary's starting job at right tackle when the Falcons open the season.`\
+https://nytimes.com/athletic/6582489/2025/08/29/falcons-elijah-wilkinson-right-tackle-week-1/
 
-**Protesters and Police Clash in Indonesia**\
-`Police officers in riot gear fired tear gas and charged protesters, some of whom had been throwing rocks.`\
-https://nytimes.com/video/world/asia/100000010368269/indonesia-protests-inflation.html
+**This Summer, a Hostile Reception for Many Israelis Abroad**\
+`Against the backdrop of the devastating war and hunger crisis in Gaza, Israeli travelers have been harassed and accosted in Europe, sometimes just for speaking Hebrew.`\
+https://nytimes.com/2025/08/29/world/middleeast/israelis-travel-abroad-harrassment.html
 
-**Jose Mourinho leaves Fenerbahce after one year as head coach**\
-`Mourinho's exit comes days after the club missed out on a spot in the Champions League league phase after a playoff defeat to Benfica.`\
-https://nytimes.com/athletic/6583609/2025/08/29/jose-mourinho-leaves-fenerbahce/
+**How the Future of the Fed Came to Rest on Lisa Cook**\
+`President Trump’s effort to oust the Federal Reserve governor has kicked off a landmark legal battle, one that will have far-reaching consequences for the institution’s independence.`\
+https://nytimes.com/2025/08/29/us/politics/trump-fed-independence-lisa-cook.html
 
-**It’s the End of ‘Big City.’ New York Will Be Fine.**\
-`The weekly column that focused on inequality in the city ran for 14 years, from Occupy Wall Street to Zohran Mamdani. Now it comes to a close.`\
-https://nytimes.com/2025/08/29/nyregion/big-city-nyc-inequality.html
+**How to Rekindle Your Love of Reading**\
+`Americans are reading for pleasure less. Let’s get back in the habit.`\
+https://nytimes.com/2025/08/29/well/reading-tips-habit.html
 
-**N.Y.C. Covid Cases Appear to Be Rising. So Are Inquiries on Vaccines.**\
-`Patients are flooding medical practices with reports of the telltale signs of Covid and questions about whether they will be able to get vaccinated.`\
-https://nytimes.com/2025/08/29/nyregion/covid-cases-rising-new-york.html
+**What I Told My Sunday School Students About Death**\
+`We drag around our brokenness in the same container as our holiness.`\
+https://nytimes.com/2025/08/29/opinion/minneapolis-school-shooting.html
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2025/08/29/crosswords/spelling-bee-forum.html
+**Alec and Hilaria Baldwin on 8 Children, 1 Lil’ Pig and Lots of Rice-A-Roni**\
+`The actor and yoga instructor thought about selling their home in the Hamptons, but they can’t let go of the home that has become a family sanctuary.`\
+https://nytimes.com/interactive/2025/08/29/realestate/alec-hilaria-baldwin-amagansett-home.html
 
-**Students Call for More Protests in Indonesia After Deadly Clash With Police**\
-`Rising unemployment and inflation have driven the protests in Jakarta, the capital. The police responded with force on Thursday, killing a 21-year-old man.`\
-https://nytimes.com/2025/08/29/world/asia/indonesia-protests-inflation.html
+**6 Smart Comedy Specials for Labor Day Weekend**\
+`Ali Siddiq, Beth Stelling and Vir Das are among the stand-ups delivering engaging sets that are worth your time.`\
+https://nytimes.com/2025/08/29/arts/television/comedy-specials-labor-day-weekend.html
 
-**Palace are through – now come the realities of European football**\
-`Oliver Glasner's team did what they had to do in Norway - now he needs backing with new arrivals if his squad are to flourish this season`\
-https://nytimes.com/athletic/6579328/2025/08/29/crystal-palace-europe-conference-league-glasner-guehi/
+**3 Delightful Games for Labor Day Weekend**\
+`Want serenity now? Embrace your inner shepherd, bookseller or horticulturist.`\
+https://nytimes.com/2025/08/29/arts/tiny-bookshop-herdling-review.html
 
-**FPL live Q&A: Gameweek Three advice from Ben Dinnery**\
-`Ben Dinnery will be on hand today to talk you through the players to target, who to avoid, and the injury doubts you need to be aware of`\
-https://nytimes.com/athletic/6582884/2025/08/29/fantasy-premier-league-live-qa-gameweek-three-advice-from-ben-dinnery/
+**Three Great Documentaries to Stream**\
+`This month’s picks look at organ donors, twins conversing in their own language and California wildfires.`\
+https://nytimes.com/2025/08/29/movies/great-documentaries-streaming.html
 
-**Tottenham set to complete €60m signing of Leipzig’s Simons**\
-`Personal terms are also in place and Simons has completed a medical ahead of finalising the proposed transfer to the north London side.`\
-https://nytimes.com/athletic/6581114/2025/08/29/xavi-simons-tottenham-transfer/
+**2 Weeks, 1,000 Arrests: How a Surge of Feds Changed D.C. Policing**\
+`Crime has fallen since federal agents started policing the streets of Washington in large numbers. Court records show that they have been involved in about a third of arrests that resulted in prosecution, many of them for minor offenses.`\
+https://nytimes.com/2025/08/29/us/federal-crackdown-washington-dc-arrest-data.html
 
