@@ -1,3 +1,15 @@
+**Sept. 29: Blue Origin could launch twin NASA satellites to Mars.**\
+`By Michael Roston`\
+https://nytimes.com/explain/2025/science/astronomy-space-calendar-events/sept-29-blue-origin-could-launch-twin-nasa-satellites-to-mars
+
+**Oklahoma State QB Hauss Hejny out a month with broken foot: Source**\
+`Hejny got injured late in the first quarter of the Cowboys' 27-7 season-opening win over UT-Martin Thursday night. Zane Flores replaced him.`\
+https://nytimes.com/athletic/6584442/2025/08/29/oklahoma-state-qb-hauss-hejny-expected-to-miss-a-month-with-broken-foot-source/
+
+**My Game In My Words: 5 USMNT wildcards to watch**\
+`Mauricio Pochettino's selection policy has given hope to a group of emerging hopefuls.`\
+https://nytimes.com/athletic/6582126/2025/08/29/usmnt-my-game-my-words-luna-berhalter-banks-zendejas-klinsmann/
+
 **Patriots cut Jabrill Peppers, veteran safety and former captain**\
 `In a huge surprise just ahead of the season opener, New England is releasing the 29-year-old Peppers, a stalwart of their defense.`\
 https://nytimes.com/athletic/6584428/2025/08/29/patriots-cut-jabrill-peppers/
@@ -21,20 +33,4 @@ https://nytimes.com/athletic/6584161/2025/08/29/nebraska-cincinnati-season-openi
 **Abbott Signs Gerrymandered Map as Texas G.O.P. Moves Further Right**\
 `After a bruising political fight, Gov. Greg Abbott signed into law a new congressional map. But the Republican-led Legislature, newly emboldened, has not stopped there.`\
 https://nytimes.com/2025/08/29/us/politics/abbott-texas-legislature-redistricting-map.html
-
-**Alabama Man Once Barred From Office by Rivals Is Elected Mayor**\
-`Patrick Braxton won the first mayoral election in a half century in the small town of Newbern, five years after its leaders put up roadblocks to his assuming office.`\
-https://nytimes.com/2025/08/29/us/politics/newbern-alabama-mayor-patrick-braxton.html
-
-**In Budget Logs It Tried to Hide, White House Wrests More Control Over Spending**\
-`Deep within obscure footnotes, the Trump administration is claiming more of Congress’s constitutional power of the purse by threatening to block funding.`\
-https://nytimes.com/2025/08/29/upshot/trump-congress-federal-budget.html
-
-**Mitch Marner opens up about threats, security concerns while with Leafs**\
-`After Toronto's second-round playoff exit in May, Marner was targeted by fans on social media and had his family's address posted online.`\
-https://nytimes.com/athletic/6584302/2025/08/29/mitch-marner-maple-leafs-golden-knights-threats/
-
-**Goals, assists and marketability: What Xavi Simons will bring to Spurs**\
-`Simons will add depth and a sprinkling of magic to unlock every type of team - it is a statement signing for Spurs and Frank `\
-https://nytimes.com/athletic/6584149/2025/08/29/xavi-simons-tottenham-transfer-leipzig/
 

@@ -1,3 +1,15 @@
+**Sept. 29: Blue Origin could launch twin NASA satellites to Mars.**\
+`By Michael Roston`\
+https://nytimes.com/explain/2025/science/astronomy-space-calendar-events/sept-29-blue-origin-could-launch-twin-nasa-satellites-to-mars
+
+**Oklahoma State QB Hauss Hejny out a month with broken foot: Source**\
+`Hejny got injured late in the first quarter of the Cowboys' 27-7 season-opening win over UT-Martin Thursday night. Zane Flores replaced him.`\
+https://nytimes.com/athletic/6584442/2025/08/29/oklahoma-state-qb-hauss-hejny-expected-to-miss-a-month-with-broken-foot-source/
+
+**My Game In My Words: 5 USMNT wildcards to watch**\
+`Mauricio Pochettino's selection policy has given hope to a group of emerging hopefuls.`\
+https://nytimes.com/athletic/6582126/2025/08/29/usmnt-my-game-my-words-luna-berhalter-banks-zendejas-klinsmann/
+
 **Patriots cut Jabrill Peppers, veteran safety and former captain**\
 `In a huge surprise just ahead of the season opener, New England is releasing the 29-year-old Peppers, a stalwart of their defense.`\
 https://nytimes.com/athletic/6584428/2025/08/29/patriots-cut-jabrill-peppers/
