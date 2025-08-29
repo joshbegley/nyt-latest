@@ -1,3 +1,7 @@
+**Rodion Shchedrin, Composer Who Captured Russia’s Soul, Dies at 92**\
+`Mr. Shchedrin drew on Russian literature for stage works and was an eager experimenter, inspired by folk tales, religious mysticism and melodrama.`\
+https://nytimes.com/2025/08/29/obituaries/rodion-shchedrin-dead.html
+
 **Nick Woltemade, secret talks and the night Newcastle decided to go for it**\
 `Newcastle have finally made their move for a striker. This is the story of how their approach for Woltemade accelerated this week`\
 https://nytimes.com/athletic/6582169/2025/08/29/nick-woltemade-newcastle-transfers/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/29/us/politics/appeals-court-trump-foreign-aid.html
 **Russia’s Deadly Attack on Kyiv**\
 `Also, the secret of “KPop Demon Hunters.”`\
 https://nytimes.com/2025/08/29/briefing/ukraine-russia-kyiv-gaza-reservists-europe-iran-sanctions.html
-
-**Liverpool have defensive issues. This is where they must improve**\
-`Konate's form, Kerkez's aerial weakness and being exposed on transitions are all problem areas for Arne Slot’s side`\
-https://nytimes.com/athletic/6581380/2025/08/29/liverpool-have-defensive-issues-this-is-where-they-must-improve/
 
