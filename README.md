@@ -1,3 +1,7 @@
+**Fed’s Preferred Inflation Gauge Stayed Stable in July**\
+`The latest economic data keeps the central bank on track to lower interest rates at its next meeting in September.`\
+https://nytimes.com/2025/08/29/business/pce-inflation-fed.html
+
 **Jacksonville Jaguars 2025 streaming guide: How to watch Travis Hunter and Trevor Lawrence**\
 `The Jacksonville Jaguars arrive this season in the delicate middle ground between promise and permanence.`\
 https://nytimes.com/athletic/6581660/2025/08/29/jacksonville-jaguars-travis-hunter-how-to-watch-2025/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6582455/2025/08/29/bounce-newsletter-poll-vote/
 **College football is still worth cherishing, despite all the junk surrounding it**\
 `College football no longer prioritizes the hardcore fans. The more you love this sport, the less you matter. In this way, we are cursed.`\
 https://nytimes.com/athletic/6579732/2025/08/29/college-football-fans-2025-season/
-
-**Eagles superlatives: Potential MVP, breakout players, regression candidate and more**\
-`Who will stand out as the Eagles look to win another Super Bowl this season?`\
-https://nytimes.com/athletic/6582864/2025/08/29/philadelphia-eagles-potential-mvp-breakout-players-regression-candidate/
 
