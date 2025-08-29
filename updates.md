@@ -1,3 +1,7 @@
+**Rodion Shchedrin, Composer Who Captured Russia’s Soul, Dies at 92**\
+`Mr. Shchedrin drew on Russian literature for stage works and was an eager experimenter, inspired by folk tales, religious mysticism and melodrama.`\
+https://nytimes.com/2025/08/29/obituaries/rodion-shchedrin-dead.html
+
 **Nick Woltemade, secret talks and the night Newcastle decided to go for it**\
 `Newcastle have finally made their move for a striker. This is the story of how their approach for Woltemade accelerated this week`\
 https://nytimes.com/athletic/6582169/2025/08/29/nick-woltemade-newcastle-transfers/
