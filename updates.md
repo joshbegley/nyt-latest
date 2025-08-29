@@ -1,3 +1,11 @@
+**3 Workers at Rikers Are Suspended After Another Man Dies in Custody**\
+`The death of the 29-year-old, who was found in his cell after midnight, is the latest of several at the Rikers Island jail complex in New York.`\
+https://nytimes.com/2025/08/29/nyregion/rikers-death-ardit-billa.html
+
+**Margaret W. Rossiter, 81, Dies; Wrote Women Scientists Into History**\
+`In her groundbreaking trilogy, “Women Scientists in America,” she told the stories of numerous accomplished but largely invisible women.`\
+https://nytimes.com/2025/08/29/science/margaret-w-rossiter-dead.html
+
 **Blue Jays’ Yimi García to undergo season-ending surgery. How will they fill his role?**\
 `Toronto will need to add another reliever, with Braydon Fisher possibly being an option to increase the team's bullpen depth.`\
 https://nytimes.com/athletic/6584778/2025/08/29/blue-jays-yimi-garcia-injury-bullpen/
