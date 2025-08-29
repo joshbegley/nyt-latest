@@ -1,3 +1,7 @@
+**Pediatric Brain Cancer Trial Group to Be Phased Out**\
+`A network of hospitals and cancer centers dedicated to early phase trials of novel treatments will no longer receive federal funding.`\
+https://nytimes.com/2025/08/28/well/pediatric-brain-cancer-trial-group.html
+
 **Must-watch: Phillies' Kyle Schwarber tallies four home runs, nine RBIs**\
 `It is the 21st four-homer game in MLB history, and the fourth in Phillies history. `\
 https://nytimes.com/athletic/6583230/2025/08/28/phillies-kyle-schwarber-four-homer-game/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/28/world/asia/thailand-politics-crisis.html
 **Jerry Jones' stubborn missteps led the Cowboys into this Micah Parsons trainwreck**\
 `Jones just got rid of one of the league's best players because of the owner's lack of urgency and miscalculations.`\
 https://nytimes.com/athletic/6582829/2025/08/28/jerry-jones-micah-parsons-trade/
-
-**Schneidman: Packers become legit Super Bowl threat after trading for Micah Parsons**\
-`The Packers traded two first-round picks and defensive tackle Kenny Clark to the Cowboys for Micah Parsons on Thursday.`\
-https://nytimes.com/athletic/6583077/2025/08/28/green-bay-packers-micah-parsons-trade-dallas-cowboys/
 

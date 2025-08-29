@@ -1,3 +1,11 @@
+**Must-watch: Phillies' Kyle Schwarber tallies four home runs, nine RBIs**\
+`It is the 21st four-homer game in MLB history, and the fourth in Phillies history. `\
+https://nytimes.com/athletic/6583230/2025/08/28/phillies-kyle-schwarber-four-homer-game/
+
+**Trump Officials Threaten to Pull Funding From Denver Public Schools**\
+`The department gave Denver Public Schools 10 days to ban transgender students from using bathrooms that align with their gender identity.`\
+https://nytimes.com/2025/08/28/us/politics/trump-denver-schools-transgender-bathrooms.html
+
 **Coco Gauff beats Donna Vekić on a surreal, tearful night at the U.S. Open**\
 `Gauff managed her way to a 7-6(5), 6-2 win.`\
 https://nytimes.com/athletic/6583164/2025/08/28/us-open-coco-gauff-donna-vekic-serves/
