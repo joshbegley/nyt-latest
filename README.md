@@ -1,3 +1,7 @@
+**There's been progress for Braves under hitting coach Tim Hyers, but enough to keep him?**\
+`"It takes a little while, but I think now we're starting to kind of get on the same page," Hyers said.`\
+https://nytimes.com/athletic/6583330/2025/08/28/braves-hitting-coach-tim-hyers-progress/
+
 **Michael Vick takes first college coaching loss as Towson beats Norfolk State 27-7**\
 `The Spartans never led, had too many costly mistakes and ultimately got in their own way too often.`\
 https://nytimes.com/athletic/6583349/2025/08/28/michael-vick-norfolk-towson/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/28/well/pediatric-brain-cancer-trial-group.html
 **Schwarbombs galore: Kyle Schwarber makes Phillies, MLB history with 4 homers, 9 RBIs**\
 `It is the 21st four-homer game in MLB history, and the fourth in Phillies history. `\
 https://nytimes.com/athletic/6583230/2025/08/28/phillies-kyle-schwarber-four-homer-game/
-
-**Trump Officials Threaten to Pull Funding From Denver Public Schools**\
-`The Education Department gave Denver Public Schools 10 days to ban transgender students from using bathrooms that align with their gender identity.`\
-https://nytimes.com/2025/08/28/us/politics/trump-denver-schools-transgender-bathrooms.html
 
