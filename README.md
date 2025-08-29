@@ -1,3 +1,7 @@
+**Woltemade unlikely to feature for Newcastle at Leeds but Schar available**\
+`Woltemade is on Tyneside after Newcastle agreed a €75million (£65m; $87.6m) deal, plus €5m (£4.3m; $5.8m) in potential add-ons.`\
+https://nytimes.com/athletic/6583657/2025/08/29/newcastle-team-news-woltermade-transfer/
+
 **The New York Times International Edition in Print for Saturday, Aug. 30, 2025**\
 ``\
 https://nytimes.com/issue/todaysinyt/2025/08/29/todays-new-york-times-international-edition
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/29/opinion/minneapolis-school-shooting.html
 **Alec and Hilaria Baldwin on 8 Children, 1 Lil’ Pig and Lots of Rice-A-Roni**\
 `The actor and yoga instructor thought about selling their home in the Hamptons, but they can’t let go of the home that has become a family sanctuary.`\
 https://nytimes.com/interactive/2025/08/29/realestate/alec-hilaria-baldwin-amagansett-home.html
-
-**6 Smart Comedy Specials for Labor Day Weekend**\
-`Ali Siddiq, Beth Stelling and Vir Das are among the stand-ups delivering engaging sets that are worth your time.`\
-https://nytimes.com/2025/08/29/arts/television/comedy-specials-labor-day-weekend.html
 
