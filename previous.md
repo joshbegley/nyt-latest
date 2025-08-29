@@ -1,3 +1,7 @@
+**La Liga files complaint about alleged racist abuse of Vinicius Jr, Mbappe**\
+`The chanting was alleged to have taken place at Oviedo's Carlos Tartiere Stadium during the league match on August 24,`\
+https://nytimes.com/athletic/6583707/2025/08/29/vinicius-junior-racism-mbappe-oviedo/
+
 **With Canal and Dams Wrecked, a Russian-Occupied City’s Taps Run Dry**\
 `The Russian authorities have seized on the crisis in Donetsk to argue that taking over the rest of the region from Ukraine would allow Moscow to restore the water supply.`\
 https://nytimes.com/2025/08/29/world/europe/donetsk-water-shortage-crisis.html
@@ -29,12 +33,4 @@ https://nytimes.com/athletic/6581651/2025/08/29/lamar-jackson-ravens-vocal-leade
 **Porto agree to sign Arsenal's Kiwior, deal dependent on Hincapie move**\
 `Porto's deal for Kiwior is worth a guaranteed €25million, rising to potential €27m.`\
 https://nytimes.com/athletic/5169339/2025/08/29/arsenal-jakub-kiwior-porto-piero-hincapie/
-
-**How to watch NASCAR Southern 500: The Cup Series playoffs start in Darlington**\
-`The playoff battle begins at Darlington, where 16 drivers start the chase, but only one will lift the Bill France Cup in November.`\
-https://nytimes.com/athletic/6582835/2025/08/29/nascar-southern-500-how-to-watch-playoffs/
-
-**How to prep for your fantasy football draft in 15 minutes or less**\
-`If it's draft day and you find yourself completely unprepared, we've got you covered with a quick guide to get you up to speed in minutes.`\
-https://nytimes.com/athletic/6582593/2025/08/29/fantasy-football-draft-2025-prep-last-minute/
 

@@ -1,3 +1,7 @@
+**La Liga files complaint about alleged racist abuse of Vinicius Jr, Mbappe**\
+`The chanting was alleged to have taken place at Oviedo's Carlos Tartiere Stadium during the league match on August 24,`\
+https://nytimes.com/athletic/6583707/2025/08/29/vinicius-junior-racism-mbappe-oviedo/
+
 **With Canal and Dams Wrecked, a Russian-Occupied City’s Taps Run Dry**\
 `The Russian authorities have seized on the crisis in Donetsk to argue that taking over the rest of the region from Ukraine would allow Moscow to restore the water supply.`\
 https://nytimes.com/2025/08/29/world/europe/donetsk-water-shortage-crisis.html
