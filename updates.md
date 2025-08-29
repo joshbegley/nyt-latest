@@ -1,3 +1,7 @@
+**Students Call for More Protests in Indonesia After Deadly Clash With Police**\
+`Rising unemployment and inflation have driven the protests in Jakarta, the capital. The police responded with force on Thursday, killing a 21-year-old man.`\
+https://nytimes.com/2025/08/29/world/asia/indonesia-protests-inflation.html
+
 **Protesters and Police Clash in Indonesia**\
 `Police officers in riot gear fired tear gas and charged protesters, some of whom had been throwing rocks.`\
 https://nytimes.com/video/world/asia/100000010368269/indonesia-protests-inflation.html
