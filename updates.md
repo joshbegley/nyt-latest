@@ -1,3 +1,11 @@
+**Schneidman: Packers become legit Super Bowl threat after trading for Micah Parsons**\
+`The Packers traded two first-round picks and defensive tackle Kenny Clark to the Cowboys for Micah Parsons on Thursday.`\
+https://nytimes.com/athletic/6583077/2025/08/28/green-bay-packers-micah-parsons-trade-dallas-cowboys/
+
+**Jerry Jones discusses Cowboys trading star pass rusher Micah Parsons**\
+`Jerry Jones addressed the blockbuster deal Thursday that sent Parsons to Green Bay for two first-rounders and Kenny Clark.`\
+https://nytimes.com/athletic/6582930/2025/08/28/cowboys-trade-micah-parsons-jerry-jones-comments/
+
 **Americans claim eight Diamond League wildcards for World Championships**\
 `There were eight American champions at the Diamond League finals in Zurich, the most since 2019.`\
 https://nytimes.com/athletic/6582858/2025/08/28/diamond-league-finals-zurich-wildcards/

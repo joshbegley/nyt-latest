@@ -1,3 +1,11 @@
+**Schneidman: Packers become legit Super Bowl threat after trading for Micah Parsons**\
+`The Packers traded two first-round picks and defensive tackle Kenny Clark to the Cowboys for Micah Parsons on Thursday.`\
+https://nytimes.com/athletic/6583077/2025/08/28/green-bay-packers-micah-parsons-trade-dallas-cowboys/
+
+**Jerry Jones discusses Cowboys trading star pass rusher Micah Parsons**\
+`Jerry Jones addressed the blockbuster deal Thursday that sent Parsons to Green Bay for two first-rounders and Kenny Clark.`\
+https://nytimes.com/athletic/6582930/2025/08/28/cowboys-trade-micah-parsons-jerry-jones-comments/
+
 **Americans claim eight Diamond League wildcards for World Championships**\
 `There were eight American champions at the Diamond League finals in Zurich, the most since 2019.`\
 https://nytimes.com/athletic/6582858/2025/08/28/diamond-league-finals-zurich-wildcards/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/08/28/health/cdc-employees-director-trump-rfk-jr.html
 **Current, former Cowboys react to blockbuster Micah Parsons trade**\
 `Count several of Parsons' teammates — both old and new — among those surprised by the move.`\
 https://nytimes.com/athletic/6582807/2025/08/28/cowboys-micah-parsons-trade-reaction/
-
-**Mamdani Distances Himself From Democratic Socialists’ National Agenda**\
-`Zohran Mamdani, the Democratic front-runner in the New York City mayor’s race, is fending off attacks that seek to link him to some of the D.S.A.’s more controversial stances.`\
-https://nytimes.com/2025/08/28/nyregion/mamdani-dsa-socialist-mayor.html
-
-**Red Sox expected to promote left-hander Payton Tolle ahead of Pirates series: Sources**\
-`Tolle has a 3.04 era in 20 games, 18 starts, across three levels, with a 36.5 percent strikeout rate thanks to an elite fastball.`\
-https://nytimes.com/athletic/6582994/2025/08/28/boston-red-sox-payton-tolle-promotion-sources/
 
