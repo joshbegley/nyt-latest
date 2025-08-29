@@ -1,3 +1,7 @@
+**Israel Recovers Body of Oct. 7 Victim From Gaza, Netanyahu’s Office Says**\
+`Ilan Weiss, who was killed in the Hamas-led attack, and the remains of another person, who was not identified, were found as the government looks set to expand a military offensive.`\
+https://nytimes.com/2025/08/29/world/middleeast/israel-hostages-remains-recovered.html
+
 **The Poetry of Gestures**\
 `Our hands are how we express ourselves to the world around us.`\
 https://nytimes.com/paidpost/bottega-veneta/the-poetry-of-gestures.html
