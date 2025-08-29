@@ -1,3 +1,7 @@
+**Mitch Marner opens up about threats, security concerns while with Leafs**\
+`After Toronto's second-round playoff exit in May, Marner was targeted by fans on social media and had his family's address posted online.`\
+https://nytimes.com/athletic/6584302/2025/08/29/mitch-marner-maple-leafs-golden-knights-threats/
+
 **Super Bowl odds: Favorites remain, but Packers become a factor after Parsons trade**\
 `The Green Bay Packers surged in the odds to win the Super Bowl following the Micah Parsons trade, but the top tier of contenders is stable.`\
 https://nytimes.com/athletic/6584150/2025/08/29/super-bowl-odds-eagles-packers-parsons/
