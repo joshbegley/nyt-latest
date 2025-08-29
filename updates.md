@@ -1,3 +1,7 @@
+**Britain Bans Israeli Government from a Leading Arms Trade Fair**\
+`The British government said it was acting in response to Israel’s escalating military operation in Gaza. Israel condemned the decision.`\
+https://nytimes.com/2025/08/29/world/europe/uk-israel-military-trade-fair.html
+
 **U.K. Court Overturns Ruling on Hotel at Center of Asylum Seeker Debate**\
 `The decision was a temporary reprieve for the government but will intensify a political battle over how Britain should house tens of thousands of asylum seekers.`\
 https://nytimes.com/2025/08/29/world/europe/uk-asylum-hotel-ruling-epping.html
