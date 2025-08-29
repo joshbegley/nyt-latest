@@ -1,3 +1,5 @@
+
+
 **After years of delays, civil trial between Angels and the family of Tyler Skaggs set for September**\
 `In preparation for trial, the Skaggs family hired attorney Shawn Holley to be co-lead counsel with Rusty Hardin.`\
 https://nytimes.com/athletic/6583166/2025/08/28/angels-tyler-skaggs-civil-trial-date-set/
