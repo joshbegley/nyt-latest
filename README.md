@@ -1,10 +1,22 @@
+**Students Call for More Protests in Indonesia After Fatal Clash With Police**\
+`Rising unemployment and inflation have driven the protests in Jakarta, the capital. The police responded with force on Thursday, killing a 21-year-old man.`\
+https://nytimes.com/2025/08/29/world/asia/indonesia-protests-inflation.html
+
+**Palace are through - now come the realities of European football**\
+`Oliver Glasner's team did what they had to do in Norway - now he needs backing with new arrivals if his squad are to flourish this season`\
+https://nytimes.com/athletic/6579328/2025/08/29/crystal-palace-europe-conference-league-glasner-guehi/
+
+**FPL live Q&A: Gameweek Three advice from Ben Dinnery**\
+`Ben Dinnery will be on hand today to talk you through the players to target, who to avoid, and the injury doubts you need to be aware of`\
+https://nytimes.com/athletic/6582884/2025/08/29/fantasy-premier-league-live-qa-gameweek-three-advice-from-ben-dinnery/
+
 **Tottenham set to complete €60m signing of Leipzig’s Simons**\
-`Personal terms are also in place and Simons has completed a medical ahead of finalising the proposed transfer to the north London club.`\
+`Personal terms are also in place and Simons has completed a medical ahead of finalising the proposed transfer to the north London side.`\
 https://nytimes.com/athletic/6581114/2025/08/29/xavi-simons-tottenham-transfer/
 
 **Rodion Shchedrin, Composer Who Captured Russia’s Soul, Dies at 92**\
 `Mr. Shchedrin drew on Russian literature for stage works and was an eager experimenter, inspired by folk tales, religious mysticism and melodrama.`\
-https://nytimes.com/2025/08/29/obituaries/rodion-shchedrin-dead.html
+https://nytimes.com/2025/08/29/arts/rodion-shchedrin-dead.html
 
 **Nick Woltemade, secret talks and the night Newcastle decided to go for it**\
 `Newcastle have finally made their move for a striker. This is the story of how their approach for Woltemade accelerated this week`\
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6564634/2025/08/29/miles-jacobson-football-manager-
 **Washington Governor Criticizes Border Patrol Arrests at Wildfire Site**\
 `Gov. Bob Ferguson demanded an explanation for the arrests of two contract workers at the site of a wildfire. Border Patrol said they were in the country illegally.`\
 https://nytimes.com/2025/08/29/us/border-patrol-arrest-washington-wildfire.html
-
-**Nebraska beats Cincinnati in Kansas City: Takeaways**\
-`The Nebraska unveiling in Year 3 under coach Matt Rhule, though rough around the edges, finished as a success.`\
-https://nytimes.com/athletic/6582619/2025/08/29/nebraska-cincinnati-score-result-takeaways/
-
-**The New York Times in Print for Friday, Aug. 29, 2025**\
-``\
-https://nytimes.com/issue/todayspaper/2025/08/29/todays-new-york-times
-
-**Appeals Court Declines to Block Trump From Freezing Foreign Aid**\
-`The court voted not to revisit a fight over billions in frozen funds, but simultaneously revised an earlier order to give nonprofits that sued a narrow path forward in the case.`\
-https://nytimes.com/2025/08/29/us/politics/appeals-court-trump-foreign-aid.html
 
