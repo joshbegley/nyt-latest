@@ -1,3 +1,7 @@
+**'To create and have a legacy': Taylor Townsend plays her game at the U.S. Open**\
+`Townsend's altercation with Jelena Ostapenko circulated around the world. She has been building her own legacy more quietly.`\
+https://nytimes.com/athletic/6583198/2025/08/29/tennis-taylor-townsend-us-open/
+
 **Even after influx of new tackles, Falcons expected to start a familiar face in Week 1**\
 `Veteran Elijah Wilkinson is the front-runner to take over Kaleb McGary's starting job at right tackle when the Falcons open the season.`\
 https://nytimes.com/athletic/6582489/2025/08/29/falcons-elijah-wilkinson-right-tackle-week-1/
