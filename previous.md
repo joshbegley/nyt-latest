@@ -1,3 +1,15 @@
+**Vail Settles Lawsuit After Canceling Artist’s Residency Over Gaza Views**\
+`In settling a lawsuit brought by the A.C.L.U., the Colorado town agreed to fund an art program for underrepresented people and provide cultural sensitivity training to some of its employees.`\
+https://nytimes.com/2025/08/29/arts/design/vail-artist-gaza-lawsuit-settlement.html
+
+**Number of Meteorologists at F.A.A. Is Critically Low, a Federal Watchdog Warns**\
+`Weather Service employees help air traffic controllers keep planes away from severe weather. Fewer than half of the county’s control centers are fully staffed, a government report says.`\
+https://nytimes.com/2025/08/29/weather/faa-meteorologist-shortage.html
+
+**London Man Admits to Drugging, Raping and Filming Women for Years**\
+`Xu Chao, 33, could face a “lengthy” prison sentence, the judge said. Most of his victims have not been identified.`\
+https://nytimes.com/2025/08/29/world/europe/london-sexual-assaults.html
+
 **Cowboys trading Micah Parsons has ramifications for Eagles, Giants and Commanders**\
 `The massive trade left a very different division behind. How has the NFC East landscape changed?`\
 https://nytimes.com/athletic/6584443/2025/08/29/micah-parsons-trade-cowboys-eagles-giants-commanders/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/08/29/opinion/alarm-over-the-purge-at-the-cdc.html
 **Finding Beauty in a Prison Yard**\
 `These trees were the only living beings that I could touch without fear.`\
 https://nytimes.com/interactive/2025/08/29/opinion/trees-nature-prison-beauty.html
-
-**The 8.31.25 Issue**\
-``\
-https://nytimes.com/issue/magazine/2025/08/29/the-83125-issue
-
-**Sept. 23: NASA could launch a mission to map the solar system’s boundaries.**\
-`By Michael Roston`\
-https://nytimes.com/explain/2025/science/astronomy-space-calendar-events/sept-23-nasa-could-launch-a-mission-to-map-the-solar-systems-boundaries
-
-**Sept. 29: Blue Origin could launch twin NASA satellites to Mars.**\
-`By Michael Roston`\
-https://nytimes.com/explain/2025/science/astronomy-space-calendar-events/sept-29-blue-origin-could-launch-twin-nasa-satellites-to-mars
 
