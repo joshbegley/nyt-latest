@@ -3,6 +3,11 @@
 `\
 https://nytimes.com/athletic/6567358/2025/08/29/arsenal-transfer-news-hincapie-leverkusen/
 
+**Arsenal reach agreement with Leverkusen to sign defender Hincapie**\
+`The deal is a season-long loan including an obligation to buy for a total package of €52million — plus a 10 per cent sell-on clause.
+`\
+https://nytimes.com/athletic/6567358/2025/08/29/arsenal-transfer-news-hincapie-leverkusen/
+
 **Emery targeting 'two to three' more signings for Villa before transfer deadline**\
 `Villa have seen 14 players leave this summer, only signing two.  `\
 https://nytimes.com/athletic/6584297/2025/08/29/unai-emery-aston-villa-signings-transfer-window/

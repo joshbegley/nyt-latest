@@ -1,3 +1,7 @@
+**Spirit Airlines Files for Bankruptcy for 2nd Time in a Year**\
+`The troubled carrier last exited Chapter 11 in March. It said more could be done to stabilize the company with a second filing.`\
+https://nytimes.com/2025/08/29/business/spirit-airlines-bankruptcy.html
+
 **Emery targeting 'two to three' more signings for Villa before transfer deadline**\
 `Villa have seen 14 players leave this summer, only signing two.  `\
 https://nytimes.com/athletic/6584297/2025/08/29/unai-emery-aston-villa-signings-transfer-window/
@@ -33,9 +37,4 @@ https://nytimes.com/athletic/6584765/2025/08/29/ben-shelton-us-open-out-injury-s
 **Staff Shortages and Reindeer Rumors: Why Greenland’s Airport Can’t Keep Up**\
 `Problems with passenger screening led to a disruption in international flight service to and from Nuuk, a snag in the island’s quest to attract more tourists.`\
 https://nytimes.com/2025/08/29/travel/greenland-nuuk-airport-flights.html
-
-**Arsenal reach agreement with Leverkusen to sign defender Hincapie**\
-`The deal is a season-long loan including an obligation to buy for a total package of €52million — plus a 10 per cent sell-on clause.
-`\
-https://nytimes.com/athletic/6567358/2025/08/29/arsenal-transfer-news-hincapie-leverkusen/
 
