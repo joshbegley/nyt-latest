@@ -34,7 +34,3 @@ https://nytimes.com/athletic/6584386/2025/08/29/thomas-frank-tottenham-hotspur-i
 `Arsenal signed the 27-year-old from Crystal Palace last week and presented him on the pitch before their 5-0 win over Leeds.`\
 https://nytimes.com/athletic/6584099/2025/08/29/eberechi-eze-arsenal-debut-liverpool/
 
-**This Chef Is Bringing Babbo Back. Can It Move Past Mario Batali?**\
-`Mark Ladner, a master of Italian cooking and a Batali protégé, is reinventing the Manhattan restaurant under the same famous (and infamous) name.`\
-https://nytimes.com/2025/08/29/dining/mark-ladner-babbo-mario-batali.html
-
