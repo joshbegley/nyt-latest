@@ -1,3 +1,15 @@
+**How the Micah Parsons trade to the Packers affects the Bears, Lions and Vikings**\
+`The blockbuster deal sending Parsons from Dallas to Green Bay has sent shockwaves through the NFL. How will it affect the NFL North?`\
+https://nytimes.com/athletic/6584137/2025/08/29/micah-parsons-trade-packers-nfc-north-lions-bears-vikings/
+
+**Inside Syria’s Most Fearsome Prison**\
+`For decades, the Assad regime locked up its opponents in prisons like Sednaya. The New York Times created a 3-D model of the prison and its brutal conditions.`\
+https://nytimes.com/interactive/2025/08/29/world/middleeast/syria-sednaya-prison-assad.html
+
+**Dortmund reject £45m Beier offer from Brentford**\
+`Brentford are not expected to return with another offer for the 22-year-old striker.`\
+https://nytimes.com/athletic/6584296/2025/08/29/maximilian-beier-brentford-dortmund/
+
 **2 Simple Secrets for Making Restaurant-Quality Scallops at Home**\
 `For a quick, light dinner, these small steps go a long, long way, Eric Kim writes.`\
 https://nytimes.com/2025/08/29/dining/how-to-cook-scallops.html

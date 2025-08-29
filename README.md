@@ -7,7 +7,7 @@ https://nytimes.com/athletic/6584137/2025/08/29/micah-parsons-trade-packers-nfc-
 https://nytimes.com/interactive/2025/08/29/world/middleeast/syria-sednaya-prison-assad.html
 
 **Dortmund reject £45m Beier offer from Brentford**\
-`Brentford are not expected to return with another offer for the 22-year-old striker.`\
+`Brentford are not expected to raise their offer for the 22-year-old striker.`\
 https://nytimes.com/athletic/6584296/2025/08/29/maximilian-beier-brentford-dortmund/
 
 **2 Simple Secrets for Making Restaurant-Quality Scallops at Home**\
