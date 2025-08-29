@@ -18,7 +18,7 @@ https://nytimes.com/2025/08/29/nyregion/covid-cases-rising-new-york.html
 `Feeling stuck on today’s puzzle? We can help.`\
 https://nytimes.com/2025/08/29/crosswords/spelling-bee-forum.html
 
-**Students Call for More Protests in Indonesia After Fatal Clash With Police**\
+**Students Call for More Protests in Indonesia After Deadly Clash With Police**\
 `Rising unemployment and inflation have driven the protests in Jakarta, the capital. The police responded with force on Thursday, killing a 21-year-old man.`\
 https://nytimes.com/2025/08/29/world/asia/indonesia-protests-inflation.html
 
