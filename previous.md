@@ -1,3 +1,7 @@
+**Jerry Jones' stubborn missteps led the Cowboys into this Micah Parsons trainwreck**\
+`Jones just got rid of one of the league's best players because of the owner's lack of urgency and miscalculations.`\
+https://nytimes.com/athletic/6582829/2025/08/28/jerry-jones-micah-parsons-trade/
+
 **Schneidman: Packers become legit Super Bowl threat after trading for Micah Parsons**\
 `The Packers traded two first-round picks and defensive tackle Kenny Clark to the Cowboys for Micah Parsons on Thursday.`\
 https://nytimes.com/athletic/6583077/2025/08/28/green-bay-packers-micah-parsons-trade-dallas-cowboys/
@@ -14,7 +18,7 @@ https://nytimes.com/athletic/6582858/2025/08/28/diamond-league-finals-zurich-wil
 `The Red Sox finished their road trip with a 7-1 record, the club’s best run on the road of the season.`\
 https://nytimes.com/athletic/6583058/2025/08/28/boston-red-sox-road-trip-takeaways/
 
-**Micah Parsons' trade isn't quite Luka Dončić level, but the heartbreak in Dallas is the same**\
+**Micah Parsons' trade isn't Luka Dončić level, but Dallas' heartbreak is the same**\
 `While Dončić broke his phone in anger after being traded, let's not forget that Parsons asked to be dealt. `\
 https://nytimes.com/athletic/6582990/2025/08/28/micah-parsons-trade-luka-doncic-dallas-cowboys-mavericks/
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6582072/2025/08/28/andre-pallante-cardinals-rotatio
 **Inside the C.D.C., a Growing Sense of Despair**\
 `After six months of turmoil, the loss of the new director and a round of high-profile resignations marks a new low, some employees said.`\
 https://nytimes.com/2025/08/28/health/cdc-employees-director-trump-rfk-jr.html
-
-**Current, former Cowboys react to blockbuster Micah Parsons trade**\
-`Count several of Parsons' teammates — both old and new — among those surprised by the move.`\
-https://nytimes.com/athletic/6582807/2025/08/28/cowboys-micah-parsons-trade-reaction/
 

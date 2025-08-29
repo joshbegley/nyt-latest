@@ -1,3 +1,11 @@
+**Jerry Jones' stubborn missteps led the Cowboys into this Micah Parsons trainwreck**\
+`Jones just got rid of one of the league's best players because of the owner's lack of urgency and miscalculations.`\
+https://nytimes.com/athletic/6582829/2025/08/28/jerry-jones-micah-parsons-trade/
+
+**Micah Parsons' trade isn't Luka Dončić level, but Dallas' heartbreak is the same**\
+`While Dončić broke his phone in anger after being traded, let's not forget that Parsons asked to be dealt. `\
+https://nytimes.com/athletic/6582990/2025/08/28/micah-parsons-trade-luka-doncic-dallas-cowboys-mavericks/
+
 **Schneidman: Packers become legit Super Bowl threat after trading for Micah Parsons**\
 `The Packers traded two first-round picks and defensive tackle Kenny Clark to the Cowboys for Micah Parsons on Thursday.`\
 https://nytimes.com/athletic/6583077/2025/08/28/green-bay-packers-micah-parsons-trade-dallas-cowboys/
