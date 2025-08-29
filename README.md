@@ -1,4 +1,8 @@
-**Justin Verlander on what Kyle Tucker could still do for the Cubs: 'He can hit everything'**\
+**Michael Vick takes first college coaching loss as Towson beats Norfolk State 27-7**\
+`The Spartans never led, had too many costly mistakes and ultimately got in their own way too often.`\
+https://nytimes.com/athletic/6583349/2025/08/28/michael-vick-norfolk-towson/
+
+**Justin Verlander praises Kyle Tucker amid struggles, injury setback: 'He didn't make excuses'**\
 `After a three-game benching/mental reset, Tucker is showing signs that he could be breaking out of the worst slump of his career.`\
 https://nytimes.com/athletic/6583253/2025/08/28/justin-verlander-kyle-tucker-cubs-giants/
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6583230/2025/08/28/phillies-kyle-schwarber-four-hom
 **Trump Officials Threaten to Pull Funding From Denver Public Schools**\
 `The Education Department gave Denver Public Schools 10 days to ban transgender students from using bathrooms that align with their gender identity.`\
 https://nytimes.com/2025/08/28/us/politics/trump-denver-schools-transgender-bathrooms.html
-
-**Coco Gauff beats Donna Vekić on a surreal, tearful night at the U.S. Open**\
-`Gauff managed her way to a 7-6(5), 6-2 win.`\
-https://nytimes.com/athletic/6583164/2025/08/28/us-open-coco-gauff-donna-vekic-serves/
 
