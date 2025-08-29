@@ -1,3 +1,15 @@
+**Scoop City: Jerry's blockbuster is a blunder**\
+`Trading Micah Parsons was a loss for the Cowboys, win for the Packers, and another headline for Jerry Jones.`\
+https://nytimes.com/athletic/6584607/2025/08/29/micah-parsons-trade-nfl-cowboys-packers-scoop-city/
+
+**Xavi Simons to Tottenham: Everything you need to know - TLDR**\
+`Spurs have completed the signing of the 22-year-old Dutch winger from RB Leipzig - this is everything you need to know`\
+https://nytimes.com/athletic/6584369/2025/08/29/xavi-simons-tottenham-hotspur-analysis/
+
+**More Than 130 People Are Feared Dead in West Africa Boat Tragedy**\
+`Around 150 people boarded a boat in Gambia that was thought to have been headed for Europe. The boat capsized after traveling about 380 miles.`\
+https://nytimes.com/2025/08/29/world/africa/boat-capsize-mauritania-gambia-senegal.html
+
 **Prime Tire: At the Dutch GP, all aboard our last Max Express. Plus, George Russell isn't worried**\
 `Welcome to Prime Tire, The Athletic's Formula 1 newsletter`\
 https://nytimes.com/athletic/6584528/2025/08/29/dutch-gp-max-verstappen-george-russell-prime-tire-newsletter/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6584450/2025/08/29/gotham-fc-esther-gonzalez-spain-
 **Vail Settles Lawsuit After Canceling Artist’s Residency Over Gaza Views**\
 `In settling a lawsuit brought by the A.C.L.U., the Colorado town agreed to fund an art program for underrepresented people and provide cultural sensitivity training to some of its employees.`\
 https://nytimes.com/2025/08/29/arts/design/vail-artist-gaza-lawsuit-settlement.html
-
-**Number of Meteorologists at F.A.A. Is Critically Low, a Federal Watchdog Warns**\
-`Weather Service employees help air traffic controllers keep planes away from severe weather. Fewer than half of the country’s control centers are fully staffed, a government report says.`\
-https://nytimes.com/2025/08/29/weather/faa-meteorologist-shortage.html
-
-**London Man Admits to Drugging, Raping and Filming Women for Years**\
-`Xu Chao, 33, could face a “lengthy” prison sentence, the judge said. Most of his victims have not been identified.`\
-https://nytimes.com/2025/08/29/world/europe/london-sexual-assaults.html
-
-**Cowboys trading Micah Parsons has ramifications for Eagles, Giants and Commanders**\
-`The massive trade left a very different division behind. How has the NFC East landscape changed?`\
-https://nytimes.com/athletic/6584443/2025/08/29/micah-parsons-trade-cowboys-eagles-giants-commanders/
 

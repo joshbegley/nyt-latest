@@ -1,3 +1,15 @@
+**Scoop City: Jerry's blockbuster is a blunder**\
+`Trading Micah Parsons was a loss for the Cowboys, win for the Packers, and another headline for Jerry Jones.`\
+https://nytimes.com/athletic/6584607/2025/08/29/micah-parsons-trade-nfl-cowboys-packers-scoop-city/
+
+**Xavi Simons to Tottenham: Everything you need to know - TLDR**\
+`Spurs have completed the signing of the 22-year-old Dutch winger from RB Leipzig - this is everything you need to know`\
+https://nytimes.com/athletic/6584369/2025/08/29/xavi-simons-tottenham-hotspur-analysis/
+
+**More Than 130 People Are Feared Dead in West Africa Boat Tragedy**\
+`Around 150 people boarded a boat in Gambia that was thought to have been headed for Europe. The boat capsized after traveling about 380 miles.`\
+https://nytimes.com/2025/08/29/world/africa/boat-capsize-mauritania-gambia-senegal.html
+
 **Prime Tire: At the Dutch GP, all aboard our last Max Express. Plus, George Russell isn't worried**\
 `Welcome to Prime Tire, The Athletic's Formula 1 newsletter`\
 https://nytimes.com/athletic/6584528/2025/08/29/dutch-gp-max-verstappen-george-russell-prime-tire-newsletter/
