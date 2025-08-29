@@ -1,3 +1,23 @@
+**The 8.31.25 Issue**\
+``\
+https://nytimes.com/issue/magazine/2025/08/29/the-83125-issue
+
+**Sept. 23: NASA could launch a mission to map the solar system’s boundaries.**\
+`By Michael Roston`\
+https://nytimes.com/explain/2025/science/astronomy-space-calendar-events/sept-23-nasa-could-launch-a-mission-to-map-the-solar-systems-boundaries
+
+**Oklahoma State QB Hauss Hejny out a month with broken foot: Source**\
+`Hejny got injured late in the first quarter of the Cowboys' 27-7 season-opening win over UT-Martin Thursday night. Zane Flores replaced him.`\
+https://nytimes.com/athletic/6584442/2025/08/29/oklahoma-state-hauss-hejny-broken-foot/
+
+**Patriots cut Jabrill Peppers, veteran safety and former captain: Source**\
+`In a huge surprise just ahead of the season opener, New England is releasing the 29-year-old Peppers, a stalwart of their defense.`\
+https://nytimes.com/athletic/6584428/2025/08/29/patriots-cut-jabrill-peppers/
+
+**Grand Juries in D.C. Reject Prosecutors’ Efforts to Level Harsh Charges Against Residents**\
+`The extraordinary pushback in at least three separate cases comes as President Trump has flooded the streets with National Guard troops and federal agents.`\
+https://nytimes.com/2025/08/29/us/politics/dc-grand-juries-indictments.html
+
 **Sept. 29: Blue Origin could launch twin NASA satellites to Mars.**\
 `By Michael Roston`\
 https://nytimes.com/explain/2025/science/astronomy-space-calendar-events/sept-29-blue-origin-could-launch-twin-nasa-satellites-to-mars
