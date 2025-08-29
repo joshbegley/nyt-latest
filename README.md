@@ -12,7 +12,7 @@ https://nytimes.com/explain/2025/science/astronomy-space-calendar-events/sept-29
 
 **Oklahoma State QB Hauss Hejny out a month with broken foot: Source**\
 `Hejny got injured late in the first quarter of the Cowboys' 27-7 season-opening win over UT-Martin Thursday night. Zane Flores replaced him.`\
-https://nytimes.com/athletic/6584442/2025/08/29/oklahoma-state-qb-hauss-hejny-expected-to-miss-a-month-with-broken-foot-source/
+https://nytimes.com/athletic/6584442/2025/08/29/oklahoma-state-hauss-hejny-broken-foot/
 
 **My Game In My Words: 5 USMNT wildcards to watch**\
 `Mauricio Pochettino's selection policy has given hope to a group of emerging hopefuls.`\
