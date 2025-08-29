@@ -1,3 +1,15 @@
+**Emil Bove Continued to Work at Justice Dept. After Judicial Confirmation**\
+`The code of conduct for federal judges does not appear to apply to Mr. Bove, who has yet to be sworn in. But his continued presence at the department has raised eyebrows.`\
+https://nytimes.com/2025/08/29/us/politics/emil-bove-justice-department.html
+
+**How to Ship Your Car (and Why It May Save You Time and Money)**\
+`Having your vehicle transported a long distance is sometimes necessary, and it can be more efficient than driving it yourself.`\
+https://nytimes.com/2025/08/29/business/car-shipping.html
+
+**Palmer out of Chelsea vs Fulham with groin injury**\
+`Earlier on Friday, Palmer was left out of the England squad for next month's World Cup qualifiers.`\
+https://nytimes.com/athletic/6583987/2025/08/29/cole-palmer-injury-chelsea-fulham/
+
 **Saka out 'for a few weeks' but does not require surgery - Arteta**\
 `Saka was replaced by Leandro Trossard in Arsenal's 5-0 win over Leeds after appearing to sustain a left hamstring injury.`\
 https://nytimes.com/athletic/6571497/2025/08/29/bukayo-sako-injury-update-arsenal-odegaard/

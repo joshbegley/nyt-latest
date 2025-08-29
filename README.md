@@ -1,3 +1,15 @@
+**Live Q&A: Preview college football Week 1 with Scott Dochterman at 10:30 a.m. ET Saturday**\
+`Come chat about Ohio State-Texas, Clemson-LSU and all things college football with Scott Dochterman ahead of kickoff Saturday.`\
+https://nytimes.com/athletic/6581885/2025/08/29/college-football-pregame-live-qa-week-1/
+
+**Watching Cam Ward: Streaming, broadcast and schedule updates for 2025 Tennessee Titans**\
+`Here's how to watch every Tennessee Titans game, and No. 1 pick Cam Ward, in the forthcoming 2025 season.`\
+https://nytimes.com/athletic/6575085/2025/08/29/tennessee-titans-cam-ward-how-to-watch-2025/
+
+**Should My Husband Praise My Looks More?**\
+`A ruling on how to give and take compliments in a marriage.`\
+https://nytimes.com/interactive/2025/08/29/magazine/spouse-compliments-hodgman-quiz.html
+
 **Emil Bove Continued to Work at Justice Dept. After Judicial Confirmation**\
 `The code of conduct for federal judges does not appear to apply to Mr. Bove, who has yet to be sworn in. But his continued presence at the department has raised eyebrows.`\
 https://nytimes.com/2025/08/29/us/politics/emil-bove-justice-department.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/08/29/business/pce-inflation-fed.html
 **Jacksonville Jaguars 2025 streaming guide: How to watch Travis Hunter and Trevor Lawrence**\
 `The Jacksonville Jaguars arrive this season in the delicate middle ground between promise and permanence.`\
 https://nytimes.com/athletic/6581660/2025/08/29/jacksonville-jaguars-travis-hunter-how-to-watch-2025/
-
-**Trump Cancels Kamala Harris’s Secret Service Protection**\
-`The Secret Service usually protects a former vice president for six months after they leave office, but President Joseph R. Biden Jr. had extended Ms. Harris’s protection beyond that.`\
-https://nytimes.com/2025/08/29/us/politics/kamala-harris-secret-service.html
-
-**Nottingham Forest's Europa League draw: Malmo repeat and Nuno reunion with Porto**\
-`Paul Taylor answers some of the key questions from Forest's Europa League draw...`\
-https://nytimes.com/athletic/6583824/2025/08/29/nottingham-forest-europa-league-fixtures-opponents-dates/
-
-**Marseille working on a deal for Arsenal's Zinchenko**\
-`The Ligue 1 club’s interest at present relates to a potential permanent transfer — but Zinchenko's salary presents a significant issue.`\
-https://nytimes.com/athletic/6499298/2025/08/29/zinchenko-arsenal-transfer-marseille/
 
