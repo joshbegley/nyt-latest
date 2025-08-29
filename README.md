@@ -1,3 +1,35 @@
+**Vote in The Bounce's latest poll here!**\
+`Welcome to the polling page for The Bounce, The Athletic's free NBA newsletter.`\
+https://nytimes.com/athletic/6582455/2025/08/29/bounce-newsletter-poll-vote/
+
+**College football is still worth cherishing, despite all the junk surrounding it**\
+`College football no longer prioritizes the hardcore fans. The more you love this sport, the less you matter. In this way, we are cursed.`\
+https://nytimes.com/athletic/6579732/2025/08/29/college-football-fans-2025-season/
+
+**Eagles superlatives: Potential MVP, breakout players, regression candidate and more**\
+`Who will stand out as the Eagles look to win another Super Bowl this season?`\
+https://nytimes.com/athletic/6582864/2025/08/29/philadelphia-eagles-potential-mvp-breakout-players-regression-candidate/
+
+**Aston Villa's Europa League draw: A return to Rotterdam and a Jhon Duran reunion**\
+`Jacob Tanswell analyses Aston Villa's newly-released fixtures for the 2025-26 Europa League`\
+https://nytimes.com/athletic/6583823/2025/08/29/aston-villas-europa-league-draw-fixtures/
+
+**Pinto's ceiling, Giroux and Spence's fits, and offence: 4 burning Senators questions**\
+`Don't be afraid of September lurking around the corner. That's when the Senators will have to address some of the bigger questions looming.`\
+https://nytimes.com/athletic/6567443/2025/08/29/senators-offence-pinto-giroux-spence/
+
+**Bolduc's evolution as a rookie separates him from similar Canadiens acquisitions**\
+`After Bolduc's first full season in the NHL, the Canadiens had a good idea what they were getting. Let's break down why.`\
+https://nytimes.com/athletic/6582686/2025/08/29/zachary-bolduc-canadiens-analysis-physicality/
+
+**How to watch the Indianapolis Colts: Schedule, streaming for team with QB questions**\
+`Daniel Jones is in, Anthony Richardson is out. Will the Colts' quarterback gamble pay off in 2025? Here's how to watch it all unfold. `\
+https://nytimes.com/athletic/6572695/2025/08/29/indianapolis-colts-2025-how-to-watch-qb-schedule/
+
+**Trump Administration Live Updates: Immigration Crackdown in Chicago Is Planned**\
+``\
+https://nytimes.com/live/2025/08/29/us/trump-news
+
 **O'Connor: Jonah Tong is the latest Mets pitcher to inspire real October hope**\
 `Tong, the most prolific strikeout pitcher in the minors, and fellow phenom Nolan McLean get chance to lead Mets into postseason and beyond.`\
 https://nytimes.com/athletic/6583356/2025/08/29/mets-jonah-tong-pitcher-debut/
@@ -5,36 +37,4 @@ https://nytimes.com/athletic/6583356/2025/08/29/mets-jonah-tong-pitcher-debut/
 **Meet Julian Sayin, the 5-star QB not to be overlooked in Ohio State-Texas**\
 `Arch Manning isn't the only No. 1 QB recruit starting in Ohio State-Texas. Here's how Nick Saban's retirement led Sayin to this moment.`\
 https://nytimes.com/athletic/6581475/2025/08/29/julian-sayin-ohio-state-starting-qb-texas/
-
-**UFC's White House fight 'is on', says Dana White after meeting in D.C.**\
-`President Donald Trump has long been a supporter of the UFC and White, and has regularly attended fights during his presidency.`\
-https://nytimes.com/athletic/6583727/2025/08/29/ufc-white-house-trump/
-
-**Living with Katrina**\
-`The storm made landfall 20 years ago today. What’s happened since then?`\
-https://nytimes.com/2025/08/29/briefing/hurricane-katrina-20-years.html
-
-**Elche in talks with Man Utd over Malacia deal**\
-`Malacia was the first signing made by Erik ten Hag at United, playing 47 games for the club in a spell disrupted by a serious knee injury.`\
-https://nytimes.com/athletic/6424404/2025/08/29/manchester-united-transfers-tyrell-malacia-elche/
-
-**Death Valley duel: How to watch LSU vs. Clemson in a top-10 Week 1 matchup**\
-`Tiger-on-Tiger drama. Two Heisman hopefuls at quarterback. What a cool mirror match to start the college football season.`\
-https://nytimes.com/athletic/6582958/2025/08/29/lsu-clemson-death-valley-tigers-cfb-how-to-watch/
-
-**Alexander-Arnold out of England squad; Spence, Rashford in**\
-`Adam Wharton has also been recalled by Thomas Tuchel ahead of games against Serbia and Andorra.`\
-https://nytimes.com/athletic/6583785/2025/08/29/alexander-arnold-england-squad-september/
-
-**Phillies find catharsis in a 'character win' as homers rain at Citizens Bank Park**\
-`For a few hours in South Philly on Thursday, amid seven homers, it was easy to forget what the beginning of the week felt like. `\
-https://nytimes.com/athletic/6583441/2025/08/29/phillies-seven-homers-kyle-schwarber-braves/
-
-**The role of Alex Guerrero, Tom Brady's longtime body coach, as Raiders' 'wellness coordinator'**\
-`Guerrero officially joined the staff as a "wellness coordinator" this past offseason.`\
-https://nytimes.com/athletic/6580502/2025/08/29/alex-guerrero-tom-brady-wellness-coordinator/
-
-**Minor league strikeout king Jonah Tong ready for MLB debut with Mets**\
-`Tong, 22, has led the minor leagues in ERA and strikeouts. On Friday, he'll make his major-league debut.`\
-https://nytimes.com/athletic/6583365/2025/08/29/jonah-tong-mets-debut-mlb/
 
