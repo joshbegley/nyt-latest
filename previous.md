@@ -1,3 +1,7 @@
+**Champions League exit and attitude towards Fenerbahce: Why Jose Mourinho was sacked**\
+`Jose Mourinho and Turkish football could have been perfect for each other. But nobody can be surprised it ended like this`\
+https://nytimes.com/athletic/6584015/2025/08/29/jose-mourinho-sacked-fenerbahce-turkish/
+
 **Ernst Will Not Run Again, Putting a Competitive Senate Seat in Play**\
 `Democrats still face an uphill fight to win in Iowa and retake the majority in the closely divided Senate.`\
 https://nytimes.com/2025/08/29/us/politics/joni-ernst-senate-iowa-re-election.html
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6584442/2025/08/29/oklahoma-state-hauss-hejny-broke
 **My Game In My Words: 5 USMNT wildcards to watch**\
 `Mauricio Pochettino's selection policy has given hope to a group of emerging hopefuls.`\
 https://nytimes.com/athletic/6582126/2025/08/29/usmnt-my-game-my-words-luna-berhalter-banks-zendejas-klinsmann/
-
-**Patriots cut Jabrill Peppers, veteran safety and former captain: Source**\
-`In a huge surprise just ahead of the season opener, New England is releasing the 29-year-old Peppers, a stalwart of their defense.`\
-https://nytimes.com/athletic/6584428/2025/08/29/patriots-cut-jabrill-peppers/
 

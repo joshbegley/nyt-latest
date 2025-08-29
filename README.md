@@ -1,3 +1,7 @@
+**Flashback: Your Weekly History Quiz, Aug. 30, 2025**\
+`Can you sort 8 historical events?`\
+https://nytimes.com/interactive/2025/08/29/upshot/flashback.html
+
 **Champions League exit and attitude towards Fenerbahce: Why Jose Mourinho was sacked**\
 `Jose Mourinho and Turkish football could have been perfect for each other. But nobody can be surprised it ended like this`\
 https://nytimes.com/athletic/6584015/2025/08/29/jose-mourinho-sacked-fenerbahce-turkish/
@@ -29,8 +33,4 @@ https://nytimes.com/explain/2025/science/astronomy-space-calendar-events/sept-29
 **Oklahoma State QB Hauss Hejny out a month with broken foot: Source**\
 `Hejny got injured late in the first quarter of the Cowboys' 27-7 season-opening win over UT-Martin Thursday night. Zane Flores replaced him.`\
 https://nytimes.com/athletic/6584442/2025/08/29/oklahoma-state-hauss-hejny-broken-foot/
-
-**My Game In My Words: 5 USMNT wildcards to watch**\
-`Mauricio Pochettino's selection policy has given hope to a group of emerging hopefuls.`\
-https://nytimes.com/athletic/6582126/2025/08/29/usmnt-my-game-my-words-luna-berhalter-banks-zendejas-klinsmann/
 

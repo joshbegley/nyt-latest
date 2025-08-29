@@ -1,3 +1,7 @@
+**Champions League exit and attitude towards Fenerbahce: Why Jose Mourinho was sacked**\
+`Jose Mourinho and Turkish football could have been perfect for each other. But nobody can be surprised it ended like this`\
+https://nytimes.com/athletic/6584015/2025/08/29/jose-mourinho-sacked-fenerbahce-turkish/
+
 **Ernst Will Not Run Again, Putting a Competitive Senate Seat in Play**\
 `Democrats still face an uphill fight to win in Iowa and retake the majority in the closely divided Senate.`\
 https://nytimes.com/2025/08/29/us/politics/joni-ernst-senate-iowa-re-election.html
