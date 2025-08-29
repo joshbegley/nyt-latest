@@ -1,3 +1,11 @@
+**After years of delays, civil trial between Angels and the family of Tyler Skaggs set for September**\
+`In preparation for trial, the Skaggs family hired attorney Shawn Holley to be co-lead counsel with Rusty Hardin.`\
+https://nytimes.com/athletic/6583166/2025/08/28/angels-tyler-skaggs-civil-trial-date-set/
+
+**CVS Holds Off on Offering Covid Vaccines in 16 States**\
+`The country’s largest pharmacy chain said it needed a C.D.C. panel to recommend the shots before it could offer them nationwide.`\
+https://nytimes.com/2025/08/28/well/cvs-pharmacy-covid-vaccine-16-states.html
+
 **Why Thailand’s Politics Are in Constant Crisis**\
 `While the country is a constitutional monarchy that holds regular elections, analysts say it is beholden to an unelected old guard.`\
 https://nytimes.com/2025/08/28/world/asia/thailand-politics-crisis.html
