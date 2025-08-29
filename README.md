@@ -1,3 +1,7 @@
+**Do Manchester United still believe in the Ruben Amorim project?**\
+`The whole situation is starting to look bleak and, in that respect, horribly familiar.`\
+https://nytimes.com/athletic/6582874/2025/08/29/garnacho-mainoo-amorim-man-utd/
+
 **Why FM25 was cancelled: 'Pulling the game was absolutely the right thing to do'**\
 `Sports Interactive boss Miles Jacobson talks about shelving the release of FM25 and why his team expect to redeem themselves with FM26`\
 https://nytimes.com/athletic/6564634/2025/08/29/miles-jacobson-football-manager-interview-fm25-fm26/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/29/us/politics/trump-federal-workers-union-protectio
 **FPL: How to replace big-name assets, from Saka and Palmer to Wirtz and Watkins**\
 `Even the most reliable, high-ownership FPL players can quickly become headaches when form dips, injuries strike, or fixtures turn sour`\
 https://nytimes.com/athletic/6577489/2025/08/29/fantasy-premier-league-transfers-gameweek-three-palmer-saka/
-
-**Do Manchester United still believe in the Ruben Amorim project?**\
-`The whole situation is starting to look bleak and, in that respect, horribly familiar.`\
-https://nytimes.com/athletic/6582874/2025/08/29/garnacho-mainoo-amorim-man-utd/
 
