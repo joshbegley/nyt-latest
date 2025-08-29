@@ -1,3 +1,7 @@
+**Why Thailand’s Politics Are in Constant Crisis**\
+`While the country is a constitutional monarchy that holds regular elections, analysts say it is beholden to an unelected old guard.`\
+https://nytimes.com/2025/08/28/world/asia/thailand-politics-crisis.html
+
 **Jerry Jones' stubborn missteps led the Cowboys into this Micah Parsons trainwreck**\
 `Jones just got rid of one of the league's best players because of the owner's lack of urgency and miscalculations.`\
 https://nytimes.com/athletic/6582829/2025/08/28/jerry-jones-micah-parsons-trade/
@@ -7,7 +11,7 @@ https://nytimes.com/athletic/6582829/2025/08/28/jerry-jones-micah-parsons-trade/
 https://nytimes.com/athletic/6583077/2025/08/28/green-bay-packers-micah-parsons-trade-dallas-cowboys/
 
 **Jerry Jones discusses Cowboys trading star pass rusher Micah Parsons**\
-`Jerry Jones addressed the blockbuster deal Thursday that sent Parsons to Green Bay for two first-rounders and Kenny Clark.`\
+`Jerry Jones discussed the offer he made Parsons in April and the importance of adding Kenny Clark to help stop the run.`\
 https://nytimes.com/athletic/6582930/2025/08/28/cowboys-trade-micah-parsons-jerry-jones-comments/
 
 **Americans claim eight Diamond League wildcards for World Championships**\
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/28/world/asia/thailand-paetongtarn-shinawatra-verdic
 **Why Andre Pallante will remain in Cardinals rotation despite second-half struggles**\
 `"I'm definitely frustrated," Pallante said. "I want to give quality starts, good starts for this team so we go out there and win games."`\
 https://nytimes.com/athletic/6582072/2025/08/28/andre-pallante-cardinals-rotation-despite-struggles/
-
-**Inside the C.D.C., a Growing Sense of Despair**\
-`After six months of turmoil, the loss of the new director and a round of high-profile resignations marks a new low, some employees said.`\
-https://nytimes.com/2025/08/28/health/cdc-employees-director-trump-rfk-jr.html
 

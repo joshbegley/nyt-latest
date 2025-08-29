@@ -1,3 +1,11 @@
+**Why Thailand’s Politics Are in Constant Crisis**\
+`While the country is a constitutional monarchy that holds regular elections, analysts say it is beholden to an unelected old guard.`\
+https://nytimes.com/2025/08/28/world/asia/thailand-politics-crisis.html
+
+**Jerry Jones discusses Cowboys trading star pass rusher Micah Parsons**\
+`Jerry Jones discussed the offer he made Parsons in April and the importance of adding Kenny Clark to help stop the run.`\
+https://nytimes.com/athletic/6582930/2025/08/28/cowboys-trade-micah-parsons-jerry-jones-comments/
+
 **Jerry Jones' stubborn missteps led the Cowboys into this Micah Parsons trainwreck**\
 `Jones just got rid of one of the league's best players because of the owner's lack of urgency and miscalculations.`\
 https://nytimes.com/athletic/6582829/2025/08/28/jerry-jones-micah-parsons-trade/
