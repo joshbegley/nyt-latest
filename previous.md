@@ -1,3 +1,19 @@
+**Marinakis says Nuno is right man for Forest and confirms planned meeting**\
+`Nuno’s future had been cast into doubt a week ago when he stated that his relationship with Marinakis had "changed".`\
+https://nytimes.com/athletic/6584044/2025/08/29/marinakis-nottingham-forest-nuno-future/
+
+**The Windup: Schwarber's 4-homer outing completed an MLB first**\
+`Welcome to The Windup, The Athletic's MLB newsletter.`\
+https://nytimes.com/athletic/6583583/2025/08/29/kyle-schwarber-4-home-runs-the-windup/
+
+**Take our Week 1 college football quiz and catch up on what you need to know**\
+`Take our Ohio State-Texas quiz and catch up on your reading ahead of college football's jam-packed Week 1.`\
+https://nytimes.com/athletic/6581692/2025/08/29/college-football-week-1-quiz-reads-osu-texas/
+
+**Yeremy Pino to Crystal Palace: Everything you need to know - TLDR**\
+`The 22-year-old Spain international forward has moved to Selhurst Park from La Liga side Villarreal - we break down the deal...`\
+https://nytimes.com/athletic/6581143/2025/08/29/yeremy-pino-crystal-palace-transfer/
+
 **Britain Bars Israeli Government From a Leading Arms Trade Fair**\
 `The British government said it was acting in response to Israel’s escalating military operation in Gaza. Israel condemned the decision.`\
 https://nytimes.com/2025/08/29/world/europe/uk-israel-military-trade-fair.html
@@ -21,20 +37,4 @@ https://nytimes.com/2025/08/29/world/middleeast/israel-gaza-city-combat-zone.htm
 **Palace complete signing of Pino from Villarreal**\
 `The 22-year-old Spain international has joined the Premier League club for a fee in excess of €25million (£21.5m).`\
 https://nytimes.com/athletic/6584037/2025/08/29/crystal-palace-sign-yeremy-pino-villarreal/
-
-**Thai Court Dismisses Prime Minister Over Ethics Violation**\
-`The Constitutional Court in Bangkok permanently removed Prime Minister Paetongtarn Shinawatra from office over charges stemming from a conversation she had with the Cambodian leader Hun Sen, which raised questions about her loyalty.`\
-https://nytimes.com/video/world/asia/100000010368348/thai-court-dismisses-prime-minister-over-ethics-violation.html
-
-**Weapons to Start Flowing to Ukraine Under European Deal With Trump**\
-`A package of U.S. cruise missiles is among the first shipments of purchases by NATO allies to be sent to the embattled country.`\
-https://nytimes.com/2025/08/29/world/europe/ukraine-weapons-europe-purchases.html
-
-**Liverpool's Tsimikas given permission to undergo Roma medical ahead of loan move**\
-`Tsimikas was expected to leave before the end of the summer transfer window, as reported by The Athletic in June.`\
-https://nytimes.com/athletic/6584009/2025/08/29/liverpool-defender-kostas-tsimikas-medical-ahead-of-loan-to-roma-agreed/
-
-**Palace set to sign Toulouse defender Jaydee Canvot**\
-`The clubs have agreed in principle an upfront fee of €23m with €3.5m in add-ons, with Toulouse maintaining a 15 per cent sell-on clause.`\
-https://nytimes.com/athletic/6534333/2025/08/29/jaydee-canvot-crystal-palace-transfer/
 

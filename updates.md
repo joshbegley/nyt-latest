@@ -1,3 +1,19 @@
+**Marinakis says Nuno is right man for Forest and confirms planned meeting**\
+`Nuno’s future had been cast into doubt a week ago when he stated that his relationship with Marinakis had "changed".`\
+https://nytimes.com/athletic/6584044/2025/08/29/marinakis-nottingham-forest-nuno-future/
+
+**The Windup: Schwarber's 4-homer outing completed an MLB first**\
+`Welcome to The Windup, The Athletic's MLB newsletter.`\
+https://nytimes.com/athletic/6583583/2025/08/29/kyle-schwarber-4-home-runs-the-windup/
+
+**Take our Week 1 college football quiz and catch up on what you need to know**\
+`Take our Ohio State-Texas quiz and catch up on your reading ahead of college football's jam-packed Week 1.`\
+https://nytimes.com/athletic/6581692/2025/08/29/college-football-week-1-quiz-reads-osu-texas/
+
+**Yeremy Pino to Crystal Palace: Everything you need to know - TLDR**\
+`The 22-year-old Spain international forward has moved to Selhurst Park from La Liga side Villarreal - we break down the deal...`\
+https://nytimes.com/athletic/6581143/2025/08/29/yeremy-pino-crystal-palace-transfer/
+
 **Britain Bars Israeli Government From a Leading Arms Trade Fair**\
 `The British government said it was acting in response to Israel’s escalating military operation in Gaza. Israel condemned the decision.`\
 https://nytimes.com/2025/08/29/world/europe/uk-israel-military-trade-fair.html
