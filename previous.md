@@ -1,3 +1,11 @@
+**Pentagon Is Reinstalling Portrait of Confederate General at West Point Library**\
+`The Pentagon is putting back up a portrait of Gen. Robert E. Lee at the military academy, as the Trump administration seeks to restore honors for American figures who fought to preserve slavery.`\
+https://nytimes.com/2025/08/28/us/politics/pentagon-trump-confederate-lee-west-point.html
+
+**Taylor Swift, Kelce brothers, Patrick Mahomes attend Cincinnati-Nebraska**\
+`Cincinnati kicked off its 2025 season Thursday night against Nebraska at Arrowhead Stadium, but the real focus was on the stands.`\
+https://nytimes.com/athletic/6583252/2025/08/28/taylor-swift-travis-kelce-patrick-mahomes-cincinnati-nebraska/
+
 **YouTube TV, Fox announce agreement on carriage deal ahead of football season**\
 `The deal ends a dispute that could have left subscribers without access to sports content ahead of football season.`\
 https://nytimes.com/athletic/6583278/2025/08/28/youtube-tv-fox-agreement-football-season/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6583164/2025/08/28/us-open-coco-gauff-donna-vekic-s
 **Salmonella Outbreak Linked to Eggs Sickens 95 People**\
 `The outbreak, which was traced to eggs distributed in California and Nevada, has spread to 14 states, according to the C.D.C.`\
 https://nytimes.com/2025/08/28/well/eat/salmonella-outbreak-country-eggs-california-nevada.html
-
-**Jung Hoo Lee collects first walk-off hit, Giants display core strength while sweeping Cubs**\
-`San Francisco's best players have led the way during their five-game winning streak: "When you look to the future, that's nice."`\
-https://nytimes.com/athletic/6582921/2025/08/28/sf-giants-jung-hoo-lee-walk-off-core-strength/
-
-**After years of delays, civil trial between Angels and the family of Tyler Skaggs set for September**\
-`In preparation for trial, the Skaggs family hired attorney Shawn Holley to be co-lead counsel with Rusty Hardin.`\
-https://nytimes.com/athletic/6583166/2025/08/28/angels-tyler-skaggs-civil-trial-date-set/
 
