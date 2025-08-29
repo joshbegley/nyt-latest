@@ -1,3 +1,15 @@
+**Goals, assists and marketability: What Xavi Simons will bring to Spurs**\
+`Simons will add depth and a sprinkling of magic to unlock every type of team - it is a statement signing for Spurs and Frank `\
+https://nytimes.com/athletic/6584149/2025/08/29/xavi-simons-tottenham-transfer-leipzig/
+
+**Crystal Palace's Conference League draw: Trips to Lublin and Dublin, but Kyiv may be awkward**\
+`Palace's first European campaign will also see them host teams from Finland and Cyprus, and visit Chelsea's French sister club`\
+https://nytimes.com/athletic/6583911/2025/08/29/crystal-palace-conference-league-fixtures-opponents/
+
+**Defying Congress, Trump Moves to Cut $4.9 Billion in Foreign Aid**\
+`The White House notified Congress that it plans to use a legally untested maneuver to circumvent lawmakers and claw back more money for foreign aid programs.`\
+https://nytimes.com/2025/08/29/us/politics/defying-congress-trump-moves-to-cut-4-9-billion-in-foreign-aid.html
+
 **How the Micah Parsons trade to the Packers affects the Bears, Lions and Vikings**\
 `The blockbuster deal sending Parsons from Dallas to Green Bay has sent shockwaves through the NFL. How will it affect the NFL North?`\
 https://nytimes.com/athletic/6584137/2025/08/29/micah-parsons-trade-packers-nfc-north-lions-bears-vikings/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6584250/2025/08/29/unai-emery-aston-villa-signings-
 **The Spanish Coastline That Feels Like a Dream**\
 `Much of Salvador Dalí’s work was inspired by the Costa Brava’s natural splendor. This less-explored stretch of the Mediterranean is as bewitching as ever.`\
 https://nytimes.com/2025/08/29/t-magazine/costa-brava-spain-hotels-restaurants.html
-
-**Kevin De Bruyne’s Napoli home debut and an embattled Old Firm: Weekend European preview**\
-`A round up of the best action from around Europe's biggest and best leagues this weekend`\
-https://nytimes.com/athletic/6584110/2025/08/29/kevin-de-bruyne-napoli-lyon-dortmund/
-
-**Tim Connelly opts into final 2 years of contract with Timberwolves**\
-`In three seasons, Connelly has been one of the busiest team presidents in the league, working feverishly to remake the Wolves roster.`\
-https://nytimes.com/athletic/6582040/2025/08/29/tim-connelly-timberwolves-opts-contract/
-
-**Dolphins coach Ryan Crow arrested on domestic battery charge, placed on administrative leave**\
-`Crow, 37, was entering his second season with the Dolphins`\
-https://nytimes.com/athletic/6584155/2025/08/29/dolphins-coach-ryan-crow-arrest/
 
