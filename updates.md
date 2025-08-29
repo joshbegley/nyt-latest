@@ -1,3 +1,7 @@
+**Blue Jays’ Yimi García to undergo season-ending surgery. How will they fill his role?**\
+`Toronto will need to add another reliever, with Braydon Fisher possibly being an option to increase the team's bullpen depth.`\
+https://nytimes.com/athletic/6584778/2025/08/29/blue-jays-yimi-garcia-injury-bullpen/
+
 **For Democrats, Hindsight Is 2021**\
 `Democrats once had a chance to blunt a couple of the moves President Trump is making now, on redistricting and the takeover of the police force in Washington, D.C.`\
 https://nytimes.com/2025/08/29/us/politics/trump-democrats-dc-takeover-redistricting.html

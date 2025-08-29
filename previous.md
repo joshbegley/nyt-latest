@@ -22,7 +22,7 @@ https://nytimes.com/athletic/6585003/2025/08/29/nottingham-forest-transfer-news-
 `Following Texas, Gov. Mike Kehoe called a special legislative session to redraw his state’s Congressional district lines to boost Republicans.`\
 https://nytimes.com/2025/08/29/us/missouri-governor-redistricting-maps.html
 
-**Blue Jays place Yimi García on the IL. How will they fill his bullpen role?**\
+**Blue Jays’ Yimi García to undergo season-ending surgery. How will they fill his role?**\
 `Toronto will need to add another reliever, with Braydon Fisher possibly being an option to increase the team's bullpen depth.`\
 https://nytimes.com/athletic/6584778/2025/08/29/blue-jays-yimi-garcia-injury-bullpen/
 
