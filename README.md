@@ -1,3 +1,15 @@
+**James Turrell Is Still Following the Light**\
+`The artist is exhibiting five new installations in Seoul, but then there is a volcano in Arizona he has to get back to.`\
+https://nytimes.com/2025/08/29/arts/design/james-turrell-exhibition-seoul.html
+
+**Frieze House Seoul Gives Art Fair a Permanent Presence**\
+`The new space will extend Frieze Seoul’s presence beyond a few days a year. “People want to engage with the audience here longer,” said the fair’s director.`\
+https://nytimes.com/2025/08/29/arts/frieze-house-seoul.html
+
+**Ssense Seeks Bankruptcy Protection as Luxury E-Commerce Falters**\
+`The retailer based in Montreal cited a lender-driven sale process and the end of the de minimis loophole as final blows.`\
+https://nytimes.com/2025/08/29/style/ssense-bankruptcy.html
+
 **Man United agree deal with Napoli for Hojlund loan with €44m obligation**\
 `But Hojlund, is still to agree to the move. He has expressed his desire to stay at United but has been left out of three matchday squads.`\
 https://nytimes.com/athletic/6545070/2025/08/29/rasmus-hojlund-transfer-man-utd-napoli/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6584638/2025/08/29/miami-adarius-hayes-charged-car-
 **Red Sox release Walker Buehler as rookie Payton Tolle steps into rotation**\
 `The Red Sox parted ways with Buehler, who never got on track after signing as a free agent in the offseason.`\
 https://nytimes.com/athletic/6584619/2025/08/29/red-sox-walker-buehler-release-payton-tolle/
-
-**Frank Price, a Studio Chief Several Times Over, Dies at 95**\
-`He ran Universal’s television and movie businesses and had two stints at Columbia. Running a studio, he said, was “sort of like being the head of a small country.”`\
-https://nytimes.com/2025/08/29/movies/frank-price-dead.html
-
-**Who were the biggest dynasty league winners and losers of the preseason?**\
-`Jeff Haverlack identifies the biggest dynasty market movers of the preseason, including a Browns back who he thinks is a steal of a deal.`\
-https://nytimes.com/athletic/6584565/2025/08/29/dynasty-league-football-winers-losers-preseason-jsn-jcm/
-
-**Challenge Emerges to Two Trump-Appointed Prosecutors**\
-`The federal public defender's office challenged the legality of allowing the U.S. attorneys in Los Angeles and Las Vegas to continue in their jobs without congressional approval.`\
-https://nytimes.com/2025/08/29/us/us-attorney-los-angeles-nevada-challenge.html
 
