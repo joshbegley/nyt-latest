@@ -1,3 +1,15 @@
+**Live Q&A: Preview college football Week 1 with Scott Dochterman at 10:30 a.m. ET Saturday**\
+`Come chat about Ohio State-Texas, Clemson-LSU and all things college football with Scott Dochterman ahead of kickoff Saturday.`\
+https://nytimes.com/athletic/6581885/2025/08/29/college-football-pregame-live-qa-week-1/
+
+**Watching Cam Ward: Streaming, broadcast and schedule updates for 2025 Tennessee Titans**\
+`Here's how to watch every Tennessee Titans game, and No. 1 pick Cam Ward, in the forthcoming 2025 season.`\
+https://nytimes.com/athletic/6575085/2025/08/29/tennessee-titans-cam-ward-how-to-watch-2025/
+
+**Should My Husband Praise My Looks More?**\
+`A ruling on how to give and take compliments in a marriage.`\
+https://nytimes.com/interactive/2025/08/29/magazine/spouse-compliments-hodgman-quiz.html
+
 **Emil Bove Continued to Work at Justice Dept. After Judicial Confirmation**\
 `The code of conduct for federal judges does not appear to apply to Mr. Bove, who has yet to be sworn in. But his continued presence at the department has raised eyebrows.`\
 https://nytimes.com/2025/08/29/us/politics/emil-bove-justice-department.html
