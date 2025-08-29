@@ -1,3 +1,11 @@
+**Saka out 'for a few weeks' but does not require surgery - Arteta**\
+`Saka was replaced by Leandro Trossard in Arsenal's 5-0 win over Leeds after appearing to sustain a left hamstring injury.`\
+https://nytimes.com/athletic/6571497/2025/08/29/bukayo-sako-injury-update-arsenal-odegaard/
+
+**Amorim: ‘Sometimes I’m going to say I hate my players. I’m going to be who I am’**\
+`"Sometimes I love my players," Amorim added, speaking ahead of Manchester United's home game against Burnley on Saturday.`\
+https://nytimes.com/athletic/6583974/2025/08/29/manchester-united-ruben-amorim-players/
+
 **Fed’s Preferred Inflation Gauge Stayed Stable in July**\
 `The latest economic data keeps the central bank on track to lower interest rates at its next meeting in September.`\
 https://nytimes.com/2025/08/29/business/pce-inflation-fed.html

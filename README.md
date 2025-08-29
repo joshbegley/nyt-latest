@@ -1,3 +1,11 @@
+**How to Ship Your Car (and Why It May Save You Time and Money)**\
+`Having your vehicle transported a long distance is sometimes necessary, and it can be more efficient than driving it yourself.`\
+https://nytimes.com/2025/08/29/business/car-shipping.html
+
+**Palmer out of Chelsea vs Fulham with groin injury**\
+`Earlier on Friday, Palmer was left out of the England squad for next month's World Cup qualifiers.`\
+https://nytimes.com/athletic/6583987/2025/08/29/cole-palmer-injury-chelsea-fulham/
+
 **Saka out 'for a few weeks' but does not require surgery - Arteta**\
 `Saka was replaced by Leandro Trossard in Arsenal's 5-0 win over Leeds after appearing to sustain a left hamstring injury.`\
 https://nytimes.com/athletic/6571497/2025/08/29/bukayo-sako-injury-update-arsenal-odegaard/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6499298/2025/08/29/zinchenko-arsenal-transfer-marse
 **Tran Trong Duyet, John McCain’s Captor at the ‘Hanoi Hilton,’ Dies at 93**\
 `Mr. Duyet endorsed Mr. McCain’s presidential bid in 2008 after insisting no Americans were tortured under his watch in the Vietnam War.`\
 https://nytimes.com/2025/08/29/world/asia/vietnam-tran-trong-duyet-obituary.html
-
-**College Football Playoff 2025 projections: Our model's best odds to make the bracket**\
-`Our College Football Playoff predictions model is back. Check here for regular updates on CFP and national championship odds for 2025.`\
-https://nytimes.com/athletic/6560541/2025/08/29/college-football-playoff-bracket-projections-odds/
-
-**Father of Child Killed in Minnesota Shooting Gives Emotional Eulogy**\
-`Fletcher Merkel, 8, was one of two children fatally shot on Wednesday at a back-to-school Mass at Annunciation Catholic Church. Fifteen other children and three adults were injured in the attack.`\
-https://nytimes.com/video/us/100000010368343/minnesota-victim-father-eulogy-.html
 
