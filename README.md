@@ -1,3 +1,11 @@
+**Christian Pulisic scores for Milan in final game before his USMNT return**\
+`Pulisic came off the bench to ice Milan's win over Lecce with his second goal in all competitions this season`\
+https://nytimes.com/athletic/6584868/2025/08/29/christian-pulisic-goal-video-milan-lecce-usmnt/
+
+**Bournemouth owner Bill Foley's Black Knight in talks to buy stake in Croatian club HNK Rijeka**\
+`Rijeka would be the sixth club to join Foley's ownership group, which includes Premier League side Bournemouth `\
+https://nytimes.com/athletic/6584851/2025/08/29/hnk-rijeka-bournemouth-bill-foley-black-knight/
+
 **Ben Shelton retires from U.S. Open with left shoulder injury against Adrian Mannarino**\
 `The American No. 6 seed had led Adrian Mannarino of France 2-1 when he hurt his hitting arm shoulder during an intensely physical contest.`\
 https://nytimes.com/athletic/6584765/2025/08/29/ben-shelton-us-open-out-injury-shoulder/
@@ -30,12 +38,4 @@ https://nytimes.com/2025/08/29/arts/design/james-turrell-exhibition-seoul.html
 **Frieze House Seoul Gives Art Fair a Permanent Presence**\
 `The new space will extend Frieze Seoul’s presence beyond a few days a year. “People want to engage with the audience here longer,” said the fair’s director.`\
 https://nytimes.com/2025/08/29/arts/frieze-house-seoul.html
-
-**Ssense Seeks Bankruptcy Protection as Luxury E-Commerce Falters**\
-`The retailer based in Montreal cited a lender-driven sale process and the end of the de minimis loophole as final blows.`\
-https://nytimes.com/2025/08/29/style/ssense-bankruptcy.html
-
-**Man United agree deal with Napoli for Hojlund loan with €44m obligation**\
-`But Hojlund, is still to agree to the move. He has expressed his desire to stay at United but has been left out of three matchday squads.`\
-https://nytimes.com/athletic/6545070/2025/08/29/rasmus-hojlund-transfer-man-utd-napoli/
 
