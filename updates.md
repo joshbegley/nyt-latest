@@ -1,3 +1,11 @@
+**What Thomas Tuchel's latest England squad tells us: Full-back battle ahead, no Bellingham issue**\
+`Tuchel has picked his squad for World Cup qualifiers against Andorra and Serbia - so what can we learn?`\
+https://nytimes.com/athletic/6584067/2025/08/29/what-thomas-tuchels-latest-england-squad-tells-us-full-back-battle-ahead-no-bellingham-issue/
+
+**Emery targeting 'two to three' signings for Villa before deadline**\
+`Villa have signed only two players this summer, with 14 leaving. `\
+https://nytimes.com/athletic/6584250/2025/08/29/unai-emery-aston-villa-signings-transfer-window/
+
 **The Spanish Coastline That Feels Like a Dream**\
 `Much of Salvador Dalí’s work was inspired by the Costa Brava’s natural splendor. This less-explored stretch of the Mediterranean is as bewitching as ever.`\
 https://nytimes.com/2025/08/29/t-magazine/costa-brava-spain-hotels-restaurants.html
