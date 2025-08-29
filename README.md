@@ -1,10 +1,18 @@
+**Trump Administration Weighs Having Military Lawyers Work as Immigration Judges**\
+`No final decision has been made, but the proposal comes as President Trump increasingly uses the military in various aspects of domestic life.`\
+https://nytimes.com/2025/08/29/us/politics/military-lawyers-immigration-judges.html
+
+**Families of Minnesota Shooting Victims Pay Loving Tributes**\
+`The impact of the deaths of Fletcher Merkel, 8, and Harper Moyski, 10, and the injuries sustained by 18 others are only beginning to be felt.`\
+https://nytimes.com/2025/08/29/us/minneapolis-shooting-victims-families.html
+
 **Padres' Xander Bogaerts could miss rest of regular season with fractured left foot**\
 `An extended absence for San Diego's shortstop could reduce its chances of winning a division title for the first time since 2006.`\
 https://nytimes.com/athletic/6584871/2025/08/29/padres-xander-bogaerts-injury/
 
 **Read the appeals court ruling on Trump’s tariffs.**\
 `An appeals court ruled on Friday that many of President Trump’s most punishing tariffs are illegal, delivering a major new setback to the administration’s global trade war.`\
-https://nytimes.com/interactive/2025/08/29/us/orderandissuance.html
+https://nytimes.com/interactive/2025/08/29/us/appeals-court-trump-tariffs-ruling.html
 
 **How the Trump-Kennedy Alliance Is Pushing the Boundaries of Public Health**\
 `The mutually beneficial relationship between President Trump and Robert F. Kennedy Jr. is based on a striking alignment of some of their views.`\
@@ -29,12 +37,4 @@ https://nytimes.com/2025/08/29/us/politics/appeals-court-protected-status-venezu
 **Bookie for Shohei Ohtani's ex-interpreter gets 1-year prison sentence**\
 `Bowyer must pay $1.6 million in restitution after running an illegal gambling business. Shohei Ohtani’s ex-interpreter was a client.`\
 https://nytimes.com/athletic/6584726/2025/08/29/mathew-bowyer-bookmaker-shohei-ohtani-interpreter/
-
-**Appeals Court: Many Trump Tariffs Are Illegal**\
-`Also, Hurricane Katrina’s legacy. Here’s the latest at the end of Friday.`\
-https://nytimes.com/2025/08/29/briefing/tariffs-recission-katrina.html
-
-**Forest close to signing Botafogo goalkeeper Victor**\
-`The Premier League club are pushing to sign 29-year-old Victor to bolster their goalkeeper options.`\
-https://nytimes.com/athletic/6585003/2025/08/29/nottingham-forest-transfer-news-john-victor/
 
