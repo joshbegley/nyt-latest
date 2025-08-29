@@ -1,3 +1,23 @@
+**Students Call for More Protests in Indonesia After Fatal Clash With Police**\
+`Rising unemployment and inflation have driven the protests in Jakarta, the capital. The police responded with force on Thursday, killing a 21-year-old man.`\
+https://nytimes.com/2025/08/29/world/asia/indonesia-protests-inflation.html
+
+**Palace are through - now come the realities of European football**\
+`Oliver Glasner's team did what they had to do in Norway - now he needs backing with new arrivals if his squad are to flourish this season`\
+https://nytimes.com/athletic/6579328/2025/08/29/crystal-palace-europe-conference-league-glasner-guehi/
+
+**FPL live Q&A: Gameweek Three advice from Ben Dinnery**\
+`Ben Dinnery will be on hand today to talk you through the players to target, who to avoid, and the injury doubts you need to be aware of`\
+https://nytimes.com/athletic/6582884/2025/08/29/fantasy-premier-league-live-qa-gameweek-three-advice-from-ben-dinnery/
+
+**Tottenham set to complete €60m signing of Leipzig’s Simons**\
+`Personal terms are also in place and Simons has completed a medical ahead of finalising the proposed transfer to the north London side.`\
+https://nytimes.com/athletic/6581114/2025/08/29/xavi-simons-tottenham-transfer/
+
+**Rodion Shchedrin, Composer Who Captured Russia’s Soul, Dies at 92**\
+`Mr. Shchedrin drew on Russian literature for stage works and was an eager experimenter, inspired by folk tales, religious mysticism and melodrama.`\
+https://nytimes.com/2025/08/29/arts/rodion-shchedrin-dead.html
+
 **Tottenham set to complete €60m signing of Leipzig’s Simons**\
 `Personal terms are also in place and Simons has completed a medical ahead of finalising the proposed transfer to the north London club.`\
 https://nytimes.com/athletic/6581114/2025/08/29/xavi-simons-tottenham-transfer/
