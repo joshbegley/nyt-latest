@@ -1,3 +1,31 @@
+**Living with Katrina**\
+`The storm made landfall 20 years ago today. What’s happened since then?`\
+https://nytimes.com/2025/08/29/briefing/hurricane-katrina-20-years.html
+
+**Elche in talks with Man Utd over Malacia deal**\
+`Malacia was the first signing made by Erik ten Hag at United, playing 47 games for the club in a spell disrupted by a serious knee injury.`\
+https://nytimes.com/athletic/6424404/2025/08/29/manchester-united-transfers-tyrell-malacia-elche/
+
+**Death Valley duel: How to watch LSU vs. Clemson in a top-10 Week 1 matchup**\
+`Tiger-on-Tiger drama. Two Heisman hopefuls at quarterback. What a cool mirror match to start the college football season.`\
+https://nytimes.com/athletic/6582958/2025/08/29/lsu-clemson-death-valley-tigers-cfb-how-to-watch/
+
+**Alexander-Arnold out of England squad; Spence, Rashford in**\
+`Adam Wharton has also been recalled by Thomas Tuchel ahead of games against Serbia and Andorra.`\
+https://nytimes.com/athletic/6583785/2025/08/29/alexander-arnold-england-squad-september/
+
+**Phillies find catharsis in a 'character win' as homers rain at Citizens Bank Park**\
+`For a few hours in South Philly on Thursday, amid four Schwarbombs, it was easy to forget what the beginning of the week felt like. `\
+https://nytimes.com/athletic/6583441/2025/08/29/phillies-seven-homers-kyle-schwarber-braves/
+
+**The role of Alex Guerrero, Tom Brady's longtime body coach, as Raiders' 'wellness coordinator'**\
+`Guerrero officially joined the staff as a "wellness coordinator" this past offseason.`\
+https://nytimes.com/athletic/6580502/2025/08/29/alex-guerrero-tom-brady-wellness-coordinator/
+
+**Minor league strikeout king Jonah Tong ready for MLB debut with Mets**\
+`Tong, 22, has led the minor leagues in ERA and strikeouts. On Friday, he'll make his major-league debut.`\
+https://nytimes.com/athletic/6583365/2025/08/29/jonah-tong-mets-debut-mlb/
+
 **Buckley: Red Sox are playing, talking a good game**\
 `Coming off a trip in which they won seven of eight games, the Sox seem to have the sea legs they'll need to play in October.`\
 https://nytimes.com/athletic/6583191/2025/08/29/boston-red-sox-surge-playoff-push/
@@ -9,32 +37,4 @@ https://nytimes.com/athletic/6576117/2025/08/29/twins-top-prospect-walker-jenkin
 **NFC West preview: Re-tooled 49ers and revived Rams headline a deep division**\
 `Plus, the Seahawks bank on elite defense and Sam Darnold leading a revamped offense.`\
 https://nytimes.com/athletic/6581169/2025/08/29/nfc-west-predicted-standings-win-totals/
-
-**TAFC: Where did Football Manager go? Plus: Mourinho leaves Fenerbahce, Chelsea agree Garnacho fee**\
-`Today in TAFC: What happened to FM25? Mourinho leaves Fenerbahce, Garnacho could be on his way to Chelsea, Son's impact on MLS.`\
-https://nytimes.com/athletic/6583675/2025/08/29/football-manager-mourinho-fenerbahce-chelsea-garnacho/
-
-**Burning Bulls questions: Retiring Derrick Rose's jersey? Matas Buzelis' ceiling?**\
-`With training camp rapidly approaching for the Bulls, there are some questions that need answers on and off the court.`\
-https://nytimes.com/athletic/6581560/2025/08/29/bulls-questions-derrick-rose-matas-buzelis/
-
-**Blue Jays' Shane Bieber returned with a new weapon, embracing new MLB trend**\
-`Toronto's new righty has always been a breaking ball artist. Now he has a new off-speed pitch in his arsenal.`\
-https://nytimes.com/athletic/6582777/2025/08/29/blue-jays-shane-bieber-changeup-mlb-trend/
-
-**AFC North preview: Ravens ready to run it back for another division title, Bengals gaining fast**\
-`Plus, can Aaron Rodgers raise the Steelers’ ceiling?`\
-https://nytimes.com/athletic/6583398/2025/08/29/afc-north-predicted-standings-win-totals/
-
-**USC football thoughts: Uncertainty at QB, concern on the O-line, quality at RB**\
-`If things break the right way and USC finds a way to win the close games, this could be a nine-win team. `\
-https://nytimes.com/athletic/6582546/2025/08/29/usc-football-prediction-2025-lincoln-riley/
-
-**College football coaches stress the importance of the 'middle 8.' How pivotal is it?**\
-`An emphasis popularized by Bill Belichick remains a talking point for coaches. We looked at its effect.`\
-https://nytimes.com/athletic/6581899/2025/08/29/college-football-middle-eight-strategy-georgia-notre-dame/
-
-**The Athletic’s Friday football quiz question #70**\
-`Can you answer the weekly poser plucked from deep inside The Athletic's trivia vaults?`\
-https://nytimes.com/athletic/6576481/2025/08/29/the-athletics-friday-football-quiz-question-70/
 
