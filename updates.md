@@ -1,3 +1,15 @@
+**Patriots cut Jabrill Peppers, veteran safety and former captain**\
+`In a huge surprise just ahead of the season opener, New England is releasing the 29-year-old Peppers, a stalwart of their defense.`\
+https://nytimes.com/athletic/6584428/2025/08/29/patriots-cut-jabrill-peppers/
+
+**Grand Juries in D.C. Reject Prosecutors’ Efforts to Level Harsh Charges Against Residents**\
+`The failure of the U.S. attorney’s office in Washington to obtain indictments in at least three separate cases — in some incidents that were clearly captured on video — is all but unheard-of.`\
+https://nytimes.com/2025/08/29/us/politics/dc-grand-juries-indictments.html
+
+**Try Spending Two Minutes With This Painting**\
+`Our reporter Larry Buchanan invites you to spend time staring at a single work by the surrealist painter Gertrude Abercrombie, guiding you through the painting and revealing how Abercrombie used her art to bring you inside her mind.`\
+https://nytimes.com/video/upshot/100000010360363/try-spending-two-minutes-with-this-painting.html
+
 **Mitch Marner opens up about threats, security concerns while with Leafs**\
 `After Toronto's second-round playoff exit in May, Marner was targeted by fans on social media and had his family's address posted online.`\
 https://nytimes.com/athletic/6584302/2025/08/29/mitch-marner-maple-leafs-golden-knights-threats/

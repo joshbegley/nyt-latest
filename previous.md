@@ -1,3 +1,15 @@
+**Patriots cut Jabrill Peppers, veteran safety and former captain**\
+`In a huge surprise just ahead of the season opener, New England is releasing the 29-year-old Peppers, a stalwart of their defense.`\
+https://nytimes.com/athletic/6584428/2025/08/29/patriots-cut-jabrill-peppers/
+
+**Grand Juries in D.C. Reject Prosecutors’ Efforts to Level Harsh Charges Against Residents**\
+`The failure of the U.S. attorney’s office in Washington to obtain indictments in at least three separate cases — in some incidents that were clearly captured on video — is all but unheard-of.`\
+https://nytimes.com/2025/08/29/us/politics/dc-grand-juries-indictments.html
+
+**Try Spending Two Minutes With This Painting**\
+`Our reporter Larry Buchanan invites you to spend time staring at a single work by the surrealist painter Gertrude Abercrombie, guiding you through the painting and revealing how Abercrombie used her art to bring you inside her mind.`\
+https://nytimes.com/video/upshot/100000010360363/try-spending-two-minutes-with-this-painting.html
+
 **Super Bowl odds: Favorites remain, but Packers become a factor after Parsons trade**\
 `The Green Bay Packers surged in the odds to win the Super Bowl following the Micah Parsons trade, but the top tier of contenders is stable.`\
 https://nytimes.com/athletic/6584150/2025/08/29/super-bowl-odds-eagles-packers-parsons/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6584302/2025/08/29/mitch-marner-maple-leafs-golden-
 **Goals, assists and marketability: What Xavi Simons will bring to Spurs**\
 `Simons will add depth and a sprinkling of magic to unlock every type of team - it is a statement signing for Spurs and Frank `\
 https://nytimes.com/athletic/6584149/2025/08/29/xavi-simons-tottenham-transfer-leipzig/
-
-**Crystal Palace's Conference League draw: Trips to Lublin and Dublin, but Kyiv may be awkward**\
-`Palace's first European campaign will also see them host teams from Finland and Cyprus, and visit Chelsea's French sister club`\
-https://nytimes.com/athletic/6583911/2025/08/29/crystal-palace-conference-league-fixtures-opponents/
-
-**Defying Congress, Trump Moves to Cut $4.9 Billion in Foreign Aid**\
-`The White House notified Congress that it plans to use a legally untested maneuver to circumvent lawmakers and claw back more money for foreign aid programs.`\
-https://nytimes.com/2025/08/29/us/politics/trump-foreign-aid.html
-
-**How the Micah Parsons trade to the Packers affects the Bears, Lions and Vikings**\
-`The blockbuster deal sending Parsons from Dallas to Green Bay has sent shockwaves through the NFL. How will it affect the NFL North?`\
-https://nytimes.com/athletic/6584137/2025/08/29/micah-parsons-trade-packers-nfc-north-lions-bears-vikings/
 
