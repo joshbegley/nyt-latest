@@ -1,3 +1,11 @@
+**Why have Arsenal struggled to sell? Are they at risk of breaching spending rules?**\
+`Arsenal have significantly improved their squad this summer, but their outgoings have been limited - why is this? And is it a problem?`\
+https://nytimes.com/athletic/6581260/2025/08/29/arsenal-transfers-spending-sales-psr-uefa/
+
+**Premier League Predictions: Liverpool vs Arsenal, Leeds vs Newcastle and the rest of Matchday 3**\
+`Who's leading after MD2? And what do our writer, the algorithm, a child and this week's subscriber expect to see on MD3?`\
+https://nytimes.com/athletic/6575798/2025/08/29/premier-league-predictions-matchday-3/
+
 **Business of Football: The 'abomination' of games abroad, WhatsApp deals and a 100-year-old stand**\
 `Football can move at speed when it wants to - as Matt Slater reports in this week's column`\
 https://nytimes.com/athletic/6578414/2025/08/29/barcelona-uefa-business-football-whatsapp/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/08/29/style/modern-love-ghosted-by-my-own-husband.html
 **Connections: Sports Edition Coach: Hints for Aug. 29, 2025**\
 `Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
 https://nytimes.com/athletic/6581150/2025/08/29/connections-sports-edition-hints-for-aug-29-2025/
-
-**When a Walk Turns Into a 12-Hour Date**\
-`Sparks didn’t fly when Melissa Lee and Skylar Gibson met while moving into the same building. But after a few killed cockroaches and a trip to Guitar Center, they did.`\
-https://nytimes.com/2025/08/29/style/melissa-lee-skylar-gibson-wedding.html
-
-**The Fishwife Becomes a Musician’s Wife**\
-`Becca Millstein and Pete Martin met while working in a mailroom years before she founded a popular tinned fish company and his music career took off.`\
-https://nytimes.com/2025/08/29/style/fishwife-becca-millstein-pete-martin-wedding.html
 

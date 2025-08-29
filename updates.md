@@ -1,3 +1,11 @@
+**Why have Arsenal struggled to sell? Are they at risk of breaching spending rules?**\
+`Arsenal have significantly improved their squad this summer, but their outgoings have been limited - why is this? And is it a problem?`\
+https://nytimes.com/athletic/6581260/2025/08/29/arsenal-transfers-spending-sales-psr-uefa/
+
+**Premier League Predictions: Liverpool vs Arsenal, Leeds vs Newcastle and the rest of Matchday 3**\
+`Who's leading after MD2? And what do our writer, the algorithm, a child and this week's subscriber expect to see on MD3?`\
+https://nytimes.com/athletic/6575798/2025/08/29/premier-league-predictions-matchday-3/
+
 **Business of Football: The 'abomination' of games abroad, WhatsApp deals and a 100-year-old stand**\
 `Football can move at speed when it wants to - as Matt Slater reports in this week's column`\
 https://nytimes.com/athletic/6578414/2025/08/29/barcelona-uefa-business-football-whatsapp/

@@ -1,3 +1,15 @@
+**Trump Moves to Strip More Federal Workers of Union Protections**\
+`The pre-Labor Day order included NASA, the National Weather Service and the agency that oversees Voice of America.`\
+https://nytimes.com/2025/08/29/us/politics/trump-federal-workers-union-protections.html
+
+**FPL: How to replace big-name assets, from Saka and Palmer to Wirtz and Watkins**\
+`Even the most reliable, high-ownership FPL players can quickly become headaches when form dips, injuries strike, or fixtures turn sour`\
+https://nytimes.com/athletic/6577489/2025/08/29/fantasy-premier-league-transfers-gameweek-three-palmer-saka/
+
+**Do Manchester United still believe in the Ruben Amorim project?**\
+`The whole situation is starting to look bleak and, in that respect, horribly familiar.`\
+https://nytimes.com/athletic/6582874/2025/08/29/garnacho-mainoo-amorim-man-utd/
+
 **Why have Arsenal struggled to sell? Are they at risk of breaching spending rules?**\
 `Arsenal have significantly improved their squad this summer, but their outgoings have been limited - why is this? And is it a problem?`\
 https://nytimes.com/athletic/6581260/2025/08/29/arsenal-transfers-spending-sales-psr-uefa/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/08/29/business/us-tariffs-shipping-suspensions-de-minim
 **August in Paris: When the City Empties Out, Locals Left Behind Rejoice**\
 `With many away for long vacations, the capital is transformed into a sleepy, roomy, more friendly place.`\
 https://nytimes.com/2025/08/29/world/europe/paris-summer-vacations.html
-
-**China Is Trying to Expand Its Social Safety Net. Yet Many Chinese Are Worried.**\
-`A move to force employers to pay into benefits for their employees has left people worrying that small businesses will close and jobs will be lost.`\
-https://nytimes.com/2025/08/29/world/asia/china-social-security.html
-
-**Ghosted by My Own Husband**\
-`When our once boisterous household fell silent, I longed to hear the sound of my pet name.`\
-https://nytimes.com/2025/08/29/style/modern-love-ghosted-by-my-own-husband.html
-
-**Connections: Sports Edition Coach: Hints for Aug. 29, 2025**\
-`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
-https://nytimes.com/athletic/6581150/2025/08/29/connections-sports-edition-hints-for-aug-29-2025/
 
