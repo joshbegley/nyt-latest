@@ -1,3 +1,7 @@
+**UFC fight at the White House 'is on', says White after meeting in D.C.**\
+`President Donald Trump has long been a supporter of the UFC and White, and has regularly attended fights during his presidency.`\
+https://nytimes.com/athletic/6583727/2025/08/29/ufc-white-house-trump/
+
 **Living with Katrina**\
 `The storm made landfall 20 years ago today. What’s happened since then?`\
 https://nytimes.com/2025/08/29/briefing/hurricane-katrina-20-years.html

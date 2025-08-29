@@ -1,3 +1,7 @@
+**UFC fight at the White House 'is on', says White after meeting in D.C.**\
+`President Donald Trump has long been a supporter of the UFC and White, and has regularly attended fights during his presidency.`\
+https://nytimes.com/athletic/6583727/2025/08/29/ufc-white-house-trump/
+
 **Living with Katrina**\
 `The storm made landfall 20 years ago today. What’s happened since then?`\
 https://nytimes.com/2025/08/29/briefing/hurricane-katrina-20-years.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6583191/2025/08/29/boston-red-sox-surge-playoff-pus
 **A Twins prospect is doing what All-Star-caliber players do at 20**\
 `Jenkins reached Triple A at an age typically reserved for future All-Stars and he earned it with standout production at every level.`\
 https://nytimes.com/athletic/6576117/2025/08/29/twins-top-prospect-walker-jenkins-mlb/
-
-**NFC West preview: Re-tooled 49ers and revived Rams headline a deep division**\
-`Plus, the Seahawks bank on elite defense and Sam Darnold leading a revamped offense.`\
-https://nytimes.com/athletic/6581169/2025/08/29/nfc-west-predicted-standings-win-totals/
 
