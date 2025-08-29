@@ -1,3 +1,11 @@
+**Challenge Emerges to Two Trump-Appointed Prosecutors**\
+`The federal public defender's office challenged the legality of allowing the U.S. attorneys in Los Angeles and Las Vegas to continue in their jobs without congressional approval.`\
+https://nytimes.com/2025/08/29/us/us-attorney-los-angeles-nevada-challenge.html
+
+**Transportation Dept. Cancels $679 Million for Offshore Wind Projects**\
+`The Trump administration’s campaign against wind power continued as it targeted funding for marine terminals and ports to support development.`\
+https://nytimes.com/2025/08/29/climate/transportation-dept-cancels-679-million-wind-industry.html
+
 **What to Know About Kamala Harris’s Secret Service Protection**\
 `The Secret Service usually protects a former vice president for six months after they leave office.`\
 https://nytimes.com/2025/08/29/us/politics/secret-service-vice-presidents-harris-trump.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6584597/2025/08/29/little-league-world-series-bat-f
 **Trump Administration Bars Palestinian Officials From U.N. Meeting in New York**\
 `The United States generally allows foreign officials to attend the United Nations General Assembly. The administration’s move comes amid a new push for Palestinian statehood.`\
 https://nytimes.com/2025/08/29/us/politics/trump-palestinians-un.html
-
-**Venice Film Festival: Julia Roberts Courts Controversy**\
-`In “After the Hunt,” Roberts plays a professor weighing a fraught sexual-assault accusation. “Trouble’s where the juicy stuff is,” the star said.`\
-https://nytimes.com/2025/08/29/movies/venice-film-festival-julia-roberts-after-the-hunt.html
-
-**Conservatives Use Minneapolis Shooting in Anti-Transgender Campaigns**\
-`Activists are pointing to the attacker’s gender identity to falsely portray all transgender people as prone to mental illness and violence.`\
-https://nytimes.com/2025/08/29/us/politics/minneapolis-shooting-anti-transgender-conservatives-robin-westman.html
 
