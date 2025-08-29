@@ -1,3 +1,15 @@
+**Washington Governor Criticizes Border Patrol Arrests at Wildfire Site**\
+`Gov. Bob Ferguson demanded an explanation for the arrests of two contract workers at the site of a wildfire. Border Patrol said they were in the country illegally.`\
+https://nytimes.com/2025/08/29/us/border-patrol-arrest-washington-wildfire.html
+
+**Nebraska beats Cincinnati in Kansas City: Takeaways**\
+`The Nebraska unveiling in Year 3 under coach Matt Rhule, though rough around the edges, finished as a success.`\
+https://nytimes.com/athletic/6582619/2025/08/29/nebraska-cincinnati-score-result-takeaways/
+
+**The New York Times in Print for Friday, Aug. 29, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/08/29/todays-new-york-times
+
 **Appeals Court Declines to Block Trump From Freezing Foreign Aid**\
 `The court voted not to revisit a fight over billions in frozen funds, but simultaneously revised an earlier order to give nonprofits that sued a narrow path forward in the case.`\
 https://nytimes.com/2025/08/29/us/politics/appeals-court-trump-foreign-aid.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6577489/2025/08/29/fantasy-premier-league-transfers
 **Do Manchester United still believe in the Ruben Amorim project?**\
 `The whole situation is starting to look bleak and, in that respect, horribly familiar.`\
 https://nytimes.com/athletic/6582874/2025/08/29/garnacho-mainoo-amorim-man-utd/
-
-**Why have Arsenal struggled to sell? Are they at risk of breaching spending rules?**\
-`Arsenal have significantly improved their squad this summer, but their outgoings have been limited - why is this? And is it a problem?`\
-https://nytimes.com/athletic/6581260/2025/08/29/arsenal-transfers-spending-sales-psr-uefa/
-
-**Premier League Predictions: Liverpool vs Arsenal, Leeds vs Newcastle and the rest of Matchday 3**\
-`Who's leading after MD2? And what do our writer, the algorithm, a child and this week's subscriber expect to see on MD3?`\
-https://nytimes.com/athletic/6575798/2025/08/29/premier-league-predictions-matchday-3/
-
-**Business of Football: The 'abomination' of games abroad, WhatsApp deals and a 100-year-old stand**\
-`Football can move at speed when it wants to - as Matt Slater reports in this week's column`\
-https://nytimes.com/athletic/6578414/2025/08/29/barcelona-uefa-business-football-whatsapp/
 
