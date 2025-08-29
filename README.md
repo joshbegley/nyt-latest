@@ -1,3 +1,7 @@
+**Justin Verlander on what Kyle Tucker could still do for the Cubs: 'He can hit everything'**\
+`After a three-game benching/mental reset, Tucker is showing signs that he could be breaking out of the worst slump of his career.`\
+https://nytimes.com/athletic/6583253/2025/08/28/justin-verlander-kyle-tucker-cubs-giants/
+
 **Pentagon Is Reinstalling Portrait of Confederate General at West Point Library**\
 `The Pentagon is putting back up a portrait of Gen. Robert E. Lee at the military academy, as the Trump administration seeks to restore honors for American figures who fought to preserve slavery.`\
 https://nytimes.com/2025/08/28/us/politics/pentagon-trump-confederate-lee-west-point.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/28/us/politics/trump-denver-schools-transgender-bath
 **Coco Gauff beats Donna Vekić on a surreal, tearful night at the U.S. Open**\
 `Gauff managed her way to a 7-6(5), 6-2 win.`\
 https://nytimes.com/athletic/6583164/2025/08/28/us-open-coco-gauff-donna-vekic-serves/
-
-**Salmonella Outbreak Linked to Eggs Sickens 95 People**\
-`The outbreak, which was traced to eggs distributed in California and Nevada, has spread to 14 states, according to the C.D.C.`\
-https://nytimes.com/2025/08/28/well/eat/salmonella-outbreak-country-eggs-california-nevada.html
 
