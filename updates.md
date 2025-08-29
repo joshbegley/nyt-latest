@@ -1,3 +1,7 @@
+**Britain Bars Israeli Government From a Leading Arms Trade Fair**\
+`The British government said it was acting in response to Israel’s escalating military operation in Gaza. Israel condemned the decision.`\
+https://nytimes.com/2025/08/29/world/europe/uk-israel-military-trade-fair.html
+
 **Britain Bans Israeli Government from a Leading Arms Trade Fair**\
 `The British government said it was acting in response to Israel’s escalating military operation in Gaza. Israel condemned the decision.`\
 https://nytimes.com/2025/08/29/world/europe/uk-israel-military-trade-fair.html
