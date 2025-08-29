@@ -1,3 +1,7 @@
+**Trump Administration Live Updates: President Revokes Kamala Harris’s Secret Service Protection**\
+``\
+https://nytimes.com/live/2025/08/29/us/trump-news
+
 **Father of Child Killed in Minnesota Shooting Gives Emotional Eulogy**\
 `Fletcher Merkel, 8, was one of two children fatally shot on Wednesday at a back-to-school Mass at Annunciation Catholic Church. Fifteen other children and three adults were injured in the attack.`\
 https://nytimes.com/video/us/100000010368343/minnesota-victim-father-eulogy-.html

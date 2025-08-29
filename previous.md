@@ -30,7 +30,7 @@ https://nytimes.com/athletic/6582686/2025/08/29/zachary-bolduc-canadiens-analysi
 `Daniel Jones is in, Anthony Richardson is out. Will the Colts' quarterback gamble pay off in 2025? Here's how to watch it all unfold. `\
 https://nytimes.com/athletic/6572695/2025/08/29/indianapolis-colts-2025-how-to-watch-qb-schedule/
 
-**Trump Administration Live Updates: Immigration Crackdown in Chicago Is Planned**\
+**Trump Administration Live Updates: President Revokes Kamala Harris’s Secret Service Protection**\
 ``\
 https://nytimes.com/live/2025/08/29/us/trump-news
 
