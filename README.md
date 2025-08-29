@@ -1,3 +1,7 @@
+**Father of Child Killed in Minnesota Shooting Gives Emotional Eulogy**\
+`Fletcher Merkel, 8, was one of two children fatally shot on Wednesday at a back-to-school Mass at Annunciation Catholic Church. Fifteen other children and three adults were injured in the attack.`\
+https://nytimes.com/video/us/100000010368343/minnesota-victim-father-eulogy-.html
+
 **Vote in The Bounce's latest poll here!**\
 `Welcome to the polling page for The Bounce, The Athletic's free NBA newsletter.`\
 https://nytimes.com/athletic/6582455/2025/08/29/bounce-newsletter-poll-vote/
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/08/29/us/trump-news
 **O'Connor: Jonah Tong is the latest Mets pitcher to inspire real October hope**\
 `Tong, the most prolific strikeout pitcher in the minors, and fellow phenom Nolan McLean get chance to lead Mets into postseason and beyond.`\
 https://nytimes.com/athletic/6583356/2025/08/29/mets-jonah-tong-pitcher-debut/
-
-**Meet Julian Sayin, the 5-star QB not to be overlooked in Ohio State-Texas**\
-`Arch Manning isn't the only No. 1 QB recruit starting in Ohio State-Texas. Here's how Nick Saban's retirement led Sayin to this moment.`\
-https://nytimes.com/athletic/6581475/2025/08/29/julian-sayin-ohio-state-starting-qb-texas/
 
