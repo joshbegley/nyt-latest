@@ -1,3 +1,7 @@
+**'To create and have a legacy': Taylor Townsend plays her game at the U.S. Open**\
+`Townsend's altercation with Jelena Ostapenko circulated around the world. She has been building her own legacy more quietly.`\
+https://nytimes.com/athletic/6583198/2025/08/29/tennis-taylor-townsend-us-open/
+
 **Even after influx of new tackles, Falcons expected to start a familiar face in Week 1**\
 `Veteran Elijah Wilkinson is the front-runner to take over Kaleb McGary's starting job at right tackle when the Falcons open the season.`\
 https://nytimes.com/athletic/6582489/2025/08/29/falcons-elijah-wilkinson-right-tackle-week-1/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/29/arts/tiny-bookshop-herdling-review.html
 **Three Great Documentaries to Stream**\
 `This month’s picks look at organ donors, twins conversing in their own language and California wildfires.`\
 https://nytimes.com/2025/08/29/movies/great-documentaries-streaming.html
-
-**2 Weeks, 1,000 Arrests: How a Surge of Feds Changed D.C. Policing**\
-`Crime has fallen since federal agents started policing the streets of Washington in large numbers. Court records show that they have been involved in about a third of arrests that resulted in prosecution, many of them for minor offenses.`\
-https://nytimes.com/2025/08/29/us/federal-crackdown-washington-dc-arrest-data.html
 
