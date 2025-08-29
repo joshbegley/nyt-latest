@@ -1,3 +1,15 @@
+**Trump Administration Bars Palestinian Officials From U.N. Meeting in New York**\
+`The United States generally allows foreign officials to attend the United Nations General Assembly. The administration’s move comes amid a new push for Palestinian statehood.`\
+https://nytimes.com/2025/08/29/us/politics/trump-palestinians-un.html
+
+**Venice Film Festival: Julia Roberts Courts Controversy**\
+`In “After the Hunt,” Roberts plays a professor weighing a fraught sexual-assault accusation. “Trouble’s where the juicy stuff is,” the star said.`\
+https://nytimes.com/2025/08/29/movies/venice-film-festival-julia-roberts-after-the-hunt.html
+
+**Conservatives Use Minneapolis Shooting in Anti-Transgender Campaigns**\
+`Activists are pointing to the attacker’s gender identity to falsely portray all transgender people as prone to mental illness and violence.`\
+https://nytimes.com/2025/08/29/us/politics/minneapolis-shooting-anti-transgender-conservatives-robin-westman.html
+
 **Gotham FC forward Esther Gonzalez is kind and soft-spoken - until she gets in front of goal**\
 `The Gotham forward scores goals wherever she goes, but off the field she prefers a quieter life. `\
 https://nytimes.com/athletic/6584450/2025/08/29/gotham-fc-esther-gonzalez-spain-striker/
