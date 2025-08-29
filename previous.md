@@ -1,4 +1,16 @@
-**Porto agree package to sign Arsenal's Kiwior, deal dependent on Hincapie move**\
+**In Hong Kong, Eric Trump Lauds Growing Influence of Crypto**\
+`The president’s son, who helps run the Trump family’s business interests in digital currency, predicted that Bitcoin will someday exceed $1 million.`\
+https://nytimes.com/2025/08/29/business/eric-trump-crypto-hong-kong.html
+
+**The Pulse: The biggest Week 1 ever?**\
+`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/6583321/2025/08/29/week-1-college-football-the-pulse/
+
+**For Lamar Jackson, improving on historic season starts with being more vocal**\
+`The two-time MVP is holding himself even more accountable and challenging teammates to do the same entering this season. `\
+https://nytimes.com/athletic/6581651/2025/08/29/lamar-jackson-ravens-vocal-leader/
+
+**Porto agree to sign Arsenal's Kiwior, deal dependent on Hincapie move**\
 `Porto's deal for Kiwior is worth a guaranteed €25million, rising to potential €27m.`\
 https://nytimes.com/athletic/5169339/2025/08/29/arsenal-jakub-kiwior-porto-piero-hincapie/
 
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6582544/2025/08/29/vikings-cornerbacks-brian-flores
 **Intel on all 32 NFL teams: Rome Odunze breakout, Drake Maye buzz, trade rumors and more**\
 `Dozens of NFL executives and coaches weigh in with thoughts on how the 2025 season will unfold for each team. `\
 https://nytimes.com/athletic/6582010/2025/08/29/nfl-teams-rumors-drake-maye-rome-odunze/
-
-**Joey Logano, the NASCAR champion some fans love to hate, might just do it again**\
-`NASCAR's playoff format is widely criticized. But it's No. 1 fan might be set to get his fourth championship out of it.`\
-https://nytimes.com/athletic/6581510/2025/08/29/joey-logano-nascar-playoffs-format-champion/
-
-**Patrick Kane's last shot: How the U.S. hockey icon plans to play his way onto one final Olympic team**\
-`Kane, who's also on the brink of becoming the all-time top U.S. NHL point scorer, says, "A gold medal is all I’m missing in my career."`\
-https://nytimes.com/athletic/6581247/2025/08/29/patrick-kane-olympic-roster-red-wings-nhl/
-
-**Sliders: Bats right, throws both? An A's rookie can do it all**\
-`Plus more on the "Reliever of the Year" criteria, David Robertson recalls facing five Hall of Famers and more "Sliders."`\
-https://nytimes.com/athletic/6581356/2025/08/29/athletics-carlos-cortes-sliders-reliever-award/
 

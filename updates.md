@@ -1,3 +1,19 @@
+**In Hong Kong, Eric Trump Lauds Growing Influence of Crypto**\
+`The president’s son, who helps run the Trump family’s business interests in digital currency, predicted that Bitcoin will someday exceed $1 million.`\
+https://nytimes.com/2025/08/29/business/eric-trump-crypto-hong-kong.html
+
+**The Pulse: The biggest Week 1 ever?**\
+`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/6583321/2025/08/29/week-1-college-football-the-pulse/
+
+**For Lamar Jackson, improving on historic season starts with being more vocal**\
+`The two-time MVP is holding himself even more accountable and challenging teammates to do the same entering this season. `\
+https://nytimes.com/athletic/6581651/2025/08/29/lamar-jackson-ravens-vocal-leader/
+
+**Porto agree to sign Arsenal's Kiwior, deal dependent on Hincapie move**\
+`Porto's deal for Kiwior is worth a guaranteed €25million, rising to potential €27m.`\
+https://nytimes.com/athletic/5169339/2025/08/29/arsenal-jakub-kiwior-porto-piero-hincapie/
+
 **Porto agree package to sign Arsenal's Kiwior, deal dependent on Hincapie move**\
 `Porto's deal for Kiwior is worth a guaranteed €25million, rising to potential €27m.`\
 https://nytimes.com/athletic/5169339/2025/08/29/arsenal-jakub-kiwior-porto-piero-hincapie/

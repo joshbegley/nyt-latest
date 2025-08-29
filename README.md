@@ -1,3 +1,7 @@
+**Rodri, Carvajal back in Spain squad after ACL injuries**\
+`Spain face Bulgaria and Turkey away on September 4 and 7 respectively in World Cup qualifiers.`\
+https://nytimes.com/athletic/6583725/2025/08/29/spain-squad-rodri-carvajal/
+
 **In Hong Kong, Eric Trump Lauds Growing Influence of Crypto**\
 `The president’s son, who helps run the Trump family’s business interests in digital currency, predicted that Bitcoin will someday exceed $1 million.`\
 https://nytimes.com/2025/08/29/business/eric-trump-crypto-hong-kong.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6580476/2025/08/29/texas-ohio-state-college-footbal
 **Vikings making major bet with cornerbacks who could make or break their season**\
 `With an improved pass-rush presence up front, Brian Flores and the Vikings defense are hoping their four corners can hold up in coverage.`\
 https://nytimes.com/athletic/6582544/2025/08/29/vikings-cornerbacks-brian-flores-byron-murphy/
-
-**Intel on all 32 NFL teams: Rome Odunze breakout, Drake Maye buzz, trade rumors and more**\
-`Dozens of NFL executives and coaches weigh in with thoughts on how the 2025 season will unfold for each team. `\
-https://nytimes.com/athletic/6582010/2025/08/29/nfl-teams-rumors-drake-maye-rome-odunze/
 
