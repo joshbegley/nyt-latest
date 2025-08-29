@@ -1,3 +1,11 @@
+**Will the C.D.C. Survive?**\
+`Robert F. Kennedy Jr.’s assault may have dealt lasting damage to the agency, experts fear, with harsh consequences for public health.`\
+https://nytimes.com/2025/08/29/health/cdc-kennedy-public-health.html
+
+**Appeals Court Rules Against Many Trump Tariffs**\
+`The decision is a big blow to President Trump’s trade policies, but the judges left the duties in place for now to allow time for a likely appeal to the Supreme Court.`\
+https://nytimes.com/2025/08/29/business/economy/trump-tariffs-appeals-court.html
+
 **Liverpool's Robertson replaces Alexander-Arnold as new vice-captain**\
 `The long-serving left-back takes over from Trent Alexander-Arnold, who left the club to join Real Madrid at the end of last season`\
 https://nytimes.com/athletic/6584949/2025/08/29/liverpool-news-robertson-vice-captain/
