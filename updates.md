@@ -1,3 +1,15 @@
+**Trump Moves to Strip More Federal Workers of Union Protections**\
+`The pre-Labor Day order included NASA, the National Weather Service and the agency that oversees Voice of America.`\
+https://nytimes.com/2025/08/29/us/politics/trump-federal-workers-union-protections.html
+
+**FPL: How to replace big-name assets, from Saka and Palmer to Wirtz and Watkins**\
+`Even the most reliable, high-ownership FPL players can quickly become headaches when form dips, injuries strike, or fixtures turn sour`\
+https://nytimes.com/athletic/6577489/2025/08/29/fantasy-premier-league-transfers-gameweek-three-palmer-saka/
+
+**Do Manchester United still believe in the Ruben Amorim project?**\
+`The whole situation is starting to look bleak and, in that respect, horribly familiar.`\
+https://nytimes.com/athletic/6582874/2025/08/29/garnacho-mainoo-amorim-man-utd/
+
 **Why have Arsenal struggled to sell? Are they at risk of breaching spending rules?**\
 `Arsenal have significantly improved their squad this summer, but their outgoings have been limited - why is this? And is it a problem?`\
 https://nytimes.com/athletic/6581260/2025/08/29/arsenal-transfers-spending-sales-psr-uefa/
