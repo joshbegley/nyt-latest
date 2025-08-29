@@ -1,3 +1,7 @@
+**Gotham FC forward Esther Gonzalez is kind and soft-spoken - until she gets in front of goal**\
+`The Gotham forward scores goals wherever she goes, but off the field she prefers a quieter life. `\
+https://nytimes.com/athletic/6584450/2025/08/29/gotham-fc-esther-gonzalez-spain-striker/
+
 **Vail Settles Lawsuit After Canceling Artist’s Residency Over Gaza Views**\
 `In settling a lawsuit brought by the A.C.L.U., the Colorado town agreed to fund an art program for underrepresented people and provide cultural sensitivity training to some of its employees.`\
 https://nytimes.com/2025/08/29/arts/design/vail-artist-gaza-lawsuit-settlement.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/29/us/politics/joni-ernst-senate-iowa-re-election.ht
 **Alarm Over the Purge at the C.D.C.**\
 `Readers react to the firing of the director of the Centers for Disease Control and Prevention. Also: facing U.S. history without shame; shutting ‘Alligator Alcatraz.”`\
 https://nytimes.com/2025/08/29/opinion/alarm-over-the-purge-at-the-cdc.html
-
-**Finding Beauty in a Prison Yard**\
-`These trees were the only living beings that I could touch without fear.`\
-https://nytimes.com/interactive/2025/08/29/opinion/trees-nature-prison-beauty.html
 
