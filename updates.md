@@ -1,3 +1,15 @@
+**It’s the End of ‘Big City.’ New York Will Be Fine.**\
+`The weekly column that focused on inequality in the city ran for 14 years, from Occupy Wall Street to Zohran Mamdani. Now it comes to a close.`\
+https://nytimes.com/2025/08/29/nyregion/big-city-nyc-inequality.html
+
+**N.Y.C. Covid Cases Appear to Be Rising. So Are Inquiries on Vaccines.**\
+`Patients are flooding medical practices with reports of the telltale signs of Covid and questions about whether they will be able to get vaccinated.`\
+https://nytimes.com/2025/08/29/nyregion/covid-cases-rising-new-york.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/08/29/crosswords/spelling-bee-forum.html
+
 **Students Call for More Protests in Indonesia After Fatal Clash With Police**\
 `Rising unemployment and inflation have driven the protests in Jakarta, the capital. The police responded with force on Thursday, killing a 21-year-old man.`\
 https://nytimes.com/2025/08/29/world/asia/indonesia-protests-inflation.html
