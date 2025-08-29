@@ -1,3 +1,7 @@
+**Miami LB Adarius Hayes charged with vehicular homicide in deadly crash**\
+`The Hurricanes suspended Hayes, who faces three counts of vehicular homicide and one count of reckless driving with serious bodily injury.`\
+https://nytimes.com/athletic/6584638/2025/08/29/miami-adarius-hayes-charged-car-accident/
+
 **Red Sox release Walker Buehler as rookie Payton Tolle steps into rotation**\
 `The Red Sox parted ways with Buehler, who never got on track after signing as a free agent in the offseason.`\
 https://nytimes.com/athletic/6584619/2025/08/29/red-sox-walker-buehler-release-payton-tolle/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6584607/2025/08/29/micah-parsons-trade-nfl-cowboys-
 **Xavi Simons to Tottenham: Everything you need to know - TLDR**\
 `Spurs have completed the signing of the 22-year-old Dutch winger from RB Leipzig - this is everything you need to know`\
 https://nytimes.com/athletic/6584369/2025/08/29/xavi-simons-tottenham-hotspur-analysis/
-
-**More Than 130 People Are Feared Dead in West Africa Boat Tragedy**\
-`Around 150 people boarded a boat in Gambia that was thought to have been headed for Europe. The boat capsized after traveling about 380 miles.`\
-https://nytimes.com/2025/08/29/world/africa/boat-capsize-mauritania-gambia-senegal.html
 
