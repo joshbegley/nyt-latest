@@ -1,3 +1,15 @@
+**Sherman: With one play, Nebraska exorcises a decade of season-opening disappointments**\
+`Malcolm Hartzog Jr. intercepted Brendan Sorsby with 34 seconds left to preserve a 20-17 victory in the season opener,`\
+https://nytimes.com/athletic/6584161/2025/08/29/nebraska-cincinnati-season-opening-win/
+
+**Abbott Signs Gerrymandered Map as Texas G.O.P. Moves Further Right**\
+`After a bruising political fight, Gov. Greg Abbott signed into law a new congressional map. But the Republican-led Legislature, newly emboldened, has not stopped there.`\
+https://nytimes.com/2025/08/29/us/politics/abbott-texas-legislature-redistricting-map.html
+
+**Defying Congress, Trump Moves to Cut $4.9 Billion in Foreign Aid**\
+`The White House notified Congress that it plans to use a legally untested maneuver to circumvent lawmakers and claw back more money for foreign aid programs.`\
+https://nytimes.com/2025/08/29/us/politics/trump-foreign-aid.html
+
 **Alabama Man Once Barred From Office by Rivals Is Elected Mayor**\
 `Patrick Braxton won the first mayoral election in a half century in the small town of Newbern, five years after its leaders put up roadblocks to his assuming office.`\
 https://nytimes.com/2025/08/29/us/politics/newbern-alabama-mayor-patrick-braxton.html

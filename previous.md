@@ -1,3 +1,11 @@
+**Sherman: With one play, Nebraska exorcises a decade of season-opening disappointments**\
+`Malcolm Hartzog Jr. intercepted Brendan Sorsby with 34 seconds left to preserve a 20-17 victory in the season opener,`\
+https://nytimes.com/athletic/6584161/2025/08/29/nebraska-cincinnati-season-opening-win/
+
+**Abbott Signs Gerrymandered Map as Texas G.O.P. Moves Further Right**\
+`After a bruising political fight, Gov. Greg Abbott signed into law a new congressional map. But the Republican-led Legislature, newly emboldened, has not stopped there.`\
+https://nytimes.com/2025/08/29/us/politics/abbott-texas-legislature-redistricting-map.html
+
 **Alabama Man Once Barred From Office by Rivals Is Elected Mayor**\
 `Patrick Braxton won the first mayoral election in a half century in the small town of Newbern, five years after its leaders put up roadblocks to his assuming office.`\
 https://nytimes.com/2025/08/29/us/politics/newbern-alabama-mayor-patrick-braxton.html
@@ -20,7 +28,7 @@ https://nytimes.com/athletic/6583911/2025/08/29/crystal-palace-conference-league
 
 **Defying Congress, Trump Moves to Cut $4.9 Billion in Foreign Aid**\
 `The White House notified Congress that it plans to use a legally untested maneuver to circumvent lawmakers and claw back more money for foreign aid programs.`\
-https://nytimes.com/2025/08/29/us/politics/defying-congress-trump-moves-to-cut-4-9-billion-in-foreign-aid.html
+https://nytimes.com/2025/08/29/us/politics/trump-foreign-aid.html
 
 **How the Micah Parsons trade to the Packers affects the Bears, Lions and Vikings**\
 `The blockbuster deal sending Parsons from Dallas to Green Bay has sent shockwaves through the NFL. How will it affect the NFL North?`\
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6584137/2025/08/29/micah-parsons-trade-packers-nfc-
 **Inside Syria’s Most Fearsome Prison**\
 `For decades, the Assad regime locked up its opponents in prisons like Sednaya. The New York Times created a 3-D model of the prison and its brutal conditions.`\
 https://nytimes.com/interactive/2025/08/29/world/middleeast/syria-sednaya-prison-assad.html
-
-**Dortmund reject £45m Beier offer from Brentford**\
-`Brentford are not expected to raise their offer for the 22-year-old striker.`\
-https://nytimes.com/athletic/6584296/2025/08/29/maximilian-beier-brentford-dortmund/
-
-**2 Simple Secrets for Making Restaurant-Quality Scallops at Home**\
-`For a quick, light dinner, these small steps go a long, long way, Eric Kim writes.`\
-https://nytimes.com/2025/08/29/dining/how-to-cook-scallops.html
 
