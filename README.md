@@ -1,3 +1,11 @@
+**The Spanish Coastline That Feels Like a Dream**\
+`Much of Salvador Dalí’s work was inspired by the Costa Brava’s natural splendor. This less-explored stretch of the Mediterranean is as bewitching as ever.`\
+https://nytimes.com/2025/08/29/t-magazine/costa-brava-spain-hotels-restaurants.html
+
+**Kevin De Bruyne’s Napoli home debut and an embattled Old Firm: Weekend European preview**\
+`A round up of the best action from around Europe's biggest and best leagues this weekend`\
+https://nytimes.com/athletic/6584110/2025/08/29/kevin-de-bruyne-napoli-lyon-dortmund/
+
 **Tim Connelly opts into final 2 years of contract with Timberwolves**\
 `In three seasons, Connelly has been one of the busiest team presidents in the league, working feverishly to remake the Wolves roster.`\
 https://nytimes.com/athletic/6582040/2025/08/29/tim-connelly-timberwolves-opts-contract/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/08/29/movies/five-science-fiction-movies-to-stream-now.
 **This Cheesy Dip Is a Closely Guarded Alaskan Secret**\
 `Meet Kenai dip, the northern cousin to pimento cheese.`\
 https://nytimes.com/2025/08/29/dining/kenai-cheese-dip-alaska.html
-
-**Tesla’s Lawyers File Motion to Throw Out $243 Million Verdict in Fatal Crash**\
-`The carmaker argued that the driver of a car that killed a woman and severely injured her boyfriend in 2019 was solely responsible.`\
-https://nytimes.com/2025/08/29/business/tesla-fatal-crash.html
-
-**A New ‘Pericles’ Pairs Shakespeare With Black Gospel**\
-`The wandering prince of the title sings in this version from the Public Theater’s Public Works, with a cast of everyday New Yorkers and stars like Denée Benton.`\
-https://nytimes.com/2025/08/29/theater/pericles-st-john-the-divine-public-works.html
 
