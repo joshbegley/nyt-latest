@@ -1,3 +1,27 @@
+**Jacksonville Jaguars 2025 streaming guide: How to watch Travis Hunter and Trevor Lawrence**\
+`The Jacksonville Jaguars arrive this season in the delicate middle ground between promise and permanence.`\
+https://nytimes.com/athletic/6581660/2025/08/29/jacksonville-jaguars-travis-hunter-how-to-watch-2025/
+
+**Trump Cancels Kamala Harris’s Secret Service Protection**\
+`The Secret Service usually protects a former vice president for six months after they leave office, but President Joseph R. Biden Jr. had extended Ms. Harris’s protection beyond that.`\
+https://nytimes.com/2025/08/29/us/politics/kamala-harris-secret-service.html
+
+**Nottingham Forest's Europa League draw: Malmo repeat and Nuno reunion with Porto**\
+`Paul Taylor answers some of the key questions from Forest's Europa League draw...`\
+https://nytimes.com/athletic/6583824/2025/08/29/nottingham-forest-europa-league-fixtures-opponents-dates/
+
+**Marseille working on a deal for Arsenal's Zinchenko**\
+`The Ligue 1 club’s interest at present relates to a potential permanent transfer — but Zinchenko's salary presents a significant issue.`\
+https://nytimes.com/athletic/6499298/2025/08/29/zinchenko-arsenal-transfer-marseille/
+
+**Tran Trong Duyet, John McCain’s Captor at the ‘Hanoi Hilton,’ Dies at 93**\
+`Mr. Duyet endorsed Mr. McCain’s presidential bid in 2008 after insisting no Americans were tortured under his watch in the Vietnam War.`\
+https://nytimes.com/2025/08/29/world/asia/vietnam-tran-trong-duyet-obituary.html
+
+**College Football Playoff 2025 projections: Our model's best odds to make the bracket**\
+`Our College Football Playoff predictions model is back. Check here for regular updates on CFP and national championship odds for 2025.`\
+https://nytimes.com/athletic/6560541/2025/08/29/college-football-playoff-bracket-projections-odds/
+
 **Father of Child Killed in Minnesota Shooting Gives Emotional Eulogy**\
 `Fletcher Merkel, 8, was one of two children fatally shot on Wednesday at a back-to-school Mass at Annunciation Catholic Church. Fifteen other children and three adults were injured in the attack.`\
 https://nytimes.com/video/us/100000010368343/minnesota-victim-father-eulogy-.html
@@ -13,28 +37,4 @@ https://nytimes.com/athletic/6579732/2025/08/29/college-football-fans-2025-seaso
 **Eagles superlatives: Potential MVP, breakout players, regression candidate and more**\
 `Who will stand out as the Eagles look to win another Super Bowl this season?`\
 https://nytimes.com/athletic/6582864/2025/08/29/philadelphia-eagles-potential-mvp-breakout-players-regression-candidate/
-
-**Aston Villa's Europa League draw: A return to Rotterdam and a Jhon Duran reunion**\
-`Jacob Tanswell analyses Aston Villa's newly-released fixtures for the 2025-26 Europa League`\
-https://nytimes.com/athletic/6583823/2025/08/29/aston-villas-europa-league-draw-fixtures/
-
-**Pinto's ceiling, Giroux and Spence's fits, and offence: 4 burning Senators questions**\
-`Don't be afraid of September lurking around the corner. That's when the Senators will have to address some of the bigger questions looming.`\
-https://nytimes.com/athletic/6567443/2025/08/29/senators-offence-pinto-giroux-spence/
-
-**Bolduc's evolution as a rookie separates him from similar Canadiens acquisitions**\
-`After Bolduc's first full season in the NHL, the Canadiens had a good idea what they were getting. Let's break down why.`\
-https://nytimes.com/athletic/6582686/2025/08/29/zachary-bolduc-canadiens-analysis-physicality/
-
-**How to watch the Indianapolis Colts: Schedule, streaming for team with QB questions**\
-`Daniel Jones is in, Anthony Richardson is out. Will the Colts' quarterback gamble pay off in 2025? Here's how to watch it all unfold. `\
-https://nytimes.com/athletic/6572695/2025/08/29/indianapolis-colts-2025-how-to-watch-qb-schedule/
-
-**Trump Administration Live Updates: President Revokes Kamala Harris’s Secret Service Protection**\
-``\
-https://nytimes.com/live/2025/08/29/us/trump-news
-
-**O'Connor: Jonah Tong is the latest Mets pitcher to inspire real October hope**\
-`Tong, the most prolific strikeout pitcher in the minors, and fellow phenom Nolan McLean get chance to lead Mets into postseason and beyond.`\
-https://nytimes.com/athletic/6583356/2025/08/29/mets-jonah-tong-pitcher-debut/
 
