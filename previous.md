@@ -1,3 +1,7 @@
+**Forest's Anderson set for first England call-up**\
+`The 22-year-old represented Scotland and England at youth level but has not yet featured for either senior side.`\
+https://nytimes.com/athletic/6578699/2025/08/29/england-squad-elliot-anderson/
+
 **Protesters and Police Clash in Indonesia**\
 `Police officers in riot gear fired tear gas and charged protesters, some of whom had been throwing rocks.`\
 https://nytimes.com/video/world/asia/100000010368269/indonesia-protests-inflation.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6582884/2025/08/29/fantasy-premier-league-live-qa-g
 **Tottenham set to complete €60m signing of Leipzig’s Simons**\
 `Personal terms are also in place and Simons has completed a medical ahead of finalising the proposed transfer to the north London side.`\
 https://nytimes.com/athletic/6581114/2025/08/29/xavi-simons-tottenham-transfer/
-
-**Rodion Shchedrin, Composer Who Captured Russia’s Soul, Dies at 92**\
-`Mr. Shchedrin drew on Russian literature for stage works and was an eager experimenter, inspired by folk tales, religious mysticism and melodrama.`\
-https://nytimes.com/2025/08/29/arts/rodion-shchedrin-dead.html
 

@@ -1,3 +1,7 @@
+**Forest's Anderson set for first England call-up**\
+`The 22-year-old represented Scotland and England at youth level but has not yet featured for either senior side.`\
+https://nytimes.com/athletic/6578699/2025/08/29/england-squad-elliot-anderson/
+
 **Students Call for More Protests in Indonesia After Deadly Clash With Police**\
 `Rising unemployment and inflation have driven the protests in Jakarta, the capital. The police responded with force on Thursday, killing a 21-year-old man.`\
 https://nytimes.com/2025/08/29/world/asia/indonesia-protests-inflation.html
