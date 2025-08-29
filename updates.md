@@ -1,3 +1,19 @@
+**Tim Connelly opts into final 2 years of contract with Timberwolves**\
+`In three seasons, Connelly has been one of the busiest team presidents in the league, working feverishly to remake the Wolves roster.`\
+https://nytimes.com/athletic/6582040/2025/08/29/tim-connelly-timberwolves-opts-contract/
+
+**Dolphins coach Ryan Crow arrested on domestic battery charge, placed on administrative leave**\
+`Crow, 37, was entering his second season with the Dolphins`\
+https://nytimes.com/athletic/6584155/2025/08/29/dolphins-coach-ryan-crow-arrest/
+
+**Finland’s Air Force Will Stop Using the Swastika on Flags**\
+`The Air Force is phasing out its use of the symbol, which dates to its foundation in 1918. An official said that it had sometimes caused “awkward situations.”`\
+https://nytimes.com/2025/08/29/world/europe/finland-air-force-swastika-flags.html
+
+**The Bounce: Ranking the NBA's top 40 wings**\
+`The Bounce Newsletter  | This is The Athletic’s daily NBA newsletter.`\
+https://nytimes.com/athletic/6584218/2025/08/29/best-nba-wings-the-bounce/
+
 **Salmon Burgers and Kimbap; Nectarine Tart and Summer Berry Buckle**\
 `I’m back from the road, and I want to cook.`\
 https://nytimes.com/2025/08/29/dining/salmon-burgers-and-kimbap-nectarine-tart-and-summer-berry-buckle.html
