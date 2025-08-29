@@ -1,3 +1,11 @@
+**Russia’s Deadly Attack on Kyiv**\
+`Also, the secret of “KPop Demon Hunters.”`\
+https://nytimes.com/2025/08/29/briefing/ukraine-russia-kyiv-gaza-reservists-europe-iran-sanctions.html
+
+**Liverpool have defensive issues. This is where they must improve**\
+`Konate's form, Kerkez's aerial weakness and being exposed on transitions are all problem areas for Arne Slot’s side`\
+https://nytimes.com/athletic/6581380/2025/08/29/liverpool-have-defensive-issues-this-is-where-they-must-improve/
+
 **What are the rules on under-18s playing in the Premier League?**\
 `What are the Premier League's rules on under-18s playing in it and who is the youngest to have got a game in the English top flight?`\
 https://nytimes.com/athletic/6263865/2025/08/29/premier-league-under18-rules-explained/

@@ -1,3 +1,7 @@
+**Appeals Court Declines to Block Trump From Freezing Foreign Aid**\
+`The court voted not to revisit a fight over billions in frozen funds, but simultaneously revised an earlier order to give nonprofits that sued a narrow path forward in the case.`\
+https://nytimes.com/2025/08/29/us/politics/appeals-court-trump-foreign-aid.html
+
 **Russia’s Deadly Attack on Kyiv**\
 `Also, the secret of “KPop Demon Hunters.”`\
 https://nytimes.com/2025/08/29/briefing/ukraine-russia-kyiv-gaza-reservists-europe-iran-sanctions.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6575798/2025/08/29/premier-league-predictions-match
 **Business of Football: The 'abomination' of games abroad, WhatsApp deals and a 100-year-old stand**\
 `Football can move at speed when it wants to - as Matt Slater reports in this week's column`\
 https://nytimes.com/athletic/6578414/2025/08/29/barcelona-uefa-business-football-whatsapp/
-
-**Priced out by the Premier League: Where do clubs in Italy, Spain, Germany and France shop for players?**\
-`There's a clear food chain in the European market — the smart teams scout players from lower down or develop talent internally`\
-https://nytimes.com/athletic/6578496/2025/08/29/european-transfer-market-spain-germany-france-italy/
 
