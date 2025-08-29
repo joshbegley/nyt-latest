@@ -27,7 +27,7 @@ https://nytimes.com/2025/08/28/well/pediatric-brain-cancer-trial-group.html
 https://nytimes.com/athletic/6583230/2025/08/28/phillies-kyle-schwarber-four-homer-game/
 
 **Trump Officials Threaten to Pull Funding From Denver Public Schools**\
-`The department gave Denver Public Schools 10 days to ban transgender students from using bathrooms that align with their gender identity.`\
+`The Education Department gave Denver Public Schools 10 days to ban transgender students from using bathrooms that align with their gender identity.`\
 https://nytimes.com/2025/08/28/us/politics/trump-denver-schools-transgender-bathrooms.html
 
 **Coco Gauff beats Donna Vekić on a surreal, tearful night at the U.S. Open**\

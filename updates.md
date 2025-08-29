@@ -1,3 +1,7 @@
+**Trump Officials Threaten to Pull Funding From Denver Public Schools**\
+`The Education Department gave Denver Public Schools 10 days to ban transgender students from using bathrooms that align with their gender identity.`\
+https://nytimes.com/2025/08/28/us/politics/trump-denver-schools-transgender-bathrooms.html
+
 **Pentagon Is Reinstalling Portrait of Confederate General at West Point Library**\
 `The Pentagon is putting back up a portrait of Gen. Robert E. Lee at the military academy, as the Trump administration seeks to restore honors for American figures who fought to preserve slavery.`\
 https://nytimes.com/2025/08/28/us/politics/pentagon-trump-confederate-lee-west-point.html
