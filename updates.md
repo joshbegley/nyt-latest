@@ -1,3 +1,7 @@
+**Palace are through – now come the realities of European football**\
+`Oliver Glasner's team did what they had to do in Norway - now he needs backing with new arrivals if his squad are to flourish this season`\
+https://nytimes.com/athletic/6579328/2025/08/29/crystal-palace-europe-conference-league-glasner-guehi/
+
 **It’s the End of ‘Big City.’ New York Will Be Fine.**\
 `The weekly column that focused on inequality in the city ran for 14 years, from Occupy Wall Street to Zohran Mamdani. Now it comes to a close.`\
 https://nytimes.com/2025/08/29/nyregion/big-city-nyc-inequality.html

@@ -14,7 +14,7 @@ https://nytimes.com/2025/08/29/crosswords/spelling-bee-forum.html
 `Rising unemployment and inflation have driven the protests in Jakarta, the capital. The police responded with force on Thursday, killing a 21-year-old man.`\
 https://nytimes.com/2025/08/29/world/asia/indonesia-protests-inflation.html
 
-**Palace are through - now come the realities of European football**\
+**Palace are through – now come the realities of European football**\
 `Oliver Glasner's team did what they had to do in Norway - now he needs backing with new arrivals if his squad are to flourish this season`\
 https://nytimes.com/athletic/6579328/2025/08/29/crystal-palace-europe-conference-league-glasner-guehi/
 
