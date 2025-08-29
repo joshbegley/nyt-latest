@@ -1,3 +1,19 @@
+**Americans claim eight Diamond League wildcards for World Championships**\
+`There were eight American champions at the Diamond League finals in Zurich, the most since 2019.`\
+https://nytimes.com/athletic/6582858/2025/08/28/diamond-league-finals-zurich-wildcards/
+
+**Behind Garrett Crochet, Red Sox sweep Orioles in successful road trip: Takeaways**\
+`The Red Sox finished their road trip with a 7-1 record, the club’s best run on the road of the season.`\
+https://nytimes.com/athletic/6583058/2025/08/28/boston-red-sox-road-trip-takeaways/
+
+**Micah Parsons' trade isn't quite Luka Dončić level, but the heartbreak in Dallas is the same**\
+`While Dončić broke his phone in anger after being traded, let's not forget that Parsons asked to be dealt. `\
+https://nytimes.com/athletic/6582990/2025/08/28/micah-parsons-trade-luka-doncic-dallas-cowboys-mavericks/
+
+**Judge Orders New Federal Trial in Tyre Nichols Case**\
+`The ruling cited concerns about the appearance of bias, pointing to comments that the judge who presided over the trial of three former police officers reportedly made afterward.`\
+https://nytimes.com/2025/08/28/us/politics/tyre-nichols-federal-trial.html
+
 **Thai Premier Could Be Third in Her Family to Be Ousted From Office**\
 `Paetongtarn Shinawatra is facing a legal challenge that’s seen as an important test of her powerful family’s standing with Thailand’s old guard.`\
 https://nytimes.com/2025/08/28/world/asia/thailand-paetongtarn-shinawatra-verdict.html
