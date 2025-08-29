@@ -1,36 +1,40 @@
-**La Liga files complaint about alleged racist abuse of Vinicius Jr, Mbappe**\
-`The chanting was alleged to have taken place at Oviedo's Carlos Tartiere Stadium during the league match on August 24,`\
-https://nytimes.com/athletic/6583707/2025/08/29/vinicius-junior-racism-mbappe-oviedo/
+**Buckley: Red Sox are playing, talking a good game**\
+`Coming off a trip in which they won seven of eight games, the Sox seem to have the sea legs they'll need to play in October.`\
+https://nytimes.com/athletic/6583191/2025/08/29/boston-red-sox-surge-playoff-push/
 
-**With Canal and Dams Wrecked, a Russian-Occupied City’s Taps Run Dry**\
-`The Russian authorities have seized on the crisis in Donetsk to argue that taking over the rest of the region from Ukraine would allow Moscow to restore the water supply.`\
-https://nytimes.com/2025/08/29/world/europe/donetsk-water-shortage-crisis.html
+**A Twins prospect is doing what All-Star-caliber players do at 20**\
+`Jenkins reached Triple A at an age typically reserved for future All-Stars and he earned it with standout production at every level.`\
+https://nytimes.com/athletic/6576117/2025/08/29/twins-top-prospect-walker-jenkins-mlb/
 
-**Golden State Valkyries' playoff push is in hands of renewed point guard Veronica Burton**\
-`Cut, overlooked and put up for the expansion draft. Now the point guard is having a career season and is a Most Improved Player candidate.`\
-https://nytimes.com/athletic/6582367/2025/08/29/veronica-burton-golden-state-valkyries/
+**NFC West preview: Re-tooled 49ers and revived Rams headline a deep division**\
+`Plus, the Seahawks bank on elite defense and Sam Darnold leading a revamped offense.`\
+https://nytimes.com/athletic/6581169/2025/08/29/nfc-west-predicted-standings-win-totals/
 
-**How to watch Week 1 clash between Alabama and Florida State on Saturday**\
-`Alabama and Florida State have met five times previously, but this will be the first on the Seminoles' home turf.`\
-https://nytimes.com/athletic/6582927/2025/08/29/alabama-florida-state-week-1-how-to-watch/
+**TAFC: Where did Football Manager go? Plus: Mourinho leaves Fenerbahce, Chelsea agree Garnacho fee**\
+`Today in TAFC: What happened to FM25? Mourinho leaves Fenerbahce, Garnacho could be on his way to Chelsea, Son's impact on MLS.`\
+https://nytimes.com/athletic/6583675/2025/08/29/football-manager-mourinho-fenerbahce-chelsea-garnacho/
 
-**Rodri, Carvajal back in Spain squad after ACL injuries**\
-`Spain face Bulgaria and Turkey away on September 4 and 7 respectively in World Cup qualifiers.`\
-https://nytimes.com/athletic/6583725/2025/08/29/spain-squad-rodri-carvajal/
+**Burning Bulls questions: Retiring Derrick Rose's jersey? Matas Buzelis' ceiling?**\
+`With training camp rapidly approaching for the Bulls, there are some questions that need answers on and off the court.`\
+https://nytimes.com/athletic/6581560/2025/08/29/bulls-questions-derrick-rose-matas-buzelis/
 
-**In Hong Kong, Eric Trump Lauds Growing Influence of Crypto**\
-`The president’s son, who helps run the Trump family’s business interests in digital currency, predicted that Bitcoin will someday exceed $1 million.`\
-https://nytimes.com/2025/08/29/business/eric-trump-crypto-hong-kong.html
+**Blue Jays' Shane Bieber returned with a new weapon, embracing new MLB trend**\
+`Toronto's new righty has always been a breaking ball artist. Now he has a new off-speed pitch in his arsenal.`\
+https://nytimes.com/athletic/6582777/2025/08/29/blue-jays-shane-bieber-changeup-mlb-trend/
 
-**The Pulse: The biggest Week 1 ever?**\
-`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
-https://nytimes.com/athletic/6583321/2025/08/29/week-1-college-football-the-pulse/
+**AFC North preview: Ravens ready to run it back for another division title, Bengals gaining fast**\
+`Plus, can Aaron Rodgers raise the Steelers’ ceiling?`\
+https://nytimes.com/athletic/6583398/2025/08/29/afc-north-predicted-standings-win-totals/
 
-**For Lamar Jackson, improving on historic season starts with being more vocal**\
-`The two-time MVP is holding himself even more accountable and challenging teammates to do the same entering this season. `\
-https://nytimes.com/athletic/6581651/2025/08/29/lamar-jackson-ravens-vocal-leader/
+**USC football thoughts: Uncertainty at QB, concern on the O-line, quality at RB**\
+`If things break the right way and USC finds a way to win the close games, this could be a nine-win team. `\
+https://nytimes.com/athletic/6582546/2025/08/29/usc-football-prediction-2025-lincoln-riley/
 
-**Porto agree to sign Arsenal's Kiwior, deal dependent on Hincapie move**\
-`Porto's deal for Kiwior is worth a guaranteed €25million, rising to potential €27m.`\
-https://nytimes.com/athletic/5169339/2025/08/29/arsenal-jakub-kiwior-porto-piero-hincapie/
+**College football coaches stress the importance of the 'middle 8.' How pivotal is it?**\
+`An emphasis popularized by Bill Belichick remains a talking point for coaches. We looked at its effect.`\
+https://nytimes.com/athletic/6581899/2025/08/29/college-football-middle-eight-strategy-georgia-notre-dame/
+
+**The Athletic’s Friday football quiz question #70**\
+`Can you answer the weekly poser plucked from deep inside The Athletic's trivia vaults?`\
+https://nytimes.com/athletic/6576481/2025/08/29/the-athletics-friday-football-quiz-question-70/
 
