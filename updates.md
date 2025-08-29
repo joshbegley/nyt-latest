@@ -1,3 +1,15 @@
+**Trump Administration Weighs Having Military Lawyers Work as Immigration Judges**\
+`No final decision has been made, but the proposal comes as President Trump increasingly uses the military in various aspects of domestic life.`\
+https://nytimes.com/2025/08/29/us/politics/military-lawyers-immigration-judges.html
+
+**Families of Minnesota Shooting Victims Pay Loving Tributes**\
+`The impact of the deaths of Fletcher Merkel, 8, and Harper Moyski, 10, and the injuries sustained by 18 others are only beginning to be felt.`\
+https://nytimes.com/2025/08/29/us/minneapolis-shooting-victims-families.html
+
+**Read the appeals court ruling on Trump’s tariffs.**\
+`An appeals court ruled on Friday that many of President Trump’s most punishing tariffs are illegal, delivering a major new setback to the administration’s global trade war.`\
+https://nytimes.com/interactive/2025/08/29/us/appeals-court-trump-tariffs-ruling.html
+
 **Padres' Xander Bogaerts could miss rest of regular season with fractured left foot**\
 `An extended absence for San Diego's shortstop could reduce its chances of winning a division title for the first time since 2006.`\
 https://nytimes.com/athletic/6584871/2025/08/29/padres-xander-bogaerts-injury/
