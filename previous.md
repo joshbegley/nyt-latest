@@ -1,3 +1,11 @@
+**Alarm Over the Purge at the C.D.C.**\
+`Readers react to the firing of the director of the Centers for Disease Control and Prevention. Also: facing U.S. history without shame; shutting ‘Alligator Alcatraz.”`\
+https://nytimes.com/2025/08/29/opinion/alarm-over-the-purge-at-the-cdc.html
+
+**Finding Beauty Behind Razor Wire**\
+`These trees were the only living beings that I could touch without fear.`\
+https://nytimes.com/interactive/2025/08/29/opinion/trees-nature-prison-beauty.html
+
 **The 8.31.25 Issue**\
 ``\
 https://nytimes.com/issue/magazine/2025/08/29/the-83125-issue
@@ -25,12 +33,4 @@ https://nytimes.com/athletic/6584428/2025/08/29/patriots-cut-jabrill-peppers/
 **Grand Juries in D.C. Reject Prosecutors’ Efforts to Level Harsh Charges Against Residents**\
 `The extraordinary pushback in at least three separate cases comes as President Trump has flooded the streets with National Guard troops and federal agents.`\
 https://nytimes.com/2025/08/29/us/politics/dc-grand-juries-indictments.html
-
-**Try Spending Two Minutes With This Painting**\
-`Our reporter Larry Buchanan invites you to spend time staring at a single work by the surrealist painter Gertrude Abercrombie, guiding you through the painting and revealing how Abercrombie used her art to bring you inside her mind.`\
-https://nytimes.com/video/upshot/100000010360363/try-spending-two-minutes-with-this-painting.html
-
-**Super Bowl odds: Favorites remain, but Packers become a factor after Parsons trade**\
-`The Green Bay Packers surged in the odds to win the Super Bowl following the Micah Parsons trade, but the top tier of contenders is stable.`\
-https://nytimes.com/athletic/6584150/2025/08/29/super-bowl-odds-eagles-packers-parsons/
 

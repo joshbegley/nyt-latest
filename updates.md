@@ -1,3 +1,11 @@
+**Alarm Over the Purge at the C.D.C.**\
+`Readers react to the firing of the director of the Centers for Disease Control and Prevention. Also: facing U.S. history without shame; shutting ‘Alligator Alcatraz.”`\
+https://nytimes.com/2025/08/29/opinion/alarm-over-the-purge-at-the-cdc.html
+
+**Finding Beauty Behind Razor Wire**\
+`These trees were the only living beings that I could touch without fear.`\
+https://nytimes.com/interactive/2025/08/29/opinion/trees-nature-prison-beauty.html
+
 **The 8.31.25 Issue**\
 ``\
 https://nytimes.com/issue/magazine/2025/08/29/the-83125-issue
