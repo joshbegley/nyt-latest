@@ -18,7 +18,7 @@ https://nytimes.com/2025/08/29/us/politics/newbern-alabama-mayor-patrick-braxton
 `Deep within obscure footnotes, the Trump administration is claiming more of Congress’s constitutional power of the purse by threatening to block funding.`\
 https://nytimes.com/2025/08/29/upshot/trump-congress-federal-budget.html
 
-**Former Maple Leaf Mitch Marner opens up about threats, security concerns**\
+**Mitch Marner opens up about threats, security concerns while with Leafs**\
 `After Toronto's second-round playoff exit in May, Marner was targeted by fans on social media and had his family's address posted online.`\
 https://nytimes.com/athletic/6584302/2025/08/29/mitch-marner-maple-leafs-golden-knights-threats/
 
