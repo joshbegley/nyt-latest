@@ -18,7 +18,7 @@ https://nytimes.com/athletic/6582858/2025/08/28/diamond-league-finals-zurich-wil
 `The Red Sox finished their road trip with a 7-1 record, the club’s best run on the road of the season.`\
 https://nytimes.com/athletic/6583058/2025/08/28/boston-red-sox-road-trip-takeaways/
 
-**Micah Parsons' trade isn't quite Luka Dončić level, but the heartbreak in Dallas is the same**\
+**Micah Parsons' trade isn't Luka Dončić level, but Dallas' heartbreak is the same**\
 `While Dončić broke his phone in anger after being traded, let's not forget that Parsons asked to be dealt. `\
 https://nytimes.com/athletic/6582990/2025/08/28/micah-parsons-trade-luka-doncic-dallas-cowboys-mavericks/
 
