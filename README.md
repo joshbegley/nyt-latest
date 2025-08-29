@@ -1,3 +1,15 @@
+**Alabama Man Once Barred From Office by Rivals Is Elected Mayor**\
+`Patrick Braxton won the first mayoral election in a half century in the small town of Newbern, five years after its leaders put up roadblocks to his assuming office.`\
+https://nytimes.com/2025/08/29/us/politics/newbern-alabama-mayor-patrick-braxton.html
+
+**In Budget Logs It Tried to Hide, White House Wrests More Control Over Spending**\
+`Deep within obscure footnotes, the Trump administration is claiming more of Congress’s constitutional power of the purse by threatening to block funding.`\
+https://nytimes.com/2025/08/29/upshot/trump-congress-federal-budget.html
+
+**Mitch Marner opens up about threats, security concerns while playing for Maple Leafs**\
+`After Toronto's second-round playoff exit in May, Marner was targeted by fans on social media and had his family's address posted online.`\
+https://nytimes.com/athletic/6584302/2025/08/29/mitch-marner-maple-leafs-golden-knights-threats/
+
 **Goals, assists and marketability: What Xavi Simons will bring to Spurs**\
 `Simons will add depth and a sprinkling of magic to unlock every type of team - it is a statement signing for Spurs and Frank `\
 https://nytimes.com/athletic/6584149/2025/08/29/xavi-simons-tottenham-transfer-leipzig/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6584296/2025/08/29/maximilian-beier-brentford-dortm
 **2 Simple Secrets for Making Restaurant-Quality Scallops at Home**\
 `For a quick, light dinner, these small steps go a long, long way, Eric Kim writes.`\
 https://nytimes.com/2025/08/29/dining/how-to-cook-scallops.html
-
-**What Thomas Tuchel's latest England squad tells us: Full-back battle ahead, no Bellingham issue**\
-`Tuchel has picked his squad for World Cup qualifiers against Andorra and Serbia - so what can we learn?`\
-https://nytimes.com/athletic/6584067/2025/08/29/what-thomas-tuchels-latest-england-squad-tells-us-full-back-battle-ahead-no-bellingham-issue/
-
-**Emery targeting 'two to three' signings for Villa before deadline**\
-`Villa have signed only two players this summer, with 14 leaving. `\
-https://nytimes.com/athletic/6584250/2025/08/29/unai-emery-aston-villa-signings-transfer-window/
-
-**The Spanish Coastline That Feels Like a Dream**\
-`Much of Salvador Dalí’s work was inspired by the Costa Brava’s natural splendor. This less-explored stretch of the Mediterranean is as bewitching as ever.`\
-https://nytimes.com/2025/08/29/t-magazine/costa-brava-spain-hotels-restaurants.html
 
