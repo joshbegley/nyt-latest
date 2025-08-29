@@ -1,3 +1,15 @@
+**Alabama Man Once Barred From Office by Rivals Is Elected Mayor**\
+`Patrick Braxton won the first mayoral election in a half century in the small town of Newbern, five years after its leaders put up roadblocks to his assuming office.`\
+https://nytimes.com/2025/08/29/us/politics/newbern-alabama-mayor-patrick-braxton.html
+
+**In Budget Logs It Tried to Hide, White House Wrests More Control Over Spending**\
+`Deep within obscure footnotes, the Trump administration is claiming more of Congress’s constitutional power of the purse by threatening to block funding.`\
+https://nytimes.com/2025/08/29/upshot/trump-congress-federal-budget.html
+
+**Mitch Marner opens up about threats, security concerns while playing for Maple Leafs**\
+`After Toronto's second-round playoff exit in May, Marner was targeted by fans on social media and had his family's address posted online.`\
+https://nytimes.com/athletic/6584302/2025/08/29/mitch-marner-maple-leafs-golden-knights-threats/
+
 **Goals, assists and marketability: What Xavi Simons will bring to Spurs**\
 `Simons will add depth and a sprinkling of magic to unlock every type of team - it is a statement signing for Spurs and Frank `\
 https://nytimes.com/athletic/6584149/2025/08/29/xavi-simons-tottenham-transfer-leipzig/
