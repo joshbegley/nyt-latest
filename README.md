@@ -1,3 +1,11 @@
+**Frank Price, a Studio Chief Several Times Over, Dies at 95**\
+`He ran Universal’s television and movie businesses and had two stints at Columbia. Running a studio, he said, was “sort of like being the head of a small country.”`\
+https://nytimes.com/2025/08/29/movies/frank-price-dead.html
+
+**Who were the biggest dynasty league winners and losers of the preseason?**\
+`Jeff Haverlack identifies the biggest dynasty market movers of the preseason, including a Browns back who he thinks is a steal of a deal.`\
+https://nytimes.com/athletic/6584565/2025/08/29/dynasty-league-football-winers-losers-preseason-jsn-jcm/
+
 **Challenge Emerges to Two Trump-Appointed Prosecutors**\
 `The federal public defender's office challenged the legality of allowing the U.S. attorneys in Los Angeles and Las Vegas to continue in their jobs without congressional approval.`\
 https://nytimes.com/2025/08/29/us/us-attorney-los-angeles-nevada-challenge.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/08/29/world/africa/boat-capsize-mauritania-gambia-seneg
 **Prime Tire: At the Dutch GP, all aboard our last Max Express. Plus, George Russell isn't worried**\
 `Welcome to Prime Tire, The Athletic's Formula 1 newsletter`\
 https://nytimes.com/athletic/6584528/2025/08/29/dutch-gp-max-verstappen-george-russell-prime-tire-newsletter/
-
-**Little League bat-flipper’s bat fetches nearly $10K at auction: ‘I was shocked’**\
-`One hundred percent of the proceeds of Marco Rocco’s bat will be going to Haddonfield Little League.`\
-https://nytimes.com/athletic/6584597/2025/08/29/little-league-world-series-bat-flip-auction/
-
-**Trump Administration Bars Palestinian Officials From U.N. Meeting in New York**\
-`The United States generally allows foreign officials to attend the United Nations General Assembly. The administration’s move comes amid a new push for Palestinian statehood.`\
-https://nytimes.com/2025/08/29/us/politics/trump-palestinians-un.html
 
