@@ -1,3 +1,7 @@
+**Spirit Airlines Files for Bankruptcy for 2nd Time in a Year**\
+`The troubled carrier last exited Chapter 11 in March. It said more could be done to stabilize the company with a second filing.`\
+https://nytimes.com/2025/08/29/business/spirit-airlines-bankruptcy.html
+
 **Arsenal reach agreement with Leverkusen to sign defender Hincapie**\
 `The deal is a season-long loan including an obligation to buy for a total package of €52million — plus a 10 per cent sell-on clause.
 `\
