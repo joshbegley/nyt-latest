@@ -1,3 +1,7 @@
+**What are the rules on under-18s playing in the Premier League?**\
+`What are the Premier League's rules on under-18s playing in it and who is the youngest to have got a game in the English top flight?`\
+https://nytimes.com/athletic/6263865/2025/08/29/premier-league-under18-rules-explained/
+
 **Trump Moves to Strip More Federal Workers of Union Protections**\
 `The pre-Labor Day order included NASA, the National Weather Service and the agency that oversees Voice of America.`\
 https://nytimes.com/2025/08/29/us/politics/trump-federal-workers-union-protections.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/29/business/trump-tariffs-de-minimis.html
 **When Mailing a Letter to the U.S. Becomes a Global Headache**\
 `A driver’s license renewal, a box of specialty candy, even early Christmas presents — all are caught up in the confusion caused by a new Trump administration customs rule.`\
 https://nytimes.com/2025/08/29/business/us-tariffs-shipping-suspensions-de-minimis.html
-
-**August in Paris: When the City Empties Out, Locals Left Behind Rejoice**\
-`With many away for long vacations, the capital is transformed into a sleepy, roomy, more friendly place.`\
-https://nytimes.com/2025/08/29/world/europe/paris-summer-vacations.html
 
