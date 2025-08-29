@@ -1,3 +1,7 @@
+**Red Sox release Walker Buehler as rookie Payton Tolle steps into rotation**\
+`The Red Sox parted ways with Buehler, who never got on track after signing as a free agent in the offseason.`\
+https://nytimes.com/athletic/6584619/2025/08/29/red-sox-walker-buehler-release-payton-tolle/
+
 **Frank Price, a Studio Chief Several Times Over, Dies at 95**\
 `He ran Universal’s television and movie businesses and had two stints at Columbia. Running a studio, he said, was “sort of like being the head of a small country.”`\
 https://nytimes.com/2025/08/29/movies/frank-price-dead.html
@@ -11,7 +15,7 @@ https://nytimes.com/athletic/6584565/2025/08/29/dynasty-league-football-winers-l
 https://nytimes.com/2025/08/29/us/us-attorney-los-angeles-nevada-challenge.html
 
 **Transportation Dept. Cancels $679 Million for Offshore Wind Projects**\
-`The Trump administration’s campaign against wind power continued as it targeted funding for marine terminals and ports to support development.`\
+`The Trump administration’s campaign against wind power continued as it targeted funding for marine terminals and ports to support development of the industry.`\
 https://nytimes.com/2025/08/29/climate/transportation-dept-cancels-679-million-wind-industry.html
 
 **What to Know About Kamala Harris’s Secret Service Protection**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6584369/2025/08/29/xavi-simons-tottenham-hotspur-an
 **More Than 130 People Are Feared Dead in West Africa Boat Tragedy**\
 `Around 150 people boarded a boat in Gambia that was thought to have been headed for Europe. The boat capsized after traveling about 380 miles.`\
 https://nytimes.com/2025/08/29/world/africa/boat-capsize-mauritania-gambia-senegal.html
-
-**Prime Tire: At the Dutch GP, all aboard our last Max Express. Plus, George Russell isn't worried**\
-`Welcome to Prime Tire, The Athletic's Formula 1 newsletter`\
-https://nytimes.com/athletic/6584528/2025/08/29/dutch-gp-max-verstappen-george-russell-prime-tire-newsletter/
 
