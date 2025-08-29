@@ -1,8 +1,12 @@
+**Ernst Will Not Run Again, Putting a Competitive Senate Seat in Play**\
+`Democrats still face an uphill fight to win in Iowa and retake the majority in the closely divided Senate.`\
+https://nytimes.com/2025/08/29/us/politics/joni-ernst-senate-iowa-re-election.html
+
 **Alarm Over the Purge at the C.D.C.**\
 `Readers react to the firing of the director of the Centers for Disease Control and Prevention. Also: facing U.S. history without shame; shutting ‘Alligator Alcatraz.”`\
 https://nytimes.com/2025/08/29/opinion/alarm-over-the-purge-at-the-cdc.html
 
-**Finding Beauty Behind Razor Wire**\
+**Finding Beauty in a Prison Yard**\
 `These trees were the only living beings that I could touch without fear.`\
 https://nytimes.com/interactive/2025/08/29/opinion/trees-nature-prison-beauty.html
 
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6582126/2025/08/29/usmnt-my-game-my-words-luna-berh
 **Patriots cut Jabrill Peppers, veteran safety and former captain: Source**\
 `In a huge surprise just ahead of the season opener, New England is releasing the 29-year-old Peppers, a stalwart of their defense.`\
 https://nytimes.com/athletic/6584428/2025/08/29/patriots-cut-jabrill-peppers/
-
-**Grand Juries in D.C. Reject Prosecutors’ Efforts to Level Harsh Charges Against Residents**\
-`The extraordinary pushback in at least three separate cases comes as President Trump has flooded the streets with National Guard troops and federal agents.`\
-https://nytimes.com/2025/08/29/us/politics/dc-grand-juries-indictments.html
 

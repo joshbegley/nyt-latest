@@ -1,3 +1,11 @@
+**Ernst Will Not Run Again, Putting a Competitive Senate Seat in Play**\
+`Democrats still face an uphill fight to win in Iowa and retake the majority in the closely divided Senate.`\
+https://nytimes.com/2025/08/29/us/politics/joni-ernst-senate-iowa-re-election.html
+
+**Finding Beauty in a Prison Yard**\
+`These trees were the only living beings that I could touch without fear.`\
+https://nytimes.com/interactive/2025/08/29/opinion/trees-nature-prison-beauty.html
+
 **Alarm Over the Purge at the C.D.C.**\
 `Readers react to the firing of the director of the Centers for Disease Control and Prevention. Also: facing U.S. history without shame; shutting ‘Alligator Alcatraz.”`\
 https://nytimes.com/2025/08/29/opinion/alarm-over-the-purge-at-the-cdc.html
