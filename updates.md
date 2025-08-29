@@ -1,3 +1,7 @@
+**Protesters and Police Clash in Indonesia**\
+`Police officers in riot gear fired tear gas and charged protesters, some of whom had been throwing rocks.`\
+https://nytimes.com/video/world/asia/100000010368269/indonesia-protests-inflation.html
+
 **Jose Mourinho leaves Fenerbahce after one year as head coach**\
 `Mourinho's exit comes days after the club missed out on a spot in the Champions League league phase after a playoff defeat to Benfica.`\
 https://nytimes.com/athletic/6583609/2025/08/29/jose-mourinho-leaves-fenerbahce/
