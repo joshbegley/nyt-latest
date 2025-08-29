@@ -1,3 +1,11 @@
+**Michael Vick takes first college coaching loss as Towson beats Norfolk State 27-7**\
+`The Spartans never led, had too many costly mistakes and ultimately got in their own way too often.`\
+https://nytimes.com/athletic/6583349/2025/08/28/michael-vick-norfolk-towson/
+
+**Justin Verlander praises Kyle Tucker amid struggles, injury setback: 'He didn't make excuses'**\
+`After a three-game benching/mental reset, Tucker is showing signs that he could be breaking out of the worst slump of his career.`\
+https://nytimes.com/athletic/6583253/2025/08/28/justin-verlander-kyle-tucker-cubs-giants/
+
 **Trump Officials Threaten to Pull Funding From Denver Public Schools**\
 `The Education Department gave Denver Public Schools 10 days to ban transgender students from using bathrooms that align with their gender identity.`\
 https://nytimes.com/2025/08/28/us/politics/trump-denver-schools-transgender-bathrooms.html
