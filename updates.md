@@ -1,3 +1,15 @@
+**Nick Woltemade, secret talks and the night Newcastle decided to go for it**\
+`Newcastle have finally made their move for a striker. This is the story of how their approach for Woltemade accelerated this week`\
+https://nytimes.com/athletic/6582169/2025/08/29/nick-woltemade-newcastle-transfers/
+
+**Word of the Day: gobbledygook**\
+`This word has appeared in 12 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2025/08/29/learning/word-of-the-day-gobbledygook.html
+
+**Do Manchester United still believe in the Ruben Amorim project?**\
+`The whole situation at Old Trafford is starting to look bleak and, in that respect, horribly familiar.`\
+https://nytimes.com/athletic/6582874/2025/08/29/garnacho-mainoo-amorim-man-utd/
+
 **Do Manchester United still believe in the Ruben Amorim project?**\
 `The whole situation is starting to look bleak and, in that respect, horribly familiar.`\
 https://nytimes.com/athletic/6582874/2025/08/29/garnacho-mainoo-amorim-man-utd/
