@@ -1,3 +1,11 @@
+**After years of delays, civil trial between Angels and the family of Tyler Skaggs set for September**\
+`In preparation for trial, the Skaggs family hired attorney Shawn Holley to be co-lead counsel with Rusty Hardin.`\
+https://nytimes.com/athletic/6583166/2025/08/28/angels-tyler-skaggs-civil-trial-date-set/
+
+**CVS Holds Off on Offering Covid Vaccines in 16 States**\
+`The country’s largest pharmacy chain said it needed a C.D.C. panel to recommend the shots before it could offer them nationwide.`\
+https://nytimes.com/2025/08/28/well/cvs-pharmacy-covid-vaccine-16-states.html
+
 **Why Thailand’s Politics Are in Constant Crisis**\
 `While the country is a constitutional monarchy that holds regular elections, analysts say it is beholden to an unelected old guard.`\
 https://nytimes.com/2025/08/28/world/asia/thailand-politics-crisis.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6582990/2025/08/28/micah-parsons-trade-luka-doncic-
 **Judge Orders New Federal Trial in Tyre Nichols Case**\
 `The ruling cited concerns about the appearance of bias, pointing to comments that the judge who presided over the trial of three former police officers reportedly made afterward.`\
 https://nytimes.com/2025/08/28/us/politics/tyre-nichols-federal-trial.html
-
-**Thai Premier Could Be Third in Her Family to Be Ousted From Office**\
-`Paetongtarn Shinawatra is facing a legal challenge that’s seen as an important test of her powerful family’s standing with Thailand’s old guard.`\
-https://nytimes.com/2025/08/28/world/asia/thailand-paetongtarn-shinawatra-verdict.html
-
-**Why Andre Pallante will remain in Cardinals rotation despite second-half struggles**\
-`"I'm definitely frustrated," Pallante said. "I want to give quality starts, good starts for this team so we go out there and win games."`\
-https://nytimes.com/athletic/6582072/2025/08/28/andre-pallante-cardinals-rotation-despite-struggles/
 
