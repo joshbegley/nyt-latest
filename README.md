@@ -1,3 +1,15 @@
+**It’s the End of ‘Big City.’ New York Will Be Fine.**\
+`The weekly column that focused on inequality in the city ran for 14 years, from Occupy Wall Street to Zohran Mamdani. Now it comes to a close.`\
+https://nytimes.com/2025/08/29/nyregion/big-city-nyc-inequality.html
+
+**N.Y.C. Covid Cases Appear to Be Rising. So Are Inquiries on Vaccines.**\
+`Patients are flooding medical practices with reports of the telltale signs of Covid and questions about whether they will be able to get vaccinated.`\
+https://nytimes.com/2025/08/29/nyregion/covid-cases-rising-new-york.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/08/29/crosswords/spelling-bee-forum.html
+
 **Students Call for More Protests in Indonesia After Fatal Clash With Police**\
 `Rising unemployment and inflation have driven the protests in Jakarta, the capital. The police responded with force on Thursday, killing a 21-year-old man.`\
 https://nytimes.com/2025/08/29/world/asia/indonesia-protests-inflation.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6582169/2025/08/29/nick-woltemade-newcastle-transfe
 **Word of the Day: gobbledygook**\
 `This word has appeared in 12 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2025/08/29/learning/word-of-the-day-gobbledygook.html
-
-**Do Manchester United still believe in the Ruben Amorim project?**\
-`The whole situation at Old Trafford is starting to look bleak and, in that respect, horribly familiar.`\
-https://nytimes.com/athletic/6582874/2025/08/29/garnacho-mainoo-amorim-man-utd/
-
-**Why FM25 was cancelled: 'Pulling the game was absolutely the right thing to do'**\
-`Sports Interactive boss Miles Jacobson talks about shelving the release of FM25 and why his team expect to redeem themselves with FM26`\
-https://nytimes.com/athletic/6564634/2025/08/29/miles-jacobson-football-manager-interview-fm25-fm26/
-
-**Washington Governor Criticizes Border Patrol Arrests at Wildfire Site**\
-`Gov. Bob Ferguson demanded an explanation for the arrests of two contract workers at the site of a wildfire. Border Patrol said they were in the country illegally.`\
-https://nytimes.com/2025/08/29/us/border-patrol-arrest-washington-wildfire.html
 
