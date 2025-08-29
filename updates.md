@@ -1,3 +1,19 @@
+**Forest close to signing Botafogo goalkeeper Victor**\
+`The Premier League club are pushing to sign 29-year-old Victor to bolster their goalkeeper options.`\
+https://nytimes.com/athletic/6585003/2025/08/29/nottingham-forest-transfer-news-john-victor/
+
+**Missouri Unveils Redistricting Plan, Aiming to Add a Republican Seat**\
+`Following Texas, Gov. Mike Kehoe called a special legislative session to redraw his state’s Congressional district lines to boost Republicans.`\
+https://nytimes.com/2025/08/29/us/missouri-governor-redistricting-maps.html
+
+**Blue Jays place Yimi García on the IL. How will they fill his bullpen role?**\
+`Toronto will need to add another reliever, with Braydon Fisher possibly being an option to increase the team's bullpen depth.`\
+https://nytimes.com/athletic/6584778/2025/08/29/blue-jays-yimi-garcia-injury-bullpen/
+
+**Brian Schottenheimer: Micah Parsons trade doesn't change Cowboys' goals**\
+`“Micah is an incredible player. But this is the ultimate team game," Schottenheimer said Friday after the blockbuster trade.`\
+https://nytimes.com/athletic/6584945/2025/08/29/micah-parsons-trade-cowboys-schottenheimer/
+
 **Will the C.D.C. Survive?**\
 `Robert F. Kennedy Jr.’s assault may have dealt lasting damage to the agency, experts fear, with harsh consequences for public health.`\
 https://nytimes.com/2025/08/29/health/cdc-kennedy-public-health.html

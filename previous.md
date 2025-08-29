@@ -1,3 +1,19 @@
+**Forest close to signing Botafogo goalkeeper Victor**\
+`The Premier League club are pushing to sign 29-year-old Victor to bolster their goalkeeper options.`\
+https://nytimes.com/athletic/6585003/2025/08/29/nottingham-forest-transfer-news-john-victor/
+
+**Missouri Unveils Redistricting Plan, Aiming to Add a Republican Seat**\
+`Following Texas, Gov. Mike Kehoe called a special legislative session to redraw his state’s Congressional district lines to boost Republicans.`\
+https://nytimes.com/2025/08/29/us/missouri-governor-redistricting-maps.html
+
+**Blue Jays place Yimi García on the IL. How will they fill his bullpen role?**\
+`Toronto will need to add another reliever, with Braydon Fisher possibly being an option to increase the team's bullpen depth.`\
+https://nytimes.com/athletic/6584778/2025/08/29/blue-jays-yimi-garcia-injury-bullpen/
+
+**Brian Schottenheimer: Micah Parsons trade doesn't change Cowboys' goals**\
+`“Micah is an incredible player. But this is the ultimate team game," Schottenheimer said Friday after the blockbuster trade.`\
+https://nytimes.com/athletic/6584945/2025/08/29/micah-parsons-trade-cowboys-schottenheimer/
+
 **Will the C.D.C. Survive?**\
 `Robert F. Kennedy Jr.’s assault may have dealt lasting damage to the agency, experts fear, with harsh consequences for public health.`\
 https://nytimes.com/2025/08/29/health/cdc-kennedy-public-health.html
@@ -17,20 +33,4 @@ https://nytimes.com/2025/08/29/health/human-health-vaccines-oneill.html
 **Strangers Come Together to Deliver Baby Girl at Burning Man**\
 `A woman unexpectedly went into labor at the desert festival. Within minutes, a neonatal nurse, an OB-GYN, a pediatric doctor and other attendees filled her camper.`\
 https://nytimes.com/2025/08/29/us/burning-man-baby.html
-
-**Spirit Airlines Files for Bankruptcy for 2nd Time in a Year**\
-`The troubled carrier last exited Chapter 11 in March. It said more could be done to stabilize the company with a second filing.`\
-https://nytimes.com/2025/08/29/business/spirit-airlines-bankruptcy.html
-
-**Emery targeting 'two to three' more signings for Villa before transfer deadline**\
-`Villa have seen 14 players leave this summer, only signing two.  `\
-https://nytimes.com/athletic/6584297/2025/08/29/unai-emery-aston-villa-signings-transfer-window/
-
-**Tottenham will not sign a new centre-back before the window closes, Frank says**\
-`Spurs struggled with injuries last season as Van de Ven had a hamstring injury while Romero had toe and quad issues. `\
-https://nytimes.com/athletic/6584386/2025/08/29/thomas-frank-tottenham-hotspur-injury-update/
-
-**Eze ready to make Arsenal debut against Liverpool - Arteta**\
-`Arsenal signed the 27-year-old from Crystal Palace last week and presented him on the pitch before their 5-0 win over Leeds.`\
-https://nytimes.com/athletic/6584099/2025/08/29/eberechi-eze-arsenal-debut-liverpool/
 
