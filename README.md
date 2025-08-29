@@ -27,7 +27,7 @@ https://nytimes.com/2025/08/29/us/missouri-governor-redistricting-maps.html
 https://nytimes.com/athletic/6584778/2025/08/29/blue-jays-yimi-garcia-injury-bullpen/
 
 **Brian Schottenheimer: Micah Parsons trade doesn't change Cowboys' goals**\
-`“Micah is an incredible player. But this is the ultimate team game," Schottenheimer said Friday after the blockbuster trade.`\
+`"Micah is an incredible player. But this is the ultimate team game," Schottenheimer said Friday after the blockbuster trade.`\
 https://nytimes.com/athletic/6584945/2025/08/29/micah-parsons-trade-cowboys-schottenheimer/
 
 **Will the C.D.C. Survive?**\
