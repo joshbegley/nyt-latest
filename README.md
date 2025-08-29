@@ -1,3 +1,11 @@
+**3 Workers at Rikers Are Suspended After Another Man Dies in Custody**\
+`The death of the 29-year-old, who was found in his cell after midnight, is the latest of several at the Rikers Island jail complex in New York.`\
+https://nytimes.com/2025/08/29/nyregion/rikers-death-ardit-billa.html
+
+**Margaret W. Rossiter, 81, Dies; Wrote Women Scientists Into History**\
+`In her groundbreaking trilogy, “Women Scientists in America,” she told the stories of numerous accomplished but largely invisible women.`\
+https://nytimes.com/2025/08/29/science/margaret-w-rossiter-dead.html
+
 **For Democrats, Hindsight Is 2021**\
 `Democrats once had a chance to blunt a couple of the moves President Trump is making now, on redistricting and the takeover of the police force in Washington, D.C.`\
 https://nytimes.com/2025/08/29/us/politics/trump-democrats-dc-takeover-redistricting.html
@@ -29,8 +37,4 @@ https://nytimes.com/athletic/6584778/2025/08/29/blue-jays-yimi-garcia-injury-bul
 **Brian Schottenheimer: Micah Parsons trade doesn't change Cowboys' goals**\
 `"Micah is an incredible player. But this is the ultimate team game," Schottenheimer said Friday after the blockbuster trade.`\
 https://nytimes.com/athletic/6584945/2025/08/29/micah-parsons-trade-cowboys-schottenheimer/
-
-**Will the C.D.C. Survive?**\
-`Robert F. Kennedy Jr.’s assault may have dealt lasting damage to the agency, experts fear, with harsh consequences for public health.`\
-https://nytimes.com/2025/08/29/health/cdc-kennedy-public-health.html
 
