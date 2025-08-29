@@ -1,3 +1,15 @@
+**With Canal and Dams Wrecked, a Russian-Occupied City’s Taps Run Dry**\
+`The Russian authorities have seized on the crisis in Donetsk to argue that taking over the rest of the region from Ukraine would allow Moscow to restore the water supply.`\
+https://nytimes.com/2025/08/29/world/europe/donetsk-water-shortage-crisis.html
+
+**Golden State Valkyries' playoff push is in hands of renewed point guard Veronica Burton**\
+`Cut, overlooked and put up for the expansion draft. Now the point guard is having a career season and is a Most Improved Player candidate.`\
+https://nytimes.com/athletic/6582367/2025/08/29/veronica-burton-golden-state-valkyries/
+
+**How to watch Week 1 clash between Alabama and Florida State on Saturday**\
+`Alabama and Florida State have met five times previously, but this will be the first on the Seminoles' home turf.`\
+https://nytimes.com/athletic/6582927/2025/08/29/alabama-florida-state-week-1-how-to-watch/
+
 **Rodri, Carvajal back in Spain squad after ACL injuries**\
 `Spain face Bulgaria and Turkey away on September 4 and 7 respectively in World Cup qualifiers.`\
 https://nytimes.com/athletic/6583725/2025/08/29/spain-squad-rodri-carvajal/

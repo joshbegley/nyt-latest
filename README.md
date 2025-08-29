@@ -1,3 +1,7 @@
+**Test Headline**\
+`Test Summary`\
+https://nytimes.com/paidpost/wirecutter/client-name/test-headline.html
+
 **With Canal and Dams Wrecked, a Russian-Occupied City’s Taps Run Dry**\
 `The Russian authorities have seized on the crisis in Donetsk to argue that taking over the rest of the region from Ukraine would allow Moscow to restore the water supply.`\
 https://nytimes.com/2025/08/29/world/europe/donetsk-water-shortage-crisis.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5169339/2025/08/29/arsenal-jakub-kiwior-porto-piero
 **How to watch NASCAR Southern 500: The Cup Series playoffs start in Darlington**\
 `The playoff battle begins at Darlington, where 16 drivers start the chase, but only one will lift the Bill France Cup in November.`\
 https://nytimes.com/athletic/6582835/2025/08/29/nascar-southern-500-how-to-watch-playoffs/
-
-**How to prep for your fantasy football draft in 15 minutes or less**\
-`If it's draft day and you find yourself completely unprepared, we've got you covered with a quick guide to get you up to speed in minutes.`\
-https://nytimes.com/athletic/6582593/2025/08/29/fantasy-football-draft-2025-prep-last-minute/
 
