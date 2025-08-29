@@ -1,3 +1,7 @@
+**Why FM25 was cancelled: 'Pulling the game was absolutely the right thing to do'**\
+`Sports Interactive boss Miles Jacobson talks about shelving the release of FM25 and why his team expect to redeem themselves with FM26`\
+https://nytimes.com/athletic/6564634/2025/08/29/miles-jacobson-football-manager-interview-fm25-fm26/
+
 **Washington Governor Criticizes Border Patrol Arrests at Wildfire Site**\
 `Gov. Bob Ferguson demanded an explanation for the arrests of two contract workers at the site of a wildfire. Border Patrol said they were in the country illegally.`\
 https://nytimes.com/2025/08/29/us/border-patrol-arrest-washington-wildfire.html

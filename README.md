@@ -26,10 +26,6 @@ https://nytimes.com/2025/08/29/briefing/ukraine-russia-kyiv-gaza-reservists-euro
 `Konate's form, Kerkez's aerial weakness and being exposed on transitions are all problem areas for Arne Slot’s side`\
 https://nytimes.com/athletic/6581380/2025/08/29/liverpool-have-defensive-issues-this-is-where-they-must-improve/
 
-**What are the rules on under-18s playing in the Premier League?**\
-`What are the Premier League's rules on under-18s playing in it and who is the youngest to have got a game in the English top flight?`\
-https://nytimes.com/athletic/6263865/2025/08/29/premier-league-under18-rules-explained/
-
 **Trump Moves to Strip More Federal Workers of Union Protections**\
 `The pre-Labor Day order included NASA, the National Weather Service and the agency that oversees Voice of America.`\
 https://nytimes.com/2025/08/29/us/politics/trump-federal-workers-union-protections.html
@@ -37,4 +33,8 @@ https://nytimes.com/2025/08/29/us/politics/trump-federal-workers-union-protectio
 **FPL: How to replace big-name assets, from Saka and Palmer to Wirtz and Watkins**\
 `Even the most reliable, high-ownership FPL players can quickly become headaches when form dips, injuries strike, or fixtures turn sour`\
 https://nytimes.com/athletic/6577489/2025/08/29/fantasy-premier-league-transfers-gameweek-three-palmer-saka/
+
+**Do Manchester United still believe in the Ruben Amorim project?**\
+`The whole situation is starting to look bleak and, in that respect, horribly familiar.`\
+https://nytimes.com/athletic/6582874/2025/08/29/garnacho-mainoo-amorim-man-utd/
 
