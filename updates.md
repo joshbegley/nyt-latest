@@ -1,3 +1,7 @@
+**Appeals Court Declines to Block Trump From Freezing Foreign Aid**\
+`The court voted not to revisit a fight over billions in frozen funds, but simultaneously revised an earlier order to give nonprofits that sued a narrow path forward in the case.`\
+https://nytimes.com/2025/08/29/us/politics/appeals-court-trump-foreign-aid.html
+
 **Russia’s Deadly Attack on Kyiv**\
 `Also, the secret of “KPop Demon Hunters.”`\
 https://nytimes.com/2025/08/29/briefing/ukraine-russia-kyiv-gaza-reservists-europe-iran-sanctions.html
