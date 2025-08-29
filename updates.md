@@ -1,3 +1,11 @@
+**We Taste-Tested 54 Plain Yogurts. Here Are Our Favorites. **\
+`Text by Leah Koenig`\
+https://nytimes.com/card/2025/08/29/smarter-living/wirecutter/
+
+**A Panorama of Design**\
+`A look at design-world events, products and people.`\
+https://nytimes.com/2025/08/29/style/design-products-healthy-living.html
+
 **Miami LB Adarius Hayes charged with vehicular homicide in deadly crash**\
 `The Hurricanes suspended Hayes, who faces three counts of vehicular homicide and one count of reckless driving with serious bodily injury.`\
 https://nytimes.com/athletic/6584638/2025/08/29/miami-adarius-hayes-charged-car-accident/
