@@ -1,3 +1,7 @@
+**There's been progress for Braves under hitting coach Tim Hyers, but enough to keep him?**\
+`"It takes a little while, but I think now we're starting to kind of get on the same page," Hyers said.`\
+https://nytimes.com/athletic/6583330/2025/08/28/braves-hitting-coach-tim-hyers-progress/
+
 **Michael Vick takes first college coaching loss as Towson beats Norfolk State 27-7**\
 `The Spartans never led, had too many costly mistakes and ultimately got in their own way too often.`\
 https://nytimes.com/athletic/6583349/2025/08/28/michael-vick-norfolk-towson/
