@@ -1,3 +1,7 @@
+**Flashback: Your Weekly History Quiz, Aug. 30, 2025**\
+`Can you sort 8 historical events?`\
+https://nytimes.com/interactive/2025/08/29/upshot/flashback.html
+
 **Champions League exit and attitude towards Fenerbahce: Why Jose Mourinho was sacked**\
 `Jose Mourinho and Turkish football could have been perfect for each other. But nobody can be surprised it ended like this`\
 https://nytimes.com/athletic/6584015/2025/08/29/jose-mourinho-sacked-fenerbahce-turkish/

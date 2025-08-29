@@ -1,3 +1,11 @@
+**Cowboys trading Micah Parsons has ramifications for Eagles, Giants and Commanders**\
+`The massive trade left a very different division behind. How has the NFC East landscape changed?`\
+https://nytimes.com/athletic/6584443/2025/08/29/micah-parsons-trade-cowboys-eagles-giants-commanders/
+
+**Prospects Jimmy Crooks, César Prieto to join Cardinals as Alec Burleson hits IL: Sources**\
+`Burleson heads to the injured list in a blow to the Cardinals' offense, while Yohel Pozo is going on the seven-day concussion IL.`\
+https://nytimes.com/athletic/6584497/2025/08/29/st-louis-cardinals-jimmy-crooks-cesar-prieto-mlb-debuts/
+
 **Flashback: Your Weekly History Quiz, Aug. 30, 2025**\
 `Can you sort 8 historical events?`\
 https://nytimes.com/interactive/2025/08/29/upshot/flashback.html
@@ -29,8 +37,4 @@ https://nytimes.com/explain/2025/science/astronomy-space-calendar-events/sept-23
 **Sept. 29: Blue Origin could launch twin NASA satellites to Mars.**\
 `By Michael Roston`\
 https://nytimes.com/explain/2025/science/astronomy-space-calendar-events/sept-29-blue-origin-could-launch-twin-nasa-satellites-to-mars
-
-**Oklahoma State QB Hauss Hejny out a month with broken foot: Source**\
-`Hejny got injured late in the first quarter of the Cowboys' 27-7 season-opening win over UT-Martin Thursday night. Zane Flores replaced him.`\
-https://nytimes.com/athletic/6584442/2025/08/29/oklahoma-state-hauss-hejny-broken-foot/
 
