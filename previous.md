@@ -1,3 +1,11 @@
+**Texas Lawmakers Back Citizen Lawsuits to Stop Mail-Order Abortion Pills**\
+`Legislation aimed at curtailing mail-order abortions in Texas cleared a decisive hurdle, part of a broader push by abortion opponents to limit the procedure even in states where it is legal.`\
+https://nytimes.com/2025/08/28/us/politics/texas-house-abortion-bill.html
+
+**Judge Rejects Saudis’ Attempt to Dismiss Lawsuit by 9/11 Families**\
+`A pair of hijackers got settled in California with help from a man paid by the Saudi government. A federal judge found that might have been part of his official duties.`\
+https://nytimes.com/2025/08/28/us/politics/saudi-arabia-lawsuit-9-11-families.html
+
 **There's been progress for Braves under hitting coach Tim Hyers, but enough to keep him?**\
 `"It takes a little while, but I think now we're starting to kind of get on the same page," Hyers said.`\
 https://nytimes.com/athletic/6583330/2025/08/28/braves-hitting-coach-tim-hyers-progress/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/08/28/us/politics/abrego-garcia-gag-order.html
 **Move the First Pawn**\
 `Jesse Cohn’s puzzle is packed with fun.`\
 https://nytimes.com/2025/08/28/crosswords/daily-puzzle-2025-08-29.html
-
-**Pediatric Brain Cancer Trial Group to Be Phased Out**\
-`A network of hospitals and cancer centers dedicated to early phase trials of novel treatments will no longer receive federal funding.`\
-https://nytimes.com/2025/08/28/well/pediatric-brain-cancer-trial-group.html
-
-**Schwarbombs galore: Kyle Schwarber makes Phillies, MLB history with 4 homers, 9 RBIs**\
-`It is the 21st four-homer game in MLB history, and the fourth in Phillies history. `\
-https://nytimes.com/athletic/6583230/2025/08/28/phillies-kyle-schwarber-four-homer-game/
 
