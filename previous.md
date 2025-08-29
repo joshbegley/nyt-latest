@@ -1,3 +1,7 @@
+**Legionnaires’ Outbreak Traced to N.Y.C.-Owned Sites, Including Hospital**\
+`Officials said Harlem Hospital and a nearby construction site were two sources of an outbreak that has killed seven and sickened over 100.`\
+https://nytimes.com/2025/08/29/nyregion/nyc-legionnaires-disease-harlem-hospital.html
+
 **Scoop City: Jerry's blockbuster is a blunder**\
 `Trading Micah Parsons was a loss for the Cowboys, win for the Packers, and another headline for Jerry Jones.`\
 https://nytimes.com/athletic/6584607/2025/08/29/micah-parsons-trade-nfl-cowboys-packers-scoop-city/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/29/us/politics/minneapolis-shooting-anti-transgender
 **Gotham FC forward Esther Gonzalez is kind and soft-spoken - until she gets in front of goal**\
 `The Gotham forward scores goals wherever she goes, but off the field she prefers a quieter life. `\
 https://nytimes.com/athletic/6584450/2025/08/29/gotham-fc-esther-gonzalez-spain-striker/
-
-**Vail Settles Lawsuit After Canceling Artist’s Residency Over Gaza Views**\
-`In settling a lawsuit brought by the A.C.L.U., the Colorado town agreed to fund an art program for underrepresented people and provide cultural sensitivity training to some of its employees.`\
-https://nytimes.com/2025/08/29/arts/design/vail-artist-gaza-lawsuit-settlement.html
 

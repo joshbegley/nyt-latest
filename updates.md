@@ -1,3 +1,7 @@
+**Legionnaires’ Outbreak Traced to N.Y.C.-Owned Sites, Including Hospital**\
+`Officials said Harlem Hospital and a nearby construction site were two sources of an outbreak that has killed seven and sickened over 100.`\
+https://nytimes.com/2025/08/29/nyregion/nyc-legionnaires-disease-harlem-hospital.html
+
 **Scoop City: Jerry's blockbuster is a blunder**\
 `Trading Micah Parsons was a loss for the Cowboys, win for the Packers, and another headline for Jerry Jones.`\
 https://nytimes.com/athletic/6584607/2025/08/29/micah-parsons-trade-nfl-cowboys-packers-scoop-city/

@@ -1,3 +1,7 @@
+**What to Know About Kamala Harris’s Secret Service Protection**\
+`The Secret Service usually protects a former vice president for six months after they leave office.`\
+https://nytimes.com/2025/08/29/us/politics/secret-service-vice-presidents-harris-trump.html
+
 **Legionnaires’ Outbreak Traced to N.Y.C.-Owned Sites, Including Hospital**\
 `Officials said Harlem Hospital and a nearby construction site were two sources of an outbreak that has killed seven and sickened over 100.`\
 https://nytimes.com/2025/08/29/nyregion/nyc-legionnaires-disease-harlem-hospital.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/29/movies/venice-film-festival-julia-roberts-after-t
 **Conservatives Use Minneapolis Shooting in Anti-Transgender Campaigns**\
 `Activists are pointing to the attacker’s gender identity to falsely portray all transgender people as prone to mental illness and violence.`\
 https://nytimes.com/2025/08/29/us/politics/minneapolis-shooting-anti-transgender-conservatives-robin-westman.html
-
-**Gotham FC forward Esther Gonzalez is kind and soft-spoken - until she gets in front of goal**\
-`The Gotham forward scores goals wherever she goes, but off the field she prefers a quieter life. `\
-https://nytimes.com/athletic/6584450/2025/08/29/gotham-fc-esther-gonzalez-spain-striker/
 
