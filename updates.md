@@ -1,3 +1,15 @@
+**YouTube TV, Fox announce agreement on carriage deal ahead of football season**\
+`The deal ends a dispute that could have left subscribers without access to sports content ahead of football season.`\
+https://nytimes.com/athletic/6583278/2025/08/28/youtube-tv-fox-agreement-football-season/
+
+**Lawyers for Abrego Garcia Seek Gag Order Against Trump Officials**\
+`The request came after President Trump and several of his top aides had attacked Mr. Abrego Garcia as a threat, even though federal judges have ruled that he is not a danger to the public.`\
+https://nytimes.com/2025/08/28/us/politics/abrego-garcia-gag-order.html
+
+**Move the First Pawn**\
+`Jesse Cohn’s puzzle is packed with fun.`\
+https://nytimes.com/2025/08/28/crosswords/daily-puzzle-2025-08-29.html
+
 **Schwarbombs galore: Kyle Schwarber makes Phillies, MLB history with 4 homers, 9 RBIs**\
 `It is the 21st four-homer game in MLB history, and the fourth in Phillies history. `\
 https://nytimes.com/athletic/6583230/2025/08/28/phillies-kyle-schwarber-four-homer-game/
