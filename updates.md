@@ -1,3 +1,8 @@
+**Arsenal reach agreement with Leverkusen to sign defender Hincapie**\
+`The deal is a season-long loan including an obligation to buy for a total package of €52million — plus a 10 per cent sell-on clause.
+`\
+https://nytimes.com/athletic/6567358/2025/08/29/arsenal-transfer-news-hincapie-leverkusen/
+
 **Ben Shelton retires from U.S. Open with left shoulder injury against Adrian Mannarino**\
 `The American No. 6 seed had led Adrian Mannarino of France 2-1 when he hurt his hitting arm shoulder during an intensely physical contest.`\
 https://nytimes.com/athletic/6584765/2025/08/29/ben-shelton-us-open-out-injury-shoulder/
