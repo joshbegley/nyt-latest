@@ -1,3 +1,7 @@
+**Jose Mourinho leaves Fenerbahce after one year as head coach**\
+`Mourinho's exit comes days after the club missed out on a spot in the Champions League league phase after a playoff defeat to Benfica.`\
+https://nytimes.com/athletic/6583609/2025/08/29/jose-mourinho-leaves-fenerbahce/
+
 **It’s the End of ‘Big City.’ New York Will Be Fine.**\
 `The weekly column that focused on inequality in the city ran for 14 years, from Occupy Wall Street to Zohran Mamdani. Now it comes to a close.`\
 https://nytimes.com/2025/08/29/nyregion/big-city-nyc-inequality.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/29/arts/rodion-shchedrin-dead.html
 **Nick Woltemade, secret talks and the night Newcastle decided to go for it**\
 `Newcastle have finally made their move for a striker. This is the story of how their approach for Woltemade accelerated this week`\
 https://nytimes.com/athletic/6582169/2025/08/29/nick-woltemade-newcastle-transfers/
-
-**Word of the Day: gobbledygook**\
-`This word has appeared in 12 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2025/08/29/learning/word-of-the-day-gobbledygook.html
 

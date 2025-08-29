@@ -1,3 +1,7 @@
+**Jose Mourinho leaves Fenerbahce after one year as head coach**\
+`Mourinho's exit comes days after the club missed out on a spot in the Champions League league phase after a playoff defeat to Benfica.`\
+https://nytimes.com/athletic/6583609/2025/08/29/jose-mourinho-leaves-fenerbahce/
+
 **Palace are through – now come the realities of European football**\
 `Oliver Glasner's team did what they had to do in Norway - now he needs backing with new arrivals if his squad are to flourish this season`\
 https://nytimes.com/athletic/6579328/2025/08/29/crystal-palace-europe-conference-league-glasner-guehi/
