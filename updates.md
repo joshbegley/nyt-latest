@@ -1,3 +1,11 @@
+**The Spanish Coastline That Feels Like a Dream**\
+`Much of Salvador Dalí’s work was inspired by the Costa Brava’s natural splendor. This less-explored stretch of the Mediterranean is as bewitching as ever.`\
+https://nytimes.com/2025/08/29/t-magazine/costa-brava-spain-hotels-restaurants.html
+
+**Kevin De Bruyne’s Napoli home debut and an embattled Old Firm: Weekend European preview**\
+`A round up of the best action from around Europe's biggest and best leagues this weekend`\
+https://nytimes.com/athletic/6584110/2025/08/29/kevin-de-bruyne-napoli-lyon-dortmund/
+
 **Tim Connelly opts into final 2 years of contract with Timberwolves**\
 `In three seasons, Connelly has been one of the busiest team presidents in the league, working feverishly to remake the Wolves roster.`\
 https://nytimes.com/athletic/6582040/2025/08/29/tim-connelly-timberwolves-opts-contract/
