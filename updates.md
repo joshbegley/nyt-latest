@@ -1,3 +1,11 @@
+**Sleeker, Comfier, a Tiny Bit Faster: Riding Amtrak’s New Acela**\
+`The NextGen high-speed trains feel more like those in China, Japan or France. But topping out at 160 m.p.h., they’re still relatively slow.`\
+https://nytimes.com/2025/08/29/travel/amtrak-acela-train-launch.html
+
+**Man United agree fee for Antony's Real Betis return but need to sort salary**\
+`The Brazilian turned his season around with a successful loan spell at Real Betis after falling out of favour at Manchester United `\
+https://nytimes.com/athletic/6418300/2025/08/29/antony-betis-transfer-manchester-united/
+
 **We Taste-Tested 54 Plain Yogurts. Here Are Our Favorites. **\
 `Text by Leah Koenig`\
 https://nytimes.com/card/2025/08/29/smarter-living/wirecutter/

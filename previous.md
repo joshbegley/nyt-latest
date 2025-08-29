@@ -1,3 +1,11 @@
+**Sleeker, Comfier, a Tiny Bit Faster: Riding Amtrak’s New Acela**\
+`The NextGen high-speed trains feel more like those in China, Japan or France. But topping out at 160 m.p.h., they’re still relatively slow.`\
+https://nytimes.com/2025/08/29/travel/amtrak-acela-train-launch.html
+
+**Man United agree fee for Antony's Real Betis return but need to sort salary**\
+`The Brazilian turned his season around with a successful loan spell at Real Betis after falling out of favour at Manchester United `\
+https://nytimes.com/athletic/6418300/2025/08/29/antony-betis-transfer-manchester-united/
+
 **We Taste-Tested 54 Plain Yogurts. Here Are Our Favorites. **\
 `Text by Leah Koenig`\
 https://nytimes.com/card/2025/08/29/smarter-living/wirecutter/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/08/29/us/us-attorney-los-angeles-nevada-challenge.html
 **Transportation Dept. Cancels $679 Million for Offshore Wind Projects**\
 `The Trump administration’s campaign against wind power continued as it targeted funding for marine terminals and ports to support development of the industry.`\
 https://nytimes.com/2025/08/29/climate/transportation-dept-cancels-679-million-wind-industry.html
-
-**What to Know About Kamala Harris’s Secret Service Protection**\
-`The Secret Service usually protects a former vice president for six months after they leave office.`\
-https://nytimes.com/2025/08/29/us/politics/secret-service-vice-presidents-harris-trump.html
-
-**Legionnaires’ Outbreak Traced to N.Y.C.-Owned Sites, Including Hospital**\
-`Officials said Harlem Hospital and a nearby construction site were two sources of an outbreak that has killed seven and sickened over 100.`\
-https://nytimes.com/2025/08/29/nyregion/nyc-legionnaires-disease-harlem-hospital.html
 
