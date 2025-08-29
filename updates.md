@@ -1,3 +1,15 @@
+**Padres' Xander Bogaerts could miss rest of regular season with fractured left foot**\
+`An extended absence for San Diego's shortstop could reduce their chances of winning a division title for the first time since 2006.`\
+https://nytimes.com/athletic/6584871/2025/08/29/padres-xander-bogaerts-injury/
+
+**Read the appeals court ruling on Trump’s tariffs.**\
+`An appeals court ruled on Friday that many of President Trump’s most punishing tariffs are illegal, delivering a major new setback to the administration’s global trade war.`\
+https://nytimes.com/interactive/2025/08/29/us/orderandissuance.html
+
+**How the Trump-Kennedy Alliance Is Pushing the Boundaries of Public Health**\
+`The mutually beneficial relationship between President Trump and Robert F. Kennedy Jr. is based on a striking alignment of some of their views.`\
+https://nytimes.com/2025/08/29/us/politics/trump-kennedy-alliance-vaccines.html
+
 **3 Workers at Rikers Are Suspended After Another Man Dies in Custody**\
 `The death of the 29-year-old, who was found in his cell after midnight, is the latest of several at the Rikers Island jail complex in New York.`\
 https://nytimes.com/2025/08/29/nyregion/rikers-death-ardit-billa.html
