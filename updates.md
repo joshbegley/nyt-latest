@@ -1,3 +1,15 @@
+**Washington Governor Criticizes Border Patrol Arrests at Wildfire Site**\
+`Gov. Bob Ferguson demanded an explanation for the arrests of two contract workers at the site of a wildfire. Border Patrol said they were in the country illegally.`\
+https://nytimes.com/2025/08/29/us/border-patrol-arrest-washington-wildfire.html
+
+**Nebraska beats Cincinnati in Kansas City: Takeaways**\
+`The Nebraska unveiling in Year 3 under coach Matt Rhule, though rough around the edges, finished as a success.`\
+https://nytimes.com/athletic/6582619/2025/08/29/nebraska-cincinnati-score-result-takeaways/
+
+**The New York Times in Print for Friday, Aug. 29, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/08/29/todays-new-york-times
+
 **Appeals Court Declines to Block Trump From Freezing Foreign Aid**\
 `The court voted not to revisit a fight over billions in frozen funds, but simultaneously revised an earlier order to give nonprofits that sued a narrow path forward in the case.`\
 https://nytimes.com/2025/08/29/us/politics/appeals-court-trump-foreign-aid.html
