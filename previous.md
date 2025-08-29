@@ -1,3 +1,11 @@
+**Woltemade unlikely to feature for Newcastle at Leeds but Schar available**\
+`Woltemade is on Tyneside after Newcastle agreed a €75million (£65m; $87.6m) deal, plus €5m (£4.3m; $5.8m) in potential add-ons.`\
+https://nytimes.com/athletic/6583657/2025/08/29/newcastle-team-news-woltermade-transfer/
+
+**The New York Times International Edition in Print for Saturday, Aug. 30, 2025**\
+``\
+https://nytimes.com/issue/todaysinyt/2025/08/29/todays-new-york-times-international-edition
+
 **Countries Stop Accepting Small Shipments Bound for the U.S.**\
 `Some post offices around the world are not accepting small parcels to the U.S. as the “de minimis” exemption ended on Friday. The loophole once allowed packages valued at less than $800 to enter the country tariff-free.`\
 https://nytimes.com/video/world/100000010368271/trump-tariffs-de-minimis.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/08/29/opinion/minneapolis-school-shooting.html
 **Alec and Hilaria Baldwin on 8 Children, 1 Lil’ Pig and Lots of Rice-A-Roni**\
 `The actor and yoga instructor thought about selling their home in the Hamptons, but they can’t let go of the home that has become a family sanctuary.`\
 https://nytimes.com/interactive/2025/08/29/realestate/alec-hilaria-baldwin-amagansett-home.html
-
-**6 Smart Comedy Specials for Labor Day Weekend**\
-`Ali Siddiq, Beth Stelling and Vir Das are among the stand-ups delivering engaging sets that are worth your time.`\
-https://nytimes.com/2025/08/29/arts/television/comedy-specials-labor-day-weekend.html
-
-**3 Delightful Games for Labor Day Weekend**\
-`Want serenity now? Embrace your inner shepherd, bookseller or horticulturist.`\
-https://nytimes.com/2025/08/29/arts/tiny-bookshop-herdling-review.html
 

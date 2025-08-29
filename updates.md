@@ -1,3 +1,11 @@
+**Woltemade unlikely to feature for Newcastle at Leeds but Schar available**\
+`Woltemade is on Tyneside after Newcastle agreed a €75million (£65m; $87.6m) deal, plus €5m (£4.3m; $5.8m) in potential add-ons.`\
+https://nytimes.com/athletic/6583657/2025/08/29/newcastle-team-news-woltermade-transfer/
+
+**The New York Times International Edition in Print for Saturday, Aug. 30, 2025**\
+``\
+https://nytimes.com/issue/todaysinyt/2025/08/29/todays-new-york-times-international-edition
+
 **Countries Stop Accepting Small Shipments Bound for the U.S.**\
 `Some post offices around the world are not accepting small parcels to the U.S. as the “de minimis” exemption ended on Friday. The loophole once allowed packages valued at less than $800 to enter the country tariff-free.`\
 https://nytimes.com/video/world/100000010368271/trump-tariffs-de-minimis.html
