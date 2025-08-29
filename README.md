@@ -1,3 +1,7 @@
+**Israel Recovers Body of Oct. 7 Victim From Gaza, Netanyahu’s Office Says**\
+`Ilan Weiss, who was killed in the Hamas-led attack, and the remains of another person, who was not identified, were found as the government looks set to expand a military offensive.`\
+https://nytimes.com/2025/08/29/world/middleeast/israel-hostages-remains-recovered.html
+
 **The Poetry of Gestures**\
 `Our hands are how we express ourselves to the world around us.`\
 https://nytimes.com/paidpost/bottega-veneta/the-poetry-of-gestures.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6583583/2025/08/29/kyle-schwarber-4-home-runs-the-w
 **Take our Week 1 college football quiz and catch up on what you need to know**\
 `Take our Ohio State-Texas quiz and catch up on your reading ahead of college football's jam-packed Week 1.`\
 https://nytimes.com/athletic/6581692/2025/08/29/college-football-week-1-quiz-reads-osu-texas/
-
-**Yeremy Pino to Crystal Palace: Everything you need to know - TLDR**\
-`The 22-year-old Spain international forward has moved to Selhurst Park from La Liga side Villarreal - we break down the deal...`\
-https://nytimes.com/athletic/6581143/2025/08/29/yeremy-pino-crystal-palace-transfer/
 
