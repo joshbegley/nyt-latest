@@ -1,3 +1,11 @@
+**Prime Tire: At the Dutch GP, all aboard our last Max Express. Plus, George Russell isn't worried**\
+`Welcome to Prime Tire, The Athletic's Formula 1 newsletter`\
+https://nytimes.com/athletic/6584528/2025/08/29/dutch-gp-max-verstappen-george-russell-prime-tire-newsletter/
+
+**Little League bat-flipper’s bat fetches nearly $10K at auction: ‘I was shocked’**\
+`One hundred percent of the proceeds of Marco Rocco’s bat will be going to Haddonfield Little League.`\
+https://nytimes.com/athletic/6584597/2025/08/29/little-league-world-series-bat-flip-auction/
+
 **Trump Administration Bars Palestinian Officials From U.N. Meeting in New York**\
 `The United States generally allows foreign officials to attend the United Nations General Assembly. The administration’s move comes amid a new push for Palestinian statehood.`\
 https://nytimes.com/2025/08/29/us/politics/trump-palestinians-un.html
@@ -19,7 +27,7 @@ https://nytimes.com/athletic/6584450/2025/08/29/gotham-fc-esther-gonzalez-spain-
 https://nytimes.com/2025/08/29/arts/design/vail-artist-gaza-lawsuit-settlement.html
 
 **Number of Meteorologists at F.A.A. Is Critically Low, a Federal Watchdog Warns**\
-`Weather Service employees help air traffic controllers keep planes away from severe weather. Fewer than half of the county’s control centers are fully staffed, a government report says.`\
+`Weather Service employees help air traffic controllers keep planes away from severe weather. Fewer than half of the country’s control centers are fully staffed, a government report says.`\
 https://nytimes.com/2025/08/29/weather/faa-meteorologist-shortage.html
 
 **London Man Admits to Drugging, Raping and Filming Women for Years**\
@@ -29,12 +37,4 @@ https://nytimes.com/2025/08/29/world/europe/london-sexual-assaults.html
 **Cowboys trading Micah Parsons has ramifications for Eagles, Giants and Commanders**\
 `The massive trade left a very different division behind. How has the NFC East landscape changed?`\
 https://nytimes.com/athletic/6584443/2025/08/29/micah-parsons-trade-cowboys-eagles-giants-commanders/
-
-**Prospects Jimmy Crooks, César Prieto to join Cardinals as Alec Burleson hits IL: Sources**\
-`Burleson heads to the injured list in a blow to the Cardinals' offense, while Yohel Pozo is going on the seven-day concussion IL.`\
-https://nytimes.com/athletic/6584497/2025/08/29/st-louis-cardinals-jimmy-crooks-cesar-prieto-mlb-debuts/
-
-**Flashback: Your Weekly History Quiz, Aug. 30, 2025**\
-`Can you sort 8 historical events?`\
-https://nytimes.com/interactive/2025/08/29/upshot/flashback.html
 

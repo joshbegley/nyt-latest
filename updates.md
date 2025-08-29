@@ -1,3 +1,15 @@
+**Prime Tire: At the Dutch GP, all aboard our last Max Express. Plus, George Russell isn't worried**\
+`Welcome to Prime Tire, The Athletic's Formula 1 newsletter`\
+https://nytimes.com/athletic/6584528/2025/08/29/dutch-gp-max-verstappen-george-russell-prime-tire-newsletter/
+
+**Little League bat-flipper’s bat fetches nearly $10K at auction: ‘I was shocked’**\
+`One hundred percent of the proceeds of Marco Rocco’s bat will be going to Haddonfield Little League.`\
+https://nytimes.com/athletic/6584597/2025/08/29/little-league-world-series-bat-flip-auction/
+
+**Number of Meteorologists at F.A.A. Is Critically Low, a Federal Watchdog Warns**\
+`Weather Service employees help air traffic controllers keep planes away from severe weather. Fewer than half of the country’s control centers are fully staffed, a government report says.`\
+https://nytimes.com/2025/08/29/weather/faa-meteorologist-shortage.html
+
 **Trump Administration Bars Palestinian Officials From U.N. Meeting in New York**\
 `The United States generally allows foreign officials to attend the United Nations General Assembly. The administration’s move comes amid a new push for Palestinian statehood.`\
 https://nytimes.com/2025/08/29/us/politics/trump-palestinians-un.html
