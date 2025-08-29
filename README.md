@@ -1,3 +1,7 @@
+**The New York Times International Edition in Print for Saturday, Aug. 30, 2025**\
+``\
+https://nytimes.com/issue/todaysinyt/2025/08/29/todays-new-york-times-international-edition
+
 **Countries Stop Accepting Small Shipments Bound for the U.S.**\
 `Some post offices around the world are not accepting small parcels to the U.S. as the “de minimis” exemption ended on Friday. The loophole once allowed packages valued at less than $800 to enter the country tariff-free.`\
 https://nytimes.com/video/world/100000010368271/trump-tariffs-de-minimis.html
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2025/08/29/realestate/alec-hilaria-baldwin-amaga
 **6 Smart Comedy Specials for Labor Day Weekend**\
 `Ali Siddiq, Beth Stelling and Vir Das are among the stand-ups delivering engaging sets that are worth your time.`\
 https://nytimes.com/2025/08/29/arts/television/comedy-specials-labor-day-weekend.html
-
-**3 Delightful Games for Labor Day Weekend**\
-`Want serenity now? Embrace your inner shepherd, bookseller or horticulturist.`\
-https://nytimes.com/2025/08/29/arts/tiny-bookshop-herdling-review.html
 
