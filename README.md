@@ -1,3 +1,7 @@
+**Sherman: With one play, Nebraska exorcises a decade of season-opening disappointments**\
+`Malcolm Hartzog Jr. intercepted Brendan Sorsby with 34 seconds left to preserve a 20-17 victory in the season opener,`\
+https://nytimes.com/athletic/6584161/2025/08/29/nebraska-cincinnati-season-opening-win/
+
 **Abbott Signs Gerrymandered Map as Texas G.O.P. Moves Further Right**\
 `After a bruising political fight, Gov. Greg Abbott signed into law a new congressional map. But the Republican-led Legislature, newly emboldened, has not stopped there.`\
 https://nytimes.com/2025/08/29/us/politics/abbott-texas-legislature-redistricting-map.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6584137/2025/08/29/micah-parsons-trade-packers-nfc-
 **Inside Syria’s Most Fearsome Prison**\
 `For decades, the Assad regime locked up its opponents in prisons like Sednaya. The New York Times created a 3-D model of the prison and its brutal conditions.`\
 https://nytimes.com/interactive/2025/08/29/world/middleeast/syria-sednaya-prison-assad.html
-
-**Dortmund reject £45m Beier offer from Brentford**\
-`Brentford are not expected to raise their offer for the 22-year-old striker.`\
-https://nytimes.com/athletic/6584296/2025/08/29/maximilian-beier-brentford-dortmund/
 
