@@ -1,3 +1,11 @@
+**Will the C.D.C. Survive?**\
+`Robert F. Kennedy Jr.’s assault may have dealt lasting damage to the agency, experts fear, with harsh consequences for public health.`\
+https://nytimes.com/2025/08/29/health/cdc-kennedy-public-health.html
+
+**Appeals Court Rules Against Many Trump Tariffs**\
+`The decision is a big blow to President Trump’s trade policies, but the judges left the duties in place for now to allow time for a likely appeal to the Supreme Court.`\
+https://nytimes.com/2025/08/29/business/economy/trump-tariffs-appeals-court.html
+
 **Liverpool's Robertson replaces Alexander-Arnold as new vice-captain**\
 `The long-serving left-back takes over from Trent Alexander-Arnold, who left the club to join Real Madrid at the end of last season`\
 https://nytimes.com/athletic/6584949/2025/08/29/liverpool-news-robertson-vice-captain/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6584099/2025/08/29/eberechi-eze-arsenal-debut-liver
 **This Chef Is Bringing Babbo Back. Can It Move Past Mario Batali?**\
 `Mark Ladner, a master of Italian cooking and a Batali protégé, is reinventing the Manhattan restaurant under the same famous (and infamous) name.`\
 https://nytimes.com/2025/08/29/dining/mark-ladner-babbo-mario-batali.html
-
-**Police Arrest Man Suspected of Robbing Macklemore’s House in Seattle**\
-`Two masked men crept into the rapper’s house in June, attacked a nanny with bear spray and stole jewelry, including a Seattle Sounders soccer championship ring, the police said.`\
-https://nytimes.com/2025/08/29/us/macklemore-seattle-house-break-in-arrest.html
-
-**Christian Pulisic scores for Milan in final game before his USMNT return**\
-`Pulisic came off the bench to ice Milan's win over Lecce with his second goal in all competitions this season`\
-https://nytimes.com/athletic/6584868/2025/08/29/christian-pulisic-goal-video-milan-lecce-usmnt/
 
