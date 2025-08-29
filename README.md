@@ -1,3 +1,7 @@
+**Protesters and Police Clash in Indonesia**\
+`Police officers in riot gear fired tear gas and charged protesters, some of whom had been throwing rocks.`\
+https://nytimes.com/video/world/asia/100000010368269/indonesia-protests-inflation.html
+
 **Jose Mourinho leaves Fenerbahce after one year as head coach**\
 `Mourinho's exit comes days after the club missed out on a spot in the Champions League league phase after a playoff defeat to Benfica.`\
 https://nytimes.com/athletic/6583609/2025/08/29/jose-mourinho-leaves-fenerbahce/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6581114/2025/08/29/xavi-simons-tottenham-transfer/
 **Rodion Shchedrin, Composer Who Captured Russia’s Soul, Dies at 92**\
 `Mr. Shchedrin drew on Russian literature for stage works and was an eager experimenter, inspired by folk tales, religious mysticism and melodrama.`\
 https://nytimes.com/2025/08/29/arts/rodion-shchedrin-dead.html
-
-**Nick Woltemade, secret talks and the night Newcastle decided to go for it**\
-`Newcastle have finally made their move for a striker. This is the story of how their approach for Woltemade accelerated this week`\
-https://nytimes.com/athletic/6582169/2025/08/29/nick-woltemade-newcastle-transfers/
 
