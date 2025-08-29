@@ -1,3 +1,7 @@
+**Super Bowl odds: Favorites remain, but Packers become a factor after Parsons trade**\
+`The Green Bay Packers surged in the odds to win the Super Bowl following the Micah Parsons trade, but the top tier of contenders is stable.`\
+https://nytimes.com/athletic/6584150/2025/08/29/super-bowl-odds-eagles-packers-parsons/
+
 **Sherman: With one play, Nebraska exorcises a decade of season-opening disappointments**\
 `Malcolm Hartzog Jr. intercepted Brendan Sorsby with 34 seconds left to preserve a 20-17 victory in the season opener,`\
 https://nytimes.com/athletic/6584161/2025/08/29/nebraska-cincinnati-season-opening-win/
@@ -14,7 +18,7 @@ https://nytimes.com/2025/08/29/us/politics/newbern-alabama-mayor-patrick-braxton
 `Deep within obscure footnotes, the Trump administration is claiming more of Congress’s constitutional power of the purse by threatening to block funding.`\
 https://nytimes.com/2025/08/29/upshot/trump-congress-federal-budget.html
 
-**Mitch Marner opens up about threats, security concerns while playing for Maple Leafs**\
+**Former Maple Leaf Mitch Marner opens up about threats, security concerns**\
 `After Toronto's second-round playoff exit in May, Marner was targeted by fans on social media and had his family's address posted online.`\
 https://nytimes.com/athletic/6584302/2025/08/29/mitch-marner-maple-leafs-golden-knights-threats/
 
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/29/us/politics/trump-foreign-aid.html
 **How the Micah Parsons trade to the Packers affects the Bears, Lions and Vikings**\
 `The blockbuster deal sending Parsons from Dallas to Green Bay has sent shockwaves through the NFL. How will it affect the NFL North?`\
 https://nytimes.com/athletic/6584137/2025/08/29/micah-parsons-trade-packers-nfc-north-lions-bears-vikings/
-
-**Inside Syria’s Most Fearsome Prison**\
-`For decades, the Assad regime locked up its opponents in prisons like Sednaya. The New York Times created a 3-D model of the prison and its brutal conditions.`\
-https://nytimes.com/interactive/2025/08/29/world/middleeast/syria-sednaya-prison-assad.html
 
