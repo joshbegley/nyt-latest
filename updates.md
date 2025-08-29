@@ -1,3 +1,15 @@
+**Liverpool's Robertson replaces Alexander-Arnold as new vice-captain**\
+`The long-serving left-back takes over from Trent Alexander-Arnold, who left the club to join Real Madrid at the end of last season`\
+https://nytimes.com/athletic/6584949/2025/08/29/liverpool-news-robertson-vice-captain/
+
+**Who Is the New Acting C.D.C. Director?**\
+`The selection of Jim O’Neill, a former Silicon Valley executive, drew objections from Democrats, who noted his lack of medical or scientific training.`\
+https://nytimes.com/2025/08/29/health/human-health-vaccines-oneill.html
+
+**Strangers Come Together to Deliver Baby Girl at Burning Man**\
+`A woman unexpectedly went into labor at the desert festival. Within minutes, a neonatal nurse, an OB-GYN, a pediatric doctor and other attendees filled her camper.`\
+https://nytimes.com/2025/08/29/us/burning-man-baby.html
+
 **Spirit Airlines Files for Bankruptcy for 2nd Time in a Year**\
 `The troubled carrier last exited Chapter 11 in March. It said more could be done to stabilize the company with a second filing.`\
 https://nytimes.com/2025/08/29/business/spirit-airlines-bankruptcy.html

@@ -1,3 +1,15 @@
+**Liverpool's Robertson replaces Alexander-Arnold as new vice-captain**\
+`The long-serving left-back takes over from Trent Alexander-Arnold, who left the club to join Real Madrid at the end of last season`\
+https://nytimes.com/athletic/6584949/2025/08/29/liverpool-news-robertson-vice-captain/
+
+**Who Is the New Acting C.D.C. Director?**\
+`The selection of Jim O’Neill, a former Silicon Valley executive, drew objections from Democrats, who noted his lack of medical or scientific training.`\
+https://nytimes.com/2025/08/29/health/human-health-vaccines-oneill.html
+
+**Strangers Come Together to Deliver Baby Girl at Burning Man**\
+`A woman unexpectedly went into labor at the desert festival. Within minutes, a neonatal nurse, an OB-GYN, a pediatric doctor and other attendees filled her camper.`\
+https://nytimes.com/2025/08/29/us/burning-man-baby.html
+
 **Spirit Airlines Files for Bankruptcy for 2nd Time in a Year**\
 `The troubled carrier last exited Chapter 11 in March. It said more could be done to stabilize the company with a second filing.`\
 https://nytimes.com/2025/08/29/business/spirit-airlines-bankruptcy.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/08/29/us/macklemore-seattle-house-break-in-arrest.html
 **Christian Pulisic scores for Milan in final game before his USMNT return**\
 `Pulisic came off the bench to ice Milan's win over Lecce with his second goal in all competitions this season`\
 https://nytimes.com/athletic/6584868/2025/08/29/christian-pulisic-goal-video-milan-lecce-usmnt/
-
-**Bournemouth owner Bill Foley's Black Knight in talks to buy stake in Croatian club HNK Rijeka**\
-`Rijeka would be the sixth club to join Foley's ownership group, which includes Premier League side Bournemouth `\
-https://nytimes.com/athletic/6584851/2025/08/29/hnk-rijeka-bournemouth-bill-foley-black-knight/
-
-**Ben Shelton retires from U.S. Open with left shoulder injury against Adrian Mannarino**\
-`The American No. 6 seed led Adrian Mannarino of France 2-1 when he hurt his hitting arm shoulder during an intensely physical contest.`\
-https://nytimes.com/athletic/6584765/2025/08/29/ben-shelton-us-open-out-injury-shoulder/
-
-**Staff Shortages and Reindeer Rumors: Why Greenland’s Airport Can’t Keep Up**\
-`Problems with passenger screening led to a disruption in international flight service to and from Nuuk, a snag in the island’s quest to attract more tourists.`\
-https://nytimes.com/2025/08/29/travel/greenland-nuuk-airport-flights.html
 
