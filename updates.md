@@ -1,3 +1,15 @@
+**Challenge Emerges to Two Trump-Appointed Prosecutors**\
+`The federal public defender's office challenged the legality of allowing the U.S. attorneys in Los Angeles and Las Vegas to continue in their jobs without congressional approval.`\
+https://nytimes.com/2025/08/29/us/us-attorney-los-angeles-nevada-challenge.html
+
+**Transportation Dept. Cancels $679 Million for Offshore Wind Projects**\
+`The Trump administration’s campaign against wind power continued as it targeted funding for marine terminals and ports to support development.`\
+https://nytimes.com/2025/08/29/climate/transportation-dept-cancels-679-million-wind-industry.html
+
+**What to Know About Kamala Harris’s Secret Service Protection**\
+`The Secret Service usually protects a former vice president for six months after they leave office.`\
+https://nytimes.com/2025/08/29/us/politics/secret-service-vice-presidents-harris-trump.html
+
 **Legionnaires’ Outbreak Traced to N.Y.C.-Owned Sites, Including Hospital**\
 `Officials said Harlem Hospital and a nearby construction site were two sources of an outbreak that has killed seven and sickened over 100.`\
 https://nytimes.com/2025/08/29/nyregion/nyc-legionnaires-disease-harlem-hospital.html
