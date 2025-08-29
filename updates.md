@@ -1,3 +1,19 @@
+**O'Connor: Jonah Tong is the latest Mets pitcher to inspire real October hope**\
+`Tong, the most prolific strikeout pitcher in the minors, and fellow phenom Nolan McLean get chance to lead Mets into postseason and beyond.`\
+https://nytimes.com/athletic/6583356/2025/08/29/mets-jonah-tong-pitcher-debut/
+
+**Meet Julian Sayin, the 5-star QB not to be overlooked in Ohio State-Texas**\
+`Arch Manning isn't the only No. 1 QB recruit starting in Ohio State-Texas. Here's how Nick Saban's retirement led Sayin to this moment.`\
+https://nytimes.com/athletic/6581475/2025/08/29/julian-sayin-ohio-state-starting-qb-texas/
+
+**UFC's White House fight 'is on', says Dana White after meeting in D.C.**\
+`President Donald Trump has long been a supporter of the UFC and White, and has regularly attended fights during his presidency.`\
+https://nytimes.com/athletic/6583727/2025/08/29/ufc-white-house-trump/
+
+**Phillies find catharsis in a 'character win' as homers rain at Citizens Bank Park**\
+`For a few hours in South Philly on Thursday, amid seven homers, it was easy to forget what the beginning of the week felt like. `\
+https://nytimes.com/athletic/6583441/2025/08/29/phillies-seven-homers-kyle-schwarber-braves/
+
 **UFC fight at the White House 'is on', says White after meeting in D.C.**\
 `President Donald Trump has long been a supporter of the UFC and White, and has regularly attended fights during his presidency.`\
 https://nytimes.com/athletic/6583727/2025/08/29/ufc-white-house-trump/
