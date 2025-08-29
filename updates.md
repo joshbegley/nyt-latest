@@ -1,3 +1,15 @@
+**International Student Enrollments Stay Steady at Columbia and Princeton**\
+`But Black student enrollment is lower at the two universities after years of turmoil in elite higher education.`\
+https://nytimes.com/2025/08/29/us/international-students-race-affirmative-action-princeton-columbia.html
+
+**Five Science Fiction Movies to Stream Now**\
+`In this month’s picks, original takes on zombies, time travel and fatherhood.`\
+https://nytimes.com/2025/08/29/movies/five-science-fiction-movies-to-stream-now.html
+
+**This Cheesy Dip Is a Closely Guarded Alaskan Secret**\
+`Meet Kenai dip, the northern cousin to pimento cheese.`\
+https://nytimes.com/2025/08/29/dining/kenai-cheese-dip-alaska.html
+
 **Tesla’s Lawyers File Motion to Throw Out $243 Million Verdict in Fatal Crash**\
 `The carmaker argued that the driver of a car that killed a woman and severely injured her boyfriend in 2019 was solely responsible.`\
 https://nytimes.com/2025/08/29/business/tesla-fatal-crash.html

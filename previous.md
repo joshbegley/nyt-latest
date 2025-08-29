@@ -1,3 +1,15 @@
+**International Student Enrollments Stay Steady at Columbia and Princeton**\
+`But Black student enrollment is lower at the two universities after years of turmoil in elite higher education.`\
+https://nytimes.com/2025/08/29/us/international-students-race-affirmative-action-princeton-columbia.html
+
+**Five Science Fiction Movies to Stream Now**\
+`In this month’s picks, original takes on zombies, time travel and fatherhood.`\
+https://nytimes.com/2025/08/29/movies/five-science-fiction-movies-to-stream-now.html
+
+**This Cheesy Dip Is a Closely Guarded Alaskan Secret**\
+`Meet Kenai dip, the northern cousin to pimento cheese.`\
+https://nytimes.com/2025/08/29/dining/kenai-cheese-dip-alaska.html
+
 **Tesla’s Lawyers File Motion to Throw Out $243 Million Verdict in Fatal Crash**\
 `The carmaker argued that the driver of a car that killed a woman and severely injured her boyfriend in 2019 was solely responsible.`\
 https://nytimes.com/2025/08/29/business/tesla-fatal-crash.html
@@ -25,16 +37,4 @@ https://nytimes.com/paidpost/bottega-veneta/the-poetry-of-gestures.html
 **Aston Villa's Onana to miss Belgium qualifiers with hamstring injury**\
 `The Athletic was informed by multiple sources on Wednesday that he suffered the injury during training.`\
 https://nytimes.com/athletic/6584104/2025/08/29/aston-villa-amadou-onana-hamstring-injury-belgium/
-
-**Trump Asserts Expansive Power to Fire Fed Governor**\
-`Lawyers for the administration told a court it should be “highly deferential” to the president when it comes to firing a Federal Reserve governor “for cause.”`\
-https://nytimes.com/2025/08/29/business/trump-lisa-cook-federal-reserve.html
-
-**Lowetide: The context behind Connor McDavid's contract negotiations with the Oilers**\
-`The Edmonton captain's recent comments are lingering in the news. Here's what fans should know.`\
-https://nytimes.com/athletic/6581646/2025/08/29/connor-mcdavid-oilers-contract-negotiations-context/
-
-**Wolves ‘hope’ Strand Larsen can play against Everton despite striker’s desire to leave**\
-`The Norway international is a potential doubt for Saturday's Everton game due to injury. `\
-https://nytimes.com/athletic/6583935/2025/08/29/wolves-jorgen-strand-larsen-vitor-pereira-newcastle/
 
