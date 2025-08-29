@@ -2,7 +2,7 @@
 `A network of hospitals and cancer centers dedicated to early phase trials of novel treatments will no longer receive federal funding.`\
 https://nytimes.com/2025/08/28/well/pediatric-brain-cancer-trial-group.html
 
-**Must-watch: Phillies' Kyle Schwarber tallies four home runs, nine RBIs**\
+**Schwarbombs galore: Kyle Schwarber makes Phillies, MLB history with 4 homers, 9 RBIs**\
 `It is the 21st four-homer game in MLB history, and the fourth in Phillies history. `\
 https://nytimes.com/athletic/6583230/2025/08/28/phillies-kyle-schwarber-four-homer-game/
 
