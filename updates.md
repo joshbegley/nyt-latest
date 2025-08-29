@@ -1,3 +1,7 @@
+**Dortmund reject £45m Beier offer from Brentford**\
+`Brentford are not expected to raise their offer for the 22-year-old striker.`\
+https://nytimes.com/athletic/6584296/2025/08/29/maximilian-beier-brentford-dortmund/
+
 **How the Micah Parsons trade to the Packers affects the Bears, Lions and Vikings**\
 `The blockbuster deal sending Parsons from Dallas to Green Bay has sent shockwaves through the NFL. How will it affect the NFL North?`\
 https://nytimes.com/athletic/6584137/2025/08/29/micah-parsons-trade-packers-nfc-north-lions-bears-vikings/
