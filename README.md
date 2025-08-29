@@ -1,3 +1,7 @@
+**Tottenham set to complete €60m signing of Leipzig’s Simons**\
+`Personal terms are also in place and Simons has completed a medical ahead of finalising the proposed transfer to the north London club.`\
+https://nytimes.com/athletic/6581114/2025/08/29/xavi-simons-tottenham-transfer/
+
 **Rodion Shchedrin, Composer Who Captured Russia’s Soul, Dies at 92**\
 `Mr. Shchedrin drew on Russian literature for stage works and was an eager experimenter, inspired by folk tales, religious mysticism and melodrama.`\
 https://nytimes.com/2025/08/29/obituaries/rodion-shchedrin-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/issue/todayspaper/2025/08/29/todays-new-york-times
 **Appeals Court Declines to Block Trump From Freezing Foreign Aid**\
 `The court voted not to revisit a fight over billions in frozen funds, but simultaneously revised an earlier order to give nonprofits that sued a narrow path forward in the case.`\
 https://nytimes.com/2025/08/29/us/politics/appeals-court-trump-foreign-aid.html
-
-**Russia’s Deadly Attack on Kyiv**\
-`Also, the secret of “KPop Demon Hunters.”`\
-https://nytimes.com/2025/08/29/briefing/ukraine-russia-kyiv-gaza-reservists-europe-iran-sanctions.html
 
