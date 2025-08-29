@@ -1,3 +1,7 @@
+**2 Simple Secrets for Making Restaurant-Quality Scallops at Home**\
+`For a quick, light dinner, these small steps go a long, long way, Eric Kim writes.`\
+https://nytimes.com/2025/08/29/dining/how-to-cook-scallops.html
+
 **What Thomas Tuchel's latest England squad tells us: Full-back battle ahead, no Bellingham issue**\
 `Tuchel has picked his squad for World Cup qualifiers against Andorra and Serbia - so what can we learn?`\
 https://nytimes.com/athletic/6584067/2025/08/29/what-thomas-tuchels-latest-england-squad-tells-us-full-back-battle-ahead-no-bellingham-issue/
