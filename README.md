@@ -1,5 +1,5 @@
 **Padres' Xander Bogaerts could miss rest of regular season with fractured left foot**\
-`An extended absence for San Diego's shortstop could reduce their chances of winning a division title for the first time since 2006.`\
+`An extended absence for San Diego's shortstop could reduce its chances of winning a division title for the first time since 2006.`\
 https://nytimes.com/athletic/6584871/2025/08/29/padres-xander-bogaerts-injury/
 
 **Read the appeals court ruling on Trump’s tariffs.**\
