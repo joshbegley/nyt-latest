@@ -1,3 +1,11 @@
+**Coco Gauff beats Donna Vekić on a surreal, tearful night at the U.S. Open**\
+`Gauff managed her way to a 7-6(5), 6-2 win.`\
+https://nytimes.com/athletic/6583164/2025/08/28/us-open-coco-gauff-donna-vekic-serves/
+
+**Salmonella Outbreak Linked to Eggs Sickens 95 People**\
+`The outbreak, which was traced to eggs distributed in California and Nevada, has spread to 14 states, according to the C.D.C.`\
+https://nytimes.com/2025/08/28/well/eat/salmonella-outbreak-country-eggs-california-nevada.html
+
 **Jung Hoo Lee collects first walk-off hit, Giants display core strength while sweeping Cubs**\
 `San Francisco's best players have led the way during their five-game winning streak: "When you look to the future, that's nice."`\
 https://nytimes.com/athletic/6582921/2025/08/28/sf-giants-jung-hoo-lee-walk-off-core-strength/

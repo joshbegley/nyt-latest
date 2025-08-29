@@ -1,3 +1,11 @@
+**Must-watch: Phillies' Kyle Schwarber tallies four home runs, nine RBIs**\
+`It is the 21st four-homer game in MLB history, and the fourth in Phillies history. `\
+https://nytimes.com/athletic/6583230/2025/08/28/phillies-kyle-schwarber-four-homer-game/
+
+**Trump Officials Threaten to Pull Funding From Denver Public Schools**\
+`The department gave Denver Public Schools 10 days to ban transgender students from using bathrooms that align with their gender identity.`\
+https://nytimes.com/2025/08/28/us/politics/trump-denver-schools-transgender-bathrooms.html
+
 **Coco Gauff beats Donna Vekić on a surreal, tearful night at the U.S. Open**\
 `Gauff managed her way to a 7-6(5), 6-2 win.`\
 https://nytimes.com/athletic/6583164/2025/08/28/us-open-coco-gauff-donna-vekic-serves/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6582829/2025/08/28/jerry-jones-micah-parsons-trade/
 **Schneidman: Packers become legit Super Bowl threat after trading for Micah Parsons**\
 `The Packers traded two first-round picks and defensive tackle Kenny Clark to the Cowboys for Micah Parsons on Thursday.`\
 https://nytimes.com/athletic/6583077/2025/08/28/green-bay-packers-micah-parsons-trade-dallas-cowboys/
-
-**Jerry Jones discusses Cowboys trading star pass rusher Micah Parsons**\
-`Jerry Jones discussed the offer he made Parsons in April and the importance of adding Kenny Clark to help stop the run.`\
-https://nytimes.com/athletic/6582930/2025/08/28/cowboys-trade-micah-parsons-jerry-jones-comments/
-
-**Americans claim eight Diamond League wildcards for World Championships**\
-`There were eight American champions at the Diamond League finals in Zurich, the most since 2019.`\
-https://nytimes.com/athletic/6582858/2025/08/28/diamond-league-finals-zurich-wildcards/
 
