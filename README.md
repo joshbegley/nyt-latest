@@ -1,3 +1,11 @@
+**Russia’s Deadly Attack on Kyiv**\
+`Also, the secret of “KPop Demon Hunters.”`\
+https://nytimes.com/2025/08/29/briefing/ukraine-russia-kyiv-gaza-reservists-europe-iran-sanctions.html
+
+**Liverpool have defensive issues. This is where they must improve**\
+`Konate's form, Kerkez's aerial weakness and being exposed on transitions are all problem areas for Arne Slot’s side`\
+https://nytimes.com/athletic/6581380/2025/08/29/liverpool-have-defensive-issues-this-is-where-they-must-improve/
+
 **What are the rules on under-18s playing in the Premier League?**\
 `What are the Premier League's rules on under-18s playing in it and who is the youngest to have got a game in the English top flight?`\
 https://nytimes.com/athletic/6263865/2025/08/29/premier-league-under18-rules-explained/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6578414/2025/08/29/barcelona-uefa-business-football
 **Priced out by the Premier League: Where do clubs in Italy, Spain, Germany and France shop for players?**\
 `There's a clear food chain in the European market — the smart teams scout players from lower down or develop talent internally`\
 https://nytimes.com/athletic/6578496/2025/08/29/european-transfer-market-spain-germany-france-italy/
-
-**A Tariff Loophole on Cheap Imports Has Closed. How Will It Affect Shoppers?**\
-`The end of the “de minimis” exemption — which allowed packages less than $800 to enter the U.S. tariff-free — is leading to confusion.`\
-https://nytimes.com/2025/08/29/business/trump-tariffs-de-minimis.html
-
-**When Mailing a Letter to the U.S. Becomes a Global Headache**\
-`A driver’s license renewal, a box of specialty candy, even early Christmas presents — all are caught up in the confusion caused by a new Trump administration customs rule.`\
-https://nytimes.com/2025/08/29/business/us-tariffs-shipping-suspensions-de-minimis.html
 

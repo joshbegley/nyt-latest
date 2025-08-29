@@ -1,3 +1,7 @@
+**What are the rules on under-18s playing in the Premier League?**\
+`What are the Premier League's rules on under-18s playing in it and who is the youngest to have got a game in the English top flight?`\
+https://nytimes.com/athletic/6263865/2025/08/29/premier-league-under18-rules-explained/
+
 **Trump Moves to Strip More Federal Workers of Union Protections**\
 `The pre-Labor Day order included NASA, the National Weather Service and the agency that oversees Voice of America.`\
 https://nytimes.com/2025/08/29/us/politics/trump-federal-workers-union-protections.html
