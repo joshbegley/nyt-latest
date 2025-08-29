@@ -1,3 +1,15 @@
+**Miami LB Adarius Hayes charged with vehicular homicide in deadly crash**\
+`The Hurricanes suspended Hayes, who faces three counts of vehicular homicide and one count of reckless driving with serious bodily injury.`\
+https://nytimes.com/athletic/6584638/2025/08/29/miami-adarius-hayes-charged-car-accident/
+
+**Red Sox release Walker Buehler as rookie Payton Tolle steps into rotation**\
+`The Red Sox parted ways with Buehler, who never got on track after signing as a free agent in the offseason.`\
+https://nytimes.com/athletic/6584619/2025/08/29/red-sox-walker-buehler-release-payton-tolle/
+
+**Transportation Dept. Cancels $679 Million for Offshore Wind Projects**\
+`The Trump administration’s campaign against wind power continued as it targeted funding for marine terminals and ports to support development of the industry.`\
+https://nytimes.com/2025/08/29/climate/transportation-dept-cancels-679-million-wind-industry.html
+
 **Frank Price, a Studio Chief Several Times Over, Dies at 95**\
 `He ran Universal’s television and movie businesses and had two stints at Columbia. Running a studio, he said, was “sort of like being the head of a small country.”`\
 https://nytimes.com/2025/08/29/movies/frank-price-dead.html
