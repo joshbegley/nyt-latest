@@ -1,3 +1,7 @@
+**Top fantasy baseball waiver wire adds, including the debut of strikeout machine Jonah Tong**\
+`Owen Poindexter identifies top waiver wire options to help you for your stretch run, including a Mets call-up who piled up Ks on the farm.`\
+https://nytimes.com/athletic/6582364/2025/08/29/fantasy-baseball-waiver-wire-adds-targets-teel-jong/
+
 **Woltemade unlikely to feature for Newcastle at Leeds but Schar available**\
 `Woltemade is on Tyneside after Newcastle agreed a €75million (£65m; $87.6m) deal, plus €5m (£4.3m; $5.8m) in potential add-ons.`\
 https://nytimes.com/athletic/6583657/2025/08/29/newcastle-team-news-woltermade-transfer/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/29/well/reading-tips-habit.html
 **What I Told My Sunday School Students About Death**\
 `We drag around our brokenness in the same container as our holiness.`\
 https://nytimes.com/2025/08/29/opinion/minneapolis-school-shooting.html
-
-**Alec and Hilaria Baldwin on 8 Children, 1 Lil’ Pig and Lots of Rice-A-Roni**\
-`The actor and yoga instructor thought about selling their home in the Hamptons, but they can’t let go of the home that has become a family sanctuary.`\
-https://nytimes.com/interactive/2025/08/29/realestate/alec-hilaria-baldwin-amagansett-home.html
 

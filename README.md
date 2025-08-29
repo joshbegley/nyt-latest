@@ -1,3 +1,7 @@
+**Chelsea defender Gilchrist having medical ahead of West Brom move**\
+`The 21-year-old has been training away from the main group while a transfer was pursued. `\
+https://nytimes.com/athletic/6508636/2025/08/29/alfie-gilchrist-chelsea-west-bromwich-albion-transfer-medical/
+
 **Top fantasy baseball waiver wire adds, including the debut of strikeout machine Jonah Tong**\
 `Owen Poindexter identifies top waiver wire options to help you for your stretch run, including a Mets call-up who piled up Ks on the farm.`\
 https://nytimes.com/athletic/6582364/2025/08/29/fantasy-baseball-waiver-wire-adds-targets-teel-jong/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/29/us/politics/trump-fed-independence-lisa-cook.html
 **How to Rekindle Your Love of Reading**\
 `Americans are reading for pleasure less. Let’s get back in the habit.`\
 https://nytimes.com/2025/08/29/well/reading-tips-habit.html
-
-**What I Told My Sunday School Students About Death**\
-`We drag around our brokenness in the same container as our holiness.`\
-https://nytimes.com/2025/08/29/opinion/minneapolis-school-shooting.html
 
