@@ -1,3 +1,11 @@
+**The Poetry of Gestures**\
+`Our hands are how we express ourselves to the world around us.`\
+https://nytimes.com/paidpost/bottega-veneta/the-poetry-of-gestures.html
+
+**Aston Villa's Onana to miss Belgium qualifiers with hamstring injury**\
+`The Athletic was informed by multiple sources on Wednesday that he suffered the injury during training.`\
+https://nytimes.com/athletic/6584104/2025/08/29/aston-villa-amadou-onana-hamstring-injury-belgium/
+
 **Trump Asserts Expansive Power to Fire Fed Governor**\
 `Lawyers for the administration told a court it should be “highly deferential” to the president when it comes to firing a Federal Reserve governor “for cause.”`\
 https://nytimes.com/2025/08/29/business/trump-lisa-cook-federal-reserve.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6581692/2025/08/29/college-football-week-1-quiz-rea
 **Yeremy Pino to Crystal Palace: Everything you need to know - TLDR**\
 `The 22-year-old Spain international forward has moved to Selhurst Park from La Liga side Villarreal - we break down the deal...`\
 https://nytimes.com/athletic/6581143/2025/08/29/yeremy-pino-crystal-palace-transfer/
-
-**Britain Bars Israeli Government From a Leading Arms Trade Fair**\
-`The British government said it was acting in response to Israel’s escalating military operation in Gaza. Israel condemned the decision.`\
-https://nytimes.com/2025/08/29/world/europe/uk-israel-military-trade-fair.html
-
-**U.K. Court Overturns Ruling on Hotel at Center of Asylum Seeker Debate**\
-`The decision was a temporary reprieve for the government but will intensify a political battle over how Britain should house tens of thousands of asylum seekers.`\
-https://nytimes.com/2025/08/29/world/europe/uk-asylum-hotel-ruling-epping.html
 

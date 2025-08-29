@@ -1,3 +1,19 @@
+**Trump Asserts Expansive Power to Fire Fed Governor**\
+`Lawyers for the administration told a court it should be “highly deferential” to the president when it comes to firing a Federal Reserve governor “for cause.”`\
+https://nytimes.com/2025/08/29/business/trump-lisa-cook-federal-reserve.html
+
+**Lowetide: The context behind Connor McDavid's contract negotiations with the Oilers**\
+`The Edmonton captain's recent comments are lingering in the news. Here's what fans should know.`\
+https://nytimes.com/athletic/6581646/2025/08/29/connor-mcdavid-oilers-contract-negotiations-context/
+
+**Wolves ‘hope’ Strand Larsen can play against Everton despite striker’s desire to leave**\
+`The Norway international is a potential doubt for Saturday's Everton game due to injury. `\
+https://nytimes.com/athletic/6583935/2025/08/29/wolves-jorgen-strand-larsen-vitor-pereira-newcastle/
+
+**In Arkansas, Looking a Movement in the Eye**\
+`A reporter traveled to Ravenden, Ark., to meet the founders and residents of a compound created only for white people.`\
+https://nytimes.com/2025/08/29/insider/return-to-the-land-arkansas.html
+
 **Marinakis says Nuno is right man for Forest and confirms planned meeting**\
 `Nuno’s future had been cast into doubt a week ago when he stated that his relationship with Marinakis had "changed".`\
 https://nytimes.com/athletic/6584044/2025/08/29/marinakis-nottingham-forest-nuno-future/
@@ -21,20 +37,4 @@ https://nytimes.com/2025/08/29/world/europe/uk-israel-military-trade-fair.html
 **U.K. Court Overturns Ruling on Hotel at Center of Asylum Seeker Debate**\
 `The decision was a temporary reprieve for the government but will intensify a political battle over how Britain should house tens of thousands of asylum seekers.`\
 https://nytimes.com/2025/08/29/world/europe/uk-asylum-hotel-ruling-epping.html
-
-**Chelsea closing in on Buonanotte loan deal as Leeds move collapses**\
-`Leeds had a flight booked for Thursday afternoon to bring Buonanotte to West Yorkshire, but he never boarded.`\
-https://nytimes.com/athletic/6584025/2025/08/29/facundo-buonanotte-chelsea-leeds-brighton/
-
-**He Paved the Way for CNN, Fox News and the Internet. He’s Not Sure We’re Better Off.**\
-`John Malone helped create the modern media industry over the last half century. In a new memoir, “Born to Be Wired,” he looks back on what he has wrought.`\
-https://nytimes.com/2025/08/29/business/john-malone-memoir-media-internet.html
-
-**Israel Resumes Daytime Operations in Gaza City, Signaling Buildup to Assault**\
-`The Israeli military ended a policy of pausing operations during the day that was intended to allow more aid in, calling Gaza City a “dangerous combat zone.”`\
-https://nytimes.com/2025/08/29/world/middleeast/israel-gaza-city-combat-zone.html
-
-**Palace complete signing of Pino from Villarreal**\
-`The 22-year-old Spain international has joined the Premier League club for a fee in excess of €25million (£21.5m).`\
-https://nytimes.com/athletic/6584037/2025/08/29/crystal-palace-sign-yeremy-pino-villarreal/
 

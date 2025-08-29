@@ -1,3 +1,19 @@
+**Trump Asserts Expansive Power to Fire Fed Governor**\
+`Lawyers for the administration told a court it should be “highly deferential” to the president when it comes to firing a Federal Reserve governor “for cause.”`\
+https://nytimes.com/2025/08/29/business/trump-lisa-cook-federal-reserve.html
+
+**Lowetide: The context behind Connor McDavid's contract negotiations with the Oilers**\
+`The Edmonton captain's recent comments are lingering in the news. Here's what fans should know.`\
+https://nytimes.com/athletic/6581646/2025/08/29/connor-mcdavid-oilers-contract-negotiations-context/
+
+**Wolves ‘hope’ Strand Larsen can play against Everton despite striker’s desire to leave**\
+`The Norway international is a potential doubt for Saturday's Everton game due to injury. `\
+https://nytimes.com/athletic/6583935/2025/08/29/wolves-jorgen-strand-larsen-vitor-pereira-newcastle/
+
+**In Arkansas, Looking a Movement in the Eye**\
+`A reporter traveled to Ravenden, Ark., to meet the founders and residents of a compound created only for white people.`\
+https://nytimes.com/2025/08/29/insider/return-to-the-land-arkansas.html
+
 **Marinakis says Nuno is right man for Forest and confirms planned meeting**\
 `Nuno’s future had been cast into doubt a week ago when he stated that his relationship with Marinakis had "changed".`\
 https://nytimes.com/athletic/6584044/2025/08/29/marinakis-nottingham-forest-nuno-future/
