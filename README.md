@@ -1,3 +1,11 @@
+**Jacksonville Jaguars 2025 streaming guide: How to watch Travis Hunter and Trevor Lawrence**\
+`The Jacksonville Jaguars arrive this season in the delicate middle ground between promise and permanence.`\
+https://nytimes.com/athletic/6581660/2025/08/29/jacksonville-jaguars-travis-hunter-how-to-watch-2025/
+
+**Trump Cancels Kamala Harris’s Secret Service Protection**\
+`The Secret Service usually protects a former vice president for six months after they leave office, but President Joseph R. Biden Jr. had extended Ms. Harris’s protection beyond that.`\
+https://nytimes.com/2025/08/29/us/politics/kamala-harris-secret-service.html
+
 **Nottingham Forest's Europa League draw: Malmo repeat and Nuno reunion with Porto**\
 `Paul Taylor answers some of the key questions from Forest's Europa League draw...`\
 https://nytimes.com/athletic/6583824/2025/08/29/nottingham-forest-europa-league-fixtures-opponents-dates/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6579732/2025/08/29/college-football-fans-2025-seaso
 **Eagles superlatives: Potential MVP, breakout players, regression candidate and more**\
 `Who will stand out as the Eagles look to win another Super Bowl this season?`\
 https://nytimes.com/athletic/6582864/2025/08/29/philadelphia-eagles-potential-mvp-breakout-players-regression-candidate/
-
-**Aston Villa's Europa League draw: A return to Rotterdam and a Jhon Duran reunion**\
-`Jacob Tanswell analyses Aston Villa's newly-released fixtures for the 2025-26 Europa League`\
-https://nytimes.com/athletic/6583823/2025/08/29/aston-villas-europa-league-draw-fixtures/
-
-**Pinto's ceiling, Giroux and Spence's fits, and offence: 4 burning Senators questions**\
-`Don't be afraid of September lurking around the corner. That's when the Senators will have to address some of the bigger questions looming.`\
-https://nytimes.com/athletic/6567443/2025/08/29/senators-offence-pinto-giroux-spence/
 
