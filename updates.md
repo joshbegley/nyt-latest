@@ -1,3 +1,7 @@
+**Tottenham set to complete €60m signing of Leipzig’s Simons**\
+`Personal terms are also in place and Simons has completed a medical ahead of finalising the proposed transfer to the north London club.`\
+https://nytimes.com/athletic/6581114/2025/08/29/xavi-simons-tottenham-transfer/
+
 **Rodion Shchedrin, Composer Who Captured Russia’s Soul, Dies at 92**\
 `Mr. Shchedrin drew on Russian literature for stage works and was an eager experimenter, inspired by folk tales, religious mysticism and melodrama.`\
 https://nytimes.com/2025/08/29/obituaries/rodion-shchedrin-dead.html
