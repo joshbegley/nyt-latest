@@ -1,3 +1,11 @@
+**U.S. Is Working With Guatemala to Return Hundreds of Children**\
+`The children, who crossed the border as unaccompanied minors, are being kept in shelters. Experts said the move raised troubling legal questions.`\
+https://nytimes.com/2025/08/29/us/immigration-guatemala-children.html
+
+**Micah Parsons to wear No. 1 as he starts fresh in Green Bay**\
+`Parsons was a four-time Pro Bowler, three-time All-Pro, recording 52.5 sacks, nine forced fumbles and four fumble recoveries in Dallas.`\
+https://nytimes.com/athletic/6585141/2025/08/29/micah-parsons-number-1-green-bay-packers-cowboys/
+
 **Tommy John surgery recommended for Giants All-Star closer Randy Rodríguez**\
 `The hard-throwing righty, who became San Francisco's closer in late July, was told by two doctors that he would need the procedure.`\
 https://nytimes.com/athletic/6585080/2025/08/29/sf-giants-randy-rodriguez-tommy-john-surgery/
