@@ -1,3 +1,12 @@
+**Oscar Piastri stuns F1 title rival Lando Norris to claim Dutch GP pole position**\
+`Piastri edged ahead of his McLaren teammate in Q3, after Norris had dominated practice sessions at Zandvoort`\
+https://nytimes.com/athletic/6585593/2025/08/30/dutch-grand-prix-qualifying-results/
+
+**Strasbourg expected to agree deal to sign Enciso from Brighton**\
+`Enciso will join Strasbourg on a permanent basis and is set to sign a five-year contract.
+`\
+https://nytimes.com/athletic/6585023/2025/08/30/julio-enciso-strasbourg-brighton-transfer/
+
 **Strasbourg expected to agree deal to sign Enciso from Brighton**\
 `Enciso will join Strasbourg on a permanent basis and is set to sign a five-year contract.
 `\

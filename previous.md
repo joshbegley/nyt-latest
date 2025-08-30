@@ -1,3 +1,7 @@
+**Oscar Piastri stuns F1 title rival Lando Norris to claim Dutch GP pole position**\
+`Piastri edged ahead of his McLaren teammate in Q3, after Norris had dominated practice sessions at Zandvoort`\
+https://nytimes.com/athletic/6585593/2025/08/30/dutch-grand-prix-qualifying-results/
+
 **From Cracker Barrel to Sydney Sweeney, Trump Has an Opinion to Share**\
 `In his second term, President Trump is using his power to reshape American culture, not just American policy. He has threatened consequences for many who disagree.`\
 https://nytimes.com/2025/08/30/us/politics/cracker-barrel-sweeney-trump.html
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/6585485/2025/08/30/utah-royals-kk-ream-youngest-goa
 **Five burning Wild questions: Will Kaprizov re-sign, and where do Yurov and youngsters fit?**\
 `Also, just how green will the blue line be to start the season? And what will the lines look like early in camp?`\
 https://nytimes.com/athletic/6578848/2025/08/30/five-burning-wild-questions-will-kaprizov-re-sign-and-where-do-yurov-and-youngsters-fit/
-
-**Blues subscriber bold predictions for the 2025-26 season: Big trades, awards and … a Stanley Cup?**\
-`A Norris winner, a Vezina winner, four 30-goal scorers and four 70-point players. We asked for bold predictions, and you delivered.`\
-https://nytimes.com/athletic/6581240/2025/08/30/blues-bold-predictions-subscribers-stanley-cup/
 
