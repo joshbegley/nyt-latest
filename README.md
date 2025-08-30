@@ -1,3 +1,7 @@
+**Teenager arrested outside Stamford Bridge on suspicion of possessing imitation firearm**\
+`A post that was circulated on social media showed someone being detained by officers outside the stadium in west London.`\
+https://nytimes.com/athletic/6586078/2025/08/30/chelsea-stamford-bridge-arrest-frearm-police/
+
 **Pro-Palestinian Protesters Raise Gaza War at the Venice Film Festival**\
 `In the days leading up to the festival, hundreds of film professionals signed an open letter demanding that the star-studded event take a stance against the crisis in Gaza.`\
 https://nytimes.com/2025/08/30/arts/gaza-protest-venice-film-festival.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6585998/2025/08/30/liverpool-gakpo-new-contract-new
 **Liverpool submit official proposal to sign Crystal Palace's Guehi**\
 `The offer is worth £35million flat, with no further payments, and Palace are yet to issue a response.`\
 https://nytimes.com/athletic/6549214/2025/08/30/marc-guehi-liverpool-transfer-news/
-
-**An Online Group Says It’s Behind a Campus Swatting Wave**\
-`Members of the group offered on Telegram to draw armed officers to schools, malls and airports, though their claims are unverified. Such false emergency calls have disrupted campus life in recent days.`\
-https://nytimes.com/2025/08/30/us/school-shooting-hoax-universities-purgatory-swatting.html
 
