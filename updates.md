@@ -1,3 +1,11 @@
+**Overlooked No More: Tina Modotti, Whose Life Was as Striking as Her Photographs**\
+`Her work is now in museums, but in the early 20th century, it was obscured by her romantic relationships with prominent men, among them her mentor Edward Weston.`\
+https://nytimes.com/2025/08/30/obituaries/tina-modotti-overlooked.html
+
+**Nottingham Forest renew interest in Botafogo full-back Cuiabano**\
+`Cuiabano could become one of two further Forest additions from Botafogo before the summer window closes.`\
+https://nytimes.com/athletic/6585958/2025/08/30/cuiabano-nottingham-forest-transfer-interest/
+
 **Liverpool's Cody Gakpo signs new long-term contract**\
 `The club announced that the 26-year-old has put pen to paper to commit his future to Liverpool.`\
 https://nytimes.com/athletic/6585998/2025/08/30/liverpool-gakpo-new-contract-news/

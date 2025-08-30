@@ -1,5 +1,13 @@
+**Carol Saline, 86, Dies; Journalist With a Story to Tell, About Her Dying**\
+`Terminally ill, she contacted obituary reporters looking to be interviewed about her life and imminent death — to be “at her own wake,” a colleague said.`\
+https://nytimes.com/2025/08/30/business/media/carol-saline-dead.html
+
+**Hunter Renfrow's comeback story continues, Panthers sign veteran WR to active roster**\
+`Renfrow initially signed with the Panthers in April after sitting out last season following an an ulcerative colitis diagnosis`\
+https://nytimes.com/athletic/6585952/2025/08/30/hunter-renfrow-carolina-panthers-wide-receivers/
+
 **Overlooked No More: Tina Modotti, Whose Life Was as Striking as Her Photographs**\
-`Her work is now in museums, but in the early 20th century, it was obscured by her romantic relationships with prominent men, among them her mentor Edward Weston.`\
+`Her work is now in museums, but in the early 20th century, it was obscured by her romantic relationships with prominent men, among them her mentor, Edward Weston.`\
 https://nytimes.com/2025/08/30/obituaries/tina-modotti-overlooked.html
 
 **Nottingham Forest renew interest in Botafogo full-back Cuiabano**\
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6585159/2025/08/30/lee-corso-final-college-gameday-
 **What to Know About Zohran Mamdani and Democratic Socialism**\
 `Opponents of the Democratic nominee for mayor of New York City have derogatively called him both a socialist and a democratic socialist to make a dent in his lead in the polls.`\
 https://nytimes.com/2025/08/30/nyregion/zohran-mamdani-nyc-mayor-democratic-socialism.html
-
-**The Briefing: Tottenham 0 Bournemouth 1 - How Spurs were handed a reality check**\
-`Analysing the major talking points from the Premier League clash at Tottenham Hotspur Stadium `\
-https://nytimes.com/athletic/6581418/2025/08/30/tottenham-bournemouth-result-score-analysis/
-
-**Explained: Chelsea vs Fulham refereeing controversies - and why Marco Silva was so angry**\
-`Breaking down the controversial moments from Chelsea's win over Fulham at Stamford Bridge`\
-https://nytimes.com/athletic/6585635/2025/08/30/chelsea-fulham-referee-var-controversy-decisions/
 
