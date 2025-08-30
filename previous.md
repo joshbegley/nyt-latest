@@ -1,3 +1,11 @@
+**Jelena Ostapenko apologizes for Taylor Townsend 'no education' comments**\
+`The Latvian said that her comment referred only to tennis etiquette in a statement that did not name or acknowledge Townsend.`\
+https://nytimes.com/athletic/6586320/2025/08/30/elena-ostapenko-apology-taylor-townsend-us-open/
+
+**What did Arch Manning's performance at Ohio State mean for his NFL Draft outlook?**\
+`Manning never found a groove against Ohio State's defense. Will that performance hurt his stock moving forward?`\
+https://nytimes.com/athletic/6585917/2025/08/30/arch-manning-texas-ohio-state-draft-stock/
+
 **College Football Playoff 2025 projections: Our model's best odds to make the bracket**\
 `Our College Football Playoff predictions model is back. Check here for regular updates on CFP and national championship odds for 2025.`\
 https://nytimes.com/athletic/6560541/2025/08/30/college-football-playoff-bracket-projections-odds/
@@ -29,12 +37,4 @@ https://nytimes.com/video/world/asia/100000010370545/indonesia-protests-death.ht
 **The Briefing: Leeds 0 Newcastle 0 - Howe's odd kick-offs - and why was anthem booed?**\
 `The big talking points analysed from Saturday's Premier League game at Elland Road`\
 https://nytimes.com/athletic/6581419/2025/08/30/leeds-newcastle-result-score-analysis/
-
-**Amo-Dadzie, 33, ties Christie to become joint second-fastest British man**\
-`Linford Christie's time, set at the 1993 World Championships, had stood as the British record for 30 years.`\
-https://nytimes.com/athletic/6586101/2025/08/30/athletics-news-sprinting-100m-amo-dadzie/
-
-**1989 Fleer Bill Ripken 'FF' error card: Our Sports Card of the Week**\
-`Ripken's 1989 Fleer card remains one of the most talked about sports cards of all time`\
-https://nytimes.com/athletic/6586064/2025/08/30/1989-fleer-bill-ripken-error-card/
 
