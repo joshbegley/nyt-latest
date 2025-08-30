@@ -1,3 +1,7 @@
+**USMNT's Josh Sargent, Haji Wright score again, top Championship goal charts**\
+`Sargent is the outright top scorer in the Championship this season with five goals, while Wright’s four goals have him tied second.`\
+https://nytimes.com/athletic/6586153/2025/08/30/josh-sargent-haji-wright-goals-championship-usmnt-video/
+
 **The Briefing: Leeds 0 Newcastle 0 - Howe's odd kick-offs - and why was anthem booed?**\
 `The big talking points analysed from Saturday's Premier League game at Elland Road`\
 https://nytimes.com/athletic/6581419/2025/08/30/leeds-newcastle-result-score-analysis/

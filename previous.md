@@ -1,3 +1,7 @@
+**USMNT's Josh Sargent, Haji Wright score again, top Championship goal charts**\
+`Sargent is the outright top scorer in the Championship this season with five goals, while Wright’s four goals have him tied second.`\
+https://nytimes.com/athletic/6586153/2025/08/30/josh-sargent-haji-wright-goals-championship-usmnt-video/
+
 **Protests Grow in Indonesia After Deadly Clash With Police**\
 `Demonstrations opposing housing allowances for Indonesian lawmakers turned into outrage against police brutality after the death of a motorcycle taxi driver during a protest.`\
 https://nytimes.com/video/world/asia/100000010370545/indonesia-protests-death.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6586078/2025/08/30/chelsea-stamford-bridge-arrest-f
 **Pro-Palestinian Protesters Raise Gaza War at the Venice Film Festival**\
 `In the days leading up to the festival, hundreds of film professionals signed an open letter demanding that the star-studded event take a stance against the crisis in Gaza.`\
 https://nytimes.com/2025/08/30/arts/gaza-protest-venice-film-festival.html
-
-**Chelsea complete signing of Garnacho from Man United**\
-`The 21-year-old has joined on a deal that will keep him at Stamford Bridge until at least 2032/`\
-https://nytimes.com/athletic/6583746/2025/08/30/chelsea-sign-garnacho-confirmed-transfer-news/
 
