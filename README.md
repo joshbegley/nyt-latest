@@ -1,3 +1,7 @@
+**How FEMA Changed in the 20 Years After Katrina**\
+`Twenty years after Hurricane Katrina, is the federal government letting go of the lessons it learned? Christopher Flavelle, a New York Times reporter covering how President Trump is transforming the government, explains why FEMA employees are so worried about how the U.`\
+https://nytimes.com/video/us/100000010364535/how-fema-changed-in-the-20-years-after-katrina.html
+
 **Trump Administration Weighs Having Military Lawyers Work as Immigration Judges**\
 `No final decision has been made, but the proposal comes as President Trump increasingly uses the military in various aspects of domestic life.`\
 https://nytimes.com/2025/08/29/us/politics/military-lawyers-immigration-judges.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/29/us/politics/trump-democrats-dc-takeover-redistric
 **Appeals Court Upholds Protections for Venezuelans, but to Little Effect**\
 `The decision affirmed a lower court’s ruling from March, but was overshadowed by a Supreme Court order that allowed the Trump administration to pursue deportations anyway.`\
 https://nytimes.com/2025/08/29/us/politics/appeals-court-protected-status-venezuelans.html
-
-**Bookie for Shohei Ohtani's ex-interpreter gets 1-year prison sentence**\
-`Bowyer must pay $1.6 million in restitution after running an illegal gambling business. Shohei Ohtani’s ex-interpreter was a client.`\
-https://nytimes.com/athletic/6584726/2025/08/29/mathew-bowyer-bookmaker-shohei-ohtani-interpreter/
 
