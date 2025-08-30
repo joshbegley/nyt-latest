@@ -1,3 +1,8 @@
+**Strasbourg expected to agree deal to sign Enciso from Brighton**\
+`Enciso will join Strasbourg on a permanent basis and is set to sign a five-year contract.
+`\
+https://nytimes.com/athletic/6585023/2025/08/30/julio-enciso-strasbourg-brighton-transfer/
+
 **Champions League 2025-26: League phase fixtures, schedule and analysis**\
 `The league phase draw was made on Friday, and dates confirmed on Saturday — setting up some intriguing battles across eight matchweeks.`\
 https://nytimes.com/athletic/6585493/2025/08/30/champions-league-league-phase-fixtures-schedule-analysis/
