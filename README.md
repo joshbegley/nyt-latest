@@ -1,3 +1,11 @@
+**Overlooked No More: Tina Modotti, Whose Life Was as Striking as Her Photographs**\
+`Her work is now in museums, but in the early 20th century, it was obscured by her romantic relationships with prominent men, among them her mentor Edward Weston.`\
+https://nytimes.com/2025/08/30/obituaries/tina-modotti-overlooked.html
+
+**Nottingham Forest renew interest in Botafogo full-back Cuiabano**\
+`Cuiabano could become one of two further Forest additions from Botafogo before the summer window closes.`\
+https://nytimes.com/athletic/6585958/2025/08/30/cuiabano-nottingham-forest-transfer-interest/
+
 **Liverpool's Cody Gakpo signs new long-term contract**\
 `The club announced that the 26-year-old has put pen to paper to commit his future to Liverpool.`\
 https://nytimes.com/athletic/6585998/2025/08/30/liverpool-gakpo-new-contract-news/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6581418/2025/08/30/tottenham-bournemouth-result-sco
 **Explained: Chelsea vs Fulham refereeing controversies - and why Marco Silva was so angry**\
 `Breaking down the controversial moments from Chelsea's win over Fulham at Stamford Bridge`\
 https://nytimes.com/athletic/6585635/2025/08/30/chelsea-fulham-referee-var-controversy-decisions/
-
-**The Visual Language of Trump’s Authoritarianism**\
-`It’s an unreal spectacle.`\
-https://nytimes.com/2025/08/30/opinion/trump-visual-symbols-authoritarian.html
-
-**Chelsea inform Bayern they will not proceed with Jackson loan after Delap injury**\
-`Delap sustained a hamstring injury during Saturday's victory over Fulham.`\
-https://nytimes.com/athletic/6585836/2025/08/30/nicolas-jackson-bayern-loan-chelsea-delap-injury/
 
