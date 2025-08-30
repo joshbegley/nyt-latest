@@ -1,3 +1,7 @@
+**Karolina Muchová says former partner 'at places he shouldn't be' caused U.S. Open distress**\
+`Muchová gestured toward the stand before wiping away tears during her third-round win over Sorana Cîrstea.`\
+https://nytimes.com/athletic/6586374/2025/08/30/karolina-muchova-us-open-ex-boyfriend-match/
+
 **USMNT's Mauricio Pochettino joins Fox's Big Noon Kickoff, talks 2026 World Cup prep**\
 `Pochettino led an O-H, I-O chant with the Ohio State fans.`\
 https://nytimes.com/athletic/6586337/2025/08/30/usmnts-mauricio-pochettino-world-cup-prep/
