@@ -1,3 +1,7 @@
+**Coco Gauff gets an ordinary U.S. Open win after a surreal and emotional start to her tournament**\
+`After two challenging, surreal and at-times emotional U.S. Open matches, Gauff eased through against the No. 28 seed.`\
+https://nytimes.com/athletic/6586030/2025/08/30/coco-gauff-us-open-results-frech/
+
 **Carol Saline, 86, Dies; Journalist With a Story to Tell, About Her Dying**\
 `Terminally ill, she contacted obituary reporters looking to be interviewed about her life and imminent death — to be “at her own wake,” a colleague said.`\
 https://nytimes.com/2025/08/30/business/media/carol-saline-dead.html
