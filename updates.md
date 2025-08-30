@@ -1,3 +1,15 @@
+**The Visual Language of Trump’s Authoritarianism**\
+`It’s an unreal spectacle.`\
+https://nytimes.com/2025/08/30/opinion/trump-visual-symbols-authoritarian.html
+
+**Chelsea inform Bayern they will not proceed with Jackson loan after Delap injury**\
+`Delap sustained a hamstring injury during Saturday's victory over Fulham.`\
+https://nytimes.com/athletic/6585836/2025/08/30/nicolas-jackson-bayern-loan-chelsea-delap-injury/
+
+**QB Jake Retzlaff will start for Tulane after transferring from BYU**\
+`Entering Tulane camp, Retzlaff was embroiled in a competition with former Northwestern and Iowa quarterback Brendan Sullivan.`\
+https://nytimes.com/athletic/6585723/2025/08/30/qb-jake-retzlaff-tulane-byu/
+
 **Chelsea's Delap could miss up to eight weeks with hamstring injury - Maresca**\
 `The 22-year-old pulled up as he looked to run onto a Marc Cucurella cross, immediately signalling towards his hamstring.`\
 https://nytimes.com/athletic/6585783/2025/08/30/chelsea-news-delap-injury-hamstring/
