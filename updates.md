@@ -1,3 +1,7 @@
+**Arch Manning's coming-out party spoiled by tough Ohio State D: 'This is one chapter'**\
+`Manning, making his first road start, wasn't shy about taking the blame for his underwhelming performance at Ohio State. `\
+https://nytimes.com/athletic/6586357/2025/08/30/texas-arch-manning-ohio-state-spoiled-start/
+
 **Arch Manning's coming out party spoiled by tough Ohio State D: 'This is one chapter'**\
 `Manning, making his first road start, wasn't shy about taking the blame for his underwhelming performance at Ohio State. `\
 https://nytimes.com/athletic/6586357/2025/08/30/texas-arch-manning-ohio-state-spoiled-start/

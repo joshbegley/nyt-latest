@@ -1,3 +1,7 @@
+**Florida State surprises Alabama, sends Crimson Tide to first season-opening loss since 2001**\
+`It was a shocking win for a Florida State team that went 2-10 last year, and just as shocking a loss for an Alabama team with Playoff hopes.`\
+https://nytimes.com/athletic/6586553/2025/08/30/alabama-florida-state-takeaways-tommy-castellanos/
+
 **Arch Manning's coming-out party spoiled by tough Ohio State D: 'This is one chapter'**\
 `Manning, making his first road start, wasn't shy about taking the blame for his underwhelming performance at Ohio State. `\
 https://nytimes.com/athletic/6586357/2025/08/30/texas-arch-manning-ohio-state-spoiled-start/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/30/world/asia/xi-putin-modi-china-summit.html
 **FIBA bans fan for racist abuse toward German captain Dennis Schröder**\
 `Schröder was subjected to "monkey noises from some Lithuanian fans,” German Basketball Federation President Ingo Weiss said.`\
 https://nytimes.com/athletic/6586474/2025/08/30/dennis-schroder-racial-abuse-eurobasket/
-
-**A Morbid Memory Lingers 20 Years After Hurricane Katrina**\
-`Of all the disorder in New Orleans after the storm, a Times reporter remembers the corpse on Union Street most of all.`\
-https://nytimes.com/2025/08/30/insider/katrina-new-orleans.html
 
