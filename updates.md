@@ -1,3 +1,23 @@
+**Liverpool v Arsenal Premier League Preview: Kick-off time, analysis and predictions**\
+`All you need to know about Liverpool's upcoming clash with fellow title-hopefuls Arsenal at Anfield`\
+https://nytimes.com/athletic/6584187/2025/08/30/liverpool-arsenal-preview-arne-slot-mikel-arteta/
+
+**How a Blind Pianist Spends a Day Performing and Rock Climbing**\
+`Ivan Dalia fills his day with cooking, podcasts and the fear-defying ascent of a rock wall in Brooklyn.`\
+https://nytimes.com/2025/08/30/nyregion/ivan-dalia-pianist.html
+
+**Why Legal Weed Might Not Be as Safe, or as Strong, as Advertised**\
+`New York depends on private labs to test cannabis products’ potency and check for contaminants. Some industry experts say the tests are not reliable.`\
+https://nytimes.com/2025/08/30/nyregion/nyc-cannabis-testing-weed-safety.html
+
+**Inside the Home of the U.S. Open, Before It Turned to Chaos**\
+`These days, the Billie Jean King National Tennis Center in Queens is swarmed with fans and stars. For the rest of the year, the grounds are an oasis of calm.`\
+https://nytimes.com/card/2025/08/30/nyregion/us-open-tennis-new-york-city-public
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/08/30/crosswords/spelling-bee-forum.html
+
 **Trump Takes Aim at South Korean Chipmakers’ China Operations**\
 `The U.S. said Samsung and SK Hynix can no longer ship American equipment to their production facilities in China without government licenses.`\
 https://nytimes.com/2025/08/30/business/trump-samsung-skhynix-chips.html
