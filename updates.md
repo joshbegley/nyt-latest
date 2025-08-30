@@ -1,3 +1,7 @@
+**Behind Thai Premier’s Dismissal, Unraveling of an Uneasy Alliance**\
+`Thaksin Shinawatra had struck a grand bargain with Thailand’s establishment, analysts say, that allowed his daughter to ascend to the prime minister’s job.`\
+https://nytimes.com/2025/08/30/world/asia/thailand-paetongtarn-shinawatra-thaksin.html
+
 **Rivalry renewed: How to watch Notre Dame at Miami in Sunday's top-10 Week 1 showcase**\
 `A long-standing rivalry with cultural and institutional strife gets a new look on Sunday night.`\
 https://nytimes.com/athletic/6583181/2025/08/30/notre-dame-miami-how-to-watch-sunday/
