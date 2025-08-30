@@ -1,4 +1,4 @@
-**Utah Royals' KK Ream, 16, becomes youngest goalscorer in NWSL regular season history**\
+**Utah Royals' KK Ream, 16, becomes youngest goalscorer in NWSL regular-season history**\
 `Ream previously earned the title of youngest player to start an NWSL match at 15 years old.`\
 https://nytimes.com/athletic/6585485/2025/08/30/utah-royals-kk-ream-youngest-goalscorer-nwsl/
 
