@@ -1,3 +1,7 @@
+**Shilo Sanders fined for punch thrown in Buccaneers preseason finale: Source**\
+`Sanders was ejected from the Bucs' preseason finale for throwing a punch at Bills tight end Zach Davidson.`\
+https://nytimes.com/athletic/6586460/2025/08/30/shilo-sanders-fine-nfl-tampa-bay-buccaneers/
+
 **Over 15 Killed in Gaza City, One Day After Israel Ends Daily Pauses for Aid**\
 `One attack was an effort to assassinate Abu Obeida, one of Hamas’s best-known spokesmen, Israeli officials said. It was not immediately clear if that succeeded.`\
 https://nytimes.com/2025/08/30/world/middleeast/gaza-israel-deadly-strikes.html
@@ -6,8 +10,8 @@ https://nytimes.com/2025/08/30/world/middleeast/gaza-israel-deadly-strikes.html
 `Danny J. Rooney’s debut Times puzzle never misses.`\
 https://nytimes.com/2025/08/30/crosswords/daily-puzzle-2025-08-31.html
 
-**Tulane commemorates 20th anniversary of Hurricane Katrina, 2005 team with decal-less helmets**\
-`Coach Jon Sumrall told reporters Northwestern denied Tulane's request to wear white jerseys like the 2005 squad`\
+**Jon Sumrall calls out Northwestern for denying Tulane's 2005 team uniform homage**\
+`Coach Jon Sumrall told reporters Northwestern denied Tulane's request to wear white jerseys like the 2005 squad.`\
 https://nytimes.com/athletic/6586505/2025/08/30/tulane-20th-anniversary-katrina-helmets/
 
 **Man United's Cunha withdraws from Brazil squad due to injury**\
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/30/insider/katrina-new-orleans.html
 **Karolína Muchová says former partner 'at places he shouldn't be' caused U.S. Open distress**\
 `Muchová gestured toward the stand before wiping away tears during her second-round win over Sorana Cîrstea.`\
 https://nytimes.com/athletic/6586374/2025/08/30/karolina-muchova-us-open-ex-boyfriend-match/
-
-**USMNT's Mauricio Pochettino joins Fox's Big Noon Kickoff, talks 2026 World Cup prep**\
-`Pochettino led an O-H, I-O chant with the Ohio State fans.`\
-https://nytimes.com/athletic/6586337/2025/08/30/usmnts-mauricio-pochettino-world-cup-prep/
 
