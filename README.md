@@ -1,3 +1,7 @@
+**What Packers should expect from Micah Parsons in Week 1, other takeaways from introduction**\
+`The three-time All Pro spoke with reporters at Lambeau Field for the first time Friday night, nine days before playing the Lions.`\
+https://nytimes.com/athletic/6585213/2025/08/29/packers-expectations-micah-parsons-week-1-takeaways/
+
 **Chris Sale isn't just an ace. There's another reason Braves are thrilled he's coming off IL**\
 `The injury might’ve been season-ending for many veterans whose teams had fallen out of postseason contention. Not for Sale.`\
 https://nytimes.com/athletic/6585209/2025/08/29/braves-chris-sale-isnt-just-an-ace-coming-off-il/
@@ -33,8 +37,4 @@ https://nytimes.com/video/us/100000010364535/how-fema-changed-in-the-20-years-af
 **Trump Administration Weighs Having Military Lawyers Work as Immigration Judges**\
 `No final decision has been made, but the proposal comes as President Trump increasingly uses the military in various aspects of domestic life.`\
 https://nytimes.com/2025/08/29/us/politics/military-lawyers-immigration-judges.html
-
-**Families of Minnesota Shooting Victims Pay Loving Tributes**\
-`The impact of the deaths of Fletcher Merkel, 8, and Harper Moyski, 10, and the injuries sustained by 18 others are only beginning to be felt.`\
-https://nytimes.com/2025/08/29/us/minneapolis-shooting-victims-families.html
 
