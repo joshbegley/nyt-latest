@@ -1,3 +1,15 @@
+**Chelsea's Delap could miss up to eight weeks with hamstring injury - Maresca**\
+`The 22-year-old pulled up as he looked to run onto a Marc Cucurella cross, immediately signalling towards his hamstring.`\
+https://nytimes.com/athletic/6585783/2025/08/30/chelsea-news-delap-injury-hamstring/
+
+**In Austria, Government Health Care Can Look a Bit Like a Spa**\
+`A few weeks of hikes and saunas in wine country? Sometimes, that’s literally just what the doctor ordered.`\
+https://nytimes.com/2025/08/30/well/austria-heart-health.html
+
+**Pollo Asado, Let’s Go**\
+`Make extra of Ham El-Waylly’s citrusy, hummingly spicy chicken for weeknight burritos, grain bowls, salads, nachos, soups. …`\
+https://nytimes.com/2025/08/30/dining/pollo-asado-lets-go.html
+
 **Champions League 2025-26: League phase fixtures, schedule and analysis**\
 `The league phase draw was made on Friday, and dates confirmed on Saturday — setting up some intriguing battles across eight matchweeks.`\
 https://nytimes.com/athletic/6585493/2025/08/30/champions-league-league-phase-fixtures-schedule-analysis/
@@ -25,17 +37,4 @@ https://nytimes.com/athletic/6585261/2025/08/30/prepare-to-overreact-to-college-
 **What does Ipswich's Championship-record signing Egeli mean for the second tier?**\
 `The 19-year-old has joined from FC Nordsjaelland for £17.5m.`\
 https://nytimes.com/athletic/6585504/2025/08/30/ipswich-championship-transfer-record-sindre-walle-egeli/
-
-**Chelsea 2 Fulham 0: Two VAR controversies benefit Maresca's side, impact of Delap injury**\
-`Chelsea beat Fulham 2-0 in the Premier League after two controversial VAR decisions. Simon Johnson breaks down the main talking points...`\
-https://nytimes.com/athletic/6581412/2025/08/30/chelsea-fulham-premier-league-king-var-delap-injury/
-
-**Strasbourg expected to agree deal to sign Enciso from Brighton**\
-`Enciso will join Strasbourg on a permanent basis and is set to sign a five-year contract.
-`\
-https://nytimes.com/athletic/6585023/2025/08/30/julio-enciso-strasbourg-brighton-transfer/
-
-**Diogo Jota's Portugal No 21 shirt to be inherited by Ruben Neves**\
-`Martinez said the close relationship between Jota and Neves makes the midfielder "the ideal person to represent" the late Liverpool forward.`\
-https://nytimes.com/athletic/6585470/2025/08/30/diogo-jota-portugal-shirt-ruben-neves/
 

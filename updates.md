@@ -1,3 +1,15 @@
+**Chelsea's Delap could miss up to eight weeks with hamstring injury - Maresca**\
+`The 22-year-old pulled up as he looked to run onto a Marc Cucurella cross, immediately signalling towards his hamstring.`\
+https://nytimes.com/athletic/6585783/2025/08/30/chelsea-news-delap-injury-hamstring/
+
+**In Austria, Government Health Care Can Look a Bit Like a Spa**\
+`A few weeks of hikes and saunas in wine country? Sometimes, that’s literally just what the doctor ordered.`\
+https://nytimes.com/2025/08/30/well/austria-heart-health.html
+
+**Pollo Asado, Let’s Go**\
+`Make extra of Ham El-Waylly’s citrusy, hummingly spicy chicken for weeknight burritos, grain bowls, salads, nachos, soups. …`\
+https://nytimes.com/2025/08/30/dining/pollo-asado-lets-go.html
+
 **Strasbourg expected to agree deal to sign Enciso from Brighton**\
 `Enciso will join Strasbourg on a permanent basis and is set to sign a five-year contract.
 `\
