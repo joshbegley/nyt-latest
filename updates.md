@@ -1,3 +1,7 @@
+**Man United's Cunha withdraws from Brazil squad due to injury**\
+`The 26-year-old signalled to the bench that he needed to come off after clutching a hamstring around the half-hour mark.`\
+https://nytimes.com/athletic/6586529/2025/08/30/man-uinted-news-cunha-injury-brazil-burnley/
+
 **Rangers close to signing Everton forward Chermiti**\
 `The agreed deal comprises an initial fee of £8million, plus £2m in add-ons. The package also includes a significant sell-on clause.`\
 https://nytimes.com/athletic/6585983/2025/08/30/everton-transfer-news-rangers-youssef-chermiti/

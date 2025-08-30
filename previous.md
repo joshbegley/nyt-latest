@@ -1,3 +1,7 @@
+**Man United's Cunha withdraws from Brazil squad due to injury**\
+`The 26-year-old signalled to the bench that he needed to come off after clutching a hamstring around the half-hour mark.`\
+https://nytimes.com/athletic/6586529/2025/08/30/man-uinted-news-cunha-injury-brazil-burnley/
+
 **Rangers close to signing Everton forward Chermiti**\
 `The agreed deal comprises an initial fee of £8million, plus £2m in add-ons. The package also includes a significant sell-on clause.`\
 https://nytimes.com/athletic/6585983/2025/08/30/everton-transfer-news-rangers-youssef-chermiti/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6586320/2025/08/30/elena-ostapenko-apology-taylor-t
 **What did Arch Manning's performance at Ohio State mean for his NFL Draft outlook?**\
 `Manning never found a groove against Ohio State's defense. Will that performance hurt his stock moving forward?`\
 https://nytimes.com/athletic/6585917/2025/08/30/arch-manning-texas-ohio-state-draft-stock/
-
-**College Football Playoff 2025 projections: Our model's best odds to make the bracket**\
-`Our College Football Playoff predictions model is back. Check here for regular updates on CFP and national championship odds for 2025.`\
-https://nytimes.com/athletic/6560541/2025/08/30/college-football-playoff-bracket-projections-odds/
 
