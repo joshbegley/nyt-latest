@@ -1,3 +1,7 @@
+**Chelsea complete signing of Garnacho from Man United**\
+`The 21-year-old has joined on a deal that will keep him at Stamford Bridge until at least 2032/`\
+https://nytimes.com/athletic/6583746/2025/08/30/chelsea-sign-garnacho-confirmed-transfer-news/
+
 **Coco Gauff gets an ordinary U.S. Open win after a surreal and emotional start to her tournament**\
 `After two challenging, surreal and at-times emotional U.S. Open matches, Gauff eased through against the No. 28 seed.`\
 https://nytimes.com/athletic/6586030/2025/08/30/coco-gauff-us-open-results-frech/
