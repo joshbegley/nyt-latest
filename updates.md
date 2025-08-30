@@ -1,3 +1,11 @@
+**Shilo Sanders fined for punch thrown in Buccaneers preseason finale: Source**\
+`Sanders was ejected from the Bucs' preseason finale for throwing a punch at Bills tight end Zach Davidson.`\
+https://nytimes.com/athletic/6586460/2025/08/30/shilo-sanders-fine-nfl-tampa-bay-buccaneers/
+
+**Jon Sumrall calls out Northwestern for denying Tulane's 2005 team uniform homage**\
+`Coach Jon Sumrall told reporters Northwestern denied Tulane's request to wear white jerseys like the 2005 squad.`\
+https://nytimes.com/athletic/6586505/2025/08/30/tulane-20th-anniversary-katrina-helmets/
+
 **Over 15 Killed in Gaza City, One Day After Israel Ends Daily Pauses for Aid**\
 `One attack was an effort to assassinate Abu Obeida, one of Hamas’s best-known spokesmen, Israeli officials said. It was not immediately clear if that succeeded.`\
 https://nytimes.com/2025/08/30/world/middleeast/gaza-israel-deadly-strikes.html
