@@ -1,3 +1,7 @@
+**Trump Takes Aim at South Korean Chipmakers’ China Operations**\
+`The U.S. said Samsung and SK Hynix can no longer ship American equipment to their production facilities in China without government licenses.`\
+https://nytimes.com/2025/08/30/business/trump-samsung-skhynix-chips.html
+
 **Following record moves for Ovalle and Smith, who will be the next £1m women's player?**\
 `The women's transfer record is now more than £1m. These are the players who could hit that benchmark with their next move`\
 https://nytimes.com/athletic/6551057/2025/08/30/next-record-womens-soccer-transfer/
