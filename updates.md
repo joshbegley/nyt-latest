@@ -1,3 +1,11 @@
+**What to Know About Zohran Mamdani and Democratic Socialism**\
+`Opponents of the Democratic nominee for mayor of New York City have derogatively called him both a socialist and a democratic socialist to make a dent in his lead in the polls.`\
+https://nytimes.com/2025/08/30/nyregion/zohran-mamdani-nyc-mayor-democratic-socialism.html
+
+**The Briefing: Tottenham 0 Bournemouth 1 - How Spurs were handed a reality check**\
+`Analysing the major talking points from the Premier League clash at Tottenham Hotspur Stadium `\
+https://nytimes.com/athletic/6581418/2025/08/30/tottenham-bournemouth-result-score-analysis/
+
 **Chelsea's Delap could miss up to eight weeks with hamstring injury - Maresca**\
 `The 22-year-old pulled up as he looked to run onto a Marc Cucurella pass, immediately signalling towards his hamstring.`\
 https://nytimes.com/athletic/6585783/2025/08/30/chelsea-news-delap-injury-hamstring/

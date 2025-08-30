@@ -1,3 +1,11 @@
+**What to Know About Zohran Mamdani and Democratic Socialism**\
+`Opponents of the Democratic nominee for mayor of New York City have derogatively called him both a socialist and a democratic socialist to make a dent in his lead in the polls.`\
+https://nytimes.com/2025/08/30/nyregion/zohran-mamdani-nyc-mayor-democratic-socialism.html
+
+**The Briefing: Tottenham 0 Bournemouth 1 - How Spurs were handed a reality check**\
+`Analysing the major talking points from the Premier League clash at Tottenham Hotspur Stadium `\
+https://nytimes.com/athletic/6581418/2025/08/30/tottenham-bournemouth-result-score-analysis/
+
 **Explained: Chelsea vs Fulham refereeing controversies - and why Marco Silva was so angry**\
 `Breaking down the controversial moments from Chelsea's win over Fulham at Stamford Bridge`\
 https://nytimes.com/athletic/6585635/2025/08/30/chelsea-fulham-referee-var-controversy-decisions/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/08/30/dining/pollo-asado-lets-go.html
 **Champions League 2025-26: League phase fixtures, schedule and analysis**\
 `The league phase draw was made on Friday, and dates confirmed on Saturday — setting up some intriguing battles across eight matchweeks.`\
 https://nytimes.com/athletic/6585493/2025/08/30/champions-league-league-phase-fixtures-schedule-analysis/
-
-**Houthis Say Prime Minister Was Killed in Israeli Attack**\
-`Ahmed al-Rahawi had led the Houthi cabinet in Yemen since 2024. His killing is unlikely to halt the Iranian-backed group’s missile attacks on Israel.`\
-https://nytimes.com/2025/08/30/world/middleeast/houthi-prime-minister-killed-israel.html
-
-**Oscar Piastri stuns F1 title rival Lando Norris to claim Dutch GP pole position**\
-`Piastri edged ahead of his McLaren teammate in Q3, after Norris had dominated practice sessions at Zandvoort`\
-https://nytimes.com/athletic/6585593/2025/08/30/dutch-grand-prix-qualifying-results/
 
