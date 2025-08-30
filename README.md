@@ -1,3 +1,7 @@
+**Arundhati Roy on How to Survive in a ‘Culture of Fear’**\
+`The acclaimed writer has a new memoir, and a warning.`\
+https://nytimes.com/2025/08/30/magazine/arundhati-roy-modi-trump-interview.html
+
 **Think Candles Can’t Be Fun? Think Again.**\
 `A small company in Missouri is struggling to keep up with orders for its “Fall of Rome” candle, and it is already working on its next social media hit.`\
 https://nytimes.com/2025/08/30/style/fall-of-rome-candle.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/30/sports/flying-horses-equestrian-events.html
 **You Don’t Need to Be Good at Math to Enjoy It**\
 `In her latest book, Eugenia Cheng, a mathematician, explores the choices we make to determine if two things — numbers, shapes, words and even people — are equal.`\
 https://nytimes.com/2025/08/30/science/eugenia-cheng-math-unequal-book.html
-
-**For Jeff Buckley Fans, It’s Never Over**\
-`Nearly three decades after his death, a documentary and a sudden surge in the charts has made the singer’s legacy front of mind.`\
-https://nytimes.com/2025/08/30/style/jeff-buckley-documentary-fans-music-charts.html
 
