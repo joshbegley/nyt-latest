@@ -1,3 +1,7 @@
+**What Packers should expect from Micah Parsons in Week 1, other takeaways from introduction**\
+`The three-time All Pro spoke with reporters at Lambeau Field for the first time Friday night, nine days before playing the Lions.`\
+https://nytimes.com/athletic/6585213/2025/08/29/packers-expectations-micah-parsons-week-1-takeaways/
+
 **Chris Sale isn't just an ace. There's another reason Braves are thrilled he's coming off IL**\
 `The injury might’ve been season-ending for many veterans whose teams had fallen out of postseason contention. Not for Sale.`\
 https://nytimes.com/athletic/6585209/2025/08/29/braves-chris-sale-isnt-just-an-ace-coming-off-il/
