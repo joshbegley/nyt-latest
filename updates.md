@@ -1,3 +1,7 @@
+**Judge Blocks Pillar of Trump’s Mass Deportation Campaign**\
+`Judge Jia M. Cobb rejected what she called “a truly startling argument” from the government that it could use a fast-track procedure to remove people arrested far from the southern border.`\
+https://nytimes.com/2025/08/29/us/politics/judge-fast-track-deportations.html
+
 **Heat Setting, Perhaps**\
 `Maddy Ziegler makes a torrid Times puzzle debut.`\
 https://nytimes.com/2025/08/29/crosswords/daily-puzzle-2025-08-30.html
