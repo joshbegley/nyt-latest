@@ -1,40 +1,40 @@
-**Why Bayern Munich agreeing to sign Nicolas Jackson makes a lot of sense**\
-`The Germans brought together a late solution for Jackson - and it makes sense given such a narrow pool of players that fit their needs.`\
-https://nytimes.com/athletic/6578447/2025/08/30/bayern-munich-nicolas-jackson-chelsea-transfer/
+**Think Candles Can’t Be Fun? Think Again.**\
+`A small company in Missouri is struggling to keep up with orders for its “Fall of Rome” candle, and it is already working on its next social media hit.`\
+https://nytimes.com/2025/08/30/style/fall-of-rome-candle.html
 
-**Bayern Munich reach agreement to sign Jackson**\
-`The deal is a season-long loan with an option to buy, worth a total package of €80million (£69m; $93.5m).`\
-https://nytimes.com/athletic/6487731/2025/08/30/nicolas-jackson-chelsea-bayern-munich-transfer/
+**In Secret Diaries, the Church Shooter’s Plans for Mass Murder**\
+`Robin W. Westman described how she had obtained guns and how she had visited the church on a test run this summer during a Sunday Mass.`\
+https://nytimes.com/2025/08/30/us/minneapolis-church-shooter-robin-westman.html
 
-**Liverpool v Arsenal Premier League Preview: Kick-off time, analysis and predictions**\
-`All you need to know about Liverpool's upcoming clash with fellow title-hopefuls Arsenal at Anfield`\
-https://nytimes.com/athletic/6584187/2025/08/30/liverpool-arsenal-preview-arne-slot-mikel-arteta/
+**A Father Took His Daughters to School. Then Came the Gunshots.**\
+`Anders Holine was among the first parents to arrive at the scene of a mass shooting at a Minneapolis church on Wednesday. He spoke to The New York Times about what he witnessed as he went searching for his two daughters.`\
+https://nytimes.com/video/us/100000010368210/minneapolis-church-shooting-parent-witness.html
 
-**How a Blind Pianist Spends a Day Performing and Rock Climbing**\
-`Ivan Dalia fills his day with cooking, podcasts and the fear-defying ascent of a rock wall in Brooklyn.`\
-https://nytimes.com/2025/08/30/nyregion/ivan-dalia-pianist.html
+**He Plagiarized and Promoted Falsehoods. The White House Embraces Him.**\
+`Benny Johnson, a right-wing podcaster, has enjoyed rare access and promotion from the Trump administration.`\
+https://nytimes.com/2025/08/30/business/media/trump-benny-johnson.html
 
-**Why Legal Weed Might Not Be as Safe, or as Strong, as Advertised**\
-`New York depends on private labs to test cannabis products’ potency and check for contaminants. Some industry experts say the tests are not reliable.`\
-https://nytimes.com/2025/08/30/nyregion/nyc-cannabis-testing-weed-safety.html
+**How Russia Is Distracting Citizens From the War**\
+`Moscow is hosting a big summer festival as Russia continues its war in Ukraine.`\
+https://nytimes.com/video/world/europe/100000010362770/how-russia-is-distracting-citizens-from-the-war.html
 
-**Inside the Home of the U.S. Open, Before It Turned to Chaos**\
-`These days, the Billie Jean King National Tennis Center in Queens is swarmed with fans and stars. For the rest of the year, the grounds are an oasis of calm.`\
-https://nytimes.com/card/2025/08/30/nyregion/us-open-tennis-new-york-city-public
+**Debbie Gibson Wants to Take Your Photo (She Won’t Steal Your Phone)**\
+`The 1980s pop star, who tells her story in a new memoir, chats about how she stays connected to teen culture, the glorious artifice of Las Vegas and dancing her own way.`\
+https://nytimes.com/2025/08/30/arts/music/debbie-gibson-favorites.html
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2025/08/30/crosswords/spelling-bee-forum.html
+**The ‘Thursday Murder Club’ Members Get Down to Business**\
+`Helen Mirren, Pierce Brosnan, Ben Kingsley, Celia Imrie and director Chris Columbus on their new adaptation, first-day jitters and their shared love of “Home Alone.”`\
+https://nytimes.com/2025/08/30/movies/the-thursday-murder-club-members-interview.html
 
-**Trump Takes Aim at South Korean Chipmakers’ China Operations**\
-`The U.S. said Samsung and SK Hynix can no longer ship American equipment to their production facilities in China without government licenses.`\
-https://nytimes.com/2025/08/30/business/trump-samsung-skhynix-chips.html
+**There’s More to Worry About Than Legroom When Flying Horses**\
+`They travel in shipping cubes inside the plane, with equine flight attendants soothing the animals and giving them snacks. They even need passports.`\
+https://nytimes.com/2025/08/30/sports/flying-horses-equestrian-events.html
 
-**Following record moves for Ovalle and Smith, who will be the next £1m women's player?**\
-`The women's transfer record is now more than £1m. These are the players who could hit that benchmark with their next move`\
-https://nytimes.com/athletic/6551057/2025/08/30/next-record-womens-soccer-transfer/
+**You Don’t Need to Be Good at Math to Enjoy It**\
+`In her latest book, Eugenia Cheng, a mathematician, explores the choices we make to determine if two things — numbers, shapes, words and even people — are equal.`\
+https://nytimes.com/2025/08/30/science/eugenia-cheng-math-unequal-book.html
 
-**3 Dead After Jumping From Building Protesters Set on Fire, Official Says**\
-`The student-led demonstrations in Indonesia are against President Prabowo Subianto’s economic policies and fatal police brutality.`\
-https://nytimes.com/2025/08/30/world/asia/indonesia-protests-dead-prabowo-subianto.html
+**For Jeff Buckley Fans, It’s Never Over**\
+`Nearly three decades after his death, a documentary and a sudden surge in the charts has made the singer’s legacy front of mind.`\
+https://nytimes.com/2025/08/30/style/jeff-buckley-documentary-fans-music-charts.html
 
