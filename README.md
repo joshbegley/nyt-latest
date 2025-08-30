@@ -1,3 +1,7 @@
+**Pro-Palestinian Protesters Raise Gaza War at the Venice Film Festival**\
+`In the days leading up to the festival, hundreds of film professionals signed an open letter demanding that the star-studded event take a stance against the crisis in Gaza.`\
+https://nytimes.com/2025/08/30/arts/gaza-protest-venice-film-festival.html
+
 **Chelsea complete signing of Garnacho from Man United**\
 `The 21-year-old has joined on a deal that will keep him at Stamford Bridge until at least 2032/`\
 https://nytimes.com/athletic/6583746/2025/08/30/chelsea-sign-garnacho-confirmed-transfer-news/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6549214/2025/08/30/marc-guehi-liverpool-transfer-ne
 **An Online Group Says It’s Behind a Campus Swatting Wave**\
 `Members of the group offered on Telegram to draw armed officers to schools, malls and airports, though their claims are unverified. Such false emergency calls have disrupted campus life in recent days.`\
 https://nytimes.com/2025/08/30/us/school-shooting-hoax-universities-purgatory-swatting.html
-
-**The Briefing: Man Utd 3-2 Burnley: A 97th-minute United winner, relief for Ruben Amorim**\
-`Charlotte Harpur analyses the key talking points from Manchester United's thrilling 3-2 win over Burnley`\
-https://nytimes.com/athletic/6581414/2025/08/30/manchester-united-burnley-bruno-amorim-result/
 
