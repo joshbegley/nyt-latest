@@ -1,3 +1,11 @@
+**U.S. Is Working With Guatemala to Return Hundreds of Children**\
+`The children, who crossed the border as unaccompanied minors, are being kept in shelters. Experts said the move raised troubling legal questions.`\
+https://nytimes.com/2025/08/29/us/immigration-guatemala-children.html
+
+**Micah Parsons to wear No. 1 as he starts fresh in Green Bay**\
+`Parsons was a four-time Pro Bowler, three-time All-Pro, recording 52.5 sacks, nine forced fumbles and four fumble recoveries in Dallas.`\
+https://nytimes.com/athletic/6585141/2025/08/29/micah-parsons-number-1-green-bay-packers-cowboys/
+
 **Tommy John surgery recommended for Giants All-Star closer Randy Rodríguez**\
 `The hard-throwing righty, who became San Francisco's closer in late July, was told by two doctors that he would need the procedure.`\
 https://nytimes.com/athletic/6585080/2025/08/29/sf-giants-randy-rodriguez-tommy-john-surgery/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/08/29/us/politics/trump-kennedy-alliance-vaccines.html
 **3 Workers at Rikers Are Suspended After Another Man Dies in Custody**\
 `The death of the 29-year-old, who was found in his cell after midnight, is the latest of several at the Rikers Island jail complex in New York.`\
 https://nytimes.com/2025/08/29/nyregion/rikers-death-ardit-billa.html
-
-**Margaret W. Rossiter, 81, Dies; Wrote Women Scientists Into History**\
-`In her groundbreaking trilogy, “Women Scientists in America,” she told the stories of numerous accomplished but largely invisible women.`\
-https://nytimes.com/2025/08/29/science/margaret-w-rossiter-dead.html
-
-**For Democrats, Hindsight Is 2021**\
-`Democrats once had a chance to blunt a couple of the moves President Trump is making now, on redistricting and the takeover of the police force in Washington, D.C.`\
-https://nytimes.com/2025/08/29/us/politics/trump-democrats-dc-takeover-redistricting.html
 
