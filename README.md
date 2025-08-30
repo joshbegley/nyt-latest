@@ -1,3 +1,7 @@
+**Judge Blocks Pillar of Trump’s Mass Deportation Campaign**\
+`Judge Jia M. Cobb rejected what she called “a truly startling argument” from the government that it could use a fast-track procedure to remove people arrested far from the southern border.`\
+https://nytimes.com/2025/08/29/us/politics/judge-fast-track-deportations.html
+
 **Heat Setting, Perhaps**\
 `Maddy Ziegler makes a torrid Times puzzle debut.`\
 https://nytimes.com/2025/08/29/crosswords/daily-puzzle-2025-08-30.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/29/us/minneapolis-shooting-victims-families.html
 **Padres' Xander Bogaerts could miss rest of regular season with fractured left foot**\
 `An extended absence for San Diego's shortstop could reduce its chances of winning a division title for the first time since 2006.`\
 https://nytimes.com/athletic/6584871/2025/08/29/padres-xander-bogaerts-injury/
-
-**Read the appeals court ruling on Trump’s tariffs.**\
-`An appeals court ruled on Friday that many of President Trump’s most punishing tariffs are illegal, delivering a major new setback to the administration’s global trade war.`\
-https://nytimes.com/interactive/2025/08/29/us/appeals-court-trump-tariffs-ruling.html
 
