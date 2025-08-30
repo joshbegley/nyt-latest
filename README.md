@@ -1,3 +1,7 @@
+**What it's like to play against a 15 or 16-year-old Premier League wonderkid**\
+`Max Dowman and Rio Ngumoha have broken through the barrier already this season facing opponents twice their age and more`\
+https://nytimes.com/athletic/6584105/2025/08/30/premier-league-wonderkid-what-is-it-like/
+
 **The Nobel Prize and a Testy Phone Call: How the Trump-Modi Relationship Unraveled**\
 `President Trump’s repeated claims about having “solved” the India-Pakistan war infuriated Prime Minister Narendra Modi of India. And that was only the beginning.`\
 https://nytimes.com/2025/08/30/us/politics/trump-modi-india.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6560541/2025/08/29/college-football-playoff-bracket
 **Trump Officials Move to Fire Most Voice of America Journalists**\
 `The layoffs set up a potential battle with a federal judge who blocked previous efforts by Kari Lake, a fierce Trump ally, to restructure the agency.`\
 https://nytimes.com/2025/08/29/us/politics/voice-of-america-layoffs-kari-lake-trump.html
-
-**Colorado starts season with 27-20 loss to Georgia Tech**\
-`Colorado’s opener officially ended an offseason filled with plenty of action and alarm.`\
-https://nytimes.com/athletic/6585254/2025/08/29/colorado-georgia-tech-deion-sanders/
 
