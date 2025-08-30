@@ -1,4 +1,4 @@
-**Houthis Say Prime Minister Killed in Israeli Attack**\
+**Houthis Say Prime Minister Is Killed in Israeli Attack**\
 `Ahmed al-Rahawi had led the Houthi cabinet in Yemen since 2024. His killing is unlikely to halt the Iranian-backed group’s missile attacks on Israel.`\
 https://nytimes.com/2025/08/30/world/middleeast/houthi-prime-minister-killed-israel.html
 
