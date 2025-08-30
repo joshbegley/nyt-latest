@@ -1,3 +1,7 @@
+**Tulane commemorates 20th anniversary of Hurricane Katrina, 2005 team with decal-less helmets**\
+`Coach Jon Sumrall told reporters Northwestern denied Tulane's request to wear white jerseys like the 2005 squad`\
+https://nytimes.com/athletic/6586505/2025/08/30/tulane-20th-anniversary-katrina-helmets/
+
 **Man United's Cunha withdraws from Brazil squad due to injury**\
 `The 26-year-old signalled to the bench that he needed to come off after clutching a hamstring around the half-hour mark.`\
 https://nytimes.com/athletic/6586529/2025/08/30/man-uinted-news-cunha-injury-brazil-burnley/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6586378/2025/08/30/arch-manning-underwhelming-texas
 **Jelena Ostapenko apologizes for Taylor Townsend 'no education' comments**\
 `The Latvian said that her comment referred only to tennis etiquette in a statement that did not name or acknowledge Townsend.`\
 https://nytimes.com/athletic/6586320/2025/08/30/elena-ostapenko-apology-taylor-townsend-us-open/
-
-**What did Arch Manning's performance at Ohio State mean for his NFL Draft outlook?**\
-`Manning never found a groove against Ohio State's defense. Will that performance hurt his stock moving forward?`\
-https://nytimes.com/athletic/6585917/2025/08/30/arch-manning-texas-ohio-state-draft-stock/
 
