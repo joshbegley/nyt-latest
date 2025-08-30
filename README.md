@@ -1,3 +1,7 @@
+**Trump Takes Aim at South Korean Chipmakers’ China Operations**\
+`The U.S. said Samsung and SK Hynix can no longer ship American equipment to their production facilities in China without government licenses.`\
+https://nytimes.com/2025/08/30/business/trump-samsung-skhynix-chips.html
+
 **Following record moves for Ovalle and Smith, who will be the next £1m women's player?**\
 `The women's transfer record is now more than £1m. These are the players who could hit that benchmark with their next move`\
 https://nytimes.com/athletic/6551057/2025/08/30/next-record-womens-soccer-transfer/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6584623/2025/08/30/ruben-amorim-manchester-united-m
 **Wolte-messi? The next Kane? Newcastle's Nick Woltemade does not really compare to anyone**\
 `The lanky boy from Bremen is a great hope for Germany and a point of fascination. Is he worth the hype? Yes - but there are some caveats`\
 https://nytimes.com/athletic/6583648/2025/08/30/nick-woltemade-newcastle-transfer/
-
-**Payton Tolle has 'electric' debut, a good sign for Red Sox's revamped pitching infrastructure**\
-`The 22-year-old's first start didn't lead to a win, but the team will see his development and performance on Friday as a huge victory.`\
-https://nytimes.com/athletic/6585182/2025/08/30/payton-tolle-debut-red-sox-pitching-infrastructure/
 
