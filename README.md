@@ -1,3 +1,7 @@
+**Transfers TLDR: Alejandro Garnacho to Chelsea - all you need to know**\
+`The Argentina winger has moved from Manchester United to Stamford Bridge for £40m - we break down the deal`\
+https://nytimes.com/athletic/6584522/2025/08/30/alejandro-garnacho-chelsea-transfer-analysis/
+
 **Teenager arrested outside Stamford Bridge on suspicion of possessing imitation firearm**\
 `A post that was circulated on social media showed someone being detained by officers outside the stadium in west London.`\
 https://nytimes.com/athletic/6586078/2025/08/30/chelsea-stamford-bridge-arrest-frearm-police/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6585958/2025/08/30/cuiabano-nottingham-forest-trans
 **Liverpool's Cody Gakpo signs new long-term contract**\
 `The club announced that the 26-year-old has put pen to paper to commit his future to Liverpool.`\
 https://nytimes.com/athletic/6585998/2025/08/30/liverpool-gakpo-new-contract-news/
-
-**Liverpool submit official proposal to sign Crystal Palace's Guehi**\
-`The offer is worth £35million flat, with no further payments, and Palace are yet to issue a response.`\
-https://nytimes.com/athletic/6549214/2025/08/30/marc-guehi-liverpool-transfer-news/
 

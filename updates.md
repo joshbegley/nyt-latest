@@ -1,3 +1,7 @@
+**Teenager arrested outside Stamford Bridge on suspicion of possessing imitation firearm**\
+`A post that was circulated on social media showed someone being detained by officers outside the stadium in west London.`\
+https://nytimes.com/athletic/6586078/2025/08/30/chelsea-stamford-bridge-arrest-frearm-police/
+
 **Pro-Palestinian Protesters Raise Gaza War at the Venice Film Festival**\
 `In the days leading up to the festival, hundreds of film professionals signed an open letter demanding that the star-studded event take a stance against the crisis in Gaza.`\
 https://nytimes.com/2025/08/30/arts/gaza-protest-venice-film-festival.html
