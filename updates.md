@@ -1,3 +1,7 @@
+**How FEMA Changed in the 20 Years After Katrina**\
+`Twenty years after Hurricane Katrina, is the federal government letting go of the lessons it learned? Christopher Flavelle, a New York Times reporter covering how President Trump is transforming the government, explains why FEMA employees are so worried about how the U.`\
+https://nytimes.com/video/us/100000010364535/how-fema-changed-in-the-20-years-after-katrina.html
+
 **Trump Administration Weighs Having Military Lawyers Work as Immigration Judges**\
 `No final decision has been made, but the proposal comes as President Trump increasingly uses the military in various aspects of domestic life.`\
 https://nytimes.com/2025/08/29/us/politics/military-lawyers-immigration-judges.html
