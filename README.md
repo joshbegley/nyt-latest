@@ -1,3 +1,7 @@
+**Man United Women continue quest for Champions League journey after 1-0 Hammarby win**\
+`Elisabeth Terland's goal just after the hour mark was enough to earn United a 1-0 win in Stockholm.`\
+https://nytimes.com/athletic/6586252/2025/08/30/man-united-women-champions-league-hammarby-qualification/
+
 **Hudson-Odoi signs new three-year deal with Forest**\
 `The highly regarded winger’s previous deal was due to expire at the end of the season.`\
 https://nytimes.com/athletic/6586233/2025/08/30/nottingham-forest-hudson-odoi-contract-new-deal/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/30/us/minnesota-hiker-grant-gardner-dead-wyoming.htm
 **Transfers TLDR: Alejandro Garnacho to Chelsea - all you need to know**\
 `The Argentina winger has moved from Manchester United to Stamford Bridge for £40m - we break down the deal`\
 https://nytimes.com/athletic/6584522/2025/08/30/alejandro-garnacho-chelsea-transfer-analysis/
-
-**Teenager arrested outside Stamford Bridge on suspicion of possessing imitation firearm**\
-`A post that was circulated on social media showed someone being detained by officers outside the stadium in west London.`\
-https://nytimes.com/athletic/6586078/2025/08/30/chelsea-stamford-bridge-arrest-frearm-police/
 
