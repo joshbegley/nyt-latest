@@ -34,7 +34,7 @@ https://nytimes.com/2025/08/30/business/trump-samsung-skhynix-chips.html
 `The women's transfer record is now more than £1m. These are the players who could hit that benchmark with their next move`\
 https://nytimes.com/athletic/6551057/2025/08/30/next-record-womens-soccer-transfer/
 
-**3 Killed as Protests in Indonesia Spread Beyond Jakarta**\
-`The student-led demonstrations are against President Prabowo Subianto’s economic policies and fatal police brutality.`\
+**3 Dead After Jumping From Building Protesters Set on Fire, Official Says**\
+`The student-led demonstrations in Indonesia are against President Prabowo Subianto’s economic policies and fatal police brutality.`\
 https://nytimes.com/2025/08/30/world/asia/indonesia-protests-dead-prabowo-subianto.html
 
