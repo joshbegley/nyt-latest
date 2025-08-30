@@ -1,3 +1,7 @@
+**Champions League 2025-26: League phase fixtures, schedule and analysis**\
+`The league phase draw was made on Friday, and dates confirmed on Saturday — setting up some intriguing battles across eight matchweeks.`\
+https://nytimes.com/athletic/6585493/2025/08/30/champions-league-league-phase-fixtures-schedule-analysis/
+
 **Houthis Say Prime Minister Is Killed in Israeli Attack**\
 `Ahmed al-Rahawi had led the Houthi cabinet in Yemen since 2024. His killing is unlikely to halt the Iranian-backed group’s missile attacks on Israel.`\
 https://nytimes.com/2025/08/30/world/middleeast/houthi-prime-minister-killed-israel.html
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/6585023/2025/08/30/julio-enciso-strasbourg-brighton
 **Diogo Jota's Portugal No 21 shirt to be inherited by Ruben Neves**\
 `Martinez said the close relationship between Jota and Neves makes the midfielder "the ideal person to represent" the late Liverpool forward.`\
 https://nytimes.com/athletic/6585470/2025/08/30/diogo-jota-portugal-shirt-ruben-neves/
-
-**Utah Royals' KK Ream, 16, becomes youngest goalscorer in NWSL regular-season history**\
-`Ream previously earned the title of youngest player to start an NWSL match at 15 years old.`\
-https://nytimes.com/athletic/6585485/2025/08/30/utah-royals-kk-ream-youngest-goalscorer-nwsl/
 
