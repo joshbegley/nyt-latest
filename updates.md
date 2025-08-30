@@ -1,3 +1,7 @@
+**Yankees' offense could power October run and mask their flaws: 'This is a super team'**\
+`The Yankees are on track to have four players hit at least 30 home runs in the same season for the first time in franchise history. `\
+https://nytimes.com/athletic/6585210/2025/08/30/yankees-offense-trent-grisham-grand-slam/
+
 **Diogo Jota's Portugal No 21 shirt to be inherited by Ruben Neves**\
 `Martinez said the close relationship between Jota and Neves makes the midfielder "the ideal person to represent" the late Liverpool forward.`\
 https://nytimes.com/athletic/6585470/2025/08/30/diogo-jota-portugal-shirt-ruben-neves/
