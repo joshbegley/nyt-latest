@@ -1,3 +1,7 @@
+**The Briefing: Leeds 0 Newcastle 0 - Howe's odd kick-offs - and why was anthem booed?**\
+`The big talking points analysed from Saturday's Premier League game at Elland Road`\
+https://nytimes.com/athletic/6581419/2025/08/30/leeds-newcastle-result-score-analysis/
+
 **Protests Grow in Indonesia After Deadly Clash With Police**\
 `Demonstrations opposing housing allowances for Indonesian lawmakers turned into outrage against police brutality after the death of a motorcycle taxi driver during a protest.`\
 https://nytimes.com/video/world/asia/100000010370545/indonesia-protests-death.html
