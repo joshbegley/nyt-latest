@@ -1,3 +1,7 @@
+**Jonah Tong excels in Mets debut with 6 strikeouts in 5 innings**\
+`New York's newest righty's first outing ended with a yell after he ended the fifth inning with a called third strike.`\
+https://nytimes.com/athletic/6585138/2025/08/29/jonah-tong-mets-debut/
+
 **U.S. Is Working With Guatemala to Return Hundreds of Children**\
 `The children, who crossed the border as unaccompanied minors, are being kept in shelters. Experts said the move raised troubling legal questions.`\
 https://nytimes.com/2025/08/29/us/immigration-guatemala-children.html
