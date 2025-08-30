@@ -1,3 +1,7 @@
+**Why Bayern Munich agreeing to sign Nicolas Jackson makes a lot of sense**\
+`The Germans brought together a late solution for Jackson - and it makes sense given such a narrow pool of players that fit their needs.`\
+https://nytimes.com/athletic/6578447/2025/08/30/bayern-munich-nicolas-jackson-chelsea-transfer/
+
 **Bayern Munich reach agreement to sign Jackson**\
 `The deal is a season-long loan with an option to buy, worth a total package of €80million (£69m; $93.5m).`\
 https://nytimes.com/athletic/6487731/2025/08/30/nicolas-jackson-chelsea-bayern-munich-transfer/

@@ -1,3 +1,7 @@
+**Why Bayern Munich agreeing to sign Nicolas Jackson makes a lot of sense**\
+`The Germans brought together a late solution for Jackson - and it makes sense given such a narrow pool of players that fit their needs.`\
+https://nytimes.com/athletic/6578447/2025/08/30/bayern-munich-nicolas-jackson-chelsea-transfer/
+
 **Bayern Munich reach agreement to sign Jackson**\
 `The deal is a season-long loan with an option to buy, worth a total package of €80million (£69m; $93.5m).`\
 https://nytimes.com/athletic/6487731/2025/08/30/nicolas-jackson-chelsea-bayern-munich-transfer/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6551057/2025/08/30/next-record-womens-soccer-transf
 **3 Killed as Protests in Indonesia Spread Beyond Jakarta**\
 `The student-led demonstrations are against President Prabowo Subianto’s economic policies and fatal police brutality.`\
 https://nytimes.com/2025/08/30/world/asia/indonesia-protests-dead-prabowo-subianto.html
-
-**The New York Times in Print for Saturday, Aug. 30, 2025**\
-``\
-https://nytimes.com/issue/todayspaper/2025/08/30/todays-new-york-times
 
