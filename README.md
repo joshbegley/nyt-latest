@@ -1,3 +1,7 @@
+**Jonah Tong excels in Mets debut with 6 strikeouts in 5 innings**\
+`New York's newest righty's first outing ended with a yell after he ended the fifth inning with a called third strike.`\
+https://nytimes.com/athletic/6585138/2025/08/29/jonah-tong-mets-debut/
+
 **U.S. Is Working With Guatemala to Return Hundreds of Children**\
 `The children, who crossed the border as unaccompanied minors, are being kept in shelters. Experts said the move raised troubling legal questions.`\
 https://nytimes.com/2025/08/29/us/immigration-guatemala-children.html
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2025/08/29/us/appeals-court-trump-tariffs-ruling
 **How the Trump-Kennedy Alliance Is Pushing the Boundaries of Public Health**\
 `The mutually beneficial relationship between President Trump and Robert F. Kennedy Jr. is based on a striking alignment of some of their views.`\
 https://nytimes.com/2025/08/29/us/politics/trump-kennedy-alliance-vaccines.html
-
-**3 Workers at Rikers Are Suspended After Another Man Dies in Custody**\
-`The death of the 29-year-old, who was found in his cell after midnight, is the latest of several at the Rikers Island jail complex in New York.`\
-https://nytimes.com/2025/08/29/nyregion/rikers-death-ardit-billa.html
 
