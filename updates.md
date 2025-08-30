@@ -1,3 +1,11 @@
+**Nottingham Forest return to Europe with trip to Real Betis**\
+`Nuno Espirito Santo’s side will play in European competition for the first time since 1996`\
+https://nytimes.com/athletic/6586221/2025/08/30/europa-league-nottingham-forest-real-betis/
+
+**Man United Women continue quest for Champions League journey after 1-0 Hammarby win**\
+`Elisabeth Terland's goal just after the hour mark was enough to earn United a 1-0 win in Stockholm.`\
+https://nytimes.com/athletic/6586252/2025/08/30/man-united-women-champions-league-hammarby-qualification/
+
 **Hudson-Odoi signs new three-year deal with Forest**\
 `The highly regarded winger’s previous deal was due to expire at the end of the season.`\
 https://nytimes.com/athletic/6586233/2025/08/30/nottingham-forest-hudson-odoi-contract-new-deal/
