@@ -1,3 +1,7 @@
+**No sugarcoating it — Arch Manning underwhelmed in Texas' loss at Ohio State**\
+`For all the hype, I would not have predicted Manning's best performance Saturday to come in a glasses ad.`\
+https://nytimes.com/athletic/6586378/2025/08/30/arch-manning-underwhelming-texas-ohio-state/
+
 **Jelena Ostapenko apologizes for Taylor Townsend 'no education' comments**\
 `The Latvian said that her comment referred only to tennis etiquette in a statement that did not name or acknowledge Townsend.`\
 https://nytimes.com/athletic/6586320/2025/08/30/elena-ostapenko-apology-taylor-townsend-us-open/
