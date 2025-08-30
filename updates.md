@@ -1,3 +1,8 @@
+**Strasbourg expected to agree deal to sign Enciso from Brighton**\
+`Enciso will join Strasbourg on a permanent basis and is set to sign a five-year contract.
+`\
+https://nytimes.com/athletic/6585023/2025/08/30/julio-enciso-strasbourg-brighton-transfer/
+
 **The Pulse: Overreaction Saturday is officially here**\
 `Welcome to The Pulse, The Athletic's daily sports newsletter.`\
 https://nytimes.com/athletic/6585261/2025/08/30/prepare-to-overreact-to-college-football-this-weekend-plus-u-s-open-stunners/
