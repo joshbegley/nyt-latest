@@ -1,3 +1,7 @@
+**Aston Villa express interest in West Ham's Paqueta**\
+`Arranging a financial package, however, is very tough to do, with Villa working to comply with UEFA restrictions.`\
+https://nytimes.com/athletic/6578431/2025/08/30/lucas-paqueta-aston-villa-west-ham-interest/
+
 **Wolves close to signing Genk striker Tolu Arokodare**\
 `The Premier League club have agreed a deal worth in the region of £22.4million ($30.3m) + £1m ($1.1m) in bonuses for the 24-year-old.`\
 https://nytimes.com/athletic/6584953/2025/08/30/wolves-transfer-news-arokodare/
