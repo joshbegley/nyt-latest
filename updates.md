@@ -1,3 +1,8 @@
+**Strasbourg expected to agree deal to sign Enciso from Brighton**\
+`Enciso will join Strasbourg on a permanent basis and is set to sign a five-year contract.
+`\
+https://nytimes.com/athletic/6585023/2025/08/30/julio-enciso-strasbourg-brighton-transfer/
+
 **From Cracker Barrel to Sydney Sweeney, Trump Has an Opinion to Share**\
 `In his second term, President Trump is using his power to reshape American culture, not just American policy. He has threatened consequences for many who disagree.`\
 https://nytimes.com/2025/08/30/us/politics/cracker-barrel-sweeney-trump.html
