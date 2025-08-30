@@ -1,3 +1,7 @@
+**The New York Times in Print for Saturday, Aug. 30, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/08/30/todays-new-york-times
+
 **What we're hearing after the Cubs' trade deadline: Cade Horton, Matt Shaw, Michael Soroka**\
 `Club officials say rival teams constantly asked about Horton and Shaw, who are already key contributors to a real playoff contender.`\
 https://nytimes.com/athletic/6585320/2025/08/30/cubs-trade-deadline-cade-horton-matt-shaw-michael-soroka/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6584053/2025/08/30/champions-league-uefa-monaco-exe
 **What it's like to play against a 15 or 16-year-old Premier League wonderkid**\
 `Max Dowman and Rio Ngumoha have broken through the barrier already this season facing opponents twice their age and more`\
 https://nytimes.com/athletic/6584105/2025/08/30/premier-league-wonderkid-what-is-it-like/
-
-**The Nobel Prize and a Testy Phone Call: How the Trump-Modi Relationship Unraveled**\
-`President Trump’s repeated claims about having “solved” the India-Pakistan war infuriated Prime Minister Narendra Modi of India. And that was only the beginning.`\
-https://nytimes.com/2025/08/30/us/politics/trump-modi-india.html
 

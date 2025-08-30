@@ -1,3 +1,7 @@
+**The New York Times in Print for Saturday, Aug. 30, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/08/30/todays-new-york-times
+
 **Duke Cunningham, 83, Congressman Convicted in Corruption Scandal, Dies**\
 `A war hero turned politician, he was first elected to the House in 1990 but stepped down in 2005 after pleading guilty to tax evasion and conspiracy to commit bribery.`\
 https://nytimes.com/2025/08/30/us/politics/duke-cunningham-dead.html
