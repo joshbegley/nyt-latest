@@ -1,3 +1,7 @@
+**Explained: Chelsea vs Fulham refereeing controversies - and why Marco Silva was so angry**\
+`Breaking down the controversial moments from Chelsea's win over Fulham at Stamford Bridge`\
+https://nytimes.com/athletic/6585635/2025/08/30/chelsea-fulham-referee-var-controversy-decisions/
+
 **The Visual Language of Trump’s Authoritarianism**\
 `It’s an unreal spectacle.`\
 https://nytimes.com/2025/08/30/opinion/trump-visual-symbols-authoritarian.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/30/world/middleeast/houthi-prime-minister-killed-isr
 **Oscar Piastri stuns F1 title rival Lando Norris to claim Dutch GP pole position**\
 `Piastri edged ahead of his McLaren teammate in Q3, after Norris had dominated practice sessions at Zandvoort`\
 https://nytimes.com/athletic/6585593/2025/08/30/dutch-grand-prix-qualifying-results/
-
-**From Cracker Barrel to Sydney Sweeney, Trump Has an Opinion to Share**\
-`In his second term, President Trump is using his power to reshape American culture, not just American policy. He has threatened consequences for many who disagree.`\
-https://nytimes.com/2025/08/30/us/politics/cracker-barrel-sweeney-trump.html
 

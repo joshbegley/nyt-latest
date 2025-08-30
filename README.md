@@ -30,7 +30,7 @@ https://nytimes.com/2025/08/30/dining/pollo-asado-lets-go.html
 `The league phase draw was made on Friday, and dates confirmed on Saturday — setting up some intriguing battles across eight matchweeks.`\
 https://nytimes.com/athletic/6585493/2025/08/30/champions-league-league-phase-fixtures-schedule-analysis/
 
-**Houthis Say Prime Minister Is Killed in Israeli Attack**\
+**Houthis Say Prime Minister Was Killed in Israeli Attack**\
 `Ahmed al-Rahawi had led the Houthi cabinet in Yemen since 2024. His killing is unlikely to halt the Iranian-backed group’s missile attacks on Israel.`\
 https://nytimes.com/2025/08/30/world/middleeast/houthi-prime-minister-killed-israel.html
 

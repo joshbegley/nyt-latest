@@ -1,3 +1,7 @@
+**Explained: Chelsea vs Fulham refereeing controversies - and why Marco Silva was so angry**\
+`Breaking down the controversial moments from Chelsea's win over Fulham at Stamford Bridge`\
+https://nytimes.com/athletic/6585635/2025/08/30/chelsea-fulham-referee-var-controversy-decisions/
+
 **The Visual Language of Trump’s Authoritarianism**\
 `It’s an unreal spectacle.`\
 https://nytimes.com/2025/08/30/opinion/trump-visual-symbols-authoritarian.html
