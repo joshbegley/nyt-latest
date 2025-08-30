@@ -1,3 +1,7 @@
+**Why Leeds missed out on Buonanotte, what he would have brought them and who they could turn to next**\
+`Promoted Leeds have made 10 signings already this summer and tried for an 11th. Who could they now bring in before Monday's deadline?`\
+https://nytimes.com/athletic/6581163/2025/08/30/leeds-facundo-buonanotte-why-analysis/
+
 **How busy will your Premier League club be over the rest of the transfer window?**\
 `There are just three days left before Monday's deadline, and clubs will expect to do more business between now and then`\
 https://nytimes.com/athletic/6584392/2025/08/30/premier-league-transfer-latest-busy-clubs/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/30/world/asia/china-japan-wwii-nationalism.html
 **Quote of the Day: A Russian-Occupied City Thirsts for a ‘Simple Miracle’: Running Water**\
 `Quotation of the Day for Saturday, August 29, 2025.`\
 https://nytimes.com/2025/08/30/pageoneplus/quote-of-the-day-a-russian-occupied-city-thirsts-for-a-simple-miracle-running-water.html
-
-**An ‘Economic Storm’ of Crises Is Battering Afghanistan**\
-`Afghanistan was on a timid recovery path. But four years after the Taliban retook power, it has been badly hit by aid cuts and an inflow of two million Afghans forced out of Iran and Pakistan.`\
-https://nytimes.com/2025/08/30/world/africa/afghanistan-economy-deportation.html
 
