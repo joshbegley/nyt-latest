@@ -1,3 +1,7 @@
+**Wolves close to signing Genk striker Tolu Arokodare**\
+`The Premier League club have agreed a deal worth in the region of £22.4million ($30.3m) + £1m ($1.1m) in bonuses for the 24-year-old.`\
+https://nytimes.com/athletic/6584953/2025/08/30/wolves-transfer-news-arokodare/
+
 **Golden Hour**\
 `This weekend marks summer’s unofficial end — but that doesn’t have to mean abandoning the season’s many splendors.`\
 https://nytimes.com/2025/08/30/briefing/golden-hour.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/30/crosswords/wordle-review-1534.html
 **Connections Companion No. 812**\
 `Scroll down for hints and conversation about the puzzle for Sunday, Aug. 31, 2025.`\
 https://nytimes.com/2025/08/30/crosswords/connections-companion-812.html
-
-**Strands Sidekick No. 546**\
-`Scroll down for hints and conversation about the puzzle for Sunday, Aug. 31, 2025.`\
-https://nytimes.com/2025/08/30/crosswords/strands-sidekick-546.html
 
