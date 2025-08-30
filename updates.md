@@ -1,3 +1,7 @@
+**USMNT's Mauricio Pochettino joins Fox's Big Noon Kickoff, talks 2026 World Cup prep**\
+`Pochettino led an O-H, I-O chant with the Ohio State fans.`\
+https://nytimes.com/athletic/6586337/2025/08/30/usmnts-mauricio-pochettino-world-cup-prep/
+
 **No sugarcoating it — Arch Manning underwhelmed in Texas' loss at Ohio State**\
 `For all the hype, I would not have predicted Manning's best performance Saturday to come in a glasses ad.`\
 https://nytimes.com/athletic/6586378/2025/08/30/arch-manning-underwhelming-texas-ohio-state/

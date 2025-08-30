@@ -1,3 +1,7 @@
+**Karolina Muchová says former partner 'at places he shouldn't be' caused U.S. Open distress**\
+`Muchová gestured toward the stand before wiping away tears during her third-round win over Sorana Cîrstea.`\
+https://nytimes.com/athletic/6586374/2025/08/30/karolina-muchova-us-open-ex-boyfriend-match/
+
 **USMNT's Mauricio Pochettino joins Fox's Big Noon Kickoff, talks 2026 World Cup prep**\
 `Pochettino led an O-H, I-O chant with the Ohio State fans.`\
 https://nytimes.com/athletic/6586337/2025/08/30/usmnts-mauricio-pochettino-world-cup-prep/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6586252/2025/08/30/man-united-women-champions-leagu
 **Hudson-Odoi signs new three-year deal with Forest**\
 `The highly regarded winger’s previous deal was due to expire at the end of the season.`\
 https://nytimes.com/athletic/6586233/2025/08/30/nottingham-forest-hudson-odoi-contract-new-deal/
-
-**USMNT's Josh Sargent, Haji Wright score again, top Championship goal charts**\
-`Sargent is the outright top scorer in the Championship this season with five goals, while Wright’s four goals have him tied second.`\
-https://nytimes.com/athletic/6586153/2025/08/30/josh-sargent-haji-wright-goals-championship-usmnt-video/
 
