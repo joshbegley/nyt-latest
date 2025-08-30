@@ -1,40 +1,40 @@
-**Aston Villa express interest in West Ham's Paqueta**\
-`Arranging a financial package, however, is very tough to do, with Villa working to comply with UEFA restrictions.`\
-https://nytimes.com/athletic/6578431/2025/08/30/lucas-paqueta-aston-villa-west-ham-interest/
+**Rivalry renewed: How to watch Notre Dame at Miami in Sunday's top-10 Week 1 showcase**\
+`A long-standing rivalry with cultural and institutional strife gets a new look on Sunday night.`\
+https://nytimes.com/athletic/6583181/2025/08/30/notre-dame-miami-how-to-watch-sunday/
 
-**Wolves close to signing Genk striker Tolu Arokodare**\
-`The Premier League club have agreed a deal worth in the region of £22.4million ($30.3m) + £1m ($1.1m) in bonuses for the 24-year-old.`\
-https://nytimes.com/athletic/6584953/2025/08/30/wolves-transfer-news-arokodare/
+**'Super team' Yankees eye history with four 30-homer threats**\
+`The Yankees are on track to have four players hit at least 30 home runs in the same season for the first time in franchise history. `\
+https://nytimes.com/athletic/6585210/2025/08/30/yankees-offense-trent-grisham-grand-slam/
 
-**Golden Hour**\
-`This weekend marks summer’s unofficial end — but that doesn’t have to mean abandoning the season’s many splendors.`\
-https://nytimes.com/2025/08/30/briefing/golden-hour.html
+**NFL All-Second-Gen Team: Surtain, Burrow, McCaffrey headline star-studded roster**\
+`Sorry, Shedeur Sanders, but you aren't cracking the starting lineup here either in our all-star team of second-generation players.`\
+https://nytimes.com/athletic/6581612/2025/08/30/nfl-second-generation-team-cmc-joe-burrow/
 
-**How to watch Virginia Tech vs. South Carolina: LaNorris Sellers hype train begins Sunday**\
-`Virginia Tech and South Carolina meet Sunday at Mercedes-Benz Stadium, with Heisman hopeful LaNorris Sellers under center for the Gamecocks.`\
-https://nytimes.com/athletic/6583066/2025/08/30/virginia-tech-south-carolina-lanorris-sellers-how-to-watch/
+**Bernie Sanders: Kennedy Must Resign**\
+`The health secretary is endangering the lives of American people now and into the future.`\
+https://nytimes.com/2025/08/30/opinion/bernie-sanders-robert-f-kennedy-jr-resign-hhs.html
 
-**Large Russian Air Attack Hits Ukraine, Amid Stalled Bid for Peace Talks**\
-`It was the second massive assault in three days, as the Kremlin rebuffed peace talks sought by Ukraine and the United States.`\
-https://nytimes.com/2025/08/30/world/europe/russia-barrage-ukraine-peace-talks.html
+**Vax Quack Lacks Facts**\
+`This Kennedy is no profile in courage.`\
+https://nytimes.com/2025/08/30/opinion/robert-f-kennedy-jr-maha.html
 
-**Newcastle complete club-record signing of Woltemade from Stuttgart**\
-`The deal consists of an initial fee of €75m plus €5m in potential add-ons.`\
-https://nytimes.com/athletic/6585449/2025/08/30/nick-woltemade-newcastle-signing/
+**Oasis Finally Sells Out (Stadiums)**\
+`There’s a reason America is now loving the band.`\
+https://nytimes.com/2025/08/30/opinion/oasis-tour-america.html
 
-**Should I Report My Neighbor’s Animal Abuse?**\
-`I feel trapped: afraid of overstepping with unpredictable neighbors, afraid of doing nothing and regretting it.`\
-https://nytimes.com/2025/08/30/magazine/report-neighbors-animal-abuse-ethics.html
+**Where There’s No Debate About Genocide — and No Response Either**\
+`Both the Biden and Trump administrations have described Sudan as suffering genocide. And no one’s done much about it.`\
+https://nytimes.com/2025/08/30/opinion/sudan-genocide-famine.html
 
-**What would Auburn's Hugh Freeze and Jackson Arnold on same page mean for rest of SEC?**\
-`Arnold took it 27 yards untouched up the middle for a touchdown that would make the 38-24 final score.`\
-https://nytimes.com/athletic/6585366/2025/08/30/auburn-hugh-freeze-jackson-arnold-same-page-sec-baylor/
+**Refusing to Serve in Gaza Is the Only Way to Save Israel**\
+`It is the duty of Israeli military reserves to stay home and not fight an unjust war.`\
+https://nytimes.com/2025/08/30/opinion/israel-defense-forces-reservists-gaza-refusal.html
 
-**Why Three Wealthy Bidders Are Fighting for What’s Left of Hudson’s Bay**\
-`Months after the shutdown of the 355-year-old Hudson’s Bay Company, the legal action it created continues apace.`\
-https://nytimes.com/2025/08/30/world/canada/hudsons-bay-legal-fight.html
+**Let Your Garden Grow**\
+`Yards should be wilder, freer and more alive.`\
+https://nytimes.com/2025/08/30/opinion/lawns-mowing-wildflowers.html
 
-**Wordle Review No. 1,534**\
-`Scroll down for hints and conversation about the puzzle for Sunday, Aug. 31, 2025.`\
-https://nytimes.com/2025/08/30/crosswords/wordle-review-1534.html
+**Remedies to the ‘Boy Crisis’**\
+`Readers respond to an essay on the malaise among boys and young men in civic, familial and social life.`\
+https://nytimes.com/2025/08/30/opinion/boys-crisis-2025.html
 
