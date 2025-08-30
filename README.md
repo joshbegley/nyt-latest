@@ -1,40 +1,40 @@
-**Barcelona midfielder Gavi withdraws from Spain squad with knee injury**\
-`Gavi, 21, sustained the problem in training on Friday.`\
-https://nytimes.com/athletic/6585437/2025/08/30/gavi-spain-barcelona-injury-update/
+**How to watch Virginia Tech vs. South Carolina: LaNorris Sellers hype train begins Sunday**\
+`Virginia Tech and South Carolina meet Sunday at Mercedes-Benz Stadium, with Heisman hopeful LaNorris Sellers under center for the Gamecocks.`\
+https://nytimes.com/athletic/6583066/2025/08/30/virginia-tech-south-carolina-lanorris-sellers-how-to-watch/
 
-**Arundhati Roy on How to Survive in a ‘Culture of Fear’**\
-`The acclaimed writer has a new memoir, and a warning.`\
-https://nytimes.com/2025/08/30/magazine/arundhati-roy-modi-trump-interview.html
+**Large Russian Air Attack Hits Ukraine, Amid Stalled Bid for Peace Talks**\
+`It was the second massive assault in three days, as the Kremlin rebuffed peace talks sought by Ukraine and the United States.`\
+https://nytimes.com/2025/08/30/world/europe/russia-barrage-ukraine-peace-talks.html
 
-**Think Candles Can’t Be Fun? Think Again.**\
-`A small company in Missouri is struggling to keep up with orders for its “Fall of Rome” candle, and it is already working on its next social media hit.`\
-https://nytimes.com/2025/08/30/style/fall-of-rome-candle.html
+**Newcastle complete club-record signing of Woltemade from Stuttgart**\
+`The deal consists of an initial fee of €75m plus €5m in potential add-ons.`\
+https://nytimes.com/athletic/6585449/2025/08/30/nick-woltemade-newcastle-signing/
 
-**In Secret Diaries, the Church Shooter’s Plans for Mass Murder**\
-`Robin W. Westman described how she had obtained guns and how she had visited the church on a test run this summer during a Sunday Mass.`\
-https://nytimes.com/2025/08/30/us/minneapolis-church-shooter-robin-westman.html
+**Should I Report My Neighbor’s Animal Abuse?**\
+`I feel trapped: afraid of overstepping with unpredictable neighbors, afraid of doing nothing and regretting it.`\
+https://nytimes.com/2025/08/30/magazine/report-neighbors-animal-abuse-ethics.html
 
-**A Father Took His Daughters to School. Then Came the Gunshots.**\
-`Anders Holine was among the first parents to arrive at the scene of a mass shooting at a Minneapolis church on Wednesday. He spoke to The New York Times about what he witnessed as he went searching for his two daughters.`\
-https://nytimes.com/video/us/100000010368210/minneapolis-church-shooting-parent-witness.html
+**What would Auburn's Hugh Freeze and Jackson Arnold on same page mean for rest of SEC?**\
+`Arnold took it 27 yards untouched up the middle for a touchdown that would make the 38-24 final score.`\
+https://nytimes.com/athletic/6585366/2025/08/30/auburn-hugh-freeze-jackson-arnold-same-page-sec-baylor/
 
-**He Plagiarized and Promoted Falsehoods. The White House Embraces Him.**\
-`Benny Johnson, a right-wing podcaster, has enjoyed rare access and promotion from the Trump administration.`\
-https://nytimes.com/2025/08/30/business/media/trump-benny-johnson.html
+**Why Three Wealthy Bidders Are Fighting for What’s Left of Hudson’s Bay**\
+`Months after the shutdown of the 355-year-old Hudson’s Bay Company, the legal action it created continues apace.`\
+https://nytimes.com/2025/08/30/world/canada/hudsons-bay-legal-fight.html
 
-**How Russia Is Distracting Citizens From the War**\
-`Moscow is hosting a big summer festival as Russia continues its war in Ukraine.`\
-https://nytimes.com/video/world/europe/100000010362770/how-russia-is-distracting-citizens-from-the-war.html
+**Wordle Review No. 1,534**\
+`Scroll down for hints and conversation about the puzzle for Sunday, Aug. 31, 2025.`\
+https://nytimes.com/2025/08/30/crosswords/wordle-review-1534.html
 
-**Debbie Gibson Wants to Take Your Photo (She Won’t Steal Your Phone)**\
-`The 1980s pop star, who tells her story in a new memoir, chats about how she stays connected to teen culture, the glorious artifice of Las Vegas and dancing her own way.`\
-https://nytimes.com/2025/08/30/arts/music/debbie-gibson-favorites.html
+**Connections Companion No. 812**\
+`Scroll down for hints and conversation about the puzzle for Sunday, Aug. 31, 2025.`\
+https://nytimes.com/2025/08/30/crosswords/connections-companion-812.html
 
-**The ‘Thursday Murder Club’ Members Get Down to Business**\
-`Helen Mirren, Pierce Brosnan, Ben Kingsley, Celia Imrie and director Chris Columbus on their new adaptation, first-day jitters and their shared love of “Home Alone.”`\
-https://nytimes.com/2025/08/30/movies/the-thursday-murder-club-members-interview.html
+**Strands Sidekick No. 546**\
+`Scroll down for hints and conversation about the puzzle for Sunday, Aug. 31, 2025.`\
+https://nytimes.com/2025/08/30/crosswords/strands-sidekick-546.html
 
-**There’s More to Worry About Than Legroom When Flying Horses**\
-`They travel in shipping cubes inside the plane, with equine flight attendants soothing the animals and giving them snacks. They even need passports.`\
-https://nytimes.com/2025/08/30/sports/flying-horses-equestrian-events.html
+**Bold NFL season predictions: Giants turn to Jaxson Dart early; Broncos win AFC West**\
+`Our beat writers shared some surprising thoughts on Daniel Jones, Brock Purdy and others after we asked for one prediction for every team.`\
+https://nytimes.com/athletic/6584122/2025/08/30/nfl-2025-season-predictions-giants-broncos-jaxson-dart/
 
