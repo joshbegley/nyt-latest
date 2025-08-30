@@ -1,3 +1,7 @@
+**Arundhati Roy on How to Survive in a ‘Culture of Fear’**\
+`The acclaimed writer has a new memoir, and a warning.`\
+https://nytimes.com/2025/08/30/magazine/arundhati-roy-modi-trump-interview.html
+
 **Think Candles Can’t Be Fun? Think Again.**\
 `A small company in Missouri is struggling to keep up with orders for its “Fall of Rome” candle, and it is already working on its next social media hit.`\
 https://nytimes.com/2025/08/30/style/fall-of-rome-candle.html
