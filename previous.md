@@ -1,3 +1,7 @@
+**Duke Cunningham, Congressman Convicted in Corruption Scandal, Dies at 83**\
+`A war hero turned politician, he was first elected to the House in 1990 but stepped down in 2005 after pleading guilty to tax evasion and conspiracy to commit bribery.`\
+https://nytimes.com/2025/08/30/us/politics/duke-cunningham-dead.html
+
 **Why Leeds missed out on Buonanotte, what he would have brought them and who they could turn to next**\
 `Promoted Leeds have made 10 signings already this summer and tried for an 11th. Who could they now bring in before Monday's deadline?`\
 https://nytimes.com/athletic/6581163/2025/08/30/leeds-facundo-buonanotte-why-analysis/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/30/us/politics/trump-modi-india.html
 **China Revisits Its War With Japan, Stirring Pride and Fears of Hatred**\
 `A series of World War II dramas about China’s fight against Japan is drawing audiences to their feet, and, in some cases, to tears. Some say it helps deflect public discontent.`\
 https://nytimes.com/2025/08/30/world/asia/china-japan-wwii-nationalism.html
-
-**Quote of the Day: A Russian-Occupied City Thirsts for a ‘Simple Miracle’: Running Water**\
-`Quotation of the Day for Saturday, August 29, 2025.`\
-https://nytimes.com/2025/08/30/pageoneplus/quote-of-the-day-a-russian-occupied-city-thirsts-for-a-simple-miracle-running-water.html
 

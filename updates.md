@@ -1,3 +1,7 @@
+**Duke Cunningham, Congressman Convicted in Corruption Scandal, Dies at 83**\
+`A war hero turned politician, he was first elected to the House in 1990 but stepped down in 2005 after pleading guilty to tax evasion and conspiracy to commit bribery.`\
+https://nytimes.com/2025/08/30/us/politics/duke-cunningham-dead.html
+
 **Why Leeds missed out on Buonanotte, what he would have brought them and who they could turn to next**\
 `Promoted Leeds have made 10 signings already this summer and tried for an 11th. Who could they now bring in before Monday's deadline?`\
 https://nytimes.com/athletic/6581163/2025/08/30/leeds-facundo-buonanotte-why-analysis/
