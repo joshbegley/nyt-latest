@@ -1,5 +1,6 @@
 **Strasbourg expected to agree deal to sign Enciso from Brighton**\
-`Strasbourg are expected to agree a deal to sign Julio Enciso from Brighton &amp; Hove Albion for an undisclosed fee.`\
+`Enciso will join Strasbourg on a permanent basis and is set to sign a five-year contract.
+`\
 https://nytimes.com/athletic/6585023/2025/08/30/julio-enciso-strasbourg-brighton-transfer/
 
 **Diogo Jota's Portugal No 21 shirt to be inherited by Ruben Neves**\

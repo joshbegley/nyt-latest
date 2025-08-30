@@ -1,3 +1,7 @@
+**Strasbourg expected to agree deal to sign Enciso from Brighton**\
+`Strasbourg are expected to agree a deal to sign Julio Enciso from Brighton &amp; Hove Albion for an undisclosed fee.`\
+https://nytimes.com/athletic/6585023/2025/08/30/julio-enciso-strasbourg-brighton-transfer/
+
 **Diogo Jota's Portugal No 21 shirt to be inherited by Ruben Neves**\
 `Martinez said the close relationship between Jota and Neves makes the midfielder "the ideal person to represent" the late Liverpool forward.`\
 https://nytimes.com/athletic/6585470/2025/08/30/diogo-jota-portugal-shirt-ruben-neves/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6585210/2025/08/30/yankees-offense-trent-grisham-gr
 **NFL All-Second-Gen Team: Surtain, Burrow, McCaffrey headline star-studded roster**\
 `Sorry, Shedeur Sanders, but you aren't cracking the starting lineup here either in our all-star team of second-generation players.`\
 https://nytimes.com/athletic/6581612/2025/08/30/nfl-second-generation-team-cmc-joe-burrow/
-
-**Bernie Sanders: Kennedy Must Resign**\
-`The health secretary is endangering the lives of American people now and into the future.`\
-https://nytimes.com/2025/08/30/opinion/bernie-sanders-robert-f-kennedy-jr-resign-hhs.html
 

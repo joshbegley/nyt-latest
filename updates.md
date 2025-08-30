@@ -1,3 +1,7 @@
+**Strasbourg expected to agree deal to sign Enciso from Brighton**\
+`Strasbourg are expected to agree a deal to sign Julio Enciso from Brighton &amp; Hove Albion for an undisclosed fee.`\
+https://nytimes.com/athletic/6585023/2025/08/30/julio-enciso-strasbourg-brighton-transfer/
+
 **Yankees' offense could power October run and mask their flaws: 'This is a super team'**\
 `The Yankees are on track to have four players hit at least 30 home runs in the same season for the first time in franchise history. `\
 https://nytimes.com/athletic/6585210/2025/08/30/yankees-offense-trent-grisham-grand-slam/
