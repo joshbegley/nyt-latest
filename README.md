@@ -1,3 +1,11 @@
+**Liverpool submit official proposal to sign Crystal Palace's Guehi**\
+`The offer is worth £35million flat, with no further payments, and Palace are yet to issue a response.`\
+https://nytimes.com/athletic/6549214/2025/08/30/marc-guehi-liverpool-transfer-news/
+
+**An Online Group Says It’s Behind a Campus Swatting Wave**\
+`Members of the group offered on Telegram to draw armed officers to schools, malls and airports, though their claims are unverified. Such false emergency calls have disrupted campus life in recent days.`\
+https://nytimes.com/2025/08/30/us/school-shooting-hoax-universities-purgatory-swatting.html
+
 **The Briefing: Man Utd 3-2 Burnley: A 97th-minute United winner, relief for Ruben Amorim**\
 `Charlotte Harpur analyses the key talking points from Manchester United's thrilling 3-2 win over Burnley`\
 https://nytimes.com/athletic/6581414/2025/08/30/manchester-united-burnley-bruno-amorim-result/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6585836/2025/08/30/nicolas-jackson-bayern-loan-chel
 **QB Jake Retzlaff will start for Tulane after transferring from BYU**\
 `Entering Tulane camp, Retzlaff was embroiled in a competition with former Northwestern and Iowa quarterback Brendan Sullivan.`\
 https://nytimes.com/athletic/6585723/2025/08/30/qb-jake-retzlaff-tulane-byu/
-
-**Chelsea's Delap could miss up to eight weeks with hamstring injury - Maresca**\
-`The 22-year-old pulled up as he looked to run onto a Marc Cucurella pass, immediately signalling towards his hamstring.`\
-https://nytimes.com/athletic/6585783/2025/08/30/chelsea-news-delap-injury-hamstring/
-
-**In Austria, Government Health Care Can Look a Bit Like a Spa**\
-`A few weeks of hikes and saunas in wine country? Sometimes, that’s literally just what the doctor ordered.`\
-https://nytimes.com/2025/08/30/well/austria-heart-health.html
 

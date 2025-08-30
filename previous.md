@@ -1,3 +1,11 @@
+**The Briefing: Man Utd 3-2 Burnley: A 97th-minute United winner, relief for Ruben Amorim**\
+`Charlotte Harpur analyses the key talking points from Manchester United's thrilling 3-2 win over Burnley`\
+https://nytimes.com/athletic/6581414/2025/08/30/manchester-united-burnley-bruno-amorim-result/
+
+**Lee Corso wraps final 'College GameDay' appearance with Ohio State headgear pick**\
+`Corso has worn mascot headgear before some of the biggest matchups in college football history.`\
+https://nytimes.com/athletic/6585159/2025/08/30/lee-corso-final-college-gameday-pick-ohio-state/
+
 **What to Know About Zohran Mamdani and Democratic Socialism**\
 `Opponents of the Democratic nominee for mayor of New York City have derogatively called him both a socialist and a democratic socialist to make a dent in his lead in the polls.`\
 https://nytimes.com/2025/08/30/nyregion/zohran-mamdani-nyc-mayor-democratic-socialism.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6585783/2025/08/30/chelsea-news-delap-injury-hamstr
 **In Austria, Government Health Care Can Look a Bit Like a Spa**\
 `A few weeks of hikes and saunas in wine country? Sometimes, that’s literally just what the doctor ordered.`\
 https://nytimes.com/2025/08/30/well/austria-heart-health.html
-
-**Pollo Asado, Let’s Go**\
-`Make extra of Ham El-Waylly’s citrusy, hummingly spicy chicken for weeknight burritos, grain bowls, salads, nachos, soups. …`\
-https://nytimes.com/2025/08/30/dining/pollo-asado-lets-go.html
-
-**Champions League 2025-26: League phase fixtures, schedule and analysis**\
-`The league phase draw was made on Friday, and dates confirmed on Saturday — setting up some intriguing battles across eight matchweeks.`\
-https://nytimes.com/athletic/6585493/2025/08/30/champions-league-league-phase-fixtures-schedule-analysis/
 
