@@ -1,3 +1,7 @@
+**Nottingham Forest return to Europe with trip to Real Betis**\
+`Nuno Espirito Santo’s side will play in European competition for the first time since 1996`\
+https://nytimes.com/athletic/6586221/2025/08/30/europa-league-nottingham-forest-real-betis/
+
 **Man United Women continue quest for Champions League journey after 1-0 Hammarby win**\
 `Elisabeth Terland's goal just after the hour mark was enough to earn United a 1-0 win in Stockholm.`\
 https://nytimes.com/athletic/6586252/2025/08/30/man-united-women-champions-league-hammarby-qualification/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6586186/2025/08/30/malik-tillman-goal-bayer-leverku
 **Hiker Is Found Dead in Wyoming After Being Missing for a Month**\
 `Grant Gardner’s body was found by a climbing team on Wednesday in Bighorn National Forest, a week after the authorities called off a search.`\
 https://nytimes.com/2025/08/30/us/minnesota-hiker-grant-gardner-dead-wyoming.html
-
-**Transfers TLDR: Alejandro Garnacho to Chelsea - all you need to know**\
-`The Argentina winger has moved from Manchester United to Stamford Bridge for £40m - we break down the deal`\
-https://nytimes.com/athletic/6584522/2025/08/30/alejandro-garnacho-chelsea-transfer-analysis/
 
