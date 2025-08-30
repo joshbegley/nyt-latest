@@ -1,3 +1,7 @@
+**Houthis Say Prime Minister Was Killed in Israeli Attack**\
+`Ahmed al-Rahawi had led the Houthi cabinet in Yemen since 2024. His killing is unlikely to halt the Iranian-backed group’s missile attacks on Israel.`\
+https://nytimes.com/2025/08/30/world/middleeast/houthi-prime-minister-killed-israel.html
+
 **Explained: Chelsea vs Fulham refereeing controversies - and why Marco Silva was so angry**\
 `Breaking down the controversial moments from Chelsea's win over Fulham at Stamford Bridge`\
 https://nytimes.com/athletic/6585635/2025/08/30/chelsea-fulham-referee-var-controversy-decisions/
