@@ -1,3 +1,12 @@
+**Houthis Say Prime Minister Is Killed in Israeli Attack**\
+`Ahmed al-Rahawi had led the Houthi cabinet in Yemen since 2024. His killing is unlikely to halt the Iranian-backed group’s missile attacks on Israel.`\
+https://nytimes.com/2025/08/30/world/middleeast/houthi-prime-minister-killed-israel.html
+
+**Strasbourg expected to agree deal to sign Enciso from Brighton**\
+`Enciso will join Strasbourg on a permanent basis and is set to sign a five-year contract.
+`\
+https://nytimes.com/athletic/6585023/2025/08/30/julio-enciso-strasbourg-brighton-transfer/
+
 **Strasbourg expected to agree deal to sign Enciso from Brighton**\
 `Enciso will join Strasbourg on a permanent basis and is set to sign a five-year contract.
 `\
