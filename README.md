@@ -1,3 +1,7 @@
+**Arch Manning's coming out party spoiled by tough Ohio State D: 'This is one chapter'**\
+`Manning, making his first road start, wasn't shy about taking the blame for his underwhelming performance at Ohio State. `\
+https://nytimes.com/athletic/6586357/2025/08/30/texas-arch-manning-ohio-state-spoiled-start/
+
 **Shilo Sanders fined for punch thrown in Buccaneers preseason finale: Source**\
 `Sanders was ejected from the Bucs' preseason finale for throwing a punch at Bills tight end Zach Davidson.`\
 https://nytimes.com/athletic/6586460/2025/08/30/shilo-sanders-fine-nfl-tampa-bay-buccaneers/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6586474/2025/08/30/dennis-schroder-racial-abuse-eur
 **A Morbid Memory Lingers 20 Years After Hurricane Katrina**\
 `Of all the disorder in New Orleans after the storm, a Times reporter remembers the corpse on Union Street most of all.`\
 https://nytimes.com/2025/08/30/insider/katrina-new-orleans.html
-
-**Karolína Muchová says former partner 'at places he shouldn't be' caused U.S. Open distress**\
-`Muchová gestured toward the stand before wiping away tears during her second-round win over Sorana Cîrstea.`\
-https://nytimes.com/athletic/6586374/2025/08/30/karolina-muchova-us-open-ex-boyfriend-match/
 
