@@ -1,3 +1,15 @@
+**Rangers close to signing Everton forward Chermiti**\
+`The agreed deal comprises an initial fee of £8million, plus £2m in add-ons. The package also includes a significant sell-on clause.`\
+https://nytimes.com/athletic/6585983/2025/08/30/everton-transfer-news-rangers-youssef-chermiti/
+
+**Xi Uses Summit, Parade and History to Flaunt China’s Global Pull**\
+`With the leaders of Russia and India visiting, China’s president will show how he can use statecraft, military might and history to push for global influence.`\
+https://nytimes.com/2025/08/30/world/asia/xi-putin-modi-china-summit.html
+
+**FIBA bans fan for racist abuse toward German captain Dennis Schröder**\
+`Schröder was subjected to "monkey noises from some Lithuanian fans,” German Basketball Federation President Ingo Weiss said.`\
+https://nytimes.com/athletic/6586474/2025/08/30/dennis-schroder-racial-abuse-eurobasket/
+
 **A Morbid Memory Lingers 20 Years After Hurricane Katrina**\
 `Of all the disorder in New Orleans after the storm, a Times reporter remembers the corpse on Union Street most of all.`\
 https://nytimes.com/2025/08/30/insider/katrina-new-orleans.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6585917/2025/08/30/arch-manning-texas-ohio-state-dr
 **College Football Playoff 2025 projections: Our model's best odds to make the bracket**\
 `Our College Football Playoff predictions model is back. Check here for regular updates on CFP and national championship odds for 2025.`\
 https://nytimes.com/athletic/6560541/2025/08/30/college-football-playoff-bracket-projections-odds/
-
-**Everyone still chasing Ohio State as Buckeyes topple Arch Manning, No. 1 Texas**\
-`No. 3 Ohio State beat No. 1 Texas 14-7 on Saturday, holding Arch Manning to 170 passing yards. Here's how it happened.`\
-https://nytimes.com/athletic/6586137/2025/08/30/ohio-state-texas-score-football-arch-manning/
-
-**Nottingham Forest return to Europe with trip to Real Betis**\
-`Nuno Espirito Santo’s side will play in European competition for the first time since 1996`\
-https://nytimes.com/athletic/6586221/2025/08/30/europa-league-nottingham-forest-real-betis/
-
-**Man United Women continue quest for Champions League journey after 1-0 Hammarby win**\
-`Elisabeth Terland's goal just after the hour mark was enough to earn United a 1-0 win in Stockholm.`\
-https://nytimes.com/athletic/6586252/2025/08/30/man-united-women-champions-league-hammarby-qualification/
 
