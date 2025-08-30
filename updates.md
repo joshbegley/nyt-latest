@@ -1,3 +1,16 @@
+**What does Ipswich's Championship-record signing Egeli mean for the second tier?**\
+`The 19-year-old has joined from FC Nordsjaelland for £17.5m.`\
+https://nytimes.com/athletic/6585504/2025/08/30/ipswich-championship-transfer-record-sindre-walle-egeli/
+
+**Chelsea 2 Fulham 0: Two VAR controversies benefit Maresca's side, impact of Delap injury**\
+`Chelsea beat Fulham 2-0 in the Premier League after two controversial VAR decisions. Simon Johnson breaks down the main talking points...`\
+https://nytimes.com/athletic/6581412/2025/08/30/chelsea-fulham-premier-league-king-var-delap-injury/
+
+**Strasbourg expected to agree deal to sign Enciso from Brighton**\
+`Enciso will join Strasbourg on a permanent basis and is set to sign a five-year contract.
+`\
+https://nytimes.com/athletic/6585023/2025/08/30/julio-enciso-strasbourg-brighton-transfer/
+
 **Strasbourg expected to agree deal to sign Enciso from Brighton**\
 `Enciso will join Strasbourg on a permanent basis and is set to sign a five-year contract.
 `\
