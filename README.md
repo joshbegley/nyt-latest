@@ -2,7 +2,7 @@
 `Club officials say rival teams constantly asked about Horton and Shaw, who are already key contributors to a real playoff contender.`\
 https://nytimes.com/athletic/6585320/2025/08/30/cubs-trade-deadline-cade-horton-matt-shaw-michael-soroka/
 
-**Duke Cunningham, Congressman Convicted in Corruption Scandal, Dies at 83**\
+**Duke Cunningham, 83, Congressman Convicted in Corruption Scandal, Dies**\
 `A war hero turned politician, he was first elected to the House in 1990 but stepped down in 2005 after pleading guilty to tax evasion and conspiracy to commit bribery.`\
 https://nytimes.com/2025/08/30/us/politics/duke-cunningham-dead.html
 
