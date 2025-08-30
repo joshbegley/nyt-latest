@@ -1,3 +1,7 @@
+**Barcelona midfielder Gavi withdraws from Spain squad with knee injury**\
+`Gavi, 21, sustained the problem in training on Friday.`\
+https://nytimes.com/athletic/6585437/2025/08/30/gavi-spain-barcelona-injury-update/
+
 **Arundhati Roy on How to Survive in a ‘Culture of Fear’**\
 `The acclaimed writer has a new memoir, and a warning.`\
 https://nytimes.com/2025/08/30/magazine/arundhati-roy-modi-trump-interview.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/30/movies/the-thursday-murder-club-members-interview
 **There’s More to Worry About Than Legroom When Flying Horses**\
 `They travel in shipping cubes inside the plane, with equine flight attendants soothing the animals and giving them snacks. They even need passports.`\
 https://nytimes.com/2025/08/30/sports/flying-horses-equestrian-events.html
-
-**You Don’t Need to Be Good at Math to Enjoy It**\
-`In her latest book, Eugenia Cheng, a mathematician, explores the choices we make to determine if two things — numbers, shapes, words and even people — are equal.`\
-https://nytimes.com/2025/08/30/science/eugenia-cheng-math-unequal-book.html
 

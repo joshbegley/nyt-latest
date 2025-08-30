@@ -1,3 +1,7 @@
+**Barcelona midfielder Gavi withdraws from Spain squad with knee injury**\
+`Gavi, 21, sustained the problem in training on Friday.`\
+https://nytimes.com/athletic/6585437/2025/08/30/gavi-spain-barcelona-injury-update/
+
 **Arundhati Roy on How to Survive in a ‘Culture of Fear’**\
 `The acclaimed writer has a new memoir, and a warning.`\
 https://nytimes.com/2025/08/30/magazine/arundhati-roy-modi-trump-interview.html
