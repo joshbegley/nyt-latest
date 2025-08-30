@@ -1,3 +1,7 @@
+**Golden Hour**\
+`This weekend marks summer’s unofficial end — but that doesn’t have to mean abandoning the season’s many splendors.`\
+https://nytimes.com/2025/08/30/briefing/golden-hour.html
+
 **How to watch Virginia Tech vs. South Carolina: LaNorris Sellers hype train begins Sunday**\
 `Virginia Tech and South Carolina meet Sunday at Mercedes-Benz Stadium, with Heisman hopeful LaNorris Sellers under center for the Gamecocks.`\
 https://nytimes.com/athletic/6583066/2025/08/30/virginia-tech-south-carolina-lanorris-sellers-how-to-watch/

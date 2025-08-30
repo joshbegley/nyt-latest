@@ -1,3 +1,7 @@
+**Golden Hour**\
+`This weekend marks summer’s unofficial end — but that doesn’t have to mean abandoning the season’s many splendors.`\
+https://nytimes.com/2025/08/30/briefing/golden-hour.html
+
 **How to watch Virginia Tech vs. South Carolina: LaNorris Sellers hype train begins Sunday**\
 `Virginia Tech and South Carolina meet Sunday at Mercedes-Benz Stadium, with Heisman hopeful LaNorris Sellers under center for the Gamecocks.`\
 https://nytimes.com/athletic/6583066/2025/08/30/virginia-tech-south-carolina-lanorris-sellers-how-to-watch/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/30/crosswords/connections-companion-812.html
 **Strands Sidekick No. 546**\
 `Scroll down for hints and conversation about the puzzle for Sunday, Aug. 31, 2025.`\
 https://nytimes.com/2025/08/30/crosswords/strands-sidekick-546.html
-
-**Bold NFL season predictions: Giants turn to Jaxson Dart early; Broncos win AFC West**\
-`Our beat writers shared some surprising thoughts on Daniel Jones, Brock Purdy and others after we asked for one prediction for every team.`\
-https://nytimes.com/athletic/6584122/2025/08/30/nfl-2025-season-predictions-giants-broncos-jaxson-dart/
 
