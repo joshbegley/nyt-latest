@@ -1,4 +1,8 @@
-**Utah Royals' KK Ream, 16, becomes youngest goalscorer in NWSL regular season history**\
+**Diogo Jota's Portugal No 21 shirt to be inherited by Ruben Neves**\
+`Martinez said the close relationship between Jota and Neves makes the midfielder "the ideal person to represent" the late Liverpool forward.`\
+https://nytimes.com/athletic/6585470/2025/08/30/diogo-jota-portugal-shirt-ruben-neves/
+
+**Utah Royals' KK Ream, 16, becomes youngest goalscorer in NWSL regular-season history**\
 `Ream previously earned the title of youngest player to start an NWSL match at 15 years old.`\
 https://nytimes.com/athletic/6585485/2025/08/30/utah-royals-kk-ream-youngest-goalscorer-nwsl/
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6581612/2025/08/30/nfl-second-generation-team-cmc-j
 **Bernie Sanders: Kennedy Must Resign**\
 `The health secretary is endangering the lives of American people now and into the future.`\
 https://nytimes.com/2025/08/30/opinion/bernie-sanders-robert-f-kennedy-jr-resign-hhs.html
-
-**Vax Quack Lacks Facts**\
-`This Kennedy is no profile in courage.`\
-https://nytimes.com/2025/08/30/opinion/robert-f-kennedy-jr-maha.html
 
