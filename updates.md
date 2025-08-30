@@ -1,3 +1,7 @@
+**Chris Sale isn't just an ace. There's another reason Braves are thrilled he's coming off IL**\
+`The injury might’ve been season-ending for many veterans whose teams had fallen out of postseason contention. Not for Sale.`\
+https://nytimes.com/athletic/6585209/2025/08/29/braves-chris-sale-isnt-just-an-ace-coming-off-il/
+
 **Judge Blocks Pillar of Trump’s Mass Deportation Campaign**\
 `Judge Jia M. Cobb rejected what she called “a truly startling argument” from the government that it could use a fast-track procedure to remove people arrested far from the southern border.`\
 https://nytimes.com/2025/08/29/us/politics/judge-fast-track-deportations.html
