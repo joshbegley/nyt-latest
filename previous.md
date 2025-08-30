@@ -1,3 +1,11 @@
+**College Football Playoff 2025 projections: Our model's best odds to make the bracket**\
+`Our College Football Playoff predictions model is back. Check here for regular updates on CFP and national championship odds for 2025.`\
+https://nytimes.com/athletic/6560541/2025/08/30/college-football-playoff-bracket-projections-odds/
+
+**Ohio State stifles Arch Manning, No. 1 Texas as Buckeyes win opener 14-7**\
+`No. 3 Ohio State beat No. 1 Texas 14-7 on Saturday, holding Arch Manning to 170 passing yards. Here's how it happened.`\
+https://nytimes.com/athletic/6586137/2025/08/30/ohio-state-texas-score-football-arch-manning/
+
 **Nottingham Forest return to Europe with trip to Real Betis**\
 `Nuno Espirito Santo’s side will play in European competition for the first time since 1996`\
 https://nytimes.com/athletic/6586221/2025/08/30/europa-league-nottingham-forest-real-betis/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6586101/2025/08/30/athletics-news-sprinting-100m-am
 **1989 Fleer Bill Ripken 'FF' error card: Our Sports Card of the Week**\
 `Ripken's 1989 Fleer card remains one of the most talked about sports cards of all time`\
 https://nytimes.com/athletic/6586064/2025/08/30/1989-fleer-bill-ripken-error-card/
-
-**USMNT's Tillman scores in a Leverkusen debut marred by blown lead**\
-`Malik Tillman gave Bayer Leverkusen a 2-0 lead, but Erik ten Hag's squad couldn't hold onto its lead vs. Werder Bremen`\
-https://nytimes.com/athletic/6586186/2025/08/30/malik-tillman-goal-bayer-leverkusen-debut-usmnt/
-
-**Hiker Is Found Dead in Wyoming After Being Missing for a Month**\
-`Grant Gardner’s body was found by a climbing team on Wednesday in Bighorn National Forest, a week after the authorities called off a search.`\
-https://nytimes.com/2025/08/30/us/minnesota-hiker-grant-gardner-dead-wyoming.html
 

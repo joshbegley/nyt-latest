@@ -1,3 +1,11 @@
+**College Football Playoff 2025 projections: Our model's best odds to make the bracket**\
+`Our College Football Playoff predictions model is back. Check here for regular updates on CFP and national championship odds for 2025.`\
+https://nytimes.com/athletic/6560541/2025/08/30/college-football-playoff-bracket-projections-odds/
+
+**Ohio State stifles Arch Manning, No. 1 Texas as Buckeyes win opener 14-7**\
+`No. 3 Ohio State beat No. 1 Texas 14-7 on Saturday, holding Arch Manning to 170 passing yards. Here's how it happened.`\
+https://nytimes.com/athletic/6586137/2025/08/30/ohio-state-texas-score-football-arch-manning/
+
 **Nottingham Forest return to Europe with trip to Real Betis**\
 `Nuno Espirito Santo’s side will play in European competition for the first time since 1996`\
 https://nytimes.com/athletic/6586221/2025/08/30/europa-league-nottingham-forest-real-betis/
