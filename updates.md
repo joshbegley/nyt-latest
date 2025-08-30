@@ -1,3 +1,11 @@
+**Over 15 Killed in Gaza City, One Day After Israel Ends Daily Pauses for Aid**\
+`One attack was an effort to assassinate Abu Obeida, one of Hamas’s best-known spokesmen, Israeli officials said. It was not immediately clear if that succeeded.`\
+https://nytimes.com/2025/08/30/world/middleeast/gaza-israel-deadly-strikes.html
+
+**A Man of Character**\
+`Danny J. Rooney’s debut Times puzzle never misses.`\
+https://nytimes.com/2025/08/30/crosswords/daily-puzzle-2025-08-31.html
+
 **Tulane commemorates 20th anniversary of Hurricane Katrina, 2005 team with decal-less helmets**\
 `Coach Jon Sumrall told reporters Northwestern denied Tulane's request to wear white jerseys like the 2005 squad`\
 https://nytimes.com/athletic/6586505/2025/08/30/tulane-20th-anniversary-katrina-helmets/
