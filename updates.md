@@ -1,3 +1,7 @@
+**Pro-Palestinian Protesters Raise Gaza War at the Venice Film Festival**\
+`In the days leading up to the festival, hundreds of film professionals signed an open letter demanding that the star-studded event take a stance against the crisis in Gaza.`\
+https://nytimes.com/2025/08/30/arts/gaza-protest-venice-film-festival.html
+
 **Chelsea complete signing of Garnacho from Man United**\
 `The 21-year-old has joined on a deal that will keep him at Stamford Bridge until at least 2032/`\
 https://nytimes.com/athletic/6583746/2025/08/30/chelsea-sign-garnacho-confirmed-transfer-news/
