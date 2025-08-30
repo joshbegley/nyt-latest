@@ -1,3 +1,7 @@
+**3 Dead After Jumping From Building Protesters Set on Fire, Official Says**\
+`The student-led demonstrations in Indonesia are against President Prabowo Subianto’s economic policies and fatal police brutality.`\
+https://nytimes.com/2025/08/30/world/asia/indonesia-protests-dead-prabowo-subianto.html
+
 **Why Bayern Munich agreeing to sign Nicolas Jackson makes a lot of sense**\
 `The Germans brought together a late solution for Jackson - and it makes sense given such a narrow pool of players that fit their needs.`\
 https://nytimes.com/athletic/6578447/2025/08/30/bayern-munich-nicolas-jackson-chelsea-transfer/
