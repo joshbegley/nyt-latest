@@ -1,3 +1,11 @@
+**What does Ipswich's Championship-record signing Egeli mean for the second tier?**\
+`The 19-year-old has joined from FC Nordsjaelland for £17.5m.`\
+https://nytimes.com/athletic/6585504/2025/08/30/ipswich-championship-transfer-record-sindre-walle-egeli/
+
+**Chelsea 2 Fulham 0: Two VAR controversies benefit Maresca's side, impact of Delap injury**\
+`Chelsea beat Fulham 2-0 in the Premier League after two controversial VAR decisions. Simon Johnson breaks down the main talking points...`\
+https://nytimes.com/athletic/6581412/2025/08/30/chelsea-fulham-premier-league-king-var-delap-injury/
+
 **Strasbourg expected to agree deal to sign Enciso from Brighton**\
 `Enciso will join Strasbourg on a permanent basis and is set to sign a five-year contract.
 `\
@@ -30,12 +38,4 @@ https://nytimes.com/2025/08/30/world/asia/thailand-paetongtarn-shinawatra-thaksi
 **Rivalry renewed: How to watch Notre Dame at Miami in Sunday's top-10 Week 1 showcase**\
 `A long-standing rivalry with cultural and institutional strife gets a new look on Sunday night.`\
 https://nytimes.com/athletic/6583181/2025/08/30/notre-dame-miami-how-to-watch-sunday/
-
-**Yankees' offense could power October run and mask their flaws: 'This is a super team'**\
-`The Yankees are on track to have four players hit at least 30 home runs in the same season for the first time in franchise history. `\
-https://nytimes.com/athletic/6585210/2025/08/30/yankees-offense-trent-grisham-grand-slam/
-
-**NFL All-Second-Gen Team: Surtain, Burrow, McCaffrey headline star-studded roster**\
-`Sorry, Shedeur Sanders, but you aren't cracking the starting lineup here either in our all-star team of second-generation players.`\
-https://nytimes.com/athletic/6581612/2025/08/30/nfl-second-generation-team-cmc-joe-burrow/
 
