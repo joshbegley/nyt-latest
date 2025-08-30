@@ -1,3 +1,7 @@
+**The Pulse: Overreaction Saturday is officially here**\
+`Welcome to The Pulse, The Athletic's daily sports newsletter.`\
+https://nytimes.com/athletic/6585261/2025/08/30/prepare-to-overreact-to-college-football-this-weekend-plus-u-s-open-stunners/
+
 **What does Ipswich's Championship-record signing Egeli mean for the second tier?**\
 `The 19-year-old has joined from FC Nordsjaelland for £17.5m.`\
 https://nytimes.com/athletic/6585504/2025/08/30/ipswich-championship-transfer-record-sindre-walle-egeli/
@@ -34,8 +38,4 @@ https://nytimes.com/2025/08/30/us/marin-lately-satire.html
 **Behind Thai Premier’s Dismissal, Unraveling of an Uneasy Alliance**\
 `Thaksin Shinawatra had struck a grand bargain with Thailand’s establishment, analysts say, that allowed his daughter to ascend to the prime minister’s job.`\
 https://nytimes.com/2025/08/30/world/asia/thailand-paetongtarn-shinawatra-thaksin.html
-
-**Rivalry renewed: How to watch Notre Dame at Miami in Sunday's top-10 Week 1 showcase**\
-`A long-standing rivalry with cultural and institutional strife gets a new look on Sunday night.`\
-https://nytimes.com/athletic/6583181/2025/08/30/notre-dame-miami-how-to-watch-sunday/
 

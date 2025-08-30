@@ -1,3 +1,12 @@
+**The Pulse: Overreaction Saturday is officially here**\
+`Welcome to The Pulse, The Athletic's daily sports newsletter.`\
+https://nytimes.com/athletic/6585261/2025/08/30/prepare-to-overreact-to-college-football-this-weekend-plus-u-s-open-stunners/
+
+**Strasbourg expected to agree deal to sign Enciso from Brighton**\
+`Enciso will join Strasbourg on a permanent basis and is set to sign a five-year contract.
+`\
+https://nytimes.com/athletic/6585023/2025/08/30/julio-enciso-strasbourg-brighton-transfer/
+
 **What does Ipswich's Championship-record signing Egeli mean for the second tier?**\
 `The 19-year-old has joined from FC Nordsjaelland for £17.5m.`\
 https://nytimes.com/athletic/6585504/2025/08/30/ipswich-championship-transfer-record-sindre-walle-egeli/
