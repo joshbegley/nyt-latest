@@ -1,3 +1,7 @@
+**What do you think of Matt Patricia now? Ohio State win a statement for its new DC**\
+`His coaching career all but written off a year ago, Patricia led Ohio State's defense to a dominant outing vs. Arch Manning and Texas.`\
+https://nytimes.com/athletic/6586597/2025/08/30/matt-patricia-ohio-state-texas-arch-manning/
+
 **Florida State surprises Alabama, sends Crimson Tide to first season-opening loss since 2001**\
 `It was a shocking win for a Florida State team that went 2-10 last year, and just as shocking a loss for an Alabama team with Playoff hopes.`\
 https://nytimes.com/athletic/6586553/2025/08/30/alabama-florida-state-takeaways-tommy-castellanos/

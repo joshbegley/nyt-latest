@@ -1,3 +1,7 @@
+**What do you think of Matt Patricia now? Ohio State win a statement for its new DC**\
+`His coaching career all but written off a year ago, Patricia led Ohio State's defense to a dominant outing vs. Arch Manning and Texas.`\
+https://nytimes.com/athletic/6586597/2025/08/30/matt-patricia-ohio-state-texas-arch-manning/
+
 **Florida State surprises Alabama, sends Crimson Tide to first season-opening loss since 2001**\
 `It was a shocking win for a Florida State team that went 2-10 last year, and just as shocking a loss for an Alabama team with Playoff hopes.`\
 https://nytimes.com/athletic/6586553/2025/08/30/alabama-florida-state-takeaways-tommy-castellanos/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6585983/2025/08/30/everton-transfer-news-rangers-yo
 **Xi Uses Summit, Parade and History to Flaunt China’s Global Pull**\
 `With the leaders of Russia and India visiting, China’s president will show how he can use statecraft, military might and history to push for global influence.`\
 https://nytimes.com/2025/08/30/world/asia/xi-putin-modi-china-summit.html
-
-**FIBA bans fan for racist abuse toward German captain Dennis Schröder**\
-`Schröder was subjected to "monkey noises from some Lithuanian fans,” German Basketball Federation President Ingo Weiss said.`\
-https://nytimes.com/athletic/6586474/2025/08/30/dennis-schroder-racial-abuse-eurobasket/
 
