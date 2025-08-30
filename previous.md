@@ -1,3 +1,15 @@
+**Trump Officials Move to Fire Most Voice of America Journalists**\
+`The layoffs set up a potential battle with a federal judge who blocked previous efforts by Kari Lake, a fierce Trump ally, to restructure the agency.`\
+https://nytimes.com/2025/08/29/us/politics/voice-of-america-layoffs-kari-lake-trump.html
+
+**Colorado starts season with 27-20 loss to Georgia Tech**\
+`Colorado’s opener officially ended an offseason filled with plenty of action and alarm.`\
+https://nytimes.com/athletic/6585254/2025/08/29/colorado-georgia-tech-deion-sanders/
+
+**FCS program Tarleton State takes down Army in double overtime at West Point**\
+`Tarleton State senior kicker Brad Larson connected on a 37-yard game-winning field goal in the second OT, after Army missed a 35-yarder.`\
+https://nytimes.com/athletic/6585256/2025/08/29/army-football-upset-fcs-tarleton-state/
+
 **What Packers should expect from Micah Parsons in Week 1, other takeaways from introduction**\
 `The three-time All Pro spoke with reporters at Lambeau Field for the first time Friday night, nine days before playing the Lions.`\
 https://nytimes.com/athletic/6585213/2025/08/29/packers-expectations-micah-parsons-week-1-takeaways/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/08/29/us/immigration-guatemala-children.html
 **Micah Parsons to wear No. 1 as he starts fresh in Green Bay**\
 `Parsons was a four-time Pro Bowler, three-time All-Pro, recording 52.5 sacks, nine forced fumbles and four fumble recoveries in Dallas.`\
 https://nytimes.com/athletic/6585141/2025/08/29/micah-parsons-number-1-green-bay-packers-cowboys/
-
-**Tommy John surgery recommended for Giants All-Star closer Randy Rodríguez**\
-`The hard-throwing righty, who became San Francisco's closer in late July, was told by two doctors that he would need the procedure.`\
-https://nytimes.com/athletic/6585080/2025/08/29/sf-giants-randy-rodriguez-tommy-john-surgery/
-
-**How FEMA Changed in the 20 Years After Katrina**\
-`Twenty years after Hurricane Katrina, is the federal government letting go of the lessons it learned? Christopher Flavelle, a New York Times reporter covering how President Trump is transforming the government, explains why FEMA employees are so worried about how the U.`\
-https://nytimes.com/video/us/100000010364535/how-fema-changed-in-the-20-years-after-katrina.html
-
-**Trump Administration Weighs Having Military Lawyers Work as Immigration Judges**\
-`No final decision has been made, but the proposal comes as President Trump increasingly uses the military in various aspects of domestic life.`\
-https://nytimes.com/2025/08/29/us/politics/military-lawyers-immigration-judges.html
 

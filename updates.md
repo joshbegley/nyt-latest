@@ -1,3 +1,15 @@
+**Trump Officials Move to Fire Most Voice of America Journalists**\
+`The layoffs set up a potential battle with a federal judge who blocked previous efforts by Kari Lake, a fierce Trump ally, to restructure the agency.`\
+https://nytimes.com/2025/08/29/us/politics/voice-of-america-layoffs-kari-lake-trump.html
+
+**Colorado starts season with 27-20 loss to Georgia Tech**\
+`Colorado’s opener officially ended an offseason filled with plenty of action and alarm.`\
+https://nytimes.com/athletic/6585254/2025/08/29/colorado-georgia-tech-deion-sanders/
+
+**FCS program Tarleton State takes down Army in double overtime at West Point**\
+`Tarleton State senior kicker Brad Larson connected on a 37-yard game-winning field goal in the second OT, after Army missed a 35-yarder.`\
+https://nytimes.com/athletic/6585256/2025/08/29/army-football-upset-fcs-tarleton-state/
+
 **What Packers should expect from Micah Parsons in Week 1, other takeaways from introduction**\
 `The three-time All Pro spoke with reporters at Lambeau Field for the first time Friday night, nine days before playing the Lions.`\
 https://nytimes.com/athletic/6585213/2025/08/29/packers-expectations-micah-parsons-week-1-takeaways/
