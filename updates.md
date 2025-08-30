@@ -1,3 +1,7 @@
+**Bayern Munich reach agreement to sign Jackson**\
+`The deal is a season-long loan with an option to buy, worth a total package of €80million (£69m; $93.5m).`\
+https://nytimes.com/athletic/6487731/2025/08/30/nicolas-jackson-chelsea-bayern-munich-transfer/
+
 **Liverpool v Arsenal Premier League Preview: Kick-off time, analysis and predictions**\
 `All you need to know about Liverpool's upcoming clash with fellow title-hopefuls Arsenal at Anfield`\
 https://nytimes.com/athletic/6584187/2025/08/30/liverpool-arsenal-preview-arne-slot-mikel-arteta/

@@ -1,3 +1,7 @@
+**Bayern Munich reach agreement to sign Jackson**\
+`The deal is a season-long loan with an option to buy, worth a total package of €80million (£69m; $93.5m).`\
+https://nytimes.com/athletic/6487731/2025/08/30/nicolas-jackson-chelsea-bayern-munich-transfer/
+
 **Liverpool v Arsenal Premier League Preview: Kick-off time, analysis and predictions**\
 `All you need to know about Liverpool's upcoming clash with fellow title-hopefuls Arsenal at Anfield`\
 https://nytimes.com/athletic/6584187/2025/08/30/liverpool-arsenal-preview-arne-slot-mikel-arteta/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/30/world/asia/indonesia-protests-dead-prabowo-subian
 **The New York Times in Print for Saturday, Aug. 30, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/08/30/todays-new-york-times
-
-**What we're hearing after the Cubs' trade deadline: Cade Horton, Matt Shaw, Michael Soroka**\
-`Club officials say rival teams constantly asked about Horton and Shaw, who are already key contributors to a real playoff contender.`\
-https://nytimes.com/athletic/6585320/2025/08/30/cubs-trade-deadline-cade-horton-matt-shaw-michael-soroka/
 
