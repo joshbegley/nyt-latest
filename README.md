@@ -1,3 +1,7 @@
+**Liverpool's Cody Gakpo signs new long-term contract**\
+`The club announced that the 26-year-old has put pen to paper to commit his future to Liverpool.`\
+https://nytimes.com/athletic/6585998/2025/08/30/liverpool-gakpo-new-contract-news/
+
 **Liverpool submit official proposal to sign Crystal Palace's Guehi**\
 `The offer is worth £35million flat, with no further payments, and Palace are yet to issue a response.`\
 https://nytimes.com/athletic/6549214/2025/08/30/marc-guehi-liverpool-transfer-news/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/30/opinion/trump-visual-symbols-authoritarian.html
 **Chelsea inform Bayern they will not proceed with Jackson loan after Delap injury**\
 `Delap sustained a hamstring injury during Saturday's victory over Fulham.`\
 https://nytimes.com/athletic/6585836/2025/08/30/nicolas-jackson-bayern-loan-chelsea-delap-injury/
-
-**QB Jake Retzlaff will start for Tulane after transferring from BYU**\
-`Entering Tulane camp, Retzlaff was embroiled in a competition with former Northwestern and Iowa quarterback Brendan Sullivan.`\
-https://nytimes.com/athletic/6585723/2025/08/30/qb-jake-retzlaff-tulane-byu/
 
