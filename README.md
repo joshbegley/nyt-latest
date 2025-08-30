@@ -1,3 +1,7 @@
+**Hudson-Odoi signs new three-year deal with Forest**\
+`The highly regarded winger’s previous deal was due to expire at the end of the season.`\
+https://nytimes.com/athletic/6586233/2025/08/30/nottingham-forest-hudson-odoi-contract-new-deal/
+
 **USMNT's Josh Sargent, Haji Wright score again, top Championship goal charts**\
 `Sargent is the outright top scorer in the Championship this season with five goals, while Wright’s four goals have him tied second.`\
 https://nytimes.com/athletic/6586153/2025/08/30/josh-sargent-haji-wright-goals-championship-usmnt-video/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6584522/2025/08/30/alejandro-garnacho-chelsea-trans
 **Teenager arrested outside Stamford Bridge on suspicion of possessing imitation firearm**\
 `A post that was circulated on social media showed someone being detained by officers outside the stadium in west London.`\
 https://nytimes.com/athletic/6586078/2025/08/30/chelsea-stamford-bridge-arrest-frearm-police/
-
-**Pro-Palestinian Protesters Raise Gaza War at the Venice Film Festival**\
-`In the days leading up to the festival, hundreds of film professionals signed an open letter demanding that the star-studded event take a stance against the crisis in Gaza.`\
-https://nytimes.com/2025/08/30/arts/gaza-protest-venice-film-festival.html
 
