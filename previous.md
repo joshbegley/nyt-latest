@@ -1,3 +1,7 @@
+**Heat Setting, Perhaps**\
+`Maddy Ziegler makes a torrid Times puzzle debut.`\
+https://nytimes.com/2025/08/29/crosswords/daily-puzzle-2025-08-30.html
+
 **Jonah Tong excels in Mets debut with 6 strikeouts in 5 innings**\
 `New York's newest righty's first outing ended with a yell after he ended the fifth inning with a called third strike.`\
 https://nytimes.com/athletic/6585138/2025/08/29/jonah-tong-mets-debut/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6584871/2025/08/29/padres-xander-bogaerts-injury/
 **Read the appeals court ruling on Trump’s tariffs.**\
 `An appeals court ruled on Friday that many of President Trump’s most punishing tariffs are illegal, delivering a major new setback to the administration’s global trade war.`\
 https://nytimes.com/interactive/2025/08/29/us/appeals-court-trump-tariffs-ruling.html
-
-**How the Trump-Kennedy Alliance Is Pushing the Boundaries of Public Health**\
-`The mutually beneficial relationship between President Trump and Robert F. Kennedy Jr. is based on a striking alignment of some of their views.`\
-https://nytimes.com/2025/08/29/us/politics/trump-kennedy-alliance-vaccines.html
 

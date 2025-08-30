@@ -1,3 +1,7 @@
+**Heat Setting, Perhaps**\
+`Maddy Ziegler makes a torrid Times puzzle debut.`\
+https://nytimes.com/2025/08/29/crosswords/daily-puzzle-2025-08-30.html
+
 **Jonah Tong excels in Mets debut with 6 strikeouts in 5 innings**\
 `New York's newest righty's first outing ended with a yell after he ended the fifth inning with a called third strike.`\
 https://nytimes.com/athletic/6585138/2025/08/29/jonah-tong-mets-debut/
