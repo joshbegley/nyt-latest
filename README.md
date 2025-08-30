@@ -1,3 +1,7 @@
+**The Visual Language of Trump’s Authoritarianism**\
+`It’s an unreal spectacle.`\
+https://nytimes.com/2025/08/30/opinion/trump-visual-symbols-authoritarian.html
+
 **Chelsea inform Bayern they will not proceed with Jackson loan after Delap injury**\
 `Delap sustained a hamstring injury during Saturday's victory over Fulham.`\
 https://nytimes.com/athletic/6585836/2025/08/30/nicolas-jackson-bayern-loan-chelsea-delap-injury/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6585593/2025/08/30/dutch-grand-prix-qualifying-resu
 **From Cracker Barrel to Sydney Sweeney, Trump Has an Opinion to Share**\
 `In his second term, President Trump is using his power to reshape American culture, not just American policy. He has threatened consequences for many who disagree.`\
 https://nytimes.com/2025/08/30/us/politics/cracker-barrel-sweeney-trump.html
-
-**Giants score 15 runs, win sixth straight — but is this surge too little, too late?**\
-`It's hard not to get fooled when they're putting up double-digit scores and in the midst of their third six-game win streak.`\
-https://nytimes.com/athletic/6585362/2025/08/30/giants-orioles-15-runs-win-streak/
 
