@@ -1,5 +1,9 @@
-**Karolina Muchová says former partner 'at places he shouldn't be' caused U.S. Open distress**\
-`Muchová gestured toward the stand before wiping away tears during her third-round win over Sorana Cîrstea.`\
+**A Morbid Memory Lingers 20 Years After Hurricane Katrina**\
+`Of all the disorder in New Orleans after the storm, a Times reporter remembers the corpse on Union Street most of all.`\
+https://nytimes.com/2025/08/30/insider/katrina-new-orleans.html
+
+**Karolína Muchová says former partner 'at places he shouldn't be' caused U.S. Open distress**\
+`Muchová gestured toward the stand before wiping away tears during her second-round win over Sorana Cîrstea.`\
 https://nytimes.com/athletic/6586374/2025/08/30/karolina-muchova-us-open-ex-boyfriend-match/
 
 **USMNT's Mauricio Pochettino joins Fox's Big Noon Kickoff, talks 2026 World Cup prep**\
@@ -22,7 +26,7 @@ https://nytimes.com/athletic/6585917/2025/08/30/arch-manning-texas-ohio-state-dr
 `Our College Football Playoff predictions model is back. Check here for regular updates on CFP and national championship odds for 2025.`\
 https://nytimes.com/athletic/6560541/2025/08/30/college-football-playoff-bracket-projections-odds/
 
-**Ohio State stifles Arch Manning, No. 1 Texas as Buckeyes win opener 14-7**\
+**Everyone still chasing Ohio State as Buckeyes topple Arch Manning, No. 1 Texas**\
 `No. 3 Ohio State beat No. 1 Texas 14-7 on Saturday, holding Arch Manning to 170 passing yards. Here's how it happened.`\
 https://nytimes.com/athletic/6586137/2025/08/30/ohio-state-texas-score-football-arch-manning/
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6586221/2025/08/30/europa-league-nottingham-forest-
 **Man United Women continue quest for Champions League journey after 1-0 Hammarby win**\
 `Elisabeth Terland's goal just after the hour mark was enough to earn United a 1-0 win in Stockholm.`\
 https://nytimes.com/athletic/6586252/2025/08/30/man-united-women-champions-league-hammarby-qualification/
-
-**Hudson-Odoi signs new three-year deal with Forest**\
-`The highly regarded winger’s previous deal was due to expire at the end of the season.`\
-https://nytimes.com/athletic/6586233/2025/08/30/nottingham-forest-hudson-odoi-contract-new-deal/
 
