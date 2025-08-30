@@ -1,3 +1,11 @@
+**Over 15 Killed in Gaza City, One Day After Israel Ends Daily Pauses for Aid**\
+`One attack was an effort to assassinate Abu Obeida, one of Hamas’s best-known spokesmen, Israeli officials said. It was not immediately clear if that succeeded.`\
+https://nytimes.com/2025/08/30/world/middleeast/gaza-israel-deadly-strikes.html
+
+**A Man of Character**\
+`Danny J. Rooney’s debut Times puzzle never misses.`\
+https://nytimes.com/2025/08/30/crosswords/daily-puzzle-2025-08-31.html
+
 **Tulane commemorates 20th anniversary of Hurricane Katrina, 2005 team with decal-less helmets**\
 `Coach Jon Sumrall told reporters Northwestern denied Tulane's request to wear white jerseys like the 2005 squad`\
 https://nytimes.com/athletic/6586505/2025/08/30/tulane-20th-anniversary-katrina-helmets/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6586374/2025/08/30/karolina-muchova-us-open-ex-boyf
 **USMNT's Mauricio Pochettino joins Fox's Big Noon Kickoff, talks 2026 World Cup prep**\
 `Pochettino led an O-H, I-O chant with the Ohio State fans.`\
 https://nytimes.com/athletic/6586337/2025/08/30/usmnts-mauricio-pochettino-world-cup-prep/
-
-**No sugarcoating it — Arch Manning underwhelmed in Texas' loss at Ohio State**\
-`For all the hype, I would not have predicted Manning's best performance Saturday to come in a glasses ad.`\
-https://nytimes.com/athletic/6586378/2025/08/30/arch-manning-underwhelming-texas-ohio-state/
-
-**Jelena Ostapenko apologizes for Taylor Townsend 'no education' comments**\
-`The Latvian said that her comment referred only to tennis etiquette in a statement that did not name or acknowledge Townsend.`\
-https://nytimes.com/athletic/6586320/2025/08/30/elena-ostapenko-apology-taylor-townsend-us-open/
 

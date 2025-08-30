@@ -1,3 +1,7 @@
+**Tulane commemorates 20th anniversary of Hurricane Katrina, 2005 team with decal-less helmets**\
+`Coach Jon Sumrall told reporters Northwestern denied Tulane's request to wear white jerseys like the 2005 squad`\
+https://nytimes.com/athletic/6586505/2025/08/30/tulane-20th-anniversary-katrina-helmets/
+
 **Man United's Cunha withdraws from Brazil squad due to injury**\
 `The 26-year-old signalled to the bench that he needed to come off after clutching a hamstring around the half-hour mark.`\
 https://nytimes.com/athletic/6586529/2025/08/30/man-uinted-news-cunha-injury-brazil-burnley/
