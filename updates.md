@@ -1,3 +1,7 @@
+**Transfers TLDR: Alejandro Garnacho to Chelsea - all you need to know**\
+`The Argentina winger has moved from Manchester United to Stamford Bridge for £40m - we break down the deal`\
+https://nytimes.com/athletic/6584522/2025/08/30/alejandro-garnacho-chelsea-transfer-analysis/
+
 **Teenager arrested outside Stamford Bridge on suspicion of possessing imitation firearm**\
 `A post that was circulated on social media showed someone being detained by officers outside the stadium in west London.`\
 https://nytimes.com/athletic/6586078/2025/08/30/chelsea-stamford-bridge-arrest-frearm-police/

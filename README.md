@@ -1,3 +1,27 @@
+**Protests Grow in Indonesia After Deadly Clash With Police**\
+`Demonstrations opposing housing allowances for Indonesian lawmakers turned into outrage against police brutality after the death of a motorcycle taxi driver during a protest.`\
+https://nytimes.com/video/world/asia/100000010370545/indonesia-protests-death.html
+
+**The Briefing: Leeds 0 Newcastle 0 - Howe's odd kick-offs and why was anthem booed?**\
+`The big talking points analysed from Saturday's Premier League game at Elland Road`\
+https://nytimes.com/athletic/6581419/2025/08/30/leeds-newcastle-result-score-analysis/
+
+**Amo-Dadzie, 33, ties Christie to become joint second-fastest British man**\
+`Linford Christie's time, set at the 1993 World Championships, had stood as the British record for 30 years.`\
+https://nytimes.com/athletic/6586101/2025/08/30/athletics-news-sprinting-100m-amo-dadzie/
+
+**1989 Fleer Bill Ripken 'FF' error card: Our Sports Card of the Week**\
+`Ripken's 1989 Fleer card remains one of the most talked about sports cards of all time`\
+https://nytimes.com/athletic/6586064/2025/08/30/1989-fleer-bill-ripken-error-card/
+
+**USMNT's Tillman scores in a Leverkusen debut marred by blown lead**\
+`Malik Tillman gave Bayer Leverkusen a 2-0 lead, but Erik ten Hag's squad couldn't hold onto its lead vs. Werder Bremen`\
+https://nytimes.com/athletic/6586186/2025/08/30/malik-tillman-goal-bayer-leverkusen-debut-usmnt/
+
+**Hiker Is Found Dead in Wyoming After Being Missing for a Month**\
+`Grant Gardner’s body was found by a climbing team on Wednesday in Bighorn National Forest, a week after the authorities called off a search.`\
+https://nytimes.com/2025/08/30/us/minnesota-hiker-grant-gardner-dead-wyoming.html
+
 **Transfers TLDR: Alejandro Garnacho to Chelsea - all you need to know**\
 `The Argentina winger has moved from Manchester United to Stamford Bridge for £40m - we break down the deal`\
 https://nytimes.com/athletic/6584522/2025/08/30/alejandro-garnacho-chelsea-transfer-analysis/
@@ -13,28 +37,4 @@ https://nytimes.com/2025/08/30/arts/gaza-protest-venice-film-festival.html
 **Chelsea complete signing of Garnacho from Man United**\
 `The 21-year-old has joined on a deal that will keep him at Stamford Bridge until at least 2032/`\
 https://nytimes.com/athletic/6583746/2025/08/30/chelsea-sign-garnacho-confirmed-transfer-news/
-
-**Coco Gauff gets an ordinary U.S. Open win after a surreal and emotional start to her tournament**\
-`After two challenging, surreal and at-times emotional U.S. Open matches, Gauff eased through against the No. 28 seed.`\
-https://nytimes.com/athletic/6586030/2025/08/30/coco-gauff-us-open-results-frech/
-
-**Carol Saline, 86, Dies; Journalist With a Story to Tell, About Her Dying**\
-`Terminally ill, she contacted obituary reporters looking to be interviewed about her life and imminent death — to be “at her own wake,” a colleague said.`\
-https://nytimes.com/2025/08/30/business/media/carol-saline-dead.html
-
-**Hunter Renfrow's comeback story continues, Panthers sign veteran WR to active roster**\
-`Renfrow initially signed with the Panthers in April after sitting out last season following an an ulcerative colitis diagnosis`\
-https://nytimes.com/athletic/6585952/2025/08/30/hunter-renfrow-carolina-panthers-wide-receivers/
-
-**Overlooked No More: Tina Modotti, Whose Life Was as Striking as Her Photographs**\
-`Her work is now in museums, but in the early 20th century, it was obscured by her romantic relationships with prominent men, among them her mentor, Edward Weston.`\
-https://nytimes.com/2025/08/30/obituaries/tina-modotti-overlooked.html
-
-**Nottingham Forest renew interest in Botafogo full-back Cuiabano**\
-`Cuiabano could become one of two further Forest additions from Botafogo before the summer window closes.`\
-https://nytimes.com/athletic/6585958/2025/08/30/cuiabano-nottingham-forest-transfer-interest/
-
-**Liverpool's Cody Gakpo signs new long-term contract**\
-`The club announced that the 26-year-old has put pen to paper to commit his future to Liverpool.`\
-https://nytimes.com/athletic/6585998/2025/08/30/liverpool-gakpo-new-contract-news/
 
