@@ -1,3 +1,7 @@
+**Arch Manning's coming out party spoiled by tough Ohio State D: 'This is one chapter'**\
+`Manning, making his first road start, wasn't shy about taking the blame for his underwhelming performance at Ohio State. `\
+https://nytimes.com/athletic/6586357/2025/08/30/texas-arch-manning-ohio-state-spoiled-start/
+
 **Shilo Sanders fined for punch thrown in Buccaneers preseason finale: Source**\
 `Sanders was ejected from the Bucs' preseason finale for throwing a punch at Bills tight end Zach Davidson.`\
 https://nytimes.com/athletic/6586460/2025/08/30/shilo-sanders-fine-nfl-tampa-bay-buccaneers/
