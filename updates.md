@@ -1,3 +1,7 @@
+**Chelsea's Delap could miss up to eight weeks with hamstring injury - Maresca**\
+`The 22-year-old pulled up as he looked to run onto a Marc Cucurella pass, immediately signalling towards his hamstring.`\
+https://nytimes.com/athletic/6585783/2025/08/30/chelsea-news-delap-injury-hamstring/
+
 **Houthis Say Prime Minister Was Killed in Israeli Attack**\
 `Ahmed al-Rahawi had led the Houthi cabinet in Yemen since 2024. His killing is unlikely to halt the Iranian-backed group’s missile attacks on Israel.`\
 https://nytimes.com/2025/08/30/world/middleeast/houthi-prime-minister-killed-israel.html
