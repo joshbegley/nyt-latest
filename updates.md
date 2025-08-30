@@ -1,3 +1,11 @@
+**Taylor Townsend stuns Mirra Andreeva at U.S. Open with help of Arthur Ashe crowd**\
+`A wave of home support and some tactical inspiration from Townsend helped to bridge a gap of 134 WTA Tour ranking places `\
+https://nytimes.com/athletic/6585266/2025/08/29/taylor-townsend-us-open-andreeva-result/
+
+**College Football Playoff 2025 projections: Our model's best odds to make the bracket**\
+`Our College Football Playoff predictions model is back. Check here for regular updates on CFP and national championship odds for 2025.`\
+https://nytimes.com/athletic/6560541/2025/08/29/college-football-playoff-bracket-projections-odds/
+
 **Trump Officials Move to Fire Most Voice of America Journalists**\
 `The layoffs set up a potential battle with a federal judge who blocked previous efforts by Kari Lake, a fierce Trump ally, to restructure the agency.`\
 https://nytimes.com/2025/08/29/us/politics/voice-of-america-layoffs-kari-lake-trump.html

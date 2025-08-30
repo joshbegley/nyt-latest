@@ -1,3 +1,11 @@
+**Taylor Townsend stuns Mirra Andreeva at U.S. Open with help of Arthur Ashe crowd**\
+`A wave of home support and some tactical inspiration from Townsend helped to bridge a gap of 134 WTA Tour ranking places `\
+https://nytimes.com/athletic/6585266/2025/08/29/taylor-townsend-us-open-andreeva-result/
+
+**College Football Playoff 2025 projections: Our model's best odds to make the bracket**\
+`Our College Football Playoff predictions model is back. Check here for regular updates on CFP and national championship odds for 2025.`\
+https://nytimes.com/athletic/6560541/2025/08/29/college-football-playoff-bracket-projections-odds/
+
 **Trump Officials Move to Fire Most Voice of America Journalists**\
 `The layoffs set up a potential battle with a federal judge who blocked previous efforts by Kari Lake, a fierce Trump ally, to restructure the agency.`\
 https://nytimes.com/2025/08/29/us/politics/voice-of-america-layoffs-kari-lake-trump.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/08/29/crosswords/daily-puzzle-2025-08-30.html
 **Jonah Tong excels in Mets debut with 6 strikeouts in 5 innings**\
 `New York's newest righty's first outing ended with a yell after he ended the fifth inning with a called third strike.`\
 https://nytimes.com/athletic/6585138/2025/08/29/jonah-tong-mets-debut/
-
-**U.S. Is Working With Guatemala to Return Hundreds of Children**\
-`The children, who crossed the border as unaccompanied minors, are being kept in shelters. Experts said the move raised troubling legal questions.`\
-https://nytimes.com/2025/08/29/us/immigration-guatemala-children.html
-
-**Micah Parsons to wear No. 1 as he starts fresh in Green Bay**\
-`Parsons was a four-time Pro Bowler, three-time All-Pro, recording 52.5 sacks, nine forced fumbles and four fumble recoveries in Dallas.`\
-https://nytimes.com/athletic/6585141/2025/08/29/micah-parsons-number-1-green-bay-packers-cowboys/
 
