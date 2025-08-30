@@ -1,3 +1,11 @@
+**Following record moves for Ovalle and Smith, who will be the next £1m women's player?**\
+`The women's transfer record is now more than £1m. These are the players who could hit that benchmark with their next move`\
+https://nytimes.com/athletic/6551057/2025/08/30/next-record-womens-soccer-transfer/
+
+**3 Killed as Protests in Indonesia Spread Beyond Jakarta**\
+`The student-led demonstrations are against President Prabowo Subianto’s economic policies and fatal police brutality.`\
+https://nytimes.com/2025/08/30/world/asia/indonesia-protests-dead-prabowo-subianto.html
+
 **The New York Times in Print for Saturday, Aug. 30, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/08/30/todays-new-york-times
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6583648/2025/08/30/nick-woltemade-newcastle-transfe
 **Payton Tolle has 'electric' debut, a good sign for Red Sox's revamped pitching infrastructure**\
 `The 22-year-old's first start didn't lead to a win, but the team will see his development and performance on Friday as a huge victory.`\
 https://nytimes.com/athletic/6585182/2025/08/30/payton-tolle-debut-red-sox-pitching-infrastructure/
-
-**What happened when European football's great and good met in one room**\
-`Agents, executives and footballing legends all took advantage of being in the same location during UEFA's competition draws in Monaco `\
-https://nytimes.com/athletic/6584053/2025/08/30/champions-league-uefa-monaco-executives/
-
-**What it's like to play against a 15 or 16-year-old Premier League wonderkid**\
-`Max Dowman and Rio Ngumoha have broken through the barrier already this season facing opponents twice their age and more`\
-https://nytimes.com/athletic/6584105/2025/08/30/premier-league-wonderkid-what-is-it-like/
 
