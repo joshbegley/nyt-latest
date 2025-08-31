@@ -1,3 +1,15 @@
+**Thirty-six hours and three main objectives for Fosun to build bridges with critical Wolves fans**\
+`Wolves are facing a critical period before the transfer window shuts as they try to build and maintain a squad to compete in the top flight`\
+https://nytimes.com/athletic/6586154/2025/08/31/wolves-fosun-fans-strand-larsen-transfers/
+
+**A 'smash and grab' win against Millwall adds to Wrexham's mixed first month in Championship**\
+`It's been a month back in the Championship for Wrexham. So how are they shaping up?`\
+https://nytimes.com/athletic/6575648/2025/08/31/millwall-wrexham-championship-result-analysed/
+
+**Farke, Leeds United and a very understated transfer ultimatum**\
+`The Leeds manager wants attacking quality adding before the transfer deadline. Will he get it?`\
+https://nytimes.com/athletic/6586552/2025/08/31/leeds-united-transfers-daniel-farke/
+
 **After an unbeaten domestic campaign, how do Chelsea improve perfection?**\
 `Chelsea's 4-1 win over AC Milan on Saturday showed how high the bar is set for Sonia Bompastor's side`\
 https://nytimes.com/athletic/6586205/2025/08/31/chelsea-women-perfection-beever-jones/
