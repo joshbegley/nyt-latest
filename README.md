@@ -1,3 +1,7 @@
+**Chelsea in talks with Sunderland over Guiu recall**\
+`The talks follow the injury sustained by Chelsea striker Liam Delap during Saturday’s 2-0 win over Fulham.`\
+https://nytimes.com/athletic/6588074/2025/08/31/marc-guiu-chelsea-sunderland/
+
 **'No deal' in place to sell Guehi, says Glasner**\
 `"(I understand it) from a financial perspective. It's a tempting situation. It's a challenging situation," Glasner added.`\
 https://nytimes.com/athletic/6588083/2025/08/31/marc-guehi-transfer-palace-liverpool/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6587440/2025/08/31/red-sox-aroldis-chapman-contract
 **China Shows Off Its Power**\
 `Xi Jinping is using a summit with leaders like Narendra Modi and Vladimir Putin as an opportunity to pull countries away from the U.S.`\
 https://nytimes.com/2025/08/31/briefing/xi-modi-putin-summit-tianjin.html
-
-**What this picture says about Jack Grealish and his meaning to Everton**\
-`The on-loan England international is a beacon of hope, as well as a superb player, in a team that looks re-energised`\
-https://nytimes.com/athletic/6586329/2025/08/31/jack-grealish-everton-transfer-impact/
 
