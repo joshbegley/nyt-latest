@@ -1,3 +1,7 @@
+**Jeremy Lin Retires After 15 Years That Included ‘Linsanity’ With the Knicks**\
+`The journeyman played for eight N.B.A. teams and won one championship. But he is best known for a brief stretch on the Knicks where he electrified fans and the nation.`\
+https://nytimes.com/2025/08/31/sports/basketball/jeremy-lin-retires-linsanity-knicks.html
+
 **Happiness Is a Big, Ugly Sofa**\
 `Buying a new, adult couch in a space of my own felt monumental.`\
 https://nytimes.com/2025/08/31/opinion/sofa-couch-adult-purchase-home.html

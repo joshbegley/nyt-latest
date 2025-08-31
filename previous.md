@@ -1,3 +1,7 @@
+**Jeremy Lin Retires After 15 Years That Included ‘Linsanity’ With the Knicks**\
+`The journeyman played for eight N.B.A. teams and won one championship. But he is best known for a brief stretch on the Knicks where he electrified fans and the nation.`\
+https://nytimes.com/2025/08/31/sports/basketball/jeremy-lin-retires-linsanity-knicks.html
+
 **Happiness Is a Big, Ugly Sofa**\
 `Buying a new, adult couch in a space of my own felt monumental.`\
 https://nytimes.com/2025/08/31/opinion/sofa-couch-adult-purchase-home.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6575648/2025/08/31/millwall-wrexham-championship-re
 **Farke, Leeds United and a very understated transfer ultimatum**\
 `The Leeds manager wants attacking quality adding before the transfer deadline. Will he get it?`\
 https://nytimes.com/athletic/6586552/2025/08/31/leeds-united-transfers-daniel-farke/
-
-**After an unbeaten domestic campaign, how do Chelsea improve perfection?**\
-`Chelsea's 4-1 win over AC Milan on Saturday showed how high the bar is set for Sonia Bompastor's side`\
-https://nytimes.com/athletic/6586205/2025/08/31/chelsea-women-perfection-beever-jones/
 
