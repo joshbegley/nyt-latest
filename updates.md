@@ -1,3 +1,7 @@
+**Mandel's Final Thoughts: Lee Corso aces farewell, Arch stumbles and FSU and LSU thrive**\
+`Plus: LSU and Florida State make statements, Alabama flops again under Kalen DeBoer and more from the first three days of Week 1.`\
+https://nytimes.com/athletic/6586943/2025/08/31/mandels-final-thoughts-lee-corso-salute-and-arch-mannings-shockingly-bad-performance/
+
 **Phillies notes: Trea Turner’s signature game, Cristopher Sánchez changes changeup, Sept. roster**\
 `Turner walked-off Atlanta on Saturday to cap what was one of his best all-around games during his best all-around season for the Phillies.`\
 https://nytimes.com/athletic/6586757/2025/08/31/trea-turners-walk-off-phillies/
