@@ -1,3 +1,15 @@
+**Isak talks ramping up ahead of potential Liverpool move**\
+`Liverpool saw a £110m bid for Isak turned down earlier in the summer, having previously indicated their willingness to do a deal for £120m.`\
+https://nytimes.com/athletic/6531796/2025/08/31/alexander-isak-liverpool-newcastle-transfer-latest/
+
+**Reds to call up prospect Sal Stewart: Source**\
+`The Athletic's Keith Law ranked the 21-year-old as Cincinnati's No. 5 prospect heading into this season.`\
+https://nytimes.com/athletic/6587977/2025/08/31/reds-sal-stewart-prospect-call-up/
+
+**China Shows Off Its Power**\
+`Xi Jinping is using a summit with leaders like Narendra Modi and Vladimir Putin as an opportunity to pull countries away from the U.S.`\
+https://nytimes.com/2025/08/31/briefing/xi-modi-putin-summit-tianjin.html
+
 **In Venice, Emma Stone and Jacob Elordi Make Bald Bids for Oscar**\
 `Since transformation is a crucial element of award-contending performances, the magnitude of their makeovers should not be underestimated.`\
 https://nytimes.com/2025/08/31/movies/emma-stone-and-jacob-elordi-bald-venice.html
