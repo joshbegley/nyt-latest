@@ -1,3 +1,11 @@
+**Rikers Detainee Becomes Third Person to Die in N.Y.C. Custody in a Week**\
+`Days before the death of the man, Jimmy Avila, another detainee was pronounced dead in his cell at the troubled city jail complex, and a third died in police custody.`\
+https://nytimes.com/2025/08/31/nyregion/rikers-jail-nyc-custody-death.html
+
+**Houston Astros searching for 'a collective approach' after anemic August**\
+`Carlos Correa said that some of the team's hitters may be experiencing mechanical problems: "You get pitches to hit and miss them."`\
+https://nytimes.com/athletic/6588267/2025/08/31/houston-astros-august-hitting/
+
 **Villa exploring Sancho deal separately to potential Martinez move**\
 `Villa, though, have been restricted by their need to adhere to UEFA financial regulations all summer.`\
 https://nytimes.com/athletic/6587124/2025/08/31/aston-villa-jadon-sancho/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/08/31/world/americas/brazil-bolsonaro-trial-restriction
 **Barca-Rayo draw marred by VAR breakdown which left Yamal penalty call unchecked**\
 `The VAR system broke down during Barca's draw with Rayo Vallecano, causing controversy after a Lamine Yamal penalty call.`\
 https://nytimes.com/athletic/6588145/2025/08/31/barcelona-rayo-var-yamal/
-
-**Nico Iamaleava's UCLA debut shows plenty of challenges await after Tennessee transfer**\
-`The quarterback's transfer home to UCLA didn't provide a quick fix for the rebuilding Bruins, who were blown out by Utah in the Rose Bowl.`\
-https://nytimes.com/athletic/6588022/2025/08/31/ucla-football-nico-iamaleava-utah-tennessee/
-
-**Chelsea in talks with Sunderland over Guiu recall**\
-`The talks follow the injury sustained by Chelsea striker Liam Delap during Saturday’s 2-0 win over Fulham.`\
-https://nytimes.com/athletic/6588074/2025/08/31/marc-guiu-chelsea-sunderland/
 

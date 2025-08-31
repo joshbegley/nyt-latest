@@ -1,3 +1,7 @@
+**Villa exploring Sancho deal separately to potential Martinez move**\
+`Villa, though, have been restricted by their need to adhere to UEFA financial regulations all summer.`\
+https://nytimes.com/athletic/6587124/2025/08/31/aston-villa-jadon-sancho/
+
 **Villa exploring Sancho deal separate to potential Martinez move**\
 `Villa, though, have been restricted by their need to adhere to UEFA financial regulations all summer.`\
 https://nytimes.com/athletic/6587124/2025/08/31/aston-villa-jadon-sancho/
