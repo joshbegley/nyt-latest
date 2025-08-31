@@ -1,3 +1,11 @@
+**Arizona State won its opener. The biggest part was everyone was there to see it**\
+`The best place to watch Saturday's game was from the last row, where the result of Arizona State's effort to "Activate the Valley" showed.`\
+https://nytimes.com/athletic/6586945/2025/08/31/arizona-state-season-opener-sellout-northern-arizona/
+
+**Judge Temporarily Blocks U.S. Efforts to Deport Guatemalan Children**\
+`The ruling came hours after some shelters were directed to prepare children to be sent back to Guatemala. A hearing was scheduled for Sunday afternoon.`\
+https://nytimes.com/2025/08/31/us/politics/trump-deportations-judge-guatemala-children.html
+
 **Introducing Our New Game**\
 `We show you how to play Pips, a new Times puzzle.`\
 https://nytimes.com/2025/08/31/briefing/pips-new-york-times-games.html

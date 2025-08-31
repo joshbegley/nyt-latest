@@ -1,3 +1,11 @@
+**Arizona State won its opener. The biggest part was everyone was there to see it**\
+`The best place to watch Saturday's game was from the last row, where the result of Arizona State's effort to "Activate the Valley" showed.`\
+https://nytimes.com/athletic/6586945/2025/08/31/arizona-state-season-opener-sellout-northern-arizona/
+
+**Judge Temporarily Blocks U.S. Efforts to Deport Guatemalan Children**\
+`The ruling came hours after some shelters were directed to prepare children to be sent back to Guatemala. A hearing was scheduled for Sunday afternoon.`\
+https://nytimes.com/2025/08/31/us/politics/trump-deportations-judge-guatemala-children.html
+
 **Introducing Our New Game**\
 `We show you how to play Pips, a new Times puzzle.`\
 https://nytimes.com/2025/08/31/briefing/pips-new-york-times-games.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6586681/2025/08/31/texas-ohio-state-arch-manning-st
 **25 most intriguing players in NFL this season: Aaron Rodgers, Travis Hunter, Micah Parsons**\
 `Can Rodgers mask the Steelers' deficiencies? Can Hunter be a true two-way threat? Will Parsons transform the Packers' hopes? `\
 https://nytimes.com/athletic/6579053/2025/08/31/nfl-most-intriguing-players-rodgers-parsons/
-
-**'It was huge. It was everything': KK Ream's moment of history, as told by her teammates**\
-`The Utah native became the youngest NWSL player to score a regular-season goal, just 52 days after her 16th birthday`\
-https://nytimes.com/athletic/6586421/2025/08/31/kk-ream-goal-utah-royals-teammates/
-
-**Manchester United players offer the right kind of response to Grimsby humiliation**\
-`It took a 97th-minute penalty for United to beat Burnley but the tenor of the performance told of a team determined to claw back credibility`\
-https://nytimes.com/athletic/6586642/2025/08/31/manchester-united-burnley/
 
