@@ -1,3 +1,7 @@
+**Manchester City's Cherki out for around two months with thigh injury**\
+`The 22-year-old signed this summer from Lyon and scored on his Premier League debut against Wolves. `\
+https://nytimes.com/athletic/6587431/2025/08/31/rayan-cherki-injury-update-pep-guardiola/
+
 **Dutch Grand Prix: Submit your questions for our F1 mailbag**\
 `What questions do you have for our F1 writers after the 2025 Dutch Grand Prix?`\
 https://nytimes.com/athletic/6587427/2025/08/31/dutch-gp-f1-mailbag/
@@ -11,7 +15,7 @@ https://nytimes.com/athletic/6584203/2025/08/31/mlb-gambling-investigation-guard
 https://nytimes.com/athletic/6587312/2025/08/31/cubs-add-carlos-santana-playoff-push/
 
 **Brighton 2 Manchester City 1: Full-backs all at sea in second straight defeat**\
-`Pep Guardiola's men blew a lead at the Amex Stadium, a week on from losing 2-0 at home against Tottenham`\
+`Pep Guardiola's men have three points from the first three games, blowing a lead at the Amex a week after losing 2-0 at home to Tottenham`\
 https://nytimes.com/athletic/6587234/2025/08/31/brighton-man-city-result-score-analysis/
 
 **Here’s My Favorite Fried Chicken Sandwich**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6587174/2025/08/31/dutch-gp-briefing-oscar-piastri-
 **Pirro Defends Guard Deployment and Takeover of D.C. Police Force**\
 `Jeanine Pirro, the U.S. attorney for Washington, also deflected criticism of a case in which her office was unable to obtain an indictment against a man who threw a sandwich at a federal agent.`\
 https://nytimes.com/2025/08/31/us/politics/pirro-national-guard-dc-police.html
-
-**Bayern make approach to sign Atalanta forward Ademola Lookman**\
-`Bayern had previously agreed a deal with Chelsea for Nicolas Jackson, before the London side informed them they would not proceed with it. `\
-https://nytimes.com/athletic/6500147/2025/08/31/bayern-munich-approach-ademola-lookman-atalanta/
 
