@@ -1,3 +1,7 @@
+**Villa exploring Sancho deal separate to potential Martinez move**\
+`Villa, though, have been restricted by their need to adhere to UEFA financial regulations all summer.`\
+https://nytimes.com/athletic/6587124/2025/08/31/aston-villa-jadon-sancho/
+
 **Yankees dress like cowboys before Astros series; September call-ups coming: Takeaways**\
 `The Yankees decided on a western vibe before heading to Houston, where they'll try to show they can play well against good teams.`\
 https://nytimes.com/athletic/6587601/2025/08/31/yankees-dress-like-cowboys-september-call-ups/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6588022/2025/08/31/ucla-football-nico-iamaleava-uta
 **Chelsea in talks with Sunderland over Guiu recall**\
 `The talks follow the injury sustained by Chelsea striker Liam Delap during Saturday’s 2-0 win over Fulham.`\
 https://nytimes.com/athletic/6588074/2025/08/31/marc-guiu-chelsea-sunderland/
-
-**'No deal' in place to sell Guehi, says Glasner**\
-`"(I understand it) from a financial perspective. It's a tempting situation. It's a challenging situation," Glasner added.`\
-https://nytimes.com/athletic/6588083/2025/08/31/marc-guehi-transfer-palace-liverpool/
 

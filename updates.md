@@ -1,3 +1,7 @@
+**Yankees dress like cowboys before Astros series; September call-ups coming: Takeaways**\
+`The Yankees decided on a western vibe before heading to Houston, where they'll try to show they can play well against good teams.`\
+https://nytimes.com/athletic/6587601/2025/08/31/yankees-dress-like-cowboys-september-call-ups/
+
 **Different Cultures Focused on One Sport**\
 `Why one coach sees Abu Dhabi as a hub for basketball’s future.`\
 https://nytimes.com/paidpost/athletic/experienceabudhabi/desertdreams.html
