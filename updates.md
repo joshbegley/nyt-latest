@@ -1,3 +1,11 @@
+**Isiah Kiner-Falefa returns to Blue Jays to provide infield depth**\
+`Kiner-Falefa appeared in 83 games with the Jays last season, hitting .292 with seven homers and a .758 OPS.`\
+https://nytimes.com/athletic/6587647/2025/08/31/blue-jays-isiah-kiner-falefa/
+
+**Florida State QB Tommy Castellanos mocks Alabama with merch after upset**\
+`Some of the merchandise features the line "Nick Can't Save Them," a reference to his eyebrow-raising comments earlier this summer.`\
+https://nytimes.com/athletic/6587563/2025/08/31/fsu-qb-tommy-castellanos-mocks-alabama-with-merch/
+
 **Zdena Salivarova, Publisher Who Kept Czech Literature Alive, Dies at 91**\
 `In exile in Canada, she and her husband, the novelist Josef Skvorecky, published books that had been outlawed by the Soviet-backed Communist regime.`\
 https://nytimes.com/2025/08/31/books/zdena-salivarova-dead.html
