@@ -7,7 +7,7 @@ https://nytimes.com/athletic/6587493/2025/08/31/jeremy-lin-linsanity-basketball-
 https://nytimes.com/2025/08/31/us/politics/trump-jan-6-rioters-compensation.html
 
 **Cubs claim starter Aaron Civale off waivers from White Sox**\
-`The right-handed starter has a 5.26 ERA and in 18 starts this season with the Brewers and White Sox.`\
+`The right-handed starter has a 5.26 ERA in 18 starts this season with the Brewers and White Sox.`\
 https://nytimes.com/athletic/6587689/2025/08/31/cubs-aaron-civale-white-sox/
 
 **Thanasis Antetokounmpo re-signs with Bucks on 1-year deal after Achilles recovery**\
