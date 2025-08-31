@@ -1,3 +1,11 @@
+**From Mountains to Plains, a Summer of Devastation Across Pakistan**\
+`Heavy rains and deadly floods have now hit Punjab, the country’s breadbasket and its largest province.`\
+https://nytimes.com/2025/08/31/world/asia/summer-monsoon-floods-pakistan.html
+
+**Dutch GP briefing: Norris heartbreak as Piastri wins, Ferrari duo crash out**\
+`A late oil leak took the wind out of Lando Norris' title hopes as F1 returned with a dramatic Dutch GP.`\
+https://nytimes.com/athletic/6587174/2025/08/31/dutch-gp-briefing-oscar-piastri-lando-norris-lewis-hamilton-ferrari-crash/
+
 **Pirro Defends Guard Deployment and Takeover of D.C. Police Force**\
 `Jeanine Pirro, the U.S. attorney for Washington, also deflected criticism of a case in which her office was unable to obtain an indictment against a man who threw a sandwich at a federal agent.`\
 https://nytimes.com/2025/08/31/us/politics/pirro-national-guard-dc-police.html
