@@ -1,3 +1,23 @@
+**Can Under Armour break disrupt soccer? 'It's not a far walk from an NFL pitch to an EPL pitch'**\
+`The U.S. sportswear brand is opting to sign individuals rather than teams. But will it pay off?`\
+https://nytimes.com/athletic/6583866/2025/08/31/arteta-arsenal-under-armour-premier-league/
+
+**A City Reinvented: Paris Is Now Greater Paris**\
+`The periphery of the French capital is more vital than ever, and its creativity and dynamism have blurred old boundaries.`\
+https://nytimes.com/2025/08/31/world/europe/a-city-reinvented-paris-is-now-greater-paris.html
+
+**Quote of the Day: They Left New Orleans After Katrina. New Orleans Never Left Them.**\
+`Quotation of the Day for Sunday, August 31, 2025.`\
+https://nytimes.com/2025/08/31/pageoneplus/quote-of-the-day-they-left-new-orleans-after-katrina-new-orleans-never-left-them.html
+
+**Connections: Sports Edition Coach: Hints for Aug. 31, 2025**\
+`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
+https://nytimes.com/athletic/6586300/2025/08/31/connections-sports-edition-hints-for-aug-31-2025/
+
+**America Closed Malls, but China Kept Building Them. Now It Has Too Many.**\
+`The first closing of an Apple Store in mainland China hints at broader troubles facing the country’s shopping malls as developers open more of them despite a glut.`\
+https://nytimes.com/2025/08/31/business/china-shopping-malls.html
+
 **Chris Sale dominant in return from IL, reminding Braves of what could've been**\
 `Sale had nine strikeouts in six innings of three-hit, one-run ball, picking up right where he left off before fracturing two ribs in June.`\
 https://nytimes.com/athletic/6586766/2025/08/30/braves-chris-sale-dominant-il-return/
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/6586680/2025/08/30/michigan-takes-down-new-mexico-b
 **Felix Auger-Aliassime upsets third seed Alexander Zverev at U.S. Open**\
 `Saturday's matchup was Auger-Aliassime’s first win over a top-five player at a major.`\
 https://nytimes.com/athletic/6586793/2025/08/30/auger-aliassime-us-open-zverev/
-
-**Kansas City Current clinch NWSL playoff spot with 8 weeks to spare**\
-`With Saturday's win, Kansas City matched the 2024 Orlando Pride's record for the fastest team to secure a playoff spot in NWSL history.`\
-https://nytimes.com/athletic/6586798/2025/08/30/nwsl-kansas-city-current-clinch-playoff-spot/
-
-**Suspect in Montana Bar Shooting Faces 4 Murder Charges**\
-`The man is accused of fatally shooting four people in a bar in Anaconda, Mont. He had led the police on an eight-day manhunt that rattled the community.`\
-https://nytimes.com/2025/08/30/us/montana-bar-shooting.html
-
-**Iowa's Kirk Ferentz ties Woody Hayes for Big Ten career wins mark**\
-`The Hawkeyes will face in-state rival Iowa State next Saturday at 12 p.m. ET.`\
-https://nytimes.com/athletic/6586713/2025/08/30/iowas-kirk-ferentz-ties-woody-hayes-big-ten-career-wins/
-
-**‘A Future Filled With Hope’: Minneapolis Community Unites to Process the Tragedy**\
-`In the first Mass since an assailant attacked Annunciation Catholic Church, parishioners gathered to grieve and support one another.`\
-https://nytimes.com/2025/08/30/us/minneapolis-catholic-church-shooting.html
-
-**Florida State-Alabama shocker was, above all, another indictment of Kalen DeBoer**\
-`Maybe Florida State can make a surprise CFP run this season. Certainly, Alabama was the biggest disappointment in Week 1. `\
-https://nytimes.com/athletic/6586717/2025/08/30/alabama-florida-state-kalen-deboer-mike-norvell/
 
