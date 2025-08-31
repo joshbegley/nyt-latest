@@ -1,3 +1,11 @@
+**Pirro Defends Guard Deployment and Takeover of D.C. Police Force**\
+`Jeanine Pirro, the U.S. attorney for Washington, also deflected criticism of a case in which her office was unable to obtain an indictment against a man who threw a sandwich at a federal agent.`\
+https://nytimes.com/2025/08/31/us/politics/pirro-national-guard-dc-police.html
+
+**Bayern make approach to sign Atalanta forward Ademola Lookman**\
+`Bayern had previously agreed a deal with Chelsea for Nicolas Jackson, before the London side informed them they would not proceed with it. `\
+https://nytimes.com/athletic/6500147/2025/08/31/bayern-munich-approach-ademola-lookman-atalanta/
+
 **He Made Barneys. He Lost Barneys. He Lived to Tell the Tale.**\
 `Gene Pressman, the impresario behind the world-famous department store, would have done things differently.`\
 https://nytimes.com/2025/08/31/style/barneys-gene-pressman-memoir.html
