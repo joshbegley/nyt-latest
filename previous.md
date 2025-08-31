@@ -1,3 +1,7 @@
+**In Venice, Emma Stone and Jacob Elordi Make Bald Bids for Oscar**\
+`Since transformation is a crucial element of award-contending performances, the magnitude of their makeovers should not be underestimated.`\
+https://nytimes.com/2025/08/31/movies/emma-stone-and-jacob-elordi-bald-venice.html
+
 **A firefighter detained while working at a wildfire in Washington State entered the U.S. at age 4.**\
 `His lawyers said the man had qualified for a special visa for crime victims and has been awaiting action on his application since 2018.`\
 https://nytimes.com/live/2025/08/31/us/trump-news/a-firefighter-detained-while-working-at-a-wildfire-in-washington-state-entered-the-us-at-age-4
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/31/us/politics/rudy-giuliani-accident-car-crash-new-
 **Houthis Vow Revenge After Israeli Attack Kills Senior Officials**\
 `Israel’s assassination of top officials last week is likely to make the Iranian-backed militia even more hawkish, Yemen analysts say.`\
 https://nytimes.com/2025/08/31/world/middleeast/yemen-houthis-israel.html
-
-**Man Found Dead at Burning Man, Prompting Homicide Investigation**\
-`The victim, whose identity was unknown, was found “lying in a pool of blood” on Saturday night, officials said.`\
-https://nytimes.com/2025/08/31/us/burning-man-festival-dead.html
 

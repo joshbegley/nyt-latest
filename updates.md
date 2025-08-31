@@ -1,3 +1,7 @@
+**In Venice, Emma Stone and Jacob Elordi Make Bald Bids for Oscar**\
+`Since transformation is a crucial element of award-contending performances, the magnitude of their makeovers should not be underestimated.`\
+https://nytimes.com/2025/08/31/movies/emma-stone-and-jacob-elordi-bald-venice.html
+
 **A firefighter detained while working at a wildfire in Washington State entered the U.S. at age 4.**\
 `His lawyers said the man had qualified for a special visa for crime victims and has been awaiting action on his application since 2018.`\
 https://nytimes.com/live/2025/08/31/us/trump-news/a-firefighter-detained-while-working-at-a-wildfire-in-washington-state-entered-the-us-at-age-4
