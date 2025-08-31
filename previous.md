@@ -1,3 +1,7 @@
+**Sheriff Who Inspired ‘Walking Tall’ Movie Killed His Wife, Inquiry Says**\
+`Buford Pusser, who was portrayed in the 1973 hit movie, led people to believe that his wife was ambushed by his enemies, cold-case investigators in Tennessee said.`\
+https://nytimes.com/2025/08/31/us/buford-pusser-walking-tall-tennessee.html
+
 **Lando Norris’s Dutch GP agony reshapes his F1 title fight tactics against Piastri**\
 `Lando Norris's Dutch GP retirement cost him major ground to teammate and title rival Oscar Piastri, which alters his F1 season run in`\
 https://nytimes.com/athletic/6587530/2025/08/31/lando-norris-dutch-gp/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6587563/2025/08/31/fsu-qb-tommy-castellanos-mocks-a
 **Cowboys, CB DaRon Bland agree to 4-year contract extension**\
 `Bland has intercepted 14 passes since coming into the league in 2022.`\
 https://nytimes.com/athletic/6587607/2025/08/31/cowboys-daron-bland-contract-extension/
-
-**Liverpool 1 Arsenal 0: Incredible Szoboszlai free kick from distance wins it at Anfield**\
-`Gregg Evans, Art de Roche and Anantaajith Raghuraman break down the match from Anfield`\
-https://nytimes.com/athletic/6587211/2025/08/31/liverpool-arsenal-premier-league-szoboszlai/
 

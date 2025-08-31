@@ -1,3 +1,7 @@
+**Sheriff Who Inspired ‘Walking Tall’ Movie Killed His Wife, Inquiry Says**\
+`Buford Pusser, who was portrayed in the 1973 hit movie, led people to believe that his wife was ambushed by his enemies, cold-case investigators in Tennessee said.`\
+https://nytimes.com/2025/08/31/us/buford-pusser-walking-tall-tennessee.html
+
 **Lando Norris’s Dutch GP agony reshapes his F1 title fight tactics against Piastri**\
 `Lando Norris's Dutch GP retirement cost him major ground to teammate and title rival Oscar Piastri, which alters his F1 season run in`\
 https://nytimes.com/athletic/6587530/2025/08/31/lando-norris-dutch-gp/
