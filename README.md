@@ -1,3 +1,11 @@
+**A Shattered City Asks for Its Sacrifice to Be Repaid**\
+`Millions of Syrians from destroyed places like Daraya feel they did everything possible to overthrow the Assad government, but they still await reconstruction aid.`\
+https://nytimes.com/2025/08/31/world/middleeast/syria-damascus-war-daraya.html
+
+**One last famous U.S. Open win for a tennis legend who retreated from his own greatness**\
+`Connors and Krickstein's 1991 Labor Day match is a staple of Grand Slam highlight reels — and symbol of Connors' status as a tennis hermit.`\
+https://nytimes.com/athletic/6581753/2025/08/31/us-open-jimmy-connors-aaron-krickstein-match/
+
 **Russian Strikes on Western Assets in Ukraine Send an Ominous Message**\
 `Hitting an American-run factory and European diplomatic offices, the Kremlin appeared to signal that it would resist Western efforts to make peace and protect Ukraine, analysts and officials said.`\
 https://nytimes.com/2025/08/31/world/europe/russia-ukraine-western-targets.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/08/31/us/puerto-rico-durian.html
 **Trump Crime Strategy May Work for Now, but Not for Long, Experts Say**\
 `The president is looking to add  troops to city streets while cutting funds for programs that work, experts and local officials say. But one idea, beautifying neighborhoods, has buy-in.`\
 https://nytimes.com/2025/08/31/us/trump-crime-strategy-solutions.html
-
-**Chevron’s Boss Says the World Will Need Oil for a ‘Long, Long Time’**\
-`Mike Wirth, who has seen many booms and busts over the more than 40 years he has been with the energy giant, said that “when the world stops using oil and gas, we’ll stop looking for it.”`\
-https://nytimes.com/2025/08/31/business/chevron-oil-mike-wirth.html
-
-**U.S. Open recap Day 7: Naomi Osaka returns to Grand Slam second week**\
-`The four-time Grand Slam champion has reached the fourth round of a major for the first time since the 2021 Australian Open, which she won.`\
-https://nytimes.com/athletic/6586001/2025/08/31/us-open-recap-day-7-schedule-results/
 
