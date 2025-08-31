@@ -1,3 +1,19 @@
+**Lando Norris’s Dutch GP agony reshapes his F1 title fight tactics against Piastri**\
+`Lando Norris's Dutch GP retirement cost him major ground to teammate and title rival Oscar Piastri, which alters his F1 season run in`\
+https://nytimes.com/athletic/6587530/2025/08/31/lando-norris-dutch-gp/
+
+**Daniil Medvedev splits with coach of eight years after U.S. Open unraveling**\
+`"Thank you Gilles," Medvedev wrote with a heart emoji on Instagram. "Amazing 8-10 years together, 20 titles, world number 1."`\
+https://nytimes.com/athletic/6587291/2025/08/31/daniil-medvev-us-open-coach-split-tennis/
+
+**Arteta worried about Saliba's ankle injury**\
+`After David Raya collected a ball over the top of Arsenal's defence on four minutes, Saliba went down and received treatment.`\
+https://nytimes.com/athletic/6587377/2025/08/31/arsenal-william-saliba-injury-liverpool/
+
+**Noem defends deployment of the National Guard in U.S. cities.**\
+`Kristi Noem, the Homeland Security se`\
+https://nytimes.com/live/2025/08/31/us/trump-news/noem-defends-deployment-of-the-national-guard-in-us-cities
+
 **Isiah Kiner-Falefa returns to Blue Jays to provide infield depth**\
 `Kiner-Falefa appeared in 83 games with the Jays last season, hitting .292 with seven homers and a .758 OPS.`\
 https://nytimes.com/athletic/6587647/2025/08/31/blue-jays-isiah-kiner-falefa/
@@ -14,27 +30,11 @@ https://nytimes.com/2025/08/31/us/houston-boy-shot-ding-dong-ditch.html
 `Some of the merchandise features the line "Nick Can't Save Them," a reference to his eyebrow-raising comments earlier this summer.`\
 https://nytimes.com/athletic/6587563/2025/08/31/fsu-qb-tommy-castellanos-mocks-alabama-with-merch/
 
-**Cowboys, CB DaRon Bland agree to 4-year contract extension: Sources**\
+**Cowboys, CB DaRon Bland agree to 4-year contract extension**\
 `Bland has intercepted 14 passes since coming into the league in 2022.`\
 https://nytimes.com/athletic/6587607/2025/08/31/cowboys-daron-bland-contract-extension/
 
 **Liverpool 1 Arsenal 0: Incredible Szoboszlai free kick from distance wins it at Anfield**\
 `Gregg Evans, Art de Roche and Anantaajith Raghuraman break down the match from Anfield`\
 https://nytimes.com/athletic/6587211/2025/08/31/liverpool-arsenal-premier-league-szoboszlai/
-
-**Israel Says It Killed the Spokesman for Hamas’s Armed Wing**\
-`Hamas did not immediately comment on the Israeli military’s claim that Abu Obeida, one of the armed group’s best-known officials in the Arab world, had been killed.`\
-https://nytimes.com/2025/08/31/world/middleeast/hamas-abu-obeida-israel-gaza-city.html
-
-**Northern Lights Could Put on a Show for Large Sections of the U.S.**\
-`A dazzling display in the nighttime sky might be seen much farther south than usual, including parts of Iowa, Oregon and Pennsylvania, by Tuesday, forecasters said.`\
-https://nytimes.com/2025/08/31/weather/northern-lights-aurora-tonight.html
-
-**Submit questions for Mitch Bannon’s upcoming Blue Jays mailbag**\
-`Mitch Bannon will answer subscribers' questions submitted here in an upcoming mailbag story.`\
-https://nytimes.com/athletic/6587498/2025/08/31/toronto-blue-jays-mailbag-questions/
-
-**Lowetide: Oilers management has a chance to shine with McDavid contract negotiations**\
-`Fans in Edmonton have been through years of questionable management decisions. Stan Bowman has a chance to change that.`\
-https://nytimes.com/athletic/6586029/2025/08/31/oilers-management-bowman-mcdavid-negotiations/
 
