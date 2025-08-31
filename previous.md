@@ -10,7 +10,7 @@ https://nytimes.com/athletic/6586965/2025/08/31/cowboys-kenny-clark-defense-mica
 `Turner slashed a two-out, two-strike single to win it Saturday night, capping one of his best all-around games of the season. `\
 https://nytimes.com/athletic/6586757/2025/08/31/trea-turners-walk-off-phillies/
 
-**Texas troubles: 3 issues that plagued the Longhorns in Ohio State loss**\
+**Three things Texas must fix to recover from its 7-point flop at Ohio State**\
 `Red zone failures, Arch Manning's inaccuracy and some questionable play calling were among the areas that the Horns must address. `\
 https://nytimes.com/athletic/6586681/2025/08/31/texas-ohio-state-arch-manning-steve-sarkisian/
 
