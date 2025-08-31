@@ -1,3 +1,7 @@
+**Brighton 2 Manchester City 1 - Fullbacks all at sea as City suffer second straight defeat**\
+`Manchester City blew a 1-0 lead to come away from the Amex having suffered a 2-1 defeat to Brighton & Hove Albion`\
+https://nytimes.com/athletic/6587234/2025/08/31/brighton-man-city-result-score-analysis/
+
 **Here’s My Favorite Fried Chicken Sandwich**\
 `And here’s how I turn it into pickle-brined grilled chicken.`\
 https://nytimes.com/2025/08/31/dining/heres-my-favorite-fried-chicken-sandwich.html
@@ -7,7 +11,7 @@ https://nytimes.com/2025/08/31/dining/heres-my-favorite-fried-chicken-sandwich.h
 https://nytimes.com/interactive/2025/08/31/weather/kiko-map-path-tracker.html
 
 **Deadly Floods in Punjab Devastate Pakistan’s Breadbasket**\
-`Housing communities and businesses that rely on agriculture  have been destroyed in the country’s  largest province.`\
+`Housing communities and businesses that rely on agriculture have been destroyed in the country’s largest province.`\
 https://nytimes.com/2025/08/31/world/asia/summer-monsoon-floods-pakistan.html
 
 **Dutch GP briefing: Norris heartbreak as Piastri wins, Ferrari duo crash out**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6587111/2025/08/31/ohio-state-takeaways-texas-sayin
 **Until Saturday: Week 1 surprises and Alabama hot seats**\
 `Until Saturday is The Athletic's free college football newsletter.`\
 https://nytimes.com/athletic/6587192/2025/08/31/college-football-ohio-state-arch-manning-until-saturday/
-
-**College Football Playoff 2025 projections: How Week 1 is changing the most likely bracket**\
-`Our College Football Playoff predictions model is back. Check here for regular updates on CFP and national championship odds for 2025.`\
-https://nytimes.com/athletic/6560541/2025/08/31/college-football-playoff-bracket-projections-odds/
 

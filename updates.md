@@ -1,3 +1,15 @@
+**Here’s My Favorite Fried Chicken Sandwich**\
+`And here’s how I turn it into pickle-brined grilled chicken.`\
+https://nytimes.com/2025/08/31/dining/heres-my-favorite-fried-chicken-sandwich.html
+
+**Tracking Tropical Storm Kiko**\
+`See the likely path and wind arrival times for Kiko`\
+https://nytimes.com/interactive/2025/08/31/weather/kiko-map-path-tracker.html
+
+**Deadly Floods in Punjab Devastate Pakistan’s Breadbasket**\
+`Housing communities and businesses that rely on agriculture  have been destroyed in the country’s  largest province.`\
+https://nytimes.com/2025/08/31/world/asia/summer-monsoon-floods-pakistan.html
+
 **From Mountains to Plains, a Summer of Devastation Across Pakistan**\
 `Heavy rains and deadly floods have now hit Punjab, the country’s breadbasket and its largest province.`\
 https://nytimes.com/2025/08/31/world/asia/summer-monsoon-floods-pakistan.html
