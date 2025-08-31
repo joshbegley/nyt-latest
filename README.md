@@ -1,3 +1,7 @@
+**Mandel's Final Thoughts: Lee Corso aces farewell, Arch stumbles and FSU and LSU thrive**\
+`Plus: LSU and Florida State make statements, Alabama flops again under Kalen DeBoer and more from the first three days of Week 1.`\
+https://nytimes.com/athletic/6586943/2025/08/31/mandels-final-thoughts-lee-corso-salute-and-arch-mannings-shockingly-bad-performance/
+
 **Villa advancing in talks to sign former Manchester United defender Lindelof**\
 `Lindelof left Old Trafford upon the expiry of his contract alongside Christian Eriksen and Jonny Evans.`\
 https://nytimes.com/athletic/6388290/2025/08/31/victor-lindelof-aston-villa-talks-transfer/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6586642/2025/08/31/manchester-united-burnley/
 **Brighton's Lamptey finalising transfer to Fiorentina, Sarmiento set for Cremonese move**\
 `Lamptey has fallen down the pecking order with head coach Hurzeler while Sarmiento spent last season out on loan.`\
 https://nytimes.com/athletic/6587051/2025/08/31/brighton-tariq-lamptey-fiorentina-jeremy-sarmiento-cremonese/
-
-**What NFL head coaches learn from the tough lessons of their top assistants**\
-`Several first-year NFL head coaches, mostly offense-oriented, turned to former head coaches to run their defenses. Here's why.`\
-https://nytimes.com/athletic/6581609/2025/08/31/robert-saleh-brian-flores-nfl-coaches-lessons/
 
