@@ -1,3 +1,11 @@
+**Phillies to sign Walker Buehler, who will be postseason-eligible: Sources**\
+`Buehler could serve as a swingman for the rest of this season; the Phillies can use him in the bullpen, then as a spot starter if needed. `\
+https://nytimes.com/athletic/6587594/2025/08/31/walker-buehler-phillies-contract-playoff-eligible/
+
+**Angels' Taylor Ward leaves game after face-first collision with outfield wall**\
+`The left fielder was carted off the field after sustaining a facial injury after running into the scoreboard at Daikin Park.`\
+https://nytimes.com/athletic/6587916/2025/08/31/angels-taylor-ward-injury-outfield-wall/
+
 **U.S. Suspends Visas for Palestinian Passport Holders, Officials Say**\
 `The move will stop, at least temporarily, travel for medical treatment, attending university, visiting relatives or conducting business.`\
 https://nytimes.com/2025/08/31/world/middleeast/us-palestinian-visa-suspensions.html
