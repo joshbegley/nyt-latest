@@ -10,7 +10,7 @@ https://nytimes.com/athletic/6586987/2025/08/31/emerson-palmieri-marseille-trans
 `Clark said he was shocked by the news that sent him to Dallas for Micah Parsons, but said "this franchise is going to get everything I got."`\
 https://nytimes.com/athletic/6586965/2025/08/31/cowboys-kenny-clark-defense-micah-parsons/
 
-**Trea Turner's walk-off against Braves edge Phillies closer to NL East title**\
+**Phillies notes: Trea Turner’s signature game, Cristopher Sánchez changes changeup, Sept. roster**\
 `Turner slashed a two-out, two-strike single to win it Saturday night, capping one of his best all-around games of the season. `\
 https://nytimes.com/athletic/6586757/2025/08/31/trea-turners-walk-off-phillies/
 

@@ -1,3 +1,7 @@
+**Phillies notes: Trea Turner’s signature game, Cristopher Sánchez changes changeup, Sept. roster**\
+`Turner slashed a two-out, two-strike single to win it Saturday night, capping one of his best all-around games of the season. `\
+https://nytimes.com/athletic/6586757/2025/08/31/trea-turners-walk-off-phillies/
+
 **Villa advancing in talks to sign former Manchester United defender Lindelof**\
 `Lindelof left Old Trafford upon the expiry of his contract alongside Christian Eriksen and Jonny Evans.`\
 https://nytimes.com/athletic/6388290/2025/08/31/victor-lindelof-aston-villa-talks-transfer/
