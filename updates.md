@@ -1,3 +1,7 @@
+**U.S. Suspends Visas for Palestinian Passport Holders, Officials Say**\
+`The move will stop, at least temporarily, travel for medical treatment, attending university, visiting relatives or conducting business.`\
+https://nytimes.com/2025/08/31/world/middleeast/us-palestinian-visa-suspensions.html
+
 **Giuliani Is Hurt in Car Crash in New Hampshire**\
 `Mr. Giuliani, the former New York City mayor and lawyer for President Trump, suffered a fractured vertebra, his head of security said.`\
 https://nytimes.com/2025/08/31/us/politics/rudy-giuliani-accident-car-crash-new-hampshire.html
