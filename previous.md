@@ -1,3 +1,11 @@
+**'No deal' in place to sell Guehi, says Glasner**\
+`"(I understand it) from a financial perspective. It's a tempting situation. It's a challenging situation," Glasner added.`\
+https://nytimes.com/athletic/6588083/2025/08/31/marc-guehi-transfer-palace-liverpool/
+
+**Global Extremity**\
+`Lynn Lempel’s puzzles never get old.`\
+https://nytimes.com/2025/08/31/crosswords/daily-puzzle-2025-09-01.html
+
 **Taylor Townsend's incredible U.S. Open ride ends in three-set epic against Barbora Krejcikova**\
 `Townsend had eight match points against the two-time Grand Slam singles champion on Louis Armstrong Stadium.`\
 https://nytimes.com/athletic/6587777/2025/08/31/taylor-townsend-us-open-krejcikova-result/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/08/31/briefing/xi-modi-putin-summit-tianjin.html
 **What this picture says about Jack Grealish and his meaning to Everton**\
 `The on-loan England international is a beacon of hope, as well as a superb player, in a team that looks re-energised`\
 https://nytimes.com/athletic/6586329/2025/08/31/jack-grealish-everton-transfer-impact/
-
-**Phillies to sign Walker Buehler, who will be postseason-eligible: Sources**\
-`Buehler could serve as a swingman for the rest of this season; the Phillies can use him in the bullpen, then as a spot starter if needed. `\
-https://nytimes.com/athletic/6587594/2025/08/31/walker-buehler-phillies-contract-playoff-eligible/
-
-**Angels' Taylor Ward leaves game after face-first collision with outfield wall**\
-`The left fielder was carted off the field after sustaining a facial injury after running into the scoreboard at Daikin Park.`\
-https://nytimes.com/athletic/6587916/2025/08/31/angels-taylor-ward-injury-outfield-wall/
 
