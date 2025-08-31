@@ -1,3 +1,5 @@
+
+
 **Guardians pitchers' suspensions amid gambling investigation extended 'until further notice'**\
 `Both pitchers will remain on paid leave as MLB's gambling investigation continues.`\
 https://nytimes.com/athletic/6584203/2025/08/31/mlb-gambling-investigation-guardians-emmanuel-clase-luis-ortiz/
