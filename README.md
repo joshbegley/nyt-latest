@@ -1,3 +1,7 @@
+**Chris Sale dominant in return from IL, reminding Braves of what could've been**\
+`Sale had nine strikeouts in six innings of three-hit, one-run ball, picking up right where he left off before fracturing two ribs in June.`\
+https://nytimes.com/athletic/6586766/2025/08/30/braves-chris-sale-dominant-il-return/
+
 **LSU tops Clemson in top-10 clash as Brian Kelly finally wins season opener**\
 `The streak is over, and Brian Kelly has a validating win, one of the biggest of his four-year LSU tenure. `\
 https://nytimes.com/athletic/6586706/2025/08/30/lsu-clemson-brian-kelly-takeaways/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/30/us/minneapolis-catholic-church-shooting.html
 **Florida State-Alabama shocker was, above all, another indictment of Kalen DeBoer**\
 `Maybe Florida State can make a surprise CFP run this season. Certainly, Alabama was the biggest disappointment in Week 1. `\
 https://nytimes.com/athletic/6586717/2025/08/30/alabama-florida-state-kalen-deboer-mike-norvell/
-
-**Before Minnesota Shooting, a Program Aimed at Preventing Attacks Lost Federal Funding**\
-`The cut by the Trump administration does not appear to have affected the handling of the church shooting this week, but state leaders say it weakens efforts to identify future threats.`\
-https://nytimes.com/2025/08/30/us/minnesota-church-shooting-funding-cut.html
 
