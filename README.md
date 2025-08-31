@@ -1,3 +1,7 @@
+**Red Sox, Aroldis Chapman agree to 1-year contract extension**\
+`The extension will guarantee $13.3 million for the lefty in 2026 and includes a vesting option for the 2027 season, per a league source.`\
+https://nytimes.com/athletic/6587440/2025/08/31/red-sox-aroldis-chapman-contract-extension/
+
 **China Shows Off its Power**\
 `Xi Jinping is using a summit with leaders like Narendra Modi and Vladimir Putin as an opportunity to pull countries away from the U.S.`\
 https://nytimes.com/2025/08/31/briefing/xi-modi-putin-summit-tianjin.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/31/us/burning-man-festival-dead.html
 **Villa target Asensio set for Fenerbahce move**\
 `The Spain international is due to fly to Istanbul tonight to complete the transfer.`\
 https://nytimes.com/athletic/6488980/2025/08/31/marco-asensio-fenerbahce-villa/
-
-**The Pulse: Rough starts for Arch and Bama**\
-`Welcome to The Pulse, The Athletic's daily sports newsletter.`\
-https://nytimes.com/athletic/6586779/2025/08/31/rough-starts-for-both-arch-manning-and-bama-plus-a-massive-exhale/
 
