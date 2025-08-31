@@ -1,3 +1,7 @@
+**Cowboys, CB DaRon Bland agree to 4-year contract extension: Sources**\
+`Bland has intercepted 14 passes since coming into the league in 2022.`\
+https://nytimes.com/athletic/6587607/2025/08/31/cowboys-daron-bland-contract-extension/
+
 **Liverpool 1 Arsenal 0: Incredible Szoboszlai free kick from distance wins it at Anfield**\
 `Gregg Evans, Art de Roche and Anantaajith Raghuraman break down the match from Anfield`\
 https://nytimes.com/athletic/6587211/2025/08/31/liverpool-arsenal-premier-league-szoboszlai/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6587356/2025/08/31/luka-doncic-eurobasket-triple-do
 **Manchester City's Cherki out for around two months with thigh injury**\
 `The 22-year-old signed this summer from Lyon and scored on his Premier League debut against Wolves. `\
 https://nytimes.com/athletic/6587431/2025/08/31/rayan-cherki-injury-update-pep-guardiola/
-
-**Dutch Grand Prix: Submit your questions for our F1 mailbag**\
-`What questions do you have for our F1 writers after the 2025 Dutch Grand Prix?`\
-https://nytimes.com/athletic/6587427/2025/08/31/dutch-gp-f1-mailbag/
 
