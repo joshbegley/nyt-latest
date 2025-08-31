@@ -1,3 +1,7 @@
+**Suspect in Montana Bar Shooting Faces 4 Murder Charges**\
+`The man is accused of fatally shooting four people in a bar in Anaconda, Mont. He had led the police on an eight-day manhunt that rattled the community.`\
+https://nytimes.com/2025/08/30/us/montana-bar-shooting.html
+
 **Iowa's Kirk Ferentz ties Woody Hayes for Big Ten career wins mark**\
 `The Hawkeyes will face in-state rival Iowa State next Saturday at 12 p.m. ET.`\
 https://nytimes.com/athletic/6586713/2025/08/30/iowas-kirk-ferentz-ties-woody-hayes-big-ten-career-wins/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6586460/2025/08/30/shilo-sanders-fine-nfl-tampa-bay
 **Over 15 Killed in Gaza City, One Day After Israel Ends Daily Pauses for Aid**\
 `One attack was an effort to assassinate Abu Obeida, one of Hamas’s best-known spokesmen, Israeli officials said. It was not immediately clear if that succeeded.`\
 https://nytimes.com/2025/08/30/world/middleeast/gaza-israel-deadly-strikes.html
-
-**A Man of Character**\
-`Danny J. Rooney’s debut Times puzzle never misses.`\
-https://nytimes.com/2025/08/30/crosswords/daily-puzzle-2025-08-31.html
 
