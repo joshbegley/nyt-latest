@@ -1,3 +1,11 @@
+**Manchester City's Cherki out for around two months with thigh injury**\
+`The 22-year-old signed this summer from Lyon and scored on his Premier League debut against Wolves. `\
+https://nytimes.com/athletic/6587431/2025/08/31/rayan-cherki-injury-update-pep-guardiola/
+
+**Brighton 2 Manchester City 1: Full-backs all at sea in second straight defeat**\
+`Pep Guardiola's men have three points from the first three games, blowing a lead at the Amex a week after losing 2-0 at home to Tottenham`\
+https://nytimes.com/athletic/6587234/2025/08/31/brighton-man-city-result-score-analysis/
+
 **Dutch Grand Prix: Submit your questions for our F1 mailbag**\
 `What questions do you have for our F1 writers after the 2025 Dutch Grand Prix?`\
 https://nytimes.com/athletic/6587427/2025/08/31/dutch-gp-f1-mailbag/
