@@ -1,3 +1,7 @@
+**Can Under Armour break disrupt soccer? 'It's not a far walk from an NFL pitch to an EPL pitch'**\
+`The U.S. sportswear brand is opting to sign individuals rather than teams. But will it pay off?`\
+https://nytimes.com/athletic/6583866/2025/08/31/arteta-arsenal-under-armour-premier-league/
+
 **A City Reinvented: Paris Is Now Greater Paris**\
 `The periphery of the French capital is more vital than ever, and its creativity and dynamism have blurred old boundaries.`\
 https://nytimes.com/2025/08/31/world/europe/a-city-reinvented-paris-is-now-greater-paris.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6586680/2025/08/30/michigan-takes-down-new-mexico-b
 **Felix Auger-Aliassime upsets third seed Alexander Zverev at U.S. Open**\
 `Saturday's matchup was Auger-Aliassime’s first win over a top-five player at a major.`\
 https://nytimes.com/athletic/6586793/2025/08/30/auger-aliassime-us-open-zverev/
-
-**Kansas City Current clinch NWSL playoff spot with 8 weeks to spare**\
-`With Saturday's win, Kansas City matched the 2024 Orlando Pride's record for the fastest team to secure a playoff spot in NWSL history.`\
-https://nytimes.com/athletic/6586798/2025/08/30/nwsl-kansas-city-current-clinch-playoff-spot/
 
