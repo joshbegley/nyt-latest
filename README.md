@@ -1,3 +1,27 @@
+**Marseille agree permanent deal for West Ham defender Emerson**\
+`The 31-year-old is set to be West Ham's tenth departure this summer, after 113 appearances for the side.`\
+https://nytimes.com/athletic/6586987/2025/08/31/emerson-palmieri-marseille-transfer-west-ham/
+
+**Kenny Clark's message to Cowboys fans: 'I'm going to bring the physicality'**\
+`Clark said he was shocked by the news that sent him to Dallas for Micah Parsons, but said "this franchise is going to get everything I got."`\
+https://nytimes.com/athletic/6586965/2025/08/31/cowboys-kenny-clark-defense-micah-parsons/
+
+**Trea Turner's walk-off against Braves edge Phillies closer to NL East title**\
+`Turner slashed a two-out, two-strike single to win it Saturday night, capping one of his best all-around games of the season. `\
+https://nytimes.com/athletic/6586757/2025/08/31/trea-turners-walk-off-phillies/
+
+**Texas troubles: 3 issues that plagued the Longhorns in Ohio State loss**\
+`Red zone failures, Arch Manning's inaccuracy and some questionable play calling were among the areas that the Horns must address. `\
+https://nytimes.com/athletic/6586681/2025/08/31/texas-ohio-state-arch-manning-steve-sarkisian/
+
+**25 most intriguing players in NFL this season: Aaron Rodgers, Travis Hunter, Micah Parsons**\
+`Can Rodgers mask the Steelers' deficiencies? Can Hunter be a true two-way threat? Will Parsons transform the Packers' hopes? `\
+https://nytimes.com/athletic/6579053/2025/08/31/nfl-most-intriguing-players-rodgers-parsons/
+
+**'It was huge. It was everything': KK Ream's moment of history, as told by her teammates**\
+`The Utah native became the youngest NWSL player to score a regular-season goal, just 52 days after her 16th birthday`\
+https://nytimes.com/athletic/6586421/2025/08/31/kk-ream-goal-utah-royals-teammates/
+
 **Brighton's Lamptey finalising transfer to Fiorentina, Sarmiento set for Cremonese move**\
 `Lamptey has fallen down the pecking order with head coach Hurzeler while Sarmiento spent last season out on loan.`\
 https://nytimes.com/athletic/6587051/2025/08/31/brighton-tariq-lamptey-fiorentina-jeremy-sarmiento-cremonese/
@@ -13,28 +37,4 @@ https://nytimes.com/athletic/6584853/2025/08/31/bill-belichick-coaching-debut-un
 **Brian Kelly and LSU's D pass a big test that indicates this year might be different**\
 `LSU finally has a defense, and that makes it good enough to win a national championship.`\
 https://nytimes.com/athletic/6586914/2025/08/31/lsu-clemson-brian-kelly/
-
-**Israel’s Gaza Media Ban Is Indefensible**\
-`The ban indicates that Israel’s leaders are deliberately trying to conceal the war’s full horror.`\
-https://nytimes.com/2025/08/31/opinion/israel-gaza-media-journalists-ban.html
-
-**We Can Do Something About Stressed-Out Forests**\
-`The Trump administration could update the Roadless Rule to permit temporary roads to allow for forest thinning.`\
-https://nytimes.com/2025/08/31/opinion/roadless-rule-wildfires-wilderness.html
-
-**I’ll Have My Resistance on a Roll. Hold the Mayo.**\
-`As an emblem of resistance to Trump administration policies, the ineffectualness of a floppy sandwich is distressingly apt.`\
-https://nytimes.com/2025/08/31/opinion/sandwich-guy-trump.html
-
-**Clemson beaten but far from buried in CFP race after loss to LSU**\
-`Saturday night's game was more a testament to the strength of LSU then it was an indictment of Clemson's contender status.`\
-https://nytimes.com/athletic/6586908/2025/08/31/clemson-lsu-playoff-odds-dabo-swinney/
-
-**Sunday Special: This Summer in Culture**\
-`Taylor Swift, “KPop Demon Hunters,” Jet2 Holidays and more.`\
-https://nytimes.com/2025/08/31/podcasts/the-daily/summer-taylor-swift-kpop-demon-hunters.html
-
-**Wordle Review No. 1,535**\
-`Scroll down for hints and conversation about the puzzle for Monday, Sept. 1, 2025.`\
-https://nytimes.com/2025/08/31/crosswords/wordle-review-1535.html
 
