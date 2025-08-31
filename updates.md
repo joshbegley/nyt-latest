@@ -1,3 +1,11 @@
+**Northern Lights Could Put on a Show for Large Sections of the U.S.**\
+`A dazzling display in the nighttime sky might be seen much farther south than usual, including parts of Iowa, Oregon and Pennsylvania, by Tuesday, forecasters said.`\
+https://nytimes.com/2025/08/31/weather/northern-lights-aurora-tonight.html
+
+**Submit questions for Mitch Bannon’s upcoming Blue Jays mailbag**\
+`Mitch Bannon will answer subscribers' questions submitted here in an upcoming mailbag story.`\
+https://nytimes.com/athletic/6587498/2025/08/31/toronto-blue-jays-mailbag-questions/
+
 **Lowetide: Oilers management has a chance to shine with McDavid contract negotiations**\
 `Fans in Edmonton have been through years of questionable management decisions. Stan Bowman has a chance to change that.`\
 https://nytimes.com/athletic/6586029/2025/08/31/oilers-management-bowman-mcdavid-negotiations/
