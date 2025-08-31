@@ -1,3 +1,7 @@
+**Florida State-Alabama shocker was, above all, another indictment of Kalen DeBoer**\
+`Maybe Florida State can make a surprise CFP run this season. Certainly, Alabama was the biggest disappointment in Week 1. `\
+https://nytimes.com/athletic/6586717/2025/08/30/alabama-florida-state-kalen-deboer-mike-norvell/
+
 **Before Minnesota Shooting, a Program Aimed at Preventing Attacks Lost Federal Funding**\
 `The cut by the Trump administration does not appear to have affected the handling of the church shooting this week, but state leaders say it weakens efforts to identify future threats.`\
 https://nytimes.com/2025/08/30/us/minnesota-church-shooting-funding-cut.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6586505/2025/08/30/tulane-20th-anniversary-katrina-
 **Man United's Cunha withdraws from Brazil squad due to injury**\
 `The 26-year-old signalled to the bench that he needed to come off after clutching a hamstring around the half-hour mark.`\
 https://nytimes.com/athletic/6586529/2025/08/30/man-uinted-news-cunha-injury-brazil-burnley/
-
-**Rangers close to signing Everton forward Chermiti**\
-`The agreed deal comprises an initial fee of £8million, plus £2m in add-ons. The package also includes a significant sell-on clause.`\
-https://nytimes.com/athletic/6585983/2025/08/30/everton-transfer-news-rangers-youssef-chermiti/
 
