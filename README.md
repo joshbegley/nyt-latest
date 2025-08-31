@@ -1,3 +1,7 @@
+**Liverpool 1 Arsenal 0: Incredible Szoboszlai free kick from distance wins it at Anfield**\
+`Gregg Evans, Art de Roche and Anantaajith Raghuraman break down the match from Anfield`\
+https://nytimes.com/athletic/6587211/2025/08/31/liverpool-arsenal-premier-league-szoboszlai/
+
 **Israel Says It Killed the Spokesman for Hamas’s Armed Wing**\
 `Hamas did not immediately comment on the Israeli military’s claim that Abu Obeida, one of the armed group’s best-known officials in the Arab world, had been killed.`\
 https://nytimes.com/2025/08/31/world/middleeast/hamas-abu-obeida-israel-gaza-city.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6587431/2025/08/31/rayan-cherki-injury-update-pep-g
 **Dutch Grand Prix: Submit your questions for our F1 mailbag**\
 `What questions do you have for our F1 writers after the 2025 Dutch Grand Prix?`\
 https://nytimes.com/athletic/6587427/2025/08/31/dutch-gp-f1-mailbag/
-
-**Guardians pitchers' suspensions amid gambling investigation extended 'until further notice'**\
-`Both pitchers will remain on paid leave as MLB's gambling investigation continues.`\
-https://nytimes.com/athletic/6584203/2025/08/31/mlb-gambling-investigation-guardians-emmanuel-clase-luis-ortiz/
 
