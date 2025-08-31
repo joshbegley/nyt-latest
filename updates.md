@@ -1,3 +1,11 @@
+**Jeremy Lin retires from professional basketball after 9-year NBA career**\
+`The son of Taiwanese immigrants, Lin sparked the "Linsanity" phenomenon and became the first Asian American to win an NBA championship.`\
+https://nytimes.com/athletic/6587493/2025/08/31/jeremy-lin-linsanity-basketball-retirement/
+
+**Cubs claim starter Aaron Civale off waivers from White Sox**\
+`The right-handed starter has a 5.26 ERA in 18 starts this season with the Brewers and White Sox.`\
+https://nytimes.com/athletic/6587689/2025/08/31/cubs-aaron-civale-white-sox/
+
 **Already Pardoned by Trump, Jan. 6 Rioters Push for Compensation**\
 `One of the rioters’ lawyers wants to create a panel that would decide on financial damages for what the rioters believe were unfair prosecutions.`\
 https://nytimes.com/2025/08/31/us/politics/trump-jan-6-rioters-compensation.html

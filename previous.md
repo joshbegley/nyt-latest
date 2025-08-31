@@ -1,9 +1,13 @@
+**Jeremy Lin retires from professional basketball after 9-year NBA career**\
+`The son of Taiwanese immigrants, Lin sparked the "Linsanity" phenomenon and became the first Asian American to win an NBA championship.`\
+https://nytimes.com/athletic/6587493/2025/08/31/jeremy-lin-linsanity-basketball-retirement/
+
 **Already Pardoned by Trump, Jan. 6 Rioters Push for Compensation**\
 `One of the rioters’ lawyers wants to create a panel that would decide on financial damages for what the rioters believe were unfair prosecutions.`\
 https://nytimes.com/2025/08/31/us/politics/trump-jan-6-rioters-compensation.html
 
 **Cubs claim starter Aaron Civale off waivers from White Sox**\
-`The right-handed starter has a 5.26 ERA and in 18 starts this season with the Brewers and White Sox.`\
+`The right-handed starter has a 5.26 ERA in 18 starts this season with the Brewers and White Sox.`\
 https://nytimes.com/athletic/6587689/2025/08/31/cubs-aaron-civale-white-sox/
 
 **Thanasis Antetokounmpo re-signs with Bucks on 1-year deal after Achilles recovery**\
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/08/31/us/trump-news/noem-defends-deployment-of-the
 **Isiah Kiner-Falefa returns to Blue Jays to provide infield depth**\
 `Kiner-Falefa appeared in 83 games with the Jays last season, hitting .292 with seven homers and a .758 OPS.`\
 https://nytimes.com/athletic/6587647/2025/08/31/blue-jays-isiah-kiner-falefa/
-
-**Zdena Salivarova, Publisher Who Kept Czech Literature Alive, Dies at 91**\
-`In exile in Canada, she and her husband, the novelist Josef Skvorecky, published books that had been outlawed by the Soviet-backed Communist regime.`\
-https://nytimes.com/2025/08/31/books/zdena-salivarova-dead.html
 
