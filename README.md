@@ -1,3 +1,7 @@
+**‘A Future Filled With Hope’: Minneapolis Community Unites to Process the Tragedy**\
+`In the first Mass since an assailant attacked Annunciation Catholic Church, parishioners gathered to grieve and support one another.`\
+https://nytimes.com/2025/08/30/us/minneapolis-catholic-church-shooting.html
+
 **Florida State-Alabama shocker was, above all, another indictment of Kalen DeBoer**\
 `Maybe Florida State can make a surprise CFP run this season. Certainly, Alabama was the biggest disappointment in Week 1. `\
 https://nytimes.com/athletic/6586717/2025/08/30/alabama-florida-state-kalen-deboer-mike-norvell/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/30/crosswords/daily-puzzle-2025-08-31.html
 **Jon Sumrall calls out Northwestern for denying Tulane's 2005 team uniform homage**\
 `Coach Jon Sumrall told reporters Northwestern denied Tulane's request to wear white jerseys like the 2005 squad.`\
 https://nytimes.com/athletic/6586505/2025/08/30/tulane-20th-anniversary-katrina-helmets/
-
-**Man United's Cunha withdraws from Brazil squad due to injury**\
-`The 26-year-old signalled to the bench that he needed to come off after clutching a hamstring around the half-hour mark.`\
-https://nytimes.com/athletic/6586529/2025/08/30/man-uinted-news-cunha-injury-brazil-burnley/
 
