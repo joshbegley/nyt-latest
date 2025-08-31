@@ -1,3 +1,19 @@
+**Lowetide: Oilers management has a chance to shine with McDavid contract negotiations**\
+`Fans in Edmonton have been through years of questionable management decisions. Stan Bowman has a chance to change that.`\
+https://nytimes.com/athletic/6586029/2025/08/31/oilers-management-bowman-mcdavid-negotiations/
+
+**Nuno says Nottingham Forest had 'very bad day' in West Ham defeat**\
+`Nuno admitted the performance would "not help" the mood of his planned meeting with Forest owner Evangelos Marinakis next week.`\
+https://nytimes.com/athletic/6587449/2025/08/31/forest-west-ham-nuno-espirito-santo/
+
+**Chicago’s mayor rejects Trump’s plans to send troops to his city.**\
+`By Sonia A. Rao`\
+https://nytimes.com/live/2025/08/31/us/trump-news/chicago-order-trump-immigration-crackdown
+
+**Luka Dončić's historic triple-double gets Slovenia first win at EuroBasket**\
+`His 26-point, 11-assist, 10-rebound performance was the fifth triple-double recorded in the tournament’s history.`\
+https://nytimes.com/athletic/6587356/2025/08/31/luka-doncic-eurobasket-triple-double/
+
 **Manchester City's Cherki out for around two months with thigh injury**\
 `The 22-year-old signed this summer from Lyon and scored on his Premier League debut against Wolves. `\
 https://nytimes.com/athletic/6587431/2025/08/31/rayan-cherki-injury-update-pep-guardiola/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6587234/2025/08/31/brighton-man-city-result-score-a
 **Here’s My Favorite Fried Chicken Sandwich**\
 `And here’s how I turn it into pickle-brined grilled chicken.`\
 https://nytimes.com/2025/08/31/dining/heres-my-favorite-fried-chicken-sandwich.html
-
-**Tracking Tropical Storm Kiko**\
-`See the likely path and wind arrival times for Kiko`\
-https://nytimes.com/interactive/2025/08/31/weather/kiko-map-path-tracker.html
-
-**Deadly Floods in Punjab Devastate Pakistan’s Breadbasket**\
-`Housing communities and businesses that rely on agriculture have been destroyed in the country’s largest province.`\
-https://nytimes.com/2025/08/31/world/asia/summer-monsoon-floods-pakistan.html
-
-**Dutch GP briefing: Norris heartbreak as Piastri wins, Ferrari duo crash out**\
-`A late oil leak took the wind out of Lando Norris' title hopes as F1 returned with a dramatic Dutch GP.`\
-https://nytimes.com/athletic/6587174/2025/08/31/dutch-gp-briefing-oscar-piastri-lando-norris-lewis-hamilton-ferrari-crash/
-
-**Pirro Defends Guard Deployment and Takeover of D.C. Police Force**\
-`Jeanine Pirro, the U.S. attorney for Washington, also deflected criticism of a case in which her office was unable to obtain an indictment against a man who threw a sandwich at a federal agent.`\
-https://nytimes.com/2025/08/31/us/politics/pirro-national-guard-dc-police.html
 
