@@ -1,3 +1,11 @@
+**Introducing Our New Game**\
+`We show you how to play Pips, a new Times puzzle.`\
+https://nytimes.com/2025/08/31/briefing/pips-new-york-times-games.html
+
+**Mandel's Final Thoughts: Lee Corso aces farewell, Arch stumbles and FSU and LSU thrive**\
+`Plus: LSU and Florida State make statements, Alabama flops again under Kalen DeBoer and more from the first three days of Week 1.`\
+https://nytimes.com/athletic/6586943/2025/08/31/college-football-week-1-final-thoughts-osu-arch/
+
 **Mandel's Final Thoughts: Lee Corso aces farewell, Arch stumbles and FSU and LSU thrive**\
 `Plus: LSU and Florida State make statements, Alabama flops again under Kalen DeBoer and more from the first three days of Week 1.`\
 https://nytimes.com/athletic/6586943/2025/08/31/mandels-final-thoughts-lee-corso-salute-and-arch-mannings-shockingly-bad-performance/
