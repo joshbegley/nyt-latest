@@ -1,3 +1,15 @@
+**Already Pardoned by Trump, Jan. 6 Rioters Push for Compensation**\
+`One of the rioters’ lawyers wants to create a panel that would decide on financial damages for what the rioters believe were unfair prosecutions.`\
+https://nytimes.com/2025/08/31/us/politics/trump-jan-6-rioters-compensation.html
+
+**Cubs claim starter Aaron Civale off waivers from White Sox**\
+`The right-handed starter has a 5.26 ERA and in 18 starts this season with the Brewers and White Sox.`\
+https://nytimes.com/athletic/6587689/2025/08/31/cubs-aaron-civale-white-sox/
+
+**Thanasis Antetokounmpo re-signs with Bucks on 1-year deal after Achilles recovery**\
+`Antetokounmpo, the older brother of two-time NBA MVP Giannis Antetokounmpo, played for the Bucks for five seasons from 2019 to 2024.`\
+https://nytimes.com/athletic/6587690/2025/08/31/thanasis-antetokounmpo-re-signs-with-bucks-1-year-deal/
+
 **Sheriff Who Inspired ‘Walking Tall’ Movie Killed His Wife, Inquiry Says**\
 `Buford Pusser, who was portrayed in the 1973 hit movie, led people to believe that his wife was ambushed by his enemies, cold-case investigators in Tennessee said.`\
 https://nytimes.com/2025/08/31/us/buford-pusser-walking-tall-tennessee.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6587647/2025/08/31/blue-jays-isiah-kiner-falefa/
 **Zdena Salivarova, Publisher Who Kept Czech Literature Alive, Dies at 91**\
 `In exile in Canada, she and her husband, the novelist Josef Skvorecky, published books that had been outlawed by the Soviet-backed Communist regime.`\
 https://nytimes.com/2025/08/31/books/zdena-salivarova-dead.html
-
-**Boy Shot During ‘Ding Dong Ditch’ Prank in Texas**\
-`The police in Houston detained a person after a 10-year-old boy who had knocked on a door was shot on Saturday night, officials said.`\
-https://nytimes.com/2025/08/31/us/houston-boy-shot-ding-dong-ditch.html
-
-**Florida State QB Tommy Castellanos mocks Alabama with merch after upset**\
-`Some of the merchandise features the line "Nick Can't Save Them," a reference to his eyebrow-raising comments earlier this summer.`\
-https://nytimes.com/athletic/6587563/2025/08/31/fsu-qb-tommy-castellanos-mocks-alabama-with-merch/
-
-**Cowboys, CB DaRon Bland agree to 4-year contract extension**\
-`Bland has intercepted 14 passes since coming into the league in 2022.`\
-https://nytimes.com/athletic/6587607/2025/08/31/cowboys-daron-bland-contract-extension/
 
