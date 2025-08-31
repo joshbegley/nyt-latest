@@ -14,7 +14,7 @@ https://nytimes.com/athletic/6587158/2025/08/31/michael-salisbury-var-chelsea-li
 `Readers respond to an essay by a conservative mother on the importance of Medicaid to the care of her disabled son.`\
 https://nytimes.com/2025/08/31/opinion/medicaid-cuts-disability.html
 
-**Trump Administration Live Updates: Judge Temporary Blocks Removal of Guatemalan Children**\
+**Trump Administration Live Updates: Judge Temporarily Blocks Removal of Guatemalan Children**\
 ``\
 https://nytimes.com/live/2025/08/31/us/trump-news
 
