@@ -1,3 +1,7 @@
+**Cam Schlittler's rapid rise puts rookie in Yankees' October rotation plans**\
+`Schlittler's 1.60 ERA in August is the lowest ERA by a Yankee starter with at least five starts since Ron Guidry in 1978.`\
+https://nytimes.com/athletic/6586807/2025/08/31/cam-schlittler-yankees-rookie-playoff-rotation/
+
 **Newcastle need the transfer window to end before their season can begin**\
 `The noise and distractions from this summer have left Eddie Howe and his squad looking weary`\
 https://nytimes.com/athletic/6584145/2025/08/31/newcastle-united-transfer-window-end/

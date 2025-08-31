@@ -1,3 +1,7 @@
+**Cam Schlittler's rapid rise puts rookie in Yankees' October rotation plans**\
+`Schlittler's 1.60 ERA in August is the lowest ERA by a Yankee starter with at least five starts since Ron Guidry in 1978.`\
+https://nytimes.com/athletic/6586807/2025/08/31/cam-schlittler-yankees-rookie-playoff-rotation/
+
 **Newcastle need the transfer window to end before their season can begin**\
 `The noise and distractions from this summer have left Eddie Howe and his squad looking weary`\
 https://nytimes.com/athletic/6584145/2025/08/31/newcastle-united-transfer-window-end/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6586072/2025/08/31/the-off-ball-run-that-explains-w
 **Watching Amorim for 90 minutes: Stressed, pacing, hating penalties**\
 `The full range of Amorim gestures, postures and emotions during United's dramatic and much-needed win over Burnley`\
 https://nytimes.com/athletic/6586065/2025/08/31/manchester-united-ruben-amorim-burnley/
-
-**Trump Says He Will Sign Executive Order Mandating Voter I.D.**\
-`He also wants to restrict mail-in voting and allow only paper ballots. The Constitution doesn’t give the president explicit authority over election law.`\
-https://nytimes.com/2025/08/31/us/politics/trump-voter-id-executive-order.html
 
