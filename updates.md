@@ -1,3 +1,11 @@
+**Trump Administration Live Updates: Judge Temporary Blocks Removal of Guatemalan Children**\
+``\
+https://nytimes.com/live/2025/08/31/us/trump-news
+
+**Martinez re-emerging as Man Utd option, Sancho been discussed in talks**\
+`United have also been in negotiations with Royal Antwerp on Senne Lammens for the past week or so but have yet to agree a fee.`\
+https://nytimes.com/athletic/6587161/2025/08/31/emi-martinez-man-utd-villa-lammens/
+
 **Arizona State won its opener. The biggest part was everyone was there to see it**\
 `The best place to watch Saturday's game was from the last row, where the result of Arizona State's effort to "Activate the Valley" showed.`\
 https://nytimes.com/athletic/6586945/2025/08/31/arizona-state-season-opener-sellout-northern-arizona/
