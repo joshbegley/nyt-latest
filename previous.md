@@ -1,3 +1,11 @@
+**Wissa says Brentford 'unduly standing in my way' as forward 'makes clear' he wants to leave**\
+`Brentford previously turned down a bid worth £35million plus £5m in difficult-to-achieve add-ons from Newcastle for the 28-year-old.`\
+https://nytimes.com/athletic/6565086/2025/08/31/yoane-wissa-brentford-exit-statement/
+
+**Fulham agree deal for Shakhtar winger Kevin**\
+`Shakhtar Donetsk winger Kevin is set to arrive in London ahead of a proposed move to Premier League side Fulham`\
+https://nytimes.com/athletic/6551487/2025/08/31/fulham-transfer-news-shakhtar-donetsk-kevin/
+
 **The New York Times International Edition in Print for Monday, Sep. 1, 2025**\
 ``\
 https://nytimes.com/issue/todaysinyt/2025/08/31/todays-new-york-times-international-edition
@@ -29,12 +37,4 @@ https://nytimes.com/2025/08/31/us/minneapolis-school-shooter-motive.html
 **If Redistricting Goes as Expected, Which Party Will Come Out Ahead?**\
 `Democrats would probably need to win the national popular vote by two or three percentage points to retake the House next year.`\
 https://nytimes.com/2025/08/31/upshot/redistricting-analysis-2026-midterms.html
-
-**How Trump Could Overhaul the Fed**\
-`The president wants to pack the central bank’s Board of Governors with loyalists, which would grant him greater sway over an institution that is supposed to be independent from the White House.`\
-https://nytimes.com/2025/08/31/business/how-trump-could-overhaul-the-fed.html
-
-**Redistricting Push Creates Chaos for Incumbents in Both Parties**\
-`Republicans and Democrats in Congress are wary of the potential consequences of President Trump’s drive to redraw districts.`\
-https://nytimes.com/2025/08/31/us/politics/redistricting-demcorats-republicans-texas-california.html
 

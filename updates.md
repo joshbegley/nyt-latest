@@ -1,3 +1,11 @@
+**Wissa says Brentford 'unduly standing in my way' as forward 'makes clear' he wants to leave**\
+`Brentford previously turned down a bid worth £35million plus £5m in difficult-to-achieve add-ons from Newcastle for the 28-year-old.`\
+https://nytimes.com/athletic/6565086/2025/08/31/yoane-wissa-brentford-exit-statement/
+
+**Fulham agree deal for Shakhtar winger Kevin**\
+`Shakhtar Donetsk winger Kevin is set to arrive in London ahead of a proposed move to Premier League side Fulham`\
+https://nytimes.com/athletic/6551487/2025/08/31/fulham-transfer-news-shakhtar-donetsk-kevin/
+
 **The New York Times International Edition in Print for Monday, Sep. 1, 2025**\
 ``\
 https://nytimes.com/issue/todaysinyt/2025/08/31/todays-new-york-times-international-edition
