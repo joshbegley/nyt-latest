@@ -1,3 +1,7 @@
+**Chelsea in talks with Sunderland over Guiu recall**\
+`The talks follow the injury sustained by Chelsea striker Liam Delap during Saturday’s 2-0 win over Fulham.`\
+https://nytimes.com/athletic/6588074/2025/08/31/marc-guiu-chelsea-sunderland/
+
 **'No deal' in place to sell Guehi, says Glasner**\
 `"(I understand it) from a financial perspective. It's a tempting situation. It's a challenging situation," Glasner added.`\
 https://nytimes.com/athletic/6588083/2025/08/31/marc-guehi-transfer-palace-liverpool/
