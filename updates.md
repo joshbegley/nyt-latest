@@ -1,3 +1,11 @@
+**A Shattered City Asks for Its Sacrifice to Be Repaid**\
+`Millions of Syrians from destroyed places like Daraya feel they did everything possible to overthrow the Assad government, but they still await reconstruction aid.`\
+https://nytimes.com/2025/08/31/world/middleeast/syria-damascus-war-daraya.html
+
+**One last famous U.S. Open win for a tennis legend who retreated from his own greatness**\
+`Connors and Krickstein's 1991 Labor Day match is a staple of Grand Slam highlight reels — and symbol of Connors' status as a tennis hermit.`\
+https://nytimes.com/athletic/6581753/2025/08/31/us-open-jimmy-connors-aaron-krickstein-match/
+
 **Russian Strikes on Western Assets in Ukraine Send an Ominous Message**\
 `Hitting an American-run factory and European diplomatic offices, the Kremlin appeared to signal that it would resist Western efforts to make peace and protect Ukraine, analysts and officials said.`\
 https://nytimes.com/2025/08/31/world/europe/russia-ukraine-western-targets.html
