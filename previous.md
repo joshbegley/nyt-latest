@@ -1,4 +1,12 @@
-**Man Found Dead at Burning Man Festival**\
+**Giuliani Is Hurt in Car Crash in New Hampshire**\
+`Mr. Giuliani, the former New York City mayor and lawyer for President Trump, suffered a fractured vertebra, his head of security said.`\
+https://nytimes.com/2025/08/31/us/politics/rudy-giuliani-accident-car-crash-new-hampshire.html
+
+**Houthis Vow Revenge After Israeli Attack Kills Senior Officials**\
+`Israel’s assassination of top officials last week is likely to make the Iranian-backed militia even more hawkish, Yemen analysts say.`\
+https://nytimes.com/2025/08/31/world/middleeast/yemen-houthis-israel.html
+
+**Man Found Dead at Burning Man, Prompting Homicide Investigation**\
 `The victim, whose identity was unknown, was found “lying in a pool of blood” on Saturday night, officials said.`\
 https://nytimes.com/2025/08/31/us/burning-man-festival-dead.html
 
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6587689/2025/08/31/cubs-aaron-civale-white-sox/
 **Thanasis Antetokounmpo re-signs with Bucks on 1-year deal after Achilles recovery**\
 `Antetokounmpo, the older brother of two-time NBA MVP Giannis Antetokounmpo, played for the Bucks for five seasons from 2019 to 2024.`\
 https://nytimes.com/athletic/6587690/2025/08/31/thanasis-antetokounmpo-re-signs-with-bucks-1-year-deal/
-
-**Sheriff Who Inspired ‘Walking Tall’ Movie Killed His Wife, Inquiry Says**\
-`Buford Pusser, who was portrayed in the 1973 hit movie, led people to believe that his wife was ambushed by his enemies, cold-case investigators in Tennessee said.`\
-https://nytimes.com/2025/08/31/us/buford-pusser-walking-tall-tennessee.html
-
-**Lando Norris’s Dutch GP agony reshapes his F1 title fight tactics against Piastri**\
-`Lando Norris's Dutch GP retirement cost him major ground to teammate and title rival Oscar Piastri, which alters his F1 season run in`\
-https://nytimes.com/athletic/6587530/2025/08/31/lando-norris-dutch-gp/
 

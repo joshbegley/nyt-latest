@@ -1,3 +1,15 @@
+**Giuliani Is Hurt in Car Crash in New Hampshire**\
+`Mr. Giuliani, the former New York City mayor and lawyer for President Trump, suffered a fractured vertebra, his head of security said.`\
+https://nytimes.com/2025/08/31/us/politics/rudy-giuliani-accident-car-crash-new-hampshire.html
+
+**Houthis Vow Revenge After Israeli Attack Kills Senior Officials**\
+`Israel’s assassination of top officials last week is likely to make the Iranian-backed militia even more hawkish, Yemen analysts say.`\
+https://nytimes.com/2025/08/31/world/middleeast/yemen-houthis-israel.html
+
+**Man Found Dead at Burning Man, Prompting Homicide Investigation**\
+`The victim, whose identity was unknown, was found “lying in a pool of blood” on Saturday night, officials said.`\
+https://nytimes.com/2025/08/31/us/burning-man-festival-dead.html
+
 **Man Found Dead at Burning Man Festival**\
 `The victim, whose identity was unknown, was found “lying in a pool of blood” on Saturday night, officials said.`\
 https://nytimes.com/2025/08/31/us/burning-man-festival-dead.html

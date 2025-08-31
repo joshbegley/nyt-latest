@@ -1,3 +1,7 @@
+**U.S. Suspends Visas for Palestinian Passport Holders, Officials Say**\
+`The move will stop, at least temporarily, travel for medical treatment, attending university, visiting relatives or conducting business.`\
+https://nytimes.com/2025/08/31/world/middleeast/us-palestinian-visa-suspensions.html
+
 **Giuliani Is Hurt in Car Crash in New Hampshire**\
 `Mr. Giuliani, the former New York City mayor and lawyer for President Trump, suffered a fractured vertebra, his head of security said.`\
 https://nytimes.com/2025/08/31/us/politics/rudy-giuliani-accident-car-crash-new-hampshire.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/31/us/politics/trump-jan-6-rioters-compensation.html
 **Cubs claim starter Aaron Civale off waivers from White Sox**\
 `The right-handed starter has a 5.26 ERA in 18 starts this season with the Brewers and White Sox.`\
 https://nytimes.com/athletic/6587689/2025/08/31/cubs-aaron-civale-white-sox/
-
-**Thanasis Antetokounmpo re-signs with Bucks on 1-year deal after Achilles recovery**\
-`Antetokounmpo, the older brother of two-time NBA MVP Giannis Antetokounmpo, played for the Bucks for five seasons from 2019 to 2024.`\
-https://nytimes.com/athletic/6587690/2025/08/31/thanasis-antetokounmpo-re-signs-with-bucks-1-year-deal/
 
