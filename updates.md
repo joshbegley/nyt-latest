@@ -1,3 +1,7 @@
+**What this picture says about Jack Grealish and his meaning to Everton**\
+`The on-loan England international is a beacon of hope, as well as a superb player, in a team that looks re-energised`\
+https://nytimes.com/athletic/6586329/2025/08/31/jack-grealish-everton-transfer-impact/
+
 **Phillies to sign Walker Buehler, who will be postseason-eligible: Sources**\
 `Buehler could serve as a swingman for the rest of this season; the Phillies can use him in the bullpen, then as a spot starter if needed. `\
 https://nytimes.com/athletic/6587594/2025/08/31/walker-buehler-phillies-contract-playoff-eligible/

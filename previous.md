@@ -1,3 +1,7 @@
+**What this picture says about Jack Grealish and his meaning to Everton**\
+`The on-loan England international is a beacon of hope, as well as a superb player, in a team that looks re-energised`\
+https://nytimes.com/athletic/6586329/2025/08/31/jack-grealish-everton-transfer-impact/
+
 **Phillies to sign Walker Buehler, who will be postseason-eligible: Sources**\
 `Buehler could serve as a swingman for the rest of this season; the Phillies can use him in the bullpen, then as a spot starter if needed. `\
 https://nytimes.com/athletic/6587594/2025/08/31/walker-buehler-phillies-contract-playoff-eligible/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6586779/2025/08/31/rough-starts-for-both-arch-manni
 **Forest confirm John Victor signing**\
 `The 29-year-old becomes Forest's third signing from Botafogo this summer, with a fourth on the way in the form of full-back Cuiabano.`\
 https://nytimes.com/athletic/6477616/2025/08/31/john-victor-nottingham-forest/
-
-**Jeremy Lin retires from professional basketball after 9-year NBA career**\
-`The son of Taiwanese immigrants, Lin sparked the "Linsanity" phenomenon and became the first Asian American to win an NBA championship.`\
-https://nytimes.com/athletic/6587493/2025/08/31/jeremy-lin-linsanity-basketball-retirement/
 
