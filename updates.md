@@ -1,3 +1,11 @@
+**Israel Says It Killed the Spokesman for Hamas’s Armed Wing**\
+`Hamas did not immediately comment on the Israeli military’s claim that Abu Obeida, one of the armed group’s best-known officials in the Arab world, had been killed.`\
+https://nytimes.com/2025/08/31/world/middleeast/hamas-abu-obeida-israel-gaza-city.html
+
+**Chicago’s Mayor Rejects Trump’s Plans to Send Troops to His City**\
+`Mayor Brandon Johnson of Chicago ordered local police officers not to aid the federal crackdown, ramping up the tensions between the White House and state and local officials.`\
+https://nytimes.com/2025/08/31/us/politics/chicago-order-trump-immigration-crackdown.html
+
 **Northern Lights Could Put on a Show for Large Sections of the U.S.**\
 `A dazzling display in the nighttime sky might be seen much farther south than usual, including parts of Iowa, Oregon and Pennsylvania, by Tuesday, forecasters said.`\
 https://nytimes.com/2025/08/31/weather/northern-lights-aurora-tonight.html
