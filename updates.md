@@ -1,3 +1,7 @@
+**Liverpool 1 Arsenal 0: Incredible Szoboszlai free kick from distance wins it at Anfield**\
+`Gregg Evans, Art de Roche and Anantaajith Raghuraman break down the match from Anfield`\
+https://nytimes.com/athletic/6587211/2025/08/31/liverpool-arsenal-premier-league-szoboszlai/
+
 **Israel Says It Killed the Spokesman for Hamas’s Armed Wing**\
 `Hamas did not immediately comment on the Israeli military’s claim that Abu Obeida, one of the armed group’s best-known officials in the Arab world, had been killed.`\
 https://nytimes.com/2025/08/31/world/middleeast/hamas-abu-obeida-israel-gaza-city.html
