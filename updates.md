@@ -1,3 +1,7 @@
+**Man Found Dead at Burning Man Festival**\
+`The victim, whose identity was unknown, was found “lying in a pool of blood” on Saturday night, officials said.`\
+https://nytimes.com/2025/08/31/us/burning-man-festival-dead.html
+
 **Villa target Asensio set for Fenerbahce move**\
 `The Spain international is due to fly to Istanbul tonight to complete the transfer.`\
 https://nytimes.com/athletic/6488980/2025/08/31/marco-asensio-fenerbahce-villa/

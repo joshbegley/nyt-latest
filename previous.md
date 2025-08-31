@@ -1,3 +1,7 @@
+**Man Found Dead at Burning Man Festival**\
+`The victim, whose identity was unknown, was found “lying in a pool of blood” on Saturday night, officials said.`\
+https://nytimes.com/2025/08/31/us/burning-man-festival-dead.html
+
 **Villa target Asensio set for Fenerbahce move**\
 `The Spain international is due to fly to Istanbul tonight to complete the transfer.`\
 https://nytimes.com/athletic/6488980/2025/08/31/marco-asensio-fenerbahce-villa/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/31/us/buford-pusser-walking-tall-tennessee.html
 **Lando Norris’s Dutch GP agony reshapes his F1 title fight tactics against Piastri**\
 `Lando Norris's Dutch GP retirement cost him major ground to teammate and title rival Oscar Piastri, which alters his F1 season run in`\
 https://nytimes.com/athletic/6587530/2025/08/31/lando-norris-dutch-gp/
-
-**Daniil Medvedev splits with coach of eight years after U.S. Open unraveling**\
-`"Thank you Gilles," Medvedev wrote with a heart emoji on Instagram. "Amazing 8-10 years together, 20 titles, world number 1."`\
-https://nytimes.com/athletic/6587291/2025/08/31/daniil-medvev-us-open-coach-split-tennis/
 
