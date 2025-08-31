@@ -1,3 +1,7 @@
+**Kansas City Current clinch NWSL playoff spot with 8 weeks to spare**\
+`With Saturday's win, Kansas City matched the 2024 Orlando Pride's record for the fastest team to secure a playoff spot in NWSL history.`\
+https://nytimes.com/athletic/6586798/2025/08/30/nwsl-kansas-city-current-clinch-playoff-spot/
+
 **Suspect in Montana Bar Shooting Faces 4 Murder Charges**\
 `The man is accused of fatally shooting four people in a bar in Anaconda, Mont. He had led the police on an eight-day manhunt that rattled the community.`\
 https://nytimes.com/2025/08/30/us/montana-bar-shooting.html

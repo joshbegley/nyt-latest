@@ -1,3 +1,7 @@
+**Kansas City Current clinch NWSL playoff spot with 8 weeks to spare**\
+`With Saturday's win, Kansas City matched the 2024 Orlando Pride's record for the fastest team to secure a playoff spot in NWSL history.`\
+https://nytimes.com/athletic/6586798/2025/08/30/nwsl-kansas-city-current-clinch-playoff-spot/
+
 **Suspect in Montana Bar Shooting Faces 4 Murder Charges**\
 `The man is accused of fatally shooting four people in a bar in Anaconda, Mont. He had led the police on an eight-day manhunt that rattled the community.`\
 https://nytimes.com/2025/08/30/us/montana-bar-shooting.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6586357/2025/08/30/texas-arch-manning-ohio-state-sp
 **Shilo Sanders fined for punch thrown in Buccaneers preseason finale: Source**\
 `Sanders was ejected from the Bucs' preseason finale for throwing a punch at Bills tight end Zach Davidson.`\
 https://nytimes.com/athletic/6586460/2025/08/30/shilo-sanders-fine-nfl-tampa-bay-buccaneers/
-
-**Over 15 Killed in Gaza City, One Day After Israel Ends Daily Pauses for Aid**\
-`One attack was an effort to assassinate Abu Obeida, one of Hamas’s best-known spokesmen, Israeli officials said. It was not immediately clear if that succeeded.`\
-https://nytimes.com/2025/08/30/world/middleeast/gaza-israel-deadly-strikes.html
 
