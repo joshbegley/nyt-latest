@@ -1,3 +1,11 @@
+**Brighton's Lamptey finalising transfer to Fiorentina, Sarmiento set for Cremonese move**\
+`Lamptey has fallen down the pecking order with head coach Hurzeler while Sarmiento spent last season out on loan.`\
+https://nytimes.com/athletic/6587051/2025/08/31/brighton-tariq-lamptey-fiorentina-jeremy-sarmiento-cremonese/
+
+**What NFL head coaches learn from the tough lessons of their top assistants**\
+`Several first-year NFL head coaches, mostly offense-oriented, turned to former head coaches to run their defenses. Here's why.`\
+https://nytimes.com/athletic/6581609/2025/08/31/robert-saleh-brian-flores-nfl-coaches-lessons/
+
 **Bill Belichick makes his Tar Heels debut Monday. Here's how to watch TCU vs. UNC**\
 `Bill Belichick makes his college football coaching debut with a Labor Day showdown Monday night. Will the Patriot way work at Chapel Hill?`\
 https://nytimes.com/athletic/6584853/2025/08/31/bill-belichick-coaching-debut-unc-tcu-how-to-watch/
