@@ -1,3 +1,7 @@
+**Guardians pitchers' suspensions amid gambling investigation extended 'until further notice'**\
+`Both pitchers will remain on paid leave as MLB's gambling investigation continues.`\
+https://nytimes.com/athletic/6584203/2025/08/31/mlb-gambling-investigation-guardians-emmanuel-clase-luis-ortiz/
+
 **Cubs finalizing deal to add Carlos Santana for playoff push: Source**\
 `Santana was released by the Cleveland Guardians so that he could pursue a better opportunity with a playoff contender.`\
 https://nytimes.com/athletic/6587312/2025/08/31/cubs-add-carlos-santana-playoff-push/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6500147/2025/08/31/bayern-munich-approach-ademola-l
 **He Made Barneys. He Lost Barneys. He Lived to Tell the Tale.**\
 `Gene Pressman, the impresario behind the world-famous department store, would have done things differently.`\
 https://nytimes.com/2025/08/31/style/barneys-gene-pressman-memoir.html
-
-**No night game, no problem: An electric Ohio State atmosphere and more takeaways from Texas**\
-`Ohio State overwhelmed Texas with impressive defense — and an electric crowd despite a maligned noon kickoff. Here's what I saw and heard.`\
-https://nytimes.com/athletic/6587111/2025/08/31/ohio-state-takeaways-texas-sayin-noon-stadium/
 
