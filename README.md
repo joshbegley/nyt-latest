@@ -1,3 +1,11 @@
+**Pirro Defends Guard Deployment and Takeover of D.C. Police Force**\
+`Jeanine Pirro, the U.S. attorney for Washington, also deflected criticism of a case in which her office was unable to obtain an indictment against a man who threw a sandwich at a federal agent.`\
+https://nytimes.com/2025/08/31/us/politics/pirro-national-guard-dc-police.html
+
+**Bayern make approach to sign Atalanta forward Ademola Lookman**\
+`Bayern had previously agreed a deal with Chelsea for Nicolas Jackson, before the London side informed them they would not proceed with it. `\
+https://nytimes.com/athletic/6500147/2025/08/31/bayern-munich-approach-ademola-lookman-atalanta/
+
 **He Made Barneys. He Lost Barneys. He Lived to Tell the Tale.**\
 `Gene Pressman, the impresario behind the world-famous department store, would have done things differently.`\
 https://nytimes.com/2025/08/31/style/barneys-gene-pressman-memoir.html
@@ -29,12 +37,4 @@ https://nytimes.com/live/2025/08/31/us/trump-news
 **Martinez re-emerging as Man Utd option, Sancho been discussed in talks**\
 `United have also been in negotiations with Royal Antwerp on Senne Lammens for the past week or so but are yet to agree a fee.`\
 https://nytimes.com/athletic/6587161/2025/08/31/emi-martinez-man-utd-villa-lammens/
-
-**Arizona State won its opener. The biggest part was everyone was there to see it**\
-`The best place to watch Saturday's game was from the last row, where the result of Arizona State's effort to "Activate the Valley" showed.`\
-https://nytimes.com/athletic/6586945/2025/08/31/arizona-state-season-opener-sellout-northern-arizona/
-
-**Judge Temporarily Blocks U.S. Efforts to Deport Guatemalan Children**\
-`The ruling came hours after some shelters were directed to prepare children to be sent back to Guatemala. A hearing was scheduled for Sunday afternoon.`\
-https://nytimes.com/2025/08/31/us/politics/trump-deportations-judge-guatemala-children.html
 

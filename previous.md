@@ -1,3 +1,11 @@
+**He Made Barneys. He Lost Barneys. He Lived to Tell the Tale.**\
+`Gene Pressman, the impresario behind the world-famous department store, would have done things differently.`\
+https://nytimes.com/2025/08/31/style/barneys-gene-pressman-memoir.html
+
+**No night game, no problem: An electric Ohio State atmosphere and more takeaways from Texas**\
+`Ohio State overwhelmed Texas with impressive defense — and an electric crowd despite a maligned noon kickoff. Here's what I saw and heard.`\
+https://nytimes.com/athletic/6587111/2025/08/31/ohio-state-takeaways-texas-sayin-noon-stadium/
+
 **Until Saturday: Week 1 surprises and Alabama hot seats**\
 `Until Saturday is The Athletic's free college football newsletter.`\
 https://nytimes.com/athletic/6587192/2025/08/31/college-football-ohio-state-arch-manning-until-saturday/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6586945/2025/08/31/arizona-state-season-opener-sell
 **Judge Temporarily Blocks U.S. Efforts to Deport Guatemalan Children**\
 `The ruling came hours after some shelters were directed to prepare children to be sent back to Guatemala. A hearing was scheduled for Sunday afternoon.`\
 https://nytimes.com/2025/08/31/us/politics/trump-deportations-judge-guatemala-children.html
-
-**Introducing Our New Game**\
-`We show you how to play Pips, a new Times puzzle.`\
-https://nytimes.com/2025/08/31/briefing/pips-new-york-times-games.html
-
-**Mandel's Final Thoughts: Lee Corso aces farewell, Arch stumbles and FSU and LSU thrive**\
-`Plus: LSU and Florida State make statements, Alabama flops again under Kalen DeBoer and more from the first three days of Week 1.`\
-https://nytimes.com/athletic/6586943/2025/08/31/college-football-week-1-final-thoughts-osu-arch/
 

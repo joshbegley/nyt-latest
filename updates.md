@@ -1,3 +1,11 @@
+**He Made Barneys. He Lost Barneys. He Lived to Tell the Tale.**\
+`Gene Pressman, the impresario behind the world-famous department store, would have done things differently.`\
+https://nytimes.com/2025/08/31/style/barneys-gene-pressman-memoir.html
+
+**No night game, no problem: An electric Ohio State atmosphere and more takeaways from Texas**\
+`Ohio State overwhelmed Texas with impressive defense — and an electric crowd despite a maligned noon kickoff. Here's what I saw and heard.`\
+https://nytimes.com/athletic/6587111/2025/08/31/ohio-state-takeaways-texas-sayin-noon-stadium/
+
 **Trump Administration Live Updates: Judge Temporarily Blocks Removal of Guatemalan Children**\
 ``\
 https://nytimes.com/live/2025/08/31/us/trump-news
