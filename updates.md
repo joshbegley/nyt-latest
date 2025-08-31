@@ -1,3 +1,7 @@
+**China Shows Off its Power**\
+`Xi Jinping is using a summit with leaders like Narendra Modi and Vladimir Putin as an opportunity to pull countries away from the U.S.`\
+https://nytimes.com/2025/08/31/briefing/xi-modi-putin-summit-tianjin.html
+
 **What this picture says about Jack Grealish and his meaning to Everton**\
 `The on-loan England international is a beacon of hope, as well as a superb player, in a team that looks re-energised`\
 https://nytimes.com/athletic/6586329/2025/08/31/jack-grealish-everton-transfer-impact/
