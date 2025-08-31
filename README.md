@@ -1,3 +1,15 @@
+**Thirty-six hours and three main objectives for Fosun to build bridges with critical Wolves fans**\
+`Wolves are facing a critical period before the transfer window shuts as they try to build and maintain a squad to compete in the top flight`\
+https://nytimes.com/athletic/6586154/2025/08/31/wolves-fosun-fans-strand-larsen-transfers/
+
+**A 'smash and grab' win against Millwall adds to Wrexham's mixed first month in Championship**\
+`It's been a month back in the Championship for Wrexham. So how are they shaping up?`\
+https://nytimes.com/athletic/6575648/2025/08/31/millwall-wrexham-championship-result-analysed/
+
+**Farke, Leeds United and a very understated transfer ultimatum**\
+`The Leeds manager wants attacking quality adding before the transfer deadline. Will he get it?`\
+https://nytimes.com/athletic/6586552/2025/08/31/leeds-united-transfers-daniel-farke/
+
 **After an unbeaten domestic campaign, how do Chelsea improve perfection?**\
 `Chelsea's 4-1 win over AC Milan on Saturday showed how high the bar is set for Sonia Bompastor's side`\
 https://nytimes.com/athletic/6586205/2025/08/31/chelsea-women-perfection-beever-jones/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6583866/2025/08/31/arteta-arsenal-under-armour-prem
 **A City Reinvented: Paris Is Now Greater Paris**\
 `The periphery of the French capital is more vital than ever, and its creativity and dynamism have blurred old boundaries.`\
 https://nytimes.com/2025/08/31/world/europe/a-city-reinvented-paris-is-now-greater-paris.html
-
-**Quote of the Day: They Left New Orleans After Katrina. New Orleans Never Left Them.**\
-`Quotation of the Day for Sunday, August 31, 2025.`\
-https://nytimes.com/2025/08/31/pageoneplus/quote-of-the-day-they-left-new-orleans-after-katrina-new-orleans-never-left-them.html
-
-**Connections: Sports Edition Coach: Hints for Aug. 31, 2025**\
-`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
-https://nytimes.com/athletic/6586300/2025/08/31/connections-sports-edition-hints-for-aug-31-2025/
-
-**America Closed Malls, but China Kept Building Them. Now It Has Too Many.**\
-`The first closing of an Apple Store in mainland China hints at broader troubles facing the country’s shopping malls as developers open more of them despite a glut.`\
-https://nytimes.com/2025/08/31/business/china-shopping-malls.html
 
