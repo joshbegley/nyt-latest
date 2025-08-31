@@ -1,3 +1,11 @@
+**Northern Lights Could Put on a Show for Large Sections of the U.S.**\
+`A dazzling display in the nighttime sky might be seen much farther south than usual, including parts of Iowa, Oregon and Pennsylvania, by Tuesday, forecasters said.`\
+https://nytimes.com/2025/08/31/weather/northern-lights-aurora-tonight.html
+
+**Submit questions for Mitch Bannon’s upcoming Blue Jays mailbag**\
+`Mitch Bannon will answer subscribers' questions submitted here in an upcoming mailbag story.`\
+https://nytimes.com/athletic/6587498/2025/08/31/toronto-blue-jays-mailbag-questions/
+
 **Lowetide: Oilers management has a chance to shine with McDavid contract negotiations**\
 `Fans in Edmonton have been through years of questionable management decisions. Stan Bowman has a chance to change that.`\
 https://nytimes.com/athletic/6586029/2025/08/31/oilers-management-bowman-mcdavid-negotiations/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6584203/2025/08/31/mlb-gambling-investigation-guard
 **Cubs finalizing deal to add Carlos Santana for playoff push: Source**\
 `Santana was released by the Cleveland Guardians so that he could pursue a better opportunity with a playoff contender.`\
 https://nytimes.com/athletic/6587312/2025/08/31/cubs-add-carlos-santana-playoff-push/
-
-**Brighton 2 Manchester City 1: Full-backs all at sea in second straight defeat**\
-`Pep Guardiola's men have three points from the first three games, blowing a lead at the Amex a week after losing 2-0 at home to Tottenham`\
-https://nytimes.com/athletic/6587234/2025/08/31/brighton-man-city-result-score-analysis/
-
-**Here’s My Favorite Fried Chicken Sandwich**\
-`And here’s how I turn it into pickle-brined grilled chicken.`\
-https://nytimes.com/2025/08/31/dining/heres-my-favorite-fried-chicken-sandwich.html
 
