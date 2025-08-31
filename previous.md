@@ -2,6 +2,10 @@
 `The journeyman played for eight N.B.A. teams and won one championship. But he is best known for a brief stretch on the Knicks where he electrified fans and the nation.`\
 https://nytimes.com/2025/08/31/sports/basketball/jeremy-lin-retires-linsanity-knicks.html
 
+**Cubs hope Coors Field effect can get offense back on track for stretch run**\
+`"Everyone knows that with the altitude and the way the ballpark plays," Cubs shortstop Dansby Swanson said. "You need to be ready to hit."`\
+https://nytimes.com/athletic/6586873/2025/08/31/cubs-rockies-coors-field-effect-offense/
+
 **Happiness Is a Big, Ugly Sofa**\
 `Buying a new, adult couch in a space of my own felt monumental.`\
 https://nytimes.com/2025/08/31/opinion/sofa-couch-adult-purchase-home.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6586154/2025/08/31/wolves-fosun-fans-strand-larsen-
 **A 'smash and grab' win against Millwall adds to Wrexham's mixed first month in Championship**\
 `It's been a month back in the Championship for Wrexham. So how are they shaping up?`\
 https://nytimes.com/athletic/6575648/2025/08/31/millwall-wrexham-championship-result-analysed/
-
-**Farke, Leeds United and a very understated transfer ultimatum**\
-`The Leeds manager wants attacking quality adding before the transfer deadline. Will he get it?`\
-https://nytimes.com/athletic/6586552/2025/08/31/leeds-united-transfers-daniel-farke/
 

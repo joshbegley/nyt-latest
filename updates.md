@@ -1,3 +1,7 @@
+**Cubs hope Coors Field effect can get offense back on track for stretch run**\
+`"Everyone knows that with the altitude and the way the ballpark plays," Cubs shortstop Dansby Swanson said. "You need to be ready to hit."`\
+https://nytimes.com/athletic/6586873/2025/08/31/cubs-rockies-coors-field-effect-offense/
+
 **Jeremy Lin Retires After 15 Years That Included ‘Linsanity’ With the Knicks**\
 `The journeyman played for eight N.B.A. teams and won one championship. But he is best known for a brief stretch on the Knicks where he electrified fans and the nation.`\
 https://nytimes.com/2025/08/31/sports/basketball/jeremy-lin-retires-linsanity-knicks.html
