@@ -1,3 +1,7 @@
+**Forest confirm John Victor signing**\
+`The 29-year-old becomes Forest's third signing from Botafogo this summer, with a fourth on the way in the form of full-back Cuiabano.`\
+https://nytimes.com/athletic/6477616/2025/08/31/john-victor-nottingham-forest/
+
 **Jeremy Lin retires from professional basketball after 9-year NBA career**\
 `The son of Taiwanese immigrants, Lin sparked the "Linsanity" phenomenon and became the first Asian American to win an NBA championship.`\
 https://nytimes.com/athletic/6587493/2025/08/31/jeremy-lin-linsanity-basketball-retirement/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6587377/2025/08/31/arsenal-william-saliba-injury-li
 **Noem defends deployment of the National Guard in U.S. cities.**\
 `Kristi Noem, the Homeland Security se`\
 https://nytimes.com/live/2025/08/31/us/trump-news/noem-defends-deployment-of-the-national-guard-in-us-cities
-
-**Isiah Kiner-Falefa returns to Blue Jays to provide infield depth**\
-`Kiner-Falefa appeared in 83 games with the Jays last season, hitting .292 with seven homers and a .758 OPS.`\
-https://nytimes.com/athletic/6587647/2025/08/31/blue-jays-isiah-kiner-falefa/
 
