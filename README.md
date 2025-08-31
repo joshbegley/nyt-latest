@@ -1,3 +1,7 @@
+**Lee Roy Jordan, Ferocious Linebacker for the Dallas Cowboys, Dies at 84**\
+`He was a favorite of Coach Bear Bryant at the University of Alabama, then helped make the Cowboys “America’s Team.”`\
+https://nytimes.com/2025/08/31/obituaries/lee-roy-jordan-dead.html
+
 **Breaking down Dominik Szoboszlai's awesome free kick: 'The pace, trajectory and movement is ridiculous'**\
 `We speak to set-piece and goalkeeping experts to break down Dominik Szoboszlai's winner against Arsenal.`\
 https://nytimes.com/athletic/6588031/2025/08/31/dominik-szoboszlai-free-kick-analysed/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6587777/2025/08/31/taylor-townsend-us-open-krejciko
 **Isak talks ramping up ahead of potential Liverpool move**\
 `Liverpool saw a £110m bid for Isak turned down earlier in the summer, having previously indicated their willingness to do a deal for £120m.`\
 https://nytimes.com/athletic/6531796/2025/08/31/alexander-isak-liverpool-newcastle-transfer-latest/
-
-**Reds to call up prospect Sal Stewart: Source**\
-`The Athletic's Keith Law ranked the 21-year-old as Cincinnati's No. 5 prospect heading into this season.`\
-https://nytimes.com/athletic/6587977/2025/08/31/reds-sal-stewart-prospect-call-up/
 
