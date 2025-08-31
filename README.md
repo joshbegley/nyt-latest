@@ -1,5 +1,13 @@
-**From Mountains to Plains, a Summer of Devastation Across Pakistan**\
-`Heavy rains and deadly floods have now hit Punjab, the country’s breadbasket and its largest province.`\
+**Here’s My Favorite Fried Chicken Sandwich**\
+`And here’s how I turn it into pickle-brined grilled chicken.`\
+https://nytimes.com/2025/08/31/dining/heres-my-favorite-fried-chicken-sandwich.html
+
+**Tracking Tropical Storm Kiko**\
+`See the likely path and wind arrival times for Kiko`\
+https://nytimes.com/interactive/2025/08/31/weather/kiko-map-path-tracker.html
+
+**Deadly Floods in Punjab Devastate Pakistan’s Breadbasket**\
+`Housing communities and businesses that rely on agriculture  have been destroyed in the country’s  largest province.`\
 https://nytimes.com/2025/08/31/world/asia/summer-monsoon-floods-pakistan.html
 
 **Dutch GP briefing: Norris heartbreak as Piastri wins, Ferrari duo crash out**\
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6587192/2025/08/31/college-football-ohio-state-arch
 **College Football Playoff 2025 projections: How Week 1 is changing the most likely bracket**\
 `Our College Football Playoff predictions model is back. Check here for regular updates on CFP and national championship odds for 2025.`\
 https://nytimes.com/athletic/6560541/2025/08/31/college-football-playoff-bracket-projections-odds/
-
-**VAR from Chelsea-Fulham taken off duties for Liverpool-Arsenal**\
-`Josh King saw his goal disallowed after a VAR intervention with the score goalless as Fulham visited Chelsea on Saturday.`\
-https://nytimes.com/athletic/6587158/2025/08/31/michael-salisbury-var-chelsea-liverpool-arsenal/
-
-**When Cuts to Medicaid Hit Home**\
-`Readers respond to an essay by a conservative mother on the importance of Medicaid to the care of her disabled son.`\
-https://nytimes.com/2025/08/31/opinion/medicaid-cuts-disability.html
 
