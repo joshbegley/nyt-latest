@@ -1,3 +1,19 @@
+**Zdena Salivarova, Publisher Who Kept Czech Literature Alive, Dies at 91**\
+`In exile in Canada, she and her husband, the novelist Josef Skvorecky, published books that had been outlawed by the Soviet-backed Communist regime.`\
+https://nytimes.com/2025/08/31/books/zdena-salivarova-dead.html
+
+**Boy Shot During ‘Ding Dong Ditch’ Prank in Texas**\
+`The police in Houston detained a person after a 10-year-old boy who had knocked on a door was shot on Saturday night, officials said.`\
+https://nytimes.com/2025/08/31/us/houston-boy-shot-ding-dong-ditch.html
+
+**Florida State QB Tommy Castellanos mocks Alabama with merch after upset**\
+`Some of the merchandise features the line "Nick Can't Save Them," a reference to his eye-raising comments earlier this summer.`\
+https://nytimes.com/athletic/6587563/2025/08/31/fsu-qb-tommy-castellanos-mocks-alabama-with-merch/
+
+**Cowboys, CB DaRon Bland agree to 4-year contract extension: Sources**\
+`Bland has intercepted 14 passes since coming into the league in 2022.`\
+https://nytimes.com/athletic/6587607/2025/08/31/cowboys-daron-bland-contract-extension/
+
 **Liverpool 1 Arsenal 0: Incredible Szoboszlai free kick from distance wins it at Anfield**\
 `Gregg Evans, Art de Roche and Anantaajith Raghuraman break down the match from Anfield`\
 https://nytimes.com/athletic/6587211/2025/08/31/liverpool-arsenal-premier-league-szoboszlai/

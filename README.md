@@ -1,3 +1,7 @@
+**Isiah Kiner-Falefa returns to Blue Jays to provide infield depth**\
+`Kiner-Falefa appeared in 83 games with the Jays last season, hitting .292 with seven homers and a .758 OPS.`\
+https://nytimes.com/athletic/6587647/2025/08/31/blue-jays-isiah-kiner-falefa/
+
 **Zdena Salivarova, Publisher Who Kept Czech Literature Alive, Dies at 91**\
 `In exile in Canada, she and her husband, the novelist Josef Skvorecky, published books that had been outlawed by the Soviet-backed Communist regime.`\
 https://nytimes.com/2025/08/31/books/zdena-salivarova-dead.html
@@ -7,7 +11,7 @@ https://nytimes.com/2025/08/31/books/zdena-salivarova-dead.html
 https://nytimes.com/2025/08/31/us/houston-boy-shot-ding-dong-ditch.html
 
 **Florida State QB Tommy Castellanos mocks Alabama with merch after upset**\
-`Some of the merchandise features the line "Nick Can't Save Them," a reference to his eye-raising comments earlier this summer.`\
+`Some of the merchandise features the line "Nick Can't Save Them," a reference to his eyebrow-raising comments earlier this summer.`\
 https://nytimes.com/athletic/6587563/2025/08/31/fsu-qb-tommy-castellanos-mocks-alabama-with-merch/
 
 **Cowboys, CB DaRon Bland agree to 4-year contract extension: Sources**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6587498/2025/08/31/toronto-blue-jays-mailbag-questi
 **Lowetide: Oilers management has a chance to shine with McDavid contract negotiations**\
 `Fans in Edmonton have been through years of questionable management decisions. Stan Bowman has a chance to change that.`\
 https://nytimes.com/athletic/6586029/2025/08/31/oilers-management-bowman-mcdavid-negotiations/
-
-**Nuno says Nottingham Forest had 'very bad day' in West Ham defeat**\
-`Nuno admitted the performance would "not help" the mood of his planned meeting with Forest owner Evangelos Marinakis next week.`\
-https://nytimes.com/athletic/6587449/2025/08/31/forest-west-ham-nuno-espirito-santo/
 
