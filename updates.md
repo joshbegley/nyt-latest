@@ -1,3 +1,7 @@
+**Chris Sale dominant in return from IL, reminding Braves of what could've been**\
+`Sale had nine strikeouts in six innings of three-hit, one-run ball, picking up right where he left off before fracturing two ribs in June.`\
+https://nytimes.com/athletic/6586766/2025/08/30/braves-chris-sale-dominant-il-return/
+
 **LSU tops Clemson in top-10 clash as Brian Kelly finally wins season opener**\
 `The streak is over, and Brian Kelly has a validating win, one of the biggest of his four-year LSU tenure. `\
 https://nytimes.com/athletic/6586706/2025/08/30/lsu-clemson-brian-kelly-takeaways/
