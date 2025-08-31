@@ -1,3 +1,7 @@
+**Iowa's Kirk Ferentz ties Woody Hayes for Big Ten career wins mark**\
+`The Hawkeyes will face in-state rival Iowa State next Saturday at 12 p.m. ET.`\
+https://nytimes.com/athletic/6586713/2025/08/30/iowas-kirk-ferentz-ties-woody-hayes-big-ten-career-wins/
+
 **‘A Future Filled With Hope’: Minneapolis Community Unites to Process the Tragedy**\
 `In the first Mass since an assailant attacked Annunciation Catholic Church, parishioners gathered to grieve and support one another.`\
 https://nytimes.com/2025/08/30/us/minneapolis-catholic-church-shooting.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/30/world/middleeast/gaza-israel-deadly-strikes.html
 **A Man of Character**\
 `Danny J. Rooney’s debut Times puzzle never misses.`\
 https://nytimes.com/2025/08/30/crosswords/daily-puzzle-2025-08-31.html
-
-**Jon Sumrall calls out Northwestern for denying Tulane's 2005 team uniform homage**\
-`Coach Jon Sumrall told reporters Northwestern denied Tulane's request to wear white jerseys like the 2005 squad.`\
-https://nytimes.com/athletic/6586505/2025/08/30/tulane-20th-anniversary-katrina-helmets/
 
