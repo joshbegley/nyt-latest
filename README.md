@@ -1,3 +1,11 @@
+**Trump Administration Live Updates: Judge Temporary Blocks Removal of Guatemalan Children**\
+``\
+https://nytimes.com/live/2025/08/31/us/trump-news
+
+**Martinez re-emerging as Man Utd option, Sancho been discussed in talks**\
+`United have also been in negotiations with Royal Antwerp on Senne Lammens for the past week or so but have yet to agree a fee.`\
+https://nytimes.com/athletic/6587161/2025/08/31/emi-martinez-man-utd-villa-lammens/
+
 **Arizona State won its opener. The biggest part was everyone was there to see it**\
 `The best place to watch Saturday's game was from the last row, where the result of Arizona State's effort to "Activate the Valley" showed.`\
 https://nytimes.com/athletic/6586945/2025/08/31/arizona-state-season-opener-sellout-northern-arizona/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6586965/2025/08/31/cowboys-kenny-clark-defense-mica
 **Phillies notes: Trea Turner’s signature game, Cristopher Sánchez changes changeup, Sept. roster**\
 `Turner walked-off Atlanta on Saturday to cap what was one of his best all-around games during his best all-around season for the Phillies.`\
 https://nytimes.com/athletic/6586757/2025/08/31/trea-turners-walk-off-phillies/
-
-**Three things Texas must fix to recover from its 7-point flop at Ohio State**\
-`Red zone failures, Arch Manning's inaccuracy and some questionable play calling were among the areas that the Horns must address. `\
-https://nytimes.com/athletic/6586681/2025/08/31/texas-ohio-state-arch-manning-steve-sarkisian/
-
-**25 most intriguing players in NFL this season: Aaron Rodgers, Travis Hunter, Micah Parsons**\
-`Can Rodgers mask the Steelers' deficiencies? Can Hunter be a true two-way threat? Will Parsons transform the Packers' hopes? `\
-https://nytimes.com/athletic/6579053/2025/08/31/nfl-most-intriguing-players-rodgers-parsons/
 
