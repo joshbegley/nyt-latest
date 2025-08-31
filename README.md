@@ -1,3 +1,11 @@
+**Newcastle need the transfer window to end before their season can begin**\
+`The noise and distractions from this summer have left Eddie Howe and his squad looking weary`\
+https://nytimes.com/athletic/6584145/2025/08/31/newcastle-united-transfer-window-end/
+
+**Spurs took 67 minutes to have a shot on target against Bournemouth. It was no surprise**\
+`Spurs' lack of creativity has been a problem for some time. But a solution is at hand`\
+https://nytimes.com/athletic/6586115/2025/08/31/tottenham-bournemouth-shots-attack/
+
 **Thirty-six hours and three main objectives for Fosun to build bridges with critical Wolves fans**\
 `Wolves are facing a critical period before the transfer window shuts as they try to build and maintain a squad to compete in the top flight`\
 https://nytimes.com/athletic/6586154/2025/08/31/wolves-fosun-fans-strand-larsen-transfers/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6586065/2025/08/31/manchester-united-ruben-amorim-b
 **Trump Says He Will Sign Executive Order Mandating Voter I.D.**\
 `He also wants to restrict mail-in voting and allow only paper ballots. The Constitution doesn’t give the president explicit authority over election law.`\
 https://nytimes.com/2025/08/31/us/politics/trump-voter-id-executive-order.html
-
-**Can Under Armour break disrupt soccer? 'It's not a far walk from an NFL pitch to an EPL pitch'**\
-`The U.S. sportswear brand is opting to sign individuals rather than teams. But will it pay off?`\
-https://nytimes.com/athletic/6583866/2025/08/31/arteta-arsenal-under-armour-premier-league/
-
-**A City Reinvented: Paris Is Now Greater Paris**\
-`The periphery of the French capital is more vital than ever, and its creativity and dynamism have blurred old boundaries.`\
-https://nytimes.com/2025/08/31/world/europe/a-city-reinvented-paris-is-now-greater-paris.html
 
