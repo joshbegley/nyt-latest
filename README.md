@@ -1,3 +1,7 @@
+**End of transfer window will free Baleba from 'the noise' - Hurzeler**\
+`Manchester United stepped back from their pursuit of the 21-year-old Cameroon midfielder earlier this month.`\
+https://nytimes.com/athletic/6581299/2025/08/31/carlos-baleba-transfer-manchester-united-brighton-hurzeler/
+
 **Chelsea considering signing new striker in case of Jackson move**\
 `The London club have lost Liam Delap to a hamstring injury and revoked Jackson's permission to undergo a medical at Bayern. `\
 https://nytimes.com/athletic/6586967/2025/08/31/chelsea-striker-transfer-nicolas-jackson/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/31/sports/basketball/jeremy-lin-retires-linsanity-kn
 **Cubs hope Coors Field effect can get offense back on track for stretch run**\
 `"Everyone knows that with the altitude and the way the ballpark plays," Cubs shortstop Dansby Swanson said. "You need to be ready to hit."`\
 https://nytimes.com/athletic/6586873/2025/08/31/cubs-rockies-coors-field-effect-offense/
-
-**Happiness Is a Big, Ugly Sofa**\
-`Buying a new, adult couch in a space of my own felt monumental.`\
-https://nytimes.com/2025/08/31/opinion/sofa-couch-adult-purchase-home.html
 
