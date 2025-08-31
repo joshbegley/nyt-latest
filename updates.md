@@ -1,3 +1,7 @@
+**Suspect in Montana Bar Shooting Faces 4 Murder Charges**\
+`The man is accused of fatally shooting four people in a bar in Anaconda, Mont. He had led the police on an eight-day manhunt that rattled the community.`\
+https://nytimes.com/2025/08/30/us/montana-bar-shooting.html
+
 **Iowa's Kirk Ferentz ties Woody Hayes for Big Ten career wins mark**\
 `The Hawkeyes will face in-state rival Iowa State next Saturday at 12 p.m. ET.`\
 https://nytimes.com/athletic/6586713/2025/08/30/iowas-kirk-ferentz-ties-woody-hayes-big-ten-career-wins/
