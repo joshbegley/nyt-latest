@@ -1,3 +1,11 @@
+**The New York Times International Edition in Print for Monday, Sep. 1, 2025**\
+``\
+https://nytimes.com/issue/todaysinyt/2025/08/31/todays-new-york-times-international-edition
+
+**Novak Djokovic optimized his mind and body for tennis. At the U.S. Open, he found his mojo**\
+`Djokovic has remodeled his tennis and honed his fitness as far as he can. The rest is intangibles — and two players who stand in his way.`\
+https://nytimes.com/athletic/6586637/2025/08/31/novak-djokovic-tennis-wellness-us-open/
+
 **A Shattered City Asks for Its Sacrifice to Be Repaid**\
 `Millions of Syrians from destroyed places like Daraya feel they did everything possible to overthrow the Assad government, but they still await reconstruction aid.`\
 https://nytimes.com/2025/08/31/world/middleeast/syria-damascus-war-daraya.html
