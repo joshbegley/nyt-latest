@@ -1,3 +1,7 @@
+**Chelsea considering signing new striker in case of Jackson move**\
+`The London club have lost Liam Delap to a hamstring injury and revoked Jackson's permission to undergo a medical at Bayern. `\
+https://nytimes.com/athletic/6586967/2025/08/31/chelsea-striker-transfer-nicolas-jackson/
+
 **After Eight Years, a Kids Section Says Goodbye**\
 `The New York Times for Kids took its audience seriously by pursuing topics that children had questions about, from money and puberty to cake and slime.`\
 https://nytimes.com/2025/08/31/insider/kids-section-closes.html
