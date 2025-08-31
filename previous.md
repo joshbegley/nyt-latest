@@ -1,3 +1,7 @@
+**Felix Auger-Aliassime upsets third seed Alexander Zverev at U.S. Open**\
+`It is the Canadian's first win over a top-five player at a Grand Slam.`\
+https://nytimes.com/athletic/6586793/2025/08/30/auger-aliassime-us-open-zverev/
+
 **Kansas City Current clinch NWSL playoff spot with 8 weeks to spare**\
 `With Saturday's win, Kansas City matched the 2024 Orlando Pride's record for the fastest team to secure a playoff spot in NWSL history.`\
 https://nytimes.com/athletic/6586798/2025/08/30/nwsl-kansas-city-current-clinch-playoff-spot/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6586553/2025/08/30/alabama-florida-state-takeaways-
 **Arch Manning's coming-out party spoiled by tough Ohio State D: 'This is one chapter'**\
 `Manning, making his first road start, wasn't shy about taking the blame for his underwhelming performance at Ohio State. `\
 https://nytimes.com/athletic/6586357/2025/08/30/texas-arch-manning-ohio-state-spoiled-start/
-
-**Shilo Sanders fined for punch thrown in Buccaneers preseason finale: Source**\
-`Sanders was ejected from the Bucs' preseason finale for throwing a punch at Bills tight end Zach Davidson.`\
-https://nytimes.com/athletic/6586460/2025/08/30/shilo-sanders-fine-nfl-tampa-bay-buccaneers/
 

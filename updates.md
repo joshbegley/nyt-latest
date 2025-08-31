@@ -1,3 +1,7 @@
+**Felix Auger-Aliassime upsets third seed Alexander Zverev at U.S. Open**\
+`It is the Canadian's first win over a top-five player at a Grand Slam.`\
+https://nytimes.com/athletic/6586793/2025/08/30/auger-aliassime-us-open-zverev/
+
 **Kansas City Current clinch NWSL playoff spot with 8 weeks to spare**\
 `With Saturday's win, Kansas City matched the 2024 Orlando Pride's record for the fastest team to secure a playoff spot in NWSL history.`\
 https://nytimes.com/athletic/6586798/2025/08/30/nwsl-kansas-city-current-clinch-playoff-spot/
