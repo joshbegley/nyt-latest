@@ -1,3 +1,11 @@
+**Iowa's Kirk Ferentz ties Woody Hayes for Big Ten career wins mark**\
+`The Hawkeyes will face in-state rival Iowa State next Saturday at 12 p.m. ET.`\
+https://nytimes.com/athletic/6586713/2025/08/30/iowas-kirk-ferentz-ties-woody-hayes-big-ten-career-wins/
+
+**‘A Future Filled With Hope’: Minneapolis Community Unites to Process the Tragedy**\
+`In the first Mass since an assailant attacked Annunciation Catholic Church, parishioners gathered to grieve and support one another.`\
+https://nytimes.com/2025/08/30/us/minneapolis-catholic-church-shooting.html
+
 **Florida State-Alabama shocker was, above all, another indictment of Kalen DeBoer**\
 `Maybe Florida State can make a surprise CFP run this season. Certainly, Alabama was the biggest disappointment in Week 1. `\
 https://nytimes.com/athletic/6586717/2025/08/30/alabama-florida-state-kalen-deboer-mike-norvell/
