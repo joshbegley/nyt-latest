@@ -1,3 +1,7 @@
+**China Shows Off its Power**\
+`Xi Jinping is using a summit with leaders like Narendra Modi and Vladimir Putin as an opportunity to pull countries away from the U.S.`\
+https://nytimes.com/2025/08/31/briefing/xi-modi-putin-summit-tianjin.html
+
 **What this picture says about Jack Grealish and his meaning to Everton**\
 `The on-loan England international is a beacon of hope, as well as a superb player, in a team that looks re-energised`\
 https://nytimes.com/athletic/6586329/2025/08/31/jack-grealish-everton-transfer-impact/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6488980/2025/08/31/marco-asensio-fenerbahce-villa/
 **The Pulse: Rough starts for Arch and Bama**\
 `Welcome to The Pulse, The Athletic's daily sports newsletter.`\
 https://nytimes.com/athletic/6586779/2025/08/31/rough-starts-for-both-arch-manning-and-bama-plus-a-massive-exhale/
-
-**Forest confirm John Victor signing**\
-`The 29-year-old becomes Forest's third signing from Botafogo this summer, with a fourth on the way in the form of full-back Cuiabano.`\
-https://nytimes.com/athletic/6477616/2025/08/31/john-victor-nottingham-forest/
 
