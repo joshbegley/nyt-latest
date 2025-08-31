@@ -1,3 +1,11 @@
+**Newcastle need the transfer window to end before their season can begin**\
+`The noise and distractions from this summer have left Eddie Howe and his squad looking weary`\
+https://nytimes.com/athletic/6584145/2025/08/31/newcastle-united-transfer-window-end/
+
+**Spurs took 67 minutes to have a shot on target against Bournemouth. It was no surprise**\
+`Spurs' lack of creativity has been a problem for some time. But a solution is at hand`\
+https://nytimes.com/athletic/6586115/2025/08/31/tottenham-bournemouth-shots-attack/
+
 **Thirty-six hours and three main objectives for Fosun to build bridges with critical Wolves fans**\
 `Wolves are facing a critical period before the transfer window shuts as they try to build and maintain a squad to compete in the top flight`\
 https://nytimes.com/athletic/6586154/2025/08/31/wolves-fosun-fans-strand-larsen-transfers/
