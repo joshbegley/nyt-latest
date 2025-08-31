@@ -1,3 +1,7 @@
+**Liverpool reach Isak agreement with Newcastle**\
+`Isak is keen on a move to Anfield and previously published a statement in which he said his relationship with Newcastle “can’t continue”.`\
+https://nytimes.com/athletic/6574042/2025/08/31/alexander-isak-liverpool-newcastle-transfer/
+
 **Lee Roy Jordan, Ferocious Linebacker for the Dallas Cowboys, Dies at 84**\
 `He was a favorite of Coach Bear Bryant at the University of Alabama, then helped make the Cowboys “America’s Team.”`\
 https://nytimes.com/2025/08/31/obituaries/lee-roy-jordan-dead.html
