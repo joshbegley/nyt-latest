@@ -1,3 +1,11 @@
+**Until Saturday: Week 1 surprises and Alabama hot seats**\
+`Until Saturday is The Athletic's free college football newsletter.`\
+https://nytimes.com/athletic/6587192/2025/08/31/college-football-ohio-state-arch-manning-until-saturday/
+
+**College Football Playoff 2025 projections: How Week 1 is changing the most likely bracket**\
+`Our College Football Playoff predictions model is back. Check here for regular updates on CFP and national championship odds for 2025.`\
+https://nytimes.com/athletic/6560541/2025/08/31/college-football-playoff-bracket-projections-odds/
+
 **VAR from Chelsea-Fulham taken off duties for Liverpool-Arsenal**\
 `Josh King saw his goal disallowed after a VAR intervention with the score goalless as Fulham visited Chelsea on Saturday.`\
 https://nytimes.com/athletic/6587158/2025/08/31/michael-salisbury-var-chelsea-liverpool-arsenal/
