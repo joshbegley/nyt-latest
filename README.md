@@ -1,3 +1,7 @@
+**Liverpool reach Isak agreement with Newcastle**\
+`Isak is keen on a move to Anfield and previously published a statement in which he said his relationship with Newcastle “can’t continue”.`\
+https://nytimes.com/athletic/6574042/2025/08/31/alexander-isak-liverpool-newcastle-transfer/
+
 **Lee Roy Jordan, Ferocious Linebacker for the Dallas Cowboys, Dies at 84**\
 `He was a favorite of Coach Bear Bryant at the University of Alabama, then helped make the Cowboys “America’s Team.”`\
 https://nytimes.com/2025/08/31/obituaries/lee-roy-jordan-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/31/crosswords/daily-puzzle-2025-09-01.html
 **Taylor Townsend's incredible U.S. Open ride ends in three-set epic against Barbora Krejcikova**\
 `Townsend had eight match points against the two-time Grand Slam singles champion in Louis Armstrong Stadium.`\
 https://nytimes.com/athletic/6587777/2025/08/31/taylor-townsend-us-open-krejcikova-result/
-
-**Isak talks ramping up ahead of potential Liverpool move**\
-`Liverpool saw a £110m bid for Isak turned down earlier in the summer, having previously indicated their willingness to do a deal for £120m.`\
-https://nytimes.com/athletic/6531796/2025/08/31/alexander-isak-liverpool-newcastle-transfer-latest/
 
