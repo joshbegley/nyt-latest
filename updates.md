@@ -1,3 +1,7 @@
+**Bryce Underwood leads Michigan in decisive win over New Mexico: Takeaways**\
+`Underwood showed in spurts why he was the No. 1 quarterback in the class of 2025 and how he could elevate the Wolverines' ceiling. `\
+https://nytimes.com/athletic/6586680/2025/08/30/michigan-takes-down-new-mexico-bryce-underwood/
+
 **Felix Auger-Aliassime upsets third seed Alexander Zverev at U.S. Open**\
 `It is the Canadian's first win over a top-five player at a Grand Slam.`\
 https://nytimes.com/athletic/6586793/2025/08/30/auger-aliassime-us-open-zverev/
