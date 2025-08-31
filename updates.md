@@ -1,3 +1,7 @@
+**The Pulse: Rough starts for Arch and Bama**\
+`Welcome to The Pulse, The Athletic's daily sports newsletter.`\
+https://nytimes.com/athletic/6586779/2025/08/31/rough-starts-for-both-arch-manning-and-bama-plus-a-massive-exhale/
+
 **Forest confirm John Victor signing**\
 `The 29-year-old becomes Forest's third signing from Botafogo this summer, with a fourth on the way in the form of full-back Cuiabano.`\
 https://nytimes.com/athletic/6477616/2025/08/31/john-victor-nottingham-forest/

@@ -1,3 +1,7 @@
+**The Pulse: Rough starts for Arch and Bama**\
+`Welcome to The Pulse, The Athletic's daily sports newsletter.`\
+https://nytimes.com/athletic/6586779/2025/08/31/rough-starts-for-both-arch-manning-and-bama-plus-a-massive-exhale/
+
 **Forest confirm John Victor signing**\
 `The 29-year-old becomes Forest's third signing from Botafogo this summer, with a fourth on the way in the form of full-back Cuiabano.`\
 https://nytimes.com/athletic/6477616/2025/08/31/john-victor-nottingham-forest/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6587291/2025/08/31/daniil-medvev-us-open-coach-spli
 **Arteta worried about Saliba's ankle injury**\
 `After David Raya collected a ball over the top of Arsenal's defence on four minutes, Saliba went down and received treatment.`\
 https://nytimes.com/athletic/6587377/2025/08/31/arsenal-william-saliba-injury-liverpool/
-
-**Noem defends deployment of the National Guard in U.S. cities.**\
-`Kristi Noem, the Homeland Security se`\
-https://nytimes.com/live/2025/08/31/us/trump-news/noem-defends-deployment-of-the-national-guard-in-us-cities
 
