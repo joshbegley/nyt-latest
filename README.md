@@ -1,3 +1,15 @@
+**Happiness Is a Big, Ugly Sofa**\
+`Buying a new, adult couch in a space of my own felt monumental.`\
+https://nytimes.com/2025/08/31/opinion/sofa-couch-adult-purchase-home.html
+
+**The New York Times in Print for Sunday, Aug. 31, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/08/31/todays-new-york-times
+
+**The U.S. Wooed India for 30 Years. Trump Blew That Up in a Few Months.**\
+`India must decide whether go all in with a capricious Trump or hedge its bets through a rapprochement with China.`\
+https://nytimes.com/2025/08/31/opinion/trump-us-india.html
+
 **Cam Schlittler's rapid rise puts rookie in Yankees' October rotation plans**\
 `Schlittler's 1.60 ERA in August is the lowest ERA by a Yankee starter with at least five starts since Ron Guidry in 1978.`\
 https://nytimes.com/athletic/6586807/2025/08/31/cam-schlittler-yankees-rookie-playoff-rotation/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6586552/2025/08/31/leeds-united-transfers-daniel-fa
 **After an unbeaten domestic campaign, how do Chelsea improve perfection?**\
 `Chelsea's 4-1 win over AC Milan on Saturday showed how high the bar is set for Sonia Bompastor's side`\
 https://nytimes.com/athletic/6586205/2025/08/31/chelsea-women-perfection-beever-jones/
-
-**Liverpool vs Arsenal preview: Transfer windows compared, players to watch, opponent weaknesses**\
-`Both have invested heavily in their squads, and both have started with two wins from their first two games - how will Sunday's game go?`\
-https://nytimes.com/athletic/6578850/2025/08/31/liverpool-arsenal-preview-transfers-key-players/
-
-**The off-ball run that explains why Chelsea want to block Jackson's Bayern move**\
-`Chelsea need players who can run in behind with Liam Delap injured, and Jackson can do it`\
-https://nytimes.com/athletic/6586072/2025/08/31/the-off-ball-run-that-explains-why-chelsea-want-to-block-nicolas-jacksons-bayern-munich-move/
-
-**Watching Amorim for 90 minutes: Stressed, pacing, hating penalties**\
-`The full range of Amorim gestures, postures and emotions during United's dramatic and much-needed win over Burnley`\
-https://nytimes.com/athletic/6586065/2025/08/31/manchester-united-ruben-amorim-burnley/
 
