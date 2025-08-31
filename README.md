@@ -1,40 +1,40 @@
-**Protesters in Indonesia Focus Rage on Politicians, Ransacking Their Homes**\
-`After a week of demonstrations, protesters on Sunday directly targeted the people they blamed for economic challenges and police brutality.`\
-https://nytimes.com/2025/08/31/world/asia/indonesia-protest-politicians-ransack-loot.html
+**Russian Strikes on Western Assets in Ukraine Send an Ominous Message**\
+`Hitting an American-run factory and European diplomatic offices, the Kremlin appeared to signal that it would resist Western efforts to make peace and protect Ukraine, analysts and officials said.`\
+https://nytimes.com/2025/08/31/world/europe/russia-ukraine-western-targets.html
 
-**End of transfer window will free Baleba from 'the noise' - Hurzeler**\
-`Manchester United stepped back from their pursuit of the 21-year-old Cameroon midfielder earlier this month.`\
-https://nytimes.com/athletic/6581299/2025/08/31/carlos-baleba-transfer-manchester-united-brighton-hurzeler/
+**Videos Contradict Israel’s Rationale for Deadly Hospital Attack**\
+`The strikes on Nasser Hospital in Gaza killed at least 20 people. A Times visual analysis calls into question what the Israeli military was initially targeting there, and why its troops attacked a second time, killing first responders and journalists.`\
+https://nytimes.com/video/world/middleeast/100000010370105/nasser-hospital-gaza-israel-attack-videos.html
 
-**Chelsea considering signing new striker in case of Jackson move**\
-`The London club have lost Liam Delap to a hamstring injury and revoked Jackson's permission to undergo a medical at Bayern. `\
-https://nytimes.com/athletic/6586967/2025/08/31/chelsea-striker-transfer-nicolas-jackson/
+**What Motivated the Minneapolis Church Shooter? We May Never Know.**\
+`Investigators combing through piles of evidence from an attack on a Minneapolis church cautioned that these kinds of shooters often leave more questions than answers.`\
+https://nytimes.com/2025/08/31/us/minneapolis-school-shooter-motive.html
 
-**After Eight Years, a Kids Section Says Goodbye**\
-`The New York Times for Kids took its audience seriously by pursuing topics that children had questions about, from money and puberty to cake and slime.`\
-https://nytimes.com/2025/08/31/insider/kids-section-closes.html
+**If Redistricting Goes as Expected, Which Party Will Come Out Ahead?**\
+`Democrats would probably need to win the national popular vote by two or three percentage points to retake the House next year.`\
+https://nytimes.com/2025/08/31/upshot/redistricting-analysis-2026-midterms.html
 
-**A Camera that Hung Close to the Ground**\
-`The photographer Joao Silva believes the extra large lens around his neck may have saved his life when he stepped on a mine in Afghanistan in 2010.`\
-https://nytimes.com/2025/08/31/pageoneplus/a-camera-that-hung-close-to-the-ground.html
+**How Trump Could Overhaul the Fed**\
+`The president wants to pack the central bank’s Board of Governors with loyalists, which would grant him greater sway over an institution that is supposed to be independent from the White House.`\
+https://nytimes.com/2025/08/31/business/how-trump-could-overhaul-the-fed.html
 
-**Beaten and Choked at a U.N. Mission, Then Arrested by the N.Y.P.D.**\
-`Two brothers went to the Egyptian Mission in Manhattan to protest Egypt’s role in keeping aid from reaching Gaza. Video of the violence, which involved mission security guards, has incited rage.`\
-https://nytimes.com/2025/08/31/nyregion/nypd-egyptian-mission-brothers-arrested.html
+**Redistricting Push Creates Chaos for Incumbents in Both Parties**\
+`Republicans and Democrats in Congress are wary of the potential consequences of President Trump’s drive to redraw districts.`\
+https://nytimes.com/2025/08/31/us/politics/redistricting-demcorats-republicans-texas-california.html
 
-**The Manhattan Park That Keeps Children Locked Out**\
-`A beloved park on state-owned land in Upper Manhattan has been closed for years, with neither the government nor any nonprofit groups willing to step in to operate it.`\
-https://nytimes.com/2025/08/31/nyregion/gw-bridge-park-dolphin-park.html
+**In the Hills of Puerto Rico, Feasting on a Very Smelly Fruit**\
+`Every summer, superfans of durian converge on a remote farm in western Puerto Rico to devour one of the world’s most polarizing fruits.`\
+https://nytimes.com/2025/08/31/us/puerto-rico-durian.html
 
-**‘I Stood on the Corner Dreading the Long, Humid Wait for the Subway’**\
-`Stopping for a Dave’s egg cream, a rainy morning in Central Park and more reader tales of New York City in this week’s Metropolitan Diary.`\
-https://nytimes.com/2025/08/31/nyregion/metropolitan-diary.html
+**Trump Crime Strategy May Work for Now, but Not for Long, Experts Say**\
+`The president is looking to add  troops to city streets while cutting funds for programs that work, experts and local officials say. But one idea, beautifying neighborhoods, has buy-in.`\
+https://nytimes.com/2025/08/31/us/trump-crime-strategy-solutions.html
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2025/08/31/crosswords/spelling-bee-forum.html
+**Chevron’s Boss Says the World Will Need Oil for a ‘Long, Long Time’**\
+`Mike Wirth, who has seen many booms and busts over the more than 40 years he has been with the energy giant, said that “when the world stops using oil and gas, we’ll stop looking for it.”`\
+https://nytimes.com/2025/08/31/business/chevron-oil-mike-wirth.html
 
-**Jeremy Lin Retires After 15 Years That Included ‘Linsanity’ With the Knicks**\
-`The journeyman played for eight N.B.A. teams and won one championship. But he is best known for a brief stretch on the Knicks where he electrified fans and the nation.`\
-https://nytimes.com/2025/08/31/sports/basketball/jeremy-lin-retires-linsanity-knicks.html
+**U.S. Open recap Day 7: Naomi Osaka returns to Grand Slam second week**\
+`The four-time Grand Slam champion has reached the fourth round of a major for the first time since the 2021 Australian Open, which she won.`\
+https://nytimes.com/athletic/6586001/2025/08/31/us-open-recap-day-7-schedule-results/
 
