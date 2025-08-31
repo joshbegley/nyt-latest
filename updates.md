@@ -1,3 +1,11 @@
+**A firefighter detained while working at a wildfire in Washington State entered the U.S. at age 4.**\
+`His lawyers said the man had qualified for a special visa for crime victims and has been awaiting action on his application since 2018.`\
+https://nytimes.com/live/2025/08/31/us/trump-news/a-firefighter-detained-while-working-at-a-wildfire-in-washington-state-entered-the-us-at-age-4
+
+**Red Sox, Aroldis Chapman agree to 1-year contract extension**\
+`The extension will guarantee $13.3 million for the lefty in 2026 and includes a vesting option for the 2027 season, per a league source.`\
+https://nytimes.com/athletic/6587440/2025/08/31/red-sox-aroldis-chapman-contract-extension/
+
 **China Shows Off its Power**\
 `Xi Jinping is using a summit with leaders like Narendra Modi and Vladimir Putin as an opportunity to pull countries away from the U.S.`\
 https://nytimes.com/2025/08/31/briefing/xi-modi-putin-summit-tianjin.html
