@@ -1,3 +1,7 @@
+**Trump Administration Live Updates: Judge Temporarily Blocks Removal of Guatemalan Children**\
+``\
+https://nytimes.com/live/2025/08/31/us/trump-news
+
 **Until Saturday: Week 1 surprises and Alabama hot seats**\
 `Until Saturday is The Athletic's free college football newsletter.`\
 https://nytimes.com/athletic/6587192/2025/08/31/college-football-ohio-state-arch-manning-until-saturday/
