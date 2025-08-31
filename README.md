@@ -1,3 +1,7 @@
+**Breaking down Dominik Szoboszlai's awesome free kick: 'The pace, trajectory and movement is ridiculous'**\
+`We speak to set-piece and goalkeeping experts to break down Dominik Szoboszlai's winner against Arsenal.`\
+https://nytimes.com/athletic/6588031/2025/08/31/dominik-szoboszlai-free-kick-analysed/
+
 **Fearing Bolsonaro Escape, Brazil Tightens Leash Ahead of Coup Trial**\
 `Former President Jair Bolsonaro, who will stand trial on Tuesday, is being closely monitored by the Brazilian authorities, who fear he may try to flee.`\
 https://nytimes.com/2025/08/31/world/americas/brazil-bolsonaro-trial-restrictions.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6531796/2025/08/31/alexander-isak-liverpool-newcast
 **Reds to call up prospect Sal Stewart: Source**\
 `The Athletic's Keith Law ranked the 21-year-old as Cincinnati's No. 5 prospect heading into this season.`\
 https://nytimes.com/athletic/6587977/2025/08/31/reds-sal-stewart-prospect-call-up/
-
-**In Venice, Emma Stone and Jacob Elordi Make Bald Bids for Oscar**\
-`Since transformation is a crucial element of award-contending performances, the magnitude of their makeovers should not be underestimated.`\
-https://nytimes.com/2025/08/31/movies/emma-stone-and-jacob-elordi-bald-venice.html
 

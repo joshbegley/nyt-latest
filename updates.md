@@ -1,3 +1,19 @@
+**Fearing Bolsonaro Escape, Brazil Tightens Leash Ahead of Coup Trial**\
+`Former President Jair Bolsonaro, who will stand trial on Tuesday, is being closely monitored by the Brazilian authorities, who fear he may try to flee.`\
+https://nytimes.com/2025/08/31/world/americas/brazil-bolsonaro-trial-restrictions.html
+
+**Barca-Rayo draw marred by VAR breakdown which left Yamal penalty call unchecked**\
+`The VAR system broke down during Barca's draw with Rayo Vallecano, causing controversy after a Lamine Yamal penalty call.`\
+https://nytimes.com/athletic/6588145/2025/08/31/barcelona-rayo-var-yamal/
+
+**Nico Iamaleava's UCLA debut shows plenty of challenges await after Tennessee transfer**\
+`The quarterback's transfer home to UCLA didn't provide a quick fix for the rebuilding Bruins, who were blown out by Utah in the Rose Bowl.`\
+https://nytimes.com/athletic/6588022/2025/08/31/ucla-football-nico-iamaleava-utah-tennessee/
+
+**Taylor Townsend's incredible U.S. Open ride ends in three-set epic against Barbora Krejcikova**\
+`Townsend had eight match points against the two-time Grand Slam singles champion in Louis Armstrong Stadium.`\
+https://nytimes.com/athletic/6587777/2025/08/31/taylor-townsend-us-open-krejcikova-result/
+
 **Chelsea in talks with Sunderland over Guiu recall**\
 `The talks follow the injury sustained by Chelsea striker Liam Delap during Saturday’s 2-0 win over Fulham.`\
 https://nytimes.com/athletic/6588074/2025/08/31/marc-guiu-chelsea-sunderland/

@@ -1,3 +1,15 @@
+**Fearing Bolsonaro Escape, Brazil Tightens Leash Ahead of Coup Trial**\
+`Former President Jair Bolsonaro, who will stand trial on Tuesday, is being closely monitored by the Brazilian authorities, who fear he may try to flee.`\
+https://nytimes.com/2025/08/31/world/americas/brazil-bolsonaro-trial-restrictions.html
+
+**Barca-Rayo draw marred by VAR breakdown which left Yamal penalty call unchecked**\
+`The VAR system broke down during Barca's draw with Rayo Vallecano, causing controversy after a Lamine Yamal penalty call.`\
+https://nytimes.com/athletic/6588145/2025/08/31/barcelona-rayo-var-yamal/
+
+**Nico Iamaleava's UCLA debut shows plenty of challenges await after Tennessee transfer**\
+`The quarterback's transfer home to UCLA didn't provide a quick fix for the rebuilding Bruins, who were blown out by Utah in the Rose Bowl.`\
+https://nytimes.com/athletic/6588022/2025/08/31/ucla-football-nico-iamaleava-utah-tennessee/
+
 **Chelsea in talks with Sunderland over Guiu recall**\
 `The talks follow the injury sustained by Chelsea striker Liam Delap during Saturday’s 2-0 win over Fulham.`\
 https://nytimes.com/athletic/6588074/2025/08/31/marc-guiu-chelsea-sunderland/
@@ -11,7 +23,7 @@ https://nytimes.com/athletic/6588083/2025/08/31/marc-guehi-transfer-palace-liver
 https://nytimes.com/2025/08/31/crosswords/daily-puzzle-2025-09-01.html
 
 **Taylor Townsend's incredible U.S. Open ride ends in three-set epic against Barbora Krejcikova**\
-`Townsend had eight match points against the two-time Grand Slam singles champion on Louis Armstrong Stadium.`\
+`Townsend had eight match points against the two-time Grand Slam singles champion in Louis Armstrong Stadium.`\
 https://nytimes.com/athletic/6587777/2025/08/31/taylor-townsend-us-open-krejcikova-result/
 
 **Isak talks ramping up ahead of potential Liverpool move**\
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6587977/2025/08/31/reds-sal-stewart-prospect-call-u
 **In Venice, Emma Stone and Jacob Elordi Make Bald Bids for Oscar**\
 `Since transformation is a crucial element of award-contending performances, the magnitude of their makeovers should not be underestimated.`\
 https://nytimes.com/2025/08/31/movies/emma-stone-and-jacob-elordi-bald-venice.html
-
-**A firefighter detained while working at a wildfire in Washington State entered the U.S. at age 4.**\
-`His lawyers said the man had qualified for a special visa for crime victims and has been awaiting action on his application since 2018.`\
-https://nytimes.com/live/2025/08/31/us/trump-news/a-firefighter-detained-while-working-at-a-wildfire-in-washington-state-entered-the-us-at-age-4
-
-**Red Sox, Aroldis Chapman agree to 1-year contract extension**\
-`The extension will guarantee $13.3 million for the lefty in 2026 and includes a vesting option for the 2027 season, per a league source.`\
-https://nytimes.com/athletic/6587440/2025/08/31/red-sox-aroldis-chapman-contract-extension/
-
-**China Shows Off Its Power**\
-`Xi Jinping is using a summit with leaders like Narendra Modi and Vladimir Putin as an opportunity to pull countries away from the U.S.`\
-https://nytimes.com/2025/08/31/briefing/xi-modi-putin-summit-tianjin.html
 
