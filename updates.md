@@ -1,3 +1,11 @@
+**Brighton 2 Manchester City 1 - Fullbacks all at sea as City suffer second straight defeat**\
+`Manchester City blew a 1-0 lead to come away from the Amex having suffered a 2-1 defeat to Brighton & Hove Albion`\
+https://nytimes.com/athletic/6587234/2025/08/31/brighton-man-city-result-score-analysis/
+
+**Deadly Floods in Punjab Devastate Pakistan’s Breadbasket**\
+`Housing communities and businesses that rely on agriculture have been destroyed in the country’s largest province.`\
+https://nytimes.com/2025/08/31/world/asia/summer-monsoon-floods-pakistan.html
+
 **Here’s My Favorite Fried Chicken Sandwich**\
 `And here’s how I turn it into pickle-brined grilled chicken.`\
 https://nytimes.com/2025/08/31/dining/heres-my-favorite-fried-chicken-sandwich.html

@@ -1,4 +1,8 @@
-**Brighton 2 Manchester City 1 - Fullbacks all at sea as City suffer second straight defeat**\
+**Cubs finalizing deal to add Carlos Santana for playoff push: Source**\
+`Santana was released by the Cleveland Guardians so that he could pursue a better opportunity with a playoff contender.`\
+https://nytimes.com/athletic/6587312/2025/08/31/cubs-add-carlos-santana-playoff-push/
+
+**Brighton 2 Manchester City 1: Full-backs all at sea as City suffer second straight defeat**\
 `Manchester City blew a 1-0 lead to come away from the Amex having suffered a 2-1 defeat to Brighton & Hove Albion`\
 https://nytimes.com/athletic/6587234/2025/08/31/brighton-man-city-result-score-analysis/
 
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/31/style/barneys-gene-pressman-memoir.html
 **No night game, no problem: An electric Ohio State atmosphere and more takeaways from Texas**\
 `Ohio State overwhelmed Texas with impressive defense — and an electric crowd despite a maligned noon kickoff. Here's what I saw and heard.`\
 https://nytimes.com/athletic/6587111/2025/08/31/ohio-state-takeaways-texas-sayin-noon-stadium/
-
-**Until Saturday: Week 1 surprises and Alabama hot seats**\
-`Until Saturday is The Athletic's free college football newsletter.`\
-https://nytimes.com/athletic/6587192/2025/08/31/college-football-ohio-state-arch-manning-until-saturday/
 
