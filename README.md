@@ -1,3 +1,11 @@
+**Until Saturday: Week 1 surprises and Alabama hot seats**\
+`Until Saturday is The Athletic's free college football newsletter.`\
+https://nytimes.com/athletic/6587192/2025/08/31/college-football-ohio-state-arch-manning-until-saturday/
+
+**College Football Playoff 2025 projections: How Week 1 is changing the most likely bracket**\
+`Our College Football Playoff predictions model is back. Check here for regular updates on CFP and national championship odds for 2025.`\
+https://nytimes.com/athletic/6560541/2025/08/31/college-football-playoff-bracket-projections-odds/
+
 **VAR from Chelsea-Fulham taken off duties for Liverpool-Arsenal**\
 `Josh King saw his goal disallowed after a VAR intervention with the score goalless as Fulham visited Chelsea on Saturday.`\
 https://nytimes.com/athletic/6587158/2025/08/31/michael-salisbury-var-chelsea-liverpool-arsenal/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/08/31/briefing/pips-new-york-times-games.html
 **Mandel's Final Thoughts: Lee Corso aces farewell, Arch stumbles and FSU and LSU thrive**\
 `Plus: LSU and Florida State make statements, Alabama flops again under Kalen DeBoer and more from the first three days of Week 1.`\
 https://nytimes.com/athletic/6586943/2025/08/31/college-football-week-1-final-thoughts-osu-arch/
-
-**Villa advancing in talks to sign former Manchester United defender Lindelof**\
-`Lindelof left Old Trafford upon the expiry of his contract alongside Christian Eriksen and Jonny Evans.`\
-https://nytimes.com/athletic/6388290/2025/08/31/victor-lindelof-aston-villa-talks-transfer/
-
-**Marseille agree permanent deal for West Ham defender Emerson**\
-`The 31-year-old is set to be West Ham's tenth departure this summer, after 113 appearances for the side.`\
-https://nytimes.com/athletic/6586987/2025/08/31/emerson-palmieri-marseille-transfer-west-ham/
 
