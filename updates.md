@@ -1,3 +1,15 @@
+**Happiness Is a Big, Ugly Sofa**\
+`Buying a new, adult couch in a space of my own felt monumental.`\
+https://nytimes.com/2025/08/31/opinion/sofa-couch-adult-purchase-home.html
+
+**The New York Times in Print for Sunday, Aug. 31, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/08/31/todays-new-york-times
+
+**The U.S. Wooed India for 30 Years. Trump Blew That Up in a Few Months.**\
+`India must decide whether go all in with a capricious Trump or hedge its bets through a rapprochement with China.`\
+https://nytimes.com/2025/08/31/opinion/trump-us-india.html
+
 **Cam Schlittler's rapid rise puts rookie in Yankees' October rotation plans**\
 `Schlittler's 1.60 ERA in August is the lowest ERA by a Yankee starter with at least five starts since Ron Guidry in 1978.`\
 https://nytimes.com/athletic/6586807/2025/08/31/cam-schlittler-yankees-rookie-playoff-rotation/
