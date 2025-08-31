@@ -1,3 +1,7 @@
+**Protesters in Indonesia Focus Rage on Politicians, Ransacking Their Homes**\
+`After a week of demonstrations, protesters on Sunday directly targeted the people they blamed for economic challenges and police brutality.`\
+https://nytimes.com/2025/08/31/world/asia/indonesia-protest-politicians-ransack-loot.html
+
 **End of transfer window will free Baleba from 'the noise' - Hurzeler**\
 `Manchester United stepped back from their pursuit of the 21-year-old Cameroon midfielder earlier this month.`\
 https://nytimes.com/athletic/6581299/2025/08/31/carlos-baleba-transfer-manchester-united-brighton-hurzeler/
