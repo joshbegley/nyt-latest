@@ -1,3 +1,7 @@
+**Before Minnesota Shooting, a Program Aimed at Preventing Attacks Lost Federal Funding**\
+`The cut by the Trump administration does not appear to have affected the handling of the church shooting this week, but state leaders say it weakens efforts to identify future threats.`\
+https://nytimes.com/2025/08/30/us/minnesota-church-shooting-funding-cut.html
+
 **What do you think of Matt Patricia now? Ohio State win a statement for its new DC**\
 `His coaching career all but written off a year ago, Patricia led Ohio State's defense to a dominant outing vs. Arch Manning and Texas.`\
 https://nytimes.com/athletic/6586597/2025/08/30/matt-patricia-ohio-state-texas-arch-manning/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6586529/2025/08/30/man-uinted-news-cunha-injury-bra
 **Rangers close to signing Everton forward Chermiti**\
 `The agreed deal comprises an initial fee of £8million, plus £2m in add-ons. The package also includes a significant sell-on clause.`\
 https://nytimes.com/athletic/6585983/2025/08/30/everton-transfer-news-rangers-youssef-chermiti/
-
-**Xi Uses Summit, Parade and History to Flaunt China’s Global Pull**\
-`With the leaders of Russia and India visiting, China’s president will show how he can use statecraft, military might and history to push for global influence.`\
-https://nytimes.com/2025/08/30/world/asia/xi-putin-modi-china-summit.html
 
