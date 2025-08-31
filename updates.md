@@ -1,3 +1,7 @@
+**Taylor Townsend's incredible U.S. Open ride ends in three-set epic against Barbora Krejcikova**\
+`Townsend had eight match points against the two-time Grand Slam singles champion on Louis Armstrong Stadium.`\
+https://nytimes.com/athletic/6587777/2025/08/31/taylor-townsend-us-open-krejcikova-result/
+
 **Isak talks ramping up ahead of potential Liverpool move**\
 `Liverpool saw a £110m bid for Isak turned down earlier in the summer, having previously indicated their willingness to do a deal for £120m.`\
 https://nytimes.com/athletic/6531796/2025/08/31/alexander-isak-liverpool-newcastle-transfer-latest/
