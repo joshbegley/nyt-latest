@@ -1,3 +1,11 @@
+**Phillies to sign Walker Buehler, who will be postseason-eligible: Sources**\
+`Buehler could serve as a swingman for the rest of this season; the Phillies can use him in the bullpen, then as a spot starter if needed. `\
+https://nytimes.com/athletic/6587594/2025/08/31/walker-buehler-phillies-contract-playoff-eligible/
+
+**Angels' Taylor Ward leaves game after face-first collision with outfield wall**\
+`The left fielder was carted off the field after sustaining a facial injury after running into the scoreboard at Daikin Park.`\
+https://nytimes.com/athletic/6587916/2025/08/31/angels-taylor-ward-injury-outfield-wall/
+
 **U.S. Suspends Visas for Palestinian Passport Holders, Officials Say**\
 `The move will stop, at least temporarily, travel for medical treatment, attending university, visiting relatives or conducting business.`\
 https://nytimes.com/2025/08/31/world/middleeast/us-palestinian-visa-suspensions.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6477616/2025/08/31/john-victor-nottingham-forest/
 **Jeremy Lin retires from professional basketball after 9-year NBA career**\
 `The son of Taiwanese immigrants, Lin sparked the "Linsanity" phenomenon and became the first Asian American to win an NBA championship.`\
 https://nytimes.com/athletic/6587493/2025/08/31/jeremy-lin-linsanity-basketball-retirement/
-
-**Already Pardoned by Trump, Jan. 6 Rioters Push for Compensation**\
-`One of the rioters’ lawyers wants to create a panel that would decide on financial damages for what the rioters believe were unfair prosecutions.`\
-https://nytimes.com/2025/08/31/us/politics/trump-jan-6-rioters-compensation.html
-
-**Cubs claim starter Aaron Civale off waivers from White Sox**\
-`The right-handed starter has a 5.26 ERA in 18 starts this season with the Brewers and White Sox.`\
-https://nytimes.com/athletic/6587689/2025/08/31/cubs-aaron-civale-white-sox/
 
