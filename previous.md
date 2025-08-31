@@ -1,3 +1,7 @@
+**Villa target Asensio set for Fenerbahce move**\
+`The Spain international is due to fly to Istanbul tonight to complete the transfer.`\
+https://nytimes.com/athletic/6488980/2025/08/31/marco-asensio-fenerbahce-villa/
+
 **The Pulse: Rough starts for Arch and Bama**\
 `Welcome to The Pulse, The Athletic's daily sports newsletter.`\
 https://nytimes.com/athletic/6586779/2025/08/31/rough-starts-for-both-arch-manning-and-bama-plus-a-massive-exhale/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6587530/2025/08/31/lando-norris-dutch-gp/
 **Daniil Medvedev splits with coach of eight years after U.S. Open unraveling**\
 `"Thank you Gilles," Medvedev wrote with a heart emoji on Instagram. "Amazing 8-10 years together, 20 titles, world number 1."`\
 https://nytimes.com/athletic/6587291/2025/08/31/daniil-medvev-us-open-coach-split-tennis/
-
-**Arteta worried about Saliba's ankle injury**\
-`After David Raya collected a ball over the top of Arsenal's defence on four minutes, Saliba went down and received treatment.`\
-https://nytimes.com/athletic/6587377/2025/08/31/arsenal-william-saliba-injury-liverpool/
 

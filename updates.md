@@ -1,3 +1,7 @@
+**Villa target Asensio set for Fenerbahce move**\
+`The Spain international is due to fly to Istanbul tonight to complete the transfer.`\
+https://nytimes.com/athletic/6488980/2025/08/31/marco-asensio-fenerbahce-villa/
+
 **The Pulse: Rough starts for Arch and Bama**\
 `Welcome to The Pulse, The Athletic's daily sports newsletter.`\
 https://nytimes.com/athletic/6586779/2025/08/31/rough-starts-for-both-arch-manning-and-bama-plus-a-massive-exhale/
