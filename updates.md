@@ -1,3 +1,7 @@
+**Different Cultures Focused on One Sport**\
+`Why one coach sees Abu Dhabi as a hub for basketball’s future.`\
+https://nytimes.com/paidpost/athletic/experienceabudhabi/desertdreams.html
+
 **Liverpool reach Isak agreement with Newcastle**\
 `Isak is keen on a move to Anfield and previously published a statement in which he said his relationship with Newcastle “can’t continue”.`\
 https://nytimes.com/athletic/6574042/2025/08/31/alexander-isak-liverpool-newcastle-transfer/
