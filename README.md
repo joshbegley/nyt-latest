@@ -1,3 +1,7 @@
+**Lowetide: Oilers management has a chance to shine with McDavid contract negotiations**\
+`Fans in Edmonton have been through years of questionable management decisions. Stan Bowman has a chance to change that.`\
+https://nytimes.com/athletic/6586029/2025/08/31/oilers-management-bowman-mcdavid-negotiations/
+
 **Nuno says Nottingham Forest had 'very bad day' in West Ham defeat**\
 `Nuno admitted the performance would "not help" the mood of his planned meeting with Forest owner Evangelos Marinakis next week.`\
 https://nytimes.com/athletic/6587449/2025/08/31/forest-west-ham-nuno-espirito-santo/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6587234/2025/08/31/brighton-man-city-result-score-a
 **Here’s My Favorite Fried Chicken Sandwich**\
 `And here’s how I turn it into pickle-brined grilled chicken.`\
 https://nytimes.com/2025/08/31/dining/heres-my-favorite-fried-chicken-sandwich.html
-
-**Tracking Tropical Storm Kiko**\
-`See the likely path and wind arrival times for Kiko`\
-https://nytimes.com/interactive/2025/08/31/weather/kiko-map-path-tracker.html
 
