@@ -1,3 +1,15 @@
+**Zdena Salivarova, Publisher Who Kept Czech Literature Alive, Dies at 91**\
+`In exile in Canada, she and her husband, the novelist Josef Skvorecky, published books that had been outlawed by the Soviet-backed Communist regime.`\
+https://nytimes.com/2025/08/31/books/zdena-salivarova-dead.html
+
+**Boy Shot During ‘Ding Dong Ditch’ Prank in Texas**\
+`The police in Houston detained a person after a 10-year-old boy who had knocked on a door was shot on Saturday night, officials said.`\
+https://nytimes.com/2025/08/31/us/houston-boy-shot-ding-dong-ditch.html
+
+**Florida State QB Tommy Castellanos mocks Alabama with merch after upset**\
+`Some of the merchandise features the line "Nick Can't Save Them," a reference to his eye-raising comments earlier this summer.`\
+https://nytimes.com/athletic/6587563/2025/08/31/fsu-qb-tommy-castellanos-mocks-alabama-with-merch/
+
 **Cowboys, CB DaRon Bland agree to 4-year contract extension: Sources**\
 `Bland has intercepted 14 passes since coming into the league in 2022.`\
 https://nytimes.com/athletic/6587607/2025/08/31/cowboys-daron-bland-contract-extension/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6586029/2025/08/31/oilers-management-bowman-mcdavid
 **Nuno says Nottingham Forest had 'very bad day' in West Ham defeat**\
 `Nuno admitted the performance would "not help" the mood of his planned meeting with Forest owner Evangelos Marinakis next week.`\
 https://nytimes.com/athletic/6587449/2025/08/31/forest-west-ham-nuno-espirito-santo/
-
-**Chicago’s Mayor Rejects Trump’s Plans to Send Troops to His City**\
-`Mayor Brandon Johnson of Chicago ordered local police officers not to aid the federal crackdown, ramping up the tensions between the White House and state and local officials.`\
-https://nytimes.com/2025/08/31/us/politics/chicago-order-trump-immigration-crackdown.html
-
-**Luka Dončić's historic triple-double gets Slovenia first win at EuroBasket**\
-`His 26-point, 11-assist, 10-rebound performance was the fifth triple-double recorded in the tournament’s history.`\
-https://nytimes.com/athletic/6587356/2025/08/31/luka-doncic-eurobasket-triple-double/
-
-**Manchester City's Cherki out for around two months with thigh injury**\
-`The 22-year-old signed this summer from Lyon and scored on his Premier League debut against Wolves. `\
-https://nytimes.com/athletic/6587431/2025/08/31/rayan-cherki-injury-update-pep-guardiola/
 
