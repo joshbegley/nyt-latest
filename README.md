@@ -18,9 +18,9 @@ https://nytimes.com/athletic/6586029/2025/08/31/oilers-management-bowman-mcdavid
 `Nuno admitted the performance would "not help" the mood of his planned meeting with Forest owner Evangelos Marinakis next week.`\
 https://nytimes.com/athletic/6587449/2025/08/31/forest-west-ham-nuno-espirito-santo/
 
-**Chicago’s mayor rejects Trump’s plans to send troops to his city.**\
-`By Sonia A. Rao`\
-https://nytimes.com/live/2025/08/31/us/trump-news/chicago-order-trump-immigration-crackdown
+**Chicago’s Mayor Rejects Trump’s Plans to Send Troops to His City**\
+`Mayor Brandon Johnson of Chicago ordered local police officers not to aid the federal crackdown, ramping up the tensions between the White House and state and local officials.`\
+https://nytimes.com/2025/08/31/us/politics/chicago-order-trump-immigration-crackdown.html
 
 **Luka Dončić's historic triple-double gets Slovenia first win at EuroBasket**\
 `His 26-point, 11-assist, 10-rebound performance was the fifth triple-double recorded in the tournament’s history.`\
