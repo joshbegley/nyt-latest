@@ -1,9 +1,17 @@
-**Bryce Underwood leads Michigan in decisive win over New Mexico: Takeaways**\
+**LSU tops Clemson in top-10 clash as Brian Kelly finally wins season opener**\
+`The streak is over, and Brian Kelly has a validating win, one of the biggest of his four-year LSU tenure. `\
+https://nytimes.com/athletic/6586706/2025/08/30/lsu-clemson-brian-kelly-takeaways/
+
+**College Football Playoff 2025 projections: Ohio State leads contenders with Week 1 underway**\
+`Our College Football Playoff predictions model is back. Check here for regular updates on CFP and national championship odds for 2025.`\
+https://nytimes.com/athletic/6560541/2025/08/30/college-football-playoff-bracket-projections-odds/
+
+**Michigan tops New Mexico in Bryce Underwood's highly anticipated debut: Takeaways**\
 `Underwood showed in spurts why he was the No. 1 quarterback in the class of 2025 and how he could elevate the Wolverines' ceiling. `\
 https://nytimes.com/athletic/6586680/2025/08/30/michigan-takes-down-new-mexico-bryce-underwood/
 
 **Felix Auger-Aliassime upsets third seed Alexander Zverev at U.S. Open**\
-`It is the Canadian's first win over a top-five player at a Grand Slam.`\
+`Saturday's matchup was Auger-Aliassime’s first win over a top-five player at a major.`\
 https://nytimes.com/athletic/6586793/2025/08/30/auger-aliassime-us-open-zverev/
 
 **Kansas City Current clinch NWSL playoff spot with 8 weeks to spare**\
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6586717/2025/08/30/alabama-florida-state-kalen-debo
 **Before Minnesota Shooting, a Program Aimed at Preventing Attacks Lost Federal Funding**\
 `The cut by the Trump administration does not appear to have affected the handling of the church shooting this week, but state leaders say it weakens efforts to identify future threats.`\
 https://nytimes.com/2025/08/30/us/minnesota-church-shooting-funding-cut.html
-
-**What do you think of Matt Patricia now? Ohio State win a statement for its new DC**\
-`His coaching career all but written off a year ago, Patricia led Ohio State's defense to a dominant outing vs. Arch Manning and Texas.`\
-https://nytimes.com/athletic/6586597/2025/08/30/matt-patricia-ohio-state-texas-arch-manning/
-
-**Florida State surprises Alabama, sends Crimson Tide to first season-opening loss since 2001**\
-`It was a shocking win for a Florida State team that went 2-10 last year, and just as shocking a loss for an Alabama team with Playoff hopes.`\
-https://nytimes.com/athletic/6586553/2025/08/30/alabama-florida-state-takeaways-tommy-castellanos/
 

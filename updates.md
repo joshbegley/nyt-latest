@@ -1,3 +1,19 @@
+**LSU tops Clemson in top-10 clash as Brian Kelly finally wins season opener**\
+`The streak is over, and Brian Kelly has a validating win, one of the biggest of his four-year LSU tenure. `\
+https://nytimes.com/athletic/6586706/2025/08/30/lsu-clemson-brian-kelly-takeaways/
+
+**College Football Playoff 2025 projections: Ohio State leads contenders with Week 1 underway**\
+`Our College Football Playoff predictions model is back. Check here for regular updates on CFP and national championship odds for 2025.`\
+https://nytimes.com/athletic/6560541/2025/08/30/college-football-playoff-bracket-projections-odds/
+
+**Michigan tops New Mexico in Bryce Underwood's highly anticipated debut: Takeaways**\
+`Underwood showed in spurts why he was the No. 1 quarterback in the class of 2025 and how he could elevate the Wolverines' ceiling. `\
+https://nytimes.com/athletic/6586680/2025/08/30/michigan-takes-down-new-mexico-bryce-underwood/
+
+**Felix Auger-Aliassime upsets third seed Alexander Zverev at U.S. Open**\
+`Saturday's matchup was Auger-Aliassime’s first win over a top-five player at a major.`\
+https://nytimes.com/athletic/6586793/2025/08/30/auger-aliassime-us-open-zverev/
+
 **Bryce Underwood leads Michigan in decisive win over New Mexico: Takeaways**\
 `Underwood showed in spurts why he was the No. 1 quarterback in the class of 2025 and how he could elevate the Wolverines' ceiling. `\
 https://nytimes.com/athletic/6586680/2025/08/30/michigan-takes-down-new-mexico-bryce-underwood/
