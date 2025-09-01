@@ -1,3 +1,11 @@
+**Heisman Trophy odds: Arch Manning falls, who rose after Week 1?**\
+`Arch Manning's forgettable season debut opened the door for new favorites in the odds to win the Heisman Trophy.`\
+https://nytimes.com/athletic/6589651/2025/09/01/heisman-trophy-odds-arch-manning-garrett-nussmeier-lanorris-sellers/
+
+**Man City to complete deal for PSG's Donnarumma, Ederson to join Fenerbahce**\
+`City are arranging the final details of the Italy No 1's transfer ahead of an announcement on Monday evening.`\
+https://nytimes.com/athletic/6589338/2025/09/01/donnarumma-transfer-man-city-ederson-fenerbahce/
+
 **Man City to complete deal for PSG's Donnarunna, Ederson to join Fenerbahce**\
 `City are arranging the final details of the Italy No 1's transfer ahead of an announcement on Monday evening.`\
 https://nytimes.com/athletic/6589338/2025/09/01/donnarumma-transfer-man-city-ederson-fenerbahce/
