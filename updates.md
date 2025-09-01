@@ -1,3 +1,7 @@
+**Bakwa set for Nottingham Forest medical as Cuiabano move nears**\
+`The deal for Bakwa, the 23-year-old winger, is expected to be worth in excess of £30million ($40m).`\
+https://nytimes.com/athletic/6589077/2025/09/01/dilane-bakwa-nottingham-forest-cuiabano/
+
 **A Look at Vintage Photography From Our Archives**\
 `We study photographers’ contact sheets from the last century.`\
 https://nytimes.com/2025/09/01/briefing/a-look-at-vintage-photography-from-our-archives.html
