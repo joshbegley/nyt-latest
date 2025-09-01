@@ -1,40 +1,40 @@
-**One Way the Earthbound Can Take Flight**\
-`Together, we can help ensure that beautiful birds continue to grace our skies.`\
-https://nytimes.com/2025/09/01/opinion/birds-migration-martin-songbird.html
+**Tennis outfits make the U.S. Open a fashion spectacle. For players, it's also a business**\
+`Tennis and fashion are more intertwined than ever before, with players' outfits offering a crucial on-ramp for casual fans.`\
+https://nytimes.com/athletic/6584991/2025/09/01/tennis-best-outfits-us-open-fashion-deals-sponsorships/
 
-**One Concrete Way to Make the Justice System Fairer**\
-`Ending cash bail works. Trump wants to bring it back everywhere anyway.`\
-https://nytimes.com/2025/09/01/opinion/cash-bail-reform-trump.html
+**Villa on verge of agreeing Sancho loan from Man United**\
+`An agreement club-to-club and with the player is close with only final details to sort.`\
+https://nytimes.com/athletic/6588868/2025/09/01/jadon-sancho-aston-villa-manchester-united/
 
-**In a Mammoth Wildfire’s Remains, Clues to Tame Future Blazes**\
-`A giant fire last year consumed much of Canada’s Jasper National Park. Canadian scientists leading research into wildfires are using the blaze to learn lessons for the future.`\
-https://nytimes.com/2025/09/01/world/canada/canada-wildfires-alberta-jasper.html
+**Falcons mailbag: What's up at right tackle? Why so few D-linemen? Does Penix need more reps?**\
+`The Atlanta Falcons have brought in three new right tackles in the last week. Do any of them have a chance to start?`\
+https://nytimes.com/athletic/6586289/2025/09/01/atlanta-falcons-right-tackle-defensive-linemen-michael-penix/
 
-**How Lin-Manuel Miranda Weathered the Storm**\
-`In this excerpt from a forthcoming biography, the playwright faces a swell of criticism over “Hamilton” and his efforts to help his beloved Puerto Rico.`\
-https://nytimes.com/2025/09/01/theater/lin-manuel-miranda-biography-excerpt.html
+**Smiles and Clasped Hands as Xi, Putin and Modi Try to Signal Unity**\
+`Their display of friendship in China was aimed at projecting an alternative to U.S. global leadership, even as serious differences among them remain.`\
+https://nytimes.com/2025/09/01/world/asia/china-xi-putin-modi.html
 
-**Don’t Like Mamdani? Do Better.**\
-`Even if Mr. Mamdani is as awful as his opponents insist, campaigning against an opponent’s flaws works only if you don’t seem even worse.`\
-https://nytimes.com/2025/09/01/opinion/dont-like-mamdani-do-better.html
+**The Un-Checked, Un-Balanced Reign of King Donald**\
+`Is our vaunted system really safe from the shameless likes of Trump?`\
+https://nytimes.com/2025/09/01/opinion/trump-checks-balances.html
 
-**The Best Movies and TV Shows Coming to Disney+, Amazon, HBO Max and More in September**\
-`“Highest 2 Lowest,” “Marvel Zombies,” “Task” and “The Paper” arrive, and “Onlyl Murders in the Building” returns for Season 5.`\
-https://nytimes.com/2025/09/01/arts/television/movies-tv-shows-september-2025-streaming.html
+**He Burned a Flag and Won an American Right. He Worries It’s at Risk.**\
+`The Supreme Court ruled in 1989 that burning an American flag is speech protected by the First Amendment. President Trump says it should be punished.`\
+https://nytimes.com/2025/09/01/us/politics/flag-burning-trump-johnson-supreme-court.html
 
-**Mexico’s Cartels Are Using Military Weapons**\
-`Recent attacks on villages in Mexico’s western state of Michoacán reveal the cartels’ growing paramilitary-style power, using drones, I.E.D.s and other weapons of war. Paulina Villegas examines the aftermath of these assaults.`\
-https://nytimes.com/video/world/americas/100000010360152/mexicos-cartels-are-using-military-weapons.html
+**We Ran the C.D.C.: Kennedy Is Endangering Every American’s Health**\
+`Agency leaders sound the alarm.`\
+https://nytimes.com/2025/09/01/opinion/cdc-leaders-kennedy.html
 
-**He Served His Time in the U.S., Then Was Deported to an African Prison**\
-`The case of Orville Etoria highlights a tension in President Trump’s deportation agenda, in which immigrants can be sent abroad and detained indefinitely.`\
-https://nytimes.com/2025/09/01/world/africa/trump-deportations-prison-us-eswatini-africa-jamaica.html
+**Why Are Everyone’s Bra Straps Showing These Days?**\
+`Visible undergarments are making a comeback. Our critic explains where the trend originated and what it might mean.`\
+https://nytimes.com/2025/09/01/fashion/bra-straps-showing.html
 
-**29 Things to Do in N.Y.C. in September: Dua Lipa, Street Parties and More**\
-`The pop diva is one of several to hold court at Madison Square Garden in September, and the West Indian American Day Parade and other celebrations return.`\
-https://nytimes.com/2025/09/01/arts/fun-things-to-do-nyc-september-2025.html
+**Is ‘The Wizard of Oz’ at Sphere the Future of Cinema? Or the End of It?**\
+`Our critic went to Las Vegas to see the immersive presentation of the classic 1939 film. What she saw defied easy categorization.`\
+https://nytimes.com/2025/09/01/movies/wizard-of-oz-sphere-review.html
 
-**With Drones and I.E.D.s, Mexico’s Cartels Adopt Arms of Modern War**\
-`Under pressure from the government and each other, some of Mexico’s most powerful criminal groups are amassing homemade mortars, land mines, rocket-propelled grenades and bomber drones.`\
-https://nytimes.com/2025/09/01/world/americas/mexico-cartel-weapons.html
+**6 Dude Ranches Where You Can Saddle Up and Unplug**\
+`All-inclusive guest ranches let you connect with nature, as well as your inner cowpoke, on the trail, around the campfire and under the starry skies.`\
+https://nytimes.com/2025/09/01/travel/dude-ranches.html
 
