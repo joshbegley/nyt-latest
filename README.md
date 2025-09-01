@@ -1,5 +1,9 @@
+**Doctors in South Korea Return to Work After 18-Month Walkout**\
+`Thousands of residents and interns were protesting a government proposal that would have dramatically increased the number of medical students in the country.`\
+https://nytimes.com/2025/09/01/world/asia/south-korea-doctors-strike.html
+
 **Sunderland agree deal for RB Leipzig defender Geertruida**\
-`Sunderland have reached an agreement in principle with RB Leipzig for the signing of Dutch defender Lutsharel Geertruida`\
+`The Netherlands international is in Sunderland on Monday ahead of undergoing his medical at the club.`\
 https://nytimes.com/athletic/6588662/2025/09/01/sunderland-transfers-lutsharel-geertruida/
 
 **Man City ready to sanction Ederson exit – if they sign Donnarumma as replacement**\
@@ -35,8 +39,4 @@ https://nytimes.com/2025/09/01/opinion/trump-unions-labor.html
 **‘The Paper,’ Plus 7 Things to Watch on TV this Week**\
 `A mockumentary series about a local newspaper, from the creators of “The Office,” and the MTV Video Music Awards air.`\
 https://nytimes.com/2025/09/01/arts/television/the-paper-plus-7-things-to-watch-on-tv-this-week.html
-
-**He Faced Down Trump. Now Comes His Biggest Challenge.**\
-`For President Luiz Inácio Lula da Silva of Brazil, the stakes ahead of next year’s election could not be higher.`\
-https://nytimes.com/2025/09/01/opinion/brazil-lula-trump-bolsonaro.html
 
