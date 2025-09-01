@@ -1,3 +1,7 @@
+**Lee Corso's final 'College GameDay' most-watched episode in show's history**\
+`The 3.5 million viewers shattered the previous record by nearly 1 million viewers.`\
+https://nytimes.com/athletic/6588410/2025/08/31/lee-corso-college-gameday-viewership-data/
+
 **Dodger Details: Can L.A. flip the switch for season's final stretch?**\
 `Will Smith saved the Dodgers on Sunday, but Dave Roberts remains perturbed by his team playing to the level of the competition.`\
 https://nytimes.com/athletic/6588347/2025/08/31/dodger-details-flip-switch-stretch-run/
