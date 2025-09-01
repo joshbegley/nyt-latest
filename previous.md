@@ -6,7 +6,7 @@ https://nytimes.com/athletic/6590584/2025/09/01/emiliano-martinez-manchester-uni
 `Five lingering questions as kickoff nears, intel from training camps, and quick 2025 predictions. `\
 https://nytimes.com/athletic/6590215/2025/09/01/offseason-questions-nfl-2025-scoop-city/
 
-**With Jauan Jennings back at practice, 49ers' WR prospects don't seem so bleak**\
+**With Jauan Jennings practicing, 49ers' WR prospects don't seem so bleak**\
 `Jennings, who hasn't practiced for more than a month, was back on the field. If he remains healthy, he and Ricky Pearsall will start Sunday.`\
 https://nytimes.com/athletic/6590169/2025/09/01/49ers-jauan-jennings-returns-seahawks/
 

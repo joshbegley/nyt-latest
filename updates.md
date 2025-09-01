@@ -1,3 +1,7 @@
+**With Jauan Jennings practicing, 49ers' WR prospects don't seem so bleak**\
+`Jennings, who hasn't practiced for more than a month, was back on the field. If he remains healthy, he and Ricky Pearsall will start Sunday.`\
+https://nytimes.com/athletic/6590169/2025/09/01/49ers-jauan-jennings-returns-seahawks/
+
 **Martinez misses out on Man Utd move as deadline day offer never arrives**\
 `Martinez spent transfer deadline day at Aston Villa’s training ground waiting for a call that never came.`\
 https://nytimes.com/athletic/6590584/2025/09/01/emiliano-martinez-manchester-united-aston-villa-transfer/
