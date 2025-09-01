@@ -1,3 +1,15 @@
+**Brentford to complete loan deal for Arsenal winger Nelson**\
+`The 25-year-old spent last season on loan at Fulham.`\
+https://nytimes.com/athletic/6517981/2025/09/01/reiss-nelson-brentford-arsenal-loan/
+
+**Spurs agree loan deal for PSG's Randal Kolo Muani**\
+`Personal terms with the forward have been agreed and the player is on the way to London to complete a medial.`\
+https://nytimes.com/athletic/6527668/2025/09/01/randal-kolo-muani-tottenham-transfer-loan-deal/
+
+**Inside Real Madrid: Transfers latest, Ceballos talks and injury updates**\
+`Our Real Madrid writers bring you the latest news and inside info in this week's column on all things Madridista`\
+https://nytimes.com/athletic/6588869/2025/09/01/real-madrid-transfers-alonso-ceballos-injuries/
+
 **Hundreds Killed as Powerful Earthquake Rocks Afghanistan**\
 `Injured people were airlifted from mountainous communities after a 6.0-magnitude quake. The death toll was expected to rise.`\
 https://nytimes.com/video/world/asia/100000010371964/hundreds-killed-as-powerful-earthquake-rocks-afghanistan.html

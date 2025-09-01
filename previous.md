@@ -1,3 +1,15 @@
+**Brentford to complete loan deal for Arsenal winger Nelson**\
+`The 25-year-old spent last season on loan at Fulham.`\
+https://nytimes.com/athletic/6517981/2025/09/01/reiss-nelson-brentford-arsenal-loan/
+
+**Spurs agree loan deal for PSG's Randal Kolo Muani**\
+`Personal terms with the forward have been agreed and the player is on the way to London to complete a medial.`\
+https://nytimes.com/athletic/6527668/2025/09/01/randal-kolo-muani-tottenham-transfer-loan-deal/
+
+**Inside Real Madrid: Transfers latest, Ceballos talks and injury updates**\
+`Our Real Madrid writers bring you the latest news and inside info in this week's column on all things Madridista`\
+https://nytimes.com/athletic/6588869/2025/09/01/real-madrid-transfers-alonso-ceballos-injuries/
+
 **Hundreds Killed as Powerful Earthquake Rocks Afghanistan**\
 `Injured people were airlifted from mountainous communities after a 6.0-magnitude quake. The death toll was expected to rise.`\
 https://nytimes.com/video/world/asia/100000010371964/hundreds-killed-as-powerful-earthquake-rocks-afghanistan.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6589077/2025/09/01/dilane-bakwa-nottingham-forest-c
 **A Look at Vintage Photography From Our Archives**\
 `We study photographers’ contact sheets from the last century.`\
 https://nytimes.com/2025/09/01/briefing/a-look-at-vintage-photography-from-our-archives.html
-
-**Quarterback overreactions: Whose stock is up after Week 1? Who struggled?**\
-`Arnold's debut at Auburn was promising. Manning's first road start at Texas was not. `\
-https://nytimes.com/athletic/6588481/2025/09/01/quarterback-overreaction-arch-manning-jackson-arnold/
-
-**FPL: What we learnt from FPL Gameweek 3 - Time to buy Isak? And what to do with Watkins**\
-`With a pause in club football and the transfer window shutting today, this is an opportune time to reflect, reassess and plan wisely in FPL`\
-https://nytimes.com/athletic/6588185/2025/09/01/fantasy-premier-league-gw3-isak-joao-pedro-watkins/
-
-**Message board Monday: Arch and Kalen and Nico, oh my**\
-`Texas fans were not pleased with the Longhorns on Saturday: "Was Sark this unprepared or was Arch this bad?"`\
-https://nytimes.com/athletic/6587959/2025/09/01/arch-manning-kalen-deboer-nico-iamaleava/
 

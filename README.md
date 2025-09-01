@@ -1,3 +1,19 @@
+**The most interesting 49er in 2025: We spent a practice trailing Ricky Pearsall**\
+`The Aug. 20 practice was eventful for Pearsall. He had a scary fall on his shoulder and some rare one-on-ones with Deommodore Lenoir.`\
+https://nytimes.com/athletic/6585045/2025/09/01/ricky-pearsall-49ers-training-camp-preseason/
+
+**Ottawa Senators training camp mailbag: Submit your questions for Julian McKenzie**\
+`Hockey season is almost here: it's getting close to training camp. Pose your end-of-summer questions here.`\
+https://nytimes.com/athletic/6583459/2025/09/01/senators-training-camp-preseason-mailbag/
+
+**How Liverpool defeated Arsenal by eventually showing more ambition in attack**\
+`This game was a typically cautious affair between two title contenders, but Arne Slot's side were rewarded for some second-half positivity`\
+https://nytimes.com/athletic/6588867/2025/09/01/liverpool-arsenal-analysis-ambition-tactics/
+
+**Who will manage the Angels in 2026? Here are five potential options**\
+`Ron Washington is among several intriguing candidates who could guide the club in 2026.`\
+https://nytimes.com/athletic/6588426/2025/09/01/angels-manager-2026-five-potential-options/
+
 **Brentford to complete loan deal for Arsenal winger Nelson**\
 `The 25-year-old spent last season on loan at Fulham.`\
 https://nytimes.com/athletic/6517981/2025/09/01/reiss-nelson-brentford-arsenal-loan/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6577325/2025/09/01/chelsea-transfers-fermin-lopez-b
 **Juventus advancing in talks to sign Walti from Arsenal**\
 `The 32-year-old has one year left on her existing deal in north London, meaning a fee will need to be negotiated for her services.`\
 https://nytimes.com/athletic/6589093/2025/09/01/lia-walti-juventus-arsenal/
-
-**Watching West Ham's win over Nottingham Forest in the away end**\
-`Roshane Thomas swapped the press box in favour of the away end in an attempt to better understand how matchgoing fans feel about their side`\
-https://nytimes.com/athletic/6580763/2025/09/01/west-ham-forest-win-away-end/
-
-**USMNT Player Tracker: Balogun's timely goal, Pulisic kick-starts Milan and Poch's Big Noon cameo**\
-`Our round up of the weekend action also includes Malik Tillman's first Bayer Leverkusen goal and another fine Tyler Adams performance`\
-https://nytimes.com/athletic/6588932/2025/09/01/usmnt-pulisic-balogun-pochettino-tracker/
-
-**Bakwa set for Nottingham Forest medical as Cuiabano move nears**\
-`The deal for Bakwa, the 23-year-old winger, is expected to be worth in excess of £30million ($40m).`\
-https://nytimes.com/athletic/6589077/2025/09/01/dilane-bakwa-nottingham-forest-cuiabano/
-
-**A Look at Vintage Photography From Our Archives**\
-`We study photographers’ contact sheets from the last century.`\
-https://nytimes.com/2025/09/01/briefing/a-look-at-vintage-photography-from-our-archives.html
 
