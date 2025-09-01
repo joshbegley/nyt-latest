@@ -1,3 +1,7 @@
+**Crime Crackdown in D.C. Shows Trump Administration’s Uneasy Relationship With Guns**\
+`If President Trump’s actions were intended to drive a law-and-order wedge between Democratic big-city leaders and their constituents, it has also exposed a division in his own coalition.`\
+https://nytimes.com/2025/09/01/us/politics/dc-crime-trump-guns.html
+
 **Tottenham's Gil set for permanent Girona transfer**\
 `The 24-year-old spent the 2024-25 campaign on loan at the Catalan club, where he scored four goals across 32 appearances.`\
 https://nytimes.com/athletic/6589056/2025/09/01/tottenham-transfer-news-gil-girona/

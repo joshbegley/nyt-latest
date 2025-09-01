@@ -1,3 +1,7 @@
+**Crime Crackdown in D.C. Shows Trump Administration’s Uneasy Relationship With Guns**\
+`If President Trump’s actions were intended to drive a law-and-order wedge between Democratic big-city leaders and their constituents, it has also exposed a division in his own coalition.`\
+https://nytimes.com/2025/09/01/us/politics/dc-crime-trump-guns.html
+
 **Tottenham's Gil set for permanent Girona transfer**\
 `The 24-year-old spent the 2024-25 campaign on loan at the Catalan club, where he scored four goals across 32 appearances.`\
 https://nytimes.com/athletic/6589056/2025/09/01/tottenham-transfer-news-gil-girona/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6589097/2025/09/01/notre-dame-miami-marcus-freeman/
 **Inside Barcelona: Hansi Flick's 'no egos' message, Fermin Lopez to stay, Joan Garcia stands out**\
 `A look at the key talking points around Barca right now, including the fallout from a surprise draw with Rayo Vallecano`\
 https://nytimes.com/athletic/6588999/2025/09/01/inside-barcelona-hansi-flick-fermin-lopez/
-
-**The most interesting 49er in 2025: We spent a practice trailing Ricky Pearsall**\
-`The Aug. 20 practice was eventful for Pearsall. He had a scary fall on his shoulder and some rare one-on-ones with Deommodore Lenoir.`\
-https://nytimes.com/athletic/6585045/2025/09/01/ricky-pearsall-49ers-training-camp-preseason/
 
