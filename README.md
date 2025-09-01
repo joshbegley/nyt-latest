@@ -1,3 +1,15 @@
+**Legendary boxer Joe Bugner, who challenged Ali and Frazier, dies at 75**\
+`Bugner began his 32-year boxing career in 1967 at 17.`\
+https://nytimes.com/athletic/6589800/2025/09/01/joe-bugner-boxing-champion-heavyweight-obit-muhammad-ali/
+
+**Athletic Club finalising deal to re-sign former Man City defender Laporte**\
+`The centre-back made 222 appearances for the Basque club during his first spell before joining Manchester City in January 2018.`\
+https://nytimes.com/athletic/6355390/2025/09/01/laporte-athletic-club-transfer/
+
+**Guehi expected to stay at Palace despite Liverpool transfer agreement**\
+`The England international, 25, completed at least part of a medical after a fee of £35million was agreed between the clubs.`\
+https://nytimes.com/athletic/6589620/2025/09/01/marc-guehi-liverpool-transfer-crystal-palace/
+
 **Osula set to stay at Newcastle despite deadline day Frankfurt interest**\
 `The striker is set to remain at St James' Park as cover up front for Eddie Howe's side.`\
 https://nytimes.com/athletic/6589333/2025/09/01/will-osula-newcastle-eintracht-frankfurt-transfer/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/09/01/us/politics/trumps-unions-federal-workers.html
 **Army football player and family save unresponsive man from burning car**\
 `"This was just doing what I would always do. This is just helping somebody in need," said Army safety Larry Pickett Jr. `\
 https://nytimes.com/athletic/6589786/2025/09/01/army-football-player-save-burning-car/
-
-**Khelif files CAS appeal over World Boxing genetic sex testing**\
-`The Algerian boxer's request for her ban from competition be lifted until her case is heard has been dismissed by CAS.`\
-https://nytimes.com/athletic/6589834/2025/09/01/imane-khelif-gender-testing-boxing-cas/
-
-**Hojlund completes loan move from Manchester United to Napoli**\
-`The deal includes a conditional obligation to make the transfer permanent for €44million (£38m; $51.4m) next summer.`\
-https://nytimes.com/athletic/6585942/2025/09/01/rasmus-hojlund-napoli-manchester-united-transfer/
-
-**Heisman Trophy odds: Arch Manning falls, who rose after Week 1?**\
-`Arch Manning's forgettable season debut opened the door for new favorites in the odds to win the Heisman Trophy.`\
-https://nytimes.com/athletic/6589651/2025/09/01/heisman-trophy-odds-arch-manning-garrett-nussmeier-lanorris-sellers/
 
