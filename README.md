@@ -1,3 +1,7 @@
+**Wharton to withdraw from England squad, says Glasner**\
+`Wharton's Palace team-mate Ismaila Sarr is also set to miss Senegal’s qualifying matches against DR Congo and South Sudan.`\
+https://nytimes.com/athletic/6588833/2025/09/01/adam-wharton-injury-palace-england/
+
 **What to Know About Giuliani’s Car Crash**\
 `Rudolph W. Giuliani, the former mayor of New York and lawyer for President Trump, suffered a fractured vertebra when a vehicle slammed into his car on Saturday.`\
 https://nytimes.com/2025/09/01/nyregion/rudy-giuliani-car-crash-accident.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6588662/2025/09/01/sunderland-transfers-lutsharel-g
 **Man City ready to sanction Ederson exit – if they sign Donnarumma as replacement**\
 `Brazil international Ederson is a target for Fenerbahce over the closing hours of the summer window.`\
 https://nytimes.com/athletic/6526901/2025/09/01/man-city-donnarumma-ederson-transfer/
-
-**What this picture says about Jack Grealish and his meaning to Everton**\
-`The on-loan England international is a beacon of hope, as well as a superb player, in a team that looks re-energised`\
-https://nytimes.com/athletic/6586329/2025/09/01/jack-grealish-everton-transfer-impact/
 
