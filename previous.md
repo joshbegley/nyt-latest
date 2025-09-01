@@ -1,40 +1,40 @@
-**Newcastle agree £55m move for Wissa from Brentford**\
-`The DR Congo international has not featured in Keith Andrews' squads for the opening three matches of the Premier League season.`\
-https://nytimes.com/athletic/6587195/2025/09/01/yoane-wissa-newcastle-united-transfer/
+**Which MLB contenders have the toughest road to the playoffs? Breaking down the schedules pt. 2**\
+`Let's break down each contender’s upcoming schedule, focusing this time on the first two weeks of September.`\
+https://nytimes.com/athletic/6587549/2025/09/01/mlb-contenders-postseason-strength-schedule/
 
-**Ten Hag sacked after just three games as Leverkusen coach**\
-`Ten Hag replaced Xabi Alonso in the dugout at the BayArena this summer, after the Spanish coach was appointed at Real Madrid.`\
-https://nytimes.com/athletic/6587305/2025/09/01/erik-ten-hag-sacked-bayer-leverkusen/
+**NFL decision-makers' predictions for 2025: Joe Burrow goes nuclear, Lions stumble and more**\
+`In our anonymous survey, GMs, team executives, head coaches and assistants made their picks for the upcoming NFL season. `\
+https://nytimes.com/athletic/6584048/2025/09/01/nfl-predictions-2025-awards-poll-joe-burrow/
 
-**Kyiv Links Moscow to Killing of Former Ukrainian Parliament Speaker**\
-`Ukraine said it had arrested a suspect in the murder of the politician, who had voiced anti-Russian views. The authorities did not explain how the suspect was tied to Moscow.`\
-https://nytimes.com/2025/09/01/world/europe/ukraine-andriy-parubiy-murder.html
+**C. Notes: Where does Sal Stewart fit in with the Reds' lineup?**\
+`Stewart is coming to the big leagues Monday to hit, because all he's done in the minor leagues is hit.`\
+https://nytimes.com/athletic/6588200/2025/09/01/reds-sal-stewart-lineup-c-notes/
 
-**The U.S. Open is the strangest Grand Slam. Can Jannik Sinner tame it?**\
-`No man has defended the U.S. Open title in 17 years. Sinner, who has been unruffled on court the past year, is next in line.`\
-https://nytimes.com/athletic/6587938/2025/09/01/us-open-tennis-grand-slam-winners-jannik-sinner/
+**I study decision-making. This is why Keegan Bradley made the smart choice as a leader**\
+`Dr. Jennifer Lerner is a professor at Harvard who observed Keegan Bradley's Ryder Cup decision with particular fascination.`\
+https://nytimes.com/athletic/6587232/2025/09/01/keegan-bradley-ryder-cup-leadership-decision-team/
 
-**Israel’s New Negotiating Stance Is Likely to Prolong Gaza War, Experts Say**\
-`A shift toward pressing for a permanent cease-fire deal, alongside plans for a new offensive in Gaza City, means the fighting is unlikely to end soon.`\
-https://nytimes.com/2025/09/01/world/middleeast/israel-gaza-cease-fire-negotiations.html
+**Wordle Review No. 1,536**\
+`Scroll down for hints and conversation about the puzzle for Tuesday, Sept. 2, 2025.`\
+https://nytimes.com/2025/09/01/crosswords/wordle-review-1536.html
 
-**The New York Times International Edition in Print for Tuesday, Sep. 2, 2025**\
-``\
-https://nytimes.com/issue/todaysinyt/2025/09/01/todays-new-york-times-international-edition
+**Strands Sidekick No. 548**\
+`Scroll down for hints and conversation about the puzzle for Tuesday, Sept. 2, 2025.`\
+https://nytimes.com/2025/09/01/crosswords/strands-sidekick-548.html
 
-**Naomi Osaka and Coco Gauff's next U.S. Open meeting, six long years in the making**\
-`The two Grand Slam champions had a moment together at this tournament when they were very different people. Now they have a match to play.`\
-https://nytimes.com/athletic/6588424/2025/09/01/us-open-osaka-gauff-match-history/
+**Connections Companion No. 814**\
+`Scroll down for hints and conversation about the puzzle for Tuesday, Sept. 2, 2025.`\
+https://nytimes.com/2025/09/01/crosswords/connections-companion-814.html
 
-**Aston Villa exploring move for Liverpool's Harvey Elliott**\
-`Separately, Villa are also on the verge of agreeing a deadline day loan deal for Manchester United winger Jadon Sancho.`\
-https://nytimes.com/athletic/6537949/2025/09/01/harvey-elliott-aston-villa-transfer-liverpool/
+**Nearly 170 days after his F1 debut disaster, Isack Hadjar truly earned his first podium**\
+`Hadjar's F1 career began ignominiously. In the months since, he's built a solid rookie resumé - and cashed it in with his first podium `\
+https://nytimes.com/athletic/6587732/2025/09/01/isack-hadjar-first-podium-dutch-gp/
 
-**Arsenal's Lokonga, Vieira close to Hamburg moves**\
-`Lokonga is set to join the Bundesliga side permanently while Vieira is finalising a loan move.`\
-https://nytimes.com/athletic/6522213/2025/09/01/arsenal-news-lokonga-vieira-hamburg/
+**My Colts' 10-step offseason plan revisited: GM Chris Ballard more aggressive than ever**\
+`How did the Colts' actual offseason compare to the one I laid out for them in February? `\
+https://nytimes.com/athletic/6584241/2025/09/01/colts-offseason-daniel-jones-chris-ballard/
 
-**What to Know About the Earthquake in Afghanistan**\
-`Hundreds of people were killed, according to the Taliban government, and the death toll was expected to rise.`\
-https://nytimes.com/2025/09/01/world/asia/earthquake-afghanistan-what-to-know.html
+**Michigan final thoughts: Are the Wolverines ready for Oklahoma on Saturday?**\
+`The Wolverines had two strong offensive drives but allowed New Mexico to hang around. Also, what does Jaishawn Barham's ejection mean?`\
+https://nytimes.com/athletic/6587770/2025/09/01/michigan-final-thoughts-better-offensive-cohesion-and-looking-ahead-to-oklahoma/
 
