@@ -1,3 +1,7 @@
+**No Corrections: Sept. 1, 2025**\
+`No corrections appeared in print on Monday, Sept. 1, 2025.`\
+https://nytimes.com/2025/08/31/pageoneplus/no-corrections-sept-1-2025.html
+
 **Lee Corso's final 'College GameDay' most-watched episode in show's history**\
 `The 3.5 million viewers shattered the previous record by nearly 1 million viewers.`\
 https://nytimes.com/athletic/6588410/2025/08/31/lee-corso-college-gameday-viewership-data/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6588267/2025/08/31/houston-astros-august-hitting/
 **Villa exploring Sancho deal separately to potential Martinez move**\
 `Villa, though, have been restricted by their need to adhere to UEFA financial regulations all summer.`\
 https://nytimes.com/athletic/6587124/2025/08/31/aston-villa-jadon-sancho/
-
-**Yankees dress like cowboys before Astros series; September call-ups coming: Takeaways**\
-`The Yankees decided on a western vibe before heading to Houston, where they'll try to show they can play well against good teams.`\
-https://nytimes.com/athletic/6587601/2025/08/31/yankees-dress-like-cowboys-september-call-ups/
 
