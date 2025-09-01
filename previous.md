@@ -1,3 +1,15 @@
+**In NASCAR playoff opener, Bubba Wallace shows he's not to be dismissed**\
+`Wallace has had a reputation for not handling adversity well on the track. On Sunday, he took another step toward putting that in the past.`\
+https://nytimes.com/athletic/6590017/2025/09/01/bubba-wallace-nascar-darlington-playoffs-championship/
+
+**Naomi Osaka knocks Coco Gauff out of the U.S. Open with singleminded tactical masterclass**\
+`Osaka relentlessly targeted Gauff's weak forehand to send the home favorite out of the tournament.`\
+https://nytimes.com/athletic/6590175/2025/09/01/naomi-osaka-coco-gauff-us-open-result-analysis/
+
+**At Telluride, a Springsteen Biopic Means a Springsteen Appearance**\
+`The world premiere drew a starry audience to the annual film festival in Colorado.`\
+https://nytimes.com/2025/09/01/movies/telluride-springsteen-biopic.html
+
 **What Randal Kolo Muani brings to Tottenham: Dangerous pace, elusive movement, quick thinking**\
 `Despite a difficult spell at PSG, the 26-year-old's reputation as a talented, multi-faceted forward holds true`\
 https://nytimes.com/athletic/6589214/2025/09/01/randal-kolo-muani-tottenham/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6355390/2025/09/01/laporte-athletic-club-transfer/
 **Guehi expected to stay at Palace despite Liverpool transfer agreement**\
 `The England international, 25, completed at least part of a medical after a fee of £35million was agreed between the clubs.`\
 https://nytimes.com/athletic/6589620/2025/09/01/marc-guehi-liverpool-transfer-crystal-palace/
-
-**Osula set to stay at Newcastle despite deadline day Frankfurt interest**\
-`The striker is set to remain at St James' Park as cover up front for Eddie Howe's side.`\
-https://nytimes.com/athletic/6589333/2025/09/01/will-osula-newcastle-eintracht-frankfurt-transfer/
-
-**Juan Ayuso set to leave UAE Team Emirates after parties agree to early contract termination**\
-`The Spaniard will remain with his current team until the end of the 2025 season`\
-https://nytimes.com/athletic/6590018/2025/09/01/juan-ayuso-uae-emirates-contract-termination/
-
-**Chelsea's Chilwell set for move to BlueCo-owned Strasbourg**\
-`The 28-year-old spent the second half of last season on loan at Crystal Palace.`\
-https://nytimes.com/athletic/6423769/2025/09/01/ben-chilwell-chelsea-transfer-strasbourg/
 

@@ -1,3 +1,15 @@
+**In NASCAR playoff opener, Bubba Wallace shows he's not to be dismissed**\
+`Wallace has had a reputation for not handling adversity well on the track. On Sunday, he took another step toward putting that in the past.`\
+https://nytimes.com/athletic/6590017/2025/09/01/bubba-wallace-nascar-darlington-playoffs-championship/
+
+**Naomi Osaka knocks Coco Gauff out of the U.S. Open with singleminded tactical masterclass**\
+`Osaka relentlessly targeted Gauff's weak forehand to send the home favorite out of the tournament.`\
+https://nytimes.com/athletic/6590175/2025/09/01/naomi-osaka-coco-gauff-us-open-result-analysis/
+
+**At Telluride, a Springsteen Biopic Means a Springsteen Appearance**\
+`The world premiere drew a starry audience to the annual film festival in Colorado.`\
+https://nytimes.com/2025/09/01/movies/telluride-springsteen-biopic.html
+
 **What Randal Kolo Muani brings to Tottenham: Dangerous pace, elusive movement, quick thinking**\
 `Despite a difficult spell at PSG, the 26-year-old's reputation as a talented, multi-faceted forward holds true`\
 https://nytimes.com/athletic/6589214/2025/09/01/randal-kolo-muani-tottenham/
