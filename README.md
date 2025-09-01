@@ -1,3 +1,7 @@
+**Miami's new faces show why this is a better Hurricanes team**\
+`Miami lost No. 1 pick Cam Ward but leaned on Georgia transfer Carson Beck and a revamped defense to beat Notre Dame on Sunday.`\
+https://nytimes.com/athletic/6589186/2025/09/01/miami-carson-beck-transfers-notre-dame/
+
 **Why Notre Dame's loss to Miami didn't feel like a program referendum**\
 `The Irish entered this season with ample benefit of the doubt after playing for a national title last January.`\
 https://nytimes.com/athletic/6589097/2025/09/01/notre-dame-miami-marcus-freeman/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6527668/2025/09/01/randal-kolo-muani-tottenham-tran
 **Inside Real Madrid: Transfers latest, Ceballos talks and injury updates**\
 `Our Real Madrid writers bring you the latest news and inside info in this week's column on all things Madridista`\
 https://nytimes.com/athletic/6588869/2025/09/01/real-madrid-transfers-alonso-ceballos-injuries/
-
-**Hundreds Killed as Powerful Earthquake Rocks Afghanistan**\
-`Injured people were airlifted from mountainous communities after a 6.0-magnitude quake. The death toll was expected to rise.`\
-https://nytimes.com/video/world/asia/100000010371964/hundreds-killed-as-powerful-earthquake-rocks-afghanistan.html
 
