@@ -1,3 +1,7 @@
+**Judge Temporarily Halts Deportation of Guatemalan Children**\
+`With children already loaded onto planes, a federal judge on Sunday temporarily blocked the Trump administration from deporting dozens of them.`\
+https://nytimes.com/video/us/politics/100000010371750/trump-deportations-judge-guatemala-children.html
+
 **Where You Can Stumble Upon a U.S. Open Match**\
 `A small part of the New York City tennis tournament is staged, miles away from the main action, at the gleaming Cary Leeds Center for Tennis & Learning in the Bronx.`\
 https://nytimes.com/2025/09/01/nyregion/us-open-tennis-junior-tournament.html
@@ -26,15 +30,11 @@ https://nytimes.com/athletic/6588662/2025/09/01/sunderland-transfers-lutsharel-g
 `Brazil international Ederson is a target for Fenerbahce over the closing hours of the summer window.`\
 https://nytimes.com/athletic/6526901/2025/09/01/man-city-donnarumma-ederson-transfer/
 
+**What this picture says about Jack Grealish and his meaning to Everton**\
+`The on-loan England international is a beacon of hope, as well as a superb player, in a team that looks re-energised`\
+https://nytimes.com/athletic/6586329/2025/09/01/jack-grealish-everton-transfer-impact/
+
 **Dominik Szoboszlai has proved an extraordinary emergency right-back. He should stay there**\
 `Slot has got himself a new dynamic right-back with a penchant for producing the spectacular.`\
 https://nytimes.com/athletic/6587729/2025/09/01/dominik-szoboszlai-has-proved-an-extraordinary-emergency-right-back-he-should-stay-there/
-
-**If this was goodbye from Marc Guehi, it was a fitting send off**\
-`Transfer speculation has long swirled around the defender, but his attitude and application have never faltered `\
-https://nytimes.com/athletic/6582737/2025/09/01/marc-guehi-crystal-palace-transfer/
-
-**Betis agree €25m Antony deal with Man United**\
-`Antony signed for United in August 2022 in a deal worth a guaranteed €95million (£81.3m at the time)`\
-https://nytimes.com/athletic/6587455/2025/09/01/real-betis-agree-e25m-antony-deal-with-manchester-united/
 

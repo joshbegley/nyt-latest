@@ -1,3 +1,11 @@
+**Judge Temporarily Halts Deportation of Guatemalan Children**\
+`With children already loaded onto planes, a federal judge on Sunday temporarily blocked the Trump administration from deporting dozens of them.`\
+https://nytimes.com/video/us/politics/100000010371750/trump-deportations-judge-guatemala-children.html
+
+**What this picture says about Jack Grealish and his meaning to Everton**\
+`The on-loan England international is a beacon of hope, as well as a superb player, in a team that looks re-energised`\
+https://nytimes.com/athletic/6586329/2025/09/01/jack-grealish-everton-transfer-impact/
+
 **Where You Can Stumble Upon a U.S. Open Match**\
 `A small part of the New York City tennis tournament is staged, miles away from the main action, at the gleaming Cary Leeds Center for Tennis & Learning in the Bronx.`\
 https://nytimes.com/2025/09/01/nyregion/us-open-tennis-junior-tournament.html
