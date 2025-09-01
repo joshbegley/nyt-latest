@@ -1,3 +1,11 @@
+**Man United agree deal to sign goalkeeper Lammens from Antwerp**\
+`A fee of €21million (£18.2m) plus add ons has been agreed between the two clubs with no sell-on clause included.`\
+https://nytimes.com/athletic/6510517/2025/09/01/senne-lammens-manchester-united-transfer/
+
+**TAFC: Isak set for £130m Liverpool switch. Plus: Ten Hag sacked by Leverkusen**\
+`Today in TAFC: Isak on the way to Liverpool for £130m, Ten Hag sacked by Bayer Leverkusen after just two games.`\
+https://nytimes.com/athletic/6588844/2025/09/01/isak-liverpool-transfer-ten-hag-sacked-leverkusen/
+
 **NFL odds for MVP and other top awards: A tight field led by Lamar Jackson heading into Week 1**\
 `Jackson leads the MVP odds by a tiny margin, with Joe Burrow, Josh Allen and Patrick Mahomes rounding out the top four. `\
 https://nytimes.com/athletic/6573085/2025/09/01/nfl-mvp-odds-week-1-lamar-jackson-joe-burrow-josh-allen/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6587549/2025/09/01/mlb-contenders-postseason-streng
 **NFL decision-makers' predictions for 2025: Joe Burrow goes nuclear, Lions stumble and more**\
 `In our anonymous survey, GMs, team executives, head coaches and assistants made their picks for the upcoming NFL season. `\
 https://nytimes.com/athletic/6584048/2025/09/01/nfl-predictions-2025-awards-poll-joe-burrow/
-
-**C. Notes: Where does Sal Stewart fit in with the Reds' lineup?**\
-`Stewart is coming to the big leagues Monday to hit, because all he's done in the minor leagues is hit.`\
-https://nytimes.com/athletic/6588200/2025/09/01/reds-sal-stewart-lineup-c-notes/
-
-**I study decision-making. This is why Keegan Bradley made the smart choice as a leader**\
-`Dr. Jennifer Lerner is a professor at Harvard who observed Keegan Bradley's Ryder Cup decision with particular fascination.`\
-https://nytimes.com/athletic/6587232/2025/09/01/keegan-bradley-ryder-cup-leadership-decision-team/
 
