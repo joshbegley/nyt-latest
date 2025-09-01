@@ -10,7 +10,7 @@ https://nytimes.com/athletic/6589892/2025/09/01/erik-ten-hag-statement-bayer-lev
 `The president, who has targeted collective bargaining contracts for nearly one million government employees, has said their functions touch on national security.`\
 https://nytimes.com/2025/09/01/us/politics/trumps-unions-federal-workers.html
 
-**Army football player saves man from burning car: ‘What if we got there just a minute later?’**\
+**Army football player and family save unresponsive man from burning car**\
 `"This was just doing what I would always do. This is just helping somebody in need," said Army safety Larry Pickett Jr. `\
 https://nytimes.com/athletic/6589786/2025/09/01/army-football-player-save-burning-car/
 

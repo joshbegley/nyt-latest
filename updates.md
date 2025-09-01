@@ -1,3 +1,7 @@
+**Army football player and family save unresponsive man from burning car**\
+`"This was just doing what I would always do. This is just helping somebody in need," said Army safety Larry Pickett Jr. `\
+https://nytimes.com/athletic/6589786/2025/09/01/army-football-player-save-burning-car/
+
 **Sterling remains at Chelsea beyond transfer deadline**\
 `The 30-year-old's Chelsea contract still has two years to run.`\
 https://nytimes.com/athletic/6589876/2025/09/01/raheem-sterling-chelsea-transfer/
