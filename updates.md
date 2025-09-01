@@ -1,3 +1,7 @@
+**Far-Right, Anti-Immigration Protests Worry Leaders in Australia**\
+`The government condemned the demonstrations, which drew tens of thousands of people. Some of the events included speakers tied to neo-Nazi groups.`\
+https://nytimes.com/2025/09/01/world/australia/australia-immigration-protests.html
+
 **China Shows Off Its Power**\
 `Xi Jinping is using a summit with leaders like Narendra Modi and Vladimir Putin as an opportunity to pull countries away from the U.S.`\
 https://nytimes.com/2025/09/01/briefing/xi-modi-putin-summit-gaza.html

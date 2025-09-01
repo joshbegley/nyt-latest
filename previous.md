@@ -1,3 +1,7 @@
+**Far-Right, Anti-Immigration Protests Worry Leaders in Australia**\
+`The government condemned the demonstrations, which drew tens of thousands of people. Some of the events included speakers tied to neo-Nazi groups.`\
+https://nytimes.com/2025/09/01/world/australia/australia-immigration-protests.html
+
 **China Shows Off Its Power**\
 `Xi Jinping is using a summit with leaders like Narendra Modi and Vladimir Putin as an opportunity to pull countries away from the U.S.`\
 https://nytimes.com/2025/09/01/briefing/xi-modi-putin-summit-gaza.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6587888/2025/09/01/arteta-anfield-record/
 **Isak, Martinez, Guehi: Premier League transfers to watch out for on deadline day**\
 `What could get done on transfer deadline day? Follow our live coverage with breaking news and analysis.`\
 https://nytimes.com/athletic/6582596/2025/09/01/isak-martinez-guehi-premier-league-transfers-that-could-get-done-on-deadline-day/
-
-**How has Trent Alexander-Arnold started at Real Madrid? And why has he lost his England place?**\
-`The former Liverpool right-back is still adjusting to life in La Liga after June's transfer and will need more time to show his best form`\
-https://nytimes.com/athletic/6587272/2025/09/01/trent-alexander-arnold-real-madrid-form/
 
