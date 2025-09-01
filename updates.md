@@ -1,3 +1,5 @@
+
+
 **Nadler, Pillar of Democratic Party’s Old Guard, Will Retire Next Year**\
 `Representative Jerrold Nadler, the ex-House Judiciary chairman who helped lead President Trump’s impeachments, will not seek re-election in New York.`\
 https://nytimes.com/2025/09/01/nyregion/jerrold-nadler-congress-retires.html
