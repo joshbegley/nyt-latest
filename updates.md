@@ -1,3 +1,5 @@
+
+
 **Miami's new faces show why this is a better Hurricanes team**\
 `Miami lost No. 1 pick Cam Ward but leaned on Georgia transfer Carson Beck and a revamped defense to beat Notre Dame on Sunday.`\
 https://nytimes.com/athletic/6589186/2025/09/01/miami-carson-beck-transfers-notre-dame/
