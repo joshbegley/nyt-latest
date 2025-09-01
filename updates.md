@@ -1,3 +1,19 @@
+**Leicester loan El Khannouss to Stuttgart, sign Carranza from Feyenoord**\
+`El Khannouss had been considered by a number of Premier League sides following Leicester’s relegation last season.`\
+https://nytimes.com/athletic/6557012/2025/09/01/bilal-al-khannouss-transfer/
+
+**The Recipe Readers Had to Have Year After Year**\
+`With more than 18,000 five-star reviews, Marian Burros’s easy recipe is a classic for a reason.`\
+https://nytimes.com/2025/09/01/dining/the-recipe-readers-had-to-have-year-after-year.html
+
+**Exxon and California Spar in Dueling Lawsuits Over Plastics**\
+`The oil giant accused the state’s attorney general and four nonprofit groups of defamation after they sued over recycling claims.`\
+https://nytimes.com/2025/09/01/climate/exxon-california-plastics-defamation-lawsuit.html
+
+**Palace in talks over loan deal for Spurs' Manor Solomon**\
+`Solomon is available to leave Spurs after they agreed a straight loan deal with Paris Saint-Germain for France forward Randal Kolo Muani.`\
+https://nytimes.com/athletic/6423850/2025/09/01/manor-solomon-crystal-palace-tottenham-loan-deal/
+
 **Liverpool agree Guehi deal with Palace**\
 `A package of £35million has been agreed and the defender is set to undergo a medical ahead of the proposed move.`\
 https://nytimes.com/athletic/6586045/2025/09/01/marc-guehi-liverpool-transfer-palace/

@@ -1,3 +1,19 @@
+**Leicester loan El Khannouss to Stuttgart, sign Carranza from Feyenoord**\
+`El Khannouss had been considered by a number of Premier League sides following Leicester’s relegation last season.`\
+https://nytimes.com/athletic/6557012/2025/09/01/bilal-al-khannouss-transfer/
+
+**The Recipe Readers Had to Have Year After Year**\
+`With more than 18,000 five-star reviews, Marian Burros’s easy recipe is a classic for a reason.`\
+https://nytimes.com/2025/09/01/dining/the-recipe-readers-had-to-have-year-after-year.html
+
+**Exxon and California Spar in Dueling Lawsuits Over Plastics**\
+`The oil giant accused the state’s attorney general and four nonprofit groups of defamation after they sued over recycling claims.`\
+https://nytimes.com/2025/09/01/climate/exxon-california-plastics-defamation-lawsuit.html
+
+**Palace in talks over loan deal for Spurs' Manor Solomon**\
+`Solomon is available to leave Spurs after they agreed a straight loan deal with Paris Saint-Germain for France forward Randal Kolo Muani.`\
+https://nytimes.com/athletic/6423850/2025/09/01/manor-solomon-crystal-palace-tottenham-loan-deal/
+
 **Russia Suspected of Jamming GPS for E.U. Leader’s Plane, Officials Say**\
 `The Bulgarian authorities believe that Russia disrupted navigation signals that would have been used by a plane carrying Ursula von der Leyen, European officials said.`\
 https://nytimes.com/2025/09/01/world/europe/von-der-leyen-gps-jamming-russia-ukraine.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6589261/2025/09/01/ryder-cup-2025-luke-donald-europ
 **Chelsea confirm Buonanotte loan signing from Brighton**\
 `Buonanotte had appeared close to joining Leeds United on loan before Chelsea swooped for the 20-year-old.`\
 https://nytimes.com/athletic/6510617/2025/09/01/facundo-buonanotte-chelsea-brighton/
-
-**Chelsea in advanced talks to sign USWNT's Thompson from Angel City**\
-`Thompson (excused absence) has not been included in Angel City's squad to face Bay FC on Monday.`\
-https://nytimes.com/athletic/6584407/2025/09/01/alyssa-thompson-chelsea-angel-city/
-
-**Crime Crackdown in D.C. Shows Trump Administration’s Uneasy Relationship With Guns**\
-`If President Trump’s actions were intended to drive a law-and-order wedge between Democratic big-city leaders and their constituents, it has also exposed a division in his own coalition.`\
-https://nytimes.com/2025/09/01/us/politics/dc-crime-trump-guns.html
-
-**Tottenham's Gil set for permanent Girona transfer**\
-`The 24-year-old spent the 2024-25 campaign on loan at the Catalan club, where he scored four goals across 32 appearances.`\
-https://nytimes.com/athletic/6589056/2025/09/01/tottenham-transfer-news-gil-girona/
-
-**Fulham agree permanent move for George from Chelsea**\
-`The package for the 19-year-old is worth £22million plus a sell-on clause.`\
-https://nytimes.com/athletic/6588041/2025/09/01/tyrique-george-chelsea-fulham-transfer/
 
