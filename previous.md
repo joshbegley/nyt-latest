@@ -1,3 +1,7 @@
+**Can Senne Lammens, 23, bring calm to Manchester United's goalkeeping situation?**\
+`Senne Lammens has the potential to grow into being Manchester United's long-term solution in goal`\
+https://nytimes.com/athletic/6563776/2025/09/01/senne-lammens-manchester-united-goalkeeper-calm/
+
 **Kabore joins Wrexham on loan from Man City**\
 `The 24-year-old arrives with Champions League and Premier League experience.`\
 https://nytimes.com/athletic/6590525/2025/09/01/issa-kabore-wrexham-manchester-city-signing/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6590244/2025/09/01/packers-players-micah-parsons-tr
 **Understanding Alexander Isak - 'He was always looking for an opportunity'**\
 `This is Alexander Isak, now the most expensive Premier League signing ever: a unique personality, intense but also laid-back and introverted`\
 https://nytimes.com/athletic/6540191/2025/09/01/alexander-isak-liverpool-who-is-he/
-
-**Selling Alexander Isak to Liverpool? It's crazy, really**\
-`It is a matter of record — there in black and white — that this is not ambitious, not what you do for the best of the club`\
-https://nytimes.com/athletic/6589353/2025/09/01/newcastle-united-alexander-isak-transfer-crazy/
 

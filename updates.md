@@ -1,3 +1,7 @@
+**Can Senne Lammens, 23, bring calm to Manchester United's goalkeeping situation?**\
+`Senne Lammens has the potential to grow into being Manchester United's long-term solution in goal`\
+https://nytimes.com/athletic/6563776/2025/09/01/senne-lammens-manchester-united-goalkeeper-calm/
+
 **Kabore joins Wrexham on loan from Man City**\
 `The 24-year-old arrives with Champions League and Premier League experience.`\
 https://nytimes.com/athletic/6590525/2025/09/01/issa-kabore-wrexham-manchester-city-signing/

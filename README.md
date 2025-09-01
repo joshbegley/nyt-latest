@@ -1,3 +1,23 @@
+**Martinez misses out on Man Utd move as deadline day offer never arrives**\
+`Martinez spent transfer deadline day at Aston Villa’s training ground waiting for a call that never came.`\
+https://nytimes.com/athletic/6590584/2025/09/01/emiliano-martinez-manchester-united-aston-villa-transfer/
+
+**Scoop City: Offseason questions remaining after Parsons move**\
+`Five lingering questions as kickoff nears, intel from training camps, and quick 2025 predictions. `\
+https://nytimes.com/athletic/6590215/2025/09/01/offseason-questions-nfl-2025-scoop-city/
+
+**With Jauan Jennings back at practice, 49ers' WR prospects don't seem so bleak**\
+`Jennings, who hasn't practiced for more than a month, was back on the field. If he remains healthy, he and Ricky Pearsall will start Sunday.`\
+https://nytimes.com/athletic/6590169/2025/09/01/49ers-jauan-jennings-returns-seahawks/
+
+**Efficient finishing, aerial threat and how he fits with Woltemade: What Wissa will bring to Newcastle**\
+`Newcastle have finally secured the signing of Wissa from Brentford after a long summer pursuit. But what will he offer Eddie Howe's squad?`\
+https://nytimes.com/athletic/6589224/2025/09/01/yoane-wissa-transfer-newcastle-brentford/
+
+**Searching the Rubble After Afghanistan’s Deadly Earthquake**\
+`Hundreds of people were killed and at least 2,500 others were injured in a difficult to reach mountainous region. Officials warned many more people may still be awaiting rescue.`\
+https://nytimes.com/2025/09/01/world/asia/afghanistan-earthquake-photos.html
+
 **Can Senne Lammens, 23, bring calm to Manchester United's goalkeeping situation?**\
 `Senne Lammens has the potential to grow into being Manchester United's long-term solution in goal`\
 https://nytimes.com/athletic/6563776/2025/09/01/senne-lammens-manchester-united-goalkeeper-calm/
@@ -17,24 +37,4 @@ https://nytimes.com/2025/09/01/briefing/afghanistan-earthquake-bolsonaro-trial-b
 **West Ham complete loan deal for Brighton defender Igor Julio**\
 `Crystal Palace had also been in the race to sign the 27-year-old this summer.`\
 https://nytimes.com/athletic/6589055/2025/09/01/igor-julio-west-ham-loan-deal-brighton/
-
-**Fulham's bid for Chelsea winger George falls through**\
-`Fulham had agreed a package worth £22million plus a sell-on clause on Monday.`\
-https://nytimes.com/athletic/6590496/2025/09/01/tyrique-george-fulham-winger-chelsea-deal/
-
-**Putin Finds a Growing Embrace on the Global Stage**\
-`Eurasian leaders eagerly met the Russian leader at a summit this week, as President Trump has helped ease his isolation over the war in Ukraine.`\
-https://nytimes.com/2025/09/01/world/europe/russia-ukraine-putin-diplomacy.html
-
-**Gene Espy, Pioneering Hiker of the Appalachian Trail, Dies at 98**\
-`In 1951, he became the second person known to have walked the trail in a single trek — a “thru-hike” — covering some 2,000 miles from Georgia to Maine in 123 days.`\
-https://nytimes.com/2025/09/01/us/gene-espy-dead.html
-
-**Packers on Micah Parsons trade: 'Nightmares for the offensive side of the ball'**\
-`It's safe to say Micah Parsons' new Packers teammates are happy that he's in their locker room.`\
-https://nytimes.com/athletic/6590244/2025/09/01/packers-players-micah-parsons-trade/
-
-**Understanding Alexander Isak - 'He was always looking for an opportunity'**\
-`This is Alexander Isak, now the most expensive Premier League signing ever: a unique personality, intense but also laid-back and introverted`\
-https://nytimes.com/athletic/6540191/2025/09/01/alexander-isak-liverpool-who-is-he/
 
