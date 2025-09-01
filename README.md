@@ -1,3 +1,7 @@
+**If this was goodbye from Marc Guehi, it was a fitting send off**\
+`Transfer speculation has long swirled around the defender, but his attitude and application have never faltered `\
+https://nytimes.com/athletic/6582737/2025/09/01/marc-guehi-crystal-palace-transfer/
+
 **Real Betis agree €25m Antony deal with Manchester United**\
 `Real Betis and Manchester United have agreed a €25m package for the transfer of Brazilian winger Antony.`\
 https://nytimes.com/athletic/6587455/2025/09/01/real-betis-agree-e25m-antony-deal-with-manchester-united/
@@ -35,8 +39,4 @@ https://nytimes.com/2025/09/01/briefing/xi-modi-putin-summit-gaza.html
 **Nuno's bad timing as Forest put in their worst performance of his tenure ahead of Marinakis meeting**\
 `A 3-0 home defeat to West Ham will hang in the air when head coach and owner hold post-fallout talks this week`\
 https://nytimes.com/athletic/6587807/2025/09/01/forest-marinakis-nuno-meeting-bad-timing/
-
-**Brajan Gruda coolly scored the winner against Man City. Is he Brighton's next superstar?**\
-`Have the south-coast club found another gem in the 21-year-old German forward?`\
-https://nytimes.com/athletic/6587332/2025/09/01/is-brajan-gruda-the-next-brighton-superstar/
 
