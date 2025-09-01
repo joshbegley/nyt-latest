@@ -1,3 +1,7 @@
+**Starting From Scratch**\
+`Stories of people starting over.`\
+https://nytimes.com/2025/08/31/podcasts/starting-from-scratch.html
+
 **Rikers Detainee Becomes Third Person to Die in N.Y.C. Custody in a Week**\
 `Days before the death of the man, Jimmy Avila, another detainee was pronounced dead in his cell at the troubled city jail complex, and a third died in police custody.`\
 https://nytimes.com/2025/08/31/nyregion/rikers-jail-nyc-custody-death.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6588031/2025/08/31/dominik-szoboszlai-free-kick-ana
 **Fearing Bolsonaro Escape, Brazil Tightens Leash Ahead of Coup Trial**\
 `Former President Jair Bolsonaro, who will stand trial on Tuesday, is being closely monitored by the Brazilian authorities, who fear he may try to flee.`\
 https://nytimes.com/2025/08/31/world/americas/brazil-bolsonaro-trial-restrictions.html
-
-**Barca-Rayo draw marred by VAR breakdown which left Yamal penalty call unchecked**\
-`The VAR system broke down during Barca's draw with Rayo Vallecano, causing controversy after a Lamine Yamal penalty call.`\
-https://nytimes.com/athletic/6588145/2025/08/31/barcelona-rayo-var-yamal/
 
