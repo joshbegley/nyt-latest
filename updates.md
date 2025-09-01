@@ -1,3 +1,7 @@
+**Newcastle agree £55m move for Wissa from Brentford**\
+`The DR Congo international has not featured in Keith Andrews' squads for the opening three matches of the Premier League season.`\
+https://nytimes.com/athletic/6587195/2025/09/01/yoane-wissa-newcastle-united-transfer/
+
 **Ten Hag sacked after just three games as Leverkusen coach**\
 `Ten Hag replaced Xabi Alonso in the dugout at the BayArena this summer, after the Spanish coach was appointed at Real Madrid.`\
 https://nytimes.com/athletic/6587305/2025/09/01/erik-ten-hag-sacked-bayer-leverkusen/
