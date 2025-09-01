@@ -1,3 +1,7 @@
+**Hojlund completes loan move from Manchester United to Napoli**\
+`The deal includes a conditional obligation to make the transfer permanent for €44million (£38m; $51.4m) next summer.`\
+https://nytimes.com/athletic/6585942/2025/09/01/rasmus-hojlund-napoli-manchester-united-transfer/
+
 **Heisman Trophy odds: Arch Manning falls, who rose after Week 1?**\
 `Arch Manning's forgettable season debut opened the door for new favorites in the odds to win the Heisman Trophy.`\
 https://nytimes.com/athletic/6589651/2025/09/01/heisman-trophy-odds-arch-manning-garrett-nussmeier-lanorris-sellers/
