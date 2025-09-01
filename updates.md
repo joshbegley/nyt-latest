@@ -1,3 +1,11 @@
+**Leeds deadline day move for Fulham's Wilson collapses**\
+`Head coach Farke had reiterated his desire for new faces in attack on Saturday.`\
+https://nytimes.com/athletic/6590247/2025/09/01/harry-wilson-leeds-transfer-fulham/
+
+**Nottingham Forest to conclude deal for Arsenal's Zinchenko**\
+`Forest submitted a deal sheet before the 7pm deadline and are racing to complete a season-long loan for the Ukraine international.`\
+https://nytimes.com/athletic/6590321/2025/09/01/oleksandr-zinchenko-nottingham-forest-tranfer/
+
 **Nottingham Forest working to conclude deal for Arsenal's Zinchenko**\
 `Forest submitted a deal sheet before the 7pm deadline and are racing to complete a season-long loan for the Ukraine international.`\
 https://nytimes.com/athletic/6590321/2025/09/01/oleksandr-zinchenko-nottingham-forest-tranfer/
