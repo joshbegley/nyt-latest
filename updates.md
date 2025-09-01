@@ -1,3 +1,15 @@
+**Juan Soto's red-hot day vs. Tigers silences 'overrated' chants, bails out Mets pitching**\
+`The Mets overcame their pitching staff’s inadequacies with Soto's grand slam and triple in a 10-8 win over the Tigers.`\
+https://nytimes.com/athletic/6590711/2025/09/01/juan-soto-grand-slam-mets-tigers/
+
+**Coco Gauff's serve dominated her U.S. Open. Another shot ended it.**\
+`Gauff's serve remodel loomed over her tournament. It might be her forehand, which Naomi Osaka broke down to beat her, that matters more.`\
+https://nytimes.com/athletic/6590752/2025/09/01/coco-gauff-serve-forehand-us-open/
+
+**Florida State fined $50K by ACC for storming field after upsetting Alabama**\
+`Florida State is the first ACC school to be fined under a new conference policy aimed at curtailing field- and court-storming incidents.`\
+https://nytimes.com/athletic/6590775/2025/09/01/acc-fines-florida-state-50k-field-storming-alabama/
+
 **Trump Family Profits Even With Tepid Launch of Crypto Tokens**\
 `World Liberty Financial’s cryptocurrency token fell short of investors’ hopes. But a previous deal paved the way for a payment to the Trump family of potentially hundreds of millions of dollars.`\
 https://nytimes.com/2025/09/01/us/politics/trump-crypto-trading.html
