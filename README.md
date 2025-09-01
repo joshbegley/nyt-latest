@@ -1,3 +1,7 @@
+**Leeds deadline day move for Fulham's Wilson collapses**\
+`Head coach Farke had reiterated his desire for new faces in attack on Saturday.`\
+https://nytimes.com/athletic/6590247/2025/09/01/harry-wilson-leeds-transfer-fulham/
+
 **Nottingham Forest working to conclude deal for Arsenal's Zinchenko**\
 `Forest submitted a deal sheet before the 7pm deadline and are racing to complete a season-long loan for the Ukraine international.`\
 https://nytimes.com/athletic/6590321/2025/09/01/oleksandr-zinchenko-nottingham-forest-tranfer/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/01/movies/telluride-springsteen-biopic.html
 **What Randal Kolo Muani brings to Tottenham: Dangerous pace, elusive movement, quick thinking**\
 `Despite a difficult spell at PSG, the 26-year-old's reputation as a talented, multi-faceted forward holds true`\
 https://nytimes.com/athletic/6589214/2025/09/01/randal-kolo-muani-tottenham/
-
-**Nestlé Dismisses Chief Executive Over Relationship With Subordinate**\
-`The world’s largest food company named Philipp Navratil, a longtime employee, to replace Laurent Freixe.`\
-https://nytimes.com/2025/09/01/business/nestle-laurent-freixe-inappropriate-relationship.html
 
