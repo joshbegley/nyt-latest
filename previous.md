@@ -1,3 +1,7 @@
+**Reds rookie Sal Stewart shines in MLB debut with hit, run in walk-off win**\
+`At 21, Stewart is the youngest player on the Reds’ roster, but he got to the big leagues because he doesn’t hit like a 21-year-old.`\
+https://nytimes.com/athletic/6590677/2025/09/01/sal-stewart-reds-rookie-mlb-debut/
+
 **Vivian Ayers Allen, Poet and Cultural Activist, Dies at 102**\
 `She forged an arts career in Houston while raising children who became accomplished entertainers: Phylicia Rashad, Debbie Allen and Tex Allen.`\
 https://nytimes.com/2025/09/01/arts/vivian-ayers-allen-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/01/world/asia/afghanistan-earthquake-photos.html
 **Can Senne Lammens, 23, bring calm to Manchester United's goalkeeping situation?**\
 `Senne Lammens has the potential to grow into being Manchester United's long-term solution in goal`\
 https://nytimes.com/athletic/6563776/2025/09/01/senne-lammens-manchester-united-goalkeeper-calm/
-
-**Kabore joins Wrexham on loan from Man City**\
-`The 24-year-old arrives with Champions League and Premier League experience.`\
-https://nytimes.com/athletic/6590525/2025/09/01/issa-kabore-wrexham-manchester-city-signing/
 
