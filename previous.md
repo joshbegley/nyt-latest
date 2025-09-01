@@ -1,3 +1,11 @@
+**Suárez appears to spit at Sounders staffer after Leagues Cup final**\
+`Things took a lamentable turn after Inter Miami's comprehensive defeat in Seattle`\
+https://nytimes.com/athletic/6588549/2025/08/31/luis-suarez-spit-leagues-cup-final-inter-miami-seattle-sounders/
+
+**Deadly Earthquake Strikes Afghanistan**\
+`Officials said the quake, near Jalalabad in the nation’s east, had killed people. The United States Geological Survey predicted “significant casualties.”`\
+https://nytimes.com/2025/08/31/world/asia/afghanistan-earthquake-jalalabad.html
+
 **Shorthanded Seattle routs Messi's Miami to win Leagues Cup title**\
 `Seattle was undermanned, but it didn't matter in a Leagues Cup final thrashing that ended with Miami players throwing a tantrum–and punches`\
 https://nytimes.com/athletic/6588459/2025/08/31/seattle-sounders-leagues-cup-final-inter-miami-messi-suarez/
@@ -29,12 +37,4 @@ https://nytimes.com/interactive/2025/08/31/upshot/ten-minute-challenge-monet.htm
 **Starting From Scratch**\
 `Stories of people starting over.`\
 https://nytimes.com/2025/08/31/podcasts/starting-from-scratch.html
-
-**Rikers Detainee Becomes Third Person to Die in N.Y.C. Custody in a Week**\
-`Days before the death of the man, Jimmy Avila, another detainee was pronounced dead in his cell at the troubled city jail complex, and a third died in police custody.`\
-https://nytimes.com/2025/08/31/nyregion/rikers-jail-nyc-custody-death.html
-
-**Houston Astros searching for 'a collective approach' after anemic August**\
-`Carlos Correa said some of the team's hitters might be experiencing mechanical problems: "You get pitches to hit and miss them."`\
-https://nytimes.com/athletic/6588267/2025/08/31/houston-astros-august-hitting/
 

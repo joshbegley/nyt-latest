@@ -1,3 +1,11 @@
+**Suárez appears to spit at Sounders staffer after Leagues Cup final**\
+`Things took a lamentable turn after Inter Miami's comprehensive defeat in Seattle`\
+https://nytimes.com/athletic/6588549/2025/08/31/luis-suarez-spit-leagues-cup-final-inter-miami-seattle-sounders/
+
+**Deadly Earthquake Strikes Afghanistan**\
+`Officials said the quake, near Jalalabad in the nation’s east, had killed people. The United States Geological Survey predicted “significant casualties.”`\
+https://nytimes.com/2025/08/31/world/asia/afghanistan-earthquake-jalalabad.html
+
 **Shorthanded Seattle routs Messi's Miami to win Leagues Cup title**\
 `Seattle was undermanned, but it didn't matter in a Leagues Cup final thrashing that ended with Miami players throwing a tantrum–and punches`\
 https://nytimes.com/athletic/6588459/2025/08/31/seattle-sounders-leagues-cup-final-inter-miami-messi-suarez/

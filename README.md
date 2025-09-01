@@ -1,3 +1,11 @@
+**Miami outlasts Notre Dame in prime-time thriller after losing 14-point lead**\
+`The Hurricanes secured their first win against a top-10 opponent since 2017, snapping an eight-game losing streak in those spots.`\
+https://nytimes.com/athletic/6588358/2025/08/31/miami-notre-dame-football-highlights/
+
+**Map: 6.0-Magnitude Earthquake Strikes Afghanistan**\
+`View the location of the quake’s epicenter and shake area.`\
+https://nytimes.com/interactive/2025/08/31/world/asia/afghanistan-earthquake.html
+
 **Suárez appears to spit at Sounders staffer after Leagues Cup final**\
 `Things took a lamentable turn after Inter Miami's comprehensive defeat in Seattle`\
 https://nytimes.com/athletic/6588549/2025/08/31/luis-suarez-spit-leagues-cup-final-inter-miami-seattle-sounders/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/08/31/us/politics/robert-mueller-parkinsons-disease.htm
 **South Carolina's Shane Beamer calls win over Virginia Tech 'extra special'**\
 `Shane Beamer was clear he wanted to "dominate" the game against his alma mater and the place his father became the winningest Hokies coach.`\
 https://nytimes.com/athletic/6588272/2025/08/31/shane-beamer-south-carolina-virginia-tech-father/
-
-**10-Minute Challenge: A Monet in Venice**\
-`We’d like you to look at one piece of art for 10 minutes, uninterrupted.`\
-https://nytimes.com/interactive/2025/08/31/upshot/ten-minute-challenge-monet.html
-
-**Starting From Scratch**\
-`Stories of people starting over.`\
-https://nytimes.com/2025/08/31/podcasts/starting-from-scratch.html
 
