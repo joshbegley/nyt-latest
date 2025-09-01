@@ -1,3 +1,7 @@
+**Putin and Modi Hold Hands as They Greet Xi**\
+`The leaders of Russia, China and India shared a moment of bonhomie as a security summit in eastern China on Monday.`\
+https://nytimes.com/video/world/asia/100000010371875/xi-putin-modi-summit.html
+
 **Doctors in South Korea Return to Work After 18-Month Walkout**\
 `Thousands of residents and interns were protesting a government proposal that would have dramatically increased the number of medical students in the country.`\
 https://nytimes.com/2025/09/01/world/asia/south-korea-doctors-strike.html
@@ -35,8 +39,4 @@ https://nytimes.com/issue/todayspaper/2025/09/01/todays-new-york-times
 **Trump Is Wiping Out Unions. Why Are They So Quiet?**\
 `Why the labor movement needs to act like its future is under grave threat.`\
 https://nytimes.com/2025/09/01/opinion/trump-unions-labor.html
-
-**‘The Paper,’ Plus 7 Things to Watch on TV this Week**\
-`A mockumentary series about a local newspaper, from the creators of “The Office,” and the MTV Video Music Awards air.`\
-https://nytimes.com/2025/09/01/arts/television/the-paper-plus-7-things-to-watch-on-tv-this-week.html
 

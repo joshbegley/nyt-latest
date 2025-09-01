@@ -1,3 +1,7 @@
+**Putin and Modi Hold Hands as They Greet Xi**\
+`The leaders of Russia, China and India shared a moment of bonhomie as a security summit in eastern China on Monday.`\
+https://nytimes.com/video/world/asia/100000010371875/xi-putin-modi-summit.html
+
 **Doctors in South Korea Return to Work After 18-Month Walkout**\
 `Thousands of residents and interns were protesting a government proposal that would have dramatically increased the number of medical students in the country.`\
 https://nytimes.com/2025/09/01/world/asia/south-korea-doctors-strike.html
