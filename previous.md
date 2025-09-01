@@ -1,3 +1,7 @@
+**South Carolina's Shane Beamer calls win over Virginia Tech 'extra special'**\
+`Shane Beamer was clear he wanted to "dominate" the game against his alma mater and the place his father became the winningest Hokies coach.`\
+https://nytimes.com/athletic/6588272/2025/08/31/shane-beamer-south-carolina-virginia-tech-father/
+
 **10-Minute Challenge: A Monet in Venice**\
 `We’d like you to look at one piece of art for 10 minutes, uninterrupted.`\
 https://nytimes.com/interactive/2025/08/31/upshot/ten-minute-challenge-monet.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6574042/2025/08/31/alexander-isak-liverpool-newcast
 **Lee Roy Jordan, Ferocious Linebacker for the Dallas Cowboys, Dies at 84**\
 `He was a favorite of Coach Bear Bryant at the University of Alabama, then helped make the Cowboys “America’s Team.”`\
 https://nytimes.com/2025/08/31/obituaries/lee-roy-jordan-dead.html
-
-**Breaking down Dominik Szoboszlai's awesome free kick: 'The pace, trajectory and movement is ridiculous'**\
-`We speak to set-piece and goalkeeping experts to break down Dominik Szoboszlai's winner against Arsenal.`\
-https://nytimes.com/athletic/6588031/2025/08/31/dominik-szoboszlai-free-kick-analysed/
 

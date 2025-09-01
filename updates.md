@@ -1,3 +1,7 @@
+**South Carolina's Shane Beamer calls win over Virginia Tech 'extra special'**\
+`Shane Beamer was clear he wanted to "dominate" the game against his alma mater and the place his father became the winningest Hokies coach.`\
+https://nytimes.com/athletic/6588272/2025/08/31/shane-beamer-south-carolina-virginia-tech-father/
+
 **Houston Astros searching for 'a collective approach' after anemic August**\
 `Carlos Correa said some of the team's hitters might be experiencing mechanical problems: "You get pitches to hit and miss them."`\
 https://nytimes.com/athletic/6588267/2025/08/31/houston-astros-august-hitting/
