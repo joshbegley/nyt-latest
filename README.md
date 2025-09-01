@@ -1,9 +1,17 @@
+**Nottingham Forest working to conclude deal for Arsenal's Zinchenko**\
+`Forest submitted a deal sheet before the 7pm deadline and are racing to complete a season-long loan for the Ukraine international.`\
+https://nytimes.com/athletic/6590321/2025/09/01/oleksandr-zinchenko-nottingham-forest-tranfer/
+
+**Forest complete Cuiabano signing from Botafogo**\
+`The 22-year-old is the fourth player to join Forest from Botafogo this summer. `\
+https://nytimes.com/athletic/6590318/2025/09/01/cuiabano-nottingham-forest-botafogo-transfer/
+
 **Inter Miami seals its villainous turn after Leagues Cup final disgrace**\
 `Luis Suárez's spitting incident and a postgame brawl in Seattle turned Inter Miami into full-fledged villains`\
 https://nytimes.com/athletic/6590093/2025/09/01/inter-miami-mls-villain-suarez-messi-seattle-leagues-cup-spit/
 
 **Braves claim former Gold Glove winner Ha-Seong Kim off waivers**\
-`He won a Gold Glove in 2023 while playing mostly second base but also plenty of shortstop and third base.`\
+`He won a Gold Glove in 2023 while playing primarily second base but also plenty of shortstop and third base.`\
 https://nytimes.com/athletic/6590266/2025/09/01/atlanta-braves-ha-seong-kim-waiver-claim/
 
 **Micah Parsons managing facet joint sprain in back ahead of Week 1: Source**\
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6589214/2025/09/01/randal-kolo-muani-tottenham/
 **Nestlé Dismisses Chief Executive Over Relationship With Subordinate**\
 `The world’s largest food company named Philipp Navratil, a longtime employee, to replace Laurent Freixe.`\
 https://nytimes.com/2025/09/01/business/nestle-laurent-freixe-inappropriate-relationship.html
-
-**Bay FC's Asisat Oshoala set for move to Al Hilal**\
-`The Nigeria international joined Bay FC last year ahead of its debut NWSL season after spending five years with Barcelona.`\
-https://nytimes.com/athletic/6590027/2025/09/01/asisat-oshoala-bay-fc-al-hilal/
-
-**Arsenal complete Hincapie signing**\
-`Hincapie travelled to London over the weekend after a loan agreement was reached with an option to buy for a total package of €52m.`\
-https://nytimes.com/athletic/6587286/2025/09/01/arsenal-transfer-news-hincapie/
 
