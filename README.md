@@ -1,3 +1,7 @@
+**Juan Soto's red-hot day vs. Tigers silences 'overrated' chants, bails out Mets pitching**\
+`The Mets overcame their pitching staff’s inadequacies with Soto's grand slam and triple in a 10-8 win over the Tigers.`\
+https://nytimes.com/athletic/6590711/2025/09/01/juan-soto-grand-slam-mets-tigers/
+
 **Coco Gauff's serve dominated her U.S. Open. Another shot ended it.**\
 `Gauff's serve remodel loomed over her tournament. It might be her forehand, which Naomi Osaka broke down to beat her, that matters more.`\
 https://nytimes.com/athletic/6590752/2025/09/01/coco-gauff-serve-forehand-us-open/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/01/arts/vivian-ayers-allen-dead.html
 **Homer or no homer? Trevor Story's blast to Pesky's Pole is turning heads**\
 `At 306 feet, it marked the shortest non-inside-the-park homer in the majors this season.`\
 https://nytimes.com/athletic/6590692/2025/09/01/red-sox-guardians-trevor-story-home-run/
-
-**Joe Bugner, 75, British Boxing Champ Who Slugged It Out With Ali, Dies**\
-`A European titleholder as well, he twice went the distance with Ali and another time with Joe Frazier, losing the bouts but gaining their respect.`\
-https://nytimes.com/2025/09/01/sports/joe-bugner-dead.html
 
