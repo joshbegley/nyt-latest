@@ -1,3 +1,7 @@
+**Florida State LB Ethan Pritchard hospitalized after suffering gunshot wound**\
+`Pritchard was wounded inside a vehicle after a shooting occurred just before 10 p.m. inside an apartment complex.`\
+https://nytimes.com/athletic/6589348/2025/09/01/florida-state-ethan-pritchard-shooting-condition-critical-stable/
+
 **Jaylen Warren, Steelers agree to two-year contract extension**\
 `Warren is entering his fourth NFL season.`\
 https://nytimes.com/athletic/6589553/2025/09/01/jaylen-warren-steelers-contract-extension/
