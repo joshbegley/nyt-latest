@@ -1,3 +1,15 @@
+**Juventus advancing in talks to sign Walti from Arsenal**\
+`The 32-year-old has one year left on her existing deal in north London, meaning a fee will need to be negotiated for her services.`\
+https://nytimes.com/athletic/6589093/2025/09/01/lia-walti-juventus-arsenal/
+
+**Watching West Ham's win over Nottingham Forest in the away end**\
+`Roshane Thomas swapped the press box in favour of the away end in an attempt to better understand how matchgoing fans feel about their side`\
+https://nytimes.com/athletic/6580763/2025/09/01/west-ham-forest-win-away-end/
+
+**USMNT Player Tracker: Balogun's timely goal, Pulisic kick-starts Milan and Poch's Big Noon cameo**\
+`Our round up of the weekend action also includes Malik Tillman's first Bayer Leverkusen goal and another fine Tyler Adams performance`\
+https://nytimes.com/athletic/6588932/2025/09/01/usmnt-pulisic-balogun-pochettino-tracker/
+
 **Bakwa set for Nottingham Forest medical as Cuiabano move nears**\
 `The deal for Bakwa, the 23-year-old winger, is expected to be worth in excess of £30million ($40m).`\
 https://nytimes.com/athletic/6589077/2025/09/01/dilane-bakwa-nottingham-forest-cuiabano/
