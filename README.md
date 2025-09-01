@@ -1,3 +1,7 @@
+**The Pulse: Yes, we're doing Week 1 overreactions**\
+`Welcome to The Pulse, The Athletic's daily newsletter.`\
+https://nytimes.com/athletic/6588439/2025/09/01/week-1-cfb-gauff-osaka-the-pulse/
+
 **Europe's Ryder Cup strategy is familiar, with 11 of 12 back from 2023 team**\
 `Jon Rahm and Shane Lowry lead the final six picks for repeat captain Luke Donald's team.`\
 https://nytimes.com/athletic/6589261/2025/09/01/ryder-cup-2025-luke-donald-european-team-picks/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/01/pageoneplus/corrections-aug-31-2025.html
 **Corrections: Aug. 30, 2025**\
 `Corrections that appeared in print on Saturday, Aug. 30, 2025.`\
 https://nytimes.com/2025/09/01/pageoneplus/corrections-aug-30-2025.html
-
-**How a quadruple substitution made Brighton's direct approach against Manchester City much more effective**\
-`The vision of four new players coming on at once in a game is always striking, but on Sunday at the Amex Stadium it was effective, too`\
-https://nytimes.com/athletic/6588759/2025/09/01/brighton-quadruple-substitution-manchester-city/
 
