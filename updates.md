@@ -1,3 +1,7 @@
+**Dodger Details: Can L.A. flip the switch for season's final stretch?**\
+`Will Smith saved the Dodgers on Sunday, but Dave Roberts remains perturbed by his team playing to the level of the competition.`\
+https://nytimes.com/athletic/6588347/2025/08/31/dodger-details-flip-switch-stretch-run/
+
 **Robert Mueller Has Parkinson’s Disease, Family Says**\
 `The former special counsel, who led the Russia investigation during President Trump’s first term, has had difficulty speaking in recent months and will not be able to comply with a request that he testify before Congress.`\
 https://nytimes.com/2025/08/31/us/politics/robert-mueller-parkinsons-disease.html
