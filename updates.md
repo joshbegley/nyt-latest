@@ -1,4 +1,8 @@
 **Robert Mueller Has Parkinson’s Disease, Family Says**\
+`The former special counsel, who led the Russia investigation during President Trump’s first term, has had difficulty speaking in recent months. A congressional committee dropped a request for Mr. Mueller to testify this week.`\
+https://nytimes.com/2025/08/31/us/politics/robert-mueller-parkinsons-disease.html
+
+**Robert Mueller Has Parkinson’s Disease, Family Says**\
 `The former special counsel, who led the Russia investigation during President Trump’s first term, has had difficulty speaking in recent months. A congressional committee withdrew a request for Mr. Mueller to testify this week.`\
 https://nytimes.com/2025/08/31/us/politics/robert-mueller-parkinsons-disease.html
 
