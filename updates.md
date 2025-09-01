@@ -1,3 +1,11 @@
+**Juan Ayuso set to leave UAE Team Emirates after parties agree to early contract termination**\
+`The Spaniard will remain with his current team until the end of the 2025 season`\
+https://nytimes.com/athletic/6590018/2025/09/01/juan-ayuso-uae-emirates-contract-termination/
+
+**Chelsea's Chilwell set for move to BlueCo-owned Strasbourg**\
+`The 28-year-old spent the second half of last season on loan at Crystal Palace.`\
+https://nytimes.com/athletic/6423769/2025/09/01/ben-chilwell-chelsea-transfer-strasbourg/
+
 **Army football player and family save unresponsive man from burning car**\
 `"This was just doing what I would always do. This is just helping somebody in need," said Army safety Larry Pickett Jr. `\
 https://nytimes.com/athletic/6589786/2025/09/01/army-football-player-save-burning-car/

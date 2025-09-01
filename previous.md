@@ -1,3 +1,11 @@
+**Juan Ayuso set to leave UAE Team Emirates after parties agree to early contract termination**\
+`The Spaniard will remain with his current team until the end of the 2025 season`\
+https://nytimes.com/athletic/6590018/2025/09/01/juan-ayuso-uae-emirates-contract-termination/
+
+**Chelsea's Chilwell set for move to BlueCo-owned Strasbourg**\
+`The 28-year-old spent the second half of last season on loan at Crystal Palace.`\
+https://nytimes.com/athletic/6423769/2025/09/01/ben-chilwell-chelsea-transfer-strasbourg/
+
 **Sterling remains at Chelsea beyond transfer deadline**\
 `The 30-year-old's Chelsea contract still has two years to run.`\
 https://nytimes.com/athletic/6589876/2025/09/01/raheem-sterling-chelsea-transfer/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6589651/2025/09/01/heisman-trophy-odds-arch-manning
 **Man City to complete deal for PSG's Donnarumma, Ederson to join Fenerbahce**\
 `City are arranging the final details of the Italy No 1's transfer ahead of an announcement on Monday evening.`\
 https://nytimes.com/athletic/6589338/2025/09/01/donnarumma-transfer-man-city-ederson-fenerbahce/
-
-**Sylvain Amic, Musée d’Orsay President Who Aimed to Democratize Art, Dies at 58**\
-`His formative years in sub-Saharan Africa had made him sensitive to France’s restitution of treasures taken from the continent during colonial times.`\
-https://nytimes.com/2025/09/01/arts/design/sylvain-amic-musee-dorsay-president-dead.html
-
-**European Ryder Cup team's identity is so different from just two years ago**\
-`The bond and energy inside the European locker room are undeniable. A team of risks became a team of known commodities.`\
-https://nytimes.com/athletic/6589699/2025/09/01/european-ryder-cup-identity/
 
