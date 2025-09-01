@@ -1,3 +1,7 @@
+**Palace in advanced talks to sign Getafe's Uche**\
+`Uche joined Getafe in the summer of 2024 and scored four goals and provided seven assists in 38 games last season.`\
+https://nytimes.com/athletic/6578741/2025/09/01/christantus-uche-getafe/
+
 **Derrick Brown is back — a good thing for the Panthers defense: 'I'm ready to get to it'**\
 `After missing nearly all of last season, Derrick Brown saw Carolina's defense struggle in a big way. He plans to "rise to the occasion."`\
 https://nytimes.com/athletic/6584946/2025/09/01/carolina-panthers-derrick-brown-injury-defense/
