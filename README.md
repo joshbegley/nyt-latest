@@ -1,3 +1,7 @@
+**Newcastle agree £55m move for Wissa from Brentford**\
+`The DR Congo international has not featured in Keith Andrews' squads for the opening three matches of the Premier League season.`\
+https://nytimes.com/athletic/6587195/2025/09/01/yoane-wissa-newcastle-united-transfer/
+
 **Ten Hag sacked after just three games as Leverkusen coach**\
 `Ten Hag replaced Xabi Alonso in the dugout at the BayArena this summer, after the Spanish coach was appointed at Real Madrid.`\
 https://nytimes.com/athletic/6587305/2025/09/01/erik-ten-hag-sacked-bayer-leverkusen/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6522213/2025/09/01/arsenal-news-lokonga-vieira-hamb
 **What to Know About the Earthquake in Afghanistan**\
 `Hundreds of people were killed, according to the Taliban government, and the death toll was expected to rise.`\
 https://nytimes.com/2025/09/01/world/asia/earthquake-afghanistan-what-to-know.html
-
-**Tennis outfits make the U.S. Open a fashion spectacle. For players, it's also a business**\
-`Tennis and fashion are more intertwined than ever before, with players' outfits offering a crucial on-ramp for casual fans.`\
-https://nytimes.com/athletic/6584991/2025/09/01/tennis-best-outfits-us-open-fashion-deals-sponsorships/
 
