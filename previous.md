@@ -30,8 +30,8 @@ https://nytimes.com/athletic/6588759/2025/09/01/brighton-quadruple-substitution-
 `Miami lost No. 1 pick Cam Ward but leaned on Georgia transfer Carson Beck and a revamped defense to beat Notre Dame on Sunday.`\
 https://nytimes.com/athletic/6589186/2025/09/01/miami-carson-beck-transfers-notre-dame/
 
-**Why Notre Dame's loss to Miami didn't feel like a program referendum**\
-`The Irish entered this season with ample benefit of the doubt after playing for a national title last January.`\
+**Sampson: Why Notre Dame's loss to Miami didn't feel like a program referendum**\
+`The Irish entered this season with ample benefit of the doubt after playing for a national title in January.`\
 https://nytimes.com/athletic/6589097/2025/09/01/notre-dame-miami-marcus-freeman/
 
 **Inside Barcelona: Hansi Flick's 'no egos' message, Fermin Lopez to stay, Joan Garcia stands out**\

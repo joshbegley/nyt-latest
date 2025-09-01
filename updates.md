@@ -1,3 +1,7 @@
+**Sampson: Why Notre Dame's loss to Miami didn't feel like a program referendum**\
+`The Irish entered this season with ample benefit of the doubt after playing for a national title in January.`\
+https://nytimes.com/athletic/6589097/2025/09/01/notre-dame-miami-marcus-freeman/
+
 **Crime Crackdown in D.C. Shows Trump Administration’s Uneasy Relationship With Guns**\
 `If President Trump’s actions were intended to drive a law-and-order wedge between Democratic big-city leaders and their constituents, it has also exposed a division in his own coalition.`\
 https://nytimes.com/2025/09/01/us/politics/dc-crime-trump-guns.html
