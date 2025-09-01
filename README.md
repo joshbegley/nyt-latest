@@ -1,3 +1,7 @@
+**NFL odds for MVP and other top awards: A tight field led by Lamar Jackson heading into Week 1**\
+`Jackson leads the MVP odds by a tiny margin, with Joe Burrow, Josh Allen and Patrick Mahomes rounding out the top four. `\
+https://nytimes.com/athletic/6573085/2025/09/01/nfl-mvp-odds-week-1-lamar-jackson-joe-burrow-josh-allen/
+
 **How Cowboys are moving forward after surprising Micah Parsons trade**\
 `Parsons leaving means even more opportunities for what appeared to be a quality edge rusher group during Cowboys training camp.`\
 https://nytimes.com/athletic/6588648/2025/09/01/cowboys-edge-rushers-micah-parsons/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6588200/2025/09/01/reds-sal-stewart-lineup-c-notes/
 **I study decision-making. This is why Keegan Bradley made the smart choice as a leader**\
 `Dr. Jennifer Lerner is a professor at Harvard who observed Keegan Bradley's Ryder Cup decision with particular fascination.`\
 https://nytimes.com/athletic/6587232/2025/09/01/keegan-bradley-ryder-cup-leadership-decision-team/
-
-**Wordle Review No. 1,536**\
-`Scroll down for hints and conversation about the puzzle for Tuesday, Sept. 2, 2025.`\
-https://nytimes.com/2025/09/01/crosswords/wordle-review-1536.html
 
