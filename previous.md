@@ -1,3 +1,11 @@
+**Derrick Brown is back — a good thing for the Panthers defense: 'I'm ready to get to it'**\
+`After missing nearly all of last season, Derrick Brown saw Carolina's defense struggle in a big way. He plans to "rise to the occasion."`\
+https://nytimes.com/athletic/6584946/2025/09/01/carolina-panthers-derrick-brown-injury-defense/
+
+**NFL Future Hits List: 32 under-the-radar names every true fan should know**\
+`They aren't starting QBs, top-10 draft picks or fantasy football darlings, but knowing their names will keep you ahead of the crowd.`\
+https://nytimes.com/athletic/6578989/2025/09/01/nfl-under-the-radar-rookies-future-stars/
+
 **Which MLB contenders have the toughest road to the playoffs? Breaking down the schedules pt. 2**\
 `Let's break down each contender’s upcoming schedule, focusing this time on the first two weeks of September.`\
 https://nytimes.com/athletic/6587549/2025/09/01/mlb-contenders-postseason-strength-schedule/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/09/01/crosswords/connections-companion-814.html
 **Nearly 170 days after his F1 debut disaster, Isack Hadjar truly earned his first podium**\
 `Hadjar's F1 career began ignominiously. In the months since, he's built a solid rookie resumé - and cashed it in with his first podium `\
 https://nytimes.com/athletic/6587732/2025/09/01/isack-hadjar-first-podium-dutch-gp/
-
-**My Colts' 10-step offseason plan revisited: GM Chris Ballard more aggressive than ever**\
-`How did the Colts' actual offseason compare to the one I laid out for them in February? `\
-https://nytimes.com/athletic/6584241/2025/09/01/colts-offseason-daniel-jones-chris-ballard/
-
-**Michigan final thoughts: Are the Wolverines ready for Oklahoma on Saturday?**\
-`The Wolverines had two strong offensive drives but allowed New Mexico to hang around. Also, what does Jaishawn Barham's ejection mean?`\
-https://nytimes.com/athletic/6587770/2025/09/01/michigan-final-thoughts-better-offensive-cohesion-and-looking-ahead-to-oklahoma/
 

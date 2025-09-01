@@ -1,3 +1,11 @@
+**Derrick Brown is back — a good thing for the Panthers defense: 'I'm ready to get to it'**\
+`After missing nearly all of last season, Derrick Brown saw Carolina's defense struggle in a big way. He plans to "rise to the occasion."`\
+https://nytimes.com/athletic/6584946/2025/09/01/carolina-panthers-derrick-brown-injury-defense/
+
+**NFL Future Hits List: 32 under-the-radar names every true fan should know**\
+`They aren't starting QBs, top-10 draft picks or fantasy football darlings, but knowing their names will keep you ahead of the crowd.`\
+https://nytimes.com/athletic/6578989/2025/09/01/nfl-under-the-radar-rookies-future-stars/
+
 **Which MLB contenders have the toughest road to the playoffs? Breaking down the schedules pt. 2**\
 `Let's break down each contender’s upcoming schedule, focusing this time on the first two weeks of September.`\
 https://nytimes.com/athletic/6587549/2025/09/01/mlb-contenders-postseason-strength-schedule/

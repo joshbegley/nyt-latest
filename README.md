@@ -1,3 +1,7 @@
+**Palace in advanced talks to sign Getafe's Uche**\
+`Uche joined Getafe in the summer of 2024 and scored four goals and provided seven assists in 38 games last season.`\
+https://nytimes.com/athletic/6578741/2025/09/01/christantus-uche-getafe/
+
 **Derrick Brown is back — a good thing for the Panthers defense: 'I'm ready to get to it'**\
 `After missing nearly all of last season, Derrick Brown saw Carolina's defense struggle in a big way. He plans to "rise to the occasion."`\
 https://nytimes.com/athletic/6584946/2025/09/01/carolina-panthers-derrick-brown-injury-defense/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/01/crosswords/strands-sidekick-548.html
 **Connections Companion No. 814**\
 `Scroll down for hints and conversation about the puzzle for Tuesday, Sept. 2, 2025.`\
 https://nytimes.com/2025/09/01/crosswords/connections-companion-814.html
-
-**Nearly 170 days after his F1 debut disaster, Isack Hadjar truly earned his first podium**\
-`Hadjar's F1 career began ignominiously. In the months since, he's built a solid rookie resumé - and cashed it in with his first podium `\
-https://nytimes.com/athletic/6587732/2025/09/01/isack-hadjar-first-podium-dutch-gp/
 
