@@ -1,3 +1,9 @@
+**Submit a question for Stewart Mandel's College Football Mailbag**\
+`<p>Week 1 is almost in the books. Surely you have questions.</p>
+<p>Leave &#8217;em here. Please include your city.</p>
+`\
+https://nytimes.com/athletic/6588649/2025/09/01/submit-a-question-for-stewart-mandels-college-football-mailbag-313/
+
 **What Toronto’s September call-ups mean for stretch run and potential playoff roster**\
 `The Blue Jays added infielder Isiah Kiner-Falefa and reliever Dillon Tate with their September roster expansion.`\
 https://nytimes.com/athletic/6589576/2025/09/01/toronto-blue-jays-september-call-ups-playoff-roster/
@@ -33,8 +39,4 @@ https://nytimes.com/athletic/6557012/2025/09/01/bilal-al-khannouss-transfer/
 **The Recipe Readers Had to Have Year After Year**\
 `With more than 18,000 five-star reviews, Marian Burros’s easy recipe is a classic for a reason.`\
 https://nytimes.com/2025/09/01/dining/the-recipe-readers-had-to-have-year-after-year.html
-
-**Exxon and California Spar in Dueling Lawsuits Over Plastics**\
-`The oil giant accused the state’s attorney general and four nonprofit groups of defamation after they sued over recycling claims.`\
-https://nytimes.com/2025/09/01/climate/exxon-california-plastics-defamation-lawsuit.html
 
