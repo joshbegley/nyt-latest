@@ -1,3 +1,11 @@
+**Hundreds Killed as Powerful Earthquake Rocks Afghanistan**\
+`Injured people were airlifted from mountainous communities after a 6.0-magnitude quake. The death toll was expected to rise.`\
+https://nytimes.com/video/world/asia/100000010371964/hundreds-killed-as-powerful-earthquake-rocks-afghanistan.html
+
+**Chelsea opt against pursuing move for Fermin from Barcelona**\
+`The Spain international is now expected to stay at the Catalan club beyond Monday evening's deadline.`\
+https://nytimes.com/athletic/6577325/2025/09/01/chelsea-transfers-fermin-lopez-barcelona/
+
 **Juventus advancing in talks to sign Walti from Arsenal**\
 `The 32-year-old has one year left on her existing deal in north London, meaning a fee will need to be negotiated for her services.`\
 https://nytimes.com/athletic/6589093/2025/09/01/lia-walti-juventus-arsenal/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6588185/2025/09/01/fantasy-premier-league-gw3-isak-
 **Message board Monday: Arch and Kalen and Nico, oh my**\
 `Texas fans were not pleased with the Longhorns on Saturday: "Was Sark this unprepared or was Arch this bad?"`\
 https://nytimes.com/athletic/6587959/2025/09/01/arch-manning-kalen-deboer-nico-iamaleava/
-
-**By letting Roman Anthony face lefties, Red Sox have helped rookie to blossom**\
-`Improving against left-handed pitching has been one of Anthony’s priorities for years.`\
-https://nytimes.com/athletic/6584202/2025/09/01/red-sox-roman-anthony-vs-left-handers/
-
-**Braves takeaways: Hurston Waldrep, Drake Baldwin show again they're special**\
-`Two moments from the Braves’ 3-1 comeback win against the Phillies proved Waldrep and Baldwin are not typical.`\
-https://nytimes.com/athletic/6588583/2025/09/01/braves-takeaways-hurston-waldrep-drake-baldwin-special-rookies/
 
