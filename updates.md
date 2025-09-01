@@ -1,3 +1,11 @@
+**Naomi Osaka and Coco Gauff's next U.S. Open meeting, six long years in the making**\
+`The two Grand Slam champions had a moment together at this tournament when they were very different people. Now they have a match to play.`\
+https://nytimes.com/athletic/6588424/2025/09/01/us-open-osaka-gauff-match-history/
+
+**Aston Villa exploring move for Liverpool's Harvey Elliott**\
+`Separately, Villa are also on the verge of agreeing a deadline day loan deal for Manchester United winger Jadon Sancho.`\
+https://nytimes.com/athletic/6537949/2025/09/01/harvey-elliott-aston-villa-transfer-liverpool/
+
 **Arsenal's Lokonga, Vieira close to Hamburg moves**\
 `Lokonga is set to join the Bundesliga side permanently while Vieira is finalising a loan move.`\
 https://nytimes.com/athletic/6522213/2025/09/01/arsenal-news-lokonga-vieira-hamburg/

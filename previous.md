@@ -1,3 +1,11 @@
+**Naomi Osaka and Coco Gauff's next U.S. Open meeting, six long years in the making**\
+`The two Grand Slam champions had a moment together at this tournament when they were very different people. Now they have a match to play.`\
+https://nytimes.com/athletic/6588424/2025/09/01/us-open-osaka-gauff-match-history/
+
+**Aston Villa exploring move for Liverpool's Harvey Elliott**\
+`Separately, Villa are also on the verge of agreeing a deadline day loan deal for Manchester United winger Jadon Sancho.`\
+https://nytimes.com/athletic/6537949/2025/09/01/harvey-elliott-aston-villa-transfer-liverpool/
+
 **Arsenal's Lokonga, Vieira close to Hamburg moves**\
 `Lokonga is set to join the Bundesliga side permanently while Vieira is finalising a loan move.`\
 https://nytimes.com/athletic/6522213/2025/09/01/arsenal-news-lokonga-vieira-hamburg/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/09/01/opinion/trump-checks-balances.html
 **He Burned a Flag and Won an American Right. He Worries It’s at Risk.**\
 `The Supreme Court ruled in 1989 that burning an American flag is speech protected by the First Amendment. President Trump says it should be punished.`\
 https://nytimes.com/2025/09/01/us/politics/flag-burning-trump-johnson-supreme-court.html
-
-**We Ran the C.D.C.: Kennedy Is Endangering Every American’s Health**\
-`Agency leaders sound the alarm.`\
-https://nytimes.com/2025/09/01/opinion/cdc-leaders-kennedy.html
-
-**Why Are Everyone’s Bra Straps Showing These Days?**\
-`Visible undergarments are making a comeback. Our critic explains where the trend originated and what it might mean.`\
-https://nytimes.com/2025/09/01/fashion/bra-straps-showing.html
 
