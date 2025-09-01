@@ -1,3 +1,15 @@
+**Man City to complete deal for PSG's Donnarunna, Ederson to join Fenerbahce**\
+`City are arranging the final details of the Italy No 1's transfer ahead of an announcement on Monday evening.`\
+https://nytimes.com/athletic/6589338/2025/09/01/donnarumma-transfer-man-city-ederson-fenerbahce/
+
+**Sylvain Amic, Musée d’Orsay President Who Aimed to Democratize Art, Dies at 58**\
+`His formative years in sub-Saharan Africa had made him sensitive to France’s restitution of treasures taken from the continent during colonial times.`\
+https://nytimes.com/2025/09/01/arts/design/sylvain-amic-musee-dorsay-president-dead.html
+
+**Southern 500 takeaways: Briscoe dominates playoff opener, Hendrick struggles**\
+`With the pressure on, Briscoe showed how good his pairing with Joe Gibbs Racing can be. Plus, more from the playoff opener at Darlington.`\
+https://nytimes.com/athletic/6588658/2025/09/01/nascar-southern-500-takeaways-chase-briscoe-playoffs-hendrick/
+
 **European Ryder Cup team's identity is so different from just two years ago**\
 `The bond and energy inside the European locker room are undeniable. A team of risks became a team of known commodities.`\
 https://nytimes.com/athletic/6589699/2025/09/01/european-ryder-cup-identity/
