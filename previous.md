@@ -11,7 +11,7 @@ https://nytimes.com/2025/08/31/podcasts/starting-from-scratch.html
 https://nytimes.com/2025/08/31/nyregion/rikers-jail-nyc-custody-death.html
 
 **Houston Astros searching for 'a collective approach' after anemic August**\
-`Carlos Correa said that some of the team's hitters may be experiencing mechanical problems: "You get pitches to hit and miss them."`\
+`Carlos Correa said some of the team's hitters might be experiencing mechanical problems: "You get pitches to hit and miss them."`\
 https://nytimes.com/athletic/6588267/2025/08/31/houston-astros-august-hitting/
 
 **Villa exploring Sancho deal separately to potential Martinez move**\

@@ -1,3 +1,7 @@
+**Houston Astros searching for 'a collective approach' after anemic August**\
+`Carlos Correa said some of the team's hitters might be experiencing mechanical problems: "You get pitches to hit and miss them."`\
+https://nytimes.com/athletic/6588267/2025/08/31/houston-astros-august-hitting/
+
 **10-Minute Challenge: A Monet in Venice**\
 `We’d like you to look at one piece of art for 10 minutes, uninterrupted.`\
 https://nytimes.com/interactive/2025/08/31/upshot/ten-minute-challenge-monet.html
