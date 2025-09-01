@@ -1,3 +1,11 @@
+**Vivian Ayers Allen, Poet and Cultural Activist, Dies at 102**\
+`She forged an arts career in Houston while raising children who became accomplished entertainers: Phylicia Rashad, Debbie Allen and Tex Allen.`\
+https://nytimes.com/2025/09/01/arts/vivian-ayers-allen-dead.html
+
+**Homer or no homer? Trevor Story's blast to Pesky's Pole is turning heads**\
+`At 306 feet, it marked the shortest non-inside-the-park homer in the majors this season.`\
+https://nytimes.com/athletic/6590692/2025/09/01/red-sox-guardians-trevor-story-home-run/
+
 **Joe Bugner, 75, British Boxing Champ Who Slugged It Out With Ali, Dies**\
 `A European titleholder as well, he twice went the distance with Ali and another time with Joe Frazier, losing the bouts but gaining their respect.`\
 https://nytimes.com/2025/09/01/sports/joe-bugner-dead.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6563776/2025/09/01/senne-lammens-manchester-united-
 **Kabore joins Wrexham on loan from Man City**\
 `The 24-year-old arrives with Champions League and Premier League experience.`\
 https://nytimes.com/athletic/6590525/2025/09/01/issa-kabore-wrexham-manchester-city-signing/
-
-**Labor Day Protests Denounce Trump While Supporting Workers**\
-`The demonstrations were part of the continuing effort by Trump opponents to try to pressure his administration, even if many events were modest in size.`\
-https://nytimes.com/2025/09/01/us/trump-labor-day-protests.html
-
-**An Earthquake Killed Hundreds in Afghanistan**\
-`Rescue workers struggled to reach isolated areas in eastern Afghanistan after a magnitude 6.0 quake.`\
-https://nytimes.com/2025/09/01/briefing/afghanistan-earthquake-bolsonaro-trial-bad-bunny.html
 
