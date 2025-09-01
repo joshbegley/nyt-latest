@@ -1,3 +1,7 @@
+**What to Know About Giuliani’s Car Crash**\
+`Rudolph W. Giuliani, the former mayor of New York and lawyer for President Trump, suffered a fractured vertebra when a vehicle slammed into his car on Saturday.`\
+https://nytimes.com/2025/09/01/nyregion/rudy-giuliani-car-crash-accident.html
+
 **Judge Temporarily Halts Deportation of Guatemalan Children**\
 `With children already loaded onto planes, a federal judge on Sunday temporarily blocked the Trump administration from deporting dozens of them.`\
 https://nytimes.com/video/us/politics/100000010371750/trump-deportations-judge-guatemala-children.html
