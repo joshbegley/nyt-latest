@@ -1,3 +1,19 @@
+**N.Y.C. Mayoral Rivals Make a Pivotal Stop at West Indian Day Parade**\
+`The parade on Labor Day marks the beginning of a two-month sprint to Election Day, as Assemblyman Zohran Mamdani’s rivals try to peck away at his lead.`\
+https://nytimes.com/2025/09/01/nyregion/parade-mayor-race-mamdani.html
+
+**Giuliani Released From Hospital After Car Crash**\
+`Rudolph W. Giuliani was injured Saturday night when the vehicle he was riding in was rear-ended on a New Hampshire highway.`\
+https://nytimes.com/2025/09/01/nyregion/rudy-giuliani-car-accident-crash.html
+
+**Everton complete loan move for Rohl from Freiburg**\
+`Everton have been looking to improve their midfield options before the close of the window.`\
+https://nytimes.com/athletic/6588740/2025/09/01/everton-transfers-merlin-rohl/
+
+**Leeds' deadline day move for Fulham's Wilson collapses**\
+`Head coach Farke had reiterated his desire for new faces in attack on Saturday.`\
+https://nytimes.com/athletic/6590247/2025/09/01/harry-wilson-leeds-transfer-fulham/
+
 **Leeds deadline day move for Fulham's Wilson collapses**\
 `Head coach Farke had reiterated his desire for new faces in attack on Saturday.`\
 https://nytimes.com/athletic/6590247/2025/09/01/harry-wilson-leeds-transfer-fulham/

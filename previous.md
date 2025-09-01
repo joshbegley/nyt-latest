@@ -1,4 +1,16 @@
-**Leeds deadline day move for Fulham's Wilson collapses**\
+**N.Y.C. Mayoral Rivals Make a Pivotal Stop at West Indian Day Parade**\
+`The parade on Labor Day marks the beginning of a two-month sprint to Election Day, as Assemblyman Zohran Mamdani’s rivals try to peck away at his lead.`\
+https://nytimes.com/2025/09/01/nyregion/parade-mayor-race-mamdani.html
+
+**Giuliani Released From Hospital After Car Crash**\
+`Rudolph W. Giuliani was injured Saturday night when the vehicle he was riding in was rear-ended on a New Hampshire highway.`\
+https://nytimes.com/2025/09/01/nyregion/rudy-giuliani-car-accident-crash.html
+
+**Everton complete loan move for Rohl from Freiburg**\
+`Everton have been looking to improve their midfield options before the close of the window.`\
+https://nytimes.com/athletic/6588740/2025/09/01/everton-transfers-merlin-rohl/
+
+**Leeds' deadline day move for Fulham's Wilson collapses**\
 `Head coach Farke had reiterated his desire for new faces in attack on Saturday.`\
 https://nytimes.com/athletic/6590247/2025/09/01/harry-wilson-leeds-transfer-fulham/
 
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6590134/2025/09/01/micah-parsons-back-sprain-season
 **In NASCAR playoff opener, Bubba Wallace shows he's not to be dismissed**\
 `Wallace has had a reputation for not handling adversity well on the track. On Sunday, he took another step toward putting that in the past.`\
 https://nytimes.com/athletic/6590017/2025/09/01/bubba-wallace-nascar-darlington-playoffs-championship/
-
-**Naomi Osaka knocks Coco Gauff out of the U.S. Open with singleminded tactical masterclass**\
-`Osaka relentlessly targeted Gauff's weak forehand to send the home favorite out of the tournament.`\
-https://nytimes.com/athletic/6590175/2025/09/01/naomi-osaka-coco-gauff-us-open-result-analysis/
-
-**At Telluride, a Springsteen Biopic Means a Springsteen Appearance**\
-`The world premiere drew a starry audience to the annual film festival in Colorado.`\
-https://nytimes.com/2025/09/01/movies/telluride-springsteen-biopic.html
-
-**What Randal Kolo Muani brings to Tottenham: Dangerous pace, elusive movement, quick thinking**\
-`Despite a difficult spell at PSG, the 26-year-old's reputation as a talented, multi-faceted forward holds true`\
-https://nytimes.com/athletic/6589214/2025/09/01/randal-kolo-muani-tottenham/
 
