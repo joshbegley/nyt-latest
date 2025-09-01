@@ -1,3 +1,7 @@
+**Jackson's Bayern loan move back on, optimism deal will be agreed**\
+`Jackson scored 13 goals in 37 games last season while dealing with a hamstring injury.`\
+https://nytimes.com/athletic/6588202/2025/09/01/nicolas-jackson-bayern-chelsea-transfer/
+
 **Corrections: Aug. 31, 2025**\
 `Corrections that appeared in print on Sunday, Aug. 31, 2025.`\
 https://nytimes.com/2025/09/01/pageoneplus/corrections-aug-31-2025.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6583459/2025/09/01/senators-training-camp-preseason
 **How Liverpool defeated Arsenal by eventually showing more ambition in attack**\
 `This game was a typically cautious affair between two title contenders, but Arne Slot's side were rewarded for some second-half positivity`\
 https://nytimes.com/athletic/6588867/2025/09/01/liverpool-arsenal-analysis-ambition-tactics/
-
-**Who will manage the Angels in 2026? Here are five potential options**\
-`Ron Washington is among several intriguing candidates who could guide the club in 2026.`\
-https://nytimes.com/athletic/6588426/2025/09/01/angels-manager-2026-five-potential-options/
 

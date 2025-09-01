@@ -1,3 +1,7 @@
+**Fulham agree permanent move for George from Chelsea**\
+`The package for George is worth £22million plus a sell-on clause.`\
+https://nytimes.com/athletic/6588041/2025/09/01/tyrique-george-chelsea-fulham-transfer/
+
 **Jackson's Bayern loan move back on, optimism deal will be agreed**\
 `Jackson scored 13 goals in 37 games last season while dealing with a hamstring injury.`\
 https://nytimes.com/athletic/6588202/2025/09/01/nicolas-jackson-bayern-chelsea-transfer/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6585045/2025/09/01/ricky-pearsall-49ers-training-ca
 **Ottawa Senators training camp mailbag: Submit your questions for Julian McKenzie**\
 `Hockey season is almost here: it's getting close to training camp. Pose your end-of-summer questions here.`\
 https://nytimes.com/athletic/6583459/2025/09/01/senators-training-camp-preseason-mailbag/
-
-**How Liverpool defeated Arsenal by eventually showing more ambition in attack**\
-`This game was a typically cautious affair between two title contenders, but Arne Slot's side were rewarded for some second-half positivity`\
-https://nytimes.com/athletic/6588867/2025/09/01/liverpool-arsenal-analysis-ambition-tactics/
 
