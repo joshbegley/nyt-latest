@@ -1,3 +1,11 @@
+**Bay FC's Asisat Oshoala set for move to Al Hilal**\
+`The Nigeria international joined Bay FC last year ahead of its debut NWSL season after spending five years with Barcelona.`\
+https://nytimes.com/athletic/6590027/2025/09/01/asisat-oshoala-bay-fc-al-hilal/
+
+**Arsenal complete Hincapie signing**\
+`Hincapie travelled to London over the weekend after a loan agreement was reached with an option to buy for a total package of €52m.`\
+https://nytimes.com/athletic/6587286/2025/09/01/arsenal-transfer-news-hincapie/
+
 **Legendary boxer Joe Bugner, who challenged Ali and Frazier, dies at 75**\
 `Bugner began his 32-year boxing career in 1967 at 17.`\
 https://nytimes.com/athletic/6589800/2025/09/01/joe-bugner-boxing-champion-heavyweight-obit-muhammad-ali/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6589876/2025/09/01/raheem-sterling-chelsea-transfer
 **Leverkusen 'never a relationship based on mutual trust', says sacked Ten Hag**\
 `Ten Hag was sacked by Bayer Leverkusen after only three games, having only joined in the summer. `\
 https://nytimes.com/athletic/6589892/2025/09/01/erik-ten-hag-statement-bayer-leverkusen-sacked/
-
-**Trump Orders Have Stripped Nearly Half a Million Federal Workers of Union Rights**\
-`The president, who has targeted collective bargaining contracts for nearly one million government employees, has said their functions touch on national security.`\
-https://nytimes.com/2025/09/01/us/politics/trumps-unions-federal-workers.html
-
-**Army football player and family save unresponsive man from burning car**\
-`"This was just doing what I would always do. This is just helping somebody in need," said Army safety Larry Pickett Jr. `\
-https://nytimes.com/athletic/6589786/2025/09/01/army-football-player-save-burning-car/
 
