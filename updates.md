@@ -1,3 +1,15 @@
+**Miami outlasts Notre Dame in prime-time thriller after losing 14-point lead**\
+`The Hurricanes secured their first win against a top-10 opponent since 2017, snapping an eight-game losing streak in those spots.`\
+https://nytimes.com/athletic/6588358/2025/08/31/miami-notre-dame-football-highlights/
+
+**Map: 6.0-Magnitude Earthquake Strikes Afghanistan**\
+`View the location of the quake’s epicenter and shake area.`\
+https://nytimes.com/interactive/2025/08/31/world/asia/afghanistan-earthquake.html
+
+**College Football Playoff 2025 projections: How Week 1 is changing the most likely bracket**\
+`Our College Football Playoff predictions model is back. Check here for regular updates on CFP and national championship odds for 2025.`\
+https://nytimes.com/athletic/6560541/2025/08/31/college-football-playoff-bracket-projections-odds/
+
 **Suárez appears to spit at Sounders staffer after Leagues Cup final**\
 `Things took a lamentable turn after Inter Miami's comprehensive defeat in Seattle`\
 https://nytimes.com/athletic/6588549/2025/08/31/luis-suarez-spit-leagues-cup-final-inter-miami-seattle-sounders/
