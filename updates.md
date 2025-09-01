@@ -1,3 +1,15 @@
+**Where You Can Stumble Upon a U.S. Open Match**\
+`A small part of the New York City tennis tournament is staged, miles away from the main action, at the gleaming Cary Leeds Center for Tennis & Learning in the Bronx.`\
+https://nytimes.com/2025/09/01/nyregion/us-open-tennis-junior-tournament.html
+
+**When the Trumpeter Plays Taps, the Crowd at the Shore Goes Silent**\
+`As the sun sets on another summer, John Hersh is wrapping up his 10th year of rooftop serenades.`\
+https://nytimes.com/2025/09/01/nyregion/long-beach-island-nj-trumpeter.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/09/01/crosswords/spelling-bee-forum.html
+
 **Putin and Modi Hold Hands as They Greet Xi**\
 `The leaders of Russia, China and India shared a moment of bonhomie as a security summit in eastern China on Monday.`\
 https://nytimes.com/video/world/asia/100000010371875/xi-putin-modi-summit.html
