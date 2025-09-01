@@ -1,3 +1,11 @@
+**Hundreds Killed as Powerful Earthquake Rocks Afghanistan**\
+`Injured people were airlifted from mountainous communities after a 6.0-magnitude quake. The death toll was expected to rise.`\
+https://nytimes.com/video/world/asia/100000010371964/hundreds-killed-as-powerful-earthquake-rocks-afghanistan.html
+
+**Chelsea opt against pursuing move for Fermin from Barcelona**\
+`The Spain international is now expected to stay at the Catalan club beyond Monday evening's deadline.`\
+https://nytimes.com/athletic/6577325/2025/09/01/chelsea-transfers-fermin-lopez-barcelona/
+
 **Juventus advancing in talks to sign Walti from Arsenal**\
 `The 32-year-old has one year left on her existing deal in north London, meaning a fee will need to be negotiated for her services.`\
 https://nytimes.com/athletic/6589093/2025/09/01/lia-walti-juventus-arsenal/
