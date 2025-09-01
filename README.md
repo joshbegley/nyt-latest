@@ -24,7 +24,7 @@ https://nytimes.com/athletic/6588649/2025/09/01/submit-a-question-for-stewart-ma
 ``\
 https://nytimes.com/issue/todayspaper/2025/09/01/todays-new-york-times
 
-**It’s Labor Day. And Trump Is the Most Anti-Union President in Decades.**\
+**Trump Is Wiping Out Unions. Why Are They So Quiet?**\
 `Why the labor movement needs to act like its future is under grave threat.`\
 https://nytimes.com/2025/09/01/opinion/trump-unions-labor.html
 
