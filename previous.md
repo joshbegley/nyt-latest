@@ -1,3 +1,23 @@
+**Gene Espy, Pioneering Hiker of the Appalachian Trail, Dies at 98**\
+`In 1951, he became the second person known to have walked the trail in a single trek — a “thru-hike” — covering some 2,000 miles from Georgia to Maine in 123 days.`\
+https://nytimes.com/2025/09/01/us/gene-espy-dead.html
+
+**Packers players on Micah Parsons trade: 'Nightmares for the offensive side of the ball'**\
+`It's safe to say Micah Parsons' new Packers teammates are happy that he's now in their locker room.`\
+https://nytimes.com/athletic/6590244/2025/09/01/packers-players-micah-parsons-trade/
+
+**Understanding Alexander Isak - 'He was always looking for an opportunity'**\
+`This is Alexander Isak, now the most expensive Premier League signing ever: a unique personality, intense but also laid-back and introverted`\
+https://nytimes.com/athletic/6540191/2025/09/01/alexander-isak-liverpool-who-is-he/
+
+**Selling Alexander Isak to Liverpool? It's crazy, really**\
+`It is a matter of record — there in black and white — that this is not ambitious, not what you do for the best of the club`\
+https://nytimes.com/athletic/6589353/2025/09/01/newcastle-united-alexander-isak-transfer-crazy/
+
+**In Brooklyn, West Indian Parade Celebrates Heritage and Carnival**\
+`Revelers crowded Eastern Parkway for the 58th annual West Indian American Day Parade, known for its elaborate floats and costumes.`\
+https://nytimes.com/2025/09/01/nyregion/west-indian-day-parade-labor-day-photos.html
+
 **Sunderland complete signing of Ajax striker Brobbey**\
 `The 23-year-old is Sunderland's 14th signing this summer, taking their spending to almost £160m.`\
 https://nytimes.com/athletic/6590430/2025/09/01/brian-brobbey-sunderland-transfer/
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/6588740/2025/09/01/everton-transfers-merlin-rohl/
 **Leeds' deadline day move for Fulham's Wilson collapses**\
 `Head coach Farke had reiterated his desire for new faces in attack on Saturday.`\
 https://nytimes.com/athletic/6590247/2025/09/01/harry-wilson-leeds-transfer-fulham/
-
-**Nottingham Forest to conclude deal for Arsenal's Zinchenko**\
-`Forest submitted a deal sheet before the 7pm deadline and are racing to complete a season-long loan for the Ukraine international.`\
-https://nytimes.com/athletic/6590321/2025/09/01/oleksandr-zinchenko-nottingham-forest-tranfer/
-
-**Forest complete Cuiabano signing from Botafogo**\
-`The 22-year-old is the fourth player to join Forest from Botafogo this summer. `\
-https://nytimes.com/athletic/6590318/2025/09/01/cuiabano-nottingham-forest-botafogo-transfer/
-
-**Inter Miami seals its villainous turn after Leagues Cup final disgrace**\
-`Luis Suárez's spitting incident and a postgame brawl in Seattle turned Inter Miami into full-fledged villains`\
-https://nytimes.com/athletic/6590093/2025/09/01/inter-miami-mls-villain-suarez-messi-seattle-leagues-cup-spit/
-
-**Braves claim former Gold Glove winner Ha-Seong Kim off waivers**\
-`He won a Gold Glove in 2023 while playing primarily second base but also plenty of shortstop and third base.`\
-https://nytimes.com/athletic/6590266/2025/09/01/atlanta-braves-ha-seong-kim-waiver-claim/
-
-**Micah Parsons managing facet joint sprain in back ahead of Week 1: Source**\
-`Before Parsons was traded to Green Bay last week, the Cowboys prescribed him a five-day plan of an anti-inflammatory corticosteroid.`\
-https://nytimes.com/athletic/6590134/2025/09/01/micah-parsons-back-sprain-season-opener-lions/
 
