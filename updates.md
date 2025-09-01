@@ -1,3 +1,7 @@
+**Starting From Scratch**\
+`Stories of people starting over.`\
+https://nytimes.com/2025/08/31/podcasts/starting-from-scratch.html
+
 **Rikers Detainee Becomes Third Person to Die in N.Y.C. Custody in a Week**\
 `Days before the death of the man, Jimmy Avila, another detainee was pronounced dead in his cell at the troubled city jail complex, and a third died in police custody.`\
 https://nytimes.com/2025/08/31/nyregion/rikers-jail-nyc-custody-death.html
