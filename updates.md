@@ -1,3 +1,7 @@
+**10-Minute Challenge: A Monet in Venice**\
+`We’d like you to look at one piece of art for 10 minutes, uninterrupted.`\
+https://nytimes.com/interactive/2025/08/31/upshot/ten-minute-challenge-monet.html
+
 **Starting From Scratch**\
 `Stories of people starting over.`\
 https://nytimes.com/2025/08/31/podcasts/starting-from-scratch.html

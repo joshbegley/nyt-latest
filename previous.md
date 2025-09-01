@@ -1,3 +1,7 @@
+**10-Minute Challenge: A Monet in Venice**\
+`We’d like you to look at one piece of art for 10 minutes, uninterrupted.`\
+https://nytimes.com/interactive/2025/08/31/upshot/ten-minute-challenge-monet.html
+
 **Starting From Scratch**\
 `Stories of people starting over.`\
 https://nytimes.com/2025/08/31/podcasts/starting-from-scratch.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/31/obituaries/lee-roy-jordan-dead.html
 **Breaking down Dominik Szoboszlai's awesome free kick: 'The pace, trajectory and movement is ridiculous'**\
 `We speak to set-piece and goalkeeping experts to break down Dominik Szoboszlai's winner against Arsenal.`\
 https://nytimes.com/athletic/6588031/2025/08/31/dominik-szoboszlai-free-kick-analysed/
-
-**Fearing Bolsonaro Escape, Brazil Tightens Leash Ahead of Coup Trial**\
-`Former President Jair Bolsonaro, who will stand trial on Tuesday, is being closely monitored by the Brazilian authorities, who fear he may try to flee.`\
-https://nytimes.com/2025/08/31/world/americas/brazil-bolsonaro-trial-restrictions.html
 
