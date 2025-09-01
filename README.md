@@ -1,3 +1,7 @@
+**Nadler, Pillar of Democratic Party’s Old Guard, Will Retire Next Year**\
+`Representative Jerrold Nadler, the ex-House Judiciary chairman who helped lead President Trump’s impeachments, will not seek re-election in New York.`\
+https://nytimes.com/2025/09/01/nyregion/jerrold-nadler-congress-retires.html
+
 **Juan Soto's red-hot day vs. Tigers silences 'overrated' chants, bails out Mets pitching**\
 `The Mets overcame their pitching staff’s inadequacies with Soto's grand slam and triple in a 10-8 win over the Tigers.`\
 https://nytimes.com/athletic/6590711/2025/09/01/juan-soto-grand-slam-mets-tigers/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6590677/2025/09/01/sal-stewart-reds-rookie-mlb-debu
 **Vivian Ayers Allen, Poet and Cultural Activist, Dies at 102**\
 `She forged an arts career in Houston while raising children who became accomplished entertainers: Phylicia Rashad, Debbie Allen and Tex Allen.`\
 https://nytimes.com/2025/09/01/arts/vivian-ayers-allen-dead.html
-
-**Homer or no homer? Trevor Story's blast to Pesky's Pole is turning heads**\
-`At 306 feet, it marked the shortest non-inside-the-park homer in the majors this season.`\
-https://nytimes.com/athletic/6590692/2025/09/01/red-sox-guardians-trevor-story-home-run/
 
