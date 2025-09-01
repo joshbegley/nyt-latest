@@ -1,3 +1,7 @@
+**Kabore joins Wrexham on loan from Man City**\
+`The 24-year-old arrives with Champions League and Premier League experience.`\
+https://nytimes.com/athletic/6590525/2025/09/01/issa-kabore-wrexham-manchester-city-signing/
+
 **Labor Day Protests Denounce Trump While Supporting Workers**\
 `The demonstrations were part of the continuing effort by Trump opponents to try to pressure his administration, even if many events were modest in size.`\
 https://nytimes.com/2025/09/01/us/trump-labor-day-protests.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6540191/2025/09/01/alexander-isak-liverpool-who-is-
 **Selling Alexander Isak to Liverpool? It's crazy, really**\
 `It is a matter of record — there in black and white — that this is not ambitious, not what you do for the best of the club`\
 https://nytimes.com/athletic/6589353/2025/09/01/newcastle-united-alexander-isak-transfer-crazy/
-
-**In Brooklyn, West Indian Parade Celebrates Heritage and Carnival**\
-`Revelers crowded Eastern Parkway for the 58th annual West Indian American Day Parade, known for its elaborate floats and costumes.`\
-https://nytimes.com/2025/09/01/nyregion/west-indian-day-parade-labor-day-photos.html
 

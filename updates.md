@@ -1,3 +1,7 @@
+**Kabore joins Wrexham on loan from Man City**\
+`The 24-year-old arrives with Champions League and Premier League experience.`\
+https://nytimes.com/athletic/6590525/2025/09/01/issa-kabore-wrexham-manchester-city-signing/
+
 **Labor Day Protests Denounce Trump While Supporting Workers**\
 `The demonstrations were part of the continuing effort by Trump opponents to try to pressure his administration, even if many events were modest in size.`\
 https://nytimes.com/2025/09/01/us/trump-labor-day-protests.html
