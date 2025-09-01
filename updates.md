@@ -1,3 +1,7 @@
+**What Was the Theme of Your Summer?**\
+`If you had to sum up your summer vacation in a word or two, what would it be?`\
+https://nytimes.com/2025/09/01/learning/what-was-the-theme-of-your-summer.html
+
 **Submit a question for Stewart Mandel's College Football Mailbag**\
 `<p>Week 1 is almost in the books. Surely you have questions.</p>
 <p>Leave &#8217;em here. Please include your city.</p>

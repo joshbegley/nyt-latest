@@ -1,3 +1,7 @@
+**What Was the Theme of Your Summer?**\
+`If you had to sum up your summer vacation in a word or two, what would it be?`\
+https://nytimes.com/2025/09/01/learning/what-was-the-theme-of-your-summer.html
+
 **Submit a question for Stewart Mandel's College Football Mailbag**\
 `<p>Week 1 is almost in the books. Surely you have questions.</p>
 <p>Leave &#8217;em here. Please include your city.</p>
@@ -35,8 +39,4 @@ https://nytimes.com/athletic/6589553/2025/09/01/jaylen-warren-steelers-contract-
 **Leicester loan El Khannouss to Stuttgart, sign Carranza from Feyenoord**\
 `El Khannouss had been considered by a number of Premier League sides following Leicester’s relegation last season.`\
 https://nytimes.com/athletic/6557012/2025/09/01/bilal-al-khannouss-transfer/
-
-**The Recipe Readers Had to Have Year After Year**\
-`With more than 18,000 five-star reviews, Marian Burros’s easy recipe is a classic for a reason.`\
-https://nytimes.com/2025/09/01/dining/the-recipe-readers-had-to-have-year-after-year.html
 
