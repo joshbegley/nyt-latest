@@ -1,3 +1,11 @@
+**Leeds in Wilson talks with Fulham**\
+`The 28-year-old is in the final year of his contract at Craven Cottage.`\
+https://nytimes.com/athletic/6589521/2025/09/01/harry-wilson-leeds-fulham/
+
+**How Bears QB Caleb Williams views 2024 as he starts anew with Ben Johnson**\
+`Williams can't forget about last season, but what can he learn from it as he works to be an expert in his new Chicago coach's offense?`\
+https://nytimes.com/athletic/6584211/2025/09/01/bears-caleb-williams-ben-johnson-fresh-start/
+
 **Florida State LB Ethan Pritchard hospitalized after suffering gunshot wound**\
 `Pritchard was wounded inside a vehicle after a shooting occurred just before 10 p.m. inside an apartment complex.`\
 https://nytimes.com/athletic/6589348/2025/09/01/florida-state-ethan-pritchard-shooting-condition-critical-stable/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/09/01/world/europe/von-der-leyen-gps-jamming-russia-ukr
 **FIFA warned of setting 'dangerous precedent' by allowing staging of league matches abroad**\
 `La Liga and Serie A are attempting to export regular-season matches abroad this season to Miami and Perth respectively.`\
 https://nytimes.com/athletic/6589302/2025/09/01/la-liga-match-abroad-serie-a/
-
-**Liverpool agree Guehi deal with Palace**\
-`A package of £35million has been agreed and the defender is set to undergo a medical ahead of the proposed move.`\
-https://nytimes.com/athletic/6586045/2025/09/01/marc-guehi-liverpool-transfer-palace/
-
-**The Pulse: Yes, we're doing Week 1 overreactions**\
-`Welcome to The Pulse, The Athletic's daily newsletter.`\
-https://nytimes.com/athletic/6588439/2025/09/01/week-1-cfb-gauff-osaka-the-pulse/
 
