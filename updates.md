@@ -1,3 +1,7 @@
+**Nadler, Pillar of Democratic Party’s Old Guard, Will Retire Next Year**\
+`Representative Jerrold Nadler, the ex-House Judiciary chairman who helped lead President Trump’s impeachments, will not seek re-election in New York.`\
+https://nytimes.com/2025/09/01/nyregion/jerrold-nadler-congress-retires.html
+
 **Juan Soto's red-hot day vs. Tigers silences 'overrated' chants, bails out Mets pitching**\
 `The Mets overcame their pitching staff’s inadequacies with Soto's grand slam and triple in a 10-8 win over the Tigers.`\
 https://nytimes.com/athletic/6590711/2025/09/01/juan-soto-grand-slam-mets-tigers/
