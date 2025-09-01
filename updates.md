@@ -1,3 +1,7 @@
+**Sunderland complete signing of Ajax striker Brobbey**\
+`The 23-year-old is Sunderland's 14th signing this summer, taking their spending to almost £160m.`\
+https://nytimes.com/athletic/6590430/2025/09/01/brian-brobbey-sunderland-transfer/
+
 **N.Y.C. Mayoral Rivals Make a Pivotal Stop at West Indian Day Parade**\
 `The parade on Labor Day marks the beginning of a two-month sprint to Election Day, as Assemblyman Zohran Mamdani’s rivals try to peck away at his lead.`\
 https://nytimes.com/2025/09/01/nyregion/parade-mayor-race-mamdani.html

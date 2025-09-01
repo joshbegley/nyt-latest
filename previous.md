@@ -1,3 +1,7 @@
+**Sunderland complete signing of Ajax striker Brobbey**\
+`The 23-year-old is Sunderland's 14th signing this summer, taking their spending to almost £160m.`\
+https://nytimes.com/athletic/6590430/2025/09/01/brian-brobbey-sunderland-transfer/
+
 **N.Y.C. Mayoral Rivals Make a Pivotal Stop at West Indian Day Parade**\
 `The parade on Labor Day marks the beginning of a two-month sprint to Election Day, as Assemblyman Zohran Mamdani’s rivals try to peck away at his lead.`\
 https://nytimes.com/2025/09/01/nyregion/parade-mayor-race-mamdani.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6590266/2025/09/01/atlanta-braves-ha-seong-kim-waiv
 **Micah Parsons managing facet joint sprain in back ahead of Week 1: Source**\
 `Before Parsons was traded to Green Bay last week, the Cowboys prescribed him a five-day plan of an anti-inflammatory corticosteroid.`\
 https://nytimes.com/athletic/6590134/2025/09/01/micah-parsons-back-sprain-season-opener-lions/
-
-**In NASCAR playoff opener, Bubba Wallace shows he's not to be dismissed**\
-`Wallace has had a reputation for not handling adversity well on the track. On Sunday, he took another step toward putting that in the past.`\
-https://nytimes.com/athletic/6590017/2025/09/01/bubba-wallace-nascar-darlington-playoffs-championship/
 
