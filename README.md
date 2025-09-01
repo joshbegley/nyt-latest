@@ -1,3 +1,7 @@
+**A Look at Vintage Photography From Our Archives**\
+`We study photographers’ contact sheets from the last century.`\
+https://nytimes.com/2025/09/01/briefing/a-look-at-vintage-photography-from-our-archives.html
+
 **Quarterback overreactions: Whose stock is up after Week 1? Who struggled?**\
 `Arnold's debut at Auburn was promising. Manning's first road start at Texas was not. `\
 https://nytimes.com/athletic/6588481/2025/09/01/quarterback-overreaction-arch-manning-jackson-arnold/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6588518/2025/09/01/this-week-in-mets-rotation-chall
 **Guardians takeaways: Kyle Manzardo's power, Naylor family dynamics, the '95 team and more**\
 `Manzardo sits at 23 homers and a .774 OPS in his first full season in the majors. The Guardians are 20-5 all-time when he homers.`\
 https://nytimes.com/athletic/6587264/2025/09/01/guardians-takeaways-kyle-manzardo-home-run/
-
-**SEC vibes rankings: Oh, Alabama, that escalated quickly**\
-`This is a ranking that takes into account the vital data point that Big Data refuses to consider: feelings.`\
-https://nytimes.com/athletic/6587545/2025/09/01/sec-football-rankings-week-2-alabama-lsu/
 
