@@ -1,3 +1,7 @@
+**Dodgers to sign pitcher Andrew Heaney ahead of postseason deadline: Source**\
+`Heaney was released by the Pittsburgh Pirates last week and rejoins the Dodgers for a third time. `\
+https://nytimes.com/athletic/6589662/2025/09/01/dodgers-andrew-heaney-sign-postseason/
+
 **NASCAR Southern 500 takeaways: Chase Briscoe dominates playoff opener, Hendrick struggles**\
 `With the pressure on, Briscoe showed how good his pairing with JGR can be. Plus, more from the playoff opener at Darlington.`\
 https://nytimes.com/athletic/6588658/2025/09/01/nascar-southern-500-takeaways-chase-briscoe-playoffs-hendrick/
@@ -35,8 +39,4 @@ https://nytimes.com/athletic/6589277/2025/09/01/fantasy-baseball-the-bat-x-jonah
 **Leeds in Wilson talks with Fulham**\
 `The 28-year-old is in the final year of his contract at Craven Cottage.`\
 https://nytimes.com/athletic/6589521/2025/09/01/harry-wilson-leeds-fulham/
-
-**How Bears QB Caleb Williams views 2024 as he starts anew with Ben Johnson**\
-`Williams can't forget about last season, but what can he learn from it as he works to be an expert in his new Chicago coach's offense?`\
-https://nytimes.com/athletic/6584211/2025/09/01/bears-caleb-williams-ben-johnson-fresh-start/
 
