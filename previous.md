@@ -1,3 +1,11 @@
+**Ten Hag sacked after just three games as Leverkusen coach**\
+`Ten Hag replaced Xabi Alonso in the dugout at the BayArena this summer, after the Spanish coach was appointed at Real Madrid.`\
+https://nytimes.com/athletic/6587305/2025/09/01/erik-ten-hag-sacked-bayer-leverkusen/
+
+**Kyiv Links Moscow to Killing of Former Ukrainian Parliament Speaker**\
+`Ukraine said it had arrested a suspect in the murder of the politician, who had voiced anti-Russian views. The authorities did not explain how the suspect was tied to Moscow.`\
+https://nytimes.com/2025/09/01/world/europe/ukraine-andriy-parubiy-murder.html
+
 **The U.S. Open is the strangest Grand Slam. Can Jannik Sinner tame it?**\
 `No man has defended the U.S. Open title in 17 years. Sinner, who has been unruffled on court the past year, is next in line.`\
 https://nytimes.com/athletic/6587938/2025/09/01/us-open-tennis-grand-slam-winners-jannik-sinner/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/09/01/world/asia/earthquake-afghanistan-what-to-know.ht
 **Tennis outfits make the U.S. Open a fashion spectacle. For players, it's also a business**\
 `Tennis and fashion are more intertwined than ever before, with players' outfits offering a crucial on-ramp for casual fans.`\
 https://nytimes.com/athletic/6584991/2025/09/01/tennis-best-outfits-us-open-fashion-deals-sponsorships/
-
-**Villa on verge of agreeing Sancho loan from Man United**\
-`An agreement club-to-club and with the player is close with only final details to sort.`\
-https://nytimes.com/athletic/6588868/2025/09/01/jadon-sancho-aston-villa-manchester-united/
-
-**Falcons mailbag: What's up at right tackle? Why so few D-linemen? Does Penix need more reps?**\
-`The Atlanta Falcons have brought in three new right tackles in the last week. Do any of them have a chance to start?`\
-https://nytimes.com/athletic/6586289/2025/09/01/atlanta-falcons-right-tackle-defensive-linemen-michael-penix/
 

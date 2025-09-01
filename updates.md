@@ -1,3 +1,11 @@
+**Ten Hag sacked after just three games as Leverkusen coach**\
+`Ten Hag replaced Xabi Alonso in the dugout at the BayArena this summer, after the Spanish coach was appointed at Real Madrid.`\
+https://nytimes.com/athletic/6587305/2025/09/01/erik-ten-hag-sacked-bayer-leverkusen/
+
+**Kyiv Links Moscow to Killing of Former Ukrainian Parliament Speaker**\
+`Ukraine said it had arrested a suspect in the murder of the politician, who had voiced anti-Russian views. The authorities did not explain how the suspect was tied to Moscow.`\
+https://nytimes.com/2025/09/01/world/europe/ukraine-andriy-parubiy-murder.html
+
 **The U.S. Open is the strangest Grand Slam. Can Jannik Sinner tame it?**\
 `No man has defended the U.S. Open title in 17 years. Sinner, who has been unruffled on court the past year, is next in line.`\
 https://nytimes.com/athletic/6587938/2025/09/01/us-open-tennis-grand-slam-winners-jannik-sinner/
