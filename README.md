@@ -1,3 +1,7 @@
+**Man City ready to sanction Ederson exit – if they sign Donnarumma as replacement**\
+`Brazil international Ederson is a target for Fenerbahce over the closing hours of the summer window.`\
+https://nytimes.com/athletic/6526901/2025/09/01/man-city-donnarumma-ederson-transfer/
+
 **Dominik Szoboszlai has proved an extraordinary emergency right-back. He should stay there**\
 `Slot has got himself a new dynamic right-back with a penchant for producing the spectacular.`\
 https://nytimes.com/athletic/6587729/2025/09/01/dominik-szoboszlai-has-proved-an-extraordinary-emergency-right-back-he-should-stay-there/
@@ -35,8 +39,4 @@ https://nytimes.com/2025/09/01/opinion/brazil-lula-trump-bolsonaro.html
 **Far-Right, Anti-Immigration Protests Worry Leaders in Australia**\
 `The government condemned the demonstrations, which drew tens of thousands of people. Some of the events included speakers tied to neo-Nazi groups.`\
 https://nytimes.com/2025/09/01/world/australia/australia-immigration-protests.html
-
-**China Shows Off Its Power**\
-`Xi Jinping is using a summit with leaders like Narendra Modi and Vladimir Putin as an opportunity to pull countries away from the U.S.`\
-https://nytimes.com/2025/09/01/briefing/xi-modi-putin-summit-gaza.html
 
