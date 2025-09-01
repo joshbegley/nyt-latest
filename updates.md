@@ -1,3 +1,11 @@
+**European Ryder Cup team's identity is so different from just two years ago**\
+`The bond and energy inside the European locker room are undeniable. A team of risks became a team of known commodities.`\
+https://nytimes.com/athletic/6589699/2025/09/01/european-ryder-cup-identity/
+
+**Back to School**\
+`How do you feel about the start of a new academic year?`\
+https://nytimes.com/2025/09/01/learning/back-to-school.html
+
 **Dodgers to sign pitcher Andrew Heaney ahead of postseason deadline: Source**\
 `Heaney was released by the Pittsburgh Pirates last week and rejoins the Dodgers for a third time. `\
 https://nytimes.com/athletic/6589662/2025/09/01/dodgers-andrew-heaney-sign-postseason/
