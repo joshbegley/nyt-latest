@@ -1,3 +1,11 @@
+**Bay FC's Asisat Oshoala set for move to Al Hilal**\
+`The Nigeria international joined Bay FC last year ahead of its debut NWSL season after spending five years with Barcelona.`\
+https://nytimes.com/athletic/6590027/2025/09/01/asisat-oshoala-bay-fc-al-hilal/
+
+**Arsenal complete Hincapie signing**\
+`Hincapie travelled to London over the weekend after a loan agreement was reached with an option to buy for a total package of €52m.`\
+https://nytimes.com/athletic/6587286/2025/09/01/arsenal-transfer-news-hincapie/
+
 **Legendary boxer Joe Bugner, who challenged Ali and Frazier, dies at 75**\
 `Bugner began his 32-year boxing career in 1967 at 17.`\
 https://nytimes.com/athletic/6589800/2025/09/01/joe-bugner-boxing-champion-heavyweight-obit-muhammad-ali/
