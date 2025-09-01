@@ -1,3 +1,11 @@
+**ACC fines Florida State $50,000 for field-storming after upset of Alabama**\
+`Florida State is the first ACC school to be fined under a conference policy announced earlier this summer.`\
+https://nytimes.com/athletic/6590775/2025/09/01/acc-fines-florida-state-50k-field-storming-alabama/
+
+**Matthew Stafford expected to start for Rams in Week 1 vs. Texans**\
+`Sean McVay says the quarterback, who aggravated a disk in his back and missed nearly a month of camp, will 'be good' to go in L.A.'s opener.`\
+https://nytimes.com/athletic/6590664/2025/09/01/matthew-stafford-rams-expect-start-texans-week-1/
+
 **Reds rookie Sal Stewart shines in MLB debut with hit, run in walk-off win**\
 `At 21, Stewart is the youngest player on the Reds’ roster, but he got to the big leagues because he doesn’t hit like a 21-year-old.`\
 https://nytimes.com/athletic/6590677/2025/09/01/sal-stewart-reds-rookie-mlb-debut/

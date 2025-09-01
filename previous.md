@@ -1,3 +1,11 @@
+**ACC fines Florida State $50,000 for field-storming after upset of Alabama**\
+`Florida State is the first ACC school to be fined under a conference policy announced earlier this summer.`\
+https://nytimes.com/athletic/6590775/2025/09/01/acc-fines-florida-state-50k-field-storming-alabama/
+
+**Matthew Stafford expected to start for Rams in Week 1 vs. Texans**\
+`Sean McVay says the quarterback, who aggravated a disk in his back and missed nearly a month of camp, will 'be good' to go in L.A.'s opener.`\
+https://nytimes.com/athletic/6590664/2025/09/01/matthew-stafford-rams-expect-start-texans-week-1/
+
 **Reds rookie Sal Stewart shines in MLB debut with hit, run in walk-off win**\
 `At 21, Stewart is the youngest player on the Reds’ roster, but he got to the big leagues because he doesn’t hit like a 21-year-old.`\
 https://nytimes.com/athletic/6590677/2025/09/01/sal-stewart-reds-rookie-mlb-debut/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6590169/2025/09/01/49ers-jauan-jennings-returns-sea
 **Efficient finishing, aerial threat and how he fits with Woltemade: What Wissa will bring to Newcastle**\
 `Newcastle have finally secured the signing of Wissa from Brentford after a long summer pursuit. But what will he offer Eddie Howe's squad?`\
 https://nytimes.com/athletic/6589224/2025/09/01/yoane-wissa-transfer-newcastle-brentford/
-
-**Searching the Rubble After Afghanistan’s Deadly Earthquake**\
-`Hundreds of people were killed and at least 2,500 others were injured in a difficult to reach mountainous region. Officials warned many more people may still be awaiting rescue.`\
-https://nytimes.com/2025/09/01/world/asia/afghanistan-earthquake-photos.html
-
-**Can Senne Lammens, 23, bring calm to Manchester United's goalkeeping situation?**\
-`Senne Lammens has the potential to grow into being Manchester United's long-term solution in goal`\
-https://nytimes.com/athletic/6563776/2025/09/01/senne-lammens-manchester-united-goalkeeper-calm/
 

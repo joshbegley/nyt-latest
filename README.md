@@ -1,3 +1,7 @@
+**2 Are Found Dead in a Creek After Flooding in San Antonio**\
+`The bodies of a man and a woman were found on Monday, the authorities said. The discovery came after heavy thunderstorms struck the area on Sunday evening.`\
+https://nytimes.com/2025/09/01/us/san-antonio-flood-deaths.html
+
 **ACC fines Florida State $50,000 for field-storming after upset of Alabama**\
 `Florida State is the first ACC school to be fined under a conference policy announced earlier this summer.`\
 https://nytimes.com/athletic/6590775/2025/09/01/acc-fines-florida-state-50k-field-storming-alabama/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6590215/2025/09/01/offseason-questions-nfl-2025-sco
 **With Jauan Jennings practicing, 49ers' WR prospects don't seem so bleak**\
 `Jennings, who hasn't practiced for more than a month, was back on the field. If he remains healthy, he and Ricky Pearsall will start Sunday.`\
 https://nytimes.com/athletic/6590169/2025/09/01/49ers-jauan-jennings-returns-seahawks/
-
-**Efficient finishing, aerial threat and how he fits with Woltemade: What Wissa will bring to Newcastle**\
-`Newcastle have finally secured the signing of Wissa from Brentford after a long summer pursuit. But what will he offer Eddie Howe's squad?`\
-https://nytimes.com/athletic/6589224/2025/09/01/yoane-wissa-transfer-newcastle-brentford/
 
