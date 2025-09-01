@@ -1,3 +1,7 @@
+**Fulham agree permanent move for George from Chelsea**\
+`The package for the 19-year-old is worth £22million plus a sell-on clause.`\
+https://nytimes.com/athletic/6588041/2025/09/01/tyrique-george-chelsea-fulham-transfer/
+
 **Jackson's Bayern loan move back on, optimism deal will be agreed**\
 `Jackson scored 13 goals in 37 games last season while dealing with a hamstring injury.`\
 https://nytimes.com/athletic/6588202/2025/09/01/nicolas-jackson-bayern-chelsea-transfer/
@@ -14,7 +18,7 @@ https://nytimes.com/2025/09/01/pageoneplus/corrections-aug-30-2025.html
 `The vision of four new players coming on at once in a game is always striking, but on Sunday at the Amex Stadium it was effective, too`\
 https://nytimes.com/athletic/6588759/2025/09/01/brighton-quadruple-substitution-manchester-city/
 
-**Miami's new faces show why this is a better Hurricanes team**\
+**Navarro: Miami's new faces show why this is a better Hurricanes team**\
 `Miami lost No. 1 pick Cam Ward but leaned on Georgia transfer Carson Beck and a revamped defense to beat Notre Dame on Sunday.`\
 https://nytimes.com/athletic/6589186/2025/09/01/miami-carson-beck-transfers-notre-dame/
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6585045/2025/09/01/ricky-pearsall-49ers-training-ca
 **Ottawa Senators training camp mailbag: Submit your questions for Julian McKenzie**\
 `Hockey season is almost here: it's getting close to training camp. Pose your end-of-summer questions here.`\
 https://nytimes.com/athletic/6583459/2025/09/01/senators-training-camp-preseason-mailbag/
-
-**How Liverpool defeated Arsenal by eventually showing more ambition in attack**\
-`This game was a typically cautious affair between two title contenders, but Arne Slot's side were rewarded for some second-half positivity`\
-https://nytimes.com/athletic/6588867/2025/09/01/liverpool-arsenal-analysis-ambition-tactics/
 
