@@ -1,3 +1,7 @@
+**Tottenham's Gil set for permanent Girona transfer**\
+`The 24-year-old spent the 2024-25 campaign on loan at the Catalan club, where he scored four goals across 32 appearances.`\
+https://nytimes.com/athletic/6589056/2025/09/01/tottenham-transfer-news-gil-girona/
+
 **Fulham agree permanent move for George from Chelsea**\
 `The package for the 19-year-old is worth £22million plus a sell-on clause.`\
 https://nytimes.com/athletic/6588041/2025/09/01/tyrique-george-chelsea-fulham-transfer/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6588999/2025/09/01/inside-barcelona-hansi-flick-fer
 **The most interesting 49er in 2025: We spent a practice trailing Ricky Pearsall**\
 `The Aug. 20 practice was eventful for Pearsall. He had a scary fall on his shoulder and some rare one-on-ones with Deommodore Lenoir.`\
 https://nytimes.com/athletic/6585045/2025/09/01/ricky-pearsall-49ers-training-camp-preseason/
-
-**Ottawa Senators training camp mailbag: Submit your questions for Julian McKenzie**\
-`Hockey season is almost here: it's getting close to training camp. Pose your end-of-summer questions here.`\
-https://nytimes.com/athletic/6583459/2025/09/01/senators-training-camp-preseason-mailbag/
 

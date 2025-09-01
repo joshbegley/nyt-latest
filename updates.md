@@ -1,3 +1,7 @@
+**Tottenham's Gil set for permanent Girona transfer**\
+`The 24-year-old spent the 2024-25 campaign on loan at the Catalan club, where he scored four goals across 32 appearances.`\
+https://nytimes.com/athletic/6589056/2025/09/01/tottenham-transfer-news-gil-girona/
+
 **Fulham agree permanent move for George from Chelsea**\
 `The package for the 19-year-old is worth £22million plus a sell-on clause.`\
 https://nytimes.com/athletic/6588041/2025/09/01/tyrique-george-chelsea-fulham-transfer/
