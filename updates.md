@@ -1,3 +1,11 @@
+**What Randal Kolo Muani brings to Tottenham: Dangerous pace, elusive movement, quick thinking**\
+`Despite a difficult spell at PSG, the 26-year-old's reputation as a talented, multi-faceted forward holds true`\
+https://nytimes.com/athletic/6589214/2025/09/01/randal-kolo-muani-tottenham/
+
+**Nestlé Dismisses Chief Executive Over Relationship With Subordinate**\
+`The world’s largest food company named Philipp Navratil, a longtime employee, to replace Laurent Freixe.`\
+https://nytimes.com/2025/09/01/business/nestle-laurent-freixe-inappropriate-relationship.html
+
 **Bay FC's Asisat Oshoala set for move to Al Hilal**\
 `The Nigeria international joined Bay FC last year ahead of its debut NWSL season after spending five years with Barcelona.`\
 https://nytimes.com/athletic/6590027/2025/09/01/asisat-oshoala-bay-fc-al-hilal/

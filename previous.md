@@ -1,3 +1,11 @@
+**What Randal Kolo Muani brings to Tottenham: Dangerous pace, elusive movement, quick thinking**\
+`Despite a difficult spell at PSG, the 26-year-old's reputation as a talented, multi-faceted forward holds true`\
+https://nytimes.com/athletic/6589214/2025/09/01/randal-kolo-muani-tottenham/
+
+**Nestlé Dismisses Chief Executive Over Relationship With Subordinate**\
+`The world’s largest food company named Philipp Navratil, a longtime employee, to replace Laurent Freixe.`\
+https://nytimes.com/2025/09/01/business/nestle-laurent-freixe-inappropriate-relationship.html
+
 **Bay FC's Asisat Oshoala set for move to Al Hilal**\
 `The Nigeria international joined Bay FC last year ahead of its debut NWSL season after spending five years with Barcelona.`\
 https://nytimes.com/athletic/6590027/2025/09/01/asisat-oshoala-bay-fc-al-hilal/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6590018/2025/09/01/juan-ayuso-uae-emirates-contract
 **Chelsea's Chilwell set for move to BlueCo-owned Strasbourg**\
 `The 28-year-old spent the second half of last season on loan at Crystal Palace.`\
 https://nytimes.com/athletic/6423769/2025/09/01/ben-chilwell-chelsea-transfer-strasbourg/
-
-**Sterling remains at Chelsea beyond transfer deadline**\
-`The 30-year-old's Chelsea contract still has two years to run.`\
-https://nytimes.com/athletic/6589876/2025/09/01/raheem-sterling-chelsea-transfer/
-
-**Leverkusen 'never a relationship based on mutual trust', says sacked Ten Hag**\
-`Ten Hag was sacked by Bayer Leverkusen after only three games, having only joined in the summer. `\
-https://nytimes.com/athletic/6589892/2025/09/01/erik-ten-hag-statement-bayer-leverkusen-sacked/
 
