@@ -1,3 +1,19 @@
+**The New York Times in Print for Monday, Sep. 1, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/09/01/todays-new-york-times
+
+**It’s Labor Day. And Trump Is the Most Anti-Union President in Decades.**\
+`Why the labor movement needs to act like its future is under grave threat.`\
+https://nytimes.com/2025/09/01/opinion/trump-unions-labor.html
+
+**‘The Paper,’ Plus 7 Things to Watch on TV this Week**\
+`A mockumentary series about a local newspaper, from the creators of “The Office,” and the MTV Video Music Awards air.`\
+https://nytimes.com/2025/09/01/arts/television/the-paper-plus-7-things-to-watch-on-tv-this-week.html
+
+**He Faced Down Trump. Now Comes His Biggest Challenge.**\
+`For President Luiz Inácio Lula da Silva of Brazil, the stakes ahead of next year’s election could not be higher.`\
+https://nytimes.com/2025/09/01/opinion/brazil-lula-trump-bolsonaro.html
+
 **Far-Right, Anti-Immigration Protests Worry Leaders in Australia**\
 `The government condemned the demonstrations, which drew tens of thousands of people. Some of the events included speakers tied to neo-Nazi groups.`\
 https://nytimes.com/2025/09/01/world/australia/australia-immigration-protests.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6587877/2025/09/01/unai-emery-aston-villa-martinez/
 **Welcome to the mad world of West Ham, where absolutely nothing makes sense anymore**\
 `Everything is the opposite of what you would expect at the London club, from the performances of certain players to their transfer outgoings`\
 https://nytimes.com/athletic/6587175/2025/09/01/west-ham-mad-world-nothing-makes-sense/
-
-**Arsenal needed a magic moment at Anfield, but it wasn't there - why?**\
-`This was not a vintage Liverpool, but Sunday's visitors could not muster enough superior moments to turn the screw`\
-https://nytimes.com/athletic/6587898/2025/09/01/arsenal-magic-moments-liverpool/
-
-**Liverpool agree Premier League record deal for Alexander Isak - This is why he is worth it**\
-`A British record deal has been agreed for Liverpool to sign Alexander Isak - this is why`\
-https://nytimes.com/athletic/6542141/2025/09/01/alexander-isak-liverpool-british-record-fee/
-
-**The Briefing - Does Arteta's awful Anfield record matter? Who left transfers too late? Does Jackson saga explain player strikes?**\
-`Analysing the key talking points from the Premier League weekend`\
-https://nytimes.com/athletic/6587888/2025/09/01/arteta-anfield-record/
-
-**Isak, Martinez, Guehi: Premier League transfers to watch out for on deadline day**\
-`What could get done on transfer deadline day? Follow our live coverage with breaking news and analysis.`\
-https://nytimes.com/athletic/6582596/2025/09/01/isak-martinez-guehi-premier-league-transfers-that-could-get-done-on-deadline-day/
 

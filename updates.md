@@ -1,3 +1,19 @@
+**The New York Times in Print for Monday, Sep. 1, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/09/01/todays-new-york-times
+
+**It’s Labor Day. And Trump Is the Most Anti-Union President in Decades.**\
+`Why the labor movement needs to act like its future is under grave threat.`\
+https://nytimes.com/2025/09/01/opinion/trump-unions-labor.html
+
+**‘The Paper,’ Plus 7 Things to Watch on TV this Week**\
+`A mockumentary series about a local newspaper, from the creators of “The Office,” and the MTV Video Music Awards air.`\
+https://nytimes.com/2025/09/01/arts/television/the-paper-plus-7-things-to-watch-on-tv-this-week.html
+
+**He Faced Down Trump. Now Comes His Biggest Challenge.**\
+`For President Luiz Inácio Lula da Silva of Brazil, the stakes ahead of next year’s election could not be higher.`\
+https://nytimes.com/2025/09/01/opinion/brazil-lula-trump-bolsonaro.html
+
 **Far-Right, Anti-Immigration Protests Worry Leaders in Australia**\
 `The government condemned the demonstrations, which drew tens of thousands of people. Some of the events included speakers tied to neo-Nazi groups.`\
 https://nytimes.com/2025/09/01/world/australia/australia-immigration-protests.html
