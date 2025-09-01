@@ -1,3 +1,7 @@
+**Bakwa set for Nottingham Forest medical as Cuiabano move nears**\
+`The deal for Bakwa, the 23-year-old winger, is expected to be worth in excess of £30million ($40m).`\
+https://nytimes.com/athletic/6589077/2025/09/01/dilane-bakwa-nottingham-forest-cuiabano/
+
 **A Look at Vintage Photography From Our Archives**\
 `We study photographers’ contact sheets from the last century.`\
 https://nytimes.com/2025/09/01/briefing/a-look-at-vintage-photography-from-our-archives.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6582565/2025/09/01/travis-hunter-jaguars-nfl-two-wa
 **This Week in Mets: September full of challenging rotation decisions**\
 `The Mets could have seven starters under consideration for postseason rotation spots, leaving the team with interesting options. `\
 https://nytimes.com/athletic/6588518/2025/09/01/this-week-in-mets-rotation-challenges/
-
-**Guardians takeaways: Kyle Manzardo's power, Naylor family dynamics, the '95 team and more**\
-`Manzardo sits at 23 homers and a .774 OPS in his first full season in the majors. The Guardians are 20-5 all-time when he homers.`\
-https://nytimes.com/athletic/6587264/2025/09/01/guardians-takeaways-kyle-manzardo-home-run/
 
