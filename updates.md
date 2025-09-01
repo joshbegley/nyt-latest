@@ -1,3 +1,7 @@
+**NFL odds for MVP and other top awards: A tight field led by Lamar Jackson heading into Week 1**\
+`Jackson leads the MVP odds by a tiny margin, with Joe Burrow, Josh Allen and Patrick Mahomes rounding out the top four. `\
+https://nytimes.com/athletic/6573085/2025/09/01/nfl-mvp-odds-week-1-lamar-jackson-joe-burrow-josh-allen/
+
 **How Cowboys are moving forward after surprising Micah Parsons trade**\
 `Parsons leaving means even more opportunities for what appeared to be a quality edge rusher group during Cowboys training camp.`\
 https://nytimes.com/athletic/6588648/2025/09/01/cowboys-edge-rushers-micah-parsons/
