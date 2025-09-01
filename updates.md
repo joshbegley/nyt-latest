@@ -1,3 +1,19 @@
+**The most interesting 49er in 2025: We spent a practice trailing Ricky Pearsall**\
+`The Aug. 20 practice was eventful for Pearsall. He had a scary fall on his shoulder and some rare one-on-ones with Deommodore Lenoir.`\
+https://nytimes.com/athletic/6585045/2025/09/01/ricky-pearsall-49ers-training-camp-preseason/
+
+**Ottawa Senators training camp mailbag: Submit your questions for Julian McKenzie**\
+`Hockey season is almost here: it's getting close to training camp. Pose your end-of-summer questions here.`\
+https://nytimes.com/athletic/6583459/2025/09/01/senators-training-camp-preseason-mailbag/
+
+**How Liverpool defeated Arsenal by eventually showing more ambition in attack**\
+`This game was a typically cautious affair between two title contenders, but Arne Slot's side were rewarded for some second-half positivity`\
+https://nytimes.com/athletic/6588867/2025/09/01/liverpool-arsenal-analysis-ambition-tactics/
+
+**Who will manage the Angels in 2026? Here are five potential options**\
+`Ron Washington is among several intriguing candidates who could guide the club in 2026.`\
+https://nytimes.com/athletic/6588426/2025/09/01/angels-manager-2026-five-potential-options/
+
 **Brentford to complete loan deal for Arsenal winger Nelson**\
 `The 25-year-old spent last season on loan at Fulham.`\
 https://nytimes.com/athletic/6517981/2025/09/01/reiss-nelson-brentford-arsenal-loan/
