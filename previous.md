@@ -1,3 +1,15 @@
+**The U.S. Open is the strangest Grand Slam. Can Jannik Sinner tame it?**\
+`No man has defended the U.S. Open title in 17 years. Sinner, who has been unruffled on court the past year, is next in line.`\
+https://nytimes.com/athletic/6587938/2025/09/01/us-open-tennis-grand-slam-winners-jannik-sinner/
+
+**Israel’s New Negotiating Stance Is Likely to Prolong Gaza War, Experts Say**\
+`A shift toward pressing for a permanent cease-fire deal, alongside plans for a new offensive in Gaza City, means the fighting is unlikely to end soon.`\
+https://nytimes.com/2025/09/01/world/middleeast/israel-gaza-cease-fire-negotiations.html
+
+**The New York Times International Edition in Print for Tuesday, Sep. 2, 2025**\
+``\
+https://nytimes.com/issue/todaysinyt/2025/09/01/todays-new-york-times-international-edition
+
 **Naomi Osaka and Coco Gauff's next U.S. Open meeting, six long years in the making**\
 `The two Grand Slam champions had a moment together at this tournament when they were very different people. Now they have a match to play.`\
 https://nytimes.com/athletic/6588424/2025/09/01/us-open-osaka-gauff-match-history/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6588868/2025/09/01/jadon-sancho-aston-villa-manches
 **Falcons mailbag: What's up at right tackle? Why so few D-linemen? Does Penix need more reps?**\
 `The Atlanta Falcons have brought in three new right tackles in the last week. Do any of them have a chance to start?`\
 https://nytimes.com/athletic/6586289/2025/09/01/atlanta-falcons-right-tackle-defensive-linemen-michael-penix/
-
-**Smiles and Clasped Hands as Xi, Putin and Modi Try to Signal Unity**\
-`Their display of friendship in China was aimed at projecting an alternative to U.S. global leadership, even as serious differences among them remain.`\
-https://nytimes.com/2025/09/01/world/asia/china-xi-putin-modi.html
-
-**The Un-Checked, Un-Balanced Reign of King Donald**\
-`Is our vaunted system really safe from the shameless likes of Trump?`\
-https://nytimes.com/2025/09/01/opinion/trump-checks-balances.html
-
-**He Burned a Flag and Won an American Right. He Worries It’s at Risk.**\
-`The Supreme Court ruled in 1989 that burning an American flag is speech protected by the First Amendment. President Trump says it should be punished.`\
-https://nytimes.com/2025/09/01/us/politics/flag-burning-trump-johnson-supreme-court.html
 
