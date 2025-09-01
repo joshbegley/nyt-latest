@@ -1,3 +1,7 @@
+**China Shows Off Its Power**\
+`Xi Jinping is using a summit with leaders like Narendra Modi and Vladimir Putin as an opportunity to pull countries away from the U.S.`\
+https://nytimes.com/2025/09/01/briefing/xi-modi-putin-summit-gaza.html
+
 **Nuno's bad timing as Forest put in their worst performance of his tenure ahead of Marinakis meeting**\
 `A 3-0 home defeat to West Ham will hang in the air when head coach and owner hold post-fallout talks this week`\
 https://nytimes.com/athletic/6587807/2025/09/01/forest-marinakis-nuno-meeting-bad-timing/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6582596/2025/09/01/isak-martinez-guehi-premier-leag
 **How has Trent Alexander-Arnold started at Real Madrid? And why has he lost his England place?**\
 `The former Liverpool right-back is still adjusting to life in La Liga after June's transfer and will need more time to show his best form`\
 https://nytimes.com/athletic/6587272/2025/09/01/trent-alexander-arnold-real-madrid-form/
-
-**'Enough is enough' - Watching Russell Martin's Rangers and a truly wretched Old Firm derby**\
-`Maybe Martin will be saved for the time being by the poverty of Celtic - but Rangers supporters made their views clear`\
-https://nytimes.com/athletic/6585392/2025/09/01/rangers-russell-martin/
 
