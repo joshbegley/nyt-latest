@@ -1,3 +1,15 @@
+**Juventus advancing in talks to sign Walti from Arsenal**\
+`The 32-year-old has one year left on her existing deal in north London, meaning a fee will need to be negotiated for her services.`\
+https://nytimes.com/athletic/6589093/2025/09/01/lia-walti-juventus-arsenal/
+
+**Watching West Ham's win over Nottingham Forest in the away end**\
+`Roshane Thomas swapped the press box in favour of the away end in an attempt to better understand how matchgoing fans feel about their side`\
+https://nytimes.com/athletic/6580763/2025/09/01/west-ham-forest-win-away-end/
+
+**USMNT Player Tracker: Balogun's timely goal, Pulisic kick-starts Milan and Poch's Big Noon cameo**\
+`Our round up of the weekend action also includes Malik Tillman's first Bayer Leverkusen goal and another fine Tyler Adams performance`\
+https://nytimes.com/athletic/6588932/2025/09/01/usmnt-pulisic-balogun-pochettino-tracker/
+
 **Bakwa set for Nottingham Forest medical as Cuiabano move nears**\
 `The deal for Bakwa, the 23-year-old winger, is expected to be worth in excess of £30million ($40m).`\
 https://nytimes.com/athletic/6589077/2025/09/01/dilane-bakwa-nottingham-forest-cuiabano/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6584202/2025/09/01/red-sox-roman-anthony-vs-left-ha
 **Braves takeaways: Hurston Waldrep, Drake Baldwin show again they're special**\
 `Two moments from the Braves’ 3-1 comeback win against the Phillies proved Waldrep and Baldwin are not typical.`\
 https://nytimes.com/athletic/6588583/2025/09/01/braves-takeaways-hurston-waldrep-drake-baldwin-special-rookies/
-
-**Byron Buxton chasing Twins' first 30-30 season, including the steal a decade in the making**\
-`"There aren't too many things he's still doing for the first time," Twins manager Rocco Baldelli said. "I mean, it's Byron Buxton."`\
-https://nytimes.com/athletic/6585523/2025/09/01/byron-buxton-first-twins-30-30-season/
-
-**Jaguars' Travis Hunter Experience is equal parts X's and O's, ongoing science experiment**\
-`The Jaguars are keeping a close watch on Hunter's workload. "In some ways, we have to protect him from himself," coach Liam Coen said.`\
-https://nytimes.com/athletic/6582565/2025/09/01/travis-hunter-jaguars-nfl-two-way-player/
-
-**This Week in Mets: September full of challenging rotation decisions**\
-`The Mets could have seven starters under consideration for postseason rotation spots, leaving the team with interesting options. `\
-https://nytimes.com/athletic/6588518/2025/09/01/this-week-in-mets-rotation-challenges/
 
