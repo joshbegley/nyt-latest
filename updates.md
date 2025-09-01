@@ -1,3 +1,11 @@
+**FIFA warned of setting 'dangerous precent' by allowing staging of league matches abroad**\
+`La Liga and Serie A are attempting to export regular-season matches abroad this season to Miami and Perth respectively.`\
+https://nytimes.com/athletic/6589302/2025/09/01/la-liga-match-abroad-serie-a/
+
+**Liverpool agree Guehi deal with Crystal Palace**\
+`A package of £35million has been agreed and the defender is set to undergo a medical ahead of the proposed move.`\
+https://nytimes.com/athletic/6586045/2025/09/01/marc-guehi-liverpool-transfer-palace/
+
 **The Pulse: Yes, we're doing Week 1 overreactions**\
 `Welcome to The Pulse, The Athletic's daily newsletter.`\
 https://nytimes.com/athletic/6588439/2025/09/01/week-1-cfb-gauff-osaka-the-pulse/
