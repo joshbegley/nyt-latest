@@ -1,3 +1,7 @@
+**N.Y.C. Man Is at Least Fourth Person to Die in Custody in Just Over a Week**\
+`A Turkish-born pedicab driver who was arrested on Friday night was found unconscious and unresponsive in a police station house cell. He later died at Bellevue Hospital.`\
+https://nytimes.com/2025/09/01/nyregion/nyc-jail-deaths.html
+
 **2 Are Found Dead in a Creek After Flooding in San Antonio**\
 `The bodies of a man and a woman were found on Monday, the authorities said. The discovery came after heavy thunderstorms struck the area on Sunday evening.`\
 https://nytimes.com/2025/09/01/us/san-antonio-flood-deaths.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6590584/2025/09/01/emiliano-martinez-manchester-uni
 **Scoop City: Offseason questions remaining after Parsons move**\
 `Five lingering questions as kickoff nears, intel from training camps, and quick 2025 predictions. `\
 https://nytimes.com/athletic/6590215/2025/09/01/offseason-questions-nfl-2025-scoop-city/
-
-**With Jauan Jennings practicing, 49ers' WR prospects don't seem so bleak**\
-`Jennings, who hasn't practiced for more than a month, was back on the field. If he remains healthy, he and Ricky Pearsall will start Sunday.`\
-https://nytimes.com/athletic/6590169/2025/09/01/49ers-jauan-jennings-returns-seahawks/
 
