@@ -1,3 +1,7 @@
+**Sunderland agree deal for RB Leipzig defender Geertruida**\
+`Sunderland have reached an agreement in principle with RB Leipzig for the signing of Dutch defender Lutsharel Geertruida`\
+https://nytimes.com/athletic/6588662/2025/09/01/sunderland-transfers-lutsharel-geertruida/
+
 **Man City ready to sanction Ederson exit – if they sign Donnarumma as replacement**\
 `Brazil international Ederson is a target for Fenerbahce over the closing hours of the summer window.`\
 https://nytimes.com/athletic/6526901/2025/09/01/man-city-donnarumma-ederson-transfer/
@@ -35,8 +39,4 @@ https://nytimes.com/2025/09/01/arts/television/the-paper-plus-7-things-to-watch-
 **He Faced Down Trump. Now Comes His Biggest Challenge.**\
 `For President Luiz Inácio Lula da Silva of Brazil, the stakes ahead of next year’s election could not be higher.`\
 https://nytimes.com/2025/09/01/opinion/brazil-lula-trump-bolsonaro.html
-
-**Far-Right, Anti-Immigration Protests Worry Leaders in Australia**\
-`The government condemned the demonstrations, which drew tens of thousands of people. Some of the events included speakers tied to neo-Nazi groups.`\
-https://nytimes.com/2025/09/01/world/australia/australia-immigration-protests.html
 

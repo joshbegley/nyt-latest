@@ -1,3 +1,7 @@
+**Trump Is Wiping Out Unions. Why Are They So Quiet?**\
+`Why the labor movement needs to act like its future is under grave threat.`\
+https://nytimes.com/2025/09/01/opinion/trump-unions-labor.html
+
 **Man City ready to sanction Ederson exit – if they sign Donnarumma as replacement**\
 `Brazil international Ederson is a target for Fenerbahce over the closing hours of the summer window.`\
 https://nytimes.com/athletic/6526901/2025/09/01/man-city-donnarumma-ederson-transfer/
