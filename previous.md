@@ -2,7 +2,7 @@
 `The Bulgarian authorities believe that Russia disrupted navigation signals that would have been used by a plane carrying Ursula von der Leyen, European officials said.`\
 https://nytimes.com/2025/09/01/world/europe/von-der-leyen-gps-jamming-russia-ukraine.html
 
-**FIFA warned of setting 'dangerous precent' by allowing staging of league matches abroad**\
+**FIFA warned of setting 'dangerous precedent' by allowing staging of league matches abroad**\
 `La Liga and Serie A are attempting to export regular-season matches abroad this season to Miami and Perth respectively.`\
 https://nytimes.com/athletic/6589302/2025/09/01/la-liga-match-abroad-serie-a/
 
