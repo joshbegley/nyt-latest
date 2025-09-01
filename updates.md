@@ -1,3 +1,7 @@
+**Joe Bugner, 75, British Boxing Champ Who Slugged It Out With Ali, Dies**\
+`A European titleholder as well, he twice went the distance with Ali and another time with Joe Frazier, losing the bouts but gaining their respect.`\
+https://nytimes.com/2025/09/01/sports/joe-bugner-dead.html
+
 **With Jauan Jennings practicing, 49ers' WR prospects don't seem so bleak**\
 `Jennings, who hasn't practiced for more than a month, was back on the field. If he remains healthy, he and Ricky Pearsall will start Sunday.`\
 https://nytimes.com/athletic/6590169/2025/09/01/49ers-jauan-jennings-returns-seahawks/

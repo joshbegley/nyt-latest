@@ -1,3 +1,7 @@
+**Joe Bugner, 75, British Boxing Champ Who Slugged It Out With Ali, Dies**\
+`A European titleholder as well, he twice went the distance with Ali and another time with Joe Frazier, losing the bouts but gaining their respect.`\
+https://nytimes.com/2025/09/01/sports/joe-bugner-dead.html
+
 **Martinez misses out on Man Utd move as deadline day offer never arrives**\
 `Martinez spent transfer deadline day at Aston Villa’s training ground waiting for a call that never came.`\
 https://nytimes.com/athletic/6590584/2025/09/01/emiliano-martinez-manchester-united-aston-villa-transfer/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/01/us/trump-labor-day-protests.html
 **An Earthquake Killed Hundreds in Afghanistan**\
 `Rescue workers struggled to reach isolated areas in eastern Afghanistan after a magnitude 6.0 quake.`\
 https://nytimes.com/2025/09/01/briefing/afghanistan-earthquake-bolsonaro-trial-bad-bunny.html
-
-**West Ham complete loan deal for Brighton defender Igor Julio**\
-`Crystal Palace had also been in the race to sign the 27-year-old this summer.`\
-https://nytimes.com/athletic/6589055/2025/09/01/igor-julio-west-ham-loan-deal-brighton/
 
