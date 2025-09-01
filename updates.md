@@ -1,3 +1,11 @@
+**Doctors in South Korea Return to Work After 18-Month Walkout**\
+`Thousands of residents and interns were protesting a government proposal that would have dramatically increased the number of medical students in the country.`\
+https://nytimes.com/2025/09/01/world/asia/south-korea-doctors-strike.html
+
+**Sunderland agree deal for RB Leipzig defender Geertruida**\
+`The Netherlands international is in Sunderland on Monday ahead of undergoing his medical at the club.`\
+https://nytimes.com/athletic/6588662/2025/09/01/sunderland-transfers-lutsharel-geertruida/
+
 **Trump Is Wiping Out Unions. Why Are They So Quiet?**\
 `Why the labor movement needs to act like its future is under grave threat.`\
 https://nytimes.com/2025/09/01/opinion/trump-unions-labor.html
