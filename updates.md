@@ -1,3 +1,7 @@
+**A Look at Vintage Photography From Our Archives**\
+`We study photographers’ contact sheets from the last century.`\
+https://nytimes.com/2025/09/01/briefing/a-look-at-vintage-photography-from-our-archives.html
+
 **Quarterback overreactions: Whose stock is up after Week 1? Who struggled?**\
 `Arnold's debut at Auburn was promising. Manning's first road start at Texas was not. `\
 https://nytimes.com/athletic/6588481/2025/09/01/quarterback-overreaction-arch-manning-jackson-arnold/
