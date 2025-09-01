@@ -1,3 +1,7 @@
+**Real Betis agree €25m Antony deal with Manchester United**\
+`Real Betis and Manchester United have agreed a €25m package for the transfer of Brazilian winger Antony.`\
+https://nytimes.com/athletic/6587455/2025/09/01/real-betis-agree-e25m-antony-deal-with-manchester-united/
+
 **Submit a question for Stewart Mandel's College Football Mailbag**\
 `<p>Week 1 is almost in the books. Surely you have questions.</p>
 <p>Leave &#8217;em here. Please include your city.</p>

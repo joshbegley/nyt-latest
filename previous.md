@@ -1,3 +1,7 @@
+**Real Betis agree €25m Antony deal with Manchester United**\
+`Real Betis and Manchester United have agreed a €25m package for the transfer of Brazilian winger Antony.`\
+https://nytimes.com/athletic/6587455/2025/09/01/real-betis-agree-e25m-antony-deal-with-manchester-united/
+
 **Submit a question for Stewart Mandel's College Football Mailbag**\
 `<p>Week 1 is almost in the books. Surely you have questions.</p>
 <p>Leave &#8217;em here. Please include your city.</p>
@@ -35,8 +39,4 @@ https://nytimes.com/athletic/6587807/2025/09/01/forest-marinakis-nuno-meeting-ba
 **Brajan Gruda coolly scored the winner against Man City. Is he Brighton's next superstar?**\
 `Have the south-coast club found another gem in the 21-year-old German forward?`\
 https://nytimes.com/athletic/6587332/2025/09/01/is-brajan-gruda-the-next-brighton-superstar/
-
-**'Marco Bizot. Marco Bizot. Marco Bizot' A surreal Emery interview and a sense of forlornness at Villa Park**\
-`A day that started with issues over Emi Martinez ended with a chastening defeat as Villa still await their first goal of the season.`\
-https://nytimes.com/athletic/6587877/2025/09/01/unai-emery-aston-villa-martinez/
 
