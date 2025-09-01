@@ -1,3 +1,19 @@
+**Labor Day Protests Denounce Trump While Supporting Workers**\
+`The demonstrations were part of the continuing effort by Trump opponents to try to pressure his administration, even if many events were modest in size.`\
+https://nytimes.com/2025/09/01/us/trump-labor-day-protests.html
+
+**An Earthquake Killed Hundreds in Afghanistan**\
+`Rescue workers struggled to reach isolated areas in eastern Afghanistan after a magnitude 6.0 quake.`\
+https://nytimes.com/2025/09/01/briefing/afghanistan-earthquake-bolsonaro-trial-bad-bunny.html
+
+**West Ham complete loan deal for Brighton defender Igor Julio**\
+`Crystal Palace had also been in the race to sign the 27-year-old this summer.`\
+https://nytimes.com/athletic/6589055/2025/09/01/igor-julio-west-ham-loan-deal-brighton/
+
+**Fulham's bid for Chelsea winger George falls through**\
+`Fulham had agreed a package worth £22million plus a sell-on clause on Monday.`\
+https://nytimes.com/athletic/6590496/2025/09/01/tyrique-george-fulham-winger-chelsea-deal/
+
 **Putin Finds a Growing Embrace on the Global Stage**\
 `Eurasian leaders eagerly met the Russian leader at a summit this week, as President Trump has helped ease his isolation over the war in Ukraine.`\
 https://nytimes.com/2025/09/01/world/europe/russia-ukraine-putin-diplomacy.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6589353/2025/09/01/newcastle-united-alexander-isak-
 **In Brooklyn, West Indian Parade Celebrates Heritage and Carnival**\
 `Revelers crowded Eastern Parkway for the 58th annual West Indian American Day Parade, known for its elaborate floats and costumes.`\
 https://nytimes.com/2025/09/01/nyregion/west-indian-day-parade-labor-day-photos.html
-
-**Sunderland complete signing of Ajax striker Brobbey**\
-`The 23-year-old is Sunderland's 14th signing this summer, taking their spending to almost £160m.`\
-https://nytimes.com/athletic/6590430/2025/09/01/brian-brobbey-sunderland-transfer/
-
-**N.Y.C. Mayoral Rivals Make a Pivotal Stop at West Indian Day Parade**\
-`The parade on Labor Day marks the beginning of a two-month sprint to Election Day, as Assemblyman Zohran Mamdani’s rivals try to narrow his lead.`\
-https://nytimes.com/2025/09/01/nyregion/parade-mayor-race-mamdani.html
-
-**Giuliani Released From Hospital After Car Crash**\
-`Rudolph W. Giuliani was injured Saturday night when the vehicle he was riding in was rear-ended on a New Hampshire highway.`\
-https://nytimes.com/2025/09/01/nyregion/rudy-giuliani-car-accident-crash.html
-
-**Everton complete loan move for Rohl from Freiburg**\
-`Everton have been looking to improve their midfield options before the close of the window.`\
-https://nytimes.com/athletic/6588740/2025/09/01/everton-transfers-merlin-rohl/
 

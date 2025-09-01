@@ -1,3 +1,7 @@
+**Putin Finds a Growing Embrace on the Global Stage**\
+`Eurasian leaders eagerly met the Russian leader at a summit this week, as President Trump has helped ease his isolation over the war in Ukraine.`\
+https://nytimes.com/2025/09/01/world/europe/russia-ukraine-putin-diplomacy.html
+
 **Gene Espy, Pioneering Hiker of the Appalachian Trail, Dies at 98**\
 `In 1951, he became the second person known to have walked the trail in a single trek — a “thru-hike” — covering some 2,000 miles from Georgia to Maine in 123 days.`\
 https://nytimes.com/2025/09/01/us/gene-espy-dead.html
@@ -23,7 +27,7 @@ https://nytimes.com/2025/09/01/nyregion/west-indian-day-parade-labor-day-photos.
 https://nytimes.com/athletic/6590430/2025/09/01/brian-brobbey-sunderland-transfer/
 
 **N.Y.C. Mayoral Rivals Make a Pivotal Stop at West Indian Day Parade**\
-`The parade on Labor Day marks the beginning of a two-month sprint to Election Day, as Assemblyman Zohran Mamdani’s rivals try to peck away at his lead.`\
+`The parade on Labor Day marks the beginning of a two-month sprint to Election Day, as Assemblyman Zohran Mamdani’s rivals try to narrow his lead.`\
 https://nytimes.com/2025/09/01/nyregion/parade-mayor-race-mamdani.html
 
 **Giuliani Released From Hospital After Car Crash**\
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/01/nyregion/rudy-giuliani-car-accident-crash.html
 **Everton complete loan move for Rohl from Freiburg**\
 `Everton have been looking to improve their midfield options before the close of the window.`\
 https://nytimes.com/athletic/6588740/2025/09/01/everton-transfers-merlin-rohl/
-
-**Leeds' deadline day move for Fulham's Wilson collapses**\
-`Head coach Farke had reiterated his desire for new faces in attack on Saturday.`\
-https://nytimes.com/athletic/6590247/2025/09/01/harry-wilson-leeds-transfer-fulham/
 

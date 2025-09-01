@@ -1,3 +1,11 @@
+**Putin Finds a Growing Embrace on the Global Stage**\
+`Eurasian leaders eagerly met the Russian leader at a summit this week, as President Trump has helped ease his isolation over the war in Ukraine.`\
+https://nytimes.com/2025/09/01/world/europe/russia-ukraine-putin-diplomacy.html
+
+**N.Y.C. Mayoral Rivals Make a Pivotal Stop at West Indian Day Parade**\
+`The parade on Labor Day marks the beginning of a two-month sprint to Election Day, as Assemblyman Zohran Mamdani’s rivals try to narrow his lead.`\
+https://nytimes.com/2025/09/01/nyregion/parade-mayor-race-mamdani.html
+
 **Packers on Micah Parsons trade: 'Nightmares for the offensive side of the ball'**\
 `It's safe to say Micah Parsons' new Packers teammates are happy that he's in their locker room.`\
 https://nytimes.com/athletic/6590244/2025/09/01/packers-players-micah-parsons-trade/
