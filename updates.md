@@ -1,3 +1,7 @@
+**Atalanta complete signing of USMNT's Musah from Milan**\
+`Musah joins Atalanta in their first season under head coach Ivan Juric, after Gian Piero Gasperini departed for Roma in the summer. `\
+https://nytimes.com/athletic/6546228/2025/09/01/yunus-musah-atalanta-milan/
+
 **What Was the Theme of Your Summer?**\
 `If you had to sum up your summer vacation in a word or two, what would it be?`\
 https://nytimes.com/2025/09/01/learning/what-was-the-theme-of-your-summer.html
