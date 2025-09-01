@@ -1,3 +1,7 @@
+**Florida State LB Ethan Pritchard hospitalized after suffering gunshot wound**\
+`Pritchard was wounded inside a vehicle after a shooting occurred just before 10 p.m. inside an apartment complex.`\
+https://nytimes.com/athletic/6589348/2025/09/01/florida-state-ethan-pritchard-shooting-condition-critical-stable/
+
 **Jaylen Warren, Steelers agree to two-year contract extension**\
 `Warren is entering his fourth NFL season.`\
 https://nytimes.com/athletic/6589553/2025/09/01/jaylen-warren-steelers-contract-extension/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6586045/2025/09/01/marc-guehi-liverpool-transfer-pa
 **The Pulse: Yes, we're doing Week 1 overreactions**\
 `Welcome to The Pulse, The Athletic's daily newsletter.`\
 https://nytimes.com/athletic/6588439/2025/09/01/week-1-cfb-gauff-osaka-the-pulse/
-
-**Europe's Ryder Cup strategy is familiar, with 11 of 12 back from 2023 team**\
-`Jon Rahm and Shane Lowry lead the final six picks for repeat captain Luke Donald's team.`\
-https://nytimes.com/athletic/6589261/2025/09/01/ryder-cup-2025-luke-donald-european-team-picks/
 

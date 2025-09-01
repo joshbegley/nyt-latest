@@ -1,3 +1,7 @@
+**Jaylen Warren, Steelers agree to two-year contract extension**\
+`Warren is entering his fourth NFL season.`\
+https://nytimes.com/athletic/6589553/2025/09/01/jaylen-warren-steelers-contract-extension/
+
 **Leicester loan El Khannouss to Stuttgart, sign Carranza from Feyenoord**\
 `El Khannouss had been considered by a number of Premier League sides following Leicester’s relegation last season.`\
 https://nytimes.com/athletic/6557012/2025/09/01/bilal-al-khannouss-transfer/
