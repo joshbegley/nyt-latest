@@ -1,3 +1,5 @@
+
+
 **Man City's Gundogan in talks to join Galatasaray**\
 `Gundogan re-joined City in August 2024 on a free transfer after leaving Barcelona with two years remaining on his contract.`\
 https://nytimes.com/athletic/6427484/2025/09/01/man-city-ilkay-gundogan-transer-news-galatasaray/
