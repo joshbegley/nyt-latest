@@ -1,3 +1,11 @@
+**Arsenal's Lokonga, Vieira close to Hamburg moves**\
+`Lokonga is set to join the Bundesliga side permanently while Vieira is finalising a loan move.`\
+https://nytimes.com/athletic/6522213/2025/09/01/arsenal-news-lokonga-vieira-hamburg/
+
+**What to Know About the Earthquake in Afghanistan**\
+`Hundreds of people were killed, according to the Taliban government, and the death toll was expected to rise.`\
+https://nytimes.com/2025/09/01/world/asia/earthquake-afghanistan-what-to-know.html
+
 **Tennis outfits make the U.S. Open a fashion spectacle. For players, it's also a business**\
 `Tennis and fashion are more intertwined than ever before, with players' outfits offering a crucial on-ramp for casual fans.`\
 https://nytimes.com/athletic/6584991/2025/09/01/tennis-best-outfits-us-open-fashion-deals-sponsorships/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/09/01/opinion/cdc-leaders-kennedy.html
 **Why Are Everyone’s Bra Straps Showing These Days?**\
 `Visible undergarments are making a comeback. Our critic explains where the trend originated and what it might mean.`\
 https://nytimes.com/2025/09/01/fashion/bra-straps-showing.html
-
-**Is ‘The Wizard of Oz’ at Sphere the Future of Cinema? Or the End of It?**\
-`Our critic went to Las Vegas to see the immersive presentation of the classic 1939 film. What she saw defied easy categorization.`\
-https://nytimes.com/2025/09/01/movies/wizard-of-oz-sphere-review.html
-
-**6 Dude Ranches Where You Can Saddle Up and Unplug**\
-`All-inclusive guest ranches let you connect with nature, as well as your inner cowpoke, on the trail, around the campfire and under the starry skies.`\
-https://nytimes.com/2025/09/01/travel/dude-ranches.html
 
