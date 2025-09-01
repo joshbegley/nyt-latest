@@ -1,40 +1,40 @@
-**Man United agree deal to sign goalkeeper Lammens from Antwerp**\
-`A fee of €21million (£18.2m) plus add ons has been agreed between the two clubs with no sell-on clause included.`\
-https://nytimes.com/athletic/6510517/2025/09/01/senne-lammens-manchester-united-transfer/
+**Quarterback overreactions: Whose stock is up after Week 1? Who struggled?**\
+`Arnold's debut at Auburn was promising. Manning's first road start at Texas was not. `\
+https://nytimes.com/athletic/6588481/2025/09/01/quarterback-overreaction-arch-manning-jackson-arnold/
 
-**TAFC: Isak set for £130m Liverpool switch. Plus: Ten Hag sacked by Leverkusen**\
-`Today in TAFC: Isak on the way to Liverpool for £130m, Ten Hag sacked by Bayer Leverkusen after just two games.`\
-https://nytimes.com/athletic/6588844/2025/09/01/isak-liverpool-transfer-ten-hag-sacked-leverkusen/
+**FPL: What we learnt from FPL Gameweek 3 - Time to buy Isak? And what to do with Watkins**\
+`With a pause in club football and the transfer window shutting today, this is an opportune time to reflect, reassess and plan wisely in FPL`\
+https://nytimes.com/athletic/6588185/2025/09/01/fantasy-premier-league-gw3-isak-joao-pedro-watkins/
 
-**NFL odds for MVP and other top awards: A tight field led by Lamar Jackson heading into Week 1**\
-`Jackson leads the MVP odds by a tiny margin, with Joe Burrow, Josh Allen and Patrick Mahomes rounding out the top four. `\
-https://nytimes.com/athletic/6573085/2025/09/01/nfl-mvp-odds-week-1-lamar-jackson-joe-burrow-josh-allen/
+**Message board Monday: Arch and Kalen and Nico, oh my**\
+`Texas fans were not pleased with the Longhorns on Saturday: "Was Sark this unprepared or was Arch this bad?"`\
+https://nytimes.com/athletic/6587959/2025/09/01/arch-manning-kalen-deboer-nico-iamaleava/
 
-**How Cowboys are moving forward after surprising Micah Parsons trade**\
-`Parsons leaving means even more opportunities for what appeared to be a quality edge rusher group during Cowboys training camp.`\
-https://nytimes.com/athletic/6588648/2025/09/01/cowboys-edge-rushers-micah-parsons/
+**By letting Roman Anthony face lefties, Red Sox have helped rookie to blossom**\
+`Improving against left-handed pitching has been one of Anthony’s priorities for years.`\
+https://nytimes.com/athletic/6584202/2025/09/01/red-sox-roman-anthony-vs-left-handers/
 
-**Rookie Tyler Loop is trusting his process as he enters first season as Ravens' kicker**\
-`Loop, the only kicker drafted by the Ravens in franchise history, gets his first chance to prove the team right when it faces Buffalo. `\
-https://nytimes.com/athletic/6586795/2025/09/01/ravens-rookie-kicker-tyler-loop/
+**Braves takeaways: Hurston Waldrep, Drake Baldwin show again they're special**\
+`Two moments from the Braves’ 3-1 comeback win against the Phillies proved Waldrep and Baldwin are not typical.`\
+https://nytimes.com/athletic/6588583/2025/09/01/braves-takeaways-hurston-waldrep-drake-baldwin-special-rookies/
 
-**Palace in advanced talks to sign Getafe's Uche**\
-`Uche joined Getafe in the summer of 2024 and scored four goals and provided seven assists in 38 games last season.`\
-https://nytimes.com/athletic/6578741/2025/09/01/christantus-uche-getafe/
+**Byron Buxton chasing Twins' first 30-30 season, including the steal a decade in the making**\
+`"There aren't too many things he's still doing for the first time," Twins manager Rocco Baldelli said. "I mean, it's Byron Buxton."`\
+https://nytimes.com/athletic/6585523/2025/09/01/byron-buxton-first-twins-30-30-season/
 
-**Derrick Brown is back — a good thing for the Panthers defense: 'I'm ready to get to it'**\
-`After missing nearly all of last season, Derrick Brown saw Carolina's defense struggle in a big way. He plans to "rise to the occasion."`\
-https://nytimes.com/athletic/6584946/2025/09/01/carolina-panthers-derrick-brown-injury-defense/
+**Jaguars' Travis Hunter Experience is equal parts X's and O's, ongoing science experiment**\
+`The Jaguars are keeping a close watch on Hunter's workload. "In some ways, we have to protect him from himself," coach Liam Coen said.`\
+https://nytimes.com/athletic/6582565/2025/09/01/travis-hunter-jaguars-nfl-two-way-player/
 
-**NFL Future Hits List: 32 under-the-radar names every true fan should know**\
-`They aren't starting QBs, top-10 draft picks or fantasy football darlings, but knowing their names will keep you ahead of the crowd.`\
-https://nytimes.com/athletic/6578989/2025/09/01/nfl-under-the-radar-rookies-future-stars/
+**This Week in Mets: September full of challenging rotation decisions**\
+`The Mets could have seven starters under consideration for postseason rotation spots, leaving the team with interesting options. `\
+https://nytimes.com/athletic/6588518/2025/09/01/this-week-in-mets-rotation-challenges/
 
-**Which MLB contenders have the toughest road to the playoffs? Breaking down the schedules pt. 2**\
-`Let's break down each contender’s upcoming schedule, focusing this time on the first two weeks of September.`\
-https://nytimes.com/athletic/6587549/2025/09/01/mlb-contenders-postseason-strength-schedule/
+**Guardians takeaways: Kyle Manzardo's power, Naylor family dynamics, the '95 team and more**\
+`Manzardo sits at 23 homers and a .774 OPS in his first full season in the majors. The Guardians are 20-5 all-time when he homers.`\
+https://nytimes.com/athletic/6587264/2025/09/01/guardians-takeaways-kyle-manzardo-home-run/
 
-**NFL decision-makers' predictions for 2025: Joe Burrow goes nuclear, Lions stumble and more**\
-`In our anonymous survey, GMs, team executives, head coaches and assistants made their picks for the upcoming NFL season. `\
-https://nytimes.com/athletic/6584048/2025/09/01/nfl-predictions-2025-awards-poll-joe-burrow/
+**SEC vibes rankings: Oh, Alabama, that escalated quickly**\
+`This is a ranking that takes into account the vital data point that Big Data refuses to consider: feelings.`\
+https://nytimes.com/athletic/6587545/2025/09/01/sec-football-rankings-week-2-alabama-lsu/
 
