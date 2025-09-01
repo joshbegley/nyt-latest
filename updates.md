@@ -1,3 +1,9 @@
+**Submit a question for Stewart Mandel's College Football Mailbag**\
+`<p>Week 1 is almost in the books. Surely you have questions.</p>
+<p>Leave &#8217;em here. Please include your city.</p>
+`\
+https://nytimes.com/athletic/6588649/2025/09/01/submit-a-question-for-stewart-mandels-college-football-mailbag-313/
+
 **The New York Times in Print for Monday, Sep. 1, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/09/01/todays-new-york-times
