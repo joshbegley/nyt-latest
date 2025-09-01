@@ -1,3 +1,11 @@
+**How Cowboys are moving forward after surprising Micah Parsons trade**\
+`Parsons leaving means even more opportunities for what appeared to be a quality edge rusher group during Cowboys training camp.`\
+https://nytimes.com/athletic/6588648/2025/09/01/cowboys-edge-rushers-micah-parsons/
+
+**Rookie Tyler Loop is trusting his process as he enters first season as Ravens' kicker**\
+`Loop, the only kicker drafted by the Ravens in franchise history, gets his first chance to prove the team right when it faces Buffalo. `\
+https://nytimes.com/athletic/6586795/2025/09/01/ravens-rookie-kicker-tyler-loop/
+
 **Palace in advanced talks to sign Getafe's Uche**\
 `Uche joined Getafe in the summer of 2024 and scored four goals and provided seven assists in 38 games last season.`\
 https://nytimes.com/athletic/6578741/2025/09/01/christantus-uche-getafe/
