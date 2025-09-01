@@ -1,3 +1,11 @@
+**FIFA warned of setting 'dangerous precent' by allowing staging of league matches abroad**\
+`La Liga and Serie A are attempting to export regular-season matches abroad this season to Miami and Perth respectively.`\
+https://nytimes.com/athletic/6589302/2025/09/01/la-liga-match-abroad-serie-a/
+
+**Liverpool agree Guehi deal with Crystal Palace**\
+`A package of £35million has been agreed and the defender is set to undergo a medical ahead of the proposed move.`\
+https://nytimes.com/athletic/6586045/2025/09/01/marc-guehi-liverpool-transfer-palace/
+
 **The Pulse: Yes, we're doing Week 1 overreactions**\
 `Welcome to The Pulse, The Athletic's daily newsletter.`\
 https://nytimes.com/athletic/6588439/2025/09/01/week-1-cfb-gauff-osaka-the-pulse/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6588041/2025/09/01/tyrique-george-chelsea-fulham-tr
 **Jackson's Bayern loan move back on, optimism deal will be agreed**\
 `Jackson scored 13 goals in 37 games last season while dealing with a hamstring injury.`\
 https://nytimes.com/athletic/6588202/2025/09/01/nicolas-jackson-bayern-chelsea-transfer/
-
-**Corrections: Aug. 31, 2025**\
-`Corrections that appeared in print on Sunday, Aug. 31, 2025.`\
-https://nytimes.com/2025/09/01/pageoneplus/corrections-aug-31-2025.html
-
-**Corrections: Aug. 30, 2025**\
-`Corrections that appeared in print on Saturday, Aug. 30, 2025.`\
-https://nytimes.com/2025/09/01/pageoneplus/corrections-aug-30-2025.html
 
