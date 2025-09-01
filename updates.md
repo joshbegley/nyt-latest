@@ -1,3 +1,11 @@
+**Vivian Ayers Allen, Poet and Cultural Activist, Dies at 102**\
+`She forged an arts career in Houston while raising children who became accomplished entertainers: Phylicia Rashad, Debbie Allen and Tex Allen.`\
+https://nytimes.com/2025/09/01/arts/vivian-ayers-allen-dead.html
+
+**Homer or no homer? Trevor Story's blast to Pesky's Pole is turning heads**\
+`At 306 feet, it marked the shortest non-inside-the-park homer in the majors this season.`\
+https://nytimes.com/athletic/6590692/2025/09/01/red-sox-guardians-trevor-story-home-run/
+
 **Joe Bugner, 75, British Boxing Champ Who Slugged It Out With Ali, Dies**\
 `A European titleholder as well, he twice went the distance with Ali and another time with Joe Frazier, losing the bouts but gaining their respect.`\
 https://nytimes.com/2025/09/01/sports/joe-bugner-dead.html
