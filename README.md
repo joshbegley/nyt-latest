@@ -1,5 +1,5 @@
 **Fulham agree permanent move for George from Chelsea**\
-`The package for George is worth £22million plus a sell-on clause.`\
+`The package for the 19-year-old is worth £22million plus a sell-on clause.`\
 https://nytimes.com/athletic/6588041/2025/09/01/tyrique-george-chelsea-fulham-transfer/
 
 **Jackson's Bayern loan move back on, optimism deal will be agreed**\
@@ -18,7 +18,7 @@ https://nytimes.com/2025/09/01/pageoneplus/corrections-aug-30-2025.html
 `The vision of four new players coming on at once in a game is always striking, but on Sunday at the Amex Stadium it was effective, too`\
 https://nytimes.com/athletic/6588759/2025/09/01/brighton-quadruple-substitution-manchester-city/
 
-**Miami's new faces show why this is a better Hurricanes team**\
+**Navarro: Miami's new faces show why this is a better Hurricanes team**\
 `Miami lost No. 1 pick Cam Ward but leaned on Georgia transfer Carson Beck and a revamped defense to beat Notre Dame on Sunday.`\
 https://nytimes.com/athletic/6589186/2025/09/01/miami-carson-beck-transfers-notre-dame/
 
