@@ -1,3 +1,5 @@
+
+
 **What to Know About Giuliani’s Car Crash**\
 `Rudolph W. Giuliani, the former mayor of New York and lawyer for President Trump, suffered a fractured vertebra when a vehicle slammed into his car on Saturday.`\
 https://nytimes.com/2025/09/01/nyregion/rudy-giuliani-car-crash-accident.html
