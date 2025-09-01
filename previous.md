@@ -1,3 +1,7 @@
+**Robert Mueller Has Parkinson’s Disease, Family Says**\
+`The former special counsel, who led the Russia investigation during President Trump’s first term, has had difficulty speaking in recent months and will not be able to comply with a request that he testify before Congress.`\
+https://nytimes.com/2025/08/31/us/politics/robert-mueller-parkinsons-disease.html
+
 **South Carolina's Shane Beamer calls win over Virginia Tech 'extra special'**\
 `Shane Beamer was clear he wanted to "dominate" the game against his alma mater and the place his father became the winningest Hokies coach.`\
 https://nytimes.com/athletic/6588272/2025/08/31/shane-beamer-south-carolina-virginia-tech-father/
@@ -33,8 +37,4 @@ https://nytimes.com/paidpost/athletic/experienceabudhabi/desertdreams.html
 **Liverpool reach Isak agreement with Newcastle**\
 `Isak is keen on a move to Anfield and previously published a statement in which he said his relationship with Newcastle “can’t continue”.`\
 https://nytimes.com/athletic/6574042/2025/08/31/alexander-isak-liverpool-newcastle-transfer/
-
-**Lee Roy Jordan, Ferocious Linebacker for the Dallas Cowboys, Dies at 84**\
-`He was a favorite of Coach Bear Bryant at the University of Alabama, then helped make the Cowboys “America’s Team.”`\
-https://nytimes.com/2025/08/31/obituaries/lee-roy-jordan-dead.html
 

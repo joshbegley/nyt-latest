@@ -1,3 +1,7 @@
+**Robert Mueller Has Parkinson’s Disease, Family Says**\
+`The former special counsel, who led the Russia investigation during President Trump’s first term, has had difficulty speaking in recent months and will not be able to comply with a request that he testify before Congress.`\
+https://nytimes.com/2025/08/31/us/politics/robert-mueller-parkinsons-disease.html
+
 **South Carolina's Shane Beamer calls win over Virginia Tech 'extra special'**\
 `Shane Beamer was clear he wanted to "dominate" the game against his alma mater and the place his father became the winningest Hokies coach.`\
 https://nytimes.com/athletic/6588272/2025/08/31/shane-beamer-south-carolina-virginia-tech-father/
