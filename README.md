@@ -1,3 +1,7 @@
+**Jaylen Warren, Steelers agree to two-year contract extension**\
+`Warren is entering his fourth NFL season.`\
+https://nytimes.com/athletic/6589553/2025/09/01/jaylen-warren-steelers-contract-extension/
+
 **Leicester loan El Khannouss to Stuttgart, sign Carranza from Feyenoord**\
 `El Khannouss had been considered by a number of Premier League sides following Leicester’s relegation last season.`\
 https://nytimes.com/athletic/6557012/2025/09/01/bilal-al-khannouss-transfer/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6588439/2025/09/01/week-1-cfb-gauff-osaka-the-pulse
 **Europe's Ryder Cup strategy is familiar, with 11 of 12 back from 2023 team**\
 `Jon Rahm and Shane Lowry lead the final six picks for repeat captain Luke Donald's team.`\
 https://nytimes.com/athletic/6589261/2025/09/01/ryder-cup-2025-luke-donald-european-team-picks/
-
-**Chelsea confirm Buonanotte loan signing from Brighton**\
-`Buonanotte had appeared close to joining Leeds United on loan before Chelsea swooped for the 20-year-old.`\
-https://nytimes.com/athletic/6510617/2025/09/01/facundo-buonanotte-chelsea-brighton/
 
