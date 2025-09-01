@@ -1,3 +1,7 @@
+**Packers on Micah Parsons trade: 'Nightmares for the offensive side of the ball'**\
+`It's safe to say Micah Parsons' new Packers teammates are happy that he's in their locker room.`\
+https://nytimes.com/athletic/6590244/2025/09/01/packers-players-micah-parsons-trade/
+
 **Gene Espy, Pioneering Hiker of the Appalachian Trail, Dies at 98**\
 `In 1951, he became the second person known to have walked the trail in a single trek — a “thru-hike” — covering some 2,000 miles from Georgia to Maine in 123 days.`\
 https://nytimes.com/2025/09/01/us/gene-espy-dead.html
