@@ -1,3 +1,19 @@
+**Leverkusen 'never a relationship based on mutual trust', says sacked Ten Hag**\
+`Ten Hag was sacked by Bayer Leverkusen after only three games, having only joined in the summer. `\
+https://nytimes.com/athletic/6589892/2025/09/01/erik-ten-hag-statement-bayer-leverkusen-sacked/
+
+**Trump Orders Have Stripped Nearly Half a Million Federal Workers of Union Rights**\
+`The president, who has targeted collective bargaining contracts for nearly one million government employees, has said their functions touch on national security.`\
+https://nytimes.com/2025/09/01/us/politics/trumps-unions-federal-workers.html
+
+**Army football player saves man from burning car: ‘What if we got there just a minute later?’**\
+`"This was just doing what I would always do. This is just helping somebody in need," said Army safety Larry Pickett Jr. `\
+https://nytimes.com/athletic/6589786/2025/09/01/army-football-player-save-burning-car/
+
+**Khelif files CAS appeal over World Boxing genetic sex testing**\
+`The Algerian boxer's request for her ban from competition be lifted until her case is heard has been dismissed by CAS.`\
+https://nytimes.com/athletic/6589834/2025/09/01/imane-khelif-gender-testing-boxing-cas/
+
 **Hojlund completes loan move from Manchester United to Napoli**\
 `The deal includes a conditional obligation to make the transfer permanent for €44million (£38m; $51.4m) next summer.`\
 https://nytimes.com/athletic/6585942/2025/09/01/rasmus-hojlund-napoli-manchester-united-transfer/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6589699/2025/09/01/european-ryder-cup-identity/
 **Back to School**\
 `How do you feel about the start of a new academic year?`\
 https://nytimes.com/2025/09/01/learning/back-to-school.html
-
-**Dodgers to sign pitcher Andrew Heaney ahead of postseason deadline: Source**\
-`Heaney was released by the Pittsburgh Pirates last week and rejoins the Dodgers for a third time. `\
-https://nytimes.com/athletic/6589662/2025/09/01/dodgers-andrew-heaney-sign-postseason/
-
-**Southern 500 takeaways: Briscoe dominates playoff opener, Hendrick struggles**\
-`With the pressure on, Briscoe showed how good his pairing with Joe Gibbs Racing can be. Plus, more from the playoff opener at Darlington.`\
-https://nytimes.com/athletic/6588658/2025/09/01/nascar-southern-500-takeaways-chase-briscoe-playoffs-hendrick/
-
-**Man City's Gundogan in talks to join Galatasaray**\
-`Gundogan re-joined City in August 2024 on a free transfer after leaving Barcelona with two years remaining on his contract.`\
-https://nytimes.com/athletic/6427484/2025/09/01/man-city-ilkay-gundogan-transer-news-galatasaray/
-
-**Atalanta complete signing of USMNT's Musah from Milan**\
-`Musah joins Atalanta in their first season under head coach Ivan Juric, after Gian Piero Gasperini departed for Roma in the summer. `\
-https://nytimes.com/athletic/6546228/2025/09/01/yunus-musah-atalanta-milan/
 

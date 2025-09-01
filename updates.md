@@ -1,3 +1,19 @@
+**Leverkusen 'never a relationship based on mutual trust', says sacked Ten Hag**\
+`Ten Hag was sacked by Bayer Leverkusen after only three games, having only joined in the summer. `\
+https://nytimes.com/athletic/6589892/2025/09/01/erik-ten-hag-statement-bayer-leverkusen-sacked/
+
+**Trump Orders Have Stripped Nearly Half a Million Federal Workers of Union Rights**\
+`The president, who has targeted collective bargaining contracts for nearly one million government employees, has said their functions touch on national security.`\
+https://nytimes.com/2025/09/01/us/politics/trumps-unions-federal-workers.html
+
+**Army football player saves man from burning car: ‘What if we got there just a minute later?’**\
+`"This was just doing what I would always do. This is just helping somebody in need," said Army safety Larry Pickett Jr. `\
+https://nytimes.com/athletic/6589786/2025/09/01/army-football-player-save-burning-car/
+
+**Khelif files CAS appeal over World Boxing genetic sex testing**\
+`The Algerian boxer's request for her ban from competition be lifted until her case is heard has been dismissed by CAS.`\
+https://nytimes.com/athletic/6589834/2025/09/01/imane-khelif-gender-testing-boxing-cas/
+
 **Hojlund completes loan move from Manchester United to Napoli**\
 `The deal includes a conditional obligation to make the transfer permanent for €44million (£38m; $51.4m) next summer.`\
 https://nytimes.com/athletic/6585942/2025/09/01/rasmus-hojlund-napoli-manchester-united-transfer/
