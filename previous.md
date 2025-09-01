@@ -7,7 +7,7 @@ https://nytimes.com/athletic/6588410/2025/08/31/lee-corso-college-gameday-viewer
 https://nytimes.com/athletic/6588347/2025/08/31/dodger-details-flip-switch-stretch-run/
 
 **Robert Mueller Has Parkinson’s Disease, Family Says**\
-`The former special counsel, who led the Russia investigation during President Trump’s first term, has had difficulty speaking in recent months and will not be able to comply with a request that he testify before Congress.`\
+`The former special counsel, who led the Russia investigation during President Trump’s first term, has had difficulty speaking in recent months. A congressional committee withdrew a request for Mr. Mueller to testify this week.`\
 https://nytimes.com/2025/08/31/us/politics/robert-mueller-parkinsons-disease.html
 
 **South Carolina's Shane Beamer calls win over Virginia Tech 'extra special'**\
