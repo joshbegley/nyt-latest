@@ -1,3 +1,7 @@
+**Shorthanded Seattle routs Messi's Miami to win Leagues Cup title**\
+`Seattle was undermanned, but it didn't matter in a Leagues Cup final thrashing that ended with Miami players throwing a tantrum–and punches`\
+https://nytimes.com/athletic/6588459/2025/08/31/seattle-sounders-leagues-cup-final-inter-miami-messi-suarez/
+
 **No Corrections: Sept. 1, 2025**\
 `No corrections appeared in print on Monday, Sept. 1, 2025.`\
 https://nytimes.com/2025/08/31/pageoneplus/no-corrections-sept-1-2025.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/08/31/nyregion/rikers-jail-nyc-custody-death.html
 **Houston Astros searching for 'a collective approach' after anemic August**\
 `Carlos Correa said some of the team's hitters might be experiencing mechanical problems: "You get pitches to hit and miss them."`\
 https://nytimes.com/athletic/6588267/2025/08/31/houston-astros-august-hitting/
-
-**Villa exploring Sancho deal separately to potential Martinez move**\
-`Villa, though, have been restricted by their need to adhere to UEFA financial regulations all summer.`\
-https://nytimes.com/athletic/6587124/2025/08/31/aston-villa-jadon-sancho/
 
