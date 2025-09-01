@@ -1,3 +1,7 @@
+**Man City's Gundogan in talks to join Galatasaray**\
+`Gundogan re-joined City in August 2024 on a free transfer after leaving Barcelona with two years remaining on his contract.`\
+https://nytimes.com/athletic/6427484/2025/09/01/man-city-ilkay-gundogan-transer-news-galatasaray/
+
 **Atalanta complete signing of USMNT's Musah from Milan**\
 `Musah joins Atalanta in their first season under head coach Ivan Juric, after Gian Piero Gasperini departed for Roma in the summer. `\
 https://nytimes.com/athletic/6546228/2025/09/01/yunus-musah-atalanta-milan/
@@ -12,7 +16,7 @@ https://nytimes.com/2025/09/01/learning/what-was-the-theme-of-your-summer.html
 `\
 https://nytimes.com/athletic/6588649/2025/09/01/submit-a-question-for-stewart-mandels-college-football-mailbag-313/
 
-**What Toronto’s September call-ups mean for stretch run and potential playoff roster**\
+**What Blue Jays' call-ups mean for stretch run, potential playoff roster**\
 `The Blue Jays added infielder Isiah Kiner-Falefa and reliever Dillon Tate with their September roster expansion.`\
 https://nytimes.com/athletic/6589576/2025/09/01/toronto-blue-jays-september-call-ups-playoff-roster/
 
@@ -35,8 +39,4 @@ https://nytimes.com/athletic/6584211/2025/09/01/bears-caleb-williams-ben-johnson
 **Florida State LB Ethan Pritchard hospitalized after suffering gunshot wound**\
 `Pritchard was wounded inside a vehicle after a shooting occurred just before 10 p.m. inside an apartment complex.`\
 https://nytimes.com/athletic/6589348/2025/09/01/florida-state-ethan-pritchard-shooting-condition-critical-stable/
-
-**Jaylen Warren, Steelers agree to two-year contract extension**\
-`Warren is entering his fourth NFL season.`\
-https://nytimes.com/athletic/6589553/2025/09/01/jaylen-warren-steelers-contract-extension/
 

@@ -1,3 +1,11 @@
+**Man City's Gundogan in talks to join Galatasaray**\
+`Gundogan re-joined City in August 2024 on a free transfer after leaving Barcelona with two years remaining on his contract.`\
+https://nytimes.com/athletic/6427484/2025/09/01/man-city-ilkay-gundogan-transer-news-galatasaray/
+
+**What Blue Jays' call-ups mean for stretch run, potential playoff roster**\
+`The Blue Jays added infielder Isiah Kiner-Falefa and reliever Dillon Tate with their September roster expansion.`\
+https://nytimes.com/athletic/6589576/2025/09/01/toronto-blue-jays-september-call-ups-playoff-roster/
+
 **Atalanta complete signing of USMNT's Musah from Milan**\
 `Musah joins Atalanta in their first season under head coach Ivan Juric, after Gian Piero Gasperini departed for Roma in the summer. `\
 https://nytimes.com/athletic/6546228/2025/09/01/yunus-musah-atalanta-milan/
