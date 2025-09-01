@@ -1,3 +1,7 @@
+**Russia Suspected of Jamming GPS for E.U. Leader’s Plane, Officials Say**\
+`The Bulgarian authorities believe that Russia disrupted navigation signals that would have been used by a plane carrying Ursula von der Leyen, European officials said.`\
+https://nytimes.com/2025/09/01/world/europe/von-der-leyen-gps-jamming-russia-ukraine.html
+
 **FIFA warned of setting 'dangerous precent' by allowing staging of league matches abroad**\
 `La Liga and Serie A are attempting to export regular-season matches abroad this season to Miami and Perth respectively.`\
 https://nytimes.com/athletic/6589302/2025/09/01/la-liga-match-abroad-serie-a/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6589056/2025/09/01/tottenham-transfer-news-gil-giro
 **Fulham agree permanent move for George from Chelsea**\
 `The package for the 19-year-old is worth £22million plus a sell-on clause.`\
 https://nytimes.com/athletic/6588041/2025/09/01/tyrique-george-chelsea-fulham-transfer/
-
-**Jackson's Bayern loan move back on, optimism deal will be agreed**\
-`Jackson scored 13 goals in 37 games last season while dealing with a hamstring injury.`\
-https://nytimes.com/athletic/6588202/2025/09/01/nicolas-jackson-bayern-chelsea-transfer/
 
