@@ -1,3 +1,7 @@
+**Trump Family Profits Even With Tepid Launch of Crypto Tokens**\
+`World Liberty Financial’s cryptocurrency token fell short of investors’ hopes. But a previous deal paved the way for a payment to the Trump family of potentially hundreds of millions of dollars.`\
+https://nytimes.com/2025/09/01/us/politics/trump-crypto-trading.html
+
 **N.Y.C. Man Is at Least Fourth Person to Die in Custody in Just Over a Week**\
 `A Turkish-born pedicab driver who was arrested on Friday night was found unconscious and unresponsive in a police station house cell. He later died at Bellevue Hospital.`\
 https://nytimes.com/2025/09/01/nyregion/nyc-jail-deaths.html
@@ -11,7 +15,7 @@ https://nytimes.com/2025/09/01/us/san-antonio-flood-deaths.html
 https://nytimes.com/athletic/6590775/2025/09/01/acc-fines-florida-state-50k-field-storming-alabama/
 
 **Matthew Stafford expected to start for Rams in Week 1 vs. Texans**\
-`Sean McVay says the quarterback, who aggravated a disk in his back and missed nearly a month of camp, will 'be good' to go in L.A.'s opener.`\
+`Sean McVay says the quarterback, who aggravated a disk in his back and missed nearly a month of camp, will "be good" to go in L.A.'s opener.`\
 https://nytimes.com/athletic/6590664/2025/09/01/matthew-stafford-rams-expect-start-texans-week-1/
 
 **Reds rookie Sal Stewart shines in MLB debut with hit, run in walk-off win**\
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/01/sports/joe-bugner-dead.html
 **Martinez misses out on Man Utd move as deadline day offer never arrives**\
 `Martinez spent transfer deadline day at Aston Villa’s training ground waiting for a call that never came.`\
 https://nytimes.com/athletic/6590584/2025/09/01/emiliano-martinez-manchester-united-aston-villa-transfer/
-
-**Scoop City: Offseason questions remaining after Parsons move**\
-`Five lingering questions as kickoff nears, intel from training camps, and quick 2025 predictions. `\
-https://nytimes.com/athletic/6590215/2025/09/01/offseason-questions-nfl-2025-scoop-city/
 

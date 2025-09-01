@@ -1,3 +1,7 @@
+**Coco Gauff's serve dominated her U.S. Open. Another shot ended it.**\
+`Gauff's serve remodel loomed over her tournament. It might be her forehand, which Naomi Osaka broke down to beat her, that matters more.`\
+https://nytimes.com/athletic/6590752/2025/09/01/coco-gauff-serve-forehand-us-open/
+
 **Trump Family Profits Even With Tepid Launch of Crypto Tokens**\
 `World Liberty Financial’s cryptocurrency token fell short of investors’ hopes. But a previous deal paved the way for a payment to the Trump family of potentially hundreds of millions of dollars.`\
 https://nytimes.com/2025/09/01/us/politics/trump-crypto-trading.html
@@ -10,8 +14,8 @@ https://nytimes.com/2025/09/01/nyregion/nyc-jail-deaths.html
 `The bodies of a man and a woman were found on Monday, the authorities said. The discovery came after heavy thunderstorms struck the area on Sunday evening.`\
 https://nytimes.com/2025/09/01/us/san-antonio-flood-deaths.html
 
-**ACC fines Florida State $50,000 for field-storming after upset of Alabama**\
-`Florida State is the first ACC school to be fined under a conference policy announced earlier this summer.`\
+**Florida State fined $50K by ACC for storming field after upsetting Alabama**\
+`Florida State is the first ACC school to be fined under a new conference policy aimed at curtailing field- and court-storming incidents.`\
 https://nytimes.com/athletic/6590775/2025/09/01/acc-fines-florida-state-50k-field-storming-alabama/
 
 **Matthew Stafford expected to start for Rams in Week 1 vs. Texans**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6590692/2025/09/01/red-sox-guardians-trevor-story-h
 **Joe Bugner, 75, British Boxing Champ Who Slugged It Out With Ali, Dies**\
 `A European titleholder as well, he twice went the distance with Ali and another time with Joe Frazier, losing the bouts but gaining their respect.`\
 https://nytimes.com/2025/09/01/sports/joe-bugner-dead.html
-
-**Martinez misses out on Man Utd move as deadline day offer never arrives**\
-`Martinez spent transfer deadline day at Aston Villa’s training ground waiting for a call that never came.`\
-https://nytimes.com/athletic/6590584/2025/09/01/emiliano-martinez-manchester-united-aston-villa-transfer/
 

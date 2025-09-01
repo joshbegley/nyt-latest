@@ -1,3 +1,11 @@
+**Trump Family Profits Even With Tepid Launch of Crypto Tokens**\
+`World Liberty Financial’s cryptocurrency token fell short of investors’ hopes. But a previous deal paved the way for a payment to the Trump family of potentially hundreds of millions of dollars.`\
+https://nytimes.com/2025/09/01/us/politics/trump-crypto-trading.html
+
+**Matthew Stafford expected to start for Rams in Week 1 vs. Texans**\
+`Sean McVay says the quarterback, who aggravated a disk in his back and missed nearly a month of camp, will "be good" to go in L.A.'s opener.`\
+https://nytimes.com/athletic/6590664/2025/09/01/matthew-stafford-rams-expect-start-texans-week-1/
+
 **N.Y.C. Man Is at Least Fourth Person to Die in Custody in Just Over a Week**\
 `A Turkish-born pedicab driver who was arrested on Friday night was found unconscious and unresponsive in a police station house cell. He later died at Bellevue Hospital.`\
 https://nytimes.com/2025/09/01/nyregion/nyc-jail-deaths.html
