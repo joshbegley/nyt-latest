@@ -1,3 +1,11 @@
+**Why Notre Dame's loss to Miami didn't feel like a program referendum**\
+`The Irish entered this season with ample benefit of the doubt after playing for a national title last January.`\
+https://nytimes.com/athletic/6589097/2025/09/01/notre-dame-miami-marcus-freeman/
+
+**Inside Barcelona: Hansi Flick's 'no egos' message, Fermin Lopez to stay, Joan Garcia stands out**\
+`A look at the key talking points around Barca right now, including the fallout from a surprise draw with Rayo Vallecano`\
+https://nytimes.com/athletic/6588999/2025/09/01/inside-barcelona-hansi-flick-fermin-lopez/
+
 **The most interesting 49er in 2025: We spent a practice trailing Ricky Pearsall**\
 `The Aug. 20 practice was eventful for Pearsall. He had a scary fall on his shoulder and some rare one-on-ones with Deommodore Lenoir.`\
 https://nytimes.com/athletic/6585045/2025/09/01/ricky-pearsall-49ers-training-camp-preseason/
