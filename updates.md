@@ -1,3 +1,15 @@
+**Dominik Szoboszlai has proved an extraordinary emergency right-back. He should stay there**\
+`Slot has got himself a new dynamic right-back with a penchant for producing the spectacular.`\
+https://nytimes.com/athletic/6587729/2025/09/01/dominik-szoboszlai-has-proved-an-extraordinary-emergency-right-back-he-should-stay-there/
+
+**If this was goodbye from Marc Guehi, it was a fitting send off**\
+`Transfer speculation has long swirled around the defender, but his attitude and application have never faltered `\
+https://nytimes.com/athletic/6582737/2025/09/01/marc-guehi-crystal-palace-transfer/
+
+**Betis agree €25m Antony deal with Man United**\
+`Antony signed for United in August 2022 in a deal worth a guaranteed €95million (£81.3m at the time)`\
+https://nytimes.com/athletic/6587455/2025/09/01/real-betis-agree-e25m-antony-deal-with-manchester-united/
+
 **Real Betis agree €25m Antony deal with Manchester United**\
 `Real Betis and Manchester United have agreed a €25m package for the transfer of Brazilian winger Antony.`\
 https://nytimes.com/athletic/6587455/2025/09/01/real-betis-agree-e25m-antony-deal-with-manchester-united/
