@@ -1,3 +1,11 @@
+**European Ryder Cup team's identity is so different from just two years ago**\
+`The bond and energy inside the European locker room are undeniable. A team of risks became a team of known commodities.`\
+https://nytimes.com/athletic/6589699/2025/09/01/european-ryder-cup-identity/
+
+**Back to School**\
+`How do you feel about the start of a new academic year?`\
+https://nytimes.com/2025/09/01/learning/back-to-school.html
+
 **Dodgers to sign pitcher Andrew Heaney ahead of postseason deadline: Source**\
 `Heaney was released by the Pittsburgh Pirates last week and rejoins the Dodgers for a third time. `\
 https://nytimes.com/athletic/6589662/2025/09/01/dodgers-andrew-heaney-sign-postseason/
@@ -31,12 +39,4 @@ https://nytimes.com/athletic/6589576/2025/09/01/toronto-blue-jays-september-call
 **City's Akanji set to join Inter on loan with option to buy**\
 `Inter are set to pay a €2million loan fee for the 30-year-old.`\
 https://nytimes.com/athletic/6587509/2025/09/01/manuel-akanji-inter-city-transfer/
-
-**Fantasy baseball cheat sheet: Jonah Tong's impressive debut and more THE BAT X insights**\
-`THE BAT X and The Athletic teamed up to offer a cheat sheet to help you with roster moves as the season closes. `\
-https://nytimes.com/athletic/6589277/2025/09/01/fantasy-baseball-the-bat-x-jonah-tong/
-
-**Leeds in Wilson talks with Fulham**\
-`The 28-year-old is in the final year of his contract at Craven Cottage.`\
-https://nytimes.com/athletic/6589521/2025/09/01/harry-wilson-leeds-fulham/
 
