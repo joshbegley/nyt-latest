@@ -1,3 +1,7 @@
+**Sterling remains at Chelsea beyond transfer deadline**\
+`The 30-year-old's Chelsea contract still has two years to run.`\
+https://nytimes.com/athletic/6589876/2025/09/01/raheem-sterling-chelsea-transfer/
+
 **Leverkusen 'never a relationship based on mutual trust', says sacked Ten Hag**\
 `Ten Hag was sacked by Bayer Leverkusen after only three games, having only joined in the summer. `\
 https://nytimes.com/athletic/6589892/2025/09/01/erik-ten-hag-statement-bayer-leverkusen-sacked/

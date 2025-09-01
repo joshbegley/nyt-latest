@@ -1,3 +1,7 @@
+**Sterling remains at Chelsea beyond transfer deadline**\
+`The 30-year-old's Chelsea contract still has two years to run.`\
+https://nytimes.com/athletic/6589876/2025/09/01/raheem-sterling-chelsea-transfer/
+
 **Leverkusen 'never a relationship based on mutual trust', says sacked Ten Hag**\
 `Ten Hag was sacked by Bayer Leverkusen after only three games, having only joined in the summer. `\
 https://nytimes.com/athletic/6589892/2025/09/01/erik-ten-hag-statement-bayer-leverkusen-sacked/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/01/arts/design/sylvain-amic-musee-dorsay-president-d
 **European Ryder Cup team's identity is so different from just two years ago**\
 `The bond and energy inside the European locker room are undeniable. A team of risks became a team of known commodities.`\
 https://nytimes.com/athletic/6589699/2025/09/01/european-ryder-cup-identity/
-
-**Back to School**\
-`How do you feel about the start of a new academic year?`\
-https://nytimes.com/2025/09/01/learning/back-to-school.html
 
