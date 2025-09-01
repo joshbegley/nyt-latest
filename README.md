@@ -16,7 +16,7 @@ https://nytimes.com/2025/09/01/learning/what-was-the-theme-of-your-summer.html
 `\
 https://nytimes.com/athletic/6588649/2025/09/01/submit-a-question-for-stewart-mandels-college-football-mailbag-313/
 
-**What Toronto’s September call-ups mean for stretch run and potential playoff roster**\
+**What Blue Jays' call-ups mean for stretch run, potential playoff roster**\
 `The Blue Jays added infielder Isiah Kiner-Falefa and reliever Dillon Tate with their September roster expansion.`\
 https://nytimes.com/athletic/6589576/2025/09/01/toronto-blue-jays-september-call-ups-playoff-roster/
 
