@@ -6,7 +6,7 @@ https://nytimes.com/2025/09/01/world/europe/von-der-leyen-gps-jamming-russia-ukr
 `La Liga and Serie A are attempting to export regular-season matches abroad this season to Miami and Perth respectively.`\
 https://nytimes.com/athletic/6589302/2025/09/01/la-liga-match-abroad-serie-a/
 
-**Liverpool agree Guehi deal with Crystal Palace**\
+**Liverpool agree Guehi deal with Palace**\
 `A package of £35million has been agreed and the defender is set to undergo a medical ahead of the proposed move.`\
 https://nytimes.com/athletic/6586045/2025/09/01/marc-guehi-liverpool-transfer-palace/
 
