@@ -1,3 +1,19 @@
+**Legendary boxer Joe Bugner, who challenged Ali and Frazier, dies at 75**\
+`Bugner began his 32-year boxing career in 1967 at 17.`\
+https://nytimes.com/athletic/6589800/2025/09/01/joe-bugner-boxing-champion-heavyweight-obit-muhammad-ali/
+
+**Athletic Club finalising deal to re-sign former Man City defender Laporte**\
+`The centre-back made 222 appearances for the Basque club during his first spell before joining Manchester City in January 2018.`\
+https://nytimes.com/athletic/6355390/2025/09/01/laporte-athletic-club-transfer/
+
+**Guehi expected to stay at Palace despite Liverpool transfer agreement**\
+`The England international, 25, completed at least part of a medical after a fee of £35million was agreed between the clubs.`\
+https://nytimes.com/athletic/6589620/2025/09/01/marc-guehi-liverpool-transfer-crystal-palace/
+
+**Osula set to stay at Newcastle despite deadline day Frankfurt interest**\
+`The striker is set to remain at St James' Park as cover up front for Eddie Howe's side.`\
+https://nytimes.com/athletic/6589333/2025/09/01/will-osula-newcastle-eintracht-frankfurt-transfer/
+
 **Juan Ayuso set to leave UAE Team Emirates after parties agree to early contract termination**\
 `The Spaniard will remain with his current team until the end of the 2025 season`\
 https://nytimes.com/athletic/6590018/2025/09/01/juan-ayuso-uae-emirates-contract-termination/
