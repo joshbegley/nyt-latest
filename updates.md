@@ -1,3 +1,11 @@
+**N.Y.C. Man Is at Least Fourth Person to Die in Custody in Just Over a Week**\
+`A Turkish-born pedicab driver who was arrested on Friday night was found unconscious and unresponsive in a police station house cell. He later died at Bellevue Hospital.`\
+https://nytimes.com/2025/09/01/nyregion/nyc-jail-deaths.html
+
+**2 Are Found Dead in a Creek After Flooding in San Antonio**\
+`The bodies of a man and a woman were found on Monday, the authorities said. The discovery came after heavy thunderstorms struck the area on Sunday evening.`\
+https://nytimes.com/2025/09/01/us/san-antonio-flood-deaths.html
+
 **ACC fines Florida State $50,000 for field-storming after upset of Alabama**\
 `Florida State is the first ACC school to be fined under a conference policy announced earlier this summer.`\
 https://nytimes.com/athletic/6590775/2025/09/01/acc-fines-florida-state-50k-field-storming-alabama/
