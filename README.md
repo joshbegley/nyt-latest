@@ -1,3 +1,11 @@
+**Leicester loan El Khannouss to Stuttgart, sign Carranza from Feyenoord**\
+`El Khannouss had been considered by a number of Premier League sides following Leicester’s relegation last season.`\
+https://nytimes.com/athletic/6557012/2025/09/01/bilal-al-khannouss-transfer/
+
+**The Recipe Readers Had to Have Year After Year**\
+`With more than 18,000 five-star reviews, Marian Burros’s easy recipe is a classic for a reason.`\
+https://nytimes.com/2025/09/01/dining/the-recipe-readers-had-to-have-year-after-year.html
+
 **Exxon and California Spar in Dueling Lawsuits Over Plastics**\
 `The oil giant accused the state’s attorney general and four nonprofit groups of defamation after they sued over recycling claims.`\
 https://nytimes.com/2025/09/01/climate/exxon-california-plastics-defamation-lawsuit.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6589261/2025/09/01/ryder-cup-2025-luke-donald-europ
 **Chelsea confirm Buonanotte loan signing from Brighton**\
 `Buonanotte had appeared close to joining Leeds United on loan before Chelsea swooped for the 20-year-old.`\
 https://nytimes.com/athletic/6510617/2025/09/01/facundo-buonanotte-chelsea-brighton/
-
-**Chelsea in advanced talks to sign USWNT's Thompson from Angel City**\
-`Thompson (excused absence) has not been included in Angel City's squad to face Bay FC on Monday.`\
-https://nytimes.com/athletic/6584407/2025/09/01/alyssa-thompson-chelsea-angel-city/
-
-**Crime Crackdown in D.C. Shows Trump Administration’s Uneasy Relationship With Guns**\
-`If President Trump’s actions were intended to drive a law-and-order wedge between Democratic big-city leaders and their constituents, it has also exposed a division in his own coalition.`\
-https://nytimes.com/2025/09/01/us/politics/dc-crime-trump-guns.html
 
