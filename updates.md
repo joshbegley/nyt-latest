@@ -1,3 +1,19 @@
+**The Pulse: Yes, we're doing Week 1 overreactions**\
+`Welcome to The Pulse, The Athletic's daily newsletter.`\
+https://nytimes.com/athletic/6588439/2025/09/01/week-1-cfb-gauff-osaka-the-pulse/
+
+**Europe's Ryder Cup strategy is familiar, with 11 of 12 back from 2023 team**\
+`Jon Rahm and Shane Lowry lead the final six picks for repeat captain Luke Donald's team.`\
+https://nytimes.com/athletic/6589261/2025/09/01/ryder-cup-2025-luke-donald-european-team-picks/
+
+**Chelsea confirm Buonanotte loan signing from Brighton**\
+`Buonanotte had appeared close to joining Leeds United on loan before Chelsea swooped for the 20-year-old.`\
+https://nytimes.com/athletic/6510617/2025/09/01/facundo-buonanotte-chelsea-brighton/
+
+**Chelsea in advanced talks to sign USWNT's Thompson from Angel City**\
+`Thompson (excused absence) has not been included in Angel City's squad to face Bay FC on Monday.`\
+https://nytimes.com/athletic/6584407/2025/09/01/alyssa-thompson-chelsea-angel-city/
+
 **Sampson: Why Notre Dame's loss to Miami didn't feel like a program referendum**\
 `The Irish entered this season with ample benefit of the doubt after playing for a national title in January.`\
 https://nytimes.com/athletic/6589097/2025/09/01/notre-dame-miami-marcus-freeman/

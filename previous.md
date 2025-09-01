@@ -1,3 +1,19 @@
+**The Pulse: Yes, we're doing Week 1 overreactions**\
+`Welcome to The Pulse, The Athletic's daily newsletter.`\
+https://nytimes.com/athletic/6588439/2025/09/01/week-1-cfb-gauff-osaka-the-pulse/
+
+**Europe's Ryder Cup strategy is familiar, with 11 of 12 back from 2023 team**\
+`Jon Rahm and Shane Lowry lead the final six picks for repeat captain Luke Donald's team.`\
+https://nytimes.com/athletic/6589261/2025/09/01/ryder-cup-2025-luke-donald-european-team-picks/
+
+**Chelsea confirm Buonanotte loan signing from Brighton**\
+`Buonanotte had appeared close to joining Leeds United on loan before Chelsea swooped for the 20-year-old.`\
+https://nytimes.com/athletic/6510617/2025/09/01/facundo-buonanotte-chelsea-brighton/
+
+**Chelsea in advanced talks to sign USWNT's Thompson from Angel City**\
+`Thompson (excused absence) has not been included in Angel City's squad to face Bay FC on Monday.`\
+https://nytimes.com/athletic/6584407/2025/09/01/alyssa-thompson-chelsea-angel-city/
+
 **Crime Crackdown in D.C. Shows Trump Administration’s Uneasy Relationship With Guns**\
 `If President Trump’s actions were intended to drive a law-and-order wedge between Democratic big-city leaders and their constituents, it has also exposed a division in his own coalition.`\
 https://nytimes.com/2025/09/01/us/politics/dc-crime-trump-guns.html
@@ -21,20 +37,4 @@ https://nytimes.com/2025/09/01/pageoneplus/corrections-aug-31-2025.html
 **Corrections: Aug. 30, 2025**\
 `Corrections that appeared in print on Saturday, Aug. 30, 2025.`\
 https://nytimes.com/2025/09/01/pageoneplus/corrections-aug-30-2025.html
-
-**How a quadruple substitution made Brighton's direct approach against Manchester City much more effective**\
-`The vision of four new players coming on at once in a game is always striking, but on Sunday at the Amex Stadium it was effective, too`\
-https://nytimes.com/athletic/6588759/2025/09/01/brighton-quadruple-substitution-manchester-city/
-
-**Navarro: Miami's new faces show why this is a better Hurricanes team**\
-`Miami lost No. 1 pick Cam Ward but leaned on Georgia transfer Carson Beck and a revamped defense to beat Notre Dame on Sunday.`\
-https://nytimes.com/athletic/6589186/2025/09/01/miami-carson-beck-transfers-notre-dame/
-
-**Sampson: Why Notre Dame's loss to Miami didn't feel like a program referendum**\
-`The Irish entered this season with ample benefit of the doubt after playing for a national title in January.`\
-https://nytimes.com/athletic/6589097/2025/09/01/notre-dame-miami-marcus-freeman/
-
-**Inside Barcelona: Hansi Flick's 'no egos' message, Fermin Lopez to stay, Joan Garcia stands out**\
-`A look at the key talking points around Barca right now, including the fallout from a surprise draw with Rayo Vallecano`\
-https://nytimes.com/athletic/6588999/2025/09/01/inside-barcelona-hansi-flick-fermin-lopez/
 
