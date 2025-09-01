@@ -1,3 +1,7 @@
+**Man City ready to sanction Ederson exit – if they sign Donnarumma as replacement**\
+`Brazil international Ederson is a target for Fenerbahce over the closing hours of the summer window.`\
+https://nytimes.com/athletic/6526901/2025/09/01/man-city-donnarumma-ederson-transfer/
+
 **Dominik Szoboszlai has proved an extraordinary emergency right-back. He should stay there**\
 `Slot has got himself a new dynamic right-back with a penchant for producing the spectacular.`\
 https://nytimes.com/athletic/6587729/2025/09/01/dominik-szoboszlai-has-proved-an-extraordinary-emergency-right-back-he-should-stay-there/
