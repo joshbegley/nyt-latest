@@ -1,3 +1,15 @@
+**Inter Miami seals its villainous turn after Leagues Cup final disgrace**\
+`Luis Suárez's spitting incident and a postgame brawl in Seattle turned Inter Miami into full-fledged villains`\
+https://nytimes.com/athletic/6590093/2025/09/01/inter-miami-mls-villain-suarez-messi-seattle-leagues-cup-spit/
+
+**Braves claim former Gold Glove winner Ha-Seong Kim off waivers**\
+`He won a Gold Glove in 2023 while playing mostly second base but also plenty of shortstop and third base.`\
+https://nytimes.com/athletic/6590266/2025/09/01/atlanta-braves-ha-seong-kim-waiver-claim/
+
+**Micah Parsons managing facet joint sprain in back ahead of Week 1: Source**\
+`Before Parsons was traded to Green Bay last week, the Cowboys prescribed him a five-day plan of an anti-inflammatory corticosteroid.`\
+https://nytimes.com/athletic/6590134/2025/09/01/micah-parsons-back-sprain-season-opener-lions/
+
 **In NASCAR playoff opener, Bubba Wallace shows he's not to be dismissed**\
 `Wallace has had a reputation for not handling adversity well on the track. On Sunday, he took another step toward putting that in the past.`\
 https://nytimes.com/athletic/6590017/2025/09/01/bubba-wallace-nascar-darlington-playoffs-championship/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6590027/2025/09/01/asisat-oshoala-bay-fc-al-hilal/
 **Arsenal complete Hincapie signing**\
 `Hincapie travelled to London over the weekend after a loan agreement was reached with an option to buy for a total package of €52m.`\
 https://nytimes.com/athletic/6587286/2025/09/01/arsenal-transfer-news-hincapie/
-
-**Legendary boxer Joe Bugner, who challenged Ali and Frazier, dies at 75**\
-`Bugner began his 32-year boxing career in 1967 at 17.`\
-https://nytimes.com/athletic/6589800/2025/09/01/joe-bugner-boxing-champion-heavyweight-obit-muhammad-ali/
-
-**Athletic Club finalising deal to re-sign former Man City defender Laporte**\
-`The centre-back made 222 appearances for the Basque club during his first spell before joining Manchester City in January 2018.`\
-https://nytimes.com/athletic/6355390/2025/09/01/laporte-athletic-club-transfer/
-
-**Guehi expected to stay at Palace despite Liverpool transfer agreement**\
-`The England international, 25, completed at least part of a medical after a fee of £35million was agreed between the clubs.`\
-https://nytimes.com/athletic/6589620/2025/09/01/marc-guehi-liverpool-transfer-crystal-palace/
 
