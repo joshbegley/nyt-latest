@@ -1,3 +1,7 @@
+**First War, Then Floods Drive Pakistani Families From Their Homes**\
+`Near the Indian border, many people who fled the recent India-Pakistan conflict have had to leave again, this time because of rising waters.`\
+https://nytimes.com/2025/09/02/world/asia/pakistan-india-floods.html
+
 **The Potentially Big Costs of Trump’s Fed Fight**\
 `The president’s attacks on the central bank’s  independence could undermine investor confidence in the institution at a crucial time.`\
 https://nytimes.com/2025/09/02/business/dealbook/fed-trump-cook-political-independence.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6591468/2025/09/02/everton-transfer-window-grealish
 **Stolarz's next contract, solving Domi and the 2026 UFA class: Mailbag**\
 `Plus, how good was Mats Sundin? What might the Leafs have in mind for Brandon Carlo's future?`\
 https://nytimes.com/athletic/6582469/2025/09/02/maple-leafs-stolarz-domi-ufa-2026-carlo/
-
-**How to watch the Philadelphia Eagles in 2025: Schedule and streaming for reigning champs**\
-`It's as complicated as ever, but here's how you can watch all 17 regular-season Eagles games as they defend their Lombardi Trophy.`\
-https://nytimes.com/athletic/6526623/2025/09/02/philadelphia-eagles-2025-how-to-watch-schedule/
 
