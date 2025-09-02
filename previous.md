@@ -1,3 +1,7 @@
+**The Space Rock Stars of Brazil**\
+`An all-female research group, As Meteoriticas, scours the South American country’s interior aiming to preserve meteorites for scientific study and public display.`\
+https://nytimes.com/2025/09/02/science/brazil-meteorites.html
+
 **Graham Greene, Canadian Actor Who Portrayed Indigenous Characters, Dies at 73**\
 `The First Nations actor, who appeared in “Dances With Wolves” and other Hollywood blockbusters, remained active in Canadian film, theater and television.`\
 https://nytimes.com/2025/09/02/movies/graham-greene-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6590424/2025/09/02/wolves-2025-summer-transfer-wind
 **Ranking all 153 Premier League transfers this summer window from worst to best**\
 `It has been a record-breaking summer for the Premier League. The Athletic's Tim Spiers has tried to put every signing into ranked order`\
 https://nytimes.com/athletic/6515158/2025/09/02/premier-league-transfers-ranked-summer-2025/
-
-**Manchester United women, the Champions League and a one-way chartered flight to Sweden**\
-`United's women took connecting commercial flights home from Champions League qualifying, with some players opting to pay their own way`\
-https://nytimes.com/athletic/6590598/2025/09/02/manchester-united-women-plane-champions-league/
 

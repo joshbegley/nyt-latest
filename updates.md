@@ -1,3 +1,7 @@
+**The Space Rock Stars of Brazil**\
+`An all-female research group, As Meteoriticas, scours the South American country’s interior aiming to preserve meteorites for scientific study and public display.`\
+https://nytimes.com/2025/09/02/science/brazil-meteorites.html
+
 **Graham Greene, Canadian Actor Who Portrayed Indigenous Characters, Dies at 73**\
 `The First Nations actor, who appeared in “Dances With Wolves” and other Hollywood blockbusters, remained active in Canadian film, theater and television.`\
 https://nytimes.com/2025/09/02/movies/graham-greene-dead.html
