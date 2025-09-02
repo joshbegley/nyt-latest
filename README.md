@@ -1,3 +1,7 @@
+**The Pulse: Belichick's debut could not have gone worse**\
+`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/6589844/2025/09/02/bill-belichick-debut-tcu-the-pulse/
+
 **Kyle Shanahan, Sean McVay top defensive peers' ratings of NFL's offensive play callers**\
 `A sample of NFL defensive coordinators and coaches say who they think is best at designing and executing an offense.`\
 https://nytimes.com/athletic/6585385/2025/09/02/kyle-shanahan-sean-mcvay-top-defensive-peers-ratings-of-nfls-offensive-play-callers/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6590287/2025/09/02/jared-goff-lions-offensive-coord
 **Real Madrid's transfer window: €180m spent this summer, but should more have been done?**\
 `With the transfer window now closed, it's time to take stock. How did Xabi Alonso and company do this summer?`\
 https://nytimes.com/athletic/6591358/2025/09/02/real-madrid-transfer-window-review-alonso/
-
-**What I'm seeing from the New York Jets: Questions at QB and WR, blitz-happy defense**\
-`What to expect from the Jets as the Aaron Glenn era begins.`\
-https://nytimes.com/athletic/6589852/2025/09/02/new-york-jets-season-preview/
 
