@@ -1,3 +1,7 @@
+**What I'm seeing from the Commanders: Jayden Daniels got better and there's a new X-factor**\
+`The Commanders are all in, and their phenom of a QB keeps improving, but depth and the defensive line could be concerns.`\
+https://nytimes.com/athletic/6589562/2025/09/02/washington-commanders-preview-jayden-daniels-marshon-lattimore/
+
 **The Windup: The weirdest home run**\
 `Welcome to The Windup, The Athletic's MLB newsletter.`\
 https://nytimes.com/athletic/6591303/2025/09/02/trevor-story-home-run-the-windup/
@@ -8,7 +12,7 @@ https://nytimes.com/2025/09/02/world/asia/afghanistan-earthquake.html
 
 **Dwayne Johnson’s Tearful Reinvention at the Venice Film Festival**\
 `The action superstar’s pivot to a dramatic role as a drug-addicted UFC fighter in “The Smashing Machine” brought a standing ovation and Oscar talk.`\
-https://nytimes.com/2025/09/02/movies/dwayne-johnsons-smashing-machine-venice-film-festival.html
+https://nytimes.com/2025/09/02/movies/dwayne-johnson-smashing-machine-venice-film-festival.html
 
 **How to watch the Dallas Cowboys in 2025: TV schedule loaded with national games**\
 `Unsurprisingly, Dallas is all over the NFL's prime-time schedule this year. Here's how to watch all 17 regular-season Cowboys games.`\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6560541/2025/09/02/college-football-playoff-bracket
 **U.S. Soccer has a new vision for youth development. Implementation is ‘an astronomical ask’**\
 `The "U.S. Way" is meant to kick development into high gear, but the American soccer landscape presents a series of challenges`\
 https://nytimes.com/athletic/6589530/2025/09/02/us-soccer-youth-development-challenge-matt-crocker-usmnt-uswnt/
-
-**What Does Vogue Mean Today?**\
-`The magazine has a new editor in Chloe Malle. It may also need a new identity.`\
-https://nytimes.com/2025/09/02/style/vogue-chloe-malle.html
 
