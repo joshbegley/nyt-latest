@@ -1,3 +1,7 @@
+**What Julian Sayin did for Ohio State that Arch Manning didn't for Texas**\
+`What I saw on film from Sayin in his first Ohio State start. While Arch Maning struggled for Texas, Sayin didn't make a mistake.`\
+https://nytimes.com/athletic/6589901/2025/09/02/julian-sayin-ohio-state-texas-film/
+
 **Putin and Xi Invoke Wartime Unity as They Hail Ties in Beijing**\
 `The Russian and Chinese leaders drew on a shared view of their countries’ roles in World War II to cast their modern-day partnership as a challenge to the West.`\
 https://nytimes.com/2025/09/02/world/asia/china-putin-xi.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6590220/2025/09/02/college-football-overreaction-ar
 **Notre Dame-Miami final thoughts: Whose fault was CJ Carr's interception?**\
 `The Irish got their quarterback decision right. But they also were beaten at their own game by the Hurricanes.`\
 https://nytimes.com/athletic/6591015/2025/09/02/notre-dame-miami-cj-carr-jeremiyah-love/
-
-**Why Week 2 is the Big Ten's ultimate prove-it Saturday**\
-`With two consecutive national titles and a blissful start to 2025, the Big Ten has earned the right to flex. But now, the moment’s over.`\
-https://nytimes.com/athletic/6589843/2025/09/02/big-ten-football-nonconference-schedule-depth/
 

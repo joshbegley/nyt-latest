@@ -1,3 +1,7 @@
+**What Julian Sayin did for Ohio State that Arch Manning didn't for Texas**\
+`What I saw on film from Sayin in his first Ohio State start. While Arch Maning struggled for Texas, Sayin didn't make a mistake.`\
+https://nytimes.com/athletic/6589901/2025/09/02/julian-sayin-ohio-state-texas-film/
+
 **Putin and Xi Invoke Wartime Unity as They Hail Ties in Beijing**\
 `The Russian and Chinese leaders drew on a shared view of their countries’ roles in World War II to cast their modern-day partnership as a challenge to the West.`\
 https://nytimes.com/2025/09/02/world/asia/china-putin-xi.html
