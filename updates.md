@@ -1,3 +1,11 @@
+**Trump Reveals a New Strategy for Dealing With Bad News: Blame A.I.**\
+`President Trump blamed A.I. for a widely shared video of a trash bag being thrown from a White House window. But the White House had already confirmed it was real.`\
+https://nytimes.com/2025/09/02/us/politics/trump-ai-video-trash-bag.html
+
+**Marketa Vondrousova pulls out of U.S. Open quarterfinal with Aryna Sabalenka with injury**\
+`The Czech has been through a run of injuries the past two years.`\
+https://nytimes.com/athletic/6593120/2025/09/02/vondrousova-us-open-withdrawal-injury/
+
 **Trump on Deploying Troops to Chicago: “We’re Going In”**\
 `President Trump, speaking at a news conference on Tuesday, said he was planning to send the National Guard to Chicago. He did not offer details on the deployment’s timing.`\
 https://nytimes.com/video/us/politics/100000010374834/trump-deploy-national-guard-chicago.html
