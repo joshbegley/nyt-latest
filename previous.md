@@ -1,3 +1,7 @@
+**Who should I drop in fantasy football? Joe Mixon, Keenan Allen and more cut candidates**\
+`Gary Davenport offers his first drops list of the 2025 fantasy football campaign. How old is too old?`\
+https://nytimes.com/athletic/6592015/2025/09/02/week-1-fantasy-football-drops-mixon-allen/
+
 **Should NIL spending affect nonconference games? Two coaches trade thoughts**\
 `Oklahoma State coach Mike Gundy and Oregon coach Dan Lanning went back and forth on how much spending should matter in CFB matchups.`\
 https://nytimes.com/athletic/6592135/2025/09/02/oklahoma-state-oregon-cfb-nil/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6592271/2025/09/02/los-angeles-angels-vs-kansas-cit
 **How to watch Yankees at Astros: Time, TV, streaming**\
 `Find out how to watch the New York Yankees play the Houston Astros, with time, TV channel, and streaming information.`\
 https://nytimes.com/athletic/6592269/2025/09/02/new-york-yankees-vs-houston-astros-stream-how-to-watch-sept-2/
-
-**How to watch Athletics at Cardinals: Time, TV, streaming**\
-`Find out how to watch the Athletics play the St. Louis Cardinals, with time, TV channel, and streaming information.`\
-https://nytimes.com/athletic/6592254/2025/09/02/athletics-vs-st-louis-cardinals-stream-how-to-watch-sept-2/
 

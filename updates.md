@@ -1,3 +1,7 @@
+**Who should I drop in fantasy football? Joe Mixon, Keenan Allen and more cut candidates**\
+`Gary Davenport offers his first drops list of the 2025 fantasy football campaign. How old is too old?`\
+https://nytimes.com/athletic/6592015/2025/09/02/week-1-fantasy-football-drops-mixon-allen/
+
 **Should NIL spending affect nonconference games? Two coaches trade thoughts**\
 `Oklahoma State coach Mike Gundy and Oregon coach Dan Lanning went back and forth on how much spending should matter in CFB matchups.`\
 https://nytimes.com/athletic/6592135/2025/09/02/oklahoma-state-oregon-cfb-nil/
