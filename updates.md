@@ -1,3 +1,11 @@
+**Stephen Colbert Returns for First ‘Late Show’ of Its Last Season**\
+`CBS’s announcement in July that the show would end next year — after Colbert had criticized CBS’s settlement with the Trump administration — raised questions among lawmakers and fans.`\
+https://nytimes.com/2025/09/02/arts/television/stephen-colbert-late-show-returns.html
+
+**We Just Updated Our Atlanta Dining Guide**\
+`Fish sauce sticky ribs, a wine bar with proper food from one of Atlanta’s most prominent restaurateurs and more.`\
+https://nytimes.com/2025/09/02/dining/where-to-eat-atlanta.html
+
 **‘S.N.L.’ Announces New Cast Members**\
 `The upcoming season of “Saturday Night Live” will feature five new faces. Departing are Heidi Gardner, Emil Wakim, Devon Walker and Michael Longfellow.`\
 https://nytimes.com/2025/09/02/arts/television/snl-cast-departures-season-51.html
