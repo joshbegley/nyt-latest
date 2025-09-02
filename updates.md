@@ -1,3 +1,43 @@
+**Kim Jong-un Takes a Slow (but Bulletproof) Train to China**\
+`The North Korean leader’s favorite mode of transportation provides him — like his father and grandfather before him — with tight security. But it’s no express train.`\
+https://nytimes.com/2025/09/02/world/asia/kim-north-korea-train.html
+
+**Panthers cut Hunter Renfrow, now he's back as Week 1 starter: 'It's been a whirlwind'**\
+`After a series of events, Hunter Renfrow's return to the NFL is back on track and he'll start Sunday for the Panthers in Jacksonville.`\
+https://nytimes.com/athletic/6590571/2025/09/02/hunter-renfrow-panthers-starter-jaguars/
+
+**What I’m seeing from the Cowboys: Big year from George Pickens, lots of RB questions**\
+`Pickens has been on good behavior and looks like he'll be a big asset to the Cowboys' offense.`\
+https://nytimes.com/athletic/6590857/2025/09/02/dallas-cowboys-preview-george-pickens/
+
+**Chicago Bears roster by the numbers: Improved O-line for Caleb Williams**\
+`As the Bears open the 2025 season, how does their roster stack up? How experienced is it, and how much better does it look than 2024?`\
+https://nytimes.com/athletic/6589911/2025/09/02/bears-roster-numbers-ben-johnson-caleb-williams/
+
+**How Justin Jefferson has become a face of the NFL: He's 'different because he's real'**\
+`The Vikings wide receiver is a bona fide superstar on the field, but his persona off it is just as appealing to brands and fans alike.`\
+https://nytimes.com/athletic/6584711/2025/09/02/justin-jefferson-vikings-face-nfl-image/
+
+**Jared Goff ready to take on more in Lions' post-Ben Johnson era**\
+`“This thing is set up for Goff to have success with our playmakers," Dan Campbell said of the Lions quarterback.`\
+https://nytimes.com/athletic/6590287/2025/09/02/jared-goff-lions-offensive-coordinator/
+
+**Real Madrid's transfer window: €180m spent this summer, but should more have been done?**\
+`With the transfer window now closed, it's time to take stock. How did Xabi Alonso and company do this summer?`\
+https://nytimes.com/athletic/6591358/2025/09/02/real-madrid-transfer-window-review-alonso/
+
+**What I'm seeing from the New York Jets: Questions at QB and WR, blitz-happy defense**\
+`What to expect from the Jets as the Aaron Glenn era begins.`\
+https://nytimes.com/athletic/6589852/2025/09/02/new-york-jets-season-preview/
+
+**For Bill Belichick's debut, UNC came to party. But the good times fizzled fast**\
+`UNC threw the pregame party to end all pregames. But the Belichick-induced hype machine died out by the third quarter Monday night.`\
+https://nytimes.com/athletic/6591249/2025/09/02/bill-belichick-unc-football-tcu-blowout/
+
+**'Are you joking with me?': Behind the scenes of a Cardinals' major-league debut**\
+`This is the behind-the-scenes machinery that allows a ballplayer's dreams to come true.`\
+https://nytimes.com/athletic/6586548/2025/09/02/st-louis-cardinals-mlb-debut/
+
 **Loftus-Cheek called into England squad**\
 `The 29-year-old has not played for England since November 2018.`\
 https://nytimes.com/athletic/6589608/2025/09/02/ruben-loftus-cheek-england-squad/

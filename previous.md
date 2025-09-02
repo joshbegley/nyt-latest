@@ -1,40 +1,40 @@
-**Loftus-Cheek called into England squad**\
-`The 29-year-old has not played for England since November 2018.`\
-https://nytimes.com/athletic/6589608/2025/09/02/ruben-loftus-cheek-england-squad/
+**Kim Jong-un Takes a Slow (but Bulletproof) Train to China**\
+`The North Korean leader’s favorite mode of transportation provides him — like his father and grandfather before him — with tight security. But it’s no express train.`\
+https://nytimes.com/2025/09/02/world/asia/kim-north-korea-train.html
 
-**The New York Times International Edition in Print for Wednesday, Sep. 3, 2025**\
-``\
-https://nytimes.com/issue/todaysinyt/2025/09/02/todays-new-york-times-international-edition
+**Panthers cut Hunter Renfrow, now he's back as Week 1 starter: 'It's been a whirlwind'**\
+`After a series of events, Hunter Renfrow's return to the NFL is back on track and he'll start Sunday for the Panthers in Jacksonville.`\
+https://nytimes.com/athletic/6590571/2025/09/02/hunter-renfrow-panthers-starter-jaguars/
 
-**Suntory Boss Resigns After Buying Supplement That May Be Illegal in Japan**\
-`Takeshi Niinami has stepped down from his post following a police investigation, underscoring Japan’s zero-tolerance drug policies.`\
-https://nytimes.com/2025/09/02/business/suntory-chairman-takeshi-niinami.html
+**What I’m seeing from the Cowboys: Big year from George Pickens, lots of RB questions**\
+`Pickens has been on good behavior and looks like he'll be a big asset to the Cowboys' offense.`\
+https://nytimes.com/athletic/6590857/2025/09/02/dallas-cowboys-preview-george-pickens/
 
-**From £3.6m Shearer to £125m Isak: How the Premier League transfer record has progressed**\
-`With Alexander Isak breaking the record here is a look at how the fees have grown since Alan Shearer joined Blackburn in 1992`\
-https://nytimes.com/athletic/6589032/2025/09/02/fisak-shearer-premier-league-transfer-record/
+**Chicago Bears roster by the numbers: Improved O-line for Caleb Williams**\
+`As the Bears open the 2025 season, how does their roster stack up? How experienced is it, and how much better does it look than 2024?`\
+https://nytimes.com/athletic/6589911/2025/09/02/bears-roster-numbers-ben-johnson-caleb-williams/
 
-**Carlos Alcaraz and the most overindexed tennis match in recent history**\
-`Alcaraz's wavering focus and up-and-down matches have created a false impression of a player who is on a remarkable winning streak.`\
-https://nytimes.com/athletic/6589518/2025/09/02/carlos-alcaraz-tennis-results-inconsistency-us-open/
+**How Justin Jefferson has become a face of the NFL: He's 'different because he's real'**\
+`The Vikings wide receiver is a bona fide superstar on the field, but his persona off it is just as appealing to brands and fans alike.`\
+https://nytimes.com/athletic/6584711/2025/09/02/justin-jefferson-vikings-face-nfl-image/
 
-**Ukraine Pursues a Weapons Buildup More Potent Than Any Security Guarantee**\
-`Kyiv sees a well-equipped army as a stronger deterrent to Moscow than any Western pledges to defend it. It is working to attract billions to buy more arms.`\
-https://nytimes.com/2025/09/02/world/europe/ukraine-weapons-security.html
+**Jared Goff ready to take on more in Lions' post-Ben Johnson era**\
+`“This thing is set up for Goff to have success with our playmakers," Dan Campbell said of the Lions quarterback.`\
+https://nytimes.com/athletic/6590287/2025/09/02/jared-goff-lions-offensive-coordinator/
 
-**The Supreme Court Is Backing Trump’s Power Grab**\
-`The legal scholar Kate Shaw discusses Donald Trump’s recent winning streak with the Supreme Court and what it means for the state of Constitution.`\
-https://nytimes.com/2025/09/02/opinion/ezra-klein-podcast-kate-shaw.html
+**Real Madrid's transfer window: €180m spent this summer, but should more have been done?**\
+`With the transfer window now closed, it's time to take stock. How did Xabi Alonso and company do this summer?`\
+https://nytimes.com/athletic/6591358/2025/09/02/real-madrid-transfer-window-review-alonso/
 
-**What I'm seeing from the New England Patriots: Will O-line concerns hold back Drake Maye?**\
-`Maye is primed to take a step forward in his second season, but will the pass protection and roster depth hold up around him? `\
-https://nytimes.com/athletic/6582320/2025/09/02/new-england-patriots-preview-drake-maye-o-line/
+**What I'm seeing from the New York Jets: Questions at QB and WR, blitz-happy defense**\
+`What to expect from the Jets as the Aaron Glenn era begins.`\
+https://nytimes.com/athletic/6589852/2025/09/02/new-york-jets-season-preview/
 
-**After Court Defeat, Trump Warns of Economic Chaos From Loss of Tariffs**\
-`The president and his advisers have suggested they will fight a federal appeals court’s ruling that found many of the administration’s tariffs to be illegal.`\
-https://nytimes.com/2025/09/02/us/politics/trump-tariffs-appeals-court-ruling-economy.html
+**For Bill Belichick's debut, UNC came to party. But the good times fizzled fast**\
+`UNC threw the pregame party to end all pregames. But the Belichick-induced hype machine died out by the third quarter Monday night.`\
+https://nytimes.com/athletic/6591249/2025/09/02/bill-belichick-unc-football-tcu-blowout/
 
-**What to Know About Jair Bolsonaro’s Coup Plot Trial**\
-`The former Brazilian president is charged with planning a coup after losing the 2022 elections. He says he pursued only legal avenues to remain in power. Here is what to know about the trial.`\
-https://nytimes.com/2025/09/02/world/americas/jair-bolsonaro-coup-trial-what-to-know.html
+**'Are you joking with me?': Behind the scenes of a Cardinals' major-league debut**\
+`This is the behind-the-scenes machinery that allows a ballplayer's dreams to come true.`\
+https://nytimes.com/athletic/6586548/2025/09/02/st-louis-cardinals-mlb-debut/
 
