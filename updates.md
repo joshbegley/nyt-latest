@@ -1,3 +1,7 @@
+**From £3.6m Shearer to £125m Isak: How the Premier League transfer record has progressed**\
+`With Alexander Isak breaking the record here is a look at how the fees have grown since Alan Shearer joined Blackburn in 1992`\
+https://nytimes.com/athletic/6589032/2025/09/02/fisak-shearer-premier-league-transfer-record/
+
 **Carlos Alcaraz and the most overindexed tennis match in recent history**\
 `Alcaraz's wavering focus and up-and-down matches have created a false impression of a player who is on a remarkable winning streak.`\
 https://nytimes.com/athletic/6589518/2025/09/02/carlos-alcaraz-tennis-results-inconsistency-us-open/

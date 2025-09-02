@@ -1,3 +1,7 @@
+**From £3.6m Shearer to £125m Isak: How the Premier League transfer record has progressed**\
+`With Alexander Isak breaking the record here is a look at how the fees have grown since Alan Shearer joined Blackburn in 1992`\
+https://nytimes.com/athletic/6589032/2025/09/02/fisak-shearer-premier-league-transfer-record/
+
 **Carlos Alcaraz and the most overindexed tennis match in recent history**\
 `Alcaraz's wavering focus and up-and-down matches have created a false impression of a player who is on a remarkable winning streak.`\
 https://nytimes.com/athletic/6589518/2025/09/02/carlos-alcaraz-tennis-results-inconsistency-us-open/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/02/climate/research-extreme-heat-lab.html
 **The Supreme Court Is Backing Trump’s Power Grab**\
 `The legal scholar Kate Shaw discusses Donald Trump’s recent winning streak with the Supreme Court and what it means for the state of Constitution.`\
 https://nytimes.com/video/opinion/100000010367912/the-supreme-court-is-backing-trumps-power-grab.html
-
-**Ask The Morning: What Do You Want to Know About A.I.?**\
-`The technology seems to be everywhere these days. We’ll find experts to answer your questions.`\
-https://nytimes.com/2025/09/02/briefing/ask-the-morning-what-do-you-want-to-know-about-ai.html
 

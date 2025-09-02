@@ -1,3 +1,7 @@
+**Suntory Boss Resigns After Buying Supplement That May Be Illegal in Japan**\
+`Takeshi Niinami has stepped down from his post following a police investigation, underscoring Japan’s zero-tolerance drug policies.`\
+https://nytimes.com/2025/09/02/business/suntory-chairman-takeshi-niinami.html
+
 **From £3.6m Shearer to £125m Isak: How the Premier League transfer record has progressed**\
 `With Alexander Isak breaking the record here is a look at how the fees have grown since Alan Shearer joined Blackburn in 1992`\
 https://nytimes.com/athletic/6589032/2025/09/02/fisak-shearer-premier-league-transfer-record/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/02/opinion/trump-winning-imperial-presidency.html
 **Cue the Sun: This Lab Recreates Hot, Sweaty Days to Test Humans**\
 `Our reporter hits the treadmill to understand how scientists study extreme heat.`\
 https://nytimes.com/2025/09/02/climate/research-extreme-heat-lab.html
-
-**The Supreme Court Is Backing Trump’s Power Grab**\
-`The legal scholar Kate Shaw discusses Donald Trump’s recent winning streak with the Supreme Court and what it means for the state of Constitution.`\
-https://nytimes.com/video/opinion/100000010367912/the-supreme-court-is-backing-trumps-power-grab.html
 
