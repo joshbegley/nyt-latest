@@ -1,3 +1,11 @@
+**After Trump Says ‘We’re Going In’ to Chicago With Troops, Illinois Officials Slam Plan**\
+`Gov. JB Pritzker of Illinois said the state was ready to fight the Trump administration’s plan in court.`\
+https://nytimes.com/2025/09/02/us/politics/trump-chicago-national-guard-pritzker.html
+
+**My Secret for Finding Peace in Traffic**\
+`How a lifelong speedster learned to love the right lane.`\
+https://nytimes.com/2025/09/02/magazine/speeding-traffic.html
+
 **Trump’s L.A. Deployment Ruled Illegal**\
 `Also, Google is ordered share search data with rivals. Here’s the latest at the end of Tuesday.`\
 https://nytimes.com/2025/09/02/briefing/la-google-putin.html

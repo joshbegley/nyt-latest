@@ -1,3 +1,11 @@
+**After Trump Says ‘We’re Going In’ to Chicago With Troops, Illinois Officials Slam Plan**\
+`Gov. JB Pritzker of Illinois said the state was ready to fight the Trump administration’s plan in court.`\
+https://nytimes.com/2025/09/02/us/politics/trump-chicago-national-guard-pritzker.html
+
+**My Secret for Finding Peace in Traffic**\
+`How a lifelong speedster learned to love the right lane.`\
+https://nytimes.com/2025/09/02/magazine/speeding-traffic.html
+
 **Trump’s L.A. Deployment Ruled Illegal**\
 `Also, Google is ordered share search data with rivals. Here’s the latest at the end of Tuesday.`\
 https://nytimes.com/2025/09/02/briefing/la-google-putin.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/09/02/us/politics/trump-ai-video-trash-bag.html
 **Marketa Vondrousova pulls out of U.S. Open quarterfinal with Aryna Sabalenka with injury**\
 `The Czech has been through a run of injuries the past two years.`\
 https://nytimes.com/athletic/6593120/2025/09/02/vondrousova-us-open-withdrawal-injury/
-
-**Putin’s Propaganda War**\
-`Russian authorities are using a festival to showcase Moscow as a place where life is better than in the West.`\
-https://nytimes.com/2025/09/02/briefing/putin-propaganda-war-china-military-parade.html
-
-**Trump Wants Proof That Covid Vaccines Work. It’s Easy to Find.**\
-`In a post on Truth Social, the president suggested that the C.D.C. was being “ripped apart” over a question that was answered long ago.`\
-https://nytimes.com/2025/09/02/health/trump-covid-vaccines.html
 
