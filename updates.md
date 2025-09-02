@@ -1,3 +1,11 @@
+**Trump Relocates Space Command to Alabama, Reviving a First-Term Plan**\
+`President Trump said his decision was motivated in part by his grudge against Colorado, a state he lost in all three of his runs for president.`\
+https://nytimes.com/2025/09/02/us/politics/trump-space-command-alabama-colorado.html
+
+**Buccaneers agree to 4-year, $90 million extension with OT Luke Goedeke: Sources**\
+`The average annual value of Goedeke's deal ($22.5 million) is the third-highest among right tackles.`\
+https://nytimes.com/athletic/6593349/2025/09/02/buccaneers-luke-goedeke-extension/
+
 **Deadly Floods Hit Pakistan Again**\
 `Pakistan has been hit by a string of devastating floods this year that have brought devastation across the country of 250 million people.`\
 https://nytimes.com/video/world/100000010367079/deadly-floods-hit-pakistan-again.html
