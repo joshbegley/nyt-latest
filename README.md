@@ -1,3 +1,11 @@
+**Putin’s Propaganda War**\
+`Russian authorities are using a festival to showcase Moscow as a place where life is better than in the West.`\
+https://nytimes.com/2025/09/02/briefing/putin-propaganda-war-china-military-parade.html
+
+**Trump Wants Proof That Covid Vaccines Work. It’s Easy to Find.**\
+`In a post on Truth Social, the president suggested that the C.D.C. was being “ripped apart” over a question that was answered long ago.`\
+https://nytimes.com/2025/09/02/health/trump-covid-vaccines.html
+
 **Trump on Deploying Troops to Chicago: “We’re Going In”**\
 `President Trump said that he was planning on sending the National Guard to Chicago during a press conference on Tuesday. He did not offer details on the deployment’s timing.`\
 https://nytimes.com/video/us/politics/100000010374834/trump-deploy-national-guard-chicago.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6592923/2025/09/02/west-ham-boycott-sullivan-brady-
 **Judge Orders Google to Share Search Results to Help Resolve Monopoly**\
 `In a landmark antitrust case, Judge Amit P. Mehta ruled on Tuesday that Google must hand over some of its search data to rivals but did not grant the government’s biggest requests.`\
 https://nytimes.com/2025/09/02/technology/google-search-antitrust-decision.html
-
-**Donald Trump vs. the Wind Power Industry**\
-`Since taking office, President Trump has targeted the wind power industry, putting billions of dollars of investment and thousands of jobs at risk.`\
-https://nytimes.com/2025/09/02/climate/donald-trump-vs-the-wind-power-industry.html
-
-**Taxi Driver Runs Over Man Who Once Escaped Custody on a City Bus**\
-`James Mossetty was dragged for 10 blocks by the taxi, whose driver was arraigned on charges that he left the scene.`\
-https://nytimes.com/2025/09/02/nyregion/escapee-taxi-fatal-accident.html
 
