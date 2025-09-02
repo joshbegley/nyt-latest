@@ -1,3 +1,7 @@
+**Ederson leaves Man City for Fenerbahce in permanent transfer**\
+`Ederson's exit follows James Trafford's arrival from Burnley while Gianluigi Donnarumma is also set to join.`\
+https://nytimes.com/athletic/6365225/2025/09/02/ederson-fenerbahce-man-city-transfer/
+
 **Dele leaves Como by mutual consent to pursue 'regular playing opportunities'**\
 `"Dele is keen to secure regular playing opportunities and..was not part of the club’s immediate plans," said Como.`\
 https://nytimes.com/athletic/6542114/2025/09/02/dele-alli-leaves-como-contract-termination/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6588753/2025/09/02/inside-newcastle-united-transfer
 **Tottenham Hotspur's transfer window: A story of heady expectation, frustration and, in the end, excitement**\
 `Thomas Frank's first summer in charge was far from plain sailing, but Tottenham's team is stronger than it was at the end of last season`\
 https://nytimes.com/athletic/6590089/2025/09/02/tottenham-frank-levy-simons-kudus-eze-gibbs-white-transfers/
-
-**The summer of Berta: Agent contacts, getting Gyokeres and 'obligation vs option'**\
-`Arsenal's new sporting director oversaw a huge summer of investment - this is the story behind how he did it`\
-https://nytimes.com/athletic/6588110/2025/09/02/arsenal-transfers-andrea-berta-arteta/
 
