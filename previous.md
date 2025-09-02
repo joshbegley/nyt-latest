@@ -1,40 +1,40 @@
-**Trump Says He’ll Give Giuliani the Presidential Medal of Freedom**\
-`President Trump’s announcement came days after Rudolph W. Giuliani, his former lawyer and a onetime New York City mayor, was hurt in a car accident.`\
-https://nytimes.com/2025/09/02/us/politics/trump-giuliani-presidential-medal-freedom.html
+**Why Bengals' RB Chase Brown is 'going to be a problem this season'**\
+`Cincinnati is tailoring its running game around the third-year back who broke how down the stretch last season.`\
+https://nytimes.com/athletic/6590868/2025/09/02/chase-brown-2025-cincinnati-bengals/
 
-**The Pulse: Belichick's debut could not have gone worse**\
-`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
-https://nytimes.com/athletic/6589844/2025/09/02/bill-belichick-debut-tcu-the-pulse/
+**NFL 2025 rule changes: Celebration penalties, expanded instant replay and more**\
+`The dynamic kickoff is here to stay and overtime rules have been adjusted so both teams will have a possession no matter what. `\
+https://nytimes.com/athletic/6579710/2025/09/02/nfl-2025-rule-changes-celebrations-overtime-replay/
 
-**Kyle Shanahan, Sean McVay top defensive peers' ratings of NFL's offensive play callers**\
-`A sample of NFL defensive coordinators and coaches say who they think is best at designing and executing an offense.`\
-https://nytimes.com/athletic/6585385/2025/09/02/kyle-shanahan-sean-mcvay-top-defensive-peers-ratings-of-nfls-offensive-play-callers/
+**Week 1 panic meter: Should Texas be worried about Arch Manning? Code red at Alabama?**\
+`Not every hot take is an overreaction. Sometimes, it's quite clear — even after one game — that things are heading in the wrong direction.`\
+https://nytimes.com/athletic/6590220/2025/09/02/college-football-overreaction-arch-manning-kalen-deboer/
 
-**Kraft Heinz to Break Up Its Food Businesses**\
-`A planned split-up of the mega company that makes products from Velveeta to Kool-Aid comes as consumers shift away from processed food.`\
-https://nytimes.com/2025/09/02/business/kraft-heinz-break-up.html
+**Notre Dame-Miami final thoughts: Whose fault was CJ Carr's interception?**\
+`The Irish got their quarterback decision right. But they also were beaten at their own game by the Hurricanes.`\
+https://nytimes.com/athletic/6591015/2025/09/02/notre-dame-miami-cj-carr-jeremiyah-love/
 
-**Kim Jong-un Takes a Slow (but Bulletproof) Train to China**\
-`The North Korean leader’s favorite mode of transportation provides him — like his father and grandfather before him — with tight security. But it’s no express train.`\
-https://nytimes.com/2025/09/02/world/asia/kim-north-korea-train.html
+**Why Week 2 is the Big Ten's ultimate prove-it Saturday**\
+`With two consecutive national titles and a blissful start to 2025, the Big Ten has earned the right to flex. But now, the moment’s over.`\
+https://nytimes.com/athletic/6589843/2025/09/02/big-ten-football-nonconference-schedule-depth/
 
-**Panthers cut Hunter Renfrow, now he's back as Week 1 starter: 'It's been a whirlwind'**\
-`After a series of events, Hunter Renfrow's return to the NFL is back on track and he'll start Sunday for the Panthers in Jacksonville.`\
-https://nytimes.com/athletic/6590571/2025/09/02/hunter-renfrow-panthers-starter-jaguars/
+**Rookie Drew Gilbert is bringing goofy, collegiate energy — and Giants love it**\
+`The 5-foot-9 "lightning bolt" has brought a much-needed dose of fun and enthusiasm to the San Francisco clubhouse.`\
+https://nytimes.com/athletic/6591099/2025/09/02/giants-rookie-drew-gilbert-goofy-energy/
 
-**What I’m seeing from the Cowboys: Big year from George Pickens, lots of RB questions**\
-`Pickens has been on good behavior and looks like he'll be a big asset to the Cowboys' offense.`\
-https://nytimes.com/athletic/6590857/2025/09/02/dallas-cowboys-preview-george-pickens/
+**Premier League's record-breaking window: £3.11bn spent, more than other top leagues combined**\
+`This was a record breaking window for the Premier League in terms of gross spend — no window before has been like it`\
+https://nytimes.com/athletic/6590530/2025/09/02/premier-league-transfer-window-numbers-record/
 
-**Chicago Bears roster by the numbers: Improved O-line for Caleb Williams**\
-`As the Bears open the 2025 season, how does their roster stack up? How experienced is it, and how much better does it look than 2024?`\
-https://nytimes.com/athletic/6589911/2025/09/02/bears-roster-numbers-ben-johnson-caleb-williams/
+**The 10 best things I saw in high school football over the weekend**\
+`Five-star Georgia commit Jared Curtis showed off his dual-threat ability in a big win for Nashville Christian Academy. `\
+https://nytimes.com/athletic/6589489/2025/09/02/college-football-recruiting-thoughts-week-1/
 
-**How Justin Jefferson has become a face of the NFL: He's 'different because he's real'**\
-`The Vikings wide receiver is a bona fide superstar on the field, but his persona off it is just as appealing to brands and fans alike.`\
-https://nytimes.com/athletic/6584711/2025/09/02/justin-jefferson-vikings-face-nfl-image/
+**Pauline Ferrand-Prevot on winning the Tour de France Femmes, weight loss, and descending tips from Tom Pidcock**\
+`The 2025 Tour de France Femmes winner speaks to The Athletic about a momentous year on the bike`\
+https://nytimes.com/athletic/6588917/2025/09/02/pauline-ferrand-prevot-interview-tour-de-france/
 
-**Jared Goff ready to take on more in Lions' post-Ben Johnson era**\
-`“This thing is set up for Goff to have success with our playmakers," Dan Campbell said of the Lions quarterback.`\
-https://nytimes.com/athletic/6590287/2025/09/02/jared-goff-lions-offensive-coordinator/
+**Introducing The Soccer 100: A celebration of the greatest players in the sport’s history**\
+`The Athletic is delighted to announce the upcoming release of The Soccer 100, profiling players from Pele to Puskas, Maradona to Messi`\
+https://nytimes.com/athletic/6578432/2025/09/02/soccer-100-athletic-harper-collins/
 
