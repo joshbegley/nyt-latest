@@ -1,3 +1,15 @@
+**Diamondbacks lose Lourdes Guirrel Jr. to torn right ACL after outfield mishap**\
+`It’s the latest setback for a Diamondbacks team that has suffered several this season. `\
+https://nytimes.com/athletic/6593179/2025/09/02/az-diamondbacks-lourdes-gurriel-jr-injury/
+
+**What the Fixes for Google’s Search Monopoly Mean for You: It’s a ‘Nothingburger’**\
+`A federal judge’s remedy stops short of making meaningful changes to how we use our phones, computers and the web.`\
+https://nytimes.com/2025/09/02/technology/personaltech/what-the-fixes-for-googles-search-monopoly-mean-for-you-its-a-nothingburger.html
+
+**Trump Says U.S. Attacked Boat Carrying Venezuelan Gang Members, Killing 11**\
+`The vessel was transporting illegal narcotics through international waters to the United States, the president said.`\
+https://nytimes.com/2025/09/02/us/politics/trump-venezuela-boat-drugs-attack.html
+
 **Trump Relocates Space Command to Alabama, Reviving a First-Term Plan**\
 `President Trump said his decision was motivated in part by his grudge against Colorado, a state he lost in all three of his runs for president.`\
 https://nytimes.com/2025/09/02/us/politics/trump-space-command-alabama-colorado.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6593320/2025/09/02/venus-williams-us-open-doubles-l
 **What a Ruling to Fix Google’s Search Monopoly Means for the Company**\
 `The judge’s decision positions Google to keep its search business running largely without interruption.`\
 https://nytimes.com/2025/09/02/technology/google-antitrust-case-ruling.html
-
-**An NFL play is now sponsored. It's the Tush Push (presented by DUDE Wipes)**\
-`The partnership will include social content, product sampling at Eagles events and postgame radio highlights of successful tush push plays.`\
-https://nytimes.com/athletic/6593114/2025/09/02/nfl-tush-push-sponsor-philadelphia-eagles/
-
-**President Trump Is Alive. The Internet Was Convinced Otherwise.**\
-`In the world of presidential health, distrust and speculation run so rampant that even Mr. Trump’s online assurance that he was fine was immediately explained away as part of a cover-up.`\
-https://nytimes.com/2025/09/02/us/politics/trump-health-bruise-conspiracies.html
-
-**After Trump Says ‘We’re Going In’ to Chicago With Troops, Illinois Officials Slam Plan**\
-`Gov. JB Pritzker of Illinois said the state was ready to fight the Trump administration’s plan in court.`\
-https://nytimes.com/2025/09/02/us/politics/trump-chicago-national-guard-pritzker.html
 

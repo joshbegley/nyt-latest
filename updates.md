@@ -1,3 +1,15 @@
+**Diamondbacks lose Lourdes Guirrel Jr. to torn right ACL after outfield mishap**\
+`It’s the latest setback for a Diamondbacks team that has suffered several this season. `\
+https://nytimes.com/athletic/6593179/2025/09/02/az-diamondbacks-lourdes-gurriel-jr-injury/
+
+**What the Fixes for Google’s Search Monopoly Mean for You: It’s a ‘Nothingburger’**\
+`A federal judge’s remedy stops short of making meaningful changes to how we use our phones, computers and the web.`\
+https://nytimes.com/2025/09/02/technology/personaltech/what-the-fixes-for-googles-search-monopoly-mean-for-you-its-a-nothingburger.html
+
+**Trump Says U.S. Attacked Boat Carrying Venezuelan Gang Members, Killing 11**\
+`The vessel was transporting illegal narcotics through international waters to the United States, the president said.`\
+https://nytimes.com/2025/09/02/us/politics/trump-venezuela-boat-drugs-attack.html
+
 **Trump Relocates Space Command to Alabama, Reviving a First-Term Plan**\
 `President Trump said his decision was motivated in part by his grudge against Colorado, a state he lost in all three of his runs for president.`\
 https://nytimes.com/2025/09/02/us/politics/trump-space-command-alabama-colorado.html
