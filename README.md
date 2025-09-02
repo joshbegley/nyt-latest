@@ -1,3 +1,7 @@
+**Braves (especially Jurickson Profar) excited to add Ha-Seong Kim to roster**\
+`Braves hope Kim, a waiver claim from Padres, can lock down their shortstop position.`\
+https://nytimes.com/athletic/6591039/2025/09/01/braves-ha-seong-kim-jurickson-profar/
+
 **Kind of Wave**\
 `Is Rena Cohen going soft on us?`\
 https://nytimes.com/2025/09/01/crosswords/daily-puzzle-2025-09-02.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6590711/2025/09/01/juan-soto-grand-slam-mets-tigers
 **Coco Gauff's serve dominated her U.S. Open. Another shot ended it.**\
 `Gauff's serve remodel loomed over her tournament. It might be her forehand, which Naomi Osaka broke down to beat her, that matters more.`\
 https://nytimes.com/athletic/6590752/2025/09/01/coco-gauff-serve-forehand-us-open/
-
-**Trump Family Profits Even With Tepid Launch of Crypto Tokens**\
-`World Liberty Financial’s cryptocurrency token fell short of investors’ hopes. But a previous deal paved the way for a payment to the Trump family of potentially hundreds of millions of dollars.`\
-https://nytimes.com/2025/09/01/us/politics/trump-crypto-trading.html
 
