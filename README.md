@@ -1,3 +1,7 @@
+**Palace's Wharton set to miss three weeks with adductor injury**\
+`Wharton had to withdraw from Thomas Tuchel's England squad for their upcoming World Cup qualifying matches against Andorra and Serbia.`\
+https://nytimes.com/athletic/6592609/2025/09/02/adam-wharton-injury-update-crystal-palace-news/
+
 **Netanyahu Faces High-Level Opposition to His Stance on Gaza Truce**\
 `High-level political and security figures are said to be resisting the prime minister’s demand for a comprehensive deal to end the war in Gaza.`\
 https://nytimes.com/2025/09/02/world/middleeast/netanyahu-israel-gaza-war-ceasefire.html
@@ -33,8 +37,4 @@ https://nytimes.com/newsgraphics/card-story/london-cabbage
 **Court Hands a Loss to Groups Seeking Billions in Frozen Climate Funds**\
 `The nonprofit organizations are fighting a Trump administration effort to claw back climate and clean energy grants.`\
 https://nytimes.com/2025/09/02/climate/climate-grants-frozen.html
-
-**At Venice, ‘A House of Dynamite’ Is Scarier Than Most Horror Films**\
-`The Kathryn Bigelow thriller looks at what might happen if a ballistic missile were headed to the U.S. The director hopes the movie will start a conversation.`\
-https://nytimes.com/2025/09/02/movies/kathryn-bigelow-a-house-of-dynamite-venice-film-festival.html
 
