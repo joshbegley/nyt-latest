@@ -3,7 +3,7 @@
 https://nytimes.com/interactive/2025/09/02/us/politics/slaughtertrumpcadcord090225.html
 
 **House Oversight Panel Releases 33,000 Pages of Epstein Files as Pressure Mounts**\
-`The committee made the move as Republican leaders sought to persuade colleagues not to join an effort to force a vote on the full disclosure of material.`\
+`The move came as Republican leaders pressed colleagues not to force a vote on disclosing all the material. Most of what was released Tuesday was not new.`\
 https://nytimes.com/2025/09/02/us/politics/epstein-files-release-house-oversight.html
 
 **Diamondbacks lose Lourdes Gurriel Jr. to torn right ACL after outfield mishap**\
