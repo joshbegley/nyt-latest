@@ -1,3 +1,15 @@
+**Leafs sign goalie Dennis Hildeby to unconventional 3-year contract extension**\
+`The 6-foot-7 2022 fourth-round pick led all Marlies in games played in 2024-25, while also making six appearances in his rookie NHL season.`\
+https://nytimes.com/athletic/6592192/2025/09/02/maple-leafs-dennis-hildeby-contract-extension/
+
+**NY Giants name Jaxson Dart backup QB on depth chart**\
+`Dart will serve as Russell Wilson's primary backup. `\
+https://nytimes.com/athletic/6592360/2025/09/02/ny-giants-jaxson-dart-backup-qb/
+
+**Prime Tire: Norris' blown engine changes things. Plus: Carlos Sainz's frustration**\
+`Welcome to Prime Tire, The Athletic's Formula 1 newsletter`\
+https://nytimes.com/athletic/6590468/2025/09/02/lando-norris-engine-dutch-gp-carlos-sainz-stewards-prime-tire/
+
 **How Fining Elon Musk’s X Could Threaten the U.S.-E.U. Trade Deal**\
 `The European Union is expected to penalize the company, which has been accused of breaching the Digital Services Act, a law President Trump has criticized.`\
 https://nytimes.com/2025/09/02/business/dealbook/elon-musk-x-europe-trump.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6592158/2025/09/02/josh-sargent-norwich-transfer-de
 **Canucks 23-man roster projection: Who's a lock? Who has something to prove?**\
 `There is an unusually large number of spots on the 23-man roster at training camp that will be earmarked for rookies and sophomore players.`\
 https://nytimes.com/athletic/6583580/2025/09/02/canucks-roster-projection-2025-26/
-
-**Fantasy football predictions for all 32 NFL teams**\
-`KC Joyner gives a bold prediction for every NFL team. Can Patrick Mahomes be a top-six QB? Joyner thinks so.`\
-https://nytimes.com/athletic/6591651/2025/09/02/fantasy-football-predictions-nfl-teams/
-
-**Tracking Tropical Storm Lorena**\
-`See the likely path and wind arrival times for Lorena`\
-https://nytimes.com/interactive/2025/weather/lorena-map-path-tracker.html
-
-**CELLRESEARCH ADPOST Q3 25 #2**\
-`CELLRESEARCH ADPOST Q3 25 #2`\
-https://nytimes.com/paidpost/2025-08-08/cellresearch-adpost-q3-25-2/cellresearch-adpost-q3-25-2.html
 

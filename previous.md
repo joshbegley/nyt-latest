@@ -1,3 +1,15 @@
+**How Fining Elon Musk’s X Could Threaten the U.S.-E.U. Trade Deal**\
+`The European Union is expected to penalize the company, which has been accused of breaching the Digital Services Act, a law President Trump has criticized.`\
+https://nytimes.com/2025/09/02/business/dealbook/elon-musk-x-europe-trump.html
+
+**Jair Bolsonaro, Charged With Plotting a Coup, Is Not at His Trial**\
+`Brazil’s Supreme Court began judging the case against the former president, who did not attend the proceedings because of poor health, his defense team said.`\
+https://nytimes.com/2025/09/02/world/americas/bolsonaro-trial-brazil.html
+
+**Houston Man Is Charged in Boy’s Killing Over ‘Ding Dong Ditch’ Prank**\
+`The man, facing a murder charge, is accused of firing at an 11-year-old boy who rang a doorbell and ran away as part of a prank, the police said.`\
+https://nytimes.com/2025/09/02/us/ding-dong-ditch-shooting-boy-murder.html
+
 **Who should I drop in fantasy football? Joe Mixon, Keenan Allen and more cut candidates**\
 `Gary Davenport offers his first drops list of the 2025 fantasy football campaign. How old is too old?`\
 https://nytimes.com/athletic/6592015/2025/09/02/week-1-fantasy-football-drops-mixon-allen/
@@ -25,16 +37,4 @@ https://nytimes.com/interactive/2025/weather/lorena-map-path-tracker.html
 **CELLRESEARCH ADPOST Q3 25 #2**\
 `CELLRESEARCH ADPOST Q3 25 #2`\
 https://nytimes.com/paidpost/2025-08-08/cellresearch-adpost-q3-25-2/cellresearch-adpost-q3-25-2.html
-
-**How to watch Rangers at Diamondbacks: Time, TV, streaming**\
-`Find out how to watch the Texas Rangers play the Arizona Diamondbacks, with time, TV channel, and streaming information.`\
-https://nytimes.com/athletic/6592276/2025/09/02/texas-rangers-vs-arizona-diamondbacks-stream-how-to-watch-sept-2/
-
-**How to watch Angels at Royals: Time, TV, streaming**\
-`Find out how to watch the Los Angeles Angels play the Kansas City Royals, with time, TV channel, and streaming information.`\
-https://nytimes.com/athletic/6592271/2025/09/02/los-angeles-angels-vs-kansas-city-royals-stream-how-to-watch-sept-2/
-
-**How to watch Yankees at Astros: Time, TV, streaming**\
-`Find out how to watch the New York Yankees play the Houston Astros, with time, TV channel, and streaming information.`\
-https://nytimes.com/athletic/6592269/2025/09/02/new-york-yankees-vs-houston-astros-stream-how-to-watch-sept-2/
 
