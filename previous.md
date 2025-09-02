@@ -1,3 +1,7 @@
+**President Trump Is Alive. The Internet Was Convinced Otherwise.**\
+`In the world of presidential health, distrust and speculation run so rampant that even Mr. Trump’s online assurance that he was fine was immediately explained away as part of a cover-up.`\
+https://nytimes.com/2025/09/02/us/politics/trump-health-bruise-conspiracies.html
+
 **After Trump Says ‘We’re Going In’ to Chicago With Troops, Illinois Officials Slam Plan**\
 `Gov. JB Pritzker of Illinois said the state was ready to fight the Trump administration’s plan in court.`\
 https://nytimes.com/2025/09/02/us/politics/trump-chicago-national-guard-pritzker.html
@@ -7,7 +11,7 @@ https://nytimes.com/2025/09/02/us/politics/trump-chicago-national-guard-pritzker
 https://nytimes.com/2025/09/02/magazine/speeding-traffic.html
 
 **Trump’s L.A. Deployment Ruled Illegal**\
-`Also, Google is ordered share search data with rivals. Here’s the latest at the end of Tuesday.`\
+`Also, Google is ordered to share search data with rivals. Here’s the latest at the end of Tuesday.`\
 https://nytimes.com/2025/09/02/briefing/la-google-putin.html
 
 **Xi’s Parade Will Send the Message: China Will Not Be Bullied Again**\
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/02/technology/personaltech/chatgpt-parental-controls
 **Trump Reveals a New Strategy for Dealing With Bad News: Blame A.I.**\
 `President Trump blamed A.I. for a widely shared video of a trash bag being thrown from a White House window. But the White House had already confirmed it was real.`\
 https://nytimes.com/2025/09/02/us/politics/trump-ai-video-trash-bag.html
-
-**Marketa Vondrousova pulls out of U.S. Open quarterfinal with Aryna Sabalenka with injury**\
-`The Czech has been through a run of injuries the past two years.`\
-https://nytimes.com/athletic/6593120/2025/09/02/vondrousova-us-open-withdrawal-injury/
 

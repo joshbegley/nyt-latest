@@ -1,3 +1,11 @@
+**President Trump Is Alive. The Internet Was Convinced Otherwise.**\
+`In the world of presidential health, distrust and speculation run so rampant that even Mr. Trump’s online assurance that he was fine was immediately explained away as part of a cover-up.`\
+https://nytimes.com/2025/09/02/us/politics/trump-health-bruise-conspiracies.html
+
+**Trump’s L.A. Deployment Ruled Illegal**\
+`Also, Google is ordered to share search data with rivals. Here’s the latest at the end of Tuesday.`\
+https://nytimes.com/2025/09/02/briefing/la-google-putin.html
+
 **After Trump Says ‘We’re Going In’ to Chicago With Troops, Illinois Officials Slam Plan**\
 `Gov. JB Pritzker of Illinois said the state was ready to fight the Trump administration’s plan in court.`\
 https://nytimes.com/2025/09/02/us/politics/trump-chicago-national-guard-pritzker.html
