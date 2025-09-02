@@ -1,3 +1,11 @@
+**What a Ruling to Fix Google’s Search Monopoly Means for the Company**\
+`The judge’s decision positions Google to keep its search business running largely without interruption.`\
+https://nytimes.com/2025/09/02/technology/google-antitrust-case-ruling.html
+
+**An NFL play is now sponsored. It's the Tush Push (presented by DUDE Wipes)**\
+`The partnership will include social content, product sampling at Eagles events and postgame radio highlights of successful tush push plays.`\
+https://nytimes.com/athletic/6593114/2025/09/02/nfl-tush-push-sponsor-philadelphia-eagles/
+
 **President Trump Is Alive. The Internet Was Convinced Otherwise.**\
 `In the world of presidential health, distrust and speculation run so rampant that even Mr. Trump’s online assurance that he was fine was immediately explained away as part of a cover-up.`\
 https://nytimes.com/2025/09/02/us/politics/trump-health-bruise-conspiracies.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/09/02/opinion/google-antitrust-ruling-data-business.htm
 **Cook’s Lawyers Fire Back at Trump’s Claim of Vast Powers to Oust Fed Officials**\
 `Lisa Cook is seeking a swift ruling on her ability to remain on the Federal Reserve’s Board of Governors as the case is litigated.`\
 https://nytimes.com/2025/09/02/business/trump-fed-lisa-cook.html
-
-**OpenAI Plans to Add Safeguards to ChatGPT for Teens and Others in Distress**\
-`After a California teenager spent months on ChatGPT discussing plans to end his life, OpenAI said it would introduce parental controls and better responses for users in distress.`\
-https://nytimes.com/2025/09/02/technology/personaltech/chatgpt-parental-controls-openai.html
-
-**Trump Reveals a New Strategy for Dealing With Bad News: Blame A.I.**\
-`President Trump blamed A.I. for a widely shared video of a trash bag being thrown from a White House window. But the White House had already confirmed it was real.`\
-https://nytimes.com/2025/09/02/us/politics/trump-ai-video-trash-bag.html
 
