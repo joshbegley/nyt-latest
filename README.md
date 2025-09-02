@@ -1,5 +1,5 @@
-**With the Carlos Santana addition, the Cubs hope they can finally solve their bench issues**\
-`Santana, 39, isn't having his most productive season but the Cubs hope he can provide quality at-bats in limited playing time.`\
+**With Carlos Santana addition, Cubs hope they can finally solve bench issues**\
+`Santana, 39, isn't having his most productive season, but the Cubs hope he can provide quality at-bats in limited playing time.`\
 https://nytimes.com/athletic/6590819/2025/09/01/cubs-carlos-santana-signing-bench/
 
 **Man apologizes for snatching Kamil Majchrzak's hat from child at U.S. Open**\
