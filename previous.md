@@ -1,5 +1,21 @@
+**Judge Orders Google to Share Search Results to Help Resolve Monopoly**\
+`Judge Amit P. Mehta ruled on Tuesday that Google must hand over some of its search data to rivals, in a landmark antitrust case.`\
+https://nytimes.com/2025/09/02/technology/google-search-antitrust-decision.html
+
+**Donald Trump vs. the Wind Power Industry**\
+`Since taking office, President Trump has targeted the wind power industry, putting billions of dollars of investment and thousands of jobs at risk.`\
+https://nytimes.com/2025/09/02/climate/donald-trump-vs-the-wind-power-industry.html
+
+**Taxi Driver Runs Over Man Who Once Escaped Custody on a City Bus**\
+`James Mossetty was dragged for 10 blocks by the taxi, whose driver was arraigned on charges that he left the scene.`\
+https://nytimes.com/2025/09/02/nyregion/escapee-taxi-fatal-accident.html
+
+**Will the Real Sabrina Carpenter Please Stand Up?**\
+`On “Short n’ Sweet” last year, the singer became one of pop’s new queens of quirk. On its follow-up, “Man’s Best Friend,” she’s hiding behind her characters.`\
+https://nytimes.com/2025/09/02/arts/music/sabrina-carpenter-mans-best-friend-review.html
+
 **Colorado's Deion Sanders defends late clock management vs. Georgia Tech**\
-`Sanders says freshman quarterback Julian Lewis will play for the Buffaloes this week against Delaware, but it's unclear if he'll start.`\
+`Sanders says freshman quarterback Julian Lewis will play for the Buffaloes this week against Delaware.`\
 https://nytimes.com/athletic/6592736/2025/09/02/colorado-deion-sanders-clock-management-georgia-tech/
 
 **Walden Suspends Campaign for Mayor of New York City**\
@@ -21,20 +37,4 @@ https://nytimes.com/2025/09/02/us/trump-military-cities.html
 **Wizards' Alex Sarr ruled out for remainder of EuroBasket with calf injury**\
 `French officials said Sarr suffered the injury against Slovenia, and he sat out Sunday when France lost to Israel 82-69.`\
 https://nytimes.com/athletic/6592762/2025/09/02/wizards-alex-sarr-calf-injury-eurobasket-2025/
-
-**In a Rare Sign of Protest, a Chinese Activist Challenges the C.C.P.**\
-`In an act of defiance against China’s Communist Party, an activist projected anti-C.C.P. slogans on a building and managed to flee one of the world’s most surveilled countries without being caught.`\
-https://nytimes.com/video/world/asia/100000010373967/china-chongqing-protest.html
-
-**Easy Slow Cooker Recipes That Won’t Heat Up Your Kitchen**\
-`(No description)`\
-https://nytimes.com/newsgraphics/card-story/slow-cooker-summer-recipes
-
-**gws-giuseppe-porcelli-milan-apartment**\
-`(No description)`\
-https://nytimes.com/newsgraphics/card-story/giuseppe-porcelli-milan-apartment
-
-**Submit a question for Hunter Patterson’s offseason Pistons mailbag**\
-`NBA opening night is roughly a month and a half out, but media day for the Detroit Pistons is scheduled for the end of September.`\
-https://nytimes.com/athletic/6592519/2025/09/02/pistons-cade-cunningham-mailbag/
 

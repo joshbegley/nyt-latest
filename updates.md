@@ -1,3 +1,23 @@
+**Judge Orders Google to Share Search Results to Help Resolve Monopoly**\
+`Judge Amit P. Mehta ruled on Tuesday that Google must hand over some of its search data to rivals, in a landmark antitrust case.`\
+https://nytimes.com/2025/09/02/technology/google-search-antitrust-decision.html
+
+**Donald Trump vs. the Wind Power Industry**\
+`Since taking office, President Trump has targeted the wind power industry, putting billions of dollars of investment and thousands of jobs at risk.`\
+https://nytimes.com/2025/09/02/climate/donald-trump-vs-the-wind-power-industry.html
+
+**Taxi Driver Runs Over Man Who Once Escaped Custody on a City Bus**\
+`James Mossetty was dragged for 10 blocks by the taxi, whose driver was arraigned on charges that he left the scene.`\
+https://nytimes.com/2025/09/02/nyregion/escapee-taxi-fatal-accident.html
+
+**Will the Real Sabrina Carpenter Please Stand Up?**\
+`On “Short n’ Sweet” last year, the singer became one of pop’s new queens of quirk. On its follow-up, “Man’s Best Friend,” she’s hiding behind her characters.`\
+https://nytimes.com/2025/09/02/arts/music/sabrina-carpenter-mans-best-friend-review.html
+
+**Colorado's Deion Sanders defends late clock management vs. Georgia Tech**\
+`Sanders says freshman quarterback Julian Lewis will play for the Buffaloes this week against Delaware.`\
+https://nytimes.com/athletic/6592736/2025/09/02/colorado-deion-sanders-clock-management-georgia-tech/
+
 **Colorado's Deion Sanders defends late clock management vs. Georgia Tech**\
 `Sanders says freshman quarterback Julian Lewis will play for the Buffaloes this week against Delaware, but it's unclear if he'll start.`\
 https://nytimes.com/athletic/6592736/2025/09/02/colorado-deion-sanders-clock-management-georgia-tech/
