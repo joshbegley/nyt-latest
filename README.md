@@ -15,7 +15,7 @@ https://nytimes.com/2025/09/02/nyregion/escapee-taxi-fatal-accident.html
 https://nytimes.com/2025/09/02/arts/music/sabrina-carpenter-mans-best-friend-review.html
 
 **Colorado's Deion Sanders defends late clock management vs. Georgia Tech**\
-`Sanders says freshman quarterback Julian Lewis will play for the Buffaloes this week against Delaware, but it's unclear if he'll start.`\
+`Sanders says freshman quarterback Julian Lewis will play for the Buffaloes this week against Delaware.`\
 https://nytimes.com/athletic/6592736/2025/09/02/colorado-deion-sanders-clock-management-georgia-tech/
 
 **Walden Suspends Campaign for Mayor of New York City**\
