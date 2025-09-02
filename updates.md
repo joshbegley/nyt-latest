@@ -1,3 +1,11 @@
+**Trump’s L.A. Deployment Ruled Illegal**\
+`Also, Google is ordered share search data with rivals. Here’s the latest at the end of Tuesday.`\
+https://nytimes.com/2025/09/02/briefing/la-google-putin.html
+
+**Xi’s Parade Will Send the Message: China Will Not Be Bullied Again**\
+`The show of firepower in Beijing, to be attended by President Vladimir V. Putin, is designed to show that China is strong enough to resist pressure from foreign powers.`\
+https://nytimes.com/2025/09/02/world/asia/xi-putin-kim-parade.html
+
 **Under New Law, Greece Can Imprison Rejected Asylum Seekers**\
 `A surge in migrants landing on Crete this summer has diminished, but Greece is hoping to deter future undocumented immigration.`\
 https://nytimes.com/2025/09/02/world/europe/greece-asylum-seekers.html
