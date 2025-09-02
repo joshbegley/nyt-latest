@@ -30,7 +30,3 @@ https://nytimes.com/2025/09/02/dining/nyc-restaurant-news.html
 `Ohio State jumped to the top spot in the odds to win the national title after beating Texas in Week 1. The Longhorns are still in the mix.`\
 https://nytimes.com/athletic/6592178/2025/09/02/college-football-national-title-odds-ohio-state-texas/
 
-**Tracing the Causes of the Rise of Nihilism**\
-`Readers respond to a column by David Brooks. Also: Juxtaposing a Nobel Peace Prize and a Department of War.`\
-https://nytimes.com/2025/09/02/opinion/nihilism-conservatism.html
-
