@@ -1,3 +1,7 @@
+**Ederson leaves Man City for Fenerbahce in permanent transfer**\
+`Ederson's exit follows James Trafford's arrival from Burnley while Gianluigi Donnarumma is also set to join.`\
+https://nytimes.com/athletic/6365225/2025/09/02/ederson-fenerbahce-man-city-transfer/
+
 **Dele leaves Como by mutual consent to pursue 'regular playing opportunities'**\
 `"Dele is keen to secure regular playing opportunities and..was not part of the club’s immediate plans," said Como.`\
 https://nytimes.com/athletic/6542114/2025/09/02/dele-alli-leaves-como-contract-termination/
