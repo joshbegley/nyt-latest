@@ -1,3 +1,11 @@
+**Colorado's Deion Sanders defends late clock management vs. Georgia Tech**\
+`Sanders says freshman quarterback Julian Lewis will play for the Buffaloes this week against Delaware, but it's unclear if he'll start.`\
+https://nytimes.com/athletic/6592736/2025/09/02/colorado-deion-sanders-clock-management-georgia-tech/
+
+**Walden Suspends Campaign for Mayor of New York City**\
+`Jim Walden, who was polling a distant fifth in November’s election, dropped out on Tuesday. He urged other rivals to consider doing the same in a bid to defeat Zohran Mamdani.`\
+https://nytimes.com/2025/09/02/nyregion/jim-walden-mayor-campaign.html
+
 **College football Week 2 odds: Oklahoma hosts Michigan in prime time**\
 `College football's Week 2 slate isn't as loaded as Week 1, but there are some rivalry games among the headliners.`\
 https://nytimes.com/athletic/6592100/2025/09/02/college-football-week-2-odds-oklahoma-michigan/

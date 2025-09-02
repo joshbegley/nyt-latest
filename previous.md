@@ -1,3 +1,11 @@
+**Colorado's Deion Sanders defends late clock management vs. Georgia Tech**\
+`Sanders says freshman quarterback Julian Lewis will play for the Buffaloes this week against Delaware, but it's unclear if he'll start.`\
+https://nytimes.com/athletic/6592736/2025/09/02/colorado-deion-sanders-clock-management-georgia-tech/
+
+**Walden Suspends Campaign for Mayor of New York City**\
+`Jim Walden, who was polling a distant fifth in November’s election, dropped out on Tuesday. He urged other rivals to consider doing the same in a bid to defeat Zohran Mamdani.`\
+https://nytimes.com/2025/09/02/nyregion/jim-walden-mayor-campaign.html
+
 **College football Week 2 odds: Oklahoma hosts Michigan in prime time**\
 `College football's Week 2 slate isn't as loaded as Week 1, but there are some rivalry games among the headliners.`\
 https://nytimes.com/athletic/6592100/2025/09/02/college-football-week-2-odds-oklahoma-michigan/
@@ -29,12 +37,4 @@ https://nytimes.com/newsgraphics/card-story/giuseppe-porcelli-milan-apartment
 **Submit a question for Hunter Patterson’s offseason Pistons mailbag**\
 `NBA opening night is roughly a month and a half out, but media day for the Detroit Pistons is scheduled for the end of September.`\
 https://nytimes.com/athletic/6592519/2025/09/02/pistons-cade-cunningham-mailbag/
-
-**Fantasy hockey cheat sheet: League-specific rankings, projections for 2025-26**\
-`It's here! Dom Luszczyszyn shares his league-specific player rankings and projections for the 2025-26 fantasy hockey campaign.`\
-https://nytimes.com/athletic/6587625/2025/09/02/fantasy-hockey-cheat-sheet-rankings-projections-2025-26/
-
-**gws-dude-ranches**\
-`(No description)`\
-https://nytimes.com/newsgraphics/card-story/dude-ranches
 
