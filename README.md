@@ -1,3 +1,11 @@
+**Trump’s L.A. Deployment Ruled Illegal**\
+`Also, Google is ordered share search data with rivals. Here’s the latest at the end of Tuesday.`\
+https://nytimes.com/2025/09/02/briefing/la-google-putin.html
+
+**Xi’s Parade Will Send the Message: China Will Not Be Bullied Again**\
+`The show of firepower in Beijing, to be attended by President Vladimir V. Putin, is designed to show that China is strong enough to resist pressure from foreign powers.`\
+https://nytimes.com/2025/09/02/world/asia/xi-putin-kim-parade.html
+
 **Under New Law, Greece Can Imprison Rejected Asylum Seekers**\
 `A surge in migrants landing on Crete this summer has diminished, but Greece is hoping to deter future undocumented immigration.`\
 https://nytimes.com/2025/09/02/world/europe/greece-asylum-seekers.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/09/02/briefing/putin-propaganda-war-china-military-para
 **Trump Wants Proof That Covid Vaccines Work. It’s Easy to Find.**\
 `In a post on Truth Social, the president suggested that the C.D.C. was being “ripped apart” over a question that was answered long ago.`\
 https://nytimes.com/2025/09/02/health/trump-covid-vaccines.html
-
-**Trump on Deploying Troops to Chicago: “We’re Going In”**\
-`President Trump, speaking at a news conference on Tuesday, said he was planning to send the National Guard to Chicago. He did not offer details on the deployment’s timing.`\
-https://nytimes.com/video/us/politics/100000010374834/trump-deploy-national-guard-chicago.html
-
-**Mass Migration and Liberalism’s Fall**\
-`A decade on, Angela Merkel’s immigration disaster has created a right-wing surge.`\
-https://nytimes.com/2025/09/02/opinion/immigration-liberal-europe-merkel.html
 
