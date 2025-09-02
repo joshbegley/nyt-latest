@@ -1,3 +1,11 @@
+**Mark Knoller, ‘the Savant of 1600 Pennsylvania Avenue,’ Dies at 73**\
+`As White House correspondent for CBS News Radio, he kept meticulous records of presidential activities, from vacation days to teleprompter use.`\
+https://nytimes.com/2025/09/02/business/media/mark-knoller-dead.html
+
+**Judge Apologizes to Conservative Justices in Case Over N.I.H. Cuts**\
+`The display of contrition came after Justices Gorsuch and Kavanaugh issued a stern warning directing judges to heed their orders in August.`\
+https://nytimes.com/2025/09/02/us/politics/judge-apology-conservative-justices.html
+
 **West Ham fan group call for boycott of Brentford game: 'Our club is going to die'**\
 `Hammers United have said the east London club are dying under the stewardship of majority owner David Sullivan and vice-chair Karren Brady.`\
 https://nytimes.com/athletic/6592923/2025/09/02/west-ham-boycott-sullivan-brady-ownership/

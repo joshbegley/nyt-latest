@@ -1,3 +1,11 @@
+**Mark Knoller, ‘the Savant of 1600 Pennsylvania Avenue,’ Dies at 73**\
+`As White House correspondent for CBS News Radio, he kept meticulous records of presidential activities, from vacation days to teleprompter use.`\
+https://nytimes.com/2025/09/02/business/media/mark-knoller-dead.html
+
+**Judge Apologizes to Conservative Justices in Case Over N.I.H. Cuts**\
+`The display of contrition came after Justices Gorsuch and Kavanaugh issued a stern warning directing judges to heed their orders in August.`\
+https://nytimes.com/2025/09/02/us/politics/judge-apology-conservative-justices.html
+
 **West Ham fan group call for boycott of Brentford game: 'Our club is going to die'**\
 `Hammers United have said the east London club are dying under the stewardship of majority owner David Sullivan and vice-chair Karren Brady.`\
 https://nytimes.com/athletic/6592923/2025/09/02/west-ham-boycott-sullivan-brady-ownership/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/09/02/nyregion/jim-walden-mayor-campaign.html
 **College football Week 2 odds: Oklahoma hosts Michigan in prime time**\
 `College football's Week 2 slate isn't as loaded as Week 1, but there are some rivalry games among the headliners.`\
 https://nytimes.com/athletic/6592100/2025/09/02/college-football-week-2-odds-oklahoma-michigan/
-
-**Assad and Aides Are Wanted in France for Deadly Strike on Journalists**\
-`Judges issued arrest warrants for Bashar al-Assad and six officials of his regime in Syria for an attack that killed two journalists, including Marie Colvin.`\
-https://nytimes.com/2025/09/02/world/middleeast/assad-warrant-marie-colvin.html
-
-**L.A. Ruling Complicates Trump’s Threats to Send Troops to More Cities**\
-`As Democratic cities brace for possible military deployments, Democratic governors see in a lower-court ruling the potential for legal protections.`\
-https://nytimes.com/2025/09/02/us/trump-military-cities.html
 
