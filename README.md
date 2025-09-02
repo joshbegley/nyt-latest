@@ -1,3 +1,19 @@
+**West Ham's transfer window: Stalwarts moved on, a tentative refresh and the cardinal sin of selling to Spurs**\
+`West Ham's transfer window involved the loss of one star to a rival and another staying put - but it wasn't quite a complete revolution`\
+https://nytimes.com/athletic/6487630/2025/09/02/west-ham-transfer-window-kudus-paqueta-todibo/
+
+**The Millionaire Who Left Wall Street to Become a Paramedic**\
+`After making millions in a job he came to hate, Jonathan Kleisner joined the Fire Department as a rookie paramedic at the age of 41. Now he’s determined to be the best rescue medic anywhere.`\
+https://nytimes.com/2025/09/02/nyregion/rescue-medic-wall-street-.html
+
+**Giuliani Finds a Home Away From Home in New Hampshire**\
+`Before his car crash, the former mayor of New York City was taking in a minor-league baseball game in Manchester, N.H., a city where he’s been known to enjoy a good cigar.`\
+https://nytimes.com/2025/09/02/nyregion/rudy-giuliani-new-hampshire.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/09/02/crosswords/spelling-bee-forum.html
+
 **Inside Man United's transfer window: Ratcliffe's risk-taking, 'Project 90', Amorim's Baleba push, heartbroken Hojlund**\
 `How Ratcliffe's aggressive approach to transfer spending shaped United's summer and the players Amorim did - and didn't - get`\
 https://nytimes.com/athletic/6590671/2025/09/02/inside-man-uniteds-transfer-window-ratcliffes-risk-taking-heartbroken-hojlund-project-90-amorims-baleba-push/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6588110/2025/09/02/arsenal-transfers-andrea-berta-a
 **Martinez's 'move', Emery's financial frustration, final-day impetus: Villa's transfer window**\
 `Financial constraints dominated Villa's summer with a focus on outgoings. Only on the final day did Emery get what he wanted `\
 https://nytimes.com/athletic/6578333/2025/09/02/aston-villa-transfer-window-martinez-emery/
-
-**The Space Rock Stars of Brazil**\
-`An all-female research group, As Meteoriticas, scours the South American country’s interior aiming to preserve meteorites for scientific study and public display.`\
-https://nytimes.com/2025/09/02/science/brazil-meteorites.html
-
-**Graham Greene, Canadian Actor Who Portrayed Indigenous Characters, Dies at 73**\
-`The First Nations actor, who appeared in “Dances With Wolves” and other Hollywood blockbusters, remained active in Canadian film, theater and television.`\
-https://nytimes.com/2025/09/02/movies/graham-greene-dead.html
-
-**Word of the Day: iconic**\
-`This word has appeared in 1,730 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2025/09/02/learning/word-of-the-day-iconic.html
-
-**Landslide Kills More Than 1,000 People in Sudan, Rebel Group Says**\
-`The landslide leveled a village in the remote Marra mountains, the Sudan Liberation Movement/Army said. It asked international aid organizations for help in recovering bodies.`\
-https://nytimes.com/2025/09/02/world/africa/sudan-landslide.html
 
