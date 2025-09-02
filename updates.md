@@ -1,3 +1,15 @@
+**Liverpool's transfer verdict: Isak coup, Guehi blow and why Wirtz could top them all**\
+`Analysing over £400m of spending, plus some of those who departed, during a frantic summer`\
+https://nytimes.com/athletic/6589948/2025/09/02/liverpool-transfer-window-verdict/
+
+**An Earthquake Killed Hundreds in Afghanistan**\
+`Rescue workers struggled to reach isolated areas in eastern Afghanistan after a magnitude 6.0 quake.`\
+https://nytimes.com/2025/09/02/briefing/afghanistant-earthquake-bolsonaro-modi-putin-xi.html
+
+**From new rules to more alcohol. What's new this Women's Super League season?**\
+`From record-breaking signings to new managers and another alcohol trial, this is what's new this WSL season `\
+https://nytimes.com/athletic/6573981/2025/09/02/womens-super-league-2025-26-season-whats-new/
+
 **Wolves 2025 summer transfer window review: Vacancies filled but concerns over experience**\
 `Wolves fans will be hoping their side can avoid relegation after the summer window`\
 https://nytimes.com/athletic/6590424/2025/09/02/wolves-2025-summer-transfer-window-review/

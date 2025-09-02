@@ -1,3 +1,15 @@
+**Liverpool's transfer verdict: Isak coup, Guehi blow and why Wirtz could top them all**\
+`Analysing over £400m of spending, plus some of those who departed, during a frantic summer`\
+https://nytimes.com/athletic/6589948/2025/09/02/liverpool-transfer-window-verdict/
+
+**An Earthquake Killed Hundreds in Afghanistan**\
+`Rescue workers struggled to reach isolated areas in eastern Afghanistan after a magnitude 6.0 quake.`\
+https://nytimes.com/2025/09/02/briefing/afghanistant-earthquake-bolsonaro-modi-putin-xi.html
+
+**From new rules to more alcohol. What's new this Women's Super League season?**\
+`From record-breaking signings to new managers and another alcohol trial, this is what's new this WSL season `\
+https://nytimes.com/athletic/6573981/2025/09/02/womens-super-league-2025-26-season-whats-new/
+
 **Wolves 2025 summer transfer window review: Vacancies filled but concerns over experience**\
 `Wolves fans will be hoping their side can avoid relegation after the summer window`\
 https://nytimes.com/athletic/6590424/2025/09/02/wolves-2025-summer-transfer-window-review/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6589311/2025/09/02/newcastle-yoane-wissa-transfer/
 **Why China Is Trying to Tame Its Electric Car Frenzy**\
 `Beijing has run out of patience with companies slashing prices, and is urging restraint. But fierce competition is also producing a surge of innovation.`\
 https://nytimes.com/2025/09/02/business/china-electric-vehicles-overcapacity.html
-
-**Bundesliga briefing: Why Ten Hag was sacked after two league games, and Werder Bremen's bet on youth**\
-`Our writer in Germany brings the latest Bundesliga news including what went wrong for Ten Hag`\
-https://nytimes.com/athletic/6589127/2025/09/02/bundesliga-briefing-ten-hag-leverkusen-werder-bremen/
-
-**Connections: Sports Edition Coach: Hints for Sept. 2, 2025**\
-`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
-https://nytimes.com/athletic/6589165/2025/09/02/connections-sports-edition-hints-for-sept-2-2025/
-
-**Fantasy football Week 1 waiver wire: Streamers, Ollie Gordon, Cedric Tillman and more**\
-`Jake Ciely offers 2025 fantasy football waiver pickups who can help in Week 1 and others with long-term potential. `\
-https://nytimes.com/athletic/6590119/2025/09/02/fantasy-football-week-1-waiver-wire-streamers-ollie-gordon-cedric-tillman/
 
