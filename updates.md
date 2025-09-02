@@ -1,3 +1,7 @@
+**Stephen Muss, Developer Who Helped Revive Miami Beach, Dies at 97**\
+`The scion of a New York family of builders, he rescued the Fontainebleau hotel from bankruptcy, spurring a real estate boom.`\
+https://nytimes.com/2025/09/02/realestate/stephen-muss-dead.html
+
 **Judge Says Trump’s Use of Troops in L.A. Is Illegal**\
 `The federal judge found that the deployment exceeded legal limits that generally prohibit the use of the military for domestic law enforcement.`\
 https://nytimes.com/2025/09/02/us/judge-ruling-trump-national-guard-los-angeles.html
