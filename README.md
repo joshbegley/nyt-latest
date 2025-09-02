@@ -1,3 +1,15 @@
+**Fantasy football predictions for all 32 NFL teams**\
+`KC Joyner gives a bold prediction for every NFL team. Can Patrick Mahomes be a top-six QB? Joyner thinks so.`\
+https://nytimes.com/athletic/6591651/2025/09/02/fantasy-football-predictions-nfl-teams/
+
+**Tracking Tropical Storm Lorena**\
+`See the likely path and wind arrival times for Lorena`\
+https://nytimes.com/interactive/2025/weather/lorena-map-path-tracker.html
+
+**CELLRESEARCH ADPOST Q3 25 #2**\
+`CELLRESEARCH ADPOST Q3 25 #2`\
+https://nytimes.com/paidpost/2025-08-08/cellresearch-adpost-q3-25-2/cellresearch-adpost-q3-25-2.html
+
 **How to watch Rangers at Diamondbacks: Time, TV, streaming**\
 `Find out how to watch the Texas Rangers play the Arizona Diamondbacks, with time, TV channel, and streaming information.`\
 https://nytimes.com/athletic/6592276/2025/09/02/texas-rangers-vs-arizona-diamondbacks-stream-how-to-watch-sept-2/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6592252/2025/09/02/san-francisco-giants-vs-colorado
 **How to watch Orioles at Padres: Time, TV, streaming**\
 `Find out how to watch the Baltimore Orioles play the San Diego Padres, with time, TV channel, and streaming information.`\
 https://nytimes.com/athletic/6592251/2025/09/02/baltimore-orioles-vs-san-diego-padres-stream-how-to-watch-sept-2/
-
-**How to watch White Sox at Twins: Time, TV, streaming**\
-`Find out how to watch the Chicago White Sox play the Minnesota Twins, with time, TV channel, and streaming information.`\
-https://nytimes.com/athletic/6592248/2025/09/02/chicago-white-sox-vs-minnesota-twins-stream-how-to-watch-sept-2/
-
-**How to watch Guardians at Red Sox: Time, TV, streaming**\
-`Find out how to watch the Cleveland Guardians play the Boston Red Sox, with time, TV channel, and streaming information.`\
-https://nytimes.com/athletic/6592244/2025/09/02/cleveland-guardians-vs-boston-red-sox-stream-how-to-watch-sept-2/
-
-**How to watch Braves at Cubs: Time, TV, streaming**\
-`Find out how to watch the Atlanta Braves play the Chicago Cubs, with time, TV channel, and streaming information.`\
-https://nytimes.com/athletic/6592242/2025/09/02/atlanta-braves-vs-chicago-cubs-stream-how-to-watch-sept-2/
 
