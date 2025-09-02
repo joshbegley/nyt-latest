@@ -1,3 +1,7 @@
+**Dele leaves Como by mutual consent to pursue 'regular playing opportunities'**\
+`"Dele is keen to secure regular playing opportunities and..was not part of the club’s immediate plans," said Como.`\
+https://nytimes.com/athletic/6542114/2025/09/02/dele-alli-leaves-como-contract-termination/
+
 **West Ham's transfer window: Stalwarts moved on, a tentative refresh and the cardinal sin of selling to Spurs**\
 `West Ham's transfer window involved the loss of one star to a rival and another staying put - but it wasn't quite a complete revolution`\
 https://nytimes.com/athletic/6487630/2025/09/02/west-ham-transfer-window-kudus-paqueta-todibo/
