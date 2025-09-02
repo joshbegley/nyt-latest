@@ -1,3 +1,7 @@
+**Kind of Wave**\
+`Is Rena Cohen going soft on us?`\
+https://nytimes.com/2025/09/01/crosswords/daily-puzzle-2025-09-02.html
+
 **Padres' Jason Adam carted off vs. Orioles with apparent left leg injury**\
 `Adam fell to the ground as he attempted to field a soft comebacker off the bat of Orioles shortstop Gunnar Henderson.`\
 https://nytimes.com/athletic/6591078/2025/09/01/jason-adam-injury-carted-off-padres/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6590752/2025/09/01/coco-gauff-serve-forehand-us-ope
 **Trump Family Profits Even With Tepid Launch of Crypto Tokens**\
 `World Liberty Financial’s cryptocurrency token fell short of investors’ hopes. But a previous deal paved the way for a payment to the Trump family of potentially hundreds of millions of dollars.`\
 https://nytimes.com/2025/09/01/us/politics/trump-crypto-trading.html
-
-**N.Y.C. Man Is Fourth Person to Die in Custody in Just Over a Week**\
-`A Turkish-born pedicab driver who was arrested on Friday night was found unconscious and unresponsive in a police station house cell. He later died at Bellevue Hospital.`\
-https://nytimes.com/2025/09/01/nyregion/nyc-jail-deaths.html
 
