@@ -1,3 +1,7 @@
+**College Football Playoff 2025 projections: Miami, Auburn rising; Alabama plummets in Week 1**\
+`Our College Football Playoff predictions model is back. Check here for regular updates on CFP and national championship odds for 2025.`\
+https://nytimes.com/athletic/6560541/2025/09/01/college-football-playoff-bracket-projections-odds/
+
 **TCU pummels UNC 48-14 in Bill Belichick's college debut**\
 `Fans headed for the exits in the third quarter as TCU scored 41 consecutive points in a blowout.`\
 https://nytimes.com/athletic/6590974/2025/09/01/unc-tcu-bill-belichick-score-result-takeaways/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6590819/2025/09/01/cubs-carlos-santana-signing-benc
 **Man apologizes for snatching Kamil Majchrzak's hat away from child at U.S. Open**\
 `"I became caught up in the heat of the moment and the joy of the victory," the man said after video of the incident went viral.`\
 https://nytimes.com/athletic/6590895/2025/09/01/kamil-majchrzak-hat-snatch-child-us-open/
-
-**How Pickleball Took Over Thousands of Tennis Courts, as Seen From the Sky**\
-`Aerial photographs show what’s happening all over the country: There’s only so much asphalt, and pickleball can’t get enough of it.`\
-https://nytimes.com/interactive/2025/09/01/upshot/pickleball.html
 
