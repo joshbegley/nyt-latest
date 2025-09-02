@@ -1,3 +1,11 @@
+**TCU pummels UNC 48-14 in Bill Belichick's college debut**\
+`Fans headed for the exits in the third quarter as TCU scored 41 consecutive points in a blowout.`\
+https://nytimes.com/athletic/6590974/2025/09/01/unc-tcu-bill-belichick-score-result-takeaways/
+
+**Padres' Jason Adam suffers season-ending quad tendon rupture**\
+`Adam's injury will require surgery and has a projected recovery time of six to nine months.`\
+https://nytimes.com/athletic/6591078/2025/09/01/jason-adam-injury-carted-off-padres/
+
 **Phillies 'just kept battling back' in late, gritty win against Brewers**\
 `A 4-0 deficit in the second was a 5-5 tie by the top of the fifth as the Phillies demonstrated resiliency that could make them dangerous.`\
 https://nytimes.com/athletic/6591079/2025/09/01/phillies-brewers-comeback-victory-garrett-stubbs/
