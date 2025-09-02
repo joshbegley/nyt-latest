@@ -1,3 +1,11 @@
+**gws-payton-talbott-ufc**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/payton-talbott-ufc
+
+**gws-albania-beach-historic-sites**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/albania-beach-historic-sites
+
 **The Fall’s Most Anticipated Albums: 10 Picks**\
 `Cardi B’s long-awaited return, Jeff Tweedy’s low-key magnum opus, Silvana Estrada’s latest poetic release and more.`\
 https://nytimes.com/2025/09/02/arts/music/amplifier-newsletter-fall-album-picks.html
@@ -25,8 +33,4 @@ https://nytimes.com/2025/09/02/technology/anthropic-funding-ai.html
 **USMNT's Cremaschi joins Parma on loan from Inter Miami**\
 `Cremaschi, 20, became the first academy product at Inter Miami to surpass 100 appearances for the first team.`\
 https://nytimes.com/athletic/6592366/2025/09/02/usmnt-cremaschi-inter-miami-transfers-parma/
-
-**Forest win legal victory over FA after 'apparent bias' of appeal panel chair**\
-`Graeme McPherson KC was appointed to chair a panel overhearing Forest's appeal against a fine relating to failing to control their players.`\
-https://nytimes.com/athletic/6592476/2025/09/02/nottingham-forest-legal-case-fa-appeal/
 

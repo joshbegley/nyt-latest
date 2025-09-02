@@ -1,3 +1,11 @@
+**gws-payton-talbott-ufc**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/payton-talbott-ufc
+
+**gws-albania-beach-historic-sites**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/albania-beach-historic-sites
+
 **The Fall’s Most Anticipated Albums: 10 Picks**\
 `Cardi B’s long-awaited return, Jeff Tweedy’s low-key magnum opus, Silvana Estrada’s latest poetic release and more.`\
 https://nytimes.com/2025/09/02/arts/music/amplifier-newsletter-fall-album-picks.html
