@@ -1,3 +1,7 @@
+**Forest win legal victory over FA after 'apparent bias' of appeal panel chair**\
+`Graeme McPherson KC was appointed to chair a panel overhearing Forest's appeal against a fine relating to failing to control their players.`\
+https://nytimes.com/athletic/6592476/2025/09/02/nottingham-forest-legal-case-fa-appeal/
+
 **Is the Penguins' roster too good for its own good?**\
 `No one likes to tank, but it might be the only way to accomplish the Penguins' biggest goals.`\
 https://nytimes.com/athletic/6592131/2025/09/02/penguins-tanking-gavin-mckenna-nhl/
@@ -25,8 +29,4 @@ https://nytimes.com/2025/09/02/dining/nyc-restaurant-news.html
 **College football national title odds: Ohio State is new favorite, but Texas didn't fall far**\
 `Ohio State jumped to the top spot in the odds to win the national title after beating Texas in Week 1. The Longhorns are still in the mix.`\
 https://nytimes.com/athletic/6592178/2025/09/02/college-football-national-title-odds-ohio-state-texas/
-
-**Tracing the Causes of the Rise of Nihilism**\
-`Readers respond to a column by David Brooks. Also: Juxtaposing a Nobel Peace Prize and a Department of War.`\
-https://nytimes.com/2025/09/02/opinion/nihilism-conservatism.html
 
