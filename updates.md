@@ -1,3 +1,11 @@
+**How Pickleball Took Over Thousands of Tennis Courts, as Told Through Satellite Images**\
+`summary`\
+https://nytimes.com/interactive/2025/09/01/upshot/pickleball.html
+
+**Chargers RB Najee Harris expects to play vs. Chiefs in wake of eye injury**\
+`The running back, who was injured in a July 4 fireworks accident, has not yet appeared around media members without wearing sunglasses.`\
+https://nytimes.com/athletic/6590912/2025/09/01/chargers-rb-najee-harris-eye-injury-chiefs/
+
 **Chargers RB Najee Harris expects to play vs. Chiefs in wake of eye injury**\
 `Running back, who was injured in July 4 fireworks accident, returned to practice last week.`\
 https://nytimes.com/athletic/6590912/2025/09/01/chargers-rb-najee-harris-eye-injury-chiefs/
