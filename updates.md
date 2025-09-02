@@ -1,3 +1,7 @@
+**With Carlos Santana addition, Cubs hope they can finally solve bench issues**\
+`Santana, 39, isn't having his most productive season, but the Cubs hope he can provide quality at-bats in limited playing time.`\
+https://nytimes.com/athletic/6590819/2025/09/01/cubs-carlos-santana-signing-bench/
+
 **Man apologizes for snatching Kamil Majchrzak's hat from child at U.S. Open**\
 `"I became caught up in the heat of the moment and the joy of the victory," the man said after video of the incident went viral.`\
 https://nytimes.com/athletic/6590895/2025/09/01/kamil-majchrzak-hat-snatch-child-us-open/
