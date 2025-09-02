@@ -1,3 +1,11 @@
+**The 'slow death' of Vitesse Arnhem. Can the club once known as Chelsea B be saved?**\
+`Years of chaos behind the scenes have cost the club their league place, with fans now waiting to hear if there will be a reprieve`\
+https://nytimes.com/athletic/6590297/2025/09/02/vitesse-arnhem-parry-chelsea-death/
+
+**Barcelona's transfer window: Key spots strengthened, but a painful loss at centre-back**\
+`With the transfer window now shut, it's time to take stock. How did Barcelona do in the market this summer?`\
+https://nytimes.com/athletic/6591557/2025/09/02/barcelona-transfer-window-rashford-garcia-flick/
+
 **First War, Then Floods Drive Pakistani Families From Their Homes**\
 `Near the Indian border, many people who fled the recent India-Pakistan conflict have had to leave again, this time because of rising waters.`\
 https://nytimes.com/2025/09/02/world/asia/pakistan-india-floods.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6584721/2025/09/02/red-wings-prospects-future-lineu
 **An Ovechkin-Crosby-Jágr top line? Choosing the Rangers' All-Teammate team**\
 `August is the time on the NHL calendar for ridiculous exercises. In this case, it means assembling an entire roster of ex-teammates.`\
 https://nytimes.com/athletic/6542234/2025/09/02/https-www-nytimes-com-athletic-6542234-2025-08-26-rangers-all-teammate-team-nhl-ovechkin-crosby-jagr-chara/
-
-**Grealish grab, late Rohl move - Inter's Ndiaye offer knocked back: Everton's transfer window**\
-`After a window like no other for the club, Moyes and company head into the rest of their season with renewed optimism and fresh momentum`\
-https://nytimes.com/athletic/6591468/2025/09/02/everton-transfer-window-grealish-moyes-rohl-ndiaye/
-
-**Stolarz's next contract, solving Domi and the 2026 UFA class: Mailbag**\
-`Plus, how good was Mats Sundin? What might the Leafs have in mind for Brandon Carlo's future?`\
-https://nytimes.com/athletic/6582469/2025/09/02/maple-leafs-stolarz-domi-ufa-2026-carlo/
 
