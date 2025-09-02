@@ -1,3 +1,15 @@
+**Should NIL spending affect nonconference games? Two coaches trade thoughts**\
+`Oklahoma State coach Mike Gundy and Oregon coach Dan Lanning went back and forth on how much spending should matter in CFB matchups.`\
+https://nytimes.com/athletic/6592135/2025/09/02/oklahoma-state-oregon-cfb-nil/
+
+**USMNT's Sargent relishes 'good spot' at Norwich after passing on transfer**\
+`Staying put has proven fruitful for Sargent, who leads the EFL Championship in goals at the international break`\
+https://nytimes.com/athletic/6592158/2025/09/02/josh-sargent-norwich-transfer-deadline-wolfsburg-usmnt/
+
+**Canucks 23-man roster projection: Who's a lock? Who has something to prove?**\
+`There is an unusually large number of spots on the 23-man roster at training camp that will be earmarked for rookies and sophomore players.`\
+https://nytimes.com/athletic/6583580/2025/09/02/canucks-roster-projection-2025-26/
+
 **Fantasy football predictions for all 32 NFL teams**\
 `KC Joyner gives a bold prediction for every NFL team. Can Patrick Mahomes be a top-six QB? Joyner thinks so.`\
 https://nytimes.com/athletic/6591651/2025/09/02/fantasy-football-predictions-nfl-teams/
