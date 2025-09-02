@@ -1,3 +1,11 @@
+**Braves (especially Jurickson Profar) excited to add Ha-Seong Kim to roster**\
+`Braves hope Kim, a waiver claim from Padres, can lock down their shortstop position.`\
+https://nytimes.com/athletic/6591039/2025/09/01/braves-ha-seong-kim-jurickson-profar/
+
+**Kind of Wave**\
+`Is Rena Cohen going soft on us?`\
+https://nytimes.com/2025/09/01/crosswords/daily-puzzle-2025-09-02.html
+
 **Padres' Jason Adam carted off vs. Orioles with apparent left leg injury**\
 `Adam fell to the ground as he attempted to field a soft comebacker off the bat of Orioles shortstop Gunnar Henderson.`\
 https://nytimes.com/athletic/6591078/2025/09/01/jason-adam-injury-carted-off-padres/
