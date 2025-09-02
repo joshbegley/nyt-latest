@@ -1,3 +1,7 @@
+**College football Week 2 odds: Oklahoma hosts Michigan in prime time**\
+`College football's Week 2 slate isn't as loaded as Week 1, but there are some rivalry games among the headliners.`\
+https://nytimes.com/athletic/6592100/2025/09/02/college-football-week-2-odds-oklahoma-michigan/
+
 **Assad and Aides Are Wanted in France for Deadly Strike on Journalists**\
 `Judges issued arrest warrants for Bashar al-Assad and six officials of his regime in Syria for an attack that killed two journalists, including Marie Colvin.`\
 https://nytimes.com/2025/09/02/world/middleeast/assad-warrant-marie-colvin.html
