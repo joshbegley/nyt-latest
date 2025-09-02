@@ -1,3 +1,7 @@
+**Loftus-Cheek called into England squad**\
+`The 29-year-old has not played for England since November 2018.`\
+https://nytimes.com/athletic/6589608/2025/09/02/ruben-loftus-cheek-england-squad/
+
 **The New York Times International Edition in Print for Wednesday, Sep. 3, 2025**\
 ``\
 https://nytimes.com/issue/todaysinyt/2025/09/02/todays-new-york-times-international-edition
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/02/us/politics/trump-tariffs-appeals-court-ruling-ec
 **What to Know About Jair Bolsonaro’s Coup Plot Trial**\
 `The former Brazilian president is charged with planning a coup after losing the 2022 elections. He says he pursued only legal avenues to remain in power. Here is what to know about the trial.`\
 https://nytimes.com/2025/09/02/world/americas/jair-bolsonaro-coup-trial-what-to-know.html
-
-**Trump Wants to Drown Us in a Sea of Chaos**\
-`How should his opponents respond?`\
-https://nytimes.com/2025/09/02/opinion/trump-winning-imperial-presidency.html
 
