@@ -1,3 +1,7 @@
+**Kraft Heinz to Break Up Its Food Businesses**\
+`A split-up of the mega company that makes products from Velveeta to Kool-Aid comes as consumers shift away from processed food.`\
+https://nytimes.com/2025/09/02/business/kraft-heinz-break-up.html
+
 **Kim Jong-un Takes a Slow (but Bulletproof) Train to China**\
 `The North Korean leader’s favorite mode of transportation provides him — like his father and grandfather before him — with tight security. But it’s no express train.`\
 https://nytimes.com/2025/09/02/world/asia/kim-north-korea-train.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6589852/2025/09/02/new-york-jets-season-preview/
 **For Bill Belichick's debut, UNC came to party. But the good times fizzled fast**\
 `UNC threw the pregame party to end all pregames. But the Belichick-induced hype machine died out by the third quarter Monday night.`\
 https://nytimes.com/athletic/6591249/2025/09/02/bill-belichick-unc-football-tcu-blowout/
-
-**'Are you joking with me?': Behind the scenes of a Cardinals' major-league debut**\
-`This is the behind-the-scenes machinery that allows a ballplayer's dreams to come true.`\
-https://nytimes.com/athletic/6586548/2025/09/02/st-louis-cardinals-mlb-debut/
 
