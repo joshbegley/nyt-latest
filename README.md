@@ -1,3 +1,11 @@
+**The Fall’s Most Anticipated Albums: 10 Picks**\
+`Cardi B’s long-awaited return, Jeff Tweedy’s low-key magnum opus, Silvana Estrada’s latest poetic release and more.`\
+https://nytimes.com/2025/09/02/arts/music/amplifier-newsletter-fall-album-picks.html
+
+**gws-london-cabbage**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/london-cabbage
+
 **Court Hands a Loss to Groups Seeking Billions in Frozen Climate Funds**\
 `The nonprofit organizations are fighting a Trump administration effort to claw back climate and clean energy grants.`\
 https://nytimes.com/2025/09/02/climate/climate-grants-frozen.html
@@ -21,8 +29,4 @@ https://nytimes.com/athletic/6592366/2025/09/02/usmnt-cremaschi-inter-miami-tran
 **Forest win legal victory over FA after 'apparent bias' of appeal panel chair**\
 `Graeme McPherson KC was appointed to chair a panel overhearing Forest's appeal against a fine relating to failing to control their players.`\
 https://nytimes.com/athletic/6592476/2025/09/02/nottingham-forest-legal-case-fa-appeal/
-
-**Is the Penguins' roster too good for its own good?**\
-`No one likes to tank, but it might be the only way to accomplish the Penguins' biggest goals.`\
-https://nytimes.com/athletic/6592131/2025/09/02/penguins-tanking-gavin-mckenna-nhl/
 

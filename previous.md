@@ -1,3 +1,15 @@
+**Court Hands a Loss to Groups Seeking Billions in Frozen Climate Funds**\
+`The nonprofit organizations are fighting a Trump administration effort to claw back climate and clean energy grants.`\
+https://nytimes.com/2025/09/02/climate/climate-grants-frozen.html
+
+**At Venice, ‘A House of Dynamite’ Is Scarier Than Most Horror Films**\
+`The Kathryn Bigelow thriller looks at what might happen if a ballistic missile were headed to the U.S. The director hopes the movie will start a conversation.`\
+https://nytimes.com/2025/09/02/movies/kathryn-bigelow-a-house-of-dynamite-venice-film-festival.html
+
+**Rubio Flies to Mexico for Security Talks Amid Trump Pressure Campaign**\
+`President Trump has ordered military action against Latin American drug cartels and has threatened a new tariff. President Claudia Sheinbaum of Mexico has pushed back.`\
+https://nytimes.com/2025/09/02/us/politics/rubio-sheinbaum-cartels-mexico.html
+
 **Anthropic Raises Its Valuation to $183 Billion in New Funding**\
 `The artificial intelligence start-up garnered another $13 billion as its valuation rose by nearly three times, from $61.5 billion earlier this year, amid a frenzy over the technology.`\
 https://nytimes.com/2025/09/02/technology/anthropic-funding-ai.html
@@ -13,16 +25,4 @@ https://nytimes.com/athletic/6592476/2025/09/02/nottingham-forest-legal-case-fa-
 **Is the Penguins' roster too good for its own good?**\
 `No one likes to tank, but it might be the only way to accomplish the Penguins' biggest goals.`\
 https://nytimes.com/athletic/6592131/2025/09/02/penguins-tanking-gavin-mckenna-nhl/
-
-**Bills sign Gabe Davis, reuniting with free-agent receiver: Source**\
-`The 26-year-old was released by the Jaguars in May.`\
-https://nytimes.com/athletic/6562816/2025/09/02/bills-sign-gabe-davis-practice-squad/
-
-**George Raveling, Hall of Fame coach, Nike exec, who helped sign Michael Jordan, dies at 88**\
-`Jordan wrote the forward for Raveling’s book and said, "If not for George, there would be no Air Jordan."`\
-https://nytimes.com/athletic/6592326/2025/09/02/george-raveling-dead/
-
-**Read Judge’s Ruling on Trump’s Use of Troops in California**\
-`The ruling accused the president of effectively turning nearly 5,000 Marines and National Guard soldiers into a “national police force” during the immigration protests in June.`\
-https://nytimes.com/interactive/2025/09/02/us/newsom-v-trump-176-pca-order-granting-injunctive-relief.html
 
