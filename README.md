@@ -1,3 +1,7 @@
+**Trump Reveals a New Strategy for Dealing With Bad News: Blame A.I.**\
+`President Trump blamed A.I. for a widely shared video of a trash bag being thrown from a White House window. But the White House had already confirmed it was real.`\
+https://nytimes.com/2025/09/02/us/politics/trump-ai-video-trash-bag.html
+
 **Marketa Vondrousova pulls out of U.S. Open quarterfinal with Aryna Sabalenka with injury**\
 `The Czech has been through a run of injuries the past two years.`\
 https://nytimes.com/athletic/6593120/2025/09/02/vondrousova-us-open-withdrawal-injury/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/02/business/media/mark-knoller-dead.html
 **Judge Apologizes to Conservative Justices in Case Over N.I.H. Cuts**\
 `The display of contrition came after Justices Gorsuch and Kavanaugh issued a stern warning directing judges to heed their orders in August.`\
 https://nytimes.com/2025/09/02/us/politics/judge-apology-conservative-justices.html
-
-**West Ham fan group call for boycott of Brentford game: 'Our club is going to die'**\
-`Hammers United have said the east London club are dying under the stewardship of majority owner David Sullivan and vice-chair Karren Brady.`\
-https://nytimes.com/athletic/6592923/2025/09/02/west-ham-boycott-sullivan-brady-ownership/
 
