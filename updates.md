@@ -1,3 +1,15 @@
+**gws-atlanta-beltline-success-displacement**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/atlanta-beltline-success-displacement
+
+**NHL to have salary cap for 2026 playoffs per new agreement with NHLPA on rolling CBA implementation**\
+`Changes with deferred compensation, salary retention and dress codes will also take effect in 2025-26 — but not maximum contract terms.`\
+https://nytimes.com/athletic/6592725/2025/09/02/nhl-cba-changes-playoff-salary-cap-2026/
+
+**Micah Parsons 'wanted to be a Cowboy', agent details in his view of contract negotiations**\
+`"At no point did Micah believe that he was negotiating a contract," Parsons' agent, David Mulugheta, said Tuesday on ESPN's "First Take."`\
+https://nytimes.com/athletic/6592483/2025/09/02/micah-parsons-jerry-jones-negotiations-agent/
+
 **Stephen Colbert Returns for First ‘Late Show’ of Its Last Season**\
 `CBS’s announcement in July that the show would end next year — after Colbert had criticized CBS’s settlement with the Trump administration — raised questions among lawmakers and fans.`\
 https://nytimes.com/2025/09/02/arts/television/stephen-colbert-late-show-returns.html
