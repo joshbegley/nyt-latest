@@ -1,3 +1,7 @@
+**South Africa's white-ball team are on the up - England now await**\
+`The Proteas start their series in England buoyed by victory in Australia - and are packed with exciting talent `\
+https://nytimes.com/athletic/6588650/2025/09/02/england-south-africa-cricket-odi-series/
+
 **Vardy signs for Italian club Cremonese on free transfer**\
 `Vardy left Leicester City at the end of last season after a 13-year stay, where his goals helped them to the 2015-16 Premier League title.`\
 https://nytimes.com/athletic/6317796/2025/09/02/jamie-vardy-cremonese-transfer/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6590671/2025/09/02/inside-man-uniteds-transfer-wind
 **How Guehi's Liverpool move broke down - thanks to a Glasner powerplay**\
 `One of the transfer sagas of the summer culminated in a frantic final day of the window with Guehi denied his move to Anfield at the last`\
 https://nytimes.com/athletic/6590708/2025/09/02/guehi-liverpool-palace-glasner-parish-transfer/
-
-**Inside Newcastle's transfer window: How 'Rejection FC' fought back to land two strikers and save 'doomed' summer**\
-`The story of Newcastle's transfer window, one dominated by Isak and rejection but which ended with a strong finish`\
-https://nytimes.com/athletic/6588753/2025/09/02/inside-newcastle-united-transfer-window/
 
