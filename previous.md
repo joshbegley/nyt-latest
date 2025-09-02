@@ -1,5 +1,9 @@
-**How Pickleball Took Over Thousands of Tennis Courts, as Told Through Satellite Images**\
-`summary`\
+**CEO apologizes for snatching Kamil Majchrzak's hat from child at U.S. Open**\
+`"I became caught up in the heat of the moment and the joy of the victory," the man said after video of the incident went viral.`\
+https://nytimes.com/athletic/6590895/2025/09/01/kamil-majchrzak-hat-snatch-child-us-open/
+
+**How Pickleball Took Over Thousands of Tennis Courts, as Seen From the Sky**\
+`Aerial photographs show what’s happening all over the country: There’s only so much asphalt, and pickleball can’t get enough of it.`\
 https://nytimes.com/interactive/2025/09/01/upshot/pickleball.html
 
 **Chargers RB Najee Harris expects to play vs. Chiefs in wake of eye injury**\
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/01/us/san-antonio-flood-deaths.html
 **Florida State fined $50K by ACC for storming field after upsetting Alabama**\
 `Florida State is the first ACC school to be fined under a new conference policy aimed at curtailing field- and court-storming incidents.`\
 https://nytimes.com/athletic/6590775/2025/09/01/acc-fines-florida-state-50k-field-storming-alabama/
-
-**Matthew Stafford expected to start for Rams in Week 1 vs. Texans**\
-`Sean McVay says the quarterback, who aggravated a disk in his back and missed nearly a month of camp, will "be good" to go in L.A.'s opener.`\
-https://nytimes.com/athletic/6590664/2025/09/01/matthew-stafford-rams-expect-start-texans-week-1/
 

@@ -1,3 +1,11 @@
+**CEO apologizes for snatching Kamil Majchrzak's hat from child at U.S. Open**\
+`"I became caught up in the heat of the moment and the joy of the victory," the man said after video of the incident went viral.`\
+https://nytimes.com/athletic/6590895/2025/09/01/kamil-majchrzak-hat-snatch-child-us-open/
+
+**How Pickleball Took Over Thousands of Tennis Courts, as Seen From the Sky**\
+`Aerial photographs show what’s happening all over the country: There’s only so much asphalt, and pickleball can’t get enough of it.`\
+https://nytimes.com/interactive/2025/09/01/upshot/pickleball.html
+
 **How Pickleball Took Over Thousands of Tennis Courts, as Told Through Satellite Images**\
 `summary`\
 https://nytimes.com/interactive/2025/09/01/upshot/pickleball.html
