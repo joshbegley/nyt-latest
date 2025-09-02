@@ -1,3 +1,11 @@
+**Alexander Isak to Liverpool: Everything you need to know - TLDR**\
+`Liverpool have finally got their man - here, we break down the move of the summer.`\
+https://nytimes.com/athletic/6589037/2025/09/02/alexander-isak-liverpool-transfer-tldr/
+
+**Reduced Screening May Have Led to Rise in Advanced Prostate Cancer Diagnoses**\
+`Changes in screening recommendations over a decade ago may have inadvertently resulted in later diagnosis of the most common cancer in men, a new study has found.`\
+https://nytimes.com/2025/09/02/health/prostate-cancer-rise-reduced-screening.html
+
 **In Protest, He Turned the Camera on China’s Surveillance State**\
 `Before fleeing China, an activist in Chongqing staged an elaborate one-man demonstration against the Communist Party that doubled as performance art.`\
 https://nytimes.com/2025/09/02/business/china-chongqing-protest.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/09/02/climate/amazon-brazil-drought-rain-deforestation.
 **Olympic 200m champion Thomas to miss World Championships with injury**\
 `The 28-year-old has been dealing with an Achilles problem all year, which first surfaced in May and flared up again in July.`\
 https://nytimes.com/athletic/6592063/2025/09/02/gabby-thomas-injury-world-championships/
-
-**Stephen Muss, Developer Who Helped Revive Miami Beach, Dies at 97**\
-`The scion of a New York family of builders, he rescued the Fontainebleau hotel from bankruptcy, spurring a real estate boom.`\
-https://nytimes.com/2025/09/02/realestate/stephen-muss-dead.html
-
-**‘The Bang, Bang, Bang’: How Protests, Tear Gas and Looting Roiled Indonesia**\
-`Deep-rooted resentment between the haves and have-nots set off a wave of antigovernment protests that have turned violent.`\
-https://nytimes.com/2025/09/02/world/asia/indonesia-jakarta-protests-economy.html
 
