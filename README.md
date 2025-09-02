@@ -1,3 +1,7 @@
+**How to watch the New York Giants in 2025: Schedule and streaming for Big Blue's rebuild**\
+`The Giants are in a long rebuild, but there are still reasons to watch their regular-season slate this year. Here's how to tune in.`\
+https://nytimes.com/athletic/6530855/2025/09/02/new-york-giants-how-to-watch-2025/
+
 **The 'slow death' of Vitesse Arnhem. Can the club once known as Chelsea B be saved?**\
 `Years of chaos behind the scenes have cost the club their league place, with fans now waiting to hear if there will be a reprieve`\
 https://nytimes.com/athletic/6590297/2025/09/02/vitesse-arnhem-parry-chelsea-death/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6580957/2025/09/02/inside-wrexham-summer-transfer-w
 **Red Wings future lineup projection: What Detroit could look like in three years**\
 `Break out the crystal ball: What could the Red Wings look like when their top prospects reach the NHL? What holes will they still have?`\
 https://nytimes.com/athletic/6584721/2025/09/02/red-wings-prospects-future-lineup-projection/
-
-**An Ovechkin-Crosby-Jágr top line? Choosing the Rangers' All-Teammate team**\
-`August is the time on the NHL calendar for ridiculous exercises. In this case, it means assembling an entire roster of ex-teammates.`\
-https://nytimes.com/athletic/6542234/2025/09/02/https-www-nytimes-com-athletic-6542234-2025-08-26-rangers-all-teammate-team-nhl-ovechkin-crosby-jagr-chara/
 
