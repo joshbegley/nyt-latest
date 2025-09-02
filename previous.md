@@ -1,8 +1,12 @@
+**Afghans Reel From Deadly Quake**\
+`Rescue workers struggled to reach communities in the isolated, mountainous area hit by the earthquake. The Afghan authorities said at least 1,400 people had been killed, with the death toll expected to rise.`\
+https://nytimes.com/video/world/asia/100000010373241/afghans-reel-from-deadly-quake.html
+
 **Washington's watch guide: How to stream and follow the 2025 Commanders**\
 `The Commanders have a packed-out prime-time schedule for 2025. Here's how to watch resurgent Washington this season.`\
 https://nytimes.com/athletic/6582355/2025/09/02/washington-commanders-football-how-to-watch-2025/
 
-**What I'm seeing from the Commanders: Jayden Daniels got better and there's a new X-factor**\
+**What I'm seeing from the Commanders: Jayden Daniels got better, and a new X-factor**\
 `The Commanders are all in, and their phenom of a QB keeps improving, but depth and the defensive line could be concerns.`\
 https://nytimes.com/athletic/6589562/2025/09/02/washington-commanders-preview-jayden-daniels-marshon-lattimore/
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6584773/2025/09/02/silly-meets-smart-what-pablo-tor
 **Embracing the Local Style on Vacation**\
 `An American visiting Denmark felt sartorially at home.`\
 https://nytimes.com/2025/09/02/style/street-style-look-danish-girl-style.html
-
-**College Football Playoff 2025 projections: Miami, Auburn rising; Alabama plummets in Week 1**\
-`Our College Football Playoff predictions model is back. Check here for regular updates on CFP and national championship odds for 2025.`\
-https://nytimes.com/athletic/6560541/2025/09/02/college-football-playoff-bracket-projections-odds/
 
