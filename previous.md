@@ -1,3 +1,11 @@
+**Gérard Depardieu Is Ordered to Stand Trial Over Rape Accusations**\
+`The actress Charlotte Arnould has accused the French movie icon of raping her twice in 2018 at his home in Paris. He denies wrongdoing.`\
+https://nytimes.com/2025/09/02/world/europe/gerard-depardieu-rape-accusations-trial.html
+
+**Opening Line: RIP, Cowboys. Take the Eagles in Week 1 after Micah Parsons trade**\
+`Welcome to the Opening Line. Here are some intriguing early wagers on the upcoming week’s NFL action.`\
+https://nytimes.com/athletic/6590189/2025/09/02/nfl-week-1-betting-picks-opening-line/
+
 **This Crispy Chicken Is Pure Poetry**\
 `Eric Kim’s recipe, finished with a lime-butter sauce, isn’t just beautifully comforting, it’s also beautifully written.`\
 https://nytimes.com/2025/09/02/dining/this-crispy-chicken-is-pure-poetry.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/09/02/world/asia/indonesia-jakarta-protests-economy.htm
 **Lowetide: What to expect from Oilers rookies in 2025-26**\
 `Here's a look at what to expect from Oilers rookies like Matt Savoie and Ike Howard this coming season.`\
 https://nytimes.com/athletic/6588390/2025/09/02/edmonton-oilers-rookies-2025/
-
-**Until Saturday: Belichick's humbling proves CFB is hard**\
-`Until Saturday is The Athletic's free CFB newsletter.`\
-https://nytimes.com/athletic/6592023/2025/09/02/bill-belichick-unc-tcu-until-saturday/
-
-**D.I.Y. Repairs Turned Into a Gut Renovation in Philadelphia**\
-`A couple of architects liked their rowhouse so much that they transformed it two different times to suit their evolving needs.`\
-https://nytimes.com/2025/09/02/realestate/philadelphia-fitler-square-renovation-architects.html
 
