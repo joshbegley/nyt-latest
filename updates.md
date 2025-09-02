@@ -1,3 +1,15 @@
+**Read the Appeals Court’s Decision**\
+`In a split 2-to-1 decision, the U.S. Court of Appeals for the District of Columbia said the Trump administration’s attempt to block Rebecca Kelly Slaughter, a Democratic commissioner, from resuming her role at the F.T.C. had “no prospect of success.”`\
+https://nytimes.com/interactive/2025/09/02/us/politics/slaughtertrumpcadcord090225.html
+
+**House Oversight Panel Releases 33,000 Pages of Epstein Files as Pressure Mounts**\
+`The move came as Republican leaders pressed colleagues not to force a vote on disclosing all the material. Most of what was released Tuesday was not new.`\
+https://nytimes.com/2025/09/02/us/politics/epstein-files-release-house-oversight.html
+
+**Diamondbacks lose Lourdes Gurriel Jr. to torn right ACL after outfield mishap**\
+`It’s the latest setback for a Diamondbacks team that has suffered several this season. `\
+https://nytimes.com/athletic/6593179/2025/09/02/az-diamondbacks-lourdes-gurriel-jr-injury/
+
 **Diamondbacks lose Lourdes Guirrel Jr. to torn right ACL after outfield mishap**\
 `It’s the latest setback for a Diamondbacks team that has suffered several this season. `\
 https://nytimes.com/athletic/6593179/2025/09/02/az-diamondbacks-lourdes-gurriel-jr-injury/
