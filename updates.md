@@ -1,3 +1,11 @@
+**Graham Greene, Canadian Actor Who Portrayed Indigenous Characters, Dies at 73**\
+`The First Nations actor, who appeared in “Dances With Wolves” and other Hollywood blockbusters, remained active in Canadian film, theater and television.`\
+https://nytimes.com/2025/09/02/movies/graham-greene-dead.html
+
+**Word of the Day: iconic**\
+`This word has appeared in 1,730 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2025/09/02/learning/word-of-the-day-iconic.html
+
 **Landslide Kills More Than 1,000 People in Sudan, Rebel Group Says**\
 `The landslide leveled a village in the remote Marra mountains, the Sudan Liberation Movement/Army said. It asked international aid organizations for help in recovering bodies.`\
 https://nytimes.com/2025/09/02/world/africa/sudan-landslide.html

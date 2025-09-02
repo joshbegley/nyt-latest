@@ -1,3 +1,11 @@
+**Graham Greene, Canadian Actor Who Portrayed Indigenous Characters, Dies at 73**\
+`The First Nations actor, who appeared in “Dances With Wolves” and other Hollywood blockbusters, remained active in Canadian film, theater and television.`\
+https://nytimes.com/2025/09/02/movies/graham-greene-dead.html
+
+**Word of the Day: iconic**\
+`This word has appeared in 1,730 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2025/09/02/learning/word-of-the-day-iconic.html
+
 **Landslide Kills More Than 1,000 People in Sudan, Rebel Group Says**\
 `The landslide leveled a village in the remote Marra mountains, the Sudan Liberation Movement/Army said. It asked international aid organizations for help in recovering bodies.`\
 https://nytimes.com/2025/09/02/world/africa/sudan-landslide.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6515158/2025/09/02/premier-league-transfers-ranked-
 **Manchester United women, the Champions League and a one-way chartered flight to Sweden**\
 `United's women took connecting commercial flights home from Champions League qualifying, with some players opting to pay their own way`\
 https://nytimes.com/athletic/6590598/2025/09/02/manchester-united-women-plane-champions-league/
-
-**James Horncastle’s Serie A Briefing: Napoli's box-office finale, a Mussolini moment and Helen Mirren at Lecce**\
-`James Horncastle reveals the most intriguing plot lines from the weekend in Italian football, including Keinan Davis conquering San Siro`\
-https://nytimes.com/athletic/6588690/2025/09/02/james-horncastles-serie-a-briefing-napolis-box-office-finale-mussolini-stars-and-helen-mirren-at-lecce/
-
-**The transfer window's maddest moments: Sagas, U-turns and a Jamie Vardy tattoo**\
-`This summer has brought us Man United 'bomb squads', a goalkeeper's miss-step and multiple Newcastle and Spurs rejections`\
-https://nytimes.com/athletic/6590514/2025/09/02/transfer-window-most-surreal-moments/
 
