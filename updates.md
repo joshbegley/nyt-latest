@@ -1,3 +1,15 @@
+**TAFC: Does it pay to have a tantrum over a transfer? Plus: Why Ten Hag was sacked**\
+`Marc Guehi missed out on a move to Liverpool but Alexander Isak forced one through after refusing to play. Does it help to go on strike?`\
+https://nytimes.com/athletic/6591315/2025/09/02/transfers-guehi-liverpool-ten-hag-sacked/
+
+**Meet the beloved teammate on a mission to make NFL offensive linemen matter**\
+`Dion Dawkins is used to pushing people around. He used that experience to help change the NFL.`\
+https://nytimes.com/athletic/6586031/2025/09/02/dion-dawkins-nfl-protector-of-year-award/
+
+**House Oversight Committee Is Set to Meet With Accusers of Jeffrey Epstein**\
+`Lawmakers are continuing their inquiry into Mr. Epstein, the disgraced financier, despite the Trump administration’s efforts to quell public demand for information.`\
+https://nytimes.com/2025/09/02/us/politics/epstein-accusers-house-oversight-committee.html
+
 **Why Bengals' RB Chase Brown is 'going to be a problem this season'**\
 `Cincinnati is tailoring its running game around the third-year back who broke how down the stretch last season.`\
 https://nytimes.com/athletic/6590868/2025/09/02/chase-brown-2025-cincinnati-bengals/
