@@ -1,3 +1,7 @@
+**Kraft Heinz to Break Up Its Food Businesses**\
+`A split-up of the mega company that makes products from Velveeta to Kool-Aid comes as consumers shift away from processed food.`\
+https://nytimes.com/2025/09/02/business/kraft-heinz-break-up.html
+
 **Kim Jong-un Takes a Slow (but Bulletproof) Train to China**\
 `The North Korean leader’s favorite mode of transportation provides him — like his father and grandfather before him — with tight security. But it’s no express train.`\
 https://nytimes.com/2025/09/02/world/asia/kim-north-korea-train.html
