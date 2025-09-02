@@ -1,3 +1,7 @@
+**Stephen Muss, Developer Who Helped Revive Miami Beach, Dies at 97**\
+`The scion of a New York family of builders, he rescued the Fontainebleau hotel from bankruptcy, spurring a real estate boom.`\
+https://nytimes.com/2025/09/02/realestate/stephen-muss-dead.html
+
 **‘The Bang, Bang, Bang’: How Protests, Tear Gas and Looting Roiled Indonesia**\
 `Deep-rooted resentment between the haves and have-nots set off a wave of antigovernment protests that have turned violent.`\
 https://nytimes.com/2025/09/02/world/asia/indonesia-jakarta-protests-economy.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6582355/2025/09/02/washington-commanders-football-h
 **What I'm seeing from the Commanders: Jayden Daniels got better, a new X-factor and more**\
 `The Commanders are all in, and their QB phenom keeps improving, but depth and the defensive line could be concerns.`\
 https://nytimes.com/athletic/6589562/2025/09/02/washington-commanders-preview-jayden-daniels-marshon-lattimore/
-
-**The Windup: The weirdest home run**\
-`Welcome to The Windup, The Athletic's MLB newsletter.`\
-https://nytimes.com/athletic/6591303/2025/09/02/trevor-story-home-run-the-windup/
 

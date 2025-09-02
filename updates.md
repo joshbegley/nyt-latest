@@ -1,3 +1,7 @@
+**Judge Says Trump’s Use of Troops in L.A. Is Illegal**\
+`The federal judge found that the deployment exceeded legal limits that generally prohibit the use of the military for domestic law enforcement.`\
+https://nytimes.com/2025/09/02/us/judge-ruling-trump-national-guard-los-angeles.html
+
 **‘The Bang, Bang, Bang’: How Protests, Tear Gas and Looting Roiled Indonesia**\
 `Deep-rooted resentment between the haves and have-nots set off a wave of antigovernment protests that have turned violent.`\
 https://nytimes.com/2025/09/02/world/asia/indonesia-jakarta-protests-economy.html
