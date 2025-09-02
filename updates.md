@@ -1,3 +1,7 @@
+**South Africa's white-ball team are on the up - England now await**\
+`The Proteas start their series in England buoyed by victory in Australia - and are packed with exciting talent `\
+https://nytimes.com/athletic/6588650/2025/09/02/england-south-africa-cricket-odi-series/
+
 **Vardy signs for Italian club Cremonese on free transfer**\
 `Vardy left Leicester City at the end of last season after a 13-year stay, where his goals helped them to the 2015-16 Premier League title.`\
 https://nytimes.com/athletic/6317796/2025/09/02/jamie-vardy-cremonese-transfer/
