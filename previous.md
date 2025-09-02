@@ -1,5 +1,9 @@
+**West Ham fan group call for boycott of Brentford game: 'Our club is going to die'**\
+`Hammers United have said the east London club are dying under the stewardship of majority owner David Sullivan and vice-chair Karren Brady.`\
+https://nytimes.com/athletic/6592923/2025/09/02/west-ham-boycott-sullivan-brady-ownership/
+
 **Judge Orders Google to Share Search Results to Help Resolve Monopoly**\
-`Judge Amit P. Mehta ruled on Tuesday that Google must hand over some of its search data to rivals, in a landmark antitrust case.`\
+`In a landmark antitrust case, Judge Amit P. Mehta ruled on Tuesday that Google must hand over some of its search data to rivals but did not grant the government’s biggest requests.`\
 https://nytimes.com/2025/09/02/technology/google-search-antitrust-decision.html
 
 **Donald Trump vs. the Wind Power Industry**\
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/02/world/middleeast/assad-warrant-marie-colvin.html
 **L.A. Ruling Complicates Trump’s Threats to Send Troops to More Cities**\
 `As Democratic cities brace for possible military deployments, Democratic governors see in a lower-court ruling the potential for legal protections.`\
 https://nytimes.com/2025/09/02/us/trump-military-cities.html
-
-**Wizards' Alex Sarr ruled out for remainder of EuroBasket with calf injury**\
-`French officials said Sarr suffered the injury against Slovenia, and he sat out Sunday when France lost to Israel 82-69.`\
-https://nytimes.com/athletic/6592762/2025/09/02/wizards-alex-sarr-calf-injury-eurobasket-2025/
 

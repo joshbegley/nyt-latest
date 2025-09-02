@@ -1,3 +1,11 @@
+**West Ham fan group call for boycott of Brentford game: 'Our club is going to die'**\
+`Hammers United have said the east London club are dying under the stewardship of majority owner David Sullivan and vice-chair Karren Brady.`\
+https://nytimes.com/athletic/6592923/2025/09/02/west-ham-boycott-sullivan-brady-ownership/
+
+**Judge Orders Google to Share Search Results to Help Resolve Monopoly**\
+`In a landmark antitrust case, Judge Amit P. Mehta ruled on Tuesday that Google must hand over some of its search data to rivals but did not grant the government’s biggest requests.`\
+https://nytimes.com/2025/09/02/technology/google-search-antitrust-decision.html
+
 **Judge Orders Google to Share Search Results to Help Resolve Monopoly**\
 `Judge Amit P. Mehta ruled on Tuesday that Google must hand over some of its search data to rivals, in a landmark antitrust case.`\
 https://nytimes.com/2025/09/02/technology/google-search-antitrust-decision.html
