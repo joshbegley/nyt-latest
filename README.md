@@ -1,3 +1,7 @@
+**Forest win legal victory over FA after 'apparent bias' of appeal panel chair**\
+`Graeme McPherson KC was appointed to chair a panel overhearing Forest's appeal against a fine relating to failing to control their players.`\
+https://nytimes.com/athletic/6592476/2025/09/02/nottingham-forest-legal-case-fa-appeal/
+
 **Is the Penguins' roster too good for its own good?**\
 `No one likes to tank, but it might be the only way to accomplish the Penguins' biggest goals.`\
 https://nytimes.com/athletic/6592131/2025/09/02/penguins-tanking-gavin-mckenna-nhl/
