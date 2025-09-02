@@ -1,3 +1,11 @@
+**Micah Parsons' agent shares contract negotiations with Cowboys, Jerry Jones**\
+`'At no point did Micah believe that he was negotiating a contract,' Parsons' agent, David Mulugheta, said Tuesday on ESPN's 'First Take.'`\
+https://nytimes.com/athletic/6592483/2025/09/02/micah-parsons-jerry-jones-negotiations-agent/
+
+**A C.E.O. Stirred Anger at the U.S. Open. Another Man Bore the Internet’s Wrath.**\
+`The chief executive of the Polish company Drogbruk was captured on video snatching a hat in front of a child. The head of Drog-Bruk, a different firm, is getting attacked.`\
+https://nytimes.com/2025/09/02/world/europe/us-open-drog-bruk-ceo-szczerek.html
+
 **Scoop City: 32 fantasy facts before kickoff**\
 `One fact about 32 potential fantasy targets`\
 https://nytimes.com/athletic/6592727/2025/09/02/32-fantasy-facts-nfl-2025-scoop-city/
@@ -29,12 +37,4 @@ https://nytimes.com/newsgraphics/card-story/payton-talbott-ufc
 **gws-albania-beach-historic-sites**\
 `(No description)`\
 https://nytimes.com/newsgraphics/card-story/albania-beach-historic-sites
-
-**The Fall’s Most Anticipated Albums: 10 Picks**\
-`Cardi B’s long-awaited return, Jeff Tweedy’s low-key magnum opus, Silvana Estrada’s latest poetic release and more.`\
-https://nytimes.com/2025/09/02/arts/music/amplifier-newsletter-fall-album-picks.html
-
-**gws-london-cabbage**\
-`(No description)`\
-https://nytimes.com/newsgraphics/card-story/london-cabbage
 

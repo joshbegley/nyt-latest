@@ -1,3 +1,7 @@
+**Scoop City: 32 fantasy facts before kickoff**\
+`One fact about 32 potential fantasy targets`\
+https://nytimes.com/athletic/6592727/2025/09/02/32-fantasy-facts-nfl-2025-scoop-city/
+
 **Palace's Wharton set to miss three weeks with adductor injury**\
 `Wharton had to withdraw from Thomas Tuchel's England squad for their upcoming World Cup qualifying matches against Andorra and Serbia.`\
 https://nytimes.com/athletic/6592609/2025/09/02/adam-wharton-injury-update-crystal-palace-news/

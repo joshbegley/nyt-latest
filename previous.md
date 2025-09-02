@@ -1,3 +1,7 @@
+**Scoop City: 32 fantasy facts before kickoff**\
+`One fact about 32 potential fantasy targets`\
+https://nytimes.com/athletic/6592727/2025/09/02/32-fantasy-facts-nfl-2025-scoop-city/
+
 **Palace's Wharton set to miss three weeks with adductor injury**\
 `Wharton had to withdraw from Thomas Tuchel's England squad for their upcoming World Cup qualifying matches against Andorra and Serbia.`\
 https://nytimes.com/athletic/6592609/2025/09/02/adam-wharton-injury-update-crystal-palace-news/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/02/arts/music/amplifier-newsletter-fall-album-picks.
 **gws-london-cabbage**\
 `(No description)`\
 https://nytimes.com/newsgraphics/card-story/london-cabbage
-
-**Court Hands a Loss to Groups Seeking Billions in Frozen Climate Funds**\
-`The nonprofit organizations are fighting a Trump administration effort to claw back climate and clean energy grants.`\
-https://nytimes.com/2025/09/02/climate/climate-grants-frozen.html
 
