@@ -1,3 +1,11 @@
+**London City set to sign Corrales after activating €500k Barcelona clause**\
+`Barcelona sources confirmed to The Athletic the 19-year-old's clause was worth €500,000 ($435k; $582k).`\
+https://nytimes.com/athletic/6591570/2025/09/02/lucia-corrales-london-city-barcelona/
+
+**Kirk Herbstreit's dog makes ESPN cameo in TCU's blowout of North Carolina**\
+`The late-game appearance by the golden retriever injected a bit of levity into a game whose conclusion had long been deciced.`\
+https://nytimes.com/athletic/6591540/2025/09/02/kirk-herbstreit-dog-espn-north-carolina/
+
 **What Julian Sayin did for Ohio State that Arch Manning didn't for Texas**\
 `What I saw on film from Sayin in his first Ohio State start. While Arch Maning struggled for Texas, Sayin didn't make a mistake.`\
 https://nytimes.com/athletic/6589901/2025/09/02/julian-sayin-ohio-state-texas-film/

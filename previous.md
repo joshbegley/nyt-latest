@@ -1,3 +1,11 @@
+**London City set to sign Corrales after activating €500k Barcelona clause**\
+`Barcelona sources confirmed to The Athletic the 19-year-old's clause was worth €500,000 ($435k; $582k).`\
+https://nytimes.com/athletic/6591570/2025/09/02/lucia-corrales-london-city-barcelona/
+
+**Kirk Herbstreit's dog makes ESPN cameo in TCU's blowout of North Carolina**\
+`The late-game appearance by the golden retriever injected a bit of levity into a game whose conclusion had long been deciced.`\
+https://nytimes.com/athletic/6591540/2025/09/02/kirk-herbstreit-dog-espn-north-carolina/
+
 **What Julian Sayin did for Ohio State that Arch Manning didn't for Texas**\
 `What I saw on film from Sayin in his first Ohio State start. While Arch Maning struggled for Texas, Sayin didn't make a mistake.`\
 https://nytimes.com/athletic/6589901/2025/09/02/julian-sayin-ohio-state-texas-film/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6590868/2025/09/02/chase-brown-2025-cincinnati-beng
 **NFL 2025 rule changes: Celebration penalties, expanded instant replay and more**\
 `The dynamic kickoff is here to stay and overtime rules have been adjusted so both teams will have a possession no matter what. `\
 https://nytimes.com/athletic/6579710/2025/09/02/nfl-2025-rule-changes-celebrations-overtime-replay/
-
-**Week 1 panic meter: Should Texas be worried about Arch Manning? Code red at Alabama?**\
-`Not every hot take is an overreaction. Sometimes, it's quite clear — even after one game — that things are heading in the wrong direction.`\
-https://nytimes.com/athletic/6590220/2025/09/02/college-football-overreaction-arch-manning-kalen-deboer/
-
-**Notre Dame-Miami final thoughts: Whose fault was CJ Carr's interception?**\
-`The Irish got their quarterback decision right. But they also were beaten at their own game by the Hurricanes.`\
-https://nytimes.com/athletic/6591015/2025/09/02/notre-dame-miami-cj-carr-jeremiyah-love/
 
