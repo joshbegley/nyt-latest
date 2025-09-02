@@ -11,8 +11,8 @@ https://nytimes.com/athletic/6562816/2025/09/02/bills-sign-gabe-davis-practice-s
 https://nytimes.com/athletic/6592326/2025/09/02/george-raveling-dead/
 
 **Read Judge’s Ruling on Trump’s Use of Troops in California**\
-`The ruling ruling accused the president of effectively turning nearly 5,000 Marines and National Guard soldiers into a “national police force” during the immigration protests in June.`\
-https://nytimes.com/interactive/2025/09/02/us/breyer-ruling-newsom-trump.html
+`The ruling accused the president of effectively turning nearly 5,000 Marines and National Guard soldiers into a “national police force” during the immigration protests in June.`\
+https://nytimes.com/interactive/2025/09/02/us/newsom-v-trump-176-pca-order-granting-injunctive-relief.html
 
 **Start Ups**\
 ``\
