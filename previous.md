@@ -1,40 +1,40 @@
-**Ukrainian Students Start New School Year in Underground Classrooms**\
-`With Russian attacks ongoing and peace talks stalled, some students in Ukraine are attending classes underground. For some, it is their first in-person learning in more than three years of war.`\
-https://nytimes.com/video/world/europe/100000010372983/ukraine-russia-school-underground.html
+**After Court Defeat, Trump Warns of Economic Chaos From Loss of Tariffs**\
+`The president and his advisers have suggested they will fight a federal appeals court’s ruling that found many of the administration’s tariffs to be illegal.`\
+https://nytimes.com/2025/09/02/us/politics/trump-tariffs-appeals-court-ruling-economy.html
 
-**South Africa's white-ball team are on the up - England now await**\
-`The Proteas start their series in England buoyed by victory in Australia - and are packed with exciting talent `\
-https://nytimes.com/athletic/6588650/2025/09/02/england-south-africa-cricket-odi-series/
+**What to Know About Jair Bolsonaro’s Coup Plot Trial**\
+`The former Brazilian president is charged with planning a coup after losing the 2022 elections. He says he pursued only legal avenues to remain in power. Here is what to know about the trial.`\
+https://nytimes.com/2025/09/02/world/americas/jair-bolsonaro-coup-trial-what-to-know.html
 
-**Vardy signs for Italian club Cremonese on free transfer**\
-`Vardy left Leicester City at the end of last season after a 13-year stay, where his goals helped them to the 2015-16 Premier League title.`\
-https://nytimes.com/athletic/6317796/2025/09/02/jamie-vardy-cremonese-transfer/
+**Trump Wants to Drown Us in a Sea of Chaos**\
+`How should his opponents respond?`\
+https://nytimes.com/2025/09/02/opinion/trump-winning-imperial-presidency.html
 
-**Ederson leaves Man City for Fenerbahce in permanent transfer**\
-`Ederson's exit follows James Trafford's arrival from Burnley while Gianluigi Donnarumma is also set to join.`\
-https://nytimes.com/athletic/6365225/2025/09/02/ederson-fenerbahce-man-city-transfer/
+**Cue the Sun: This Lab Recreates Hot, Sweaty Days to Test Humans**\
+`Our reporter hits the treadmill to understand how scientists study extreme heat.`\
+https://nytimes.com/2025/09/02/climate/research-extreme-heat-lab.html
 
-**Dele leaves Como by mutual consent to pursue 'regular playing opportunities'**\
-`"Dele is keen to secure regular playing opportunities and..was not part of the club’s immediate plans," said Como.`\
-https://nytimes.com/athletic/6542114/2025/09/02/dele-alli-leaves-como-contract-termination/
+**The Supreme Court Is Backing Trump’s Power Grab**\
+`The legal scholar Kate Shaw discusses Donald Trump’s recent winning streak with the Supreme Court and what it means for the state of Constitution.`\
+https://nytimes.com/video/opinion/100000010367912/the-supreme-court-is-backing-trumps-power-grab.html
 
-**West Ham's transfer window: Stalwarts moved on, a tentative refresh and the cardinal sin of selling to Spurs**\
-`West Ham's transfer window involved the loss of one star to a rival and another staying put - but it wasn't quite a complete revolution`\
-https://nytimes.com/athletic/6487630/2025/09/02/west-ham-transfer-window-kudus-paqueta-todibo/
+**Ask The Morning: What Do You Want to Know About A.I.?**\
+`The technology seems to be everywhere these days. We’ll find experts to answer your questions.`\
+https://nytimes.com/2025/09/02/briefing/ask-the-morning-what-do-you-want-to-know-about-ai.html
 
-**The Millionaire Who Left Wall Street to Become a Paramedic**\
-`After making millions in a job he came to hate, Jonathan Kleisner joined the Fire Department as a rookie paramedic at the age of 41. Now he’s determined to be the best rescue medic anywhere.`\
-https://nytimes.com/2025/09/02/nyregion/rescue-medic-wall-street-.html
+**Gerrymandering Is Bad, No Matter Who’s Doing It**\
+`If Democrats gerrymander California, they will lose the moral high ground.`\
+https://nytimes.com/2025/09/02/opinion/gerrymander-democrats-california.html
 
-**Giuliani Finds a Home Away From Home in New Hampshire**\
-`Before his car crash, the former mayor of New York City was taking in a minor-league baseball game in Manchester, N.H., a city where he’s been known to enjoy a good cigar.`\
-https://nytimes.com/2025/09/02/nyregion/rudy-giuliani-new-hampshire.html
+**With ‘Weather Hunters,’ Al Roker Finally Brings the Rainbow Home**\
+`Inspired by a funny request from his children years ago, his new series teaches young viewers about clouds, thunder and the ingredients of a rainbow.`\
+https://nytimes.com/2025/09/02/arts/television/al-roker-weather-hunters.html
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2025/09/02/crosswords/spelling-bee-forum.html
+**When Climate Change Blurs Borders**\
+`The impact of climate change on the geographic features that demarcate many frontiers is adding to longstanding beefs over borders.`\
+https://nytimes.com/2025/09/02/opinion/climate-change-border-disputes.html
 
-**Inside Man United's transfer window: Ratcliffe's risk-taking, 'Project 90', Amorim's Baleba push, heartbroken Hojlund**\
-`How Ratcliffe's aggressive approach to transfer spending shaped United's summer and the players Amorim did - and didn't - get`\
-https://nytimes.com/athletic/6590671/2025/09/02/inside-man-uniteds-transfer-window-ratcliffes-risk-taking-heartbroken-hojlund-project-90-amorims-baleba-push/
+**100 Dinner Recipes for Right Now**\
+`Fall is busy enough. Let us help with the cooking.`\
+https://nytimes.com/2025/09/02/dining/dinner-ideas.html
 

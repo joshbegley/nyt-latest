@@ -1,3 +1,19 @@
+**Carlos Alcaraz and the most overindexed tennis match in recent history**\
+`Alcaraz's wavering focus and up-and-down matches have created a false impression of a player who is on a remarkable winning streak.`\
+https://nytimes.com/athletic/6589518/2025/09/02/carlos-alcaraz-tennis-results-inconsistency-us-open/
+
+**Ukraine Pursues a Weapons Buildup More Potent Than Any Security Guarantee**\
+`Kyiv sees a well-equipped army as a stronger deterrent to Moscow than any Western pledges to defend it. It is working to attract billions to buy more arms.`\
+https://nytimes.com/2025/09/02/world/europe/ukraine-weapons-security.html
+
+**The Supreme Court Is Backing Trump’s Power Grab**\
+`The legal scholar Kate Shaw discusses Donald Trump’s recent winning streak with the Supreme Court and what it means for the state of Constitution.`\
+https://nytimes.com/2025/09/02/opinion/ezra-klein-podcast-kate-shaw.html
+
+**What I'm seeing from the New England Patriots: Will O-line concerns hold back Drake Maye?**\
+`Maye is primed to take a step forward in his second season, but will the pass protection and roster depth hold up around him? `\
+https://nytimes.com/athletic/6582320/2025/09/02/new-england-patriots-preview-drake-maye-o-line/
+
 **After Court Defeat, Trump Warns of Economic Chaos From Loss of Tariffs**\
 `The president and his advisers have suggested they will fight a federal appeals court’s ruling that found many of the administration’s tariffs to be illegal.`\
 https://nytimes.com/2025/09/02/us/politics/trump-tariffs-appeals-court-ruling-economy.html
@@ -21,20 +37,4 @@ https://nytimes.com/video/opinion/100000010367912/the-supreme-court-is-backing-t
 **Ask The Morning: What Do You Want to Know About A.I.?**\
 `The technology seems to be everywhere these days. We’ll find experts to answer your questions.`\
 https://nytimes.com/2025/09/02/briefing/ask-the-morning-what-do-you-want-to-know-about-ai.html
-
-**Gerrymandering Is Bad, No Matter Who’s Doing It**\
-`If Democrats gerrymander California, they will lose the moral high ground.`\
-https://nytimes.com/2025/09/02/opinion/gerrymander-democrats-california.html
-
-**With ‘Weather Hunters,’ Al Roker Finally Brings the Rainbow Home**\
-`Inspired by a funny request from his children years ago, his new series teaches young viewers about clouds, thunder and the ingredients of a rainbow.`\
-https://nytimes.com/2025/09/02/arts/television/al-roker-weather-hunters.html
-
-**When Climate Change Blurs Borders**\
-`The impact of climate change on the geographic features that demarcate many frontiers is adding to longstanding beefs over borders.`\
-https://nytimes.com/2025/09/02/opinion/climate-change-border-disputes.html
-
-**100 Dinner Recipes for Right Now**\
-`Fall is busy enough. Let us help with the cooking.`\
-https://nytimes.com/2025/09/02/dining/dinner-ideas.html
 
