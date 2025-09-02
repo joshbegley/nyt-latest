@@ -1,3 +1,15 @@
+**Xi’s Parade to Showcase China’s Military Might and Circle of Autocrats**\
+`China will mark Japan’s defeat in World War II with a parade of missiles, soldiers and leaders like Kim Jong-un of North Korea and Vladimir Putin of Russia.`\
+https://nytimes.com/2025/09/01/world/asia/china-parade-putin-kim.html
+
+**Submit a question for Pete Sampson's Notre Dame mailbag**\
+`The Irish are 0-1 and staring at an idle weekend with plenty to work on after a 27-24 loss in Miami on the Sunday night of Week 1.`\
+https://nytimes.com/athletic/6591109/2025/09/01/submit-a-question-for-pete-sampsons-notre-dame-mailbag-105/
+
+**Phillies 'just kept battling back' in late, gritty win against Brewers**\
+`A 4-0 deficit in the second became a 5-5 game by the top of the fifth as the Phillies demonstrated resiliency that could make them dangerous`\
+https://nytimes.com/athletic/6591079/2025/09/01/phillies-brewers-comeback-victory-garrett-stubbs/
+
 **Braves (especially Jurickson Profar) excited to add Ha-Seong Kim to roster**\
 `Braves hope Kim, a waiver claim from Padres, can lock down their shortstop position.`\
 https://nytimes.com/athletic/6591039/2025/09/01/braves-ha-seong-kim-jurickson-profar/

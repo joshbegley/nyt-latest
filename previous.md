@@ -1,3 +1,15 @@
+**Xi’s Parade to Showcase China’s Military Might and Circle of Autocrats**\
+`China will mark Japan’s defeat in World War II with a parade of missiles, soldiers and leaders like Kim Jong-un of North Korea and Vladimir Putin of Russia.`\
+https://nytimes.com/2025/09/01/world/asia/china-parade-putin-kim.html
+
+**Submit a question for Pete Sampson's Notre Dame mailbag**\
+`The Irish are 0-1 and staring at an idle weekend with plenty to work on after a 27-24 loss in Miami on the Sunday night of Week 1.`\
+https://nytimes.com/athletic/6591109/2025/09/01/submit-a-question-for-pete-sampsons-notre-dame-mailbag-105/
+
+**Phillies 'just kept battling back' in late, gritty win against Brewers**\
+`A 4-0 deficit in the second became a 5-5 game by the top of the fifth as the Phillies demonstrated resiliency that could make them dangerous`\
+https://nytimes.com/athletic/6591079/2025/09/01/phillies-brewers-comeback-victory-garrett-stubbs/
+
 **Braves (especially Jurickson Profar) excited to add Ha-Seong Kim to roster**\
 `Braves hope Kim, a waiver claim from Padres, can lock down their shortstop position.`\
 https://nytimes.com/athletic/6591039/2025/09/01/braves-ha-seong-kim-jurickson-profar/
@@ -25,16 +37,4 @@ https://nytimes.com/interactive/2025/09/01/upshot/pickleball.html
 **Chargers RB Najee Harris expects to play vs. Chiefs in wake of eye injury**\
 `The running back, who was injured in a July 4 fireworks accident, has not yet appeared around media members without wearing sunglasses.`\
 https://nytimes.com/athletic/6590912/2025/09/01/chargers-rb-najee-harris-eye-injury-chiefs/
-
-**Nadler, Pillar of Democratic Party’s Old Guard, Will Retire Next Year**\
-`Representative Jerrold Nadler, the ex-House Judiciary chairman who helped lead President Trump’s impeachments, will not seek re-election in New York.`\
-https://nytimes.com/2025/09/01/nyregion/jerrold-nadler-congress-retires.html
-
-**Juan Soto's red-hot day vs. Tigers silences 'overrated' chants, bails out Mets pitching**\
-`The Mets overcame their pitching staff’s inadequacies with Soto's grand slam and triple in a 10-8 win over the Tigers.`\
-https://nytimes.com/athletic/6590711/2025/09/01/juan-soto-grand-slam-mets-tigers/
-
-**Coco Gauff's serve dominated her U.S. Open. Another shot ended it.**\
-`Gauff's serve remodel loomed over her tournament. It might be her forehand, which Naomi Osaka broke down to beat her, that matters more.`\
-https://nytimes.com/athletic/6590752/2025/09/01/coco-gauff-serve-forehand-us-open/
 
