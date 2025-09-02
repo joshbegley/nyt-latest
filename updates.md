@@ -1,3 +1,15 @@
+**The 'slow death' of Vitesse Arnhem. Can the club once known as Chelsea B be saved?**\
+`Years of chaos behind the scenes have cost the club their league place, with fans now waiting to hear if there will be a reprieve`\
+https://nytimes.com/athletic/6590297/2025/09/02/vitesse-arnhem-parry-chelsea-death/
+
+**Barcelona's transfer window: Key spots strengthened, but a painful loss at centre-back**\
+`With the transfer window now shut, it's time to take stock. How did Barcelona do in the market this summer?`\
+https://nytimes.com/athletic/6591557/2025/09/02/barcelona-transfer-window-rashford-garcia-flick/
+
+**First War, Then Floods Drive Pakistani Families From Their Homes**\
+`Near the Indian border, many people who fled the recent India-Pakistan conflict have had to leave again, this time because of rising waters.`\
+https://nytimes.com/2025/09/02/world/asia/pakistan-india-floods.html
+
 **The Potentially Big Costs of Trump’s Fed Fight**\
 `The president’s attacks on the central bank’s  independence could undermine investor confidence in the institution at a crucial time.`\
 https://nytimes.com/2025/09/02/business/dealbook/fed-trump-cook-political-independence.html
