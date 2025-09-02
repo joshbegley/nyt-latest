@@ -1,3 +1,7 @@
+**What Does Vogue Mean Today?**\
+`The magazine has a new editor in Chloe Malle. It may also need a new identity.`\
+https://nytimes.com/2025/09/02/style/vogue-chloe-malle.html
+
 **How to watch the New York Giants in 2025: Schedule and streaming for Big Blue's rebuild**\
 `The Giants are in a long rebuild, but there are still reasons to watch their regular-season slate this year. Here's how to tune in.`\
 https://nytimes.com/athletic/6530855/2025/09/02/new-york-giants-how-to-watch-2025/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6590722/2025/09/02/nebraska-week-1-cincinnati-overr
 **Inside Wrexham's record-breaking summer transfer window: £33m spent on constructing a Championship side**\
 `After three successive promotions, Phil Parkinson's squad needed a significant upgrade this summer – and that's exactly what it got`\
 https://nytimes.com/athletic/6580957/2025/09/02/inside-wrexham-summer-transfer-window/
-
-**Red Wings future lineup projection: What Detroit could look like in three years**\
-`Break out the crystal ball: What could the Red Wings look like when their top prospects reach the NHL? What holes will they still have?`\
-https://nytimes.com/athletic/6584721/2025/09/02/red-wings-prospects-future-lineup-projection/
 
