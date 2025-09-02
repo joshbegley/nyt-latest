@@ -1,3 +1,7 @@
+**‘The Bang, Bang, Bang’: How Protests, Tear Gas and Looting Roiled Indonesia**\
+`Deep-rooted resentment between the haves and have-nots set off a wave of antigovernment protests that have turned violent.`\
+https://nytimes.com/2025/09/02/world/asia/indonesia-jakarta-protests-economy.html
+
 **Lowetide: What to expect from Oilers rookies in 2025-26**\
 `Here's a look at what to expect from Oilers rookies like Matt Savoie and Ike Howard this coming season.`\
 https://nytimes.com/athletic/6588390/2025/09/02/edmonton-oilers-rookies-2025/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6589562/2025/09/02/washington-commanders-preview-ja
 **The Windup: The weirdest home run**\
 `Welcome to The Windup, The Athletic's MLB newsletter.`\
 https://nytimes.com/athletic/6591303/2025/09/02/trevor-story-home-run-the-windup/
-
-**Emergency Aid Trickles In After Deadly Earthquake in Afghanistan**\
-`Villages remain cut off in the remote, mountainous areas in the east that have been hardest hit by the disaster, which has killed at least 1,400 people.`\
-https://nytimes.com/2025/09/02/world/asia/afghanistan-earthquake.html
 
