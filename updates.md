@@ -1,3 +1,7 @@
+**In Protest, He Turned the Camera on China’s Surveillance State**\
+`Before fleeing China, an activist in Chongqing staged an elaborate one-man demonstration against the Communist Party that doubled as performance art.`\
+https://nytimes.com/2025/09/02/business/china-chongqing-protest.html
+
 **This Crispy Chicken Is Pure Poetry**\
 `This buttery lime chicken dinner couldn’t be any dreamier.`\
 https://nytimes.com/2025/09/02/dining/this-crispy-chicken-is-pure-poetry.html
