@@ -1,3 +1,7 @@
+**TCU pummels UNC 48-14 in Bill Belichick's college debut**\
+`Fans headed for the exits in the third quarter as TCU scored 41 consecutive points in a blowout.`\
+https://nytimes.com/athletic/6590974/2025/09/01/unc-tcu-bill-belichick-score-result-takeaways/
+
 **Xi’s Parade to Showcase China’s Military Might and Circle of Autocrats**\
 `China will mark Japan’s defeat in World War II with a parade of missiles, soldiers and leaders like Kim Jong-un of North Korea and Vladimir Putin of Russia.`\
 https://nytimes.com/2025/09/01/world/asia/china-parade-putin-kim.html
@@ -18,8 +22,8 @@ https://nytimes.com/athletic/6591039/2025/09/01/braves-ha-seong-kim-jurickson-pr
 `Is Rena Cohen going soft on us?`\
 https://nytimes.com/2025/09/01/crosswords/daily-puzzle-2025-09-02.html
 
-**Padres' Jason Adam carted off vs. Orioles with apparent left leg injury**\
-`Adam fell to the ground as he attempted to field a soft comebacker off the bat of Orioles shortstop Gunnar Henderson.`\
+**Padres' Jason Adam suffers season-ending quad tendon rupture**\
+`Adam's injury will require surgery and has a projected recovery time of six to nine months.`\
 https://nytimes.com/athletic/6591078/2025/09/01/jason-adam-injury-carted-off-padres/
 
 **With Carlos Santana addition, Cubs hope they can finally solve bench issues**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6590895/2025/09/01/kamil-majchrzak-hat-snatch-child
 **How Pickleball Took Over Thousands of Tennis Courts, as Seen From the Sky**\
 `Aerial photographs show what’s happening all over the country: There’s only so much asphalt, and pickleball can’t get enough of it.`\
 https://nytimes.com/interactive/2025/09/01/upshot/pickleball.html
-
-**Chargers RB Najee Harris expects to play vs. Chiefs in wake of eye injury**\
-`The running back, who was injured in a July 4 fireworks accident, has not yet appeared around media members without wearing sunglasses.`\
-https://nytimes.com/athletic/6590912/2025/09/01/chargers-rb-najee-harris-eye-injury-chiefs/
 
