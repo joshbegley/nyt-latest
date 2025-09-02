@@ -1,3 +1,11 @@
+**What a Ruling to Fix Google’s Search Monopoly Means for the Company**\
+`The judge’s decision positions Google to keep its search business running largely without interruption.`\
+https://nytimes.com/2025/09/02/technology/google-antitrust-case-ruling.html
+
+**An NFL play is now sponsored. It's the Tush Push (presented by DUDE Wipes)**\
+`The partnership will include social content, product sampling at Eagles events and postgame radio highlights of successful tush push plays.`\
+https://nytimes.com/athletic/6593114/2025/09/02/nfl-tush-push-sponsor-philadelphia-eagles/
+
 **President Trump Is Alive. The Internet Was Convinced Otherwise.**\
 `In the world of presidential health, distrust and speculation run so rampant that even Mr. Trump’s online assurance that he was fine was immediately explained away as part of a cover-up.`\
 https://nytimes.com/2025/09/02/us/politics/trump-health-bruise-conspiracies.html
