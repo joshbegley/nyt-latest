@@ -1,3 +1,11 @@
+**The Fall’s Most Anticipated Albums: 10 Picks**\
+`Cardi B’s long-awaited return, Jeff Tweedy’s low-key magnum opus, Silvana Estrada’s latest poetic release and more.`\
+https://nytimes.com/2025/09/02/arts/music/amplifier-newsletter-fall-album-picks.html
+
+**gws-london-cabbage**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/london-cabbage
+
 **Court Hands a Loss to Groups Seeking Billions in Frozen Climate Funds**\
 `The nonprofit organizations are fighting a Trump administration effort to claw back climate and clean energy grants.`\
 https://nytimes.com/2025/09/02/climate/climate-grants-frozen.html
