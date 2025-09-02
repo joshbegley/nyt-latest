@@ -1,3 +1,15 @@
+**TAFC: Does it pay to have a tantrum over a transfer? Plus: Why Ten Hag was sacked**\
+`Marc Guehi missed out on a move to Liverpool but Alexander Isak forced one through after refusing to play. Does it help to go on strike?`\
+https://nytimes.com/athletic/6591315/2025/09/02/transfers-guehi-liverpool-ten-hag-sacked/
+
+**Meet the beloved teammate on a mission to make NFL offensive linemen matter**\
+`Dion Dawkins is used to pushing people around. He used that experience to help change the NFL.`\
+https://nytimes.com/athletic/6586031/2025/09/02/dion-dawkins-nfl-protector-of-year-award/
+
+**House Oversight Committee Is Set to Meet With Accusers of Jeffrey Epstein**\
+`Lawmakers are continuing their inquiry into Mr. Epstein, the disgraced financier, despite the Trump administration’s efforts to quell public demand for information.`\
+https://nytimes.com/2025/09/02/us/politics/epstein-accusers-house-oversight-committee.html
+
 **Why Bengals' RB Chase Brown is 'going to be a problem this season'**\
 `Cincinnati is tailoring its running game around the third-year back who broke how down the stretch last season.`\
 https://nytimes.com/athletic/6590868/2025/09/02/chase-brown-2025-cincinnati-bengals/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6591099/2025/09/02/giants-rookie-drew-gilbert-goofy
 **Premier League's record-breaking window: £3.11bn spent, more than other top leagues combined**\
 `This was a record breaking window for the Premier League in terms of gross spend — no window before has been like it`\
 https://nytimes.com/athletic/6590530/2025/09/02/premier-league-transfer-window-numbers-record/
-
-**The 10 best things I saw in high school football over the weekend**\
-`Five-star Georgia commit Jared Curtis showed off his dual-threat ability in a big win for Nashville Christian Academy. `\
-https://nytimes.com/athletic/6589489/2025/09/02/college-football-recruiting-thoughts-week-1/
-
-**Pauline Ferrand-Prevot on winning the Tour de France Femmes, weight loss, and descending tips from Tom Pidcock**\
-`The 2025 Tour de France Femmes winner speaks to The Athletic about a momentous year on the bike`\
-https://nytimes.com/athletic/6588917/2025/09/02/pauline-ferrand-prevot-interview-tour-de-france/
-
-**Introducing The Soccer 100: A celebration of the greatest players in the sport’s history**\
-`The Athletic is delighted to announce the upcoming release of The Soccer 100, profiling players from Pele to Puskas, Maradona to Messi`\
-https://nytimes.com/athletic/6578432/2025/09/02/soccer-100-athletic-harper-collins/
 
