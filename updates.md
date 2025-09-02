@@ -1,3 +1,15 @@
+**Wolves 2025 summer transfer window review: Vacancies filled but concerns over experience**\
+`Wolves fans will be hoping their side can avoid relegation after the summer window`\
+https://nytimes.com/athletic/6590424/2025/09/02/wolves-2025-summer-transfer-window-review/
+
+**Ranking all 153 Premier League transfers this summer window from worst to best**\
+`It has been a record-breaking summer for the Premier League. The Athletic's Tim Spiers has tried to put every signing into ranked order`\
+https://nytimes.com/athletic/6515158/2025/09/02/premier-league-transfers-ranked-summer-2025/
+
+**Manchester United women, the Champions League and a one-way chartered flight to Sweden**\
+`United's women took connecting commercial flights home from Champions League qualifying, with some players opting to pay their own way`\
+https://nytimes.com/athletic/6590598/2025/09/02/manchester-united-women-plane-champions-league/
+
 **James Horncastle’s Serie A Briefing: Napoli's box-office finale, a Mussolini moment and Helen Mirren at Lecce**\
 `James Horncastle reveals the most intriguing plot lines from the weekend in Italian football, including Keinan Davis conquering San Siro`\
 https://nytimes.com/athletic/6588690/2025/09/02/james-horncastles-serie-a-briefing-napolis-box-office-finale-mussolini-stars-and-helen-mirren-at-lecce/
