@@ -1,3 +1,7 @@
+**Trump Says He’ll Give Giuliani the Presidential Medal of Freedom**\
+`President Trump’s announcement came days after Rudolph W. Giuliani, his former lawyer and a onetime New York City mayor, was hurt in a car accident.`\
+https://nytimes.com/2025/09/02/us/politics/trump-giuliani-presidential-medal-freedom.html
+
 **The Pulse: Belichick's debut could not have gone worse**\
 `The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
 https://nytimes.com/athletic/6589844/2025/09/02/bill-belichick-debut-tcu-the-pulse/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6584711/2025/09/02/justin-jefferson-vikings-face-nf
 **Jared Goff ready to take on more in Lions' post-Ben Johnson era**\
 `“This thing is set up for Goff to have success with our playmakers," Dan Campbell said of the Lions quarterback.`\
 https://nytimes.com/athletic/6590287/2025/09/02/jared-goff-lions-offensive-coordinator/
-
-**Real Madrid's transfer window: €180m spent this summer, but should more have been done?**\
-`With the transfer window now closed, it's time to take stock. How did Xabi Alonso and company do this summer?`\
-https://nytimes.com/athletic/6591358/2025/09/02/real-madrid-transfer-window-review-alonso/
 
