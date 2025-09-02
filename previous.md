@@ -30,8 +30,8 @@ https://nytimes.com/2025/09/02/opinion/birth-rate-progressives.html
 ``\
 https://nytimes.com/panel/live/best-restaurants
 
-**Mark Knoller, ‘the Savant of 1600 Pennsylvania Avenue,’ Dies at 73**\
-`As White House correspondent for CBS News Radio, he kept meticulous records of presidential activities, from vacation days to teleprompter use.`\
+**Mark Knoller, ‘Savant’ in the White House Press Corps, Dies at 73**\
+`As a reporter for CBS News Radio, he kept meticulous records of presidential activities, from vacation days to teleprompter use.`\
 https://nytimes.com/2025/09/02/business/media/mark-knoller-dead.html
 
 **Judge Apologizes to Conservative Justices in Case Over N.I.H. Cuts**\

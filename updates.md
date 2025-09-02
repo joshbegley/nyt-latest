@@ -1,3 +1,7 @@
+**Mark Knoller, ‘Savant’ in the White House Press Corps, Dies at 73**\
+`As a reporter for CBS News Radio, he kept meticulous records of presidential activities, from vacation days to teleprompter use.`\
+https://nytimes.com/2025/09/02/business/media/mark-knoller-dead.html
+
 **Trump Reveals a New Strategy for Dealing With Bad News: Blame A.I.**\
 `President Trump blamed A.I. for a widely shared video of a trash bag being thrown from a White House window. But the White House had already confirmed it was real.`\
 https://nytimes.com/2025/09/02/us/politics/trump-ai-video-trash-bag.html
