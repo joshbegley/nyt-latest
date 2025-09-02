@@ -1,3 +1,7 @@
+**In a Rare Sign of Protest, a Chinese Activist Challenges the C.C.P.**\
+`In an act of defiance against China’s Communist Party, an activist projected anti-C.C.P. slogans on a building and managed to flee one of the world’s most surveilled countries without being caught.`\
+https://nytimes.com/video/world/asia/100000010373967/china-chongqing-protest.html
+
 **Easy Slow Cooker Recipes That Won’t Heat Up Your Kitchen**\
 `(No description)`\
 https://nytimes.com/newsgraphics/card-story/slow-cooker-summer-recipes
