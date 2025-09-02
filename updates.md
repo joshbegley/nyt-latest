@@ -1,3 +1,11 @@
+**Loftus-Cheek called into England squad**\
+`The 29-year-old has not played for England since November 2018.`\
+https://nytimes.com/athletic/6589608/2025/09/02/ruben-loftus-cheek-england-squad/
+
+**The New York Times International Edition in Print for Wednesday, Sep. 3, 2025**\
+``\
+https://nytimes.com/issue/todaysinyt/2025/09/02/todays-new-york-times-international-edition
+
 **Suntory Boss Resigns After Buying Supplement That May Be Illegal in Japan**\
 `Takeshi Niinami has stepped down from his post following a police investigation, underscoring Japan’s zero-tolerance drug policies.`\
 https://nytimes.com/2025/09/02/business/suntory-chairman-takeshi-niinami.html
