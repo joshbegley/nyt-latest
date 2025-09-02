@@ -1,3 +1,11 @@
+**James Horncastle’s Serie A Briefing: Napoli's box-office finale, a Mussolini moment and Helen Mirren at Lecce**\
+`James Horncastle reveals the most intriguing plot lines from the weekend in Italian football, including Keinan Davis conquering San Siro`\
+https://nytimes.com/athletic/6588690/2025/09/02/james-horncastles-serie-a-briefing-napolis-box-office-finale-mussolini-stars-and-helen-mirren-at-lecce/
+
+**The transfer window's maddest moments: Sagas, U-turns and a Jamie Vardy tattoo**\
+`This summer has brought us Man United 'bomb squads', a goalkeeper's miss-step and multiple Newcastle and Spurs rejections`\
+https://nytimes.com/athletic/6590514/2025/09/02/transfer-window-most-surreal-moments/
+
 **Yoane Wissa to Newcastle United: Everything you need to know - TLDR**\
 `Newcastle have signed their second striker of the summer - here we break down the deal`\
 https://nytimes.com/athletic/6589311/2025/09/02/newcastle-yoane-wissa-transfer/
