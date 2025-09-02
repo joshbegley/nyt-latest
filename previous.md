@@ -1,6 +1,14 @@
+**This Crispy Chicken Is Pure Poetry**\
+`Eric Kim’s recipe, finished with a lime-butter sauce, isn’t just beautifully comforting, it’s also beautifully written.`\
+https://nytimes.com/2025/09/02/dining/this-crispy-chicken-is-pure-poetry.html
+
 **Maduro Tells Trump War With Venezuela Would ‘Stain Your Hands With Blood’**\
 `As U.S. warships and troops gather in the Caribbean, Mr. Maduro threatened an “armed fight” in response to any military action. He also appealed for peace.`\
 https://nytimes.com/2025/09/02/world/americas/maduro-trump-venezuela-war.html
+
+**How the Chiefs fell in love with Josh Simmons and what they've learned about him since**\
+`The inside story of how the Chiefs landed their new left tackle in the first round — and why they think he'll succeed.`\
+https://nytimes.com/athletic/6581740/2025/09/02/chiefs-rookie-josh-simmons-nfl-draft/
 
 **Scientists May Have Identified a Culprit Behind Declining Amazon Rains**\
 `Deforestation is playing a greater role than researchers expected, according to a new study.`\
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6592023/2025/09/02/bill-belichick-unc-tcu-until-sat
 **D.I.Y. Repairs Turned Into a Gut Renovation in Philadelphia**\
 `A couple of architects liked their rowhouse so much that they transformed it two different times to suit their evolving needs.`\
 https://nytimes.com/2025/09/02/realestate/philadelphia-fitler-square-renovation-architects.html
-
-**Inside Chelsea's end to the window: Delap injury, Guiu recall, Jackson switch**\
-`Chelsea's window got a lot busier after an injury suffered by Liam Delap against Fulham. This is the inside story of that 48 hours`\
-https://nytimes.com/athletic/6591224/2025/09/02/chelsea-inside-end-transfer-window/
-
-**Judge Says Trump’s Use of Troops in L.A. Is Illegal**\
-`The federal judge found that the deployment exceeded legal limits that generally prohibit the use of the military for domestic law enforcement.`\
-https://nytimes.com/2025/09/02/us/judge-ruling-trump-national-guard-los-angeles.html
 
