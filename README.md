@@ -1,3 +1,7 @@
+**Phillies "just kept battling back" in late, gritty win against Brewers**\
+`A 4-0 deficit in the second became a 5-5 game by the top of the fifth as the Phillies demonstrated resiliency that could make them dangerous`\
+https://nytimes.com/athletic/6591079/2025/09/01/phillies-brewers-comeback-victory-garrett-stubbs/
+
 **Braves (especially Jurickson Profar) excited to add Ha-Seong Kim to roster**\
 `Braves hope Kim, a waiver claim from Padres, can lock down their shortstop position.`\
 https://nytimes.com/athletic/6591039/2025/09/01/braves-ha-seong-kim-jurickson-profar/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/01/nyregion/jerrold-nadler-congress-retires.html
 **Juan Soto's red-hot day vs. Tigers silences 'overrated' chants, bails out Mets pitching**\
 `The Mets overcame their pitching staff’s inadequacies with Soto's grand slam and triple in a 10-8 win over the Tigers.`\
 https://nytimes.com/athletic/6590711/2025/09/01/juan-soto-grand-slam-mets-tigers/
-
-**Coco Gauff's serve dominated her U.S. Open. Another shot ended it.**\
-`Gauff's serve remodel loomed over her tournament. It might be her forehand, which Naomi Osaka broke down to beat her, that matters more.`\
-https://nytimes.com/athletic/6590752/2025/09/01/coco-gauff-serve-forehand-us-open/
 
