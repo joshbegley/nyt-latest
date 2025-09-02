@@ -1,3 +1,7 @@
+**Washington's watch guide: How to stream and follow the 2025 Commanders**\
+`The Commanders have a packed-out prime-time schedule for 2025. Here's how to watch resurgent Washington this season.`\
+https://nytimes.com/athletic/6582355/2025/09/02/washington-commanders-football-how-to-watch-2025/
+
 **What I'm seeing from the Commanders: Jayden Daniels got better and there's a new X-factor**\
 `The Commanders are all in, and their phenom of a QB keeps improving, but depth and the defensive line could be concerns.`\
 https://nytimes.com/athletic/6589562/2025/09/02/washington-commanders-preview-jayden-daniels-marshon-lattimore/
