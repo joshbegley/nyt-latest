@@ -1,3 +1,7 @@
+**Marketa Vondrousova pulls out of U.S. Open quarterfinal with Aryna Sabalenka with injury**\
+`The Czech has been through a run of injuries the past two years.`\
+https://nytimes.com/athletic/6593120/2025/09/02/vondrousova-us-open-withdrawal-injury/
+
 **Putin’s Propaganda War**\
 `Russian authorities are using a festival to showcase Moscow as a place where life is better than in the West.`\
 https://nytimes.com/2025/09/02/briefing/putin-propaganda-war-china-military-parade.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/02/us/politics/judge-apology-conservative-justices.h
 **West Ham fan group call for boycott of Brentford game: 'Our club is going to die'**\
 `Hammers United have said the east London club are dying under the stewardship of majority owner David Sullivan and vice-chair Karren Brady.`\
 https://nytimes.com/athletic/6592923/2025/09/02/west-ham-boycott-sullivan-brady-ownership/
-
-**Judge Orders Google to Share Search Results to Help Resolve Monopoly**\
-`In a landmark antitrust case, Judge Amit P. Mehta ruled on Tuesday that Google must hand over some of its search data to rivals but did not grant the government’s biggest requests.`\
-https://nytimes.com/2025/09/02/technology/google-search-antitrust-decision.html
 

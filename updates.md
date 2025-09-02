@@ -1,3 +1,7 @@
+**Trump on Deploying Troops to Chicago: “We’re Going In”**\
+`President Trump, speaking at a news conference on Tuesday, said he was planning to send the National Guard to Chicago. He did not offer details on the deployment’s timing.`\
+https://nytimes.com/video/us/politics/100000010374834/trump-deploy-national-guard-chicago.html
+
 **Putin’s Propaganda War**\
 `Russian authorities are using a festival to showcase Moscow as a place where life is better than in the West.`\
 https://nytimes.com/2025/09/02/briefing/putin-propaganda-war-china-military-parade.html
