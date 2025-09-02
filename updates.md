@@ -1,3 +1,19 @@
+**West Ham's transfer window: Stalwarts moved on, a tentative refresh and the cardinal sin of selling to Spurs**\
+`West Ham's transfer window involved the loss of one star to a rival and another staying put - but it wasn't quite a complete revolution`\
+https://nytimes.com/athletic/6487630/2025/09/02/west-ham-transfer-window-kudus-paqueta-todibo/
+
+**The Millionaire Who Left Wall Street to Become a Paramedic**\
+`After making millions in a job he came to hate, Jonathan Kleisner joined the Fire Department as a rookie paramedic at the age of 41. Now he’s determined to be the best rescue medic anywhere.`\
+https://nytimes.com/2025/09/02/nyregion/rescue-medic-wall-street-.html
+
+**Giuliani Finds a Home Away From Home in New Hampshire**\
+`Before his car crash, the former mayor of New York City was taking in a minor-league baseball game in Manchester, N.H., a city where he’s been known to enjoy a good cigar.`\
+https://nytimes.com/2025/09/02/nyregion/rudy-giuliani-new-hampshire.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/09/02/crosswords/spelling-bee-forum.html
+
 **Inside Man United's transfer window: Ratcliffe's risk-taking, 'Project 90', Amorim's Baleba push, heartbroken Hojlund**\
 `How Ratcliffe's aggressive approach to transfer spending shaped United's summer and the players Amorim did - and didn't - get`\
 https://nytimes.com/athletic/6590671/2025/09/02/inside-man-uniteds-transfer-window-ratcliffes-risk-taking-heartbroken-hojlund-project-90-amorims-baleba-push/
