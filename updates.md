@@ -1,3 +1,11 @@
+**Bills sign Gabe Davis, reuniting with free-agent receiver: Source**\
+`The 26-year-old was released by the Jaguars in May.`\
+https://nytimes.com/athletic/6562816/2025/09/02/bills-sign-gabe-davis-practice-squad/
+
+**George Raveling, Hall of Fame coach, Nike exec, who helped sign Michael Jordan, dies at 88**\
+`Jordan wrote the forward for Raveling’s book and said, "If not for George, there would be no Air Jordan."`\
+https://nytimes.com/athletic/6592326/2025/09/02/george-raveling-dead/
+
 **Read Judge’s Ruling on Trump’s Use of Troops in California**\
 `The ruling ruling accused the president of effectively turning nearly 5,000 Marines and National Guard soldiers into a “national police force” during the immigration protests in June.`\
 https://nytimes.com/interactive/2025/09/02/us/breyer-ruling-newsom-trump.html
