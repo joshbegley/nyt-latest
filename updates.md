@@ -1,3 +1,15 @@
+**‘S.N.L.’ Announces New Cast Members**\
+`The upcoming season of “Saturday Night Live” will feature five new faces. Departing are Heidi Gardner, Emil Wakim, Devon Walker and Michael Longfellow.`\
+https://nytimes.com/2025/09/02/arts/television/snl-cast-departures-season-51.html
+
+**Micah Parsons' agent shares contract negotiations with Cowboys, Jerry Jones**\
+`'At no point did Micah believe that he was negotiating a contract,' Parsons' agent, David Mulugheta, said Tuesday on ESPN's 'First Take.'`\
+https://nytimes.com/athletic/6592483/2025/09/02/micah-parsons-jerry-jones-negotiations-agent/
+
+**A C.E.O. Stirred Anger at the U.S. Open. Another Man Bore the Internet’s Wrath.**\
+`The chief executive of the Polish company Drogbruk was captured on video snatching a hat in front of a child. The head of Drog-Bruk, a different firm, is getting attacked.`\
+https://nytimes.com/2025/09/02/world/europe/us-open-drog-bruk-ceo-szczerek.html
+
 **Scoop City: 32 fantasy facts before kickoff**\
 `One fact about 32 potential fantasy targets`\
 https://nytimes.com/athletic/6592727/2025/09/02/32-fantasy-facts-nfl-2025-scoop-city/
