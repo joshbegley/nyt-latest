@@ -1,3 +1,11 @@
+**Putin and Xi Invoke Wartime Unity as They Hail Ties in Beijing**\
+`The Russian and Chinese leaders drew on a shared view of their countries’ roles in World War II to cast their modern-day partnership as a challenge to the West.`\
+https://nytimes.com/2025/09/02/world/asia/china-putin-xi.html
+
+**Belgium to Recognize Palestinian State, Joining Pressure on Israel**\
+`The recognition was conditioned on the release of hostages by Hamas. It comes after similar moves by other countries as they try to push Israel to end the war in Gaza.`\
+https://nytimes.com/2025/09/02/world/europe/belgium-palestinian-state.html
+
 **TAFC: Does it pay to have a tantrum over a transfer? Plus: Why Ten Hag was sacked**\
 `Marc Guehi missed out on a move to Liverpool but Alexander Isak forced one through after refusing to play. Does it help to go on strike?`\
 https://nytimes.com/athletic/6591315/2025/09/02/transfers-guehi-liverpool-ten-hag-sacked/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6591015/2025/09/02/notre-dame-miami-cj-carr-jeremiy
 **Why Week 2 is the Big Ten's ultimate prove-it Saturday**\
 `With two consecutive national titles and a blissful start to 2025, the Big Ten has earned the right to flex. But now, the moment’s over.`\
 https://nytimes.com/athletic/6589843/2025/09/02/big-ten-football-nonconference-schedule-depth/
-
-**Rookie Drew Gilbert is bringing goofy, collegiate energy — and Giants love it**\
-`The 5-foot-9 "lightning bolt" has brought a much-needed dose of fun and enthusiasm to the San Francisco clubhouse.`\
-https://nytimes.com/athletic/6591099/2025/09/02/giants-rookie-drew-gilbert-goofy-energy/
-
-**Premier League's record-breaking window: £3.11bn spent, more than other top leagues combined**\
-`This was a record breaking window for the Premier League in terms of gross spend — no window before has been like it`\
-https://nytimes.com/athletic/6590530/2025/09/02/premier-league-transfer-window-numbers-record/
 
