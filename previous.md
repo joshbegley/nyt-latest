@@ -1,3 +1,7 @@
+**The New York Times in Print for Tuesday, Sep. 2, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/09/02/todays-new-york-times
+
 **Liverpool's transfer verdict: Isak coup, Guehi blow and why Wirtz could top them all**\
 `Analysing over £400m of spending, plus some of those who departed, during a frantic summer`\
 https://nytimes.com/athletic/6589948/2025/09/02/liverpool-transfer-window-verdict/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6590514/2025/09/02/transfer-window-most-surreal-mom
 **Yoane Wissa to Newcastle United: Everything you need to know - TLDR**\
 `Newcastle have signed their second striker of the summer - here we break down the deal`\
 https://nytimes.com/athletic/6589311/2025/09/02/newcastle-yoane-wissa-transfer/
-
-**Why China Is Trying to Tame Its Electric Car Frenzy**\
-`Beijing has run out of patience with companies slashing prices, and is urging restraint. But fierce competition is also producing a surge of innovation.`\
-https://nytimes.com/2025/09/02/business/china-electric-vehicles-overcapacity.html
 

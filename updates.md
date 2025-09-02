@@ -1,3 +1,7 @@
+**The New York Times in Print for Tuesday, Sep. 2, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/09/02/todays-new-york-times
+
 **Liverpool's transfer verdict: Isak coup, Guehi blow and why Wirtz could top them all**\
 `Analysing over £400m of spending, plus some of those who departed, during a frantic summer`\
 https://nytimes.com/athletic/6589948/2025/09/02/liverpool-transfer-window-verdict/
