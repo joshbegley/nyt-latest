@@ -1,3 +1,7 @@
+**D.I.Y. Repairs Turned Into a Gut Renovation in Philadelphia**\
+`A couple of architects liked their rowhouse so much that they transformed it two different times to suit their evolving needs.`\
+https://nytimes.com/2025/09/02/realestate/philadelphia-fitler-square-renovation-architects.html
+
 **Inside Chelsea's end to the window: Delap injury, Guiu recall, Jackson switch**\
 `Chelsea's window got a lot busier after an injury suffered by Liam Delap against Fulham. This is the inside story of that 48 hours`\
 https://nytimes.com/athletic/6591224/2025/09/02/chelsea-inside-end-transfer-window/
