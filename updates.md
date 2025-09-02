@@ -1,3 +1,11 @@
+**What I'm seeing from the Commanders: Jayden Daniels got better and there's a new X-factor**\
+`The Commanders are all in, and their phenom of a QB keeps improving, but depth and the defensive line could be concerns.`\
+https://nytimes.com/athletic/6589562/2025/09/02/washington-commanders-preview-jayden-daniels-marshon-lattimore/
+
+**Dwayne Johnson’s Tearful Reinvention at the Venice Film Festival**\
+`The action superstar’s pivot to a dramatic role as a drug-addicted UFC fighter in “The Smashing Machine” brought a standing ovation and Oscar talk.`\
+https://nytimes.com/2025/09/02/movies/dwayne-johnson-smashing-machine-venice-film-festival.html
+
 **The Windup: The weirdest home run**\
 `Welcome to The Windup, The Athletic's MLB newsletter.`\
 https://nytimes.com/athletic/6591303/2025/09/02/trevor-story-home-run-the-windup/
