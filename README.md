@@ -1,3 +1,7 @@
+**Inside Chelsea's dramatic end to the window: Delap injury, Guiu recall, Jackson switch**\
+`Chelsea's window got a lot busier after an injury suffered by Liam Delap. This is the inside story of that 48 hours`\
+https://nytimes.com/athletic/6591224/2025/09/02/chelsea-inside-end-transfer-window/
+
 **Judge Hands Trump a Legal Rebuke Over His Troop Deployment in L.A.**\
 `The federal judge found that the deployment exceeded legal limits that generally prohibit the use of the military for domestic law enforcement.`\
 https://nytimes.com/2025/09/02/us/judge-ruling-trump-national-guard-los-angeles.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6531397/2025/09/02/dallas-cowboys-how-to-watch-2025
 **Scientists Denounce Trump Administration’s Climate Report**\
 `Scores of researchers reviewed the Energy Department’s argument about greenhouse gases and found serious deficiencies.`\
 https://nytimes.com/2025/09/02/climate/climate-science-report-energy-department.html
-
-**Silly meets smart: What ‘Pablo Torre Finds Out’ is all about**\
-`Pablo Torre follows three rules when choosing which mystery to solve on his influential podcast: smart, funny and surprising.`\
-https://nytimes.com/athletic/6584773/2025/09/02/silly-meets-smart-what-pablo-torre-finds-out-is-all-about/
 
