@@ -1,4 +1,12 @@
-**Diamondbacks lose Lourdes Guirrel Jr. to torn right ACL after outfield mishap**\
+**Read the Appeals Court’s Decision**\
+`In a split 2-to-1 decision, the U.S. Court of Appeals for the District of Columbia said the Trump administration’s attempt to block Rebecca Kelly Slaughter, a Democratic commissioner, from resuming her role at the F.T.C. had “no prospect of success.”`\
+https://nytimes.com/interactive/2025/09/02/us/politics/slaughtertrumpcadcord090225.html
+
+**House Oversight Panel Releases 33,000 Pages of Epstein Files as Pressure Mounts**\
+`The committee made the move as Republican leaders sought to persuade colleagues not to join an effort to force a vote on the full disclosure of material.`\
+https://nytimes.com/2025/09/02/us/politics/epstein-files-release-house-oversight.html
+
+**Diamondbacks lose Lourdes Gurriel Jr. to torn right ACL after outfield mishap**\
 `It’s the latest setback for a Diamondbacks team that has suffered several this season. `\
 https://nytimes.com/athletic/6593179/2025/09/02/az-diamondbacks-lourdes-gurriel-jr-injury/
 
@@ -29,12 +37,4 @@ https://nytimes.com/2025/09/02/world/canada/alberta-canada-edmonton-school-book-
 **A Kennedy, a Protégé and a Progressive Star Eye Nadler’s N.Y. House Seat**\
 `Representative Jerrold Nadler’s departure is still 16 months away, but Democrats are already testing the waters in what is expected to be a highly contested race.`\
 https://nytimes.com/2025/09/02/nyregion/nadler-retire-successor-replace.html
-
-**Venus Williams' U.S. Open doubles with Leylah Fernandez runs into Townsend and Siniakova**\
-`The team formed on a whim fell to the Grand-Slam-winning duo of Townsend and Siniaková, as two U.S. Open storylines coalesced.`\
-https://nytimes.com/athletic/6593320/2025/09/02/venus-williams-us-open-doubles-leylah-fernandez/
-
-**What a Ruling to Fix Google’s Search Monopoly Means for the Company**\
-`The judge’s decision positions Google to keep its search business running largely without interruption.`\
-https://nytimes.com/2025/09/02/technology/google-antitrust-case-ruling.html
 
