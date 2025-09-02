@@ -1,3 +1,7 @@
+**This Crispy Chicken Is Pure Poetry**\
+`This buttery lime chicken dinner couldn’t be any dreamier.`\
+https://nytimes.com/2025/09/02/dining/this-crispy-chicken-is-pure-poetry.html
+
 **Gérard Depardieu Is Ordered to Stand Trial Over Rape Accusations**\
 `The actress Charlotte Arnould has accused the French movie icon of raping her twice in 2018 at his home in Paris. He denies wrongdoing.`\
 https://nytimes.com/2025/09/02/world/europe/gerard-depardieu-rape-accusations-trial.html

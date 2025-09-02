@@ -7,7 +7,7 @@ https://nytimes.com/2025/09/02/world/europe/gerard-depardieu-rape-accusations-tr
 https://nytimes.com/athletic/6590189/2025/09/02/nfl-week-1-betting-picks-opening-line/
 
 **This Crispy Chicken Is Pure Poetry**\
-`Eric Kim’s recipe, finished with a lime-butter sauce, isn’t just beautifully comforting, it’s also beautifully written.`\
+`This buttery lime chicken dinner couldn’t be any dreamier.`\
 https://nytimes.com/2025/09/02/dining/this-crispy-chicken-is-pure-poetry.html
 
 **Maduro Tells Trump War With Venezuela Would ‘Stain Your Hands With Blood’**\
