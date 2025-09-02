@@ -1,3 +1,11 @@
+**Padres' Jason Adam carted off vs. Orioles with apparent left leg injury**\
+`Adam fell to the ground as he attempted to field a soft comebacker off the bat of Orioles shortstop Gunnar Henderson.`\
+https://nytimes.com/athletic/6591078/2025/09/01/jason-adam-injury-carted-off-padres/
+
+**Man apologizes for snatching Kamil Majchrzak's hat away from child at U.S. Open**\
+`"I became caught up in the heat of the moment and the joy of the victory," the man said after video of the incident went viral.`\
+https://nytimes.com/athletic/6590895/2025/09/01/kamil-majchrzak-hat-snatch-child-us-open/
+
 **With Carlos Santana addition, Cubs hope they can finally solve bench issues**\
 `Santana, 39, isn't having his most productive season, but the Cubs hope he can provide quality at-bats in limited playing time.`\
 https://nytimes.com/athletic/6590819/2025/09/01/cubs-carlos-santana-signing-bench/
