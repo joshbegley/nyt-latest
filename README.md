@@ -1,3 +1,7 @@
+**Judge Hands Trump a Legal Rebuke Over His Troop Deployment in L.A.**\
+`The federal judge found that the deployment exceeded legal limits that generally prohibit the use of the military for domestic law enforcement.`\
+https://nytimes.com/2025/09/02/us/judge-ruling-trump-national-guard-los-angeles.html
+
 **Afghans Reel From Deadly Quake**\
 `Rescue workers struggled to reach communities in the isolated, mountainous area hit by the earthquake. The Afghan authorities said at least 1,400 people had been killed, with the death toll expected to rise.`\
 https://nytimes.com/video/world/asia/100000010373241/afghans-reel-from-deadly-quake.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/02/climate/climate-science-report-energy-department.
 **Silly meets smart: What ‘Pablo Torre Finds Out’ is all about**\
 `Pablo Torre follows three rules when choosing which mystery to solve on his influential podcast: smart, funny and surprising.`\
 https://nytimes.com/athletic/6584773/2025/09/02/silly-meets-smart-what-pablo-torre-finds-out-is-all-about/
-
-**Embracing the Local Style on Vacation**\
-`An American visiting Denmark felt sartorially at home.`\
-https://nytimes.com/2025/09/02/style/street-style-look-danish-girl-style.html
 
