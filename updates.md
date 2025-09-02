@@ -1,3 +1,7 @@
+**Under New Law, Greece Can Imprison Rejected Asylum Seekers**\
+`A surge in migrants landing on Crete this summer has diminished, but Greece is hoping to deter future undocumented immigration.`\
+https://nytimes.com/2025/09/02/world/europe/greece-asylum-seekers.html
+
 **The Government Just Walloped Google. That’s Good Business.**\
 `Curbing Google is an overdue return to the government’s longtime role in encouraging competition among tech companies.`\
 https://nytimes.com/2025/09/02/opinion/google-antitrust-ruling-data-business.html
