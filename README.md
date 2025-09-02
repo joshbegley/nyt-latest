@@ -1,3 +1,7 @@
+**Vardy signs for Italian club Cremonese on free transfer**\
+`Vardy left Leicester City at the end of last season after a 13-year stay, where his goals helped them to the 2015-16 Premier League title.`\
+https://nytimes.com/athletic/6317796/2025/09/02/jamie-vardy-cremonese-transfer/
+
 **Ederson leaves Man City for Fenerbahce in permanent transfer**\
 `Ederson's exit follows James Trafford's arrival from Burnley while Gianluigi Donnarumma is also set to join.`\
 https://nytimes.com/athletic/6365225/2025/09/02/ederson-fenerbahce-man-city-transfer/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6590708/2025/09/02/guehi-liverpool-palace-glasner-p
 **Inside Newcastle's transfer window: How 'Rejection FC' fought back to land two strikers and save 'doomed' summer**\
 `The story of Newcastle's transfer window, one dominated by Isak and rejection but which ended with a strong finish`\
 https://nytimes.com/athletic/6588753/2025/09/02/inside-newcastle-united-transfer-window/
-
-**Tottenham Hotspur's transfer window: A story of heady expectation, frustration and, in the end, excitement**\
-`Thomas Frank's first summer in charge was far from plain sailing, but Tottenham's team is stronger than it was at the end of last season`\
-https://nytimes.com/athletic/6590089/2025/09/02/tottenham-frank-levy-simons-kudus-eze-gibbs-white-transfers/
 
