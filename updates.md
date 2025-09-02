@@ -1,3 +1,7 @@
+**How to watch the New York Giants in 2025: Schedule and streaming for Big Blue's rebuild**\
+`The Giants are in a long rebuild, but there are still reasons to watch their regular-season slate this year. Here's how to tune in.`\
+https://nytimes.com/athletic/6530855/2025/09/02/new-york-giants-how-to-watch-2025/
+
 **The 'slow death' of Vitesse Arnhem. Can the club once known as Chelsea B be saved?**\
 `Years of chaos behind the scenes have cost the club their league place, with fans now waiting to hear if there will be a reprieve`\
 https://nytimes.com/athletic/6590297/2025/09/02/vitesse-arnhem-parry-chelsea-death/
