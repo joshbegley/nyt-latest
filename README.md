@@ -1,5 +1,9 @@
+**How Pickleball Took Over Thousands of Tennis Courts, as Told Through Satellite Images**\
+`summary`\
+https://nytimes.com/interactive/2025/09/01/upshot/pickleball.html
+
 **Chargers RB Najee Harris expects to play vs. Chiefs in wake of eye injury**\
-`Running back, who was injured in July 4 fireworks accident, returned to practice last week.`\
+`The running back, who was injured in a July 4 fireworks accident, has not yet appeared around media members without wearing sunglasses.`\
 https://nytimes.com/athletic/6590912/2025/09/01/chargers-rb-najee-harris-eye-injury-chiefs/
 
 **Nadler, Pillar of Democratic Party’s Old Guard, Will Retire Next Year**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6590775/2025/09/01/acc-fines-florida-state-50k-fiel
 **Matthew Stafford expected to start for Rams in Week 1 vs. Texans**\
 `Sean McVay says the quarterback, who aggravated a disk in his back and missed nearly a month of camp, will "be good" to go in L.A.'s opener.`\
 https://nytimes.com/athletic/6590664/2025/09/01/matthew-stafford-rams-expect-start-texans-week-1/
-
-**Reds rookie Sal Stewart shines in MLB debut with hit, run in walk-off win**\
-`At 21, Stewart is the youngest player on the Reds’ roster, but he got to the big leagues because he doesn’t hit like a 21-year-old.`\
-https://nytimes.com/athletic/6590677/2025/09/01/sal-stewart-reds-rookie-mlb-debut/
 
