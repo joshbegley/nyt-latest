@@ -1,3 +1,7 @@
+**Under New Law, Greece Can Imprison Rejected Asylum Seekers**\
+`A surge in migrants landing on Crete this summer has diminished, but Greece is hoping to deter future undocumented immigration.`\
+https://nytimes.com/2025/09/02/world/europe/greece-asylum-seekers.html
+
 **The Government Just Walloped Google. That’s Good Business.**\
 `Curbing Google is an overdue return to the government’s longtime role in encouraging competition among tech companies.`\
 https://nytimes.com/2025/09/02/opinion/google-antitrust-ruling-data-business.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/us/politics/100000010374834/trump-deploy-national-guar
 **Mass Migration and Liberalism’s Fall**\
 `A decade on, Angela Merkel’s immigration disaster has created a right-wing surge.`\
 https://nytimes.com/2025/09/02/opinion/immigration-liberal-europe-merkel.html
-
-**Can the Left Reproduce Itself?**\
-`Progressives have a birthrate problem. Their pessimism might cost them converts.`\
-https://nytimes.com/2025/09/02/opinion/birth-rate-progressives.html
 
