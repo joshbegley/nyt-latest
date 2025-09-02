@@ -1,3 +1,11 @@
+**A Kennedy, a Protégé and a Progressive Star Eye Nadler’s N.Y. House Seat**\
+`Representative Jerrold Nadler’s departure is still 16 months away, but Democrats are already testing the waters in what is expected to be a highly contested race.`\
+https://nytimes.com/2025/09/02/nyregion/nadler-retire-successor-replace.html
+
+**Venus Williams' U.S. Open doubles with Leylah Fernandez runs into Townsend and Siniakova**\
+`The team formed on a whim fell to the Grand-Slam-winning duo of Townsend and Siniaková, as two U.S. Open storylines coalesced.`\
+https://nytimes.com/athletic/6593320/2025/09/02/venus-williams-us-open-doubles-leylah-fernandez/
+
 **What a Ruling to Fix Google’s Search Monopoly Means for the Company**\
 `The judge’s decision positions Google to keep its search business running largely without interruption.`\
 https://nytimes.com/2025/09/02/technology/google-antitrust-case-ruling.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/09/02/world/asia/xi-putin-kim-parade.html
 **Under New Law, Greece Can Imprison Rejected Asylum Seekers**\
 `A surge in migrants landing on Crete this summer has diminished, but Greece is hoping to deter future undocumented immigration.`\
 https://nytimes.com/2025/09/02/world/europe/greece-asylum-seekers.html
-
-**The Government Just Walloped Google. That’s Good Business.**\
-`Curbing Google is an overdue return to the government’s longtime role in encouraging competition among tech companies.`\
-https://nytimes.com/2025/09/02/opinion/google-antitrust-ruling-data-business.html
-
-**Cook’s Lawyers Fire Back at Trump’s Claim of Vast Powers to Oust Fed Officials**\
-`Lisa Cook is seeking a swift ruling on her ability to remain on the Federal Reserve’s Board of Governors as the case is litigated.`\
-https://nytimes.com/2025/09/02/business/trump-fed-lisa-cook.html
 
