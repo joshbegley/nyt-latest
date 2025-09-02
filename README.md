@@ -1,3 +1,11 @@
+**Read Judge’s Ruling on Trump’s Use of Troops in California**\
+`The ruling ruling accused the president of effectively turning nearly 5,000 Marines and National Guard soldiers into a “national police force” during the immigration protests in June.`\
+https://nytimes.com/interactive/2025/09/02/us/breyer-ruling-newsom-trump.html
+
+**Start Ups**\
+``\
+https://nytimes.com/spotlight/start-ups
+
 **Narkara Brings Northern Thai Heat to Union Square**\
 `Koju offers an omakase at the Ace Hotel in Brooklyn, Nuyores opens with a Contento chef at the helm and more restaurant news.`\
 https://nytimes.com/2025/09/02/dining/nyc-restaurant-news.html
@@ -25,12 +33,4 @@ https://nytimes.com/athletic/6590468/2025/09/02/lando-norris-engine-dutch-gp-car
 **How Fining Elon Musk’s X Could Threaten the U.S.-E.U. Trade Deal**\
 `The European Union is expected to penalize the company, which has been accused of breaching the Digital Services Act, a law President Trump has criticized.`\
 https://nytimes.com/2025/09/02/business/dealbook/elon-musk-x-europe-trump.html
-
-**Jair Bolsonaro, Charged With Plotting a Coup, Is Not at His Trial**\
-`Brazil’s Supreme Court began judging the case against the former president, who did not attend the proceedings because of poor health, his defense team said.`\
-https://nytimes.com/2025/09/02/world/americas/bolsonaro-trial-brazil.html
-
-**Houston Man Is Charged in Boy’s Killing Over ‘Ding Dong Ditch’ Prank**\
-`The man, facing a murder charge, is accused of firing at an 11-year-old boy who rang a doorbell and ran away as part of a prank, the police said.`\
-https://nytimes.com/2025/09/02/us/ding-dong-ditch-shooting-boy-murder.html
 
