@@ -1,3 +1,7 @@
+**With the Carlos Santana addition, the Cubs hope they can finally solve their bench issues**\
+`Santana, 39, isn't having his most productive season but the Cubs hope he can provide quality at-bats in limited playing time.`\
+https://nytimes.com/athletic/6590819/2025/09/01/cubs-carlos-santana-signing-bench/
+
 **CEO apologizes for snatching Kamil Majchrzak's hat from child at U.S. Open**\
 `"I became caught up in the heat of the moment and the joy of the victory," the man said after video of the incident went viral.`\
 https://nytimes.com/athletic/6590895/2025/09/01/kamil-majchrzak-hat-snatch-child-us-open/
@@ -26,15 +30,11 @@ https://nytimes.com/athletic/6590752/2025/09/01/coco-gauff-serve-forehand-us-ope
 `World Liberty Financial’s cryptocurrency token fell short of investors’ hopes. But a previous deal paved the way for a payment to the Trump family of potentially hundreds of millions of dollars.`\
 https://nytimes.com/2025/09/01/us/politics/trump-crypto-trading.html
 
-**N.Y.C. Man Is at Least Fourth Person to Die in Custody in Just Over a Week**\
+**N.Y.C. Man Is Fourth Person to Die in Custody in Just Over a Week**\
 `A Turkish-born pedicab driver who was arrested on Friday night was found unconscious and unresponsive in a police station house cell. He later died at Bellevue Hospital.`\
 https://nytimes.com/2025/09/01/nyregion/nyc-jail-deaths.html
 
 **2 Are Found Dead in a Creek After Flooding in San Antonio**\
 `The bodies of a man and a woman were found on Monday, the authorities said. The discovery came after heavy thunderstorms struck the area on Sunday evening.`\
 https://nytimes.com/2025/09/01/us/san-antonio-flood-deaths.html
-
-**Florida State fined $50K by ACC for storming field after upsetting Alabama**\
-`Florida State is the first ACC school to be fined under a new conference policy aimed at curtailing field- and court-storming incidents.`\
-https://nytimes.com/athletic/6590775/2025/09/01/acc-fines-florida-state-50k-field-storming-alabama/
 
