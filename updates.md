@@ -1,3 +1,5 @@
+
+
 **What Does Vogue Mean Today?**\
 `The magazine has a new editor in Chloe Malle. It may also need a new identity.`\
 https://nytimes.com/2025/09/02/style/vogue-chloe-malle.html
