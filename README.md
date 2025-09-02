@@ -1,3 +1,7 @@
+**D.I.Y. Repairs Turned Into a Gut Renovation in Philadelphia**\
+`A couple of architects liked their rowhouse so much that they transformed it two different times to suit their evolving needs.`\
+https://nytimes.com/2025/09/02/realestate/philadelphia-fitler-square-renovation-architects.html
+
 **Inside Chelsea's end to the window: Delap injury, Guiu recall, Jackson switch**\
 `Chelsea's window got a lot busier after an injury suffered by Liam Delap against Fulham. This is the inside story of that 48 hours`\
 https://nytimes.com/athletic/6591224/2025/09/02/chelsea-inside-end-transfer-window/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/02/movies/dwayne-johnson-smashing-machine-venice-fil
 **How to watch the Dallas Cowboys in 2025: TV schedule loaded with national games**\
 `Unsurprisingly, Dallas is all over the NFL's prime-time schedule this year. Here's how to watch all 17 regular-season Cowboys games.`\
 https://nytimes.com/athletic/6531397/2025/09/02/dallas-cowboys-how-to-watch-2025-tv-schedule/
-
-**Scientists Denounce Trump Administration’s Climate Report**\
-`Scores of researchers reviewed the Energy Department’s argument about greenhouse gases and found serious deficiencies.`\
-https://nytimes.com/2025/09/02/climate/climate-science-report-energy-department.html
 

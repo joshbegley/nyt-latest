@@ -1,3 +1,11 @@
+**Inside Chelsea's end to the window: Delap injury, Guiu recall, Jackson switch**\
+`Chelsea's window got a lot busier after an injury suffered by Liam Delap against Fulham. This is the inside story of that 48 hours`\
+https://nytimes.com/athletic/6591224/2025/09/02/chelsea-inside-end-transfer-window/
+
+**What I'm seeing from the Commanders: Jayden Daniels got better, a new X-factor and more**\
+`The Commanders are all in, and their QB phenom keeps improving, but depth and the defensive line could be concerns.`\
+https://nytimes.com/athletic/6589562/2025/09/02/washington-commanders-preview-jayden-daniels-marshon-lattimore/
+
 **Inside Chelsea's dramatic end to the window: Delap injury, Guiu recall, Jackson switch**\
 `Chelsea's window got a lot busier after an injury suffered by Liam Delap. This is the inside story of that 48 hours`\
 https://nytimes.com/athletic/6591224/2025/09/02/chelsea-inside-end-transfer-window/

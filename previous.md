@@ -1,5 +1,5 @@
-**Inside Chelsea's dramatic end to the window: Delap injury, Guiu recall, Jackson switch**\
-`Chelsea's window got a lot busier after an injury suffered by Liam Delap. This is the inside story of that 48 hours`\
+**Inside Chelsea's end to the window: Delap injury, Guiu recall, Jackson switch**\
+`Chelsea's window got a lot busier after an injury suffered by Liam Delap against Fulham. This is the inside story of that 48 hours`\
 https://nytimes.com/athletic/6591224/2025/09/02/chelsea-inside-end-transfer-window/
 
 **Judge Hands Trump a Legal Rebuke Over His Troop Deployment in L.A.**\
@@ -14,7 +14,7 @@ https://nytimes.com/video/world/asia/100000010373241/afghans-reel-from-deadly-qu
 `The Commanders have a packed-out prime-time schedule for 2025. Here's how to watch resurgent Washington this season.`\
 https://nytimes.com/athletic/6582355/2025/09/02/washington-commanders-football-how-to-watch-2025/
 
-**What I'm seeing from Commanders: Jayden Daniels got better, a new X-factor and more**\
+**What I'm seeing from the Commanders: Jayden Daniels got better, a new X-factor and more**\
 `The Commanders are all in, and their QB phenom keeps improving, but depth and the defensive line could be concerns.`\
 https://nytimes.com/athletic/6589562/2025/09/02/washington-commanders-preview-jayden-daniels-marshon-lattimore/
 
