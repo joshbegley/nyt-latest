@@ -1,3 +1,11 @@
+**James Horncastle’s Serie A Briefing: Napoli's box-office finale, a Mussolini moment and Helen Mirren at Lecce**\
+`James Horncastle reveals the most intriguing plot lines from the weekend in Italian football, including Keinan Davis conquering San Siro`\
+https://nytimes.com/athletic/6588690/2025/09/02/james-horncastles-serie-a-briefing-napolis-box-office-finale-mussolini-stars-and-helen-mirren-at-lecce/
+
+**The transfer window's maddest moments: Sagas, U-turns and a Jamie Vardy tattoo**\
+`This summer has brought us Man United 'bomb squads', a goalkeeper's miss-step and multiple Newcastle and Spurs rejections`\
+https://nytimes.com/athletic/6590514/2025/09/02/transfer-window-most-surreal-moments/
+
 **Yoane Wissa to Newcastle United: Everything you need to know - TLDR**\
 `Newcastle have signed their second striker of the summer - here we break down the deal`\
 https://nytimes.com/athletic/6589311/2025/09/02/newcastle-yoane-wissa-transfer/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/09/01/pageoneplus/corrections-sept-2-2025.html
 **Quote of the Day: This Is One Cool Cat Able to Take the Heat**\
 `Quotation of the Day for Tuesday, September 2, 2025`\
 https://nytimes.com/2025/09/01/pageoneplus/quote-of-the-day-this-is-one-cool-cat-able-to-take-the-heat.html
-
-**College Football Playoff 2025 projections: Miami, Auburn rising; Alabama plummets in Week 1**\
-`Our College Football Playoff predictions model is back. Check here for regular updates on CFP and national championship odds for 2025.`\
-https://nytimes.com/athletic/6560541/2025/09/01/college-football-playoff-bracket-projections-odds/
-
-**TCU pummels UNC 48-14 in Bill Belichick's college debut: Key takeaways**\
-`Fans headed for the exits in the third quarter as TCU scored 41 consecutive points in a blowout.`\
-https://nytimes.com/athletic/6590974/2025/09/01/unc-tcu-bill-belichick-score-result-takeaways/
 
