@@ -1,3 +1,7 @@
+**Inside Man United's transfer window: Ratcliffe's risk-taking, 'Project 90', Amorim's Baleba push, heartbroken Hojlund**\
+`How Ratcliffe's aggressive approach to transfer spending shaped United's summer and the players Amorim did - and didn't - get`\
+https://nytimes.com/athletic/6590671/2025/09/02/inside-man-uniteds-transfer-window-ratcliffes-risk-taking-heartbroken-hojlund-project-90-amorims-baleba-push/
+
 **How Guehi's Liverpool move broke down - thanks to a Glasner powerplay**\
 `One of the transfer sagas of the summer culminated in a frantic final day of the window with Guehi denied his move to Anfield at the last`\
 https://nytimes.com/athletic/6590708/2025/09/02/guehi-liverpool-palace-glasner-parish-transfer/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/02/learning/word-of-the-day-iconic.html
 **Landslide Kills More Than 1,000 People in Sudan, Rebel Group Says**\
 `The landslide leveled a village in the remote Marra mountains, the Sudan Liberation Movement/Army said. It asked international aid organizations for help in recovering bodies.`\
 https://nytimes.com/2025/09/02/world/africa/sudan-landslide.html
-
-**The New York Times in Print for Tuesday, Sep. 2, 2025**\
-``\
-https://nytimes.com/issue/todayspaper/2025/09/02/todays-new-york-times
 
