@@ -1,3 +1,7 @@
+**Ukrainian Students Start New School Year in Underground Classrooms**\
+`With Russian attacks ongoing and peace talks stalled, some students in Ukraine are attending classes underground. For some, it is their first in-person learning in more than three years of war.`\
+https://nytimes.com/video/world/europe/100000010372983/ukraine-russia-school-underground.html
+
 **South Africa's white-ball team are on the up - England now await**\
 `The Proteas start their series in England buoyed by victory in Australia - and are packed with exciting talent `\
 https://nytimes.com/athletic/6588650/2025/09/02/england-south-africa-cricket-odi-series/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/02/crosswords/spelling-bee-forum.html
 **Inside Man United's transfer window: Ratcliffe's risk-taking, 'Project 90', Amorim's Baleba push, heartbroken Hojlund**\
 `How Ratcliffe's aggressive approach to transfer spending shaped United's summer and the players Amorim did - and didn't - get`\
 https://nytimes.com/athletic/6590671/2025/09/02/inside-man-uniteds-transfer-window-ratcliffes-risk-taking-heartbroken-hojlund-project-90-amorims-baleba-push/
-
-**How Guehi's Liverpool move broke down - thanks to a Glasner powerplay**\
-`One of the transfer sagas of the summer culminated in a frantic final day of the window with Guehi denied his move to Anfield at the last`\
-https://nytimes.com/athletic/6590708/2025/09/02/guehi-liverpool-palace-glasner-parish-transfer/
 
