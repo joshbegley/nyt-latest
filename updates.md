@@ -1,3 +1,15 @@
+**Fantasy football predictions for all 32 NFL teams**\
+`KC Joyner gives a bold prediction for every NFL team. Can Patrick Mahomes be a top-six QB? Joyner thinks so.`\
+https://nytimes.com/athletic/6591651/2025/09/02/fantasy-football-predictions-nfl-teams/
+
+**Tracking Tropical Storm Lorena**\
+`See the likely path and wind arrival times for Lorena`\
+https://nytimes.com/interactive/2025/weather/lorena-map-path-tracker.html
+
+**CELLRESEARCH ADPOST Q3 25 #2**\
+`CELLRESEARCH ADPOST Q3 25 #2`\
+https://nytimes.com/paidpost/2025-08-08/cellresearch-adpost-q3-25-2/cellresearch-adpost-q3-25-2.html
+
 **How to watch Rangers at Diamondbacks: Time, TV, streaming**\
 `Find out how to watch the Texas Rangers play the Arizona Diamondbacks, with time, TV channel, and streaming information.`\
 https://nytimes.com/athletic/6592276/2025/09/02/texas-rangers-vs-arizona-diamondbacks-stream-how-to-watch-sept-2/
