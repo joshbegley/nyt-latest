@@ -1,3 +1,7 @@
+**Landslide Kills More Than 1,000 People in Sudan, Rebel Group Says**\
+`The landslide leveled a village in the remote Marra mountains, the Sudan Liberation Movement/Army said. It asked international aid organizations for help in recovering bodies.`\
+https://nytimes.com/2025/09/02/world/africa/sudan-landslide.html
+
 **The New York Times in Print for Tuesday, Sep. 2, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/09/02/todays-new-york-times
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6588690/2025/09/02/james-horncastles-serie-a-briefi
 **The transfer window's maddest moments: Sagas, U-turns and a Jamie Vardy tattoo**\
 `This summer has brought us Man United 'bomb squads', a goalkeeper's miss-step and multiple Newcastle and Spurs rejections`\
 https://nytimes.com/athletic/6590514/2025/09/02/transfer-window-most-surreal-moments/
-
-**Yoane Wissa to Newcastle United: Everything you need to know - TLDR**\
-`Newcastle have signed their second striker of the summer - here we break down the deal`\
-https://nytimes.com/athletic/6589311/2025/09/02/newcastle-yoane-wissa-transfer/
 
