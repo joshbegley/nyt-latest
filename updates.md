@@ -1,3 +1,7 @@
+**‘The Bang, Bang, Bang’: How Protests, Tear Gas and Looting Roiled Indonesia**\
+`Deep-rooted resentment between the haves and have-nots set off a wave of antigovernment protests that have turned violent.`\
+https://nytimes.com/2025/09/02/world/asia/indonesia-jakarta-protests-economy.html
+
 **Lowetide: What to expect from Oilers rookies in 2025-26**\
 `Here's a look at what to expect from Oilers rookies like Matt Savoie and Ike Howard this coming season.`\
 https://nytimes.com/athletic/6588390/2025/09/02/edmonton-oilers-rookies-2025/
