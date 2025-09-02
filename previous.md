@@ -1,3 +1,27 @@
+**Putin’s Propaganda War**\
+`Russian authorities are using a festival to showcase Moscow as a place where life is better than in the West.`\
+https://nytimes.com/2025/09/02/briefing/putin-propaganda-war-china-military-parade.html
+
+**Trump Wants Proof That Covid Vaccines Work. It’s Easy to Find.**\
+`In a post on Truth Social, the president suggested that the C.D.C. was being “ripped apart” over a question that was answered long ago.`\
+https://nytimes.com/2025/09/02/health/trump-covid-vaccines.html
+
+**Trump on Deploying Troops to Chicago: “We’re Going In”**\
+`President Trump said that he was planning on sending the National Guard to Chicago during a press conference on Tuesday. He did not offer details on the deployment’s timing.`\
+https://nytimes.com/video/us/politics/100000010374834/trump-deploy-national-guard-chicago.html
+
+**Mass Migration and Liberalism’s Fall**\
+`A decade on, Angela Merkel’s immigration disaster has created a right-wing surge.`\
+https://nytimes.com/2025/09/02/opinion/immigration-liberal-europe-merkel.html
+
+**Can the Left Reproduce Itself?**\
+`Progressives have a birthrate problem. Their pessimism might cost them converts.`\
+https://nytimes.com/2025/09/02/opinion/birth-rate-progressives.html
+
+**best-restaurants**\
+``\
+https://nytimes.com/panel/live/best-restaurants
+
 **Mark Knoller, ‘the Savant of 1600 Pennsylvania Avenue,’ Dies at 73**\
 `As White House correspondent for CBS News Radio, he kept meticulous records of presidential activities, from vacation days to teleprompter use.`\
 https://nytimes.com/2025/09/02/business/media/mark-knoller-dead.html
@@ -13,28 +37,4 @@ https://nytimes.com/athletic/6592923/2025/09/02/west-ham-boycott-sullivan-brady-
 **Judge Orders Google to Share Search Results to Help Resolve Monopoly**\
 `In a landmark antitrust case, Judge Amit P. Mehta ruled on Tuesday that Google must hand over some of its search data to rivals but did not grant the government’s biggest requests.`\
 https://nytimes.com/2025/09/02/technology/google-search-antitrust-decision.html
-
-**Donald Trump vs. the Wind Power Industry**\
-`Since taking office, President Trump has targeted the wind power industry, putting billions of dollars of investment and thousands of jobs at risk.`\
-https://nytimes.com/2025/09/02/climate/donald-trump-vs-the-wind-power-industry.html
-
-**Taxi Driver Runs Over Man Who Once Escaped Custody on a City Bus**\
-`James Mossetty was dragged for 10 blocks by the taxi, whose driver was arraigned on charges that he left the scene.`\
-https://nytimes.com/2025/09/02/nyregion/escapee-taxi-fatal-accident.html
-
-**Will the Real Sabrina Carpenter Please Stand Up?**\
-`On “Short n’ Sweet” last year, the singer became one of pop’s new queens of quirk. On its follow-up, “Man’s Best Friend,” she’s hiding behind her characters.`\
-https://nytimes.com/2025/09/02/arts/music/sabrina-carpenter-mans-best-friend-review.html
-
-**Colorado's Deion Sanders defends late clock management vs. Georgia Tech**\
-`Sanders says freshman quarterback Julian Lewis will play for the Buffaloes this week against Delaware.`\
-https://nytimes.com/athletic/6592736/2025/09/02/colorado-deion-sanders-clock-management-georgia-tech/
-
-**Walden Suspends Campaign for Mayor of New York City**\
-`Jim Walden, who was polling a distant fifth in November’s election, dropped out on Tuesday. He urged other rivals to consider doing the same in a bid to defeat Zohran Mamdani.`\
-https://nytimes.com/2025/09/02/nyregion/jim-walden-mayor-campaign.html
-
-**College football Week 2 odds: Oklahoma hosts Michigan in prime time**\
-`College football's Week 2 slate isn't as loaded as Week 1, but there are some rivalry games among the headliners.`\
-https://nytimes.com/athletic/6592100/2025/09/02/college-football-week-2-odds-oklahoma-michigan/
 

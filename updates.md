@@ -1,3 +1,27 @@
+**Putin’s Propaganda War**\
+`Russian authorities are using a festival to showcase Moscow as a place where life is better than in the West.`\
+https://nytimes.com/2025/09/02/briefing/putin-propaganda-war-china-military-parade.html
+
+**Trump Wants Proof That Covid Vaccines Work. It’s Easy to Find.**\
+`In a post on Truth Social, the president suggested that the C.D.C. was being “ripped apart” over a question that was answered long ago.`\
+https://nytimes.com/2025/09/02/health/trump-covid-vaccines.html
+
+**Trump on Deploying Troops to Chicago: “We’re Going In”**\
+`President Trump said that he was planning on sending the National Guard to Chicago during a press conference on Tuesday. He did not offer details on the deployment’s timing.`\
+https://nytimes.com/video/us/politics/100000010374834/trump-deploy-national-guard-chicago.html
+
+**Mass Migration and Liberalism’s Fall**\
+`A decade on, Angela Merkel’s immigration disaster has created a right-wing surge.`\
+https://nytimes.com/2025/09/02/opinion/immigration-liberal-europe-merkel.html
+
+**Can the Left Reproduce Itself?**\
+`Progressives have a birthrate problem. Their pessimism might cost them converts.`\
+https://nytimes.com/2025/09/02/opinion/birth-rate-progressives.html
+
+**best-restaurants**\
+``\
+https://nytimes.com/panel/live/best-restaurants
+
 **Mark Knoller, ‘the Savant of 1600 Pennsylvania Avenue,’ Dies at 73**\
 `As White House correspondent for CBS News Radio, he kept meticulous records of presidential activities, from vacation days to teleprompter use.`\
 https://nytimes.com/2025/09/02/business/media/mark-knoller-dead.html
