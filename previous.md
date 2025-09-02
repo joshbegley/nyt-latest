@@ -1,3 +1,15 @@
+**Maduro Tells Trump War With Venezuela Would ‘Stain Your Hands With Blood’**\
+`As U.S. warships and troops gather in the Caribbean, Mr. Maduro threatened an “armed fight” in response to any military action. He also appealed for peace.`\
+https://nytimes.com/2025/09/02/world/americas/maduro-trump-venezuela-war.html
+
+**Scientists May Have Identified a Culprit Behind Declining Amazon Rains**\
+`Deforestation is playing a greater role than researchers expected, according to a new study.`\
+https://nytimes.com/2025/09/02/climate/amazon-brazil-drought-rain-deforestation.html
+
+**Olympic 200m champion Thomas to miss World Championships with injury**\
+`The 28-year-old has been dealing with an Achilles problem all year, which first surfaced in May and flared up again in July.`\
+https://nytimes.com/athletic/6592063/2025/09/02/gabby-thomas-injury-world-championships/
+
 **Stephen Muss, Developer Who Helped Revive Miami Beach, Dies at 97**\
 `The scion of a New York family of builders, he rescued the Fontainebleau hotel from bankruptcy, spurring a real estate boom.`\
 https://nytimes.com/2025/09/02/realestate/stephen-muss-dead.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6591224/2025/09/02/chelsea-inside-end-transfer-wind
 **Judge Says Trump’s Use of Troops in L.A. Is Illegal**\
 `The federal judge found that the deployment exceeded legal limits that generally prohibit the use of the military for domestic law enforcement.`\
 https://nytimes.com/2025/09/02/us/judge-ruling-trump-national-guard-los-angeles.html
-
-**Afghans Reel From Deadly Quake**\
-`Rescue workers struggled to reach communities in the isolated, mountainous area hit by the earthquake. The Afghan authorities said at least 1,400 people had been killed, with the death toll expected to rise.`\
-https://nytimes.com/video/world/asia/100000010373241/afghans-reel-from-deadly-quake.html
-
-**Washington's watch guide: How to stream and follow the 2025 Commanders**\
-`The Commanders have a packed-out prime-time schedule for 2025. Here's how to watch resurgent Washington this season.`\
-https://nytimes.com/athletic/6582355/2025/09/02/washington-commanders-football-how-to-watch-2025/
-
-**What I'm seeing from the Commanders: Jayden Daniels got better, a new X-factor and more**\
-`The Commanders are all in, and their QB phenom keeps improving, but depth and the defensive line could be concerns.`\
-https://nytimes.com/athletic/6589562/2025/09/02/washington-commanders-preview-jayden-daniels-marshon-lattimore/
 

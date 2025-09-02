@@ -1,3 +1,15 @@
+**Maduro Tells Trump War With Venezuela Would ‘Stain Your Hands With Blood’**\
+`As U.S. warships and troops gather in the Caribbean, Mr. Maduro threatened an “armed fight” in response to any military action. He also appealed for peace.`\
+https://nytimes.com/2025/09/02/world/americas/maduro-trump-venezuela-war.html
+
+**Scientists May Have Identified a Culprit Behind Declining Amazon Rains**\
+`Deforestation is playing a greater role than researchers expected, according to a new study.`\
+https://nytimes.com/2025/09/02/climate/amazon-brazil-drought-rain-deforestation.html
+
+**Olympic 200m champion Thomas to miss World Championships with injury**\
+`The 28-year-old has been dealing with an Achilles problem all year, which first surfaced in May and flared up again in July.`\
+https://nytimes.com/athletic/6592063/2025/09/02/gabby-thomas-injury-world-championships/
+
 **Stephen Muss, Developer Who Helped Revive Miami Beach, Dies at 97**\
 `The scion of a New York family of builders, he rescued the Fontainebleau hotel from bankruptcy, spurring a real estate boom.`\
 https://nytimes.com/2025/09/02/realestate/stephen-muss-dead.html
