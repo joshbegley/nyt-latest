@@ -1,3 +1,11 @@
+**Kyle Shanahan, Sean McVay top defensive peers' ratings of NFL's offensive play callers**\
+`A sample of NFL defensive coordinators and coaches say who they think is best at designing and executing an offense.`\
+https://nytimes.com/athletic/6585385/2025/09/02/kyle-shanahan-sean-mcvay-top-defensive-peers-ratings-of-nfls-offensive-play-callers/
+
+**Kraft Heinz to Break Up Its Food Businesses**\
+`A planned split-up of the mega company that makes products from Velveeta to Kool-Aid comes as consumers shift away from processed food.`\
+https://nytimes.com/2025/09/02/business/kraft-heinz-break-up.html
+
 **Kraft Heinz to Break Up Its Food Businesses**\
 `A split-up of the mega company that makes products from Velveeta to Kool-Aid comes as consumers shift away from processed food.`\
 https://nytimes.com/2025/09/02/business/kraft-heinz-break-up.html

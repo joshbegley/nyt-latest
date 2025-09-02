@@ -1,5 +1,9 @@
+**Kyle Shanahan, Sean McVay top defensive peers' ratings of NFL's offensive play callers**\
+`A sample of NFL defensive coordinators and coaches say who they think is best at designing and executing an offense.`\
+https://nytimes.com/athletic/6585385/2025/09/02/kyle-shanahan-sean-mcvay-top-defensive-peers-ratings-of-nfls-offensive-play-callers/
+
 **Kraft Heinz to Break Up Its Food Businesses**\
-`A split-up of the mega company that makes products from Velveeta to Kool-Aid comes as consumers shift away from processed food.`\
+`A planned split-up of the mega company that makes products from Velveeta to Kool-Aid comes as consumers shift away from processed food.`\
 https://nytimes.com/2025/09/02/business/kraft-heinz-break-up.html
 
 **Kim Jong-un Takes a Slow (but Bulletproof) Train to China**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6591358/2025/09/02/real-madrid-transfer-window-revi
 **What I'm seeing from the New York Jets: Questions at QB and WR, blitz-happy defense**\
 `What to expect from the Jets as the Aaron Glenn era begins.`\
 https://nytimes.com/athletic/6589852/2025/09/02/new-york-jets-season-preview/
-
-**For Bill Belichick's debut, UNC came to party. But the good times fizzled fast**\
-`UNC threw the pregame party to end all pregames. But the Belichick-induced hype machine died out by the third quarter Monday night.`\
-https://nytimes.com/athletic/6591249/2025/09/02/bill-belichick-unc-football-tcu-blowout/
 
