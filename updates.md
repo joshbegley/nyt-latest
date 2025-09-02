@@ -1,3 +1,7 @@
+**Judge Hands Trump a Legal Rebuke Over His Troop Deployment in L.A.**\
+`The federal judge found that the deployment exceeded legal limits that generally prohibit the use of the military for domestic law enforcement.`\
+https://nytimes.com/2025/09/02/us/judge-ruling-trump-national-guard-los-angeles.html
+
 **Afghans Reel From Deadly Quake**\
 `Rescue workers struggled to reach communities in the isolated, mountainous area hit by the earthquake. The Afghan authorities said at least 1,400 people had been killed, with the death toll expected to rise.`\
 https://nytimes.com/video/world/asia/100000010373241/afghans-reel-from-deadly-quake.html

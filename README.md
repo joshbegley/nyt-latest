@@ -10,8 +10,8 @@ https://nytimes.com/video/world/asia/100000010373241/afghans-reel-from-deadly-qu
 `The Commanders have a packed-out prime-time schedule for 2025. Here's how to watch resurgent Washington this season.`\
 https://nytimes.com/athletic/6582355/2025/09/02/washington-commanders-football-how-to-watch-2025/
 
-**What I'm seeing from the Commanders: Jayden Daniels got better, and a new X-factor**\
-`The Commanders are all in, and their phenom of a QB keeps improving, but depth and the defensive line could be concerns.`\
+**What I'm seeing from Commanders: Jayden Daniels got better, a new X-factor and more**\
+`The Commanders are all in, and their QB phenom keeps improving, but depth and the defensive line could be concerns.`\
 https://nytimes.com/athletic/6589562/2025/09/02/washington-commanders-preview-jayden-daniels-marshon-lattimore/
 
 **The Windup: The weirdest home run**\
