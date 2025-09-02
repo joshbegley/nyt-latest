@@ -1,3 +1,7 @@
+**In a Rare Sign of Protest, a Chinese Activist Challenges the C.C.P.**\
+`In an act of defiance against China’s Communist Party, an activist projected anti-C.C.P. slogans on a building and managed to flee one of the world’s most surveilled countries without being caught.`\
+https://nytimes.com/video/world/asia/100000010373967/china-chongqing-protest.html
+
 **Easy Slow Cooker Recipes That Won’t Heat Up Your Kitchen**\
 `(No description)`\
 https://nytimes.com/newsgraphics/card-story/slow-cooker-summer-recipes
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6592725/2025/09/02/nhl-cba-changes-playoff-salary-c
 **Stephen Colbert Returns for First ‘Late Show’ of Its Last Season**\
 `CBS’s announcement in July that the show would end next year — after Colbert had criticized CBS’s settlement with the Trump administration — raised questions among lawmakers and fans.`\
 https://nytimes.com/2025/09/02/arts/television/stephen-colbert-late-show-returns.html
-
-**We Just Updated Our Atlanta Dining Guide**\
-`Fish sauce sticky ribs, a wine bar with proper food from one of Atlanta’s most prominent restaurateurs and more.`\
-https://nytimes.com/2025/09/02/dining/where-to-eat-atlanta.html
 
