@@ -1,3 +1,11 @@
+**Anthropic Raises Its Valuation to $183 Billion in New Funding**\
+`The artificial intelligence start-up garnered another $13 billion as its valuation rose by nearly three times, from $61.5 billion earlier this year, amid a frenzy over the technology.`\
+https://nytimes.com/2025/09/02/technology/anthropic-funding-ai.html
+
+**USMNT's Cremaschi joins Parma on loan from Inter Miami**\
+`Cremaschi, 20, became the first academy product at Inter Miami to surpass 100 appearances for the first team.`\
+https://nytimes.com/athletic/6592366/2025/09/02/usmnt-cremaschi-inter-miami-transfers-parma/
+
 **Forest win legal victory over FA after 'apparent bias' of appeal panel chair**\
 `Graeme McPherson KC was appointed to chair a panel overhearing Forest's appeal against a fine relating to failing to control their players.`\
 https://nytimes.com/athletic/6592476/2025/09/02/nottingham-forest-legal-case-fa-appeal/
@@ -17,16 +25,4 @@ https://nytimes.com/athletic/6592326/2025/09/02/george-raveling-dead/
 **Read Judge’s Ruling on Trump’s Use of Troops in California**\
 `The ruling accused the president of effectively turning nearly 5,000 Marines and National Guard soldiers into a “national police force” during the immigration protests in June.`\
 https://nytimes.com/interactive/2025/09/02/us/newsom-v-trump-176-pca-order-granting-injunctive-relief.html
-
-**Start Ups**\
-``\
-https://nytimes.com/spotlight/start-ups
-
-**Narkara Brings Northern Thai Heat to Union Square**\
-`Koju offers an omakase at the Ace Hotel in Brooklyn, Nuyores opens with a Contento chef at the helm and more restaurant news.`\
-https://nytimes.com/2025/09/02/dining/nyc-restaurant-news.html
-
-**College football national title odds: Ohio State is new favorite, but Texas didn't fall far**\
-`Ohio State jumped to the top spot in the odds to win the national title after beating Texas in Week 1. The Longhorns are still in the mix.`\
-https://nytimes.com/athletic/6592178/2025/09/02/college-football-national-title-odds-ohio-state-texas/
 
