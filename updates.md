@@ -1,3 +1,7 @@
+**Phillies 'just kept battling back' in late, gritty win against Brewers**\
+`A 4-0 deficit in the second was a 5-5 tie by the top of the fifth as the Phillies demonstrated resiliency that could make them dangerous.`\
+https://nytimes.com/athletic/6591079/2025/09/01/phillies-brewers-comeback-victory-garrett-stubbs/
+
 **Xi’s Parade to Showcase China’s Military Might and Circle of Autocrats**\
 `China will mark Japan’s defeat in World War II with a parade of missiles, soldiers and leaders like Kim Jong-un of North Korea and Vladimir Putin of Russia.`\
 https://nytimes.com/2025/09/01/world/asia/china-parade-putin-kim.html

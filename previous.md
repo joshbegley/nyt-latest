@@ -7,7 +7,7 @@ https://nytimes.com/2025/09/01/world/asia/china-parade-putin-kim.html
 https://nytimes.com/athletic/6591109/2025/09/01/submit-a-question-for-pete-sampsons-notre-dame-mailbag-105/
 
 **Phillies 'just kept battling back' in late, gritty win against Brewers**\
-`A 4-0 deficit in the second became a 5-5 game by the top of the fifth as the Phillies demonstrated resiliency that could make them dangerous`\
+`A 4-0 deficit in the second was a 5-5 tie by the top of the fifth as the Phillies demonstrated resiliency that could make them dangerous.`\
 https://nytimes.com/athletic/6591079/2025/09/01/phillies-brewers-comeback-victory-garrett-stubbs/
 
 **Braves (especially Jurickson Profar) excited to add Ha-Seong Kim to roster**\
