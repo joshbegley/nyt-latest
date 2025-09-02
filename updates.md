@@ -1,3 +1,7 @@
+**Landslide Kills More Than 1,000 People in Sudan, Rebel Group Says**\
+`The landslide leveled a village in the remote Marra mountains, the Sudan Liberation Movement/Army said. It asked international aid organizations for help in recovering bodies.`\
+https://nytimes.com/2025/09/02/world/africa/sudan-landslide.html
+
 **The New York Times in Print for Tuesday, Sep. 2, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/09/02/todays-new-york-times
