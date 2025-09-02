@@ -1,3 +1,7 @@
+**Ukrainian Students Start New School Year in Underground Classrooms**\
+`With Russian attacks ongoing and peace talks stalled, some students in Ukraine are attending classes underground. For some, it is their first in-person learning in more than three years of war.`\
+https://nytimes.com/video/world/europe/100000010372983/ukraine-russia-school-underground.html
+
 **South Africa's white-ball team are on the up - England now await**\
 `The Proteas start their series in England buoyed by victory in Australia - and are packed with exciting talent `\
 https://nytimes.com/athletic/6588650/2025/09/02/england-south-africa-cricket-odi-series/
