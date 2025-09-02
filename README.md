@@ -1,3 +1,7 @@
+**Washington's watch guide: How to stream and follow the 2025 Commanders**\
+`The Commanders have a packed-out prime-time schedule for 2025. Here's how to watch resurgent Washington this season.`\
+https://nytimes.com/athletic/6582355/2025/09/02/washington-commanders-football-how-to-watch-2025/
+
 **What I'm seeing from the Commanders: Jayden Daniels got better and there's a new X-factor**\
 `The Commanders are all in, and their phenom of a QB keeps improving, but depth and the defensive line could be concerns.`\
 https://nytimes.com/athletic/6589562/2025/09/02/washington-commanders-preview-jayden-daniels-marshon-lattimore/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/02/style/street-style-look-danish-girl-style.html
 **College Football Playoff 2025 projections: Miami, Auburn rising; Alabama plummets in Week 1**\
 `Our College Football Playoff predictions model is back. Check here for regular updates on CFP and national championship odds for 2025.`\
 https://nytimes.com/athletic/6560541/2025/09/02/college-football-playoff-bracket-projections-odds/
-
-**U.S. Soccer has a new vision for youth development. Implementation is ‘an astronomical ask’**\
-`The "U.S. Way" is meant to kick development into high gear, but the American soccer landscape presents a series of challenges`\
-https://nytimes.com/athletic/6589530/2025/09/02/us-soccer-youth-development-challenge-matt-crocker-usmnt-uswnt/
 
