@@ -1,3 +1,15 @@
+**Deadly Floods Hit Pakistan Again**\
+`Pakistan has been hit by a string of devastating floods this year that have brought devastation across the country of 250 million people.`\
+https://nytimes.com/video/world/100000010367079/deadly-floods-hit-pakistan-again.html
+
+**Buccaneers agree to four-year, $90 million extension with OT Luke Goedeke: Sources**\
+`The average annual value of Goedeke's deal ($22.5 million) is the third-highest among right tackles.`\
+https://nytimes.com/athletic/6593349/2025/09/02/buccaneers-luke-goedeke-extension/
+
+**A Conservative Canadian Province Backs Off a Book Ban**\
+`Alberta ordered schools to pull “inappropriate” books, but paused its plan after a large school district banned scores of books in an apparent effort to make a point.`\
+https://nytimes.com/2025/09/02/world/canada/alberta-canada-edmonton-school-book-ban.html
+
 **Buccaneers agree to four-year, $90 million extension with OT Luke Goedeke: Source**\
 `The average annual value of Goedeke's deal ($22.5 million) is the third-highest among right tackles.`\
 https://nytimes.com/athletic/6593349/2025/09/02/buccaneers-luke-goedeke-extension/
