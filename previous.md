@@ -1,3 +1,11 @@
+**Buccaneers agree to four-year, $90 million extension with OT Luke Goedeke: Source**\
+`The average annual value of Goedeke's deal ($22.5 million) is the third-highest among right tackles.`\
+https://nytimes.com/athletic/6593349/2025/09/02/buccaneers-luke-goedeke-extension/
+
+**A Conservative Canadian Province Backs Off a Book Ban**\
+`Alberta ordered schools to pull ‘inappropriate’ books, but paused its plan after a large school district banned scores of books in an apparent effort to make a point.`\
+https://nytimes.com/2025/09/02/world/canada/alberta-canada-edmonton-school-book-ban.html
+
 **A Kennedy, a Protégé and a Progressive Star Eye Nadler’s N.Y. House Seat**\
 `Representative Jerrold Nadler’s departure is still 16 months away, but Democrats are already testing the waters in what is expected to be a highly contested race.`\
 https://nytimes.com/2025/09/02/nyregion/nadler-retire-successor-replace.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/09/02/magazine/speeding-traffic.html
 **Trump’s L.A. Deployment Ruled Illegal**\
 `Also, Google is ordered to share search data with rivals. Here’s the latest at the end of Tuesday.`\
 https://nytimes.com/2025/09/02/briefing/la-google-putin.html
-
-**Xi’s Parade Will Send the Message: China Will Not Be Bullied Again**\
-`The show of firepower in Beijing, to be attended by President Vladimir V. Putin, is designed to show that China is strong enough to resist pressure from foreign powers.`\
-https://nytimes.com/2025/09/02/world/asia/xi-putin-kim-parade.html
-
-**Under New Law, Greece Can Imprison Rejected Asylum Seekers**\
-`A surge in migrants landing on Crete this summer has diminished, but Greece is hoping to deter future undocumented immigration.`\
-https://nytimes.com/2025/09/02/world/europe/greece-asylum-seekers.html
 

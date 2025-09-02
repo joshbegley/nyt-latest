@@ -1,3 +1,11 @@
+**Buccaneers agree to four-year, $90 million extension with OT Luke Goedeke: Source**\
+`The average annual value of Goedeke's deal ($22.5 million) is the third-highest among right tackles.`\
+https://nytimes.com/athletic/6593349/2025/09/02/buccaneers-luke-goedeke-extension/
+
+**A Conservative Canadian Province Backs Off a Book Ban**\
+`Alberta ordered schools to pull ‘inappropriate’ books, but paused its plan after a large school district banned scores of books in an apparent effort to make a point.`\
+https://nytimes.com/2025/09/02/world/canada/alberta-canada-edmonton-school-book-ban.html
+
 **A Kennedy, a Protégé and a Progressive Star Eye Nadler’s N.Y. House Seat**\
 `Representative Jerrold Nadler’s departure is still 16 months away, but Democrats are already testing the waters in what is expected to be a highly contested race.`\
 https://nytimes.com/2025/09/02/nyregion/nadler-retire-successor-replace.html
