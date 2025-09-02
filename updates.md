@@ -1,3 +1,15 @@
+**Assad and Aides Are Wanted in France for Deadly Strike on Journalists**\
+`Judges issued arrest warrants for Bashar al-Assad and six officials of his regime in Syria for an attack that killed two journalists, including Marie Colvin.`\
+https://nytimes.com/2025/09/02/world/middleeast/assad-warrant-marie-colvin.html
+
+**L.A. Ruling Complicates Trump’s Threats to Send Troops to More Cities**\
+`As Democratic cities brace for possible military deployments, Democratic governors see in a lower-court ruling the potential for legal protections.`\
+https://nytimes.com/2025/09/02/us/trump-military-cities.html
+
+**Wizards' Alex Sarr ruled out for remainder of EuroBasket with calf injury**\
+`French officials said Sarr suffered the injury against Slovenia, and he sat out Sunday when France lost to Israel 82-69.`\
+https://nytimes.com/athletic/6592762/2025/09/02/wizards-alex-sarr-calf-injury-eurobasket-2025/
+
 **In a Rare Sign of Protest, a Chinese Activist Challenges the C.C.P.**\
 `In an act of defiance against China’s Communist Party, an activist projected anti-C.C.P. slogans on a building and managed to flee one of the world’s most surveilled countries without being caught.`\
 https://nytimes.com/video/world/asia/100000010373967/china-chongqing-protest.html

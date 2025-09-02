@@ -1,3 +1,15 @@
+**Assad and Aides Are Wanted in France for Deadly Strike on Journalists**\
+`Judges issued arrest warrants for Bashar al-Assad and six officials of his regime in Syria for an attack that killed two journalists, including Marie Colvin.`\
+https://nytimes.com/2025/09/02/world/middleeast/assad-warrant-marie-colvin.html
+
+**L.A. Ruling Complicates Trump’s Threats to Send Troops to More Cities**\
+`As Democratic cities brace for possible military deployments, Democratic governors see in a lower-court ruling the potential for legal protections.`\
+https://nytimes.com/2025/09/02/us/trump-military-cities.html
+
+**Wizards' Alex Sarr ruled out for remainder of EuroBasket with calf injury**\
+`French officials said Sarr suffered the injury against Slovenia, and he sat out Sunday when France lost to Israel 82-69.`\
+https://nytimes.com/athletic/6592762/2025/09/02/wizards-alex-sarr-calf-injury-eurobasket-2025/
+
 **In a Rare Sign of Protest, a Chinese Activist Challenges the C.C.P.**\
 `In an act of defiance against China’s Communist Party, an activist projected anti-C.C.P. slogans on a building and managed to flee one of the world’s most surveilled countries without being caught.`\
 https://nytimes.com/video/world/asia/100000010373967/china-chongqing-protest.html
@@ -25,16 +37,4 @@ https://nytimes.com/newsgraphics/card-story/dude-ranches
 **Antigovernment Protests Continue in Indonesia**\
 `Indonesian soldiers patrolled Jakarta, the capital, as protesters in several cities continued demonstrating against the government’s lavish spending at a time of economic hardship.`\
 https://nytimes.com/video/world/asia/100000010374377/indonesia-protests-government.html
-
-**gws-atlanta-beltline-success-displacement**\
-`(No description)`\
-https://nytimes.com/newsgraphics/card-story/atlanta-beltline-success-displacement
-
-**NHL to have salary cap for 2026 playoffs per new agreement with NHLPA on rolling CBA implementation**\
-`Changes with deferred compensation, salary retention and dress codes will also take effect in 2025-26 — but not maximum contract terms.`\
-https://nytimes.com/athletic/6592725/2025/09/02/nhl-cba-changes-playoff-salary-cap-2026/
-
-**Stephen Colbert Returns for First ‘Late Show’ of Its Last Season**\
-`CBS’s announcement in July that the show would end next year — after Colbert had criticized CBS’s settlement with the Trump administration — raised questions among lawmakers and fans.`\
-https://nytimes.com/2025/09/02/arts/television/stephen-colbert-late-show-returns.html
 
