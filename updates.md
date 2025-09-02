@@ -1,3 +1,7 @@
+**The Pulse: Belichick's debut could not have gone worse**\
+`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/6589844/2025/09/02/bill-belichick-debut-tcu-the-pulse/
+
 **Kyle Shanahan, Sean McVay top defensive peers' ratings of NFL's offensive play callers**\
 `A sample of NFL defensive coordinators and coaches say who they think is best at designing and executing an offense.`\
 https://nytimes.com/athletic/6585385/2025/09/02/kyle-shanahan-sean-mcvay-top-defensive-peers-ratings-of-nfls-offensive-play-callers/
