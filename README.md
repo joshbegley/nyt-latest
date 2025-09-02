@@ -1,3 +1,11 @@
+**Lowetide: What to expect from Oilers rookies in 2025-26**\
+`Here's a look at what to expect from Oilers rookies like Matt Savoie and Ike Howard this coming season.`\
+https://nytimes.com/athletic/6588390/2025/09/02/edmonton-oilers-rookies-2025/
+
+**Until Saturday: Belichick's humbling proves CFB is hard**\
+`Until Saturday is The Athletic's free CFB newsletter.`\
+https://nytimes.com/athletic/6592023/2025/09/02/bill-belichick-unc-tcu-until-saturday/
+
 **D.I.Y. Repairs Turned Into a Gut Renovation in Philadelphia**\
 `A couple of architects liked their rowhouse so much that they transformed it two different times to suit their evolving needs.`\
 https://nytimes.com/2025/09/02/realestate/philadelphia-fitler-square-renovation-architects.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6591303/2025/09/02/trevor-story-home-run-the-windup
 **Emergency Aid Trickles In After Deadly Earthquake in Afghanistan**\
 `Villages remain cut off in the remote, mountainous areas in the east that have been hardest hit by the disaster, which has killed at least 1,400 people.`\
 https://nytimes.com/2025/09/02/world/asia/afghanistan-earthquake.html
-
-**Dwayne Johnson’s Tearful Reinvention at the Venice Film Festival**\
-`The action superstar’s pivot to a dramatic role as a drug-addicted UFC fighter in “The Smashing Machine” brought a standing ovation and Oscar talk.`\
-https://nytimes.com/2025/09/02/movies/dwayne-johnson-smashing-machine-venice-film-festival.html
-
-**How to watch the Dallas Cowboys in 2025: TV schedule loaded with national games**\
-`Unsurprisingly, Dallas is all over the NFL's prime-time schedule this year. Here's how to watch all 17 regular-season Cowboys games.`\
-https://nytimes.com/athletic/6531397/2025/09/02/dallas-cowboys-how-to-watch-2025-tv-schedule/
 
