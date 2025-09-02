@@ -1,3 +1,7 @@
+**Vardy signs for Italian club Cremonese on free transfer**\
+`Vardy left Leicester City at the end of last season after a 13-year stay, where his goals helped them to the 2015-16 Premier League title.`\
+https://nytimes.com/athletic/6317796/2025/09/02/jamie-vardy-cremonese-transfer/
+
 **Ederson leaves Man City for Fenerbahce in permanent transfer**\
 `Ederson's exit follows James Trafford's arrival from Burnley while Gianluigi Donnarumma is also set to join.`\
 https://nytimes.com/athletic/6365225/2025/09/02/ederson-fenerbahce-man-city-transfer/
