@@ -1,8 +1,12 @@
+**How TCU social media leaned into Belichick hype: Memes, one-liners, receipts**\
+`TCU’s director of football creative media kept the zingers coming throughout the easy win: “This part is just so much fun."`\
+https://nytimes.com/athletic/6593640/2025/09/02/tcu-social-media-fun-bill-belichick-unc/
+
 **Stalling Sounds**\
 `Michael B. Berg formalizes his requests.`\
 https://nytimes.com/2025/09/02/crosswords/daily-puzzle-2025-09-03.html
 
-**Benches clear, ejections handed in Giants-Rockies matchup after Rafael Devers homer**\
+**Benches clear, three players ejected in Giants-Rockies matchup after Rafael Devers homer**\
 `In the end, Devers moved from first base to make his Giants debut as a third baseman — a position he hadn't played all season.`\
 https://nytimes.com/athletic/6593685/2025/09/02/giants-rockies-brawl-ejections/
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6593539/2025/09/02/philadelphia-phillies-vs-milwauk
 **How to watch Marlins at Nationals: Time, TV, streaming**\
 `Find out how to watch the Miami Marlins play the Washington Nationals, with time, TV channel, and streaming information.`\
 https://nytimes.com/athletic/6593537/2025/09/02/miami-marlins-vs-washington-nationals-stream-how-to-watch-sept-3/
-
-**How to watch Braves at Cubs: Time, TV, streaming**\
-`Find out how to watch the Atlanta Braves play the Chicago Cubs, with time, TV channel, and streaming information.`\
-https://nytimes.com/athletic/6593533/2025/09/02/atlanta-braves-vs-chicago-cubs-stream-how-to-watch-sept-3/
 
