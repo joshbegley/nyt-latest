@@ -1,3 +1,7 @@
+**Red Sox rookie Roman Anthony headed for MRI after exit with oblique tightness**\
+`Anthony said he’s never dealt with oblique issues before and felt it for the first time in his at-bat.`\
+https://nytimes.com/athletic/6593756/2025/09/02/boston-red-sox-roman-anthony-injury/
+
 **How TCU social media leaned into Belichick hype: Memes, one-liners, receipts**\
 `TCU’s director of football creative media kept the zingers coming throughout the easy win: “This part is just so much fun."`\
 https://nytimes.com/athletic/6593640/2025/09/02/tcu-social-media-fun-bill-belichick-unc/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6593471/2025/09/02/shohei-ohtani-dodgers-home-run-m
 **How to watch Phillies at Brewers: Time, TV, streaming**\
 `Find out how to watch the Philadelphia Phillies play the Milwaukee Brewers, with time, TV channel, and streaming information.`\
 https://nytimes.com/athletic/6593539/2025/09/02/philadelphia-phillies-vs-milwaukee-brewers-stream-how-to-watch-sept-3/
-
-**How to watch Marlins at Nationals: Time, TV, streaming**\
-`Find out how to watch the Miami Marlins play the Washington Nationals, with time, TV channel, and streaming information.`\
-https://nytimes.com/athletic/6593537/2025/09/02/miami-marlins-vs-washington-nationals-stream-how-to-watch-sept-3/
 
