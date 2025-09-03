@@ -1,3 +1,31 @@
+**Is Venezuela Flooding the U.S. With Drugs? Here’s What to Know.**\
+`The Trump administration says Venezuela is sending vast amounts of cocaine to the United States. Venezuela’s role in the drug trade is overstated, experts say.`\
+https://nytimes.com/2025/09/03/world/americas/venezuela-drug-boat-trump-us.html
+
+**Two-time IndyCar champ Will Power and Team Penske will part ways**\
+`“We have accomplished so much together, and I will always be grateful for my time with the team," Power said.`\
+https://nytimes.com/athletic/6594980/2025/09/03/will-power-penske-indycar-part-ways/
+
+**Fall Travel**\
+``\
+https://nytimes.com/spotlight/fall-travel
+
+**How to buy World Cup 2026 tickets: Prices, dates and everything to know**\
+`The 2026 World Cup ticketing process can get a little complex, but we're here to walk you through your route to seeing matches next summer`\
+https://nytimes.com/athletic/6593924/2025/09/03/world-cup-2026-tickets-how-to-buy/
+
+**FIFA to use dynamic pricing for World Cup 2026 tickets; prices from $60 to $6,000**\
+`Details have begun to emerge about how fans can purchase World Cup tickets – and how much it'll cost`\
+https://nytimes.com/athletic/6593901/2025/09/03/world-cup-2026-tickets-fifa-dynamic-pricing/
+
+**My Brother’s an Unpleasant Drunk. Can I Cut Him Off?**\
+`Life feels too short to keep walking on eggshells around him.`\
+https://nytimes.com/2025/09/03/magazine/brothers-unpleasant-drunk-ethics.html
+
+**Mavericks finalizing 4-year, $89 million extension with forward P.J. Washington: Source**\
+`Washington played a pivotal role in the Mavericks catching fire in the final weeks of the 2023-24 season and advancing to the NBA Finals.`\
+https://nytimes.com/athletic/6535764/2025/09/03/pj-washington-nba-contract-extension-mavericks/
+
 **They’re Famous. They’re Everywhere. And They’re Fake.**\
 `Influencers like Lil’ Miquela and Mia Zelu have millions of followers and generate serious income, despite being created with artificial intelligence.`\
 https://nytimes.com/2025/09/03/style/ai-influencers-lil-miquela-mia-zelu.html
@@ -9,32 +37,4 @@ https://nytimes.com/2025/09/03/arts/television/the-paper-review-the-office.html
 **Need a Lift? Putin Takes His ‘Limo Diplomacy’ to China**\
 `Rides in his hulking bulletproof Aurus with the Indian and North Korean leaders offered the Russian leader an ideal setting for deepening ties.`\
 https://nytimes.com/2025/09/03/world/europe/putin-limo-china-xi-relations-modi-india-trump.html
-
-**Sesko 'will struggle' at Man Utd without midfield additions, Saha says**\
-`Saha said Sesko has the physical attributes to succeed at United but could struggle as the club remain "weak" in midfield.`\
-https://nytimes.com/athletic/6594617/2025/09/03/benjamin-sesko-manchester-united-louis-saha/
-
-**Sabres mailbag: Submit your questions to Matthew Fairburn**\
-`Have questions about the Sabres as training camp and preseason approach?`\
-https://nytimes.com/athletic/6594890/2025/09/03/buffalo-sabres-mailbag-september-2025/
-
-**The Met Opera Turns to Saudi Arabia to Help Solve Its Financial Woes**\
-`The Met, which has withdrawn $120 million from its endowment since the pandemic, reached a lucrative deal to perform in Saudi Arabia for three weeks each winter.`\
-https://nytimes.com/2025/09/03/arts/music/met-opera-saudi-arabia-finances.html
-
-**Tonight’s Dinner Could Be a Best-in-Class Shrimp Curry**\
-`Plus, some recommendations for using all that summer zucchini and a make-ahead breakfast for the ages.`\
-https://nytimes.com/2025/09/03/dining/tonights-dinner-could-be-a-best-in-class-shrimp-curry.html
-
-**How U.S.A. basketball rebuilt after a disastrous 2004 Olympics and made history**\
-`The iconic "Redeem Team" headlined by Kobe Bryant, LeBron James and Dwyane Wade will be inducted into the Hall of Fame Saturday.`\
-https://nytimes.com/athletic/6592412/2025/09/03/usa-basketball-2008-olympics-redeem-team-hall-of-fame/
-
-**Habits to Remain Injury-Free, According to Physical Therapists**\
-`Experts see a lot of people who might have avoided their aches and pains. Here are a few of their favorite tips.`\
-https://nytimes.com/2025/09/03/well/move/physical-therapists-advice-pain.html
-
-**Germany football boss rules out games abroad amid La Liga and Serie A attempts**\
-`La Liga wants to stage Villarreal vs Barcelona in Miami, while Serie A wants Milan vs Como in February to be played in Perth, Australia.`\
-https://nytimes.com/athletic/6594699/2025/09/03/bundesliga-match-abroad-la-liga-serie-a/
 
