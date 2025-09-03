@@ -1,3 +1,7 @@
+**NFL RedZone host Scott Hanson confirms broadcast will feature commercials this season**\
+`Hanson's sign-on will be noticeably different this coming Sunda`\
+https://nytimes.com/athletic/6595714/2025/09/03/nfl-redzone-host-scott-hanson-confirms-broadcast-will-feature-commercials-this-season/
+
 **When the unstoppable force (YouTube) meets the immovable object (the NFL): MoneyCall**\
 `Welcome back to MoneyCall, The Athletic’s weekly sports business cheat sheet.`\
 https://nytimes.com/athletic/6595688/2025/09/03/youtube-nfl-week-1-ishowspeed-moneycall/
@@ -10,7 +14,7 @@ https://nytimes.com/athletic/6595706/2025/09/03/nhl-playoff-salary-cap-gms/
 `Gov. Jeff Landry, a Republican, welcomed news of the potential deployment to New Orleans, a city run by Democrats.`\
 https://nytimes.com/2025/09/03/us/politics/trump-national-guard-new-orleans-crime.html
 
-**Where Should Taylor and Travis Go on their Honeymoon? We’ve Got Ideas.**\
+**Where Should Taylor and Travis Go on Their Honeymoon? We’ve Got Ideas.**\
 `Suggestions for a wedding trip fit for tabloid royalty, where price is no object and the farther they can get away, the better.`\
 https://nytimes.com/2025/09/03/travel/taylor-swift-travis-kelce-honeymoon.html
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6595571/2025/09/03/barstool-sports-dave-portnoy-big
 **Trump’s Pick for the Fed Says He Will Uphold the Central Bank’s Independence**\
 `Stephen Miran is scheduled to face members of the Senate Banking Committee on Thursday as the administration steps up its attacks on the Federal Reserve.`\
 https://nytimes.com/2025/09/03/business/stephen-miran-trump-fed-remarks.html
-
-**NFL Week 1 confidence picks: Why the Raiders are a strong upset pick**\
-`Playing in a Confidence Pool with your buddies and looking for advice? KC Joyner has you covered with his first edition of confidence picks.`\
-https://nytimes.com/athletic/6594689/2025/09/03/nfl-week-1-confidence-picks/
 

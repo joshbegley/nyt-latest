@@ -1,3 +1,11 @@
+**NFL RedZone host Scott Hanson confirms broadcast will feature commercials this season**\
+`Hanson's sign-on will be noticeably different this coming Sunda`\
+https://nytimes.com/athletic/6595714/2025/09/03/nfl-redzone-host-scott-hanson-confirms-broadcast-will-feature-commercials-this-season/
+
+**Where Should Taylor and Travis Go on Their Honeymoon? We’ve Got Ideas.**\
+`Suggestions for a wedding trip fit for tabloid royalty, where price is no object and the farther they can get away, the better.`\
+https://nytimes.com/2025/09/03/travel/taylor-swift-travis-kelce-honeymoon.html
+
 **When the unstoppable force (YouTube) meets the immovable object (the NFL): MoneyCall**\
 `Welcome back to MoneyCall, The Athletic’s weekly sports business cheat sheet.`\
 https://nytimes.com/athletic/6595688/2025/09/03/youtube-nfl-week-1-ishowspeed-moneycall/
