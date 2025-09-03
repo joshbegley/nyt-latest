@@ -1,3 +1,7 @@
+**Scoop City: Seven predictions for 2025**\
+`Seven predictions for 2025, including my Super Bowl pick. Plus: Mike Sando explains why Dallas is the league's most underrated team.`\
+https://nytimes.com/athletic/6595376/2025/09/03/predictions-nfl-2025-ravens-packers-cowboys/
+
 **Why Fewer Voters Register as Democrats**\
 `Readers offer analysis and advice about the Democrats’ plight. Also: An Israeli’s heroism.`\
 https://nytimes.com/2025/09/03/opinion/democrats-voters.html
@@ -31,10 +35,6 @@ https://nytimes.com/athletic/6595245/2025/09/03/folarin-balogun-usmnt-return-poc
 https://nytimes.com/2025/09/03/arts/music/swedish-culture-ikea-abba.html
 
 **Trump Advisers Have Discussed a Job for Adams to Quit Mayor’s Race**\
-`The conversations are said to be part of an effort to clear the field for a one-on-one general election race between Andrew M. Cuomo and Zohran Mamdani.`\
+`The conversations have also involved Curtis Sliwa with the goal of giving Andrew Cuomo a better chance of defeating Zohran Mamdani in November.`\
 https://nytimes.com/2025/09/03/nyregion/trump-adams-sliwa-quit-nyc-mayor.html
-
-**Submit your questions for Kevin Fishbain's Week 1 Bears mailbag**\
-`Coach Ben Johnson, quarterback Caleb Williams and the Bears are preparing to host the Vikings in the season opener. What's on your mind?`\
-https://nytimes.com/athletic/6595340/2025/09/03/bears-mailbag-questions-week-1/
 
