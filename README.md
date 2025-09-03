@@ -1,3 +1,7 @@
+**The Windup: How Devers finally got to play third**\
+`Welcome to The Windup, The Athletic's MLB newsletter.`\
+https://nytimes.com/athletic/6594071/2025/09/03/rafeal-devers-fight-third-base-the-windup/
+
 **U.K. Should Clarify Free-Speech Laws After Comedian’s Arrest, Police Chief Says**\
 `The arrest of Graham Linehan on suspicion of inciting violence against transgender people is adding to a debate across the Atlantic over the policing of speech in Britain.`\
 https://nytimes.com/2025/09/03/world/europe/uk-graham-linehan-arrest-free-speech.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6594633/2025/09/03/alijah-vera-tucker-jets-injury/
 **Everton's record signing's 'very stressful few weeks'**\
 `Ruby Mace is Everton's ninth signing of the summer and her acquisition feels like a significant one`\
 https://nytimes.com/athletic/6594097/2025/09/03/everton-women-football-ruby-mace-signing-leicester-city/
-
-**Arizona Cardinals 2025 streaming guide: Schedule, broadcasters for up-and-coming team**\
-`With the NFL season starting, here's how to watch all 17 (and maybe more?) Arizona Cardinals games this year.`\
-https://nytimes.com/athletic/6591291/2025/09/03/arizona-cardinals-how-to-watch-2025-schedule/
 
