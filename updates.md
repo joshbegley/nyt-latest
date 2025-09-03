@@ -1,3 +1,15 @@
+**Habits to Remain Injury-Free, According to Physical Therapists**\
+`Experts see a lot of people who might have avoided their aches and pains. Here are a few of their favorite tips.`\
+https://nytimes.com/2025/09/03/well/move/physical-therapists-advice-pain.html
+
+**Germany football boss rules out games abroad amid La Liga and Serie A attempts**\
+`La Liga wants to stage Villarreal vs Barcelona in Miami, while Serie A wants Milan vs Como in February to be played in Perth, Australia.`\
+https://nytimes.com/athletic/6594699/2025/09/03/bundesliga-match-abroad-la-liga-serie-a/
+
+**John E. Sununu Is Exploring a Senate Run in New Hampshire**\
+`The former senator has been out of office for more than 15 years, but his last name is synonymous with Republican politics in a state where party leaders see a chance to flip a seat.`\
+https://nytimes.com/2025/09/03/us/politics/john-sununu-senate-new-hampshire.html
+
 **The Windup: How Devers finally got to play third**\
 `Welcome to The Windup, The Athletic's MLB newsletter.`\
 https://nytimes.com/athletic/6594071/2025/09/03/rafeal-devers-fight-third-base-the-windup/
