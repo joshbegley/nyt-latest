@@ -1,3 +1,31 @@
+**As Mamdani’s Stature Grows, He Tries to Shed Some Past Stances**\
+`Zohran Mamdani, the Democratic nominee for mayor of New York City, once called for defunding the police and decriminalizing prostitution. He says he has changed.`\
+https://nytimes.com/2025/09/03/nyregion/zohran-mamdani-policy-shifts.html
+
+**‘KPop Demon Hunters’**\
+`What was the best piece of art or culture you experienced over the summer?`\
+https://nytimes.com/2025/09/03/learning/kpop-demon-hunters.html
+
+**Demystifying the Art World as a Daily Quest**\
+`Zachary Small’s beat is the opposite of narrow, but that’s part of the fun.`\
+https://nytimes.com/2025/09/03/insider/arts-reporter.html
+
+**The Cloudy Outlook for New York City’s Economy**\
+`Employers are adding far fewer jobs, and even the health care sector could soften. But the city’s economy appears stronger than those on the West Coast.`\
+https://nytimes.com/2025/09/03/nyregion/nyc-economy-jobs.html
+
+**Trump Administration Live Updates: Appeals Court Blocks Deportations Under Alien Enemies Act**\
+`The ruling was a setback for a key part of President Trump’s domestic agenda. The case is almost certainly headed to the Supreme Court.`\
+https://nytimes.com/live/2025/09/03/us/trump-news
+
+**The Endangered Frog That Lives Next to an Amazon Warehouse**\
+`The Atlantic coast leopard frog, first identified in an industrial section of Staten Island in 2012, is now on the state’s endangered species list. Conservation groups see an opportunity.`\
+https://nytimes.com/2025/09/03/nyregion/frog-atlantic-coast-leopard-endangered.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/09/03/crosswords/spelling-bee-forum.html
+
 **Giants quick to defend Rafael Devers as benches clear: 'We're a very united team'**\
 `"You never really want to see that stuff, I guess, in most people's eyes. But I think it's sometimes a firestarter in a good way."`\
 https://nytimes.com/athletic/6594022/2025/09/03/sf-giants-rockies-benches-clear-rafael-devers-united-team/
@@ -9,32 +37,4 @@ https://nytimes.com/athletic/6591674/2025/09/03/alexander-isak-liverpool-newcast
 **Wildfire Destroys Buildings in Gold Rush Town of Chinese Camp**\
 `Fires, likely sparked by lightning strikes that hit California early Tuesday, razed over 9,000 acres in the foothills of the Sierra Nevada Mountains, officials said.`\
 https://nytimes.com/2025/09/03/us/wildfire-chinese-camp-california.html
-
-**Read the Court Ruling on Trump’s Use of the Alien Enemies Act**\
-`The ruling was a setback for the Trump administration on the mass deportation of immigrants, one of its domestic policy goals.`\
-https://nytimes.com/interactive/2025/09/03/us/politics/court-ruling-venezuelan-migrants.html
-
-**How to watch Yankees at Astros: Time, TV, streaming**\
-`Find out how to watch the New York Yankees play the Houston Astros, with time, TV channel, and streaming information.`\
-https://nytimes.com/athletic/6594056/2025/09/03/new-york-yankees-vs-houston-astros-stream-how-to-watch-sept-3/
-
-**How to watch Athletics at Cardinals: Time, TV, streaming**\
-`Find out how to watch the Athletics play the St. Louis Cardinals, with time, TV channel, and streaming information.`\
-https://nytimes.com/athletic/6594053/2025/09/03/athletics-vs-st-louis-cardinals-stream-how-to-watch-sept-3/
-
-**Word of the Day: amalgamate**\
-`This word has appeared in three articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2025/09/03/learning/word-of-the-day-amalgamate.html
-
-**Appeals Court Blocks Trump’s Use of Alien Enemies Act to Deport Venezuelans**\
-`The ruling was a setback for the Trump administration on the mass deportation of immigrants, one of its domestic policy goals.`\
-https://nytimes.com/2025/09/03/us/politics/trump-alien-enemies-act-court.html
-
-**Did Astros' Framber Valdez intentionally cross up his catcher? Lefty says ‘I hit him by mistake’**\
-`Valdez invited more questions about his disposition during difficult times, something that has been a focus throughout his career. `\
-https://nytimes.com/athletic/6593992/2025/09/03/astros-framber-valdez-cesar-salazar-issue/
-
-**Fourteen Years After Japan’s Nuclear Disaster, People With Cancer Seek Answers**\
-`A survey has found hundreds of thyroid tumors, but Japanese officials say they are unrelated to the Fukushima meltdowns. Now they face a lawsuit.`\
-https://nytimes.com/2025/09/03/world/asia/japan-fukushima-nuclear-cancer.html
 
