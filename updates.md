@@ -1,3 +1,7 @@
+**How Anime Took Over America**\
+`Netflix’s “Demon Slayer” is just the latest confirmation of how Japan’s once-distinctive animation style has become a global visual language.`\
+https://nytimes.com/interactive/2025/09/03/magazine/anime-manga-pokemon-demon-slayer-dragon-ball-z.html
+
 **Funicular Accident Leaves Several Dead in Lisbon**\
 `According to Portugal’s health ministry, at least 15 people were killed and 18 others were injured after the Elevador da Glória derailed and crashed in Lisbon on Wednesday.`\
 https://nytimes.com/video/world/europe/100000010377021/lisbon-gloria-funicular-crash-fatalities.html
