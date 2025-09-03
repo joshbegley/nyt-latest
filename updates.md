@@ -1,3 +1,8 @@
+**Row Z: Newcastle’s tearful Isak tribute, Martinez hanging on the telephone, and Nuno’s quick maths**\
+`Welcome to Row Z, The Athletic’s column that shines a light on the bonkers side of the game
+`\
+https://nytimes.com/athletic/6591572/2025/09/03/row-z-isak-liverpool-newcastle-martinez-manchester-united-chelsea/
+
 **Hater's Ball: A pessimist's take on the top 50 players in fantasy football 2025**\
 `What could go wrong for your top 50 picks in fantasy football 2025? Michael Salfino shares a glass-half-empty take for each player.`\
 https://nytimes.com/athletic/6592414/2025/09/03/fantasy-football-2025-haters-ball-top-50/

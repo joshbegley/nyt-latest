@@ -1,3 +1,15 @@
+**Amorim's options: Picking Man United's strongest XI now the window has closed**\
+`Problems remain, but the reworked 2025-26 United has more of the characteristics necessary for Amorim's football`\
+https://nytimes.com/athletic/6583792/2025/09/03/manchester-united-ruben-amorim-starting-xi/
+
+**Making the grade: How did your Premier League club score for their summer transfer window?**\
+`With the summer transfer window now closed, we asked The Athletic's club reporters for their view on how it panned out for their side`\
+https://nytimes.com/athletic/6591625/2025/09/03/premier-league-transfer-window-graded-review/
+
+**Can Leeds, Sunderland and Burnley stay in the Premier League?**\
+`The newly promoted teams boast 13 points and four wins between them already, suggesting they might yet buck the top-flight's recent trend`\
+https://nytimes.com/athletic/6591881/2025/09/03/leeds-sunderland-burnley-premier-league/
+
 **Hater's Ball: A pessimist's take on the top 50 players in fantasy football 2025**\
 `What could go wrong for your top 50 picks in fantasy football 2025? Michael Salfino shares a glass-half-empty take for each player.`\
 https://nytimes.com/athletic/6592414/2025/09/03/fantasy-football-2025-haters-ball-top-50/
@@ -26,16 +38,4 @@ https://nytimes.com/athletic/6592714/2025/09/03/connections-sports-edition-nfl-t
 **Nemat Shafik, Columbia President During Protests, Takes Another Tough Job**\
 `Dr. Shafik, who came under fire for her handling of pro-Palestinian campus protests last year, is now the chief economic adviser to Britain’s prime minister.`\
 https://nytimes.com/2025/09/03/world/europe/minouche-shafik-uk-columbia-starmer.html
-
-**Fantasy football rankings Week 1: Sleepers, projections, starts, sits**\
-`It's finally time to set your fantasy football rosters for the first time in 2025, and Jake Ciely, as always, is here to help.`\
-https://nytimes.com/athletic/6593198/2025/09/03/fantasy-football-rankings-week-1-sleepers-projections-starts/
-
-**Connections: Sports Edition Coach: Hints for Sept. 3, 2025**\
-`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
-https://nytimes.com/athletic/6593838/2025/09/03/connections-sports-edition-hints-for-sept-3-2025/
-
-**Corrections: Sept. 3, 2025**\
-`Corrections that appeared in print on Wednesday, Sept. 3, 2025.`\
-https://nytimes.com/2025/09/03/pageoneplus/corrections-sept-3-2025.html
 
