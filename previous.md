@@ -1,3 +1,11 @@
+**Deaths Reported After Lisbon Funicular Derails, Portugal’s President Says**\
+`The funicular line, one of three in Lisbon, is a popular tourist attraction.`\
+https://nytimes.com/2025/09/03/world/europe/lisbon-portugal-gloria-funicular-derail-crash.html
+
+**Epstein Victims Call for Release of More Documents and Accountability**\
+`The accusers’ demands come as some Congress members push to compel the release of the full investigative file on Jeffrey Epstein.`\
+https://nytimes.com/2025/09/03/us/politics/trump-epstein-files-victims-survivors.html
+
 **Wild owner Craig Leipold optimistic on a Kirill Kaprizov deal: 'I kind of think we're there'**\
 `Leipold says he's anxious for talks to resume when Kaprizov arrives from Russia. "I think we’ll move quickly after that.”`\
 https://nytimes.com/athletic/6595567/2025/09/03/wild-kirill-kaprizov-extension-craig-leipold/
@@ -29,12 +37,4 @@ https://nytimes.com/card/2025/09/03/arts/editors-recommendations-robotdreams
 **Kalen DeBoer answering job security questions after Week 1? Never a good sign**\
 `Things are not pretty. And with so much season left, there’s so much time to either turn it around — or for it to get so much worse.`\
 https://nytimes.com/athletic/6595501/2025/09/03/alabama-kalen-deboer-buyout-hot-seat/
-
-**The Giants are finishing the season with a power surge. Can it last?**\
-`The Giants are currently outslugging the competition, but is their roster built to maintain that level of home run-power for the long-term?`\
-https://nytimes.com/athletic/6592449/2025/09/03/sf-giants-home-run-power-projection/
-
-**In a Hot Mic Moment, Xi and Putin Muse About Living Forever**\
-`Medical advances and geopolitics collide for two septuagenarian leaders who have suggested that their time in office is far from over.`\
-https://nytimes.com/2025/09/03/world/europe/putin-xi-immortality-organ-transplants.html
 

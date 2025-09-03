@@ -1,3 +1,11 @@
+**Deaths Reported After Lisbon Funicular Derails, Portugal’s President Says**\
+`The funicular line, one of three in Lisbon, is a popular tourist attraction.`\
+https://nytimes.com/2025/09/03/world/europe/lisbon-portugal-gloria-funicular-derail-crash.html
+
+**Epstein Victims Call for Release of More Documents and Accountability**\
+`The accusers’ demands come as some Congress members push to compel the release of the full investigative file on Jeffrey Epstein.`\
+https://nytimes.com/2025/09/03/us/politics/trump-epstein-files-victims-survivors.html
+
 **Wild owner Craig Leipold optimistic on a Kirill Kaprizov deal: 'I kind of think we're there'**\
 `Leipold says he's anxious for talks to resume when Kaprizov arrives from Russia. "I think we’ll move quickly after that.”`\
 https://nytimes.com/athletic/6595567/2025/09/03/wild-kirill-kaprizov-extension-craig-leipold/
