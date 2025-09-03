@@ -1,3 +1,7 @@
+**NFL RedZone host Scott Hanson confirms broadcast will feature commercials this season**\
+`Hanson's sign-on will be noticeably different this coming Sunda`\
+https://nytimes.com/athletic/6595714/2025/09/03/nfl-redzone-host-broadcast-will-feature-commercials-this-season/
+
 **Senator’s Visit to Spy Agency Was Canceled After Laura Loomer Complained**\
 `Senator Mark Warner’s visit was classified and not intended to be publicized. It was to include a meeting with the head of the agency and a briefing on the agency’s use of artificial intelligence.`\
 https://nytimes.com/2025/09/03/us/politics/senator-warner-laura-loomer.html
