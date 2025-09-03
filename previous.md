@@ -1,3 +1,15 @@
+**F.D.A. Official Overruled Scientists on Wide Access to Covid Shots**\
+`The agency’s staff scientists pointed out how Covid was still unpredictable and posed a threat to toddlers, but the official decided to restrict shots only to children with risk factors.`\
+https://nytimes.com/2025/09/03/health/fda-covid-vaccines-rfk-jr.html
+
+**‘Linda Linda Linda’: These Girls Just Want to Have Fun**\
+`Newly restored, this film about a group of Japanese rockers opens at the IFC Center, its charm undiminished.`\
+https://nytimes.com/2025/09/03/movies/linda-linda-linda-ifc.html
+
+**Ngumoha included in Liverpool's UCL squad as Chiesa omitted**\
+`Italian forward Chiesa, who scored in Liverpool's Premier League victory over Bournemouth last month, has been omitted from the List A squad`\
+https://nytimes.com/athletic/6595417/2025/09/03/liverpool-champions-league-squad-ngumoha-chiesa/
+
 **The Message for Big Tech in the Google Ruling: Play Nice, but Play On**\
 `A federal judge ordered steps in the search monopoly case that will restrain Google but not break it up, signaling a cautious antitrust approach by courts.`\
 https://nytimes.com/2025/09/03/business/google-ruling-antitrust.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6595033/2025/09/03/kawhi-leonard-clippers-salary-ca
 **Twins Turned This Ohio Town Into a Living Laboratory**\
 `Each year, twins from around the world converge on Twinsburg, Ohio in a boon for scientific researchers studying everything from taste buds to facial recognition technology.`\
 https://nytimes.com/card/2025/09/03/us/twinsburg-ohio-twins-day-festival-research
-
-**Arsenal name Max Dowman, 15, in Champions League squad**\
-`Arsenal have named their Champions League squad ahead of their opening match against Athletic Club on September 16.`\
-https://nytimes.com/athletic/6591433/2025/09/03/arsenal-champions-league-squad-dowman/
-
-**Spurs' UCL squad: Simons and Kolo Muani in, Tel and Bissouma out**\
-`Long-term injury absentees James Maddison, Dejan Kulusevski and Radu Dragusin have also been left out of the squad.`\
-https://nytimes.com/athletic/6591617/2025/09/03/tottenham-champions-league-squad-tel-bissouma/
-
-**The Biggest U.S. Oil Companies Are Eliminating Thousands of Jobs**\
-`ConocoPhillips of Houston on Wednesday announced plans to reduce its global work force by up to 25 percent.`\
-https://nytimes.com/2025/09/03/business/energy-environment/oil-layoffs-conocophillips.html
 

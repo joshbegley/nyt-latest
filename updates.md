@@ -1,3 +1,15 @@
+**F.D.A. Official Overruled Scientists on Wide Access to Covid Shots**\
+`The agency’s staff scientists pointed out how Covid was still unpredictable and posed a threat to toddlers, but the official decided to restrict shots only to children with risk factors.`\
+https://nytimes.com/2025/09/03/health/fda-covid-vaccines-rfk-jr.html
+
+**‘Linda Linda Linda’: These Girls Just Want to Have Fun**\
+`Newly restored, this film about a group of Japanese rockers opens at the IFC Center, its charm undiminished.`\
+https://nytimes.com/2025/09/03/movies/linda-linda-linda-ifc.html
+
+**Ngumoha included in Liverpool's UCL squad as Chiesa omitted**\
+`Italian forward Chiesa, who scored in Liverpool's Premier League victory over Bournemouth last month, has been omitted from the List A squad`\
+https://nytimes.com/athletic/6595417/2025/09/03/liverpool-champions-league-squad-ngumoha-chiesa/
+
 **The Message for Big Tech in the Google Ruling: Play Nice, but Play On**\
 `A federal judge ordered steps in the search monopoly case that will restrain Google but not break it up, signaling a cautious antitrust approach by courts.`\
 https://nytimes.com/2025/09/03/business/google-ruling-antitrust.html
