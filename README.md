@@ -6,8 +6,8 @@ https://nytimes.com/2025/09/03/arts/design/smithsonian-bunch-trump.html
 `Total spending could top $200 million in a November contest that could help determine control of the House next year.`\
 https://nytimes.com/2025/09/03/us/elections/california-redistricting-fundraising-newsom.html
 
-**Harvard Secures a Court Victory in Its Fight With Trump**\
-`Harvard had sued the Trump administration in an effort to restore billions in research funds that the government canceled this spring.`\
+**Trump Administration Broke the Law in Freezing Harvard’s Funding, Judge Says**\
+`The ruling marked a victory for Harvard in its battle with the president, but the judge’s decision may not be the final word.`\
 https://nytimes.com/2025/09/03/us/harvard-trump-funding-ruling.html
 
 **'We’re doing something that makes sense': UC San Diego set to join West Coast Conference**\
