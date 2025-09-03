@@ -1,3 +1,8 @@
+**Row Z: Newcastle’s tearful Isak tribute, Martinez hanging on the telephone, and Nuno’s quick maths**\
+`Welcome to Row Z, The Athletic’s column that shines a light on the bonkers side of the game
+`\
+https://nytimes.com/athletic/6591572/2025/09/03/row-z-isak-liverpool-newcastle-martinez-manchester-united-chelsea/
+
 **Putin’s Propaganda War**\
 `Russian authorities are using a festival to showcase Moscow as a place where life is better than in the West.`\
 https://nytimes.com/2025/09/03/briefing/putin-propaganda-china-military-parade.html
