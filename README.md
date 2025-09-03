@@ -1,3 +1,15 @@
+**Habits to Remain Injury-Free, According to Physical Therapists**\
+`Experts see a lot of people who might have avoided their aches and pains. Here are a few of their favorite tips.`\
+https://nytimes.com/2025/09/03/well/move/physical-therapists-advice-pain.html
+
+**Germany football boss rules out games abroad amid La Liga and Serie A attempts**\
+`La Liga wants to stage Villarreal vs Barcelona in Miami, while Serie A wants Milan vs Como in February to be played in Perth, Australia.`\
+https://nytimes.com/athletic/6594699/2025/09/03/bundesliga-match-abroad-la-liga-serie-a/
+
+**John E. Sununu Is Exploring a Senate Run in New Hampshire**\
+`The former senator has been out of office for more than 15 years, but his last name is synonymous with Republican politics in a state where party leaders see a chance to flip a seat.`\
+https://nytimes.com/2025/09/03/us/politics/john-sununu-senate-new-hampshire.html
+
 **The Windup: How Devers finally got to play third**\
 `Welcome to The Windup, The Athletic's MLB newsletter.`\
 https://nytimes.com/athletic/6594071/2025/09/03/rafeal-devers-fight-third-base-the-windup/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/09/03/us/western-health-alliance.html
 **Federal Courts Slow to Fix Vulnerable System After Repeated Hacking**\
 `After a 2020 breach thought to be Russia’s work, the courts told Congress that they would harden a system storing sealed documents. Five years later, the system was hacked again.`\
 https://nytimes.com/2025/09/03/us/politics/federal-courts-computer-hacks.html
-
-**Maine Mass Shooting Survivors File Suit Against Army**\
-`The behavior of the gunman, an Army Reservist, had worried colleagues and supervisors for months before he killed 18 people at a bar and bowling alley.`\
-https://nytimes.com/2025/09/03/us/maine-mass-shooting-army-lawsuit.html
-
-**Jets guard Alijah Vera-Tucker's season could be in jeopardy after serious injury**\
-`Vera-Tucker, a team captain, was set to be a crucial piece of the line, which the Jets anticipate being a strength of their offense.`\
-https://nytimes.com/athletic/6594633/2025/09/03/alijah-vera-tucker-jets-injury/
-
-**Everton's record signing's 'very stressful few weeks'**\
-`Ruby Mace is Everton's ninth signing of the summer and her acquisition feels like a significant one`\
-https://nytimes.com/athletic/6594097/2025/09/03/everton-women-football-ruby-mace-signing-leicester-city/
 

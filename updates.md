@@ -1,3 +1,7 @@
+**The Windup: How Devers finally got to play third**\
+`Welcome to The Windup, The Athletic's MLB newsletter.`\
+https://nytimes.com/athletic/6594071/2025/09/03/rafeal-devers-fight-third-base-the-windup/
+
 **U.K. Should Clarify Free-Speech Laws After Comedian’s Arrest, Police Chief Says**\
 `The arrest of Graham Linehan on suspicion of inciting violence against transgender people is adding to a debate across the Atlantic over the policing of speech in Britain.`\
 https://nytimes.com/2025/09/03/world/europe/uk-graham-linehan-arrest-free-speech.html
