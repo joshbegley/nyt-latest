@@ -1,3 +1,7 @@
+**Sesko 'will struggle' at Man Utd without midfield additions, Saha says**\
+`Saha said Sesko has the physical attributes to succeed at United but could struggle as the club remain "weak" in midfield.`\
+https://nytimes.com/athletic/6594617/2025/09/03/benjamin-sesko-manchester-united-louis-saha/
+
 **Sabres mailbag: Submit your questions to Matthew Fairburn**\
 `Have questions about the Sabres as training camp and preseason approach?`\
 https://nytimes.com/athletic/6594890/2025/09/03/buffalo-sabres-mailbag-september-2025/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6594071/2025/09/03/rafeal-devers-fight-third-base-t
 **U.K. Should Clarify Free-Speech Laws After Comedian’s Arrest, Police Chief Says**\
 `The arrest of Graham Linehan on suspicion of inciting violence against transgender people is adding to a debate across the Atlantic over the policing of speech in Britain.`\
 https://nytimes.com/2025/09/03/world/europe/uk-graham-linehan-arrest-free-speech.html
-
-**Hegseth Says Boat Strike Is Start of Campaign Against Venezuelan Cartels**\
-`The defense secretary and President Trump said a small boat was carrying drugs but offered little evidence and few details.`\
-https://nytimes.com/2025/09/03/us/politics/hegseth-venezuela-drug-strike.html
 

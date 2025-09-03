@@ -1,3 +1,7 @@
+**Sesko 'will struggle' at Man Utd without midfield additions, Saha says**\
+`Saha said Sesko has the physical attributes to succeed at United but could struggle as the club remain "weak" in midfield.`\
+https://nytimes.com/athletic/6594617/2025/09/03/benjamin-sesko-manchester-united-louis-saha/
+
 **Sabres mailbag: Submit your questions to Matthew Fairburn**\
 `Have questions about the Sabres as training camp and preseason approach?`\
 https://nytimes.com/athletic/6594890/2025/09/03/buffalo-sabres-mailbag-september-2025/
