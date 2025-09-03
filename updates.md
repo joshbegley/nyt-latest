@@ -1,3 +1,7 @@
+**Sure, Rats Are Everywhere. But Inside a Baby Stroller in Central Park?**\
+`City data actually suggest that rat sightings are declining. But horror stories are everywhere, and one rat in a stroller is enough to set off a panic.`\
+https://nytimes.com/2025/09/03/nyregion/central-park-playgrounds-rats.html
+
 **Oliver Moore pleased with offseason, ready to make Blackhawks out of camp**\
 `Whether Moore starts the season with the IceHogs or Blackhawks will be one of the major questions during training camp.`\
 https://nytimes.com/athletic/6595202/2025/09/03/blackhawks-oliver-moore-offseason-camp/

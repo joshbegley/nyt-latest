@@ -1,3 +1,7 @@
+**Sure, Rats Are Everywhere. But Inside a Baby Stroller in Central Park?**\
+`City data actually suggest that rat sightings are declining. But horror stories are everywhere, and one rat in a stroller is enough to set off a panic.`\
+https://nytimes.com/2025/09/03/nyregion/central-park-playgrounds-rats.html
+
 **Oliver Moore pleased with offseason, ready to make Blackhawks out of camp**\
 `Whether Moore starts the season with the IceHogs or Blackhawks will be one of the major questions during training camp.`\
 https://nytimes.com/athletic/6595202/2025/09/03/blackhawks-oliver-moore-offseason-camp/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6595443/2025/09/03/hard-knocks-buffalo-bills-finale
 **100 Years Ago, Fictional Londoners Looked Up. They Saw Our Present Day.**\
 `Our critic A.O. Scott takes apart a scene from “Mrs. Dalloway,” Virginia Woolf’s 1925 masterpiece, and shows why the book is a must-read now.`\
 https://nytimes.com/interactive/2025/09/03/books/virginia-woolf-mrs-dalloway-100-years-modernism.html
-
-**U.S. Hockey's 2025 Hall of Fame class includes Joe Pavelski, 4 others**\
-`The U.S. Hockey Hall of Fame class of 2025 also includes Olympic gold medalist Tara Mounsey and photographer Bruce Bennett.`\
-https://nytimes.com/athletic/6595450/2025/09/03/usa-hockey-hall-of-fame-2025-class/
 
