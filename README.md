@@ -1,3 +1,7 @@
+**China Projects Power at Parade With Putin and Kim**\
+`President Xi Jinping of China oversaw the country’s ambitious display of military power and diplomatic influence during a parade attended by the leaders of Russia and North Korea.`\
+https://nytimes.com/video/world/asia/100000010375223/xi-putin-kim-parade.html
+
 **Stephen Colbert Starts the Final ‘Late Show’ Season With a Toast**\
 `John Oliver joined Colbert for the Season 11 premiere (and a little champagne). “The Real Housewives of Salt Lake City” came up.`\
 https://nytimes.com/2025/09/03/arts/television/colbert-late-show-final-season.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/09/03/us/trump-news
 **The Endangered Frog That Lives Next to an Amazon Warehouse**\
 `The Atlantic coast leopard frog, first identified in an industrial section of Staten Island in 2012, is now on the state’s endangered species list. Conservation groups see an opportunity.`\
 https://nytimes.com/2025/09/03/nyregion/frog-atlantic-coast-leopard-endangered.html
-
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2025/09/03/crosswords/spelling-bee-forum.html
 

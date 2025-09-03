@@ -1,3 +1,7 @@
+**Stephen Colbert Starts the Final ‘Late Show’ Season With a Toast**\
+`John Oliver joined Colbert for the Season 11 premiere (and a little champagne). “The Real Housewives of Salt Lake City” came up.`\
+https://nytimes.com/2025/09/03/arts/television/colbert-late-show-final-season.html
+
 **Inside Leeds United's window: Ambitious bids, goalkeeper delays, and a disappointing final day**\
 `Leeds had a quick start to the window but fans were left disappointed by how it ended`\
 https://nytimes.com/athletic/6591764/2025/09/03/inside-leeds-united-transfer-window/
