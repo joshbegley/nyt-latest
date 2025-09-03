@@ -1,3 +1,23 @@
+**Twins Turned This Ohio Town Into a Living Laboratory**\
+`Each year, twins from around the world converge on Twinsburg, Ohio in a boon for scientific researchers studying everything from taste buds to facial recognition technology.`\
+https://nytimes.com/card/2025/09/03/us/twinsburg-ohio-twins-day-festival-research
+
+**Arsenal name Max Dowman, 15, in Champions League squad**\
+`Arsenal have named their Champions League squad ahead of their opening match against Athletic Club on September 16.`\
+https://nytimes.com/athletic/6591433/2025/09/03/arsenal-champions-league-squad-dowman/
+
+**Spurs' UCL squad: Simons and Kolo Muani in, Tel and Bissouma out**\
+`Long-term injury absentees James Maddison, Dejan Kulusevski and Radu Dragusin have also been left out of the squad.`\
+https://nytimes.com/athletic/6591617/2025/09/03/tottenham-champions-league-squad-tel-bissouma/
+
+**The Biggest U.S. Oil Companies Are Eliminating Thousands of Jobs**\
+`ConocoPhillips of Houston on Wednesday announced plans to reduce its global work force by up to 25 percent.`\
+https://nytimes.com/2025/09/03/business/energy-environment/oil-layoffs-conocophillips.html
+
+**Trump Advisers Have Discussed a Job for Adams to Quit Mayor’s Race**\
+`The conversations are said to be part of an effort to clear the field for a one-on-one general election race between Andrew M. Cuomo and Zohran Mamdani.`\
+https://nytimes.com/2025/09/03/nyregion/trump-adams-sliwa-quit-nyc-mayor.html
+
 **U.S.'s Balogun has his chance to make a late first impression on Pochettino**\
 `Injuries have kept the talented striker out of the picture since before Mauricio Pochettino took charge of the USMNT`\
 https://nytimes.com/athletic/6595245/2025/09/03/folarin-balogun-usmnt-return-pochettino-world-cup/

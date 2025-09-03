@@ -1,3 +1,19 @@
+**Twins Turned This Ohio Town Into a Living Laboratory**\
+`Each year, twins from around the world converge on Twinsburg, Ohio in a boon for scientific researchers studying everything from taste buds to facial recognition technology.`\
+https://nytimes.com/card/2025/09/03/us/twinsburg-ohio-twins-day-festival-research
+
+**Arsenal name Max Dowman, 15, in Champions League squad**\
+`Arsenal have named their Champions League squad ahead of their opening match against Athletic Club on September 16.`\
+https://nytimes.com/athletic/6591433/2025/09/03/arsenal-champions-league-squad-dowman/
+
+**Spurs' UCL squad: Simons and Kolo Muani in, Tel and Bissouma out**\
+`Long-term injury absentees James Maddison, Dejan Kulusevski and Radu Dragusin have also been left out of the squad.`\
+https://nytimes.com/athletic/6591617/2025/09/03/tottenham-champions-league-squad-tel-bissouma/
+
+**The Biggest U.S. Oil Companies Are Eliminating Thousands of Jobs**\
+`ConocoPhillips of Houston on Wednesday announced plans to reduce its global work force by up to 25 percent.`\
+https://nytimes.com/2025/09/03/business/energy-environment/oil-layoffs-conocophillips.html
+
 **U.S.'s Balogun has his chance to make a late first impression on Pochettino**\
 `Injuries have kept the talented striker out of the picture since before Mauricio Pochettino took charge of the USMNT`\
 https://nytimes.com/athletic/6595245/2025/09/03/folarin-balogun-usmnt-return-pochettino-world-cup/
@@ -7,7 +23,7 @@ https://nytimes.com/athletic/6595245/2025/09/03/folarin-balogun-usmnt-return-poc
 https://nytimes.com/2025/09/03/arts/music/swedish-culture-ikea-abba.html
 
 **Trump Advisers Have Discussed a Job for Adams to Quit Mayor’s Race**\
-`The discussions are said to be part of an effort to clear the field for a one-on-one general election race between Andrew M. Cuomo and Zohran Mamdani.`\
+`The conversations are said to be part of an effort to clear the field for a one-on-one general election race between Andrew M. Cuomo and Zohran Mamdani.`\
 https://nytimes.com/2025/09/03/nyregion/trump-adams-sliwa-quit-nyc-mayor.html
 
 **Submit your questions for Kevin Fishbain's Week 1 Bears mailbag**\
@@ -21,20 +37,4 @@ https://nytimes.com/2025/09/03/world/do-you-have-questions-about-tariffs.html
 **Florida Says It Plans to End All Vaccine Mandates**\
 `The state would be the first to scrap requirements that children be vaccinated to attend school, among other rules.`\
 https://nytimes.com/2025/09/03/us/florida-says-it-plans-to-end-all-vaccine-mandates.html
-
-**FA confirms it won't appeal Paqueta verdict, is criticised by panel which heard case**\
-`In a 314-page judgment published on Wednesday, the three-person independent panel slammed the FA's approach to the case.`\
-https://nytimes.com/athletic/6595258/2025/09/03/lucas-paqueta-betting-fa/
-
-**Chicago Stars to play 2026 season at Northwestern's Martin Stadium**\
-`The NWSL side, who currently play in Bridgeview, have announced plans to move to the stadium in Evanston, Illinois, for the 2026 season`\
-https://nytimes.com/athletic/6594866/2025/09/03/chicago-stars-stadium-2026-new/
-
-**An Off Broadway Homecoming for Tarell Alvin McCraney and André Holland**\
-`“The Brothers Size” at the Shed is speaking to a new generation of audiences. “Unfortunately, parts of the plays are still relevant,” McCraney said.`\
-https://nytimes.com/2025/09/03/theater/tarell-alvin-mccraney-and-andre-holland-brothers-size.html
-
-**Roger Goodell says Taylor Swift a ‘maybe’ for Super Bowl LX halftime show**\
-`The NFL commissioner wouldn’t say whether a Swift Super Bowl appearance was in the works but didn’t deny the possibility when asked.`\
-https://nytimes.com/athletic/6595136/2025/09/03/taylor-swift-super-bowl-halftime-show-nfl-roger-goodell/
 
