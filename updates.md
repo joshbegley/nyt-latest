@@ -1,3 +1,11 @@
+**The New York Times in Print for Wednesday, Sep. 3, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/09/03/todays-new-york-times
+
+**The Door to Another African Democracy Is Closing**\
+`The conviction of the transitional prime minister in Chad is emblematic of how democracy is eroding across the Sahel region of Northern Africa.`\
+https://nytimes.com/2025/09/03/opinion/chad-africa-democracy-masra.html
+
 **Row Z: Newcastle’s tearful Isak tribute, Martinez hanging on the telephone, and Nuno’s quick maths**\
 `Welcome to Row Z, The Athletic’s column that shines a light on the bonkers side of the game
 `\
