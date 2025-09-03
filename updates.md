@@ -1,3 +1,7 @@
+**Where Should Taylor and Travis Go on their Honeymoon? We’ve Got Ideas.**\
+`Suggestions for a wedding trip fit for tabloid royalty, where price is no object and the farther they can get away, the better.`\
+https://nytimes.com/2025/09/03/travel/taylor-swift-travis-kelce-honeymoon.html
+
 **Deaths Reported After Lisbon Funicular Derails, Portugal’s President Says**\
 `The funicular line, one of three in Lisbon, is a popular tourist attraction.`\
 https://nytimes.com/2025/09/03/world/europe/lisbon-portugal-gloria-funicular-derail-crash.html
