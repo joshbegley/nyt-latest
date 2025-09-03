@@ -1,3 +1,15 @@
+**Mallorca suspend vice-captain Rodriguez after midfielder claims 'lack of respect' from club**\
+`The 37-year-old was left on the bench against Real Madrid on Saturday.`\
+https://nytimes.com/athletic/6594135/2025/09/03/dani-rodriguez-mallorca-suspension-la-liga/
+
+**Man Utd in talks over Park move amid Man City interest in Clinton**\
+`Both Park and Clinton were part of England's European Championship-winning squad this summer.`\
+https://nytimes.com/athletic/6594118/2025/09/03/park-clinton-manchester-united-manchester-city-women-transfer/
+
+**'In your life!': The U.S. Open classic that launched Carlos Alcaraz and Jannik Sinner's rivalry**\
+`The 2022 U.S. Open was the site of the match that launched the two best men's players in the world into the wider world.`\
+https://nytimes.com/athletic/6582611/2025/09/03/us-open-carlos-alcaraz-jannik-sinner-2022-latest-finish/
+
 **Behind the Numbers: How Hollywood Missed Its Mark This Summer**\
 `The movie industry had high hopes that box office sales would return to pre-pandemic levels. It didn’t come close.`\
 https://nytimes.com/interactive/2025/09/03/business/media/summer-box-office-movie-tickets-2025.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/09/03/realestate/475000-homes-new-york-ohio-kentucky.ht
 **5 Minutes That Will Make You Love Mal Waldron**\
 `The music of this pianist, who played with giants like Billie Holiday, Charles Mingus and John Coltrane, can feel mysterious and private, but it rewards deep listening. Explore these 11 songs.`\
 https://nytimes.com/2025/09/03/arts/music/mal-waldron-jazz-music.html
-
-**The Teachers Lurking in Your Garden: Hungry Rabbits and Ancient Insects**\
-`Tending to a garden provides a lifelong education in science and wonder, if you get in the dirt and look closely.`\
-https://nytimes.com/2025/09/03/realestate/garden-teacher-plants-animals-insects.html
-
-**How to Rethink A.I.**\
-`Building bigger A.I. isn’t leading to better A.I.`\
-https://nytimes.com/2025/09/03/opinion/ai-gpt5-rethinking.html
-
-**On Driverless Cars, New York Should Remember the Lessons From Uber**\
-`The city embraced new technology without much thought to the consequences — and regretted it.`\
-https://nytimes.com/2025/09/03/opinion/waymo-uber-new-york.html
 

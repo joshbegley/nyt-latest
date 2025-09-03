@@ -1,3 +1,15 @@
+**Mallorca suspend vice-captain Rodriguez after midfielder claims 'lack of respect' from club**\
+`The 37-year-old was left on the bench against Real Madrid on Saturday.`\
+https://nytimes.com/athletic/6594135/2025/09/03/dani-rodriguez-mallorca-suspension-la-liga/
+
+**Man Utd in talks over Park move amid Man City interest in Clinton**\
+`Both Park and Clinton were part of England's European Championship-winning squad this summer.`\
+https://nytimes.com/athletic/6594118/2025/09/03/park-clinton-manchester-united-manchester-city-women-transfer/
+
+**'In your life!': The U.S. Open classic that launched Carlos Alcaraz and Jannik Sinner's rivalry**\
+`The 2022 U.S. Open was the site of the match that launched the two best men's players in the world into the wider world.`\
+https://nytimes.com/athletic/6582611/2025/09/03/us-open-carlos-alcaraz-jannik-sinner-2022-latest-finish/
+
 **Behind the Numbers: How Hollywood Missed Its Mark This Summer**\
 `The movie industry had high hopes that box office sales would return to pre-pandemic levels. It didn’t come close.`\
 https://nytimes.com/interactive/2025/09/03/business/media/summer-box-office-movie-tickets-2025.html
