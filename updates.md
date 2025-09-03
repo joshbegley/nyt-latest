@@ -1,4 +1,8 @@
 **Federal Appeals Court Reinstates an F.T.C. Commissioner Fired by Trump**\
+`The court said the commissioner, Rebecca Kelly Slaughter, had been illegally terminated “without cause.”`\
+https://nytimes.com/2025/09/02/us/politics/ftc-commissioner-slaughter-trump.html
+
+**Federal Appeals Court Reinstates an F.T.C. Commissioner Fired by Trump**\
 `The court said the commissioner, Rebecca Kelly Slaughter, had been illegally terminated without cause.`\
 https://nytimes.com/2025/09/02/us/politics/ftc-commissioner-slaughter-trump.html
 
