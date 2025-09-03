@@ -1,3 +1,19 @@
+**What I'm seeing from the Chiefs: Patrick Mahomes going deep, defense in a rush**\
+`Why you should take Mahomes at his word about the passing game this season, plus why the defense could take down more QBs this season.`\
+https://nytimes.com/athletic/6587441/2025/09/03/kansas-city-chiefs-preview-patrick-mahomes/
+
+**How George Pickens has fit in with Cowboys: 'It's only gotten better and better and better'**\
+`Pickens arrived in Dallas with attitude concerns, but he's been a model teammate and could be the key to a big offensive season.`\
+https://nytimes.com/athletic/6593410/2025/09/03/cowboys-george-pickens-offense-big-season/
+
+**If Bears CB Jaylon Johnson isn't ready, can Nahshon Wright step up?**\
+`Will Johnson be active when Chicago takes the stage Monday night against Minnesota? If not, how can Wright fill that big secondary void?`\
+https://nytimes.com/athletic/6592911/2025/09/03/bears-cornerbacks-jaylon-johnson-nahshon-wright/
+
+**Tom Brady Year 2, YouTube Year 1 and the biggest NFL media storylines for the 2025 season**\
+`The Athletic's media reporters tackle the biggest media storylines of the new NFL season.`\
+https://nytimes.com/athletic/6592165/2025/09/03/nfl-tom-brady-youtube-netflix-2025-preview/
+
 **The Vikings focused their offseason on improving in the trenches. Will Fries is the answer**\
 `The free-agent guard is a "monster" who brings nastiness and snarl to an interior of the offensive line in need of both.`\
 https://nytimes.com/athletic/6592829/2025/09/03/will-fries-minnesota-vikings-guard-offensive-line/
