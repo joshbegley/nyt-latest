@@ -1,3 +1,7 @@
+**China Projects Power at Parade With Putin and Kim**\
+`President Xi Jinping of China oversaw the country’s ambitious display of military power and diplomatic influence during a parade attended by the leaders of Russia and North Korea.`\
+https://nytimes.com/video/world/asia/100000010375223/xi-putin-kim-parade.html
+
 **Stephen Colbert Starts the Final ‘Late Show’ Season With a Toast**\
 `John Oliver joined Colbert for the Season 11 premiere (and a little champagne). “The Real Housewives of Salt Lake City” came up.`\
 https://nytimes.com/2025/09/03/arts/television/colbert-late-show-final-season.html
