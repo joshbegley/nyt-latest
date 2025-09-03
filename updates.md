@@ -1,3 +1,11 @@
+**How to watch Yankees at Astros: Time, TV, streaming**\
+`Find out how to watch the New York Yankees play the Houston Astros, with time, TV channel, and streaming information.`\
+https://nytimes.com/athletic/6594056/2025/09/03/new-york-yankees-vs-houston-astros-stream-how-to-watch-sept-3/
+
+**How to watch Athletics at Cardinals: Time, TV, streaming**\
+`Find out how to watch the Athletics play the St. Louis Cardinals, with time, TV channel, and streaming information.`\
+https://nytimes.com/athletic/6594053/2025/09/03/athletics-vs-st-louis-cardinals-stream-how-to-watch-sept-3/
+
 **Word of the Day: amalgamate**\
 `This word has appeared in three articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2025/09/03/learning/word-of-the-day-amalgamate.html

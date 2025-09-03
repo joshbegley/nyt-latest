@@ -1,3 +1,11 @@
+**How to watch Yankees at Astros: Time, TV, streaming**\
+`Find out how to watch the New York Yankees play the Houston Astros, with time, TV channel, and streaming information.`\
+https://nytimes.com/athletic/6594056/2025/09/03/new-york-yankees-vs-houston-astros-stream-how-to-watch-sept-3/
+
+**How to watch Athletics at Cardinals: Time, TV, streaming**\
+`Find out how to watch the Athletics play the St. Louis Cardinals, with time, TV channel, and streaming information.`\
+https://nytimes.com/athletic/6594053/2025/09/03/athletics-vs-st-louis-cardinals-stream-how-to-watch-sept-3/
+
 **Word of the Day: amalgamate**\
 `This word has appeared in three articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2025/09/03/learning/word-of-the-day-amalgamate.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/09/03/world/asia/china-military-parade.html
 **Putin’s Propaganda War**\
 `Russian authorities are using a festival to showcase Moscow as a place where life is better than in the West.`\
 https://nytimes.com/2025/09/03/briefing/putin-propaganda-china-military-parade.html
-
-**Brighton's 2025 summer transfer window review: Another big sale but are they now underpowered?**\
-`The club stuck to their usual model by parting with Joao Pedro for big money but there was no direct replacement signed`\
-https://nytimes.com/athletic/6566586/2025/09/03/brighton-summer-transfer-window-review/
-
-**Crystal Palace 2025 summer transfer window review: Final day chaos, but Guehi stays**\
-`Matt Woosnam analyses Crystal Palace's summer transfer window, which became chaotic in the final hours`\
-https://nytimes.com/athletic/6588244/2025/09/03/crystal-palace-2025-summer-transfer-window-guehi-stays-eze-goes/
 
