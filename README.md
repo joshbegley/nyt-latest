@@ -1,3 +1,19 @@
+**Kate Scott to become first woman to call NFL game for Westwood One**\
+`Scott currently does play-by-play for the 76ers and calls soccer for Fox and CBS Sports.`\
+https://nytimes.com/athletic/6595336/2025/09/03/kate-scott-first-woman-call-nfl-game-westwood-one/
+
+**'Hard Knocks' is a wrap: Buffalo Bills survive without revealing much**\
+`Many potentially interesting subjects were left unexplored during the miniseries.`\
+https://nytimes.com/athletic/6595443/2025/09/03/hard-knocks-buffalo-bills-finale/
+
+**100 Years Ago, Fictional Londoners Looked Up. They Saw Our Present Day.**\
+`Our critic A.O. Scott takes apart a scene from “Mrs. Dalloway,” Virginia Woolf’s 1925 masterpiece, and shows why the book is a must-read now.`\
+https://nytimes.com/interactive/2025/09/03/books/virginia-woolf-mrs-dalloway-100-years-modernism.html
+
+**USA Hockey announces 2025 Hall of Fame class**\
+`The class also includes Olympic gold medalist Tara Mounsey and photographer Bruce Bennett.`\
+https://nytimes.com/athletic/6595450/2025/09/03/usa-hockey-hall-of-fame-2025-class/
+
 **F.D.A. Official Overruled Scientists on Wide Access to Covid Shots**\
 `The agency’s staff scientists pointed out how Covid was still unpredictable and posed a threat to toddlers, but the official decided to restrict shots only to children with risk factors.`\
 https://nytimes.com/2025/09/03/health/fda-covid-vaccines-rfk-jr.html
@@ -21,20 +37,4 @@ https://nytimes.com/2025/09/03/technology/amazon-prime-invitee-free-shipping.htm
 **Buonanotte left out of Chelsea's Champions League squad**\
 `Other summer signings, such as Joao Pedro and Alejandro Garnacho, have been registered.`\
 https://nytimes.com/athletic/6592380/2025/09/03/chelsea-champions-league-squad-buonanotte/
-
-**Scoop City: Seven predictions for 2025**\
-`Seven predictions for 2025, including my Super Bowl pick. Plus: Mike Sando explains why Dallas is the league's most underrated team.`\
-https://nytimes.com/athletic/6595376/2025/09/03/predictions-nfl-2025-ravens-packers-cowboys/
-
-**Why Fewer Voters Register as Democrats**\
-`Readers offer analysis and advice about the Democrats’ plight. Also: An Israeli’s heroism.`\
-https://nytimes.com/2025/09/03/opinion/democrats-voters.html
-
-**Report: Kawhi Leonard, Clippers used endorsement deal to 'circumvent' salary cap**\
-`The deal involved Leonard earning $28 million from a now-bankrupt environmental company partly funded by the Clippers and Steve Ballmer.`\
-https://nytimes.com/athletic/6595033/2025/09/03/kawhi-leonard-clippers-salary-cap-circumvention-accusations-aspiration/
-
-**Twins Turned This Ohio Town Into a Living Laboratory**\
-`Each year, twins from around the world converge on Twinsburg, Ohio in a boon for scientific researchers studying everything from taste buds to facial recognition technology.`\
-https://nytimes.com/card/2025/09/03/us/twinsburg-ohio-twins-day-festival-research
 
