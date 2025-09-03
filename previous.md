@@ -1,3 +1,11 @@
+**Giants quick to defend Rafael Devers as benches clear: 'We're a very united team'**\
+`"You never really want to see that stuff, I guess, in most people's eyes. But I think it's sometimes a firestarter in a good way."`\
+https://nytimes.com/athletic/6594022/2025/09/03/sf-giants-rockies-benches-clear-rafael-devers-united-team/
+
+**Inside Isak's move to Liverpool, the summer's most toxic transfer**\
+`The forward’s decision to effectively go on strike may have torched his Newcastle legacy, but it ultimately led to his sale to Liverpool`\
+https://nytimes.com/athletic/6591674/2025/09/03/alexander-isak-liverpool-newcastle-transfer-inside-deal/
+
 **Wildfire Destroys Buildings in Gold Rush Town of Chinese Camp**\
 `Fires, likely sparked by lightning strikes that hit California early Tuesday, razed over 9,000 acres in the foothills of the Sierra Nevada Mountains, officials said.`\
 https://nytimes.com/2025/09/03/us/wildfire-chinese-camp-california.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6593992/2025/09/03/astros-framber-valdez-cesar-sala
 **Fourteen Years After Japan’s Nuclear Disaster, People With Cancer Seek Answers**\
 `A survey has found hundreds of thyroid tumors, but Japanese officials say they are unrelated to the Fukushima meltdowns. Now they face a lawsuit.`\
 https://nytimes.com/2025/09/03/world/asia/japan-fukushima-nuclear-cancer.html
-
-**The New York Times in Print for Wednesday, Sep. 3, 2025**\
-``\
-https://nytimes.com/issue/todayspaper/2025/09/03/todays-new-york-times
-
-**The Door to Another African Democracy Is Closing**\
-`The conviction of the transitional prime minister in Chad is emblematic of how democracy is eroding across the Sahel region of Northern Africa.`\
-https://nytimes.com/2025/09/03/opinion/chad-africa-democracy-masra.html
 

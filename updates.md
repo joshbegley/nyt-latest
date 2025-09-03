@@ -1,3 +1,11 @@
+**Giants quick to defend Rafael Devers as benches clear: 'We're a very united team'**\
+`"You never really want to see that stuff, I guess, in most people's eyes. But I think it's sometimes a firestarter in a good way."`\
+https://nytimes.com/athletic/6594022/2025/09/03/sf-giants-rockies-benches-clear-rafael-devers-united-team/
+
+**Inside Isak's move to Liverpool, the summer's most toxic transfer**\
+`The forward’s decision to effectively go on strike may have torched his Newcastle legacy, but it ultimately led to his sale to Liverpool`\
+https://nytimes.com/athletic/6591674/2025/09/03/alexander-isak-liverpool-newcastle-transfer-inside-deal/
+
 **Wildfire Destroys Buildings in Gold Rush Town of Chinese Camp**\
 `Fires, likely sparked by lightning strikes that hit California early Tuesday, razed over 9,000 acres in the foothills of the Sierra Nevada Mountains, officials said.`\
 https://nytimes.com/2025/09/03/us/wildfire-chinese-camp-california.html
