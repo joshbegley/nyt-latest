@@ -1,3 +1,7 @@
+**Word of the Day: amalgamate**\
+`This word has appeared in three articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2025/09/03/learning/word-of-the-day-amalgamate.html
+
 **Appeals Court Blocks Trump’s Use of Alien Enemies Act to Deport Venezuelans**\
 `The ruling was a setback for the Trump administration on the mass deportation of immigrants, one of its domestic policy goals.`\
 https://nytimes.com/2025/09/03/us/politics/trump-alien-enemies-act-court.html

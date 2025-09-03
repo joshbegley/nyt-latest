@@ -1,3 +1,7 @@
+**Word of the Day: amalgamate**\
+`This word has appeared in three articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2025/09/03/learning/word-of-the-day-amalgamate.html
+
 **Appeals Court Blocks Trump’s Use of Alien Enemies Act to Deport Venezuelans**\
 `The ruling was a setback for the Trump administration on the mass deportation of immigrants, one of its domestic policy goals.`\
 https://nytimes.com/2025/09/03/us/politics/trump-alien-enemies-act-court.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6566586/2025/09/03/brighton-summer-transfer-window-
 **Crystal Palace 2025 summer transfer window review: Final day chaos, but Guehi stays**\
 `Matt Woosnam analyses Crystal Palace's summer transfer window, which became chaotic in the final hours`\
 https://nytimes.com/athletic/6588244/2025/09/03/crystal-palace-2025-summer-transfer-window-guehi-stays-eze-goes/
-
-**Amorim's options: Picking Man United's strongest XI now the window has closed**\
-`Problems remain, but the reworked 2025-26 United has more of the characteristics necessary for Amorim's football`\
-https://nytimes.com/athletic/6583792/2025/09/03/manchester-united-ruben-amorim-starting-xi/
 
