@@ -1,3 +1,7 @@
+**Read the Court Ruling on Trump’s Use of the Alien Enemies Act**\
+`The ruling was a setback for the Trump administration on the mass deportation of immigrants, one of its domestic policy goals.`\
+https://nytimes.com/interactive/2025/09/03/us/politics/court-ruling-venezuelan-migrants.html
+
 **How to watch Yankees at Astros: Time, TV, streaming**\
 `Find out how to watch the New York Yankees play the Houston Astros, with time, TV channel, and streaming information.`\
 https://nytimes.com/athletic/6594056/2025/09/03/new-york-yankees-vs-houston-astros-stream-how-to-watch-sept-3/

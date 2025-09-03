@@ -1,3 +1,7 @@
+**Read the Court Ruling on Trump’s Use of the Alien Enemies Act**\
+`The ruling was a setback for the Trump administration on the mass deportation of immigrants, one of its domestic policy goals.`\
+https://nytimes.com/interactive/2025/09/03/us/politics/court-ruling-venezuelan-migrants.html
+
 **How to watch Yankees at Astros: Time, TV, streaming**\
 `Find out how to watch the New York Yankees play the Houston Astros, with time, TV channel, and streaming information.`\
 https://nytimes.com/athletic/6594056/2025/09/03/new-york-yankees-vs-houston-astros-stream-how-to-watch-sept-3/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/03/opinion/chad-africa-democracy-masra.html
 **China’s Military Spectacle**\
 `China used a parade of fighter jets, missiles and goose-stepping troops to honor the country’s wartime sacrifice and issue a defiant warning to rivals.`\
 https://nytimes.com/2025/09/03/world/asia/china-military-parade.html
-
-**Putin’s Propaganda War**\
-`Russian authorities are using a festival to showcase Moscow as a place where life is better than in the West.`\
-https://nytimes.com/2025/09/03/briefing/putin-propaganda-china-military-parade.html
 
