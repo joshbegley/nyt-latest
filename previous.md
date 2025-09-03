@@ -1,3 +1,27 @@
+**The Odd Couple Keeping Epstein in the Headlines**\
+`A Kentucky Republican and a California Democrat have joined forces, but the task is getting taller.`\
+https://nytimes.com/2025/09/03/us/politics/epstein-files-massie-khanna.html
+
+**Texas-Ohio State is most-watched Week 1 college football game on record**\
+`The Buckeyes’ 14-7 victory at the Horseshoe peaked at 18.6 million viewers from 3:15 to 3:30 p.m. ET.`\
+https://nytimes.com/athletic/6596312/2025/09/03/texas-ohio-state-fox-viewership-week-1-record/
+
+**Isaac Paredes making progress in rehab, but a return this season remains in flux**\
+`HOUSTON — On the day he resumed baseball activities, Isaac Paredes stopped at an unfamiliar position.`\
+https://nytimes.com/athletic/6596165/2025/09/03/isaac-paredes-astros-hamstring-return-timetable/
+
+**What Is College Like for You?**\
+`Higher education is in flux, and students are adjusting to a lot of changes.`\
+https://nytimes.com/2025/09/03/us/colleges-campuses-callout.html
+
+**G.O.P. Thwarts Epstein Disclosure Bill as Accusers Plead for Files**\
+`Jeffrey Epstein’s accusers went to the Capitol to ask Congress to get behind their calls for more disclosures, but momentum for a bill demanding it appeared to stall.`\
+https://nytimes.com/2025/09/03/us/politics/epstein-bill-republicans-trump.html
+
+**NWSL teams embrace developmental opportunities for youth internationals**\
+`A pair of England youth players joined NWSL this summer. The moves add to a pattern on younger players looking to grow.`\
+https://nytimes.com/athletic/6596047/2025/09/03/nwsl-youth-development-transfers/
+
 **Rosalyn Drexler, a Modern-Day Renaissance Woman, Dies at 98**\
 `She wrote plays, novels and an Emmy-winning Lily Tomlin special. She was a painter, a sculptor and a nightclub singer. Oh, and she also wrestled professionally.`\
 https://nytimes.com/2025/09/03/books/rosalyn-drexler-dead.html
@@ -13,28 +37,4 @@ https://nytimes.com/2025/09/03/health/rfk-jr-acip-vaccine-members.html
 **Florida Plans to End All Vaccine Mandates**\
 `Plus, a legal victory for Harvard. Here’s the latest at the end of Wednesday.`\
 https://nytimes.com/2025/09/03/briefing/florida-vaccines-harvard.html
-
-**Roman Anthony placed on IL with oblique strain. How will the Red Sox replace him?**\
-`Anthony may miss the rest of the regular season and Boston is suddenly light on outfielders.`\
-https://nytimes.com/athletic/6595863/2025/09/03/roman-anthony-red-sox-injured-list-oblique-strain/
-
-**Patrick Hemingway, Ernest’s Devoted Second Son, Is Dead at 97**\
-`Inspired by his parents’ travels, he spent much of his life in Africa and helped complete his father’s safari memoir. He also published a volume of father-son letters.`\
-https://nytimes.com/2025/09/03/books/patrick-hemingway-dead.html
-
-**Amanda Anisimova beats Iga Świątek at U.S. Open in Wimbledon final rematch**\
-`Anisimova recovered from her 6-0, 6-0 defeat to Świątek at Wimbledon to reach the last four in New York.`\
-https://nytimes.com/athletic/6596220/2025/09/03/amanda-anisimova-iga-swiatek-us-open-result-analysis/
-
-**Hot Mic Catches Presidents Putin and Xi Discussing Immortality**\
-`Footage from Chinese state media caught President Vladimir V. Putin of Russia and President Xi Jinping of China talking about the possibility of living forever, during a military parade in Beijing on Wednesday.`\
-https://nytimes.com/video/world/asia/100000010377007/putin-xi-discuss-living-forever.html
-
-**Why the E.U. Is Banning Some Gel Nail Polish**\
-`Starting this week, gel polishes that contain a key chemical ingredient can no longer be used in the bloc’s 27 member countries.`\
-https://nytimes.com/2025/09/03/world/europe/gel-nail-polish-ban-eu.html
-
-**A New York Restaurant With a Californian ‘Aura’**\
-`Plus: Sofia Coppola collaborates on a striped shirt, English-made cutlery and more recommendations from T Magazine.`\
-https://nytimes.com/2025/09/03/t-magazine/flynn-mcgarry-cove.html
 
