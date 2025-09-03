@@ -1,3 +1,7 @@
+**An Off Broadway Homecoming for Tarell Alvin McCraney and André Holland**\
+`“The Brothers Size” at the Shed is speaking to a new generation of audiences. “Unfortunately, parts of the plays are still relevant,” McCraney said.`\
+https://nytimes.com/2025/09/03/theater/tarell-alvin-mccraney-and-andre-holland-brothers-size.html
+
 **Roger Goodell: Taylor Swift a 'maybe' for Super Bowl LX halftime show**\
 `Goodell wouldn’t say whether a Swift Super Bowl appearance was already in the works, he didn’t deny the possibility when asked.`\
 https://nytimes.com/athletic/6595136/2025/09/03/taylor-swift-super-bowl-halftime-show-nfl-roger-goodell/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/03/climate/trump-administration-offshore-wind.html
 **Is Venezuela Flooding the U.S. With Drugs? Here’s What to Know.**\
 `The Trump administration says Venezuela is sending vast amounts of cocaine to the United States. Venezuela’s role in the drug trade is overstated, experts say.`\
 https://nytimes.com/2025/09/03/world/americas/venezuela-drug-boat-trump-us.html
-
-**Two-time IndyCar champ Will Power and Team Penske will part ways**\
-`“We have accomplished so much together, and I will always be grateful for my time with the team," Power said.`\
-https://nytimes.com/athletic/6594980/2025/09/03/will-power-penske-indycar-part-ways/
 
