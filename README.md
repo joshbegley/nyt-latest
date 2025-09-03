@@ -1,3 +1,15 @@
+**Did Google Just Get Spared? Investors Think So.**\
+`The nuclear option for addressing the tech giant’s search dominance — a break-up — is off the table. That’s lifting Big Tech stocks.`\
+https://nytimes.com/2025/09/03/business/dealbook/google-search-antitrust-breakup.html
+
+**China’s Latest Missiles, Drones and Submarines, Up Close**\
+`At its military parade on Wednesday, China showcased hypersonic missiles to sink ships, drones that serve as wingmen and nuclear-capable ballistic missiles that can strike the continental United States.`\
+https://nytimes.com/interactive/2025/09/03/world/asia/china-military-parade-weapons.html
+
+**Alex Morgan’s Togethxr and London City Lionesses announce jersey partnership**\
+`London City will debut the shirts on Sept. 6 in their opening WSL match against Arsenal at the Emirates.`\
+https://nytimes.com/athletic/6594153/2025/09/03/london-city-lionesses-alex-morgan-everybody-watches-womens-sports-partnership-togethxr/
+
 **State of the Wild: With franchise-altering decision looming, can youth push them to a new level?**\
 `Where do the WIld stand heading into 2025-26? Here's a 360-degree look at the state of the franchise with training camp approaching.`\
 https://nytimes.com/athletic/6580331/2025/09/03/wild-preseason-kaprizov-faber-guerin/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6592765/2025/09/03/broncos-dre-greenlaw-jk-dobbins-
 **What I'm seeing from the Chargers: Derwin James' defined role, refreshed running game**\
 `The running game didn't live up to the standards for a Jim Harbaugh-Greg Roman team in 2024. Can Omarion Hampton elevate the attack? `\
 https://nytimes.com/athletic/6593366/2025/09/03/los-angeles-chargers-preview-observations/
-
-**How to watch the San Francisco 49ers in 2025: Schedule, streaming for Purdy, CMC & Co.**\
-`With NFL streams and broadcasts changing yet again, here's how to watch all 17 regular-season San Francisco 49ers games in 2025.`\
-https://nytimes.com/athletic/6531039/2025/09/03/san-francisco-49ers-how-to-watch-2025-purdy-cmc/
-
-**What I'm seeing from the Las Vegas Raiders: Geno Smith primed for a bounce-back year**\
-`Plus, what Ashton Jeanty needs, and trouble spots on defense.`\
-https://nytimes.com/athletic/6590326/2025/09/03/las-vegas-raiders-season-preview/
-
-**Alien: Earth’ Episode 5 Recap: Ghost Ship**\
-`This week’s episode recounted the days that led to the Maginot’s crash on Earth.`\
-https://nytimes.com/2025/09/03/arts/television/alien-earth-episode-5-recap.html
 
