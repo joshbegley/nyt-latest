@@ -1,3 +1,7 @@
+**Oilers GM Stan Bowman not rushing Connor McDavid talks: 'When he’s ready, he’s ready'**\
+`Bowman says there have been "constructive conversations" on an extension but McDavid "has earned the right not to be forced into anything."`\
+https://nytimes.com/athletic/6594667/2025/09/03/connor-mcdavid-extension-oilers-stan-bowman/
+
 **Former Smithsonian Museum Director Heads to Milwaukee**\
 `Kim Sajet, who stepped down as director of the National Portrait Gallery after President Trump said he was firing her, is becoming director of the Milwaukee Art Museum.`\
 https://nytimes.com/2025/09/03/arts/design/kim-sajet-smithsonian-museum-director-milwaukee.html

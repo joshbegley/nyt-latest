@@ -1,3 +1,7 @@
+**Hegseth Says Boat Strike Is Start of Campaign Against Venezuelan Cartels**\
+`The Defense Secretary and President Trump said a small boat was carrying drugs but offered little evidence and few details.`\
+https://nytimes.com/2025/09/03/us/politics/hegseth-venezuela-drug-strike.html
+
 **Oilers GM Stan Bowman not rushing Connor McDavid talks: 'When he’s ready, he’s ready'**\
 `Bowman says there have been "constructive conversations" on an extension but McDavid "has earned the right not to be forced into anything."`\
 https://nytimes.com/athletic/6594667/2025/09/03/connor-mcdavid-extension-oilers-stan-bowman/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6591291/2025/09/03/arizona-cardinals-how-to-watch-2
 **Full Time: Alex Morgan’s latest buzzy partnership**\
 `Welcome to Full Time, The Athletic's women's soccer newsletter.`\
 https://nytimes.com/athletic/6593917/2025/09/03/alex-morgan-lionesses-jersey-full-time/
-
-**Richard Petty on NASCAR's evolution, the playoff format and overcoming loss: 12 Questions**\
-`The NASCAR legend talks about his dislike for the current playoff system, how NASCAR has changed over the years, and much more.`\
-https://nytimes.com/athletic/6591777/2025/09/03/richard-petty-nascar-playoff-format-criticism-12-questions/
 
