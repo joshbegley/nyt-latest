@@ -1,3 +1,11 @@
+**Full Time: Alex Morgan’s latest buzzy partnership**\
+`Welcome to Full Time, The Athletic's women's soccer newsletter.`\
+https://nytimes.com/athletic/6593917/2025/09/03/alex-morgan-lionesses-jersey-full-time/
+
+**Richard Petty on NASCAR's evolution, the playoff format and overcoming loss: 12 Questions**\
+`The NASCAR legend talks about his dislike for the current playoff system, how NASCAR has changed over the years, and much more.`\
+https://nytimes.com/athletic/6591777/2025/09/03/richard-petty-nascar-playoff-format-criticism-12-questions/
+
 **What Would You Write in a Letter to Your Future Self?**\
 `A Times newsletter recommends writing a letter to future you.`\
 https://nytimes.com/2025/09/03/learning/what-would-you-write-in-a-letter-to-your-future-self.html
