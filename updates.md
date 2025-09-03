@@ -1,3 +1,7 @@
+**Dodgers' Teoscar Hernández searches for 'edge' as he tries to right ship on season**\
+`Struggling outfielder has become the avatar for the Los Angeles Dodgers' inconsistency in recent months.`\
+https://nytimes.com/athletic/6593773/2025/09/02/teoscar-hernandez-dodgers-struggles/
+
 **Red Sox rookie Roman Anthony headed for MRI after exit with oblique tightness**\
 `Anthony said he’s never dealt with oblique issues before and felt it for the first time in his at-bat.`\
 https://nytimes.com/athletic/6593756/2025/09/02/boston-red-sox-roman-anthony-injury/
