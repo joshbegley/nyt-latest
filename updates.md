@@ -1,3 +1,19 @@
+**Sabres mailbag: Submit your questions to Matthew Fairburn**\
+`Have questions about the Sabres as training camp and preseason approach?`\
+https://nytimes.com/athletic/6594890/2025/09/03/buffalo-sabres-mailbag-september-2025/
+
+**The Met Opera Turns to Saudi Arabia to Help Solve Its Financial Woes**\
+`The Met, which has withdrawn $120 million from its endowment since the pandemic, reached a lucrative deal to perform in Saudi Arabia for three weeks each winter.`\
+https://nytimes.com/2025/09/03/arts/music/met-opera-saudi-arabia-finances.html
+
+**Tonight’s Dinner Could Be a Best-in-Class Shrimp Curry**\
+`Plus, some recommendations for using all that summer zucchini and a make-ahead breakfast for the ages.`\
+https://nytimes.com/2025/09/03/dining/tonights-dinner-could-be-a-best-in-class-shrimp-curry.html
+
+**How U.S.A. basketball rebuilt after a disastrous 2004 Olympics and made history**\
+`The iconic "Redeem Team" headlined by Kobe Bryant, LeBron James and Dwyane Wade will be inducted into the Hall of Fame Saturday.`\
+https://nytimes.com/athletic/6592412/2025/09/03/usa-basketball-2008-olympics-redeem-team-hall-of-fame/
+
 **Habits to Remain Injury-Free, According to Physical Therapists**\
 `Experts see a lot of people who might have avoided their aches and pains. Here are a few of their favorite tips.`\
 https://nytimes.com/2025/09/03/well/move/physical-therapists-advice-pain.html
