@@ -1,3 +1,19 @@
+**Wild owner Craig Leipold optimistic on a Kirill Kaprizov deal: 'I kind of think we're there'**\
+`Leipold says he's anxious for talks to resume when Kaprizov arrives from Russia. "I think we’ll move quickly after that.”`\
+https://nytimes.com/athletic/6595567/2025/09/03/wild-kirill-kaprizov-extension-craig-leipold/
+
+**Dave Portnoy, Barstool Sports discussing partnership with Big 12**\
+`The Big 12 has not shied away from opportunities to differentiate itself from other NCAA conferences. `\
+https://nytimes.com/athletic/6595571/2025/09/03/barstool-sports-dave-portnoy-big-12-partnership/
+
+**Trump’s Pick for the Fed Says He Will Uphold the Central Bank’s Independence**\
+`Stephen Miran is scheduled to face members of the Senate Banking Committee on Thursday as the administration steps up its attacks on the Federal Reserve.`\
+https://nytimes.com/2025/09/03/business/stephen-miran-trump-fed-remarks.html
+
+**NFL Week 1 confidence picks: Why the Raiders are a strong upset pick**\
+`Playing in a Confidence Pool with your buddies and looking for advice? KC Joyner has you covered with his first edition of confidence picks.`\
+https://nytimes.com/athletic/6594689/2025/09/03/nfl-week-1-confidence-picks/
+
 **Sure, Rats Are Everywhere. But Inside a Baby Stroller in Central Park?**\
 `City data actually suggest that rat sightings are declining. But horror stories are everywhere, and one rat in a stroller is enough to set off a panic.`\
 https://nytimes.com/2025/09/03/nyregion/central-park-playgrounds-rats.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6592449/2025/09/03/sf-giants-home-run-power-project
 **In a Hot Mic Moment, Xi and Putin Muse About Living Forever**\
 `Medical advances and geopolitics collide for two septuagenarian leaders who have suggested that their time in office is far from over.`\
 https://nytimes.com/2025/09/03/world/europe/putin-xi-immortality-organ-transplants.html
-
-**Chelsea's Ramirez undergoes hamstring surgery**\
-`Sonia Bompastor's team begin their WSL title defence at Stamford Bridge against Manchester City on Friday night.`\
-https://nytimes.com/athletic/6595523/2025/09/03/mayra-ramirez-injury-chelsea/
-
-**Kate Scott to become first woman to call NFL game for Westwood One**\
-`Scott currently does play-by-play for the 76ers and calls soccer for Fox and CBS Sports.`\
-https://nytimes.com/athletic/6595336/2025/09/03/kate-scott-first-woman-call-nfl-game-westwood-one/
-
-**'Hard Knocks' is a wrap: Bills survive without revealing much**\
-`Many potentially interesting subjects were left unexplored during the miniseries.`\
-https://nytimes.com/athletic/6595443/2025/09/03/hard-knocks-buffalo-bills-finale/
-
-**100 Years Ago, Fictional Londoners Looked Up. They Saw Our Present Day.**\
-`Our critic A.O. Scott takes apart a scene from “Mrs. Dalloway,” Virginia Woolf’s 1925 masterpiece, and shows why the book is a must-read now.`\
-https://nytimes.com/interactive/2025/09/03/books/virginia-woolf-mrs-dalloway-100-years-modernism.html
 

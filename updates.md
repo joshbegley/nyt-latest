@@ -1,3 +1,19 @@
+**Wild owner Craig Leipold optimistic on a Kirill Kaprizov deal: 'I kind of think we're there'**\
+`Leipold says he's anxious for talks to resume when Kaprizov arrives from Russia. "I think we’ll move quickly after that.”`\
+https://nytimes.com/athletic/6595567/2025/09/03/wild-kirill-kaprizov-extension-craig-leipold/
+
+**Dave Portnoy, Barstool Sports discussing partnership with Big 12**\
+`The Big 12 has not shied away from opportunities to differentiate itself from other NCAA conferences. `\
+https://nytimes.com/athletic/6595571/2025/09/03/barstool-sports-dave-portnoy-big-12-partnership/
+
+**Trump’s Pick for the Fed Says He Will Uphold the Central Bank’s Independence**\
+`Stephen Miran is scheduled to face members of the Senate Banking Committee on Thursday as the administration steps up its attacks on the Federal Reserve.`\
+https://nytimes.com/2025/09/03/business/stephen-miran-trump-fed-remarks.html
+
+**NFL Week 1 confidence picks: Why the Raiders are a strong upset pick**\
+`Playing in a Confidence Pool with your buddies and looking for advice? KC Joyner has you covered with his first edition of confidence picks.`\
+https://nytimes.com/athletic/6594689/2025/09/03/nfl-week-1-confidence-picks/
+
 **Sure, Rats Are Everywhere. But Inside a Baby Stroller in Central Park?**\
 `City data actually suggest that rat sightings are declining. But horror stories are everywhere, and one rat in a stroller is enough to set off a panic.`\
 https://nytimes.com/2025/09/03/nyregion/central-park-playgrounds-rats.html
