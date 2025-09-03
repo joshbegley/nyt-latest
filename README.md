@@ -1,3 +1,7 @@
+**Benches clear, punches thrown in Giants-Rockies matchup after Rafael Devers homer**\
+`In the end, Devers moved from first base to make his Giants debut as a third baseman — a position he hadn't played all season.`\
+https://nytimes.com/athletic/6593685/2025/09/02/giants-rockies-brawl-ejections/
+
 **North Carolina Man Had at Least 3 Wives at the Same Time, Police Say**\
 `Money was the motivation, according to the authorities, who charged Harry Irvine Burdick Jr. with two counts of felony bigamy. There may be other victims, they said.`\
 https://nytimes.com/2025/09/02/us/bigamy-marriages-north-carolina.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6593533/2025/09/02/atlanta-braves-vs-chicago-cubs-s
 **How to watch White Sox at Twins: Time, TV, streaming**\
 `Find out how to watch the Chicago White Sox play the Minnesota Twins, with time, TV channel, and streaming information.`\
 https://nytimes.com/athletic/6593531/2025/09/02/chicago-white-sox-vs-minnesota-twins-stream-how-to-watch-sept-3/
-
-**How to watch Guardians at Red Sox: Time, TV, streaming**\
-`Find out how to watch the Cleveland Guardians play the Boston Red Sox, with time, TV channel, and streaming information.`\
-https://nytimes.com/athletic/6593529/2025/09/02/cleveland-guardians-vs-boston-red-sox-stream-how-to-watch-sept-3/
 
