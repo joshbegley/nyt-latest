@@ -1,3 +1,7 @@
+**Josh Allen is everything to the Buffalo Bills. Can they reach the Super Bowl like this?**\
+`Allen is the cornerstone of a Super Bowl contender that lacks superstars.`\
+https://nytimes.com/athletic/6594094/2025/09/03/josh-allen-buffalo-bills-mvp-super-bowl/
+
 **UEFA president warns FIFA over any biennial Club World Cup plans**\
 `The next edition is scheduled for 2029 but FIFA is widely believed to be exploring ways to make the expanded tournament a biennial event.`\
 https://nytimes.com/athletic/6594361/2025/09/03/club-world-cup-plans-uefa-ceferin/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6592939/2025/09/03/colts-anthony-richardson-bench-d
 **Leeds United MD Robbie Evans Q&A: Deadline day disappointment, Illan Meslier future and more**\
 `Evans spoke to the media after the transfer window closed on Monday`\
 https://nytimes.com/athletic/6594308/2025/09/03/leeds-united-robbie-evans-transfer-window/
-
-**No disrespect, but Bill Belichick has much work to do to bring back balloons of optimism**\
-`Belichick faces dual task of building program and preventing a painful postscript from being attached to his brilliant NFL coaching career.`\
-https://nytimes.com/athletic/6593051/2025/09/03/bill-belichick-unc-tcu-debut/
 

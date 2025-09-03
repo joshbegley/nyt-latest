@@ -1,3 +1,7 @@
+**Josh Allen is everything to the Buffalo Bills. Can they reach the Super Bowl like this?**\
+`Allen is the cornerstone of a Super Bowl contender that lacks superstars.`\
+https://nytimes.com/athletic/6594094/2025/09/03/josh-allen-buffalo-bills-mvp-super-bowl/
+
 **UEFA president warns FIFA over any biennial Club World Cup plans**\
 `The next edition is scheduled for 2029 but FIFA is widely believed to be exploring ways to make the expanded tournament a biennial event.`\
 https://nytimes.com/athletic/6594361/2025/09/03/club-world-cup-plans-uefa-ceferin/
