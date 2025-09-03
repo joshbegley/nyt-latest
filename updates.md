@@ -1,3 +1,7 @@
+**Report: Kawhi Leonard, Clippers used endorsement deal to 'circumvent' salary cap**\
+`The deal involved Leonard earning $28 million from a now-bankrupt environmental company partly funded by the Clippers and Steve Ballmer.`\
+https://nytimes.com/athletic/6595033/2025/09/03/kawhi-leonard-clippers-salary-cap-circumvention-accusations-aspiration/
+
 **Twins Turned This Ohio Town Into a Living Laboratory**\
 `Each year, twins from around the world converge on Twinsburg, Ohio in a boon for scientific researchers studying everything from taste buds to facial recognition technology.`\
 https://nytimes.com/card/2025/09/03/us/twinsburg-ohio-twins-day-festival-research

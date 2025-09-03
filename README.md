@@ -1,3 +1,7 @@
+**Why Fewer Voters Register as Democrats**\
+`Readers offer analysis and advice about the Democrats’ plight. Also: An Israeli’s heroism.`\
+https://nytimes.com/2025/09/03/opinion/democrats-voters.html
+
 **Report: Kawhi Leonard, Clippers used endorsement deal to 'circumvent' salary cap**\
 `The deal involved Leonard earning $28 million from a now-bankrupt environmental company partly funded by the Clippers and Steve Ballmer.`\
 https://nytimes.com/athletic/6595033/2025/09/03/kawhi-leonard-clippers-salary-cap-circumvention-accusations-aspiration/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/03/nyregion/trump-adams-sliwa-quit-nyc-mayor.html
 **Submit your questions for Kevin Fishbain's Week 1 Bears mailbag**\
 `Coach Ben Johnson, quarterback Caleb Williams and the Bears are preparing to host the Vikings in the season opener. What's on your mind?`\
 https://nytimes.com/athletic/6595340/2025/09/03/bears-mailbag-questions-week-1/
-
-**Do You Have Questions About Tariffs?**\
-`“Ask a Correspondent” is here to help. We’ll take your questions to Ana Swanson, who covers trade and international economics in Washington.`\
-https://nytimes.com/2025/09/03/world/do-you-have-questions-about-tariffs.html
 
