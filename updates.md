@@ -1,3 +1,20 @@
+**Amorim's options: Picking Man United's strongest XI now the window has closed**\
+`Problems remain, but the reworked 2025-26 United has more of the characteristics necessary for Amorim's football`\
+https://nytimes.com/athletic/6583792/2025/09/03/manchester-united-ruben-amorim-starting-xi/
+
+**Making the grade: How did your Premier League club score for their summer transfer window?**\
+`With the summer transfer window now closed, we asked The Athletic's club reporters for their view on how it panned out for their side`\
+https://nytimes.com/athletic/6591625/2025/09/03/premier-league-transfer-window-graded-review/
+
+**Can Leeds, Sunderland and Burnley stay in the Premier League?**\
+`The newly promoted teams boast 13 points and four wins between them already, suggesting they might yet buck the top-flight's recent trend`\
+https://nytimes.com/athletic/6591881/2025/09/03/leeds-sunderland-burnley-premier-league/
+
+**Row Z: Newcastle’s tearful Isak tribute, Martinez hanging on the telephone, and Nuno’s quick maths**\
+`Welcome to Row Z, The Athletic’s column that shines a light on the bonkers side of the game
+`\
+https://nytimes.com/athletic/6591572/2025/09/03/row-z-isak-liverpool-newcastle-martinez-manchester-united-chelsea/
+
 **Row Z: Newcastle’s tearful Isak tribute, Martinez hanging on the telephone, and Nuno’s quick maths**\
 `Welcome to Row Z, The Athletic’s column that shines a light on the bonkers side of the game
 `\

@@ -1,3 +1,11 @@
+**Brighton's 2025 summer transfer window review: Another big sale but are they now underpowered?**\
+`The club stuck to their usual model by parting with Joao Pedro for big money but there was no direct replacement signed`\
+https://nytimes.com/athletic/6566586/2025/09/03/brighton-summer-transfer-window-review/
+
+**Crystal Palace 2025 summer transfer window review: Final day chaos, but Guehi stays**\
+`Matt Woosnam analyses Crystal Palace's summer transfer window, which became chaotic in the final hours`\
+https://nytimes.com/athletic/6588244/2025/09/03/crystal-palace-2025-summer-transfer-window-guehi-stays-eze-goes/
+
 **Amorim's options: Picking Man United's strongest XI now the window has closed**\
 `Problems remain, but the reworked 2025-26 United has more of the characteristics necessary for Amorim's football`\
 https://nytimes.com/athletic/6583792/2025/09/03/manchester-united-ruben-amorim-starting-xi/
@@ -30,12 +38,4 @@ https://nytimes.com/athletic/6580142/2025/09/03/squad-churn-premier-league-trans
 **Lover's Ball: An optimist's take on the top 50 players in fantasy football 2025**\
 `Gary Davenport leaves his "snark" behind and gives an optimistic view of every top-50 fantasy football player in 2025. `\
 https://nytimes.com/athletic/6592062/2025/09/03/fantasy-football-2025-lovers-ball-top-50/
-
-**Test your NFL knowledge with our Connections: Sports Edition team-themed games**\
-`During September, try your hand at our 32 team-themed Connections: Sports Edition boards, crafted by our expert NFL writers.`\
-https://nytimes.com/athletic/6592714/2025/09/03/connections-sports-edition-nfl-team-games/
-
-**Nemat Shafik, Columbia President During Protests, Takes Another Tough Job**\
-`Dr. Shafik, who came under fire for her handling of pro-Palestinian campus protests last year, is now the chief economic adviser to Britain’s prime minister.`\
-https://nytimes.com/2025/09/03/world/europe/minouche-shafik-uk-columbia-starmer.html
 
