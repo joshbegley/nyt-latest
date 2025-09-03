@@ -1,3 +1,7 @@
+**North Carolina Man Had at Least 3 Wives at the Same Time, Police Say**\
+`Money was the motivation, according to the authorities, who charged Harry Irvine Burdick Jr. with two counts of felony bigamy. There may be other victims, they said.`\
+https://nytimes.com/2025/09/02/us/bigamy-marriages-north-carolina.html
+
 **Federal Appeals Court Reinstates an F.T.C. Commissioner Fired by Trump**\
 `The court said the commissioner, Rebecca Kelly Slaughter, had been illegally terminated “without cause.”`\
 https://nytimes.com/2025/09/02/us/politics/ftc-commissioner-slaughter-trump.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6593531/2025/09/02/chicago-white-sox-vs-minnesota-t
 **How to watch Guardians at Red Sox: Time, TV, streaming**\
 `Find out how to watch the Cleveland Guardians play the Boston Red Sox, with time, TV channel, and streaming information.`\
 https://nytimes.com/athletic/6593529/2025/09/02/cleveland-guardians-vs-boston-red-sox-stream-how-to-watch-sept-3/
-
-**How to watch Mariners at Rays: Time, TV, streaming**\
-`Find out how to watch the Seattle Mariners play the Tampa Bay Rays, with time, TV channel, and streaming information.`\
-https://nytimes.com/athletic/6593528/2025/09/02/seattle-mariners-vs-tampa-bay-rays-stream-how-to-watch-sept-3/
 
