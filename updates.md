@@ -1,3 +1,12 @@
+**China’s Military Spectacle**\
+`China used a parade of fighter jets, missiles and goose-stepping troops to honor the country’s wartime sacrifice and issue a defiant warning to rivals.`\
+https://nytimes.com/2025/09/03/world/asia/china-military-parade.html
+
+**Row Z: Newcastle’s tearful Isak tribute, Martinez hanging on the telephone, and Nuno’s quick maths**\
+`Welcome to Row Z, The Athletic’s column that shines a light on the bonkers side of the game
+`\
+https://nytimes.com/athletic/6591572/2025/09/03/row-z-isak-liverpool-newcastle-martinez-manchester-united-chelsea/
+
 **Row Z: Newcastle’s tearful Isak tribute, Martinez hanging on the telephone, and Nuno’s quick maths**\
 `Welcome to Row Z, The Athletic’s column that shines a light on the bonkers side of the game
 `\

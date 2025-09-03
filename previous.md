@@ -1,3 +1,7 @@
+**China’s Military Spectacle**\
+`China used a parade of fighter jets, missiles and goose-stepping troops to honor the country’s wartime sacrifice and issue a defiant warning to rivals.`\
+https://nytimes.com/2025/09/03/world/asia/china-military-parade.html
+
 **Putin’s Propaganda War**\
 `Russian authorities are using a festival to showcase Moscow as a place where life is better than in the West.`\
 https://nytimes.com/2025/09/03/briefing/putin-propaganda-china-military-parade.html
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/6591483/2025/09/03/manchester-city-goalkeeper-situa
 `Welcome to Row Z, The Athletic’s column that shines a light on the bonkers side of the game
 `\
 https://nytimes.com/athletic/6591572/2025/09/03/row-z-isak-liverpool-newcastle-martinez-manchester-united-chelsea/
-
-**Evolution not revolution: The impact of squad churn on Premier League performance**\
-`A fascination with player trading is understandable – but it is no guarantee of success `\
-https://nytimes.com/athletic/6580142/2025/09/03/squad-churn-premier-league-transfers/
 
