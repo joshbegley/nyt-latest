@@ -1,3 +1,7 @@
+**How the 'right words at the right moment' brought back the best of Iga Swiatek's tennis**\
+`Świątek's tennis gifts set her apart from every other player in the world. The past six months have been a journey into unwrapping them.`\
+https://nytimes.com/athletic/6591237/2025/09/03/iga-swiatek-tennis-game-coach-wim-fissette/
+
 **Mallorca suspend vice-captain Rodriguez after midfielder claims 'lack of respect' from club**\
 `The 37-year-old was left on the bench against Real Madrid on Saturday.`\
 https://nytimes.com/athletic/6594135/2025/09/03/dani-rodriguez-mallorca-suspension-la-liga/

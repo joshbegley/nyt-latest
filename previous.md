@@ -1,3 +1,7 @@
+**How the 'right words at the right moment' brought back the best of Iga Swiatek's tennis**\
+`Świątek's tennis gifts set her apart from every other player in the world. The past six months have been a journey into unwrapping them.`\
+https://nytimes.com/athletic/6591237/2025/09/03/iga-swiatek-tennis-game-coach-wim-fissette/
+
 **Mallorca suspend vice-captain Rodriguez after midfielder claims 'lack of respect' from club**\
 `The 37-year-old was left on the bench against Real Madrid on Saturday.`\
 https://nytimes.com/athletic/6594135/2025/09/03/dani-rodriguez-mallorca-suspension-la-liga/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/03/nyregion/unhappy-on-wall-street-fulfilled-as-a-pa
 **$475,000 Homes in New York, Ohio and Kentucky**\
 `A former schoolhouse in Canaan, a semidetached house in Columbus and a wood-frame house in Louisville.`\
 https://nytimes.com/2025/09/03/realestate/475000-homes-new-york-ohio-kentucky.html
-
-**5 Minutes That Will Make You Love Mal Waldron**\
-`The music of this pianist, who played with giants like Billie Holiday, Charles Mingus and John Coltrane, can feel mysterious and private, but it rewards deep listening. Explore these 11 songs.`\
-https://nytimes.com/2025/09/03/arts/music/mal-waldron-jazz-music.html
 
