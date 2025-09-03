@@ -1,3 +1,11 @@
+**Jakobi Meyers on why he's still a Raider — and not holding out for a new contract**\
+`The receiver is still practicing and playing while seeking a new contract.`\
+https://nytimes.com/athletic/6596417/2025/09/03/jakobi-meyers-contract-situation-trade-demand/
+
+**Judge denies injunction in lawsuit by 23XI Racing, Front Row against NASCAR**\
+`The judge said he denied the injunction because NASCAR pledged to not yet sell any of the six combined charters held by 23XI and Front Row.`\
+https://nytimes.com/athletic/6596390/2025/09/03/23xi-racing-front-row-nascar-injunction-denied-antitrust-lawsuit/
+
 **Astros' Isaac Paredes makes progress in rehab, but 2025 return uncertain**\
 `Paredes resumes baseball activities with Houston on Wednesday, a day after he underwent follow-up imaging on his right hamstring.`\
 https://nytimes.com/athletic/6596165/2025/09/03/isaac-paredes-astros-hamstring-return-timetable/
