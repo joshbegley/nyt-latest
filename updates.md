@@ -1,3 +1,7 @@
+**England's James in 'ridiculous amount of pain' during 2025 Euros**\
+`The 23-year-old came into the tournament after a hamstring problem and picked up an ankle injury in the quarter final.`\
+https://nytimes.com/athletic/6594092/2025/09/03/lauren-james-injury-2025-euros-chelsea/
+
 **China Projects Power at Parade With Putin and Kim**\
 `President Xi Jinping of China oversaw the country’s ambitious display of military power and diplomatic influence during a parade attended by the leaders of Russia and North Korea.`\
 https://nytimes.com/video/world/asia/100000010375223/xi-putin-kim-parade.html

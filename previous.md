@@ -1,3 +1,7 @@
+**England's James in 'ridiculous amount of pain' during 2025 Euros**\
+`The 23-year-old came into the tournament after a hamstring problem and picked up an ankle injury in the quarter final.`\
+https://nytimes.com/athletic/6594092/2025/09/03/lauren-james-injury-2025-euros-chelsea/
+
 **China Projects Power at Parade With Putin and Kim**\
 `President Xi Jinping of China oversaw the country’s ambitious display of military power and diplomatic influence during a parade attended by the leaders of Russia and North Korea.`\
 https://nytimes.com/video/world/asia/100000010375223/xi-putin-kim-parade.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/03/nyregion/nyc-economy-jobs.html
 **Trump Administration Live Updates: Appeals Court Blocks Deportations Under Alien Enemies Act**\
 `The ruling was a setback for a key part of President Trump’s domestic agenda. The case is almost certainly headed to the Supreme Court.`\
 https://nytimes.com/live/2025/09/03/us/trump-news
-
-**The Endangered Frog That Lives Next to an Amazon Warehouse**\
-`The Atlantic coast leopard frog, first identified in an industrial section of Staten Island in 2012, is now on the state’s endangered species list. Conservation groups see an opportunity.`\
-https://nytimes.com/2025/09/03/nyregion/frog-atlantic-coast-leopard-endangered.html
 
