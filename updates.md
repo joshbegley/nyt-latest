@@ -1,3 +1,7 @@
+**Benches clear, punches thrown in Giants-Rockies matchup after Rafael Devers homer**\
+`In the end, Devers moved from first base to make his Giants debut as a third baseman — a position he hadn't played all season.`\
+https://nytimes.com/athletic/6593685/2025/09/02/giants-rockies-brawl-ejections/
+
 **North Carolina Man Had at Least 3 Wives at the Same Time, Police Say**\
 `Money was the motivation, according to the authorities, who charged Harry Irvine Burdick Jr. with two counts of felony bigamy. There may be other victims, they said.`\
 https://nytimes.com/2025/09/02/us/bigamy-marriages-north-carolina.html
