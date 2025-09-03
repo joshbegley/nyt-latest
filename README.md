@@ -1,4 +1,8 @@
-**White House Orders Agencies to Find More Ways to Stymie Offshore Wind**\
+**Vuelta a Espana stage 11 cut short due to pro-Palestine protest**\
+`"Everyone has the right to protest whatever they want, but putting us in danger is not the way forward," British rider Tom Pidcock said.`\
+https://nytimes.com/athletic/6595115/2025/09/03/vuelta-espana-palestine-protest/
+
+**White House Orders Agencies to Escalate Fight Against Offshore Wind**\
 `The effort involves several agencies that typically have little to do with wind power, including the Health and Human Services Department.`\
 https://nytimes.com/2025/09/03/climate/trump-administration-offshore-wind.html
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6535764/2025/09/03/pj-washington-nba-contract-exten
 **They’re Famous. They’re Everywhere. And They’re Fake.**\
 `Influencers like Lil’ Miquela and Mia Zelu have millions of followers and generate serious income, despite being created with artificial intelligence.`\
 https://nytimes.com/2025/09/03/style/ai-influencers-lil-miquela-mia-zelu.html
-
-**‘The Paper’ Review: I Have Good News and I Have Bad News**\
-`The team from “The Office” has a new comedy of decline, but it still needs to figure out what its story is.`\
-https://nytimes.com/2025/09/03/arts/television/the-paper-review-the-office.html
 
