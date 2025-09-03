@@ -1,3 +1,19 @@
+**U.S.'s Balogun has his chance to make a late first impression on Pochettino**\
+`Injuries have kept the talented striker out of the picture since before Mauricio Pochettino took charge of the USMNT`\
+https://nytimes.com/athletic/6595245/2025/09/03/folarin-balogun-usmnt-return-pochettino-world-cup/
+
+**What Is Swedish Culture? IKEA? Yes. Abba? Not This Time.**\
+`A government initiative to create a Swedish “cultural canon” concerned many in the country’s cultural world. The final list has sparked debate over the choices.`\
+https://nytimes.com/2025/09/03/arts/music/swedish-culture-ikea-abba.html
+
+**Trump Advisers Have Discussed a Job for Adams to Quit Mayor’s Race**\
+`The discussions are said to be part of an effort to clear the field for a one-on-one general election race between Andrew M. Cuomo and Zohran Mamdani.`\
+https://nytimes.com/2025/09/03/nyregion/trump-adams-sliwa-quit-nyc-mayor.html
+
+**Submit your questions for Kevin Fishbain's Week 1 Bears mailbag**\
+`Coach Ben Johnson, quarterback Caleb Williams and the Bears are preparing to host the Vikings in the season opener. What's on your mind?`\
+https://nytimes.com/athletic/6595340/2025/09/03/bears-mailbag-questions-week-1/
+
 **Do You Have Questions About Tariffs?**\
 `“Ask a Correspondent” is here to help. We’ll take your questions to Ana Swanson, who covers trade and international economics in Washington.`\
 https://nytimes.com/2025/09/03/world/do-you-have-questions-about-tariffs.html
@@ -21,20 +37,4 @@ https://nytimes.com/2025/09/03/theater/tarell-alvin-mccraney-and-andre-holland-b
 **Roger Goodell says Taylor Swift a ‘maybe’ for Super Bowl LX halftime show**\
 `The NFL commissioner wouldn’t say whether a Swift Super Bowl appearance was in the works but didn’t deny the possibility when asked.`\
 https://nytimes.com/athletic/6595136/2025/09/03/taylor-swift-super-bowl-halftime-show-nfl-roger-goodell/
-
-**N.Y. Attorney General Sues Far-Right Group VDARE for Misusing Funds**\
-`The suit says the nonprofit’s leaders — who helped bring anti-immigrant ideas into the G.O.P. mainstream — used donor money to buy a castle-like home.`\
-https://nytimes.com/2025/09/03/us/politics/letitia-james-nonprofit-castle.html
-
-**George Raveling, Coach Who Brought Michael Jordan to Nike, Dies at 88**\
-`He also worked security for the 1963 March on Washington, and ended up with Martin Luther King Jr.’s copy of the “I Have a Dream” speech.`\
-https://nytimes.com/2025/09/03/sports/george-raveling-dead.html
-
-**Trump Team Urges G.O.P. to Rebrand Signature Policy Law**\
-`Top campaign officials told House Republicans they should rebrand the measure the president dubbed the “One Big Beautiful Bill,” in a nod to its unpopularity with voters.`\
-https://nytimes.com/2025/09/03/us/politics/trump-gop-big-beautiful-bill.html
-
-**Louvre Museum Names Advocate for African Art Repatriation as Next ‘Great Thinker’**\
-`The appointment of Bénédicte Savoy underscores France’s changing views on the issue of returning artifacts that were wrongly taken during the colonial period.`\
-https://nytimes.com/2025/09/03/arts/design/louvre-museum-benedicte-savoy-repatriation.html
 

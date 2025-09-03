@@ -1,3 +1,19 @@
+**U.S.'s Balogun has his chance to make a late first impression on Pochettino**\
+`Injuries have kept the talented striker out of the picture since before Mauricio Pochettino took charge of the USMNT`\
+https://nytimes.com/athletic/6595245/2025/09/03/folarin-balogun-usmnt-return-pochettino-world-cup/
+
+**What Is Swedish Culture? IKEA? Yes. Abba? Not This Time.**\
+`A government initiative to create a Swedish “cultural canon” concerned many in the country’s cultural world. The final list has sparked debate over the choices.`\
+https://nytimes.com/2025/09/03/arts/music/swedish-culture-ikea-abba.html
+
+**Trump Advisers Have Discussed a Job for Adams to Quit Mayor’s Race**\
+`The discussions are said to be part of an effort to clear the field for a one-on-one general election race between Andrew M. Cuomo and Zohran Mamdani.`\
+https://nytimes.com/2025/09/03/nyregion/trump-adams-sliwa-quit-nyc-mayor.html
+
+**Submit your questions for Kevin Fishbain's Week 1 Bears mailbag**\
+`Coach Ben Johnson, quarterback Caleb Williams and the Bears are preparing to host the Vikings in the season opener. What's on your mind?`\
+https://nytimes.com/athletic/6595340/2025/09/03/bears-mailbag-questions-week-1/
+
 **Do You Have Questions About Tariffs?**\
 `“Ask a Correspondent” is here to help. We’ll take your questions to Ana Swanson, who covers trade and international economics in Washington.`\
 https://nytimes.com/2025/09/03/world/do-you-have-questions-about-tariffs.html
