@@ -1,3 +1,15 @@
+**Seattle Seahawks 2025 streaming guide: How to watch Sam Darnold and new-look roster**\
+`With the NFL season starting, here's how to watch all 17 (or more...) Seattle Seahawks games this year.`\
+https://nytimes.com/athletic/6588750/2025/09/03/seattle-seahawks-how-to-watch-2025-tv-schedule/
+
+**Vote in the latest Scoop City poll here!**\
+`Welcome to the polling page for Scoop City, The Athletic's free NFL newsletter.`\
+https://nytimes.com/athletic/6579290/2025/09/03/scoop-city-newsletter-poll-vote/
+
+**A Tale of Shakespeare and Marlowe — and Sex and Power**\
+`“Born With Teeth,” which premiered in the West End of London this week, imagines the writers’ working relationship as heavy on bawdy flirtation.`\
+https://nytimes.com/2025/09/03/theater/born-with-teeth-wyndhams-theatre-london-review.html
+
 **Britain Moves to Ban Sale of Energy Drinks to Children**\
 `The legislation, which would affect sales to anyone under 16, mirrors regulations in a number of other European countries.`\
 https://nytimes.com/2025/09/03/world/europe/uk-energy-drinks-ban.html
