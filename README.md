@@ -1,3 +1,7 @@
+**Chelsea's Ramirez undergoes hamstring surgery**\
+`Sonia Bompastor's team begin their WSL title defence at Stamford Bridge against Manchester City on Friday night.`\
+https://nytimes.com/athletic/6595523/2025/09/03/mayra-ramirez-injury-chelsea/
+
 **Kate Scott to become first woman to call NFL game for Westwood One**\
 `Scott currently does play-by-play for the 76ers and calls soccer for Fox and CBS Sports.`\
 https://nytimes.com/athletic/6595336/2025/09/03/kate-scott-first-woman-call-nfl-game-westwood-one/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/03/business/google-ruling-antitrust.html
 **Amazon Pares Back Free Shipping Perk on Prime Membership**\
 `The e-commerce giant is ending a program that let Prime members share free shipping with a family member who lives somewhere else. Here’s what to know.`\
 https://nytimes.com/2025/09/03/technology/amazon-prime-invitee-free-shipping.html
-
-**Buonanotte left out of Chelsea's Champions League squad**\
-`Other summer signings, such as Joao Pedro and Alejandro Garnacho, have been registered.`\
-https://nytimes.com/athletic/6592380/2025/09/03/chelsea-champions-league-squad-buonanotte/
 
