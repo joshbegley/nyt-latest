@@ -1,4 +1,8 @@
-**NFL will not play a Week 1 game on Friday for 2026, citing federal law**\
+**Federal Appeals Court Reinstates an F.T.C. Commissioner Fired by Trump**\
+`The court said the commissioner, Rebecca Kelly Slaughter, had been illegally terminated without cause.`\
+https://nytimes.com/2025/09/02/us/politics/ftc-commissioner-slaughter-trump.html
+
+**NFL will not play a Week 1 game on Friday next season, citing federal law**\
 `The change is due to the Sports Broadcasting Act of 1961, which regulates NFL broadcasts during college and high school football seasons.`\
 https://nytimes.com/athletic/6593437/2025/09/02/nfl-no-week-1-friday-game-2026/
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6593529/2025/09/02/cleveland-guardians-vs-boston-re
 **How to watch Mariners at Rays: Time, TV, streaming**\
 `Find out how to watch the Seattle Mariners play the Tampa Bay Rays, with time, TV channel, and streaming information.`\
 https://nytimes.com/athletic/6593528/2025/09/02/seattle-mariners-vs-tampa-bay-rays-stream-how-to-watch-sept-3/
-
-**How to watch Mets at Tigers: Time, TV, streaming**\
-`Find out how to watch the New York Mets play the Detroit Tigers, with time, TV channel, and streaming information.`\
-https://nytimes.com/athletic/6593523/2025/09/02/new-york-mets-vs-detroit-tigers-stream-how-to-watch-sept-3/
 
