@@ -1,3 +1,11 @@
+**United to appoint Everton's Fotherby as men's first-team doctor**\
+`Fotherby, previously team doctor at Wigan Warriors rugby league side and British Gymnastics, will replace Jim Moxon in the role.`\
+https://nytimes.com/athletic/6594210/2025/09/03/manchester-united-team-doctor-fotherby/
+
+**Fulham's disallowed goal at Chelsea a 'misjudgement' by officials - Webb**\
+`Webb said the decision did not meet the video assistant referee's (VAR) high bar for intervention and it was "wrong" to rule the goal out.`\
+https://nytimes.com/athletic/6594224/2025/09/03/chelsea-fulham-goal-var-webb/
+
 **Karolína Muchová's beautiful tennis at the U.S. Open – and her journey to get back there**\
 `As Muchová aims for her third U.S. Open semifinal in three years, she reflects on her journey through injury devastation to get here.`\
 https://nytimes.com/athletic/6593379/2025/09/03/karolina-muchova-tennis-us-open/

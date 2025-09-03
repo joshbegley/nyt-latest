@@ -1,3 +1,11 @@
+**United to appoint Everton's Fotherby as men's first-team doctor**\
+`Fotherby, previously team doctor at Wigan Warriors rugby league side and British Gymnastics, will replace Jim Moxon in the role.`\
+https://nytimes.com/athletic/6594210/2025/09/03/manchester-united-team-doctor-fotherby/
+
+**Fulham's disallowed goal at Chelsea a 'misjudgement' by officials - Webb**\
+`Webb said the decision did not meet the video assistant referee's (VAR) high bar for intervention and it was "wrong" to rule the goal out.`\
+https://nytimes.com/athletic/6594224/2025/09/03/chelsea-fulham-goal-var-webb/
+
 **Karolína Muchová's beautiful tennis at the U.S. Open – and her journey to get back there**\
 `As Muchová aims for her third U.S. Open semifinal in three years, she reflects on her journey through injury devastation to get here.`\
 https://nytimes.com/athletic/6593379/2025/09/03/karolina-muchova-tennis-us-open/
@@ -29,12 +37,4 @@ https://nytimes.com/interactive/2025/09/03/business/media/summer-box-office-movi
 **In Maine, Brewery Owner Joins Push to Unseat Susan Collins**\
 `Dan Kleban enters a crowded Democratic primary as party leaders wait for Maine’s Democratic governor, Janet Mills, who is “seriously considering” a run for Senate.`\
 https://nytimes.com/2025/09/03/us/politics/democrats-maine-senate-race.html
-
-**Missouri Legislators To Start Special Session on Redistricting**\
-`The lawmakers, led by a Republican majority, are expected to consider new maps that would help Republicans gain another seat in Congress. They already hold six of the state’s eight congressional seats.`\
-https://nytimes.com/2025/09/03/us/missouri-legislators-redistricting-special-session.html
-
-**Tom Friedman’s A.I. Nightmare and What the U.S. Can Do to Avoid It**\
-`Without trust between America and China on A.I., the risks extend far beyond their borders.`\
-https://nytimes.com/2025/09/03/opinion/us-china-ai-trust.html
 
