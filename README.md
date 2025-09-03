@@ -1,3 +1,7 @@
+**Representative LaMonica McIver Overcomes G.O.P. Effort to Censure Her**\
+`Ms. McIver, a New Jersey Democrat, has been charged with assaulting immigration agents outside a detention center. A push to censure her and eject her from a House committee failed.`\
+https://nytimes.com/2025/09/03/nyregion/monica-mciver-committee-assault-charge.html
+
 **What's Going On With Boys?**\
 ``\
 https://nytimes.com/issue/upshot/2025/09/03/whats-going-on-with-boys
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/03/us/elections/california-redistricting-fundraising
 **Harvard Secures a Court Victory in Its Fight With Trump**\
 `Harvard had sued the Trump administration in an effort to restore billions in research funds that the government canceled this spring.`\
 https://nytimes.com/2025/09/03/us/harvard-trump-funding-ruling.html
-
-**'We’re doing something that makes sense': UC San Diego set to join West Coast Conference**\
-`The Tritons will join the WCC in 2027, one year after Gonzaga moves to the Pac-12 in 2026. `\
-https://nytimes.com/athletic/6595853/2025/09/03/uc-san-diego-west-coast-conference/
 

@@ -1,3 +1,15 @@
+**What's Going On With Boys?**\
+``\
+https://nytimes.com/issue/upshot/2025/09/03/whats-going-on-with-boys
+
+**Two prominent MLB agents fired from Ballengee Group**\
+`Jeff Randazzo and Jeff Borris had worked for the agency for over a decade, with Mason Miller and Tommy Kahnle among their current clients.`\
+https://nytimes.com/athletic/6596024/2025/09/03/mlb-agents-ballengee-firings-randazzo-borris/
+
+**Harvard Secures a Court Victory in Its Fight With Trump**\
+`Harvard had sued the Trump administration in an effort to restore billions in research funds that the government canceled this spring.`\
+https://nytimes.com/2025/09/03/us/harvard-trump-funding-ruling.html
+
 **NFL postseason projections: Which new teams will make the playoffs in 2025?**\
 `Over the last 12 seasons, the NFL has seen an average of nearly six new teams reach the postseason.`\
 https://nytimes.com/athletic/6580285/2025/09/03/2025-nfl-postseason-projections/
