@@ -1,3 +1,15 @@
+**Do You Have Questions About Tariffs?**\
+`“Ask a Correspondent” is here to help. We’ll take your questions to Ana Swanson, who covers trade and international economics in Washington.`\
+https://nytimes.com/2025/09/03/world/do-you-have-questions-about-tariffs.html
+
+**Florida Says It Plans to End All Vaccine Mandates**\
+`The state would be the first to scrap requirements that children be vaccinated to attend school, among other rules.`\
+https://nytimes.com/2025/09/03/us/florida-says-it-plans-to-end-all-vaccine-mandates.html
+
+**Roger Goodell says Taylor Swift a ‘maybe’ for Super Bowl LX halftime show**\
+`The NFL commissioner wouldn’t say whether a Swift Super Bowl appearance was in the works but didn’t deny the possibility when asked.`\
+https://nytimes.com/athletic/6595136/2025/09/03/taylor-swift-super-bowl-halftime-show-nfl-roger-goodell/
+
 **FA confirms it won't appeal Paqueta verdict, is criticised by panel which heard case**\
 `In a 314-page judgment published on Wednesday, the three-person independent panel slammed the FA's approach to the case.`\
 https://nytimes.com/athletic/6595258/2025/09/03/lucas-paqueta-betting-fa/

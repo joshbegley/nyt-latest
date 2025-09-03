@@ -1,3 +1,11 @@
+**Do You Have Questions About Tariffs?**\
+`“Ask a Correspondent” is here to help. We’ll take your questions to Ana Swanson, who covers trade and international economics in Washington.`\
+https://nytimes.com/2025/09/03/world/do-you-have-questions-about-tariffs.html
+
+**Florida Says It Plans to End All Vaccine Mandates**\
+`The state would be the first to scrap requirements that children be vaccinated to attend school, among other rules.`\
+https://nytimes.com/2025/09/03/us/florida-says-it-plans-to-end-all-vaccine-mandates.html
+
 **FA confirms it won't appeal Paqueta verdict, is criticised by panel which heard case**\
 `In a 314-page judgment published on Wednesday, the three-person independent panel slammed the FA's approach to the case.`\
 https://nytimes.com/athletic/6595258/2025/09/03/lucas-paqueta-betting-fa/
@@ -11,7 +19,7 @@ https://nytimes.com/athletic/6594866/2025/09/03/chicago-stars-stadium-2026-new/
 https://nytimes.com/2025/09/03/theater/tarell-alvin-mccraney-and-andre-holland-brothers-size.html
 
 **Roger Goodell says Taylor Swift a ‘maybe’ for Super Bowl LX halftime show**\
-`Goodell wouldn’t say whether a Swift Super Bowl appearance was already in the works, he didn’t deny the possibility when asked.`\
+`The NFL commissioner wouldn’t say whether a Swift Super Bowl appearance was in the works but didn’t deny the possibility when asked.`\
 https://nytimes.com/athletic/6595136/2025/09/03/taylor-swift-super-bowl-halftime-show-nfl-roger-goodell/
 
 **N.Y. Attorney General Sues Far-Right Group VDARE for Misusing Funds**\
@@ -29,12 +37,4 @@ https://nytimes.com/2025/09/03/us/politics/trump-gop-big-beautiful-bill.html
 **Louvre Museum Names Advocate for African Art Repatriation as Next ‘Great Thinker’**\
 `The appointment of Bénédicte Savoy underscores France’s changing views on the issue of returning artifacts that were wrongly taken during the colonial period.`\
 https://nytimes.com/2025/09/03/arts/design/louvre-museum-benedicte-savoy-repatriation.html
-
-**Cadillac signs Colton Herta as first F1 test driver ahead of 2026 debut**\
-`The American driver, a nine-time IndyCar winner, is closer to his long-sought F1 breakthrough.`\
-https://nytimes.com/athletic/6593286/2025/09/03/colton-herta-cadillac-f1/
-
-**Vuelta a Espana stage 11 cut short due to pro-Palestine protest**\
-`"Everyone has the right to protest whatever they want, but putting us in danger is not the way forward," British rider Tom Pidcock said.`\
-https://nytimes.com/athletic/6595115/2025/09/03/vuelta-espana-palestine-protest/
 
