@@ -11,7 +11,7 @@ https://nytimes.com/video/us/100000010377287/wildfire-california-gold-rush.html
 https://nytimes.com/2025/09/03/nyregion/monica-mciver-committee-assault-charge.html
 
 **What's Going On With Boys?**\
-``\
+`Many are not thriving in their schooling, mental health and transitions to adulthood.`\
 https://nytimes.com/issue/upshot/2025/09/03/whats-going-on-with-boys
 
 **Two prominent MLB agents fired from Ballengee Group**\
