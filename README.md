@@ -1,3 +1,7 @@
+**White House Orders Agencies to Find More Ways to Stymie Offshore Wind**\
+`The effort involves several agencies that typically have little to do with wind power, including the Health and Human Services Department.`\
+https://nytimes.com/2025/09/03/climate/trump-administration-offshore-wind.html
+
 **Is Venezuela Flooding the U.S. With Drugs? Here’s What to Know.**\
 `The Trump administration says Venezuela is sending vast amounts of cocaine to the United States. Venezuela’s role in the drug trade is overstated, experts say.`\
 https://nytimes.com/2025/09/03/world/americas/venezuela-drug-boat-trump-us.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/03/style/ai-influencers-lil-miquela-mia-zelu.html
 **‘The Paper’ Review: I Have Good News and I Have Bad News**\
 `The team from “The Office” has a new comedy of decline, but it still needs to figure out what its story is.`\
 https://nytimes.com/2025/09/03/arts/television/the-paper-review-the-office.html
-
-**Need a Lift? Putin Takes His ‘Limo Diplomacy’ to China**\
-`Rides in his hulking bulletproof Aurus with the Indian and North Korean leaders offered the Russian leader an ideal setting for deepening ties.`\
-https://nytimes.com/2025/09/03/world/europe/putin-limo-china-xi-relations-modi-india-trump.html
 
