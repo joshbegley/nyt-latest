@@ -1,3 +1,11 @@
+**UConn coach Dan Hurley considered stepping down: 'I was completely cooked'**\
+`In a book he co-wrote with The Athletic's Ian O'Connor, Hurley says he thought about leaving coaching and moving to TV.`\
+https://nytimes.com/athletic/6592998/2025/09/03/dan-hurley-uconn-basketball-quit-resign-new-book/
+
+**Inside Forest's hectic summer: £250m spent, Nuno/Edu fallout, deadline day pivot to Zinchenko**\
+`Despite Forest preparing to play in Europe for the first time in 30 years, behind-the-scenes friction has dominated most of pre-season`\
+https://nytimes.com/athletic/6591892/2025/09/03/inside-nottingham-forests-hectic-summer-200m-spent-nuno-edu-fallout-deadline-day-pivot-to-zinchenko/
+
 **What is 'The U.S. Way' for youth players? Plus: The goalkeepers on the way to Manchester**\
 `Today in TAFC: Explaining how U.S. are trying to take a unified approach to youth development. Plus: the £3.1bn transfer window.`\
 https://nytimes.com/athletic/6594080/2025/09/03/us-way-youth-players-donnarumma-manchester/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6592911/2025/09/03/bears-cornerbacks-jaylon-johnson
 **Tom Brady Year 2, YouTube Year 1 and the biggest NFL media storylines for the 2025 season**\
 `The Athletic's media reporters tackle the biggest media storylines of the new NFL season.`\
 https://nytimes.com/athletic/6592165/2025/09/03/nfl-tom-brady-youtube-netflix-2025-preview/
-
-**The Vikings focused their offseason on improving in the trenches. Will Fries is the answer**\
-`The free-agent guard is a "monster" who brings nastiness and snarl to an interior of the offensive line in need of both.`\
-https://nytimes.com/athletic/6592829/2025/09/03/will-fries-minnesota-vikings-guard-offensive-line/
-
-**In final month of Cardinals season, Jordan Walker's commitment to approach will define his year**\
-`St. Louis has not seen nearly enough improvement this year.`\
-https://nytimes.com/athletic/6593388/2025/09/03/jordan-walker-st-louis-cardinals-improvement/
 
