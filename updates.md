@@ -1,3 +1,19 @@
+**Smithsonian Responds to Trump’s Demand for a Review of Its Exhibits**\
+`In a letter to the White House, the Smithsonian asserted its “authority over our programming and content,” but said a team would review what information it would turn over.`\
+https://nytimes.com/2025/09/03/arts/design/smithsonian-bunch-trump.html
+
+**Newsom and Republicans Scramble to Raise Cash in Redistricting Fight**\
+`Total spending could top $200 million in a November contest that could help determine control of the House next year.`\
+https://nytimes.com/2025/09/03/us/elections/california-redistricting-fundraising-newsom.html
+
+**Harvard Secures a Court Victory in Its Fight With Trump**\
+`Harvard had sued the Trump administration in an effort to restore billions in research funds that the government canceled this spring.`\
+https://nytimes.com/2025/09/03/us/harvard-trump-funding-ruling.html
+
+**NBA to investigate Clippers, Kawhi Leonard for alleged salary cap 'circumvention'**\
+`The investigation comes after a report Wednesday by the podcast "Pablo Torre Finds Out."`\
+https://nytimes.com/athletic/6595855/2025/09/03/nba-investigation-clippers-kawhi-leonard-endorsement-deal/
+
 **Judge Issues Ruling Helpful to Harvard in Case Against Trump**\
 `Harvard had sued the Trump administration in an effort to restore billions in research funds that the government canceled this spring.`\
 https://nytimes.com/2025/09/03/us/judge-rules-for-harvard-research-funding.html
