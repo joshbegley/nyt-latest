@@ -1,3 +1,19 @@
+**Oliver Moore pleased with offseason, ready to make Blackhawks out of camp**\
+`Whether Moore starts the season with the IceHogs or Blackhawks will be one of the major questions during training camp.`\
+https://nytimes.com/athletic/6595202/2025/09/03/blackhawks-oliver-moore-offseason-camp/
+
+**What’s in Our Queue? ‘Robot Dreams’ and More**\
+`Text by Tejal Rao`\
+https://nytimes.com/card/2025/09/03/arts/editors-recommendations-robotdreams
+
+**'Hard Knocks' is a wrap: Bills survive without revealing much**\
+`Many potentially interesting subjects were left unexplored during the miniseries.`\
+https://nytimes.com/athletic/6595443/2025/09/03/hard-knocks-buffalo-bills-finale/
+
+**U.S. Hockey's 2025 Hall of Fame class includes Joe Pavelski, 4 others**\
+`The U.S. Hockey Hall of Fame class of 2025 also includes Olympic gold medalist Tara Mounsey and photographer Bruce Bennett.`\
+https://nytimes.com/athletic/6595450/2025/09/03/usa-hockey-hall-of-fame-2025-class/
+
 **Kalen DeBoer answering job security questions after Week 1? Never a good sign**\
 `Things are not pretty. And with so much season left, there’s so much time to either turn it around — or for it to get so much worse.`\
 https://nytimes.com/athletic/6595501/2025/09/03/alabama-kalen-deboer-buyout-hot-seat/

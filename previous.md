@@ -1,3 +1,11 @@
+**Oliver Moore pleased with offseason, ready to make Blackhawks out of camp**\
+`Whether Moore starts the season with the IceHogs or Blackhawks will be one of the major questions during training camp.`\
+https://nytimes.com/athletic/6595202/2025/09/03/blackhawks-oliver-moore-offseason-camp/
+
+**What’s in Our Queue? ‘Robot Dreams’ and More**\
+`Text by Tejal Rao`\
+https://nytimes.com/card/2025/09/03/arts/editors-recommendations-robotdreams
+
 **Kalen DeBoer answering job security questions after Week 1? Never a good sign**\
 `Things are not pretty. And with so much season left, there’s so much time to either turn it around — or for it to get so much worse.`\
 https://nytimes.com/athletic/6595501/2025/09/03/alabama-kalen-deboer-buyout-hot-seat/
@@ -18,7 +26,7 @@ https://nytimes.com/athletic/6595523/2025/09/03/mayra-ramirez-injury-chelsea/
 `Scott currently does play-by-play for the 76ers and calls soccer for Fox and CBS Sports.`\
 https://nytimes.com/athletic/6595336/2025/09/03/kate-scott-first-woman-call-nfl-game-westwood-one/
 
-**'Hard Knocks' is a wrap: Buffalo Bills survive without revealing much**\
+**'Hard Knocks' is a wrap: Bills survive without revealing much**\
 `Many potentially interesting subjects were left unexplored during the miniseries.`\
 https://nytimes.com/athletic/6595443/2025/09/03/hard-knocks-buffalo-bills-finale/
 
@@ -26,15 +34,7 @@ https://nytimes.com/athletic/6595443/2025/09/03/hard-knocks-buffalo-bills-finale
 `Our critic A.O. Scott takes apart a scene from “Mrs. Dalloway,” Virginia Woolf’s 1925 masterpiece, and shows why the book is a must-read now.`\
 https://nytimes.com/interactive/2025/09/03/books/virginia-woolf-mrs-dalloway-100-years-modernism.html
 
-**USA Hockey announces 2025 Hall of Fame class**\
-`The class also includes Olympic gold medalist Tara Mounsey and photographer Bruce Bennett.`\
+**U.S. Hockey's 2025 Hall of Fame class includes Joe Pavelski, 4 others**\
+`The U.S. Hockey Hall of Fame class of 2025 also includes Olympic gold medalist Tara Mounsey and photographer Bruce Bennett.`\
 https://nytimes.com/athletic/6595450/2025/09/03/usa-hockey-hall-of-fame-2025-class/
-
-**F.D.A. Official Overruled Scientists on Wide Access to Covid Shots**\
-`The agency’s staff scientists pointed out how Covid was still unpredictable and posed a threat to toddlers, but the official decided to restrict shots only to children with risk factors.`\
-https://nytimes.com/2025/09/03/health/fda-covid-vaccines-rfk-jr.html
-
-**‘Linda Linda Linda’: These Girls Just Want to Have Fun**\
-`Newly restored, this film about a group of Japanese rockers opens at the IFC Center, its charm undiminished.`\
-https://nytimes.com/2025/09/03/movies/linda-linda-linda-ifc.html
 
