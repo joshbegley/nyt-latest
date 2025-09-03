@@ -1,3 +1,11 @@
+**The New York Times in Print for Wednesday, Sep. 3, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/09/03/todays-new-york-times
+
+**The Door to Another African Democracy Is Closing**\
+`The conviction of the transitional prime minister in Chad is emblematic of how democracy is eroding across the Sahel region of Northern Africa.`\
+https://nytimes.com/2025/09/03/opinion/chad-africa-democracy-masra.html
+
 **China’s Military Spectacle**\
 `China used a parade of fighter jets, missiles and goose-stepping troops to honor the country’s wartime sacrifice and issue a defiant warning to rivals.`\
 https://nytimes.com/2025/09/03/world/asia/china-military-parade.html
@@ -29,13 +37,4 @@ https://nytimes.com/athletic/6591881/2025/09/03/leeds-sunderland-burnley-premier
 **Hater's Ball: A pessimist's take on the top 50 players in fantasy football 2025**\
 `What could go wrong for your top 50 picks in fantasy football 2025? Michael Salfino shares a glass-half-empty take for each player.`\
 https://nytimes.com/athletic/6592414/2025/09/03/fantasy-football-2025-haters-ball-top-50/
-
-**Manchester City and the long summer of goalkeepers**\
-`The signing of Gianluigi Donnarumma completes a complete overhaul of City's goalkeeping department - and raises some tactical questions too`\
-https://nytimes.com/athletic/6591483/2025/09/03/manchester-city-goalkeeper-situation-summer-2025/
-
-**Row Z: Newcastle’s tearful Isak tribute, Martinez hanging on the telephone, and Nuno’s quick maths**\
-`Welcome to Row Z, The Athletic’s column that shines a light on the bonkers side of the game
-`\
-https://nytimes.com/athletic/6591572/2025/09/03/row-z-isak-liverpool-newcastle-martinez-manchester-united-chelsea/
 
