@@ -1,3 +1,5 @@
+
+
 **Benches clear, punches thrown in Giants-Rockies matchup after Rafael Devers homer**\
 `In the end, Devers moved from first base to make his Giants debut as a third baseman — a position he hadn't played all season.`\
 https://nytimes.com/athletic/6593685/2025/09/02/giants-rockies-brawl-ejections/
