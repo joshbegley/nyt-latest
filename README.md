@@ -1,3 +1,15 @@
+**How to watch Giants at Rockies: Time, TV, streaming**\
+`Find out how to watch the San Francisco Giants play the Colorado Rockies, with time, TV channel, and streaming information.`\
+https://nytimes.com/athletic/6593856/2025/09/02/san-francisco-giants-vs-colorado-rockies-stream-how-to-watch-sept-3/
+
+**How to watch Orioles at Padres: Time, TV, streaming**\
+`Find out how to watch the Baltimore Orioles play the San Diego Padres, with time, TV channel, and streaming information.`\
+https://nytimes.com/athletic/6593853/2025/09/02/baltimore-orioles-vs-san-diego-padres-stream-how-to-watch-sept-3/
+
+**How to watch Rangers at Diamondbacks: Time, TV, streaming**\
+`Find out how to watch the Texas Rangers play the Arizona Diamondbacks, with time, TV channel, and streaming information.`\
+https://nytimes.com/athletic/6593850/2025/09/02/texas-rangers-vs-arizona-diamondbacks-stream-how-to-watch-sept-3/
+
 **Dodgers' Teoscar Hernández searches for 'edge' as he tries to right ship on season**\
 `Struggling outfielder has become the avatar for the Los Angeles Dodgers' inconsistency in recent months.`\
 https://nytimes.com/athletic/6593773/2025/09/02/teoscar-hernandez-dodgers-struggles/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/09/02/us/bigamy-marriages-north-carolina.html
 **Federal Appeals Court Reinstates an F.T.C. Commissioner Fired by Trump**\
 `The court said the commissioner, Rebecca Kelly Slaughter, had been illegally terminated “without cause.”`\
 https://nytimes.com/2025/09/02/us/politics/ftc-commissioner-slaughter-trump.html
-
-**NFL will not play a Week 1 game on Friday next season, citing federal law**\
-`The change is due to the Sports Broadcasting Act of 1961, which regulates NFL broadcasts during college and high school football seasons.`\
-https://nytimes.com/athletic/6593437/2025/09/02/nfl-no-week-1-friday-game-2026/
-
-**College athletes file lawsuit challenging NCAA eligibility rules**\
-`The antitrust complaint says that eligibility rules unfairly restrict earning potential while competing in college.`\
-https://nytimes.com/athletic/6593445/2025/09/02/vanderbilt-football-ncaa-eligibility-lawsuit/
-
-**Shohei Ohtani's 100th career homer as a Dodger is also his hardest hit**\
-`Ohtani is now the fastest in franchise history to reach the milestone, passing Gary Sheffield in the process. `\
-https://nytimes.com/athletic/6593471/2025/09/02/shohei-ohtani-dodgers-home-run-milestone/
 
