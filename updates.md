@@ -1,3 +1,15 @@
+**UEFA president warns FIFA over any biennial Club World Cup plans**\
+`The next edition is scheduled for 2029 but FIFA is widely believed to be exploring ways to make the expanded tournament a biennial event.`\
+https://nytimes.com/athletic/6594361/2025/09/03/club-world-cup-plans-uefa-ceferin/
+
+**Far-right Israeli Minister Calls for West Bank Annexation**\
+`Bezalel Smotrich said Israel should take over most of the territory,  partly in response to growing international moves to recognize a Palestinian state.`\
+https://nytimes.com/2025/09/03/world/middleeast/israel-west-bank-annexations.html
+
+**Loftus-Cheek adjusted to being England 'fan' in six-year national team absence**\
+`The Milan midfielder is back in the England squad for the first time since 2019, having last played for his country in 2018.`\
+https://nytimes.com/athletic/6594348/2025/09/03/ruben-loftus-cheek-england-recall/
+
 **Four reasons Yankees’ win over Astros was massive: ‘This is what we’ve got to do’**\
 `An anxiety-reducing 7-1 win on Tuesday night keeps the Yankees 2 1/2 games back of the Toronto Blue Jays for the AL East lead.`\
 https://nytimes.com/athletic/6593995/2025/09/03/yankees-astros-four-takeaways/
