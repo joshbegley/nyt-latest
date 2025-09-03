@@ -1,3 +1,15 @@
+**A New York Restaurant With a Californian ‘Aura’**\
+`Plus: Sofia Coppola collaborates on a striped shirt, English-made cutlery and more recommendations from T Magazine.`\
+https://nytimes.com/2025/09/03/t-magazine/flynn-mcgarry-cove.html
+
+**Wildfire Burns Through Historic California Gold Rush Town**\
+`A large wildfire in Northern California destroyed some buildings in Chinese Camp, a historic town for early Chinese American life during the Gold Rush.`\
+https://nytimes.com/video/us/100000010377287/wildfire-california-gold-rush.html
+
+**What's Going On With Boys?**\
+`Many are not thriving in their schooling, mental health and transitions to adulthood.`\
+https://nytimes.com/issue/upshot/2025/09/03/whats-going-on-with-boys
+
 **Representative LaMonica McIver Overcomes G.O.P. Effort to Censure Her**\
 `Ms. McIver, a New Jersey Democrat, has been charged with assaulting immigration agents outside a detention center. A push to censure her and eject her from a House committee failed.`\
 https://nytimes.com/2025/09/03/nyregion/monica-mciver-committee-assault-charge.html

@@ -1,9 +1,17 @@
+**A New York Restaurant With a Californian ‘Aura’**\
+`Plus: Sofia Coppola collaborates on a striped shirt, English-made cutlery and more recommendations from T Magazine.`\
+https://nytimes.com/2025/09/03/t-magazine/flynn-mcgarry-cove.html
+
+**Wildfire Burns Through Historic California Gold Rush Town**\
+`A large wildfire in Northern California destroyed some buildings in Chinese Camp, a historic town for early Chinese American life during the Gold Rush.`\
+https://nytimes.com/video/us/100000010377287/wildfire-california-gold-rush.html
+
 **Representative LaMonica McIver Overcomes G.O.P. Effort to Censure Her**\
 `Ms. McIver, a New Jersey Democrat, has been charged with assaulting immigration agents outside a detention center. A push to censure her and eject her from a House committee failed.`\
 https://nytimes.com/2025/09/03/nyregion/monica-mciver-committee-assault-charge.html
 
 **What's Going On With Boys?**\
-``\
+`Many are not thriving in their schooling, mental health and transitions to adulthood.`\
 https://nytimes.com/issue/upshot/2025/09/03/whats-going-on-with-boys
 
 **Two prominent MLB agents fired from Ballengee Group**\
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6595828/2025/09/03/angel-reese-calls-out-chicago-sk
 **Smithsonian Responds to Trump’s Demand for a Review of Its Exhibits**\
 `In a letter to the White House, the Smithsonian asserted its “authority over our programming and content,” but said a team would review what information it would turn over.`\
 https://nytimes.com/2025/09/03/arts/design/smithsonian-bunch-trump.html
-
-**Newsom and Republicans Scramble to Raise Cash in Redistricting Fight**\
-`Total spending could top $200 million in a November contest that could help determine control of the House next year.`\
-https://nytimes.com/2025/09/03/us/elections/california-redistricting-fundraising-newsom.html
-
-**Harvard Secures a Court Victory in Its Fight With Trump**\
-`Harvard had sued the Trump administration in an effort to restore billions in research funds that the government canceled this spring.`\
-https://nytimes.com/2025/09/03/us/harvard-trump-funding-ruling.html
 
