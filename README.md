@@ -1,3 +1,19 @@
+**Sabres mailbag: Submit your questions to Matthew Fairburn**\
+`Have questions about the Sabres as training camp and preseason approach?`\
+https://nytimes.com/athletic/6594890/2025/09/03/buffalo-sabres-mailbag-september-2025/
+
+**The Met Opera Turns to Saudi Arabia to Help Solve Its Financial Woes**\
+`The Met, which has withdrawn $120 million from its endowment since the pandemic, reached a lucrative deal to perform in Saudi Arabia for three weeks each winter.`\
+https://nytimes.com/2025/09/03/arts/music/met-opera-saudi-arabia-finances.html
+
+**Tonight’s Dinner Could Be a Best-in-Class Shrimp Curry**\
+`Plus, some recommendations for using all that summer zucchini and a make-ahead breakfast for the ages.`\
+https://nytimes.com/2025/09/03/dining/tonights-dinner-could-be-a-best-in-class-shrimp-curry.html
+
+**How U.S.A. basketball rebuilt after a disastrous 2004 Olympics and made history**\
+`The iconic "Redeem Team" headlined by Kobe Bryant, LeBron James and Dwyane Wade will be inducted into the Hall of Fame Saturday.`\
+https://nytimes.com/athletic/6592412/2025/09/03/usa-basketball-2008-olympics-redeem-team-hall-of-fame/
+
 **Habits to Remain Injury-Free, According to Physical Therapists**\
 `Experts see a lot of people who might have avoided their aches and pains. Here are a few of their favorite tips.`\
 https://nytimes.com/2025/09/03/well/move/physical-therapists-advice-pain.html
@@ -21,20 +37,4 @@ https://nytimes.com/2025/09/03/world/europe/uk-graham-linehan-arrest-free-speech
 **Hegseth Says Boat Strike Is Start of Campaign Against Venezuelan Cartels**\
 `The defense secretary and President Trump said a small boat was carrying drugs but offered little evidence and few details.`\
 https://nytimes.com/2025/09/03/us/politics/hegseth-venezuela-drug-strike.html
-
-**Oilers GM Stan Bowman not rushing Connor McDavid talks: 'When he’s ready, he’s ready'**\
-`Bowman says there have been "constructive conversations" on an extension, but McDavid "has earned the right not to be forced into anything."`\
-https://nytimes.com/athletic/6594667/2025/09/03/connor-mcdavid-extension-oilers-stan-bowman/
-
-**Former Smithsonian Museum Director Heads to Milwaukee**\
-`Kim Sajet, who stepped down as director of the National Portrait Gallery after President Trump said he was firing her, is becoming director of the Milwaukee Art Museum.`\
-https://nytimes.com/2025/09/03/arts/design/kim-sajet-smithsonian-museum-director-milwaukee.html
-
-**Snubbing Kennedy, States Announce Plans to Coordinate on Vaccines**\
-`Governors in California, Oregon and Washington said their states would work together on vaccine guidance in a time of turmoil at the Centers for Disease Control and Prevention.`\
-https://nytimes.com/2025/09/03/us/western-health-alliance.html
-
-**Federal Courts Slow to Fix Vulnerable System After Repeated Hacking**\
-`After a 2020 breach thought to be Russia’s work, the courts told Congress that they would harden a system storing sealed documents. Five years later, the system was hacked again.`\
-https://nytimes.com/2025/09/03/us/politics/federal-courts-computer-hacks.html
 
