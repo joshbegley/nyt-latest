@@ -1,3 +1,7 @@
+**Trump Advisers Have Discussed a Job for Adams if He Quits Mayor’s Race**\
+`The conversations have also involved Curtis Sliwa with the goal of giving Andrew Cuomo a better chance of defeating Zohran Mamdani in November.`\
+https://nytimes.com/2025/09/03/nyregion/trump-adams-sliwa-quit-nyc-mayor.html
+
 **Scoop City: Seven predictions for 2025**\
 `Seven predictions for 2025, including my Super Bowl pick. Plus: Mike Sando explains why Dallas is the league's most underrated team.`\
 https://nytimes.com/athletic/6595376/2025/09/03/predictions-nfl-2025-ravens-packers-cowboys/
