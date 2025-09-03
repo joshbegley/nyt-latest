@@ -1,3 +1,7 @@
+**Dodgers' Teoscar Hernández searches for 'edge' as he tries to right ship on season**\
+`Struggling outfielder has become the avatar for the Los Angeles Dodgers' inconsistency in recent months.`\
+https://nytimes.com/athletic/6593773/2025/09/02/teoscar-hernandez-dodgers-struggles/
+
 **Red Sox rookie Roman Anthony headed for MRI after exit with oblique tightness**\
 `Anthony said he’s never dealt with oblique issues before and felt it for the first time in his at-bat.`\
 https://nytimes.com/athletic/6593756/2025/09/02/boston-red-sox-roman-anthony-injury/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6593445/2025/09/02/vanderbilt-football-ncaa-eligibi
 **Shohei Ohtani's 100th career homer as a Dodger is also his hardest hit**\
 `Ohtani is now the fastest in franchise history to reach the milestone, passing Gary Sheffield in the process. `\
 https://nytimes.com/athletic/6593471/2025/09/02/shohei-ohtani-dodgers-home-run-milestone/
-
-**How to watch Phillies at Brewers: Time, TV, streaming**\
-`Find out how to watch the Philadelphia Phillies play the Milwaukee Brewers, with time, TV channel, and streaming information.`\
-https://nytimes.com/athletic/6593539/2025/09/02/philadelphia-phillies-vs-milwaukee-brewers-stream-how-to-watch-sept-3/
 
