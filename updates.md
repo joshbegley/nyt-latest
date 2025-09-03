@@ -1,3 +1,11 @@
+**Karolína Muchová's beautiful tennis at the U.S. Open – and her journey to get back there**\
+`As Muchová aims for her third U.S. Open semifinal in three years, she reflects on her journey through injury devastation to get here.`\
+https://nytimes.com/athletic/6593379/2025/09/03/karolina-muchova-tennis-us-open/
+
+**The New York Times International Edition in Print for Thursday, Sep. 4, 2025**\
+``\
+https://nytimes.com/issue/todaysinyt/2025/09/03/todays-new-york-times-international-edition
+
 **How the 'right words at the right moment' brought back the best of Iga Swiatek's tennis**\
 `Świątek's tennis gifts set her apart from every other player in the world. The past six months have been a journey into unwrapping them.`\
 https://nytimes.com/athletic/6591237/2025/09/03/iga-swiatek-tennis-game-coach-wim-fissette/
