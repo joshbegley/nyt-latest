@@ -1,3 +1,15 @@
+**Judge Issues Ruling Helpful to Harvard in Case Against Trump**\
+`Harvard had sued the Trump administration in an effort to restore billions in research funds that the government canceled this spring.`\
+https://nytimes.com/2025/09/03/us/judge-rules-for-harvard-research-funding.html
+
+**'We’re doing something that makes sense': UC San Diego set to join West Coast Conference**\
+`The Tritons will join the WCC in 2027, one year after Gonzaga moves to the Pac-12 in 2026. `\
+https://nytimes.com/athletic/6595853/2025/09/03/uc-san-diego-west-coast-conference/
+
+**U.S. and Mexico Vow to Fight Crime While Respecting Sovereignty**\
+`Secretary of State Marco Rubio met with President Claudia Sheinbaum, after she pressed the Trump administration not to take unilateral action in Mexico.`\
+https://nytimes.com/2025/09/03/world/americas/us-mexico-rubio-sheinbaum-crime.html
+
 **How Anime Took Over America**\
 `Netflix’s “Demon Slayer” is just the latest confirmation of how Japan’s once-distinctive animation style has become a global visual language.`\
 https://nytimes.com/interactive/2025/09/03/magazine/anime-manga-pokemon-demon-slayer-dragon-ball-z.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/09/03/us/politics/senator-warner-laura-loomer.html
 **Watchdog Warns Trump’s Cuts at FEMA Pose a ‘Major Challenge’**\
 `The country lacks the ability to address multiple disasters happening at once, the Government Accountability Office said.`\
 https://nytimes.com/2025/09/03/climate/fema-cuts-government-accountability-office.html
-
-**Tiny Love Stories: ‘His Private Gambling Felt Like an Earthquake’**\
-`Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
-https://nytimes.com/2025/09/03/style/tiny-modern-love-stories-his-private-gambling-felt-like-an-earthquake.html
-
-**In Texas, a Senate Race Turns Brutal Before It’s Even Declared**\
-`Attorney General Ken Paxton is waging “legal war” against Beto O’Rourke, a possible Democratic rival, threatening jail and an investigation that could bankrupt his organization.`\
-https://nytimes.com/2025/09/03/us/politics/ken-paxton-beto-orourke.html
-
-**Putin Sends a Message With ‘Limo Diplomacy’ in China**\
-`During the Eurasian summit in China, President Vladimir V. Putin of Russia had conversations with leaders in the backseat of his presidential state car, offering him an ideal setting for deepening ties.`\
-https://nytimes.com/video/world/asia/100000010376076/putin-limo-china-relations.html
 

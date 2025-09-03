@@ -1,3 +1,7 @@
+**Newsom and Republicans Scramble to Raise Cash in Redistricting Fight**\
+`Total spending could top $200 million in a November contest that could help determine control of the House next year.`\
+https://nytimes.com/2025/09/03/us/elections/california-redistricting-fundraising-newsom.html
+
 **Judge Issues Ruling Helpful to Harvard in Case Against Trump**\
 `Harvard had sued the Trump administration in an effort to restore billions in research funds that the government canceled this spring.`\
 https://nytimes.com/2025/09/03/us/judge-rules-for-harvard-research-funding.html
@@ -22,8 +26,8 @@ https://nytimes.com/video/world/europe/100000010377021/lisbon-gloria-funicular-c
 `Jon Greenberg and Zac Jackson make their bets for the first week of the NFL season and Week 2 in college. Fade the bad QBs.`\
 https://nytimes.com/athletic/6595700/2025/09/03/betting-for-by-dummies-steelers-broncos-eagles/
 
-**NBA to investigate Clippers, Kawhi Leonard for alleged salary cap ‘circumvention’**\
-`The investigation comes after a report Wednesday by the podcast “Pablo Torre Finds Out.”`\
+**NBA to investigate Clippers, Kawhi Leonard for alleged salary cap 'circumvention'**\
+`The investigation comes after a report Wednesday by the podcast "Pablo Torre Finds Out."`\
 https://nytimes.com/athletic/6595855/2025/09/03/nba-investigation-clippers-kawhi-leonard-endorsement-deal/
 
 **Hutchinson, Zinchenko left out of Forest's Europa League squad**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6595829/2025/09/03/forest-europa-league-squad-hutch
 **Senator’s Visit to Spy Agency Was Canceled After Laura Loomer Complained**\
 `Senator Mark Warner’s visit was classified and not intended to be publicized. It was to include a meeting with the head of the agency and a briefing on the agency’s use of artificial intelligence.`\
 https://nytimes.com/2025/09/03/us/politics/senator-warner-laura-loomer.html
-
-**Watchdog Warns Trump’s Cuts at FEMA Pose a ‘Major Challenge’**\
-`The country lacks the ability to address multiple disasters happening at once, the Government Accountability Office said.`\
-https://nytimes.com/2025/09/03/climate/fema-cuts-government-accountability-office.html
 

@@ -1,3 +1,15 @@
+**Judge Issues Ruling Helpful to Harvard in Case Against Trump**\
+`Harvard had sued the Trump administration in an effort to restore billions in research funds that the government canceled this spring.`\
+https://nytimes.com/2025/09/03/us/judge-rules-for-harvard-research-funding.html
+
+**'We’re doing something that makes sense': UC San Diego set to join West Coast Conference**\
+`The Tritons will join the WCC in 2027, one year after Gonzaga moves to the Pac-12 in 2026. `\
+https://nytimes.com/athletic/6595853/2025/09/03/uc-san-diego-west-coast-conference/
+
+**U.S. and Mexico Vow to Fight Crime While Respecting Sovereignty**\
+`Secretary of State Marco Rubio met with President Claudia Sheinbaum, after she pressed the Trump administration not to take unilateral action in Mexico.`\
+https://nytimes.com/2025/09/03/world/americas/us-mexico-rubio-sheinbaum-crime.html
+
 **How Anime Took Over America**\
 `Netflix’s “Demon Slayer” is just the latest confirmation of how Japan’s once-distinctive animation style has become a global visual language.`\
 https://nytimes.com/interactive/2025/09/03/magazine/anime-manga-pokemon-demon-slayer-dragon-ball-z.html
