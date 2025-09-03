@@ -1,3 +1,7 @@
+**Four reasons Yankees’ win over Astros was massive: ‘This is what we’ve got to do’**\
+`An anxiety-reducing 7-1 win on Tuesday night keeps the Yankees 2 1/2 games back of the Toronto Blue Jays for the AL East lead.`\
+https://nytimes.com/athletic/6593995/2025/09/03/yankees-astros-four-takeaways/
+
 **What Justin Crawford is working on in Triple A as he waits for chance with Phillies**\
 `The club likes what it has seen from Crawford and feels he could contribute in the majors. What is he focusing on while he waits his turn?`\
 https://nytimes.com/athletic/6592817/2025/09/03/justin-crawford-phillies-prospect-triple-a/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6593141/2025/09/03/iowa-isu-cyhawk-rivalry-finances
 **Will Arch Manning, Nico Iamaleava and other Class of 2023 QBs deliver on high potential?**\
 `There were five five-star QBs in the 2023 cycle, and all five were ranked among the top 11 players in the class. `\
 https://nytimes.com/athletic/6593247/2025/09/03/college-football-qbs-arch-manning-class-2023/
-
-**How Keisean Nixon became the Packers' No. 1 cornerback, whether you like it or not**\
-`Nixon, now a full-time outside cornerback, might be the X-factor when it comes to Green Bay's Super Bowl aspirations.`\
-https://nytimes.com/athletic/6593017/2025/09/03/keisean-nixon-packers-top-cornerback/
 

@@ -1,3 +1,7 @@
+**Four reasons Yankees’ win over Astros was massive: ‘This is what we’ve got to do’**\
+`An anxiety-reducing 7-1 win on Tuesday night keeps the Yankees 2 1/2 games back of the Toronto Blue Jays for the AL East lead.`\
+https://nytimes.com/athletic/6593995/2025/09/03/yankees-astros-four-takeaways/
+
 **Will Arch Manning, Nico Iamaleava and other Class of 2023 QBs deliver on high potential?**\
 `There were five five-star QBs in the 2023 cycle, and all five were ranked among the top 11 players in the class. `\
 https://nytimes.com/athletic/6593247/2025/09/03/college-football-qbs-arch-manning-class-2023/
