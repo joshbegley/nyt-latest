@@ -1,3 +1,7 @@
+**What Would You Write in a Letter to Your Future Self?**\
+`A Times newsletter recommends writing a letter to future you.`\
+https://nytimes.com/2025/09/03/learning/what-would-you-write-in-a-letter-to-your-future-self.html
+
 **Forest's Silva missed out on Sporting transfer after deadline missed**\
 `The collapsed transfer came amid a significant discrepancy on when Portugal's summer transfer window actually closed.`\
 https://nytimes.com/athletic/6593055/2025/09/03/nottingham-forest-jota-silva-sporting/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/03/style/family-theft-suspicions.html
 **Seattle Seahawks 2025 streaming guide: How to watch Sam Darnold and new-look roster**\
 `With the NFL season starting, here's how to watch all 17 (or more...) Seattle Seahawks games this year.`\
 https://nytimes.com/athletic/6588750/2025/09/03/seattle-seahawks-how-to-watch-2025-tv-schedule/
-
-**Vote in the latest Scoop City poll here!**\
-`Welcome to the polling page for Scoop City, The Athletic's free NFL newsletter.`\
-https://nytimes.com/athletic/6579290/2025/09/03/scoop-city-newsletter-poll-vote/
 

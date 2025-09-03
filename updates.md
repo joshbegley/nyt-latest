@@ -1,3 +1,7 @@
+**What Would You Write in a Letter to Your Future Self?**\
+`A Times newsletter recommends writing a letter to future you.`\
+https://nytimes.com/2025/09/03/learning/what-would-you-write-in-a-letter-to-your-future-self.html
+
 **Forest's Silva missed out on Sporting transfer after deadline missed**\
 `The collapsed transfer came amid a significant discrepancy on when Portugal's summer transfer window actually closed.`\
 https://nytimes.com/athletic/6593055/2025/09/03/nottingham-forest-jota-silva-sporting/
