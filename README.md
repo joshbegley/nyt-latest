@@ -1,3 +1,7 @@
+**Fourteen Years After Japan’s Nuclear Disaster, People With Cancer Seek Answers**\
+`A survey has found hundreds of thyroid tumors, but Japanese officials say they are unrelated to the Fukushima meltdowns. Now they face a lawsuit.`\
+https://nytimes.com/2025/09/03/world/asia/japan-fukushima-nuclear-cancer.html
+
 **The New York Times in Print for Wednesday, Sep. 3, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/09/03/todays-new-york-times
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6591625/2025/09/03/premier-league-transfer-window-g
 **Can Leeds, Sunderland and Burnley stay in the Premier League?**\
 `The newly promoted teams boast 13 points and four wins between them already, suggesting they might yet buck the top-flight's recent trend`\
 https://nytimes.com/athletic/6591881/2025/09/03/leeds-sunderland-burnley-premier-league/
-
-**Hater's Ball: A pessimist's take on the top 50 players in fantasy football 2025**\
-`What could go wrong for your top 50 picks in fantasy football 2025? Michael Salfino shares a glass-half-empty take for each player.`\
-https://nytimes.com/athletic/6592414/2025/09/03/fantasy-football-2025-haters-ball-top-50/
 
