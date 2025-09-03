@@ -2,7 +2,7 @@
 `By John Yoon and Francesca Regalado`\
 https://nytimes.com/live/2025/09/03/us/trump-news/heres-the-latest
 
-**Inside Leeds United's window: Ambitious bids, goalkeeper delays and a disappointing final day**\
+**Inside Leeds United's window: Ambitious bids, goalkeeper delays, and a disappointing final day**\
 `Leeds had a quick start to the window but fans were left disappointed by how it ended`\
 https://nytimes.com/athletic/6591764/2025/09/03/inside-leeds-united-transfer-window/
 
