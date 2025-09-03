@@ -1,3 +1,7 @@
+**Kennedy to Add New Members to Vaccine Advisory Panel**\
+`The health secretary fired the original committee members in June, replacing them with some who have been critical of vaccines.`\
+https://nytimes.com/2025/09/03/health/rfk-jr-acip-vaccine-members.html
+
 **Florida Plans to End All Vaccine Mandates**\
 `Plus, a legal victory for Harvard. Here’s the latest at the end of Wednesday.`\
 https://nytimes.com/2025/09/03/briefing/florida-vaccines-harvard.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/us/100000010377287/wildfire-california-gold-rush.html
 **Representative LaMonica McIver Overcomes G.O.P. Effort to Censure Her**\
 `Ms. McIver, a New Jersey Democrat, has been charged with assaulting immigration agents outside a detention center. A push to censure her and eject her from a House committee failed.`\
 https://nytimes.com/2025/09/03/nyregion/monica-mciver-committee-assault-charge.html
-
-**What's Going On With Boys?**\
-`Many are not thriving in their schooling, mental health and transitions to adulthood.`\
-https://nytimes.com/issue/upshot/2025/09/03/whats-going-on-with-boys
 
