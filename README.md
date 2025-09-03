@@ -1,3 +1,7 @@
+**How Anime Took Over America**\
+`Netflix’s “Demon Slayer” is just the latest confirmation of how Japan’s once-distinctive animation style has become a global visual language.`\
+https://nytimes.com/interactive/2025/09/03/magazine/anime-manga-pokemon-demon-slayer-dragon-ball-z.html
+
 **Funicular Accident Leaves Several Dead in Lisbon**\
 `According to Portugal’s health ministry, at least 15 people were killed and 18 others were injured after the Elevador da Glória derailed and crashed in Lisbon on Wednesday.`\
 https://nytimes.com/video/world/europe/100000010377021/lisbon-gloria-funicular-crash-fatalities.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/03/us/politics/ken-paxton-beto-orourke.html
 **Putin Sends a Message With ‘Limo Diplomacy’ in China**\
 `During the Eurasian summit in China, President Vladimir V. Putin of Russia had conversations with leaders in the backseat of his presidential state car, offering him an ideal setting for deepening ties.`\
 https://nytimes.com/video/world/asia/100000010376076/putin-limo-china-relations.html
-
-**NFL RedZone host Scott Hanson confirms broadcast will feature commercials this season**\
-`Hanson's sign-on will be noticeably different this coming Sunda`\
-https://nytimes.com/athletic/6595714/2025/09/03/nfl-redzone-host-broadcast-will-feature-commercials-this-season/
 
