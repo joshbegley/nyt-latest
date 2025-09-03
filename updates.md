@@ -1,3 +1,7 @@
+**Will Arch Manning, Nico Iamaleava and other Class of 2023 QBs deliver on high potential?**\
+`There were five five-star QBs in the 2023 cycle, and all five were ranked among the top 11 players in the class. `\
+https://nytimes.com/athletic/6593247/2025/09/03/college-football-qbs-arch-manning-class-2023/
+
 **What Justin Crawford is working on in Triple A as he waits for chance with Phillies**\
 `The club likes what it has seen from Crawford and feels he could contribute in the majors. What is he focusing on while he waits his turn?`\
 https://nytimes.com/athletic/6592817/2025/09/03/justin-crawford-phillies-prospect-triple-a/

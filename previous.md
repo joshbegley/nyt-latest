@@ -30,7 +30,7 @@ https://nytimes.com/athletic/6593196/2025/09/03/bengals-season-predictions-joe-b
 `Iowa and Iowa State are close in proximity and competitiveness but their conference and financial situations present different challenges.`\
 https://nytimes.com/athletic/6593141/2025/09/03/iowa-isu-cyhawk-rivalry-finances/
 
-**Evaluating Class of 2023 quarterbacks after the opening weekend of the season**\
+**Will Arch Manning, Nico Iamaleava and other Class of 2023 QBs deliver on high potential?**\
 `There were five five-star QBs in the 2023 cycle, and all five were ranked among the top 11 players in the class. `\
 https://nytimes.com/athletic/6593247/2025/09/03/college-football-qbs-arch-manning-class-2023/
 
