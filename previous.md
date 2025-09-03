@@ -1,3 +1,11 @@
+**Kim Jong-un Brings a Guest to Beijing: His Daughter and Potential Heir**\
+`Kim Ju-ae’s presence at a major gathering of world leaders is the latest sign that North Korea’s dictator considers her a successor, analysts said.`\
+https://nytimes.com/2025/09/02/world/asia/kim-jong-un-ju-ae-china.html
+
+**As Mets mull next move with Kodai Senga, an optional demotion could be on the table**\
+`The emergence of Nolan McLean has provided the Mets with a frontline starter, as well as decisions to make.`\
+https://nytimes.com/athletic/6593785/2025/09/02/new-york-mets-kodai-senga-decisions/
+
 **U.S. Olympic legend Greg Louganis sells medals to help fund move to Panama**\
 `Louganis, 65, also sold his home as a result of his move abroad. `\
 https://nytimes.com/athletic/6593775/2025/09/02/greg-louganis-olympic-medal-sale-us-panama-move/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6593640/2025/09/02/tcu-social-media-fun-bill-belich
 **Stalling Sounds**\
 `Michael B. Berg formalizes his requests.`\
 https://nytimes.com/2025/09/02/crosswords/daily-puzzle-2025-09-03.html
-
-**Benches clear, three players ejected in Giants-Rockies matchup after Rafael Devers homer**\
-`In the end, Devers moved from first base to make his Giants debut as a third baseman — a position he hadn't played all season.`\
-https://nytimes.com/athletic/6593685/2025/09/02/giants-rockies-brawl-ejections/
-
-**North Carolina Man Had at Least 3 Wives at the Same Time, Police Say**\
-`Money was the motivation, according to the authorities, who charged Harry Irvine Burdick Jr. with two counts of felony bigamy. There may be other victims, they said.`\
-https://nytimes.com/2025/09/02/us/bigamy-marriages-north-carolina.html
 
