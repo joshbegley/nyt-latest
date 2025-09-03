@@ -1,3 +1,11 @@
+**Epstein Victims Call for Release of More Documents and Accountability**\
+`The victims of Jeffrey Epstein demanded that all people who received sexual favors through the disgraced financier and sex offender be identified.`\
+https://nytimes.com/video/us/100000010377465/epstein-files-rally.html
+
+**Mets' problem with Ryan Helsley is getting worse**\
+`After allowing three runs in the Mets’ 6-2 loss to the Tigers on Wednesday, Helsley’s ERA with New York is 11.45.`\
+https://nytimes.com/athletic/6596239/2025/09/03/mets-ryan-helsley-pitching-problems-tigers/
+
 **The Odd Couple Keeping Epstein in the Headlines**\
 `A Kentucky Republican and a California Democrat have joined forces, but the task is getting taller.`\
 https://nytimes.com/2025/09/03/us/politics/epstein-files-massie-khanna.html

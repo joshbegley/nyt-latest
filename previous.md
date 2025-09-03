@@ -1,3 +1,11 @@
+**Epstein Victims Call for Release of More Documents and Accountability**\
+`The victims of Jeffrey Epstein demanded that all people who received sexual favors through the disgraced financier and sex offender be identified.`\
+https://nytimes.com/video/us/100000010377465/epstein-files-rally.html
+
+**Mets' problem with Ryan Helsley is getting worse**\
+`After allowing three runs in the Mets’ 6-2 loss to the Tigers on Wednesday, Helsley’s ERA with New York is 11.45.`\
+https://nytimes.com/athletic/6596239/2025/09/03/mets-ryan-helsley-pitching-problems-tigers/
+
 **The Odd Couple Keeping Epstein in the Headlines**\
 `A Kentucky Republican and a California Democrat have joined forces, but the task is getting taller.`\
 https://nytimes.com/2025/09/03/us/politics/epstein-files-massie-khanna.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/09/03/books/rosalyn-drexler-dead.html
 **As U.S. Adversaries Bond in Beijing, Trump Grows Frustrated With Putin**\
 `President Trump’s extraordinary summit with President Vladimir V. Putin of Russia last month has yet to yield any concrete results on the war in Ukraine.`\
 https://nytimes.com/2025/09/03/us/politics/trump-putin-russia-ukraine-china.html
-
-**Kennedy to Add New Members to Vaccine Advisory Panel**\
-`The health secretary fired the original committee members in June, replacing them with some who have been critical of vaccines.`\
-https://nytimes.com/2025/09/03/health/rfk-jr-acip-vaccine-members.html
-
-**Florida Plans to End All Vaccine Mandates**\
-`Plus, a legal victory for Harvard. Here’s the latest at the end of Wednesday.`\
-https://nytimes.com/2025/09/03/briefing/florida-vaccines-harvard.html
 
