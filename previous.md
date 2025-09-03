@@ -1,3 +1,7 @@
+**Inside Leeds United's window: Ambitious bids, goalkeeper delays and a disappointing final day**\
+`Leeds had a quick start to the window but fans were left disappointed by how it ended`\
+https://nytimes.com/athletic/6591764/2025/09/03/inside-leeds-united-transfer-window/
+
 **As Mamdani’s Stature Grows, He Tries to Shed Some Past Stances**\
 `Zohran Mamdani, the Democratic nominee for mayor of New York City, once called for defunding the police and decriminalizing prostitution. He says he has changed.`\
 https://nytimes.com/2025/09/03/nyregion/zohran-mamdani-policy-shifts.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6594022/2025/09/03/sf-giants-rockies-benches-clear-
 **Inside Isak's move to Liverpool, the summer's most toxic transfer**\
 `The forward’s decision to effectively go on strike may have torched his Newcastle legacy, but it ultimately led to his sale to Liverpool`\
 https://nytimes.com/athletic/6591674/2025/09/03/alexander-isak-liverpool-newcastle-transfer-inside-deal/
-
-**Wildfire Destroys Buildings in Gold Rush Town of Chinese Camp**\
-`Fires, likely sparked by lightning strikes that hit California early Tuesday, razed over 9,000 acres in the foothills of the Sierra Nevada Mountains, officials said.`\
-https://nytimes.com/2025/09/03/us/wildfire-chinese-camp-california.html
 
