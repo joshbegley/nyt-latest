@@ -1,3 +1,19 @@
+**Funicular Accident Leaves Several Dead in Lisbon**\
+`According to Portugal’s health ministry, at least 15 people were killed and 18 others were injured after the Elevador da Glória derailed and crashed in Lisbon on Wednesday.`\
+https://nytimes.com/video/world/europe/100000010377021/lisbon-gloria-funicular-crash-fatalities.html
+
+**Betting for (by) dummies: What QBs to pick against for NFL Week 1**\
+`Jon Greenberg and Zac Jackson make their bets for the first week of the NFL season and Week 2 in college. Fade the bad QBs.`\
+https://nytimes.com/athletic/6595700/2025/09/03/betting-for-by-dummies-steelers-broncos-eagles/
+
+**NBA to investigate Clippers, Kawhi Leonard for alleged salary cap ‘circumvention’**\
+`The investigation comes after a report Wednesday by the podcast “Pablo Torre Finds Out.”`\
+https://nytimes.com/athletic/6595855/2025/09/03/nba-investigation-clippers-kawhi-leonard-endorsement-deal/
+
+**Hutchinson, Zinchenko left out of Forest's Europa League squad**\
+`Angus Gunn, Jair Cunha and Taiwo Awoniyi also miss out.`\
+https://nytimes.com/athletic/6595829/2025/09/03/forest-europa-league-squad-hutchinson-zinchenko/
+
 **Senator’s Visit to Spy Agency Was Canceled After Laura Loomer Complained**\
 `Senator Mark Warner’s visit was classified and not intended to be publicized. It was to include a meeting with the head of the agency and a briefing on the agency’s use of artificial intelligence.`\
 https://nytimes.com/2025/09/03/us/politics/senator-warner-laura-loomer.html
@@ -21,20 +37,4 @@ https://nytimes.com/video/world/asia/100000010376076/putin-limo-china-relations.
 **NFL RedZone host Scott Hanson confirms broadcast will feature commercials this season**\
 `Hanson's sign-on will be noticeably different this coming Sunda`\
 https://nytimes.com/athletic/6595714/2025/09/03/nfl-redzone-host-broadcast-will-feature-commercials-this-season/
-
-**When the unstoppable force (YouTube) meets the immovable object (the NFL): MoneyCall**\
-`Welcome back to MoneyCall, The Athletic’s weekly sports business cheat sheet.`\
-https://nytimes.com/athletic/6595688/2025/09/03/youtube-nfl-week-1-ishowspeed-moneycall/
-
-**NHL GMs react to new playoff salary cap: 'Big change' … 'Result in less moves' … 'Great for the league'**\
-`GMs are in favor of the move but said the accelerated timeline will mean they have to "hunker down and figure out how we approach" it.`\
-https://nytimes.com/athletic/6595706/2025/09/03/nhl-playoff-salary-cap-gms/
-
-**Trump Floats Sending National Guard to New Orleans Despite Drop in Crime**\
-`Gov. Jeff Landry, a Republican, welcomed news of the potential deployment to New Orleans, a city run by Democrats.`\
-https://nytimes.com/2025/09/03/us/politics/trump-national-guard-new-orleans-crime.html
-
-**Where Should Taylor and Travis Go on Their Honeymoon? We’ve Got Ideas.**\
-`Suggestions for a wedding trip fit for tabloid royalty, where price is no object and the farther they can get away, the better.`\
-https://nytimes.com/2025/09/03/travel/taylor-swift-travis-kelce-honeymoon.html
 
