@@ -1,3 +1,7 @@
+**In a Hot Mic Moment, Xi and Putin Muse About Living Forever**\
+`Medical advances and geopolitics collide for two septuagenarian leaders who have suggested that their time in office is far from over.`\
+https://nytimes.com/2025/09/03/world/europe/putin-xi-immortality-organ-transplants.html
+
 **Chelsea's Ramirez undergoes hamstring surgery**\
 `Sonia Bompastor's team begin their WSL title defence at Stamford Bridge against Manchester City on Friday night.`\
 https://nytimes.com/athletic/6595523/2025/09/03/mayra-ramirez-injury-chelsea/
@@ -32,9 +36,5 @@ https://nytimes.com/athletic/6595417/2025/09/03/liverpool-champions-league-squad
 
 **The Message for Big Tech in the Google Ruling: Play Nice, but Play On**\
 `A federal judge ordered steps in the search monopoly case that will restrain Google but not break it up, signaling a cautious antitrust approach by courts.`\
-https://nytimes.com/2025/09/03/business/google-ruling-antitrust.html
-
-**Amazon Pares Back Free Shipping Perk on Prime Membership**\
-`The e-commerce giant is ending a program that let Prime members share free shipping with a family member who lives somewhere else. Here’s what to know.`\
-https://nytimes.com/2025/09/03/technology/amazon-prime-invitee-free-shipping.html
+https://nytimes.com/2025/09/03/technology/google-ruling-antitrust.html
 
