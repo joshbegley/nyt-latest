@@ -1,3 +1,11 @@
+**NFL postseason projections: Which new teams will make the playoffs in 2025?**\
+`Over the last 12 seasons, the NFL has seen an average of nearly six new teams reach the postseason.`\
+https://nytimes.com/athletic/6580285/2025/09/03/2025-nfl-postseason-projections/
+
+**Newsmax Accuses Fox News of Violating Antitrust Laws**\
+`The smaller outlet in conservative TV news argued in a lawsuit that Fox News had essentially created a monopoly. Fox said the case had no merit.`\
+https://nytimes.com/2025/09/03/business/media/newsmax-fox-news-lawsuit-antitrust.html
+
 **China’s Show of Military Might**\
 `Xi Jinping’s huge military parade in Tiananmen Square provided a rare look at China’s new weapons.`\
 https://nytimes.com/2025/09/03/briefing/china-parade-weapons-portugal-funicular-crash.html

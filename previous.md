@@ -1,3 +1,11 @@
+**NFL postseason projections: Which new teams will make the playoffs in 2025?**\
+`Over the last 12 seasons, the NFL has seen an average of nearly six new teams reach the postseason.`\
+https://nytimes.com/athletic/6580285/2025/09/03/2025-nfl-postseason-projections/
+
+**Newsmax Accuses Fox News of Violating Antitrust Laws**\
+`The smaller outlet in conservative TV news argued in a lawsuit that Fox News had essentially created a monopoly. Fox said the case had no merit.`\
+https://nytimes.com/2025/09/03/business/media/newsmax-fox-news-lawsuit-antitrust.html
+
 **China’s Show of Military Might**\
 `Xi Jinping’s huge military parade in Tiananmen Square provided a rare look at China’s new weapons.`\
 https://nytimes.com/2025/09/03/briefing/china-parade-weapons-portugal-funicular-crash.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/09/03/world/americas/us-mexico-rubio-sheinbaum-crime.ht
 **How Anime Took Over America**\
 `Netflix’s “Demon Slayer” is just the latest confirmation of how Japan’s once-distinctive animation style has become a global visual language.`\
 https://nytimes.com/interactive/2025/09/03/magazine/anime-manga-pokemon-demon-slayer-dragon-ball-z.html
-
-**Funicular Accident Leaves Several Dead in Lisbon**\
-`According to Portugal’s health ministry, at least 15 people were killed and 18 others were injured after the Elevador da Glória derailed and crashed in Lisbon on Wednesday.`\
-https://nytimes.com/video/world/europe/100000010377021/lisbon-gloria-funicular-crash-fatalities.html
-
-**Betting for (by) dummies: What QBs to pick against for NFL Week 1**\
-`Jon Greenberg and Zac Jackson make their bets for the first week of the NFL season and Week 2 in college. Fade the bad QBs.`\
-https://nytimes.com/athletic/6595700/2025/09/03/betting-for-by-dummies-steelers-broncos-eagles/
 

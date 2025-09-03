@@ -1,3 +1,11 @@
+**What's Going On With Boys?**\
+``\
+https://nytimes.com/issue/upshot/2025/09/03/whats-going-on-with-boys
+
+**Two prominent MLB agents fired from Ballengee Group**\
+`Jeff Randazzo and Jeff Borris had worked for the agency for over a decade, with Mason Miller and Tommy Kahnle among their current clients.`\
+https://nytimes.com/athletic/6596024/2025/09/03/mlb-agents-ballengee-firings-randazzo-borris/
+
 **NFL postseason projections: Which new teams will make the playoffs in 2025?**\
 `Over the last 12 seasons, the NFL has seen an average of nearly six new teams reach the postseason.`\
 https://nytimes.com/athletic/6580285/2025/09/03/2025-nfl-postseason-projections/
@@ -22,19 +30,11 @@ https://nytimes.com/2025/09/03/arts/design/smithsonian-bunch-trump.html
 `Total spending could top $200 million in a November contest that could help determine control of the House next year.`\
 https://nytimes.com/2025/09/03/us/elections/california-redistricting-fundraising-newsom.html
 
-**Trump Administration Broke the Law in Freezing Harvard’s Funding, Judge Says**\
-`The ruling marked a victory for Harvard in its battle with the president, but the judge’s decision may not be the final word.`\
+**Harvard Secures a Court Victory in Its Fight With Trump**\
+`Harvard had sued the Trump administration in an effort to restore billions in research funds that the government canceled this spring.`\
 https://nytimes.com/2025/09/03/us/harvard-trump-funding-ruling.html
 
 **'We’re doing something that makes sense': UC San Diego set to join West Coast Conference**\
 `The Tritons will join the WCC in 2027, one year after Gonzaga moves to the Pac-12 in 2026. `\
 https://nytimes.com/athletic/6595853/2025/09/03/uc-san-diego-west-coast-conference/
-
-**U.S. and Mexico Vow to Fight Crime While Respecting Sovereignty**\
-`Secretary of State Marco Rubio met with President Claudia Sheinbaum, after she pressed the Trump administration not to take unilateral action in Mexico.`\
-https://nytimes.com/2025/09/03/world/americas/us-mexico-rubio-sheinbaum-crime.html
-
-**How Anime Took Over America**\
-`Netflix’s “Demon Slayer” is just the latest confirmation of how Japan’s once-distinctive animation style has become a global visual language.`\
-https://nytimes.com/interactive/2025/09/03/magazine/anime-manga-pokemon-demon-slayer-dragon-ball-z.html
 
