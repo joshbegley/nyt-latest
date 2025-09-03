@@ -1,3 +1,7 @@
+**Britain Moves to Ban Sale of Energy Drinks to Children**\
+`The legislation, which would affect sales to anyone under 16, mirrors regulations in a number of other European countries.`\
+https://nytimes.com/2025/09/03/world/europe/uk-energy-drinks-ban.html
+
 **Did Google Just Get Spared? Investors Think So.**\
 `The nuclear option for addressing the tech giant’s search dominance — a break-up — is off the table. That’s lifting Big Tech stocks.`\
 https://nytimes.com/2025/09/03/business/dealbook/google-search-antitrust-breakup.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6593032/2025/09/03/bruins-david-pastrnak-charlie-mc
 **What I'm seeing from the Broncos: Dre Greenlaw, JK Dobbins and the big debuts ahead**\
 `The Broncos were intentionally conservative with training camp and preseason reps for their free-agent additions. Will the approach pay off?`\
 https://nytimes.com/athletic/6592765/2025/09/03/broncos-dre-greenlaw-jk-dobbins-week-1/
-
-**What I'm seeing from the Chargers: Derwin James' defined role, refreshed running game**\
-`The running game didn't live up to the standards for a Jim Harbaugh-Greg Roman team in 2024. Can Omarion Hampton elevate the attack? `\
-https://nytimes.com/athletic/6593366/2025/09/03/los-angeles-chargers-preview-observations/
 
