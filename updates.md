@@ -1,3 +1,11 @@
+**UConn coach Dan Hurley considered stepping down: 'I was completely cooked'**\
+`In a book he co-wrote with The Athletic's Ian O'Connor, Hurley says he thought about leaving coaching and moving to TV.`\
+https://nytimes.com/athletic/6592998/2025/09/03/dan-hurley-uconn-basketball-quit-resign-new-book/
+
+**Inside Forest's hectic summer: £250m spent, Nuno/Edu fallout, deadline day pivot to Zinchenko**\
+`Despite Forest preparing to play in Europe for the first time in 30 years, behind-the-scenes friction has dominated most of pre-season`\
+https://nytimes.com/athletic/6591892/2025/09/03/inside-nottingham-forests-hectic-summer-200m-spent-nuno-edu-fallout-deadline-day-pivot-to-zinchenko/
+
 **What is 'The U.S. Way' for youth players? Plus: The goalkeepers on the way to Manchester**\
 `Today in TAFC: Explaining how U.S. are trying to take a unified approach to youth development. Plus: the £3.1bn transfer window.`\
 https://nytimes.com/athletic/6594080/2025/09/03/us-way-youth-players-donnarumma-manchester/
