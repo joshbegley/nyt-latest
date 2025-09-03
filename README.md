@@ -1,3 +1,11 @@
+**Senator’s Visit to Spy Agency Was Canceled After Laura Loomer Complained**\
+`Senator Mark Warner’s visit was classified and not intended to be publicized. It was to include a meeting with the head of the agency and a briefing on the agency’s use of artificial intelligence.`\
+https://nytimes.com/2025/09/03/us/politics/senator-warner-laura-loomer.html
+
+**Watchdog Warns Trump’s Cuts at FEMA Pose a ‘Major Challenge’**\
+`The country lacks the ability to address multiple disasters happening at once, the Government Accountability Office said.`\
+https://nytimes.com/2025/09/03/climate/fema-cuts-government-accountability-office.html
+
 **Tiny Love Stories: ‘His Private Gambling Felt Like an Earthquake’**\
 `Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
 https://nytimes.com/2025/09/03/style/tiny-modern-love-stories-his-private-gambling-felt-like-an-earthquake.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/09/03/us/politics/trump-national-guard-new-orleans-crim
 **Where Should Taylor and Travis Go on Their Honeymoon? We’ve Got Ideas.**\
 `Suggestions for a wedding trip fit for tabloid royalty, where price is no object and the farther they can get away, the better.`\
 https://nytimes.com/2025/09/03/travel/taylor-swift-travis-kelce-honeymoon.html
-
-**At Least 15 Dead After Lisbon Funicular Derails, Officials Say**\
-`The funicular line, one of three in Lisbon, is a popular tourist attraction.`\
-https://nytimes.com/2025/09/03/world/europe/lisbon-portugal-gloria-funicular-derail-crash.html
-
-**Epstein Victims Call for Release of More Documents and Accountability**\
-`The accusers’ demands come as some Congress members push to compel the release of the full investigative file on Jeffrey Epstein.`\
-https://nytimes.com/2025/09/03/us/politics/trump-epstein-files-victims-survivors.html
 
