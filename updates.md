@@ -1,3 +1,15 @@
+**The Message for Big Tech in the Google Ruling: Play Nice, but Play On**\
+`A federal judge ordered steps in the search monopoly case that will restrain Google but not break it up, signaling a cautious antitrust approach by courts.`\
+https://nytimes.com/2025/09/03/business/google-ruling-antitrust.html
+
+**Amazon Pares Back Free Shipping Perk on Prime Membership**\
+`The e-commerce giant is ending a program that let Prime members share free shipping with a family member who lives somewhere else. Here’s what to know.`\
+https://nytimes.com/2025/09/03/technology/amazon-prime-invitee-free-shipping.html
+
+**Buonanotte left out of Chelsea's Champions League squad**\
+`Other summer signings, such as Joao Pedro and Alejandro Garnacho, have been registered.`\
+https://nytimes.com/athletic/6592380/2025/09/03/chelsea-champions-league-squad-buonanotte/
+
 **Trump Advisers Have Discussed a Job for Adams if He Quits Mayor’s Race**\
 `The conversations have also involved Curtis Sliwa with the goal of giving Andrew Cuomo a better chance of defeating Zohran Mamdani in November.`\
 https://nytimes.com/2025/09/03/nyregion/trump-adams-sliwa-quit-nyc-mayor.html
