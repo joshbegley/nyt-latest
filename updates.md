@@ -1,3 +1,7 @@
+**Representative LaMonica McIver Overcomes G.O.P. Effort to Censure Her**\
+`Ms. McIver, a New Jersey Democrat, has been charged with assaulting immigration agents outside a detention center. A push to censure her and eject her from a House committee failed.`\
+https://nytimes.com/2025/09/03/nyregion/monica-mciver-committee-assault-charge.html
+
 **What's Going On With Boys?**\
 ``\
 https://nytimes.com/issue/upshot/2025/09/03/whats-going-on-with-boys
