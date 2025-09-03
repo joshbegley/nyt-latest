@@ -1,3 +1,7 @@
+**George Raveling, Coach Who Brought Michael Jordan to Nike, Dies at 88**\
+`He also worked security for the 1963 March on Washington, and ended up with Martin Luther King Jr.’s copy of the “I Have a Dream” speech.`\
+https://nytimes.com/2025/09/03/sports/george-raveling-dead.html
+
 **Trump Team Urges G.O.P. to Rebrand Signature Policy Law**\
 `Top campaign officials told House Republicans they should rebrand the measure the president dubbed the “One Big Beautiful Bill,” in a nod to its unpopularity with voters.`\
 https://nytimes.com/2025/09/03/us/politics/trump-gop-big-beautiful-bill.html

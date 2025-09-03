@@ -1,3 +1,7 @@
+**George Raveling, Coach Who Brought Michael Jordan to Nike, Dies at 88**\
+`He also worked security for the 1963 March on Washington, and ended up with Martin Luther King Jr.’s copy of the “I Have a Dream” speech.`\
+https://nytimes.com/2025/09/03/sports/george-raveling-dead.html
+
 **Trump Team Urges G.O.P. to Rebrand Signature Policy Law**\
 `Top campaign officials told House Republicans they should rebrand the measure the president dubbed the “One Big Beautiful Bill,” in a nod to its unpopularity with voters.`\
 https://nytimes.com/2025/09/03/us/politics/trump-gop-big-beautiful-bill.html
@@ -33,8 +37,4 @@ https://nytimes.com/spotlight/fall-travel
 **How to buy World Cup 2026 tickets: Prices, dates and everything to know**\
 `The 2026 World Cup ticketing process can get a little complex, but we're here to walk you through your route to seeing matches next summer`\
 https://nytimes.com/athletic/6593924/2025/09/03/world-cup-2026-tickets-how-to-buy/
-
-**FIFA to use dynamic pricing for World Cup 2026 tickets; prices from $60 to $6,000**\
-`Details have begun to emerge about how fans can purchase World Cup tickets – and how much it'll cost`\
-https://nytimes.com/athletic/6593901/2025/09/03/world-cup-2026-tickets-fifa-dynamic-pricing/
 
