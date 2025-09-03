@@ -1,3 +1,7 @@
+**Kyle Tucker exits Tuesday's win with calf tightness as Cubs wait to see extent of injury**\
+`While nobody was sounding alarms at Wrigley Tuesday night, neither Craig Counsell nor Tucker fully put fears to rest.`\
+https://nytimes.com/athletic/6593873/2025/09/02/kyle-tucker-exit-calf-injury-cubs/
+
 **Novak Djokovic crashes U.S. Open and silences crowd to knock out Taylor Fritz**\
 `Djokovic survived a surge from the Arthur Ashe crowd and Fritz to move into his 53rd Grand Slam semifinal at the U.S. Open.`\
 https://nytimes.com/athletic/6593763/2025/09/02/novak-djokovic-taylor-fritz-us-open-result-analysis/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6593773/2025/09/02/teoscar-hernandez-dodgers-strugg
 **Red Sox rookie Roman Anthony headed for MRI after exit with oblique tightness**\
 `Anthony said he’s never dealt with oblique issues before and felt it for the first time in his at-bat.`\
 https://nytimes.com/athletic/6593756/2025/09/02/boston-red-sox-roman-anthony-injury/
-
-**How TCU social media leaned into Belichick hype: Memes, one-liners, receipts**\
-`TCU’s director of football creative media kept the zingers coming throughout the easy win: “This part is just so much fun."`\
-https://nytimes.com/athletic/6593640/2025/09/02/tcu-social-media-fun-bill-belichick-unc/
 

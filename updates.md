@@ -1,3 +1,7 @@
+**Kyle Tucker exits Tuesday's win with calf tightness as Cubs wait to see extent of injury**\
+`While nobody was sounding alarms at Wrigley Tuesday night, neither Craig Counsell nor Tucker fully put fears to rest.`\
+https://nytimes.com/athletic/6593873/2025/09/02/kyle-tucker-exit-calf-injury-cubs/
+
 **Novak Djokovic crashes U.S. Open and silences crowd to knock out Taylor Fritz**\
 `Djokovic survived a surge from the Arthur Ashe crowd and Fritz to move into his 53rd Grand Slam semifinal at the U.S. Open.`\
 https://nytimes.com/athletic/6593763/2025/09/02/novak-djokovic-taylor-fritz-us-open-result-analysis/
