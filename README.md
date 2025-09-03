@@ -1,3 +1,7 @@
+**Lover's Ball: An optimist's take on the top 50 players in fantasy football 2025**\
+`Gary Davenport leaves his "snark" behind and gives an optimistic view of every top-50 fantasy football player in 2025. `\
+https://nytimes.com/athletic/6592062/2025/09/03/fantasy-football-2025-lovers-ball-top-50/
+
 **Test your NFL knowledge with our Connections: Sports Edition team-themed games**\
 `During September, try your hand at our 32 team-themed Connections: Sports Edition boards, crafted by our expert NFL writers.`\
 https://nytimes.com/athletic/6592714/2025/09/03/connections-sports-edition-nfl-team-games/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6593873/2025/09/02/kyle-tucker-exit-calf-injury-cub
 **Novak Djokovic crashes U.S. Open and silences crowd to knock out Taylor Fritz**\
 `Djokovic survived a surge from the Arthur Ashe crowd and Fritz to move into his 53rd Grand Slam semifinal at the U.S. Open.`\
 https://nytimes.com/athletic/6593763/2025/09/02/novak-djokovic-taylor-fritz-us-open-result-analysis/
-
-**Kim Jong-un Brings a Guest to Beijing: His Daughter and Potential Heir**\
-`Kim Ju-ae’s presence at a major gathering of world leaders is the latest sign that North Korea’s dictator considers her a successor, analysts said.`\
-https://nytimes.com/2025/09/02/world/asia/kim-jong-un-ju-ae-china.html
 
