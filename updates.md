@@ -1,3 +1,7 @@
+**Wildfire Destroys Buildings in Gold Rush Town of Chinese Camp**\
+`Fires, likely sparked by lightning strikes that hit California early Tuesday, razed over 9,000 acres in the foothills of the Sierra Nevada Mountains, officials said.`\
+https://nytimes.com/2025/09/03/us/wildfire-chinese-camp-california.html
+
 **Read the Court Ruling on Trump’s Use of the Alien Enemies Act**\
 `The ruling was a setback for the Trump administration on the mass deportation of immigrants, one of its domestic policy goals.`\
 https://nytimes.com/interactive/2025/09/03/us/politics/court-ruling-venezuelan-migrants.html

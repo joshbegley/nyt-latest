@@ -1,3 +1,7 @@
+**Wildfire Destroys Buildings in Gold Rush Town of Chinese Camp**\
+`Fires, likely sparked by lightning strikes that hit California early Tuesday, razed over 9,000 acres in the foothills of the Sierra Nevada Mountains, officials said.`\
+https://nytimes.com/2025/09/03/us/wildfire-chinese-camp-california.html
+
 **Read the Court Ruling on Trump’s Use of the Alien Enemies Act**\
 `The ruling was a setback for the Trump administration on the mass deportation of immigrants, one of its domestic policy goals.`\
 https://nytimes.com/interactive/2025/09/03/us/politics/court-ruling-venezuelan-migrants.html
@@ -33,8 +37,4 @@ https://nytimes.com/issue/todayspaper/2025/09/03/todays-new-york-times
 **The Door to Another African Democracy Is Closing**\
 `The conviction of the transitional prime minister in Chad is emblematic of how democracy is eroding across the Sahel region of Northern Africa.`\
 https://nytimes.com/2025/09/03/opinion/chad-africa-democracy-masra.html
-
-**China’s Military Spectacle**\
-`China used a parade of fighter jets, missiles and goose-stepping troops to honor the country’s wartime sacrifice and issue a defiant warning to rivals.`\
-https://nytimes.com/2025/09/03/world/asia/china-military-parade.html
 
