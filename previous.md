@@ -1,3 +1,7 @@
+**Putin’s Propaganda War**\
+`Russian authorities are using a festival to showcase Moscow as a place where life is better than in the West.`\
+https://nytimes.com/2025/09/03/briefing/putin-propaganda-china-military-parade.html
+
 **Brighton's 2025 summer transfer window review: Another big sale but are they now underpowered?**\
 `The club stuck to their usual model by parting with Joao Pedro for big money but there was no direct replacement signed`\
 https://nytimes.com/athletic/6566586/2025/09/03/brighton-summer-transfer-window-review/
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/6591572/2025/09/03/row-z-isak-liverpool-newcastle-m
 **Evolution not revolution: The impact of squad churn on Premier League performance**\
 `A fascination with player trading is understandable – but it is no guarantee of success `\
 https://nytimes.com/athletic/6580142/2025/09/03/squad-churn-premier-league-transfers/
-
-**Lover's Ball: An optimist's take on the top 50 players in fantasy football 2025**\
-`Gary Davenport leaves his "snark" behind and gives an optimistic view of every top-50 fantasy football player in 2025. `\
-https://nytimes.com/athletic/6592062/2025/09/03/fantasy-football-2025-lovers-ball-top-50/
 
