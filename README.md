@@ -26,8 +26,8 @@ https://nytimes.com/athletic/6595443/2025/09/03/hard-knocks-buffalo-bills-finale
 `Our critic A.O. Scott takes apart a scene from “Mrs. Dalloway,” Virginia Woolf’s 1925 masterpiece, and shows why the book is a must-read now.`\
 https://nytimes.com/interactive/2025/09/03/books/virginia-woolf-mrs-dalloway-100-years-modernism.html
 
-**USA Hockey announces 2025 Hall of Fame class**\
-`The class also includes Olympic gold medalist Tara Mounsey and photographer Bruce Bennett.`\
+**U.S. Hockey's 2025 Hall of Fame class includes Joe Pavelski, 4 others**\
+`The U.S. Hockey Hall of Fame class of 2025 also includes Olympic gold medalist Tara Mounsey and photographer Bruce Bennett.`\
 https://nytimes.com/athletic/6595450/2025/09/03/usa-hockey-hall-of-fame-2025-class/
 
 **F.D.A. Official Overruled Scientists on Wide Access to Covid Shots**\
