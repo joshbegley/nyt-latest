@@ -34,7 +34,7 @@ https://nytimes.com/athletic/6595245/2025/09/03/folarin-balogun-usmnt-return-poc
 `A government initiative to create a Swedish “cultural canon” concerned many in the country’s cultural world. The final list has sparked debate over the choices.`\
 https://nytimes.com/2025/09/03/arts/music/swedish-culture-ikea-abba.html
 
-**Trump Advisers Have Discussed a Job for Adams to Quit Mayor’s Race**\
+**Trump Advisers Have Discussed a Job for Adams if He Quits Mayor’s Race**\
 `The conversations have also involved Curtis Sliwa with the goal of giving Andrew Cuomo a better chance of defeating Zohran Mamdani in November.`\
 https://nytimes.com/2025/09/03/nyregion/trump-adams-sliwa-quit-nyc-mayor.html
 
