@@ -1,3 +1,7 @@
+**Seattle Police Conclude 13 Years of Federal Oversight**\
+`A federal judge ended the monitoring imposed after allegations of excessive force and racial bias. The city pointed to progress in improving officer accountability and training.`\
+https://nytimes.com/2025/09/03/us/seattle-police-consent-decree.html
+
 **Jakobi Meyers on why he's still a Raider — and not holding out for a new contract**\
 `The receiver is still practicing and playing while seeking a new contract.`\
 https://nytimes.com/athletic/6596417/2025/09/03/jakobi-meyers-contract-situation-trade-demand/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/03/us/colleges-campuses-callout.html
 **G.O.P. Thwarts Epstein Disclosure Bill as Accusers Plead for Files**\
 `Jeffrey Epstein’s accusers went to the Capitol to ask Congress to get behind their calls for more disclosures, but momentum for a bill demanding it appeared to stall.`\
 https://nytimes.com/2025/09/03/us/politics/epstein-bill-republicans-trump.html
-
-**NWSL teams embrace developmental opportunities for youth internationals**\
-`A pair of England youth players joined NWSL this summer. The moves add to a pattern on younger players looking to grow.`\
-https://nytimes.com/athletic/6596047/2025/09/03/nwsl-youth-development-transfers/
 
