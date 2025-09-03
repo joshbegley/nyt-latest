@@ -14,8 +14,8 @@ https://nytimes.com/2025/09/03/us/politics/epstein-files-massie-khanna.html
 `The Buckeyes’ 14-7 victory at the Horseshoe peaked at 18.6 million viewers from 3:15 to 3:30 p.m. ET.`\
 https://nytimes.com/athletic/6596312/2025/09/03/texas-ohio-state-fox-viewership-week-1-record/
 
-**Isaac Paredes making progress in rehab, but a return this season remains in flux**\
-`HOUSTON — On the day he resumed baseball activities, Isaac Paredes stopped at an unfamiliar position.`\
+**Astros' Isaac Paredes makes progress in rehab, but 2025 return uncertain**\
+`Paredes resumes baseball activities with Houston on Wednesday, a day after he underwent follow-up imaging on his right hamstring.`\
 https://nytimes.com/athletic/6596165/2025/09/03/isaac-paredes-astros-hamstring-return-timetable/
 
 **What Is College Like for You?**\

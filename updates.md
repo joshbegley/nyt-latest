@@ -1,3 +1,7 @@
+**Astros' Isaac Paredes makes progress in rehab, but 2025 return uncertain**\
+`Paredes resumes baseball activities with Houston on Wednesday, a day after he underwent follow-up imaging on his right hamstring.`\
+https://nytimes.com/athletic/6596165/2025/09/03/isaac-paredes-astros-hamstring-return-timetable/
+
 **Epstein Victims Call for Release of More Documents and Accountability**\
 `The victims of Jeffrey Epstein demanded that all people who received sexual favors through the disgraced financier and sex offender be identified.`\
 https://nytimes.com/video/us/100000010377465/epstein-files-rally.html

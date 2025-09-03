@@ -1,3 +1,11 @@
+**Jakobi Meyers on why he's still a Raider — and not holding out for a new contract**\
+`The receiver is still practicing and playing while seeking a new contract.`\
+https://nytimes.com/athletic/6596417/2025/09/03/jakobi-meyers-contract-situation-trade-demand/
+
+**Judge denies injunction in lawsuit by 23XI Racing, Front Row against NASCAR**\
+`The judge said he denied the injunction because NASCAR pledged to not yet sell any of the six combined charters held by 23XI and Front Row.`\
+https://nytimes.com/athletic/6596390/2025/09/03/23xi-racing-front-row-nascar-injunction-denied-antitrust-lawsuit/
+
 **Epstein Victims Call for Release of More Documents and Accountability**\
 `The victims of Jeffrey Epstein demanded that all people who received sexual favors through the disgraced financier and sex offender be identified.`\
 https://nytimes.com/video/us/100000010377465/epstein-files-rally.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/09/03/us/politics/epstein-bill-republicans-trump.html
 **NWSL teams embrace developmental opportunities for youth internationals**\
 `A pair of England youth players joined NWSL this summer. The moves add to a pattern on younger players looking to grow.`\
 https://nytimes.com/athletic/6596047/2025/09/03/nwsl-youth-development-transfers/
-
-**Rosalyn Drexler, a Modern-Day Renaissance Woman, Dies at 98**\
-`She wrote plays, novels and an Emmy-winning Lily Tomlin special. She was a painter, a sculptor and a nightclub singer. Oh, and she also wrestled professionally.`\
-https://nytimes.com/2025/09/03/books/rosalyn-drexler-dead.html
-
-**As U.S. Adversaries Bond in Beijing, Trump Grows Frustrated With Putin**\
-`President Trump’s extraordinary summit with President Vladimir V. Putin of Russia last month has yet to yield any concrete results on the war in Ukraine.`\
-https://nytimes.com/2025/09/03/us/politics/trump-putin-russia-ukraine-china.html
 
