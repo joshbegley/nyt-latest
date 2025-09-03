@@ -1,5 +1,5 @@
 **Federal Appeals Court Reinstates an F.T.C. Commissioner Fired by Trump**\
-`The court said the commissioner, Rebecca Kelly Slaughter, had been illegally terminated without cause.`\
+`The court said the commissioner, Rebecca Kelly Slaughter, had been illegally terminated “without cause.”`\
 https://nytimes.com/2025/09/02/us/politics/ftc-commissioner-slaughter-trump.html
 
 **NFL will not play a Week 1 game on Friday next season, citing federal law**\
