@@ -1,3 +1,15 @@
+**Cardi B Is Found Not Liable for Assault in Civil Trial**\
+`The rapper and pop star had been accused in a lawsuit of scratching and spitting on a security guard in 2018.`\
+https://nytimes.com/2025/09/02/arts/music/cardi-b-verdict-assault-trial.html
+
+**In a Surprise, David Byrne Says He Will Get Married ‘This Week’**\
+`The former Talking Heads frontman, who only recently revealed his engagement to Mala Gaonkar, delivered the news along with a playlist he created for his wedding dinner.`\
+https://nytimes.com/2025/09/02/style/david-byrne-wedding-mala-gaonkar.html
+
+**LSU's Brian Kelly calls Clemson's Dabo Swinney a 'hard grader on us'**\
+`LSU dominated Clemson in the second half, outscoring it 14-0 to win 17-10, but Swinney gave Kelly's team a grade of 65. Clemson got a 58.`\
+https://nytimes.com/athletic/6593355/2025/09/02/brian-kelly-dabo-swinney-grading-system/
+
 **Read the Appeals Court’s Decision**\
 `In a split 2-to-1 decision, the U.S. Court of Appeals for the District of Columbia said the Trump administration’s attempt to block Rebecca Kelly Slaughter, a Democratic commissioner, from resuming her role at the F.T.C. had “no prospect of success.”`\
 https://nytimes.com/interactive/2025/09/02/us/politics/slaughtertrumpcadcord090225.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/09/02/us/politics/trump-space-command-alabama-colorado.
 **Deadly Floods Hit Pakistan Again**\
 `Pakistan has been hit by a string of devastating floods this year that have brought devastation across the country of 250 million people.`\
 https://nytimes.com/video/world/100000010367079/deadly-floods-hit-pakistan-again.html
-
-**Buccaneers agree to 4-year, $90 million extension with OT Luke Goedeke: Sources**\
-`The average annual value of Goedeke's deal ($22.5 million) is the third-highest among right tackles.`\
-https://nytimes.com/athletic/6593349/2025/09/02/buccaneers-luke-goedeke-extension/
-
-**A Conservative Canadian Province Backs Off a Book Ban**\
-`Alberta ordered schools to pull “inappropriate” books, but paused its plan after a large school district banned scores of books in an apparent effort to make a point.`\
-https://nytimes.com/2025/09/02/world/canada/alberta-canada-edmonton-school-book-ban.html
-
-**A Kennedy, a Protégé and a Progressive Star Eye Nadler’s N.Y. House Seat**\
-`Representative Jerrold Nadler’s departure is still 16 months away, but Democrats are already testing the waters in what is expected to be a highly contested race.`\
-https://nytimes.com/2025/09/02/nyregion/nadler-retire-successor-replace.html
 
