@@ -1,3 +1,11 @@
+**Federal Courts Slow to Fix Vulnerable System After Repeated Hacking**\
+`After a 2020 breach thought to be Russia’s work, the courts told Congress that they would harden a system storing sealed documents. Five years later, the system was hacked again.`\
+https://nytimes.com/2025/09/03/us/politics/federal-courts-computer-hacks.html
+
+**Maine Mass Shooting Survivors File Suit Against Army**\
+`The behavior of the gunman, an Army Reservist, had worried colleagues and supervisors for months before he killed 18 people at a bar and bowling alley.`\
+https://nytimes.com/2025/09/03/us/maine-mass-shooting-army-lawsuit.html
+
 **Jets guard Alijah Vera-Tucker's season could be in jeopardy after serious injury**\
 `Vera-Tucker, a team captain, was set to be a crucial piece of the line, which the Jets anticipate being a strength of their offense.`\
 https://nytimes.com/athletic/6594633/2025/09/03/alijah-vera-tucker-jets-injury/

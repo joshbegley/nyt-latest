@@ -1,3 +1,11 @@
+**Former Smithsonian Museum Director Heads to Milwaukee**\
+`Kim Sajet, who stepped down as director of the National Portrait Gallery after President Trump said he was firing her, is becoming director of the Milwaukee Art Museum.`\
+https://nytimes.com/2025/09/03/arts/design/kim-sajet-smithsonian-museum-director-milwaukee.html
+
+**Snubbing Kennedy, States Announce Plans to Coordinate on Vaccines**\
+`Governors in California, Oregon and Washington said their states would work together on vaccine guidance in a time of turmoil at the Centers for Disease Control and Prevention.`\
+https://nytimes.com/2025/09/03/us/western-health-alliance.html
+
 **Federal Courts Slow to Fix Vulnerable System After Repeated Hacking**\
 `After a 2020 breach thought to be Russia’s work, the courts told Congress that they would harden a system storing sealed documents. Five years later, the system was hacked again.`\
 https://nytimes.com/2025/09/03/us/politics/federal-courts-computer-hacks.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6591777/2025/09/03/richard-petty-nascar-playoff-for
 **What Would You Write in a Letter to Your Future Self?**\
 `A Times newsletter recommends writing a letter to future you.`\
 https://nytimes.com/2025/09/03/learning/what-would-you-write-in-a-letter-to-your-future-self.html
-
-**Forest's Silva missed out on Sporting transfer after deadline missed**\
-`The collapsed transfer came amid a significant discrepancy on when Portugal's summer transfer window actually closed.`\
-https://nytimes.com/athletic/6593055/2025/09/03/nottingham-forest-jota-silva-sporting/
-
-**U.K. Deputy Premier Admits Underpaying Tax, Adding to Starmer’s Woes**\
-`Angela Rayner, the deputy to Prime Minister Keir Starmer, said the property tax underpayment was a mistake related to care arrangements for her disabled son.`\
-https://nytimes.com/2025/09/03/world/europe/uk-angela-rayner-tax-property-starmer.html
 

@@ -1,3 +1,11 @@
+**Federal Courts Slow to Fix Vulnerable System After Repeated Hacking**\
+`After a 2020 breach thought to be Russia’s work, the courts told Congress that they would harden a system storing sealed documents. Five years later, the system was hacked again.`\
+https://nytimes.com/2025/09/03/us/politics/federal-courts-computer-hacks.html
+
+**Maine Mass Shooting Survivors File Suit Against Army**\
+`The behavior of the gunman, an Army Reservist, had worried colleagues and supervisors for months before he killed 18 people at a bar and bowling alley.`\
+https://nytimes.com/2025/09/03/us/maine-mass-shooting-army-lawsuit.html
+
 **Jets guard Alijah Vera-Tucker's season could be in jeopardy after serious injury**\
 `Vera-Tucker, a team captain, was set to be a crucial piece of the line, which the Jets anticipate being a strength of their offense.`\
 https://nytimes.com/athletic/6594633/2025/09/03/alijah-vera-tucker-jets-injury/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6593055/2025/09/03/nottingham-forest-jota-silva-spo
 **U.K. Deputy Premier Admits Underpaying Tax, Adding to Starmer’s Woes**\
 `Angela Rayner, the deputy to Prime Minister Keir Starmer, said the property tax underpayment was a mistake related to care arrangements for her disabled son.`\
 https://nytimes.com/2025/09/03/world/europe/uk-angela-rayner-tax-property-starmer.html
-
-**Los Angeles Rams 2025 streaming guide: How to watch defending NFC West champs this year**\
-`The Rams have been perennial contenders under Sean McVay. Here's how to watch their forthcoming 2025 season on TV.`\
-https://nytimes.com/athletic/6588836/2025/09/03/los-angeles-rams-how-to-watch-2025-tv-streaming/
-
-**World's largest illegal sports streaming platform Streameast shut down in sting**\
-`The network of 80 unauthorised domains generated 1.6billion combined visits over the last year.`\
-https://nytimes.com/athletic/6591670/2025/09/03/streameast-worlds-largest-illegal-sports-streaming-platform-shut-down-in-sting/
 
