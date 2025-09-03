@@ -1,3 +1,5 @@
+
+
 **Dodgers' Teoscar Hernández searches for 'edge' as he tries to right ship on season**\
 `Struggling outfielder has become the avatar for the Los Angeles Dodgers' inconsistency in recent months.`\
 https://nytimes.com/athletic/6593773/2025/09/02/teoscar-hernandez-dodgers-struggles/
