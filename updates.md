@@ -1,3 +1,11 @@
+**China’s Show of Military Might**\
+`Xi Jinping’s huge military parade in Tiananmen Square provided a rare look at China’s new weapons.`\
+https://nytimes.com/2025/09/03/briefing/china-parade-weapons-portugal-funicular-crash.html
+
+**Angel Reese calls out Sky: 'I might have to move in a different direction'**\
+`Second-year star wants improvements to roster and facilities, and for players to be coached harder.`\
+https://nytimes.com/athletic/6595828/2025/09/03/angel-reese-calls-out-chicago-sky/
+
 **Trump Administration Broke the Law in Freezing Harvard’s Funding, Judge Says**\
 `The ruling marked a victory for Harvard in its battle with the president, but the judge’s decision may not be the final word.`\
 https://nytimes.com/2025/09/03/us/harvard-trump-funding-ruling.html

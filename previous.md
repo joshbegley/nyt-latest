@@ -1,3 +1,11 @@
+**China’s Show of Military Might**\
+`Xi Jinping’s huge military parade in Tiananmen Square provided a rare look at China’s new weapons.`\
+https://nytimes.com/2025/09/03/briefing/china-parade-weapons-portugal-funicular-crash.html
+
+**Angel Reese calls out Sky: 'I might have to move in a different direction'**\
+`Second-year star wants improvements to roster and facilities, and for players to be coached harder.`\
+https://nytimes.com/athletic/6595828/2025/09/03/angel-reese-calls-out-chicago-sky/
+
 **Smithsonian Responds to Trump’s Demand for a Review of Its Exhibits**\
 `In a letter to the White House, the Smithsonian asserted its “authority over our programming and content,” but said a team would review what information it would turn over.`\
 https://nytimes.com/2025/09/03/arts/design/smithsonian-bunch-trump.html
@@ -29,12 +37,4 @@ https://nytimes.com/video/world/europe/100000010377021/lisbon-gloria-funicular-c
 **Betting for (by) dummies: What QBs to pick against for NFL Week 1**\
 `Jon Greenberg and Zac Jackson make their bets for the first week of the NFL season and Week 2 in college. Fade the bad QBs.`\
 https://nytimes.com/athletic/6595700/2025/09/03/betting-for-by-dummies-steelers-broncos-eagles/
-
-**NBA to investigate Clippers, Kawhi Leonard for alleged salary cap 'circumvention'**\
-`The investigation comes after a report Wednesday by the podcast "Pablo Torre Finds Out."`\
-https://nytimes.com/athletic/6595855/2025/09/03/nba-investigation-clippers-kawhi-leonard-endorsement-deal/
-
-**Hutchinson, Zinchenko left out of Forest's Europa League squad**\
-`Angus Gunn, Jair Cunha and Taiwo Awoniyi also miss out.`\
-https://nytimes.com/athletic/6595829/2025/09/03/forest-europa-league-squad-hutchinson-zinchenko/
 
