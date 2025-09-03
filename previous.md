@@ -1,8 +1,16 @@
+**FA confirms it won't appeal Paqueta verdict, is criticised by panel which heard case**\
+`In a 314-page judgment published on Wednesday, the three-person independent panel slammed the FA's approach to the case.`\
+https://nytimes.com/athletic/6595258/2025/09/03/lucas-paqueta-betting-fa/
+
+**Chicago Stars to play 2026 season at Northwestern's Martin Stadium**\
+`The NWSL side, who currently play in Bridgeview, have announced plans to move to the stadium in Evanston, Illinois, for the 2026 season`\
+https://nytimes.com/athletic/6594866/2025/09/03/chicago-stars-stadium-2026-new/
+
 **An Off Broadway Homecoming for Tarell Alvin McCraney and André Holland**\
 `“The Brothers Size” at the Shed is speaking to a new generation of audiences. “Unfortunately, parts of the plays are still relevant,” McCraney said.`\
 https://nytimes.com/2025/09/03/theater/tarell-alvin-mccraney-and-andre-holland-brothers-size.html
 
-**Roger Goodell: Taylor Swift a 'maybe' for Super Bowl LX halftime show**\
+**Roger Goodell says Taylor Swift a ‘maybe’ for Super Bowl LX halftime show**\
 `Goodell wouldn’t say whether a Swift Super Bowl appearance was already in the works, he didn’t deny the possibility when asked.`\
 https://nytimes.com/athletic/6595136/2025/09/03/taylor-swift-super-bowl-halftime-show-nfl-roger-goodell/
 
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6593286/2025/09/03/colton-herta-cadillac-f1/
 **Vuelta a Espana stage 11 cut short due to pro-Palestine protest**\
 `"Everyone has the right to protest whatever they want, but putting us in danger is not the way forward," British rider Tom Pidcock said.`\
 https://nytimes.com/athletic/6595115/2025/09/03/vuelta-espana-palestine-protest/
-
-**White House Orders Agencies to Escalate Fight Against Offshore Wind**\
-`The effort involves several agencies that typically have little to do with wind power, including the Health and Human Services Department.`\
-https://nytimes.com/2025/09/03/climate/trump-administration-offshore-wind.html
-
-**Is Venezuela Flooding the U.S. With Drugs? Here’s What to Know.**\
-`The Trump administration says Venezuela is sending vast amounts of cocaine to the United States. Venezuela’s role in the drug trade is overstated, experts say.`\
-https://nytimes.com/2025/09/03/world/americas/venezuela-drug-boat-trump-us.html
 
