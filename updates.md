@@ -1,3 +1,11 @@
+**How TCU social media leaned into Belichick hype: Memes, one-liners, receipts**\
+`TCU’s director of football creative media kept the zingers coming throughout the easy win: “This part is just so much fun."`\
+https://nytimes.com/athletic/6593640/2025/09/02/tcu-social-media-fun-bill-belichick-unc/
+
+**Benches clear, three players ejected in Giants-Rockies matchup after Rafael Devers homer**\
+`In the end, Devers moved from first base to make his Giants debut as a third baseman — a position he hadn't played all season.`\
+https://nytimes.com/athletic/6593685/2025/09/02/giants-rockies-brawl-ejections/
+
 **Stalling Sounds**\
 `Michael B. Berg formalizes his requests.`\
 https://nytimes.com/2025/09/02/crosswords/daily-puzzle-2025-09-03.html
