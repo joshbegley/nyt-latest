@@ -1,3 +1,11 @@
+**Appeals Court Blocks Trump’s Use of Alien Enemies Act to Deport Venezuelans**\
+`The ruling was a setback for the Trump administration on the mass deportation of immigrants, one of its domestic policy goals.`\
+https://nytimes.com/2025/09/03/us/politics/trump-alien-enemies-act-court.html
+
+**Did Astros' Framber Valdez intentionally cross up his catcher? Lefty says ‘I hit him by mistake’**\
+`Valdez invited more questions about his disposition during difficult times, something that has been a focus throughout his career. `\
+https://nytimes.com/athletic/6593992/2025/09/03/astros-framber-valdez-cesar-salazar-issue/
+
 **Fourteen Years After Japan’s Nuclear Disaster, People With Cancer Seek Answers**\
 `A survey has found hundreds of thyroid tumors, but Japanese officials say they are unrelated to the Fukushima meltdowns. Now they face a lawsuit.`\
 https://nytimes.com/2025/09/03/world/asia/japan-fukushima-nuclear-cancer.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6588244/2025/09/03/crystal-palace-2025-summer-trans
 **Amorim's options: Picking Man United's strongest XI now the window has closed**\
 `Problems remain, but the reworked 2025-26 United has more of the characteristics necessary for Amorim's football`\
 https://nytimes.com/athletic/6583792/2025/09/03/manchester-united-ruben-amorim-starting-xi/
-
-**Making the grade: How did your Premier League club score for their summer transfer window?**\
-`With the summer transfer window now closed, we asked The Athletic's club reporters for their view on how it panned out for their side`\
-https://nytimes.com/athletic/6591625/2025/09/03/premier-league-transfer-window-graded-review/
-
-**Can Leeds, Sunderland and Burnley stay in the Premier League?**\
-`The newly promoted teams boast 13 points and four wins between them already, suggesting they might yet buck the top-flight's recent trend`\
-https://nytimes.com/athletic/6591881/2025/09/03/leeds-sunderland-burnley-premier-league/
 
