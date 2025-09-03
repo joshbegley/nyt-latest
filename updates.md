@@ -1,3 +1,23 @@
+**Senator’s Visit to Spy Agency Was Canceled After Laura Loomer Complained**\
+`Senator Mark Warner’s visit was classified and not intended to be publicized. It was to include a meeting with the head of the agency and a briefing on the agency’s use of artificial intelligence.`\
+https://nytimes.com/2025/09/03/us/politics/senator-warner-laura-loomer.html
+
+**Watchdog Warns Trump’s Cuts at FEMA Pose a ‘Major Challenge’**\
+`The country lacks the ability to address multiple disasters happening at once, the Government Accountability Office said.`\
+https://nytimes.com/2025/09/03/climate/fema-cuts-government-accountability-office.html
+
+**Tiny Love Stories: ‘His Private Gambling Felt Like an Earthquake’**\
+`Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
+https://nytimes.com/2025/09/03/style/tiny-modern-love-stories-his-private-gambling-felt-like-an-earthquake.html
+
+**In Texas, a Senate Race Turns Brutal Before It’s Even Declared**\
+`Attorney General Ken Paxton is waging “legal war” against Beto O’Rourke, a possible Democratic rival, threatening jail and an investigation that could bankrupt his organization.`\
+https://nytimes.com/2025/09/03/us/politics/ken-paxton-beto-orourke.html
+
+**Putin Sends a Message With ‘Limo Diplomacy’ in China**\
+`During the Eurasian summit in China, President Vladimir V. Putin of Russia had conversations with leaders in the backseat of his presidential state car, offering him an ideal setting for deepening ties.`\
+https://nytimes.com/video/world/asia/100000010376076/putin-limo-china-relations.html
+
 **NFL RedZone host Scott Hanson confirms broadcast will feature commercials this season**\
 `Hanson's sign-on will be noticeably different this coming Sunda`\
 https://nytimes.com/athletic/6595714/2025/09/03/nfl-redzone-host-scott-hanson-confirms-broadcast-will-feature-commercials-this-season/

@@ -20,7 +20,7 @@ https://nytimes.com/video/world/asia/100000010376076/putin-limo-china-relations.
 
 **NFL RedZone host Scott Hanson confirms broadcast will feature commercials this season**\
 `Hanson's sign-on will be noticeably different this coming Sunda`\
-https://nytimes.com/athletic/6595714/2025/09/03/nfl-redzone-host-scott-hanson-confirms-broadcast-will-feature-commercials-this-season/
+https://nytimes.com/athletic/6595714/2025/09/03/nfl-redzone-host-broadcast-will-feature-commercials-this-season/
 
 **When the unstoppable force (YouTube) meets the immovable object (the NFL): MoneyCall**\
 `Welcome back to MoneyCall, The Athletic’s weekly sports business cheat sheet.`\
