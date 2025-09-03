@@ -1,9 +1,13 @@
+**U.K. Should Clarify Free-Speech Laws After Comedian’s Arrest, Police Chief Says**\
+`The arrest of Graham Linehan on suspicion of inciting violence against transgender people is adding to a debate across the Atlantic over the policing of speech in Britain.`\
+https://nytimes.com/2025/09/03/world/europe/uk-graham-linehan-arrest-free-speech.html
+
 **Hegseth Says Boat Strike Is Start of Campaign Against Venezuelan Cartels**\
-`The Defense Secretary and President Trump said a small boat was carrying drugs but offered little evidence and few details.`\
+`The defense secretary and President Trump said a small boat was carrying drugs but offered little evidence and few details.`\
 https://nytimes.com/2025/09/03/us/politics/hegseth-venezuela-drug-strike.html
 
 **Oilers GM Stan Bowman not rushing Connor McDavid talks: 'When he’s ready, he’s ready'**\
-`Bowman says there have been "constructive conversations" on an extension but McDavid "has earned the right not to be forced into anything."`\
+`Bowman says there have been "constructive conversations" on an extension, but McDavid "has earned the right not to be forced into anything."`\
 https://nytimes.com/athletic/6594667/2025/09/03/connor-mcdavid-extension-oilers-stan-bowman/
 
 **Former Smithsonian Museum Director Heads to Milwaukee**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6594097/2025/09/03/everton-women-football-ruby-mace
 **Arizona Cardinals 2025 streaming guide: Schedule, broadcasters for up-and-coming team**\
 `With the NFL season starting, here's how to watch all 17 (and maybe more?) Arizona Cardinals games this year.`\
 https://nytimes.com/athletic/6591291/2025/09/03/arizona-cardinals-how-to-watch-2025-schedule/
-
-**Full Time: Alex Morgan’s latest buzzy partnership**\
-`Welcome to Full Time, The Athletic's women's soccer newsletter.`\
-https://nytimes.com/athletic/6593917/2025/09/03/alex-morgan-lionesses-jersey-full-time/
 
