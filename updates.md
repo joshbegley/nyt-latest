@@ -1,3 +1,15 @@
+**In a Hot Mic Moment, Xi and Putin Muse About Living Forever**\
+`Medical advances and geopolitics collide for two septuagenarian leaders who have suggested that their time in office is far from over.`\
+https://nytimes.com/2025/09/03/world/europe/putin-xi-immortality-organ-transplants.html
+
+**Chelsea's Ramirez undergoes hamstring surgery**\
+`Sonia Bompastor's team begin their WSL title defence at Stamford Bridge against Manchester City on Friday night.`\
+https://nytimes.com/athletic/6595523/2025/09/03/mayra-ramirez-injury-chelsea/
+
+**The Message for Big Tech in the Google Ruling: Play Nice, but Play On**\
+`A federal judge ordered steps in the search monopoly case that will restrain Google but not break it up, signaling a cautious antitrust approach by courts.`\
+https://nytimes.com/2025/09/03/technology/google-ruling-antitrust.html
+
 **Kate Scott to become first woman to call NFL game for Westwood One**\
 `Scott currently does play-by-play for the 76ers and calls soccer for Fox and CBS Sports.`\
 https://nytimes.com/athletic/6595336/2025/09/03/kate-scott-first-woman-call-nfl-game-westwood-one/
