@@ -1,3 +1,7 @@
+**Need a Lift? Putin Takes His ‘Limo Diplomacy’ to China**\
+`Rides in his hulking bulletproof Aurus with the Indian and North Korean leaders offered the Russian leader an ideal setting for deepening ties.`\
+https://nytimes.com/2025/09/03/world/europe/putin-limo-china-xi-relations-modi-india-trump.html
+
 **Sesko 'will struggle' at Man Utd without midfield additions, Saha says**\
 `Saha said Sesko has the physical attributes to succeed at United but could struggle as the club remain "weak" in midfield.`\
 https://nytimes.com/athletic/6594617/2025/09/03/benjamin-sesko-manchester-united-louis-saha/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/03/us/politics/john-sununu-senate-new-hampshire.html
 **The Windup: How Devers finally got to play third**\
 `Welcome to The Windup, The Athletic's MLB newsletter.`\
 https://nytimes.com/athletic/6594071/2025/09/03/rafeal-devers-fight-third-base-the-windup/
-
-**U.K. Should Clarify Free-Speech Laws After Comedian’s Arrest, Police Chief Says**\
-`The arrest of Graham Linehan on suspicion of inciting violence against transgender people is adding to a debate across the Atlantic over the policing of speech in Britain.`\
-https://nytimes.com/2025/09/03/world/europe/uk-graham-linehan-arrest-free-speech.html
 
