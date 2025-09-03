@@ -1,10 +1,14 @@
+**Smithsonian Responds to Trump’s Demand for a Review of Its Exhibits**\
+`In a letter to the White House, the Smithsonian asserted its “authority over our programming and content,” but said a team would review what information it would turn over.`\
+https://nytimes.com/2025/09/03/arts/design/smithsonian-bunch-trump.html
+
 **Newsom and Republicans Scramble to Raise Cash in Redistricting Fight**\
 `Total spending could top $200 million in a November contest that could help determine control of the House next year.`\
 https://nytimes.com/2025/09/03/us/elections/california-redistricting-fundraising-newsom.html
 
-**Judge Issues Ruling Helpful to Harvard in Case Against Trump**\
+**Harvard Secures a Court Victory in Its Fight With Trump**\
 `Harvard had sued the Trump administration in an effort to restore billions in research funds that the government canceled this spring.`\
-https://nytimes.com/2025/09/03/us/judge-rules-for-harvard-research-funding.html
+https://nytimes.com/2025/09/03/us/harvard-trump-funding-ruling.html
 
 **'We’re doing something that makes sense': UC San Diego set to join West Coast Conference**\
 `The Tritons will join the WCC in 2027, one year after Gonzaga moves to the Pac-12 in 2026. `\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6595855/2025/09/03/nba-investigation-clippers-kawhi
 **Hutchinson, Zinchenko left out of Forest's Europa League squad**\
 `Angus Gunn, Jair Cunha and Taiwo Awoniyi also miss out.`\
 https://nytimes.com/athletic/6595829/2025/09/03/forest-europa-league-squad-hutchinson-zinchenko/
-
-**Senator’s Visit to Spy Agency Was Canceled After Laura Loomer Complained**\
-`Senator Mark Warner’s visit was classified and not intended to be publicized. It was to include a meeting with the head of the agency and a briefing on the agency’s use of artificial intelligence.`\
-https://nytimes.com/2025/09/03/us/politics/senator-warner-laura-loomer.html
 
