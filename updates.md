@@ -1,3 +1,19 @@
+**Funicular Accident Leaves Several Dead in Lisbon**\
+`According to Portugal’s health ministry, at least 15 people were killed and 18 others were injured after the Elevador da Glória derailed and crashed in Lisbon on Wednesday.`\
+https://nytimes.com/video/world/europe/100000010377021/lisbon-gloria-funicular-crash-fatalities.html
+
+**Betting for (by) dummies: What QBs to pick against for NFL Week 1**\
+`Jon Greenberg and Zac Jackson make their bets for the first week of the NFL season and Week 2 in college. Fade the bad QBs.`\
+https://nytimes.com/athletic/6595700/2025/09/03/betting-for-by-dummies-steelers-broncos-eagles/
+
+**NBA to investigate Clippers, Kawhi Leonard for alleged salary cap ‘circumvention’**\
+`The investigation comes after a report Wednesday by the podcast “Pablo Torre Finds Out.”`\
+https://nytimes.com/athletic/6595855/2025/09/03/nba-investigation-clippers-kawhi-leonard-endorsement-deal/
+
+**Hutchinson, Zinchenko left out of Forest's Europa League squad**\
+`Angus Gunn, Jair Cunha and Taiwo Awoniyi also miss out.`\
+https://nytimes.com/athletic/6595829/2025/09/03/forest-europa-league-squad-hutchinson-zinchenko/
+
 **NFL RedZone host Scott Hanson confirms broadcast will feature commercials this season**\
 `Hanson's sign-on will be noticeably different this coming Sunda`\
 https://nytimes.com/athletic/6595714/2025/09/03/nfl-redzone-host-broadcast-will-feature-commercials-this-season/
