@@ -1,3 +1,11 @@
+**Former Smithsonian Museum Director Heads to Milwaukee**\
+`Kim Sajet, who stepped down as director of the National Portrait Gallery after President Trump said he was firing her, is becoming director of the Milwaukee Art Museum.`\
+https://nytimes.com/2025/09/03/arts/design/kim-sajet-smithsonian-museum-director-milwaukee.html
+
+**Snubbing Kennedy, States Announce Plans to Coordinate on Vaccines**\
+`Governors in California, Oregon and Washington said their states would work together on vaccine guidance in a time of turmoil at the Centers for Disease Control and Prevention.`\
+https://nytimes.com/2025/09/03/us/western-health-alliance.html
+
 **Federal Courts Slow to Fix Vulnerable System After Repeated Hacking**\
 `After a 2020 breach thought to be Russia’s work, the courts told Congress that they would harden a system storing sealed documents. Five years later, the system was hacked again.`\
 https://nytimes.com/2025/09/03/us/politics/federal-courts-computer-hacks.html
