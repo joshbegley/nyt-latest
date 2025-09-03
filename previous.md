@@ -1,3 +1,15 @@
+**Trump Team Urges G.O.P. to Rebrand Signature Policy Law**\
+`Top campaign officials told House Republicans they should rebrand the measure the president dubbed the “One Big Beautiful Bill,” in a nod to its unpopularity with voters.`\
+https://nytimes.com/2025/09/03/us/politics/trump-gop-big-beautiful-bill.html
+
+**Louvre Museum Names Advocate for African Art Repatriation as Next ‘Great Thinker’**\
+`The appointment of Bénédicte Savoy underscores France’s changing views on the issue of returning artifacts that were wrongly taken during the colonial period.`\
+https://nytimes.com/2025/09/03/arts/design/louvre-museum-benedicte-savoy-repatriation.html
+
+**Cadillac signs Colton Herta as first F1 test driver ahead of 2026 debut**\
+`The American driver, a nine-time IndyCar winner, is closer to his long-sought F1 breakthrough.`\
+https://nytimes.com/athletic/6593286/2025/09/03/colton-herta-cadillac-f1/
+
 **Vuelta a Espana stage 11 cut short due to pro-Palestine protest**\
 `"Everyone has the right to protest whatever they want, but putting us in danger is not the way forward," British rider Tom Pidcock said.`\
 https://nytimes.com/athletic/6595115/2025/09/03/vuelta-espana-palestine-protest/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6593924/2025/09/03/world-cup-2026-tickets-how-to-bu
 **FIFA to use dynamic pricing for World Cup 2026 tickets; prices from $60 to $6,000**\
 `Details have begun to emerge about how fans can purchase World Cup tickets – and how much it'll cost`\
 https://nytimes.com/athletic/6593901/2025/09/03/world-cup-2026-tickets-fifa-dynamic-pricing/
-
-**My Brother’s an Unpleasant Drunk. Can I Cut Him Off?**\
-`Life feels too short to keep walking on eggshells around him.`\
-https://nytimes.com/2025/09/03/magazine/brothers-unpleasant-drunk-ethics.html
-
-**Mavericks finalizing 4-year, $89 million extension with forward P.J. Washington: Source**\
-`Washington played a pivotal role in the Mavericks catching fire in the final weeks of the 2023-24 season and advancing to the NBA Finals.`\
-https://nytimes.com/athletic/6535764/2025/09/03/pj-washington-nba-contract-extension-mavericks/
-
-**They’re Famous. They’re Everywhere. And They’re Fake.**\
-`Influencers like Lil’ Miquela and Mia Zelu have millions of followers and generate serious income, despite being created with artificial intelligence.`\
-https://nytimes.com/2025/09/03/style/ai-influencers-lil-miquela-mia-zelu.html
 

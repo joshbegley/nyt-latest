@@ -1,3 +1,15 @@
+**Trump Team Urges G.O.P. to Rebrand Signature Policy Law**\
+`Top campaign officials told House Republicans they should rebrand the measure the president dubbed the “One Big Beautiful Bill,” in a nod to its unpopularity with voters.`\
+https://nytimes.com/2025/09/03/us/politics/trump-gop-big-beautiful-bill.html
+
+**Louvre Museum Names Advocate for African Art Repatriation as Next ‘Great Thinker’**\
+`The appointment of Bénédicte Savoy underscores France’s changing views on the issue of returning artifacts that were wrongly taken during the colonial period.`\
+https://nytimes.com/2025/09/03/arts/design/louvre-museum-benedicte-savoy-repatriation.html
+
+**Cadillac signs Colton Herta as first F1 test driver ahead of 2026 debut**\
+`The American driver, a nine-time IndyCar winner, is closer to his long-sought F1 breakthrough.`\
+https://nytimes.com/athletic/6593286/2025/09/03/colton-herta-cadillac-f1/
+
 **Vuelta a Espana stage 11 cut short due to pro-Palestine protest**\
 `"Everyone has the right to protest whatever they want, but putting us in danger is not the way forward," British rider Tom Pidcock said.`\
 https://nytimes.com/athletic/6595115/2025/09/03/vuelta-espana-palestine-protest/
