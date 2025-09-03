@@ -1,3 +1,7 @@
+**Novak Djokovic crashes U.S. Open and silences crowd to knock out Taylor Fritz**\
+`Djokovic survived a surge from the Arthur Ashe crowd and Fritz to move into his 53rd Grand Slam semifinal at the U.S. Open.`\
+https://nytimes.com/athletic/6593763/2025/09/02/novak-djokovic-taylor-fritz-us-open-result-analysis/
+
 **Kim Jong-un Brings a Guest to Beijing: His Daughter and Potential Heir**\
 `Kim Ju-ae’s presence at a major gathering of world leaders is the latest sign that North Korea’s dictator considers her a successor, analysts said.`\
 https://nytimes.com/2025/09/02/world/asia/kim-jong-un-ju-ae-china.html
