@@ -1,3 +1,16 @@
+**Brighton's 2025 summer transfer window review: Another big sale but are they now underpowered?**\
+`The club stuck to their usual model by parting with Joao Pedro for big money but there was no direct replacement signed`\
+https://nytimes.com/athletic/6566586/2025/09/03/brighton-summer-transfer-window-review/
+
+**Crystal Palace 2025 summer transfer window review: Final day chaos, but Guehi stays**\
+`Matt Woosnam analyses Crystal Palace's summer transfer window, which became chaotic in the final hours`\
+https://nytimes.com/athletic/6588244/2025/09/03/crystal-palace-2025-summer-transfer-window-guehi-stays-eze-goes/
+
+**Row Z: Newcastle’s tearful Isak tribute, Martinez hanging on the telephone, and Nuno’s quick maths**\
+`Welcome to Row Z, The Athletic’s column that shines a light on the bonkers side of the game
+`\
+https://nytimes.com/athletic/6591572/2025/09/03/row-z-isak-liverpool-newcastle-martinez-manchester-united-chelsea/
+
 **Amorim's options: Picking Man United's strongest XI now the window has closed**\
 `Problems remain, but the reworked 2025-26 United has more of the characteristics necessary for Amorim's football`\
 https://nytimes.com/athletic/6583792/2025/09/03/manchester-united-ruben-amorim-starting-xi/
