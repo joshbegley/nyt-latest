@@ -1,3 +1,19 @@
+**What is 'The U.S. Way' for youth players? Plus: The goalkeepers on the way to Manchester**\
+`Today in TAFC: Explaining how U.S. are trying to take a unified approach to youth development. Plus: the £3.1bn transfer window.`\
+https://nytimes.com/athletic/6594080/2025/09/03/us-way-youth-players-donnarumma-manchester/
+
+**Browns' Kevin Stefanski enters his most important season surrounded by uncertainty**\
+`Stefanski is relying on the 40-year-old Joe Flacco and an offense with many question marks to bounce back from a disappointing 2024 season. `\
+https://nytimes.com/athletic/6592772/2025/09/03/browns-kevin-stefanski-2025-season/
+
+**A Protest in China Doubles as Performance Art**\
+`We explore an act of defiance in China. But first, a look at President Trump’s health.`\
+https://nytimes.com/2025/09/03/briefing/a-protest-in-china-doubles-as-performance-art.html
+
+**The Pulse: How hopeful is every NFL fan base?**\
+`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/6592993/2025/09/03/nfl-hope-o-meter-the-pulse/
+
 **What I'm seeing from the Chiefs: Patrick Mahomes going deep, defense in a rush**\
 `Why you should take Mahomes at his word about the passing game this season, plus why the defense could take down more QBs this season.`\
 https://nytimes.com/athletic/6587441/2025/09/03/kansas-city-chiefs-preview-patrick-mahomes/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6592829/2025/09/03/will-fries-minnesota-vikings-gua
 **In final month of Cardinals season, Jordan Walker's commitment to approach will define his year**\
 `St. Louis has not seen nearly enough improvement this year.`\
 https://nytimes.com/athletic/6593388/2025/09/03/jordan-walker-st-louis-cardinals-improvement/
-
-**Mandel's Mailbag: Where do Bill Belichick, UNC go from here? And Alabama's concerning start**\
-`Plus: Which conferences are emerging after Week 1? And the most impressive new starting QBs. `\
-https://nytimes.com/athletic/6593597/2025/09/03/belichick-north-carolina-alabama-concerns/
-
-**NFL Draft risers from college football's Week 1 include Mansoor Delane, Arvell Reese**\
-`Quarterbacks carried a lot of buzz into Week 1 of the college football season, but several defensive prospects stood out.`\
-https://nytimes.com/athletic/6592072/2025/09/03/nfl-draft-2026-prospects-college-football-delane-reese/
-
-**Six games in 5 days: What a college football road trip taught me about the state of the sport**\
-`On college campuses and even cavernous, neutral-site venues, the sport remains a way of life, a through-line for its communities.`\
-https://nytimes.com/athletic/6593468/2025/09/03/college-football-week-1-road-trip/
-
-**Ha-Seong Kim excited to join Braves, and so were 2 relievers in their MLB debuts**\
-`The former Gold Glove infielder is likely to be the team's shortstop in 2026.`\
-https://nytimes.com/athletic/6593896/2025/09/03/ha-seong-kim-new-atlanta-braves/
 
