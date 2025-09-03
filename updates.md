@@ -1,3 +1,7 @@
+**U.S. Olympic legend Greg Louganis sells medals to help fund move to Panama**\
+`Louganis, 65, also sold his home as a result of his move abroad. `\
+https://nytimes.com/athletic/6593775/2025/09/02/greg-louganis-olympic-medal-sale-us-panama-move/
+
 **How to watch Giants at Rockies: Time, TV, streaming**\
 `Find out how to watch the San Francisco Giants play the Colorado Rockies, with time, TV channel, and streaming information.`\
 https://nytimes.com/athletic/6593856/2025/09/02/san-francisco-giants-vs-colorado-rockies-stream-how-to-watch-sept-3/

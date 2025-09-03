@@ -1,3 +1,7 @@
+**U.S. Olympic legend Greg Louganis sells medals to help fund move to Panama**\
+`Louganis, 65, also sold his home as a result of his move abroad. `\
+https://nytimes.com/athletic/6593775/2025/09/02/greg-louganis-olympic-medal-sale-us-panama-move/
+
 **How to watch Giants at Rockies: Time, TV, streaming**\
 `Find out how to watch the San Francisco Giants play the Colorado Rockies, with time, TV channel, and streaming information.`\
 https://nytimes.com/athletic/6593856/2025/09/02/san-francisco-giants-vs-colorado-rockies-stream-how-to-watch-sept-3/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6593685/2025/09/02/giants-rockies-brawl-ejections/
 **North Carolina Man Had at Least 3 Wives at the Same Time, Police Say**\
 `Money was the motivation, according to the authorities, who charged Harry Irvine Burdick Jr. with two counts of felony bigamy. There may be other victims, they said.`\
 https://nytimes.com/2025/09/02/us/bigamy-marriages-north-carolina.html
-
-**Federal Appeals Court Reinstates an F.T.C. Commissioner Fired by Trump**\
-`The court said the commissioner, Rebecca Kelly Slaughter, had been illegally terminated “without cause.”`\
-https://nytimes.com/2025/09/02/us/politics/ftc-commissioner-slaughter-trump.html
 
