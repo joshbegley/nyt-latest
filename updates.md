@@ -1,3 +1,11 @@
+**Quote of the Day: Up to 1,000 Feared Dead As Landside Hits Darfur**\
+`Quotation of the Day for Wednesday, September 3, 2025.`\
+https://nytimes.com/2025/09/02/pageoneplus/quote-of-the-day-up-to-1000-feared-dead-as-landside-hits-darfur.html
+
+**Cardi B Cleared in Assault Case**\
+`Cardi B, the pop star and rapper, was found not liable in a civil case in which she was accused of assaulting a security guard in 2018.`\
+https://nytimes.com/video/arts/100000010375226/cardi-b-trial.html
+
 **Kyle Tucker exits Tuesday's win with calf tightness as Cubs wait to see extent of injury**\
 `While nobody was sounding alarms at Wrigley Tuesday night, neither Craig Counsell nor Tucker fully put fears to rest.`\
 https://nytimes.com/athletic/6593873/2025/09/02/kyle-tucker-exit-calf-injury-cubs/
