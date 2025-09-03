@@ -1,3 +1,7 @@
+**Britain Moves to Ban Sale of Energy Drinks to Children**\
+`The legislation, which would affect sales to anyone under 16, mirrors regulations in a number of other European countries.`\
+https://nytimes.com/2025/09/03/world/europe/uk-energy-drinks-ban.html
+
 **Did Google Just Get Spared? Investors Think So.**\
 `The nuclear option for addressing the tech giant’s search dominance — a break-up — is off the table. That’s lifting Big Tech stocks.`\
 https://nytimes.com/2025/09/03/business/dealbook/google-search-antitrust-breakup.html
