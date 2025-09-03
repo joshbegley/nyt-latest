@@ -1,3 +1,15 @@
+**An Off Broadway Homecoming for Tarell Alvin McCraney and André Holland**\
+`“The Brothers Size” at the Shed is speaking to a new generation of audiences. “Unfortunately, parts of the plays are still relevant,” McCraney said.`\
+https://nytimes.com/2025/09/03/theater/tarell-alvin-mccraney-and-andre-holland-brothers-size.html
+
+**Roger Goodell: Taylor Swift a 'maybe' for Super Bowl LX halftime show**\
+`Goodell wouldn’t say whether a Swift Super Bowl appearance was already in the works, he didn’t deny the possibility when asked.`\
+https://nytimes.com/athletic/6595136/2025/09/03/taylor-swift-super-bowl-halftime-show-nfl-roger-goodell/
+
+**N.Y. Attorney General Sues Far-Right Group VDARE for Misusing Funds**\
+`The suit says the nonprofit’s leaders — who helped bring anti-immigrant ideas into the G.O.P. mainstream — used donor money to buy a castle-like home.`\
+https://nytimes.com/2025/09/03/us/politics/letitia-james-nonprofit-castle.html
+
 **George Raveling, Coach Who Brought Michael Jordan to Nike, Dies at 88**\
 `He also worked security for the 1963 March on Washington, and ended up with Martin Luther King Jr.’s copy of the “I Have a Dream” speech.`\
 https://nytimes.com/2025/09/03/sports/george-raveling-dead.html
