@@ -1,3 +1,11 @@
+**Appeals Court Blocks Trump’s Use of Alien Enemies Act to Deport Venezuelans**\
+`The ruling was a setback for the Trump administration on the mass deportation of immigrants, one of its domestic policy goals.`\
+https://nytimes.com/2025/09/03/us/politics/trump-alien-enemies-act-court.html
+
+**Did Astros' Framber Valdez intentionally cross up his catcher? Lefty says ‘I hit him by mistake’**\
+`Valdez invited more questions about his disposition during difficult times, something that has been a focus throughout his career. `\
+https://nytimes.com/athletic/6593992/2025/09/03/astros-framber-valdez-cesar-salazar-issue/
+
 **Fourteen Years After Japan’s Nuclear Disaster, People With Cancer Seek Answers**\
 `A survey has found hundreds of thyroid tumors, but Japanese officials say they are unrelated to the Fukushima meltdowns. Now they face a lawsuit.`\
 https://nytimes.com/2025/09/03/world/asia/japan-fukushima-nuclear-cancer.html
