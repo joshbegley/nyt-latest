@@ -1,3 +1,7 @@
+**Stephen Colbert Starts the Final ‘Late Show’ Season With a Toast**\
+`John Oliver joined Colbert for the Season 11 premiere (and a little champagne). “The Real Housewives of Salt Lake City” came up.`\
+https://nytimes.com/2025/09/03/arts/television/colbert-late-show-final-season.html
+
 **Here’s the latest.**\
 `By John Yoon and Francesca Regalado`\
 https://nytimes.com/live/2025/09/03/us/trump-news/heres-the-latest
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/03/nyregion/frog-atlantic-coast-leopard-endangered.h
 **Spelling Bee Forum**\
 `Feeling stuck on today’s puzzle? We can help.`\
 https://nytimes.com/2025/09/03/crosswords/spelling-bee-forum.html
-
-**Giants quick to defend Rafael Devers as benches clear: 'We're a very united team'**\
-`"You never really want to see that stuff, I guess, in most people's eyes. But I think it's sometimes a firestarter in a good way."`\
-https://nytimes.com/athletic/6594022/2025/09/03/sf-giants-rockies-benches-clear-rafael-devers-united-team/
 
