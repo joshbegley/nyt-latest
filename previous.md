@@ -1,3 +1,7 @@
+**Here’s the latest.**\
+`By John Yoon and Francesca Regalado`\
+https://nytimes.com/live/2025/09/03/us/trump-news/heres-the-latest
+
 **Inside Leeds United's window: Ambitious bids, goalkeeper delays and a disappointing final day**\
 `Leeds had a quick start to the window but fans were left disappointed by how it ended`\
 https://nytimes.com/athletic/6591764/2025/09/03/inside-leeds-united-transfer-window/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/03/crosswords/spelling-bee-forum.html
 **Giants quick to defend Rafael Devers as benches clear: 'We're a very united team'**\
 `"You never really want to see that stuff, I guess, in most people's eyes. But I think it's sometimes a firestarter in a good way."`\
 https://nytimes.com/athletic/6594022/2025/09/03/sf-giants-rockies-benches-clear-rafael-devers-united-team/
-
-**Inside Isak's move to Liverpool, the summer's most toxic transfer**\
-`The forward’s decision to effectively go on strike may have torched his Newcastle legacy, but it ultimately led to his sale to Liverpool`\
-https://nytimes.com/athletic/6591674/2025/09/03/alexander-isak-liverpool-newcastle-transfer-inside-deal/
 
