@@ -1,3 +1,8 @@
+**Row Z: Newcastle’s tearful Isak tribute, Martinez hanging on the telephone, and Nuno’s quick maths**\
+`Welcome to Row Z, The Athletic’s column that shines a light on the bonkers side of the game
+`\
+https://nytimes.com/athletic/6591572/2025/09/03/row-z-isak-liverpool-newcastle-martinez-manchester-united-chelsea/
+
 **Brighton's 2025 summer transfer window review: Another big sale but are they now underpowered?**\
 `The club stuck to their usual model by parting with Joao Pedro for big money but there was no direct replacement signed`\
 https://nytimes.com/athletic/6566586/2025/09/03/brighton-summer-transfer-window-review/
