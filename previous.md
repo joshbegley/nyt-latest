@@ -1,40 +1,40 @@
-**England's James in 'ridiculous amount of pain' during 2025 Euros**\
-`The 23-year-old came into the tournament after a hamstring problem and picked up an ankle injury in the quarter final.`\
-https://nytimes.com/athletic/6594092/2025/09/03/lauren-james-injury-2025-euros-chelsea/
+**Behind the Numbers: How Hollywood Missed Its Mark This Summer**\
+`The movie industry had high hopes that box office sales would return to pre-pandemic levels. It didn’t come close.`\
+https://nytimes.com/interactive/2025/09/03/business/media/summer-box-office-movie-tickets-2025.html
 
-**China Projects Power at Parade With Putin and Kim**\
-`President Xi Jinping of China oversaw the country’s ambitious display of military power and diplomatic influence during a parade attended by the leaders of Russia and North Korea.`\
-https://nytimes.com/video/world/asia/100000010375223/xi-putin-kim-parade.html
+**In Maine, Brewery Owner Joins Push to Unseat Susan Collins**\
+`Dan Kleban enters a crowded Democratic primary as party leaders wait for Maine’s Democratic governor, Janet Mills, who is “seriously considering” a run for Senate.`\
+https://nytimes.com/2025/09/03/us/politics/democrats-maine-senate-race.html
 
-**Stephen Colbert Starts the Final ‘Late Show’ Season With a Toast**\
-`John Oliver joined Colbert for the Season 11 premiere (and a little champagne). “The Real Housewives of Salt Lake City” came up.`\
-https://nytimes.com/2025/09/03/arts/television/colbert-late-show-final-season.html
+**Missouri Legislators To Start Special Session on Redistricting**\
+`The lawmakers, led by a Republican majority, are expected to consider new maps that would help Republicans gain another seat in Congress. They already hold six of the state’s eight congressional seats.`\
+https://nytimes.com/2025/09/03/us/missouri-legislators-redistricting-special-session.html
 
-**Here’s the latest.**\
-`By John Yoon and Francesca Regalado`\
-https://nytimes.com/live/2025/09/03/us/trump-news/heres-the-latest
+**Tom Friedman’s A.I. Nightmare and What the U.S. Can Do to Avoid It**\
+`Without trust between America and China on A.I., the risks extend far beyond their borders.`\
+https://nytimes.com/2025/09/03/opinion/us-china-ai-trust.html
 
-**Inside Leeds United's window: Ambitious bids, goalkeeper delays, and a disappointing final day**\
-`Leeds had a quick start to the window but fans were left disappointed by how it ended`\
-https://nytimes.com/athletic/6591764/2025/09/03/inside-leeds-united-transfer-window/
+**Unhappy on Wall Street, Fulfilled as a Paramedic**\
+`Jonathan Kleisner has followed an unusual path to becoming an instructor to rescue medics in the Fire Department.`\
+https://nytimes.com/2025/09/03/nyregion/unhappy-on-wall-street-fulfilled-as-a-paramedic.html
 
-**As Mamdani’s Stature Grows, He Tries to Shed Some Past Stances**\
-`Zohran Mamdani, the Democratic nominee for mayor of New York City, once called for defunding the police and decriminalizing prostitution. He says he has changed.`\
-https://nytimes.com/2025/09/03/nyregion/zohran-mamdani-policy-shifts.html
+**$475,000 Homes in New York, Ohio and Kentucky**\
+`A former schoolhouse in Canaan, a semidetached house in Columbus and a wood-frame house in Louisville.`\
+https://nytimes.com/2025/09/03/realestate/475000-homes-new-york-ohio-kentucky.html
 
-**‘KPop Demon Hunters’**\
-`What was the best piece of art or culture you experienced over the summer?`\
-https://nytimes.com/2025/09/03/learning/kpop-demon-hunters.html
+**5 Minutes That Will Make You Love Mal Waldron**\
+`The music of this pianist, who played with giants like Billie Holiday, Charles Mingus and John Coltrane, can feel mysterious and private, but it rewards deep listening. Explore these 11 songs.`\
+https://nytimes.com/2025/09/03/arts/music/mal-waldron-jazz-music.html
 
-**Demystifying the Art World as a Daily Quest**\
-`Zachary Small’s beat is the opposite of narrow, but that’s part of the fun.`\
-https://nytimes.com/2025/09/03/insider/arts-reporter.html
+**The Teachers Lurking in Your Garden: Hungry Rabbits and Ancient Insects**\
+`Tending to a garden provides a lifelong education in science and wonder, if you get in the dirt and look closely.`\
+https://nytimes.com/2025/09/03/realestate/garden-teacher-plants-animals-insects.html
 
-**The Cloudy Outlook for New York City’s Economy**\
-`Employers are adding far fewer jobs, and even the health care sector could soften. But the city’s economy appears stronger than those on the West Coast.`\
-https://nytimes.com/2025/09/03/nyregion/nyc-economy-jobs.html
+**How to Rethink A.I.**\
+`Building bigger A.I. isn’t leading to better A.I.`\
+https://nytimes.com/2025/09/03/opinion/ai-gpt5-rethinking.html
 
-**Trump Administration Live Updates: Appeals Court Blocks Deportations Under Alien Enemies Act**\
-`The ruling was a setback for a key part of President Trump’s domestic agenda. The case is almost certainly headed to the Supreme Court.`\
-https://nytimes.com/live/2025/09/03/us/trump-news
+**On Driverless Cars, New York Should Remember the Lessons From Uber**\
+`The city embraced new technology without much thought to the consequences — and regretted it.`\
+https://nytimes.com/2025/09/03/opinion/waymo-uber-new-york.html
 
