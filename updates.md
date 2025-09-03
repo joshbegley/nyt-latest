@@ -1,3 +1,7 @@
+**Trump Administration Broke the Law in Freezing Harvard’s Funding, Judge Says**\
+`The ruling marked a victory for Harvard in its battle with the president, but the judge’s decision may not be the final word.`\
+https://nytimes.com/2025/09/03/us/harvard-trump-funding-ruling.html
+
 **Smithsonian Responds to Trump’s Demand for a Review of Its Exhibits**\
 `In a letter to the White House, the Smithsonian asserted its “authority over our programming and content,” but said a team would review what information it would turn over.`\
 https://nytimes.com/2025/09/03/arts/design/smithsonian-bunch-trump.html
