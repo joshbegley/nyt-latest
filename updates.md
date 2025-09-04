@@ -1,3 +1,15 @@
+**Orsted Sues Trump Administration in Fight to Restart Its Blocked Wind Farm**\
+`The Danish company behind Revolution Wind, a $6 billion project off Rhode Island, said the federal government had unlawfully halted work on the wind farm.`\
+https://nytimes.com/2025/09/04/climate/orsted-trump-wind-farm-lawsuit.html
+
+**Fixing a Problem Painting With Ambera Wellmann**\
+`For an ambitious double-gallery debut, the Canadian painter improvised her way through glistening, musical, bulging and hideous fantasias on linen and on walls.`\
+https://nytimes.com/2025/09/04/arts/design/ambera-wellmann-hauser-wirth-company.html
+
+**Trump’s L.A. Military Deployment Cost $120 Million So Far, Newsom Says**\
+`The figure reflects the cost of the deployment since June 7, when President Trump ordered National Guard soldiers and Marines to Los Angeles to quell immigration protests.`\
+https://nytimes.com/2025/09/04/us/politics/trump-national-guard-military-troops-deployment-california.html
+
 **Chelsea reach agreement to sign Thompson from Angel City**\
 `The United States international was the first overall pick in the 2023 NWSL draft, and has made 16 league appearances this season.`\
 https://nytimes.com/athletic/6592132/2025/09/04/alyssa-thompson-chelsea-angel-city-uswnt/
