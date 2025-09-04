@@ -1,3 +1,7 @@
+**How Alex Morgan took a pink headband and turned it into her first savvy business venture**\
+`Retired USMNT great is one of the most financially-successful women’s soccer players - and it all began with a wrap not meant for hair`\
+https://nytimes.com/athletic/6596264/2025/09/04/alex-morgan-pink-prewrap-business-uswnt-san-diego-wave/
+
 **How Jordyn Tyson blossomed at Arizona State and became one of the country's top playmakers**\
 `Position coach Hines Ward tells Tyson he has a chance to be among the school's all-time greats. "The opportunity is there."`\
 https://nytimes.com/athletic/6596460/2025/09/04/jordyn-tyson-arizona-state-wide-receiver-all-american/
