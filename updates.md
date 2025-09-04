@@ -1,3 +1,11 @@
+**What I'm seeing from the Ravens: More contract decisions looming, an OLB on the rise**\
+`Plus, RB Derrick Henry has a chance to rise up the all-time rushing list this season. And WR Devontez Walker has been learning a new skill. `\
+https://nytimes.com/athletic/6594909/2025/09/04/baltimore-ravens-observations-contract-decisions/
+
+**Roberta Vinci, Serena Williams, the U.S. Open and the tennis upset of the century**\
+`10 years ago, Vinci ended Williams' pursuit of a calendar Grand Slam — and tennis history — on Arthur Ashe Stadium.`\
+https://nytimes.com/athletic/6592946/2025/09/04/serena-williams-us-open-2015-roberta-vinci-calendar-grand-slam/
+
 **A Cowboys offseason filled with drama leads to Thursday night vs. Eagles**\
 `A new head coach. A star player traded. Their franchise QB back from injury. A trade for a wild-card receiver. It's the Jerry Jones way.`\
 https://nytimes.com/athletic/6596544/2025/09/04/cowboys-offseason-drama-season-opener-eagles/
