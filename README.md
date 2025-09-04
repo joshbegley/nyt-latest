@@ -1,3 +1,7 @@
+**Plenty 'unusual' about Kawhi Leonard sponsorship deal: 'This does not happen'**\
+`How rare was Kawhi Leonard's $28 million sponsorship deal to do, at most, very little? `\
+https://nytimes.com/athletic/6597250/2025/09/04/kawhi-leonard-clippers-steve-ballmer-sponsorship-deal-aspiration/
+
 **Federal Judge Blocks Trump’s Move to Cut $4.9 Billion in Foreign Aid**\
 `The judge expressed deep skepticism of the administration’s arguments that it had the power to withhold funds appropriated by Congress.`\
 https://nytimes.com/2025/09/04/us/politics/trump-foreign-aid-cuts-judge.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/04/business/joshua-abram-dead.html
 **Defending champion Spain knocked out before EuroBasket Round of 16**\
 `While Spain was eliminated, top NBA stars Giannis Antetokounmpo, Nikola Jokić, Luka Dončić, Lauri Markkanen and Alperen Şengün moved on.`\
 https://nytimes.com/athletic/6599226/2025/09/04/eurobasket-round-16-matchups-schedule-spain-out/
-
-**Macron Said That 26 Countries Would Secure Ukraine**\
-`The pledges were made in Paris at a summit designed to show that Europe is ready to uphold any future peace deal for Ukraine.`\
-https://nytimes.com/2025/09/04/briefing/macron-ukraine-security-afghanistan-quake-armani.html
 
