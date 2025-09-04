@@ -1,3 +1,7 @@
+**Anderson 'really thankful' he rejected Scotland after England call-up**\
+`The Nottingham Forest midfielder withdrew from the Scotland squad ahead of a friendly against England in August 2023.`\
+https://nytimes.com/athletic/6594553/2025/09/04/elliot-anderson-england-scotland-forest/
+
 **Macron Said That 26 Countries Would Secure Ukraine**\
 `The pledges were made in Paris at a summit designed to show that Europe is ready to uphold any future peace deal for Ukraine.`\
 https://nytimes.com/2025/09/04/briefing/macron-ukraine-security-afghanistan-quake-armani.html
