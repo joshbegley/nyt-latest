@@ -1,3 +1,7 @@
+**For the Dodgers, another spoiled chance and a repetitive message: 'It's got to get better'**\
+`The Dodgers' two consecutive losses to the last-place Pirates show that they’ve continued to make things hard on themselves.`\
+https://nytimes.com/athletic/6596842/2025/09/03/dodgers-padres-loss-will-smith-injury/
+
 **How to watch Yankees at Astros: Time, TV, streaming**\
 `Find out how to watch the New York Yankees play the Houston Astros, with time, TV channel, and streaming information.`\
 https://nytimes.com/athletic/6596953/2025/09/03/new-york-yankees-vs-houston-astros-stream-how-to-watch-sept-4/
