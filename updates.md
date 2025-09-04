@@ -1,3 +1,15 @@
+**England U17s international paused for 50 minutes after reports of racist abuse**\
+`The game, which England won 2-1, was halted twice in the second half – for 50 minutes on the second occasion.`\
+https://nytimes.com/athletic/6597414/2025/09/04/england-u17s-racist-abuse-venezuela/
+
+**What's trending in the NFL: Road to Santa Clara, new faces in new places and more**\
+`It feels like it's time for the Bills to return to the Super Bowl, while the Browns seem fast tracked toward the No. 1 pick in the draft.`\
+https://nytimes.com/athletic/6595896/2025/09/04/nfl-trending-week-1-super-bowl-rodgers-parsons/
+
+**What an ACC road trip with Jim Phillips reveals about the league's football identity search**\
+`We tagged along with the commissioner to five marquee ACC games in two days to experience the ups and downs of a conference at a crossroads.`\
+https://nytimes.com/athletic/6594774/2025/09/04/jim-phillips-acc-football-road-trip/
+
 **Second man arrested in relation to racist abuse sent to England's Carter**\
 `The arrest follows the August 28 arrest of a 59-year-old man as part of the same investigation.`\
 https://nytimes.com/athletic/6597423/2025/09/04/jess-carter-racist-abuse-arrests/
