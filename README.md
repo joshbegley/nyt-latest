@@ -1,3 +1,15 @@
+**Koch family agrees to buy 10 percent stake in New York Giants: Source**\
+`If the Koch family buys a minority stake with the team valued at $10 billion, it would mark a record NFL team valuation during a sale.`\
+https://nytimes.com/athletic/6598454/2025/09/04/koch-family-ny-giants-sale/
+
+**Researcher Is Feared Dead After Falling Into a Glacial Stream in Alaska**\
+`The water pushed the man into a hole in the ice that suddenly filled with a torrent of water. He hasn’t been seen since.`\
+https://nytimes.com/2025/09/04/us/alaska-hiker-death-glacier.html
+
+**What's stopping the production of new Michael Jordan or Kobe Bryant NBA cards?**\
+`While many other retired legends still regularly appear in NBA licensed card sets each year, the two most in demand do not`\
+https://nytimes.com/athletic/6598179/2025/09/04/michael-jordan-kobe-bryant-nba-cards/
+
 **Detainee Dies at Rikers, the Fifth Fatality in 2 Weeks in N.Y.C. Lockups**\
 `The authorities said the man had a seizure. The previous death, of a pedicab driver held in a precinct cell, has been ruled a suicide.`\
 https://nytimes.com/2025/09/04/nyregion/rikers-detainee-death.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6598037/2025/09/04/fantasy-baseball-bullpen-report-
 **Justice Dept. Opens Criminal Inquiry Into Lisa Cook, Elevating Trump’s Claims**\
 `The move was instigated by Ed Martin, a Trump loyalist who has said it is legitimate for officials to publicly air criminal investigations into people targeted by the president.`\
 https://nytimes.com/2025/09/04/us/politics/lisa-cook-trump-fed-governor-justice-dept.html
-
-**Epstein’s Victims Won’t Let Trump Push Their Story Aside**\
-`Trump’s recalcitrance isn’t enough to shatter his coalition, but it has created at least a few fissures.`\
-https://nytimes.com/2025/09/04/opinion/epstein-files-victims-trump.html
-
-**Tottenham executive chairman Levy leaves club after 24 years**\
-`Levy’s responsibilities will be taken over by Peter Charrington, who has been appointed to the newly-created role of non-executive chairman.`\
-https://nytimes.com/athletic/6598456/2025/09/04/tottenham-news-levy-step-down-chairman/
-
-**Northwestern’s President Will Resign After University Faced Republican Pressure**\
-`The president, Michael Schill, will step down after months of turbulence, including Trump administration cuts of $790 million to the university’s research funds.`\
-https://nytimes.com/2025/09/04/us/northwestern-president-resigns.html
 
