@@ -1,3 +1,7 @@
+**U.S. Agents Raid Upstate N.Y. Plant and Detain More Than 70 Migrants**\
+`Local law enforcement officers helped federal agents carry out an immigration raid near Syracuse. Witnesses said the agents used police dogs in the raid and wielded crowbars to gain entry.`\
+https://nytimes.com/2025/09/04/nyregion/immigration-raid-new-york.html
+
 **N.Y.C. Elections Board May Block Ballot Proposals on Housing**\
 `The City Council opposes the measures, which would curtail its power. The Board of Elections, appointed by the Council, could prevent voters from weighing in.`\
 https://nytimes.com/2025/09/04/nyregion/charter-revision-nyc-housing.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/04/opinion/giorgio-armani-dead-fashion-barneys.html
 **PBS to Cut 15% of Its Staff**\
 `Congress voted this year to strip $500 million in annual funding from public broadcasters, including PBS stations.`\
 https://nytimes.com/2025/09/04/business/media/pbs-job-cuts.html
-
-**Why FanDuel sponsored trains for Eagles' home opener**\
-`FanDuel will spend up to $80,000 to restore game-day service and make train fares free for fans traveling home from Lincoln Financial Field.`\
-https://nytimes.com/athletic/6598106/2025/09/04/fanduel-eagles-cowboys-trains-septa/
 
