@@ -1,40 +1,40 @@
+**Why Hansi Flick locked his Barcelona players in the dressing room after Rayo Vallecano draw**\
+`The German manager wanted to address what he considers a major problem with Barca's start to the new season`\
+https://nytimes.com/athletic/6594636/2025/09/04/barcelona-hansi-flick-la-liga-egos/
+
+**Spoilt for choice - assessing Tottenham's left-wing options**\
+`Johnson, who Frank tried to sign from Forest while at Brentford, seems to be first choice - but competition for minutes is set to be fierce`\
+https://nytimes.com/athletic/6594179/2025/09/04/tottenham-left-wing-simons-johnson/
+
+**Manchester United's wide combinations are always there, but they need to work more often**\
+`Other tactical issues, poor execution and the lack of a reliable goalscorer have impacted Amorim's men as they try to make these moves click`\
+https://nytimes.com/athletic/6591402/2025/09/04/manchester-united-wide-combinations-analysis/
+
+**Enciso's departure is the right decision, for both him and Brighton**\
+`The Paraguayan showed flashes of brilliance but overall his time at the club was overshadowed by injury and off-field issues`\
+https://nytimes.com/athletic/6553080/2025/09/04/enciso-brighton-departure-right-decision/
+
+**Livakovic on penalty shootouts: 'If you save the first, you look twice the size to opponents'**\
+`Croatia's goalkeeper is an expert at saving penalties. He explains how he does it to Nick Miller...`\
+https://nytimes.com/athletic/6592226/2025/09/04/dominik-livakovic-art-of-saving-penalties/
+
+**Lucas Paqueta ruling explained: FA's poor use of data, Moyes vs analysts, Clattenburg's criticism**\
+`The written reasons why Paqueta was cleared of the FA’s four spot-fixing charges ran to 314 pages - we pick out the key bits`\
+https://nytimes.com/athletic/6595846/2025/09/04/lucas-paqueta-explained-betting-case/
+
+**Revenge of the Six: How England's big beasts clawed back their transfer power**\
+`This was the transfer window which reaffirmed that Premier League financial power still lies with the 'Big Six' `\
+https://nytimes.com/athletic/6592119/2025/09/04/premier-league-transfer-window-big-six/
+
+**70 years of the European Cup/Champions League: 5,976 games, 348 clubs and one Cristiano Ronaldo**\
+`How much has Europe's premier club football tournament changed since it began on this day in 1955?`\
+https://nytimes.com/athletic/6581125/2025/09/04/european-cup-champions-league-statistics/
+
+**The Kroenkes at Arsenal: The rise of Josh, transfer investment, and fan sentiment**\
+`Views of Arsenal's ruling family since their 2018 takeover have fluctuated, but their heavy summer investment has created plenty of optimism`\
+https://nytimes.com/athletic/6565126/2025/09/04/arsenal-ownership-josh-stan-kroenke/
+
 **Booting the ball out from kick-off is a worrying trend - this rule change would curb it**\
 `Data supports the sides who are blasting the ball out of play… but that doesn't make it right`\
 https://nytimes.com/athletic/6594813/2025/09/04/kick-off-rule-change/
-
-**How the transfer window has changed EPL expectations**\
-`The Premier League’s summer of unprecedented spending came to an end with the close of the transfer window on Monday night`\
-https://nytimes.com/athletic/6594686/2025/09/04/premier-league-favourites-how-the-transfer-window-has-impacted-team-expectations/
-
-**Europe Aims to Show It Is Ready to Secure Postwar Ukraine**\
-`President Emmanuel Macron of France is expected to host a meeting of leaders who will review options for protecting any peace with Russia.`\
-https://nytimes.com/2025/09/04/world/europe/ukraine-macron-postwar.html
-
-**Five European World Cup qualifiers to watch**\
-`It’s time to slam the brakes on your domestic campaigns, as Europe’s road to the 2026 World Cup picks up again this week.`\
-https://nytimes.com/athletic/6594587/2025/09/04/five-european-world-cup-qualifiers-to-watch/
-
-**Cairo Santos left Brazil for the U.S. to make it in soccer but became an NFL star instead**\
-`Santos, the first Brazilian-born player to feature in an NFL regular-season game, on why Brazil could have lots of potential NFL stars.`\
-https://nytimes.com/athletic/6546501/2025/09/04/cairo-santos-interview-nfl-chicago-bears/
-
-**With Door to U.N. Slammed Shut, Palestinians Urge U.S. to Drop Visa Ban**\
-`When world leaders meet in New York this month, several plan to recognize a Palestinian state, but Palestinian leaders may not be there to revel in the moment.`\
-https://nytimes.com/2025/09/04/world/middleeast/palestinian-leaders-visa-ban-statehood-conference.html
-
-**‘Unrestrained’ Chinese Cyberattack May Have Stolen Data From Almost Every American**\
-`Information collected during the yearslong  Salt Typhoon attack could allow Beijing’s intelligence services to track targets from the United States and dozens of other countries.`\
-https://nytimes.com/2025/09/04/world/asia/china-hack-salt-typhoon.html
-
-**Corrections: Sept. 4, 2025**\
-`Corrections that appeared in print on Thursday, Sept. 4, 2025.`\
-https://nytimes.com/2025/09/04/pageoneplus/corrections-sept-4-2025.html
-
-**Quote of the Day: Mark Knoller, 73, White House Reporter and Dogged Presidential Stat Keeper**\
-`Quotation of the Day for Thursday, September 4, 2025.`\
-https://nytimes.com/2025/09/03/pageoneplus/quote-of-the-day-mark-knoller-73-white-house-reporter-and-dogged-presidential-stat-keeper.html
-
-**For the Dodgers, another spoiled chance and a repetitive message: 'It's got to get better'**\
-`The Dodgers' two consecutive losses to the last-place Pirates show that they’ve continued to make things hard on themselves.`\
-https://nytimes.com/athletic/6596842/2025/09/03/dodgers-padres-loss-will-smith-injury/
 
