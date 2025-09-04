@@ -1,3 +1,7 @@
+**Park gives Jones Jr gold medal 35 years after controversial Seoul final**\
+`Park travelled to the American's gym in Pensacola, Florida to give the medal to his former opponent in 2023 — 35 years after their bout.`\
+https://nytimes.com/athletic/6598171/2025/09/04/roy-jones-jr-gold-medal-park-si-hun-olympics/
+
 **Seahawks, RT Abe Lucas agree to 3-year, $46 million extension: Source**\
 `Lucas, who battled a nagging knee injury for much of 2023 and 2024, was entering the final year of his contract.`\
 https://nytimes.com/athletic/6598311/2025/09/04/abe-lucas-seahawks-contract-extension/
@@ -6,7 +10,7 @@ https://nytimes.com/athletic/6598311/2025/09/04/abe-lucas-seahawks-contract-exte
 `With its crowd-pleasers and safe bets, this big trade show tones it down for an uncertain art market. Our critics sampled the global art scene for these discoveries.`\
 https://nytimes.com/2025/09/04/arts/design/armory-show-javits-center.html
 
-**USMNT star Tim Weah doubles down on ‘evil’ comment about former players-turned-pundits**\
+**USMNT star Tim Weah doubles down on 'evil' comment about former players turned pundits**\
 `Weah refused to back down over his high-profile criticisms of former players now working in the media.`\
 https://nytimes.com/athletic/6598296/2025/09/04/usmnt-weah-evil-pulisic/
 
@@ -29,8 +33,4 @@ https://nytimes.com/2025/09/04/climate/orsted-trump-wind-farm-lawsuit.html
 **Fixing a Problem Painting With Ambera Wellmann**\
 `For an ambitious double-gallery debut, the Canadian painter improvised her way through glistening, musical, bulging and hideous fantasias on linen and on walls.`\
 https://nytimes.com/2025/09/04/arts/design/ambera-wellmann-hauser-wirth-company.html
-
-**Trump’s L.A. Military Deployment Cost $120 Million So Far, Newsom Says**\
-`The figure reflects the cost of the deployment since June 7, when President Trump ordered National Guard soldiers and Marines to Los Angeles to quell immigration protests.`\
-https://nytimes.com/2025/09/04/us/politics/trump-national-guard-military-troops-deployment-california.html
 
