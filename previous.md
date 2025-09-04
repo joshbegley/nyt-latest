@@ -1,40 +1,40 @@
-**Red Light: Ten most intriguing NHL team camps. Plus: Pick up some tips for your fantasy hockey league**\
-`We are mere days away from real NHL happenings on the ice, so we’re here to get you set for what’s next.`\
-https://nytimes.com/athletic/6597861/2025/09/04/ten-most-intriguing-nhl-team-camps-plus-pick-up-some-tips-for-your-fantasy-hockey-league/
+**How to watch Texans at Rams: Time, TV, streaming**\
+`Find out how to watch the Houston Texans play the Los Angeles Rams, with time, TV channel, and streaming information.`\
+https://nytimes.com/athletic/6598985/2025/09/04/texans-vs-rams-stream-how-to-watch-sept-7/
 
-**Rubio Says U.S. Will Work With Other Nations to ‘Blow Up’ Crime Groups**\
-`The Trump administration aims to carry out more violent strikes against drug cartels, Secretary of State Marco Rubio said as he met with Ecuador’s president.`\
-https://nytimes.com/2025/09/04/world/americas/rubio-ecuador-crime-groups-boat-strike.html
+**How to watch Panthers at Jaguars: Time, TV, streaming**\
+`Find out how to watch the Carolina Panthers play the Jacksonville Jaguars, with time, TV channel, and streaming information.`\
+https://nytimes.com/athletic/6598984/2025/09/04/panthers-vs-jaguars-stream-how-to-watch-sept-7/
 
-**Giorgio Armani Dies at 91**\
-`Giorgio Armani built a luxury fashion empire and made his name all but synonymous with red-carpet dressing. Armani died at his home in Milan. He was 91.`\
-https://nytimes.com/video/obituaries/100000010378804/giorgio-armani-dead.html
+**How to watch Steelers at Jets: Time, TV, streaming**\
+`Find out how to watch the Pittsburgh Steelers play the New York Jets, with time, TV channel, and streaming information.`\
+https://nytimes.com/athletic/6598979/2025/09/04/steelers-vs-jets-stream-how-to-watch-sept-7/
 
-**Members of Congress Grasp for a Stopgap Deal to Avert a Shutdown**\
-`Republicans and Democrats agree they will need a temporary measure to fund the government past Sept. 30, but have yet to come to terms on what it should look like.`\
-https://nytimes.com/2025/09/04/us/politics/congress-stopgap-deal-shutdown.html
+**How to watch 49ers at Seahawks: Time, TV, streaming**\
+`Find out how to watch the San Francisco 49ers play the Seattle Seahawks, with time, TV channel, and streaming information.`\
+https://nytimes.com/athletic/6598968/2025/09/04/49ers-vs-seahawks-stream-how-to-watch-sept-7/
 
-**Ebola Outbreak Is Declared in Province of Congo**\
-`Health officials have recorded 28 suspected cases and 15 fatalities so far in the latest outbreak of the deadly virus, which has claimed thousands of lives in previous outbreaks in the Central African country.`\
-https://nytimes.com/2025/09/04/world/africa/congo-ebola-outbreak.html
+**How to watch Bengals at Browns: Time, TV, streaming**\
+`Find out how to watch the Cincinnati Bengals play the Cleveland Browns, with time, TV channel, and streaming information.`\
+https://nytimes.com/athletic/6598967/2025/09/04/bengals-vs-browns-stream-how-to-watch-sept-7/
 
-**Raising Money-Smart Teens in a Cashless Culture**\
-`As school districts and parents across the nation look for ways to equip teenagers with money management skills, Cash App offers a solution.`\
-https://nytimes.com/paidpost/cash-app/teens-and-families/raising-money-smart-teens-in-a-cashless-culture.html
+**How to watch Ravens at Bills: Time, TV, streaming**\
+`Find out how to watch the Baltimore Ravens play the Buffalo Bills, with time, TV channel, and streaming information.`\
+https://nytimes.com/athletic/6598963/2025/09/04/ravens-vs-bills-stream-how-to-watch-sept-7/
 
-**Trump Claims the Power to Summarily Kill Suspected Drug Smugglers**\
-`The move to treat criminals as if they were wartime combatants escalated an administration pattern of using military force for law enforcement tasks at home and abroad.`\
-https://nytimes.com/2025/09/04/us/politics/trump-drug-smugglers-military.html
+**How to watch Cardinals at Saints: Time, TV, streaming**\
+`Find out how to watch the Arizona Cardinals play the New Orleans Saints, with time, TV channel, and streaming information.`\
+https://nytimes.com/athletic/6598964/2025/09/04/cardinals-vs-saints-stream-how-to-watch-sept-7/
 
-**The Tik Tok Famous Chef Keeping a Sorority Fed**\
-`Kevin Ashton found job satisfaction mentoring sorority sisters at the University of Nevada, Reno.`\
-https://nytimes.com/2025/09/04/dining/tik-tok-chef-sorority.html
+**How to watch Dolphins at Colts: Time, TV, streaming**\
+`Find out how to watch the Miami Dolphins play the Indianapolis Colts, with time, TV channel, and streaming information.`\
+https://nytimes.com/athletic/6598960/2025/09/04/dolphins-vs-colts-stream-how-to-watch-sept-7/
 
-**5 Takeaways From Kennedy’s Senate Hearing**\
-`During often tense exchanges, Health Secretary Robert F. Kennedy Jr. defended his positions on Covid vaccines, the Centers for Disease Control and Prevention and autism.`\
-https://nytimes.com/2025/09/04/health/rfk-jr-senate-hearing-takeaways.html
+**How to watch Vikings at Bears: Time, TV, streaming**\
+`Find out how to watch the Minnesota Vikings play the Chicago Bears, with time, TV channel, and streaming information.`\
+https://nytimes.com/athletic/6598958/2025/09/04/vikings-vs-bears-stream-how-to-watch-sept-8/
 
-**Brisbee: The red-hot Giants are making fans pay attention again, and that's a good thing**\
-`The Giants' playoff odds have crept up to 11 percent. Those aren't good odds, but those odds are well within normal baseball likelihoods.`\
-https://nytimes.com/athletic/6598440/2025/09/04/sf-giants-playoff-chances/
+**How to watch Raiders at Patriots: Time, TV, streaming**\
+`Find out how to watch the Las Vegas Raiders play the New England Patriots, with time, TV channel, and streaming information.`\
+https://nytimes.com/athletic/6598956/2025/09/04/raiders-vs-patriots-stream-how-to-watch-sept-7/
 
