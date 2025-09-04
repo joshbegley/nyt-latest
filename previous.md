@@ -1,40 +1,41 @@
-**America’s War on Terror Comes to the Caribbean**\
-`The Trump administration seems to be betting that Americans are so inured to the war on terrorism that they’ll be indifferent to extrajudicial executions.`\
-https://nytimes.com/2025/09/04/opinion/trump-cartel-boat-destroyed-venezuela-drugs.html
+**Oversight committee approves single January transfer portal window for football**\
+`The NCAA’s administrative committee must still support the change.
+`\
+https://nytimes.com/athletic/6598832/2025/09/04/ncaa-football-transfer-portal-window-january/
 
-**How to watch Titans at Broncos: Time, TV, streaming**\
-`Find out how to watch the Tennessee Titans play the Denver Broncos, with time, TV channel, and streaming information.`\
-https://nytimes.com/athletic/6599009/2025/09/04/titans-vs-broncos-stream-how-to-watch-sept-7/
+**Harvard Won Its Money Back, but Will It Actually Get It?**\
+`A judge ruled that the Trump administration broke the law in canceling billions in federal funds for Harvard. Whether the money is returned matters for the rest of higher education.`\
+https://nytimes.com/2025/09/04/us/harvard-federal-funds-court-victory-trump-administration.html
 
-**How to watch Buccaneers at Falcons: Time, TV, streaming**\
-`Find out how to watch the Tampa Bay Buccaneers play the Atlanta Falcons, with time, TV channel, and streaming information.`\
-https://nytimes.com/athletic/6599003/2025/09/04/buccaneers-vs-falcons-stream-how-to-watch-sept-7/
+**How to watch Utah State at Texas A&M: Time, TV, streaming**\
+`Find out how to watch the Utah State Aggies play the Texas A&M Aggies, with time, TV channel, and streaming information.`\
+https://nytimes.com/athletic/6599114/2025/09/04/utah-state-vs-texas-a-m-stream-how-to-watch-sept-6/
 
-**Time Is Running Out for Lebanon to Disarm Hezbollah, U.S. Officials Warn**\
-`The United States, Israel and the Gulf Arab states are pressuring Lebanon’s government to act decisively against the group.`\
-https://nytimes.com/2025/09/04/us/politics/lebanon-hezbollah-disarm.html
+**How to watch Iowa at Iowa State: Time, TV, streaming**\
+`Find out how to watch the Iowa Hawkeyes play the Iowa State Cyclones, with time, TV channel, and streaming information.`\
+https://nytimes.com/athletic/6599111/2025/09/04/iowa-vs-iowa-state-stream-how-to-watch-sept-6/
 
-**How to watch Giants at Commanders: Time, TV, streaming**\
-`Find out how to watch the New York Giants play the Washington Commanders, with time, TV channel, and streaming information.`\
-https://nytimes.com/athletic/6598998/2025/09/04/giants-vs-commanders-stream-how-to-watch-sept-7/
+**How to watch Kennesaw State at Indiana: Time, TV, streaming**\
+`Find out how to watch the Kennesaw State Owls play the Indiana Hoosiers, with time, TV channel, and streaming information.`\
+https://nytimes.com/athletic/6599109/2025/09/04/kennesaw-state-vs-indiana-stream-how-to-watch-sept-6/
 
-**How to watch Texans at Rams: Time, TV, streaming**\
-`Find out how to watch the Houston Texans play the Los Angeles Rams, with time, TV channel, and streaming information.`\
-https://nytimes.com/athletic/6598985/2025/09/04/texans-vs-rams-stream-how-to-watch-sept-7/
+**How to watch Baylor at SMU: Time, TV, streaming**\
+`Find out how to watch the Baylor Bears play the SMU Mustangs, with time, TV channel, and streaming information.`\
+https://nytimes.com/athletic/6599107/2025/09/04/baylor-vs-smu-stream-how-to-watch-sept-6/
 
-**How to watch Lions at Packers: Time, TV, streaming**\
-`Find out how to watch the Detroit Lions play the Green Bay Packers, with time, TV channel, and streaming information.`\
-https://nytimes.com/athletic/6598986/2025/09/04/lions-vs-packers-stream-how-to-watch-sept-7/
+**How to watch Northern Illinois at Maryland: Time, TV, streaming**\
+`Find out how to watch the Northern Illinois Huskies play the Maryland Terrapins, with time, TV channel, and streaming information.`\
+https://nytimes.com/athletic/6599105/2025/09/04/northern-illinois-vs-maryland-stream-how-to-watch-sept-5/
 
-**How to watch Panthers at Jaguars: Time, TV, streaming**\
-`Find out how to watch the Carolina Panthers play the Jacksonville Jaguars, with time, TV channel, and streaming information.`\
-https://nytimes.com/athletic/6598984/2025/09/04/panthers-vs-jaguars-stream-how-to-watch-sept-7/
+**How to watch Vanderbilt at Virginia Tech: Time, TV, streaming**\
+`Find out how to watch the Vanderbilt Commodores play the Virginia Tech Hokies, with time, TV channel, and streaming information.`\
+https://nytimes.com/athletic/6599102/2025/09/04/vanderbilt-vs-virginia-tech-stream-how-to-watch-sept-6/
 
-**How to watch Steelers at Jets: Time, TV, streaming**\
-`Find out how to watch the Pittsburgh Steelers play the New York Jets, with time, TV channel, and streaming information.`\
-https://nytimes.com/athletic/6598979/2025/09/04/steelers-vs-jets-stream-how-to-watch-sept-7/
+**How to watch Akron at Nebraska: Time, TV, streaming**\
+`Find out how to watch the Akron Zips play the Nebraska Cornhuskers, with time, TV channel, and streaming information.`\
+https://nytimes.com/athletic/6599101/2025/09/04/akron-vs-nebraska-stream-how-to-watch-sept-6/
 
-**How to watch 49ers at Seahawks: Time, TV, streaming**\
-`Find out how to watch the San Francisco 49ers play the Seattle Seahawks, with time, TV channel, and streaming information.`\
-https://nytimes.com/athletic/6598968/2025/09/04/49ers-vs-seahawks-stream-how-to-watch-sept-7/
+**How to watch Middle Tennessee at Wisconsin: Time, TV, streaming**\
+`Find out how to watch the Middle Tennessee Blue Raiders play the Wisconsin Badgers, with time, TV channel, and streaming information.`\
+https://nytimes.com/athletic/6599097/2025/09/04/middle-tennessee-vs-wisconsin-stream-how-to-watch-sept-6/
 
