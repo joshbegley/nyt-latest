@@ -1,3 +1,11 @@
+**What makes a great QB? In 'American Kings,' Seth Wickersham takes journey of discovery**\
+`In book about premier QBs, Wickersham explores factors that shape players like John Elway, Steve Young, Arch Manning and Caleb Williams.`\
+https://nytimes.com/athletic/6595875/2025/09/04/nfl-qb-book-seth-wickersham-column/
+
+**Morocco planning to use stadiums as courts during 2030 World Cup, minister says**\
+`Morocco will co-host the 2030 tournament alongside five other countries.`\
+https://nytimes.com/athletic/6597401/2025/09/04/morocco-world-cup-2030-courts/
+
 **Eagles embrace ‘contribution over credit’ mantra in pursuit of back-to-back Super Bowls**\
 `Nick Sirianni has a clear message about how the Eagles should approach this season.`\
 https://nytimes.com/athletic/6591536/2025/09/04/philadelphia-eagles-game-super-bowl-nick-sirianni/

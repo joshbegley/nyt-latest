@@ -18,7 +18,7 @@ https://nytimes.com/athletic/6596946/2025/09/04/usmnt-summer-transfer-window-imp
 `The process for identifying a new CEO has taken more than 10 months, with multiple candidates holding interviews.`\
 https://nytimes.com/athletic/6493196/2025/09/04/newcastle-ceo-david-hopkinson/
 
-**Mark Andrews' focus is in the right place as Ravens return to Buffalo in Week 1**\
+**Mark Andrews' focus is in right place as Ravens return to Buffalo in Week 1**\
 `The three-time Pro Bowler is eager to take the field as he returns to the site of the worst day of his professional career. `\
 https://nytimes.com/athletic/6596338/2025/09/04/mark-andrews-ravens-bills-week-1/
 
