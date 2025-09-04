@@ -1,3 +1,15 @@
+**Cowboys vs. Eagles: New names to know, old names to remember, mascot and music matchups**\
+`These teams do not like each other. Fortunately for us, they kick off the 2025 NFL season with spirited animosities.`\
+https://nytimes.com/athletic/6593029/2025/09/04/cowboys-eagles-nfl-season-opener-2025/
+
+**The New York Times International Edition in Print for Friday, Sep. 5, 2025**\
+``\
+https://nytimes.com/issue/todaysinyt/2025/09/04/todays-new-york-times-international-edition
+
+**How Jessica Pegula went 'back to the drawing board' – and back into the U.S. Open semifinals**\
+`At last year's tournament, Pegula broke her quarterfinal ceiling and got to the final weekend. Now she is one more match away.`\
+https://nytimes.com/athletic/6596936/2025/09/04/us-open-tennis-jessica-pegula-sabalenka-semifinal/
+
 **What I'm seeing from the Ravens: More contract decisions looming, an OLB on the rise**\
 `Plus, RB Derrick Henry has a chance to rise up the all-time rushing list this season. And WR Devontez Walker has been learning a new skill. `\
 https://nytimes.com/athletic/6594909/2025/09/04/baltimore-ravens-observations-contract-decisions/
