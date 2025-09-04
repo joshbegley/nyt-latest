@@ -1,3 +1,11 @@
+**Why Netflix's next huge event in live sports includes Sinner, Alcaraz, Djokovic**\
+`With Grand Slam tennis TV rights locked up for years, Netflix finds a high-profile exhibition to fuel its ambitions in live sports.`\
+https://nytimes.com/athletic/6598426/2025/09/04/netflix-6-kings-slam-janik-sinner/
+
+**After Afghan Quake, Many Male Rescuers Aided Men but Not Women**\
+`A prohibition on contact between unrelated women and men meant many women’s wounds went untended and some were left trapped under rubble after a deadly earthquake, witnesses said.`\
+https://nytimes.com/2025/09/04/world/asia/afghanistan-earthquake-rescue-efforts-women.html
+
 **Man Accused of Killing Israeli Embassy Staffers Pleads Not Guilty**\
 `At an arraignment on Thursday, Elias Rodriguez faced federal hate crime and other charges that could result in the death penalty.`\
 https://nytimes.com/2025/09/04/us/politics/not-guilty-plea-israeli-embassy.html
