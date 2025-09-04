@@ -1,3 +1,7 @@
+**Trump Claims the Power to Summarily Kill Suspected Drug Smugglers**\
+`The move to treat criminals as if they were wartime combatants escalated an administration pattern of using military force for law enforcement tasks at home and abroad.`\
+https://nytimes.com/2025/09/04/us/politics/trump-drug-smugglers-military.html
+
 **The Tik Tok Famous Chef Keeping a Sorority Fed**\
 `Kevin Ashton found job satisfaction mentoring sorority sisters at the University of Nevada, Reno.`\
 https://nytimes.com/2025/09/04/dining/tik-tok-chef-sorority.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6574857/2025/09/04/grace-clinton-manchester-united-
 **Amari Cooper retires from NFL a week after signing with Las Vegas Raiders: Source**\
 `In theory, Cooper would've provided some depth and veteran insurance to the Raiders' receiver room.`\
 https://nytimes.com/athletic/6598701/2025/09/04/amari-cooper-retire-raiders-nfl/
-
-**Steve Hayden, Writer Behind Apple’s ‘1984’ Commercial, Dies at 78**\
-`The ad for the Macintosh computer — which ran just once, during the Super Bowl — is considered one of the most memorable commercials ever made.`\
-https://nytimes.com/2025/09/04/business/media/steve-hayden-dead.html
 
