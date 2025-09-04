@@ -1,3 +1,11 @@
+**In contrast to USMNT's World Cup approach, Marsch's Canada opts for roster continuity**\
+`On the heels of Gold Cup failure, Canada manager Jesse Marsch laid out his approach to building out his World Cup squad`\
+https://nytimes.com/athletic/6597890/2025/09/04/canada-jesse-marsch-trump-world-cup-usmnt-romania-wales/
+
+**Edgar Feuchtwanger, Who Wrote About Being Hitler’s Neighbor, Dies at 100**\
+`He and his Jewish family lived across the street from the German leader in the 1930s. He later became a British professor and historian.`\
+https://nytimes.com/2025/09/04/world/europe/edgar-feuchtwanger-who-wrote-about-being-hitlers-neighbor-dies-at-100.html
+
 **Broncos LB Nik Bonitto lands 4-year, $106 million contract extension**\
 `Denver's sack specialist becomes the highest-paid defensive player in team history.`\
 https://nytimes.com/athletic/6590839/2025/09/04/broncos-nik-bonitto-new-contract/
