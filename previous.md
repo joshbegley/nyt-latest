@@ -1,3 +1,11 @@
+**‘Riefenstahl’ Review: Hitler’s Favorite Filmmaker Revisited**\
+`This cleareyed documentary looks at how Leni Riefenstahl, the director of the Nazi propaganda film “Triumph of the Will,” tirelessly tried to rewrite history.`\
+https://nytimes.com/2025/09/04/movies/riefenstahl-review-hitler-documentary.html
+
+**داخل أكثر سجون سوريا رعبًا**\
+`زُجّ عشرات الآلاف من السوريين في سجن صيدنايا خلال حكم الأسد. قامت صحيفة نيويورك تايمز بإنشاء نموذجًا ثلاثي الأبعاد للسجن.`\
+https://nytimes.com/interactive/2025/09/04/world/middleeast/syria-sednaya-prison-assad-arabic.html
+
 **Orsted Sues Trump Administration in Fight to Restart Its Blocked Wind Farm**\
 `The Danish company behind Revolution Wind, a $6 billion project off Rhode Island, said the federal government had unlawfully halted work on the wind farm.`\
 https://nytimes.com/2025/09/04/climate/orsted-trump-wind-farm-lawsuit.html
@@ -21,12 +29,4 @@ https://nytimes.com/2025/09/04/arts/design/amy-sherald-art-smithsonian-baltimore
 **Kerr to return to Chelsea squad for WSL opener after ACL injury**\
 `The Australia international, 31, has been out for a year and a half after suffering an anterior cruciate ligament injury in January 2024.`\
 https://nytimes.com/athletic/6598200/2025/09/04/sam-kerr-chelsea-women-team-injury-news/
-
-**How the Lisbon Funicular Works and Where It Crashed**\
-`The funicular, one of Lisbon’s most popular tourist attractions, transports passengers to and from the<strong> </strong>scenic Bairro Alto neighborhood.`\
-https://nytimes.com/interactive/2025/09/04/world/europe/lisbon-funicular-crash-photo-map-location.html
-
-**Is That Bob Dylan in the Mirror?**\
-`In his autobiographical novel, Sam Sussman grows up wondering if his affinity for the great singer-songwriter goes beyond a striking resemblance.`\
-https://nytimes.com/2025/09/04/books/sam-sussman-bob-dylan-boy-from-the-north-country.html
 

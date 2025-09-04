@@ -1,3 +1,11 @@
+**‘Riefenstahl’ Review: Hitler’s Favorite Filmmaker Revisited**\
+`This cleareyed documentary looks at how Leni Riefenstahl, the director of the Nazi propaganda film “Triumph of the Will,” tirelessly tried to rewrite history.`\
+https://nytimes.com/2025/09/04/movies/riefenstahl-review-hitler-documentary.html
+
+**داخل أكثر سجون سوريا رعبًا**\
+`زُجّ عشرات الآلاف من السوريين في سجن صيدنايا خلال حكم الأسد. قامت صحيفة نيويورك تايمز بإنشاء نموذجًا ثلاثي الأبعاد للسجن.`\
+https://nytimes.com/interactive/2025/09/04/world/middleeast/syria-sednaya-prison-assad-arabic.html
+
 **Orsted Sues Trump Administration in Fight to Restart Its Blocked Wind Farm**\
 `The Danish company behind Revolution Wind, a $6 billion project off Rhode Island, said the federal government had unlawfully halted work on the wind farm.`\
 https://nytimes.com/2025/09/04/climate/orsted-trump-wind-farm-lawsuit.html
