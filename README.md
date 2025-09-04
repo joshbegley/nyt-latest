@@ -1,3 +1,7 @@
+**Humans Are Altering the Seas. Here’s What the Future Ocean Might Look Like.**\
+`Some marine ecosystems could soon be unrecognizable, according to new research. We mapped the possibilities.`\
+https://nytimes.com/interactive/2025/09/04/climate/ocean-water-temperatures-sea-levels.html
+
 **Koch family agrees to buy 10 percent stake in New York Giants: Source**\
 `If the Koch family buys a minority stake with the team valued at $10 billion, it would mark a record NFL team valuation during a sale.`\
 https://nytimes.com/athletic/6598454/2025/09/04/koch-family-ny-giants-sale/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6598391/2025/09/04/nfl-best-bets-week-1-bengals-tex
 **Fantasy baseball bullpen report featuring Cole Sands, JoJo Romero and injury news**\
 `Greg Jewett gives fantasy managers still in contention a leg up on the competition with his report on saves, holds and SOLDS leaders. `\
 https://nytimes.com/athletic/6598037/2025/09/04/fantasy-baseball-bullpen-report-sands-romero/
-
-**Justice Dept. Opens Criminal Inquiry Into Lisa Cook, Elevating Trump’s Claims**\
-`The move was instigated by Ed Martin, a Trump loyalist who has said it is legitimate for officials to publicly air criminal investigations into people targeted by the president.`\
-https://nytimes.com/2025/09/04/us/politics/lisa-cook-trump-fed-governor-justice-dept.html
 
