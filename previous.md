@@ -1,3 +1,7 @@
+**What I'm seeing from the Browns: An open-minded Joe Flacco, lack of depth at key spots**\
+`Also, kicker Andre Szmyt is making his NFL debut. And how will Dawand Jones and the offensive line hold up against the Bengals in Week 1? `\
+https://nytimes.com/athletic/6596310/2025/09/04/cleveland-browns-depth-joe-flacco/
+
 **How Trump Exploits Emergency Declarations to Expand Presidential Power**\
 `We catalog the president’s emergencies to explore how he is using them to remake the government.`\
 https://nytimes.com/2025/09/04/briefing/how-trump-exploits-emergency-declarations-to-expand-presidential-power.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6590492/2025/09/04/detroit-lions-preview-expectatio
 **Canada's X-factor: At 38, Crosby remains the unmatched 'advantage' for Olympic hockey**\
 `Teammates and execs say Crosby is the one thing that separates Team Canada from the pack in best-on-best play.`\
 https://nytimes.com/athletic/6590934/2025/09/04/sidney-crosby-canada-olympic-hockey/
-
-**Why Rocco Becht was exactly what Iowa State needed**\
-`Becht has led Iowa State to a resurgence after the program staggered following a successful run. `\
-https://nytimes.com/athletic/6593425/2025/09/04/rocco-becht-iowa-state/
 

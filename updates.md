@@ -1,3 +1,7 @@
+**What I'm seeing from the Browns: An open-minded Joe Flacco, lack of depth at key spots**\
+`Also, kicker Andre Szmyt is making his NFL debut. And how will Dawand Jones and the offensive line hold up against the Bengals in Week 1? `\
+https://nytimes.com/athletic/6596310/2025/09/04/cleveland-browns-depth-joe-flacco/
+
 **How Trump Exploits Emergency Declarations to Expand Presidential Power**\
 `We catalog the president’s emergencies to explore how he is using them to remake the government.`\
 https://nytimes.com/2025/09/04/briefing/how-trump-exploits-emergency-declarations-to-expand-presidential-power.html
