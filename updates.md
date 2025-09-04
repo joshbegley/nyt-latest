@@ -1,3 +1,23 @@
+**How to watch Cowboys at Eagles: Time, TV, streaming**\
+`Find out how to watch the Dallas Cowboys play the Philadelphia Eagles, with time, TV channel, and streaming information.`\
+https://nytimes.com/athletic/6597908/2025/09/04/dallas-cowboys-vs-philadelphia-eagles-stream-how-to-watch-sept-4/
+
+**Meet the New ‘S.N.L.’ Cast Members**\
+`Please Don’t Destroy will stop making videos for the show as Ben Marshall joins the cast. Watch clips of him and the other new additions.`\
+https://nytimes.com/2025/09/04/arts/television/snl-new-cast-members-clips.html
+
+**Willian agrees deal with Gremio after Fulham exit**\
+`The 36-year-old had rejoined Fulham at the end of the January transfer window, just six months after leaving Craven Cottage.`\
+https://nytimes.com/athletic/6317475/2025/09/04/willian-gremio-transfer-fulham/
+
+**Here’s the latest.**\
+`By Sheryl Gay Stolberg`\
+https://nytimes.com/live/2025/09/04/us/rfk-jr-senate-hearing-health/heres-the-latest
+
+**Live Updates: Kennedy Set to Face Senate Scrutiny Over Vaccines**\
+`Some senators from both parties say Robert F. Kennedy Jr.’s promises on vaccine policy and his actions as health secretary haven’t matched.`\
+https://nytimes.com/live/2025/09/04/us/rfk-jr-senate-hearing-health
+
 **French women's team barred from World Boxing Championships over late gender test results**\
 `The team has blamed World Boxing for recommending a laboratory which was not able to produce the results in time.`\
 https://nytimes.com/athletic/6597721/2025/09/04/world-boxing-championship-gender-test/
