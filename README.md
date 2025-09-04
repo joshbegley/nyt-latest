@@ -1,3 +1,11 @@
+**What makes a great QB? In 'American Kings,' Seth Wickersham takes journey of discovery**\
+`In book about premier QBs, Wickersham explores factors that shape players like John Elway, Steve Young, Arch Manning and Caleb Williams.`\
+https://nytimes.com/athletic/6595875/2025/09/04/nfl-qb-book-seth-wickersham-column/
+
+**Morocco planning to use stadiums as courts during 2030 World Cup, minister says**\
+`Morocco will co-host the 2030 tournament alongside five other countries.`\
+https://nytimes.com/athletic/6597401/2025/09/04/morocco-world-cup-2030-courts/
+
 **Eagles embrace ‘contribution over credit’ mantra in pursuit of back-to-back Super Bowls**\
 `Nick Sirianni has a clear message about how the Eagles should approach this season.`\
 https://nytimes.com/athletic/6591536/2025/09/04/philadelphia-eagles-game-super-bowl-nick-sirianni/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6594774/2025/09/04/jim-phillips-acc-football-road-t
 **Second man arrested in relation to racist abuse sent to England's Carter**\
 `The arrest follows the August 28 arrest of a 59-year-old man as part of the same investigation.`\
 https://nytimes.com/athletic/6597423/2025/09/04/jess-carter-racist-abuse-arrests/
-
-**Yankees announcers biggest fear? Turning Cam Schlittler's name into an expletive on air**\
-`Ryan Ruocco recently made a foul-mouthed flub when saying Schlittler, a name that forces broadcasters to carefully watch their words. `\
-https://nytimes.com/athletic/6596553/2025/09/04/cam-schlittler-name-yankees-announcers-mispronounce/
-
-**College football Week 2 streaming guide: Michigan-OU, Cy-Hawk and potential chaos agents**\
-`Michigan and Oklahoma headline the Week 2 FBS lineup, but there are a handful of possible upsets and in-state pressure cookers to watch for.`\
-https://nytimes.com/athletic/6593167/2025/09/04/college-football-week-2-michigan-oklahoma-iowa-iowa-st-how-to-watch/
 
