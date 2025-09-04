@@ -1,3 +1,11 @@
+**In contrast to USMNT's World Cup approach, Marsch's Canada opts for roster continuity**\
+`On the heels of Gold Cup failure, Canada manager Jesse Marsch laid out his approach to building out his World Cup squad`\
+https://nytimes.com/athletic/6597890/2025/09/04/canada-jesse-marsch-trump-world-cup-usmnt-romania-wales/
+
+**Edgar Feuchtwanger, Who Wrote About Being Hitler’s Neighbor, Dies at 100**\
+`He and his Jewish family lived across the street from the German leader in the 1930s. He later became a British professor and historian.`\
+https://nytimes.com/2025/09/04/world/europe/edgar-feuchtwanger-who-wrote-about-being-hitlers-neighbor-dies-at-100.html
+
 **Broncos LB Nik Bonitto lands 4-year, $106 million contract extension**\
 `Denver's sack specialist becomes the highest-paid defensive player in team history.`\
 https://nytimes.com/athletic/6590839/2025/09/04/broncos-nik-bonitto-new-contract/
@@ -25,12 +33,4 @@ https://nytimes.com/2025/09/04/style/giorgio-armani-photos.html
 **Mick Herron: What I’m Reading (and Why ‘Wind in the Willows’ Scares Me)**\
 `The author of the Slough House novels — the latest one is “Clown Town” — has an eclectic stack on his nightstand.`\
 https://nytimes.com/2025/09/04/books/review/mick-herron-clown-town-slough-house.html
-
-**How Alex Morgan took a pink headband and turned it into her first savvy business venture**\
-`Retired USMNT great is one of the most financially-successful women’s soccer players - and it all began with a wrap not meant for hair`\
-https://nytimes.com/athletic/6596264/2025/09/04/alex-morgan-pink-prewrap-business-uswnt-san-diego-wave/
-
-**How Jordyn Tyson blossomed at Arizona State and became one of the country's top playmakers**\
-`Position coach Hines Ward tells Tyson he has a chance to be among the school's all-time greats. "The opportunity is there."`\
-https://nytimes.com/athletic/6596460/2025/09/04/jordyn-tyson-arizona-state-wide-receiver-all-american/
 

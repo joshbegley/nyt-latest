@@ -1,3 +1,11 @@
+**Broncos LB Nik Bonitto lands 4-year, $106 million contract extension**\
+`Denver's sack specialist becomes the highest-paid defensive player in team history.`\
+https://nytimes.com/athletic/6590839/2025/09/04/broncos-nik-bonitto-new-contract/
+
+**What is a catch? Plays by LSU, South Carolina reignite age-old debate**\
+`Barion Brown's overturned TD catch in Saturday's LSU-Clemson game was one of the officiating talking points of Week 1.`\
+https://nytimes.com/athletic/6597942/2025/09/04/lsu-clemson-catch-overturned-rule/
+
 **Robert Jay Lifton, Psychiatrist Drawn to Humanity’s Horrors, Dies at 99**\
 `His work led him into some of history’s darkest corners, including the role of doctors in the Nazi era and the torture of Iraqi prisoners at Abu Ghraib.`\
 https://nytimes.com/2025/09/04/obituaries/robert-jay-lifton-dead.html
