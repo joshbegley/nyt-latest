@@ -1,3 +1,15 @@
+**Chelsea reach agreement to sign Thompson from Angel City**\
+`The United States international was the first overall pick in the 2023 NWSL draft, and has made 16 league appearances this season.`\
+https://nytimes.com/athletic/6592132/2025/09/04/alyssa-thompson-chelsea-angel-city-uswnt/
+
+**Amy Sherald, Having Canceled Her Smithsonian Show, Will Take Paintings to Baltimore**\
+`The artist had canceled the show in July, citing concerns about censorship at the Smithsonian. Now, the exhibition will be restaged at the Baltimore Museum of Art.`\
+https://nytimes.com/2025/09/04/arts/design/amy-sherald-art-smithsonian-baltimore-museum.html
+
+**Kerr to return to Chelsea squad for WSL opener after ACL injury**\
+`The Australia international, 31, has been out for a year and a half after suffering an anterior cruciate ligament injury in January 2024.`\
+https://nytimes.com/athletic/6598200/2025/09/04/sam-kerr-chelsea-women-team-injury-news/
+
 **How the Lisbon Funicular Works and Where It Crashed**\
 `The funicular, one of Lisbon’s most popular tourist attractions, transports passengers to and from the<strong> </strong>scenic Bairro Alto neighborhood.`\
 https://nytimes.com/interactive/2025/09/04/world/europe/lisbon-funicular-crash-photo-map-location.html

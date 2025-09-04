@@ -1,3 +1,15 @@
+**Chelsea reach agreement to sign Thompson from Angel City**\
+`The United States international was the first overall pick in the 2023 NWSL draft, and has made 16 league appearances this season.`\
+https://nytimes.com/athletic/6592132/2025/09/04/alyssa-thompson-chelsea-angel-city-uswnt/
+
+**Amy Sherald, Having Canceled Her Smithsonian Show, Will Take Paintings to Baltimore**\
+`The artist had canceled the show in July, citing concerns about censorship at the Smithsonian. Now, the exhibition will be restaged at the Baltimore Museum of Art.`\
+https://nytimes.com/2025/09/04/arts/design/amy-sherald-art-smithsonian-baltimore-museum.html
+
+**Kerr to return to Chelsea squad for WSL opener after ACL injury**\
+`The Australia international, 31, has been out for a year and a half after suffering an anterior cruciate ligament injury in January 2024.`\
+https://nytimes.com/athletic/6598200/2025/09/04/sam-kerr-chelsea-women-team-injury-news/
+
 **How the Lisbon Funicular Works and Where It Crashed**\
 `The funicular, one of Lisbon’s most popular tourist attractions, transports passengers to and from the<strong> </strong>scenic Bairro Alto neighborhood.`\
 https://nytimes.com/interactive/2025/09/04/world/europe/lisbon-funicular-crash-photo-map-location.html
@@ -21,16 +33,4 @@ https://nytimes.com/athletic/6597747/2025/09/04/penguins-sale-hoffmann-family-fs
 **EA Sports backs off plans to make college basketball video game: Memo**\
 `In the memo, EA Sports cited some schools accepting a 2K Sports proposal for inclusion in the "NBA 2K" series.`\
 https://nytimes.com/athletic/6598089/2025/09/04/ea-sports-college-basketball-video-game-2k/
-
-**Discovering Surprises Among the Familiar at the Independent 20th Century**\
-`A trove of 20th-century art  from Lebanon to Santa Fe, Miami to Mumbai. Look for  spiritualist painting and undersung artists from Hawaii and Mississippi.`\
-https://nytimes.com/2025/09/04/arts/design/independent-20th-century-art-fair-battery-cipriani-review.html
-
-**D.C. Sues Trump Administration Over Deployment of National Guard**\
-`The city is challenging the federal government’s authority to send troops into the city for what the president has called a “public safety emergency.”`\
-https://nytimes.com/2025/09/04/us/dc-trump-national-guard-suit.html
-
-**New York Giants 2025: What does a successful season look like? NFL experts weigh in**\
-`After winning nine games combined the past two seasons, is a nine-win season in 2025 realistic for the Giants? One NFL analyst thinks so. `\
-https://nytimes.com/athletic/6597104/2025/09/04/ny-giants-successful-season-jaxson-dart/
 
