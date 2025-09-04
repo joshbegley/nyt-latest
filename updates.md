@@ -1,3 +1,11 @@
+**Trump Asks Supreme Court to Allow Removal of F.T.C. Commissioner**\
+`A federal appeals court had reinstated the commissioner, Rebecca Kelly Slaughter, saying she was fired ‘without cause.’`\
+https://nytimes.com/2025/09/04/us/politics/trump-ftc-slaughter-supreme-court.html
+
+**Senators Grilled R.F.K. Jr. On Vaccines**\
+`Plus, the life of Giorgio Armani. Here’s the latest at the end of Thursday.`\
+https://nytimes.com/2025/09/04/briefing/senators-grilled-rfk-jr-on-vaccines.html
+
 **Woman, 72, Dies in Fire in East Harlem Apartment Building**\
 `Firefighters took the stairs to reach the woman’s 19th-floor apartment on Wednesday. Residents said one of the building’s two elevators wasn’t working and that the other moved very slowly.`\
 https://nytimes.com/2025/09/04/nyregion/east-harlem-apartment-fire-death.html

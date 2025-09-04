@@ -1,3 +1,11 @@
+**Trump Asks Supreme Court to Allow Removal of F.T.C. Commissioner**\
+`A federal appeals court had reinstated the commissioner, Rebecca Kelly Slaughter, saying she was fired ‘without cause.’`\
+https://nytimes.com/2025/09/04/us/politics/trump-ftc-slaughter-supreme-court.html
+
+**Senators Grilled R.F.K. Jr. On Vaccines**\
+`Plus, the life of Giorgio Armani. Here’s the latest at the end of Thursday.`\
+https://nytimes.com/2025/09/04/briefing/senators-grilled-rfk-jr-on-vaccines.html
+
 **Woman, 72, Dies in Fire in East Harlem Apartment Building**\
 `Firefighters took the stairs to reach the woman’s 19th-floor apartment on Wednesday. Residents said one of the building’s two elevators wasn’t working and that the other moved very slowly.`\
 https://nytimes.com/2025/09/04/nyregion/east-harlem-apartment-fire-death.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/09/04/us/politics/kavanaugh-lower-court-judges.html
 **How to watch Nationals at Cubs: Time, TV, streaming for September 5**\
 `Find out how to watch the Washington Nationals play the Chicago Cubs, with time, TV channel, and streaming information.`\
 https://nytimes.com/athletic/6599289/2025/09/04/nationals-vs-cubs-stream-how-to-watch-sept-5/
-
-**Deadly Floods Inundate Northern India**\
-`Heavy rains, flash-floods and cloudbursts have battered much of Northern India in recent weeks, killings hundreds of people and displacing more than a million.`\
-https://nytimes.com/video/world/asia/100000010379618/floods-northern-india.html
-
-**Chargers are home team in Brazil, but Chiefs colors will be in one end zone**\
-`Since 2019, home teams in NFL international games have traditionally had their logos and colors in both end zones.`\
-https://nytimes.com/athletic/6599185/2025/09/04/chargers-chiefs-brazil-end-zone-colors/
 
