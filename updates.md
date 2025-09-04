@@ -3,6 +3,11 @@
 `\
 https://nytimes.com/athletic/6598832/2025/09/04/ncaa-football-transfer-portal-window-january/
 
+**Oversight committee approves single January transfer portal window for football**\
+`The NCAA’s administrative committee must still support the change.
+`\
+https://nytimes.com/athletic/6598832/2025/09/04/ncaa-football-transfer-portal-window-january/
+
 **Harvard Won Its Money Back, but Will It Actually Get It?**\
 `A judge ruled that the Trump administration broke the law in canceling billions in federal funds for Harvard. Whether the money is returned matters for the rest of higher education.`\
 https://nytimes.com/2025/09/04/us/harvard-federal-funds-court-victory-trump-administration.html

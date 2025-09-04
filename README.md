@@ -1,3 +1,15 @@
+**Can You Ace Our Tennis Quiz?**\
+`Test your knowledge of the drama on these real and fictional courts.`\
+https://nytimes.com/interactive/2025/09/04/arts/tennis-quiz-us-open.html
+
+**G.O.P. Senators Sharply Question Kennedy on Vaccines**\
+`At a contentious hearing with Robert F. Kennedy Jr., the health secretary, Republicans who voted to confirm him were among his critics.`\
+https://nytimes.com/2025/09/04/us/politics/republicans-kennedy-vaccines.html
+
+**‘The Paper’ Is Hollywood’s Latest Take on Journalism**\
+`Sometimes, journalists are heroes onscreen. Other times, they can’t help but fall in love.`\
+https://nytimes.com/2025/09/04/arts/the-paper-journalism-tv-shows-movies.html
+
 **Oversight committee approves single January transfer portal window for football**\
 `The NCAA’s administrative committee must still support the change.
 `\
@@ -26,16 +38,4 @@ https://nytimes.com/athletic/6599107/2025/09/04/baylor-vs-smu-stream-how-to-watc
 **How to watch Northern Illinois at Maryland: Time, TV, streaming**\
 `Find out how to watch the Northern Illinois Huskies play the Maryland Terrapins, with time, TV channel, and streaming information.`\
 https://nytimes.com/athletic/6599105/2025/09/04/northern-illinois-vs-maryland-stream-how-to-watch-sept-5/
-
-**How to watch Vanderbilt at Virginia Tech: Time, TV, streaming**\
-`Find out how to watch the Vanderbilt Commodores play the Virginia Tech Hokies, with time, TV channel, and streaming information.`\
-https://nytimes.com/athletic/6599102/2025/09/04/vanderbilt-vs-virginia-tech-stream-how-to-watch-sept-6/
-
-**How to watch Akron at Nebraska: Time, TV, streaming**\
-`Find out how to watch the Akron Zips play the Nebraska Cornhuskers, with time, TV channel, and streaming information.`\
-https://nytimes.com/athletic/6599101/2025/09/04/akron-vs-nebraska-stream-how-to-watch-sept-6/
-
-**How to watch Middle Tennessee at Wisconsin: Time, TV, streaming**\
-`Find out how to watch the Middle Tennessee Blue Raiders play the Wisconsin Badgers, with time, TV channel, and streaming information.`\
-https://nytimes.com/athletic/6599097/2025/09/04/middle-tennessee-vs-wisconsin-stream-how-to-watch-sept-6/
 
