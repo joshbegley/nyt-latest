@@ -1,3 +1,11 @@
+**'Ridiculous': Devin Williams, Yankees rip umpire after meltdown loss to Astros**\
+`If the Yankees’ collapse in a wild 8-7 loss wasn’t their worst loss of the season, it seemed their most bitter.`\
+https://nytimes.com/athletic/6597164/2025/09/04/yankees-devin-williams-rip-umpire-astros/
+
+**Word of the Day: verbose**\
+`This word has appeared in 24 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2025/09/04/learning/word-of-the-day-verbose.html
+
 **Astros 'get past' their cross-up controversy with a satisfying win**\
 `The Astros distanced themselves from a difficult Tuesday with an 8-7 victory over the New York Yankees on Wednesday.`\
 https://nytimes.com/athletic/6597145/2025/09/04/astros-win-yankees-cross-up-cesar-salazar/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6573780/2025/09/04/womens-super-league-questions-ch
 **Merlin Rohl could offer the missing magic to Everton's midfield**\
 `While Rohl is unlikely to be a long-term Gueye replacement, with a bit of luck, he can bring a new dimension to Everton’s evolving squad`\
 https://nytimes.com/athletic/6594373/2025/09/04/merlin-rohl-everton-midfield/
-
-**Why Hansi Flick locked his Barcelona players in the dressing room after Rayo Vallecano draw**\
-`The German manager wanted to address what he considers a major problem with Barca's start to the new season`\
-https://nytimes.com/athletic/6594636/2025/09/04/barcelona-hansi-flick-la-liga-egos/
-
-**Spoilt for choice - assessing Tottenham's left-wing options**\
-`Johnson, who Frank tried to sign from Forest while at Brentford, seems to be first choice - but competition for minutes is set to be fierce`\
-https://nytimes.com/athletic/6594179/2025/09/04/tottenham-left-wing-simons-johnson/
 
