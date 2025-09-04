@@ -1,3 +1,7 @@
+**Why World Cup final tickets could cost $6,000. Plus: Hansi Flick blasts his Barca stars**\
+`Today in TAFC: Explaining dynamic pricing at the 2026 World Cup and why the FA was slammed in the 314-page Lucas Paqueta verdict`\
+https://nytimes.com/athletic/6597372/2025/09/04/the-athletic-fc-newsletter-world-cup-barcelona-paqueta/
+
 **The Pulse: The Kawhi Leonard investigation, explained**\
 `The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
 https://nytimes.com/athletic/6595848/2025/09/04/kawhi-leonard-investigation-salary-cap-the-pulse/
