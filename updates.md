@@ -1,3 +1,7 @@
+**Belichick bans Pats, limits other NFL scouts from watching UNC practices**\
+`Belichick isn't violating any rules by limiting Pats and NFL scouting access to his practices, but one scouting source called it "petty."`\
+https://nytimes.com/athletic/6599598/2025/09/04/bill-belichick-bans-patriots-limits-other-nfl-scouts-from-viewing-unc-practices/
+
 **Trump Asks Supreme Court to Allow Removal of F.T.C. Commissioner**\
 `A federal appeals court had reinstated the commissioner, Rebecca Kelly Slaughter, saying she was fired ‘without cause.’`\
 https://nytimes.com/2025/09/04/us/politics/trump-ftc-slaughter-supreme-court.html
