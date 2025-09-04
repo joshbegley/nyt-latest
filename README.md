@@ -1,3 +1,15 @@
+**Cowboys vs. Eagles: New names to know, old names to remember, mascot and music matchups**\
+`These teams do not like each other. Fortunately for us, they kick off the 2025 NFL season with spirited animosities.`\
+https://nytimes.com/athletic/6593029/2025/09/04/cowboys-eagles-nfl-season-opener-2025/
+
+**The New York Times International Edition in Print for Friday, Sep. 5, 2025**\
+``\
+https://nytimes.com/issue/todaysinyt/2025/09/04/todays-new-york-times-international-edition
+
+**How Jessica Pegula went 'back to the drawing board' – and back into the U.S. Open semifinals**\
+`At last year's tournament, Pegula broke her quarterfinal ceiling and got to the final weekend. Now she is one more match away.`\
+https://nytimes.com/athletic/6596936/2025/09/04/us-open-tennis-jessica-pegula-sabalenka-semifinal/
+
 **What I'm seeing from the Ravens: More contract decisions looming, an OLB on the rise**\
 `Plus, RB Derrick Henry has a chance to rise up the all-time rushing list this season. And WR Devontez Walker has been learning a new skill. `\
 https://nytimes.com/athletic/6594909/2025/09/04/baltimore-ravens-observations-contract-decisions/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/09/04/us/politics/greene-boebert-mace-epstein-trump.htm
 **Lost in Translation: Upscale Clothing Company Takes Name Fight to Supreme Court**\
 `Why does Veuve Clicquot get a U.S. trademark while Vetements — home of the packing-tape minidress, no less! — does not? Its lawyers want to know.`\
 https://nytimes.com/2025/09/04/world/europe/vetements-trademark-lawsuit.html
-
-**For Donald Trump, Everything Is an Emergency**\
-`He’s exploiting a diabolical problem in our legal system to expand presidential power.`\
-https://nytimes.com/2025/09/04/briefing/trump-state-of-emergency.html
-
-**What Can Democrats Do to Get Rid of the Scarlet L for Loser?**\
-`It does seem that our entire democracy may be riding on whether the party can find the right leader.`\
-https://nytimes.com/2025/09/04/opinion/democrats-republicans-trump-2026.html
-
-**Should 16-Year-Olds Be Allowed to Vote?**\
-`Britain is lowering its voting age to 16. Is it time for the United States to do the same?`\
-https://nytimes.com/2025/09/04/learning/should-16-year-olds-be-allowed-to-vote.html
 
