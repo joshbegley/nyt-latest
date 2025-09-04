@@ -1,3 +1,19 @@
+**Eagles embrace ‘contribution over credit’ mantra in pursuit of back-to-back Super Bowls**\
+`Nick Sirianni has a clear message about how the Eagles should approach this season.`\
+https://nytimes.com/athletic/6591536/2025/09/04/philadelphia-eagles-game-super-bowl-nick-sirianni/
+
+**How the summer transfer window impacts USMNT's World Cup roster battle**\
+`A series of significant moves – and non-moves – will play a pivotal role as the U.S. player pool is whittled down for a home World Cup`\
+https://nytimes.com/athletic/6596946/2025/09/04/usmnt-summer-transfer-window-impact/
+
+**Newcastle name former Madrid executive Hopkinson as new CEO**\
+`The process for identifying a new CEO has taken more than 10 months, with multiple candidates holding interviews.`\
+https://nytimes.com/athletic/6493196/2025/09/04/newcastle-ceo-david-hopkinson/
+
+**Mark Andrews' focus is in the right place as Ravens return to Buffalo in Week 1**\
+`The three-time Pro Bowler is eager to take the field as he returns to the site of the worst day of his professional career. `\
+https://nytimes.com/athletic/6596338/2025/09/04/mark-andrews-ravens-bills-week-1/
+
 **England U17s international paused for 50 minutes after reports of racist abuse**\
 `The game, which England won 2-1, was halted twice in the second half – for 50 minutes on the second occasion.`\
 https://nytimes.com/athletic/6597414/2025/09/04/england-u17s-racist-abuse-venezuela/
