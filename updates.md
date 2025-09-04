@@ -1,4 +1,8 @@
 **Portugal Mourns After Deadly Funicular Crash and Looks for Its Cause**\
+`The authorities are investigating an accident that killed 17 people and working to identify victims, which they said had Portuguese and foreign surnames.`\
+https://nytimes.com/2025/09/04/world/europe/lisbon-funicular-crash-elevador-da-gloria-portugal.html
+
+**Portugal Mourns After Deadly Funicular Crash and Looks for Its Cause**\
 `The authorities are investigating an accident that killed 17 people and working to identify victims, which they said included Portuguese and foreigners.`\
 https://nytimes.com/2025/09/04/world/europe/lisbon-funicular-crash-elevador-da-gloria-portugal.html
 
