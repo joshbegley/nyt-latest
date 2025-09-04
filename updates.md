@@ -1,3 +1,19 @@
+**Woman, 72, Dies in Fire in East Harlem Apartment Building**\
+`Firefighters took the stairs to reach the woman’s 19th-floor apartment on Wednesday. Residents said one of the building’s two elevators wasn’t working and that the other moved very slowly.`\
+https://nytimes.com/2025/09/04/nyregion/east-harlem-apartment-fire-death.html
+
+**Adams Considers Dropping Out of Race After Secret Meeting in Florida**\
+`Mayor Eric Adams of New York City has told confidants that he would consider abandoning his re-election bid, despite his public denials.`\
+https://nytimes.com/2025/09/04/nyregion/adams-trump-job-quits.html
+
+**Joshua Abram Dies at 62; Gave Workspace-Sharing an Upscale Spin**\
+`He and a partner made their co-working locations feel like private clubs. Among his other ventures, he sought to slash the cost of in vitro fertilization by using robotics and A.I.`\
+https://nytimes.com/2025/09/04/business/joshua-abram-dead.html
+
+**Defending champion Spain knocked out before EuroBasket Round of 16**\
+`While Spain was eliminated, top NBA stars Giannis Antetokounmpo, Nikola Jokić, Luka Dončić, Lauri Markkanen and Alperen Şengün moved on.`\
+https://nytimes.com/athletic/6599226/2025/09/04/eurobasket-round-16-matchups-schedule-spain-out/
+
 **Anderson 'really thankful' he rejected Scotland after England call-up**\
 `The Nottingham Forest midfielder withdrew from the Scotland squad ahead of a friendly against England in August 2023.`\
 https://nytimes.com/athletic/6594553/2025/09/04/elliot-anderson-england-scotland-forest/
