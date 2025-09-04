@@ -1,3 +1,7 @@
+**Second man arrested in relation to racist abuse sent to England's Carter**\
+`The arrest follows the August 28 arrest of a 59-year-old man as part of the same investigation.`\
+https://nytimes.com/athletic/6597423/2025/09/04/jess-carter-racist-abuse-arrests/
+
 **Yankees announcers biggest fear? Turning Cam Schlittler's name into an expletive on air**\
 `Ryan Ruocco recently made a foul-mouthed flub when saying Schlittler, a name that forces broadcasters to carefully watch their words. `\
 https://nytimes.com/athletic/6596553/2025/09/04/cam-schlittler-name-yankees-announcers-mispronounce/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6593295/2025/09/04/minnesota-hockey-hall-of-fame-pl
 **Who wins: A roster of NHL stars with two first names, or unique first names?**\
 `Featuring some agonizing near-misses, a bunch of old-timey guys and possibly the best line to ever appear in a fake roster challenge.`\
 https://nytimes.com/athletic/6586415/2025/09/04/nhl-unique-first-names-rosters/
-
-**Ravens as Super Bowl champs? Joe Burrow as MVP? The Athletic staff’s NFL predictions for 2025**\
-`Here are our picks for the teams that will surprise and disappoint, the players who will win awards and the coaches who should be concerned.`\
-https://nytimes.com/athletic/6582021/2025/09/04/nfl-predictions-super-bowl-awards-experts-poll/
 
