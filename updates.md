@@ -1,3 +1,7 @@
+**49ers, WR Jauan Jennings agree to contract adjustment: Source**\
+`Jennings missed most of training camp and all of the preseason with a calf injury.`\
+https://nytimes.com/athletic/6582188/2025/09/03/jauan-jennings-contract-49ers-deal/
+
 **Investor’s Question**\
 `Colin Ernst’s puzzle rises above … well, you’ll see.`\
 https://nytimes.com/2025/09/03/crosswords/investors-question.html

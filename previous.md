@@ -1,3 +1,7 @@
+**49ers, WR Jauan Jennings agree to contract adjustment: Source**\
+`Jennings missed most of training camp and all of the preseason with a calf injury.`\
+https://nytimes.com/athletic/6582188/2025/09/03/jauan-jennings-contract-49ers-deal/
+
 **Investor’s Question**\
 `Colin Ernst’s puzzle rises above … well, you’ll see.`\
 https://nytimes.com/2025/09/03/crosswords/investors-question.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/world/asia/100000010372402/what-to-know-about-chinas-m
 **Astros place Spencer Arrighetti on IL with elbow inflammation**\
 `The move puts the rest of Arrighetti's season in peril while weakening an Astros pitching staff already staggered by attrition.`\
 https://nytimes.com/athletic/6596561/2025/09/03/astros-spencer-arrighetti-injury/
-
-**How to watch Dodgers at Pirates: Time, TV, streaming**\
-`Find out how to watch the Los Angeles Dodgers play the Pittsburgh Pirates, with time, TV channel, and streaming information.`\
-https://nytimes.com/athletic/6596581/2025/09/03/los-angeles-dodgers-vs-pittsburgh-pirates-stream-how-to-watch-sept-4/
 
