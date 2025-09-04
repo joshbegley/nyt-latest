@@ -1,3 +1,7 @@
+**Second man arrested in relation to racist abuse sent to England's Carter**\
+`The arrest follows the August 28 arrest of a 59-year-old man as part of the same investigation.`\
+https://nytimes.com/athletic/6597423/2025/09/04/jess-carter-racist-abuse-arrests/
+
 **Yankees announcers biggest fear? Turning Cam Schlittler's name into an expletive on air**\
 `Ryan Ruocco recently made a foul-mouthed flub when saying Schlittler, a name that forces broadcasters to carefully watch their words. `\
 https://nytimes.com/athletic/6596553/2025/09/04/cam-schlittler-name-yankees-announcers-mispronounce/
