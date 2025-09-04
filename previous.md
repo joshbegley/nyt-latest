@@ -1,3 +1,7 @@
+**NFL Week 1 fantasy football cheat sheet: Worthy, Kelce top targets for Chiefs**\
+`Fantasy football relevant injuries and their impact, weather reports and game previews. Plus, Ciely's Week 1 player rankings and more.`\
+https://nytimes.com/athletic/6483817/2025/09/04/fantasy-football-cheat-sheet-nfl-week-1-injuries/
+
 **Painting Looted by the Nazis Is Handed to Argentine Authorities**\
 `“Portrait of a Lady,” by the Italian painter Giuseppe Ghislandi, had not been seen for 80 years until journalists spotted it in a real estate listing.`\
 https://nytimes.com/2025/09/04/arts/argentina-ghislandi-painting-looted-nazis.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/09/04/us/trump-news
 **Soul of the Seahawks: How Devon Witherspoon embodies Mike Macdonald's vision**\
 `Witherspoon has rare ability to motivate teammates, almost reminiscent of Marshawn Lynch. "He's everything to this team," Ernest Jones said.`\
 https://nytimes.com/athletic/6587568/2025/09/04/devon-witherspoon-seahawks-2025-season/
-
-**Can Broncos QB Bo Nix handle pass-rush pressure better in Year 2?**\
-`The second-year QB is eager to pull from his 'bank' of reps against pressure looks after struggling with some of those wrinkles as a rookie.`\
-https://nytimes.com/athletic/6595433/2025/09/04/bo-nix-broncos-pass-rush-pressure/
 

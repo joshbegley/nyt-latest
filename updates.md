@@ -1,3 +1,7 @@
+**NFL Week 1 fantasy football cheat sheet: Worthy, Kelce top targets for Chiefs**\
+`Fantasy football relevant injuries and their impact, weather reports and game previews. Plus, Ciely's Week 1 player rankings and more.`\
+https://nytimes.com/athletic/6483817/2025/09/04/fantasy-football-cheat-sheet-nfl-week-1-injuries/
+
 **Painting Looted by the Nazis Is Handed to Argentine Authorities**\
 `“Portrait of a Lady,” by the Italian painter Giuseppe Ghislandi, had not been seen for 80 years until journalists spotted it in a real estate listing.`\
 https://nytimes.com/2025/09/04/arts/argentina-ghislandi-painting-looted-nazis.html
