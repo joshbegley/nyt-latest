@@ -1,3 +1,11 @@
+**NFL Week 1 best bets: Fading Matthew Stafford due to injury plus some early unders**\
+`Austin Mock has four bets for the first week of the NFL season, including a play on the Houston Texans at the LA Rams.`\
+https://nytimes.com/athletic/6598391/2025/09/04/nfl-best-bets-week-1-bengals-texans-giants/
+
+**Fantasy baseball bullpen report featuring Cole Sands, JoJo Romero and injury news**\
+`Greg Jewett gives fantasy managers still in contention a leg up on the competition with his report on saves, holds and SOLDS leaders. `\
+https://nytimes.com/athletic/6598037/2025/09/04/fantasy-baseball-bullpen-report-sands-romero/
+
 **Justice Dept. Opens Criminal Inquiry Into Lisa Cook, Elevating Trump’s Claims**\
 `The move was instigated by Ed Martin, a Trump loyalist who has said it is legitimate for officials to publicly air criminal investigations into people targeted by the president.`\
 https://nytimes.com/2025/09/04/us/politics/lisa-cook-trump-fed-governor-justice-dept.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/09/04/t-magazine/galerie-sardine-party.html
 **College football best bets Week 2: Picking ACC favorites and a double-digit underdog**\
 `Austin Mock has three bets lined up for Week 2 of college football season, including a game that is taking place on Friday.`\
 https://nytimes.com/athletic/6594920/2025/09/04/college-football-best-bets-week-2-louisville-syracuse/
-
-**Worst Rains in Decades Batter North India, Submerging Crops**\
-`The floods, which have killed hundreds, are bad news for farmers weighed down by heavy debt, as India is under pressure from President Trump in tariff negotiations.`\
-https://nytimes.com/2025/09/04/world/asia/punjab-india-floods-crops.html
-
-**Mets to call up pitching prospect Brandon Sproat for MLB debut: Source**\
-`The right-hander is slated to pitch Sunday as the the Mets continue leaning on top pitching prospects to help during the stretch run.`\
-https://nytimes.com/athletic/6598364/2025/09/04/mets-prospect-brandon-sproat-mlb-debut/
 
