@@ -1,3 +1,11 @@
+**A Small but Telling Moment in Kennedy’s Hearing**\
+`Unlike his combative exchanges with senators about vaccines, Robert F. Kennedy Jr. was conciliatory and accommodating about agriculture interests.`\
+https://nytimes.com/2025/09/04/opinion/robert-f-kennedy-maha-food-vaccines.html
+
+**Quakes on Mars Reveal New Features of the Planet’s Interior**\
+`Using data from NASA’s retired InSight lander, two separate teams of researchers found evidence of a sluggish Martian mantle and a solid inner core.`\
+https://nytimes.com/2025/09/04/science/astronomy-geology-mars-quakes.html
+
 **Can You Ace Our Tennis Quiz?**\
 `Test your knowledge of the drama on these real and fictional courts.`\
 https://nytimes.com/interactive/2025/09/04/arts/tennis-quiz-us-open.html
@@ -30,12 +38,4 @@ https://nytimes.com/athletic/6599111/2025/09/04/iowa-vs-iowa-state-stream-how-to
 **How to watch Kennesaw State at Indiana: Time, TV, streaming**\
 `Find out how to watch the Kennesaw State Owls play the Indiana Hoosiers, with time, TV channel, and streaming information.`\
 https://nytimes.com/athletic/6599109/2025/09/04/kennesaw-state-vs-indiana-stream-how-to-watch-sept-6/
-
-**How to watch Baylor at SMU: Time, TV, streaming**\
-`Find out how to watch the Baylor Bears play the SMU Mustangs, with time, TV channel, and streaming information.`\
-https://nytimes.com/athletic/6599107/2025/09/04/baylor-vs-smu-stream-how-to-watch-sept-6/
-
-**How to watch Northern Illinois at Maryland: Time, TV, streaming**\
-`Find out how to watch the Northern Illinois Huskies play the Maryland Terrapins, with time, TV channel, and streaming information.`\
-https://nytimes.com/athletic/6599105/2025/09/04/northern-illinois-vs-maryland-stream-how-to-watch-sept-5/
 
