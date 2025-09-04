@@ -1,3 +1,7 @@
+**Suntory Boss Who Resigned Said He Took CBD Supplements for Jet Lag**\
+`Takeshi Niinami said he never used the products in Japan, where officials are investigating whether they are banned under the country’s strict drug laws.`\
+https://nytimes.com/2025/09/04/business/suntory-takeshi-niinami-jetlag-cbd.html
+
 **Revealed: Liverpool's £20m academy revamp, featuring an indoor dome and padbol**\
 `The Athletic has been given exclusive insight into how Liverpool plan to transform their flourishing academy `\
 https://nytimes.com/athletic/6569609/2025/09/04/liverpool-academy-revamp/
