@@ -1,3 +1,11 @@
+**The New York Times in Print for Thursday, Sep. 4, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/09/04/todays-new-york-times
+
+**The War in Ukraine Has a Shocking New Weapon**\
+`Teenagers are being recruited for one-off covert attacks behind enemy lines.`\
+https://nytimes.com/2025/09/04/opinion/russia-ukraine-sabotage-teens.html
+
 **China’s Show of Military Might**\
 `Xi Jinping’s huge military parade in Tiananmen Square provided a rare look at China’s new weapons.`\
 https://nytimes.com/2025/09/04/briefing/china-military-protugal-funicular-crash.html

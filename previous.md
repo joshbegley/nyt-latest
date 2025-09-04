@@ -1,3 +1,11 @@
+**The New York Times in Print for Thursday, Sep. 4, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/09/04/todays-new-york-times
+
+**The War in Ukraine Has a Shocking New Weapon**\
+`Teenagers are being recruited for one-off covert attacks behind enemy lines.`\
+https://nytimes.com/2025/09/04/opinion/russia-ukraine-sabotage-teens.html
+
 **China’s Show of Military Might**\
 `Xi Jinping’s huge military parade in Tiananmen Square provided a rare look at China’s new weapons.`\
 https://nytimes.com/2025/09/04/briefing/china-military-protugal-funicular-crash.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6592226/2025/09/04/dominik-livakovic-art-of-saving-
 **Lucas Paqueta ruling explained: FA's poor use of data, Moyes vs analysts, Clattenburg's criticism**\
 `The written reasons why Paqueta was cleared of the FA’s four spot-fixing charges ran to 314 pages - we pick out the key bits`\
 https://nytimes.com/athletic/6595846/2025/09/04/lucas-paqueta-explained-betting-case/
-
-**Revenge of the Six: How England's big beasts clawed back their transfer power**\
-`This was the transfer window which reaffirmed that Premier League financial power still lies with the 'Big Six' `\
-https://nytimes.com/athletic/6592119/2025/09/04/premier-league-transfer-window-big-six/
-
-**70 years of the European Cup/Champions League: 5,976 games, 348 clubs and one Cristiano Ronaldo**\
-`How much has Europe's premier club football tournament changed since it began on this day in 1955?`\
-https://nytimes.com/athletic/6581125/2025/09/04/european-cup-champions-league-statistics/
 
