@@ -1,3 +1,11 @@
+**College football best bets Week 2: Picking ACC favorites and a double-digit underdog**\
+`Austin Mock has three bets lined up for Week 2 of college football season, including a game that is taking place on Friday.`\
+https://nytimes.com/athletic/6594920/2025/09/04/college-football-best-bets-week-2-louisville-syracuse/
+
+**Worst Rains in Decades Batter North India, Submerging Crops**\
+`The floods, which have killed hundreds, are bad news for farmers weighed down by heavy debt, as India is under pressure from President Trump in tariff negotiations.`\
+https://nytimes.com/2025/09/04/world/asia/punjab-india-floods-crops.html
+
 **Mets to call up pitching prospect Brandon Sproat for MLB debut: Source**\
 `The New York Mets’ recent trend of calling up top pitching prospects to help during the stretch run is set to continue.`\
 https://nytimes.com/athletic/6598364/2025/09/04/mets-prospect-brandon-sproat-mlb-debut/
@@ -25,12 +33,4 @@ https://nytimes.com/athletic/6598311/2025/09/04/abe-lucas-seahawks-contract-exte
 **Daunted by the Sprawling Armory Show? Try These 13 Certified Winners.**\
 `With its crowd-pleasers and safe bets, this big trade show tones it down for an uncertain art market. Our critics sampled the global art scene for these discoveries.`\
 https://nytimes.com/2025/09/04/arts/design/armory-show-javits-center.html
-
-**USMNT star Tim Weah doubles down on 'evil' comment about former players turned pundits**\
-`Weah refused to back down on his high-profile criticisms of former players now working in the media.`\
-https://nytimes.com/athletic/6598296/2025/09/04/usmnt-weah-evil-pulisic/
-
-**Live Phillies Q&A with Matt Gelb on Friday: Submit questions**\
-`Matt Gelb will host a live Q&A with subscribers from noon to 12:45 p.m. ET on Friday. Questions can be submitted now or during the live Q&A.`\
-https://nytimes.com/athletic/6598326/2025/09/04/live-phillies-qa-with-matt-gelb-on-friday/
 
