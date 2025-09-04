@@ -30,7 +30,3 @@ https://nytimes.com/interactive/2025/09/04/world/middleeast/syria-sednaya-prison
 `The Danish company behind Revolution Wind, a $6 billion project off Rhode Island, said the federal government had unlawfully halted work on the wind farm.`\
 https://nytimes.com/2025/09/04/climate/orsted-trump-wind-farm-lawsuit.html
 
-**Fixing a Problem Painting With Ambera Wellmann**\
-`For an ambitious double-gallery debut, the Canadian painter improvised her way through glistening, musical, bulging and hideous fantasias on linen and on walls.`\
-https://nytimes.com/2025/09/04/arts/design/ambera-wellmann-hauser-wirth-company.html
-
