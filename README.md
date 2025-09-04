@@ -1,3 +1,7 @@
+**How to watch Yankees at Astros: Time, TV, streaming**\
+`Find out how to watch the New York Yankees play the Houston Astros, with time, TV channel, and streaming information.`\
+https://nytimes.com/athletic/6596953/2025/09/03/new-york-yankees-vs-houston-astros-stream-how-to-watch-sept-4/
+
 **Blue Jays takeaways: Biggest series, George Springer’s ascension and bullpen struggles**\
 `The Blue Jays rallied past the Reds and now head to New York for a pivotal series against the Yankees. `\
 https://nytimes.com/athletic/6596790/2025/09/03/blue-jays-george-springer-yankees-series/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6596590/2025/09/03/naomi-osaka-karolina-muchova-us-
 **Alabama DT Jeremiah Beaman likely out for season, Kalen DeBoer says**\
 `Beaman sustained a lower-body injury at Wednesday's practice.`\
 https://nytimes.com/athletic/6596592/2025/09/03/alabama-jeremiah-beaman-injury-status/
-
-**Mason Miller throws immaculate inning as Padres' comeback attempt falls short in sweep**\
-`Miller was perfect, but only after Nestor Cortes frustrated Padres fans: “I would have booed myself too if I was watching this game.” `\
-https://nytimes.com/athletic/6596184/2025/09/03/padres-immaculate-inning-mason-miller/
 
