@@ -1,3 +1,7 @@
+**Revealed: Liverpool's £20m academy revamp, featuring an indoor dome and padbol**\
+`The Athletic has been given exclusive insight into how Liverpool plan to transform their flourishing academy `\
+https://nytimes.com/athletic/6569609/2025/09/04/liverpool-academy-revamp/
+
 **'Ridiculous': Devin Williams, Yankees rip umpire after meltdown loss to Astros**\
 `If the Yankees’ collapse in a wild 8-7 loss wasn’t their worst loss of the season, it seemed their most bitter.`\
 https://nytimes.com/athletic/6597164/2025/09/04/yankees-devin-williams-rip-umpire-astros/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/04/briefing/china-military-protugal-funicular-crash.
 **Will Chelsea be beaten? Who's the best signing? Are London City a threat? The WSL roundtable**\
 `Can Chelsea be stopped? Are Leicester City really going to be in trouble? How will Olivia Smith fare? The key WSL questions answered`\
 https://nytimes.com/athletic/6573780/2025/09/04/womens-super-league-questions-chelsea-arsenal-manchester-soccer/
-
-**Merlin Rohl could offer the missing magic to Everton's midfield**\
-`While Rohl is unlikely to be a long-term Gueye replacement, with a bit of luck, he can bring a new dimension to Everton’s evolving squad`\
-https://nytimes.com/athletic/6594373/2025/09/04/merlin-rohl-everton-midfield/
 

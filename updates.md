@@ -1,3 +1,7 @@
+**Revealed: Liverpool's £20m academy revamp, featuring an indoor dome and padbol**\
+`The Athletic has been given exclusive insight into how Liverpool plan to transform their flourishing academy `\
+https://nytimes.com/athletic/6569609/2025/09/04/liverpool-academy-revamp/
+
 **'Ridiculous': Devin Williams, Yankees rip umpire after meltdown loss to Astros**\
 `If the Yankees’ collapse in a wild 8-7 loss wasn’t their worst loss of the season, it seemed their most bitter.`\
 https://nytimes.com/athletic/6597164/2025/09/04/yankees-devin-williams-rip-umpire-astros/
