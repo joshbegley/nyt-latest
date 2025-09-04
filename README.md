@@ -1,3 +1,7 @@
+**UNC vs. TCU averages 6.6 million viewers in Bill Belichick's college coaching debut**\
+`Bill Belichick's North Carolina coaching debut was a bust as far as the scoreboard, but it came up big with television viewership.`\
+https://nytimes.com/athletic/6599805/2025/09/04/unc-tcu-viewership-ratings-bill-belichick/
+
 **Pennsylvania Couple Kept 5 Children in ‘Deplorable’ Conditions, Police Say**\
 `The children, between the ages of 5 and 14, were locked in a room that the authorities said “functioned as a dungeon,” with no beds and boarded-up windows.`\
 https://nytimes.com/2025/09/04/us/pennsylvania-parents-children-dungeon-arrest.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6599355/2025/09/04/daniel-levy-tottenham-exit-legac
 **New Congressional Map Clears First Hurdle in Missouri**\
 `A legislative committee took a first step to redraw the state’s congressional map in a Republican effort to gain a new seat.`\
 https://nytimes.com/2025/09/04/us/new-congressional-map-clears-first-hurdle-in-missouri.html
-
-**Melania Trump Has a Warning for Humanity: ‘The Robots Are Here’**\
-`The first lady has shown herself to be captivated by the wonders and dangers and opportunities of modern technologies.`\
-https://nytimes.com/2025/09/04/us/politics/melania-trump-robots-humanity.html
 
