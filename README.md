@@ -1,4 +1,4 @@
-**Cam Thomas signs 1-year qualifying offer to return to Nets: Source**\
+**Cam Thomas signs 1-year qualifying offer to return to Nets: Sources**\
 `The decision ends the prolonged standoff between the high-scoring 23-year-old guard and the Brooklyn Nets. `\
 https://nytimes.com/athletic/6540392/2025/09/04/cam-thomas-nets-contract-nba/
 
