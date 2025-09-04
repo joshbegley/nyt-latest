@@ -1,3 +1,5 @@
+
+
 **Giorgio Armani Gave Men Permission to Feel Fashionable**\
 `Fred Pressman respected no brand as much as the ultimate brand: quality. And that, Giorgio delivered in spades.`\
 https://nytimes.com/2025/09/04/opinion/giorgio-armani-dead-fashion-barneys.html
