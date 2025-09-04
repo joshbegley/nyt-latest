@@ -1,3 +1,11 @@
+**Macron Said That 26 Countries Would Secure Ukraine**\
+`The pledges were made in Paris at a summit designed to show that Europe is ready to uphold any future peace deal for Ukraine.`\
+https://nytimes.com/2025/09/04/briefing/macron-ukraine-security-afghanistan-quake-armani.html
+
+**Kavanaugh Acknowledges ‘Difficult Job’ of His Lower-Court Colleagues**\
+`Speaking at a judicial conference in Memphis, the justice expressed sympathy for the district-court judges whose rulings the Supreme Court has repeatedly paused.`\
+https://nytimes.com/2025/09/04/us/politics/kavanaugh-lower-court-judges.html
+
 **How to watch Nationals at Cubs: Time, TV, streaming for September 5**\
 `Find out how to watch the Washington Nationals play the Chicago Cubs, with time, TV channel, and streaming information.`\
 https://nytimes.com/athletic/6599289/2025/09/04/nationals-vs-cubs-stream-how-to-watch-sept-5/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6598747/2025/09/04/bjorn-borg-prostate-cancer/
 **Appeals Court Says ‘Alligator Alcatraz’ Detention Center Can Stay Open**\
 `The court paused a federal judge’s ruling that no additional detainees could be sent to the center, and that much of it had to be dismantled within 60 days.`\
 https://nytimes.com/2025/09/04/us/alligator-alcatraz-florida-appeals.html
-
-**The Armani Look**\
-`Few designers really change the way people dress. He did it twice.`\
-https://nytimes.com/2025/09/04/style/giorgio-armani.html
-
-**The Climate Forward Conference Is Coming Soon**\
-`On Sept. 24, the Times will host leaders, policymakers and executives in frank discussions about a consequential year in the fight against climate change.`\
-https://nytimes.com/2025/09/04/climate/the-climate-forward-conference-is-coming-soon.html
 

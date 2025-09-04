@@ -2,6 +2,10 @@
 `The pledges were made in Paris at a summit designed to show that Europe is ready to uphold any future peace deal for Ukraine.`\
 https://nytimes.com/2025/09/04/briefing/macron-ukraine-security-afghanistan-quake-armani.html
 
+**Anderson 'really thankful' he rejected Scotland after England call-up**\
+`The Nottingham Forest midfielder withdrew from the Scotland squad ahead of a friendly against England in August 2023.`\
+https://nytimes.com/athletic/6594553/2025/09/04/elliot-anderson-england-scotland-forest/
+
 **Kavanaugh Acknowledges ‘Difficult Job’ of His Lower-Court Colleagues**\
 `Speaking at a judicial conference in Memphis, the justice expressed sympathy for the district-court judges whose rulings the Supreme Court has repeatedly paused.`\
 https://nytimes.com/2025/09/04/us/politics/kavanaugh-lower-court-judges.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/04/business/boeing-strike-union-st-louis.html
 **Björn Borg reveals he has been living with prostate cancer**\
 `The 11-time Grand Slam champion revealed he had surgery a couple of years ago "because the cancer turned out to be extremely aggressive."`\
 https://nytimes.com/athletic/6598747/2025/09/04/bjorn-borg-prostate-cancer/
-
-**Appeals Court Says ‘Alligator Alcatraz’ Detention Center Can Stay Open**\
-`The court paused a federal judge’s ruling that no additional detainees could be sent to the center, and that much of it had to be dismantled within 60 days.`\
-https://nytimes.com/2025/09/04/us/alligator-alcatraz-florida-appeals.html
 
