@@ -1,3 +1,15 @@
+**Appeals Court Says ‘Alligator Alcatraz’ Detention Center Can Stay Open**\
+`The court paused a federal judge’s ruling that no additional detainees could be sent to the center, and that much of it had to be dismantled within 60 days.`\
+https://nytimes.com/2025/09/04/us/alligator-alcatraz-florida-appeals.html
+
+**The Armani Look**\
+`Few designers really change the way people dress. He did it twice.`\
+https://nytimes.com/2025/09/04/style/giorgio-armani.html
+
+**The Climate Forward Conference Is Coming Soon**\
+`On Sept. 24, the Times will host leaders, policymakers and executives in frank discussions about a consequential year in the fight against climate change.`\
+https://nytimes.com/2025/09/04/climate/the-climate-forward-conference-is-coming-soon.html
+
 **A Small but Telling Moment in Kennedy’s Hearing**\
 `Unlike his combative exchanges with senators about vaccines, Robert F. Kennedy Jr. was conciliatory and accommodating about agriculture interests.`\
 https://nytimes.com/2025/09/04/opinion/robert-f-kennedy-maha-food-vaccines.html
@@ -26,16 +38,4 @@ https://nytimes.com/athletic/6598832/2025/09/04/ncaa-football-transfer-portal-wi
 **Harvard Won Its Money Back, but Will It Actually Get It?**\
 `A judge ruled that the Trump administration broke the law in canceling billions in federal funds for Harvard. Whether the money is returned matters for the rest of higher education.`\
 https://nytimes.com/2025/09/04/us/harvard-federal-funds-court-victory-trump-administration.html
-
-**How to watch Utah State at Texas A&M: Time, TV, streaming**\
-`Find out how to watch the Utah State Aggies play the Texas A&M Aggies, with time, TV channel, and streaming information.`\
-https://nytimes.com/athletic/6599114/2025/09/04/utah-state-vs-texas-a-m-stream-how-to-watch-sept-6/
-
-**How to watch Iowa at Iowa State: Time, TV, streaming**\
-`Find out how to watch the Iowa Hawkeyes play the Iowa State Cyclones, with time, TV channel, and streaming information.`\
-https://nytimes.com/athletic/6599111/2025/09/04/iowa-vs-iowa-state-stream-how-to-watch-sept-6/
-
-**How to watch Kennesaw State at Indiana: Time, TV, streaming**\
-`Find out how to watch the Kennesaw State Owls play the Indiana Hoosiers, with time, TV channel, and streaming information.`\
-https://nytimes.com/athletic/6599109/2025/09/04/kennesaw-state-vs-indiana-stream-how-to-watch-sept-6/
 

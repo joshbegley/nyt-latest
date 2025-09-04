@@ -1,3 +1,20 @@
+**Appeals Court Says ‘Alligator Alcatraz’ Detention Center Can Stay Open**\
+`The court paused a federal judge’s ruling that no additional detainees could be sent to the center, and that much of it had to be dismantled within 60 days.`\
+https://nytimes.com/2025/09/04/us/alligator-alcatraz-florida-appeals.html
+
+**The Armani Look**\
+`Few designers really change the way people dress. He did it twice.`\
+https://nytimes.com/2025/09/04/style/giorgio-armani.html
+
+**The Climate Forward Conference Is Coming Soon**\
+`On Sept. 24, the Times will host leaders, policymakers and executives in frank discussions about a consequential year in the fight against climate change.`\
+https://nytimes.com/2025/09/04/climate/the-climate-forward-conference-is-coming-soon.html
+
+**Oversight committee approves single January transfer portal window for football**\
+`The NCAA’s administrative committee must still support the change.
+`\
+https://nytimes.com/athletic/6598832/2025/09/04/ncaa-football-transfer-portal-window-january/
+
 **A Small but Telling Moment in Kennedy’s Hearing**\
 `Unlike his combative exchanges with senators about vaccines, Robert F. Kennedy Jr. was conciliatory and accommodating about agriculture interests.`\
 https://nytimes.com/2025/09/04/opinion/robert-f-kennedy-maha-food-vaccines.html
