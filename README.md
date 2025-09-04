@@ -1,3 +1,7 @@
+**Naomi Osaka beats Karolína Muchová in riveting U.S. Open quarterfinal**\
+`Osaka continued her U.S. Open surge by beating Muchová, one of the great craftswomen in tennis, in a captivating match.`\
+https://nytimes.com/athletic/6596590/2025/09/03/naomi-osaka-karolina-muchova-us-open-result-analysis/
+
 **Alabama DT Jeremiah Beaman likely out for season, Kalen DeBoer says**\
 `Beaman sustained a lower-body injury at Wednesday's practice.`\
 https://nytimes.com/athletic/6596592/2025/09/03/alabama-jeremiah-beaman-injury-status/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6596570/2025/09/03/cleveland-guardians-vs-tampa-bay
 **How to watch White Sox at Twins: Time, TV, streaming**\
 `Find out how to watch the Chicago White Sox play the Minnesota Twins, with time, TV channel, and streaming information.`\
 https://nytimes.com/athletic/6596568/2025/09/03/chicago-white-sox-vs-minnesota-twins-stream-how-to-watch-sept-4/
-
-**How to watch Phillies at Brewers: Time, TV, streaming**\
-`Find out how to watch the Philadelphia Phillies play the Milwaukee Brewers, with time, TV channel, and streaming information.`\
-https://nytimes.com/athletic/6596567/2025/09/03/philadelphia-phillies-vs-milwaukee-brewers-stream-how-to-watch-sept-4/
 
