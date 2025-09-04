@@ -1,3 +1,7 @@
+**America’s War on Terror Comes to the Caribbean**\
+`The Trump administration seems to be betting that Americans are so inured to the war on terrorism that they’ll be indifferent to extrajudicial executions.`\
+https://nytimes.com/2025/09/04/opinion/trump-cartel-boat-destroyed-venezuela-drugs.html
+
 **How to watch Titans at Broncos: Time, TV, streaming**\
 `Find out how to watch the Tennessee Titans play the Denver Broncos, with time, TV channel, and streaming information.`\
 https://nytimes.com/athletic/6599009/2025/09/04/titans-vs-broncos-stream-how-to-watch-sept-7/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6598979/2025/09/04/steelers-vs-jets-stream-how-to-w
 **How to watch 49ers at Seahawks: Time, TV, streaming**\
 `Find out how to watch the San Francisco 49ers play the Seattle Seahawks, with time, TV channel, and streaming information.`\
 https://nytimes.com/athletic/6598968/2025/09/04/49ers-vs-seahawks-stream-how-to-watch-sept-7/
-
-**How to watch Bengals at Browns: Time, TV, streaming**\
-`Find out how to watch the Cincinnati Bengals play the Cleveland Browns, with time, TV channel, and streaming information.`\
-https://nytimes.com/athletic/6598967/2025/09/04/bengals-vs-browns-stream-how-to-watch-sept-7/
 

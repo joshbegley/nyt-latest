@@ -1,3 +1,7 @@
+**America’s War on Terror Comes to the Caribbean**\
+`The Trump administration seems to be betting that Americans are so inured to the war on terrorism that they’ll be indifferent to extrajudicial executions.`\
+https://nytimes.com/2025/09/04/opinion/trump-cartel-boat-destroyed-venezuela-drugs.html
+
 **How to watch Titans at Broncos: Time, TV, streaming**\
 `Find out how to watch the Tennessee Titans play the Denver Broncos, with time, TV channel, and streaming information.`\
 https://nytimes.com/athletic/6599009/2025/09/04/titans-vs-broncos-stream-how-to-watch-sept-7/
