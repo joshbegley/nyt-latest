@@ -1,3 +1,7 @@
+**N.Y.C. Elections Board May Block Ballot Proposals on Housing**\
+`The City Council opposes the measures, which would curtail its power. The Board of Elections, appointed by the Council, could prevent voters from weighing in.`\
+https://nytimes.com/2025/09/04/nyregion/charter-revision-nyc-housing.html
+
 **Trump Is Renaming the Defense Department the Department of War**\
 `The president is turning back the clock to the name the agency held until shortly after World War II.`\
 https://nytimes.com/2025/09/04/us/politics/trump-department-of-war-defense.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/04/business/media/pbs-job-cuts.html
 **Why FanDuel sponsored trains for Eagles' home opener**\
 `FanDuel will spend up to $80,000 to restore game-day service and make train fares free for fans traveling home from Lincoln Financial Field.`\
 https://nytimes.com/athletic/6598106/2025/09/04/fanduel-eagles-cowboys-trains-septa/
-
-**Independent regulator reveals plan for tougher 'fit and proper person' test**\
-`The test will assess the “honest, integrity and financial soundness” of those who run clubs in the top five men’s leagues`\
-https://nytimes.com/athletic/6599626/2025/09/04/independent-regulator-plans-fit-proper-test/
 
