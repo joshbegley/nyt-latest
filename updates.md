@@ -1,3 +1,7 @@
+**Raising Money-Smart Teens in a Cashless Culture**\
+`As school districts and parents across the nation look for ways to equip teenagers with money management skills, Cash App offers a solution.`\
+https://nytimes.com/paidpost/cash-app/teens-and-families/raising-money-smart-teens-in-a-cashless-culture.html
+
 **Trump Claims the Power to Summarily Kill Suspected Drug Smugglers**\
 `The move to treat criminals as if they were wartime combatants escalated an administration pattern of using military force for law enforcement tasks at home and abroad.`\
 https://nytimes.com/2025/09/04/us/politics/trump-drug-smugglers-military.html
