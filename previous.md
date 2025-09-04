@@ -1,3 +1,11 @@
+**Oklahoma's latest dynamic transfer quarterback John Mateer is just getting warmed up**\
+`Overlooked out of high school, Mateer took a winding path to the Sooners and is drawing comparisons to Baker Mayfield.`\
+https://nytimes.com/athletic/6596352/2025/09/04/john-mateer-oklahoma-quarterback-michigan/
+
+**Russia Wants ‘Security Guarantees’ Too. Here’s What They Look Like.**\
+`The Kremlin’s vision of national security comes at the expense of Ukrainian sovereignty, underlining the challenges of striking a peace deal.`\
+https://nytimes.com/2025/09/04/world/europe/russia-security-guarantees.html
+
 **Inside the Turmoil at the C.D.C.**\
 `Robert F. Kennedy Jr.’s assault on the Centers for Disease Control and Prevention may usher in harsh consequences for public health, experts fear. Apoorva Mandavilli, a science and global health reporter at The New York Times, describes what’s happened at the agency and what could be next.`\
 https://nytimes.com/video/us/politics/100000010376126/inside-the-turmoil-at-the-cdc.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6596544/2025/09/04/cowboys-offseason-drama-season-o
 **Kennedy Faces Senate Grilling After Vaccine Changes and C.D.C. Shake Up**\
 `Some Republican lawmakers have questioned whether Health Secretary Robert F. Kennedy Jr.’s recent actions contradict pledges he made about vaccine access in order to win confirmation.`\
 https://nytimes.com/2025/09/04/us/politics/kennedy-senate-hearing-vaccines-cdc.html
-
-**A Family of 7 Looked for a Wreck to Restore in Pennsylvania Dutch Country**\
-`With five sons between the ages of 2 and 10, a couple needed to size up in Lancaster County. But they knew that anything they could afford would need a lot of work.`\
-https://nytimes.com/interactive/2025/09/04/realestate/pennsylvania-lancaster-county-homes-sale.html
-
-**On Epstein Files, Women Lead the G.O.P. Resistance to Trump**\
-`The Republican rift over whether to demand greater transparency in the case has once again highlighted a gender divide in the male-dominated party.`\
-https://nytimes.com/2025/09/04/us/politics/greene-boebert-mace-epstein-trump.html
 

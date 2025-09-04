@@ -1,3 +1,11 @@
+**Oklahoma's latest dynamic transfer quarterback John Mateer is just getting warmed up**\
+`Overlooked out of high school, Mateer took a winding path to the Sooners and is drawing comparisons to Baker Mayfield.`\
+https://nytimes.com/athletic/6596352/2025/09/04/john-mateer-oklahoma-quarterback-michigan/
+
+**Russia Wants ‘Security Guarantees’ Too. Here’s What They Look Like.**\
+`The Kremlin’s vision of national security comes at the expense of Ukrainian sovereignty, underlining the challenges of striking a peace deal.`\
+https://nytimes.com/2025/09/04/world/europe/russia-security-guarantees.html
+
 **Inside the Turmoil at the C.D.C.**\
 `Robert F. Kennedy Jr.’s assault on the Centers for Disease Control and Prevention may usher in harsh consequences for public health, experts fear. Apoorva Mandavilli, a science and global health reporter at The New York Times, describes what’s happened at the agency and what could be next.`\
 https://nytimes.com/video/us/politics/100000010376126/inside-the-turmoil-at-the-cdc.html
