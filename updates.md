@@ -1,3 +1,15 @@
+**French women's team barred from World Boxing Championships over late gender test results**\
+`The team has blamed World Boxing for recommending a laboratory which was not able to produce the results in time.`\
+https://nytimes.com/athletic/6597721/2025/09/04/world-boxing-championship-gender-test/
+
+**Giorgio Armani, Fashion’s Master of the Power Suit, Dies at 91**\
+`He created a male uniform whose feminized form won favor with women. An alliance with movie stars made his name all but synonymous with red-carpet dressing.`\
+https://nytimes.com/2025/09/04/fashion/giorgio-armani-dead.html
+
+**How to watch the Minnesota Vikings in 2025: Schedule, streaming for J.J. McCarthy's debut**\
+`Here's how to "skol" at each regular-season Vikings broadcast in 2025, including two overseas games in Weeks 4 and 5.`\
+https://nytimes.com/athletic/6533981/2025/09/04/minnesota-vikings-how-to-watch-2025-jj-mcarthy/
+
 **Cam Thomas signs 1-year qualifying offer to return to Nets: Sources**\
 `The decision ends the prolonged standoff between the high-scoring 23-year-old guard and the Brooklyn Nets. `\
 https://nytimes.com/athletic/6540392/2025/09/04/cam-thomas-nets-contract-nba/
