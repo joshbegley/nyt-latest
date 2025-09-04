@@ -1,3 +1,19 @@
+**NFL Week 1 best bets: Fading Matthew Stafford due to injury plus some early unders**\
+`Austin Mock has four bets for the first week of the NFL season, including a play on the Houston Texans at the LA Rams.`\
+https://nytimes.com/athletic/6598391/2025/09/04/nfl-best-bets-week-1-bengals-texans-giants/
+
+**Fantasy baseball bullpen report featuring Cole Sands, JoJo Romero and injury news**\
+`Greg Jewett gives fantasy managers still in contention a leg up on the competition with his report on saves, holds and SOLDS leaders. `\
+https://nytimes.com/athletic/6598037/2025/09/04/fantasy-baseball-bullpen-report-sands-romero/
+
+**Justice Dept. Opens Criminal Inquiry Into Lisa Cook, Elevating Trump’s Claims**\
+`The move was instigated by Ed Martin, a Trump loyalist who has said it is legitimate for officials to publicly air criminal investigations into people targeted by the president.`\
+https://nytimes.com/2025/09/04/us/politics/lisa-cook-trump-fed-governor-justice-dept.html
+
+**Epstein’s Victims Won’t Let Trump Push Their Story Aside**\
+`Trump’s recalcitrance isn’t enough to shatter his coalition, but it has created at least a few fissures.`\
+https://nytimes.com/2025/09/04/opinion/epstein-files-victims-trump.html
+
 **Tottenham executive chairman Levy leaves club after 24 years**\
 `Levy’s responsibilities will be taken over by Peter Charrington who has been appointed to the newly-created role of non-executive chairman.`\
 https://nytimes.com/athletic/6598456/2025/09/04/tottenham-news-levy-step-down-chairman/
