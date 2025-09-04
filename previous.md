@@ -1,3 +1,7 @@
+**Inside the Turmoil at the C.D.C.**\
+`Robert F. Kennedy Jr.’s assault on the Centers for Disease Control and Prevention may usher in harsh consequences for public health, experts fear. Apoorva Mandavilli, a science and global health reporter at The New York Times, describes what’s happened at the agency and what could be next.`\
+https://nytimes.com/video/us/politics/100000010376126/inside-the-turmoil-at-the-cdc.html
+
 **Cowboys vs. Eagles: New names to know, old names to remember, mascot and music matchups**\
 `These teams do not like each other. Fortunately for us, they kick off the 2025 NFL season with spirited animosities.`\
 https://nytimes.com/athletic/6593029/2025/09/04/cowboys-eagles-nfl-season-opener-2025/
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2025/09/04/realestate/pennsylvania-lancaster-cou
 **On Epstein Files, Women Lead the G.O.P. Resistance to Trump**\
 `The Republican rift over whether to demand greater transparency in the case has once again highlighted a gender divide in the male-dominated party.`\
 https://nytimes.com/2025/09/04/us/politics/greene-boebert-mace-epstein-trump.html
-
-**Lost in Translation: Upscale Clothing Company Takes Name Fight to Supreme Court**\
-`Why does Veuve Clicquot get a U.S. trademark while Vetements — home of the packing-tape minidress, no less! — does not? Its lawyers want to know.`\
-https://nytimes.com/2025/09/04/world/europe/vetements-trademark-lawsuit.html
 

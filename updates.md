@@ -1,3 +1,7 @@
+**Inside the Turmoil at the C.D.C.**\
+`Robert F. Kennedy Jr.’s assault on the Centers for Disease Control and Prevention may usher in harsh consequences for public health, experts fear. Apoorva Mandavilli, a science and global health reporter at The New York Times, describes what’s happened at the agency and what could be next.`\
+https://nytimes.com/video/us/politics/100000010376126/inside-the-turmoil-at-the-cdc.html
+
 **Cowboys vs. Eagles: New names to know, old names to remember, mascot and music matchups**\
 `These teams do not like each other. Fortunately for us, they kick off the 2025 NFL season with spirited animosities.`\
 https://nytimes.com/athletic/6593029/2025/09/04/cowboys-eagles-nfl-season-opener-2025/
