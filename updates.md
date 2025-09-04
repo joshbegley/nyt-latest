@@ -1,3 +1,7 @@
+**Clinton announces Man United departure as Man City move nears**\
+`England duo Clinton and Jess Park are set to swap clubs after City and United agreed to trade the midfielders`\
+https://nytimes.com/athletic/6574857/2025/09/04/grace-clinton-manchester-united-manchester-city-transfer/
+
 **Amari Cooper retires from NFL a week after signing with Las Vegas Raiders: Source**\
 `In theory, Cooper would've provided some depth and veteran insurance to the Raiders' receiver room.`\
 https://nytimes.com/athletic/6598701/2025/09/04/amari-cooper-retire-raiders-nfl/
