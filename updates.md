@@ -1,3 +1,7 @@
+**Humans Are Altering the Seas. Here’s What the Future Ocean Might Look Like.**\
+`Some marine ecosystems could soon be unrecognizable, according to new research. We mapped the possibilities.`\
+https://nytimes.com/interactive/2025/09/04/climate/ocean-water-temperatures-sea-levels.html
+
 **Koch family agrees to buy 10 percent stake in New York Giants: Source**\
 `If the Koch family buys a minority stake with the team valued at $10 billion, it would mark a record NFL team valuation during a sale.`\
 https://nytimes.com/athletic/6598454/2025/09/04/koch-family-ny-giants-sale/
