@@ -1,3 +1,15 @@
+**What I'm hearing about a Penguins sale, Karlsson trade, prospect to watch**\
+`There's never a dull moment in the Pittsburgh Penguins organization. Here's the latest on a few key issues.`\
+https://nytimes.com/athletic/6597747/2025/09/04/penguins-sale-hoffmann-family-fsg-nhl/
+
+**EA Sports backs off plans to make college basketball video game: Memo**\
+`In the memo, EA Sports cited some schools accepting a 2K Sports proposal for inclusion in the "NBA 2K" series.`\
+https://nytimes.com/athletic/6598089/2025/09/04/ea-sports-college-basketball-video-game-2k/
+
+**Discovering Surprises Among the Familiar at the Independent 20th Century**\
+`A trove of 20th-century art  from Lebanon to Santa Fe, Miami to Mumbai. Look for  spiritualist painting and undersung artists from Hawaii and Mississippi.`\
+https://nytimes.com/2025/09/04/arts/design/independent-20th-century-art-fair-battery-cipriani-review.html
+
 **D.C. Sues Trump Administration Over Deployment of National Guard**\
 `The city is challenging the federal government’s authority to send troops into the city for what the president has called a “public safety emergency.”`\
 https://nytimes.com/2025/09/04/us/dc-trump-national-guard-suit.html

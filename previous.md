@@ -1,3 +1,15 @@
+**What I'm hearing about a Penguins sale, Karlsson trade, prospect to watch**\
+`There's never a dull moment in the Pittsburgh Penguins organization. Here's the latest on a few key issues.`\
+https://nytimes.com/athletic/6597747/2025/09/04/penguins-sale-hoffmann-family-fsg-nhl/
+
+**EA Sports backs off plans to make college basketball video game: Memo**\
+`In the memo, EA Sports cited some schools accepting a 2K Sports proposal for inclusion in the "NBA 2K" series.`\
+https://nytimes.com/athletic/6598089/2025/09/04/ea-sports-college-basketball-video-game-2k/
+
+**Discovering Surprises Among the Familiar at the Independent 20th Century**\
+`A trove of 20th-century art  from Lebanon to Santa Fe, Miami to Mumbai. Look for  spiritualist painting and undersung artists from Hawaii and Mississippi.`\
+https://nytimes.com/2025/09/04/arts/design/independent-20th-century-art-fair-battery-cipriani-review.html
+
 **D.C. Sues Trump Administration Over Deployment of National Guard**\
 `The city is challenging the federal government’s authority to send troops into the city for what the president has called a “public safety emergency.”`\
 https://nytimes.com/2025/09/04/us/dc-trump-national-guard-suit.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6597913/2025/09/04/crystal-palaces-conference-leagu
 **2 Dead as Russia Strikes Danish Demining Group, Ukraine Official Says**\
 `The Danish Refugee Council said that one of its teams had been affected by a missile attack and that it was investigating.`\
 https://nytimes.com/2025/09/04/world/europe/russia-strikes-danish-aid-ukraine.html
-
-**Fantasy matchups: Bad days coming for Dak Prescott, Bo Nix?**\
-`KC Joyner reveals his matchup points system for Week 1, which is bullish on Trevor Lawrence and his backfield teammates.`\
-https://nytimes.com/athletic/6596065/2025/09/04/fantasy-football-week-1-matchups-best-worst/
-
-**In contrast to USMNT's World Cup approach, Marsch's Canada opts for roster continuity**\
-`On the heels of Gold Cup failure, Canada manager Jesse Marsch laid out his approach to building out his World Cup squad`\
-https://nytimes.com/athletic/6597890/2025/09/04/canada-jesse-marsch-trump-world-cup-usmnt-romania-wales/
-
-**Edgar Feuchtwanger, Who Wrote About Being Hitler’s Neighbor, Dies at 100**\
-`He and his Jewish family lived across the street from the German leader in the 1930s. He later became a British professor and historian.`\
-https://nytimes.com/2025/09/04/world/europe/edgar-feuchtwanger-who-wrote-about-being-hitlers-neighbor-dies-at-100.html
 
