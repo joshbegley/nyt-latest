@@ -1,3 +1,7 @@
+**Trump Claims the Power to Summarily Kill Suspected Drug Smugglers**\
+`The move to treat criminals as if they were wartime combatants escalated an administration pattern of using military force for law enforcement tasks at home and abroad.`\
+https://nytimes.com/2025/09/04/us/politics/trump-drug-smugglers-military.html
+
 **The Tik Tok Famous Chef Keeping a Sorority Fed**\
 `Kevin Ashton found job satisfaction mentoring sorority sisters at the University of Nevada, Reno.`\
 https://nytimes.com/2025/09/04/dining/tik-tok-chef-sorority.html
