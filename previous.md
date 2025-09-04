@@ -1,3 +1,11 @@
+**U.S. Defends Boat Strike**\
+`Secretary of State Marco Rubio said military operations against Venezuelan cartels would continue.`\
+https://nytimes.com/video/world/americas/100000010377732/venezuela-drug-boat-trump-us.html
+
+**Matt Chapman appeals his suspension, pushes around the Rockies some more**\
+`Chapman pelted Colorado's pitching staff with a double and a pair of home runs in a 10-8 victory.`\
+https://nytimes.com/athletic/6597200/2025/09/04/sf-giants-rockies-matt-chapman-suspension/
+
 **Celebrities Love the U.S. Open. She Decides Who Gets In.**\
 `Every year, Amanda Wight makes sure that a steady stream of A-listers get to see the world’s best tennis players — and be seen by millions on TV.`\
 https://nytimes.com/2025/09/04/nyregion/us-open-celebrities.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6597164/2025/09/04/yankees-devin-williams-rip-umpir
 **Word of the Day: verbose**\
 `This word has appeared in 24 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2025/09/04/learning/word-of-the-day-verbose.html
-
-**Astros 'get past' their cross-up controversy with a satisfying win**\
-`The Astros distanced themselves from a difficult Tuesday with an 8-7 victory over the New York Yankees on Wednesday.`\
-https://nytimes.com/athletic/6597145/2025/09/04/astros-win-yankees-cross-up-cesar-salazar/
-
-**Texas Senate Passes Bill to Crack Down on Mail-Order Abortion Pills**\
-`Gov. Greg Abbott is expected to sign the legislation, which allows nearly anyone to sue abortion medication providers and distributors.`\
-https://nytimes.com/2025/09/04/us/politics/texas-senate-abortion-pills-bill.html
 
