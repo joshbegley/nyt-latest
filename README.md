@@ -1,40 +1,40 @@
-**What makes a great QB? In 'American Kings,' Seth Wickersham takes journey of discovery**\
-`In book about premier QBs, Wickersham explores factors that shape players like John Elway, Steve Young, Arch Manning and Caleb Williams.`\
-https://nytimes.com/athletic/6595875/2025/09/04/nfl-qb-book-seth-wickersham-column/
+**Trump Administration Live Updates: President Takes Tariffs Fight to Supreme Court**\
+``\
+https://nytimes.com/live/2025/09/04/us/trump-news
 
-**Morocco planning to use stadiums as courts during 2030 World Cup, minister says**\
-`Morocco will co-host the 2030 tournament alongside five other countries.`\
-https://nytimes.com/athletic/6597401/2025/09/04/morocco-world-cup-2030-courts/
+**Soul of the Seahawks: How Devon Witherspoon embodies Mike Macdonald's vision**\
+`Witherspoon has rare ability to motivate teammates, almost reminiscent of Marshawn Lynch. "He's everything to this team," Ernest Jones said.`\
+https://nytimes.com/athletic/6587568/2025/09/04/devon-witherspoon-seahawks-2025-season/
 
-**Eagles embrace ‘contribution over credit’ mantra in pursuit of back-to-back Super Bowls**\
-`Nick Sirianni has a clear message about how the Eagles should approach this season.`\
-https://nytimes.com/athletic/6591536/2025/09/04/philadelphia-eagles-game-super-bowl-nick-sirianni/
+**Can Broncos QB Bo Nix handle pass-rush pressure better in Year 2?**\
+`The second-year QB is eager to pull from his 'bank' of reps against pressure looks after struggling with some of those wrinkles as a rookie.`\
+https://nytimes.com/athletic/6595433/2025/09/04/bo-nix-broncos-pass-rush-pressure/
 
-**How the summer transfer window impacts USMNT's World Cup roster battle**\
-`A series of significant moves – and non-moves – will play a pivotal role as the U.S. player pool is whittled down for a home World Cup`\
-https://nytimes.com/athletic/6596946/2025/09/04/usmnt-summer-transfer-window-impact/
+**Saquon Barkley chats with Emmitt Smith, Micah Parsons reaction, Eagles-Cowboys prediction**\
+`The defending champions will kick off their 2025 campaign with a banner ceremony.`\
+https://nytimes.com/athletic/6595978/2025/09/04/saquon-barkley-chats-with-emmitt-smith-micah-parsons-reaction-eagles-cowboys-prediction/
 
-**Newcastle name former Madrid executive Hopkinson as new CEO**\
-`The process for identifying a new CEO has taken more than 10 months, with multiple candidates holding interviews.`\
-https://nytimes.com/athletic/6493196/2025/09/04/newcastle-ceo-david-hopkinson/
+**Wilder: Bill Belichick's hubris may end up costing North Carolina like post-Brady Patriots**\
+`The chaotic Belichick era has brought attention to UNC — and it's great gossip — but players, fans might be left to pick up the pieces.`\
+https://nytimes.com/athletic/6593750/2025/09/04/sports-gossip-show-bill-belichick/
 
-**Mark Andrews' focus is in right place as Ravens return to Buffalo in Week 1**\
-`The three-time Pro Bowler is eager to take the field as he returns to the site of the worst day of his professional career. `\
-https://nytimes.com/athletic/6596338/2025/09/04/mark-andrews-ravens-bills-week-1/
+**How to watch the Chicago Bears: Schedule, streaming for Year 2 of Caleb Williams**\
+`Year No. 2 with Caleb Williams. Year No. 1 with Ben Johnson. Here's how to watch all 17 regular-season Bears games this season.`\
+https://nytimes.com/athletic/6528848/2025/09/04/chicago-bears-2025-caleb-williams-how-to-watch/
 
-**England U17s international paused for 50 minutes after reports of racist abuse**\
-`The game, which England won 2-1, was halted twice in the second half – for 50 minutes on the second occasion.`\
-https://nytimes.com/athletic/6597414/2025/09/04/england-u17s-racist-abuse-venezuela/
+**Jets fan survey results, Part 1: What went right and wrong this past season**\
+`You told us everything we needed to know about being a Jets fan. Now it's time to show you the results.`\
+https://nytimes.com/athletic/6592463/2025/09/04/winnipeg-jets-fan-survey-results-part-1/
 
-**What's trending in the NFL: Road to Santa Clara, new faces in new places and more**\
-`It feels like it's time for the Bills to return to the Super Bowl, while the Browns seem fast tracked toward the No. 1 pick in the draft.`\
-https://nytimes.com/athletic/6595896/2025/09/04/nfl-trending-week-1-super-bowl-rodgers-parsons/
+**How can the Sabres finally make playoffs? 10 key questions to end a record drought**\
+`To finally make it over the playoff hump, this year's Sabres team has some things to prove.`\
+https://nytimes.com/athletic/6597017/2025/09/04/buffalo-sabres-preseason-playoffs-2025/
 
-**What an ACC road trip with Jim Phillips reveals about the league's football identity search**\
-`We tagged along with the commissioner to five marquee ACC games in two days to experience the ups and downs of a conference at a crossroads.`\
-https://nytimes.com/athletic/6594774/2025/09/04/jim-phillips-acc-football-road-trip/
+**Hamas Says It Is Ready for a Comprehensive Deal to End the Gaza War**\
+`The Palestinian militant group has expressed similar positions in the past, and Prime Minister Benjamin Netanyahu of Israel dismissed its statement as “spin” and “nothing new.”`\
+https://nytimes.com/2025/09/04/world/middleeast/hamas-gaza-war-israel-ceasefire-deal.html
 
-**Second man arrested in relation to racist abuse sent to England's Carter**\
-`The arrest follows the August 28 arrest of a 59-year-old man as part of the same investigation.`\
-https://nytimes.com/athletic/6597423/2025/09/04/jess-carter-racist-abuse-arrests/
+**'He demands urgency' - can Newcastle's new CEO David Hopkinson take the club global?**\
+`The 54-year-old Canadian is described as a ‘perfect choice’ to lead a ‘challenger club’ like Newcastle - this is who he is and what he faces`\
+https://nytimes.com/athletic/6581173/2025/09/04/david-hopkinson-newcastle-united-who-is-he/
 

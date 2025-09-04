@@ -1,3 +1,7 @@
+**Mark Andrews' focus is in right place as Ravens return to Buffalo in Week 1**\
+`The three-time Pro Bowler is eager to take the field as he returns to the site of the worst day of his professional career. `\
+https://nytimes.com/athletic/6596338/2025/09/04/mark-andrews-ravens-bills-week-1/
+
 **What makes a great QB? In 'American Kings,' Seth Wickersham takes journey of discovery**\
 `In book about premier QBs, Wickersham explores factors that shape players like John Elway, Steve Young, Arch Manning and Caleb Williams.`\
 https://nytimes.com/athletic/6595875/2025/09/04/nfl-qb-book-seth-wickersham-column/
