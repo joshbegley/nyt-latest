@@ -1,3 +1,11 @@
+**Robert Jay Lifton, Psychiatrist Drawn to Humanity’s Horrors, Dies at 99**\
+`His work led him into some of history’s darkest corners, including the role of doctors in the Nazi era and the torture of Iraqi prisoners at Abu Ghraib.`\
+https://nytimes.com/2025/09/04/obituaries/robert-jay-lifton-dead.html
+
+**What is a catch? LSU, South Carolina plays reignite an age-old debate**\
+`Barion Brown's overturned TD catch in Saturday's LSU-Clemson game was one of the officiating talking points of Week 1.`\
+https://nytimes.com/athletic/6597942/2025/09/04/lsu-clemson-catch-overturned-rule/
+
 **Ali police investigation dropped after arrest for alleged rape**\
 `The 24-year-old was arrested and released under police investigation after an alleged rape incident.`\
 https://nytimes.com/athletic/6597872/2025/09/04/haider-ali-pakistan-cricket-investigation-arrest/
@@ -25,12 +33,4 @@ https://nytimes.com/athletic/6596460/2025/09/04/jordyn-tyson-arizona-state-wide-
 **Whistle-Blower Complaints Detail Tension Over Vaccines at N.I.H.**\
 `Two former agency leaders said the administration’s “hostility” toward vaccines had spread to the agency’s top ranks.`\
 https://nytimes.com/2025/09/04/health/nih-whistle-blower-complaints-vaccines-trump.html
-
-**How to watch Cowboys at Eagles: Time, TV, streaming**\
-`Find out how to watch the Dallas Cowboys play the Philadelphia Eagles, with time, TV channel, and streaming information.`\
-https://nytimes.com/athletic/6597908/2025/09/04/dallas-cowboys-vs-philadelphia-eagles-stream-how-to-watch-sept-4/
-
-**Meet the New ‘S.N.L.’ Cast Members**\
-`Please Don’t Destroy will stop making videos for the show as Ben Marshall joins the cast. Watch clips of him and the other new additions.`\
-https://nytimes.com/2025/09/04/arts/television/snl-new-cast-members-clips.html
 
