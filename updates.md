@@ -1,3 +1,7 @@
+**Trump Administration to End Security Programs Protecting European Allies From Russia**\
+`Ending the longstanding program is expected to impact hundreds of millions of dollars that have gone toward countries that border Russia.`\
+https://nytimes.com/2025/09/04/us/politics/trump-europe-russia-security.html
+
 **U.S. Agents Raid Upstate N.Y. Plant and Detain More Than 70 Migrants**\
 `Local law enforcement officers helped federal agents carry out an immigration raid near Syracuse. Witnesses said the agents used police dogs in the raid and wielded crowbars to gain entry.`\
 https://nytimes.com/2025/09/04/nyregion/immigration-raid-new-york.html

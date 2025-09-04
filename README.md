@@ -1,3 +1,7 @@
+**Pennsylvania Couple Kept 5 Children in ‘Deplorable’ Conditions, Police Say**\
+`The children, between the ages of 5 and 14, were locked in a room that the authorities said “functioned as a dungeon,” with no beds and boarded-up windows.`\
+https://nytimes.com/2025/09/04/us/pennsylvania-parents-children-dungeon-arrest.html
+
 **Trump Administration to End Security Programs Protecting European Allies From Russia**\
 `Ending the longstanding program is expected to impact hundreds of millions of dollars that have gone toward countries that border Russia.`\
 https://nytimes.com/2025/09/04/us/politics/trump-europe-russia-security.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/04/us/new-congressional-map-clears-first-hurdle-in-m
 **Melania Trump Has a Warning for Humanity: ‘The Robots Are Here’**\
 `The first lady has shown herself to be captivated by the wonders and dangers and opportunities of modern technologies.`\
 https://nytimes.com/2025/09/04/us/politics/melania-trump-robots-humanity.html
-
-**Giorgio Armani Gave Men Permission to Feel Fashionable**\
-`Fred Pressman respected no brand as much as the ultimate brand: quality. And that, Giorgio delivered in spades.`\
-https://nytimes.com/2025/09/04/opinion/giorgio-armani-dead-fashion-barneys.html
 
