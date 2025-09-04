@@ -1,3 +1,11 @@
+**China’s Show of Military Might**\
+`Xi Jinping’s huge military parade in Tiananmen Square provided a rare look at China’s new weapons.`\
+https://nytimes.com/2025/09/04/briefing/china-military-protugal-funicular-crash.html
+
+**Will Chelsea be beaten? Who's the best signing? Are London City a threat? The WSL roundtable**\
+`Can Chelsea be stopped? Are Leicester City really going to be in trouble? How will Olivia Smith fare? The key WSL questions answered`\
+https://nytimes.com/athletic/6573780/2025/09/04/womens-super-league-questions-chelsea-arsenal-manchester-soccer/
+
 **Why Hansi Flick locked his Barcelona players in the dressing room after Rayo Vallecano draw**\
 `The German manager wanted to address what he considers a major problem with Barca's start to the new season`\
 https://nytimes.com/athletic/6594636/2025/09/04/barcelona-hansi-flick-la-liga-egos/
