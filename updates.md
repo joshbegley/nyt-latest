@@ -1,3 +1,11 @@
+**Giorgio Armani’s Life in Photos**\
+`One of the most prolific fashion designers in history, he turned a certain kind of Italian chic into an international phenomenon.`\
+https://nytimes.com/2025/09/04/style/giorgio-armani-photos.html
+
+**Mick Herron: What I’m Reading (and Why ‘Wind in the Willows’ Scares Me)**\
+`The author of the Slough House novels — the latest one is “Clown Town” — has an eclectic stack on his nightstand.`\
+https://nytimes.com/2025/09/04/books/review/mick-herron-clown-town-slough-house.html
+
 **How Alex Morgan took a pink headband and turned it into her first savvy business venture**\
 `Retired USMNT great is one of the most financially-successful women’s soccer players - and it all began with a wrap not meant for hair`\
 https://nytimes.com/athletic/6596264/2025/09/04/alex-morgan-pink-prewrap-business-uswnt-san-diego-wave/
