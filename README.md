@@ -1,3 +1,7 @@
+**Belichick bans Pats, limits other NFL scouts from watching UNC practices**\
+`Belichick isn't violating any rules by limiting Pats and NFL scouting access to his practices, but one scouting source called it "petty."`\
+https://nytimes.com/athletic/6599598/2025/09/04/bill-belichick-bans-patriots-limits-other-nfl-scouts-from-viewing-unc-practices/
+
 **Trump Asks Supreme Court to Allow Removal of F.T.C. Commissioner**\
 `A federal appeals court had reinstated the commissioner, Rebecca Kelly Slaughter, saying she was fired ‘without cause.’`\
 https://nytimes.com/2025/09/04/us/politics/trump-ftc-slaughter-supreme-court.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6594553/2025/09/04/elliot-anderson-england-scotland
 **Kavanaugh Acknowledges ‘Difficult Job’ of His Lower-Court Colleagues**\
 `Speaking at a judicial conference in Memphis, the justice expressed sympathy for the district-court judges whose rulings the Supreme Court has repeatedly paused.`\
 https://nytimes.com/2025/09/04/us/politics/kavanaugh-lower-court-judges.html
-
-**How to watch Nationals at Cubs: Time, TV, streaming for September 5**\
-`Find out how to watch the Washington Nationals play the Chicago Cubs, with time, TV channel, and streaming information.`\
-https://nytimes.com/athletic/6599289/2025/09/04/nationals-vs-cubs-stream-how-to-watch-sept-5/
 
