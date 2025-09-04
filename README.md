@@ -1,3 +1,7 @@
+**Clinton announces Man United departure as Man City move nears**\
+`England duo Clinton and Jess Park are set to swap clubs after City and United agreed to trade the midfielders`\
+https://nytimes.com/athletic/6574857/2025/09/04/grace-clinton-manchester-united-manchester-city-transfer/
+
 **Amari Cooper retires from NFL a week after signing with Las Vegas Raiders: Source**\
 `In theory, Cooper would've provided some depth and veteran insurance to the Raiders' receiver room.`\
 https://nytimes.com/athletic/6598701/2025/09/04/amari-cooper-retire-raiders-nfl/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/04/nyregion/rikers-detainee-death.html
 **Why Netflix's next huge event in live sports includes Sinner, Alcaraz, Djokovic**\
 `With Grand Slam tennis TV rights locked up for years, Netflix finds a high-profile exhibition to fuel its ambitions in live sports.`\
 https://nytimes.com/athletic/6598426/2025/09/04/netflix-6-kings-slam-janik-sinner/
-
-**Man Accused of Killing Israeli Embassy Staffers Pleads Not Guilty**\
-`At an arraignment on Thursday, Elias Rodriguez faced federal hate crime and other charges that could result in the death penalty.`\
-https://nytimes.com/2025/09/04/us/politics/not-guilty-plea-israeli-embassy.html
 

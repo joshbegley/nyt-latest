@@ -1,3 +1,7 @@
+**Amari Cooper retires from NFL a week after signing with Las Vegas Raiders: Source**\
+`In theory, Cooper would've provided some depth and veteran insurance to the Raiders' receiver room.`\
+https://nytimes.com/athletic/6598701/2025/09/04/amari-cooper-retire-raiders-nfl/
+
 **What Kennedy Has Wrought at the C.D.C.**\
 `Readers respond to articles about Health Secretary Robert F. Kennedy Jr. Also: The power of a thank-you note; preventing cannabis poisoning in children.`\
 https://nytimes.com/2025/09/04/opinion/robert-kennedy-cdc.html
