@@ -1,3 +1,19 @@
+**How the Lisbon Funicular Works and Where It Crashed**\
+`The funicular, one of Lisbon’s most popular tourist attractions, transports passengers to and from the<strong> </strong>scenic Bairro Alto neighborhood.`\
+https://nytimes.com/interactive/2025/09/04/world/europe/lisbon-funicular-crash-photo-map-location.html
+
+**Is That Bob Dylan in the Mirror?**\
+`In his autobiographical novel, Sam Sussman grows up wondering if his affinity for the great singer-songwriter goes beyond a striking resemblance.`\
+https://nytimes.com/2025/09/04/books/sam-sussman-bob-dylan-boy-from-the-north-country.html
+
+**Williams working to overturn Carlos Sainz's Dutch GP penalty: 'A complete joke'**\
+`Sainz was given a 10-second penalty and two penalty points for an incident with Liam Lawson last weekend.`\
+https://nytimes.com/athletic/6598094/2025/09/04/carlos-sainz-penalty-f1-dutch-gp-monza/
+
+**What we're seeing from the Bears: Ben Johnson's impact, Caleb Williams' improvement**\
+`What have we seen from the Bears in training camp and the preseason? On the new head coach, the returning QB, the left tackle spot and more.`\
+https://nytimes.com/athletic/6595600/2025/09/04/chicago-bears-preview-caleb-williams-ben-johnson/
+
 **What I'm hearing about a Penguins sale, Karlsson trade, prospect to watch**\
 `There's never a dull moment in the Pittsburgh Penguins organization. Here's the latest on a few key issues.`\
 https://nytimes.com/athletic/6597747/2025/09/04/penguins-sale-hoffmann-family-fsg-nhl/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6597104/2025/09/04/ny-giants-successful-season-jaxs
 **Rivalries Can Make Us Better. Just Ask Sinner and Alcaraz.**\
 `The top-ranked tennis players may meet again in the U.S. Open men’s final. Here’s what the fierce competitors can teach you about unlocking your potential.`\
 https://nytimes.com/2025/09/04/well/sinner-alcaraz-rivary.html
-
-**Travis Kelce on engagement life, playing in Brazil and retirement thoughts**\
-`The Chiefs' star tight end held his first news conference since he and Taylor Swift announced their engagement. `\
-https://nytimes.com/athletic/6598013/2025/09/04/chiefs-travis-kelce-brazil-taylor-swift/
-
-**A Pleasurable Distraction From the Rest of Life**\
-`Recipes that put the fun in packing school lunch.`\
-https://nytimes.com/2025/09/04/dining/a-pleasurable-distraction-from-the-rest-of-life.html
-
-**Doucoure out of Palace's Conference League squad**\
-`Doucoure, 25, made 14 appearances for Palace last season but missed the second half of the campaign with a knee injury.`\
-https://nytimes.com/athletic/6597913/2025/09/04/crystal-palaces-conference-league-squad-cheick-doucoure-out-summer-signings-in/
-
-**2 Dead as Russia Strikes Danish Demining Group, Ukraine Official Says**\
-`The Danish Refugee Council said that one of its teams had been affected by a missile attack and that it was investigating.`\
-https://nytimes.com/2025/09/04/world/europe/russia-strikes-danish-aid-ukraine.html
 

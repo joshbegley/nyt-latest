@@ -34,7 +34,3 @@ https://nytimes.com/2025/09/04/us/dc-trump-national-guard-suit.html
 `After winning nine games combined the past two seasons, is a nine-win season in 2025 realistic for the Giants? One NFL analyst thinks so. `\
 https://nytimes.com/athletic/6597104/2025/09/04/ny-giants-successful-season-jaxson-dart/
 
-**Rivalries Can Make Us Better. Just Ask Sinner and Alcaraz.**\
-`The top-ranked tennis players may meet again in the U.S. Open men’s final. Here’s what the fierce competitors can teach you about unlocking your potential.`\
-https://nytimes.com/2025/09/04/well/sinner-alcaraz-rivary.html
-
