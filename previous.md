@@ -1,3 +1,7 @@
+**Cam Thomas signs 1-year qualifying offer to return to Nets: Source**\
+`The decision ends the prolonged standoff between the high-scoring 23-year-old guard and the Brooklyn Nets. `\
+https://nytimes.com/athletic/6540392/2025/09/04/cam-thomas-nets-contract-nba/
+
 **CSC: Nearly $80 million in NIL deals approved, 332 deals not yet cleared**\
 `The CSC said more than 28,342 college athletes and 1,227 "institutional users" have registered with its NIL Go online platform.`\
 https://nytimes.com/athletic/6597682/2025/09/04/college-sports-commission-nil-go-deals/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/04/arts/argentina-ghislandi-painting-looted-nazis.ht
 **Is Dodgers reliever Tanner Scott 'getting exposed' by being predictable in strike zone?**\
 `Scott's walk rate is down, but metrics show that he's now throwing too many strikes to the same area. `\
 https://nytimes.com/athletic/6596854/2025/09/04/dodgers-tanner-scott-strikes/
-
-**Kawhi Leonard controversy brings back memories of the Timberwolves' Joe Smith fiasco**\
-`Minnesota's under-the-table dealings in 1999 led to harsh penalties that set the franchise back for years.`\
-https://nytimes.com/athletic/6595780/2025/09/04/kawhi-leonard-clippers-timberwolves-joe-smith/
 

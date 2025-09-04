@@ -1,3 +1,7 @@
+**Cam Thomas signs 1-year qualifying offer to return to Nets: Source**\
+`The decision ends the prolonged standoff between the high-scoring 23-year-old guard and the Brooklyn Nets. `\
+https://nytimes.com/athletic/6540392/2025/09/04/cam-thomas-nets-contract-nba/
+
 **CSC: Nearly $80 million in NIL deals approved, 332 deals not yet cleared**\
 `The CSC said more than 28,342 college athletes and 1,227 "institutional users" have registered with its NIL Go online platform.`\
 https://nytimes.com/athletic/6597682/2025/09/04/college-sports-commission-nil-go-deals/

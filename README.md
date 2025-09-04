@@ -19,7 +19,7 @@ https://nytimes.com/2025/09/04/arts/music/morrissey-the-smiths-sale.html
 https://nytimes.com/athletic/6597102/2025/09/04/canucks-thatcher-demko-defence-goalies/
 
 **U.S. Imports Rose in July Following Months of Trade Turmoil**\
-`Data released Thursday morning showed trade rebounding slightly after President Trump’s sweeping global tariffs discouraged foreign countries from doing business with the United States.`\
+`Trade rebounded slightly after President Trump’s sweeping global tariffs discouraged foreign countries from doing business with the United States, data released Thursday showed.`\
 https://nytimes.com/2025/09/04/business/economy/us-trade-imports-tariffs.html
 
 **How to watch the Green Bay Packers in 2025: Schedule and streaming info for Cheeseheads**\
