@@ -1,40 +1,40 @@
-**Oklahoma's latest dynamic transfer quarterback John Mateer is just getting warmed up**\
-`Overlooked out of high school, Mateer took a winding path to the Sooners and is drawing comparisons to Baker Mayfield.`\
-https://nytimes.com/athletic/6596352/2025/09/04/john-mateer-oklahoma-quarterback-michigan/
+**What we're seeing from the Bears: Ben Johnson's impact, Caleb Williams' improvement**\
+`What have we seen from the Bears in training camp and the preseason? On the new head coach, the returning QB, the left tackle spot and more.`\
+https://nytimes.com/athletic/6595600/2025/09/04/chicago-bears-preview-caleb-williams-ben-johnson/
 
-**Russia Wants ‘Security Guarantees’ Too. Here’s What They Look Like.**\
-`The Kremlin’s vision of national security comes at the expense of Ukrainian sovereignty, underlining the challenges of striking a peace deal.`\
-https://nytimes.com/2025/09/04/world/europe/russia-security-guarantees.html
+**The major NFL games will cost you $631 to watch this season. Are you paying up?**\
+`There has been a lot of talk recently about how expensive it is to keep up with your favorite sports on TV. Weigh in on it here.`\
+https://nytimes.com/athletic/6594922/2025/09/04/nfl-cable-streaming-cost-fan-poll/
 
-**Inside the Turmoil at the C.D.C.**\
-`Robert F. Kennedy Jr.’s assault on the Centers for Disease Control and Prevention may usher in harsh consequences for public health, experts fear. Apoorva Mandavilli, a science and global health reporter at The New York Times, describes what’s happened at the agency and what could be next.`\
-https://nytimes.com/video/us/politics/100000010376126/inside-the-turmoil-at-the-cdc.html
+**What will Celtics do with Anfernee Simons? 5 questions that will define Boston's season**\
+`The Celtics backcourt will have little room for error, so what will they do with Anfernee Simons who is a defensive liability?`\
+https://nytimes.com/athletic/6596044/2025/09/04/celtics-anfernee-simons-offseason-questions/
 
-**Cowboys vs. Eagles: New names to know, old names to remember, mascot and music matchups**\
-`These teams do not like each other. Fortunately for us, they kick off the 2025 NFL season with spirited animosities.`\
-https://nytimes.com/athletic/6593029/2025/09/04/cowboys-eagles-nfl-season-opener-2025/
+**Cali connection: Bryce Young and Tetairoa McMillan aim to carry early bond to on-field success**\
+`Before the 2024 draft, Young and McMillan threw together at Golden West College. It left an impression on both — and now they're teammates.`\
+https://nytimes.com/athletic/6593313/2025/09/04/panthers-bryce-young-tetairoa-mcmillan/
 
-**The New York Times International Edition in Print for Friday, Sep. 5, 2025**\
-``\
-https://nytimes.com/issue/todaysinyt/2025/09/04/todays-new-york-times-international-edition
+**What I’m seeing from the Vikings: How will J.J. McCarthy look in live action?**\
+`The 22-year-old quarterback had an up-and-down summer. Time will tell whether he can apply what he's learned to a regular-season game.`\
+https://nytimes.com/athletic/6595933/2025/09/04/minnesota-vikings-preview-jj-mccarthy-2025/
 
-**How Jessica Pegula went 'back to the drawing board' – and back into the U.S. Open semifinals**\
-`At last year's tournament, Pegula broke her quarterfinal ceiling and got to the final weekend. Now she is one more match away.`\
-https://nytimes.com/athletic/6596936/2025/09/04/us-open-tennis-jessica-pegula-sabalenka-semifinal/
+**What I'm seeing from the Lions: Expectations remain high after 15-win season**\
+`What effect will the change in coordinators have? Could the Lions be flying under the radar a little?`\
+https://nytimes.com/athletic/6590492/2025/09/04/detroit-lions-preview-expectations-2025/
 
-**What I'm seeing from the Ravens: More contract decisions looming, an OLB on the rise**\
-`Plus, RB Derrick Henry has a chance to rise up the all-time rushing list this season. And WR Devontez Walker has been learning a new skill. `\
-https://nytimes.com/athletic/6594909/2025/09/04/baltimore-ravens-observations-contract-decisions/
+**Canada's X-factor: At 38, Crosby remains the unmatched 'advantage' for Olympic hockey**\
+`Teammates and execs say Crosby is the one thing that separates Team Canada from the pack in best-on-best play.`\
+https://nytimes.com/athletic/6590934/2025/09/04/sidney-crosby-canada-olympic-hockey/
 
-**Roberta Vinci, Serena Williams, the U.S. Open and the tennis upset of the century**\
-`10 years ago, Vinci ended Williams' pursuit of a calendar Grand Slam — and tennis history — on Arthur Ashe Stadium.`\
-https://nytimes.com/athletic/6592946/2025/09/04/serena-williams-us-open-2015-roberta-vinci-calendar-grand-slam/
+**Why Rocco Becht was exactly what Iowa State needed**\
+`Becht has led Iowa State to a resurgence after the program staggered following a successful run. `\
+https://nytimes.com/athletic/6593425/2025/09/04/rocco-becht-iowa-state/
 
-**A Cowboys offseason filled with drama leads to Thursday night vs. Eagles**\
-`A new head coach. A star player traded. Their franchise QB back from injury. A trade for a wild-card receiver. It's the Jerry Jones way.`\
-https://nytimes.com/athletic/6596544/2025/09/04/cowboys-offseason-drama-season-opener-eagles/
+**Braves takeaways: Ha-Seong Kim's immediate impact, Acuña's slump**\
+`Ha-Seong Kim showed why the Braves wanted him in his first two games since they claimed him off waivers from the Tampa Bay Rays.`\
+https://nytimes.com/athletic/6597039/2025/09/04/braves-takeaways-ha-seong-kims-elder-iglesias-acunas/
 
-**Kennedy Faces Senate Grilling After Vaccine Changes and C.D.C. Shake Up**\
-`Some Republican lawmakers have questioned whether Health Secretary Robert F. Kennedy Jr.’s recent actions contradict pledges he made about vaccine access in order to win confirmation.`\
-https://nytimes.com/2025/09/04/us/politics/kennedy-senate-hearing-vaccines-cdc.html
+**Commanders need Laremy Tunsil to keep Jayden Daniels' body, and future, intact**\
+`For the Commanders, Daniels is the hope and the future. Tunsil was brought to Washington to make sure that future arrives safely.`\
+https://nytimes.com/athletic/6591663/2025/09/04/laremy-tunsil-commanders-offensive-line/
 
