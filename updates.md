@@ -1,3 +1,7 @@
+**Late Night Thinks Trump Has a Case of Parade Envy**\
+`“It sounds like somebody’s bummed he wasn’t invited to the supervillain sleepover,” Jimmy Kimmel said of the president’s reaction to China’s big military parade.`\
+https://nytimes.com/2025/09/04/arts/television/late-night-trump-china-parade.html
+
 **U.S. Defends Boat Strike**\
 `Secretary of State Marco Rubio said military operations against Venezuelan cartels would continue.`\
 https://nytimes.com/video/world/americas/100000010377732/venezuela-drug-boat-trump-us.html

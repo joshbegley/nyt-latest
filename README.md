@@ -1,3 +1,7 @@
+**Portugal Mourns After Deadly Funicular Crash and Looks for Its Cause**\
+`The authorities are investigating an accident that killed 17 people and working to identify victims, which they said included Portuguese and foreigners.`\
+https://nytimes.com/2025/09/04/world/europe/lisbon-funicular-crash-elevador-da-gloria-portugal.html
+
 **Late Night Thinks Trump Has a Case of Parade Envy**\
 `“It sounds like somebody’s bummed he wasn’t invited to the supervillain sleepover,” Jimmy Kimmel said of the president’s reaction to China’s big military parade.`\
 https://nytimes.com/2025/09/04/arts/television/late-night-trump-china-parade.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/04/business/suntory-takeshi-niinami-jetlag-cbd.html
 **Revealed: Liverpool's £20m academy revamp, featuring an indoor dome and padbol**\
 `The Athletic has been given exclusive insight into how Liverpool plan to transform their flourishing academy `\
 https://nytimes.com/athletic/6569609/2025/09/04/liverpool-academy-revamp/
-
-**'Ridiculous': Devin Williams, Yankees rip umpire after meltdown loss to Astros**\
-`If the Yankees’ collapse in a wild 8-7 loss wasn’t their worst loss of the season, it seemed their most bitter.`\
-https://nytimes.com/athletic/6597164/2025/09/04/yankees-devin-williams-rip-umpire-astros/
 
