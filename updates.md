@@ -1,3 +1,11 @@
+**College football best bets Week 2: Picking ACC favorites and a double-digit underdog**\
+`Austin Mock has three bets lined up for Week 2 of college football season, including a game that is taking place on Friday.`\
+https://nytimes.com/athletic/6594920/2025/09/04/college-football-best-bets-week-2-louisville-syracuse/
+
+**Worst Rains in Decades Batter North India, Submerging Crops**\
+`The floods, which have killed hundreds, are bad news for farmers weighed down by heavy debt, as India is under pressure from President Trump in tariff negotiations.`\
+https://nytimes.com/2025/09/04/world/asia/punjab-india-floods-crops.html
+
 **Mets to call up pitching prospect Brandon Sproat for MLB debut: Source**\
 `The New York Mets’ recent trend of calling up top pitching prospects to help during the stretch run is set to continue.`\
 https://nytimes.com/athletic/6598364/2025/09/04/mets-prospect-brandon-sproat-mlb-debut/

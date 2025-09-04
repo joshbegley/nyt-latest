@@ -1,3 +1,7 @@
+**When Word Got Out, the Guest List Nearly Doubled**\
+`As evidenced by a recent opening party, Galerie Sardine, on Long Island’s East End, has quickly become a sought-out destination for art, food and togetherness.`\
+https://nytimes.com/2025/09/04/t-magazine/galerie-sardine-party.html
+
 **College football best bets Week 2: Picking ACC favorites and a double-digit underdog**\
 `Austin Mock has three bets lined up for Week 2 of college football season, including a game that is taking place on Friday.`\
 https://nytimes.com/athletic/6594920/2025/09/04/college-football-best-bets-week-2-louisville-syracuse/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6598171/2025/09/04/roy-jones-jr-gold-medal-park-si-
 **Seahawks, RT Abe Lucas agree to 3-year, $46 million extension: Source**\
 `Lucas, who battled a nagging knee injury for much of 2023 and 2024, was entering the final year of his contract.`\
 https://nytimes.com/athletic/6598311/2025/09/04/abe-lucas-seahawks-contract-extension/
-
-**Daunted by the Sprawling Armory Show? Try These 13 Certified Winners.**\
-`With its crowd-pleasers and safe bets, this big trade show tones it down for an uncertain art market. Our critics sampled the global art scene for these discoveries.`\
-https://nytimes.com/2025/09/04/arts/design/armory-show-javits-center.html
 
