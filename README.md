@@ -1,3 +1,11 @@
+**Pete Crow-Armstrong sits as Cubs hope physical, mental reset will get him back on track**\
+`Kyle Tucker's time off worked out so well for him that Craig Counsell is trying the same for Crow-Armstrong.`\
+https://nytimes.com/athletic/6596548/2025/09/03/cubs-pete-crow-armstrong-sits/
+
+**Man from Russia Identified as Festival-Goer Found Dead at Burning Man**\
+`The man, Vadim Kruglov, 37, was found “lying in a pool of blood,” the authorities said. Officials are investigating his death as a possible homicide.`\
+https://nytimes.com/2025/09/03/us/burning-man-festival-death-russia.html
+
 **49ers, WR Jauan Jennings agree to contract adjustment: Source**\
 `Jennings missed most of training camp and all of the preseason with a calf injury.`\
 https://nytimes.com/athletic/6582188/2025/09/03/jauan-jennings-contract-49ers-deal/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6596184/2025/09/03/padres-immaculate-inning-mason-m
 **NBA All-Star Game likely to have U.S. vs. World format in 2026: Reports**\
 `The new format would feature a round-robin tournament with two teams of U.S. players and one of international players.`\
 https://nytimes.com/athletic/6596517/2025/09/03/nba-all-star-game-new-format-2026/
-
-**What to Know About China’s Military Parade**\
-`At a large Chinese military parade to commemorate the end of World War II, President Xi Jinping welcomed authoritarian leaders and debuted China’s newest weaponry. David Pierson, a foreign correspondent at The New York Times, explains what this means for the United States and the world.`\
-https://nytimes.com/video/world/asia/100000010372402/what-to-know-about-chinas-military-parade.html
-
-**Astros place Spencer Arrighetti on IL with elbow inflammation**\
-`The move puts the rest of Arrighetti's season in peril while weakening an Astros pitching staff already staggered by attrition.`\
-https://nytimes.com/athletic/6596561/2025/09/03/astros-spencer-arrighetti-injury/
 
