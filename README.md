@@ -1,3 +1,7 @@
+**Amari Cooper retires from NFL a week after signing with Las Vegas Raiders: Source**\
+`In theory, Cooper would've provided some depth and veteran insurance to the Raiders' receiver room.`\
+https://nytimes.com/athletic/6598701/2025/09/04/amari-cooper-retire-raiders-nfl/
+
 **Steve Hayden, Writer Behind Apple’s ‘1984’ Commercial, Dies at 78**\
 `The ad for the Macintosh computer — which ran just once, during the Super Bowl — is considered one of the most memorable commercials ever made.`\
 https://nytimes.com/2025/09/04/business/media/steve-hayden-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6598426/2025/09/04/netflix-6-kings-slam-janik-sinne
 **Man Accused of Killing Israeli Embassy Staffers Pleads Not Guilty**\
 `At an arraignment on Thursday, Elias Rodriguez faced federal hate crime and other charges that could result in the death penalty.`\
 https://nytimes.com/2025/09/04/us/politics/not-guilty-plea-israeli-embassy.html
-
-**Scouting notebook: Joey Oakie is a rising star for Cleveland, plus more prospect notes**\
-`Prospects covered in this notebook also include Ike Irish, Wehiwa Aloy, Kiefer Lord, Eriq Swan, Aroon Escobar and more.`\
-https://nytimes.com/athletic/6598271/2025/09/04/joey-oakie-kiefer-lord-aroon-escobar-scouting-notes/
 
