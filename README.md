@@ -1,3 +1,7 @@
+**How Alex Morgan took a pink headband and turned it into her first savvy business venture**\
+`Retired USMNT great is one of the most financially-successful women’s soccer players - and it all began with a wrap not meant for hair`\
+https://nytimes.com/athletic/6596264/2025/09/04/alex-morgan-pink-prewrap-business-uswnt-san-diego-wave/
+
 **How Jordyn Tyson blossomed at Arizona State and became one of the country's top playmakers**\
 `Position coach Hines Ward tells Tyson he has a chance to be among the school's all-time greats. "The opportunity is there."`\
 https://nytimes.com/athletic/6596460/2025/09/04/jordyn-tyson-arizona-state-wide-receiver-all-american/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6597721/2025/09/04/world-boxing-championship-gender
 **Giorgio Armani, Fashion’s Master of the Power Suit, Dies at 91**\
 `He created a male uniform whose feminized form won favor with women. An alliance with movie stars made his name all but synonymous with red-carpet dressing.`\
 https://nytimes.com/2025/09/04/fashion/giorgio-armani-dead.html
-
-**How to watch the Minnesota Vikings in 2025: Schedule, streaming for J.J. McCarthy's debut**\
-`Here's how to "skol" at each regular-season Vikings broadcast in 2025, including two overseas games in Weeks 4 and 5.`\
-https://nytimes.com/athletic/6533981/2025/09/04/minnesota-vikings-how-to-watch-2025-jj-mcarthy/
 
