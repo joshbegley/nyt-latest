@@ -1,3 +1,11 @@
+**Booting the ball out from kick-off is a worrying trend - this rule change would curb it**\
+`Data supports the sides who are blasting the ball out of play… but that doesn't make it right`\
+https://nytimes.com/athletic/6594813/2025/09/04/kick-off-rule-change/
+
+**How the transfer window has changed EPL expectations**\
+`The Premier League’s summer of unprecedented spending came to an end with the close of the transfer window on Monday night`\
+https://nytimes.com/athletic/6594686/2025/09/04/premier-league-favourites-how-the-transfer-window-has-impacted-team-expectations/
+
 **Europe Aims to Show It Is Ready to Secure Postwar Ukraine**\
 `President Emmanuel Macron of France is expected to host a meeting of leaders who will review options for protecting any peace with Russia.`\
 https://nytimes.com/2025/09/04/world/europe/ukraine-macron-postwar.html
@@ -14,8 +22,8 @@ https://nytimes.com/athletic/6546501/2025/09/04/cairo-santos-interview-nfl-chica
 `When world leaders meet in New York this month, several plan to recognize a Palestinian state, but Palestinian leaders may not be there to revel in the moment.`\
 https://nytimes.com/2025/09/04/world/middleeast/palestinian-leaders-visa-ban-statehood-conference.html
 
-**U.S. and Allies See Yearslong Hack as China’s Most Ambitious Yet**\
-`Data stolen in the Salt Typhoon attack could allow Chinese intelligence services to track targets around the world, officials warned.`\
+**‘Unrestrained’ Chinese Cyberattack May Have Stolen Data From Almost Every American**\
+`Information collected during the yearslong  Salt Typhoon attack could allow Beijing’s intelligence services to track targets from the United States and dozens of other countries.`\
 https://nytimes.com/2025/09/04/world/asia/china-hack-salt-typhoon.html
 
 **Corrections: Sept. 4, 2025**\
@@ -29,12 +37,4 @@ https://nytimes.com/2025/09/03/pageoneplus/quote-of-the-day-mark-knoller-73-whit
 **For the Dodgers, another spoiled chance and a repetitive message: 'It's got to get better'**\
 `The Dodgers' two consecutive losses to the last-place Pirates show that they’ve continued to make things hard on themselves.`\
 https://nytimes.com/athletic/6596842/2025/09/03/dodgers-padres-loss-will-smith-injury/
-
-**How to watch Yankees at Astros: Time, TV, streaming**\
-`Find out how to watch the New York Yankees play the Houston Astros, with time, TV channel, and streaming information.`\
-https://nytimes.com/athletic/6596953/2025/09/03/new-york-yankees-vs-houston-astros-stream-how-to-watch-sept-4/
-
-**Blue Jays takeaways: Biggest series, George Springer’s ascension and bullpen struggles**\
-`The Blue Jays rallied past the Reds and now head to New York for a pivotal series against the Yankees. `\
-https://nytimes.com/athletic/6596790/2025/09/03/blue-jays-george-springer-yankees-series/
 
