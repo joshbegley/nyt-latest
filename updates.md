@@ -1,3 +1,11 @@
+**Investor’s Question**\
+`Colin Ernst’s puzzle rises above … well, you’ll see.`\
+https://nytimes.com/2025/09/03/crosswords/investors-question.html
+
+**Trump Asks Supreme Court to Allow His Sweeping Tariffs**\
+`A federal appeals court had invalidated a centerpiece of President Trump’s economic strategy, finding that a 1977 law did not authorize the tariffs.`\
+https://nytimes.com/2025/09/03/us/politics/trump-supreme-court-tariffs.html
+
 **House Votes to Advance a Mining Road Through the Alaskan Wilderness**\
 `The proposed 211-mile industrial road over pristine land would allow a mining company to reach a copper deposit. Critics say it would destroy a fragile environment.`\
 https://nytimes.com/2025/09/03/climate/ambler-access-project-road-alaska.html
