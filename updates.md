@@ -1,3 +1,11 @@
+**How Trump Exploits Emergency Declarations to Expand Presidential Power**\
+`We catalog the president’s emergencies to explore how he is using them to remake the government.`\
+https://nytimes.com/2025/09/04/briefing/how-trump-exploits-emergency-declarations-to-expand-presidential-power.html
+
+**How to watch 2025 F1 Italian Grand Prix: Schedule for race weekend at Monza**\
+`McLaren rides a five-race win streak into Monza this weekend, looking to stay hot in the Italian heat. `\
+https://nytimes.com/athletic/6596017/2025/09/04/f1-italian-grand-prix-odds-2025-how-to-watch/
+
 **What we're seeing from the Bears: Ben Johnson's impact, Caleb Williams' improvement**\
 `What have we seen from the Bears in training camp and the preseason? On the new head coach, the returning QB, the left tackle spot and more.`\
 https://nytimes.com/athletic/6595600/2025/09/04/chicago-bears-preview-caleb-williams-ben-johnson/
