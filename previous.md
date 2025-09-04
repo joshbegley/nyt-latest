@@ -1,3 +1,7 @@
+**Independent regulator reveals plan for tougher 'fit and proper person' test**\
+`The test will assess the “honest, integrity and financial soundness” of those who run clubs in the top five men’s leagues`\
+https://nytimes.com/athletic/6599626/2025/09/04/independent-regulator-plans-fit-proper-test/
+
 **Plenty 'unusual' about Kawhi Leonard sponsorship deal: 'This does not happen'**\
 `How rare was Kawhi Leonard's $28 million sponsorship deal to do, at most, very little? `\
 https://nytimes.com/athletic/6597250/2025/09/04/kawhi-leonard-clippers-steve-ballmer-sponsorship-deal-aspiration/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/04/nyregion/adams-trump-job-quits.html
 **Joshua Abram Dies at 62; Gave Workspace-Sharing an Upscale Spin**\
 `He and a partner made their co-working locations feel like private clubs. Among his other ventures, he sought to slash the cost of in vitro fertilization by using robotics and A.I.`\
 https://nytimes.com/2025/09/04/business/joshua-abram-dead.html
-
-**Defending champion Spain knocked out before EuroBasket Round of 16**\
-`While Spain was eliminated, top NBA stars Giannis Antetokounmpo, Nikola Jokić, Luka Dončić, Lauri Markkanen and Alperen Şengün moved on.`\
-https://nytimes.com/athletic/6599226/2025/09/04/eurobasket-round-16-matchups-schedule-spain-out/
 

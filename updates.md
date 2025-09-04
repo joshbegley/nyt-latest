@@ -1,3 +1,7 @@
+**Independent regulator reveals plan for tougher 'fit and proper person' test**\
+`The test will assess the “honest, integrity and financial soundness” of those who run clubs in the top five men’s leagues`\
+https://nytimes.com/athletic/6599626/2025/09/04/independent-regulator-plans-fit-proper-test/
+
 **Plenty 'unusual' about Kawhi Leonard sponsorship deal: 'This does not happen'**\
 `How rare was Kawhi Leonard's $28 million sponsorship deal to do, at most, very little? `\
 https://nytimes.com/athletic/6597250/2025/09/04/kawhi-leonard-clippers-steve-ballmer-sponsorship-deal-aspiration/
