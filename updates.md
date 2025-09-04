@@ -1,3 +1,8 @@
+**Oversight committee approves single January transfer portal window for football**\
+`The NCAA’s administrative committee must still support the change.
+`\
+https://nytimes.com/athletic/6598832/2025/09/04/ncaa-football-transfer-portal-window-january/
+
 **Appeals Court Says ‘Alligator Alcatraz’ Detention Center Can Stay Open**\
 `The court paused a federal judge’s ruling that no additional detainees could be sent to the center, and that much of it had to be dismantled within 60 days.`\
 https://nytimes.com/2025/09/04/us/alligator-alcatraz-florida-appeals.html
