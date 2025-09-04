@@ -1,3 +1,11 @@
+**House Votes to Advance a Mining Road Through the Alaskan Wilderness**\
+`The proposed 211-mile industrial road over pristine land would allow a mining company to reach a copper deposit. Critics say it would destroy a fragile environment.`\
+https://nytimes.com/2025/09/03/climate/ambler-access-project-road-alaska.html
+
+**Naomi Osaka beats Karolína Muchová in riveting U.S. Open quarterfinal**\
+`Osaka continued her U.S. Open surge by beating Muchová, one of the great craftswomen in tennis, in a captivating match.`\
+https://nytimes.com/athletic/6596590/2025/09/03/naomi-osaka-karolina-muchova-us-open-result-analysis/
+
 **Alabama DT Jeremiah Beaman likely out for season, Kalen DeBoer says**\
 `Beaman sustained a lower-body injury at Wednesday's practice.`\
 https://nytimes.com/athletic/6596592/2025/09/03/alabama-jeremiah-beaman-injury-status/
