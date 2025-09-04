@@ -1,3 +1,7 @@
+**Suntory Boss Who Resigned Said He Took CBD Supplements for Jet Lag**\
+`Takeshi Niinami said he never used the products in Japan, where officials are investigating whether they are banned under the country’s strict drug laws.`\
+https://nytimes.com/2025/09/04/business/suntory-takeshi-niinami-jetlag-cbd.html
+
 **Revealed: Liverpool's £20m academy revamp, featuring an indoor dome and padbol**\
 `The Athletic has been given exclusive insight into how Liverpool plan to transform their flourishing academy `\
 https://nytimes.com/athletic/6569609/2025/09/04/liverpool-academy-revamp/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/04/opinion/russia-ukraine-sabotage-teens.html
 **China’s Show of Military Might**\
 `Xi Jinping’s huge military parade in Tiananmen Square provided a rare look at China’s new weapons.`\
 https://nytimes.com/2025/09/04/briefing/china-military-protugal-funicular-crash.html
-
-**Will Chelsea be beaten? Who's the best signing? Are London City a threat? The WSL roundtable**\
-`Can Chelsea be stopped? Are Leicester City really going to be in trouble? How will Olivia Smith fare? The key WSL questions answered`\
-https://nytimes.com/athletic/6573780/2025/09/04/womens-super-league-questions-chelsea-arsenal-manchester-soccer/
 
