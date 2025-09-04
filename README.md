@@ -1,3 +1,7 @@
+**What We Know About the Funicular Crash in Lisbon**\
+`At least 15 people were killed after the Glória funicular, one of the city’s most popular tourist attractions, derailed and crashed.`\
+https://nytimes.com/2025/09/04/world/europe/lisbon-funicular-crash-gloria.html
+
 **The New York Times in Print for Thursday, Sep. 4, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/09/04/todays-new-york-times
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6553080/2025/09/04/enciso-brighton-departure-right-
 **Lucas Paqueta ruling explained: FA's poor use of data, Moyes vs analysts, Clattenburg's criticism**\
 `The written reasons why Paqueta was cleared of the FA’s four spot-fixing charges ran to 314 pages - we pick out the key bits`\
 https://nytimes.com/athletic/6595846/2025/09/04/lucas-paqueta-explained-betting-case/
-
-**Revenge of the Six: How England's big beasts clawed back their transfer power**\
-`This was the transfer window which reaffirmed that Premier League financial power still lies with the 'Big Six' `\
-https://nytimes.com/athletic/6592119/2025/09/04/premier-league-transfer-window-big-six/
 

@@ -1,3 +1,7 @@
+**Revenge of the Six: How England's big beasts clawed back their transfer power**\
+`This was the transfer window which reaffirmed that Premier League financial power still lies with the 'Big Six' `\
+https://nytimes.com/athletic/6592119/2025/09/04/premier-league-transfer-window-big-six/
+
 **Merlin Rohl could offer the missing magic to Everton's midfield**\
 `While Rohl is unlikely to be a long-term Gueye replacement, with a bit of luck, he can bring a new dimension to Everton’s evolving squad`\
 https://nytimes.com/athletic/6594373/2025/09/04/merlin-rohl-everton-midfield/
