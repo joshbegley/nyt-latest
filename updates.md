@@ -1,3 +1,15 @@
+**Man Accused of Killing Israeli Embassy Staffers Pleads Not Guilty**\
+`At an arraignment on Thursday, Elias Rodriguez faced federal hate crime and other charges that could result in the death penalty.`\
+https://nytimes.com/2025/09/04/us/politics/not-guilty-plea-israeli-embassy.html
+
+**Scouting notebook: Joey Oakie is a rising star for Cleveland, plus more prospect notes**\
+`Prospects covered in this notebook also include Ike Irish, Wehiwa Aloy, Kiefer Lord, Eriq Swan, Aroon Escobar and more.`\
+https://nytimes.com/athletic/6598271/2025/09/04/joey-oakie-kiefer-lord-aroon-escobar-scouting-notes/
+
+**Tottenham executive chairman Levy leaves club after 24 years**\
+`Levy’s responsibilities will be taken over by Peter Charrington, who has been appointed to the newly-created role of non-executive chairman.`\
+https://nytimes.com/athletic/6598456/2025/09/04/tottenham-news-levy-step-down-chairman/
+
 **NFL Week 1 best bets: Fading Matthew Stafford due to injury plus some early unders**\
 `Austin Mock has four bets for the first week of the NFL season, including a play on the Houston Texans at the LA Rams.`\
 https://nytimes.com/athletic/6598391/2025/09/04/nfl-best-bets-week-1-bengals-texans-giants/
