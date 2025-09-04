@@ -1,3 +1,11 @@
+**U.S. Agents Raid Upstate N.Y. Plant and Detain More Than 70 Migrants**\
+`Local law enforcement officers helped federal agents carry out an immigration raid near Syracuse. Witnesses said the agents used police dogs in the raid and wielded crowbars to gain entry.`\
+https://nytimes.com/2025/09/04/nyregion/immigration-raid-new-york.html
+
+**N.Y.C. Elections Board May Block Ballot Proposals on Housing**\
+`The City Council opposes the measures, which would curtail its power. The Board of Elections, appointed by the Council, could prevent voters from weighing in.`\
+https://nytimes.com/2025/09/04/nyregion/charter-revision-nyc-housing.html
+
 **Trump Is Renaming the Defense Department the Department of War**\
 `The president is turning back the clock to the name the agency held until shortly after World War II.`\
 https://nytimes.com/2025/09/04/us/politics/trump-department-of-war-defense.html
