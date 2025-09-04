@@ -1,3 +1,7 @@
+**Portugal Mourns Dead in Lisbon Funicular Crash**\
+`Emergency crews worked on Thursday at the site of a funicular crash in Lisbon that killed at least 17 people the evening before. The cause was still being investigated.`\
+https://nytimes.com/video/world/europe/100000010377961/portugal-mourns-lisbon-funicular-crash.html
+
 **Trump Administration Live Updates: President Takes Tariffs Fight to Supreme Court**\
 ``\
 https://nytimes.com/live/2025/09/04/us/trump-news

@@ -1,3 +1,7 @@
+**Portugal Mourns Dead in Lisbon Funicular Crash**\
+`Emergency crews worked on Thursday at the site of a funicular crash in Lisbon that killed at least 17 people the evening before. The cause was still being investigated.`\
+https://nytimes.com/video/world/europe/100000010377961/portugal-mourns-lisbon-funicular-crash.html
+
 **Trump Administration Live Updates: President Takes Tariffs Fight to Supreme Court**\
 ``\
 https://nytimes.com/live/2025/09/04/us/trump-news
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6597017/2025/09/04/buffalo-sabres-preseason-playoff
 **Hamas Says It Is Ready for a Comprehensive Deal to End the Gaza War**\
 `The Palestinian militant group has expressed similar positions in the past, and Prime Minister Benjamin Netanyahu of Israel dismissed its statement as “spin” and “nothing new.”`\
 https://nytimes.com/2025/09/04/world/middleeast/hamas-gaza-war-israel-ceasefire-deal.html
-
-**'He demands urgency' - can Newcastle's new CEO David Hopkinson take the club global?**\
-`The 54-year-old Canadian is described as a ‘perfect choice’ to lead a ‘challenger club’ like Newcastle - this is who he is and what he faces`\
-https://nytimes.com/athletic/6581173/2025/09/04/david-hopkinson-newcastle-united-who-is-he/
 

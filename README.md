@@ -1,3 +1,11 @@
+**Better rookie season: Paige Bueckers or Caitlin Clark?**\
+`Buckers' standout season is among the best rookie campaigns ever. But the Wings failed to qualify for the playoffs. `\
+https://nytimes.com/athletic/6597163/2025/09/04/better-rookie-season-paige-bueckers-or-caitlin-clark/
+
+**Wall Street’s Bet Against the Trump Tariffs**\
+`Investors are offering to buy importers’ rights to any refunds of the administration’s levies. It’s a longshot wager that courts will overturn the tariffs.`\
+https://nytimes.com/2025/09/04/business/dealbook/wall-street-trump-tariffs.html
+
 **Portugal Mourns Dead in Lisbon Funicular Crash**\
 `Emergency crews worked on Thursday at the site of a funicular crash in Lisbon that killed at least 17 people the evening before. The cause was still being investigated.`\
 https://nytimes.com/video/world/europe/100000010377961/portugal-mourns-lisbon-funicular-crash.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6528848/2025/09/04/chicago-bears-2025-caleb-william
 **Jets fan survey results, Part 1: What went right and wrong this past season**\
 `You told us everything we needed to know about being a Jets fan. Now it's time to show you the results.`\
 https://nytimes.com/athletic/6592463/2025/09/04/winnipeg-jets-fan-survey-results-part-1/
-
-**How can the Sabres finally make playoffs? 10 key questions to end a record drought**\
-`To finally make it over the playoff hump, this year's Sabres team has some things to prove.`\
-https://nytimes.com/athletic/6597017/2025/09/04/buffalo-sabres-preseason-playoffs-2025/
-
-**Hamas Says It Is Ready for a Comprehensive Deal to End the Gaza War**\
-`The Palestinian militant group has expressed similar positions in the past, and Prime Minister Benjamin Netanyahu of Israel dismissed its statement as “spin” and “nothing new.”`\
-https://nytimes.com/2025/09/04/world/middleeast/hamas-gaza-war-israel-ceasefire-deal.html
 
