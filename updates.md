@@ -1,3 +1,11 @@
+**What Kennedy Has Wrought at the C.D.C.**\
+`Readers respond to articles about Health Secretary Robert F. Kennedy Jr. Also: The power of a thank-you note; preventing cannabis poisoning in children.`\
+https://nytimes.com/2025/09/04/opinion/robert-kennedy-cdc.html
+
+**Detainee Dies at Rikers, the Fifth Fatality in 2 Weeks in N.Y.C. Lockups**\
+`The authorities said the man had a seizure. The previous death, of a pedicab driver in police custody in Manhattan, has been ruled a suicide.`\
+https://nytimes.com/2025/09/04/nyregion/rikers-detainee-death.html
+
 **Steve Hayden, Writer Behind Apple’s ‘1984’ Commercial, Dies at 78**\
 `The ad for the Macintosh computer — which ran just once, during the Super Bowl — is considered one of the most memorable commercials ever made.`\
 https://nytimes.com/2025/09/04/business/media/steve-hayden-dead.html
