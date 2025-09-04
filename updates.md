@@ -1,3 +1,11 @@
+**What to Know About China’s Military Parade**\
+`At a large Chinese military parade to commemorate the end of World War II, President Xi Jinping welcomed authoritarian leaders and debuted China’s newest weaponry. David Pierson, a foreign correspondent at The New York Times, explains what this means for the United States and the world.`\
+https://nytimes.com/video/world/asia/100000010372402/what-to-know-about-chinas-military-parade.html
+
+**Astros place Spencer Arrighetti on IL with elbow inflammation**\
+`The move puts the rest of Arrighetti's season in peril while weakening an Astros pitching staff already staggered by attrition.`\
+https://nytimes.com/athletic/6596561/2025/09/03/astros-spencer-arrighetti-injury/
+
 **How to watch Dodgers at Pirates: Time, TV, streaming**\
 `Find out how to watch the Los Angeles Dodgers play the Pittsburgh Pirates, with time, TV channel, and streaming information.`\
 https://nytimes.com/athletic/6596581/2025/09/03/los-angeles-dodgers-vs-pittsburgh-pirates-stream-how-to-watch-sept-4/
