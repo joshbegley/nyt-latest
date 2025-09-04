@@ -1,3 +1,7 @@
+**For the Dodgers, another spoiled chance and a repetitive message: 'It's got to get better'**\
+`The Dodgers' two consecutive losses to the last-place Pirates show that they’ve continued to make things hard on themselves.`\
+https://nytimes.com/athletic/6596842/2025/09/03/dodgers-padres-loss-will-smith-injury/
+
 **How to watch Yankees at Astros: Time, TV, streaming**\
 `Find out how to watch the New York Yankees play the Houston Astros, with time, TV channel, and streaming information.`\
 https://nytimes.com/athletic/6596953/2025/09/03/new-york-yankees-vs-houston-astros-stream-how-to-watch-sept-4/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/03/climate/ambler-access-project-road-alaska.html
 **Naomi Osaka beats Karolína Muchová in riveting U.S. Open quarterfinal**\
 `Osaka continued her U.S. Open surge by beating Muchová, one of the great craftswomen in tennis, in a captivating match.`\
 https://nytimes.com/athletic/6596590/2025/09/03/naomi-osaka-karolina-muchova-us-open-result-analysis/
-
-**Alabama DT Jeremiah Beaman likely out for season, Kalen DeBoer says**\
-`Beaman sustained a lower-body injury at Wednesday's practice.`\
-https://nytimes.com/athletic/6596592/2025/09/03/alabama-jeremiah-beaman-injury-status/
 
