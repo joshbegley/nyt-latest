@@ -1,3 +1,7 @@
+**Is This the Most Luxurious Influencer Wedding Yet?**\
+`With her viral lead-up videos, the RichTok star Becca Bloom turned her Lake Como wedding into a must-see event for millions.`\
+https://nytimes.com/2025/09/03/fashion/weddings/becca-bloom-wedding.html
+
 **Seattle Police Conclude 13 Years of Federal Oversight**\
 `A federal judge ended the monitoring imposed after allegations of excessive force and racial bias. The city pointed to progress in improving officer accountability and training.`\
 https://nytimes.com/2025/09/03/us/seattle-police-consent-decree.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6596165/2025/09/03/isaac-paredes-astros-hamstring-r
 **What Is College Like for You?**\
 `Higher education is in flux, and students are adjusting to a lot of changes.`\
 https://nytimes.com/2025/09/03/us/colleges-campuses-callout.html
-
-**G.O.P. Thwarts Epstein Disclosure Bill as Accusers Plead for Files**\
-`Jeffrey Epstein’s accusers went to the Capitol to ask Congress to get behind their calls for more disclosures, but momentum for a bill demanding it appeared to stall.`\
-https://nytimes.com/2025/09/03/us/politics/epstein-bill-republicans-trump.html
 

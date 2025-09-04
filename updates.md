@@ -1,3 +1,7 @@
+**Is This the Most Luxurious Influencer Wedding Yet?**\
+`With her viral lead-up videos, the RichTok star Becca Bloom turned her Lake Como wedding into a must-see event for millions.`\
+https://nytimes.com/2025/09/03/fashion/weddings/becca-bloom-wedding.html
+
 **Seattle Police Conclude 13 Years of Federal Oversight**\
 `A federal judge ended the monitoring imposed after allegations of excessive force and racial bias. The city pointed to progress in improving officer accountability and training.`\
 https://nytimes.com/2025/09/03/us/seattle-police-consent-decree.html
