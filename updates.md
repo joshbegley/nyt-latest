@@ -1,3 +1,7 @@
+**Texas Senate Passes Bill to Crack Down on Mail-Order Abortion Pills**\
+`Gov. Greg Abbott is expected to sign the legislation, which allows nearly anyone to sue abortion medication providers and distributors.`\
+https://nytimes.com/2025/09/04/us/politics/texas-senate-abortion-pills-bill.html
+
 **What We Know About the Funicular Crash in Lisbon**\
 `At least 15 people were killed after the Glória funicular, one of the city’s most popular tourist attractions, derailed and crashed.`\
 https://nytimes.com/2025/09/04/world/europe/lisbon-funicular-crash-gloria.html
