@@ -1,3 +1,7 @@
+**Red Light: Ten most intriguing NHL team camps. Plus: Pick up some tips for your fantasy hockey league**\
+`We are mere days away from real NHL happenings on the ice, so we’re here to get you set for what’s next.`\
+https://nytimes.com/athletic/6597861/2025/09/04/ten-most-intriguing-nhl-team-camps-plus-pick-up-some-tips-for-your-fantasy-hockey-league/
+
 **Rubio Says U.S. Will Work With Other Nations to ‘Blow Up’ Crime Groups**\
 `The Trump administration aims to carry out more violent strikes against drug cartels, Secretary of State Marco Rubio said as he met with Ecuador’s president.`\
 https://nytimes.com/2025/09/04/world/americas/rubio-ecuador-crime-groups-boat-strike.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/04/health/rfk-jr-senate-hearing-takeaways.html
 **Brisbee: The red-hot Giants are making fans pay attention again, and that's a good thing**\
 `The Giants' playoff odds have crept up to 11 percent. Those aren't good odds, but those odds are well within normal baseball likelihoods.`\
 https://nytimes.com/athletic/6598440/2025/09/04/sf-giants-playoff-chances/
-
-**Justice Dept. Accuses California Utility of Negligence in Deadly Eaton Fire**\
-`Federal prosecutors say the January blaze that swept through Altadena, as well as another fire in 2022, were sparked by faulty equipment.`\
-https://nytimes.com/2025/09/04/us/eaton-fire-altadena-lawsuit.html
 

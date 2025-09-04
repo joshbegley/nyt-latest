@@ -1,3 +1,7 @@
+**Red Light: Ten most intriguing NHL team camps. Plus: Pick up some tips for your fantasy hockey league**\
+`We are mere days away from real NHL happenings on the ice, so we’re here to get you set for what’s next.`\
+https://nytimes.com/athletic/6597861/2025/09/04/ten-most-intriguing-nhl-team-camps-plus-pick-up-some-tips-for-your-fantasy-hockey-league/
+
 **Rubio Says U.S. Will Work With Other Nations to ‘Blow Up’ Crime Groups**\
 `The Trump administration aims to carry out more violent strikes against drug cartels, Secretary of State Marco Rubio said as he met with Ecuador’s president.`\
 https://nytimes.com/2025/09/04/world/americas/rubio-ecuador-crime-groups-boat-strike.html
