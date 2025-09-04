@@ -1,3 +1,19 @@
+**Koch family agrees to buy 10 percent stake in New York Giants: Source**\
+`If the Koch family buys a minority stake with the team valued at $10 billion, it would mark a record NFL team valuation during a sale.`\
+https://nytimes.com/athletic/6598454/2025/09/04/koch-family-ny-giants-sale/
+
+**Researcher Is Feared Dead After Falling Into a Glacial Stream in Alaska**\
+`The water pushed the man into a hole in the ice that suddenly filled with a torrent of water. He hasn’t been seen since.`\
+https://nytimes.com/2025/09/04/us/alaska-hiker-death-glacier.html
+
+**What's stopping the production of new Michael Jordan or Kobe Bryant NBA cards?**\
+`While many other retired legends still regularly appear in NBA licensed card sets each year, the two most in demand do not`\
+https://nytimes.com/athletic/6598179/2025/09/04/michael-jordan-kobe-bryant-nba-cards/
+
+**Detainee Dies at Rikers, the Fifth Fatality in 2 Weeks in N.Y.C. Lockups**\
+`The authorities said the man had a seizure. The previous death, of a pedicab driver held in a precinct cell, has been ruled a suicide.`\
+https://nytimes.com/2025/09/04/nyregion/rikers-detainee-death.html
+
 **Why Netflix's next huge event in live sports includes Sinner, Alcaraz, Djokovic**\
 `With Grand Slam tennis TV rights locked up for years, Netflix finds a high-profile exhibition to fuel its ambitions in live sports.`\
 https://nytimes.com/athletic/6598426/2025/09/04/netflix-6-kings-slam-janik-sinner/
