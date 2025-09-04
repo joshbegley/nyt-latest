@@ -1,3 +1,7 @@
+**Tottenham executive chairman Levy leaves club after 24 years**\
+`Levy’s responsibilities will be taken over by Peter Charrington who has been appointed to the newly-created role of non-executive chairman.`\
+https://nytimes.com/athletic/6598456/2025/09/04/tottenham-news-levy-step-down-chairman/
+
 **Northwestern’s President Will Resign After University Faced Republican Pressure**\
 `The president, Michael Schill, will step down after months of turbulence, including Trump administration cuts of $790 million to the university’s research funds.`\
 https://nytimes.com/2025/09/04/us/northwestern-president-resigns.html

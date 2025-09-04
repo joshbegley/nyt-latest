@@ -1,3 +1,7 @@
+**Tottenham executive chairman Levy leaves club after 24 years**\
+`Levy’s responsibilities will be taken over by Peter Charrington who has been appointed to the newly-created role of non-executive chairman.`\
+https://nytimes.com/athletic/6598456/2025/09/04/tottenham-news-levy-step-down-chairman/
+
 **Northwestern’s President Will Resign After University Faced Republican Pressure**\
 `The president, Michael Schill, will step down after months of turbulence, including Trump administration cuts of $790 million to the university’s research funds.`\
 https://nytimes.com/2025/09/04/us/northwestern-president-resigns.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/04/books/review/6-books-we-loved-this-week.html
 **CAS rejects appeal to reinstate pro/rel to Liga MX**\
 `The appeal was filed by six second division Mexican clubs. Liga MX paused pro/rel in 2020 around the Covid-19 pandemic.`\
 https://nytimes.com/athletic/6598370/2025/09/04/liga-mx-promotion-relegation-cas/
-
-**Key fantasy football questions for Week 1: Will the Chiefs' deep ball return?**\
-`Dalton Del Don identifies 10 questions fantasy managers should be seeking answers to in Week 1, including the state of KC's deep pass.`\
-https://nytimes.com/athletic/6598115/2025/09/04/fantasy-football-week-1-key-questions-chiefs-deep-ball/
 

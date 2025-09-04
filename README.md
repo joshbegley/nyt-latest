@@ -1,3 +1,11 @@
+**Justice Dept. Opens Criminal Inquiry Into Lisa Cook, Elevating Trump’s Claims**\
+`The move was instigated by Ed Martin, a Trump loyalist who has said it is legitimate for officials to publicly air criminal investigations into people targeted by the president.`\
+https://nytimes.com/2025/09/04/us/politics/lisa-cook-trump-fed-governor-justice-dept.html
+
+**Epstein’s Victims Won’t Let Trump Push Their Story Aside**\
+`Trump’s recalcitrance isn’t enough to shatter his coalition, but it has created at least a few fissures.`\
+https://nytimes.com/2025/09/04/opinion/epstein-files-victims-trump.html
+
 **Tottenham executive chairman Levy leaves club after 24 years**\
 `Levy’s responsibilities will be taken over by Peter Charrington who has been appointed to the newly-created role of non-executive chairman.`\
 https://nytimes.com/athletic/6598456/2025/09/04/tottenham-news-levy-step-down-chairman/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/09/04/world/asia/punjab-india-floods-crops.html
 **Mets to call up pitching prospect Brandon Sproat for MLB debut: Source**\
 `The right-hander is slated to pitch Sunday as the the Mets continue leaning on top pitching prospects to help during the stretch run.`\
 https://nytimes.com/athletic/6598364/2025/09/04/mets-prospect-brandon-sproat-mlb-debut/
-
-**6 Books We Loved This Week**\
-`Reading recommendations from critics and editors at The New York Times.`\
-https://nytimes.com/2025/09/04/books/review/6-books-we-loved-this-week.html
-
-**CAS rejects appeal to reinstate pro/rel to Liga MX**\
-`The appeal was filed by six second division Mexican clubs. Liga MX paused pro/rel in 2020 around the Covid-19 pandemic.`\
-https://nytimes.com/athletic/6598370/2025/09/04/liga-mx-promotion-relegation-cas/
 
