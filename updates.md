@@ -1,3 +1,11 @@
+**Better rookie season: Paige Bueckers or Caitlin Clark?**\
+`Buckers' standout season is among the best rookie campaigns ever. But the Wings failed to qualify for the playoffs. `\
+https://nytimes.com/athletic/6597163/2025/09/04/better-rookie-season-paige-bueckers-or-caitlin-clark/
+
+**Wall Street’s Bet Against the Trump Tariffs**\
+`Investors are offering to buy importers’ rights to any refunds of the administration’s levies. It’s a longshot wager that courts will overturn the tariffs.`\
+https://nytimes.com/2025/09/04/business/dealbook/wall-street-trump-tariffs.html
+
 **Portugal Mourns Dead in Lisbon Funicular Crash**\
 `Emergency crews worked on Thursday at the site of a funicular crash in Lisbon that killed at least 17 people the evening before. The cause was still being investigated.`\
 https://nytimes.com/video/world/europe/100000010377961/portugal-mourns-lisbon-funicular-crash.html
