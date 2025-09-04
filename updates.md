@@ -1,3 +1,11 @@
+**Alabama DT Jeremiah Beaman likely out for season, Kalen DeBoer says**\
+`Beaman sustained a lower-body injury at Wednesday's practice.`\
+https://nytimes.com/athletic/6596592/2025/09/03/alabama-jeremiah-beaman-injury-status/
+
+**Mason Miller throws immaculate inning as Padres' comeback attempt falls short in sweep**\
+`Miller was perfect, but only after Nestor Cortes frustrated Padres fans: “I would have booed myself too if I was watching this game.” `\
+https://nytimes.com/athletic/6596184/2025/09/03/padres-immaculate-inning-mason-miller/
+
 **NBA All-Star Game likely to have U.S. vs. World format in 2026: Reports**\
 `The new format would feature a round-robin tournament with two teams of U.S. players and one of international players.`\
 https://nytimes.com/athletic/6596517/2025/09/03/nba-all-star-game-new-format-2026/

@@ -1,3 +1,11 @@
+**Alabama DT Jeremiah Beaman likely out for season, Kalen DeBoer says**\
+`Beaman sustained a lower-body injury at Wednesday's practice.`\
+https://nytimes.com/athletic/6596592/2025/09/03/alabama-jeremiah-beaman-injury-status/
+
+**Mason Miller throws immaculate inning as Padres' comeback attempt falls short in sweep**\
+`Miller was perfect, but only after Nestor Cortes frustrated Padres fans: “I would have booed myself too if I was watching this game.” `\
+https://nytimes.com/athletic/6596184/2025/09/03/padres-immaculate-inning-mason-miller/
+
 **NBA All-Star Game likely to have U.S. vs. World format in 2026: Reports**\
 `The new format would feature a round-robin tournament with two teams of U.S. players and one of international players.`\
 https://nytimes.com/athletic/6596517/2025/09/03/nba-all-star-game-new-format-2026/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6596568/2025/09/03/chicago-white-sox-vs-minnesota-t
 **How to watch Phillies at Brewers: Time, TV, streaming**\
 `Find out how to watch the Philadelphia Phillies play the Milwaukee Brewers, with time, TV channel, and streaming information.`\
 https://nytimes.com/athletic/6596567/2025/09/03/philadelphia-phillies-vs-milwaukee-brewers-stream-how-to-watch-sept-4/
-
-**ICE Opens Immigrant Detention Center in Notorious Louisiana Prison**\
-`Critics are questioning the decision to hold immigrants at the maximum-security facility known as Angola, which has a troubled history.`\
-https://nytimes.com/2025/09/03/us/ice-detention-center-angola-louisiana.html
-
-**Is This the Most Luxurious Influencer Wedding Yet?**\
-`With her viral lead-up videos, the RichTok star Becca Bloom turned her Lake Como wedding into a must-see event for millions.`\
-https://nytimes.com/2025/09/03/fashion/weddings/becca-bloom-wedding.html
 
