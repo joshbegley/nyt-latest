@@ -1,8 +1,12 @@
+**Blue Jays takeaways: Biggest series, George Springer’s ascension and bullpen struggles**\
+`The Blue Jays rallied past the Reds and now head to New York for a pivotal series against the Yankees. `\
+https://nytimes.com/athletic/6596790/2025/09/03/blue-jays-george-springer-yankees-series/
+
 **Pete Crow-Armstrong sits as Cubs hope physical, mental reset will get him back on track**\
 `Kyle Tucker's time off worked out so well for him that Craig Counsell is trying the same for Crow-Armstrong.`\
 https://nytimes.com/athletic/6596548/2025/09/03/cubs-pete-crow-armstrong-sits/
 
-**Man from Russia Identified as Festival-Goer Found Dead at Burning Man**\
+**Man From Russia Identified as Festival-Goer Found Dead at Burning Man**\
 `The man, Vadim Kruglov, 37, was found “lying in a pool of blood,” the authorities said. Officials are investigating his death as a possible homicide.`\
 https://nytimes.com/2025/09/03/us/burning-man-festival-death-russia.html
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6596592/2025/09/03/alabama-jeremiah-beaman-injury-s
 **Mason Miller throws immaculate inning as Padres' comeback attempt falls short in sweep**\
 `Miller was perfect, but only after Nestor Cortes frustrated Padres fans: “I would have booed myself too if I was watching this game.” `\
 https://nytimes.com/athletic/6596184/2025/09/03/padres-immaculate-inning-mason-miller/
-
-**NBA All-Star Game likely to have U.S. vs. World format in 2026: Reports**\
-`The new format would feature a round-robin tournament with two teams of U.S. players and one of international players.`\
-https://nytimes.com/athletic/6596517/2025/09/03/nba-all-star-game-new-format-2026/
 

@@ -1,3 +1,11 @@
+**Pete Crow-Armstrong sits as Cubs hope physical, mental reset will get him back on track**\
+`Kyle Tucker's time off worked out so well for him that Craig Counsell is trying the same for Crow-Armstrong.`\
+https://nytimes.com/athletic/6596548/2025/09/03/cubs-pete-crow-armstrong-sits/
+
+**Man from Russia Identified as Festival-Goer Found Dead at Burning Man**\
+`The man, Vadim Kruglov, 37, was found “lying in a pool of blood,” the authorities said. Officials are investigating his death as a possible homicide.`\
+https://nytimes.com/2025/09/03/us/burning-man-festival-death-russia.html
+
 **49ers, WR Jauan Jennings agree to contract adjustment: Source**\
 `Jennings missed most of training camp and all of the preseason with a calf injury.`\
 https://nytimes.com/athletic/6582188/2025/09/03/jauan-jennings-contract-49ers-deal/
