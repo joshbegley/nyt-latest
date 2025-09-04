@@ -1,3 +1,7 @@
+**Detainee Dies at Rikers, the Fifth Fatality in 2 Weeks in N.Y.C. Lockups**\
+`The authorities said the man had a seizure. The previous death, of a pedicab driver held in a precinct cell, has been ruled a suicide.`\
+https://nytimes.com/2025/09/04/nyregion/rikers-detainee-death.html
+
 **Why Netflix's next huge event in live sports includes Sinner, Alcaraz, Djokovic**\
 `With Grand Slam tennis TV rights locked up for years, Netflix finds a high-profile exhibition to fuel its ambitions in live sports.`\
 https://nytimes.com/athletic/6598426/2025/09/04/netflix-6-kings-slam-janik-sinner/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6598456/2025/09/04/tottenham-news-levy-step-down-ch
 **Northwestern’s President Will Resign After University Faced Republican Pressure**\
 `The president, Michael Schill, will step down after months of turbulence, including Trump administration cuts of $790 million to the university’s research funds.`\
 https://nytimes.com/2025/09/04/us/northwestern-president-resigns.html
-
-**After Afghan Quake, Many Male Rescuers Aided Men but Not Women**\
-`A prohibition on contact between unrelated women and men meant many women’s wounds went untended and some were left trapped under rubble after a deadly earthquake, witnesses said.`\
-https://nytimes.com/2025/09/04/world/asia/afghanistan-earthquake-rescue-efforts-women.html
 
