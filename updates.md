@@ -1,3 +1,16 @@
+**A Small but Telling Moment in Kennedy’s Hearing**\
+`Unlike his combative exchanges with senators about vaccines, Robert F. Kennedy Jr. was conciliatory and accommodating about agriculture interests.`\
+https://nytimes.com/2025/09/04/opinion/robert-f-kennedy-maha-food-vaccines.html
+
+**Quakes on Mars Reveal New Features of the Planet’s Interior**\
+`Using data from NASA’s retired InSight lander, two separate teams of researchers found evidence of a sluggish Martian mantle and a solid inner core.`\
+https://nytimes.com/2025/09/04/science/astronomy-geology-mars-quakes.html
+
+**Oversight committee approves single January transfer portal window for football**\
+`The NCAA’s administrative committee must still support the change.
+`\
+https://nytimes.com/athletic/6598832/2025/09/04/ncaa-football-transfer-portal-window-january/
+
 **Oversight committee approves single January transfer portal window for football**\
 `The NCAA’s administrative committee must still support the change.
 `\
