@@ -3,6 +3,11 @@
 `\
 https://nytimes.com/athletic/6598832/2025/09/04/ncaa-football-transfer-portal-window-january/
 
+**Oversight committee approves single January transfer portal window for football**\
+`The NCAA’s administrative committee must still support the change.
+`\
+https://nytimes.com/athletic/6598832/2025/09/04/ncaa-football-transfer-portal-window-january/
+
 **Can You Ace Our Tennis Quiz?**\
 `Test your knowledge of the drama on these real and fictional courts.`\
 https://nytimes.com/interactive/2025/09/04/arts/tennis-quiz-us-open.html
