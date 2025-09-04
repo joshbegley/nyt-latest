@@ -1,3 +1,7 @@
+**NBA All-Star Game likely to have U.S. vs. World format in 2026: Reports**\
+`The new format would feature a round-robin tournament with two teams of U.S. players and one of international players.`\
+https://nytimes.com/athletic/6596517/2025/09/03/nba-all-star-game-new-format-2026/
+
 **What to Know About China’s Military Parade**\
 `At a large Chinese military parade to commemorate the end of World War II, President Xi Jinping welcomed authoritarian leaders and debuted China’s newest weaponry. David Pierson, a foreign correspondent at The New York Times, explains what this means for the United States and the world.`\
 https://nytimes.com/video/world/asia/100000010372402/what-to-know-about-chinas-military-parade.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/03/us/ice-detention-center-angola-louisiana.html
 **Is This the Most Luxurious Influencer Wedding Yet?**\
 `With her viral lead-up videos, the RichTok star Becca Bloom turned her Lake Como wedding into a must-see event for millions.`\
 https://nytimes.com/2025/09/03/fashion/weddings/becca-bloom-wedding.html
-
-**Seattle Police Conclude 13 Years of Federal Oversight**\
-`A federal judge ended the monitoring imposed after allegations of excessive force and racial bias. The city pointed to progress in improving officer accountability and training.`\
-https://nytimes.com/2025/09/03/us/seattle-police-consent-decree.html
 
