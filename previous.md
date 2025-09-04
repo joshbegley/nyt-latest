@@ -1,3 +1,7 @@
+**Porsche Is No Longer a Blue-Chip Company in Germany**\
+`The German carmaker will soon no longer be listed on the leading DAX stock index three years after it made a blockbuster debut, amid losses in China and the threat of U.S. tariffs.`\
+https://nytimes.com/2025/09/04/business/porsche-stock-tariffs-trump.html
+
 **Giorgio Armani’s Life in Photos**\
 `One of the most prolific fashion designers in history, he turned a certain kind of Italian chic into an international phenomenon.`\
 https://nytimes.com/2025/09/04/style/giorgio-armani-photos.html
@@ -29,8 +33,4 @@ https://nytimes.com/2025/09/04/arts/television/snl-new-cast-members-clips.html
 **Willian agrees deal with Gremio after Fulham exit**\
 `The 36-year-old had rejoined Fulham at the end of the January transfer window, just six months after leaving Craven Cottage.`\
 https://nytimes.com/athletic/6317475/2025/09/04/willian-gremio-transfer-fulham/
-
-**Here’s the latest.**\
-`By Sheryl Gay Stolberg`\
-https://nytimes.com/live/2025/09/04/us/rfk-jr-senate-hearing-health/heres-the-latest
 

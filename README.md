@@ -1,3 +1,7 @@
+**Ali police investigation dropped after arrest for alleged rape**\
+`The 24-year-old was arrested and released under police investigation after an alleged rape incident.`\
+https://nytimes.com/athletic/6597872/2025/09/04/haider-ali-pakistan-cricket-investigation-arrest/
+
 **Porsche Is No Longer a Blue-Chip Company in Germany**\
 `The German carmaker will soon no longer be listed on the leading DAX stock index three years after it made a blockbuster debut, amid losses in China and the threat of U.S. tariffs.`\
 https://nytimes.com/2025/09/04/business/porsche-stock-tariffs-trump.html
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6597908/2025/09/04/dallas-cowboys-vs-philadelphia-e
 **Meet the New ‘S.N.L.’ Cast Members**\
 `Please Don’t Destroy will stop making videos for the show as Ben Marshall joins the cast. Watch clips of him and the other new additions.`\
 https://nytimes.com/2025/09/04/arts/television/snl-new-cast-members-clips.html
-
-**Willian agrees deal with Gremio after Fulham exit**\
-`The 36-year-old had rejoined Fulham at the end of the January transfer window, just six months after leaving Craven Cottage.`\
-https://nytimes.com/athletic/6317475/2025/09/04/willian-gremio-transfer-fulham/
 
