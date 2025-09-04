@@ -1,3 +1,15 @@
+**Giorgio Armani Gave Men Permission to Feel Fashionable**\
+`Fred Pressman respected no brand as much as the ultimate brand: quality. And that, Giorgio delivered in spades.`\
+https://nytimes.com/2025/09/04/opinion/giorgio-armani-dead-fashion-barneys.html
+
+**PBS to Cut 15% of Its Staff**\
+`Congress voted this year to strip $500 million in annual funding from public broadcasters, including PBS stations.`\
+https://nytimes.com/2025/09/04/business/media/pbs-job-cuts.html
+
+**Why a sports betting company sponsored trains for Eagles' home opener**\
+`FanDuel will spend up to $80,000 to restore game-day service and make train fares free for fans traveling home from Lincoln Financial Field.`\
+https://nytimes.com/athletic/6598106/2025/09/04/fanduel-eagles-cowboys-trains-septa/
+
 **Independent regulator reveals plan for tougher 'fit and proper person' test**\
 `The test will assess the “honest, integrity and financial soundness” of those who run clubs in the top five men’s leagues`\
 https://nytimes.com/athletic/6599626/2025/09/04/independent-regulator-plans-fit-proper-test/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/09/04/us/politics/trump-ftc-slaughter-supreme-court.htm
 **Senators Grilled R.F.K. Jr. On Vaccines**\
 `Plus, the life of Giorgio Armani. Here’s the latest at the end of Thursday.`\
 https://nytimes.com/2025/09/04/briefing/senators-grilled-rfk-jr-on-vaccines.html
-
-**Woman, 72, Dies in Fire in East Harlem Apartment Building**\
-`Firefighters took the stairs to reach the woman’s 19th-floor apartment on Wednesday. Residents said one of the building’s two elevators wasn’t working and that the other moved very slowly.`\
-https://nytimes.com/2025/09/04/nyregion/east-harlem-apartment-fire-death.html
-
-**Adams Considers Dropping Out of Race After Secret Meeting in Florida**\
-`Mayor Eric Adams of New York City has told confidants that he would consider abandoning his re-election bid, despite his public denials.`\
-https://nytimes.com/2025/09/04/nyregion/adams-trump-job-quits.html
-
-**Joshua Abram Dies at 62; Gave Workspace-Sharing an Upscale Spin**\
-`He and a partner made their co-working locations feel like private clubs. Among his other ventures, he sought to slash the cost of in vitro fertilization by using robotics and A.I.`\
-https://nytimes.com/2025/09/04/business/joshua-abram-dead.html
 
