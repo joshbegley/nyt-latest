@@ -1,3 +1,11 @@
+**Blue Jays takeaways: Biggest series, George Springer’s ascension and bullpen struggles**\
+`The Blue Jays rallied past the Reds and now head to New York for a pivotal series against the Yankees. `\
+https://nytimes.com/athletic/6596790/2025/09/03/blue-jays-george-springer-yankees-series/
+
+**Man From Russia Identified as Festival-Goer Found Dead at Burning Man**\
+`The man, Vadim Kruglov, 37, was found “lying in a pool of blood,” the authorities said. Officials are investigating his death as a possible homicide.`\
+https://nytimes.com/2025/09/03/us/burning-man-festival-death-russia.html
+
 **Pete Crow-Armstrong sits as Cubs hope physical, mental reset will get him back on track**\
 `Kyle Tucker's time off worked out so well for him that Craig Counsell is trying the same for Crow-Armstrong.`\
 https://nytimes.com/athletic/6596548/2025/09/03/cubs-pete-crow-armstrong-sits/
