@@ -1,3 +1,7 @@
+**ICE Opens Immigrant Detention Center in Notorious Louisiana Prison**\
+`Critics are questioning the decision to hold immigrants at the maximum-security facility known as Angola, which has a troubled history.`\
+https://nytimes.com/2025/09/03/us/ice-opens-immigrant-detention-center-in-notorious-louisiana-prison.html
+
 **Is This the Most Luxurious Influencer Wedding Yet?**\
 `With her viral lead-up videos, the RichTok star Becca Bloom turned her Lake Como wedding into a must-see event for millions.`\
 https://nytimes.com/2025/09/03/fashion/weddings/becca-bloom-wedding.html
