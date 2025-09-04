@@ -1,3 +1,7 @@
+**Steve Hayden, Writer Behind Apple’s ‘1984’ Commercial, Dies at 78**\
+`The ad for the Macintosh computer — which ran just once, during the Super Bowl — is considered one of the most memorable commercials ever made.`\
+https://nytimes.com/2025/09/04/business/media/steve-hayden-dead.html
+
 **Humans Are Altering the Seas. Here’s What the Future Ocean Might Look Like.**\
 `Some marine ecosystems could soon be unrecognizable, according to new research. We mapped the possibilities.`\
 https://nytimes.com/interactive/2025/09/04/climate/ocean-water-temperatures-sea-levels.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6598271/2025/09/04/joey-oakie-kiefer-lord-aroon-esc
 **NFL Week 1 best bets: Fading Matthew Stafford due to injury plus some early unders**\
 `Austin Mock has four bets for the first week of the NFL season, including a play on the Houston Texans at the LA Rams.`\
 https://nytimes.com/athletic/6598391/2025/09/04/nfl-best-bets-week-1-bengals-texans-giants/
-
-**Fantasy baseball bullpen report featuring Cole Sands, JoJo Romero and injury news**\
-`Greg Jewett gives fantasy managers still in contention a leg up on the competition with his report on saves, holds and SOLDS leaders. `\
-https://nytimes.com/athletic/6598037/2025/09/04/fantasy-baseball-bullpen-report-sands-romero/
 
