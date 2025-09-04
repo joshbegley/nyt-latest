@@ -1,3 +1,7 @@
+**Astros 'get past' their cross-up controversy with a satisfying win**\
+`The Astros distanced themselves from a difficult Tuesday with an 8-7 victory over the New York Yankees on Wednesday.`\
+https://nytimes.com/athletic/6597145/2025/09/04/astros-win-yankees-cross-up-cesar-salazar/
+
 **Texas Senate Passes Bill to Crack Down on Mail-Order Abortion Pills**\
 `Gov. Greg Abbott is expected to sign the legislation, which allows nearly anyone to sue abortion medication providers and distributors.`\
 https://nytimes.com/2025/09/04/us/politics/texas-senate-abortion-pills-bill.html
