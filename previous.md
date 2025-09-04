@@ -1,4 +1,4 @@
-**Cam Thomas signs 1-year qualifying offer to return to Nets: Source**\
+**Cam Thomas signs 1-year qualifying offer to return to Nets: Sources**\
 `The decision ends the prolonged standoff between the high-scoring 23-year-old guard and the Brooklyn Nets. `\
 https://nytimes.com/athletic/6540392/2025/09/04/cam-thomas-nets-contract-nba/
 
@@ -19,7 +19,7 @@ https://nytimes.com/2025/09/04/arts/music/morrissey-the-smiths-sale.html
 https://nytimes.com/athletic/6597102/2025/09/04/canucks-thatcher-demko-defence-goalies/
 
 **U.S. Imports Rose in July Following Months of Trade Turmoil**\
-`Data released Thursday morning showed trade rebounding slightly after President Trump’s sweeping global tariffs discouraged foreign countries from doing business with the United States.`\
+`Trade rebounded slightly after President Trump’s sweeping global tariffs discouraged foreign countries from doing business with the United States, data released Thursday showed.`\
 https://nytimes.com/2025/09/04/business/economy/us-trade-imports-tariffs.html
 
 **How to watch the Green Bay Packers in 2025: Schedule and streaming info for Cheeseheads**\
