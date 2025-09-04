@@ -1,3 +1,19 @@
+**Celebrities Love the U.S. Open. She Decides Who Gets In.**\
+`Every year, Amanda Wight makes sure that a steady stream of A-listers get to see the world’s best tennis players — and be seen by millions on TV.`\
+https://nytimes.com/2025/09/04/nyregion/us-open-celebrities.html
+
+**In Class**\
+`What do you think this image is communicating?`\
+https://nytimes.com/2025/09/04/learning/in-class.html
+
+**As Starbucks Slumps, a Chinese Coffee Giant Sees an Opening in New York**\
+`Luckin Coffee, a dominant chain from China, arrived in the city in June vowing to inject “new vitality” into American coffee culture.`\
+https://nytimes.com/2025/09/04/nyregion/luckin-coffee-nyc-starbucks.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/09/04/crosswords/spelling-bee-forum.html
+
 **Suntory Boss Who Resigned Said He Took CBD Supplements for Jet Lag**\
 `Takeshi Niinami said he never used the products in Japan, where officials are investigating whether they are banned under the country’s strict drug laws.`\
 https://nytimes.com/2025/09/04/business/suntory-takeshi-niinami-jetlag-cbd.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6597145/2025/09/04/astros-win-yankees-cross-up-cesa
 **Texas Senate Passes Bill to Crack Down on Mail-Order Abortion Pills**\
 `Gov. Greg Abbott is expected to sign the legislation, which allows nearly anyone to sue abortion medication providers and distributors.`\
 https://nytimes.com/2025/09/04/us/politics/texas-senate-abortion-pills-bill.html
-
-**What We Know About the Funicular Crash in Lisbon**\
-`At least 15 people were killed after the Glória funicular, one of the city’s most popular tourist attractions, derailed and crashed.`\
-https://nytimes.com/2025/09/04/world/europe/lisbon-funicular-crash-gloria.html
-
-**The New York Times in Print for Thursday, Sep. 4, 2025**\
-``\
-https://nytimes.com/issue/todayspaper/2025/09/04/todays-new-york-times
-
-**The War in Ukraine Has a Shocking New Weapon**\
-`Teenagers are being recruited for one-off covert attacks behind enemy lines.`\
-https://nytimes.com/2025/09/04/opinion/russia-ukraine-sabotage-teens.html
-
-**China’s Show of Military Might**\
-`Xi Jinping’s huge military parade in Tiananmen Square provided a rare look at China’s new weapons.`\
-https://nytimes.com/2025/09/04/briefing/china-military-protugal-funicular-crash.html
 
