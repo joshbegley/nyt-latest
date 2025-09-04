@@ -1,3 +1,11 @@
+**'Ridiculous': Devin Williams, Yankees rip umpire after meltdown loss to Astros**\
+`If the Yankees’ collapse in a wild 8-7 loss wasn’t their worst loss of the season, it seemed their most bitter.`\
+https://nytimes.com/athletic/6597164/2025/09/04/yankees-devin-williams-rip-umpire-astros/
+
+**Word of the Day: verbose**\
+`This word has appeared in 24 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2025/09/04/learning/word-of-the-day-verbose.html
+
 **Astros 'get past' their cross-up controversy with a satisfying win**\
 `The Astros distanced themselves from a difficult Tuesday with an 8-7 victory over the New York Yankees on Wednesday.`\
 https://nytimes.com/athletic/6597145/2025/09/04/astros-win-yankees-cross-up-cesar-salazar/
