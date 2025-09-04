@@ -1,3 +1,15 @@
+**Rubio Says U.S. Will Work With Other Nations to ‘Blow Up’ Crime Groups**\
+`The Trump administration aims to carry out more violent strikes against drug cartels, Secretary of State Marco Rubio said as he met with Ecuador’s president.`\
+https://nytimes.com/2025/09/04/world/americas/rubio-ecuador-crime-groups-boat-strike.html
+
+**Giorgio Armani Dies at 91**\
+`Giorgio Armani built a luxury fashion empire and made his name all but synonymous with red-carpet dressing. Armani died at his home in Milan. He was 91.`\
+https://nytimes.com/video/obituaries/100000010378804/giorgio-armani-dead.html
+
+**Members of Congress Grasp for a Stopgap Deal to Avert a Shutdown**\
+`Republicans and Democrats agree they will need a temporary measure to fund the government past Sept. 30, but have yet to come to terms on what it should look like.`\
+https://nytimes.com/2025/09/04/us/politics/congress-stopgap-deal-shutdown.html
+
 **Ebola Outbreak Is Declared in Province of Congo**\
 `Health officials have recorded 28 suspected cases and 15 fatalities so far in the latest outbreak of the deadly virus, which has claimed thousands of lives in previous outbreaks in the Central African country.`\
 https://nytimes.com/2025/09/04/world/africa/congo-ebola-outbreak.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6598440/2025/09/04/sf-giants-playoff-chances/
 **Justice Dept. Accuses California Utility of Negligence in Deadly Eaton Fire**\
 `Federal prosecutors say the January blaze that swept through Altadena, as well as another fire in 2022, were sparked by faulty equipment.`\
 https://nytimes.com/2025/09/04/us/eaton-fire-altadena-lawsuit.html
-
-**Chat! I Finally Clocked Why Biggie Ate That Meme.**\
-`Here’s what I did on my summer vacation`\
-https://nytimes.com/2025/09/04/opinion/chat-i-finally-clocked-why-biggie-ate-that-meme.html
-
-**What’s Going On in This Picture? | Sept. 8, 2025**\
-`Look closely at this image, stripped of its caption, and join the moderated conversation about what you and other students see.`\
-https://nytimes.com/2025/09/04/learning/whats-going-on-in-this-picture-sept-8-2025.html
-
-**What’s Going On in This Graph? | Sept. 10, 2025**\
-`This graph tells a story about butterfly populations over time. What is happening, and why?`\
-https://nytimes.com/2025/09/04/learning/whats-going-on-in-this-graph-sept-10-2025.html
 
