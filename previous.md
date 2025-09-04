@@ -1,3 +1,27 @@
+**Deadly Floods Inundate Northern India**\
+`Heavy rains, flash-floods and cloudbursts have battered much of Northern India in recent weeks, killings hundreds of people and displacing more than a million.`\
+https://nytimes.com/video/world/asia/100000010379618/floods-northern-india.html
+
+**Chargers are home team in Brazil but Chiefs colors will be in one end zone**\
+`Since 2019, home teams in NFL international games have traditionally had their logo and colors in both end zones.`\
+https://nytimes.com/athletic/6599185/2025/09/04/chargers-chiefs-brazil-end-zone-colors/
+
+**College Board Cancels Tool for Finding Low-Income High Achievers**\
+`After the Trump administration criticized the use of what it called “racial proxies,” the group behind the SAT shut down a way for universities to identify promising applicants from disadvantaged communities.`\
+https://nytimes.com/2025/09/04/us/college-board-diversity-landscape.html
+
+**Former F.B.I. Spy Hunter Compromised China Inquiry, Watchdog Says**\
+`The Justice Department’s inspector general disclosed new details about the extent of misconduct by a top F.B.I. counterintelligence official, Charles McGonigal.`\
+https://nytimes.com/2025/09/04/us/politics/fbi-spy-biden-watchdog.html
+
+**Boeing Plans to Hire Replacements for Striking Workers**\
+`About 3,200 workers at three St. Louis-area plants where Boeing makes military hardware have been on strike since Aug. 4.`\
+https://nytimes.com/2025/09/04/business/boeing-strike-union-st-louis.html
+
+**Björn Borg reveals he has been living with prostate cancer**\
+`The 11-time Grand Slam champion revealed he had surgery a couple of years ago "because the cancer turned out to be extremely aggressive."`\
+https://nytimes.com/athletic/6598747/2025/09/04/bjorn-borg-prostate-cancer/
+
 **Appeals Court Says ‘Alligator Alcatraz’ Detention Center Can Stay Open**\
 `The court paused a federal judge’s ruling that no additional detainees could be sent to the center, and that much of it had to be dismantled within 60 days.`\
 https://nytimes.com/2025/09/04/us/alligator-alcatraz-florida-appeals.html
@@ -13,29 +37,4 @@ https://nytimes.com/2025/09/04/climate/the-climate-forward-conference-is-coming-
 **A Small but Telling Moment in Kennedy’s Hearing**\
 `Unlike his combative exchanges with senators about vaccines, Robert F. Kennedy Jr. was conciliatory and accommodating about agriculture interests.`\
 https://nytimes.com/2025/09/04/opinion/robert-f-kennedy-maha-food-vaccines.html
-
-**Quakes on Mars Reveal New Features of the Planet’s Interior**\
-`Using data from NASA’s retired InSight lander, two separate teams of researchers found evidence of a sluggish Martian mantle and a solid inner core.`\
-https://nytimes.com/2025/09/04/science/astronomy-geology-mars-quakes.html
-
-**Can You Ace Our Tennis Quiz?**\
-`Test your knowledge of the drama on these real and fictional courts.`\
-https://nytimes.com/interactive/2025/09/04/arts/tennis-quiz-us-open.html
-
-**G.O.P. Senators Sharply Question Kennedy on Vaccines**\
-`At a contentious hearing with Robert F. Kennedy Jr., the health secretary, Republicans who voted to confirm him were among his critics.`\
-https://nytimes.com/2025/09/04/us/politics/republicans-kennedy-vaccines.html
-
-**‘The Paper’ Is Hollywood’s Latest Take on Journalism**\
-`Sometimes, journalists are heroes onscreen. Other times, they can’t help but fall in love.`\
-https://nytimes.com/2025/09/04/arts/the-paper-journalism-tv-shows-movies.html
-
-**Oversight committee approves single January transfer portal window for football**\
-`The NCAA’s administrative committee must still support the change.
-`\
-https://nytimes.com/athletic/6598832/2025/09/04/ncaa-football-transfer-portal-window-january/
-
-**Harvard Won Its Money Back, but Will It Actually Get It?**\
-`A judge ruled that the Trump administration broke the law in canceling billions in federal funds for Harvard. Whether the money is returned matters for the rest of higher education.`\
-https://nytimes.com/2025/09/04/us/harvard-federal-funds-court-victory-trump-administration.html
 
