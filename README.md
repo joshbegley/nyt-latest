@@ -1,3 +1,7 @@
+**Late Night Thinks Trump Has a Case of Parade Envy**\
+`“It sounds like somebody’s bummed he wasn’t invited to the supervillain sleepover,” Jimmy Kimmel said of the president’s reaction to China’s big military parade.`\
+https://nytimes.com/2025/09/04/arts/television/late-night-trump-china-parade.html
+
 **U.S. Defends Boat Strike**\
 `Secretary of State Marco Rubio said military operations against Venezuelan cartels would continue.`\
 https://nytimes.com/video/world/americas/100000010377732/venezuela-drug-boat-trump-us.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6569609/2025/09/04/liverpool-academy-revamp/
 **'Ridiculous': Devin Williams, Yankees rip umpire after meltdown loss to Astros**\
 `If the Yankees’ collapse in a wild 8-7 loss wasn’t their worst loss of the season, it seemed their most bitter.`\
 https://nytimes.com/athletic/6597164/2025/09/04/yankees-devin-williams-rip-umpire-astros/
-
-**Word of the Day: verbose**\
-`This word has appeared in 24 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2025/09/04/learning/word-of-the-day-verbose.html
 
