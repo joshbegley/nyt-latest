@@ -1,3 +1,7 @@
+**Portugal Mourns After Deadly Funicular Crash and Looks for Its Cause**\
+`The authorities are investigating an accident that killed 17 people and working to identify victims, which they said included Portuguese and foreigners.`\
+https://nytimes.com/2025/09/04/world/europe/lisbon-funicular-crash-elevador-da-gloria-portugal.html
+
 **Late Night Thinks Trump Has a Case of Parade Envy**\
 `“It sounds like somebody’s bummed he wasn’t invited to the supervillain sleepover,” Jimmy Kimmel said of the president’s reaction to China’s big military parade.`\
 https://nytimes.com/2025/09/04/arts/television/late-night-trump-china-parade.html
