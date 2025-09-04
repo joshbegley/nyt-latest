@@ -1,3 +1,11 @@
+**How to watch Nationals at Cubs: Time, TV, streaming for September 5**\
+`Find out how to watch the Washington Nationals play the Chicago Cubs, with time, TV channel, and streaming information.`\
+https://nytimes.com/athletic/6599289/2025/09/04/nationals-vs-cubs-stream-how-to-watch-sept-5/
+
+**Chargers are home team in Brazil, but Chiefs colors will be in one end zone**\
+`Since 2019, home teams in NFL international games have traditionally had their logos and colors in both end zones.`\
+https://nytimes.com/athletic/6599185/2025/09/04/chargers-chiefs-brazil-end-zone-colors/
+
 **Deadly Floods Inundate Northern India**\
 `Heavy rains, flash-floods and cloudbursts have battered much of Northern India in recent weeks, killings hundreds of people and displacing more than a million.`\
 https://nytimes.com/video/world/asia/100000010379618/floods-northern-india.html
