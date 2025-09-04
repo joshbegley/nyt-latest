@@ -1,3 +1,11 @@
+**The Pulse: The Kawhi Leonard investigation, explained**\
+`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/6595848/2025/09/04/kawhi-leonard-investigation-salary-cap-the-pulse/
+
+**How Did the Latchkey Kids of Gen X Become the Helicopter Parents of Gen Z?**\
+`There is a Goldilocks solution here.`\
+https://nytimes.com/2025/09/04/opinion/helicopter-parents-genx-genz.html
+
 **What I'm seeing from the Browns: An open-minded Joe Flacco, lack of depth at key spots**\
 `Also, kicker Andre Szmyt is making his NFL debut. And how will Dawand Jones and the offensive line hold up against the Bengals in Week 1? `\
 https://nytimes.com/athletic/6596310/2025/09/04/cleveland-browns-depth-joe-flacco/

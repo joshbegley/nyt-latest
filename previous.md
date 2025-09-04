@@ -1,3 +1,11 @@
+**The Pulse: The Kawhi Leonard investigation, explained**\
+`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/6595848/2025/09/04/kawhi-leonard-investigation-salary-cap-the-pulse/
+
+**How Did the Latchkey Kids of Gen X Become the Helicopter Parents of Gen Z?**\
+`There is a Goldilocks solution here.`\
+https://nytimes.com/2025/09/04/opinion/helicopter-parents-genx-genz.html
+
 **What I'm seeing from the Browns: An open-minded Joe Flacco, lack of depth at key spots**\
 `Also, kicker Andre Szmyt is making his NFL debut. And how will Dawand Jones and the offensive line hold up against the Bengals in Week 1? `\
 https://nytimes.com/athletic/6596310/2025/09/04/cleveland-browns-depth-joe-flacco/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6593313/2025/09/04/panthers-bryce-young-tetairoa-mc
 **What I’m seeing from the Vikings: How will J.J. McCarthy look in live action?**\
 `The 22-year-old quarterback had an up-and-down summer. Time will tell whether he can apply what he's learned to a regular-season game.`\
 https://nytimes.com/athletic/6595933/2025/09/04/minnesota-vikings-preview-jj-mccarthy-2025/
-
-**What I'm seeing from the Lions: Expectations remain high after 15-win season**\
-`What effect will the change in coordinators have? Could the Lions be flying under the radar a little?`\
-https://nytimes.com/athletic/6590492/2025/09/04/detroit-lions-preview-expectations-2025/
-
-**Canada's X-factor: At 38, Crosby remains the unmatched 'advantage' for Olympic hockey**\
-`Teammates and execs say Crosby is the one thing that separates Team Canada from the pack in best-on-best play.`\
-https://nytimes.com/athletic/6590934/2025/09/04/sidney-crosby-canada-olympic-hockey/
 

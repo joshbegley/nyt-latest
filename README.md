@@ -1,3 +1,7 @@
+**Why World Cup final tickets could cost $6,000. Plus: Hansi Flick blasts his Barca stars**\
+`Today in TAFC: Explaining dynamic pricing at the 2026 World Cup and why the FA was slammed in the 314-page Lucas Paqueta verdict`\
+https://nytimes.com/athletic/6597372/2025/09/04/the-athletic-fc-newsletter-world-cup-barcelona-paqueta/
+
 **The Pulse: The Kawhi Leonard investigation, explained**\
 `The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
 https://nytimes.com/athletic/6595848/2025/09/04/kawhi-leonard-investigation-salary-cap-the-pulse/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6596044/2025/09/04/celtics-anfernee-simons-offseaso
 **Cali connection: Bryce Young and Tetairoa McMillan aim to carry early bond to on-field success**\
 `Before the 2024 draft, Young and McMillan threw together at Golden West College. It left an impression on both — and now they're teammates.`\
 https://nytimes.com/athletic/6593313/2025/09/04/panthers-bryce-young-tetairoa-mcmillan/
-
-**What I’m seeing from the Vikings: How will J.J. McCarthy look in live action?**\
-`The 22-year-old quarterback had an up-and-down summer. Time will tell whether he can apply what he's learned to a regular-season game.`\
-https://nytimes.com/athletic/6595933/2025/09/04/minnesota-vikings-preview-jj-mccarthy-2025/
 
