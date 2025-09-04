@@ -1,3 +1,7 @@
+**Ali police investigation dropped after arrest for alleged rape**\
+`The 24-year-old was arrested and released under police investigation after an alleged rape incident.`\
+https://nytimes.com/athletic/6597872/2025/09/04/haider-ali-pakistan-cricket-investigation-arrest/
+
 **Porsche Is No Longer a Blue-Chip Company in Germany**\
 `The German carmaker will soon no longer be listed on the leading DAX stock index three years after it made a blockbuster debut, amid losses in China and the threat of U.S. tariffs.`\
 https://nytimes.com/2025/09/04/business/porsche-stock-tariffs-trump.html
