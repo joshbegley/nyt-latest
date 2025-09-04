@@ -1,3 +1,7 @@
+**What We Know About the Funicular Crash in Lisbon**\
+`At least 15 people were killed after the Glória funicular, one of the city’s most popular tourist attractions, derailed and crashed.`\
+https://nytimes.com/2025/09/04/world/europe/lisbon-funicular-crash-gloria.html
+
 **Revenge of the Six: How England's big beasts clawed back their transfer power**\
 `This was the transfer window which reaffirmed that Premier League financial power still lies with the 'Big Six' `\
 https://nytimes.com/athletic/6592119/2025/09/04/premier-league-transfer-window-big-six/

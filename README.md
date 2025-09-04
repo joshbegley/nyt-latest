@@ -1,3 +1,7 @@
+**Texas Senate Passes Bill to Crack Down on Mail-Order Abortion Pills**\
+`Gov. Greg Abbott is expected to sign the legislation, which allows nearly anyone to sue abortion medication providers and distributors.`\
+https://nytimes.com/2025/09/04/us/politics/texas-senate-abortion-pills-bill.html
+
 **What We Know About the Funicular Crash in Lisbon**\
 `At least 15 people were killed after the Glória funicular, one of the city’s most popular tourist attractions, derailed and crashed.`\
 https://nytimes.com/2025/09/04/world/europe/lisbon-funicular-crash-gloria.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6594179/2025/09/04/tottenham-left-wing-simons-johns
 **Enciso's departure is the right decision, for both him and Brighton**\
 `The Paraguayan showed flashes of brilliance but overall his time at the club was overshadowed by injury and off-field issues`\
 https://nytimes.com/athletic/6553080/2025/09/04/enciso-brighton-departure-right-decision/
-
-**Lucas Paqueta ruling explained: FA's poor use of data, Moyes vs analysts, Clattenburg's criticism**\
-`The written reasons why Paqueta was cleared of the FA’s four spot-fixing charges ran to 314 pages - we pick out the key bits`\
-https://nytimes.com/athletic/6595846/2025/09/04/lucas-paqueta-explained-betting-case/
 
