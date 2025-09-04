@@ -1,3 +1,7 @@
+**Merlin Rohl could offer the missing magic to Everton's midfield**\
+`While Rohl is unlikely to be a long-term Gueye replacement, with a bit of luck, he can bring a new dimension to Everton’s evolving squad`\
+https://nytimes.com/athletic/6594373/2025/09/04/merlin-rohl-everton-midfield/
+
 **The New York Times in Print for Thursday, Sep. 4, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/09/04/todays-new-york-times

@@ -30,11 +30,11 @@ https://nytimes.com/athletic/6594179/2025/09/04/tottenham-left-wing-simons-johns
 `The Paraguayan showed flashes of brilliance but overall his time at the club was overshadowed by injury and off-field issues`\
 https://nytimes.com/athletic/6553080/2025/09/04/enciso-brighton-departure-right-decision/
 
-**Livakovic on penalty shootouts: 'If you save the first, you look twice the size to opponents'**\
-`Croatia's goalkeeper is an expert at saving penalties. He explains how he does it to Nick Miller...`\
-https://nytimes.com/athletic/6592226/2025/09/04/dominik-livakovic-art-of-saving-penalties/
-
 **Lucas Paqueta ruling explained: FA's poor use of data, Moyes vs analysts, Clattenburg's criticism**\
 `The written reasons why Paqueta was cleared of the FA’s four spot-fixing charges ran to 314 pages - we pick out the key bits`\
 https://nytimes.com/athletic/6595846/2025/09/04/lucas-paqueta-explained-betting-case/
+
+**Revenge of the Six: How England's big beasts clawed back their transfer power**\
+`This was the transfer window which reaffirmed that Premier League financial power still lies with the 'Big Six' `\
+https://nytimes.com/athletic/6592119/2025/09/04/premier-league-transfer-window-big-six/
 
