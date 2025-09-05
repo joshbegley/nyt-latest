@@ -1,3 +1,7 @@
+**Sting Is Sued by His Former Bandmates in the Police**\
+`The band’s drummer and guitarist say the singer has underpaid them for the “digital exploitation” of songs like “Every Breath You Take.” Sting’s lawyers call the claim “illegitimate.”`\
+https://nytimes.com/2025/09/05/arts/music/sting-the-police-lawsuit-andy-summers-stewart-copeland.html
+
 **Oakland AIs? The Ballers will be first professional sports team managed by AI**\
 `On Saturday, the Oakland Ballers of the independent Pioneer League will be the first team to be managed in-game by artificial intelligence.`\
 https://nytimes.com/athletic/6599707/2025/09/05/artificial-intelligence-baseball-manager-oakland-ballers/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/05/nyregion/eric-adams-saudi-arabia-ambassador.html
 **'No animosity' towards Isak over Newcastle exit, says Burn**\
 `Isak refused to play for Newcastle from the beginning of pre-season as he sought a move away from St James' Park. `\
 https://nytimes.com/athletic/6601149/2025/09/05/dan-burn-alexander-isak-newcastle/
-
-**South Koreans Are Among Hundreds Detained in Immigration Raid at Hyundai E.V. Plant**\
-`Executives of a South Korean battery maker were apprehended at a construction site in Georgia, the company said. The episode prompted diplomatic concern in Seoul.`\
-https://nytimes.com/2025/09/05/us/georgia-battery-plant-hyundai-lg-ice-raid.html
 
