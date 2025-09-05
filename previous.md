@@ -1,3 +1,11 @@
+**PSG head coach Enrique to undergo surgery on fractured collarbone**\
+`Enrique has been at PSG since the summer of 2023 and led them to a Champions League win last season.`\
+https://nytimes.com/athletic/6602810/2025/09/05/luis-enrique-paris-saint-germain-surgery-bike-accident/
+
+**If NBA can prove Clippers evaded cap, Adam Silver should hammer them. But it may be tough**\
+`But Clippers owner Steve Ballmer and/or Kawhi Leonard might still have some explaining to do in the court of Silver.`\
+https://nytimes.com/athletic/6598891/2025/09/05/kawhi-leonard-clippers-salary-cap-adam-silver-nba/
+
 **Giorgio Armani’s Red Carpet Secret? Her Name Was Wanda.**\
 `Armani amassed a cavalcade of celebrity spokespeople. Many came through a former journalist named Wanda McDaniel.`\
 https://nytimes.com/2025/09/05/fashion/giorgio-armani-hollywood-wanda-mcdaniel.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/09/05/business/media/newsmax-fox-news-lawsuit.html
 **Packers 'most-bet Super Bowl winner' but Bengals, Burrow could slam sportsbooks**\
 `Bettors are all in on the NFL. Which team is everyone taking to win the Super Bowl, and are sportsbooks wary of any?`\
 https://nytimes.com/athletic/6599364/2025/09/05/lions-packers-bills-super-bowl-bets-burrow-mvp/
-
-**Man Charged in Connection With Fatal Shooting of Woman, 69, in Harlem**\
-`Faisil McCants, 18, was charged with armed robbery and the use of a machine gun in last week’s incident, which left Robin Wright, a bystander, dead.`\
-https://nytimes.com/2025/09/05/nyregion/harlem-nyc-shooting-woman-charges.html
-
-**Luis Suárez and Sergio Busquets suspended for Leagues Cup melee**\
-`Miami's clash with the Seattle Sounders turned ugly and led to repercussions.`\
-https://nytimes.com/athletic/6602744/2025/09/05/suarez-busquets-suspended-inter-miami-leagues-cup/
 
