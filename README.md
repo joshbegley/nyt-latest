@@ -1,3 +1,15 @@
+**What We Know About Trump’s Crime and Immigration Crackdown in U.S. Cities**\
+`The president has sent soldiers and federal agents to some cities, and promised to do the same in others, prompting lawsuits and stirring outrage among local leaders.`\
+https://nytimes.com/article/trump-national-guard-military-cities.html
+
+**After a Resignation in London, Farage Seeks to Capitalize on Labour’s Turmoil**\
+`Nigel Farage, the leader of the anti-immigration party Reform U.K., spoke to supporters just after news broke that the deputy prime minister had resigned.`\
+https://nytimes.com/2025/09/05/world/europe/nigel-farage-uk-rayner-politics.html
+
+**Pochettino 'in shock' over Levy's Tottenham departure**\
+`Pochettino said he and Levy shared a "very good" relationship during his five-year spell as head coach of the north London club.`\
+https://nytimes.com/athletic/6602113/2025/09/05/mauricio-pochettino-daniel-levy-tottenham-departure/
+
 **Trump’s Lethal Misuse of War Powers**\
 `Readers discuss President Trump’s claim that he has the right to conduct the extrajudicial killing of alleged drug dealers. Also: Crime trends.`\
 https://nytimes.com/2025/09/05/opinion/trump-war-powers.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6601574/2025/09/05/christian-gonzalez-injury-patrio
 **Trump Administration Threatens Abrego Garcia With Deportation to El Salvador**\
 `A court had ruled that Kilmar Armando Abrego Garcia could not be sent back to his homeland, but now the administration sees a legal loophole.`\
 https://nytimes.com/2025/09/05/us/politics/trump-deportations-abrego-garcia-el-salvador.html
-
-**BART Trains Shut Down for the Morning Commute in the Bay Area**\
-`Bay Area Rapid Transit suffered a systemwide outage for the second time in four months because of a computer problem.`\
-https://nytimes.com/2025/09/05/us/bart-transit-outage-bay-area.html
-
-**Art Seitz, Whose Camera Caught Tennis Greats On and Off the Court, Dies at 82**\
-`Over a 50-year career as a photographer he built friendships with rising stars and captured many of them in their personal environments.`\
-https://nytimes.com/2025/09/05/sports/tennis/art-seitz-dead.html
-
-**CBS Abruptly Changes Rules for Editing ‘Face the Nation’ Interviews**\
-`The change came less than a week after an interview aired with Kristi Noem, the homeland security secretary. The administration accused the network of deceptively editing her appearance.`\
-https://nytimes.com/2025/09/05/business/cbs-face-the-nation-editing-rules.html
 
