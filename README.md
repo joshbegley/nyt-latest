@@ -1,3 +1,15 @@
+**Live chat: Preview college football Week 2 with Ralph Russo**\
+`After a thrilling start to the 2025 college football season, what does Week 2 have in store?`\
+https://nytimes.com/athletic/6601347/2025/09/05/college-football-pregame-live-chat-week-2/
+
+**The Windup: Mets keep finding new arms**\
+`Welcome to The Windup, The Athletic's MLB newsletter.`\
+https://nytimes.com/athletic/6600759/2025/09/05/mets-starters-brandon-sproat-the-windup/
+
+**New Orleans Saints schedule 2025: TV, broadcast and streaming info for NOLA's new era**\
+`Amid streaming changes and new media deals, here's how to watch all 17 regular-season Saints games this season.`\
+https://nytimes.com/athletic/6584803/2025/09/05/new-orleans-saints-how-to-watch/
+
 **Sting Is Sued by His Former Bandmates in the Police**\
 `The band’s drummer and guitarist say the singer has underpaid them for the “digital exploitation” of songs like “Every Breath You Take.” Sting’s lawyers call the claim “illegitimate.”`\
 https://nytimes.com/2025/09/05/arts/music/sting-the-police-lawsuit-andy-summers-stewart-copeland.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/09/05/your-money/fafsa-student-financial-aid-form-filin
 **Americans’ Most Valuable Asset Isn’t Stocks or a Home. It’s Social Security.**\
 `For the vast majority of people, the stream of promised retirement checks is worth more than anything else, our columnist says.`\
 https://nytimes.com/2025/09/05/business/social-security-wealth-benefits.html
-
-**Jets fan survey results, Part 2: Predicting the 2025-26 season and beyond**\
-`The 2025-26 season is almost here. What do Jets fans think could — or should — be in store?`\
-https://nytimes.com/athletic/6595512/2025/09/05/jets-fan-survey-toews-nyquist-2025-26/
-
-**Talks Between Adams and Trump Adviser Center on Saudi Ambassadorship**\
-`The discussions are said to be part of an effort to get Mayor Eric Adams to end his mayoral campaign in New York City, clearing a path for Andrew Cuomo.`\
-https://nytimes.com/2025/09/05/nyregion/eric-adams-saudi-arabia-ambassador.html
-
-**'No animosity' towards Isak over Newcastle exit, says Burn**\
-`Isak refused to play for Newcastle from the beginning of pre-season as he sought a move away from St James' Park. `\
-https://nytimes.com/athletic/6601149/2025/09/05/dan-burn-alexander-isak-newcastle/
 
