@@ -1,3 +1,7 @@
+**Suspect in Macklemore Robbery Also Stole From Sports Stars, Prosecutors Say**\
+`Patrick Maisonet’s targets in the Seattle area included the baseball Hall of Famer Ichiro Suzuki and the former football star Richard Sherman, officials said.`\
+https://nytimes.com/2025/09/05/us/seattle-burglary-macklemore-ichiro-sherman.html
+
 **Steve Ballmer denies allegations of Kawhi Leonard, Clippers circumventing salary cap**\
 `The Clippers chairman said he did not know anything about Leonard's reported endorsement deal with Aspiration.`\
 https://nytimes.com/athletic/6600547/2025/09/05/steve-ballmer-kawhi-leonard-endorsement-deal-clippers/
