@@ -1,3 +1,7 @@
+**Mike Tyson, Floyd Mayweather agree to exhibition match in 2026**\
+`The date and location of the exhibition have not been decided.`\
+https://nytimes.com/athletic/6600163/2025/09/04/mike-tyson-floyd-mayweather-exhibition-fight/
+
 **The Perceptive Pulse of Patina**\
 `For art aficionados, design enthusiasts and music lovers, Patina Hotels & Resorts promises a sanctuary that sparks creativity and connection. `\
 https://nytimes.com/paidpost/patina-hotels-and-resorts/the-perceptive-pulse-of-patina.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/04/nyregion/covid-vaccine-hochul-new-york.html
 **Biden Has Surgery to Remove Skin Cancer**\
 `Three months earlier, former President Joseph R. Biden Jr. had a diagnosis of an aggressive form of prostate cancer.`\
 https://nytimes.com/2025/09/04/us/politics/biden-skin-cancer.html
-
-**With October drawing near, the Cubs need Seiya Suzuki back in his comfort zone**\
-`The best version of that Cubs team has Suzuki launching home runs and doing silly celebrations with Pete Crow-Armstrong in the dugout.`\
-https://nytimes.com/athletic/6599889/2025/09/04/chicago-cubs-seiya-suzuki-analysis/
 
