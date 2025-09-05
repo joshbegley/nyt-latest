@@ -1,3 +1,15 @@
+**Scoop City: Four key matchups to watch this weekend**\
+`A weekend watch guide and one costly mistake from the Cowboys defensive coordinator.`\
+https://nytimes.com/athletic/6602246/2025/09/05/four-key-nfl-matchups-week-1-watch-cowboys-eagles/
+
+**Joseph McNeil, Young Spark in a Civil Rights Battle, Dies at 83**\
+`He and his classmates from a historically Black college in Greensboro, N.C., desegregated a Woolworth’s lunch counter in 1960, inspiring similar protests across the nation.`\
+https://nytimes.com/2025/09/05/us/joseph-mcneil-dead.html
+
+**Young Armani Fans Mourn the Loss of Their Favorite Designer**\
+`The Italian designer Giorgio Armani found a thriving young Millennial and Gen Z fan base in recent years.`\
+https://nytimes.com/2025/09/05/style/giorgio-armani-young-fans.html
+
 **10 Novels We’re Looking Forward to This Fall**\
 `Watch for new books by Dan Brown, Thomas Pynchon, Mona Awad and more.`\
 https://nytimes.com/2025/09/05/books/review/10-novels-were-looking-forward-to-this-fall.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6601562/2025/09/05/caitlin-clark-cards-injury/
 **NFL's vow to emphasize sportsmanship was on display in Cowboys-Eagles opener**\
 `It didn’t take long for the NFL's new emphasis on sportsmanship to surface during the Eagles-Cowboys regular season opener.`\
 https://nytimes.com/athletic/6602123/2025/09/05/nfl-sportsmanship-emphasis-penalties/
-
-**How to Watch the Blood Moon and Total Lunar Eclipse**\
-`People in the Eastern Hemisphere may see Earth’s shadow pass over the lunar surface, covering our world’s natural satellite in a flush of red.`\
-https://nytimes.com/2025/09/05/science/blood-moon-total-lunar-eclipse-where-when.html
-
-**College football Week 2 projected scores: Model predicts every FBS vs. FBS game**\
-`Austin Mock's projection model has predicted margins of victory and point totals for every FBS vs. FBS Week 2 college football game.`\
-https://nytimes.com/athletic/6602179/2025/09/05/college-football-week-2-projected-scores-michigan-oklahoma/
-
-**What We Know About Trump’s Crime and Immigration Crackdown in U.S. Cities**\
-`The president has sent soldiers and federal agents to some cities, and promised to do the same in others, prompting lawsuits and stirring outrage among local leaders.`\
-https://nytimes.com/article/trump-national-guard-military-cities.html
 
