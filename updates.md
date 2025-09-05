@@ -1,3 +1,11 @@
+**49ers' Christian McCaffrey plans to play vs. Seahawks after calf injury scare**\
+`McCaffrey said he removed himself from Thursday's practice out of an abundance of caution.`\
+https://nytimes.com/athletic/6603024/2025/09/05/christian-mccaffrey-49ers-seahawks-injury/
+
+**Dylan Harper undergoes surgery for partially torn thumb: Source**\
+`The No. 2 overall pick is undergoing surgery in an attempt to return for the Spurs' season opener. `\
+https://nytimes.com/athletic/6603063/2025/09/05/dylan-harper-spurs-injury-finger-surgery-nba/
+
 **Adams Vows to Stay in N.Y.C. Mayoral Race**\
 `Eric Adams, the mayor of New York City, said he would continue his campaign amid reports that close advisers to President Trump had been crafting a plan to nominate Mr. Adams to be ambassador to Saudi Arabia.`\
 https://nytimes.com/video/nyregion/100000010382391/eric-adams-nyc-election.html
