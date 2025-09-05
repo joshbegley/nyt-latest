@@ -1,3 +1,11 @@
+**Atlanta Falcons 2025 streaming guide: How to watch all ATL games this season**\
+`The NFC South is thin, so a handful of high-leverage snaps each week can swing the Falcons' record. Here's how to watch their 2025 games.`\
+https://nytimes.com/athletic/6595303/2025/09/05/atlanta-falcons-how-to-watch-2025-tv-schedule/
+
+**Bucks fan survey results: Faith in Giannis remains high, but championship hopes fade**\
+`Antetokounmpo is the franchise cornerstone fans still trust, but there is skepticism about the Bucks' roster going into the 2025-26 season.`\
+https://nytimes.com/athletic/6591891/2025/09/05/giannis-antetokounmpo-bucks-fans-survey-2025-26/
+
 **Parsons-less Cowboys emerge from narrow loss to Eagles with same unanswered questions**\
 `The Cowboys played well enough to win but rarely pressured Eagles QB Jalen Hurts and made too many of their own mistakes. `\
 https://nytimes.com/athletic/6600735/2025/09/05/cowboys-eagles-nfl-opener-micah-parsons/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6598834/2025/09/05/chargers-jim-harbaugh-year-2-jus
 **Knuck if You Bucs: Tampa Bay Buccaneers TV and streaming info for 2025 schedule**\
 `Baker Mayfield and Vita Vea return to lead Tampa Bay. Here's how to watch and stream all the Bucs' regular-season games this year.`\
 https://nytimes.com/athletic/6585094/2025/09/05/tampa-bay-buccaneers-how-to-watch-2025-tv/
-
-**Nate Atkins' journey through mountains and canyons to cover the Los Angeles Rams**\
-`A 30-hour drive from Indianapolis to Los Angeles is one cathartic way to find out about yourself and all this country has to offer.`\
-https://nytimes.com/athletic/6599143/2025/09/05/nate-atkins-travel-journey-los-angeles-rams/
-
-**Who fixed it better? Sunday boils down to Seahawks ground game vs. 49ers run D**\
-`The 49ers overhauled their defensive front this spring, including drafting Mykel Williams in Round 1. The Seahawks did the same on offense.`\
-https://nytimes.com/athletic/6598751/2025/09/05/49ers-seahawks-season-opener-run-game/
 

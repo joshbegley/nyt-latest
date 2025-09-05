@@ -1,3 +1,7 @@
+**Parsons-less Cowboys emerge from narrow loss to Eagles with same unanswered questions**\
+`The Cowboys played well enough to win but rarely pressured Eagles QB Jalen Hurts and made too many of their own mistakes. `\
+https://nytimes.com/athletic/6600735/2025/09/05/cowboys-eagles-nfl-opener-micah-parsons/
+
 **Breaking Down Elon Musk’s Pay Package**\
 `Tesla’s C.E.O. could become the world’s first trillionaire — if he can get the carmaker to hit some lofty performance hurdles.`\
 https://nytimes.com/2025/09/05/business/dealbook/elon-musk-trillionaire.html
