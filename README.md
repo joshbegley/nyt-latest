@@ -1,3 +1,7 @@
+**Google Is Fined $3.5 Billion for Breaking Europe’s Antitrust Laws**\
+`European Union officials accused the American tech giant of using its size and dominance to undercut rivals in the online advertising market.`\
+https://nytimes.com/2025/09/05/business/google-eu-antitrust-fine.html
+
 **With Audi Poised to Take Over, Sauber Rises in the F1 Standings**\
 `The automotive giant has committed to Formula 1 next year and will provide new resources, including its own power unit. Now the team is experiencing a bit of a surge.`\
 https://nytimes.com/2025/09/05/sports/autoracing/f1-sauber-audi.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/05/dining/the-five-ingredient-pantry-pasta-you-need-
 **Five Action Movies to Stream Now**\
 `This month’s picks include girl assassins, a school under attack and more.`\
 https://nytimes.com/2025/09/05/movies/action-movie-streaming.html
-
-**What's up with the 'Saving College Sports' ad you can't avoid on Saturdays?**\
-`For those following the dramatic evolution of college sports over the past few years, Campbell and his message might be familiar, if vague.`\
-https://nytimes.com/athletic/6601524/2025/09/05/saving-college-sports-commercials-cody-campbell/
 
