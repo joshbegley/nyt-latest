@@ -1,3 +1,7 @@
+**Flames sign RFA Connor Zary to 3-year, $11.325 million extension**\
+`Zary, 23, scored 13 goals and notched 27 points in 54 games last season for the Flames.`\
+https://nytimes.com/athletic/6602754/2025/09/05/calgary-flames-connor-zary-contract-nhl/
+
 **There’s Only So Much the Federal Reserve Can Do to Help This Economy**\
 `Economic data suggests labor supply and immigration changes are affecting job growth. The Federal Reserve can’t fix that, but Trump can.`\
 https://nytimes.com/2025/09/05/opinion/jobs-report-immigration-trump-fed.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/05/t-magazine/winter-holidays-travel-vacation-questi
 **Tigers reliever Kyle Finnegan lands on IL; Parker Meadows activated**\
 `Finnegan hasn't allowed a run since joining the Tigers at the trade deadline. He's hopeful he'll miss the minimum 15 days.`\
 https://nytimes.com/athletic/6602772/2025/09/05/kyle-finnegan-tigers-adductor-strain/
-
-**Jonathan David stars for Canada in big friendly road win against Romania**\
-`Jesse Marsch's side bounced back to form in impressive fashion`\
-https://nytimes.com/athletic/6602298/2025/09/05/canada-romania-jonathan-david/
 
