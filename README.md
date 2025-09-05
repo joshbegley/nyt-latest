@@ -1,3 +1,7 @@
+**The Return of the ‘War Department’ Is More Than Nostalgia. It’s a Message.**\
+`President Trump and his defense secretary say they want to return to the era when America won wars. They largely ignore the greatest accomplishment of the past 80 years: avoiding superpower conflict.`\
+https://nytimes.com/2025/09/05/us/politics/the-return-of-the-war-department-is-more-than-nostalgia-its-a-message.html
+
 **A Zap of Blue Light Shows Promise Against Food and Sweat Stains**\
 `Researchers hope the technique could offer a more environmentally friendly approach to cleaning up messy clothing.`\
 https://nytimes.com/2025/09/05/science/blue-light-stains-laundry.html
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6601347/2025/09/05/college-football-pregame-live-ch
 **The Windup: Mets keep finding new arms**\
 `Welcome to The Windup, The Athletic's MLB newsletter.`\
 https://nytimes.com/athletic/6600759/2025/09/05/mets-starters-brandon-sproat-the-windup/
-
-**New Orleans Saints schedule 2025: TV, broadcast and streaming info for NOLA's new era**\
-`Amid streaming changes and new media deals, here's how to watch all 17 regular-season Saints games this season.`\
-https://nytimes.com/athletic/6584803/2025/09/05/new-orleans-saints-how-to-watch/
 
