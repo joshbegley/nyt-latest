@@ -1,3 +1,15 @@
+**Indiana Fever's Caitlin Clark out for rest the season with groin injury**\
+`The Indiana Fever second-year guard has not played since July 15.`\
+https://nytimes.com/athletic/6600008/2025/09/04/caitlin-clark-ruled-out-season-injury/
+
+**Donald Trump to attend U.S. Open men's final in first appearance since 2015: Source**\
+`Trump was booed on his last appearance, which came during his first presidential campaign.`\
+https://nytimes.com/athletic/6599732/2025/09/04/donald-trump-us-open-appearance-mens-final/
+
+**Eagles' Jalen Carter ejected after spitting on Cowboys' Dak Prescott**\
+`Carter exited the season opener against the Cowboys before the first offensive play of the game.`\
+https://nytimes.com/athletic/6600000/2025/09/04/jalen-carter-ejected-eagles-cowboys/
+
 **Trump Is Exploring Ways to Take Over the Sept. 11 Memorial and Museum**\
 `It was unclear exactly how the federal government would take control of the site in Lower Manhattan. As a candidate, Mr. Trump offered a preview of one potential option.`\
 https://nytimes.com/2025/09/04/us/politics/trump-sept-11-museum.html

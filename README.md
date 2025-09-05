@@ -1,9 +1,13 @@
+**With October drawing near, the Cubs need Seiya Suzuki back in his comfort zone**\
+`he best version of that Cubs team has Suzuki launching home runs and doing silly celebrations with Pete Crow-Armstrong in the dugout.`\
+https://nytimes.com/athletic/6599889/2025/09/04/chicago-cubs-seiya-suzuki-analysis/
+
 **Indiana Fever's Caitlin Clark out for rest the season with groin injury**\
 `The Indiana Fever second-year guard has not played since July 15.`\
 https://nytimes.com/athletic/6600008/2025/09/04/caitlin-clark-ruled-out-season-injury/
 
 **Donald Trump to attend U.S. Open men's final in first appearance since 2015: Source**\
-`Trump was booed on his last appearance, which came during his first presidential campaign.`\
+`Trump was booed during his last appearance, which came during his first presidential campaign.`\
 https://nytimes.com/athletic/6599732/2025/09/04/donald-trump-us-open-appearance-mens-final/
 
 **Eagles' Jalen Carter ejected after spitting on Cowboys' Dak Prescott**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6599953/2025/09/04/dodgers-vs-orioles-stream-how-to
 **How to watch Mariners at Braves: Time, TV, streaming for September 5**\
 `Find out how to watch the Seattle Mariners play the Atlanta Braves, with time, TV channel, and streaming information.`\
 https://nytimes.com/athletic/6599932/2025/09/04/mariners-vs-braves-stream-how-to-watch-sept-5/
-
-**At Harvard, Judge’s Ruling on Funding Gives Students One More Thing to Ponder**\
-`Many students were cautiously hopeful after a judge said the Trump administration could not freeze research funding to the university. But they also had other things on their minds.`\
-https://nytimes.com/2025/09/04/us/harvard-funding-decision-reaction-students.html
 
