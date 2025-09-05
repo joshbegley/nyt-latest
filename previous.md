@@ -1,3 +1,7 @@
+**Why Hamas Refuses to Give Up**\
+`Analysts say that despite its vast losses in Gaza, Hamas believes it can hold out for a deal that ensures its survival.`\
+https://nytimes.com/2025/09/05/world/middleeast/gaza-hamas-surrender-israel.html
+
 **Rafael Nadal's tennis and life after an era-defining rivalry: 'We never had time to relax'**\
 `Nadal's life after tennis has not yet seen him pick up a racket. But he has plenty of opinions about its new stars.`\
 https://nytimes.com/athletic/6598134/2025/09/05/rafael-nadal-tennis-retirement-big-three-rivalry/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/05/world/europe/france-fake-champagne-sentence.html
 **6 More Things E.R. Doctors Wish You’d Avoid**\
 `Stay out of the emergency room with these tips.`\
 https://nytimes.com/2025/09/05/well/er-doctors-avoid-tips.html
-
-**Mamdani’s Donations Surged After the Primary While Cuomo’s Funding Lagged**\
-`Zohran Mamdani, the Democratic candidate for mayor of New York City, has amassed more support from small-dollar donors than his rivals.`\
-https://nytimes.com/interactive/2025/09/05/nyregion/nyc-mayoral-race-mamdani-cuomo-donations.html
 
