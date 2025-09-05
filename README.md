@@ -1,3 +1,11 @@
+**Lionel Messi excited but refuses to commit to playing in 2026 World Cup**\
+`The World Cup winner is yet to say for certain if he will play in the tournament next summer`\
+https://nytimes.com/athletic/6602907/2025/09/05/messi-argentina-world-cup-2026/
+
+**Eagles sign 3-time Pro Bowl edge Za'Darius Smith after season-opening win over Cowboys**\
+`Smith, one of the NFL's top free agents, finished with nine sacks last season playing for Cleveland and Detroit.`\
+https://nytimes.com/athletic/6602897/2025/09/05/eagles-sign-zadarius-smith-after-win-over-cowboys/
+
 **Broncos' key free-agent addition Dre Greenlaw, DL Malcolm Roach out Week 1 vs. Titans**\
 `The Broncos signed Greenlaw in March as an upgrade at linebacker, but he still hasn't fully recovered from an offseason quad injury.`\
 https://nytimes.com/athletic/6602163/2025/09/05/broncos-dre-greenlaw-out-titans/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/09/05/health/alcohol-drinking-hhs-report.html
 **Luis Enrique to undergo surgery on fractured collarbone after cycling accident**\
 `Enrique has been at PSG since the summer of 2023 and led them to a Champions League win last season.`\
 https://nytimes.com/athletic/6602810/2025/09/05/luis-enrique-psg-surgery-bike-accident/
-
-**If NBA can prove Clippers evaded cap, Adam Silver should hammer them. But it may be tough**\
-`But Clippers owner Steve Ballmer and/or Kawhi Leonard might still have some explaining to do in the court of Silver.`\
-https://nytimes.com/athletic/6598891/2025/09/05/kawhi-leonard-clippers-salary-cap-adam-silver-nba/
-
-**Giorgio Armani’s Red Carpet Secret? Her Name Was Wanda.**\
-`Armani amassed a cavalcade of celebrity spokespeople. Many came through a former journalist named Wanda McDaniel.`\
-https://nytimes.com/2025/09/05/fashion/giorgio-armani-hollywood-wanda-mcdaniel.html
 
