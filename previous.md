@@ -1,3 +1,7 @@
+**Pochettino, 'jealous' of CFB atmospheres, wants Americans to share same passion with soccer**\
+`Pochettino spoke of the missing emotional connection between U.S. soccer and fans, and that it does exist — for the other kind of football.`\
+https://nytimes.com/athletic/6602185/2025/09/05/mauricio-pochettino-jealous-of-cfb-atmospheres/
+
 **Scoop City: Four key matchups to watch this weekend**\
 `A weekend watch guide and one costly mistake from the Cowboys defensive coordinator.`\
 https://nytimes.com/athletic/6602246/2025/09/05/four-key-nfl-matchups-week-1-watch-cowboys-eagles/
@@ -33,8 +37,4 @@ https://nytimes.com/video/world/middleeast/100000010381609/gaza-city-israel-buil
 **How will Caitlin Clark's injury-plagued second season impact her record-setting card market?**\
 `Clark's cards have been some of the most coveted across all sports this year`\
 https://nytimes.com/athletic/6601562/2025/09/05/caitlin-clark-cards-injury/
-
-**NFL's vow to emphasize sportsmanship was on display in Cowboys-Eagles opener**\
-`It didn’t take long for the NFL's new emphasis on sportsmanship to surface during the Eagles-Cowboys regular season opener.`\
-https://nytimes.com/athletic/6602123/2025/09/05/nfl-sportsmanship-emphasis-penalties/
 

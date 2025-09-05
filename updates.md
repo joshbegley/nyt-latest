@@ -1,3 +1,7 @@
+**Pochettino, 'jealous' of CFB atmospheres, wants Americans to share same passion with soccer**\
+`Pochettino spoke of the missing emotional connection between U.S. soccer and fans, and that it does exist — for the other kind of football.`\
+https://nytimes.com/athletic/6602185/2025/09/05/mauricio-pochettino-jealous-of-cfb-atmospheres/
+
 **Scoop City: Four key matchups to watch this weekend**\
 `A weekend watch guide and one costly mistake from the Cowboys defensive coordinator.`\
 https://nytimes.com/athletic/6602246/2025/09/05/four-key-nfl-matchups-week-1-watch-cowboys-eagles/
