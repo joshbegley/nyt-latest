@@ -1,3 +1,7 @@
+**Daniel Levy's shock removal by Spurs - Gibb River review, change in Lewis family relations, what it means for sale**\
+`A Lewis family-instigated review by a US firm into why Spurs were performing so badly ultimately led to the removal of its most powerful man`\
+https://nytimes.com/athletic/6596213/2025/09/05/daniel-levy-spurs-removal-lewis-family/
+
 **The N.Y. Assembly’s Most Powerful Democrat Has Been Slow to Back Mamdani**\
 `Carl Heastie, the speaker of the Assembly, has not yet endorsed his fellow lawmaker. He’s not the only prominent Democrat to hold back support.`\
 https://nytimes.com/2025/09/05/nyregion/mamdani-heastie-endorsement-mayor.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6600667/2025/09/05/twins-vs-royals-stream-how-to-wa
 **How to watch Guardians at Rays: Time, TV, streaming for September 5**\
 `Find out how to watch the Cleveland Guardians play the Tampa Bay Rays, with time, TV channel, and streaming information.`\
 https://nytimes.com/athletic/6600663/2025/09/05/guardians-vs-rays-stream-how-to-watch-sept-5/
-
-**Yankees takeaways: Jazz Chisholm Jr. injury update, Blue Jays up next**\
-`"I don't think it's anything major," Aaron Boone said of Chisholm's injury after Thursday's win. "At least, that's the sense right now."`\
-https://nytimes.com/athletic/6600583/2025/09/05/yankees-astros-jazz-chisholm-jr-takeaways/
 
