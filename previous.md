@@ -1,3 +1,7 @@
+**Thai Parliament Picks New Prime Minister but National Election Looms**\
+`Anutin Charnvirakul, a conservative politician, secured enough support for the job only after agreeing to a demand from the liberal opposition to call for an election in months.`\
+https://nytimes.com/2025/09/05/world/asia/thailand-prime-minister-anutin.html
+
 **Former Chelsea midfielder Ji joins Birmingham on loan from Seattle Reign**\
 `Ji will play in Women's Super League 2, English football's second tier, after Birmingham narrowly missed out on promotion last season.`\
 https://nytimes.com/athletic/6600783/2025/09/05/ji-so-yun-birmingham-seattle-loan/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/05/nyregion/mamdani-heastie-endorsement-mayor.html
 **Spelling Bee Forum**\
 `Feeling stuck on today’s puzzle? We can help.`\
 https://nytimes.com/2025/09/05/crosswords/spelling-bee-forum.html
-
-**Travel Stories**\
-`Tell us a story, real or made up, that is inspired by this image.`\
-https://nytimes.com/2025/09/05/learning/travel-stories.html
 

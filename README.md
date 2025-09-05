@@ -1,40 +1,40 @@
-**Thai Parliament Picks New Prime Minister but National Election Looms**\
-`Anutin Charnvirakul, a conservative politician, secured enough support for the job only after agreeing to a demand from the liberal opposition to call for an election in months.`\
-https://nytimes.com/2025/09/05/world/asia/thailand-prime-minister-anutin.html
+**What I'm seeing from the Falcons: Belief they're in a better place for 2025**\
+`The Falcons enter the 2025 season with high hopes for their offense and a defense they think can create more game-changing plays.`\
+https://nytimes.com/athletic/6596301/2025/09/05/atlanta-falcons-nfl-preview-2025/
 
-**Former Chelsea midfielder Ji joins Birmingham on loan from Seattle Reign**\
-`Ji will play in Women's Super League 2, English football's second tier, after Birmingham narrowly missed out on promotion last season.`\
-https://nytimes.com/athletic/6600783/2025/09/05/ji-so-yun-birmingham-seattle-loan/
+**The Luckiest Gas Station in America**\
+`A Syrian immigrant in Southern California beat the odds — twice — and now some Powerball players see an ineffable magic at work in his store.`\
+https://nytimes.com/2025/09/05/us/the-luckiest-gas-station-in-america.html
 
-**Putin Warns Western Troops in Ukraine Before a Peace Deal Would Be ‘Targets’**\
-`The Russian leader made the threat a day after European leaders said they were willing to deploy forces on the ground to secure an agreement to end the war.`\
-https://nytimes.com/2025/09/05/world/europe/russia-ukraine-putin-western-troops.html
+**Ten bold (and not so bold) predictions for the Patriots this season**\
+`What should we expect from the Patriots in Year 1 under Mike Vrabel? O-line struggles, improvement from Drake Maye and an improved record.`\
+https://nytimes.com/athletic/6594635/2025/09/05/new-england-patriots-bold-predictions-nfl-2025/
 
-**Alessia Russo signs new long-term Arsenal contract**\
-`Russo, 26, has been a pivotal figure for Arsenal since joining the club from Manchester United on a free transfer in July 2023.`\
-https://nytimes.com/athletic/6598513/2025/09/05/alessia-russo-arsenal-contract-new/
+**Donors Push Mamdani to Maximum Fund-Raising Cap in Mayor’s Race**\
+`Zohran Mamdani’s campaign says it has hit the $8 million spending cap, a sign of the Democrat’s support especially among small-dollar donors in New York City.`\
+https://nytimes.com/2025/09/05/nyregion/mamdani-donations-mayor-money.html
 
-**London City Lionesses sign Geyoro from PSG**\
-`Geyoro played in all four of France's matches at the European Championships this summer, scoring twice.`\
-https://nytimes.com/athletic/6597503/2025/09/05/grace-geyoro-london-city-lionesses-psg/
+**French Winemaker Gets Prison for Scheme That Threatened the Champagne Bubble**\
+`Didier Chopin, 56, was accused of passing off wine made with carbonated grapes from Spain and other regions in France as Champagne.`\
+https://nytimes.com/2025/09/05/world/europe/france-fake-champagne-sentence.html
 
-**Valkyries give Ballhalla a new crescendo to clinch historic playoff spot**\
-`The Valkyries needed one big basket to lock up a playoff spot. One clutch play to make history. The fitting author: Veronica Burton.`\
-https://nytimes.com/athletic/6600631/2025/09/05/valkyries-playoff-spot-home-game/
+**6 More Things E.R. Doctors Wish You’d Avoid**\
+`Stay out of the emergency room with these tips.`\
+https://nytimes.com/2025/09/05/well/er-doctors-avoid-tips.html
 
-**Stephen Colbert Sounds the Alarm on ‘Death by Florida’**\
-`He said that Florida’s decision to stop vaccine mandates would affect not just schoolchildren but also “America’s most vulnerable population: Disney adults.”`\
-https://nytimes.com/2025/09/05/arts/television/stephen-colbert-florida-vaccines.html
+**Mamdani’s Donations Surged After the Primary While Cuomo’s Funding Lagged**\
+`Zohran Mamdani, the Democratic candidate for mayor of New York City, has amassed more support from small-dollar donors than his rivals.`\
+https://nytimes.com/interactive/2025/09/05/nyregion/nyc-mayoral-race-mamdani-cuomo-donations.html
 
-**Daniel Levy's shock removal by Spurs: Gibb River review, change in Lewis family relations, what it means for sale**\
-`A Lewis family-instigated review by a US firm into why Spurs were performing so badly ultimately led to the removal of its most powerful man`\
-https://nytimes.com/athletic/6596213/2025/09/05/daniel-levy-spurs-removal-lewis-family/
+**Can I Give Out Full-Size Candy Bars to Children on Halloween?**\
+`A ruling on confectionary etiquette in the haunted season.`\
+https://nytimes.com/interactive/2025/09/05/magazine/halloween-candy-hodgman-quiz.html
 
-**The N.Y. Assembly’s Most Powerful Democrat Has Been Slow to Back Mamdani**\
-`Carl Heastie, the speaker of the Assembly, has not yet endorsed his fellow lawmaker. He’s not the only prominent Democrat to hold back support.`\
-https://nytimes.com/2025/09/05/nyregion/mamdani-heastie-endorsement-mayor.html
+**ICE Agents Are Wearing Masks. Is That Un-American?**\
+`The long, strange story of masking and law enforcement.`\
+https://nytimes.com/2025/09/05/us/ice-agents-wearing-masks.html
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2025/09/05/crosswords/spelling-bee-forum.html
+**Can YouTube Handle Live Sports? The N.F.L. Is the Ultimate Test.**\
+`YouTube’s live broadcast on Friday night of the Kansas City Chiefs and Los Angeles Chargers game is set to be a major test of the platform’s programming ambitions.`\
+https://nytimes.com/2025/09/05/technology/youtube-nfl-live-sports.html
 
