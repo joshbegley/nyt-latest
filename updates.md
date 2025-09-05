@@ -1,3 +1,7 @@
+**Immigration Authorities Arrest Hundreds in Georgia Raid**\
+`Nearly 500 people, most of whom are South Korean citizens, were arrested at a construction site for a Hyundai electric vehicle battery plant in Ellabell, Ga., on Thursday.`\
+https://nytimes.com/video/us/politics/100000010381555/hundreds-arrested-georgia-immigration-raid.html
+
 **G20 Summit in 2026 to Be Held at Trump’s Club in Miami, President Announces**\
 `The president is reviving an idea to hold a major diplomatic event at one of his properties.`\
 https://nytimes.com/2025/09/05/us/politics/trump-g20-summit-miami.html

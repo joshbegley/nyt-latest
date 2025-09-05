@@ -1,3 +1,7 @@
+**Immigration Authorities Arrest Hundreds in Georgia Raid**\
+`Nearly 500 people, most of whom are South Korean citizens, were arrested at a construction site for a Hyundai electric vehicle battery plant in Ellabell, Ga., on Thursday.`\
+https://nytimes.com/video/us/politics/100000010381555/hundreds-arrested-georgia-immigration-raid.html
+
 **G20 Summit in 2026 to Be Held at Trump’s Club in Miami, President Announces**\
 `The president is reviving an idea to hold a major diplomatic event at one of his properties.`\
 https://nytimes.com/2025/09/05/us/politics/trump-g20-summit-miami.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/05/us/powerball-lottery-winners.html
 **Flames sign RFA Connor Zary to 3-year, $11.325 million extension**\
 `Zary, 23, scored 13 goals and notched 27 points in 54 games last season for the Flames.`\
 https://nytimes.com/athletic/6602754/2025/09/05/calgary-flames-connor-zary-contract-nhl/
-
-**There’s Only So Much the Federal Reserve Can Do to Help This Economy**\
-`Economic data suggests labor supply and immigration changes are affecting job growth. The Federal Reserve can’t fix that, but Trump can.`\
-https://nytimes.com/2025/09/05/opinion/jobs-report-immigration-trump-fed.html
 
