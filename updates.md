@@ -1,3 +1,7 @@
+**Yankees takeaways: Jazz Chisholm Jr. injury update, Blue Jays up next**\
+`"I don't think it's anything major," Aaron Boone said of Chisholm's injury after Thursday's win. "At least, that's the sense right now."`\
+https://nytimes.com/athletic/6600583/2025/09/05/yankees-astros-jazz-chisholm-jr-takeaways/
+
 **Word of the Day: gaggle**\
 `This word has appeared in 100 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2025/09/05/learning/word-of-the-day-gaggle.html
