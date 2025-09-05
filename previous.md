@@ -1,3 +1,15 @@
+**Here’s what to expect on jobs day.**\
+`By Lydia DePillis`\
+https://nytimes.com/live/2025/09/05/business/jobs-report-august-economy/heres-what-to-expect-on-jobs-day
+
+**Is the Jobs Data Still Reliable? Yes, at Least for Now.**\
+`President Trump’s decision to fire the head of the Bureau of Labor Statistics has prompted questions about political interference.`\
+https://nytimes.com/2025/09/05/business/jobs-data-reliability.html
+
+**August Jobs Report Precedes Pivotal Fed Meeting**\
+`The Bureau of Labor Statistics’ employment report for August could show the labor market continuing to shift into a lower gear.`\
+https://nytimes.com/live/2025/09/05/business/jobs-report-august-economy
+
 **Daniel Levy has left his post as Spurs chairman - you must have some questions...**\
 `This is your chance to ask The Athletic's team of experts how Levy's departure will affect the running of the club, and what could come next`\
 https://nytimes.com/athletic/6600832/2025/09/05/daniel-levy-tottenham-what-next/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6600773/2025/09/05/cowboys-ceedee-lamb-drops-eagles
 **How to watch NASCAR Enjoy Illinois 300: Streaming, schedule as Cup playoffs continue**\
 `Round two of the NASCAR Cup Series playoffs shifts to the Midwest this weekend for the Enjoy Illinois 300 at World Wide Technology Raceway.`\
 https://nytimes.com/athletic/6599235/2025/09/05/nascar-enjoy-illinois-cup-playoffs-how-to-watch/
-
-**What I'm seeing from the Falcons: Belief they're in a better place for 2025**\
-`The Falcons enter the 2025 season with high hopes for their offense and a defense they think can create more game-changing plays.`\
-https://nytimes.com/athletic/6596301/2025/09/05/atlanta-falcons-nfl-preview-2025/
-
-**The Luckiest Gas Station in America**\
-`A Syrian immigrant in Southern California beat the odds — twice — and now some Powerball players see an ineffable magic at work in his store.`\
-https://nytimes.com/2025/09/05/us/the-luckiest-gas-station-in-america.html
-
-**Ten bold (and not so bold) predictions for the Patriots this season**\
-`What should we expect from the Patriots in Year 1 under Mike Vrabel? O-line struggles, improvement from Drake Maye and an improved record.`\
-https://nytimes.com/athletic/6594635/2025/09/05/new-england-patriots-bold-predictions-nfl-2025/
 

@@ -1,3 +1,15 @@
+**Here’s what to expect on jobs day.**\
+`By Lydia DePillis`\
+https://nytimes.com/live/2025/09/05/business/jobs-report-august-economy/heres-what-to-expect-on-jobs-day
+
+**Is the Jobs Data Still Reliable? Yes, at Least for Now.**\
+`President Trump’s decision to fire the head of the Bureau of Labor Statistics has prompted questions about political interference.`\
+https://nytimes.com/2025/09/05/business/jobs-data-reliability.html
+
+**August Jobs Report Precedes Pivotal Fed Meeting**\
+`The Bureau of Labor Statistics’ employment report for August could show the labor market continuing to shift into a lower gear.`\
+https://nytimes.com/live/2025/09/05/business/jobs-report-august-economy
+
 **Daniel Levy has left his post as Spurs chairman - you must have some questions...**\
 `This is your chance to ask The Athletic's team of experts how Levy's departure will affect the running of the club, and what could come next`\
 https://nytimes.com/athletic/6600832/2025/09/05/daniel-levy-tottenham-what-next/
