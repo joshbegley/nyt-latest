@@ -1,3 +1,11 @@
+**Answer 4 Questions. Leave With a Thriller You’ll Love.**\
+`Tell us a few things about what you like, and we’ll give you a spot-on book recommendation.`\
+https://nytimes.com/interactive/2025/09/05/books/thriller-book-quiz.html
+
+**What Are Your Personal Style Questions?**\
+`Our Styles writers think deeply about what we wear and why. Ask them anything.`\
+https://nytimes.com/2025/09/05/style/what-are-your-personal-style-questions.html
+
 **Pochettino, 'jealous' of CFB atmospheres, wants Americans to share same passion with soccer**\
 `Pochettino spoke of the missing emotional connection between U.S. soccer and fans, and that it does exist — for the other kind of football.`\
 https://nytimes.com/athletic/6602185/2025/09/05/mauricio-pochettino-jealous-of-cfb-atmospheres/

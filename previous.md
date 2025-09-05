@@ -1,3 +1,11 @@
+**Answer 4 Questions. Leave With a Thriller You’ll Love.**\
+`Tell us a few things about what you like, and we’ll give you a spot-on book recommendation.`\
+https://nytimes.com/interactive/2025/09/05/books/thriller-book-quiz.html
+
+**What Are Your Personal Style Questions?**\
+`Our Styles writers think deeply about what we wear and why. Ask them anything.`\
+https://nytimes.com/2025/09/05/style/what-are-your-personal-style-questions.html
+
 **Pochettino, 'jealous' of CFB atmospheres, wants Americans to share same passion with soccer**\
 `Pochettino spoke of the missing emotional connection between U.S. soccer and fans, and that it does exist — for the other kind of football.`\
 https://nytimes.com/athletic/6602185/2025/09/05/mauricio-pochettino-jealous-of-cfb-atmospheres/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6602199/2025/09/05/us-open-doubles-dabrowski-routli
 **Flip Pallot, Banker Turned TV Fly Fishing Star, Dies at 83**\
 `His long-running outdoor show on ESPN helped popularize an adventurous saltwater sport bent on hooking some of the biggest fish in the sea.`\
 https://nytimes.com/2025/09/05/sports/flip-pallot-dead.html
-
-**Israeli Strike Destroys Building in Gaza City**\
-`Israel targeted a prominent local landmark, the Mushtaha Tower, a day after a military spokesman said it was in control of almost half the city.`\
-https://nytimes.com/video/world/middleeast/100000010381609/gaza-city-israel-building-strike.html
-
-**How will Caitlin Clark's injury-plagued second season impact her record-setting card market?**\
-`Clark's cards have been some of the most coveted across all sports this year`\
-https://nytimes.com/athletic/6601562/2025/09/05/caitlin-clark-cards-injury/
 
