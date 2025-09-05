@@ -1,3 +1,7 @@
+**London City Lionesses sign Geyoro from PSG**\
+`Geyoro played in all four of France's matches at the European Championships this summer, scoring twice.`\
+https://nytimes.com/athletic/6597503/2025/09/05/grace-geyoro-london-city-lionesses-psg/
+
 **Valkyries give Ballhalla a new crescendo to clinch historic playoff spot**\
 `The Valkyries needed one big basket to lock up a playoff spot. One clutch play to make history. The fitting author: Veronica Burton.`\
 https://nytimes.com/athletic/6600631/2025/09/05/valkyries-playoff-spot-home-game/

@@ -1,3 +1,7 @@
+**Alessia Russo signs new long-term Arsenal contract**\
+`Russo, 26, has been a pivotal figure for Arsenal since joining the club from Manchester United on a free transfer in July 2023.`\
+https://nytimes.com/athletic/6598513/2025/09/05/alessia-russo-arsenal-contract-new/
+
 **London City Lionesses sign Geyoro from PSG**\
 `Geyoro played in all four of France's matches at the European Championships this summer, scoring twice.`\
 https://nytimes.com/athletic/6597503/2025/09/05/grace-geyoro-london-city-lionesses-psg/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/05/us/seattle-burglary-macklemore-ichiro-sherman.htm
 **Steve Ballmer denies allegations of Kawhi Leonard, Clippers circumventing salary cap**\
 `The Clippers chairman said he did not know anything about Leonard's reported endorsement deal with Aspiration.`\
 https://nytimes.com/athletic/6600547/2025/09/05/steve-ballmer-kawhi-leonard-endorsement-deal-clippers/
-
-**How to watch Athletics at Angels: Time, TV, streaming for September 5**\
-`Find out how to watch the Athletics play the Los Angeles Angels, with time, TV channel, and streaming information.`\
-https://nytimes.com/athletic/6600681/2025/09/05/athletics-vs-angels-stream-how-to-watch-sept-5/
 
