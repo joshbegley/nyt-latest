@@ -1,3 +1,7 @@
+**Is It Time for You to ‘Lock In’?**\
+`A social media challenge is asking participants to tackle their goals now, rather than wait for the new year.`\
+https://nytimes.com/2025/09/05/style/great-lock-in-tiktok.html
+
 **Over 100 Free New York Times Articles About How A.I. Is Changing Our World**\
 `To go along with our contest, here are scores of recent, free Times articles, videos, opinion pieces, videos, quizzes and podcasts about the effects of this world-changing technology. Which pieces most interest you?`\
 https://nytimes.com/2025/09/05/learning/over-100-free-new-york-times-articles-about-how-ai-is-changing-our-world.html
@@ -7,7 +11,7 @@ https://nytimes.com/2025/09/05/learning/over-100-free-new-york-times-articles-ab
 https://nytimes.com/2025/09/05/learning/what-are-your-thoughts-about-ai-a-forum-for-teenagers-and-educators.html
 
 **Penn State switching to adidas from Nike in 2026 as part of new 10-year deal**\
-`The agreement continues a trend of adidas securing partnerships with athletics programs with ties to a superstar athlete.`\
+`The agreement continues a trend of Adidas securing partnerships with athletics programs with ties to a superstar athlete.`\
 https://nytimes.com/athletic/6600213/2025/09/05/penn-state-adidas-apparel-deal/
 
 **Growing Up With A.I.: A Multimedia Challenge for Teenagers and Educators**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6602274/2025/09/05/kodai-senga-mets-minor-leagues/
 **Flashback: Your Weekly History Quiz, Sept. 6, 2025**\
 `Can you sort 8 historical events?`\
 https://nytimes.com/interactive/2025/09/05/upshot/flashback.html
-
-**Chicago Braces for Trump’s Immigration Crackdown**\
-`Protesters held demonstrations and city leaders spoke against the prospect of a surge of federal agents.`\
-https://nytimes.com/2025/09/05/us/trump-immigration-chicago.html
 
