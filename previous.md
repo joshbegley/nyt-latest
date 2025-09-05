@@ -1,3 +1,11 @@
+**'No animosity' towards Isak over Newcastle exit, says Burn**\
+`Isak refused to play for Newcastle from the beginning of pre-season as he sought a move away from St James' Park. `\
+https://nytimes.com/athletic/6601149/2025/09/05/dan-burn-alexander-isak-newcastle/
+
+**South Koreans Are Among Hundreds Detained in Immigration Raid at Hyundai E.V. Plant**\
+`Executives of a South Korean battery maker were apprehended at a construction site in Georgia, the company said. The episode prompted diplomatic concern in Seoul.`\
+https://nytimes.com/2025/09/05/us/georgia-battery-plant-hyundai-lg-ice-raid.html
+
 **Atlanta Falcons 2025 streaming guide: How to watch all ATL games this season**\
 `The NFC South is thin, so a handful of high-leverage snaps each week can swing the Falcons' record. Here's how to watch their 2025 games.`\
 https://nytimes.com/athletic/6595303/2025/09/05/atlanta-falcons-how-to-watch-2025-tv-schedule/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/09/05/world/europe/fake-heiress-fraud-guilty-northern-i
 **Trump Administration Live Updates: President Will Revive War Department Name**\
 ``\
 https://nytimes.com/live/2025/09/05/us/trump-news
-
-**As Jim Harbaugh enters Year 2 with Chargers, have they done enough to take the next step?**\
-`The Chargers' season will ultimately come down to Harbaugh and Justin Herbert. The organizational stars must elevate an imperfect roster.`\
-https://nytimes.com/athletic/6598834/2025/09/05/chargers-jim-harbaugh-year-2-justin-herbert/
-
-**Knuck if You Bucs: Tampa Bay Buccaneers TV and streaming info for 2025 schedule**\
-`Baker Mayfield and Vita Vea return to lead Tampa Bay. Here's how to watch and stream all the Bucs' regular-season games this year.`\
-https://nytimes.com/athletic/6585094/2025/09/05/tampa-bay-buccaneers-how-to-watch-2025-tv/
 
