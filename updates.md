@@ -1,3 +1,7 @@
+**Melania Trump Says ‘the Robots Are Here’**\
+`The first lady, Melania Trump, issued a warning about the future of artificial intelligence during a meeting with tech executives at the White House on Thursday.`\
+https://nytimes.com/video/us/politics/100000010380379/melania-trump-robots-humanity.html
+
 **How to watch Phillies at Marlins: Time, TV, streaming for September 5**\
 `Find out how to watch the Philadelphia Phillies play the Miami Marlins, with time, TV channel, and streaming information.`\
 https://nytimes.com/athletic/6600395/2025/09/04/phillies-vs-marlins-stream-how-to-watch-sept-5/
