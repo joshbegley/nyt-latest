@@ -1,3 +1,7 @@
+**Wolves mailbag: Identity changes, point guard questions and Jaden McDaniels' scoring**\
+`Is Rob Dillingham's time near? And what was the ultimate impact of the KAT trade?`\
+https://nytimes.com/athletic/6592958/2025/09/05/timberwolves-mailbag-jaden-mcdaniels-donte-divincenzo/
+
 **Angela Rayner, U.K. Deputy Premier, Resigns After Underpaying Tax**\
 `In a blow to Prime Minister Keir Starmer, Ms. Rayner said she would step down after an independent ethics adviser’s investigation.`\
 https://nytimes.com/2025/09/05/world/europe/angela-rayner-resigns-uk-starmer-tax.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6598931/2025/09/05/iowa-iowa-st-tailgate-nervous-te
 **How the Packers are integrating Micah Parsons: 'I want it all at once'**\
 `Parsons likely won't shoulder a full workload on Sunday, if in fact he plays, but Jeff Hafley is already prepared for when he does..`\
 https://nytimes.com/athletic/6599771/2025/09/05/packers-micah-parsons-jeff-hafley-defense/
-
-**Bengals' defining 9: Assessing the top-100 picks Cincinnati's defense is counting on**\
-`Dax Hill, Myles Murphy and Shemar Stewart are among the defensive players who must step up to complement Joe Burrow and the offense.`\
-https://nytimes.com/athletic/6598610/2025/09/05/bengals-defense-al-golden-shemar-stewart/
 
