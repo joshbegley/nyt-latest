@@ -1,3 +1,15 @@
+**اسرائیل در جریان هدف قرار دادن مقامات ایران به یک نقطه ضعف دسترسی پیدا کرد: محافظان شخصی**\
+`اسرائیل در طول جنگ ۱۲ روزه در بهار امسال موفق شد با ردگیری تلفن های همراه محافظان شخصی چهره های کلیدی ایران آنها را ردیابی و ترور کند.`\
+https://nytimes.com/2025/09/05/world/middleeast/israel-iran-assassination.html
+
+**The USMNT's home crowd dilemma is US Soccer's age-old problem**\
+`The USMNT has had to tackle a significant problem - getting large crowds on its side for home internationals`\
+https://nytimes.com/athletic/6600995/2025/09/05/usmnt-crowd-pochettino-korea-japan/
+
+**Jeremiah Jackson, Brandon Sproat and more fantasy baseball waiver wire options**\
+`Owen Poindexter helps fantasy baseball managers find roster help on the waiver wire for their playoff push.`\
+https://nytimes.com/athletic/6599247/2025/09/05/fantasy-baseball-waiver-wire-targets-adds-sproat/
+
 **Lowetide: Predicting the 5 biggest surprises of Oilers training camp this fall**\
 `It's that time of year again, as on-ice activities begin and usually gives way to a few surprises.`\
 https://nytimes.com/athletic/6598076/2025/09/05/edmonton-oilers-training-camp-2025-surprises/

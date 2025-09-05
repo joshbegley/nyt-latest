@@ -1,3 +1,15 @@
+**اسرائیل در جریان هدف قرار دادن مقامات ایران به یک نقطه ضعف دسترسی پیدا کرد: محافظان شخصی**\
+`اسرائیل در طول جنگ ۱۲ روزه در بهار امسال موفق شد با ردگیری تلفن های همراه محافظان شخصی چهره های کلیدی ایران آنها را ردیابی و ترور کند.`\
+https://nytimes.com/2025/09/05/world/middleeast/israel-iran-assassination.html
+
+**The USMNT's home crowd dilemma is US Soccer's age-old problem**\
+`The USMNT has had to tackle a significant problem - getting large crowds on its side for home internationals`\
+https://nytimes.com/athletic/6600995/2025/09/05/usmnt-crowd-pochettino-korea-japan/
+
+**Jeremiah Jackson, Brandon Sproat and more fantasy baseball waiver wire options**\
+`Owen Poindexter helps fantasy baseball managers find roster help on the waiver wire for their playoff push.`\
+https://nytimes.com/athletic/6599247/2025/09/05/fantasy-baseball-waiver-wire-targets-adds-sproat/
+
 **Lowetide: Predicting the 5 biggest surprises of Oilers training camp this fall**\
 `It's that time of year again, as on-ice activities begin and usually gives way to a few surprises.`\
 https://nytimes.com/athletic/6598076/2025/09/05/edmonton-oilers-training-camp-2025-surprises/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6584803/2025/09/05/new-orleans-saints-how-to-watch/
 **Sting Is Sued by His Former Bandmates in the Police**\
 `The band’s drummer and guitarist say the singer has underpaid them for the “digital exploitation” of songs like “Every Breath You Take.” Sting’s lawyers call the claim “illegitimate.”`\
 https://nytimes.com/2025/09/05/arts/music/sting-the-police-lawsuit-andy-summers-stewart-copeland.html
-
-**Oakland AIs? The Ballers will be first professional sports team managed by AI**\
-`On Saturday, the Oakland Ballers of the independent Pioneer League will be the first team to be managed in-game by artificial intelligence.`\
-https://nytimes.com/athletic/6599707/2025/09/05/artificial-intelligence-baseball-manager-oakland-ballers/
-
-**The Commanders' turnaround has brought back fans — and dollar signs**\
-`After decades of sitting at or near the bottom of the NFL in football and business metrics, Washington’s franchise has reversed course.`\
-https://nytimes.com/athletic/6600351/2025/09/05/washington-commanders-season-tickets-stadium-sponsors/
-
-**Inside a SEPTA ride on an Eagles game day and why the service matters**\
-`A gambling site paid to restore service for the game on Thursday.`\
-https://nytimes.com/athletic/6599335/2025/09/05/philadelphia-eagles-septa-service-cutbacks/
 
