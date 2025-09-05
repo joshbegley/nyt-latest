@@ -1,3 +1,11 @@
+**Israel Now Controls Almost Half of Gaza City, Military Says**\
+`Hundreds of thousands of civilians have yet to evacuate the city before Israel’s planned takeover. A new hostage video renewed calls to halt the operation.`\
+https://nytimes.com/2025/09/05/world/middleeast/gaza-city-takeover.html
+
+**Stones withdraws from England camp due to injury**\
+`Tuchel said Stones arrived at the training camp with a minor muscular injury.`\
+https://nytimes.com/athletic/6601007/2025/09/05/john-stones-injury-england-manchester-city/
+
 **Wolves mailbag: Identity changes, point guard questions and Jaden McDaniels' scoring**\
 `Is Rob Dillingham's time near? And what was the ultimate impact of the KAT trade?`\
 https://nytimes.com/athletic/6592958/2025/09/05/timberwolves-mailbag-jaden-mcdaniels-donte-divincenzo/
