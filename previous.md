@@ -1,3 +1,11 @@
+**Barbara Jakobson, Art World Power Broker in New York, Dies at 92**\
+`She was a longtime trustee of the Museum of Modern Art, a savvy collector who befriended young artists like Robert Mapplethorpe.`\
+https://nytimes.com/2025/09/05/arts/barbara-jakobson-dead.html
+
+**How Has Being Perpetually Single Affected You?**\
+`We want to hear from women over the age of 30 who feel as if they have not yet had a meaningful relationship for a New York Times Magazine feature.`\
+https://nytimes.com/2025/09/05/magazine/forever-single-relationships-love-submissions.html
+
 **Google Is Fined $3.5 Billion for Breaking Europe’s Antitrust Laws**\
 `European Union officials accused the American tech giant of using its size and dominance to undercut rivals in the online advertising market.`\
 https://nytimes.com/2025/09/05/business/google-eu-antitrust-fine.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6597938/2025/09/05/fantasy-football-week-1-predicti
 **Angel City signs defender Gisele Thompson through 2029**\
 `Thompson's contract news comes on the heels of her sister Alyssa's shocking departure from Angel City to Chelsea FC.`\
 https://nytimes.com/athletic/6600322/2025/09/05/gisele-thompson-signing-angel-city/
-
-**The Five-Ingredient Pantry Pasta You Need Right Now**\
-`This riff on cacio e pepe with tuna delivers a taste of ocean and sun.`\
-https://nytimes.com/2025/09/05/dining/the-five-ingredient-pantry-pasta-you-need-right-now.html
-
-**Five Action Movies to Stream Now**\
-`This month’s picks include girl assassins, a school under attack and more.`\
-https://nytimes.com/2025/09/05/movies/action-movie-streaming.html
 

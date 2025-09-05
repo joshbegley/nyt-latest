@@ -1,3 +1,11 @@
+**Barbara Jakobson, Art World Power Broker in New York, Dies at 92**\
+`She was a longtime trustee of the Museum of Modern Art, a savvy collector who befriended young artists like Robert Mapplethorpe.`\
+https://nytimes.com/2025/09/05/arts/barbara-jakobson-dead.html
+
+**How Has Being Perpetually Single Affected You?**\
+`We want to hear from women over the age of 30 who feel as if they have not yet had a meaningful relationship for a New York Times Magazine feature.`\
+https://nytimes.com/2025/09/05/magazine/forever-single-relationships-love-submissions.html
+
 **Google Is Fined $3.5 Billion for Breaking Europe’s Antitrust Laws**\
 `European Union officials accused the American tech giant of using its size and dominance to undercut rivals in the online advertising market.`\
 https://nytimes.com/2025/09/05/business/google-eu-antitrust-fine.html
