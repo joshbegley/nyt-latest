@@ -1,3 +1,7 @@
+**Oakland AIs? The Ballers will be first professional sports team managed by AI**\
+`On Saturday, the Oakland Ballers of the independent Pioneer League will be the first team to be managed in-game by artificial intelligence.`\
+https://nytimes.com/athletic/6599707/2025/09/05/artificial-intelligence-baseball-manager-oakland-ballers/
+
 **The Commanders' turnaround has brought back fans — and dollar signs**\
 `After decades of sitting at or near the bottom of the NFL in football and business metrics, Washington’s franchise has reversed course.`\
 https://nytimes.com/athletic/6600351/2025/09/05/washington-commanders-season-tickets-stadium-sponsors/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6601149/2025/09/05/dan-burn-alexander-isak-newcastl
 **South Koreans Are Among Hundreds Detained in Immigration Raid at Hyundai E.V. Plant**\
 `Executives of a South Korean battery maker were apprehended at a construction site in Georgia, the company said. The episode prompted diplomatic concern in Seoul.`\
 https://nytimes.com/2025/09/05/us/georgia-battery-plant-hyundai-lg-ice-raid.html
-
-**Atlanta Falcons 2025 streaming guide: How to watch all ATL games this season**\
-`The NFC South is thin, so a handful of high-leverage snaps each week can swing the Falcons' record. Here's how to watch their 2025 games.`\
-https://nytimes.com/athletic/6595303/2025/09/05/atlanta-falcons-how-to-watch-2025-tv-schedule/
 
