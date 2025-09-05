@@ -2,7 +2,7 @@
 `he best version of that Cubs team has Suzuki launching home runs and doing silly celebrations with Pete Crow-Armstrong in the dugout.`\
 https://nytimes.com/athletic/6599889/2025/09/04/chicago-cubs-seiya-suzuki-analysis/
 
-**Indiana Fever's Caitlin Clark out for rest the season with groin injury**\
+**Indiana Fever's Caitlin Clark out for rest of season with groin injury**\
 `The Indiana Fever second-year guard has not played since July 15.`\
 https://nytimes.com/athletic/6600008/2025/09/04/caitlin-clark-ruled-out-season-injury/
 
