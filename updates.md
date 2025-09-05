@@ -1,3 +1,7 @@
+**Mike Tyson, Floyd Mayweather agree to exhibition match in 2026**\
+`The date and location of the exhibition have not been decided.`\
+https://nytimes.com/athletic/6600163/2025/09/04/mike-tyson-floyd-mayweather-exhibition-fight/
+
 **The Perceptive Pulse of Patina**\
 `For art aficionados, design enthusiasts and music lovers, Patina Hotels & Resorts promises a sanctuary that sparks creativity and connection. `\
 https://nytimes.com/paidpost/patina-hotels-and-resorts/the-perceptive-pulse-of-patina.html
