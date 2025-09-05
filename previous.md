@@ -1,3 +1,7 @@
+**Kyle Tucker remains sidelined, Pete Crow-Armstrong returns as the Cubs build toward the playoffs**\
+`The Cubs aim to have their star outfielders at full strength in time to serve as key pieces during an October run.`\
+https://nytimes.com/athletic/6603057/2025/09/05/kyle-tucker-pete-crow-armstrong-cubs-playoffs/
+
 **Red Sox place struggling reliever Jordan Hicks on injured list**\
 `The righty has an 8.20 ERA with the Red Sox. He's the only player Boston acquired in the Rafael Devers trade to appear in the majors.`\
 https://nytimes.com/athletic/6598716/2025/09/05/red-sox-jordan-hicks-injury/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/05/us/politics/trump-economy-jobs-midterms.html
 **49ers' Christian McCaffrey plans to play vs. Seahawks after calf injury scare**\
 `McCaffrey said he removed himself from Thursday's practice out of an abundance of caution.`\
 https://nytimes.com/athletic/6603024/2025/09/05/christian-mccaffrey-49ers-seahawks-injury/
-
-**Dylan Harper undergoes surgery for partially torn thumb: Source**\
-`The No. 2 overall pick is undergoing surgery in an attempt to return for the Spurs' season opener. `\
-https://nytimes.com/athletic/6603063/2025/09/05/dylan-harper-spurs-injury-finger-surgery-nba/
 

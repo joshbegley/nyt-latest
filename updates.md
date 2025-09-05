@@ -1,3 +1,7 @@
+**Kyle Tucker remains sidelined, Pete Crow-Armstrong returns as the Cubs build toward the playoffs**\
+`The Cubs aim to have their star outfielders at full strength in time to serve as key pieces during an October run.`\
+https://nytimes.com/athletic/6603057/2025/09/05/kyle-tucker-pete-crow-armstrong-cubs-playoffs/
+
 **With Jair Bolsonaro on Trial, Brazil Braces for U.S. Sanctions**\
 `While the Supreme Court weighs the fate of the former president on charges of plotting a coup, Brazil’s government is preparing for more penalties.`\
 https://nytimes.com/2025/09/05/world/americas/bolsonaro-trial-us-brazil-sanctions.html
