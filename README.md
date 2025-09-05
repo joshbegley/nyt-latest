@@ -1,3 +1,11 @@
+**Valkyries give Ballhalla a new crescendo to clinch historic playoff spot**\
+`The Valkyries needed one big basket to lock up a playoff spot. One clutch play to make history. The fitting author: Veronica Burton.`\
+https://nytimes.com/athletic/6600631/2025/09/05/valkyries-playoff-spot-home-game/
+
+**Stephen Colbert Sounds the Alarm on ‘Death by Florida’**\
+`He said that Florida’s decision to stop vaccine mandates would affect not just schoolchildren but also “America’s most vulnerable population: Disney adults.”`\
+https://nytimes.com/2025/09/05/arts/television/stephen-colbert-florida-vaccines.html
+
 **Daniel Levy's shock removal by Spurs: Gibb River review, change in Lewis family relations, what it means for sale**\
 `A Lewis family-instigated review by a US firm into why Spurs were performing so badly ultimately led to the removal of its most powerful man`\
 https://nytimes.com/athletic/6596213/2025/09/05/daniel-levy-spurs-removal-lewis-family/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6600681/2025/09/05/athletics-vs-angels-stream-how-t
 **How to watch Brewers at Pirates: Time, TV, streaming for September 5**\
 `Find out how to watch the Milwaukee Brewers play the Pittsburgh Pirates, with time, TV channel, and streaming information.`\
 https://nytimes.com/athletic/6600679/2025/09/05/brewers-vs-pirates-stream-how-to-watch-sept-5/
-
-**How to watch Twins at Royals: Time, TV, streaming for September 5**\
-`Find out how to watch the Minnesota Twins play the Kansas City Royals, with time, TV channel, and streaming information.`\
-https://nytimes.com/athletic/6600667/2025/09/05/twins-vs-royals-stream-how-to-watch-sept-5/
-
-**How to watch Guardians at Rays: Time, TV, streaming for September 5**\
-`Find out how to watch the Cleveland Guardians play the Tampa Bay Rays, with time, TV channel, and streaming information.`\
-https://nytimes.com/athletic/6600663/2025/09/05/guardians-vs-rays-stream-how-to-watch-sept-5/
 
