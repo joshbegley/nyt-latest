@@ -1,3 +1,19 @@
+**Man Charged in Connection With Fatal Shooting of Woman, 69, in Harlem**\
+`Faisil McCants, 18, was charged with armed robbery and the use of a machine gun in last week’s incident, which left Robin Wright, a bystander, dead.`\
+https://nytimes.com/2025/09/05/nyregion/harlem-nyc-shooting-woman-charges.html
+
+**Luis Suarez and Sergio Busquets suspended for Leagues Cup melee**\
+`Miami's clash with the Seattle Sounders turned ugly and led to repercussions.`\
+https://nytimes.com/athletic/6602744/2025/09/05/suarez-busquets-suspended-inter-miami-leagues-cup/
+
+**Steelers DT Cameron Heyward non-committal on season opener as contract dispute continues**\
+`Heyward had his normal workload this week, as the Steelers prepared for the Jets.`\
+https://nytimes.com/athletic/6602341/2025/09/05/steelers-cameron-heyward-season-opener-contract-dispute/
+
+**Second Weak Jobs Report Undercuts Trump’s Claims of a Booming Economy**\
+`After a bad employment report in August, President Trump fired the official in charge of the numbers. This month’s data was just as disappointing.`\
+https://nytimes.com/2025/09/05/us/politics/trump-jobs-report-tariffs-deportations.html
+
 **Leaders of African Separatist Movement Indicted in Minnesota**\
 `Insurgents seeking to form a new nation for English speakers in Cameroon were led by men living in Minnesota, federal prosecutors said on Friday.`\
 https://nytimes.com/2025/09/05/us/african-separatists-indicted-minnesota-ambazonia-cameroon.html
@@ -21,20 +37,4 @@ https://nytimes.com/2025/09/05/learning/over-100-free-new-york-times-articles-ab
 **What Are Your Thoughts About A.I.? A Forum for Teenagers and Educators**\
 `How have you experimented with generative artificial intelligence, in or outside school? If so, how is it affecting you or those around you? Please share your thoughts.`\
 https://nytimes.com/2025/09/05/learning/what-are-your-thoughts-about-ai-a-forum-for-teenagers-and-educators.html
-
-**Penn State switching to adidas from Nike in 2026 as part of new 10-year deal**\
-`The agreement continues a trend of Adidas securing partnerships with athletics programs with ties to a superstar athlete.`\
-https://nytimes.com/athletic/6600213/2025/09/05/penn-state-adidas-apparel-deal/
-
-**Growing Up With A.I.: A Multimedia Challenge for Teenagers and Educators**\
-`Show us — in words or images, audio or video — how this technology is affecting you and the teenagers you know. Contest dates: Sept. 10-Oct. 22, 2025.`\
-https://nytimes.com/2025/09/05/learning/growing-up-with-ai-a-multimedia-challenge-for-teenagers-and-educators.html
-
-**Anthropic Agrees to Pay $1.5 Billion to Settle Lawsuit With Book Authors**\
-`The settlement is the largest payout in the history of U.S. copyright cases and could lead more A.I. companies to pay rights holders for use of their works.`\
-https://nytimes.com/2025/09/05/technology/anthropic-settlement-copyright-ai.html
-
-**A Revived Focus on an Unproven Link Between Tylenol and Autism**\
-`Studies over the last decade of acetaminophen use in pregnancy — including a recent scientific review — have yielded mixed results but have not found a causal connection.`\
-https://nytimes.com/2025/09/05/health/autism-acetaminophen-tylenol.html
 
