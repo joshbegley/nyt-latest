@@ -1,6 +1,6 @@
-**اسرائیل در جریان هدف قرار دادن مقامات ایران به یک نقطه ضعف دسترسی پیدا کرد: محافظان شخصی**\
-`اسرائیل در طول جنگ ۱۲ روزه در بهار امسال موفق شد با ردگیری تلفن های همراه محافظان شخصی چهره های کلیدی ایران آنها را ردیابی و ترور کند.`\
-https://nytimes.com/2025/09/05/world/middleeast/israel-iran-assassination.html
+**A Zap of Blue Light Shows Promise Against Food and Sweat Stains**\
+`Researchers hope the technique could offer a more environmentally friendly approach to cleaning up messy clothing.`\
+https://nytimes.com/2025/09/05/science/blue-light-stains-laundry.html
 
 **The USMNT's home crowd dilemma is US Soccer's age-old problem**\
 `The USMNT has had to tackle a significant problem - getting large crowds on its side for home internationals`\
@@ -33,8 +33,4 @@ https://nytimes.com/athletic/6600759/2025/09/05/mets-starters-brandon-sproat-the
 **New Orleans Saints schedule 2025: TV, broadcast and streaming info for NOLA's new era**\
 `Amid streaming changes and new media deals, here's how to watch all 17 regular-season Saints games this season.`\
 https://nytimes.com/athletic/6584803/2025/09/05/new-orleans-saints-how-to-watch/
-
-**Sting Is Sued by His Former Bandmates in the Police**\
-`The band’s drummer and guitarist say the singer has underpaid them for the “digital exploitation” of songs like “Every Breath You Take.” Sting’s lawyers call the claim “illegitimate.”`\
-https://nytimes.com/2025/09/05/arts/music/sting-the-police-lawsuit-andy-summers-stewart-copeland.html
 

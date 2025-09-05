@@ -1,3 +1,7 @@
+**A Zap of Blue Light Shows Promise Against Food and Sweat Stains**\
+`Researchers hope the technique could offer a more environmentally friendly approach to cleaning up messy clothing.`\
+https://nytimes.com/2025/09/05/science/blue-light-stains-laundry.html
+
 **اسرائیل در جریان هدف قرار دادن مقامات ایران به یک نقطه ضعف دسترسی پیدا کرد: محافظان شخصی**\
 `اسرائیل در طول جنگ ۱۲ روزه در بهار امسال موفق شد با ردگیری تلفن های همراه محافظان شخصی چهره های کلیدی ایران آنها را ردیابی و ترور کند.`\
 https://nytimes.com/2025/09/05/world/middleeast/israel-iran-assassination.html
