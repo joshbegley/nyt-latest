@@ -1,3 +1,11 @@
+**Giorgio Armani’s Red Carpet Secret? Her Name Was Wanda.**\
+`Armani amassed a cavalcade of celebrity spokespeople. Many came through a former journalist named Wanda McDaniel.`\
+https://nytimes.com/2025/09/05/fashion/giorgio-armani-hollywood-wanda-mcdaniel.html
+
+**Luis Suárez and Sergio Busquets suspended for Leagues Cup melee**\
+`Miami's clash with the Seattle Sounders turned ugly and led to repercussions.`\
+https://nytimes.com/athletic/6602744/2025/09/05/suarez-busquets-suspended-inter-miami-leagues-cup/
+
 **Hassan Ouakrim, Who Brought Moroccan Dance to the U.S., Dies**\
 `A director and choreographer, he introduced Berber dances and music to New York’s downtown theater scene. He also staged elaborate soirees for the wealthy, one attended by Donald Trump.`\
 https://nytimes.com/2025/09/05/arts/dance/hassan-ouakrim-dead.html
