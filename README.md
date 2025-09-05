@@ -1,3 +1,7 @@
+**As England resume World Cup qualifying, Tuchel has four familiar problems to solve**\
+`While Tuchel has only managed four games, no one who watched the June internationals thought England looked close to competing in the U.S.`\
+https://nytimes.com/athletic/6586124/2025/09/05/england-world-cup-qualifying-thomas-tuchel-andorra/
+
 **Europe Is Playing a Long Game on Ukraine, and With Trump**\
 `Leaders on the continent are trying to show the U.S. president that they are serious about laying the groundwork to end the war — and that President Vladimir V. Putin of Russia is not.`\
 https://nytimes.com/2025/09/05/world/europe/europe-ukraine-trump-war-putin.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/04/pageoneplus/corrections-sept-5-2025.html
 **Quote of the Day: After Afghan Quake, Many Male Rescuers Aided Only the Men**\
 `Quotation of the Day for Friday, September 5, 2025.`\
 https://nytimes.com/2025/09/04/pageoneplus/quote-of-the-day-after-afghan-quake-many-male-rescuers-aided-only-the-men.html
-
-**Dodger Details: Swept in Pittsburgh, finding a new low as slide continues**\
-`A 5-3 loss Thursday to the lowly Pittsburgh Pirates gives the Dodgers five losses in their last six games.`\
-https://nytimes.com/athletic/6600212/2025/09/04/dodgers-lose-pirates-sweep/
 

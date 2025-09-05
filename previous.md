@@ -1,40 +1,40 @@
+**Europe Is Playing a Long Game on Ukraine, and With Trump**\
+`Leaders on the continent are trying to show the U.S. president that they are serious about laying the groundwork to end the war — and that President Vladimir V. Putin of Russia is not.`\
+https://nytimes.com/2025/09/05/world/europe/europe-ukraine-trump-war-putin.html
+
+**A Right-Wing Wave in Britain Produces a Teenage Civic Leader**\
+`As Reform U.K. meets for its annual conference, the experience of its youngest municipal leader, George Finch, shows a party trying to combine caution and provocation.`\
+https://nytimes.com/2025/09/05/world/europe/a-right-wing-wave-in-britain-produces-a-teenage-civic-leader.html
+
+**My Boyfriend’s Most Romantic Act**\
+`After my longtime partner and I split up, I got a big, comforting dog. But in a moment of deep sadness, I needed a human being.`\
+https://nytimes.com/2025/09/05/style/modern-love-my-former-ex-boyfriends-most-romantic-act.html
+
+**A Milliner and a Businessman Met in Mexico, Fell in Love in New York**\
+`It was through hats and a cousin that Mariela Osorio and David Gochicoa met at a pop-up. Two months later, they had their first date.`\
+https://nytimes.com/2025/09/05/style/mariela-osorio-david-gochicoa-wedding.html
+
+**A Newcomer Makes a Lasting First Impression**\
+`During Arthur Espinoza’s first date with Dr. Brandon Imp four years ago, he felt “sparks, just like in a cheesy rom-com.”`\
+https://nytimes.com/2025/09/05/style/arthur-espinoza-brandon-imp-wedding.html
+
+**Looking for Community, She Found Love Instead**\
+`What began with a Bucknell University concert committee interview turned into a love story for Madeline Boone and Elias Strizower.`\
+https://nytimes.com/2025/09/05/style/madeline-boone-elias-strizower-wedding.html
+
+**Connections: Sports Edition Coach: Hints for Sept. 5, 2025**\
+`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
+https://nytimes.com/athletic/6598411/2025/09/05/connections-sports-edition-hints-for-sept-5-2025/
+
+**Corrections: Sept. 5, 2025**\
+`Corrections that appeared in print on Friday, Sept. 5, 2025.`\
+https://nytimes.com/2025/09/04/pageoneplus/corrections-sept-5-2025.html
+
+**Quote of the Day: After Afghan Quake, Many Male Rescuers Aided Only the Men**\
+`Quotation of the Day for Friday, September 5, 2025.`\
+https://nytimes.com/2025/09/04/pageoneplus/quote-of-the-day-after-afghan-quake-many-male-rescuers-aided-only-the-men.html
+
 **Dodger Details: Swept in Pittsburgh, finding a new low as slide continues**\
 `A 5-3 loss Thursday to the lowly Pittsburgh Pirates gives the Dodgers five losses in their last six games.`\
 https://nytimes.com/athletic/6600212/2025/09/04/dodgers-lose-pirates-sweep/
-
-**Melania Trump Says ‘the Robots Are Here’**\
-`The first lady, Melania Trump, issued a warning about the future of artificial intelligence during a meeting with tech executives at the White House on Thursday.`\
-https://nytimes.com/video/us/politics/100000010380379/melania-trump-robots-humanity.html
-
-**How to watch Phillies at Marlins: Time, TV, streaming for September 5**\
-`Find out how to watch the Philadelphia Phillies play the Miami Marlins, with time, TV channel, and streaming information.`\
-https://nytimes.com/athletic/6600395/2025/09/04/phillies-vs-marlins-stream-how-to-watch-sept-5/
-
-**How to watch Blue Jays at Yankees: Time, TV, streaming for September 5**\
-`Find out how to watch the Toronto Blue Jays play the New York Yankees, with time, TV channel, and streaming information.`\
-https://nytimes.com/athletic/6600393/2025/09/04/blue-jays-vs-yankees-stream-how-to-watch-sept-5/
-
-**How to watch Padres at Rockies: Time, TV, streaming for September 5**\
-`Find out how to watch the San Diego Padres play the Colorado Rockies, with time, TV channel, and streaming information.`\
-https://nytimes.com/athletic/6600396/2025/09/04/padres-vs-rockies-stream-how-to-watch-sept-5/
-
-**How to watch Red Sox at Diamondbacks: Time, TV, streaming for September 5**\
-`Find out how to watch the Boston Red Sox play the Arizona Diamondbacks, with time, TV channel, and streaming information.`\
-https://nytimes.com/athletic/6600388/2025/09/04/red-sox-vs-diamondbacks-stream-how-to-watch-sept-5/
-
-**How to watch White Sox at Tigers: Time, TV, streaming for September 5**\
-`Find out how to watch the Chicago White Sox play the Detroit Tigers, with time, TV channel, and streaming information.`\
-https://nytimes.com/athletic/6600385/2025/09/04/white-sox-vs-tigers-stream-how-to-watch-sept-5/
-
-**How to watch Giants at Cardinals: Time, TV, streaming for September 5**\
-`Find out how to watch the San Francisco Giants play the St. Louis Cardinals, with time, TV channel, and streaming information.`\
-https://nytimes.com/athletic/6600383/2025/09/04/giants-vs-cardinals-stream-how-to-watch-sept-5/
-
-**Thaksin Shinawatra, Powerful Ex-Premier, Abruptly Leaves Thailand**\
-`Mr. Thaksin flew to Dubai days before a verdict that could send him to prison. He said he would be back in time for the hearing.`\
-https://nytimes.com/2025/09/04/world/asia/thailand-thaksin-shinawatra-dubai.html
-
-**Justice Barrett Argues Her Own Case, and the Court’s**\
-`In a new book, Justice Amy Coney Barrett asks for faith in the Supreme Court but reveals very little.`\
-https://nytimes.com/2025/09/04/us/politics/justice-barrett-explaining-law.html
 
