@@ -1,3 +1,7 @@
+**U.S. Is Increasingly Exposed to Chinese Election Threats, Lawmakers Say**\
+`Two Democrats on the House China committee noted the use of A.I. by Chinese companies as a weapon in information warfare.`\
+https://nytimes.com/2025/09/05/us/politics/us-elections-china-threats.html
+
 **Is It Time for You to ‘Lock In’?**\
 `A social media challenge is asking participants to tackle their goals now, rather than wait for the new year.`\
 https://nytimes.com/2025/09/05/style/great-lock-in-tiktok.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/05/business/american-eagle-sydney-sweeney-ad-earning
 **Mets send Kodai Senga to Triple A in hopes of fixing mechanics**\
 `Both Senga and the Mets are hopeful a sojourn in Triple A will help him get his delivery synced up back to where it was in 2023.`\
 https://nytimes.com/athletic/6602274/2025/09/05/kodai-senga-mets-minor-leagues/
-
-**Flashback: Your Weekly History Quiz, Sept. 6, 2025**\
-`Can you sort 8 historical events?`\
-https://nytimes.com/interactive/2025/09/05/upshot/flashback.html
 
