@@ -31,7 +31,7 @@ https://nytimes.com/video/weather/100000010382111/record-number-of-lightning-str
 https://nytimes.com/newsgraphics/card-story/wc-advice-product-specs
 
 **Adams Vows to Stay in N.Y.C. Mayoral Race**\
-`Eric Adams, the mayor of New York City, said he would continue his campaign amid reports that close advisers to President Trump had been crafting a plan to nominate Adams to be ambassador to Saudi Arabia.`\
+`Eric Adams, the mayor of New York City, said he would continue his campaign amid reports that close advisers to President Trump had been crafting a plan to nominate Mr. Adams to be ambassador to Saudi Arabia.`\
 https://nytimes.com/video/nyregion/100000010382391/eric-adams-nyc-election.html
 
 **Second Weak Jobs Report in Two Months**\
