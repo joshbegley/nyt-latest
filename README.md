@@ -1,3 +1,15 @@
+**Rafael Nadal's tennis and life after an era-defining rivalry: 'We never had time to relax'**\
+`Nadal's life after tennis has not yet seen him pick up a racket. But he has plenty of opinions about its new stars.`\
+https://nytimes.com/athletic/6598134/2025/09/05/rafael-nadal-tennis-retirement-big-three-rivalry/
+
+**Cowboys' CeeDee Lamb has final drive to forget: 'I need to catch the damn ball'**\
+`Lamb said he'll "dread every drop" when reviewing film of the Cowboy' near upset of the Eagles in Week 1.`\
+https://nytimes.com/athletic/6600773/2025/09/05/cowboys-ceedee-lamb-drops-eagles/
+
+**How to watch NASCAR Enjoy Illinois 300: Streaming, schedule as Cup playoffs continue**\
+`Round two of the NASCAR Cup Series playoffs shifts to the Midwest this weekend for the Enjoy Illinois 300 at World Wide Technology Raceway.`\
+https://nytimes.com/athletic/6599235/2025/09/05/nascar-enjoy-illinois-cup-playoffs-how-to-watch/
+
 **What I'm seeing from the Falcons: Belief they're in a better place for 2025**\
 `The Falcons enter the 2025 season with high hopes for their offense and a defense they think can create more game-changing plays.`\
 https://nytimes.com/athletic/6596301/2025/09/05/atlanta-falcons-nfl-preview-2025/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/09/05/well/er-doctors-avoid-tips.html
 **Mamdani’s Donations Surged After the Primary While Cuomo’s Funding Lagged**\
 `Zohran Mamdani, the Democratic candidate for mayor of New York City, has amassed more support from small-dollar donors than his rivals.`\
 https://nytimes.com/interactive/2025/09/05/nyregion/nyc-mayoral-race-mamdani-cuomo-donations.html
-
-**Can I Give Out Full-Size Candy Bars to Children on Halloween?**\
-`A ruling on confectionary etiquette in the haunted season.`\
-https://nytimes.com/interactive/2025/09/05/magazine/halloween-candy-hodgman-quiz.html
-
-**ICE Agents Are Wearing Masks. Is That Un-American?**\
-`The long, strange story of masking and law enforcement.`\
-https://nytimes.com/2025/09/05/us/ice-agents-wearing-masks.html
-
-**Can YouTube Handle Live Sports? The N.F.L. Is the Ultimate Test.**\
-`YouTube’s live broadcast on Friday night of the Kansas City Chiefs and Los Angeles Chargers game is set to be a major test of the platform’s programming ambitions.`\
-https://nytimes.com/2025/09/05/technology/youtube-nfl-live-sports.html
 
