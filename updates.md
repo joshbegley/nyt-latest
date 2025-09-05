@@ -1,3 +1,7 @@
+**Barcelona confirm Romeu departure after contract termination**\
+`The 33-year-old rejoined Barcelona in 2023 after spending time in the club's La Masia academy.`\
+https://nytimes.com/athletic/6602135/2025/09/05/oriol-romeu-barcelona-contract-termination/
+
 **Patriots All-Pro CB Christian Gonzalez ruled out for season opener with hamstring injury**\
 `The third-year corner, for whom the team has high expectations this season, was injured early in training camp and hasn't practiced since.`\
 https://nytimes.com/athletic/6601574/2025/09/05/christian-gonzalez-injury-patriots-raiders-week-1/
