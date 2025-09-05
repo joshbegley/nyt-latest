@@ -10,7 +10,7 @@ https://nytimes.com/2025/09/05/opinion/liberal-conservative-left-right-politics.
 `There may never be a better moment for China, Iran, North Korea and Russia to challenge the U.S.-led global system.`\
 https://nytimes.com/2025/09/05/opinion/china-russia-north-korea-axis.html
 
-**Amanda Anisimova sets up U.S. Open final with Aryna Sabalenka by beating Naomi Osaka**\
+**Amanda Anisimova reaches U.S. Open final with Aryna Sabalenka by beating Naomi Osaka**\
 `Anisimova made the perfect recovery from her Wimbledon final nightmare by reaching a second consecutive Grand Slam final weekend.`\
 https://nytimes.com/athletic/6599187/2025/09/05/amanda-anisimova-naomi-osaka-us-open-semifinal-result-analysis/
 

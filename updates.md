@@ -1,3 +1,19 @@
+**The New York Times in Print for Friday, Sep. 5, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/09/05/todays-new-york-times
+
+**Why I Am Not a Liberal**\
+`I don’t think the left grasps reality in all its fullness.`\
+https://nytimes.com/2025/09/05/opinion/liberal-conservative-left-right-politics.html
+
+**The ‘Axis of Upheaval’ Senses Its Moment**\
+`There may never be a better moment for China, Iran, North Korea and Russia to challenge the U.S.-led global system.`\
+https://nytimes.com/2025/09/05/opinion/china-russia-north-korea-axis.html
+
+**Amanda Anisimova sets up U.S. Open final with Aryna Sabalenka by beating Naomi Osaka**\
+`Anisimova made the perfect recovery from her Wimbledon final nightmare by reaching a second consecutive Grand Slam final weekend.`\
+https://nytimes.com/athletic/6599187/2025/09/05/amanda-anisimova-naomi-osaka-us-open-semifinal-result-analysis/
+
 **Eagles edge Cowboys in season opener after weather delay, spitting ejection**\
 `The Eagles started their Super Bowl defense with a 24-20 win over the Cowboys.`\
 https://nytimes.com/athletic/6600328/2025/09/05/cowboys-eagles-score-results-takeaways/
