@@ -1,3 +1,11 @@
+**49ers' Christian McCaffrey plans to play vs. Seahawks after calf injury scare**\
+`McCaffrey said he removed himself from Thursday's practice out of an abundance of caution.`\
+https://nytimes.com/athletic/6603024/2025/09/05/christian-mccaffrey-49ers-seahawks-injury/
+
+**Dylan Harper undergoes surgery for partially torn thumb: Source**\
+`The No. 2 overall pick is undergoing surgery in an attempt to return for the Spurs' season opener. `\
+https://nytimes.com/athletic/6603063/2025/09/05/dylan-harper-spurs-injury-finger-surgery-nba/
+
 **Off-Duty Pilot Who Tried to Shut Off Engines Expresses Regret in Court**\
 `The former Alaska Airlines pilot had consumed psychedelic mushrooms two days before the flight. Judges approved plea agreements in his case on Friday.`\
 https://nytimes.com/2025/09/05/us/alaska-airlines-pilot-plea-agreement-mushrooms.html
@@ -29,12 +37,4 @@ https://nytimes.com/video/weather/100000010382111/record-number-of-lightning-str
 **Do Product Specs Matter? Here’s Why They Might Be Misleading.**\
 `(No description)`\
 https://nytimes.com/newsgraphics/card-story/wc-advice-product-specs
-
-**Adams Vows to Stay in N.Y.C. Mayoral Race**\
-`Eric Adams, the mayor of New York City, said he would continue his campaign amid reports that close advisers to President Trump had been crafting a plan to nominate Mr. Adams to be ambassador to Saudi Arabia.`\
-https://nytimes.com/video/nyregion/100000010382391/eric-adams-nyc-election.html
-
-**Second Weak Jobs Report in Two Months**\
-`Also, Israel strikes a Gaza City landmark. Here’s the latest at the end of Friday.`\
-https://nytimes.com/2025/09/05/briefing/weak-jobs-report-immigration-raid-millennial-saint.html
 
