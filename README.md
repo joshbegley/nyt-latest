@@ -1,3 +1,15 @@
+**Aryna Sabalenka into U.S. Open final after beating Jessica Pegula from one set down**\
+`Sabalenka reached her second consecutive U.S. Open final with a comeback win over Pegula, who she vanquished in last year's final.`\
+https://nytimes.com/athletic/6599186/2025/09/04/sabalenka-pegula-us-open-semifinal-result-analysis/
+
+**Venezuelan jets flew over a U.S. Navy ship in a show of force.**\
+`The flyover took place two days after the United States carried out a military strike on a boat in the Caribbean that U.S. officials said was carrying drugs.`\
+https://nytimes.com/live/2025/09/04/us/trump-news/venezuela-jets-us-navy-ship-trump
+
+**Hochul to Sign Order to Get Around U.S. Limits on Covid Vaccine**\
+`Gov. Kathy Hochul of New York plans to authorize pharmacists to provide the vaccine to almost anyone who wants it without a prescription.`\
+https://nytimes.com/2025/09/04/nyregion/covid-vaccine-hochul-new-york.html
+
 **Biden Has Surgery to Remove Skin Cancer**\
 `Three months earlier, former President Joseph R. Biden Jr. had a diagnosis of an aggressive form of prostate cancer.`\
 https://nytimes.com/2025/09/04/us/politics/biden-skin-cancer.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/09/04/us/politics/trump-sept-11-museum.html
 **Florida Matriarch Convicted in Murder-for-Hire Plot Against Law Professor**\
 `A jury found Donna Adelson guilty of murder in the 2014 death of her former son-in-law, a Florida law professor named Dan Markel. She is the fifth person to be convicted in the high-profile case.`\
 https://nytimes.com/2025/09/04/us/dan-markel-florida-murder-verdict.html
-
-**How to watch Astros at Rangers: Time, TV, streaming for September 5**\
-`Find out how to watch the Houston Astros play the Texas Rangers, with time, TV channel, and streaming information.`\
-https://nytimes.com/athletic/6599968/2025/09/04/astros-vs-rangers-stream-how-to-watch-sept-5/
-
-**How to watch Mets at Reds: Time, TV, streaming for September 5**\
-`Find out how to watch the New York Mets play the Cincinnati Reds, with time, TV channel, and streaming information.`\
-https://nytimes.com/athletic/6599966/2025/09/04/mets-vs-reds-stream-how-to-watch-sept-5/
-
-**How to watch Dodgers at Orioles: Time, TV, streaming for September 5**\
-`Find out how to watch the Los Angeles Dodgers play the Baltimore Orioles, with time, TV channel, and streaming information.`\
-https://nytimes.com/athletic/6599953/2025/09/04/dodgers-vs-orioles-stream-how-to-watch-sept-5/
 
