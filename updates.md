@@ -1,3 +1,7 @@
+**The Return of the ‘War Department’ Is More Than Nostalgia. It’s a Message.**\
+`President Trump and his defense secretary say they want to return to the era when America won wars. They largely ignore the greatest accomplishment of the past 80 years: avoiding superpower conflict.`\
+https://nytimes.com/2025/09/05/us/politics/the-return-of-the-war-department-is-more-than-nostalgia-its-a-message.html
+
 **A Zap of Blue Light Shows Promise Against Food and Sweat Stains**\
 `Researchers hope the technique could offer a more environmentally friendly approach to cleaning up messy clothing.`\
 https://nytimes.com/2025/09/05/science/blue-light-stains-laundry.html
