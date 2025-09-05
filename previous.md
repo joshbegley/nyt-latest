@@ -1,3 +1,31 @@
+**Scoop City: Four key matchups to watch this weekend**\
+`A weekend watch guide and one costly mistake from the Cowboys defensive coordinator.`\
+https://nytimes.com/athletic/6602246/2025/09/05/four-key-nfl-matchups-week-1-watch-cowboys-eagles/
+
+**Joseph McNeil, Young Spark in a Civil Rights Battle, Dies at 83**\
+`He and his classmates from a historically Black college in Greensboro, N.C., desegregated a Woolworth’s lunch counter in 1960, inspiring similar protests across the nation.`\
+https://nytimes.com/2025/09/05/us/joseph-mcneil-dead.html
+
+**Young Armani Fans Mourn the Loss of Their Favorite Designer**\
+`The Italian designer Giorgio Armani found a thriving young Millennial and Gen Z fan base in recent years.`\
+https://nytimes.com/2025/09/05/style/giorgio-armani-young-fans.html
+
+**10 Novels We’re Looking Forward to This Fall**\
+`Watch for new books by Dan Brown, Thomas Pynchon, Mona Awad and more.`\
+https://nytimes.com/2025/09/05/books/review/10-novels-were-looking-forward-to-this-fall.html
+
+**Renewing with Arsenal was easy for Russo. Now comes the challenge of dethroning Chelsea**\
+`The England striker has seen off competition to become a crucial player since joining from Manchester United in 2023`\
+https://nytimes.com/athletic/6600976/2025/09/05/alessia-russo-arsenal-new-contract-wsl/
+
+**Gaby Dabrowski and Erin Routliffe upset Taylor Townsend and Kateřina Siniaková at U.S. Open**\
+`The Canadian and New Zealander pair upset the No. 1 seed in a gripping final on Arthur Ashe Stadium.`\
+https://nytimes.com/athletic/6602199/2025/09/05/us-open-doubles-dabrowski-routliffe-townsend-siniakova/
+
+**Flip Pallot, Banker Turned TV Fly Fishing Star, Dies at 83**\
+`His long-running outdoor show on ESPN helped popularize an adventurous saltwater sport bent on hooking some of the biggest fish in the sea.`\
+https://nytimes.com/2025/09/05/sports/flip-pallot-dead.html
+
 **Israeli Strike Destroys Building in Gaza City**\
 `Israel targeted a prominent local landmark, the Mushtaha Tower, a day after a military spokesman said it was in control of almost half the city.`\
 https://nytimes.com/video/world/middleeast/100000010381609/gaza-city-israel-building-strike.html
@@ -9,32 +37,4 @@ https://nytimes.com/athletic/6601562/2025/09/05/caitlin-clark-cards-injury/
 **NFL's vow to emphasize sportsmanship was on display in Cowboys-Eagles opener**\
 `It didn’t take long for the NFL's new emphasis on sportsmanship to surface during the Eagles-Cowboys regular season opener.`\
 https://nytimes.com/athletic/6602123/2025/09/05/nfl-sportsmanship-emphasis-penalties/
-
-**How to Watch the Blood Moon and Total Lunar Eclipse**\
-`People in the Eastern Hemisphere may see Earth’s shadow pass over the lunar surface, covering our world’s natural satellite in a flush of red.`\
-https://nytimes.com/2025/09/05/science/blood-moon-total-lunar-eclipse-where-when.html
-
-**College football Week 2 projected scores: Model predicts every FBS vs. FBS game**\
-`Austin Mock's projection model has predicted margins of victory and point totals for every FBS vs. FBS Week 2 college football game.`\
-https://nytimes.com/athletic/6602179/2025/09/05/college-football-week-2-projected-scores-michigan-oklahoma/
-
-**What We Know About Trump’s Crime and Immigration Crackdown in U.S. Cities**\
-`The president has sent soldiers and federal agents to some cities, and promised to do the same in others, prompting lawsuits and stirring outrage among local leaders.`\
-https://nytimes.com/article/trump-national-guard-military-cities.html
-
-**After a Resignation in London, Farage Seeks to Capitalize on Labour’s Turmoil**\
-`Nigel Farage, the leader of the anti-immigration party Reform U.K., spoke to supporters just after news broke that the deputy prime minister had resigned.`\
-https://nytimes.com/2025/09/05/world/europe/angela-rayner-nigel-farage-reform-uk-labour.html
-
-**Pochettino 'in shock' over Levy's Tottenham departure**\
-`Pochettino said he and Levy shared a "very good" relationship during his five-year spell as head coach of the north London club.`\
-https://nytimes.com/athletic/6602113/2025/09/05/mauricio-pochettino-daniel-levy-tottenham-departure/
-
-**Trump’s Lethal Misuse of War Powers**\
-`Readers discuss President Trump’s claim that he has the right to conduct the extrajudicial killing of alleged drug dealers. Also: Crime trends.`\
-https://nytimes.com/2025/09/05/opinion/trump-war-powers.html
-
-**A. James Hudspeth, Who Unlocked Mysteries Behind Hearing, Dies at 79**\
-`He was pivotal in discovering how sound waves are converted into signals that the brain can perceive as a whisper, a symphony or a thunderclap.`\
-https://nytimes.com/2025/09/05/science/dr-a-james-hudspeth-dead.html
 
