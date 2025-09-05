@@ -1,3 +1,7 @@
+**Melania Trump Says ‘the Robots Are Here’**\
+`The first lady, Melania Trump, issued a warning about the future of artificial intelligence during a meeting with tech executives at the White House on Thursday.`\
+https://nytimes.com/video/us/politics/100000010380379/melania-trump-robots-humanity.html
+
 **How to watch Phillies at Marlins: Time, TV, streaming for September 5**\
 `Find out how to watch the Philadelphia Phillies play the Miami Marlins, with time, TV channel, and streaming information.`\
 https://nytimes.com/athletic/6600395/2025/09/04/phillies-vs-marlins-stream-how-to-watch-sept-5/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/04/us/politics/justice-barrett-explaining-law.html
 **Lionel Messi scores twice in emotional Argentina farewell**\
 `"To finish in this way, here with my people, is a dream," Messi said after his final home World Cup qualifier for Argentina.`\
 https://nytimes.com/athletic/6600203/2025/09/04/lionel-messi-conmebol-argentina-record-qualifying/
-
-**Eagles-Cowboys game suspended in third quarter due to lightning, set to resume at 11:30 p.m.**\
-`The Eagles had just recovered a Cowboys fumble and lead 24-20 in the third quarter.`\
-https://nytimes.com/athletic/6600297/2025/09/04/weather-delay-nfl-cowboys-eagles-season-kickoff/
 
