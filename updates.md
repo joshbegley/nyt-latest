@@ -1,3 +1,7 @@
+**Biden Has Surgery to Remove Skin Cancer Lesions**\
+`Three months earlier, former President Joseph R. Biden Jr. had a diagnosis of an aggressive form of prostate cancer.`\
+https://nytimes.com/2025/09/04/us/politics/biden-skin-cancer.html
+
 **Mike Tyson, Floyd Mayweather agree to exhibition match in 2026**\
 `The date and location of the exhibition have not been decided.`\
 https://nytimes.com/athletic/6600163/2025/09/04/mike-tyson-floyd-mayweather-exhibition-fight/
