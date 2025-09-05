@@ -1,3 +1,7 @@
+**Chicago Braces for Trump’s Immigration Crackdown**\
+`Protesters held demonstrations and city leaders spoke against the prospect of a surge of federal agents.`\
+https://nytimes.com/2025/09/05/us/chicago-braces-for-trumps-immigration-crackdown.html
+
 **Answer 4 Questions. Leave With a Thriller You’ll Love.**\
 `Tell us a few things about what you like, and we’ll give you a spot-on book recommendation.`\
 https://nytimes.com/interactive/2025/09/05/books/thriller-book-quiz.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6600976/2025/09/05/alessia-russo-arsenal-new-contra
 **Gaby Dabrowski and Erin Routliffe upset Taylor Townsend and Kateřina Siniaková at U.S. Open**\
 `The Canadian and New Zealander pair upset the No. 1 seed in a gripping final on Arthur Ashe Stadium.`\
 https://nytimes.com/athletic/6602199/2025/09/05/us-open-doubles-dabrowski-routliffe-townsend-siniakova/
-
-**Flip Pallot, Banker Turned TV Fly Fishing Star, Dies at 83**\
-`His long-running outdoor show on ESPN helped popularize an adventurous saltwater sport bent on hooking some of the biggest fish in the sea.`\
-https://nytimes.com/2025/09/05/sports/flip-pallot-dead.html
 
