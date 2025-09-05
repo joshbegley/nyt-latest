@@ -1,4 +1,8 @@
 **Putin Warns West Against Deploying Troops in Ukraine Before Peace Deal**\
+`The Russian leader said any forces stationed on Ukrainian soil before Moscow has reached an agreement with Kyiv would make them “legitimate targets.”`\
+https://nytimes.com/2025/09/05/world/europe/russia-ukraine-putin-western-troops.html
+
+**Putin Warns West Against Deploying Troops in Ukraine Before Peace Deal**\
 `The Russian leader said any forces stationed on Ukrainian soil before Moscow has reached an agreement with Kyiv would make them a “legitimate target.”`\
 https://nytimes.com/2025/09/05/world/europe/russia-ukraine-putin-western-troops.html
 
