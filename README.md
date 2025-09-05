@@ -1,3 +1,7 @@
+**London City Lionesses sign Geyoro from PSG**\
+`Geyoro played in all four of France's matches at the European Championships this summer, scoring twice.`\
+https://nytimes.com/athletic/6597503/2025/09/05/grace-geyoro-london-city-lionesses-psg/
+
 **Valkyries give Ballhalla a new crescendo to clinch historic playoff spot**\
 `The Valkyries needed one big basket to lock up a playoff spot. One clutch play to make history. The fitting author: Veronica Burton.`\
 https://nytimes.com/athletic/6600631/2025/09/05/valkyries-playoff-spot-home-game/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6600547/2025/09/05/steve-ballmer-kawhi-leonard-endo
 **How to watch Athletics at Angels: Time, TV, streaming for September 5**\
 `Find out how to watch the Athletics play the Los Angeles Angels, with time, TV channel, and streaming information.`\
 https://nytimes.com/athletic/6600681/2025/09/05/athletics-vs-angels-stream-how-to-watch-sept-5/
-
-**How to watch Brewers at Pirates: Time, TV, streaming for September 5**\
-`Find out how to watch the Milwaukee Brewers play the Pittsburgh Pirates, with time, TV channel, and streaming information.`\
-https://nytimes.com/athletic/6600679/2025/09/05/brewers-vs-pirates-stream-how-to-watch-sept-5/
 
