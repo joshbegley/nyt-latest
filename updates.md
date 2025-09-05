@@ -1,3 +1,5 @@
+
+
 **UNC vs. TCU averages 6.6 million viewers in Bill Belichick's college coaching debut**\
 `Bill Belichick's North Carolina coaching debut was a bust as far as the scoreboard, but it came up big with television viewership.`\
 https://nytimes.com/athletic/6599805/2025/09/04/unc-tcu-viewership-ratings-bill-belichick/
