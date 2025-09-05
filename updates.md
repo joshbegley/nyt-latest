@@ -1,3 +1,11 @@
+**Macron Said That 26 Countries Would Secure Ukraine**\
+`The pledges were made in Paris at a summit designed to show that Europe is ready to uphold any future peace deal for Ukraine.`\
+https://nytimes.com/2025/09/05/briefing/macron-ukraine-europe-afghan-quake-giorgio-armani.html
+
+**The art of fielding in cricket: 'The best make it look easy. It isn't'**\
+`The Athletic spends a day at Headingley undergoing a fielding masterclass with Carl Hopkinson, the Northern Superchargers' specialist coach`\
+https://nytimes.com/athletic/6591735/2025/09/05/fielding-cricket-hopkinson-masterclass/
+
 **The Athletic's starting XI of free agents**\
 `The Premier League transfer window may be shut, but there is still opportunity for clubs to bolster their squads`\
 https://nytimes.com/athletic/6597885/2025/09/05/free-agents-premier-league/
