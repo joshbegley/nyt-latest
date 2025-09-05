@@ -1,3 +1,11 @@
+**New Summer Camp Safety Laws Follow Texas’ Tragic Floods**\
+`The families of “Heaven’s 27,” the children and counselors lost at Camp Mystic, pressed the Legislature to toughen flood rules over the objections of some Hill Country camp operators.`\
+https://nytimes.com/2025/09/05/us/politics/texas-summer-camp-safety-rules.html
+
+**Questions Arise Over Hiring of Firm to Run $11 Billion Health Care Program**\
+`The bidding process was questioned on Friday after the company, Public Partnerships LLC, admitted it had exchanged unspecified communications with state officials before the contract was awarded.`\
+https://nytimes.com/2025/09/05/nyregion/public-partnership-homecare.html
+
 **Questions Arise Over Hiring of Firm to Run $11 Billion Health Care Program**\
 `The bidding process was questioned on Friday after the company, Public Partnerships LLC, admitted it had exchanged unspecified communications with state officials before the contract was awarded.`\
 https://nytimes.com/2025/09/05/nyregion/questions-arise-over-hiring-of-firm-to-run-11-billion-health-care-program.html
