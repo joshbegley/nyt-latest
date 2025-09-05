@@ -1,3 +1,7 @@
+**Kim Jong-un Leaves Beijing With Big Diplomatic Wins**\
+`Mr. Kim’s presence at a Chinese military parade was a sign of his growing geopolitical ​leverage and that North Korea was being accepted as a de facto nuclear power.`\
+https://nytimes.com/2025/09/05/world/asia/north-korea-china-nuclear.html
+
 **The New York Times in Print for Friday, Sep. 5, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/09/05/todays-new-york-times
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6591735/2025/09/05/fielding-cricket-hopkinson-maste
 **Why Guiu is far more than a bit-part player at Chelsea**\
 `The Spanish striker is highly rated at Stamford Bridge and is determined to take his unexpected chance`\
 https://nytimes.com/athletic/6597652/2025/09/05/marc-guiu-chelsea-transfer-future/
-
-**Real Madrid's midfield enters a new era under Xabi Alonso. Who will step up?**\
-`The new La Liga season marks the beginning of a crucial phase in the careers of several midfield options at the Bernabeu`\
-https://nytimes.com/athletic/6597404/2025/09/05/xabi-alonso-real-madrid-guler-tchouameni-camavinga/
 
