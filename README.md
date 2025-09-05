@@ -1,3 +1,7 @@
+**Word of the Day: gaggle**\
+`This word has appeared in 100 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2025/09/05/learning/word-of-the-day-gaggle.html
+
 **Kim Jong-un Leaves Beijing With Big Diplomatic Wins**\
 `Mr. Kim’s presence at a Chinese military parade was a sign of his growing geopolitical ​leverage and that North Korea was being accepted as a de facto nuclear power.`\
 https://nytimes.com/2025/09/05/world/asia/north-korea-china-nuclear.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/05/briefing/macron-ukraine-europe-afghan-quake-giorg
 **The art of fielding in cricket: 'The best make it look easy. It isn't'**\
 `The Athletic spends a day at Headingley undergoing a fielding masterclass with Carl Hopkinson, the Northern Superchargers' specialist coach`\
 https://nytimes.com/athletic/6591735/2025/09/05/fielding-cricket-hopkinson-masterclass/
-
-**Why Guiu is far more than a bit-part player at Chelsea**\
-`The Spanish striker is highly rated at Stamford Bridge and is determined to take his unexpected chance`\
-https://nytimes.com/athletic/6597652/2025/09/05/marc-guiu-chelsea-transfer-future/
 
