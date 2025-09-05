@@ -1,3 +1,15 @@
+**The Perceptive Pulse of Patina**\
+`For art aficionados, design enthusiasts and music lovers, Patina Hotels & Resorts promises a sanctuary that sparks creativity and connection. `\
+https://nytimes.com/paidpost/patina-hotels-and-resorts/the-perceptive-pulse-of-patina.html
+
+**Goal of a Squeeze Bunt**\
+`Bryan Cheong makes his New York Times Crossword debut.`\
+https://nytimes.com/2025/09/04/crosswords/daily-puzzle-2025-09-05.html
+
+**Health Dept. Plans Vaccine Poll Run by Trump Ally’s Firm**\
+`The no-bid contract was published amid Secretary Robert F. Kennedy Jr.’s effort to move the nation’s health infrastructure away from some vaccines.`\
+https://nytimes.com/2025/09/04/us/politics/hhs-vaccines-poll-harrisx-trump-rfk.html
+
 **Phillies takeaways: Outfield platoons, the bullpen churn, more from series win vs. Brewers**\
 `Rob Thomson’s decision to sit Nick Castellanos on Thursday made it clear: The Phillies are platooning in both outfield corners.`\
 https://nytimes.com/athletic/6599993/2025/09/04/phillies-outfield-platoons-bullpen-brewers-series/

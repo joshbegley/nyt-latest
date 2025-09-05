@@ -1,3 +1,15 @@
+**The Perceptive Pulse of Patina**\
+`For art aficionados, design enthusiasts and music lovers, Patina Hotels & Resorts promises a sanctuary that sparks creativity and connection. `\
+https://nytimes.com/paidpost/patina-hotels-and-resorts/the-perceptive-pulse-of-patina.html
+
+**Goal of a Squeeze Bunt**\
+`Bryan Cheong makes his New York Times Crossword debut.`\
+https://nytimes.com/2025/09/04/crosswords/daily-puzzle-2025-09-05.html
+
+**Health Dept. Plans Vaccine Poll Run by Trump Ally’s Firm**\
+`The no-bid contract was published amid Secretary Robert F. Kennedy Jr.’s effort to move the nation’s health infrastructure away from some vaccines.`\
+https://nytimes.com/2025/09/04/us/politics/hhs-vaccines-poll-harrisx-trump-rfk.html
+
 **Phillies takeaways: Outfield platoons, the bullpen churn, more from series win vs. Brewers**\
 `Rob Thomson’s decision to sit Nick Castellanos on Thursday made it clear: The Phillies are platooning in both outfield corners.`\
 https://nytimes.com/athletic/6599993/2025/09/04/phillies-outfield-platoons-bullpen-brewers-series/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/09/04/us/politics/biden-skin-cancer.html
 **With October drawing near, the Cubs need Seiya Suzuki back in his comfort zone**\
 `The best version of that Cubs team has Suzuki launching home runs and doing silly celebrations with Pete Crow-Armstrong in the dugout.`\
 https://nytimes.com/athletic/6599889/2025/09/04/chicago-cubs-seiya-suzuki-analysis/
-
-**Indiana Fever's Caitlin Clark out for rest of season with groin injury**\
-`The Indiana Fever second-year guard has not played since July 15.`\
-https://nytimes.com/athletic/6600008/2025/09/04/caitlin-clark-ruled-out-season-injury/
-
-**Donald Trump to attend U.S. Open men's final in first appearance since 2015: Source**\
-`Trump was booed during his last appearance, which came during his first presidential campaign.`\
-https://nytimes.com/athletic/6599732/2025/09/04/donald-trump-us-open-appearance-mens-final/
-
-**Eagles' Jalen Carter ejected after spitting on Cowboys' Dak Prescott**\
-`Carter exited the season opener against the Cowboys before the first offensive play of the game.`\
-https://nytimes.com/athletic/6600000/2025/09/04/jalen-carter-ejected-eagles-cowboys/
 
