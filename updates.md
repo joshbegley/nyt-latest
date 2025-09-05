@@ -1,3 +1,15 @@
+**Thaksin Shinawatra, Powerful Ex-Premier, Abruptly Leaves Thailand**\
+`Mr. Thaksin flew to Dubai days before a verdict that could send him to prison. He said he would be back in time for the hearing.`\
+https://nytimes.com/2025/09/04/world/asia/thailand-thaksin-shinawatra-dubai.html
+
+**Justice Barrett Argues Her Own Case, and the Court’s**\
+`In a new book, Justice Amy Coney Barrett asks for faith in the Supreme Court but reveals very little.`\
+https://nytimes.com/2025/09/04/us/politics/justice-barrett-explaining-law.html
+
+**Lionel Messi breaks CONMEBOL scoring record in emotional Argentina farewell**\
+`"To finish in this way, here with my people, is a dream," Messi said after his final home World Cup qualifier for Argentina.`\
+https://nytimes.com/athletic/6600203/2025/09/04/lionel-messi-conmebol-argentina-record-qualifying/
+
 **Eagles-Cowboys game suspended in third quarter due to lightning**\
 `The Eagles had just recovered a Cowboys fumble and lead 24-20 in the third quarter.`\
 https://nytimes.com/athletic/6600297/2025/09/04/weather-delay-nfl-cowboys-eagles-season-kickoff/
