@@ -1,3 +1,7 @@
+**Barcelona confirm Romeu departure after contract termination**\
+`The 33-year-old rejoined Barcelona in 2023 after spending time in the club's La Masia academy.`\
+https://nytimes.com/athletic/6602135/2025/09/05/oriol-romeu-barcelona-contract-termination/
+
 **Patriots All-Pro CB Christian Gonzalez ruled out for season opener with hamstring injury**\
 `The third-year corner, for whom the team has high expectations this season, was injured early in training camp and hasn't practiced since.`\
 https://nytimes.com/athletic/6601574/2025/09/05/christian-gonzalez-injury-patriots-raiders-week-1/
@@ -29,8 +33,4 @@ https://nytimes.com/2025/09/05/world/europe/duchess-of-kent-dead.html
 **Until Saturday: Plenty to love in weaker CFB schedule**\
 `Until Saturday is The Athletic's free CFB newsletter.`\
 https://nytimes.com/athletic/6602023/2025/09/05/devin-hester-jr-eddie-robinson-jr-until-saturday/
-
-**NFL Week 1 projected scores: Model predicts point spreads and totals for every game**\
-`Austin Mock's projection model predicts point spreads and point totals for all 16 NFL Week 1 games.`\
-https://nytimes.com/athletic/6598769/2025/09/05/nfl-week-1-projected-scores-point-spreads-totals/
 
