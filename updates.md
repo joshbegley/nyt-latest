@@ -1,3 +1,11 @@
+**Trump Is Exploring Ways to Take Over the Sept. 11 Memorial and Museum**\
+`It was unclear exactly how the federal government would take control of the site in Lower Manhattan. As a candidate, Mr. Trump offered a preview of one potential option.`\
+https://nytimes.com/2025/09/04/us/politics/trump-sept-11-museum.html
+
+**Florida Matriarch Convicted in Murder-for-Hire Plot Against Law Professor**\
+`A jury found Donna Adelson guilty of murder in the 2014 death of her former son-in-law, a Florida law professor named Dan Markel. She is the fifth person to be convicted in the high-profile case.`\
+https://nytimes.com/2025/09/04/us/dan-markel-florida-murder-verdict.html
+
 **Christian McCaffrey limited by calf injury at 49ers practice**\
 `McCaffrey, who missed the first half of the 2024 season with what was called a calf injury, was not listed on Wednesday's injury report.`\
 https://nytimes.com/athletic/6599904/2025/09/04/christian-mccaffrey-injury-calf-49ers/

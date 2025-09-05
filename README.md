@@ -1,3 +1,11 @@
+**Donald Trump to attend U.S. Open men's final in first appearance since 2015: Source**\
+`Trump was booed on his last appearance, which came during his first presidential campaign.`\
+https://nytimes.com/athletic/6599732/2025/09/04/donald-trump-us-open-appearance-mens-final/
+
+**Eagles' Jalen Carter ejected after spitting on Cowboys' Dak Prescott**\
+`Carter exited the season opener against the Cowboys before the first offensive play of the game.`\
+https://nytimes.com/athletic/6600000/2025/09/04/jalen-carter-ejected-eagles-cowboys/
+
 **Trump Is Exploring Ways to Take Over the Sept. 11 Memorial and Museum**\
 `It was unclear exactly how the federal government would take control of the site in Lower Manhattan. As a candidate, Mr. Trump offered a preview of one potential option.`\
 https://nytimes.com/2025/09/04/us/politics/trump-sept-11-museum.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/09/04/us/harvard-funding-decision-reaction-students.htm
 **Christian McCaffrey limited by calf injury at 49ers practice**\
 `McCaffrey, who missed the first half of the 2024 season with what was called a calf injury, was not listed on Wednesday's injury report.`\
 https://nytimes.com/athletic/6599904/2025/09/04/christian-mccaffrey-injury-calf-49ers/
-
-**UNC vs. TCU averages 6.6 million viewers in Bill Belichick's college coaching debut**\
-`Bill Belichick's North Carolina coaching debut was a bust as far as the scoreboard, but it came up big with television viewership.`\
-https://nytimes.com/athletic/6599805/2025/09/04/unc-tcu-viewership-ratings-bill-belichick/
-
-**Pennsylvania Couple Kept 5 Children in ‘Deplorable’ Conditions, Police Say**\
-`The children, between the ages of 5 and 14, were locked in a room that the authorities said “functioned as a dungeon,” with no beds and boarded-up windows.`\
-https://nytimes.com/2025/09/04/us/pennsylvania-parents-children-dungeon-arrest.html
 

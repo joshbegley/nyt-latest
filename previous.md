@@ -1,5 +1,9 @@
+**Trump Is Exploring Ways to Take Over the Sept. 11 Memorial and Museum**\
+`It was unclear exactly how the federal government would take control of the site in Lower Manhattan. As a candidate, Mr. Trump offered a preview of one potential option.`\
+https://nytimes.com/2025/09/04/us/politics/trump-sept-11-museum.html
+
 **Florida Matriarch Convicted in Murder-for-Hire Plot Against Law Professor**\
-`A jury found Donna Adelson guilty of murder in the high-profile death of her former son-in-law, a Florida law professor named Dan Markel.`\
+`A jury found Donna Adelson guilty of murder in the 2014 death of her former son-in-law, a Florida law professor named Dan Markel. She is the fifth person to be convicted in the high-profile case.`\
 https://nytimes.com/2025/09/04/us/dan-markel-florida-murder-verdict.html
 
 **How to watch Astros at Rangers: Time, TV, streaming for September 5**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6599805/2025/09/04/unc-tcu-viewership-ratings-bill-
 **Pennsylvania Couple Kept 5 Children in ‘Deplorable’ Conditions, Police Say**\
 `The children, between the ages of 5 and 14, were locked in a room that the authorities said “functioned as a dungeon,” with no beds and boarded-up windows.`\
 https://nytimes.com/2025/09/04/us/pennsylvania-parents-children-dungeon-arrest.html
-
-**Trump Administration to End Security Programs Protecting European Allies From Russia**\
-`Ending the longstanding program is expected to impact hundreds of millions of dollars that have gone toward countries that border Russia.`\
-https://nytimes.com/2025/09/04/us/politics/trump-europe-russia-security.html
 
