@@ -1,3 +1,19 @@
+**The Athletic's starting XI of free agents**\
+`The Premier League transfer window may be shut, but there is still opportunity for clubs to bolster their squads`\
+https://nytimes.com/athletic/6597885/2025/09/05/free-agents-premier-league/
+
+**Why Guiu is far more than a bit-part player at Chelsea**\
+`The Spanish striker is highly rated at Stamford Bridge and is determined to take his unexpected chance`\
+https://nytimes.com/athletic/6597652/2025/09/05/marc-guiu-chelsea-transfer-future/
+
+**Real Madrid's midfield enters a new era under Xabi Alonso. Who will step up?**\
+`The new La Liga season marks the beginning of a crucial phase in the careers of several midfield options at the Bernabeu`\
+https://nytimes.com/athletic/6597404/2025/09/05/xabi-alonso-real-madrid-guler-tchouameni-camavinga/
+
+**Did Leeds United's inability to sell players make them miss out on top targets?**\
+`The club’s managing director faced the media within 24 hours of Monday’s 7pm deadline, with no topics off the table`\
+https://nytimes.com/athletic/6598023/2025/09/05/leeds-united-missed-targets/
+
 **Analysing Jeff Shi's comments on Wolves transfers, strategy, and Strand Larsen**\
 `What should Wolves fans make of the chairman's comments following a summer transfer window that has left many fearing what lies ahead?`\
 https://nytimes.com/athletic/6599196/2025/09/05/jeff-shi-interview-analysed/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6587374/2025/09/05/fsg-out-liverpool/
 **With Mourinho, Solskjaer and Ten Hag sacked in one week, what remains of their United legacy?**\
 `In the space of a week, three former United managers were dismissed from their jobs. All the while, speculation swirled around Amorim`\
 https://nytimes.com/athletic/6591645/2025/09/05/manchester-united-premier-league-mourinho-solskjaer-ten-hag/
-
-**How Ederson transformed conventional wisdom about goalkeeping in the Premier League**\
-`In praise of the Brazilian who took risks, created goals and won six titles with Pep Guardiola and Manchester City `\
-https://nytimes.com/athletic/6597555/2025/09/05/ederson-goalkeeping-premier-league-manchester-city/
-
-**As England resume World Cup qualifying, Tuchel has four familiar problems to solve**\
-`While Tuchel has only managed four games, no one who watched the June internationals thought England looked close to competing in the U.S.`\
-https://nytimes.com/athletic/6586124/2025/09/05/england-world-cup-qualifying-thomas-tuchel-andorra/
-
-**Europe Is Playing a Long Game on Ukraine, and With Trump**\
-`Leaders on the continent are trying to show the U.S. president that they are serious about laying the groundwork to end the war — and that President Vladimir V. Putin of Russia is not.`\
-https://nytimes.com/2025/09/05/world/europe/europe-ukraine-trump-war-putin.html
-
-**A Right-Wing Wave in Britain Produces a Teenage Civic Leader**\
-`As Reform U.K. meets for its annual conference, the experience of its youngest municipal leader, George Finch, shows a party trying to combine caution and provocation.`\
-https://nytimes.com/2025/09/05/world/europe/a-right-wing-wave-in-britain-produces-a-teenage-civic-leader.html
 
