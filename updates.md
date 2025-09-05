@@ -1,3 +1,7 @@
+**U.S. Is Increasingly Exposed to Chinese Election Threats, Lawmakers Say**\
+`Two Democrats on the House China committee noted the use of A.I. by Chinese companies as a weapon in information warfare.`\
+https://nytimes.com/2025/09/05/us/politics/us-elections-china-threats.html
+
 **Is It Time for You to ‘Lock In’?**\
 `A social media challenge is asking participants to tackle their goals now, rather than wait for the new year.`\
 https://nytimes.com/2025/09/05/style/great-lock-in-tiktok.html
