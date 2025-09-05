@@ -1,5 +1,13 @@
+**Phillies takeaways: Outfield platoons, the bullpen churn, more from series win vs. Brewers**\
+`Rob Thomson’s decision to sit Nick Castellanos on Thursday made it clear: The Phillies are platooning in both outfield corners.`\
+https://nytimes.com/athletic/6599993/2025/09/04/phillies-outfield-platoons-bullpen-brewers-series/
+
+**Meet the Artist Bedazzling Naomi Osaka’s Labubus (Overnight)**\
+`Every match of a thrilling U.S. Open run has featured a custom crystal-clad creation. Kerin Rose Gold took us behind the scenes.`\
+https://nytimes.com/2025/09/04/style/naomi-osaka-labubu-us-open.html
+
 **Aryna Sabalenka into U.S. Open final after beating Jessica Pegula from one set down**\
-`Sabalenka reached her second consecutive U.S. Open final with a comeback win over Pegula, who she vanquished in last year's final.`\
+`Sabalenka reached her second consecutive U.S. Open final with a comeback win over Pegula, whom she vanquished in last year's final.`\
 https://nytimes.com/athletic/6599186/2025/09/04/sabalenka-pegula-us-open-semifinal-result-analysis/
 
 **Venezuelan Jets Fly Over U.S. Navy Ship in Show of Force**\
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6599732/2025/09/04/donald-trump-us-open-appearance-
 **Eagles' Jalen Carter ejected after spitting on Cowboys' Dak Prescott**\
 `Carter exited the season opener against the Cowboys before the first offensive play of the game.`\
 https://nytimes.com/athletic/6600000/2025/09/04/jalen-carter-ejected-eagles-cowboys/
-
-**Trump Is Exploring Ways to Take Over the Sept. 11 Memorial and Museum**\
-`It was unclear exactly how the federal government would take control of the site in Lower Manhattan. As a candidate, Mr. Trump offered a preview of one potential option.`\
-https://nytimes.com/2025/09/04/us/politics/trump-sept-11-museum.html
-
-**Florida Matriarch Convicted in Murder-for-Hire Plot Against Law Professor**\
-`A jury found Donna Adelson guilty of murder in the 2014 death of her former son-in-law, a Florida law professor named Dan Markel. She is the fifth person to be convicted in the high-profile case.`\
-https://nytimes.com/2025/09/04/us/dan-markel-florida-murder-verdict.html
 
