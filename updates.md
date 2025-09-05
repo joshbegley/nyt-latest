@@ -1,3 +1,15 @@
+**Is It Time for You to ‘Lock In’?**\
+`A social media challenge is asking participants to tackle their goals now, rather than wait for the new year.`\
+https://nytimes.com/2025/09/05/style/great-lock-in-tiktok.html
+
+**Penn State switching to adidas from Nike in 2026 as part of new 10-year deal**\
+`The agreement continues a trend of Adidas securing partnerships with athletics programs with ties to a superstar athlete.`\
+https://nytimes.com/athletic/6600213/2025/09/05/penn-state-adidas-apparel-deal/
+
+**Anthropic Agrees to Pay $1.5 Billion to Settle Lawsuit With Book Authors**\
+`The settlement is the largest payout in the history of U.S. copyright cases and could lead more A.I. companies to pay rights holders for use of their works.`\
+https://nytimes.com/2025/09/05/technology/anthropic-settlement-copyright-ai.html
+
 **Over 100 Free New York Times Articles About How A.I. Is Changing Our World**\
 `To go along with our contest, here are scores of recent, free Times articles, videos, opinion pieces, videos, quizzes and podcasts about the effects of this world-changing technology. Which pieces most interest you?`\
 https://nytimes.com/2025/09/05/learning/over-100-free-new-york-times-articles-about-how-ai-is-changing-our-world.html
