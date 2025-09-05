@@ -1,3 +1,15 @@
+**With October drawing near, the Cubs need Seiya Suzuki back in his comfort zone**\
+`he best version of that Cubs team has Suzuki launching home runs and doing silly celebrations with Pete Crow-Armstrong in the dugout.`\
+https://nytimes.com/athletic/6599889/2025/09/04/chicago-cubs-seiya-suzuki-analysis/
+
+**Indiana Fever's Caitlin Clark out for rest of season with groin injury**\
+`The Indiana Fever second-year guard has not played since July 15.`\
+https://nytimes.com/athletic/6600008/2025/09/04/caitlin-clark-ruled-out-season-injury/
+
+**Donald Trump to attend U.S. Open men's final in first appearance since 2015: Source**\
+`Trump was booed during his last appearance, which came during his first presidential campaign.`\
+https://nytimes.com/athletic/6599732/2025/09/04/donald-trump-us-open-appearance-mens-final/
+
 **Indiana Fever's Caitlin Clark out for rest the season with groin injury**\
 `The Indiana Fever second-year guard has not played since July 15.`\
 https://nytimes.com/athletic/6600008/2025/09/04/caitlin-clark-ruled-out-season-injury/
