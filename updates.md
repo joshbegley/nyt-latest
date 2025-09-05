@@ -1,3 +1,7 @@
+**Google Is Fined $3.5 Billion for Breaking Europe’s Antitrust Laws**\
+`European Union officials accused the American tech giant of using its size and dominance to undercut rivals in the online advertising market.`\
+https://nytimes.com/2025/09/05/business/google-eu-antitrust-fine.html
+
 **With Audi Poised to Take Over, Sauber Rises in the F1 Standings**\
 `The automotive giant has committed to Formula 1 next year and will provide new resources, including its own power unit. Now the team is experiencing a bit of a surge.`\
 https://nytimes.com/2025/09/05/sports/autoracing/f1-sauber-audi.html
