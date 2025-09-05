@@ -1,5 +1,9 @@
-**Putin Warns West Against Deploying Troops in Ukraine Before Peace Deal**\
-`The Russian leader said any forces stationed on Ukrainian soil before Moscow has reached an agreement with Kyiv would make them “legitimate targets.”`\
+**Former Chelsea midfielder Ji joins Birmingham on loan from Seattle Reign**\
+`Ji will play in Women's Super League 2, English football's second tier, after Birmingham narrowly missed out on promotion last season.`\
+https://nytimes.com/athletic/6600783/2025/09/05/ji-so-yun-birmingham-seattle-loan/
+
+**Putin Warns Western Troops in Ukraine Before a Peace Deal Would Be ‘Targets’**\
+`The Russian leader made the threat a day after European leaders said they were willing to deploy forces on the ground to secure an agreement to end the war.`\
 https://nytimes.com/2025/09/05/world/europe/russia-ukraine-putin-western-troops.html
 
 **Alessia Russo signs new long-term Arsenal contract**\
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/05/crosswords/spelling-bee-forum.html
 **Travel Stories**\
 `Tell us a story, real or made up, that is inspired by this image.`\
 https://nytimes.com/2025/09/05/learning/travel-stories.html
-
-**Suspect in Macklemore Robbery Also Stole From Sports Stars, Prosecutors Say**\
-`Patrick Maisonet’s targets in the Seattle area included the baseball Hall of Famer Ichiro Suzuki and the former football star Richard Sherman, officials said.`\
-https://nytimes.com/2025/09/05/us/seattle-burglary-macklemore-ichiro-sherman.html
 
