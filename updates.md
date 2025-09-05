@@ -1,3 +1,7 @@
+**Putin Warns West Against Deploying Troops in Ukraine Before Peace Deal**\
+`The Russian leader said any forces stationed on Ukrainian soil before Moscow has reached an agreement with Kyiv would make them a “legitimate target.”`\
+https://nytimes.com/2025/09/05/world/europe/russia-ukraine-putin-western-troops.html
+
 **Alessia Russo signs new long-term Arsenal contract**\
 `Russo, 26, has been a pivotal figure for Arsenal since joining the club from Manchester United on a free transfer in July 2023.`\
 https://nytimes.com/athletic/6598513/2025/09/05/alessia-russo-arsenal-contract-new/
