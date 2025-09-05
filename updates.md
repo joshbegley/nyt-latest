@@ -1,3 +1,7 @@
+**Red Sox place struggling reliever Jordan Hicks on injured list**\
+`The righty has an 8.20 ERA with the Red Sox. He's the only player Boston acquired in the Rafael Devers trade to appear in the majors.`\
+https://nytimes.com/athletic/6598716/2025/09/05/red-sox-jordan-hicks-injury/
+
 **How to watch Brewers at Pirates: Time, TV, streaming for September 6**\
 `Find out how to watch the Milwaukee Brewers play the Pittsburgh Pirates, with time, TV channel, and streaming information.`\
 https://nytimes.com/athletic/6603151/2025/09/05/brewers-vs-pirates-stream-how-to-watch-sept-6/
