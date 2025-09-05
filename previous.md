@@ -1,40 +1,40 @@
-**White House Scraps Biden Plan to Force Cash Payouts for Flight Delays**\
-`The Trump administration said it will withdraw former President Biden’s plan to require airlines to compensate passengers for carrier-caused disruptions.`\
-https://nytimes.com/2025/09/05/business/flight-delays-cancellations-compensation.html
+**The Lions anticipated turnover. Their principles prepared them for it**\
+`Culture, leadership and staffing are the core principles of the organization's pact and it's at the root of their turnaround and success.`\
+https://nytimes.com/athletic/6593678/2025/09/05/detroit-lions-dan-campbell-success-culture/
 
-**Questions Focus on Cable in Lisbon Funicular Crash**\
-`Images of recovery efforts in the accident, which killed 16 people on Wednesday, appeared to show damage to a cable connecting the funicular’s two cars.`\
-https://nytimes.com/2025/09/05/world/europe/portugal-funicular.html
+**Brian Flores vs. Ben Johnson: Why the Vikings-Bears MNF matchup is so fascinating**\
+`How will the Minnesota defense, led by Flores, fare against "mastermind" Johnson and the Bears' new-look offense Monday night?`\
+https://nytimes.com/athletic/6598599/2025/09/05/vikings-bears-mnf-brian-flores-ben-johnson/
 
-**Here’s what to expect on jobs day.**\
-`By Lydia DePillis`\
-https://nytimes.com/live/2025/09/05/business/jobs-report-august-economy/heres-what-to-expect-on-jobs-day
+**As Dwight Howard enters the Hall of Fame, his prime years remain hugely underrated**\
+`Howard’s full career often goes forgotten. A half-decade of dominance from 2006-07 to 2010-11 gets swept under the carpet.`\
+https://nytimes.com/athletic/6593783/2025/09/05/dwight-howard-hall-of-fame-nba/
 
-**Is the Jobs Data Still Reliable? Yes, at Least for Now.**\
-`President Trump’s decision to fire the head of the Bureau of Labor Statistics has prompted questions about political interference.`\
-https://nytimes.com/2025/09/05/business/jobs-data-reliability.html
+**Week 2’s top 10 college football games: Michigan-Oklahoma, rivalry games take top spots**\
+`This weekend features a clash between blue bloods, century-old rivalries and tougher tests for some teams that cruised to victory in Week 1.`\
+https://nytimes.com/athletic/6598932/2025/09/05/college-football-schedule-week-2-michigan-oklahoma/
 
-**August Jobs Report Precedes Pivotal Fed Meeting**\
-`The Bureau of Labor Statistics’ employment report for August could show the labor market continuing to shift into a lower gear.`\
-https://nytimes.com/live/2025/09/05/business/jobs-report-august-economy
+**'Who I am is Oklahoma State': Mike Gundy is synonymous with OSU, but 2024 tumult lingers**\
+`Rallying back this season with a retooled roster and mob of doubters would be a classic Gundy zag.`\
+https://nytimes.com/athletic/6598987/2025/09/05/oklahoma-state-mike-gundy-college-football-season/
 
-**Daniel Levy has left his post as Spurs chairman - you must have some questions...**\
-`This is your chance to ask The Athletic's team of experts how Levy's departure will affect the running of the club, and what could come next`\
-https://nytimes.com/athletic/6600832/2025/09/05/daniel-levy-tottenham-what-next/
+**Jalen Carter's ejection for spitting on Dak Prescott — and how the Eagles responded**\
+`The Eagles were forced to rally without one of their stars, who was ejected from the season-opener without playing a snap.`\
+https://nytimes.com/athletic/6600736/2025/09/05/eagles-cowboys-jalen-carter-spitting-ejection/
 
-**The New York Times International Edition in Print for Saturday, Sep. 6, 2025**\
-``\
-https://nytimes.com/issue/todaysinyt/2025/09/05/todays-new-york-times-international-edition
+**Perhaps Arsenal haven’t evolved beyond Gabriel Martinelli - but simply away from him**\
+`It is too early to consider Martinelli a lost cause. What can be done to improve his performances and potentially maximise his value?`\
+https://nytimes.com/athletic/6600778/2025/09/05/arsenal-brazil-gabriel-martinelli-evolve/
 
-**The body language of tennis takes center stage in a U.S. Open semifinal of the mind**\
-`In their last Grand Slam match, Carlos Alcaraz got absorbed by Novak Djokovic's condition. At the U.S. Open, he is learning to ignore it.`\
-https://nytimes.com/athletic/6599677/2025/09/05/tennis-mindset-body-language-science-psychology/
+**NBA 2K26 review: Authentic player moves, 'drive-and-kick' among gameplay improvements**\
+`The latest installment in the 2K hoops series picks up with enhancements in the realism of the gameplay from last year's video game.`\
+https://nytimes.com/athletic/6584543/2025/09/05/nba-2k26-video-game-wnba-basketball/
 
-**Why Hamas Refuses to Give Up**\
-`Analysts say that despite its vast losses in Gaza, Hamas believes it can hold out for a deal that ensures its survival.`\
-https://nytimes.com/2025/09/05/world/middleeast/gaza-hamas-surrender-israel.html
+**It's a year since F1 met Kimi Antonelli, but has the hyped-up rookie met expectations?**\
+`Kimi Antonelli is returning to the scene of his F1 bow in the 2025 Italian GP. His rookie season has been bumpy, but Mercedes isn't worried`\
+https://nytimes.com/athletic/6598188/2025/09/05/kimi-antonelli-italian-gp/
 
-**Rafael Nadal's tennis and life after an era-defining rivalry: 'We never had time to relax'**\
-`Nadal's life after tennis has not yet seen him pick up a racket. But he has plenty of opinions about its new stars.`\
-https://nytimes.com/athletic/6598134/2025/09/05/rafael-nadal-tennis-retirement-big-three-rivalry/
+**The roller-coaster ride of the college football season's first underdog story**\
+`The season's first walk-off hero pursued a journey that spanned years, continents, parks and steakhouses to realize an unshakable dream.`\
+https://nytimes.com/athletic/6597909/2025/09/05/hawaii-football-kicker-kansei-matsuzawa/
 
