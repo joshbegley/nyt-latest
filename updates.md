@@ -1,3 +1,15 @@
+**What We Know About Trump’s Crime and Immigration Crackdown in U.S. Cities**\
+`The president has sent soldiers and federal agents to some cities, and promised to do the same in others, prompting lawsuits and stirring outrage among local leaders.`\
+https://nytimes.com/article/trump-national-guard-military-cities.html
+
+**After a Resignation in London, Farage Seeks to Capitalize on Labour’s Turmoil**\
+`Nigel Farage, the leader of the anti-immigration party Reform U.K., spoke to supporters just after news broke that the deputy prime minister had resigned.`\
+https://nytimes.com/2025/09/05/world/europe/nigel-farage-uk-rayner-politics.html
+
+**Pochettino 'in shock' over Levy's Tottenham departure**\
+`Pochettino said he and Levy shared a "very good" relationship during his five-year spell as head coach of the north London club.`\
+https://nytimes.com/athletic/6602113/2025/09/05/mauricio-pochettino-daniel-levy-tottenham-departure/
+
 **Trump’s Lethal Misuse of War Powers**\
 `Readers discuss President Trump’s claim that he has the right to conduct the extrajudicial killing of alleged drug dealers. Also: Crime trends.`\
 https://nytimes.com/2025/09/05/opinion/trump-war-powers.html
