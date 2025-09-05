@@ -1,3 +1,11 @@
+**Eagles-Cowboys game suspended in third quarter due to lightning**\
+`The Eagles had just recovered a Cowboys fumble and lead 24-20 in the third quarter.`\
+https://nytimes.com/athletic/6600297/2025/09/04/weather-delay-nfl-cowboys-eagles-season-kickoff/
+
+**Luis Suarez apologizes for spitting on staffer after Leagues Cup loss**\
+`The incident has been widely condemned as yet another act of bizarre behavior from the Uruguayan legend.`\
+https://nytimes.com/athletic/6600168/2025/09/04/luis-suarez-inter-miami-leagues-cup-spitting/
+
 **Mike Tyson, Floyd Mayweather agree to exhibition match in 2026**\
 `The date and location of the exhibition have not been decided.`\
 https://nytimes.com/athletic/6600163/2025/09/04/mike-tyson-floyd-mayweather-exhibition-fight/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6599186/2025/09/04/sabalenka-pegula-us-open-semifin
 **Venezuelan Jets Fly Over U.S. Navy Ship in Show of Force**\
 `The flyover took place two days after the United States carried out a military strike on a boat in the Caribbean that U.S. officials said was carrying drugs.`\
 https://nytimes.com/2025/09/04/us/politics/venezuela-jets-us-navy-ship-trump.html
-
-**Hochul to Sign Order to Get Around U.S. Limits on Covid Vaccine**\
-`Gov. Kathy Hochul of New York plans to authorize pharmacists to provide the vaccine to almost anyone who wants it without a prescription.`\
-https://nytimes.com/2025/09/04/nyregion/covid-vaccine-hochul-new-york.html
-
-**Biden Has Surgery to Remove Skin Cancer Lesions**\
-`Three months earlier, former President Joseph R. Biden Jr. had a diagnosis of an aggressive form of prostate cancer.`\
-https://nytimes.com/2025/09/04/us/politics/biden-skin-cancer.html
 
