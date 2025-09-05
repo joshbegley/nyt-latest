@@ -34,7 +34,7 @@ https://nytimes.com/2025/09/04/us/politics/venezuela-jets-us-navy-ship-trump.htm
 `Gov. Kathy Hochul of New York plans to authorize pharmacists to provide the vaccine to almost anyone who wants it without a prescription.`\
 https://nytimes.com/2025/09/04/nyregion/covid-vaccine-hochul-new-york.html
 
-**Biden Has Surgery to Remove Skin Cancer**\
+**Biden Has Surgery to Remove Skin Cancer Lesions**\
 `Three months earlier, former President Joseph R. Biden Jr. had a diagnosis of an aggressive form of prostate cancer.`\
 https://nytimes.com/2025/09/04/us/politics/biden-skin-cancer.html
 
