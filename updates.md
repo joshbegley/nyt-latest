@@ -1,3 +1,7 @@
+**A bolt from the blue at Tottenham Hotspur. Plus: Messi's tears and an iconic pink headband**\
+`Today in TAFC: A shock exit for Daniel Levy at Tottenham plus Messi's emotional star turn for Argentina on home soil`\
+https://nytimes.com/athletic/6600948/2025/09/05/tafc-newsletter-daniel-levy-ederson-alex-morgan-lionel-messi/
+
 **A weak jobs report would strengthen the case for rate cuts.**\
 `The Federal Reserve is likely to begin lowering interest rates at its next meeting in two weeks’ time. But the pace of those reductions will depend in large part on the labor market.`\
 https://nytimes.com/live/2025/09/05/business/jobs-report-august-economy/a-weak-jobs-report-would-strengthen-the-case-for-rate-cuts

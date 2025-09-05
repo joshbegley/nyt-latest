@@ -1,3 +1,7 @@
+**A bolt from the blue at Tottenham Hotspur. Plus: Messi's tears and an iconic pink headband**\
+`Today in TAFC: A shock exit for Daniel Levy at Tottenham plus Messi's emotional star turn for Argentina on home soil`\
+https://nytimes.com/athletic/6600948/2025/09/05/tafc-newsletter-daniel-levy-ederson-alex-morgan-lionel-messi/
+
 **A weak jobs report would strengthen the case for rate cuts.**\
 `The Federal Reserve is likely to begin lowering interest rates at its next meeting in two weeks’ time. But the pace of those reductions will depend in large part on the labor market.`\
 https://nytimes.com/live/2025/09/05/business/jobs-report-august-economy/a-weak-jobs-report-would-strengthen-the-case-for-rate-cuts
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6599142/2025/09/05/carolina-panthers-opener-jaguars
 **How will Tom Brady do in 2025? And nine other NFL media questions answered**\
 `The NFL's impact and influence on media is a constant hot topic for fans. Here are 10 key dynamics to understand as the season kicks off.`\
 https://nytimes.com/athletic/6553487/2025/09/05/tom-brady-fox-nfl-media-2025/
-
-**The Lions anticipated turnover. Their principles prepared them for it**\
-`Culture, leadership and staffing are the core principles of the organization's pact and it's at the root of their turnaround and success.`\
-https://nytimes.com/athletic/6593678/2025/09/05/detroit-lions-dan-campbell-success-culture/
 
