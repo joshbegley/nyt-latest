@@ -1,3 +1,7 @@
+**Connor McDavid isn't shying away from uncertainty over his Oilers future**\
+`McDavid entering the final season of his deal is the story of the NHL and has the potential to be a major distraction for the Oilers.`\
+https://nytimes.com/athletic/6602749/2025/09/05/connor-mcdavid-contract-extension-oilers-edmonton-uncertainty/
+
 **Lionel Messi excited but refuses to commit to playing in 2026 World Cup**\
 `The World Cup winner is yet to say for certain if he will play in the tournament next summer`\
 https://nytimes.com/athletic/6602907/2025/09/05/messi-argentina-world-cup-2026/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/05/opinion/jobs-report-immigration-trump-fed.html
 **Federal Report on Drinking Is Withdrawn**\
 `The upcoming U.S. Dietary Guidelines will instead be influenced by a competing study, favored by industry, which found that moderate alcohol consumption was healthy.`\
 https://nytimes.com/2025/09/05/health/alcohol-drinking-hhs-report.html
-
-**Luis Enrique to undergo surgery on fractured collarbone after cycling accident**\
-`Enrique has been at PSG since the summer of 2023 and led them to a Champions League win last season.`\
-https://nytimes.com/athletic/6602810/2025/09/05/luis-enrique-psg-surgery-bike-accident/
 
