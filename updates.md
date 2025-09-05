@@ -1,3 +1,11 @@
+**Wild sign right wing Brett Leason to PTO, adding potential penalty killer**\
+`Listed at 6-foot-5, 218 pounds, Leason has played 220 career NHL games, scoring 25 goals and 54 points.`\
+https://nytimes.com/athletic/6601852/2025/09/05/wild-sign-brett-leason/
+
+**Barbara Jakobson, Art World Power Broker in New York, Dies at 92**\
+`A longtime trustee of the Museum of Modern Art, she was a savvy collector who befriended young artists like Robert Mapplethorpe and made her townhouse a showcase.`\
+https://nytimes.com/2025/09/05/arts/barbara-jakobson-dead.html
+
 **Barbara Jakobson, Art World Power Broker in New York, Dies at 92**\
 `She was a longtime trustee of the Museum of Modern Art, a savvy collector who befriended young artists like Robert Mapplethorpe.`\
 https://nytimes.com/2025/09/05/arts/barbara-jakobson-dead.html

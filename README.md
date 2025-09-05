@@ -1,3 +1,7 @@
+**One secret to the Chiefs' success? Rare collaborative culture inside their walls**\
+`Defensive coordinator Steve Spagnuolo, who has been a lot of places in his career, says having a GM who "leans on everybody" is unique.`\
+https://nytimes.com/athletic/6578776/2025/09/05/chiefs-front-office-culture-collaboration-success/
+
 **Wild sign right wing Brett Leason to PTO, adding potential penalty killer**\
 `Listed at 6-foot-5, 218 pounds, Leason has played 220 career NHL games, scoring 25 goals and 54 points.`\
 https://nytimes.com/athletic/6601852/2025/09/05/wild-sign-brett-leason/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/05/sports/autoracing/f1-stefano-domenicali.html
 **He’s Stepping Into the Heels of Maria Callas**\
 `At Little Island, the countertenor Anthony Roth Costanzo is starring, and singing, in Charles Ludlam’s “Galas,” a love letter to Callas.`\
 https://nytimes.com/2025/09/05/arts/music/galas-little-island.html
-
-**Week 1 fantasy football intel and predictions using player prop lines**\
-`Brad Evans looks at player props for Week 1, using them to predict fantasy success. `\
-https://nytimes.com/athletic/6597938/2025/09/05/fantasy-football-week-1-predictions-props/
 

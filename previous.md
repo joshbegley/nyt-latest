@@ -1,5 +1,9 @@
+**Wild sign right wing Brett Leason to PTO, adding potential penalty killer**\
+`Listed at 6-foot-5, 218 pounds, Leason has played 220 career NHL games, scoring 25 goals and 54 points.`\
+https://nytimes.com/athletic/6601852/2025/09/05/wild-sign-brett-leason/
+
 **Barbara Jakobson, Art World Power Broker in New York, Dies at 92**\
-`She was a longtime trustee of the Museum of Modern Art, a savvy collector who befriended young artists like Robert Mapplethorpe.`\
+`A longtime trustee of the Museum of Modern Art, she was a savvy collector who befriended young artists like Robert Mapplethorpe and made her townhouse a showcase.`\
 https://nytimes.com/2025/09/05/arts/barbara-jakobson-dead.html
 
 **How Has Being Perpetually Single Affected You?**\
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/05/arts/music/galas-little-island.html
 **Week 1 fantasy football intel and predictions using player prop lines**\
 `Brad Evans looks at player props for Week 1, using them to predict fantasy success. `\
 https://nytimes.com/athletic/6597938/2025/09/05/fantasy-football-week-1-predictions-props/
-
-**Angel City signs defender Gisele Thompson through 2029**\
-`Thompson's contract news comes on the heels of her sister Alyssa's shocking departure from Angel City to Chelsea FC.`\
-https://nytimes.com/athletic/6600322/2025/09/05/gisele-thompson-signing-angel-city/
 
