@@ -1,3 +1,11 @@
+**Newsmax Lawsuit Against Fox News Is Dismissed**\
+`A federal judge left the door open for Newsmax to refile its complaint that Fox had created a monopoly in right-leaning television news.`\
+https://nytimes.com/2025/09/05/business/media/newsmax-fox-news-lawsuit.html
+
+**Packers "most-bet Super Bowl winner," but Bengals, Burrow could slam sportsbooks**\
+`Bettors are all in on the NFL. Which team is everyone taking to win the Super Bowl, and are sportsbooks wary of any?`\
+https://nytimes.com/athletic/6599364/2025/09/05/lions-packers-bills-super-bowl-bets-burrow-mvp/
+
 **Man Charged in Connection With Fatal Shooting of Woman, 69, in Harlem**\
 `Faisil McCants, 18, was charged with armed robbery and the use of a machine gun in last week’s incident, which left Robin Wright, a bystander, dead.`\
 https://nytimes.com/2025/09/05/nyregion/harlem-nyc-shooting-woman-charges.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/09/05/us/politics/us-elections-china-threats.html
 **Is It Time for You to ‘Lock In’?**\
 `A social media challenge is asking participants to tackle their goals now, rather than wait for the new year.`\
 https://nytimes.com/2025/09/05/style/great-lock-in-tiktok.html
-
-**Over 100 Free New York Times Articles About How A.I. Is Changing Our World**\
-`To go along with our contest, here are scores of recent, free Times articles, videos, opinion pieces, videos, quizzes and podcasts about the effects of this world-changing technology. Which pieces most interest you?`\
-https://nytimes.com/2025/09/05/learning/over-100-free-new-york-times-articles-about-how-ai-is-changing-our-world.html
-
-**What Are Your Thoughts About A.I.? A Forum for Teenagers and Educators**\
-`How have you experimented with generative artificial intelligence, in or outside school? If so, how is it affecting you or those around you? Please share your thoughts.`\
-https://nytimes.com/2025/09/05/learning/what-are-your-thoughts-about-ai-a-forum-for-teenagers-and-educators.html
 

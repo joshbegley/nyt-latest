@@ -1,3 +1,11 @@
+**Newsmax Lawsuit Against Fox News Is Dismissed**\
+`A federal judge left the door open for Newsmax to refile its complaint that Fox had created a monopoly in right-leaning television news.`\
+https://nytimes.com/2025/09/05/business/media/newsmax-fox-news-lawsuit.html
+
+**Packers "most-bet Super Bowl winner," but Bengals, Burrow could slam sportsbooks**\
+`Bettors are all in on the NFL. Which team is everyone taking to win the Super Bowl, and are sportsbooks wary of any?`\
+https://nytimes.com/athletic/6599364/2025/09/05/lions-packers-bills-super-bowl-bets-burrow-mvp/
+
 **Man Charged in Connection With Fatal Shooting of Woman, 69, in Harlem**\
 `Faisil McCants, 18, was charged with armed robbery and the use of a machine gun in last week’s incident, which left Robin Wright, a bystander, dead.`\
 https://nytimes.com/2025/09/05/nyregion/harlem-nyc-shooting-woman-charges.html
