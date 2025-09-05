@@ -1,3 +1,19 @@
+**Chelsea's Girma missed WSL season-opener with calf injury**\
+`The 25-year-old joined Chelsea for a then-world record fee of $1.1m in January.`\
+https://nytimes.com/athletic/6602332/2025/09/05/naomi-girma-chelsea-calf-injury/
+
+**Law firm that investigated Sterling, Sarver to lead NBA probe of Clippers, Leonard: Source**\
+`The NBA tapped the same law firm that investigated Donald Sterling and Robert Sarver to look into allegations against the Clippers, Leonard.`\
+https://nytimes.com/athletic/6602846/2025/09/05/kawhi-leonard-clippers-nba-investigation-salary-cap-circumvention/
+
+**Carlos Alcaraz overpowers Novak Djokovic to reach U.S. Open final**\
+`After Djokovic threatened to repeat his Australian Open comeback, Alcaraz held his nerve to beat him on a hard court for the first time.`\
+https://nytimes.com/athletic/6601703/2025/09/05/carlos-alcaraz-novak-djokovic-us-open-result-analysis/
+
+**G20 Summit in 2026 to Be Held at Trump’s Club Near Miami, President Announces**\
+`The president is reviving an idea to hold a major diplomatic event at one of his properties.`\
+https://nytimes.com/2025/09/05/us/politics/trump-g20-summit-miami.html
+
 **Immigration Authorities Arrest Hundreds in Georgia Raid**\
 `Nearly 500 people, most of whom are South Korean citizens, were arrested at a construction site for a Hyundai electric vehicle battery plant in Ellabell, Ga., on Thursday.`\
 https://nytimes.com/video/us/politics/100000010381555/hundreds-arrested-georgia-immigration-raid.html
