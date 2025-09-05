@@ -1,3 +1,23 @@
+**Do Product Specs Matter? Here’s Why They Might Be Misleading.**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/wc-advice-product-specs
+
+**Adams Vows to Stay in N.Y.C. Mayoral Race**\
+`Eric Adams, the mayor of New York City, said he would continue his campaign amid reports that close advisers to President Trump had been crafting a plan to nominate Adams to be ambassador to Saudi Arabia.`\
+https://nytimes.com/video/nyregion/100000010382391/eric-adams-nyc-election.html
+
+**Second Weak Jobs Report in Two Months**\
+`Also, Israel strikes a Gaza City landmark. Here’s the latest at the end of Friday.`\
+https://nytimes.com/2025/09/05/briefing/weak-jobs-report-immigration-raid-millennial-saint.html
+
+**Canadiens trade Carey Price, 2026 draft pick to Sharks**\
+`The trade allows the Canadiens to avoid operating in long-term injured reserve for the first time since the 2021-22 season.`\
+https://nytimes.com/athletic/6602944/2025/09/05/carey-price-trade-canadiens-sharks/
+
+**Georgia AD warns of time crunch on new NCAA lawsuit as redshirt decisions near**\
+`Josh Brooks and Georgia president Jere Morehead appeared open to 'five to play five', but their focus was more on the decision's timing.`\
+https://nytimes.com/athletic/6602869/2025/09/05/georgia-ncaa-fifth-year-eligibility-lawsuit/
+
 **Georgia AD seeking 'clarity' from NCAA as new lawsuit targets fifth year of eligibility**\
 `Josh Brooks and Georgia president Jere Morehead appeared open to 'five to play five', but their focus was more on the decision's timing.`\
 https://nytimes.com/athletic/6602869/2025/09/05/georgia-ncaa-fifth-year-eligibility-lawsuit/
