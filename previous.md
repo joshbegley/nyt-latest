@@ -1,3 +1,7 @@
+**BART Trains Shut Down for the Morning Commute in the Bay Area**\
+`Bay Area Rapid Transit suffered a systemwide outage for the second time in four months because of a computer problem.`\
+https://nytimes.com/2025/09/05/us/bart-transit-outage-bay-area.html
+
 **Art Seitz, Whose Camera Caught Tennis Greats On and Off the Court, Dies at 82**\
 `Over a 50-year career as a photographer he built friendships with rising stars and captured many of them in their personal environments.`\
 https://nytimes.com/2025/09/05/sports/tennis/art-seitz-dead.html
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6601579/2025/09/05/jalen-carter-spitting-eagles-cow
 **Tate McRae on Tour: Dancing’s What She Loves**\
 `Dance, which has been a central part of McRae’s pop persona from the beginning, is thrillingly showcased on the Miss Possessive tour.`\
 https://nytimes.com/2025/09/05/arts/dance/review-tate-mcrae-miss-possessive.html
-
-**Employers added 22,000 jobs in August.**\
-`Employers added 22,000 jobs in August. Revised data also showed that employment fell by 13,000 jobs in June, the first net loss since December 2020.`\
-https://nytimes.com/live/2025/09/05/business/jobs-report-august-economy/labor-market-stalled-this-summer-with-august-data-adding-to-slowdown
 

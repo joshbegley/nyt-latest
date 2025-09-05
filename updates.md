@@ -1,3 +1,7 @@
+**BART Trains Shut Down for the Morning Commute in the Bay Area**\
+`Bay Area Rapid Transit suffered a systemwide outage for the second time in four months because of a computer problem.`\
+https://nytimes.com/2025/09/05/us/bart-transit-outage-bay-area.html
+
 **Art Seitz, Whose Camera Caught Tennis Greats On and Off the Court, Dies at 82**\
 `Over a 50-year career as a photographer he built friendships with rising stars and captured many of them in their personal environments.`\
 https://nytimes.com/2025/09/05/sports/tennis/art-seitz-dead.html
