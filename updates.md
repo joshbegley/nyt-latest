@@ -1,3 +1,11 @@
+**Almeida beats Vingegaard on Vuelta queen stage**\
+`Stage 13 contained the Alto de l'Angliru climb and was billed as one of the most decisive stages of the Vuelta. `\
+https://nytimes.com/athletic/6601866/2025/09/05/joao-almeida-jonas-vingegaard-vuelta-a-espana/
+
+**Martinez planned to be reintegrated into Villa squad after failed transfer**\
+`The plan will depend on how Martinez responds once he returns from Argentina duty, with his long-term future at the club uncertain.`\
+https://nytimes.com/athletic/6601863/2025/09/05/emi-martinez-aston-villa-future/
+
 **Bears coach Ben Johnson is driven by his quest to entertain — and embarrass**\
 `At the start of his head coaching journey, Johnson is ready to "cut loose" his new Bears offense in the most aggressive manner possible.`\
 https://nytimes.com/athletic/6580669/2025/09/05/bears-coach-ben-johnson-monday-night-football-vikings/

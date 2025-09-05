@@ -1,3 +1,11 @@
+**Almeida beats Vingegaard on Vuelta queen stage**\
+`Stage 13 contained the Alto de l'Angliru climb and was billed as one of the most decisive stages of the Vuelta. `\
+https://nytimes.com/athletic/6601866/2025/09/05/joao-almeida-jonas-vingegaard-vuelta-a-espana/
+
+**Martinez planned to be reintegrated into Villa squad after failed transfer**\
+`The plan will depend on how Martinez responds once he returns from Argentina duty, with his long-term future at the club uncertain.`\
+https://nytimes.com/athletic/6601863/2025/09/05/emi-martinez-aston-villa-future/
+
 **Billionaire Crypto Investor Hits Out at Trump Family’s Firm**\
 `Justin Sun, a major investor in World Liberty Financial’s cryptocurrency, said that his coins had been “unreasonably frozen.”`\
 https://nytimes.com/2025/09/05/business/trump-crypto-justin-sun.html
@@ -25,12 +33,4 @@ https://nytimes.com/2025/09/05/arts/barbara-jakobson-dead.html
 **How Has Being Perpetually Single Affected You?**\
 `We want to hear from women over the age of 30 who feel as if they have not yet had a meaningful relationship for a New York Times Magazine feature.`\
 https://nytimes.com/2025/09/05/magazine/forever-single-relationships-love-submissions.html
-
-**Google Is Fined $3.5 Billion for Breaking Europe’s Antitrust Laws**\
-`European Union officials accused the American tech giant of using its size and dominance to undercut rivals in the online advertising market.`\
-https://nytimes.com/2025/09/05/business/google-eu-antitrust-fine.html
-
-**With Audi Poised to Take Over, Sauber Rises in the F1 Standings**\
-`The automotive giant has committed to Formula 1 next year and will provide new resources, including its own power unit. Now the team is experiencing a bit of a surge.`\
-https://nytimes.com/2025/09/05/sports/autoracing/f1-sauber-audi.html
 
