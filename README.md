@@ -1,3 +1,11 @@
+**How to watch Mariners at Braves: Time, TV, streaming for September 5**\
+`Find out how to watch the Seattle Mariners play the Atlanta Braves, with time, TV channel, and streaming information.`\
+https://nytimes.com/athletic/6599932/2025/09/04/mariners-vs-braves-stream-how-to-watch-sept-5/
+
+**At Harvard, Judge’s Ruling on Funding Gives Students One More Thing to Ponder**\
+`Many students were cautiously hopeful after a judge said the Trump administration could not freeze research funding to the university. But they also had other things on their minds.`\
+https://nytimes.com/2025/09/04/us/harvard-funding-decision-reaction-students.html
+
 **Christian McCaffrey limited by calf injury at 49ers practice**\
 `McCaffrey, who missed the first half of the 2024 season with a calf injury, was not listed on Wednesday's injury report.`\
 https://nytimes.com/athletic/6599904/2025/09/04/christian-mccaffrey-injury-calf-49ers/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/09/04/us/politics/trump-department-of-war-defense.html
 **Military Lawyers Wanted as Immigration Judges, No Experience Required**\
 `Emails sent out call for volunteers to take six-month assignments hearing asylum and deportation cases.`\
 https://nytimes.com/2025/09/04/us/politics/military-lawyers-immigration-judges.html
-
-**Senators Question R.F.K. Jr. Over Vaccines and C.D.C Turmoil**\
-`Health Secretary Robert F. Kennedy Jr. was combative and dismissive with lawmakers during a Senate hearing and refused to change his stance on vaccines, the C.D.C. and Medicaid.`\
-https://nytimes.com/video/us/politics/100000010380110/robert-kennedy-health-secretary-vaccines.html
-
-**Daniel Levy, an uncertain Tottenham legacy, and what next after his sudden departure?**\
-`The long-time chairman has left Spurs after almost 25 years. Dan Kilpatrick analyses the mixed emotions his exit will provoke among fans`\
-https://nytimes.com/athletic/6599355/2025/09/04/daniel-levy-tottenham-exit-legacy/
 
