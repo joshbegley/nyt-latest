@@ -1,3 +1,11 @@
+**Leaders of African Separatist Movement Indicted in Minnesota**\
+`Insurgents seeking to form a new nation for English speakers in Cameroon were led by men living in Minnesota, federal prosecutors said on Friday.`\
+https://nytimes.com/2025/09/05/us/african-separatists-indicted-minnesota-ambazonia-cameroon.html
+
+**The 9.7.25 Issue**\
+``\
+https://nytimes.com/issue/magazine/2025/09/05/the-9725-issue
+
 **U.S. Is Increasingly Exposed to Chinese Election Threats, Lawmakers Say**\
 `Two Democrats on the House China committee noted the use of A.I. by Chinese companies as a weapon in information warfare.`\
 https://nytimes.com/2025/09/05/us/politics/us-elections-china-threats.html

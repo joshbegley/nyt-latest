@@ -1,3 +1,11 @@
+**Leaders of African Separatist Movement Indicted in Minnesota**\
+`Insurgents seeking to form a new nation for English speakers in Cameroon were led by men living in Minnesota, federal prosecutors said on Friday.`\
+https://nytimes.com/2025/09/05/us/african-separatists-indicted-minnesota-ambazonia-cameroon.html
+
+**The 9.7.25 Issue**\
+``\
+https://nytimes.com/issue/magazine/2025/09/05/the-9725-issue
+
 **U.S. Is Increasingly Exposed to Chinese Election Threats, Lawmakers Say**\
 `Two Democrats on the House China committee noted the use of A.I. by Chinese companies as a weapon in information warfare.`\
 https://nytimes.com/2025/09/05/us/politics/us-elections-china-threats.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/09/05/technology/anthropic-settlement-copyright-ai.html
 **A Revived Focus on an Unproven Link Between Tylenol and Autism**\
 `Studies over the last decade of acetaminophen use in pregnancy — including a recent scientific review — have yielded mixed results but have not found a causal connection.`\
 https://nytimes.com/2025/09/05/health/autism-acetaminophen-tylenol.html
-
-**American Eagle Sales Fall Slightly After Sydney Sweeney Ad**\
-`The second quarter ended nine days after the ad was released, leaving little time to see the full impact of the campaign.`\
-https://nytimes.com/2025/09/05/business/american-eagle-sydney-sweeney-ad-earnings.html
-
-**Mets send Kodai Senga to Triple A in hopes of fixing mechanics**\
-`Both Senga and the Mets are hopeful a sojourn in Triple A will help him get his delivery synced up back to where it was in 2023.`\
-https://nytimes.com/athletic/6602274/2025/09/05/kodai-senga-mets-minor-leagues/
 
