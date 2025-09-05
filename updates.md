@@ -1,3 +1,11 @@
+**What I'm seeing about the Panthers: No trading Brown and eyes on their 'absolute hammer'**\
+`The Cowboys approached the Panthers about a deal for Micah Parsons, but it would have at least included Derrick Brown. `\
+https://nytimes.com/athletic/6599142/2025/09/05/carolina-panthers-opener-jaguars-week-1/
+
+**How will Tom Brady do in 2025? And nine other NFL media questions answered**\
+`The NFL's impact and influence on media is a constant hot topic for fans. Here are 10 key dynamics to understand as the season kicks off.`\
+https://nytimes.com/athletic/6553487/2025/09/05/tom-brady-fox-nfl-media-2025/
+
 **The Lions anticipated turnover. Their principles prepared them for it**\
 `Culture, leadership and staffing are the core principles of the organization's pact and it's at the root of their turnaround and success.`\
 https://nytimes.com/athletic/6593678/2025/09/05/detroit-lions-dan-campbell-success-culture/
