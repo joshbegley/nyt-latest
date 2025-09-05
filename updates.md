@@ -1,3 +1,11 @@
+**Biden Has Surgery to Remove Skin Cancer**\
+`Three months earlier, former President Joseph R. Biden Jr. had a diagnosis of an aggressive form of prostate cancer.`\
+https://nytimes.com/2025/09/04/us/politics/biden-skin-cancer.html
+
+**With October drawing near, the Cubs need Seiya Suzuki back in his comfort zone**\
+`The best version of that Cubs team has Suzuki launching home runs and doing silly celebrations with Pete Crow-Armstrong in the dugout.`\
+https://nytimes.com/athletic/6599889/2025/09/04/chicago-cubs-seiya-suzuki-analysis/
+
 **With October drawing near, the Cubs need Seiya Suzuki back in his comfort zone**\
 `he best version of that Cubs team has Suzuki launching home runs and doing silly celebrations with Pete Crow-Armstrong in the dugout.`\
 https://nytimes.com/athletic/6599889/2025/09/04/chicago-cubs-seiya-suzuki-analysis/

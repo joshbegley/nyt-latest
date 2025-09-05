@@ -1,5 +1,9 @@
+**Biden Has Surgery to Remove Skin Cancer**\
+`Three months earlier, former President Joseph R. Biden Jr. had a diagnosis of an aggressive form of prostate cancer.`\
+https://nytimes.com/2025/09/04/us/politics/biden-skin-cancer.html
+
 **With October drawing near, the Cubs need Seiya Suzuki back in his comfort zone**\
-`he best version of that Cubs team has Suzuki launching home runs and doing silly celebrations with Pete Crow-Armstrong in the dugout.`\
+`The best version of that Cubs team has Suzuki launching home runs and doing silly celebrations with Pete Crow-Armstrong in the dugout.`\
 https://nytimes.com/athletic/6599889/2025/09/04/chicago-cubs-seiya-suzuki-analysis/
 
 **Indiana Fever's Caitlin Clark out for rest of season with groin injury**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6599966/2025/09/04/mets-vs-reds-stream-how-to-watch
 **How to watch Dodgers at Orioles: Time, TV, streaming for September 5**\
 `Find out how to watch the Los Angeles Dodgers play the Baltimore Orioles, with time, TV channel, and streaming information.`\
 https://nytimes.com/athletic/6599953/2025/09/04/dodgers-vs-orioles-stream-how-to-watch-sept-5/
-
-**How to watch Mariners at Braves: Time, TV, streaming for September 5**\
-`Find out how to watch the Seattle Mariners play the Atlanta Braves, with time, TV channel, and streaming information.`\
-https://nytimes.com/athletic/6599932/2025/09/04/mariners-vs-braves-stream-how-to-watch-sept-5/
 
