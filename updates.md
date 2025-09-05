@@ -1,3 +1,7 @@
+**As England resume World Cup qualifying, Tuchel has four familiar problems to solve**\
+`While Tuchel has only managed four games, no one who watched the June internationals thought England looked close to competing in the U.S.`\
+https://nytimes.com/athletic/6586124/2025/09/05/england-world-cup-qualifying-thomas-tuchel-andorra/
+
 **Europe Is Playing a Long Game on Ukraine, and With Trump**\
 `Leaders on the continent are trying to show the U.S. president that they are serious about laying the groundwork to end the war — and that President Vladimir V. Putin of Russia is not.`\
 https://nytimes.com/2025/09/05/world/europe/europe-ukraine-trump-war-putin.html
