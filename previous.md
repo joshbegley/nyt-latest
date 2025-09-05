@@ -1,8 +1,28 @@
+**Hassan Ouakrim, Who Brought Moroccan Dance to the U.S., Dies**\
+`A director and choreographer, he introduced Berber dances and music to New York’s downtown theater scene. He also staged elaborate soirees for the wealthy, one attended by Donald Trump.`\
+https://nytimes.com/2025/09/05/arts/dance/hassan-ouakrim-dead.html
+
+**A Rapid U.S. Military Buildup in the Caribbean: What to Know**\
+`The United States has deployed eight warships, several surveillance planes and one attack submarine to the region as tensions with Venezuela grow.`\
+https://nytimes.com/2025/09/05/us/politics/trump-maduro-military-venezuela.html
+
+**Can’t Decide Where to Go for the Winter Holidays? Let Us Help!**\
+`If you’re eager to get away this December or January but are overwhelmed by the options, read on.`\
+https://nytimes.com/2025/09/05/t-magazine/winter-holidays-travel-vacation-questions.html
+
+**Tigers reliever Kyle Finnegan lands on IL; Parker Meadows activated**\
+`Finnegan hasn't allowed a run since joining the Tigers at the trade deadline. He's hopeful he'll miss the minimum 15 days.`\
+https://nytimes.com/athletic/6602772/2025/09/05/kyle-finnegan-tigers-adductor-strain/
+
+**Jonathan David stars for Canada in big friendly road win against Romania**\
+`Jesse Marsch's side bounced back to form in impressive fashion`\
+https://nytimes.com/athletic/6602298/2025/09/05/canada-romania-jonathan-david/
+
 **Newsmax Lawsuit Against Fox News Is Dismissed**\
 `A federal judge left the door open for Newsmax to refile its complaint that Fox had created a monopoly in right-leaning television news.`\
 https://nytimes.com/2025/09/05/business/media/newsmax-fox-news-lawsuit.html
 
-**Packers "most-bet Super Bowl winner," but Bengals, Burrow could slam sportsbooks**\
+**Packers 'most-bet Super Bowl winner' but Bengals, Burrow could slam sportsbooks**\
 `Bettors are all in on the NFL. Which team is everyone taking to win the Super Bowl, and are sportsbooks wary of any?`\
 https://nytimes.com/athletic/6599364/2025/09/05/lions-packers-bills-super-bowl-bets-burrow-mvp/
 
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/6602744/2025/09/05/suarez-busquets-suspended-inter-
 **Steelers DT Cameron Heyward non-committal on season opener as contract dispute continues**\
 `Heyward had his normal workload this week, as the Steelers prepared for the Jets.`\
 https://nytimes.com/athletic/6602341/2025/09/05/steelers-cameron-heyward-season-opener-contract-dispute/
-
-**Second Weak Jobs Report Undercuts Trump’s Claims of a Booming Economy**\
-`After a bad employment report in August, President Trump fired the official in charge of the numbers. This month’s data was just as disappointing.`\
-https://nytimes.com/2025/09/05/us/politics/trump-jobs-report-tariffs-deportations.html
-
-**Leaders of African Separatist Movement Indicted in Minnesota**\
-`Insurgents seeking to form a new nation for English speakers in Cameroon were led by men living in Minnesota, federal prosecutors said on Friday.`\
-https://nytimes.com/2025/09/05/us/african-separatists-indicted-minnesota-ambazonia-cameroon.html
-
-**The 9.7.25 Issue**\
-``\
-https://nytimes.com/issue/magazine/2025/09/05/the-9725-issue
-
-**U.S. Is Increasingly Exposed to Chinese Election Threats, Lawmakers Say**\
-`Two Democrats on the House China committee noted the use of A.I. by Chinese companies as a weapon in information warfare.`\
-https://nytimes.com/2025/09/05/us/politics/us-elections-china-threats.html
-
-**Is It Time for You to ‘Lock In’?**\
-`A social media challenge is asking participants to tackle their goals now, rather than wait for the new year.`\
-https://nytimes.com/2025/09/05/style/great-lock-in-tiktok.html
 
