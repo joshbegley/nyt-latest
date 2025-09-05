@@ -1,3 +1,7 @@
+**Oakland AIs? The Ballers will be first professional sports team managed by AI**\
+`On Saturday, the Oakland Ballers of the independent Pioneer League will be the first team to be managed in-game by artificial intelligence.`\
+https://nytimes.com/athletic/6599707/2025/09/05/artificial-intelligence-baseball-manager-oakland-ballers/
+
 **The Commanders' turnaround has brought back fans — and dollar signs**\
 `After decades of sitting at or near the bottom of the NFL in football and business metrics, Washington’s franchise has reversed course.`\
 https://nytimes.com/athletic/6600351/2025/09/05/washington-commanders-season-tickets-stadium-sponsors/
