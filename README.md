@@ -1,3 +1,11 @@
+**Macron Said That 26 Countries Would Secure Ukraine**\
+`The pledges were made in Paris at a summit designed to show that Europe is ready to uphold any future peace deal for Ukraine.`\
+https://nytimes.com/2025/09/05/briefing/macron-ukraine-europe-afghan-quake-giorgio-armani.html
+
+**The art of fielding in cricket: 'The best make it look easy. It isn't'**\
+`The Athletic spends a day at Headingley undergoing a fielding masterclass with Carl Hopkinson, the Northern Superchargers' specialist coach`\
+https://nytimes.com/athletic/6591735/2025/09/05/fielding-cricket-hopkinson-masterclass/
+
 **The Athletic's starting XI of free agents**\
 `The Premier League transfer window may be shut, but there is still opportunity for clubs to bolster their squads`\
 https://nytimes.com/athletic/6597885/2025/09/05/free-agents-premier-league/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6598873/2025/09/05/golden-state-valkyries-clinch-pl
 **The BookKeeper: Real reason for Premier League PSR complaints is the 217% rise in costs**\
 `Although £1.8billion was made from player sales, continued extravagant spending suggests tighter rules are needed to rein clubs in`\
 https://nytimes.com/athletic/6594343/2025/09/05/bookkeeper-real-reason-psr-complaints/
-
-**Is this the end of #FSGOut?**\
-`The movement to oust Liverpool's owners has gone quiet but it feels unlikely to ever go away entirely`\
-https://nytimes.com/athletic/6587374/2025/09/05/fsg-out-liverpool/
-
-**With Mourinho, Solskjaer and Ten Hag sacked in one week, what remains of their United legacy?**\
-`In the space of a week, three former United managers were dismissed from their jobs. All the while, speculation swirled around Amorim`\
-https://nytimes.com/athletic/6591645/2025/09/05/manchester-united-premier-league-mourinho-solskjaer-ten-hag/
 

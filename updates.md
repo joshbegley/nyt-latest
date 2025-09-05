@@ -1,3 +1,19 @@
+**The Athletic's starting XI of free agents**\
+`The Premier League transfer window may be shut, but there is still opportunity for clubs to bolster their squads`\
+https://nytimes.com/athletic/6597885/2025/09/05/free-agents-premier-league/
+
+**Why Guiu is far more than a bit-part player at Chelsea**\
+`The Spanish striker is highly rated at Stamford Bridge and is determined to take his unexpected chance`\
+https://nytimes.com/athletic/6597652/2025/09/05/marc-guiu-chelsea-transfer-future/
+
+**Real Madrid's midfield enters a new era under Xabi Alonso. Who will step up?**\
+`The new La Liga season marks the beginning of a crucial phase in the careers of several midfield options at the Bernabeu`\
+https://nytimes.com/athletic/6597404/2025/09/05/xabi-alonso-real-madrid-guler-tchouameni-camavinga/
+
+**Did Leeds United's inability to sell players make them miss out on top targets?**\
+`The club’s managing director faced the media within 24 hours of Monday’s 7pm deadline, with no topics off the table`\
+https://nytimes.com/athletic/6598023/2025/09/05/leeds-united-missed-targets/
+
 **Analysing Jeff Shi's comments on Wolves transfers, strategy, and Strand Larsen**\
 `What should Wolves fans make of the chairman's comments following a summer transfer window that has left many fearing what lies ahead?`\
 https://nytimes.com/athletic/6599196/2025/09/05/jeff-shi-interview-analysed/
