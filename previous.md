@@ -1,40 +1,40 @@
-**A bolt from the blue at Tottenham Hotspur. Plus: Messi's tears and an iconic pink headband**\
-`Today in TAFC: A shock exit for Daniel Levy at Tottenham plus Messi's emotional star turn for Argentina on home soil`\
-https://nytimes.com/athletic/6600948/2025/09/05/tafc-newsletter-daniel-levy-ederson-alex-morgan-lionel-messi/
+**Angela Rayner, U.K. Deputy Premier, Resigns After Underpaying Tax**\
+`In a blow to Prime Minister Keir Starmer, Ms. Rayner said she would step down after an independent ethics adviser’s investigation.`\
+https://nytimes.com/2025/09/05/world/europe/angela-rayner-resigns-uk-starmer-tax.html
 
-**A weak jobs report would strengthen the case for rate cuts.**\
-`The Federal Reserve is likely to begin lowering interest rates at its next meeting in two weeks’ time. But the pace of those reductions will depend in large part on the labor market.`\
-https://nytimes.com/live/2025/09/05/business/jobs-report-august-economy/a-weak-jobs-report-would-strengthen-the-case-for-rate-cuts
+**NFL Week 1 schedule rankings: Top 5 Sunday games to remind us why we love football**\
+`We're keeping it simple for the opening weekend: the five matchups that should remind us why we dedicate so much to this hobby-turned-faith.`\
+https://nytimes.com/athletic/6595763/2025/09/05/nfl-week-1-how-to-watch-ravens-bills-rams-texans-lions-packers/
 
-**A Nighttime Raid**\
-`An investigation details a previously undisclosed U.S. operation to intercept the North Korean leader’s communications.`\
-https://nytimes.com/2025/09/05/briefing/a-nighttime-raid.html
+**Aleksandar Mitrovic completes move to Al Rayyan after Al Hilal exit**\
+`Mitrovic, 30, has spent the past two seasons with Al Hilal after they paid €52.6million (£45m) to sign him from Fulham in 2023.`\
+https://nytimes.com/athletic/6597669/2025/09/05/aleksandar-mitrovic-al-rayyan-transfer/
 
-**AFC North Whiparound: Ravens rule the roost in writers' division predictions**\
-`The Bengals and Browns square off, the Ravens face the Bills in prime time and the Steelers get an Aaron Rodgers revenge game vs. the Jets.`\
-https://nytimes.com/athletic/6597985/2025/09/05/afc-north-whiparound-ravens-bengals-browns-steelers/
+**How Cam Schlittler became the Yankees' 'most holistic success story' in years**\
+`Inside the 24-year-old righty's "uncommon" rise, from seventh-round draft pick to surprise rookie standout to, possibly, postseason starter.`\
+https://nytimes.com/athletic/6596226/2025/09/05/cam-schlittler-yankees-player-development/
 
-**Elon Musk Could Become First Trillionaire Under New Tesla Pay Plan**\
-`Tesla’s board unveiled a compensation package for the chief executive that could be worth $900 billion if he meets ambitious targets.`\
-https://nytimes.com/2025/09/05/business/elon-musk-tesla-pay-trillionaire.html
+**If the MLB playoffs started today, which team would have the best starting rotation?**\
+`How do the top three starters for each playoff rotation stack up right now? Are the Dodgers the best? Can the Mets rotation surprise?`\
+https://nytimes.com/athletic/6599520/2025/09/05/mlb-postseason-rotations-ranking/
 
-**Bears coach Ben Johnson is driven by his quest to entertain — and embarrass**\
-`At the start of his head coaching journey, Johnson is ready to "cut loose" his new Bears offense in the most aggressive manner possible.`\
-https://nytimes.com/athletic/6580669/2025/09/05/bears-coach-ben-johnson-monday-night-football-vikings/
+**Cam Thomas is betting on himself with a one-year Nets deal. Will it pay off?**\
+`The NBA's new de facto hard salary cap led Cam Thomas to make a bold decision: sign a one-year, $6 million qualifying offer.`\
+https://nytimes.com/athletic/6598481/2025/09/05/cam-thomas-nets-signing-free-agency/
 
-**NFL contributed to turf renovation in Brazil ahead of Chiefs-Chargers game**\
-`Corinthians Arena has a hybrid grass with synthetic turf sewn in and was overhauled this summer for the first time since its 2014 opening.`\
-https://nytimes.com/athletic/6598818/2025/09/05/nfl-brazil-turf-conditions-international-chiefs-chargers/
+**Portal Buzz: Impact of a single transfer window plus Castellano's fit, Morris' final stop**\
+`Under the proposal, the spring transfer portal window, which lasted 10 days in April, would be eliminated. `\
+https://nytimes.com/athletic/6598628/2025/09/05/college-football-news-buzz-portal-tommy-castellanos/
 
-**Eleven years ago, Salvador Perez hit a line drive off Aroldis Chapman's face. It sparked a lifelong bond**\
-`A gruesome injury in a March 2014 Cactus League game connected the two players, who 'basically became family.'`\
-https://nytimes.com/athletic/6600188/2025/09/05/aroldis-chapman-salvador-perez-royals-red-sox/
+**Iowa-Iowa St tailgate means gridlock, Busch Light and 'so much nervous tension'**\
+`The fierce in-state rivalry takes place Saturday in Ames.`\
+https://nytimes.com/athletic/6598931/2025/09/05/iowa-iowa-st-tailgate-nervous-tension/
 
-**What I'm seeing about the Panthers: No trading Brown and eyes on their 'absolute hammer'**\
-`The Cowboys approached the Panthers about a deal for Micah Parsons, but it would have at least included Derrick Brown. `\
-https://nytimes.com/athletic/6599142/2025/09/05/carolina-panthers-opener-jaguars-week-1/
+**How the Packers are integrating Micah Parsons: 'I want it all at once'**\
+`Parsons likely won't shoulder a full workload on Sunday, if in fact he plays, but Jeff Hafley is already prepared for when he does..`\
+https://nytimes.com/athletic/6599771/2025/09/05/packers-micah-parsons-jeff-hafley-defense/
 
-**How will Tom Brady do in 2025? And nine other NFL media questions answered**\
-`The NFL's impact and influence on media is a constant hot topic for fans. Here are 10 key dynamics to understand as the season kicks off.`\
-https://nytimes.com/athletic/6553487/2025/09/05/tom-brady-fox-nfl-media-2025/
+**Bengals' defining 9: Assessing the top-100 picks Cincinnati's defense is counting on**\
+`Dax Hill, Myles Murphy and Shemar Stewart are among the defensive players who must step up to complement Joe Burrow and the offense.`\
+https://nytimes.com/athletic/6598610/2025/09/05/bengals-defense-al-golden-shemar-stewart/
 
