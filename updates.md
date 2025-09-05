@@ -1,3 +1,11 @@
+**White House Scraps Biden Plan to Force Cash Payouts for Flight Delays**\
+`The Trump administration said it will withdraw former President Biden’s plan to require airlines to compensate passengers for carrier-caused disruptions.`\
+https://nytimes.com/2025/09/05/business/flight-delays-cancellations-compensation.html
+
+**Questions Focus on Cable in Lisbon Funicular Crash**\
+`Images of recovery efforts in the accident, which killed 16 people on Wednesday, appeared to show damage to a cable connecting the funicular’s two cars.`\
+https://nytimes.com/2025/09/05/world/europe/portugal-funicular.html
+
 **Here’s what to expect on jobs day.**\
 `By Lydia DePillis`\
 https://nytimes.com/live/2025/09/05/business/jobs-report-august-economy/heres-what-to-expect-on-jobs-day
