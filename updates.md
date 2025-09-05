@@ -1,3 +1,15 @@
+**Duchess of Kent, Royal Who Comforted a Wimbledon Loser, Dies at 92**\
+`A member of an aristocratic family, she married the Duke of Kent, a cousin of Queen Elizabeth II.`\
+https://nytimes.com/2025/09/05/world/europe/duchess-of-kent-dead.html
+
+**Until Saturday: Plenty to love in weaker CFB schedule**\
+`Until Saturday is The Athletic's free CFB newsletter.`\
+https://nytimes.com/athletic/6602023/2025/09/05/devin-hester-jr-eddie-robinson-jr-until-saturday/
+
+**NFL Week 1 projected scores: Model predicts point spreads and totals for every game**\
+`Austin Mock's projection model predicts point spreads and point totals for all 16 NFL Week 1 games.`\
+https://nytimes.com/athletic/6598769/2025/09/05/nfl-week-1-projected-scores-point-spreads-totals/
+
 **Tate McRae on Tour: Dancing’s What She Loves**\
 `Dance, which has been a central part of McRae’s pop persona from the beginning, is thrillingly showcased on the Miss Possessive tour.`\
 https://nytimes.com/2025/09/05/arts/dance/review-tate-mcrae-miss-possessive.html

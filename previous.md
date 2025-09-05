@@ -1,3 +1,15 @@
+**Duchess of Kent, Royal Who Comforted a Wimbledon Loser, Dies at 92**\
+`A member of an aristocratic family, she married the Duke of Kent, a cousin of Queen Elizabeth II.`\
+https://nytimes.com/2025/09/05/world/europe/duchess-of-kent-dead.html
+
+**Until Saturday: Plenty to love in weaker CFB schedule**\
+`Until Saturday is The Athletic's free CFB newsletter.`\
+https://nytimes.com/athletic/6602023/2025/09/05/devin-hester-jr-eddie-robinson-jr-until-saturday/
+
+**NFL Week 1 projected scores: Model predicts point spreads and totals for every game**\
+`Austin Mock's projection model predicts point spreads and point totals for all 16 NFL Week 1 games.`\
+https://nytimes.com/athletic/6598769/2025/09/05/nfl-week-1-projected-scores-point-spreads-totals/
+
 **What further discipline could be coming for Eagles' Jalen Carter after spitting incident?**\
 `Fines are typically issued for these types of incidents.`\
 https://nytimes.com/athletic/6601579/2025/09/05/jalen-carter-spitting-eagles-cowboys-fine-suspenion/
@@ -21,16 +33,4 @@ https://nytimes.com/athletic/6601866/2025/09/05/joao-almeida-jonas-vingegaard-vu
 **Martinez expected to be reintegrated into Villa squad after failed transfer**\
 `The plan will depend on how Martinez responds once he returns from Argentina duty, with his long-term future at the club uncertain.`\
 https://nytimes.com/athletic/6601863/2025/09/05/emi-martinez-aston-villa-future/
-
-**Billionaire Crypto Investor Hits Out at Trump Family’s Firm**\
-`Justin Sun, a major investor in World Liberty Financial’s cryptocurrency, said that his coins had been “unreasonably frozen.”`\
-https://nytimes.com/2025/09/05/business/trump-crypto-justin-sun.html
-
-**Javonte Williams' statement, Christian McCaffrey's injury and more fantasy football news**\
-`Andy Behrens discusses the news that most impacts fantasy football during Week 1. `\
-https://nytimes.com/athletic/6601573/2025/09/05/fantasy-football-news-williams-mccaffrey-week-1/
-
-**Bears coach Ben Johnson is driven by his quest to entertain — and embarrass**\
-`At the start of his head coaching journey, Johnson is ready to "cut loose" his new Bears offense in the most aggressive manner possible.`\
-https://nytimes.com/athletic/6580669/2025/09/05/bears-coach-ben-johnson-monday-night-football-vikings/
 
