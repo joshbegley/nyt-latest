@@ -1,3 +1,19 @@
+**Off-Duty Pilot Who Tried to Shut Off Engines Expresses Regret in Court**\
+`The former Alaska Airlines pilot had consumed psychedelic mushrooms two days before the flight. Judges approved plea agreements in his case on Friday.`\
+https://nytimes.com/2025/09/05/us/alaska-airlines-pilot-plea-agreement-mushrooms.html
+
+**Angel Reese gets half-game suspension for comments criticizing Chicago Sky**\
+`Reese will miss the first half of Sunday night's game against the Las Vegas Aces as a result of the suspension.`\
+https://nytimes.com/athletic/6602982/2025/09/05/angel-reese-suspension-chicago-sky-comments/
+
+**When Congress Should Be Notified About National Security Operations, Explained**\
+`The Trump administration failed to tell lawmakers about a 2019 SEAL Team 6 incursion into North Korean territory that went awry.`\
+https://nytimes.com/2025/09/05/us/politics/trump-congress-national-security-navy-seals.html
+
+**How Trump’s Blunt-Force Diplomacy Is Pushing His Rivals Together**\
+`Some of President Trump’s pressure tactics appear to have backfired, sending would-be allies into the embrace of China.`\
+https://nytimes.com/2025/09/05/us/politics/trump-diplomacy-rivals.html
+
 **New Summer Camp Safety Laws Follow Texas’ Tragic Floods**\
 `The families of “Heaven’s 27,” the children and counselors lost at Camp Mystic, pressed the Legislature to toughen flood rules over the objections of some Hill Country camp operators.`\
 https://nytimes.com/2025/09/05/us/politics/texas-summer-camp-safety-rules.html
