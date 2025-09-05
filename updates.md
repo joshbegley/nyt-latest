@@ -1,3 +1,7 @@
+**Dodger Details: Swept in Pittsburgh, finding a new low as slide continues**\
+`A 5-3 loss Thursday to the lowly Pittsburgh Pirates gives the Dodgers five losses in their last six games.`\
+https://nytimes.com/athletic/6600212/2025/09/04/dodgers-lose-pirates-sweep/
+
 **Melania Trump Says ‘the Robots Are Here’**\
 `The first lady, Melania Trump, issued a warning about the future of artificial intelligence during a meeting with tech executives at the White House on Thursday.`\
 https://nytimes.com/video/us/politics/100000010380379/melania-trump-robots-humanity.html
