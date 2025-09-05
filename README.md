@@ -1,3 +1,11 @@
+**Questions Arise Over Hiring of Firm to Run $11 Billion Health Care Program**\
+`The bidding process was questioned on Friday after the company, Public Partnerships LLC, admitted it had exchanged unspecified communications with state officials before the contract was awarded.`\
+https://nytimes.com/2025/09/05/nyregion/questions-arise-over-hiring-of-firm-to-run-11-billion-health-care-program.html
+
+**Record Number of Lightning Strikes Hit California This Summer**\
+`Moist, cool air pulled inland by an area of low pressure off the West Coast has led to a high number of lightning strikes, especially in Northern California.`\
+https://nytimes.com/video/weather/100000010382111/record-number-of-lightning-strikes-hit-california-this-summer.html
+
 **Do Product Specs Matter? Here’s Why They Might Be Misleading.**\
 `(No description)`\
 https://nytimes.com/newsgraphics/card-story/wc-advice-product-specs
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6602846/2025/09/05/kawhi-leonard-clippers-nba-inves
 **Carlos Alcaraz overpowers Novak Djokovic to reach U.S. Open final**\
 `After Djokovic threatened to repeat his Australian Open comeback, Alcaraz held his nerve to beat him on a hard court for the first time.`\
 https://nytimes.com/athletic/6601703/2025/09/05/carlos-alcaraz-novak-djokovic-us-open-result-analysis/
-
-**Immigration Authorities Arrest Hundreds in Georgia Raid**\
-`Nearly 500 people, most of whom are South Korean citizens, were arrested at a construction site for a Hyundai electric vehicle battery plant in Ellabell, Ga., on Thursday.`\
-https://nytimes.com/video/us/politics/100000010381555/hundreds-arrested-georgia-immigration-raid.html
-
-**G20 Summit in 2026 to Be Held at Trump’s Club Near Miami, President Announces**\
-`The president is reviving an idea to hold a major diplomatic event at one of his properties.`\
-https://nytimes.com/2025/09/05/us/politics/trump-g20-summit-miami.html
 
