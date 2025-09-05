@@ -1,6 +1,14 @@
-**PSG head coach Enrique to undergo surgery on fractured collarbone**\
+**There’s Only So Much the Federal Reserve Can Do to Help This Economy**\
+`Economic data suggests labor supply and immigration changes are affecting job growth. The Federal Reserve can’t fix that, but Trump can.`\
+https://nytimes.com/2025/09/05/opinion/jobs-report-immigration-trump-fed.html
+
+**Federal Report on Drinking Is Withdrawn**\
+`The upcoming U.S. Dietary Guidelines will instead be influenced by a competing study, favored by industry, which found that moderate alcohol consumption was healthy.`\
+https://nytimes.com/2025/09/05/health/alcohol-drinking-hhs-report.html
+
+**Luis Enrique to undergo surgery on fractured collarbone after cycling accident**\
 `Enrique has been at PSG since the summer of 2023 and led them to a Champions League win last season.`\
-https://nytimes.com/athletic/6602810/2025/09/05/luis-enrique-paris-saint-germain-surgery-bike-accident/
+https://nytimes.com/athletic/6602810/2025/09/05/luis-enrique-psg-surgery-bike-accident/
 
 **If NBA can prove Clippers evaded cap, Adam Silver should hammer them. But it may be tough**\
 `But Clippers owner Steve Ballmer and/or Kawhi Leonard might still have some explaining to do in the court of Silver.`\
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6602772/2025/09/05/kyle-finnegan-tigers-adductor-st
 **Jonathan David stars for Canada in big friendly road win against Romania**\
 `Jesse Marsch's side bounced back to form in impressive fashion`\
 https://nytimes.com/athletic/6602298/2025/09/05/canada-romania-jonathan-david/
-
-**Newsmax Lawsuit Against Fox News Is Dismissed**\
-`A federal judge left the door open for Newsmax to refile its complaint that Fox had created a monopoly in right-leaning television news.`\
-https://nytimes.com/2025/09/05/business/media/newsmax-fox-news-lawsuit.html
-
-**Packers 'most-bet Super Bowl winner' but Bengals, Burrow could slam sportsbooks**\
-`Bettors are all in on the NFL. Which team is everyone taking to win the Super Bowl, and are sportsbooks wary of any?`\
-https://nytimes.com/athletic/6599364/2025/09/05/lions-packers-bills-super-bowl-bets-burrow-mvp/
 

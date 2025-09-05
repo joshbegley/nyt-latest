@@ -1,3 +1,15 @@
+**There’s Only So Much the Federal Reserve Can Do to Help This Economy**\
+`Economic data suggests labor supply and immigration changes are affecting job growth. The Federal Reserve can’t fix that, but Trump can.`\
+https://nytimes.com/2025/09/05/opinion/jobs-report-immigration-trump-fed.html
+
+**Federal Report on Drinking Is Withdrawn**\
+`The upcoming U.S. Dietary Guidelines will instead be influenced by a competing study, favored by industry, which found that moderate alcohol consumption was healthy.`\
+https://nytimes.com/2025/09/05/health/alcohol-drinking-hhs-report.html
+
+**Luis Enrique to undergo surgery on fractured collarbone after cycling accident**\
+`Enrique has been at PSG since the summer of 2023 and led them to a Champions League win last season.`\
+https://nytimes.com/athletic/6602810/2025/09/05/luis-enrique-psg-surgery-bike-accident/
+
 **PSG head coach Enrique to undergo surgery on fractured collarbone**\
 `Enrique has been at PSG since the summer of 2023 and led them to a Champions League win last season.`\
 https://nytimes.com/athletic/6602810/2025/09/05/luis-enrique-paris-saint-germain-surgery-bike-accident/
