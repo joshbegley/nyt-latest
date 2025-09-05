@@ -1,3 +1,7 @@
+**Christian McCaffrey limited by calf injury at 49ers practice**\
+`McCaffrey, who missed the first half of the 2024 season with what was called a calf injury, was not listed on Wednesday's injury report.`\
+https://nytimes.com/athletic/6599904/2025/09/04/christian-mccaffrey-injury-calf-49ers/
+
 **Florida Matriarch Convicted in Murder-for-Hire Plot Against Law Professor**\
 `A jury found Donna Adelson guilty of murder in the high-profile death of her former son-in-law, a Florida law professor named Dan Markel.`\
 https://nytimes.com/2025/09/04/us/dan-markel-florida-murder-verdict.html

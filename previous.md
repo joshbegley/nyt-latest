@@ -23,7 +23,7 @@ https://nytimes.com/athletic/6599932/2025/09/04/mariners-vs-braves-stream-how-to
 https://nytimes.com/2025/09/04/us/harvard-funding-decision-reaction-students.html
 
 **Christian McCaffrey limited by calf injury at 49ers practice**\
-`McCaffrey, who missed the first half of the 2024 season with a calf injury, was not listed on Wednesday's injury report.`\
+`McCaffrey, who missed the first half of the 2024 season with what was called a calf injury, was not listed on Wednesday's injury report.`\
 https://nytimes.com/athletic/6599904/2025/09/04/christian-mccaffrey-injury-calf-49ers/
 
 **UNC vs. TCU averages 6.6 million viewers in Bill Belichick's college coaching debut**\
