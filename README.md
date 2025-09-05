@@ -1,3 +1,7 @@
+**Red Sox place struggling reliever Jordan Hicks on injured list**\
+`The righty has an 8.20 ERA with the Red Sox. He's the only player Boston acquired in the Rafael Devers trade to appear in the majors.`\
+https://nytimes.com/athletic/6598716/2025/09/05/red-sox-jordan-hicks-injury/
+
 **How to watch Brewers at Pirates: Time, TV, streaming for September 6**\
 `Find out how to watch the Milwaukee Brewers play the Pittsburgh Pirates, with time, TV channel, and streaming information.`\
 https://nytimes.com/athletic/6603151/2025/09/05/brewers-vs-pirates-stream-how-to-watch-sept-6/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6603024/2025/09/05/christian-mccaffrey-49ers-seahaw
 **Dylan Harper undergoes surgery for partially torn thumb: Source**\
 `The No. 2 overall pick is undergoing surgery in an attempt to return for the Spurs' season opener. `\
 https://nytimes.com/athletic/6603063/2025/09/05/dylan-harper-spurs-injury-finger-surgery-nba/
-
-**Off-Duty Pilot Who Tried to Shut Off Engines Expresses Regret in Court**\
-`The former Alaska Airlines pilot had consumed psychedelic mushrooms two days before the flight. Judges approved plea agreements in his case on Friday.`\
-https://nytimes.com/2025/09/05/us/alaska-airlines-pilot-plea-agreement-mushrooms.html
 
