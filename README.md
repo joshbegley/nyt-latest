@@ -1,3 +1,19 @@
+**With Audi Poised to Take Over, Sauber Rises in the F1 Standings**\
+`The automotive giant has committed to Formula 1 next year and will provide new resources, including its own power unit. Now the team is experiencing a bit of a surge.`\
+https://nytimes.com/2025/09/05/sports/autoracing/f1-sauber-audi.html
+
+**Mailbag: Send in your questions for The Athletic FC Tactics Podcast**\
+`Send in your questions now ahead of a special episode of The Athletic FC Tactics Podcast`\
+https://nytimes.com/athletic/6601618/2025/09/05/mailbag-questions-for-the-athletic-fc-tactics-podcast/
+
+**For the 10th straight year, their fantasy football draft began with tears**\
+`Ten years ago, the Bradstrong fantasy football league lost one of its founding members to cancer. This is how they honor his memory.`\
+https://nytimes.com/athletic/6573770/2025/09/05/fantasy-football-brad-coustan-10-year-anniversary/
+
+**Formula 1’s Boss Knows It Must Keep Changing to Keep Up**\
+`Stefano Domenicali, the chief executive, has run the sport for five years, adding races and teams — even attracting Brad Pitt.`\
+https://nytimes.com/2025/09/05/sports/autoracing/f1-stefano-domenicali.html
+
 **He’s Stepping Into the Heels of Maria Callas**\
 `At Little Island, the countertenor Anthony Roth Costanzo is starring, and singing, in Charles Ludlam’s “Galas,” a love letter to Callas.`\
 https://nytimes.com/2025/09/05/arts/music/galas-little-island.html
@@ -21,16 +37,4 @@ https://nytimes.com/2025/09/05/movies/action-movie-streaming.html
 **What's up with the 'Saving College Sports' ad you can't avoid on Saturdays?**\
 `For those following the dramatic evolution of college sports over the past few years, Campbell and his message might be familiar, if vague.`\
 https://nytimes.com/athletic/6601524/2025/09/05/saving-college-sports-commercials-cody-campbell/
-
-**Ex-F1 driver Daniel Ricciardo retires from racing**\
-`The 36-year-old spent 14 years as a Formula One driver, twice finishing third in the drivers' championship with Red Bull.`\
-https://nytimes.com/athletic/6601422/2025/09/05/daniel-ricciardo-retires-f1/
-
-**Who are the YouTube creators giving NFL fans a new way of watching?**\
-`The four creators tapped to offer “Watch With” streams combine to reach more than 50 million YouTube subscribers.`\
-https://nytimes.com/athletic/6601570/2025/09/05/youtube-creators-streaming-chiefs-vs-chargers/
-
-**The Return of the ‘War Department’ Is More Than Nostalgia. It’s a Message.**\
-`President Trump and his defense secretary say they want to return to the era when America won wars. They largely ignore the greatest accomplishment of the past 80 years: avoiding superpower conflict.`\
-https://nytimes.com/2025/09/05/us/politics/the-return-of-the-war-department-is-more-than-nostalgia-its-a-message.html
 
