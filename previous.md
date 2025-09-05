@@ -1,3 +1,11 @@
+**Art Seitz, Whose Camera Caught Tennis Greats On and Off the Court, Dies at 82**\
+`Over a 50-year career as a photographer he built friendships with rising stars and captured many of them in their personal environments.`\
+https://nytimes.com/2025/09/05/sports/tennis/art-seitz-dead.html
+
+**CBS Abruptly Changes Rules for Editing ‘Face the Nation’ Interviews**\
+`The change came less than a week after an interview aired with Kristi Noem, the homeland security secretary. The administration accused the network of deceptively editing her appearance.`\
+https://nytimes.com/2025/09/05/business/cbs-face-the-nation-editing-rules.html
+
 **Prime Tire: Ferrari’s season-changing chance. Plus, Norris and Hamilton lead early at Monza**\
 `Ferrari seems to be in the hunt early at the 2025 Italian GP, on raw pace at least. A win at Monza would rescue its F1 season`\
 https://nytimes.com/athletic/6601931/2025/09/05/italian-grand-prix-ferrari-practice-results/
@@ -25,16 +33,4 @@ https://nytimes.com/2025/09/05/arts/dance/review-tate-mcrae-miss-possessive.html
 **Employers added 22,000 jobs in August.**\
 `Employers added 22,000 jobs in August. Revised data also showed that employment fell by 13,000 jobs in June, the first net loss since December 2020.`\
 https://nytimes.com/live/2025/09/05/business/jobs-report-august-economy/labor-market-stalled-this-summer-with-august-data-adding-to-slowdown
-
-**Live Phillies Q&A with Matt Gelb on Friday: Submit questions**\
-`Matt Gelb will host a live Q&A with subscribers from noon to 12:45 p.m. ET on Friday. Questions can be submitted now or during the live Q&A.`\
-https://nytimes.com/athletic/6598326/2025/09/05/live-phillies-qa-with-matt-gelb-on-friday/
-
-**Almeida beats Vingegaard on Vuelta queen stage**\
-`Stage 13 contained the Alto de l'Angliru climb and was billed as one of the most decisive stages of the Vuelta. `\
-https://nytimes.com/athletic/6601866/2025/09/05/joao-almeida-jonas-vingegaard-vuelta-a-espana/
-
-**Martinez expected to be reintegrated into Villa squad after failed transfer**\
-`The plan will depend on how Martinez responds once he returns from Argentina duty, with his long-term future at the club uncertain.`\
-https://nytimes.com/athletic/6601863/2025/09/05/emi-martinez-aston-villa-future/
 

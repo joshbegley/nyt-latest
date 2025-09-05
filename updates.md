@@ -1,3 +1,11 @@
+**Art Seitz, Whose Camera Caught Tennis Greats On and Off the Court, Dies at 82**\
+`Over a 50-year career as a photographer he built friendships with rising stars and captured many of them in their personal environments.`\
+https://nytimes.com/2025/09/05/sports/tennis/art-seitz-dead.html
+
+**CBS Abruptly Changes Rules for Editing ‘Face the Nation’ Interviews**\
+`The change came less than a week after an interview aired with Kristi Noem, the homeland security secretary. The administration accused the network of deceptively editing her appearance.`\
+https://nytimes.com/2025/09/05/business/cbs-face-the-nation-editing-rules.html
+
 **Prime Tire: Ferrari’s season-changing chance. Plus, Norris and Hamilton lead early at Monza**\
 `Ferrari seems to be in the hunt early at the 2025 Italian GP, on raw pace at least. A win at Monza would rescue its F1 season`\
 https://nytimes.com/athletic/6601931/2025/09/05/italian-grand-prix-ferrari-practice-results/
