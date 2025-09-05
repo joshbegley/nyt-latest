@@ -1,3 +1,11 @@
+**Eagles-Cowboys game suspended in third quarter due to lightning**\
+`The Eagles had just recovered a Cowboys fumble and lead 24-20 in the third quarter.`\
+https://nytimes.com/athletic/6600297/2025/09/04/weather-delay-nfl-cowboys-eagles-season-kickoff/
+
+**Luis Suarez apologizes for spitting on staffer after Leagues Cup loss**\
+`The incident has been widely condemned as yet another act of bizarre behavior from the Uruguayan legend.`\
+https://nytimes.com/athletic/6600168/2025/09/04/luis-suarez-inter-miami-leagues-cup-spitting/
+
 **Biden Has Surgery to Remove Skin Cancer Lesions**\
 `Three months earlier, former President Joseph R. Biden Jr. had a diagnosis of an aggressive form of prostate cancer.`\
 https://nytimes.com/2025/09/04/us/politics/biden-skin-cancer.html
