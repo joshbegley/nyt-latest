@@ -1,3 +1,19 @@
+**Over 100 Free New York Times Articles About How A.I. Is Changing Our World**\
+`To go along with our contest, here are scores of recent, free Times articles, videos, opinion pieces, videos, quizzes and podcasts about the effects of this world-changing technology. Which pieces most interest you?`\
+https://nytimes.com/2025/09/05/learning/over-100-free-new-york-times-articles-about-how-ai-is-changing-our-world.html
+
+**What Are Your Thoughts About A.I.? A Forum for Teenagers and Educators**\
+`How have you experimented with generative artificial intelligence, in or outside school? If so, how is it affecting you or those around you? Please share your thoughts.`\
+https://nytimes.com/2025/09/05/learning/what-are-your-thoughts-about-ai-a-forum-for-teenagers-and-educators.html
+
+**Penn State switching to adidas from Nike in 2026 as part of new 10-year deal**\
+`The agreement continues a trend of adidas securing partnerships with athletics programs with ties to a superstar athlete.`\
+https://nytimes.com/athletic/6600213/2025/09/05/penn-state-adidas-apparel-deal/
+
+**Growing Up With A.I.: A Multimedia Challenge for Teenagers and Educators**\
+`Show us — in words or images, audio or video — how this technology is affecting you and the teenagers you know. Contest dates: Sept. 10-Oct. 22, 2025.`\
+https://nytimes.com/2025/09/05/learning/growing-up-with-ai-a-multimedia-challenge-for-teenagers-and-educators.html
+
 **Anthropic Agrees to Pay $1.5 Billion to Settle Lawsuit With Book Authors**\
 `The settlement is the largest payout in the history of U.S. copyright cases and could lead to more A.I. companies paying rights holders for use of their works.`\
 https://nytimes.com/2025/09/05/technology/anthropic-settlement-copyright-ai.html

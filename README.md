@@ -15,7 +15,7 @@ https://nytimes.com/athletic/6600213/2025/09/05/penn-state-adidas-apparel-deal/
 https://nytimes.com/2025/09/05/learning/growing-up-with-ai-a-multimedia-challenge-for-teenagers-and-educators.html
 
 **Anthropic Agrees to Pay $1.5 Billion to Settle Lawsuit With Book Authors**\
-`The settlement is the largest payout in the history of U.S. copyright cases and could lead to more A.I. companies paying rights holders for use of their works.`\
+`The settlement is the largest payout in the history of U.S. copyright cases and could lead more A.I. companies to pay rights holders for use of their works.`\
 https://nytimes.com/2025/09/05/technology/anthropic-settlement-copyright-ai.html
 
 **A Revived Focus on an Unproven Link Between Tylenol and Autism**\
