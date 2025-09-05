@@ -1,3 +1,19 @@
+**Man Charged in Connection With Fatal Shooting of Woman, 69, in Harlem**\
+`Faisil McCants, 18, was charged with armed robbery and the use of a machine gun in last week’s incident, which left Robin Wright, a bystander, dead.`\
+https://nytimes.com/2025/09/05/nyregion/harlem-nyc-shooting-woman-charges.html
+
+**Luis Suarez and Sergio Busquets suspended for Leagues Cup melee**\
+`Miami's clash with the Seattle Sounders turned ugly and led to repercussions.`\
+https://nytimes.com/athletic/6602744/2025/09/05/suarez-busquets-suspended-inter-miami-leagues-cup/
+
+**Steelers DT Cameron Heyward non-committal on season opener as contract dispute continues**\
+`Heyward had his normal workload this week, as the Steelers prepared for the Jets.`\
+https://nytimes.com/athletic/6602341/2025/09/05/steelers-cameron-heyward-season-opener-contract-dispute/
+
+**Second Weak Jobs Report Undercuts Trump’s Claims of a Booming Economy**\
+`After a bad employment report in August, President Trump fired the official in charge of the numbers. This month’s data was just as disappointing.`\
+https://nytimes.com/2025/09/05/us/politics/trump-jobs-report-tariffs-deportations.html
+
 **Leaders of African Separatist Movement Indicted in Minnesota**\
 `Insurgents seeking to form a new nation for English speakers in Cameroon were led by men living in Minnesota, federal prosecutors said on Friday.`\
 https://nytimes.com/2025/09/05/us/african-separatists-indicted-minnesota-ambazonia-cameroon.html
