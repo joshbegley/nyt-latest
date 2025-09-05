@@ -1,3 +1,11 @@
+**Tate McRae on Tour: Dancing’s What She Loves**\
+`Dance, which has been a central part of McRae’s pop persona from the beginning, is thrillingly showcased on the Miss Possessive tour.`\
+https://nytimes.com/2025/09/05/arts/dance/review-tate-mcrae-miss-possessive.html
+
+**Live Phillies Q&A with Matt Gelb on Friday: Submit questions**\
+`Matt Gelb will host a live Q&A with subscribers from noon to 12:45 p.m. ET on Friday. Questions can be submitted now or during the live Q&A.`\
+https://nytimes.com/athletic/6598326/2025/09/05/live-phillies-qa-with-matt-gelb-on-friday/
+
 **What further discipline could be coming for Eagles' Jalen Carter after spitting incident?**\
 `Fines are typically issued for these types of incidents.`\
 https://nytimes.com/athletic/6601579/2025/09/05/jalen-carter-spitting-eagles-cowboys-fine-suspenion/
