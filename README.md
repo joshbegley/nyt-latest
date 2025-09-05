@@ -1,3 +1,7 @@
+**New Summer Camp Safety Laws Follow Texas’ Tragic Floods**\
+`The families of “Heaven’s 27,” the children and counselors lost at Camp Mystic, pressed the Legislature to toughen flood rules over the objections of some Hill Country camp operators.`\
+https://nytimes.com/2025/09/05/us/politics/texas-summer-camp-safety-rules.html
+
 **Questions Arise Over Hiring of Firm to Run $11 Billion Health Care Program**\
 `The bidding process was questioned on Friday after the company, Public Partnerships LLC, admitted it had exchanged unspecified communications with state officials before the contract was awarded.`\
 https://nytimes.com/2025/09/05/nyregion/public-partnership-homecare.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6602332/2025/09/05/naomi-girma-chelsea-calf-injury/
 **Law firm that investigated Sterling, Sarver to lead NBA probe of Clippers, Leonard: Source**\
 `The NBA tapped the same law firm that investigated Donald Sterling and Robert Sarver to look into allegations against the Clippers, Leonard.`\
 https://nytimes.com/athletic/6602846/2025/09/05/kawhi-leonard-clippers-nba-investigation-salary-cap-circumvention/
-
-**Carlos Alcaraz overpowers Novak Djokovic to reach U.S. Open final**\
-`After Djokovic threatened to repeat his Australian Open comeback, Alcaraz held his nerve to beat him on a hard court for the first time.`\
-https://nytimes.com/athletic/6601703/2025/09/05/carlos-alcaraz-novak-djokovic-us-open-result-analysis/
 
