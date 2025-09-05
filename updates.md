@@ -1,3 +1,7 @@
+**Prime Tire: Ferrari’s season-changing chance. Plus, Norris and Hamilton lead early at Monza**\
+`Ferrari seems to be in the hunt early at the 2025 Italian GP, on raw pace at least. A win at Monza would rescue its F1 season`\
+https://nytimes.com/athletic/6601931/2025/09/05/italian-grand-prix-ferrari-practice-results/
+
 **Duchess of Kent, Royal Who Comforted a Wimbledon Loser, Dies at 92**\
 `A member of an aristocratic family, she married the Duke of Kent, a cousin of Queen Elizabeth II.`\
 https://nytimes.com/2025/09/05/world/europe/duchess-of-kent-dead.html
