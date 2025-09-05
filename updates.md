@@ -1,3 +1,7 @@
+**G20 Summit in 2026 to Be Held at Trump’s Club in Miami, President Announces**\
+`The president is reviving an idea to hold a major diplomatic event at one of his properties.`\
+https://nytimes.com/2025/09/05/us/politics/trump-g20-summit-miami.html
+
 **Connor McDavid isn't shying away from uncertainty over his Oilers future**\
 `McDavid entering the final season of his deal is the story of the NHL and has the potential to be a major distraction for the Oilers.`\
 https://nytimes.com/athletic/6602749/2025/09/05/connor-mcdavid-contract-extension-oilers-edmonton-uncertainty/

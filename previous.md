@@ -1,3 +1,7 @@
+**G20 Summit in 2026 to Be Held at Trump’s Club in Miami, President Announces**\
+`The president is reviving an idea to hold a major diplomatic event at one of his properties.`\
+https://nytimes.com/2025/09/05/us/politics/trump-g20-summit-miami.html
+
 **Connor McDavid isn't shying away from uncertainty over his Oilers future**\
 `McDavid entering the final season of his deal is the story of the NHL and has the potential to be a major distraction for the Oilers.`\
 https://nytimes.com/athletic/6602749/2025/09/05/connor-mcdavid-contract-extension-oilers-edmonton-uncertainty/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6602754/2025/09/05/calgary-flames-connor-zary-contr
 **There’s Only So Much the Federal Reserve Can Do to Help This Economy**\
 `Economic data suggests labor supply and immigration changes are affecting job growth. The Federal Reserve can’t fix that, but Trump can.`\
 https://nytimes.com/2025/09/05/opinion/jobs-report-immigration-trump-fed.html
-
-**Federal Report on Drinking Is Withdrawn**\
-`The upcoming U.S. Dietary Guidelines will instead be influenced by a competing study, favored by industry, which found that moderate alcohol consumption was healthy.`\
-https://nytimes.com/2025/09/05/health/alcohol-drinking-hhs-report.html
 
