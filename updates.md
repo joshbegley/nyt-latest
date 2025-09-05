@@ -1,3 +1,7 @@
+**Real Madrid's midfield enters a new era under Xabi Alonso. Who will step up?**\
+`The new La Liga season marks the beginning of a crucial phase in the careers of several midfield options at the Bernabeu`\
+https://nytimes.com/athletic/6597404/2025/09/05/xabi-alonso-real-madrid-guler-tchouameni-camavinga/
+
 **Amanda Anisimova reaches U.S. Open final with Aryna Sabalenka by beating Naomi Osaka**\
 `Anisimova made the perfect recovery from her Wimbledon final nightmare by reaching a second consecutive Grand Slam final weekend.`\
 https://nytimes.com/athletic/6599187/2025/09/05/amanda-anisimova-naomi-osaka-us-open-semifinal-result-analysis/
