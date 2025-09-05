@@ -1,3 +1,7 @@
+**Talks Between Adams and Trump Adviser Center on Saudi Ambassadorship**\
+`The discussions are said to be part of an effort to get Mayor Eric Adams to end his mayoral campaign in New York City, clearing a path for Andrew Cuomo.`\
+https://nytimes.com/2025/09/05/nyregion/eric-adams-saudi-arabia-ambassador.html
+
 **'No animosity' towards Isak over Newcastle exit, says Burn**\
 `Isak refused to play for Newcastle from the beginning of pre-season as he sought a move away from St James' Park. `\
 https://nytimes.com/athletic/6601149/2025/09/05/dan-burn-alexander-isak-newcastle/
@@ -33,8 +37,4 @@ https://nytimes.com/video/world/europe/100000010380642/workers-remove-wreckage-o
 **American Who Posed as Irish Heiress Is Found Guilty of Theft and Fraud**\
 `Marianne Smyth was convicted in Northern Ireland, where court records said she had swindled victims out of more than $155,000.`\
 https://nytimes.com/2025/09/05/world/europe/fake-heiress-fraud-guilty-northern-ireland.html
-
-**Trump Administration Live Updates: President Will Revive War Department Name**\
-``\
-https://nytimes.com/live/2025/09/05/us/trump-news
 
