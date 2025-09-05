@@ -1,4 +1,4 @@
-**Daniel Levy's shock removal by Spurs - Gibb River review, change in Lewis family relations, what it means for sale**\
+**Daniel Levy's shock removal by Spurs: Gibb River review, change in Lewis family relations, what it means for sale**\
 `A Lewis family-instigated review by a US firm into why Spurs were performing so badly ultimately led to the removal of its most powerful man`\
 https://nytimes.com/athletic/6596213/2025/09/05/daniel-levy-spurs-removal-lewis-family/
 
