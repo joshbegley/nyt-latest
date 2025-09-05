@@ -26,7 +26,7 @@ https://nytimes.com/athletic/6598481/2025/09/05/cam-thomas-nets-signing-free-age
 `Under the proposal, the spring transfer portal window, which lasted 10 days in April, would be eliminated. `\
 https://nytimes.com/athletic/6598628/2025/09/05/college-football-news-buzz-portal-tommy-castellanos/
 
-**Iowa-Iowa St tailgate means gridlock, Busch Light and 'so much nervous tension'**\
+**Cy-Hawk tailgates mean gridlock, Busch Light and 'so much nervous tension'**\
 `The fierce in-state rivalry takes place Saturday in Ames.`\
 https://nytimes.com/athletic/6598931/2025/09/05/iowa-iowa-st-tailgate-nervous-tension/
 
