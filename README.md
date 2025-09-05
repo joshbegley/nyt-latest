@@ -2,10 +2,6 @@
 `Researchers hope the technique could offer a more environmentally friendly approach to cleaning up messy clothing.`\
 https://nytimes.com/2025/09/05/science/blue-light-stains-laundry.html
 
-**اسرائیل در جریان هدف قرار دادن مقامات ایران به یک نقطه ضعف دسترسی پیدا کرد: محافظان شخصی**\
-`اسرائیل در طول جنگ ۱۲ روزه در بهار امسال موفق شد با ردگیری تلفن های همراه محافظان شخصی چهره های کلیدی ایران آنها را ردیابی و ترور کند.`\
-https://nytimes.com/2025/09/05/world/middleeast/israel-iran-assassination.html
-
 **The USMNT's home crowd dilemma is US Soccer's age-old problem**\
 `The USMNT has had to tackle a significant problem - getting large crowds on its side for home internationals`\
 https://nytimes.com/athletic/6600995/2025/09/05/usmnt-crowd-pochettino-korea-japan/
