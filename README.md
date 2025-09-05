@@ -1,3 +1,7 @@
+**Canadiens trade Carey Price, 2026 draft pick to Sharks**\
+`The trade allows the Canadiens to avoid operating in long-term injured reserve for the first time since the 2021-22 season.`\
+https://nytimes.com/athletic/6602944/2025/09/05/carey-price-trade-canadiens-sharks/
+
 **Georgia AD seeking 'clarity' from NCAA as new lawsuit targets fifth year of eligibility**\
 `Josh Brooks and Georgia president Jere Morehead appeared open to 'five to play five', but their focus was more on the decision's timing.`\
 https://nytimes.com/athletic/6602869/2025/09/05/georgia-ncaa-fifth-year-eligibility-lawsuit/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6602907/2025/09/05/messi-argentina-world-cup-2026/
 **Eagles sign 3-time Pro Bowl edge Za'Darius Smith after season-opening win over Cowboys**\
 `Smith, one of the NFL's top free agents, finished with nine sacks last season playing for Cleveland and Detroit.`\
 https://nytimes.com/athletic/6602897/2025/09/05/eagles-sign-zadarius-smith-after-win-over-cowboys/
-
-**Broncos' key free-agent addition Dre Greenlaw, DL Malcolm Roach out Week 1 vs. Titans**\
-`The Broncos signed Greenlaw in March as an upgrade at linebacker, but he still hasn't fully recovered from an offseason quad injury.`\
-https://nytimes.com/athletic/6602163/2025/09/05/broncos-dre-greenlaw-out-titans/
 

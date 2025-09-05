@@ -1,3 +1,7 @@
+**Georgia AD seeking 'clarity' from NCAA as new lawsuit targets fifth year of eligibility**\
+`Josh Brooks and Georgia president Jere Morehead appeared open to 'five to play five', but their focus was more on the decision's timing.`\
+https://nytimes.com/athletic/6602869/2025/09/05/georgia-ncaa-fifth-year-eligibility-lawsuit/
+
 **Chelsea's Girma missed WSL season-opener with calf injury**\
 `The 25-year-old joined Chelsea for a then-world record fee of $1.1m in January.`\
 https://nytimes.com/athletic/6602332/2025/09/05/naomi-girma-chelsea-calf-injury/
