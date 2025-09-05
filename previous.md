@@ -1,3 +1,11 @@
+**Patriots All-Pro CB Christian Gonzalez ruled out for season opener with hamstring injury**\
+`The third-year corner, for whom the team has high expectations this season, was injured early in training camp and hasn't practiced since.`\
+https://nytimes.com/athletic/6601574/2025/09/05/christian-gonzalez-injury-patriots-raiders-week-1/
+
+**Trump Administration Threatens Abrego Garcia With Deportation to El Salvador**\
+`A court had ruled that Kilmar Armando Abrego Garcia could not be sent back to his homeland, but now the administration sees a legal loophole.`\
+https://nytimes.com/2025/09/05/us/politics/trump-deportations-abrego-garcia-el-salvador.html
+
 **BART Trains Shut Down for the Morning Commute in the Bay Area**\
 `Bay Area Rapid Transit suffered a systemwide outage for the second time in four months because of a computer problem.`\
 https://nytimes.com/2025/09/05/us/bart-transit-outage-bay-area.html
@@ -25,12 +33,4 @@ https://nytimes.com/athletic/6602023/2025/09/05/devin-hester-jr-eddie-robinson-j
 **NFL Week 1 projected scores: Model predicts point spreads and totals for every game**\
 `Austin Mock's projection model predicts point spreads and point totals for all 16 NFL Week 1 games.`\
 https://nytimes.com/athletic/6598769/2025/09/05/nfl-week-1-projected-scores-point-spreads-totals/
-
-**What further discipline could be coming for Eagles' Jalen Carter after spitting incident?**\
-`Fines are typically issued for these types of incidents.`\
-https://nytimes.com/athletic/6601579/2025/09/05/jalen-carter-spitting-eagles-cowboys-fine-suspenion/
-
-**Tate McRae on Tour: Dancing’s What She Loves**\
-`Dance, which has been a central part of McRae’s pop persona from the beginning, is thrillingly showcased on the Miss Possessive tour.`\
-https://nytimes.com/2025/09/05/arts/dance/review-tate-mcrae-miss-possessive.html
 
