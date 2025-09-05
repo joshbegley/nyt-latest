@@ -1,3 +1,7 @@
+**Cy-Hawk tailgates mean gridlock, Busch Light and 'so much nervous tension'**\
+`The fierce in-state rivalry takes place Saturday in Ames.`\
+https://nytimes.com/athletic/6598931/2025/09/05/iowa-iowa-st-tailgate-nervous-tension/
+
 **Angela Rayner, U.K. Deputy Premier, Resigns After Underpaying Tax**\
 `In a blow to Prime Minister Keir Starmer, Ms. Rayner said she would step down after an independent ethics adviser’s investigation.`\
 https://nytimes.com/2025/09/05/world/europe/angela-rayner-resigns-uk-starmer-tax.html
