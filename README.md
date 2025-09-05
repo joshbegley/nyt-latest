@@ -1,10 +1,30 @@
+**Israeli Strike Destroys Building in Gaza City**\
+`Israel targeted a prominent local landmark, the Mushtaha Tower, a day after a military spokesman said it was in control of almost half the city.`\
+https://nytimes.com/video/world/middleeast/100000010381609/gaza-city-israel-building-strike.html
+
+**How will Caitlin Clark's injury-plagued second season impact her record-setting card market?**\
+`Clark's cards have been some of the most coveted across all sports this year`\
+https://nytimes.com/athletic/6601562/2025/09/05/caitlin-clark-cards-injury/
+
+**NFL's vow to emphasize sportsmanship was on display in Cowboys-Eagles opener**\
+`It didn’t take long for the NFL's new emphasis on sportsmanship to surface during the Eagles-Cowboys regular season opener.`\
+https://nytimes.com/athletic/6602123/2025/09/05/nfl-sportsmanship-emphasis-penalties/
+
+**How to Watch the Blood Moon and Total Lunar Eclipse**\
+`People in the Eastern Hemisphere may see Earth’s shadow pass over the lunar surface, covering our world’s natural satellite in a flush of red.`\
+https://nytimes.com/2025/09/05/science/blood-moon-total-lunar-eclipse-where-when.html
+
+**College football Week 2 projected scores: Model predicts every FBS vs. FBS game**\
+`Austin Mock's projection model has predicted margins of victory and point totals for every FBS vs. FBS Week 2 college football game.`\
+https://nytimes.com/athletic/6602179/2025/09/05/college-football-week-2-projected-scores-michigan-oklahoma/
+
 **What We Know About Trump’s Crime and Immigration Crackdown in U.S. Cities**\
 `The president has sent soldiers and federal agents to some cities, and promised to do the same in others, prompting lawsuits and stirring outrage among local leaders.`\
 https://nytimes.com/article/trump-national-guard-military-cities.html
 
 **After a Resignation in London, Farage Seeks to Capitalize on Labour’s Turmoil**\
 `Nigel Farage, the leader of the anti-immigration party Reform U.K., spoke to supporters just after news broke that the deputy prime minister had resigned.`\
-https://nytimes.com/2025/09/05/world/europe/nigel-farage-uk-rayner-politics.html
+https://nytimes.com/2025/09/05/world/europe/angela-rayner-nigel-farage-reform-uk-labour.html
 
 **Pochettino 'in shock' over Levy's Tottenham departure**\
 `Pochettino said he and Levy shared a "very good" relationship during his five-year spell as head coach of the north London club.`\
@@ -17,24 +37,4 @@ https://nytimes.com/2025/09/05/opinion/trump-war-powers.html
 **A. James Hudspeth, Who Unlocked Mysteries Behind Hearing, Dies at 79**\
 `He was pivotal in discovering how sound waves are converted into signals that the brain can perceive as a whisper, a symphony or a thunderclap.`\
 https://nytimes.com/2025/09/05/science/dr-a-james-hudspeth-dead.html
-
-**USMNT's Mauricio Pochettino looking forward to match against his former player Son Heung-min**\
-`The USMNT takes on South Korea on Saturday in New Jersey.`\
-https://nytimes.com/athletic/6602127/2025/09/05/usmnts-mauricio-pochettino-reunion-son-heung-min/
-
-**MLB rules Astros' Taylor Trammell's confiscated bat was illegal: Source**\
-`But the league office determined that Trammell's bat did not give him a competitive advantage, according to a major-league source. `\
-https://nytimes.com/athletic/6602121/2025/09/05/taylor-trammell-bat-illegal-yankees-astros/
-
-**Barcelona confirm Romeu departure after contract termination**\
-`The 33-year-old rejoined Barcelona in 2023 after spending time in the club's La Masia academy.`\
-https://nytimes.com/athletic/6602135/2025/09/05/oriol-romeu-barcelona-contract-termination/
-
-**Patriots All-Pro CB Christian Gonzalez ruled out for season opener with hamstring injury**\
-`The third-year corner, for whom the team has high expectations this season, was injured early in training camp and hasn't practiced since.`\
-https://nytimes.com/athletic/6601574/2025/09/05/christian-gonzalez-injury-patriots-raiders-week-1/
-
-**Trump Administration Threatens Abrego Garcia With Deportation to El Salvador**\
-`A court had ruled that Kilmar Armando Abrego Garcia could not be sent back to his homeland, but now the administration sees a legal loophole.`\
-https://nytimes.com/2025/09/05/us/politics/trump-deportations-abrego-garcia-el-salvador.html
 
