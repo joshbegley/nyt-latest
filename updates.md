@@ -1,3 +1,7 @@
+**Bears coach Ben Johnson is driven by his quest to entertain — and embarrass**\
+`At the start of his head coaching journey, Johnson is ready to "cut loose" his new Bears offense in the most aggressive manner possible.`\
+https://nytimes.com/athletic/6580669/2025/09/05/bears-coach-ben-johnson-monday-night-football-vikings/
+
 **Billionaire Crypto Investor Hits Out at Trump Family’s Firm**\
 `Justin Sun, a major investor in World Liberty Financial’s cryptocurrency, said that his coins had been “unreasonably frozen.”`\
 https://nytimes.com/2025/09/05/business/trump-crypto-justin-sun.html
