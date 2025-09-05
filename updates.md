@@ -1,3 +1,15 @@
+**Connor McDavid isn't shying away from uncertainty over his Oilers future**\
+`McDavid entering the final season of his deal is the story of the NHL and has the potential to be a major distraction for the Oilers.`\
+https://nytimes.com/athletic/6602749/2025/09/05/connor-mcdavid-contract-extension-oilers-edmonton-uncertainty/
+
+**Lionel Messi excited but refuses to commit to playing in 2026 World Cup**\
+`The World Cup winner is yet to say for certain if he will play in the tournament next summer`\
+https://nytimes.com/athletic/6602907/2025/09/05/messi-argentina-world-cup-2026/
+
+**Eagles sign 3-time Pro Bowl edge Za'Darius Smith after season-opening win over Cowboys**\
+`Smith, one of the NFL's top free agents, finished with nine sacks last season playing for Cleveland and Detroit.`\
+https://nytimes.com/athletic/6602897/2025/09/05/eagles-sign-zadarius-smith-after-win-over-cowboys/
+
 **Broncos' key free-agent addition Dre Greenlaw, DL Malcolm Roach out Week 1 vs. Titans**\
 `The Broncos signed Greenlaw in March as an upgrade at linebacker, but he still hasn't fully recovered from an offseason quad injury.`\
 https://nytimes.com/athletic/6602163/2025/09/05/broncos-dre-greenlaw-out-titans/
