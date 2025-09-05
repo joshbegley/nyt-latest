@@ -1,3 +1,15 @@
+**Live chat: Preview college football Week 2 with Ralph Russo**\
+`After a thrilling start to the 2025 college football season, what does Week 2 have in store?`\
+https://nytimes.com/athletic/6601347/2025/09/05/college-football-pregame-live-chat-week-2/
+
+**The Windup: Mets keep finding new arms**\
+`Welcome to The Windup, The Athletic's MLB newsletter.`\
+https://nytimes.com/athletic/6600759/2025/09/05/mets-starters-brandon-sproat-the-windup/
+
+**New Orleans Saints schedule 2025: TV, broadcast and streaming info for NOLA's new era**\
+`Amid streaming changes and new media deals, here's how to watch all 17 regular-season Saints games this season.`\
+https://nytimes.com/athletic/6584803/2025/09/05/new-orleans-saints-how-to-watch/
+
 **Sting Is Sued by His Former Bandmates in the Police**\
 `The band’s drummer and guitarist say the singer has underpaid them for the “digital exploitation” of songs like “Every Breath You Take.” Sting’s lawyers call the claim “illegitimate.”`\
 https://nytimes.com/2025/09/05/arts/music/sting-the-police-lawsuit-andy-summers-stewart-copeland.html
