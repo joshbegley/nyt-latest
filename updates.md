@@ -1,3 +1,7 @@
+**Amanda Anisimova reaches U.S. Open final with Aryna Sabalenka by beating Naomi Osaka**\
+`Anisimova made the perfect recovery from her Wimbledon final nightmare by reaching a second consecutive Grand Slam final weekend.`\
+https://nytimes.com/athletic/6599187/2025/09/05/amanda-anisimova-naomi-osaka-us-open-semifinal-result-analysis/
+
 **The New York Times in Print for Friday, Sep. 5, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/09/05/todays-new-york-times
