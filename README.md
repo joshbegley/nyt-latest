@@ -1,3 +1,11 @@
+**Israel Now Controls Almost Half of Gaza City, Military Says**\
+`Hundreds of thousands of civilians have yet to evacuate the city before Israel’s planned takeover. A new hostage video renewed calls to halt the operation.`\
+https://nytimes.com/2025/09/05/world/middleeast/gaza-city-takeover.html
+
+**Stones withdraws from England camp due to injury**\
+`Tuchel said Stones arrived at the training camp with a minor muscular injury.`\
+https://nytimes.com/athletic/6601007/2025/09/05/john-stones-injury-england-manchester-city/
+
 **Wolves mailbag: Identity changes, point guard questions and Jaden McDaniels' scoring**\
 `Is Rob Dillingham's time near? And what was the ultimate impact of the KAT trade?`\
 https://nytimes.com/athletic/6592958/2025/09/05/timberwolves-mailbag-jaden-mcdaniels-donte-divincenzo/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6598481/2025/09/05/cam-thomas-nets-signing-free-age
 **Portal Buzz: Impact of a single transfer window plus Castellano's fit, Morris' final stop**\
 `Under the proposal, the spring transfer portal window, which lasted 10 days in April, would be eliminated. `\
 https://nytimes.com/athletic/6598628/2025/09/05/college-football-news-buzz-portal-tommy-castellanos/
-
-**Cy-Hawk tailgates mean gridlock, Busch Light and 'so much nervous tension'**\
-`The fierce in-state rivalry takes place Saturday in Ames.`\
-https://nytimes.com/athletic/6598931/2025/09/05/iowa-iowa-st-tailgate-nervous-tension/
-
-**How the Packers are integrating Micah Parsons: 'I want it all at once'**\
-`Parsons likely won't shoulder a full workload on Sunday, if in fact he plays, but Jeff Hafley is already prepared for when he does..`\
-https://nytimes.com/athletic/6599771/2025/09/05/packers-micah-parsons-jeff-hafley-defense/
 

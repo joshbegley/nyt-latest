@@ -1,3 +1,7 @@
+**Wolves mailbag: Identity changes, point guard questions and Jaden McDaniels' scoring**\
+`Is Rob Dillingham's time near? And what was the ultimate impact of the KAT trade?`\
+https://nytimes.com/athletic/6592958/2025/09/05/timberwolves-mailbag-jaden-mcdaniels-donte-divincenzo/
+
 **Cy-Hawk tailgates mean gridlock, Busch Light and 'so much nervous tension'**\
 `The fierce in-state rivalry takes place Saturday in Ames.`\
 https://nytimes.com/athletic/6598931/2025/09/05/iowa-iowa-st-tailgate-nervous-tension/
