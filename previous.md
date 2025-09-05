@@ -1,3 +1,15 @@
+**A. James Hudspeth, Who Unlocked Mysteries Behind Hearing, Dies at 79**\
+`He was pivotal in discovering how sound waves are converted into signals that the brain can perceive as a whisper, a symphony or a thunderclap.`\
+https://nytimes.com/2025/09/05/science/dr-a-james-hudspeth-dead.html
+
+**USMNT's Mauricio Pochettino looking forward to match against his former player Son Heung-min**\
+`The USMNT takes on South Korea on Saturday in New Jersey.`\
+https://nytimes.com/athletic/6602127/2025/09/05/usmnts-mauricio-pochettino-reunion-son-heung-min/
+
+**MLB rules Astros' Taylor Trammell's confiscated bat was illegal: Source**\
+`But the league office determined that Trammell's bat did not give him a competitive advantage, according to a major-league source. `\
+https://nytimes.com/athletic/6602121/2025/09/05/taylor-trammell-bat-illegal-yankees-astros/
+
 **Barcelona confirm Romeu departure after contract termination**\
 `The 33-year-old rejoined Barcelona in 2023 after spending time in the club's La Masia academy.`\
 https://nytimes.com/athletic/6602135/2025/09/05/oriol-romeu-barcelona-contract-termination/
@@ -21,16 +33,4 @@ https://nytimes.com/2025/09/05/sports/tennis/art-seitz-dead.html
 **CBS Abruptly Changes Rules for Editing ‘Face the Nation’ Interviews**\
 `The change came less than a week after an interview aired with Kristi Noem, the homeland security secretary. The administration accused the network of deceptively editing her appearance.`\
 https://nytimes.com/2025/09/05/business/cbs-face-the-nation-editing-rules.html
-
-**Prime Tire: Ferrari’s season-changing chance. Plus, Norris and Hamilton lead early at Monza**\
-`Ferrari seems to be in the hunt early at the 2025 Italian GP, on raw pace at least. A win at Monza would rescue its F1 season`\
-https://nytimes.com/athletic/6601931/2025/09/05/italian-grand-prix-ferrari-practice-results/
-
-**Duchess of Kent, Royal Who Comforted a Wimbledon Loser, Dies at 92**\
-`A member of an aristocratic family, she married the Duke of Kent, a cousin of Queen Elizabeth II.`\
-https://nytimes.com/2025/09/05/world/europe/duchess-of-kent-dead.html
-
-**Until Saturday: Plenty to love in weaker CFB schedule**\
-`Until Saturday is The Athletic's free CFB newsletter.`\
-https://nytimes.com/athletic/6602023/2025/09/05/devin-hester-jr-eddie-robinson-jr-until-saturday/
 

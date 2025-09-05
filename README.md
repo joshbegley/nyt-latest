@@ -1,3 +1,7 @@
+**Trump’s Lethal Misuse of War Powers**\
+`Readers discuss President Trump’s claim that he has the right to conduct the extrajudicial killing of alleged drug dealers. Also: Crime trends.`\
+https://nytimes.com/2025/09/05/opinion/trump-war-powers.html
+
 **A. James Hudspeth, Who Unlocked Mysteries Behind Hearing, Dies at 79**\
 `He was pivotal in discovering how sound waves are converted into signals that the brain can perceive as a whisper, a symphony or a thunderclap.`\
 https://nytimes.com/2025/09/05/science/dr-a-james-hudspeth-dead.html
