@@ -1,40 +1,40 @@
-**Israel Now Controls Almost Half of Gaza City, Military Says**\
-`Hundreds of thousands of civilians have yet to evacuate the city before Israel’s planned takeover. A new hostage video renewed calls to halt the operation.`\
-https://nytimes.com/2025/09/05/world/middleeast/gaza-city-takeover.html
+**American Who Posed as Irish Heiress Is Found Guilty of Theft and Fraud**\
+`Marianne Smyth was convicted in Northern Ireland, where court records said she had swindled victims out of more than $155,000.`\
+https://nytimes.com/2025/09/05/world/europe/fake-heiress-fraud-guilty-northern-ireland.html
 
-**Stones withdraws from England camp due to injury**\
-`Tuchel said Stones arrived at the training camp with a minor muscular injury.`\
-https://nytimes.com/athletic/6601007/2025/09/05/john-stones-injury-england-manchester-city/
+**Trump Administration Live Updates: President Will Revive War Department Name**\
+``\
+https://nytimes.com/live/2025/09/05/us/trump-news
 
-**Wolves mailbag: Identity changes, point guard questions and Jaden McDaniels' scoring**\
-`Is Rob Dillingham's time near? And what was the ultimate impact of the KAT trade?`\
-https://nytimes.com/athletic/6592958/2025/09/05/timberwolves-mailbag-jaden-mcdaniels-donte-divincenzo/
+**As Jim Harbaugh enters Year 2 with Chargers, have they done enough to take the next step?**\
+`The Chargers' season will ultimately come down to Harbaugh and Justin Herbert. The organizational stars must elevate an imperfect roster.`\
+https://nytimes.com/athletic/6598834/2025/09/05/chargers-jim-harbaugh-year-2-justin-herbert/
 
-**Angela Rayner, U.K. Deputy Premier, Resigns After Underpaying Tax**\
-`In a blow to Prime Minister Keir Starmer, Ms. Rayner said she would step down after an independent ethics adviser’s investigation.`\
-https://nytimes.com/2025/09/05/world/europe/angela-rayner-resigns-uk-starmer-tax.html
+**Knuck if You Bucs: Tampa Bay Buccaneers TV and streaming info for 2025 schedule**\
+`Baker Mayfield and Vita Vea return to lead Tampa Bay. Here's how to watch and stream all the Bucs' regular-season games this year.`\
+https://nytimes.com/athletic/6585094/2025/09/05/tampa-bay-buccaneers-how-to-watch-2025-tv/
 
-**NFL Week 1 schedule rankings: Top 5 Sunday games to remind us why we love football**\
-`We're keeping it simple for the opening weekend: the five matchups that should remind us why we dedicate so much to this hobby-turned-faith.`\
-https://nytimes.com/athletic/6595763/2025/09/05/nfl-week-1-how-to-watch-ravens-bills-rams-texans-lions-packers/
+**Nate Atkins' journey through mountains and canyons to cover the Los Angeles Rams**\
+`A 30-hour drive from Indianapolis to Los Angeles is one cathartic way to find out about yourself and all this country has to offer.`\
+https://nytimes.com/athletic/6599143/2025/09/05/nate-atkins-travel-journey-los-angeles-rams/
 
-**Aleksandar Mitrovic completes move to Al Rayyan after Al Hilal exit**\
-`Mitrovic, 30, has spent the past two seasons with Al Hilal after they paid €52.6million (£45m) to sign him from Fulham in 2023.`\
-https://nytimes.com/athletic/6597669/2025/09/05/aleksandar-mitrovic-al-rayyan-transfer/
+**Who fixed it better? Sunday boils down to Seahawks ground game vs. 49ers run D**\
+`The 49ers overhauled their defensive front this spring, including drafting Mykel Williams in Round 1. The Seahawks did the same on offense.`\
+https://nytimes.com/athletic/6598751/2025/09/05/49ers-seahawks-season-opener-run-game/
 
-**How Cam Schlittler became the Yankees' 'most holistic success story' in years**\
-`Inside the 24-year-old righty's "uncommon" rise, from seventh-round draft pick to surprise rookie standout to, possibly, postseason starter.`\
-https://nytimes.com/athletic/6596226/2025/09/05/cam-schlittler-yankees-player-development/
+**How Broncos navigated a year of drama-free contract business to lock up core players**\
+`The Broncos signed Nik Bonitto to a four-year, $106 million deal Thursday, making his the latest in a flurry of in-house extensions.`\
+https://nytimes.com/athletic/6598602/2025/09/05/broncos-contracts-nik-bonitto-zach-allen/
 
-**If the MLB playoffs started today, which team would have the best starting rotation?**\
-`How do the top three starters for each playoff rotation stack up right now? Are the Dodgers the best? Can the Mets rotation surprise?`\
-https://nytimes.com/athletic/6599520/2025/09/05/mlb-postseason-rotations-ranking/
+**‘To be elite’: Bruins' Jeremy Swayman expects nothing short of a high-end rebirth this season**\
+`Swayman had an .892 save percentage in 2024-25 after never previously going below .914. He wants to prove that it was a one-year exception.`\
+https://nytimes.com/athletic/6598795/2025/09/05/bruins-jeremy-swayman-potential-rebirth/
 
-**Cam Thomas is betting on himself with a one-year Nets deal. Will it pay off?**\
-`The NBA's new de facto hard salary cap led Cam Thomas to make a bold decision: sign a one-year, $6 million qualifying offer.`\
-https://nytimes.com/athletic/6598481/2025/09/05/cam-thomas-nets-signing-free-agency/
+**Koné seeks redemption and opportunity after unwanted viral video moment**\
+`One of Canada's key midfield pieces is looking to rebound from testing times`\
+https://nytimes.com/athletic/6599691/2025/09/05/ismael-kone-canada-marsch/
 
-**Portal Buzz: Impact of a single transfer window plus Castellano's fit, Morris' final stop**\
-`Under the proposal, the spring transfer portal window, which lasted 10 days in April, would be eliminated. `\
-https://nytimes.com/athletic/6598628/2025/09/05/college-football-news-buzz-portal-tommy-castellanos/
+**Nico Iamaleava is home, surrounded by family. Can it help QB shoulder weight of carrying UCLA?**\
+`The QB became a bull’s-eye in college football’s new economy — every snap judged as proof of greed or redemption, every stumble a punchline.`\
+https://nytimes.com/athletic/6600068/2025/09/05/nico-iamaleava-ucla-football-family/
 
