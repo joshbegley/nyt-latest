@@ -1,3 +1,7 @@
+**Who are the YouTube creators giving NFL fans a new way of watching?**\
+`The four creators tapped to offer “Watch With” streams combine to reach more than 50 million YouTube subscribers.`\
+https://nytimes.com/athletic/6601570/2025/09/05/youtube-creators-streaming-chiefs-vs-chargers/
+
 **The Return of the ‘War Department’ Is More Than Nostalgia. It’s a Message.**\
 `President Trump and his defense secretary say they want to return to the era when America won wars. They largely ignore the greatest accomplishment of the past 80 years: avoiding superpower conflict.`\
 https://nytimes.com/2025/09/05/us/politics/the-return-of-the-war-department-is-more-than-nostalgia-its-a-message.html

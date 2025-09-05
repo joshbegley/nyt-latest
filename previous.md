@@ -1,3 +1,7 @@
+**Who are the YouTube creators giving NFL fans a new way of watching?**\
+`The four creators tapped to offer “Watch With” streams combine to reach more than 50 million YouTube subscribers.`\
+https://nytimes.com/athletic/6601570/2025/09/05/youtube-creators-streaming-chiefs-vs-chargers/
+
 **The Return of the ‘War Department’ Is More Than Nostalgia. It’s a Message.**\
 `President Trump and his defense secretary say they want to return to the era when America won wars. They largely ignore the greatest accomplishment of the past 80 years: avoiding superpower conflict.`\
 https://nytimes.com/2025/09/05/us/politics/the-return-of-the-war-department-is-more-than-nostalgia-its-a-message.html
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6600494/2025/09/05/ny-giants-commanders-week-1-pred
 **Live chat: Preview college football Week 2 with Ralph Russo**\
 `After a thrilling start to the 2025 college football season, what does Week 2 have in store?`\
 https://nytimes.com/athletic/6601347/2025/09/05/college-football-pregame-live-chat-week-2/
-
-**The Windup: Mets keep finding new arms**\
-`Welcome to The Windup, The Athletic's MLB newsletter.`\
-https://nytimes.com/athletic/6600759/2025/09/05/mets-starters-brandon-sproat-the-windup/
 
