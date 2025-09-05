@@ -1,3 +1,7 @@
+**Parsons-less Cowboys emerge from narrow loss to Eagles with same unanswered questions**\
+`The Cowboys played well enough to win but rarely pressured Eagles QB Jalen Hurts and made too many of their own mistakes. `\
+https://nytimes.com/athletic/6600735/2025/09/05/cowboys-eagles-nfl-opener-micah-parsons/
+
 **Breaking Down Elon Musk’s Pay Package**\
 `Tesla’s C.E.O. could become the world’s first trillionaire — if he can get the carmaker to hit some lofty performance hurdles.`\
 https://nytimes.com/2025/09/05/business/dealbook/elon-musk-trillionaire.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6599143/2025/09/05/nate-atkins-travel-journey-los-a
 **Who fixed it better? Sunday boils down to Seahawks ground game vs. 49ers run D**\
 `The 49ers overhauled their defensive front this spring, including drafting Mykel Williams in Round 1. The Seahawks did the same on offense.`\
 https://nytimes.com/athletic/6598751/2025/09/05/49ers-seahawks-season-opener-run-game/
-
-**How Broncos navigated a year of drama-free contract business to lock up core players**\
-`The Broncos signed Nik Bonitto to a four-year, $106 million deal Thursday, making his the latest in a flurry of in-house extensions.`\
-https://nytimes.com/athletic/6598602/2025/09/05/broncos-contracts-nik-bonitto-zach-allen/
 
