@@ -1,6 +1,6 @@
 **Questions Arise Over Hiring of Firm to Run $11 Billion Health Care Program**\
 `The bidding process was questioned on Friday after the company, Public Partnerships LLC, admitted it had exchanged unspecified communications with state officials before the contract was awarded.`\
-https://nytimes.com/2025/09/05/nyregion/questions-arise-over-hiring-of-firm-to-run-11-billion-health-care-program.html
+https://nytimes.com/2025/09/05/nyregion/public-partnership-homecare.html
 
 **Record Number of Lightning Strikes Hit California This Summer**\
 `Moist, cool air pulled inland by an area of low pressure off the West Coast has led to a high number of lightning strikes, especially in Northern California.`\
