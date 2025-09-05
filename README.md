@@ -1,3 +1,7 @@
+**Indiana Fever's Caitlin Clark out for rest the season with groin injury**\
+`The Indiana Fever second-year guard has not played since July 15.`\
+https://nytimes.com/athletic/6600008/2025/09/04/caitlin-clark-ruled-out-season-injury/
+
 **Donald Trump to attend U.S. Open men's final in first appearance since 2015: Source**\
 `Trump was booed on his last appearance, which came during his first presidential campaign.`\
 https://nytimes.com/athletic/6599732/2025/09/04/donald-trump-us-open-appearance-mens-final/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6599932/2025/09/04/mariners-vs-braves-stream-how-to
 **At Harvard, Judge’s Ruling on Funding Gives Students One More Thing to Ponder**\
 `Many students were cautiously hopeful after a judge said the Trump administration could not freeze research funding to the university. But they also had other things on their minds.`\
 https://nytimes.com/2025/09/04/us/harvard-funding-decision-reaction-students.html
-
-**Christian McCaffrey limited by calf injury at 49ers practice**\
-`McCaffrey, who missed the first half of the 2024 season with what was called a calf injury, was not listed on Wednesday's injury report.`\
-https://nytimes.com/athletic/6599904/2025/09/04/christian-mccaffrey-injury-calf-49ers/
 
