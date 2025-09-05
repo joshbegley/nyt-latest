@@ -1,3 +1,11 @@
+**Eagles edge Cowboys in season opener after weather delay, spitting ejection**\
+`The Eagles started their Super Bowl defense with a 24-20 win over the Cowboys.`\
+https://nytimes.com/athletic/6600328/2025/09/05/cowboys-eagles-score-results-takeaways/
+
+**Astros' Taylor Trammell has bat confiscated after Yankees question its legality**\
+`After a lengthy review, the bat was ultimately handed to an authenticator sitting near the Yankees dugout.`\
+https://nytimes.com/athletic/6600491/2025/09/05/yankees-astros-taylor-trammell-bat/
+
 **Macron Said That 26 Countries Would Secure Ukraine**\
 `The pledges were made in Paris at a summit designed to show that Europe is ready to uphold any future peace deal for Ukraine.`\
 https://nytimes.com/2025/09/05/briefing/macron-ukraine-europe-afghan-quake-giorgio-armani.html

@@ -1,3 +1,11 @@
+**Eagles edge Cowboys in season opener after weather delay, spitting ejection**\
+`The Eagles started their Super Bowl defense with a 24-20 win over the Cowboys.`\
+https://nytimes.com/athletic/6600328/2025/09/05/cowboys-eagles-score-results-takeaways/
+
+**Astros' Taylor Trammell has bat confiscated after Yankees question its legality**\
+`After a lengthy review, the bat was ultimately handed to an authenticator sitting near the Yankees dugout.`\
+https://nytimes.com/athletic/6600491/2025/09/05/yankees-astros-taylor-trammell-bat/
+
 **Macron Said That 26 Countries Would Secure Ukraine**\
 `The pledges were made in Paris at a summit designed to show that Europe is ready to uphold any future peace deal for Ukraine.`\
 https://nytimes.com/2025/09/05/briefing/macron-ukraine-europe-afghan-quake-giorgio-armani.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6599196/2025/09/05/jeff-shi-interview-analysed/
 **Thirteen signings, nine possible formations? The systems Nottingham Forest could use this season**\
 `After a busy summer, Nuno Espirito Santo has more options than ever at his disposal. So how could he use them?`\
 https://nytimes.com/athletic/6592101/2025/09/05/nottingham-forest-formations-systems-signings/
-
-**Golden State Valkyries clinch playoff berth**\
-`For the first time in league history, an expansion team is set to compete in the playoffs.`\
-https://nytimes.com/athletic/6598873/2025/09/05/golden-state-valkyries-clinch-playoff-berth/
-
-**The BookKeeper: Real reason for Premier League PSR complaints is the 217% rise in costs**\
-`Although £1.8billion was made from player sales, continued extravagant spending suggests tighter rules are needed to rein clubs in`\
-https://nytimes.com/athletic/6594343/2025/09/05/bookkeeper-real-reason-psr-complaints/
 
