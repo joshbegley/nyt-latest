@@ -1,3 +1,7 @@
+**Venezuelan Jets Fly Over U.S. Navy Ship in Show of Force**\
+`The flyover took place two days after the United States carried out a military strike on a boat in the Caribbean that U.S. officials said was carrying drugs.`\
+https://nytimes.com/2025/09/04/us/politics/venezuela-jets-us-navy-ship-trump.html
+
 **Aryna Sabalenka into U.S. Open final after beating Jessica Pegula from one set down**\
 `Sabalenka reached her second consecutive U.S. Open final with a comeback win over Pegula, who she vanquished in last year's final.`\
 https://nytimes.com/athletic/6599186/2025/09/04/sabalenka-pegula-us-open-semifinal-result-analysis/

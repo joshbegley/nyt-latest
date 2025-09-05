@@ -2,9 +2,9 @@
 `Sabalenka reached her second consecutive U.S. Open final with a comeback win over Pegula, who she vanquished in last year's final.`\
 https://nytimes.com/athletic/6599186/2025/09/04/sabalenka-pegula-us-open-semifinal-result-analysis/
 
-**Venezuelan jets flew over a U.S. Navy ship in a show of force.**\
+**Venezuelan Jets Fly Over U.S. Navy Ship in Show of Force**\
 `The flyover took place two days after the United States carried out a military strike on a boat in the Caribbean that U.S. officials said was carrying drugs.`\
-https://nytimes.com/live/2025/09/04/us/trump-news/venezuela-jets-us-navy-ship-trump
+https://nytimes.com/2025/09/04/us/politics/venezuela-jets-us-navy-ship-trump.html
 
 **Hochul to Sign Order to Get Around U.S. Limits on Covid Vaccine**\
 `Gov. Kathy Hochul of New York plans to authorize pharmacists to provide the vaccine to almost anyone who wants it without a prescription.`\
