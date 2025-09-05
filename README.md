@@ -6,6 +6,10 @@ https://nytimes.com/2025/09/05/business/trump-crypto-justin-sun.html
 `Andy Behrens discusses the news that most impacts fantasy football during Week 1. `\
 https://nytimes.com/athletic/6601573/2025/09/05/fantasy-football-news-williams-mccaffrey-week-1/
 
+**Bears coach Ben Johnson is driven by his quest to entertain — and embarrass**\
+`At the start of his head coaching journey, Johnson is ready to "cut loose" his new Bears offense in the most aggressive manner possible.`\
+https://nytimes.com/athletic/6580669/2025/09/05/bears-coach-ben-johnson-monday-night-football-vikings/
+
 **One secret to the Chiefs' success? Rare collaborative culture inside their walls**\
 `Defensive coordinator Steve Spagnuolo, who has been a lot of places in his career, says having a GM who "leans on everybody" is unique.`\
 https://nytimes.com/athletic/6578776/2025/09/05/chiefs-front-office-culture-collaboration-success/
@@ -29,12 +33,4 @@ https://nytimes.com/2025/09/05/business/google-eu-antitrust-fine.html
 **With Audi Poised to Take Over, Sauber Rises in the F1 Standings**\
 `The automotive giant has committed to Formula 1 next year and will provide new resources, including its own power unit. Now the team is experiencing a bit of a surge.`\
 https://nytimes.com/2025/09/05/sports/autoracing/f1-sauber-audi.html
-
-**Mailbag: Send in your questions for The Athletic FC Tactics Podcast**\
-`Send in your questions now ahead of a special episode of The Athletic FC Tactics Podcast`\
-https://nytimes.com/athletic/6601618/2025/09/05/mailbag-questions-for-the-athletic-fc-tactics-podcast/
-
-**For the 10th straight year, their fantasy football draft began with tears**\
-`Ten years ago, the Bradstrong fantasy football league lost one of its founding members to cancer. This is how they honor his memory.`\
-https://nytimes.com/athletic/6573770/2025/09/05/fantasy-football-brad-coustan-10-year-anniversary/
 
