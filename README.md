@@ -1,3 +1,27 @@
+**How to watch Phillies at Marlins: Time, TV, streaming for September 5**\
+`Find out how to watch the Philadelphia Phillies play the Miami Marlins, with time, TV channel, and streaming information.`\
+https://nytimes.com/athletic/6600395/2025/09/04/phillies-vs-marlins-stream-how-to-watch-sept-5/
+
+**How to watch Blue Jays at Yankees: Time, TV, streaming for September 5**\
+`Find out how to watch the Toronto Blue Jays play the New York Yankees, with time, TV channel, and streaming information.`\
+https://nytimes.com/athletic/6600393/2025/09/04/blue-jays-vs-yankees-stream-how-to-watch-sept-5/
+
+**How to watch Padres at Rockies: Time, TV, streaming for September 5**\
+`Find out how to watch the San Diego Padres play the Colorado Rockies, with time, TV channel, and streaming information.`\
+https://nytimes.com/athletic/6600396/2025/09/04/padres-vs-rockies-stream-how-to-watch-sept-5/
+
+**How to watch Red Sox at Diamondbacks: Time, TV, streaming for September 5**\
+`Find out how to watch the Boston Red Sox play the Arizona Diamondbacks, with time, TV channel, and streaming information.`\
+https://nytimes.com/athletic/6600388/2025/09/04/red-sox-vs-diamondbacks-stream-how-to-watch-sept-5/
+
+**How to watch White Sox at Tigers: Time, TV, streaming for September 5**\
+`Find out how to watch the Chicago White Sox play the Detroit Tigers, with time, TV channel, and streaming information.`\
+https://nytimes.com/athletic/6600385/2025/09/04/white-sox-vs-tigers-stream-how-to-watch-sept-5/
+
+**How to watch Giants at Cardinals: Time, TV, streaming for September 5**\
+`Find out how to watch the San Francisco Giants play the St. Louis Cardinals, with time, TV channel, and streaming information.`\
+https://nytimes.com/athletic/6600383/2025/09/04/giants-vs-cardinals-stream-how-to-watch-sept-5/
+
 **Thaksin Shinawatra, Powerful Ex-Premier, Abruptly Leaves Thailand**\
 `Mr. Thaksin flew to Dubai days before a verdict that could send him to prison. He said he would be back in time for the hearing.`\
 https://nytimes.com/2025/09/04/world/asia/thailand-thaksin-shinawatra-dubai.html
@@ -6,35 +30,11 @@ https://nytimes.com/2025/09/04/world/asia/thailand-thaksin-shinawatra-dubai.html
 `In a new book, Justice Amy Coney Barrett asks for faith in the Supreme Court but reveals very little.`\
 https://nytimes.com/2025/09/04/us/politics/justice-barrett-explaining-law.html
 
-**Lionel Messi breaks CONMEBOL scoring record in emotional Argentina farewell**\
+**Lionel Messi scores twice in emotional Argentina farewell**\
 `"To finish in this way, here with my people, is a dream," Messi said after his final home World Cup qualifier for Argentina.`\
 https://nytimes.com/athletic/6600203/2025/09/04/lionel-messi-conmebol-argentina-record-qualifying/
 
-**Eagles-Cowboys game suspended in third quarter due to lightning**\
+**Eagles-Cowboys game suspended in third quarter due to lightning, set to resume at 11:30 p.m.**\
 `The Eagles had just recovered a Cowboys fumble and lead 24-20 in the third quarter.`\
 https://nytimes.com/athletic/6600297/2025/09/04/weather-delay-nfl-cowboys-eagles-season-kickoff/
-
-**Luis Suarez apologizes for spitting on staffer after Leagues Cup loss**\
-`The incident has been widely condemned as yet another act of bizarre behavior from the Uruguayan legend.`\
-https://nytimes.com/athletic/6600168/2025/09/04/luis-suarez-inter-miami-leagues-cup-spitting/
-
-**Mike Tyson, Floyd Mayweather agree to exhibition match in 2026**\
-`The date and location of the exhibition have not been decided.`\
-https://nytimes.com/athletic/6600163/2025/09/04/mike-tyson-floyd-mayweather-exhibition-fight/
-
-**The Perceptive Pulse of Patina**\
-`For art aficionados, design enthusiasts and music lovers, Patina Hotels & Resorts promises a sanctuary that sparks creativity and connection. `\
-https://nytimes.com/paidpost/patina-hotels-and-resorts/the-perceptive-pulse-of-patina.html
-
-**Goal of a Squeeze Bunt**\
-`Bryan Cheong makes his New York Times Crossword debut.`\
-https://nytimes.com/2025/09/04/crosswords/daily-puzzle-2025-09-05.html
-
-**Health Dept. Plans Vaccine Poll Run by Trump Ally’s Firm**\
-`The no-bid contract was published amid Secretary Robert F. Kennedy Jr.’s effort to move the nation’s health infrastructure away from some vaccines.`\
-https://nytimes.com/2025/09/04/us/politics/hhs-vaccines-poll-harrisx-trump-rfk.html
-
-**Phillies takeaways: Outfield platoons, the bullpen churn, more from series win vs. Brewers**\
-`Rob Thomson’s decision to sit Nick Castellanos on Thursday made it clear: The Phillies are platooning in both outfield corners.`\
-https://nytimes.com/athletic/6599993/2025/09/04/phillies-outfield-platoons-bullpen-brewers-series/
 
