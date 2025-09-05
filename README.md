@@ -1,3 +1,19 @@
+**Broncos' key free-agent addition Dre Greenlaw, DL Malcolm Roach out Week 1 vs. Titans**\
+`The Broncos signed Greenlaw in March as an upgrade at linebacker, but he still hasn't fully recovered from an offseason quad injury.`\
+https://nytimes.com/athletic/6602163/2025/09/05/broncos-dre-greenlaw-out-titans/
+
+**What the Unemployment Rate Isn’t Telling Us**\
+`The latest job report shows that unemployment remains steady, but it’s not telling the full story. Lydia DePillis, economy reporter for The New York Times, explains how low job growth is being offset by the Trump administration’s deportation campaign.`\
+https://nytimes.com/video/jobs/100000010377364/what-the-unemployment-rate-isnt-telling-us.html
+
+**Yankees' Aaron Judge set to make first start in outfield since late July**\
+`Judge hasn't played in the outfield since July 22. He will initially split time in the outfield with Giancarlo Stanton.`\
+https://nytimes.com/athletic/6602695/2025/09/05/yankees-aaron-judge-outfield-start/
+
+**As Powerball Nears Record, Ticket Buyers Dream of New Houses and Winning in Secret**\
+`The Powerball jackpot hit $1.8 billion ahead of Saturday’s drawing, making it the second-largest and inspiring many to play.`\
+https://nytimes.com/2025/09/05/us/powerball-lottery-winners.html
+
 **Flames sign RFA Connor Zary to 3-year, $11.325 million extension**\
 `Zary, 23, scored 13 goals and notched 27 points in 54 games last season for the Flames.`\
 https://nytimes.com/athletic/6602754/2025/09/05/calgary-flames-connor-zary-contract-nhl/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6598891/2025/09/05/kawhi-leonard-clippers-salary-ca
 **Giorgio Armani’s Red Carpet Secret? Her Name Was Wanda.**\
 `Armani amassed a cavalcade of celebrity spokespeople. Many came through a former journalist named Wanda McDaniel.`\
 https://nytimes.com/2025/09/05/fashion/giorgio-armani-hollywood-wanda-mcdaniel.html
-
-**Hassan Ouakrim, Who Brought Moroccan Dance to the U.S., Dies**\
-`A director and choreographer, he introduced Berber dances and music to New York’s downtown theater scene. He also staged elaborate soirees for the wealthy, one attended by Donald Trump.`\
-https://nytimes.com/2025/09/05/arts/dance/hassan-ouakrim-dead.html
-
-**A Rapid U.S. Military Buildup in the Caribbean: What to Know**\
-`The United States has deployed eight warships, several surveillance planes and one attack submarine to the region as tensions with Venezuela grow.`\
-https://nytimes.com/2025/09/05/us/politics/trump-maduro-military-venezuela.html
-
-**Can’t Decide Where to Go for the Winter Holidays? Let Us Help!**\
-`If you’re eager to get away this December or January but are overwhelmed by the options, read on.`\
-https://nytimes.com/2025/09/05/t-magazine/winter-holidays-travel-vacation-questions.html
-
-**Tigers reliever Kyle Finnegan lands on IL; Parker Meadows activated**\
-`Finnegan hasn't allowed a run since joining the Tigers at the trade deadline. He's hopeful he'll miss the minimum 15 days.`\
-https://nytimes.com/athletic/6602772/2025/09/05/kyle-finnegan-tigers-adductor-strain/
 

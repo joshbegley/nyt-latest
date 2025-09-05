@@ -1,3 +1,7 @@
+**Flames sign RFA Connor Zary to 3-year, $11.325 million extension**\
+`Zary, 23, scored 13 goals and notched 27 points in 54 games last season for the Flames.`\
+https://nytimes.com/athletic/6602754/2025/09/05/calgary-flames-connor-zary-contract-nhl/
+
 **There’s Only So Much the Federal Reserve Can Do to Help This Economy**\
 `Economic data suggests labor supply and immigration changes are affecting job growth. The Federal Reserve can’t fix that, but Trump can.`\
 https://nytimes.com/2025/09/05/opinion/jobs-report-immigration-trump-fed.html
