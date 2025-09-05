@@ -1,3 +1,15 @@
+**Lowetide: Predicting the 5 biggest surprises of Oilers training camp this fall**\
+`It's that time of year again, as on-ice activities begin and usually gives way to a few surprises.`\
+https://nytimes.com/athletic/6598076/2025/09/05/edmonton-oilers-training-camp-2025-surprises/
+
+**The Bounce: The Kawhi-Clippers stakes**\
+`The Bounce Newsletter  | This is The Athletic’s daily NBA newsletter.`\
+https://nytimes.com/athletic/6601493/2025/09/05/kawhi-leonard-clippers-investigation-the-bounce/
+
+**Will Giants' good vibes carry over into season? 6 thoughts and 2 predictions ahead of Week 1**\
+`Can the Giants pull off a Week 1 upset of the Commanders? Dan Duggan predicts how the Giants will fare Sunday and for the entire season. `\
+https://nytimes.com/athletic/6600494/2025/09/05/ny-giants-commanders-week-1-predictions/
+
 **Live chat: Preview college football Week 2 with Ralph Russo**\
 `After a thrilling start to the 2025 college football season, what does Week 2 have in store?`\
 https://nytimes.com/athletic/6601347/2025/09/05/college-football-pregame-live-chat-week-2/

@@ -1,3 +1,15 @@
+**Lowetide: Predicting the 5 biggest surprises of Oilers training camp this fall**\
+`It's that time of year again, as on-ice activities begin and usually gives way to a few surprises.`\
+https://nytimes.com/athletic/6598076/2025/09/05/edmonton-oilers-training-camp-2025-surprises/
+
+**The Bounce: The Kawhi-Clippers stakes**\
+`The Bounce Newsletter  | This is The Athletic’s daily NBA newsletter.`\
+https://nytimes.com/athletic/6601493/2025/09/05/kawhi-leonard-clippers-investigation-the-bounce/
+
+**Will Giants' good vibes carry over into season? 6 thoughts and 2 predictions ahead of Week 1**\
+`Can the Giants pull off a Week 1 upset of the Commanders? Dan Duggan predicts how the Giants will fare Sunday and for the entire season. `\
+https://nytimes.com/athletic/6600494/2025/09/05/ny-giants-commanders-week-1-predictions/
+
 **Live chat: Preview college football Week 2 with Ralph Russo**\
 `After a thrilling start to the 2025 college football season, what does Week 2 have in store?`\
 https://nytimes.com/athletic/6601347/2025/09/05/college-football-pregame-live-chat-week-2/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6600351/2025/09/05/washington-commanders-season-tic
 **Inside a SEPTA ride on an Eagles game day and why the service matters**\
 `A gambling site paid to restore service for the game on Thursday.`\
 https://nytimes.com/athletic/6599335/2025/09/05/philadelphia-eagles-septa-service-cutbacks/
-
-**Carolina Panthers 2025 streaming guide: How to watch Bryce Young and Tetairoa McMillan**\
-`Here's how to watch all 17 Panthers games this season, which could be more fun with an improved Bryce Young under center.`\
-https://nytimes.com/athletic/6598292/2025/09/05/carolina-panthers-bryce-young-tetairoa-mcmillan-how-to-watch-2025/
-
-**The FAFSA Form Is Coming on Time This Year. For a Change.**\
-`The federal form, used to determine financial aid, will be available to the public on Oct. 1. Technical glitches that delayed the form for the past two years are said to have been resolved.`\
-https://nytimes.com/2025/09/05/your-money/fafsa-student-financial-aid-form-filing.html
-
-**Americans’ Most Valuable Asset Isn’t Stocks or a Home. It’s Social Security.**\
-`For the vast majority of people, the stream of promised retirement checks is worth more than anything else, our columnist says.`\
-https://nytimes.com/2025/09/05/business/social-security-wealth-benefits.html
 
