@@ -1,3 +1,27 @@
+**The Commanders' turnaround has brought back fans — and dollar signs**\
+`After decades of sitting at or near the bottom of the NFL in football and business metrics, Washington’s franchise has reversed course.`\
+https://nytimes.com/athletic/6600351/2025/09/05/washington-commanders-season-tickets-stadium-sponsors/
+
+**Inside a SEPTA ride on an Eagles game day and why the service matters**\
+`A gambling site paid to restore service for the game on Thursday.`\
+https://nytimes.com/athletic/6599335/2025/09/05/philadelphia-eagles-septa-service-cutbacks/
+
+**Carolina Panthers 2025 streaming guide: How to watch Bryce Young and Tetairoa McMillan**\
+`Here's how to watch all 17 Panthers games this season, which could be more fun with an improved Bryce Young under center.`\
+https://nytimes.com/athletic/6598292/2025/09/05/carolina-panthers-bryce-young-tetairoa-mcmillan-how-to-watch-2025/
+
+**The FAFSA Form Is Coming on Time This Year. For a Change.**\
+`The federal form, used to determine financial aid, will be available to the public on Oct. 1. Technical glitches that delayed the form for the past two years are said to have been resolved.`\
+https://nytimes.com/2025/09/05/your-money/fafsa-student-financial-aid-form-filing.html
+
+**Americans’ Most Valuable Asset Isn’t Stocks or a Home. It’s Social Security.**\
+`For the vast majority of people, the stream of promised retirement checks is worth more than anything else, our columnist says.`\
+https://nytimes.com/2025/09/05/business/social-security-wealth-benefits.html
+
+**Jets fan survey results, Part 2: Predicting the 2025-26 season and beyond**\
+`The 2025-26 season is almost here. What do Jets fans think could — or should — be in store?`\
+https://nytimes.com/athletic/6595512/2025/09/05/jets-fan-survey-toews-nyquist-2025-26/
+
 **Talks Between Adams and Trump Adviser Center on Saudi Ambassadorship**\
 `The discussions are said to be part of an effort to get Mayor Eric Adams to end his mayoral campaign in New York City, clearing a path for Andrew Cuomo.`\
 https://nytimes.com/2025/09/05/nyregion/eric-adams-saudi-arabia-ambassador.html
@@ -13,28 +37,4 @@ https://nytimes.com/2025/09/05/us/georgia-battery-plant-hyundai-lg-ice-raid.html
 **Atlanta Falcons 2025 streaming guide: How to watch all ATL games this season**\
 `The NFC South is thin, so a handful of high-leverage snaps each week can swing the Falcons' record. Here's how to watch their 2025 games.`\
 https://nytimes.com/athletic/6595303/2025/09/05/atlanta-falcons-how-to-watch-2025-tv-schedule/
-
-**Bucks fan survey results: Faith in Giannis remains high, but championship hopes fade**\
-`Antetokounmpo is the franchise cornerstone fans still trust, but there is skepticism about the Bucks' roster going into the 2025-26 season.`\
-https://nytimes.com/athletic/6591891/2025/09/05/giannis-antetokounmpo-bucks-fans-survey-2025-26/
-
-**Parsons-less Cowboys emerge from narrow loss to Eagles with same unanswered questions**\
-`The Cowboys played well enough to win but rarely pressured Eagles QB Jalen Hurts and made too many of their own mistakes. `\
-https://nytimes.com/athletic/6600735/2025/09/05/cowboys-eagles-nfl-opener-micah-parsons/
-
-**Breaking Down Elon Musk’s Pay Package**\
-`Tesla’s C.E.O. could become the world’s first trillionaire — if he can get the carmaker to hit some lofty performance hurdles.`\
-https://nytimes.com/2025/09/05/business/dealbook/elon-musk-trillionaire.html
-
-**What's on the line in Bills-Ravens clash, Christian Benford's shutdown status, and more**\
-`There's a good chance the Bills and Ravens meet again later in the season.`\
-https://nytimes.com/athletic/6599232/2025/09/05/bills-ravens-predictions-christian-benford-keon-coleman/
-
-**Workers Remove Wreckage of Lisbon Funicular**\
-`Workers removed the wreckage of the Lisbon funicular that crashed on Wednesday, killing at least 16 people and injuring 21 others. Tributes were paid to the victims at the site of the crash.`\
-https://nytimes.com/video/world/europe/100000010380642/workers-remove-wreckage-of-lisbon-funicular.html
-
-**American Who Posed as Irish Heiress Is Found Guilty of Theft and Fraud**\
-`Marianne Smyth was convicted in Northern Ireland, where court records said she had swindled victims out of more than $155,000.`\
-https://nytimes.com/2025/09/05/world/europe/fake-heiress-fraud-guilty-northern-ireland.html
 
