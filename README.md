@@ -1,3 +1,11 @@
+**Breaking Down Elon Musk’s Pay Package**\
+`Tesla’s C.E.O. could become the world’s first trillionaire — if he can get the carmaker to hit some lofty performance hurdles.`\
+https://nytimes.com/2025/09/05/business/dealbook/elon-musk-trillionaire.html
+
+**What's on the line in Bills-Ravens clash, Christian Benford's shutdown status, and more**\
+`There's a good chance the Bills and Ravens meet again later in the season.`\
+https://nytimes.com/athletic/6599232/2025/09/05/bills-ravens-predictions-christian-benford-keon-coleman/
+
 **Workers Remove Wreckage of Lisbon Funicular**\
 `Workers removed the wreckage of the Lisbon funicular that crashed on Wednesday, killing at least 16 people and injuring 21 others. Tributes were paid to the victims at the site of the crash.`\
 https://nytimes.com/video/world/europe/100000010380642/workers-remove-wreckage-of-lisbon-funicular.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6598751/2025/09/05/49ers-seahawks-season-opener-run
 **How Broncos navigated a year of drama-free contract business to lock up core players**\
 `The Broncos signed Nik Bonitto to a four-year, $106 million deal Thursday, making his the latest in a flurry of in-house extensions.`\
 https://nytimes.com/athletic/6598602/2025/09/05/broncos-contracts-nik-bonitto-zach-allen/
-
-**‘To be elite’: Bruins' Jeremy Swayman expects nothing short of a high-end rebirth this season**\
-`Swayman had an .892 save percentage in 2024-25 after never previously going below .914. He wants to prove that it was a one-year exception.`\
-https://nytimes.com/athletic/6598795/2025/09/05/bruins-jeremy-swayman-potential-rebirth/
-
-**Koné seeks redemption and opportunity after unwanted viral video moment**\
-`One of Canada's key midfield pieces is looking to rebound from testing times`\
-https://nytimes.com/athletic/6599691/2025/09/05/ismael-kone-canada-marsch/
 

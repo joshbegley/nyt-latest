@@ -1,3 +1,7 @@
+**Workers Remove Wreckage of Lisbon Funicular**\
+`Workers removed the wreckage of the Lisbon funicular that crashed on Wednesday, killing at least 16 people and injuring 21 others. Tributes were paid to the victims at the site of the crash.`\
+https://nytimes.com/video/world/europe/100000010380642/workers-remove-wreckage-of-lisbon-funicular.html
+
 **American Who Posed as Irish Heiress Is Found Guilty of Theft and Fraud**\
 `Marianne Smyth was convicted in Northern Ireland, where court records said she had swindled victims out of more than $155,000.`\
 https://nytimes.com/2025/09/05/world/europe/fake-heiress-fraud-guilty-northern-ireland.html
