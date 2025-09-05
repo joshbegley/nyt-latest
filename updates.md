@@ -1,3 +1,15 @@
+**Rafael Nadal's tennis and life after an era-defining rivalry: 'We never had time to relax'**\
+`Nadal's life after tennis has not yet seen him pick up a racket. But he has plenty of opinions about its new stars.`\
+https://nytimes.com/athletic/6598134/2025/09/05/rafael-nadal-tennis-retirement-big-three-rivalry/
+
+**Cowboys' CeeDee Lamb has final drive to forget: 'I need to catch the damn ball'**\
+`Lamb said he'll "dread every drop" when reviewing film of the Cowboy' near upset of the Eagles in Week 1.`\
+https://nytimes.com/athletic/6600773/2025/09/05/cowboys-ceedee-lamb-drops-eagles/
+
+**How to watch NASCAR Enjoy Illinois 300: Streaming, schedule as Cup playoffs continue**\
+`Round two of the NASCAR Cup Series playoffs shifts to the Midwest this weekend for the Enjoy Illinois 300 at World Wide Technology Raceway.`\
+https://nytimes.com/athletic/6599235/2025/09/05/nascar-enjoy-illinois-cup-playoffs-how-to-watch/
+
 **What I'm seeing from the Falcons: Belief they're in a better place for 2025**\
 `The Falcons enter the 2025 season with high hopes for their offense and a defense they think can create more game-changing plays.`\
 https://nytimes.com/athletic/6596301/2025/09/05/atlanta-falcons-nfl-preview-2025/
