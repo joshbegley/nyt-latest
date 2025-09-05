@@ -1,3 +1,7 @@
+**Will Trump Have to Run From the Economy?**\
+`It’s the issue voters cared most about in 2024, and there are signs of trouble.`\
+https://nytimes.com/2025/09/05/us/politics/trump-economy-jobs-midterms.html
+
 **49ers' Christian McCaffrey plans to play vs. Seahawks after calf injury scare**\
 `McCaffrey said he removed himself from Thursday's practice out of an abundance of caution.`\
 https://nytimes.com/athletic/6603024/2025/09/05/christian-mccaffrey-49ers-seahawks-injury/

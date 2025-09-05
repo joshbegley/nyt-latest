@@ -1,3 +1,7 @@
+**Will Trump Have to Run From the Economy?**\
+`It’s the issue voters cared most about in 2024, and there are signs of trouble.`\
+https://nytimes.com/2025/09/05/us/politics/trump-economy-jobs-midterms.html
+
 **49ers' Christian McCaffrey plans to play vs. Seahawks after calf injury scare**\
 `McCaffrey said he removed himself from Thursday's practice out of an abundance of caution.`\
 https://nytimes.com/athletic/6603024/2025/09/05/christian-mccaffrey-49ers-seahawks-injury/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/05/nyregion/public-partnership-homecare.html
 **Record Number of Lightning Strikes Hit California This Summer**\
 `Moist, cool air pulled inland by an area of low pressure off the West Coast has led to a high number of lightning strikes, especially in Northern California.`\
 https://nytimes.com/video/weather/100000010382111/record-number-of-lightning-strikes-hit-california-this-summer.html
-
-**Do Product Specs Matter? Here’s Why They Might Be Misleading.**\
-`(No description)`\
-https://nytimes.com/newsgraphics/card-story/wc-advice-product-specs
 
