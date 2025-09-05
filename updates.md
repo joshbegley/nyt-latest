@@ -1,3 +1,7 @@
+**With Jair Bolsonaro on Trial, Brazil Braces for U.S. Sanctions**\
+`While the Supreme Court weighs the fate of the former president on charges of plotting a coup, Brazil’s government is preparing for more penalties.`\
+https://nytimes.com/2025/09/05/world/americas/bolsonaro-trial-us-brazil-sanctions.html
+
 **Red Sox place struggling reliever Jordan Hicks on injured list**\
 `The righty has an 8.20 ERA with the Red Sox. He's the only player Boston acquired in the Rafael Devers trade to appear in the majors.`\
 https://nytimes.com/athletic/6598716/2025/09/05/red-sox-jordan-hicks-injury/

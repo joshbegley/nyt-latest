@@ -23,7 +23,7 @@ https://nytimes.com/athletic/6603136/2025/09/05/nationals-vs-cubs-stream-how-to-
 https://nytimes.com/athletic/6603022/2025/09/05/deloitte-nil-clearinghouse-college-sports-commission/
 
 **With Jair Bolsonaro on Trial, Brazil Braces for U.S. Sanctions**\
-`While Supreme Court weighs the fate of the former president on charges of plotting a coup, Brazil’s government is preparing for more penalties.`\
+`While the Supreme Court weighs the fate of the former president on charges of plotting a coup, Brazil’s government is preparing for more penalties.`\
 https://nytimes.com/2025/09/05/world/americas/bolsonaro-trial-us-brazil-sanctions.html
 
 **Will Trump Have to Run From the Economy?**\
