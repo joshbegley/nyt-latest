@@ -1,3 +1,11 @@
+**Breaking Down Elon Musk’s Pay Package**\
+`Tesla’s C.E.O. could become the world’s first trillionaire — if he can get the carmaker to hit some lofty performance hurdles.`\
+https://nytimes.com/2025/09/05/business/dealbook/elon-musk-trillionaire.html
+
+**What's on the line in Bills-Ravens clash, Christian Benford's shutdown status, and more**\
+`There's a good chance the Bills and Ravens meet again later in the season.`\
+https://nytimes.com/athletic/6599232/2025/09/05/bills-ravens-predictions-christian-benford-keon-coleman/
+
 **Workers Remove Wreckage of Lisbon Funicular**\
 `Workers removed the wreckage of the Lisbon funicular that crashed on Wednesday, killing at least 16 people and injuring 21 others. Tributes were paid to the victims at the site of the crash.`\
 https://nytimes.com/video/world/europe/100000010380642/workers-remove-wreckage-of-lisbon-funicular.html
