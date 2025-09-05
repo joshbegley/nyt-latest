@@ -1,3 +1,15 @@
+**Daniel Levy has left his post as Spurs chairman - you must have some questions...**\
+`This is your chance to ask The Athletic's team of experts how Levy's departure will affect the running of the club, and what could come next`\
+https://nytimes.com/athletic/6600832/2025/09/05/daniel-levy-tottenham-what-next/
+
+**The New York Times International Edition in Print for Saturday, Sep. 6, 2025**\
+``\
+https://nytimes.com/issue/todaysinyt/2025/09/05/todays-new-york-times-international-edition
+
+**The body language of tennis takes center stage in a U.S. Open semifinal of the mind**\
+`In their last Grand Slam match, Carlos Alcaraz got absorbed by Novak Djokovic's condition. At the U.S. Open, he is learning to ignore it.`\
+https://nytimes.com/athletic/6599677/2025/09/05/tennis-mindset-body-language-science-psychology/
+
 **Why Hamas Refuses to Give Up**\
 `Analysts say that despite its vast losses in Gaza, Hamas believes it can hold out for a deal that ensures its survival.`\
 https://nytimes.com/2025/09/05/world/middleeast/gaza-hamas-surrender-israel.html
@@ -7,7 +19,7 @@ https://nytimes.com/2025/09/05/world/middleeast/gaza-hamas-surrender-israel.html
 https://nytimes.com/athletic/6598134/2025/09/05/rafael-nadal-tennis-retirement-big-three-rivalry/
 
 **Cowboys' CeeDee Lamb has final drive to forget: 'I need to catch the damn ball'**\
-`Lamb said he'll "dread every drop" when reviewing film of the Cowboy' near upset of the Eagles in Week 1.`\
+`Lamb said he'll "dread every drop" when reviewing film of the Cowboys' near upset of the Eagles in Week 1.`\
 https://nytimes.com/athletic/6600773/2025/09/05/cowboys-ceedee-lamb-drops-eagles/
 
 **How to watch NASCAR Enjoy Illinois 300: Streaming, schedule as Cup playoffs continue**\
@@ -25,16 +37,4 @@ https://nytimes.com/2025/09/05/us/the-luckiest-gas-station-in-america.html
 **Ten bold (and not so bold) predictions for the Patriots this season**\
 `What should we expect from the Patriots in Year 1 under Mike Vrabel? O-line struggles, improvement from Drake Maye and an improved record.`\
 https://nytimes.com/athletic/6594635/2025/09/05/new-england-patriots-bold-predictions-nfl-2025/
-
-**Donors Push Mamdani to Maximum Fund-Raising Cap in Mayor’s Race**\
-`Zohran Mamdani’s campaign says it has hit the $8 million spending cap, a sign of the Democrat’s support especially among small-dollar donors in New York City.`\
-https://nytimes.com/2025/09/05/nyregion/mamdani-donations-mayor-money.html
-
-**French Winemaker Gets Prison for Scheme That Threatened the Champagne Bubble**\
-`Didier Chopin, 56, was accused of passing off wine made with carbonated grapes from Spain and other regions in France as Champagne.`\
-https://nytimes.com/2025/09/05/world/europe/france-fake-champagne-sentence.html
-
-**6 More Things E.R. Doctors Wish You’d Avoid**\
-`Stay out of the emergency room with these tips.`\
-https://nytimes.com/2025/09/05/well/er-doctors-avoid-tips.html
 
