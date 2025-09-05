@@ -1,3 +1,7 @@
+**Yankees takeaways: Jazz Chisholm Jr. injury update, Blue Jays up next**\
+`"I don't think it's anything major," Aaron Boone said of Chisholm's injury after Thursday's win. "At least, that's the sense right now."`\
+https://nytimes.com/athletic/6600583/2025/09/05/yankees-astros-jazz-chisholm-jr-takeaways/
+
 **Word of the Day: gaggle**\
 `This word has appeared in 100 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2025/09/05/learning/word-of-the-day-gaggle.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6600491/2025/09/05/yankees-astros-taylor-trammell-b
 **Macron Said That 26 Countries Would Secure Ukraine**\
 `The pledges were made in Paris at a summit designed to show that Europe is ready to uphold any future peace deal for Ukraine.`\
 https://nytimes.com/2025/09/05/briefing/macron-ukraine-europe-afghan-quake-giorgio-armani.html
-
-**The art of fielding in cricket: 'The best make it look easy. It isn't'**\
-`The Athletic spends a day at Headingley undergoing a fielding masterclass with Carl Hopkinson, the Northern Superchargers' specialist coach`\
-https://nytimes.com/athletic/6591735/2025/09/05/fielding-cricket-hopkinson-masterclass/
 

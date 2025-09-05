@@ -1,3 +1,7 @@
+**Word of the Day: gaggle**\
+`This word has appeared in 100 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2025/09/05/learning/word-of-the-day-gaggle.html
+
 **Kim Jong-un Leaves Beijing With Big Diplomatic Wins**\
 `Mr. Kim’s presence at a Chinese military parade was a sign of his growing geopolitical ​leverage and that North Korea was being accepted as a de facto nuclear power.`\
 https://nytimes.com/2025/09/05/world/asia/north-korea-china-nuclear.html
