@@ -1,3 +1,7 @@
+**Alessia Russo signs new long-term Arsenal contract**\
+`Russo, 26, has been a pivotal figure for Arsenal since joining the club from Manchester United on a free transfer in July 2023.`\
+https://nytimes.com/athletic/6598513/2025/09/05/alessia-russo-arsenal-contract-new/
+
 **London City Lionesses sign Geyoro from PSG**\
 `Geyoro played in all four of France's matches at the European Championships this summer, scoring twice.`\
 https://nytimes.com/athletic/6597503/2025/09/05/grace-geyoro-london-city-lionesses-psg/

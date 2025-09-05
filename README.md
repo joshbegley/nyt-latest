@@ -1,3 +1,7 @@
+**Putin Warns West Against Deploying Troops in Ukraine Before Peace Deal**\
+`The Russian leader said any forces stationed on Ukrainian soil before Moscow has reached an agreement with Kyiv would make them a “legitimate target.”`\
+https://nytimes.com/2025/09/05/world/europe/russia-ukraine-putin-western-troops.html
+
 **Alessia Russo signs new long-term Arsenal contract**\
 `Russo, 26, has been a pivotal figure for Arsenal since joining the club from Manchester United on a free transfer in July 2023.`\
 https://nytimes.com/athletic/6598513/2025/09/05/alessia-russo-arsenal-contract-new/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/05/learning/travel-stories.html
 **Suspect in Macklemore Robbery Also Stole From Sports Stars, Prosecutors Say**\
 `Patrick Maisonet’s targets in the Seattle area included the baseball Hall of Famer Ichiro Suzuki and the former football star Richard Sherman, officials said.`\
 https://nytimes.com/2025/09/05/us/seattle-burglary-macklemore-ichiro-sherman.html
-
-**Steve Ballmer denies allegations of Kawhi Leonard, Clippers circumventing salary cap**\
-`The Clippers chairman said he did not know anything about Leonard's reported endorsement deal with Aspiration.`\
-https://nytimes.com/athletic/6600547/2025/09/05/steve-ballmer-kawhi-leonard-endorsement-deal-clippers/
 
