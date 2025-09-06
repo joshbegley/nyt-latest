@@ -1,3 +1,7 @@
+**Colorado's third-string QB stole the show against Delaware. So what's next?**\
+`Ryan Staub wasn't considered part of the starting QB competition in camp, but he was the best option for Colorado against Delaware.`\
+https://nytimes.com/athletic/6606595/2025/09/06/colorado-qb-ryan-staub-delaware-deion-sanders/
+
 **Ohio State takeaways: Buckeyes got everything they wanted out of Grambling shutout**\
 `Ohio State demolished Grambling 70-0 on Saturday, giving Julian Sayin a chance to open things up and freshmen a chance to impress.`\
 https://nytimes.com/athletic/6606564/2025/09/06/ohio-state-grambling-football-score-takeaways/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6606653/2025/09/06/blue-jays-vs-yankees-stream-how-
 **How to watch Phillies at Marlins: Time, TV, streaming for September 7**\
 `Find out how to watch the Philadelphia Phillies play the Miami Marlins, with time, TV channel, and streaming information.`\
 https://nytimes.com/athletic/6606643/2025/09/06/phillies-vs-marlins-stream-how-to-watch-sept-7/
-
-**The art of the hardest speech in sports, as told by the U.S. Open women's final**\
-`Sabalenka and Anisimova met in the U.S. Open final. Earlier this year, they gave losing speeches that showed how difficult the art can be.`\
-https://nytimes.com/athletic/6602278/2025/09/06/us-open-anisimova-sabalenka-grand-slam-tennis-speeches/
 

@@ -1,3 +1,7 @@
+**Colorado's third-string QB stole the show against Delaware. So what's next?**\
+`Ryan Staub wasn't considered part of the starting QB competition in camp, but he was the best option for Colorado against Delaware.`\
+https://nytimes.com/athletic/6606595/2025/09/06/colorado-qb-ryan-staub-delaware-deion-sanders/
+
 **Ohio State takeaways: Buckeyes got everything they wanted out of Grambling shutout**\
 `Ohio State demolished Grambling 70-0 on Saturday, giving Julian Sayin a chance to open things up and freshmen a chance to impress.`\
 https://nytimes.com/athletic/6606564/2025/09/06/ohio-state-grambling-football-score-takeaways/
