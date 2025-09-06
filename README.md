@@ -1,3 +1,7 @@
+**Russini: What I’m Hearing on Micah Parsons' other suitors, Bill Belichick's feuds and more**\
+`The latest intel on why Jaxson Dart’s time could be coming sooner than you think and Micah Parsons' potential options other than Green Bay.`\
+https://nytimes.com/athletic/6602536/2025/09/06/nfl-rumors-news-week-1-insider-scoops-russini/
+
 **Norway’s Navy Gets a Big Boost With U.K. Ship Deal**\
 `A plan to buy warships shows how Europe is bolstering defenses amid worries about Russian aggression and President Trump’s isolationist policies, analysts say.`\
 https://nytimes.com/2025/09/06/world/europe/noway-uk-ship-deal.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/06/world/middleeast/israel-gaza-humanitarian.html
 **As Lamar Jackson and Josh Allen meet again, 1 lingering question remains**\
 `Is this finally the year Jackson or Allen gets their team over the hump and knocks Patrick Mahomes and the Chiefs off their lofty AFC perch?`\
 https://nytimes.com/athletic/6599572/2025/09/06/ravens-bills-lamar-jackson-josh-allen/
-
-**Is England’s Women’s Super League missing its American moment?**\
-`For the second year in a row WSL's U.S. broadcast partner was unclear even 24 hours before the opening game.`\
-https://nytimes.com/athletic/6602235/2025/09/06/is-englands-womens-super-league-missing-its-american-moment-with-broadcast-confusion/
 
