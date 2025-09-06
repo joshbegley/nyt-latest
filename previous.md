@@ -1,3 +1,7 @@
+**Why wasn't Chargers DL Teair Tart ejected after hitting Travis Kelce?**\
+`Tart's blow to Kelce's head was ruled to be an open-handed hit — not a punch — and so he was only penalized 15 yards and not ejected. `\
+https://nytimes.com/athletic/6603937/2025/09/05/chargers-chiefs-punch-tart-kelce-penalty/
+
 **Things You Can’t Do Without**\
 `Kunal Nabar hatches a puzzle that’s as tough as it needs to be.`\
 https://nytimes.com/2025/09/05/crosswords/daily-puzzle-2025-09-06.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6603726/2025/09/05/guardians-vs-rays-stream-how-to-
 **How to watch Guardians at Rays: Time, TV, streaming for September 6**\
 `Find out how to watch the Cleveland Guardians play the Tampa Bay Rays, with time, TV channel, and streaming information.`\
 https://nytimes.com/athletic/6603723/2025/09/05/guardians-vs-rays-stream-how-to-watch-sept-6/
-
-**How to watch Twins at Royals: Time, TV, streaming for September 6**\
-`Find out how to watch the Minnesota Twins play the Kansas City Royals, with time, TV channel, and streaming information.`\
-https://nytimes.com/athletic/6603632/2025/09/05/twins-vs-royals-stream-how-to-watch-sept-6/
 

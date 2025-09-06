@@ -1,3 +1,7 @@
+**Why wasn't Chargers DL Teair Tart ejected after hitting Travis Kelce?**\
+`Tart's blow to Kelce's head was ruled to be an open-handed hit — not a punch — and so he was only penalized 15 yards and not ejected. `\
+https://nytimes.com/athletic/6603937/2025/09/05/chargers-chiefs-punch-tart-kelce-penalty/
+
 **Things You Can’t Do Without**\
 `Kunal Nabar hatches a puzzle that’s as tough as it needs to be.`\
 https://nytimes.com/2025/09/05/crosswords/daily-puzzle-2025-09-06.html
