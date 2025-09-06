@@ -1,3 +1,7 @@
+**The Seoul Neighborhood That’s a Destination for Inventive Cocktails**\
+`Plus: voluptuous pendant lamps, kooky-cool bag charms and more from T’s cultural compendium.`\
+https://nytimes.com/2025/09/06/t-magazine/seoul-sindang-neighborhood.html
+
 **‘Did not want to be a burden': Carey Price's Montreal chapter closes**\
 `Price did not want to be a burden to the Canadiens, the irony being he bore the burden of their success for his entire NHL career. `\
 https://nytimes.com/athletic/6604048/2025/09/06/canadiens-carey-price-era-trade-sharks/

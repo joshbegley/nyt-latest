@@ -1,3 +1,7 @@
+**The Seoul Neighborhood That’s a Destination for Inventive Cocktails**\
+`Plus: voluptuous pendant lamps, kooky-cool bag charms and more from T’s cultural compendium.`\
+https://nytimes.com/2025/09/06/t-magazine/seoul-sindang-neighborhood.html
+
 **Roldan goes from vacation to USMNT after pocketing Messi in Leagues Cup**\
 `The Seattle midfielder had fallen off the national team picture before this week's dramatic return.`\
 https://nytimes.com/athletic/6603999/2025/09/06/cristian-roldan-usmnt-pochettino-messi/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6604048/2025/09/06/canadiens-carey-price-era-trade-
 **Reds fall below .500 as playoff window rapidly closes in loss to Mets**\
 `The loss pushed the Reds six games back of the Mets for the National League's third wild card slot with just 21 games remaining. `\
 https://nytimes.com/athletic/6603992/2025/09/06/cincinnati-reds-playoff-wild-card-mets/
-
-**Why Islanders traded Noah Dobson, not rebuilding, Patrick Roy, more: Catching up with Mathieu Darche**\
-`The Islanders GM gives The Athletic an inside view of his vision for the team as he approaches his first season.`\
-https://nytimes.com/athletic/6598709/2025/09/06/mathieu-darche-islanders-noah-dobson/
 
