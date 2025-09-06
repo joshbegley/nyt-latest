@@ -1,3 +1,19 @@
+**Corrections: Sept. 6, 2025**\
+`Corrections that appeared in print on Saturday, Sept. 6, 2025.`\
+https://nytimes.com/2025/09/05/pageoneplus/corrections-sept-6-2025.html
+
+**Quote of the Day: French Winemaker Sent to Prison for the Ultimate Faux Pas: Foisting Off Fake Fizz**\
+`Quotation of the Day for Saturday, September 6, 2025.`\
+https://nytimes.com/2025/09/05/pageoneplus/quote-of-the-day-french-winemaker-sent-to-prison-for-the-ultimate-faux-pas-foisting-off-fake-fizz.html
+
+**Arrival of pal Ha-Seong Kim brings out the best in Braves' Jurickson Profar**\
+`"He's a really, really good baseball player," Profar said of Kim. "Hopefully, he stays here so we can win a lot of games together."`\
+https://nytimes.com/athletic/6603952/2025/09/05/braves-mariners-ha-seong-kim-arrival-jurickson-profar/
+
+**Chargers beat Chiefs as Herbert delivers, Worthy leaves with injury: Key takeaways**\
+`The Chargers opened the 2025 NFL season with a 27-21 win over the Chiefs in São Paulo.`\
+https://nytimes.com/athletic/6603990/2025/09/05/chargers-chiefs-score-results-takeaways/
+
 **Jannik Sinner reaches U.S. Open final against Carlos Alcaraz with win over Félix Auger-Aliassime**\
 `Sinner will meet Alcaraz for the third consecutive major final, a record in the tennis Open Era.`\
 https://nytimes.com/athletic/6601705/2025/09/05/jannik-sinner-us-open-aliassime-final-alcaraz/
