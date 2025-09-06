@@ -1,3 +1,11 @@
+**The New York Times in Print for Saturday, Sep. 6, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/09/06/todays-new-york-times
+
+**Dodgers, despite Ohtani's pitching efforts, endure fourth straight loss and exit bruised**\
+`The Dodgers have lost six of their past seven games, including four in a row against teams currently in last place.`\
+https://nytimes.com/athletic/6603997/2025/09/06/dodgers-shohei-ohtani-orioles/
+
 **Dodgers, despite Ohtani's pitching efforts, endure fourth straight loss and exit bruised**\
 `The Dodgers have now lost six of their last seven games, including four in a row against teams currently in last place.`\
 https://nytimes.com/athletic/6603997/2025/09/06/dodgers-shohei-ohtani-orioles/
