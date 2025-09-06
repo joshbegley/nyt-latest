@@ -1,3 +1,7 @@
+**Large Shark Kills Surfer Near Sydney, Police Say**\
+`The authorities in Australia closed beaches in the northern Sydney suburbs after the attack.`\
+https://nytimes.com/2025/09/06/world/australia/sydney-australia-shark-attack.html
+
 **The New York Times in Print for Saturday, Sep. 6, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/09/06/todays-new-york-times
