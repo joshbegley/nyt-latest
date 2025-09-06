@@ -1,3 +1,7 @@
+**Rebel run: How the Great North Run became the biggest of them all**\
+`The most popular half-marathon in the world, the brainchild of Olympian Sir Brendan Foster, is preparing for its 44th staging`\
+https://nytimes.com/athletic/6601551/2025/09/06/great-north-run-foster/
+
 **Yankees get defensive after Aaron Judge fails first test in return to right field**\
 `Aaron Boone didn't want to discuss Judge's short throw to Jazz Chisholm Jr.: "We're handling it how we handle it, OK?"`\
 https://nytimes.com/athletic/6603956/2025/09/06/yankees-aaron-judge-right-field-throw/

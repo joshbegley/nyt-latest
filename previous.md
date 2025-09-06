@@ -1,3 +1,7 @@
+**Rebel run: How the Great North Run became the biggest of them all**\
+`The most popular half-marathon in the world, the brainchild of Olympian Sir Brendan Foster, is preparing for its 44th staging`\
+https://nytimes.com/athletic/6601551/2025/09/06/great-north-run-foster/
+
 **Yankees get defensive after Aaron Judge fails first test in return to right field**\
 `Aaron Boone didn't want to discuss Judge's short throw to Jazz Chisholm Jr.: "We're handling it how we handle it, OK?"`\
 https://nytimes.com/athletic/6603956/2025/09/06/yankees-aaron-judge-right-field-throw/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/06/world/australia/australia-ghost-bat-drone.html
 **Man United's summer: Inside Park-Clinton trade, staff exits, depth worries and 'most pressured job in the country'**\
 `As the WSL returns, this is the story of Manchester United's summer, who they signed, who they didn't and how ready they are for the season`\
 https://nytimes.com/athletic/6601568/2025/09/06/manchester-united-women-transfers-skinner/
-
-**Charrington is the Lewis family confidant who will be overseeing a completely restructured Spurs**\
-`Tottenham have been run in a way that set them apart from their Premier League rivals. Not anymore`\
-https://nytimes.com/athletic/6600022/2025/09/06/peter-charrington-tottenham-hotspur-who/
 
