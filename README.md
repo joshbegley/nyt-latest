@@ -1,3 +1,15 @@
+**Air Canada Flight Attendants Overwhelmingly Reject Proposed Contract**\
+`The vote is not expected to restart the walkout that snarled travel in Canada last month.`\
+https://nytimes.com/2025/09/06/world/canada/air-canada-union-strike-contract.html
+
+**Trump Sends Mixed Messages With His Newly Rebranded Department of War**\
+`President Trump’s renaming of the Defense Department comes amid his overt campaign for a Nobel Peace Prize.`\
+https://nytimes.com/2025/09/06/us/politics/trump-department-of-war.html
+
+**Baylor overcomes 14-point deficit late to down SMU in 2OT: Key takeaways**\
+`SMU, a Playoff team a year ago, missed a field goal in the second overtime before Baylor's game winner.`\
+https://nytimes.com/athletic/6606487/2025/09/06/baylor-smu-score-result-takeaways/
+
 **Syracuse coach Fran Brown makes team run sprints after OT win over UConn**\
 `Syracuse, which won 10 games last year, lost its opener to Tennessee, 45-26, and had to rally from 11 down in the fourth to beat UConn.`\
 https://nytimes.com/athletic/6606426/2025/09/06/syracuse-uconn-sprints-coach-fran-brown/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6606428/2025/09/06/sec-greg-sankey-cfp-missouri-kan
 **Play a special Washington Commanders version of Connections: Sports Edition**\
 `We've made a Commanders-themed edition of the game to test your knowledge of the team's players, coaches and history.`\
 https://nytimes.com/athletic/6606427/2025/09/06/commanders-connections-sports-edition-nfl-game/
-
-**PSG's Dembele out for six weeks with "severe" injury, Doue out for four weeks**\
-`Dembele and Doue registered a combined 51 goals and 32 assists for the French champions last season.`\
-https://nytimes.com/athletic/6605530/2025/09/06/paris-saint-germain-injury-update-ousmane-dembele-desire-doue/
-
-**Play a special Tennessee Titans version of Connections: Sports Edition**\
-`We've made a Titans-themed edition of the game to test your knowledge of the team's players, coaches and history.`\
-https://nytimes.com/athletic/6606413/2025/09/06/titans-connections-sports-edition-nfl-game/
-
-**Play a special San Francisco 49ers version of Connections: Sports Edition**\
-`We've made a 49ers-themed edition of the game to test your knowledge of the team's players, coaches and history.`\
-https://nytimes.com/athletic/6606357/2025/09/06/49ers-connections-sports-edition-nfl-game/
 
