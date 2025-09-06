@@ -1,3 +1,7 @@
+**Man Utd in talks with Trabzonspor for Onana loan**\
+`The 29-year-old is yet to make a Premier League appearance this season. `\
+https://nytimes.com/athletic/6431666/2025/09/06/andre-onana-manchester-united-trabzonspor-loan/
+
 **Bernie Sanders Stumps for Mamdani as Part of Fighting Oligarchy Tour**\
 `Mr. Sanders will host the Democratic front-runner for mayor of New York City at a town hall in Brooklyn on Saturday night. The two marched in a Labor Day parade that morning in Manhattan.`\
 https://nytimes.com/2025/09/06/nyregion/bernie-sanders-zohran-mamdani.html
