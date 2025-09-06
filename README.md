@@ -1,3 +1,23 @@
+**A Mayor in Disrepute Saved by an Ambassadorship. The Year Was 1950.**\
+`Eric Adams would not be the first to leave Gracie Mansion for an embassy. William O’Dwyer did it decades ago.`\
+https://nytimes.com/2025/09/06/nyregion/odwyer-ambassador-truman-mayor.html
+
+**‘They Keep Us Rolling’: Wheelchair Tennis at the U.S. Open Has a Pit Crew**\
+`A trio of technicians must rush to the aid of players whose wheelchairs break during the tournament. They have just 15 minutes.`\
+https://nytimes.com/2025/09/06/nyregion/us-open-wheelchair.html
+
+**How a Peloton Yoga Instructor Spends a Day at the Studio**\
+`Aditi Shah’s day stretches from a 5:30 a.m. meditation to an after-dinner walk, with business meetings in between.`\
+https://nytimes.com/2025/09/06/nyregion/aditi-shah-peloton-yoga.html
+
+**14 Unforgettable Looks at the Venice Film Festival**\
+`Gilded Age gowns, cable-knit sweaters, fun socks and more.`\
+https://nytimes.com/2025/09/06/style/venice-film-festival-red-carpet-2025-best-dressed.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/09/06/crosswords/spelling-bee-forum.html
+
 **Chelsea's fine-tuning gives them every chance of dominating the WSL once again**\
 `Last season's domestic treble-winners have few weak spots but they look to have plugged those gaps nonetheless`\
 https://nytimes.com/athletic/6603351/2025/09/06/chelsea-dominance-alyssa-thompson-manchester-city/
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/6604200/2025/09/06/giants-vs-cardinals-stream-how-t
 **Large Shark Kills Surfer Near Sydney, Police Say**\
 `The authorities in Australia closed beaches in the northern Sydney suburbs after the attack.`\
 https://nytimes.com/2025/09/06/world/australia/sydney-australia-shark-attack.html
-
-**The New York Times in Print for Saturday, Sep. 6, 2025**\
-``\
-https://nytimes.com/issue/todayspaper/2025/09/06/todays-new-york-times
-
-**Dodgers, despite Ohtani's pitching efforts, endure fourth straight loss and exit bruised**\
-`The Dodgers have lost six of their past seven games, including four in a row against teams currently in last place.`\
-https://nytimes.com/athletic/6603997/2025/09/06/dodgers-shohei-ohtani-orioles/
-
-**Ken Dryden, legendary Montreal Canadiens goalie, dies at age 78**\
-`Dryden won six Stanley Cup championships and the Vezina Trophy five times.`\
-https://nytimes.com/athletic/6604081/2025/09/06/ken-dryden-obit/
-
-**Rebel run: How the Great North Run became the biggest of them all**\
-`The most popular half-marathon in the world, the brainchild of Olympian Sir Brendan Foster, is preparing for its 44th staging`\
-https://nytimes.com/athletic/6601551/2025/09/06/great-north-run-foster/
-
-**Yankees get defensive after Aaron Judge fails first test in return to right field**\
-`Aaron Boone didn't want to discuss Judge's short throw to Jazz Chisholm Jr.: "We're handling it how we handle it, OK?"`\
-https://nytimes.com/athletic/6603956/2025/09/06/yankees-aaron-judge-right-field-throw/
 
