@@ -1,3 +1,11 @@
+**In India’s Rebound From Trump Blows, Modi Has No Easy Choices**\
+`The unraveling of relations between the United States and India has convinced many Indian officials that the country should return to its difficult balancing act of nonalignment.`\
+https://nytimes.com/2025/09/06/world/asia/india-modi-trump-united-states-relations.html
+
+**Browns sign RB Quinshon Judkins, final rookie to agree to contract**\
+`Judkins was arrested in July on charges that he struck a woman multiple times, but prosecutors decided not to move forward with the case.`\
+https://nytimes.com/athletic/6605496/2025/09/06/brown-quinshon-judkins-sign-rookie-contract/
+
 **Man Utd in talks with Trabzonspor for Onana loan**\
 `The 29-year-old is yet to make a Premier League appearance this season. `\
 https://nytimes.com/athletic/6431666/2025/09/06/andre-onana-manchester-united-trabzonspor-loan/

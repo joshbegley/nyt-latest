@@ -1,3 +1,7 @@
+**In India’s Rebound From Trump Blows, Modi Has No Easy Choices**\
+`The unraveling of relations between the United States and India has convinced many Indian officials that the country should return to its difficult balancing act of nonalignment.`\
+https://nytimes.com/2025/09/06/world/asia/india-modi-trump-united-states-relations.html
+
 **Man Utd in talks with Trabzonspor for Onana loan**\
 `The 29-year-old is yet to make a Premier League appearance this season. `\
 https://nytimes.com/athletic/6431666/2025/09/06/andre-onana-manchester-united-trabzonspor-loan/
@@ -30,11 +34,7 @@ https://nytimes.com/2025/09/06/dining/apples-and-pork-chops-are-a-perfect-pair.h
 `Before his triumph in the 1986 World Series, he had a long playing career and established himself as one of baseball’s brainier and more self-assured characters.`\
 https://nytimes.com/2025/09/06/obituaries/davey-johnson-dead.html
 
-**Browns to sign Quinshon Judkins to four-year, $11.4 million contract: Source**\
+**Browns sign RB Quinshon Judkins, final rookie to agree to contract**\
 `Judkins was arrested in July on charges that he struck a woman multiple times, but prosecutors decided not to move forward with the case.`\
 https://nytimes.com/athletic/6605496/2025/09/06/brown-quinshon-judkins-sign-rookie-contract/
-
-**Davey Johnson, who managed the '86 Mets to a World Series title, dies at 82**\
-`Johnson won 595 games with the Mets, more than any manager in team history.`\
-https://nytimes.com/athletic/6605541/2025/09/06/davey-johnson-dies/
 
