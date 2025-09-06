@@ -1,3 +1,7 @@
+**Davey Johnson, Who Managed the Mets to a Surprising Title, Dies at 82**\
+`Before his triumph in the 1986 World Series, he had a long playing career and established himself as one of baseball’s brainier and more self-assured characters.`\
+https://nytimes.com/2025/09/06/obituaries/davey-johnson-dead.html
+
 **Browns to sign Quinshon Judkins to four-year, $11.4 million contract: Source**\
 `Judkins was arrested in July on charges that he struck a woman multiple times, but prosecutors decided not to move forward with the case.`\
 https://nytimes.com/athletic/6605496/2025/09/06/brown-quinshon-judkins-sign-rookie-contract/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/06/t-magazine/seoul-sindang-neighborhood.html
 **Roldan goes from vacation to USMNT after pocketing Messi in Leagues Cup**\
 `The Seattle midfielder had fallen off the national team picture before this week's dramatic return.`\
 https://nytimes.com/athletic/6603999/2025/09/06/cristian-roldan-usmnt-pochettino-messi/
-
-**When It Comes to Spotting Fake Receipts, It’s A.I. vs. A.I.**\
-`Software companies that audit expense reports are adding a new arsenal of capabilities to try to detect receipts that have been created using A.I. chatbots.`\
-https://nytimes.com/2025/09/06/business/dealbook/ai-receipts-expense-reports.html
 

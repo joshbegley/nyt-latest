@@ -1,3 +1,7 @@
+**Davey Johnson, Who Managed the Mets to a Surprising Title, Dies at 82**\
+`Before his triumph in the 1986 World Series, he had a long playing career and established himself as one of baseball’s brainier and more self-assured characters.`\
+https://nytimes.com/2025/09/06/obituaries/davey-johnson-dead.html
+
 **Browns to sign Quinshon Judkins to four-year, $11.4 million contract: Source**\
 `Judkins was arrested in July on charges that he struck a woman multiple times, but prosecutors decided not to move forward with the case.`\
 https://nytimes.com/athletic/6605496/2025/09/06/brown-quinshon-judkins-sign-rookie-contract/
