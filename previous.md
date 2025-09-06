@@ -1,3 +1,7 @@
+**Things You Can’t Do Without**\
+`Kunal Nabar hatches a puzzle that’s as tough as it needs to be.`\
+https://nytimes.com/2025/09/05/crosswords/daily-puzzle-2025-09-06.html
+
 **Hate How Earbuds Feel? Try These. **\
 `Text by Lauren Dragan`\
 https://nytimes.com/card/2025/09/06/smarter-living/wirecutter/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6603723/2025/09/05/guardians-vs-rays-stream-how-to-
 **How to watch Twins at Royals: Time, TV, streaming for September 6**\
 `Find out how to watch the Minnesota Twins play the Kansas City Royals, with time, TV channel, and streaming information.`\
 https://nytimes.com/athletic/6603632/2025/09/05/twins-vs-royals-stream-how-to-watch-sept-6/
-
-**How to watch Phillies at Marlins: Time, TV, streaming for September 6**\
-`Find out how to watch the Philadelphia Phillies play the Miami Marlins, with time, TV channel, and streaming information.`\
-https://nytimes.com/athletic/6603621/2025/09/05/phillies-vs-marlins-stream-how-to-watch-sept-6/
 

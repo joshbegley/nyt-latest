@@ -1,3 +1,7 @@
+**Things You Can’t Do Without**\
+`Kunal Nabar hatches a puzzle that’s as tough as it needs to be.`\
+https://nytimes.com/2025/09/05/crosswords/daily-puzzle-2025-09-06.html
+
 **Hate How Earbuds Feel? Try These. **\
 `Text by Lauren Dragan`\
 https://nytimes.com/card/2025/09/06/smarter-living/wirecutter/
