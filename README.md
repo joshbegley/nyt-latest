@@ -1,40 +1,40 @@
-**Immigration Raid on Hyundai-LG Plant in Georgia Rattles South Korea**\
-`The shocked but subdued reaction to the arrest of hundreds of Koreans at the site reflected the delicate position of a government engaged in tense trade talks with the Trump administration.`\
-https://nytimes.com/2025/09/06/world/asia/immigration-raid-hyundai-lg-south-korea-georgia.html
+**Offer Accepted**\
+`We spend a lot of time thinking of reasons we shouldn’t do things. What if we decided to default to yes?`\
+https://nytimes.com/2025/09/06/briefing/offer-accepted.html
 
-**What the first U.S. Open final to end in a tiebreak meant to Tracy Austin and Martina Navratilova**\
-`A moment in Grand Slam history meant very different things for two Americans at hinge moments in their tennis careers.`\
-https://nytimes.com/athletic/6602206/2025/09/06/us-open-tracy-austin-martina-navratilova-final/
+**How to watch U.S. Open women's final: Aryna Sabalenka favored over Amanda Anisimova**\
+`The dominant Sabalenka looks to defend her title in Flushing. Anisimova goes for her first Grand Slam.`\
+https://nytimes.com/athletic/6602305/2025/09/06/us-open-womens-final-sabalenka-anisimova-odds-watch/
 
-**Brené Brown Doesn’t Want to Be Your Self-Help Guru Anymore**\
-`The author and podcaster wants to apply her old ideas about vulnerability and empathy to the workplace.`\
-https://nytimes.com/2025/09/06/magazine/brene-brown-interview.html
+**A closer look at Eagles' passing defense shows 'room for improvement'**\
+`The Eagles have a couple extra days to get ready for the Chiefs.`\
+https://nytimes.com/athletic/6602050/2025/09/06/eagles-passing-defense-cowboys/
 
-**Althea Gibson's tennis legacy lives at the U.S. Open, under her granite gaze**\
-`75 years ago, Gibson broke the color barrier in tennis. She is immortalized in granite, but her legacy is live at the U.S. Open.`\
-https://nytimes.com/athletic/6596410/2025/09/06/althea-gibson-us-open-tennis-racism/
+**Maya Moore's Hall of Fame career is the least important reason she's an all-time great**\
+`To consider Moore is to acknowledge there are human beings who do more with their footprint to make the world a little better.`\
+https://nytimes.com/athletic/6601408/2025/09/06/maya-moore-lynx-wnba-uconn-hall-of-fame/
 
-**A Miserable Moment for U.K.’s Starmer: An Ally Resigns and Farage Gloats**\
-`The resignation on Friday of Angela Rayner, Britain’s deputy prime minister, was the latest setback for Prime Minister Keir Starmer as he battles the rise of the right-wing populist Nigel Farage.`\
-https://nytimes.com/2025/09/06/world/europe/uk-starmer-farage.html
+**NFL Week 1 roundtable: Micah Parsons' Packers debut, Steelers-Jets QB switch, Ravens-Bills**\
+`Though Parsons' debut takes center stage, Texans-Rams, Ravens-Bills and Vikings-Bears highlight the rest of Week 1's action.`\
+https://nytimes.com/athletic/6601643/2025/09/06/nfl-week-1-roundtable-micah-parsons-packers-debut-steelers-jets-ravens-bills/
 
-**My Company Rolled Back Its Hate-Speech Protections. What Can I Do?**\
-`Plus, a passing of the Work Friend baton.`\
-https://nytimes.com/2025/09/06/business/hate-speech-protections-rolled-back.html
+**Cal Ripken Jr., the trainer and the record that almost didn't happen**\
+`Richie Bancells had a front-row seat for Ripken's everyday heroics: "I wish every trainer could have one Cal in their lifetime."`\
+https://nytimes.com/athletic/6603422/2025/09/06/cal-ripken-record-anniversary-trainer/
 
-**Grand Juries in D.C. Reject Wave of Charges Under Trump’s Crackdown**\
-`The persistent rejections suggest that the grand jurors may have had enough of prosecutors seeking harsh charges in a highly politicized environment.`\
-https://nytimes.com/2025/09/06/us/trump-dc-national-guard-grand-juries-crime.html
+**Chiefs' emotions boiled over in season-opening loss. Here's what they said about it**\
+`The Chiefs' Drue Tranquill and Chris Jones got into a heated exchange caught by cameras. Here's what they said about it in Brazil.`\
+https://nytimes.com/athletic/6602314/2025/09/06/chiefs-chargers-emotions-chris-jones-drue-tranquill/
 
-**What’s Inside the Envelope That U.S. Open Winners Get? It’s Not a Check.**\
-`Both singles champions will win $5 million. But the envelope they receive during the trophy presentation is a symbolic gesture.`\
-https://nytimes.com/2025/09/06/business/us-open-prize-money-checks.html
+**A Canadian Whisky Brand May Move Bottling to the U.S. A Union Blames Trump.**\
+`Diageo plans to close an Ontario factory, eliminating 200 union jobs, to take its Crown Royal bottling closer to American customers.`\
+https://nytimes.com/2025/09/06/world/canada/a-canadian-whisky-brand-may-move-bottling-to-the-us-a-union-blames-trump.html
 
-**The Best Movies and TV Shows Coming to Netflix in September**\
-`A new series from the creator of “Peaky Blinders” and another starring Jude Law and Jason Bateman are among the highlights this month.`\
-https://nytimes.com/2025/09/06/arts/television/netflix-new-september.html
+**Connections Companion No. 819**\
+`Scroll down for hints and conversation about the puzzle for Sunday, Sept. 7, 2025.`\
+https://nytimes.com/2025/09/06/crosswords/connections-companion-819.html
 
-**Settlement Talks Stall Between Harvard and the Trump Administration**\
-`One major reason is said to be an emerging divide within the administration over whether the current framework is too favorable to Harvard.`\
-https://nytimes.com/2025/09/06/us/politics/harvard-trump-negotiations-stall.html
+**I’ve Prepped for Future Disasters. Do I Have to Help Those Who Didn’t?**\
+`We can’t be the emergency food bank for everyone, but could we really let others suffer?`\
+https://nytimes.com/2025/09/06/magazine/disaster-prep-sharing-ethics.html
 
