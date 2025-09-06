@@ -26,7 +26,7 @@ https://nytimes.com/athletic/6602235/2025/09/06/is-englands-womens-super-league-
 `Irish fans have questions about play calling, Jeremiyah Love's usage, the receiving corps and the defense after a tough Week 1 loss.`\
 https://nytimes.com/athletic/6601887/2025/09/06/notre-dame-chris-ash-mike-denbrock/
 
-**Did not want to be a burden': Carey Price's Montreal chapter closes**\
+**‘Did not want to be a burden': Carey Price's Montreal chapter closes**\
 `Price did not want to be a burden to the Canadiens, the irony being he bore the burden of their success for his entire NHL career. `\
 https://nytimes.com/athletic/6604048/2025/09/06/canadiens-carey-price-era-trade-sharks/
 

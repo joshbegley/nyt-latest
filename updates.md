@@ -1,3 +1,7 @@
+**‘Did not want to be a burden': Carey Price's Montreal chapter closes**\
+`Price did not want to be a burden to the Canadiens, the irony being he bore the burden of their success for his entire NHL career. `\
+https://nytimes.com/athletic/6604048/2025/09/06/canadiens-carey-price-era-trade-sharks/
+
 **Roldan goes from vacation to USMNT after pocketing Messi in Leagues Cup**\
 `The Seattle midfielder had fallen off the national team picture before this week's dramatic return.`\
 https://nytimes.com/athletic/6603999/2025/09/06/cristian-roldan-usmnt-pochettino-messi/
