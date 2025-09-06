@@ -1,3 +1,11 @@
+**Smith makes the perfect start as a key player in Arsenal's new era**\
+`The Canada forward scored, stepping up when her team needed her after a tricky start against London City Lionesses`\
+https://nytimes.com/athletic/6605687/2025/09/06/olivia-smith-arsenal-debut-london-city/
+
+**How Max Verstappen tamed the ‘Temple of Speed’ and set the fastest lap in F1 history**\
+`In a year where his title defense has sputtered, Max Verstappen showed he still is capable of magical laps at the Italian GP`\
+https://nytimes.com/athletic/6605858/2025/09/06/f1-fastest-lap-record-max-verstappen-italian-gp/
+
 **In India’s Rebound From Trump Blows, Modi Has No Easy Choices**\
 `The unraveling of relations between the United States and India has convinced many Indian officials that the country should return to its difficult balancing act of nonalignment.`\
 https://nytimes.com/2025/09/06/world/asia/india-modi-trump-united-states-relations.html
