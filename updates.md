@@ -1,3 +1,7 @@
+**Alex Formenton to rejoin HC Ambri-Piotta while awaiting possible NHL reinstatement**\
+`Formenton agreed to a deal through the international break in December, including an option for an extension.`\
+https://nytimes.com/athletic/6606140/2025/09/06/alex-formenton-rejoins-ambri-piotta/
+
 **Arch Manning tallies 5 TDs in Texas romp after Ohio State flop**\
 `Manning passed for four touchdowns in the first half of the 38-7 blowout of San Jose State and added a rushing TD. He had one interception.`\
 https://nytimes.com/athletic/6606095/2025/09/06/arch-manning-texas-san-jose-state/

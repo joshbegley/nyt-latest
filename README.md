@@ -1,3 +1,23 @@
+**PSG's Dembele out for six weeks with "severe" injury, Doue out for four weeks**\
+`Dembele and Doue registered a combined 51 goals and 32 assists for the French champions last season.`\
+https://nytimes.com/athletic/6605530/2025/09/06/paris-saint-germain-injury-update-ousmane-dembele-desire-doue/
+
+**Play a special Tennessee Titans version of Connections: Sports Edition**\
+`We've made a Titans-themed edition of the game to test your knowledge of the team's players, coaches and history.`\
+https://nytimes.com/athletic/6606413/2025/09/06/titans-connections-sports-edition-nfl-game/
+
+**Play a special San Francisco 49ers version of Connections: Sports Edition**\
+`We've made a 49ers-themed edition of the game to test your knowledge of the team's players, coaches and history.`\
+https://nytimes.com/athletic/6606357/2025/09/06/49ers-connections-sports-edition-nfl-game/
+
+**Play a special Seattle Seahawks version of Connections: Sports Edition**\
+`We've made a Seahawks-themed edition of the game to test your knowledge of the team's players, coaches and history.`\
+https://nytimes.com/athletic/6606389/2025/09/06/seahawks-connections-sports-edition-nfl-game/
+
+**Play a special Tampa Bay Buccaneers version of Connections: Sports Edition**\
+`We've made a Buccaneers-themed edition of the game to test your knowledge of the team's players, coaches and history.`\
+https://nytimes.com/athletic/6606397/2025/09/06/buccaneers-connections-sports-edition-nfl-game/
+
 **Alex Formenton to rejoin HC Ambri-Piotta while awaiting possible NHL reinstatement**\
 `Formenton agreed to a deal through the international break in December, including an option for an extension.`\
 https://nytimes.com/athletic/6606140/2025/09/06/alex-formenton-rejoins-ambri-piotta/
@@ -17,24 +37,4 @@ https://nytimes.com/2025/09/06/us/powerball-lottery-past-winners-advice.html
 **Play a special Pittsburgh Steelers version of Connections: Sports Edition**\
 `We've made a Steelers-themed edition of the game to test your knowledge of the team's players, coaches and history.`\
 https://nytimes.com/athletic/6606257/2025/09/06/steelers-connections-sports-edition-nfl-game/
-
-**Play a special Philadelphia Eagles version of Connections: Sports Edition**\
-`We've made an Eagles-themed edition of the game to test your knowledge of the team's players, coaches and history.`\
-https://nytimes.com/athletic/6606223/2025/09/06/eagles-connections-sports-edition-nfl-game/
-
-**Play a special New York Jets version of Connections: Sports Edition**\
-`We've made a Jets-themed edition of the game to test your knowledge of the team's players, coaches and history.`\
-https://nytimes.com/athletic/6606217/2025/09/06/jets-connections-sports-edition-nfl-game/
-
-**How to watch Nationals at Cubs: Time, TV, streaming for September 7**\
-`Find out how to watch the Washington Nationals play the Chicago Cubs, with time, TV channel, and streaming information.`\
-https://nytimes.com/athletic/6606289/2025/09/06/nationals-vs-cubs-stream-how-to-watch-sept-7/
-
-**Play a special Minnesota Vikings version of Connections: Sports Edition**\
-`We've made a Vikings-themed edition of the game to test your knowledge of the team's players, coaches and history.`\
-https://nytimes.com/athletic/6606189/2025/09/06/vikings-connections-sports-edition-nfl-game/
-
-**Play a special New England Patriots version of Connections: Sports Edition**\
-`We've made a Patriots-themed edition of the game to test your knowledge of the team's players, coaches and history.`\
-https://nytimes.com/athletic/6606195/2025/09/06/patriots-connections-sports-edition-nfl-game/
 
