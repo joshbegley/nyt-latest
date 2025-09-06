@@ -1,3 +1,11 @@
+**How to watch Athletics at Angels: Time, TV, streaming for September 6**\
+`Find out how to watch the Athletics play the Los Angeles Angels, with time, TV channel, and streaming information.`\
+https://nytimes.com/athletic/6604424/2025/09/06/athletics-vs-angels-stream-how-to-watch-sept-6/
+
+**How to watch Red Sox at Diamondbacks: Time, TV, streaming for September 6**\
+`Find out how to watch the Boston Red Sox play the Arizona Diamondbacks, with time, TV channel, and streaming information.`\
+https://nytimes.com/athletic/6604413/2025/09/06/red-sox-vs-diamondbacks-stream-how-to-watch-sept-6/
+
 **A Mayor in Disrepute Saved by an Ambassadorship. The Year Was 1950.**\
 `Eric Adams would not be the first to leave Gracie Mansion for an embassy. William O’Dwyer did it decades ago.`\
 https://nytimes.com/2025/09/06/nyregion/odwyer-ambassador-truman-mayor.html
