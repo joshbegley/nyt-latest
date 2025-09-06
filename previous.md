@@ -1,40 +1,40 @@
-**Gasly commits to long-term contract extension with Alpine**\
-`The new contract will see the 29-year-old stick with the Enstone-based team until the end of the 2028 Formula One season`\
-https://nytimes.com/athletic/6604733/2025/09/06/f1-news-gasly-contract-extension-alpine/
+**A Miserable Moment for U.K.’s Starmer: An Ally Resigns and Farage Gloats**\
+`The resignation on Friday of Angela Rayner, Britain’s deputy prime minister, was the latest setback for Prime Minister Keir Starmer as he battles the rise of the right-wing populist Nigel Farage.`\
+https://nytimes.com/2025/09/06/world/europe/uk-starmer-farage.html
 
-**How to watch Athletics at Angels: Time, TV, streaming for September 6**\
-`Find out how to watch the Athletics play the Los Angeles Angels, with time, TV channel, and streaming information.`\
-https://nytimes.com/athletic/6604424/2025/09/06/athletics-vs-angels-stream-how-to-watch-sept-6/
+**My Company Rolled Back Its Hate-Speech Protections. What Can I Do?**\
+`Plus, a passing of the Work Friend baton.`\
+https://nytimes.com/2025/09/06/business/hate-speech-protections-rolled-back.html
 
-**How to watch Red Sox at Diamondbacks: Time, TV, streaming for September 6**\
-`Find out how to watch the Boston Red Sox play the Arizona Diamondbacks, with time, TV channel, and streaming information.`\
-https://nytimes.com/athletic/6604413/2025/09/06/red-sox-vs-diamondbacks-stream-how-to-watch-sept-6/
+**Grand Juries in D.C. Reject Wave of Charges Under Trump’s Crackdown**\
+`The persistent rejections suggest that the grand jurors may have had enough of prosecutors seeking harsh charges in a highly politicized environment.`\
+https://nytimes.com/2025/09/06/us/trump-dc-national-guard-grand-juries-crime.html
 
-**A Mayor in Disrepute Saved by an Ambassadorship. The Year Was 1950.**\
-`Eric Adams would not be the first to leave Gracie Mansion for an embassy. William O’Dwyer did it decades ago.`\
-https://nytimes.com/2025/09/06/nyregion/odwyer-ambassador-truman-mayor.html
+**What’s Inside the Envelope That U.S. Open Winners Get? It’s Not a Check.**\
+`Both singles champions will win $5 million. But the envelope they receive during the trophy presentation is a symbolic gesture.`\
+https://nytimes.com/2025/09/06/business/us-open-prize-money-checks.html
 
-**‘They Keep Us Rolling’: Wheelchair Tennis at the U.S. Open Has a Pit Crew**\
-`A trio of technicians must rush to the aid of players whose wheelchairs break during the tournament. They have just 15 minutes.`\
-https://nytimes.com/2025/09/06/nyregion/us-open-wheelchair.html
+**The Best Movies and TV Shows Coming to Netflix in September**\
+`A new series from the creator of “Peaky Blinders” and another starring Jude Law and Jason Bateman are among the highlights this month.`\
+https://nytimes.com/2025/09/06/arts/television/netflix-new-september.html
 
-**How a Peloton Yoga Instructor Spends a Day at the Studio**\
-`Aditi Shah’s day stretches from a 5:30 a.m. meditation to an after-dinner walk, with business meetings in between.`\
-https://nytimes.com/2025/09/06/nyregion/aditi-shah-peloton-yoga.html
+**Settlement Talks Stall Between Harvard and the Trump Administration**\
+`One major reason is said to be an emerging divide within the administration over whether the current framework is too favorable to Harvard.`\
+https://nytimes.com/2025/09/06/us/politics/harvard-trump-negotiations-stall.html
 
-**14 Unforgettable Looks at the Venice Film Festival**\
-`Gilded Age gowns, cable-knit sweaters, fun socks and more.`\
-https://nytimes.com/2025/09/06/style/venice-film-festival-red-carpet-2025-best-dressed.html
+**Many Cities Say Yes to Federal Police Help, but No to ‘Occupation’**\
+`Some mayors and police chiefs said they would welcome more traditional law enforcement cooperation with federal agents, but see the National Guard as a step too far.`\
+https://nytimes.com/2025/09/06/us/federal-law-enforcement-national-guard-policing.html
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2025/09/06/crosswords/spelling-bee-forum.html
+**Get to Know the Ratfish and the Forehead Teeth It Uses During Sex**\
+`Scientists studied how the sea creatures, also known as chimaeras or ghost sharks, ended up with one of evolution’s most bizarre appendages.`\
+https://nytimes.com/2025/09/06/science/ratfish-chimaera-ghost-shark-teeth-sex.html
 
-**Chelsea's fine-tuning gives them every chance of dominating the WSL once again**\
-`Last season's domestic treble-winners have few weak spots but they look to have plugged those gaps nonetheless`\
-https://nytimes.com/athletic/6603351/2025/09/06/chelsea-dominance-alyssa-thompson-manchester-city/
+**Airlines Want a Piece of Every Purchase You Make**\
+`The biggest U.S. airlines make billions of dollars from their loyalty programs and branded credit cards, which some analysts believe are now essential to the businesses.`\
+https://nytimes.com/2025/09/06/business/frequent-flier-loyalty-programs-airlines-credit-cards.html
 
-**How to watch Padres at Rockies: Time, TV, streaming for September 6**\
-`Find out how to watch the San Diego Padres play the Colorado Rockies, with time, TV channel, and streaming information.`\
-https://nytimes.com/athletic/6604221/2025/09/06/padres-vs-rockies-stream-how-to-watch-sept-6/
+**At George Mason University, Trump Has Found an Unbending Adversary**\
+`Gregory Washington, George Mason’s first Black president, runs a university that prizes diversity. That has made him a target of the Trump administration.`\
+https://nytimes.com/2025/09/06/us/george-mason-university-gregory-washington-trump-attack.html
 
