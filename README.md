@@ -1,3 +1,7 @@
+**Syracuse coach Fran Brown makes team run sprints after OT win over UConn**\
+`Syracuse, which won 10 games last year, lost its opener to Tennessee, 45-26, and had to rally from 11 down in the fourth to beat UConn.`\
+https://nytimes.com/athletic/6606426/2025/09/06/syracuse-uconn-sprints-coach-fran-brown/
+
 **With ‘Christy,’ Can Sydney Sweeney Rebrand as a Serious Actress?**\
 `The biopic about a pioneering female boxer has sparked Oscar chatter. But voters must forget a distracting year of cultural flash points.`\
 https://nytimes.com/2025/09/06/movies/with-christy-can-sydney-sweeney-rebrand-as-a-serious-actress.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6606413/2025/09/06/titans-connections-sports-editio
 **Play a special San Francisco 49ers version of Connections: Sports Edition**\
 `We've made a 49ers-themed edition of the game to test your knowledge of the team's players, coaches and history.`\
 https://nytimes.com/athletic/6606357/2025/09/06/49ers-connections-sports-edition-nfl-game/
-
-**Play a special Seattle Seahawks version of Connections: Sports Edition**\
-`We've made a Seahawks-themed edition of the game to test your knowledge of the team's players, coaches and history.`\
-https://nytimes.com/athletic/6606389/2025/09/06/seahawks-connections-sports-edition-nfl-game/
 
