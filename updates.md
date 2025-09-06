@@ -1,3 +1,11 @@
+**Phillies fan chases down, takes ball from kid after confronting dad**\
+`Later in the game, the Miami Marlins gifted the young boy a goody bag and Bader met with the child and his family.`\
+https://nytimes.com/athletic/6605488/2025/09/06/phillies-marlins-fan-home-run-ball-harrison-bader/
+
+**Davey Johnson, Who Managed the Mets to a Memorable Title, Dies at 82**\
+`Before his triumph in the 1986 World Series, he had a long playing career and established himself as one of baseball’s brainier and more self-assured characters.`\
+https://nytimes.com/2025/09/06/obituaries/davey-johnson-dead.html
+
 **Max Verstappen sets fastest lap in F1 history to claim Italian GP pole**\
 `Max Verstappen set the fastest lap in F1 history to claim pole position for the 2025 Italian Grand Prix`\
 https://nytimes.com/athletic/6605531/2025/09/06/italian-gp-qualifying-results-max-verstappen/

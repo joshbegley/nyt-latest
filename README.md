@@ -1,3 +1,11 @@
+**Bernie Sanders Stumps for Mamdani as Part of Fighting Oligarchy Tour**\
+`Mr. Sanders will host the Democratic front-runner for mayor of New York City at a town hall in Brooklyn on Saturday night. The two marched in a Labor Day parade that morning in Manhattan.`\
+https://nytimes.com/2025/09/06/nyregion/bernie-sanders-zohran-mamdani.html
+
+**Lightning Strikes California With Unusual Frequency This Summer**\
+`Weather patterns channeling moisture into the state have led to an abundance of lightning strikes that have ignited hundreds of wildfires.`\
+https://nytimes.com/2025/09/06/weather/california-lightning-weather.html
+
 **Phillies fan chases down, takes ball from kid after confronting dad**\
 `Later in the game, the Miami Marlins gifted the young boy a goody bag and Bader met with the child and his family.`\
 https://nytimes.com/athletic/6605488/2025/09/06/phillies-marlins-fan-home-run-ball-harrison-bader/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6605541/2025/09/06/davey-johnson-dies/
 **Live chat: Preview college football Week 2 with Ralph Russo**\
 `After a thrilling start to the 2025 college football season, what does Week 2 have in store?`\
 https://nytimes.com/athletic/6601347/2025/09/06/college-football-pregame-live-chat-week-2/
-
-**Russini: What I’m Hearing on Micah Parsons' other suitors, Bill Belichick's feuds and more**\
-`The latest on why Jaxson Dart’s time could arrive even sooner than you think and Micah Parsons' potential options other than Green Bay.`\
-https://nytimes.com/athletic/6602536/2025/09/06/nfl-rumors-news-week-1-insider-scoops-russini/
-
-**Norway’s Navy Gets a Big Boost With U.K. Ship Deal**\
-`A plan to buy warships shows how Europe is bolstering defenses amid worries about Russian aggression and President Trump’s isolationist policies, analysts say.`\
-https://nytimes.com/2025/09/06/world/europe/noway-uk-ship-deal.html
 
