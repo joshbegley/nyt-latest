@@ -1,3 +1,19 @@
+**Cubs' Ian Happ explains how to last the season “without driving yourself completely mad”**\
+`Chicago's outfield situation is blurry, especially after Pete Crow-Armstrong left Saturday's game after fouling a ball off his right knee.`\
+https://nytimes.com/athletic/6606572/2025/09/06/cubs-outfield-ian-happ-pete-crow-armstrong-injury/
+
+**How to watch Blue Jays at Yankees: Time, TV, streaming for September 7**\
+`Find out how to watch the Toronto Blue Jays play the New York Yankees, with time, TV channel, and streaming information.`\
+https://nytimes.com/athletic/6606653/2025/09/06/blue-jays-vs-yankees-stream-how-to-watch-sept-7/
+
+**How to watch Phillies at Marlins: Time, TV, streaming for September 7**\
+`Find out how to watch the Philadelphia Phillies play the Miami Marlins, with time, TV channel, and streaming information.`\
+https://nytimes.com/athletic/6606643/2025/09/06/phillies-vs-marlins-stream-how-to-watch-sept-7/
+
+**The art of the hardest speech in sports, as told by the U.S. Open women's final**\
+`Sabalenka and Anisimova met in the U.S. Open final. Earlier this year, they gave losing speeches that showed how difficult the art can be.`\
+https://nytimes.com/athletic/6602278/2025/09/06/us-open-anisimova-sabalenka-grand-slam-tennis-speeches/
+
 **The Name Is the Game**\
 `To solve Derrick Niederman’s latest Sunday puzzle, it’s not what you know …`\
 https://nytimes.com/2025/09/06/crosswords/daily-puzzle-2025-09-07.html
@@ -21,20 +37,4 @@ https://nytimes.com/2025/09/06/arts/father-mother-sister-brother-winner-venice-f
 **Justice Breyer Defends Judge Accused of Defying Supreme Court Order**\
 `The justice’s comments reflected tensions within the judiciary, as trial judges struggle to interpret the Supreme Court’s often cryptic emergency orders.`\
 https://nytimes.com/2025/09/06/us/politics/justice-breyer-boston-judge.html
-
-**Lauri Markkanen's Finland stuns Nikola Jokić's Serbia in historic Eurobasket upset**\
-`Jokić's Eurobasket will end early thanks to Markkanen and Finland pulling off one of the biggest upsets in Eurobasket history.`\
-https://nytimes.com/athletic/6606477/2025/09/06/serbia-finland-score-eurobasket-jokic-markkanen/
-
-**Air Canada Flight Attendants Overwhelmingly Reject Proposed Contract**\
-`The vote is not expected to restart the walkout that snarled travel in Canada last month.`\
-https://nytimes.com/2025/09/06/world/canada/air-canada-union-strike-contract.html
-
-**Trump Sends Mixed Messages With His Newly Rebranded Department of War**\
-`President Trump’s renaming of the Defense Department comes amid his overt campaign for a Nobel Peace Prize.`\
-https://nytimes.com/2025/09/06/us/politics/trump-department-of-war.html
-
-**Baylor overcomes 14-point deficit late to down SMU in 2OT: Key takeaways**\
-`SMU, a Playoff team a year ago, missed a field goal in the second overtime before Baylor's game winner.`\
-https://nytimes.com/athletic/6606487/2025/09/06/baylor-smu-score-result-takeaways/
 
