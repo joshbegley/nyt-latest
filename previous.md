@@ -1,3 +1,7 @@
+**Trump Says U.S. Military Has ‘Never Fought to Win’ Since World War II**\
+`As he signed an order recognizing the Defense Department as the “Department of War,” President Trump said that the country “could have won every war, but we really chose to be very politically correct.”`\
+https://nytimes.com/2025/09/05/us/politics/trump-military-wars.html
+
 **How to watch Guardians at Rays: Time, TV, streaming for September 6**\
 `Find out how to watch the Cleveland Guardians play the Tampa Bay Rays, with time, TV channel, and streaming information.`\
 https://nytimes.com/athletic/6603803/2025/09/05/guardians-vs-rays-stream-how-to-watch-sept-6-3/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6603561/2025/09/05/mariners-vs-braves-stream-how-to
 **Chicago Sky can’t handle the truth — Angel Reese suspension exposes deeper franchise issues**\
 `Angel Reese apologized for her remarks, but the Sky's response suggests image control matters more than internal growth.`\
 https://nytimes.com/athletic/6603407/2025/09/05/chicago-sky-angel-reese-truth/
-
-**Kyle Tucker remains sidelined, Pete Crow-Armstrong returns as the Cubs build toward the playoffs**\
-`The Cubs aim to have their star outfielders at full strength in time to serve as key pieces during an October run.`\
-https://nytimes.com/athletic/6603057/2025/09/05/kyle-tucker-pete-crow-armstrong-cubs-playoffs/
 

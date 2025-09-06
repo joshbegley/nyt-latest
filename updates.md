@@ -1,3 +1,7 @@
+**Trump Says U.S. Military Has ‘Never Fought to Win’ Since World War II**\
+`As he signed an order recognizing the Defense Department as the “Department of War,” President Trump said that the country “could have won every war, but we really chose to be very politically correct.”`\
+https://nytimes.com/2025/09/05/us/politics/trump-military-wars.html
+
 **How to watch Guardians at Rays: Time, TV, streaming for September 6**\
 `Find out how to watch the Cleveland Guardians play the Tampa Bay Rays, with time, TV channel, and streaming information.`\
 https://nytimes.com/athletic/6603803/2025/09/05/guardians-vs-rays-stream-how-to-watch-sept-6-3/
