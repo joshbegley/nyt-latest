@@ -1,3 +1,19 @@
+**Yankees get defensive after Aaron Judge fails first test in return to right field**\
+`Aaron Boone didn't want to discuss Judge's short throw to Jazz Chisholm Jr.: "We're handling it how we handle it, OK?"`\
+https://nytimes.com/athletic/6603956/2025/09/06/yankees-aaron-judge-right-field-throw/
+
+**How Everton made their sparkling new Hill Dickinson stadium feel like home**\
+`A series of clever little design touches behind the scenes have helped the club's supporters settle into new surroundings this summer`\
+https://nytimes.com/athletic/6580886/2025/09/06/everton-hill-dickinson-populous-home/
+
+**Liga F's 'VAR-lite' system and how it works: Two challenges per team, manager cards but long delays**\
+`The Spanish women's top-flight has introduced video refereeing this season - with a twist`\
+https://nytimes.com/athletic/6597749/2025/09/06/liga-f-var-challenges-system-explained/
+
+**No man born in 1976 played for England - and what else birth years tell us about football**\
+`Michael Cox looks at how England's football fortunes have been tied to fluctuations in talent generation down the years `\
+https://nytimes.com/athletic/6589889/2025/09/06/england-1976-birth-year-football/
+
 **Djed Spence's England call-up is hugely deserved and a testament to his resilience**\
 `This time last year Spence was left out of Tottenham's Europa League squad - his form since has transformed perceptions of the defender`\
 https://nytimes.com/athletic/6597266/2025/09/06/djed-spence-england/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6601568/2025/09/06/manchester-united-women-transfer
 **Charrington is the Lewis family confidant who will be overseeing a completely restructured Spurs**\
 `Tottenham have been run in a way that set them apart from their Premier League rivals. Not anymore`\
 https://nytimes.com/athletic/6600022/2025/09/06/peter-charrington-tottenham-hotspur-who/
-
-**Fantasy hockey dynasty rankings: Scott Wheeler’s top 100 keepers for 2025-26**\
-`Scott Wheeler checks in with his annual dynasty rankings, offering up his top 100 NHL players among the 25-and-under crowd.`\
-https://nytimes.com/athletic/6597569/2025/09/06/fantasy-hockey-dynasty-rankings-scott-wheelers-top-100-keepers-for-2025-26/
-
-**When It’s Too Hot to Deliver**\
-`Delivery riders are already some of the most vulnerable workers of booming gig economies. During successive heat waves this summer in Italy, it got complicated.`\
-https://nytimes.com/2025/09/06/world/europe/italy-food-delivery-drivers-heat-rules.html
-
-**Inside Iran After the 12-Day War**\
-`Following a 12-day war with Israel in July, which resulted in the deaths of over 1,000 civilians and many of Iran’s top nuclear scientists and officials, a New York Times team was granted access to Tehran.`\
-https://nytimes.com/video/world/middleeast/100000010381500/behind-the-reporting-iran-reporter-israel-war.html
-
-**A Japanese Island Preserves an Ancient and Ghostly Theater Form**\
-`Noh was once the entertainment of medieval warriors. Today, remote Sado Islanders embrace one of the world’s oldest surviving types of drama.`\
-https://nytimes.com/2025/09/06/world/asia/sado-island-japan-noh-theater.html
 

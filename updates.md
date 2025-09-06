@@ -1,3 +1,19 @@
+**Yankees get defensive after Aaron Judge fails first test in return to right field**\
+`Aaron Boone didn't want to discuss Judge's short throw to Jazz Chisholm Jr.: "We're handling it how we handle it, OK?"`\
+https://nytimes.com/athletic/6603956/2025/09/06/yankees-aaron-judge-right-field-throw/
+
+**How Everton made their sparkling new Hill Dickinson stadium feel like home**\
+`A series of clever little design touches behind the scenes have helped the club's supporters settle into new surroundings this summer`\
+https://nytimes.com/athletic/6580886/2025/09/06/everton-hill-dickinson-populous-home/
+
+**Liga F's 'VAR-lite' system and how it works: Two challenges per team, manager cards but long delays**\
+`The Spanish women's top-flight has introduced video refereeing this season - with a twist`\
+https://nytimes.com/athletic/6597749/2025/09/06/liga-f-var-challenges-system-explained/
+
+**No man born in 1976 played for England - and what else birth years tell us about football**\
+`Michael Cox looks at how England's football fortunes have been tied to fluctuations in talent generation down the years `\
+https://nytimes.com/athletic/6589889/2025/09/06/england-1976-birth-year-football/
+
 **Djed Spence's England call-up is hugely deserved and a testament to his resilience**\
 `This time last year Spence was left out of Tottenham's Europa League squad - his form since has transformed perceptions of the defender`\
 https://nytimes.com/athletic/6597266/2025/09/06/djed-spence-england/
