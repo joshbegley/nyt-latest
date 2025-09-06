@@ -1,3 +1,7 @@
+**Rafael Devers keeps the power flowing as Giants win their 11th in 12 games**\
+`The Giants' recent home run surge is conjuring up memories of Johnny Mize and the 1947 season.`\
+https://nytimes.com/athletic/6604125/2025/09/06/giants-cardinals-rafael-devers-home-runs/
+
 **Phillies Q&A: Matt Gelb on the playoffs, offseason, Nick Castellanos and more**\
 `Phillies writer Matt Gelb answered a wide variety of questions from subscribers during a live Q&A on Friday, Sept. 5. `\
 https://nytimes.com/athletic/6598326/2025/09/06/live-phillies-qa-with-matt-gelb-on-friday/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6603422/2025/09/06/cal-ripken-record-anniversary-tr
 **Chiefs' emotions boiled over in season-opening loss. Here's what they said about it**\
 `The Chiefs' Drue Tranquill and Chris Jones got into a heated exchange caught by cameras. Here's what they said about it in Brazil.`\
 https://nytimes.com/athletic/6602314/2025/09/06/chiefs-chargers-emotions-chris-jones-drue-tranquill/
-
-**A Canadian Whisky Brand May Move Bottling to the U.S. A Union Blames Trump.**\
-`Diageo plans to close an Ontario factory, eliminating 200 union jobs, to take its Crown Royal bottling closer to American customers.`\
-https://nytimes.com/2025/09/06/world/canada/a-canadian-whisky-brand-may-move-bottling-to-the-us-a-union-blames-trump.html
 

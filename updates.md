@@ -1,3 +1,7 @@
+**Rafael Devers keeps the power flowing as Giants win their 11th in 12 games**\
+`The Giants' recent home run surge is conjuring up memories of Johnny Mize and the 1947 season.`\
+https://nytimes.com/athletic/6604125/2025/09/06/giants-cardinals-rafael-devers-home-runs/
+
 **Phillies Q&A: Matt Gelb on the playoffs, offseason, Nick Castellanos and more**\
 `Phillies writer Matt Gelb answered a wide variety of questions from subscribers during a live Q&A on Friday, Sept. 5. `\
 https://nytimes.com/athletic/6598326/2025/09/06/live-phillies-qa-with-matt-gelb-on-friday/
