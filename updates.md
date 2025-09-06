@@ -1,4 +1,8 @@
 **Russini: What I’m Hearing on Micah Parsons' other suitors, Bill Belichick's feuds and more**\
+`The latest on why Jaxson Dart’s time could arrive even sooner than you think and Micah Parsons' potential options other than Green Bay.`\
+https://nytimes.com/athletic/6602536/2025/09/06/nfl-rumors-news-week-1-insider-scoops-russini/
+
+**Russini: What I’m Hearing on Micah Parsons' other suitors, Bill Belichick's feuds and more**\
 `The latest intel on why Jaxson Dart’s time could be coming sooner than you think and Micah Parsons' potential options other than Green Bay.`\
 https://nytimes.com/athletic/6602536/2025/09/06/nfl-rumors-news-week-1-insider-scoops-russini/
 
