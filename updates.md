@@ -1,3 +1,11 @@
+**‘Father Mother Sister Brother’ Takes Top Prize at Venice Film Festival**\
+`The film, directed by Jim Jarmusch, details three stories of three families. “The Voice of Hind Rajab,” about a Palestinian girl in a car under fire by the Israeli military, won second place.`\
+https://nytimes.com/2025/09/06/arts/father-mother-sister-brother-winner-venice-film-festival.html
+
+**With ‘Christy,’ Can Sydney Sweeney Rebrand as a Serious Actress?**\
+`The biopic about a pioneering female boxer has sparked Oscar chatter. But voters must forget a distracting year of cultural flash points.`\
+https://nytimes.com/2025/09/06/movies/sydney-sweeney-christy-tiff.html
+
 **Justice Breyer Defends Judge Accused of Defying Supreme Court Order**\
 `The justice’s comments reflected tensions within the judiciary, as trial judges struggle to interpret the Supreme Court’s often cryptic emergency orders.`\
 https://nytimes.com/2025/09/06/us/politics/justice-breyer-boston-judge.html
