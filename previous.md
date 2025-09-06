@@ -1,3 +1,11 @@
+**Dodgers, despite Ohtani's pitching efforts, endure fourth straight loss and exit bruised**\
+`The Dodgers have now lost six of their last seven games, including four in a row against teams currently in last place.`\
+https://nytimes.com/athletic/6603997/2025/09/06/dodgers-shohei-ohtani-orioles/
+
+**Ken Dryden, legendary Montreal Canadiens goalie, dies at age 78**\
+`Dryden won six Stanley Cup championships and the Vezina Trophy five times.`\
+https://nytimes.com/athletic/6604081/2025/09/06/ken-dryden-obit/
+
 **Rebel run: How the Great North Run became the biggest of them all**\
 `The most popular half-marathon in the world, the brainchild of Olympian Sir Brendan Foster, is preparing for its 44th staging`\
 https://nytimes.com/athletic/6601551/2025/09/06/great-north-run-foster/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6600880/2025/09/06/paqueta-west-ham-data-fa-misuse/
 **Premier League window roundtable: More strikes? Who 'won' the window? Who 'lost' it?**\
 `The transfer window closed on Monday evening with the Premier League spending over £3billion`\
 https://nytimes.com/athletic/6600782/2025/09/06/premier-league-summer-transfer-window-analysis/
-
-**With ‘Ghost Bat’ Drone, Australia Gears Up for New Arms Race**\
-`A new class of aircraft developed with Boeing, it will be the first military plane designed and manufactured in the country in half a century.`\
-https://nytimes.com/2025/09/06/world/australia/australia-ghost-bat-drone.html
-
-**Man United's summer: Inside Park-Clinton trade, staff exits, depth worries and 'most pressured job in the country'**\
-`As the WSL returns, this is the story of Manchester United's summer, who they signed, who they didn't and how ready they are for the season`\
-https://nytimes.com/athletic/6601568/2025/09/06/manchester-united-women-transfers-skinner/
 

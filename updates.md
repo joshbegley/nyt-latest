@@ -1,3 +1,11 @@
+**Dodgers, despite Ohtani's pitching efforts, endure fourth straight loss and exit bruised**\
+`The Dodgers have now lost six of their last seven games, including four in a row against teams currently in last place.`\
+https://nytimes.com/athletic/6603997/2025/09/06/dodgers-shohei-ohtani-orioles/
+
+**Ken Dryden, legendary Montreal Canadiens goalie, dies at age 78**\
+`Dryden won six Stanley Cup championships and the Vezina Trophy five times.`\
+https://nytimes.com/athletic/6604081/2025/09/06/ken-dryden-obit/
+
 **Rebel run: How the Great North Run became the biggest of them all**\
 `The most popular half-marathon in the world, the brainchild of Olympian Sir Brendan Foster, is preparing for its 44th staging`\
 https://nytimes.com/athletic/6601551/2025/09/06/great-north-run-foster/
