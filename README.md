@@ -10,7 +10,7 @@ https://nytimes.com/2025/09/06/nyregion/hikers-mushrooms-catskills-new-york.html
 `In the 1960s, he and his fellow singer Howard Kaylan embodied the feel-good sound of the Turtles. The two later found new fame as Flo & Eddie.`\
 https://nytimes.com/2025/09/06/arts/music/mark-volman-dead.html
 
-**Cubs' Ian Happ explains how to last the season “without driving yourself completely mad”**\
+**Cubs' Ian Happ explains how to last the season 'without driving yourself completely mad'**\
 `Chicago's outfield situation is blurry, especially after Pete Crow-Armstrong left Saturday's game after fouling a ball off his right knee.`\
 https://nytimes.com/athletic/6606572/2025/09/06/cubs-outfield-ian-happ-pete-crow-armstrong-injury/
 
