@@ -1,3 +1,15 @@
+**How to watch Padres at Rockies: Time, TV, streaming for September 6**\
+`Find out how to watch the San Diego Padres play the Colorado Rockies, with time, TV channel, and streaming information.`\
+https://nytimes.com/athletic/6604221/2025/09/06/padres-vs-rockies-stream-how-to-watch-sept-6/
+
+**How to watch Astros at Rangers: Time, TV, streaming for September 6**\
+`Find out how to watch the Houston Astros play the Texas Rangers, with time, TV channel, and streaming information.`\
+https://nytimes.com/athletic/6604213/2025/09/06/astros-vs-rangers-stream-how-to-watch-sept-6/
+
+**How to watch Giants at Cardinals: Time, TV, streaming for September 6**\
+`Find out how to watch the San Francisco Giants play the St. Louis Cardinals, with time, TV channel, and streaming information.`\
+https://nytimes.com/athletic/6604200/2025/09/06/giants-vs-cardinals-stream-how-to-watch-sept-6/
+
 **Large Shark Kills Surfer Near Sydney, Police Say**\
 `The authorities in Australia closed beaches in the northern Sydney suburbs after the attack.`\
 https://nytimes.com/2025/09/06/world/australia/sydney-australia-shark-attack.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6603956/2025/09/06/yankees-aaron-judge-right-field-
 **How Everton made their sparkling new Hill Dickinson stadium feel like home**\
 `A series of clever little design touches behind the scenes have helped the club's supporters settle into new surroundings this summer`\
 https://nytimes.com/athletic/6580886/2025/09/06/everton-hill-dickinson-populous-home/
-
-**Liga F's 'VAR-lite' system and how it works: Two challenges per team, manager cards but long delays**\
-`The Spanish women's top-flight has introduced video refereeing this season - with a twist`\
-https://nytimes.com/athletic/6597749/2025/09/06/liga-f-var-challenges-system-explained/
-
-**No man born in 1976 played for England - and what else birth years tell us about football**\
-`Michael Cox looks at how England's football fortunes have been tied to fluctuations in talent generation down the years `\
-https://nytimes.com/athletic/6589889/2025/09/06/england-1976-birth-year-football/
-
-**Djed Spence's England call-up is hugely deserved and a testament to his resilience**\
-`This time last year Spence was left out of Tottenham's Europa League squad - his form since has transformed perceptions of the defender`\
-https://nytimes.com/athletic/6597266/2025/09/06/djed-spence-england/
 
