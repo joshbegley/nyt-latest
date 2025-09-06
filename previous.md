@@ -2,7 +2,7 @@
 `To solve Derrick Niederman’s latest Sunday puzzle, it’s not what you know …`\
 https://nytimes.com/2025/09/06/crosswords/daily-puzzle-2025-09-07.html
 
-**Game, Set, Match: Aryna Sabalenka beats Amanda Anisimova to retain U.S. Open title**\
+**Game, set, match: Aryna Sabalenka beats Amanda Anisimova to retain U.S. Open title**\
 `Sabalenka won her fourth major title by beating Anisimova in straight sets.`\
 https://nytimes.com/athletic/6606440/2025/09/06/sabalenka-anisimova-us-open-final-result-analysis/
 
