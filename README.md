@@ -1,4 +1,4 @@
-**Xavier Worthy injures shoulder, leaves after Chiefs' first drive vs. Chargers**\
+**Chiefs' Xavier Worthy ruled out after injuring shoulder on first drive vs. Chargers**\
 `Worthy collided with tight end Travis Kelce while trying to get open on the Chiefs’ first drive.`\
 https://nytimes.com/athletic/6603556/2025/09/05/xavier-worthy-injury-hurt-shoulder-chiefs-chargers/
 
