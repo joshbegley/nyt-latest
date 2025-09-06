@@ -1,3 +1,11 @@
+**Roldan goes from vacation to USMNT after pocketing Messi in Leagues Cup**\
+`The Seattle midfielder had fallen off the national team picture before this week's dramatic return.`\
+https://nytimes.com/athletic/6603999/2025/09/06/cristian-roldan-usmnt-pochettino-messi/
+
+**When It Comes to Spotting Fake Receipts, It’s A.I. vs. A.I.**\
+`Software companies that audit expense reports are adding a new arsenal of capabilities to try to detect receipts that have been created using A.I. chatbots.`\
+https://nytimes.com/2025/09/06/business/dealbook/ai-receipts-expense-reports.html
+
 **Mbappe on tying Henry’s France goal-scoring tally: ‘I want to surpass him’**\
 `Henry scored 51 goals in 123 games for his country, while Mbappe’s 51 goals came in 33 fewer games. `\
 https://nytimes.com/athletic/6605053/2025/09/06/france-mbappe-henry-goal-record-tally/
