@@ -1,3 +1,7 @@
+**Chiefs' Xavier Worthy ruled out after injuring shoulder on first drive vs. Chargers**\
+`Worthy collided with tight end Travis Kelce while trying to get open on the Chiefs’ first drive.`\
+https://nytimes.com/athletic/6603556/2025/09/05/xavier-worthy-injury-hurt-shoulder-chiefs-chargers/
+
 **Trump Says U.S. Military Has ‘Never Fought to Win’ Since World War II**\
 `As he signed an order recognizing the Defense Department as the “Department of War,” President Trump said that the country “could have won every war, but we really chose to be very politically correct.”`\
 https://nytimes.com/2025/09/05/us/politics/trump-military-wars.html

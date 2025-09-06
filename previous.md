@@ -1,3 +1,7 @@
+**Chiefs' Xavier Worthy ruled out after injuring shoulder on first drive vs. Chargers**\
+`Worthy collided with tight end Travis Kelce while trying to get open on the Chiefs’ first drive.`\
+https://nytimes.com/athletic/6603556/2025/09/05/xavier-worthy-injury-hurt-shoulder-chiefs-chargers/
+
 **Trump Says U.S. Military Has ‘Never Fought to Win’ Since World War II**\
 `As he signed an order recognizing the Defense Department as the “Department of War,” President Trump said that the country “could have won every war, but we really chose to be very politically correct.”`\
 https://nytimes.com/2025/09/05/us/politics/trump-military-wars.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6603563/2025/09/05/dodgers-vs-orioles-stream-how-to
 **How to watch Mariners at Braves: Time, TV, streaming for September 6**\
 `Find out how to watch the Seattle Mariners play the Atlanta Braves, with time, TV channel, and streaming information.`\
 https://nytimes.com/athletic/6603561/2025/09/05/mariners-vs-braves-stream-how-to-watch-sept-6/
-
-**Chicago Sky can’t handle the truth — Angel Reese suspension exposes deeper franchise issues**\
-`Angel Reese apologized for her remarks, but the Sky's response suggests image control matters more than internal growth.`\
-https://nytimes.com/athletic/6603407/2025/09/05/chicago-sky-angel-reese-truth/
 
