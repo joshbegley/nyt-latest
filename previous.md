@@ -1,3 +1,7 @@
+**Play a special Washington Commanders version of Connections: Sports Edition**\
+`We've made a Commanders-themed edition of the game to test your knowledge of the team's players, coaches and history.`\
+https://nytimes.com/athletic/6606427/2025/09/06/commanders-connections-sports-edition-nfl-game/
+
 **PSG's Dembele out for six weeks with "severe" injury, Doue out for four weeks**\
 `Dembele and Doue registered a combined 51 goals and 32 assists for the French champions last season.`\
 https://nytimes.com/athletic/6605530/2025/09/06/paris-saint-germain-injury-update-ousmane-dembele-desire-doue/
@@ -19,7 +23,7 @@ https://nytimes.com/athletic/6606389/2025/09/06/seahawks-connections-sports-edit
 https://nytimes.com/athletic/6606397/2025/09/06/buccaneers-connections-sports-edition-nfl-game/
 
 **Alex Formenton to rejoin HC Ambri-Piotta while awaiting possible NHL reinstatement**\
-`Formenton agreed to a deal through the international break in December, including an option for an extension.`\
+`Formenton agreed to a deal with the Swiss team through the international break in December, including an option for an extension.`\
 https://nytimes.com/athletic/6606140/2025/09/06/alex-formenton-rejoins-ambri-piotta/
 
 **Arch Manning tallies 5 TDs in Texas romp after Ohio State flop**\
@@ -33,8 +37,4 @@ https://nytimes.com/video/world/europe/100000010382886/london-pro-palestine-prot
 **Lottery Winners Share Hard Lessons Ahead of $1.8 Billion Powerball Drawing**\
 `Past jackpot winners recall fortunes found, mistakes made and advice for those holding a lucky ticket.`\
 https://nytimes.com/2025/09/06/us/powerball-lottery-past-winners-advice.html
-
-**Play a special Pittsburgh Steelers version of Connections: Sports Edition**\
-`We've made a Steelers-themed edition of the game to test your knowledge of the team's players, coaches and history.`\
-https://nytimes.com/athletic/6606257/2025/09/06/steelers-connections-sports-edition-nfl-game/
 

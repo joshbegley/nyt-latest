@@ -1,3 +1,7 @@
+**SEC commish Greg Sankey talks CFP, moving to 9 league games**\
+`If the CFP expands, the conference prefers 16 teams, which seemed to acknowledge reports of the Big Ten considering 24- or 28-team formats.`\
+https://nytimes.com/athletic/6606428/2025/09/06/sec-greg-sankey-cfp-missouri-kansas/
+
 **Play a special Washington Commanders version of Connections: Sports Edition**\
 `We've made a Commanders-themed edition of the game to test your knowledge of the team's players, coaches and history.`\
 https://nytimes.com/athletic/6606427/2025/09/06/commanders-connections-sports-edition-nfl-game/
@@ -30,11 +34,7 @@ https://nytimes.com/athletic/6606140/2025/09/06/alex-formenton-rejoins-ambri-pio
 `Manning passed for four touchdowns in the first half of the 38-7 blowout of San Jose State and added a rushing TD. He had one interception.`\
 https://nytimes.com/athletic/6606095/2025/09/06/arch-manning-texas-san-jose-state/
 
-**At Least 300 Pro-Palestinian Protesters Charged With Terrorism in London**\
+**Hundreds of Pro-Palestinian Protesters Charged With Terrorism in London**\
 `They were demonstrating in support of Palestine Action, an activist group that the British government designated a terrorist organization in July.`\
 https://nytimes.com/video/world/europe/100000010382886/london-pro-palestine-protests-arrests.html
-
-**Lottery Winners Share Hard Lessons Ahead of $1.8 Billion Powerball Drawing**\
-`Past jackpot winners recall fortunes found, mistakes made and advice for those holding a lucky ticket.`\
-https://nytimes.com/2025/09/06/us/powerball-lottery-past-winners-advice.html
 
