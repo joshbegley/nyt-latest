@@ -1,3 +1,7 @@
+**Mark Volman, Singer of ‘Happy Together’ and Other Hits, Dies at 78**\
+`In the 1960s, he and his fellow singer Howard Kaylan embodied the feel-good sound of the Turtles. The two later found new fame as Flo & Eddie.`\
+https://nytimes.com/2025/09/06/arts/music/mark-volman-dead.html
+
 **Cubs' Ian Happ explains how to last the season “without driving yourself completely mad”**\
 `Chicago's outfield situation is blurry, especially after Pete Crow-Armstrong left Saturday's game after fouling a ball off his right knee.`\
 https://nytimes.com/athletic/6606572/2025/09/06/cubs-outfield-ian-happ-pete-crow-armstrong-injury/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/06/us/algonquin-park-ontario-body.html
 **‘Father Mother Sister Brother’ Takes Top Prize at Venice Film Festival**\
 `The film, directed by Jim Jarmusch, details three stories of three families. “The Voice of Hind Rajab,” about a Palestinian girl in a car under fire by the Israeli military, won second place.`\
 https://nytimes.com/2025/09/06/arts/father-mother-sister-brother-winner-venice-film-festival.html
-
-**Justice Breyer Defends Judge Accused of Defying Supreme Court Order**\
-`The justice’s comments reflected tensions within the judiciary, as trial judges struggle to interpret the Supreme Court’s often cryptic emergency orders.`\
-https://nytimes.com/2025/09/06/us/politics/justice-breyer-boston-judge.html
 
