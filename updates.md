@@ -1,3 +1,7 @@
+**Chelsea's fine-tuning gives them every chance of dominating the WSL once again**\
+`Last season's domestic treble-winners have few weak spots but they look to have plugged those gaps nonetheless`\
+https://nytimes.com/athletic/6603351/2025/09/06/chelsea-dominance-alyssa-thompson-manchester-city/
+
 **How to watch Padres at Rockies: Time, TV, streaming for September 6**\
 `Find out how to watch the San Diego Padres play the Colorado Rockies, with time, TV channel, and streaming information.`\
 https://nytimes.com/athletic/6604221/2025/09/06/padres-vs-rockies-stream-how-to-watch-sept-6/

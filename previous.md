@@ -1,3 +1,7 @@
+**Chelsea's fine-tuning gives them every chance of dominating the WSL once again**\
+`Last season's domestic treble-winners have few weak spots but they look to have plugged those gaps nonetheless`\
+https://nytimes.com/athletic/6603351/2025/09/06/chelsea-dominance-alyssa-thompson-manchester-city/
+
 **How to watch Padres at Rockies: Time, TV, streaming for September 6**\
 `Find out how to watch the San Diego Padres play the Colorado Rockies, with time, TV channel, and streaming information.`\
 https://nytimes.com/athletic/6604221/2025/09/06/padres-vs-rockies-stream-how-to-watch-sept-6/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6601551/2025/09/06/great-north-run-foster/
 **Yankees get defensive after Aaron Judge fails first test in return to right field**\
 `Aaron Boone didn't want to discuss Judge's short throw to Jazz Chisholm Jr.: "We're handling it how we handle it, OK?"`\
 https://nytimes.com/athletic/6603956/2025/09/06/yankees-aaron-judge-right-field-throw/
-
-**How Everton made their sparkling new Hill Dickinson stadium feel like home**\
-`A series of clever little design touches behind the scenes have helped the club's supporters settle into new surroundings this summer`\
-https://nytimes.com/athletic/6580886/2025/09/06/everton-hill-dickinson-populous-home/
 
