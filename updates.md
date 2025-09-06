@@ -1,3 +1,23 @@
+**PSG's Dembele out for six weeks with "severe" injury, Doue out for four weeks**\
+`Dembele and Doue registered a combined 51 goals and 32 assists for the French champions last season.`\
+https://nytimes.com/athletic/6605530/2025/09/06/paris-saint-germain-injury-update-ousmane-dembele-desire-doue/
+
+**Play a special Tennessee Titans version of Connections: Sports Edition**\
+`We've made a Titans-themed edition of the game to test your knowledge of the team's players, coaches and history.`\
+https://nytimes.com/athletic/6606413/2025/09/06/titans-connections-sports-edition-nfl-game/
+
+**Play a special San Francisco 49ers version of Connections: Sports Edition**\
+`We've made a 49ers-themed edition of the game to test your knowledge of the team's players, coaches and history.`\
+https://nytimes.com/athletic/6606357/2025/09/06/49ers-connections-sports-edition-nfl-game/
+
+**Play a special Seattle Seahawks version of Connections: Sports Edition**\
+`We've made a Seahawks-themed edition of the game to test your knowledge of the team's players, coaches and history.`\
+https://nytimes.com/athletic/6606389/2025/09/06/seahawks-connections-sports-edition-nfl-game/
+
+**Play a special Tampa Bay Buccaneers version of Connections: Sports Edition**\
+`We've made a Buccaneers-themed edition of the game to test your knowledge of the team's players, coaches and history.`\
+https://nytimes.com/athletic/6606397/2025/09/06/buccaneers-connections-sports-edition-nfl-game/
+
 **Alex Formenton to rejoin HC Ambri-Piotta while awaiting possible NHL reinstatement**\
 `Formenton agreed to a deal through the international break in December, including an option for an extension.`\
 https://nytimes.com/athletic/6606140/2025/09/06/alex-formenton-rejoins-ambri-piotta/
