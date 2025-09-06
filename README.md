@@ -1,3 +1,19 @@
+**Corrections: Sept. 6, 2025**\
+`Corrections that appeared in print on Saturday, Sept. 6, 2025.`\
+https://nytimes.com/2025/09/05/pageoneplus/corrections-sept-6-2025.html
+
+**Quote of the Day: French Winemaker Sent to Prison for the Ultimate Faux Pas: Foisting Off Fake Fizz**\
+`Quotation of the Day for Saturday, September 6, 2025.`\
+https://nytimes.com/2025/09/05/pageoneplus/quote-of-the-day-french-winemaker-sent-to-prison-for-the-ultimate-faux-pas-foisting-off-fake-fizz.html
+
+**Arrival of pal Ha-Seong Kim brings out the best in Braves' Jurickson Profar**\
+`"He's a really, really good baseball player," Profar said of Kim. "Hopefully, he stays here so we can win a lot of games together."`\
+https://nytimes.com/athletic/6603952/2025/09/05/braves-mariners-ha-seong-kim-arrival-jurickson-profar/
+
+**Chargers beat Chiefs as Herbert delivers, Worthy leaves with injury: Key takeaways**\
+`The Chargers opened the 2025 NFL season with a 27-21 win over the Chiefs in São Paulo.`\
+https://nytimes.com/athletic/6603990/2025/09/05/chargers-chiefs-score-results-takeaways/
+
 **Jannik Sinner reaches U.S. Open final against Carlos Alcaraz with win over Félix Auger-Aliassime**\
 `Sinner will meet Alcaraz for the third consecutive major final, a record in the tennis Open Era.`\
 https://nytimes.com/athletic/6601705/2025/09/05/jannik-sinner-us-open-aliassime-final-alcaraz/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6603894/2025/09/05/angels-prospect-rio-foster-criti
 **Energy Secretary Attacks Offshore Wind and Dismisses Climate Change**\
 `Chris Wright, who travels to Europe next week to promote American gas, called climate change “not incredibly important.”`\
 https://nytimes.com/2025/09/05/climate/wright-energy-offshore-wind-turbines.html
-
-**Chiefs' Xavier Worthy ruled out after injuring shoulder on first drive vs. Chargers**\
-`Worthy collided with tight end Travis Kelce while trying to get open on the Chiefs’ first drive.`\
-https://nytimes.com/athletic/6603556/2025/09/05/xavier-worthy-injury-hurt-shoulder-chiefs-chargers/
-
-**Trump Says U.S. Military Has ‘Never Fought to Win’ Since World War II**\
-`As he signed an order recognizing the Defense Department as the “Department of War,” President Trump said that the country “could have won every war, but we really chose to be very politically correct.”`\
-https://nytimes.com/2025/09/05/us/politics/trump-military-wars.html
-
-**How to watch Guardians at Rays: Time, TV, streaming for September 6**\
-`Find out how to watch the Cleveland Guardians play the Tampa Bay Rays, with time, TV channel, and streaming information.`\
-https://nytimes.com/athletic/6603803/2025/09/05/guardians-vs-rays-stream-how-to-watch-sept-6-3/
-
-**How to watch Guardians at Rays: Time, TV, streaming for September 6**\
-`Find out how to watch the Cleveland Guardians play the Tampa Bay Rays, with time, TV channel, and streaming information.`\
-https://nytimes.com/athletic/6603726/2025/09/05/guardians-vs-rays-stream-how-to-watch-sept-6-2/
 
