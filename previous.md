@@ -1,3 +1,7 @@
+**Jannik Sinner reaches U.S. Open final against Carlos Alcaraz with win over Félix Auger-Aliassime**\
+`Sinner will meet Alcaraz for the third consecutive major final, a record in the tennis Open Era.`\
+https://nytimes.com/athletic/6601705/2025/09/05/jannik-sinner-us-open-aliassime-final-alcaraz/
+
 **Why wasn't Chargers DL Teair Tart ejected after hitting Travis Kelce?**\
 `Tart's blow to Kelce's head was ruled to be an open-handed hit — not a punch — and so he was only penalized 15 yards and not ejected. `\
 https://nytimes.com/athletic/6603937/2025/09/05/chargers-chiefs-punch-tart-kelce-penalty/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6603803/2025/09/05/guardians-vs-rays-stream-how-to-
 **How to watch Guardians at Rays: Time, TV, streaming for September 6**\
 `Find out how to watch the Cleveland Guardians play the Tampa Bay Rays, with time, TV channel, and streaming information.`\
 https://nytimes.com/athletic/6603726/2025/09/05/guardians-vs-rays-stream-how-to-watch-sept-6-2/
-
-**How to watch Guardians at Rays: Time, TV, streaming for September 6**\
-`Find out how to watch the Cleveland Guardians play the Tampa Bay Rays, with time, TV channel, and streaming information.`\
-https://nytimes.com/athletic/6603723/2025/09/05/guardians-vs-rays-stream-how-to-watch-sept-6/
 

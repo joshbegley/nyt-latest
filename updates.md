@@ -1,3 +1,7 @@
+**Jannik Sinner reaches U.S. Open final against Carlos Alcaraz with win over Félix Auger-Aliassime**\
+`Sinner will meet Alcaraz for the third consecutive major final, a record in the tennis Open Era.`\
+https://nytimes.com/athletic/6601705/2025/09/05/jannik-sinner-us-open-aliassime-final-alcaraz/
+
 **Why wasn't Chargers DL Teair Tart ejected after hitting Travis Kelce?**\
 `Tart's blow to Kelce's head was ruled to be an open-handed hit — not a punch — and so he was only penalized 15 yards and not ejected. `\
 https://nytimes.com/athletic/6603937/2025/09/05/chargers-chiefs-punch-tart-kelce-penalty/
