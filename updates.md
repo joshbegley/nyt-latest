@@ -1,3 +1,11 @@
+**Immigration Raid on Hyundai-LG Plant in Georgia Rattles South Korea**\
+`The shocked but subdued reaction to the arrest of hundreds of Koreans at the site reflected the delicate position of a government engaged in tense trade talks with the Trump administration.`\
+https://nytimes.com/2025/09/06/world/asia/immigration-raid-hyundai-lg-south-korea-georgia.html
+
+**What the first U.S. Open final to end in a tiebreak meant to Tracy Austin and Martina Navratilova**\
+`A moment in Grand Slam history meant very different things for two Americans at hinge moments in their tennis careers.`\
+https://nytimes.com/athletic/6602206/2025/09/06/us-open-tracy-austin-martina-navratilova-final/
+
 **Brené Brown Doesn’t Want to Be Your Self-Help Guru Anymore**\
 `The author and podcaster wants to apply her old ideas about vulnerability and empathy to the workplace.`\
 https://nytimes.com/2025/09/06/magazine/brene-brown-interview.html
