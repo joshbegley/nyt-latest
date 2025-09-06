@@ -1,3 +1,15 @@
+**How to watch Padres at Rockies: Time, TV, streaming for September 6**\
+`Find out how to watch the San Diego Padres play the Colorado Rockies, with time, TV channel, and streaming information.`\
+https://nytimes.com/athletic/6604221/2025/09/06/padres-vs-rockies-stream-how-to-watch-sept-6/
+
+**How to watch Astros at Rangers: Time, TV, streaming for September 6**\
+`Find out how to watch the Houston Astros play the Texas Rangers, with time, TV channel, and streaming information.`\
+https://nytimes.com/athletic/6604213/2025/09/06/astros-vs-rangers-stream-how-to-watch-sept-6/
+
+**How to watch Giants at Cardinals: Time, TV, streaming for September 6**\
+`Find out how to watch the San Francisco Giants play the St. Louis Cardinals, with time, TV channel, and streaming information.`\
+https://nytimes.com/athletic/6604200/2025/09/06/giants-vs-cardinals-stream-how-to-watch-sept-6/
+
 **Large Shark Kills Surfer Near Sydney, Police Say**\
 `The authorities in Australia closed beaches in the northern Sydney suburbs after the attack.`\
 https://nytimes.com/2025/09/06/world/australia/sydney-australia-shark-attack.html
