@@ -1,3 +1,11 @@
+**Angels prospect Rio Foster in critical condition after car crash**\
+`The 22-year-old outfielder was a passenger in a single-car crash. The driver is being held on three counts of vehicular assault.`\
+https://nytimes.com/athletic/6603894/2025/09/05/angels-prospect-rio-foster-critical-condition-car-crash/
+
+**Energy Secretary Attacks Offshore Wind and Dismisses Climate Change**\
+`Chris Wright, who travels to Europe next week to promote American gas, called climate change “not incredibly important.”`\
+https://nytimes.com/2025/09/05/climate/wright-energy-offshore-wind-turbines.html
+
 **Chiefs' Xavier Worthy ruled out after injuring shoulder on first drive vs. Chargers**\
 `Worthy collided with tight end Travis Kelce while trying to get open on the Chiefs’ first drive.`\
 https://nytimes.com/athletic/6603556/2025/09/05/xavier-worthy-injury-hurt-shoulder-chiefs-chargers/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6603621/2025/09/05/phillies-vs-marlins-stream-how-t
 **How to watch Blue Jays at Yankees: Time, TV, streaming for September 6**\
 `Find out how to watch the Toronto Blue Jays play the New York Yankees, with time, TV channel, and streaming information.`\
 https://nytimes.com/athletic/6603569/2025/09/05/blue-jays-vs-yankees-stream-how-to-watch-sept-6/
-
-**How to watch Dodgers at Orioles: Time, TV, streaming for September 6**\
-`Find out how to watch the Los Angeles Dodgers play the Baltimore Orioles, with time, TV channel, and streaming information.`\
-https://nytimes.com/athletic/6603563/2025/09/05/dodgers-vs-orioles-stream-how-to-watch-sept-6/
-
-**How to watch Mariners at Braves: Time, TV, streaming for September 6**\
-`Find out how to watch the Seattle Mariners play the Atlanta Braves, with time, TV channel, and streaming information.`\
-https://nytimes.com/athletic/6603561/2025/09/05/mariners-vs-braves-stream-how-to-watch-sept-6/
 

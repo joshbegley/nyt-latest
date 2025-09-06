@@ -1,3 +1,11 @@
+**Angels prospect Rio Foster in critical condition after car crash**\
+`The 22-year-old outfielder was a passenger in a single-car crash. The driver is being held on three counts of vehicular assault.`\
+https://nytimes.com/athletic/6603894/2025/09/05/angels-prospect-rio-foster-critical-condition-car-crash/
+
+**Energy Secretary Attacks Offshore Wind and Dismisses Climate Change**\
+`Chris Wright, who travels to Europe next week to promote American gas, called climate change “not incredibly important.”`\
+https://nytimes.com/2025/09/05/climate/wright-energy-offshore-wind-turbines.html
+
 **Chiefs' Xavier Worthy ruled out after injuring shoulder on first drive vs. Chargers**\
 `Worthy collided with tight end Travis Kelce while trying to get open on the Chiefs’ first drive.`\
 https://nytimes.com/athletic/6603556/2025/09/05/xavier-worthy-injury-hurt-shoulder-chiefs-chargers/
