@@ -1,3 +1,19 @@
+**Play a special Jacksonville Jaguars version of Connections: Sports Edition**\
+`We've made a Jaguars-themed edition of the game to test your knowledge of the team's players, coaches and history.`\
+https://nytimes.com/athletic/6606111/2025/09/06/jaguars-connections-sports-edition-nfl-game/
+
+**Play a special Kansas City Chiefs version of Connections: Sports Edition**\
+`We've made a Chiefs-themed edition of the game to test your knowledge of the team's players, coaches and history.`\
+https://nytimes.com/athletic/6606115/2025/09/06/chiefs-connections-sports-edition-nfl-game/
+
+**Play a special Houston Texans version of Connections: Sports Edition**\
+`We've made a Texans-themed edition of the game to test your knowledge of the team's players, coaches and history.`\
+https://nytimes.com/athletic/6606096/2025/09/06/texans-connections-sports-edition-nfl-game/
+
+**Play a special Indianapolis Colts version of Connections: Sports Edition**\
+`We've made a Colts-themed edition of the game to test your knowledge of the team's players, coaches and history.`\
+https://nytimes.com/athletic/6606104/2025/09/06/colts-connections-sports-edition-nfl-game/
+
 **Play a special Denver Broncos version of Connections: Sports Edition**\
 `We've made a Broncos-themed edition of the game to test your knowledge of the team's players, coaches and history.`\
 https://nytimes.com/athletic/6606069/2025/09/06/broncos-connections-sports-edition-nfl-game/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6606019/2025/09/06/panthers-connections-sports-edit
 **Play a special Cleveland Browns version of Connections: Sports Edition**\
 `We've made a Browns-themed edition of the game to test your knowledge of the team's players, coaches and history.`\
 https://nytimes.com/athletic/6606043/2025/09/06/browns-connections-sports-edition-nfl-game/
-
-**Play a special Cincinnati Bengals version of Connections: Sports Edition**\
-`We've made a Bengals-themed edition of the game to test your knowledge of the team's players, coaches and history.`\
-https://nytimes.com/athletic/6606039/2025/09/06/bengals-connections-sports-edition-nfl-game/
-
-**Play a special Chicago Bears version of Connections: Sports Edition**\
-`We've made a Bears-themed edition of the game to test your knowledge of the team's players, coaches and history.`\
-https://nytimes.com/athletic/6606029/2025/09/06/bears-connections-sports-edition-nfl-game/
-
-**Play a special Arizona Cardinals version of Connections: Sports Edition**\
-`We've made a Cardinals-themed edition of the game to test your knowledge of the team's players, coaches and history.`\
-https://nytimes.com/athletic/6605753/2025/09/06/cardinals-connections-sports-edition-nfl-game/
-
-**Play a special Buffalo Bills version of Connections: Sports Edition**\
-`We've made a Bills-themed edition of the game to test your knowledge of the team's players, coaches and history.`\
-https://nytimes.com/athletic/6606001/2025/09/06/bills-connections-sports-edition-nfl-game/
 
