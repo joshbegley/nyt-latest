@@ -1,3 +1,7 @@
+**49ers over/unders: CMC pessimism? More yards, Ricky Pearsall or Deebo Samuel?**\
+`What's the over/under on Mykel Williams' sacks? Which 49ers rookie will get the most snaps in 2025? Which wideout has the most yards?`\
+https://nytimes.com/athletic/6603854/2025/09/06/49ers-christian-mccaffrey-brock-purdy-nfc-west/
+
 **Apples and Pork Chops Are a Perfect Pair**\
 `All this talk about autumn apples conjures Nathalie Dupree’s clutch kitchen theory.`\
 https://nytimes.com/2025/09/06/dining/apples-and-pork-chops-are-a-perfect-pair.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6605072/2025/09/06/vuelta-a-espana-israel-premier-t
 **The Pulse: Did the NFL on YouTube work?**\
 `Welcome to The Pulse, The Athletic's daily sports newsletter.`\
 https://nytimes.com/athletic/6604051/2025/09/06/did-the-nfl-on-youtube-work-we-graded-out-chargers-over-chiefs/
-
-**The Seoul Neighborhood That’s a Destination for Inventive Cocktails**\
-`Plus: voluptuous pendant lamps, kooky-cool bag charms and more from T’s cultural compendium.`\
-https://nytimes.com/2025/09/06/t-magazine/seoul-sindang-neighborhood.html
 
