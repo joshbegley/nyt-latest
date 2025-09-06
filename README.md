@@ -1,6 +1,14 @@
+**Lottery Winners Share Hard Lessons Ahead of $1.8 Billion Powerball Drawing**\
+`Past jackpot winners recall fortunes found, mistakes made and advice for those holding a lucky ticket.`\
+https://nytimes.com/2025/09/06/us/powerball-lottery-past-winners-advice.html
+
 **Play a special Pittsburgh Steelers version of Connections: Sports Edition**\
 `We've made a Steelers-themed edition of the game to test your knowledge of the team's players, coaches and history.`\
 https://nytimes.com/athletic/6606257/2025/09/06/steelers-connections-sports-edition-nfl-game/
+
+**Play a special Philadelphia Eagles version of Connections: Sports Edition**\
+`We've made an Eagles-themed edition of the game to test your knowledge of the team's players, coaches and history.`\
+https://nytimes.com/athletic/6606223/2025/09/06/eagles-connections-sports-edition-nfl-game/
 
 **Play a special New York Jets version of Connections: Sports Edition**\
 `We've made a Jets-themed edition of the game to test your knowledge of the team's players, coaches and history.`\
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6606205/2025/09/06/saints-connections-sports-editio
 **Play a special Los Angeles Rams version of Connections: Sports Edition**\
 `We've made a Rams-themed edition of the game to test your knowledge of the team's players, coaches and history.`\
 https://nytimes.com/athletic/6606160/2025/09/06/rams-connections-sports-edition-nfl-game/
-
-**Play a special Los Angeles Chargers version of Connections: Sports Edition**\
-`We've made a Chargers-themed edition of the game to test your knowledge of the team's players, coaches and history.`\
-https://nytimes.com/athletic/6606146/2025/09/06/chargers-connections-sports-edition-nfl-game/
-
-**Play a special Miami Dolphins version of Connections: Sports Edition**\
-`We've made a Dolphins-themed edition of the game to test your knowledge of the team's players, coaches and history.`\
-https://nytimes.com/athletic/6606173/2025/09/06/dolphins-connections-sports-edition-nfl-game/
 
