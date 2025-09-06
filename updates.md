@@ -1,3 +1,7 @@
+**Israel Targets More Buildings in Gaza City and Warns Residents to Flee**\
+`The Israeli military issued evacuation orders for residents in the high-rise towers and urged Palestinians to move to the south of Gaza, as it intensifies its offensive on the city.`\
+https://nytimes.com/2025/09/06/world/middleeast/israel-gaza-humanitarian.html
+
 **As Lamar Jackson and Josh Allen meet again, 1 lingering question remains**\
 `Is this finally the year Jackson or Allen gets their team over the hump and knocks Patrick Mahomes and the Chiefs off their lofty AFC perch?`\
 https://nytimes.com/athletic/6599572/2025/09/06/ravens-bills-lamar-jackson-josh-allen/
