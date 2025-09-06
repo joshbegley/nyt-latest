@@ -1,3 +1,7 @@
+**Ohio State takeaways: Buckeyes got everything they wanted out of Grambling shutout**\
+`Ohio State demolished Grambling 70-0 on Saturday, giving Julian Sayin a chance to open things up and freshmen a chance to impress.`\
+https://nytimes.com/athletic/6606564/2025/09/06/ohio-state-grambling-football-score-takeaways/
+
 **Oregon pummels Oklahoma State 69-3, handing Mike Gundy worst loss of career**\
 `The only losses in Oklahoma State history that were worse: 67-0 to Oklahoma in 1907 and 75-0 to the Sooners in 1904.`\
 https://nytimes.com/athletic/6606708/2025/09/06/oregon-oklahoma-state-69-3-takeaways-mike-gundy/
