@@ -1,3 +1,7 @@
+**Max Verstappen sets fastest lap in F1 history to claim Italian GP pole**\
+`Max Verstappen set the fastest lap in F1 history to claim pole position for the 2025 Italian Grand Prix`\
+https://nytimes.com/athletic/6605531/2025/09/06/italian-gp-qualifying-results-max-verstappen/
+
 **49ers over/unders: CMC pessimism? More yards, Ricky Pearsall or Deebo Samuel?**\
 `What's the over/under on Mykel Williams' sacks? Which 49ers rookie will get the most snaps in 2025? Which wideout has the most yards?`\
 https://nytimes.com/athletic/6603854/2025/09/06/49ers-christian-mccaffrey-brock-purdy-nfc-west/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/06/world/europe/noway-uk-ship-deal.html
 **Israel-Premier Tech remove name from kit for remainder of Vuelta after protests**\
 `The cycling team has been the target of multiple pro-Palestine protests at the Spanish Grand Tour. `\
 https://nytimes.com/athletic/6605072/2025/09/06/vuelta-a-espana-israel-premier-tech-kit-protests/
-
-**The Pulse: Did the NFL on YouTube work?**\
-`Welcome to The Pulse, The Athletic's daily sports newsletter.`\
-https://nytimes.com/athletic/6604051/2025/09/06/did-the-nfl-on-youtube-work-we-graded-out-chargers-over-chiefs/
 

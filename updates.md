@@ -1,3 +1,7 @@
+**Max Verstappen sets fastest lap in F1 history to claim Italian GP pole**\
+`Max Verstappen set the fastest lap in F1 history to claim pole position for the 2025 Italian Grand Prix`\
+https://nytimes.com/athletic/6605531/2025/09/06/italian-gp-qualifying-results-max-verstappen/
+
 **49ers over/unders: CMC pessimism? More yards, Ricky Pearsall or Deebo Samuel?**\
 `What's the over/under on Mykel Williams' sacks? Which 49ers rookie will get the most snaps in 2025? Which wideout has the most yards?`\
 https://nytimes.com/athletic/6603854/2025/09/06/49ers-christian-mccaffrey-brock-purdy-nfc-west/
