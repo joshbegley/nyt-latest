@@ -1,3 +1,11 @@
+**Arch Manning tallies 5 TDs in Texas romp after Ohio State flop**\
+`Manning passed for four touchdowns in the first half of the 38-7 blowout of San Jose State and added a rushing TD. He had one interception.`\
+https://nytimes.com/athletic/6606095/2025/09/06/arch-manning-texas-san-jose-state/
+
+**At Least 300 Pro-Palestinian Protesters Charged With Terrorism in London**\
+`They were demonstrating in support of Palestine Action, an activist group that the British government designated a terrorist organization in July.`\
+https://nytimes.com/video/world/europe/100000010382886/london-pro-palestine-protests-arrests.html
+
 **Lottery Winners Share Hard Lessons Ahead of $1.8 Billion Powerball Drawing**\
 `Past jackpot winners recall fortunes found, mistakes made and advice for those holding a lucky ticket.`\
 https://nytimes.com/2025/09/06/us/powerball-lottery-past-winners-advice.html
