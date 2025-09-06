@@ -1,3 +1,7 @@
+**Althea Gibson's tennis legacy lives at the U.S. Open, under her granite gaze**\
+`75 years ago, Gibson broke the color barrier in tennis. She is immortalized in granite, but her legacy is live at the U.S. Open.`\
+https://nytimes.com/athletic/6596410/2025/09/06/althea-gibson-us-open-tennis-racism/
+
 **A Miserable Moment for U.K.’s Starmer: An Ally Resigns and Farage Gloats**\
 `The resignation on Friday of Angela Rayner, Britain’s deputy prime minister, was the latest setback for Prime Minister Keir Starmer as he battles the rise of the right-wing populist Nigel Farage.`\
 https://nytimes.com/2025/09/06/world/europe/uk-starmer-farage.html

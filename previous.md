@@ -1,3 +1,7 @@
+**Althea Gibson's tennis legacy lives at the U.S. Open, under her granite gaze**\
+`75 years ago, Gibson broke the color barrier in tennis. She is immortalized in granite, but her legacy is live at the U.S. Open.`\
+https://nytimes.com/athletic/6596410/2025/09/06/althea-gibson-us-open-tennis-racism/
+
 **A Miserable Moment for U.K.’s Starmer: An Ally Resigns and Farage Gloats**\
 `The resignation on Friday of Angela Rayner, Britain’s deputy prime minister, was the latest setback for Prime Minister Keir Starmer as he battles the rise of the right-wing populist Nigel Farage.`\
 https://nytimes.com/2025/09/06/world/europe/uk-starmer-farage.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/06/science/ratfish-chimaera-ghost-shark-teeth-sex.ht
 **Airlines Want a Piece of Every Purchase You Make**\
 `The biggest U.S. airlines make billions of dollars from their loyalty programs and branded credit cards, which some analysts believe are now essential to the businesses.`\
 https://nytimes.com/2025/09/06/business/frequent-flier-loyalty-programs-airlines-credit-cards.html
-
-**At George Mason University, Trump Has Found an Unbending Adversary**\
-`Gregory Washington, George Mason’s first Black president, runs a university that prizes diversity. That has made him a target of the Trump administration.`\
-https://nytimes.com/2025/09/06/us/george-mason-university-gregory-washington-trump-attack.html
 
