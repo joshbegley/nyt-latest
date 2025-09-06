@@ -1,3 +1,11 @@
+**Game, Set, Match: Aryna Sabalenka beats Amanda Anisimova to retain U.S. Open title**\
+`Sabalenka won her fourth major title by beating Anisimova in straight sets.`\
+https://nytimes.com/athletic/6606440/2025/09/06/sabalenka-anisimova-us-open-final-result-analysis/
+
+**USTA asks broadcasters to censor reaction to Trump’s attendance at U.S. Open**\
+`Trump will attend the U.S. Open final as a guest of a sponsor, marking his first appearance since 2015.`\
+https://nytimes.com/athletic/6606515/2025/09/06/us-open-2025-donald-trump-broadcast-restrictions-censorship/
+
 **Man Is Identified 52 Years After He Vanished, Bringing ‘Rest’ to His Sisters**\
 `Eric Singer left his Ohio home on his bicycle, never to be seen again. With the help of advances in DNA research, he was finally found.`\
 https://nytimes.com/2025/09/06/us/algonquin-park-ontario-body.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6606487/2025/09/06/baylor-smu-score-result-takeaway
 **Syracuse coach Fran Brown makes team run sprints after OT win over UConn**\
 `Syracuse, which won 10 games last year, lost its opener to Tennessee, 45-26, and had to rally from 11 down in the fourth to beat UConn.`\
 https://nytimes.com/athletic/6606426/2025/09/06/syracuse-uconn-sprints-coach-fran-brown/
-
-**With ‘Christy,’ Can Sydney Sweeney Rebrand as a Serious Actress?**\
-`The biopic about a pioneering female boxer has sparked Oscar chatter. But voters must forget a distracting year of cultural flash points.`\
-https://nytimes.com/2025/09/06/movies/sydney-sweeney-christy-tiff.html
-
-**College Football Playoff 2025 projections: Where the bracket stands with Week 2 underway**\
-`Our College Football Playoff predictions model is back. Check here for regular updates on CFP and national championship odds for 2025.`\
-https://nytimes.com/athletic/6560541/2025/09/06/college-football-playoff-bracket-projections-odds/
 

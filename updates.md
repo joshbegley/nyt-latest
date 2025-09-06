@@ -1,3 +1,7 @@
+**Man Is Identified 52 Years After He Vanished, Bringing ‘Rest’ to His Sisters**\
+`Eric Singer left his Ohio home on his bicycle, never to be seen again. With the help of advances in DNA research, he was finally found.`\
+https://nytimes.com/2025/09/06/us/algonquin-park-ontario-body.html
+
 **‘Father Mother Sister Brother’ Takes Top Prize at Venice Film Festival**\
 `The film, directed by Jim Jarmusch, details three stories of three families. “The Voice of Hind Rajab,” about a Palestinian girl in a car under fire by the Israeli military, won second place.`\
 https://nytimes.com/2025/09/06/arts/father-mother-sister-brother-winner-venice-film-festival.html
