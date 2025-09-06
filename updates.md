@@ -1,3 +1,7 @@
+**Mbappe on tying Henry’s France goal-scoring tally: ‘I want to surpass him’**\
+`Henry scored 51 goals in 123 games for his country, while Mbappe’s 51 goals came in 33 fewer games. `\
+https://nytimes.com/athletic/6605053/2025/09/06/france-mbappe-henry-goal-record-tally/
+
 **Israel Targets More Buildings in Gaza City and Warns Residents to Flee**\
 `The Israeli military issued evacuation orders for residents in the high-rise towers and urged Palestinians to move to the south of Gaza, as it intensifies its offensive on the city.`\
 https://nytimes.com/2025/09/06/world/middleeast/israel-gaza-humanitarian.html
