@@ -1,3 +1,7 @@
+**Gasly commits to long-term contract extension with Alpine**\
+`The new contract will see the 29-year-old stick with the Enstone-based team until the end of the 2028 Formula One season`\
+https://nytimes.com/athletic/6604733/2025/09/06/f1-news-gasly-contract-extension-alpine/
+
 **How to watch Athletics at Angels: Time, TV, streaming for September 6**\
 `Find out how to watch the Athletics play the Los Angeles Angels, with time, TV channel, and streaming information.`\
 https://nytimes.com/athletic/6604424/2025/09/06/athletics-vs-angels-stream-how-to-watch-sept-6/
