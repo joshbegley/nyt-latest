@@ -1,3 +1,11 @@
+**Norway’s Navy Gets a Big Boost With U.K. Ship Deal**\
+`A plan to buy warships shows how Europe is bolstering defenses amid worries about Russian aggression and President Trump’s isolationist policies, analysts say.`\
+https://nytimes.com/2025/09/06/world/europe/noway-uk-ship-deal.html
+
+**Israel-Premier Tech remove name from kit for remainder of Vuelta after protests**\
+`The cycling team has been the target of multiple pro-Palestine protests at the Spanish Grand Tour. `\
+https://nytimes.com/athletic/6605072/2025/09/06/vuelta-a-espana-israel-premier-tech-kit-protests/
+
 **The Pulse: Did the NFL on YouTube work?**\
 `Welcome to The Pulse, The Athletic's daily sports newsletter.`\
 https://nytimes.com/athletic/6604051/2025/09/06/did-the-nfl-on-youtube-work-we-graded-out-chargers-over-chiefs/
