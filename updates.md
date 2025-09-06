@@ -1,3 +1,7 @@
+**Apples and Pork Chops Are a Perfect Pair**\
+`All this talk about autumn apples conjures Nathalie Dupree’s clutch kitchen theory.`\
+https://nytimes.com/2025/09/06/dining/apples-and-pork-chops-are-a-perfect-pair.html
+
 **Davey Johnson, Who Managed the Mets to a Surprising Title, Dies at 82**\
 `Before his triumph in the 1986 World Series, he had a long playing career and established himself as one of baseball’s brainier and more self-assured characters.`\
 https://nytimes.com/2025/09/06/obituaries/davey-johnson-dead.html
