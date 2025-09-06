@@ -1,3 +1,7 @@
+**Large Shark Kills Surfer Near Sydney, Police Say**\
+`The authorities in Australia closed beaches in the northern Sydney suburbs after the attack.`\
+https://nytimes.com/2025/09/06/world/australia/sydney-australia-shark-attack.html
+
 **The New York Times in Print for Saturday, Sep. 6, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/09/06/todays-new-york-times
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6589889/2025/09/06/england-1976-birth-year-football
 **Djed Spence's England call-up is hugely deserved and a testament to his resilience**\
 `This time last year Spence was left out of Tottenham's Europa League squad - his form since has transformed perceptions of the defender`\
 https://nytimes.com/athletic/6597266/2025/09/06/djed-spence-england/
-
-**What the Lucas Paqueta case tells us about the use - and misuse - of data in football**\
-`As the commission pointed out, just because data is used does not mean that reliable, responsible insight is necessarily being delivered`\
-https://nytimes.com/athletic/6600880/2025/09/06/paqueta-west-ham-data-fa-misuse/
 
