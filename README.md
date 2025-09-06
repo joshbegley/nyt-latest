@@ -1,3 +1,11 @@
+**Norway’s Navy Gets a Big Boost With U.K. Ship Deal**\
+`A plan to buy warships shows how Europe is bolstering defenses amid worries about Russian aggression and President Trump’s isolationist policies, analysts say.`\
+https://nytimes.com/2025/09/06/world/europe/noway-uk-ship-deal.html
+
+**Israel-Premier Tech remove name from kit for remainder of Vuelta after protests**\
+`The cycling team has been the target of multiple pro-Palestine protests at the Spanish Grand Tour. `\
+https://nytimes.com/athletic/6605072/2025/09/06/vuelta-a-espana-israel-premier-tech-kit-protests/
+
 **The Pulse: Did the NFL on YouTube work?**\
 `Welcome to The Pulse, The Athletic's daily sports newsletter.`\
 https://nytimes.com/athletic/6604051/2025/09/06/did-the-nfl-on-youtube-work-we-graded-out-chargers-over-chiefs/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6599572/2025/09/06/ravens-bills-lamar-jackson-josh-
 **Is England’s Women’s Super League missing its American moment?**\
 `For the second year in a row WSL's U.S. broadcast partner was unclear even 24 hours before the opening game.`\
 https://nytimes.com/athletic/6602235/2025/09/06/is-englands-womens-super-league-missing-its-american-moment-with-broadcast-confusion/
-
-**Mailbag: Are Notre Dame's coordinators to blame for the Miami game?**\
-`Irish fans have questions about play calling, Jeremiyah Love's usage, the receiving corps and the defense after a tough Week 1 loss.`\
-https://nytimes.com/athletic/6601887/2025/09/06/notre-dame-chris-ash-mike-denbrock/
-
-**‘Did not want to be a burden': Carey Price's Montreal chapter closes**\
-`Price did not want to be a burden to the Canadiens, the irony being he bore the burden of their success for his entire NHL career. `\
-https://nytimes.com/athletic/6604048/2025/09/06/canadiens-carey-price-era-trade-sharks/
 

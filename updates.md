@@ -1,3 +1,7 @@
+**The Pulse: Did the NFL on YouTube work?**\
+`Welcome to The Pulse, The Athletic's daily sports newsletter.`\
+https://nytimes.com/athletic/6604051/2025/09/06/did-the-nfl-on-youtube-work-we-graded-out-chargers-over-chiefs/
+
 **The Seoul Neighborhood That’s a Destination for Inventive Cocktails**\
 `Plus: voluptuous pendant lamps, kooky-cool bag charms and more from T’s cultural compendium.`\
 https://nytimes.com/2025/09/06/t-magazine/seoul-sindang-neighborhood.html
