@@ -1,3 +1,19 @@
+**Play a special Minnesota Vikings version of Connections: Sports Edition**\
+`We've made a Vikings-themed edition of the game to test your knowledge of the team's players, coaches and history.`\
+https://nytimes.com/athletic/6606189/2025/09/06/vikings-connections-sports-edition-nfl-game/
+
+**Play a special New England Patriots version of Connections: Sports Edition**\
+`We've made a Patriots-themed edition of the game to test your knowledge of the team's players, coaches and history.`\
+https://nytimes.com/athletic/6606195/2025/09/06/patriots-connections-sports-edition-nfl-game/
+
+**Play a special New York Giants version of Connections: Sports Edition**\
+`We've made a Giants-themed edition of the game to test your knowledge of the team's players, coaches and history.`\
+https://nytimes.com/athletic/6606210/2025/09/06/giants-connections-sports-edition-nfl-game/
+
+**Play a special New Orleans Saints version of Connections: Sports Edition**\
+`We've made a Saints-themed edition of the game to test your knowledge of the team's players, coaches and history.`\
+https://nytimes.com/athletic/6606205/2025/09/06/saints-connections-sports-edition-nfl-game/
+
 **Play a special Los Angeles Rams version of Connections: Sports Edition**\
 `We've made a Rams-themed edition of the game to test your knowledge of the team's players, coaches and history.`\
 https://nytimes.com/athletic/6606160/2025/09/06/rams-connections-sports-edition-nfl-game/

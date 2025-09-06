@@ -1,3 +1,15 @@
+**Play a special Pittsburgh Steelers version of Connections: Sports Edition**\
+`We've made a Steelers-themed edition of the game to test your knowledge of the team's players, coaches and history.`\
+https://nytimes.com/athletic/6606257/2025/09/06/steelers-connections-sports-edition-nfl-game/
+
+**Play a special New York Jets version of Connections: Sports Edition**\
+`We've made a Jets-themed edition of the game to test your knowledge of the team's players, coaches and history.`\
+https://nytimes.com/athletic/6606217/2025/09/06/jets-connections-sports-edition-nfl-game/
+
+**How to watch Nationals at Cubs: Time, TV, streaming for September 7**\
+`Find out how to watch the Washington Nationals play the Chicago Cubs, with time, TV channel, and streaming information.`\
+https://nytimes.com/athletic/6606289/2025/09/06/nationals-vs-cubs-stream-how-to-watch-sept-7/
+
 **Play a special Minnesota Vikings version of Connections: Sports Edition**\
 `We've made a Vikings-themed edition of the game to test your knowledge of the team's players, coaches and history.`\
 https://nytimes.com/athletic/6606189/2025/09/06/vikings-connections-sports-edition-nfl-game/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6606146/2025/09/06/chargers-connections-sports-edit
 **Play a special Miami Dolphins version of Connections: Sports Edition**\
 `We've made a Dolphins-themed edition of the game to test your knowledge of the team's players, coaches and history.`\
 https://nytimes.com/athletic/6606173/2025/09/06/dolphins-connections-sports-edition-nfl-game/
-
-**Play a special Las Vegas Raiders version of Connections: Sports Edition**\
-`We've made a Raiders-themed edition of the game to test your knowledge of the team's players, coaches and history.`\
-https://nytimes.com/athletic/6606132/2025/09/06/raiders-connections-sports-edition-nfl-game/
-
-**1981 Topps Joe Montana rookie card: Our Sports Card of the Week**\
-`Montana's rookie card wasn't released until his third season in the league and is missing something from his helmet`\
-https://nytimes.com/athletic/6606089/2025/09/06/joe-montana-rookie-card/
-
-**Play a special Jacksonville Jaguars version of Connections: Sports Edition**\
-`We've made a Jaguars-themed edition of the game to test your knowledge of the team's players, coaches and history.`\
-https://nytimes.com/athletic/6606111/2025/09/06/jaguars-connections-sports-edition-nfl-game/
 
