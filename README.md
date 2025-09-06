@@ -1,3 +1,19 @@
+**Play a special Denver Broncos version of Connections: Sports Edition**\
+`We've made a Broncos-themed edition of the game to test your knowledge of the team's players, coaches and history.`\
+https://nytimes.com/athletic/6606069/2025/09/06/broncos-connections-sports-edition-nfl-game/
+
+**Play a special Detroit Lions version of Connections: Sports Edition**\
+`We've made a Lions-themed edition of the game to test your knowledge of the team's players, coaches and history.`\
+https://nytimes.com/athletic/6606078/2025/09/06/lions-connections-sports-edition-nfl-game/
+
+**Play a special Dallas Cowboys version of Connections: Sports Edition**\
+`We've made a Cowboys-themed edition of the game to test your knowledge of the team's players, coaches and history.`\
+https://nytimes.com/athletic/6606060/2025/09/06/cowboys-connections-sports-edition-nfl-game/
+
+**Play a special Green Bay Packers version of Connections: Sports Edition**\
+`We've made a Packers-themed edition of the game to test your knowledge of the team's players, coaches and history.`\
+https://nytimes.com/athletic/6606083/2025/09/06/packers-connections-sports-edition-nfl-game/
+
 **Play a special Carolina Panthers version of Connections: Sports Edition**\
 `We've made a Panthers-themed edition of the game to test your knowledge of the team's players, coaches and history.`\
 https://nytimes.com/athletic/6606019/2025/09/06/panthers-connections-sports-edition-nfl-game/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6605753/2025/09/06/cardinals-connections-sports-edi
 **Play a special Buffalo Bills version of Connections: Sports Edition**\
 `We've made a Bills-themed edition of the game to test your knowledge of the team's players, coaches and history.`\
 https://nytimes.com/athletic/6606001/2025/09/06/bills-connections-sports-edition-nfl-game/
-
-**Play a special Atlanta Falcons version of Connections: Sports Edition**\
-`We've made a Falcons-themed edition of the game to test your knowledge of the team's players, coaches and history.`\
-https://nytimes.com/athletic/6605970/2025/09/06/falcons-connections-sports-edition-nfl-game/
-
-**Play a special Baltimore Ravens version of Connections: Sports Edition**\
-`We've made a Ravens-themed edition of the game to test your knowledge of the team's players, coaches and history.`\
-https://nytimes.com/athletic/6605981/2025/09/06/ravens-connections-sports-edition-nfl-game/
-
-**A World War II Dispute Between Ukraine and Poland Is Put to Rest**\
-`The remains of people killed and left in mass graves in the waning days of the war are being given dignified burials.`\
-https://nytimes.com/2025/09/06/world/europe/ukraine-poland-reburial-worldwar.html
-
-**Tom Shipley, Whose Ode to Weed Reached the Top 10, Dies at 84**\
-`With their “One Toke Over the Line,” he and Michael Brewer saw a musical in-joke turn into a timeless cultural phenomenon.`\
-https://nytimes.com/2025/09/06/arts/music/tom-shipley-dead.html
 
