@@ -1,3 +1,7 @@
+**Phillies Q&A: Matt Gelb on the playoffs, offseason, Nick Castellanos and more**\
+`Phillies writer Matt Gelb answered a wide variety of questions from subscribers during a live Q&A on Friday, Sept. 5. `\
+https://nytimes.com/athletic/6598326/2025/09/06/live-phillies-qa-with-matt-gelb-on-friday/
+
 **College football trivia! Get ready for Week 2 with our pregame quiz and essential reads**\
 `What you need to know about Week 2 in college football, from Michigan at Oklahoma to Cy-Hawk, the Border War and beyond.`\
 https://nytimes.com/athletic/6598196/2025/09/06/college-football-quiz-week-2-preview/
