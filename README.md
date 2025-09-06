@@ -1,3 +1,7 @@
+**Hundreds of Pro-Palestinian Protesters Arrested in London on Terrorism Charges**\
+`The demonstrators oppose the British government’s decision to designate Palestine Action as a terrorist organization.`\
+https://nytimes.com/2025/09/06/world/europe/palestine-action-arrests-britain.html
+
 **Smith makes the perfect start as a key player in Arsenal's new era**\
 `The Canada forward scored, stepping up when her team needed her after a tricky start against London City Lionesses`\
 https://nytimes.com/athletic/6605687/2025/09/06/olivia-smith-arsenal-debut-london-city/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6605531/2025/09/06/italian-gp-qualifying-results-ma
 **49ers over/unders: CMC pessimism? More yards, Ricky Pearsall or Deebo Samuel?**\
 `What's the over/under on Mykel Williams' sacks? Which 49ers rookie will get the most snaps in 2025? Which wideout has the most yards?`\
 https://nytimes.com/athletic/6603854/2025/09/06/49ers-christian-mccaffrey-brock-purdy-nfc-west/
-
-**Apples and Pork Chops Are a Perfect Pair**\
-`All this talk about autumn apples conjures Nathalie Dupree’s clutch kitchen theory.`\
-https://nytimes.com/2025/09/06/dining/apples-and-pork-chops-are-a-perfect-pair.html
 
