@@ -1,3 +1,15 @@
+**L.G.B.T.Q. Catholics Have Jubilee With Pope’s Blessing, if Not His Presence**\
+`Leo XIV did not meet with pilgrims but he has indicated that he is supportive of an open, welcoming church.`\
+https://nytimes.com/2025/09/06/world/europe/lgbtq-catholics-jubilee-pope-leo.html
+
+**ICE Is Said to Have Begun Operation in the Boston Area**\
+`The immigration crackdown is expected to last several weeks, sources with knowledge of the operation said.`\
+https://nytimes.com/2025/09/06/us/politics/ice-operation-boston.html
+
+**England 2 Andorra 0: Anderson best of the bunch as Tuchel's team fail to set pulses racing**\
+`England made it four wins from four in their 2026 World Cup qualifying group, but it was far from convincing stuff...`\
+https://nytimes.com/athletic/6606055/2025/09/06/england-2-andorra-0-anderson-tuchel/
+
 **Hundreds of Pro-Palestinian Protesters Arrested in London on Terrorism Charges**\
 `The demonstrators oppose the British government’s decision to designate Palestine Action as a terrorist organization.`\
 https://nytimes.com/2025/09/06/world/europe/palestine-action-arrests-britain.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/09/06/nyregion/bernie-sanders-zohran-mamdani.html
 **Lightning Strikes California With Unusual Frequency This Summer**\
 `Weather patterns channeling moisture into the state have led to an abundance of lightning strikes that have ignited hundreds of wildfires.`\
 https://nytimes.com/2025/09/06/weather/california-lightning-weather.html
-
-**Phillies fan chases down, takes ball from kid after confronting dad**\
-`Later in the game, the Miami Marlins gifted the young boy a goody bag and Bader met with the child and his family.`\
-https://nytimes.com/athletic/6605488/2025/09/06/phillies-marlins-fan-home-run-ball-harrison-bader/
-
-**Max Verstappen sets fastest lap in F1 history to claim Italian GP pole**\
-`Max Verstappen set the fastest lap in F1 history to claim pole position for the 2025 Italian Grand Prix`\
-https://nytimes.com/athletic/6605531/2025/09/06/italian-gp-qualifying-results-max-verstappen/
-
-**49ers over/unders: CMC pessimism? More yards, Ricky Pearsall or Deebo Samuel?**\
-`What's the over/under on Mykel Williams' sacks? Which 49ers rookie will get the most snaps in 2025? Which wideout has the most yards?`\
-https://nytimes.com/athletic/6603854/2025/09/06/49ers-christian-mccaffrey-brock-purdy-nfc-west/
 
