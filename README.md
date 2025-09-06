@@ -1,3 +1,7 @@
+**Ohio State takeaways: Buckeyes got everything they wanted out of Grambling shutout**\
+`Ohio State demolished Grambling 70-0 on Saturday, giving Julian Sayin a chance to open things up and freshmen a chance to impress.`\
+https://nytimes.com/athletic/6606564/2025/09/06/ohio-state-grambling-football-score-takeaways/
+
 **Oregon pummels Oklahoma State 69-3, handing Mike Gundy worst loss of career**\
 `The only losses in Oklahoma State history that were worse: 67-0 to Oklahoma in 1907 and 75-0 to the Sooners in 1904.`\
 https://nytimes.com/athletic/6606708/2025/09/06/oregon-oklahoma-state-69-3-takeaways-mike-gundy/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6606643/2025/09/06/phillies-vs-marlins-stream-how-t
 **The art of the hardest speech in sports, as told by the U.S. Open women's final**\
 `Sabalenka and Anisimova met in the U.S. Open final. Earlier this year, they gave losing speeches that showed how difficult the art can be.`\
 https://nytimes.com/athletic/6602278/2025/09/06/us-open-anisimova-sabalenka-grand-slam-tennis-speeches/
-
-**The Name Is the Game**\
-`To solve Derrick Niederman’s latest Sunday puzzle, it’s not what you know …`\
-https://nytimes.com/2025/09/06/crosswords/daily-puzzle-2025-09-07.html
 

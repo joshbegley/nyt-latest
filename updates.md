@@ -1,3 +1,7 @@
+**Oregon pummels Oklahoma State 69-3, handing Mike Gundy worst loss of career**\
+`The only losses in Oklahoma State history that were worse: 67-0 to Oklahoma in 1907 and 75-0 to the Sooners in 1904.`\
+https://nytimes.com/athletic/6606708/2025/09/06/oregon-oklahoma-state-69-3-takeaways-mike-gundy/
+
 **USMNT 0, South Korea 2: Pochettino's moves no match for Son in limp defeat**\
 `The USMNT did little to relieve the pressure on the players and manager Mauricio Pochettino after another defeat to a World Cup-bound foe`\
 https://nytimes.com/athletic/6605495/2025/09/06/usmnt-south-korea-friendly-score-son-pulisic-pochettino/
