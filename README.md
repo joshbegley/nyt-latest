@@ -1,3 +1,7 @@
+**The Name Is the Game**\
+`To solve Derrick Niederman’s latest Sunday puzzle, it’s not what you know …`\
+https://nytimes.com/2025/09/06/crosswords/daily-puzzle-2025-09-07.html
+
 **Game, Set, Match: Aryna Sabalenka beats Amanda Anisimova to retain U.S. Open title**\
 `Sabalenka won her fourth major title by beating Anisimova in straight sets.`\
 https://nytimes.com/athletic/6606440/2025/09/06/sabalenka-anisimova-us-open-final-result-analysis/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/06/us/politics/trump-department-of-war.html
 **Baylor overcomes 14-point deficit late to down SMU in 2OT: Key takeaways**\
 `SMU, a Playoff team a year ago, missed a field goal in the second overtime before Baylor's game winner.`\
 https://nytimes.com/athletic/6606487/2025/09/06/baylor-smu-score-result-takeaways/
-
-**Syracuse coach Fran Brown makes team run sprints after OT win over UConn**\
-`Syracuse, which won 10 games last year, lost its opener to Tennessee, 45-26, and had to rally from 11 down in the fourth to beat UConn.`\
-https://nytimes.com/athletic/6606426/2025/09/06/syracuse-uconn-sprints-coach-fran-brown/
 
