@@ -1,3 +1,15 @@
+**Cardiologist Draws Outcry With Claim Tying Vaccines to Royals’ Cancer**\
+`The British government condemned the remarks, made without evidence by the cardiologist, Dr. Aseem Malhotra, at an event for the anti-immigration party led by Nigel Farage.`\
+https://nytimes.com/2025/09/06/world/europe/britain-vaccines-royal-family.html
+
+**Hikers on Psychedelic Mushrooms Are Rescued From New York Wilderness**\
+`The hikers, who were in the Catskill Mountains, told officials that they had consumed the hallucinogen and one was experiencing a “debilitating high.” It was the second such episode in recent months.`\
+https://nytimes.com/2025/09/06/nyregion/hikers-mushrooms-catskills-new-york.html
+
+**Cubs' Ian Happ explains how to last the season 'without driving yourself completely mad'**\
+`Chicago's outfield situation is blurry, especially after Pete Crow-Armstrong left Saturday's game after fouling a ball off his right knee.`\
+https://nytimes.com/athletic/6606572/2025/09/06/cubs-outfield-ian-happ-pete-crow-armstrong-injury/
+
 **Mark Volman, Singer of ‘Happy Together’ and Other Hits, Dies at 78**\
 `In the 1960s, he and his fellow singer Howard Kaylan embodied the feel-good sound of the Turtles. The two later found new fame as Flo & Eddie.`\
 https://nytimes.com/2025/09/06/arts/music/mark-volman-dead.html

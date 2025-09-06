@@ -1,8 +1,16 @@
+**Cardiologist Draws Outcry With Claim Tying Vaccines to Royals’ Cancer**\
+`The British government condemned the remarks, made without evidence by the cardiologist, Dr. Aseem Malhotra, at an event for the anti-immigration party led by Nigel Farage.`\
+https://nytimes.com/2025/09/06/world/europe/britain-vaccines-royal-family.html
+
+**Hikers on Psychedelic Mushrooms Are Rescued From New York Wilderness**\
+`The hikers, who were in the Catskill Mountains, told officials that they had consumed the hallucinogen and one was experiencing a “debilitating high.” It was the second such episode in recent months.`\
+https://nytimes.com/2025/09/06/nyregion/hikers-mushrooms-catskills-new-york.html
+
 **Mark Volman, Singer of ‘Happy Together’ and Other Hits, Dies at 78**\
 `In the 1960s, he and his fellow singer Howard Kaylan embodied the feel-good sound of the Turtles. The two later found new fame as Flo & Eddie.`\
 https://nytimes.com/2025/09/06/arts/music/mark-volman-dead.html
 
-**Cubs' Ian Happ explains how to last the season “without driving yourself completely mad”**\
+**Cubs' Ian Happ explains how to last the season 'without driving yourself completely mad'**\
 `Chicago's outfield situation is blurry, especially after Pete Crow-Armstrong left Saturday's game after fouling a ball off his right knee.`\
 https://nytimes.com/athletic/6606572/2025/09/06/cubs-outfield-ian-happ-pete-crow-armstrong-injury/
 
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6606440/2025/09/06/sabalenka-anisimova-us-open-fina
 **USTA asks broadcasters to censor reaction to Trump’s attendance at U.S. Open**\
 `Trump will attend the U.S. Open final as a guest of a sponsor, marking his first appearance since 2015.`\
 https://nytimes.com/athletic/6606515/2025/09/06/us-open-2025-donald-trump-broadcast-restrictions-censorship/
-
-**Man Is Identified 52 Years After He Vanished, Bringing ‘Rest’ to His Sisters**\
-`Eric Singer left his Ohio home on his bicycle, never to be seen again. With the help of advances in DNA research, he was finally found.`\
-https://nytimes.com/2025/09/06/us/algonquin-park-ontario-body.html
-
-**‘Father Mother Sister Brother’ Takes Top Prize at Venice Film Festival**\
-`The film, directed by Jim Jarmusch, details three stories of three families. “The Voice of Hind Rajab,” about a Palestinian girl in a car under fire by the Israeli military, won second place.`\
-https://nytimes.com/2025/09/06/arts/father-mother-sister-brother-winner-venice-film-festival.html
 
