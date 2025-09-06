@@ -1,3 +1,7 @@
+**USMNT 0, South Korea 2: Pochettino's moves no match for Son in limp defeat**\
+`The USMNT did little to relieve the pressure on the players and manager Mauricio Pochettino after another defeat to a World Cup-bound foe`\
+https://nytimes.com/athletic/6605495/2025/09/06/usmnt-south-korea-friendly-score-son-pulisic-pochettino/
+
 **Cardiologist Draws Outcry With Claim Tying Vaccines to Royals’ Cancer**\
 `The British government condemned the remarks, made without evidence by the cardiologist, Dr. Aseem Malhotra, at an event for the anti-immigration party led by Nigel Farage.`\
 https://nytimes.com/2025/09/06/world/europe/britain-vaccines-royal-family.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/06/crosswords/daily-puzzle-2025-09-07.html
 **Game, set, match: Aryna Sabalenka beats Amanda Anisimova to retain U.S. Open title**\
 `Sabalenka won her fourth major title by beating Anisimova in straight sets.`\
 https://nytimes.com/athletic/6606440/2025/09/06/sabalenka-anisimova-us-open-final-result-analysis/
-
-**USTA asks broadcasters to censor reaction to Trump’s attendance at U.S. Open**\
-`Trump will attend the U.S. Open final as a guest of a sponsor, marking his first appearance since 2015.`\
-https://nytimes.com/athletic/6606515/2025/09/06/us-open-2025-donald-trump-broadcast-restrictions-censorship/
 

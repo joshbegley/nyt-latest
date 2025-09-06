@@ -1,3 +1,7 @@
+**USMNT 0, South Korea 2: Pochettino's moves no match for Son in limp defeat**\
+`The USMNT did little to relieve the pressure on the players and manager Mauricio Pochettino after another defeat to a World Cup-bound foe`\
+https://nytimes.com/athletic/6605495/2025/09/06/usmnt-south-korea-friendly-score-son-pulisic-pochettino/
+
 **Cardiologist Draws Outcry With Claim Tying Vaccines to Royals’ Cancer**\
 `The British government condemned the remarks, made without evidence by the cardiologist, Dr. Aseem Malhotra, at an event for the anti-immigration party led by Nigel Farage.`\
 https://nytimes.com/2025/09/06/world/europe/britain-vaccines-royal-family.html
