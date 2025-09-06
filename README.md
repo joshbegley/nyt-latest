@@ -1,40 +1,40 @@
-**Rafael Devers keeps the power flowing as Giants win their 11th in 12 games**\
-`The Giants' recent home run surge is conjuring up memories of Johnny Mize and the 1947 season.`\
-https://nytimes.com/athletic/6604125/2025/09/06/giants-cardinals-rafael-devers-home-runs/
+**As Lamar Jackson and Josh Allen meet again, 1 lingering question remains**\
+`Is this finally the year Jackson or Allen gets their team over the hump and knocks Patrick Mahomes and the Chiefs off their lofty AFC perch?`\
+https://nytimes.com/athletic/6599572/2025/09/06/ravens-bills-lamar-jackson-josh-allen/
 
-**Phillies Q&A: Matt Gelb on the playoffs, offseason, Nick Castellanos and more**\
-`Phillies writer Matt Gelb answered a wide variety of questions from subscribers during a live Q&A on Friday, Sept. 5. `\
-https://nytimes.com/athletic/6598326/2025/09/06/live-phillies-qa-with-matt-gelb-on-friday/
+**Is England’s Women’s Super League missing its American moment?**\
+`For the second year in a row WSL's U.S. broadcast partner was unclear even 24 hours before the opening game.`\
+https://nytimes.com/athletic/6602235/2025/09/06/is-englands-womens-super-league-missing-its-american-moment-with-broadcast-confusion/
 
-**College football trivia! Get ready for Week 2 with our pregame quiz and essential reads**\
-`What you need to know about Week 2 in college football, from Michigan at Oklahoma to Cy-Hawk, the Border War and beyond.`\
-https://nytimes.com/athletic/6598196/2025/09/06/college-football-quiz-week-2-preview/
+**Mailbag: Are Notre Dame's coordinators to blame for the Miami game?**\
+`Irish fans have questions about play calling, Jeremiyah Love's usage, the receiving corps and the defense after a tough Week 1 loss.`\
+https://nytimes.com/athletic/6601887/2025/09/06/notre-dame-chris-ash-mike-denbrock/
 
-**Offer Accepted**\
-`We spend a lot of time thinking of reasons we shouldn’t do things. What if we decided to default to yes?`\
-https://nytimes.com/2025/09/06/briefing/offer-accepted.html
+**Did not want to be a burden': Carey Price's Montreal chapter closes**\
+`Price did not want to be a burden to the Canadiens, the irony being he bore the burden of their success for his entire NHL career. `\
+https://nytimes.com/athletic/6604048/2025/09/06/canadiens-carey-price-era-trade-sharks/
 
-**How to watch U.S. Open women's final: Aryna Sabalenka favored over Amanda Anisimova**\
-`The dominant Sabalenka looks to defend her title in Flushing. Anisimova goes for her first Grand Slam.`\
-https://nytimes.com/athletic/6602305/2025/09/06/us-open-womens-final-sabalenka-anisimova-odds-watch/
+**Reds fall below .500 as playoff window rapidly closes in loss to Mets**\
+`The loss pushed the Reds six games back of the Mets for the National League's third wild card slot with just 21 games remaining. `\
+https://nytimes.com/athletic/6603992/2025/09/06/cincinnati-reds-playoff-wild-card-mets/
 
-**A closer look at Eagles' passing defense shows 'room for improvement'**\
-`The Eagles have a couple extra days to get ready for the Chiefs.`\
-https://nytimes.com/athletic/6602050/2025/09/06/eagles-passing-defense-cowboys/
+**Why Islanders traded Noah Dobson, not rebuilding, Patrick Roy, more: Catching up with Mathieu Darche**\
+`The Islanders GM gives The Athletic an inside view of his vision for the team as he approaches his first season.`\
+https://nytimes.com/athletic/6598709/2025/09/06/mathieu-darche-islanders-noah-dobson/
 
-**Maya Moore's Hall of Fame career is the least important reason she's an all-time great**\
-`To consider Moore is to acknowledge there are human beings who do more with their footprint to make the world a little better.`\
-https://nytimes.com/athletic/6601408/2025/09/06/maya-moore-lynx-wnba-uconn-hall-of-fame/
+**Giorgio Armani Is for Everyone (Even if You Can’t Afford It)**\
+`The designer led a fashion revolution, but did so with civility.`\
+https://nytimes.com/2025/09/06/opinion/giorgio-armani-fashion-quiet-luxury.html
 
-**NFL Week 1 roundtable: Micah Parsons' Packers debut, Steelers-Jets QB switch, Ravens-Bills**\
-`Though Parsons' debut takes center stage, Texans-Rams, Ravens-Bills and Vikings-Bears highlight the rest of Week 1's action.`\
-https://nytimes.com/athletic/6601643/2025/09/06/nfl-week-1-roundtable-micah-parsons-packers-debut-steelers-jets-ravens-bills/
+**Men + Women + Apps = Bad Romance**\
+`The two sexes are looking past each other.`\
+https://nytimes.com/2025/09/06/opinion/men-women-apps-bad-romance.html
 
-**Cal Ripken Jr., the trainer and the record that almost didn't happen**\
-`Richie Bancells had a front-row seat for Ripken's everyday heroics: "I wish every trainer could have one Cal in their lifetime."`\
-https://nytimes.com/athletic/6603422/2025/09/06/cal-ripken-record-anniversary-trainer/
+**How We Became Corrupted by Plastic**\
+`Disposable plastics have profoundly reshaped the way we eat, shop, raise children and understand hygiene and progress.`\
+https://nytimes.com/2025/09/06/opinion/plastic-trash-disposable.html
 
-**Chiefs' emotions boiled over in season-opening loss. Here's what they said about it**\
-`The Chiefs' Drue Tranquill and Chris Jones got into a heated exchange caught by cameras. Here's what they said about it in Brazil.`\
-https://nytimes.com/athletic/6602314/2025/09/06/chiefs-chargers-emotions-chris-jones-drue-tranquill/
+**How to watch the Basketball Hall of Fame's 2025 induction ceremony: Melo, Moore and more**\
+`Saturday's inductees include Carmelo Anthony, Dwight Howard, Maya Moore, Sue Bird, Sylvia Fowles and Billy Donovan.`\
+https://nytimes.com/athletic/6601849/2025/09/06/basketball-hall-of-fame-how-to-watch/
 
