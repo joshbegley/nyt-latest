@@ -1,3 +1,7 @@
+**Lauri Markkanen's Finland stuns Nikola Jokić's Serbia in historic Eurobasket upset**\
+`Jokić's Eurobasket will end early thanks to Markkanen and Finland pulling off one of the biggest upsets in Eurobasket history.`\
+https://nytimes.com/athletic/6606477/2025/09/06/serbia-finland-score-eurobasket-jokic-markkanen/
+
 **Air Canada Flight Attendants Overwhelmingly Reject Proposed Contract**\
 `The vote is not expected to restart the walkout that snarled travel in Canada last month.`\
 https://nytimes.com/2025/09/06/world/canada/air-canada-union-strike-contract.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/06/world/europe/portugal-funicular-crash-preliminary
 **SEC commish Greg Sankey talks CFP, moving to 9 league games**\
 `If the CFP expands, the conference prefers 16 teams, which seemed to acknowledge reports of the Big Ten considering 24- or 28-team formats.`\
 https://nytimes.com/athletic/6606428/2025/09/06/sec-greg-sankey-cfp-missouri-kansas/
-
-**Play a special Washington Commanders version of Connections: Sports Edition**\
-`We've made a Commanders-themed edition of the game to test your knowledge of the team's players, coaches and history.`\
-https://nytimes.com/athletic/6606427/2025/09/06/commanders-connections-sports-edition-nfl-game/
 
