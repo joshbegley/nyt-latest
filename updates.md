@@ -1,3 +1,7 @@
+**Hate How Earbuds Feel? Try These. **\
+`Text by Lauren Dragan`\
+https://nytimes.com/card/2025/09/06/smarter-living/wirecutter/
+
 **Angels prospect Rio Foster in critical condition after car crash**\
 `The 22-year-old outfielder was a passenger in a single-car crash. The driver is being held on three counts of vehicular assault.`\
 https://nytimes.com/athletic/6603894/2025/09/05/angels-prospect-rio-foster-critical-condition-car-crash/

@@ -1,3 +1,7 @@
+**Hate How Earbuds Feel? Try These. **\
+`Text by Lauren Dragan`\
+https://nytimes.com/card/2025/09/06/smarter-living/wirecutter/
+
 **Angels prospect Rio Foster in critical condition after car crash**\
 `The 22-year-old outfielder was a passenger in a single-car crash. The driver is being held on three counts of vehicular assault.`\
 https://nytimes.com/athletic/6603894/2025/09/05/angels-prospect-rio-foster-critical-condition-car-crash/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6603632/2025/09/05/twins-vs-royals-stream-how-to-wa
 **How to watch Phillies at Marlins: Time, TV, streaming for September 6**\
 `Find out how to watch the Philadelphia Phillies play the Miami Marlins, with time, TV channel, and streaming information.`\
 https://nytimes.com/athletic/6603621/2025/09/05/phillies-vs-marlins-stream-how-to-watch-sept-6/
-
-**How to watch Blue Jays at Yankees: Time, TV, streaming for September 6**\
-`Find out how to watch the Toronto Blue Jays play the New York Yankees, with time, TV channel, and streaming information.`\
-https://nytimes.com/athletic/6603569/2025/09/05/blue-jays-vs-yankees-stream-how-to-watch-sept-6/
 
