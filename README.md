@@ -1,3 +1,7 @@
+**Man Is Identified 52 Years After He Vanished, Bringing ‘Rest’ to His Sisters**\
+`Eric Singer left his Ohio home on his bicycle, never to be seen again. With the help of advances in DNA research, he was finally found.`\
+https://nytimes.com/2025/09/06/us/algonquin-park-ontario-body.html
+
 **‘Father Mother Sister Brother’ Takes Top Prize at Venice Film Festival**\
 `The film, directed by Jim Jarmusch, details three stories of three families. “The Voice of Hind Rajab,” about a Palestinian girl in a car under fire by the Israeli military, won second place.`\
 https://nytimes.com/2025/09/06/arts/father-mother-sister-brother-winner-venice-film-festival.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/06/movies/sydney-sweeney-christy-tiff.html
 **College Football Playoff 2025 projections: Where the bracket stands with Week 2 underway**\
 `Our College Football Playoff predictions model is back. Check here for regular updates on CFP and national championship odds for 2025.`\
 https://nytimes.com/athletic/6560541/2025/09/06/college-football-playoff-bracket-projections-odds/
-
-**Tigers' Alex Cobb to undergo hip surgery, admits retirement is 'a big possibility'**\
-`The right-handed starter hasn't pitched for Detroit this season after signing a one-year, $15 million contract in December.`\
-https://nytimes.com/athletic/6606377/2025/09/06/tigers-alex-cobb-hip-surgery/
 
