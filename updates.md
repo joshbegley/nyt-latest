@@ -1,3 +1,15 @@
+**The Name Is the Game**\
+`To solve Derrick Niederman’s latest Sunday puzzle, it’s not what you know …`\
+https://nytimes.com/2025/09/06/crosswords/daily-puzzle-2025-09-07.html
+
+**Game, Set, Match: Aryna Sabalenka beats Amanda Anisimova to retain U.S. Open title**\
+`Sabalenka won her fourth major title by beating Anisimova in straight sets.`\
+https://nytimes.com/athletic/6606440/2025/09/06/sabalenka-anisimova-us-open-final-result-analysis/
+
+**USTA asks broadcasters to censor reaction to Trump’s attendance at U.S. Open**\
+`Trump will attend the U.S. Open final as a guest of a sponsor, marking his first appearance since 2015.`\
+https://nytimes.com/athletic/6606515/2025/09/06/us-open-2025-donald-trump-broadcast-restrictions-censorship/
+
 **Man Is Identified 52 Years After He Vanished, Bringing ‘Rest’ to His Sisters**\
 `Eric Singer left his Ohio home on his bicycle, never to be seen again. With the help of advances in DNA research, he was finally found.`\
 https://nytimes.com/2025/09/06/us/algonquin-park-ontario-body.html
