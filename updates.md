@@ -1,3 +1,7 @@
+**College football trivia! Get ready for Week 2 with our pregame quiz and essential reads**\
+`What you need to know about Week 2 in college football, from Michigan at Oklahoma to Cy-Hawk, the Border War and beyond.`\
+https://nytimes.com/athletic/6598196/2025/09/06/college-football-quiz-week-2-preview/
+
 **Offer Accepted**\
 `We spend a lot of time thinking of reasons we shouldn’t do things. What if we decided to default to yes?`\
 https://nytimes.com/2025/09/06/briefing/offer-accepted.html

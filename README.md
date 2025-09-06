@@ -1,3 +1,7 @@
+**Phillies Q&A: Matt Gelb on the playoffs, offseason, Nick Castellanos and more**\
+`Phillies writer Matt Gelb answered a wide variety of questions from subscribers during a live Q&A on Friday, Sept. 5. `\
+https://nytimes.com/athletic/6598326/2025/09/06/live-phillies-qa-with-matt-gelb-on-friday/
+
 **College football trivia! Get ready for Week 2 with our pregame quiz and essential reads**\
 `What you need to know about Week 2 in college football, from Michigan at Oklahoma to Cy-Hawk, the Border War and beyond.`\
 https://nytimes.com/athletic/6598196/2025/09/06/college-football-quiz-week-2-preview/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6602314/2025/09/06/chiefs-chargers-emotions-chris-j
 **A Canadian Whisky Brand May Move Bottling to the U.S. A Union Blames Trump.**\
 `Diageo plans to close an Ontario factory, eliminating 200 union jobs, to take its Crown Royal bottling closer to American customers.`\
 https://nytimes.com/2025/09/06/world/canada/a-canadian-whisky-brand-may-move-bottling-to-the-us-a-union-blames-trump.html
-
-**Connections Companion No. 819**\
-`Scroll down for hints and conversation about the puzzle for Sunday, Sept. 7, 2025.`\
-https://nytimes.com/2025/09/06/crosswords/connections-companion-819.html
 

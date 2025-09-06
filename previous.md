@@ -1,3 +1,7 @@
+**College football trivia! Get ready for Week 2 with our pregame quiz and essential reads**\
+`What you need to know about Week 2 in college football, from Michigan at Oklahoma to Cy-Hawk, the Border War and beyond.`\
+https://nytimes.com/athletic/6598196/2025/09/06/college-football-quiz-week-2-preview/
+
 **Offer Accepted**\
 `We spend a lot of time thinking of reasons we shouldn’t do things. What if we decided to default to yes?`\
 https://nytimes.com/2025/09/06/briefing/offer-accepted.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/06/world/canada/a-canadian-whisky-brand-may-move-bot
 **Connections Companion No. 819**\
 `Scroll down for hints and conversation about the puzzle for Sunday, Sept. 7, 2025.`\
 https://nytimes.com/2025/09/06/crosswords/connections-companion-819.html
-
-**I’ve Prepped for Future Disasters. Do I Have to Help Those Who Didn’t?**\
-`We can’t be the emergency food bank for everyone, but could we really let others suffer?`\
-https://nytimes.com/2025/09/06/magazine/disaster-prep-sharing-ethics.html
 
