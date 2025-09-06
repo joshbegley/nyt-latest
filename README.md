@@ -1,3 +1,7 @@
+**Justice Breyer Defends Judge Accused of Defying Supreme Court Order**\
+`The justice’s comments reflected tensions within the judiciary, as trial judges struggle to interpret the Supreme Court’s often cryptic emergency orders.`\
+https://nytimes.com/2025/09/06/us/politics/justice-breyer-boston-judge.html
+
 **Lauri Markkanen's Finland stuns Nikola Jokić's Serbia in historic Eurobasket upset**\
 `Jokić's Eurobasket will end early thanks to Markkanen and Finland pulling off one of the biggest upsets in Eurobasket history.`\
 https://nytimes.com/athletic/6606477/2025/09/06/serbia-finland-score-eurobasket-jokic-markkanen/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6606377/2025/09/06/tigers-alex-cobb-hip-surgery/
 **Authorities Point to Cable Disconnecting in First Report on Lisbon Funicular Crash**\
 `Portuguese authorities released a highly anticipated preliminary report into the disaster at the popular tourist site, which killed 16 people this week.`\
 https://nytimes.com/2025/09/06/world/europe/portugal-funicular-crash-preliminary-report-cable.html
-
-**SEC commish Greg Sankey talks CFP, moving to 9 league games**\
-`If the CFP expands, the conference prefers 16 teams, which seemed to acknowledge reports of the Big Ten considering 24- or 28-team formats.`\
-https://nytimes.com/athletic/6606428/2025/09/06/sec-greg-sankey-cfp-missouri-kansas/
 
