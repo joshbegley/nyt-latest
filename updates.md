@@ -1,3 +1,11 @@
+**Bernie Sanders Stumps for Mamdani as Part of Fighting Oligarchy Tour**\
+`Mr. Sanders will host the Democratic front-runner for mayor of New York City at a town hall in Brooklyn on Saturday night. The two marched in a Labor Day parade that morning in Manhattan.`\
+https://nytimes.com/2025/09/06/nyregion/bernie-sanders-zohran-mamdani.html
+
+**Lightning Strikes California With Unusual Frequency This Summer**\
+`Weather patterns channeling moisture into the state have led to an abundance of lightning strikes that have ignited hundreds of wildfires.`\
+https://nytimes.com/2025/09/06/weather/california-lightning-weather.html
+
 **Phillies fan chases down, takes ball from kid after confronting dad**\
 `Later in the game, the Miami Marlins gifted the young boy a goody bag and Bader met with the child and his family.`\
 https://nytimes.com/athletic/6605488/2025/09/06/phillies-marlins-fan-home-run-ball-harrison-bader/

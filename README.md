@@ -1,3 +1,7 @@
+**Man Utd in talks with Trabzonspor for Onana loan**\
+`The 29-year-old is yet to make a Premier League appearance this season. `\
+https://nytimes.com/athletic/6431666/2025/09/06/andre-onana-manchester-united-trabzonspor-loan/
+
 **Bernie Sanders Stumps for Mamdani as Part of Fighting Oligarchy Tour**\
 `Mr. Sanders will host the Democratic front-runner for mayor of New York City at a town hall in Brooklyn on Saturday night. The two marched in a Labor Day parade that morning in Manhattan.`\
 https://nytimes.com/2025/09/06/nyregion/bernie-sanders-zohran-mamdani.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6605496/2025/09/06/brown-quinshon-judkins-sign-rook
 **Davey Johnson, who managed the '86 Mets to a World Series title, dies at 82**\
 `Johnson won 595 games with the Mets, more than any manager in team history.`\
 https://nytimes.com/athletic/6605541/2025/09/06/davey-johnson-dies/
-
-**Live chat: Preview college football Week 2 with Ralph Russo**\
-`After a thrilling start to the 2025 college football season, what does Week 2 have in store?`\
-https://nytimes.com/athletic/6601347/2025/09/06/college-football-pregame-live-chat-week-2/
 
