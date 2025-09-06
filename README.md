@@ -1,3 +1,7 @@
+**The Pulse: Did the NFL on YouTube work?**\
+`Welcome to The Pulse, The Athletic's daily sports newsletter.`\
+https://nytimes.com/athletic/6604051/2025/09/06/did-the-nfl-on-youtube-work-we-graded-out-chargers-over-chiefs/
+
 **The Seoul Neighborhood That’s a Destination for Inventive Cocktails**\
 `Plus: voluptuous pendant lamps, kooky-cool bag charms and more from T’s cultural compendium.`\
 https://nytimes.com/2025/09/06/t-magazine/seoul-sindang-neighborhood.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6601887/2025/09/06/notre-dame-chris-ash-mike-denbro
 **‘Did not want to be a burden': Carey Price's Montreal chapter closes**\
 `Price did not want to be a burden to the Canadiens, the irony being he bore the burden of their success for his entire NHL career. `\
 https://nytimes.com/athletic/6604048/2025/09/06/canadiens-carey-price-era-trade-sharks/
-
-**Reds fall below .500 as playoff window rapidly closes in loss to Mets**\
-`The loss pushed the Reds six games back of the Mets for the National League's third wild card slot with just 21 games remaining. `\
-https://nytimes.com/athletic/6603992/2025/09/06/cincinnati-reds-playoff-wild-card-mets/
 
