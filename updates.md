@@ -1,3 +1,7 @@
+**Brené Brown Doesn’t Want to Be Your Self-Help Guru Anymore**\
+`The author and podcaster wants to apply her old ideas about vulnerability and empathy to the workplace.`\
+https://nytimes.com/2025/09/06/magazine/brene-brown-interview.html
+
 **Althea Gibson's tennis legacy lives at the U.S. Open, under her granite gaze**\
 `75 years ago, Gibson broke the color barrier in tennis. She is immortalized in granite, but her legacy is live at the U.S. Open.`\
 https://nytimes.com/athletic/6596410/2025/09/06/althea-gibson-us-open-tennis-racism/

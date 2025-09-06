@@ -1,3 +1,7 @@
+**Brené Brown Doesn’t Want to Be Your Self-Help Guru Anymore**\
+`The author and podcaster wants to apply her old ideas about vulnerability and empathy to the workplace.`\
+https://nytimes.com/2025/09/06/magazine/brene-brown-interview.html
+
 **Althea Gibson's tennis legacy lives at the U.S. Open, under her granite gaze**\
 `75 years ago, Gibson broke the color barrier in tennis. She is immortalized in granite, but her legacy is live at the U.S. Open.`\
 https://nytimes.com/athletic/6596410/2025/09/06/althea-gibson-us-open-tennis-racism/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/06/us/federal-law-enforcement-national-guard-policin
 **Get to Know the Ratfish and the Forehead Teeth It Uses During Sex**\
 `Scientists studied how the sea creatures, also known as chimaeras or ghost sharks, ended up with one of evolution’s most bizarre appendages.`\
 https://nytimes.com/2025/09/06/science/ratfish-chimaera-ghost-shark-teeth-sex.html
-
-**Airlines Want a Piece of Every Purchase You Make**\
-`The biggest U.S. airlines make billions of dollars from their loyalty programs and branded credit cards, which some analysts believe are now essential to the businesses.`\
-https://nytimes.com/2025/09/06/business/frequent-flier-loyalty-programs-airlines-credit-cards.html
 
