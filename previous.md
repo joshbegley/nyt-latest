@@ -1,3 +1,11 @@
+**Davey Johnson, who managed the '86 Mets to a World Series title, dies at 82**\
+`Johnson won 595 games with the Mets, more than any manager in team history.`\
+https://nytimes.com/athletic/6605541/2025/09/06/davey-johnson-dies/
+
+**Live chat: Preview college football Week 2 with Ralph Russo**\
+`After a thrilling start to the 2025 college football season, what does Week 2 have in store?`\
+https://nytimes.com/athletic/6601347/2025/09/06/college-football-pregame-live-chat-week-2/
+
 **Russini: What I’m Hearing on Micah Parsons' other suitors, Bill Belichick's feuds and more**\
 `The latest on why Jaxson Dart’s time could arrive even sooner than you think and Micah Parsons' potential options other than Green Bay.`\
 https://nytimes.com/athletic/6602536/2025/09/06/nfl-rumors-news-week-1-insider-scoops-russini/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/09/06/business/dealbook/ai-receipts-expense-reports.htm
 **Mbappe on tying Henry’s France goal-scoring tally: ‘I want to surpass him’**\
 `Henry scored 51 goals in 123 games for his country, while Mbappe’s 51 goals came in 33 fewer games. `\
 https://nytimes.com/athletic/6605053/2025/09/06/france-mbappe-henry-goal-record-tally/
-
-**Israel Targets More Buildings in Gaza City and Warns Residents to Flee**\
-`The Israeli military issued evacuation orders for residents in the high-rise towers and urged Palestinians to move to the south of Gaza, as it intensifies its offensive on the city.`\
-https://nytimes.com/2025/09/06/world/middleeast/israel-gaza-humanitarian.html
-
-**As Lamar Jackson and Josh Allen meet again, 1 lingering question remains**\
-`Is this finally the year Jackson or Allen gets their team over the hump and knocks Patrick Mahomes and the Chiefs off their lofty AFC perch?`\
-https://nytimes.com/athletic/6599572/2025/09/06/ravens-bills-lamar-jackson-josh-allen/
 

@@ -1,3 +1,11 @@
+**Davey Johnson, who managed the '86 Mets to a World Series title, dies at 82**\
+`Johnson won 595 games with the Mets, more than any manager in team history.`\
+https://nytimes.com/athletic/6605541/2025/09/06/davey-johnson-dies/
+
+**Live chat: Preview college football Week 2 with Ralph Russo**\
+`After a thrilling start to the 2025 college football season, what does Week 2 have in store?`\
+https://nytimes.com/athletic/6601347/2025/09/06/college-football-pregame-live-chat-week-2/
+
 **Russini: What I’m Hearing on Micah Parsons' other suitors, Bill Belichick's feuds and more**\
 `The latest on why Jaxson Dart’s time could arrive even sooner than you think and Micah Parsons' potential options other than Green Bay.`\
 https://nytimes.com/athletic/6602536/2025/09/06/nfl-rumors-news-week-1-insider-scoops-russini/
