@@ -1,5 +1,9 @@
+**The New York Times in Print for Saturday, Sep. 6, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/09/06/todays-new-york-times
+
 **Dodgers, despite Ohtani's pitching efforts, endure fourth straight loss and exit bruised**\
-`The Dodgers have now lost six of their last seven games, including four in a row against teams currently in last place.`\
+`The Dodgers have lost six of their past seven games, including four in a row against teams currently in last place.`\
 https://nytimes.com/athletic/6603997/2025/09/06/dodgers-shohei-ohtani-orioles/
 
 **Ken Dryden, legendary Montreal Canadiens goalie, dies at age 78**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6597266/2025/09/06/djed-spence-england/
 **What the Lucas Paqueta case tells us about the use - and misuse - of data in football**\
 `As the commission pointed out, just because data is used does not mean that reliable, responsible insight is necessarily being delivered`\
 https://nytimes.com/athletic/6600880/2025/09/06/paqueta-west-ham-data-fa-misuse/
-
-**Premier League window roundtable: More strikes? Who 'won' the window? Who 'lost' it?**\
-`The transfer window closed on Monday evening with the Premier League spending over £3billion`\
-https://nytimes.com/athletic/6600782/2025/09/06/premier-league-summer-transfer-window-analysis/
 
