@@ -1,3 +1,7 @@
+**Browns to sign Quinshon Judkins to four-year, $11.4 million contract: Source**\
+`Judkins was arrested in July on charges that he struck a woman multiple times, but prosecutors decided not to move forward with the case.`\
+https://nytimes.com/athletic/6605496/2025/09/06/brown-quinshon-judkins-sign-rookie-contract/
+
 **Davey Johnson, who managed the '86 Mets to a World Series title, dies at 82**\
 `Johnson won 595 games with the Mets, more than any manager in team history.`\
 https://nytimes.com/athletic/6605541/2025/09/06/davey-johnson-dies/
