@@ -1,3 +1,7 @@
+**1981 Topps Joe Montana rookie card: Our Sports Card of the Week**\
+`Montana's rookie card wasn't released until his third season in the league and is missing something from his helmet`\
+https://nytimes.com/athletic/6606089/2025/09/06/joe-montana-rookie-card/
+
 **Play a special Jacksonville Jaguars version of Connections: Sports Edition**\
 `We've made a Jaguars-themed edition of the game to test your knowledge of the team's players, coaches and history.`\
 https://nytimes.com/athletic/6606111/2025/09/06/jaguars-connections-sports-edition-nfl-game/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6606083/2025/09/06/packers-connections-sports-editi
 **Play a special Carolina Panthers version of Connections: Sports Edition**\
 `We've made a Panthers-themed edition of the game to test your knowledge of the team's players, coaches and history.`\
 https://nytimes.com/athletic/6606019/2025/09/06/panthers-connections-sports-edition-nfl-game/
-
-**Play a special Cleveland Browns version of Connections: Sports Edition**\
-`We've made a Browns-themed edition of the game to test your knowledge of the team's players, coaches and history.`\
-https://nytimes.com/athletic/6606043/2025/09/06/browns-connections-sports-edition-nfl-game/
 
