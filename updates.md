@@ -1,3 +1,7 @@
+**Ollie Bearman on the brink of F1 race ban after Italian GP crash with Carlos Sainz**\
+`Haas driver Ollie Bearman is now in danger of picking up a race ban after an incident in the 2025 Italian GP`\
+https://nytimes.com/athletic/6608275/2025/09/07/ollie-bearman-f1-race-ban-italian-gp/
+
 **SEC vibes rankings: Big wins and high hopes — and then there's Florida**\
 `The SEC could feel good about some of its results Saturday. Then there's Florida.`\
 https://nytimes.com/athletic/6607904/2025/09/07/sec-football-rankings-week-3-florida-oklahoma/
