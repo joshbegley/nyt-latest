@@ -6,7 +6,7 @@ https://nytimes.com/athletic/6607204/2025/09/07/san-francisco-giants-lose-cardin
 `"Hunter Brown is a guy I'll take over anybody," Jeremy Peña says. "I put all my trust in him."`\
 https://nytimes.com/athletic/6607241/2025/09/07/astros-rangers-hunter-brown-outduels-jacob-degrom/
 
-**Stop Funding Trump’s Takeover**\
+**Stop Acting Like This Is Normal**\
 `Democrats aren’t powerless, and they don’t have to enable autocracy.`\
 https://nytimes.com/2025/09/07/opinion/trump-senate-democrats-shutdown.html
 
