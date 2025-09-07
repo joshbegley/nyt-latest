@@ -1,4 +1,4 @@
-**Belichick on banning Pats scouts from UNC: 'I'm not welcome there'**\
+**Bill Belichick on banning Pats scouts from UNC: 'I'm not welcome there'**\
 `It's the latest point of tension between the six-time Super Bowl-champion coach and the team he led for 24 seasons.`\
 https://nytimes.com/athletic/6607117/2025/09/06/bill-belichick-bans-patriots-scouts-unc/
 
