@@ -1,4 +1,8 @@
-**Oil Producers Announce New Increase in Production**\
+**Fantasy football Week 1 inactives**\
+`The rundown on the Week 1 inactives who are relevant to fantasy football and how to respond accordingly. `\
+https://nytimes.com/athletic/6602126/2025/09/07/fantasy-football-week-1-inactives/
+
+**Oil Producers Announce New Increase in Output**\
 `In a show of confidence in the market, the group, led by Saudi Arabia, said it would begin unwinding a further set of agreed cuts.`\
 https://nytimes.com/2025/09/07/business/opec-plus-oil-production-increase.html
 
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/6607878/2025/09/07/jacob-bethell-century-england/
 **The Pulse: Another spitting incent? Check.**\
 `Welcome to The Pulse, The Athletic's daily sports newsletter.`\
 https://nytimes.com/athletic/6607167/2025/09/07/a-spitting-incident-that-could-prove-quite-costly-for-florida/
-
-**USMNT played at home but South Korea fans made it feel like a road game**\
-`Another home game, another passionate crowd full of away fans`\
-https://nytimes.com/athletic/6607281/2025/09/07/usmnt-fans-pochettino-hong-myung-bo-south-korea/
 
