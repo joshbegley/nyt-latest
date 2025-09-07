@@ -1,3 +1,11 @@
+**U.S. Open title cements Aryna Sabalenka's year as one of consistency and taming emotion**\
+`Sabalenka has upended the narrative that her year should be viewed as exposing a tendency to buckle under pressure when it matters most.`\
+https://nytimes.com/athletic/6606758/2025/09/06/us-open-aryna-sabalenka-season/
+
+**Jackson Holliday spoils Yoshinobu Yamamoto's no-hitter in bottom ninth**\
+`Yamamoto, the $325 million man, allowed no hits through 26 outs in the 4-3 loss to the Orioles.`\
+https://nytimes.com/athletic/6606972/2025/09/06/jackson-holliday-spoils-yoshinobu-yamamoto-no-hitter-dodgers-orioles/
+
 **Jackson Holliday spoils Yoshinobu Yamamoto's no-hitter in bottom 9th**\
 `Yamamoto, the $325 million man, allowed no hits through 26 outs in the 4-3 loss to the Orioles.`\
 https://nytimes.com/athletic/6606972/2025/09/06/jackson-holliday-spoils-yoshinobu-yamamoto-no-hitter-dodgers-orioles/
