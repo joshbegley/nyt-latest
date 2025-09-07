@@ -1,3 +1,7 @@
+**Until Saturday: Hot-seat coach's brutal gauntlet**\
+`Until Saturday is The Athletic's free CFB newsletter.`\
+https://nytimes.com/athletic/6607670/2025/09/07/billy-napier-florida-schedule-until-saturday/
+
 **Trump Administration Live Updates: Rebranded War Dept. Sends Mixed Signals**\
 ``\
 https://nytimes.com/live/2025/09/07/us/trump-news
