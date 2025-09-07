@@ -1,3 +1,15 @@
+**Lions, Jameson Williams agree to 3-year extension worth up to $83 million: Reports**\
+`If the Lions were going to get an extension done with Williams, this was the time to do it.`\
+https://nytimes.com/athletic/6607135/2025/09/07/lions-jameson-williams-3-year-extension-83-million/
+
+**How to watch White Sox at Tigers: Time, TV, streaming for September 7**\
+`Find out how to watch the Chicago White Sox play the Detroit Tigers, with time, TV channel, and streaming information.`\
+https://nytimes.com/athletic/6607219/2025/09/07/white-sox-vs-tigers-stream-how-to-watch-sept-7/
+
+**How to watch Athletics at Angels: Time, TV, streaming for September 7**\
+`Find out how to watch the Athletics play the Los Angeles Angels, with time, TV channel, and streaming information.`\
+https://nytimes.com/athletic/6607215/2025/09/07/athletics-vs-angels-stream-how-to-watch-sept-7/
+
 **Gianluigi Donnarumma may not feel like a 'Pep player', but neither did Erling Haaland**\
 `Donnarumma is the Haaland of goalkeepers. His deficiencies are overplayed. His generational talent somehow continues to be underplayed`\
 https://nytimes.com/athletic/6604783/2025/09/07/donnarumma-pep-guardiola-man-city/

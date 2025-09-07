@@ -1,3 +1,15 @@
+**Lions, Jameson Williams agree to 3-year extension worth up to $83 million: Reports**\
+`If the Lions were going to get an extension done with Williams, this was the time to do it.`\
+https://nytimes.com/athletic/6607135/2025/09/07/lions-jameson-williams-3-year-extension-83-million/
+
+**How to watch White Sox at Tigers: Time, TV, streaming for September 7**\
+`Find out how to watch the Chicago White Sox play the Detroit Tigers, with time, TV channel, and streaming information.`\
+https://nytimes.com/athletic/6607219/2025/09/07/white-sox-vs-tigers-stream-how-to-watch-sept-7/
+
+**How to watch Athletics at Angels: Time, TV, streaming for September 7**\
+`Find out how to watch the Athletics play the Los Angeles Angels, with time, TV channel, and streaming information.`\
+https://nytimes.com/athletic/6607215/2025/09/07/athletics-vs-angels-stream-how-to-watch-sept-7/
+
 **Gianluigi Donnarumma may not feel like a 'Pep player', but neither did Erling Haaland**\
 `Donnarumma is the Haaland of goalkeepers. His deficiencies are overplayed. His generational talent somehow continues to be underplayed`\
 https://nytimes.com/athletic/6604783/2025/09/07/donnarumma-pep-guardiola-man-city/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/09/07/pageoneplus/corrections-sept-7-2025.html
 **Why France’s Financial Woes Are Pushing Its Government to the Brink**\
 `The French prime minister has proposed drastic spending cuts and tax increases to shore up the country’s accounts, but his plan could backfire.`\
 https://nytimes.com/2025/09/07/business/france-government-collapse-economy.html
-
-**Homeless and Hungry, Gazans Fear a Repeat of 1948 History**\
-`Israel’s war in Gaza has displaced most of the 2.2 million Palestinian residents from their homes. Many of them fear it will be permanent, a reprise of the Nakba.`\
-https://nytimes.com/2025/09/07/world/middleeast/homeless-and-hungry-gazans-fear-a-repeat-of-1948-history.html
-
-**Trump Tramples Congress’s Power, With Little Challenge From G.O.P.**\
-`On national security, spending and oversight, the president continues to undercut the legislative branch, and Republicans in charge have done little to stop him.`\
-https://nytimes.com/2025/09/07/us/politics/trump-congresss-power.html
-
-**Connections: Sports Edition Coach: Hints for Sept. 7, 2025**\
-`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
-https://nytimes.com/athletic/6606702/2025/09/07/connections-sports-edition-hints-for-sept-7-2025/
 
