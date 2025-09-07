@@ -1,3 +1,11 @@
+**Raiders' defense stifles Patriots as Pete Carroll wins Las Vegas debut: Key takeaways**\
+`Geno Smith threw for 362 yards and a touchdown as Las Vegas won in Foxboro, Mass.`\
+https://nytimes.com/athletic/6608491/2025/09/07/raiders-patriots-score-result-takeaways-nfl-week-1/
+
+**Bolsonaro Supporters Flood Streets Ahead of His Expected Conviction**\
+`Tensions are heating up in Brazil as the nation enters the final week of former President Jair Bolsonaro’s trial on attempted coup charges.`\
+https://nytimes.com/2025/09/07/world/americas/brazil-bolsonaro-trial-protests.html
+
 **Colts rout Dolphins, notching first Week 1 win since 2013: Takeaways**\
 `Colts' Daniel Jones was 22-of-29 passing for 272 yards and one touchdown in a 33-8 season-opening win against the Dolphins.`\
 https://nytimes.com/athletic/6608423/2025/09/07/dolphins-colts-score-result-takeaways-nfl-week-1/

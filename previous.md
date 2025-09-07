@@ -1,3 +1,11 @@
+**Raiders' defense stifles Patriots as Pete Carroll wins Las Vegas debut: Key takeaways**\
+`Geno Smith threw for 362 yards and a touchdown as Las Vegas won in Foxboro, Mass.`\
+https://nytimes.com/athletic/6608491/2025/09/07/raiders-patriots-score-result-takeaways-nfl-week-1/
+
+**Bolsonaro Supporters Flood Streets Ahead of His Expected Conviction**\
+`Tensions are heating up in Brazil as the nation enters the final week of former President Jair Bolsonaro’s trial on attempted coup charges.`\
+https://nytimes.com/2025/09/07/world/americas/brazil-bolsonaro-trial-protests.html
+
 **Colts rout Dolphins, notching first Week 1 win since 2013: Takeaways**\
 `Colts' Daniel Jones was 22-of-29 passing for 272 yards and one touchdown in a 33-8 season-opening win against the Dolphins.`\
 https://nytimes.com/athletic/6608423/2025/09/07/dolphins-colts-score-result-takeaways-nfl-week-1/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/09/07/world/europe/london-tube-strike.html
 **Onana's Manchester United loan exit says as much about the club as it does about the player**\
 `The goalkeeper joined with a big reputation and he was suppposed to help transform the way United played but the fit never felt right`\
 https://nytimes.com/athletic/6608330/2025/09/07/andre-onana-trabzonspor-manchester-united/
-
-**Fan throws green sex toy on field during Browns-Bengals game in Cleveland**\
-`The WNBA dealt with multiple instances of sex toys being thrown onto the court this summer.`\
-https://nytimes.com/athletic/6608443/2025/09/07/nfl-sex-toy-incident-cleveland-browns-cincinnati-bengals/
-
-**Russia Launches Largest-Ever Drone Attack in Ukraine War**\
-`Russia launched hundreds of exploding drones and decoys across Ukraine in the largest air assault so far in the war, killing at least five people and setting a government building in Kyiv ablaze.`\
-https://nytimes.com/video/world/europe/100000010383840/russia-ukraine-strikes-kyiv.html
 
