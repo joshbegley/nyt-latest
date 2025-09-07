@@ -1,3 +1,11 @@
+**Even Sails Have a Fashion. Black Is In.**\
+`Maxis are carrying carbon-fiber sails that outperform every other miracle fabric used before.`\
+https://nytimes.com/2025/09/07/sports/sailing/black-sails-maxi-yacht-rolex-cup.html
+
+**Shohei Ohtani's two home runs help Dodgers snap losing streak to last-place teams**\
+`The Dodgers had dropped seven of their last nine games against teams with losing records and gone 22-30 since July 4 before Sunday's win.`\
+https://nytimes.com/athletic/6608803/2025/09/07/dodgers-shohei-ohtani-orioles-losing-streak/
+
 **USMNT worse than ever in 21st century, per Elo ratings**\
 `COLUMBUS, Ohio — The U.`\
 https://nytimes.com/athletic/6608676/2025/09/07/usmnt-worse-than-ever-in-21st-century-per-elo-ratings/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/09/07/briefing/inside-iran-japan-prime-minister-kyiv-at
 **Bengals capitalize on Browns miscues to secure Week 1 win: Takeaways**\
 `Browns kicker Andre Szmyt missed a go-ahead field goal attempt late in the fourth quarter.`\
 https://nytimes.com/athletic/6608559/2025/09/07/bengals-browns-score-results-takeaways/
-
-**Aaron Rodgers, Steelers top Jets 34-32 in thrilling comeback: Takeaways**\
-`Rodgers finishes 22-of-30 passing with 244 yards and four touchdowns, moving him one TD behind Brett Favre for No. 4 on the all-time list.`\
-https://nytimes.com/athletic/6608585/2025/09/07/steelers-jets-score-result-takeaways-nfl-week-1/
-
-**Commanders defense dominates as Washington rolls past Giants: Key takeaways**\
-`Jayden Daniels was efficient, if unspectacular, in the victory over the NFC East foe.`\
-https://nytimes.com/athletic/6608360/2025/09/07/commanders-giants-score-result-takeaways-nfl-week-1/
 
