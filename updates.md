@@ -1,3 +1,7 @@
+**Russian Strike Breaks Through Most Protected Part of Kyiv**\
+`The attack set a government building on fire in an area of the Ukrainian capital that is rarely damaged.`\
+https://nytimes.com/2025/09/07/world/europe/russian-strike-kyiv-ukraine.html
+
 **Stop Acting Like This Is Normal**\
 `Democrats aren’t powerless, and they don’t have to enable autocracy.`\
 https://nytimes.com/2025/09/07/opinion/trump-senate-democrats-shutdown.html
