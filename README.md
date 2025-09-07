@@ -1,3 +1,7 @@
+**Ruth Paine, Who Gave Lodging to Marina Oswald, Dies at 92**\
+`Her knowledge of Lee Harvey Oswald and his wife made her a noteworthy witness during the Warren Commission’s investigation into the assassination of President John F. Kennedy.`\
+https://nytimes.com/2025/09/07/us/ruth-paine-dead.html
+
 **Italian Grand Prix: Submit your questions for our F1 mailbag**\
 `What questions do you have for our F1 writers after the 2025 Italian Grand Prix?`\
 https://nytimes.com/athletic/6607882/2025/09/07/f1-mailbag-italian-grand-prix/
@@ -34,8 +38,4 @@ https://nytimes.com/2025/09/07/opinion/disney-middle-class.html
 **Until Saturday: Hot-seat coach's brutal gauntlet**\
 `Until Saturday is The Athletic's free CFB newsletter.`\
 https://nytimes.com/athletic/6607670/2025/09/07/billy-napier-florida-schedule-until-saturday/
-
-**Trump Administration Live Updates: Rebranded War Dept. Sends Mixed Signals**\
-``\
-https://nytimes.com/live/2025/09/07/us/trump-news
 

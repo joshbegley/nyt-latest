@@ -1,3 +1,7 @@
+**Italian Grand Prix: Submit your questions for our F1 mailbag**\
+`What questions do you have for our F1 writers after the 2025 Italian Grand Prix?`\
+https://nytimes.com/athletic/6607882/2025/09/07/f1-mailbag-italian-grand-prix/
+
 **Italian GP: Verstappen sets new F1 record as McLaren orders spark late drama**\
 `Max Verstappen won F1's fastest-ever race, while the title fight behind him took on a new chapter`\
 https://nytimes.com/athletic/6607857/2025/09/07/f1-italian-gp-recap-max-verstappen-win-oscar-piastri-lando-norris/
