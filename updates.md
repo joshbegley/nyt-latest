@@ -1,3 +1,7 @@
+**Trump Administration Live Updates: Rebranded War Dept. Sends Mixed Signals**\
+``\
+https://nytimes.com/live/2025/09/07/us/trump-news
+
 **Nepal Bans 26 Social Media Platforms, Including Facebook and YouTube**\
 `Critics worry a new law could curb freedom of expression, affect tourism and cut communication with the many Nepalis who work abroad.`\
 https://nytimes.com/2025/09/07/world/asia/nepal-bans-social-media-platforms.html

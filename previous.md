@@ -1,3 +1,7 @@
+**Trump Administration Live Updates: Rebranded War Dept. Sends Mixed Signals**\
+``\
+https://nytimes.com/live/2025/09/07/us/trump-news
+
 **Nepal Bans 26 Social Media Platforms, Including Facebook and YouTube**\
 `Critics worry a new law could curb freedom of expression, affect tourism and cut communication with the many Nepalis who work abroad.`\
 https://nytimes.com/2025/09/07/world/asia/nepal-bans-social-media-platforms.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6607060/2025/09/07/billy-napier-hot-seat-florida-sp
 **For Oklahoma, everything runs on an indestructible transfer QB. Can they make it last?**\
 `Mateer has been electric, fearless in both his passing and his running. But will it all hold up for Oklahoma's SEC schedule?`\
 https://nytimes.com/athletic/6607330/2025/09/07/john-mateer-oklahoma-michigan/
-
-**NFL Week 1 top storylines: New eras, encore presentations, high-pressure situations**\
-`Aaron Rodgers and Justin Fields meet in a Steelers-Jets revenge game, while Lamar Jackson and Josh Allen battle again.`\
-https://nytimes.com/athletic/6593170/2025/09/07/nfl-week-1-storylines-josh-allen-lamar-jackson/
 

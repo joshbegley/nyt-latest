@@ -1,3 +1,7 @@
+**Until Saturday: Hot-seat coach's brutal gauntlet**\
+`Until Saturday is The Athletic's free CFB newsletter.`\
+https://nytimes.com/athletic/6607670/2025/09/07/billy-napier-florida-schedule-until-saturday/
+
 **Trump Administration Live Updates: Rebranded War Dept. Sends Mixed Signals**\
 ``\
 https://nytimes.com/live/2025/09/07/us/trump-news
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6602690/2025/09/07/bears-mailbag-defining-success-2
 **For Billy Napier, 'Bull spit' is the latest in an unacceptable string of troubling defeats**\
 `Napier's 20-20 record is 11 wins worse than Dan Mullen's 31-9 mark through his first 40 games as Florida's coach.`\
 https://nytimes.com/athletic/6607060/2025/09/07/billy-napier-hot-seat-florida-spitting/
-
-**For Oklahoma, everything runs on an indestructible transfer QB. Can they make it last?**\
-`Mateer has been electric, fearless in both his passing and his running. But will it all hold up for Oklahoma's SEC schedule?`\
-https://nytimes.com/athletic/6607330/2025/09/07/john-mateer-oklahoma-michigan/
 
