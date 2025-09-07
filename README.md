@@ -18,8 +18,8 @@ https://nytimes.com/athletic/6608443/2025/09/07/nfl-sex-toy-incident-cleveland-b
 `Russia launched hundreds of exploding drones and decoys across Ukraine in the largest air assault so far in the war, killing at least five people and setting a government building in Kyiv ablaze.`\
 https://nytimes.com/video/world/europe/100000010383840/russia-ukraine-strikes-kyiv.html
 
-**Travis Hunter with four catches so far as Panthers-Jags delayed by weather**\
-`Two-way star had yet to play defense when game was paused in second quarter.`\
+**Panthers-Jaguars to resume after weather delay; Travis Hunter active early**\
+`The game between the Panthers and Jaguars was delayed for more than 45 minutes.`\
 https://nytimes.com/athletic/6608247/2025/09/07/panthers-jaguars-score-result-takeaways-nfl-week-1/
 
 **AP Top 25: USF moves in; SEC sets record with 11 ranked teams**\
