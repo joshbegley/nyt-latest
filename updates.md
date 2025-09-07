@@ -1,3 +1,11 @@
+**Fantasy football Week 1 inactives**\
+`The rundown on the Week 1 inactives who are relevant to fantasy football and how to respond accordingly. `\
+https://nytimes.com/athletic/6602126/2025/09/07/fantasy-football-week-1-inactives/
+
+**Oil Producers Announce New Increase in Output**\
+`In a show of confidence in the market, the group, led by Saudi Arabia, said it would begin unwinding a further set of agreed cuts.`\
+https://nytimes.com/2025/09/07/business/opec-plus-oil-production-increase.html
+
 **This Aguachile Shrimp Salad Will Brighten Your Day**\
 `Perfect for those last warm-weather picnics.`\
 https://nytimes.com/2025/09/07/dining/this-aguachile-shrimp-salad-will-brighten-your-day.html
