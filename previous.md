@@ -1,3 +1,7 @@
+**Dylan Raiola in command during Nebraska's runaway win over Akron: Takeaways**\
+`After the Huskers had a shaky performance against Cincinnati, they came out and dominated the Zips in Memorial Stadium. `\
+https://nytimes.com/athletic/6606796/2025/09/06/dylan-raiola-nebraska-akron-win-takeaways/
+
 **Bill Belichick scores first collegiate win as UNC rebounds at Charlotte: Takeaways**\
 `UNC's second game took place in much humbler surroundings, on the road at an American Conference school.`\
 https://nytimes.com/athletic/6606797/2025/09/06/unc-charlotte-score-result-takeaways/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6606951/2025/09/06/astros-vs-rangers-stream-how-to-
 **How to watch Brewers at Pirates: Time, TV, streaming for September 7**\
 `Find out how to watch the Milwaukee Brewers play the Pittsburgh Pirates, with time, TV channel, and streaming information.`\
 https://nytimes.com/athletic/6606938/2025/09/06/brewers-vs-pirates-stream-how-to-watch-sept-7/
-
-**How to watch Dodgers at Orioles: Time, TV, streaming for September 7**\
-`Find out how to watch the Los Angeles Dodgers play the Baltimore Orioles, with time, TV channel, and streaming information.`\
-https://nytimes.com/athletic/6606937/2025/09/06/dodgers-vs-orioles-stream-how-to-watch-sept-7/
 

@@ -1,3 +1,7 @@
+**Dylan Raiola in command during Nebraska's runaway win over Akron: Takeaways**\
+`After the Huskers had a shaky performance against Cincinnati, they came out and dominated the Zips in Memorial Stadium. `\
+https://nytimes.com/athletic/6606796/2025/09/06/dylan-raiola-nebraska-akron-win-takeaways/
+
 **Bill Belichick scores first collegiate win as UNC rebounds at Charlotte: Takeaways**\
 `UNC's second game took place in much humbler surroundings, on the road at an American Conference school.`\
 https://nytimes.com/athletic/6606797/2025/09/06/unc-charlotte-score-result-takeaways/
