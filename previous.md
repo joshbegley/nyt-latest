@@ -1,4 +1,16 @@
-**Did McLaren's latest team order favor Norris? Why the team and Piastri say no**\
+**AP Top 25: USF moves in; SEC sets record with 11 ranked teams**\
+`Ohio State, Penn State, LSU, Oregon and Miami make up the top five of the latest AP Top 25 college football rankings.`\
+https://nytimes.com/athletic/6608278/2025/09/07/ap-top-25-usf-sec-record-ranked-teams/
+
+**American Pilot, 20, Is Released After Being Stuck Off Antarctica**\
+`Ethan Guo said that he had been effectively stranded at a Chilean military base on King George Island since June 28. The authorities said he landed without permission.`\
+https://nytimes.com/2025/09/07/world/americas/ethan-guo-antarctica-released.html
+
+**Rory McIlroy claims Irish Open, first win since the Masters**\
+`McIlroy defeated Joakim Lagergren in a playoff for his second Irish Open title of his career.`\
+https://nytimes.com/athletic/6608418/2025/09/07/rory-mcilroy-wins-amgen-irish-open/
+
+**McLaren team orders had Verstappen laughing — but it won't change its ways**\
 `McLaren's harmonious F1 title fight survived another team orders test. Can it last?`\
 https://nytimes.com/athletic/6608382/2025/09/07/lando-norris-oscar-piastri-f1-team-orders-monza/
 
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6607958/2025/09/07/thomas-tuchel-england-set-pieces
 **David Baltimore, Nobel-Winning Molecular Biologist, Dies at 87**\
 `He was only 37 when he made a discovery that challenged the existing tenets of biology and led to an understanding of retroviruses and viruses, including H.I.V.,`\
 https://nytimes.com/2025/09/07/science/david-baltimore-dead.html
-
-**Trump Downplays Post Threatening Chicago, Saying He Wants to ‘Clean Up’ City**\
-`The president had said on social media that Chicago was “about to find out why it’s called the Department of WAR,” drawing a fierce rebuke from Democrats.`\
-https://nytimes.com/2025/09/07/us/politics/trump-chicago-war-us-open.html
-
-**Man Fatally Shot by N.Y.P.D. After Slashing Officer at Station House**\
-`The man entered the headquarters of the 73rd Precinct in Brooklyn through the back door, the police said, and slashed an officer with a large knife.`\
-https://nytimes.com/2025/09/07/nyregion/slashing-brooklyn-nypd-station-house.html
-
-**Kennedy, Rejecting Data, Fuels Distrust of His Own Agencies**\
-`By promoting suspicions about the institutions he oversees, critics say Robert F. Kennedy Jr. is jeopardizing public health. He says he is pursuing transparency.`\
-https://nytimes.com/2025/09/07/us/politics/kennedy-health-vaccines-cdc.html
 
