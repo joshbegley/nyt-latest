@@ -1,3 +1,7 @@
+**Bill Belichick on banning Pats scouts from UNC: 'I'm not welcome there'**\
+`It's the latest point of tension between the six-time Super Bowl-champion coach and the team he led for 24 seasons.`\
+https://nytimes.com/athletic/6607117/2025/09/06/bill-belichick-bans-patriots-scouts-unc/
+
 **In trying to generate squad competition, Pochettino's USMNT is no better off**\
 `Mauricio Pochettino recognizes the USMNT's complacency problem, but has proven hooked on trying to solve it with lackluster depth`\
 https://nytimes.com/athletic/6607040/2025/09/06/mauricio-pochettino-usmnt-roster-selection-problem-world-cup/
