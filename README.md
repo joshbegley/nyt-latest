@@ -1,3 +1,7 @@
+**SEC vibes rankings: Big wins and high hopes — and then there's Florida**\
+`The SEC could feel good about some of its results Saturday. Then there's Florida.`\
+https://nytimes.com/athletic/6607904/2025/09/07/sec-football-rankings-week-3-florida-oklahoma/
+
 **Fantasy football Week 1 inactives**\
 `The rundown on the Week 1 inactives who are relevant to fantasy football and how to respond accordingly. `\
 https://nytimes.com/athletic/6602126/2025/09/07/fantasy-football-week-1-inactives/
@@ -34,8 +38,4 @@ https://nytimes.com/interactive/2025/weather/tapah-map-path-tracker.html
 **Jacob Bethell scores first professional century to brighten a frustrating summer**\
 `The 21-year-old reached three figures off only 76 balls against South Africa in Sunday's ODI.`\
 https://nytimes.com/athletic/6607878/2025/09/07/jacob-bethell-century-england/
-
-**The Pulse: Another spitting incent? Check.**\
-`Welcome to The Pulse, The Athletic's daily sports newsletter.`\
-https://nytimes.com/athletic/6607167/2025/09/07/a-spitting-incident-that-could-prove-quite-costly-for-florida/
 
