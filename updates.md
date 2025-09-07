@@ -1,3 +1,7 @@
+**L.A.P.D. Stops Security Services for Kamala Harris**\
+`The department had assigned officers to protect the former vice president after her Secret Service detail was terminated. Some criticized the use of the officers.`\
+https://nytimes.com/2025/09/06/us/lapd-kamala-harris-security.html
+
 **U.S. Open title cements Aryna Sabalenka's year as one of consistency and taming emotion**\
 `Sabalenka has upended the narrative that her year should be viewed as exposing a tendency to buckle under pressure when it matters most.`\
 https://nytimes.com/athletic/6606758/2025/09/06/us-open-aryna-sabalenka-season/
