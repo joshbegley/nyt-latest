@@ -1,3 +1,15 @@
+**A Town Reluctantly Let a Mosque Expand. Then Came the Backlash.**\
+`A Long Island town board failed to approve a settlement its lawyers had struck with Masjid Al-Baqi after a yearslong dispute tainted by bigotry. The mosque’s federal suit will be heard next month.`\
+https://nytimes.com/2025/09/07/nyregion/oyster-bay-mosque-lawsuit.html
+
+**‘A Few Minutes Later, a Group of 3-Year-Olds Toddled By’**\
+`Youth brigades in Cobble Hill, a heart-stopping moment in Midtown and more reader tales of New York City in this week’s Metropolitan Diary.`\
+https://nytimes.com/2025/09/07/nyregion/metropolitan-diary.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/09/07/crosswords/spelling-bee-forum.html
+
 **Russian Strike Breaks Through Most Protected Part of Kyiv**\
 `The attack set a government building on fire in an area of the Ukrainian capital that is rarely damaged.`\
 https://nytimes.com/2025/09/07/world/europe/russian-strike-kyiv-ukraine.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/09/07/opinion/nfl-flag-football.html
 **If Democrats Have a Better Plan, I’d Like to Hear It**\
 `In a few weeks the government’s funding will run out. If Democrats vote for a new spending bill, they will be funding Trump’s autocratic takeover — and I don’t see how they can.`\
 https://nytimes.com/video/opinion/100000010381405/if-democrats-have-a-better-plan-id-like-to-hear-it.html
-
-**Lions, Jameson Williams agree to 3-year extension worth up to $83 million: Reports**\
-`If the Lions were going to get an extension done with Williams, this was the time to do it.`\
-https://nytimes.com/athletic/6607135/2025/09/07/lions-jameson-williams-3-year-extension-83-million/
-
-**How to watch White Sox at Tigers: Time, TV, streaming for September 7**\
-`Find out how to watch the Chicago White Sox play the Detroit Tigers, with time, TV channel, and streaming information.`\
-https://nytimes.com/athletic/6607219/2025/09/07/white-sox-vs-tigers-stream-how-to-watch-sept-7/
-
-**How to watch Athletics at Angels: Time, TV, streaming for September 7**\
-`Find out how to watch the Athletics play the Los Angeles Angels, with time, TV channel, and streaming information.`\
-https://nytimes.com/athletic/6607215/2025/09/07/athletics-vs-angels-stream-how-to-watch-sept-7/
 
