@@ -1,3 +1,7 @@
+**Georgia offense must pick it up as Tennessee and SEC play arrive**\
+`As national attention turns back to Georgia, questions about Gunner Stockton and the offense remain aplenty.`\
+https://nytimes.com/athletic/6606836/2025/09/06/georgia-football-offense-austin-peay-tennessee/
+
 **Return of the Border War embodies everything we love about college football rivalries**\
 `Saturday marked the revival of the bitter rivalry between Kansas and Missouri after 14 long years.`\
 https://nytimes.com/athletic/6606914/2025/09/06/missouri-kansas-border-war-beau-pribula/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6606929/2025/09/06/mets-vs-reds-stream-how-to-watch
 **How to watch Twins at Royals: Time, TV, streaming for September 7**\
 `Find out how to watch the Minnesota Twins play the Kansas City Royals, with time, TV channel, and streaming information.`\
 https://nytimes.com/athletic/6606928/2025/09/06/twins-vs-royals-stream-how-to-watch-sept-7/
-
-**How to watch Guardians at Rays: Time, TV, streaming for September 7**\
-`Find out how to watch the Cleveland Guardians play the Tampa Bay Rays, with time, TV channel, and streaming information.`\
-https://nytimes.com/athletic/6606922/2025/09/06/guardians-vs-rays-stream-how-to-watch-sept-7/
 
