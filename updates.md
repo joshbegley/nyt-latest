@@ -1,3 +1,7 @@
+**Framber Valdez takes hard-luck loss in first start since crossing up his catcher**\
+`The lefty did a much better job maintaining his focus on a day when not much went right for the Astros.`\
+https://nytimes.com/athletic/6608924/2025/09/07/astros-framber-valdez-catcher-cross-up-return/
+
 **Geno Smith rewards a franchise's confidence in his Raiders debut**\
 `The quarterback, hand-picked by Pete Carroll, delivered in a season-opening win over the Patriots.`\
 https://nytimes.com/athletic/6608766/2025/09/07/geno-smith-pete-carroll-raiders-debut/
