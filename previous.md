@@ -1,3 +1,7 @@
+**Jackson Holliday spoils Yoshinobu Yamamoto's no-hitter in bottom 9th**\
+`Yamamoto, the $325 million man, allowed no hits through 26 outs in the 4-3 loss to the Orioles.`\
+https://nytimes.com/athletic/6606972/2025/09/06/jackson-holliday-spoils-yoshinobu-yamamoto-no-hitter-dodgers-orioles/
+
 **Georgia offense must pick it up as Tennessee and SEC play arrive**\
 `As national attention turns back to Georgia, questions about Gunner Stockton and the offense remain aplenty.`\
 https://nytimes.com/athletic/6606836/2025/09/06/georgia-football-offense-austin-peay-tennessee/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6606934/2025/09/06/mariners-vs-braves-stream-how-to
 **How to watch Mets at Reds: Time, TV, streaming for September 7**\
 `Find out how to watch the New York Mets play the Cincinnati Reds, with time, TV channel, and streaming information.`\
 https://nytimes.com/athletic/6606929/2025/09/06/mets-vs-reds-stream-how-to-watch-sept-7/
-
-**How to watch Twins at Royals: Time, TV, streaming for September 7**\
-`Find out how to watch the Minnesota Twins play the Kansas City Royals, with time, TV channel, and streaming information.`\
-https://nytimes.com/athletic/6606928/2025/09/06/twins-vs-royals-stream-how-to-watch-sept-7/
 

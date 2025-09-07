@@ -1,3 +1,7 @@
+**Jackson Holliday spoils Yoshinobu Yamamoto's no-hitter in bottom 9th**\
+`Yamamoto, the $325 million man, allowed no hits through 26 outs in the 4-3 loss to the Orioles.`\
+https://nytimes.com/athletic/6606972/2025/09/06/jackson-holliday-spoils-yoshinobu-yamamoto-no-hitter-dodgers-orioles/
+
 **Georgia offense must pick it up as Tennessee and SEC play arrive**\
 `As national attention turns back to Georgia, questions about Gunner Stockton and the offense remain aplenty.`\
 https://nytimes.com/athletic/6606836/2025/09/06/georgia-football-offense-austin-peay-tennessee/
