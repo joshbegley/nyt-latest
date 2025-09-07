@@ -1,3 +1,15 @@
+**Micah Parsons active for Packers vs. Lions**\
+`The newly acquired edge rusher has been hampered by an L4/L5 facet joint sprain in his back.`\
+https://nytimes.com/athletic/6608307/2025/09/07/micah-parsons-active-packers-lions/
+
+**Millions of Londoners Brace for Transit Disruption as Tube Strike Begins**\
+`A strike on the London Underground began Sunday over pay and conditions, threatening to upend commuter journeys for most of the week.`\
+https://nytimes.com/2025/09/07/world/europe/london-tube-strike.html
+
+**Panthers-Jaguars to resume after weather delay; Travis Hunter active early**\
+`The game between the Panthers and Jaguars was delayed for more than 45 minutes.`\
+https://nytimes.com/athletic/6608247/2025/09/07/panthers-jaguars-score-result-takeaways-nfl-week-1/
+
 **Onana's Manchester United loan exit says as much about the club as it does about the player**\
 `The goalkeeper joined with a big reputation and he was suppposed to help transform the way United played but the fit never felt right`\
 https://nytimes.com/athletic/6608330/2025/09/07/andre-onana-trabzonspor-manchester-united/

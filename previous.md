@@ -1,3 +1,11 @@
+**Micah Parsons active for Packers vs. Lions**\
+`The newly acquired edge rusher has been hampered by an L4/L5 facet joint sprain in his back.`\
+https://nytimes.com/athletic/6608307/2025/09/07/micah-parsons-active-packers-lions/
+
+**Millions of Londoners Brace for Transit Disruption as Tube Strike Begins**\
+`A strike on the London Underground began Sunday over pay and conditions, threatening to upend commuter journeys for most of the week.`\
+https://nytimes.com/2025/09/07/world/europe/london-tube-strike.html
+
 **Onana's Manchester United loan exit says as much about the club as it does about the player**\
 `The goalkeeper joined with a big reputation and he was suppposed to help transform the way United played but the fit never felt right`\
 https://nytimes.com/athletic/6608330/2025/09/07/andre-onana-trabzonspor-manchester-united/
@@ -10,8 +18,8 @@ https://nytimes.com/athletic/6608443/2025/09/07/nfl-sex-toy-incident-cleveland-b
 `Russia launched hundreds of exploding drones and decoys across Ukraine in the largest air assault so far in the war, killing at least five people and setting a government building in Kyiv ablaze.`\
 https://nytimes.com/video/world/europe/100000010383840/russia-ukraine-strikes-kyiv.html
 
-**Travis Hunter with four catches so far as Panthers-Jags delayed by weather**\
-`Two-way star had yet to play defense when game was paused in second quarter.`\
+**Panthers-Jaguars to resume after weather delay; Travis Hunter active early**\
+`The game between the Panthers and Jaguars was delayed for more than 45 minutes.`\
 https://nytimes.com/athletic/6608247/2025/09/07/panthers-jaguars-score-result-takeaways-nfl-week-1/
 
 **AP Top 25: USF moves in; SEC sets record with 11 ranked teams**\
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6608418/2025/09/07/rory-mcilroy-wins-amgen-irish-op
 **McLaren team orders had Verstappen laughing — but it won't change its ways**\
 `McLaren's harmonious F1 title fight survived another team orders test. Can it last?`\
 https://nytimes.com/athletic/6608382/2025/09/07/lando-norris-oscar-piastri-f1-team-orders-monza/
-
-**Sister of Timberwolves' Naz Reid shot and killed in New Jersey**\
-`Toraya, 28, was the oldest of three Reid children, including Naz and younger sister Jakahya.`\
-https://nytimes.com/athletic/6608367/2025/09/07/naz-reid-sister-killed/
-
-**Luka Dončić scores 42, leads Slovenia past Italy into EuroBasket quarterfinals**\
-`Lakers star is the leading scorer in EuroBasket, averaging 34.0 points per game.`\
-https://nytimes.com/athletic/6608416/2025/09/07/luka-doncic-slovenia-italy-eurobasket-quarterfinals-2/
 
