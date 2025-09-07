@@ -1,3 +1,7 @@
+**Game, Set, Match: Carlos Alcaraz defeats Jannik Sinner at U.S. Open to reclaim world No. 1**\
+`Sinner and Alcaraz's third consecutive Grand Slam final reaffirmed the gulf between them and the rest of men's tennis.`\
+https://nytimes.com/athletic/6608295/2025/09/07/us-open-final-alcaraz-sinner-result-analysis/
+
 **49ers TE George Kittle ruled out vs. Seahawks with hamstring injury**\
 `Kittle caught a 5-yard touchdown pass to get the 49ers scoring started before leaving with his injury.`\
 https://nytimes.com/athletic/6608768/2025/09/07/49ers-george-kittle-hamstring-injury/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6608253/2025/09/07/falcons-buccaneers-score-result-
 **Braves takeaways: Acuña slump deepens, Strider delayed, Olson's XBH, Snitker milestone**\
 `Atlanta has lost nine of 15 games and dropped three consecutive series against teams that would be in the postseason today.`\
 https://nytimes.com/athletic/6608630/2025/09/07/braves-takeaways-mariners-five-home-runs/
-
-**Raiders' defense stifles Patriots as Pete Carroll wins Las Vegas debut: Key takeaways**\
-`Geno Smith threw for 362 yards and a touchdown as Las Vegas won in Foxboro, Mass.`\
-https://nytimes.com/athletic/6608491/2025/09/07/raiders-patriots-score-result-takeaways-nfl-week-1/
 

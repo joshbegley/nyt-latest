@@ -1,3 +1,15 @@
+**49ers TE George Kittle ruled out vs. Seahawks with hamstring injury**\
+`Kittle caught a 5-yard touchdown pass to get the 49ers scoring started before leaving with his injury.`\
+https://nytimes.com/athletic/6608768/2025/09/07/49ers-george-kittle-hamstring-injury/
+
+**NFL Week 1 takeaways: Rodgers rejuvenated, Wilson shaky, Dolphins embarrassed**\
+`Our writers weigh in on Sunday's biggest storylines and identify the rookie debut that impressed them the most.`\
+https://nytimes.com/athletic/6608642/2025/09/07/nfl-takeaways-week-1-aaron-rodgers-russell-wilson/
+
+**Cardinals' Kyler Murray tosses 2 TD passes in win; Saints comeback attempt falls short: Key takeaways**\
+`Winning on the road is never easy, but the Cardinals made this 20-13 Week 1 victory tougher than necessary.`\
+https://nytimes.com/athletic/6608562/2025/09/07/saints-cardinals-score-result-takeaways-nfl-week-1/
+
 **A View From Inside Iran**\
 `Our correspondent found a sense of apprehension in the country after the 12-day war with Israel.`\
 https://nytimes.com/2025/09/07/briefing/inside-iran-japan-prime-minister-kyiv-attack.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6608630/2025/09/07/braves-takeaways-mariners-five-h
 **Raiders' defense stifles Patriots as Pete Carroll wins Las Vegas debut: Key takeaways**\
 `Geno Smith threw for 362 yards and a touchdown as Las Vegas won in Foxboro, Mass.`\
 https://nytimes.com/athletic/6608491/2025/09/07/raiders-patriots-score-result-takeaways-nfl-week-1/
-
-**Bolsonaro Supporters Flood Streets Ahead of His Expected Conviction**\
-`Tensions are heating up in Brazil as the nation enters the final week of former President Jair Bolsonaro’s trial on attempted coup charges.`\
-https://nytimes.com/2025/09/07/world/americas/brazil-bolsonaro-trial-protests.html
-
-**Colts rout Dolphins, notching first Week 1 win since 2013: Takeaways**\
-`Colts' Daniel Jones was 22-of-29 passing for 272 yards and one touchdown in a 33-8 season-opening win against the Dolphins.`\
-https://nytimes.com/athletic/6608423/2025/09/07/dolphins-colts-score-result-takeaways-nfl-week-1/
-
-**Barnett Shepherd, Champion of Staten Island’s Heritage, Dies at 87**\
-`A longtime resident, he devoted his career to Historic Richmond Town and Sailors’ Snug Harbor, two of the borough’s most important cultural institutions.`\
-https://nytimes.com/2025/09/07/nyregion/barnett-shepherd-dead.html
 

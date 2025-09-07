@@ -1,3 +1,15 @@
+**49ers TE George Kittle ruled out vs. Seahawks with hamstring injury**\
+`Kittle caught a 5-yard touchdown pass to get the 49ers scoring started before leaving with his injury.`\
+https://nytimes.com/athletic/6608768/2025/09/07/49ers-george-kittle-hamstring-injury/
+
+**NFL Week 1 takeaways: Rodgers rejuvenated, Wilson shaky, Dolphins embarrassed**\
+`Our writers weigh in on Sunday's biggest storylines and identify the rookie debut that impressed them the most.`\
+https://nytimes.com/athletic/6608642/2025/09/07/nfl-takeaways-week-1-aaron-rodgers-russell-wilson/
+
+**Cardinals' Kyler Murray tosses 2 TD passes in win; Saints comeback attempt falls short: Key takeaways**\
+`Winning on the road is never easy, but the Cardinals made this 20-13 Week 1 victory tougher than necessary.`\
+https://nytimes.com/athletic/6608562/2025/09/07/saints-cardinals-score-result-takeaways-nfl-week-1/
+
 **A View From Inside Iran**\
 `Our correspondent found a sense of apprehension in the country after the 12-day war with Israel.`\
 https://nytimes.com/2025/09/07/briefing/inside-iran-japan-prime-minister-kyiv-attack.html
