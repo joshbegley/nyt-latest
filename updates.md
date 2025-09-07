@@ -1,3 +1,7 @@
+**‘The Conjuring: Last Rites’ Sets a Surprise Box Office Record**\
+`The horror sequel took in roughly $83 million over the weekend in the United States and Canada, about 65 percent more than anticipated.`\
+https://nytimes.com/2025/09/07/business/media/conjuring-last-rites-box-office.html
+
 **Marilyn Monroe’s Los Angeles Home Is Saved From Demolition**\
 `A judge denied a neighbor’s petition to raze the Spanish-style hacienda, which the City Council had declared a cultural landmark.`\
 https://nytimes.com/2025/09/07/us/marilyn-monroe-house-los-angeles.html
