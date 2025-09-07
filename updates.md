@@ -1,3 +1,11 @@
+**Man Fatally Shot by N.Y.P.D. After Slashing Officer at Station House**\
+`The man entered the headquarters of the 73rd Precinct in Brooklyn through the back door, the police said, and slashed an officer with a large knife.`\
+https://nytimes.com/2025/09/07/nyregion/slashing-brooklyn-nypd-station-house.html
+
+**Kennedy, Rejecting Data, Fuels Distrust of His Own Agencies**\
+`By promoting suspicions about the institutions he oversees, critics say Robert F. Kennedy Jr. is jeopardizing public health. He says he is pursuing transparency.`\
+https://nytimes.com/2025/09/07/us/politics/kennedy-health-vaccines-cdc.html
+
 **With Billy Porter Sidelined by Illness, ‘Cabaret’ Moves Up Closing**\
 `The revival will now end its run on Sept. 21, much earlier than previously hoped for.`\
 https://nytimes.com/2025/09/07/theater/cabaret-billy-porter-broadway.html
