@@ -1,3 +1,7 @@
+**South Korea Negotiates Release of Korean Workers Detained in Georgia Raid**\
+`The government said on Sunday that South Korea would send a charter plane to the United States to retrieve hundreds of workers detained in an immigration raid.`\
+https://nytimes.com/2025/09/07/world/asia/south-korea-trump-hyundai-lg.html
+
 **Prime Minister Shigeru Ishiba of Japan Will Step Down, Reports Say**\
 `Mr. Ishiba’s party is threatening to split over a right-wing political surge, a weakened economy and turbulent trade relations with the United States.`\
 https://nytimes.com/2025/09/07/world/asia/japan-shigeru-ishiba-resign.html
