@@ -1,4 +1,4 @@
-**Cam Heyward, Steelers agree to new contract, Heyward to play Week 1: Source**\
+**Cam Heyward, Steelers agree to new contract; Heyward to play Week 1: Source**\
 `Heyward, one of the team's captains, staged a "hold-in" earlier this summer.`\
 https://nytimes.com/athletic/6574061/2025/09/06/cam-heyward-steelers-new-contract/
 
