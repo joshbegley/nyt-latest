@@ -1,3 +1,7 @@
+**String Theory**\
+`Today, on the last day of the U.S. Open, we have a chat with a tennis writer.`\
+https://nytimes.com/2025/09/07/world/us-open-japan-prime-minister-books.html
+
 **Cowboys' Brian Schottenheimer still confident after first loss: 'We can win a Super Bowl'**\
 `The Cowboys went toe-to-toe with the defending Super Bowl champs but that wasn't enough for the first-year head coach.`\
 https://nytimes.com/athletic/6606473/2025/09/07/cowboys-brian-schottenheimer-first-game-eagles/
