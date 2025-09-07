@@ -1,3 +1,7 @@
+**AP Top 25: USF moves in; SEC sets record with 11 ranked teams**\
+`Ohio State, Penn State, LSU, Oregon and Miami make up the top five of the latest AP Top 25 college football rankings.`\
+https://nytimes.com/athletic/6608278/2025/09/07/ap-top-25-usf-sec-record-ranked-teams/
+
 **American Pilot, 20, Is Released After Being Stuck Off Antarctica**\
 `Ethan Guo said that he had been effectively stranded at a Chilean military base on King George Island since June 28. The authorities said he landed without permission.`\
 https://nytimes.com/2025/09/07/world/americas/ethan-guo-antarctica-released.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6607958/2025/09/07/thomas-tuchel-england-set-pieces
 **David Baltimore, Nobel-Winning Molecular Biologist, Dies at 87**\
 `He was only 37 when he made a discovery that challenged the existing tenets of biology and led to an understanding of retroviruses and viruses, including H.I.V.,`\
 https://nytimes.com/2025/09/07/science/david-baltimore-dead.html
-
-**Trump Downplays Post Threatening Chicago, Saying He Wants to ‘Clean Up’ City**\
-`The president had said on social media that Chicago was “about to find out why it’s called the Department of WAR,” drawing a fierce rebuke from Democrats.`\
-https://nytimes.com/2025/09/07/us/politics/trump-chicago-war-us-open.html
 
