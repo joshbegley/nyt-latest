@@ -1,3 +1,11 @@
+**Micah Parsons active for Packers vs. Lions**\
+`The newly acquired edge rusher has been hampered by an L4/L5 facet joint sprain in his back.`\
+https://nytimes.com/athletic/6608307/2025/09/07/micah-parsons-active-packers-lions/
+
+**Millions of Londoners Brace for Transit Disruption as Tube Strike Begins**\
+`A strike on the London Underground began Sunday over pay and conditions, threatening to upend commuter journeys for most of the week.`\
+https://nytimes.com/2025/09/07/world/europe/london-tube-strike.html
+
 **Onana's Manchester United loan exit says as much about the club as it does about the player**\
 `The goalkeeper joined with a big reputation and he was suppposed to help transform the way United played but the fit never felt right`\
 https://nytimes.com/athletic/6608330/2025/09/07/andre-onana-trabzonspor-manchester-united/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6608418/2025/09/07/rory-mcilroy-wins-amgen-irish-op
 **McLaren team orders had Verstappen laughing — but it won't change its ways**\
 `McLaren's harmonious F1 title fight survived another team orders test. Can it last?`\
 https://nytimes.com/athletic/6608382/2025/09/07/lando-norris-oscar-piastri-f1-team-orders-monza/
-
-**Sister of Timberwolves' Naz Reid shot and killed in New Jersey**\
-`Toraya, 28, was the oldest of three Reid children, including Naz and younger sister Jakahya.`\
-https://nytimes.com/athletic/6608367/2025/09/07/naz-reid-sister-killed/
-
-**Luka Dončić scores 42, leads Slovenia past Italy into EuroBasket quarterfinals**\
-`Lakers star is the leading scorer in EuroBasket, averaging 34.0 points per game.`\
-https://nytimes.com/athletic/6608416/2025/09/07/luka-doncic-slovenia-italy-eurobasket-quarterfinals-2/
 

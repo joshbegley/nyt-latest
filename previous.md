@@ -1,3 +1,11 @@
+**Onana's Manchester United loan exit says as much about the club as it does about the player**\
+`The goalkeeper joined with a big reputation and he was suppposed to help transform the way United played but the fit never felt right`\
+https://nytimes.com/athletic/6608330/2025/09/07/andre-onana-trabzonspor-manchester-united/
+
+**Fan throws green sex toy on field during Browns-Bengals game in Cleveland**\
+`The WNBA dealt with multiple instances of sex toys being thrown onto the court this summer.`\
+https://nytimes.com/athletic/6608443/2025/09/07/nfl-sex-toy-incident-cleveland-browns-cincinnati-bengals/
+
 **Russia Launches Largest-Ever Drone Attack in Ukraine War**\
 `Russia launched hundreds of exploding drones and decoys across Ukraine in the largest air assault so far in the war, killing at least five people and setting a government building in Kyiv ablaze.`\
 https://nytimes.com/video/world/europe/100000010383840/russia-ukraine-strikes-kyiv.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6608367/2025/09/07/naz-reid-sister-killed/
 **Luka Dončić scores 42, leads Slovenia past Italy into EuroBasket quarterfinals**\
 `Lakers star is the leading scorer in EuroBasket, averaging 34.0 points per game.`\
 https://nytimes.com/athletic/6608416/2025/09/07/luka-doncic-slovenia-italy-eurobasket-quarterfinals-2/
-
-**Man United's Onana agrees to join Trabzonspor on loan**\
-`Trabzonspor will cover the goalkeeper's Manchester United salary in full, with Onana set to earn extra due to bonuses`\
-https://nytimes.com/athletic/6608350/2025/09/07/andre-onana-loan-man-united-news-trabzonspor/
-
-**Donald Trump's U.S. Open final appearance draws mixed reaction, prompts delay**\
-`Trump's appearance resulted in the start-time for the final between Jannik Sinner and Carlos Alcaraz being pushed to 2:30 p.m. ET.`\
-https://nytimes.com/athletic/6608281/2025/09/07/donald-trump-us-open-final-attendance/
 

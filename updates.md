@@ -1,3 +1,11 @@
+**Onana's Manchester United loan exit says as much about the club as it does about the player**\
+`The goalkeeper joined with a big reputation and he was suppposed to help transform the way United played but the fit never felt right`\
+https://nytimes.com/athletic/6608330/2025/09/07/andre-onana-trabzonspor-manchester-united/
+
+**Fan throws green sex toy on field during Browns-Bengals game in Cleveland**\
+`The WNBA dealt with multiple instances of sex toys being thrown onto the court this summer.`\
+https://nytimes.com/athletic/6608443/2025/09/07/nfl-sex-toy-incident-cleveland-browns-cincinnati-bengals/
+
 **Russia Launches Largest-Ever Drone Attack in Ukraine War**\
 `Russia launched hundreds of exploding drones and decoys across Ukraine in the largest air assault so far in the war, killing at least five people and setting a government building in Kyiv ablaze.`\
 https://nytimes.com/video/world/europe/100000010383840/russia-ukraine-strikes-kyiv.html
