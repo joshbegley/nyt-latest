@@ -1,3 +1,7 @@
+**Russia Launches Largest-Ever Drone Attack in Ukraine War**\
+`Russia launched hundreds of exploding drones and decoys across Ukraine in the largest air assault so far in the war, killing at least five people and setting a government building in Kyiv ablaze.`\
+https://nytimes.com/video/world/europe/100000010383840/russia-ukraine-strikes-kyiv.html
+
 **Travis Hunter with four catches so far as Panthers-Jags delayed by weather**\
 `Two-way star had yet to play defense when game was paused in second quarter.`\
 https://nytimes.com/athletic/6608247/2025/09/07/panthers-jaguars-score-result-takeaways-nfl-week-1/
