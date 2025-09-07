@@ -1,3 +1,7 @@
+**Italian Grand Prix: Submit your questions for our F1 mailbag**\
+`What questions do you have for our F1 writers after the 2025 Italian Grand Prix?`\
+https://nytimes.com/athletic/6607882/2025/09/07/f1-mailbag-italian-grand-prix/
+
 **Italian GP: Verstappen sets new F1 record as McLaren orders spark late drama**\
 `Max Verstappen won F1's fastest-ever race, while the title fight behind him took on a new chapter`\
 https://nytimes.com/athletic/6607857/2025/09/07/f1-italian-gp-recap-max-verstappen-win-oscar-piastri-lando-norris/
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/6607670/2025/09/07/billy-napier-florida-schedule-un
 **Trump Administration Live Updates: Rebranded War Dept. Sends Mixed Signals**\
 ``\
 https://nytimes.com/live/2025/09/07/us/trump-news
-
-**Nepal Bans 26 Social Media Platforms, Including Facebook and YouTube**\
-`Critics worry a new law could curb freedom of expression, affect tourism and cut communication with the many Nepalis who work abroad.`\
-https://nytimes.com/2025/09/07/world/asia/nepal-bans-social-media-platforms.html
 
