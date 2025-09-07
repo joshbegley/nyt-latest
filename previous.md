@@ -1,3 +1,11 @@
+**Lowetide: Can Oilers navigate challenge of an aging roster?**\
+`The thoughts expressed by Connor McDavid about the Oilers' future should be shared by the team's management.`\
+https://nytimes.com/athletic/6603859/2025/09/07/edmonton-oilers-mcdavid-roster-aging/
+
+**Mandel's Final Thoughts: Florida's nightmare scenario, Oklahoma's revival and more in Week 2**\
+`Florida is a fine academic institution, but for some reason, its football field is becoming synonymous with boneheaded moments.`\
+https://nytimes.com/athletic/6607348/2025/09/07/college-football-week-2-final-thoughts-florida-oklahoma/
+
 **String Theory**\
 `Today, on the last day of the U.S. Open, we have a chat with a tennis writer.`\
 https://nytimes.com/2025/09/07/world/us-open-japan-prime-minister-books.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6607283/2025/09/07/missouri-fan-field-goal-kick-kan
 **Why Google Got Off Easy**\
 `The message to other companies is plain: It pays to break the law.`\
 https://nytimes.com/2025/09/07/opinion/google-ruling-antirust.html
-
-**It Doesn’t Seem Wise to Let Trump Decide What War Is**\
-`We do not kill those merely suspected of being criminals from the air.`\
-https://nytimes.com/2025/09/07/opinion/trump-venezuela-airstrike-laws.html
-
-**Michigan-Oklahoma wasn't supposed to be about Sherrone Moore. But that's how it ended up.**\
-`Sherrone Moore downplayed his return to his alma mater during the week, but the loss to Oklahoma shifted the spotlight to him. `\
-https://nytimes.com/athletic/6607291/2025/09/07/michigan-oklahoma-sherrone-moore/
 

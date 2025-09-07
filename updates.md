@@ -1,3 +1,11 @@
+**Lowetide: Can Oilers navigate challenge of an aging roster?**\
+`The thoughts expressed by Connor McDavid about the Oilers' future should be shared by the team's management.`\
+https://nytimes.com/athletic/6603859/2025/09/07/edmonton-oilers-mcdavid-roster-aging/
+
+**Mandel's Final Thoughts: Florida's nightmare scenario, Oklahoma's revival and more in Week 2**\
+`Florida is a fine academic institution, but for some reason, its football field is becoming synonymous with boneheaded moments.`\
+https://nytimes.com/athletic/6607348/2025/09/07/college-football-week-2-final-thoughts-florida-oklahoma/
+
 **String Theory**\
 `Today, on the last day of the U.S. Open, we have a chat with a tennis writer.`\
 https://nytimes.com/2025/09/07/world/us-open-japan-prime-minister-books.html
