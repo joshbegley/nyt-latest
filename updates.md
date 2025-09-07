@@ -1,3 +1,7 @@
+**Game, Set, Match: Carlos Alcaraz defeats Jannik Sinner at U.S. Open to reclaim world No. 1**\
+`Sinner and Alcaraz's third consecutive Grand Slam final reaffirmed the gulf between them and the rest of men's tennis.`\
+https://nytimes.com/athletic/6608295/2025/09/07/us-open-final-alcaraz-sinner-result-analysis/
+
 **49ers TE George Kittle ruled out vs. Seahawks with hamstring injury**\
 `Kittle caught a 5-yard touchdown pass to get the 49ers scoring started before leaving with his injury.`\
 https://nytimes.com/athletic/6608768/2025/09/07/49ers-george-kittle-hamstring-injury/
