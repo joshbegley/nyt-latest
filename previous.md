@@ -1,3 +1,7 @@
+**Houthi Drone Hits Israeli Airport After Warning System Failure**\
+`The strike by the Yemeni militants followed the Israeli killing of several of their top leaders a week ago.`\
+https://nytimes.com/2025/09/07/world/middleeast/houthi-drone-israeli-airport.html
+
 **Maryland Gov. Wes Moore, Pressed About a Possible 2028 Run, Focuses on Re-election**\
 `Mr. Moore said in a TV interview that he “is not running for president.” The first-term governor, who has traded barbs with President Trump, said he was excited about seeking a second term.`\
 https://nytimes.com/2025/09/07/us/politics/wes-moore-2028-maryland.html
@@ -22,7 +26,7 @@ https://nytimes.com/athletic/6608443/2025/09/07/nfl-sex-toy-incident-cleveland-b
 `Russia launched hundreds of exploding drones and decoys across Ukraine in the largest air assault so far in the war, killing at least five people and setting a government building in Kyiv ablaze.`\
 https://nytimes.com/video/world/europe/100000010383840/russia-ukraine-strikes-kyiv.html
 
-**Panthers-Jaguars to resume after weather delay; Travis Hunter active early**\
+**Panthers-Jaguars resumes after weather delay; Travis Hunter active early**\
 `The game between the Panthers and Jaguars was delayed for more than 45 minutes.`\
 https://nytimes.com/athletic/6608247/2025/09/07/panthers-jaguars-score-result-takeaways-nfl-week-1/
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6608278/2025/09/07/ap-top-25-usf-sec-record-ranked-
 **American Pilot, 20, Is Released After Being Stuck Off Antarctica**\
 `Ethan Guo said that he had been effectively stranded at a Chilean military base on King George Island since June 28. The authorities said he landed without permission.`\
 https://nytimes.com/2025/09/07/world/americas/ethan-guo-antarctica-released.html
-
-**Rory McIlroy claims Irish Open, first win since the Masters**\
-`McIlroy defeated Joakim Lagergren in a playoff for his second Irish Open title of his career.`\
-https://nytimes.com/athletic/6608418/2025/09/07/rory-mcilroy-wins-amgen-irish-open/
 

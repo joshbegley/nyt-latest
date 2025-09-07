@@ -1,3 +1,11 @@
+**Houthi Drone Hits Israeli Airport After Warning System Failure**\
+`The strike by the Yemeni militants followed the Israeli killing of several of their top leaders a week ago.`\
+https://nytimes.com/2025/09/07/world/middleeast/houthi-drone-israeli-airport.html
+
+**Panthers-Jaguars resumes after weather delay; Travis Hunter active early**\
+`The game between the Panthers and Jaguars was delayed for more than 45 minutes.`\
+https://nytimes.com/athletic/6608247/2025/09/07/panthers-jaguars-score-result-takeaways-nfl-week-1/
+
 **Maryland Gov. Wes Moore, Pressed About a Possible 2028 Run, Focuses on Re-election**\
 `Mr. Moore said in a TV interview that he “is not running for president.” The first-term governor, who has traded barbs with President Trump, said he was excited about seeking a second term.`\
 https://nytimes.com/2025/09/07/us/politics/wes-moore-2028-maryland.html
