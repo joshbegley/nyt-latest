@@ -1,3 +1,7 @@
+**Trump Is Met With Mostly Boos at U.S. Open as Security Delays a Match**\
+`With the president in attendance at Arthur Ashe Stadium, the men’s final began as hundreds of people were still waiting to go through security screening.`\
+https://nytimes.com/2025/09/07/us/politics/trump-us-open-tennis-boos-delays.html
+
 **Houthi Drone Hits Israeli Airport After Warning System Failure**\
 `The strike by the Yemeni militants followed the Israeli killing of several of their top leaders a week ago.`\
 https://nytimes.com/2025/09/07/world/middleeast/houthi-drone-israeli-airport.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6608247/2025/09/07/panthers-jaguars-score-result-ta
 **AP Top 25: USF moves in; SEC sets record with 11 ranked teams**\
 `Ohio State, Penn State, LSU, Oregon and Miami make up the top five of the latest AP Top 25 college football rankings.`\
 https://nytimes.com/athletic/6608278/2025/09/07/ap-top-25-usf-sec-record-ranked-teams/
-
-**American Pilot, 20, Is Released After Being Stuck Off Antarctica**\
-`Ethan Guo said that he had been effectively stranded at a Chilean military base on King George Island since June 28. The authorities said he landed without permission.`\
-https://nytimes.com/2025/09/07/world/americas/ethan-guo-antarctica-released.html
 
