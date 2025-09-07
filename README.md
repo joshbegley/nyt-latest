@@ -1,3 +1,7 @@
+**‘The Conjuring: Last Rites’ Sets a Surprise Box Office Record**\
+`The horror sequel took in roughly $83 million over the weekend in the United States and Canada, about 65 percent more than anticipated.`\
+https://nytimes.com/2025/09/07/business/media/conjuring-last-rites-box-office.html
+
 **Marilyn Monroe’s Los Angeles Home Is Saved From Demolition**\
 `A judge denied a neighbor’s petition to raze the Spanish-style hacienda, which the City Council had declared a cultural landmark.`\
 https://nytimes.com/2025/09/07/us/marilyn-monroe-house-los-angeles.html
@@ -33,9 +37,4 @@ https://nytimes.com/athletic/6607882/2025/09/07/f1-mailbag-italian-grand-prix/
 **Italian GP: Verstappen sets new F1 record as McLaren orders spark late drama**\
 `Max Verstappen won F1's fastest-ever race in the 2025 Italian GP, while the title fight behind him took on a new chapter`\
 https://nytimes.com/athletic/6607857/2025/09/07/f1-italian-gp-recap-max-verstappen-win-oscar-piastri-lando-norris/
-
-**Submit your questions for The Athletic’s ACC football mailbag**\
-`<p>The 2025 college football season is two weeks old. It&#8217;s still very early, but storylines are already taking shape in the ACC. Submit your questions for Grace Raynor and Manny Navarro. We will post their answers later this week.</p>
-`\
-https://nytimes.com/athletic/6607947/2025/09/07/submit-your-questions-for-the-athletics-acc-football-mailbag-14/
 

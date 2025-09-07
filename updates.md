@@ -1,3 +1,11 @@
+**Marilyn Monroe’s Los Angeles Home Is Saved From Demolition**\
+`A judge denied a neighbor’s petition to raze the Spanish-style hacienda, which the City Council had declared a cultural landmark.`\
+https://nytimes.com/2025/09/07/us/marilyn-monroe-house-los-angeles.html
+
+**Ollie Bearman on the brink of F1 race ban after Italian GP crash with Carlos Sainz**\
+`Haas driver Ollie Bearman sits on ten penalty points, and will miss a race if he picks up two more `\
+https://nytimes.com/athletic/6608275/2025/09/07/ollie-bearman-f1-race-ban-italian-gp/
+
 **Ollie Bearman on the brink of F1 race ban after Italian GP crash with Carlos Sainz**\
 `Haas driver Ollie Bearman is now in danger of picking up a race ban after an incident in the 2025 Italian GP`\
 https://nytimes.com/athletic/6608275/2025/09/07/ollie-bearman-f1-race-ban-italian-gp/
