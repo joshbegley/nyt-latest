@@ -1,5 +1,5 @@
-**Framber Valdez takes hard-luck loss in first start since crossing up his catcher**\
-`The lefty did a much better job maintaining his focus on a day when not much went right for the Astros.`\
+**Astros' Framber Valdez takes hard-luck loss in first start since crossing up catcher**\
+`The left-hander did a much better job maintaining his focus on a day when not much went right for the Astros in a 4-2 loss to the Rangers.`\
 https://nytimes.com/athletic/6608924/2025/09/07/astros-framber-valdez-catcher-cross-up-return/
 
 **Geno Smith rewards a franchise's confidence in his Raiders debut**\
