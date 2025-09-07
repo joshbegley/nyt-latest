@@ -1,3 +1,7 @@
+**At U.S. Open, scene at wheelchair competitions a sign of 20 years of growth**\
+`Rivalries and the atmosphere at Grand Slam tournaments have helped wheelchair tennis grow.`\
+https://nytimes.com/athletic/6606785/2025/09/07/us-open-2025-wheelchair-finals/
+
 **What We Know About the Hyundai-LG Plant Immigration Raid in Georgia**\
 `Several hundred workers, most of them South Korean nationals, were detained at the construction site of a sprawling electric vehicle battery plant on Thursday.`\
 https://nytimes.com/2025/09/07/us/politics/hyundai-plant-immigration-raid-georgia.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/07/us/politics/in-the-battle-for-congress-working-cl
 **3 Summer Books to Carry You Into Fall**\
 `MJ Franklin, an editor at The New York Times Book Review, recommends three great books that came out this summer.`\
 https://nytimes.com/video/books/100000010361926/3-summer-books-to-carry-you-into-fall.html
-
-**Demystifying the Life of an Artist, the Sally Mann Way**\
-`Now 74 and “close to handing in my dinner pail,” the photographer recalls old slights, home remedies and balancing art and children in a new memoir.`\
-https://nytimes.com/2025/09/07/books/review/sally-mann-art-work.html
 

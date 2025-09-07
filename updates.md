@@ -1,3 +1,7 @@
+**At U.S. Open, scene at wheelchair competitions a sign of 20 years of growth**\
+`Rivalries and the atmosphere at Grand Slam tournaments have helped wheelchair tennis grow.`\
+https://nytimes.com/athletic/6606785/2025/09/07/us-open-2025-wheelchair-finals/
+
 **What We Know About the Hyundai-LG Plant Immigration Raid in Georgia**\
 `Several hundred workers, most of them South Korean nationals, were detained at the construction site of a sprawling electric vehicle battery plant on Thursday.`\
 https://nytimes.com/2025/09/07/us/politics/hyundai-plant-immigration-raid-georgia.html
