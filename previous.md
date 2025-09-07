@@ -1,3 +1,7 @@
+**Maryland Gov. Wes Moore, Pressed About a Possible 2028 Run, Focuses on Re-election**\
+`Mr. Moore said in a TV interview that he “is not running for president.” The first-term governor, who has traded barbs with President Trump, said he was excited about seeking a second term.`\
+https://nytimes.com/2025/09/07/us/politics/wes-moore-2028-maryland.html
+
 **Micah Parsons active for Packers vs. Lions**\
 `The newly acquired edge rusher has been hampered by an L4/L5 facet joint sprain in his back.`\
 https://nytimes.com/athletic/6608307/2025/09/07/micah-parsons-active-packers-lions/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/07/world/americas/ethan-guo-antarctica-released.html
 **Rory McIlroy claims Irish Open, first win since the Masters**\
 `McIlroy defeated Joakim Lagergren in a playoff for his second Irish Open title of his career.`\
 https://nytimes.com/athletic/6608418/2025/09/07/rory-mcilroy-wins-amgen-irish-open/
-
-**McLaren team orders had Verstappen laughing — but it won't change its ways**\
-`McLaren's harmonious F1 title fight survived another team orders test. Can it last?`\
-https://nytimes.com/athletic/6608382/2025/09/07/lando-norris-oscar-piastri-f1-team-orders-monza/
 

@@ -1,3 +1,7 @@
+**Maryland Gov. Wes Moore, Pressed About a Possible 2028 Run, Focuses on Re-election**\
+`Mr. Moore said in a TV interview that he “is not running for president.” The first-term governor, who has traded barbs with President Trump, said he was excited about seeking a second term.`\
+https://nytimes.com/2025/09/07/us/politics/wes-moore-2028-maryland.html
+
 **Micah Parsons active for Packers vs. Lions**\
 `The newly acquired edge rusher has been hampered by an L4/L5 facet joint sprain in his back.`\
 https://nytimes.com/athletic/6608307/2025/09/07/micah-parsons-active-packers-lions/
