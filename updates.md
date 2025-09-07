@@ -1,3 +1,7 @@
+**Barnett Shepherd, Champion of Staten Island’s Heritage, Dies at 87**\
+`A longtime resident, he devoted his career to Historic Richmond Town and Sailors’ Snug Harbor, two of the borough’s most important cultural institutions.`\
+https://nytimes.com/2025/09/07/nyregion/barnett-shepherd-dead.html
+
 **Trump Is Met With Mostly Boos at U.S. Open as Security Delays a Match**\
 `With the president in attendance at Arthur Ashe Stadium, the men’s final began as hundreds of people were still waiting to go through security screening.`\
 https://nytimes.com/2025/09/07/us/politics/trump-us-open-tennis-boos-delays.html

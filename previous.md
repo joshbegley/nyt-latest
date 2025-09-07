@@ -1,3 +1,7 @@
+**Barnett Shepherd, Champion of Staten Island’s Heritage, Dies at 87**\
+`A longtime resident, he devoted his career to Historic Richmond Town and Sailors’ Snug Harbor, two of the borough’s most important cultural institutions.`\
+https://nytimes.com/2025/09/07/nyregion/barnett-shepherd-dead.html
+
 **Trump Is Met With Mostly Boos at U.S. Open as Security Delays a Match**\
 `With the president in attendance at Arthur Ashe Stadium, the men’s final began as hundreds of people were still waiting to go through security screening.`\
 https://nytimes.com/2025/09/07/us/politics/trump-us-open-tennis-boos-delays.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/world/europe/100000010383840/russia-ukraine-strikes-ky
 **Panthers-Jaguars resumes after weather delay; Travis Hunter active early**\
 `The game between the Panthers and Jaguars was delayed for more than 45 minutes.`\
 https://nytimes.com/athletic/6608247/2025/09/07/panthers-jaguars-score-result-takeaways-nfl-week-1/
-
-**AP Top 25: USF moves in; SEC sets record with 11 ranked teams**\
-`Ohio State, Penn State, LSU, Oregon and Miami make up the top five of the latest AP Top 25 college football rankings.`\
-https://nytimes.com/athletic/6608278/2025/09/07/ap-top-25-usf-sec-record-ranked-teams/
 
