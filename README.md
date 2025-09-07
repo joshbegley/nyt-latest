@@ -2,8 +2,8 @@
 `The Cyclones again won the in-state rivalry on a late field goal. They've won three of the past four against Iowa.`\
 https://nytimes.com/athletic/6606765/2025/09/06/iowa-state-iowa-kansas-state-cy-hawk/
 
-**Florida spitting penalty critical in South Florida’s 18-16 upset of No. 13 Gators**\
-`It’s South Florida’s first win over Florida in four tries and first road win over a ranked opponent since a 2011 victory at Notre Dame.`\
+**Florida spitting penalty critical in South Florida's 18-16 upset of No. 13 Gators**\
+`It's South Florida's first win over Florida in four tries and first road win over a ranked opponent since a 2011 victory at Notre Dame.`\
 https://nytimes.com/athletic/6606774/2025/09/06/south-florida-florida-spitting-billy-napier/
 
 **Tensions Mount As Trump Administration Threatens Federal Crackdown in Chicago**\
