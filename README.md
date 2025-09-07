@@ -1,3 +1,7 @@
+**Oil Producers Announce New Increase in Production**\
+`In a show of confidence in the market, the group, led by Saudi Arabia, said it would begin unwinding a further set of agreed cuts.`\
+https://nytimes.com/2025/09/07/business/opec-plus-oil-production-increase.html
+
 **This Aguachile Shrimp Salad Will Brighten Your Day**\
 `Perfect for those last warm-weather picnics.`\
 https://nytimes.com/2025/09/07/dining/this-aguachile-shrimp-salad-will-brighten-your-day.html
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/6607167/2025/09/07/a-spitting-incident-that-could-p
 **USMNT played at home but South Korea fans made it feel like a road game**\
 `Another home game, another passionate crowd full of away fans`\
 https://nytimes.com/athletic/6607281/2025/09/07/usmnt-fans-pochettino-hong-myung-bo-south-korea/
-
-**Disney World’s Window on America**\
-`Abigail Disney, a descendant of Disney’s founders, and other readers respond to an essay about Disney and America. Also: A stark contrast between two political parties.`\
-https://nytimes.com/2025/09/07/opinion/disney-middle-class.html
 

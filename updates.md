@@ -1,3 +1,11 @@
+**This Aguachile Shrimp Salad Will Brighten Your Day**\
+`Perfect for those last warm-weather picnics.`\
+https://nytimes.com/2025/09/07/dining/this-aguachile-shrimp-salad-will-brighten-your-day.html
+
+**Italian GP: Verstappen sets new F1 record as McLaren orders spark late drama**\
+`Max Verstappen won F1's fastest-ever race in the 2025 Italian GP, while the title fight behind him took on a new chapter`\
+https://nytimes.com/athletic/6607857/2025/09/07/f1-italian-gp-recap-max-verstappen-win-oscar-piastri-lando-norris/
+
 **Ruth Paine, Who Gave Lodging to Marina Oswald, Dies at 92**\
 `Her knowledge of Lee Harvey Oswald and his wife made her a noteworthy witness during the Warren Commission’s investigation into the assassination of President John F. Kennedy.`\
 https://nytimes.com/2025/09/07/us/ruth-paine-dead.html
