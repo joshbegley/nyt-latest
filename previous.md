@@ -1,3 +1,11 @@
+**USMNT worse than ever in 21st century, per Elo ratings**\
+`COLUMBUS, Ohio — The U.`\
+https://nytimes.com/athletic/6608676/2025/09/07/usmnt-worse-than-ever-in-21st-century-per-elo-ratings/
+
+**Maxi Yacht Rolex Cup: A Challenging Race With Repeat Customers**\
+`Attempting to conquer the prestigious regatta, owners of these top-level, big boats keep coming back.`\
+https://nytimes.com/2025/09/07/sports/sailing/maxi-yacht-rolex-cup-sailors.html
+
 **Game, Set, Match: Carlos Alcaraz defeats Jannik Sinner at U.S. Open to reclaim world No. 1**\
 `Sinner and Alcaraz's third consecutive Grand Slam final reaffirmed the gulf between them and the rest of men's tennis.`\
 https://nytimes.com/athletic/6608295/2025/09/07/us-open-final-alcaraz-sinner-result-analysis/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6608585/2025/09/07/steelers-jets-score-result-takea
 **Commanders defense dominates as Washington rolls past Giants: Key takeaways**\
 `Jayden Daniels was efficient, if unspectacular, in the victory over the NFC East foe.`\
 https://nytimes.com/athletic/6608360/2025/09/07/commanders-giants-score-result-takeaways-nfl-week-1/
-
-**Baker Mayfield rallies Buccaneers past Falcons: Key takeaways**\
-`Atlanta falls short when Younghoe Koo misses 44-yard field goal.`\
-https://nytimes.com/athletic/6608253/2025/09/07/falcons-buccaneers-score-result-takeaways-nfl-week-1/
-
-**Braves takeaways: Acuña slump deepens, Strider delayed, Olson's XBH, Snitker milestone**\
-`Atlanta has lost nine of 15 games and dropped three consecutive series against teams that would be in the postseason today.`\
-https://nytimes.com/athletic/6608630/2025/09/07/braves-takeaways-mariners-five-home-runs/
 
