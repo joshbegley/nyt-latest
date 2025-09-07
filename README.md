@@ -1,3 +1,19 @@
+**Stop Funding Trump’s Takeover**\
+`Democrats aren’t powerless, and they don’t have to enable autocracy.`\
+https://nytimes.com/2025/09/07/opinion/trump-senate-democrats-shutdown.html
+
+**The New York Times in Print for Sunday, Sep. 7, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/09/07/todays-new-york-times
+
+**The Future Is Flag**\
+`Flag football offers girls as well as boys a means of enjoying the sport without the risk of brain damage.`\
+https://nytimes.com/2025/09/07/opinion/nfl-flag-football.html
+
+**If Democrats Have a Better Plan, I’d Like to Hear It**\
+`In a few weeks the government’s funding will run out. If Democrats vote for a new spending bill, they will be funding Trump’s autocratic takeover — and I don’t see how they can.`\
+https://nytimes.com/video/opinion/100000010381405/if-democrats-have-a-better-plan-id-like-to-hear-it.html
+
 **Lions, Jameson Williams agree to 3-year extension worth up to $83 million: Reports**\
 `If the Lions were going to get an extension done with Williams, this was the time to do it.`\
 https://nytimes.com/athletic/6607135/2025/09/07/lions-jameson-williams-3-year-extension-83-million/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6606145/2025/09/07/elliot-anderson-england-midfield
 **Obligations, options and loans: Explaining the Premier League's latest transfer trend**\
 `Whether they kick the PSR can down the road or provide an exit strategy for worst-case scenarios, these deals can solve many problems`\
 https://nytimes.com/athletic/6601467/2025/09/07/harvey-elliott-loan-obligation-transfer-explained/
-
-**The rise of the individual striker coach: 'I don't believe in natural goalscoring'**\
-`Why individual coaches are becoming just as important to a player’s development as those attached to their own club`\
-https://nytimes.com/athletic/6560032/2025/09/07/the-rise-of-the-individual-striker-coach/
-
-**Quote of the Day: Forced to Leave Yet Again, With 1948 Displacement Feeling Fresher Than Ever**\
-`Quotation of the Day for Sunday, September 7, 2025.`\
-https://nytimes.com/2025/09/07/pageoneplus/quote-of-the-day-forced-to-leave-yet-again-with-1948-displacement-feeling-fresher-than-ever.html
-
-**Corrections: Sept. 7, 2025**\
-`Corrections that appeared in print on Sunday, Sept. 7, 2025.`\
-https://nytimes.com/2025/09/07/pageoneplus/corrections-sept-7-2025.html
-
-**Why France’s Financial Woes Are Pushing Its Government to the Brink**\
-`The French prime minister has proposed drastic spending cuts and tax increases to shore up the country’s accounts, but his plan could backfire.`\
-https://nytimes.com/2025/09/07/business/france-government-collapse-economy.html
 
