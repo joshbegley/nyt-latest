@@ -1,3 +1,11 @@
+**Nepal Bans 26 Social Media Platforms, Including Facebook and YouTube**\
+`Critics worry a new law could curb freedom of expression, affect tourism and cut communication with the many Nepalis who work abroad.`\
+https://nytimes.com/2025/09/07/world/asia/nepal-bans-social-media-platforms.html
+
+**Egypt-Israel Tensions Rise Over Attack on Gaza City**\
+`A large-scale Israeli assault on the city in northern Gaza could push hundreds of thousands of Palestinians southward toward Egypt’s border.`\
+https://nytimes.com/2025/09/07/world/middleeast/egypt-israel-gaza-city.html
+
 **Lowetide: Can Oilers navigate challenge of an aging roster?**\
 `The thoughts expressed by Connor McDavid about the Oilers' future should be shared by the team's management.`\
 https://nytimes.com/athletic/6603859/2025/09/07/edmonton-oilers-mcdavid-roster-aging/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6607330/2025/09/07/john-mateer-oklahoma-michigan/
 **NFL Week 1 top storylines: New eras, encore presentations, high-pressure situations**\
 `Aaron Rodgers and Justin Fields meet in a Steelers-Jets revenge game, while Lamar Jackson and Josh Allen battle again.`\
 https://nytimes.com/athletic/6593170/2025/09/07/nfl-week-1-storylines-josh-allen-lamar-jackson/
-
-**A fan had a chance to win $25,000. He trolled his team’s rival instead**\
-`'It was a no-brainer in my mind to stoke the fire a little bit,' said lifelong Mizzou fan Carter Arey.`\
-https://nytimes.com/athletic/6607283/2025/09/07/missouri-fan-field-goal-kick-kansas/
-
-**Why Google Got Off Easy**\
-`The message to other companies is plain: It pays to break the law.`\
-https://nytimes.com/2025/09/07/opinion/google-ruling-antirust.html
 

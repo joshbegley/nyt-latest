@@ -1,3 +1,11 @@
+**Nepal Bans 26 Social Media Platforms, Including Facebook and YouTube**\
+`Critics worry a new law could curb freedom of expression, affect tourism and cut communication with the many Nepalis who work abroad.`\
+https://nytimes.com/2025/09/07/world/asia/nepal-bans-social-media-platforms.html
+
+**Egypt-Israel Tensions Rise Over Attack on Gaza City**\
+`A large-scale Israeli assault on the city in northern Gaza could push hundreds of thousands of Palestinians southward toward Egypt’s border.`\
+https://nytimes.com/2025/09/07/world/middleeast/egypt-israel-gaza-city.html
+
 **Lowetide: Can Oilers navigate challenge of an aging roster?**\
 `The thoughts expressed by Connor McDavid about the Oilers' future should be shared by the team's management.`\
 https://nytimes.com/athletic/6603859/2025/09/07/edmonton-oilers-mcdavid-roster-aging/
