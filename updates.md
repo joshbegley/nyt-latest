@@ -1,3 +1,15 @@
+**Gianluigi Donnarumma may not feel like a 'Pep player', but neither did Erling Haaland**\
+`Donnarumma is the Haaland of goalkeepers. His deficiencies are overplayed. His generational talent somehow continues to be underplayed`\
+https://nytimes.com/athletic/6604783/2025/09/07/donnarumma-pep-guardiola-man-city/
+
+**Anderson offers Tuchel a solution to England's problematic No 6 role**\
+`England's win over Andorra was routine but offered a glimpse into what Tuchel's midfield might look like – and where Declan Rice might play`\
+https://nytimes.com/athletic/6606145/2025/09/07/elliot-anderson-england-midfield/
+
+**The rise of the individual striker coach: 'I don't believe in natural goalscoring'**\
+`Why individual coaches are becoming just as important to a player’s development as those attached to their own club`\
+https://nytimes.com/athletic/6560032/2025/09/07/the-rise-of-the-individual-striker-coach/
+
 **Obligations, options and loans: Explaining the Premier League's latest transfer trend**\
 `Whether they kick the PSR can down the road or provide an exit strategy for worst-case scenarios, these deals can solve many problems`\
 https://nytimes.com/athletic/6601467/2025/09/07/harvey-elliott-loan-obligation-transfer-explained/
