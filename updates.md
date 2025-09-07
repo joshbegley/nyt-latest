@@ -1,3 +1,11 @@
+**A View From Inside Iran**\
+`Our correspondent found a sense of apprehension in the country after the 12-day war with Israel.`\
+https://nytimes.com/2025/09/07/briefing/inside-iran-japan-prime-minister-kyiv-attack.html
+
+**Bengals capitalize on Browns miscues to secure Week 1 win: Takeaways**\
+`Browns kicker Andre Szmyt missed a go-ahead field goal attempt late in the fourth quarter.`\
+https://nytimes.com/athletic/6608559/2025/09/07/bengals-browns-score-results-takeaways/
+
 **Aaron Rodgers, Steelers top Jets 34-32 in thrilling comeback: Takeaways**\
 `Rodgers finishes 22-of-30 passing with 244 yards and four touchdowns, moving him one TD behind Brett Favre for No. 4 on the all-time list.`\
 https://nytimes.com/athletic/6608585/2025/09/07/steelers-jets-score-result-takeaways-nfl-week-1/
