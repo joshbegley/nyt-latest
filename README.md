@@ -1,3 +1,7 @@
+**Geno Smith rewards a franchise's confidence in his Raiders debut**\
+`The quarterback, hand-picked by Pete Carroll, delivered in a season-opening win over the Patriots.`\
+https://nytimes.com/athletic/6608766/2025/09/07/geno-smith-pete-carroll-raiders-debut/
+
 **Blue Jays: 'Pretty obvious' Max Scherzer was tipping pitches ahead of Yankees' home run**\
 `The Yankees held on for a key win after getting help from an unlikely source: Max Scherzer, who was tipping his changeup in the first.`\
 https://nytimes.com/athletic/6608706/2025/09/07/max-scherzer-pitch-tipping-yankees-blue-jays/
@@ -19,7 +23,7 @@ https://nytimes.com/2025/09/07/crosswords/daily-puzzle-2025-09-08.html
 https://nytimes.com/2025/09/07/sports/sailing/black-sails-maxi-yacht-rolex-cup.html
 
 **Shohei Ohtani's two home runs help Dodgers snap skid to last-place teams**\
-`The Dodgers had dropped seven of their last eight games against teams with losing records and 22-30 since July 4 before Sunday's win.`\
+`The Dodgers had dropped seven of their last eight games against teams with losing records and gone 22-30 since July 4 before Sunday's win.`\
 https://nytimes.com/athletic/6608803/2025/09/07/dodgers-shohei-ohtani-orioles-losing-streak/
 
 **USMNT worse than ever in 21st century, per Elo ratings**\
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/07/sports/sailing/maxi-yacht-rolex-cup-sailors.html
 **Game, Set, Match: Carlos Alcaraz defeats Jannik Sinner at U.S. Open to reclaim world No. 1**\
 `Sinner and Alcaraz's third consecutive Grand Slam final reaffirmed the gulf between them and the rest of men's tennis.`\
 https://nytimes.com/athletic/6608295/2025/09/07/us-open-final-alcaraz-sinner-result-analysis/
-
-**49ers TE George Kittle ruled out vs. Seahawks with hamstring injury**\
-`Kittle caught a 5-yard touchdown pass to get the 49ers scoring started before leaving with his injury.`\
-https://nytimes.com/athletic/6608768/2025/09/07/49ers-george-kittle-hamstring-injury/
 
