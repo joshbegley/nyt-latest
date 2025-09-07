@@ -1,3 +1,11 @@
+**L.A.P.D. Stops Security Services for Kamala Harris**\
+`The department had assigned officers to protect the former vice president after her Secret Service detail was terminated. Some officers criticized the move, people familiar with the matter said.`\
+https://nytimes.com/2025/09/06/us/lapd-kamala-harris-security.html
+
+**Immigration Raid Exposes Tensions From Seoul to Washington to Rural Georgia**\
+`The raid at a Georgia plant being built with heavy investment from South Korea reveals strain as a rush to expand manufacturing in the United States clashes with an immigration crackdown.`\
+https://nytimes.com/2025/09/06/us/immigration-raid-georgia.html
+
 **How to watch Astros at Rangers: Time, TV, streaming for September 7**\
 `Find out how to watch the Houston Astros play the Texas Rangers, with time, TV channel, and streaming information.`\
 https://nytimes.com/athletic/6606951/2025/09/06/astros-vs-rangers-stream-how-to-watch-sept-7/
