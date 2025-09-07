@@ -1,3 +1,7 @@
+**Ready to Be Picked**\
+`Margaret Seikel suggests we get a grip.`\
+https://nytimes.com/2025/09/07/crosswords/daily-puzzle-2025-09-08.html
+
 **Even Sails Have a Fashion. Black Is In.**\
 `Maxis are carrying carbon-fiber sails that outperform every other miracle fabric used before.`\
 https://nytimes.com/2025/09/07/sports/sailing/black-sails-maxi-yacht-rolex-cup.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6608562/2025/09/07/saints-cardinals-score-result-ta
 **A View From Inside Iran**\
 `Our correspondent found a sense of apprehension in the country after the 12-day war with Israel.`\
 https://nytimes.com/2025/09/07/briefing/inside-iran-japan-prime-minister-kyiv-attack.html
-
-**Bengals capitalize on Browns miscues to secure Week 1 win: Takeaways**\
-`Browns kicker Andre Szmyt missed a go-ahead field goal attempt late in the fourth quarter.`\
-https://nytimes.com/athletic/6608559/2025/09/07/bengals-browns-score-results-takeaways/
 

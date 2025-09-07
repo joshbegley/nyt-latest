@@ -1,3 +1,7 @@
+**Ready to Be Picked**\
+`Margaret Seikel suggests we get a grip.`\
+https://nytimes.com/2025/09/07/crosswords/daily-puzzle-2025-09-08.html
+
 **Even Sails Have a Fashion. Black Is In.**\
 `Maxis are carrying carbon-fiber sails that outperform every other miracle fabric used before.`\
 https://nytimes.com/2025/09/07/sports/sailing/black-sails-maxi-yacht-rolex-cup.html
