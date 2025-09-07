@@ -1,3 +1,7 @@
+**This Aguachile Shrimp Salad Will Brighten Your Day**\
+`Perfect for those last warm-weather picnics.`\
+https://nytimes.com/2025/09/07/dining/this-aguachile-shrimp-salad-will-brighten-your-day.html
+
 **Ruth Paine, Who Gave Lodging to Marina Oswald, Dies at 92**\
 `Her knowledge of Lee Harvey Oswald and his wife made her a noteworthy witness during the Warren Commission’s investigation into the assassination of President John F. Kennedy.`\
 https://nytimes.com/2025/09/07/us/ruth-paine-dead.html
@@ -7,7 +11,7 @@ https://nytimes.com/2025/09/07/us/ruth-paine-dead.html
 https://nytimes.com/athletic/6607882/2025/09/07/f1-mailbag-italian-grand-prix/
 
 **Italian GP: Verstappen sets new F1 record as McLaren orders spark late drama**\
-`Max Verstappen won F1's fastest-ever race, while the title fight behind him took on a new chapter`\
+`Max Verstappen won F1's fastest-ever race in the 2025 Italian GP, while the title fight behind him took on a new chapter`\
 https://nytimes.com/athletic/6607857/2025/09/07/f1-italian-gp-recap-max-verstappen-win-oscar-piastri-lando-norris/
 
 **Submit your questions for The Athletic’s ACC football mailbag**\
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/6607281/2025/09/07/usmnt-fans-pochettino-hong-myung
 **Disney World’s Window on America**\
 `Abigail Disney, a descendant of Disney’s founders, and other readers respond to an essay about Disney and America. Also: A stark contrast between two political parties.`\
 https://nytimes.com/2025/09/07/opinion/disney-middle-class.html
-
-**Until Saturday: Hot-seat coach's brutal gauntlet**\
-`Until Saturday is The Athletic's free CFB newsletter.`\
-https://nytimes.com/athletic/6607670/2025/09/07/billy-napier-florida-schedule-until-saturday/
 
