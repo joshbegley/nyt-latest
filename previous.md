@@ -18,8 +18,8 @@ https://nytimes.com/2025/09/07/crosswords/daily-puzzle-2025-09-08.html
 `Maxis are carrying carbon-fiber sails that outperform every other miracle fabric used before.`\
 https://nytimes.com/2025/09/07/sports/sailing/black-sails-maxi-yacht-rolex-cup.html
 
-**Shohei Ohtani's two home runs help Dodgers snap losing streak to last-place teams**\
-`The Dodgers had dropped seven of their last nine games against teams with losing records and gone 22-30 since July 4 before Sunday's win.`\
+**Shohei Ohtani's two home runs help Dodgers snap skid to last-place teams**\
+`The Dodgers had dropped seven of their last eight games against teams with losing records and 22-30 since July 4 before Sunday's win.`\
 https://nytimes.com/athletic/6608803/2025/09/07/dodgers-shohei-ohtani-orioles-losing-streak/
 
 **USMNT worse than ever in 21st century, per Elo ratings**\

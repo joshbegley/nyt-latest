@@ -1,3 +1,7 @@
+**Shohei Ohtani's two home runs help Dodgers snap skid to last-place teams**\
+`The Dodgers had dropped seven of their last eight games against teams with losing records and 22-30 since July 4 before Sunday's win.`\
+https://nytimes.com/athletic/6608803/2025/09/07/dodgers-shohei-ohtani-orioles-losing-streak/
+
 **Blue Jays: 'Pretty obvious' Max Scherzer was tipping pitches ahead of Yankees' home run**\
 `The Yankees held on for a key win after getting help from an unlikely source: Max Scherzer, who was tipping his changeup in the first.`\
 https://nytimes.com/athletic/6608706/2025/09/07/max-scherzer-pitch-tipping-yankees-blue-jays/
