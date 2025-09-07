@@ -1,3 +1,11 @@
+**With Billy Porter Sidelined by Illness, ‘Cabaret’ Moves Up Closing**\
+`The revival will now end its run on Sept. 21, much earlier than previously hoped for.`\
+https://nytimes.com/2025/09/07/theater/cabaret-billy-porter-broadway.html
+
+**Everton debutant follows in Dixie Dean's footsteps as she makes history at Anfield**\
+`Everton's strength in depth was crucial to an opening-day victory at Anfield`\
+https://nytimes.com/athletic/6607997/2025/09/07/everton-win-liverpool-wsl-analysis/
+
 **‘The Conjuring: Last Rites’ Sets a Surprise Box Office Record**\
 `The horror sequel took in roughly $83 million over the weekend in the United States and Canada, about 65 percent more than anticipated.`\
 https://nytimes.com/2025/09/07/business/media/conjuring-last-rites-box-office.html

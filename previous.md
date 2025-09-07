@@ -1,3 +1,11 @@
+**With Billy Porter Sidelined by Illness, ‘Cabaret’ Moves Up Closing**\
+`The revival will now end its run on Sept. 21, much earlier than previously hoped for.`\
+https://nytimes.com/2025/09/07/theater/cabaret-billy-porter-broadway.html
+
+**Everton debutant follows in Dixie Dean's footsteps as she makes history at Anfield**\
+`Everton's strength in depth was crucial to an opening-day victory at Anfield`\
+https://nytimes.com/athletic/6607997/2025/09/07/everton-win-liverpool-wsl-analysis/
+
 **‘The Conjuring: Last Rites’ Sets a Surprise Box Office Record**\
 `The horror sequel took in roughly $83 million over the weekend in the United States and Canada, about 65 percent more than anticipated.`\
 https://nytimes.com/2025/09/07/business/media/conjuring-last-rites-box-office.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/09/07/dining/this-aguachile-shrimp-salad-will-brighten-
 **Ruth Paine, Who Gave Lodging to Marina Oswald, Dies at 92**\
 `Her knowledge of Lee Harvey Oswald and his wife made her a noteworthy witness during the Warren Commission’s investigation into the assassination of President John F. Kennedy.`\
 https://nytimes.com/2025/09/07/us/ruth-paine-dead.html
-
-**Italian Grand Prix: Submit your questions for our F1 mailbag**\
-`What questions do you have for our F1 writers after the 2025 Italian Grand Prix?`\
-https://nytimes.com/athletic/6607882/2025/09/07/f1-mailbag-italian-grand-prix/
-
-**Italian GP: Verstappen sets new F1 record as McLaren orders spark late drama**\
-`Max Verstappen won F1's fastest-ever race in the 2025 Italian GP, while the title fight behind him took on a new chapter`\
-https://nytimes.com/athletic/6607857/2025/09/07/f1-italian-gp-recap-max-verstappen-win-oscar-piastri-lando-norris/
 
