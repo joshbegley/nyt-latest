@@ -1,3 +1,7 @@
+**Return of the Border War embodies everything we love about college football rivalries**\
+`Saturday marked the revival of the bitter rivalry between Kansas and Missouri after 14 long years.`\
+https://nytimes.com/athletic/6606914/2025/09/06/missouri-kansas-border-war-beau-pribula/
+
 **L.A.P.D. Stops Security Services for Kamala Harris**\
 `The department had assigned officers to protect the former vice president after her Secret Service detail was terminated. Some officers criticized the move, people familiar with the matter said.`\
 https://nytimes.com/2025/09/06/us/lapd-kamala-harris-security.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6606928/2025/09/06/twins-vs-royals-stream-how-to-wa
 **How to watch Guardians at Rays: Time, TV, streaming for September 7**\
 `Find out how to watch the Cleveland Guardians play the Tampa Bay Rays, with time, TV channel, and streaming information.`\
 https://nytimes.com/athletic/6606922/2025/09/06/guardians-vs-rays-stream-how-to-watch-sept-7/
-
-**How to watch Giants at Cardinals: Time, TV, streaming for September 7**\
-`Find out how to watch the San Francisco Giants play the St. Louis Cardinals, with time, TV channel, and streaming information.`\
-https://nytimes.com/athletic/6606920/2025/09/06/giants-vs-cardinals-stream-how-to-watch-sept-7/
 
