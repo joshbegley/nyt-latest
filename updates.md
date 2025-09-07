@@ -1,3 +1,19 @@
+**No Corrections: Sept. 08, 2025**\
+`No corrections appeared in print on Monday, Sept. 08, 2025.`\
+https://nytimes.com/2025/09/07/pageoneplus/no-corrections-sept-08-2025.html
+
+**Packers bully the Lions and win season opener: Key takeaways**\
+`Jordan Love threw two touchdown passes and Micah Parsons got his first sack as a Packer.`\
+https://nytimes.com/athletic/6608915/2025/09/07/lions-packers-score-result-takeaways-nfl-week-1/
+
+**Sneak peak: If the Yankees keep this up, they'll be dangerous in October**\
+`Since the Boston Red Sox embarrassed them two Saturdays ago, the Yankees have won 11 of 14 games: "We're a lot sharper."`\
+https://nytimes.com/athletic/6608671/2025/09/07/new-york-yankees-october/
+
+**For a Patriots team expecting a big turnaround, this loss felt like more of the same**\
+`Despite setting manageable expectations, Mike Vrabel's team struggled offensively and didn't seem much improved from the last two seasons.`\
+https://nytimes.com/athletic/6608923/2025/09/07/raiders-patriots-mike-vrabel-nfl-week-1/
+
 **Astros' Framber Valdez takes hard-luck loss in first start since crossing up catcher**\
 `The left-hander did a much better job maintaining his focus on a day when not much went right for the Astros in a 4-2 loss to the Rangers.`\
 https://nytimes.com/athletic/6608924/2025/09/07/astros-framber-valdez-catcher-cross-up-return/
