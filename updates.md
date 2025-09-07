@@ -1,3 +1,11 @@
+**Cam Heyward, Steelers agree to new contract, Heyward to play Week 1: Source**\
+`Heyward, one of the team's captains, staged a "hold-in" earlier this summer.`\
+https://nytimes.com/athletic/6574061/2025/09/06/cam-heyward-steelers-new-contract/
+
+**College Football Playoff 2025 projections: Where the bracket stands with Week 2 underway**\
+`Our College Football Playoff predictions model is back. Check here for regular updates on CFP and national championship odds for 2025.`\
+https://nytimes.com/athletic/6560541/2025/09/06/college-football-playoff-bracket-projections-odds/
+
 **Iowa State is no longer looking up at Iowa (or Kansas State). It's the other way around**\
 `The Cyclones again won the in-state rivalry on a late field goal. They've won three of the past four against Iowa.`\
 https://nytimes.com/athletic/6606765/2025/09/06/iowa-state-iowa-kansas-state-cy-hawk/

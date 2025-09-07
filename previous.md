@@ -1,3 +1,11 @@
+**Cam Heyward, Steelers agree to new contract, Heyward to play Week 1: Source**\
+`Heyward, one of the team's captains, staged a "hold-in" earlier this summer.`\
+https://nytimes.com/athletic/6574061/2025/09/06/cam-heyward-steelers-new-contract/
+
+**College Football Playoff 2025 projections: Where the bracket stands with Week 2 underway**\
+`Our College Football Playoff predictions model is back. Check here for regular updates on CFP and national championship odds for 2025.`\
+https://nytimes.com/athletic/6560541/2025/09/06/college-football-playoff-bracket-projections-odds/
+
 **Iowa State is no longer looking up at Iowa (or Kansas State). It's the other way around**\
 `The Cyclones again won the in-state rivalry on a late field goal. They've won three of the past four against Iowa.`\
 https://nytimes.com/athletic/6606765/2025/09/06/iowa-state-iowa-kansas-state-cy-hawk/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6605495/2025/09/06/usmnt-south-korea-friendly-score
 **Cardiologist Draws Outcry With Claim Tying Vaccines to Royals’ Cancer**\
 `The British government condemned the remarks, made without evidence by the cardiologist, Dr. Aseem Malhotra, at an event for the anti-immigration party led by Nigel Farage.`\
 https://nytimes.com/2025/09/06/world/europe/britain-vaccines-royal-family.html
-
-**Hikers on Psychedelic Mushrooms Are Rescued From New York Wilderness**\
-`The hikers, who were in the Catskill Mountains, told officials that they had consumed the hallucinogen and one was experiencing a “debilitating high.” It was the second such episode in recent months.`\
-https://nytimes.com/2025/09/06/nyregion/hikers-mushrooms-catskills-new-york.html
-
-**Mark Volman, Singer of ‘Happy Together’ and Other Hits, Dies at 78**\
-`In the 1960s, he and his fellow singer Howard Kaylan embodied the feel-good sound of the Turtles. The two later found new fame as Flo & Eddie.`\
-https://nytimes.com/2025/09/06/arts/music/mark-volman-dead.html
 
