@@ -1,3 +1,11 @@
+**Oklahoma changes pay off in early-season test against Michigan: Key takeaways**\
+`No. 18 Oklahoma beat No. 15 Michigan 24-13 on Saturday behind a stellar outing from Washington State transfer John Mateer.`\
+https://nytimes.com/athletic/6606987/2025/09/06/michigan-oklahoma-football-score-takeaways-mateer-underwood/
+
+**Mississippi State knocks off No. 12 Arizona State 24-20 on late TD**\
+`Shapen finished 19-of-33 for 279 yards and three touchdowns.`\
+https://nytimes.com/athletic/6607076/2025/09/06/mississippi-state-arizona-state-college-football-results-analysis/
+
 **Dylan Raiola in command during Nebraska's runaway win over Akron: Takeaways**\
 `After the Huskers had a shaky performance against Cincinnati, they came out and dominated the Zips in Memorial Stadium. `\
 https://nytimes.com/athletic/6606796/2025/09/06/dylan-raiola-nebraska-akron-win-takeaways/

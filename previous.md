@@ -1,3 +1,11 @@
+**Oklahoma changes pay off in early-season test against Michigan: Key takeaways**\
+`No. 18 Oklahoma beat No. 15 Michigan 24-13 on Saturday behind a stellar outing from Washington State transfer John Mateer.`\
+https://nytimes.com/athletic/6606987/2025/09/06/michigan-oklahoma-football-score-takeaways-mateer-underwood/
+
+**Mississippi State knocks off No. 12 Arizona State 24-20 on late TD**\
+`Shapen finished 19-of-33 for 279 yards and three touchdowns.`\
+https://nytimes.com/athletic/6607076/2025/09/06/mississippi-state-arizona-state-college-football-results-analysis/
+
 **Dylan Raiola in command during Nebraska's runaway win over Akron: Takeaways**\
 `After the Huskers had a shaky performance against Cincinnati, they came out and dominated the Zips in Memorial Stadium. `\
 https://nytimes.com/athletic/6606796/2025/09/06/dylan-raiola-nebraska-akron-win-takeaways/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/09/06/us/lapd-kamala-harris-security.html
 **Immigration Raid Exposes Tensions From Seoul to Washington to Rural Georgia**\
 `The raid at a Georgia plant being built with heavy investment from South Korea reveals strain as a rush to expand manufacturing in the United States clashes with an immigration crackdown.`\
 https://nytimes.com/2025/09/06/us/immigration-raid-georgia.html
-
-**How to watch Astros at Rangers: Time, TV, streaming for September 7**\
-`Find out how to watch the Houston Astros play the Texas Rangers, with time, TV channel, and streaming information.`\
-https://nytimes.com/athletic/6606951/2025/09/06/astros-vs-rangers-stream-how-to-watch-sept-7/
-
-**How to watch Brewers at Pirates: Time, TV, streaming for September 7**\
-`Find out how to watch the Milwaukee Brewers play the Pittsburgh Pirates, with time, TV channel, and streaming information.`\
-https://nytimes.com/athletic/6606938/2025/09/06/brewers-vs-pirates-stream-how-to-watch-sept-7/
 
