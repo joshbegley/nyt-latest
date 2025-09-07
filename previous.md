@@ -1,40 +1,40 @@
-**South Korea Negotiates Release of Korean Workers Detained in Georgia Raid**\
-`The government said on Sunday that South Korea would send a charter plane to the United States to retrieve hundreds of workers detained in an immigration raid.`\
-https://nytimes.com/2025/09/07/world/asia/south-korea-trump-hyundai-lg.html
+**What We Know About the Hyundai-LG Plant Immigration Raid in Georgia**\
+`Several hundred workers, most of them South Korean nationals, were detained at the construction site of a sprawling electric vehicle battery plant on Thursday.`\
+https://nytimes.com/2025/09/07/us/politics/hyundai-plant-immigration-raid-georgia.html
 
-**Prime Minister Shigeru Ishiba of Japan Will Step Down, Reports Say**\
-`Mr. Ishiba’s party is threatening to split over a right-wing political surge, a weakened economy and turbulent trade relations with the United States.`\
-https://nytimes.com/2025/09/07/world/asia/japan-shigeru-ishiba-resign.html
+**Andy Roddick Has a New Title: ‘YouTube Guy’**\
+`The former No. 1 tennis player in the world is now at the top of a growing pack of podcasters focused on the sport.`\
+https://nytimes.com/2025/09/07/business/media/andy-roddick-served-tennis-podcast.html
 
-**Max Dowman draws fouls and plaudits as the Arsenal teenager excels for England Under-19s**\
-`Spain ended up having to substitute their left-back after he resorted to persistent fouls to stop the 15-year-old in Murcia`\
-https://nytimes.com/athletic/6607290/2025/09/07/max-dowman-england-arsenal-spain/
+**Why Are More Older People Dying After Falls?**\
+`Some researchers suspect that rising prescription drug use may explain a disturbing trend.`\
+https://nytimes.com/2025/09/07/health/falls-deaths-elderly-drugs.html
 
-**A Town Reluctantly Let a Mosque Expand. Then Came the Backlash.**\
-`A Long Island town board failed to approve a settlement its lawyers had struck with Masjid Al-Baqi after a yearslong dispute tainted by bigotry. The mosque’s federal suit will be heard next month.`\
-https://nytimes.com/2025/09/07/nyregion/oyster-bay-mosque-lawsuit.html
+**​​Trump Tried to Kill the Infrastructure Law. Now He’s Getting Credit for Its Projects.**\
+`Signs bearing President Trump’s name have gone up at major construction projects financed by the 2021 law, which he strenuously opposed ahead of its passage.`\
+https://nytimes.com/2025/09/07/us/trump-infrastructure-signs.html
 
-**‘A Few Minutes Later, a Group of 3-Year-Olds Toddled By’**\
-`Youth brigades in Cobble Hill, a heart-stopping moment in Midtown and more reader tales of New York City in this week’s Metropolitan Diary.`\
-https://nytimes.com/2025/09/07/nyregion/metropolitan-diary.html
+**Russia Steps Up Disinformation Efforts as Trump Abandons Resistance**\
+`The Kremlin has begun a campaign to sway the parliamentary election in Moldova in what could become a new model of election interference online.`\
+https://nytimes.com/2025/09/07/business/russia-disinformation-trump.html
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2025/09/07/crosswords/spelling-bee-forum.html
+**Charlie Sheen Is Ready to Tell You Everything**\
+`In a new memoir and documentary, the actor known for “Two and a Half Men,” “Platoon” and a debauched life that nearly killed him puts it all out there.`\
+https://nytimes.com/2025/09/07/books/charlie-sheen-book-netflix-documentary.html
 
-**Russian Strike Breaks Through Most Protected Part of Kyiv**\
-`The attack set a government building on fire in an area of the Ukrainian capital that is rarely damaged.`\
-https://nytimes.com/2025/09/07/world/europe/russian-strike-kyiv-ukraine.html
+**Who Are the Americans Fighting for Ukraine?**\
+`U.S. volunteers in the Ukrainian military describe why they joined the war, in interviews with David Guttenfelder, a New York Times visual journalist who has worked in Ukraine for three and a half years.`\
+https://nytimes.com/video/world/europe/100000010373605/who-are-the-americans-fighting-for-ukraine.html
 
-**Giants blow another win for Justin Verlander, but the sting is different this time**\
-`San Francisco's runaway momentum stopped in its tracks Saturday night with a 3-2 loss to the St. Louis Cardinals.`\
-https://nytimes.com/athletic/6607204/2025/09/07/san-francisco-giants-lose-cardinals-justin-verlander/
+**In the Battle for Congress, Working-Class Democrats Try a Hardscrabble Pitch**\
+`A new crop of candidates has turned away from the aspirational “American dream” message of campaigns past and is leaning into how difficult life can be for working people — including them.`\
+https://nytimes.com/2025/09/07/us/politics/in-the-battle-for-congress-working-class-democrats-try-a-hardscrabble-pitch.html
 
-**'I'm going back out': Hunter Brown outduels Jacob deGrom, bolsters Cy Young candidacy**\
-`"Hunter Brown is a guy I'll take over anybody," Jeremy Peña says. "I put all my trust in him."`\
-https://nytimes.com/athletic/6607241/2025/09/07/astros-rangers-hunter-brown-outduels-jacob-degrom/
+**3 Summer Books to Carry You Into Fall**\
+`MJ Franklin, an editor at The New York Times Book Review, recommends three great books that came out this summer.`\
+https://nytimes.com/video/books/100000010361926/3-summer-books-to-carry-you-into-fall.html
 
-**Stop Acting Like This Is Normal**\
-`Democrats aren’t powerless, and they don’t have to enable autocracy.`\
-https://nytimes.com/2025/09/07/opinion/trump-senate-democrats-shutdown.html
+**Demystifying the Life of an Artist, the Sally Mann Way**\
+`Now 74 and “close to handing in my dinner pail,” the photographer recalls old slights, home remedies and balancing art and children in a new memoir.`\
+https://nytimes.com/2025/09/07/books/review/sally-mann-art-work.html
 
