@@ -1,3 +1,11 @@
+**NFL's RedZone (with ads) starts... now: Why fans are talking about the Sunday showcase**\
+`The Sundays-only NFL TV product with the cult-like following has fans reacting strongly to an adjustment to a beloved format.`\
+https://nytimes.com/athletic/6597662/2025/09/07/redzone-vs-commercials-why-everyone-is-talking-about-the-nfls-sunday-showcase/
+
+**The New York Times International Edition in Print for Monday, Sep. 8, 2025**\
+``\
+https://nytimes.com/issue/todaysinyt/2025/09/07/todays-new-york-times-international-edition
+
 **Austria's World Cup qualifier delayed after sinkhole appears on pitch**\
 `The fixture was paused in the 75th minute at the Raiffeisen Arena in Linz, Austria.`\
 https://nytimes.com/athletic/6607365/2025/09/07/austria-cyprus-sinkhole-world-cup-qualifier/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/09/07/health/falls-deaths-elderly-drugs.html
 **​​Trump Tried to Kill the Infrastructure Law. Now He’s Getting Credit for Its Projects.**\
 `Signs bearing President Trump’s name have gone up at major construction projects financed by the 2021 law, which he strenuously opposed ahead of its passage.`\
 https://nytimes.com/2025/09/07/us/trump-infrastructure-signs.html
-
-**Russia Steps Up Disinformation Efforts as Trump Abandons Resistance**\
-`The Kremlin has begun a campaign to sway the parliamentary election in Moldova in what could become a new model of election interference online.`\
-https://nytimes.com/2025/09/07/business/russia-disinformation-trump.html
-
-**Charlie Sheen Is Ready to Tell You Everything**\
-`In a new memoir and documentary, the actor known for “Two and a Half Men,” “Platoon” and a debauched life that nearly killed him puts it all out there.`\
-https://nytimes.com/2025/09/07/books/charlie-sheen-book-netflix-documentary.html
 
