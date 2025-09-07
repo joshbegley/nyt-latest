@@ -1,3 +1,7 @@
+**Georgia offense must pick it up as Tennessee and SEC play arrive**\
+`As national attention turns back to Georgia, questions about Gunner Stockton and the offense remain aplenty.`\
+https://nytimes.com/athletic/6606836/2025/09/06/georgia-football-offense-austin-peay-tennessee/
+
 **Return of the Border War embodies everything we love about college football rivalries**\
 `Saturday marked the revival of the bitter rivalry between Kansas and Missouri after 14 long years.`\
 https://nytimes.com/athletic/6606914/2025/09/06/missouri-kansas-border-war-beau-pribula/
