@@ -1,3 +1,7 @@
+**Return of the Border War embodies everything we love about college football rivalries**\
+`Saturday marked the revival of the bitter rivalry between Kansas and Missouri after 14 long years.`\
+https://nytimes.com/athletic/6606914/2025/09/06/missouri-kansas-border-war-beau-pribula/
+
 **L.A.P.D. Stops Security Services for Kamala Harris**\
 `The department had assigned officers to protect the former vice president after her Secret Service detail was terminated. Some officers criticized the move, people familiar with the matter said.`\
 https://nytimes.com/2025/09/06/us/lapd-kamala-harris-security.html
