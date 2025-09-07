@@ -6,7 +6,7 @@ https://nytimes.com/2025/09/07/pageoneplus/no-corrections-sept-08-2025.html
 `Jordan Love threw two touchdown passes and Micah Parsons got his first sack as a Packer.`\
 https://nytimes.com/athletic/6608915/2025/09/07/lions-packers-score-result-takeaways-nfl-week-1/
 
-**Sneak peak: If the Yankees keep this up, they’ll be dangerous in October**\
+**Sneak peak: If the Yankees keep this up, they'll be dangerous in October**\
 `Since the Boston Red Sox embarrassed them two Saturdays ago, the Yankees have won 11 of 14 games: "We're a lot sharper."`\
 https://nytimes.com/athletic/6608671/2025/09/07/new-york-yankees-october/
 
