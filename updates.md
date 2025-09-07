@@ -1,3 +1,15 @@
+**Austria's World Cup qualifier delayed after sinkhole appears on pitch**\
+`The fixture was paused in the 75th minute at the Raiffeisen Arena in Linz, Austria.`\
+https://nytimes.com/athletic/6607365/2025/09/07/austria-cyprus-sinkhole-world-cup-qualifier/
+
+**How to watch Red Sox at Diamondbacks: Time, TV, streaming for September 7**\
+`Find out how to watch the Boston Red Sox play the Arizona Diamondbacks, with time, TV channel, and streaming information.`\
+https://nytimes.com/athletic/6607419/2025/09/07/red-sox-vs-diamondbacks-stream-how-to-watch-sept-7/
+
+**How to watch Padres at Rockies: Time, TV, streaming for September 7**\
+`Find out how to watch the San Diego Padres play the Colorado Rockies, with time, TV channel, and streaming information.`\
+https://nytimes.com/athletic/6607417/2025/09/07/padres-vs-rockies-stream-how-to-watch-sept-7/
+
 **At U.S. Open, scene at wheelchair competitions a sign of 20 years of growth**\
 `Rivalries and the atmosphere at Grand Slam tournaments have helped wheelchair tennis grow.`\
 https://nytimes.com/athletic/6606785/2025/09/07/us-open-2025-wheelchair-finals/

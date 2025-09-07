@@ -1,3 +1,15 @@
+**Austria's World Cup qualifier delayed after sinkhole appears on pitch**\
+`The fixture was paused in the 75th minute at the Raiffeisen Arena in Linz, Austria.`\
+https://nytimes.com/athletic/6607365/2025/09/07/austria-cyprus-sinkhole-world-cup-qualifier/
+
+**How to watch Red Sox at Diamondbacks: Time, TV, streaming for September 7**\
+`Find out how to watch the Boston Red Sox play the Arizona Diamondbacks, with time, TV channel, and streaming information.`\
+https://nytimes.com/athletic/6607419/2025/09/07/red-sox-vs-diamondbacks-stream-how-to-watch-sept-7/
+
+**How to watch Padres at Rockies: Time, TV, streaming for September 7**\
+`Find out how to watch the San Diego Padres play the Colorado Rockies, with time, TV channel, and streaming information.`\
+https://nytimes.com/athletic/6607417/2025/09/07/padres-vs-rockies-stream-how-to-watch-sept-7/
+
 **At U.S. Open, scene at wheelchair competitions a sign of 20 years of growth**\
 `Rivalries and the atmosphere at Grand Slam tournaments have helped wheelchair tennis grow.`\
 https://nytimes.com/athletic/6606785/2025/09/07/us-open-2025-wheelchair-finals/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/09/07/business/russia-disinformation-trump.html
 **Charlie Sheen Is Ready to Tell You Everything**\
 `In a new memoir and documentary, the actor known for “Two and a Half Men,” “Platoon” and a debauched life that nearly killed him puts it all out there.`\
 https://nytimes.com/2025/09/07/books/charlie-sheen-book-netflix-documentary.html
-
-**Who Are the Americans Fighting for Ukraine?**\
-`U.S. volunteers in the Ukrainian military describe why they joined the war, in interviews with David Guttenfelder, a New York Times visual journalist who has worked in Ukraine for three and a half years.`\
-https://nytimes.com/video/world/europe/100000010373605/who-are-the-americans-fighting-for-ukraine.html
-
-**In the Battle for Congress, Working-Class Democrats Try a Hardscrabble Pitch**\
-`A new crop of candidates has turned away from the aspirational “American dream” message of campaigns past and is leaning into how difficult life can be for working people — including them.`\
-https://nytimes.com/2025/09/07/us/politics/in-the-battle-for-congress-working-class-democrats-try-a-hardscrabble-pitch.html
-
-**3 Summer Books to Carry You Into Fall**\
-`MJ Franklin, an editor at The New York Times Book Review, recommends three great books that came out this summer.`\
-https://nytimes.com/video/books/100000010361926/3-summer-books-to-carry-you-into-fall.html
 
