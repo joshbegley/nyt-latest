@@ -1,3 +1,11 @@
+**USMNT played at home but South Korea fans made it feel like a road game**\
+`Another home game, another passionate crowd full of away fans`\
+https://nytimes.com/athletic/6607281/2025/09/07/usmnt-fans-pochettino-hong-myung-bo-south-korea/
+
+**Disney World’s Window on America**\
+`Abigail Disney, a descendant of Disney’s founders, and other readers respond to an essay about Disney and America. Also: A stark contrast between two political parties.`\
+https://nytimes.com/2025/09/07/opinion/disney-middle-class.html
+
 **Until Saturday: Hot-seat coach's brutal gauntlet**\
 `Until Saturday is The Athletic's free CFB newsletter.`\
 https://nytimes.com/athletic/6607670/2025/09/07/billy-napier-florida-schedule-until-saturday/
