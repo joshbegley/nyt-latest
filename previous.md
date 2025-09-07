@@ -1,3 +1,11 @@
+**In trying to generate squad competition, Pochettino's USMNT is no better off**\
+`Mauricio Pochettino recognizes the USMNT's complacency problem, but has proven hooked on trying to solve it with lackluster depth`\
+https://nytimes.com/athletic/6607040/2025/09/06/mauricio-pochettino-usmnt-roster-selection-problem-world-cup/
+
+**College Football Playoff 2025 projections: Where the bracket stands with Week 2 underway**\
+`Our College Football Playoff predictions model is back. Check here for regular updates on CFP and national championship odds for 2025.`\
+https://nytimes.com/athletic/6560541/2025/09/06/college-football-playoff-bracket-projections-odds/
+
 **Oklahoma changes pay off in early-season test against Michigan: Key takeaways**\
 `No. 18 Oklahoma beat No. 15 Michigan 24-13 on Saturday behind a stellar outing from Washington State transfer John Mateer.`\
 https://nytimes.com/athletic/6606987/2025/09/06/michigan-oklahoma-football-score-takeaways-mateer-underwood/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6606836/2025/09/06/georgia-football-offense-austin-
 **Return of the Border War embodies everything we love about college football rivalries**\
 `Saturday marked the revival of the bitter rivalry between Kansas and Missouri after 14 long years.`\
 https://nytimes.com/athletic/6606914/2025/09/06/missouri-kansas-border-war-beau-pribula/
-
-**L.A.P.D. Stops Security Services for Kamala Harris**\
-`The department had assigned officers to protect the former vice president after her Secret Service detail was terminated. Some criticized the use of the officers.`\
-https://nytimes.com/2025/09/06/us/lapd-kamala-harris-security.html
-
-**Immigration Raid Exposes Tensions From Seoul to Washington to Rural Georgia**\
-`The raid at a Georgia plant being built with heavy investment from South Korea reveals strain as a rush to expand manufacturing in the United States clashes with an immigration crackdown.`\
-https://nytimes.com/2025/09/06/us/immigration-raid-georgia.html
 

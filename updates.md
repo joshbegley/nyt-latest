@@ -1,3 +1,11 @@
+**In trying to generate squad competition, Pochettino's USMNT is no better off**\
+`Mauricio Pochettino recognizes the USMNT's complacency problem, but has proven hooked on trying to solve it with lackluster depth`\
+https://nytimes.com/athletic/6607040/2025/09/06/mauricio-pochettino-usmnt-roster-selection-problem-world-cup/
+
+**College Football Playoff 2025 projections: Where the bracket stands with Week 2 underway**\
+`Our College Football Playoff predictions model is back. Check here for regular updates on CFP and national championship odds for 2025.`\
+https://nytimes.com/athletic/6560541/2025/09/06/college-football-playoff-bracket-projections-odds/
+
 **Oklahoma changes pay off in early-season test against Michigan: Key takeaways**\
 `No. 18 Oklahoma beat No. 15 Michigan 24-13 on Saturday behind a stellar outing from Washington State transfer John Mateer.`\
 https://nytimes.com/athletic/6606987/2025/09/06/michigan-oklahoma-football-score-takeaways-mateer-underwood/
