@@ -15,7 +15,7 @@ https://nytimes.com/athletic/6606836/2025/09/06/georgia-football-offense-austin-
 https://nytimes.com/athletic/6606914/2025/09/06/missouri-kansas-border-war-beau-pribula/
 
 **L.A.P.D. Stops Security Services for Kamala Harris**\
-`The department had assigned officers to protect the former vice president after her Secret Service detail was terminated. Some officers criticized the move, people familiar with the matter said.`\
+`The department had assigned officers to protect the former vice president after her Secret Service detail was terminated. Some criticized the use of the officers.`\
 https://nytimes.com/2025/09/06/us/lapd-kamala-harris-security.html
 
 **Immigration Raid Exposes Tensions From Seoul to Washington to Rural Georgia**\
