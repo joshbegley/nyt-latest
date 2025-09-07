@@ -1,3 +1,7 @@
+**Trump Is Met With Mostly Boos at U.S. Open as Security Delays a Match**\
+`With the president in attendance at Arthur Ashe Stadium, the men’s final began as hundreds of people were still waiting to go through security screening.`\
+https://nytimes.com/2025/09/07/us/politics/trump-us-open-tennis-boos-delays.html
+
 **Houthi Drone Hits Israeli Airport After Warning System Failure**\
 `The strike by the Yemeni militants followed the Israeli killing of several of their top leaders a week ago.`\
 https://nytimes.com/2025/09/07/world/middleeast/houthi-drone-israeli-airport.html
