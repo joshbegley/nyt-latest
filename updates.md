@@ -1,3 +1,11 @@
+**SEC vibes rankings: Big wins and high hopes — and then there's Florida**\
+`The SEC could feel good about some of its results Saturday. Then there's Florida.`\
+https://nytimes.com/athletic/6607904/2025/09/07/sec-football-rankings-week-3-florida-oklahoma/
+
+**Fantasy football Week 1 inactives: Chris Godwin, Allen Lazard out**\
+`The rundown on the Week 1 inactives who are relevant to fantasy football and how to respond accordingly. `\
+https://nytimes.com/athletic/6602126/2025/09/07/fantasy-football-week-1-inactives/
+
 **Fantasy football Week 1 inactives**\
 `The rundown on the Week 1 inactives who are relevant to fantasy football and how to respond accordingly. `\
 https://nytimes.com/athletic/6602126/2025/09/07/fantasy-football-week-1-inactives/
