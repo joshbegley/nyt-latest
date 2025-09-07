@@ -1,3 +1,7 @@
+**Prime Minister Shigeru Ishiba of Japan Will Step Down, Reports Say**\
+`Mr. Ishiba’s party is threatening to split over a right-wing political surge, a weakened economy and turbulent trade relations with the United States.`\
+https://nytimes.com/2025/09/07/world/asia/japan-shigeru-ishiba-resign.html
+
 **Max Dowman draws fouls and plaudits as the Arsenal teenager excels for England Under-19s**\
 `Spain ended up having to substitute their left-back after he resorted to persistent fouls to stop the 15-year-old in Murcia`\
 https://nytimes.com/athletic/6607290/2025/09/07/max-dowman-england-arsenal-spain/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/07/opinion/trump-senate-democrats-shutdown.html
 **The New York Times in Print for Sunday, Sep. 7, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/09/07/todays-new-york-times
-
-**The Future Is Flag**\
-`Flag football offers girls as well as boys a means of enjoying the sport without the risk of brain damage.`\
-https://nytimes.com/2025/09/07/opinion/nfl-flag-football.html
 
