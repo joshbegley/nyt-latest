@@ -1,3 +1,11 @@
+**Man Fatally Shot by N.Y.P.D. After Slashing Officer at Station House**\
+`The man entered the headquarters of the 73rd Precinct in Brooklyn through the back door, the police said, and slashed an officer with a large knife.`\
+https://nytimes.com/2025/09/07/nyregion/slashing-brooklyn-nypd-station-house.html
+
+**Kennedy, Rejecting Data, Fuels Distrust of His Own Agencies**\
+`By promoting suspicions about the institutions he oversees, critics say Robert F. Kennedy Jr. is jeopardizing public health. He says he is pursuing transparency.`\
+https://nytimes.com/2025/09/07/us/politics/kennedy-health-vaccines-cdc.html
+
 **With Billy Porter Sidelined by Illness, ‘Cabaret’ Moves Up Closing**\
 `The revival will now end its run on Sept. 21, much earlier than previously hoped for.`\
 https://nytimes.com/2025/09/07/theater/cabaret-billy-porter-broadway.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6602126/2025/09/07/fantasy-football-week-1-inactive
 **Oil Producers Announce New Increase in Output**\
 `In a show of confidence in the market, the group, led by Saudi Arabia, said it would begin unwinding a further set of agreed cuts.`\
 https://nytimes.com/2025/09/07/business/opec-plus-oil-production-increase.html
-
-**This Aguachile Shrimp Salad Will Brighten Your Day**\
-`Perfect for those last warm-weather picnics.`\
-https://nytimes.com/2025/09/07/dining/this-aguachile-shrimp-salad-will-brighten-your-day.html
-
-**Ruth Paine, Who Gave Lodging to Marina Oswald, Dies at 92**\
-`Her knowledge of Lee Harvey Oswald and his wife made her a noteworthy witness during the Warren Commission’s investigation into the assassination of President John F. Kennedy.`\
-https://nytimes.com/2025/09/07/us/ruth-paine-dead.html
 
