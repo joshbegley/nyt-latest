@@ -1,3 +1,11 @@
+**A View From Inside Iran**\
+`Our correspondent found a sense of apprehension in the country after the 12-day war with Israel.`\
+https://nytimes.com/2025/09/07/briefing/inside-iran-japan-prime-minister-kyiv-attack.html
+
+**Bengals capitalize on Browns miscues to secure Week 1 win: Takeaways**\
+`Browns kicker Andre Szmyt missed a go-ahead field goal attempt late in the fourth quarter.`\
+https://nytimes.com/athletic/6608559/2025/09/07/bengals-browns-score-results-takeaways/
+
 **Aaron Rodgers, Steelers top Jets 34-32 in thrilling comeback: Takeaways**\
 `Rodgers finishes 22-of-30 passing with 244 yards and four touchdowns, moving him one TD behind Brett Favre for No. 4 on the all-time list.`\
 https://nytimes.com/athletic/6608585/2025/09/07/steelers-jets-score-result-takeaways-nfl-week-1/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6608423/2025/09/07/dolphins-colts-score-result-take
 **Barnett Shepherd, Champion of Staten Island’s Heritage, Dies at 87**\
 `A longtime resident, he devoted his career to Historic Richmond Town and Sailors’ Snug Harbor, two of the borough’s most important cultural institutions.`\
 https://nytimes.com/2025/09/07/nyregion/barnett-shepherd-dead.html
-
-**Trump Is Met With Mostly Boos at U.S. Open as Security Delays a Match**\
-`With the president in attendance at Arthur Ashe Stadium, the men’s final began as hundreds of people were still waiting to go through security screening.`\
-https://nytimes.com/2025/09/07/us/politics/trump-us-open-tennis-boos-delays.html
-
-**Houthi Drone Hits Israeli Airport After Warning System Failure**\
-`The strike by the Yemeni militants followed the Israeli killing of several of their top leaders a week ago.`\
-https://nytimes.com/2025/09/07/world/middleeast/houthi-drone-israeli-airport.html
 
