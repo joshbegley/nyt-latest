@@ -1,3 +1,7 @@
+**Russian Strike Breaks Through Most Protected Part of Kyiv**\
+`The attack set a government building on fire in an area of the Ukrainian capital that is rarely damaged.`\
+https://nytimes.com/2025/09/07/world/europe/russian-strike-kyiv-ukraine.html
+
 **Giants blow another win for Justin Verlander, but the sting is different this time**\
 `San Francisco's runaway momentum stopped in its tracks Saturday night with a 3-2 loss to the St. Louis Cardinals.`\
 https://nytimes.com/athletic/6607204/2025/09/07/san-francisco-giants-lose-cardinals-justin-verlander/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6607219/2025/09/07/white-sox-vs-tigers-stream-how-t
 **How to watch Athletics at Angels: Time, TV, streaming for September 7**\
 `Find out how to watch the Athletics play the Los Angeles Angels, with time, TV channel, and streaming information.`\
 https://nytimes.com/athletic/6607215/2025/09/07/athletics-vs-angels-stream-how-to-watch-sept-7/
-
-**Gianluigi Donnarumma may not feel like a 'Pep player', but neither did Erling Haaland**\
-`Donnarumma is the Haaland of goalkeepers. His deficiencies are overplayed. His generational talent somehow continues to be underplayed`\
-https://nytimes.com/athletic/6604783/2025/09/07/donnarumma-pep-guardiola-man-city/
 
