@@ -1,3 +1,11 @@
+**Pope Leo XIV Declares Two Saints, Including Carlo Acutis**\
+`Carlo, who died at 15, was canonized alongside Pier Giorgio Frassati, who also died young. The church is looking to the two saints to inspire new generations of Catholics.`\
+https://nytimes.com/2025/09/07/world/europe/carlo-acutis-frassati-pope-leo-saints.html
+
+**The warmups are over for USC. Now, it's time to find out who this team really is**\
+`The Trojans easily took down two lesser opponents in the first two weeks of the season, but now the real test starts.`\
+https://nytimes.com/athletic/6607329/2025/09/07/usc-football-georgia-southern-win/
+
 **NFL's RedZone (with ads) starts... now: Why fans are talking about the Sunday showcase**\
 `The Sundays-only NFL TV product with the cult-like following has fans reacting strongly to an adjustment to a beloved format.`\
 https://nytimes.com/athletic/6597662/2025/09/07/redzone-vs-commercials-why-everyone-is-talking-about-the-nfls-sunday-showcase/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/09/07/us/politics/hyundai-plant-immigration-raid-georgi
 **Andy Roddick Has a New Title: ‘YouTube Guy’**\
 `The former No. 1 tennis player in the world is now at the top of a growing pack of podcasters focused on the sport.`\
 https://nytimes.com/2025/09/07/business/media/andy-roddick-served-tennis-podcast.html
-
-**Why Are More Older People Dying After Falls?**\
-`Some researchers suspect that rising prescription drug use may explain a disturbing trend.`\
-https://nytimes.com/2025/09/07/health/falls-deaths-elderly-drugs.html
-
-**​​Trump Tried to Kill the Infrastructure Law. Now He’s Getting Credit for Its Projects.**\
-`Signs bearing President Trump’s name have gone up at major construction projects financed by the 2021 law, which he strenuously opposed ahead of its passage.`\
-https://nytimes.com/2025/09/07/us/trump-infrastructure-signs.html
 
