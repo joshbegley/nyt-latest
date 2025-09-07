@@ -1,3 +1,11 @@
+**USMNT played at home but South Korea fans made it feel like a road game**\
+`Another home game, another passionate crowd full of away fans`\
+https://nytimes.com/athletic/6607281/2025/09/07/usmnt-fans-pochettino-hong-myung-bo-south-korea/
+
+**Disney World’s Window on America**\
+`Abigail Disney, a descendant of Disney’s founders, and other readers respond to an essay about Disney and America. Also: A stark contrast between two political parties.`\
+https://nytimes.com/2025/09/07/opinion/disney-middle-class.html
+
 **Until Saturday: Hot-seat coach's brutal gauntlet**\
 `Until Saturday is The Athletic's free CFB newsletter.`\
 https://nytimes.com/athletic/6607670/2025/09/07/billy-napier-florida-schedule-until-saturday/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/09/07/world/us-open-japan-prime-minister-books.html
 **Cowboys' Brian Schottenheimer still confident after first loss: 'We can win a Super Bowl'**\
 `The Cowboys went toe-to-toe with the defending Super Bowl champs but that wasn't enough for the first-year head coach.`\
 https://nytimes.com/athletic/6606473/2025/09/07/cowboys-brian-schottenheimer-first-game-eagles/
-
-**What would define success for the 2025 Bears? Mailbag, Week 1 picks**\
-`Before the Bears kick off on Monday night, should they have tried Darnell Wright at left tackle? And will they commit to the run game?`\
-https://nytimes.com/athletic/6602690/2025/09/07/bears-mailbag-defining-success-2025/
-
-**For Billy Napier, 'Bull spit' is the latest in an unacceptable string of troubling defeats**\
-`Napier's 20-20 record is 11 wins worse than Dan Mullen's 31-9 mark through his first 40 games as Florida's coach.`\
-https://nytimes.com/athletic/6607060/2025/09/07/billy-napier-hot-seat-florida-spitting/
 
