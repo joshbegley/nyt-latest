@@ -1,3 +1,7 @@
+**Travis Hunter with four catches so far as Panthers-Jags delayed by weather**\
+`Two-way star had yet to play defense when game was paused in second quarter.`\
+https://nytimes.com/athletic/6608247/2025/09/07/panthers-jaguars-score-result-takeaways-nfl-week-1/
+
 **AP Top 25: USF moves in; SEC sets record with 11 ranked teams**\
 `Ohio State, Penn State, LSU, Oregon and Miami make up the top five of the latest AP Top 25 college football rankings.`\
 https://nytimes.com/athletic/6608278/2025/09/07/ap-top-25-usf-sec-record-ranked-teams/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6608281/2025/09/07/donald-trump-us-open-final-atten
 **'Long throws are back': Tuchel to drill England in set-pieces for World Cup**\
 `Tuchel explained there is not enough time during an international break to focus on introducing new set-piece routines.`\
 https://nytimes.com/athletic/6607958/2025/09/07/thomas-tuchel-england-set-pieces/
-
-**David Baltimore, Nobel-Winning Molecular Biologist, Dies at 87**\
-`He was only 37 when he made a discovery that challenged the existing tenets of biology and led to an understanding of retroviruses and viruses, including H.I.V.,`\
-https://nytimes.com/2025/09/07/science/david-baltimore-dead.html
 

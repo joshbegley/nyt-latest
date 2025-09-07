@@ -1,3 +1,7 @@
+**Travis Hunter with four catches so far as Panthers-Jags delayed by weather**\
+`Two-way star had yet to play defense when game was paused in second quarter.`\
+https://nytimes.com/athletic/6608247/2025/09/07/panthers-jaguars-score-result-takeaways-nfl-week-1/
+
 **AP Top 25: USF moves in; SEC sets record with 11 ranked teams**\
 `Ohio State, Penn State, LSU, Oregon and Miami make up the top five of the latest AP Top 25 college football rankings.`\
 https://nytimes.com/athletic/6608278/2025/09/07/ap-top-25-usf-sec-record-ranked-teams/
