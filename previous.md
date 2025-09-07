@@ -1,3 +1,15 @@
+**Cowboys' Brian Schottenheimer still confident after first loss: 'We can win a Super Bowl'**\
+`The Cowboys went toe-to-toe with the defending Super Bowl champs but that wasn't enough for the first-year head coach.`\
+https://nytimes.com/athletic/6606473/2025/09/07/cowboys-brian-schottenheimer-first-game-eagles/
+
+**What would define success for the 2025 Bears? Mailbag, Week 1 picks**\
+`Before the Bears kick off on Monday night, should they have tried Darnell Wright at left tackle? And will they commit to the run game?`\
+https://nytimes.com/athletic/6602690/2025/09/07/bears-mailbag-defining-success-2025/
+
+**For Billy Napier, 'Bull spit' is the latest in an unacceptable string of troubling defeats**\
+`Napier's 20-20 record is 11 wins worse than Dan Mullen's 31-9 mark through his first 40 games as Florida's coach.`\
+https://nytimes.com/athletic/6607060/2025/09/07/billy-napier-hot-seat-florida-spitting/
+
 **For Oklahoma, everything runs on an indestructible transfer QB. Can they make it last?**\
 `Mateer has been electric, fearless in both his passing and his running. But will it all hold up for Oklahoma's SEC schedule?`\
 https://nytimes.com/athletic/6607330/2025/09/07/john-mateer-oklahoma-michigan/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6607291/2025/09/07/michigan-oklahoma-sherrone-moore
 **Help! I’ve Become a Helicopter Parent to My Dog.**\
 `Dog parenting has gotten out of control. That’s what I said to myself eight months ago.`\
 https://nytimes.com/2025/09/07/opinion/dogs-helicopter-parenting.html
-
-**How to watch 2025 US Open men's final: Sinner, Alcaraz continue dominance of tennis world**\
-`Yet again, Jannik Sinner and Carlos Alcaraz meet in a Grand Slam final. Here's how to watch and who is favored.`\
-https://nytimes.com/athletic/6602989/2025/09/07/how-to-watch-2025-us-open-mens-final-sinner-alcaraz-odds/
-
-**Sunday Special: The Books We Read in School**\
-`The ones that stuck with us, and the ones we’ve left behind.`\
-https://nytimes.com/2025/09/07/podcasts/the-daily/sunday-special-the-books-we-read-in-school.html
-
-**America Alone Can’t Match China. But With Our Allies, It’s No Contest.**\
-`Size matters in great-power contests, and the U.S. can’t go it alone against China.`\
-https://nytimes.com/2025/09/07/opinion/us-trump-china-allies.html
 

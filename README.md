@@ -1,3 +1,7 @@
+**String Theory**\
+`Today, on the last day of the U.S. Open, we have a chat with a tennis writer.`\
+https://nytimes.com/2025/09/07/world/us-open-japan-prime-minister-books.html
+
 **Cowboys' Brian Schottenheimer still confident after first loss: 'We can win a Super Bowl'**\
 `The Cowboys went toe-to-toe with the defending Super Bowl champs but that wasn't enough for the first-year head coach.`\
 https://nytimes.com/athletic/6606473/2025/09/07/cowboys-brian-schottenheimer-first-game-eagles/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/07/opinion/trump-venezuela-airstrike-laws.html
 **Michigan-Oklahoma wasn't supposed to be about Sherrone Moore. But that's how it ended up.**\
 `Sherrone Moore downplayed his return to his alma mater during the week, but the loss to Oklahoma shifted the spotlight to him. `\
 https://nytimes.com/athletic/6607291/2025/09/07/michigan-oklahoma-sherrone-moore/
-
-**Help! I’ve Become a Helicopter Parent to My Dog.**\
-`Dog parenting has gotten out of control. That’s what I said to myself eight months ago.`\
-https://nytimes.com/2025/09/07/opinion/dogs-helicopter-parenting.html
 
