@@ -1,3 +1,19 @@
+**Aaron Rodgers, Steelers top Jets 34-32 in thrilling comeback: Takeaways**\
+`Rodgers finishes 22-of-30 passing with 244 yards and four touchdowns, moving him one TD behind Brett Favre for No. 4 on the all-time list.`\
+https://nytimes.com/athletic/6608585/2025/09/07/steelers-jets-score-result-takeaways-nfl-week-1/
+
+**Commanders defense dominates as Washington rolls past Giants: Key takeaways**\
+`Jayden Daniels was efficient, if unspectacular, in the victory over the NFC East foe.`\
+https://nytimes.com/athletic/6608360/2025/09/07/commanders-giants-score-result-takeaways-nfl-week-1/
+
+**Baker Mayfield rallies Buccaneers past Falcons: Key takeaways**\
+`Atlanta falls short when Younghoe Koo misses 44-yard field goal.`\
+https://nytimes.com/athletic/6608253/2025/09/07/falcons-buccaneers-score-result-takeaways-nfl-week-1/
+
+**Braves takeaways: Acuña slump deepens, Strider delayed, Olson's XBH, Snitker milestone**\
+`Atlanta has lost nine of 15 games and dropped three consecutive series against teams that would be in the postseason today.`\
+https://nytimes.com/athletic/6608630/2025/09/07/braves-takeaways-mariners-five-home-runs/
+
 **Raiders' defense stifles Patriots as Pete Carroll wins Las Vegas debut: Key takeaways**\
 `Geno Smith threw for 362 yards and a touchdown as Las Vegas won in Foxboro, Mass.`\
 https://nytimes.com/athletic/6608491/2025/09/07/raiders-patriots-score-result-takeaways-nfl-week-1/
@@ -21,20 +37,4 @@ https://nytimes.com/2025/09/07/us/politics/trump-us-open-tennis-boos-delays.html
 **Houthi Drone Hits Israeli Airport After Warning System Failure**\
 `The strike by the Yemeni militants followed the Israeli killing of several of their top leaders a week ago.`\
 https://nytimes.com/2025/09/07/world/middleeast/houthi-drone-israeli-airport.html
-
-**Maryland Gov. Wes Moore, Pressed About a Possible 2028 Run, Focuses on Re-election**\
-`Mr. Moore said in a TV interview that he “is not running for president.” The first-term governor, who has traded barbs with President Trump, said he was excited about seeking a second term.`\
-https://nytimes.com/2025/09/07/us/politics/wes-moore-2028-maryland.html
-
-**Micah Parsons active for Packers vs. Lions**\
-`The newly acquired edge rusher has been hampered by an L4/L5 facet joint sprain in his back.`\
-https://nytimes.com/athletic/6608307/2025/09/07/micah-parsons-active-packers-lions/
-
-**Millions of Londoners Brace for Transit Disruption as Tube Strike Begins**\
-`A strike on the London Underground began Sunday over pay and conditions, threatening to upend commuter journeys for most of the week.`\
-https://nytimes.com/2025/09/07/world/europe/london-tube-strike.html
-
-**Onana's Manchester United loan exit says as much about the club as it does about the player**\
-`The goalkeeper joined with a big reputation and he was suppposed to help transform the way United played but the fit never felt right`\
-https://nytimes.com/athletic/6608330/2025/09/07/andre-onana-trabzonspor-manchester-united/
 
