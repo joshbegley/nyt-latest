@@ -1,3 +1,11 @@
+**David Baltimore, Nobel-Winning Molecular Biologist, Dies at 87**\
+`He was only 37 when he made a discovery that challenged the existing tenets of biology and led to an understanding of retroviruses and viruses, including H.I.V.,`\
+https://nytimes.com/2025/09/07/science/david-baltimore-dead.html
+
+**Trump Downplays Post Threatening Chicago, Saying He Wants to ‘Clean Up’ City**\
+`The president had said on social media that Chicago was “about to find out why it’s called the Department of WAR,” drawing a fierce rebuke from Democrats.`\
+https://nytimes.com/2025/09/07/us/politics/trump-chicago-war-us-open.html
+
 **Man Fatally Shot by N.Y.P.D. After Slashing Officer at Station House**\
 `The man entered the headquarters of the 73rd Precinct in Brooklyn through the back door, the police said, and slashed an officer with a large knife.`\
 https://nytimes.com/2025/09/07/nyregion/slashing-brooklyn-nypd-station-house.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6608275/2025/09/07/ollie-bearman-f1-race-ban-italia
 **SEC vibes rankings: Big wins and high hopes — and then there's Florida**\
 `The SEC could feel good about some of its results Saturday. Then there's Florida.`\
 https://nytimes.com/athletic/6607904/2025/09/07/sec-football-rankings-week-3-florida-oklahoma/
-
-**Fantasy football Week 1 inactives: Chris Godwin, Allen Lazard out**\
-`The rundown on the Week 1 inactives who are relevant to fantasy football and how to respond accordingly. `\
-https://nytimes.com/athletic/6602126/2025/09/07/fantasy-football-week-1-inactives/
-
-**Oil Producers Announce New Increase in Output**\
-`In a show of confidence in the market, the group, led by Saudi Arabia, said it would begin unwinding a further set of agreed cuts.`\
-https://nytimes.com/2025/09/07/business/opec-plus-oil-production-increase.html
 
