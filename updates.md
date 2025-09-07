@@ -1,3 +1,7 @@
+**Pochettino after USMNT's demoralizing loss to South Korea: 'I think we were better'**\
+`The USMNT manager had some curious words in reaction to a 2-0 friendly defeat, as the World Cup inches ever closer`\
+https://nytimes.com/athletic/6606814/2025/09/06/mauricio-pochettino-reaction-usmnt-south-korea-friendly/
+
 **Cam Heyward, Steelers agree to new contract; Heyward to play Week 1: Source**\
 `Heyward, one of the team's captains, staged a "hold-in" earlier this summer.`\
 https://nytimes.com/athletic/6574061/2025/09/06/cam-heyward-steelers-new-contract/

@@ -1,3 +1,7 @@
+**Pochettino after USMNT's demoralizing loss to South Korea: 'I think we were better'**\
+`The USMNT manager had some curious words in reaction to a 2-0 friendly defeat, as the World Cup inches ever closer`\
+https://nytimes.com/athletic/6606814/2025/09/06/mauricio-pochettino-reaction-usmnt-south-korea-friendly/
+
 **Cam Heyward, Steelers agree to new contract; Heyward to play Week 1: Source**\
 `Heyward, one of the team's captains, staged a "hold-in" earlier this summer.`\
 https://nytimes.com/athletic/6574061/2025/09/06/cam-heyward-steelers-new-contract/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6606708/2025/09/06/oregon-oklahoma-state-69-3-takea
 **USMNT 0, South Korea 2: Pochettino's moves no match for Son in limp defeat**\
 `The USMNT did little to relieve the pressure on the players and manager Mauricio Pochettino after another defeat to a World Cup-bound foe`\
 https://nytimes.com/athletic/6605495/2025/09/06/usmnt-south-korea-friendly-score-son-pulisic-pochettino/
-
-**Cardiologist Draws Outcry With Claim Tying Vaccines to Royals’ Cancer**\
-`The British government condemned the remarks, made without evidence by the cardiologist, Dr. Aseem Malhotra, at an event for the anti-immigration party led by Nigel Farage.`\
-https://nytimes.com/2025/09/06/world/europe/britain-vaccines-royal-family.html
 
