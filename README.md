@@ -1,3 +1,11 @@
+**Did McLaren's latest team order favor Norris? Why the team and Piastri say no**\
+`McLaren's harmonious F1 title fight survived another team orders test. Can it last?`\
+https://nytimes.com/athletic/6608382/2025/09/07/lando-norris-oscar-piastri-f1-team-orders-monza/
+
+**Sister of Timberwolves' Naz Reid shot and killed in New Jersey**\
+`Toraya, 28, was the oldest of three Reid children, including Naz and younger sister Jakahya.`\
+https://nytimes.com/athletic/6608367/2025/09/07/naz-reid-sister-killed/
+
 **Luka Dončić scores 42, leads Slovenia past Italy into EuroBasket quarterfinals**\
 `Lakers star is the leading scorer in EuroBasket, averaging 34.0 points per game.`\
 https://nytimes.com/athletic/6608416/2025/09/07/luka-doncic-slovenia-italy-eurobasket-quarterfinals-2/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/09/07/nyregion/slashing-brooklyn-nypd-station-house.htm
 **Kennedy, Rejecting Data, Fuels Distrust of His Own Agencies**\
 `By promoting suspicions about the institutions he oversees, critics say Robert F. Kennedy Jr. is jeopardizing public health. He says he is pursuing transparency.`\
 https://nytimes.com/2025/09/07/us/politics/kennedy-health-vaccines-cdc.html
-
-**With Billy Porter Sidelined by Illness, ‘Cabaret’ Moves Up Closing**\
-`The revival will now end its run on Sept. 21, much earlier than previously hoped for.`\
-https://nytimes.com/2025/09/07/theater/cabaret-billy-porter-broadway.html
-
-**Everton debutant follows in Dixie Dean's footsteps as she makes history at Anfield**\
-`Everton's strength in depth was crucial to an opening-day victory at Anfield`\
-https://nytimes.com/athletic/6607997/2025/09/07/everton-win-liverpool-wsl-analysis/
 
