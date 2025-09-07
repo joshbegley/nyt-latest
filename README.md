@@ -1,3 +1,19 @@
+**Luka Dončić scores 42, leads Slovenia past Italy into EuroBasket quarterfinals**\
+`Lakers star is the leading scorer in EuroBasket, averaging 34.0 points per game.`\
+https://nytimes.com/athletic/6608416/2025/09/07/luka-doncic-slovenia-italy-eurobasket-quarterfinals-2/
+
+**Man United's Onana agrees to join Trabzonspor on loan**\
+`Trabzonspor will cover the goalkeeper's Manchester United salary in full, with Onana set to earn extra due to bonuses`\
+https://nytimes.com/athletic/6608350/2025/09/07/andre-onana-loan-man-united-news-trabzonspor/
+
+**Donald Trump's U.S. Open final appearance draws mixed reaction, prompts delay**\
+`Trump's appearance resulted in the start-time for the final between Jannik Sinner and Carlos Alcaraz being pushed to 2:30 p.m. ET.`\
+https://nytimes.com/athletic/6608281/2025/09/07/donald-trump-us-open-final-attendance/
+
+**'Long throws are back': Tuchel to drill England in set-pieces for World Cup**\
+`Tuchel explained there is not enough time during an international break to focus on introducing new set-piece routines.`\
+https://nytimes.com/athletic/6607958/2025/09/07/thomas-tuchel-england-set-pieces/
+
 **David Baltimore, Nobel-Winning Molecular Biologist, Dies at 87**\
 `He was only 37 when he made a discovery that challenged the existing tenets of biology and led to an understanding of retroviruses and viruses, including H.I.V.,`\
 https://nytimes.com/2025/09/07/science/david-baltimore-dead.html
@@ -21,20 +37,4 @@ https://nytimes.com/2025/09/07/theater/cabaret-billy-porter-broadway.html
 **Everton debutant follows in Dixie Dean's footsteps as she makes history at Anfield**\
 `Everton's strength in depth was crucial to an opening-day victory at Anfield`\
 https://nytimes.com/athletic/6607997/2025/09/07/everton-win-liverpool-wsl-analysis/
-
-**‘The Conjuring: Last Rites’ Sets a Surprise Box Office Record**\
-`The horror sequel took in roughly $83 million over the weekend in the United States and Canada, about 65 percent more than anticipated.`\
-https://nytimes.com/2025/09/07/business/media/conjuring-last-rites-box-office.html
-
-**Marilyn Monroe’s Los Angeles Home Is Saved From Demolition**\
-`A judge denied a neighbor’s petition to raze the Spanish-style hacienda, which the City Council had declared a cultural landmark.`\
-https://nytimes.com/2025/09/07/us/marilyn-monroe-house-los-angeles.html
-
-**Ollie Bearman on the brink of F1 race ban after Italian GP crash with Carlos Sainz**\
-`Haas driver Ollie Bearman sits on ten penalty points, and will miss a race if he picks up two more `\
-https://nytimes.com/athletic/6608275/2025/09/07/ollie-bearman-f1-race-ban-italian-gp/
-
-**SEC vibes rankings: Big wins and high hopes — and then there's Florida**\
-`The SEC could feel good about some of its results Saturday. Then there's Florida.`\
-https://nytimes.com/athletic/6607904/2025/09/07/sec-football-rankings-week-3-florida-oklahoma/
 
