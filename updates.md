@@ -1,3 +1,15 @@
+**Iowa State is no longer looking up at Iowa (or Kansas State). It's the other way around**\
+`The Cyclones again won the in-state rivalry on a late field goal. They've won three of the past four against Iowa.`\
+https://nytimes.com/athletic/6606765/2025/09/06/iowa-state-iowa-kansas-state-cy-hawk/
+
+**Florida spitting penalty critical in South Florida's 18-16 upset of No. 13 Gators**\
+`It's South Florida's first win over Florida in four tries and first road win over a ranked opponent since a 2011 victory at Notre Dame.`\
+https://nytimes.com/athletic/6606774/2025/09/06/south-florida-florida-spitting-billy-napier/
+
+**Tensions Mount As Trump Administration Threatens Federal Crackdown in Chicago**\
+`In a social media post, President Trump said Chicago was “about to find out why it’s called the Department of WAR.” Illinois officials condemned the message.`\
+https://nytimes.com/2025/09/06/us/trump-chicago-ice-raids-immigration.html
+
 **Colorado's third-string QB stole the show against Delaware. So what's next?**\
 `Ryan Staub wasn't considered part of the starting QB competition in camp, but he was the best option for Colorado against Delaware.`\
 https://nytimes.com/athletic/6606595/2025/09/06/colorado-qb-ryan-staub-delaware-deion-sanders/
