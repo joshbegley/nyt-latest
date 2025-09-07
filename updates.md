@@ -1,3 +1,7 @@
+**Bill Belichick scores first collegiate win as UNC rebounds at Charlotte: Takeaways**\
+`UNC's second game took place in much humbler surroundings, on the road at an American Conference school.`\
+https://nytimes.com/athletic/6606797/2025/09/06/unc-charlotte-score-result-takeaways/
+
 **L.A.P.D. Stops Security Services for Kamala Harris**\
 `The department had assigned officers to protect the former vice president after her Secret Service detail was terminated. Some criticized the use of the officers.`\
 https://nytimes.com/2025/09/06/us/lapd-kamala-harris-security.html

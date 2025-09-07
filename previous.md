@@ -1,3 +1,7 @@
+**Bill Belichick scores first collegiate win as UNC rebounds at Charlotte: Takeaways**\
+`UNC's second game took place in much humbler surroundings, on the road at an American Conference school.`\
+https://nytimes.com/athletic/6606797/2025/09/06/unc-charlotte-score-result-takeaways/
+
 **U.S. Open title cements Aryna Sabalenka's year as one of consistency and taming emotion**\
 `Sabalenka has upended the narrative that her year should be viewed as exposing a tendency to buckle under pressure when it matters most.`\
 https://nytimes.com/athletic/6606758/2025/09/06/us-open-aryna-sabalenka-season/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6606938/2025/09/06/brewers-vs-pirates-stream-how-to
 **How to watch Dodgers at Orioles: Time, TV, streaming for September 7**\
 `Find out how to watch the Los Angeles Dodgers play the Baltimore Orioles, with time, TV channel, and streaming information.`\
 https://nytimes.com/athletic/6606937/2025/09/06/dodgers-vs-orioles-stream-how-to-watch-sept-7/
-
-**How to watch Mariners at Braves: Time, TV, streaming for September 7**\
-`Find out how to watch the Seattle Mariners play the Atlanta Braves, with time, TV channel, and streaming information.`\
-https://nytimes.com/athletic/6606934/2025/09/06/mariners-vs-braves-stream-how-to-watch-sept-7/
 
