@@ -1,3 +1,11 @@
+**Geno Smith rewards a franchise's confidence in his Raiders debut**\
+`The quarterback, hand-picked by Pete Carroll, delivered in a season-opening win over the Patriots.`\
+https://nytimes.com/athletic/6608766/2025/09/07/geno-smith-pete-carroll-raiders-debut/
+
+**Shohei Ohtani's two home runs help Dodgers snap skid to last-place teams**\
+`The Dodgers had dropped seven of their last eight games against teams with losing records and gone 22-30 since July 4 before Sunday's win.`\
+https://nytimes.com/athletic/6608803/2025/09/07/dodgers-shohei-ohtani-orioles-losing-streak/
+
 **Shohei Ohtani's two home runs help Dodgers snap skid to last-place teams**\
 `The Dodgers had dropped seven of their last eight games against teams with losing records and 22-30 since July 4 before Sunday's win.`\
 https://nytimes.com/athletic/6608803/2025/09/07/dodgers-shohei-ohtani-orioles-losing-streak/
