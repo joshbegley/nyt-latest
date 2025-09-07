@@ -1,5 +1,9 @@
+**Marilyn Monroe’s Los Angeles Home Is Saved From Demolition**\
+`A judge denied a neighbor’s petition to raze the Spanish-style hacienda, which the City Council had declared a cultural landmark.`\
+https://nytimes.com/2025/09/07/us/marilyn-monroe-house-los-angeles.html
+
 **Ollie Bearman on the brink of F1 race ban after Italian GP crash with Carlos Sainz**\
-`Haas driver Ollie Bearman is now in danger of picking up a race ban after an incident in the 2025 Italian GP`\
+`Haas driver Ollie Bearman sits on ten penalty points, and will miss a race if he picks up two more `\
 https://nytimes.com/athletic/6608275/2025/09/07/ollie-bearman-f1-race-ban-italian-gp/
 
 **SEC vibes rankings: Big wins and high hopes — and then there's Florida**\
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/6607857/2025/09/07/f1-italian-gp-recap-max-verstapp
 `<p>The 2025 college football season is two weeks old. It&#8217;s still very early, but storylines are already taking shape in the ACC. Submit your questions for Grace Raynor and Manny Navarro. We will post their answers later this week.</p>
 `\
 https://nytimes.com/athletic/6607947/2025/09/07/submit-your-questions-for-the-athletics-acc-football-mailbag-14/
-
-**Tracking Tropical Storm Tapah**\
-`See the likely path and wind arrival times for Tapah`\
-https://nytimes.com/interactive/2025/weather/tapah-map-path-tracker.html
 
