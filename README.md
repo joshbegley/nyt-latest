@@ -1,3 +1,7 @@
+**Framber Valdez takes hard-luck loss in first start since crossing up his catcher**\
+`The lefty did a much better job maintaining his focus on a day when not much went right for the Astros.`\
+https://nytimes.com/athletic/6608924/2025/09/07/astros-framber-valdez-catcher-cross-up-return/
+
 **Geno Smith rewards a franchise's confidence in his Raiders debut**\
 `The quarterback, hand-picked by Pete Carroll, delivered in a season-opening win over the Patriots.`\
 https://nytimes.com/athletic/6608766/2025/09/07/geno-smith-pete-carroll-raiders-debut/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6608676/2025/09/07/usmnt-worse-than-ever-in-21st-ce
 **Maxi Yacht Rolex Cup: A Challenging Race With Repeat Customers**\
 `Attempting to conquer the prestigious regatta, owners of these top-level, big boats keep coming back.`\
 https://nytimes.com/2025/09/07/sports/sailing/maxi-yacht-rolex-cup-sailors.html
-
-**Game, Set, Match: Carlos Alcaraz defeats Jannik Sinner at U.S. Open to reclaim world No. 1**\
-`Sinner and Alcaraz's third consecutive Grand Slam final reaffirmed the gulf between them and the rest of men's tennis.`\
-https://nytimes.com/athletic/6608295/2025/09/07/us-open-final-alcaraz-sinner-result-analysis/
 
