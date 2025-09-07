@@ -1,3 +1,11 @@
+**Obligations, options and loans: Explaining the Premier League's latest transfer trend**\
+`Whether they kick the PSR can down the road or provide an exit strategy for worst-case scenarios, these deals can solve many problems`\
+https://nytimes.com/athletic/6601467/2025/09/07/harvey-elliott-loan-obligation-transfer-explained/
+
+**College Football Playoff 2025 projections: How Week 2 changed the most likely bracket**\
+`Our College Football Playoff predictions model is back. Check here for regular updates on CFP and national championship odds for 2025.`\
+https://nytimes.com/athletic/6560541/2025/09/06/college-football-playoff-bracket-projections-odds/
+
 **Quote of the Day: Forced to Leave Yet Again, With 1948 Displacement Feeling Fresher Than Ever**\
 `Quotation of the Day for Sunday, September 7, 2025.`\
 https://nytimes.com/2025/09/07/pageoneplus/quote-of-the-day-forced-to-leave-yet-again-with-1948-displacement-feeling-fresher-than-ever.html

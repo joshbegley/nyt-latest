@@ -1,6 +1,18 @@
+**Gianluigi Donnarumma may not feel like a 'Pep player', but neither did Erling Haaland**\
+`Donnarumma is the Haaland of goalkeepers. His deficiencies are overplayed. His generational talent somehow continues to be underplayed`\
+https://nytimes.com/athletic/6604783/2025/09/07/donnarumma-pep-guardiola-man-city/
+
+**Anderson offers Tuchel a solution to England's problematic No 6 role**\
+`England's win over Andorra was routine but offered a glimpse into what Tuchel's midfield might look like – and where Declan Rice might play`\
+https://nytimes.com/athletic/6606145/2025/09/07/elliot-anderson-england-midfield/
+
 **Obligations, options and loans: Explaining the Premier League's latest transfer trend**\
 `Whether they kick the PSR can down the road or provide an exit strategy for worst-case scenarios, these deals can solve many problems`\
 https://nytimes.com/athletic/6601467/2025/09/07/harvey-elliott-loan-obligation-transfer-explained/
+
+**The rise of the individual striker coach: 'I don't believe in natural goalscoring'**\
+`Why individual coaches are becoming just as important to a player’s development as those attached to their own club`\
+https://nytimes.com/athletic/6560032/2025/09/07/the-rise-of-the-individual-striker-coach/
 
 **Quote of the Day: Forced to Leave Yet Again, With 1948 Displacement Feeling Fresher Than Ever**\
 `Quotation of the Day for Sunday, September 7, 2025.`\
@@ -25,16 +37,4 @@ https://nytimes.com/2025/09/07/us/politics/trump-congresss-power.html
 **Connections: Sports Edition Coach: Hints for Sept. 7, 2025**\
 `Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
 https://nytimes.com/athletic/6606702/2025/09/07/connections-sports-edition-hints-for-sept-7-2025/
-
-**Bill Belichick on banning Pats scouts from UNC: 'I'm not welcome there'**\
-`It's the latest point of tension between the six-time Super Bowl-champion coach and the team he led for 24 seasons.`\
-https://nytimes.com/athletic/6607117/2025/09/06/bill-belichick-bans-patriots-scouts-unc/
-
-**In trying to generate squad competition, Pochettino's USMNT is no better off**\
-`Mauricio Pochettino recognizes the USMNT's complacency problem, but has proven hooked on trying to solve it with lackluster depth`\
-https://nytimes.com/athletic/6607040/2025/09/06/mauricio-pochettino-usmnt-roster-selection-problem-world-cup/
-
-**College Football Playoff 2025 projections: How Week 2 changed the most likely bracket**\
-`Our College Football Playoff predictions model is back. Check here for regular updates on CFP and national championship odds for 2025.`\
-https://nytimes.com/athletic/6560541/2025/09/06/college-football-playoff-bracket-projections-odds/
 
