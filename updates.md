@@ -1,3 +1,7 @@
+**The Pulse: Another spitting incent? Check.**\
+`Welcome to The Pulse, The Athletic's daily sports newsletter.`\
+https://nytimes.com/athletic/6607167/2025/09/07/a-spitting-incident-that-could-prove-quite-costly-for-florida/
+
 **USMNT played at home but South Korea fans made it feel like a road game**\
 `Another home game, another passionate crowd full of away fans`\
 https://nytimes.com/athletic/6607281/2025/09/07/usmnt-fans-pochettino-hong-myung-bo-south-korea/
