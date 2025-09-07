@@ -1,3 +1,15 @@
+**Blue Jays: 'Pretty obvious' Max Scherzer was tipping pitches ahead of Yankees' home run**\
+`The Yankees held on for a key win after getting help from an unlikely source: Max Scherzer, who was tipping his changeup in the first.`\
+https://nytimes.com/athletic/6608706/2025/09/07/max-scherzer-pitch-tipping-yankees-blue-jays/
+
+**Don’t Own a Boat, but Want to Race in the Maxi Cup? Do a Charter Instead.**\
+`For a fraction of what ownership costs, sailors can rent a boat along with some of its crew. Or pay to join a boat and become part of the crew.`\
+https://nytimes.com/2025/09/07/sports/sailing/maxi-yacht-rolex-cup-charter-boat.html
+
+**Total Lunar Eclipse Seen Across Eastern Hemisphere**\
+`A total lunar eclipse, commonly called a blood moon, crossed the sky in parts of Asia, Australia, Europe and Africa.`\
+https://nytimes.com/video/science/100000010383791/lunar-eclipse-blood-moon.html
+
 **Ready to Be Picked**\
 `Margaret Seikel suggests we get a grip.`\
 https://nytimes.com/2025/09/07/crosswords/daily-puzzle-2025-09-08.html

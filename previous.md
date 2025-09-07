@@ -1,3 +1,15 @@
+**Blue Jays: 'Pretty obvious' Max Scherzer was tipping pitches ahead of Yankees' home run**\
+`The Yankees held on for a key win after getting help from an unlikely source: Max Scherzer, who was tipping his changeup in the first.`\
+https://nytimes.com/athletic/6608706/2025/09/07/max-scherzer-pitch-tipping-yankees-blue-jays/
+
+**Don’t Own a Boat, but Want to Race in the Maxi Cup? Do a Charter Instead.**\
+`For a fraction of what ownership costs, sailors can rent a boat along with some of its crew. Or pay to join a boat and become part of the crew.`\
+https://nytimes.com/2025/09/07/sports/sailing/maxi-yacht-rolex-cup-charter-boat.html
+
+**Total Lunar Eclipse Seen Across Eastern Hemisphere**\
+`A total lunar eclipse, commonly called a blood moon, crossed the sky in parts of Asia, Australia, Europe and Africa.`\
+https://nytimes.com/video/science/100000010383791/lunar-eclipse-blood-moon.html
+
 **Ready to Be Picked**\
 `Margaret Seikel suggests we get a grip.`\
 https://nytimes.com/2025/09/07/crosswords/daily-puzzle-2025-09-08.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6608295/2025/09/07/us-open-final-alcaraz-sinner-res
 **49ers TE George Kittle ruled out vs. Seahawks with hamstring injury**\
 `Kittle caught a 5-yard touchdown pass to get the 49ers scoring started before leaving with his injury.`\
 https://nytimes.com/athletic/6608768/2025/09/07/49ers-george-kittle-hamstring-injury/
-
-**NFL Week 1 takeaways: Rodgers rejuvenated, Wilson shaky, Dolphins embarrassed**\
-`Our writers weigh in on Sunday's biggest storylines and identify the rookie debut that impressed them the most.`\
-https://nytimes.com/athletic/6608642/2025/09/07/nfl-takeaways-week-1-aaron-rodgers-russell-wilson/
-
-**Cardinals' Kyler Murray tosses 2 TD passes in win; Saints comeback attempt falls short: Key takeaways**\
-`Winning on the road is never easy, but the Cardinals made this 20-13 Week 1 victory tougher than necessary.`\
-https://nytimes.com/athletic/6608562/2025/09/07/saints-cardinals-score-result-takeaways-nfl-week-1/
-
-**A View From Inside Iran**\
-`Our correspondent found a sense of apprehension in the country after the 12-day war with Israel.`\
-https://nytimes.com/2025/09/07/briefing/inside-iran-japan-prime-minister-kyiv-attack.html
 
