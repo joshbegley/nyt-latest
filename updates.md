@@ -1,3 +1,7 @@
+**Stop Acting Like This Is Normal**\
+`Democrats aren’t powerless, and they don’t have to enable autocracy.`\
+https://nytimes.com/2025/09/07/opinion/trump-senate-democrats-shutdown.html
+
 **Giants blow another win for Justin Verlander, but the sting is different this time**\
 `San Francisco's runaway momentum stopped in its tracks Saturday night with a 3-2 loss to the St. Louis Cardinals.`\
 https://nytimes.com/athletic/6607204/2025/09/07/san-francisco-giants-lose-cardinals-justin-verlander/
