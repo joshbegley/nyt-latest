@@ -1,3 +1,7 @@
+**Colts rout Dolphins, notching first Week 1 win since 2013: Takeaways**\
+`Colts' Daniel Jones was 22-of-29 passing for 272 yards and one touchdown in a 33-8 season-opening win against the Dolphins.`\
+https://nytimes.com/athletic/6608423/2025/09/07/dolphins-colts-score-result-takeaways-nfl-week-1/
+
 **Barnett Shepherd, Champion of Staten Island’s Heritage, Dies at 87**\
 `A longtime resident, he devoted his career to Historic Richmond Town and Sailors’ Snug Harbor, two of the borough’s most important cultural institutions.`\
 https://nytimes.com/2025/09/07/nyregion/barnett-shepherd-dead.html

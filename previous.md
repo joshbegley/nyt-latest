@@ -1,3 +1,7 @@
+**Colts rout Dolphins, notching first Week 1 win since 2013: Takeaways**\
+`Colts' Daniel Jones was 22-of-29 passing for 272 yards and one touchdown in a 33-8 season-opening win against the Dolphins.`\
+https://nytimes.com/athletic/6608423/2025/09/07/dolphins-colts-score-result-takeaways-nfl-week-1/
+
 **Barnett Shepherd, Champion of Staten Island’s Heritage, Dies at 87**\
 `A longtime resident, he devoted his career to Historic Richmond Town and Sailors’ Snug Harbor, two of the borough’s most important cultural institutions.`\
 https://nytimes.com/2025/09/07/nyregion/barnett-shepherd-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6608443/2025/09/07/nfl-sex-toy-incident-cleveland-b
 **Russia Launches Largest-Ever Drone Attack in Ukraine War**\
 `Russia launched hundreds of exploding drones and decoys across Ukraine in the largest air assault so far in the war, killing at least five people and setting a government building in Kyiv ablaze.`\
 https://nytimes.com/video/world/europe/100000010383840/russia-ukraine-strikes-kyiv.html
-
-**Panthers-Jaguars resumes after weather delay; Travis Hunter active early**\
-`The game between the Panthers and Jaguars was delayed for more than 45 minutes.`\
-https://nytimes.com/athletic/6608247/2025/09/07/panthers-jaguars-score-result-takeaways-nfl-week-1/
 
