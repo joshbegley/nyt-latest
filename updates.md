@@ -1,3 +1,5 @@
+
+
 **The Pulse: Another spitting incent? Check.**\
 `Welcome to The Pulse, The Athletic's daily sports newsletter.`\
 https://nytimes.com/athletic/6607167/2025/09/07/a-spitting-incident-that-could-prove-quite-costly-for-florida/
