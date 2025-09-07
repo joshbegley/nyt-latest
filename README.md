@@ -1,3 +1,15 @@
+**John Burton, 92, Dies; California Political Boss Who Staged a Comeback**\
+`He left the House of Representatives while struggling with a crack addiction, his political career seemingly over. Actually, it had just begun.`\
+https://nytimes.com/2025/09/07/us/politics/john-burton-dead.html
+
+**Commanders' D is a menace while smothering Giants: 'We took last year personal'**\
+`Washington’s maligned defense was much more than a safety net in a season-opening win over the Giants. It was a force.`\
+https://nytimes.com/athletic/6608996/2025/09/07/washington-commanders-defense-giants-win/
+
+**Your Zodiac Sign Is 2,000 Years Out of Date**\
+`Over millennia, our view of the stars has shifted, because of Earth’s wobble. It may be time to rethink your sign.`\
+https://nytimes.com/interactive/2025/upshot/zodiac-signs.html
+
 **No Corrections: Sept. 08, 2025**\
 `No corrections appeared in print on Monday, Sept. 08, 2025.`\
 https://nytimes.com/2025/09/07/pageoneplus/no-corrections-sept-08-2025.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6608766/2025/09/07/geno-smith-pete-carroll-raiders-
 **Blue Jays: 'Pretty obvious' Max Scherzer was tipping pitches ahead of Yankees' home run**\
 `The Yankees held on for a key win after getting help from an unlikely source: Max Scherzer, who was tipping his changeup in the first.`\
 https://nytimes.com/athletic/6608706/2025/09/07/max-scherzer-pitch-tipping-yankees-blue-jays/
-
-**Don’t Own a Boat, but Want to Race in the Maxi Cup? Do a Charter Instead.**\
-`For a fraction of what ownership costs, sailors can rent a boat along with some of its crew. Or pay to join a boat and become part of the crew.`\
-https://nytimes.com/2025/09/07/sports/sailing/maxi-yacht-rolex-cup-charter-boat.html
-
-**Total Lunar Eclipse Seen Across Eastern Hemisphere**\
-`A total lunar eclipse, commonly called a blood moon, crossed the sky in parts of Asia, Australia, Europe and Africa.`\
-https://nytimes.com/video/science/100000010383791/lunar-eclipse-blood-moon.html
-
-**Ready to Be Picked**\
-`Margaret Seikel suggests we get a grip.`\
-https://nytimes.com/2025/09/07/crosswords/daily-puzzle-2025-09-08.html
 
