@@ -1,3 +1,7 @@
+**Max Dowman draws fouls and plaudits as the Arsenal teenager excels for England Under-19s**\
+`Spain ended up having to substitute their left-back after he resorted to persistent fouls to stop the 15-year-old in Murcia`\
+https://nytimes.com/athletic/6607290/2025/09/07/max-dowman-england-arsenal-spain/
+
 **A Town Reluctantly Let a Mosque Expand. Then Came the Backlash.**\
 `A Long Island town board failed to approve a settlement its lawyers had struck with Masjid Al-Baqi after a yearslong dispute tainted by bigotry. The mosque’s federal suit will be heard next month.`\
 https://nytimes.com/2025/09/07/nyregion/oyster-bay-mosque-lawsuit.html

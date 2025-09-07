@@ -1,3 +1,7 @@
+**Max Dowman draws fouls and plaudits as the Arsenal teenager excels for England Under-19s**\
+`Spain ended up having to substitute their left-back after he resorted to persistent fouls to stop the 15-year-old in Murcia`\
+https://nytimes.com/athletic/6607290/2025/09/07/max-dowman-england-arsenal-spain/
+
 **A Town Reluctantly Let a Mosque Expand. Then Came the Backlash.**\
 `A Long Island town board failed to approve a settlement its lawyers had struck with Masjid Al-Baqi after a yearslong dispute tainted by bigotry. The mosque’s federal suit will be heard next month.`\
 https://nytimes.com/2025/09/07/nyregion/oyster-bay-mosque-lawsuit.html
@@ -33,8 +37,4 @@ https://nytimes.com/issue/todayspaper/2025/09/07/todays-new-york-times
 **The Future Is Flag**\
 `Flag football offers girls as well as boys a means of enjoying the sport without the risk of brain damage.`\
 https://nytimes.com/2025/09/07/opinion/nfl-flag-football.html
-
-**If Democrats Have a Better Plan, I’d Like to Hear It**\
-`In a few weeks the government’s funding will run out. If Democrats vote for a new spending bill, they will be funding Trump’s autocratic takeover — and I don’t see how they can.`\
-https://nytimes.com/video/opinion/100000010381405/if-democrats-have-a-better-plan-id-like-to-hear-it.html
 
