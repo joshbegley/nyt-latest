@@ -1,3 +1,7 @@
+**Italian GP: Verstappen sets new F1 record as McLaren orders spark late drama**\
+`Max Verstappen won F1's fastest-ever race, while the title fight behind him took on a new chapter`\
+https://nytimes.com/athletic/6607857/2025/09/07/f1-italian-gp-recap-max-verstappen-win-oscar-piastri-lando-norris/
+
 **Submit your questions for The Athletic’s ACC football mailbag**\
 `<p>The 2025 college football season is two weeks old. It&#8217;s still very early, but storylines are already taking shape in the ACC. Submit your questions for Grace Raynor and Manny Navarro. We will post their answers later this week.</p>
 `\
@@ -34,8 +38,4 @@ https://nytimes.com/live/2025/09/07/us/trump-news
 **Nepal Bans 26 Social Media Platforms, Including Facebook and YouTube**\
 `Critics worry a new law could curb freedom of expression, affect tourism and cut communication with the many Nepalis who work abroad.`\
 https://nytimes.com/2025/09/07/world/asia/nepal-bans-social-media-platforms.html
-
-**Egypt-Israel Tensions Rise Over Attack on Gaza City**\
-`A large-scale Israeli assault on the city in northern Gaza could push hundreds of thousands of Palestinians southward toward Egypt’s border.`\
-https://nytimes.com/2025/09/07/world/middleeast/egypt-israel-gaza-city.html
 
