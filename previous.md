@@ -1,3 +1,7 @@
+**Giants blow another win for Justin Verlander, but the sting is different this time**\
+`San Francisco's runaway momentum stopped in its tracks Saturday night with a 3-2 loss to the St. Louis Cardinals.`\
+https://nytimes.com/athletic/6607204/2025/09/07/san-francisco-giants-lose-cardinals-justin-verlander/
+
 **'I'm going back out': Hunter Brown outduels Jacob deGrom, bolsters Cy Young candidacy**\
 `"Hunter Brown is a guy I'll take over anybody," Jeremy Peña says. "I put all my trust in him."`\
 https://nytimes.com/athletic/6607241/2025/09/07/astros-rangers-hunter-brown-outduels-jacob-degrom/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6607215/2025/09/07/athletics-vs-angels-stream-how-t
 **Gianluigi Donnarumma may not feel like a 'Pep player', but neither did Erling Haaland**\
 `Donnarumma is the Haaland of goalkeepers. His deficiencies are overplayed. His generational talent somehow continues to be underplayed`\
 https://nytimes.com/athletic/6604783/2025/09/07/donnarumma-pep-guardiola-man-city/
-
-**Anderson offers Tuchel a solution to England's problematic No 6 role**\
-`England's win over Andorra was routine but offered a glimpse into what Tuchel's midfield might look like – and where Declan Rice might play`\
-https://nytimes.com/athletic/6606145/2025/09/07/elliot-anderson-england-midfield/
 

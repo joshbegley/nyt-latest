@@ -1,3 +1,7 @@
+**Giants blow another win for Justin Verlander, but the sting is different this time**\
+`San Francisco's runaway momentum stopped in its tracks Saturday night with a 3-2 loss to the St. Louis Cardinals.`\
+https://nytimes.com/athletic/6607204/2025/09/07/san-francisco-giants-lose-cardinals-justin-verlander/
+
 **'I'm going back out': Hunter Brown outduels Jacob deGrom, bolsters Cy Young candidacy**\
 `"Hunter Brown is a guy I'll take over anybody," Jeremy Peña says. "I put all my trust in him."`\
 https://nytimes.com/athletic/6607241/2025/09/07/astros-rangers-hunter-brown-outduels-jacob-degrom/
