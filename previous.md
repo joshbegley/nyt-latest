@@ -1,40 +1,40 @@
-**Pope Leo XIV Declares Two Saints, Including Carlo Acutis**\
-`Carlo, who died at 15, was canonized alongside Pier Giorgio Frassati, who also died young. The church is looking to the two saints to inspire new generations of Catholics.`\
-https://nytimes.com/2025/09/07/world/europe/carlo-acutis-frassati-pope-leo-saints.html
+**For Oklahoma, everything runs on an indestructible transfer QB. Can they make it last?**\
+`Mateer has been electric, fearless in both his passing and his running. But will it all hold up for Oklahoma's SEC schedule?`\
+https://nytimes.com/athletic/6607330/2025/09/07/john-mateer-oklahoma-michigan/
 
-**The warmups are over for USC. Now, it's time to find out who this team really is**\
-`The Trojans easily took down two lesser opponents in the first two weeks of the season, but now the real test starts.`\
-https://nytimes.com/athletic/6607329/2025/09/07/usc-football-georgia-southern-win/
+**NFL Week 1 top storylines: New eras, encore presentations, high-pressure situations**\
+`Aaron Rodgers and Justin Fields meet in a Steelers-Jets revenge game, while Lamar Jackson and Josh Allen battle again.`\
+https://nytimes.com/athletic/6593170/2025/09/07/nfl-week-1-storylines-josh-allen-lamar-jackson/
 
-**NFL's RedZone (with ads) starts... now: Why fans are talking about the Sunday showcase**\
-`The Sundays-only NFL TV product with the cult-like following has fans reacting strongly to an adjustment to a beloved format.`\
-https://nytimes.com/athletic/6597662/2025/09/07/redzone-vs-commercials-why-everyone-is-talking-about-the-nfls-sunday-showcase/
+**A fan had a chance to win $25,000. He trolled his team’s rival instead**\
+`'It was a no-brainer in my mind to stoke the fire a little bit,' said lifelong Mizzou fan Carter Arey.`\
+https://nytimes.com/athletic/6607283/2025/09/07/missouri-fan-field-goal-kick-kansas/
 
-**The New York Times International Edition in Print for Monday, Sep. 8, 2025**\
-``\
-https://nytimes.com/issue/todaysinyt/2025/09/07/todays-new-york-times-international-edition
+**Why Google Got Off Easy**\
+`The message to other companies is plain: It pays to break the law.`\
+https://nytimes.com/2025/09/07/opinion/google-ruling-antirust.html
 
-**Austria's World Cup qualifier delayed after sinkhole appears on pitch**\
-`The fixture was paused in the 75th minute at the Raiffeisen Arena in Linz, Austria.`\
-https://nytimes.com/athletic/6607365/2025/09/07/austria-cyprus-sinkhole-world-cup-qualifier/
+**It Doesn’t Seem Wise to Let Trump Decide What War Is**\
+`We do not kill those merely suspected of being criminals from the air.`\
+https://nytimes.com/2025/09/07/opinion/trump-venezuela-airstrike-laws.html
 
-**How to watch Red Sox at Diamondbacks: Time, TV, streaming for September 7**\
-`Find out how to watch the Boston Red Sox play the Arizona Diamondbacks, with time, TV channel, and streaming information.`\
-https://nytimes.com/athletic/6607419/2025/09/07/red-sox-vs-diamondbacks-stream-how-to-watch-sept-7/
+**Michigan-Oklahoma wasn't supposed to be about Sherrone Moore. But that's how it ended up.**\
+`Sherrone Moore downplayed his return to his alma mater during the week, but the loss to Oklahoma shifted the spotlight to him. `\
+https://nytimes.com/athletic/6607291/2025/09/07/michigan-oklahoma-sherrone-moore/
 
-**How to watch Padres at Rockies: Time, TV, streaming for September 7**\
-`Find out how to watch the San Diego Padres play the Colorado Rockies, with time, TV channel, and streaming information.`\
-https://nytimes.com/athletic/6607417/2025/09/07/padres-vs-rockies-stream-how-to-watch-sept-7/
+**Help! I’ve Become a Helicopter Parent to My Dog.**\
+`Dog parenting has gotten out of control. That’s what I said to myself eight months ago.`\
+https://nytimes.com/2025/09/07/opinion/dogs-helicopter-parenting.html
 
-**At U.S. Open, scene at wheelchair competitions a sign of 20 years of growth**\
-`Rivalries and the atmosphere at Grand Slam tournaments have helped wheelchair tennis grow.`\
-https://nytimes.com/athletic/6606785/2025/09/07/us-open-2025-wheelchair-finals/
+**How to watch 2025 US Open men's final: Sinner, Alcaraz continue dominance of tennis world**\
+`Yet again, Jannik Sinner and Carlos Alcaraz meet in a Grand Slam final. Here's how to watch and who is favored.`\
+https://nytimes.com/athletic/6602989/2025/09/07/how-to-watch-2025-us-open-mens-final-sinner-alcaraz-odds/
 
-**What We Know About the Hyundai-LG Plant Immigration Raid in Georgia**\
-`Several hundred workers, most of them South Korean nationals, were detained at the construction site of a sprawling electric vehicle battery plant on Thursday.`\
-https://nytimes.com/2025/09/07/us/politics/hyundai-plant-immigration-raid-georgia.html
+**Sunday Special: The Books We Read in School**\
+`The ones that stuck with us, and the ones we’ve left behind.`\
+https://nytimes.com/2025/09/07/podcasts/the-daily/sunday-special-the-books-we-read-in-school.html
 
-**Andy Roddick Has a New Title: ‘YouTube Guy’**\
-`The former No. 1 tennis player in the world is now at the top of a growing pack of podcasters focused on the sport.`\
-https://nytimes.com/2025/09/07/business/media/andy-roddick-served-tennis-podcast.html
+**America Alone Can’t Match China. But With Our Allies, It’s No Contest.**\
+`Size matters in great-power contests, and the U.S. can’t go it alone against China.`\
+https://nytimes.com/2025/09/07/opinion/us-trump-china-allies.html
 
