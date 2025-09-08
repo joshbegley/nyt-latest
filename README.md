@@ -1,3 +1,7 @@
+**Trump Says Having ‘a Little Fight With the Wife’ Should Not Count as a Crime**\
+`President Trump said that offenses that happen at home should not undermine his record of crime reduction in Washington.`\
+https://nytimes.com/2025/09/08/us/politics/trump-domestic-violence-crime-statistics.html
+
 **Read the Court Ruling on E. Jean Carrolls Judgement Against Trump**\
 `A federal appeals court on Monday upheld an $83.3 million jury award against President Trump for defaming the writer E. Jean Carroll in 2019, after she accused him of a decades-old rape in a Manhattan department store — an attack for which he was separately found liable for sexual abuse.`\
 https://nytimes.com/interactive/2025/09/08/nyregion/08carroll-appeal-doc.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6611237/2025/09/08/south-alabama-vs-auburn-stream-h
 **How to watch Clemson at Georgia Tech: Time, TV, streaming**\
 `Find out how to watch the Clemson Tigers play the Georgia Tech Yellow Jackets, with time, TV channel, and streaming information.`\
 https://nytimes.com/athletic/6611235/2025/09/08/clemson-vs-georgia-tech-stream-how-to-watch-sept-13/
-
-**How to watch Oklahoma at Temple: Time, TV, streaming**\
-`Find out how to watch the Oklahoma Sooners play the Temple Owls, with time, TV channel, and streaming information.`\
-https://nytimes.com/athletic/6611233/2025/09/08/oklahoma-vs-temple-stream-how-to-watch-sept-13/
 
