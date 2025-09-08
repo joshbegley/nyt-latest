@@ -1,3 +1,15 @@
+**Deschamps defends handling of Dembele, Doue injuries after PSG criticism**\
+`PSG accused France of not taking medical information into account and described the injuries as "serious and avoidable".`\
+https://nytimes.com/athletic/6610352/2025/09/08/psg-france-dembele-doue-deschamps-injury/
+
+**Leverkusen appoint Hjulmand as head coach after Ten Hag exit**\
+`Hjulmand, 52, has been out of football since leaving his position as Denmark head coach after Euro 2024.`\
+https://nytimes.com/athletic/6600942/2025/09/08/leverkusen-manager-hjulmand-ten-hag/
+
+**Rick Davies, Lead Singer of Supertramp, Dies at 81**\
+`The English vocalist wrote hits including “Goodbye Stranger” and “Bloody Well Right.” His use of the Wurlitzer piano became one of the rock band’s signature sounds.`\
+https://nytimes.com/2025/09/08/world/europe/supertramp-rick-davies-dead.html
+
 **Fantasy football Week 1 takeaways: Lions, Bucs offenses offenses look toothless**\
 `Among his Week 1 takes, Michael Salfino says the Lions' offense appears a far cry from the Ben Johnson-led offenses of previous seasons.`\
 https://nytimes.com/athletic/6609471/2025/09/08/fantasy-football-week-1-takeaways-lions-jcm-fields/
