@@ -1,3 +1,15 @@
+**Hopeful Hint of an Earthlike Atmosphere on a Distant Planet**\
+`Scientists are steadily ruling out habitable conditions on the seven planets of the star Trappist-1. On one of the worlds, a nitrogen gas-rich veil remains a possibility.`\
+https://nytimes.com/2025/09/08/science/trappist-1e-star-planet-nitrogen.html
+
+**A Tech Reporter’s Side Gig: Music Writing**\
+`Every so often, Mike Isaac swerves from his Silicon Valley beat to write about bands.`\
+https://nytimes.com/2025/09/08/technology/mike-isaac-music-writing.html
+
+**Trump Administration, Again, Asks Supreme Court to Let It Block Foreign Aid**\
+`The court has been largely receptive to the administration’s claims of executive power.`\
+https://nytimes.com/2025/09/08/us/politics/trump-supreme-court-foreign-aid.html
+
 **The Windup: MLB’s playoff picture with 3 weeks to go**\
 `Welcome to The Windup, The Athletic's MLB newsletter.`\
 https://nytimes.com/athletic/6609919/2025/09/08/mlb-playoff-picture-3-weeks-the-windup/
