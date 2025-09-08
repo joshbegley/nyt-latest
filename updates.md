@@ -1,3 +1,7 @@
+**Braves lose Sean Murphy for the season to right hip labral tear**\
+`Murphy began experiencing pain in his hip three years ago but didn't tell the team about it until now. He will have surgery on Thursday.`\
+https://nytimes.com/athletic/6611288/2025/09/08/atlanta-braves-sean-murphy-hip-labral-tear/
+
 **Bears reinforce Arlington Heights stadium goal in letter to season ticket holders**\
 `President and CEO Kevin Warren said the team plans to bid to host a Super Bowl in a suburban domed stadium as early as 2031.`\
 https://nytimes.com/athletic/6611451/2025/09/08/chicago-bears-stadium-plans-arlington-heights-kevin-warren/

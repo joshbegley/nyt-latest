@@ -10,6 +10,10 @@ https://nytimes.com/2025/09/08/briefing/supreme-court-immigration-stops-murdoch-
 `The Sweden international completed a Premier League-record transfer to Liverpool on September 1 `\
 https://nytimes.com/athletic/6611484/2025/09/08/alexander-isak-sweden-world-cup-qualifiers/
 
+**Braves lose Sean Murphy for the season to right hip labral tear**\
+`Murphy began experiencing pain in his hip three years ago but didn't tell the team about it until now. He will have surgery on Thursday.`\
+https://nytimes.com/athletic/6611288/2025/09/08/atlanta-braves-sean-murphy-hip-labral-tear/
+
 **Workers Detained in Georgia Raid Will Return to South Korea**\
 `South Korea negotiated the release of hundreds of Korean nationals who were detained during a raid on a Hyundai-LG electric vehicle battery plant in Georgia.`\
 https://nytimes.com/video/us/politics/100000010385281/detained-south-korean-workers-going-home.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/08/nyregion/mamdani-nypd.html
 **10 Killed and 61 Injured in Mexico After Train Crashes Into Bus**\
 `Accidents involving vehicles and trains have been increasing as the Mexican government has pushed to revitalize railroads and build new passenger lines.`\
 https://nytimes.com/2025/09/08/world/americas/mexico-train-crash.html
-
-**Weekly Student News Quiz: Summer Movies, Earthquake, Google**\
-`Have you been paying attention to current events recently? See how many of these 10 questions you can get right.`\
-https://nytimes.com/interactive/2025/09/08/learning/08Student-News-Quiz.html
 
