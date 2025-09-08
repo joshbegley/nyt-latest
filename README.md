@@ -1,3 +1,7 @@
+**Hollywood Actors and Directors Pledge to Boycott Israeli Film Institutions**\
+`In an open letter, Javier Bardem, Olivia Colman and other stars pledged not to work with Israeli film companies that, in their view, “are implicated in genocide.”`\
+https://nytimes.com/2025/09/08/movies/hollywood-israel-boycott.html
+
 **Republican Senators Investigate Palisades Fire Response**\
 `Two senators have begun an investigation into whether government officials could have done more to stop the Los Angeles fire. President Trump and other Republicans have blamed Democratic leaders for the disaster.`\
 https://nytimes.com/2025/09/08/us/palisades-fire-investigation-los-angeles.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6610918/2025/09/08/nfl-risers-fallers-trending-week
 **The All-Consuming Question Hanging Over Prince Harry’s U.K. Visit**\
 `Harry, who has not seen his father, King Charles, for more than a year, arrived in Britain for a four-day visit on Monday.`\
 https://nytimes.com/2025/09/08/world/europe/prince-harry-uk-visit.html
-
-**Christoph von Dohnanyi, Conductor With a World of Admirers, Dies at 95**\
-`Known for his long tenure at the podium of the acclaimed Cleveland Orchestra, he was sought after as a guest with major symphonies and opera companies.`\
-https://nytimes.com/2025/09/08/arts/music/christoph-von-dohnanyi-dead.html
 
