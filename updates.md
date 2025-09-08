@@ -1,3 +1,11 @@
+**Murdochs Reach Deal to Resolve Succession Fight**\
+`Lachlan Murdoch will take control of a new family trust in a deal worth $3.3 billion, ensuring that his father’s media empire will retain its conservative slant.`\
+https://nytimes.com/2025/09/08/business/media/murdoch-family-trust-succession-deal.html
+
+**Phillies put Trea Turner and Alec Bohm on IL; Turner's injury not season-ending**\
+`With three weeks to go in the season, the Phillies will need to navigate a key stretch without the left side of their infield.`\
+https://nytimes.com/athletic/6610664/2025/09/08/trea-turner-hamstring-philies-injured-list/
+
 **Guehi fit for England's World Cup qualifier against Serbia, says Tuchel**\
 `The Crystal Palace centre-back was substituted after feeling his groin during Saturday's win against Andorra`\
 https://nytimes.com/athletic/6611161/2025/09/08/marc-guehi-england-injury-update/

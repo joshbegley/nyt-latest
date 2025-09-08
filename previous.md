@@ -1,3 +1,7 @@
+**Murdochs Reach Deal to Resolve Succession Fight**\
+`Lachlan Murdoch will take control of a new family trust in a deal worth $3.3 billion, ensuring that his father’s media empire will retain its conservative slant.`\
+https://nytimes.com/2025/09/08/business/media/murdoch-family-trust-succession-deal.html
+
 **Guehi fit for England's World Cup qualifier against Serbia, says Tuchel**\
 `The Crystal Palace centre-back was substituted after feeling his groin during Saturday's win against Andorra`\
 https://nytimes.com/athletic/6611161/2025/09/08/marc-guehi-england-injury-update/
@@ -11,7 +15,7 @@ https://nytimes.com/2025/09/08/us/politics/trump-domestic-violence-crime-statist
 https://nytimes.com/interactive/2025/09/08/nyregion/08carroll-appeal-doc.html
 
 **Phillies put Trea Turner and Alec Bohm on IL; Turner's injury not season-ending**\
-`With three weeks to go in the season, the Phillies will need to navigate a key stretch without the entire left side of their infield.`\
+`With three weeks to go in the season, the Phillies will need to navigate a key stretch without the left side of their infield.`\
 https://nytimes.com/athletic/6610664/2025/09/08/trea-turner-hamstring-philies-injured-list/
 
 **NFL suspends fan who hit DeAndre Hopkins and Lamar Jackson**\
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/08/us/politics/trump-shares-video-promoting-discredi
 **Congress Obtains Drawing for Epstein Apparently Signed by Trump**\
 `Jeffrey Epstein’s estate turned over a copy of a 50th birthday book that includes a sexually suggestive drawing and note apparently signed by President Trump.`\
 https://nytimes.com/2025/09/08/us/politics/epstein-trump-birthday-book.html
-
-**How to watch South Alabama at Auburn: Time, TV, streaming**\
-`Find out how to watch the South Alabama Jaguars play the Auburn Tigers, with time, TV channel, and streaming information.`\
-https://nytimes.com/athletic/6611237/2025/09/08/south-alabama-vs-auburn-stream-how-to-watch-sept-13/
 
