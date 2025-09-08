@@ -1,10 +1,14 @@
+**Hopeful Hint of an Earthlike Atmosphere on a Distant Planet**\
+`Scientists are steadily ruling out habitable conditions on the seven planets of the star Trappist-1. On one of the worlds, a nitrogen gas-rich veil remains a possibility.`\
+https://nytimes.com/2025/09/08/science/trappist-1e-star-planet-nitrogen.html
+
 **A Tech Reporter’s Side Gig: Music Writing**\
 `Every so often, Mike Isaac swerves from his Silicon Valley beat to write about bands.`\
 https://nytimes.com/2025/09/08/technology/mike-isaac-music-writing.html
 
 **Trump Administration, Again, Asks Supreme Court to Let It Block Foreign Aid**\
 `The court has been largely receptive to the administration’s claims of executive power.`\
-https://nytimes.com/2025/09/08/us/politics/trump-administration-again-asks-supreme-court-to-let-it-block-foreign-aid.html
+https://nytimes.com/2025/09/08/us/politics/trump-supreme-court-foreign-aid.html
 
 **The Windup: MLB’s playoff picture with 3 weeks to go**\
 `Welcome to The Windup, The Athletic's MLB newsletter.`\
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/08/health/abortion-shield-laws.html
 **Fantasy baseball cheat sheet: Add Bader, stream Sheehan and more THE BAT X insights**\
 `The Athletic and THE BAT X have teamed up to offer a weekly cheat sheet, which can help you in fantasy baseball playoffs. `\
 https://nytimes.com/athletic/6610393/2025/09/08/fantasy-baseball-the-bat-x/
-
-**Inside Barcelona: Why Spain's champions still don't know where they are playing home games**\
-`Our Barcelona correspondents share their latest information on the biggest talking points at the club right now`\
-https://nytimes.com/athletic/6610369/2025/09/08/barcelona-camp-nou-news-valencia-thiago-gavi/
 
