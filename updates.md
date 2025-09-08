@@ -1,3 +1,19 @@
+**Fantasy football Week 1 takeaways: Lions, Bucs offenses offenses look toothless**\
+`Among his Week 1 takes, Michael Salfino says the Lions' offense appears a far cry from the Ben Johnson-led offenses of previous seasons.`\
+https://nytimes.com/athletic/6609471/2025/09/08/fantasy-football-week-1-takeaways-lions-jcm-fields/
+
+**London Hit by Travel Chaos as Dayslong Tube Strike Takes Effect**\
+`Underground stations were closed and buses were crammed as commuters grappled with a walkout by transit workers.`\
+https://nytimes.com/2025/09/08/world/europe/london-tube-strike-tfl.html
+
+**As training camp nears, updates on Blue Jackets’ Yegor Chinakhov and Adam Fantilli**\
+`Chinakhov hasn’t rescinded his trade request, and Fantilli's agent isn't in a rush to sign an extension.`\
+https://nytimes.com/athletic/6609525/2025/09/08/yegor-chinakhov-adam-fantilli-blue-jackets/
+
+**Trump Administration Live Updates: Chicago Cancels Mexican Festivities to Avoid Possible Immigration Raids**\
+``\
+https://nytimes.com/live/2025/09/08/us/trump-news
+
 **'I’m playing for the whole city': Matthew Knies won't shy away from the Toronto spotlight**\
 `After Mitch Marner’s departure, the 22-year-old Knies is now an undeniable piece of the Leafs’ core in just his third full NHL season.
 `\
