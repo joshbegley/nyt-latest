@@ -10,7 +10,7 @@ https://nytimes.com/athletic/6609021/2025/09/07/falcons-buccaneers-michael-penix
 `When CJ Stroud had his starting offensive line intact, the Texans' offensive line gave up 12 pressures according to Next Gen Stats.`\
 https://nytimes.com/athletic/6608958/2025/09/07/texans-rams-score-result-takeaways-nfl-week-1/
 
-**Broncos defense stifles Titans, spoils Cam Ward's debut: Key takeaways**\
+**Broncos defense shuts down Titans, spoils Cam Ward's debut: Key takeaways**\
 `After trailing 12-10 early in the second half, Denver scored 10 unanswered points to pull away with the late win.`\
 https://nytimes.com/athletic/6608836/2025/09/07/broncos-titans-score-result-takeaways-nfl-week-1/
 
