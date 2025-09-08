@@ -1,3 +1,15 @@
+**Rosenthal: For fans of each of MLB's 15 flawed playoff contenders, things could always be worse**\
+`Many of these teams seem capable of both winning the World Series and getting bounced in the first round.`\
+https://nytimes.com/athletic/6609484/2025/09/08/mlb-playoff-contenders-fans-flaws/
+
+**Caleb Williams' growth is critical to the Bears. Here are 5 ways to evaluate him in 2025**\
+`As the NFL world micro-analyzes Williams' every move, team leaders will be monitoring his progress in a several categories.`\
+https://nytimes.com/athletic/6602563/2025/09/08/bears-caleb-williams-evaluation-2025/
+
+**Jaxson Dart countdown clock ticking faster, as Brian Daboll won't commit to Russell Wilson**\
+`Daboll was given multiple opportunities to officially name Wilson his Week 2 starter. He declined. `\
+https://nytimes.com/athletic/6609401/2025/09/08/ny-giants-russell-wilson-jaxson-dart-brian-daboll/
+
 **Liverpool will miss Elliott but his Anfield story may not be finished yet**\
 `Nobody at Anfield wanted Elliott to leave but his move to Aston Villa could be in everyone's interests`\
 https://nytimes.com/athletic/6598170/2025/09/08/harvey-elliott-liverpool-aston-villa/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6607373/2025/09/08/chiefs-xavier-worthy-injury-repl
 **Vikings vs. Bears on MNF: McCarthy's debut, TV show faceoff, 'ManningCast' predictions**\
 `We've got pop culture clashes, roster updates and betting odds for Week 1's Vikings-Bears game on "Monday Night Football."`\
 https://nytimes.com/athletic/6598330/2025/09/08/vikings-bears-chicago-prince-nfl-how-to-watch/
-
-**Cowboys ready to move on from Micah Parsons: 'We should stop bringing up his name'**\
-`Parsons made his Packers' debut Sunday. Could the Cowboys have used him? Of course, but they're focused on their own edge rushers.`\
-https://nytimes.com/athletic/6609086/2025/09/08/cowboys-micah-parsons-pass-rush-defense/
-
-**J.J. McCarthy arrives at long-awaited Vikings debut with trademark 'contagious' energy**\
-`After missing all of last season, McCarthy is bringing his positive vibes to the Vikings in their Monday night matchup against the Bears.`\
-https://nytimes.com/athletic/6602978/2025/09/08/jj-mccarthy-vikings-bears-debut-monday-night-football/
-
-**The Commanders made plenty of mistakes vs. Giants, but quality carried the day**\
-`Washington's depth saved it from a close shave Sunday, even when the Commanders were nowhere near their best.`\
-https://nytimes.com/athletic/6608613/2025/09/08/washington-commanders-mistakes-giants/
 

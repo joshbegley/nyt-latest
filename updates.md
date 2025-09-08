@@ -1,3 +1,7 @@
+**Liverpool will miss Elliott but his Anfield story may not be finished yet**\
+`Nobody at Anfield wanted Elliott to leave but his move to Aston Villa could be in everyone's interests`\
+https://nytimes.com/athletic/6598170/2025/09/08/harvey-elliott-liverpool-aston-villa/
+
 **Athletic Club’s Yeray handed 10-month ban after positive doping test**\
 `The centre-back tested positive for the banned substance canrenone following Athletic's first leg Europa League semi-final defeat in May.`\
 https://nytimes.com/athletic/6610100/2025/09/08/athletic-club-yeray-alvarez-doping-ban/
