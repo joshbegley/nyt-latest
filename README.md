@@ -1,3 +1,7 @@
+**Sean Payton vows to lean into Broncos' new-look run game: 'I've got to be better there'**\
+`The 133 rushing yards by JK Dobbins and RJ Harvey in Sunday's win bested the position's output from all but one game in 2024.`\
+https://nytimes.com/athletic/6610666/2025/09/08/broncos-running-game-sean-payton/
+
 **Opening Line: Dolphins favored over Patriots? Now that's a fishy line**\
 `Toby Mergler makes four early Week 2 picks wildly over-indexing on vibes, small sample sizes and comparisons to pop culture classics.`\
 https://nytimes.com/athletic/6610803/2025/09/08/nfl-week-2-betting-picks-opening-line/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6610892/2025/09/08/tottenham-hotspur-vinai-venkates
 **Deportation Fears Are Fueling Money Transfers to Latin America**\
 `Money transfers to Guatemala, Honduras and other nations have increased in recent months, totaling billions of dollars. Undocumented migrants in the United States say they are sending money to relatives while they can.`\
 https://nytimes.com/2025/09/08/world/americas/trump-migrants-remittances.html
-
-**Do You See the Same Colors That I Do?**\
-`Scientists cannot say for certain, but new research suggests that different people’s brains respond similarly when looking at a particular hue.`\
-https://nytimes.com/2025/09/08/science/colors-brain-perception-vision.html
 
