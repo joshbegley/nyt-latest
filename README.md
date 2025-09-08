@@ -1,4 +1,4 @@
-**Phillies put Trea Turner and Alec Bohm on IL: Can they weather their absence?**\
+**Phillies put Trea Turner and Alec Bohm on IL; Turner's injury not season-ending: Sources**\
 `With three weeks to go in the season, the Phillies will need to navigate a key stretch without the entire left side of their infield.`\
 https://nytimes.com/athletic/6610664/2025/09/08/trea-turner-hamstring-philies-injured-list/
 
