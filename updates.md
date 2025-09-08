@@ -1,3 +1,7 @@
+**10 Killed and 61 Injured in Mexico After Train Crashes Into Bus**\
+`Accidents involving vehicles and trains have been increasing as the Mexican government has pushed to revitalize railroads and build new passenger lines.`\
+https://nytimes.com/2025/09/08/world/americas/mexico-train-crash.html
+
 **Weekly Student News Quiz: Summer Movies, Earthquake, Google**\
 `Have you been paying attention to current events recently? See how many of these 10 questions you can get right.`\
 https://nytimes.com/interactive/2025/09/08/learning/08Student-News-Quiz.html
