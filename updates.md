@@ -1,3 +1,7 @@
+**NFL suspends Bills fan who hit Ravens' DeAndre Hopkins and Lamar Jackson**\
+`The Bills fan was ejected from the Sunday night game after shoving the side of Hopkins' helmet following a 29-yard touchdown.`\
+https://nytimes.com/athletic/6611107/2025/09/08/deandre-hopkins-lamar-jackson-bills-fan-banned/
+
 **Amy Coney Barrett’s Memoir Is as Careful and Disciplined as Its Author**\
 `In a studiously bland new book, “Listening to the Law,” the Supreme Court justice describes her legal philosophy and tries to sidestep the court’s recent controversies.`\
 https://nytimes.com/2025/09/08/books/review/listening-to-the-law-amy-coney-barrett.html

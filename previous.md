@@ -26,8 +26,8 @@ https://nytimes.com/interactive/2025/09/08/nyregion/08carroll-appeal-doc.html
 `With three weeks to go in the season, the Phillies will need to navigate a key stretch without the left side of their infield.`\
 https://nytimes.com/athletic/6610664/2025/09/08/trea-turner-hamstring-philies-injured-list/
 
-**NFL suspends fan who hit DeAndre Hopkins and Lamar Jackson**\
-`The fan was ejected from the Sunday night game after shoving the side of Hopkins' helmet following a 29-yard touchdown.`\
+**NFL suspends Bills fan who hit Ravens' DeAndre Hopkins and Lamar Jackson**\
+`The Bills fan was ejected from the Sunday night game after shoving the side of Hopkins' helmet following a 29-yard touchdown.`\
 https://nytimes.com/athletic/6611107/2025/09/08/deandre-hopkins-lamar-jackson-bills-fan-banned/
 
 **Bay FC coach Albertin Montoya to step down at end of season**\
