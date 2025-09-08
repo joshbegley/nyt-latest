@@ -1,3 +1,7 @@
+**Bills eject fan who hit DeAndre Hopkins' helmet, had altercation with Lamar Jackson**\
+`The incident happened after Jackson's 29-yard touchdown pass to Hopkins near the end of the third quarter.`\
+https://nytimes.com/athletic/6609699/2025/09/08/bills-fan-lamar-jackson-deandre-hopkins/
+
 **A View From Inside Iran**\
 `Our correspondent found a sense of apprehension in the country after the 12-day war with Israel.`\
 https://nytimes.com/2025/09/08/briefing/inside-iran-japan-prime-minister-kyiv.html

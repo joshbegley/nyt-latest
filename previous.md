@@ -1,3 +1,7 @@
+**Bills eject fan who hit DeAndre Hopkins' helmet, had altercation with Lamar Jackson**\
+`The incident happened after Jackson's 29-yard touchdown pass to Hopkins near the end of the third quarter.`\
+https://nytimes.com/athletic/6609699/2025/09/08/bills-fan-lamar-jackson-deandre-hopkins/
+
 **A View From Inside Iran**\
 `Our correspondent found a sense of apprehension in the country after the 12-day war with Israel.`\
 https://nytimes.com/2025/09/08/briefing/inside-iran-japan-prime-minister-kyiv.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6608751/2025/09/08/world-cup-qualifying-briefing-wi
 **Does Levy still have power? Is this sign of a takeover? Your Spurs questions answered**\
 `Spurs reporter Jack Pitt-Brooke and football finance expert Chris Weatherspoon address the key questions to arise from Levy's departure`\
 https://nytimes.com/athletic/6604743/2025/09/08/does-daniel-levy-still-have-power-is-this-sign-of-a-takeover-your-spurs-questions-answered/
-
-**25 fascinating Premier League player plotlines to follow: Isak, Grealish, Sesko and more**\
-`There a multitude of storylines to follow when the Premier League returns: here are 25 of the most interesting`\
-https://nytimes.com/athletic/6595104/2025/09/08/premier-league-player-plotlines-isak-grealish-sesko/
 
