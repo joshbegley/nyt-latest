@@ -1,3 +1,11 @@
+**Leverkusen appoint Hjulmand as head coach after Ten Hag exit**\
+`Hjulmand, 52, has been out of football since leaving his position as Denmark head coach after Euro 2024.`\
+https://nytimes.com/athletic/6600942/2025/09/08/leverkusen-manager-hjulmand-ten-hag/
+
+**Rick Davies, Lead Singer of Supertramp, Dies at 81**\
+`The English vocalist wrote hits including “Goodbye Stranger” and “Bloody Well Right.” His use of the Wurlitzer piano became one of the rock band’s signature sounds.`\
+https://nytimes.com/2025/09/08/world/europe/supertramp-rick-davies-dead.html
+
 **Fantasy football Week 1 takeaways: Lions, Bucs offenses offenses look toothless**\
 `Among his Week 1 takes, Michael Salfino says the Lions' offense appears a far cry from the Ben Johnson-led offenses of previous seasons.`\
 https://nytimes.com/athletic/6609471/2025/09/08/fantasy-football-week-1-takeaways-lions-jcm-fields/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6609307/2025/09/08/unrivaled-womens-basketball-valu
 **Ken Griffin Speaks Out Against Trump’s Attacks on the Fed**\
 `The criticism from the hedge fund billionaire and Trump voter is a rare rebuke of the president by a corporate leader.`\
 https://nytimes.com/2025/09/08/business/dealbook/griffin-trump-fed.html
-
-**In a First, Korean Women Target U.S. Military in Suit Over Prostitution**\
-`Dozens of women who worked in the sex trade in South Korea are seeking an apology and compensation for the rights abuses they suffered while catering to American G.I.s.`\
-https://nytimes.com/2025/09/08/world/asia/korea-comfort-women-us-military.html
-
-**Trump Administration Live Updates: Chicago Cancels Mexican Festivities to Avoid Possible Immigration Raids**\
-``\
-https://nytimes.com/live/2025/09/08/us/trump-news
 
