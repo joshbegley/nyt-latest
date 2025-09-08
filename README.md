@@ -1,40 +1,40 @@
-**Inside Real Madrid: Wharton and Smit discussed, injury updates and rotations to come?**\
-`Real Madrid correspondents Guillermo Rai and Mario Cortegana share what they're hearing in their latest weekly column`\
-https://nytimes.com/athletic/6610105/2025/09/08/real-madrid-news-transfers-inside-alonso-update/
+**It’s a new day in Green Bay, and this was one helluva coming-out party**\
+`The buzz at Lambeau Field felt surreal during and after Green Bay's startling win, a result infused with the aura of Micah Parsons.`\
+https://nytimes.com/athletic/6609732/2025/09/08/micah-parsons-packers-aura-matt-lafleur/
 
-**Odegaard 'doesn't care' about Adams' Arsenal captaincy criticism**\
-`In August, Tony Adams urged Mikel Arteta to strip the Norway international of the Arsenal captaincy and hand the role to Declan Rice.`\
-https://nytimes.com/athletic/6610156/2025/09/08/arsenal-news-odegaard-adams-criticism/
+**Through blood and stitches, Puka Nacua proved to be Rams' biggest star in win vs. Texans**\
+`After being evaluated for a concussion, the third-year receiver returned to the game and had a monster performance against Houston. `\
+https://nytimes.com/athletic/6609406/2025/09/08/puka-nacua-rams-win-texans/
 
-**Jeffrey Epstein’s Bankers**\
-`Until JPMorgan dropped him as a client in 2013, America’s leading bank financially enabled the century’s most notorious sexual predator.`\
-https://nytimes.com/2025/09/08/world/jeffrey-epstein-jpmorgan-us-open.html
+**The top under-the-radar moves of the NHL offseason**\
+`Not all of these moves will pan out, but the risk level is low and the upside is substantial.`\
+https://nytimes.com/athletic/6595195/2025/09/08/nhl-2025-offseason-top-moves/
 
-**WNBA power rankings: Can Breanna Stewart spark the Liberty to prep for a playoff run?**\
-`Will Minnesota maintain control? How much will the Dream's depth help them for the playoffs?`\
-https://nytimes.com/athletic/6609806/2025/09/08/wnba-playoffs-rankings-lynx/
+**Meet the 66-year-old retired accountant living his dream in the LSU marching band**\
+`Kent Broussard had been to Tiger Stadium hundreds of times before Saturday. But in LSU's home opener, he had a surprising new role.`\
+https://nytimes.com/athletic/6609054/2025/09/08/lsu-marching-band-kent-broussard-66/
 
-**The Pulse: The Bills are going to win the Super Bowl***\
-`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
-https://nytimes.com/athletic/6609558/2025/09/08/bills-ravens-comeback-week-1-the-pulse/
+**Lloyd: Browns' bungling loss to Bengals wasn't half bad, if you have the right perspective**\
+`The biggest reasons for optimism after such a crushing loss are a defense that held up and a D-line that dominated in the second half.`\
+https://nytimes.com/athletic/6609585/2025/09/08/browns-bengals-week-1-loss-column/
 
-**Rosenthal: For fans of each of MLB's 15 flawed playoff contenders, things could always be worse**\
-`Many of these teams seem capable of both winning the World Series and getting bounced in the first round.`\
-https://nytimes.com/athletic/6609484/2025/09/08/mlb-playoff-contenders-fans-flaws/
+**Ecuador are outperforming Brazil in World Cup qualifying. They are a footballing nation on the rise**\
+`Their Argentine coach Sebastian Beccacece tells Jack Lang about a country 'chasing our dreams' and improving fast`\
+https://nytimes.com/athletic/6602272/2025/09/08/ecuador-world-cup-qualifying-beccacece/
 
-**Caleb Williams' growth is critical to the Bears. Here are 5 ways to evaluate him in 2025**\
-`As the NFL world micro-analyzes Williams' every move, team leaders will be monitoring his progress in a several categories.`\
-https://nytimes.com/athletic/6602563/2025/09/08/bears-caleb-williams-evaluation-2025/
+**Can Macklin Celebrini crack Canada's Olympic team? 'He's earned the right to be in the conversation'**\
+`Sidney Crosby was among those who came away from worlds as Celebrini fans: "Just his all-around game at his age is pretty impressive."`\
+https://nytimes.com/athletic/6598487/2025/09/08/macklin-celebrini-canada-olympics/
 
-**Jaxson Dart countdown clock ticking faster, as Brian Daboll won't commit to Russell Wilson**\
-`Daboll was given multiple opportunities to officially name Wilson his Week 2 starter. He declined. `\
-https://nytimes.com/athletic/6609401/2025/09/08/ny-giants-russell-wilson-jaxson-dart-brian-daboll/
+**Jets prospect timelines: When will they make an NHL impact?**\
+`When will each of Winnipeg's prospects be ready for the NHL? And what can we expect from their NHL careers when they make it?`\
+https://nytimes.com/athletic/6602284/2025/09/08/winnipeg-jets-prospect-timelines-sascha-boumedienne/
 
-**Liverpool will miss Elliott but his Anfield story may not be finished yet**\
-`Nobody at Anfield wanted Elliott to leave but his move to Aston Villa could be in everyone's interests`\
-https://nytimes.com/athletic/6598170/2025/09/08/harvey-elliott-liverpool-aston-villa/
+**Drake Maye is Patriots' long-term solution, but someday soon he needs a confident win**\
+`Prediction: As soon as Maye leads consecutvie victories, there will be no looking back. Until then, Mike Vrabel's Pats have plenty to do.`\
+https://nytimes.com/athletic/6609052/2025/09/08/patriots-raiders-drake-maye/
 
-**Athletic Club’s Yeray handed 10-month ban after positive doping test**\
-`The centre-back tested positive for the banned substance canrenone following Athletic's first leg Europa League semi-final defeat in May.`\
-https://nytimes.com/athletic/6610100/2025/09/08/athletic-club-yeray-alvarez-doping-ban/
+**Twins replay coordinator Joey Casey a wiz behind the curtain: 'He's got a very good feel'**\
+`"I'm just here to have these guys' backs,” Casey said.`\
+https://nytimes.com/athletic/6600027/2025/09/08/twins-replay-coordinator-joey-casey/
 
