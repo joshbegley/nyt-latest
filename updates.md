@@ -1,3 +1,15 @@
+**Whistle-Blower Sues Meta Over Claims of WhatsApp Security Flaws**\
+`In a lawsuit filed Monday, the former head of security for the messaging app accused the social media company of putting billions of users at risk.`\
+https://nytimes.com/2025/09/08/technology/whatsapp-whistleblower-lawsuit.html
+
+**Drake among bettors who lost on Bills' improbable comeback win against Ravens**\
+`The huge Bills comeback left some Ravens bettors in a daze, but sportsbooks happy. Here's the recap of the bad beat.`\
+https://nytimes.com/athletic/6610608/2025/09/08/bills-improbable-comeback-win-leads-to-brutal-bad-beat-ravens-bettors/
+
+**Businesses Across the U.S. Rely on These Drones. They Might be Banned.**\
+`Farmers, builders and police officers use drones made by DJI, a Chinese company. Trump and his allies want to stop all imports.`\
+https://nytimes.com/2025/09/08/business/dji-chinese-drones-ban.html
+
 **gws-japan-momijigari-autumn-foliage**\
 `(No description)`\
 https://nytimes.com/newsgraphics/card-story/japan-momijigari-autumn-foliage

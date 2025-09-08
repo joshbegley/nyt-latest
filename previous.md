@@ -1,3 +1,11 @@
+**Whistle-Blower Sues Meta Over Claims of WhatsApp Security Flaws**\
+`In a lawsuit filed Monday, the former head of security for the messaging app accused the social media company of putting billions of users at risk.`\
+https://nytimes.com/2025/09/08/technology/whatsapp-whistleblower-lawsuit.html
+
+**Drake among bettors who lost on Bills' improbable comeback win against Ravens**\
+`The huge Bills comeback left some Ravens bettors in a daze, but sportsbooks happy. Here's the recap of the bad beat.`\
+https://nytimes.com/athletic/6610608/2025/09/08/bills-improbable-comeback-win-leads-to-brutal-bad-beat-ravens-bettors/
+
 **gws-japan-momijigari-autumn-foliage**\
 `(No description)`\
 https://nytimes.com/newsgraphics/card-story/japan-momijigari-autumn-foliage
@@ -18,7 +26,7 @@ https://nytimes.com/2025/09/08/us/politics/supreme-court-los-angeles-immigration
 `Tech companies are displaying A.I., lasers and more as they compete for a piece of President Trump’s ambitious plan for a missile defense shield.`\
 https://nytimes.com/2025/09/08/technology/space-capsules-ai-lasers-tech-golden-dome.html
 
-**Businesses Across the U.S. Rely on These Drones. They Might Be Banned.**\
+**Businesses Across the U.S. Rely on These Drones. They Might be Banned.**\
 `Farmers, builders and police officers use drones made by DJI, a Chinese company. Trump and his allies want to stop all imports.`\
 https://nytimes.com/2025/09/08/business/dji-chinese-drones-ban.html
 
@@ -29,12 +37,4 @@ https://nytimes.com/2025/09/08/arts/music/matthew-christopher-pietras-cause-of-d
 **China’s Exports to Africa Are Soaring as Trade to U.S. Plunges**\
 `Already this year, China’s trade surplus with Africa is nearly as big as all of 2024, a sign of how President Trump’s tariffs are reshaping the flow of goods.`\
 https://nytimes.com/2025/09/08/business/china-exports-africa.html
-
-**Man City and Premier League reach settlement over APT rules legal dispute**\
-`City and the Premier League confirmed both parties had agreed to terminate proceedings.`\
-https://nytimes.com/athletic/6610620/2025/09/08/man-city-premier-league-sponsor-rules-settlement/
-
-**NFL Week 2 odds: The Ravens are favored by how much?!**\
-`Odds are up for every Week 2 game, with several tight matchups and one 12.5-point spread.`\
-https://nytimes.com/athletic/6610568/2025/09/08/nfl-week-2-odds-spreads-betting-eagles-chiefs/
 
