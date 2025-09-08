@@ -1,3 +1,7 @@
+**Sean Payton vows to lean into Broncos' new-look run game: 'I've got to be better there'**\
+`The 133 rushing yards by JK Dobbins and RJ Harvey in Sunday's win bested the position's output from all but one game in 2024.`\
+https://nytimes.com/athletic/6610666/2025/09/08/broncos-running-game-sean-payton/
+
 **Opening Line: Dolphins favored over Patriots? Now that's a fishy line**\
 `Toby Mergler makes four early Week 2 picks wildly over-indexing on vibes, small sample sizes and comparisons to pop culture classics.`\
 https://nytimes.com/athletic/6610803/2025/09/08/nfl-week-2-betting-picks-opening-line/
