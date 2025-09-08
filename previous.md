@@ -1,8 +1,12 @@
+**It’s the perfect time to get back into the cooking groove**\
+`Return to routine with a lemon-forward chickpea and parsley pasta.`\
+https://nytimes.com/2025/09/08/dining/its-the-perfect-time-to-get-back-into-the-cooking-groove.html
+
 **Page to Screen: Do You Know the Inspiration for These Adaptations?**\
 `Try this short quiz about cartoons and comic strips that found new life as moving pictures.`\
 https://nytimes.com/interactive/2025/09/08/books/review/cartoons-comics-quiz.html
 
-**Chiefs-Chargers Week 1 game in Brazil draws 16.2 million YouTube viewers**\
+**Chiefs-Chargers Week 1 game in Brazil draws 16.2 million YouTube viewers in U.S.**\
 `The game drew attention for its scheduling slot, location and the inclusion of creators as “alt-cast” broadcasters.`\
 https://nytimes.com/athletic/6610499/2025/09/08/chiefs-chargers-brazil-youtube-viewership-nfl/
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6609919/2025/09/08/mlb-playoff-picture-3-weeks-the-
 **New Banksy Work Seen as Comment on U.K. Crackdown on Palestine Action**\
 `The mural that appeared outside the Royal Courts of Justice in London on Monday depicted a judge attacking a demonstrator with a gavel.`\
 https://nytimes.com/2025/09/08/world/europe/new-banksy-rcj-palestine-action-uk-protests.html
-
-**Local Sheriffs Are Turning Their Jails Into ICE Detention Centers**\
-`Jails play a growing role in immigrant detention, housing thousands of people who have never been convicted of a crime.`\
-https://nytimes.com/interactive/2025/09/08/us/politics/ice-detention-county-jails-sheriffs-deportation.html
 

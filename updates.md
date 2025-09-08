@@ -1,3 +1,11 @@
+**It’s the perfect time to get back into the cooking groove**\
+`Return to routine with a lemon-forward chickpea and parsley pasta.`\
+https://nytimes.com/2025/09/08/dining/its-the-perfect-time-to-get-back-into-the-cooking-groove.html
+
+**Chiefs-Chargers Week 1 game in Brazil draws 16.2 million YouTube viewers in U.S.**\
+`The game drew attention for its scheduling slot, location and the inclusion of creators as “alt-cast” broadcasters.`\
+https://nytimes.com/athletic/6610499/2025/09/08/chiefs-chargers-brazil-youtube-viewership-nfl/
+
 **Page to Screen: Do You Know the Inspiration for These Adaptations?**\
 `Try this short quiz about cartoons and comic strips that found new life as moving pictures.`\
 https://nytimes.com/interactive/2025/09/08/books/review/cartoons-comics-quiz.html
