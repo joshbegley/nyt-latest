@@ -1,3 +1,15 @@
+**Bears reinforce Arlington Heights stadium goal in letter to season ticket holders**\
+`President and CEO Kevin Warren said the team plans to bid to host a Super Bowl in a suburban domed stadium as early as 2031.`\
+https://nytimes.com/athletic/6611451/2025/09/08/chicago-bears-stadium-plans-arlington-heights-kevin-warren/
+
+**Supreme Court Lifted Limits on L.A. Immigration Stops**\
+`Also, the Murdoch succession fight is over. Here’s the latest at the end of Monday.`\
+https://nytimes.com/2025/09/08/briefing/supreme-court-immigration-stops-murdoch-succession.html
+
+**Isak makes first appearance since May in Sweden's World Cup qualifying defeat**\
+`The Sweden international completed a Premier League-record transfer to Liverpool on September 1 `\
+https://nytimes.com/athletic/6611484/2025/09/08/alexander-isak-sweden-world-cup-qualifiers/
+
 **Workers Detained in Georgia Raid Will Return to South Korea**\
 `South Korea negotiated the release of hundreds of Korean nationals who were detained during a raid on a Hyundai-LG electric vehicle battery plant in Georgia.`\
 https://nytimes.com/video/us/politics/100000010385281/detained-south-korean-workers-going-home.html
