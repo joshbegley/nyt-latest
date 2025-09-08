@@ -1,3 +1,15 @@
+**Rosenthal: For fans of each of MLB's 15 flawed playoff contenders, things could always be worse**\
+`Many of these teams seem capable of both winning the World Series and getting bounced in the first round.`\
+https://nytimes.com/athletic/6609484/2025/09/08/mlb-playoff-contenders-fans-flaws/
+
+**Caleb Williams' growth is critical to the Bears. Here are 5 ways to evaluate him in 2025**\
+`As the NFL world micro-analyzes Williams' every move, team leaders will be monitoring his progress in a several categories.`\
+https://nytimes.com/athletic/6602563/2025/09/08/bears-caleb-williams-evaluation-2025/
+
+**Jaxson Dart countdown clock ticking faster, as Brian Daboll won't commit to Russell Wilson**\
+`Daboll was given multiple opportunities to officially name Wilson his Week 2 starter. He declined. `\
+https://nytimes.com/athletic/6609401/2025/09/08/ny-giants-russell-wilson-jaxson-dart-brian-daboll/
+
 **Liverpool will miss Elliott but his Anfield story may not be finished yet**\
 `Nobody at Anfield wanted Elliott to leave but his move to Aston Villa could be in everyone's interests`\
 https://nytimes.com/athletic/6598170/2025/09/08/harvey-elliott-liverpool-aston-villa/
