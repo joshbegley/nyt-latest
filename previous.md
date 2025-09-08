@@ -1,3 +1,15 @@
+**New Zealand Police Kill Man Who Disappeared With His Children**\
+`Tom Phillips, who vanished with his three children in 2021, was killed after he shot a police officer on Monday, the authorities said. His children were found safe and unharmed.`\
+https://nytimes.com/2025/09/08/world/australia/new-zealand-fugitive-father-police.html
+
+**PAC Aims to Spend $3 Million to Pass New York Housing Measures**\
+`The measures could make it easier to build housing, but the City Council is trying to keep them off the November ballot.`\
+https://nytimes.com/2025/09/08/nyregion/nyc-housing-ballot-pac.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/09/08/crosswords/spelling-bee-forum.html
+
 **Word of the Day: ancillary**\
 `This word has appeared in 110 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2025/09/08/learning/word-of-the-day-ancillary.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6609699/2025/09/08/bills-fan-lamar-jackson-deandre-
 **A View From Inside Iran**\
 `Our correspondent found a sense of apprehension in the country after the 12-day war with Israel.`\
 https://nytimes.com/2025/09/08/briefing/inside-iran-japan-prime-minister-kyiv.html
-
-**Brighton are well stocked at right-back, but do they have their long-term solution?**\
-`Fabian Hurzeler has five options at the position even after Tariq Lamptey's departure this summer, but only one is a specialist there`\
-https://nytimes.com/athletic/6561886/2025/09/08/brighton-right-backs-veltman-wieffer/
-
-**Real Madrid's Franco chants at the Bernabeu have sparked debate in Spain**\
-`A minority of fans at the Spanish club's home ground have sung the chants since Franco Mastantuono's signing this summer`\
-https://nytimes.com/athletic/6594314/2025/09/08/real-madrid-franco-chants-bernabeu-debate/
-
-**Igor Jesus interview: 'I know the quality I possess and what I’m capable of - I can reach another level'**\
-`Forest's latest Brazilian signing has had a stellar year, and hopes there's yet more to come in the East Midlands`\
-https://nytimes.com/athletic/6581626/2025/09/08/igor-jesus-brazil-nottingham-forest/
 

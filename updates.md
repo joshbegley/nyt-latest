@@ -1,3 +1,15 @@
+**New Zealand Police Kill Man Who Disappeared With His Children**\
+`Tom Phillips, who vanished with his three children in 2021, was killed after he shot a police officer on Monday, the authorities said. His children were found safe and unharmed.`\
+https://nytimes.com/2025/09/08/world/australia/new-zealand-fugitive-father-police.html
+
+**PAC Aims to Spend $3 Million to Pass New York Housing Measures**\
+`The measures could make it easier to build housing, but the City Council is trying to keep them off the November ballot.`\
+https://nytimes.com/2025/09/08/nyregion/nyc-housing-ballot-pac.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/09/08/crosswords/spelling-bee-forum.html
+
 **Word of the Day: ancillary**\
 `This word has appeared in 110 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2025/09/08/learning/word-of-the-day-ancillary.html
