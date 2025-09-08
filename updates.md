@@ -1,3 +1,7 @@
+**How little-known 49ers, led by TE Jake Tonges, snatched victory from the Seahawks**\
+`A year ago, the combination of injuries and special teams errors were fatal to the 49ers. Sunday, the team overcame them in a 17-13 win.`\
+https://nytimes.com/athletic/6609458/2025/09/07/49ers-seahawks-jake-tonges-ricky-pearsall/
+
 **10 Unforgettable Looks at the MTV Video Music Awards**\
 `Feathery boas, loopy braids, a rare Labubu and more.`\
 https://nytimes.com/2025/09/07/style/mtv-video-music-awards-red-carpet-2025-best-dressed.html
