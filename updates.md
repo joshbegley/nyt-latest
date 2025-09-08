@@ -1,3 +1,15 @@
+**Man City and Premier League reach settlement over APT rules legal dispute**\
+`City and the Premier League confirmed both parties had agreed to terminate proceedings.`\
+https://nytimes.com/athletic/6610620/2025/09/08/man-city-premier-league-sponsor-rules-settlement/
+
+**NFL Week 2 odds: The Ravens are favored by how much?!**\
+`Odds are up for every Week 2 game, with several tight matchups and one 12.5-point spread.`\
+https://nytimes.com/athletic/6610568/2025/09/08/nfl-week-2-odds-spreads-betting-eagles-chiefs/
+
+**London’s Commuters Wrestle With a Massive Tube Strike: ‘It’s Just Annoying’**\
+`Some people were able to work from home. Others crammed onto buses or spent hours trying to reach their destinations.`\
+https://nytimes.com/2025/09/08/world/europe/london-tube-strike-voices.html
+
 **It’s the perfect time to get back into the cooking groove**\
 `Return to routine with a lemon-forward chickpea and parsley pasta.`\
 https://nytimes.com/2025/09/08/dining/its-the-perfect-time-to-get-back-into-the-cooking-groove.html
