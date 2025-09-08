@@ -1,3 +1,11 @@
+**Guehi fit for England's World Cup qualifier against Serbia, says Tuchel**\
+`The Crystal Palace centre-back was substituted after feeling his groin during Saturday's win against Andorra`\
+https://nytimes.com/athletic/6611161/2025/09/08/marc-guehi-england-injury-update/
+
+**Phillies put Trea Turner and Alec Bohm on IL; Turner's injury not season-ending**\
+`With three weeks to go in the season, the Phillies will need to navigate a key stretch without the entire left side of their infield.`\
+https://nytimes.com/athletic/6610664/2025/09/08/trea-turner-hamstring-philies-injured-list/
+
 **Read the Ruling on the Judgment Against Trump in the E. Jean Carroll Case**\
 `A federal appeals court on Monday upheld an $83.3 million jury award against President Trump for defaming the writer E. Jean Carroll in 2019, after she accused him of a decades-old rape in a Manhattan department store — an attack for which he was separately found liable for sexual abuse.`\
 https://nytimes.com/interactive/2025/09/08/nyregion/08carroll-appeal-doc.html
