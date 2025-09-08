@@ -1,3 +1,11 @@
+**Amy Coney Barrett’s Memoir Is as Careful and Disciplined as Its Author**\
+`In a studiously bland new book, “Listening to the Law,” the Supreme Court justice describes her legal philosophy and tries to sidestep the court’s recent controversies.`\
+https://nytimes.com/2025/09/08/books/review/listening-to-the-law-amy-coney-barrett.html
+
+**The Murdoch Succession Fight Is Over. So What Does Lachlan Control?**\
+`From Fox News to Tubi to HarperCollins, here’s what is in the media empire that Rupert Murdoch built.`\
+https://nytimes.com/2025/09/08/business/media/lachlan-murdoch-fox-news-corp-assets.html
+
 **Murdochs Reach Deal to Resolve Succession Fight**\
 `Lachlan Murdoch will take control of a new family trust in a deal worth $3.3 billion, ensuring that his father’s media empire will retain its conservative slant.`\
 https://nytimes.com/2025/09/08/business/media/murdoch-family-trust-succession-deal.html
