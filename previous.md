@@ -1,3 +1,15 @@
+**Republican Senators Investigate Palisades Fire Response**\
+`Two senators have begun an investigation into whether government officials could have done more to stop the Los Angeles fire. President Trump and other Republicans have blamed Democratic leaders for the disaster.`\
+https://nytimes.com/2025/09/08/us/palisades-fire-investigation-los-angeles.html
+
+**The Political Signals Russia Sends With Each Huge Barrage on Ukraine**\
+`Analysts have linked major attacks to important geopolitical events as the Kremlin tries to strengthen its hand in talks.`\
+https://nytimes.com/2025/09/08/world/europe/russia-ukraine-war-attacks.html
+
+**Draper out for rest of tennis season to manage left-arm injury after U.S. Open withdrawal**\
+`Draper won his first-round match at the last Grand Slam of the year, but pulled out before the second round.`\
+https://nytimes.com/athletic/6610844/2025/09/08/tennis-jack-draper-out-season-elbow-injury/
+
 **Sean Payton vows to lean into Broncos' new-look run game: 'I've got to be better there'**\
 `The 133 rushing yards by JK Dobbins and RJ Harvey in Sunday's win bested the position's output from all but one game in 2024.`\
 https://nytimes.com/athletic/6610666/2025/09/08/broncos-running-game-sean-payton/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/09/08/world/europe/prince-harry-uk-visit.html
 **Christoph von Dohnanyi, Conductor With a World of Admirers, Dies at 95**\
 `Known for his long tenure at the podium of the acclaimed Cleveland Orchestra, he was sought after as a guest with major symphonies and opera companies.`\
 https://nytimes.com/2025/09/08/arts/music/christoph-von-dohnanyi-dead.html
-
-**Democrats Demand to Know More About Security Clearance Revocations**\
-`Members of the House Intelligence Committee want more information about the decision to strip the clearances from 37 current and former officials.`\
-https://nytimes.com/2025/09/08/us/politics/security-clearances-trump-gabbard-democrats.html
-
-**Tottenham has 'firm backing' from co-owners, says CEO Venkatesham**\
-`The north London club's CEO clarified the future of the side after the departure of former chairman Daniel Levy last Thursday`\
-https://nytimes.com/athletic/6610892/2025/09/08/tottenham-hotspur-vinai-venkatesham-lewis-family-co-owners/
-
-**Deportation Fears Are Fueling Money Transfers to Latin America**\
-`Money transfers to Guatemala, Honduras and other nations have increased in recent months, totaling billions of dollars. Undocumented migrants in the United States say they are sending money to relatives while they can.`\
-https://nytimes.com/2025/09/08/world/americas/trump-migrants-remittances.html
 
