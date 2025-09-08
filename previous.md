@@ -1,3 +1,7 @@
+**Fantasy football concerns about Ja'Marr Chase, Joe Burrow and the Bengals' pass offense**\
+`KC Joyner explains why to worry about the poor opening-week performances of Bengals Ja'Marr Chase and Joe Burrow.`\
+https://nytimes.com/athletic/6609135/2025/09/08/fantasy-football-bengals-advice-chase-burrow/
+
 **Unrivaled women's pro basketball league valued at $340 million after new funding**\
 `The upstart women's pro basketball league prepares for its second season with the added momentum of additional investment.`\
 https://nytimes.com/athletic/6609307/2025/09/08/unrivaled-womens-basketball-valuation-paige-bueckers/
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/6606097/2025/09/08/sabres-stats-pegula-tuch-contrac
 **What does the Blues’ future look like? Projecting the 2028-29 lineup**\
 `Looking at the players under contract through 2028-29 and the prospects coming, what holes will need to be filled?`\
 https://nytimes.com/athletic/6595769/2025/09/08/blues-prospects-future-lineup-projection/
-
-**Q&A: Blackhawks' Jeff Blashill on Bedard's growth, building a culture**\
-`Blashill has been busy acquainting himself with Chicago and his team since being hired three months ago. What has he learned?`\
-https://nytimes.com/athletic/6600271/2025/09/08/blackhawks-coach-jeff-blashill-connor-bedard/
 

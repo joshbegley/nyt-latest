@@ -1,3 +1,12 @@
+**Fantasy football concerns about Ja'Marr Chase, Joe Burrow and the Bengals' pass offense**\
+`KC Joyner explains why to worry about the poor opening-week performances of Bengals Ja'Marr Chase and Joe Burrow.`\
+https://nytimes.com/athletic/6609135/2025/09/08/fantasy-football-bengals-advice-chase-burrow/
+
+**'I’m playing for the whole city': Matthew Knies won't shy away from the Toronto spotlight**\
+`After Mitch Marner’s departure, the 22-year-old Knies is now an undeniable piece of the Leafs’ core in just his third full NHL season.
+`\
+https://nytimes.com/athletic/6601367/2025/09/08/maple-leafs-matthew-knies-nhl-season/
+
 **'I’m playing for the whole city': Matthew Knies won't shy away from the Toronto spotlight**\
 `After Mitch Marner’s departure, the 22-year-old Knies is now an undeniable piece of the Leafs’ core in just his third full NHL season.
 `\
