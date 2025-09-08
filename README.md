@@ -1,3 +1,7 @@
+**Tottenham say club 'not for sale' amid 'expressions of interest' from Staveley**\
+`Spurs released a statement late on Sunday night clarifying their position following days of speculation after the exit of Daniel Levy.`\
+https://nytimes.com/athletic/6609913/2025/09/08/tottenham-ownership-sale-amanda-staveley/
+
 **New Zealand Police Kill Man Who Disappeared With His Children**\
 `Tom Phillips, who vanished with his three children in 2021, was killed after he shot a police officer on Monday, the authorities said. His children were found safe and unharmed.`\
 https://nytimes.com/2025/09/08/world/australia/new-zealand-fugitive-father-police.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/08/opinion/colombia-violence-drugs-petro.html
 **Bills eject fan who hit DeAndre Hopkins' helmet, had altercation with Lamar Jackson**\
 `The incident happened after Jackson's 29-yard touchdown pass to Hopkins near the end of the third quarter.`\
 https://nytimes.com/athletic/6609699/2025/09/08/bills-fan-lamar-jackson-deandre-hopkins/
-
-**A View From Inside Iran**\
-`Our correspondent found a sense of apprehension in the country after the 12-day war with Israel.`\
-https://nytimes.com/2025/09/08/briefing/inside-iran-japan-prime-minister-kyiv.html
 
