@@ -1,3 +1,19 @@
+**MTV Video Music Awards: 6 Memorable Moments**\
+`Mariah Carey and Busta Rhymes were honored for the first time, Lady Gaga crossed town and Doja Cat took it back to the 1980s.`\
+https://nytimes.com/2025/09/08/arts/music/mtv-video-music-awards-moments.html
+
+**The New York Times in Print for Monday, Sep. 8, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/09/08/todays-new-york-times
+
+**‘The Girlfriend’ and 5 More Things to Watch on TV This Week**\
+`The thriller series premieres on Prime Video, and the 77th annual Emmy Awards air on Sunday.`\
+https://nytimes.com/2025/09/08/arts/television/the-girlfriend-and-5-more-things-to-watch-on-tv-this-week.html
+
+**A New War Is Emerging in Colombia**\
+`Colombia’s return to conflict is a lesson in how hard it is to sustain progress toward peace.`\
+https://nytimes.com/2025/09/08/opinion/colombia-violence-drugs-petro.html
+
 **Bills eject fan who hit DeAndre Hopkins' helmet, had altercation with Lamar Jackson**\
 `The incident happened after Jackson's 29-yard touchdown pass to Hopkins near the end of the third quarter.`\
 https://nytimes.com/athletic/6609699/2025/09/08/bills-fan-lamar-jackson-deandre-hopkins/
