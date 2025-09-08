@@ -1,3 +1,7 @@
+**Nick Bosa and rebuilt 49ers defense save the day in season-opening win**\
+`"Thank God for Bosa. That was major," linebacker Fred Warner said. "To find a way to win in the division in Week 1 is major."`\
+https://nytimes.com/athletic/6609486/2025/09/07/49ers-season-opening-win-seahawks-nick-bosa/
+
 **Broncos' dominant defense shines in opener, but Bo Nix and offense must be better**\
 `The Titans started five drives inside Denver territory. The Broncos kept Tennessee out of the end zone anyway.`\
 https://nytimes.com/athletic/6609502/2025/09/07/broncos-defense-titans-bo-nix/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6609014/2025/09/07/aaron-rodgers-steelers-debut-per
 **Cardinals takeaways: St. Louis climbs back to .500 after strong series win over Giants**\
 `The Cardinals took two of three games from a Giants team that entered the series winners of 10 of its last 11 games`\
 https://nytimes.com/athletic/6607045/2025/09/07/cardinals-takeaways-st-louis-climbs-back-to-500-after-strong-series-win-over-giants/
-
-**Another Jets loss but, in Justin Fields' debut, perhaps a quarterback found**\
-`The new quarterback provided a glimmer of hope during an excruciating Week 1 loss to the Steelers.`\
-https://nytimes.com/athletic/6609070/2025/09/07/new-york-jets-justin-fields-debut-performance/
 
