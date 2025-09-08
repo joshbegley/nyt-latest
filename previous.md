@@ -1,3 +1,11 @@
+**10 Unforgettable Looks at the MTV Video Music Awards**\
+`Feathery boas, loopy braids, a rare Labubu and more.`\
+https://nytimes.com/2025/09/07/style/mtv-video-music-awards-red-carpet-2025-best-dressed.html
+
+**Inside Micah Parsons' impactful Packers debut: 'He definitely has an aura about him'**\
+`The Packers' newest pass rusher didn't shoulder a full workload Sunday, but it was more than enough in a dominant Green Bay win.`\
+https://nytimes.com/athletic/6609582/2025/09/07/micah-parsons-packers-debut-lions/
+
 **How little-known 49ers, led by TE Jake Tonges, snatched victory from the Seahawks**\
 `A year ago, the combination of injuries and special teams errors were fatal to the 49ers. On Sunday, the team overcame them in a 17-13 win.`\
 https://nytimes.com/athletic/6609458/2025/09/07/49ers-seahawks-jake-tonges-ricky-pearsall/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6609259/2025/09/07/panthers-bryce-young-week-1-loss
 **Colts, Daniel Jones upend expectations in drubbing of Dolphins, inject hope into new season**\
 `The late Jim Irsay told GM Chris Ballard to "fix it," referring to Indy's recent struggles. For one week, at least, it looks like he did.`\
 https://nytimes.com/athletic/6608779/2025/09/07/colts-daniel-jones-dolphins-jim-irsay/
-
-**West Point Alumni Group Cancels Award Honoring Tom Hanks**\
-`The group was to bestow the Sylvanus Thayer Award on the actor, but it said it was canceling the event to focus on preparing academy cadets for the future.`\
-https://nytimes.com/2025/09/07/us/politics/tom-hanks-west-point-award.html
-
-**Aaron Rodgers wasn't supposed to carry the Steelers — in his debut, he did just that**\
-`The 41-year-old QB was the catalyst in a win over the Jets, his former team, on a day when their defense and run game struggled.`\
-https://nytimes.com/athletic/6609014/2025/09/07/aaron-rodgers-steelers-debut-performance/
 
