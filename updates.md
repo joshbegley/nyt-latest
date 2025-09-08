@@ -1,3 +1,11 @@
+**Trump Administration Says It Has Begun Immigration Crackdown in Chicago**\
+`In Chicago, advocates for immigrants said they saw several arrests on Sunday, but were uncertain of the scale of federal action.`\
+https://nytimes.com/2025/09/08/us/chicago-immigration-crackdown-trump-administration.html
+
+**Supertramp Singer, Rick Davies, Dies at 81**\
+`Rick Davies, the lead singer and co-founder of the British band Supertramp, died on Saturday after a long battle with blood cancer.`\
+https://nytimes.com/video/obituaries/100000010384936/supertramp-singer-rick-davies-obit.html
+
 **Defense or War Department: What’s in a Name?**\
 `Readers discuss the name change at the Pentagon. Also: Fearful sports fans in D.C.; gay Republicans in Washington.`\
 https://nytimes.com/2025/09/08/opinion/defense-war-department.html
