@@ -1,3 +1,7 @@
+**Defense or War Department: What’s in a Name?**\
+`Readers discuss the name change at the Pentagon. Also: Fearful sports fans in D.C.; gay Republicans in Washington.`\
+https://nytimes.com/2025/09/08/opinion/defense-war-department.html
+
 **Jacques Charrier, Movie Star Who Wed Brigitte Bardot, Dies at 88**\
 `Their marriage made news in France, but they were an unhappy couple, and it didn’t last. Years later, they attacked each other in dueling memoirs.`\
 https://nytimes.com/2025/09/08/movies/jacques-charrier-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/08/us/politics/supreme-court-los-angeles-immigration
 **Tech Companies Show Off for Trump’s ‘Golden Dome’**\
 `Tech companies are displaying A.I., lasers and more as they compete for a piece of President Trump’s ambitious plan for a missile defense shield.`\
 https://nytimes.com/2025/09/08/technology/space-capsules-ai-lasers-tech-golden-dome.html
-
-**Businesses Across the U.S. Rely on These Drones. They Might be Banned.**\
-`Farmers, builders and police officers use drones made by DJI, a Chinese company. Trump and his allies want to stop all imports.`\
-https://nytimes.com/2025/09/08/business/dji-chinese-drones-ban.html
 
