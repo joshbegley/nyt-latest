@@ -1,3 +1,7 @@
+**Guehi fit for England's World Cup qualifier against Serbia, says Tuchel**\
+`The Crystal Palace centre-back was substituted after feeling his groin during Saturday's win against Andorra`\
+https://nytimes.com/athletic/6611161/2025/09/08/marc-guehi-england-injury-update/
+
 **Trump Says Having ‘a Little Fight With the Wife’ Should Not Count as a Crime**\
 `President Trump said that offenses that happen at home should not undermine his record of crime reduction in Washington.`\
 https://nytimes.com/2025/09/08/us/politics/trump-domestic-violence-crime-statistics.html
@@ -6,7 +10,7 @@ https://nytimes.com/2025/09/08/us/politics/trump-domestic-violence-crime-statist
 `A federal appeals court on Monday upheld an $83.3 million jury award against President Trump for defaming the writer E. Jean Carroll in 2019, after she accused him of a decades-old rape in a Manhattan department store — an attack for which he was separately found liable for sexual abuse.`\
 https://nytimes.com/interactive/2025/09/08/nyregion/08carroll-appeal-doc.html
 
-**Phillies put Trea Turner and Alec Bohm on IL; Turner's injury not season-ending: Sources**\
+**Phillies put Trea Turner and Alec Bohm on IL; Turner's injury not season-ending**\
 `With three weeks to go in the season, the Phillies will need to navigate a key stretch without the entire left side of their infield.`\
 https://nytimes.com/athletic/6610664/2025/09/08/trea-turner-hamstring-philies-injured-list/
 
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/08/us/politics/epstein-trump-birthday-book.html
 **How to watch South Alabama at Auburn: Time, TV, streaming**\
 `Find out how to watch the South Alabama Jaguars play the Auburn Tigers, with time, TV channel, and streaming information.`\
 https://nytimes.com/athletic/6611237/2025/09/08/south-alabama-vs-auburn-stream-how-to-watch-sept-13/
-
-**How to watch Clemson at Georgia Tech: Time, TV, streaming**\
-`Find out how to watch the Clemson Tigers play the Georgia Tech Yellow Jackets, with time, TV channel, and streaming information.`\
-https://nytimes.com/athletic/6611235/2025/09/08/clemson-vs-georgia-tech-stream-how-to-watch-sept-13/
 

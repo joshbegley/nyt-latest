@@ -1,3 +1,7 @@
+**Read the Ruling on the Judgment Against Trump in the E. Jean Carroll Case**\
+`A federal appeals court on Monday upheld an $83.3 million jury award against President Trump for defaming the writer E. Jean Carroll in 2019, after she accused him of a decades-old rape in a Manhattan department store — an attack for which he was separately found liable for sexual abuse.`\
+https://nytimes.com/interactive/2025/09/08/nyregion/08carroll-appeal-doc.html
+
 **Trump Says Having ‘a Little Fight With the Wife’ Should Not Count as a Crime**\
 `President Trump said that offenses that happen at home should not undermine his record of crime reduction in Washington.`\
 https://nytimes.com/2025/09/08/us/politics/trump-domestic-violence-crime-statistics.html
