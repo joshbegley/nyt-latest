@@ -1,3 +1,7 @@
+**Word of the Day: ancillary**\
+`This word has appeared in 110 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2025/09/08/learning/word-of-the-day-ancillary.html
+
 **MTV Video Music Awards: 6 Memorable Moments**\
 `Mariah Carey and Busta Rhymes were honored for the first time, Lady Gaga crossed town and Doja Cat took it back to the 1980s.`\
 https://nytimes.com/2025/09/08/arts/music/mtv-video-music-awards-moments.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6594314/2025/09/08/real-madrid-franco-chants-bernab
 **Igor Jesus interview: 'I know the quality I possess and what I’m capable of - I can reach another level'**\
 `Forest's latest Brazilian signing has had a stellar year, and hopes there's yet more to come in the East Midlands`\
 https://nytimes.com/athletic/6581626/2025/09/08/igor-jesus-brazil-nottingham-forest/
-
-**Crysencio Summerville stayed loyal to West Ham. Now he's ready to change games**\
-`Against Forest, Summerville added pace, creativity, energy and markedly improved the team's performance`\
-https://nytimes.com/athletic/6600877/2025/09/08/crysencio-summerville-west-ham-loyal/
 
