@@ -1,3 +1,7 @@
+**Inside Newcastle Q&A: Chris Waugh answers your questions**\
+`The chaotic summer transfer window is over and we can all concentrate on the football for a few months. So what would you like to know?`\
+https://nytimes.com/athletic/6610028/2025/09/08/inside-newcastle-qa-end-of-transfer-window/
+
 **The transfer window was fun, but WSL return showed the 'magic' in doing your homework early**\
 `Deadline day detritus was evident all over the WSL last weekend – whereas teams who did their business early thrived `\
 https://nytimes.com/athletic/6609978/2025/09/08/wsl-transfer-chelsea-arsenal-magic/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6602272/2025/09/08/ecuador-world-cup-qualifying-bec
 **Can Macklin Celebrini crack Canada's Olympic team? 'He's earned the right to be in the conversation'**\
 `Sidney Crosby was among those who came away from worlds as Celebrini fans: "Just his all-around game at his age is pretty impressive."`\
 https://nytimes.com/athletic/6598487/2025/09/08/macklin-celebrini-canada-olympics/
-
-**Jets prospect timelines: When will they make an NHL impact?**\
-`When will each of Winnipeg's prospects be ready for the NHL? And what can we expect from their NHL careers when they make it?`\
-https://nytimes.com/athletic/6602284/2025/09/08/winnipeg-jets-prospect-timelines-sascha-boumedienne/
 
