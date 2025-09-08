@@ -1,3 +1,11 @@
+**Supreme Court Lifts Restrictions on L.A. Immigration Stops**\
+`A federal judge had ordered agents not to make indiscriminate stops relying on factors like a person’s ethnicity or that they speak Spanish.`\
+https://nytimes.com/2025/09/08/us/politics/supreme-court-los-angeles-immigration.html
+
+**Tech Companies Show Off for Trump’s ‘Golden Dome’**\
+`Tech companies are displaying A.I., lasers and more as they compete for a piece of President Trump’s ambitious plan for a missile defense shield.`\
+https://nytimes.com/2025/09/08/technology/space-capsules-ai-lasers-tech-golden-dome.html
+
 **Businesses Across the U.S. Rely on These Drones. They Might Be Banned.**\
 `Farmers, builders and police officers use drones made by DJI, a Chinese company. Trump and his allies want to stop all imports.`\
 https://nytimes.com/2025/09/08/business/dji-chinese-drones-ban.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/09/08/dining/its-the-perfect-time-to-get-back-into-the-
 **Page to Screen: Do You Know the Inspiration for These Adaptations?**\
 `Try this short quiz about cartoons and comic strips that found new life as moving pictures.`\
 https://nytimes.com/interactive/2025/09/08/books/review/cartoons-comics-quiz.html
-
-**Chiefs-Chargers Week 1 game in Brazil draws 16.2 million YouTube viewers in U.S.**\
-`The game drew attention for its scheduling slot, location and the inclusion of creators as “alt-cast” broadcasters.`\
-https://nytimes.com/athletic/6610499/2025/09/08/chiefs-chargers-brazil-youtube-viewership-nfl/
-
-**Rangers add Blake Wheeler, Ryane Clowe to front office amid flurry of moves**\
-`The announcement marks the start of Wheeler's front office career. He retired in July after playing 1,172 career NHL games.`\
-https://nytimes.com/athletic/6610601/2025/09/08/rangers-front-office-moves-promotions/
 
