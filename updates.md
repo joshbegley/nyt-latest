@@ -1,3 +1,16 @@
+**Unrivaled women's pro basketball league valued at $340 million after new funding**\
+`The upstart women's pro basketball league prepares for its second season with the added momentum of additional investment.`\
+https://nytimes.com/athletic/6609307/2025/09/08/unrivaled-womens-basketball-valuation-paige-bueckers/
+
+**Ken Griffin Speaks Out Against Trump’s Attacks on the Fed**\
+`The criticism from the hedge fund billionaire and Trump voter is a rare rebuke of the president by a corporate leader.`\
+https://nytimes.com/2025/09/08/business/dealbook/griffin-trump-fed.html
+
+**'I’m playing for the whole city': Matthew Knies won't shy away from the Toronto spotlight**\
+`After Mitch Marner’s departure, the 22-year-old Knies is now an undeniable piece of the Leafs’ core in just his third full NHL season.
+`\
+https://nytimes.com/athletic/6601367/2025/09/08/maple-leafs-matthew-knies-nhl-season/
+
 **'I’m playing for the whole city': Matthew Knies won't shy away from the Toronto spotlight**\
 `After Mitch Marner’s departure, the 22-year-old Knies is now an undeniable piece of the Leafs’ core in just his third full NHL season.
 `\
