@@ -1,3 +1,7 @@
+**Word of the Day: ancillary**\
+`This word has appeared in 110 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2025/09/08/learning/word-of-the-day-ancillary.html
+
 **MTV Video Music Awards: 6 Memorable Moments**\
 `Mariah Carey and Busta Rhymes were honored for the first time, Lady Gaga crossed town and Doja Cat took it back to the 1980s.`\
 https://nytimes.com/2025/09/08/arts/music/mtv-video-music-awards-moments.html
