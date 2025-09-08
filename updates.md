@@ -1,3 +1,5 @@
+
+
 **Fantasy football Week 1 takeaways: Lions, Bucs offenses offenses look toothless**\
 `Among his Week 1 takes, Michael Salfino says the Lions' offense appears a far cry from the Ben Johnson-led offenses of previous seasons.`\
 https://nytimes.com/athletic/6609471/2025/09/08/fantasy-football-week-1-takeaways-lions-jcm-fields/
