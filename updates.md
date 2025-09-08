@@ -1,3 +1,7 @@
+**College football Week 3 odds: Georgia favored at Tennessee, Notre Dame vs. Texas A&M**\
+`There are three top-25 matchups highlighting college football's Week 3, including one that wasn't on the radar before the season started.`\
+https://nytimes.com/athletic/6610851/2025/09/08/college-football-week-3-odds-georgia-tennessee-notre-dame-texas-am/
+
 **Scoop City: Risers and fallers after Week 1**\
 `How teams are trending after the Patriots, Dolphins and Panthers underwhelmed, while the Bills and Packers impressed`\
 https://nytimes.com/athletic/6610918/2025/09/08/nfl-risers-fallers-trending-week-1-packers-bills/
