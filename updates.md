@@ -1,3 +1,11 @@
+**Fantasy baseball cheat sheet: Add Bader, stream Sheehan and more THE BAT X insights**\
+`The Athletic and THE BAT X have teamed up to offer a weekly cheat sheet, which can help you in fantasy baseball playoffs. `\
+https://nytimes.com/athletic/6610393/2025/09/08/fantasy-baseball-the-bat-x/
+
+**Inside Barcelona: Why Spain's champions still don't know where they are playing home games**\
+`Our Barcelona correspondents share their latest information on the biggest talking points at the club right now`\
+https://nytimes.com/athletic/6610369/2025/09/08/barcelona-camp-nou-news-valencia-thiago-gavi/
+
 **If NWSL wants to keep USWNT players such as Rodman and Wilson, it needs to review its salary cap**\
 `Alyssa Thompson's Chelsea move is another reminder that NWSL needs to revisit its salary cap restrictions`\
 https://nytimes.com/athletic/6609825/2025/09/08/trinity-rodman-sophia-wilson-nwsl-salary-cap/
