@@ -1,3 +1,11 @@
+**Thiago to return to Flick's Barcelona coaching staff**\
+`The former Spain international, 34, spent a short period with the club last summer shortly after ending his playing career.`\
+https://nytimes.com/athletic/5997969/2025/09/08/barcelona-thiago-coach-hansi-flick/
+
+**How do the USMNT exit their spiral? Plus: Man Utd's Onana is heading to Turkey, and a scorpion kick**\
+`Today in TAFC: Mauricio Pochettino's United States are handed a harsh reality check plus Manchester United's goalkeeper is set to depart`\
+https://nytimes.com/athletic/6610184/2025/09/08/tafc-newsletter-usmnt-onana-fifa-tottenham-hotspur/
+
 **Inside Newcastle Q&A: Chris Waugh answers your questions**\
 `The chaotic summer transfer window is over and we can all concentrate on the football for a few months. So what would you like to know?`\
 https://nytimes.com/athletic/6610028/2025/09/08/inside-newcastle-qa-end-of-transfer-window/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6609054/2025/09/08/lsu-marching-band-kent-broussard
 **Lloyd: Browns' bungling loss to Bengals wasn't half bad, if you have the right perspective**\
 `The biggest reasons for optimism after such a crushing loss are a defense that held up and a D-line that dominated in the second half.`\
 https://nytimes.com/athletic/6609585/2025/09/08/browns-bengals-week-1-loss-column/
-
-**Ecuador are outperforming Brazil in World Cup qualifying. They are a footballing nation on the rise**\
-`Their Argentine coach Sebastian Beccacece tells Jack Lang about a country 'chasing our dreams' and improving fast`\
-https://nytimes.com/athletic/6602272/2025/09/08/ecuador-world-cup-qualifying-beccacece/
-
-**Can Macklin Celebrini crack Canada's Olympic team? 'He's earned the right to be in the conversation'**\
-`Sidney Crosby was among those who came away from worlds as Celebrini fans: "Just his all-around game at his age is pretty impressive."`\
-https://nytimes.com/athletic/6598487/2025/09/08/macklin-celebrini-canada-olympics/
 
