@@ -1,3 +1,15 @@
+**Another Jets loss but, in Justin Fields' debut, perhaps a quarterback found**\
+`The new quarterback provided a glimmer of hope during an excruciating Week 1 loss to the Steelers.`\
+https://nytimes.com/athletic/6609070/2025/09/07/new-york-jets-justin-fields-debut-performance/
+
+**Al Golden's Bengals defense sets a 'different' foundation in 17-16 win over Browns**\
+`On a day Joe Burrow and the high-powered offense stalled, it was the defense that stepped up to pull out a Week 1 division victory.`\
+https://nytimes.com/athletic/6609147/2025/09/07/bengals-defense-win-bronws-al-golden/
+
+**What we’re hearing about the Cubs: Pete Crow-Armstrong, Sammy Sosa, Jaxon Wiggins and more**\
+`Cubs are treating their All-Star center fielder with caution, and it’s becoming clear that his condition is not the club’s only issue.`\
+https://nytimes.com/athletic/6609068/2025/09/07/cubs-what-were-hearing-pete-armstrong/
+
 **How to watch Nationals at Marlins: Time, TV, streaming for September 8**\
 `Find out how to watch the Washington Nationals play the Miami Marlins, with time, TV channel, and streaming information.`\
 https://nytimes.com/athletic/6609253/2025/09/07/nationals-vs-marlins-stream-how-to-watch-sept-8/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6609011/2025/09/07/kai-wei-teng-giants-takeaways/
 **Australian Woman Is Given Life Sentence in Mushroom Murder Case**\
 `Erin Patterson was found guilty of murdering three of her husband’s relatives and trying to kill a fourth by serving them deadly mushrooms.`\
 https://nytimes.com/2025/09/07/world/australia/australia-mushroom-murder-erin-patterson.html
-
-**Browns gave Bengals their best shot until a kicking disaster struck late**\
-`Despite turning it into its kind of game and dominating the second half, Cleveland let one slip away that it probably deserved to win. `\
-https://nytimes.com/athletic/6608981/2025/09/07/browns-loss-bengals-missed-opportunities/
-
-**Michael Penix Jr. was 'lights out,' but little else worked as Falcons drop opener**\
-`The Falcons fell to 0-1 with a 23-20 loss to the division-rival Buccaneers, but they emerged confident they have the right quarterback.`\
-https://nytimes.com/athletic/6609021/2025/09/07/falcons-buccaneers-michael-penix-nfl-season-opener/
-
-**Rams hold Texans to 9 points in physical Week 1 win: Key takeaways**\
-`When CJ Stroud had his starting offensive line intact, the Texans' offensive line gave up 12 pressures according to Next Gen Stats.`\
-https://nytimes.com/athletic/6608958/2025/09/07/texans-rams-score-result-takeaways-nfl-week-1/
 
