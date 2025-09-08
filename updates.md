@@ -1,3 +1,11 @@
+**Thiago to return to Flick's Barcelona coaching staff**\
+`The former Spain international, 34, spent a short period with the club last summer shortly after ending his playing career.`\
+https://nytimes.com/athletic/5997969/2025/09/08/barcelona-thiago-coach-hansi-flick/
+
+**How do the USMNT exit their spiral? Plus: Man Utd's Onana is heading to Turkey, and a scorpion kick**\
+`Today in TAFC: Mauricio Pochettino's United States are handed a harsh reality check plus Manchester United's goalkeeper is set to depart`\
+https://nytimes.com/athletic/6610184/2025/09/08/tafc-newsletter-usmnt-onana-fifa-tottenham-hotspur/
+
 **Inside Newcastle Q&A: Chris Waugh answers your questions**\
 `The chaotic summer transfer window is over and we can all concentrate on the football for a few months. So what would you like to know?`\
 https://nytimes.com/athletic/6610028/2025/09/08/inside-newcastle-qa-end-of-transfer-window/
