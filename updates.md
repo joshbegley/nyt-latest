@@ -1,3 +1,11 @@
+**Christoph von Dohnanyi, Conductor With a World of Admirers, Dies at 95**\
+`Known for his long tenure at the podium of the acclaimed Cleveland Orchestra, he was sought after as a guest with major symphonies and opera companies.`\
+https://nytimes.com/2025/09/08/arts/music/christoph-von-dohnanyi-dead.html
+
+**Tottenham has 'firm backing' from co-owners, says CEO Venkatesham**\
+`The north London club's CEO clarified the future of the side after the departure of former chairman Daniel Levy last Thursday`\
+https://nytimes.com/athletic/6610892/2025/09/08/tottenham-hotspur-vinai-venkatesham-lewis-family-co-owners/
+
 **Democrats Demand to Know More About Security Clearance Revocations**\
 `Members of the House Intelligence Committee want more information about the decision to strip the clearances from 37 current and former officials.`\
 https://nytimes.com/2025/09/08/us/politics/security-clearances-trump-gabbard-democrats.html

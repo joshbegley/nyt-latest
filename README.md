@@ -1,3 +1,7 @@
+**The All-Consuming Question Hanging Over Prince Harry’s U.K. Visit**\
+`Harry, who has not seen his father, King Charles, for more than a year, arrived in Britain for a four-day visit on Monday.`\
+https://nytimes.com/2025/09/08/world/europe/prince-harry-uk-visit.html
+
 **Christoph von Dohnanyi, Conductor With a World of Admirers, Dies at 95**\
 `Known for his long tenure at the podium of the acclaimed Cleveland Orchestra, he was sought after as a guest with major symphonies and opera companies.`\
 https://nytimes.com/2025/09/08/arts/music/christoph-von-dohnanyi-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/08/us/chicago-immigration-crackdown-trump-administra
 **Supertramp Singer, Rick Davies, Dies at 81**\
 `Rick Davies, the lead singer and co-founder of the British band Supertramp, died on Saturday after a long battle with blood cancer.`\
 https://nytimes.com/video/obituaries/100000010384936/supertramp-singer-rick-davies-obit.html
-
-**Defense or War Department: What’s in a Name?**\
-`Readers discuss the name change at the Pentagon. Also: Fearful sports fans in D.C.; gay Republicans in Washington.`\
-https://nytimes.com/2025/09/08/opinion/defense-war-department.html
 
