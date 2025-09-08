@@ -1,3 +1,7 @@
+**College football Week 3 odds: Georgia favored at Tennessee, Notre Dame vs. Texas A&M**\
+`There are three top-25 matchups highlighting college football's Week 3, including one that wasn't on the radar before the season started.`\
+https://nytimes.com/athletic/6610851/2025/09/08/college-football-week-3-odds-georgia-tennessee-notre-dame-texas-am/
+
 **Scoop City: Risers and fallers after Week 1**\
 `How teams are trending after the Patriots, Dolphins and Panthers underwhelmed, while the Bills and Packers impressed`\
 https://nytimes.com/athletic/6610918/2025/09/08/nfl-risers-fallers-trending-week-1-packers-bills/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6609146/2025/09/08/49ers-sign-kendrick-bourne-contr
 **Oceans of Flavor, and a Price Tag to Match, From Dominique Crenn**\
 `At Atelier Crenn in San Francisco, the world-famous chef is weaving the bounty of California through the narrative of her French upbringing.`\
 https://nytimes.com/2025/09/08/dining/restaurant-review-atelier-crenn-san-francisco.html
-
-**Trump Administration Says It Has Begun Immigration Crackdown in Chicago**\
-`In Chicago, advocates for immigrants said they saw several arrests on Sunday, but were uncertain of the scale of federal action.`\
-https://nytimes.com/2025/09/08/us/chicago-immigration-crackdown-trump-administration.html
 
