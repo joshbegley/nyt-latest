@@ -1,3 +1,19 @@
+**MTV Video Music Awards: 6 Memorable Moments**\
+`Mariah Carey and Busta Rhymes were honored for the first time, Lady Gaga crossed town and Doja Cat took it back to the 1980s.`\
+https://nytimes.com/2025/09/08/arts/music/mtv-video-music-awards-moments.html
+
+**The New York Times in Print for Monday, Sep. 8, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/09/08/todays-new-york-times
+
+**‘The Girlfriend’ and 5 More Things to Watch on TV This Week**\
+`The thriller series premieres on Prime Video, and the 77th annual Emmy Awards air on Sunday.`\
+https://nytimes.com/2025/09/08/arts/television/the-girlfriend-and-5-more-things-to-watch-on-tv-this-week.html
+
+**A New War Is Emerging in Colombia**\
+`Colombia’s return to conflict is a lesson in how hard it is to sustain progress toward peace.`\
+https://nytimes.com/2025/09/08/opinion/colombia-violence-drugs-petro.html
+
 **Bills eject fan who hit DeAndre Hopkins' helmet, had altercation with Lamar Jackson**\
 `The incident happened after Jackson's 29-yard touchdown pass to Hopkins near the end of the third quarter.`\
 https://nytimes.com/athletic/6609699/2025/09/08/bills-fan-lamar-jackson-deandre-hopkins/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6581626/2025/09/08/igor-jesus-brazil-nottingham-for
 **Crysencio Summerville stayed loyal to West Ham. Now he's ready to change games**\
 `Against Forest, Summerville added pace, creativity, energy and markedly improved the team's performance`\
 https://nytimes.com/athletic/6600877/2025/09/08/crysencio-summerville-west-ham-loyal/
-
-**Bills' Josh Allen engineers stunning comeback over Ravens, Lamar Jackson in 41-40 win: Key takeaways**\
-`Allen carried the Bills to overcome a fourth-quarter 15-point deficit.`\
-https://nytimes.com/athletic/6609527/2025/09/08/bills-ravens-score-result-takeaways-snf-week-1/
-
-**The Transfer DealSheet: Your club's window reviewed — and their January priorities**\
-`Welcome to the 14th and final edition of The Athletic’s Transfer DealSheet for the summer 2025 transfer window.`\
-https://nytimes.com/athletic/6601571/2025/09/08/transfer-latest-manchester-united-arsenal-liverpool-real-madrid-review-january-priority/
-
-**The Briefing: Wirtz gives Slot a dilemma, Merino's hat-trick, and a poignant moment for Portugal**\
-`There was no Premier League action this weekend but there were notable performances from some of its star names on international duty`\
-https://nytimes.com/athletic/6608751/2025/09/08/world-cup-qualifying-briefing-wirtz-merino/
-
-**Does Levy still have power? Is this sign of a takeover? Your Spurs questions answered**\
-`Spurs reporter Jack Pitt-Brooke and football finance expert Chris Weatherspoon address the key questions to arise from Levy's departure`\
-https://nytimes.com/athletic/6604743/2025/09/08/does-daniel-levy-still-have-power-is-this-sign-of-a-takeover-your-spurs-questions-answered/
 
