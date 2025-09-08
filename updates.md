@@ -1,3 +1,7 @@
+**A New, ‘Adorable’ Deep-Sea Fish Swims Into View**\
+`The bumpy snailfish, discovered 10,000 feet down off the coast of California, shows that not all denizens of the abyss are frightening.`\
+https://nytimes.com/2025/09/08/science/fish-ocean-deep-sea.html
+
 **Deschamps defends handling of Dembele, Doue injuries after PSG criticism**\
 `PSG accused France of not taking medical information into account and described the injuries as "serious and avoidable".`\
 https://nytimes.com/athletic/6610352/2025/09/08/psg-france-dembele-doue-deschamps-injury/

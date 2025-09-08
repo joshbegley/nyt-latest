@@ -1,3 +1,7 @@
+**A New, ‘Adorable’ Deep-Sea Fish Swims Into View**\
+`The bumpy snailfish, discovered 10,000 feet down off the coast of California, shows that not all denizens of the abyss are frightening.`\
+https://nytimes.com/2025/09/08/science/fish-ocean-deep-sea.html
+
 **Deschamps defends handling of Dembele, Doue injuries after PSG criticism**\
 `PSG accused France of not taking medical information into account and described the injuries as "serious and avoidable".`\
 https://nytimes.com/athletic/6610352/2025/09/08/psg-france-dembele-doue-deschamps-injury/
@@ -33,8 +37,4 @@ https://nytimes.com/video/world/europe/100000010384590/london-tube-strike-underg
 **Fantasy football concerns about Ja'Marr Chase, Joe Burrow and the Bengals' pass offense**\
 `KC Joyner explains why to worry about the poor opening-week performances of Bengals Ja'Marr Chase and Joe Burrow.`\
 https://nytimes.com/athletic/6609135/2025/09/08/fantasy-football-bengals-advice-chase-burrow/
-
-**Unrivaled women's pro basketball league valued at $340 million after new funding**\
-`The upstart women's pro basketball league prepares for its second season with the added momentum of additional investment.`\
-https://nytimes.com/athletic/6609307/2025/09/08/unrivaled-womens-basketball-valuation-paige-bueckers/
 
