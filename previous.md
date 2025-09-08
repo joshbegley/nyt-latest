@@ -1,3 +1,11 @@
+**Deportation Fears Are Fueling Money Transfers to Latin America**\
+`Money transfers to Guatemala, Honduras and other nations have increased in recent months, totaling billions of dollars. Undocumented migrants in the United States say they are sending money to relatives while they can.`\
+https://nytimes.com/2025/09/08/world/americas/trump-migrants-remittances.html
+
+**Do You See the Same Colors That I Do?**\
+`Scientists cannot say for certain, but new research suggests that different people’s brains respond similarly when looking at a particular hue.`\
+https://nytimes.com/2025/09/08/science/do-you-see-the-same-colors-that-i-do.html
+
 **49ers, WR Kendrick Bourne reunite with 1-year deal: Sources**\
 `Bourne spent four seasons with the 49ers after joining them as an undrafted free agent in 2017.`\
 https://nytimes.com/athletic/6609146/2025/09/08/49ers-sign-kendrick-bourne-contract/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/09/08/us/dorian-johnson-ferguson-michael-brown.html
 **Whistle-Blower Sues Meta Over Claims of WhatsApp Security Flaws**\
 `In a lawsuit filed Monday, the former head of security for the messaging app accused the social media company of putting billions of users at risk.`\
 https://nytimes.com/2025/09/08/technology/whatsapp-whistleblower-lawsuit.html
-
-**Drake among bettors who lost on Bills' improbable comeback win against Ravens**\
-`The huge Bills comeback left some Ravens bettors in a daze, but sportsbooks happy. Here's the recap of the bad beat.`\
-https://nytimes.com/athletic/6610608/2025/09/08/bills-improbable-comeback-win-leads-to-brutal-bad-beat-ravens-bettors/
-
-**gws-japan-momijigari-autumn-foliage**\
-`(No description)`\
-https://nytimes.com/newsgraphics/card-story/japan-momijigari-autumn-foliage
 
