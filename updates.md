@@ -1,3 +1,7 @@
+**Defense or War Department: What’s in a Name?**\
+`Readers discuss the name change at the Pentagon. Also: Fearful sports fans in D.C.; gay Republicans in Washington.`\
+https://nytimes.com/2025/09/08/opinion/defense-war-department.html
+
 **Jacques Charrier, Movie Star Who Wed Brigitte Bardot, Dies at 88**\
 `Their marriage made news in France, but they were an unhappy couple, and it didn’t last. Years later, they attacked each other in dueling memoirs.`\
 https://nytimes.com/2025/09/08/movies/jacques-charrier-dead.html
