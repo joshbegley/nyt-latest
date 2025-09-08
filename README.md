@@ -22,12 +22,12 @@ https://nytimes.com/2025/09/08/us/politics/trump-domestic-violence-crime-statist
 `A federal appeals court on Monday upheld an $83.3 million jury award against President Trump for defaming the writer E. Jean Carroll in 2019, after she accused him of a decades-old rape in a Manhattan department store — an attack for which he was separately found liable for sexual abuse.`\
 https://nytimes.com/interactive/2025/09/08/nyregion/08carroll-appeal-doc.html
 
-**Phillies put Trea Turner and Alec Bohm on IL; Turner's injury not season-ending**\
-`With three weeks to go in the season, the Phillies will need to navigate a key stretch without the left side of their infield.`\
+**Phillies put Trea Turner, Alec Bohm on IL, expect both to avoid lengthy absences**\
+`"Actually," Thomson said of Turner's Grade 1 strained right hamstring, "it was better than what we expected."`\
 https://nytimes.com/athletic/6610664/2025/09/08/trea-turner-hamstring-philies-injured-list/
 
-**NFL suspends Bills fan who hit Ravens' DeAndre Hopkins and Lamar Jackson**\
-`The Bills fan was ejected from the Sunday night game after shoving the side of Hopkins' helmet following a 29-yard touchdown.`\
+**NFL suspends fan who hit DeAndre Hopkins and Lamar Jackson**\
+`The fan was ejected from the Sunday night game after shoving the side of Hopkins' helmet following a 29-yard touchdown.`\
 https://nytimes.com/athletic/6611107/2025/09/08/deandre-hopkins-lamar-jackson-bills-fan-banned/
 
 **Bay FC coach Albertin Montoya to step down at end of season**\
