@@ -1,3 +1,15 @@
+**Nick Bosa and rebuilt 49ers defense save the day in season-opening win**\
+`"Thank God for Bosa. That was major," linebacker Fred Warner said. "To find a way to win in the division in Week 1 is major."`\
+https://nytimes.com/athletic/6609486/2025/09/07/49ers-season-opening-win-seahawks-nick-bosa/
+
+**Broncos' dominant defense shines in opener, but Bo Nix and offense must be better**\
+`The Titans started five drives inside Denver territory. The Broncos kept Tennessee out of the end zone anyway.`\
+https://nytimes.com/athletic/6609502/2025/09/07/broncos-defense-titans-bo-nix/
+
+**Seahawks failures in key moments prove catastrophic vs. 49ers: 'It sucks not finishing'**\
+`The 49ers were well equipped in the waning moments. The Seahawks were not, with critical lapses on offense and defense.`\
+https://nytimes.com/athletic/6609434/2025/09/07/seahawks-49ers-riq-woolen-sam-darnold/
+
 **Seahawks failures in key moments prove catastrophic vs. 49ers: ‘It sucks not finishing’**\
 `The 49ers were well-equipped in the waning moments. The Seahawks were not, with critical lapses on both offense and defense.`\
 https://nytimes.com/athletic/6609434/2025/09/07/seahawks-49ers-riq-woolen-sam-darnold/
