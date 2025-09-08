@@ -1,3 +1,7 @@
+**NASCAR Gateway takeaways: Toyota looks formidable, Denny Hamlin keeps winning**\
+`Toyota was tops again at Gateway, Denny Hamlin secured his spot in Round 2, and more from the second race of the NASCAR playoffs.`\
+https://nytimes.com/athletic/6610247/2025/09/08/nascar-gateway-takeaways-toyota-denny-hamlin/
+
 **Who will step up in Sherrone Moore's absence? Takeaways on the Michigan coach's suspension**\
 `The Wolverines will be without head coach for the next two games, and it comes at a crucial point in the season.`\
 https://nytimes.com/athletic/6611105/2025/09/08/sherrone-moore-suspension-michigan-wolverines/
