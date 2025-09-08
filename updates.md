@@ -1,3 +1,15 @@
+**Ten Dead in Mexico After Freight Train Crashes Into a Bus**\
+`Ten people were killed and 61 injured on Monday when a cargo train crashed into a double-decker passenger bus in central Mexico.`\
+https://nytimes.com/video/world/americas/100000010386320/mexico-train-bus-crash.html
+
+**Trump Says It’s Not His Signature. But Personal Letters Look Similar.**\
+`Donald Trump’s signature has evolved over the years, but when signing just his first name, he often includes the same flourish at the end.`\
+https://nytimes.com/2025/09/08/us/politics/trump-signature-epstein-letter.html
+
+**No, Lamar Jackson's pushing Bills fan wasn't justified. But it was a teaching moment for NFL**\
+`It's should be obvious that NFL players can’t be making physical contact with fans, even when they behave badly. The stakes are too high.`\
+https://nytimes.com/athletic/6611581/2025/09/08/lamar-jackson-push-bills-fan-nfl/
+
 **Mike Vrabel says Bill Belichick's welcome at Patriots facility: 'He's been back'**\
 `"He's been back, and I'll leave it at that," Vrabel said after Belichick claimed that he wasn't welcome at the Patriots' facility.`\
 https://nytimes.com/athletic/6611607/2025/09/08/bill-belichick-mike-vrabel-patriots/

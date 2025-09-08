@@ -1,3 +1,15 @@
+**Ten Dead in Mexico After Freight Train Crashes Into a Bus**\
+`Ten people were killed and 61 injured on Monday when a cargo train crashed into a double-decker passenger bus in central Mexico.`\
+https://nytimes.com/video/world/americas/100000010386320/mexico-train-bus-crash.html
+
+**Trump Says It’s Not His Signature. But Personal Letters Look Similar.**\
+`Donald Trump’s signature has evolved over the years, but when signing just his first name, he often includes the same flourish at the end.`\
+https://nytimes.com/2025/09/08/us/politics/trump-signature-epstein-letter.html
+
+**No, Lamar Jackson's pushing Bills fan wasn't justified. But it was a teaching moment for NFL**\
+`It's should be obvious that NFL players can’t be making physical contact with fans, even when they behave badly. The stakes are too high.`\
+https://nytimes.com/athletic/6611581/2025/09/08/lamar-jackson-push-bills-fan-nfl/
+
 **Mike Vrabel says Bill Belichick's welcome at Patriots facility: 'He's been back'**\
 `"He's been back, and I'll leave it at that," Vrabel said after Belichick claimed that he wasn't welcome at the Patriots' facility.`\
 https://nytimes.com/athletic/6611607/2025/09/08/bill-belichick-mike-vrabel-patriots/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6611780/2025/09/08/mets-vs-phillies-stream-how-to-w
 **How to watch Pirates at Orioles: Time, TV, streaming for September 9**\
 `Find out how to watch the Pittsburgh Pirates play the Baltimore Orioles, with time, TV channel, and streaming information.`\
 https://nytimes.com/athletic/6611775/2025/09/08/pirates-vs-orioles-stream-how-to-watch-sept-9/
-
-**How to watch Nationals at Marlins: Time, TV, streaming for September 9**\
-`Find out how to watch the Washington Nationals play the Miami Marlins, with time, TV channel, and streaming information.`\
-https://nytimes.com/athletic/6611773/2025/09/08/nationals-vs-marlins-stream-how-to-watch-sept-9/
-
-**After 2 Teenagers Are Killed in West Bank, Israeli Military Opens Inquiry**\
-`Two boys, both 14, were killed by gunfire from Israeli soldiers, according to the Palestinian Authority health ministry. Israel said that the shooting was “under review.”`\
-https://nytimes.com/2025/09/08/world/middleeast/jenin-west-bank-teens-killed.html
-
-**World Cups to have early kick-offs, postponements amid unsafe heat - study warns**\
-`Ten of the 16 2026 host cities experience at least one day each summer when the temperature is not safe to play competitive football`\
-https://nytimes.com/athletic/6611646/2025/09/08/world-cup-heat-postponement-climate-study/
 
