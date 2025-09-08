@@ -1,3 +1,7 @@
+**Who will step up in Sherrone Moore's absence? Takeaways on the Michigan coach's suspension**\
+`The Wolverines will be without head coach for the next two games, and it comes at a crucial point in the season.`\
+https://nytimes.com/athletic/6611105/2025/09/08/sherrone-moore-suspension-michigan-wolverines/
+
 **Company offers $5,000 for apology written on home run ball taken from young Phillies fan**\
 `A trading card retailer hopes to return the ball to the young fan it was taken from`\
 https://nytimes.com/athletic/6611013/2025/09/08/phillies-fan-home-run-ball/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6610666/2025/09/08/broncos-running-game-sean-payton
 **Opening Line: Dolphins favored over Patriots? Now that's a fishy line**\
 `Toby Mergler makes four early Week 2 picks wildly over-indexing on vibes, small sample sizes and comparisons to pop culture classics.`\
 https://nytimes.com/athletic/6610803/2025/09/08/nfl-week-2-betting-picks-opening-line/
-
-**Russell Wilson to remain Giants starter for Week 2**\
-`Giants coach Brian Daboll announced Wilson would start against Dallas on Sunday.`\
-https://nytimes.com/athletic/6610824/2025/09/08/ny-giants-russell-wilson-jaxson-dart/
 
