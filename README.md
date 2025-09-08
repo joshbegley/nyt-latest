@@ -1,3 +1,7 @@
+**Browns gave Bengals their best shot until a kicking disaster struck late**\
+`Despite turning it into its kind of game and dominating the second half, Cleveland let one slip away that it probably deserved to win. `\
+https://nytimes.com/athletic/6608981/2025/09/07/browns-loss-bengals-missed-opportunities/
+
 **Michael Penix Jr. was 'lights out,' but little else worked as Falcons drop opener**\
 `The Falcons fell to 0-1 with a 23-20 loss to the division-rival Buccaneers, but they emerged confident they have the right quarterback.`\
 https://nytimes.com/athletic/6609021/2025/09/07/falcons-buccaneers-michael-penix-nfl-season-opener/
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2025/upshot/zodiac-signs.html
 **No Corrections: Sept. 08, 2025**\
 `No corrections appeared in print on Monday, Sept. 08, 2025.`\
 https://nytimes.com/2025/09/07/pageoneplus/no-corrections-sept-08-2025.html
-
-**Packers bully the Lions and win season opener: Key takeaways**\
-`Jordan Love threw two touchdown passes and Micah Parsons got his first sack as a Packer.`\
-https://nytimes.com/athletic/6608915/2025/09/07/lions-packers-score-result-takeaways-nfl-week-1/
 
