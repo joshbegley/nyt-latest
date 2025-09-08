@@ -1,3 +1,15 @@
+**Girl, 1, Who Had Been Hit in Head Dies After Week on Life Support**\
+`A man who had been caring for the girl, Imani Mitchell, is accused of hitting her in the head, and authorities say they plan to seek a homicide charge.`\
+https://nytimes.com/2025/09/08/nyregion/bronx-girl-homicide.html
+
+**MLS suspends Luis Suárez further after League Cup ban for spitting**\
+`Suárez was already suspended for six Leagues Cup games, but the punishment now bleeds into Miami's MLS slate as well. `\
+https://nytimes.com/athletic/6610959/2025/09/08/luis-suarez-mls-suspension-spitting-leagues-cup-miami-sounders/
+
+**Hollywood Actors and Directors Pledge to Boycott Israeli Film Institutions**\
+`In an open letter, Javier Bardem, Olivia Colman and other stars pledged not to work with Israeli film companies that, in their view, “are implicated in genocide.”`\
+https://nytimes.com/2025/09/08/movies/hollywood-israel-boycott.html
+
 **Republican Senators Investigate Palisades Fire Response**\
 `Two senators have begun an investigation into whether government officials could have done more to stop the Los Angeles fire. President Trump and other Republicans have blamed Democratic leaders for the disaster.`\
 https://nytimes.com/2025/09/08/us/palisades-fire-investigation-los-angeles.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6610824/2025/09/08/ny-giants-russell-wilson-jaxson-
 **College football Week 3 odds: Georgia favored at Tennessee, Notre Dame vs. Texas A&M**\
 `There are three top-25 matchups highlighting college football's Week 3, including one that wasn't on the radar before the season started.`\
 https://nytimes.com/athletic/6610851/2025/09/08/college-football-week-3-odds-georgia-tennessee-notre-dame-texas-am/
-
-**Scoop City: Risers and fallers after Week 1**\
-`How teams are trending after the Patriots, Dolphins and Panthers underwhelmed, while the Bills and Packers impressed`\
-https://nytimes.com/athletic/6610918/2025/09/08/nfl-risers-fallers-trending-week-1-packers-bills/
-
-**The All-Consuming Question Hanging Over Prince Harry’s U.K. Visit**\
-`Harry, who has not seen his father, King Charles, for more than a year, arrived in Britain for a four-day visit on Monday.`\
-https://nytimes.com/2025/09/08/world/europe/prince-harry-uk-visit.html
-
-**Christoph von Dohnanyi, Conductor With a World of Admirers, Dies at 95**\
-`Known for his long tenure at the podium of the acclaimed Cleveland Orchestra, he was sought after as a guest with major symphonies and opera companies.`\
-https://nytimes.com/2025/09/08/arts/music/christoph-von-dohnanyi-dead.html
 

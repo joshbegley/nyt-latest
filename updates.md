@@ -1,3 +1,15 @@
+**Girl, 1, Who Had Been Hit in Head Dies After Week on Life Support**\
+`A man who had been caring for the girl, Imani Mitchell, is accused of hitting her in the head, and authorities say they plan to seek a homicide charge.`\
+https://nytimes.com/2025/09/08/nyregion/bronx-girl-homicide.html
+
+**MLS suspends Luis Suárez further after League Cup ban for spitting**\
+`Suárez was already suspended for six Leagues Cup games, but the punishment now bleeds into Miami's MLS slate as well. `\
+https://nytimes.com/athletic/6610959/2025/09/08/luis-suarez-mls-suspension-spitting-leagues-cup-miami-sounders/
+
+**Hollywood Actors and Directors Pledge to Boycott Israeli Film Institutions**\
+`In an open letter, Javier Bardem, Olivia Colman and other stars pledged not to work with Israeli film companies that, in their view, “are implicated in genocide.”`\
+https://nytimes.com/2025/09/08/movies/hollywood-israel-boycott.html
+
 **Republican Senators Investigate Palisades Fire Response**\
 `Two senators have begun an investigation into whether government officials could have done more to stop the Los Angeles fire. President Trump and other Republicans have blamed Democratic leaders for the disaster.`\
 https://nytimes.com/2025/09/08/us/palisades-fire-investigation-los-angeles.html

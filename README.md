@@ -1,3 +1,7 @@
+**Company offers $5,000 for apology written on home run ball taken from young Phillies fan**\
+`A trading card retailer hopes to return the ball to the young fan it was taken from`\
+https://nytimes.com/athletic/6611013/2025/09/08/phillies-fan-home-run-ball/
+
 **Girl, 1, Who Had Been Hit in Head Dies After Week on Life Support**\
 `A man who had been caring for the girl, Imani Mitchell, is accused of hitting her in the head, and authorities say they plan to seek a homicide charge.`\
 https://nytimes.com/2025/09/08/nyregion/bronx-girl-homicide.html
@@ -18,7 +22,7 @@ https://nytimes.com/2025/09/08/us/palisades-fire-investigation-los-angeles.html
 `Analysts have linked major attacks to important geopolitical events as the Kremlin tries to strengthen its hand in talks.`\
 https://nytimes.com/2025/09/08/world/europe/russia-ukraine-war-attacks.html
 
-**Draper out for rest of tennis season to manage left-arm injury after U.S. Open withdrawal**\
+**Jack Draper out for rest of tennis season to manage left-arm injury after U.S. Open withdrawal**\
 `Draper won his first-round match at the last Grand Slam of the year, but pulled out before the second round.`\
 https://nytimes.com/athletic/6610844/2025/09/08/tennis-jack-draper-out-season-elbow-injury/
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6610803/2025/09/08/nfl-week-2-betting-picks-opening
 **Russell Wilson to remain Giants starter for Week 2**\
 `Giants coach Brian Daboll announced Wilson would start against Dallas on Sunday.`\
 https://nytimes.com/athletic/6610824/2025/09/08/ny-giants-russell-wilson-jaxson-dart/
-
-**College football Week 3 odds: Georgia favored at Tennessee, Notre Dame vs. Texas A&M**\
-`There are three top-25 matchups highlighting college football's Week 3, including one that wasn't on the radar before the season started.`\
-https://nytimes.com/athletic/6610851/2025/09/08/college-football-week-3-odds-georgia-tennessee-notre-dame-texas-am/
 
