@@ -1,3 +1,7 @@
+**Adams Administration Move to Let ICE Into Rikers Is Illegal, Judge Rules**\
+`Justice Mary V. Rosado said the order, issued after the mayor’s corruption charges were dropped by the Trump administration, presented the appearance of a conflict of interest.`\
+https://nytimes.com/2025/09/08/nyregion/judge-adams-ice-rikers.html
+
 **Brock Purdy injured, uncertain for Week 2; George Kittle out 'a few weeks'**\
 `Purdy has toe and shoulder injuries, putting his status to face the Saints this week in doubt.`\
 https://nytimes.com/athletic/6611526/2025/09/08/brock-purdy-injury-miss-time-49ers/
