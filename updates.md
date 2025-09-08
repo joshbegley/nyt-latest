@@ -1,3 +1,7 @@
+**Nuno Espirito Santo set to leave Nottingham Forest**\
+`Nuno had said he was "not so close" anymore to Forest owner Marinakis on August 22`\
+https://nytimes.com/athletic/6370442/2025/09/08/nuno-nottingham-forest-head-coach-leaving/
+
 **Meet the New ICE Recruits**\
 `ICE was hiring officers in Texas, part of a huge ramp-up to its work force. The Times was there.`\
 https://nytimes.com/2025/09/08/us/politics/ice-job-fair-texas.html
