@@ -1,3 +1,11 @@
+**After 2 Teenagers Are Killed in West Bank, Israeli Military Opens Inquiry**\
+`Two boys, both 14, were killed by gunfire from Israeli soldiers, according to the Palestinian Authority health ministry. Israel said that the shooting was “under review.”`\
+https://nytimes.com/2025/09/08/world/middleeast/jenin-west-bank-teens-killed.html
+
+**World Cups to have early kick-offs, postponements amid unsafe heat - study warns**\
+`Ten of the 16 2026 host cities experience at least one day each summer when the temperature is not safe to play competitive football`\
+https://nytimes.com/athletic/6611646/2025/09/08/world-cup-heat-postponement-climate-study/
+
 **Britain’s National Gallery Expands Collection to 20th-Century Works**\
 `The museum, renowned for its collection of paintings from the Middle Ages to the 19th century, has announced a plan to collect more recent paintings.`\
 https://nytimes.com/2025/09/08/arts/design/national-gallery-20th-century.html
@@ -31,12 +39,4 @@ https://nytimes.com/athletic/6370442/2025/09/08/nuno-nottingham-forest-head-coac
 **Meet the New ICE Recruits**\
 `ICE was hiring officers in Texas, part of a huge ramp-up to its work force. The Times was there.`\
 https://nytimes.com/2025/09/08/us/politics/ice-job-fair-texas.html
-
-**Adams Administration Move to Let ICE Into Rikers Is Illegal, Judge Rules**\
-`Justice Mary V. Rosado said the order, issued after the mayor’s corruption charges were dropped by the Trump administration, presented the appearance of a conflict of interest.`\
-https://nytimes.com/2025/09/08/nyregion/judge-adams-ice-rikers.html
-
-**Man Killed Retired Auburn Professor at Alabama Dog Park, Police Say**\
-`Harold Rashad Dabney III was arrested Sunday on two counts of capital murder in the death of Dr. Julie Schnuelle, 59, a veterinarian and mother whose body was found in a dog park on Saturday.`\
-https://nytimes.com/2025/09/08/us/alabama-murder-vet-park.html
 

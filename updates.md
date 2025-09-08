@@ -1,3 +1,11 @@
+**After 2 Teenagers Are Killed in West Bank, Israeli Military Opens Inquiry**\
+`Two boys, both 14, were killed by gunfire from Israeli soldiers, according to the Palestinian Authority health ministry. Israel said that the shooting was “under review.”`\
+https://nytimes.com/2025/09/08/world/middleeast/jenin-west-bank-teens-killed.html
+
+**World Cups to have early kick-offs, postponements amid unsafe heat - study warns**\
+`Ten of the 16 2026 host cities experience at least one day each summer when the temperature is not safe to play competitive football`\
+https://nytimes.com/athletic/6611646/2025/09/08/world-cup-heat-postponement-climate-study/
+
 **Adams Administration Move to Let ICE Into Rikers Is Illegal, Judge Rules**\
 `Justice Mary V. Rosado said the order, issued after the mayor’s corruption charges were dropped by the Trump administration, presented the appearance of a conflict of interest.`\
 https://nytimes.com/2025/09/08/nyregion/judge-adams-ice-rikers.html
