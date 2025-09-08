@@ -1,3 +1,19 @@
+**Phillies put Trea Turner and Alec Bohm on IL; Turner's injury not season-ending: Sources**\
+`With three weeks to go in the season, the Phillies will need to navigate a key stretch without the entire left side of their infield.`\
+https://nytimes.com/athletic/6610664/2025/09/08/trea-turner-hamstring-philies-injured-list/
+
+**NFL suspends fan who hit DeAndre Hopkins and Lamar Jackson**\
+`The fan, a 17-year-old boy, was ejected from the Sunday night game after shoving the side of Hopkins' helmet following a 29-yard touchdown.`\
+https://nytimes.com/athletic/6611107/2025/09/08/deandre-hopkins-lamar-jackson-bills-fan-banned/
+
+**Bay FC coach Albertin Montoya to step down at end of season**\
+`Bay FC hired Montoya on Sep. 17, 2023 as head coach ahead of its inaugural season.`\
+https://nytimes.com/athletic/6611124/2025/09/08/bay-fc-albertin-montoya-stepping-down/
+
+**Texas' Sarkisian shuts down questions about Arch Manning's grimaces while throwing**\
+`ESPN cameras showed Manning appearing to grimace as he released a pass over the middle in Saturday's second quarter.`\
+https://nytimes.com/athletic/6611176/2025/09/08/arch-manning-face-pain-steve-sarkisian/
+
 **Trump Shares Video Promoting Discredited Link of Vaccines to Autism**\
 `The video, which appears to be old, features Dr. Mark Geier and his son David, who together published numerous studies purporting to show the connection.`\
 https://nytimes.com/2025/09/08/us/politics/trump-shares-video-promoting-discredited-link-of-vaccines-to-autism.html
