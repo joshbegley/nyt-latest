@@ -1,3 +1,11 @@
+**Amy Coney Barrett’s Memoir Is as Careful and Disciplined as Its Author**\
+`In a studiously bland new book, “Listening to the Law,” the Supreme Court justice describes her legal philosophy and tries to sidestep the court’s recent controversies.`\
+https://nytimes.com/2025/09/08/books/review/listening-to-the-law-amy-coney-barrett.html
+
+**The Murdoch Succession Fight Is Over. So What Does Lachlan Control?**\
+`From Fox News to Tubi to HarperCollins, here’s what is in the media empire that Rupert Murdoch built.`\
+https://nytimes.com/2025/09/08/business/media/lachlan-murdoch-fox-news-corp-assets.html
+
 **Murdochs Reach Deal to Resolve Succession Fight**\
 `Lachlan Murdoch will take control of a new family trust in a deal worth $3.3 billion, ensuring that his father’s media empire will retain its conservative slant.`\
 https://nytimes.com/2025/09/08/business/media/murdoch-family-trust-succession-deal.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6611124/2025/09/08/bay-fc-albertin-montoya-stepping
 **Texas' Sarkisian shuts down questions about Arch Manning's grimaces while throwing**\
 `ESPN cameras showed Manning appearing to grimace as he released a pass over the middle in Saturday's second quarter.`\
 https://nytimes.com/athletic/6611176/2025/09/08/arch-manning-face-pain-steve-sarkisian/
-
-**Trump Shares Video Promoting Discredited Link of Vaccines to Autism**\
-`The video, which appears to be old, features Dr. Mark Geier and his son David, who together published numerous studies purporting to show the connection.`\
-https://nytimes.com/2025/09/08/us/politics/trump-shares-video-promoting-discredited-link-of-vaccines-to-autism.html
-
-**Congress Obtains Drawing for Epstein Apparently Signed by Trump**\
-`Jeffrey Epstein’s estate turned over a copy of a 50th birthday book that includes a sexually suggestive drawing and note apparently signed by President Trump.`\
-https://nytimes.com/2025/09/08/us/politics/epstein-trump-birthday-book.html
 
