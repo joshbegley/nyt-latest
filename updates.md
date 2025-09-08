@@ -1,3 +1,16 @@
+**Trump Wades Into Gaza Diplomacy as Israeli Military Moves on Gaza City**\
+`The American president gave Hamas what sounded like an ultimatum, demanding that the militant group agree to a new truce proposal or face full-scale Israeli assault on Gaza City.`\
+https://nytimes.com/2025/09/08/world/middleeast/trump-hamas-warning-israel-gaza-city.html
+
+**Londoners Face Transit Chaos as Major Tube Strike Takes Effect**\
+`A major strike on the London Underground system is causing widespread disruption for millions of Londoners. The strike is expected to last until Thursday.`\
+https://nytimes.com/video/world/europe/100000010384590/london-tube-strike-underground-.html
+
+**'I’m playing for the whole city': Matthew Knies won't shy away from the Toronto spotlight**\
+`After Mitch Marner’s departure, the 22-year-old Knies is now an undeniable piece of the Leafs’ core in just his third full NHL season.
+`\
+https://nytimes.com/athletic/6601367/2025/09/08/maple-leafs-matthew-knies-nhl-season/
+
 **Fantasy football concerns about Ja'Marr Chase, Joe Burrow and the Bengals' pass offense**\
 `KC Joyner explains why to worry about the poor opening-week performances of Bengals Ja'Marr Chase and Joe Burrow.`\
 https://nytimes.com/athletic/6609135/2025/09/08/fantasy-football-bengals-advice-chase-burrow/

@@ -1,3 +1,11 @@
+**Trump Wades Into Gaza Diplomacy as Israeli Military Moves on Gaza City**\
+`The American president gave Hamas what sounded like an ultimatum, demanding that the militant group agree to a new truce proposal or face full-scale Israeli assault on Gaza City.`\
+https://nytimes.com/2025/09/08/world/middleeast/trump-hamas-warning-israel-gaza-city.html
+
+**Londoners Face Transit Chaos as Major Tube Strike Takes Effect**\
+`A major strike on the London Underground system is causing widespread disruption for millions of Londoners. The strike is expected to last until Thursday.`\
+https://nytimes.com/video/world/europe/100000010384590/london-tube-strike-underground-.html
+
 **Fantasy football concerns about Ja'Marr Chase, Joe Burrow and the Bengals' pass offense**\
 `KC Joyner explains why to worry about the poor opening-week performances of Bengals Ja'Marr Chase and Joe Burrow.`\
 https://nytimes.com/athletic/6609135/2025/09/08/fantasy-football-bengals-advice-chase-burrow/
@@ -30,12 +38,4 @@ https://nytimes.com/athletic/6601367/2025/09/08/maple-leafs-matthew-knies-nhl-se
 **Lowetide: Which wingers could step up in Hyman's early-season absence?**\
 `Hyman's health status for the regular season will come into view in the weeks to come.`\
 https://nytimes.com/athletic/6608389/2025/09/08/oilers-right-wingers-zach-hyman-injury/
-
-**Sabres mailbag, part 1: Reasons for optimism, Pegula's buy-in, Tuch's contract**\
-`Let’s try to unpack some of the questions that are top of mind for Sabres fans as training camp approaches.`\
-https://nytimes.com/athletic/6606097/2025/09/08/sabres-stats-pegula-tuch-contract/
-
-**What does the Blues’ future look like? Projecting the 2028-29 lineup**\
-`Looking at the players under contract through 2028-29 and the prospects coming, what holes will need to be filled?`\
-https://nytimes.com/athletic/6595769/2025/09/08/blues-prospects-future-lineup-projection/
 
