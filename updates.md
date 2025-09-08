@@ -1,3 +1,11 @@
+**O'Connor: Aaron Rodgers' takedown of Jets one of sweetest wins of his Hall of Fame career**\
+`Rodgers had insisted the revenge match was just another game. But after winning, he was happy "to beat everybody associated with the Jets."`\
+https://nytimes.com/athletic/6609183/2025/09/07/aaron-rodgers-steelers-jets-sweet-victory-week-1/
+
+**Cardinals takeaways: St. Louis climbs back to .500 after strong series win over Giants**\
+`The Cardinals took two of three games from a Giants team that entered the series winners of 10 of its last 11 games`\
+https://nytimes.com/athletic/6607045/2025/09/07/cardinals-takeaways-st-louis-climbs-back-to-500-after-strong-series-win-over-giants/
+
 **Same ol' Panthers: A poor performance by Bryce Young and run D, another Week 1 loss**\
 `Young had three turnovers — two interceptions and a fumble — and the Jaguars ran for 200 yards while averaging 6.3 yards per carry.`\
 https://nytimes.com/athletic/6609259/2025/09/07/panthers-bryce-young-week-1-loss/

@@ -1,3 +1,7 @@
+**O'Connor: Aaron Rodgers' takedown of Jets one of sweetest wins of his Hall of Fame career**\
+`Rodgers had insisted the revenge match was just another game. But after winning, he was happy "to beat everybody associated with the Jets."`\
+https://nytimes.com/athletic/6609183/2025/09/07/aaron-rodgers-steelers-jets-sweet-victory-week-1/
+
 **Same ol' Panthers: A poor performance by Bryce Young and run D, another Week 1 loss**\
 `Young had three turnovers — two interceptions and a fumble — and the Jaguars ran for 200 yards while averaging 6.3 yards per carry.`\
 https://nytimes.com/athletic/6609259/2025/09/07/panthers-bryce-young-week-1-loss/
@@ -15,7 +19,7 @@ https://nytimes.com/2025/09/07/us/politics/tom-hanks-west-point-award.html
 https://nytimes.com/athletic/6609014/2025/09/07/aaron-rodgers-steelers-debut-performance/
 
 **Cardinals takeaways: St. Louis climbs back to .500 after strong series win over Giants**\
-`The Cardinals took two of three games from a Giants team that entered the series winners of 10 of their last 11 games`\
+`The Cardinals took two of three games from a Giants team that entered the series winners of 10 of its last 11 games`\
 https://nytimes.com/athletic/6607045/2025/09/07/cardinals-takeaways-st-louis-climbs-back-to-500-after-strong-series-win-over-giants/
 
 **Another Jets loss but, in Justin Fields' debut, perhaps a quarterback found**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6609068/2025/09/07/cubs-what-were-hearing-pete-arms
 **How to watch Nationals at Marlins: Time, TV, streaming for September 8**\
 `Find out how to watch the Washington Nationals play the Miami Marlins, with time, TV channel, and streaming information.`\
 https://nytimes.com/athletic/6609253/2025/09/07/nationals-vs-marlins-stream-how-to-watch-sept-8/
-
-**How to watch Brewers at Rangers: Time, TV, streaming for September 8**\
-`Find out how to watch the Milwaukee Brewers play the Texas Rangers, with time, TV channel, and streaming information.`\
-https://nytimes.com/athletic/6609251/2025/09/07/brewers-vs-rangers-stream-how-to-watch-sept-8/
 
