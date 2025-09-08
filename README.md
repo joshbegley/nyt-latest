@@ -1,3 +1,11 @@
+**Trump Administration Says It Has Begun Immigration Crackdown in Chicago**\
+`In Chicago, advocates for immigrants said they saw several arrests on Sunday, but were uncertain of the scale of federal action.`\
+https://nytimes.com/2025/09/08/us/chicago-immigration-crackdown-trump-administration.html
+
+**Supertramp Singer, Rick Davies, Dies at 81**\
+`Rick Davies, the lead singer and co-founder of the British band Supertramp, died on Saturday after a long battle with blood cancer.`\
+https://nytimes.com/video/obituaries/100000010384936/supertramp-singer-rick-davies-obit.html
+
 **Defense or War Department: What’s in a Name?**\
 `Readers discuss the name change at the Pentagon. Also: Fearful sports fans in D.C.; gay Republicans in Washington.`\
 https://nytimes.com/2025/09/08/opinion/defense-war-department.html
@@ -29,12 +37,4 @@ https://nytimes.com/newsgraphics/card-story/a-city-reinvented-paris-is-now-great
 **A 5-Stop Guide to London’s Tube Strike**\
 `What to know about the disruption to the city’s underground transit system this week, and alternative ways to travel.`\
 https://nytimes.com/2025/09/08/world/europe/london-tube-strike.html
-
-**Supreme Court Lifts Restrictions on L.A. Immigration Stops**\
-`A federal judge had ordered agents not to make indiscriminate stops relying on factors like a person’s ethnicity or that they speak Spanish.`\
-https://nytimes.com/2025/09/08/us/politics/supreme-court-los-angeles-immigration.html
-
-**Tech Companies Show Off for Trump’s ‘Golden Dome’**\
-`Tech companies are displaying A.I., lasers and more as they compete for a piece of President Trump’s ambitious plan for a missile defense shield.`\
-https://nytimes.com/2025/09/08/technology/space-capsules-ai-lasers-tech-golden-dome.html
 
