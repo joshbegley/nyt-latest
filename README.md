@@ -1,5 +1,9 @@
-**Seahawks failures in key moments prove catastrophic vs. 49ers: ‘It sucks not finishing’**\
-`The 49ers were well-equipped in the waning moments. The Seahawks were not, with critical lapses on both offense and defense.`\
+**Broncos' dominant defense shines in opener, but Bo Nix and offense must be better**\
+`The Titans started five drives inside Denver territory. The Broncos kept Tennessee out of the end zone anyway.`\
+https://nytimes.com/athletic/6609502/2025/09/07/broncos-defense-titans-bo-nix/
+
+**Seahawks failures in key moments prove catastrophic vs. 49ers: 'It sucks not finishing'**\
+`The 49ers were well equipped in the waning moments. The Seahawks were not, with critical lapses on offense and defense.`\
 https://nytimes.com/athletic/6609434/2025/09/07/seahawks-49ers-riq-woolen-sam-darnold/
 
 **The U.S. Open continued Alcaraz and Sinner's tennis domination. What now?**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6607045/2025/09/07/cardinals-takeaways-st-louis-cli
 **Another Jets loss but, in Justin Fields' debut, perhaps a quarterback found**\
 `The new quarterback provided a glimmer of hope during an excruciating Week 1 loss to the Steelers.`\
 https://nytimes.com/athletic/6609070/2025/09/07/new-york-jets-justin-fields-debut-performance/
-
-**Al Golden's Bengals defense sets a 'different' foundation in 17-16 win over Browns**\
-`On a day when Joe Burrow and the high-powered offense stalled, the defense stepped up to pull out a Week 1 division victory.`\
-https://nytimes.com/athletic/6609147/2025/09/07/bengals-defense-win-bronws-al-golden/
 
