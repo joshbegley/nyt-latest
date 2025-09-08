@@ -1,3 +1,7 @@
+**Michael Penix Jr. was 'lights out,' but little else worked as Falcons drop opener**\
+`The Falcons fell to 0-1 with a 23-20 loss to the division-rival Buccaneers, but they emerged confident they have the right quarterback.`\
+https://nytimes.com/athletic/6609021/2025/09/07/falcons-buccaneers-michael-penix-nfl-season-opener/
+
 **Rams hold Texans to 9 points in physical Week 1 win: Key takeaways**\
 `When CJ Stroud had his starting offensive line intact, the Texans' offensive line gave up 12 pressures according to Next Gen Stats.`\
 https://nytimes.com/athletic/6608958/2025/09/07/texans-rams-score-result-takeaways-nfl-week-1/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/07/pageoneplus/no-corrections-sept-08-2025.html
 **Packers bully the Lions and win season opener: Key takeaways**\
 `Jordan Love threw two touchdown passes and Micah Parsons got his first sack as a Packer.`\
 https://nytimes.com/athletic/6608915/2025/09/07/lions-packers-score-result-takeaways-nfl-week-1/
-
-**Sneak peak: If the Yankees keep this up, they'll be dangerous in October**\
-`Since the Red Sox embarrassed them two Saturdays ago, the Yankees have won 11 of 14 games: "We're a lot sharper."`\
-https://nytimes.com/athletic/6608671/2025/09/07/new-york-yankees-october/
 
