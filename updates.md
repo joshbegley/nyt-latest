@@ -1,3 +1,7 @@
+**How little-known 49ers, led by TE Jake Tonges, snatched victory from the Seahawks**\
+`A year ago, the combination of injuries and special teams errors were fatal to the 49ers. On Sunday, the team overcame them in a 17-13 win.`\
+https://nytimes.com/athletic/6609458/2025/09/07/49ers-seahawks-jake-tonges-ricky-pearsall/
+
 **Nick Bosa and rebuilt 49ers defense save the day in season-opening win**\
 `"Thank God for Bosa. That was major," linebacker Fred Warner said. "To find a way to win in the division in Week 1 is major."`\
 https://nytimes.com/athletic/6609486/2025/09/07/49ers-season-opening-win-seahawks-nick-bosa/
