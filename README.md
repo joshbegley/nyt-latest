@@ -1,3 +1,7 @@
+**How little-known 49ers, led by TE Jake Tonges, snatched victory from the Seahawks**\
+`A year ago, the combination of injuries and special teams errors were fatal to the 49ers. On Sunday, the team overcame them in a 17-13 win.`\
+https://nytimes.com/athletic/6609458/2025/09/07/49ers-seahawks-jake-tonges-ricky-pearsall/
+
 **Nick Bosa and rebuilt 49ers defense save the day in season-opening win**\
 `"Thank God for Bosa. That was major," linebacker Fred Warner said. "To find a way to win in the division in Week 1 is major."`\
 https://nytimes.com/athletic/6609486/2025/09/07/49ers-season-opening-win-seahawks-nick-bosa/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/07/us/politics/tom-hanks-west-point-award.html
 **Aaron Rodgers wasn't supposed to carry the Steelers — in his debut, he did just that**\
 `The 41-year-old QB was the catalyst in a win over the Jets, his former team, on a day when their defense and run game struggled.`\
 https://nytimes.com/athletic/6609014/2025/09/07/aaron-rodgers-steelers-debut-performance/
-
-**Cardinals takeaways: St. Louis climbs back to .500 after strong series win over Giants**\
-`The Cardinals took two of three games from a Giants team that entered the series winners of 10 of its last 11 games`\
-https://nytimes.com/athletic/6607045/2025/09/07/cardinals-takeaways-st-louis-climbs-back-to-500-after-strong-series-win-over-giants/
 
