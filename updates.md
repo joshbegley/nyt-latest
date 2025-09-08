@@ -1,3 +1,15 @@
+**Who will step up in Sherrone Moore's absence? Takeaways on the Michigan coach's suspension**\
+`The Wolverines will be without head coach for the next two games, and it comes at a crucial point in the season.`\
+https://nytimes.com/athletic/6611105/2025/09/08/sherrone-moore-suspension-michigan-wolverines/
+
+**Company offers $5,000 for apology written on home run ball taken from young Phillies fan**\
+`A trading card retailer hopes to return the ball to the young fan it was taken from`\
+https://nytimes.com/athletic/6611013/2025/09/08/phillies-fan-home-run-ball/
+
+**Jack Draper out for rest of tennis season to manage left-arm injury after U.S. Open withdrawal**\
+`Draper won his first-round match at the last Grand Slam of the year, but pulled out before the second round.`\
+https://nytimes.com/athletic/6610844/2025/09/08/tennis-jack-draper-out-season-elbow-injury/
+
 **Girl, 1, Who Had Been Hit in Head Dies After Week on Life Support**\
 `A man who had been caring for the girl, Imani Mitchell, is accused of hitting her in the head, and authorities say they plan to seek a homicide charge.`\
 https://nytimes.com/2025/09/08/nyregion/bronx-girl-homicide.html
