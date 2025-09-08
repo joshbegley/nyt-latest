@@ -1,3 +1,11 @@
+**If NWSL wants to keep USWNT players such as Rodman and Wilson, it needs to review its salary cap**\
+`Alyssa Thompson's Chelsea move is another reminder that NWSL needs to revisit its salary cap restrictions`\
+https://nytimes.com/athletic/6609825/2025/09/08/trinity-rodman-sophia-wilson-nwsl-salary-cap/
+
+**49ers, OL Colton McKivitz reach 3-year, $45 million extension: Sources**\
+`McKivitz, 29, was a fifth-round pick by the 49ers in the 2020 NFL Draft.`\
+https://nytimes.com/athletic/6610481/2025/09/08/49ers-colton-mckivitz-extension/
+
 **A New, ‘Adorable’ Deep-Sea Fish Swims Into View**\
 `The bumpy snailfish, discovered 10,000 feet down off the coast of California, shows that not all denizens of the abyss are frightening.`\
 https://nytimes.com/2025/09/08/science/fish-ocean-deep-sea.html

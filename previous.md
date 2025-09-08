@@ -1,3 +1,11 @@
+**If NWSL wants to keep USWNT players such as Rodman and Wilson, it needs to review its salary cap**\
+`Alyssa Thompson's Chelsea move is another reminder that NWSL needs to revisit its salary cap restrictions`\
+https://nytimes.com/athletic/6609825/2025/09/08/trinity-rodman-sophia-wilson-nwsl-salary-cap/
+
+**49ers, OL Colton McKivitz reach 3-year, $45 million extension: Sources**\
+`McKivitz, 29, was a fifth-round pick by the 49ers in the 2020 NFL Draft.`\
+https://nytimes.com/athletic/6610481/2025/09/08/49ers-colton-mckivitz-extension/
+
 **A New, ‘Adorable’ Deep-Sea Fish Swims Into View**\
 `The bumpy snailfish, discovered 10,000 feet down off the coast of California, shows that not all denizens of the abyss are frightening.`\
 https://nytimes.com/2025/09/08/science/fish-ocean-deep-sea.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6609525/2025/09/08/yegor-chinakhov-adam-fantilli-bl
 **Trump Wades Into Gaza Diplomacy as Israeli Military Moves on Gaza City**\
 `The American president gave Hamas what sounded like an ultimatum, demanding that the militant group agree to a new truce proposal or face full-scale Israeli assault on Gaza City.`\
 https://nytimes.com/2025/09/08/world/middleeast/trump-hamas-warning-israel-gaza-city.html
-
-**Londoners Face Transit Chaos as Major Tube Strike Takes Effect**\
-`A major strike on the London Underground system is causing widespread disruption for millions of Londoners. The strike is expected to last until Thursday.`\
-https://nytimes.com/video/world/europe/100000010384590/london-tube-strike-underground-.html
-
-**Fantasy football concerns about Ja'Marr Chase, Joe Burrow and the Bengals' pass offense**\
-`KC Joyner explains why to worry about the poor opening-week performances of Bengals Ja'Marr Chase and Joe Burrow.`\
-https://nytimes.com/athletic/6609135/2025/09/08/fantasy-football-bengals-advice-chase-burrow/
 

@@ -1,3 +1,11 @@
+**Fantasy baseball cheat sheet: Add Bader, stream Sheehan and more THE BAT X insights**\
+`The Athletic and THE BAT X have teamed up to offer a weekly cheat sheet, which can help you in fantasy baseball playoffs. `\
+https://nytimes.com/athletic/6610393/2025/09/08/fantasy-baseball-the-bat-x/
+
+**Inside Barcelona: Why Spain's champions still don't know where they are playing home games**\
+`Our Barcelona correspondents share their latest information on the biggest talking points at the club right now`\
+https://nytimes.com/athletic/6610369/2025/09/08/barcelona-camp-nou-news-valencia-thiago-gavi/
+
 **If NWSL wants to keep USWNT players such as Rodman and Wilson, it needs to review its salary cap**\
 `Alyssa Thompson's Chelsea move is another reminder that NWSL needs to revisit its salary cap restrictions`\
 https://nytimes.com/athletic/6609825/2025/09/08/trinity-rodman-sophia-wilson-nwsl-salary-cap/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6609471/2025/09/08/fantasy-football-week-1-takeaway
 **London Hit by Travel Chaos as Dayslong Tube Strike Takes Effect**\
 `Underground stations were closed and buses were crammed as commuters grappled with a walkout by transit workers.`\
 https://nytimes.com/2025/09/08/world/europe/london-tube-strike-tfl.html
-
-**As training camp nears, updates on Blue Jackets’ Yegor Chinakhov and Adam Fantilli**\
-`Chinakhov hasn’t rescinded his trade request, and Fantilli's agent isn't in a rush to sign an extension.`\
-https://nytimes.com/athletic/6609525/2025/09/08/yegor-chinakhov-adam-fantilli-blue-jackets/
-
-**Trump Wades Into Gaza Diplomacy as Israeli Military Moves on Gaza City**\
-`The American president gave Hamas what sounded like an ultimatum, demanding that the militant group agree to a new truce proposal or face full-scale Israeli assault on Gaza City.`\
-https://nytimes.com/2025/09/08/world/middleeast/trump-hamas-warning-israel-gaza-city.html
 
