@@ -1,3 +1,8 @@
+**'I’m playing for the whole city': Matthew Knies won't shy away from the Toronto spotlight**\
+`After Mitch Marner’s departure, the 22-year-old Knies is now an undeniable piece of the Leafs’ core in just his third full NHL season.
+`\
+https://nytimes.com/athletic/6601367/2025/09/08/maple-leafs-matthew-knies-nhl-season/
+
 **Trump Wades Into Gaza Diplomacy as Israeli Military Moves on Gaza City**\
 `The American president gave Hamas what sounded like an ultimatum, demanding that the militant group agree to a new truce proposal or face full-scale Israeli assault on Gaza City.`\
 https://nytimes.com/2025/09/08/world/middleeast/trump-hamas-warning-israel-gaza-city.html
