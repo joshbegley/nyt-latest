@@ -1,3 +1,7 @@
+**Britain’s National Gallery Expands Collection to 20th-Century Works**\
+`The museum, renowned for its collection of paintings from the Middle Ages to the 19th century, has announced a plan to collect more recent paintings.`\
+https://nytimes.com/2025/09/08/arts/design/national-gallery-20th-century.html
+
 **Thaksin, Thai Power Broker, Returns Home Before Court Verdict**\
 `Thaksin Shinawatra’s abrupt departure from Thailand last week spurred speculation that he was returning to a life in exile.`\
 https://nytimes.com/2025/09/08/world/asia/thailand-thaksin-verdict.html

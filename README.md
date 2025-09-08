@@ -7,7 +7,7 @@ https://nytimes.com/2025/09/08/arts/design/national-gallery-20th-century.html
 https://nytimes.com/2025/09/08/world/asia/thailand-thaksin-verdict.html
 
 **Brock Purdy injured, uncertain for Week 2; George Kittle out 'a few weeks'**\
-`Purdy played all 76 snaps in Sunday's season-opening win over the Seahawks, throwing the winning touchdown while running to his right.`\
+`Purdy has toe and shoulder injuries, putting his status to face the Saints this week in doubt.`\
 https://nytimes.com/athletic/6611526/2025/09/08/brock-purdy-injury-miss-time-49ers/
 
 **Michael Seltzer, Who Raised Millions to Fight AIDS, Dies at 78**\

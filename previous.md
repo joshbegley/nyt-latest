@@ -1,3 +1,7 @@
+**Britain’s National Gallery Expands Collection to 20th-Century Works**\
+`The museum, renowned for its collection of paintings from the Middle Ages to the 19th century, has announced a plan to collect more recent paintings.`\
+https://nytimes.com/2025/09/08/arts/design/national-gallery-20th-century.html
+
 **Thaksin, Thai Power Broker, Returns Home Before Court Verdict**\
 `Thaksin Shinawatra’s abrupt departure from Thailand last week spurred speculation that he was returning to a life in exile.`\
 https://nytimes.com/2025/09/08/world/asia/thailand-thaksin-verdict.html
@@ -35,8 +39,4 @@ https://nytimes.com/2025/09/08/nyregion/judge-adams-ice-rikers.html
 **Man Killed Retired Auburn Professor at Alabama Dog Park, Police Say**\
 `Harold Rashad Dabney III was arrested Sunday on two counts of capital murder in the death of Dr. Julie Schnuelle, 59, a veterinarian and mother whose body was found in a dog park on Saturday.`\
 https://nytimes.com/2025/09/08/us/alabama-murder-vet-park.html
-
-**Bears reinforce Arlington Heights stadium goal in letter to season ticket holders**\
-`President and CEO Kevin Warren said the team plans to bid to host a Super Bowl in a suburban domed stadium as early as 2031.`\
-https://nytimes.com/athletic/6611451/2025/09/08/chicago-bears-stadium-plans-arlington-heights-kevin-warren/
 
