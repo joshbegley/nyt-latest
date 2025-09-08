@@ -1,3 +1,7 @@
+**Cardinals takeaways: St. Louis climbs back to .500 after strong series win over Giants**\
+`The Cardinals took two of three games from a Giants team that entered the series winners of 10 of their last 11 games`\
+https://nytimes.com/athletic/6607045/2025/09/07/cardinals-takeaways-st-louis-climbs-back-to-500-after-strong-series-win-over-giants/
+
 **Another Jets loss but, in Justin Fields' debut, perhaps a quarterback found**\
 `The new quarterback provided a glimmer of hope during an excruciating Week 1 loss to the Steelers.`\
 https://nytimes.com/athletic/6609070/2025/09/07/new-york-jets-justin-fields-debut-performance/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6609247/2025/09/07/royals-vs-guardians-stream-how-t
 **Giants takeaways: Kai-Wei Teng intrigues, but Giants fall short in St. Louis**\
 `Teng might be closer than ever to establishing himself as a major league starter, but he's still a work in progress.`\
 https://nytimes.com/athletic/6609011/2025/09/07/kai-wei-teng-giants-takeaways/
-
-**Australian Woman Is Given Life Sentence in Mushroom Murder Case**\
-`Erin Patterson was found guilty of murdering three of her husband’s relatives and trying to kill a fourth by serving them deadly mushrooms.`\
-https://nytimes.com/2025/09/07/world/australia/australia-mushroom-murder-erin-patterson.html
 
