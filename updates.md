@@ -1,3 +1,7 @@
+**Cardinals takeaways: St. Louis climbs back to .500 after strong series win over Giants**\
+`The Cardinals took two of three games from a Giants team that entered the series winners of 10 of their last 11 games`\
+https://nytimes.com/athletic/6607045/2025/09/07/cardinals-takeaways-st-louis-climbs-back-to-500-after-strong-series-win-over-giants/
+
 **Al Golden's Bengals defense sets a 'different' foundation in 17-16 win over Browns**\
 `On a day when Joe Burrow and the high-powered offense stalled, the defense stepped up to pull out a Week 1 division victory.`\
 https://nytimes.com/athletic/6609147/2025/09/07/bengals-defense-win-bronws-al-golden/
