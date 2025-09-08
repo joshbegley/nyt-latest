@@ -1,3 +1,23 @@
+**Workers Detained in Georgia Raid Will Return to South Korea**\
+`South Korea negotiated the release of hundreds of Korean nationals who were detained during a raid on a Hyundai-LG electric vehicle battery plant in Georgia.`\
+https://nytimes.com/video/us/politics/100000010385281/detained-south-korean-workers-going-home.html
+
+**France’s Political Crisis**\
+`President Emmanuel Macron said he would appoint a new prime minister, the fifth in less than two years, after the government collapsed in a no-confidence vote.`\
+https://nytimes.com/2025/09/08/briefing/france-government-crisis-nepal-protest.html
+
+**Getting a Visa to Visit the U.S. Could Take Even Longer**\
+`A new State Department rule requires would-be travelers to be interviewed in their home countries, where wait times can be more than a year.`\
+https://nytimes.com/2025/09/08/travel/tourist-non-immigrant-visa-application-interviews.html
+
+**The Supreme Court Decision on ICE and Racial Profiling, Explained**\
+`The ruling allowed immigration agents to stop people for reasons that lower courts had deemed likely unconstitutional.`\
+https://nytimes.com/2025/09/08/us/politics/supreme-court-immigration-racial-profiling.html
+
+**Mamdani, Facing Mistrust Within the N.Y.P.D., Reaches Out to Officers**\
+`Zohran Mamdani, the Democratic nominee for mayor of New York City, has been speaking with officers to address concerns over his past criticism of the Police Department.`\
+https://nytimes.com/2025/09/08/nyregion/mamdani-nypd.html
+
 **10 Killed and 61 Injured in Mexico After Train Crashes Into Bus**\
 `Accidents involving vehicles and trains have been increasing as the Mexican government has pushed to revitalize railroads and build new passenger lines.`\
 https://nytimes.com/2025/09/08/world/americas/mexico-train-crash.html

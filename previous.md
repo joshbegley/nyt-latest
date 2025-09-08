@@ -1,3 +1,23 @@
+**Workers Detained in Georgia Raid Will Return to South Korea**\
+`South Korea negotiated the release of hundreds of Korean nationals who were detained during a raid on a Hyundai-LG electric vehicle battery plant in Georgia.`\
+https://nytimes.com/video/us/politics/100000010385281/detained-south-korean-workers-going-home.html
+
+**France’s Political Crisis**\
+`President Emmanuel Macron said he would appoint a new prime minister, the fifth in less than two years, after the government collapsed in a no-confidence vote.`\
+https://nytimes.com/2025/09/08/briefing/france-government-crisis-nepal-protest.html
+
+**Getting a Visa to Visit the U.S. Could Take Even Longer**\
+`A new State Department rule requires would-be travelers to be interviewed in their home countries, where wait times can be more than a year.`\
+https://nytimes.com/2025/09/08/travel/tourist-non-immigrant-visa-application-interviews.html
+
+**The Supreme Court Decision on ICE and Racial Profiling, Explained**\
+`The ruling allowed immigration agents to stop people for reasons that lower courts had deemed likely unconstitutional.`\
+https://nytimes.com/2025/09/08/us/politics/supreme-court-immigration-racial-profiling.html
+
+**Mamdani, Facing Mistrust Within the N.Y.P.D., Reaches Out to Officers**\
+`Zohran Mamdani, the Democratic nominee for mayor of New York City, has been speaking with officers to address concerns over his past criticism of the Police Department.`\
+https://nytimes.com/2025/09/08/nyregion/mamdani-nypd.html
+
 **10 Killed and 61 Injured in Mexico After Train Crashes Into Bus**\
 `Accidents involving vehicles and trains have been increasing as the Mexican government has pushed to revitalize railroads and build new passenger lines.`\
 https://nytimes.com/2025/09/08/world/americas/mexico-train-crash.html
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/6611094/2025/09/08/mauricio-pochettino-usmnt-japan-
 **Amy Coney Barrett’s Memoir Is as Careful and Disciplined as Its Author**\
 `In a studiously bland new book, “Listening to the Law,” the Supreme Court justice describes her legal philosophy and tries to sidestep the court’s recent controversies.`\
 https://nytimes.com/2025/09/08/books/review/listening-to-the-law-amy-coney-barrett.html
-
-**The Murdoch Succession Fight Is Over. So What Does Lachlan Control?**\
-`From Fox News to Tubi to HarperCollins, here’s what is in the media empire that Rupert Murdoch built.`\
-https://nytimes.com/2025/09/08/business/media/lachlan-murdoch-fox-news-corp-assets.html
-
-**Murdochs Reach Deal to Resolve Succession Fight**\
-`Lachlan Murdoch will take control of a new family trust in a deal worth $3.3 billion, ensuring that his father’s media empire will retain its conservative slant.`\
-https://nytimes.com/2025/09/08/business/media/murdoch-family-trust-succession-deal.html
-
-**Guehi fit for England's World Cup qualifier against Serbia, says Tuchel**\
-`The Crystal Palace centre-back was substituted after feeling his groin during Saturday's win against Andorra`\
-https://nytimes.com/athletic/6611161/2025/09/08/marc-guehi-england-injury-update/
-
-**Trump Says Having ‘a Little Fight With the Wife’ Should Not Count as a Crime**\
-`President Trump said that offenses that happen at home should not undermine his record of crime reduction in Washington.`\
-https://nytimes.com/2025/09/08/us/politics/trump-domestic-violence-crime-statistics.html
-
-**Read the Ruling on the Judgment Against Trump in the E. Jean Carroll Case**\
-`A federal appeals court on Monday upheld an $83.3 million jury award against President Trump for defaming the writer E. Jean Carroll in 2019, after she accused him of a decades-old rape in a Manhattan department store — an attack for which he was separately found liable for sexual abuse.`\
-https://nytimes.com/interactive/2025/09/08/nyregion/08carroll-appeal-doc.html
 
