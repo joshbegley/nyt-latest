@@ -1,3 +1,8 @@
+**'I’m playing for the whole city': Matthew Knies won't shy away from the Toronto spotlight**\
+`After Mitch Marner’s departure, the 22-year-old Knies is now an undeniable piece of the Leafs’ core in just his third full NHL season.
+`\
+https://nytimes.com/athletic/6601367/2025/09/08/maple-leafs-matthew-knies-nhl-season/
+
 **In a First, Korean Women Target U.S. Military in Suit Over Prostitution**\
 `Dozens of women who worked in the sex trade in South Korea are seeking an apology and compensation for the rights abuses they suffered while catering to American G.I.s.`\
 https://nytimes.com/2025/09/08/world/asia/korea-comfort-women-us-military.html
