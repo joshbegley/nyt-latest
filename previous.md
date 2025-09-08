@@ -1,3 +1,7 @@
+**In a First, Korean Women Target U.S. Military in Suit Over Prostitution**\
+`Dozens of women who worked in the sex trade in South Korea are seeking an apology and compensation for the rights abuses they suffered while catering to American G.I.s.`\
+https://nytimes.com/2025/09/08/world/asia/korea-comfort-women-us-military.html
+
 **Trump Administration Live Updates: Chicago Cancels Mexican Festivities Ahead of Possible Immigration Raids**\
 ``\
 https://nytimes.com/live/2025/09/08/us/trump-news
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/6609720/2025/09/08/rams-texans-week-1-injuries-low-
 **Shooters Attack Bus Passengers in Jerusalem**\
 `At least six people died in a shooting attack on the northern outskirts of Jerusalem. Two gunmen boarded a public bus and shot at passengers, the police said.`\
 https://nytimes.com/video/world/middleeast/100000010384526/jerusalem-bus-shooting.html
-
-**Thiago to return to Flick's Barcelona coaching staff**\
-`The former Spain international, 34, spent a short period with the club last summer shortly after ending his playing career.`\
-https://nytimes.com/athletic/5997969/2025/09/08/barcelona-thiago-coach-hansi-flick/
 

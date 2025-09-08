@@ -1,3 +1,11 @@
+**Unrivaled women's pro basketball league valued at $340 million after new funding**\
+`The upstart women's pro basketball league prepares for its second season with the added momentum of additional investment.`\
+https://nytimes.com/athletic/6609307/2025/09/08/unrivaled-womens-basketball-valuation-paige-bueckers/
+
+**Ken Griffin Speaks Out Against Trump’s Attacks on the Fed**\
+`The criticism from the hedge fund billionaire and Trump voter is a rare rebuke of the president by a corporate leader.`\
+https://nytimes.com/2025/09/08/business/dealbook/griffin-trump-fed.html
+
 **In a First, Korean Women Target U.S. Military in Suit Over Prostitution**\
 `Dozens of women who worked in the sex trade in South Korea are seeking an apology and compensation for the rights abuses they suffered while catering to American G.I.s.`\
 https://nytimes.com/2025/09/08/world/asia/korea-comfort-women-us-military.html
@@ -30,12 +38,4 @@ https://nytimes.com/athletic/6595769/2025/09/08/blues-prospects-future-lineup-pr
 **Q&A: Blackhawks' Jeff Blashill on Bedard's growth, building a culture**\
 `Blashill has been busy acquainting himself with Chicago and his team since being hired three months ago. What has he learned?`\
 https://nytimes.com/athletic/6600271/2025/09/08/blackhawks-coach-jeff-blashill-connor-bedard/
-
-**Filled with blood and pain, Rams win over Texans wasn't a typical Week 1 slugfest**\
-`The Rams' Week 1 win over the Texans was brutal and nasty, but beauty is in the eye of the beholder. `\
-https://nytimes.com/athletic/6609720/2025/09/08/rams-texans-week-1-injuries-low-scoring/
-
-**Shooters Attack Bus Passengers in Jerusalem**\
-`At least six people died in a shooting attack on the northern outskirts of Jerusalem. Two gunmen boarded a public bus and shot at passengers, the police said.`\
-https://nytimes.com/video/world/middleeast/100000010384526/jerusalem-bus-shooting.html
 
