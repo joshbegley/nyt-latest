@@ -1,3 +1,31 @@
+**How to watch Nationals at Marlins: Time, TV, streaming for September 8**\
+`Find out how to watch the Washington Nationals play the Miami Marlins, with time, TV channel, and streaming information.`\
+https://nytimes.com/athletic/6609253/2025/09/07/nationals-vs-marlins-stream-how-to-watch-sept-8/
+
+**How to watch Brewers at Rangers: Time, TV, streaming for September 8**\
+`Find out how to watch the Milwaukee Brewers play the Texas Rangers, with time, TV channel, and streaming information.`\
+https://nytimes.com/athletic/6609251/2025/09/07/brewers-vs-rangers-stream-how-to-watch-sept-8/
+
+**How to watch Cubs at Braves: Time, TV, streaming for September 8**\
+`Find out how to watch the Chicago Cubs play the Atlanta Braves, with time, TV channel, and streaming information.`\
+https://nytimes.com/athletic/6609249/2025/09/07/cubs-vs-braves-stream-how-to-watch-sept-8/
+
+**How to watch Mets at Phillies: Time, TV, streaming for September 8**\
+`Find out how to watch the New York Mets play the Philadelphia Phillies, with time, TV channel, and streaming information.`\
+https://nytimes.com/athletic/6609245/2025/09/07/mets-vs-phillies-stream-how-to-watch-sept-8/
+
+**How to watch Royals at Guardians: Time, TV, streaming for September 8**\
+`Find out how to watch the Kansas City Royals play the Cleveland Guardians, with time, TV channel, and streaming information.`\
+https://nytimes.com/athletic/6609247/2025/09/07/royals-vs-guardians-stream-how-to-watch-sept-8/
+
+**Giants takeaways: Kai-Wei Teng intrigues, but Giants fall short in St. Louis**\
+`Teng might be closer than ever to establishing himself as a major league starter, but he's still a work in progress.`\
+https://nytimes.com/athletic/6609011/2025/09/07/kai-wei-teng-giants-takeaways/
+
+**Australian Woman Is Given Life Sentence in Mushroom Murder Case**\
+`Erin Patterson was found guilty of murdering three of her husband’s relatives and trying to kill a fourth by serving them deadly mushrooms.`\
+https://nytimes.com/2025/09/07/world/australia/australia-mushroom-murder-erin-patterson.html
+
 **Browns gave Bengals their best shot until a kicking disaster struck late**\
 `Despite turning it into its kind of game and dominating the second half, Cleveland let one slip away that it probably deserved to win. `\
 https://nytimes.com/athletic/6608981/2025/09/07/browns-loss-bengals-missed-opportunities/
@@ -9,32 +37,4 @@ https://nytimes.com/athletic/6609021/2025/09/07/falcons-buccaneers-michael-penix
 **Rams hold Texans to 9 points in physical Week 1 win: Key takeaways**\
 `When CJ Stroud had his starting offensive line intact, the Texans' offensive line gave up 12 pressures according to Next Gen Stats.`\
 https://nytimes.com/athletic/6608958/2025/09/07/texans-rams-score-result-takeaways-nfl-week-1/
-
-**Broncos defense shuts down Titans, spoils Cam Ward's debut: Key takeaways**\
-`After trailing 12-10 early in the second half, Denver scored 10 unanswered points to pull away with the late win.`\
-https://nytimes.com/athletic/6608836/2025/09/07/broncos-titans-score-result-takeaways-nfl-week-1/
-
-**Watch Out for That Tree**\
-`Plans that do not go as planned.`\
-https://nytimes.com/2025/09/07/podcasts/watch-out-for-that-tree.html
-
-**New season, new QB, same old ineptitude: Giants flop in Russell Wilson's uninspiring debut**\
-`Frustration already seems to be bubbling over for the Giants after a disappointing Week 1 loss to the Commanders. `\
-https://nytimes.com/athletic/6608976/2025/09/07/ny-giants-russell-wilson-brian-daboll/
-
-**John Burton, 92, Dies; California Political Boss Who Staged a Comeback**\
-`He left the House of Representatives while struggling with a crack addiction, his political career seemingly over. Actually, it had just begun.`\
-https://nytimes.com/2025/09/07/us/politics/john-burton-dead.html
-
-**Commanders' D is a menace while smothering Giants: 'We took last year personal'**\
-`Washington’s maligned defense was much more than a safety net in a season-opening win over the Giants. It was a force.`\
-https://nytimes.com/athletic/6608996/2025/09/07/washington-commanders-defense-giants-win/
-
-**Your Zodiac Sign Is 2,000 Years Out of Date**\
-`Over millennia, our view of the stars has shifted, because of Earth’s wobble. It may be time to rethink your sign.`\
-https://nytimes.com/interactive/2025/upshot/zodiac-signs.html
-
-**No Corrections: Sept. 08, 2025**\
-`No corrections appeared in print on Monday, Sept. 08, 2025.`\
-https://nytimes.com/2025/09/07/pageoneplus/no-corrections-sept-08-2025.html
 

@@ -1,3 +1,11 @@
+**Browns gave Bengals their best shot until a kicking disaster struck late**\
+`Despite turning it into its kind of game and dominating the second half, Cleveland let one slip away that it probably deserved to win. `\
+https://nytimes.com/athletic/6608981/2025/09/07/browns-loss-bengals-missed-opportunities/
+
+**Broncos defense shuts down Titans, spoils Cam Ward's debut: Key takeaways**\
+`After trailing 12-10 early in the second half, Denver scored 10 unanswered points to pull away with the late win.`\
+https://nytimes.com/athletic/6608836/2025/09/07/broncos-titans-score-result-takeaways-nfl-week-1/
+
 **Michael Penix Jr. was 'lights out,' but little else worked as Falcons drop opener**\
 `The Falcons fell to 0-1 with a 23-20 loss to the division-rival Buccaneers, but they emerged confident they have the right quarterback.`\
 https://nytimes.com/athletic/6609021/2025/09/07/falcons-buccaneers-michael-penix-nfl-season-opener/
