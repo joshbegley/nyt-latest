@@ -1,3 +1,11 @@
+**Scoop City: Risers and fallers after Week 1**\
+`How teams are trending after the Patriots, Dolphins and Panthers underwhelmed, while the Bills and Packers impressed`\
+https://nytimes.com/athletic/6610918/2025/09/08/nfl-risers-fallers-trending-week-1-packers-bills/
+
+**Do You See the Same Colors That I Do?**\
+`Scientists cannot say for certain, but new research suggests that different people’s brains respond similarly when looking at a particular hue.`\
+https://nytimes.com/2025/09/08/science/colors-brain-perception-vision.html
+
 **The All-Consuming Question Hanging Over Prince Harry’s U.K. Visit**\
 `Harry, who has not seen his father, King Charles, for more than a year, arrived in Britain for a four-day visit on Monday.`\
 https://nytimes.com/2025/09/08/world/europe/prince-harry-uk-visit.html

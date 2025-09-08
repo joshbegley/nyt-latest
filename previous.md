@@ -1,3 +1,7 @@
+**Scoop City: Risers and fallers after Week 1**\
+`How teams are trending after the Patriots, Dolphins and Panthers underwhelmed, while the Bills and Packers impressed`\
+https://nytimes.com/athletic/6610918/2025/09/08/nfl-risers-fallers-trending-week-1-packers-bills/
+
 **The All-Consuming Question Hanging Over Prince Harry’s U.K. Visit**\
 `Harry, who has not seen his father, King Charles, for more than a year, arrived in Britain for a four-day visit on Monday.`\
 https://nytimes.com/2025/09/08/world/europe/prince-harry-uk-visit.html
@@ -20,7 +24,7 @@ https://nytimes.com/2025/09/08/world/americas/trump-migrants-remittances.html
 
 **Do You See the Same Colors That I Do?**\
 `Scientists cannot say for certain, but new research suggests that different people’s brains respond similarly when looking at a particular hue.`\
-https://nytimes.com/2025/09/08/science/do-you-see-the-same-colors-that-i-do.html
+https://nytimes.com/2025/09/08/science/colors-brain-perception-vision.html
 
 **49ers, WR Kendrick Bourne reunite with 1-year deal: Sources**\
 `Bourne spent four seasons with the 49ers after joining them as an undrafted free agent in 2017.`\
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/08/dining/restaurant-review-atelier-crenn-san-franci
 **Trump Administration Says It Has Begun Immigration Crackdown in Chicago**\
 `In Chicago, advocates for immigrants said they saw several arrests on Sunday, but were uncertain of the scale of federal action.`\
 https://nytimes.com/2025/09/08/us/chicago-immigration-crackdown-trump-administration.html
-
-**Supertramp Singer, Rick Davies, Dies at 81**\
-`Rick Davies, the lead singer and co-founder of the British band Supertramp, died on Saturday after a long battle with blood cancer.`\
-https://nytimes.com/video/obituaries/100000010384936/supertramp-singer-rick-davies-obit.html
 
