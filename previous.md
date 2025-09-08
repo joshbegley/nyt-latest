@@ -1,3 +1,11 @@
+**Democrats Demand to Know More About Security Clearance Revocations**\
+`Members of the House Intelligence Committee want more information about the decision to strip the clearances from 37 current and former officials.`\
+https://nytimes.com/2025/09/08/us/politics/security-clearances-trump-gabbard-democrats.html
+
+**Tottenham has 'firm financial backing' from co-owners, says CEO Venkatesham**\
+`The north London club's CEO clarified the future of the side after the departure of former chairman Daniel Levy last Thursday`\
+https://nytimes.com/athletic/6610892/2025/09/08/tottenham-hotspur-vinai-venkatesham-lewis-family-co-owners/
+
 **Deportation Fears Are Fueling Money Transfers to Latin America**\
 `Money transfers to Guatemala, Honduras and other nations have increased in recent months, totaling billions of dollars. Undocumented migrants in the United States say they are sending money to relatives while they can.`\
 https://nytimes.com/2025/09/08/world/americas/trump-migrants-remittances.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/09/08/opinion/defense-war-department.html
 **Jacques Charrier, Movie Star Who Wed Brigitte Bardot, Dies at 88**\
 `Their marriage made news in France, but they were an unhappy couple, and it didn’t last. Years later, they attacked each other in dueling memoirs.`\
 https://nytimes.com/2025/09/08/movies/jacques-charrier-dead.html
-
-**Witness to Michael Brown’s Shooting in Ferguson Dies of Gunshot Injuries**\
-`Dorian Johnson died from gunfire 11 years after Mr. Brown’s death in a confrontation with a police officer that led to nationwide protests.`\
-https://nytimes.com/2025/09/08/us/dorian-johnson-ferguson-michael-brown.html
-
-**Whistle-Blower Sues Meta Over Claims of WhatsApp Security Flaws**\
-`In a lawsuit filed Monday, the former head of security for the messaging app accused the social media company of putting billions of users at risk.`\
-https://nytimes.com/2025/09/08/technology/whatsapp-whistleblower-lawsuit.html
 

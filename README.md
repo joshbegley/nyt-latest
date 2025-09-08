@@ -1,8 +1,12 @@
+**Christoph von Dohnanyi, Conductor With a World of Admirers, Dies at 95**\
+`Known for his long tenure at the podium of the acclaimed Cleveland Orchestra, he was sought after as a guest with major symphonies and opera companies.`\
+https://nytimes.com/2025/09/08/arts/music/christoph-von-dohnanyi-dead.html
+
 **Democrats Demand to Know More About Security Clearance Revocations**\
 `Members of the House Intelligence Committee want more information about the decision to strip the clearances from 37 current and former officials.`\
 https://nytimes.com/2025/09/08/us/politics/security-clearances-trump-gabbard-democrats.html
 
-**Tottenham has 'firm financial backing' from co-owners, says CEO Venkatesham**\
+**Tottenham has 'firm backing' from co-owners, says CEO Venkatesham**\
 `The north London club's CEO clarified the future of the side after the departure of former chairman Daniel Levy last Thursday`\
 https://nytimes.com/athletic/6610892/2025/09/08/tottenham-hotspur-vinai-venkatesham-lewis-family-co-owners/
 
@@ -33,8 +37,4 @@ https://nytimes.com/video/obituaries/100000010384936/supertramp-singer-rick-davi
 **Defense or War Department: What’s in a Name?**\
 `Readers discuss the name change at the Pentagon. Also: Fearful sports fans in D.C.; gay Republicans in Washington.`\
 https://nytimes.com/2025/09/08/opinion/defense-war-department.html
-
-**Jacques Charrier, Movie Star Who Wed Brigitte Bardot, Dies at 88**\
-`Their marriage made news in France, but they were an unhappy couple, and it didn’t last. Years later, they attacked each other in dueling memoirs.`\
-https://nytimes.com/2025/09/08/movies/jacques-charrier-dead.html
 

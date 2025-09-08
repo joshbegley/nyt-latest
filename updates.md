@@ -1,3 +1,11 @@
+**Democrats Demand to Know More About Security Clearance Revocations**\
+`Members of the House Intelligence Committee want more information about the decision to strip the clearances from 37 current and former officials.`\
+https://nytimes.com/2025/09/08/us/politics/security-clearances-trump-gabbard-democrats.html
+
+**Tottenham has 'firm financial backing' from co-owners, says CEO Venkatesham**\
+`The north London club's CEO clarified the future of the side after the departure of former chairman Daniel Levy last Thursday`\
+https://nytimes.com/athletic/6610892/2025/09/08/tottenham-hotspur-vinai-venkatesham-lewis-family-co-owners/
+
 **Deportation Fears Are Fueling Money Transfers to Latin America**\
 `Money transfers to Guatemala, Honduras and other nations have increased in recent months, totaling billions of dollars. Undocumented migrants in the United States say they are sending money to relatives while they can.`\
 https://nytimes.com/2025/09/08/world/americas/trump-migrants-remittances.html
