@@ -1,3 +1,7 @@
+**China’s Exports to Africa Are Soaring as Trade to U.S. Plunges**\
+`Already this year, China’s trade surplus with Africa is nearly as big as all of 2024, a sign of how President Trump’s tariffs are reshaping the flow of goods.`\
+https://nytimes.com/2025/09/08/business/china-exports-africa.html
+
 **Man City and Premier League reach settlement over APT rules legal dispute**\
 `City and the Premier League confirmed both parties had agreed to terminate proceedings.`\
 https://nytimes.com/athletic/6610620/2025/09/08/man-city-premier-league-sponsor-rules-settlement/
@@ -33,8 +37,4 @@ https://nytimes.com/video/world/asia/100000010384599/nepalese-protesters-briefly
 **Hopeful Hint of an Earthlike Atmosphere on a Distant Planet**\
 `Scientists are steadily ruling out habitable conditions on the seven planets of the star Trappist-1. On one of the worlds, a nitrogen gas-rich veil remains a possibility.`\
 https://nytimes.com/2025/09/08/science/trappist-1e-star-planet-nitrogen.html
-
-**A Tech Reporter’s Side Gig: Music Writing**\
-`Every so often, Mike Isaac swerves from his Silicon Valley beat to write about bands.`\
-https://nytimes.com/2025/09/08/technology/mike-isaac-music-writing.html
 
