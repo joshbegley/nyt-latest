@@ -1,3 +1,7 @@
+**Deschamps defends handling of Dembele, Doue injuries after PSG criticism**\
+`PSG accused France of not taking medical information into account and described the injuries as "serious and avoidable".`\
+https://nytimes.com/athletic/6610352/2025/09/08/psg-france-dembele-doue-deschamps-injury/
+
 **Leverkusen appoint Hjulmand as head coach after Ten Hag exit**\
 `Hjulmand, 52, has been out of football since leaving his position as Denmark head coach after Euro 2024.`\
 https://nytimes.com/athletic/6600942/2025/09/08/leverkusen-manager-hjulmand-ten-hag/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6609135/2025/09/08/fantasy-football-bengals-advice-
 **Unrivaled women's pro basketball league valued at $340 million after new funding**\
 `The upstart women's pro basketball league prepares for its second season with the added momentum of additional investment.`\
 https://nytimes.com/athletic/6609307/2025/09/08/unrivaled-womens-basketball-valuation-paige-bueckers/
-
-**Ken Griffin Speaks Out Against Trump’s Attacks on the Fed**\
-`The criticism from the hedge fund billionaire and Trump voter is a rare rebuke of the president by a corporate leader.`\
-https://nytimes.com/2025/09/08/business/dealbook/griffin-trump-fed.html
 
