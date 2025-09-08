@@ -1,3 +1,7 @@
+**10 Killed and 61 Injured in Mexico After Train Crashes Into Bus**\
+`Accidents involving vehicles and trains have been increasing as the Mexican government has pushed to revitalize railroads and build new passenger lines.`\
+https://nytimes.com/2025/09/08/world/americas/mexico-train-crash.html
+
 **Weekly Student News Quiz: Summer Movies, Earthquake, Google**\
 `Have you been paying attention to current events recently? See how many of these 10 questions you can get right.`\
 https://nytimes.com/interactive/2025/09/08/learning/08Student-News-Quiz.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/08/us/politics/trump-domestic-violence-crime-statist
 **Read the Ruling on the Judgment Against Trump in the E. Jean Carroll Case**\
 `A federal appeals court on Monday upheld an $83.3 million jury award against President Trump for defaming the writer E. Jean Carroll in 2019, after she accused him of a decades-old rape in a Manhattan department store — an attack for which he was separately found liable for sexual abuse.`\
 https://nytimes.com/interactive/2025/09/08/nyregion/08carroll-appeal-doc.html
-
-**Phillies put Trea Turner, Alec Bohm on IL, expect both to avoid lengthy absences**\
-`"Actually," Thomson said of Turner's Grade 1 strained right hamstring, "it was better than what we expected."`\
-https://nytimes.com/athletic/6610664/2025/09/08/trea-turner-hamstring-philies-injured-list/
 
