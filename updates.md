@@ -1,3 +1,11 @@
+**Athletic Club’s Yeray handed 10-month ban after positive doping test**\
+`The centre-back tested positive for the banned substance canrenone following Athletic's first leg Europa League semi-final defeat in May.`\
+https://nytimes.com/athletic/6610100/2025/09/08/athletic-club-yeray-alvarez-doping-ban/
+
+**Seven thoughts about the Phillies, who hold a 7-game lead as the Mets arrive**\
+`Constructing the lineup without Trea Turner, who injured his right hamstring, won't be an easy task for manager Rob Thomson. `\
+https://nytimes.com/athletic/6609449/2025/09/08/phillies-mets-trea-turner-injury-kyle-schwarber/
+
 **Tom Brady's season debut 'comfortable,' NBC's Sunday night finish thrills: Deitsch**\
 `The Athletic's media reporter Richard Deitsch offers his observations of the TV experience from the opening weekend of the NFL season.`\
 https://nytimes.com/athletic/6581349/2025/09/08/tom-brady-nfl-tv-fox-week-1/

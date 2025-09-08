@@ -1,3 +1,7 @@
+**Liverpool will miss Elliott but his Anfield story may not be finished yet**\
+`Nobody at Anfield wanted Elliott to leave but his move to Aston Villa could be in everyone's interests`\
+https://nytimes.com/athletic/6598170/2025/09/08/harvey-elliott-liverpool-aston-villa/
+
 **Athletic Club’s Yeray handed 10-month ban after positive doping test**\
 `The centre-back tested positive for the banned substance canrenone following Athletic's first leg Europa League semi-final defeat in May.`\
 https://nytimes.com/athletic/6610100/2025/09/08/athletic-club-yeray-alvarez-doping-ban/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6602978/2025/09/08/jj-mccarthy-vikings-bears-debut-
 **The Commanders made plenty of mistakes vs. Giants, but quality carried the day**\
 `Washington's depth saved it from a close shave Sunday, even when the Commanders were nowhere near their best.`\
 https://nytimes.com/athletic/6608613/2025/09/08/washington-commanders-mistakes-giants/
-
-**Are the Ravens the new Bills? Historic collapse extends a worrisome trend**\
-`The Ravens continue to find confounding ways to blow two-possession leads in the fourth quarter.`\
-https://nytimes.com/athletic/6609987/2025/09/08/ravens-bills-comeback-week-1-snf/
 
