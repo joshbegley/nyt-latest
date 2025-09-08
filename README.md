@@ -1,3 +1,15 @@
+**Brighton are well stocked at right-back, but do they have their long-term solution?**\
+`Fabian Hurzeler has five options at the position even after Tariq Lamptey's departure this summer, but only one is a specialist there`\
+https://nytimes.com/athletic/6561886/2025/09/08/brighton-right-backs-veltman-wieffer/
+
+**Real Madrid's Franco chants at the Bernabeu have sparked debate in Spain**\
+`A minority of fans at the Spanish club's home ground have sung the chants since Franco Mastantuono's signing this summer`\
+https://nytimes.com/athletic/6594314/2025/09/08/real-madrid-franco-chants-bernabeu-debate/
+
+**Igor Jesus interview: 'I know the quality I possess and what I’m capable of - I can reach another level'**\
+`Forest's latest Brazilian signing has had a stellar year, and hopes there's yet more to come in the East Midlands`\
+https://nytimes.com/athletic/6581626/2025/09/08/igor-jesus-brazil-nottingham-forest/
+
 **Crysencio Summerville stayed loyal to West Ham. Now he's ready to change games**\
 `Against Forest, Summerville added pace, creativity, energy and markedly improved the team's performance`\
 https://nytimes.com/athletic/6600877/2025/09/08/crysencio-summerville-west-ham-loyal/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6595104/2025/09/08/premier-league-player-plotlines-
 **Connections: Sports Edition Coach: Hints for Sept. 8, 2025**\
 `Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
 https://nytimes.com/athletic/6609748/2025/09/08/connections-sports-edition-hints-for-sept-8-2025/
-
-**Why are Jamaica's Olympic medalists switching to represent Turkey?**\
-`Three of Jamaica's most successful field athletes won't be competing at the world athletics championships after switching allegiance`\
-https://nytimes.com/athletic/6594625/2025/09/08/jamaica-turkey-athlete-switch/
-
-**What to Know About the Japanese Prime Minister’s Resignation**\
-`Japan, one of the world’s most stable democracies, is experiencing unusually rapid change. Shigeru Ishiba’s departure could herald a leadership crisis.`\
-https://nytimes.com/2025/09/08/world/asia/japan-prime-minister-shigeru-ishiba-resigns.html
-
-**Quote of the Day: As Congress Lies Down, Trump Walks All Over It.**\
-`Quotation of the Day for Monday, September 8, 2024.`\
-https://nytimes.com/2025/09/08/pageoneplus/quote-of-the-day-as-congress-lies-down-trump-walks-all-over-it.html
 
