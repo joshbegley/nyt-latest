@@ -1,9 +1,17 @@
+**Same ol' Panthers: A poor performance by Bryce Young and run D, another Week 1 loss**\
+`Young had three turnovers — two interceptions and a fumble — and the Jaguars ran for 200 yards while averaging 6.3 yards per carry.`\
+https://nytimes.com/athletic/6609259/2025/09/07/panthers-bryce-young-week-1-loss/
+
+**Colts, Daniel Jones upend expectations in drubbing of Dolphins, inject hope into new season**\
+`The late Jim Irsay told GM Chris Ballard to "fix it," referring to Indy's recent struggles. For one week, at least, it looks like he did.`\
+https://nytimes.com/athletic/6608779/2025/09/07/colts-daniel-jones-dolphins-jim-irsay/
+
 **West Point Alumni Group Cancels Award Honoring Tom Hanks**\
 `The group was to bestow the Sylvanus Thayer Award on the actor, but it said it was canceling the event to focus on preparing academy cadets for the future.`\
 https://nytimes.com/2025/09/07/us/politics/tom-hanks-west-point-award.html
 
 **Aaron Rodgers wasn't supposed to carry the Steelers — in his debut, he did just that**\
-`The 41-year-old QB lifted the Steelers on a day when their defense and run game did not.`\
+`The 41-year-old QB was the catalyst in a win over the Jets, his former team, on a day when their defense and run game struggled.`\
 https://nytimes.com/athletic/6609014/2025/09/07/aaron-rodgers-steelers-debut-performance/
 
 **Cardinals takeaways: St. Louis climbs back to .500 after strong series win over Giants**\
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6609253/2025/09/07/nationals-vs-marlins-stream-how-
 **How to watch Brewers at Rangers: Time, TV, streaming for September 8**\
 `Find out how to watch the Milwaukee Brewers play the Texas Rangers, with time, TV channel, and streaming information.`\
 https://nytimes.com/athletic/6609251/2025/09/07/brewers-vs-rangers-stream-how-to-watch-sept-8/
-
-**How to watch Cubs at Braves: Time, TV, streaming for September 8**\
-`Find out how to watch the Chicago Cubs play the Atlanta Braves, with time, TV channel, and streaming information.`\
-https://nytimes.com/athletic/6609249/2025/09/07/cubs-vs-braves-stream-how-to-watch-sept-8/
-
-**How to watch Mets at Phillies: Time, TV, streaming for September 8**\
-`Find out how to watch the New York Mets play the Philadelphia Phillies, with time, TV channel, and streaming information.`\
-https://nytimes.com/athletic/6609245/2025/09/07/mets-vs-phillies-stream-how-to-watch-sept-8/
 
