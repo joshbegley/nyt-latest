@@ -1,3 +1,7 @@
+**Nepalese Protesters Briefly Storm Parliament Over Social Media Ban**\
+`Protesters, mostly teenagers and young adults, surged toward the Parliament complex in Nepal’s capital and occupied a security building before being dispersed by the police using rubber bullets and water cannons. The protests come days after the government banned most social media platforms.`\
+https://nytimes.com/video/world/asia/100000010384599/nepalese-protesters-briefly-storm-parliament-over-social-media-ban.html
+
 **Hopeful Hint of an Earthlike Atmosphere on a Distant Planet**\
 `Scientists are steadily ruling out habitable conditions on the seven planets of the star Trappist-1. On one of the worlds, a nitrogen gas-rich veil remains a possibility.`\
 https://nytimes.com/2025/09/08/science/trappist-1e-star-planet-nitrogen.html
