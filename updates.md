@@ -1,3 +1,7 @@
+**Inside Newcastle Q&A: Chris Waugh answers your questions**\
+`The chaotic summer transfer window is over and we can all concentrate on the football for a few months. So what would you like to know?`\
+https://nytimes.com/athletic/6610028/2025/09/08/inside-newcastle-qa-end-of-transfer-window/
+
 **The transfer window was fun, but WSL return showed the 'magic' in doing your homework early**\
 `Deadline day detritus was evident all over the WSL last weekend – whereas teams who did their business early thrived `\
 https://nytimes.com/athletic/6609978/2025/09/08/wsl-transfer-chelsea-arsenal-magic/
