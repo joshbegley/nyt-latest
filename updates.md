@@ -1,3 +1,7 @@
+**Brock Purdy injured, uncertain for Week 2; George Kittle out 'a few weeks'**\
+`Purdy has toe and shoulder injuries, putting his status to face the Saints this week in doubt.`\
+https://nytimes.com/athletic/6611526/2025/09/08/brock-purdy-injury-miss-time-49ers/
+
 **Britain’s National Gallery Expands Collection to 20th-Century Works**\
 `The museum, renowned for its collection of paintings from the Middle Ages to the 19th century, has announced a plan to collect more recent paintings.`\
 https://nytimes.com/2025/09/08/arts/design/national-gallery-20th-century.html

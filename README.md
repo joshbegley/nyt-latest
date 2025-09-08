@@ -32,8 +32,8 @@ https://nytimes.com/athletic/6370442/2025/09/08/nuno-nottingham-forest-head-coac
 `ICE was hiring officers in Texas, part of a huge ramp-up to its work force. The Times was there.`\
 https://nytimes.com/2025/09/08/us/politics/ice-job-fair-texas.html
 
-**Mayor Adams’s Order Allowing ICE Into Rikers Is Illegal, Judge Rules**\
-`Justice Mary V. Rosado said the plan to let immigration agents into the jail presented the appearance of a conflict of interest because the mayor had received special treatment from the Trump administration.`\
+**Adams Administration Move to Let ICE Into Rikers Is Illegal, Judge Rules**\
+`Justice Mary V. Rosado said the order, issued after the mayor’s corruption charges were dropped by the Trump administration, presented the appearance of a conflict of interest.`\
 https://nytimes.com/2025/09/08/nyregion/judge-adams-ice-rikers.html
 
 **Man Killed Retired Auburn Professor at Alabama Dog Park, Police Say**\
