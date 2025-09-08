@@ -1,3 +1,15 @@
+**Man City and Premier League reach settlement over APT rules legal dispute**\
+`City and the Premier League confirmed both parties had agreed to terminate proceedings.`\
+https://nytimes.com/athletic/6610620/2025/09/08/man-city-premier-league-sponsor-rules-settlement/
+
+**NFL Week 2 odds: The Ravens are favored by how much?!**\
+`Odds are up for every Week 2 game, with several tight matchups and one 12.5-point spread.`\
+https://nytimes.com/athletic/6610568/2025/09/08/nfl-week-2-odds-spreads-betting-eagles-chiefs/
+
+**London’s Commuters Wrestle With a Massive Tube Strike: ‘It’s Just Annoying’**\
+`Some people were able to work from home. Others crammed onto buses or spent hours trying to reach their destinations.`\
+https://nytimes.com/2025/09/08/world/europe/london-tube-strike-voices.html
+
 **It’s the perfect time to get back into the cooking groove**\
 `Return to routine with a lemon-forward chickpea and parsley pasta.`\
 https://nytimes.com/2025/09/08/dining/its-the-perfect-time-to-get-back-into-the-cooking-groove.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/09/08/science/trappist-1e-star-planet-nitrogen.html
 **A Tech Reporter’s Side Gig: Music Writing**\
 `Every so often, Mike Isaac swerves from his Silicon Valley beat to write about bands.`\
 https://nytimes.com/2025/09/08/technology/mike-isaac-music-writing.html
-
-**Trump Administration, Again, Asks Supreme Court to Let It Block Foreign Aid**\
-`The court has been largely receptive to the administration’s claims of executive power.`\
-https://nytimes.com/2025/09/08/us/politics/trump-supreme-court-foreign-aid.html
-
-**The Windup: MLB’s playoff picture with 3 weeks to go**\
-`Welcome to The Windup, The Athletic's MLB newsletter.`\
-https://nytimes.com/athletic/6609919/2025/09/08/mlb-playoff-picture-3-weeks-the-windup/
-
-**New Banksy Work Seen as Comment on U.K. Crackdown on Palestine Action**\
-`The mural that appeared outside the Royal Courts of Justice in London on Monday depicted a judge attacking a demonstrator with a gavel.`\
-https://nytimes.com/2025/09/08/world/europe/new-banksy-rcj-palestine-action-uk-protests.html
 
