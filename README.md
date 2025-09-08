@@ -1,3 +1,15 @@
+**Bears reinforce Arlington Heights stadium goal in letter to season ticket holders**\
+`President and CEO Kevin Warren said the team plans to bid to host a Super Bowl in a suburban domed stadium as early as 2031.`\
+https://nytimes.com/athletic/6611451/2025/09/08/chicago-bears-stadium-plans-arlington-heights-kevin-warren/
+
+**Supreme Court Lifted Limits on L.A. Immigration Stops**\
+`Also, the Murdoch succession fight is over. Here’s the latest at the end of Monday.`\
+https://nytimes.com/2025/09/08/briefing/supreme-court-immigration-stops-murdoch-succession.html
+
+**Isak makes first appearance since May in Sweden's World Cup qualifying defeat**\
+`The Sweden international completed a Premier League-record transfer to Liverpool on September 1 `\
+https://nytimes.com/athletic/6611484/2025/09/08/alexander-isak-sweden-world-cup-qualifiers/
+
 **Workers Detained in Georgia Raid Will Return to South Korea**\
 `South Korea negotiated the release of hundreds of Korean nationals who were detained during a raid on a Hyundai-LG electric vehicle battery plant in Georgia.`\
 https://nytimes.com/video/us/politics/100000010385281/detained-south-korean-workers-going-home.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/09/08/world/americas/mexico-train-crash.html
 **Weekly Student News Quiz: Summer Movies, Earthquake, Google**\
 `Have you been paying attention to current events recently? See how many of these 10 questions you can get right.`\
 https://nytimes.com/interactive/2025/09/08/learning/08Student-News-Quiz.html
-
-**CBS Taps Conservative Policy Veteran for New Ombudsman Role**\
-`Kenneth R. Weinstein, who will review complaints about CBS News, was head of the right-leaning Hudson Institute, a think tank, and has no experience overseeing news coverage.`\
-https://nytimes.com/2025/09/08/business/media/cbs-news-ombudsman-kenneth-weinstein.html
-
-**Pochettino ramps up defiance as USMNT eyes a rebound showing vs. Japan**\
-`The USMNT manager struck a clear tone on the eve of another pre-World Cup test, amid a run of tough performances vs. top opponents`\
-https://nytimes.com/athletic/6611094/2025/09/08/mauricio-pochettino-usmnt-japan-friendly-defiance/
-
-**Amy Coney Barrett’s Memoir Is as Careful and Disciplined as Its Author**\
-`In a studiously bland new book, “Listening to the Law,” the Supreme Court justice describes her legal philosophy and tries to sidestep the court’s recent controversies.`\
-https://nytimes.com/2025/09/08/books/review/listening-to-the-law-amy-coney-barrett.html
 
