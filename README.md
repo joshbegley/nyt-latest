@@ -1,3 +1,7 @@
+**Nuno Espirito Santo set to leave Nottingham Forest**\
+`Nuno had said he was "not so close" anymore to Forest owner Marinakis on August 22`\
+https://nytimes.com/athletic/6370442/2025/09/08/nuno-nottingham-forest-head-coach-leaving/
+
 **Meet the New ICE Recruits**\
 `ICE was hiring officers in Texas, part of a huge ramp-up to its work force. The Times was there.`\
 https://nytimes.com/2025/09/08/us/politics/ice-job-fair-texas.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/us/politics/100000010385281/detained-south-korean-work
 **France’s Political Crisis**\
 `President Emmanuel Macron said he would appoint a new prime minister, the fifth in less than two years, after the government collapsed in a no-confidence vote.`\
 https://nytimes.com/2025/09/08/briefing/france-government-crisis-nepal-protest.html
-
-**Getting a Visa to Visit the U.S. Could Take Even Longer**\
-`A new State Department rule requires would-be travelers to be interviewed in their home countries, where wait times can be more than a year.`\
-https://nytimes.com/2025/09/08/travel/tourist-non-immigrant-visa-application-interviews.html
 
