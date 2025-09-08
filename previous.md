@@ -1,3 +1,7 @@
+**Seahawks failures in key moments prove catastrophic vs. 49ers: ‘It sucks not finishing’**\
+`The 49ers were well-equipped in the waning moments. The Seahawks were not, with critical lapses on both offense and defense.`\
+https://nytimes.com/athletic/6609434/2025/09/07/seahawks-49ers-riq-woolen-sam-darnold/
+
 **The U.S. Open continued Alcaraz and Sinner's tennis domination. What now?**\
 `Alcaraz and Sinner have each said that they are focused more on beating each other than on solving the rest of the sport.`\
 https://nytimes.com/athletic/6608989/2025/09/07/us-open-alcaraz-sinner-tennis/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6609070/2025/09/07/new-york-jets-justin-fields-debu
 **Al Golden's Bengals defense sets a 'different' foundation in 17-16 win over Browns**\
 `On a day when Joe Burrow and the high-powered offense stalled, the defense stepped up to pull out a Week 1 division victory.`\
 https://nytimes.com/athletic/6609147/2025/09/07/bengals-defense-win-bronws-al-golden/
-
-**What we’re hearing about the Cubs: Pete Crow-Armstrong, Sammy Sosa, Jaxon Wiggins and more**\
-`Cubs are treating their All-Star center fielder with caution, and it’s becoming clear that his condition is not the club’s only issue.`\
-https://nytimes.com/athletic/6609068/2025/09/07/cubs-what-were-hearing-pete-armstrong/
 

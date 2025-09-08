@@ -1,3 +1,7 @@
+**Seahawks failures in key moments prove catastrophic vs. 49ers: ‘It sucks not finishing’**\
+`The 49ers were well-equipped in the waning moments. The Seahawks were not, with critical lapses on both offense and defense.`\
+https://nytimes.com/athletic/6609434/2025/09/07/seahawks-49ers-riq-woolen-sam-darnold/
+
 **The U.S. Open continued Alcaraz and Sinner's tennis domination. What now?**\
 `Alcaraz and Sinner have each said that they are focused more on beating each other than on solving the rest of the sport.`\
 https://nytimes.com/athletic/6608989/2025/09/07/us-open-alcaraz-sinner-tennis/
