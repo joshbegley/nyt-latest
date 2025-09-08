@@ -1,3 +1,11 @@
+**West Point Alumni Group Cancels Award Honoring Tom Hanks**\
+`The group was to bestow the Sylvanus Thayer Award on the actor, but it said it was canceling the event to focus on preparing academy cadets for the future.`\
+https://nytimes.com/2025/09/07/us/politics/tom-hanks-west-point-award.html
+
+**Aaron Rodgers wasn't supposed to carry the Steelers — in his debut, he did just that**\
+`The 41-year-old QB lifted the Steelers on a day when their defense and run game did not.`\
+https://nytimes.com/athletic/6609014/2025/09/07/aaron-rodgers-steelers-debut-performance/
+
 **Cardinals takeaways: St. Louis climbs back to .500 after strong series win over Giants**\
 `The Cardinals took two of three games from a Giants team that entered the series winners of 10 of their last 11 games`\
 https://nytimes.com/athletic/6607045/2025/09/07/cardinals-takeaways-st-louis-climbs-back-to-500-after-strong-series-win-over-giants/

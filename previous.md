@@ -1,3 +1,11 @@
+**West Point Alumni Group Cancels Award Honoring Tom Hanks**\
+`The group was to bestow the Sylvanus Thayer Award on the actor, but it said it was canceling the event to focus on preparing academy cadets for the future.`\
+https://nytimes.com/2025/09/07/us/politics/tom-hanks-west-point-award.html
+
+**Aaron Rodgers wasn't supposed to carry the Steelers — in his debut, he did just that**\
+`The 41-year-old QB lifted the Steelers on a day when their defense and run game did not.`\
+https://nytimes.com/athletic/6609014/2025/09/07/aaron-rodgers-steelers-debut-performance/
+
 **Cardinals takeaways: St. Louis climbs back to .500 after strong series win over Giants**\
 `The Cardinals took two of three games from a Giants team that entered the series winners of 10 of their last 11 games`\
 https://nytimes.com/athletic/6607045/2025/09/07/cardinals-takeaways-st-louis-climbs-back-to-500-after-strong-series-win-over-giants/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6609249/2025/09/07/cubs-vs-braves-stream-how-to-wat
 **How to watch Mets at Phillies: Time, TV, streaming for September 8**\
 `Find out how to watch the New York Mets play the Philadelphia Phillies, with time, TV channel, and streaming information.`\
 https://nytimes.com/athletic/6609245/2025/09/07/mets-vs-phillies-stream-how-to-watch-sept-8/
-
-**How to watch Royals at Guardians: Time, TV, streaming for September 8**\
-`Find out how to watch the Kansas City Royals play the Cleveland Guardians, with time, TV channel, and streaming information.`\
-https://nytimes.com/athletic/6609247/2025/09/07/royals-vs-guardians-stream-how-to-watch-sept-8/
-
-**Giants takeaways: Kai-Wei Teng intrigues, but Giants fall short in St. Louis**\
-`Teng might be closer than ever to establishing himself as a major league starter, but he's still a work in progress.`\
-https://nytimes.com/athletic/6609011/2025/09/07/kai-wei-teng-giants-takeaways/
 
