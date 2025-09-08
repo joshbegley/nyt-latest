@@ -1,40 +1,40 @@
-**Shooting in Jerusalem Leaves at Least 5 Dead**\
-`The Israeli police described the incident as a terrorist attack and said that the perpetrators had been “neutralized” at the scene.`\
-https://nytimes.com/2025/09/08/world/middleeast/jerusalem-shooting-israel.html
+**Ukraine Changed War Forever. Tanks Had to Catch Up.**\
+`Tanks have been a mainstay in battle since the early 20th century. Drones made them evolve.`\
+https://nytimes.com/interactive/2025/09/08/world/europe/ukraine-russia-war-drones-tanks-military.html
 
-**Tottenham say club 'not for sale' amid 'expressions of interest' from Staveley**\
-`Spurs released a statement late on Sunday night clarifying their position following days of speculation after the exit of Daniel Levy.`\
-https://nytimes.com/athletic/6609913/2025/09/08/tottenham-ownership-sale-amanda-staveley/
+**Will We Follow Trump to Fantasyland?**\
+`We’ve traveled far beyond political spin.`\
+https://nytimes.com/2025/09/08/opinion/trump-reality.html
 
-**New Zealand Police Kill Man Who Disappeared With His Children**\
-`Tom Phillips, who vanished with his three children in 2021, was killed after he shot a police officer on Monday, the authorities said. His children were found safe and unharmed.`\
-https://nytimes.com/2025/09/08/world/australia/new-zealand-fugitive-father-police.html
+**Raid on Georgia E.V. Battery Plant Raises New Risks for a Shaken Industry**\
+`Foreign manufacturers were already dealing with tariffs and the end of E.V. tax credits. Now, they face greater scrutiny of their workers’ immigration status.`\
+https://nytimes.com/2025/09/08/us/raid-on-georgia-ev-battery-plant-manufacturing-talent-problem.html
 
-**PAC Aims to Spend $3 Million to Pass New York Housing Measures**\
-`The measures could make it easier to build housing, but the City Council is trying to keep them off the November ballot.`\
-https://nytimes.com/2025/09/08/nyregion/nyc-housing-ballot-pac.html
+**13 Off Broadway Shows to See in September**\
+`Henrik Ibsen’s “The Wild Duck,” an early Celine Song play and John Leguizamo’s new family drama — here’s what’s on New York stages this month.`\
+https://nytimes.com/2025/09/08/theater/off-broadway-shows-september.html
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2025/09/08/crosswords/spelling-bee-forum.html
+**How’s Work? No, Really, What’s Bothering You at the Office?**\
+`Let your Work Friend at The Times help you navigate — or commiserate about — the challenges of life at work.`\
+https://nytimes.com/2025/09/08/business/work-advice-questions-work-friend.html
 
-**Word of the Day: ancillary**\
-`This word has appeared in 110 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2025/09/08/learning/word-of-the-day-ancillary.html
+**A.I. Could Make the Smartphone Passé. What Comes Next?**\
+`As Apple prepares to release new iPhones this week, industry veterans shared their predictions for what will be the next big thing in personal computing.`\
+https://nytimes.com/2025/09/08/technology/personaltech/ai-iphones-android-smartphones.html
 
-**MTV Video Music Awards: 6 Memorable Moments**\
-`Mariah Carey and Busta Rhymes were honored for the first time, Lady Gaga crossed town and Doja Cat took it back to the 1980s.`\
-https://nytimes.com/2025/09/08/arts/music/mtv-video-music-awards-moments.html
+**Is It Against the Law to Wear the U.S. Flag on Your Clothes?**\
+`In contravention of the flag code, people like Pete Hegseth frequently sport the stars and stripes on handkerchiefs, socks and more. Our critic breaks down this fashion statement.`\
+https://nytimes.com/2025/09/08/fashion/hegseth-us-flag-clothes.html
 
-**The New York Times in Print for Monday, Sep. 8, 2025**\
-``\
-https://nytimes.com/issue/todayspaper/2025/09/08/todays-new-york-times
+**Chicago’s Mayor: The National Guard Isn’t What We Need**\
+`My city is taking an innovative approach to crime prevention. It does not involve the military.`\
+https://nytimes.com/2025/09/08/opinion/trump-chicago-national-guard.html
 
-**‘The Girlfriend’ and 5 More Things to Watch on TV This Week**\
-`The thriller series premieres on Prime Video, and the 77th annual Emmy Awards air on Sunday.`\
-https://nytimes.com/2025/09/08/arts/television/the-girlfriend-and-5-more-things-to-watch-on-tv-this-week.html
+**Sotheby’s Strikes Alliance With Ascendant Art Fair**\
+`Sotheby’s will host Independent 20th Century at the Breuer building in Manhattan in 2026, positioning the company as “more than an auction house.”`\
+https://nytimes.com/2025/09/08/arts/design/sothebys-alliance-ascendant-art-fair.html
 
-**A New War Is Emerging in Colombia**\
-`Colombia’s return to conflict is a lesson in how hard it is to sustain progress toward peace.`\
-https://nytimes.com/2025/09/08/opinion/colombia-violence-drugs-petro.html
+**$875,000 Homes in California**\
+`A rustic cabin in Sycamore Canyon, a converted 1900s house in San Francisco’s Mission District and a private retreat in Sonoma County.`\
+https://nytimes.com/2025/09/08/realestate/875-thousand-dollar-homes-california.html
 
