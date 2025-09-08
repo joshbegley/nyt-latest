@@ -1,3 +1,7 @@
+**Shooting in Jerusalem Leaves at Least 5 Dead**\
+`The Israeli police described the incident as a terrorist attack and said that the perpetrators had been “neutralized” at the scene.`\
+https://nytimes.com/2025/09/08/world/middleeast/jerusalem-shooting-israel.html
+
 **Tottenham say club 'not for sale' amid 'expressions of interest' from Staveley**\
 `Spurs released a statement late on Sunday night clarifying their position following days of speculation after the exit of Daniel Levy.`\
 https://nytimes.com/athletic/6609913/2025/09/08/tottenham-ownership-sale-amanda-staveley/

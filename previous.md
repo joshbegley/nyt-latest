@@ -1,3 +1,7 @@
+**Shooting in Jerusalem Leaves at Least 5 Dead**\
+`The Israeli police described the incident as a terrorist attack and said that the perpetrators had been “neutralized” at the scene.`\
+https://nytimes.com/2025/09/08/world/middleeast/jerusalem-shooting-israel.html
+
 **Tottenham say club 'not for sale' amid 'expressions of interest' from Staveley**\
 `Spurs released a statement late on Sunday night clarifying their position following days of speculation after the exit of Daniel Levy.`\
 https://nytimes.com/athletic/6609913/2025/09/08/tottenham-ownership-sale-amanda-staveley/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/08/arts/television/the-girlfriend-and-5-more-things-
 **A New War Is Emerging in Colombia**\
 `Colombia’s return to conflict is a lesson in how hard it is to sustain progress toward peace.`\
 https://nytimes.com/2025/09/08/opinion/colombia-violence-drugs-petro.html
-
-**Bills eject fan who hit DeAndre Hopkins' helmet, had altercation with Lamar Jackson**\
-`The incident happened after Jackson's 29-yard touchdown pass to Hopkins near the end of the third quarter.`\
-https://nytimes.com/athletic/6609699/2025/09/08/bills-fan-lamar-jackson-deandre-hopkins/
 
