@@ -1,3 +1,15 @@
+**Page to Screen: Do You Know the Inspiration for These Adaptations?**\
+`Try this short quiz about cartoons and comic strips that found new life as moving pictures.`\
+https://nytimes.com/interactive/2025/09/08/books/review/cartoons-comics-quiz.html
+
+**Chiefs-Chargers Week 1 game in Brazil draws 16.2 million YouTube viewers**\
+`The game drew attention for its scheduling slot, location and the inclusion of creators as “alt-cast” broadcasters.`\
+https://nytimes.com/athletic/6610499/2025/09/08/chiefs-chargers-brazil-youtube-viewership-nfl/
+
+**Rangers add Blake Wheeler, Ryane Clowe to front office amid flurry of moves**\
+`The announcement marks the start of Wheeler's front office career. He retired in July after playing 1,172 career NHL games.`\
+https://nytimes.com/athletic/6610601/2025/09/08/rangers-front-office-moves-promotions/
+
 **Nepalese Protesters Briefly Storm Parliament Over Social Media Ban**\
 `Protesters, mostly teenagers and young adults, surged toward the Parliament complex in Nepal’s capital and occupied a security building before being dispersed by the police using rubber bullets and water cannons. The protests come days after the government banned most social media platforms.`\
 https://nytimes.com/video/world/asia/100000010384599/nepalese-protesters-briefly-storm-parliament-over-social-media-ban.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/09/08/world/europe/new-banksy-rcj-palestine-action-uk-p
 **Local Sheriffs Are Turning Their Jails Into ICE Detention Centers**\
 `Jails play a growing role in immigrant detention, housing thousands of people who have never been convicted of a crime.`\
 https://nytimes.com/interactive/2025/09/08/us/politics/ice-detention-county-jails-sheriffs-deportation.html
-
-**Appeals Court Upholds Carroll’s $83 Million Judgment Against Trump**\
-`The judges rejected President Trump’s argument that the Supreme Court’s decision extending presidential immunity should shield him from liability for defaming the writer E. Jean Carroll.`\
-https://nytimes.com/2025/09/08/nyregion/trump-e-jean-carroll-defamation.html
-
-**Juggling Congress and Life, She Opted to Freeze Her Eggs**\
-`Representative Sara Jacobs, Democrat of California, said her experience planning for a future pregnancy inspired her to write a bill to expand coverage of fertility treatments.`\
-https://nytimes.com/2025/09/08/us/politics/sara-jacobs-egg-freezing-pregnancy-bill.html
-
-**States Face Off Ferociously Over Abortion Shield Laws**\
-`A looming constitutional battle between Texas and New York is the leading edge of the escalating states’ rights fight over the prescribing and mailing of abortion pills to patients in states with bans.`\
-https://nytimes.com/2025/09/08/health/abortion-shield-laws.html
 
