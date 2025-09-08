@@ -1,3 +1,7 @@
+**New Banksy Work Seen as Comment on U.K. Crackdown on Palestine Action**\
+`The mural that appeared outside the Royal Courts of Justice in London on Monday depicted a judge attacking a demonstrator with a gavel.`\
+https://nytimes.com/2025/09/08/world/europe/new-banksy-rcj-palestine-action-uk-protests.html
+
 **Local Sheriffs Are Turning Their Jails Into ICE Detention Centers**\
 `Jails play a growing role in immigrant detention, housing thousands of people who have never been convicted of a crime.`\
 https://nytimes.com/interactive/2025/09/08/us/politics/ice-detention-county-jails-sheriffs-deportation.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6610481/2025/09/08/49ers-colton-mckivitz-extension/
 **A New, ‘Adorable’ Deep-Sea Fish Swims Into View**\
 `The bumpy snailfish, discovered 10,000 feet down off the coast of California, shows that not all denizens of the abyss are frightening.`\
 https://nytimes.com/2025/09/08/science/fish-ocean-deep-sea.html
-
-**Deschamps defends handling of Dembele, Doue injuries after PSG criticism**\
-`PSG accused France of not taking medical information into account and described the injuries as "serious and avoidable".`\
-https://nytimes.com/athletic/6610352/2025/09/08/psg-france-dembele-doue-deschamps-injury/
 

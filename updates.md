@@ -1,3 +1,11 @@
+**Local Sheriffs Are Turning Their Jails Into ICE Detention Centers**\
+`Jails play a growing role in immigrant detention, housing thousands of people who have never been convicted of a crime.`\
+https://nytimes.com/interactive/2025/09/08/us/politics/ice-detention-county-jails-sheriffs-deportation.html
+
+**Appeals Court Upholds Carroll’s $83 Million Judgment Against Trump**\
+`The judges rejected President Trump’s argument that the Supreme Court’s decision extending presidential immunity should shield him from liability for defaming the writer E. Jean Carroll.`\
+https://nytimes.com/2025/09/08/nyregion/trump-e-jean-carroll-defamation.html
+
 **Juggling Congress and Life, She Opted to Freeze Her Eggs**\
 `Representative Sara Jacobs, Democrat of California, said her experience planning for a future pregnancy inspired her to write a bill to expand coverage of fertility treatments.`\
 https://nytimes.com/2025/09/08/us/politics/sara-jacobs-egg-freezing-pregnancy-bill.html
