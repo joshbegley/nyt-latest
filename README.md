@@ -1,3 +1,7 @@
+**It’s the perfect time to get back into the cooking groove**\
+`Return to routine with a lemon-forward chickpea and parsley pasta.`\
+https://nytimes.com/2025/09/08/dining/its-the-perfect-time-to-get-back-into-the-cooking-groove.html
+
 **Page to Screen: Do You Know the Inspiration for These Adaptations?**\
 `Try this short quiz about cartoons and comic strips that found new life as moving pictures.`\
 https://nytimes.com/interactive/2025/09/08/books/review/cartoons-comics-quiz.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6609919/2025/09/08/mlb-playoff-picture-3-weeks-the-
 **New Banksy Work Seen as Comment on U.K. Crackdown on Palestine Action**\
 `The mural that appeared outside the Royal Courts of Justice in London on Monday depicted a judge attacking a demonstrator with a gavel.`\
 https://nytimes.com/2025/09/08/world/europe/new-banksy-rcj-palestine-action-uk-protests.html
-
-**Local Sheriffs Are Turning Their Jails Into ICE Detention Centers**\
-`Jails play a growing role in immigrant detention, housing thousands of people who have never been convicted of a crime.`\
-https://nytimes.com/interactive/2025/09/08/us/politics/ice-detention-county-jails-sheriffs-deportation.html
 
