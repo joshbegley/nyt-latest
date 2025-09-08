@@ -1,3 +1,15 @@
+**5 Highlights From a Model Maestro’s Recording Career**\
+`Christoph von Dohnanyi, who died on Saturday, was a conductor of clarity and poise, as evidenced especially in his output with the Cleveland Orchestra.`\
+https://nytimes.com/2025/09/08/arts/music/5-highlights-christoph-von-dohnanyi-recording-career.html
+
+**It's not déjà vu, it's Josh Allen. A look at MVP favorites after Week 1**\
+`Josh Allen reigns ... for now. Other risers and fallers in the MVP odds as Week 1 closes out. `\
+https://nytimes.com/athletic/6610693/2025/09/08/nfl-mvp-odds-josh-allen-jumps-lamar-jackson/
+
+**Arrested by Federal Agents, Some D.C. Residents Languished in Jail for Days**\
+`At least 11 defendants stayed in jail cells longer than the law allows, in what former prosecutors and criminal lawyers see as a violation of their constitutional rights.`\
+https://nytimes.com/2025/09/08/us/politics/dc-jail-arrests-pirro-trump.html
+
 **NASCAR Gateway takeaways: Toyota looks formidable, Denny Hamlin keeps winning**\
 `Toyota was tops again at Gateway, Denny Hamlin secured his spot in Round 2, and more from the second race of the NASCAR playoffs.`\
 https://nytimes.com/athletic/6610247/2025/09/08/nascar-gateway-takeaways-toyota-denny-hamlin/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/09/08/movies/hollywood-israel-boycott.html
 **Republican Senators Investigate Palisades Fire Response**\
 `Two senators have begun an investigation into whether government officials could have done more to stop the Los Angeles fire. President Trump and other Republicans have blamed Democratic leaders for the disaster.`\
 https://nytimes.com/2025/09/08/us/palisades-fire-investigation-los-angeles.html
-
-**The Political Signals Russia Sends With Each Huge Barrage on Ukraine**\
-`Analysts have linked major attacks to important geopolitical events as the Kremlin tries to strengthen its hand in talks.`\
-https://nytimes.com/2025/09/08/world/europe/russia-ukraine-war-attacks.html
-
-**Jack Draper out for rest of tennis season to manage left-arm injury after U.S. Open withdrawal**\
-`Draper won his first-round match at the last Grand Slam of the year, but pulled out before the second round.`\
-https://nytimes.com/athletic/6610844/2025/09/08/tennis-jack-draper-out-season-elbow-injury/
-
-**Sean Payton vows to lean into Broncos' new-look run game: 'I've got to be better there'**\
-`The 133 rushing yards by JK Dobbins and RJ Harvey in Sunday's win bested the position's output from all but one game in 2024.`\
-https://nytimes.com/athletic/6610666/2025/09/08/broncos-running-game-sean-payton/
 

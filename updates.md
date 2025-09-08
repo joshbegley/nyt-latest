@@ -1,3 +1,15 @@
+**5 Highlights From a Model Maestro’s Recording Career**\
+`Christoph von Dohnanyi, who died on Saturday, was a conductor of clarity and poise, as evidenced especially in his output with the Cleveland Orchestra.`\
+https://nytimes.com/2025/09/08/arts/music/5-highlights-christoph-von-dohnanyi-recording-career.html
+
+**It's not déjà vu, it's Josh Allen. A look at MVP favorites after Week 1**\
+`Josh Allen reigns ... for now. Other risers and fallers in the MVP odds as Week 1 closes out. `\
+https://nytimes.com/athletic/6610693/2025/09/08/nfl-mvp-odds-josh-allen-jumps-lamar-jackson/
+
+**Arrested by Federal Agents, Some D.C. Residents Languished in Jail for Days**\
+`At least 11 defendants stayed in jail cells longer than the law allows, in what former prosecutors and criminal lawyers see as a violation of their constitutional rights.`\
+https://nytimes.com/2025/09/08/us/politics/dc-jail-arrests-pirro-trump.html
+
 **NASCAR Gateway takeaways: Toyota looks formidable, Denny Hamlin keeps winning**\
 `Toyota was tops again at Gateway, Denny Hamlin secured his spot in Round 2, and more from the second race of the NASCAR playoffs.`\
 https://nytimes.com/athletic/6610247/2025/09/08/nascar-gateway-takeaways-toyota-denny-hamlin/
