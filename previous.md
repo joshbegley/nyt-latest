@@ -1,9 +1,17 @@
+**Trump Says Having ‘a Little Fight With the Wife’ Should Not Count as a Crime**\
+`President Trump said that offenses that happen at home should not undermine his record of crime reduction in Washington.`\
+https://nytimes.com/2025/09/08/us/politics/trump-domestic-violence-crime-statistics.html
+
+**Read the Court Ruling on E. Jean Carrolls Judgement Against Trump**\
+`A federal appeals court on Monday upheld an $83.3 million jury award against President Trump for defaming the writer E. Jean Carroll in 2019, after she accused him of a decades-old rape in a Manhattan department store — an attack for which he was separately found liable for sexual abuse.`\
+https://nytimes.com/interactive/2025/09/08/nyregion/08carroll-appeal-doc.html
+
 **Phillies put Trea Turner and Alec Bohm on IL; Turner's injury not season-ending: Sources**\
 `With three weeks to go in the season, the Phillies will need to navigate a key stretch without the entire left side of their infield.`\
 https://nytimes.com/athletic/6610664/2025/09/08/trea-turner-hamstring-philies-injured-list/
 
 **NFL suspends fan who hit DeAndre Hopkins and Lamar Jackson**\
-`The fan, a 17-year-old boy, was ejected from the Sunday night game after shoving the side of Hopkins' helmet following a 29-yard touchdown.`\
+`The fan was ejected from the Sunday night game after shoving the side of Hopkins' helmet following a 29-yard touchdown.`\
 https://nytimes.com/athletic/6611107/2025/09/08/deandre-hopkins-lamar-jackson-bills-fan-banned/
 
 **Bay FC coach Albertin Montoya to step down at end of season**\
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6611237/2025/09/08/south-alabama-vs-auburn-stream-h
 **How to watch Clemson at Georgia Tech: Time, TV, streaming**\
 `Find out how to watch the Clemson Tigers play the Georgia Tech Yellow Jackets, with time, TV channel, and streaming information.`\
 https://nytimes.com/athletic/6611235/2025/09/08/clemson-vs-georgia-tech-stream-how-to-watch-sept-13/
-
-**How to watch Oklahoma at Temple: Time, TV, streaming**\
-`Find out how to watch the Oklahoma Sooners play the Temple Owls, with time, TV channel, and streaming information.`\
-https://nytimes.com/athletic/6611233/2025/09/08/oklahoma-vs-temple-stream-how-to-watch-sept-13/
-
-**How to watch Oregon at Northwestern: Time, TV, streaming**\
-`Find out how to watch the Oregon Ducks play the Northwestern Wildcats, with time, TV channel, and streaming information.`\
-https://nytimes.com/athletic/6611231/2025/09/08/oregon-vs-northwestern-stream-how-to-watch-sept-13/
 
