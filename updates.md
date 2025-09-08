@@ -1,3 +1,7 @@
+**China’s Exports to Africa Are Soaring as Trade to U.S. Plunges**\
+`Already this year, China’s trade surplus with Africa is nearly as big as all of 2024, a sign of how President Trump’s tariffs are reshaping the flow of goods.`\
+https://nytimes.com/2025/09/08/business/china-exports-africa.html
+
 **Man City and Premier League reach settlement over APT rules legal dispute**\
 `City and the Premier League confirmed both parties had agreed to terminate proceedings.`\
 https://nytimes.com/athletic/6610620/2025/09/08/man-city-premier-league-sponsor-rules-settlement/
