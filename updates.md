@@ -1,3 +1,7 @@
+**Tottenham say club 'not for sale' amid 'expressions of interest' from Staveley**\
+`Spurs released a statement late on Sunday night clarifying their position following days of speculation after the exit of Daniel Levy.`\
+https://nytimes.com/athletic/6609913/2025/09/08/tottenham-ownership-sale-amanda-staveley/
+
 **New Zealand Police Kill Man Who Disappeared With His Children**\
 `Tom Phillips, who vanished with his three children in 2021, was killed after he shot a police officer on Monday, the authorities said. His children were found safe and unharmed.`\
 https://nytimes.com/2025/09/08/world/australia/new-zealand-fugitive-father-police.html
