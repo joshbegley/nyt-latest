@@ -1,3 +1,19 @@
+**Supreme Court Lifts Restrictions on L.A. Immigration Stops**\
+`A federal judge had ordered agents not to make indiscriminate stops relying on factors like a person’s ethnicity or that they speak Spanish.`\
+https://nytimes.com/2025/09/08/us/politics/supreme-court-los-angeles-immigration.html
+
+**Tech Companies Show Off for Trump’s ‘Golden Dome’**\
+`Tech companies are displaying A.I., lasers and more as they compete for a piece of President Trump’s ambitious plan for a missile defense shield.`\
+https://nytimes.com/2025/09/08/technology/space-capsules-ai-lasers-tech-golden-dome.html
+
+**Businesses Across the U.S. Rely on These Drones. They Might Be Banned.**\
+`Farmers, builders and police officers use drones made by DJI, a Chinese company. Trump and his allies want to stop all imports.`\
+https://nytimes.com/2025/09/08/business/dji-chinese-drones-ban.html
+
+**Death of Arts Patron Who Made Disputed $10 Million Donation Is Ruled a Suicide**\
+`Matthew Christopher Pietras, a young philanthropist sought after by some of New York’s leading arts institutions, died by suicide, the city’s chief medical examiner ruled.`\
+https://nytimes.com/2025/09/08/arts/music/matthew-christopher-pietras-cause-of-death.html
+
 **China’s Exports to Africa Are Soaring as Trade to U.S. Plunges**\
 `Already this year, China’s trade surplus with Africa is nearly as big as all of 2024, a sign of how President Trump’s tariffs are reshaping the flow of goods.`\
 https://nytimes.com/2025/09/08/business/china-exports-africa.html
@@ -21,20 +37,4 @@ https://nytimes.com/2025/09/08/dining/its-the-perfect-time-to-get-back-into-the-
 **Page to Screen: Do You Know the Inspiration for These Adaptations?**\
 `Try this short quiz about cartoons and comic strips that found new life as moving pictures.`\
 https://nytimes.com/interactive/2025/09/08/books/review/cartoons-comics-quiz.html
-
-**Chiefs-Chargers Week 1 game in Brazil draws 16.2 million YouTube viewers in U.S.**\
-`The game drew attention for its scheduling slot, location and the inclusion of creators as “alt-cast” broadcasters.`\
-https://nytimes.com/athletic/6610499/2025/09/08/chiefs-chargers-brazil-youtube-viewership-nfl/
-
-**Rangers add Blake Wheeler, Ryane Clowe to front office amid flurry of moves**\
-`The announcement marks the start of Wheeler's front office career. He retired in July after playing 1,172 career NHL games.`\
-https://nytimes.com/athletic/6610601/2025/09/08/rangers-front-office-moves-promotions/
-
-**Nepalese Protesters Briefly Storm Parliament Over Social Media Ban**\
-`Protesters, mostly teenagers and young adults, surged toward the Parliament complex in Nepal’s capital and occupied a security building before being dispersed by the police using rubber bullets and water cannons. The protests come days after the government banned most social media platforms.`\
-https://nytimes.com/video/world/asia/100000010384599/nepalese-protesters-briefly-storm-parliament-over-social-media-ban.html
-
-**Hopeful Hint of an Earthlike Atmosphere on a Distant Planet**\
-`Scientists are steadily ruling out habitable conditions on the seven planets of the star Trappist-1. On one of the worlds, a nitrogen gas-rich veil remains a possibility.`\
-https://nytimes.com/2025/09/08/science/trappist-1e-star-planet-nitrogen.html
 

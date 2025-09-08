@@ -1,3 +1,11 @@
+**gws-a-city-reinvented-paris-is-now-greater-paris**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/a-city-reinvented-paris-is-now-greater-paris
+
+**A 5-Stop Guide to London’s Tube Strike**\
+`What to know about the disruption to the city’s underground transit system this week, and alternative ways to travel.`\
+https://nytimes.com/2025/09/08/world/europe/london-tube-strike.html
+
 **Supreme Court Lifts Restrictions on L.A. Immigration Stops**\
 `A federal judge had ordered agents not to make indiscriminate stops relying on factors like a person’s ethnicity or that they speak Spanish.`\
 https://nytimes.com/2025/09/08/us/politics/supreme-court-los-angeles-immigration.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6610568/2025/09/08/nfl-week-2-odds-spreads-betting-
 **London’s Commuters Wrestle With a Massive Tube Strike: ‘It’s Just Annoying’**\
 `Some people were able to work from home. Others crammed onto buses or spent hours trying to reach their destinations.`\
 https://nytimes.com/2025/09/08/world/europe/london-tube-strike-voices.html
-
-**It’s the perfect time to get back into the cooking groove**\
-`Return to routine with a lemon-forward chickpea and parsley pasta.`\
-https://nytimes.com/2025/09/08/dining/its-the-perfect-time-to-get-back-into-the-cooking-groove.html
-
-**Page to Screen: Do You Know the Inspiration for These Adaptations?**\
-`Try this short quiz about cartoons and comic strips that found new life as moving pictures.`\
-https://nytimes.com/interactive/2025/09/08/books/review/cartoons-comics-quiz.html
 
