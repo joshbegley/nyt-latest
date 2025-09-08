@@ -3,7 +3,7 @@
 https://nytimes.com/athletic/6609070/2025/09/07/new-york-jets-justin-fields-debut-performance/
 
 **Al Golden's Bengals defense sets a 'different' foundation in 17-16 win over Browns**\
-`On a day Joe Burrow and the high-powered offense stalled, it was the defense that stepped up to pull out a Week 1 division victory.`\
+`On a day when Joe Burrow and the high-powered offense stalled, the defense stepped up to pull out a Week 1 division victory.`\
 https://nytimes.com/athletic/6609147/2025/09/07/bengals-defense-win-bronws-al-golden/
 
 **What we’re hearing about the Cubs: Pete Crow-Armstrong, Sammy Sosa, Jaxon Wiggins and more**\

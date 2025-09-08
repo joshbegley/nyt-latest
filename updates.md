@@ -1,3 +1,7 @@
+**Al Golden's Bengals defense sets a 'different' foundation in 17-16 win over Browns**\
+`On a day when Joe Burrow and the high-powered offense stalled, the defense stepped up to pull out a Week 1 division victory.`\
+https://nytimes.com/athletic/6609147/2025/09/07/bengals-defense-win-bronws-al-golden/
+
 **Another Jets loss but, in Justin Fields' debut, perhaps a quarterback found**\
 `The new quarterback provided a glimmer of hope during an excruciating Week 1 loss to the Steelers.`\
 https://nytimes.com/athletic/6609070/2025/09/07/new-york-jets-justin-fields-debut-performance/
