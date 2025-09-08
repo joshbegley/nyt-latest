@@ -1,3 +1,7 @@
+**A View From Inside Iran**\
+`Our correspondent found a sense of apprehension in the country after the 12-day war with Israel.`\
+https://nytimes.com/2025/09/08/briefing/inside-iran-japan-prime-minister-kyiv.html
+
 **Brighton are well stocked at right-back, but do they have their long-term solution?**\
 `Fabian Hurzeler has five options at the position even after Tariq Lamptey's departure this summer, but only one is a specialist there`\
 https://nytimes.com/athletic/6561886/2025/09/08/brighton-right-backs-veltman-wieffer/
