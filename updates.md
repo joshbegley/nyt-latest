@@ -1,3 +1,7 @@
+**NFL suspends fan who hit DeAndre Hopkins and Lamar Jackson**\
+`The fan was ejected from the Sunday night game after shoving the side of Hopkins' helmet following a 29-yard touchdown.`\
+https://nytimes.com/athletic/6611107/2025/09/08/deandre-hopkins-lamar-jackson-bills-fan-banned/
+
 **NFL suspends Bills fan who hit Ravens' DeAndre Hopkins and Lamar Jackson**\
 `The Bills fan was ejected from the Sunday night game after shoving the side of Hopkins' helmet following a 29-yard touchdown.`\
 https://nytimes.com/athletic/6611107/2025/09/08/deandre-hopkins-lamar-jackson-bills-fan-banned/
