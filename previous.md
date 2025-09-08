@@ -1,3 +1,7 @@
+**The U.S. Open continued Alcaraz and Sinner's tennis domination. What now?**\
+`Alcaraz and Sinner have each said that they are focused more on beating each other than on solving the rest of the sport.`\
+https://nytimes.com/athletic/6608989/2025/09/07/us-open-alcaraz-sinner-tennis/
+
 **O'Connor: Aaron Rodgers' takedown of Jets one of sweetest wins of his Hall of Fame career**\
 `Rodgers had insisted the revenge match was just another game. But after winning, he was happy "to beat everybody associated with the Jets."`\
 https://nytimes.com/athletic/6609183/2025/09/07/aaron-rodgers-steelers-jets-sweet-victory-week-1/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6609147/2025/09/07/bengals-defense-win-bronws-al-go
 **What we’re hearing about the Cubs: Pete Crow-Armstrong, Sammy Sosa, Jaxon Wiggins and more**\
 `Cubs are treating their All-Star center fielder with caution, and it’s becoming clear that his condition is not the club’s only issue.`\
 https://nytimes.com/athletic/6609068/2025/09/07/cubs-what-were-hearing-pete-armstrong/
-
-**How to watch Nationals at Marlins: Time, TV, streaming for September 8**\
-`Find out how to watch the Washington Nationals play the Miami Marlins, with time, TV channel, and streaming information.`\
-https://nytimes.com/athletic/6609253/2025/09/07/nationals-vs-marlins-stream-how-to-watch-sept-8/
 

@@ -1,3 +1,7 @@
+**The U.S. Open continued Alcaraz and Sinner's tennis domination. What now?**\
+`Alcaraz and Sinner have each said that they are focused more on beating each other than on solving the rest of the sport.`\
+https://nytimes.com/athletic/6608989/2025/09/07/us-open-alcaraz-sinner-tennis/
+
 **O'Connor: Aaron Rodgers' takedown of Jets one of sweetest wins of his Hall of Fame career**\
 `Rodgers had insisted the revenge match was just another game. But after winning, he was happy "to beat everybody associated with the Jets."`\
 https://nytimes.com/athletic/6609183/2025/09/07/aaron-rodgers-steelers-jets-sweet-victory-week-1/
