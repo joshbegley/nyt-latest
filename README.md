@@ -1,3 +1,11 @@
+**A Tech Reporter’s Side Gig: Music Writing**\
+`Every so often, Mike Isaac swerves from his Silicon Valley beat to write about bands.`\
+https://nytimes.com/2025/09/08/technology/mike-isaac-music-writing.html
+
+**Trump Administration, Again, Asks Supreme Court to Let It Block Foreign Aid**\
+`The court has been largely receptive to the administration’s claims of executive power.`\
+https://nytimes.com/2025/09/08/us/politics/trump-administration-again-asks-supreme-court-to-let-it-block-foreign-aid.html
+
 **The Windup: MLB’s playoff picture with 3 weeks to go**\
 `Welcome to The Windup, The Athletic's MLB newsletter.`\
 https://nytimes.com/athletic/6609919/2025/09/08/mlb-playoff-picture-3-weeks-the-windup/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6610393/2025/09/08/fantasy-baseball-the-bat-x/
 **Inside Barcelona: Why Spain's champions still don't know where they are playing home games**\
 `Our Barcelona correspondents share their latest information on the biggest talking points at the club right now`\
 https://nytimes.com/athletic/6610369/2025/09/08/barcelona-camp-nou-news-valencia-thiago-gavi/
-
-**If NWSL wants to keep USWNT players such as Rodman and Wilson, it needs to review its salary cap**\
-`Alyssa Thompson's Chelsea move is another reminder that NWSL needs to revisit its salary cap restrictions`\
-https://nytimes.com/athletic/6609825/2025/09/08/trinity-rodman-sophia-wilson-nwsl-salary-cap/
-
-**49ers, OL Colton McKivitz reach 3-year, $45 million extension: Sources**\
-`McKivitz, 29, was a fifth-round pick by the 49ers in the 2020 NFL Draft.`\
-https://nytimes.com/athletic/6610481/2025/09/08/49ers-colton-mckivitz-extension/
 
