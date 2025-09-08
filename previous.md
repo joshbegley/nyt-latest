@@ -1,4 +1,12 @@
-**It’s a new day in Green Bay, and this was one helluva coming-out party**\
+**The transfer window was fun, but WSL return showed the 'magic' in doing your homework early**\
+`Deadline day detritus was evident all over the WSL last weekend – whereas teams who did their business early thrived `\
+https://nytimes.com/athletic/6609978/2025/09/08/wsl-transfer-chelsea-arsenal-magic/
+
+**Poitras has made the opening roster twice. Can he take the next step?**\
+`What Poitras accomplished within the 66-game sample has yet to shape, with any clarity, what he could become.`\
+https://nytimes.com/athletic/6608404/2025/09/08/matt-poitras-nhl-bruins-development/
+
+**It’s a new day for the Packers, and this was one helluva coming-out party**\
 `The buzz at Lambeau Field felt surreal during and after Green Bay's startling win, a result infused with the aura of Micah Parsons.`\
 https://nytimes.com/athletic/6609732/2025/09/08/micah-parsons-packers-aura-matt-lafleur/
 
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6598487/2025/09/08/macklin-celebrini-canada-olympic
 **Jets prospect timelines: When will they make an NHL impact?**\
 `When will each of Winnipeg's prospects be ready for the NHL? And what can we expect from their NHL careers when they make it?`\
 https://nytimes.com/athletic/6602284/2025/09/08/winnipeg-jets-prospect-timelines-sascha-boumedienne/
-
-**Drake Maye is Patriots' long-term solution, but someday soon he needs a confident win**\
-`Prediction: As soon as Maye leads consecutvie victories, there will be no looking back. Until then, Mike Vrabel's Pats have plenty to do.`\
-https://nytimes.com/athletic/6609052/2025/09/08/patriots-raiders-drake-maye/
-
-**Twins replay coordinator Joey Casey a wiz behind the curtain: 'He's got a very good feel'**\
-`"I'm just here to have these guys' backs,” Casey said.`\
-https://nytimes.com/athletic/6600027/2025/09/08/twins-replay-coordinator-joey-casey/
 

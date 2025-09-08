@@ -1,3 +1,15 @@
+**The transfer window was fun, but WSL return showed the 'magic' in doing your homework early**\
+`Deadline day detritus was evident all over the WSL last weekend – whereas teams who did their business early thrived `\
+https://nytimes.com/athletic/6609978/2025/09/08/wsl-transfer-chelsea-arsenal-magic/
+
+**Poitras has made the opening roster twice. Can he take the next step?**\
+`What Poitras accomplished within the 66-game sample has yet to shape, with any clarity, what he could become.`\
+https://nytimes.com/athletic/6608404/2025/09/08/matt-poitras-nhl-bruins-development/
+
+**It’s a new day for the Packers, and this was one helluva coming-out party**\
+`The buzz at Lambeau Field felt surreal during and after Green Bay's startling win, a result infused with the aura of Micah Parsons.`\
+https://nytimes.com/athletic/6609732/2025/09/08/micah-parsons-packers-aura-matt-lafleur/
+
 **It’s a new day in Green Bay, and this was one helluva coming-out party**\
 `The buzz at Lambeau Field felt surreal during and after Green Bay's startling win, a result infused with the aura of Micah Parsons.`\
 https://nytimes.com/athletic/6609732/2025/09/08/micah-parsons-packers-aura-matt-lafleur/
