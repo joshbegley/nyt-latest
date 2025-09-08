@@ -1,3 +1,15 @@
+**Meet the New ICE Recruits**\
+`ICE was hiring officers in Texas, part of a huge ramp-up to its work force. The Times was there.`\
+https://nytimes.com/2025/09/08/us/politics/ice-job-fair-texas.html
+
+**Mayor Adams’s Order Allowing ICE Into Rikers Is Illegal, Judge Rules**\
+`Justice Mary V. Rosado said the plan to let immigration agents into the jail presented a conflict of interest because the mayor had received special treatment from the Trump administration.`\
+https://nytimes.com/2025/09/08/nyregion/judge-adams-ice-rikers.html
+
+**Man Killed Retired Auburn Professor at Alabama Dog Park, Police Say**\
+`Harold Rashad Dabney III was arrested Sunday on two counts of capital murder in the death of Dr. Julie Schnuelle, 59, a veterinarian and mother whose body was found in a dog park on Saturday.`\
+https://nytimes.com/2025/09/08/us/alabama-murder-vet-park.html
+
 **Bears reinforce Arlington Heights stadium goal in letter to season ticket holders**\
 `President and CEO Kevin Warren said the team plans to bid to host a Super Bowl in a suburban domed stadium as early as 2031.`\
 https://nytimes.com/athletic/6611451/2025/09/08/chicago-bears-stadium-plans-arlington-heights-kevin-warren/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/09/08/briefing/france-government-crisis-nepal-protest.h
 **Getting a Visa to Visit the U.S. Could Take Even Longer**\
 `A new State Department rule requires would-be travelers to be interviewed in their home countries, where wait times can be more than a year.`\
 https://nytimes.com/2025/09/08/travel/tourist-non-immigrant-visa-application-interviews.html
-
-**The Supreme Court Decision on ICE and Racial Profiling, Explained**\
-`The ruling allowed immigration agents to stop people for reasons that lower courts had deemed likely unconstitutional.`\
-https://nytimes.com/2025/09/08/us/politics/supreme-court-immigration-racial-profiling.html
-
-**Mamdani, Facing Mistrust Within the N.Y.P.D., Reaches Out to Officers**\
-`Zohran Mamdani, the Democratic nominee for mayor of New York City, has been speaking with officers to address concerns over his past criticism of the Police Department.`\
-https://nytimes.com/2025/09/08/nyregion/mamdani-nypd.html
-
-**10 Killed and 61 Injured in Mexico After Train Crashes Into Bus**\
-`Accidents involving vehicles and trains have been increasing as the Mexican government has pushed to revitalize railroads and build new passenger lines.`\
-https://nytimes.com/2025/09/08/world/americas/mexico-train-crash.html
 

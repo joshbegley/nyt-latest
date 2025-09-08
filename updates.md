@@ -1,3 +1,15 @@
+**Meet the New ICE Recruits**\
+`ICE was hiring officers in Texas, part of a huge ramp-up to its work force. The Times was there.`\
+https://nytimes.com/2025/09/08/us/politics/ice-job-fair-texas.html
+
+**Mayor Adams’s Order Allowing ICE Into Rikers Is Illegal, Judge Rules**\
+`Justice Mary V. Rosado said the plan to let immigration agents into the jail presented a conflict of interest because the mayor had received special treatment from the Trump administration.`\
+https://nytimes.com/2025/09/08/nyregion/judge-adams-ice-rikers.html
+
+**Man Killed Retired Auburn Professor at Alabama Dog Park, Police Say**\
+`Harold Rashad Dabney III was arrested Sunday on two counts of capital murder in the death of Dr. Julie Schnuelle, 59, a veterinarian and mother whose body was found in a dog park on Saturday.`\
+https://nytimes.com/2025/09/08/us/alabama-murder-vet-park.html
+
 **Braves lose Sean Murphy for the season to right hip labral tear**\
 `Murphy began experiencing pain in his hip three years ago but didn't tell the team about it until now. He will have surgery on Thursday.`\
 https://nytimes.com/athletic/6611288/2025/09/08/atlanta-braves-sean-murphy-hip-labral-tear/
