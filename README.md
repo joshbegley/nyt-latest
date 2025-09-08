@@ -1,3 +1,7 @@
+**A View From Inside Iran**\
+`Our correspondent found a sense of apprehension in the country after the 12-day war with Israel.`\
+https://nytimes.com/2025/09/08/briefing/inside-iran-japan-prime-minister-kyiv.html
+
 **Brighton are well stocked at right-back, but do they have their long-term solution?**\
 `Fabian Hurzeler has five options at the position even after Tariq Lamptey's departure this summer, but only one is a specialist there`\
 https://nytimes.com/athletic/6561886/2025/09/08/brighton-right-backs-veltman-wieffer/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6604743/2025/09/08/does-daniel-levy-still-have-powe
 **25 fascinating Premier League player plotlines to follow: Isak, Grealish, Sesko and more**\
 `There a multitude of storylines to follow when the Premier League returns: here are 25 of the most interesting`\
 https://nytimes.com/athletic/6595104/2025/09/08/premier-league-player-plotlines-isak-grealish-sesko/
-
-**Connections: Sports Edition Coach: Hints for Sept. 8, 2025**\
-`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
-https://nytimes.com/athletic/6609748/2025/09/08/connections-sports-edition-hints-for-sept-8-2025/
 

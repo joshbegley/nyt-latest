@@ -1,3 +1,15 @@
+**Brighton are well stocked at right-back, but do they have their long-term solution?**\
+`Fabian Hurzeler has five options at the position even after Tariq Lamptey's departure this summer, but only one is a specialist there`\
+https://nytimes.com/athletic/6561886/2025/09/08/brighton-right-backs-veltman-wieffer/
+
+**Real Madrid's Franco chants at the Bernabeu have sparked debate in Spain**\
+`A minority of fans at the Spanish club's home ground have sung the chants since Franco Mastantuono's signing this summer`\
+https://nytimes.com/athletic/6594314/2025/09/08/real-madrid-franco-chants-bernabeu-debate/
+
+**Igor Jesus interview: 'I know the quality I possess and what I’m capable of - I can reach another level'**\
+`Forest's latest Brazilian signing has had a stellar year, and hopes there's yet more to come in the East Midlands`\
+https://nytimes.com/athletic/6581626/2025/09/08/igor-jesus-brazil-nottingham-forest/
+
 **Crysencio Summerville stayed loyal to West Ham. Now he's ready to change games**\
 `Against Forest, Summerville added pace, creativity, energy and markedly improved the team's performance`\
 https://nytimes.com/athletic/6600877/2025/09/08/crysencio-summerville-west-ham-loyal/
