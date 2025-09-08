@@ -1,3 +1,15 @@
+**gws-japan-momijigari-autumn-foliage**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/japan-momijigari-autumn-foliage
+
+**gws-a-city-reinvented-paris-is-now-greater-paris**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/a-city-reinvented-paris-is-now-greater-paris
+
+**A 5-Stop Guide to London’s Tube Strike**\
+`What to know about the disruption to the city’s underground transit system this week, and alternative ways to travel.`\
+https://nytimes.com/2025/09/08/world/europe/london-tube-strike.html
+
 **Supreme Court Lifts Restrictions on L.A. Immigration Stops**\
 `A federal judge had ordered agents not to make indiscriminate stops relying on factors like a person’s ethnicity or that they speak Spanish.`\
 https://nytimes.com/2025/09/08/us/politics/supreme-court-los-angeles-immigration.html
