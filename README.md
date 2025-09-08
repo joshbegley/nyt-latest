@@ -1,3 +1,7 @@
+**Inside Real Madrid: Wharton and Smit discussed, injury updates and rotations to come?**\
+`Real Madrid correspondents Guillermo Rai and Mario Cortegana share what they're hearing in their latest weekly column`\
+https://nytimes.com/athletic/6610105/2025/09/08/real-madrid-news-transfers-inside-alonso-update/
+
 **Odegaard 'doesn't care' about Adams' Arsenal captaincy criticism**\
 `In August, Tony Adams urged Mikel Arteta to strip the Norway international of the Arsenal captaincy and hand the role to Declan Rice.`\
 https://nytimes.com/athletic/6610156/2025/09/08/arsenal-news-odegaard-adams-criticism/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6598170/2025/09/08/harvey-elliott-liverpool-aston-v
 **Athletic Club’s Yeray handed 10-month ban after positive doping test**\
 `The centre-back tested positive for the banned substance canrenone following Athletic's first leg Europa League semi-final defeat in May.`\
 https://nytimes.com/athletic/6610100/2025/09/08/athletic-club-yeray-alvarez-doping-ban/
-
-**Seven thoughts about the Phillies, who hold a 7-game lead as the Mets arrive**\
-`Constructing the lineup without Trea Turner, who injured his right hamstring, won't be an easy task for manager Rob Thomson. `\
-https://nytimes.com/athletic/6609449/2025/09/08/phillies-mets-trea-turner-injury-kyle-schwarber/
 

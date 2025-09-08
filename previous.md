@@ -1,3 +1,19 @@
+**Odegaard 'doesn't care' about Adams' Arsenal captaincy criticism**\
+`In August, Tony Adams urged Mikel Arteta to strip the Norway international of the Arsenal captaincy and hand the role to Declan Rice.`\
+https://nytimes.com/athletic/6610156/2025/09/08/arsenal-news-odegaard-adams-criticism/
+
+**Jeffrey Epstein’s Bankers**\
+`Until JPMorgan dropped him as a client in 2013, America’s leading bank financially enabled the century’s most notorious sexual predator.`\
+https://nytimes.com/2025/09/08/world/jeffrey-epstein-jpmorgan-us-open.html
+
+**WNBA power rankings: Can Breanna Stewart spark the Liberty to prep for a playoff run?**\
+`Will Minnesota maintain control? How much will the Dream's depth help them for the playoffs?`\
+https://nytimes.com/athletic/6609806/2025/09/08/wnba-playoffs-rankings-lynx/
+
+**The Pulse: The Bills are going to win the Super Bowl***\
+`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/6609558/2025/09/08/bills-ravens-comeback-week-1-the-pulse/
+
 **Rosenthal: For fans of each of MLB's 15 flawed playoff contenders, things could always be worse**\
 `Many of these teams seem capable of both winning the World Series and getting bounced in the first round.`\
 https://nytimes.com/athletic/6609484/2025/09/08/mlb-playoff-contenders-fans-flaws/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6610100/2025/09/08/athletic-club-yeray-alvarez-dopi
 **Seven thoughts about the Phillies, who hold a 7-game lead as the Mets arrive**\
 `Constructing the lineup without Trea Turner, who injured his right hamstring, won't be an easy task for manager Rob Thomson. `\
 https://nytimes.com/athletic/6609449/2025/09/08/phillies-mets-trea-turner-injury-kyle-schwarber/
-
-**Tom Brady's season debut 'comfortable,' NBC's Sunday night finish thrills: Deitsch**\
-`The Athletic's media reporter Richard Deitsch offers his observations of the TV experience from the opening weekend of the NFL season.`\
-https://nytimes.com/athletic/6581349/2025/09/08/tom-brady-nfl-tv-fox-week-1/
-
-**J.J. Watt shows TV potential as CBS attempts Tony Romo contract mistake do-over**\
-`The Hall of Fame NFL player made his debut as a TV game analyst in Week 1. The Athletic's Andrew Marchand evaluated his performance.`\
-https://nytimes.com/athletic/6609271/2025/09/08/jj-watt-cbs-nfl-tv-romo/
-
-**What's next for Chiefs after Xavier Worthy injury? Spotlight will be on these 3**\
-`Chiefs fans — and fantasy football players — could be looking at these guys as next in line for greater production.`\
-https://nytimes.com/athletic/6607373/2025/09/08/chiefs-xavier-worthy-injury-replacements/
-
-**Vikings vs. Bears on MNF: McCarthy's debut, TV show faceoff, 'ManningCast' predictions**\
-`We've got pop culture clashes, roster updates and betting odds for Week 1's Vikings-Bears game on "Monday Night Football."`\
-https://nytimes.com/athletic/6598330/2025/09/08/vikings-bears-chicago-prince-nfl-how-to-watch/
 

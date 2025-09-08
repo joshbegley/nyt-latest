@@ -1,3 +1,19 @@
+**Odegaard 'doesn't care' about Adams' Arsenal captaincy criticism**\
+`In August, Tony Adams urged Mikel Arteta to strip the Norway international of the Arsenal captaincy and hand the role to Declan Rice.`\
+https://nytimes.com/athletic/6610156/2025/09/08/arsenal-news-odegaard-adams-criticism/
+
+**Jeffrey Epstein’s Bankers**\
+`Until JPMorgan dropped him as a client in 2013, America’s leading bank financially enabled the century’s most notorious sexual predator.`\
+https://nytimes.com/2025/09/08/world/jeffrey-epstein-jpmorgan-us-open.html
+
+**WNBA power rankings: Can Breanna Stewart spark the Liberty to prep for a playoff run?**\
+`Will Minnesota maintain control? How much will the Dream's depth help them for the playoffs?`\
+https://nytimes.com/athletic/6609806/2025/09/08/wnba-playoffs-rankings-lynx/
+
+**The Pulse: The Bills are going to win the Super Bowl***\
+`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/6609558/2025/09/08/bills-ravens-comeback-week-1-the-pulse/
+
 **Rosenthal: For fans of each of MLB's 15 flawed playoff contenders, things could always be worse**\
 `Many of these teams seem capable of both winning the World Series and getting bounced in the first round.`\
 https://nytimes.com/athletic/6609484/2025/09/08/mlb-playoff-contenders-fans-flaws/
