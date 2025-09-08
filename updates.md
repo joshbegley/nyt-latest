@@ -1,3 +1,11 @@
+**Jacques Charrier, Movie Star Who Wed Brigitte Bardot, Dies at 88**\
+`Their marriage made news in France, but they were an unhappy couple, and it didn’t last. Years later, they attacked each other in dueling memoirs.`\
+https://nytimes.com/2025/09/08/movies/jacques-charrier-dead.html
+
+**Witness to Michael Brown’s Shooting in Ferguson Dies of Gunshot Injuries**\
+`Dorian Johnson died from gunfire 11 years after Mr. Brown’s death in a confrontation with a police officer that led to nationwide protests.`\
+https://nytimes.com/2025/09/08/us/dorian-johnson-ferguson-michael-brown.html
+
 **Whistle-Blower Sues Meta Over Claims of WhatsApp Security Flaws**\
 `In a lawsuit filed Monday, the former head of security for the messaging app accused the social media company of putting billions of users at risk.`\
 https://nytimes.com/2025/09/08/technology/whatsapp-whistleblower-lawsuit.html

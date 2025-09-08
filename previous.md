@@ -1,3 +1,11 @@
+**Jacques Charrier, Movie Star Who Wed Brigitte Bardot, Dies at 88**\
+`Their marriage made news in France, but they were an unhappy couple, and it didn’t last. Years later, they attacked each other in dueling memoirs.`\
+https://nytimes.com/2025/09/08/movies/jacques-charrier-dead.html
+
+**Witness to Michael Brown’s Shooting in Ferguson Dies of Gunshot Injuries**\
+`Dorian Johnson died from gunfire 11 years after Mr. Brown’s death in a confrontation with a police officer that led to nationwide protests.`\
+https://nytimes.com/2025/09/08/us/dorian-johnson-ferguson-michael-brown.html
+
 **Whistle-Blower Sues Meta Over Claims of WhatsApp Security Flaws**\
 `In a lawsuit filed Monday, the former head of security for the messaging app accused the social media company of putting billions of users at risk.`\
 https://nytimes.com/2025/09/08/technology/whatsapp-whistleblower-lawsuit.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/09/08/technology/space-capsules-ai-lasers-tech-golden-d
 **Businesses Across the U.S. Rely on These Drones. They Might be Banned.**\
 `Farmers, builders and police officers use drones made by DJI, a Chinese company. Trump and his allies want to stop all imports.`\
 https://nytimes.com/2025/09/08/business/dji-chinese-drones-ban.html
-
-**Death of Arts Patron Who Made Disputed $10 Million Donation Is Ruled a Suicide**\
-`Matthew Christopher Pietras, a young philanthropist sought after by some of New York’s leading arts institutions, died by suicide, the city’s chief medical examiner ruled.`\
-https://nytimes.com/2025/09/08/arts/music/matthew-christopher-pietras-cause-of-death.html
-
-**China’s Exports to Africa Are Soaring as Trade to U.S. Plunges**\
-`Already this year, China’s trade surplus with Africa is nearly as big as all of 2024, a sign of how President Trump’s tariffs are reshaping the flow of goods.`\
-https://nytimes.com/2025/09/08/business/china-exports-africa.html
 
