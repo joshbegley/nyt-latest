@@ -1,40 +1,40 @@
-**Protesters March in Brazil as Bolsonaro Faces Conviction**\
-`Supporters of the former president largely outnumbered his critics on Sunday, as thousands flooded the streets in the final week of the former president’s criminal trial.`\
-https://nytimes.com/video/world/americas/100000010384465/protesters-march-in-brazil-as-bolsonaro-faces-conviction.html
+**Tom Brady's season debut 'comfortable,' NBC's Sunday night finish thrills: Deitsch**\
+`The Athletic's media reporter Richard Deitsch offers his observations of the TV experience from the opening weekend of the NFL season.`\
+https://nytimes.com/athletic/6581349/2025/09/08/tom-brady-nfl-tv-fox-week-1/
 
-**As Juan Soto closes in on 30-30 season, could he be the first Met to 40-40?**\
-`Mets coach Antoan Richardson said of Soto: “I feel 100 percent convicted he will get to 40 stolen bases this year.”`\
-https://nytimes.com/athletic/6608338/2025/09/08/mets-juan-soto-40-40-season/
+**J.J. Watt shows TV potential as CBS attempts Tony Romo contract mistake do-over**\
+`The Hall of Fame NFL player made his debut as a TV game analyst in Week 1. The Athletic's Andrew Marchand evaluated his performance.`\
+https://nytimes.com/athletic/6609271/2025/09/08/jj-watt-cbs-nfl-tv-romo/
 
-**The New York Times International Edition in Print for Tuesday, Sep. 9, 2025**\
-``\
-https://nytimes.com/issue/todaysinyt/2025/09/08/todays-new-york-times-international-edition
+**What's next for Chiefs after Xavier Worthy injury? Spotlight will be on these 3**\
+`Chiefs fans — and fantasy football players — could be looking at these guys as next in line for greater production.`\
+https://nytimes.com/athletic/6607373/2025/09/08/chiefs-xavier-worthy-injury-replacements/
 
-**Dozens Injured in Nepal in Demonstrations Over Social Media Ban**\
-`Protesters stormed the Parliament complex days after the government banned most social media platforms, including Facebook and Instagram.`\
-https://nytimes.com/2025/09/08/world/asia/nepal-protests-gen-z-social-media.html
+**Vikings vs. Bears on MNF: McCarthy's debut, TV show faceoff, 'ManningCast' predictions**\
+`We've got pop culture clashes, roster updates and betting odds for Week 1's Vikings-Bears game on "Monday Night Football."`\
+https://nytimes.com/athletic/6598330/2025/09/08/vikings-bears-chicago-prince-nfl-how-to-watch/
 
-**How to watch New Mexico at UCLA: Time, TV, streaming**\
-`Find out how to watch the New Mexico Lobos play the UCLA Bruins, with time, TV channel, and streaming information.`\
-https://nytimes.com/athletic/6610058/2025/09/08/new-mexico-vs-ucla-stream-how-to-watch-sept-12/
+**Cowboys ready to move on from Micah Parsons: 'We should stop bringing up his name'**\
+`Parsons made his Packers' debut Sunday. Could the Cowboys have used him? Of course, but they're focused on their own edge rushers.`\
+https://nytimes.com/athletic/6609086/2025/09/08/cowboys-micah-parsons-pass-rush-defense/
 
-**How to watch Colorado at Houston: Time, TV, streaming**\
-`Find out how to watch the Colorado Buffaloes play the Houston Cougars, with time, TV channel, and streaming information.`\
-https://nytimes.com/athletic/6610055/2025/09/08/colorado-vs-houston-stream-how-to-watch-sept-12/
+**J.J. McCarthy arrives at long-awaited Vikings debut with trademark 'contagious' energy**\
+`After missing all of last season, McCarthy is bringing his positive vibes to the Vikings in their Monday night matchup against the Bears.`\
+https://nytimes.com/athletic/6602978/2025/09/08/jj-mccarthy-vikings-bears-debut-monday-night-football/
 
-**How to watch Red Sox at Athletics: Time, TV, streaming for September 8**\
-`Find out how to watch the Boston Red Sox play the Athletics, with time, TV channel, and streaming information.`\
-https://nytimes.com/athletic/6610050/2025/09/08/red-sox-vs-athletics-stream-how-to-watch-sept-8/
+**The Commanders made plenty of mistakes vs. Giants, but quality carried the day**\
+`Washington's depth saved it from a close shave Sunday, even when the Commanders were nowhere near their best.`\
+https://nytimes.com/athletic/6608613/2025/09/08/washington-commanders-mistakes-giants/
 
-**How to watch Cardinals at Mariners: Time, TV, streaming for September 8**\
-`Find out how to watch the St. Louis Cardinals play the Seattle Mariners, with time, TV channel, and streaming information.`\
-https://nytimes.com/athletic/6610048/2025/09/08/cardinals-vs-mariners-stream-how-to-watch-sept-8/
+**Are the Ravens the new Bills? Historic collapse extends a worrisome trend**\
+`The Ravens continue to find confounding ways to blow two-possession leads in the fourth quarter.`\
+https://nytimes.com/athletic/6609987/2025/09/08/ravens-bills-comeback-week-1-snf/
 
-**How to watch Diamondbacks at Giants: Time, TV, streaming for September 8**\
-`Find out how to watch the Arizona Diamondbacks play the San Francisco Giants, with time, TV channel, and streaming information.`\
-https://nytimes.com/athletic/6610045/2025/09/08/diamondbacks-vs-giants-stream-how-to-watch-sept-8/
+**Packers' domination of Detroit just one game? Depends on who you ask**\
+`It's very, very early. But the opener in Lambeau was validating for those who were high on the Packers and had concerns about the Lions.`\
+https://nytimes.com/athletic/6609990/2025/09/08/packers-lions-week-1-micah-parsons/
 
-**How to watch Twins at Angels: Time, TV, streaming for September 8**\
-`Find out how to watch the Minnesota Twins play the Los Angeles Angels, with time, TV channel, and streaming information.`\
-https://nytimes.com/athletic/6610042/2025/09/08/twins-vs-angels-stream-how-to-watch-sept-8/
+**What Justin Herbert's huge night shows about Jim Harbaugh and Greg Roman's evolution**\
+`The famously run-oriented Harbaugh is getting pass-happy. One coach called it "an acknowledgement that Herbert is really f---ing good."`\
+https://nytimes.com/athletic/6609902/2025/09/08/justin-herbert-jim-harbaugh-chargers/
 
