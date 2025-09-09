@@ -1,3 +1,15 @@
+**The Corner Store Team Un-Eighty Sixes the Chumley’s Space**\
+`The new steakhouse is called, of course, the Eighty Six.`\
+https://nytimes.com/2025/09/09/dining/nyc-restaurant-news.html
+
+**Protests in Nepal Force Prime Minister to Resign**\
+`Young demonstrators, targeting symbols of Nepal’s governing elite, set fire to the Parliament building as a second day of unrest forced the prime minister to resign.`\
+https://nytimes.com/video/world/asia/100000010388087/nepal-protests-prime-minister.html
+
+**Scouting four intriguing prospects ahead of the 2026 fantasy baseball season**\
+`Andrea Arcadipane profiles two well-regarded prospects who were called up when the calendar hit September, and two who weren't.`\
+https://nytimes.com/athletic/6609736/2025/09/09/fantasy-baseball-prospect-callups-profiles-chandler-stewart/
+
 **The Poverty Rate Was Stable Last Year, as Household Income Grew Slightly**\
 `As pandemic subsidies disappeared, wages kept workers just ahead of inflation, although gaps have widened for some groups.`\
 https://nytimes.com/2025/09/09/business/economy/us-poverty-rate-2024.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6613665/2025/09/09/deion-sanders-colorado-ryan-stau
 **Israel Targets Hamas Leadership in Qatar Strike**\
 `Israel attacked a building in Doha, Qatar, on Tuesday with a strike that targeted the homes of several senior Hamas politicians.`\
 https://nytimes.com/video/world/middleeast/100000010387256/israel-hamas-doha-qatar-strike.html
-
-**McLaren's puzzling team orders. Plus: Red Bull's driver-led Monza breakthrough**\
-`Welcome to Prime Tire, The Athletic's Formula 1 newsletter`\
-https://nytimes.com/athletic/6613598/2025/09/09/mclaren-f1-team-orders-red-bull-max-verstappen-monza-prime-tire/
-
-**Hamas Fighters Claim Responsibility for Bus Stop Shooting in Jerusalem**\
-`Israeli officials said the attack at the crowded bus stop on Monday spurred, in part, the decision to launch Tuesday’s targeted strikes against Hamas leaders in Qatar.`\
-https://nytimes.com/2025/09/09/world/middleeast/hamas-responsibility-jerusalem-bus-shooting.html
-
-**Fantasy football market share report: Bench Isiah Pacheco, add Bhayshul Tuten and more**\
-`Michael Salfino mines the touches and targets data from Week 1 to help inform roster decisions going forward, like benching Isiah Pacheco.`\
-https://nytimes.com/athletic/6613366/2025/09/09/fantasy-football-market-share-report-week-2-pacheco/
 

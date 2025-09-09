@@ -1,3 +1,15 @@
+**The Corner Store Team Un-Eighty Sixes the Chumley’s Space**\
+`The new steakhouse is called, of course, the Eighty Six.`\
+https://nytimes.com/2025/09/09/dining/nyc-restaurant-news.html
+
+**Protests in Nepal Force Prime Minister to Resign**\
+`Young demonstrators, targeting symbols of Nepal’s governing elite, set fire to the Parliament building as a second day of unrest forced the prime minister to resign.`\
+https://nytimes.com/video/world/asia/100000010388087/nepal-protests-prime-minister.html
+
+**Scouting four intriguing prospects ahead of the 2026 fantasy baseball season**\
+`Andrea Arcadipane profiles two well-regarded prospects who were called up when the calendar hit September, and two who weren't.`\
+https://nytimes.com/athletic/6609736/2025/09/09/fantasy-baseball-prospect-callups-profiles-chandler-stewart/
+
 **How MAHA’s Wellness Influencers Spread Conspiracies About Health Care**\
 `MAHA’s wellness influencers are spreading conspiracy theories about health care all over the internet. New York Times Opinion analyzed thousands of their videos. Here’s what we found.`\
 https://nytimes.com/video/opinion/100000010387274/how-mahas-wellness-influencers-spread-conspiracies-about-health-care.html
