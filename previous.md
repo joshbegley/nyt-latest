@@ -1,3 +1,7 @@
+**Exxon Wants to Make More of the Materials Needed for E.V. Batteries**\
+`The oil giant said Tuesday that it was acquiring assets from a Chicago company as it looks to start producing graphite, a key battery ingredient, by the end of the decade.`\
+https://nytimes.com/2025/09/09/business/energy-environment/exxon-mobil-graphite-electric-vehicles.html
+
 **White House Set to Release Report on Childhood Health**\
 `The report, from a commission led by Robert F. Kennedy Jr., will most likely propose initiatives around medications but not direct restrictions on pesticides.`\
 https://nytimes.com/2025/09/09/us/politics/maha-report-rfk-jr-trump.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6612974/2025/09/09/bengals-run-defense-tj-slaton/
 **Got Pelicans questions? Submit to William Guillory for the upcoming mailbag**\
 `There&#8217;s been no shortage of questions surrounding the New Orleans Pelicans and some of the polarizing moves made during Joe Dumars&#8217; first offseason as the lead executive.`\
 https://nytimes.com/athletic/6613001/2025/09/09/pelicans-nba-offseason-questions-mailbag/
-
-**Israeli Strike Targets Hamas Leadership in Qatar, a Gaza War Mediator**\
-`Qatar, which has been trying to negotiate a cease-fire, condemned the attack. The Qatari foreign ministry said a residential headquarters where senior Hamas politicians lived was targeted.`\
-https://nytimes.com/2025/09/09/world/middleeast/israel-hamas-doha-qatar-strike.html
 

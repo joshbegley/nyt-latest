@@ -1,3 +1,7 @@
+**Exxon Wants to Make More of the Materials Needed for E.V. Batteries**\
+`The oil giant said Tuesday that it was acquiring assets from a Chicago company as it looks to start producing graphite, a key battery ingredient, by the end of the decade.`\
+https://nytimes.com/2025/09/09/business/energy-environment/exxon-mobil-graphite-electric-vehicles.html
+
 **White House Set to Release Report on Childhood Health**\
 `The report, from a commission led by Robert F. Kennedy Jr., will most likely propose initiatives around medications but not direct restrictions on pesticides.`\
 https://nytimes.com/2025/09/09/us/politics/maha-report-rfk-jr-trump.html
