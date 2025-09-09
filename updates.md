@@ -1,3 +1,15 @@
+**Arrest Warrant Says Buyer of ‘Nude Emperor’ Bronze Knew It Was Looted**\
+`Investigators are pursuing criminal charges against a wealthy collector who has challenged the assertion that the Roman-era antiquity he bought for $1.3 million had been stolen from Turkey.`\
+https://nytimes.com/2025/09/09/arts/arrest-warrant-says-buyer-of-nude-emperor-bronze-knew-it-was-looted.html
+
+**Brilliant Apparel That Boosts Moods**\
+`A vibrant crop top and hot pink leggings lit up the street as the sun set.`\
+https://nytimes.com/2025/09/09/style/street-style-look-bright-clothes.html
+
+**Fantasy football Week 2 drops: Cutting ties with Tank Bigsby, Josh Downs and more**\
+`Gary Davenport warns against overreacting after Week 1 as he guides you toward players who can be cut loose this week.`\
+https://nytimes.com/athletic/6611863/2025/09/09/fantasy-football-week-2-drops-bigsby-downs/
+
 **Anger at Nepal’s social media ban reflects families’ dependence on workers abroad.**\
 `By Alex Travelli`\
 https://nytimes.com/live/2025/09/09/world/nepal-protests/anger-at-nepals-social-media-ban-reflects-families-dependence-on-workers-abroad

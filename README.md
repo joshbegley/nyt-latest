@@ -1,3 +1,7 @@
+**Macron Has No Good Options After Repeat Collapse of French Government**\
+`The president, thwarted at home, has become increasingly frustrated and weakened at a critical moment for his country and Europe.`\
+https://nytimes.com/2025/09/09/world/europe/macron-options-analysis.html
+
 **Arrest Warrant Says Buyer of ‘Nude Emperor’ Bronze Knew It Was Looted**\
 `Investigators are pursuing criminal charges against a wealthy collector who has challenged the assertion that the Roman-era antiquity he bought for $1.3 million had been stolen from Turkey.`\
 https://nytimes.com/2025/09/09/arts/arrest-warrant-says-buyer-of-nude-emperor-bronze-knew-it-was-looted.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6608283/2025/09/09/ray-hudson-broadcasting-retire/
 **The Stakes of the Murdoch Family’s Peace Deal**\
 `A new accord ends a bitter power struggle and gives Rupert Murdoch’s elder son control of the family’s media empire.`\
 https://nytimes.com/2025/09/09/business/dealbook/lachlan-murdoch-family-deal.html
-
-**After disastrous opener, Ben Johnson is officially a Chicago Bears coach**\
-`There was magic in the air at Soldier Field for Johnson's first game. Chicago had the game in hand and then, poof, a W turned into an L.`\
-https://nytimes.com/athletic/6612333/2025/09/09/bears-vikings-ben-johnson-debut-monday-night-loss/
 

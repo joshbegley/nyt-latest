@@ -1,3 +1,15 @@
+**Arrest Warrant Says Buyer of ‘Nude Emperor’ Bronze Knew It Was Looted**\
+`Investigators are pursuing criminal charges against a wealthy collector who has challenged the assertion that the Roman-era antiquity he bought for $1.3 million had been stolen from Turkey.`\
+https://nytimes.com/2025/09/09/arts/arrest-warrant-says-buyer-of-nude-emperor-bronze-knew-it-was-looted.html
+
+**Brilliant Apparel That Boosts Moods**\
+`A vibrant crop top and hot pink leggings lit up the street as the sun set.`\
+https://nytimes.com/2025/09/09/style/street-style-look-bright-clothes.html
+
+**Fantasy football Week 2 drops: Cutting ties with Tank Bigsby, Josh Downs and more**\
+`Gary Davenport warns against overreacting after Week 1 as he guides you toward players who can be cut loose this week.`\
+https://nytimes.com/athletic/6611863/2025/09/09/fantasy-football-week-2-drops-bigsby-downs/
+
 **Anger at Nepal’s social media ban reflects families’ dependence on workers abroad.**\
 `By Alex Travelli`\
 https://nytimes.com/live/2025/09/09/world/nepal-protests/anger-at-nepals-social-media-ban-reflects-families-dependence-on-workers-abroad
@@ -25,16 +37,4 @@ https://nytimes.com/2025/09/09/business/dealbook/lachlan-murdoch-family-deal.htm
 **After disastrous opener, Ben Johnson is officially a Chicago Bears coach**\
 `There was magic in the air at Soldier Field for Johnson's first game. Chicago had the game in hand and then, poof, a W turned into an L.`\
 https://nytimes.com/athletic/6612333/2025/09/09/bears-vikings-ben-johnson-debut-monday-night-loss/
-
-**49ers minutia minute: Christian McCaffrey looks healthy despite injury scare**\
-`Trent Williams had an uncharacteristically rough outing, while Yetur Gross-Matos was quite effective rushing from the inside.`\
-https://nytimes.com/athletic/6611459/2025/09/09/christian-mccaffrey-jake-moody-49ers-seahawks/
-
-**Chargers show signs of being a more complete offensive unit in win over Chiefs**\
-`Jim Harbaugh praised Greg Roman's game plan against the Chiefs. "I would put this one at the very top. Maybe none better than this one.”`\
-https://nytimes.com/athletic/6611879/2025/09/09/chargers-offense-greg-roman-chiefs/
-
-**Will Gleyber Torres’ return to New York come with emotion? ‘To be honest, I don’t know’**\
-`Gleyber Torres returns to Yankee Stadium with a first-place team, coming off his third All-Star nod and also battling a recent downturn. `\
-https://nytimes.com/athletic/6611289/2025/09/09/gleyber-torres-return-yankees-stadium/
 
