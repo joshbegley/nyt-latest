@@ -1,3 +1,7 @@
+**Macron Has No Good Options After Repeat Collapse of French Government**\
+`The president, thwarted at home, has become increasingly frustrated and weakened at a critical moment for his country and Europe.`\
+https://nytimes.com/2025/09/09/world/europe/macron-options-analysis.html
+
 **Arrest Warrant Says Buyer of ‘Nude Emperor’ Bronze Knew It Was Looted**\
 `Investigators are pursuing criminal charges against a wealthy collector who has challenged the assertion that the Roman-era antiquity he bought for $1.3 million had been stolen from Turkey.`\
 https://nytimes.com/2025/09/09/arts/arrest-warrant-says-buyer-of-nude-emperor-bronze-knew-it-was-looted.html
