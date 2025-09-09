@@ -1,3 +1,7 @@
+**English football 'rife with financial recklessness', claims report on game's health**\
+`The Fair Game Index looks at clubs in England’s top six tiers and assesses them eight key indicators of performance`\
+https://nytimes.com/athletic/6613959/2025/09/09/english-football-finances-report-2025-fair-game-index/
+
 **What Note? On Epstein Sketch, Republicans Revert to Shrugs.**\
 `The Republican response to the release of a suggestive note to Jeffrey Epstein apparently signed by President Trump followed a familiar pattern of deflection.`\
 https://nytimes.com/2025/09/09/us/politics/republicans-trump-epstein-sketch.html

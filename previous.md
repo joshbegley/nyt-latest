@@ -1,3 +1,7 @@
+**English football 'rife with financial recklessness', claims report on game's health**\
+`The Fair Game Index looks at clubs in England’s top six tiers and assesses them eight key indicators of performance`\
+https://nytimes.com/athletic/6613959/2025/09/09/english-football-finances-report-2025-fair-game-index/
+
 **What Note? On Epstein Sketch, Republicans Revert to Shrugs.**\
 `The Republican response to the release of a suggestive note to Jeffrey Epstein apparently signed by President Trump followed a familiar pattern of deflection.`\
 https://nytimes.com/2025/09/09/us/politics/republicans-trump-epstein-sketch.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/09/us/politics/trump-qatar-israel-strike-hamas.html
 **Trademark office denies 4 applications filed by Bill Belichick, Jordon Hudson**\
 `The Patriots trademarked "Do Your Job" in 2013. Belichick tried to trademark "Do Your Job (Bill's Version)," among others, this year.`\
 https://nytimes.com/athletic/6614069/2025/09/09/bill-belichick-jordon-hudson-trademark-denied-patriots/
-
-**Chief Justice Roberts Lets Trump Block Foreign Aid for Now**\
-`Acting on his own, the chief justice issued an “administrative stay” pausing a trial judge’s ruling while the full court considers the matter.`\
-https://nytimes.com/2025/09/09/us/politics/supreme-court-trump-foreign-aid.html
 
