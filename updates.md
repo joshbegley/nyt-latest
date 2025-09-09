@@ -1,3 +1,7 @@
+**Phillies think outside the box, snatch win over Mets to stretch NL East lead to season high**\
+`It was a day, really, of thinking outside the box at Citizens Bank Park, where the Phillies increased their NL East lead to eight games. `\
+https://nytimes.com/athletic/6612232/2025/09/09/phillies-mets-nl-east-lead-standings-trea-turner/
+
 **Vuelta a Espana week two: More protests, more UAE victories, and a closer battle for the red jersey than expected?**\
 `Jonas Vingegaard remains in the lead as the race enters its final week – but Joao Almeida is pushing him all the way`\
 https://nytimes.com/athletic/6610849/2025/09/09/vuelta-a-espana-week-two-more-protests-more-uae-victories-and-a-closer-battle-for-the-red-jersey-than-expected/
