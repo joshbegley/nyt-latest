@@ -1,3 +1,11 @@
+**Late Night Misses the Defense Department Already**\
+`President Trump has renamed it the Department of War, “which is what people call the clearance section at TJ Maxx,” Jimmy Fallon said.`\
+https://nytimes.com/2025/09/09/arts/television/late-night-department-of-war.html
+
+**Nepal Protesters Set Fire to Leaders’ Homes in a New Day of Rage**\
+`A day after violent clashes left at least 19 people dead, young protesters defied a curfew and took to the streets again.`\
+https://nytimes.com/2025/09/09/world/asia/nepal-protests-fire-homes-president.html
+
 **Explained: Manchester City and the Premier League's APT settlement and what it means for everyone else**\
 `What was the issue, why has it been settled and will it have any bearing on the bigger case between City and the Premier League?`\
 https://nytimes.com/athletic/6610762/2025/09/09/man-city-premier-league-apt-settlement-explainer/
