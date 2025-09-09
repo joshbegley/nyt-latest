@@ -1,3 +1,7 @@
+**Democrats Narrow Gap in House After Victory in Virginia Special Election**\
+`James Walkinshaw will fill a seat left open by the death of his former boss, Gerald Connolly, and shrink the Republicans’ majority in the chamber.`\
+https://nytimes.com/2025/09/09/us/politics/james-walkinshaw-virginia-house.html
+
 **Latest Revelations Complicate Trump’s Sweeping Denials About Epstein**\
 `President Trump often succeeds in pivoting the national conversation, but he is finding that more difficult when it comes to Jeffrey Epstein.`\
 https://nytimes.com/2025/09/09/us/politics/trumps-epstein-response.html
