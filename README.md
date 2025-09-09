@@ -1,3 +1,7 @@
+**Forest fans: What are your thoughts on Nuno's exit? And who should be next?**\
+`Was this the right move? What are your memories of Nuno's time in charge? And who should be next?`\
+https://nytimes.com/athletic/6612336/2025/09/09/forest-nuno-exit-next-coach/
+
 **The New York Times in Print for Tuesday, Sep. 9, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/09/09/todays-new-york-times
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6610025/2025/09/09/yeremy-pino-crystal-palace-eze/
 **Inside Newcastle Q&A: Wissa or Woltemade, infrastructure plans and PSR position**\
 `As Eddie Howe's side prepare to return to action this weekend, Chris Waugh answers questions about matters on and off the pitch`\
 https://nytimes.com/athletic/6610004/2025/09/09/wissa-woltemade-newcastle-questions-answered/
-
-**Slade Cecconi's no-hit bid, the Guardians' no-hit drought and their bid for a wild-card spot**\
-`Cecconi cruised into the eighth, despite lengthy breaks when the Guardians’ offense uncorked one hit after another.`\
-https://nytimes.com/athletic/6612150/2025/09/09/cleveland-guardians-slade-cecconi-no-hit-bid/
 

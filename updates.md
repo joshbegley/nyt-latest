@@ -1,3 +1,7 @@
+**Phillies think outside the box, snatch win over Mets to stretch NL East lead to season high**\
+`It was a day, really, of thinking outside the box at Citizens Bank Park, where the Phillies increased their NL East lead to eight games. `\
+https://nytimes.com/athletic/6612232/2025/09/09/phillies-mets-nl-east-lead-standings-trea-turner/
+
 **The New York Times in Print for Tuesday, Sep. 9, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/09/09/todays-new-york-times
