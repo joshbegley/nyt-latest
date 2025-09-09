@@ -1,3 +1,7 @@
+**Critical fantasy football insights for Week 2: Packers go deep**\
+`Brandon Funston and Jess Bryant look at weekly usage reports to help you with Week 2 waivers, start/sit decisions and more. `\
+https://nytimes.com/athletic/6499966/2025/09/09/critical-fantasy-football-insights-for-week-2-packers-go-deep-kenneth-walkers-scary-stuff/
+
 **Kennedy Releases Childhood Health Report. It’s Vague on Next Steps.**\
 `The report, which follows a draft leaked last month, demonstrates both the ambitions and limits of Robert F. Kennedy Jr.’s “Make America Healthy Again” agenda.`\
 https://nytimes.com/2025/09/09/well/rfk-jr-report-maha-trump.html
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6613551/2025/09/09/george-kittle-injury-ir-49ers/
 **What’s New in School Lunchrooms: Less Sugar, More From Scratch**\
 `While the impact of federal budget cuts and coming nutritional guidelines is uncertain, smaller changes have already arrived in school cafeterias.`\
 https://nytimes.com/2025/09/09/dining/school-lunch-changes.html
-
-**Broncos announce site of future stadium, targeting 2031 completion**\
-`The team has chosen Burnham Yard, a historic railyard district outside the city’s downtown area, as the preferred site for a new stadium.`\
-https://nytimes.com/athletic/6613520/2025/09/09/denver-broncos-stadium-burnham-yard/
 
