@@ -1,3 +1,7 @@
+**Russian Bomb Kills at Least 20 Picking Up Pensions, Zelensky Says**\
+`The Ukrainian leader said that the strike on older people in a Donetsk village should prompt a global response.`\
+https://nytimes.com/2025/09/09/world/europe/ukraine-bombing-donetsk-pensioners.html
+
 **How 1 shaky possession triggered the Bears' second-half collapse against the Vikings**\
 `Late in the third quarter Monday night, the Bears seemed ready to put the Vikings away. Until a comedy of errors swung the game.`\
 https://nytimes.com/athletic/6612356/2025/09/09/bears-vikings-second-half-collapse/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6611033/2025/09/09/packers-lukas-van-ness-micah-par
 **Which Duke players will step up with no Cooper Flagg?: Here's 10 possible rotation players**\
 `How good will Cameron Boozer be right away? Can Isaiah Evans and Caleb Foster take the next step?`\
 https://nytimes.com/athletic/6602882/2025/09/09/duke-rotation-cooper-flagg-cameron-boozer/
-
-**Is college football still made for students? Or are they extras in a TV show?**\
-`When did you fall in love with college football? There's a good chance it was when you were in college itself. Is that changing?`\
-https://nytimes.com/athletic/6611468/2025/09/09/college-football-attendance-students-fans/
 
