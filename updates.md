@@ -1,3 +1,7 @@
+**Eagles acquiring RB Tank Bigsby in trade with Jaguars: Source**\
+`Jaguars to receive fifth- and sixth-round picks in the 2026 draft from Philadelphia.`\
+https://nytimes.com/athletic/6611866/2025/09/08/eagles-tank-bigsby-jaguars-trade/
+
 **The Restaurant List 2025**\
 `Here are the 50 best places in America right now.`\
 https://nytimes.com/interactive/2025/dining/best-restaurants-america.html
