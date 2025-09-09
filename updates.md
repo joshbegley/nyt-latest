@@ -1,3 +1,15 @@
+**Nuclear Sites Dotted Across Ukraine Pose Threat of Radiation Disaster**\
+`Each day of war risks a strike on sites that could scatter radioactive material. Officials say one laboratory near the front has been hit dozens of times.`\
+https://nytimes.com/2025/09/09/world/europe/nuclear-sites-ukraine-russia-war.html
+
+**Williams an injury doubt for Athletic Club vs Arsenal in Champions League**\
+`Williams was forced off after 44 minutes during Spain's World Cup qualifying victory over Turkey on Sunday`\
+https://nytimes.com/athletic/6612584/2025/09/09/nico-williams-injury-update-athletic-club-arsenal/
+
+**The New York Times International Edition in Print for Wednesday, Sep. 10, 2025**\
+``\
+https://nytimes.com/issue/todaysinyt/2025/09/09/todays-new-york-times-international-edition
+
 **How to watch Cardinals at Mariners: Time, TV, streaming for September 9**\
 `Find out how to watch the St. Louis Cardinals play the Seattle Mariners, with time, TV channel, and streaming information.`\
 https://nytimes.com/athletic/6612627/2025/09/09/cardinals-vs-mariners-stream-how-to-watch-sept-9/
