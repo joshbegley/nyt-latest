@@ -1,3 +1,13 @@
+**After Lions got beat in the trenches on both sides, 'nowhere to go but up'**\
+`Detroit's young guards struggled in their first game and the Lions were unable to pressure Jordan Love enough in the Week 1 loss.`\
+https://nytimes.com/athletic/6613032/2025/09/09/lions-loss-trenches-offensive-defensive-line/
+
+**Submit a question for Stewart Mandel's College Football Mailbag**\
+`<p>Week 2 is in the books. What&#8217;s on your mind?</p>
+<p>Leave your questions here. Please include your city.</p>
+`\
+https://nytimes.com/athletic/6611216/2025/09/09/submit-a-question-for-stewart-mandels-college-football-mailbag-314/
+
 **Big 12 suspends officiating crew for play violation in Missouri vs. Kansas**\
 `For punting on the kickoff, officials should have assessed Missouri a 5-yard penalty for an illegal kick.`\
 https://nytimes.com/athletic/6613158/2025/09/09/big-12-officiating-crew-suspension-missouri-kansas/
@@ -29,12 +39,4 @@ https://nytimes.com/2025/09/09/us/politics/nick-fuentes-trump.html
 **Police Seek Man After Two People in Their 70s Are Found Dead After Fire**\
 `Rescuers who came to a burning house in Queens found a man bound in the basement and a woman dead on the first floor.`\
 https://nytimes.com/2025/09/09/nyregion/queens-couple-arson-homicide.html
-
-**Steelers to sign Jabrill Peppers, former Patriots safety: Source**\
-`Peppers spent the last three seasons in New England.`\
-https://nytimes.com/athletic/6613156/2025/09/09/steelers-jabrill-peppers-signed-patriots-nfl-news/
-
-**'That’s the hard part about losing': Sidney Crosby on speculation about his future with the Penguins**\
-`Crosby wants to win, which has not been happening in Pittsburgh. Will that lead him elsewhere? He addressed the possibility Monday.`\
-https://nytimes.com/athletic/6613059/2025/09/09/sidney-crosby-penguins-canadiens-future/
 
