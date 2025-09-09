@@ -1,3 +1,7 @@
+**The Forces Behind Nepal’s Explosive Gen Z Protests**\
+`It was a recent ban on social media that brought young people to the streets, but they came filled with grievances that have built up over years.`\
+https://nytimes.com/2025/09/09/business/the-forces-behind-nepals-explosive-gen-z-protests.html
+
 **Nuclear Sites Dotted Across Ukraine Pose Threat of Radiation Disaster**\
 `Each day of war risks a strike on sites that could scatter radioactive material. Officials say one laboratory near the front has been hit dozens of times.`\
 https://nytimes.com/2025/09/09/world/europe/nuclear-sites-ukraine-russia-war.html

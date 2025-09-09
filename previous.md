@@ -1,3 +1,7 @@
+**The Forces Behind Nepal’s Explosive Gen Z Protests**\
+`It was a recent ban on social media that brought young people to the streets, but they came filled with grievances that have built up over years.`\
+https://nytimes.com/2025/09/09/business/the-forces-behind-nepals-explosive-gen-z-protests.html
+
 **Nuclear Sites Dotted Across Ukraine Pose Threat of Radiation Disaster**\
 `Each day of war risks a strike on sites that could scatter radioactive material. Officials say one laboratory near the front has been hit dozens of times.`\
 https://nytimes.com/2025/09/09/world/europe/nuclear-sites-ukraine-russia-war.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6612617/2025/09/09/twins-vs-angels-stream-how-to-wa
 **How to watch Rockies at Dodgers: Time, TV, streaming for September 9**\
 `Find out how to watch the Colorado Rockies play the Los Angeles Dodgers, with time, TV channel, and streaming information.`\
 https://nytimes.com/athletic/6612614/2025/09/09/rockies-vs-dodgers-stream-how-to-watch-sept-9/
-
-**Live Updates: Nepal’s Prime Minister Resigns as Protesters Set Fire to Leaders’ Houses**\
-`A day after violent clashes left at least 19 people dead, Prime Minister K.P. Sharma Oli and other ministers quit, with no clear path to assuaging young protesters in the capital.`\
-https://nytimes.com/live/2025/09/09/world/nepal-protests
 
