@@ -1,3 +1,19 @@
+**49ers waiving K Jake Moody after 2 missed kicks in opener: Source**\
+`Moody (No. 99 in 2023) was the highest kicker drafted since Roberto Aguayo (No. 59) in 2016.`\
+https://nytimes.com/athletic/6611292/2025/09/09/49ers-jake-moody-cut-kicker/
+
+**Virginia 11th Congressional District Special Election Results**\
+`Get live results and maps from the 2025 Virginia special congressional election.`\
+https://nytimes.com/interactive/2025/09/09/us/elections/results-virginia-us-house-11-special.html
+
+**Boston Mayoral Primary Election Results**\
+`Get live results from the 2025 Boston preliminary municipal election.`\
+https://nytimes.com/interactive/2025/09/09/us/elections/results-boston-mayor-primary.html
+
+**Wander Franco taken to clinic for 'mental health situation'**\
+`Franco was convicted of sexual abuse of a minor earlier this summer and has not played in the major leagues since August 2023.`\
+https://nytimes.com/athletic/6613368/2025/09/09/wander-franco-mental-health-situation/
+
 **Barcelona to host first home match of the season at 6,000-capacity ground**\
 `The Spanish champions had hoped to play their September 14 fixture against Valencia at the Camp Nou`\
 https://nytimes.com/athletic/6601886/2025/09/09/barcelona-stadium-nou-camp-home-matches/

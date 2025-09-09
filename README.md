@@ -1,3 +1,7 @@
+**German Carmakers, Hit by Chinese Rivals and Tariffs, Stage a Comeback**\
+`The spotlight at the Munich auto show this year is swinging back to BMW, Mercedes and Volkswagen after previously focusing on Chinese automakers.`\
+https://nytimes.com/2025/09/09/world/europe/germany-cars-china-evs-munich-auto-show.html
+
 **49ers waiving K Jake Moody after 2 missed kicks in opener: Source**\
 `Moody (No. 99 in 2023) was the highest kicker drafted since Roberto Aguayo (No. 59) in 2016.`\
 https://nytimes.com/athletic/6611292/2025/09/09/49ers-jake-moody-cut-kicker/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6613174/2025/09/09/gotham-jaedyn-shaw-trade-courage
 **Josh Allen's specially designed hats to raise money for Buffalo children's hospital**\
 `Bidding on Allen's Week 1 hat has surpassed $17,000`\
 https://nytimes.com/athletic/6613161/2025/09/09/josh-allens-tunnel-hats-charity/
-
-**Wander Franco taken to clinic for 'mental health situation'**\
-`Franco was convicted of sexual abuse of a minor earlier this summer and has not played in the major leagues since August 2023.`\
-https://nytimes.com/athletic/6613368/2025/09/09/wander-franco-mental-health-situation/
 
