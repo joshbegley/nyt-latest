@@ -1,3 +1,15 @@
+**Flames sign goalie Dustin Wolf to 7-year, $7.5 million extension**\
+`Wolf finished the season with a 29-16-8 record, a 2.64 goals-against average, and a .910 save percentage.`\
+https://nytimes.com/athletic/6613049/2025/09/09/flames-dustin-wolf-extension/
+
+**Employers Added Fewer Jobs Than Believed, Updated Data Shows**\
+`Preliminary annual revisions could add to political pressure on the agency that produces the data.`\
+https://nytimes.com/2025/09/09/business/jobs-revisions-economy-fed.html
+
+**Israeli Strike Targets Hamas Leadership in Qatar, a Gaza War Mediator**\
+`Qatar, which has been trying to negotiate a cease-fire, condemned the attack. The Qatari foreign ministry said a residential headquarters where senior Hamas politicians lived was targeted.`\
+https://nytimes.com/2025/09/09/world/middleeast/israel-hamas-doha-qatar-strike.html
+
 **Seismic protests in Asia have had young people at their core.**\
 `By Matthew Mpoke Bigg`\
 https://nytimes.com/live/2025/09/09/world/nepal-protests/seismic-protests-in-asia-have-had-young-people-at-their-core
