@@ -1,3 +1,11 @@
+**Iran and U.N. Watchdog Meet to Discuss Resuming Nuclear Inspections**\
+`Iran has not allowed inspections since its nuclear sites were bombed by Israel and the United States in June, but it hopes to stave off Western economic sanctions.`\
+https://nytimes.com/2025/09/09/world/europe/iran-iaea-nuclear-inspections.html
+
+**The Commanders have already made their plan for Deebo Samuel very clear: Do everything**\
+`Samuel contributed as a ball carrier, a kick returner and a dangerous receiver in Washington's season-opening win. `\
+https://nytimes.com/athletic/6613169/2025/09/09/deebo-samuel-washington-commanders-offense/
+
 **Tata Martino weighs in on Mauricio Pochettino's troubled stint as USMNT coach**\
 `The two Argentine managers were former teammates, and after coaching Mexico and in MLS, Martino gives his observations to The Athletic`\
 https://nytimes.com/athletic/6613145/2025/09/09/tata-martino-mauricio-pochettino-usmnt-mls-world-cup/
