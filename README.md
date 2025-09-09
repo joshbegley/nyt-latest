@@ -27,7 +27,7 @@ https://nytimes.com/athletic/6611936/2025/09/08/utah-vs-wyoming-stream-how-to-wa
 https://nytimes.com/athletic/6611917/2025/09/08/cubs-vs-braves-stream-how-to-watch-sept-9/
 
 **Eagles acquire RB Tank Bigsby in trade with Jaguars: Source**\
-`Jaguars to receive fifth- and sixth-round picks in the 2026 draft from Philadelphia.`\
+`The Jaguars will receive fifth- and sixth-round picks in the 2026 draft from Philadelphia in the Bigsby trade.`\
 https://nytimes.com/athletic/6611866/2025/09/08/eagles-tank-bigsby-jaguars-trade/
 
 **The Restaurant List 2025**\
