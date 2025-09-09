@@ -1,3 +1,7 @@
+**The Briefing - Serbia 0 England 5: World Cup qualification within sight as Tuchel's team click**\
+`England emerged from what had been billed as the toughest game in the group with a comprehensive victory to maintain their pristine record`\
+https://nytimes.com/athletic/6613038/2025/09/09/england-serbia-tuchel-rogers-madueke/
+
 **Troops Deployed After Day of Violent Protests in Nepal**\
 `Protesters set fire to government buildings and the homes of politicians as unrest over corruption, censorship and economic issues stretched into a second day.`\
 https://nytimes.com/2025/09/09/world/asia/nepal-violent-protests-army.html
@@ -29,8 +33,4 @@ https://nytimes.com/2025/09/09/dining/andrew-huse-dead.html
 **California Man Killed 2 Men He Met on Dating App, Authorities Say**\
 `Prosecutors said Rockim Prowell, 34, also stole their cars and tried to kill a third man. He was being held without bail.`\
 https://nytimes.com/2025/09/09/us/dating-app-murder-man-charged.html
-
-**Until Saturday: What's wrong with Clemson?**\
-`Until Saturday is The Athletic's free college football newsletter.`\
-https://nytimes.com/athletic/6613992/2025/09/09/clemson-football-2025-until-saturday/
 

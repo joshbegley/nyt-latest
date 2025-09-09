@@ -1,3 +1,7 @@
+**Supreme Court Agrees to Review Trump’s Sprawling Tariffs**\
+`The justices moved quickly to schedule oral argument to consider the legality of the president’s signature economic initiative.`\
+https://nytimes.com/2025/09/09/us/politics/trump-tariffs-supreme-court.html
+
 **The Briefing - Serbia 0 England 5: World Cup qualification within sight as Tuchel's team click**\
 `England emerged from what had been billed as the toughest game in the group with a comprehensive victory to maintain their pristine record`\
 https://nytimes.com/athletic/6613038/2025/09/09/england-serbia-tuchel-rogers-madueke/
@@ -25,12 +29,4 @@ https://nytimes.com/athletic/6610697/2025/09/09/jalen-carter-spitting-suspension
 **Can Trump Deflate the Epstein Scandal?**\
 `Even compelling debunkings don’t eliminate the mystery.`\
 https://nytimes.com/2025/09/09/opinion/epstein-trump-birthday-book.html
-
-**Andrew Huse, Historian of the Cuban Sandwich, Dies at 52**\
-`He investigated which city of Cuban immigrants might have created the celebrated sandwich, Tampa or Miami. His finding was not altogether surprising.`\
-https://nytimes.com/2025/09/09/dining/andrew-huse-dead.html
-
-**California Man Killed 2 Men He Met on Dating App, Authorities Say**\
-`Prosecutors said Rockim Prowell, 34, also stole their cars and tried to kill a third man. He was being held without bail.`\
-https://nytimes.com/2025/09/09/us/dating-app-murder-man-charged.html
 
