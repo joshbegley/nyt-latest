@@ -1,3 +1,7 @@
+**How MAHA’s Wellness Influencers Spread Conspiracies About Health Care**\
+`MAHA’s wellness influencers are spreading conspiracy theories about health care all over the internet. New York Times Opinion analyzed thousands of their videos. Here’s what we found.`\
+https://nytimes.com/video/opinion/100000010387274/how-mahas-wellness-influencers-spread-conspiracies-about-health-care.html
+
 **The Poverty Rate Was Stable Last Year, as Household Income Grew Slightly**\
 `As pandemic subsidies disappeared, wages kept workers just ahead of inflation, although gaps have widened for some groups.`\
 https://nytimes.com/2025/09/09/business/economy/us-poverty-rate-2024.html
