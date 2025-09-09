@@ -1,3 +1,7 @@
+**Derek Cornelius' impressive free kick leads Canada past Wales: Takeaways**\
+`Wales will take on England Oct. 9. and Canada will face Australia Oct.10.`\
+https://nytimes.com/athletic/6614082/2025/09/09/canada-derek-cornelius-wales-free-kick/
+
 **Oliver North and Fawn Hall, Key Figures in Iran-Contra Scandal, Are Married**\
 `Ms. Hall was Mr. North’s secretary on the National Security Council in the 1980s during the secret sales of arms to Iran and the diversion of the profits to rebel forces in Nicaragua.`\
 https://nytimes.com/2025/09/09/us/oliver-north-fawn-hall-married-iran-contra.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6614120/2025/09/09/football-calendar-club-world-cup
 **Explosive Protests in Nepal**\
 `Demonstrators have set fire to government buildings. The military has sent in troops to restore order.`\
 https://nytimes.com/2025/09/09/briefing/nepal-protests-qatar-israel-hamas-ukriane.html
-
-**Cubs place Kyle Tucker on the IL with calf strain, Moisés Ballesteros recalled**\
-`Tucker has been dealing with a left calf strain. His IL stint is retroactive to Sept. 6.`\
-https://nytimes.com/athletic/6614096/2025/09/09/cubs-kyle-tucker-il-calf-strain-moises-ballesteros/
 

@@ -1,3 +1,15 @@
+**Why Trump Is Targeting a Brazilian Judge**\
+`Tens of thousands of supporters of former President Jair Bolsonaro flooded streets in Brazil to protest the criminal prosecution of Bolsonaro on charges that he attempted to stage a coup in 2022.`\
+https://nytimes.com/video/world/americas/100000010385022/trump-moraes-bolsonaro-trial.html
+
+**Now a democratic republic, Nepal was a monarchy for nearly 250 years.**\
+`By Ashley Ahn`\
+https://nytimes.com/live/2025/09/09/world/nepal-protests/now-a-democratic-republic-nepal-was-a-monarchy-for-nearly-250-years
+
+**A Phony Trump Check and a ‘Depreciated’ Woman in Epstein’s Birthday Book**\
+`A photo in Jeffrey Epstein’s birthday book shows the disgraced financier holding a novelty check with a signature of “DJ TRUMP.” It includes a woman who dated both men in the 1990s.`\
+https://nytimes.com/2025/09/09/us/epstein-trump-birthday-book.html
+
 **Derek Cornelius' impressive free kick leads Canada past Wales: Takeaways**\
 `Wales will take on England Oct. 9. and Canada will face Australia Oct.10.`\
 https://nytimes.com/athletic/6614082/2025/09/09/canada-derek-cornelius-wales-free-kick/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/09/09/us/politics/supreme-court-trump-foreign-aid.html
 **For Nepal’s Protesters, Wealthy ‘Nepo Kids’ Are a Source of Outrage**\
 `Videos and photos purporting to show the privileged lifestyles of children of the elite have fueled anger among young people.`\
 https://nytimes.com/2025/09/09/world/asia/nepal-protests-nepo-kids-social-media.html
-
-**Israel Launched an Attack in Qatar, Targeting Hamas Leaders**\
-`Also, a look at what’s in R.F.K. Jr.’s report on childhood health. Here’s the latest at the end of Tuesday.`\
-https://nytimes.com/2025/09/09/briefing/israel-strike-hamas-qatar-high-school-reading.html
-
-**Carragher warns against holding Club World Cup every two years**\
-`Carragher said earlier this summer that he had "no time" for FIFA's new competition`\
-https://nytimes.com/athletic/6614120/2025/09/09/football-calendar-club-world-cup-changes-carragher/
-
-**Explosive Protests in Nepal**\
-`Demonstrators have set fire to government buildings. The military has sent in troops to restore order.`\
-https://nytimes.com/2025/09/09/briefing/nepal-protests-qatar-israel-hamas-ukriane.html
 

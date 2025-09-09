@@ -1,3 +1,7 @@
+**Derek Cornelius' impressive free kick leads Canada past Wales: Takeaways**\
+`Wales will take on England Oct. 9. and Canada will face Australia Oct.10.`\
+https://nytimes.com/athletic/6614082/2025/09/09/canada-derek-cornelius-wales-free-kick/
+
 **Oliver North and Fawn Hall, Key Figures in Iran-Contra Scandal, Are Married**\
 `Ms. Hall was Mr. North’s secretary on the National Security Council in the 1980s during the secret sales of arms to Iran and the diversion of the profits to rebel forces in Nicaragua.`\
 https://nytimes.com/2025/09/09/us/oliver-north-fawn-hall-married-iran-contra.html
