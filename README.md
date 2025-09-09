@@ -1,6 +1,14 @@
+**Delap expected to return to training in November, no surgery required**\
+`Delap pulled up during the first half of Chelsea’s 2-0 win over Fulham on August 30.`\
+https://nytimes.com/athletic/6587974/2025/09/09/liam-delap-injury-update-chelsea/
+
 **Russian Bomb Kills at Least 20 Picking Up Pensions, Zelensky Says**\
 `The Ukrainian leader said that the strike on older people in a Donetsk village should prompt a global response.`\
 https://nytimes.com/2025/09/09/world/europe/ukraine-bombing-donetsk-pensioners.html
+
+**Phillies think outside the box, snatch win over Mets to stretch NL East lead to season high**\
+`It was a day, really, of thinking outside the box at Citizens Bank Park, where the Phillies increased their NL East lead to eight games. `\
+https://nytimes.com/athletic/6612232/2025/09/09/phillies-mets-nl-east-lead-standings-trea-turner/
 
 **How 1 shaky possession triggered the Bears' second-half collapse against the Vikings**\
 `Late in the third quarter Monday night, the Bears seemed ready to put the Vikings away. Until a comedy of errors swung the game.`\
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6542960/2025/09/09/philadelphia-flyers-training-cam
 **Drake Baldwin leads list of Jim Bowden’s top 10 National League rookies**\
 `Baldwin leads a list that includes several promising starters who didn't reach the big leagues until midseason.`\
 https://nytimes.com/athletic/6610777/2025/09/09/best-mlb-rookies-drake-baldwin-nolan-mclean-nl/
-
-**With Micah Parsons' help, can Packers' Lukas Van Ness finally break out?**\
-`Van Ness' four pressures Sunday, per Pro Football Focus, tied for the second-most in a single game in his career.`\
-https://nytimes.com/athletic/6611033/2025/09/09/packers-lukas-van-ness-micah-parsons/
-
-**Which Duke players will step up with no Cooper Flagg?: Here's 10 possible rotation players**\
-`How good will Cameron Boozer be right away? Can Isaiah Evans and Caleb Foster take the next step?`\
-https://nytimes.com/athletic/6602882/2025/09/09/duke-rotation-cooper-flagg-cameron-boozer/
 
