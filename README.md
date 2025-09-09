@@ -1,3 +1,7 @@
+**White House Set to Release Report on Childhood Health**\
+`The report, from a commission led by Robert F. Kennedy Jr., will most likely propose initiatives around medications but not direct restrictions on pesticides.`\
+https://nytimes.com/2025/09/09/us/politics/maha-report-rfk-jr-trump.html
+
 **Flames sign goalie Dustin Wolf to 7-year, $7.5 million AAV extension**\
 `Wolf finished the season with a 29-16-8 record, a 2.64 goals-against average, and a .910 save percentage.`\
 https://nytimes.com/athletic/6613049/2025/09/09/flames-dustin-wolf-extension/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6613001/2025/09/09/pelicans-nba-offseason-questions
 **Israeli Strike Targets Hamas Leadership in Qatar, a Gaza War Mediator**\
 `Qatar, which has been trying to negotiate a cease-fire, condemned the attack. The Qatari foreign ministry said a residential headquarters where senior Hamas politicians lived was targeted.`\
 https://nytimes.com/2025/09/09/world/middleeast/israel-hamas-doha-qatar-strike.html
-
-**Macron Has No Good Options After Repeat Collapse of French Government**\
-`The president, thwarted at home, has become increasingly frustrated and weakened at a critical moment for his country and Europe.`\
-https://nytimes.com/2025/09/09/world/europe/macron-options-analysis.html
 

@@ -1,3 +1,7 @@
+**Flames sign goalie Dustin Wolf to 7-year, $7.5 million AAV extension**\
+`Wolf finished the season with a 29-16-8 record, a 2.64 goals-against average, and a .910 save percentage.`\
+https://nytimes.com/athletic/6613049/2025/09/09/flames-dustin-wolf-extension/
+
 **Flames sign goalie Dustin Wolf to 7-year, $7.5 million extension**\
 `Wolf finished the season with a 29-16-8 record, a 2.64 goals-against average, and a .910 save percentage.`\
 https://nytimes.com/athletic/6613049/2025/09/09/flames-dustin-wolf-extension/
