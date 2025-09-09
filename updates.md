@@ -1,3 +1,11 @@
+**Good Form**\
+`How to do essential exercises with correct technique.`\
+https://nytimes.com/spotlight/good-form
+
+**In This TV Drama, Mussolini Wants to ‘Make Italy Great Again’**\
+`A new series about the dictator makes its way to U.S. viewers, with a message about the perils of charismatic leaders.`\
+https://nytimes.com/2025/09/09/arts/television/mussolini-son-of-the-century.html
+
 **Iran and U.N. Watchdog Meet to Discuss Resuming Nuclear Inspections**\
 `Iran has not allowed inspections since its nuclear sites were bombed by Israel and the United States in June, but it hopes to stave off Western economic sanctions.`\
 https://nytimes.com/2025/09/09/world/europe/iran-iaea-nuclear-inspections.html

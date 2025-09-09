@@ -1,3 +1,11 @@
+**Good Form**\
+`How to do essential exercises with correct technique.`\
+https://nytimes.com/spotlight/good-form
+
+**In This TV Drama, Mussolini Wants to ‘Make Italy Great Again’**\
+`A new series about the dictator makes its way to U.S. viewers, with a message about the perils of charismatic leaders.`\
+https://nytimes.com/2025/09/09/arts/television/mussolini-son-of-the-century.html
+
 **Iran and U.N. Watchdog Meet to Discuss Resuming Nuclear Inspections**\
 `Iran has not allowed inspections since its nuclear sites were bombed by Israel and the United States in June, but it hopes to stave off Western economic sanctions.`\
 https://nytimes.com/2025/09/09/world/europe/iran-iaea-nuclear-inspections.html
@@ -31,12 +39,4 @@ https://nytimes.com/athletic/6613158/2025/09/09/big-12-officiating-crew-suspensi
 **Gabbard Retracted Intelligence Report on Venezuela**\
 `The report, which remains classified, described work by Richard Grenell, a former top intelligence official in the Trump administration.`\
 https://nytimes.com/2025/09/09/us/politics/gabbard-intelligence-report-venezuela.html
-
-**The Bounce: Let’s realign a 32-team NBA**\
-`The Bounce Newsletter  | This is The Athletic’s daily NBA newsletter.`\
-https://nytimes.com/athletic/6613185/2025/09/09/nba-expansion-realignment-divisions-the-bounce/
-
-**When Should You See a Doctor About Sleep?**\
-`Here are some signs that it’s time to make an appointment.`\
-https://nytimes.com/2025/09/09/well/sleep-medicine-appointment.html
 
