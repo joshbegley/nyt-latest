@@ -1,3 +1,7 @@
+**These Peace Negotiators Say It’s Time to Give Up on the Two-State Solution**\
+`The talk of two states may be an alibi, not an aspiration.`\
+https://nytimes.com/2025/09/08/opinion/two-state-solution-israel.html
+
 **How to watch Florida at LSU: Time, TV, streaming**\
 `Find out how to watch the Florida Gators play the LSU Tigers, with time, TV channel, and streaming information.`\
 https://nytimes.com/athletic/6611952/2025/09/08/florida-vs-lsu-stream-how-to-watch-sept-13/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/08/climate/china-clean-energy-fossil-fuel-research.h
 **Ten Dead in Mexico After Freight Train Crashes Into a Bus**\
 `Ten people were killed and 61 injured on Monday when a cargo train crashed into a double-decker passenger bus in central Mexico.`\
 https://nytimes.com/video/world/americas/100000010386320/mexico-train-bus-crash.html
-
-**Trump Says It’s Not His Signature. But Personal Letters Look Similar.**\
-`Donald Trump’s signature has evolved over the years, but when signing just his first name, he often includes the same flourish at the end.`\
-https://nytimes.com/2025/09/08/us/politics/trump-signature-epstein-letter.html
 
