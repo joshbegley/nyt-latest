@@ -1,3 +1,7 @@
+**Israel Drops Leaflets Ordering Gaza City Evacuation**\
+`Israel on Tuesday called on residents of Gaza City to evacuate as it pushes ahead with its full-scale invasion. Hundreds of thousands of people will have to decide whether to stay or flee to already overcrowded or destroyed areas.`\
+https://nytimes.com/video/world/middleeast/100000010386936/israel-gaza-city-evacuation-leaflets.html
+
 **Ray Hudson's magical broadcasting ride ends**\
 `The 70-year-old former player and coach is stepping away from the booth.`\
 https://nytimes.com/athletic/6608283/2025/09/09/ray-hudson-broadcasting-retire/

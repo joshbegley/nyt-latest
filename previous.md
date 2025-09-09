@@ -1,3 +1,7 @@
+**Israel Drops Leaflets Ordering Gaza City Evacuation**\
+`Israel on Tuesday called on residents of Gaza City to evacuate as it pushes ahead with its full-scale invasion. Hundreds of thousands of people will have to decide whether to stay or flee to already overcrowded or destroyed areas.`\
+https://nytimes.com/video/world/middleeast/100000010386936/israel-gaza-city-evacuation-leaflets.html
+
 **Ray Hudson's magical broadcasting ride ends**\
 `The 70-year-old former player and coach is stepping away from the booth.`\
 https://nytimes.com/athletic/6608283/2025/09/09/ray-hudson-broadcasting-retire/
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/09/09/us/trump-epstein-maha-report
 **United Arab Emirates Joins U.S. and China in Giving Away A.I. Technology**\
 `The Persian Gulf nation has “open sourced” technology meant to compete with OpenAI and China’s DeepSeek.`\
 https://nytimes.com/2025/09/09/technology/uae-emirates-ai-open-source.html
-
-**‘Farewell Parties’ Spring Up in France to Celebrate Prime Minister’s Ousting**\
-`People sang, danced and cheered after François Bayrou’s government lost a confidence vote and collapsed.`\
-https://nytimes.com/video/world/europe/100000010386868/france-vote-government-collapse.html
 
