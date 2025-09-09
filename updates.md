@@ -1,3 +1,7 @@
+**The New Symbol of the Brazilian Right: the American Flag**\
+`In a nod to President Trump, Brazil’s nationalist movement has adopted the stars and stripes. Now one flag could be the focus of an investigation involving the N.F.L.`\
+https://nytimes.com/2025/09/09/world/americas/brazil-american-flag-nfl.html
+
 **Israel Drops Leaflets Ordering Gaza City Evacuation**\
 `Israel on Tuesday called on residents of Gaza City to evacuate as it pushes ahead with its full-scale invasion. Hundreds of thousands of people will have to decide whether to stay or flee to already overcrowded or destroyed areas.`\
 https://nytimes.com/video/world/middleeast/100000010386936/israel-gaza-city-evacuation-leaflets.html

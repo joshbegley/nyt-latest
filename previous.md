@@ -1,3 +1,7 @@
+**The New Symbol of the Brazilian Right: the American Flag**\
+`In a nod to President Trump, Brazil’s nationalist movement has adopted the stars and stripes. Now one flag could be the focus of an investigation involving the N.F.L.`\
+https://nytimes.com/2025/09/09/world/americas/brazil-american-flag-nfl.html
+
 **Israel Drops Leaflets Ordering Gaza City Evacuation**\
 `Israel on Tuesday called on residents of Gaza City to evacuate as it pushes ahead with its full-scale invasion. Hundreds of thousands of people will have to decide whether to stay or flee to already overcrowded or destroyed areas.`\
 https://nytimes.com/video/world/middleeast/100000010386936/israel-gaza-city-evacuation-leaflets.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6612073/2025/09/09/seahawks-49ers-sam-darnold-klint
 **Trump Administration Live Updates: Release of Lewd Epstein Book Renews Pressure on President**\
 ``\
 https://nytimes.com/live/2025/09/09/us/trump-epstein-maha-report
-
-**United Arab Emirates Joins U.S. and China in Giving Away A.I. Technology**\
-`The Persian Gulf nation has “open sourced” technology meant to compete with OpenAI and China’s DeepSeek.`\
-https://nytimes.com/2025/09/09/technology/uae-emirates-ai-open-source.html
 
