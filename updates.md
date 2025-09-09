@@ -1,3 +1,7 @@
+**White House Set to Release Report on Childhood Health**\
+`The report, from a commission led by Robert F. Kennedy Jr., will most likely propose initiatives around medications but not direct restrictions on pesticides.`\
+https://nytimes.com/2025/09/09/us/politics/maha-report-rfk-jr-trump.html
+
 **Flames sign goalie Dustin Wolf to 7-year, $7.5 million AAV extension**\
 `Wolf finished the season with a 29-16-8 record, a 2.64 goals-against average, and a .910 save percentage.`\
 https://nytimes.com/athletic/6613049/2025/09/09/flames-dustin-wolf-extension/
