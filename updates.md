@@ -1,3 +1,23 @@
+**California Man Killed 2 Men He Met on Dating App, Police Say**\
+`Prosecutors said Rockim Prowell, 34, also stole their cars and tried to kill a third man. He was being held without bail.`\
+https://nytimes.com/2025/09/09/us/dating-app-murder-man-charged.html
+
+**Until Saturday: What's wrong with Clemson?**\
+`Until Saturday is The Athletic's free college football newsletter.`\
+https://nytimes.com/athletic/6613992/2025/09/09/clemson-football-2025-until-saturday/
+
+**Firefighters Scramble to Protect 2,000-Year-old Trees**\
+`California’s Garnet Fire has threatened the McKinley Grove in the Sierra National Forest. The sequoia trees are the world’s largest and can live for thousands of years.`\
+https://nytimes.com/video/us/100000010387235/sequoia-mckinley-grove-california.html
+
+**LeBron did not write article that carried his name in Chinese paper: Sources**\
+`Lebron's name was attached to a newspaper article that appeared in the People’s Daily newspaper on Monday.`\
+https://nytimes.com/athletic/6613732/2025/09/09/lakers-lebron-james-chinese-paper-nba/
+
+**Caleb Williams' gray undershirt: What does NFL rulebook say about it?**\
+`The Bears quarterback drew attention with a unique look against the Vikings on Monday night.`\
+https://nytimes.com/athletic/6613678/2025/09/09/caleb-williams-bears-vikings-gray-undershirt-monday-night/
+
 **Apple Introduces New, Slimmer iPhone**\
 `The Silicon Valley giant also introduced updates to its traditional smartphones, as well as its AirPods and Apple Watch.`\
 https://nytimes.com/2025/09/09/technology/apple-iphone-17-air-airpods.html
