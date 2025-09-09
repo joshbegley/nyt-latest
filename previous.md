@@ -1,3 +1,7 @@
+**Wealthy N.Y. Developers Call Meeting to Plot Mamdani’s Defeat**\
+`Some of New York’s largest landlords will convene on Tuesday morning for an urgent gathering to support former Gov. Andrew M. Cuomo, saying the “time to act is now.”`\
+https://nytimes.com/2025/09/08/nyregion/cuomo-blau-donors-mayor.html
+
 **'PTI' to continue, as ESPN gives Kornheiser, Wilbon 3-year deals: Source**\
 `The popular sports debate show aired its first episode in October 2001.`\
 https://nytimes.com/athletic/6612098/2025/09/08/espn-tony-kornheiser-michael-wilbon-contracts-pti/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/08/us/politics/senate-nominations-nuclear-option-tru
 **Tank Bigsby trade grades: Jaguars cash in on depth, as Eagles bolster RB room**\
 `The Jaguars like their depth behind Travis Etienne, especially rookie Bhayshul Tuten. `\
 https://nytimes.com/athletic/6612027/2025/09/08/tank-bigsby-eagles-jaguars-trade-grade/
-
-**Trump’s Treasury Secretary Threatens to Punch Housing Official in the Face**\
-`The dust-up, at a members-only club in Georgetown, was not the first time Scott Bessent has shown a hot temper.`\
-https://nytimes.com/2025/09/08/us/politics/trump-treasury-bessent-pulte-threat.html
 

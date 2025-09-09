@@ -1,3 +1,7 @@
+**Wealthy N.Y. Developers Call Meeting to Plot Mamdani’s Defeat**\
+`Some of New York’s largest landlords will convene on Tuesday morning for an urgent gathering to support former Gov. Andrew M. Cuomo, saying the “time to act is now.”`\
+https://nytimes.com/2025/09/08/nyregion/cuomo-blau-donors-mayor.html
+
 **Alex Anthopoulos on Braves' season, Brian Snitker's future, Ozzie Albies, Ha-Seong Kim**\
 `Atlanta's general manager and president of baseball operations answers questions about a range of topics, including the team's tough season.`\
 https://nytimes.com/athletic/6612000/2025/09/08/braves-alex-anthopoulos-brian-snitker-ozzie-albies-ha-seong-kim/
