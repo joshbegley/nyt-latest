@@ -1,3 +1,7 @@
+**Alex Anthopoulos on Braves' season, Brian Snitker's future, Ozzie Albies, Ha-Seong Kim**\
+`Atlanta's general manager and president of baseball operations answers questions about a range of topics, including the team's tough season.`\
+https://nytimes.com/athletic/6612000/2025/09/08/braves-alex-anthopoulos-brian-snitker-ozzie-albies-ha-seong-kim/
+
 **'PTI' to continue, as ESPN gives Kornheiser, Wilbon 3-year deals: Source**\
 `The popular sports debate show aired its first episode in October 2001.`\
 https://nytimes.com/athletic/6612098/2025/09/08/espn-tony-kornheiser-michael-wilbon-contracts-pti/
