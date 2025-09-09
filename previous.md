@@ -1,3 +1,11 @@
+**Explained: Manchester City and the Premier League's APT settlement and what it means for everyone else**\
+`What was the issue, why has it been settled and will it have any bearing on the bigger case between City and the Premier League?`\
+https://nytimes.com/athletic/6610762/2025/09/09/man-city-premier-league-apt-settlement-explainer/
+
+**Two Leading European Tech Firms Strike an A.I. Partnership**\
+`ASML, the Dutch maker of semiconductor equipment, is investing about $1.5 billion in Mistral, the French A.I. start-up.`\
+https://nytimes.com/2025/09/09/business/asml-mistral-ai-chips-investment.html
+
 **Full Time: A tale of 2 Thompson sisters**\
 `Welcome to Full Time, The Athletic's women's soccer newsletter.`\
 https://nytimes.com/athletic/6612475/2025/09/09/alyssa-thompson-chelsea-nwsl-full-time/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/09/09/world/africa/gaza-aid-flotilla-drone-tunisia.html
 **Word of the Day: raconteur**\
 `This word has appeared in 31 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2025/09/09/learning/word-of-the-day-raconteur.html
-
-**Forest fans: What are your thoughts on Nuno's exit? And who should be next?**\
-`Was this the right move? What are your memories of Nuno's time in charge? And who should be next?`\
-https://nytimes.com/athletic/6612336/2025/09/09/forest-nuno-exit-next-coach/
-
-**The New York Times in Print for Tuesday, Sep. 9, 2025**\
-``\
-https://nytimes.com/issue/todayspaper/2025/09/09/todays-new-york-times
 
