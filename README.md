@@ -1,3 +1,23 @@
+**Latest Revelations Complicate Trump’s Sweeping Denials About Epstein**\
+`President Trump often succeeds in pivoting the national conversation, but he is finding that more difficult when it comes to Jeffrey Epstein.`\
+https://nytimes.com/2025/09/09/us/politics/trumps-epstein-response.html
+
+**How to watch Pirates at Orioles: Time, TV, streaming for September 10**\
+`Find out how to watch the Pittsburgh Pirates play the Baltimore Orioles, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6614380/2025/09/09/pirates-vs-orioles-stream-how-to-watch-sept-10/
+
+**How to watch Royals at Guardians: Time, TV, streaming for September 10**\
+`Find out how to watch the Kansas City Royals play the Cleveland Guardians, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6614369/2025/09/09/royals-vs-guardians-stream-how-to-watch-sept-10/
+
+**How to watch Nationals at Marlins: Time, TV, streaming for September 10**\
+`Find out how to watch the Washington Nationals play the Miami Marlins, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6614366/2025/09/09/nationals-vs-marlins-stream-how-to-watch-sept-10/
+
+**How to watch Mets at Phillies: Time, TV, streaming for September 10**\
+`Find out how to watch the New York Mets play the Philadelphia Phillies, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6614365/2025/09/09/mets-vs-phillies-stream-how-to-watch-sept-10/
+
 **Man Pleads Guilty to Planning Attack on Power Substation in Tennessee**\
 `Skyler Philippi, 24, planned to use a drone packed with explosive materials to further an extremist ideology, prosecutors said.`\
 https://nytimes.com/2025/09/09/us/tennessee-energy-facility-destroy-guilty.html
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/6614330/2025/09/09/broncos-vs-colts-stream-how-to-w
 **English football 'rife with financial recklessness', claims report on game's health**\
 `The Fair Game Index looks at clubs in England’s top six tiers and assesses them eight key indicators of performance`\
 https://nytimes.com/athletic/6613959/2025/09/09/english-football-finances-report-2025-fair-game-index/
-
-**What Note? On Epstein Sketch, Republicans Revert to Shrugs.**\
-`The Republican response to the release of a suggestive note to Jeffrey Epstein apparently signed by President Trump followed a familiar pattern of deflection.`\
-https://nytimes.com/2025/09/09/us/politics/republicans-trump-epstein-sketch.html
-
-**Why Trump Is Targeting a Brazilian Judge**\
-`Tens of thousands of supporters of former President Jair Bolsonaro flooded streets in Brazil to protest the criminal prosecution of Bolsonaro on charges that he attempted to stage a coup in 2022.`\
-https://nytimes.com/video/world/americas/100000010385022/trump-moraes-bolsonaro-trial.html
-
-**Now a democratic republic, Nepal was a monarchy for nearly 250 years.**\
-`By Ashley Ahn`\
-https://nytimes.com/live/2025/09/09/world/nepal-protests/now-a-democratic-republic-nepal-was-a-monarchy-for-nearly-250-years
-
-**A Phony Trump Check and a ‘Depreciated’ Woman in Epstein’s Birthday Book**\
-`A photo in Jeffrey Epstein’s birthday book shows the disgraced financier holding a novelty check with a signature of “DJ TRUMP.” It includes a woman who dated both men in the 1990s.`\
-https://nytimes.com/2025/09/09/us/epstein-trump-birthday-book.html
-
-**Derek Cornelius' impressive free kick leads Canada past Wales: Takeaways**\
-`Wales will take on England Oct. 9. and Canada will face Australia Oct.10.`\
-https://nytimes.com/athletic/6614082/2025/09/09/canada-derek-cornelius-wales-free-kick/
 
