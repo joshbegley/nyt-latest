@@ -1,3 +1,11 @@
+**Princeton Student Held by Iran-Backed Militia Is Released, Trump Says**\
+`Iraq’s prime minister also said the group, Kataib Hezbollah, had freed Elizabeth Tsurkov, a Russian-Israeli graduate student taken hostage in Iraq in 2023, in a deal with the United States.`\
+https://nytimes.com/2025/09/09/world/middleeast/elizabeth-tsurkov-hostage-released-iraq.html
+
+**Supreme Court Agrees to Review Trump’s Sprawling Tariffs**\
+`The justices moved quickly to schedule oral argument to consider the legality of the president’s signature economic initiative.`\
+https://nytimes.com/2025/09/09/us/politics/trump-tariffs-supreme-court.html
+
 **The Briefing - Serbia 0 England 5: World Cup qualification within sight as Tuchel's team click**\
 `England emerged from what had been billed as the toughest game in the group with a comprehensive victory to maintain their pristine record`\
 https://nytimes.com/athletic/6613038/2025/09/09/england-serbia-tuchel-rogers-madueke/
