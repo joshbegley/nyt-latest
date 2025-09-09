@@ -1,3 +1,7 @@
+**Tank Bigsby trade grades: Jaguars cash in on depth, as Eagles bolster RB room**\
+`The Jaguars like their depth behind Travis Etienne, especially rookie Bhayshul Tuten. `\
+https://nytimes.com/athletic/6612027/2025/09/08/tank-bigsby-eagles-jaguars-trade-grade/
+
 **Trump’s Treasury Secretary Threatens to Punch Housing Official in the Face**\
 `The dust-up, at a members-only club in Georgetown, was not the first time Scott Bessent has shown a hot temper.`\
 https://nytimes.com/2025/09/08/us/politics/trump-treasury-bessent-pulte-threat.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6611917/2025/09/08/cubs-vs-braves-stream-how-to-wat
 **Eagles acquire RB Tank Bigsby in trade with Jaguars: Source**\
 `The Jaguars will receive fifth- and sixth-round picks in the 2026 draft from Philadelphia in the Bigsby trade.`\
 https://nytimes.com/athletic/6611866/2025/09/08/eagles-tank-bigsby-jaguars-trade/
-
-**The Restaurant List 2025**\
-`Here are the 50 best places in America right now.`\
-https://nytimes.com/interactive/2025/dining/best-restaurants-america.html
 
