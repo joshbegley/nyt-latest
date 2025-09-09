@@ -1,3 +1,11 @@
+**Aid Group Says Drone Struck Gaza-Bound Boat Docked in Tunisia**\
+`Officials in Tunisia said there was no evidence of an attack on the ship, which the Global Sumud Flotilla hoped to use to bring humanitarian goods to Gaza.`\
+https://nytimes.com/2025/09/09/world/africa/gaza-aid-flotilla-drone-tunisia.html
+
+**Word of the Day: raconteur**\
+`This word has appeared in 31 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2025/09/09/learning/word-of-the-day-raconteur.html
+
 **Forest fans: What are your thoughts on Nuno's exit? And who should be next?**\
 `Was this the right move? What are your memories of Nuno's time in charge? And who should be next?`\
 https://nytimes.com/athletic/6612336/2025/09/09/forest-nuno-exit-next-coach/
