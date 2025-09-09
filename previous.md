@@ -7,7 +7,7 @@ https://nytimes.com/2025/09/09/sports/hockey/ken-dryden-dead.html
 https://nytimes.com/2025/09/09/us/boston-mayor-wu-preliminary-election.html
 
 **NFL says Carter’s ejection counts as suspension; eligible to play in Week 2**\
-`Carter was ejected from the Eagles’ Week 1 win over the Cowboys after the opening kickoff when he spat at Cowboys quarterback Dak Prescott.`\
+`Carter will forfeit game check after ejection for spitting at Cowboys QB Dak Prescott in Eagles' Week 1 win.`\
 https://nytimes.com/athletic/6610697/2025/09/09/jalen-carter-spitting-suspension-eagles-dak-prescott-nfl/
 
 **Can Trump Deflate the Epstein Scandal?**\
