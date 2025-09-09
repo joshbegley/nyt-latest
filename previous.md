@@ -1,3 +1,7 @@
+**What Note? On Epstein Sketch, Republicans Revert to Shrugs.**\
+`The Republican response to the release of a suggestive note to Jeffrey Epstein apparently signed by President Trump followed a familiar pattern of deflection.`\
+https://nytimes.com/2025/09/09/us/politics/republicans-trump-epstein-sketch.html
+
 **Why Trump Is Targeting a Brazilian Judge**\
 `Tens of thousands of supporters of former President Jair Bolsonaro flooded streets in Brazil to protest the criminal prosecution of Bolsonaro on charges that he attempted to stage a coup in 2022.`\
 https://nytimes.com/video/world/americas/100000010385022/trump-moraes-bolsonaro-trial.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6614069/2025/09/09/bill-belichick-jordon-hudson-tra
 **Chief Justice Roberts Lets Trump Block Foreign Aid for Now**\
 `Acting on his own, the chief justice issued an “administrative stay” pausing a trial judge’s ruling while the full court considers the matter.`\
 https://nytimes.com/2025/09/09/us/politics/supreme-court-trump-foreign-aid.html
-
-**For Nepal’s Protesters, Wealthy ‘Nepo Kids’ Are a Source of Outrage**\
-`Videos and photos purporting to show the privileged lifestyles of children of the elite have fueled anger among young people.`\
-https://nytimes.com/2025/09/09/world/asia/nepal-protests-nepo-kids-social-media.html
 
