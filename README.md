@@ -15,7 +15,7 @@ https://nytimes.com/interactive/2025/09/09/health/maha-strategy-report.html
 https://nytimes.com/2025/09/09/world/europe/france-macron-prime-minister-lecornu.html
 
 **How MAHA’s Wellness Influencers Spread Conspiracies About Health Care**\
-`MAHA’s wellness influencers are spreading conspiracies about health care all over the internet. New York Times Opinion analyzed thousands of their videos. Here’s what we found.`\
+`MAHA’s wellness influencers are spreading conspiracy theories about health care all over the internet. New York Times Opinion analyzed thousands of their videos. Here’s what we found.`\
 https://nytimes.com/video/opinion/100000010387274/how-mahas-wellness-influencers-spread-conspiracies-about-health-care.html
 
 **Deion quiet on starting QB but Staub takes most of first-team snaps**\
