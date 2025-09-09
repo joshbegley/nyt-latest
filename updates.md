@@ -1,3 +1,11 @@
+**Nuno Espirito Santo's Nottingham Forest exit feels unnecessary, potentially damaging and pretty sad**\
+`For a little while, on the surface at least, Nottingham Forest seemed like it was a relatively serene place to be. Not now`\
+https://nytimes.com/athletic/6612481/2025/09/09/nuno-espirito-santo-nottingham-forest-farewell/
+
+**Israeli Military Orders Residents of Gaza City to Evacuate**\
+`Hundreds of thousands of people will have to decide whether to risk staying put or fleeing south to overcrowded areas, many of which are in ruins, as Israel looks set to launch a full invasion of the city.`\
+https://nytimes.com/2025/09/09/world/middleeast/israel-gaza-city-evacuation.html
+
 **Late Night Misses the Defense Department Already**\
 `President Trump has renamed it the Department of War, “which is what people call the clearance section at TJ Maxx,” Jimmy Fallon said.`\
 https://nytimes.com/2025/09/09/arts/television/late-night-department-of-war.html
