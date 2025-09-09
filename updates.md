@@ -1,3 +1,7 @@
+**Tank Bigsby trade grades: Jaguars cash in on depth, as Eagles bolster RB room**\
+`The Jaguars like their depth behind Travis Etienne, especially rookie Bhayshul Tuten. `\
+https://nytimes.com/athletic/6612027/2025/09/08/tank-bigsby-eagles-jaguars-trade-grade/
+
 **Trump’s Treasury Secretary Threatens to Punch Housing Official in the Face**\
 `The dust-up, at a members-only club in Georgetown, was not the first time Scott Bessent has shown a hot temper.`\
 https://nytimes.com/2025/09/08/us/politics/trump-treasury-bessent-pulte-threat.html
