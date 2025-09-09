@@ -1,3 +1,7 @@
+**Troops Deployed After Day of Violent Protests in Nepal**\
+`Protesters set fire to government buildings and the homes of politicians as unrest over corruption, censorship and economic issues stretched into a second day.`\
+https://nytimes.com/2025/09/09/world/asia/nepal-violent-protests-army.html
+
 **Denmark Forced Contraception on Greenlandic Girls, a Scathing Report Confirms**\
 `Danish doctors inserted intrauterine devices into thousands of women and girls in Greenland, often without their consent or knowledge, a scandal that has reinforced a legacy of colonial abuses.`\
 https://nytimes.com/2025/09/09/world/europe/greenland-denmark-forced-contraception.html
@@ -29,8 +33,4 @@ https://nytimes.com/2025/09/09/us/dating-app-murder-man-charged.html
 **Until Saturday: What's wrong with Clemson?**\
 `Until Saturday is The Athletic's free college football newsletter.`\
 https://nytimes.com/athletic/6613992/2025/09/09/clemson-football-2025-until-saturday/
-
-**Firefighters Scramble to Protect 2,000-Year-old Trees**\
-`California’s Garnet Fire has threatened the McKinley Grove in the Sierra National Forest. The sequoia trees are the world’s largest and can live for thousands of years.`\
-https://nytimes.com/video/us/100000010387235/sequoia-mckinley-grove-california.html
 
