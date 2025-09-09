@@ -1,3 +1,7 @@
+**Peyton Manning sent handwritten letters inviting Pope Leo XIV to ManningCast**\
+`Hall of Fame QB says Pope has an "open invitation" to be a guest on alternative presentation of MNF.`\
+https://nytimes.com/athletic/6612217/2025/09/08/pope-leo-manning-cast/
+
 **Wealthy N.Y. Developers Call Meeting to Plot Mamdani’s Defeat**\
 `Some of New York’s largest landlords will convene on Tuesday morning for an urgent gathering to support former Gov. Andrew M. Cuomo, saying the “time to act is now.”`\
 https://nytimes.com/2025/09/08/nyregion/cuomo-blau-donors-mayor.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/08/us/sequoia-mckinley-grove-california.html
 **Thune Moves to Speed Trump Nominees Past Democratic Blockade**\
 `Republicans said the maneuver to change the Senate’s rules, the latest step that would weaken the filibuster, was necessary to overcome Democratic obstruction of President Trump’s nominees.`\
 https://nytimes.com/2025/09/08/us/politics/senate-nominations-nuclear-option-trump.html
-
-**Tank Bigsby trade grades: Jaguars cash in on depth, as Eagles bolster RB room**\
-`The Jaguars like their depth behind Travis Etienne, especially rookie Bhayshul Tuten. `\
-https://nytimes.com/athletic/6612027/2025/09/08/tank-bigsby-eagles-jaguars-trade-grade/
 
