@@ -1,3 +1,11 @@
+**Ray Hudson's magical broadcasting ride ends**\
+`The 70-year-old former player and coach is stepping away from the booth.`\
+https://nytimes.com/athletic/6608283/2025/09/09/ray-hudson-broadcasting-retire/
+
+**The Stakes of the Murdoch Family’s Peace Deal**\
+`A new accord ends a bitter power struggle and gives Rupert Murdoch’s elder son control of the family’s media empire.`\
+https://nytimes.com/2025/09/09/business/dealbook/lachlan-murdoch-family-deal.html
+
 **After disastrous opener, Ben Johnson is officially a Chicago Bears coach**\
 `There was magic in the air at Soldier Field for Johnson's first game. Chicago had the game in hand and then, poof, a W turned into an L.`\
 https://nytimes.com/athletic/6612333/2025/09/09/bears-vikings-ben-johnson-debut-monday-night-loss/
