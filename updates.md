@@ -1,3 +1,23 @@
+**How to watch Florida at LSU: Time, TV, streaming**\
+`Find out how to watch the Florida Gators play the LSU Tigers, with time, TV channel, and streaming information.`\
+https://nytimes.com/athletic/6611952/2025/09/08/florida-vs-lsu-stream-how-to-watch-sept-13/
+
+**How to watch Vanderbilt at South Carolina: Time, TV, streaming**\
+`Find out how to watch the Vanderbilt Commodores play the South Carolina Gamecocks, with time, TV channel, and streaming information.`\
+https://nytimes.com/athletic/6611948/2025/09/08/vanderbilt-vs-south-carolina-stream-how-to-watch-sept-13/
+
+**How to watch Rays at White Sox: Time, TV, streaming for September 9**\
+`Find out how to watch the Tampa Bay Rays play the Chicago White Sox, with time, TV channel, and streaming information.`\
+https://nytimes.com/athletic/6611944/2025/09/08/rays-vs-white-sox-stream-how-to-watch-sept-9/
+
+**How to watch Utah at Wyoming: Time, TV, streaming**\
+`Find out how to watch the Utah Utes play the Wyoming Cowboys, with time, TV channel, and streaming information.`\
+https://nytimes.com/athletic/6611936/2025/09/08/utah-vs-wyoming-stream-how-to-watch-sept-13/
+
+**How to watch Cubs at Braves: Time, TV, streaming for September 9**\
+`Find out how to watch the Chicago Cubs play the Atlanta Braves, with time, TV channel, and streaming information.`\
+https://nytimes.com/athletic/6611917/2025/09/08/cubs-vs-braves-stream-how-to-watch-sept-9/
+
 **Eagles acquiring RB Tank Bigsby in trade with Jaguars: Source**\
 `Jaguars to receive fifth- and sixth-round picks in the 2026 draft from Philadelphia.`\
 https://nytimes.com/athletic/6611866/2025/09/08/eagles-tank-bigsby-jaguars-trade/
