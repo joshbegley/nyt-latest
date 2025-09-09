@@ -1,3 +1,7 @@
+**Israel Launched an Attack in Qatar, Targeting Hamas Leaders**\
+`Also, a look at what’s in R.F.K. Jr.’s report on childhood health. Here’s the latest at the end of Tuesday.`\
+https://nytimes.com/2025/09/09/briefing/israel-strike-hamas-qatar-high-school-reading.html
+
 **Carragher warns against holding Club World Cup every two years**\
 `Carragher said earlier this summer that he had "no time" for FIFA's new competition`\
 https://nytimes.com/athletic/6614120/2025/09/09/football-calendar-club-world-cup-changes-carragher/
@@ -29,8 +33,4 @@ https://nytimes.com/2025/09/09/world/middleeast/elizabeth-tsurkov-hostage-releas
 **Supreme Court Agrees to Review Trump’s Sprawling Tariffs**\
 `The justices moved quickly to schedule oral argument to consider the legality of the president’s signature economic initiative.`\
 https://nytimes.com/2025/09/09/us/politics/trump-tariffs-supreme-court.html
-
-**The Briefing - Serbia 0 England 5: World Cup qualification within sight as Tuchel's team click**\
-`England emerged from what had been billed as the toughest game in the group with a comprehensive victory to maintain their pristine record`\
-https://nytimes.com/athletic/6613038/2025/09/09/england-serbia-tuchel-rogers-madueke/
 

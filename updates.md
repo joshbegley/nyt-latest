@@ -1,3 +1,7 @@
+**Israel Launched an Attack in Qatar, Targeting Hamas Leaders**\
+`Also, a look at what’s in R.F.K. Jr.’s report on childhood health. Here’s the latest at the end of Tuesday.`\
+https://nytimes.com/2025/09/09/briefing/israel-strike-hamas-qatar-high-school-reading.html
+
 **Carragher warns against holding Club World Cup every two years**\
 `Carragher said earlier this summer that he had "no time" for FIFA's new competition`\
 https://nytimes.com/athletic/6614120/2025/09/09/football-calendar-club-world-cup-changes-carragher/
