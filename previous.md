@@ -1,3 +1,7 @@
+**Quote of the Day: David Baltimore, 87, Nobelist Who Shook Up Molecular Biology, Dies**\
+`Quotation of the Day for Tuesday, September 9, 2025.`\
+https://nytimes.com/2025/09/08/pageoneplus/quote-of-the-day-david-baltimore-87-nobelist-who-shook-up-molecular-biology-dies.html
+
 **Peyton Manning sent handwritten letters inviting Pope Leo XIV to 'ManningCast'**\
 `Hall of Fame QB says pope has an "open invitation" to be a guest on alternative presentation of MNF.`\
 https://nytimes.com/athletic/6612217/2025/09/08/pope-leo-manning-cast/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/08/crosswords/daily-puzzle-2025-09-09.html
 **Firefighters Race to Save a Treasured Sequoia Grove in California**\
 `Giant sequoias can live for thousands of years, but wildfires have killed staggering numbers of the trees in recent years.`\
 https://nytimes.com/2025/09/08/us/sequoia-mckinley-grove-california.html
-
-**Thune Moves to Speed Trump Nominees Past Democratic Blockade**\
-`Republicans said the maneuver to change the Senate’s rules, the latest step that would weaken the filibuster, was necessary to overcome Democratic obstruction of President Trump’s nominees.`\
-https://nytimes.com/2025/09/08/us/politics/senate-nominations-nuclear-option-trump.html
 
