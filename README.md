@@ -1,3 +1,11 @@
+**Steelers to sign Jabrill Peppers, former Patriots safety: Source**\
+`Peppers spent the last three seasons in New England.`\
+https://nytimes.com/athletic/6613156/2025/09/09/steelers-jabrill-peppers-signed-patriots-nfl-news/
+
+**'That’s the hard part about losing': Sidney Crosby on speculation about his future with the Penguins**\
+`Crosby wants to win, which has not been happening in Pittsburgh. Will that lead him elsewhere? He addressed the possibility Monday.`\
+https://nytimes.com/athletic/6613059/2025/09/09/sidney-crosby-penguins-canadiens-future/
+
 **In New Book, Think Tank Behind Project 2025 Takes On the Constitution**\
 `The Heritage Foundation’s clause-by-clause analysis, to be published next month, is an originalist manifesto and a showcase for aspiring Supreme Court nominees.`\
 https://nytimes.com/2025/09/09/us/politics/heritage-foundation-constitution-book.html
@@ -29,12 +37,4 @@ https://nytimes.com/live/2025/09/09/world/nepal-protests/seismic-protests-in-asi
 **Giants couldn't bench Russell Wilson after one bad game. But what about after two?**\
 `If the Cowboys game resembles Sunday’s dysfunctional mess, then it will be time to switch to rookie Jaxson Dart.`\
 https://nytimes.com/athletic/6612309/2025/09/09/ny-giants-russell-wilson-jaxson-dart-commanders/
-
-**The Lone G.O.P. Governor Opposing Trump’s War on Offshore Wind**\
-`Gov. Glenn Youngkin, Republican of Virginia, has championed a wind farm under construction off the coast of his state. He’s trying to persuade President Trump to leave it alone.`\
-https://nytimes.com/2025/09/09/climate/youngkin-virginia-offshore-wind-trump.html
-
-**Why Should Democrats Fix Republicans' Problems?**\
-`Jamelle Bouie, an Opinion columnist, argues the Republican Party has “completely abdicated any serious attempt to govern the country” and that Democrats should stop bailing them out.`\
-https://nytimes.com/video/opinion/100000010387150/why-should-democrats-fix-republicans-problems.html
 
