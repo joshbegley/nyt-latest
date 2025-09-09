@@ -1,3 +1,15 @@
+**Troops Deployed After Day of Violent Protests in Nepal**\
+`Protesters set fire to government buildings and the homes of politicians as unrest over corruption, censorship and economic issues stretched into a second day.`\
+https://nytimes.com/2025/09/09/world/asia/nepal-violent-protests-army.html
+
+**Denmark Forced Contraception on Greenlandic Girls, a Scathing Report Confirms**\
+`Danish doctors inserted intrauterine devices into thousands of women and girls in Greenland, often without their consent or knowledge, a scandal that has reinforced a legacy of colonial abuses.`\
+https://nytimes.com/2025/09/09/world/europe/greenland-denmark-forced-contraception.html
+
+**California Man Killed 2 Men He Met on Dating App, Authorities Say**\
+`Prosecutors said Rockim Prowell, 34, also stole their cars and tried to kill a third man. He was being held without bail.`\
+https://nytimes.com/2025/09/09/us/dating-app-murder-man-charged.html
+
 **NFL says Carter’s ejection counts as suspension; eligible to play in Week 2**\
 `Carter will forfeit game check after ejection for spitting at Cowboys QB Dak Prescott in Eagles' Week 1 win.`\
 https://nytimes.com/athletic/6610697/2025/09/09/jalen-carter-spitting-suspension-eagles-dak-prescott-nfl/
