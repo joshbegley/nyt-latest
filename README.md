@@ -1,3 +1,11 @@
+**In New Book, Think Tank Behind Project 2025 Takes On the Constitution**\
+`The Heritage Foundation’s clause-by-clause analysis, to be published next month, is an originalist manifesto and a showcase for aspiring Supreme Court nominees.`\
+https://nytimes.com/2025/09/09/us/politics/heritage-foundation-constitution-book.html
+
+**The Windup: Two no-hit bids spoiled late**\
+`Welcome to The Windup, The Athletic's MLB newsletter.`\
+https://nytimes.com/athletic/6612463/2025/09/09/dodgers-rockies-no-hitter-the-windup/
+
 **Exxon Wants to Make More of the Materials Needed for E.V. Batteries**\
 `The oil giant said Tuesday that it was acquiring assets from a Chicago company as it looks to start producing graphite, a key battery ingredient, by the end of the decade.`\
 https://nytimes.com/2025/09/09/business/energy-environment/exxon-mobil-graphite-electric-vehicles.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/09/09/climate/youngkin-virginia-offshore-wind-trump.htm
 **Why Should Democrats Fix Republicans' Problems?**\
 `Jamelle Bouie, an Opinion columnist, argues the Republican Party has “completely abdicated any serious attempt to govern the country” and that Democrats should stop bailing them out.`\
 https://nytimes.com/video/opinion/100000010387150/why-should-democrats-fix-republicans-problems.html
-
-**Is Bengals' problematic run defense now fixed?**\
-`New additions like TJ Slaton and Demetrius Knight Jr. were pivotal in shutting down the Browns' running game on Sunday.`\
-https://nytimes.com/athletic/6612974/2025/09/09/bengals-run-defense-tj-slaton/
-
-**Got Pelicans questions? Submit to William Guillory for the upcoming mailbag**\
-`There&#8217;s been no shortage of questions surrounding the New Orleans Pelicans and some of the polarizing moves made during Joe Dumars&#8217; first offseason as the lead executive.`\
-https://nytimes.com/athletic/6613001/2025/09/09/pelicans-nba-offseason-questions-mailbag/
 
