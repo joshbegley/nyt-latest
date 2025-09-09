@@ -1,3 +1,19 @@
+**Full Time: A tale of 2 Thompson sisters**\
+`Welcome to Full Time, The Athletic's women's soccer newsletter.`\
+https://nytimes.com/athletic/6612475/2025/09/09/alyssa-thompson-chelsea-nwsl-full-time/
+
+**He Nearly Died on the Football Field. Is That Why Everybody Loves Him?**\
+`Damar Hamlin’s heart stopped beating after a tackle on “Monday Night Football” in 2023. He wants to be known for more than that.`\
+https://nytimes.com/2025/09/09/nyregion/damar-hamlin-buffalo-bills-cardiac-arrest.html
+
+**Lottery Jackpot**\
+`What would you do if you were a winner?`\
+https://nytimes.com/2025/09/09/learning/lottery-jackpot.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/09/09/crosswords/spelling-bee-forum.html
+
 **How to watch Minnesota at California: Time, TV, streaming**\
 `Find out how to watch the Minnesota Golden Gophers play the California Golden Bears, with time, TV channel, and streaming information.`\
 https://nytimes.com/athletic/6612446/2025/09/09/minnesota-vs-california-stream-how-to-watch-sept-13/
