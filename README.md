@@ -1,3 +1,7 @@
+**The Poverty Rate Was Stable Last Year, as Household Income Grew Slightly**\
+`As pandemic subsidies disappeared, wages kept workers just ahead of inflation, although gaps have widened for some groups.`\
+https://nytimes.com/2025/09/09/business/economy/us-poverty-rate-2024.html
+
 **Patagonia’s Big Bet on a Modest Grain**\
 `The apparel company thinks that a little-used wheat alternative can boost regenerative farming and help the planet. Not everyone agrees.`\
 https://nytimes.com/2025/09/09/climate/patagonias-regenerative-farming-kernza.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/09/world/middleeast/hamas-responsibility-jerusalem-b
 **Fantasy football market share report: Bench Isiah Pacheco, add Bhayshul Tuten and more**\
 `Michael Salfino mines the touches and targets data from Week 1 to help inform roster decisions going forward, like benching Isiah Pacheco.`\
 https://nytimes.com/athletic/6613366/2025/09/09/fantasy-football-market-share-report-week-2-pacheco/
-
-**Critical fantasy football insights for Week 2: Packers go deep**\
-`Brandon Funston and Jess Bryant look at weekly usage reports to help you with Week 2 waivers, start/sit decisions and more. `\
-https://nytimes.com/athletic/6499966/2025/09/09/critical-fantasy-football-insights-for-week-2-packers-go-deep-kenneth-walkers-scary-stuff/
 
