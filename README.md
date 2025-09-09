@@ -1,3 +1,7 @@
+**Ravens know they have much to fix as their focus shifts to Browns in Week 2**\
+`Losses like the one Baltimore encountered tend to leave scar tissue, but John Harbaugh's team can't afford to have a hangover vs. Cleveland.`\
+https://nytimes.com/athletic/6611507/2025/09/09/ravens-blown-leads-browns-week-2/
+
 **Bears QB Caleb Williams' accuracy goes awry after perfect start in loss to Vikings**\
 `Williams had pinpoint precision to begin the 2025 season, then things fell apart and he missed receivers by a lot.`\
 https://nytimes.com/athletic/6612362/2025/09/09/bears-caleb-williams-accuracy-vikings/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6610989/2025/09/09/nfl-power-rankings-week-2-bills-
 **A time of change for both New York Rangers and The Athletic's new beat writer**\
 `Meet Vincent Mercogliano, who joins The Athletic after six years covering New York and the NHL for lohud.com and the USA TODAY Network.`\
 https://nytimes.com/athletic/6610842/2025/09/09/new-york-rangers-vincent-mercogliano-nhl-beat-writer/
-
-**Smith: McLaren's drivers act like perfect teammates in an F1 title fight. It feels off**\
-`The 2025 F1 title fight between Lando Norris and Oscar Piastri remains friendly, That jars for fans and other sports stars`\
-https://nytimes.com/athletic/6611497/2025/09/09/mclaren-f1-team-order-norris-piastri/
 
