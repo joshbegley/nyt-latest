@@ -1,3 +1,11 @@
+**Vuelta a Espana week two: More protests, more UAE victories, and a closer battle for the red jersey than expected?**\
+`Jonas Vingegaard remains in the lead as the race enters its final week – but Joao Almeida is pushing him all the way`\
+https://nytimes.com/athletic/6610849/2025/09/09/vuelta-a-espana-week-two-more-protests-more-uae-victories-and-a-closer-battle-for-the-red-jersey-than-expected/
+
+**France’s Political Crisis**\
+`President Emmanuel Macron said he would appoint a new prime minister, the fifth in less than two years, after the government collapsed in a no-confidence vote.`\
+https://nytimes.com/2025/09/09/briefing/france-government-crisis-nepal.html
+
 **In Epstein’s ‘Birthday Book,’ a Celebration of His Lecherous Exploits**\
 `The book containing 50th birthday tributes to Jeffrey Epstein was released on Monday by the House Oversight Committee.`\
 https://nytimes.com/2025/09/09/business/jeffrey-epstein-birthday-book.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6580953/2025/09/09/premier-league-local-players/
 **'Scouse not English': Discussing Liverpool's difficult relationship with the England team**\
 `The Athletic's Walk On podcast panel analyse the antagonism many Liverpool fans have for the national team`\
 https://nytimes.com/athletic/6610462/2025/09/09/liverpool-england-football-scouse-not-english/
-
-**The origin stories of every Premier League club: Armaments, class, and a St Bernard dog**\
-`The backstory for every one of the 2025-26 Premier League teams explained...`\
-https://nytimes.com/athletic/6591527/2025/09/09/premier-league-club-origin-story/
-
-**J.J. McCarthy flips the script with 3 late TDs to propel Vikings over Bears: Key takeaways**\
-`The Vikings orchestrated a fourth-quarter comeback to defeat the Bears 27-24 in McCarthy’s NFL debut.`\
-https://nytimes.com/athletic/6611909/2025/09/09/bears-vikings-score-result-takeaways-mnf-week-1/
 
