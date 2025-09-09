@@ -1,3 +1,11 @@
+**Virginia 11th Congressional District Special Election Results**\
+`Get live results and maps from the 2025 Virginia special congressional election.`\
+https://nytimes.com/interactive/2025/09/09/us/elections/results-virginia-us-house-11-special.html
+
+**Boston Mayoral Primary Election Results**\
+`Get live results from the 2025 Boston preliminary municipal election.`\
+https://nytimes.com/interactive/2025/09/09/us/elections/results-boston-mayor-primary.html
+
 **Barcelona to host first home match of the season at 6,000-capacity ground**\
 `The Spanish champions had hoped to play their September 14 fixture against Valencia at the Camp Nou`\
 https://nytimes.com/athletic/6601886/2025/09/09/barcelona-stadium-nou-camp-home-matches/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6613368/2025/09/09/wander-franco-mental-health-situ
 **A Censorship Playbook Fails in Nepal, Sparking Unrest**\
 `Nepal’s recent social media ban, part of a global censorship trend, helped set off widespread unrest, forcing the government to reverse course.`\
 https://nytimes.com/2025/09/09/world/asia/nepal-protests-social-media-ban-censorship.html
-
-**U.S. Wildfire Fighters to Mask Up After Decades-Long Ban on Smoke Protections**\
-`The Forest Service is changing course as it faces growing pressure over firefighters who are falling ill with cancer and other smoke-related illnesses.`\
-https://nytimes.com/2025/09/09/us/wildfires-masks-firefighters.html
-
-**Former Forest, Leicester manager Cooper appointed Brondby head coach**\
-`The Welshman has signed a three-year deal with the Danish Superliga side`\
-https://nytimes.com/athletic/6613377/2025/09/09/steve-cooper-news-brondby-manager/
 
