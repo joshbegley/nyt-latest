@@ -1,3 +1,15 @@
+**Blue Jays shortstop Bo Bichette lands on the injured list with a knee injury**\
+`Bichette injured his left knee in a home plate collision at Yankee Stadium on Saturday.`\
+https://nytimes.com/athletic/6613789/2025/09/09/blue-jays-bo-bichette-knee-injury/
+
+**Devils' Jack Hughes says he 'would love to play' with his brother Quinn**\
+`Jack Hughes opened up frankly about his desire to eventually play with his brother on Monday.`\
+https://nytimes.com/athletic/6613738/2025/09/09/quinn-jack-hughes-canucks-devils/
+
+**What Makes a Good Bag?**\
+`Métier, an independent brand founded by Melissa Morris, opens its first U.S. store, having amassed an influential following with an eye toward elegant functionality.`\
+https://nytimes.com/2025/09/09/style/what-makes-a-good-bag.html
+
 **The Corner Store Team Un-Eighty Sixes the Chumley’s Space**\
 `The new steakhouse is called, of course, the Eighty Six.`\
 https://nytimes.com/2025/09/09/dining/nyc-restaurant-news.html

@@ -1,3 +1,15 @@
+**Blue Jays shortstop Bo Bichette lands on the injured list with a knee injury**\
+`Bichette injured his left knee in a home plate collision at Yankee Stadium on Saturday.`\
+https://nytimes.com/athletic/6613789/2025/09/09/blue-jays-bo-bichette-knee-injury/
+
+**Devils' Jack Hughes says he 'would love to play' with his brother Quinn**\
+`Jack Hughes opened up frankly about his desire to eventually play with his brother on Monday.`\
+https://nytimes.com/athletic/6613738/2025/09/09/quinn-jack-hughes-canucks-devils/
+
+**What Makes a Good Bag?**\
+`Métier, an independent brand founded by Melissa Morris, opens its first U.S. store, having amassed an influential following with an eye toward elegant functionality.`\
+https://nytimes.com/2025/09/09/style/what-makes-a-good-bag.html
+
 **The Corner Store Team Un-Eighty Sixes the Chumley’s Space**\
 `The new steakhouse is called, of course, the Eighty Six.`\
 https://nytimes.com/2025/09/09/dining/nyc-restaurant-news.html
@@ -25,16 +37,4 @@ https://nytimes.com/interactive/2025/09/09/health/maha-strategy-report.html
 **Macron Picks Departing Defense Minister as France’s New Prime Minister**\
 `President Emmanuel Macron’s appointment of Sébastien Lecornu, 39, after the government collapsed reflects the pressure Mr. Macron faces to get a budget passed by the end of the year.`\
 https://nytimes.com/2025/09/09/world/europe/france-macron-prime-minister-lecornu.html
-
-**How MAHA’s Wellness Influencers Spread Conspiracies About Health Care**\
-`MAHA’s wellness influencers are spreading conspiracy theories about health care all over the internet. New York Times Opinion analyzed thousands of their videos. Here’s what we found.`\
-https://nytimes.com/video/opinion/100000010387274/how-mahas-wellness-influencers-spread-conspiracies-about-health-care.html
-
-**Deion quiet on starting QB but Staub takes most of first-team snaps**\
-`Sanders said he wanted to commit to a single QB, rather than work through a rotation as the Buffaloes did versus the Blue Hens on Saturday.`\
-https://nytimes.com/athletic/6613665/2025/09/09/deion-sanders-colorado-ryan-staub-quarterback/
-
-**Israel Targets Hamas Leadership in Qatar Strike**\
-`Israel attacked a building in Doha, Qatar, on Tuesday with a strike that targeted the homes of several senior Hamas politicians.`\
-https://nytimes.com/video/world/middleeast/100000010387256/israel-hamas-doha-qatar-strike.html
 
