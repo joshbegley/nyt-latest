@@ -1,3 +1,19 @@
+**A former major-leaguer's next pitch: Develop a bright baseball future for Native American players**\
+`Founded by D.J. Carrasco, the Native Nations youth program recently fielded an all-Native American team in the Babe Ruth World Series.`\
+https://nytimes.com/athletic/6610874/2025/09/09/native-nations-world-baseball-classic/
+
+**WNBA's Rookie of the Year: Paige Bueckers or Sonia Citron? Our experts share their votes**\
+`Sabreena Merchant and Ben Pickman cast their votes for Coach of the Year and Most Improved Player. `\
+https://nytimes.com/athletic/6612013/2025/09/09/wnba-rookie-of-year-paige-bueckers-sonia-citron/
+
+**Packers defense, Aaron Rodgers, Jets running game: For real or Week 1 mirages?**\
+`Gauging whether the Chiefs defense just had a bad night or is a trend is another Week 1 performance to break down.`\
+https://nytimes.com/athletic/6611337/2025/09/09/packers-defense-aaron-rodgers-jets-running/
+
+**The Pulse: The Vikings were toast**\
+`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/6610932/2025/09/09/vikings-bears-jj-mccarthy-the-pulse/
+
 **Ravens know they have much to fix as their focus shifts to Browns in Week 2**\
 `Losses like the one Baltimore encountered tend to leave scar tissue, but John Harbaugh's team can't afford to have a hangover vs. Cleveland.`\
 https://nytimes.com/athletic/6611507/2025/09/09/ravens-blown-leads-browns-week-2/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6611564/2025/09/09/sparks-mercury-wnba-playoffs-sce
 **J.J. McCarthy's Monday night awakening showed why the Vikings took this leap of faith**\
 `Kevin O'Connell and the Vikings bet big on J.J. McCarthy. A dramatic comeback win over the Bears started to explain their faith.`\
 https://nytimes.com/athletic/6612586/2025/09/09/j-j-mccarthy-vikings-comeback-bears/
-
-**'That was sick': J.J. McCarthy ignites Vikings in thrilling comeback win over Bears**\
-`Playing in his first-ever NFL game, the second-year quarterback dragged his team back and on to an exhilarating victory.`\
-https://nytimes.com/athletic/6612507/2025/09/09/vikings-bears-mnf-jj-mccarthy/
-
-**Why do so many football coaches emphasize Southern accents? Linguistics experts explain**\
-`LSU coach Brian Kelly went viral for his attempt at a southern accent. But experts say there's a reason leaders lean into regional dialects.`\
-https://nytimes.com/athletic/6610563/2025/09/09/brian-kelly-southern-accent-college-football-coaches/
-
-**Week 2 NFL Power Rankings: Bills, Chargers emerge as cream of the AFC crop**\
-`The defending Super Bowl-champion Eagles remain in the top spot after Week 1, while the Bills move up after a thrilling win over the Ravens.`\
-https://nytimes.com/athletic/6610989/2025/09/09/nfl-power-rankings-week-2-bills-chargers/
-
-**A time of change for both New York Rangers and The Athletic's new beat writer**\
-`Meet Vincent Mercogliano, who joins The Athletic after six years covering New York and the NHL for lohud.com and the USA TODAY Network.`\
-https://nytimes.com/athletic/6610842/2025/09/09/new-york-rangers-vincent-mercogliano-nhl-beat-writer/
 
