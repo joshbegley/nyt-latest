@@ -1,10 +1,10 @@
+**6 Takeaways From Kennedy’s Childhood Health Report**\
+`A report from the commission led by Health Secretary Robert F. Kennedy Jr. is soft on pesticides, pledges to define ultraprocessed foods and promised an “infertility training center.”`\
+https://nytimes.com/2025/09/09/well/maha-report-health-rfk-jr-takeaways.html
+
 **Matt Boldy on Kaprizov's contract situation, his big postseason and striving to be an Olympian**\
 `After taking big steps the past three years and coming off an outstanding postseason, Boldy is looking to be leaned on more this season.`\
 https://nytimes.com/athletic/6613770/2025/09/09/matt-boldy-on-kirill-kaprizov-contract-postseason-olympian/
-
-**6 Takeaways From Kennedy’s Childhood Health Report**\
-`A report from the commission led by Health Secretary Robert F. Kennedy Jr. is soft on pesticides, pledges to define ultraprocessed foods and promised an “infertility training center.”`\
-https://nytimes.com/2025/09/09/well/6-takeaways-kennedy-childhood-health-report.html
 
 **Josh Giddey, Bulls agree to 4-year, $100 million contract extension**\
 `Giddey averaged 21.2 points, 10.7 rebounds and 9.3 assists through 19 games after the Bulls traded Zach LaVine in February.`\

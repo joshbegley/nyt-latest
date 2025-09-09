@@ -1,3 +1,7 @@
+**Apple Introduces New, Slimmer iPhone**\
+`The Silicon Valley giant also introduced updates to its traditional smartphones, as well as its AirPods and Apple Watch.`\
+https://nytimes.com/2025/09/09/technology/apple-iphone-17-air-airpods.html
+
 **6 Takeaways From Kennedy’s Childhood Health Report**\
 `A report from the commission led by Health Secretary Robert F. Kennedy Jr. is soft on pesticides, pledges to define ultraprocessed foods and promised an “infertility training center.”`\
 https://nytimes.com/2025/09/09/well/maha-report-health-rfk-jr-takeaways.html
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2025/09/09/us/elections/results-virginia-us-hous
 **How to watch Patriots at Dolphins: Time, TV, streaming**\
 `Find out how to watch the New England Patriots play the Miami Dolphins, with time, TV channel, and streaming information.`\
 https://nytimes.com/athletic/6613837/2025/09/09/patriots-vs-dolphins-stream-how-to-watch-sept-14/
-
-**How to watch Bears at Lions: Time, TV, streaming**\
-`Find out how to watch the Chicago Bears play the Detroit Lions, with time, TV channel, and streaming information.`\
-https://nytimes.com/athletic/6613834/2025/09/09/bears-vs-lions-stream-how-to-watch-sept-14/
 
