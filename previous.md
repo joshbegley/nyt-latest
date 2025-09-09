@@ -1,3 +1,7 @@
+**The D.C. Delivery Workers Hiding From ICE**\
+`On Monday, the Supreme Court lifted a ban on immigration agents’ use of factors like ethnicity or speaking of Spanish to make arrests in Los Angeles, affirming fears among delivery drivers in Washington.`\
+https://nytimes.com/video/world/americas/100000010349920/dc-ice-deportations-delivery-drivers-immigrants.html
+
 **Florida's Brendan Bett apologizes for spitting on USF's Cole Skinner**\
 `'There is no excuse for my actions,' Bett said on social media after spitting on Skinner in the Bulls' 18-16 upset over the Gators Saturday.`\
 https://nytimes.com/athletic/6612112/2025/09/08/brendan-bett-spitting-apology-florida-usf/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/08/us/charlotte-murder-conservatives-crime.html
 **These Peace Negotiators Say It’s Time to Give Up on the Two-State Solution**\
 `The talk of two states may be an alibi, not an aspiration.`\
 https://nytimes.com/2025/09/08/opinion/two-state-solution-israel.html
-
-**How to watch Florida at LSU: Time, TV, streaming**\
-`Find out how to watch the Florida Gators play the LSU Tigers, with time, TV channel, and streaming information.`\
-https://nytimes.com/athletic/6611952/2025/09/08/florida-vs-lsu-stream-how-to-watch-sept-13/
 
