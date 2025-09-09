@@ -1,3 +1,19 @@
+**Former Forest, Leicester manager Cooper appointed Brondby head coach**\
+`The Welshman has signed a three-year deal with the Danish Superliga side`\
+https://nytimes.com/athletic/6613377/2025/09/09/steve-cooper-news-brondby-manager/
+
+**‘Sex and Love Addiction’ Isn’t a Diagnosis, but It Can Be Debilitating**\
+`Elizabeth Gilbert, the author of “Eat, Pray, Love,” delves into her struggle with an obsessive relationship in a new memoir.`\
+https://nytimes.com/2025/09/09/well/mind/sex-love-addiction-elizabeth-gilbert.html
+
+**Vuelta a Espana stage cut short for second time due to pro-Palestine protest**\
+`Race officials erected a makeshift finish line — with INEOS Grenadiers' Colombian climber Egan Bernal taking his first Grand Tour stage win.`\
+https://nytimes.com/athletic/6613152/2025/09/09/vuelta-a-espana-stage-palestine-protest/
+
+**College football national title odds: Oklahoma surges after knocking off Michigan**\
+`The top national title favorites all won in Week 2, but there was some movement in the second and third tier of contenders.`\
+https://nytimes.com/athletic/6611091/2025/09/09/college-football-national-title-odds-oklahoma/
+
 **Good Form**\
 `How to do essential exercises with correct technique.`\
 https://nytimes.com/spotlight/good-form
@@ -21,22 +37,4 @@ https://nytimes.com/athletic/6613145/2025/09/09/tata-martino-mauricio-pochettino
 **Andy Reid unsure why Teair Tart wasn't ejected for hit on Travis Kelce**\
 `Tart was assessed an unnecessary roughness penalty, which cost the Chargers 15 yards, but was not ejected from the game.`\
 https://nytimes.com/athletic/6613212/2025/09/09/chiefs-reid-chargers-tart-kelce/
-
-**After Lions got beat in the trenches on both sides, 'nowhere to go but up'**\
-`Detroit's young guards struggled in their first game and the Lions were unable to pressure Jordan Love enough in the Week 1 loss.`\
-https://nytimes.com/athletic/6613032/2025/09/09/lions-loss-trenches-offensive-defensive-line/
-
-**Submit a question for Stewart Mandel's College Football Mailbag**\
-`<p>Week 2 is in the books. What&#8217;s on your mind?</p>
-<p>Leave your questions here. Please include your city.</p>
-`\
-https://nytimes.com/athletic/6611216/2025/09/09/submit-a-question-for-stewart-mandels-college-football-mailbag-314/
-
-**Big 12 suspends officiating crew for play violation in Missouri vs. Kansas**\
-`For punting on the kickoff, officials should have assessed Missouri a 5-yard penalty for an illegal kick.`\
-https://nytimes.com/athletic/6613158/2025/09/09/big-12-officiating-crew-suspension-missouri-kansas/
-
-**Gabbard Retracted Intelligence Report on Venezuela**\
-`The report, which remains classified, described work by Richard Grenell, a former top intelligence official in the Trump administration.`\
-https://nytimes.com/2025/09/09/us/politics/gabbard-intelligence-report-venezuela.html
 
