@@ -1,3 +1,19 @@
+**Steelers to sign Jabrill Peppers, former Patriots safety: Source**\
+`Peppers spent the last three seasons in New England.`\
+https://nytimes.com/athletic/6613156/2025/09/09/steelers-jabrill-peppers-signed-patriots-nfl-news/
+
+**'That’s the hard part about losing': Sidney Crosby on speculation about his future with the Penguins**\
+`Crosby wants to win, which has not been happening in Pittsburgh. Will that lead him elsewhere? He addressed the possibility Monday.`\
+https://nytimes.com/athletic/6613059/2025/09/09/sidney-crosby-penguins-canadiens-future/
+
+**In New Book, Think Tank Behind Project 2025 Takes On the Constitution**\
+`The Heritage Foundation’s clause-by-clause analysis, to be published next month, is an originalist manifesto and a showcase for aspiring Supreme Court nominees.`\
+https://nytimes.com/2025/09/09/us/politics/heritage-foundation-constitution-book.html
+
+**The Windup: Two no-hit bids spoiled late**\
+`Welcome to The Windup, The Athletic's MLB newsletter.`\
+https://nytimes.com/athletic/6612463/2025/09/09/dodgers-rockies-no-hitter-the-windup/
+
 **Exxon Wants to Make More of the Materials Needed for E.V. Batteries**\
 `The oil giant said Tuesday that it was acquiring assets from a Chicago company as it looks to start producing graphite, a key battery ingredient, by the end of the decade.`\
 https://nytimes.com/2025/09/09/business/energy-environment/exxon-mobil-graphite-electric-vehicles.html
