@@ -1,3 +1,11 @@
+**'PTI' to continue, as ESPN gives Kornheiser, Wilbon 3-year deals: Source**\
+`The popular sports debate show aired its first episode in October 2001.`\
+https://nytimes.com/athletic/6612098/2025/09/08/espn-tony-kornheiser-michael-wilbon-contracts-pti/
+
+**Alex Anthopoulos on Braves' season, Brian Snitker's future, Ozzie Albies, Ha-Seong Kim, more**\
+`Atlanta's general manager and president of baseball operations answered questions about a range of topics.`\
+https://nytimes.com/athletic/6612000/2025/09/08/braves-alex-anthopoulos-brian-snitker-ozzie-albies-ha-seong-kim/
+
 **The D.C. Delivery Workers Hiding From ICE**\
 `On Monday, the Supreme Court lifted a ban on immigration agents’ use of factors like ethnicity or speaking of Spanish to make arrests in Los Angeles, affirming fears among delivery drivers in Washington.`\
 https://nytimes.com/video/world/americas/100000010349920/dc-ice-deportations-delivery-drivers-immigrants.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6612027/2025/09/08/tank-bigsby-eagles-jaguars-trade
 **Trump’s Treasury Secretary Threatens to Punch Housing Official in the Face**\
 `The dust-up, at a members-only club in Georgetown, was not the first time Scott Bessent has shown a hot temper.`\
 https://nytimes.com/2025/09/08/us/politics/trump-treasury-bessent-pulte-threat.html
-
-**A Gruesome Murder in North Carolina Ignites a Firestorm on the Right**\
-`Security footage capturing the unprovoked stabbing in Charlotte became an accelerant for conservative arguments about the perceived failings of Democratic policies.`\
-https://nytimes.com/2025/09/08/us/charlotte-murder-conservatives-crime.html
-
-**These Peace Negotiators Say It’s Time to Give Up on the Two-State Solution**\
-`The talk of two states may be an alibi, not an aspiration.`\
-https://nytimes.com/2025/09/08/opinion/two-state-solution-israel.html
 
