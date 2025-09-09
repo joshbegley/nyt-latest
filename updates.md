@@ -1,3 +1,7 @@
+**N.Y.C. Board Rejects Council’s Push to Keep Housing Measures Off Ballot**\
+`The City Council, which would lose some power if the measures are approved, had argued that the ballot language was not clear enough to put before voters.`\
+https://nytimes.com/2025/09/09/nyregion/nyc-charter-revision-elections-board.html
+
 **At times, the Giants have been the best team in baseball this season**\
 `The Giants' recent surge is a mirror image to their red-hot start to the season. Both stretches lend hope for their near-term future.`\
 https://nytimes.com/athletic/6613118/2025/09/09/sf-giants-season-strengths/
