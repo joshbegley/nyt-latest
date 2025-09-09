@@ -1,4 +1,8 @@
 **Peyton Manning sent handwritten letters inviting Pope Leo XIV to 'ManningCast'**\
+`Hall of Fame QB says pope has an "open invitation" to be a guest on alternative presentation of MNF.`\
+https://nytimes.com/athletic/6612217/2025/09/08/pope-leo-manning-cast/
+
+**Peyton Manning sent handwritten letters inviting Pope Leo XIV to 'ManningCast'**\
 `Hall of Fame QB says Pope has an "open invitation" to be a guest on alternative presentation of MNF.`\
 https://nytimes.com/athletic/6612217/2025/09/08/pope-leo-manning-cast/
 
