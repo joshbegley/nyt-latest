@@ -1,3 +1,19 @@
+**Michigan Judge Tosses Out Cases Against Fake Trump Electors**\
+`The judge, a Democrat, concluded that fake electors recruited to support Donald J. Trump’s candidacy in 2020 did not understand that they were being asked to do something illegal.`\
+https://nytimes.com/2025/09/09/us/politics/michigan-electors-ruling.html
+
+**49ers put TE George Kittle on IR, out at least four games: Source**\
+`Kittle injured his hamstring in the second quarter of Sunday's opener in Seattle.`\
+https://nytimes.com/athletic/6613551/2025/09/09/george-kittle-injury-ir-49ers/
+
+**What’s New in School Lunchrooms: Less Sugar, More From Scratch**\
+`While the impact of federal budget cuts and coming nutritional guidelines is uncertain, smaller changes have already arrived in school cafeterias.`\
+https://nytimes.com/2025/09/09/dining/school-lunch-changes.html
+
+**Broncos announce site of future stadium, targeting 2031 completion**\
+`The team has chosen Burnham Yard, a historic railyard district outside the city’s downtown area, as the preferred site for a new stadium.`\
+https://nytimes.com/athletic/6613520/2025/09/09/denver-broncos-stadium-burnham-yard/
+
 **Message to Democrats in Congress: It’s Time to Act**\
 `Readers respond to a column by Ezra Klein about what the Democrats should do. Also: Florida and vaccines; no award for Tom Hanks at West Point.`\
 https://nytimes.com/2025/09/09/opinion/democrats-congress-trump.html

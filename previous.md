@@ -1,3 +1,19 @@
+**Michigan Judge Tosses Out Cases Against Fake Trump Electors**\
+`The judge, a Democrat, concluded that fake electors recruited to support Donald J. Trump’s candidacy in 2020 did not understand that they were being asked to do something illegal.`\
+https://nytimes.com/2025/09/09/us/politics/michigan-electors-ruling.html
+
+**49ers put TE George Kittle on IR, out at least four games: Source**\
+`Kittle injured his hamstring in the second quarter of Sunday's opener in Seattle.`\
+https://nytimes.com/athletic/6613551/2025/09/09/george-kittle-injury-ir-49ers/
+
+**What’s New in School Lunchrooms: Less Sugar, More From Scratch**\
+`While the impact of federal budget cuts and coming nutritional guidelines is uncertain, smaller changes have already arrived in school cafeterias.`\
+https://nytimes.com/2025/09/09/dining/school-lunch-changes.html
+
+**Broncos announce site of future stadium, targeting 2031 completion**\
+`The team has chosen Burnham Yard, a historic railyard district outside the city’s downtown area, as the preferred site for a new stadium.`\
+https://nytimes.com/athletic/6613520/2025/09/09/denver-broncos-stadium-burnham-yard/
+
 **Message to Democrats in Congress: It’s Time to Act**\
 `Readers respond to a column by Ezra Klein about what the Democrats should do. Also: Florida and vaccines; no award for Tom Hanks at West Point.`\
 https://nytimes.com/2025/09/09/opinion/democrats-congress-trump.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6611292/2025/09/09/49ers-jake-moody-cut-kicker/
 **Virginia 11th Congressional District Special Election Results**\
 `Get live results and maps from the 2025 Virginia special congressional election.`\
 https://nytimes.com/interactive/2025/09/09/us/elections/results-virginia-us-house-11-special.html
-
-**Boston Mayoral Primary Election Results**\
-`Get live results from the 2025 Boston preliminary municipal election.`\
-https://nytimes.com/interactive/2025/09/09/us/elections/results-boston-mayor-primary.html
-
-**Barcelona to host first home match of the season at 6,000-capacity ground**\
-`The Spanish champions had hoped to play their September 14 fixture against Valencia at the Camp Nou`\
-https://nytimes.com/athletic/6601886/2025/09/09/barcelona-stadium-nou-camp-home-matches/
-
-**Scoop City: Fantasy targets for Week 2, plus NFL's best at every position**\
-`Fantasy football waivers, with guru Jake Ciely answering two big questions today, plus the PFF Team of Week 1`\
-https://nytimes.com/athletic/6613479/2025/09/09/week-2-waivers-fantasy-football-scoop-city-2025/
-
-**Super Bowl odds: Bills, Ravens both move up after wild Sunday night opener**\
-`Even after just a week, the odds to win the Super Bowl shifted quite a bit among the top group of contenders.`\
-https://nytimes.com/athletic/6613375/2025/09/09/super-bowl-odds-bills-ravens/
 
