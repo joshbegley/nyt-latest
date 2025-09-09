@@ -1,3 +1,11 @@
+**Stuart Craig, Who Designed the Movie World of Harry Potter, Dies at 83**\
+`A three-time Oscar winner for production design, he was one of the few people to work on all eight Potter films and their three “Fantastic Beasts” spinoffs.`\
+https://nytimes.com/2025/09/09/movies/stuart-craig-dead.html
+
+**‘We All Thought the Raids Were Over’: Fears Return for Immigrants in L.A.**\
+`Los Angeles residents are anxious once again following a Supreme Court ruling that allowed aggressive immigration raids to resume.`\
+https://nytimes.com/2025/09/09/us/los-angeles-immigrant-reaction.html
+
 **Democrats Narrow Gap in House After Victory in Virginia Special Election**\
 `James Walkinshaw will fill a seat left open by the death of his former boss, Gerald Connolly, and shrink the Republicans’ majority in the chamber.`\
 https://nytimes.com/2025/09/09/us/politics/james-walkinshaw-virginia-house.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/09/09/us/tennessee-energy-facility-destroy-guilty.html
 **How to watch Panthers at Cardinals: Time, TV, streaming**\
 `Find out how to watch the Carolina Panthers play the Arizona Cardinals, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6614338/2025/09/09/panthers-vs-cardinals-stream-how-to-watch-sept-14/
-
-**How to watch Eagles at Chiefs: Time, TV, streaming**\
-`Find out how to watch the Philadelphia Eagles play the Kansas City Chiefs, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6614332/2025/09/09/eagles-vs-chiefs-stream-how-to-watch-sept-14/
-
-**How to watch Broncos at Colts: Time, TV, streaming**\
-`Find out how to watch the Denver Broncos play the Indianapolis Colts, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6614330/2025/09/09/broncos-vs-colts-stream-how-to-watch-sept-14/
 
