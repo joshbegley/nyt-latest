@@ -1,3 +1,15 @@
+**Anglo American and Teck Resources to Merge, Forming a Copper Giant**\
+`The deal, billed as a merger of equals, comes amid a surge in demand for copper, a crucial component in technology, from data centers to electric vehicles.`\
+https://nytimes.com/2025/09/09/business/dealbook/anglo-american-teck-merger-mining.html
+
+**Nick Fuentes: A White Nationalist Problem for the Right**\
+`For years, conservatives hoped that the notorious white nationalist would go away. Instead, Mr. Fuentes has gained more traction, even while opposing the president.`\
+https://nytimes.com/2025/09/09/us/politics/nick-fuentes-trump.html
+
+**Police Seek Man After Two People in Their 70s Are Found Dead After Fire**\
+`Rescuers who came to a burning house in Queens found a man bound in the basement and a woman dead on the first floor.`\
+https://nytimes.com/2025/09/09/nyregion/queens-couple-arson-homicide.html
+
 **Steelers to sign Jabrill Peppers, former Patriots safety: Source**\
 `Peppers spent the last three seasons in New England.`\
 https://nytimes.com/athletic/6613156/2025/09/09/steelers-jabrill-peppers-signed-patriots-nfl-news/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/09/09/us/politics/maha-report-rfk-jr-trump.html
 **Flames sign goalie Dustin Wolf to 7-year, $7.5 million AAV extension**\
 `Wolf finished the season with a 29-16-8 record, a 2.64 goals-against average, and a .910 save percentage.`\
 https://nytimes.com/athletic/6613049/2025/09/09/flames-dustin-wolf-extension/
-
-**Employers Added Fewer Jobs Than Believed, Updated Data Shows**\
-`Preliminary annual revisions could add to political pressure on the agency that produces the data.`\
-https://nytimes.com/2025/09/09/business/jobs-revisions-economy-fed.html
-
-**Seismic protests in Asia have had young people at their core.**\
-`By Matthew Mpoke Bigg`\
-https://nytimes.com/live/2025/09/09/world/nepal-protests/seismic-protests-in-asia-have-had-young-people-at-their-core
-
-**Giants couldn't bench Russell Wilson after one bad game. But what about after two?**\
-`If the Cowboys game resembles Sunday’s dysfunctional mess, then it will be time to switch to rookie Jaxson Dart.`\
-https://nytimes.com/athletic/6612309/2025/09/09/ny-giants-russell-wilson-jaxson-dart-commanders/
 

@@ -1,3 +1,15 @@
+**Anglo American and Teck Resources to Merge, Forming a Copper Giant**\
+`The deal, billed as a merger of equals, comes amid a surge in demand for copper, a crucial component in technology, from data centers to electric vehicles.`\
+https://nytimes.com/2025/09/09/business/dealbook/anglo-american-teck-merger-mining.html
+
+**Nick Fuentes: A White Nationalist Problem for the Right**\
+`For years, conservatives hoped that the notorious white nationalist would go away. Instead, Mr. Fuentes has gained more traction, even while opposing the president.`\
+https://nytimes.com/2025/09/09/us/politics/nick-fuentes-trump.html
+
+**Police Seek Man After Two People in Their 70s Are Found Dead After Fire**\
+`Rescuers who came to a burning house in Queens found a man bound in the basement and a woman dead on the first floor.`\
+https://nytimes.com/2025/09/09/nyregion/queens-couple-arson-homicide.html
+
 **Steelers to sign Jabrill Peppers, former Patriots safety: Source**\
 `Peppers spent the last three seasons in New England.`\
 https://nytimes.com/athletic/6613156/2025/09/09/steelers-jabrill-peppers-signed-patriots-nfl-news/
