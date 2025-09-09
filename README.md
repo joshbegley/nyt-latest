@@ -1,3 +1,11 @@
+**Late Night Misses the Defense Department Already**\
+`President Trump has renamed it the Department of War, “which is what people call the clearance section at TJ Maxx,” Jimmy Fallon said.`\
+https://nytimes.com/2025/09/09/arts/television/late-night-department-of-war.html
+
+**Nepal Protesters Set Fire to Leaders’ Homes in a New Day of Rage**\
+`A day after violent clashes left at least 19 people dead, young protesters defied a curfew and took to the streets again.`\
+https://nytimes.com/2025/09/09/world/asia/nepal-protests-fire-homes-president.html
+
 **Explained: Manchester City and the Premier League's APT settlement and what it means for everyone else**\
 `What was the issue, why has it been settled and will it have any bearing on the bigger case between City and the Premier League?`\
 https://nytimes.com/athletic/6610762/2025/09/09/man-city-premier-league-apt-settlement-explainer/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6612446/2025/09/09/minnesota-vs-california-stream-h
 **How to watch Brewers at Rangers: Time, TV, streaming for September 9**\
 `Find out how to watch the Milwaukee Brewers play the Texas Rangers, with time, TV channel, and streaming information.`\
 https://nytimes.com/athletic/6612394/2025/09/09/brewers-vs-rangers-stream-how-to-watch-sept-9/
-
-**Aid Group Says Drone Struck Gaza-Bound Boat Docked in Tunisia**\
-`Officials in Tunisia said there was no evidence of an attack on the ship, which the Global Sumud Flotilla hoped to use to bring humanitarian goods to Gaza.`\
-https://nytimes.com/2025/09/09/world/africa/gaza-aid-flotilla-drone-tunisia.html
-
-**Word of the Day: raconteur**\
-`This word has appeared in 31 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2025/09/09/learning/word-of-the-day-raconteur.html
 
