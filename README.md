@@ -1,3 +1,7 @@
+**Carragher warns against holding Club World Cup every two years**\
+`Carragher said earlier this summer that he had "no time" for FIFA's new competition`\
+https://nytimes.com/athletic/6614120/2025/09/09/football-calendar-club-world-cup-changes-carragher/
+
 **Explosive Protests in Nepal**\
 `Demonstrators have set fire to government buildings. The military has sent in troops to restore order.`\
 https://nytimes.com/2025/09/09/briefing/nepal-protests-qatar-israel-hamas-ukriane.html
@@ -19,7 +23,7 @@ https://nytimes.com/2025/09/09/opinion/gesture-politics-wont-help-palestinians.h
 https://nytimes.com/2025/09/09/travel/france-strike-what-to-know.html
 
 **Princeton Student Held by Iran-Backed Militia Is Released, Trump Says**\
-`Iraq’s prime minister also confirmed the release of Elizabeth Tsurkov, a Russian-Israeli graduate student kidnapped in Iraq in 2023 by Kataib Hezbollah, a militant group.`\
+`Israel and Iraq confirmed the release of Elizabeth Tsurkov, a Russian-Israeli graduate student at Princeton who was kidnapped in Iraq in 2023 by the militant group Kataib Hezbollah.`\
 https://nytimes.com/2025/09/09/world/middleeast/elizabeth-tsurkov-hostage-released-iraq.html
 
 **Supreme Court Agrees to Review Trump’s Sprawling Tariffs**\
@@ -29,8 +33,4 @@ https://nytimes.com/2025/09/09/us/politics/trump-tariffs-supreme-court.html
 **The Briefing - Serbia 0 England 5: World Cup qualification within sight as Tuchel's team click**\
 `England emerged from what had been billed as the toughest game in the group with a comprehensive victory to maintain their pristine record`\
 https://nytimes.com/athletic/6613038/2025/09/09/england-serbia-tuchel-rogers-madueke/
-
-**Troops Deployed After Day of Violent Protests in Nepal**\
-`Protesters set fire to government buildings and the homes of politicians as unrest over corruption, censorship and economic issues stretched into a second day.`\
-https://nytimes.com/2025/09/09/world/asia/nepal-violent-protests-army.html
 
