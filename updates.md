@@ -1,3 +1,15 @@
+**The New York Times in Print for Tuesday, Sep. 9, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/09/09/todays-new-york-times
+
+**France Is in Chaos. It Really Didn’t Have to Be.**\
+`A solution to France’s fiscal and political stalemate has been hiding in plain sight.`\
+https://nytimes.com/2025/09/09/opinion/france-bayrou-macron-government.html
+
+**Phillies think outside the box, snatch win over Mets to stretch NL East lead to season high**\
+`It was a day, really, of getting creative at Citizens Bank Park, where the Phillies increased their NL East lead to eight games. `\
+https://nytimes.com/athletic/6612232/2025/09/09/phillies-mets-nl-east-lead-standings-trea-turner/
+
 **Phillies think outside the box, snatch win over Mets to stretch NL East lead to season high**\
 `It was a day, really, of thinking outside the box at Citizens Bank Park, where the Phillies increased their NL East lead to eight games. `\
 https://nytimes.com/athletic/6612232/2025/09/09/phillies-mets-nl-east-lead-standings-trea-turner/

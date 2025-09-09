@@ -1,5 +1,13 @@
+**The New York Times in Print for Tuesday, Sep. 9, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/09/09/todays-new-york-times
+
+**France Is in Chaos. It Really Didn’t Have to Be.**\
+`A solution to France’s fiscal and political stalemate has been hiding in plain sight.`\
+https://nytimes.com/2025/09/09/opinion/france-bayrou-macron-government.html
+
 **Phillies think outside the box, snatch win over Mets to stretch NL East lead to season high**\
-`It was a day, really, of thinking outside the box at Citizens Bank Park, where the Phillies increased their NL East lead to eight games. `\
+`It was a day, really, of getting creative at Citizens Bank Park, where the Phillies increased their NL East lead to eight games. `\
 https://nytimes.com/athletic/6612232/2025/09/09/phillies-mets-nl-east-lead-standings-trea-turner/
 
 **Vuelta a Espana week two: More protests, more UAE victories, and a closer battle for the red jersey than expected?**\
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6610004/2025/09/09/wissa-woltemade-newcastle-questi
 **Slade Cecconi's no-hit bid, the Guardians' no-hit drought and their bid for a wild-card spot**\
 `Cecconi cruised into the eighth, despite lengthy breaks when the Guardians’ offense uncorked one hit after another.`\
 https://nytimes.com/athletic/6612150/2025/09/09/cleveland-guardians-slade-cecconi-no-hit-bid/
-
-**World Cup 2026 - what we're hearing: Cristiano Ronaldo in line for U.S. return**\
-`With less than a year to go until the 2026 men's World Cup, here's what soccer correspondent Adam Crafton is hearing ahead of the tournament`\
-https://nytimes.com/athletic/6610547/2025/09/09/world-cup-cristiano-ronaldo-usmnt/
-
-**How many local players each Premier League team has - and why they're on the decline**\
-`If fans feel a special sense of pride when local players make their debuts, is something being lost?`\
-https://nytimes.com/athletic/6580953/2025/09/09/premier-league-local-players/
 
