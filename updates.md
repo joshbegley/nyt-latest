@@ -1,3 +1,7 @@
+**LeBron did not write article that carried his name in Chinese paper: Sources**\
+`James' name was attached to a newspaper article that appeared in the People’s Daily newspaper on Monday.`\
+https://nytimes.com/athletic/6613732/2025/09/09/lakers-lebron-james-chinese-paper-nba/
+
 **California Man Killed 2 Men He Met on Dating App, Police Say**\
 `Prosecutors said Rockim Prowell, 34, also stole their cars and tried to kill a third man. He was being held without bail.`\
 https://nytimes.com/2025/09/09/us/dating-app-murder-man-charged.html

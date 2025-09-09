@@ -11,7 +11,7 @@ https://nytimes.com/athletic/6613992/2025/09/09/clemson-football-2025-until-satu
 https://nytimes.com/video/us/100000010387235/sequoia-mckinley-grove-california.html
 
 **LeBron did not write article that carried his name in Chinese paper: Sources**\
-`Lebron's name was attached to a newspaper article that appeared in the People’s Daily newspaper on Monday.`\
+`James' name was attached to a newspaper article that appeared in the People’s Daily newspaper on Monday.`\
 https://nytimes.com/athletic/6613732/2025/09/09/lakers-lebron-james-chinese-paper-nba/
 
 **Caleb Williams' gray undershirt: What does NFL rulebook say about it?**\
