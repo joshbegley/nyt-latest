@@ -1,3 +1,19 @@
+**Patagonia’s Big Bet on a Modest Grain**\
+`The apparel company thinks that a little-used wheat alternative can boost regenerative farming and help the planet. Not everyone agrees.`\
+https://nytimes.com/2025/09/09/climate/patagonias-regenerative-farming-kernza.html
+
+**Read the MAHA strategy report**\
+`A report from the White House outlines strategies to combat childhood chronic disease and attempts to set a MAHA agenda for the country.`\
+https://nytimes.com/interactive/2025/09/09/health/maha-strategy-report.html
+
+**Macron Picks Departing Defense Minister as France’s New Prime Minister**\
+`President Emmanuel Macron’s appointment of Sébastien Lecornu, 39, after the government collapsed reflects the pressure Mr. Macron faces to get a budget passed by the end of the year.`\
+https://nytimes.com/2025/09/09/world/europe/france-macron-prime-minister-lecornu.html
+
+**How MAHA’s Wellness Influencers Spread Conspiracies About Health Care**\
+`MAHA’s wellness influencers are spreading conspiracies about health care all over the internet. New York Times Opinion analyzed thousands of their videos. Here’s what we found.`\
+https://nytimes.com/video/opinion/100000010387274/how-mahas-wellness-influencers-spread-conspiracies-about-health-care.html
+
 **Deion quiet on starting QB but Staub takes most of first-team snaps**\
 `Sanders said he wanted to commit to a single QB, rather than work through a rotation as the Buffaloes did versus the Blue Hens on Saturday.`\
 https://nytimes.com/athletic/6613665/2025/09/09/deion-sanders-colorado-ryan-staub-quarterback/
@@ -21,16 +37,4 @@ https://nytimes.com/athletic/6613366/2025/09/09/fantasy-football-market-share-re
 **Critical fantasy football insights for Week 2: Packers go deep**\
 `Brandon Funston and Jess Bryant look at weekly usage reports to help you with Week 2 waivers, start/sit decisions and more. `\
 https://nytimes.com/athletic/6499966/2025/09/09/critical-fantasy-football-insights-for-week-2-packers-go-deep-kenneth-walkers-scary-stuff/
-
-**Kennedy Releases Childhood Health Report. It’s Vague on Next Steps.**\
-`The report, which follows a draft leaked last month, demonstrates both the ambitions and limits of Robert F. Kennedy Jr.’s “Make America Healthy Again” agenda.`\
-https://nytimes.com/2025/09/09/well/rfk-jr-report-maha-trump.html
-
-**Was There a Song of This Summer?**\
-`Ten tastemakers (and two staffers) weigh in on the season’s signature tracks.`\
-https://nytimes.com/2025/09/09/arts/music/amplifier-newsletter-song-of-the-summer.html
-
-**N.Y.C. Board Rejects Council’s Push to Keep Housing Measures Off Ballot**\
-`The City Council, which would lose some power if the measures were approved, had argued that the ballot language was not clear enough to put before voters.`\
-https://nytimes.com/2025/09/09/nyregion/nyc-charter-revision-elections-board.html
 

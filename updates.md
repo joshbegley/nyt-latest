@@ -1,3 +1,11 @@
+**Deion quiet on starting QB but Staub takes most of first-team snaps**\
+`Sanders said he wanted to commit to a single QB, rather than work through a rotation as the Buffaloes did versus the Blue Hens on Saturday.`\
+https://nytimes.com/athletic/6613665/2025/09/09/deion-sanders-colorado-ryan-staub-quarterback/
+
+**Israel Targets Hamas Leadership in Qatar Strike**\
+`Israel attacked a building in Doha, Qatar, on Tuesday with a strike that targeted the homes of several senior Hamas politicians.`\
+https://nytimes.com/video/world/middleeast/100000010387256/israel-hamas-doha-qatar-strike.html
+
 **McLaren's puzzling team orders. Plus: Red Bull's driver-led Monza breakthrough**\
 `Welcome to Prime Tire, The Athletic's Formula 1 newsletter`\
 https://nytimes.com/athletic/6613598/2025/09/09/mclaren-f1-team-orders-red-bull-max-verstappen-monza-prime-tire/
