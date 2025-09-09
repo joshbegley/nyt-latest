@@ -1,3 +1,7 @@
+**49ers waiving K Jake Moody after 2 missed kicks in opener: Source**\
+`Moody (No. 99 in 2023) was the highest kicker drafted since Roberto Aguayo (No. 59) in 2016.`\
+https://nytimes.com/athletic/6611292/2025/09/09/49ers-jake-moody-cut-kicker/
+
 **Virginia 11th Congressional District Special Election Results**\
 `Get live results and maps from the 2025 Virginia special congressional election.`\
 https://nytimes.com/interactive/2025/09/09/us/elections/results-virginia-us-house-11-special.html
@@ -30,11 +34,7 @@ https://nytimes.com/athletic/6613174/2025/09/09/gotham-jaedyn-shaw-trade-courage
 `Bidding on Allen's Week 1 hat has surpassed $17,000`\
 https://nytimes.com/athletic/6613161/2025/09/09/josh-allens-tunnel-hats-charity/
 
-**Rays' Wander Franco taken to clinic for 'mental health situation'**\
+**Wander Franco taken to clinic for 'mental health situation'**\
 `Franco was convicted of sexual abuse of a minor earlier this summer and has not played in the major leagues since August 2023.`\
 https://nytimes.com/athletic/6613368/2025/09/09/wander-franco-mental-health-situation/
-
-**A Censorship Playbook Fails in Nepal, Sparking Unrest**\
-`Nepal’s recent social media ban, part of a global censorship trend, helped set off widespread unrest, forcing the government to reverse course.`\
-https://nytimes.com/2025/09/09/world/asia/nepal-protests-social-media-ban-censorship.html
 
