@@ -1,3 +1,7 @@
+**Eagles acquiring RB Tank Bigsby in trade with Jaguars: Source**\
+`Jaguars to receive fifth- and sixth-round picks in the 2026 draft from Philadelphia.`\
+https://nytimes.com/athletic/6611866/2025/09/08/eagles-tank-bigsby-jaguars-trade/
+
 **The Restaurant List 2025**\
 `Here are the 50 best places in America right now.`\
 https://nytimes.com/interactive/2025/dining/best-restaurants-america.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6611802/2025/09/08/georgia-vs-tennessee-stream-how-
 **How to watch Royals at Guardians: Time, TV, streaming for September 9**\
 `Find out how to watch the Kansas City Royals play the Cleveland Guardians, with time, TV channel, and streaming information.`\
 https://nytimes.com/athletic/6611789/2025/09/08/royals-vs-guardians-stream-how-to-watch-sept-9/
-
-**How to watch Astros at Blue Jays: Time, TV, streaming for September 9**\
-`Find out how to watch the Houston Astros play the Toronto Blue Jays, with time, TV channel, and streaming information.`\
-https://nytimes.com/athletic/6611784/2025/09/08/astros-vs-blue-jays-stream-how-to-watch-sept-9/
 

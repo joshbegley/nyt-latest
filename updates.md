@@ -1,3 +1,11 @@
+**The Restaurant List 2025**\
+`Here are the 50 best places in America right now.`\
+https://nytimes.com/interactive/2025/dining/best-restaurants-america.html
+
+**‘China Is the Engine’ Driving Nations Away From Fossil Fuels, Report Says**\
+`Its vast investment in solar, wind and batteries is on track to end an era of global growth in the use of coal, oil and gas, the researchers said.`\
+https://nytimes.com/2025/09/08/climate/china-clean-energy-fossil-fuel-research.html
+
 **Ten Dead in Mexico After Freight Train Crashes Into a Bus**\
 `Ten people were killed and 61 injured on Monday when a cargo train crashed into a double-decker passenger bus in central Mexico.`\
 https://nytimes.com/video/world/americas/100000010386320/mexico-train-bus-crash.html
