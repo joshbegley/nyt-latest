@@ -1,3 +1,11 @@
+**A Gruesome Murder in North Carolina Ignites a Firestorm on the Right**\
+`Security footage capturing the unprovoked stabbing in Charlotte became an accelerant for conservative arguments about the perceived failings of Democratic policies.`\
+https://nytimes.com/2025/09/08/us/charlotte-murder-conservatives-crime.html
+
+**Eagles acquire RB Tank Bigsby in trade with Jaguars: Source**\
+`Jaguars to receive fifth- and sixth-round picks in the 2026 draft from Philadelphia.`\
+https://nytimes.com/athletic/6611866/2025/09/08/eagles-tank-bigsby-jaguars-trade/
+
 **These Peace Negotiators Say It’s Time to Give Up on the Two-State Solution**\
 `The talk of two states may be an alibi, not an aspiration.`\
 https://nytimes.com/2025/09/08/opinion/two-state-solution-israel.html

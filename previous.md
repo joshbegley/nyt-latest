@@ -1,3 +1,7 @@
+**A Gruesome Murder in North Carolina Ignites a Firestorm on the Right**\
+`Security footage capturing the unprovoked stabbing in Charlotte became an accelerant for conservative arguments about the perceived failings of Democratic policies.`\
+https://nytimes.com/2025/09/08/us/charlotte-murder-conservatives-crime.html
+
 **These Peace Negotiators Say It’s Time to Give Up on the Two-State Solution**\
 `The talk of two states may be an alibi, not an aspiration.`\
 https://nytimes.com/2025/09/08/opinion/two-state-solution-israel.html
@@ -22,7 +26,7 @@ https://nytimes.com/athletic/6611936/2025/09/08/utah-vs-wyoming-stream-how-to-wa
 `Find out how to watch the Chicago Cubs play the Atlanta Braves, with time, TV channel, and streaming information.`\
 https://nytimes.com/athletic/6611917/2025/09/08/cubs-vs-braves-stream-how-to-watch-sept-9/
 
-**Eagles acquiring RB Tank Bigsby in trade with Jaguars: Source**\
+**Eagles acquire RB Tank Bigsby in trade with Jaguars: Source**\
 `Jaguars to receive fifth- and sixth-round picks in the 2026 draft from Philadelphia.`\
 https://nytimes.com/athletic/6611866/2025/09/08/eagles-tank-bigsby-jaguars-trade/
 
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2025/dining/best-restaurants-america.html
 **‘China Is the Engine’ Driving Nations Away From Fossil Fuels, Report Says**\
 `Its vast investment in solar, wind and batteries is on track to end an era of global growth in the use of coal, oil and gas, the researchers said.`\
 https://nytimes.com/2025/09/08/climate/china-clean-energy-fossil-fuel-research.html
-
-**Ten Dead in Mexico After Freight Train Crashes Into a Bus**\
-`Ten people were killed and 61 injured on Monday when a cargo train crashed into a double-decker passenger bus in central Mexico.`\
-https://nytimes.com/video/world/americas/100000010386320/mexico-train-bus-crash.html
 
