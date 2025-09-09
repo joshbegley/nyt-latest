@@ -1,3 +1,7 @@
+**More details emerge from car crash that left Angels prospect in critical but stable condition**\
+`Rio Foster’s mother provided an update through GoFundMe, stating her son has undergone brain surgery and awaits several more procedures.`\
+https://nytimes.com/athletic/6612030/2025/09/08/angels-rio-foster-car-crash/
+
 **Too Fanciful**\
 `Marshal Herrmann uses alternative methods.`\
 https://nytimes.com/2025/09/08/crosswords/daily-puzzle-2025-09-09.html

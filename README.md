@@ -1,3 +1,7 @@
+**Florida's Brendan Bett apologizes for spitting on USF's Cole Skinner**\
+`'There is no excuse for my actions,' Bett said on social media after spitting on Skinner in the Bulls' 18-16 upset over the Gators Saturday.`\
+https://nytimes.com/athletic/6612112/2025/09/08/brendan-bett-spitting-apology-florida-usf/
+
 **More details emerge from car crash that left Angels prospect in critical but stable condition**\
 `Rio Foster’s mother provided an update through GoFundMe, stating her son has undergone brain surgery and awaits several more procedures.`\
 https://nytimes.com/athletic/6612030/2025/09/08/angels-rio-foster-car-crash/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/08/opinion/two-state-solution-israel.html
 **How to watch Florida at LSU: Time, TV, streaming**\
 `Find out how to watch the Florida Gators play the LSU Tigers, with time, TV channel, and streaming information.`\
 https://nytimes.com/athletic/6611952/2025/09/08/florida-vs-lsu-stream-how-to-watch-sept-13/
-
-**How to watch Vanderbilt at South Carolina: Time, TV, streaming**\
-`Find out how to watch the Vanderbilt Commodores play the South Carolina Gamecocks, with time, TV channel, and streaming information.`\
-https://nytimes.com/athletic/6611948/2025/09/08/vanderbilt-vs-south-carolina-stream-how-to-watch-sept-13/
 
