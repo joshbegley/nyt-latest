@@ -1,3 +1,7 @@
+**Trump’s Treasury Secretary Threatens to Punch Housing Official in the Face**\
+`The dust-up, at a members-only club in Georgetown, was not the first time Scott Bessent has shown a hot temper.`\
+https://nytimes.com/2025/09/08/us/politics/trump-treasury-bessent-pulte-threat.html
+
 **A Gruesome Murder in North Carolina Ignites a Firestorm on the Right**\
 `Security footage capturing the unprovoked stabbing in Charlotte became an accelerant for conservative arguments about the perceived failings of Democratic policies.`\
 https://nytimes.com/2025/09/08/us/charlotte-murder-conservatives-crime.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6611866/2025/09/08/eagles-tank-bigsby-jaguars-trade
 **The Restaurant List 2025**\
 `Here are the 50 best places in America right now.`\
 https://nytimes.com/interactive/2025/dining/best-restaurants-america.html
-
-**‘China Is the Engine’ Driving Nations Away From Fossil Fuels, Report Says**\
-`Its vast investment in solar, wind and batteries is on track to end an era of global growth in the use of coal, oil and gas, the researchers said.`\
-https://nytimes.com/2025/09/08/climate/china-clean-energy-fossil-fuel-research.html
 
