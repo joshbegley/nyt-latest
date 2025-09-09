@@ -1,4 +1,8 @@
 **Postecoglou set to be appointed Forest head coach after Nuno exit**\
+`The Australian head coach was dismissed by Spurs in June after winning the Europa League but finishing 17th in the Premier League`\
+https://nytimes.com/athletic/6425702/2025/09/09/ange-postecoglou-nottingham-forest-manager/
+
+**Postecoglou set to be appointed Forest head coach after Nuno exit**\
 `The Australian head coach was dismissed by Spurs in June after winning the Europa League but finishing 17th in the Premier League.`\
 https://nytimes.com/athletic/6425702/2025/09/09/ange-postecoglou-nottingham-forest-manager/
 
