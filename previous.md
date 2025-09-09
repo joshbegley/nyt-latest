@@ -1,3 +1,7 @@
+**How 1 shaky possession triggered the Bears' second-half collapse against the Vikings**\
+`Late in the third quarter Monday night, the Bears seemed ready to put the Vikings away. Until a comedy of errors swung the game.`\
+https://nytimes.com/athletic/6612356/2025/09/09/bears-vikings-second-half-collapse/
+
 **What happened to the American goalkeeper? How a USMNT constant became an uncertainty**\
 `For decades, the USMNT having a top-level goalkeeper was a given, but the search for a worthy successor is on its second World Cup cycle`\
 https://nytimes.com/athletic/6598746/2025/09/09/usmnt-goalkeeper-decline-world-cup/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6602882/2025/09/09/duke-rotation-cooper-flagg-camer
 **Is college football still made for students? Or are they extras in a TV show?**\
 `When did you fall in love with college football? There's a good chance it was when you were in college itself. Is that changing?`\
 https://nytimes.com/athletic/6611468/2025/09/09/college-football-attendance-students-fans/
-
-**Addison Barger's first big-league grind and 'staying afloat' in September**\
-`"Yeah, I'm tired," Barger said. "Not in a really bad way, but I'm pretty exhausted. It's just getting to that point of the year."`\
-https://nytimes.com/athletic/6611616/2025/09/09/blue-jays-addison-barger-big-league-grind/
 

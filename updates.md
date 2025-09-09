@@ -1,3 +1,7 @@
+**How 1 shaky possession triggered the Bears' second-half collapse against the Vikings**\
+`Late in the third quarter Monday night, the Bears seemed ready to put the Vikings away. Until a comedy of errors swung the game.`\
+https://nytimes.com/athletic/6612356/2025/09/09/bears-vikings-second-half-collapse/
+
 **What happened to the American goalkeeper? How a USMNT constant became an uncertainty**\
 `For decades, the USMNT having a top-level goalkeeper was a given, but the search for a worthy successor is on its second World Cup cycle`\
 https://nytimes.com/athletic/6598746/2025/09/09/usmnt-goalkeeper-decline-world-cup/
