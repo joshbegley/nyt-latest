@@ -1,3 +1,7 @@
+**Forest fans: What are your thoughts on Nuno's exit? And who should be next?**\
+`Was this the right move? What are your memories of Nuno's time in charge? And who should be next?`\
+https://nytimes.com/athletic/6612336/2025/09/09/forest-nuno-exit-next-coach/
+
 **Phillies think outside the box, snatch win over Mets to stretch NL East lead to season high**\
 `It was a day, really, of thinking outside the box at Citizens Bank Park, where the Phillies increased their NL East lead to eight games. `\
 https://nytimes.com/athletic/6612232/2025/09/09/phillies-mets-nl-east-lead-standings-trea-turner/
