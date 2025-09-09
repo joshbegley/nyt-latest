@@ -1,3 +1,7 @@
+**How States are Clashing on Abortion**\
+`We explain the latest fight over reproductive rights.`\
+https://nytimes.com/2025/09/09/briefing/how-states-are-clashing-on-abortion.html
+
 **TAFC: Ronaldo returns to U.S? Plus: Nuno sacked by Forest, Yamal's LeBron celebration stir**\
 `Today in TAFC: Ronaldo is set to return to America for a Portugal friendly. Plus: Why Yamal copying LeBron is causing a stir.`\
 https://nytimes.com/athletic/6612585/2025/09/09/ronaldo-us-return-portugal-yamal-lebron/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6611856/2025/09/09/cowboys-week-2-giants-key-player
 **Panthers stock report: Tetairoa McMillan looks like real deal; Xavier Legette struggles**\
 `It wasn't overall a good performance by the Panthers on Sunday, but their first-round pick looked like a No. 1 receiver.`\
 https://nytimes.com/athletic/6611478/2025/09/09/panthers-week-1-analysis-tetairoa-mcmillan/
-
-**How to watch Sparks at Mercury: L.A. tries to stay alive for final playoff spot**\
-`It's a late-season clash of styles, stakes and the way to wear purple. Kelsey Plum's Sparks are underdogs against Alyssa Thomas' Mercury.`\
-https://nytimes.com/athletic/6611564/2025/09/09/sparks-mercury-wnba-playoffs-scenarios-how-to-watch/
 

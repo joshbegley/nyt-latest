@@ -1,3 +1,7 @@
+**TAFC: Ronaldo returns to U.S? Plus: Nuno sacked by Forest, Yamal's LeBron celebration stir**\
+`Today in TAFC: Ronaldo is set to return to America for a Portugal friendly. Plus: Why Yamal copying LeBron is causing a stir.`\
+https://nytimes.com/athletic/6612585/2025/09/09/ronaldo-us-return-portugal-yamal-lebron/
+
 **A former major-leaguer's next pitch: Develop a bright baseball future for Native American players**\
 `Founded by D.J. Carrasco, the Native Nations youth program recently fielded an all-Native American team in the Babe Ruth World Series.`\
 https://nytimes.com/athletic/6610874/2025/09/09/native-nations-world-baseball-classic/

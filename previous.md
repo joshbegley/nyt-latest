@@ -1,3 +1,7 @@
+**TAFC: Ronaldo returns to U.S? Plus: Nuno sacked by Forest, Yamal's LeBron celebration stir**\
+`Today in TAFC: Ronaldo is set to return to America for a Portugal friendly. Plus: Why Yamal copying LeBron is causing a stir.`\
+https://nytimes.com/athletic/6612585/2025/09/09/ronaldo-us-return-portugal-yamal-lebron/
+
 **A former major-leaguer's next pitch: Develop a bright baseball future for Native American players**\
 `Founded by D.J. Carrasco, the Native Nations youth program recently fielded an all-Native American team in the Babe Ruth World Series.`\
 https://nytimes.com/athletic/6610874/2025/09/09/native-nations-world-baseball-classic/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6611478/2025/09/09/panthers-week-1-analysis-tetairo
 **How to watch Sparks at Mercury: L.A. tries to stay alive for final playoff spot**\
 `It's a late-season clash of styles, stakes and the way to wear purple. Kelsey Plum's Sparks are underdogs against Alyssa Thomas' Mercury.`\
 https://nytimes.com/athletic/6611564/2025/09/09/sparks-mercury-wnba-playoffs-scenarios-how-to-watch/
-
-**J.J. McCarthy's Monday night awakening showed why the Vikings took this leap of faith**\
-`Kevin O'Connell and the Vikings bet big on J.J. McCarthy. A dramatic comeback win over the Bears started to explain their faith.`\
-https://nytimes.com/athletic/6612586/2025/09/09/j-j-mccarthy-vikings-comeback-bears/
 
