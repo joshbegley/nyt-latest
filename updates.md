@@ -1,3 +1,15 @@
+**Oliver North and Fawn Hall, Key Figures in Iran-Contra Scandal, Are Married**\
+`Ms. Hall was Mr. North’s secretary on the National Security Council in the 1980s during the secret sales of arms to Iran and the diversion of the profits to rebel forces in Nicaragua.`\
+https://nytimes.com/2025/09/09/us/oliver-north-fawn-hall-married-iran-contra.html
+
+**Curtis Sliwa Vows to Stay in Mayor’s Race, Despite Push to Clear Field**\
+`Business leaders who hope Mr. Sliwa, the Republican nominee for New York City mayor, will suspend his campaign may find themselves disappointed: “No, no, no. A thousand times no,” he said.`\
+https://nytimes.com/2025/09/09/nyregion/curtis-sliwa-nyc-mayor.html
+
+**G.O.P. Divided on Israel’s Strike on Hamas Leaders in Qatar**\
+`Some Republicans cheered the move as a justified step by Israel, while others said they were worried the attack could strain relations with a close U.S. ally.`\
+https://nytimes.com/2025/09/09/us/politics/trump-qatar-israel-strike-hamas.html
+
 **Trademark office denies 4 applications filed by Bill Belichick, Jordon Hudson**\
 `The Patriots trademarked "Do Your Job" in 2013. Belichick tried to trademark "Do Your Job (Bill's Version)," among others, this year.`\
 https://nytimes.com/athletic/6614069/2025/09/09/bill-belichick-jordon-hudson-trademark-denied-patriots/
