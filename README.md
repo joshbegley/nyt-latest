@@ -1,40 +1,40 @@
-**The Forces Behind Nepal’s Explosive Gen Z Protests**\
-`It was a recent ban on social media that brought young people to the streets, but they came filled with grievances that have built up over years.`\
-https://nytimes.com/2025/09/09/business/the-forces-behind-nepals-explosive-gen-z-protests.html
+**Bears QB Caleb Williams' accuracy goes awry after perfect start in loss to Vikings**\
+`Williams had pinpoint precision to begin the 2025 season, then things fell apart and he missed receivers by a lot.`\
+https://nytimes.com/athletic/6612362/2025/09/09/bears-caleb-williams-accuracy-vikings/
 
-**Nuclear Sites Dotted Across Ukraine Pose Threat of Radiation Disaster**\
-`Each day of war risks a strike on sites that could scatter radioactive material. Officials say one laboratory near the front has been hit dozens of times.`\
-https://nytimes.com/2025/09/09/world/europe/nuclear-sites-ukraine-russia-war.html
+**What are the biggest concerns vs. the Giants? Cowboys stock report**\
+`The running game was a positive against the Eagles, but on defense, Dallas needs better play from its linebackers and to create turnovers.`\
+https://nytimes.com/athletic/6611856/2025/09/09/cowboys-week-2-giants-key-players/
 
-**Williams an injury doubt for Athletic Club vs Arsenal in Champions League**\
-`Williams was forced off after 44 minutes during Spain's World Cup qualifying victory over Turkey on Sunday`\
-https://nytimes.com/athletic/6612584/2025/09/09/nico-williams-injury-update-athletic-club-arsenal/
+**Panthers stock report: Tetairoa McMillan looks like real deal; Xavier Legette struggles**\
+`It wasn't overall a good performance by the Panthers on Sunday, but their first-round pick looked like a No. 1 receiver.`\
+https://nytimes.com/athletic/6611478/2025/09/09/panthers-week-1-analysis-tetairoa-mcmillan/
 
-**The New York Times International Edition in Print for Wednesday, Sep. 10, 2025**\
-``\
-https://nytimes.com/issue/todaysinyt/2025/09/09/todays-new-york-times-international-edition
+**How to watch Sparks at Mercury: L.A. tries to stay alive for final playoff spot**\
+`It's a late-season clash of styles, stakes and the way to wear purple. Kelsey Plum's Sparks are underdogs against Alyssa Thomas' Mercury.`\
+https://nytimes.com/athletic/6611564/2025/09/09/sparks-mercury-wnba-playoffs-scenarios-how-to-watch/
 
-**How to watch Cardinals at Mariners: Time, TV, streaming for September 9**\
-`Find out how to watch the St. Louis Cardinals play the Seattle Mariners, with time, TV channel, and streaming information.`\
-https://nytimes.com/athletic/6612627/2025/09/09/cardinals-vs-mariners-stream-how-to-watch-sept-9/
+**J.J. McCarthy's Monday night awakening showed why the Vikings took this leap of faith**\
+`Kevin O'Connell and the Vikings bet big on J.J. McCarthy. A dramatic comeback win over the Bears started to explain their faith.`\
+https://nytimes.com/athletic/6612586/2025/09/09/j-j-mccarthy-vikings-comeback-bears/
 
-**How to watch Diamondbacks at Giants: Time, TV, streaming for September 9**\
-`Find out how to watch the Arizona Diamondbacks play the San Francisco Giants, with time, TV channel, and streaming information.`\
-https://nytimes.com/athletic/6612625/2025/09/09/diamondbacks-vs-giants-stream-how-to-watch-sept-9/
+**'That was sick': J.J. McCarthy ignites Vikings in thrilling comeback win over Bears**\
+`Playing in his first-ever NFL game, the second-year quarterback dragged his team back and on to an exhilarating victory.`\
+https://nytimes.com/athletic/6612507/2025/09/09/vikings-bears-mnf-jj-mccarthy/
 
-**How to watch Red Sox at Athletics: Time, TV, streaming for September 9**\
-`Find out how to watch the Boston Red Sox play the Athletics, with time, TV channel, and streaming information.`\
-https://nytimes.com/athletic/6612624/2025/09/09/red-sox-vs-athletics-stream-how-to-watch-sept-9/
+**Why do so many football coaches emphasize Southern accents? Linguistics experts explain**\
+`LSU coach Brian Kelly went viral for his attempt at a southern accent. But experts say there's a reason leaders lean into regional dialects.`\
+https://nytimes.com/athletic/6610563/2025/09/09/brian-kelly-southern-accent-college-football-coaches/
 
-**How to watch Reds at Padres: Time, TV, streaming for September 9**\
-`Find out how to watch the Cincinnati Reds play the San Diego Padres, with time, TV channel, and streaming information.`\
-https://nytimes.com/athletic/6612620/2025/09/09/reds-vs-padres-stream-how-to-watch-sept-9/
+**Week 2 NFL Power Rankings: Bills, Chargers emerge as cream of the AFC crop**\
+`The defending Super Bowl-champion Eagles remain in the top spot after Week 1, while the Bills move up after a thrilling win over the Ravens.`\
+https://nytimes.com/athletic/6610989/2025/09/09/nfl-power-rankings-week-2-bills-chargers/
 
-**How to watch Twins at Angels: Time, TV, streaming for September 9**\
-`Find out how to watch the Minnesota Twins play the Los Angeles Angels, with time, TV channel, and streaming information.`\
-https://nytimes.com/athletic/6612617/2025/09/09/twins-vs-angels-stream-how-to-watch-sept-9/
+**A time of change for both New York Rangers and The Athletic's new beat writer**\
+`Meet Vincent Mercogliano, who joins The Athletic after six years covering New York and the NHL for lohud.com and the USA TODAY Network.`\
+https://nytimes.com/athletic/6610842/2025/09/09/new-york-rangers-vincent-mercogliano-nhl-beat-writer/
 
-**How to watch Rockies at Dodgers: Time, TV, streaming for September 9**\
-`Find out how to watch the Colorado Rockies play the Los Angeles Dodgers, with time, TV channel, and streaming information.`\
-https://nytimes.com/athletic/6612614/2025/09/09/rockies-vs-dodgers-stream-how-to-watch-sept-9/
+**Smith: McLaren's drivers act like perfect teammates in an F1 title fight. It feels off**\
+`The 2025 F1 title fight between Lando Norris and Oscar Piastri remains friendly, That jars for fans and other sports stars`\
+https://nytimes.com/athletic/6611497/2025/09/09/mclaren-f1-team-order-norris-piastri/
 
