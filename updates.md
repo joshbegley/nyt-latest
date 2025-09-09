@@ -1,3 +1,7 @@
+**Apple Introduces New, Slimmer iPhone**\
+`The Silicon Valley giant also introduced updates to its traditional smartphones, as well as its AirPods and Apple Watch.`\
+https://nytimes.com/2025/09/09/technology/apple-iphone-17-air-airpods.html
+
 **6 Takeaways From Kennedy’s Childhood Health Report**\
 `A report from the commission led by Health Secretary Robert F. Kennedy Jr. is soft on pesticides, pledges to define ultraprocessed foods and promised an “infertility training center.”`\
 https://nytimes.com/2025/09/09/well/maha-report-health-rfk-jr-takeaways.html
