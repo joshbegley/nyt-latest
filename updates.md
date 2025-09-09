@@ -1,3 +1,11 @@
+**Courage agree to trade USWNT star Jaedyn Shaw to Gotham FC in record deal**\
+`The transfer fee for Shaw would be more than double the previous intra-league record.`\
+https://nytimes.com/athletic/6613174/2025/09/09/gotham-jaedyn-shaw-trade-courage-record/
+
+**Josh Allen's specially designed hats to raise money for Buffalo children's hospital**\
+`Bidding on Allen's Week 1 hat has surpassed $17,000`\
+https://nytimes.com/athletic/6613161/2025/09/09/josh-allens-tunnel-hats-charity/
+
 **Rays' Wander Franco taken to clinic for 'mental health situation'**\
 `Franco was convicted of sexual abuse of a minor earlier this summer and has not played in the major leagues since August 2023.`\
 https://nytimes.com/athletic/6613368/2025/09/09/wander-franco-mental-health-situation/
