@@ -1,3 +1,7 @@
+**Princeton Student Held by Iran-Backed Militia Is Released, Trump Says**\
+`Iraq’s prime minister also said the group, Kataib Hezbollah, had freed Elizabeth Tsurkov, a Russian-Israeli graduate student taken hostage in Iraq in 2023, in a deal with the United States.`\
+https://nytimes.com/2025/09/09/world/middleeast/elizabeth-tsurkov-hostage-released-iraq.html
+
 **Supreme Court Agrees to Review Trump’s Sprawling Tariffs**\
 `The justices moved quickly to schedule oral argument to consider the legality of the president’s signature economic initiative.`\
 https://nytimes.com/2025/09/09/us/politics/trump-tariffs-supreme-court.html
@@ -25,8 +29,4 @@ https://nytimes.com/2025/09/09/us/boston-mayor-wu-preliminary-election.html
 **NFL says Carter’s ejection counts as suspension; eligible to play in Week 2**\
 `Carter will forfeit game check after ejection for spitting at Cowboys QB Dak Prescott in Eagles' Week 1 win.`\
 https://nytimes.com/athletic/6610697/2025/09/09/jalen-carter-spitting-suspension-eagles-dak-prescott-nfl/
-
-**Can Trump Deflate the Epstein Scandal?**\
-`Even compelling debunkings don’t eliminate the mystery.`\
-https://nytimes.com/2025/09/09/opinion/epstein-trump-birthday-book.html
 
