@@ -1,3 +1,7 @@
+**Democrats Narrow Gap in House After Victory in Virginia Special Election**\
+`James Walkinshaw will fill a seat left open by the death of his former boss, Gerald Connolly, and shrink the Republicans’ majority in the chamber.`\
+https://nytimes.com/2025/09/09/us/politics/james-walkinshaw-virginia-house.html
+
 **Latest Revelations Complicate Trump’s Sweeping Denials About Epstein**\
 `President Trump often succeeds in pivoting the national conversation, but he is finding that more difficult when it comes to Jeffrey Epstein.`\
 https://nytimes.com/2025/09/09/us/politics/trumps-epstein-response.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6614332/2025/09/09/eagles-vs-chiefs-stream-how-to-w
 **How to watch Broncos at Colts: Time, TV, streaming**\
 `Find out how to watch the Denver Broncos play the Indianapolis Colts, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6614330/2025/09/09/broncos-vs-colts-stream-how-to-watch-sept-14/
-
-**English football 'rife with financial recklessness', claims report on game's health**\
-`The Fair Game Index looks at clubs in England’s top six tiers and assesses them eight key indicators of performance`\
-https://nytimes.com/athletic/6613959/2025/09/09/english-football-finances-report-2025-fair-game-index/
 
