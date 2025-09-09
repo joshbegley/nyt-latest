@@ -1,3 +1,11 @@
+**Ray Hudson's magical broadcasting ride ends**\
+`The 70-year-old former player and coach is stepping away from the booth.`\
+https://nytimes.com/athletic/6608283/2025/09/09/ray-hudson-broadcasting-retire/
+
+**The Stakes of the Murdoch Family’s Peace Deal**\
+`A new accord ends a bitter power struggle and gives Rupert Murdoch’s elder son control of the family’s media empire.`\
+https://nytimes.com/2025/09/09/business/dealbook/lachlan-murdoch-family-deal.html
+
 **After disastrous opener, Ben Johnson is officially a Chicago Bears coach**\
 `There was magic in the air at Soldier Field for Johnson's first game. Chicago had the game in hand and then, poof, a W turned into an L.`\
 https://nytimes.com/athletic/6612333/2025/09/09/bears-vikings-ben-johnson-debut-monday-night-loss/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/09/09/technology/uae-emirates-ai-open-source.html
 **‘Farewell Parties’ Spring Up in France to Celebrate Prime Minister’s Ousting**\
 `People sang, danced and cheered after François Bayrou’s government lost a confidence vote and collapsed.`\
 https://nytimes.com/video/world/europe/100000010386868/france-vote-government-collapse.html
-
-**Delap expected to return to training in November, no surgery required**\
-`Delap pulled up during the first half of Chelsea’s 2-0 win over Fulham on August 30.`\
-https://nytimes.com/athletic/6587974/2025/09/09/liam-delap-injury-update-chelsea/
-
-**Russian Bomb Kills at Least 20 Picking Up Pensions, Zelensky Says**\
-`The Ukrainian leader said that the strike on older people in a Donetsk village should prompt a global response.`\
-https://nytimes.com/2025/09/09/world/europe/ukraine-bombing-donetsk-pensioners.html
 
