@@ -1,3 +1,15 @@
+**Why Trump Is Targeting a Brazilian Judge**\
+`Tens of thousands of supporters of former President Jair Bolsonaro flooded streets in Brazil to protest the criminal prosecution of Bolsonaro on charges that he attempted to stage a coup in 2022.`\
+https://nytimes.com/video/world/americas/100000010385022/trump-moraes-bolsonaro-trial.html
+
+**Now a democratic republic, Nepal was a monarchy for nearly 250 years.**\
+`By Ashley Ahn`\
+https://nytimes.com/live/2025/09/09/world/nepal-protests/now-a-democratic-republic-nepal-was-a-monarchy-for-nearly-250-years
+
+**A Phony Trump Check and a ‘Depreciated’ Woman in Epstein’s Birthday Book**\
+`A photo in Jeffrey Epstein’s birthday book shows the disgraced financier holding a novelty check with a signature of “DJ TRUMP.” It includes a woman who dated both men in the 1990s.`\
+https://nytimes.com/2025/09/09/us/epstein-trump-birthday-book.html
+
 **Derek Cornelius' impressive free kick leads Canada past Wales: Takeaways**\
 `Wales will take on England Oct. 9. and Canada will face Australia Oct.10.`\
 https://nytimes.com/athletic/6614082/2025/09/09/canada-derek-cornelius-wales-free-kick/
