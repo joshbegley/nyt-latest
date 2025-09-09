@@ -1,3 +1,19 @@
+**Full Time: A tale of 2 Thompson sisters**\
+`Welcome to Full Time, The Athletic's women's soccer newsletter.`\
+https://nytimes.com/athletic/6612475/2025/09/09/alyssa-thompson-chelsea-nwsl-full-time/
+
+**He Nearly Died on the Football Field. Is That Why Everybody Loves Him?**\
+`Damar Hamlin’s heart stopped beating after a tackle on “Monday Night Football” in 2023. He wants to be known for more than that.`\
+https://nytimes.com/2025/09/09/nyregion/damar-hamlin-buffalo-bills-cardiac-arrest.html
+
+**Lottery Jackpot**\
+`What would you do if you were a winner?`\
+https://nytimes.com/2025/09/09/learning/lottery-jackpot.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/09/09/crosswords/spelling-bee-forum.html
+
 **How to watch Minnesota at California: Time, TV, streaming**\
 `Find out how to watch the Minnesota Golden Gophers play the California Golden Bears, with time, TV channel, and streaming information.`\
 https://nytimes.com/athletic/6612446/2025/09/09/minnesota-vs-california-stream-how-to-watch-sept-13/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6612336/2025/09/09/forest-nuno-exit-next-coach/
 **The New York Times in Print for Tuesday, Sep. 9, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/09/09/todays-new-york-times
-
-**France Is in Chaos. It Really Didn’t Have to Be.**\
-`A solution to France’s fiscal and political stalemate has been hiding in plain sight.`\
-https://nytimes.com/2025/09/09/opinion/france-bayrou-macron-government.html
-
-**Phillies think outside the box, snatch win over Mets to stretch NL East lead to season high**\
-`It was a day, really, of thinking outside the box at Citizens Bank Park, where the Phillies increased their NL East lead to eight games. `\
-https://nytimes.com/athletic/6612232/2025/09/09/phillies-mets-nl-east-lead-standings-trea-turner/
-
-**Vuelta a Espana week two: More protests, more UAE victories, and a closer battle for the red jersey than expected?**\
-`Jonas Vingegaard remains in the lead as the race enters its final week – but Joao Almeida is pushing him all the way`\
-https://nytimes.com/athletic/6610849/2025/09/09/vuelta-a-espana-week-two-more-protests-more-uae-victories-and-a-closer-battle-for-the-red-jersey-than-expected/
-
-**France’s Political Crisis**\
-`President Emmanuel Macron said he would appoint a new prime minister, the fifth in less than two years, after the government collapsed in a no-confidence vote.`\
-https://nytimes.com/2025/09/09/briefing/france-government-crisis-nepal.html
 
