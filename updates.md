@@ -1,3 +1,7 @@
+**At times, the Giants have been the best team in baseball this season**\
+`The Giants' recent surge is a mirror image to their red-hot start to the season. Both stretches lend hope for their near-term future.`\
+https://nytimes.com/athletic/6613118/2025/09/09/sf-giants-season-strengths/
+
 **Red Sox endure another rotation setback in homestretch of three-way battle for AL East**\
 `May had been scheduled to start on Tuesday against the Athletics. Instead, he was scratched.`\
 https://nytimes.com/athletic/6613518/2025/09/09/red-sox-dustin-may-connelly-early/
