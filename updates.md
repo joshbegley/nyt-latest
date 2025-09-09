@@ -1,3 +1,7 @@
+**You Might Have Already Fallen for MAHA’s Conspiracy Theories**\
+`How does MAHA turn some health-conscious people against all health care? We found out.`\
+https://nytimes.com/video/opinion/100000010338565/maha-health-wellness-influencers-conspiracy-theory.html
+
 **Postecoglou set to be appointed Forest head coach after Nuno exit**\
 `The Australian head coach was dismissed by Spurs in June after winning the Europa League but finishing 17th in the Premier League`\
 https://nytimes.com/athletic/6425702/2025/09/09/ange-postecoglou-nottingham-forest-manager/
