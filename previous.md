@@ -1,3 +1,19 @@
+**Gabbard Retracted Intelligence Report on Venezuela**\
+`The report, which remains classified, described work by Richard Grenell, a former top intelligence official in the Trump administration.`\
+https://nytimes.com/2025/09/09/us/politics/gabbard-intelligence-report-venezuela.html
+
+**The Bounce: Let’s realign a 32-team NBA**\
+`The Bounce Newsletter  | This is The Athletic’s daily NBA newsletter.`\
+https://nytimes.com/athletic/6613185/2025/09/09/nba-expansion-realignment-divisions-the-bounce/
+
+**When Should You See a Doctor About Sleep?**\
+`Here are some signs that it’s time to make an appointment.`\
+https://nytimes.com/2025/09/09/well/sleep-medicine-appointment.html
+
+**I Can’t Believe It’s Not Chicken**\
+`This quick, deceptively meaty tofu dish is crisp, chewy and super savory.`\
+https://nytimes.com/2025/09/09/dining/i-cant-believe-its-not-chicken.html
+
 **Anglo American and Teck Resources to Merge, Forming a Copper Giant**\
 `The deal, billed as a merger of equals, comes amid a surge in demand for copper, a crucial component in technology, from data centers to electric vehicles.`\
 https://nytimes.com/2025/09/09/business/dealbook/anglo-american-teck-merger-mining.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6613059/2025/09/09/sidney-crosby-penguins-canadiens
 **In New Book, Think Tank Behind Project 2025 Takes On the Constitution**\
 `The Heritage Foundation’s clause-by-clause analysis, to be published next month, is an originalist manifesto and a showcase for aspiring Supreme Court nominees.`\
 https://nytimes.com/2025/09/09/us/politics/heritage-foundation-constitution-book.html
-
-**The Windup: Two no-hit bids spoiled late**\
-`Welcome to The Windup, The Athletic's MLB newsletter.`\
-https://nytimes.com/athletic/6612463/2025/09/09/dodgers-rockies-no-hitter-the-windup/
-
-**Exxon Wants to Make More of the Materials Needed for E.V. Batteries**\
-`The oil giant said Tuesday that it was acquiring assets from a Chicago company as it looks to start producing graphite, a key battery ingredient, by the end of the decade.`\
-https://nytimes.com/2025/09/09/business/energy-environment/exxon-mobil-graphite-electric-vehicles.html
-
-**White House Set to Release Report on Childhood Health**\
-`The report, from a commission led by Robert F. Kennedy Jr., will most likely propose initiatives around medications but not direct restrictions on pesticides.`\
-https://nytimes.com/2025/09/09/us/politics/maha-report-rfk-jr-trump.html
-
-**Flames sign goalie Dustin Wolf to 7-year, $7.5 million AAV extension**\
-`Wolf finished the season with a 29-16-8 record, a 2.64 goals-against average, and a .910 save percentage.`\
-https://nytimes.com/athletic/6613049/2025/09/09/flames-dustin-wolf-extension/
 
