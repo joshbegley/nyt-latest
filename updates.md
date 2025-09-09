@@ -1,3 +1,11 @@
+**Carragher warns against holding Club World Cup every two years**\
+`Carragher said earlier this summer that he had "no time" for FIFA's new competition`\
+https://nytimes.com/athletic/6614120/2025/09/09/football-calendar-club-world-cup-changes-carragher/
+
+**Princeton Student Held by Iran-Backed Militia Is Released, Trump Says**\
+`Israel and Iraq confirmed the release of Elizabeth Tsurkov, a Russian-Israeli graduate student at Princeton who was kidnapped in Iraq in 2023 by the militant group Kataib Hezbollah.`\
+https://nytimes.com/2025/09/09/world/middleeast/elizabeth-tsurkov-hostage-released-iraq.html
+
 **Explosive Protests in Nepal**\
 `Demonstrators have set fire to government buildings. The military has sent in troops to restore order.`\
 https://nytimes.com/2025/09/09/briefing/nepal-protests-qatar-israel-hamas-ukriane.html
