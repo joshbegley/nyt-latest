@@ -1,3 +1,23 @@
+**California Man Killed 2 Men He Met on Dating App, Police Say**\
+`Prosecutors said Rockim Prowell, 34, also stole their cars and tried to kill a third man. He was being held without bail.`\
+https://nytimes.com/2025/09/09/us/dating-app-murder-man-charged.html
+
+**Until Saturday: What's wrong with Clemson?**\
+`Until Saturday is The Athletic's free college football newsletter.`\
+https://nytimes.com/athletic/6613992/2025/09/09/clemson-football-2025-until-saturday/
+
+**Firefighters Scramble to Protect 2,000-Year-old Trees**\
+`California’s Garnet Fire has threatened the McKinley Grove in the Sierra National Forest. The sequoia trees are the world’s largest and can live for thousands of years.`\
+https://nytimes.com/video/us/100000010387235/sequoia-mckinley-grove-california.html
+
+**LeBron did not write article that carried his name in Chinese paper: Sources**\
+`Lebron's name was attached to a newspaper article that appeared in the People’s Daily newspaper on Monday.`\
+https://nytimes.com/athletic/6613732/2025/09/09/lakers-lebron-james-chinese-paper-nba/
+
+**Caleb Williams' gray undershirt: What does NFL rulebook say about it?**\
+`The Bears quarterback drew attention with a unique look against the Vikings on Monday night.`\
+https://nytimes.com/athletic/6613678/2025/09/09/caleb-williams-bears-vikings-gray-undershirt-monday-night/
+
 **Apple Introduces New, Slimmer iPhone**\
 `The Silicon Valley giant also introduced updates to its traditional smartphones, as well as its AirPods and Apple Watch.`\
 https://nytimes.com/2025/09/09/technology/apple-iphone-17-air-airpods.html
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/6535887/2025/09/09/josh-giddey-bulls-contract-exten
 **Shows Created by Women Rise Sharply, but Only on Streaming TV**\
 `Far more shows on streaming services are being created by women, a new study found. That number on broadcast networks, though, remained stagnant.`\
 https://nytimes.com/2025/09/09/business/media/women-creators-television-streaming.html
-
-**Man Accused in Brutal N.C. Rail Slaying Faces Federal Charge**\
-`A conviction would make the man, who is accused of killing a Ukrainian refugee on a light rail train in Charlotte, eligible for the federal death penalty.`\
-https://nytimes.com/2025/09/09/us/charlotte-light-rail-stabbing-charges.html
-
-**N.Y.C. Schools Fail to Properly Educate English Learners, Audit Says**\
-`The enrollment of students learning English as a new language has soared in recent years. But a report found “systemic breakdowns” in their education.`\
-https://nytimes.com/2025/09/09/nyregion/new-york-schools-english-language-learners.html
-
-**Boston Mayoral Primary Election Results**\
-`Get live results from the 2025 Boston preliminary municipal election.`\
-https://nytimes.com/interactive/2025/09/09/us/elections/results-boston-mayor-primary.html
-
-**Virginia 11th Congressional District Special Election Results**\
-`Get live results and maps from the 2025 Virginia special congressional election.`\
-https://nytimes.com/interactive/2025/09/09/us/elections/results-virginia-us-house-11-special.html
-
-**How to watch Patriots at Dolphins: Time, TV, streaming**\
-`Find out how to watch the New England Patriots play the Miami Dolphins, with time, TV channel, and streaming information.`\
-https://nytimes.com/athletic/6613837/2025/09/09/patriots-vs-dolphins-stream-how-to-watch-sept-14/
 
