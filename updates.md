@@ -1,3 +1,11 @@
+**Delap expected to return to training in November, no surgery required**\
+`Delap pulled up during the first half of Chelsea’s 2-0 win over Fulham on August 30.`\
+https://nytimes.com/athletic/6587974/2025/09/09/liam-delap-injury-update-chelsea/
+
+**Phillies think outside the box, snatch win over Mets to stretch NL East lead to season high**\
+`It was a day, really, of thinking outside the box at Citizens Bank Park, where the Phillies increased their NL East lead to eight games. `\
+https://nytimes.com/athletic/6612232/2025/09/09/phillies-mets-nl-east-lead-standings-trea-turner/
+
 **Russian Bomb Kills at Least 20 Picking Up Pensions, Zelensky Says**\
 `The Ukrainian leader said that the strike on older people in a Donetsk village should prompt a global response.`\
 https://nytimes.com/2025/09/09/world/europe/ukraine-bombing-donetsk-pensioners.html
