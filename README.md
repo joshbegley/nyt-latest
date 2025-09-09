@@ -1,3 +1,11 @@
+**Tata Martino weighs in on Mauricio Pochettino's troubled stint as USMNT coach**\
+`The two Argentine managers were former teammates, and after coaching Mexico and in MLS, Martino gives his observations to The Athletic`\
+https://nytimes.com/athletic/6613145/2025/09/09/tata-martino-mauricio-pochettino-usmnt-mls-world-cup/
+
+**Andy Reid unsure why Teair Tart wasn't ejected for hit on Travis Kelce**\
+`Tart was assessed an unnecessary roughness penalty, which cost the Chargers 15 yards, but was not ejected from the game.`\
+https://nytimes.com/athletic/6613212/2025/09/09/chiefs-reid-chargers-tart-kelce/
+
 **After Lions got beat in the trenches on both sides, 'nowhere to go but up'**\
 `Detroit's young guards struggled in their first game and the Lions were unable to pressure Jordan Love enough in the Week 1 loss.`\
 https://nytimes.com/athletic/6613032/2025/09/09/lions-loss-trenches-offensive-defensive-line/
@@ -31,12 +39,4 @@ https://nytimes.com/2025/09/09/dining/i-cant-believe-its-not-chicken.html
 **Anglo American and Teck Resources to Merge, Forming a Copper Giant**\
 `The deal, billed as a merger of equals, comes amid a surge in demand for copper, a crucial component in technology, from data centers to electric vehicles.`\
 https://nytimes.com/2025/09/09/business/dealbook/anglo-american-teck-merger-mining.html
-
-**Nick Fuentes: A White Nationalist Problem for the Right**\
-`For years, conservatives hoped that the notorious white nationalist would go away. Instead, Mr. Fuentes has gained more traction, even while opposing the president.`\
-https://nytimes.com/2025/09/09/us/politics/nick-fuentes-trump.html
-
-**Police Seek Man After Two People in Their 70s Are Found Dead After Fire**\
-`Rescuers who came to a burning house in Queens found a man bound in the basement and a woman dead on the first floor.`\
-https://nytimes.com/2025/09/09/nyregion/queens-couple-arson-homicide.html
 
