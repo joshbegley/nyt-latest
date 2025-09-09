@@ -1,3 +1,7 @@
+**Too Fanciful**\
+`Marshal Herrmann uses alternative methods.`\
+https://nytimes.com/2025/09/08/crosswords/daily-puzzle-2025-09-09.html
+
 **Firefighters Race to Save a Treasured Sequoia Grove in California**\
 `Giant sequoias can live for thousands of years, but wildfires have killed staggering numbers of the trees in recent years.`\
 https://nytimes.com/2025/09/08/us/sequoia-mckinley-grove-california.html

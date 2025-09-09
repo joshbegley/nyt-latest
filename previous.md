@@ -1,3 +1,7 @@
+**Too Fanciful**\
+`Marshal Herrmann uses alternative methods.`\
+https://nytimes.com/2025/09/08/crosswords/daily-puzzle-2025-09-09.html
+
 **Firefighters Race to Save a Treasured Sequoia Grove in California**\
 `Giant sequoias can live for thousands of years, but wildfires have killed staggering numbers of the trees in recent years.`\
 https://nytimes.com/2025/09/08/us/sequoia-mckinley-grove-california.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6611948/2025/09/08/vanderbilt-vs-south-carolina-str
 **How to watch Rays at White Sox: Time, TV, streaming for September 9**\
 `Find out how to watch the Tampa Bay Rays play the Chicago White Sox, with time, TV channel, and streaming information.`\
 https://nytimes.com/athletic/6611944/2025/09/08/rays-vs-white-sox-stream-how-to-watch-sept-9/
-
-**How to watch Utah at Wyoming: Time, TV, streaming**\
-`Find out how to watch the Utah Utes play the Wyoming Cowboys, with time, TV channel, and streaming information.`\
-https://nytimes.com/athletic/6611936/2025/09/08/utah-vs-wyoming-stream-how-to-watch-sept-13/
 
