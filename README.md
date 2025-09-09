@@ -1,3 +1,19 @@
+**Matt Boldy on Kaprizov's contract situation, his big postseason and striving to be an Olympian**\
+`After taking big steps the past three years and coming off an outstanding postseason, Boldy is looking to be leaned on more this season.`\
+https://nytimes.com/athletic/6613770/2025/09/09/matt-boldy-on-kirill-kaprizov-contract-postseason-olympian/
+
+**6 Takeaways From Kennedy’s Childhood Health Report**\
+`A report from the commission led by Health Secretary Robert F. Kennedy Jr. is soft on pesticides, pledges to define ultraprocessed foods and promised an “infertility training center.”`\
+https://nytimes.com/2025/09/09/well/6-takeaways-kennedy-childhood-health-report.html
+
+**Josh Giddey, Bulls agree to 4-year, $100 million contract extension**\
+`Giddey averaged 21.2 points, 10.7 rebounds and 9.3 assists through 19 games after the Bulls traded Zach LaVine in February.`\
+https://nytimes.com/athletic/6535887/2025/09/09/josh-giddey-bulls-contract-extension/
+
+**Shows Created by Women Rise Sharply, but Only on Streaming TV**\
+`Far more shows on streaming services are being created by women, a new study found. That number on broadcast networks, though, remained stagnant.`\
+https://nytimes.com/2025/09/09/business/media/women-creators-television-streaming.html
+
 **Man Accused in Brutal N.C. Rail Slaying Faces Federal Charge**\
 `A conviction would make the man, who is accused of killing a Ukrainian refugee on a light rail train in Charlotte, eligible for the federal death penalty.`\
 https://nytimes.com/2025/09/09/us/charlotte-light-rail-stabbing-charges.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6613837/2025/09/09/patriots-vs-dolphins-stream-how-
 **How to watch Bears at Lions: Time, TV, streaming**\
 `Find out how to watch the Chicago Bears play the Detroit Lions, with time, TV channel, and streaming information.`\
 https://nytimes.com/athletic/6613834/2025/09/09/bears-vs-lions-stream-how-to-watch-sept-14/
-
-**How to watch Giants at Cowboys: Time, TV, streaming**\
-`Find out how to watch the New York Giants play the Dallas Cowboys, with time, TV channel, and streaming information.`\
-https://nytimes.com/athletic/6613833/2025/09/09/giants-vs-cowboys-stream-how-to-watch-sept-14/
-
-**How to watch Browns at Ravens: Time, TV, streaming**\
-`Find out how to watch the Cleveland Browns play the Baltimore Ravens, with time, TV channel, and streaming information.`\
-https://nytimes.com/athletic/6613830/2025/09/09/browns-vs-ravens-stream-how-to-watch-sept-14/
-
-**How to watch Bills at Jets: Time, TV, streaming**\
-`Find out how to watch the Buffalo Bills play the New York Jets, with time, TV channel, and streaming information.`\
-https://nytimes.com/athletic/6613829/2025/09/09/bills-vs-jets-stream-how-to-watch-sept-14/
-
-**How to watch Seahawks at Steelers: Time, TV, streaming**\
-`Find out how to watch the Seattle Seahawks play the Pittsburgh Steelers, with time, TV channel, and streaming information.`\
-https://nytimes.com/athletic/6613826/2025/09/09/seahawks-vs-steelers-stream-how-to-watch-sept-14/
 
