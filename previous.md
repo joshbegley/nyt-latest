@@ -1,3 +1,15 @@
+**Live Updates: Nepal’s Prime Minister Resigns as Protesters Set Fire to Leaders’ Houses**\
+`A day after violent clashes left at least 19 people dead, Prime Minister K.P. Sharma Oli and other ministers quit, with no clear path to assuaging young protesters in the capital.`\
+https://nytimes.com/live/2025/09/09/world/nepal-protests
+
+**With the Patriots' run game struggling, is there too much on Drake Maye’s plate?**\
+`We examine some big-picture takeaways from the loss to the Raiders, like the lack of a run game and whether too much is being asked of Maye.`\
+https://nytimes.com/athletic/6611084/2025/09/09/patriots-drake-maye-run-game-week-1/
+
+**How our fantasy projections stack up against NHL.com's pre-draft rankings**\
+`Shayna Goldman details the biggest gaps between The Athletic's cheat sheet and NHL.com's pre-draft rankings. `\
+https://nytimes.com/athletic/6609561/2025/09/09/fantasy-hockey-trends-athletic-vs-nhl/
+
 **Missouri House Set to Vote on Map That Boosts Republicans**\
 `Republicans want to redraw congressional districts and increase their party’s chances of flipping a seat long held by a Democrat in the Kansas City area.`\
 https://nytimes.com/2025/09/09/us/missouri-congressional-redistricting-kansas-city.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/09/09/technology/nvidia-china-chip-sales-ai-doomerism.h
 **How I Ran Afoul of the Air Force Academy**\
 `As a civilian humanist, my presence might — for some attendees — invalidate my arguments; I wouldn’t be heard because of what I represent to the right.`\
 https://nytimes.com/2025/09/09/opinion/poet-air-force-academy-cancellation.html
-
-**Miles Davis Catalog Sells to Reservoir Media, a Small but Savvy Player**\
-`Reservoir, led by Golnar Khosrowshahi, has acquired the majority of music rights owned by the Davis estate ahead of the jazz master’s centennial next year.`\
-https://nytimes.com/2025/09/09/arts/music/miles-davis-estate-reservoir-media.html
-
-**Officers Who Drink and Drive Aren’t Always Punished**\
-`A review of once-secret disciplinary files shows that some officers around New York State have avoided accountability.`\
-https://nytimes.com/2025/09/09/nyregion/officers-who-drink-and-drive-arent-always-punished.html
-
-**Mamdani Holds Huge Lead in Mayor’s Race, Times/Siena Poll Finds**\
-`Zohran Mamdani, the Democratic nominee in the New York City mayoral race, is way ahead of his three rivals, but his lead would diminish considerably if the field shrank to a two-man race.`\
-https://nytimes.com/2025/09/09/nyregion/mayor-poll-mamdani-cuomo.html
 

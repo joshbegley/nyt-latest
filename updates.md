@@ -1,3 +1,15 @@
+**Live Updates: Nepal’s Prime Minister Resigns as Protesters Set Fire to Leaders’ Houses**\
+`A day after violent clashes left at least 19 people dead, Prime Minister K.P. Sharma Oli and other ministers quit, with no clear path to assuaging young protesters in the capital.`\
+https://nytimes.com/live/2025/09/09/world/nepal-protests
+
+**With the Patriots' run game struggling, is there too much on Drake Maye’s plate?**\
+`We examine some big-picture takeaways from the loss to the Raiders, like the lack of a run game and whether too much is being asked of Maye.`\
+https://nytimes.com/athletic/6611084/2025/09/09/patriots-drake-maye-run-game-week-1/
+
+**How our fantasy projections stack up against NHL.com's pre-draft rankings**\
+`Shayna Goldman details the biggest gaps between The Athletic's cheat sheet and NHL.com's pre-draft rankings. `\
+https://nytimes.com/athletic/6609561/2025/09/09/fantasy-hockey-trends-athletic-vs-nhl/
+
 **Missouri House Set to Vote on Map That Boosts Republicans**\
 `Republicans want to redraw congressional districts and increase their party’s chances of flipping a seat long held by a Democrat in the Kansas City area.`\
 https://nytimes.com/2025/09/09/us/missouri-congressional-redistricting-kansas-city.html
