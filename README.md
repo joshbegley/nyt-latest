@@ -1,3 +1,19 @@
+**Man Accused in Brutal N.C. Rail Slaying Faces Federal Charge**\
+`A conviction would make the man, who is accused of killing a Ukrainian refugee on a light rail train in Charlotte, eligible for the federal death penalty.`\
+https://nytimes.com/2025/09/09/us/charlotte-light-rail-stabbing-charges.html
+
+**N.Y.C. Schools Fail to Properly Educate English Learners, Audit Says**\
+`The enrollment of students learning English as a new language has soared in recent years. But a report found “systemic breakdowns” in their education.`\
+https://nytimes.com/2025/09/09/nyregion/new-york-schools-english-language-learners.html
+
+**Boston Mayoral Primary Election Results**\
+`Get live results from the 2025 Boston preliminary municipal election.`\
+https://nytimes.com/interactive/2025/09/09/us/elections/results-boston-mayor-primary.html
+
+**Virginia 11th Congressional District Special Election Results**\
+`Get live results and maps from the 2025 Virginia special congressional election.`\
+https://nytimes.com/interactive/2025/09/09/us/elections/results-virginia-us-house-11-special.html
+
 **How to watch Patriots at Dolphins: Time, TV, streaming**\
 `Find out how to watch the New England Patriots play the Miami Dolphins, with time, TV channel, and streaming information.`\
 https://nytimes.com/athletic/6613837/2025/09/09/patriots-vs-dolphins-stream-how-to-watch-sept-14/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6613829/2025/09/09/bills-vs-jets-stream-how-to-watc
 **How to watch Seahawks at Steelers: Time, TV, streaming**\
 `Find out how to watch the Seattle Seahawks play the Pittsburgh Steelers, with time, TV channel, and streaming information.`\
 https://nytimes.com/athletic/6613826/2025/09/09/seahawks-vs-steelers-stream-how-to-watch-sept-14/
-
-**How to watch Jaguars at Bengals: Time, TV, streaming**\
-`Find out how to watch the Jacksonville Jaguars play the Cincinnati Bengals, with time, TV channel, and streaming information.`\
-https://nytimes.com/athletic/6613825/2025/09/09/jaguars-vs-bengals-stream-how-to-watch-sept-14/
-
-**How to watch Rams at Titans: Time, TV, streaming**\
-`Find out how to watch the Los Angeles Rams play the Tennessee Titans, with time, TV channel, and streaming information.`\
-https://nytimes.com/athletic/6613822/2025/09/09/rams-vs-titans-stream-how-to-watch-sept-14/
-
-**How to watch 49ers at Saints: Time, TV, streaming**\
-`Find out how to watch the San Francisco 49ers play the New Orleans Saints, with time, TV channel, and streaming information.`\
-https://nytimes.com/athletic/6613819/2025/09/09/49ers-vs-saints-stream-how-to-watch-sept-14/
-
-**Blue Jays shortstop Bo Bichette lands on the injured list with a knee injury**\
-`Bichette injured his left knee in a home plate collision at Yankee Stadium on Saturday.`\
-https://nytimes.com/athletic/6613789/2025/09/09/blue-jays-bo-bichette-knee-injury/
 
