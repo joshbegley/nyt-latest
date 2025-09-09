@@ -1,3 +1,7 @@
+**Russian Bomb Kills at Least 20 Picking Up Pensions, Zelensky Says**\
+`The Ukrainian leader said that the strike on older people in a Donetsk village should prompt a global response.`\
+https://nytimes.com/2025/09/09/world/europe/ukraine-bombing-donetsk-pensioners.html
+
 **How 1 shaky possession triggered the Bears' second-half collapse against the Vikings**\
 `Late in the third quarter Monday night, the Bears seemed ready to put the Vikings away. Until a comedy of errors swung the game.`\
 https://nytimes.com/athletic/6612356/2025/09/09/bears-vikings-second-half-collapse/
