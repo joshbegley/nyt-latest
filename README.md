@@ -24,7 +24,7 @@ https://nytimes.com/2025/09/09/world/europe/macron-options-analysis.html
 
 **Arrest Warrant Says Buyer of ‘Nude Emperor’ Bronze Knew It Was Looted**\
 `Investigators are pursuing criminal charges against a wealthy collector who has challenged the assertion that the Roman-era antiquity he bought for $1.3 million had been stolen from Turkey.`\
-https://nytimes.com/2025/09/09/arts/arrest-warrant-says-buyer-of-nude-emperor-bronze-knew-it-was-looted.html
+https://nytimes.com/2025/09/09/arts/design/arrest-warrant-nude-emperor-bronze-looted.html
 
 **Brilliant Apparel That Boosts Moods**\
 `A vibrant crop top and hot pink leggings lit up the street as the sun set.`\
