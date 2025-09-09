@@ -1,3 +1,15 @@
+**Rays' Wander Franco taken to clinic for 'mental health situation'**\
+`Franco was convicted of sexual abuse of a minor earlier this summer and has not played in the major leagues since August 2023.`\
+https://nytimes.com/athletic/6613368/2025/09/09/wander-franco-mental-health-situation/
+
+**A Censorship Playbook Fails in Nepal, Sparking Unrest**\
+`Nepal’s recent social media ban, part of a global censorship trend, helped set off widespread unrest, forcing the government to reverse course.`\
+https://nytimes.com/2025/09/09/world/asia/nepal-protests-social-media-ban-censorship.html
+
+**U.S. Wildfire Fighters to Mask Up After Decades-Long Ban on Smoke Protections**\
+`The Forest Service is changing course as it faces growing pressure over firefighters who are falling ill with cancer and other smoke-related illnesses.`\
+https://nytimes.com/2025/09/09/us/wildfires-masks-firefighters.html
+
 **Former Forest, Leicester manager Cooper appointed Brondby head coach**\
 `The Welshman has signed a three-year deal with the Danish Superliga side`\
 https://nytimes.com/athletic/6613377/2025/09/09/steve-cooper-news-brondby-manager/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/09/09/arts/television/mussolini-son-of-the-century.html
 **Iran and U.N. Watchdog Meet to Discuss Resuming Nuclear Inspections**\
 `Iran has not allowed inspections since its nuclear sites were bombed by Israel and the United States in June, but it hopes to stave off Western economic sanctions.`\
 https://nytimes.com/2025/09/09/world/europe/iran-iaea-nuclear-inspections.html
-
-**The Commanders have already made their plan for Deebo Samuel very clear: Do everything**\
-`Samuel contributed as a ball carrier, a kick returner and a dangerous receiver in Washington's season-opening win. `\
-https://nytimes.com/athletic/6613169/2025/09/09/deebo-samuel-washington-commanders-offense/
-
-**Tata Martino weighs in on Mauricio Pochettino's troubled stint as USMNT coach**\
-`The two Argentine managers were former teammates, and after coaching Mexico and in MLS, Martino gives his observations to The Athletic`\
-https://nytimes.com/athletic/6613145/2025/09/09/tata-martino-mauricio-pochettino-usmnt-mls-world-cup/
-
-**Andy Reid unsure why Teair Tart wasn't ejected for hit on Travis Kelce**\
-`Tart was assessed an unnecessary roughness penalty, which cost the Chargers 15 yards, but was not ejected from the game.`\
-https://nytimes.com/athletic/6613212/2025/09/09/chiefs-reid-chargers-tart-kelce/
 

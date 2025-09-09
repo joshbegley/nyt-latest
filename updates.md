@@ -1,3 +1,15 @@
+**Rays' Wander Franco taken to clinic for 'mental health situation'**\
+`Franco was convicted of sexual abuse of a minor earlier this summer and has not played in the major leagues since August 2023.`\
+https://nytimes.com/athletic/6613368/2025/09/09/wander-franco-mental-health-situation/
+
+**A Censorship Playbook Fails in Nepal, Sparking Unrest**\
+`Nepal’s recent social media ban, part of a global censorship trend, helped set off widespread unrest, forcing the government to reverse course.`\
+https://nytimes.com/2025/09/09/world/asia/nepal-protests-social-media-ban-censorship.html
+
+**U.S. Wildfire Fighters to Mask Up After Decades-Long Ban on Smoke Protections**\
+`The Forest Service is changing course as it faces growing pressure over firefighters who are falling ill with cancer and other smoke-related illnesses.`\
+https://nytimes.com/2025/09/09/us/wildfires-masks-firefighters.html
+
 **Former Forest, Leicester manager Cooper appointed Brondby head coach**\
 `The Welshman has signed a three-year deal with the Danish Superliga side`\
 https://nytimes.com/athletic/6613377/2025/09/09/steve-cooper-news-brondby-manager/

@@ -1,3 +1,11 @@
+**Courage agree to trade USWNT star Jaedyn Shaw to Gotham FC in record deal**\
+`The transfer fee for Shaw would be more than double the previous intra-league record.`\
+https://nytimes.com/athletic/6613174/2025/09/09/gotham-jaedyn-shaw-trade-courage-record/
+
+**Josh Allen's specially designed hats to raise money for Buffalo children's hospital**\
+`Bidding on Allen's Week 1 hat has surpassed $17,000`\
+https://nytimes.com/athletic/6613161/2025/09/09/josh-allens-tunnel-hats-charity/
+
 **Rays' Wander Franco taken to clinic for 'mental health situation'**\
 `Franco was convicted of sexual abuse of a minor earlier this summer and has not played in the major leagues since August 2023.`\
 https://nytimes.com/athletic/6613368/2025/09/09/wander-franco-mental-health-situation/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6611091/2025/09/09/college-football-national-title-
 **Good Form**\
 `How to do essential exercises with correct technique.`\
 https://nytimes.com/spotlight/good-form
-
-**In This TV Drama, Mussolini Wants to ‘Make Italy Great Again’**\
-`A new series about the dictator makes its way to U.S. viewers, with a message about the perils of charismatic leaders.`\
-https://nytimes.com/2025/09/09/arts/television/mussolini-son-of-the-century.html
-
-**Iran and U.N. Watchdog Meet to Discuss Resuming Nuclear Inspections**\
-`Iran has not allowed inspections since its nuclear sites were bombed by Israel and the United States in June, but it hopes to stave off Western economic sanctions.`\
-https://nytimes.com/2025/09/09/world/europe/iran-iaea-nuclear-inspections.html
 
