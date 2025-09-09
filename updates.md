@@ -1,3 +1,7 @@
+**Ravens know they have much to fix as their focus shifts to Browns in Week 2**\
+`Losses like the one Baltimore encountered tend to leave scar tissue, but John Harbaugh's team can't afford to have a hangover vs. Cleveland.`\
+https://nytimes.com/athletic/6611507/2025/09/09/ravens-blown-leads-browns-week-2/
+
 **Bears QB Caleb Williams' accuracy goes awry after perfect start in loss to Vikings**\
 `Williams had pinpoint precision to begin the 2025 season, then things fell apart and he missed receivers by a lot.`\
 https://nytimes.com/athletic/6612362/2025/09/09/bears-caleb-williams-accuracy-vikings/
