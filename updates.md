@@ -1,3 +1,19 @@
+**Former Forest, Leicester manager Cooper appointed Brondby head coach**\
+`The Welshman has signed a three-year deal with the Danish Superliga side`\
+https://nytimes.com/athletic/6613377/2025/09/09/steve-cooper-news-brondby-manager/
+
+**‘Sex and Love Addiction’ Isn’t a Diagnosis, but It Can Be Debilitating**\
+`Elizabeth Gilbert, the author of “Eat, Pray, Love,” delves into her struggle with an obsessive relationship in a new memoir.`\
+https://nytimes.com/2025/09/09/well/mind/sex-love-addiction-elizabeth-gilbert.html
+
+**Vuelta a Espana stage cut short for second time due to pro-Palestine protest**\
+`Race officials erected a makeshift finish line — with INEOS Grenadiers' Colombian climber Egan Bernal taking his first Grand Tour stage win.`\
+https://nytimes.com/athletic/6613152/2025/09/09/vuelta-a-espana-stage-palestine-protest/
+
+**College football national title odds: Oklahoma surges after knocking off Michigan**\
+`The top national title favorites all won in Week 2, but there was some movement in the second and third tier of contenders.`\
+https://nytimes.com/athletic/6611091/2025/09/09/college-football-national-title-odds-oklahoma/
+
 **Good Form**\
 `How to do essential exercises with correct technique.`\
 https://nytimes.com/spotlight/good-form
