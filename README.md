@@ -1,40 +1,40 @@
-**You Might Have Already Fallen for MAHA’s Conspiracy Theories**\
-`How does MAHA turn some health-conscious people against all health care? We found out.`\
-https://nytimes.com/video/opinion/100000010338565/maha-health-wellness-influencers-conspiracy-theory.html
+**Missouri House Set to Vote on Map That Boosts Republicans**\
+`Republicans want to redraw congressional districts and increase their party’s chances of flipping a seat long held by a Democrat in the Kansas City area.`\
+https://nytimes.com/2025/09/09/us/missouri-congressional-redistricting-kansas-city.html
 
-**Postecoglou set to be appointed Forest head coach after Nuno exit**\
-`The Australian head coach was dismissed by Spurs in June after winning the Europa League but finishing 17th in the Premier League`\
-https://nytimes.com/athletic/6425702/2025/09/09/ange-postecoglou-nottingham-forest-manager/
+**Mamdani Leads Cuomo Head-to-Head, With a Turnout Twist**\
+`The Times/Siena poll shows Mamdani with an edge among likely voters, but Cuomo leads among all registered voters.`\
+https://nytimes.com/2025/09/09/upshot/poll-nyc-mamdani-cuomo.html
 
-**Nuno Espirito Santo's Nottingham Forest exit feels unnecessary, potentially damaging and pretty sad**\
-`For a little while, on the surface at least, Nottingham Forest seemed like it was a relatively serene place to be. Not now`\
-https://nytimes.com/athletic/6612481/2025/09/09/nuno-espirito-santo-nottingham-forest-farewell/
+**To Shrink Mamdani’s Lead, Cuomo Seeks to Broaden His Campaign Team**\
+`Former Gov. Andrew M. Cuomo is hiring new top aides for his independent bid for mayor, including a campaign manager who worked for Rahm Emanuel in Chicago.`\
+https://nytimes.com/2025/09/09/nyregion/cuomo-campaign-manager-goldner.html
 
-**Israeli Military Orders Residents of Gaza City to Evacuate**\
-`Hundreds of thousands of people will have to decide whether to risk staying put or fleeing south to overcrowded areas, many of which are in ruins, as Israel looks set to launch a full invasion of the city.`\
-https://nytimes.com/2025/09/09/world/middleeast/israel-gaza-city-evacuation.html
+**The Starbucks C.E.O. Trying Hard to Deliver Your Drink Right, and Fast**\
+`Improved service, better seating and heartfelt messages are at the heart of Brian Niccol’s turnaround plan, but baristas say they’re under pressure.`\
+https://nytimes.com/2025/09/09/business/starbucks-turnaround-brian-niccol.html
 
-**Late Night Misses the Defense Department Already**\
-`President Trump has renamed it the Department of War, “which is what people call the clearance section at TJ Maxx,” Jimmy Fallon said.`\
-https://nytimes.com/2025/09/09/arts/television/late-night-department-of-war.html
+**Lachlan Murdoch, the Media Prince Who Would Be King**\
+`A new deal gives him control of his family’s media empire, including Fox News, for probably decades to come.`\
+https://nytimes.com/2025/09/09/business/media/lachlan-murdoch-fox-news-corp.html
 
-**Nepal Protesters Set Fire to Leaders’ Homes in a New Day of Rage**\
-`A day after violent clashes left at least 19 people dead, young protesters defied a curfew and took to the streets again.`\
-https://nytimes.com/2025/09/09/world/asia/nepal-protests-fire-homes-president.html
+**Nvidia Assails Critics as A.I. ‘Doomers’ in Fight Over China Chip Sales**\
+`Rankling national security experts, the chipmaker has stepped up attacks on lawmakers who are pushing restrictions.`\
+https://nytimes.com/2025/09/09/technology/nvidia-china-chip-sales-ai-doomerism.html
 
-**Explained: Manchester City and the Premier League's APT settlement and what it means for everyone else**\
-`What was the issue, why has it been settled and will it have any bearing on the bigger case between City and the Premier League?`\
-https://nytimes.com/athletic/6610762/2025/09/09/man-city-premier-league-apt-settlement-explainer/
+**How I Ran Afoul of the Air Force Academy**\
+`As a civilian humanist, my presence might — for some attendees — invalidate my arguments; I wouldn’t be heard because of what I represent to the right.`\
+https://nytimes.com/2025/09/09/opinion/poet-air-force-academy-cancellation.html
 
-**Two Leading European Tech Firms Strike an A.I. Partnership**\
-`ASML, the Dutch maker of semiconductor equipment, is investing about $1.5 billion in Mistral, the French A.I. start-up.`\
-https://nytimes.com/2025/09/09/business/asml-mistral-ai-chips-investment.html
+**Miles Davis Catalog Sells to Reservoir Media, a Small but Savvy Player**\
+`Reservoir, led by Golnar Khosrowshahi, has acquired the majority of music rights owned by the Davis estate ahead of the jazz master’s centennial next year.`\
+https://nytimes.com/2025/09/09/arts/music/miles-davis-estate-reservoir-media.html
 
-**Full Time: A tale of 2 Thompson sisters**\
-`Welcome to Full Time, The Athletic's women's soccer newsletter.`\
-https://nytimes.com/athletic/6612475/2025/09/09/alyssa-thompson-chelsea-nwsl-full-time/
+**Officers Who Drink and Drive Aren’t Always Punished**\
+`A review of once-secret disciplinary files shows that some officers around New York State have avoided accountability.`\
+https://nytimes.com/2025/09/09/nyregion/officers-who-drink-and-drive-arent-always-punished.html
 
-**He Nearly Died on the Football Field. Is That Why Everybody Loves Him?**\
-`Damar Hamlin’s heart stopped beating after a tackle on “Monday Night Football” in 2023. He wants to be known for more than that.`\
-https://nytimes.com/2025/09/09/nyregion/damar-hamlin-buffalo-bills-cardiac-arrest.html
+**Mamdani Holds Huge Lead in Mayor’s Race, Times/Siena Poll Finds**\
+`Zohran Mamdani, the Democratic nominee in the New York City mayoral race, is way ahead of his three rivals, but his lead would diminish considerably if the field shrank to a two-man race.`\
+https://nytimes.com/2025/09/09/nyregion/mayor-poll-mamdani-cuomo.html
 
