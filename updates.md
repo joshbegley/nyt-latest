@@ -1,3 +1,7 @@
+**NFL says Carter’s ejection counts as suspension; eligible to play in Week 2**\
+`Carter was ejected from the Eagles’ Week 1 win over the Cowboys after the opening kickoff when he spat at Cowboys quarterback Dak Prescott.`\
+https://nytimes.com/athletic/6610697/2025/09/09/jalen-carter-spitting-suspension-eagles-dak-prescott-nfl/
+
 **Ken Dryden, Hall of Fame Goalie in a Multifaceted Life, Dies at 78**\
 `He led Montreal to six Stanley Cups before becoming an acclaimed author, a team executive, a sportscaster and a member of Canada’s Parliament.`\
 https://nytimes.com/2025/09/09/sports/hockey/ken-dryden-dead.html

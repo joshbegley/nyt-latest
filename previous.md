@@ -6,7 +6,7 @@ https://nytimes.com/2025/09/09/sports/hockey/ken-dryden-dead.html
 `The two top vote-getters on Tuesday will compete in November. They are expected to be Mayor Michelle Wu and Josh Kraft, a political newcomer and a son of the New England Patriots owner.`\
 https://nytimes.com/2025/09/09/us/boston-mayor-wu-preliminary-election.html
 
-**Eagles' Jalen Carter suspended 1 game for spitting incident, but league considers it served**\
+**NFL says Carter’s ejection counts as suspension; eligible to play in Week 2**\
 `Carter was ejected from the Eagles’ Week 1 win over the Cowboys after the opening kickoff when he spat at Cowboys quarterback Dak Prescott.`\
 https://nytimes.com/athletic/6610697/2025/09/09/jalen-carter-spitting-suspension-eagles-dak-prescott-nfl/
 
