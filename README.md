@@ -1,3 +1,7 @@
+**Thune Moves to Speed Trump Nominees Past Democratic Blockade**\
+`Republicans said the maneuver to change the Senate’s rules, the latest step that would weaken the filibuster, was necessary to overcome Democratic obstruction of President Trump’s nominees.`\
+https://nytimes.com/2025/09/08/us/politics/senate-nominations-nuclear-option-trump.html
+
 **Tank Bigsby trade grades: Jaguars cash in on depth, as Eagles bolster RB room**\
 `The Jaguars like their depth behind Travis Etienne, especially rookie Bhayshul Tuten. `\
 https://nytimes.com/athletic/6612027/2025/09/08/tank-bigsby-eagles-jaguars-trade-grade/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6611936/2025/09/08/utah-vs-wyoming-stream-how-to-wa
 **How to watch Cubs at Braves: Time, TV, streaming for September 9**\
 `Find out how to watch the Chicago Cubs play the Atlanta Braves, with time, TV channel, and streaming information.`\
 https://nytimes.com/athletic/6611917/2025/09/08/cubs-vs-braves-stream-how-to-watch-sept-9/
-
-**Eagles acquire RB Tank Bigsby in trade with Jaguars: Source**\
-`The Jaguars will receive fifth- and sixth-round picks in the 2026 draft from Philadelphia in the Bigsby trade.`\
-https://nytimes.com/athletic/6611866/2025/09/08/eagles-tank-bigsby-jaguars-trade/
 
