@@ -1,3 +1,23 @@
+**The Lone G.O.P. Governor Opposing Trump’s War on Offshore Wind**\
+`Gov. Glenn Youngkin, Republican of Virginia, has championed a wind farm under construction off the coast of his state. He’s trying to persuade President Trump to leave it alone.`\
+https://nytimes.com/2025/09/09/climate/youngkin-virginia-offshore-wind-trump.html
+
+**Why Should Democrats Fix Republicans' Problems?**\
+`Jamelle Bouie, an Opinion columnist, argues the Republican Party has “completely abdicated any serious attempt to govern the country” and that Democrats should stop bailing them out.`\
+https://nytimes.com/video/opinion/100000010387150/why-should-democrats-fix-republicans-problems.html
+
+**Is Bengals' problematic run defense now fixed?**\
+`New additions like TJ Slaton and Demetrius Knight Jr. were pivotal in shutting down the Browns' running game on Sunday.`\
+https://nytimes.com/athletic/6612974/2025/09/09/bengals-run-defense-tj-slaton/
+
+**Got Pelicans questions? Submit to William Guillory for the upcoming mailbag**\
+`There&#8217;s been no shortage of questions surrounding the New Orleans Pelicans and some of the polarizing moves made during Joe Dumars&#8217; first offseason as the lead executive.`\
+https://nytimes.com/athletic/6613001/2025/09/09/pelicans-nba-offseason-questions-mailbag/
+
+**Israel Targeted Hamas Leadership in Qatar Strike**\
+`Qatar condemned the attack, which the Qatari foreign ministry said targeted the “residential headquarters” where a number of senior Hamas politicians live.`\
+https://nytimes.com/2025/09/09/world/middleeast/israel-hamas-doha-qatar-strike.html
+
 **Macron Has No Good Options After Repeat Collapse of French Government**\
 `The president, thwarted at home, has become increasingly frustrated and weakened at a critical moment for his country and Europe.`\
 https://nytimes.com/2025/09/09/world/europe/macron-options-analysis.html
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/6611863/2025/09/09/fantasy-football-week-2-drops-bi
 **Anger at Nepal’s social media ban reflects families’ dependence on workers abroad.**\
 `By Alex Travelli`\
 https://nytimes.com/live/2025/09/09/world/nepal-protests/anger-at-nepals-social-media-ban-reflects-families-dependence-on-workers-abroad
-
-**Independiente call disqualification a ‘political decision’ as 22 injured in fan violence**\
-`Independiente's disqualification followed the abandonment of the second leg of their last-16 tie against Universidad de Chile in August`\
-https://nytimes.com/athletic/6612742/2025/09/09/argentina-soccer-violence-match-abandoned/
-
-**The New Symbol of the Brazilian Right: the American Flag**\
-`In a nod to President Trump, Brazil’s nationalist movement has adopted the stars and stripes. Now one flag could be the focus of an investigation involving the N.F.L.`\
-https://nytimes.com/2025/09/09/world/americas/brazil-american-flag-nfl.html
-
-**Israel Drops Leaflets Ordering Gaza City Evacuation**\
-`Israel on Tuesday called on residents of Gaza City to evacuate as it pushes ahead with its full-scale invasion. Hundreds of thousands of people will have to decide whether to stay or flee to already overcrowded or destroyed areas.`\
-https://nytimes.com/video/world/middleeast/100000010386936/israel-gaza-city-evacuation-leaflets.html
-
-**Ray Hudson's magical broadcasting ride ends**\
-`The 70-year-old former player and coach is stepping away from the booth.`\
-https://nytimes.com/athletic/6608283/2025/09/09/ray-hudson-broadcasting-retire/
-
-**The Stakes of the Murdoch Family’s Peace Deal**\
-`A new accord ends a bitter power struggle and gives Rupert Murdoch’s elder son control of the family’s media empire.`\
-https://nytimes.com/2025/09/09/business/dealbook/lachlan-murdoch-family-deal.html
 
