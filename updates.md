@@ -1,3 +1,7 @@
+**Big 12 suspends officiating crew for play violation in Missouri vs. Kansas**\
+`For punting on the kickoff, officials should have assessed Missouri a 5-yard penalty for an illegal kick.`\
+https://nytimes.com/athletic/6613158/2025/09/09/big-12-officiating-crew-suspension-missouri-kansas/
+
 **Gabbard Retracted Intelligence Report on Venezuela**\
 `The report, which remains classified, described work by Richard Grenell, a former top intelligence official in the Trump administration.`\
 https://nytimes.com/2025/09/09/us/politics/gabbard-intelligence-report-venezuela.html
