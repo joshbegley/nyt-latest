@@ -1,3 +1,7 @@
+**Arrest Warrant Says Buyer of ‘Nude Emperor’ Bronze Knew It Was Looted**\
+`Investigators are pursuing criminal charges against a wealthy collector who has challenged the assertion that the Roman-era antiquity he bought for $1.3 million had been stolen from Turkey.`\
+https://nytimes.com/2025/09/09/arts/design/arrest-warrant-nude-emperor-bronze-looted.html
+
 **The Lone G.O.P. Governor Opposing Trump’s War on Offshore Wind**\
 `Gov. Glenn Youngkin, Republican of Virginia, has championed a wind farm under construction off the coast of his state. He’s trying to persuade President Trump to leave it alone.`\
 https://nytimes.com/2025/09/09/climate/youngkin-virginia-offshore-wind-trump.html
