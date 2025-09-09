@@ -1,3 +1,7 @@
+**Firefighters Race to Save a Treasured Sequoia Grove in California**\
+`Giant sequoias can live for thousands of years, but wildfires have killed staggering numbers of the trees in recent years.`\
+https://nytimes.com/2025/09/08/us/sequoia-mckinley-grove-california.html
+
 **Thune Moves to Speed Trump Nominees Past Democratic Blockade**\
 `Republicans said the maneuver to change the Senate’s rules, the latest step that would weaken the filibuster, was necessary to overcome Democratic obstruction of President Trump’s nominees.`\
 https://nytimes.com/2025/09/08/us/politics/senate-nominations-nuclear-option-trump.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6611944/2025/09/08/rays-vs-white-sox-stream-how-to-
 **How to watch Utah at Wyoming: Time, TV, streaming**\
 `Find out how to watch the Utah Utes play the Wyoming Cowboys, with time, TV channel, and streaming information.`\
 https://nytimes.com/athletic/6611936/2025/09/08/utah-vs-wyoming-stream-how-to-watch-sept-13/
-
-**How to watch Cubs at Braves: Time, TV, streaming for September 9**\
-`Find out how to watch the Chicago Cubs play the Atlanta Braves, with time, TV channel, and streaming information.`\
-https://nytimes.com/athletic/6611917/2025/09/08/cubs-vs-braves-stream-how-to-watch-sept-9/
 

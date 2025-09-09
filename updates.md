@@ -1,3 +1,7 @@
+**Firefighters Race to Save a Treasured Sequoia Grove in California**\
+`Giant sequoias can live for thousands of years, but wildfires have killed staggering numbers of the trees in recent years.`\
+https://nytimes.com/2025/09/08/us/sequoia-mckinley-grove-california.html
+
 **Thune Moves to Speed Trump Nominees Past Democratic Blockade**\
 `Republicans said the maneuver to change the Senate’s rules, the latest step that would weaken the filibuster, was necessary to overcome Democratic obstruction of President Trump’s nominees.`\
 https://nytimes.com/2025/09/08/us/politics/senate-nominations-nuclear-option-trump.html
