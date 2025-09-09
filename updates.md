@@ -1,3 +1,7 @@
+**Florida's Brendan Bett apologizes for spitting on USF's Cole Skinner**\
+`'There is no excuse for my actions,' Bett said on social media after spitting on Skinner in the Bulls' 18-16 upset over the Gators Saturday.`\
+https://nytimes.com/athletic/6612112/2025/09/08/brendan-bett-spitting-apology-florida-usf/
+
 **More details emerge from car crash that left Angels prospect in critical but stable condition**\
 `Rio Foster’s mother provided an update through GoFundMe, stating her son has undergone brain surgery and awaits several more procedures.`\
 https://nytimes.com/athletic/6612030/2025/09/08/angels-rio-foster-car-crash/
