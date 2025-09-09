@@ -1,3 +1,11 @@
+**How to watch Minnesota at California: Time, TV, streaming**\
+`Find out how to watch the Minnesota Golden Gophers play the California Golden Bears, with time, TV channel, and streaming information.`\
+https://nytimes.com/athletic/6612446/2025/09/09/minnesota-vs-california-stream-how-to-watch-sept-13/
+
+**How to watch Brewers at Rangers: Time, TV, streaming for September 9**\
+`Find out how to watch the Milwaukee Brewers play the Texas Rangers, with time, TV channel, and streaming information.`\
+https://nytimes.com/athletic/6612394/2025/09/09/brewers-vs-rangers-stream-how-to-watch-sept-9/
+
 **Aid Group Says Drone Struck Gaza-Bound Boat Docked in Tunisia**\
 `Officials in Tunisia said there was no evidence of an attack on the ship, which the Global Sumud Flotilla hoped to use to bring humanitarian goods to Gaza.`\
 https://nytimes.com/2025/09/09/world/africa/gaza-aid-flotilla-drone-tunisia.html
