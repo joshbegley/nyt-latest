@@ -1,3 +1,7 @@
+**Eagles acquire RB Tank Bigsby in trade with Jaguars: Source**\
+`The Jaguars will receive fifth- and sixth-round picks in the 2026 draft from Philadelphia in the Bigsby trade.`\
+https://nytimes.com/athletic/6611866/2025/09/08/eagles-tank-bigsby-jaguars-trade/
+
 **A Gruesome Murder in North Carolina Ignites a Firestorm on the Right**\
 `Security footage capturing the unprovoked stabbing in Charlotte became an accelerant for conservative arguments about the perceived failings of Democratic policies.`\
 https://nytimes.com/2025/09/08/us/charlotte-murder-conservatives-crime.html
