@@ -1,3 +1,11 @@
+**Seismic protests in Asia have had young people at their core.**\
+`By Matthew Mpoke Bigg`\
+https://nytimes.com/live/2025/09/09/world/nepal-protests/seismic-protests-in-asia-have-had-young-people-at-their-core
+
+**Giants couldn't bench Russell Wilson after one bad game. But what about after two?**\
+`If the Cowboys game resembles Sunday’s dysfunctional mess, then it will be time to switch to rookie Jaxson Dart.`\
+https://nytimes.com/athletic/6612309/2025/09/09/ny-giants-russell-wilson-jaxson-dart-commanders/
+
 **Arrest Warrant Says Buyer of ‘Nude Emperor’ Bronze Knew It Was Looted**\
 `Investigators are pursuing criminal charges against a wealthy collector who has challenged the assertion that the Roman-era antiquity he bought for $1.3 million had been stolen from Turkey.`\
 https://nytimes.com/2025/09/09/arts/design/arrest-warrant-nude-emperor-bronze-looted.html

@@ -1,3 +1,11 @@
+**Seismic protests in Asia have had young people at their core.**\
+`By Matthew Mpoke Bigg`\
+https://nytimes.com/live/2025/09/09/world/nepal-protests/seismic-protests-in-asia-have-had-young-people-at-their-core
+
+**Giants couldn't bench Russell Wilson after one bad game. But what about after two?**\
+`If the Cowboys game resembles Sunday’s dysfunctional mess, then it will be time to switch to rookie Jaxson Dart.`\
+https://nytimes.com/athletic/6612309/2025/09/09/ny-giants-russell-wilson-jaxson-dart-commanders/
+
 **The Lone G.O.P. Governor Opposing Trump’s War on Offshore Wind**\
 `Gov. Glenn Youngkin, Republican of Virginia, has championed a wind farm under construction off the coast of his state. He’s trying to persuade President Trump to leave it alone.`\
 https://nytimes.com/2025/09/09/climate/youngkin-virginia-offshore-wind-trump.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/09/09/arts/design/arrest-warrant-nude-emperor-bronze-lo
 **Brilliant Apparel That Boosts Moods**\
 `A vibrant crop top and hot pink leggings lit up the street as the sun set.`\
 https://nytimes.com/2025/09/09/style/street-style-look-bright-clothes.html
-
-**Fantasy football Week 2 drops: Cutting ties with Tank Bigsby, Josh Downs and more**\
-`Gary Davenport warns against overreacting after Week 1 as he guides you toward players who can be cut loose this week.`\
-https://nytimes.com/athletic/6611863/2025/09/09/fantasy-football-week-2-drops-bigsby-downs/
-
-**Anger at Nepal’s social media ban reflects families’ dependence on workers abroad.**\
-`By Alex Travelli`\
-https://nytimes.com/live/2025/09/09/world/nepal-protests/anger-at-nepals-social-media-ban-reflects-families-dependence-on-workers-abroad
 
