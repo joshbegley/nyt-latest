@@ -1,3 +1,11 @@
+**Anger at Nepal’s social media ban reflects families’ dependence on workers abroad.**\
+`By Alex Travelli`\
+https://nytimes.com/live/2025/09/09/world/nepal-protests/anger-at-nepals-social-media-ban-reflects-families-dependence-on-workers-abroad
+
+**Independiente call disqualification a ‘political decision’ as 22 injured in fan violence**\
+`Independiente's disqualification followed the abandonment of the second leg of their last-16 tie against Universidad de Chile in August`\
+https://nytimes.com/athletic/6612742/2025/09/09/argentina-soccer-violence-match-abandoned/
+
 **The New Symbol of the Brazilian Right: the American Flag**\
 `In a nod to President Trump, Brazil’s nationalist movement has adopted the stars and stripes. Now one flag could be the focus of an investigation involving the N.F.L.`\
 https://nytimes.com/2025/09/09/world/americas/brazil-american-flag-nfl.html
