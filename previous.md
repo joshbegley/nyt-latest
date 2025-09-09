@@ -1,3 +1,7 @@
+**Red Sox endure another rotation setback in homestretch of three-way battle for AL East**\
+`May had been scheduled to start on Tuesday against the Athletics. Instead, he was scratched.`\
+https://nytimes.com/athletic/6613518/2025/09/09/red-sox-dustin-may-connelly-early/
+
 **Michigan Judge Tosses Out Cases Against Fake Trump Electors**\
 `The judge, a Democrat, concluded that fake electors recruited to support Donald J. Trump’s candidacy in 2020 did not understand that they were being asked to do something illegal.`\
 https://nytimes.com/2025/09/09/us/politics/michigan-electors-ruling.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/09/world/europe/germany-cars-china-evs-munich-auto-s
 **49ers waiving K Jake Moody after 2 missed kicks in opener: Source**\
 `Moody (No. 99 in 2023) was the highest kicker drafted since Roberto Aguayo (No. 59) in 2016.`\
 https://nytimes.com/athletic/6611292/2025/09/09/49ers-jake-moody-cut-kicker/
-
-**Virginia 11th Congressional District Special Election Results**\
-`Get live results and maps from the 2025 Virginia special congressional election.`\
-https://nytimes.com/interactive/2025/09/09/us/elections/results-virginia-us-house-11-special.html
 

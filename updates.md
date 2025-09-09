@@ -1,3 +1,7 @@
+**Red Sox endure another rotation setback in homestretch of three-way battle for AL East**\
+`May had been scheduled to start on Tuesday against the Athletics. Instead, he was scratched.`\
+https://nytimes.com/athletic/6613518/2025/09/09/red-sox-dustin-may-connelly-early/
+
 **Michigan Judge Tosses Out Cases Against Fake Trump Electors**\
 `The judge, a Democrat, concluded that fake electors recruited to support Donald J. Trump’s candidacy in 2020 did not understand that they were being asked to do something illegal.`\
 https://nytimes.com/2025/09/09/us/politics/michigan-electors-ruling.html
