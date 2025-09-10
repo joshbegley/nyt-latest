@@ -1,3 +1,19 @@
+**Luis Garcia lands on Astros' IL with right elbow injury, likely done for the season**\
+`If Garcia can't return this season, he'll become the fifth Houston starter to be sidelined for the year with an elbow injury.`\
+https://nytimes.com/athletic/6617568/2025/09/10/astros-luis-garcia-injury/
+
+**Chronic Disease Deaths Have Fallen Globally, but Progress in U.S. Stalled**\
+`Among working-age Americans, death from chronic disease actually increased — a rarity among high-income countries, a new report shows.`\
+https://nytimes.com/2025/09/10/well/chronic-disease-deaths-have-fallen-globally-but-progress-in-us-stalled.html
+
+**Education Department Ends Grant Funding Worth $350 Million for Minority-Serving Colleges**\
+`Education Secretary Linda McMahon said the money supported programs that the administration believes unfairly support minority students.`\
+https://nytimes.com/2025/09/10/us/politics/education-department-ends-grant-funding-worth-350-million-for-minority-serving-colleges.html
+
+**Justice Dept. Reverses Course on Claims Guatemalan Children’s Parents Sought Their Return**\
+`A government lawyer said there was no basis for claims made earlier to a judge about the children, who were nearly deported over Labor Day weekend.`\
+https://nytimes.com/2025/09/10/us/politics/doj-guatemala-children-deportation.html
+
 **New Jersey Is the Latest State to Expand Access to Updated Covid Shots**\
 `Pharmacists will be allowed to give the latest vaccines to anyone over 3, rebuffing federal efforts to limit the number of those eligible.`\
 https://nytimes.com/2025/09/10/nyregion/new-jersey-covid-vaccine-pharmacies.html
