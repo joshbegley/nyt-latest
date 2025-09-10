@@ -1,3 +1,7 @@
+**Astros' Luis Garcia exits his second start since Tommy John surgery with apparent injury**\
+`Garcia averaged just 90.2 mph on the 12 four-seam fastballs he threw on Tuesday. `\
+https://nytimes.com/athletic/6614516/2025/09/09/houston-astros-luis-garcia-early-exit/
+
 **Zohran Mamdani calls on FIFA to abandon dynamic pricing plan for World Cup tickets**\
 `The Democratic nominee in the New York City mayoral race has launched a petition calling for three changes to World Cup ticket plans`\
 https://nytimes.com/athletic/6614124/2025/09/09/zohran-mamdani-world-cup-tickets/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6614369/2025/09/09/royals-vs-guardians-stream-how-t
 **How to watch Nationals at Marlins: Time, TV, streaming for September 10**\
 `Find out how to watch the Washington Nationals play the Miami Marlins, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6614366/2025/09/09/nationals-vs-marlins-stream-how-to-watch-sept-10/
-
-**How to watch Mets at Phillies: Time, TV, streaming for September 10**\
-`Find out how to watch the New York Mets play the Philadelphia Phillies, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6614365/2025/09/09/mets-vs-phillies-stream-how-to-watch-sept-10/
 
