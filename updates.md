@@ -1,3 +1,11 @@
+**Clippers' Kawhi Leonard saga could hinge on key missing phrase in the CBA**\
+`The Clippers investigation might not end with the harshest punishment. But the NBA could take a page from the NCAA's compliance playbook.`\
+https://nytimes.com/athletic/6615693/2025/09/10/clippers-kawhi-leonard-news-nba-investigation-cba/
+
+**Eerie Calm in Nepal as Uncertainty Follows Deadly Clashes**\
+`Nepal was still under a nationwide curfew on Wednesday after two days of street clashes between anti-government protesters and security forces that killed at least 22 people.`\
+https://nytimes.com/video/world/asia/100000010389503/eerie-calm-in-nepal-as-uncertainty-follows-deadly-clashes.html
+
 **Ben Proud: Why I signed up to the Enhanced Games - and my response to doping critics**\
 `The British swimmer explains why breaking records is at the heart of his decision to sign up to one of sport's most controversial events `\
 https://nytimes.com/athletic/6615668/2025/09/10/ben-proud-enhanced-games-doping-interview/
