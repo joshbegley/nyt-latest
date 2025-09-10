@@ -1,3 +1,23 @@
+**At Least 2 Students Are Shot at Colorado High School, Authorities Say**\
+`The attack took place on the campus of Evergreen High School in Evergreen, Colo. which is west of Denver, the police said.`\
+https://nytimes.com/2025/09/10/us/colorado-high-school-shooting.html
+
+**49ers QB Brock Purdy 'long shot' to play in Week 2, could miss multiple games**\
+`Mac Jones is likely to start Sunday's game against the New Orleans Saints.`\
+https://nytimes.com/athletic/6617031/2025/09/10/brock-purdy-injury-49ers-saints/
+
+**Trump Organization Is Poised to Lose Bid for Central Park Skating Rink**\
+`President Trump’s company had tried to regain control of Wollman Rink, a city-owned property that it operated for more than three decades.`\
+https://nytimes.com/2025/09/10/nyregion/trump-org-central-park-wollman-skating-rink.html
+
+**What is Turning Point USA, the organization founded by Charlie Kirk?**\
+`By Emma Goldberg`\
+https://nytimes.com/2025/09/10/us/turning-point-usa-charlie-kirk.html
+
+**Senators Demand Answers From Mark Zuckerberg on WhatsApp Security**\
+`Three Republican senators sent a letter to Meta’s chief executive on Wednesday asking him to respond to whistle-blower allegations over security flaws.`\
+https://nytimes.com/2025/09/10/technology/whatsapp-senators-letter-meta.html
+
 **Missouri QB Sam Horn out for the season after undergoing surgery for broken leg: Report**\
 `A two-sport athlete, Horn was selected by reigning World Series champions the Los Angeles Dodgers in the 17th round of the 2025 MLB Draft.`\
 https://nytimes.com/athletic/6616979/2025/09/10/sam-horn-missouri-quarterback-injury/
@@ -17,24 +37,4 @@ https://nytimes.com/live/2025/09/10/us/charlie-kirk-shot-utah/how-charlie-kirk-b
 **Did punishment for Eagles' Jalen Carter fit the spit?**\
 `Carter's season-opening loogie can be judged from many angles, but the ugly look will have refs and the league watching closely.`\
 https://nytimes.com/athletic/6616773/2025/09/10/jalen-carter-spitting-punishment-eagles-nfl-cowboys/
-
-**Former Man Utd and Spurs midfielder Eriksen joins Wolfsburg**\
-`Eriksen, 33, said in March he expected to leave Old Trafford after the completion of his third season at the club.`\
-https://nytimes.com/athletic/6388188/2025/09/10/christian-eriksen-wolfsburg-manchester-united/
-
-**NCAA bans 3 men's basketball players over gambling violations**\
-`The three players — Steven Vasquez, Jalen Weaver and Mykell Robinson — all played at Fresno State at one point in their careers.`\
-https://nytimes.com/athletic/6616816/2025/09/10/ncaa-bans-gambling-violations-fresno-state-sjsu/
-
-**Live Updates: Charlie Kirk, Right-Wing Activist, Shot in Utah**\
-`Mr. Kirk, a close ally of President Trump, was shot in the neck while speaking in front of a large crowd on a university campus.`\
-https://nytimes.com/live/2025/09/10/us/charlie-kirk-shot-utah
-
-**Here’s what to know.**\
-`Mr. Kirk appeared to be speaking in front of a large crowd when a shot rang out, according to video from the scene.`\
-https://nytimes.com/live/2025/09/10/us/charlie-kirk-shot-utah/charlie-kirk-shot-utah
-
-**Billy Lange leaves St. Joseph's to join New York Knicks staff**\
-`Lange was 81-104 overall with a 38-64 conference record.`\
-https://nytimes.com/athletic/6616857/2025/09/10/billy-lange-to-join-new-york-knicks-staff/
 
