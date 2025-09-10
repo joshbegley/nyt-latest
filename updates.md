@@ -1,3 +1,7 @@
+**Pochettino singles out USMNT players who helped World Cup roster stock vs. Japan**\
+`Certain players helped themselves more than others in the USMNT's 2-0 win over Japan`\
+https://nytimes.com/athletic/6614768/2025/09/09/pochettino-usmnt-japan-world-cup-roster/
+
 **Aaron Judge passes Yogi Berra, moves into 5th place in Yankees history with 359th home run**\
 `New York's superstar outfielder passed Berra on the franchise's all-time list and is two homers behind Joe DiMaggio.`\
 https://nytimes.com/athletic/6587699/2025/09/09/ny-yankees-aaron-judge-home-run-history/
