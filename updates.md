@@ -1,3 +1,7 @@
+**​Anger Mounts in Korea as Release of Workers Detained in Georgia Is Delayed**\
+`It is unclear when the South Korean detainees will be repatriated. They were previously scheduled to depart the United States on Wednesday.`\
+https://nytimes.com/2025/09/10/world/asia/georgia-immigration-raid-hyundai-workers-south-korea.html
+
 **Rhea Moore, 15, on becoming the youngest goal scorer in U.S. women’s pro soccer**\
 `Her head coach, Chris Petrucelli, was struck by the Moore family’s clarity of vision for Rhea’s career path.`\
 https://nytimes.com/athletic/6614306/2025/09/10/youngest-goal-scorer-rhea-moore-dallas-trinity/

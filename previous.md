@@ -1,3 +1,7 @@
+**​Anger Mounts in Korea as Release of Workers Detained in Georgia Is Delayed**\
+`It is unclear when the South Korean detainees will be repatriated. They were previously scheduled to depart the United States on Wednesday.`\
+https://nytimes.com/2025/09/10/world/asia/georgia-immigration-raid-hyundai-workers-south-korea.html
+
 **Rosenthal: After a disappointing 2025, these four MLB teams might be ready for success in 2026**\
 `In this crazy sport, all four teams might be pretenders. But in trying to establish which clubs next season might surprise, it’s a start.`\
 https://nytimes.com/athletic/6614384/2025/09/10/mlb-disappointments-success-athletics-orioles-diamondbacks-pirates/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6613331/2025/09/10/maple-leafs-craig-berube-nick-ro
 **Four VPs, others affiliated with Detroit Tigers accused of misconduct toward women**\
 `Three of the accused men exited in a six-month period beginning last November.`\
 https://nytimes.com/athletic/6610869/2025/09/10/detroit-tigers-affiliates-accused-misconduct-women-vps/
-
-**What happened to the Bills defense, and where do they go from here?**\
-`The Bills defense has a lot to work on before meeting another opponent with a powerful offense.`\
-https://nytimes.com/athletic/6614158/2025/09/10/bills-defense-ed-oliver-safety-linebacker/
 
