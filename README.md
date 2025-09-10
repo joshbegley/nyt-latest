@@ -11,7 +11,7 @@ https://nytimes.com/2025/09/10/business/media/trump-new-york-times-epstein.html
 https://nytimes.com/live/2025/09/10/us/charlie-kirk-shot-utah/how-charlie-kirk-became-the-youth-whisperer-of-the-right-and-one-of-trumps-closest-allies
 
 **Did punishment for Eagles' Jalen Carter fit the spit?**\
-`Carter's season-opening loogie can be judged from many angles, but the ugly look wlll have refs and league watching closely.`\
+`Carter's season-opening loogie can be judged from many angles, but the ugly look will have refs and the league watching closely.`\
 https://nytimes.com/athletic/6616773/2025/09/10/jalen-carter-spitting-punishment-eagles-nfl-cowboys/
 
 **Former Man Utd and Spurs midfielder Eriksen joins Wolfsburg**\
