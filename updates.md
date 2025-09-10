@@ -1,3 +1,23 @@
+**How to watch Rays at White Sox: Time, TV, streaming for September 10**\
+`Find out how to watch the Tampa Bay Rays play the Chicago White Sox, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6614633/2025/09/09/rays-vs-white-sox-stream-how-to-watch-sept-10/
+
+**How to watch Cubs at Braves: Time, TV, streaming for September 10**\
+`Find out how to watch the Chicago Cubs play the Atlanta Braves, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6614603/2025/09/09/cubs-vs-braves-stream-how-to-watch-sept-10/
+
+**How to watch Astros at Blue Jays: Time, TV, streaming for September 10**\
+`Find out how to watch the Houston Astros play the Toronto Blue Jays, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6614582/2025/09/09/astros-vs-blue-jays-stream-how-to-watch-sept-10/
+
+**How to watch Tigers at Yankees: Time, TV, streaming for September 10**\
+`Find out how to watch the Detroit Tigers play the New York Yankees, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6614576/2025/09/09/tigers-vs-yankees-stream-how-to-watch-sept-10/
+
+**Astros' Luis Garcia, recently back from TJ, exits game with elbow discomfort**\
+`Garcia averaged just 90.2 mph on the 12 four-seam fastballs he threw on Tuesday. `\
+https://nytimes.com/athletic/6614516/2025/09/09/houston-astros-luis-garcia-early-exit/
+
 **Astros' Luis Garcia exits his second start since Tommy John surgery with apparent injury**\
 `Garcia averaged just 90.2 mph on the 12 four-seam fastballs he threw on Tuesday. `\
 https://nytimes.com/athletic/6614516/2025/09/09/houston-astros-luis-garcia-early-exit/

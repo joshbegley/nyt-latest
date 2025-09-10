@@ -1,4 +1,20 @@
-**Astros' Luis Garcia exits his second start since Tommy John surgery with apparent injury**\
+**How to watch Rays at White Sox: Time, TV, streaming for September 10**\
+`Find out how to watch the Tampa Bay Rays play the Chicago White Sox, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6614633/2025/09/09/rays-vs-white-sox-stream-how-to-watch-sept-10/
+
+**How to watch Cubs at Braves: Time, TV, streaming for September 10**\
+`Find out how to watch the Chicago Cubs play the Atlanta Braves, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6614603/2025/09/09/cubs-vs-braves-stream-how-to-watch-sept-10/
+
+**How to watch Astros at Blue Jays: Time, TV, streaming for September 10**\
+`Find out how to watch the Houston Astros play the Toronto Blue Jays, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6614582/2025/09/09/astros-vs-blue-jays-stream-how-to-watch-sept-10/
+
+**How to watch Tigers at Yankees: Time, TV, streaming for September 10**\
+`Find out how to watch the Detroit Tigers play the New York Yankees, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6614576/2025/09/09/tigers-vs-yankees-stream-how-to-watch-sept-10/
+
+**Astros' Luis Garcia, recently back from TJ, exits game with elbow discomfort**\
 `Garcia averaged just 90.2 mph on the 12 four-seam fastballs he threw on Tuesday. `\
 https://nytimes.com/athletic/6614516/2025/09/09/houston-astros-luis-garcia-early-exit/
 
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6587699/2025/09/09/ny-yankees-aaron-judge-home-run-
 **Democrats Narrow Gap in House After Victory in Virginia Special Election**\
 `James Walkinshaw will fill a seat left open by the death of his former boss, Gerald Connolly, and shrink the Republicans’ majority in the chamber.`\
 https://nytimes.com/2025/09/09/us/politics/james-walkinshaw-virginia-house.html
-
-**Latest Revelations Complicate Trump’s Sweeping Denials About Epstein**\
-`President Trump often succeeds in pivoting the national conversation, but he is finding that more difficult when it comes to Jeffrey Epstein.`\
-https://nytimes.com/2025/09/09/us/politics/trumps-epstein-response.html
-
-**How to watch Pirates at Orioles: Time, TV, streaming for September 10**\
-`Find out how to watch the Pittsburgh Pirates play the Baltimore Orioles, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6614380/2025/09/09/pirates-vs-orioles-stream-how-to-watch-sept-10/
-
-**How to watch Royals at Guardians: Time, TV, streaming for September 10**\
-`Find out how to watch the Kansas City Royals play the Cleveland Guardians, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6614369/2025/09/09/royals-vs-guardians-stream-how-to-watch-sept-10/
-
-**How to watch Nationals at Marlins: Time, TV, streaming for September 10**\
-`Find out how to watch the Washington Nationals play the Miami Marlins, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6614366/2025/09/09/nationals-vs-marlins-stream-how-to-watch-sept-10/
 
