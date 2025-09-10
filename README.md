@@ -1,3 +1,7 @@
+**The New York Times in Print for Wednesday, Sep. 10, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/09/10/todays-new-york-times
+
 **Poland Says It Shot Down Russian Drones That Entered Its Airspace**\
 `The Polish military called the incursions an “act of aggression.” It said the drones crossed the border during a wave of Russian strikes in Ukraine.`\
 https://nytimes.com/2025/09/10/world/europe/poland-russia-drones-ukraine-attack.html
@@ -9,10 +13,6 @@ https://nytimes.com/athletic/6614919/2025/09/10/wnba-2025-playoff-field-storm/
 **Explosive Protests in Nepal**\
 `Demonstrators have set fire to government buildings. The military has sent in troops to restore order.`\
 https://nytimes.com/2025/09/10/briefing/nepal-protests-qatar-israel-ukraine.html
-
-**Andre Onana's Manchester United exit and why he is leaving for Trabzonspor**\
-`The Cameroon goalkeeper is leaving before the Manchester derby and is likely to face Ederson in Istanbul instead`\
-https://nytimes.com/athletic/6613384/2025/09/10/andre-onana-manchester-united-trabzonspor/
 
 **Pulisic says Pochettino relationship not as much drama as it seems**\
 `The USMNT's star player and head coach have endured some rocky patches.`\
@@ -34,7 +34,7 @@ https://nytimes.com/athletic/6610500/2025/09/10/jack-grealish-fast-start-everton
 `Breaking down how the Premier League champions made around £200m in sales this summer alone`\
 https://nytimes.com/athletic/6577412/2025/09/10/how-liverpool-sell-players-and-get-so-much-money-for-them/
 
-**Emiliano Martinez, Aston Villa and how to reintegrate a player who wanted to leave**\
-`After a summer of players itching for moves, we take a look at how to bring those who stay in from the cold`\
-https://nytimes.com/athletic/6601506/2025/09/10/aston-villa-martinez-transfers/
+**Andre Onana's Manchester United exit and why he is leaving for Trabzonspor**\
+`The Cameroon goalkeeper is leaving before the Manchester derby and is likely to face Ederson in Istanbul instead`\
+https://nytimes.com/athletic/6613384/2025/09/10/andre-onana-manchester-united-trabzonspor/
 
