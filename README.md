@@ -1,3 +1,11 @@
+**The sublime goal (and display) that kickstarted England's Thomas Tuchel era**\
+`Tuesday's 5-0 evisceration of Serbia was the night everything clicked for England under their new coach`\
+https://nytimes.com/athletic/6602686/2025/09/10/england-serbia-thomas-tuchel/
+
+**France and a New Prime Minister Brace for a Day of Disruption**\
+`An opaque online protest movement promises to bring the country to a standstill on Wednesday as Sébastien Lecornu prepares to take office.`\
+https://nytimes.com/2025/09/10/world/europe/france-protests-lecornu-prime-minister.html
+
 **The New York Times in Print for Wednesday, Sep. 10, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/09/10/todays-new-york-times
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6612484/2025/09/10/wolves-fields-of-gold-diogo-jota
 **Why has Jack Grealish started so well at Everton?**\
 `Grealish is performing superbly for David Moyes – but is it down to tactics or just an early-season statistical quirk?`\
 https://nytimes.com/athletic/6610500/2025/09/10/jack-grealish-fast-start-everton-career/
-
-**How Liverpool sell players (and get so much money for them)**\
-`Breaking down how the Premier League champions made around £200m in sales this summer alone`\
-https://nytimes.com/athletic/6577412/2025/09/10/how-liverpool-sell-players-and-get-so-much-money-for-them/
-
-**Andre Onana's Manchester United exit and why he is leaving for Trabzonspor**\
-`The Cameroon goalkeeper is leaving before the Manchester derby and is likely to face Ederson in Istanbul instead`\
-https://nytimes.com/athletic/6613384/2025/09/10/andre-onana-manchester-united-trabzonspor/
 
