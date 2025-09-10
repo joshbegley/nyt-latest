@@ -1,3 +1,7 @@
+**The New York Times in Print for Wednesday, Sep. 10, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/09/10/todays-new-york-times
+
 **Poland Says It Shot Down Russian Drones That Entered Its Airspace**\
 `The Polish military called the incursions an “act of aggression.” It said the drones crossed the border during a wave of Russian strikes in Ukraine.`\
 https://nytimes.com/2025/09/10/world/europe/poland-russia-drones-ukraine-attack.html
