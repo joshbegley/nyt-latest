@@ -1,3 +1,19 @@
+**The Royal Ballet and Opera Confronts the Rise of A.I. With a New Festival**\
+`The London institution is creating “RBO/Shift,” a technology festival whose first year will ask how far A.I. can push the boundaries of opera.`\
+https://nytimes.com/2025/09/10/arts/music/royal-opera-ai-festival.html
+
+**Ahead of Fashion Week, a Glimpse of the Future**\
+`A graduate show at the Fashion Institute of Technology introduced the industry to a new generation of designers and helped kick off a busy calendar for insiders.`\
+https://nytimes.com/2025/09/10/style/fit-act-5-mfa-showcase.html
+
+**An Artist Who’s Been Using the Same Woodblock for Over 15 Years**\
+`Chakaia Booker discusses printmaking and evolving old patterns.`\
+https://nytimes.com/2025/09/10/t-magazine/chakaia-booker.html
+
+**South Korea Sends Plane to Repatriate Workers After ICE Raid**\
+`South Korea chartered plane to repatriate workers after a recent ICE raid at a Hyundai-LG battery plant in Georgia.`\
+https://nytimes.com/video/us/politics/100000010389742/south-korea-repatriate-workers.html
+
 **At the Royal Opera House, a New Season Brings New Drama**\
 `The company’s director, Oliver Mears, talks about the opening performance of “Tosca,” the return of the soprano Anna Netrebko and more.`\
 https://nytimes.com/2025/09/10/arts/music/royal-opera-oliver-mears.html

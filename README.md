@@ -1,3 +1,11 @@
+**Israel Launches Airstrikes in Yemen’s Capital**\
+`The Israeli military launched multiple strikes on Sana, the capital of Yemen, on Wednesday.`\
+https://nytimes.com/video/world/middleeast/100000010390348/sanaa-yemen-israel-strikes.html
+
+**Harvard Is Told Research Money Could Flow Again, for Now**\
+`After a court victory, Harvard researchers were told some grants were being restored. But the battle over whether the government can halt the money is probably not over.`\
+https://nytimes.com/2025/09/10/us/harvard-is-told-research-money-could-flow-again-for-now.html
+
 **The Royal Ballet and Opera Confronts the Rise of A.I. With a New Festival**\
 `The London institution is creating “RBO/Shift,” a technology festival whose first year will ask how far A.I. can push the boundaries of opera.`\
 https://nytimes.com/2025/09/10/arts/music/royal-opera-ai-festival.html
@@ -23,18 +31,10 @@ https://nytimes.com/2025/09/10/arts/music/royal-opera-oliver-mears.html
 https://nytimes.com/2025/09/10/nyregion/mamdani-sept-11-muslim.html
 
 **Prince Harry Reunites With King Charles for First Time in Over a Year**\
-`Harry and Charles had tea at Clarence House, the King’s London residence, on Wednesday afternoon, a palace official confirmed.`\
+`Harry and Charles had tea at Clarence House, the king’s London residence, on Wednesday afternoon, a palace official confirmed.`\
 https://nytimes.com/2025/09/10/world/europe/prince-harry-king-charles-reunion.html
 
 **Travis Kelce explains 'frustrating' collision that resulted in Xavier Worthy injury**\
 `Kelce took the blame for the collision of Chiefs pass catchers, saying "There's no excuse for me running into my own guys like that."`\
 https://nytimes.com/athletic/6616585/2025/09/10/xavier-worthy-injury-travis-kelce-kansas-city-chiefs/
-
-**Bari Weiss Closes In on Major Role at CBS News**\
-`The talks with Ms. Weiss, a founder of The Free Press, are the strongest sign yet that the new owner of CBS News intends to make major changes.`\
-https://nytimes.com/2025/09/10/business/media/cbs-news-bari-weiss-free-press.html
-
-**New York Loses Federal Grant for Head Start Program for Poor Families**\
-`The city’s Head Start preschool programs will not be required to close this school year, but the change injected fresh uncertainty into an unsettled early childhood system.`\
-https://nytimes.com/2025/09/10/nyregion/head-start-new-york-city-loses-federal-grant.html
 
