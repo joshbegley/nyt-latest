@@ -1,3 +1,15 @@
+**Bubba Wallace on what people get wrong about him and why he needs to win: 12 Questions**\
+`Wallace talks about his perception, ending his 100-race winless streak, what him winning more would mean for NASCAR, and more.`\
+https://nytimes.com/athletic/6613198/2025/09/10/bubba-wallace-nascar-playoffs-brickyard-12-questions/
+
+**Real Madrid mailbag: Konate interest, Guler's progress and state of the Bernabeu**\
+`With Madrid back in La Liga action on Saturday, we asked you to send in your questions for Mario Cortegana and Guillermo Rai`\
+https://nytimes.com/athletic/6615639/2025/09/10/real-madrid-konate-guler-bernabeu/
+
+**He’s the Reason ‘Severance’ Sounds So Good**\
+`George Drakoulias won over a reluctant Tom Petty, transformed the Black Crowes and was name-checked by the Beastie Boys. This year, he was up for an Emmy.`\
+https://nytimes.com/2025/09/10/arts/music/george-drakoulias-severence-music-emmys.html
+
 **Four burning Rockets questions, including how Kevin Durant fits into a loaded roster**\
 `Houston was the No. 2 seed in the West last season, then added a superstar talent to a group of hungry young players. How will they mesh?`\
 https://nytimes.com/athletic/6615186/2025/09/10/rockets-kevin-durant-preseason-lineups/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6615063/2025/09/10/usmnt-japan-result-england-serbi
 **An inside look at Trevor Story’s routine that's helped turned around his season**\
 `Story’s renaissance seemed unthinkable at the end of May, when he was hitting .216 with a .585 OPS.`\
 https://nytimes.com/athletic/6614742/2025/09/10/boston-red-sox-trevor-story-routine/
-
-**College football Week 3 streaming guide: Georgia-Tennessee, A&M-Notre Dame, sleeper games**\
-`Here's a quick overview of this weekend's best college football offerings, including potential chaos games and The Backyard Brawl.`\
-https://nytimes.com/athletic/6613124/2025/09/10/college-football-how-to-watch-week-3-georgia-tennessee-notre-dame-texas-am/
-
-**49ers Mailbag: Trent Williams struggles, QB depth and other concerns**\
-`Other questions this week include why the 49ers said goodbye to Jordan Mason and how Nick Martin will crawl into the game-day lineup.`\
-https://nytimes.com/athletic/6614468/2025/09/10/49ers-brock-purdy-trent-williams-mailbag/
-
-**Georgia's defense has flummoxed Josh Heupel's Tennessee. Will that prove true again?**\
-`Josh Heupel arrived at Tennessee four years ago with a unique offensive system. It has worked against most teams — except Georgia.`\
-https://nytimes.com/athletic/6612957/2025/09/10/cfb-georgia-defense-tennessee-offense/
 
