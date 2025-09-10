@@ -1,3 +1,7 @@
+**Mets owners donate more than $2M to organization supporting women's baseball**\
+`The International Women's Baseball Center is raising money to renovate famed Beyer Stadium and build a museum dedicated to women's baseball.`\
+https://nytimes.com/athletic/6614810/2025/09/09/mets-donate-2-million-womens-baseball/
+
 **Pochettino singles out USMNT players who helped World Cup roster stock vs. Japan**\
 `Certain players helped themselves more than others in the USMNT's 2-0 win over Japan`\
 https://nytimes.com/athletic/6614768/2025/09/09/pochettino-usmnt-japan-world-cup-roster/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6614710/2025/09/09/new-york-mets-juan-soto-mileston
 **USMNT 2, Japan 0: Zendejas, Balogun take their chances in needed rebound win**\
 `Desperate for a win, the USMNT changed up its look and got a desired result, as Mauricio Pochettino's squad bounced back vs. Japan`\
 https://nytimes.com/athletic/6613615/2025/09/09/usmnt-japan-friendly-score-zendejas-balogun-pochettino-video/
-
-**Nationals’ search for top baseball executive includes Cubs, Dodgers personnel: Sources**\
-`Hiring a candidate from outside the organization would mark another change in direction for the Lerner family. `\
-https://nytimes.com/athletic/6614656/2025/09/09/washington-nationals-baseball-operations-search/
 
