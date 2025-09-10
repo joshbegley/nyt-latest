@@ -1,3 +1,11 @@
+**NCAA bans 3 men's basketball players over gambling violations**\
+`The three players — Steven Vasquez, Jalen Weaver and Mykell Robinson — all played at Fresno State at one point in their careers.`\
+https://nytimes.com/athletic/6616816/2025/09/10/ncaa-bans-gambling-violations-fresno-state-sjsu/
+
+**Live Updates: Charlie Kirk, Right-Wing Influencer, Shot in Utah**\
+`Mr. Kirk was speaking in front of a large crowd when a shot rang out, according to video from the scene.`\
+https://nytimes.com/live/2025/09/10/us/charlie-kirk-shot-utah
+
 **Live Updates: Charlie Kirk, Right-Wing Influencer, Apparently Shot in Utah**\
 `Mr. Kirk was speaking in front of a large crowd at Utah Valley University when he appeared to have been attacked. His condition was not immediately known.`\
 https://nytimes.com/live/2025/09/10/us/charlie-kirk-shot-utah

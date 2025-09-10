@@ -3,7 +3,7 @@
 https://nytimes.com/athletic/6616816/2025/09/10/ncaa-bans-gambling-violations-fresno-state-sjsu/
 
 **Live Updates: Charlie Kirk, Right-Wing Influencer, Shot in Utah**\
-`Mr. Kirk was speaking in front of a large crowd when a shot rang out, according to video from the scene.`\
+`Mr. Kirk, a close ally of President Trump and the leader of a conservative youth organization, was speaking in front of a large crowd when a shot rang out, according to video from the scene.`\
 https://nytimes.com/live/2025/09/10/us/charlie-kirk-shot-utah
 
 **Here’s what to know.**\
