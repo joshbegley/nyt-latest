@@ -1,3 +1,7 @@
+**Ozempic Maker Novo Nordisk to Cut 9,000 Jobs**\
+`The Danish drugmaker said it needed to streamline operations and become more agile, as it faces a more competitive and consumer-focused market.`\
+https://nytimes.com/2025/09/10/business/novo-nordisk-job-cuts-ozempic.html
+
 **Putin’s Message to Ukraine, Europe and Trump: I Won’t Back Down**\
 `With escalating airstrikes, the Russian leader appears determined to demonstrate that he will dictate the terms for any end to the war.`\
 https://nytimes.com/2025/09/10/world/europe/russia-ukraine-putin-trump-europe.html

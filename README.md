@@ -1,3 +1,15 @@
+**Four burning Rockets questions, including how Kevin Durant fits into a loaded roster**\
+`Houston was the No. 2 seed in the West last season, then added a superstar talent to a group of hungry young players. How will they mesh?`\
+https://nytimes.com/athletic/6615186/2025/09/10/rockets-kevin-durant-preseason-lineups/
+
+**Browns rookies shine in debuts, but team's kicking failures continue**\
+`Since 2020, Cleveland kickers rank last in the NFL in successful PAT tries (78 percent) and field goals shorter than 40 yards (88 percent).`\
+https://nytimes.com/athletic/6613971/2025/09/10/browns-rookies-andre-szmyt-kicker-struggles/
+
+**Why Giants fans may need to temper expectations for Jaxson Dart once he takes the field**\
+`Dart will likely struggle once he takes the field, just like rookie-year Josh Allen once did under Brian Daboll's tutelage in Buffalo. `\
+https://nytimes.com/athletic/6614111/2025/09/10/ny-giants-jaxson-dart-josh-allen-brian-daboll/
+
 **Ozempic Maker Novo Nordisk to Cut 9,000 Jobs**\
 `The Danish drugmaker said it needed to streamline operations and become more agile, as it faces a more competitive and consumer-focused market.`\
 https://nytimes.com/2025/09/10/business/novo-nordisk-job-cuts-ozempic.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6614468/2025/09/10/49ers-brock-purdy-trent-williams
 **Georgia's defense has flummoxed Josh Heupel's Tennessee. Will that prove true again?**\
 `Josh Heupel arrived at Tennessee four years ago with a unique offensive system. It has worked against most teams — except Georgia.`\
 https://nytimes.com/athletic/6612957/2025/09/10/cfb-georgia-defense-tennessee-offense/
-
-**Ranking the NHL’s top 20 Calder Trophy candidates for the 2025-26 season**\
-`Ahead of the season, Scott Wheeler and Harman Dayal rank the players eligible for the NHL's rookie of the year award.`\
-https://nytimes.com/athletic/6598442/2025/09/10/nhl-calder-trophy-2025-buium-demidov/
-
-**2022 NHL re-draft: Juraj Slafkovský, Logan Cooley, Shane Wright lead the class**\
-`The 2022 draft wasn't considered the most exciting, and after the top players, the list is a bit jumbled.`\
-https://nytimes.com/athletic/6592365/2025/09/10/nhl-redraft-2022-slafkovsky-cooley-wright-2/
-
-**Mandel's mailbag: Gators fans' thoughts on Napier's situation and Belichick banning Pats scouts**\
-`Plus, what do the late start times mean for Big Ten fans? And how does Stewart Mandel watch games on Saturdays?`\
-https://nytimes.com/athletic/6614509/2025/09/10/mandels-mailbag-gators-napier-belichick-banning-patriots-scouts/
 
