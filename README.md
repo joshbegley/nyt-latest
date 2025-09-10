@@ -27,7 +27,7 @@ https://nytimes.com/athletic/6615999/2025/09/10/twins-mailbag-questions-aaron-gl
 https://nytimes.com/2025/09/10/magazine/essay-contest-ai-ethics.html
 
 **Climate ‘Ideology’ Hurts Prosperity, Top U.S. Officials Tell Europeans**\
-`Chris Wright, the energy secretary, said he would push Europe to loosen environmental rules and buy more gas. Doug Burgum, the Interior secretary, tied fossil fuels to a need to win the A.I. race.`\
+`Chris Wright, the energy secretary, said he would push Europe to loosen environmental rules and buy more gas. Doug Burgum, the interior secretary, tied fossil fuels to a need to win the A.I. race.`\
 https://nytimes.com/2025/09/10/climate/burgum-wright-europe-energy.html
 
 **Trump Moves to Scrap Biden Rule That Protected Public Lands**\

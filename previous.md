@@ -1,3 +1,7 @@
+**A Celebration of Haitian Designers Kicks Off Fashion Week**\
+`Text by Simbarashe Cha`\
+https://nytimes.com/card/2025/09/10/style/
+
 **Texas Professor Fired After Accusations of Teaching ‘Gender Ideology’**\
 `Two administrators also lost their posts at Texas A&M, an example of how Republican policies meant to curb liberal ideas are reaching into university classrooms.`\
 https://nytimes.com/2025/09/10/us/texas-professor-fired-gender-ideology.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/10/climate/trump-public-lands-rule-biden.html
 **French Police Investigate Pigs’ Heads Found Near Paris-Area Mosques**\
 `The heads were discovered near the entrances of several buildings. The episode was widely condemned in France as an anti-Muslim provocation.`\
 https://nytimes.com/2025/09/10/world/europe/pigs-heads-france-mosques.html
-
-**Lions' Amon-Ra St. Brown on Ben Johnson's return to Detroit: 'We all booing him'**\
-`The former Lions offensive coordinator returns to Ford Field on Sunday as the head coach of the Chicago Bears.`\
-https://nytimes.com/athletic/6616105/2025/09/10/ben-johnson-amon-ra-st-brown-bears-lions-boo/
 

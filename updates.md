@@ -1,3 +1,7 @@
+**A Celebration of Haitian Designers Kicks Off Fashion Week**\
+`Text by Simbarashe Cha`\
+https://nytimes.com/card/2025/09/10/style/
+
 **Texas Professor Fired After Accusations of Teaching ‘Gender Ideology’**\
 `Two administrators also lost their posts at Texas A&M, an example of how Republican policies meant to curb liberal ideas are reaching into university classrooms.`\
 https://nytimes.com/2025/09/10/us/texas-professor-fired-gender-ideology.html
