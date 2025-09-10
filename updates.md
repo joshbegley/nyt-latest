@@ -1,3 +1,7 @@
+**Mets' Juan Soto becomes MLB's first 30-30 player in 2025**\
+`Soto’s previous career best was 12 stolen bases, a figure he reached in 2019 and 2023.`\
+https://nytimes.com/athletic/6614710/2025/09/09/new-york-mets-juan-soto-milestone/
+
 **Protesters call Trump ‘Hitler’ as he dines out in Washington.**\
 `By Tyler Pager`\
 https://nytimes.com/live/2025/09/09/us/trump-epstein-maha-report/protesters-call-trump-hitler-as-he-dines-out-in-washington
