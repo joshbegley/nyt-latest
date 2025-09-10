@@ -1,3 +1,7 @@
+**Bolivia pips Venezuela to place in World Cup qualifying intercontinental playoff**\
+`There was plenty of drama to close World Cup qualifying in South America, where Bolivia beat Brazil to end Venezuela's World Cup dream`\
+https://nytimes.com/athletic/6614776/2025/09/09/bolivia-world-cup-qualifying-playoff-venezuela-south-america/
+
 **‘Alien: Earth’ Episode 6 Recap: Inhuman Sacrifices**\
 `Neverland is falling into disorder despite its security protocols, with all sorts of saboteurs running amok.`\
 https://nytimes.com/2025/09/09/arts/television/alien-earth-episode-6-recap.html
