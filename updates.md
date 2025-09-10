@@ -1,3 +1,11 @@
+**Former referee David Coote charged with making indecent image of a child**\
+`The 43-year-old will appear at Nottingham Magistrates' Court on Thursday, September 11`\
+https://nytimes.com/athletic/6093900/2025/09/10/david-coote-referee-charged/
+
+**Drones Over Poland Are Latest Violation of Countries Near Ukraine**\
+`Poland denounced what it has described as an incursion by more than a dozen Russian drones. It would not be the first time Russia’s war effort had spilled beyond Ukraine.`\
+https://nytimes.com/2025/09/10/world/europe/drones-russia-poland-violation.html
+
 **Lowetide: Oilers need to start as they mean to go at this year's camp**\
 `The key for the Oilers could be building chemistry and familiarity in exhibition games.`\
 https://nytimes.com/athletic/6613214/2025/09/10/edmonton-oilers-training-camp-lines-2025/

@@ -1,3 +1,11 @@
+**Former referee David Coote charged with making indecent image of a child**\
+`The 43-year-old will appear at Nottingham Magistrates' Court on Thursday, September 11`\
+https://nytimes.com/athletic/6093900/2025/09/10/david-coote-referee-charged/
+
+**Drones Over Poland Are Latest Violation of Countries Near Ukraine**\
+`Poland denounced what it has described as an incursion by more than a dozen Russian drones. It would not be the first time Russia’s war effort had spilled beyond Ukraine.`\
+https://nytimes.com/2025/09/10/world/europe/drones-russia-poland-violation.html
+
 **Lowetide: Oilers need to start as they mean to go at this year's camp**\
 `The key for the Oilers could be building chemistry and familiarity in exhibition games.`\
 https://nytimes.com/athletic/6613214/2025/09/10/edmonton-oilers-training-camp-lines-2025/
@@ -29,12 +37,4 @@ https://nytimes.com/live/2025/09/10/us/trump-news
 **Why Cardinals will continue playing Masyn Winn and avoid IL, despite meniscus tear**\
 `"I definitely don't want to cash it in this early," Winn said despite facing the prospect of arthroscopic knee surgery in the offseason.`\
 https://nytimes.com/athletic/6615016/2025/09/10/stl-cardinals-masyn-winn-injury/
-
-**What Forest can expect from Ange Postecoglou: Bonds with players, speeches and being 'who we are'**\
-`The former Spurs head coach has to hit the ground running at Forest - but he has shown he has the credentials to succeed.`\
-https://nytimes.com/athletic/6612994/2025/09/10/ange-postecoglou-forest-what-to-expect/
-
-**Dodger Details: The bullpen, the Roki Sasaki question, the almost-historic fill-in**\
-`The team is well aware of its struggles and shortcomings. 'I think we are what we are right now, and it hasn’t been good.'`\
-https://nytimes.com/athletic/6614997/2025/09/10/la-dodgers-bullpen-roki-sasaki/
 
