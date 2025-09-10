@@ -1,3 +1,11 @@
+**Cruise Ship Passenger With $16,000 Gambling Debt Jumps Overboard**\
+`The man, who was rescued, told authorities he was trying to avoid declaring money in his possession, but Royal Caribbean said he also had casino and gaming losses.`\
+https://nytimes.com/2025/09/10/travel/cruise-ship-passenger-with-16000-gambling-debt-jumps-overboard.html
+
+**Did punishment for Eagles' Jalen Carter fit the spit?**\
+`Carter's season-opening loogie can be judged from many angles, but the ugly look will have refs and the league watching closely.`\
+https://nytimes.com/athletic/6616773/2025/09/10/jalen-carter-spitting-punishment-eagles-nfl-cowboys/
+
 **Live Updates: Charlie Kirk, Right-Wing Influencer, Shot in Utah**\
 `Mr. Kirk, a close ally of President Trump, was shot in the neck while speaking in front of a large crowd on a university campus.`\
 https://nytimes.com/live/2025/09/10/us/charlie-kirk-shot-utah
