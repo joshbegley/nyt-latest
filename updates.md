@@ -1,3 +1,11 @@
+**The sublime goal (and display) that kickstarted England's Thomas Tuchel era**\
+`Tuesday's 5-0 evisceration of Serbia was the night everything clicked for England under their new coach`\
+https://nytimes.com/athletic/6602686/2025/09/10/england-serbia-thomas-tuchel/
+
+**France and a New Prime Minister Brace for a Day of Disruption**\
+`An opaque online protest movement promises to bring the country to a standstill on Wednesday as Sébastien Lecornu prepares to take office.`\
+https://nytimes.com/2025/09/10/world/europe/france-protests-lecornu-prime-minister.html
+
 **The New York Times in Print for Wednesday, Sep. 10, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/09/10/todays-new-york-times
