@@ -1,3 +1,7 @@
+**A TikTok Trend That Gets at the Complex Legacy of ‘Hamilton’**\
+`By recreating a snippet of the number “Best of Wives and Best of Women,” these funny shorts serve as both tribute and critique.`\
+https://nytimes.com/2025/09/10/movies/hamilton-tiktok-trend.html
+
 **Are the Colts, Daniel Jones actually as good as they looked in Week 1?**\
 `You don't want to overreact to one week, but it's hard to ignore how good Indy looked on both sides of the ball against Miami. `\
 https://nytimes.com/athletic/6614007/2025/09/10/colts-daniel-jones-broncos/
