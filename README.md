@@ -1,3 +1,7 @@
+**Protesters call Trump ‘Hitler’ as he dines out in Washington.**\
+`By Tyler Pager`\
+https://nytimes.com/live/2025/09/09/us/trump-epstein-maha-report/protesters-call-trump-hitler-as-he-dines-out-in-washington
+
 **Mets' Juan Soto becomes MLB's first 30-30 player in 2025**\
 `Soto’s previous career-best was 12 stolen bases, a figure he reached in 2019 and 2023.`\
 https://nytimes.com/athletic/6614710/2025/09/09/new-york-mets-juan-soto-milestone/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6614603/2025/09/09/cubs-vs-braves-stream-how-to-wat
 **How to watch Astros at Blue Jays: Time, TV, streaming for September 10**\
 `Find out how to watch the Houston Astros play the Toronto Blue Jays, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6614582/2025/09/09/astros-vs-blue-jays-stream-how-to-watch-sept-10/
-
-**How to watch Tigers at Yankees: Time, TV, streaming for September 10**\
-`Find out how to watch the Detroit Tigers play the New York Yankees, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6614576/2025/09/09/tigers-vs-yankees-stream-how-to-watch-sept-10/
 
