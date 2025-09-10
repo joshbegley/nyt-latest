@@ -1,3 +1,7 @@
+**Ben Proud: Why I signed up to the Enhanced Games - and my response to doping critics**\
+`The British swimmer explains why breaking records is at the heart of his decision to sign up to one of sport's most controversial events `\
+https://nytimes.com/athletic/6615668/2025/09/10/ben-proud-enhanced-games-doping-interview/
+
 **The Dodgers and Padres are slogging. Does anyone want to win the NL West?**\
 `As the season's end draws near, neither club enjoys much margin for error in the pursuit of home-field advantage in the postseason.`\
 https://nytimes.com/athletic/6614986/2025/09/10/dodgers-padres-nl-west-race-battle/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6093900/2025/09/10/david-coote-referee-charged/
 **Drones Over Poland Are Latest Violation of Countries Near Ukraine**\
 `Poland denounced what it has described as an incursion by more than a dozen Russian drones. It would not be the first time Russia’s war effort had spilled beyond Ukraine.`\
 https://nytimes.com/2025/09/10/world/europe/drones-russia-poland-violation.html
-
-**Lowetide: Oilers need to start as they mean to go at this year's camp**\
-`The key for the Oilers could be building chemistry and familiarity in exhibition games.`\
-https://nytimes.com/athletic/6613214/2025/09/10/edmonton-oilers-training-camp-lines-2025/
 
