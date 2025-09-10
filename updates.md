@@ -1,3 +1,15 @@
+**Fears Grow of More Violence in Nepal After Crackdown Leaves at Least 22 Dead**\
+`Human rights groups condemned the use of lethal force against protesters. Experts say Nepal’s army and police have historically not been held to account.`\
+https://nytimes.com/2025/09/10/world/asia/nepal-security-forces-army-police.html
+
+**Here’s the latest.**\
+`By Anushka Patil, Bhadra Sharma, Francesca Regalado and Yan Zhuang`\
+https://nytimes.com/live/2025/09/10/world/nepal-protests/heres-the-latest
+
+**Live Updates: Nepal Under Curfew as Troops Patrol Kathmandu After Protests**\
+`Security forces fired on demonstrators angry about censorship and economic issues, leaving at least 22 people dead. Troops were deployed after some protesters set fire to government buildings.`\
+https://nytimes.com/live/2025/09/10/world/nepal-protests
+
 **The sublime goal (and display) that kickstarted England's Thomas Tuchel era**\
 `Tuesday's 5-0 evisceration of Serbia was the night everything clicked for England under their new coach`\
 https://nytimes.com/athletic/6602686/2025/09/10/england-serbia-thomas-tuchel/

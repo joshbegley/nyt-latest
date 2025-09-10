@@ -1,3 +1,15 @@
+**Fears Grow of More Violence in Nepal After Crackdown Leaves at Least 22 Dead**\
+`Human rights groups condemned the use of lethal force against protesters. Experts say Nepal’s army and police have historically not been held to account.`\
+https://nytimes.com/2025/09/10/world/asia/nepal-security-forces-army-police.html
+
+**Here’s the latest.**\
+`By Anushka Patil, Bhadra Sharma, Francesca Regalado and Yan Zhuang`\
+https://nytimes.com/live/2025/09/10/world/nepal-protests/heres-the-latest
+
+**Live Updates: Nepal Under Curfew as Troops Patrol Kathmandu After Protests**\
+`Security forces fired on demonstrators angry about censorship and economic issues, leaving at least 22 people dead. Troops were deployed after some protesters set fire to government buildings.`\
+https://nytimes.com/live/2025/09/10/world/nepal-protests
+
 **The sublime goal (and display) that kickstarted England's Thomas Tuchel era**\
 `Tuesday's 5-0 evisceration of Serbia was the night everything clicked for England under their new coach`\
 https://nytimes.com/athletic/6602686/2025/09/10/england-serbia-thomas-tuchel/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/09/10/briefing/nepal-protests-qatar-israel-ukraine.html
 **Pulisic says Pochettino relationship not as much drama as it seems**\
 `The USMNT's star player and head coach have endured some rocky patches.`\
 https://nytimes.com/athletic/6614928/2025/09/10/pulisic-pochettino-relationship-drama-usmnt/
-
-**Leeds investment pitch analysed: £1bn future valuation and recruitment system**\
-`A pitch deck for investment into Leeds has leaked. The Athletic has analysed it`\
-https://nytimes.com/athletic/6589621/2025/09/10/leeds-united-investment-pitch-analysed/
-
-**Wolves and a difficult debate on Fields of Gold after poignant and powerful Jota tribute**\
-`The Molineux outpouring for their former forward will live long in the memory but should it continue to feature so close to kick-off?`\
-https://nytimes.com/athletic/6612484/2025/09/10/wolves-fields-of-gold-diogo-jota/
-
-**Why has Jack Grealish started so well at Everton?**\
-`Grealish is performing superbly for David Moyes – but is it down to tactics or just an early-season statistical quirk?`\
-https://nytimes.com/athletic/6610500/2025/09/10/jack-grealish-fast-start-everton-career/
 
