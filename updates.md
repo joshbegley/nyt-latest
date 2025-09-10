@@ -1,3 +1,19 @@
+**Prime Minister, Exile and Now Prisoner: Thai Power Broker’s New Chapter**\
+`With Thaksin Shinawatra’s recent fall from favor, his political power is significantly diminished. But it is too early to write him off.`\
+https://nytimes.com/2025/09/10/world/asia/thailand-prime-minister-thaksin-shinawatra.html
+
+**They Created a Streetwear Line From Scratch. In High School.**\
+`At a school with a basketball-themed curriculum, students were “dreaming big.” But could they find a buyer?`\
+https://nytimes.com/2025/09/10/nyregion/high-school-students-bronx-streetwear-clothing.html
+
+**Slang**\
+`How do you and your friends use slang?`\
+https://nytimes.com/2025/09/10/learning/slang.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/09/10/crosswords/spelling-bee-forum.html
+
 **Here’s the latest.**\
 `By Bhadra Sharma, Francesca Regalado, Alex Travelli and Anushka Patil`\
 https://nytimes.com/live/2025/09/10/world/nepal-protests/heres-the-latest
