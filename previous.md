@@ -1,3 +1,11 @@
+**WNBA 2025 playoff field set as Storm clinch final postseason spot**\
+`For the first time since 2021, every WNBA playoff team has a winning record.`\
+https://nytimes.com/athletic/6614919/2025/09/10/wnba-2025-playoff-field-storm/
+
+**Explosive Protests in Nepal**\
+`Demonstrators have set fire to government buildings. The military has sent in troops to restore order.`\
+https://nytimes.com/2025/09/10/briefing/nepal-protests-qatar-israel-ukraine.html
+
 **Andre Onana's Manchester United exit and why he is leaving for Trabzonspor**\
 `The Cameroon goalkeeper is leaving before the Manchester derby and is likely to face Ederson in Istanbul instead`\
 https://nytimes.com/athletic/6613384/2025/09/10/andre-onana-manchester-united-trabzonspor/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6601506/2025/09/10/aston-villa-martinez-transfers/
 **From a coma to playing at a World Cup: 'I don't want to be known as this miracle'**\
 `The Women's Rugby World Cup offers Abi Burton a chance to carve out an identity beyond the illness that swallowed two years of her life`\
 https://nytimes.com/athletic/6595238/2025/09/10/abi-burton-england-womens-rugby-world-cup/
-
-**Quote of the Day: He Nearly Died on the Football Field. Is That Why Everybody Loves Him?**\
-`Quotation of the Day for Wednesday, September 10, 2025.`\
-https://nytimes.com/2025/09/10/pageoneplus/quote-of-the-day-he-nearly-died-on-the-football-field-is-that-why-everybody-loves-him.html
-
-**Hong Kong’s Same-Sex Rights Bill Meets Rare Defiance From Lawmakers**\
-`Legislators could sink a government proposal that would give some rights to couples who married overseas, raising questions about the city’s status as an international hub.`\
-https://nytimes.com/2025/09/10/world/asia/hong-kongs-same-sex-rights-bill-meets-rare-defiance-from-lawmakers.html
 

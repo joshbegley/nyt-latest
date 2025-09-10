@@ -1,3 +1,11 @@
+**WNBA 2025 playoff field set as Storm clinch final postseason spot**\
+`For the first time since 2021, every WNBA playoff team has a winning record.`\
+https://nytimes.com/athletic/6614919/2025/09/10/wnba-2025-playoff-field-storm/
+
+**Explosive Protests in Nepal**\
+`Demonstrators have set fire to government buildings. The military has sent in troops to restore order.`\
+https://nytimes.com/2025/09/10/briefing/nepal-protests-qatar-israel-ukraine.html
+
 **Andre Onana's Manchester United exit and why he is leaving for Trabzonspor**\
 `The Cameroon goalkeeper is leaving before the Manchester derby and is likely to face Ederson in Istanbul instead`\
 https://nytimes.com/athletic/6613384/2025/09/10/andre-onana-manchester-united-trabzonspor/
