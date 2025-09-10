@@ -1,3 +1,7 @@
+**Astros' Luis Garcia exits his second start since Tommy John surgery with apparent injury**\
+`Garcia averaged just 90.2 mph on the 12 four-seam fastballs he threw on Tuesday. `\
+https://nytimes.com/athletic/6614516/2025/09/09/houston-astros-luis-garcia-early-exit/
+
 **Zohran Mamdani calls on FIFA to abandon dynamic pricing plan for World Cup tickets**\
 `The Democratic nominee in the New York City mayoral race has launched a petition calling for three changes to World Cup ticket plans`\
 https://nytimes.com/athletic/6614124/2025/09/09/zohran-mamdani-world-cup-tickets/
