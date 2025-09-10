@@ -1,3 +1,27 @@
+**Submit your questions for Kevin Fishbain's Week 2 Bears mailbag**\
+`After an impressive start, the wheels fell off for Ben Johnson, Caleb Williams and the Bears in their season opener. What's on your mind?`\
+https://nytimes.com/athletic/6616843/2025/09/10/bears-mailbag-week-2-questions/
+
+**'The competition is on' for England places, says Tuchel**\
+`The England head coach, speaking after the 5-0 win over Serbia, said that every player must be on their “best behaviour” to be considered.`\
+https://nytimes.com/athletic/6616565/2025/09/10/thomas-tuchel-england-squad-competition/
+
+**Firefighters Condemn ‘Greed’ as Fire Engine Prices Soar**\
+`A bipartisan group in Congress has increased scrutiny of the fire engine industry. Firefighters complain that escalating prices and yearslong delays are straining public safety resources.`\
+https://nytimes.com/2025/09/10/us/fire-trucks-manufacturers-costs-congress.html
+
+**NFL Week 2 confidence picks: Bucs over Texans, Bears to cover vs. Lions**\
+`Playing in a confidence pool and looking for advice? KC Joyner has you covered with Week 2 picks straight up and against the spread.`\
+https://nytimes.com/athletic/6616142/2025/09/10/nfl-week-2-confidence-picks-buccaneers-bears/
+
+**Israel Launches Airstrikes in Yemen’s Capital**\
+`The Israeli military launched multiple strikes on Sana, the capital of Yemen, on Wednesday.`\
+https://nytimes.com/video/world/middleeast/100000010390348/sanaa-yemen-israel-strikes.html
+
+**Harvard Is Told Research Money Could Flow Again, for Now**\
+`After a court victory, Harvard researchers were told some grants were being restored. But the battle over whether the government can halt the money is probably not over.`\
+https://nytimes.com/2025/09/10/us/harvard-research-funding-trump.html
+
 **The Royal Ballet and Opera Confronts the Rise of A.I. With a New Festival**\
 `The London institution is creating “RBO/Shift,” a technology festival whose first year will ask how far A.I. can push the boundaries of opera.`\
 https://nytimes.com/2025/09/10/arts/music/royal-opera-ai-festival.html
@@ -13,28 +37,4 @@ https://nytimes.com/2025/09/10/t-magazine/chakaia-booker.html
 **South Korea Sends Plane to Repatriate Workers After ICE Raid**\
 `South Korea chartered plane to repatriate workers after a recent ICE raid at a Hyundai-LG battery plant in Georgia.`\
 https://nytimes.com/video/us/politics/100000010389742/south-korea-repatriate-workers.html
-
-**At the Royal Opera House, a New Season Brings New Drama**\
-`The company’s director, Oliver Mears, talks about the opening performance of “Tosca,” the return of the soprano Anna Netrebko and more.`\
-https://nytimes.com/2025/09/10/arts/music/royal-opera-oliver-mears.html
-
-**Mamdani Reflects on 9/11 as He Vies to Be New York’s First Muslim Mayor**\
-`Ahead of the 24th anniversary of Sept. 11, Zohran Mamdani spoke about the importance of honoring the victims and the persistent Islamophobia the attacks provoked.`\
-https://nytimes.com/2025/09/10/nyregion/mamdani-sept-11-muslim.html
-
-**Prince Harry Reunites With King Charles for First Time in Over a Year**\
-`Harry and Charles had tea at Clarence House, the King’s London residence, on Wednesday afternoon, a palace official confirmed.`\
-https://nytimes.com/2025/09/10/world/europe/prince-harry-king-charles-reunion.html
-
-**Travis Kelce explains 'frustrating' collision that resulted in Xavier Worthy injury**\
-`Kelce took the blame for the collision of Chiefs pass catchers, saying "There's no excuse for me running into my own guys like that."`\
-https://nytimes.com/athletic/6616585/2025/09/10/xavier-worthy-injury-travis-kelce-kansas-city-chiefs/
-
-**Bari Weiss Closes In on Major Role at CBS News**\
-`The talks with Ms. Weiss, a founder of The Free Press, are the strongest sign yet that the new owner of CBS News intends to make major changes.`\
-https://nytimes.com/2025/09/10/business/media/cbs-news-bari-weiss-free-press.html
-
-**New York Loses Federal Grant for Head Start Program for Poor Families**\
-`The city’s Head Start preschool programs will not be required to close this school year, but the change injected fresh uncertainty into an unsettled early childhood system.`\
-https://nytimes.com/2025/09/10/nyregion/head-start-new-york-city-loses-federal-grant.html
 
