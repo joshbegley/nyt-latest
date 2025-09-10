@@ -1,3 +1,23 @@
+**Harris Calls Democrats’ Deference to Biden ‘Recklessness’ in New Book**\
+`Former Vice President Kamala Harris also accused White House aides, without naming names, of not defending her from right-wing attacks about her competence.`\
+https://nytimes.com/2025/09/10/us/politics/kamala-harris-book-biden-107-days.html
+
+**Brazil's World Cup qualifying was an all-time low – now Ancelotti faces a race to be ready**\
+`Brazil lost six matches in qualifying for the World Cup. Can Carlo Ancelotti fix their problems in time for the tournament?`\
+https://nytimes.com/athletic/6615939/2025/09/10/brazil-world-cup-qualifying-carlo-ancelotti/
+
+**Ask a Journalist**\
+`We invite teenagers to have conversations with New York Times journalists.`\
+https://nytimes.com/spotlight/ask-a-journalist
+
+**Was There Life on Mars? This Rock Keeps Getting More Interesting.**\
+`NASA is still not saying it has found fossils of Martian microbes, but analysis of a rock collected by the Perseverance rover raises that possibility.`\
+https://nytimes.com/2025/09/10/science/mars-rock-nasa-perserverance.html
+
+**A Whole Wheat Pasta Dish That Hits Every Note**\
+`Spicy sausage, briny olives, fresh tomatoes and herbaceous rosemary make this 30-minute dinner shine.`\
+https://nytimes.com/2025/09/10/dining/healthy-whole-wheat-pasta-with-sausage-and-tomatoes-recipe.html
+
 **The Windup: A troubling Tigers investigation**\
 `Welcome to The Windup, The Athletic's MLB newsletter.`\
 https://nytimes.com/athletic/6615054/2025/09/10/tigers-investigation-misconduct-the-windup/
@@ -17,24 +37,4 @@ https://nytimes.com/2025/09/10/world/europe/what-is-nato-article-4.html
 **Jets to release Xavier Gipson three days after costly fumble: Source**\
 `Gipson was in his third season with the Jets.`\
 https://nytimes.com/athletic/6616098/2025/09/10/new-york-jets-xavier-gipson-release/
-
-**Evaluating the NFL's YouTube experiment, plus Nike's 'Just Do It' 2.0: MoneyCall**\
-`More in this week's sports business cheat sheet: Unrivaled levels up, Spurs upheaval, new obsessions and a Connections wipe-out for Dan.`\
-https://nytimes.com/athletic/6616036/2025/09/10/nfl-youtube-nike-why-do-it-moneycall/
-
-**Poland Says It Shot Down Russian Drones Over Its Airspace**\
-`Russian drones entered Poland’s airspace during an attack on targets across the border in Ukraine, in what the Polish military called an “act of aggression.” It was not clear exactly how many drones had crossed into Poland.`\
-https://nytimes.com/video/world/europe/100000010389273/poland-russia-drones-nato.html
-
-**Nepal’s Protesters Had a Grand Vision, and Then the Vibe Changed**\
-`Before the destruction began, the Gen Z demonstrators had planned to look good while promoting democracy and sweeping away an entrenched leadership.`\
-https://nytimes.com/2025/09/10/world/asia/nepal-gen-z-protesters.html
-
-**From free hot dogs to pins: Topps Collectors Appreciation Day reward guide**\
-`Topps is partnering with MLB teams and major retailers to offer perks to card collectors`\
-https://nytimes.com/athletic/6614718/2025/09/10/topps-announces-collector-appreciation-day-rewards-at-mlb-parks-and-retail-locations/
-
-**Happy Birthday, LIGO. Now Drop Dead.**\
-`Ten years ago, astronomers made an epic discovery with the Laser Interferometer Gravitational-Wave Observatory. Cosmology hasn’t been the same since, and it might not stay that way much longer.`\
-https://nytimes.com/2025/09/10/science/gravitational-waves-ligo-black-holes.html
 
