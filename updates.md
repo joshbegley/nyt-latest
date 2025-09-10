@@ -1,3 +1,23 @@
+**Andy Murray aiming to enter regional qualifying for The Open Championship**\
+`Murray explained he did not think he would have "any chance" of qualifying for the main event.`\
+https://nytimes.com/athletic/6616034/2025/09/10/andy-murray-golf-open-regional-qualifying/
+
+**German Court Convicts Syrian National for Stabbing Attack That Killed 3**\
+`Issa al Hasan was found guilty of murder in the Islamic State-inspired rampage last year that spurred a national debate about refugees and migration.`\
+https://nytimes.com/2025/09/10/world/europe/german-stabbing-attack.html
+
+**Fabianski rejoins West Ham following May release**\
+`The 40-year-old goalkeeper had initially left the club after his contract expired alongside Aaron Cresswell, Vladimir Coufal and Danny Ings.`\
+https://nytimes.com/athletic/6616340/2025/09/10/lukasz-fabianski-west-ham-signing/
+
+**Who Is France’s New Prime Minister?**\
+`Sébastien Lecornu had been defense minister. He is one of President Emmanuel Macron’s most loyal and enduring allies.`\
+https://nytimes.com/2025/09/10/world/europe/france-prime-minister-sebastien-lecornu-macron.html
+
+**Labor Agency Watchdog to Review Hurdles to Statistics Bureau’s Work**\
+`The review comes weeks after President Trump fired the head of the statistics agency after an unexpectedly weak monthly jobs report.`\
+https://nytimes.com/2025/09/10/us/politics/bureau-labor-statistics.html
+
 **Fantasy Football Matchup Rankings Week 2 | Strength of schedule**\
 `Jake Ciely's Week 2 fantasy football strength of schedule by position matchup rankings can help with tough start/sit decisions. `\
 https://nytimes.com/athletic/6616261/2025/09/10/fantasy-football-matchup-rankings-strength-schedule-week-2/

@@ -1,3 +1,7 @@
+**British Courts Service Destroys Banksy Mural Depicting Attack by Judge**\
+`The work, painted onto the walls of one of Britain’s most important court buildings, showed a judge attacking a demonstrator with a gavel.`\
+https://nytimes.com/2025/09/10/arts/design/banksy-destroyed.html
+
 **Andy Murray aiming to enter regional qualifying for The Open Championship**\
 `Murray explained he did not think he would have "any chance" of qualifying for the main event.`\
 https://nytimes.com/athletic/6616034/2025/09/10/andy-murray-golf-open-regional-qualifying/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6616100/2025/09/10/cubs-anthony-rizzo-retirement-am
 **Boat Suspected of Smuggling Drugs Is Said to Have Turned Before U.S. Attacked It**\
 `The Trump administration has argued that the summary killing of 11 people it accused of running drugs was legal under the laws of war.`\
 https://nytimes.com/2025/09/10/us/trump-drug-boat-venezuela-strike.html
-
-**NFL Week 2 survivor pool picks: Cowboys and Rams are chalky, but wait ... Dolphins!?**\
-`A chalky Week 1 left most of us alive in survivor pools. Here's the strategy for Week 2.`\
-https://nytimes.com/athletic/6614156/2025/09/10/nfl-survivor-week-2-picks-strategy/
 

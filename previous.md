@@ -1,3 +1,23 @@
+**Andy Murray aiming to enter regional qualifying for The Open Championship**\
+`Murray explained he did not think he would have "any chance" of qualifying for the main event.`\
+https://nytimes.com/athletic/6616034/2025/09/10/andy-murray-golf-open-regional-qualifying/
+
+**German Court Convicts Syrian National for Stabbing Attack That Killed 3**\
+`Issa al Hasan was found guilty of murder in the Islamic State-inspired rampage last year that spurred a national debate about refugees and migration.`\
+https://nytimes.com/2025/09/10/world/europe/german-stabbing-attack.html
+
+**Fabianski rejoins West Ham following May release**\
+`The 40-year-old goalkeeper had initially left the club after his contract expired alongside Aaron Cresswell, Vladimir Coufal and Danny Ings.`\
+https://nytimes.com/athletic/6616340/2025/09/10/lukasz-fabianski-west-ham-signing/
+
+**Who Is France’s New Prime Minister?**\
+`Sébastien Lecornu had been defense minister. He is one of President Emmanuel Macron’s most loyal and enduring allies.`\
+https://nytimes.com/2025/09/10/world/europe/france-prime-minister-sebastien-lecornu-macron.html
+
+**Labor Agency Watchdog to Review Hurdles to Statistics Bureau’s Work**\
+`The review comes weeks after President Trump fired the head of the statistics agency after an unexpectedly weak monthly jobs report.`\
+https://nytimes.com/2025/09/10/us/politics/bureau-labor-statistics.html
+
 **Fantasy Football Matchup Rankings Week 2 | Strength of schedule**\
 `Jake Ciely's Week 2 fantasy football strength of schedule by position matchup rankings can help with tough start/sit decisions. `\
 https://nytimes.com/athletic/6616261/2025/09/10/fantasy-football-matchup-rankings-strength-schedule-week-2/
@@ -17,24 +37,4 @@ https://nytimes.com/2025/09/10/us/trump-drug-boat-venezuela-strike.html
 **NFL Week 2 survivor pool picks: Cowboys and Rams are chalky, but wait ... Dolphins!?**\
 `A chalky Week 1 left most of us alive in survivor pools. Here's the strategy for Week 2.`\
 https://nytimes.com/athletic/6614156/2025/09/10/nfl-survivor-week-2-picks-strategy/
-
-**Brazil's World Cup qualifying was an all-time low – now Ancelotti faces a race to be ready**\
-`Brazil lost six matches in qualifying for the World Cup. Can Carlo Ancelotti fix their problems in time for the tournament?`\
-https://nytimes.com/athletic/6615939/2025/09/10/brazil-world-cup-qualifying-carlo-ancelotti/
-
-**Ask a Journalist**\
-`We invite teenagers to have conversations with New York Times journalists.`\
-https://nytimes.com/spotlight/ask-a-journalist
-
-**Was There Life on Mars? This Rock Keeps Getting More Interesting.**\
-`NASA is still not saying it has found fossils of Martian microbes, but analysis of a rock collected by the Perseverance rover raises that possibility.`\
-https://nytimes.com/2025/09/10/science/mars-rock-nasa-perserverance.html
-
-**A Whole Wheat Pasta Dish That Hits Every Note**\
-`Spicy sausage, briny olives, fresh tomatoes and herbaceous rosemary make this 30-minute dinner shine.`\
-https://nytimes.com/2025/09/10/dining/healthy-whole-wheat-pasta-with-sausage-and-tomatoes-recipe.html
-
-**The Windup: A troubling Tigers investigation**\
-`Welcome to The Windup, The Athletic's MLB newsletter.`\
-https://nytimes.com/athletic/6615054/2025/09/10/tigers-investigation-misconduct-the-windup/
 
