@@ -18,7 +18,7 @@ https://nytimes.com/athletic/6614815/2025/09/10/new-york-yankees-bullpen-implosi
 `It may not be until the Bears are back in the playoffs that that suffocating “Here we go again” vibe fully dissipates in Chicago.`\
 https://nytimes.com/athletic/6613494/2025/09/10/bears-vikings-ben-johnson-caleb-williams/
 
-**Rhea Moore,15, on becoming the youngest goal scorer in U.S. women’s pro soccer**\
+**Rhea Moore, 15, on becoming the youngest goal scorer in U.S. women’s pro soccer**\
 `Her head coach, Chris Petrucelli, was struck by the Moore family’s clarity of vision for Rhea’s career path.`\
 https://nytimes.com/athletic/6614306/2025/09/10/youngest-goal-scorer-rhea-moore-dallas-trinity/
 

@@ -1,3 +1,7 @@
+**Rhea Moore, 15, on becoming the youngest goal scorer in U.S. women’s pro soccer**\
+`Her head coach, Chris Petrucelli, was struck by the Moore family’s clarity of vision for Rhea’s career path.`\
+https://nytimes.com/athletic/6614306/2025/09/10/youngest-goal-scorer-rhea-moore-dallas-trinity/
+
 **Rosenthal: After a disappointing 2025, these four MLB teams might be ready for success in 2026**\
 `In this crazy sport, all four teams might be pretenders. But in trying to establish which clubs next season might surprise, it’s a start.`\
 https://nytimes.com/athletic/6614384/2025/09/10/mlb-disappointments-success-athletics-orioles-diamondbacks-pirates/
