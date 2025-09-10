@@ -1,3 +1,7 @@
+**Mayor Is a Rare Political Voice Supporting Nepal Protesters**\
+`Balendra Shah won an upset victory three years ago to become Kathmandu’s mayor. He’s using social media to coach protesters on the country’s next steps.`\
+https://nytimes.com/2025/09/10/world/asia/nepal-gen-z-protests-kathmandu-mayor-balendra-shah.html
+
 **A TikTok Trend That Gets at the Complex Legacy of ‘Hamilton’**\
 `By recreating a snippet of the number “Best of Wives and Best of Women,” these funny shorts serve as both tribute and critique.`\
 https://nytimes.com/2025/09/10/movies/hamilton-tiktok-trend.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6613391/2025/09/10/ben-proud-enhanced-games-doping-
 **Unrivaled women’s basketball league expanding with new teams, roster spots**\
 `When the second season begins in January 2026, the league will debut Hive Basketball Club and Breeze Basketball Club.`\
 https://nytimes.com/athletic/6613592/2025/09/10/unrivaled-womens-basketball-league-expansion-teams/
-
-**Pochettino's back three worked for the USMNT. What might that mean for the World Cup?**\
-`Might a formation change unlock the USMNT player pool and kick-start a run of positive performances en route to the World Cup?`\
-https://nytimes.com/athletic/6614824/2025/09/10/usmnt-formation-change-pochettino-world-cup/
 
