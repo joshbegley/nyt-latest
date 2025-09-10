@@ -2,7 +2,7 @@
 `Hiring a candidate from outside the organization would mark another change in direction for the Lerner family. `\
 https://nytimes.com/athletic/6614656/2025/09/09/washington-nationals-baseball-operations-search/
 
-**Kyle Schwarber becomes second Phillies player to hit 50 home runs in a season**\
+**Kyle Schwarber becomes second Phillies player to hit 50 HRs in a season**\
 `Fifty homers puts him eight blasts away from tying Ryan Howard's single-season franchise record. `\
 https://nytimes.com/athletic/6596606/2025/09/09/kyle-schwarber-phillies-50-home-runs/
 
