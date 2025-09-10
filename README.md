@@ -1,3 +1,15 @@
+**They Created a Streetwear Line From Scratch. In High School.**\
+`At a school with a basketball-themed curriculum, students were “dreaming big.” But could they find a buyer?`\
+https://nytimes.com/2025/09/10/nyregion/high-school-students-bronx-streetwear-clothing.html
+
+**Slang**\
+`How do you and your friends use slang?`\
+https://nytimes.com/2025/09/10/learning/slang.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/09/10/crosswords/spelling-bee-forum.html
+
 **How to watch Brewers at Rangers: Time, TV, streaming for September 10**\
 `Find out how to watch the Milwaukee Brewers play the Texas Rangers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6615105/2025/09/10/brewers-vs-rangers-stream-how-to-watch-sept-10/
@@ -25,16 +37,4 @@ https://nytimes.com/live/2025/09/10/world/nepal-protests/heres-the-latest
 **Live Updates: Nepal Under Curfew as Troops Patrol Kathmandu After Protests**\
 `Security forces fired on demonstrators angry about censorship and economic issues, leaving at least 22 people dead. The army deployed troops after some protesters set fire to government buildings.`\
 https://nytimes.com/live/2025/09/10/world/nepal-protests
-
-**The sublime goal (and display) that kickstarted England's Thomas Tuchel era**\
-`Tuesday's 5-0 evisceration of Serbia was the night everything clicked for England under their new coach`\
-https://nytimes.com/athletic/6602686/2025/09/10/england-serbia-thomas-tuchel/
-
-**France and a New Prime Minister Brace for a Day of Disruption**\
-`An opaque online protest movement promises to bring the country to a standstill on Wednesday as Sébastien Lecornu prepares to take office.`\
-https://nytimes.com/2025/09/10/world/europe/france-protests-lecornu-prime-minister.html
-
-**The New York Times in Print for Wednesday, Sep. 10, 2025**\
-``\
-https://nytimes.com/issue/todayspaper/2025/09/10/todays-new-york-times
 
