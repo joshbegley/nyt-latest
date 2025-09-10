@@ -1,3 +1,11 @@
+**Kennedy Report Won’t Solve America’s Food Issues, Experts Say**\
+`Food policy experts said the White House health report is full of promising ideas, but falls short in key ways.`\
+https://nytimes.com/2025/09/10/well/eat/maha-report-nutrition.html
+
+**Read the N.T.S.B.’s interim report on Delta Flight 56**\
+`The National Transportation Safety Board’s preliminary report on the turbulence incident experienced by Delta Flight 56.`\
+https://nytimes.com/interactive/2025/09/10/us/ntsb-report-dl56.html
+
 **How Joe Burrow, Bengals are planning the latest offensive bounceback**\
 `A rough offensive second half vs. the Browns has the Bengals seeking solutions against the Jaguars in Week 2.`\
 https://nytimes.com/athletic/6617507/2025/09/10/joe-burrow-bengals-offense-jaguars/
