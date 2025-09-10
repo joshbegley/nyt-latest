@@ -1,3 +1,7 @@
+**When a Star Is First Seen**\
+`Rhyme is of the essence in Cole Vandenberg and Harit Raghunathan’s New York Times Crossword debut.`\
+https://nytimes.com/2025/09/09/crosswords/daily-puzzle-2025-09-10.html
+
 **Protesters call Trump ‘Hitler’ as he dines out in Washington.**\
 `By Tyler Pager`\
 https://nytimes.com/live/2025/09/09/us/trump-epstein-maha-report/protesters-call-trump-hitler-as-he-dines-out-in-washington
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6614633/2025/09/09/rays-vs-white-sox-stream-how-to-
 **How to watch Cubs at Braves: Time, TV, streaming for September 10**\
 `Find out how to watch the Chicago Cubs play the Atlanta Braves, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6614603/2025/09/09/cubs-vs-braves-stream-how-to-watch-sept-10/
-
-**How to watch Astros at Blue Jays: Time, TV, streaming for September 10**\
-`Find out how to watch the Houston Astros play the Toronto Blue Jays, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6614582/2025/09/09/astros-vs-blue-jays-stream-how-to-watch-sept-10/
 

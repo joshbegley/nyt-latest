@@ -1,3 +1,7 @@
+**When a Star Is First Seen**\
+`Rhyme is of the essence in Cole Vandenberg and Harit Raghunathan’s New York Times Crossword debut.`\
+https://nytimes.com/2025/09/09/crosswords/daily-puzzle-2025-09-10.html
+
 **Mets' Juan Soto becomes MLB's first 30-30 player in 2025**\
 `Soto’s previous career best was 12 stolen bases, a figure he reached in 2019 and 2023.`\
 https://nytimes.com/athletic/6614710/2025/09/09/new-york-mets-juan-soto-milestone/
