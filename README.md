@@ -1,3 +1,7 @@
+**Woman Is Absolved Decades After Biting Attacker’s Tongue During Attempted Rape**\
+`Choi Mal-ja, who was convicted of inflicting bodily harm, said she fought for a retrial so other South Korean women would not suffer as she did.`\
+https://nytimes.com/2025/09/10/world/asia/south-korea-woman-tongue-attempted-rape.html
+
 **Before and after photos show how protests damaged Nepal’s government buildings.**\
 `Demonstrator in Kathmandu defied a curfew and set fire to government offices and the homes of politicians on Tuesday during an escalation of unrest.`\
 https://nytimes.com/live/2025/09/10/world/nepal-protests/before-and-after-photos-show-how-protests-damaged-nepals-government-buildings
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6613075/2025/09/10/nuno-postecoglou-nottingham-fore
 **How to watch Falcons at Vikings: Time, TV, streaming**\
 `Find out how to watch the Atlanta Falcons play the Minnesota Vikings, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6615088/2025/09/10/falcons-vs-vikings-stream-how-to-watch-sept-14/
-
-**Word of the Day: cacophonous**\
-`This word has appeared in 21 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2025/09/10/learning/word-of-the-day-cacophonous.html
 
