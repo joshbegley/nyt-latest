@@ -1,3 +1,7 @@
+**Word of the Day: cacophonous**\
+`This word has appeared in 21 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2025/09/10/learning/word-of-the-day-cacophonous.html
+
 **Fears Grow of More Violence in Nepal After Crackdown Leaves at Least 22 Dead**\
 `Human rights groups condemned the use of lethal force against protesters. Experts say Nepal’s army and police have historically not been held to account.`\
 https://nytimes.com/2025/09/10/world/asia/nepal-security-forces-army-police.html
