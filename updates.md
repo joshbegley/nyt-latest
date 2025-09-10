@@ -1,3 +1,15 @@
+**Live Updates: Charlie Kirk, Right-Wing Influencer, Apparently Shot in Utah**\
+`Mr. Kirk was speaking in front of a large crowd at Utah Valley University when he appeared to have been attacked. His condition was not immediately known.`\
+https://nytimes.com/live/2025/09/10/us/charlie-kirk-shot-utah
+
+**Here’s what to know.**\
+`Mr. Kirk appeared to be speaking in front of a large crowd when a shot rang out, according to video from the scene.`\
+https://nytimes.com/live/2025/09/10/us/charlie-kirk-shot-utah/charlie-kirk-shot-utah
+
+**Billy Lange leaves St. Joseph's to join New York Knicks staff**\
+`Lange was 81-104 overall with a 38-64 conference record.`\
+https://nytimes.com/athletic/6616857/2025/09/10/billy-lange-to-join-new-york-knicks-staff/
+
 **rescue-medic-wall-street**\
 `(No description)`\
 https://nytimes.com/newsgraphics/card-story/rescue-medic-wall-street
