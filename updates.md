@@ -1,3 +1,7 @@
+**Ben Proud: Why I signed up to the Enhanced Games - and my response to doping critics**\
+`The British swimmer explains why breaking records is at the heart of his decision to sign up to one of sport's most controversial events `\
+https://nytimes.com/athletic/6615668/2025/09/10/ben-proud-enhanced-games-doping-interview/
+
 **The Dodgers and Padres are slogging. Does anyone want to win the NL West?**\
 `As the season's end draws near, neither club enjoys much margin for error in the pursuit of home-field advantage in the postseason.`\
 https://nytimes.com/athletic/6614986/2025/09/10/dodgers-padres-nl-west-race-battle/
