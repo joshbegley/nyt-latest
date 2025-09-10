@@ -1,3 +1,11 @@
+**‘Alien: Earth’ Episode 6 Recap: Inhuman Sacrifices**\
+`Neverland is falling into disorder despite its security protocols, with all sorts of saboteurs running amok.`\
+https://nytimes.com/2025/09/09/arts/television/alien-earth-episode-6-recap.html
+
+**Protesters Call Out Trump as He Dines Out in Washington**\
+`Mr. Trump made the short trek from the White House to Joe’s Seafood, Prime Steak & Stone Crab to show that his federal crackdown on crime in the nation’s capital was working.`\
+https://nytimes.com/2025/09/09/us/politics/trump-dc-joes-seafood-protesters.html
+
 **Protesters Call Trump ‘Hitler’ as He Dines Out in Washington**\
 `Mr. Trump made the short trek from the White House to Joe’s Seafood, Prime Steak & Stone Crab to show that his federal crackdown on crime in the nation’s capital was working.`\
 https://nytimes.com/2025/09/09/us/politics/trump-dc-joes-seafood-protesters.html
