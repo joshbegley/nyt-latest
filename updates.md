@@ -1,3 +1,11 @@
+**From free hot dogs to pins: Topps Collectors Appreciation Day reward guide**\
+`Topps is partnering with MLB teams and major retailers to offer perks to card collectors`\
+https://nytimes.com/athletic/6614718/2025/09/10/topps-announces-collector-appreciation-day-rewards-at-mlb-parks-and-retail-locations/
+
+**Happy Birthday, LIGO. Now Drop Dead.**\
+`Ten years ago, astronomers made an epic discovery with the Laser Interferometer Gravitational-Wave Observatory. Cosmology hasn’t been the same since, and it might not stay that way much longer.`\
+https://nytimes.com/2025/09/10/science/gravitational-waves-ligo-black-holes.html
+
 **Mayor Is a Rare Political Voice Supporting Nepal Protesters**\
 `Balendra Shah won an upset victory three years ago to become Kathmandu’s mayor. He’s using social media to coach protesters on the country’s next steps.`\
 https://nytimes.com/2025/09/10/world/asia/nepal-gen-z-protests-kathmandu-mayor-balendra-shah.html
