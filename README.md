@@ -1,3 +1,7 @@
+**What to Know About the Mass Protests in Nepal**\
+`The explosion of unrest in Nepal — with fires around the capital, Kathmandu, and the prime minister fleeing the country — was years in the making. Alex Travelli, a New York Times correspondent, describes what happened and why it happened now.`\
+https://nytimes.com/video/world/asia/100000010388442/what-to-know-about-the-mass-protests-in-nepal.html
+
 **Charlie Kirk, a Close Trump Ally, Was Shot Dead in Utah**\
 `Also, NATO said it shot down Russian drones over Poland. Here’s the latest at the end of Wednesday.`\
 https://nytimes.com/2025/09/10/briefing/charlie-kirk-shooting-russian-drones-poland.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/10/obituaries/rosa-roisinblit-dead.html
 **Maps and Photos: Where and When Charlie Kirk Was Fatally Shot**\
 `Maps and photos show how the shooting that killed Charlie Kirk on a university campus in Utah unfolded.`\
 https://nytimes.com/2025/09/10/us/charlie-kirk-shooting-timeline-map.html
-
-**How Macron Failed to Curb the Far Right**\
-`As France drifted to the right, the president has tried to make the country more business-friendly and win back voters. His strategy hasn’t worked.`\
-https://nytimes.com/2025/09/10/briefing/how-macron-failed-to-curb-the-far-right.html
 
