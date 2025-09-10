@@ -1,3 +1,15 @@
+**Evaluating the NFL's YouTube experiment, plus Nike's 'Just Do It' 2.0: MoneyCall**\
+`More in this week's sports business cheat sheet: Unrivaled levels up, Spurs upheaval, new obsessions and a Connections wipe-out for Dan.`\
+https://nytimes.com/athletic/6616036/2025/09/10/nfl-youtube-nike-why-do-it-moneycall/
+
+**Poland Says It Shot Down Russian Drones Over Its Airspace**\
+`Russian drones entered Poland’s airspace during an attack on targets across the border in Ukraine, in what the Polish military called an “act of aggression.” It was not clear exactly how many drones had crossed into Poland.`\
+https://nytimes.com/video/world/europe/100000010389273/poland-russia-drones-nato.html
+
+**Nepal’s Protesters Had a Grand Vision, and Then the Vibe Changed**\
+`Before the destruction began, the Gen Z demonstrators had planned to look good while promoting democracy and sweeping away an entrenched leadership.`\
+https://nytimes.com/2025/09/10/world/asia/nepal-gen-z-protesters.html
+
 **From free hot dogs to pins: Topps Collectors Appreciation Day reward guide**\
 `Topps is partnering with MLB teams and major retailers to offer perks to card collectors`\
 https://nytimes.com/athletic/6614718/2025/09/10/topps-announces-collector-appreciation-day-rewards-at-mlb-parks-and-retail-locations/
