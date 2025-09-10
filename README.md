@@ -1,3 +1,7 @@
+**Ohio State wanted more versatility in its offense. It turned to the tight ends**\
+`Head coach Ryan Day wanted to expand its personnel looks to make themselves more unpredictable. That's where the tight ends came into play.`\
+https://nytimes.com/athletic/6614150/2025/09/10/ohio-state-tight-end-evolution-offense/
+
 **The Rangers were dead in the water. The 'Little Rascals' have brought them back**\
 `Talking to players in the Rangers clubhouse, the word that keeps coming up is "energy."`\
 https://nytimes.com/athletic/6614269/2025/09/10/texas-rangers-contributions-playoff-hopes/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6613198/2025/09/10/bubba-wallace-nascar-playoffs-br
 **Real Madrid mailbag: Konate interest, Guler's progress and state of the Bernabeu**\
 `With Madrid back in La Liga action on Saturday, we asked you to send in your questions for Mario Cortegana and Guillermo Rai`\
 https://nytimes.com/athletic/6615639/2025/09/10/real-madrid-konate-guler-bernabeu/
-
-**He’s the Reason ‘Severance’ Sounds So Good**\
-`George Drakoulias won over a reluctant Tom Petty, transformed the Black Crowes and was name-checked by the Beastie Boys. This year, he was up for an Emmy.`\
-https://nytimes.com/2025/09/10/arts/music/george-drakoulias-severence-music-emmys.html
 
