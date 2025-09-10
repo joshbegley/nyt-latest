@@ -1,3 +1,23 @@
+**Trump Administration to Appeal Ruling That Allows Lisa Cook to Remain at Fed**\
+`The administration contested a preliminary injunction, issued late Tuesday, that temporarily blocked President Trump from firing her.`\
+https://nytimes.com/2025/09/10/us/politics/trump-lisa-cook-fed-governor-appeal.html
+
+**Israel and Canada Davis Cup tie to be played behind closed doors due to 'safety concerns'**\
+`Pro-Palestinian protests against Israel's involvement in sport have intensified in recent months.`\
+https://nytimes.com/athletic/6615251/2025/09/10/israel-canada-davis-cup-tennis-closed-doors/
+
+**Patriots defensive coordinator Terrell Williams taking time away from team**\
+`Williams spent time away from the team this spring to address a health concern, but Mike Vrabel said this is unrelated to the earlier issue.`\
+https://nytimes.com/athletic/6616626/2025/09/10/terrell-williams-patriots-defensive-coordinator-absence/
+
+**Report: Wild star Kirill Kaprizov rejects most lucrative contract in NHL history**\
+`Kaprizov, who is entering the final year of a five-year, $45 million contract, can become an unrestricted free agent next July 1.`\
+https://nytimes.com/athletic/6616684/2025/09/10/wild-kirill-kaprizov-contract-report/
+
+**Football Manager 26 gets release date after 2025 edition cancelled**\
+`Football Manager 25 was cancelled in February this year after several delays in the release of the game`\
+https://nytimes.com/athletic/6616681/2025/09/10/football-manager-26-release-date-news/
+
 **Football Manager 26 gets release date after 2025 edition cancelled**\
 `Football Manager 25 was cancelled in February this year after several delays in the release of the game.`\
 https://nytimes.com/athletic/6616681/2025/09/10/football-manager-26-release-date-news/

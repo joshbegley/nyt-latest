@@ -1,5 +1,21 @@
+**Trump Administration to Appeal Ruling That Allows Lisa Cook to Remain at Fed**\
+`The administration contested a preliminary injunction, issued late Tuesday, that temporarily blocked President Trump from firing her.`\
+https://nytimes.com/2025/09/10/us/politics/trump-lisa-cook-fed-governor-appeal.html
+
+**Israel and Canada Davis Cup tie to be played behind closed doors due to 'safety concerns'**\
+`Pro-Palestinian protests against Israel's involvement in sport have intensified in recent months.`\
+https://nytimes.com/athletic/6615251/2025/09/10/israel-canada-davis-cup-tennis-closed-doors/
+
+**Patriots defensive coordinator Terrell Williams taking time away from team**\
+`Williams spent time away from the team this spring to address a health concern, but Mike Vrabel said this is unrelated to the earlier issue.`\
+https://nytimes.com/athletic/6616626/2025/09/10/terrell-williams-patriots-defensive-coordinator-absence/
+
+**Report: Wild star Kirill Kaprizov rejects most lucrative contract in NHL history**\
+`Kaprizov, who is entering the final year of a five-year, $45 million contract, can become an unrestricted free agent next July 1.`\
+https://nytimes.com/athletic/6616684/2025/09/10/wild-kirill-kaprizov-contract-report/
+
 **Football Manager 26 gets release date after 2025 edition cancelled**\
-`Football Manager 25 was cancelled in February this year after several delays in the release of the game.`\
+`Football Manager 25 was cancelled in February this year after several delays in the release of the game`\
 https://nytimes.com/athletic/6616681/2025/09/10/football-manager-26-release-date-news/
 
 **Jerry Jones: 'There is no violation' in negotiations with Micah Parsons**\
@@ -21,20 +37,4 @@ https://nytimes.com/2025/09/10/world/asia/nepal-protests-military.html
 **Frimpong steps up return from injury; Isak trains with new team-mates**\
 `Summer signing Frimpong missed the Premier League victories over Newcastle and Arsenal with a hamstring injury`\
 https://nytimes.com/athletic/6616668/2025/09/10/liverpool-injuries-training-frimpong-isak-latest/
-
-**Kevin McGonigle, Sebastian Walcott highlight 2025 Arizona Fall League rosters**\
-`McGonigle, Walcott, Charlie Condon and Ethan Salas are among the biggest names heading to the desert this fall.`\
-https://nytimes.com/athletic/6613357/2025/09/10/arizona-fall-league-2025-roster-previews-kevin-mcgonigle-sebastian-walcott/
-
-**White House Exerts Enormous Influence Over F.B.I., Lawsuit Says**\
-`A sprawling suit by three fired F.B.I. officials provides a disturbing account of efforts by top Trump aides to strip the bureau of its independence.`\
-https://nytimes.com/2025/09/10/us/politics/trump-fbi-lawsuit.html
-
-**2026 World Cup ticket lottery opens, plagued by long waits, frustrated fans**\
-`The first phase of 2026 World Cup ticket sales kicked off Wednesday, but it wasn't the seamless process fans may have expected`\
-https://nytimes.com/athletic/6616251/2025/09/10/2026-fifa-world-cup-ticket-lottery-wait-time/
-
-**‘Whoever Attacks Us, We Will Reach them’: After Qatar, Israel Fires on Yemen**\
-`Israel’s military launched multiple attacks on Houthi sites in northern Yemen, a day after its widely-criticized airstrike against Hamas officials on Qatari soil.`\
-https://nytimes.com/2025/09/10/world/middleeast/israel-houthi-yemen-strikes-qatar.html
 
