@@ -1,3 +1,15 @@
+**Rosenthal: After a disappointing 2025, these four MLB teams might be ready for success in 2026**\
+`In this crazy sport, all four teams might be pretenders. But in trying to establish which clubs next season might surprise, it’s a start.`\
+https://nytimes.com/athletic/6614384/2025/09/10/mlb-disappointments-success-athletics-orioles-diamondbacks-pirates/
+
+**The Pulse: The latest on the brewing Clippers scandal**\
+`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/6614037/2025/09/10/the-latest-on-the-brewing-clippers-scandal-plus-usmnts-bounceback/
+
+**Gulf Powers Question U.S. Protection After Israeli Attack on Qatari Soil**\
+`The audacious attempt to kill the political leaders of Hamas in Doha could upend the foundations of an American-led order in the Middle East.`\
+https://nytimes.com/2025/09/10/world/middleeast/israel-strike-qatar-us.html
+
 **In loss to Tigers, Yankees make woeful franchise history: 'I haven't seen anything like that before'**\
 `The Tigers scored nine runs against the Yankees in the seventh inning after reaching base on five hits, five walks and a hit-by-pitch.`\
 https://nytimes.com/athletic/6614815/2025/09/10/new-york-yankees-bullpen-implosion/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6610869/2025/09/10/detroit-tigers-affiliates-accuse
 **What happened to the Bills defense, and where do they go from here?**\
 `The Bills defense has a lot to work on before meeting another opponent with a powerful offense.`\
 https://nytimes.com/athletic/6614158/2025/09/10/bills-defense-ed-oliver-safety-linebacker/
-
-**NBA commissioner Adam Silver to address media after meeting with team owners in New York**\
-`Team owners and NBA commissioner Adam Silver will meet in New York today for the preseason board of governors meeting.`\
-https://nytimes.com/athletic/6613104/2025/09/10/nba-commissioner-adam-silver-team-owners-to-meet-amid-clippers-investigation/
-
-**The Mets believe they will still make the playoffs. Should you?**\
-`The Mets are clinging to a two-game lead over the suddenly hot Giants for the final wild-card spot. "We've gotta fight," Mendoza said. `\
-https://nytimes.com/athletic/6614911/2025/09/10/will-the-mets-make-the-playoffs/
-
-**Braves' Holmes gets rehab advice from Phillies' Nola; Cubs' Horton pushing Baldwin for ROY**\
-`Grant Holmes is thankful that his arm feels good after resuming throwing, and also that Phillies pitcher Aaron Nola is such a good dude.`\
-https://nytimes.com/athletic/6614820/2025/09/10/braves-grant-holmes-rehab-drake-baldwin-roy/
 
