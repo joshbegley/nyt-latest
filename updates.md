@@ -1,3 +1,7 @@
+**A MAHA Report**\
+`Today we look at the Make America Healthy Again movement.`\
+https://nytimes.com/2025/09/10/world/maha-report-qatar-russia-ukraine.html
+
 **​Anger Mounts in Korea as Release of Workers Detained in Georgia Is Delayed**\
 `It is unclear when the South Korean detainees will be repatriated. They were previously scheduled to depart the United States on Wednesday.`\
 https://nytimes.com/2025/09/10/world/asia/georgia-immigration-raid-hyundai-workers-south-korea.html
