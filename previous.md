@@ -1,3 +1,7 @@
+**Missouri QB Sam Horn out for the season after undergoing surgery for broken leg: Report**\
+`A two-sport athlete, Horn was selected by reigning World Series champions the Los Angeles Dodgers in the 17th round of the 2025 MLB Draft.`\
+https://nytimes.com/athletic/6616979/2025/09/10/sam-horn-missouri-quarterback-injury/
+
 **Cruise Ship Passenger With $16,000 Gambling Debt Jumps Overboard**\
 `The man, who was rescued, told authorities he was trying to avoid declaring money in his possession, but Royal Caribbean said he also had casino and gaming losses.`\
 https://nytimes.com/2025/09/10/travel/cruise-ship-passenger-with-16000-gambling-debt-jumps-overboard.html
@@ -22,7 +26,7 @@ https://nytimes.com/athletic/6388188/2025/09/10/christian-eriksen-wolfsburg-manc
 `The three players — Steven Vasquez, Jalen Weaver and Mykell Robinson — all played at Fresno State at one point in their careers.`\
 https://nytimes.com/athletic/6616816/2025/09/10/ncaa-bans-gambling-violations-fresno-state-sjsu/
 
-**Live Updates: Charlie Kirk, Right-Wing Influencer, Shot in Utah**\
+**Live Updates: Charlie Kirk, Right-Wing Activist, Shot in Utah**\
 `Mr. Kirk, a close ally of President Trump, was shot in the neck while speaking in front of a large crowd on a university campus.`\
 https://nytimes.com/live/2025/09/10/us/charlie-kirk-shot-utah
 
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/09/10/us/charlie-kirk-shot-utah/charlie-kirk-shot-
 **Billy Lange leaves St. Joseph's to join New York Knicks staff**\
 `Lange was 81-104 overall with a 38-64 conference record.`\
 https://nytimes.com/athletic/6616857/2025/09/10/billy-lange-to-join-new-york-knicks-staff/
-
-**rescue-medic-wall-street**\
-`(No description)`\
-https://nytimes.com/newsgraphics/card-story/rescue-medic-wall-street
 

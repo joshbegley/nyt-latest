@@ -1,3 +1,11 @@
+**Missouri QB Sam Horn out for the season after undergoing surgery for broken leg: Report**\
+`A two-sport athlete, Horn was selected by reigning World Series champions the Los Angeles Dodgers in the 17th round of the 2025 MLB Draft.`\
+https://nytimes.com/athletic/6616979/2025/09/10/sam-horn-missouri-quarterback-injury/
+
+**Live Updates: Charlie Kirk, Right-Wing Activist, Shot in Utah**\
+`Mr. Kirk, a close ally of President Trump, was shot in the neck while speaking in front of a large crowd on a university campus.`\
+https://nytimes.com/live/2025/09/10/us/charlie-kirk-shot-utah
+
 **Cruise Ship Passenger With $16,000 Gambling Debt Jumps Overboard**\
 `The man, who was rescued, told authorities he was trying to avoid declaring money in his possession, but Royal Caribbean said he also had casino and gaming losses.`\
 https://nytimes.com/2025/09/10/travel/cruise-ship-passenger-with-16000-gambling-debt-jumps-overboard.html
