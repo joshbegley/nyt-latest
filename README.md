@@ -1,3 +1,7 @@
+**The Subway Had Its Safest Summer in Years. The White House Shrugged.**\
+`The U.S. Transportation Secretary, Sean Duffy, has called the subway crime-ridden, but Gov. Kathy Hochul of New York said her message to him was, “We’ve got this.”`\
+https://nytimes.com/2025/09/10/nyregion/nyc-subway-hochul-white-house.html
+
 **‘People got down in waves’ when shot was fired, witness says.**\
 `By Mark Walker`\
 https://nytimes.com/live/2025/09/10/us/charlie-kirk-shot-utah/people-got-down-in-waves-when-shot-was-fired-witness-says
@@ -15,7 +19,7 @@ https://nytimes.com/2025/09/10/us/politics/ice-cia-raid.html
 https://nytimes.com/video/world/europe/100000010389604/france-protests-macron-lecornu.html
 
 **At Least 2 Students Are Shot at Colorado High School, Authorities Say**\
-`The attack took place on the campus of Evergreen High School in Evergreen, Colo., which is west of Denver, the police said.`\
+`The attack took place on the campus of Evergreen High School in Evergreen, Colo. which is west of Denver, the police said.`\
 https://nytimes.com/2025/09/10/us/colorado-high-school-shooting.html
 
 **49ers QB Brock Purdy 'long shot' to play in Week 2, could miss multiple games**\
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/10/us/turning-point-usa-charlie-kirk.html
 **Senators Demand Answers From Mark Zuckerberg on WhatsApp Security**\
 `Three Republican senators sent a letter to Meta’s chief executive on Wednesday asking him to respond to whistle-blower allegations over security flaws.`\
 https://nytimes.com/2025/09/10/technology/whatsapp-senators-letter-meta.html
-
-**Missouri QB Sam Horn out for the season after undergoing surgery for broken leg: Report**\
-`A two-sport athlete, Horn was selected by the Los Angeles Dodgers in the 17th round of the 2025 MLB Draft.`\
-https://nytimes.com/athletic/6616979/2025/09/10/sam-horn-missouri-quarterback-injury/
 
