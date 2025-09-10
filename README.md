@@ -6,8 +6,8 @@ https://nytimes.com/2025/09/09/business/federal-reserve-lisa-cook-ruling.html
 `Rhyme is of the essence in Cole Vandenberg and Harit Raghunathan’s New York Times Crossword debut.`\
 https://nytimes.com/2025/09/09/crosswords/daily-puzzle-2025-09-10.html
 
-**Protesters Call Trump ‘Hitler’ as He Dines out in Washington**\
-`President Trump made the short trek from the White House to Joe’s Seafood, Prime Steak & Stone Crab to show that his federal crackdown on crime in the nation’s capital was working.`\
+**Protesters Call Trump ‘Hitler’ as He Dines Out in Washington**\
+`Mr. Trump made the short trek from the White House to Joe’s Seafood, Prime Steak & Stone Crab to show that his federal crackdown on crime in the nation’s capital was working.`\
 https://nytimes.com/2025/09/09/us/politics/trump-dc-joes-seafood-protesters.html
 
 **Mets' Juan Soto becomes MLB's first 30-30 player in 2025**\

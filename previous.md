@@ -1,14 +1,14 @@
 **Judge Rules Fed Governor Can Remain in Role, for Now**\
-`The decision is a win for Lisa Cook, the Federal Reserve governor that President Trump sought to dismiss over allegations of mortgage fraud.`\
+`The decision is a win for Lisa Cook, the Federal Reserve governor whom President Trump sought to dismiss over allegations of mortgage fraud.`\
 https://nytimes.com/2025/09/09/business/federal-reserve-lisa-cook-ruling.html
 
 **When a Star Is First Seen**\
 `Rhyme is of the essence in Cole Vandenberg and Harit Raghunathan’s New York Times Crossword debut.`\
 https://nytimes.com/2025/09/09/crosswords/daily-puzzle-2025-09-10.html
 
-**Protesters call Trump ‘Hitler’ as he dines out in Washington.**\
-`By Tyler Pager`\
-https://nytimes.com/live/2025/09/09/us/trump-epstein-maha-report/protesters-call-trump-hitler-as-he-dines-out-in-washington
+**Protesters Call Trump ‘Hitler’ as He Dines out in Washington**\
+`President Trump made the short trek from the White House to Joe’s Seafood, Prime Steak & Stone Crab to show that his federal crackdown on crime in the nation’s capital was working.`\
+https://nytimes.com/2025/09/09/us/politics/trump-dc-joes-seafood-protesters.html
 
 **Mets' Juan Soto becomes MLB's first 30-30 player in 2025**\
 `Soto’s previous career best was 12 stolen bases, a figure he reached in 2019 and 2023.`\
