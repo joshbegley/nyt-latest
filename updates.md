@@ -1,3 +1,19 @@
+**White House Exerts Enormous Influence Over F.B.I., Lawsuit Says**\
+`A sprawling suit by three fired F.B.I. officials provides a disturbing account of efforts by top Trump aides to strip the bureau of its independence.`\
+https://nytimes.com/2025/09/10/us/politics/trump-fbi-lawsuit.html
+
+**2026 World Cup ticket lottery opens, plagued by long waits, frustrated fans**\
+`The first phase of 2026 World Cup ticket sales kicked off Wednesday, but it wasn't the seamless process fans may have expected`\
+https://nytimes.com/athletic/6616251/2025/09/10/2026-fifa-world-cup-ticket-lottery-wait-time/
+
+**‘Whoever Attacks Us, We Will Reach them’: After Qatar, Israel Fires on Yemen**\
+`Israel’s military launched multiple attacks on Houthi sites in northern Yemen, a day after its widely-criticized airstrike against Hamas officials on Qatari soil.`\
+https://nytimes.com/2025/09/10/world/middleeast/israel-houthi-yemen-strikes-qatar.html
+
+**Brazil Invited the World to the Amazon. It’s Become a Big Headache.**\
+`This year’s U.N. climate conference, on the edge of the rainforest, is fueling criticism of the host nation and the entire process of global diplomacy on climate change.`\
+https://nytimes.com/2025/09/10/climate/belem-cop30-amazon-hotels-united-nations.html
+
 **Polly Holliday, a Sassy Waitress on the Sitcom ‘Alice,’ Dies at 88**\
 `“Kiss my grits,” her character, Flo, was known to say. But that high-profile role was just one facet of a long, busy stage and screen career.`\
 https://nytimes.com/2025/09/10/arts/television/polly-holiday-dead.html

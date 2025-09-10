@@ -1,3 +1,11 @@
+**Frimpong steps up return from injury; Isak trains with new team-mates**\
+`Summer signing Frimpong missed the Premier League victories over Newcastle and Arsenal with a hamstring injury`\
+https://nytimes.com/athletic/6616668/2025/09/10/liverpool-injuries-training-frimpong-isak/
+
+**Kevin McGonigle, Sebastian Walcott highlight 2025 Arizona Fall League rosters**\
+`McGonigle, Walcott, Charlie Condon and Ethan Salas are among the biggest names heading to the desert this fall.`\
+https://nytimes.com/athletic/6613357/2025/09/10/arizona-fall-league-2025-roster-previews-kevin-mcgonigle-sebastian-walcott/
+
 **White House Exerts Enormous Influence Over F.B.I., Lawsuit Says**\
 `A sprawling suit by three fired F.B.I. officials provides a disturbing account of efforts by top Trump aides to strip the bureau of its independence.`\
 https://nytimes.com/2025/09/10/us/politics/trump-fbi-lawsuit.html
@@ -24,17 +32,9 @@ https://nytimes.com/athletic/6616600/2025/09/10/week-2-nfl-panic-dolphins-panthe
 
 **A Celebration of Haitian Designers Kicks Off Fashion Week**\
 `Text by Simbarashe Cha`\
-https://nytimes.com/card/2025/09/10/style/
+https://nytimes.com/card/2025/09/10/style/harlem-fashion-row
 
 **Texas Professor Fired After Accusations of Teaching ‘Gender Ideology’**\
 `Two administrators also lost their posts at Texas A&M, an example of how Republican policies meant to curb liberal ideas are reaching into university classrooms.`\
 https://nytimes.com/2025/09/10/us/texas-professor-fired-gender-ideology.html
-
-**Dissecting Erling Haaland's five-goal spectacular for Norway**\
-`Premier League sensation Haaland put on a clinic as he scored five times in Norway's 11-1 win over Moldova `\
-https://nytimes.com/athletic/6615633/2025/09/10/erling-haaland-norway-five-goals-moldova/
-
-**N.Y. Regulators Move to Fine Cannabis Testing Lab Over Safety Violations**\
-`The effort to penalize the facility, Lexachrom Analytical Laboratory, comes amid a state push to investigate testing irregularities in the weed industry.`\
-https://nytimes.com/2025/09/10/nyregion/new-york-cannabis-testing-lab-weed-dispensaries.html
 
