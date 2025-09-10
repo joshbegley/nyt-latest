@@ -1,3 +1,15 @@
+**Norton Says Little as Bills to Clamp Down on D.C. Advance**\
+`At a heated committee session on bills exerting more federal control of Washington, the 88-year-old delegate sat quietly, reading with difficulty from a script.`\
+https://nytimes.com/2025/09/10/us/politics/eleanor-holmes-norton-dc.html
+
+**Reds rookie Chase Burns to be activated Friday, pitch out of bullpen with restrictions**\
+`"We're trying to balance him finishing the year, because we think that's really important," manager Terry Francona said.`\
+https://nytimes.com/athletic/6617704/2025/09/10/reds-chase-burns-activated-bullpen/
+
+**Police Arrest Suspect in Death of Queens Couple in Burning House**\
+`The arrested man is Jamel McGriff, 42. Investigators believe he killed a couple in their 70s, one of whom was found tied to a pole.`\
+https://nytimes.com/2025/09/10/nyregion/queens-couple-burning-house-arrest.html
+
 **Ex-USF coach Jim Leavitt won't face prosecution in battery and theft case**\
 `Former coach was arrested last month after incident with ex-girlfriend.`\
 https://nytimes.com/athletic/6617729/2025/09/10/charges-dropped-jim-leavitt-ex-usf-coach/
