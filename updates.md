@@ -1,3 +1,7 @@
+**Mets owners donate more than $2M to organization supporting women's baseball**\
+`The International Women's Baseball Center is raising money to renovate famed Beyer Stadium and build a museum dedicated to women's baseball.`\
+https://nytimes.com/athletic/6614810/2025/09/09/mets-donate-2-million-womens-baseball/
+
 **Pochettino singles out USMNT players who helped World Cup roster stock vs. Japan**\
 `Certain players helped themselves more than others in the USMNT's 2-0 win over Japan`\
 https://nytimes.com/athletic/6614768/2025/09/09/pochettino-usmnt-japan-world-cup-roster/
