@@ -1,3 +1,15 @@
+**How Joe Burrow, Bengals are planning the latest offensive bounceback**\
+`A rough offensive second half vs. the Browns has the Bengals seeking solutions against the Jaguars in Week 2.`\
+https://nytimes.com/athletic/6617507/2025/09/10/joe-burrow-bengals-offense-jaguars/
+
+**Who Is MAHA Even For?**\
+`The movement is tearing down America’s health care institutions. To what end?`\
+https://nytimes.com/2025/09/10/opinion/kennedy-maha-cdc.html
+
+**Rosa Roisinblit, Who Championed the Missing in Argentina, Dies at 106**\
+`She helped create the activist group Grandmothers of Plaza de Mayo, which sought to find relatives who had been killed or “disappeared” by the 1976-83 military dictatorship.`\
+https://nytimes.com/2025/09/10/obituaries/rosa-roisinblit-dead.html
+
 **Maps and Photos: Where and When Charlie Kirk Was Fatally Shot**\
 `Maps and photos show how the shooting that killed Charlie Kirk on a university campus in Utah unfolded.`\
 https://nytimes.com/2025/09/10/us/charlie-kirk-shooting-timeline-map.html
@@ -21,16 +33,4 @@ https://nytimes.com/video/world/middleeast/100000010390783/gaza-city-evacuation-
 **Boeing and Union for 3,200 Striking Workers Reach New Proposed Deal**\
 `Workers who make military aircraft and equipment in the St. Louis area have been on strike since early August after rejecting an earlier agreement.`\
 https://nytimes.com/2025/09/10/business/boeing-machinists-stlouis-deal.html
-
-**Charlie Kirk, Right-Wing Provocateur and Close Ally of Trump, Dies at 31**\
-`The founder of Turning Point USA played a central role in organizing young voters and giving shape to the pro-Trump agenda. He was fatally shot during a speaking event in Utah.`\
-https://nytimes.com/2025/09/10/us/politics/charlie-kirk-dead.html
-
-**Luka Dončić's EuroBasket run ends as Slovenia falls short in quarterfinals**\
-`Dončić had 39 points in the defeat and averaged nearly 35 points in the tournament in leading an undermanned Slovenia to the quarterfinals.`\
-https://nytimes.com/athletic/6617366/2025/09/10/luka-doncic-slovenia-germany-score-result/
-
-**Trump and Leaders Across Political Spectrum React to Charlie Kirk Shooting**\
-`Some politicians called for prayers, while some others immediately cast blame.`\
-https://nytimes.com/2025/09/10/us/charlie-kirk-reaction-trump.html
 
