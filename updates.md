@@ -1,3 +1,7 @@
+**Climate ‘Ideology’ Hurts Prosperity, Top U.S. Officials Tell Europeans**\
+`Chris Wright, the energy secretary, said he would push Europe to loosen environmental rules and buy more gas. Doug Burgum, the interior secretary, tied fossil fuels to a need to win the A.I. race.`\
+https://nytimes.com/2025/09/10/climate/burgum-wright-europe-energy.html
+
 **A Celebration of Haitian Designers Kicks Off Fashion Week**\
 `Text by Simbarashe Cha`\
 https://nytimes.com/card/2025/09/10/style/
