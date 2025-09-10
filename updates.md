@@ -1,3 +1,15 @@
+**Kids Love Making (and Eating) This Easy Noodle Soup**\
+`This Cantonese classic, which Melissa Clark adapted from Lane Li, of Noodle Lane in Brooklyn, is so easy a middle schooler can make it.`\
+https://nytimes.com/2025/09/10/dining/easy-cantonese-noodle-soup.html
+
+**The Subway Had Its Safest Summer in Years. The White House Shrugged.**\
+`The U.S. Transportation Secretary, Sean Duffy, has called the subway crime-ridden, but Gov. Kathy Hochul of New York said her message to him was, “We’ve got this.”`\
+https://nytimes.com/2025/09/10/nyregion/nyc-subway-hochul-white-house.html
+
+**At Least 2 Students Are Shot at Colorado High School, Authorities Say**\
+`The attack took place on the campus of Evergreen High School in Evergreen, Colo. which is west of Denver, the police said.`\
+https://nytimes.com/2025/09/10/us/colorado-high-school-shooting.html
+
 **‘People got down in waves’ when shot was fired, witness says.**\
 `By Mark Walker`\
 https://nytimes.com/live/2025/09/10/us/charlie-kirk-shot-utah/people-got-down-in-waves-when-shot-was-fired-witness-says
