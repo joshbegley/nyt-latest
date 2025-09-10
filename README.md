@@ -1,3 +1,7 @@
+**A TikTok Trend That Gets at the Complex Legacy of ‘Hamilton’**\
+`By recreating a snippet of the number “Best of Wives and Best of Women,” these funny shorts serve as both tribute and critique.`\
+https://nytimes.com/2025/09/10/movies/hamilton-tiktok-trend.html
+
 **Are the Colts, Daniel Jones actually as good as they looked in Week 1?**\
 `You don't want to overreact to one week, but it's hard to ignore how good Indy looked on both sides of the ball against Miami. `\
 https://nytimes.com/athletic/6614007/2025/09/10/colts-daniel-jones-broncos/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6613592/2025/09/10/unrivaled-womens-basketball-leag
 **Pochettino's back three worked for the USMNT. What might that mean for the World Cup?**\
 `Might a formation change unlock the USMNT player pool and kick-start a run of positive performances en route to the World Cup?`\
 https://nytimes.com/athletic/6614824/2025/09/10/usmnt-formation-change-pochettino-world-cup/
-
-**For the Raiders, the coaching difference is already clear: Five notes from a Week 1 win**\
-`Plus, Jakobi Meyers proves his worth, the defense delivers and the offensive line struggles in New England.`\
-https://nytimes.com/athletic/6611613/2025/09/10/pete-carroll-coaching-staff-performance-week-1/
 

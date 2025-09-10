@@ -1,3 +1,7 @@
+**Are the Colts, Daniel Jones actually as good as they looked in Week 1?**\
+`You don't want to overreact to one week, but it's hard to ignore how good Indy looked on both sides of the ball against Miami. `\
+https://nytimes.com/athletic/6614007/2025/09/10/colts-daniel-jones-broncos/
+
 **Clippers' Kawhi Leonard saga could hinge on key missing phrase in the CBA**\
 `The Clippers investigation might not end with the harshest punishment. But the NBA could take a page from the NCAA's compliance playbook.`\
 https://nytimes.com/athletic/6615693/2025/09/10/clippers-kawhi-leonard-news-nba-investigation-cba/
