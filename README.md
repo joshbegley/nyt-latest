@@ -1,3 +1,11 @@
+**Clippers' Kawhi Leonard saga could hinge on key missing phrase in the CBA**\
+`The Clippers investigation might not end with the harshest punishment. But the NBA could take a page from the NCAA's compliance playbook.`\
+https://nytimes.com/athletic/6615693/2025/09/10/clippers-kawhi-leonard-news-nba-investigation-cba/
+
+**Eerie Calm in Nepal as Uncertainty Follows Deadly Clashes**\
+`Nepal was still under a nationwide curfew on Wednesday after two days of street clashes between anti-government protesters and security forces that killed at least 22 people.`\
+https://nytimes.com/video/world/asia/100000010389503/eerie-calm-in-nepal-as-uncertainty-follows-deadly-clashes.html
+
 **Ben Proud: Why I signed up to the Enhanced Games - and my response to doping critics**\
 `The British swimmer explains why breaking records is at the heart of his decision to sign up to one of sport's most controversial events `\
 https://nytimes.com/athletic/6615668/2025/09/10/ben-proud-enhanced-games-doping-interview/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6611613/2025/09/10/pete-carroll-coaching-staff-perf
 **I Feel Bad for My Mother, but I’m Sick of Her Complaining. Help!**\
 `A reader has come to dread phone calls from her mother, whose deep unhappiness she attributes to life with her “textbook narcissist” stepfather.`\
 https://nytimes.com/2025/09/10/style/family-phone-calls-impatience.html
-
-**Former referee David Coote charged with making indecent image of a child**\
-`The 43-year-old will appear at Nottingham Magistrates' Court on Thursday, September 11`\
-https://nytimes.com/athletic/6093900/2025/09/10/david-coote-referee-charged/
-
-**Drones Over Poland Are Latest Violation of Countries Near Ukraine**\
-`Poland denounced what it has described as an incursion by more than a dozen Russian drones. It would not be the first time Russia’s war effort had spilled beyond Ukraine.`\
-https://nytimes.com/2025/09/10/world/europe/drones-russia-poland-violation.html
 
