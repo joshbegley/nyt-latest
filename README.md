@@ -1,3 +1,11 @@
+**Mets' Juan Soto becomes MLB's first 30-30 player in 2025**\
+`Soto’s previous career-best was 12 stolen bases, a figure he reached in 2019 and 2023.`\
+https://nytimes.com/athletic/6614710/2025/09/09/new-york-mets-juan-soto-milestone/
+
+**USMNT 2, Japan 0: Zendejas, Balogun take their chances in needed rebound win**\
+`Desperate for a win, the USMNT changed up its look and got a desired result, as Mauricio Pochettino's squad bounced back vs. Japan`\
+https://nytimes.com/athletic/6613615/2025/09/09/usmnt-japan-friendly-score-zendejas-balogun-pochettino-video/
+
 **Nationals’ search for top baseball executive includes Cubs, Dodgers personnel: Sources**\
 `Hiring a candidate from outside the organization would mark another change in direction for the Lerner family. `\
 https://nytimes.com/athletic/6614656/2025/09/09/washington-nationals-baseball-operations-search/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6614582/2025/09/09/astros-vs-blue-jays-stream-how-t
 **How to watch Tigers at Yankees: Time, TV, streaming for September 10**\
 `Find out how to watch the Detroit Tigers play the New York Yankees, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6614576/2025/09/09/tigers-vs-yankees-stream-how-to-watch-sept-10/
-
-**Astros' Luis Garcia, recently back from TJ, exits game with elbow discomfort**\
-`Garcia averaged just 90.2 mph on the 12 four-seam fastballs he threw on Tuesday. `\
-https://nytimes.com/athletic/6614516/2025/09/09/houston-astros-luis-garcia-early-exit/
-
-**Zohran Mamdani calls on FIFA to abandon dynamic pricing plan for World Cup tickets**\
-`The Democratic nominee in the New York City mayoral race has launched a petition calling for three changes to World Cup ticket plans`\
-https://nytimes.com/athletic/6614124/2025/09/09/zohran-mamdani-world-cup-tickets/
 
