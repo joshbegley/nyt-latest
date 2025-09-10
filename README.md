@@ -1,3 +1,7 @@
+**Trump Moves to Crack Down on Drug Advertising**\
+`The administration is proposing a return to a 1990s-era policy that kept most drug ads off TV. That could dent the revenues of drugmakers and major networks.`\
+https://nytimes.com/2025/09/09/health/fda-drug-advertising-warning-letters.html
+
 **How to watch Rays at White Sox: Time, TV, streaming for September 10**\
 `Find out how to watch the Tampa Bay Rays play the Chicago White Sox, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6614633/2025/09/09/rays-vs-white-sox-stream-how-to-watch-sept-10/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/09/us/los-angeles-immigrant-reaction.html
 **Aaron Judge passes Yogi Berra with 359th home run, moves into fifth place in Yankees history**\
 `New York's superstar outfielder passed Berra on the franchise's all time list and is two homers behind Joe DiMaggio.`\
 https://nytimes.com/athletic/6587699/2025/09/09/ny-yankees-aaron-judge-home-run-history/
-
-**Democrats Narrow Gap in House After Victory in Virginia Special Election**\
-`James Walkinshaw will fill a seat left open by the death of his former boss, Gerald Connolly, and shrink the Republicans’ majority in the chamber.`\
-https://nytimes.com/2025/09/09/us/politics/james-walkinshaw-virginia-house.html
 
