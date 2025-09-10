@@ -1,3 +1,7 @@
+**Trump Moves to Crack Down on Drug Advertising**\
+`The administration is proposing a return to a 1990s-era policy that kept most drug ads off TV. That could dent the revenues of drugmakers and major networks.`\
+https://nytimes.com/2025/09/09/health/fda-drug-advertising-warning-letters.html
+
 **How to watch Rays at White Sox: Time, TV, streaming for September 10**\
 `Find out how to watch the Tampa Bay Rays play the Chicago White Sox, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6614633/2025/09/09/rays-vs-white-sox-stream-how-to-watch-sept-10/
