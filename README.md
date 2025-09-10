@@ -1,3 +1,11 @@
+**Kyle Schwarber becomes the second Phillies player to hit 50 home runs in a season**\
+`Fifty homers puts him eight blasts away from tying Ryan Howard's single-season franchise record. `\
+https://nytimes.com/athletic/6596606/2025/09/09/kyle-schwarber-phillies-50-home-runs/
+
+**Once Again, Israel Leaves Trump in the Dark as It Conducts a Military Attack**\
+`President Trump said he was “very unhappy about the way that went down.”`\
+https://nytimes.com/2025/09/09/us/politics/israel-trump-gaza-qatar-bombing.html
+
 **Trump Moves to Crack Down on Drug Advertising**\
 `The administration is proposing a return to a 1990s-era policy that kept most drug ads off TV. That could dent the revenues of drugmakers and major networks.`\
 https://nytimes.com/2025/09/09/health/fda-drug-advertising-warning-letters.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6614124/2025/09/09/zohran-mamdani-world-cup-tickets
 **Stuart Craig, Who Designed the Movie World of Harry Potter, Dies at 83**\
 `A three-time Oscar winner for production design, he was one of the few people to work on all eight Potter films and their three “Fantastic Beasts” spinoffs.`\
 https://nytimes.com/2025/09/09/movies/stuart-craig-dead.html
-
-**‘We All Thought the Raids Were Over’: Fears Return for Immigrants in L.A.**\
-`Los Angeles residents are anxious once again following a Supreme Court ruling that allowed aggressive immigration raids to resume.`\
-https://nytimes.com/2025/09/09/us/los-angeles-immigrant-reaction.html
-
-**Aaron Judge passes Yogi Berra with 359th home run, moves into fifth place in Yankees history**\
-`New York's superstar outfielder passed Berra on the franchise's all time list and is two homers behind Joe DiMaggio.`\
-https://nytimes.com/athletic/6587699/2025/09/09/ny-yankees-aaron-judge-home-run-history/
 
