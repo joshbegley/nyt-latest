@@ -1,5 +1,9 @@
-**Live Updates: Charlie Kirk, Right-Wing Influencer, Apparently Shot in Utah**\
-`Mr. Kirk was speaking in front of a large crowd at Utah Valley University when he appeared to have been attacked. His condition was not immediately known.`\
+**NCAA bans 3 men's basketball players over gambling violations**\
+`The three players — Steven Vasquez, Jalen Weaver and Mykell Robinson — all played at Fresno State at one point in their careers.`\
+https://nytimes.com/athletic/6616816/2025/09/10/ncaa-bans-gambling-violations-fresno-state-sjsu/
+
+**Live Updates: Charlie Kirk, Right-Wing Influencer, Shot in Utah**\
+`Mr. Kirk was speaking in front of a large crowd when a shot rang out, according to video from the scene.`\
 https://nytimes.com/live/2025/09/10/us/charlie-kirk-shot-utah
 
 **Here’s what to know.**\
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6616715/2025/09/10/mark-cuban-mavs-nico-harrison-fr
 **10 Tiny Homes**\
 `(No description)`\
 https://nytimes.com/newsgraphics/card-story/ten-tiny-homes
-
-**Sharks sign Michael Misa, No. 2 pick in 2025 draft, to entry-level contract**\
-`The 18-year-old led the Ontario Hockey League last season with 134 points in 65 regular-season games.`\
-https://nytimes.com/athletic/6616648/2025/09/10/sharks-sign-michael-misa/
 
