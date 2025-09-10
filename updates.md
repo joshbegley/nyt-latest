@@ -1,3 +1,15 @@
+**How to watch Brewers at Rangers: Time, TV, streaming for September 10**\
+`Find out how to watch the Milwaukee Brewers play the Texas Rangers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6615105/2025/09/10/brewers-vs-rangers-stream-how-to-watch-sept-10/
+
+**Nuno out, Postecoglou in: Inside the upheaval at Nottingham Forest**\
+`Postecoglou was appointed within hours of Nuno's sacking at Forest - this is how the quick-fire changeover came about.`\
+https://nytimes.com/athletic/6613075/2025/09/10/nuno-postecoglou-nottingham-forest-marinakis/
+
+**Nepalis Worry About Security Forces’ Next Step After Crackdown Leaves 22 Dead**\
+`Human rights groups condemned the use of lethal force against protesters. Experts say Nepal’s army and police have historically not been held to account.`\
+https://nytimes.com/2025/09/10/world/asia/nepal-security-forces-army-police.html
+
 **Live Updates: Nepal Under Curfew as Troops Patrol Kathmandu After Protests**\
 `Security forces fired on demonstrators angry about censorship and economic issues, leaving at least 22 people dead. The army deployed troops after some protesters set fire to government buildings.`\
 https://nytimes.com/live/2025/09/10/world/nepal-protests
