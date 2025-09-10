@@ -1,3 +1,7 @@
+**Ozempic Maker Novo Nordisk to Cut 9,000 Jobs**\
+`The Danish drugmaker said it needed to streamline operations and become more agile, as it faces a more competitive and consumer-focused market.`\
+https://nytimes.com/2025/09/10/business/novo-nordisk-job-cuts-ozempic.html
+
 **Putin’s Message to Ukraine, Europe and Trump: I Won’t Back Down**\
 `With escalating airstrikes, the Russian leader appears determined to demonstrate that he will dictate the terms for any end to the war.`\
 https://nytimes.com/2025/09/10/world/europe/russia-ukraine-putin-trump-europe.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6592365/2025/09/10/nhl-redraft-2022-slafkovsky-cool
 **Mandel's mailbag: Gators fans' thoughts on Napier's situation and Belichick banning Pats scouts**\
 `Plus, what do the late start times mean for Big Ten fans? And how does Stewart Mandel watch games on Saturdays?`\
 https://nytimes.com/athletic/6614509/2025/09/10/mandels-mailbag-gators-napier-belichick-banning-patriots-scouts/
-
-**Phillies powered by Kyle Schwarber, trade deadline acquisitions as postseason nears**\
-`Armed with those reinforcements in July, the Phillies have operated with a certain confidence.`\
-https://nytimes.com/athletic/6614856/2025/09/10/phillies-postseason-mets-kyle-schwarber/
 
