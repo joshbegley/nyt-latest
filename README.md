@@ -1,3 +1,19 @@
+**Football Manager 26 gets release date after 2025 edition cancelled**\
+`Football Manager 25 was cancelled in February this year after several delays in the release of the game.`\
+https://nytimes.com/athletic/6616681/2025/09/10/football-manager-26-release-date-news/
+
+**Jerry Jones: 'There is no violation' in negotiations with Micah Parsons**\
+`Many players and some figures involved with the NFL Players Association disagree with Jones, including Hall of Famer Darrelle Revis.`\
+https://nytimes.com/athletic/6616487/2025/09/10/cowboys-jerry-jones-micah-parsons-contract-negotiations/
+
+**California’s Moral Dilemma on Gerrymandering**\
+`Readers respond to a guest essay about the Proposition 50 redistricting proposal in California. Also: Erasing history.`\
+https://nytimes.com/2025/09/10/opinion/gerrymandering-california.html
+
+**Quinn Hughes-Canucks drama hits hyperdrive after Jack's comments: 'What's he supposed to say?'**\
+`Quinn Hughes responded Wednesday to his brother's comments from a day earlier, when he said he would "love to" play together.`\
+https://nytimes.com/athletic/6616553/2025/09/10/quinn-hughes-canucks-jack-hughes/
+
 **Military Enforces Calm in Nepal After Two Days of Chaos**\
 `Leaders of a youthful protest movement that toppled a prime minister met with the military on Wednesday to discuss a path forward for the country.`\
 https://nytimes.com/2025/09/10/world/asia/nepal-protests-military.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6616251/2025/09/10/2026-fifa-world-cup-ticket-lotte
 **‘Whoever Attacks Us, We Will Reach them’: After Qatar, Israel Fires on Yemen**\
 `Israel’s military launched multiple attacks on Houthi sites in northern Yemen, a day after its widely-criticized airstrike against Hamas officials on Qatari soil.`\
 https://nytimes.com/2025/09/10/world/middleeast/israel-houthi-yemen-strikes-qatar.html
-
-**Brazil Invited the World to the Amazon. It’s Become a Big Headache.**\
-`This year’s U.N. climate conference, on the edge of the rainforest, is fueling criticism of the host nation and the entire process of global diplomacy on climate change.`\
-https://nytimes.com/2025/09/10/climate/belem-cop30-amazon-hotels-united-nations.html
-
-**Polly Holliday, a Sassy Waitress on the Sitcom ‘Alice,’ Dies at 88**\
-`“Kiss my grits,” her character, Flo, was known to say. But that high-profile role was just one facet of a long, busy stage and screen career.`\
-https://nytimes.com/2025/09/10/arts/television/polly-holiday-dead.html
-
-**Scoop City: Week 2 panic meters**\
-`Six teams I'm worried about, plus Mike Sando explains the Eagles' cash spending and the NFL's most controversial decision`\
-https://nytimes.com/athletic/6616600/2025/09/10/week-2-nfl-panic-dolphins-panthers-scoop-city/
-
-**A Celebration of Haitian Designers Kicks Off Fashion Week**\
-`Text by Simbarashe Cha`\
-https://nytimes.com/card/2025/09/10/style/harlem-fashion-row
 
