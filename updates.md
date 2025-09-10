@@ -1,3 +1,19 @@
+**Football Manager 26 gets release date after 2025 edition cancelled**\
+`Football Manager 25 was cancelled in February this year after several delays in the release of the game.`\
+https://nytimes.com/athletic/6616681/2025/09/10/football-manager-26-release-date-news/
+
+**Jerry Jones: 'There is no violation' in negotiations with Micah Parsons**\
+`Many players and some figures involved with the NFL Players Association disagree with Jones, including Hall of Famer Darrelle Revis.`\
+https://nytimes.com/athletic/6616487/2025/09/10/cowboys-jerry-jones-micah-parsons-contract-negotiations/
+
+**California’s Moral Dilemma on Gerrymandering**\
+`Readers respond to a guest essay about the Proposition 50 redistricting proposal in California. Also: Erasing history.`\
+https://nytimes.com/2025/09/10/opinion/gerrymandering-california.html
+
+**Quinn Hughes-Canucks drama hits hyperdrive after Jack's comments: 'What's he supposed to say?'**\
+`Quinn Hughes responded Wednesday to his brother's comments from a day earlier, when he said he would "love to" play together.`\
+https://nytimes.com/athletic/6616553/2025/09/10/quinn-hughes-canucks-jack-hughes/
+
 **Military Enforces Calm in Nepal After Two Days of Chaos**\
 `Leaders of a youthful protest movement that toppled a prime minister met with the military on Wednesday to discuss a path forward for the country.`\
 https://nytimes.com/2025/09/10/world/asia/nepal-protests-military.html
