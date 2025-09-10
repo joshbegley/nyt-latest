@@ -1,3 +1,19 @@
+**Texas Professor Fired After Accusations of Teaching ‘Gender Ideology’**\
+`Two administrators also lost their posts at Texas A&M, an example of how Republican policies meant to curb liberal ideas are reaching into university classrooms.`\
+https://nytimes.com/2025/09/10/us/texas-professor-fired-gender-ideology.html
+
+**Dissecting Erling Haaland's five-goal spectacular for Norway**\
+`Premier League sensation Haaland put on a clinic as he scored five times in Norway's 11-1 win over Moldova `\
+https://nytimes.com/athletic/6615633/2025/09/10/erling-haaland-norway-five-goals-moldova/
+
+**N.Y. Regulators Move to Fine Cannabis Testing Lab Over Safety Violations**\
+`The effort to penalize the facility, Lexachrom Analytical Laboratory, comes amid a state push to investigate testing irregularities in the weed industry.`\
+https://nytimes.com/2025/09/10/nyregion/new-york-cannabis-testing-lab-weed-dispensaries.html
+
+**Cuts to the Food Safety System Threaten Americans’ Health**\
+`Public health experts worry that downsizing the sprawling FoodNet surveillance system could make it harder to prevent food-borne illnesses.`\
+https://nytimes.com/2025/09/10/well/cdc-foodnet.html
+
 **C.D.C. Cuts Leave a Hole in the Food Safety System**\
 `Public health experts worry that downsizing the sprawling FoodNet surveillance system could make it harder to prevent food-borne illnesses.`\
 https://nytimes.com/2025/09/10/well/cdc-foodnet.html
