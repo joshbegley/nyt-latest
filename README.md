@@ -10,7 +10,7 @@ https://nytimes.com/2025/09/10/business/boeing-machinists-stlouis-deal.html
 `The founder of Turning Point USA played a central role in organizing young voters and giving shape to the pro-Trump agenda. He was fatally shot during a speaking event in Utah.`\
 https://nytimes.com/2025/09/10/us/politics/charlie-kirk-dead.html
 
-**Luka Dončić's EuroBasket run ends as Slovenia falls just short in quarterfinals**\
+**Luka Dončić's EuroBasket run ends as Slovenia falls short in quarterfinals**\
 `Dončić had 39 points in the defeat and averaged nearly 35 points in the tournament in leading an undermanned Slovenia to the quarterfinals.`\
 https://nytimes.com/athletic/6617366/2025/09/10/luka-doncic-slovenia-germany-score-result/
 
