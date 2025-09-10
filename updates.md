@@ -1,3 +1,15 @@
+**USMNT after one year of Pochettino: Shake-ups, process and an unclear World Cup outlook**\
+`Wednesday marks a year in charge for a USMNT manager who was supposed to take the team to another level. So far, results are mixed at best`\
+https://nytimes.com/athletic/6613788/2025/09/10/mauricio-pochettino-usmnt-one-year-world-cup/
+
+**The New York Times International Edition in Print for Thursday, Sep. 11, 2025**\
+``\
+https://nytimes.com/issue/todaysinyt/2025/09/10/todays-new-york-times-international-edition
+
+**The BookKeeper's mailbag: Ask our football finance expert your questions**\
+`Ask our football finance expert your questions`\
+https://nytimes.com/athletic/6615373/2025/09/10/the-bookkeepers-mailbag-ask-our-football-finance-expert-your-questions/
+
 **What We Know About the Protests in Nepal**\
 `Days of unrest in Nepal have left 22 people dead, triggered the resignation of its prime minister and brought troops to the streets of Kathmandu.`\
 https://nytimes.com/2025/09/10/world/asia/nepal-gen-z-protests.html
