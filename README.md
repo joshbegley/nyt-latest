@@ -1,6 +1,10 @@
+**Military Enforces Calm in Nepal After Two Days of Chaos**\
+`Leaders of a youthful protest movement that toppled a prime minister met with the military on Wednesday to discuss a path forward for the country.`\
+https://nytimes.com/2025/09/10/world/asia/nepal-protests-military.html
+
 **Frimpong steps up return from injury; Isak trains with new team-mates**\
 `Summer signing Frimpong missed the Premier League victories over Newcastle and Arsenal with a hamstring injury`\
-https://nytimes.com/athletic/6616668/2025/09/10/liverpool-injuries-training-frimpong-isak/
+https://nytimes.com/athletic/6616668/2025/09/10/liverpool-injuries-training-frimpong-isak-latest/
 
 **Kevin McGonigle, Sebastian Walcott highlight 2025 Arizona Fall League rosters**\
 `McGonigle, Walcott, Charlie Condon and Ethan Salas are among the biggest names heading to the desert this fall.`\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6616600/2025/09/10/week-2-nfl-panic-dolphins-panthe
 **A Celebration of Haitian Designers Kicks Off Fashion Week**\
 `Text by Simbarashe Cha`\
 https://nytimes.com/card/2025/09/10/style/harlem-fashion-row
-
-**Texas Professor Fired After Accusations of Teaching ‘Gender Ideology’**\
-`Two administrators also lost their posts at Texas A&M, an example of how Republican policies meant to curb liberal ideas are reaching into university classrooms.`\
-https://nytimes.com/2025/09/10/us/texas-professor-fired-gender-ideology.html
 
