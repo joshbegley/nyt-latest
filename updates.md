@@ -1,3 +1,15 @@
+**Many Palestinians Leave Gaza City After Evacuation Order**\
+`Nearly all of the city’s residents have already been forced from their homes at least once during the war, many of them multiple times. Several Palestinians do not believe that any place in Gaza is safe from Israeli strikes.`\
+https://nytimes.com/video/world/middleeast/100000010390783/gaza-city-evacuation-israel-hamas.html
+
+**Boeing and Union for 3,200 Striking Workers Reach New Proposed Deal**\
+`Workers who make military aircraft and equipment in the St. Louis area have been on strike since early August after rejecting an earlier agreement.`\
+https://nytimes.com/2025/09/10/business/boeing-machinists-stlouis-deal.html
+
+**Luka Dončić's EuroBasket run ends as Slovenia falls short in quarterfinals**\
+`Dončić had 39 points in the defeat and averaged nearly 35 points in the tournament in leading an undermanned Slovenia to the quarterfinals.`\
+https://nytimes.com/athletic/6617366/2025/09/10/luka-doncic-slovenia-germany-score-result/
+
 **Charlie Kirk, Right-Wing Provocateur and Close Ally of Trump, Dies at 31**\
 `The founder of Turning Point USA played a central role in organizing young voters and giving shape to the pro-Trump agenda. He was fatally shot during a speaking event in Utah.`\
 https://nytimes.com/2025/09/10/us/politics/charlie-kirk-dead.html
