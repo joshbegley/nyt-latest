@@ -1,3 +1,7 @@
+**Trump Threatens to Sue The Times Over Reporting on Epstein Drawing**\
+`The president has denied that he created and signed a sexually suggestive note that was included in a 2003 birthday gift for Jeffrey Epstein.`\
+https://nytimes.com/2025/09/10/business/media/trump-new-york-times-epstein.html
+
 **How Charlie Kirk became the youth whisperer of the right and one of Trump’s closest allies.**\
 `By Robert Draper`\
 https://nytimes.com/live/2025/09/10/us/charlie-kirk-shot-utah/how-charlie-kirk-became-the-youth-whisperer-of-the-right-and-one-of-trumps-closest-allies
@@ -33,8 +37,4 @@ https://nytimes.com/newsgraphics/card-story/rescue-medic-wall-street
 **NBA investigating Malik Beasley's gambling allegations**\
 `While Beasley, 28, is no longer a target of the federal gambling investigation, the NBA confirmed that it has opened its own investigation.`\
 https://nytimes.com/athletic/6616810/2025/09/10/pistons-malik-beasley-gambling-investigation/
-
-**Trump’s Economic Agenda Hinges on the Supreme Court’s Tariff Ruling**\
-`For the president, the power to issue limitless tariffs is at the heart of his second-term vision, from trade to foreign policy.`\
-https://nytimes.com/2025/09/10/us/politics/trump-tariffs-supreme-court.html
 
