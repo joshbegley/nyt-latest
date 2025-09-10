@@ -1,3 +1,15 @@
+**Four burning Rockets questions, including how Kevin Durant fits into a loaded roster**\
+`Houston was the No. 2 seed in the West last season, then added a superstar talent to a group of hungry young players. How will they mesh?`\
+https://nytimes.com/athletic/6615186/2025/09/10/rockets-kevin-durant-preseason-lineups/
+
+**Browns rookies shine in debuts, but team's kicking failures continue**\
+`Since 2020, Cleveland kickers rank last in the NFL in successful PAT tries (78 percent) and field goals shorter than 40 yards (88 percent).`\
+https://nytimes.com/athletic/6613971/2025/09/10/browns-rookies-andre-szmyt-kicker-struggles/
+
+**Why Giants fans may need to temper expectations for Jaxson Dart once he takes the field**\
+`Dart will likely struggle once he takes the field, just like rookie-year Josh Allen once did under Brian Daboll's tutelage in Buffalo. `\
+https://nytimes.com/athletic/6614111/2025/09/10/ny-giants-jaxson-dart-josh-allen-brian-daboll/
+
 **Ozempic Maker Novo Nordisk to Cut 9,000 Jobs**\
 `The Danish drugmaker said it needed to streamline operations and become more agile, as it faces a more competitive and consumer-focused market.`\
 https://nytimes.com/2025/09/10/business/novo-nordisk-job-cuts-ozempic.html
