@@ -1,3 +1,7 @@
+**Reds rookie Chase Burns to be activated Friday, pitch out of bullpen with restrictions**\
+`“We’re trying to balance him finishing the year, because we think that’s really important,” manager Terry Francona said.`\
+https://nytimes.com/athletic/6617704/2025/09/10/reds-chase-burns-activated-bullpen/
+
 **Police Arrest Suspect in Death of Queens Couple in Burning House**\
 `The arrested man is Jamel McGriff. Investigators believe he killed a couple in their 70s, one of whom was found tied to a pole.`\
 https://nytimes.com/2025/09/10/nyregion/queens-couple-burning-house-arrest.html
@@ -12,7 +16,7 @@ https://nytimes.com/2025/09/10/well/chronic-disease-deaths.html
 
 **Education Department Ends Grant Funding Worth $350 Million for Minority-Serving Colleges**\
 `Education Secretary Linda McMahon said the money supported programs that the administration believes unfairly support minority students.`\
-https://nytimes.com/2025/09/10/us/politics/education-department-ends-grant-funding-worth-350-million-for-minority-serving-colleges.html
+https://nytimes.com/2025/09/10/us/politics/linda-mcmahon-federal-grants-colleges-universities.html
 
 **Justice Dept. Reverses Course on Claims Guatemalan Children’s Parents Sought Their Return**\
 `A government lawyer said there was no basis for claims made earlier to a judge about the children, who were nearly deported over Labor Day weekend.`\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6616844/2025/09/10/bmw-pga-championship-pro-am-norr
 **House Passes Defense Policy Bill With Transgender, Diversity Restrictions**\
 `For the third year in a row, House Republicans pushed through a Pentagon policy measure that included conservative policy dictates.`\
 https://nytimes.com/2025/09/10/us/politics/house-defense-bill-diversity-restrictions.html
-
-**Flyers executives expect improvement, explain why 'this patient approach is working'**\
-`The Flyers, it seems, are done being sellers, even if Keith Jones and Dan Hilferty stopped short of predicting a playoff berth.`\
-https://nytimes.com/athletic/6617576/2025/09/10/flyers-roster-jones-hilferty/
 

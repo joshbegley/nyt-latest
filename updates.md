@@ -1,3 +1,11 @@
+**Reds rookie Chase Burns to be activated Friday, pitch out of bullpen with restrictions**\
+`“We’re trying to balance him finishing the year, because we think that’s really important,” manager Terry Francona said.`\
+https://nytimes.com/athletic/6617704/2025/09/10/reds-chase-burns-activated-bullpen/
+
+**Education Department Ends Grant Funding Worth $350 Million for Minority-Serving Colleges**\
+`Education Secretary Linda McMahon said the money supported programs that the administration believes unfairly support minority students.`\
+https://nytimes.com/2025/09/10/us/politics/linda-mcmahon-federal-grants-colleges-universities.html
+
 **Police Arrest Suspect in Death of Queens Couple in Burning House**\
 `The arrested man is Jamel McGriff. Investigators believe he killed a couple in their 70s, one of whom was found tied to a pole.`\
 https://nytimes.com/2025/09/10/nyregion/queens-couple-burning-house-arrest.html
